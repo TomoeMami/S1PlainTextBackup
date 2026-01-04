@@ -8667,3 +8667,56 @@ FHA不是大型NTR吗，就小安披着士郎皮干他的老婆们<img src="http
 有一说一隔壁又再复读什么狮子头新娘 过了那么多年了我还是没能理解这有什么好吐槽得 ...</blockquote>
 终章我看一堆人因为莉莉丝没出来都破防了，尤其是蘑菇写死了主角合玛修并不是他们们YY的同事关系后<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失落之翼  
+##### 20076#       发表于 2026-1-4 18:22
+
+想YY的可以找同人，满足你们的一切幻想<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 20077#       发表于 2026-1-4 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68974430&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-4 17:23</a>
+
+茄子?蘑菇亲自盖棺死的透透的 你现在的见面的茄子只不过是个路人而已（</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲道理这不是问题....这游戏最不缺的不就是各种皮套人吗....更别说连所长都能拆成精神灵魂肉体3份
+
+*****
+
+####  الطائر  
+##### 20078#       发表于 2026-1-4 18:53
+
+有没有可能紫发女同事还记得一切
+
+<img src="https://img.stage1st.com/forum/202601/04/184856o9inf0etitww08iz.jpg" referrerpolicy="no-referrer">
+
+<strong>e.jpg</strong> (316.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-4 18:48 上传
+
+*****
+
+####  shoel  
+##### 20079#       发表于 2026-1-4 19:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68971202&amp;ptid=2084912" target="_blank">zakki 发表于 2026-1-4 08:29</a>
+
+隔壁开始往菌类大魔王，其他所有人都是背地里受气的抗菌斗士的方向带了，真就从索尼大手论到蘑菇大手论，一 ...</blockquote>
+对霓虹特色半封建半资本了解不多导致的，所以之前才会觉得索尼会摁着菌的脑袋写第三部<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shoel  
+##### 20080#       发表于 2026-1-4 19:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68972173&amp;ptid=2084912" target="_blank">飛霞精灵 发表于 2026-1-4 10:54</a>
+
+正儿八经看完剧情也得吃最后梦结局一坨屎啊。</blockquote>
+这一种常见的堵嘴方式，比如之前2.6妖精国国服日服这一年的时间差里都是这么堵嘴的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

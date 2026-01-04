@@ -2121,3 +2121,16 @@ MD机体和G-bit都能造啊
 
 菜的我都怀疑是不是有什么URsp在等着，所以只能像开发大白鹅一样大砍一刀
 
+
+*****
+
+####  シャル  
+##### 3459#         楼主| 发表于 2026-1-4 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68974583&amp;ptid=2071758" target="_blank">plok201 发表于 2026-1-4 17:48</a>
+
+明明开发异灵都给了个地图炮，就是不知道为啥最终战没有，把地图炮补上了那武器还算能接受
+
+菜的我都怀疑是 ...</blockquote>
+尊者，凤凰也是SSR地图炮，UR没有
+
