@@ -40,3 +40,14 @@ kisslove终于有救了，这次直接用api了，改一下就能显示日文 ..
 
 —— 来自 HUAWEI HDL-W09, Android 8.0.0, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  好大一只绅士  
+##### 137#       发表于 2026-1-4 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68956021&amp;ptid=2254551" target="_blank">魔法师lain 发表于 2025-12-31 14:17</a>
+https://github.com/2Loong6/extensions-source
+kisslove终于有救了，这次直接用api了，改一下就能显示日文 ...</blockquote>
+这连接怎么用
+
