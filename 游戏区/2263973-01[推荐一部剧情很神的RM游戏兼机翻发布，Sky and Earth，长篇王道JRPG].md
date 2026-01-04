@@ -262,3 +262,16 @@ ls说那么多其实就是轨迹型npc</blockquote>
 
 不过如果对标异度的话，这个主线又表现得太不现实残酷了，“连一刻都没有为圣地居民的死亡哀悼，立刻赶到天空国出差的主角团”<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  火腿煎蛋  
+##### 208#       发表于 2026-1-4 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68958293&amp;ptid=2263973" target="_blank">Sannapolis 发表于 2025-12-31 22:12</a>
+
+在中间大厅点右上角房间里红球对应的位置</blockquote>
+谢谢，过了
+
+通关之后封灭庭园的迷宫都不想打了，这样也玩了60多个小时，很满足
+
