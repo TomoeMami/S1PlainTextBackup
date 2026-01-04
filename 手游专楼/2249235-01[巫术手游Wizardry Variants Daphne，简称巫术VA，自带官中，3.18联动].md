@@ -213,3 +213,15 @@ sp爱丽丝要来了，顺便看看之前老限定怎么返场吧，蝴蝶没克
 
 同化后在训练场可以变更外观，但是新皮想吃到原皮的克己加成必须至少有一级新皮的克己
 
+
+*****
+
+####  toblkr  
+##### 664#       发表于 2026-1-4 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68974698&amp;ptid=2249235" target="_blank">Flechette 发表于 2026-1-4 18:09</a>
+旧的同化新的，绝大部分数据继承旧的，只有BP和意志力是二者取高
+
+同化后在训练场可以变更外观，但是新皮 ...</blockquote>
+就是用旧的先同化一只新的再克己另一只新的吗
+
