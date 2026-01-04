@@ -4574,3 +4574,66 @@ bd box 1 看信息是收录1～13话，那应该是两季番分割放送吧
 
 说起来，半年前出的第一集是有英配的，1月3号更新的好像没看见谁的源带英配的轨，我还以为这次会同步有两个版本来着<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">（第一集的英配是真不错的）
 
+
+*****
+
+####  Piano-Forest  
+##### 445#         楼主| 发表于 2026-1-4 18:41
+
+『Fate/strange Fake Blu-ray Disc Box』26年5月27日发售
+
+仕様・収録話数
+
+本編BD4枚+特典CD1枚（本編：日本語字幕収録）
+
+TVSP Whispers of Dawn＋第1話～第13話 ※本編Disc編成
+
+Disc1：TVSP、第1～2話  
+
+Disc2：第3～6話
+
+Disc3：第7～10話  
+
+Disc4：第11～13話
+
+◤『Fate/strange Fake』TVSP＆第1話
+
+　　ご視聴ありがとうございました！ ◢
+
+第1話は #山田有慶 さんのイラストをお届け！
+
+第2話「群像 VS 虚像」
+
+1月10日(土)23:30～放送予定📺
+
+お見逃しなく！
+<img src="https://p.sda1.dev/30/8c01ff33aef5d622a14a192fb49616ea/20260104_182806.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2007399538156613810](https://x.com/i/status/2007399538156613810)
+
+本日23:30から『Fate/strangefake』 放送開始です！
+
+宜しくお願い致します…！
+<img src="https://p.sda1.dev/30/8b65aae8481f251b969151032f066e0c/20260104_182927.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2007481568609398993](https://x.com/i/status/2007481568609398993)
+<img src="https://p.sda1.dev/30/b2df2570f9c2806d42a8f168fd111aee/20260104_183422.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2007379104111448159](https://x.com/i/status/2007379104111448159)
+
+今夜より『Fate/strangefake』 放送開始です
+
+よろしくお願いいたします！
+<img src="https://p.sda1.dev/30/f74c2e8349dd68556fcb4d7340c1de52/20260104_182922.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2007441451928686868](https://x.com/i/status/2007441451928686868)
+
+本日23:30から『Fate/strangeFake』放送開始です。 よろしくお願いします！！！！！
+<img src="https://p.sda1.dev/30/602918dcc0777f995e0bdd2d6558cd24/20260104_183415.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2007481075862523986](https://x.com/i/status/2007481075862523986)
+
+『Fate/strangeFake』＃1、ご視聴いただきありがとうございました。来週からもよろしくお願いします！
+<img src="https://p.sda1.dev/30/c21f1ae972f27759162c56af3eae6d4e/20260104_183103.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/b667bee05d8dcda6f8ee5d9bba87a86e/20260104_182931.jpg" referrerpolicy="no-referrer">
+
