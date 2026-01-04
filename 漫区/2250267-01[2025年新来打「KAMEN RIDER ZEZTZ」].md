@@ -881,3 +881,11 @@ NOX为了做双面间谍或者别的什么目的，装作和0反目成仇，去�
 
 下集预告有司令官本体，以及THE LADY和莫接触，这种明线暗线逐渐浮出水面的节奏很稳健，谷中规划能力不错
 
+
+*****
+
+####  洛克萨斯  
+##### 567#       发表于 2026-1-4 11:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">领导这么快下线
+
