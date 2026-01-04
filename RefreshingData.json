@@ -1827,12 +1827,12 @@
     "update": false
   },
   "1957309": {
-    "totalreply": 2597,
+    "totalreply": 2598,
     "title": "[星期一的满杯讨论楼]",
     "newtitle": "[星期一的满杯讨论楼]",
-    "lastedit": 1767215047,
+    "lastedit": 1767568687,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1904473": {
@@ -12870,10 +12870,10 @@
     "update": false
   },
   "2269491": {
-    "totalreply": 3340,
+    "totalreply": 3341,
     "title": "[牢A与赞美诗]",
     "newtitle": "[牢A与赞美诗（转型牢A切片讨论楼）]",
-    "lastedit": 1767560168,
+    "lastedit": 1767568568,
     "category": "外野",
     "active": true,
     "update": false
@@ -17019,10 +17019,10 @@
     "update": false
   },
   "2271376": {
-    "totalreply": 2384,
+    "totalreply": 2386,
     "title": "[南美砖楼2026 委内瑞拉遭到袭击]",
     "newtitle": "[南美砖楼2026 委内瑞拉遭到袭击]",
-    "lastedit": 1767566168,
+    "lastedit": 1767568207,
     "category": "外野",
     "active": true,
     "update": false
@@ -17403,7 +17403,7 @@
     "lastedit": 1767541140,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2271413": {
     "totalreply": 43,
