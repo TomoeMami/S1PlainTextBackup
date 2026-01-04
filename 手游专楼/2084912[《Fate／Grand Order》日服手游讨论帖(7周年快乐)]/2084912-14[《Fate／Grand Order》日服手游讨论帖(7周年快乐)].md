@@ -8461,3 +8461,43 @@ FGO不就一直是这样，只是之前有滤镜<img src="https://static.stage1s
 
 但是中间的进度肯定发生了巨大的偏差，像 1.5 和 奏章这种明摆着拖时间的东西，不好说是有谁想写还是索尼想赚还是 lxs 产能
 
+
+*****
+
+####  森兰丸  
+##### 20057#       发表于 2026-1-4 01:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68970691&amp;ptid=2084912" target="_blank">御坂MKII 发表于 2026-1-4 01:07</a>
+
+不过大纲的两个点子，罗曼就是所罗门和迦勒底是异闻带 0 肯定是一开始定好的，手游业绩好的情况下菌类肯 ...</blockquote>
+1.5和奏章就真的是和主线完全没任何关系......你哪怕在终章提一嘴也好啊
+
+或者像2.6.5一样在结尾给点线索也行<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xunit  
+##### 20058#       发表于 2026-1-4 06:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68970673&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-4 00:53</a>
+虽然你菌和小高都是特殊情况，但小高一个78年生人，做弹丸论破v3的时候才40岁不到，
+
+纯属年轻气盛，还没被 ...</blockquote>
+小岛是Konami出身
+
+*****
+
+####  zakki  
+##### 20059#       发表于 2026-1-4 08:29
+
+ 本帖最后由 zakki 于 2026-1-4 08:32 编辑 
+
+隔壁开始往菌类大魔王，其他所有人都是背地里受气的抗菌斗士的方向带了，真就从索尼大手论到蘑菇大手论，一个极端走向另一个极端，脑子简单到构想不出来除了大手论外的发展了是吧<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 20060#       发表于 2026-1-4 09:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">闹麻了的二极管神经病是这样的
+
