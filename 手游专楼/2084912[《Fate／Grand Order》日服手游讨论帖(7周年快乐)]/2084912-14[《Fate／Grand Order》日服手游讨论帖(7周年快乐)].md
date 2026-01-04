@@ -8550,3 +8550,60 @@ FGO不就一直是这样，只是之前有滤镜<img src="https://static.stage1s
 大预言家</blockquote>
 我记得好像1.5还是2.X的时候就有同人作品反应这种悲观论调，主角精神已经崩坏了，有的是1.0终章任务已经失败其他人都牺牲只剩主角苟延残喘（就像这张作品），好像还有个同人梦结局其实不过是主角被爆炸炸死前的幻想（挺老套的）<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fool  
+##### 20065#       发表于 2026-1-4 15:32
+
+不是，失忆怎么就快进到梦结局了，而且最后还跟学妹接上头了，四舍五入也是实现了打完这仗一起开面包店的梦想
+
+*****
+
+####  Blackson  
+##### 20066#       发表于 2026-1-4 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68968240&amp;ptid=2084912" target="_blank">kiralzb 发表于 2026-1-3 16:17</a>
+ 反正一个极端到另一个极端，全是感情输出，翻旧账文字狱，断章取义，利用翻译的信息差，可见太多了  话说礼 ...</blockquote>
+2.6.5新加的
+
+*****
+
+####  岸浪白野  
+##### 20067#       发表于 2026-1-4 16:29
+
+ 本帖最后由 岸浪白野 于 2026-1-4 16:32 编辑 
+
+然而这种阴谋论是搬运日本匿名版的，你应该问发这条的阴湿日本人是不是别的作家的孝子靠这样来招魂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+有空在那幻想那堆财富自由搞宫斗剧，你真想骂他顶多是个2.6的欧若拉，而且他还真的说过他喜欢欧若拉
+
+这都算梦结局的话，那FHA不更纯正梦结局了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大十字紅朔  
+##### 20068#       发表于 2026-1-4 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68970673&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-4 00:53</a>
+
+虽然你菌和小高都是特殊情况，但小高一个78年生人，做弹丸论破v3的时候才40岁不到，
+
+纯属年轻气盛，还没被 ...</blockquote>
+富野在F91和V高达两连载跟头以后其实基本上查无此人了，剩下个名头还在
+
+V以后做了几部动画都是小成本，连Z高达复刻版都没预算全部重画，用了大量老镜头
+
+奈须和这些人不一样，她自己是老板，不是雇员。
+
+是资本家那桌的
+
+*****
+
+####  失落之翼  
+##### 20069#       发表于 2026-1-4 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68972173&amp;ptid=2084912" target="_blank">飛霞精灵 发表于 2026-1-4 10:54</a>
+
+正儿八经看完剧情也得吃最后梦结局一坨屎啊。</blockquote>
+严格说不算梦结局吧，就像那些穿越改变现实的剧情，也类似你做了预防某些事不发生也不算无用功。如果按这个结局的话，至少茄子看起来变正常人了没事了不是（按老所长没搞事线应该在南极就废弃掉停止机能了？）
+
