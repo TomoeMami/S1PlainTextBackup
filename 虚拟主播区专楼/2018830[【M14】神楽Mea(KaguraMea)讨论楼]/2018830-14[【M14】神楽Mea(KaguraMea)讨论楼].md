@@ -2396,3 +2396,40 @@ YouTube明天再弄吧。
 要不要播呢。我是这么打算的。那我先睡了。
 辛苦啦，晚安啦。
 
+
+*****
+
+####  术士q  
+##### 20164#       发表于 2026-1-4 23:06
+
+参考Jimmy佬完成，戳由朋友提供，感谢!
+
+2026.1.4歌回
+0:08:48 - 0:14:06 ✨️ 01. 初恋终结之时 / 初めての恋が終わる時 / supercell
+
+0:14:34 - 0:20:41 ✨️ 02. 再见了回忆 / さよならメモリーズ / supercell
+
+0:21:33 - 0:23:37 ✨️ 03. 致自己 / 私へ / supercell
+
+0:23:48 - 0:28:43 ✨️ 04. LOVE&amp;ROLL / LOVE&amp;ROLL / supercell
+
+0:29:04 - 0:33:52 ✨️ 05. BLACK★ROCK SHOOTER / ブラック★ロックシューター / supercell
+
+0:34:23 - 0:39:31 ✨️ 06. Hero / ヒーロー / supercell
+
+0:40:22 - 0:44:26 ✨️ 07. 拍手喝采歌合 / 拍手喝采歌合 / supercell
+
+0:45:20 - 0:50:57 ✨️ 08. My Dearest / My Dearest / supercell
+
+0:51:31 - 0:56:46 ✨️ 09. 无名的怪物 / 无名的怪物 / EGOIST
+
+0:57:28 - 1:02:53 ✨️ 10. The Everlasting Guilty Crown / The Everlasting Guilty Crown / EGOIST
+
+1:03:53 - 1:07:37 ✨️ 11. 欧忒耳佩 / エウテルぺ / EGOIST
+
+1:07:40 - 1:11:54 ✨️ 12. Departures ~赠于你的爱之歌~ / Departures ～あなたにおくるアイの歌～ / EGOIST
+
+1:13:27 - 1:18:50 ✨️ 13. Ghost of a smile / Ghost of a smile / EGOIST
+
+1:20:21 - 1:24:30 ✨️ 14. 在梦香的早晨。 / 夢の香りのする朝に。 / 文藝天国
+

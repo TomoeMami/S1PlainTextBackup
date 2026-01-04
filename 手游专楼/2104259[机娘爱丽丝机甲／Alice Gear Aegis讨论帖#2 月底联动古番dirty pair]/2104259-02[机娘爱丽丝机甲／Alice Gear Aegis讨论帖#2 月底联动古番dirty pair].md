@@ -45,3 +45,13 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  冰风血羽  
+##### 1811#       发表于 2026-1-4 23:08
+
+氪金网站去年成功绑上了visa，不过12月过期删了旧卡之后就再也绑不上了，但是又可以用游客模式直接买，神秘<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
