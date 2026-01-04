@@ -51,3 +51,13 @@ https://github.com/2Loong6/extensions-source
 kisslove终于有救了，这次直接用api了，改一下就能显示日文 ...</blockquote>
 这连接怎么用
 
+
+*****
+
+####  jackyhuang  
+##### 138#       发表于 2026-1-5 00:17
+
+kisslove更新了，但是原有的漫画名都改了，要原地迁移一次
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
