@@ -8927,3 +8927,44 @@ V以后做了几部动画都是小成本，连 ...</blockquote>
 我觉得强行搞死紫苑还必须改人籍更整蛊</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">半斤八两！
 
+
+*****
+
+####  alucardcz  
+##### 20098#       发表于 2026-1-5 00:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过隔壁确实太吓人了。什么难受了一个假期  元旦全部白给。。入戏这么深的吗
+
+*****
+
+####  希望之花  
+##### 20099#       发表于 2026-1-5 01:27
+
+fgo有一点比较好的是数值膨胀这块，c呆奥伯龙之后就没有大拐了，大部分玩家可以拿喜欢的角色推图，只要宝具有伤害都能上。另外给了灵脉石可以在推剧情时无限复活，导致对强度需求不高。
+
+从去年开始娄西藤蔓提了一波绿卡强度，然后今年送的高强度p龙娘和p所罗门开始有点不做人的味道。最后结束了出一个冠呆，放以前应该会很多人讨论强度啥的，现在来看更多的反应是“你来干嘛的”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要是蘑菇真不干了，给螺旋社一个名分搞fgo gt，那以新时代基准强度来看冠呆的话，以后就是真的有大膨胀了。
+
+不过这种先天残疾的激烈指令卡战斗也没啥好膨胀的就是了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 真正要考虑到膨胀应该是咕哒的后宫，一来就示好示爱的太多了
+
+*****
+
+####  闪亮的彗星  
+##### 20100#       发表于 2026-1-5 01:33
+
+从者宇宙在可观测宇宙之外赢 宇宙凛羁绊礼装续写终章大结局大赢特赢
+
+*****
+
+####  岸浪白野  
+##### 20101#       发表于 2026-1-5 01:56
+
+ 本帖最后由 岸浪白野 于 2026-1-5 01:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68976394&amp;ptid=2084912" target="_blank">希望之花 发表于 2026-1-5 01:27</a>
+
+fgo有一点比较好的是数值膨胀这块，c呆奥伯龙之后就没有大拐了，大部分玩家可以拿喜欢的角色推图，只要宝具 ...</blockquote>
+首先wys负责强度这块设计一直都精准，冠呆是靠全体减CD玩多核队伍为亮点单核还是那副样，说实话始终是冠位爆了之前果子龙扶多核也正常啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+新时代基准强度都是以所长为基准才会是要完，这甚至已经是冠位呆和所长调换周年位置了，要是按之前想法终章结束后才出放现在1月1号才出所长卡池，真觉得FGO要完了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
