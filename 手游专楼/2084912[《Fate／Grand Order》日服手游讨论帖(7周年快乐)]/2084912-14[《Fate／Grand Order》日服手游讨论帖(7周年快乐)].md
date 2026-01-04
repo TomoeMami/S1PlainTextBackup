@@ -8720,3 +8720,67 @@ FHA不是大型NTR吗，就小安披着士郎皮干他的老婆们<img src="http
 正儿八经看完剧情也得吃最后梦结局一坨屎啊。</blockquote>
 这一种常见的堵嘴方式，比如之前2.6妖精国国服日服这一年的时间差里都是这么堵嘴的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 20081#       发表于 2026-1-4 19:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68974234&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2026-1-4 16:52</a>
+
+富野在F91和V高达两连载跟头以后其实基本上查无此人了，剩下个名头还在
+
+V以后做了几部动画都是小成本，连 ...</blockquote>
+所以说阿菌是特殊情况啊
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于大光头，说查无此人真不至于
+
+一个把公司主产品干蹦两次的人，还能稳定1~2年接个活还要什么自行车
+
+更别说后面做的turnA、OVERMAN包括G复国都是光上会就能让人眼前一黑，摆明了玩具卖不出去的东西
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 20082#       发表于 2026-1-4 19:45
+
+ 本帖最后由 exiaexa 于 2026-1-4 19:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68974509&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-4 17:36</a>
+
+有一说一隔壁又再复读什么狮子头新娘 过了那么多年了我还是没能理解这有什么好吐槽得 ...</blockquote>
+这个其实还算好理解
+
+很多新人是吧2.6当作无上瑰宝的，很多我们觉得逻辑硬伤、阿菌摆烂甚至开倒车的地方在人家看来是铺垫太多，菌鸽鸽尽力了，其他二游你们做的到吗（重点
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+然后就出了个悖论，在这么一个完美的作品里，居然有这么一个破梗，不但不需要细读就能发现，甚至会被同行天天拉出来鞭尸嘲笑，它让完美的2.6不再完美，让喜欢菌鸽鸽的人直不起腰杆
+
+那段时间，只要月球人参加什么讨论剧情的，或者麻辣文化相关的，立刻就被甩一句狮子夫人，这着怎么绷得住嘛
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飛霞精灵  
+##### 20083#       发表于 2026-1-4 19:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68974982&amp;ptid=2084912" target="_blank">shoel 发表于 2026-1-4 19:10</a>
+
+这一种常见的堵嘴方式，比如之前2.6妖精国国服日服这一年的时间差里都是这么堵嘴的 ...</blockquote>
+反正我理解不了FGO这个终章都属于喜提末代沙皇全家待遇了，怎么还有要觉得这是个风光大葬的。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+玩家这么爱菌giegie，菌giegie有那么爱玩家么。
+
+*****
+
+####  shoel  
+##### 20084#       发表于 2026-1-4 20:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68975184&amp;ptid=2084912" target="_blank">飛霞精灵 发表于 2026-1-4 19:59</a>
+
+反正我理解不了FGO这个终章都属于喜提末代沙皇全家待遇了，怎么还有要觉得这是个风光大葬的。
+
+玩家这么爱 ...</blockquote>
+这是一种二次元常见的打法，你一个云玩家/云读者有我懂吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
