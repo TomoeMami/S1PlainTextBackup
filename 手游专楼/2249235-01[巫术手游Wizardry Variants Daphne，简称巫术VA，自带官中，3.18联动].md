@@ -225,3 +225,14 @@ sp爱丽丝要来了，顺便看看之前老限定怎么返场吧，蝴蝶没克
 同化后在训练场可以变更外观，但是新皮 ...</blockquote>
 就是用旧的先同化一只新的再克己另一只新的吗
 
+
+*****
+
+####  Flechette  
+##### 665#       发表于 2026-1-4 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68975010&amp;ptid=2249235" target="_blank">toblkr 发表于 2026-1-4 19:16</a>
+
+就是用旧的先同化一只新的再克己另一只新的吗</blockquote>
+对的，同化完后你当前用哪个皮肤就能克己对应角色，切到新皮再克己一只新皮就能激活共享克己加成，之后原皮新皮之间的区别只有一个被动技能了，可以随自己喜欢切
+
