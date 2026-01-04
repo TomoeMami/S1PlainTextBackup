@@ -4659,3 +4659,15 @@ Disc4：第11～13話
 —— 来自 vivo V2454A, Android 16, 鹅球 v3.5.99 ...</blockquote>
 还有第1集的24min。
 
+
+*****
+
+####  傘木希美  
+##### 448#       发表于 2026-1-4 23:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68975911&amp;ptid=2086574" target="_blank">晨灯 发表于 2026-1-4 23:05</a>
+还有第1集的24min。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">那现在所有的是1小时+个24min，不过都是之前放过的？忘了之前这两年元旦一共放了多少了
+
+—— 来自 Xiaomi 25079RPDCC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
