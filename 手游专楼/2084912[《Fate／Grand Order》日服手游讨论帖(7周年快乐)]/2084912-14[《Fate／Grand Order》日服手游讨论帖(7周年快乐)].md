@@ -8501,3 +8501,52 @@ FGO不就一直是这样，只是之前有滤镜<img src="https://static.stage1s
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">闹麻了的二极管神经病是这样的
 
+
+*****
+
+####  exiaexa  
+##### 20061#       发表于 2026-1-4 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68971036&amp;ptid=2084912" target="_blank">xunit 发表于 2026-1-4 06:59</a>
+
+小岛是Konami出身</blockquote>
+手抽打错了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飛霞精灵  
+##### 20062#       发表于 2026-1-4 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68970214&amp;ptid=2084912" target="_blank">KOBI 发表于 2026-1-3 22:46</a>
+
+我是挺怀疑那些喊打喊杀的家伙有几个是正儿八经的自己过剧情而不是去看翻译的
+
+就这两年这营运他们是真想FGO ...</blockquote>
+正儿八经看完剧情也得吃最后梦结局一坨屎啊。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 20063#       发表于 2026-1-4 14:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大预言家
+
+<img src="https://img.stage1st.com/forum/202601/04/142343rmpulu0rmpteyulp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (124.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-4 14:23 上传
+
+*****
+
+####  失落之翼  
+##### 20064#       发表于 2026-1-4 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68973426&amp;ptid=2084912" target="_blank">qixinno2 发表于 2026-1-4 14:23</a>
+
+大预言家</blockquote>
+我记得好像1.5还是2.X的时候就有同人作品反应这种悲观论调，主角精神已经崩坏了，有的是1.0终章任务已经失败其他人都牺牲只剩主角苟延残喘（就像这张作品），好像还有个同人梦结局其实不过是主角被爆炸炸死前的幻想（挺老套的）<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
