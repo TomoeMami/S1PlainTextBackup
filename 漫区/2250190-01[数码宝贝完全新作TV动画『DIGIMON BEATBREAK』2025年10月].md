@@ -37,3 +37,18 @@ image.png
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  恋叶梦境  
+##### 362#       发表于 2026-1-4 12:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68972667&amp;ptid=2250190" target="_blank">InfiniteGyre 发表于 2026-1-4 12:01</a>
+
+水生奇美拉兽是新的吗，还挺有意思的
+
+—— 来自 鹅球 v3.5.99</blockquote>
+2020年11月数码兽摇摆机Z首次登场
+
+但的确是动画初登场
+

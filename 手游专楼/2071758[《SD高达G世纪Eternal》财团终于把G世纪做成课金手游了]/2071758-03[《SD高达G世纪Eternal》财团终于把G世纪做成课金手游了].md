@@ -2062,3 +2062,11 @@ https://www.bilibili.com/video/BV1xZvdB9EUi/?spm_id_from=333.1387.homepage.video
 
 本意是让多带几个盾掩护灵异在后面输出？可惜也真没必要为了带它特意上几个盾<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 3454#         楼主| 发表于 2026-1-4 12:14
+
+异灵tm太耗蓝和血了，大招扣血有鬼啊
+

@@ -889,3 +889,11 @@ NOX为了做双面间谍或者别的什么目的，装作和0反目成仇，去�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">领导这么快下线
 
+
+*****
+
+####  暗黑能乐  
+##### 568#       发表于 2026-1-4 12:08
+
+这次任务也双关了，失踪的人不仅指宁梦也指0
+
