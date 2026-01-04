@@ -165,3 +165,16 @@ sp爱丽丝要来了，顺便看看之前老限定怎么返场吧，蝴蝶没克
 
 被别人的2k石晒死
 
+
+*****
+
+####  电脑死机  
+##### 660#       发表于 2026-1-4 08:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68970293&amp;ptid=2249235" target="_blank">茄子自走炮 发表于 2026-1-3 23:06</a>
+
+新年三次任务给了500石、技能书、技能书
+
+被别人的2k石晒死</blockquote>
+我这边是500/1000/眩晕书，知足了
+
