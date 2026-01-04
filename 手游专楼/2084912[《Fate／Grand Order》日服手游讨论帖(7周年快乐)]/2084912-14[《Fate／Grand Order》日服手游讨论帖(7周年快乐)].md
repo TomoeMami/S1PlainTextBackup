@@ -8885,3 +8885,45 @@ V以后做了几部动画都是小成本，连 ...</blockquote>
 
 玩家十年光阴投入的金钱和感情还有时间到头来一场空，无论如何都是说不过去的
 
+
+*****
+
+####  alucardcz  
+##### 20093#       发表于 2026-1-4 22:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">有一说一 萌新也从来没找过代练也没用过模拟器。当然 我压根就不刷（
+
+*****
+
+####  rollingusagi  
+##### 20094#       发表于 2026-1-4 23:07
+
+菌不让救所长很简单的逻辑啊，因为所长已经是死人了，一个已经死的人的命运是不可能改变的，很符合fate标题的逻辑，在无法改变她命运的基础上对她进行最大限度的救治，这就是阿菌的想法，只能说玩家毕竟不是武内，武内当初能逼着菌强行给呆毛写个好结局，不然呆毛其实也一样
+
+*****
+
+####  alucardcz  
+##### 20095#       发表于 2026-1-4 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68975920&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2026-1-4 23:07</a>
+
+菌不让救所长很简单的逻辑啊，因为所长已经是死人了，一个已经死的人的命运是不可能改变的，很符合fate标题 ...</blockquote>
+你搞错了根本的东西 所长不是非要救起来 但不能死的这么傻逼这么小丑 不难懂吧？<img src="https://static.stage1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 20096#       发表于 2026-1-4 23:52
+
+我觉得强行搞死紫苑还必须改人籍更整蛊<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 20097#       发表于 2026-1-4 23:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68976101&amp;ptid=2084912" target="_blank">kiralzb 发表于 2026-1-4 23:52</a>
+
+我觉得强行搞死紫苑还必须改人籍更整蛊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">半斤八两！
+
