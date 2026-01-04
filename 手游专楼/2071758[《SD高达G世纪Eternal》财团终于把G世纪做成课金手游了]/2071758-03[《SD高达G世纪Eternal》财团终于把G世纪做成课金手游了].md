@@ -2070,3 +2070,34 @@ https://www.bilibili.com/video/BV1xZvdB9EUi/?spm_id_from=333.1387.homepage.video
 
 异灵tm太耗蓝和血了，大招扣血有鬼啊
 
+
+*****
+
+####  シャル  
+##### 3455#         楼主| 发表于 2026-1-4 12:16
+
+ 本帖最后由 シャル 于 2026-1-4 12:17 编辑 
+
+上午整理队形过了永恒之路EX水星，seed，铁血
+
+ur命运和狼王就是强力，打小朋友
+
+还剩一半
+
+<img src="https://img.stage1st.com/forum/202601/04/121641qjwb43nzlnbnznns.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202601/04/121641qjwb43nzlnbnznns.png">
+
+<strong>IMG_4338.png</strong> (763.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-4 12:16 上传
+
+*****
+
+####  シャル  
+##### 3456#         楼主| 发表于 2026-1-4 12:21
+
+<blockquote>ドロロ 发表于 2026-1-2 14:20
+哭惹</blockquote>
+僧侣钢坦克有升职形态大贤者钢坦克的…
+
