@@ -8784,3 +8784,55 @@ V以后做了几部动画都是小成本，连 ...</blockquote>
 玩家这么爱 ...</blockquote>
 这是一种二次元常见的打法，你一个云玩家/云读者有我懂吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 20085#       发表于 2026-1-4 20:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68975142&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-4 19:45</a>
+
+这个其实还算好理解
+
+很多新人是吧2.6当作无上瑰宝的，很多我们觉得逻辑硬伤、阿菌摆烂甚至开倒车的地方在 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就2个字.....有病
+
+要我说真对这方面敏感的话这狮子头相关的剧情远不如贝屑对色茄子的各种阴湿的想法和行动来的恶心.....毕竟之前在嘉乐迪时可是真让贝屑得手了一次
+
+玩这种烂梗的反而对贝屑哑巴了
+
+*****
+
+####  angelooo  
+##### 20086#       发表于 2026-1-4 20:39
+
+<blockquote>森兰丸 发表于 2026-1-4 20:11
+就2个字.....有病
+
+要我说真对这方面敏感的话这狮子头相关的剧情远不如贝屑对色茄子的各种阴湿的想法和行 ...</blockquote>
+可问题是菌自己都洗贝屑了啊
+
+什么发现大令咒有问题，以当A组内的监视者作为条件阻止牢马给玛修植入
+
+菌这意思可不就是表示贝屑对玛修是真爱吗（呕
+
+*****
+
+####  都谷捻柏  
+##### 20087#       发表于 2026-1-4 21:26
+
+不算是梦结局，梦结局还留着梦里的记忆可以拿来回忆。
+
+这个算是全灭结局，因为没有任何记忆继承，对正史的所有角色来说，这十年的所有经历其实是全部不存在的。
+
+用跨越次元壁的话来解释的话就是，FGO从开服到现在所有的一切都只是一场虚无。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有玩家氪的钱到蘑菇钱包里了，其中有的化作了notes的大楼。
+
+*****
+
+####  cenhr  
+##### 20088#       发表于 2026-1-4 22:23
+
+终章不能想太多的。例如蘑菇就是为了让所长不能被救所以给了很扯的重量和地球一样拉不上来。那么单手拉着她也只是快脱臼还能听她批评自己的主角是什么肌肉怪物？圣骑士玛修能拉着这两人是什么top从者？老福特地制造的救生索联系着三人不断又是什么神器？最扯的是海叔有背负地球的神话，那么不就代表只要主角肌肉多练一些就能成功救人？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
