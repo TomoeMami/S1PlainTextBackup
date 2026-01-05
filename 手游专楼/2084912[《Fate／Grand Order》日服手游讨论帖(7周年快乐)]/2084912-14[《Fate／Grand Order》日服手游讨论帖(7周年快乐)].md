@@ -9202,3 +9202,44 @@ FS动画伪绫香自媒体抽卡直接彩圈，之前没有过吧
 没人埋伏在notes大楼报复，算是还能接受的结局吧</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">如果这楼在韩国呢！
 
+
+*****
+
+####  高木なつめ  
+##### 20124#       发表于 2026-1-5 13:18
+
+玩个游戏这么真情实感也太…
+
+*****
+
+####  cenhr  
+##### 20125#       发表于 2026-1-5 13:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68978469&amp;ptid=2084912" target="_blank">高木なつめ 发表于 2026-1-5 13:18</a>
+
+玩个游戏这么真情实感也太…</blockquote>
+真的是感情吗，是钱<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 20126#       发表于 2026-1-5 13:27
+
+ 本帖最后由 exiaexa 于 2026-1-5 13:28 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68978477&amp;ptid=2084912" target="_blank">cenhr 发表于 2026-1-5 13:20</a>
+
+真的是感情吗，是钱</blockquote>
+不好说，至少按现在的网络环境来说
+
+氪得越少声音越大是常态
+
+或者换个思路，一个氪了七八年的中登，还没氪累也挺难的，再有心气也磨得差不多了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 20127#       发表于 2026-1-5 13:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">10%发出了90%的声音
+
