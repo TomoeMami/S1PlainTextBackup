@@ -9714,3 +9714,13 @@ fgo这个终章写的还不叫教你做人吗？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一 2.5确实惨阿  游戏都完结了 从者还没实装 笑嘻了
 
+
+*****
+
+####  岸浪白野  
+##### 20164#       发表于 2026-1-6 02:08
+
+ 本帖最后由 岸浪白野 于 2026-1-6 02:09 编辑 
+
+本来这样想的理想情况不会差到哪去，现在是后续活动剧情时间线都是终章前这种又香又臭的膈应<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
