@@ -9016,3 +9016,56 @@ fgo有一点比较好的是数值膨胀这块，c呆奥伯龙之后就没有大�
 
 https://tieba.baidu.com/p/10366150100?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.92.1.0&amp;st=1767540112&amp;is_video=false&amp;unique=34647462FA177DB821390ACD9ED1DDC7
 
+
+*****
+
+####  cenhr  
+##### 20106#       发表于 2026-1-5 09:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68976990&amp;ptid=2084912" target="_blank">angelooo 发表于 2026-1-5 09:18</a>
+
+隔壁这才哪到哪，贴吧已经在挖祖坟了，接下去就要快进到菌类写的曾经令人感动的主线部分全是拼多多了233
+
+h ...</blockquote>
+这算是大型偶像滤镜破碎后的清算行为吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 20107#       发表于 2026-1-5 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68976887&amp;ptid=2084912" target="_blank">zakki 发表于 2026-1-5 08:59</a>
+隔壁这个样，啥时候能消停下来，感觉越发越烈，已经疯魔了</blockquote>
+我觉得是好事，这种情绪如果能外溢到日本就更好了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  angelooo  
+##### 20108#       发表于 2026-1-5 10:22
+
+<blockquote>都谷捻柏 发表于 2026-1-5 10:18
+我觉得是好事，这种情绪如果能外溢到日本就更好了。
+
+—— 来自 S1Fun</blockquote>
+本子推上歌舞升平，匿名区喷得比隔壁狠多了，比如还开发出了菌类可能一直打压其他写手的黑泥，然后这些内容搬运到隔壁之后被光速锁了，看来是隔壁想要营造本子那边一片好评只有简中区在发癫的假象233
+
+*****
+
+####  fool  
+##### 20109#       发表于 2026-1-5 10:50
+
+用跨越次元壁的话来解释的话，FGO从开服到现在所有的一切确实就只是一场虚无啊，那不然呢？让YLS给你发个实体典位认证奖状？
+
+*****
+
+####  飛霞精灵  
+##### 20110#       发表于 2026-1-5 10:51
+
+隔壁应该是要么有叔叔大手要么有铁杆真爱粉圈控评的。
+
+之前爽哥等一众老提督，在舰C区喷田中飞妈的梗都喷了多少年了。
+
+到废狗区直接把叶良树/盐川/蘑菇的飞妈梗直接当了禁词。
+
