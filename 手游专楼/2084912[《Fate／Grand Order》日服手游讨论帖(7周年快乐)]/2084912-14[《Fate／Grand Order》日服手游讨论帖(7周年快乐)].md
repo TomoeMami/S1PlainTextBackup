@@ -8968,3 +8968,51 @@ fgo有一点比较好的是数值膨胀这块，c呆奥伯龙之后就没有大�
 
 新时代基准强度都是以所长为基准才会是要完，这甚至已经是冠位呆和所长调换周年位置了，要是按之前想法终章结束后才出放现在1月1号才出所长卡池，真觉得FGO要完了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 20102#       发表于 2026-1-5 02:01
+
+ 本帖最后由 大十字紅朔 于 2026-1-5 02:04 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68975559&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2026-1-4 21:26</a>
+
+不算是梦结局，梦结局还留着梦里的记忆可以拿来回忆。
+
+这个算是全灭结局，因为没有任何记忆继承，对正史的 ...</blockquote>
+要说是话就是全灭结局没错
+
+就算是主角，从2004年踏入异闻带分歧开始的她已经不存在了
+
+不是从15年开始，而是从04年开始，那时主角才6、7岁左右
+
+所以结局出现的人是和之前我们认得的FGO主角都没有关系的另一个人
+
+这个就是剪定异闻带的意思啊，不然主角也不会那么艰难
+
+*****
+
+####  zakki  
+##### 20103#       发表于 2026-1-5 08:59
+
+隔壁这个样，啥时候能消停下来，感觉越发越烈，已经疯魔了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 20104#       发表于 2026-1-5 09:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68976887&amp;ptid=2084912" target="_blank">zakki 发表于 2026-1-5 08:59</a>
+
+隔壁这个样，啥时候能消停下来，感觉越发越烈，已经疯魔了</blockquote>
+有戏看不好吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 20105#       发表于 2026-1-5 09:18
+
+隔壁这才哪到哪，贴吧已经在挖祖坟了，接下去就要快进到菌类写的曾经令人感动的主线部分全是拼多多了233
+
+https://tieba.baidu.com/p/10366150100?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.92.1.0&amp;st=1767540112&amp;is_video=false&amp;unique=34647462FA177DB821390ACD9ED1DDC7
+
