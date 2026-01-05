@@ -9426,3 +9426,19 @@ FS动画伪绫香自媒体抽卡直接彩圈，之前没有过吧
 “FGO这傻X游戏终于完结了吗”
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 20141#       发表于 2026-1-5 17:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202601/05/170147v4fcqm65oipqzvhy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (61.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-5 17:01 上传
+
