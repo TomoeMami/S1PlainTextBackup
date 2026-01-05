@@ -55,3 +55,11 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  madcow  
+##### 1812#       发表于 2026-1-5 23:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">话说我记得去年周年是不是有自选普通四星来着，有的话就不去赌那个200石的电击池子出四星宁里了
+
