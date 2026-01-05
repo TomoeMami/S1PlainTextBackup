@@ -236,3 +236,27 @@ sp爱丽丝要来了，顺便看看之前老限定怎么返场吧，蝴蝶没克
 就是用旧的先同化一只新的再克己另一只新的吗</blockquote>
 对的，同化完后你当前用哪个皮肤就能克己对应角色，切到新皮再克己一只新皮就能激活共享克己加成，之后原皮新皮之间的区别只有一个被动技能了，可以随自己喜欢切
 
+
+*****
+
+####  Flechette  
+##### 666#       发表于 2026-1-5 18:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68974698&amp;ptid=2249235" target="_blank">Flechette 发表于 2026-1-4 18:09</a>
+
+旧的同化新的，绝大部分数据继承旧的，只有BP和意志力是二者取高
+
+同化后在训练场可以变更外观，但是新皮 ...</blockquote>
+
+纠正一下之前的说法：
+
+<img src="https://img.stage1st.com/forum/202601/05/183909o8rnicr99iu943n3.png" referrerpolicy="no-referrer">
+
+<strong>83843.png</strong> (148.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-5 18:39 上传
+
+现在同化似乎会继承喂了的技能，所以新的同化旧的应该也可以，要是换皮角的个体更好，可以用新的同化旧的
+
