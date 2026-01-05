@@ -1146,3 +1146,13 @@ https://www.gamersky.com/handbook/202507/1963876.shtml</blockquote>
 
 最后时间给的很充裕。就是有点小刻意了。
 
+
+*****
+
+####  stoiorz  
+##### 117#       发表于 2026-1-5 12:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">打黑豹线，台词里疯狂玩梗，打着打着狂笑。
+
+什么三年又三年和西海岸鬣狗和哈草智障羊驼的battle，爪帮和脚帮的脸都被你们丢完了。
+
