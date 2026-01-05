@@ -9555,3 +9555,15 @@ fgo这个终章写的还不叫教你做人吗？
 
 这游戏写到2.7都没啥问题，终章接在这里长度就差不多了。2.7把中间一堆load to 2.X去掉，也就三年前可以完结，体感还没那么shi。
 
+
+*****
+
+####  岸浪白野  
+##### 20152#       发表于 2026-1-5 22:28
+
+总结一下就是前面是看去年访谈的态度还积极的就先信一会说的，认识这么多年虽然也清楚他说话也像放屁一样就一个随便的很的人
+剧情本来就应该下定决心完结，现在态度是已经不想写了也整了现在这结局出来也不说太多了，不想再写剧情就算了新年头一天日记还来句FGO到终点了，那你们这些还在玩的和还在运营的简直是苟延残喘啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/ff2cf56561a062981e53ffc926a63a24/image.jpg" referrerpolicy="no-referrer">
+现在这个时代是有个手游运作就已经不错了对热度和活跃度都有帮助，你游状况也还健康着还能继续运营
+活了10年的游戏又不是只有你这一个不至于准备今年就在安排白事了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
