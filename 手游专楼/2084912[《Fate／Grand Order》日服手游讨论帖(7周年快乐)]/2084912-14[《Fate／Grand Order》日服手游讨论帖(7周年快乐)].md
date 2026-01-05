@@ -9606,3 +9606,25 @@ fgo这个终章写的还不叫教你做人吗？
 这大概能算一对玩具虎，两头脆脆鲨了
 <img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 20154#       发表于 2026-1-5 23:06
+
+因为2.6就是崩坏的开始，从这开始把自己第二部大纲都撕了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 20155#       发表于 2026-1-5 23:12
+
+死的像个小丑的摩根....当初还一堆人在奶是诈死下半部有大的
+
+没有任何笔墨来描写的妖崔的3破
+
+还有公款追星的奥伯龙
+
+还真是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
