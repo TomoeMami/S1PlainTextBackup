@@ -4682,3 +4682,16 @@ Disc4：第11～13話
 首先这个星期放的是22年底放过的特别篇+24年底放过的第1集
 下个星期放的第2集其实在欧美也被25年8月先行线下上映第2集+12月先行上映1-4集加起来放过两遍了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  傘木希美  
+##### 450#       发表于 2026-1-5 13:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68976504&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-1-5 03:09</a>
+首先这个星期放的是22年底放过的特别篇+24年底放过的第1集
+下个星期放的第2集其实在美国也被25年8月先行线 ...</blockquote>
+想起来了，美国那边8月的先行上映<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">是不是因为线下一直都没有线上资源来着
+
+—— 来自 vivo V2454A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
