@@ -9156,3 +9156,49 @@ h ...</blockquote>
 
 我是菌菌的话直接关服来波大的
 
+
+*****
+
+####  シャル  
+##### 20119#       发表于 2026-1-5 11:59
+
+FS动画伪绫香自媒体抽卡直接彩圈，之前没有过吧
+
+记得之前召唤都是白圈
+
+*****
+
+####  Perfectfullmoon  
+##### 20120#       发表于 2026-1-5 12:48
+
+蘑菇在FGO整的烂活（或者说争议比较大的内容）其实不少，但隔壁论坛的一部分极端厨子始终在嘴硬<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说起来，立绘抄袭那件事情后来有下文了吗
+
+
+*****
+
+####  青春之我  
+##### 20121#       发表于 2026-1-5 12:50
+
+<blockquote>rollingusagi 发表于 2026-1-4 23:07
+菌不让救所长很简单的逻辑啊，因为所长已经是死人了，一个已经死的人的命运是不可能改变的，很符合fate标题 ...</blockquote>
+让玩家拉上来，满足一下玩家英雄情结呗。反正0号异闻带要被清理，时间线要重置。紫发女路人在泛人类史都从人造人改成试管婴儿，没去过北极了。更何况泛人类史正史所长根本就没死啊，二世事件簿才是接fsn的正史，人所长活得好好的呢。又不是肯主任那样被钦定了咋都要死。
+
+*****
+
+####  cenhr  
+##### 20122#       发表于 2026-1-5 13:00
+
+没人埋伏在notes大楼报复，算是还能接受的结局吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 20123#       发表于 2026-1-5 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68978403&amp;ptid=2084912" target="_blank">cenhr 发表于 2026-1-5 13:00</a>
+
+没人埋伏在notes大楼报复，算是还能接受的结局吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">如果这楼在韩国呢！
+
