@@ -130,3 +130,13 @@ kisslove更新了，但是原有的漫画名都改了，要原地迁移一次
 
 —— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  魔法师lain  
+##### 144#       发表于 2026-1-5 11:34
+
+搞错，看似是j2k的问题
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
