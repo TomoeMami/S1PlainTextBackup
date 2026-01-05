@@ -75,3 +75,16 @@ kisslove更新了，但是原有的漫画名都改了，要原地迁移一次
 
 —— 来自 HONOR FLC-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  keytomylife  
+##### 140#       发表于 2026-1-5 09:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68976775&amp;ptid=2254551" target="_blank">保科智子 发表于 2026-1-5 08:32</a>
+
+怎样快速升级？
+
+—— 来自 HONOR FLC-AN00, Android 15, 鹅球 v3.5.99-alpha</blockquote>
+签到 回复  看10分钟
+

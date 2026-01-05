@@ -2167,3 +2167,13 @@ MD机体和G-bit都能造啊
 
 去国际服开个新号，刷了二十来个初始一个智慧女神都没有，全是拉克丝<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 3463#         楼主| 发表于 2026-1-5 09:13
+
+<blockquote>希望之花 发表于 2026-1-5 04:25
+去国际服开个新号，刷了二十来个初始一个智慧女神都没有，全是拉克丝</blockquote>
+一击必杀潜力大啊
+
