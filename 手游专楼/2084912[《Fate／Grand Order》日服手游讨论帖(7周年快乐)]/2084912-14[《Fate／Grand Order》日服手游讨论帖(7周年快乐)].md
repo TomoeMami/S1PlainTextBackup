@@ -9366,3 +9366,63 @@ FS动画伪绫香自媒体抽卡直接彩圈，之前没有过吧
 后面就变成了车轱辘话来回说.....单纯的在吐黑泥....也没 ...</blockquote>
 最搞笑的是到今天他们吐的黑泥后真觉得自己赢了，恶心到菌了，还要从细枝末节去证明蘑菇会看社交平台，然后就会有可能看到这些，然后破防<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 20137#       发表于 2026-1-5 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68979626&amp;ptid=2084912" target="_blank">angelooo 发表于 2026-1-5 16:32</a>
+
+开砖楼了，意思就是你们差不多得了，再乱说就豆沙了
+
+不愧是我熟悉的那个隔壁 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟这波打击最大的都是国服玩家 很合理
+
+*****
+
+####  飛霞精灵  
+##### 20138#       发表于 2026-1-5 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68979376&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-5 15:55</a>
+
+对啊，这游戏一开始跟麻辣有个屌关系
+
+那时候对着角色发情还要被喷，典型就是布姐</blockquote>
+本来我也没提麻辣这一方面嘛。
+
+这游戏发展了10年，玩家对角色有深入情感太正常了，有的光看本子都能看出来感情来。<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+只能说纸片人谈恋爱的确是手游不可或缺的一环。蘑菇不管故事写得多硬、设定铺得多好，照样难以免俗。
+
+除了空境之外剩下不都是奔着GAL这种传统纸片人谈恋爱去的。只不过手游模式下这个方向被**加速了。
+
+到了最后玩家面对这个结局，破防肯定是多种感情因素综合，而对角色投入真情实感后的破防，确实是比较现实的一个重要理由。
+
+
+*****
+
+####  森兰丸  
+##### 20139#       发表于 2026-1-5 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68979637&amp;ptid=2084912" target="_blank">zakki 发表于 2026-1-5 16:33</a>
+
+最搞笑的是到今天他们吐的黑泥后真觉得自己赢了，恶心到菌了，还要从细枝末节去证明蘑菇会看社交平台，然 ...</blockquote>
+蘑菇我印象里除了自己的日记之外几乎再也没有对外发声的社交媒体了吧
+
+我估摸着这蘑菇大概率连X都不看的....月丑又是怎么能脑补成会来看简中的社交平台...也太逆天了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 20140#       发表于 2026-1-5 16:43
+
+这事儿从头到尾一直有一个很搞笑的地方是
+
+真的搞不懂是哪群人，他们真心觉得月球这结局是一个很大、很刺激的二次元大事件，感觉要上天了
+
+但我在的好几个中老登群里都懒得讨论这事儿，第一反应都是
+
+“FGO这傻X游戏终于完结了吗”
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
