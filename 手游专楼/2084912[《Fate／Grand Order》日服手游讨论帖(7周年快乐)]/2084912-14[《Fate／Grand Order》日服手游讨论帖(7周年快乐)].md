@@ -9706,3 +9706,11 @@ fgo这个终章写的还不叫教你做人吗？
 
 所以就是我所说的啊，主线完结，然后小活动不停，等人气没了就彻底关服了。
 
+
+*****
+
+####  alucardcz  
+##### 20163#       发表于 2026-1-6 02:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一 2.5确实惨阿  游戏都完结了 从者还没实装 笑嘻了
+
