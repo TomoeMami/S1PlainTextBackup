@@ -140,3 +140,15 @@ kisslove更新了，但是原有的漫画名都改了，要原地迁移一次
 
 —— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  魔法师lain  
+##### 145#       发表于 2026-1-5 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68977178&amp;ptid=2254551" target="_blank">火红之眼 发表于 2026-1-5 09:49</a>
+能批量迁移吗？几百个真不好一个个点……</blockquote>
+应该做不到了，每个漫画还好，漫画url只是没掉ybed，章节url现在新版加上了id，这个无法无中生有
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
