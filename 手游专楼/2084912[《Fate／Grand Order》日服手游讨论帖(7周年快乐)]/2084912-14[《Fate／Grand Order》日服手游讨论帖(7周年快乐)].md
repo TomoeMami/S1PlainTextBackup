@@ -9644,3 +9644,18 @@ fgo这个终章写的还不叫教你做人吗？
 还有个 BUG，打了玛修硬币本， My Room 的蓝天白云就没了，这个有点破坏气氛了
  <blockquote>特定の状況下でマイルームの背景が意図しないものに切り替わってしまう不具合を確認しております。(1/1 0:00追記) </blockquote>
 
+
+*****
+
+####  qucqee  
+##### 20157#       发表于 2026-1-5 23:45
+
+把钱退我吧 我再也不玩了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 20158#       发表于 2026-1-5 23:50
+
+你菌是会因为没兴趣了就把自己负责的角色丢给别人写的，那把整个故事丢掉也很正常吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
