@@ -9490,3 +9490,13 @@ FS开播竟然不加新从者也是准备撤了吧
 
 我觉得隔壁发癫最主要原因是真的认识到型月和蘑菇是不可选中之人，又没有幻想中的索尼大手制裁，只好脑补大戏来破幻想破防蘑菇了，月丑的又一次集体幻想罢了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 20147#       发表于 2026-1-5 20:29
+
+今晚有维护<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+不知道这周有没有过渡活动
+
