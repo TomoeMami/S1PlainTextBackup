@@ -1566,12 +1566,12 @@
     "update": false
   },
   "1754522": {
-    "totalreply": 1855,
+    "totalreply": 1856,
     "title": "[《异世界舅舅》]",
     "newtitle": "[《异世界舅舅》]",
-    "lastedit": 1761544447,
+    "lastedit": 1767633494,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1539923": {
@@ -12069,10 +12069,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 29421,
+    "totalreply": 29426,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1767632903,
+    "lastedit": 1767633494,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12699,10 +12699,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 4731,
+    "totalreply": 4736,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1767632903,
+    "lastedit": 1767633493,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16767,10 +16767,10 @@
     "update": false
   },
   "2271376": {
-    "totalreply": 3079,
+    "totalreply": 3081,
     "title": "[南美砖楼2026 委内瑞拉遭到袭击]",
     "newtitle": "[美洲砖楼2026 委内瑞拉遭到袭击]",
-    "lastedit": 1767632903,
+    "lastedit": 1767633493,
     "category": "外野",
     "active": true,
     "update": false
@@ -17298,10 +17298,10 @@
     "update": false
   },
   "2271500": {
-    "totalreply": 113,
+    "totalreply": 114,
     "title": "[这么多劝生贴，还是数据说话]",
     "newtitle": "[这么多劝生贴，还是数据说话]",
-    "lastedit": 1767630735,
+    "lastedit": 1767633254,
     "category": "外野",
     "active": true,
     "update": false
@@ -17514,10 +17514,10 @@
     "update": false
   },
   "2253130": {
-    "totalreply": 239,
+    "totalreply": 240,
     "title": "[噬血代码2公开，2026年1月30日发售]",
     "newtitle": "[噬血代码2公开，2026年1月30日发售]",
-    "lastedit": 1767631575,
+    "lastedit": 1767633128,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17527,6 +17527,15 @@
     "title": "[有用广电或者移动宽带的吗]",
     "newtitle": "[有用广电或者移动宽带的吗]",
     "lastedit": 1767632290,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2271530": {
+    "totalreply": 42,
+    "title": "[flash，正式停运]",
+    "newtitle": "[flash，正式停运]",
+    "lastedit": 1767633491,
     "category": "外野",
     "active": true,
     "update": false
