@@ -88,3 +88,15 @@ kisslove更新了，但是原有的漫画名都改了，要原地迁移一次
 —— 来自 HONOR FLC-AN00, Android 15, 鹅球 v3.5.99-alpha</blockquote>
 签到 回复  看10分钟
 
+
+*****
+
+####  火红之眼  
+##### 141#       发表于 2026-1-5 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68976194&amp;ptid=2254551" target="_blank">jackyhuang 发表于 2026-1-5 00:17</a>
+kisslove更新了，但是原有的漫画名都改了，要原地迁移一次
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3. ...</blockquote>
+能批量迁移吗？几百个真不好一个个点……
+
