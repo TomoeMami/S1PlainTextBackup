@@ -9672,3 +9672,16 @@ fgo这个终章写的还不叫教你做人吗？
 没有任何笔墨来描写的妖崔的3破</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你一说我突然想起来了。当年2.6也是还有大的没来！ 一摸一样阿（
 
+
+*****
+
+####  森兰丸  
+##### 20160#       发表于 2026-1-6 00:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68981726&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-6 00:03</a>
+
+你一说我突然想起来了。当年2.6也是还有大的没来！ 一摸一样阿（</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为整个剧情都要垫给他的男神奥伯龙啊.....本身2.6的最终BOSS是摩根
+
+当时我就说了这种因为自己一个人的任性就要改写整个剧情让整个公司的员工帮自己追星来加班....这样的人怎么能信
+
