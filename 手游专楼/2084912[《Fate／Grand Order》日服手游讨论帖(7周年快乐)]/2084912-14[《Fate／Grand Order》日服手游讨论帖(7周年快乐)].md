@@ -9321,3 +9321,48 @@ FS动画伪绫香自媒体抽卡直接彩圈，之前没有过吧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完蛋拉  全完蛋拉  我标记的几个乐子贴全没拉  这是有大手下场控评了？
 
+
+*****
+
+####  森兰丸  
+##### 20133#       发表于 2026-1-5 16:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要观看月丑大型破防现场的表演看第一天不就够了
+
+后面就变成了车轱辘话来回说.....单纯的在吐黑泥....也没看下去的价值了啊
+
+*****
+
+####  alucardcz  
+##### 20134#       发表于 2026-1-5 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68979584&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-5 16:26</a>
+
+要观看月丑大型破防现场的表演看第一天不就够了
+
+后面就变成了车轱辘话来回说.....单纯的在吐黑泥....也没 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">漏油对乐子一无所知！ 哦 是因为太欧 那没事了（
+
+
+*****
+
+####  angelooo  
+##### 20135#       发表于 2026-1-5 16:32
+
+<blockquote>alucardcz 发表于 2026-1-5 16:16
+完蛋拉  全完蛋拉  我标记的几个乐子贴全没拉  这是有大手下场控评了？</blockquote>
+开砖楼了，意思就是你们差不多得了，再乱说就豆沙了
+
+不愧是我熟悉的那个隔壁
+
+*****
+
+####  zakki  
+##### 20136#       发表于 2026-1-5 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68979584&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-5 16:26</a>
+要观看月丑大型破防现场的表演看第一天不就够了
+
+后面就变成了车轱辘话来回说.....单纯的在吐黑泥....也没 ...</blockquote>
+最搞笑的是到今天他们吐的黑泥后真觉得自己赢了，恶心到菌了，还要从细枝末节去证明蘑菇会看社交平台，然后就会有可能看到这些，然后破防<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
