@@ -9462,3 +9462,31 @@ FS动画伪绫香自媒体抽卡直接彩圈，之前没有过吧
 
 蘑菇对FGO早想撒手不管了，还能脑补出恶心蘑菇也太好笑了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 20144#       发表于 2026-1-5 17:50
+
+FS开播竟然不加新从者也是准备撤了吧
+
+
+*****
+
+####  zakki  
+##### 20145#       发表于 2026-1-5 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68979713&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-5 16:42</a>
+蘑菇我印象里除了自己的日记之外几乎再也没有对外发声的社交媒体了吧
+
+我估摸着这蘑菇大概率连X都不看的. ...</blockquote>
+有两条逻辑链，一是说发阴谋论会被nga锁，说明说对了有人急了，那就是国服运营急了，然后说明国服知道内幕，所以说明日方也知道这个事了，然后就会传到蘑菇那就
+二是说，因为蘑菇以前删过2.6相关的日记，说明蘑菇会高强度看社区，然后看到犄角旮旯的2.6黑泥就删了，所以这次也一定能看到匿名板黑泥，然后破防<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 20146#       发表于 2026-1-5 17:55
+
+我觉得隔壁发癫最主要原因是真的认识到型月和蘑菇是不可选中之人，又没有幻想中的索尼大手制裁，只好脑补大戏来破幻想破防蘑菇了，月丑的又一次集体幻想罢了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
