@@ -9251,3 +9251,42 @@ FS动画伪绫香自媒体抽卡直接彩圈，之前没有过吧
 
 隔壁开启大堵嘴时代了，点进去通篇锁定，挺好的，矫枉过正的后果<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 20129#       发表于 2026-1-5 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68979117&amp;ptid=2084912" target="_blank">飛霞精灵 发表于 2026-1-5 15:16</a>
+
+手游本质上就是个大型纸片人恋爱现场，有真情实感外加漫长时间成本太正常了，不然玩家凭啥氪金，紧张刺激的 ...</blockquote>
+这是纯胡说八道了，FGO这逼游戏还真就是靠卖割韭菜起家，然后靠剧本翻身的
+
+刚开始的时候哪儿来的麻辣风味，还因为嫁尼禄大闹过一次
+
+直到1.5型月开始认真对待才有所好转，1.6翻身，1.7拉爆期待，哪次不是靠剧本，当年吹逼都是吹文字量的
+
+至于从什么时候开始变成麻辣神游领头人的，得去问麻辣人，我真不记得了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  飛霞精灵  
+##### 20130#       发表于 2026-1-5 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68979287&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-5 15:41</a>
+
+这是纯胡说八道了，FGO这逼游戏还真就是靠卖割韭菜起家，然后靠剧本翻身的
+
+刚开始的时候哪儿来的麻辣风味 ...</blockquote>
+麻辣这风潮本来就从太君那边起来的，你想想提督love是不是比麻辣更早点。<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+最早盾外女友系列，从黑贞开始就明显得很了。
+
+除了序章，1.0没蘑菇介入时候确实烂，但蘑菇亲笔介入的1.6+1.7直接拉回来风评了。
+
+可以说麻辣本来也是这游戏里的一部分，玩家投入真情实感正常得很<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+加上还有一大批FATE其他游戏过来的玩家呢。花嫁尼禄是翻车，但其他那堆高人气角色可都是有相当长时间的粉圈基础的。当年NGA区闪厨痛喷原典伊斯塔尔怒喷远坂凛、甚至签名里就表示不加挂弓凛玩家好友的精彩粉圈现场，我还记得。
+
