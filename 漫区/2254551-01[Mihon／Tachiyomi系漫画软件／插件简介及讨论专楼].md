@@ -61,3 +61,17 @@ kisslove更新了，但是原有的漫画名都改了，要原地迁移一次
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  保科智子  
+##### 139#       发表于 2026-1-5 08:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68929069&amp;ptid=2254551" target="_blank">keytomylife 发表于 2025-12-25 22:25</a>
+发现再漫画4级后基本上都齐全了
+
+其他可以删掉</blockquote>
+怎样快速升级？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FLC-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
