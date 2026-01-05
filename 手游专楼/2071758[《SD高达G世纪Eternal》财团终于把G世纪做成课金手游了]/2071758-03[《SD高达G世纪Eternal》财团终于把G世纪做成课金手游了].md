@@ -2188,3 +2188,23 @@ MD机体和G-bit都能造啊
 一击必杀潜力大啊</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">后来刷到一个号两个战舰都有了
 
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 3465#       发表于 2026-1-5 10:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68976965&amp;ptid=2071758" target="_blank">シャル 发表于 2026-1-5 09:13</a>
+
+一击必杀潜力大啊</blockquote>
+
+这标签自由度感觉都是狗带一手掌控的
+
+比如之后为了推新标签
+
+一击必杀，或者其他的标签一年不出几个都可以
+
+所以只能说现在爽就可以了
+
+以后的事情没办法说
+
