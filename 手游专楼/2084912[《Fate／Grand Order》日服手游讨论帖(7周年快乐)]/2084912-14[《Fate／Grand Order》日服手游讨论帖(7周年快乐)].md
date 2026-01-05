@@ -9698,3 +9698,11 @@ fgo这个终章写的还不叫教你做人吗？
 当时我就说了这种因为自己一个人的 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">你还是爱他的 就看我 2.6讲什么差不多都忘光了
 
+
+*****
+
+####  khxooo  
+##### 20162#       发表于 2026-1-6 01:44
+
+所以就是我所说的啊，主线完结，然后小活动不停，等人气没了就彻底关服了。
+
