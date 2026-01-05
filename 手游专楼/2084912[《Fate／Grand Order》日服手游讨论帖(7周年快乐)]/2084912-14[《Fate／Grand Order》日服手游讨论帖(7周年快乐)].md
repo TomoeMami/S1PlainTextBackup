@@ -9659,3 +9659,16 @@ fgo这个终章写的还不叫教你做人吗？
 
 你菌是会因为没兴趣了就把自己负责的角色丢给别人写的，那把整个故事丢掉也很正常吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 20159#       发表于 2026-1-6 00:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68981601&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-5 23:12</a>
+
+死的像个小丑的摩根....当初还一堆人在奶是诈死下半部有大的
+
+没有任何笔墨来描写的妖崔的3破</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你一说我突然想起来了。当年2.6也是还有大的没来！ 一摸一样阿（
+
