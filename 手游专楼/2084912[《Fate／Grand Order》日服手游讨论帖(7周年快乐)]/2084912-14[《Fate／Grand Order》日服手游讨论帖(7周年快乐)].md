@@ -9121,3 +9121,38 @@ h ...</blockquote>
 
 ……我在写《DDD》的时候，最开始就是决定了要讲这个概念的。但后来想：“嗯……没时间写《DDD》啊……那就干脆在《FGO》里用掉吧！”哈哈哈，开个玩笑啦！什么都没有说！</blockquote>
 
+
+*****
+
+####  zakki  
+##### 20115#       发表于 2026-1-5 11:29
+
+如果疯狂诋毁菌能让他们走出来完结的悲痛我是赞成的，但别矫枉过正以后把自己后路给断了就搞笑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 20116#       发表于 2026-1-5 11:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68977842&amp;ptid=2084912" target="_blank">zakki 发表于 2026-1-5 11:29</a>
+
+如果疯狂诋毁菌能让他们走出来完结的悲痛我是赞成的，但别矫枉过正以后把自己后路给断了就搞笑了 ...</blockquote>
+之后玩游戏不说话就行了。难道蘑菇还真的会被骂死？据说冠呆销售还是很好？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 20117#       发表于 2026-1-5 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68977842&amp;ptid=2084912" target="_blank">zakki 发表于 2026-1-5 11:29</a>
+
+如果疯狂诋毁菌能让他们走出来完结的悲痛我是赞成的，但别矫枉过正以后把自己后路给断了就搞笑了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">速胜可以转速败，速败也可以转速胜。
+
+*****
+
+####  闪亮的彗星  
+##### 20118#       发表于 2026-1-5 11:47
+
+我是菌菌的话直接关服来波大的
+
