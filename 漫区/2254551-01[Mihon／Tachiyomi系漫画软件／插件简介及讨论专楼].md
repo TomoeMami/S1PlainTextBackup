@@ -100,3 +100,19 @@ kisslove更新了，但是原有的漫画名都改了，要原地迁移一次
 —— 来自 Sony XQ-AT72, Android 12, 鹅球 v3. ...</blockquote>
 能批量迁移吗？几百个真不好一个个点……
 
+
+*****
+
+####  Antidote丶  
+##### 142#       发表于 2026-1-5 10:10
+
+怎么我的还是罗马音。
+
+<img src="https://img.stage1st.com/forum/202601/05/101015xqjrrxrcrjc7xrcd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (710.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-5 10:10 上传
+
