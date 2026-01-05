@@ -94,3 +94,16 @@ image.png
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">比较担心我的白毛大奶矿物卡组以后要混入男人
 
+
+*****
+
+####  汇聚群光  
+##### 367#       发表于 2026-1-5 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68972822&amp;ptid=2250190" target="_blank">hsyg 发表于 2026-1-4 12:30</a>
+
+这世界就只爆了日本？居然还能恢复秩序这什么魔幻日本（
+
+这么搞除了数码世界，还有这破坏的大坑要填，如果 ...</blockquote>
+连日本都没爆，只爆了某个岛（王会长说爆岛后死亡和失踪的人数有130万，而日本人口都过亿了）
+

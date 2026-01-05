@@ -9628,3 +9628,19 @@ fgo这个终章写的还不叫教你做人吗？
 
 还真是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  الطائر  
+##### 20156#       发表于 2026-1-5 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68980940&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2026-1-5 20:29</a>
+
+今晚有维护
+
+不知道这周有没有过渡活动</blockquote>
+能放出终章的画廊模式就算有在工作了吧……
+
+还有个 BUG，打了玛修硬币本， My Room 的蓝天白云就没了，这个有点破坏气氛了
+ <blockquote>特定の状況下でマイルームの背景が意図しないものに切り替わってしまう不具合を確認しております。(1/1 0:00追記) </blockquote>
+
