@@ -9685,3 +9685,16 @@ fgo这个终章写的还不叫教你做人吗？
 
 当时我就说了这种因为自己一个人的任性就要改写整个剧情让整个公司的员工帮自己追星来加班....这样的人怎么能信
 
+
+*****
+
+####  alucardcz  
+##### 20161#       发表于 2026-1-6 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68981778&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-6 00:23</a>
+
+因为整个剧情都要垫给他的男神奥伯龙啊.....本身2.6的最终BOSS是摩根
+
+当时我就说了这种因为自己一个人的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">你还是爱他的 就看我 2.6讲什么差不多都忘光了
+
