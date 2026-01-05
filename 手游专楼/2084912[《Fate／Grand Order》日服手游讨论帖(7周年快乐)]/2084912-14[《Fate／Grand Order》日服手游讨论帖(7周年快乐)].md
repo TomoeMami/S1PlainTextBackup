@@ -9567,3 +9567,42 @@ fgo这个终章写的还不叫教你做人吗？
 现在这个时代是有个手游运作就已经不错了对热度和活跃度都有帮助，你游状况也还健康着还能继续运营
 活了10年的游戏又不是只有你这一个不至于准备今年就在安排白事了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 20153#       发表于 2026-1-5 22:52
+
+ 本帖最后由 exiaexa 于 2026-1-5 22:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68981225&amp;ptid=2084912" target="_blank">黄字 发表于 2026-1-5 21:37</a>
+
+fgo这个终章写的还不叫教你做人吗？
+
+你看蘑菇写自己想写的东西，像2.6的时候是什么文笔什么状态。
+
+这个终章 ...</blockquote>
+啊，写2.6的状态不就是没人管着，你菌自我发癫然后写出来一坨吗
+
+终章里的狗屎套路哪个不是2.6延续下来的，你们是怎么做到夸2.6然后喷终章的
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+狂贴标签的美强惨，还都没救回来——摩根/所长
+
+傻逼的发癫男人，他们内心也是好的呀——马利斯比利/狗子
+
+一个嚷嚷着我CNM然后快快乐乐跑来给你当狗的男人——奥伯龙/雷夫
+
+一个纯吃饱了撑的，阿菌自己都圆不上的傻逼女人——玛丽丝/欧罗拉
+
+阿菌说是啥就是啥，莫名其妙就没了的挺有人气的皮套人——希翁/诺克娜雷娅
+
+前面爽完就摆烂，想到哪儿写到哪儿，收尾是什么，能吃吗
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+这么一列那终章还比2.6好点嘞，好歹多了十来个活人
+
+老福还混了个善终，村正……
+
+这大概能算一对玩具虎，两头脆脆鲨了
+<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
