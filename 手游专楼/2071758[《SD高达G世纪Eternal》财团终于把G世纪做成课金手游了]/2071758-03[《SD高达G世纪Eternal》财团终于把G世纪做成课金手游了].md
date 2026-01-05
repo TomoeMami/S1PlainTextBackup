@@ -2177,3 +2177,14 @@ MD机体和G-bit都能造啊
 去国际服开个新号，刷了二十来个初始一个智慧女神都没有，全是拉克丝</blockquote>
 一击必杀潜力大啊
 
+
+*****
+
+####  希望之花  
+##### 3464#       发表于 2026-1-5 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68976965&amp;ptid=2071758" target="_blank">シャル 发表于 2026-1-5 09:13</a>
+
+一击必杀潜力大啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">后来刷到一个号两个战舰都有了
+
