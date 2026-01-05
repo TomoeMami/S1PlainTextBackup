@@ -275,3 +275,11 @@ ls说那么多其实就是轨迹型npc</blockquote>
 
 通关之后封灭庭园的迷宫都不想打了，这样也玩了60多个小时，很满足
 
+
+*****
+
+####  blueelf  
+##### 209#         楼主| 发表于 2026-1-5 08:39
+
+八方旅人0的终章居然用了和sky and earth差不多的剧情模式<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，经典套路真是好用啊
+
