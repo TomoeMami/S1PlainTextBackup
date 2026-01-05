@@ -116,3 +116,17 @@ kisslove更新了，但是原有的漫画名都改了，要原地迁移一次
 
 2026-1-5 10:10 上传
 
+
+*****
+
+####  魔法师lain  
+##### 143#       发表于 2026-1-5 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68976194&amp;ptid=2254551" target="_blank">jackyhuang 发表于 2026-1-5 00:17</a>
+kisslove更新了，但是原有的漫画名都改了，要原地迁移一次
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3. ...</blockquote>
+先别删原来的备份，这版本有问题，别说不兼容原来的备份，连重新创建，收藏，然后新建备份都失败
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
