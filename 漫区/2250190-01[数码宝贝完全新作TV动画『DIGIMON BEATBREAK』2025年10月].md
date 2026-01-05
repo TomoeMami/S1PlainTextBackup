@@ -86,3 +86,11 @@ image.png
 
 五行星里金土木一眼反派啊，倒是火和水有点后期跳反的面象，正好加上前金星京的话就是3v3了
 
+
+*****
+
+####  西人  
+##### 366#       发表于 2026-1-5 16:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">比较担心我的白毛大奶矿物卡组以后要混入男人
+
