@@ -2607,3 +2607,21 @@ DLC后我就基本没见过这个词条了，包括山羊局，但是感觉王�
 
 队友选神鹰哥的话队里没隐选隐有隐可以选追铁执壶这些前期比较好发育的，其实dlc前一天那波更新大幅加强近战后神鹰哥道中应该也不至于太疲软…………不过如果机师本身不熟练确实很容易加倍拖后腿就是了
 
+
+*****
+
+####  ParukiaMKII  
+##### 2034#       发表于 2026-1-4 21:26
+
+最近是不用加速器的人多了，还是UU出问题了，怎么感觉老是掉线，连不上服务器，要不就是进游戏了卡的很，刚才还有一把，深夜5进BOSS了，3个人就进来2个，然后2个人还有一个人看不到BOSS，就我一个人单挑BOSS，但是进来的那个队友，看得到我，可以救我，打不到BOSS，BOSS也打不到他，靠无限复活我把BOSS磨死了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Steel.Haze  
+##### 2035#       发表于 2026-1-5 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68972134&amp;ptid=2210352" target="_blank">petitlui 发表于 2026-1-4 10:48</a>
+
+开dlc后我被从9999一路肘到到7000+后就一直在8000上下浮动了（。其实大空洞只要队友不要头铁死磕神授塔就还 ...</blockquote>
+三人应该刷城，神塔的boss三人模式下血量太高了，打他们要算时间的
+
