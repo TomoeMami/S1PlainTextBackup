@@ -63,3 +63,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">话说我记得去年周年是不是有自选普通四星来着，有的话就不去赌那个200石的电击池子出四星宁里了
 
+
+*****
+
+####  冰风血羽  
+##### 1813#       发表于 2026-1-6 19:18
+
+应该会进池子吧
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
