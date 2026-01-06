@@ -4695,3 +4695,13 @@ Disc4：第11～13話
 
 —— 来自 vivo V2454A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  57042711  
+##### 451#       发表于 2026-1-6 23:54
+
+正片真不错啊，已经忘记fgo了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
