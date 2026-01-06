@@ -3118,3 +3118,21 @@ Aggros。回血。来得及吗。真的为啥啊，这也太快了。
 
 撬棍波比
 
+
+*****
+
+####  冬瓜饭  
+##### 20174#       发表于 2026-1-6 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68986102&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2026-1-6 19:41</a>
+
+😅这游戏看的太晕了。</blockquote>
+的确，看完头都有点痛
+
+*****
+
+####  受菊  
+##### 20175#       发表于 2026-1-6 22:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">顺便没想到打这么顺，之前看TOP4打这个游戏，两个视频都玩的挺惨的，结果她们玩得还挺顺利的，强诶
+
