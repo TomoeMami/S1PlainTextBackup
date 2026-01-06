@@ -1175,7 +1175,7 @@
     "newtitle": "[Granblue Fantasy 讨论帖（禁止非游戏相关）]",
     "lastedit": 1767419780,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1570791": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 26405,
+    "totalreply": 26406,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》12.25 老库拉伸]",
-    "lastedit": 1767678379,
+    "lastedit": 1767678970,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12069,10 +12069,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 29577,
+    "totalreply": 29585,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1767678379,
+    "lastedit": 1767679087,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12771,10 +12771,10 @@
     "update": false
   },
   "2269273": {
-    "totalreply": 411,
+    "totalreply": 412,
     "title": "[SE作死导致日渐小众的原因]",
     "newtitle": "[SE作死导致日渐小众的原因]",
-    "lastedit": 1767671780,
+    "lastedit": 1767678847,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13487,15 +13487,6 @@
     "newtitle": "[推漫《愚者之夜》，余命两年之人的极夜]",
     "lastedit": 1766589982,
     "category": "漫区",
-    "active": false,
-    "update": false
-  },
-  "2270282": {
-    "totalreply": 69,
-    "title": "[明年起发淫秽信息违法！]",
-    "newtitle": "[明年起发淫秽信息违法！]",
-    "lastedit": 1766468910,
-    "category": "外野",
     "active": false,
     "update": false
   },
@@ -16326,10 +16317,10 @@
     "update": false
   },
   "2271232": {
-    "totalreply": 252,
+    "totalreply": 253,
     "title": "[中东专楼-2026]",
     "newtitle": "[中东专楼-2026]",
-    "lastedit": 1767673450,
+    "lastedit": 1767678736,
     "category": "外野",
     "active": true,
     "update": false
@@ -16623,10 +16614,10 @@
     "update": false
   },
   "2271376": {
-    "totalreply": 3241,
+    "totalreply": 3244,
     "title": "[南美砖楼2026 委内瑞拉遭到袭击]",
     "newtitle": "[美洲砖楼2026 委内瑞拉遭到袭击]",
-    "lastedit": 1767678374,
+    "lastedit": 1767678972,
     "category": "外野",
     "active": true,
     "update": false
@@ -17109,10 +17100,10 @@
     "update": false
   },
   "2271494": {
-    "totalreply": 90,
+    "totalreply": 91,
     "title": "[话说三国圈子的一些蜀黑比蜀粉更抽象更……又蠢又坏]",
     "newtitle": "[话说三国圈子的一些蜀黑比蜀粉更抽象更……又蠢又坏]",
-    "lastedit": 1767675135,
+    "lastedit": 1767678972,
     "category": "外野",
     "active": true,
     "update": false
@@ -17154,10 +17145,10 @@
     "update": false
   },
   "2271500": {
-    "totalreply": 137,
+    "totalreply": 138,
     "title": "[这么多劝生贴，还是数据说话]",
     "newtitle": "[这么多劝生贴，还是数据说话]",
-    "lastedit": 1767675740,
+    "lastedit": 1767678736,
     "category": "外野",
     "active": true,
     "update": false
@@ -17226,10 +17217,10 @@
     "update": false
   },
   "2271522": {
-    "totalreply": 90,
+    "totalreply": 91,
     "title": "[孩子刚满一个月的人来说下感受]",
     "newtitle": "[孩子刚满一个月的人来说下感受]",
-    "lastedit": 1767674425,
+    "lastedit": 1767678736,
     "category": "外野",
     "active": true,
     "update": false
@@ -17487,10 +17478,10 @@
     "update": false
   },
   "2271579": {
-    "totalreply": 50,
+    "totalreply": 53,
     "title": "[话说在牢美，种族主义和资本主义谁更优先]",
     "newtitle": "[话说在牢美，种族主义和资本主义谁更优先]",
-    "lastedit": 1767678379,
+    "lastedit": 1767678972,
     "category": "外野",
     "active": true,
     "update": false
