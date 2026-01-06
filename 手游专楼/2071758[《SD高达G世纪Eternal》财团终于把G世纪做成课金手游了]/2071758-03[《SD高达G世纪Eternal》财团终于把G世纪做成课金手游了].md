@@ -2356,3 +2356,31 @@ axwhQ1at-8np4ZbT3cSrs-t5.jpg
 
 鸟海盗高达现在坚牢队主力
 
+
+*****
+
+####  シャル  
+##### 3477#         楼主| 发表于 2026-1-6 18:11
+
+<blockquote>ティグル 发表于 2026-1-6 16:53
+突破力这个词条感觉已经寄了，就看电光限定船有没有狠活了</blockquote>
+不是吧
+
+突破力比电光火石队形强啊
+
+<img src="https://img.stage1st.com/forum/202601/06/181109ebdvhswy5f15bh1p.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202601/06/181109ebdvhswy5f15bh1p.png">
+
+<strong>IMG_4380.png</strong> (557.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-6 18:11 上传
+
+<img src="https://img.stage1st.com/forum/202601/06/181109s8qw8gwfckcc1pmc.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4381.png</strong> (570.73 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-6 18:11 上传
+
