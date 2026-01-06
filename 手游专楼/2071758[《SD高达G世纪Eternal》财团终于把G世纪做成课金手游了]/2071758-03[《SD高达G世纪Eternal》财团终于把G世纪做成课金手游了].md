@@ -2407,3 +2407,16 @@ axwhQ1at-8np4ZbT3cSrs-t5.jpg
 
 海盗腿太短了，一直用着都好不习惯……
 
+
+*****
+
+####  范坚强  
+##### 3480#       发表于 2026-1-6 21:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68985665&amp;ptid=2071758" target="_blank">シャル 发表于 2026-1-6 18:11</a>
+
+不是吧
+
+突破力比电光火石队形强啊</blockquote>
+所以 电光石火更加要整活 讲个鬼故事 电光石火三台卡池ur黄鸡db组合是一样的（特殊+减防）
+
