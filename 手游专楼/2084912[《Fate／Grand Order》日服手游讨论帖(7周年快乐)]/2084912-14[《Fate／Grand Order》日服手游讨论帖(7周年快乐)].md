@@ -10169,3 +10169,55 @@ FS与TM强强联手，宫崎英高与奈绪蘑菇全新力作——</blockquote>
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  alucardcz  
+##### 20193#       发表于 2026-1-6 21:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68986370&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-6 20:35</a>
+
+这题我会，可能是FGO 3.0终章</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太遥远了 先期待了一下某8.0
+
+*****
+
+####  shoel  
+##### 20194#       发表于 2026-1-6 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68986563&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2026-1-6 21:15</a>
+
+等菌哥哥哪天游戏玩爽了，想起来把DDD后续也扔到FGO里，一切都会好起来的
+
+—— 来自 Sony XQ-AT72, Androi ...</blockquote>
+按考据来说，FGO也已经吸收了DDD
+
+*****
+
+####  exiaexa  
+##### 20195#       发表于 2026-1-6 21:39
+
+ 本帖最后由 exiaexa 于 2026-1-6 21:41 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68986585&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-6 21:21</a>
+
+太遥远了 先期待了一下某8.0</blockquote>
+我在想7.0都触底了，8.0怎么也该多投点钱，尝试翻身仗
+
+SE总不能真把第三开发部当牛~马了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+怎么牛~马这词不是**，是直接消除掉了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 20196#       发表于 2026-1-6 21:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68986688&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-6 21:39</a>
+
+我在想7.0都触底了，8.0怎么也该多投点钱，尝试翻身仗
+
+SE总不能真把第三开发部当牛~马了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">钱多就能做好吗  15崩16崩 rb还是崩 我等着8.0和 ff7-3一起爆炸
+
