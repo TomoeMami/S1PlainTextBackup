@@ -260,3 +260,14 @@ sp爱丽丝要来了，顺便看看之前老限定怎么返场吧，蝴蝶没克
 
 现在同化似乎会继承喂了的技能，所以新的同化旧的应该也可以，要是换皮角的个体更好，可以用新的同化旧的
 
+
+*****
+
+####  UNINSTALL42  
+##### 667#       发表于 2026-1-6 13:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68957115&amp;ptid=2249235" target="_blank">UnknownRei 发表于 2025-12-31 17:28</a>
+
+最近尼棒内容好多，这儿还是西幻吗，drecom你给我干哪来了</blockquote>
+巫术就是这样啊（
+
