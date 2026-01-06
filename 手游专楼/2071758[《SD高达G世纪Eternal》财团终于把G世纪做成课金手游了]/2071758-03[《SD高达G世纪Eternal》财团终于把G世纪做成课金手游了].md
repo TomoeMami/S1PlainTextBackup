@@ -2384,3 +2384,18 @@ axwhQ1at-8np4ZbT3cSrs-t5.jpg
 
 2026-1-6 18:11 上传
 
+
+*****
+
+####  ティグル  
+##### 3478#       发表于 2026-1-6 18:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68985665&amp;ptid=2071758" target="_blank">シャル 发表于 2026-1-6 18:11</a>
+
+不是吧
+
+突破力比电光火石队形强啊</blockquote>
+我的，把狗头和绿光兽记成是电光了
+
+我也不知道为啥记得白卡是突破力结果这俩能记岔
+
