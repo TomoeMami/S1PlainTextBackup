@@ -2270,3 +2270,45 @@ MD机体和G-bit都能造啊
 
 攻击可劲辣
 
+
+*****
+
+####  シャル  
+##### 3472#         楼主| 发表于 2026-1-6 13:20
+
+第22个10连终于爆出来螃蟹头了
+
+全体出动+彩圈阿姆罗+瞄准升星
+
+<img src="https://img.stage1st.com/forum/202601/06/131900heq58llhxd2l0ine.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202601/06/131900heq58llhxd2l0ine.png">
+
+<strong>IMG_4367.png</strong> (699.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-6 13:19 上传
+
+<img src="https://img.stage1st.com/forum/202601/06/131900c0b79hrgcycqph9a.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4368.png</strong> (443.73 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-6 13:19 上传
+
+<img src="https://img.stage1st.com/forum/202601/06/131900w68yfky56g9zfgu7.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4369.png</strong> (307.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-6 13:19 上传
+
+<img src="https://img.stage1st.com/forum/202601/06/131901owsm1wmhhr31h8ee.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4370.png</strong> (544.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-6 13:19 上传
+
