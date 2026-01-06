@@ -282,3 +282,15 @@ sp爱丽丝要来了，顺便看看之前老限定怎么返场吧，蝴蝶没克
 最近尼棒内容好多，这儿还是西幻吗，drecom你给我干哪来了</blockquote>
 系列特色，武士和忍者必备，部分外传或者衍生作连巫女，女仆都给你整出来了
 
+
+*****
+
+####  藤钢剑姬  
+##### 669#       发表于 2026-1-6 19:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68957115&amp;ptid=2249235" target="_blank">UnknownRei 发表于 2025-12-31 17:28</a>
+最近尼棒内容好多，这儿还是西幻吗，drecom你给我干哪来了</blockquote>
+金山圭辅：我想回归老式JRPG体验，所以搞了达芙妮…它符合传统JRPG玩家的需求
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
