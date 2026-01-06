@@ -2348,3 +2348,11 @@ axwhQ1at-8np4ZbT3cSrs-t5.jpg
 小鸟王朝了，不抽命运也要抽一个真飞鸟出来</blockquote>
 <img src="https://static.stage1st.com/image/smiley/carton2017/026.png" referrerpolicy="no-referrer">流派.东方不败青出于蓝了
 
+
+*****
+
+####  シャル  
+##### 3476#         楼主| 发表于 2026-1-6 18:06
+
+鸟海盗高达现在坚牢队主力
+
