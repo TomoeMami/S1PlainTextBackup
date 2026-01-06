@@ -9724,3 +9724,37 @@ fgo这个终章写的还不叫教你做人吗？
 
 本来这样想的理想情况不会差到哪去，现在是后续活动剧情时间线都是终章前这种又香又臭的膈应<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 20165#       发表于 2026-1-6 01:44
+
+所以就是我所说的啊，主线完结，然后小活动不停，等人气没了就彻底关服了。
+
+*****
+
+####  alucardcz  
+##### 20166#       发表于 2026-1-6 02:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一 2.5确实惨阿  游戏都完结了 从者还没实装 笑嘻了
+
+*****
+
+####  岸浪白野  
+##### 20167#       发表于 2026-1-6 02:08
+
+ 本帖最后由 岸浪白野 于 2026-1-6 02:28 编辑 
+
+本来这样想的理想情况不会差到哪去，现在是后续活动剧情时间线都是终章前这种又香又臭的膈应<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+反正真成作品宣传平台APP了
+
+*****
+
+####  zakki  
+##### 20168#       发表于 2026-1-6 08:34
+
+翻到了我之前在你发的，隔壁这帮人还是一直都是这个德行啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/30/be7227c570a1d176078a67d525e5ac7d/image.jpg" referrerpolicy="no-referrer">
+
