@@ -9796,3 +9796,133 @@ fgo这个终章写的还不叫教你做人吗？
 
 得说一句菌类被清算可比过去十年任意一段故事都精彩，特别是NGA权限狗还试图捂嘴
 
+
+*****
+
+####  exiaexa  
+##### 20173#       发表于 2026-1-6 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68982446&amp;ptid=2084912" target="_blank">fool 发表于 2026-1-6 09:24</a>
+
+所以我挺同意隔壁趁机去蘑菇化的，看看"FGO厨"的实力</blockquote>
+隔壁菌学长又开始了是吧
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+结局无非就是变成我上面喷过的fe哥
+
+“fgo的剧情变烂了都是其他编剧的锅”
+
+“这段剧情写得好那多亏了菌鸽鸽打得底子”
+
+“菌哥哥回来了一切都会好起来的”
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 岸波白野|-2|别随便代表人|
+
+查看全部评分
+
+*****
+
+####  angelooo  
+##### 20174#       发表于 2026-1-6 10:11
+
+<blockquote>exiaexa 发表于 2026-1-6 10:10
+隔壁菌学长又开始了是吧
+
+</blockquote>
+
+开了砖楼怕不是学长们可以随意表演了23333
+
+*****
+
+####  Jamaisvu  
+##### 20175#       发表于 2026-1-6 10:44
+
+破防菌粉还在发癫，我这种紫苑厨只能回去玩她待遇最好性能最佳的夜下降生了...
+
+话说剧情模式里这些台词现在看着都是回旋镖呀<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+clr紫苑结局：
+
+<img src="https://img.stage1st.com/forum/202601/06/104356fqdo6rosawhuhboz.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1767667310940_582.jpg</strong> (154.59 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-1-6 10:43 上传
+
+<img src="https://img.stage1st.com/forum/202601/06/104356fjl0qaibzqi3ppzp.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1767667312769_456.jpg</strong> (142.97 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-1-6 10:43 上传
+
+UNI2紫苑结局：
+
+<img src="https://img.stage1st.com/forum/202601/06/104417s36eg1y32yy36wda.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1767667314295_581.jpg</strong> (114.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-1-6 10:44 上传
+
+<img src="https://img.stage1st.com/forum/202601/06/104417oiy8yehh2882dye0.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1767667315676_831.jpg</strong> (107.1 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-1-6 10:44 上传
+
+<img src="https://img.stage1st.com/forum/202601/06/104417c2xo761uq767884q.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1767667317004_726.jpg</strong> (98.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-1-6 10:44 上传
+
+<img src="https://img.stage1st.com/forum/202601/06/104418tvk6gvuv9lt4tu5z.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1767667318462_664.jpg</strong> (111.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-1-6 10:44 上传
+
+<img src="https://img.stage1st.com/forum/202601/06/104418jc09e55gso65ja6y.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1767667320089_309.jpg</strong> (133.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-1-6 10:44 上传
+
+*****
+
+####  岸波白野  
+##### 20176#       发表于 2026-1-6 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68982739&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-6 10:10</a>
+隔壁菌学长又开始了是吧</blockquote>
+作为一个觉得废狗2完结后可能理想接棒光谱是蘑菇口嗨的原神月姬2，当然知道他月和他日业界整体这现在这研发水平铁定没戏的真不希望这么被代表，也不知道恁哪只眼解读出我话里话外“蘑菇一定行”的意思<img src="https://static.stage1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
