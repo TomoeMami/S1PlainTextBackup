@@ -9758,3 +9758,41 @@ fgo这个终章写的还不叫教你做人吗？
 
 <img src="https://p.sda1.dev/30/be7227c570a1d176078a67d525e5ac7d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jyqt  
+##### 20169#       发表于 2026-1-6 08:48
+
+感觉不如
+
+<img src="https://img.stage1st.com/forum/202601/06/084849i776v77eelrkvvie.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1068.jpeg</strong> (71.64 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-1-6 08:48 上传
+
+*****
+
+####  jyqt  
+##### 20170#       发表于 2026-1-6 09:02
+
+不过你月啥时候能整点有游戏性的游戏出来
+
+*****
+
+####  fool  
+##### 20171#       发表于 2026-1-6 09:24
+
+所以我挺同意隔壁趁机去蘑菇化的，看看"FGO厨"的实力<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  beer  
+##### 20172#       发表于 2026-1-6 09:58
+
+得说一句菌类被清算可比过去十年任意一段故事都精彩，特别是NGA权限狗还试图捂嘴
+
