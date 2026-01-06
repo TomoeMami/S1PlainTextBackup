@@ -9926,3 +9926,59 @@ UNI2紫苑结局：
 隔壁菌学长又开始了是吧</blockquote>
 作为一个觉得废狗2完结后可能理想接棒光谱是蘑菇口嗨的原神月姬2，当然知道他月和他日业界整体这现在这研发水平铁定没戏的真不希望这么被代表，也不知道恁哪只眼解读出我话里话外“蘑菇一定行”的意思<img src="https://static.stage1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakki  
+##### 20177#       发表于 2026-1-6 11:25
+
+开始最月幻想了，蘑菇和老贼有没有可能合作一部。蘑菇一直强贴fs，宫崎英高也给fsn周年发过祝福，然后他也说想做一部jrpg<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  失落之翼  
+##### 20178#       发表于 2026-1-6 11:40
+
+是要学街机那样不更新慢慢死吗<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+干脆把街机改改对接过来搞个类moba算了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 20179#       发表于 2026-1-6 12:22
+
+ 本帖最后由 exiaexa 于 2026-1-6 12:34 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68983148&amp;ptid=2084912" target="_blank">岸波白野 发表于 2026-1-6 11:05</a>
+
+作为一个觉得废狗2完结后可能理想接棒光谱是蘑菇口嗨的原神月姬2，当然知道他月和他日业界整体这现在这研 ...</blockquote>
+哎哟，您不是不想回复了吗，暗戳戳扣咸鱼笑死我了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那我问你
+
+拉个小太刀出来垫刀的是不是你？
+
+“在商业上就像你说的无论是ccc那种主从互动还是无印开始的一绑一，都是在<strong>包括ML和其他不少层面(甚至是月式民科幻）承前并起了废狗后的</strong>”
+
+是不是标准的“这段剧情写得好那<strong>多亏了菌鸽鸽打得底子</strong>”
+
+我还是那句话，fe厨能不能不要天天左右脑互搏
+
+你们要急着做的就是去日本拿鞭子狠狠的抽阿菌，让FER大卖，用销量说话，而不是到处证明没有fe就没有xxx
+
+我再说难听点2.0那堆神性剪贴板BB系列非但没有证明fe的价值，反而证明了你菌真的是没活硬整，就恩给你塞，
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸波白野  
+##### 20180#       发表于 2026-1-6 12:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68983642&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-6 12:22</a>
+
+哎哟，您不是不想回复了吗，暗戳戳扣咸鱼笑死我了</blockquote>
+抠字眼是真无聊，我之前说的一切都是在驳你“FE不行，无论创作还是商业上的”，你特意提的这点也是说明FE创作上对FGO这边的影响，这点反正我看谁也说服不了谁我也懒得和你继续展开了，以及小太刀写的就是比菌屎这种客观事实现在也要青蒜请自便
+
+至于你说废狗这边的三段速胜速败论，我也只能说二极管青蒜思维不要走得太死，拍了月球叛军的扎克施耐德还有人指望扎DCEU复活呢，看你也懂些钢弹，那钢弹近些年“骂完记得买，你不买有的是人买”的现状应该不会不明白吧，最好的否定还是漠不关心，请把废狗账号五毛出我帮你转转处理了
+
