@@ -396,3 +396,13 @@ g了下sony官方建议工作温度是5-35，车上肯定不行
 
 就算真搬车规级游戏机上车了索尼在网络方面的大新闻这块属于是战绩可查的吧<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  熊边上  
+##### 42#       发表于 2026-1-6 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68985295&amp;ptid=2271618" target="_blank">liwangli1983 发表于 2026-1-6 04:16</a>
+有一说一，消费电子的主板是不可能直接安车上，真想装得按车规级重新设计，相关元件全要换，主板本身设计也 ...</blockquote>
+model s/x在前年降本增效前可以跑steam<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
