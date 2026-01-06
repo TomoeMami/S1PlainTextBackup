@@ -10125,3 +10125,47 @@ FS与TM强强联手，宫崎英高与奈绪蘑菇全新力作——</blockquote>
 
 没用的垃圾就应该赶快扔去垃圾桶<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/30/4d4092ec43e7c419ff221c438f01a2ab/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 20189#       发表于 2026-1-6 19:50
+
+<blockquote>岸浪白野 发表于 2026-1-6 17:39
+没用的垃圾就应该赶快扔去垃圾桶</blockquote>
+
+不愧是给狮夫人画柄图的作者，一如既往的没心没肺+阴阳怪气。
+
+话说蘑菇停笔跑路，但别的创作者已经返工了吧，为了给FGO续热度是不是该做点什么？
+
+实在不行就再跟MBTL联动出点人物吧，实装FGO角色总比不更新强...
+
+*****
+
+####  angelooo  
+##### 20190#       发表于 2026-1-6 20:23
+
+<blockquote>alucardcz 发表于 2026-1-6 17:24
+都在尬黑 这次终章不是业界奇迹吗 让多少剧本彻底翻身了！什么ff16 14 6.0 7.0 海猫 v3 甚至寒蝉卒都可以翻 ...</blockquote>
+我想知道下一个让废狗2.0终章翻身的会是什么奇……葩玩意233
+
+*****
+
+####  exiaexa  
+##### 20191#       发表于 2026-1-6 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68986307&amp;ptid=2084912" target="_blank">angelooo 发表于 2026-1-6 20:23</a>
+
+我想知道下一个让废狗2.0终章翻身的会是什么奇……葩玩意233</blockquote>
+这题我会，可能是FGO 3.0终章
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jackyhuang  
+##### 20192#       发表于 2026-1-6 21:15
+
+等菌哥哥哪天游戏玩爽了，想起来把DDD后续也扔到FGO里，一切都会好起来的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
