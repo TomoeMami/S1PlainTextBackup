@@ -10077,3 +10077,51 @@ FS与TM强强联手，宫崎英高与奈绪蘑菇全新力作——</blockquote>
 什么叫论迹不论心？</blockquote>
 那希望你别暗戳戳继续像刚才和现在这样言不对意拿我之前的发言给你的臆想撑腰了，毕竟我扣鹅可是光明正大的，而刚才你在牛头发言把我往你这蘑菇速胜速败三段论上凑的时候可没有正八经[@我](https://stage1st.com/2b/home.php?mod=space&amp;uid=216106)
 
+
+*****
+
+####  飛霞精灵  
+##### 20185#       发表于 2026-1-6 16:22
+
+你菌被骂是很正常的。不说厨不厨，单纯一个正常玩家来看这个结局也挺让人不满。
+
+算啥平稳落地，反而是典型的平底摔死然后觉得来个风光大葬还棺材板都塌了当跳舞的典范么。
+
+丧事喜办都不利索。
+
+从异闻带开始的一坨，不等于最后这个结局就情有可原。
+
+2.6烂和这个结局是一脉相承的烂，无非2.6塑造好了C呆在内的几个角色，终章是纯一坨了。
+
+*****
+
+####  alucardcz  
+##### 20186#       发表于 2026-1-6 17:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">都在尬黑 这次终章不是业界奇迹吗 让多少剧本彻底翻身了！什么ff16 14 6.0 7.0 海猫 v3 甚至寒蝉卒都可以翻！
+
+*****
+
+####  exiaexa  
+##### 20187#       发表于 2026-1-6 17:28
+
+ 本帖最后由 exiaexa 于 2026-1-6 17:34 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68984875&amp;ptid=2084912" target="_blank">岸波白野 发表于 2026-1-6 16:15</a>
+
+那希望你别暗戳戳继续像刚才和现在这样言不对意拿我之前的发言给你的臆想撑腰了，毕竟我扣鹅可是光明正大 ...</blockquote>
+不是兄弟，你能不能解释一下什么叫速败三段论
+
+你这是从哪个台媒学来的词儿
+
+顺便给你说一声，泥潭扣鹅是可以有提醒的，除非你扣鹅的时候把提醒关了
+
+但回复是一定有提醒的，建议你下次使用相关功能的时候注意一下
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20188#       发表于 2026-1-6 17:39
+
+没用的垃圾就应该赶快扔去垃圾桶<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/30/4d4092ec43e7c419ff221c438f01a2ab/image.jpg" referrerpolicy="no-referrer">
+
