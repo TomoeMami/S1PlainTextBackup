@@ -11018,3 +11018,44 @@ to the next decade
 
 <img src="https://static.stage1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">你不都出了！ 看看本楼最非得萌新还什么都没有！
 
+
+*****
+
+####  alucardcz  
+##### 20281#       发表于 2026-1-7 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68991677&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-7 18:35</a>
+
+连破皮饺子都能吹爆的
+
+这纯度也太高了吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过几天 哦估计等会这帮人就要开始反攻倒算了！ 都是小事
+
+*****
+
+####  久井路路  
+##### 20282#       发表于 2026-1-7 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68991672&amp;ptid=2084912" target="_blank">cenhr 发表于 2026-1-7 18:35</a>
+
+但是我的肥肥指挥官、双马尾紫苑、船长和老福都没了？</blockquote>
+总会汇合的
+
+理由到时候再想，或者像所长这样来一句“我也不知道为什么，反正就是复活了”，都是可以的（
+
+*****
+
+####  angelooo  
+##### 20283#       发表于 2026-1-7 18:51
+
+<blockquote>alucardcz 发表于 2026-1-7 18:38
+过几天 哦估计等会这帮人就要开始反攻倒算了！ 都是小事</blockquote>
+这事之后还能这么孝的那和🐢还有什么区别，直接当乐子看就行了
+
+*****
+
+####  Perfectfullmoon  
+##### 20284#       发表于 2026-1-7 18:52
+
+果然是速败转速胜吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
