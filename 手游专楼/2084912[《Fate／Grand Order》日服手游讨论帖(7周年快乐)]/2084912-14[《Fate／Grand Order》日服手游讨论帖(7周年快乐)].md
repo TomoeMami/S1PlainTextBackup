@@ -11241,3 +11241,46 @@ to the next decade
 现在这情况四舍五入不就是漏油之前说的最差的情况 “回到终章前”开活动</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对，而且都不需要写后续相关剧情了，无限填活动就完事，填到最后没人玩了宣布关服。
 
+
+*****
+
+####  sanada  
+##### 20303#       发表于 2026-1-7 19:57
+
+现在叫来的除了所长都是回到原本人生的活人，那这个莫名其妙突然出现的小芬奇是不是可疑了一点
+
+*****
+
+####  天王寺凯伊姆  
+##### 20304#       发表于 2026-1-7 20:09
+
+有个问题，那现在这个情况和当初1.5时期是不是没区别，2.0的消息是什么时候出来来着？
+
+*****
+
+####  alucardcz  
+##### 20305#       发表于 2026-1-7 20:34
+
+lxs社长发视频安抚玩家 
+
+这是啥时候的事情 
+
+最近一直奋战steam没怎么看月球新闻了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 20306#       发表于 2026-1-7 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68992076&amp;ptid=2084912" target="_blank">天王寺凯伊姆 发表于 2026-1-7 20:09</a>
+
+有个问题，那现在这个情况和当初1.5时期是不是没区别，2.0的消息是什么时候出来来着？ ...</blockquote>
+感觉不太一样？
+
+1.5其实真正意义上的是日后谈，他真的再跟你讲1.0结束了发生了什么
+
+怎么发生，后续各个组织有啥反映
+
+现在直接啥都不说，还整个隔离状态出来，实际上跟2.0的处境根本没区别
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
