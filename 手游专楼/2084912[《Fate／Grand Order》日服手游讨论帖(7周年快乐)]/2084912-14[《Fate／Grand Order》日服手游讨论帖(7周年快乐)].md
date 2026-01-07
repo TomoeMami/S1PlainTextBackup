@@ -10484,3 +10484,113 @@ fgo假死 智斗巅峰口牙<img src="https://static.stage1st.com/image/smiley/f
 
 大的来了？菌哥哥回到他尊贵的月球**台上了吗？
 
+
+*****
+
+####  洛克萨斯  
+##### 20224#       发表于 2026-1-7 17:36
+
+未来又又又被消灭了
+
+因为新的beast，已经消失的迦勒底也又出现了
+
+现在的迦勒底不在现实的2019，和时间神殿一样是和外界隔绝的时空，在2019年12月31日最后一秒
+
+胖所长和希翁、福尔摩斯、尼莫因为是第二部的角色所以没归队，奥尔加玛丽复活了
+
+王哈lily来讨伐beast，另外说了这次剧情只有一年(他只待一年)，要去各种特异点找到beast
+
+*****
+
+####  zakki  
+##### 20225#       发表于 2026-1-7 17:36
+
+隔壁前几天喷这么狠，到底是玩还是不玩<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20226#       发表于 2026-1-7 17:36
+
+看1小时广告真的能复活<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+感谢各位
+
+*****
+
+####  都谷捻柏  
+##### 20227#       发表于 2026-1-7 17:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又要速败转速胜了？
+
+*****
+
+####  jackyhuang  
+##### 20228#       发表于 2026-1-7 17:38
+
+菌哥哥把剧情都硬凹成这样了，大家赶紧原谅他吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  乞力马札罗的雪  
+##### 20229#       发表于 2026-1-7 17:38
+
+太难绷了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  alucardcz  
+##### 20230#       发表于 2026-1-7 17:38
+
+打完了 标准回档接新活拖时间
+
+现在这么一搞 那么精心做的ed不又成笑话了 坂本真绫的新ed还怎么听<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20231#       发表于 2026-1-7 17:39
+
+新的beast故意把迦勒底复活来让他们挑战，所长直说自己也不知道为啥复活了(菌类的大手)，把胖所长戏份顶了现在是迦勒底领导者，山中小登出来说自己负责监督迦勒底，迦勒底不解决beast的话他就要把迦勒底所有人砍死<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小妻水亚美  
+##### 20232#       发表于 2026-1-7 17:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然还是舍不得大家爆的米，怎么样都得续上
+
+—— 来自 motorola XT2401-2, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  angelooo  
+##### 20233#       发表于 2026-1-7 17:39
+
+破案了，因为他们急着想放假所以晾了玩家一周233
+
+*****
+
+####  Jamaisvu  
+##### 20234#       发表于 2026-1-7 17:40
+
+蘑菇不知道是耍猴还是真不写了，但武内应该还拿得动笔吧。时间回溯后紫苑应该还在，我对她挺有执念的，希望今年能抽到...
+
+*****
+
+####  khxooo  
+##### 20235#       发表于 2026-1-7 17:40
+
+新的篇章，新的欧气<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202601/07/173956cb8m5wz18t5nmqtt.png" referrerpolicy="no-referrer">
+
+<strong>MuMu-20260107-174018-396.png</strong> (442.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-7 17:39 上传
+
