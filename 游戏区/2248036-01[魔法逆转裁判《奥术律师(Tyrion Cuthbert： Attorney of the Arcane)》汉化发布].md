@@ -990,3 +990,15 @@ SteamDeck需要安装运行库吗？</blockquote>
 
 汉化组有打算做重置版的汉化吗？
 
+
+*****
+
+####  国家免检虎B  
+##### 97#         楼主| 发表于 2026-1-7 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68988717&amp;ptid=2248036" target="_blank">blueelf 发表于 2026-1-7 10:40</a>
+汉化组有打算做重置版的汉化吗？</blockquote>
+目前没消息
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
