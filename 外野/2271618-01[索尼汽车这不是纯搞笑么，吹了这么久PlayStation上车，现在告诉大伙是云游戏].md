@@ -406,3 +406,11 @@ g了下sony官方建议工作温度是5-35，车上肯定不行
 有一说一，消费电子的主板是不可能直接安车上，真想装得按车规级重新设计，相关元件全要换，主板本身设计也 ...</blockquote>
 model s/x在前年降本增效前可以跑steam<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜光铃  
+##### 43#       发表于 2026-1-7 11:43
+
+多重的瘾在车里都要玩主机呀，这头不晕吗…
+
