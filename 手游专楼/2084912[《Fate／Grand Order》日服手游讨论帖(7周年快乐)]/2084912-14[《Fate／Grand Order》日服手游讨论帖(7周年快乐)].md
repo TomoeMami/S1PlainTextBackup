@@ -10761,3 +10761,82 @@ beast V，然后爱歌，虽然设定已经毫无所谓了，但旧闪这个开�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">王哈lily 快端上来罢！
 
+
+*****
+
+####  plok201  
+##### 20256#       发表于 2026-1-7 17:59
+
+正式进入海螺小姐时间，接下来每年换一个监工，我们的战斗才刚刚开始呀！<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARKGRAY  
+##### 20257#       发表于 2026-1-7 18:01
+
+感觉就是之前说好的降+收尾而已，年底可以关服了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 20258#       发表于 2026-1-7 18:01
+
+<img src="https://img.stage1st.com/forum/202601/07/180055mxissbuuzthfxikf.png" referrerpolicy="no-referrer">
+
+<strong>3434343.png</strong> (1.38 MB, 下载次数: 0)
+
+下载附件
+
+2026-1-7 18:00 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鮉图来的真快  胖：原来死的是我？
+
+*****
+
+####  angelooo  
+##### 20259#       发表于 2026-1-7 18:02
+
+<blockquote>alucardcz 发表于 2026-1-7 18:01
+鮉图来的真快  胖：原来死的是我？</blockquote>
+谁跟你说死了，变陌生人而已，太好了，终于可以让那些纠结喊谁所长的人闭嘴了是吧23333
+
+*****
+
+####  exiaexa  
+##### 20260#       发表于 2026-1-7 18:04
+
+ 本帖最后由 exiaexa 于 2026-1-7 18:06 编辑 
+
+这活各种意义上好像变得更烂了，抓回来重组然后收拾烂摊子都比这个续续续好点吧
+
+真的，给立香放个假吧，10年没见父母了喂
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+而且让你救所长没让你一换一啊，还有人能不选会飙车的胖子吗
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20261#       发表于 2026-1-7 18:05
+
+<img src="https://p.sda1.dev/30/47bfb4a28c04a1d93b85f7ca77f9a0cc/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  rollingusagi  
+##### 20262#       发表于 2026-1-7 18:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">恭喜各位又双叒叕被蘑菇给耍了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  exiaexa  
+##### 20263#       发表于 2026-1-7 18:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68991513&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2026-1-7 18:05</a></blockquote>
+因为武内的狗屎人体结构，导致胸型很奇怪，看起来反而像变小了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
