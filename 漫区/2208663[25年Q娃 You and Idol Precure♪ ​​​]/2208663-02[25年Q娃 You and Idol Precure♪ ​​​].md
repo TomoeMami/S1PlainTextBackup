@@ -266,3 +266,13 @@ ip：田中你算计我！<img src="https://static.stage1st.com/image/smiley/fac
 </blockquote>
 本来应该写侦Q的 但侦Q不知道为什么到现在都没公开 结果就没法写了
 
+
+*****
+
+####  pokemon最爱  
+##### 1530#       发表于 2026-1-8 00:11
+
+所以探QPV没出果然是偶Q这边多放几集，不意外<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+猜一个当年法Q想搞没搞成的决战后TV全明星好吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
