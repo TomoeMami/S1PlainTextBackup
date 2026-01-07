@@ -10594,3 +10594,170 @@ fgo假死 智斗巅峰口牙<img src="https://static.stage1st.com/image/smiley/f
 
 2026-1-7 17:39 上传
 
+
+*****
+
+####  xiongxingyu  
+##### 20236#       发表于 2026-1-7 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68991316&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2026-1-7 17:36</a>
+
+未来又又又被消灭了
+
+因为新的beast，已经消失的迦勒底也又出现了</blockquote>
+滑坡只有一次和无数次，反正迦勒底都变成和时空神殿一样独立于时间轴之外的存在了，还有啥不能续的，随时拉回来上班，小芬奇只有一年寿命？反正时间不会走，1年当作一万年用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  任天索尼子  
+##### 20237#       发表于 2026-1-7 17:44
+
+应该算是死缓吧 明着告诉你后面基本只有支线收尾了 给你一两年的缓冲期少氪金 就真差不多到头了 
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  alucardcz  
+##### 20238#       发表于 2026-1-7 17:45
+
+现在既然已经摆烂扯淡了 就不需要想什么逻辑了  不要折磨自己 这种xjb设定谁死谁活 脑袋一拍就能搞定<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 20239#       发表于 2026-1-7 17:46
+
+咕哒：所长你咋活过来的？所长：我也不道啊！
+
+那么什么时候去捞紫苑？
+
+*****
+
+####  khxooo  
+##### 20240#       发表于 2026-1-7 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68991390&amp;ptid=2084912" target="_blank">quanlix 发表于 2026-1-7 17:46</a>
+
+咕哒：所长你咋活过来的？所长：我也不道啊！
+
+那么什么时候去捞紫苑？</blockquote>
+周年从者<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 20241#       发表于 2026-1-7 17:47
+
+想起来就能捞 反正已经瞎几把搞了
+
+以后别当这游戏是正剧 当成滑稽戏比较合适<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺凯伊姆  
+##### 20242#       发表于 2026-1-7 17:48
+
+beast V，然后爱歌，虽然设定已经毫无所谓了，但旧闪这个开服大卫星能不能安排下让我最后氪一次
+
+*****
+
+####  الطائر  
+##### 20243#       发表于 2026-1-7 17:48
+
+等待，并心怀希望吧。（1月1日发）
+
+*****
+
+####  棍机凹升龙  
+##### 20244#       发表于 2026-1-7 17:50
+
+我都怀疑是不是想玩虐粉那套现在看来只是玩脱了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20245#       发表于 2026-1-7 17:51
+
+迦勒底全员假死让我看的冷汗直流。没想到当年所有人竟然是假死，一想到这是贯穿半个月的伏笔，我全身都是汗，智斗封神了，蘑菇的脑残岂是我等月丑能想象到的，后劲太大了，脑子都还没缓过来，一直 紧绷着，根本无法停下思考，原本12.31的记忆全部消失，本来应该1.1端上来的剧情头七才回魂!直接让我汗流浃背，不愧是fgo剧情这块智斗无人能超越。
+
+
+*****
+
+####  alucardcz  
+##### 20246#       发表于 2026-1-7 17:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漏油这是在串吗  今天这后日日后谈不是告诉我们要开始摆烂了吗（
+
+*****
+
+####  zakki  
+##### 20247#       发表于 2026-1-7 17:54
+
+不过我估计第三部是没了，能把剩下的beast补上也不错<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 20248#       发表于 2026-1-7 17:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">王哈就是索尼姥爷的监工啊
+
+*****
+
+####  岸浪白野  
+##### 20249#       发表于 2026-1-7 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68991431&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-7 17:52</a>
+
+漏油这是在串吗  今天这后日日后谈不是告诉我们要开始摆烂了吗（</blockquote>
+给你整了个后面随便出活动的底，起码不膈应了已经不错了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  楽園のエル  
+##### 20250#       发表于 2026-1-7 17:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是啊翻译成大白话不是我们今年再续一年哈大家坐好不要吵了哦。
+
+*****
+
+####  alucardcz  
+##### 20251#       发表于 2026-1-7 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68991437&amp;ptid=2084912" target="_blank">zakki 发表于 2026-1-7 17:54</a>
+
+不过我估计第三部是没了，能把剩下的beast补上也不错</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在这样还需要主线吗 随便搞！
+
+*****
+
+####  yyzcacxg  
+##### 20252#       发表于 2026-1-7 17:56
+
+这玩意给我的感觉就是，蘑菇写了一个他自己觉得能让玩家体验到“丧失感”的结局准备收笔，又被各种游说不得已敷衍的打了个补丁让游戏能继续运营。
+
+*****
+
+####  岸浪白野  
+##### 20253#       发表于 2026-1-7 17:56
+
+反正都找年轻王哈来监工了，就是找个活动来实装了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  乞力马札罗的雪  
+##### 20254#       发表于 2026-1-7 17:56
+
+先糊上后面再说<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  楽園のエル  
+##### 20255#       发表于 2026-1-7 17:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">王哈lily 快端上来罢！
+
