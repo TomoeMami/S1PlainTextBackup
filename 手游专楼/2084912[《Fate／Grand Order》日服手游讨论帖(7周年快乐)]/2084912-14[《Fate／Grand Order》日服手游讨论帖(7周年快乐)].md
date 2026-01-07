@@ -11108,3 +11108,60 @@ to the next decade
 
 —— 来自 OPPO PLG110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  exiaexa  
+##### 20290#       发表于 2026-1-7 19:10
+
+ 本帖最后由 exiaexa 于 2026-1-7 19:11 编辑 
+
+其实想想，这多少有点摆烂了吧
+
+有点心气的话，写个日后谈讲讲后续的故事，能写的组织多了去了
+
+大不了再拉个君主出来发癫
+
+结果这直接告诉你，我们没有日后也可以谈啊
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 20291#       发表于 2026-1-7 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68991846&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-7 19:10</a>
+
+其实想想，这多少有点摆烂了吧
+
+有点心气的话，写个日后谈讲讲后续的故事，能写的组织多了去了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">啥 不是一直在摆烂吗
+
+*****
+
+####  exiaexa  
+##### 20292#       发表于 2026-1-7 19:17
+
+ 本帖最后由 exiaexa 于 2026-1-7 19:22 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68991866&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-7 19:16</a>
+
+啥 不是一直在摆烂吗</blockquote>
+摆烂也有装和不装的区分啊
+
+以前好歹还装作自己很努力，先在前半截奋斗一下，后半截才摆
+
+现在好像是不想装了，一开局就摆了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 20293#       发表于 2026-1-7 19:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68991874&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-7 19:17</a>
+
+摆烂也有装和不装的区分啊
+
+以前好歹还装作自己很努力，好歹在前半截奋斗一下</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">我们觉得他是装都不装再摆烂 但是某群体已经准备要反攻倒算了！
+
