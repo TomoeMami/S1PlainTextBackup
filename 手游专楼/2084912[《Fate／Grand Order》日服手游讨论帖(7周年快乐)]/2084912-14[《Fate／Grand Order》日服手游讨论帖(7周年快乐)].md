@@ -10368,3 +10368,119 @@ fgo假死 智斗巅峰口牙<img src="https://static.stage1st.com/image/smiley/f
 
 还能酱紫后续？那我这福袋是买还是不买啊？
 
+
+*****
+
+####  alucardcz  
+##### 20211#       发表于 2026-1-7 17:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开头1月1号 所以跨年为什么装死？
+
+*****
+
+####  plok201  
+##### 20212#       发表于 2026-1-7 17:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">早说了100种方法慢慢续，唯一的惊讶的就是比想象中早，还以为要多休息几天呢
+
+*****
+
+####  hououmon  
+##### 20213#       发表于 2026-1-7 17:29
+
+所以为啥不元旦放出来啊
+
+*****
+
+####  12481632  
+##### 20214#       发表于 2026-1-7 17:31
+
+所长也回来了，给菌鸽鸽道歉😭
+
+*****
+
+####  qixinno2  
+##### 20215#       发表于 2026-1-7 17:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所长喜提灵衣户口 然而已经满绊了
+
+<img src="https://img.stage1st.com/forum/202601/07/173118sz0cria7ic56cch5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (37.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-7 17:31 上传
+
+*****
+
+####  xiongxingyu  
+##### 20216#       发表于 2026-1-7 17:32
+
+哈哈哈哈哈哈哈，何等预定调和的闹剧，蘑菇略施小计，此刻我的耳边仿佛飘过了某蛇皮怪的金句“だから　人間はおもしろい　カルデアを滅ぼすのはやめた。”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下孝子和黑子们又能打上一个礼拜了。
+
+*****
+
+####  岸浪白野  
+##### 20217#       发表于 2026-1-7 17:32
+
+本质CCC套路复用，又是什么结局前的一段IF
+又是旧点子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 20218#       发表于 2026-1-7 17:33
+
+<img src="https://img.stage1st.com/forum/202601/07/173314k3va5gm9c2la559v.png" referrerpolicy="no-referrer">
+
+<strong>3444343.png</strong> (363.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-7 17:33 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太tmd的弱智了
+
+*****
+
+####  天王寺凯伊姆  
+##### 20219#       发表于 2026-1-7 17:34
+
+相当于fgo extella？
+
+*****
+
+####  xiongxingyu  
+##### 20220#       发表于 2026-1-7 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68991254&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-7 17:27</a>
+
+开头1月1号 所以跨年为什么装死？</blockquote>
+搞行为艺术逗你们玩儿呗，家大业大不怕炎上暴死就是那么自信<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 20221#       发表于 2026-1-7 17:35
+
+气笑了，要是与现实日期同步，在元旦当天搞这套，我还能认为运营对未来有具体规划。隔了一周才开始打补丁，螺旋社也失忆了吗？
+
+该不会因为冠呆必须落地，但是没有配套活动，和后日谈内容也冲突，所以剧情给卡池让步了吧...
+
+*****
+
+####  zakki  
+##### 20222#       发表于 2026-1-7 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68977842&amp;ptid=2084912" target="_blank">zakki 发表于 2026-1-5 11:29</a>
+如果疯狂诋毁菌能让他们走出来完结的悲痛我是赞成的，但别矫枉过正以后把自己后路给断了就搞笑了 ...</blockquote>
+所以我之前就说了啊，给自己留点后路，纯纯的闹麻了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  楽園のエル  
+##### 20223#       发表于 2026-1-7 17:35
+
+大的来了？菌哥哥回到他尊贵的月球**台上了吗？
+
