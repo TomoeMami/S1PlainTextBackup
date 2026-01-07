@@ -11351,3 +11351,48 @@ lxs社长发视频安抚玩家
 还在幻想小达芬奇伏笔！牢记大的就这甚至没有</blockquote>
 我还是佩服这些人的，终章被蘑菇打得脸红肿还在继续阴谋论。更像是所长在做梦，就如当年的FHA<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  giddenslee  
+##### 20314#       发表于 2026-1-7 20:55
+
+才发现每日免费抽没了
+
+*****
+
+####  الطائر  
+##### 20315#       发表于 2026-1-7 21:11
+
+日本的研究生是在本科之后、修士（硕士）之前的阶段，学制半年到一年。如果玛修没有跳级也没有留级，那就是在23岁，大概2022年左右，回到了2019年。
+
+终章结局后，泛人类史2019年玛修访问日本，参观东京国立极地研究所南极・北极科学馆，在东京站遇到了咕哒，然后两人大概相识了3年，期间玛修去过咕哒家。
+
+*****
+
+####  KOBI  
+##### 20316#       发表于 2026-1-7 21:16
+
+ 本帖最后由 KOBI 于 2026-1-7 21:26 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">实际海螺小姐时空，赞
+
+反正我对把TE棺材板钉死这事很满意，也说了这新兽就是个LOW货
+
+想对着这种东西唱赞歌的话随他们高兴咯
+
+唯一有点兴趣的还是2020后GD的生活
+
+不过既然要嘉年华A组不全活一下？只有卡多克不够味啊
+
+*****
+
+####  jackyhuang  
+##### 20317#       发表于 2026-1-7 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68992348&amp;ptid=2084912" target="_blank">الطائر 发表于 2026-1-7 21:11</a>
+日本的研究生是在本科之后、修士（硕士）之前的阶段，学制半年到一年。如果玛修没有跳级也没有留级，那就是 ...</blockquote>
+蘑菇把FGO的后续也扔进FGO了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
