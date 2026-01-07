@@ -10935,3 +10935,86 @@ to the next decade
 
 能和所长一同冒险真是梦想中的场景
 
+
+*****
+
+####  alucardcz  
+##### 20275#       发表于 2026-1-7 18:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">萌新又回去听了遍ed和看了眼歌词  太好笑了  何意味啊？
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">想起这结局之前还有蘑菇孝子吹爆  现在又被官方抽脸
+
+*****
+
+####  qixinno2  
+##### 20276#       发表于 2026-1-7 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68991348&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-1-7 17:40</a>
+
+新的篇章，新的欧气</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">楼友还在欧 只有我吃大保底
+
+*****
+
+####  hououmon  
+##### 20277#       发表于 2026-1-7 18:33
+
+起码我很满意，这种FHA式的处理挺好的
+
+开开心心过些庆典，打完异闻带，打完迦勒底，不想再那么苦大仇深了
+
+说难听一点，终章的所长、紫苑、尼莫都没得挺莫名其妙的
+
+这种半开玩笑态度接回来正好合适
+
+雷夫和老福这种我是觉得告别得挺好的，这几位没回来加班，好好休息一阵也挺不错
+
+*****
+
+####  cenhr  
+##### 20278#       发表于 2026-1-7 18:35
+
+但是我的肥肥指挥官、双马尾紫苑、船长和老福都没了？
+
+*****
+
+####  exiaexa  
+##### 20279#       发表于 2026-1-7 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68991662&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-7 18:32</a>
+
+萌新又回去听了遍ed和看了眼歌词  太好笑了  何意味啊？
+
+想起这结局之前还有蘑菇孝子吹爆  现在又被官方抽 ...</blockquote>
+连破皮饺子都能吹爆的
+
+这纯度也太高了吧
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 20280#       发表于 2026-1-7 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68991663&amp;ptid=2084912" target="_blank">qixinno2 发表于 2026-1-7 18:32</a>
+
+楼友还在欧 只有我吃大保底</blockquote>
+
+<img src="https://img.stage1st.com/forum/202601/07/183443ku4u7mg84x3nmr39.png" referrerpolicy="no-referrer">
+
+<strong>3436567.png</strong> (525.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-7 18:34 上传
+
+<img src="https://img.stage1st.com/forum/202601/07/183540jsl9gwgvoo9avfb9.jpg" referrerpolicy="no-referrer">
+
+<strong>1111111111111.jpg</strong> (90.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-7 18:35 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">你不都出了！ 看看本楼最非得萌新还什么都没有！
+
