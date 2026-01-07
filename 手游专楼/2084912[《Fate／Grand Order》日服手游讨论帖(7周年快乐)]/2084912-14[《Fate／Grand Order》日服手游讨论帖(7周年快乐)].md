@@ -11284,3 +11284,70 @@ lxs社长发视频安抚玩家
 现在直接啥都不说，还整个隔离状态出来，实际上跟2.0的处境根本没区别
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 20307#       发表于 2026-1-7 20:43
+
+月姬R里形容二十七祖的原理血戒是“一辈子也做不完的暑假作业”，生命的意义，不死的诅咒。
+
+咕哒在我眼里就如同拥有名为“拯救人理”的原理血戒，从开始到结束，从虚无到新生，一直都在忙着拯救人理，哪怕是在为第零异闻带瞎忙，手里的工作也没放下过，看似从终点走回起点，迎来新的人生，调完休发现还要无限加班...
+
+唯一安息的可能性就是榨干价值后作为the dark six的祭品去唤醒月姬的新生吧...
+
+*****
+
+####  v22325  
+##### 20308#       发表于 2026-1-7 20:46
+
+主要之前还在有点期待写咕哒正常生活干点其他事，这又拉回来写特异点，你月写手除了写特异点不会写其他东西了吗
+
+*****
+
+####  cenhr  
+##### 20309#       发表于 2026-1-7 20:47
+
+比起所长，我跟想要肥肥司令官、老福、芙芙、紫苑和船长<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 20310#       发表于 2026-1-7 20:47
+
+ 本帖最后由 v22325 于 2026-1-7 20:50 编辑 
+<blockquote>sanada 发表于 2026-1-7 19:57
+现在叫来的除了所长都是回到原本人生的活人，那这个莫名其妙突然出现的小芬奇是不是可疑了一点 ...</blockquote>
+
+对话有说小达芬奇简直像一直在等他们一样反正怪怪的，那旁白也是，语气好像是哪个
+
+*****
+
+####  xunit  
+##### 20311#       发表于 2026-1-7 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68992076&amp;ptid=2084912" target="_blank">天王寺凯伊姆 发表于 2026-1-7 20:09</a>
+
+有个问题，那现在这个情况和当初1.5时期是不是没区别，2.0的消息是什么时候出来来着？ ...</blockquote>
+1.5在2017年就全放出了，2018年开的2.0
+
+*****
+
+####  alucardcz  
+##### 20312#       发表于 2026-1-7 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68992221&amp;ptid=2084912" target="_blank">v22325 发表于 2026-1-7 20:47</a>
+
+对话有说小达芬奇简直像一直在等他们一样反正怪怪的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">还在幻想小达芬奇伏笔！牢记大的就这甚至没有
+
+*****
+
+####  cenhr  
+##### 20313#       发表于 2026-1-7 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68992232&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-7 20:48</a>
+
+还在幻想小达芬奇伏笔！牢记大的就这甚至没有</blockquote>
+我还是佩服这些人的，终章被蘑菇打得脸红肿还在继续阴谋论。更像是所长在做梦，就如当年的FHA<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
