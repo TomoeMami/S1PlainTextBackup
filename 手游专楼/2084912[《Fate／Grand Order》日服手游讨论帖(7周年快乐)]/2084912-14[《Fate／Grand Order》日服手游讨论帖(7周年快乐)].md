@@ -11059,3 +11059,52 @@ to the next decade
 
 果然是速败转速胜吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modkingr  
+##### 20285#       发表于 2026-1-7 18:54
+
+果然还没完，哈哈
+
+*****
+
+####  xiongxingyu  
+##### 20286#       发表于 2026-1-7 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68991672&amp;ptid=2084912" target="_blank">cenhr 发表于 2026-1-7 18:35</a>
+
+但是我的肥肥指挥官、双马尾紫苑、船长和老福都没了？</blockquote>
+现在这个迦勒底有点像五战前呆毛的状态态，全是从泛人类史直接抓过来的活人，进了迦勒底直接一个大记忆恢复术。所以胖所长和紫苑理论上现在只是在放假而已，需要时分分钟给你拉过来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuiuk2  
+##### 20287#       发表于 2026-1-7 19:04
+
+续上了（2027年1月7日过期）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+怎么活的，问就是不知道<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shimotsuki14  
+##### 20288#       发表于 2026-1-7 19:06
+
+以下是梦
+蘑菇和2sRGUbBO9j2n和荒木联动
+从头整
+《迪亚哥布兰度似乎在挑战Grand Order的样子》
+可以再搞十年，剧本主干就交给2sRGUbBO9j2n<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  like32451  
+##### 20289#       发表于 2026-1-7 19:08
+
+所长这个我也不知道，把我整乐了
+
+—— 来自 OPPO PLG110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
