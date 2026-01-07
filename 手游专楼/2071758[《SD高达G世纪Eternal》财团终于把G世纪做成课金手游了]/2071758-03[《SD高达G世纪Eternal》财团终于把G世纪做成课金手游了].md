@@ -2420,3 +2420,18 @@ axwhQ1at-8np4ZbT3cSrs-t5.jpg
 突破力比电光火石队形强啊</blockquote>
 所以 电光石火更加要整活 讲个鬼故事 电光石火三台卡池ur黄鸡db组合是一样的（特殊+减防）
 
+
+*****
+
+####  AminGly  
+##### 3481#       发表于 2026-1-7 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68977287&amp;ptid=2071758" target="_blank">DRAGONBLEAPIECE 发表于 2026-1-5 10:06</a>
+
+这标签自由度感觉都是狗带一手掌控的
+
+比如之后为了推新标签
+
+一击必杀，或者其他的标签一年不出几个都可以 ...</blockquote>
+新人类专用：你说的太对了
+
