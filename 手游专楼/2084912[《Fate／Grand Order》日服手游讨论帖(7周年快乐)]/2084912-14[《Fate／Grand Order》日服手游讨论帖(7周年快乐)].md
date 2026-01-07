@@ -10221,3 +10221,48 @@ SE总不能真把第三开发部当牛~马了
 SE总不能真把第三开发部当牛~马了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">钱多就能做好吗  15崩16崩 rb还是崩 我等着8.0和 ff7-3一起爆炸
 
+
+*****
+
+####  exiaexa  
+##### 20197#       发表于 2026-1-6 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68986753&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-6 21:55</a>
+
+钱多就能做好吗  15崩16崩 rb还是崩 我等着8.0和 ff7-3一起爆炸</blockquote>
+虽然不能过度乐观，但人总要求点期待嘛
+<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+退一万步来说
+
+还能指望祖坚给歌单贡献点东西
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 20198#       发表于 2026-1-7 00:20
+
+[https://www.bilibili.com/opus/1154788492534874116](https://www.bilibili.com/opus/1154788492534874116)
+
+有Master真去南极了，真好，有三个月假期<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  失落之翼  
+##### 20199#       发表于 2026-1-7 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68987297&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-1-7 00:20</a>
+
+https://www.bilibili.com/opus/1154788492534874116</blockquote>
+南极某种意义上就是白纸化区域吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 20200#       发表于 2026-1-7 14:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68988950&amp;ptid=2084912" target="_blank">失落之翼 发表于 2026-1-7 11:13</a>
+南极某种意义上就是白纸化区域吧</blockquote>
+所以选南极是因为一无所有所以察觉不了白纸化的事情？
+
