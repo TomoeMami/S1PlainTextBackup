@@ -11544,3 +11544,38 @@ lxs社长发视频安抚玩家
 加到真能等到月姬里线发售fgo才再整月姬R联动</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别说里线 表线甚至摸了那么久都没上steam难道准备几百年后表里一起上
 
+
+*****
+
+####  岸浪白野  
+##### 20332#       发表于 2026-1-8 00:09
+
+当魔夜上蒸汽是隔了1年而月姬R还没动静就明显拖着了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 20333#       发表于 2026-1-8 00:10
+
+有一说一，所长这<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">表情是真可爱
+
+*****
+
+####  alucardcz  
+##### 20334#       发表于 2026-1-8 00:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68993203&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2026-1-8 00:09</a>
+
+当魔夜上蒸汽是隔了1年而月姬R还没动静就明显拖着了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我悟了 等传说中的里线出完 然后打包一起加点新料 月姬Royal 在steam上堂堂登场！
+
+*****
+
+####  khxooo  
+##### 20335#       发表于 2026-1-8 01:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68993219&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-8 00:14</a>
+
+我悟了 等传说中的里线出完 然后打包一起加点新料 月姬Royal 在steam上堂堂登场！ ...</blockquote>
+什么阿特拉斯商法？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
