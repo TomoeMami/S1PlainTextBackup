@@ -982,3 +982,11 @@ SteamDeck需要安装运行库吗？</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  blueelf  
+##### 96#       发表于 2026-1-7 10:40
+
+汉化组有打算做重置版的汉化吗？
+
