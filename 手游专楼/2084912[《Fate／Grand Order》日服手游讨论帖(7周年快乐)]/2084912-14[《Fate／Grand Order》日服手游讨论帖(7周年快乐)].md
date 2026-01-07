@@ -11446,3 +11446,51 @@ lxs社长发视频安抚玩家
 对话有说小达芬奇简直像一直在等他们一样反正怪怪的，那旁白也是，语气好像是哪个 ...</blockquote>
 旁白感觉就是beast视点
 
+
+*****
+
+####  cenhr  
+##### 20322#       发表于 2026-1-7 22:37
+
+如果接下来是接回肥肥指挥官等人以及A组众人那就真的是放飞自我了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 20323#       发表于 2026-1-7 23:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从漫画了解fgo
+
+<img src="https://img.stage1st.com/forum/202601/07/232619qtw4wu9wx9xn4u6w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (234.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-7 23:26 上传
+
+*****
+
+####  森兰丸  
+##### 20324#       发表于 2026-1-7 23:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">晚上刚加班完回家就看到怎么还能玩这出的
+
+要谐成这样真的就干脆别再出了.....完全是一股嘉年华的味道
+
+*****
+
+####  qixinno2  
+##### 20325#       发表于 2026-1-7 23:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是打完终章全员发个1000石估计就无所谓了
+
+*****
+
+####  森兰丸  
+##### 20326#       发表于 2026-1-7 23:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">爬了下楼....不是漏友有说我还不知道商店里能换所长的灵衣了
+
+灵衣一般不是先能直接开放一段时间....过期了后再扔到商店里的吗
+
