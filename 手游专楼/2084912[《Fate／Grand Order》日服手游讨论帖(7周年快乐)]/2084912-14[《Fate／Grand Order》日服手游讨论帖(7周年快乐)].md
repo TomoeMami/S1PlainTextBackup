@@ -11396,3 +11396,53 @@ lxs社长发视频安抚玩家
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  aimbot  
+##### 20318#       发表于 2026-1-7 22:07
+
+<img src="https://img.stage1st.com/forum/202601/07/220749n2li0z48u18o06zi.jpg" referrerpolicy="no-referrer">
+
+<strong>1000016100.jpg</strong> (14.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-7 22:07 上传
+
+*****
+
+####  sandro  
+##### 20319#       发表于 2026-1-7 22:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68992348&amp;ptid=2084912" target="_blank">الطائر 发表于 2026-1-7 21:11</a>
+
+日本的研究生是在本科之后、修士（硕士）之前的阶段，学制半年到一年。如果玛修没有跳级也没有留级，那就是 ...</blockquote>
+变成奥尔加所长的同龄人了啊
+
+*****
+
+####  シャル  
+##### 20320#       发表于 2026-1-7 22:14
+
+哈哈故意的吧，就拿所长开刷
+
+<img src="https://img.stage1st.com/forum/202601/07/221430m6dvlmx6nm2qm69m.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4417.png</strong> (819.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-7 22:14 上传
+
+
+*****
+
+####  sanada  
+##### 20321#       发表于 2026-1-7 22:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68992221&amp;ptid=2084912" target="_blank">v22325 发表于 2026-1-7 20:47</a>
+
+对话有说小达芬奇简直像一直在等他们一样反正怪怪的，那旁白也是，语气好像是哪个 ...</blockquote>
+旁白感觉就是beast视点
+
