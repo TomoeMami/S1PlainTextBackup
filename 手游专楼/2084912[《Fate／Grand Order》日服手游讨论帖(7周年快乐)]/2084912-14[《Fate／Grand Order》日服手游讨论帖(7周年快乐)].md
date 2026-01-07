@@ -11205,3 +11205,39 @@ to the next decade
 
 总不会真有人想蘑菇搞个3.0然后再拖个七八年吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 20299#       发表于 2026-1-7 19:41
+
+<blockquote>alucardcz 发表于 2026-1-7 19:25
+现在这情况四舍五入不就是漏油之前说的最差的情况 “回到终章前”开活动</blockquote>
+我觉得就是多了这个糊逼的后日谈来让这样的情况看着不那么难绷（但实际上还是很难绷
+
+然后就进入漫无止境的回滚（什么逻辑和伏笔，丢掉了
+
+*****
+
+####  natlk  
+##### 20300#       发表于 2026-1-7 19:43
+
+还是得靠索尼的大手啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fool  
+##### 20301#       发表于 2026-1-7 19:43
+
+是我主观愿望影响太大了吗？怎么感觉一股“打不过资本大手啦，随便搞搞续一下好了”的味道？之所以会怀疑是因为定了个一年期限，虽然跟现实时间也不一定一致，但是完全可以不定一直摆烂就行，让人产生难道他还打算认真搞的错觉。往好了想定位上应该就是个FHA吧
+
+*****
+
+####  都谷捻柏  
+##### 20302#       发表于 2026-1-7 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68991912&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-7 19:25</a>
+
+现在这情况四舍五入不就是漏油之前说的最差的情况 “回到终章前”开活动</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对，而且都不需要写后续相关剧情了，无限填活动就完事，填到最后没人玩了宣布关服。
+
