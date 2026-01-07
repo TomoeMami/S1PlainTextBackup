@@ -10886,3 +10886,52 @@ beast V，然后爱歌，虽然设定已经毫无所谓了，但旧闪这个开�
 
 你菌也转行开始写咕哒咕哒了啊<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kirihara  
+##### 20269#       发表于 2026-1-7 18:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">何意味啊这是。
+
+*****
+
+####  alucardcz  
+##### 20270#       发表于 2026-1-7 18:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我fgo 想要赚钱啊（
+
+*****
+
+####  zakki  
+##### 20271#       发表于 2026-1-7 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68991446&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-7 17:55</a>
+现在这样还需要主线吗 随便搞！</blockquote>
+直接开社外联动吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 20272#       发表于 2026-1-7 18:22
+
+所以主角他们全部被拉来加班了？
+
+*****
+
+####  闽明  
+##### 20273#       发表于 2026-1-7 18:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68991542&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2026-1-7 18:09</a>
+型月经典之to the next ten years</blockquote>
+to the next decade
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  闪亮的彗星  
+##### 20274#       发表于 2026-1-7 18:24
+
+能和所长一同冒险真是梦想中的场景
+
