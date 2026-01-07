@@ -11165,3 +11165,43 @@ to the next decade
 以前好歹还装作自己很努力，好歹在前半截奋斗一下</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">我们觉得他是装都不装再摆烂 但是某群体已经准备要反攻倒算了！
 
+
+*****
+
+####  kiralzb  
+##### 20294#       发表于 2026-1-7 19:24
+
+最后出来的兽会是只蘑菇吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+有续很正常啦，只是lxs这一通操作着实抽象
+
+*****
+
+####  alucardcz  
+##### 20295#       发表于 2026-1-7 19:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在这情况四舍五入不就是漏油之前说的最差的情况 “回到终章前”开活动
+
+*****
+
+####  岸浪白野  
+##### 20296#       发表于 2026-1-7 19:31
+
+现在是有终章后的记忆去开活动然后有个“我也不知道怎么复活了”的所长<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 20297#       发表于 2026-1-7 19:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68991939&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2026-1-7 19:31</a>
+
+现在是有终章后的记忆去开活动然后有个“我也不知道怎么复活了”的所长</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是我胖哥哥和紫头发都没了
+
+*****
+
+####  12481632  
+##### 20298#       发表于 2026-1-7 19:38
+
+总不会真有人想蘑菇搞个3.0然后再拖个七八年吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
