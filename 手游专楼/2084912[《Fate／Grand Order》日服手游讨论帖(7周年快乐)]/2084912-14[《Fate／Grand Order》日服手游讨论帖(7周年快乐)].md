@@ -11494,3 +11494,53 @@ lxs社长发视频安抚玩家
 
 灵衣一般不是先能直接开放一段时间....过期了后再扔到商店里的吗
 
+
+*****
+
+####  岸浪白野  
+##### 20327#       发表于 2026-1-7 23:50
+
+ 本帖最后由 岸浪白野 于 2026-1-7 23:52 编辑 
+
+就是配合手游还要继续运营方便出活动的舞台，还圆了所长羁绊礼装的说法
+
+还出什么，现在鬼还盼他整3.0<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在倒是符合他去年访谈说的那句剧情完了后面都是加时赛了
+
+现在随便手游出活动了，1月17号记得看生放说活动<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 20328#       发表于 2026-1-7 23:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这个加时赛准备一加加多少年
+
+*****
+
+####  岸浪白野  
+##### 20329#       发表于 2026-1-7 23:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68993133&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-7 23:51</a>
+
+你这个加时赛准备一加加多少年</blockquote>
+加到真能等到月姬里线发售fgo才再整月姬R联动<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸波白野  
+##### 20330#       发表于 2026-1-7 23:55
+
+话说前阵子抹布ba经常登顶去看看dmm榜不说肝报废轴c都能赫然在列的，不要小看我们小日子x上读空气玩家和老东西的羁绊啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 20331#       发表于 2026-1-7 23:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68993151&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2026-1-7 23:55</a>
+
+加到真能等到月姬里线发售fgo才再整月姬R联动</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别说里线 表线甚至摸了那么久都没上steam难道准备几百年后表里一起上
+
