@@ -276,3 +276,24 @@ ip：田中你算计我！<img src="https://static.stage1st.com/image/smiley/fac
 
 猜一个当年法Q想搞没搞成的决战后TV全明星好吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1531#       发表于 2026-1-8 00:11
+
+所以探QPV没出果然是偶Q这边多放几集，不意外<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+猜一个当年法Q想搞没搞成的决战后TV全明星好吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Blackson  
+##### 1532#       发表于 2026-1-8 08:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68993209&amp;ptid=2208663" target="_blank">pokemon最爱 发表于 2026-1-8 00:11</a>
+ 所以探QPV没出果然是偶Q这边多放几集，不意外 猜一个当年法Q想搞没搞成的决战后TV全明星好吧 ...</blockquote>
+BD上的信息是全49集
+所谓的50、51两集应该是侦探前两集，因为信息没公开所以用标这个搪塞过去
+Q娃现在连TV日常都敷衍，我是不信它会弄这个
+
