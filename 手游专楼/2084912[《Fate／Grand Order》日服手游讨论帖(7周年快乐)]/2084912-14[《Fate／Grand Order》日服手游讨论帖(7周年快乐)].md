@@ -11943,3 +11943,73 @@ saber的冻龄承担责任+棉被
 
 人理有没有这个能力和权限都不好说吧
 
+
+*****
+
+####  森兰丸  
+##### 20370#       发表于 2026-1-8 22:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68998130&amp;ptid=2084912" target="_blank">シャル 发表于 2026-1-8 20:13</a>
+
+强迫劳动吧
+
+反正随叫随到，这地方和所罗门神殿一样在时空之外不受任何影响 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在的嘉乐迪一行人还真不是人理叫来的啊.....是兽为了证明自己更行特意叫来和自己对决的
+
+*****
+
+####  exiaexa  
+##### 20371#       发表于 2026-1-8 22:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68998639&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-8 21:58</a>
+
+可现在的一切包括所有人的记忆和嘉乐迪不都是兽给复原的吗....只有王哈莉莉是人理派来监督的
+
+人理有没有 ...</blockquote>
+权限这种东西不是说有就有了吗
+
+想想当年谁也没想到王哈当年还能拿冠位来自爆的
+
+然后又说冠位是叫不出来的，接着就是被希腊打急眼了直接手操指定摇人
+
+当年的芙芙能自爆给盾娘续一命
+
+我王哈Lily拿着冠位自爆留个记忆不过分吧
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 20372#       发表于 2026-1-8 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68998745&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-8 22:17</a>
+
+权限这种东西不是说有就有了吗
+
+想想当年谁也没想到王哈当年还能拿冠位来自爆的</blockquote>
+说到芙芙自爆我又想起来了只是一开始在2.0序章时表现出失去了知性（但还是凭本能上去咬光兔
+
+之后这知性就又慢慢回来了也没做任何说明....就好像没有自爆这回事一样<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 20373#       发表于 2026-1-8 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68998773&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-8 22:23</a>
+
+说到芙芙自爆我又想起来了只是一开始在2.0序章时表现出失去了知性（但还是凭本能上去咬光兔
+
+之后这知性 ...</blockquote>
+印象里一开始还只是叫唤，后来好多活动都开始整备注翻译了
+
+估摸着就是回复速度挺快的，感觉再让它攒几年又能来一炮
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 20374#       发表于 2026-1-8 22:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想当年1.7的提妈作为兽还是逼格满满的，现在什么兽啊ORT啊再来感觉也就那样了
+
