@@ -11768,3 +11768,41 @@ saber的冻龄承担责任+棉被
 
 奈须：抱持着这股失落感，我想要做出能够让自己挺胸骄傲的游戏。能够以谁都无从预想到的最棒形式，完成 “在那之后的什么” 就实在太好了。… 想必未来的奈须蘑菇会好好努力的吧。
 
+
+*****
+
+####  Yugao  
+##### 20354#       发表于 2026-1-8 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68996617&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-1-8 16:07</a>
+有什么恐怖的，大蜘蛛更多的是看练度。全三星加活动从者都能过，一个一个单挑就是了。我当时不知道能单挑 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弃坑有点早，大部分卡没练度，精锐没注意第一波送了，属于是老同志被偷袭
+
+*****
+
+####  khxooo  
+##### 20355#       发表于 2026-1-8 16:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68996685&amp;ptid=2084912" target="_blank">Yugao 发表于 2026-1-8 16:15</a>
+弃坑有点早，大部分卡没练度，精锐没注意第一波送了，属于是老同志被偷袭 ...</blockquote>
+那只能慢慢练回来了，这个真没办法逃课。
+
+*****
+
+####  kiralzb  
+##### 20356#       发表于 2026-1-8 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68995113&amp;ptid=2084912" target="_blank">シャル 发表于 2026-1-8 11:46</a>
+
+27岁，这位</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">女人就像美酒.jpg
+
+*****
+
+####  失落之翼  
+##### 20357#       发表于 2026-1-8 17:13
+
+所长居然还能拉回来？我看beast就是你！！！王哈桑lily的直觉没错！！！<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+说实话这个开头就和以前各种联动剧情差不多，感觉就是类似奏章那样的短剧情，看能不能续成主线吧？
+
