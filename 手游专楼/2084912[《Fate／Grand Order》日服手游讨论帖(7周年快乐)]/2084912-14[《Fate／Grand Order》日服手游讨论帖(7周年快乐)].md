@@ -11722,3 +11722,49 @@ saber的冻龄承担责任+棉被
 
 我是说这两天算是让我见识到比索狗更孝索之人了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">甚至让我这种索索全家桶都自叹不如的孝顺
 
+
+*****
+
+####  岸浪白野  
+##### 20349#       发表于 2026-1-8 15:35
+
+ 本帖最后由 岸浪白野 于 2026-1-8 15:41 编辑 
+
+除了剧情曲和战斗曲的编号也断开了几首，现在标题界面的BGM是7其实也空出了BGM_TITLE_6
+是现在这个P P P有新的bgm就是后面更新BGM_TITLE_6还是还有什么剧情
+<img src="https://p.sda1.dev/30/cd1201f7b2f9cdfa2472958c4cc712b2/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  VVhaleVoice  
+##### 20350#       发表于 2026-1-8 16:01
+
+听说木野子女士又被哈耶克大手肘回了她忠实的工位，特来道喜<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+—— 来自 Google Pixel 8, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Yugao  
+##### 20351#       发表于 2026-1-8 16:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">重新把号找出来抽了点卡玩，结果被ort杀全家了，最后全家就剩下cd转好的玛头队长，这玩意这么恐怖吗
+
+*****
+
+####  khxooo  
+##### 20352#       发表于 2026-1-8 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68996578&amp;ptid=2084912" target="_blank">Yugao 发表于 2026-1-8 16:01</a>
+重新把号找出来抽了点卡玩，结果被ort杀全家了，最后全家就剩下cd转好的玛头队长，这玩意这么恐怖吗 ...</blockquote>
+有什么恐怖的，大蜘蛛更多的是看练度。全三星加活动从者都能过，一个一个单挑就是了。我当时不知道能单挑，还上了3个，还觉得没尽兴呢，老子还没出力你就倒了？你不会是一次过上6个吧
+
+*****
+
+####  岸浪白野  
+##### 20353#       发表于 2026-1-8 16:11
+
+你现在这种情况就是他19年说的“能够以谁都无从预想到的最棒形式”用了几天看别人难受和看孝子和黑子打架的黑泥自己在背后笑等过几天在更，绝对坏透了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+奈须：抱持着这股失落感，我想要做出能够让自己挺胸骄傲的游戏。能够以谁都无从预想到的最棒形式，完成 “在那之后的什么” 就实在太好了。… 想必未来的奈须蘑菇会好好努力的吧。
+
