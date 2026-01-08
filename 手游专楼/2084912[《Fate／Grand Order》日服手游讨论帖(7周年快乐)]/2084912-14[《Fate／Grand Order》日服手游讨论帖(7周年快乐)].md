@@ -11623,3 +11623,56 @@ lxs社长发视频安抚玩家
 
 我们异闻带0真是人才济济啊
 
+
+*****
+
+####  シャル  
+##### 20340#       发表于 2026-1-8 11:46
+
+<blockquote>kiralzb 发表于 2026-1-8 00:10
+有一说一，所长这表情是真可爱</blockquote>
+27岁，这位
+
+*****
+
+####  khxooo  
+##### 20341#       发表于 2026-1-8 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68994386&amp;ptid=2084912" target="_blank">qixinno2 发表于 2026-1-8 10:09</a>
+能不能等到宇宙艾蕾的强化本</blockquote>
+虽然但是，这是艾蕾吧
+
+*****
+
+####  qixinno2  
+##### 20342#       发表于 2026-1-8 11:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">FATE终极女主角
+
+saber的冻龄承担责任+棉被
+
+凛的傲娇大小姐+家族继承人
+
+樱的悲剧身世+唯一依赖的人
+
+甚至还有伊莉雅的人体改造+姐姐系
+
+*****
+
+####  khxooo  
+##### 20343#       发表于 2026-1-8 11:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68995166&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-1-8 11:56</a>
+虽然但是，这是艾蕾吧</blockquote>
+哦，说得是艾蕾，一时没有看清楚<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 20344#       发表于 2026-1-8 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68995172&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-1-8 11:57</a>
+
+哦，说得是艾蕾，一时没有看清楚</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">楼友欧气溢出到阻碍视力了么
+
