@@ -313,3 +313,16 @@ sp爱丽丝要来了，顺便看看之前老限定怎么返场吧，蝴蝶没克
 
 五星的低级装备有用吗？是不是直接分解得了
 
+
+*****
+
+####  orz100  
+##### 672#       发表于 2026-1-8 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68997347&amp;ptid=2249235" target="_blank">toblkr 发表于 2026-1-8 17:45</a>
+五星的低级装备有用吗？是不是直接分解得了</blockquote>
+五星? 五星装备在这个游戏里很稀有的啊
+装备保留和强化可以看看中文wiki里的装备建议
+
+—— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
