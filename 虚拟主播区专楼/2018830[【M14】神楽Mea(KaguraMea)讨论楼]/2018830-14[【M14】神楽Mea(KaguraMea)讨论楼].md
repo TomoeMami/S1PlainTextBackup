@@ -3804,3 +3804,19 @@ Tank也能玩，Tank玩路霸（Roadhog）。
 
 定段翡翠3
 
+
+*****
+
+####  古战场亡魂  
+##### 20187#       发表于 2026-1-8 15:24
+
+<img src="https://img.stage1st.com/forum/202601/08/152401tkwy3wdh0fdvkdzz.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260108_152335.jpg</strong> (260.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-8 15:24 上传
+
+翡翠二 ，天梯25。好多人还没定好段
+
