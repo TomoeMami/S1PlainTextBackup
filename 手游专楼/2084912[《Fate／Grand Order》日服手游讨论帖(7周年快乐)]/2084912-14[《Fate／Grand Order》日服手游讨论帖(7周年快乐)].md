@@ -11806,3 +11806,36 @@ saber的冻龄承担责任+棉被
 
 说实话这个开头就和以前各种联动剧情差不多，感觉就是类似奏章那样的短剧情，看能不能续成主线吧？
 
+
+*****
+
+####  cenhr  
+##### 20358#       发表于 2026-1-8 17:20
+
+虽然感想迟了一个多礼拜，但终章的决战真的是全军战胜后自刎归天吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  失落之翼  
+##### 20359#       发表于 2026-1-8 17:21
+
+要我说还是应该续上现实（泛人类史）剧情，把所有型月剧情都联动上，拳打时钟塔脚踢仿徨海镇压阿特拉斯，最终达成末法时代<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 20360#       发表于 2026-1-8 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68997200&amp;ptid=2084912" target="_blank">失落之翼 发表于 2026-1-8 17:21</a>
+
+要我说还是应该续上现实（泛人类史）剧情，把所有型月剧情都联动上，拳打时钟塔脚踢仿徨海镇压阿特拉斯，最 ...</blockquote>
+一个比例说法就是主角他们成了人理打工仔，需要时就是迦勒底，不需要是就是普通人，犹如我们玩游戏，有活动就上线，没有就不上<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  quanlix  
+##### 20361#       发表于 2026-1-8 18:39
+
+把坑填填，然后一转fgo嘉年华才是正道
+
