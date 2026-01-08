@@ -39,3 +39,18 @@
 
 所以要把台词弄得再好一点就是了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Booorunestud  
+##### 213#       发表于 2026-1-8 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68993828&amp;ptid=2263973" target="_blank">みそら 发表于 2026-1-8 08:43</a>
+
+成功把右臂驳上，利克迪奥的气势立即暴增、狂增、劲增！杀杀杀杀杀！！ 他此刻的气势比他任何的时候也更强 ...</blockquote>
+[http://soredake645.blog.fc2.com/blog-category-12.html](http://soredake645.blog.fc2.com/blog-category-12.html)
+
+作者blog里面会汇总一些二创，很多人发推不发P
+
+依然不多就是
+
