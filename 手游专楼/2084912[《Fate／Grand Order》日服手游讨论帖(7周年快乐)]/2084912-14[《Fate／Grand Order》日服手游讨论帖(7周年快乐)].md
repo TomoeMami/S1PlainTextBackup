@@ -11884,3 +11884,62 @@ saber的冻龄承担责任+棉被
 
 看后续吧，也有可能是抹掉的部分被独立拿了出来，那就得一直干下去了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 20366#       发表于 2026-1-8 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68997214&amp;ptid=2084912" target="_blank">cenhr 发表于 2026-1-8 17:22</a>
+
+一个比例说法就是主角他们成了人理打工仔，需要时就是迦勒底，不需要是就是普通人，犹如我们玩游戏，有活 ...</blockquote>
+强迫劳动吧
+
+反正随叫随到，这地方和所罗门神殿一样在时空之外不受任何影响
+
+*****
+
+####  exiaexa  
+##### 20367#       发表于 2026-1-8 21:45
+
+ 本帖最后由 exiaexa 于 2026-1-8 21:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68997831&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-8 19:08</a>
+
+现在这剧情就是做梦啊.....现实里咕嗒和色茄子都是大学生....别的人也都各自踏上了不同的人生
+
+2.0终章的结 ...</blockquote>
+不用吃书啊，这次问题解决以后，再来个人自爆，比如这个冠位哈桑lily，真·一看就是来自爆的
+
+然后人理特批给大家开个后门，记忆不就留下来了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 20368#       发表于 2026-1-8 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68998567&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-8 21:45</a>
+
+不用吃书啊，这次问题解决以后，再来个人自爆，比如这个冠位哈桑lily，真·一看就是来自爆的
+
+然后人理特批 ...</blockquote>
+现在不就有记忆
+
+这和黑球一样啊
+
+离开忘记全部，叫回来就全想起来
+
+*****
+
+####  森兰丸  
+##### 20369#       发表于 2026-1-8 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68998567&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-1-8 21:45</a>
+
+不用吃书啊，这次问题解决以后，再来个人自爆，比如这个冠位哈桑lily，真·一看就是来自爆的
+
+然后人理特批 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可现在的一切包括所有人的记忆和嘉乐迪不都是兽给复原的吗....只有王哈莉莉是人理派来监督的
+
+人理有没有这个能力和权限都不好说吧
+
