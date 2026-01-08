@@ -54,3 +54,18 @@
 
 依然不多就是
 
+
+*****
+
+####  frank14  
+##### 214#       发表于 2026-1-8 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68973168&amp;ptid=2263973" target="_blank">古畑任三郎2015 发表于 2026-1-4 13:30</a>
+
+第五章结束，这个算到半程了么
+
+到目前为止剧本都挺四平八稳的，而且这个展开不知为何总让我幻视异度装甲
+
+不 ...</blockquote>
+第五章结束部分的剧情不算是来了个大的么？
+
