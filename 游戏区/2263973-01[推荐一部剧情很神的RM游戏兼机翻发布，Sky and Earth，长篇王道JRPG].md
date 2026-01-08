@@ -69,3 +69,12 @@
 不 ...</blockquote>
 第五章结束部分的剧情不算是来了个大的么？
 
+
+*****
+
+####  kyyytu  
+##### 215#       发表于 2026-1-8 22:16
+
+报个错，用的楼里大佬的ai汉化，在打阴惨刑场boss时，打到半血左右，会在boss放技能时报错卡死，试了两次都会触发
+<img src="https://p.sda1.dev/30/1d1b86087b11273c1a58528e1a2cc154/sp260108_164024yincanxingchang.png" referrerpolicy="no-referrer">
+
