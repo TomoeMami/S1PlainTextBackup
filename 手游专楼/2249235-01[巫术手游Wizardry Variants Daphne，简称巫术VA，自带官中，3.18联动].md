@@ -294,3 +294,14 @@ sp爱丽丝要来了，顺便看看之前老限定怎么返场吧，蝴蝶没克
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  orz100  
+##### 670#       发表于 2026-1-8 13:05
+
+赶在今天维护之前把四周目boss凹过去了，凹到一把少aoe，混乱只中一人的好局。面具男转脱衣僧侣是对的！
+顺便贴一下中文wiki的超牛逼攻略，看着配速来凹应该人人都能过https://wizdaphne.huijiwiki.com/wiki/%E5%A4%A7%E5%BC%82%E5%BD%A2%E6%88%88%E5%BC%97%E7%BD%97
+
+—— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
