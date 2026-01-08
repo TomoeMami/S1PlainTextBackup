@@ -337,3 +337,11 @@ sp爱丽丝要来了，顺便看看之前老限定怎么返场吧，蝴蝶没克
 装备保留和强化可以看看中文wiki里的装备建议</blockquote>
 出的是钢级的弓，武器好像没有意义，亏太多攻击力了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 674#       发表于 2026-1-8 23:40
+
+钢弓太差了肯定用不上了，哪怕冥钢武器和银武器比，光在面板上也近似于少了1.5个攻击词条
+
