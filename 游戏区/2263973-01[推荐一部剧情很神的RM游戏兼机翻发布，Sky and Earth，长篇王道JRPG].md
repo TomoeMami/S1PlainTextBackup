@@ -78,3 +78,21 @@
 报个错，用的楼里大佬的ai汉化，在打阴惨刑场boss时，打到半血左右，会在boss放技能时报错卡死，试了两次都会触发
 <img src="https://p.sda1.dev/30/1d1b86087b11273c1a58528e1a2cc154/sp260108_164024yincanxingchang.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  frank14  
+##### 216#       发表于 2026-1-9 00:03
+
+<img src="https://img.stage1st.com/forum/202601/09/000245b03006buf03ph16p.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-01-08 230800.png</strong> (252.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-9 00:02 上传
+
+这游戏的战斗虽然在我玩过的rm里算是非常朴素的，但是给敌人挂上一堆异常的感觉还真挺爽的。
+
+第七章女主被抓走，xb2的既视感哈哈哈
+
