@@ -1172,3 +1172,34 @@ anti：打不倒告辞
 
 昨天手感真的不行，连过冰带都不顺利在飞跳的那个地方不知道掉了多少次，正是因为今天能稳定过冰带才能有更多次数练塔的部分
 
+
+*****
+
+####  holofan  
+##### 11419#       发表于 2026-1-8 17:58
+
+<img src="https://img.stage1st.com/forum/202601/08/175702kcclzlvibxisnnui.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (84.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-8 17:57 上传
+
+网友神论：miko受不了现在这个网络环境和无能运营会选择毕业holo 转生的路线<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 11420#       发表于 2026-1-9 00:44
+
+<img src="https://img.stage1st.com/forum/202601/09/004338srf6mrrirxijo37e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-9 00:43 上传
+
+没屁用的处罚了现在，早半年吊死还没现在那么多事
+
