@@ -11579,3 +11579,47 @@ lxs社长发视频安抚玩家
 我悟了 等传说中的里线出完 然后打包一起加点新料 月姬Royal 在steam上堂堂登场！ ...</blockquote>
 什么阿特拉斯商法？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 20336#       发表于 2026-1-8 08:17
+
+<blockquote>岸浪白野 发表于 2026-1-7 23:50
+就是配合手游还要继续运营方便出活动的舞台，还圆了所长羁绊礼装的说法
+
+还出什么，现在鬼还盼他整3.0
+</blockquote>
+这样就关服那么fs那堆从者的钱不要了？
+
+那可是一堆新的
+
+*****
+
+####  cenhr  
+##### 20337#       发表于 2026-1-8 09:15
+
+我本来想说大概不会再有那么多孝子氪金，但想想冠呆还能霸占售卖榜前五，我就知道是想太多了，FGO还能继续爆孝子金币<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 20338#       发表于 2026-1-8 10:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能等到宇宙艾蕾的强化本
+
+<img src="https://img.stage1st.com/forum/202601/08/100752dc0p4ovnz6gakooc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (99.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-8 10:07 上传
+
+*****
+
+####  闪亮的彗星  
+##### 20339#       发表于 2026-1-8 10:23
+
+我们异闻带0真是人才济济啊
+
