@@ -29,3 +29,13 @@
 
 我就是从这个疾风怒涛的第六章开始彻底投入的
 
+
+*****
+
+####  永远的访客  
+##### 212#       发表于 2026-1-8 13:39
+
+我觉得前几章剧情也很好，女主从无可救药的乐天颠覆成其实是感情缺失又颠覆出流泪场景的过程算是old school的好故事了
+
+所以要把台词弄得再好一点就是了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
