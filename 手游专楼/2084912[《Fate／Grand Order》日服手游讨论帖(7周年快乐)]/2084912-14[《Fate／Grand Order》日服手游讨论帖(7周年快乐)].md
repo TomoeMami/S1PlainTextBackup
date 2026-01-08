@@ -11839,3 +11839,48 @@ saber的冻龄承担责任+棉被
 
 把坑填填，然后一转fgo嘉年华才是正道
 
+
+*****
+
+####  森兰丸  
+##### 20362#       发表于 2026-1-8 19:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">现在这剧情就是做梦啊.....现实里咕嗒和色茄子都是大学生....别的人也都各自踏上了不同的人生
+
+2.0终章的结局是不会变的.....解决了这次危机回到现实后这一切还是会忘光
+
+搞不好所长还是得死....现在这个所长就和终章冬木里的所长一样是特殊条件下才能存在的
+
+除非最后结局能再次吃书
+
+*****
+
+####  cenhr  
+##### 20363#       发表于 2026-1-8 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68997831&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-8 19:08</a>
+
+现在这剧情就是做梦啊.....现实里咕嗒和色茄子都是大学生....别的人也都各自踏上了不同的人生
+
+2.0终章的结 ...</blockquote>
+已经暗示主角玛修在重逢后结交，甚至玛修都知道主角家在哪儿，到过访。她只是遗憾不知道相识前主角的大学生活
+
+*****
+
+####  alucardcz  
+##### 20364#       发表于 2026-1-8 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68997831&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-1-8 19:08</a>
+
+现在这剧情就是做梦啊.....现实里咕嗒和色茄子都是大学生....别的人也都各自踏上了不同的人生
+
+2.0终章的结 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">欧多了出现了幻觉！ 都吃了多少次书了
+
+*****
+
+####  DARKGRAY  
+##### 20365#       发表于 2026-1-8 19:38
+
+看后续吧，也有可能是抹掉的部分被独立拿了出来，那就得一直干下去了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
