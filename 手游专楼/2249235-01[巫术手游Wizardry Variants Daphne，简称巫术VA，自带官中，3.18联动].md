@@ -326,3 +326,14 @@ sp爱丽丝要来了，顺便看看之前老限定怎么返场吧，蝴蝶没克
 
 —— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  toblkr  
+##### 673#       发表于 2026-1-8 22:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68998402&amp;ptid=2249235" target="_blank">orz100 发表于 2026-1-8 21:13</a>
+五星? 五星装备在这个游戏里很稀有的啊
+装备保留和强化可以看看中文wiki里的装备建议</blockquote>
+出的是钢级的弓，武器好像没有意义，亏太多攻击力了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
