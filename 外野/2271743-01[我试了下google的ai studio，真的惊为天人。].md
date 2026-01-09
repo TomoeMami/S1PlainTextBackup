@@ -387,3 +387,13 @@ gemini编程工程能力是国外御三家最弱的，反重力和Gemini  cli�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">探友推荐个国内用cladue的方法吧
 
+
+*****
+
+####  Saker_bobo  
+##### 44#       发表于 2026-1-9 18:48
+
+无能力者想写个chrome图片翻译插件 有什么办法吗？gemini有学生pro
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
