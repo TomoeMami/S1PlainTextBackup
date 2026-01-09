@@ -4082,3 +4082,11 @@ Tank也能玩，Tank玩路霸（Roadhog）。
 
 mea这野狼玩得可以啊
 
+
+*****
+
+####  古战场亡魂  
+##### 20194#       发表于 2026-1-9 14:25
+
+狼练得确实很好了，不知道下一个练的上单英雄是啥。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
