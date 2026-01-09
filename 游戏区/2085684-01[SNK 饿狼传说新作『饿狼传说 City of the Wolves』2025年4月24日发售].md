@@ -31,3 +31,14 @@ NANI</blockquote>
 
 这个比较便宜吧，什么联动都有他
 
+
+*****
+
+####  jackyhuang  
+##### 618#       发表于 2026-1-9 11:11
+
+可以打篮球吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+说起来饿狼传说有什么人原型参考北斗的吗，拳皇里倒是不少
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
