@@ -2476,3 +2476,15 @@ bug出的太小，不过据说师匠的还没修
 —— 来自 HONOR PPG-AN00, Android 16, 鹅球 v3.5.99 ...</blockquote>
 ur的不敢修吧
 
+
+*****
+
+####  无念  
+##### 3486#       发表于 2026-1-9 15:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69002454&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2026-1-9 15:44</a>
+ur的不敢修吧</blockquote>
+但是师匠那个其实是最明确的，要上了尊者ex才有加成，估计接下去要么悄无声息修掉，要么哪天池子up了上修
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
