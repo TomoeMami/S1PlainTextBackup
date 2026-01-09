@@ -66,3 +66,28 @@ terry和andy以前有一个开场特殊互动，就是掌击拳一个动作，�
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  花咲茜  
+##### 621#       发表于 2026-1-9 13:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69000730&amp;ptid=2085684" target="_blank">jackyhuang 发表于 2026-1-9 11:11</a>
+
+可以打篮球吗
+
+说起来饿狼传说有什么人原型参考北斗的吗，拳皇里倒是不少</blockquote>
+安迪和舞
+
+*****
+
+####  花咲茜  
+##### 622#       发表于 2026-1-9 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69001274&amp;ptid=2085684" target="_blank">jackyhuang 发表于 2026-1-9 12:21</a>
+
+这个我知道，还有安迪的击壁背水掌也是北斗出来的
+
+我想问的是人物外形方面的</blockquote>
+我印象里没有，至少不像哈迪伦和克隆零那么直白
+
