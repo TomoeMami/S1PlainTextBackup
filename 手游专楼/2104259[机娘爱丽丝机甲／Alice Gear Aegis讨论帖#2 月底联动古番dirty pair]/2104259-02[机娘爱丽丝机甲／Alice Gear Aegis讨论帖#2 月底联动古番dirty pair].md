@@ -73,3 +73,20 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  冰风血羽  
+##### 1814#       发表于 2026-1-9 16:38
+
+irodoriYAKIIMO 四个联动吃地瓜
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  alialex  
+##### 1815#       发表于 2026-1-9 16:39
+
+联动还是一个没出，是不是周年庆要来了，几号来着？感觉还是先别抽看下情况
+
