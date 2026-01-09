@@ -975,3 +975,27 @@ NOX为了做双面间谍或者别的什么目的，装作和0反目成仇，去�
 新的一年上司原地爆炸，不知是多少人的新年愿望
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集几个关键点的台词写的不错
 
+
+*****
+
+####  挺好的  
+##### 576#       发表于 2026-1-9 11:30
+
+<img src="https://img.stage1st.com/forum/202601/09/112928s8hccg4d4h0hrkgu.png" referrerpolicy="no-referrer">
+
+<strong>e7c1781826126ab49b175adfdc5fd11a.png</strong> (113.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-9 11:29 上传
+
+<img src="https://img.stage1st.com/forum/202601/09/112932y6i4o784bol8oizj.png" referrerpolicy="no-referrer">
+
+<strong>dac6a17fcc770b6da5d53fd6b62d68a1.png</strong> (93.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-9 11:29 上传
+
+这个蓝色的就是璃塔变的吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
