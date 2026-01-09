@@ -517,3 +517,15 @@ Appstore或者Google play订阅。 一般不会出问题
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  赤星ビスコ  
+##### 55#       发表于 2026-1-10 01:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69004321&amp;ptid=2271743" target="_blank">库德里尔 发表于 2026-1-9 21:46</a>
+这样还要在插件里加一步调llm。
+我个人感觉ocr这样轻量的需求不需要联网。</blockquote>
+插件直接ocr估计性能也有问题，而且再怎么说翻译也要接api翻译
+而且有插件 沉浸式翻译 直接可以右键翻译图片了吧
+
