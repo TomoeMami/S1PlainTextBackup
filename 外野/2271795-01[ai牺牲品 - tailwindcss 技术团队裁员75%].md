@@ -499,3 +499,33 @@ Google AI Studio is now sponsoring Tailwind CSS
 至于说这么惨吗</blockquote>
 一家人四个没了三个还是挺惨的
 
+
+*****
+
+####  薛定谔的小猫  
+##### 46#       发表于 2026-1-9 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68999961&amp;ptid=2271795" target="_blank">长生久视 发表于 2026-1-9 09:34</a>
+但程序员就一点也不焦虑</blockquote>
+你错了，程序员已经与这种
+
+“每隔半年就要过一次大过滤器，团队里10%的人莫名其妙消失不见”
+
+的情况共生至少4年了。
+
+受不了的人早就考公或者跳槽到国企的软开岗了。
+
+根据医学来讲，人的所有直观感受量度都是对数的，在被莫名其妙斩杀的预期本来就很高的情况下，提高同样的绝对值，体感量度更小。
+
+
+*****
+
+####  薛定谔的小猫  
+##### 47#       发表于 2026-1-9 10:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68999961&amp;ptid=2271795" target="_blank">长生久视 发表于 2026-1-9 09:34</a>
+但程序员就一点也不焦虑</blockquote>
+这种情况在国外更甚
+
+因为政治正确，国外互联网公司在开人的时候，更喜欢加入随机变量或者说混淆，让从外部来看大数据集看不出来明显的绩效挂钩迹象，更加增加了每半年一次的裁员的不可预见性。
+
