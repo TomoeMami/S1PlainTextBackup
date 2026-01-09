@@ -90,3 +90,14 @@ irodoriYAKIIMO 四个联动吃地瓜
 
 联动还是一个没出，是不是周年庆要来了，几号来着？感觉还是先别抽看下情况
 
+
+*****
+
+####  madcow  
+##### 1816#       发表于 2026-1-9 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69002796&amp;ptid=2104259" target="_blank">alialex 发表于 2026-1-9 16:39</a>
+
+联动还是一个没出，是不是周年庆要来了，几号来着？感觉还是先别抽看下情况 ...</blockquote>
+22吧，可以看看周年是啥再决定（？
+
