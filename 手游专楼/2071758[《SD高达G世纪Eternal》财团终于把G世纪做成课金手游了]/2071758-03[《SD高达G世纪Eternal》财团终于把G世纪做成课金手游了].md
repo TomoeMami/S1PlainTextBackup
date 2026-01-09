@@ -2451,3 +2451,28 @@ axwhQ1at-8np4ZbT3cSrs-t5.jpg
 
 水魔三杰被修了，哎，都是氪金角色，怎么就没有飞鸟的命
 
+
+*****
+
+####  无念  
+##### 3484#       发表于 2026-1-9 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69000886&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2026-1-9 11:28</a>
+水魔三杰被修了，哎，都是氪金角色，怎么就没有飞鸟的命</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bug出的太小，不过据说师匠的还没修
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  洛克萨斯  
+##### 3485#       发表于 2026-1-9 15:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69002426&amp;ptid=2071758" target="_blank">无念 发表于 2026-1-9 15:39</a>
+
+bug出的太小，不过据说师匠的还没修
+
+—— 来自 HONOR PPG-AN00, Android 16, 鹅球 v3.5.99 ...</blockquote>
+ur的不敢修吧
+
