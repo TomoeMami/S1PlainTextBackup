@@ -431,3 +431,23 @@ gemini编程工程能力是国外御三家最弱的，反重力和Gemini  cli�
 —— 来自 OPPO PKU110, A ...</blockquote>
 从openRouter的统计来看，是Kilo Code这个插件。但我没用过，不知道体验如何。<img src="https://p.sda1.dev/30/a193f166cb545cf186ba1e0bc893f0a5/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nanachi  
+##### 47#       发表于 2026-1-9 20:28
+
+如果自己不懂，到底怎么判断哪些是靠谱的哪些是ai幻觉呢
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  7do  
+##### 48#       发表于 2026-1-9 20:36
+
+Claude要手机验证，网上免费的sms服务收不到<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
