@@ -12013,3 +12013,41 @@ saber的冻龄承担责任+棉被
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想当年1.7的提妈作为兽还是逼格满满的，现在什么兽啊ORT啊再来感觉也就那样了
 
+
+*****
+
+####  岸浪白野  
+##### 20375#       发表于 2026-1-8 23:16
+
+讲道理当剧情说到兽整的地球又一片荒野的时候用那么欢快的BGM就已经不用那么认真了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20376#       发表于 2026-1-8 23:27
+
+ 本帖最后由 岸浪白野 于 2026-1-8 23:45 编辑 
+
+写玛修台词都特意写玛修不满咕哒的记录就这样没了说粗口了，他就知道大伙不满什么特意就要这样写
+
+这次还整了只兽随手一搞大伙就又能回来打工，不就是又想给大家幻想这次能不能保留记忆，全看他想不想整<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 20377#       发表于 2026-1-9 01:49
+
+代充御三家的ma实锤黑卡了啊...
+以前经常在他家充<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  乾理央  
+##### 20378#       发表于 2026-1-9 08:33
+
+这次写剧情的应该不是蘑菇吧，如果是蘑菇应该写的故弄玄虚一些，这次开局这么谐摆明就是把未来一年剧情往幻想嘉年华上靠<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过也好，把第二章砍了，日常活动啥的也能把a组拉出来溜溜了
+
