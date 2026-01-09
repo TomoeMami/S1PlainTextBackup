@@ -457,3 +457,13 @@ Google AI Studio is now sponsoring Tailwind CSS
 我是觉得程序员死得要比小画师啥的还要快，你画师还能打出古法手制的名号，有实力的还能小众定制路线。程序 ...</blockquote>
 什么赛博小罐茶<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jet.Black  
+##### 42#       发表于 2026-1-9 09:16
+
+听说总共4个人，裁了3个人
+
+至于说这么惨吗
+
