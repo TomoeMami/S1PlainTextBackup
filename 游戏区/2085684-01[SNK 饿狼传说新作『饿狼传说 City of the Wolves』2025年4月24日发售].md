@@ -53,3 +53,16 @@ NANI</blockquote>
 说起来饿狼传说有什么人原型参考北斗的吗，拳皇里倒是不少</blockquote>
 terry和andy以前有一个开场特殊互动，就是掌击拳一个动作，那个就是neta的北斗归天式，大爷和老四决战前开场做的动作。
 
+
+*****
+
+####  jackyhuang  
+##### 620#       发表于 2026-1-9 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69001161&amp;ptid=2085684" target="_blank">syndrome2032 发表于 2026-1-9 12:04</a>
+terry和andy以前有一个开场特殊互动，就是掌击拳一个动作，那个就是neta的北斗归天式，大爷和老四决战前 ...</blockquote>
+这个我知道，还有安迪的击壁背水掌也是北斗出来的
+我想问的是人物外形方面的
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
