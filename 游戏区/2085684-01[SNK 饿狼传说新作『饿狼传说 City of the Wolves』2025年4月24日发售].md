@@ -128,3 +128,14 @@ terry和andy以前有一个开场特殊互动，就是掌击拳一个动作，�
 
 snk的脑回路真是让人猜不透啊……
 
+
+*****
+
+####  王不动  
+##### 627#       发表于 2026-1-9 15:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69001776&amp;ptid=2085684" target="_blank">花咲茜 发表于 2026-1-9 13:56</a>
+
+安迪和舞</blockquote>
+舞有吗？安迪倒是看起来有点雷伊的意思
+
