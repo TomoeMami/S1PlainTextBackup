@@ -127,3 +127,12 @@ irodoriYAKIIMO 四个联动吃地瓜
 
 <img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">看到新联动的很可爱想捡回来玩了，现在是能pc上玩了吗
 
+
+*****
+
+####  madcow  
+##### 1820#       发表于 2026-1-9 21:01
+
+PC要下DMM客户端
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盖亚漆联动就两天还三天了，狗屋那堆倒还有阵子
+
