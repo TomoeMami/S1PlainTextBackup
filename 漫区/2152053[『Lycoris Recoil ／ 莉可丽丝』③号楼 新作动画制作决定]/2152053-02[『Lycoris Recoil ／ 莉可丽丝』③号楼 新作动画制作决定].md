@@ -69,3 +69,11 @@ Muse 除了邀请两位声优之外，还额外邀请了动画制作人之一的
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  osore  
+##### 2432#       发表于 2026-1-9 21:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧本不就是新建文件夹
+

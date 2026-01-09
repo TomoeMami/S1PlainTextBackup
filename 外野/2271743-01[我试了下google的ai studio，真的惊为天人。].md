@@ -483,3 +483,24 @@ Claude要手机验证，网上免费的sms服务收不到<img src="https://stati
 探友推荐个国内用cladue的方法吧</blockquote>
 Appstore或者Google play订阅。 一般不会出问题
 
+
+*****
+
+####  johnkamsar  
+##### 52#       发表于 2026-1-9 21:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">前段时间用它来开发了个桌游确实牛逼，全部自动化完成，但后面实操后发现要调整东西有点多，现在回去改需求了。
+
+
+*****
+
+####  碧池团团子  
+##### 53#       发表于 2026-1-9 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69003950&amp;ptid=2271743" target="_blank">Nanachi 发表于 2026-1-9 09:28</a>
+
+如果自己不懂，到底怎么判断哪些是靠谱的哪些是ai幻觉呢
+
+论坛助手,iPhone</blockquote>
+让ai写测试案例
+
