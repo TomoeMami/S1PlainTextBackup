@@ -157,3 +157,13 @@ snk的脑回路真是让人猜不透啊……
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  琴酒  
+##### 630#       发表于 2026-1-9 23:20
+
+反正今年evojp也有北斗神拳<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+又可以看打篮球了
+
