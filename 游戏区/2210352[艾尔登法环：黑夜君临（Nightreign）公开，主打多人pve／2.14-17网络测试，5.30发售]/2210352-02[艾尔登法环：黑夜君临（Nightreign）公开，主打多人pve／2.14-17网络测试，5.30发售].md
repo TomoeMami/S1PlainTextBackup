@@ -2824,3 +2824,16 @@ dlc这个毒村的锻造炉在哪点火啊，捡了黄金大弓想换个战技�
 不过这个随机改战技感觉性价比太低了，对不起我浪费的时间 ...</blockquote>
 点火一般就在鼎旁边
 
+
+*****
+
+####  dydqydz  
+##### 2054#       发表于 2026-1-9 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69001419&amp;ptid=2210352" target="_blank">hugosol 发表于 2026-1-9 12:49</a>
+
+有些地图点火好像是在房子里，还挺难找的
+
+不过这个随机改战技感觉性价比太低了，对不起我浪费的时间 ...</blockquote>
+是有限，就铁眼这种基础弓而且弓战技池子本来就少的，改出个箭雨或连续射击那就赚了
+
