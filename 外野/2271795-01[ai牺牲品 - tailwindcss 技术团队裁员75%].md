@@ -487,3 +487,15 @@ Google AI Studio is now sponsoring Tailwind CSS
 我是觉得程序员死得要比小画师啥的还要快，你画师还能打出古法手制的名号，有实力的还能小众定制路线。程序 ...</blockquote>
 但程序员就一点也不焦虑
 
+
+*****
+
+####  Unbiquitous  
+##### 45#       发表于 2026-1-9 10:00
+
+<blockquote>Jet.Black 发表于 2026-1-9 09:16
+听说总共4个人，裁了3个人
+
+至于说这么惨吗</blockquote>
+一家人四个没了三个还是挺惨的
+
