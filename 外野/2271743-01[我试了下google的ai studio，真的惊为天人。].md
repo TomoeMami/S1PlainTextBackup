@@ -461,3 +461,25 @@ Claude要手机验证，网上免费的sms服务收不到<img src="https://stati
 
 想继续白嫖<img src="https://static.stage1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mintslime  
+##### 50#       发表于 2026-1-9 20:57
+
+<blockquote>库德里尔 发表于 2026-1-9 20:09
+也就是说你想要：
+
+- 做一个浏览器插件</blockquote>
+中间ocr那几步现在来说都用不着了，gemini3.0pro自己的ocr和翻译能力都非常强，直接图片丢给gemini就行
+
+
+*****
+
+####  zypyong  
+##### 51#       发表于 2026-1-9 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69003455&amp;ptid=2271743" target="_blank">zhangyunhai210 发表于 2026-1-9 18:42</a>
+探友推荐个国内用cladue的方法吧</blockquote>
+Appstore或者Google play订阅。 一般不会出问题
+
