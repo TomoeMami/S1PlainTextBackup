@@ -504,3 +504,16 @@ Appstore或者Google play订阅。 一般不会出问题
 论坛助手,iPhone</blockquote>
 让ai写测试案例
 
+
+*****
+
+####  库德里尔  
+##### 54#       发表于 2026-1-9 21:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69004120&amp;ptid=2271743" target="_blank">mintslime 发表于 2026-1-9 20:57</a>
+中间ocr那几步现在来说都用不着了，gemini3.0pro自己的ocr和翻译能力都非常强，直接图片丢给gemini就行 ...</blockquote>
+这样还要在插件里加一步调llm。
+我个人感觉ocr这样轻量的需求不需要联网。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
