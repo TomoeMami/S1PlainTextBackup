@@ -372,3 +372,18 @@ gemini编程工程能力是国外御三家最弱的，反重力和Gemini  cli�
 
 最强的肯定是CodeX CLI
 
+
+*****
+
+####  冤枉呐  
+##### 42#       发表于 2026-1-9 18:39
+
+求分享，这个，带ai翻译总结功能的论文搜索器，的程序
+
+*****
+
+####  zhangyunhai210  
+##### 43#       发表于 2026-1-9 18:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">探友推荐个国内用cladue的方法吧
+
