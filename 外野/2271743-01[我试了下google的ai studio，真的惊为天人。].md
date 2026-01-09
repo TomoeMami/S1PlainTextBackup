@@ -451,3 +451,13 @@ Claude要手机验证，网上免费的sms服务收不到<img src="https://stati
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nnknnk  
+##### 49#       发表于 2026-1-9 20:52
+
+最近Gemini的免费配额有收紧吗,用到提醒没配额了
+
+想继续白嫖<img src="https://static.stage1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
