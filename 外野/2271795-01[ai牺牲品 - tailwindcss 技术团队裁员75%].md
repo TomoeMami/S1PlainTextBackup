@@ -467,3 +467,23 @@ Google AI Studio is now sponsoring Tailwind CSS
 
 至于说这么惨吗
 
+
+*****
+
+####  unlsycn  
+##### 43#       发表于 2026-1-9 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68996601&amp;ptid=2271795" target="_blank">大金刚剑桥鼓掌 发表于 2026-1-8 16:04</a>
+很多问答不是代码，而是诸如 报xxx错误是要在设置里的某某某选项要勾上之类的 ...</blockquote>
+计算机世界里没有魔法..
+
+
+*****
+
+####  长生久视  
+##### 44#       发表于 2026-1-9 09:34
+
+<blockquote>黑卷轴陶德传 发表于 2026-1-8 15:20
+我是觉得程序员死得要比小画师啥的还要快，你画师还能打出古法手制的名号，有实力的还能小众定制路线。程序 ...</blockquote>
+但程序员就一点也不焦虑
+
