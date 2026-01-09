@@ -397,3 +397,25 @@ gemini编程工程能力是国外御三家最弱的，反重力和Gemini  cli�
 
 —— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  库德里尔  
+##### 45#       发表于 2026-1-9 20:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69003476&amp;ptid=2271743" target="_blank">Saker_bobo 发表于 2026-1-9 18:48</a>
+无能力者想写个chrome图片翻译插件 有什么办法吗？gemini有学生pro
+
+—— 来自 OnePlus PKR110, Android 16 ...</blockquote>
+也就是说你想要：
+
+- 做一个浏览器插件
+- 这个插件首先支持选择图片或者网页截图
+- 然后用ocr识别出文字的内容
+- 最后支持弹窗显示ocr结果，可以选择文字并复制
+- 然后打包成chrome插件的格式，本地安装
+
+现在你可以拿着这个大纲去问gemini每一步都该怎么做了，比如截图、ocr在浏览器环境怎么上。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
