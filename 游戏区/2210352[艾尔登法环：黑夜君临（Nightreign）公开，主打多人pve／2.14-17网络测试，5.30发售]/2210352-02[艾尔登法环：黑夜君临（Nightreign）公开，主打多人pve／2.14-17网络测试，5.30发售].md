@@ -2787,3 +2787,27 @@ DLC后我就基本没见过这个词条了，包括山羊局，但是感觉王�
 
 甚至镰刀池都可以不改，体感改了镰刀池5，6把才出一次光环镰刀，多的一个深夜槽位堆提升血量上限或者双杀敌回大可以更爽
 
+
+*****
+
+####  ohi.02  
+##### 2051#       发表于 2026-1-8 17:51
+
+dlc这个毒村的锻造炉在哪点火啊，捡了黄金大弓想换个战技冒着雨逛了几圈就是没看到，气死我了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  hugosol  
+##### 2052#       发表于 2026-1-9 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68997390&amp;ptid=2210352" target="_blank">ohi.02 发表于 2026-1-8 17:51</a>
+
+dlc这个毒村的锻造炉在哪点火啊，捡了黄金大弓想换个战技冒着雨逛了几圈就是没看到，气死我了
+
+—— 来自 S ...</blockquote>
+有些地图点火好像是在房子里，还挺难找的
+
+不过这个随机改战技感觉性价比太低了，对不起我浪费的时间<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
