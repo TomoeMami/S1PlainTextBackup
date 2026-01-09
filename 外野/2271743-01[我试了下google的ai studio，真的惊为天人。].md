@@ -419,3 +419,15 @@ gemini编程工程能力是国外御三家最弱的，反重力和Gemini  cli�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  单流灯塔  
+##### 46#       发表于 2026-1-9 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69001305&amp;ptid=2271743" target="_blank">fat 发表于 2026-1-9 12:25</a>
+目前vscode做ide，写杂七杂八的小破玩意，最好用的方案是啥？集成Gemini  cli吗
+
+—— 来自 OPPO PKU110, A ...</blockquote>
+从openRouter的统计来看，是Kilo Code这个插件。但我没用过，不知道体验如何。<img src="https://p.sda1.dev/30/a193f166cb545cf186ba1e0bc893f0a5/image.jpg" referrerpolicy="no-referrer">
+
