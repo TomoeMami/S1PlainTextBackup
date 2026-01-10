@@ -24,3 +24,13 @@
 <img src="https://p.sda1.dev/30/253e386180cf11c7fb47eee2586b0506/20260110_224343.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/30/f97ccf6e196f46bb948e29cede54e243/20260110_224354.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Totokei  
+##### 7592#       发表于 2026-1-10 23:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">看了剧场2，本来就很路人粉动画爱姐的现在更喜欢了
+
+就是感觉中间的大剧情展开有点抽象，等熟肉出了再看一次
+
