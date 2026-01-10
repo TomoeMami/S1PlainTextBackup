@@ -4816,3 +4816,11 @@ Disc4：第11～13話
 
 这首比泽野以前的公式歌听上去没有那么公式
 
+
+*****
+
+####  大耳兽  
+##### 462#       发表于 2026-1-11 00:45
+
+fgo2.5大概率是要和fsf联动的<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，不知道会是谁来当这个联动角色。
+
