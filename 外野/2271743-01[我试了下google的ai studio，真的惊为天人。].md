@@ -540,3 +540,13 @@ Appstore或者Google play订阅。 一般不会出问题
 他能不能接入vscode</blockquote>
 VSCODE自带的copilot也已经可以了
 
+
+*****
+
+####  华发夜眼[CN]  
+##### 57#       发表于 2026-1-10 09:03
+
+code gemini确实一般吧，但是notebook lm+gemini整理笔记真的太强了，谷歌这一套完全打通后不敢想象有多厉害
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
