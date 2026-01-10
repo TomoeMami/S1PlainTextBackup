@@ -301,3 +301,14 @@ JAMP的联动版权费得做手游的才能给
 现在流行大乱斗吗？</blockquote>
 欧美最火那些竞技网游好多不都是联动大乱斗
 
+
+*****
+
+####  metalyuuki  
+##### 639#       发表于 2026-1-10 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69006066&amp;ptid=2085684" target="_blank">hello0607 发表于 2026-1-10 12:33</a>
+欧美最火那些竞技网游好多不都是联动大乱斗</blockquote>
+泛用户大dau产品当然可以这么搞，但狼城基本盘是啥，能一样吗？
+搞这些吸引路人的流量，连c罗和dj都没效果，难道北斗就有用了？
+
