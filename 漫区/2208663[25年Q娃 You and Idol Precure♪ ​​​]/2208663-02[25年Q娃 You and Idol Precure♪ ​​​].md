@@ -307,3 +307,20 @@ Q娃现在连TV日常都敷衍，我是不信它会弄这个
 
 今年的常驻编剧阵里也就井上亚树子和山田由香写得比较出彩，监督戏多，系构开摆，搞成现在这副样子也就不奇怪了
 
+
+*****
+
+####  経緯  
+##### 1534#       发表于 2026-1-9 17:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">上田华子终于又做了一集分镜
+
+今年的常驻编剧阵里也就井上亚树子和山田由香写得比较出彩，监督戏多，系构开摆，搞成现在这副样子也就不奇怪了
+
+*****
+
+####  codezwei  
+##### 1535#       发表于 2026-1-10 08:47
+
+51话还行，再续续<img src="https://static.stage1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
