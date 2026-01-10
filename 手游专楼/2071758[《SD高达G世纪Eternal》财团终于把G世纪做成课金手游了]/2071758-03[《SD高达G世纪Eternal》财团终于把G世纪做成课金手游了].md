@@ -2532,3 +2532,13 @@ ur的不敢修吧</blockquote>
 —— 来自 Sony XQ-AT72, An ...</blockquote>
 谢谢<img src="https://static.stage1st.com/image/smiley/carton2017/432.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acg_gyanc  
+##### 3490#       发表于 2026-1-11 01:37
+
+终于把目前的ex和成就全都做了，除了因为没有sl而使得命中率的问题被放大了以外，感觉永恒之路的设计还是不错的，最新的种命ex甚至还有中立命运这种花活，整体难度也没有ex6和ex8命中地狱那么恶心，好评
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
