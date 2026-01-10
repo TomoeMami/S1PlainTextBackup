@@ -529,3 +529,14 @@ Appstore或者Google play订阅。 一般不会出问题
 插件直接ocr估计性能也有问题，而且再怎么说翻译也要接api翻译
 而且有插件 沉浸式翻译 直接可以右键翻译图片了吧
 
+
+*****
+
+####  widder  
+##### 56#       发表于 2026-1-10 08:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68992900&amp;ptid=2271743" target="_blank">文字文字 发表于 2026-1-7 22:58</a>
+
+他能不能接入vscode</blockquote>
+VSCODE自带的copilot也已经可以了
+
