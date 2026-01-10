@@ -4843,3 +4843,16 @@ ED：[https://youtu.be/P7ZcQSEP6PU](https://youtu.be/P7ZcQSEP6PU)
 
 —— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  黑上シグマ  
+##### 465#       发表于 2026-1-11 01:15
+
+<blockquote>引用第459楼Yugao于2026-01-11 00:06发表的  :
+
+按照成田的能力，这本书恐怕完结不了了</blockquote>
+好像就差最后一本了的样子
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
