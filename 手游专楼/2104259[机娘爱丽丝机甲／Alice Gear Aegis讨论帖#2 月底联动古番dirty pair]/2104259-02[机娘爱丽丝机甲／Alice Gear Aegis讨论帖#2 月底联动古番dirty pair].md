@@ -206,3 +206,16 @@ PC要下DMM客户端
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要是不知道这么久没玩了会不会加了什么新系统。之前玩的时候还是认真玩了下的，像一些角色的目押还是了解的
 
+
+*****
+
+####  江戸前ルナ  
+##### 1827#         楼主| 发表于 2026-1-10 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69007664&amp;ptid=2104259" target="_blank">イクイノックス 发表于 2026-1-10 20:14</a>
+
+主要是不知道这么久没玩了会不会加了什么新系统。之前玩的时候还是认真玩了下的，像一些角色的目押还是了解 ...</blockquote>
+其实新东西就几个
+
+天赋盘子，link系统，调查V2
+
