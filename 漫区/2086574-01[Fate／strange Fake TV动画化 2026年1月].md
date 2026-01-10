@@ -4762,3 +4762,25 @@ Disc4：第11～13話
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  岸浪白野  
+##### 457#       发表于 2026-1-10 21:33
+
+ 本帖最后由 岸浪白野 于 2026-1-10 21:37 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69007649&amp;ptid=2086574" target="_blank">lpzhg 发表于 2026-1-10 20:10</a>
+
+嘉年华么，又不是没见过
+
+—— 来自 OnePlus PJZ110, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+还是要说下其实是把森井给第二卷的贺图搬上去动画做的ED<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202601/10/213742fj39fjmfsq0qjeqz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.29 MB, 下载次数: 0)
+
+下载附件
+
+2026-1-10 21:37 上传
+
