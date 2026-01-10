@@ -2488,3 +2488,21 @@ ur的不敢修吧</blockquote>
 
 —— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  大十字紅朔  
+##### 3487#       发表于 2026-1-10 18:23
+
+这个有人打吗，我第二关就打不过（）
+
+没找到攻略
+
+<img src="https://img.stage1st.com/forum/202601/10/182330xzsqewzqw78jqek4.jpg" referrerpolicy="no-referrer">
+
+<strong>XU[PM1AXTQM1_K5JR%~KYFH.jpg</strong> (192.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-10 18:23 上传
+
