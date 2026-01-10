@@ -4792,3 +4792,11 @@ Disc4：第11～13話
 
 意外的没啥人讨论<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古怪山庄士大夫  
+##### 459#       发表于 2026-1-10 23:17
+
+每年都会有的泽野摸鱼区，感觉之前那首更抓耳一点
+
