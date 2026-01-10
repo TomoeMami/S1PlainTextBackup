@@ -574,3 +574,11 @@ code gemini确实一般吧，但是notebook lm+gemini整理笔记真的太强了
 —— 来自 OnePlus PKR110, Android 16 ...</blockquote>
 要么一句一句写一句一句问，要么下个cursor蹭个14天免费吧，不过我怎么感觉类似功能应该要有了呢
 
+
+*****
+
+####  havoc_cc  
+##### 60#       发表于 2026-1-10 10:09
+
+问个弱弱问题，怎么做到前端用gemini后端用opus？我用antigravity的话，有pro会员
+
