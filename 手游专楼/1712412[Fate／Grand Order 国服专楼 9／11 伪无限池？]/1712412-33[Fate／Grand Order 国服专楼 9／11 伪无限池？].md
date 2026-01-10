@@ -55,3 +55,16 @@
 
 —— 来自 Xiaomi 2211133C, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  无事忙  
+##### 47697#       发表于 2026-1-10 19:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69007336&amp;ptid=1712412" target="_blank">khxooo 发表于 2026-1-10 18:48</a>
+
+那就别买，就如你说的，觉得自己被蘑菇刷了两次，现在买了福袋估计以后你会觉得自己就是个凯子。 ...</blockquote>
+有道理。
+
+顺便回楼上两位，没有付费石了，买就是花一百元
+
