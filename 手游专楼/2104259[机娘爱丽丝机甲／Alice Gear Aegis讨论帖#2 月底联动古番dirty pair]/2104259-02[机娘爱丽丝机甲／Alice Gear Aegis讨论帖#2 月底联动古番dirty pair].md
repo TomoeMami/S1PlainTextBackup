@@ -185,3 +185,14 @@ PC要下DMM客户端
 
 2026-1-10 19:15 上传
 
+
+*****
+
+####  江戸前ルナ  
+##### 1825#         楼主| 发表于 2026-1-10 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69007434&amp;ptid=2104259" target="_blank">madcow 发表于 2026-1-10 19:15</a>
+
+只要不打高难不是只要点点点对面就爆炸了</blockquote>
+然而调查V2，操作不够强只能多打几个降级点啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
