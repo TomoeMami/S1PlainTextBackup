@@ -136,3 +136,16 @@ irodoriYAKIIMO 四个联动吃地瓜
 PC要下DMM客户端
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盖亚漆联动就两天还三天了，狗屋那堆倒还有阵子
 
+
+*****
+
+####  イクイノックス  
+##### 1821#       发表于 2026-1-10 12:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69004136&amp;ptid=2104259" target="_blank">madcow 发表于 2026-1-9 21:01</a>
+
+PC要下DMM客户端
+
+盖亚漆联动就两天还三天了，狗屋那堆倒还有阵子</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">已严肃氪金抽取，现在有新的入坑攻略吗？网上找了下都好像都挺旧的了，还有PC上玩有什么操作设置要改一下的吗？
+
