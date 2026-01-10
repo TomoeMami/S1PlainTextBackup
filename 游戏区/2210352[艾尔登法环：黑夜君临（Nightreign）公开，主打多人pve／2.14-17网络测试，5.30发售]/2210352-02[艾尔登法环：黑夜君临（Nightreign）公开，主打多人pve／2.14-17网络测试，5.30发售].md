@@ -2851,3 +2851,34 @@ dlc这个毒村的锻造炉在哪点火啊，捡了黄金大弓想换个战技�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ohi.02  
+##### 2056#       发表于 2026-1-9 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69001419&amp;ptid=2210352" target="_blank">hugosol 发表于 2026-1-9 12:49</a>
+有些地图点火好像是在房子里，还挺难找的
+
+不过这个随机改战技感觉性价比太低了，对不起我浪费的时间 ...</blockquote>
+放在房子里也太阴间了，难怪我逛了一圈都没找到。大弓只有两个战技，可以说改战技就是给大弓准备的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Steel.Haze  
+##### 2057#       发表于 2026-1-10 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68979099&amp;ptid=2210352" target="_blank">petitlui 发表于 2026-1-5 15:14</a>
+
+深夜除非城清完了圈又刷在原地否则我想不到清塔的理由…………打得慢球又少还没有红武，城产球效率高多了 ...</blockquote>
+深夜模式塔的效率就更低了，城里不确定熟练的红皮小兵和红皮中怪对第二天进城而言都是很好的经验和好球来源。塔里面收益几乎和非深夜一个德性，运气不好碰到坑的这局就沉了。
+
+*****
+
+####  Steel.Haze  
+##### 2058#       发表于 2026-1-10 11:55
+
+大空洞的难点其实是在于，第一天怎么能很好的刷红皮野Boss，顺便还要规划好路线。
+
