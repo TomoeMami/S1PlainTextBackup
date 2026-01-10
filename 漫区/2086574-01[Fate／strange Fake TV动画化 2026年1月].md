@@ -4750,3 +4750,15 @@ Disc4：第11～13話
 
 这ed 算不算另一个踹死米<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lpzhg  
+##### 456#       发表于 2026-1-10 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69003549&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-1-9 19:03</a>
+非常欢乐</blockquote>
+嘉年华么，又不是没见过<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

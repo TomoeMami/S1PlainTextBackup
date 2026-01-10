@@ -196,3 +196,13 @@ PC要下DMM客户端
 只要不打高难不是只要点点点对面就爆炸了</blockquote>
 然而调查V2，操作不够强只能多打几个降级点啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  イクイノックス  
+##### 1826#       发表于 2026-1-10 20:14
+
+ 本帖最后由 イクイノックス 于 2026-1-10 20:16 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要是不知道这么久没玩了会不会加了什么新系统。之前玩的时候还是认真玩了下的，像一些角色的目押还是了解的
+
