@@ -12080,3 +12080,43 @@ saber的冻龄承担责任+棉被
 
 就我个人观感而言，这个后日谈给我的感觉与其说是后日谈倒更像是通关档，时间点退回到之前，终章里退场的角色也回归了（部分），解锁了隐藏迷宫跟隐藏角色，不同就是最终战不能再打一遍，也谈不上填了什么坑 相比当初终章的结尾 现在这样一种状态反而给了我一种fgo主线确实可能结束了的感受 后面都是追加dlc了
 
+
+*****
+
+####  高木なつめ  
+##### 20383#       发表于 2026-1-9 16:28
+
+越来越想抽玛丽斯了能不能实装给我抽啊这个臭小鬼太可爱了
+
+*****
+
+####  岸浪白野  
+##### 20384#       发表于 2026-1-10 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68965764&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2026-1-2 21:25</a>
+反正我这次1290石冠位呆只能3宝</blockquote>
+还是决定把冠呆最后2宝补了，结果最后1宝直接1井保底花了1050石，这次2340石5宝倒是我10年来第一次这么非<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+顺便拉个120
+<img src="https://p.sda1.dev/30/d2c34ee0ff3af215a1a21d84f73feb34/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/978dc0b3e831ef0f6b29cf5ca8a20038/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 20385#       发表于 2026-1-10 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69006567&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2026-1-10 14:58</a>
+
+还是决定把冠呆最后2宝补了，结果最后1宝直接1井保底花了1050石，这次2340石5宝倒是我10年来第一次这么非 ...</blockquote>
+原来是个养服大佬，真是羡慕了
+
+*****
+
+####  岸浪白野  
+##### 20386#       发表于 2026-1-10 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69007069&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-1-10 17:20</a>
+原来是个养服大佬，真是羡慕了</blockquote>
+楼友说笑了，单纯之前呆毛拉满了纠结着这个也拉满，还被朋友欧气刺激了，反正也算是10周年2个周年从者都拉满了
+而且现在冠呆其实就是当个拐<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

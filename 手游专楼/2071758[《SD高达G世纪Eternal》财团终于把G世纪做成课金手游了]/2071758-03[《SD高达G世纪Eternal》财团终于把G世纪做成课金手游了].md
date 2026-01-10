@@ -2506,3 +2506,29 @@ ur的不敢修吧</blockquote>
 
 2026-1-10 18:23 上传
 
+
+*****
+
+####  jackyhuang  
+##### 3488#       发表于 2026-1-10 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69007255&amp;ptid=2071758" target="_blank">大十字紅朔 发表于 2026-1-10 18:23</a>
+这个有人打吗，我第二关就打不过（）
+
+没找到攻略</blockquote>
+【[SD高达G世纪永恒]来自教官的考验1-5-哔哩哔哩】 https://b23.tv/8q5fYAl
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  大十字紅朔  
+##### 3489#       发表于 2026-1-10 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69007286&amp;ptid=2071758" target="_blank">jackyhuang 发表于 2026-1-10 18:33</a>
+
+【[SD高达G世纪永恒]来自教官的考验1-5-哔哩哔哩】 https://b23.tv/8q5fYAl
+
+—— 来自 Sony XQ-AT72, An ...</blockquote>
+谢谢<img src="https://static.stage1st.com/image/smiley/carton2017/432.png" referrerpolicy="no-referrer">
+
