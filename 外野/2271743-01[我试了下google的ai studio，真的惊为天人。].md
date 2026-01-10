@@ -562,3 +562,15 @@ code gemini确实一般吧，但是notebook lm+gemini整理笔记真的太强了
 
 —— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  TiiTiiLL  
+##### 59#       发表于 2026-1-10 09:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69003476&amp;ptid=2271743" target="_blank">Saker_bobo 发表于 2026-1-9 18:48</a>
+无能力者想写个chrome图片翻译插件 有什么办法吗？gemini有学生pro
+
+—— 来自 OnePlus PKR110, Android 16 ...</blockquote>
+要么一句一句写一句一句问，要么下个cursor蹭个14天免费吧，不过我怎么感觉类似功能应该要有了呢
+
