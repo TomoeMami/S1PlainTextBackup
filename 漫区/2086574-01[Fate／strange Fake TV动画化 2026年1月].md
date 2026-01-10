@@ -4824,3 +4824,22 @@ Disc4：第11～13話
 
 fgo2.5大概率是要和fsf联动的<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，不知道会是谁来当这个联动角色。
 
+
+*****
+
+####  Piano-Forest  
+##### 463#         楼主| 发表于 2026-1-11 01:03
+
+OP：[https://youtu.be/tcC9g9dlv58](https://youtu.be/tcC9g9dlv58)
+
+ED：[https://youtu.be/P7ZcQSEP6PU](https://youtu.be/P7ZcQSEP6PU)
+
+*****
+
+####  暗黑能乐  
+##### 464#       发表于 2026-1-11 01:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉op不太行啊，最后的咖啡笑死。这死徒感觉像一方通行+夜神月
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
