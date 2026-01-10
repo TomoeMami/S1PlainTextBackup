@@ -40,3 +40,18 @@
 本来的打算：买最好的那个，但是我已经学姐2月披2提妈3了，所以 ...</blockquote>
 感觉本来有付费石抽了还行，还得花钱就算了，已经对lxs没有信任了
 
+
+*****
+
+####  marxel  
+##### 47696#       发表于 2026-1-10 19:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69007296&amp;ptid=1712412" target="_blank">无事忙 发表于 2026-1-10 18:35</a>
+各位帮忙参谋参谋现在这个福袋还买不买呢？
+
+本来的打算：买最好的那个，但是我已经学姐2月披2提妈3了，所以 ...</blockquote>
+我拿存货买了个这个，学姐4宝了，另一个没买
+感觉真没必要花钱了
+
+—— 来自 Xiaomi 2211133C, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
