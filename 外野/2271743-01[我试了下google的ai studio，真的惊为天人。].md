@@ -550,3 +550,15 @@ code gemini确实一般吧，但是notebook lm+gemini整理笔记真的太强了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  fat  
+##### 58#       发表于 2026-1-10 09:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69003398&amp;ptid=2271743" target="_blank">赤星ビスコ 发表于 2026-1-9 18:32</a>
+在vscode的terminal里用claude code</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">搞来搞去Gemini 还是不如claude 是吗
+
+—— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
