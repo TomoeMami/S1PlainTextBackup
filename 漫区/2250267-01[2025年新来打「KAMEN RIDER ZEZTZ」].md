@@ -1131,3 +1131,15 @@ NOX为了做双面间谍或者别的什么目的，装作和0反目成仇，去�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">暗影的机制设计很有趣啊，zzz目前战斗创意都挺好的
 
+
+*****
+
+####  暗黑能乐  
+##### 588#       发表于 2026-1-11 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69010054&amp;ptid=2250267" target="_blank">洛克萨斯 发表于 2026-1-11 13:25</a>
+暗影的机制设计很有趣啊，zzz目前战斗创意都挺好的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉究极强力，鹿丸的影子模仿术，这集甚至连暗影剑都没掏就压着等离子打。。
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
