@@ -5553,3 +5553,11 @@ fsf小说我看到苍白骑士下线就没看了，印象中杰斯塔是个很�
 
 变成周更可太好了，很期待啊
 
+
+*****
+
+####  御坂MKII  
+##### 527#       发表于 2026-1-11 23:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毕竟 菌类的监修就是放屁
+
