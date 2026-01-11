@@ -5151,3 +5151,11 @@ F/Z里闪闪秒杀哈桑，我拳打一群哈桑，这都是杀阶的正确强�
 
 可惜太狂信了，不然学影灯笼那样也行
 
+
+*****
+
+####  sosgame67  
+##### 493#       发表于 2026-1-11 17:44
+
+小说最终卷我记得跳了不止两年吧，fgo2.0都被熬过去了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
