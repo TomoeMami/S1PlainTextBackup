@@ -5111,3 +5111,11 @@ F/Z里闪闪秒杀哈桑，我拳打一群哈桑，这都是杀阶的正确强�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这片的女角色脸画的也太好看了，作画监督很懂啊
 
+
+*****
+
+####  洛克萨斯  
+##### 489#       发表于 2026-1-11 14:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暗杀者在一般杯战只能召唤有哈桑词缀的，这一作到时候还有一个哈桑
+
