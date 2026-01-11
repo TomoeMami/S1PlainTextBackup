@@ -4864,3 +4864,11 @@ ED：[https://youtu.be/P7ZcQSEP6PU](https://youtu.be/P7ZcQSEP6PU)
 
 贤王看多了，一开头赌场的臭屁闪还有点怀念
 
+
+*****
+
+####  Yugao  
+##### 467#       发表于 2026-1-11 09:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">话说回来，这个故事的世界线是怎么一回事来着，怎么又有英灵座又有二十七祖，那当年朱月有没有被彻底肘死
+
