@@ -2938,3 +2938,12 @@ dlc这个毒村的锻造炉在哪点火啊，捡了黄金大弓想换个战技�
 
 大盾能用的也就俩，突进冲击和颜面盾的持续喷火，其他都不太行
 
+
+*****
+
+####  盐星  
+##### 2065#       发表于 2026-1-12 01:32
+
+进深夜之后感觉自己的区力直线上升，勉强在地上拱进深夜2之后已经完全区一样了<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">，被各种怪碰一下就去世，关游戏前最后一把的大空洞种子地图上所有小boss都是红皮版本，三个人转了一大圈水晶开完愣是没找到软柿子捏。
+这游戏是得会处理所有招式能无伤各种boss了才有资格进深夜吗，蹭一下就躺几个人体验太差了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
