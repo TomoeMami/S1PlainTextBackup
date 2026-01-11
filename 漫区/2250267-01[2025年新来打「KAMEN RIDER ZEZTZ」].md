@@ -1033,3 +1033,41 @@ NOX为了做双面间谍或者别的什么目的，装作和0反目成仇，去�
 
 刚看完第10集，感觉本作皮套戏完全没记忆点啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其他部分倒挺好看的
 
+
+*****
+
+####  挺好的  
+##### 581#       发表于 2026-1-11 09:03
+
+【情报解禁】
+
+朝日电视台《假面骑士ZZZ》
+
+第18话中将以“成华高中时期的挚友
+
+——宫本红霸”的身份登场演出。
+
+能够再次参与周日早间档的节目，实在欣喜不已！
+
+各位，请期待下周的播出吧🌟
+
+这次会好好露脸哦☺️笑
+
+【转自:演员 平川结月X推文】
+
+<img src="https://img.stage1st.com/forum/202601/11/090307opdnp540oxzomxjw.jpg" referrerpolicy="no-referrer">
+
+<strong>8e1652dd97e769d63c3ad37e2481ae3b_720.jpg</strong> (187.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-11 09:03 上传
+
+<img src="https://img.stage1st.com/forum/202601/11/090314d69x3ii6m9fij2fu.jpg" referrerpolicy="no-referrer">
+
+<strong>58dffd9e204823eaae98c05969cc2f77_720.jpg</strong> (153.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-11 09:03 上传
+

@@ -2899,3 +2899,20 @@ dlc这个毒村的锻造炉在哪点火啊，捡了黄金大弓想换个战技�
 话说双排模式出了吗？</blockquote>
 出很久了，双排挺好打的
 
+
+*****
+
+####  AEmpire  
+##### 2061#       发表于 2026-1-11 09:01
+
+王安定真的可以马拉松吗，为啥我马拉松同时被三四只追着杀 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rai.Z  
+##### 2062#       发表于 2026-1-11 09:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69005925&amp;ptid=2210352" target="_blank">Steel.Haze 发表于 2026-1-10 11:55</a>
+大空洞的难点其实是在于，第一天怎么能很好的刷红皮野Boss，顺便还要规划好路线。 ...</blockquote>
+不如落地升个2级就四散找水晶进下城
+
