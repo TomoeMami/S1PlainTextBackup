@@ -42,3 +42,28 @@
 
 然而这次中场是莎莎队领先<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shirolin  
+##### 5797#       发表于 2026-1-11 13:53
+
+「历代MC 三组联合访谈」: 
+优化了访谈对话的展现形式，
+做成了群聊会话界面的样子。
+应该更容易观看吧？
+每位偶像的对话框颜色都取自其代表色。
+
+— 斯普拉遁资料站
+https://splatoon.com.cn/pages/55
+
+<img src="https://img.stage1st.com/forum/202601/11/135322kotm5kttgdm1guq1.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260110-171705.png</strong> (1.11 MB, 下载次数: 0)
+
+下载附件
+
+2026-1-11 13:53 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
