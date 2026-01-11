@@ -5079,3 +5079,20 @@ Assassin是不是太弱了一点，来凑数的么</blockquote>
 
 街边晨练老头和张三丰都会太极拳，那能一样么
 
+
+*****
+
+####  亚历山大帝  
+##### 486#       发表于 2026-1-11 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69010032&amp;ptid=2086574" target="_blank">霖星 发表于 2026-1-11 13:18</a>
+
+吹这些没用，就问狂信以及开膛手杰克这俩正面对上闪闪，小恩，伊斯塔，仇海这些神仙，能撑几回合 ...</blockquote>
+正面对上就是个死，
+
+F/Z里闪闪秒杀哈桑，我拳打一群哈桑，这都是杀阶的正确强度。
+
+毕竟是 “暗杀者”，擅长的肯定不是正面上的能力，狂信子这种已经属于错误用法了。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
