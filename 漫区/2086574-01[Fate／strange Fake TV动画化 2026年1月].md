@@ -5451,3 +5451,37 @@ fsf基本上设定是放开了手脚随便写都行的，与之相反的就是�
 有点搞笑</blockquote>
 型月作品哪次缺装b的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大耳兽  
+##### 517#       发表于 2026-1-11 21:18
+
+fz和fsn是fate系列动画目前是fate系列的高峰，fe作画好但是看着想睡觉，fa动画作画有点崩<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  岸浪白野  
+##### 518#       发表于 2026-1-11 21:23
+
+ 本帖最后由 岸浪白野 于 2026-1-11 21:25 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69011731&amp;ptid=2086574" target="_blank">姬茧墨 发表于 2026-1-11 21:12</a>
+
+月姬和法特分家的原因，主要是服务于蘑菇的从者和死徒是两个不同路线的星球的解答这一想法。但从哪里开始 ...</blockquote>
+事件簿设定集的时钟塔年表说的分歧都出来7年了怎么还在这只存在于菌类脑子里大家谁也不知道<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你都看大冒险最新卷这么关注了有些话直说不就行
+
+*****
+
+####  姬茧墨  
+##### 519#       发表于 2026-1-11 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69011767&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-1-11 21:23</a>
+
+事件簿设定集的时钟塔年表说的分歧都出来7年了怎么还在这只存在于菌类脑子里大家谁也不知道
+
+ ...</blockquote>
+那确实菌类又没明说某一分歧点决定了世界走向，谁知道是某个事件或者多个事件重叠起来的原因呢
+
