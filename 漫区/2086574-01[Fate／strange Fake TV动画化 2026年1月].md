@@ -5066,3 +5066,16 @@ Assassin是不是太弱了一点，来凑数的么</blockquote>
 吹这些没用，就问狂信以及开膛手杰克这俩正面对上闪闪，小恩，伊斯塔，仇海这些神仙，能撑几回合 ...</blockquote>
 会初代砍头宝具就能打正面
 
+
+*****
+
+####  霖星  
+##### 485#       发表于 2026-1-11 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69010069&amp;ptid=2086574" target="_blank">シャル 发表于 2026-1-11 13:28</a>
+
+会初代砍头宝具就能打正面</blockquote>
+会和能100%复现是两个概念吧
+
+街边晨练老头和张三丰都会太极拳，那能一样么
+
