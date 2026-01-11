@@ -12141,10 +12141,10 @@
     "update": false
   },
   "2262701": {
-    "totalreply": 404,
+    "totalreply": 405,
     "title": "[立一座赛博打卡碑]",
     "newtitle": "[立一座赛博打卡碑]",
-    "lastedit": 1768138687,
+    "lastedit": 1768152008,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12636,10 +12636,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 5788,
+    "totalreply": 5790,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1768151649,
+    "lastedit": 1768152009,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12921,7 +12921,7 @@
     "lastedit": 1768453140,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2127360": {
     "totalreply": 288,
