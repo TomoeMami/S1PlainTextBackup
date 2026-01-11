@@ -5262,3 +5262,26 @@ F/Z里闪闪秒杀哈桑，我拳打一群哈桑，这都是杀阶的正确强�
 
 尤其宝石翁，又是祖又是魔法使又是远坂家师祖，总不能都靠第二法的便利设定糊弄过去吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑上シグマ  
+##### 505#       发表于 2026-1-11 20:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69011450&amp;ptid=2086574" target="_blank">Evomenon 发表于 2026-1-11 19:53</a>
+
+感想：这玩意更接近严肃（迫真）版的幻想嘉年华吧……？
+
+以fate为舞台的型月大乱斗，甚至老面孔不少，不过 ...</blockquote>
+简单说就是fate那边没“二十七祖”的概念了，全都统称“上级死徒”
+
+*****
+
+####  Evomenon  
+##### 506#       发表于 2026-1-11 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69011478&amp;ptid=2086574" target="_blank">黑上シグマ 发表于 2026-1-11 20:00</a>
+
+简单说就是fate那边没“二十七祖”的概念了，全都统称“上级死徒”</blockquote>
+好吧……有些意义不明的设定，就算取消了称号宝石翁不照样是死徒，还是说把fate世界里的宝石翁改回人类魔法使了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
