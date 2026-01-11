@@ -219,3 +219,14 @@ PC要下DMM客户端
 
 天赋盘子，link系统，调查V2
 
+
+*****
+
+####  madcow  
+##### 1828#       发表于 2026-1-11 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69007595&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2026-1-10 19:57</a>
+
+然而调查V2，操作不够强只能多打几个降级点啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">你打那么快解析不也要爆仓
+
