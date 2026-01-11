@@ -1093,3 +1093,13 @@ NOX为了做双面间谍或者别的什么目的，装作和0反目成仇，去�
 
 另外这集“宁梦还活着”复读频率过于高了，文本一般，明明是深化男女主感情的好机会，但情感调不上去，这也是ZZZ**病了。高桥水台词是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 584#       发表于 2026-1-11 10:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉狼姐演jk时期有点驾驭不住啊。。
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
