@@ -5561,3 +5561,19 @@ fsf小说我看到苍白骑士下线就没看了，印象中杰斯塔是个很�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毕竟 菌类的监修就是放屁
 
+
+*****
+
+####  大耳兽  
+##### 528#       发表于 2026-1-11 23:46
+
+看b站一个月丑分析说fsf可能是位于月姬侧和fate侧之间的世界线，所以同时有否定人类史的祖和肯定人类史的英灵<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">。
+当然现实原因肯定是作者开始写fsf的时候蘑菇还没有把分离的设定想好。
+
+*****
+
+####  中二小旋风  
+##### 529#       发表于 2026-1-11 23:47
+
+动画做几集啊，小说这么多卷能做完吗
+
