@@ -4916,3 +4916,24 @@ Assassin是不是太弱了一点，来凑数的么</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这死徒怕不是只能和fsn麻婆打个五五开
 
+
+*****
+
+####  黑上シグマ  
+##### 472#       发表于 2026-1-11 11:28
+
+<blockquote>引用第469楼proselyte于2026-01-11 11:05发表的  :
+
+霖星 发表于 2026-1-11 10:51神仙打架的一部作品Assassin是不是太弱了一点，来凑......</blockquote>
+百貌是第19代，狂信子只会前18代的
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
+*****
+
+####  哈尔路尼亚  
+##### 473#       发表于 2026-1-11 11:29
+
+麻婆是能把咒腕钉树上的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+说到底这个职介就是弱，专职给人垫垫脚
+
