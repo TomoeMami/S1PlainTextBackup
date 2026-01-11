@@ -5577,3 +5577,13 @@ fsf小说我看到苍白骑士下线就没看了，印象中杰斯塔是个很�
 
 动画做几集啊，小说这么多卷能做完吗
 
+
+*****
+
+####  pokemon最爱  
+##### 530#       发表于 2026-1-12 00:05
+
+FSF这边当成是菌类决定战力膨胀分家前的月球世界发生的故事就完事了，就标准是05年访谈的平宝从者（B级宝具从者）和二十七组一对一、冬木闪最强从者的那个时代<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+两边分家这事……就当宝石翁为了对付UO所以故意留了两个基干世界（没彻底打死Roa的月姬线和彻底打死了的Fate线）吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
