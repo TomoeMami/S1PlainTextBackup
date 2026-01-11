@@ -5198,3 +5198,17 @@ F/Z里闪闪秒杀哈桑，我拳打一群哈桑，这都是杀阶的正确强�
 
 阿萨辛本来就不是打正面的啊，本来应该是切御主的职阶，结果你看看这波master都是什么样的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。比较弱的狗和小女孩都有从者护着。
 
+
+*****
+
+####  岸浪白野  
+##### 499#       发表于 2026-1-11 18:03
+
+ 本帖最后由 岸浪白野 于 2026-1-11 18:04 编辑 
+
+绝对建议纯动画党看这个，本来内容除了打就是打一半寸止就一爆米花，更别说ED就已经说自己是爆米花了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就算看小说也就那样
+
+已经很适合做动画剪短视频了
+
