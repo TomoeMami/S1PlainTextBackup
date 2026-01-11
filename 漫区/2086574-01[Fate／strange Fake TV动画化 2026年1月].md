@@ -5639,3 +5639,13 @@ FSF这边当成是菌类决定战力膨胀分家前的月球世界发生的故�
 
 当然按照官方严格上的定义FSF就是另一个平行世界
 
+
+*****
+
+####  QShen  
+##### 536#       发表于 2026-1-12 00:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012317&amp;ptid=2086574" target="_blank">QShen 发表于 2026-1-12 00:31</a>
+我其实觉得把FSF看做FSN的后续也没啥问题，毕竟FSN后的主世界也只有二世解体了冬木圣杯这一个确定的事件， ...</blockquote>
+严谨来说月球也没有主世界这个说法，我这里是指FSN世界线。不过FSN自己也分了3条线路，每一条都和冬木圣杯在十年后被解体不冲突，蘑菇也没钦定过哪条线路是FSN世界线的真实线路
+
