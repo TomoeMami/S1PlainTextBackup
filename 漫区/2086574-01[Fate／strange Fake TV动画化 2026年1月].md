@@ -5293,3 +5293,26 @@ F/Z里闪闪秒杀哈桑，我拳打一群哈桑，这都是杀阶的正确强�
 
 卫宫士郎会露脸吗<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">，这时间貌似跟ubw很近啊
 
+
+*****
+
+####  岸浪白野  
+##### 508#       发表于 2026-1-11 20:17
+
+ 本帖最后由 岸浪白野 于 2026-1-11 20:19 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69011450&amp;ptid=2086574" target="_blank">Evomenon 发表于 2026-1-11 19:53</a>
+感想：这玩意更接近严肃（迫真）版的幻想嘉年华吧……？
+
+以fate为舞台的型月大乱斗，甚至老面孔不少，不过 ...</blockquote>
+因为你自己也是很久没关注那种，首先这是2014年二世事件簿小说第一卷之前蘑菇给那群人在饭局上科普的设定<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/30/1e0fd2e204d2ac0726f04f39be0430b0/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 509#       发表于 2026-1-11 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69011560&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-1-11 20:17</a>
+因为你自己也是很久没关注那种，因为这是2014年二世事件簿小说第一卷出来之前蘑菇给那群人在饭局上科普的 ...</blockquote>
+fsf基本上设定是放开了手脚随便写都行的，与之相反的就是埃尔梅罗二世事件簿，那边是主世界很多都不能随便搞。
+
