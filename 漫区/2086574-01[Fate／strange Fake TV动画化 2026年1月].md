@@ -5714,3 +5714,16 @@ FSF小说反正就是角色太多，导致群像是群像 ...</blockquote>
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  岸浪白野  
+##### 542#       发表于 2026-1-12 06:00
+
+ 本帖最后由 岸浪白野 于 2026-1-12 06:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012478&amp;ptid=2086574" target="_blank">任天索尼子 发表于 2026-1-12 03:40</a>
+这里我要纠个错 hf没有圣杯解体战 只有二世善后因为hf决战大圣杯就已经没了 不用在解体了 这是hfbd的一问 ...</blockquote>
+还有FSF里有提大冒险的事和二世也有遇到了埃尔戈也就是FSF之前也有发生和二世大冒险部分相似的故事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+成田说Fsf世界观是用冰室天地做根基这2个的世界观非常紧密主要除了五战结果就是沙条绫香设定部分后面还有参考比如沙条绫香去罗马尼亚是给沙条爱歌擦屁股善后的事
+说到底FSF有些神话或历史考据是型月已经有的了成田还能自己写个错的以至于自己第二卷后记就已经早就找补说FSF的世界线就是在各种地方的历史有出现“偏差”不断积累才诞生而出，详细的内容也许会在最终卷的后记或设定集补充，FSF当然够独立了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
