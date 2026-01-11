@@ -5159,3 +5159,42 @@ F/Z里闪闪秒杀哈桑，我拳打一群哈桑，这都是杀阶的正确强�
 
 小说最终卷我记得跳了不止两年吧，fgo2.0都被熬过去了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 494#       发表于 2026-1-11 17:50
+
+话说这个楼里还有纯动画党吗？基本上原作就算没看过也了解不少吧。<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 495#       发表于 2026-1-11 17:50
+
+ 本帖最后由 岸浪白野 于 2026-1-11 17:51 编辑 
+
+早就说了今年内出小说最终卷第10卷，动画分割播出下半部分什么时候播也是等着跟小说同时完结的，这动画企划就是把小说做完的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  azbhg1  
+##### 496#       发表于 2026-1-11 17:52
+
+哪有那么多看小说的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">动画肯定都是新观众多
+
+
+*****
+
+####  k1no  
+##### 497#       发表于 2026-1-11 17:55
+
+去年看的原作已经忘光了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大耳兽  
+##### 498#       发表于 2026-1-11 17:57
+
+阿萨辛本来就不是打正面的啊，本来应该是切御主的职阶，结果你看看这波master都是什么样的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。比较弱的狗和小女孩都有从者护着。
+
