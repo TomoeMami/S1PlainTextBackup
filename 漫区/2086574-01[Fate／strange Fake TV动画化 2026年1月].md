@@ -5702,3 +5702,15 @@ FSF小说反正就是角色太多，导致群像是群像 ...</blockquote>
 
 历来，这种最容易破圈引话题引流量的“闭嘴番”都是最佳的吸引圈外人入坑的机会
 
+
+*****
+
+####  任天索尼子  
+##### 541#       发表于 2026-1-12 03:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012325&amp;ptid=2086574" target="_blank">QShen 发表于 2026-1-12 00:36</a>
+严谨来说月球也没有主世界这个说法，我这里是指FSN世界线。不过FSN自己也分了3条线路，每一条都和冬木圣 ...</blockquote>
+这里我要纠个错 hf没有圣杯解体战 只有二世善后因为hf决战大圣杯就已经没了 不用在解体了 这是蘑菇某个访谈说的 。另外最接近fsn后续的作品是二世的冒险 算是fate和ubw的混合后续 ubw成分占大头。fsf接近冰室的天地的世界观 等于接近hf的后续。严格来说二世冒险和本传世界观更接近 fsf因为被钦定可以乱搞混合月姬要素更天马行空独立世界观一些
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
