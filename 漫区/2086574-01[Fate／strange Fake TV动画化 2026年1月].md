@@ -5030,3 +5030,29 @@ Assassin是不是太弱了一点，来凑数的么</blockquote>
 妄想毒身：生成强力毒素        威力比原型的妄想毒身弱，但能够收放自如。原型据说将毒混入风中击溃了万军。狂信徒无法做到原型那种强度，仅仅是在血液中聚集毒素，但是相对应变成可控制的能力，不会无差别伤人。
 妄想巡灵：支配镇尼（Jinn）的能力。以浓郁雾气为形态的镇尼，可以变成巨兽、蛇、美女、巨人等等各种形态，并可以任意组合地进行物理攻击。
 
+
+*****
+
+####  霖星  
+##### 482#       发表于 2026-1-11 13:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69009933&amp;ptid=2086574" target="_blank">仟音一心 发表于 2026-1-11 12:53</a>
+
+狂信徒的宝具为幻想血统（Zabaniya）（E~A），可复制前18代哈桑的神业，部分如下：
+
+妄想心音：利用以太块 ...</blockquote>
+吹这些没用，就问狂信以及开膛手杰克这俩正面对上闪闪，小恩，伊斯塔，仇海这些神仙，能撑几回合<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  完顔阿骨打  
+##### 483#       发表于 2026-1-11 13:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69009599&amp;ptid=2086574" target="_blank">黑上シグマ 发表于 2026-1-11 11:28</a>
+
+百貌是第19代，狂信子只会前18代的
+
+----发送自 STAGE1 App for Android.</blockquote>
+她也学过百貌的技能，但是没学会，因为百貌其实是种精神病（解离性人格障碍），不是可以学习的技能
+
