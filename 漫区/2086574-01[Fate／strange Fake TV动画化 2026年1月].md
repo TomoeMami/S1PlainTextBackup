@@ -5649,3 +5649,31 @@ FSF这边当成是菌类决定战力膨胀分家前的月球世界发生的故�
 我其实觉得把FSF看做FSN的后续也没啥问题，毕竟FSN后的主世界也只有二世解体了冬木圣杯这一个确定的事件， ...</blockquote>
 严谨来说月球也没有主世界这个说法，我这里是指FSN世界线。不过FSN自己也分了3条线路，每一条都和冬木圣杯在十年后被解体不冲突，蘑菇也没钦定过哪条线路是FSN世界线的真实线路
 
+
+*****
+
+####  黄泉川此方  
+##### 537#       发表于 2026-1-12 00:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">FSN-FHA-FSF是说得通的，但和FGO出场人物没沟通好肯定也是有的
+
+FSF小说反正就是角色太多，导致群像是群像了，每人五分钟镜头一卷结束了，我看完结遥遥无期
+
+倒是剧情我看了就忘，也是如看
+
+
+*****
+
+####  岸浪白野  
+##### 538#       发表于 2026-1-12 00:54
+
+ 本帖最后由 岸浪白野 于 2026-1-12 00:55 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012341&amp;ptid=2086574" target="_blank">黄泉川此方 发表于 2026-1-12 00:47</a>
+
+FSN-FHA-FSF是说得通的，但和FGO出场人物没沟通好肯定也是有的
+
+FSF小说反正就是角色太多，导致群像是群像 ...</blockquote>
+还在这遥遥无期，今年内就要出小说最终卷第10卷，动画分割播出下半部分什么时候播都要等着跟小说出了再同时完结
+
+现在是动画播下半部分要等小说，哪敢拖啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
