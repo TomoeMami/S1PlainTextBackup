@@ -1214,3 +1214,11 @@ Nemu的首字母也是N，op里和Nox有渊源，剧中在nox梦中扮自己，�
 
 宁梦没办法抵抗梦主世界观，那万一有人做春梦呢，第一集纯情小楚男没妹妹叫醒真能亲上去吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大耳兽  
+##### 596#       发表于 2026-1-11 23:27
+
+前几集没有那种“现实也是梦境”的感觉，直到这集在现实里掏胶囊修车。
+
