@@ -1143,3 +1143,38 @@ NOX为了做双面间谍或者别的什么目的，装作和0反目成仇，去�
 
 —— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  milky658  
+##### 589#       发表于 2026-1-11 13:55
+
+nox待遇相当好了，还没转正的时候和莫打了几场，在装备跟不上的情况都能靠经验反打回去。闪电是光，暗影是影，一个Z一个N，两人是对照的关系，nox的剧情地位可能比想象中还高
+Nemu的首字母也是N，op里和Nox有渊源，剧中在nox梦中扮自己，究竟是什么关系呢？zzz警察戏和妹妹戏我都很喜欢，唯独女主和nox和男主对线感情都调动不起来，nox这几集慢慢好起来了，宁梦这两集戏份太少了，有点浪费题材，遗憾
+
+*****
+
+####  洛克萨斯  
+##### 590#       发表于 2026-1-11 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69010085&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-1-11 13:31</a>
+
+感觉究极强力，鹿丸的影子模仿术，这集甚至连暗影剑都没掏就压着等离子打。。
+
+—— 来自 HONOR BVL-AN00 ...</blockquote>
+不知道是不是还有强制解除变身，等离子打着打着就没了
+
+
+*****
+
+####  挺好的  
+##### 591#       发表于 2026-1-11 14:00
+
+<img src="https://img.stage1st.com/forum/202601/11/140018qqluuumiirwlr39g.png" referrerpolicy="no-referrer">
+
+<strong>dc632edf300e7a799a82d490f1dbc297.png</strong> (115.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-11 14:00 上传
+
