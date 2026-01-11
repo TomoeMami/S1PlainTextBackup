@@ -1123,3 +1123,11 @@ NOX为了做双面间谍或者别的什么目的，装作和0反目成仇，去�
 
 —— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  洛克萨斯  
+##### 587#       发表于 2026-1-11 13:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">暗影的机制设计很有趣啊，zzz目前战斗创意都挺好的
+
