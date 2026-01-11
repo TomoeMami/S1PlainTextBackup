@@ -2947,3 +2947,26 @@ dlc这个毒村的锻造炉在哪点火啊，捡了黄金大弓想换个战技�
 进深夜之后感觉自己的区力直线上升，勉强在地上拱进深夜2之后已经完全区一样了<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">，被各种怪碰一下就去世，关游戏前最后一把的大空洞种子地图上所有小boss都是红皮版本，三个人转了一大圈水晶开完愣是没找到软柿子捏。
 这游戏是得会处理所有招式能无伤各种boss了才有资格进深夜吗，蹭一下就躺几个人体验太差了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modkingr  
+##### 2066#       发表于 2026-1-12 01:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012405&amp;ptid=2210352" target="_blank">盐星 发表于 2026-1-12 01:32</a>
+
+进深夜之后感觉自己的区力直线上升，勉强在地上拱进深夜2之后已经完全区一样了，被各种怪碰一下就去世，关 ...</blockquote>
+深4之前不存在什么数值问题
+
+*****
+
+####  modkingr  
+##### 2067#       发表于 2026-1-12 01:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012405&amp;ptid=2210352" target="_blank">盐星 发表于 2026-1-12 01:32</a>
+
+进深夜之后感觉自己的区力直线上升，勉强在地上拱进深夜2之后已经完全区一样了，被各种怪碰一下就去世，关 ...</blockquote>
+举个例子，深夜空洞图，落地其实是有公式的，升了2之后四散出去开水晶，开完之后右下集合，然后从下水道开始往前推，从护符点推到城门入口篝火升级，把楼上2个蓝点打了基本就第一个boss了
+
+这个过程里三个人凭借水晶buff刷大，不存在什么不能打的boss。红的也无所谓，就是一个普通的farm流程，也不需要什么技巧
+
