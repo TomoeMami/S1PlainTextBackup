@@ -5220,3 +5220,21 @@ F/Z里闪闪秒杀哈桑，我拳打一群哈桑，这都是杀阶的正确强�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是哈桑词条的大部分刚正面能力不行，别的作品里面的暗杀阶就不一样了
 
+
+*****
+
+####  pokemon最爱  
+##### 501#       发表于 2026-1-11 18:31
+
+正统杯战的刺客哈桑就是偷御主用的谁跟你打正面啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斯卡哈  
+##### 502#       发表于 2026-1-11 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69011033&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-1-11 18:14</a>
+
+主要是哈桑词条的大部分刚正面能力不行，别的作品里面的暗杀阶就不一样了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">丢初代的人，一个个都该被初代砍脑袋（
+
