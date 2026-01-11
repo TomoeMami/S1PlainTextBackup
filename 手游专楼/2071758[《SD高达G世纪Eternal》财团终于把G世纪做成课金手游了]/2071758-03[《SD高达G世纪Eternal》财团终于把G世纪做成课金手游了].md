@@ -2542,3 +2542,23 @@ ur的不敢修吧</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  AminGly  
+##### 3491#       发表于 2026-1-11 09:42
+
+<img src="https://img.stage1st.com/forum/202601/11/094137yhy7q5h95c9et6gy.png" referrerpolicy="no-referrer">
+
+<strong>SD红机PVE体验.png</strong> (270.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-11 09:41 上传
+
+来个贴吧排行榜
+
+[https://tieba.baidu.com/p/10384952255](https://tieba.baidu.com/p/10384952255)
+
+附带简评
+
