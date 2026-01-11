@@ -230,3 +230,14 @@ PC要下DMM客户端
 然而调查V2，操作不够强只能多打几个降级点啊</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">你打那么快解析不也要爆仓
 
+
+*****
+
+####  wilkyway  
+##### 1829#       发表于 2026-1-11 18:57
+
+ 本帖最后由 wilkyway 于 2026-1-11 18:59 编辑 
+
+这23星什么意思 只能加1没有的不给选？ 就差个3星莉莉正好不给是吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+没事了又看了一眼默认排序没有的被扔最上面了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
