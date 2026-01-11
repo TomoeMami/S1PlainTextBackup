@@ -5285,3 +5285,11 @@ F/Z里闪闪秒杀哈桑，我拳打一群哈桑，这都是杀阶的正确强�
 简单说就是fate那边没“二十七祖”的概念了，全都统称“上级死徒”</blockquote>
 好吧……有些意义不明的设定，就算取消了称号宝石翁不照样是死徒，还是说把fate世界里的宝石翁改回人类魔法使了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  g救世主高达  
+##### 507#       发表于 2026-1-11 20:10
+
+卫宫士郎会露脸吗<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">，这时间貌似跟ubw很近啊
+
