@@ -5608,3 +5608,24 @@ FSF这边当成是菌类决定战力膨胀分家前的月球世界发生的故�
 看完两集去看了一下剧情解说，原来是一部战斗爽的小说，看起来很适合西方观众的胃口 ...</blockquote>
 fsf 动画就是 a+ us 那边推的（虽然这个事本身很奇怪），所以先行上映甚至美国比日本早
 
+
+*****
+
+####  谁介意  
+##### 533#       发表于 2026-1-12 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012280&amp;ptid=2086574" target="_blank">御坂MKII 发表于 2026-1-12 00:10</a>
+fsf 动画就是 a+ us 那边推的（虽然这个事本身很奇怪），所以先行上映甚至美国比日本早 ...</blockquote>
+也许是故事舞台就在美国的原因吧
+
+
+*****
+
+####  岸浪白野  
+##### 534#       发表于 2026-1-12 00:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012264&amp;ptid=2086574" target="_blank">pokemon最爱 发表于 2026-1-12 00:05</a>
+
+FSF这边当成是菌类决定战力膨胀分家前的月球世界发生的故事就完事了，就标准是05年访谈的平宝从者（B级宝具 ...</blockquote>
+讲道理前面楼我发的很清楚了分家原因怎么还在这就当是啊，朱月有没有被彻底打死更关键哪轮的上罗亚啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
