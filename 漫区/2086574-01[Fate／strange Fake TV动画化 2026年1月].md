@@ -4872,3 +4872,14 @@ ED：[https://youtu.be/P7ZcQSEP6PU](https://youtu.be/P7ZcQSEP6PU)
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">话说回来，这个故事的世界线是怎么一回事来着，怎么又有英灵座又有二十七祖，那当年朱月有没有被彻底肘死
 
+
+*****
+
+####  pokemon最爱  
+##### 468#       发表于 2026-1-11 10:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69009187&amp;ptid=2086574" target="_blank">Yugao 发表于 2026-1-11 09:47</a>
+
+话说回来，这个故事的世界线是怎么一回事来着，怎么又有英灵座又有二十七祖，那当年朱月有没有被彻底肘死 ...</blockquote>
+FSF是蘑菇钦点的Fate线和月姬线分家后被特别允许可以两边共存的中间态线，毕竟从者vs死徒也是FSF的噱头之一<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
