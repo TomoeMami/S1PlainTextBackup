@@ -381,3 +381,11 @@ ED1限时返场 好评<img src="https://static.stage1st.com/image/smiley/face201
 
 凯特桑女初中生的嘴唇是什么触感啊<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  用户名1  
+##### 1542#       发表于 2026-1-11 14:50
+
+大友总是喜欢调和折中的，譬如你推悟彩，大家一定说强推bg、人设单薄。但如果你开始推凯歌他们就同意悟彩了。
+
