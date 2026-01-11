@@ -5137,3 +5137,17 @@ F/Z里闪闪秒杀哈桑，我拳打一群哈桑，这都是杀阶的正确强�
 看得出来经费是真的富裕，人物和镜头基本都一直在动，没啥真•站桩画面，但从这一集，我感觉成田原著文戏的 ...</blockquote>
 因为删减了不少，漫画本身就删了不少，动画比漫画还多。但找准定位是爆米花打的爽就够了
 
+
+*****
+
+####  阿提拉  
+##### 492#       发表于 2026-1-11 17:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69010266&amp;ptid=2086574" target="_blank">亚历山大帝 发表于 2026-1-11 14:31</a>
+正面对上就是个死，
+
+F/Z里闪闪秒杀哈桑，我拳打一群哈桑，这都是杀阶的正确强度。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">从初代而论这才是哈桑的正统用法（
+
+可惜太狂信了，不然学影灯笼那样也行
+
