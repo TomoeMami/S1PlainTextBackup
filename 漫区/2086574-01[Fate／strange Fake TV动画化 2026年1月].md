@@ -4893,3 +4893,26 @@ FSF是蘑菇钦点的Fate线和月姬线分家后被特别允许可以两边共�
 
 Assassin是不是太弱了一点，来凑数的么
 
+
+*****
+
+####  proselyte  
+##### 470#       发表于 2026-1-11 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69009426&amp;ptid=2086574" target="_blank">霖星 发表于 2026-1-11 10:51</a>
+
+神仙打架的一部作品
+
+Assassin是不是太弱了一点，来凑数的么</blockquote>
+狂信子不弱
+
+百貌之前（还是除了百貌）的哈桑的宝具她都能用
+
+
+*****
+
+####  jojog  
+##### 471#       发表于 2026-1-11 11:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这死徒怕不是只能和fsn麻婆打个五五开
+
