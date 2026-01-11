@@ -5587,3 +5587,24 @@ FSF这边当成是菌类决定战力膨胀分家前的月球世界发生的故�
 
 两边分家这事……就当宝石翁为了对付UO所以故意留了两个基干世界（没彻底打死Roa的月姬线和彻底打死了的Fate线）吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御坂MKII  
+##### 531#       发表于 2026-1-12 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012264&amp;ptid=2086574" target="_blank">pokemon最爱 发表于 2026-1-12 00:05</a>
+
+FSF这边当成是菌类决定战力膨胀分家前的月球世界发生的故事就完事了，就标准是05年访谈的平宝从者（B级宝具 ...</blockquote>
+宝石翁的设定在菌类糊来糊去之后就很有乐子了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御坂MKII  
+##### 532#       发表于 2026-1-12 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69011975&amp;ptid=2086574" target="_blank">ryanghj 发表于 2026-1-11 22:33</a>
+
+看完两集去看了一下剧情解说，原来是一部战斗爽的小说，看起来很适合西方观众的胃口 ...</blockquote>
+fsf 动画就是 a+ us 那边推的（虽然这个事本身很奇怪），所以先行上映甚至美国比日本早
+
