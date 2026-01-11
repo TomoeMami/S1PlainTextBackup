@@ -4964,3 +4964,49 @@ Assassin是不是太弱了一点，来凑数的么</blockquote>
 
 —— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  シャル  
+##### 477#       发表于 2026-1-11 12:40
+
+<blockquote>黑上シグマ 发表于 2026-1-11 11:28
+百貌是第19代，狂信子只会前18代的
+
+----发送自 STAGE1 App for Android.</blockquote>
+百貌多重人格是个体特质不是技术，狂信想学也学不会啊
+
+*****
+
+####  仟音一心  
+##### 478#       发表于 2026-1-11 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69009644&amp;ptid=2086574" target="_blank">ff2077 发表于 2026-1-11 11:41</a>
+这死徒下一集就要被揍了 现在这吊打警察局纯粹职阶压制没辙说起来这局长也是个好人了
+
+—— 来自 Xiaomi 24 ...</blockquote>
+职介克制仅存在于FGO为了游戏性而已，其他作品并不存在。
+
+
+*****
+
+####  仟音一心  
+##### 479#       发表于 2026-1-11 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69009604&amp;ptid=2086574" target="_blank">哈尔路尼亚 发表于 2026-1-11 11:29</a>
+麻婆是能把咒腕钉树上的
+说到底这个职介就是弱，专职给人垫垫脚</blockquote>
+这个职介基本上就王哈能看。
+
+*****
+
+####  霖星  
+##### 480#       发表于 2026-1-11 12:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69009496&amp;ptid=2086574" target="_blank">proselyte 发表于 2026-1-11 11:05</a>
+
+狂信子不弱
+
+百貌之前（还是除了百貌）的哈桑的宝具她都能用</blockquote>
+也只是个不弱的评价，但是其他英灵可是什么妖魔鬼怪啊
+

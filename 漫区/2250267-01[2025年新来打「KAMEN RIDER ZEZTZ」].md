@@ -1111,3 +1111,15 @@ NOX为了做双面间谍或者别的什么目的，装作和0反目成仇，去�
 
 主角修好电动车然后去睡觉，妹妹立即收到失踪搞笑艺人的短信时我那么一瞬间产生了搞笑艺人就是ZERO 的念头<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 586#       发表于 2026-1-11 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69009739&amp;ptid=2250267" target="_blank">otakun 发表于 2026-1-11 12:02</a>
+主角修好电动车然后去睡觉，妹妹立即收到失踪搞笑艺人的短信时我那么一瞬间产生了搞笑艺人就是ZERO 的念头 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最low的一集
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
