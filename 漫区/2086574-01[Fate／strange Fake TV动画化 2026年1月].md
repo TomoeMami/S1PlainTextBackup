@@ -5727,3 +5727,19 @@ FSF小说反正就是角色太多，导致群像是群像 ...</blockquote>
 成田说Fsf世界观是用冰室天地做根基这2个的世界观非常紧密主要除了五战结果就是沙条绫香设定部分后面还有参考比如沙条绫香去罗马尼亚是给沙条爱歌擦屁股善后的事
 说到底FSF有些神话或历史考据是型月已经有的了成田还能自己写个错的以至于自己第二卷后记就已经早就找补说FSF的世界线就是在各种地方的历史有出现“偏差”不断积累才诞生而出，详细的内容也许会在最终卷的后记或设定集补充，FSF当然够独立了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 543#       发表于 2026-1-12 07:26
+
+ 本帖最后由 岸浪白野 于 2026-1-12 07:28 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012325&amp;ptid=2086574" target="_blank">QShen 发表于 2026-1-12 00:36</a>
+严谨来说月球也没有主世界这个说法，我这里是指FSN世界线。不过FSN自己也分了3条线路，每一条都和冬木圣 ...</blockquote>
+先上说到的访谈的原文
+Q16： 在HF之后，依然会进行君主·埃尔梅罗二世所举行的圣杯战争解体吗？ A16： 奈：我觉得破坏到那种程度的话，与其说是解体，不如说是拆除吧，不过某人会以某种形式尽力去让它成为『无法再次运转』的状态。
+其实说白了你就是想排作品时间线<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+FSN2004年，二世冒险2007年，FSF2008-2009年，解体战2010年-2014年，二世冒险是接解体战的独立路线，但问题fsf除了五战结果就是有月姬的东西还有乱七八糟的差异，再怎么也还是要严格点说后续还是要指要找点最接近正常的
+其实说到这种事杂志TMA15的就已经官方自己列过一遍图
+<img src="https://p.sda1.dev/30/7bc0d62cbd0b7c79683a84932a14afec/image.jpg" referrerpolicy="no-referrer">
+
