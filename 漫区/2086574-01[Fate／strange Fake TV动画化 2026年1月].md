@@ -5520,3 +5520,28 @@ fz和fsn是fate系列动画目前是fate系列的高峰，fe作画好但是看�
 
 之前听凡尔赛玫瑰还说终于不摸了，终究还是应摸尽摸
 
+
+*****
+
+####  空彦秋  
+##### 523#       发表于 2026-1-11 22:26
+
+果然这楼里会有很多资深月丑<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+fsf小说我看到苍白骑士下线就没看了，印象中杰斯塔是个很谐的角色，天天想着折磨人，手上功夫却不太行，每次搞事都被人揍<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">（印象中一次是神父、一次是二世的学生），挨打后也不会学乖和反省做事方式的那种
+
+
+*****
+
+####  ryanghj  
+##### 524#       发表于 2026-1-11 22:33
+
+看完两集去看了一下剧情解说，原来是一部战斗爽的小说，看起来很适合西方观众的胃口<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸波白野  
+##### 525#       发表于 2026-1-11 22:35
+
+反正看成田各种后记吐槽和本家那边撞东西，以及去年理查废狗落地三破那黑狮子成田他自己一脸懵逼那事看，这些年没少被通气这事折磨<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
