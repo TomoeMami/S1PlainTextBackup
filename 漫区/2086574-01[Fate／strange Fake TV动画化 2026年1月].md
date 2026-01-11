@@ -5096,3 +5096,18 @@ F/Z里闪闪秒杀哈桑，我拳打一群哈桑，这都是杀阶的正确强�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakki  
+##### 487#       发表于 2026-1-11 14:41
+
+弹幕观感巨差，全是一些看了点讲解视频一知半解就来科普的，关键还一堆科普错了的<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 488#       发表于 2026-1-11 14:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这片的女角色脸画的也太好看了，作画监督很懂啊
+
