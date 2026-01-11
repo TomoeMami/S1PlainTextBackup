@@ -389,3 +389,11 @@ ED1限时返场 好评<img src="https://static.stage1st.com/image/smiley/face201
 
 大友总是喜欢调和折中的，譬如你推悟彩，大家一定说强推bg、人设单薄。但如果你开始推凯歌他们就同意悟彩了。
 
+
+*****
+
+####  leleq  
+##### 1543#       发表于 2026-1-11 22:51
+
+今年也就这样了后面打好看就行了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
