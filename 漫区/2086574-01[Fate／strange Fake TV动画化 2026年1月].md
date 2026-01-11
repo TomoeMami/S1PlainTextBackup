@@ -5677,3 +5677,14 @@ FSF小说反正就是角色太多，导致群像是群像 ...</blockquote>
 
 现在是动画播下半部分要等小说，哪敢拖啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黄泉川此方  
+##### 539#       发表于 2026-1-12 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012365&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-1-12 00:54</a>
+
+还在这遥遥无期，今年内就要出小说最终卷第10卷，动画分割播出下半部分什么时候播都要等着跟小说出了再同 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是我看了就忘的毛病犯了
+
