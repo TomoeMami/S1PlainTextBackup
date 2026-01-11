@@ -4937,3 +4937,30 @@ Assassin是不是太弱了一点，来凑数的么</blockquote>
 麻婆是能把咒腕钉树上的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 说到底这个职介就是弱，专职给人垫垫脚
 
+
+*****
+
+####  199april  
+##### 474#       发表于 2026-1-11 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69009540&amp;ptid=2086574" target="_blank">jojog 发表于 2026-1-11 11:15</a>
+
+这死徒怕不是只能和fsn麻婆打个五五开</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">这死徒我怀疑打不过麻婆，很多时候纯靠肉体抗
+
+*****
+
+####  Keiji  
+##### 475#       发表于 2026-1-11 11:41
+
+好看好看
+
+*****
+
+####  ff2077  
+##### 476#       发表于 2026-1-11 11:41
+
+这死徒下一集就要被揍了 现在这吊打警察局纯粹职阶压制没辙<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">说起来这局长也是个好人了
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
