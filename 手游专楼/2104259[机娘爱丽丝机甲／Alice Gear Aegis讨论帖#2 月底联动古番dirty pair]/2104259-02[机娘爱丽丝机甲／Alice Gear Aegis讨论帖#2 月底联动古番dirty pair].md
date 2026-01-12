@@ -251,3 +251,16 @@ PC要下DMM客户端
 
 AGA祖传读心术又发力了
 
+
+*****
+
+####  イクイノックス  
+##### 1831#       发表于 2026-1-12 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69008278&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2026-1-10 22:56</a>
+
+其实新东西就几个
+
+天赋盘子，link系统，调查V2</blockquote>
+打完活动已经在猛刷V2调查了,现在的装备还是有分支选分支比较好对吧？
+
