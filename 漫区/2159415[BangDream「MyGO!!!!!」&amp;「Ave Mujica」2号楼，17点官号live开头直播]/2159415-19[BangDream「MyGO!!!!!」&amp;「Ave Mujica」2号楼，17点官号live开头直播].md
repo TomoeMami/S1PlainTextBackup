@@ -377,3 +377,19 @@ millsage要是真一把日产ibanez一把prs非se，肥肥得去1**了
 
 <img src="https://p.sda1.dev/30/8e9bf4b66d2d65540489dce02eac5987/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 27450#         楼主| 发表于 2026-1-12 22:46
+
+亏麻了，我正好两把日芬，一把tele一把st，可是都是白色的，为啥不是白团上日芬
+
+<img src="https://img.stage1st.com/forum/202601/12/064600k2udd10fks8024gs.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG20250226184209.jpg</strong> (583.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 22:46 上传
+
