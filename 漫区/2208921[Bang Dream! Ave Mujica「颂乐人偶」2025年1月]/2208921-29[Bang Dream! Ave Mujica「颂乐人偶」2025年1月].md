@@ -297,3 +297,57 @@ BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes
 将于 2026年 正式与大家见面。</blockquote>
        [https://www.bilibili.com/video/BV1tNreBGE5x](https://www.bilibili.com/video/BV1tNreBGE5x)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41652#       发表于 2026-1-12 19:01
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/12/190129jhstjktev4e5kq4q.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-12_19-00-16.jpg</strong> (237.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 19:01 上传
+
+       [https://x.com/bang_dream_info/status/2010662176399499488](https://x.com/bang_dream_info/status/2010662176399499488)
+
+*****
+
+####  堀内爱里衣  
+##### 41653#       发表于 2026-1-12 19:03
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/12/190258b5j45jkk4o4hhhfx.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-12_19-01-48.jpg</strong> (198.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 19:02 上传
+
+       [https://x.com/bang_dream_info/status/2010663481000026589](https://x.com/bang_dream_info/status/2010663481000026589)
+
+       [https://bang-dream-on.bushimo.jp/](https://bang-dream-on.bushimo.jp/)
+
+*****
+
+####  堀内爱里衣  
+##### 41654#       发表于 2026-1-12 19:04
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/12/190412iuxnenm4oxwu2ny8.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-12_19-03-29.jpg</strong> (256.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 19:04 上传
+
+       [https://x.com/bang_dream_info/status/2010660473143017648](https://x.com/bang_dream_info/status/2010660473143017648)
+
