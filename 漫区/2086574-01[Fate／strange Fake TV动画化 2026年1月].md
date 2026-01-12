@@ -5951,3 +5951,18 @@ fate strange fake世界线就是介于月姬和fate中间，二世事件簿后�
 【办到了﹑办到了，『孔』终于开了！虽然不知道是谁做的，但我都想颁发诺贝尔奖了呢！诺贝尔我个人奖！
 要把高阶吸血种困在幻术里，真的是非常麻烦呢～！我又没有蔷薇魔眼，恐怕非得全力使用宝具不可。不过对付现在的你，我用平常的力量都有剩！把你削弱的那个人，谢谢喔！为了表达感谢，我们之中的一个可以跟你谈恋爱喔！】
 
+
+*****
+
+####  洛亚替身  
+##### 564#       发表于 2026-1-12 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69016769&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-1-12 21:01</a>
+
+因为原文这里是隔空向人道谢
+
+【办到了﹑办到了，『孔』终于开了！虽然不知道是谁做的，但我都想颁发诺贝 ...</blockquote>
+考虑到横飞姬是成田笔下那种乐子人系角色，感觉大概率还是挨一顿胖揍无CP结局<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+但这家伙太有趣了莫名想看他/她谈恋爱，无论男女颜值都属于超上品，还难得没有临也那种烦人感，亡骸魔术师抽象感，酒人设的粗放感，虽然男版也很香，如果有CP成田这种BG战士大概率还是女版回收Flag，我是真想看成田乐子系角色谈恋爱啊（反复强调）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
