@@ -161,3 +161,87 @@ bang2还是端上来了
 
       [https://t.co/VSWYpnEGgj](https://t.co/VSWYpnEGgj)
 
+
+*****
+
+####  堀内爱里衣  
+##### 27433#       发表于 2026-1-12 19:16
+
+       <img src="https://img.stage1st.com/forum/202601/12/191328om12e6r40w4a2emv.jpg" referrerpolicy="no-referrer">
+
+       [https://t.bilibili.com/1156962231331586056](https://t.bilibili.com/1156962231331586056)
+
+*****
+
+####  仟音一心  
+##### 27434#       发表于 2026-1-12 19:17
+
+<img src="https://p.sda1.dev/30/065eb4c216a492fa030bf03bcc428f79/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  CyDiablo  
+##### 27435#       发表于 2026-1-12 19:20
+
+ 本帖最后由 CyDiablo 于 2026-1-12 19:22 编辑 
+
+[https://bang-dream.bushimo.jp/news/20260112/post-350](https://bang-dream.bushimo.jp/news/20260112/post-350)
+制作人来信✉️
+
+公开了来自 BanG Dream! 总制作人根本的制作人来信！
+如能阅读，不胜荣幸。
+…。
+
+【使用Gemini-3-Flash-Preview模型翻译，译文仅供参考】
+
+#バンドリ #ガルパ
+
+我是 BanG Dream! 总制作人根本。
+
+在 1 月 12 日（周一·节假日）举办的“武士道新春大发表会 2026”上，我们发布了关于新作手游《BanG Dream! Our Notes》的相关消息。
+为了向一直支持《BanG Dream! 少女乐团派对！》的各位说明 BanG Dream! 项目今后的发展，我特此写下这封信。
+
+2017 年开始服务的《BanG Dream! 少女乐团派对！（Garupa）》在今年迎来了 9 周年。
+在这漫长的岁月中，成员们在 Garupa 这个舞台上日复一日地成长，积淀故事，最终使得项目作为表现形式的广度得到了极大的扩展。
+
+正是因为有 Garupa 筑起的坚实基础，才诞生了 MyGO!!!!!、Ave Mujica、梦限大 Mewtype 这样拥有前所未有个性的乐队。
+但另一方面，随着项目规模的扩大，我们也面临着重大的挑战。
+那就是：如果继续在 Garupa 中追加乐队，可能会导致各个乐队的故事更新周期变长，或是每一个细节描写的密度被迫降低。
+
+此外，目前故事正在推进中的 MyGO!!!!! 和 Ave Mujica，在设定和背景上有着彼此紧密关联、不可分割的关系。
+
+为了能以最合适的方式，并以最大限度的密度描绘完所有乐队的故事，我们进行了深思熟虑。
+最终判定，为 MyGO!!!!!、Ave Mujica、梦限大 Mewtype 设立 Garupa 之外的新舞台进行发展是最佳选择。
+
+今后的具体发展如下：
+
+《BanG Dream! 少女乐团派对！》：
+我们将一如既往地，并比以往更加用心地继续描绘 Poppin’Party、Afterglow、Pastel＊Palettes、Roselia、Hello, Happy World!、Morfonica、RAISE A SUILEN 这 7 支乐队的故事。
+
+《BanG Dream! Our Notes》：
+我们将以不同于 Garupa 的视角和表现方法，描绘 MyGO!!!!!、Ave Mujica、梦限大 Mewtype，以及新加入的 millsage、一家Dumb Rock! 的故事。
+※关于 MyGO!!!!!，虽然 Garupa 内将不再举行乐队的单独活动等，但在学校和 Live House“RiNG”等跨越框架的交流场所中，成员们今后仍计划会登场。
+
+今后的 BanG Dream! 项目将通过《BanG Dream! 少女乐团派对！》和《BanG Dream! Our Notes》这两款手游，以及动画、线下演唱会和活动等多种形式展开。
+并不是要将一切集约于一处，而是在各自的舞台上描绘各自的故事，这一想法今后也不会改变。
+
+我们将继续为大家献上全 12 支乐队的故事。
+
+今后也希望大家能一如既往地支持 BanG Dream! 项目，以及在明年即将迎来 10 周年的《BanG Dream! 少女乐团派对！》。
+在此敬请多多关照
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 27436#       发表于 2026-1-12 19:21
+
+嗷牛逼，还有南北朝的
+
+
+*****
+
+####  純田まな  
+##### 27437#       发表于 2026-1-12 19:25
+
+惊世一手
+
