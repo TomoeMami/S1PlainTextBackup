@@ -3024,3 +3024,17 @@ dlc这个毒村的锻造炉在哪点火啊，捡了黄金大弓想换个战技�
 
 感觉大空洞真好玩，多层次地图复杂性和自由度都很高，而且奖励反馈也很足，经常首日就装备成型了。跑明白以后再回去玩普通图直接索然无味<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nightmare902015  
+##### 2073#       发表于 2026-1-12 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69015908&amp;ptid=2210352" target="_blank">无知道士 发表于 2026-1-12 17:50</a>
+深夜模式的算分系统有点看不明白。大多数时候都是赢了+200，输了-200
+
+昨天打的，输的几把里面，有夜王战 ...</blockquote>
+深3夜王输了-200，深4是-300还是400来着。每个深度有两次保级。如果有人拔线会减少掉分甚至不扣分。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
