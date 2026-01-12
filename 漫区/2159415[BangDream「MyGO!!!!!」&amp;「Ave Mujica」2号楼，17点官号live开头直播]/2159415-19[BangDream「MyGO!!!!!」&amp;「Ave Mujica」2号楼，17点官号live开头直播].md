@@ -417,3 +417,17 @@ https://youtu.be/5WADdjK7taE
 话说梦限大开播前要开新的专楼吧，这楼也几万层了。</blockquote>
 梦限大应该是相对独立的故事，开播前单开吧
 
+
+*****
+
+####  KDConan  
+##### 27453#       发表于 2026-1-12 23:07
+
+ 本帖最后由 KDConan 于 2026-1-12 23:10 编辑 
+
+秋季来得及么<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+【新作剧场版「BanG Dream! Ave Mujica prima aurora」2026年秋正式公开-哔哩哔哩】 [url=]https://b23.tv/jpNLAWu[/url]
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
