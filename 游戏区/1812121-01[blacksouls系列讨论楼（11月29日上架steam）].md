@@ -4106,3 +4106,14 @@ black souls 1
 一周目不看任何攻略b结局打通了，除了一开始的精灵外我一个都没能招募进来，直接变成了176 ...</blockquote>
 杀了匹诺曹不影响使用旅馆的，可以直接调查柜台
 
+
+*****
+
+####  三月的老虎  
+##### 352#       发表于 2026-1-12 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69014904&amp;ptid=1812121" target="_blank">检索者 发表于 2026-1-12 15:10</a>
+
+杀了匹诺曹不影响使用旅馆的，可以直接调查柜台</blockquote>
+问下与角色共度chunxiao有什么条件吗，我小红帽和魔女老师都已经招募进来了，可是调查柜台并没有她们
+
