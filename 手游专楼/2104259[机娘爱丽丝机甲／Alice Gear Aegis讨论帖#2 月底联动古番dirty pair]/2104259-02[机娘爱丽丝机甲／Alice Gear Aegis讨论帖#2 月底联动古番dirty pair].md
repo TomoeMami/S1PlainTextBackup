@@ -330,3 +330,14 @@ AGA祖传读心术又发力了
 —— 来自 realme R ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">换张mastercard的试试？
 
+
+*****
+
+####  冰风血羽  
+##### 1838#       发表于 2026-1-13 01:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69016678&amp;ptid=2104259" target="_blank">madcow 发表于 2026-1-12 20:40</a>
+
+换张mastercard的试试？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有万事达也没有JCB，反正游客能用就凑合吧
+

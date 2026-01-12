@@ -1246,3 +1246,11 @@ Nemu的首字母也是N，op里和Nox有渊源，剧中在nox梦中扮自己，�
 
 NOX硬顶了好久伤害
 
+
+*****
+
+####  洛克萨斯  
+##### 599#       发表于 2026-1-13 00:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等离子表现力不如爆星的派生黑洞大王啊
+
