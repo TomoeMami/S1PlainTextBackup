@@ -315,3 +315,18 @@ AGA祖传读心术又发力了
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  madcow  
+##### 1837#       发表于 2026-1-12 20:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69016519&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2026-1-12 20:02</a>
+
+我visa去年12月过期，今年新卡绑不上了只能用游客氪金
+
+卡着了2日元验证，dmm都不卡我
+
+—— 来自 realme R ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">换张mastercard的试试？
+

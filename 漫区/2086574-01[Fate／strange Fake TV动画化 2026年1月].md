@@ -5904,3 +5904,23 @@ fate strange fake世界线就是介于月姬和fate中间，二世事件簿后�
 这部目前感觉最有趣的还是弗兰切斯卡，********的醍醐味可太棒了。 ...</blockquote>
 我就是想看她口牙<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛亚替身  
+##### 560#       发表于 2026-1-12 20:41
+
+ 本帖最后由 洛亚替身 于 2026-1-12 20:42 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69016425&amp;ptid=2086574" target="_blank">酸味苦水 发表于 2026-1-12 19:37</a>
+
+这部目前感觉最有趣的还是弗兰切斯卡，性转+异时空同位体的醍醐味可太棒了。 ...</blockquote>
+横飞姬是有意思，估计是出圈角色，而且看剧透她还立了和弗拉特的恋爱Flag，的确像是成田会整的活<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛亚替身  
+##### 561#       发表于 2026-1-12 20:45
+
+而且炉子精是女大记忆而不是男大让狮心王更油腻了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
