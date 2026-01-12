@@ -164,3 +164,21 @@ https://splatoon.com.cn/pages/55
 
 比较好奇这次对战系统还要变更什么
 
+
+*****
+
+####  shirolin  
+##### 5807#       发表于 2026-1-12 23:33
+
+没有，欧任确定本次更新不含新的武器套装
+
+<img src="https://img.stage1st.com/forum/202601/12/233328zuyb6kkdd9dm9cun.png" referrerpolicy="no-referrer">
+
+<strong>Image_1768218719301.png</strong> (40.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 23:33 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
