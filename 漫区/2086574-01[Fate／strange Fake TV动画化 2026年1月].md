@@ -5763,3 +5763,24 @@ FSN2004年，二世冒险2007年，FSF2008-2009年，解体战2010年-2014年，
 
 其实我觉得完全可以出一部ova仔细梳理一下红a到底经历了什么才成为红a，把其中的故事拍出来，目前不管是漫画还是动画其实都只讲了碎片化的部分。可惜了红a的高人气了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 546#       发表于 2026-1-12 09:13
+
+<blockquote>大耳兽 发表于 2026-1-12 08:17
+其实我觉得完全可以出一部ova仔细梳理一下红a到底经历了什么才成为红a，把其中的故事拍出来，目前不管是漫 ...</blockquote>
+
+红A生前涉及敏感地区吧？怎么写？
+
+
+*****
+
+####  千叶铁矢  
+##### 547#       发表于 2026-1-12 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012816&amp;ptid=2086574" target="_blank">爱吃冻鳗的猫 发表于 2026-1-12 09:13</a>
+红A生前涉及敏感地区吧？怎么写？</blockquote>
+加沙？这下可忠孝两难全了
+
