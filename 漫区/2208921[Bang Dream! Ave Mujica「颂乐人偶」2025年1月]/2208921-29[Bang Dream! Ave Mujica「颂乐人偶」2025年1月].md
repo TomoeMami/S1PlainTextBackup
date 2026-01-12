@@ -151,3 +151,21 @@
 
        [https://t.co/4U5JfFa3Dg](https://t.co/4U5JfFa3Dg)
 
+
+*****
+
+####  Piano-Forest  
+##### 41648#       发表于 2026-1-12 18:37
+
+ 本帖最后由 Piano-Forest 于 2026-1-12 18:41 编辑 
+
+#AveMujica 新作映画のタイトルとティザービジュアルを公開🌙⋆゜
+
+映画「BanG Dream! Ave Mujica prima aurora」
+
+2026年秋公開予定✨
+
+続報をお楽しみに！
+[https://avemujica-movie.bang-dream.com/](https://avemujica-movie.bang-dream.com/)
+[https://youtu.be/nWlLg8jRnUY](https://youtu.be/nWlLg8jRnUY)
+
