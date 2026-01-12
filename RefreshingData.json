@@ -12680,15 +12680,6 @@
     "active": true,
     "update": false
   },
-  "2168423": {
-    "totalreply": 51,
-    "title": "[欢迎来到笑容不断的职场 TV动画化 2025年]",
-    "newtitle": "[欢迎来到笑容不断的职场 TV动画化 2025年]",
-    "lastedit": 1767040088,
-    "category": "漫区",
-    "active": false,
-    "update": false
-  },
   "2252759": {
     "totalreply": 462,
     "title": "[RE9《生化危机安魂曲 ／ Resident Evil Requiem》正式公开，2026年2月27日发售]",
@@ -12903,7 +12894,7 @@
     "lastedit": 1768453140,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2127360": {
     "totalreply": 288,
@@ -13378,15 +13369,6 @@
     "title": "[谭友们有什么买西装的经验吗]",
     "newtitle": "[谭友们有什么买西装的经验吗]",
     "lastedit": 1767105743,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2270698": {
-    "totalreply": 78,
-    "title": "[最近王力宏演唱会爆火才知道2011年他写的反文化入侵的歌]",
-    "newtitle": "[最近王力宏演唱会爆火才知道2011年他写的反文化入侵的歌]",
-    "lastedit": 1767040449,
     "category": "外野",
     "active": false,
     "update": false
@@ -17321,6 +17303,15 @@
     "newtitle": "[《潜水员戴夫》这游戏有点神奇的]",
     "lastedit": 1768223182,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2272103": {
+    "totalreply": 41,
+    "title": "[办公室闹德国小蠊了，求种族灭绝办法]",
+    "newtitle": "[办公室闹德国小蠊了，求种族灭绝办法]",
+    "lastedit": 1768250288,
+    "category": "外野",
     "active": true,
     "update": false
   }
