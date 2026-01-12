@@ -455,3 +455,45 @@ Y_P5YNC)(`KF$~A[]WMX`6W.png
 
 委内瑞拉是苏台德？接下来格陵兰是波兰战役，加拿大是法国战役是吧？
 
+
+*****
+
+####  RaidenII  
+##### 44#       发表于 2026-1-12 20:57
+
+<blockquote>泥鳅 发表于 2026-1-12 07:17
+想想美国白人还有五成多点，光讲英语有将近一半美国人听不懂的bug 不解决下吗？
+
+—— 来自 HONOR PPG-AN00 ...</blockquote>
+
+你的意思是美国除了白人都不说英文？你觉得可能吗？
+
+*****
+
+####  redivan  
+##### 45#       发表于 2026-1-12 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69014849&amp;ptid=2272113" target="_blank">哈利谢顿 发表于 2026-1-12 15:00</a></blockquote>
+
+<img src="https://img.stage1st.com/forum/202601/12/205952cto5c6c25h66r56k.jpg" referrerpolicy="no-referrer">
+
+<strong>Arbeitmachtfrei_01.jpg</strong> (67.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 20:59 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">太棒了，快点端上来吧~
+
+
+*****
+
+####  无念  
+##### 46#       发表于 2026-1-12 21:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69015518&amp;ptid=2272113" target="_blank">兔灾1号 发表于 2026-1-12 16:46</a>
+**汉堡可乐的饮食显然不健康</blockquote>
+这是面包，这是生菜，这是番茄，这是牛肉<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

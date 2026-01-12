@@ -5924,3 +5924,30 @@ fate strange fake世界线就是介于月姬和fate中间，二世事件簿后�
 
 而且炉子精是女大记忆而不是男大让狮心王更油腻了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  酸味苦水  
+##### 562#       发表于 2026-1-12 20:59
+
+<img src="https://img.stage1st.com/forum/202601/12/204348wsosq6gjio8gwo4s.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (176.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 20:43 上传
+
+顺便 OP 这一幕是真的懂，期待内田的颠婆演技多多发力。
+
+*****
+
+####  岸浪白野  
+##### 563#       发表于 2026-1-12 21:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69016686&amp;ptid=2086574" target="_blank">洛亚替身 发表于 2026-1-12 20:41</a>
+横飞姬是有意思，估计是出圈角色，而且看剧透她还立了和弗拉特的恋爱Flag，的确像是成田会整的活 ...</blockquote>
+首先原文这里是隔空向不知道的人道谢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+【办到了﹑办到了，『孔』终于开了！虽然不知道是谁做的，但我都想颁发诺贝尔奖了呢！诺贝尔我个人奖！
+要把高阶吸血种困在幻术里，真的是非常麻烦呢～！我又没有蔷薇魔眼，恐怕非得全力使用宝具不可。不过对付现在的你，我用平常的力量都有剩！把你削弱的那个人，谢谢喔！为了表达感谢，我们之中的一个可以跟你谈恋爱喔！】
+
