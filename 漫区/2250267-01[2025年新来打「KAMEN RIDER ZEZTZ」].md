@@ -1232,3 +1232,17 @@ Nemu的首字母也是N，op里和Nox有渊源，剧中在nox梦中扮自己，�
 
 什么时候能像EA那样直接连续剧起来
 
+
+*****
+
+####  黄泉川此方  
+##### 598#       发表于 2026-1-12 23:43
+
+等离子吃瘪了
+
+回头看了眼等离子初登场
+
+发现速度快是快但刮痧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+NOX硬顶了好久伤害
+
