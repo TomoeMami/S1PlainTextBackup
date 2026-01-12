@@ -842,3 +842,16 @@ wow，真是完全不让我感到意外呢</blockquote>
 
 “社区经理”就类似官方论坛网管而已，在市场部里都不算头，有这权限吗
 
+
+*****
+
+####  Sopp  
+##### 87#       发表于 2026-1-12 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69015815&amp;ptid=2104476" target="_blank">ybfelix 发表于 2026-1-12 17:29</a>
+
+“社区经理”就类似官方论坛网管而已，在市场部里都不算头，有这权限吗</blockquote>
+听着像是吹牛逼
+
+要是Sam Lake说这个话还可信一点
+
