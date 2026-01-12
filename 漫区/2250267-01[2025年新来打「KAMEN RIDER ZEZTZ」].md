@@ -1254,3 +1254,15 @@ NOX硬顶了好久伤害
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等离子表现力不如爆星的派生黑洞大王啊
 
+
+*****
+
+####  pointer243  
+##### 600#       发表于 2026-1-13 03:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69017432&amp;ptid=2250267" target="_blank">洛克萨斯 发表于 2026-1-13 00:58</a>
+等离子表现力不如爆星的派生黑洞大王啊</blockquote>
+黑洞可是高桥的亲爹紫色骑士,这能一样么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
