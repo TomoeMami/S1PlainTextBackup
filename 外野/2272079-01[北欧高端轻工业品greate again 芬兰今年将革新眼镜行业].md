@@ -511,3 +511,25 @@ IXI的这一项目已经吸引了包括Amazon在内的投资者超过365亿美�
 我妈和我舅舅都有这俩毛病</blockquote>
 那这种情况他们现在是怎么弄？有专门的眼镜？
 
+
+*****
+
+####  KDConan  
+##### 45#       发表于 2026-1-12 15:48
+
+我以为老花就是远视，和近视是反着的<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  shizukacai  
+##### 46#         楼主| 发表于 2026-1-12 15:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69015132&amp;ptid=2272079" target="_blank">KDConan 发表于 2026-1-12 15:48</a>
+我以为老花就是远视，和近视是反着的
+
+—— 来自 Xiaomi 23013RK75C, Android 15, 鹅球 v3.5.99 ...</blockquote>
+老花是睫状肌失去调节能力了看近调节不了焦距，远视是婴儿远视储备太多看近的时候睫状肌调节不过来焦距。其实一个意思，远视就是老化，都是睫状肌调节不过来焦距。
+
