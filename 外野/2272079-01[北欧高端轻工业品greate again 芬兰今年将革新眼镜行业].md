@@ -466,3 +466,18 @@ IXI的这一项目已经吸引了包括Amazon在内的投资者超过365亿美�
 
 35mah的电池太小了，350mah勉强够用
 
+
+*****
+
+####  cuslaa  
+##### 42#       发表于 2026-1-12 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012938&amp;ptid=2272079" target="_blank">2035年 发表于 2026-1-12 09:35</a>
+
+同时存在近视和远视的人很少吧？
+
+这玩意能有多少需求？
+
+另外365亿美元投资？这是打错单位了吧 ...</blockquote>
+百亿美元已经是closeai级别了，一个眼镜哪可能骗到这么多
+
