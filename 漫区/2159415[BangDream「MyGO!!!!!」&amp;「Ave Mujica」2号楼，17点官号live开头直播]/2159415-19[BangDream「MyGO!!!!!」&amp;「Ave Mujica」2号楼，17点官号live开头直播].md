@@ -356,3 +356,16 @@ millsage要是真一把日产ibanez一把prs非se，肥肥得去1**了
 
 2026-1-12 20:34 上传
 
+
+*****
+
+####  Victorino  
+##### 27448#       发表于 2026-1-12 21:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69016426&amp;ptid=2159415" target="_blank">曼彻斯特联 发表于 2026-1-12 19:37</a>
+
+他这个新手游，总得有点技术进步吧，别端上来一看发现是单纯的把一款游戏按剧情切成了两款
+
+—— 来自 OneP ...</blockquote>
+感觉是纯粹为了不让备战两年的鸡粉用攒下来的钻
+
