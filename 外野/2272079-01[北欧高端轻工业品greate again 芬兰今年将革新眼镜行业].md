@@ -498,3 +498,16 @@ IXI的这一项目已经吸引了包括Amazon在内的投资者超过365亿美�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  2035年  
+##### 44#       发表于 2026-1-12 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69015042&amp;ptid=2272079" target="_blank">游蜓 发表于 2026-1-12 15:34</a>
+
+近视的人得了老花不就需要了
+
+我妈和我舅舅都有这俩毛病</blockquote>
+那这种情况他们现在是怎么弄？有专门的眼镜？
+
