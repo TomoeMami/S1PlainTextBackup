@@ -75,3 +75,13 @@ https://splatoon.com.cn/pages/55
 
 曼曼又是0p<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shirolin  
+##### 5799#       发表于 2026-1-12 10:44
+
+能明显感受到日本那边喷民的急剧减少。
+
+我现在发新闻想找一张第一时间晒游戏里祭典结果图片，都要刷8分钟推才刷到一张屏摄……
+
