@@ -4117,3 +4117,15 @@ black souls 1
 杀了匹诺曹不影响使用旅馆的，可以直接调查柜台</blockquote>
 问下与角色共度chunxiao有什么条件吗，我小红帽和魔女老师都已经招募进来了，可是调查柜台并没有她们
 
+
+*****
+
+####  zzy516232108  
+##### 353#       发表于 2026-1-12 15:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">我问下
+
+1 steam版补丁哪里下
+
+2 steamdeck能玩吗，能装补丁吗
+

@@ -5864,3 +5864,11 @@ fate strange fake世界线就是介于月姬和fate中间，二世事件簿后�
 在死徒里也是高阶存在对应7阶死徒上级
 那就是在上级里面比较弱的那个，后面因为自己的搞事被金融魔王梵斐姆开除出去旗下实力还要更弱化<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  饭冢武也  
+##### 556#       发表于 2026-1-12 15:38
+
+月姬和fate世界观切割我记得是这个开坑以后的事了
+
