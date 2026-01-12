@@ -594,3 +594,16 @@ IXI的这一项目已经吸引了包括Amazon在内的投资者超过365亿美�
 论坛助手,iPhone</blockquote>
 确实啊，感觉这才是正经需要的
 
+
+*****
+
+####  游蜓  
+##### 52#       发表于 2026-1-12 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69015092&amp;ptid=2272079" target="_blank">2035年 发表于 2026-1-12 15:41</a>
+
+那这种情况他们现在是怎么弄？有专门的眼镜？</blockquote>
+我舅配了那种上面近视下面老花的镜片，不过确实用起来很难受
+
+我妈老花不是很重，自己想办法调整习惯了
+
