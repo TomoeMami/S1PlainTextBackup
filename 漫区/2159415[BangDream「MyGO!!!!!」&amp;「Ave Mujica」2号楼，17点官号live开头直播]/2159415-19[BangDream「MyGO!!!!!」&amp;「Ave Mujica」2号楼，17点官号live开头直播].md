@@ -254,3 +254,31 @@ bang2还是端上来了
 <img src="https://p.sda1.dev/30/ee8879f1e829811f9fc2ec4b26e8fe2b/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/30/0c960c0c228426a3152689f153489e42/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Milarvoz  
+##### 27439#       发表于 2026-1-12 19:36
+
+看来mygo爆火真给武士道尝到引进大厂青训的甜头了。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  曼彻斯特联  
+##### 27440#       发表于 2026-1-12 19:37
+
+他这个新手游，总得有点技术进步吧，别端上来一看发现是单纯的把一款游戏按剧情切成了两款<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  刑部姬真可爱  
+##### 27441#       发表于 2026-1-12 19:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69016386&amp;ptid=2159415" target="_blank">仟音一心 发表于 2026-1-12 19:29</a></blockquote>
+可以，懂事
+

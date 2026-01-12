@@ -5886,3 +5886,21 @@ fate strange fake世界线就是介于月姬和fate中间，二世事件簿后�
 
 搞潜入刺杀的都是邪道
 
+
+*****
+
+####  酸味苦水  
+##### 558#       发表于 2026-1-12 19:37
+
+这部目前感觉最有趣的还是弗兰切斯卡，性转+异时空同位体的醍醐味可太棒了。
+
+*****
+
+####  BlueThree  
+##### 559#       发表于 2026-1-12 19:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69016425&amp;ptid=2086574" target="_blank">酸味苦水 发表于 2026-1-12 19:37</a>
+
+这部目前感觉最有趣的还是弗兰切斯卡，********的醍醐味可太棒了。 ...</blockquote>
+我就是想看她口牙<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
