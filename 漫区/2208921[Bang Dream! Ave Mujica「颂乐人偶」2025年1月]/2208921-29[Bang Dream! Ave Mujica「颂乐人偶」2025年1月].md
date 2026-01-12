@@ -351,3 +351,48 @@ BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes
 
        [https://x.com/bang_dream_info/status/2010660473143017648](https://x.com/bang_dream_info/status/2010660473143017648)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41655#       发表于 2026-1-12 19:09
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/12/190902nvozzvs50m0goool.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-12_19-07-31.jpg</strong> (250.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 19:09 上传
+
+       [https://x.com/bang_dream_info/status/2010664145440629034](https://x.com/bang_dream_info/status/2010664145440629034)
+
+       [https://t.co/VSWYpnEGgj](https://t.co/VSWYpnEGgj)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41656#       发表于 2026-1-12 19:13
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/12/191328om12e6r40w4a2emv.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-12_19-13-01.jpg</strong> (94.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 19:13 上传
+
+       [https://t.bilibili.com/1156962231331586056](https://t.bilibili.com/1156962231331586056)
+
+*****
+
+####  仟音一心  
+##### 41657#       发表于 2026-1-12 19:17
+
+<img src="https://p.sda1.dev/30/91ae87316302cb1986de9454e7134077/image.jpg" referrerpolicy="no-referrer">
+
