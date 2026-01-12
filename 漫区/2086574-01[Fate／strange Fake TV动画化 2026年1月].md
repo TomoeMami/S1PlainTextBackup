@@ -5992,3 +5992,13 @@ fate strange fake世界线就是介于月姬和fate中间，二世事件簿后�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">成田味看最近的亡骸游戏可太熟了，新角色新势力一个接一个的出来刷逼格，铺垫半天打起来一定有人搅局，出场角色能不退场绝对不退场
 
+
+*****
+
+####  岸波白野  
+##### 568#       发表于 2026-1-12 23:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69017075&amp;ptid=2086574" target="_blank">屈江鸟 发表于 2026-1-12 22:38</a>
+成田味看最近的亡骸游戏可太熟了，新角色新势力一个接一个的出来刷逼格，铺垫半天打起来一定有人搅局，出场 ...</blockquote>
+所以他和98混得也好去写bleach小说不是没有道理的<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
