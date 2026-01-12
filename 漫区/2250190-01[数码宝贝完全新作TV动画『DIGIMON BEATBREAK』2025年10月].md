@@ -68,3 +68,20 @@ ed那个果然是新兽，也的确是单角龙新成熟期，喙嘴翼龙
 
 巨岩兽居然在dgg和这作都有露脸啊，待遇这么好<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  hsyg  
+##### 376#       发表于 2026-1-12 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69013457&amp;ptid=2250190" target="_blank">失落之翼 发表于 2026-1-12 10:54</a>
+
+这集证明了有蛋是可以恢复吸EI被冻的人，吸了主角他哥EI的蛋被悟空兽抢了，队长感觉不会不认识五行星尤其是 ...</blockquote>
+之前女同学不就这么救回来的，问题压根不知道蛋去哪里了。
+
+京肯定是不接受这群人才脱离的，玄装之后才加入的，而且还没正面在主角队面前登场更不可能知道了。
+
+他现在完全就是靠以前的人脉在混日子，实际能量有限。不把火逼反改变格局的话，现在主角队距离5行星太远。
+
+估计下一个篇章就是靠火把蛋拿回来叫醒哥哥，这样才能拉够战斗力面对5行星。
+
