@@ -264,3 +264,14 @@ AGA祖传读心术又发力了
 天赋盘子，link系统，调查V2</blockquote>
 打完活动已经在猛刷V2调查了,现在的装备还是有分支选分支比较好对吧？
 
+
+*****
+
+####  江戸前ルナ  
+##### 1832#         楼主| 发表于 2026-1-12 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69013498&amp;ptid=2104259" target="_blank">イクイノックス 发表于 2026-1-12 11:02</a>
+
+打完活动已经在猛刷V2调查了,现在的装备还是有分支选分支比较好对吧？</blockquote>
+现在可不一定了。不少是没活硬整的，建议找找视频看或者在这里具体问<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
