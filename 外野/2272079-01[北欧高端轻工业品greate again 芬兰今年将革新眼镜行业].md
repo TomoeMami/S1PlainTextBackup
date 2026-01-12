@@ -556,3 +556,41 @@ IXI的这一项目已经吸引了包括Amazon在内的投资者超过365亿美�
 现在芬兰的电子消息我都不敢相信了好么</blockquote>
 对了 芬兰诺基亚就要计划生产F135发动机 哈哈
 
+
+*****
+
+####  Freshfish  
+##### 49#       发表于 2026-1-12 16:08
+
+需要供电，可调度数，感觉用在vr/ar眼镜里面正好
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  gnihton314  
+##### 50#       发表于 2026-1-12 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012938&amp;ptid=2272079" target="_blank">2035年 发表于 2026-1-12 09:35</a>
+
+同时存在近视和远视的人很少吧？
+
+这玩意能有多少需求？
+
+另外365亿美元投资？这是打错单位了吧 ...</blockquote>
+搜了下报道，原文是36.5million，小编眼花看成billion了大概
+[https://techcrunch.com/2025/04/2 ... escription-glasses/](https://techcrunch.com/2025/04/28/ixi-raises-36-5m-from-amazon-and-more-to-bring-the-concept-of-autofocus-to-prescription-glasses/)
+
+
+*****
+
+####  2035年  
+##### 51#       发表于 2026-1-12 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69015245&amp;ptid=2272079" target="_blank">Freshfish 发表于 2026-1-12 16:08</a>
+
+需要供电，可调度数，感觉用在vr/ar眼镜里面正好
+
+论坛助手,iPhone</blockquote>
+确实啊，感觉这才是正经需要的
+
