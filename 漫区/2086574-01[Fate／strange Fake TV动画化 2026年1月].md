@@ -5816,3 +5816,28 @@ fate strange fake世界线就是介于月姬和fate中间，二世事件簿后�
 
 —— 来自 Xiaomi M2011K2C, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  格林卡罗尔  
+##### 551#       发表于 2026-1-12 09:56
+
+感觉楼友对fsf的独立性还是缺乏认知，竟然还在讨论和其他型月作品的分歧
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  pokemon最爱  
+##### 552#       发表于 2026-1-12 09:59
+
+说到底FSF本质正经版幻想嘉年华，认真你就输了（确信）
+
+
+*****
+
+####  洛克萨斯  
+##### 553#       发表于 2026-1-12 10:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">算是给成田特供的月姬fate大乱斗嘉年华副本
+

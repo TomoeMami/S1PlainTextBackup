@@ -815,3 +815,14 @@ alan wake相比control更偏avg一点，故事也讲得更晦涩
 
 wow，真是完全不让我感到意外呢
 
+
+*****
+
+####  yxch  
+##### 84#       发表于 2026-1-12 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69013047&amp;ptid=2104476" target="_blank">傲慢的空想家X 发表于 2026-1-12 09:50</a>
+
+wow，真是完全不让我感到意外呢</blockquote>
+卧槽不要啊，我最期待的游戏
+
