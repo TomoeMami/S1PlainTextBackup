@@ -396,3 +396,11 @@ BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes
 
 <img src="https://p.sda1.dev/30/91ae87316302cb1986de9454e7134077/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yone0000  
+##### 41658#       发表于 2026-1-12 20:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">母鸡卡这个第一话就是为了插入祥子前传而安排的
+
