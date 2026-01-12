@@ -49,3 +49,19 @@
 
 意味不明，分出来有什么好处吗
 
+
+*****
+
+####  仟音一心  
+##### 27426#       发表于 2026-1-12 18:54
+
+BanG Dream！ 新作手游 Our Notes 2026年上线 包含MyGO!!!!!、Ave Mujica、梦限大Mewtype。
+新增乐队：millsage、一家Dumb Rock！。
+<img src="https://p.sda1.dev/30/8fdda6d9aeb48355b855741208ae8989/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/c6c9a7c033158a82a1d024211f60f547/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/5ed3dcc8ec22dd3a4ac0dd5a91c7f671/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/006792dd1c98d502ecc9cd769fa2d835/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/ecede9dc9c2353e9c021496fd4e75a55/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/2517a086d296e76e32736a3a23343d46/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/905c33a32780cdbc9742d113c1afbfeb/image.jpg" referrerpolicy="no-referrer">
+

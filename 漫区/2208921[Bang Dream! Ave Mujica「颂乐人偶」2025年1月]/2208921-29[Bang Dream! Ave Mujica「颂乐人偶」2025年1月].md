@@ -169,3 +169,131 @@
 [https://avemujica-movie.bang-dream.com/](https://avemujica-movie.bang-dream.com/)
 [https://youtu.be/nWlLg8jRnUY](https://youtu.be/nWlLg8jRnUY)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41649#       发表于 2026-1-12 18:49
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/12/184610kr8kohtjgddjjar8.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-12_18-42-30.jpg</strong> (221.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 18:46 上传
+
+       [https://x.com/bang_dream_info/status/2010660374677450852](https://x.com/bang_dream_info/status/2010660374677450852)
+
+       [https://t.co/60fx50XrON](https://t.co/60fx50XrON)
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/12/184924tdz37v3zt7h3tn0b.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-12_18-47-01.jpg</strong> (99.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 18:49 上传
+
+       [https://t.bilibili.com/1156959332238098432](https://t.bilibili.com/1156959332238098432)
+
+       <strong>新作剧场版「BanG Dream! Ave Mujica prima aurora」2026年秋正式公开</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202601/12/184908v9j8484l92a99n32.jpg" referrerpolicy="no-referrer">
+
+<strong>a476d59b08a26b419807e502be583ee73fc1451b.jpg</strong> (212.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 18:49 上传
+
+「BanG Dream! It's MyGO!!!!! / Ave Mujica」的续作
+
+新作剧场版动画「BanG Dream! Ave Mujica prima aurora」将于2026年秋季与大家见面。
+
+◆官网（北京时间20时正式公开）
+[https://avemujica-movie.bang-dream.com/](https://avemujica-movie.bang-dream.com/)
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+◆バンドリ！
+
+公式サイト：[https://bang-dream.com/](https://bang-dream.com/)
+
+公式X：[https://x.com/bang_dream_info](https://x.com/bang_dream_info)
+
+◆Ave Mujica
+
+公式YouTubeチャンネル：[https://www.youtube.com/@UCrWC59UUMETuCp9IYUdjVbg](https://www.youtube.com/@UCrWC59UUMETuCp9IYUdjVbg) 
+
+公式X：[https://x.com/BDP_AveMujica](https://x.com/BDP_AveMujica)
+
+◆TVアニメ公式サイト
+
+It's MyGO!!!!!：[https://anime.bang-dream.com/mygo/](https://anime.bang-dream.com/mygo/)
+
+Ave Mujica：[https://anime.bang-dream.com/avemujica/](https://anime.bang-dream.com/avemujica/)
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+#BanGDream# #AveMujica#</blockquote>
+       [https://www.bilibili.com/video/BV1KKreBkEy1](https://www.bilibili.com/video/BV1KKreBkEy1)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41650#       发表于 2026-1-12 18:55
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/12/185514bt2wz0kbdd5qt5e5.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-12_18-54-29.jpg</strong> (182.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 18:55 上传
+
+       [https://x.com/bang_dream_info/status/2010661276171846125](https://x.com/bang_dream_info/status/2010661276171846125)
+
+*****
+
+####  堀内爱里衣  
+##### 41651#       发表于 2026-1-12 18:57
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/12/185744zdaqgzdaxqvg9xaa.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-12_18-56-39.jpg</strong> (150.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 18:57 上传
+
+       [https://x.com/bang_dream_info/status/2010661756155428911](https://x.com/bang_dream_info/status/2010661756155428911)
+
+       [https://t.co/6BOjjQDzx0](https://t.co/6BOjjQDzx0)
+
+       <strong>新作手游「BanG Dream! Our Notes」先行PV</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202601/12/185745rezzrrue2erfqhaq.jpg" referrerpolicy="no-referrer">
+
+<strong>e2daee33719466c129212eb3d03337d2d711e381.jpg</strong> (128.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 18:57 上传
+
+从 MyGO!!!!! Ave Mujica 开始的5个乐队的故事。
+
+BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes」
+
+将于 2026年 正式与大家见面。</blockquote>
+       [https://www.bilibili.com/video/BV1tNreBGE5x](https://www.bilibili.com/video/BV1tNreBGE5x)
+
