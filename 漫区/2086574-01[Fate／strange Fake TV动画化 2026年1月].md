@@ -5849,3 +5849,18 @@ fate strange fake世界线就是介于月姬和fate中间，二世事件簿后�
 
 同人转正之作<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  岸浪白野  
+##### 555#       发表于 2026-1-12 15:29
+
+ 本帖最后由 岸浪白野 于 2026-1-12 15:32 编辑 
+
+各种元素擦边球就像ED表现的混点骷髅的爆米花罢了，说实话不能真叫这2个大乱斗
+说到底写杰斯塔的时候又没给成田通月姬R已经给死徒分了9阶的设定
+导致杰斯塔也就在FSF片场能成绩好点了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+是弗兰切斯卡说她是高阶吸血种再是靠7卷用西格玛的话给她找补一句
+在死徒里也是高阶存在对应7阶死徒上级
+那就是在上级里面比较弱的那个，后面因为自己的搞事被金融魔王梵斐姆开除出去旗下实力还要更弱化<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
