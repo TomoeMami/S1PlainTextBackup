@@ -533,3 +533,26 @@ IXI的这一项目已经吸引了包括Amazon在内的投资者超过365亿美�
 —— 来自 Xiaomi 23013RK75C, Android 15, 鹅球 v3.5.99 ...</blockquote>
 老花是睫状肌失去调节能力了看近调节不了焦距，远视是婴儿远视储备太多看近的时候睫状肌调节不过来焦距。其实一个意思，远视就是老化，都是睫状肌调节不过来焦距。
 
+
+*****
+
+####  nice女武神  
+##### 47#       发表于 2026-1-12 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012922&amp;ptid=2272079" target="_blank">星花 发表于 2026-1-12 09:32</a>
+
+这好东西啊。</blockquote>
+现在树脂眼镜都嫌重  这种又是电池又是摄像头 还有led的眼镜  ﹃_﹃〣 
+
+*****
+
+####  nice女武神  
+##### 48#       发表于 2026-1-12 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69013092&amp;ptid=2272079" target="_blank">真草稚京 发表于 2026-1-12 09:57</a>
+
+前2天才芬兰固态电池
+
+现在芬兰的电子消息我都不敢相信了好么</blockquote>
+对了 芬兰诺基亚就要计划生产F135发动机 哈哈
+
