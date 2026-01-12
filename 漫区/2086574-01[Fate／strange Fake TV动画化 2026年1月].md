@@ -5743,3 +5743,13 @@ FSN2004年，二世冒险2007年，FSF2008-2009年，解体战2010年-2014年，
 其实说到这种事杂志TMA15的就已经官方自己列过一遍图
 <img src="https://p.sda1.dev/30/7bc0d62cbd0b7c79683a84932a14afec/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KDConan  
+##### 544#       发表于 2026-1-12 08:02
+
+是我第二喜欢的月世界战设定讨论<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
