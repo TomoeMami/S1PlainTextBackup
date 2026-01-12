@@ -282,3 +282,25 @@ bang2还是端上来了
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69016386&amp;ptid=2159415" target="_blank">仟音一心 发表于 2026-1-12 19:29</a></blockquote>
 可以，懂事
 
+
+*****
+
+####  wolf1997  
+##### 27442#       发表于 2026-1-12 19:54
+
+有个乐队朋友在ICON上头
+
+青春不变  名字叫做皇后
+
+每次更新随我到处去奔走
+
+面上表情凝固 却汇聚成就
+
+知己一声拜拜远去这游戏
+
+要靠人气新秀搞搞新意思
+
+照玩照冲乐榜处处有烧烤
+
+但是应用可能要换换名字
+
