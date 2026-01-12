@@ -497,3 +497,14 @@ Y_P5YNC)(`KF$~A[]WMX`6W.png
 
 —— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  bartholo4  
+##### 47#       发表于 2026-1-12 21:41
+
+汉堡非常健康
+可乐还能治感冒！
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

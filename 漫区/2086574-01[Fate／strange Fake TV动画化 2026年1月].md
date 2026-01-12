@@ -5974,3 +5974,13 @@ fate strange fake世界线就是介于月姬和fate中间，二世事件簿后�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">话说现在剧情到哪了？我上次看的时候还是二世徒弟那条线的决战，打完了吗
 
+
+*****
+
+####  cowgp01  
+##### 566#       发表于 2026-1-12 21:44
+
+<blockquote>阿刚 发表于 2026-1-12 21:34
+话说现在剧情到哪了？我上次看的时候还是二世徒弟那条线的决战，打完了吗 ...</blockquote>
+伊什塔退场，仇海天风一闪夺舍天之公牛，成田说下本完结
+
