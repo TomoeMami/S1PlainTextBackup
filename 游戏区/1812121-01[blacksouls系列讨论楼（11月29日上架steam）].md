@@ -4129,3 +4129,19 @@ black souls 1
 
 2 steamdeck能玩吗，能装补丁吗
 
+
+*****
+
+####  荆棘花冠  
+##### 354#       发表于 2026-1-12 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69015106&amp;ptid=1812121" target="_blank">zzy516232108 发表于 2026-1-12 15:43</a>
+我问下
+
+1 steam版补丁哪里下
+
+2 steamdeck能玩吗，能装补丁吗</blockquote>
+otaku官网    deck摇杆无效，pc老实点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
