@@ -431,3 +431,18 @@ https://youtu.be/5WADdjK7taE
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  plok201  
+##### 27454#       发表于 2026-1-13 06:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69016259&amp;ptid=2159415" target="_blank">cxj649 发表于 2026-1-12 19:05</a>
+
+思路可以理解，但是干吗老游去掉狗团233</blockquote>
+迟早都要切割的，去掉的好处太多了，一个是吸引人去玩新手游，要不靠管人团和新人团也撑不起人气
+
+一个确实和他说的一样，团太多了，轮换轮不到，说到底wsd再蠢也知道鸡狗2个团吸来的粉丝是另一批人了
+
+爽快切割总比藕断丝导致2个游戏人设打架最后成了两头堵好
+
