@@ -5753,3 +5753,13 @@ FSN2004年，二世冒险2007年，FSF2008-2009年，解体战2010年-2014年，
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  大耳兽  
+##### 545#       发表于 2026-1-12 08:17
+
+ 本帖最后由 大耳兽 于 2026-1-12 08:18 编辑 
+
+其实我觉得完全可以出一部ova仔细梳理一下红a到底经历了什么才成为红a，把其中的故事拍出来，目前不管是漫画还是动画其实都只讲了碎片化的部分。可惜了红a的高人气了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。
+
