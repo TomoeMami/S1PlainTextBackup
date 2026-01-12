@@ -275,3 +275,13 @@ AGA祖传读心术又发力了
 打完活动已经在猛刷V2调查了,现在的装备还是有分支选分支比较好对吧？</blockquote>
 现在可不一定了。不少是没活硬整的，建议找找视频看或者在这里具体问<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1833#       发表于 2026-1-12 15:27
+
+阿金那个氪金网站有点东西的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天去DMM给砍口垒氪戒指都直接更新visa信息绑上了，我不死心又去试了下还是不成功
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

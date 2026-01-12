@@ -481,3 +481,20 @@ IXI的这一项目已经吸引了包括Amazon在内的投资者超过365亿美�
 另外365亿美元投资？这是打错单位了吧 ...</blockquote>
 百亿美元已经是closeai级别了，一个眼镜哪可能骗到这么多
 
+
+*****
+
+####  游蜓  
+##### 43#       发表于 2026-1-12 15:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012938&amp;ptid=2272079" target="_blank">2035年 发表于 2026-1-12 09:35</a>
+同时存在近视和远视的人很少吧？
+
+这玩意能有多少需求？
+
+另外365亿美元投资？这是打错单位了吧 ...</blockquote>
+近视的人得了老花不就需要了
+我妈和我舅舅都有这俩毛病
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
