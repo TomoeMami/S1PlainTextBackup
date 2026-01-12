@@ -5841,3 +5841,11 @@ fate strange fake世界线就是介于月姬和fate中间，二世事件簿后�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">算是给成田特供的月姬fate大乱斗嘉年华副本
 
+
+*****
+
+####  大耳兽  
+##### 554#       发表于 2026-1-12 10:26
+
+同人转正之作<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">。
+
