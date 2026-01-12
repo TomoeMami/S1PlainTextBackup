@@ -65,3 +65,87 @@ BanG Dream！ 新作手游 Our Notes 2026年上线 包含MyGO!!!!!、Ave Mujica�
 <img src="https://p.sda1.dev/30/2517a086d296e76e32736a3a23343d46/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/30/905c33a32780cdbc9742d113c1afbfeb/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 27427#       发表于 2026-1-12 18:59
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/12/185855xv5snsmv4hc55vv3.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-12_18-56-47.jpg</strong> (167.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 18:58 上传
+
+       [https://x.com/bang_dream_info/status/2010661756155428911](https://x.com/bang_dream_info/status/2010661756155428911)
+
+       [https://t.co/6BOjjQDzx0](https://t.co/6BOjjQDzx0)
+
+       <strong>新作手游「BanG Dream! Our Notes」先行PV</strong> <blockquote><img src="https://img.stage1st.com/forum/202601/12/185745rezzrrue2erfqhaq.jpg" referrerpolicy="no-referrer">
+
+从 MyGO!!!!! Ave Mujica 开始的5个乐队的故事。
+
+BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes」
+
+将于 2026年 正式与大家见面。</blockquote>
+      [https://www.bilibili.com/video/BV1tNreBGE5x](https://www.bilibili.com/video/BV1tNreBGE5x)
+
+*****
+
+####  刑部姬真可爱  
+##### 27428#       发表于 2026-1-12 19:01
+
+邦高祖ksm，光武帝高松灯
+
+*****
+
+####  6030sylar  
+##### 27429#       发表于 2026-1-12 19:01
+
+bang2还是端上来了
+
+—— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  cxj649  
+##### 27430#       发表于 2026-1-12 19:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">思路可以理解，但是干吗老游去掉狗团233
+
+*****
+
+####  凱風快晴  
+##### 27431#       发表于 2026-1-12 19:06
+
+出新团了还是两个
+
+<img src="https://img.stage1st.com/forum/202601/12/190625ufij4cch8kbll1zi.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1768215882739_6.jpg</strong> (172.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 19:06 上传
+
+<img src="https://img.stage1st.com/forum/202601/12/190625islhl716736xjjvp.png" referrerpolicy="no-referrer">
+
+<strong>Image_1768215881147_6.png</strong> (83.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 19:06 上传
+
+<img src="https://img.stage1st.com/forum/202601/12/190626c1ivdq90wn9v1kkz.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1768215879256_267.jpg</strong> (157.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 19:06 上传
+
