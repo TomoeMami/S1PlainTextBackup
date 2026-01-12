@@ -295,3 +295,11 @@ AGA祖传读心术又发力了
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  madcow  
+##### 1835#       发表于 2026-1-12 19:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">阿金那个网站不是要挂梯上的嘛，我绑了下信用卡氪了两活动礼包没问题啊（？
+
