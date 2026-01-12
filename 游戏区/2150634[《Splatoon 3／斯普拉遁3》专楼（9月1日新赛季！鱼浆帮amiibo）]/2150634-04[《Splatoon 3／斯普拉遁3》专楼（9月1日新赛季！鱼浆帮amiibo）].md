@@ -67,3 +67,11 @@ https://splatoon.com.cn/pages/55
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  墨染白泉  
+##### 5798#       发表于 2026-1-12 10:14
+
+曼曼又是0p<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
