@@ -404,3 +404,23 @@ BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">母鸡卡这个第一话就是为了插入祥子前传而安排的
 
+
+*****
+
+####  堀内爱里衣  
+##### 41659#       发表于 2026-1-12 20:33
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/12/203325mnogkxoh2x72oe2k.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-12_20-31-54.jpg</strong> (234.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-12 20:33 上传
+
+       [https://x.com/bang_dream_info/status/2010684581163483545](https://x.com/bang_dream_info/status/2010684581163483545)
+
+       [https://t.co/SrWfVmCOuU](https://t.co/SrWfVmCOuU)
+
