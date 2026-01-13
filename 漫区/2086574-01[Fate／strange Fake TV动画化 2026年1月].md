@@ -6117,3 +6117,17 @@ fate线罗亚是基督山打死的啊
 月姬世界人理弱小，不会诞生人类恶beast，没有beast不会有冠位决战术式，没有 ...</blockquote>
 迦勒底的召唤能成立本身就建立在异闻带No.0上，所以除了fgo就不存在迦勒底，更不能用迦勒底的方式召唤
 
+
+*****
+
+####  姬茧墨  
+##### 579#       发表于 2026-1-13 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69019033&amp;ptid=2086574" target="_blank">シャル 发表于 2026-1-13 12:17</a>
+
+这里不能召唤英灵是原因的
+
+月姬世界人理弱小，不会诞生人类恶beast，没有beast不会有冠位决战术式，没有 ...</blockquote>
+你这纯脑补了，就你菌最近的态度爱抚鸡欧都不给划进泛人类史了，还要倒推回主世界线
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">而且这本来就不重要的一个背景设置，菌类自己都只给你最后表达出来的结果，不知道为什么楼友一直纠结这个点
+
