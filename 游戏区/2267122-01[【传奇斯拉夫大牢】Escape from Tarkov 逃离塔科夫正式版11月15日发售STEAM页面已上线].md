@@ -9,3 +9,14 @@
 s1的没找到，但是有个隔壁泥潭的讨论群：769797514</blockquote>
 这个是哪个隔壁
 
+
+*****
+
+####  Emcylla  
+##### 162#       发表于 2026-1-13 17:21
+
+dlss4.5感觉不如4.0
+l和m预设相较于k预设画质下降了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
