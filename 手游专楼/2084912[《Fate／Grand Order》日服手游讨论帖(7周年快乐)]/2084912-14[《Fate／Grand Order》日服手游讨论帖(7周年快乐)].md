@@ -12120,3 +12120,78 @@ saber的冻龄承担责任+棉被
 楼友说笑了，单纯之前呆毛拉满了纠结着这个也拉满，还被朋友欧气刺激了，反正也算是10周年2个周年从者都拉满了
 而且现在冠呆其实就是当个拐<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yugao  
+##### 20387#       发表于 2026-1-11 09:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全部剧情打完了，意思是现在整个迦勒底都被收编去当阿赖耶黑奴了意思是，要摇个冠位来当监工，再这样下去第三部怕不是要打星球UO
+
+*****
+
+####  Jamaisvu  
+##### 20388#       发表于 2026-1-13 10:48
+
+看了隔壁邦高祖和邦世祖的故事，备受启发，整个烂活：
+
+来自『Fate/Grand Order』总监督的一封信：
+
+一直以来承蒙大家对Fate/Grand Order企划的支持，谨致以最诚挚的感谢。我是Fate/Grand Order总监督奈须茸。
+
+在2月30日举行的TYPE-MOON新春大发表会2026上，我们将公布全新手游《Fate/Crescent Oblivion Moonstruck Eternal
+
+》的相关情报，在此向一直支持《Fate/Grand Order》的各位，说明今后Fate/Grand Order企划的发展方向，特此致函。
+
+自2015年上线以来，《Fate/Grand Order》即将迎来第11个周年。在这漫长的岁月里，御主和英灵们在特异点和异闻带上不断培养羁绊、拯救人理，使得整个迦勒底的表现空间在138亿光年内首屈一指。
+
+正因长期打下的基础，才联动了空之境界、Fate/Zero、Fate/kaleid liner、Fate/EXTRA CCC、Fate/Apocrypha、君主·埃尔梅罗II世事件簿、Fate/Requiem、Fate/Grand Order Waltz、Fate/Grand Order Arcade、魔法使之夜等非同寻常的佳作。但与此同时，随着企划规模不断扩大，我们也面临着一个重大的课题——如果继续在《Fate/Grand Order》中增加新的英灵，可能会导致各活动复刻周期被拉长，或单个角色的描写密度被削弱。
+
+此外目前正在铺垫的月姬与Fate/strange fake在设定与背景上是彼此密不可分、无法割裂的存在。
+
+我们反复思考，如何才能以最合适的方式、并以最高的密度，将所有角色的故事完整呈现。最终我们判断：将月姬、Fate/strange fake、MELTY BLOOD、Fate/Prototype、Fate/EXTELLA从《Fate/Grand Order》中独立出来，在新的舞台上展开，是最理想的选择。
+
+今后的展开将如下所示：
+
+《Fate/Grand Order》
+
+将继续在FGO的故事基础上，并且比以往更加用心地描绘以下作品的故事：
+
+空之境界、Fate/Zero、Fate/kaleid liner、Fate/EXTRA CCC、Fate/Apocrypha、君主·埃尔梅罗II世事件簿、Fate/Requiem、Fate/Grand Order Waltz、Fate/Grand Order Arcade、魔法使之夜共10部作品。
+
+《Fate/Crescent Oblivion Moonstruck Eternal》
+
+将通过全新的视角与玩法描绘月姬、Fate/strange fake，以及新加入的MELTY BLOOD、Fate/Prototype以及Fate/EXTELLA的故事。
+
+※月姬、Fate/strange fake今后不会在《Fate/Grand Order》中实装全新从者，但角色仍将出现在复刻卡池、周年福袋甚至限时活动中。
+
+今后的Fate/Grand Order企划，将通过《Fate/Grand Order》与《Fate/Crescent Oblivion Moonstruck Eternal》两款手游，以及动画、漫画、短视频以及Fes.线下活动等多种形式持续拓展。
+
+我们并不会将一切内容集中在某一个平台，而是坚持在不同的舞台上，讲述各自的故事——这一理念永远不会改变。
+
+月世界的故事，将持续为御主们呈现。
+
+衷心希望大家今后也能继续温暖地支持Fate/Grand Order系列的新企划，以及即将在明年迎来11周年的《Fate/Grand Order》！
+
+还请多多关照。
+
+奈须国广
+
+*****
+
+####  qucqee  
+##### 20389#       发表于 2026-1-13 11:12
+
+2月30是怎么个意思？我这辈子还没过过2月30呢
+
+*****
+
+####  Jamaisvu  
+##### 20390#       发表于 2026-1-13 11:34
+
+<blockquote>qucqee 发表于 2026-1-13 11:12
+2月30是怎么个意思？我这辈子还没过过2月30呢</blockquote>
+毕竟索尼目前没有像bangdream那样，让TM另起炉灶搞新fate手游。二创整活一般要避免真实日期，正好现在是2月嘛，有连续不存在的两天...
+
+但话不能说死，万一1.17生放送也搞这一套，我只能说奈须蘑菇和柿本广大果真是苦命鸳鸯啊...
+
