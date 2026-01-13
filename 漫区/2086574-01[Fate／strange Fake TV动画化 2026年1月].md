@@ -6211,3 +6211,18 @@ fsf小说我看到苍白骑士下线就没看了，印象中杰斯塔是个很�
 
 fate搞那么多部其实内核是美漫重启啦，只不过美漫编剧拉下脸要带着人气角色的一生一起重启，搞个平行宇宙重新刻画，到了蘑菇这边就变成用差不多的设定和新的人物来重启，老想着前后关系什么的最后肯定被这个阴湿鬼打脸的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 587#       发表于 2026-1-13 16:36
+
+ 本帖最后由 岸浪白野 于 2026-1-13 16:38 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69020303&amp;ptid=2086574" target="_blank">シャル 发表于 2026-1-13 16:20</a>
+可以的，猫arc就复制了迦勒底召唤式把从者给召唤出来了，不用盾也行啊、还能战斗即时召唤
+
+而且melty blo ...</blockquote>
+上面是表达迦勒底式召唤只有fgo的迦勒底会用和知道怎么改进不是换个世界都知道怎么用的东西
+还有猫姬召唤fgo乱入是表达世界的墙壁被打破，也没否决过呆毛能被召唤和猫姬能召唤
+这问题的核心是月姬世界的人没有搞英灵召唤的想法，没有解释也不用多想，不是脑补的理由<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
