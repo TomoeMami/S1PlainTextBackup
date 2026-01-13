@@ -6278,3 +6278,11 @@ fate搞那么多部其实内核是美漫重启啦，只不过美漫编剧拉下�
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zqqwe  
+##### 593#       发表于 2026-1-13 18:09
+
+剧情里杰斯塔有被逼出本体吗？当年愚人节短篇时期看到本体是男装丽人的设定就很期待<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
