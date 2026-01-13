@@ -68,3 +68,16 @@
 
 顺便回楼上两位，没有付费石了，买就是花一百元
 
+
+*****
+
+####  flyzzhj  
+##### 47698#       发表于 2026-1-13 08:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69007296&amp;ptid=1712412" target="_blank">无事忙 发表于 2026-1-10 18:35</a>
+
+各位帮忙参谋参谋现在这个福袋还买不买呢？
+
+本来的打算：买最好的那个，但是我已经学姐2月披2提妈3了，所以 ...</blockquote>
+没必要啊，如果有需求，不会来这里问，早买了
+
