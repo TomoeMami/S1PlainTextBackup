@@ -6172,3 +6172,16 @@ fate线罗亚是基督山打死的啊
 而且这广播剧是月姬R之前出来的，罗亚现在是6阶下级死徒实力
 【【熟肉】FGO 英灵传承轶闻~ 岩窟王爱德蒙•唐泰斯~Drama CD-哔哩哔哩】 https://b23.tv/TLTUPXK
 
+
+*****
+
+####  失落之翼  
+##### 583#       发表于 2026-1-13 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69011949&amp;ptid=2086574" target="_blank">空彦秋 发表于 2026-1-11 22:26</a>
+
+果然这楼里会有很多资深月丑
+
+fsf小说我看到苍白骑士下线就没看了，印象中杰斯塔是个很谐的角色，天天想着折 ...</blockquote>
+杰斯塔本体也是女的吧，另一个意义上的“横飞”姬<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
