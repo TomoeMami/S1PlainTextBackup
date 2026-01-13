@@ -3038,3 +3038,11 @@ dlc这个毒村的锻造炉在哪点火啊，捡了黄金大弓想换个战技�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  dydqydz  
+##### 2074#       发表于 2026-1-13 09:25
+
+这七仙女buff真玄学，队友能连生效三次，轮到我就要区着等救<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
