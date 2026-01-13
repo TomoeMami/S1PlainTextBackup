@@ -594,3 +594,14 @@ https://i0.hdslb.com/bfs/new_dyn/7868a6f3d776d7e3d95be2d0986ada3c99142218.png@10
 
 Anschluss
 
+
+*****
+
+####  全面回忆的痛苦  
+##### 56#       发表于 2026-1-14 00:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69014864&amp;ptid=2272113" target="_blank">52756901 发表于 2026-1-12 15:03</a>
+
+真的假的，纳粹口号改都不改拿过来用了么</blockquote>
+和美国比，德纳才是学生。德纳本来就是照搬美国二三十年代的那一套的。
+
