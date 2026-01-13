@@ -6266,3 +6266,15 @@ fate搞那么多部其实内核是美漫重启啦，只不过美漫编剧拉下�
 
 漫画还有在更吗，我记得我很久很久没关注了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KDConan  
+##### 592#       发表于 2026-1-13 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69020655&amp;ptid=2086574" target="_blank">失落之翼 发表于 2026-1-13 17:21</a>
+漫画还有在更吗，我记得我很久很久没关注了</blockquote>
+26话正版，不傲娇的那个啥登场，很久没更新了
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
