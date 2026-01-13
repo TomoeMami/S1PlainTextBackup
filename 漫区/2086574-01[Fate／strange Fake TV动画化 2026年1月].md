@@ -6258,3 +6258,11 @@ fate搞那么多部其实内核是美漫重启啦，只不过美漫编剧拉下�
 第4集就已经是第三卷开头</blockquote>
 进度比想象的快
 
+
+*****
+
+####  失落之翼  
+##### 591#       发表于 2026-1-13 17:21
+
+漫画还有在更吗，我记得我很久很久没关注了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
