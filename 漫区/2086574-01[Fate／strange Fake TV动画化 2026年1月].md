@@ -6093,3 +6093,15 @@ fate线罗亚是基督山打死的啊
 
 这么一想fgo其实是拳皇，虽然是snk大乱斗，但是有自己的主线。
 
+
+*****
+
+####  Rincewind  
+##### 577#       发表于 2026-1-13 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69019145&amp;ptid=2086574" target="_blank">hosilly 发表于 2026-1-13 12:32</a>
+好喜欢狂信子啊，有一种禁欲系未亡人的感觉，还有种易碎感，好美味啊啊啊
+
+—— 来自 vivo V2454DA, Androi ...</blockquote>
+野生的六连男装变态出现了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
