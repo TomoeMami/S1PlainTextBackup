@@ -519,3 +519,15 @@ Y_P5YNC)(`KF$~A[]WMX`6W.png
 有这么一个人，他祖上有日耳曼血统。他的饮食非常健康，生活规律，没有不良嗜好，只喜欢金发碧眼大长腿。靠 ...</blockquote>
 饮食非常健康？那肯定不是ykw
 
+
+*****
+
+####  泥鳅  
+##### 49#       发表于 2026-1-13 18:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69016758&amp;ptid=2272113" target="_blank">RaidenII 发表于 2026-1-12 20:57</a>
+你的意思是美国除了白人都不说英文？你觉得可能吗？</blockquote>
+那就看谁占主流了，美国南部很多州是西班牙语的天下，逼得奶龙这次上台发布法律把英语定为官方语言，这波要是无法阻止拉美移民继续占领美国的话，十年后呢？二十年后呢？
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
