@@ -12195,3 +12195,58 @@ saber的冻龄承担责任+棉被
 
 但话不能说死，万一1.17生放送也搞这一套，我只能说奈须蘑菇和柿本广大果真是苦命鸳鸯啊...
 
+
+*****
+
+####  シャル  
+##### 20391#       发表于 2026-1-13 16:34
+
+<blockquote>高木なつめ 发表于 2026-1-9 16:28
+越来越想抽玛丽斯了能不能实装给我抽啊这个臭小鬼太可爱了</blockquote>
+去年公布黑影从者最后一个就她了
+
+*****
+
+####  岸浪白野  
+##### 20392#       发表于 2026-1-13 17:04
+
+ 本帖最后由 岸浪白野 于 2026-1-13 17:08 编辑 
+
+要紫罗兰来了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/0edc18377f7d38145c08f926d9fbc2f1/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/434dab6dcc6d294fa0866f989c382719/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 20393#       发表于 2026-1-13 17:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随意 反正现在0石0呼符
+
+*****
+
+####  シャル  
+##### 20394#       发表于 2026-1-13 17:12
+
+<blockquote>岸浪白野 发表于 2026-1-13 17:04
+要紫罗兰来了吗</blockquote>
+就是，樱5就差她了
+
+*****
+
+####  岸浪白野  
+##### 20395#       发表于 2026-1-13 17:14
+
+过了后日谈才能看活动剧情，过序章只能打活动free本<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/30/01c22c5817bb919919ad495d7ddd7c58/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 20396#       发表于 2026-1-13 17:14
+
+樱系从者全是加成角色，大概率是紫罗兰。
+
+（不过她的合成素材—美杜莎和美露莘—没有戏份...）
+
+话说武藏也在加成角色里面，该不会是要随随便便地复活了吧？
+
