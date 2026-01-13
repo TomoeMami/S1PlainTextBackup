@@ -6159,3 +6159,16 @@ fate线罗亚是基督山打死的啊
 
 人类时期的伯爵居然可以打得过高阶死徒吗，这么猛啊。
 
+
+*****
+
+####  岸浪白野  
+##### 582#       发表于 2026-1-13 15:38
+
+ 本帖最后由 岸浪白野 于 2026-1-13 15:41 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69020084&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-1-13 15:35</a>
+人类时期的伯爵居然可以打得过高阶死徒吗，这么猛啊。</blockquote>
+你不用在这各种惊呼了，自己去看一遍吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且这广播剧是月姬R之前出来的，罗亚现在是6阶下级死徒实力
+【【熟肉】FGO 英灵传承轶闻~ 岩窟王爱德蒙•唐泰斯~Drama CD-哔哩哔哩】 https://b23.tv/TLTUPXK
+
