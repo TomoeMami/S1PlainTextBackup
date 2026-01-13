@@ -12250,3 +12250,38 @@ saber的冻龄承担责任+棉被
 
 话说武藏也在加成角色里面，该不会是要随随便便地复活了吧？
 
+
+*****
+
+####  alucardcz  
+##### 20397#       发表于 2026-1-13 17:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到无料召唤x2的绿字提示以为普池又开了 点进去结果是免费友情x2
+
+*****
+
+####  khxooo  
+##### 20398#       发表于 2026-1-13 17:47
+
+应该是紫罗兰了。
+
+*****
+
+####  壳壳牛  
+##### 20399#       发表于 2026-1-13 18:22
+
+玩家想到的，舍弃<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 20400#       发表于 2026-1-13 18:27
+
+ 本帖最后由 exiaexa 于 2026-1-13 18:29 编辑 
+
+看到这么多樱系，我第一反应是又可以省钱了
+
+毕竟樱系的角色实用性……
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
