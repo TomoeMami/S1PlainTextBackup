@@ -6151,3 +6151,11 @@ fate线罗亚是基督山打死的啊
 <img src="https://p.sda1.dev/30/ffaabf271b84cd9ded0674e39072134c/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/30/b2f2306a022ebfacdb57882503b9fd8b/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大耳兽  
+##### 581#       发表于 2026-1-13 15:35
+
+人类时期的伯爵居然可以打得过高阶死徒吗，这么猛啊。
+
