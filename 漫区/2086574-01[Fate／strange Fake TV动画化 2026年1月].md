@@ -6075,3 +6075,13 @@ fate线罗亚是基督山打死的啊
 
 但是迦勒底召唤式应该可以召唤的，这玩意非法的
 
+
+*****
+
+####  hosilly  
+##### 575#       发表于 2026-1-13 12:32
+
+好喜欢狂信子啊，有一种禁欲系未亡人的感觉，还有种易碎感，好美味啊啊啊<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2454DA, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
