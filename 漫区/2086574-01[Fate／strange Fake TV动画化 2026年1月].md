@@ -6131,3 +6131,23 @@ fate线罗亚是基督山打死的啊
 你这纯脑补了，就你菌最近的态度爱抚鸡欧都不给划进泛人类史了，还要倒推回主世界线
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">而且这本来就不重要的一个背景设置，菌类自己都只给你最后表达出来的结果，不知道为什么楼友一直纠结这个点
 
+
+*****
+
+####  岸浪白野  
+##### 580#       发表于 2026-1-13 15:14
+
+ 本帖最后由 岸浪白野 于 2026-1-13 15:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69019033&amp;ptid=2086574" target="_blank">シャル 发表于 2026-1-13 12:17</a>
+这里不能召唤英灵是原因的
+
+月姬世界人理弱小，不会诞生人类恶beast，没有beast不会有冠位决战术式，没有 ...</blockquote>
+求求你们别脑补这么多了，你们蘑菇给月姬没有英灵召唤的理由这么多年只是简单一句:
+一边是英灵能作为从者被使役的Fate世界，
+另一边则是“像英灵这么强大的概念，怎么可能塞进‘自律使魔’这种术式里啊”的月姬世界
+问就是不做解释，你自己去问为什么虫爷没去整成为假说了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还有迦勒底式召唤只是冬木式召唤的改进，核心是圆桌盾触媒和咕哒的因缘，你是猫姬在月姬格斗里拿个圆桌盾连接灵脉就能招从者吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/ec8c73b6dcb56c783e7d3587774248cf/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/ffaabf271b84cd9ded0674e39072134c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/b2f2306a022ebfacdb57882503b9fd8b/image.jpg" referrerpolicy="no-referrer">
+
