@@ -6245,3 +6245,16 @@ fate搞那么多部其实内核是美漫重启啦，只不过美漫编剧拉下�
 12集结尾做到闪闪暂时下线你信吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 第4集就已经是第三卷开头
 
+
+*****
+
+####  八坂真寻  
+##### 590#       发表于 2026-1-13 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69020443&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-1-13 16:47</a>
+
+13集结尾做到闪闪暂时下线你信吗
+
+第4集就已经是第三卷开头</blockquote>
+进度比想象的快
+

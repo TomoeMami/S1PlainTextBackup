@@ -689,3 +689,41 @@ IXI的这一项目已经吸引了包括Amazon在内的投资者超过365亿美�
 
 但是顶楼这玩要还是要几个冤大头花个几千上万去试一下，然后等国产。
 
+
+*****
+
+####  剑鹰  
+##### 59#       发表于 2026-1-13 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69013384&amp;ptid=2272079" target="_blank">2035年 发表于 2026-1-12 10:42</a>
+
+啊？我之前听人说近视人年纪大了之后，只是近视会慢慢度数降低，然后变成老花
+
+没想到会变成两种状态并存 ...</blockquote>
+会抵消一定的近视度数<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2035年  
+##### 60#       发表于 2026-1-13 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69020501&amp;ptid=2272079" target="_blank">剑鹰 发表于 2026-1-13 16:56</a>
+
+会抵消一定的近视度数</blockquote>
+搜了一下，大概能抵消200度，说不定我刚好能抵消<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一仔  
+##### 61#       发表于 2026-1-13 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012938&amp;ptid=2272079" target="_blank">2035年 发表于 2026-1-12 09:35</a>
+
+同时存在近视和远视的人很少吧？
+
+这玩意能有多少需求？
+
+另外365亿美元投资？这是打错单位了吧 ...</blockquote>
+可难受死了，这几年开始老花，去年开始严重。看手机要把眼睛摘下来，看远又要戴上，麻烦死了
+
