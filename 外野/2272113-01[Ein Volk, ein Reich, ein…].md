@@ -572,3 +572,15 @@ NAIVE！
 
 还南部很多州是西语的天下，你去过几个？
 
+
+*****
+
+####  jago2051  
+##### 54#       发表于 2026-1-13 22:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69014676&amp;ptid=2272113" target="_blank">MR骑士道MKⅦ 发表于 2026-1-12 14:33</a>
+https://i0.hdslb.com/bfs/new_dyn/7868a6f3d776d7e3d95be2d0986ada3c99142218.png@1052w_!web-dynamic.a ...</blockquote>
+<img src="https://p.sda1.dev/30/b0edf005d49b240a47d21cd9ca2952b0/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
