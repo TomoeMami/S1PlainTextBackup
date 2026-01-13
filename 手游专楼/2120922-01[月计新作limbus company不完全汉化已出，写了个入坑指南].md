@@ -129,3 +129,21 @@
 
 （part3可能要大战五个手指高层，想想就激动。）
 
+
+*****
+
+####  Jamaisvu  
+##### 1223#       发表于 2026-1-13 17:06
+
+<img src="https://img.stage1st.com/forum/202601/13/170529su6s03596bh5805u.jpg" referrerpolicy="no-referrer">
+
+<strong>1EE000F525514BD9426F338413A7C8DD.jpg</strong> (81.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-13 17:05 上传
+
+中指玛要来了，原型未动，人格先行。
+
+估计绮罗会在中指养父战中出场，自带嘲讽，挨打给她爹加buff？
+
