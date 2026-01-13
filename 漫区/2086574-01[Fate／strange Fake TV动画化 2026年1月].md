@@ -6105,3 +6105,15 @@ fate线罗亚是基督山打死的啊
 —— 来自 vivo V2454DA, Androi ...</blockquote>
 野生的六连男装变态出现了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakki  
+##### 578#       发表于 2026-1-13 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69019033&amp;ptid=2086574" target="_blank">シャル 发表于 2026-1-13 12:17</a>
+这里不能召唤英灵是原因的
+
+月姬世界人理弱小，不会诞生人类恶beast，没有beast不会有冠位决战术式，没有 ...</blockquote>
+迦勒底的召唤能成立本身就建立在异闻带No.0上，所以除了fgo就不存在迦勒底，更不能用迦勒底的方式召唤
+
