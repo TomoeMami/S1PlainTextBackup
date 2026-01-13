@@ -615,3 +615,32 @@ IXI的这一项目已经吸引了包括Amazon在内的投资者超过365亿美�
 
 <strong>3650万</strong>美元是怎么变成365亿的
 
+
+*****
+
+####  中国科学院  
+##### 54#       发表于 2026-1-13 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012938&amp;ptid=2272079" target="_blank">2035年 发表于 2026-1-12 09:35</a>
+
+同时存在近视和远视的人很少吧？
+
+这玩意能有多少需求？
+
+另外365亿美元投资？这是打错单位了吧 ...</blockquote>
+近视眼老化之后.avi
+
+
+*****
+
+####  油条小贩  
+##### 55#       发表于 2026-1-13 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012938&amp;ptid=2272079" target="_blank">2035年 发表于 2026-1-12 09:35</a>
+同时存在近视和远视的人很少吧？
+
+这玩意能有多少需求？
+
+另外365亿美元投资？这是打错单位了吧 ...</blockquote>
+同时近视和老花的很多
+
