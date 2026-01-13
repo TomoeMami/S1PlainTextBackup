@@ -6085,3 +6085,11 @@ fate线罗亚是基督山打死的啊
 
 —— 来自 vivo V2454DA, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  大耳兽  
+##### 576#       发表于 2026-1-13 12:48
+
+这么一想fgo其实是拳皇，虽然是snk大乱斗，但是有自己的主线。
+
