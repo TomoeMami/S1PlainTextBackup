@@ -531,3 +531,11 @@ Y_P5YNC)(`KF$~A[]WMX`6W.png
 
 —— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  佳丽三千到  
+##### 50#       发表于 2026-1-13 19:22
+
+本来我就觉得二战后美国只处理的自己的仇敌，没有处理纳粹思想。
+
