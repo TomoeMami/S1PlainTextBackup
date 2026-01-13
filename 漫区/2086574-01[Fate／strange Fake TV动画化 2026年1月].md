@@ -6185,3 +6185,11 @@ fate线罗亚是基督山打死的啊
 fsf小说我看到苍白骑士下线就没看了，印象中杰斯塔是个很谐的角色，天天想着折 ...</blockquote>
 杰斯塔本体也是女的吧，另一个意义上的“横飞”姬<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakki  
+##### 584#       发表于 2026-1-13 16:11
+
+发现fate番外动画里每部都有吸血鬼啊，fz里切嗣爸研究死徒，fa里吸血鬼大公，fsf里杰斯塔<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
