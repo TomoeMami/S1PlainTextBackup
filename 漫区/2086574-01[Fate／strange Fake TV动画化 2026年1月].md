@@ -6294,3 +6294,21 @@ fate搞那么多部其实内核是美漫重启啦，只不过美漫编剧拉下�
 
 Fate和月姬分家的真正理由是为了解决战力膨胀的问题吧，现在的从者，闪级满地走top不如狗，召二百个从者来啥死徒都给你平推了，而且从者是不死的，只要有魔力够就能一直召唤，这种玩意不ban掉故事根本写不下去
 
+
+*****
+
+####  [皆神孝介]  
+##### 595#       发表于 2026-1-13 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68974766&amp;ptid=2086574" target="_blank">空彦秋 发表于 2026-1-4 18:22</a>
+
+说起来，半年前出的第一集是有英配的，1月3号更新的好像没看见谁的源带英配的轨，我还以为这次会同步有两个 ...</blockquote>
+刚刚看到的，顺手给坛友发一下，希望对坛友有用
+
+[阿特拉斯字幕组·雪原市出差所][命运-奇异赝品_Fate／strange Fake][02_群像 VS 虚像][简繁英内封PGS][英语配音版_English Dub][Web-DL Remux][1080p AVC AAC][Bonus：第2话先行上映后花泽香菜&amp;诸星堇访谈节目熟肉（流媒体）]
+[https://share.dmhy.org/topics/vi ... VC_AAC_Bonus_2.html](https://share.dmhy.org/topics/view/711037_-_Fate_strange_Fake_02_VS_PGS_English_Dub_Web-DL_Remux_1080p_AVC_AAC_Bonus_2.html)
+
+Magnet連接: magnet:?xt=urn:btih:WTRPI3AEP2L5YIVNXBUKUZDCJIVJGEQH
+
+Magnet連接typeII: magnet:?xt=urn:btih:b4e2f46c047e97dc22adb868aa64624a2a931207
+
