@@ -530,3 +530,21 @@ BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes
 
        谨此致谢，敬请多多关照。
 
+
+*****
+
+####  堀内爱里衣  
+##### 41661#       发表于 2026-1-13 13:47
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/13/134724raatgahg7gxdc7tc.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-13_13-46-33.jpg</strong> (302.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-13 13:47 上传
+
+       [https://x.com/nobusawa_ex/status/2010636725199233410](https://x.com/nobusawa_ex/status/2010636725199233410)
+

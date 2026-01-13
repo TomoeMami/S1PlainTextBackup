@@ -468,3 +468,13 @@ https://youtu.be/5WADdjK7taE
 
 怀念最好的七个乐队（已切割）（已切割）（已切割）（已切割）（已切割）（已切割）（已切割）
 
+
+*****
+
+####  堀内爱里衣  
+##### 27457#       发表于 2026-1-13 13:48
+
+       <img src="https://img.stage1st.com/forum/202601/13/134724raatgahg7gxdc7tc.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/nobusawa_ex/status/2010636725199233410](https://x.com/nobusawa_ex/status/2010636725199233410)
+
