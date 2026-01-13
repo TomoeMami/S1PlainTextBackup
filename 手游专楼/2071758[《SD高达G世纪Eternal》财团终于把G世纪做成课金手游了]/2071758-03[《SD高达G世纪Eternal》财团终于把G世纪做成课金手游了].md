@@ -2650,3 +2650,24 @@ SSP考虑SR的两台开发ZZ，质变
 
 送的这 莫妮克 开过 斗狼 么？不知道卡池会出啥
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3501#       发表于 2026-1-13 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69020834&amp;ptid=2071758" target="_blank">GameTheory 发表于 2026-1-13 17:51</a>
+
+强袭型钢坦克？
+
+送的这 莫妮克 开过 斗狼 么？不知道卡池会出啥</blockquote>
+第三集才是强袭型钢坦克，第二集就是普通的61式
+
+
+*****
+
+####  dfdddfdd  
+##### 3502#       发表于 2026-1-13 18:34
+
+我想了半天才想起来这莫尼克是红衣女主啊 这大妈脸怎么回事<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
