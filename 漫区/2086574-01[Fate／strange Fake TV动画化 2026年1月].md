@@ -6226,3 +6226,22 @@ fate搞那么多部其实内核是美漫重启啦，只不过美漫编剧拉下�
 还有猫姬召唤fgo乱入是表达世界的墙壁被打破，也没否决过呆毛能被召唤和猫姬能召唤
 这问题的核心是月姬世界的人没有搞英灵召唤的想法，没有解释也不用多想，不是脑补的理由<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  八坂真寻  
+##### 588#       发表于 2026-1-13 16:46
+
+这季做到哪啊？仇海打杰克吗
+
+*****
+
+####  岸浪白野  
+##### 589#       发表于 2026-1-13 16:47
+
+ 本帖最后由 岸浪白野 于 2026-1-13 16:49 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69020439&amp;ptid=2086574" target="_blank">八坂真寻 发表于 2026-1-13 16:46</a>
+这季做到哪啊？仇海打杰克吗</blockquote>
+12集结尾做到闪闪暂时下线你信吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+第4集就已经是第三卷开头
+

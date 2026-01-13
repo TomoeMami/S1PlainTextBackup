@@ -644,3 +644,48 @@ IXI的这一项目已经吸引了包括Amazon在内的投资者超过365亿美�
 另外365亿美元投资？这是打错单位了吧 ...</blockquote>
 同时近视和老花的很多
 
+
+*****
+
+####  abianbian  
+##### 56#       发表于 2026-1-13 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012958&amp;ptid=2272079" target="_blank">2035年 发表于 2026-1-12 09:37</a>
+
+感觉意义不大，至少对我没用
+
+我从14岁开始戴眼镜，20多年度数几乎没变过
+
+就算度数要递增的人，每个一两年 ...</blockquote>
+等你再过20年……
+
+应该不用，快的话，10年不到，你就知道这个眼镜的好处了。
+
+反正我是配了两副，开车戴一副，看书戴一副。
+
+
+*****
+
+####  StrangerJ  
+##### 57#       发表于 2026-1-13 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69012938&amp;ptid=2272079" target="_blank">2035年 发表于 2026-1-12 09:35</a>
+同时存在近视和远视的人很少吧？
+
+这玩意能有多少需求？
+
+另外365亿美元投资？这是打错单位了吧 ...</blockquote>
+说明你家里长辈都没近视眼，不了解就不要瞎评论了
+
+*****
+
+####  mumubear  
+##### 58#       发表于 2026-1-13 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69015042&amp;ptid=2272079" target="_blank">游蜓 发表于 2026-1-12 15:34</a>
+近视的人得了老花不就需要了
+我妈和我舅舅都有这俩毛病</blockquote>
+但是他们摘下眼镜看手机看远又不清楚了。
+
+但是顶楼这玩要还是要几个冤大头花个几千上万去试一下，然后等国产。
+
