@@ -727,3 +727,15 @@ IXI的这一项目已经吸引了包括Amazon在内的投资者超过365亿美�
 另外365亿美元投资？这是打错单位了吧 ...</blockquote>
 可难受死了，这几年开始老花，去年开始严重。看手机要把眼睛摘下来，看远又要戴上，麻烦死了
 
+
+*****
+
+####  Unlight  
+##### 62#       发表于 2026-1-13 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69019185&amp;ptid=2272079" target="_blank">featherwit 发表于 2026-1-13 12:37</a>
+3650万美元是怎么变成365亿的</blockquote>
+million和billion认错了呗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
