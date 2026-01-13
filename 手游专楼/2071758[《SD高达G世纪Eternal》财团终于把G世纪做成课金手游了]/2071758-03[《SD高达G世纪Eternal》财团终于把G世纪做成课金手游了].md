@@ -2635,3 +2635,18 @@ SSP考虑SR的两台开发ZZ，质变
 
 死神能不能在爬塔送一个
 
+
+*****
+
+####  GameTheory  
+##### 3500#       发表于 2026-1-13 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69020514&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-1-13 16:58</a>
+
+突然想到，重力战线第二集的61式还出不出，61式不出驾驶员要给一个吧，怎么说也是有名有姓有头有脸的
+
+女鬼 ...</blockquote>
+强袭型钢坦克？
+
+送的这 莫妮克 开过 斗狼 么？不知道卡池会出啥
+
