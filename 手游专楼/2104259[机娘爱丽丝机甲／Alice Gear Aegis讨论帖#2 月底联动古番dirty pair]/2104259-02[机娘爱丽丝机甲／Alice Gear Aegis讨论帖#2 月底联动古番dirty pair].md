@@ -349,3 +349,14 @@ AGA祖传读心术又发力了
 
 回来一看，群崩了。有新群的地址吗？？
 
+
+*****
+
+####  raiden187  
+##### 1840#       发表于 2026-1-14 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69026205&amp;ptid=2104259" target="_blank">gameseve 发表于 2026-1-14 19:30</a>
+
+回来一看，群崩了。有新群的地址吗？？</blockquote>
+没，群应该是今天下午四五点的时候爆的，现在暂时也没信儿
+
