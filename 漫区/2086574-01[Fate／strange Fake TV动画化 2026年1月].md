@@ -6385,3 +6385,11 @@ niconico评分
 fte extra没死徒但是有真祖啊，第四战的分支路线对手不就是爱尔奎特本人</blockquote>
 说的是动画啊，fe动画确实没有吸血鬼吧。
 
+
+*****
+
+####  zakki  
+##### 602#       发表于 2026-1-14 19:23
+
+看b站播放量，比咒术两集都高了，这集还只是开胃菜中的开胃菜，等后面闪海大战，狂杰克，伊什塔尔，苍白骑士，得成啥样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
