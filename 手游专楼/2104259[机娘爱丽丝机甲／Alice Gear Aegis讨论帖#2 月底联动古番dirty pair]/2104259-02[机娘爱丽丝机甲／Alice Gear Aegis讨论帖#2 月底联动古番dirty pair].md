@@ -360,3 +360,11 @@ AGA祖传读心术又发力了
 回来一看，群崩了。有新群的地址吗？？</blockquote>
 没，群应该是今天下午四五点的时候爆的，现在暂时也没信儿
 
+
+*****
+
+####  squallx  
+##### 1841#       发表于 2026-1-14 23:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">群怎么炸了 战犯是谁
+
