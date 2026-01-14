@@ -622,3 +622,108 @@ BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes
 
        [https://t.co/TtOJL822r7](https://t.co/TtOJL822r7)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41665#       发表于 2026-1-14 22:17
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/14/221702k9rkers0r8sk8vct.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-14_22-14-47.jpg</strong> (283.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-14 22:17 上传
+
+       [https://x.com/bang_dream_info/status/2011392864383639708](https://x.com/bang_dream_info/status/2011392864383639708)
+
+       [https://t.co/Q2bbtNlCGi](https://t.co/Q2bbtNlCGi)
+
+*****
+
+####  堀内爱里衣  
+##### 41666#       发表于 2026-1-14 22:17
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/14/221727ya34a4au4hoiia8z.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-14_22-15-25.jpg</strong> (106.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-14 22:17 上传
+
+       [https://x.com/bang_dream_info/status/2011393112321687770](https://x.com/bang_dream_info/status/2011393112321687770)
+
+       [https://t.co/y6O9JP24gC](https://t.co/y6O9JP24gC)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41667#       发表于 2026-1-14 22:24
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/14/222404rhbfh629jjkhbmk7.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-14_22-20-11.jpg</strong> (23.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-14 22:24 上传
+
+       [https://x.com/AkaneY_banu/status/2011140119055777937](https://x.com/AkaneY_banu/status/2011140119055777937)
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/14/222403cbv4oxq89vwhxz9s.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-14_22-20-32.jpg</strong> (293.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-14 22:24 上传
+
+       [https://x.com/sasakirico/status/2011361581096198271](https://x.com/sasakirico/status/2011361581096198271)
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/14/222403ckh1jykgd71azjrk.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-14_22-20-58.jpg</strong> (256.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-14 22:24 上传
+
+       [https://x.com/Kanon_Takao/status/2011399094779183405](https://x.com/Kanon_Takao/status/2011399094779183405)
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/14/222402i8wh96w2iw50ws2c.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-14_22-21-13.jpg</strong> (224.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-14 22:24 上传
+
+       [https://x.com/Watase_Yuzuki/status/2011425662792589359](https://x.com/Watase_Yuzuki/status/2011425662792589359)
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/14/222402q1n004i2n2d3jb2m.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-14_22-23-09.jpg</strong> (375.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-14 22:24 上传
+
+       [https://x.com/okada_mei0519/status/2011425793940103580](https://x.com/okada_mei0519/status/2011425793940103580)
+
