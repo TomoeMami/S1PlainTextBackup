@@ -2691,3 +2691,13 @@ SSP考虑SR的两台开发ZZ，质变
 
 —— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  jackyhuang  
+##### 3505#       发表于 2026-1-14 10:52
+
+更新以后动几下就卡，非要等他XX任务完成的信息跳出来才能动
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
