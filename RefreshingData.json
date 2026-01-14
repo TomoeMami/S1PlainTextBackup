@@ -12609,10 +12609,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 6413,
+    "totalreply": 6414,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1768415529,
+    "lastedit": 1768417089,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12822,7 +12822,7 @@
     "lastedit": 1768453140,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2127360": {
     "totalreply": 288,
@@ -17196,7 +17196,7 @@
     "lastedit": 1768403880,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2187061": {
     "totalreply": 41,
