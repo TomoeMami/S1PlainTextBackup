@@ -5431,3 +5431,30 @@ YouTube社区那边发了会员限定的那张图。大概是让大家去搜一�
 
 有印象，声音挺可爱的，但忘了有没有联动过，还是只在私下玩过。
 
+
+*****
+
+####  古战场亡魂  
+##### 20209#       发表于 2026-1-14 10:58
+
+ 本帖最后由 古战场亡魂 于 2026-1-14 11:02 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69022417&amp;ptid=2018830" target="_blank">秋游刃 发表于 2026-1-14 01:37</a>
+
+有印象，声音挺可爱的，但忘了有没有联动过，还是只在私下玩过。</blockquote>玩过，日本lol圈就那么点人。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202601/14/105823uhjblbebj4bkayrb.png" referrerpolicy="no-referrer">
+
+<strong>ee6f98b836f36e1edfa6d053e50fb98f.png</strong> (94.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-14 10:58 上传
+
+
+*****
+
+####  古战场亡魂  
+##### 20210#       发表于 2026-1-14 11:07
+
+说不定马上lol圈一群原本的小底边就要去各大箱了。
+
