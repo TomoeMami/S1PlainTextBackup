@@ -2679,3 +2679,15 @@ SSP考虑SR的两台开发ZZ，质变
 
 你游是不是又出BUG了，狗粮本扫荡怎么不好使了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无念  
+##### 3504#       发表于 2026-1-14 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69023166&amp;ptid=2071758" target="_blank">里村紅葉 发表于 2026-1-14 09:52</a>
+你游是不是又出BUG了，狗粮本扫荡怎么不好使了</blockquote>
+版本bug，已经出公告会修了
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
