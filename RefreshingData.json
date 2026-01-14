@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 27059,
+    "totalreply": 27062,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》12.25 老库拉伸]",
-    "lastedit": 1768357097,
+    "lastedit": 1768357698,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 31066,
+    "totalreply": 31072,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1768356133,
+    "lastedit": 1768357704,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -10004,7 +10004,7 @@
     "newtitle": "[《头文字D》续作《MF Ghost》2023年10月，二期2024年10月，三期2026年1月]",
     "lastedit": 1768098370,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2191081": {
@@ -11178,10 +11178,10 @@
     "update": false
   },
   "2071758": {
-    "totalreply": 3503,
+    "totalreply": 3504,
     "title": "[《SD高达G世纪Eternal》财团终于把G世纪做成课金手游了]",
     "newtitle": "[《SD高达G世纪永恒》【12.31 新卡池：命运+异灵+强袭自由复刻】 S1群：9314964]",
-    "lastedit": 1768355890,
+    "lastedit": 1768357704,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12357,10 +12357,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 1645,
+    "totalreply": 1646,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【明日方舟：终末地】情报汇总3号楼 2026.1.16 19：30 公测前瞻特别节目]",
-    "lastedit": 1768300578,
+    "lastedit": 1768357468,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12591,10 +12591,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 4778,
+    "totalreply": 4779,
     "title": "[日本12月专楼]",
     "newtitle": "[日本12月专楼]",
-    "lastedit": 1768356499,
+    "lastedit": 1768357469,
     "category": "外野",
     "active": true,
     "update": false
@@ -12735,10 +12735,10 @@
     "update": false
   },
   "2269491": {
-    "totalreply": 4508,
+    "totalreply": 4513,
     "title": "[牢A与赞美诗]",
     "newtitle": "[牢A与赞美诗（转型牢A切片讨论楼）]",
-    "lastedit": 1768357103,
+    "lastedit": 1768357469,
     "category": "外野",
     "active": true,
     "update": false
@@ -14346,10 +14346,10 @@
     "update": false
   },
   "2271231": {
-    "totalreply": 176,
+    "totalreply": 178,
     "title": "[俄乌2026年1月楼]",
     "newtitle": "[俄乌2026年1月楼]",
-    "lastedit": 1768357103,
+    "lastedit": 1768357704,
     "category": "外野",
     "active": true,
     "update": false
@@ -14508,10 +14508,10 @@
     "update": false
   },
   "2271402": {
-    "totalreply": 499,
+    "totalreply": 500,
     "title": "[任天堂病棟14楼，等一个春节春直]",
     "newtitle": "[任天堂病棟14楼，等一个春节春直]",
-    "lastedit": 1768356972,
+    "lastedit": 1768357327,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17100,10 +17100,10 @@
     "update": false
   },
   "2272178": {
-    "totalreply": 49,
+    "totalreply": 50,
     "title": "[这可是官方的媒体吧]",
     "newtitle": "[这可是官方的媒体吧]",
-    "lastedit": 1768357103,
+    "lastedit": 1768357469,
     "category": "外野",
     "active": true,
     "update": false
@@ -17244,10 +17244,10 @@
     "update": false
   },
   "2272203": {
-    "totalreply": 59,
+    "totalreply": 61,
     "title": "[玩梗并不是语言能力退化]",
     "newtitle": "[玩梗并不是语言能力退化]",
-    "lastedit": 1768357103,
+    "lastedit": 1768357704,
     "category": "外野",
     "active": true,
     "update": false
@@ -17325,19 +17325,37 @@
     "update": false
   },
   "2272222": {
-    "totalreply": 59,
+    "totalreply": 62,
     "title": "[这真的是可以撑地了吧]",
     "newtitle": "[这真的是可以撑地了吧]",
-    "lastedit": 1768356855,
+    "lastedit": 1768357704,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2272236": {
-    "totalreply": 48,
+    "totalreply": 51,
     "title": "[这一屋子人的威力有多大]",
     "newtitle": "[这一屋子人的威力有多大]",
-    "lastedit": 1768357103,
+    "lastedit": 1768357704,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2272235": {
+    "totalreply": 45,
+    "title": "[雷军：听到“营销”这两个字都有点恶心]",
+    "newtitle": "[雷军：听到“营销”这两个字都有点恶心]",
+    "lastedit": 1768357704,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2270451": {
+    "totalreply": 90,
+    "title": "[根据我的思考，我觉得商业公司在设计回收火箭的时候没有从商业思维去考虑]",
+    "newtitle": "[根据我的思考，我觉得商业公司在设计回收火箭的时候没有从商业思维去考虑]",
+    "lastedit": 1768357474,
     "category": "外野",
     "active": true,
     "update": false
