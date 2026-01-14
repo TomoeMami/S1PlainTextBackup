@@ -6375,3 +6375,13 @@ niconico评分
 
 就硬蹭
 
+
+*****
+
+####  大耳兽  
+##### 601#       发表于 2026-1-14 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69023306&amp;ptid=2086574" target="_blank">——裂锦—— 发表于 2026-1-14 10:13</a>
+fte extra没死徒但是有真祖啊，第四战的分支路线对手不就是爱尔奎特本人</blockquote>
+说的是动画啊，fe动画确实没有吸血鬼吧。
+
