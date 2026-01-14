@@ -628,3 +628,23 @@ Anschluss
 3. Arbeit macht frei</blockquote>
 6.Totaler Krieg – kürzerer Krieg
 
+
+*****
+
+####  thq  
+##### 59#       发表于 2026-1-14 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69016558&amp;ptid=2272113" target="_blank">zeroboss4 发表于 2026-1-12 20:13</a>
+
+关键谁是债主 大部分债务的寨主是美国人自己啊
+
+—— 来自 OnePlus PLR110, Android 16, 鹅球 v3.5.99 ...</blockquote>
+所以不杀美国人不行不是
+
+*****
+
+####  亚尔古水手  
+##### 60#       发表于 2026-1-14 09:39
+
+所以这次慕尼黑会议英法准备在哪开
+
