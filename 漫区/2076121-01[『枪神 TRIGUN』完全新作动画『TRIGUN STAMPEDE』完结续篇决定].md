@@ -3802,3 +3802,11 @@ VFXアートディレクター：早川大嗣
 
 ano唱歌真难听啊
 
+
+*****
+
+####  kos_mos  
+##### 374#       发表于 2026-1-14 21:04
+
+一期OP还很文艺的，二期这什么OP<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
