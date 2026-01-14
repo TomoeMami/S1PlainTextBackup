@@ -2728,3 +2728,26 @@ SSP考虑SR的两台开发ZZ，质变
 
 就是为了有3000才放的咖喱咖喱吧，甚至船都是铁血的
 
+
+*****
+
+####  AminGly  
+##### 3509#       发表于 2026-1-14 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69026169&amp;ptid=2071758" target="_blank">忧郁 发表于 2026-1-14 19:21</a>
+
+就是为了有3000才放的咖喱咖喱吧，甚至船都是铁血的</blockquote>
+咖喱人气怎么样
+
+有个大群说他路边一条没人在意
+
+*****
+
+####  AminGly  
+##### 3510#       发表于 2026-1-14 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69019710&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-1-13 14:26</a>
+
+沙扎比我觉得还得降一档，伤害真的很疲软</blockquote>
+沙扎比能在这一档纯粹是词条优秀了
+
