@@ -6362,3 +6362,16 @@ fte extra没死徒但是有真祖啊，第四战的分支路线对手不就是�
 
 niconico评分
 
+
+*****
+
+####  奇迹的魔女  
+##### 600#       发表于 2026-1-14 12:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69020266&amp;ptid=2086574" target="_blank">zakki 发表于 2026-1-13 16:11</a>
+
+发现fate番外动画里每部都有吸血鬼啊，fz里切嗣爸研究死徒，fa里吸血鬼大公，fsf里杰斯塔 ...</blockquote>
+俗称大杂烩
+
+就硬蹭
+
