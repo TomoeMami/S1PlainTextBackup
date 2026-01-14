@@ -341,3 +341,11 @@ AGA祖传读心术又发力了
 换张mastercard的试试？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有万事达也没有JCB，反正游客能用就凑合吧
 
+
+*****
+
+####  gameseve  
+##### 1839#       发表于 2026-1-14 19:30
+
+回来一看，群崩了。有新群的地址吗？？
+

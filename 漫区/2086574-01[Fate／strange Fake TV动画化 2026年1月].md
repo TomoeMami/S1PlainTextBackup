@@ -6393,3 +6393,13 @@ fte extra没死徒但是有真祖啊，第四战的分支路线对手不就是�
 
 看b站播放量，比咒术两集都高了，这集还只是开胃菜中的开胃菜，等后面闪海大战，狂杰克，伊什塔尔，苍白骑士，得成啥样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KDConan  
+##### 603#       发表于 2026-1-14 19:28
+
+Fate系列动画每次新的标杆是不是都是别人写的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">上次是老虚
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
