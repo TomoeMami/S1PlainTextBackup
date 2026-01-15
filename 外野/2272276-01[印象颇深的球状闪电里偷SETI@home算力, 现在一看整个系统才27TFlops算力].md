@@ -414,3 +414,16 @@ bonic之前拿来跑PrimeGrid，冬天就能利用矿卡取暖(bushi
 那么我问你，顶楼引用的数值，是哪种精度下的浮点算力？是Tensor Core的还是Cuda Core的？是否都是统一到 ...</blockquote>
 你张嘴就来老黄新卡只标 FP4 tflops，我凭什么回答你的问题？
 
+
+*****
+
+####  yigua  
+##### 42#       发表于 2026-1-15 21:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69032770&amp;ptid=2272276" target="_blank">WntFlm 发表于 2026-1-15 21:06</a>
+
+你张嘴就来老黄新卡只标 FP4 tflops，我凭什么回答你的问题？</blockquote>
+我哪里说了“只“标了FP4？
+
+通常泛泛说NV卡的算力只给一个数值的时候，通常用的是最大的那个数值。在目前，这个是FP4精度的。所以是对主楼的一个提醒
+
