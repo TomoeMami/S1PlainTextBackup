@@ -855,3 +855,171 @@ BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes
 
        [https://x.com/diggymo04/status/2011763266549400054](https://x.com/diggymo04/status/2011763266549400054)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41673#       发表于 2026-1-15 22:22
+
+ 本帖最后由 堀内爱里衣 于 2026-1-15 22:24 编辑 
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/15/222433fzskqylie2e4fkfg.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-15_22-23-32.jpg</strong> (248.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 22:24 上传
+
+       [https://x.com/animefreaks_jp/status/2011777530559414706](https://x.com/animefreaks_jp/status/2011777530559414706)
+
+       [https://t.co/WRFTzRyvQR](https://t.co/WRFTzRyvQR)
+
+       <strong> 以下为机翻，请谨慎阅读。翻译内容仅为全文的一部分</strong>
+
+       原帖链接：[https://times.abema.tv/articles/-/10219725](https://times.abema.tv/articles/-/10219725)  
+
+       【セットリスト掲載】「神さま、バカ」披露にファン沸き立つ！Ave Mujica 6th LIVE大阪公演レポート
+
+       【公布歌单】《神さま、バカ》亮相引爆全场！Ave Mujica 第6次 LIVE 大阪公演报道
+
+       BanG Dream!                                 2026/01/15 22:47
+
+       この記事の写真をみる（13枚）
+
+       查看本文配图（13张）    &lt;——————点击可以跳转查看图片
+
+       　2026年1月15日(木)、グランキューブ大阪 メインホールにて、Ave Mujica 6th LIVE「Ulterius Procedere」大阪公演が開催された。
+
+       　2026年1月15日（周四），Ave Mujica 第6次 LIVE《Ulterius Procedere》大阪公演于大阪国际会议中心（Grand Cube Osaka）主大厅举行。
+
+       【画像】Ave Mujica 6th LIVEの写真＆発表情報
+
+       【图片】Ave Mujica 第6次 LIVE 现场照片＆公开信息
+
+       　Ave Mujicaの単独公演として約5か月ぶりとなった東京公演に続く2都市目での公演となる本公演は、会場チケットが先月開催の東京公演とともに早々に完売。
+
+       　本次公演是继时隔约5个月举办的东京单独公演之后，在第二座城市展开的演出，会场门票与上月举办的东京公演一同迅速售罄。
+
+       　東京公演での熱気が冷めやらぬまま、大阪公演も開演前から期待感に包まれた。
+
+       　在东京公演的热度尚未消退之际，大阪公演从开演前起便被高涨的期待感所笼罩。
+
+       　公演本編では東京公演でライブ初披露となった「碧い瞳の中に」「Sophie」をはじめ、全17曲を演奏。
+
+       　本场正式演出中，包含在东京公演首次现场披露的《碧い瞳の中に》《Sophie》在内，共演奏了17首曲目。
+
+       　また、東京公演で披露された「Angles」に代わり、「神さま、バカ」が披露され、本公演は大きな盛り上がりの中、幕を閉じた。
+
+       　此外，本次公演以《神さま、バカ》取代东京公演中演出的《Angles》，在全场沸腾的气氛中为演出画下句点。
+
+       　4月からは全国4都市を巡るAve Mujica LIVE TOUR 2026「Exitus」を開催。
+
+       　自4月起，将举办巡回全国4座城市的 Ave Mujica LIVE TOUR 2026《Exitus》。
+
+       　さらに2月には大阪でのトークイベント、3月にはKアリーナ横浜でのMyGO!!!!!とのツーマンライブが予定されている。
+
+       　此外，2月将在大阪举办谈话活动，3月则预定于横滨 K Arena 举行与「MyGO」的双人对邦演出。
+
+       ◆公演名：Ave Mujica 6th LIVE「Ulterius Procedere」大阪公演
+
+       ◆演出名称：Ave Mujica 第6次 LIVE《Ulterius Procedere》大阪公演
+
+       ◆日程 ：2026年1月15日(木) 開場17:30／開演18:30
+
+       ◆日程：2026年1月15日（周四）17:30 入场／18:30 开演
+
+       ◆会場 ：グランキューブ大阪 メインホール
+
+       ◆会场：大阪国际会议中心（Grand Cube Osaka）主大厅
+
+       ◆出演 ：Ave Mujica（佐々木李子、渡瀬結月、岡田夢以、米澤茜、高尾奏音）
+
+       ◆出演：Ave Mujica（佐佐木李子、渡濑结月、冈田梦以、米泽茜、高尾奏音）
+
+       セットリスト
+
+       歌单
+
+       M1　Choir ‘S’ Choir
+
+       M1　Choir ‘S’ Choir
+
+       M2　顔
+
+       M2　脸
+
+       M3　ふたつの月 〜Deep Into The Forest〜
+
+       M3　两轮之月 ～Deep Into The Forest～
+
+       M4　黒のバースデイ
+
+       M4　黑色的生日
+
+       M5　Symbol IV : Earth
+
+       M5　Symbol IV : Earth
+
+       M6　Mas?uerade Rhapsody Re?uest
+
+       M6　Mas?uerade Rhapsody Re?uest
+
+       M7　Imprisoned XII
+
+       M7　Imprisoned XII
+
+       M8　碧い瞳の中に
+
+       M8　在那碧蓝的双瞳之中
+
+       M9　八芒星ダンス
+
+       M9　八芒星之舞
+
+       M10　天球(そら)のMusica
+
+       M10　天球（苍穹）的 Musica
+
+       M11　神さま、バカ
+
+       M11　神啊，笨蛋
+
+       M12　Symbol II : Air
+
+       M12　Symbol II : Air
+
+       M13　DIVINE
+
+       M13　DIVINE
+
+       M14　‘S/’ The Way
+
+       M14　‘S/’ The Way
+
+       M15　KiLLKiSS
+
+       M15　KiLLKiSS
+
+       M16　Sophie
+
+       M16　Sophie
+
+       M17　Symbol I : △
+
+       M17　Symbol I : △
+
+       ※「天球(そら)のMusica」の「u」は、正式にはアクサンテギュ付き
+
+       ※《天球（そら）的 Musica》中「u」字母正式写法带有重音符号
+
+       (C)BanG Dream! Project
+
+       (C)BanG Dream! Project
+
+       Photo ハタサトシ
+
+       摄影：ハタサトシ
+
