@@ -2799,3 +2799,15 @@ ssp有推荐的吗</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  acg_gyanc  
+##### 3515#       发表于 2026-1-16 01:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69028301&amp;ptid=2071758" target="_blank">bwsusaga 发表于 2026-1-15 09:26</a>
+之前开服打算玩但模拟器不爽，现在出了PC版效果怎么样？我看好像特么又是谷歌商店？有没有别的渠道？ ...</blockquote>
+只有谷歌商店，没有其他渠道，实际谷歌商店也是模拟器。另外根据我看到的帖子，不同人玩谷歌商店版，一些人说比模拟器好些，一些人说不如模拟器，感觉大概是半斤八两，但是谷歌商店本身特别垃圾，不仅安装商店默认c盘且不能改，安装游戏也同样是默认c盘且不能改，b站有教程可以安装到其他盘符，但是需要折腾一下，而且这个商店还有不少bug，我自己试用一次就出现了刚刚安装好运行了，下次再打开又要重头安装游戏的问题，就很难蚌
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
