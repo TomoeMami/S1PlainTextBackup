@@ -35,3 +35,11 @@ GF本来就没有宣发权，他不是这游戏发行商</blockquote>
 
 还魂like魂的明白吗就魂<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  milky658  
+##### 112#       发表于 2026-1-15 19:00
+
+za试玩的时候，工作人员还问玩家有没有魂游经验<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
