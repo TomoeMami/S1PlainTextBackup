@@ -2759,3 +2759,14 @@ SSP考虑SR的两台开发ZZ，质变
 
 之前开服打算玩但模拟器不爽，现在出了PC版效果怎么样？我看好像特么又是谷歌商店？有没有别的渠道？
 
+
+*****
+
+####  洛克萨斯  
+##### 3512#       发表于 2026-1-15 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69019710&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-1-13 14:26</a>
+
+沙扎比我觉得还得降一档，伤害真的很疲软</blockquote>
+山楂饼胜在pvp长期值班，词条太好了
+
