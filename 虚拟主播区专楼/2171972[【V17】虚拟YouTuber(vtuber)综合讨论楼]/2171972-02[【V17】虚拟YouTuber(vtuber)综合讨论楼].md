@@ -83,3 +83,11 @@ hnb再菜好歹也是现代大师，更何况vspo里游戏水平不高的除了e
 前一个彩笔hnb发展的也还行，这年头纯靠游 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">hnb虽然放在VSPO里天赋确实不算高，但是放隔壁虹的话明确比她强的只有4个人
 
+
+*****
+
+####  Harunoharu  
+##### 1738#       发表于 2026-1-15 15:08
+
+那纯尬黑了，你虹大师段能赢hnb的太多了，现代玛丽莎没什么优势的
+
