@@ -2770,3 +2770,22 @@ SSP考虑SR的两台开发ZZ，质变
 沙扎比我觉得还得降一档，伤害真的很疲软</blockquote>
 山楂饼胜在pvp长期值班，词条太好了
 
+
+*****
+
+####  シャル  
+##### 3513#         楼主| 发表于 2026-1-15 13:23
+
+<blockquote>kerorokun 发表于 2026-1-13 12:10
+ssp有推荐的吗</blockquote>
+
+<img src="https://img.stage1st.com/forum/202601/15/132300cfwjxxwiksaocjsw.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202601/15/132300cfwjxxwiksaocjsw.png">
+
+<strong>IMG_4525.png</strong> (701.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 13:23 上传
+
+这个最强ssp
+
