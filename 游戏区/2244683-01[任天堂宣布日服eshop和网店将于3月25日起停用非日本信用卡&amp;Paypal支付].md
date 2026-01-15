@@ -2384,3 +2384,24 @@ ana pay（虚拟visa，绑大陆发行的JCB）可以正常 ...</blockquote>
 
 歪个楼问下现在anapay还有什么卡能绑定的，或者有没有其他的虚拟卡能用，之前给anapay绑定的招行jcb现在充值过了3d验证还是报错充值失败
 
+
+*****
+
+####  魔法师lain  
+##### 244#       发表于 2026-1-15 12:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67729406&amp;ptid=2244683" target="_blank">h122h 发表于 2025-3-25 19:14</a>
+我看ana pay也有公告说不接受海外信用卡充值使用了。难道是有漏洞？</blockquote>
+这公告只是说visa吧
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  星花  
+##### 245#       发表于 2026-1-15 12:11
+
+440.
+
+争取3打头。
+
