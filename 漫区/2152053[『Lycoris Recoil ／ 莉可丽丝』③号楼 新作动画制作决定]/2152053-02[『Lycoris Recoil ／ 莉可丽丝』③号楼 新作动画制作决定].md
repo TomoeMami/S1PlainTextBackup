@@ -63,3 +63,22 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  osore  
+##### 2438#       发表于 2026-1-15 11:46
+
+所以动画续作能不能快点端出来
+不可沽名学回天<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蜇灵  
+##### 2439#       发表于 2026-1-15 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69018386&amp;ptid=2152053" target="_blank">夜游宫 发表于 2026-1-13 10:38</a>
+说起来千束虽然日常表现得像个轻浮黄毛，但在本子里基本都是被泷奈压在下面当0啊。 ...</blockquote>
+金毛当0乃是祖宗之法，当初魔法蒜被叫魔法蒜也有这方面的原因<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
