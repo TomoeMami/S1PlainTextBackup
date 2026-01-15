@@ -1043,3 +1043,88 @@ BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes
 
        [https://t.co/hM1yriG3Fy](https://t.co/hM1yriG3Fy)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41675#       发表于 2026-1-15 23:46
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/15/234537orzr9jxrww999hgh.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-15_23-43-16.jpg</strong> (334.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 23:45 上传
+
+       [https://x.com/sasakirico/status/2011764491844010114](https://x.com/sasakirico/status/2011764491844010114)
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/15/234537n3fonmn36upf076c.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-15_23-43-35.jpg</strong> (254.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 23:45 上传
+
+       [https://x.com/AkaneY_banu/status/2011768466270011842](https://x.com/AkaneY_banu/status/2011768466270011842)
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/15/234536gpui35ip75e41ub2.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-15_23-43-46.jpg</strong> (264.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 23:45 上传
+
+       [https://x.com/okada_mei0519/status/2011774607234338934](https://x.com/okada_mei0519/status/2011774607234338934)
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/15/234536j4i4ziw4lqi4vwc2.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-15_23-44-03.jpg</strong> (171.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 23:45 上传
+
+       [https://x.com/Watase_Yuzuki/status/2011775622167904581](https://x.com/Watase_Yuzuki/status/2011775622167904581)
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/15/234535zkkzkabwma980al8.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-15_23-44-25.jpg</strong> (246.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 23:45 上传
+
+       [https://x.com/Kanon_Takao/status/2011786911757844633](https://x.com/Kanon_Takao/status/2011786911757844633)
+
+*****
+
+####  堀内爱里衣  
+##### 41676#       发表于 2026-1-15 23:48
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/15/234834bj1kp8vdyy1ikw41.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-15_23-47-27.jpg</strong> (378.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 23:48 上传
+
+       [https://x.com/bang_dream_info/status/2011815638126227755](https://x.com/bang_dream_info/status/2011815638126227755)
+
+       [https://t.co/sKHEugTFGg](https://t.co/sKHEugTFGg)
+
