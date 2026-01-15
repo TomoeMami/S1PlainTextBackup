@@ -388,3 +388,11 @@ AGA祖传读心术又发力了
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  madcow  
+##### 1844#       发表于 2026-1-15 21:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">帅是真的帅，虽然好像火力不乍地
+
