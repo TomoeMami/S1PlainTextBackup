@@ -83,3 +83,14 @@ za试玩的时候，工作人员还问玩家有没有魂游经验<img src="https
 早就说了画面不值钱 黑猴33远征队画面好得很</blockquote>
 画面不值钱那为啥独立游戏画面都这么差<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  莉可厨  
+##### 117#       发表于 2026-1-15 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69033388&amp;ptid=2253295" target="_blank">ccuui 发表于 2026-1-15 23:33</a>
+
+画面不值钱那为啥独立游戏画面都这么差</blockquote>
+画面不值钱那说的太过了，只能说ue5这套管线有个大几十号人折腾的话肯定能弄出黑猴33那样过得去的画面
+
