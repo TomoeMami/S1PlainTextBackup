@@ -347,3 +347,11 @@ JAMP的联动版权费得做手游的才能给
 
 我寻思北斗之拳自己的格斗游戏也没有爆番茄酱的吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  人生オワタ  
+##### 644#       发表于 2026-1-15 22:09
+
+【《饿狼传说：群狼之城》1月22日更新预告：季票2开幕&amp;平衡性调整！-哔哩哔哩】 [https://b23.tv/e3N9DZr](https://b23.tv/e3N9DZr)
+
