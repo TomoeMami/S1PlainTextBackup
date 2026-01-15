@@ -378,3 +378,13 @@ AGA祖传读心术又发力了
 
 —— 来自 samsung SM-X730, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  冰风血羽  
+##### 1843#       发表于 2026-1-15 15:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">终于等到了！！！P站联动装备复刻了！！！
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

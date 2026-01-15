@@ -91,3 +91,16 @@ hnb再菜好歹也是现代大师，更何况vspo里游戏水平不高的除了e
 
 那纯尬黑了，你虹大师段能赢hnb的太多了，现代玛丽莎没什么优势的
 
+
+*****
+
+####  艾特娜  
+##### 1739#       发表于 2026-1-15 15:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69030713&amp;ptid=2171972" target="_blank">Harunoharu 发表于 2026-1-15 15:08</a>
+
+那纯尬黑了，你虹大师段能赢hnb的太多了，现代玛丽莎没什么优势的</blockquote>
+就这次葛叶杯，真能压HNB一头的应该就678三队的大将，阿葵同角色分更低以及大将战全败的奥利弗不说，叶和IB打她肯定不到46开，再加个葛叶
+
+当然了熊猫人、雷欧斯、风乐这三个天赋看得出来高的练多些应该也能超过HNB
+
