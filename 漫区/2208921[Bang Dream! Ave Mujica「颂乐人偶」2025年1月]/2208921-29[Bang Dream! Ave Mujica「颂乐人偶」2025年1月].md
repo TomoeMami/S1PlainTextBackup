@@ -801,3 +801,57 @@ BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes
 
        [https://comic-growl.com/episodes/6d2e5b4823afb/](https://comic-growl.com/episodes/6d2e5b4823afb/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41670#       发表于 2026-1-15 21:20
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/15/212019eyj9bs7b9a6bbb0m.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-15_21-18-58.jpg</strong> (260.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 21:20 上传
+
+       [https://x.com/bang_dream_info/status/2011757445883040108](https://x.com/bang_dream_info/status/2011757445883040108)
+
+*****
+
+####  堀内爱里衣  
+##### 41671#       发表于 2026-1-15 21:21
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/15/212122ln6c7u1znrnr56ff.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-15_21-20-36.jpg</strong> (300.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 21:21 上传
+
+       [https://x.com/bang_dream_info/status/2011759014015877358](https://x.com/bang_dream_info/status/2011759014015877358)
+
+       [https://t.co/QIB4ETIAVh](https://t.co/QIB4ETIAVh)
+
+*****
+
+####  堀内爱里衣  
+##### 41672#       发表于 2026-1-15 21:22
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/15/212253quv8eluuzecgwetg.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-15_21-22-05.jpg</strong> (260.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 21:22 上传
+
+       [https://x.com/diggymo04/status/2011763266549400054](https://x.com/diggymo04/status/2011763266549400054)
+
