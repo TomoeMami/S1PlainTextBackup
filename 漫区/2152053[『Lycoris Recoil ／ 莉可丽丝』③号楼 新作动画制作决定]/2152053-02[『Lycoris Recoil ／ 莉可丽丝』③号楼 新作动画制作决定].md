@@ -29,3 +29,27 @@
 
 买内裤那一话就原形毕露了<img src="https://static.stage1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒜人  
+##### 2436#       发表于 2026-1-15 11:34
+
+<img src="https://img.stage1st.com/forum/202601/15/113416tgwgv0pm9b9wg23v.jpg" referrerpolicy="no-referrer">
+
+<strong>G-gvMHTbYAAJwmm.jpg</strong> (122.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 11:34 上传
+
+<img src="https://img.stage1st.com/forum/202601/15/113420h0b092aopoalo500.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260115_112921.jpg</strong> (30.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 11:34 上传
+
+上一本还能卖1w+，你蒜凉了
+
