@@ -27,3 +27,11 @@ GF本来就没有宣发权，他不是这游戏发行商
 GF本来就没有宣发权，他不是这游戏发行商</blockquote>
 好像是，他那小镇英雄海外好像是日本一美国分部负责的
 
+
+*****
+
+####  莉可厨  
+##### 111#       发表于 2026-1-15 17:33
+
+还魂like魂的明白吗就魂<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
