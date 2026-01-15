@@ -68,3 +68,18 @@ hnb再菜好歹也是现代大师，更何况vspo里游戏水平不高的除了e
 
 2026-1-15 14:05 上传
 
+
+*****
+
+####  艾特娜  
+##### 1737#       发表于 2026-1-15 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69028992&amp;ptid=2171972" target="_blank">poipanchao 发表于 2026-1-15 10:55</a>
+
+感觉是继sena之后最菜的了
+
+可能是英语力+歌力+直播力的加分吧
+
+前一个彩笔hnb发展的也还行，这年头纯靠游 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">hnb虽然放在VSPO里天赋确实不算高，但是放隔壁虹的话明确比她强的只有4个人
+
