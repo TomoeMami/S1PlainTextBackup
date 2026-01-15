@@ -53,3 +53,13 @@
 
 上一本还能卖1w+，你蒜凉了
 
+
+*****
+
+####  qz66618  
+##### 2437#       发表于 2026-1-15 11:40
+
+蒜人都去买泡面番bd了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
