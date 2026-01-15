@@ -52,3 +52,19 @@ vspo这新人当了几年白银狗，这也能进vspo吗
 
 hnb再菜好歹也是现代大师，更何况vspo里游戏水平不高的除了ema之外其他同接也就那样
 
+
+*****
+
+####  rzrbtk  
+##### 1736#       发表于 2026-1-15 14:06
+
+我虹什么？我虹最伟大的谷终于让dos上了<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202601/15/140514jxzs1wwf34s83fmg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 14:05 上传
+
