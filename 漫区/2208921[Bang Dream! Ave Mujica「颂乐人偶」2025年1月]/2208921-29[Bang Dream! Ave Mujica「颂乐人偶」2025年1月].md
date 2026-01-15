@@ -1023,3 +1023,23 @@ BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes
 
        摄影：ハタサトシ
 
+
+*****
+
+####  堀内爱里衣  
+##### 41674#       发表于 2026-1-15 22:35
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/15/223517fmc85m83ljm08gii.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-15_22-34-22.jpg</strong> (281.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 22:35 上传
+
+       [https://x.com/WEGO_press/status/2011800373892431983](https://x.com/WEGO_press/status/2011800373892431983)
+
+       [https://t.co/hM1yriG3Fy](https://t.co/hM1yriG3Fy)
+
