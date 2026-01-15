@@ -727,3 +727,57 @@ BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes
 
        [https://x.com/okada_mei0519/status/2011425793940103580](https://x.com/okada_mei0519/status/2011425793940103580)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41668#       发表于 2026-1-15 14:49
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/15/144923s9s3ygpfg34fffz3.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-15_14-44-55.jpg</strong> (43.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 14:49 上传
+
+       [https://x.com/Kanon_Takao/status/2011618677125455877](https://x.com/Kanon_Takao/status/2011618677125455877)
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/15/144923j1zetq7ntngttm0h.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-15_14-45-21.jpg</strong> (347.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 14:49 上传
+
+       [https://x.com/okada_mei0519/status/2011626461275570592](https://x.com/okada_mei0519/status/2011626461275570592)
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/15/144922c1eemttmttxajz6v.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-15_14-46-49.jpg</strong> (145.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 14:49 上传
+
+       [https://x.com/Watase_Yuzuki/status/2011653212504539615](https://x.com/Watase_Yuzuki/status/2011653212504539615)
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/15/144922dcwlqlqlu0v2incl.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-15_14-47-28.jpg</strong> (304.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 14:49 上传
+
+       [https://x.com/AkaneY_banu/status/2011680349160628459](https://x.com/AkaneY_banu/status/2011680349160628459)
+
