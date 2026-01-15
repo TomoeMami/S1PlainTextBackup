@@ -3826,3 +3826,13 @@ ano唱歌真难听啊
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这跟班妹子从哪冒出来的，上一季有这个人啊？已经完全忘了
 
+
+*****
+
+####  saturnus  
+##### 377#       发表于 2026-1-16 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69031652&amp;ptid=2076121" target="_blank">ardente 发表于 2026-1-15 17:19</a>
+这跟班妹子从哪冒出来的，上一季有这个人啊？已经完全忘了</blockquote>
+漫画真女二啊<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
