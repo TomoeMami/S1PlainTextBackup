@@ -147,3 +147,11 @@
 
 估计绮罗会在中指养父战中出场，自带嘲讽，挨打给她爹加buff？
 
+
+*****
+
+####  xiongxingyu  
+##### 1224#       发表于 2026-1-15 15:38
+
+哇，这第三节好爽，各种小人各种演出，从头到尾boss战，演出和机制并存，各种意料之中的人物和意料之外的人物，我觉得小金可以暂时落地一会儿<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
