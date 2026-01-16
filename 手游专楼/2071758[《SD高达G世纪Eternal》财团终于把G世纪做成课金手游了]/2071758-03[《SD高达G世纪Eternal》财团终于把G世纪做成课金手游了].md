@@ -2878,3 +2878,15 @@ ssp有推荐的吗</blockquote>
 
 实际是5个R机，文本有问题<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 3521#       发表于 2026-1-16 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69036497&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-1-16 15:19</a>
+这不对吗？</blockquote>
+日服没写错。。。是5机
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
