@@ -170,3 +170,19 @@ LEON的招式可以说全系列最cool没有之一，grace的内容估计还在�
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  哈罗  
+##### 482#       发表于 2026-1-16 12:38
+
+第一人称回旋踢回旋斩是种什么体验。。。卡婊选择不演示<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cangyuyao  
+##### 483#       发表于 2026-1-16 12:43
+
+体术动画观感有点不自然，不知道是不是为了第一视角好看
+
