@@ -2265,7 +2265,7 @@
     "lastedit": 1768565340,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1274,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 27597,
+    "totalreply": 27598,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》12.25 老库拉伸]",
-    "lastedit": 1768587372,
+    "lastedit": 1768588689,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8910,10 +8910,10 @@
     "update": false
   },
   "2185578": {
-    "totalreply": 7949,
+    "totalreply": 7950,
     "title": "[真・三国无双 起源公布，原创主角，2025年登录ps5／pc／xs]",
     "newtitle": "[真・三国无双 起源专楼｜梦幻四英杰dlc&amp;ns2版26.1.22发售]",
-    "lastedit": 1768586291,
+    "lastedit": 1768588449,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12564,10 +12564,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 7160,
+    "totalreply": 7161,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1768587730,
+    "lastedit": 1768588568,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16475,7 +16475,7 @@
     "newtitle": "[拳头FTG《2XKO》，2025上市，pc第0赛季测试已上线]",
     "lastedit": 1768329249,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2054818": {
@@ -16938,10 +16938,10 @@
     "update": false
   },
   "2272451": {
-    "totalreply": 280,
+    "totalreply": 281,
     "title": "[西贝挺不下去了？]",
     "newtitle": "[西贝事件后续：双方被禁言，西贝檄文清空]",
-    "lastedit": 1768587012,
+    "lastedit": 1768588209,
     "category": "外野",
     "active": true,
     "update": false
