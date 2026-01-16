@@ -68,3 +68,19 @@ LEON的招式可以说全系列最cool没有之一，grace的内容估计还在�
 里昂的部分看起来确实很爽，看上去好像是有能反制敌人投技的动作了，生化我最烦的一点就是那些动不动就出投技的敌人和那墨迹得要死的动画，还要你疯狂qte摆脱
 怎么还不放试玩，我还想试试看deck的效果看看买什么版本
 
+
+*****
+
+####  Piano-Forest  
+##### 471#         楼主| 发表于 2026-1-16 09:41
+
+【Resident Evil Showcase | 1.16.2026 完整节目内容】 
+[https://b23.tv/n4Uhskl](https://b23.tv/n4Uhskl)
+
+*****
+
+####  nagitoY  
+##### 472#       发表于 2026-1-16 09:45
+
+这个汉密尔顿的机械表联动，还全球限量2000块？不限量的话倒是可以考虑一下<img src="https://static.stage1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
