@@ -427,3 +427,22 @@ AGA祖传读心术又发力了
 群又活了，回来吧</blockquote>
 搜不到诶，是搜索关了吗
 
+
+*****
+
+####  WntFlm  
+##### 1848#       发表于 2026-1-16 20:19
+
+何意味，三回啊三回
+
+
+*****
+
+####  江戸前ルナ  
+##### 1849#         楼主| 发表于 2026-1-16 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69033402&amp;ptid=2104259" target="_blank">astrayl 发表于 2026-1-15 23:37</a>
+
+毕竟7年前的设计了，还是绿装，数值不可能给很高的。阿金那会估计考虑了下自己的产能，出第二套专属还不如 ...</blockquote>
+手脚弹数多CD还短，当年配小鸟刚出来的胶剑杀穿一切啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后就被阿金砍了
+
