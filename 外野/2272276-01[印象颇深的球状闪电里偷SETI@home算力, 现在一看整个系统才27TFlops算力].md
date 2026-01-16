@@ -453,3 +453,14 @@ bonic之前拿来跑PrimeGrid，冬天就能利用矿卡取暖(bushi
 通常说到科学计算，一般用的是经典的FP32（floa ...</blockquote>
 少问点ai，科学计算默认fp64，大部分情况使用ecc避免单粒子翻转造成错误。
 
+
+*****
+
+####  gnihton314  
+##### 45#       发表于 2026-1-16 10:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69034629&amp;ptid=2272276" target="_blank">hyddx 发表于 2026-1-16 09:58</a>
+
+少问点ai，科学计算默认fp64，大部分情况使用ecc避免单粒子翻转造成错误。 ...</blockquote>
+gddr自带ecc的
+
