@@ -294,3 +294,25 @@ LEON的招式可以说全系列最cool没有之一，grace的内容估计还在�
 —— 来自 Xiaomi 2410DPN6CC, Andro ...</blockquote>
 看某些丧尸服装感觉是旅馆接病院
 
+
+*****
+
+####  moeful  
+##### 495#       发表于 2026-1-16 21:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68865999&amp;ptid=2252759" target="_blank">smileboom 发表于 2025-12-12 20:11</a>
+
+我4re的王阿姨dlc都还没买来玩，什么时候打个折啊</blockquote>
+已发，试试看能不能用吧
+
+
+*****
+
+####  smileboom  
+##### 496#       发表于 2026-1-16 21:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69039217&amp;ptid=2252759" target="_blank">moeful 发表于 2026-1-16 21:41</a>
+
+已发，试试看能不能用吧</blockquote>
+收到了，能用的，感谢啊
+
