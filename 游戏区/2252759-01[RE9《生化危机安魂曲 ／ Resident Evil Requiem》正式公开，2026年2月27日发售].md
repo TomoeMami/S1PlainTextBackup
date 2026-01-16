@@ -340,3 +340,19 @@ LEON的招式可以说全系列最cool没有之一，grace的内容估计还在�
 
 不過當年馬份給你的小刀不知道還在嗎?還是隱藏武器?
 
+
+*****
+
+####  隔壁老黄  
+##### 499#       发表于 2026-1-17 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69039970&amp;ptid=2252759" target="_blank">eilot 发表于 2026-1-17 00:00</a>
+斧頭可是即時用磨刀石補回斬味，而且磨得算快
+
+而且不像對面獵人要乖乖跪在原地慢慢磨
+
+不過當年馬份給你的小 ...</blockquote>
+他那斧头看着像高科技冷兵器，没想到居然还要磨<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
