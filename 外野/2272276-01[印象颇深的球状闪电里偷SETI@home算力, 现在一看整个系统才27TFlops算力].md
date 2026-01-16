@@ -464,3 +464,14 @@ bonic之前拿来跑PrimeGrid，冬天就能利用矿卡取暖(bushi
 少问点ai，科学计算默认fp64，大部分情况使用ecc避免单粒子翻转造成错误。 ...</blockquote>
 gddr自带ecc的
 
+
+*****
+
+####  hyddx  
+##### 46#       发表于 2026-1-16 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69034729&amp;ptid=2272276" target="_blank">gnihton314 发表于 2026-1-16 10:12</a>
+
+gddr自带ecc的</blockquote>
+兄弟，虽然现在GPU大行其道，但是大量科学计算还是跑在cpu上的。
+
