@@ -1128,3 +1128,65 @@ BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes
 
        [https://t.co/sKHEugTFGg](https://t.co/sKHEugTFGg)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41677#       发表于 2026-1-16 14:42
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/16/144230grssq7bmbd14d43p.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-16_14-40-56.jpg</strong> (322.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-16 14:42 上传
+
+       [https://x.com/bushi_hobby_jp/status/2011996865865425055](https://x.com/bushi_hobby_jp/status/2011996865865425055)
+
+       [https://t.co/1hmSMxV3jX](https://t.co/1hmSMxV3jX)
+
+*****
+
+####  堀内爱里衣  
+##### 41678#       发表于 2026-1-16 14:45
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/16/144527ty44o4myu07yp9cp.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-16_14-42-59.jpg</strong> (325.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-16 14:45 上传
+
+       [https://x.com/bushi_creative/status/2012027058659213629](https://x.com/bushi_creative/status/2012027058659213629)
+
+       [https://t.co/6UXwA2w8Ef](https://t.co/6UXwA2w8Ef)
+
+       [https://t.co/FRBX330kOL](https://t.co/FRBX330kOL)
+
+*****
+
+####  堀内爱里衣  
+##### 41679#       发表于 2026-1-16 14:45
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/16/144551ycfobh01fhbolb6g.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-16_14-43-41.jpg</strong> (317.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-16 14:45 上传
+
+       [https://x.com/bushi_creative/status/2012027297268895766](https://x.com/bushi_creative/status/2012027297268895766)
+
+       [https://t.co/I8JQkSYcje](https://t.co/I8JQkSYcje)
+
+       [https://t.co/FmbMTuj39d](https://t.co/FmbMTuj39d)
+
