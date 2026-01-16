@@ -2829,3 +2829,24 @@ ssp有推荐的吗</blockquote>
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  安广多惠子  
+##### 3518#       发表于 2026-1-16 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69033720&amp;ptid=2071758" target="_blank">acg_gyanc 发表于 2026-1-16 01:49</a>
+只有谷歌商店，没有其他渠道，实际谷歌商店也是模拟器。另外根据我看到的帖子，不同人玩谷歌商店版，一些 ...</blockquote>
+确实垃圾，我之前有好一阵子开游戏一分钟后画面就卡死，找了半天也不知道什么原因，大概过了一个多月后某次更新又自动解决了，很神秘
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一个陆仁贾  
+##### 3519#       发表于 2026-1-16 14:23
+
+本来想3000碰瓷铁血的机体结果出了锦江船<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
