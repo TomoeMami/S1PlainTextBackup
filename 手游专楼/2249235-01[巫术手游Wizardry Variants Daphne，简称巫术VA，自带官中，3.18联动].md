@@ -399,3 +399,14 @@ sp爱丽丝要来了，顺便看看之前老限定怎么返场吧，蝴蝶没克
 
 <img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">60抽一个狼哥，快跑
 
+
+*****
+
+####  电脑死机  
+##### 681#       发表于 2026-1-16 08:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69031799&amp;ptid=2249235" target="_blank">UnknownRei 发表于 2026-1-15 17:44</a>
+
+60抽一个狼哥，快跑</blockquote>
+130抽入手狼叔*2，sp财迷*4，女忍*1，sp王女*1，蝴蝶*2
+
