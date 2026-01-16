@@ -2811,3 +2811,11 @@ ssp有推荐的吗</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  马桶3  
+##### 3516#       发表于 2026-1-16 07:52
+
+我买了个新的迷你主机懒得折腾就只有一个C盘，所以再也不用担心各种软件装C盘了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
