@@ -149,3 +149,14 @@ LEON的招式可以说全系列最cool没有之一，grace的内容估计还在�
 
 居然不给试玩，印象中78都给了吧
 
+
+*****
+
+####  moeful  
+##### 480#       发表于 2026-1-16 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68865999&amp;ptid=2252759" target="_blank">smileboom 发表于 2025-12-12 20:11</a>
+
+我4re的王阿姨dlc都还没买来玩，什么时候打个折啊</blockquote>
+以前论坛抽奖我中过一个dlc的码，要的话私信我我发你
+
