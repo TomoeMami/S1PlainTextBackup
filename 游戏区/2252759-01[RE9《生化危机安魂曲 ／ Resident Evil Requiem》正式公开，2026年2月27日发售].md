@@ -206,3 +206,33 @@ LEON的招式可以说全系列最cool没有之一，grace的内容估计还在�
 踢完踩头的处决也有点拖泥带 ...</blockquote>
 这代目前展现出的体术动作，被咬了挣脱开反手一斧子劈过去，快速贴身然后手枪对着下巴开枪，电锯劈砍，还有疑似一闪的闪开电锯爆头这几个是很帅的。回旋踢和斯巴达正蹬中规中矩，那个踢两脚在踩头的，很灾难，感觉完全没什么力度，蹬到墙上了感觉还是软软的
 
+
+*****
+
+####  csolfans  
+##### 486#       发表于 2026-1-16 14:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69035120&amp;ptid=2252759" target="_blank">bingo0716 发表于 2026-1-16 10:59</a>
+居然不给试玩，印象中78都给了吧</blockquote>
+5到8，2re,4re都有
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  csolfans  
+##### 487#       发表于 2026-1-16 14:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69035670&amp;ptid=2252759" target="_blank">哈罗 发表于 2026-1-16 12:38</a>
+第一人称回旋踢回旋斩是种什么体验。。。卡婊选择不演示</blockquote>
+可能像re4VR那样变第三人称
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  桥洞底下盖小被  
+##### 488#       发表于 2026-1-16 14:52
+
+这体术演出也是烂完了
+
