@@ -270,3 +270,15 @@ LEON的招式可以说全系列最cool没有之一，grace的内容估计还在�
 
 下个月任天堂直面会肯定还要放消息
 
+
+*****
+
+####  zqqwe  
+##### 493#       发表于 2026-1-16 18:41
+
+ 本帖最后由 zqqwe 于 2026-1-16 18:43 编辑 
+
+看到缩圈和打头打腿还是随机硬直就<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+双主角老带新，分头篇会是逆走流程的经典设计吗<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 
+
