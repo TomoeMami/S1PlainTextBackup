@@ -85,3 +85,16 @@
 
 机器人，越南妹，武僧，恐龙人，大奶咒蛙，幽影的美术已经有种废案再利用的味道了，黑环纯边角料，这个Duskbloods有一种山寨作的美。
 
+
+*****
+
+####  woaimiyabi  
+##### 51#       发表于 2026-1-16 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68988777&amp;ptid=2271614" target="_blank">serj005 发表于 2026-1-7 10:48</a>
+
+卖相不如黑环+1
+
+黑环在最早的试玩出来看到那些对比法环本体的快节奏改进，还有捡武器获得词条杀怪掉落数值 ...</blockquote>
+一个小弟用老头环边角料做的黑环，一个宫崎英高亲自操刀制作六年的正统新作，卖相黑环更好？我看不如说因为ns2限时独占是原罪。
+

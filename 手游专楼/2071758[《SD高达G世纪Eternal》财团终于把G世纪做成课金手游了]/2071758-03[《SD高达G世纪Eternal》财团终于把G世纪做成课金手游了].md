@@ -2890,3 +2890,46 @@ ssp有推荐的吗</blockquote>
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  シャル  
+##### 3522#         楼主| 发表于 2026-1-16 16:47
+
+打完了
+
+任务也就全秘录机体打第8关麻烦点
+
+<img src="https://img.stage1st.com/forum/202601/16/164539zaaf3qn9sjhv2mmj.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202601/16/164539zaaf3qn9sjhv2mmj.png">
+
+<strong>IMG_4541.png</strong> (768.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-16 16:45 上传
+
+sp2台
+
+<img src="https://img.stage1st.com/forum/202601/16/164717m57vew5w9vey1935.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4539.png</strong> (662.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-16 16:47 上传
+
+<img src="https://img.stage1st.com/forum/202601/16/164717l2r9my6z9n8r9nr6.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4538.png</strong> (647.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-16 16:47 上传
+
+*****
+
+####  森兰丸  
+##### 3523#       发表于 2026-1-16 16:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">.......活动能不能别搞这么多乱七八糟的任务啊.....我只想用卡池UR自动碾过去后再每天扫荡1遍
+
