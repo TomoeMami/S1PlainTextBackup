@@ -121,3 +121,13 @@ ces看到的
 
 2026-1-15 00:37 上传
 
+
+*****
+
+####  黑猫软  
+##### 461#       发表于 2026-1-16 12:49
+
+死亡搁浅2的PC版评级连着两次，正准备搬运呢，又给撤回了，不知道在拉扯什么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+预测下次sop可能会官宣ds2pc，羊蹄山独占期至少一年以上，今年大概不会有。
+
