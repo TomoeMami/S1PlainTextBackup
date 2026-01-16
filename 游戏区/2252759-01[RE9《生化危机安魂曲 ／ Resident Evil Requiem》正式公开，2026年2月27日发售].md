@@ -316,3 +316,15 @@ LEON的招式可以说全系列最cool没有之一，grace的内容估计还在�
 已发，试试看能不能用吧</blockquote>
 收到了，能用的，感谢啊
 
+
+*****
+
+####  隔壁老黄  
+##### 497#       发表于 2026-1-16 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69038790&amp;ptid=2252759" target="_blank">Ironman_mk5 发表于 2026-1-16 20:40</a>
+看某些丧尸服装感觉是旅馆接病院</blockquote>
+不知道有没有室外地图，感觉会有
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
