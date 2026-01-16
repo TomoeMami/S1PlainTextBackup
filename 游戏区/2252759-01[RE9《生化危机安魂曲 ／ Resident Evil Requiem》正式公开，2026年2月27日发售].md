@@ -282,3 +282,15 @@ LEON的招式可以说全系列最cool没有之一，grace的内容估计还在�
 
 双主角老带新，分头篇会是逆走流程的经典设计吗<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  Ironman_mk5  
+##### 494#       发表于 2026-1-16 20:40
+
+<blockquote>隔壁老黄 发表于 2026-1-16 17:24
+看试玩场景，分头跟格蕾丝是在一个地方？就那破旅馆有这么大的区域？
+
+—— 来自 Xiaomi 2410DPN6CC, Andro ...</blockquote>
+看某些丧尸服装感觉是旅馆接病院
+
