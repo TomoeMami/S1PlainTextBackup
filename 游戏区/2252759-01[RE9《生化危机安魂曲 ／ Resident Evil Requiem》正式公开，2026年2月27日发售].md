@@ -356,3 +356,36 @@ LEON的招式可以说全系列最cool没有之一，grace的内容估计还在�
 
 —— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  bingo0716  
+##### 500#       发表于 2026-1-17 00:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69036330&amp;ptid=2252759" target="_blank">csolfans 发表于 2026-1-16 14:50</a>
+
+5到8，2re,4re都有
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+顺手搜了一下，生化34的试玩都是发售前两周给的，等2月13日吧
+
+*****
+
+####  eilot  
+##### 501#       发表于 2026-1-17 00:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69035626&amp;ptid=2252759" target="_blank">57042711 发表于 2026-1-16 12:29</a>
+
+这随手捡武器，丧尸围城了吗
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, 鹅球 v3.5.99</blockquote>
+6代眾人都可以搶走對方「身」上的武器來攻擊
+
+不過只得那一次
+
+不過某程度來講，隨著機能上升
+
+主角要「萬物皆成神兵」可是未必要求吧，
+
+而且這也算在喪屍環境中求生的最合理情況
+
