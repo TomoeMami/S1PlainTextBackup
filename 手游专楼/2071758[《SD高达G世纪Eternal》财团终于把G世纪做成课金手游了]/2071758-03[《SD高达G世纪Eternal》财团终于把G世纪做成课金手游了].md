@@ -2950,3 +2950,11 @@ sp2台
 
 <img src="https://img.stage1st.com/forum/202601/16/174447jxpv5za5cv05yzrq.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  redrum  
+##### 3525#       发表于 2026-1-16 18:23
+
+603机体不算igloo。。。
+
