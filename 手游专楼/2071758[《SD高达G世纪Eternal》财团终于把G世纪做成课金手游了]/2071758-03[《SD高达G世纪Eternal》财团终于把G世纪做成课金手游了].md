@@ -2850,3 +2850,31 @@ ssp有推荐的吗</blockquote>
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3520#       发表于 2026-1-16 15:19
+
+ 本帖最后由 螺旋的小夜曲 于 2026-1-16 15:21 编辑 
+
+<img src="https://img.stage1st.com/forum/202601/16/151918nxxmgnuz2hgbghgb.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20260116151819.png</strong> (186.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-16 15:19 上传
+
+<img src="https://img.stage1st.com/forum/202601/16/151918keuihzzy8wyz35ot.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20260116151835.png</strong> (199.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-16 15:19 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这不对吗？
+
+实际是5个R机，文本有问题<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
