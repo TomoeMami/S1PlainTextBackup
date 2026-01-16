@@ -90,3 +90,11 @@
 
 回天难道还能在延期一年<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">不会比蒜还晚出吧。
 
+
+*****
+
+####  osore  
+##### 2441#       发表于 2026-1-16 23:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">各大电影院门口已经贴上宣传海报了，回天稳了的
+
