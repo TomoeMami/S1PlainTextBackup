@@ -414,3 +414,16 @@ AGA祖传读心术又发力了
 
 毕竟7年前的设计了，还是绿装，数值不可能给很高的。阿金那会估计考虑了下自己的产能，出第二套专属还不如出新角色吧
 
+
+*****
+
+####  RinC  
+##### 1847#       发表于 2026-1-16 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69032985&amp;ptid=2104259" target="_blank">alialex 发表于 2026-1-15 21:57</a>
+
+698888799
+
+群又活了，回来吧</blockquote>
+搜不到诶，是搜索关了吗
+
