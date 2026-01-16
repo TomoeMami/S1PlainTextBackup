@@ -160,3 +160,13 @@ LEON的招式可以说全系列最cool没有之一，grace的内容估计还在�
 我4re的王阿姨dlc都还没买来玩，什么时候打个折啊</blockquote>
 以前论坛抽奖我中过一个dlc的码，要的话私信我我发你
 
+
+*****
+
+####  57042711  
+##### 481#       发表于 2026-1-16 12:29
+
+这随手捡武器，丧尸围城了吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
