@@ -66,3 +66,14 @@
 
 还是期待的,主要是相信宫崎英高,至于在喷的pvpve网游,确实是个担心的点,看fs怎么处理了.
 
+
+*****
+
+####  ffmzsj  
+##### 49#       发表于 2026-1-16 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69036361&amp;ptid=2271614" target="_blank">hu794 发表于 2026-1-16 14:55</a>
+
+哈哈是的，看了一下这个楼，除了极个别坛友比如宫崎英高信者zakki以及另外一两个人期待，其余的人要么是 ...</blockquote>
+传统艺能装弱势嘛 但不知道为啥不装了 是不需要了不屑了还是累了装不动了 谁知道呢
+
