@@ -136,3 +136,17 @@
 
 黑环玩法我大体上没意见，最搞不懂的还是这个抽风一样的网络延迟，以及某些玩家对延迟自适应的态度。都2026年了网络问题还这么严重，我觉得是不应该的，希望下一作这方面能搞好点。
 
+
+*****
+
+####  serj005  
+##### 56#       发表于 2026-1-16 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69037082&amp;ptid=2271614" target="_blank">woaimiyabi 发表于 2026-1-16 16:48</a>
+一个小弟用老头环边角料做的黑环，一个宫崎英高亲自操刀制作六年的正统新作，卖相黑环更好说不过去吧。 ...</blockquote>
+制作人是谁和前期宣传卖相又有什么关系，又不会有人买游戏只看制作人<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+黑环宣发期直接把玩法写明了，最早的预告也全是实际游戏中的战斗特辑和机制演示，再后面测试服玩法出来就能预料到这游戏实际玩起来是什么感觉。
+duskblood宣发没有什么战斗场景大部分都是角色特写还有一个玩法未知的访谈，连游戏实际的进行模式都不知道，再加上pvpve这种一结合魂游玩家环境就很慌的分类，我觉得大部分人对它抱有怀疑是正常的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
