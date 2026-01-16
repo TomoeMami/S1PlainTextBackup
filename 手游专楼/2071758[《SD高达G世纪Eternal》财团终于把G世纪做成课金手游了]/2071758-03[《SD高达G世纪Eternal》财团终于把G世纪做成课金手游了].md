@@ -2819,3 +2819,13 @@ ssp有推荐的吗</blockquote>
 
 我买了个新的迷你主机懒得折腾就只有一个C盘，所以再也不用担心各种软件装C盘了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 3517#       发表于 2026-1-16 12:56
+
+好麻烦的活动<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
