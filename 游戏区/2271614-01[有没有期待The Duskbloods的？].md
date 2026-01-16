@@ -162,3 +162,23 @@ duskblood宣发没有什么战斗场景大部分都是角色特写还有一个�
 
 对黑环和黄昏血充满恶意的人我觉得也很好理解，就是那种“希望我喜欢的游戏可以一直出能让我满意的同类型续作，一旦有任何让我不满的改动和创新我就要骂制作者狗屁不懂浪费资源**的个人中心主义者吧”
 
+
+*****
+
+####  ffmzsj  
+##### 58#       发表于 2026-1-17 04:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69036361&amp;ptid=2271614" target="_blank">hu794 发表于 2026-1-16 14:55</a>
+
+哈哈是的，看了一下这个楼，除了极个别坛友比如宫崎英高信者zakki以及另外一两个人期待，其余的人要么是 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202601/17/042148ytg92yvjrvyhs0ar.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-17 04:21 上传
+
+装弱势常见手段be like
+
