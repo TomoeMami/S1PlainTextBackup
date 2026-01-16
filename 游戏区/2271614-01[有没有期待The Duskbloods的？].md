@@ -43,3 +43,18 @@
 
 但是这个游戏看起来不像是吃鸡网游啊。
 
+
+*****
+
+####  ef6270  
+##### 46#       发表于 2026-1-16 15:10
+
+如果可以一个人玩我就期待，我不玩任何强制PVP的游戏<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cosx  
+##### 47#       发表于 2026-1-16 15:13
+
+我只期待血源2
+
