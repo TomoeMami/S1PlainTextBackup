@@ -23,3 +23,23 @@
 
 为什么这都能叫任坛。
 
+
+*****
+
+####  NeverCU  
+##### 44#       发表于 2026-1-16 15:01
+
+又不是steam平台，谁会期待一个吃鸡网游
+
+*****
+
+####  hu794  
+##### 45#         楼主| 发表于 2026-1-16 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69036399&amp;ptid=2271614" target="_blank">NeverCU 发表于 2026-1-16 15:01</a>
+
+又不是steam平台，谁会期待一个吃鸡网游</blockquote>
+嗯，不同平台的游戏倾向性不同，steam平台的玩家确实更喜欢吃鸡网游。
+
+但是这个游戏看起来不像是吃鸡网游啊。
+
