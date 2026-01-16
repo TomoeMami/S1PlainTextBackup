@@ -440,3 +440,16 @@ bonic之前拿来跑PrimeGrid，冬天就能利用矿卡取暖(bushi
 通常泛泛说NV卡的算力只给一个数值的时候，通常用的是最大的那个数值。在目前 ...</blockquote>
 我都不想问是什么原因会让你会认为大家「通常用最大的那个数字」而搞不清这种低级的口径问题，你有什么理由为楼主操心啊，你该不会以为主楼贴的数据也搞错了不同精度的数据吧
 
+
+*****
+
+####  hyddx  
+##### 44#       发表于 2026-1-16 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69026320&amp;ptid=2272276" target="_blank">yigua 发表于 2026-1-14 19:54</a>
+
+请注意老黄的一个问题：TFlops和TFlops的精度是不一样的。
+
+通常说到科学计算，一般用的是经典的FP32（floa ...</blockquote>
+少问点ai，科学计算默认fp64，大部分情况使用ecc避免单粒子翻转造成错误。
+
