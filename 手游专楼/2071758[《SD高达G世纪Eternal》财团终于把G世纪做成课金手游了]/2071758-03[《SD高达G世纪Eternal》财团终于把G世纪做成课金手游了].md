@@ -3102,3 +3102,11 @@ ur动画还不错，只是机体选择错误了吧，默示录感觉是斗狼人
 
 友谊费到手
 
+
+*****
+
+####  blue321  
+##### 3541#       发表于 2026-1-17 23:07
+
+不是吧这个池也能有朋友费收？太猛了伙计们<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

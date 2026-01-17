@@ -464,3 +464,16 @@ Our development team is just doing its best to make sure that it’s creating th
 RE7’s Beginning Hour demo was a game-changer. As a lifelong fan, I was amazed that I got to jump  ...</blockquote>
 老实说，就算有试玩，估计几乎百分百是科隆，TGS那个重复的追逐DEMO。实际意义也就做一下数毛，深层不放出意义要不就是怕提前泄露东西太少，要不就是想藏的东西太多，怕被提前泄露了。毕竟生化8当年被黑客，demo泄露联合双打了一波
 
+
+*****
+
+####  bingo0716  
+##### 508#       发表于 2026-1-17 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69043722&amp;ptid=2252759" target="_blank">pentacles 发表于 2026-1-17 21:45</a>
+
+。 没试玩 那得谨慎看待了(但也不排除头脑发热冲了首日
+
+目前看到的格蕾丝方面都不太乐观 但又不好描述 ...</blockquote>
+有同感，一般这种既要又要的双系统，以卡表最近的尿性怕是两边都内容不足
+
