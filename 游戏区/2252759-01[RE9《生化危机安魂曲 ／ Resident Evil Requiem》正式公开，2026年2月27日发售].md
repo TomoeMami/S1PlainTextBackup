@@ -443,3 +443,13 @@ Our development team is just doing its best to make sure that it’s creating th
 
 這時就要先回之前的路慢慢解迷解機關找寶石，才能找到本門匙...
 
+
+*****
+
+####  pentacles  
+##### 506#       发表于 2026-1-17 21:45
+
+。 没试玩 那得谨慎看待了(但也不排除头脑发热冲了首日
+
+目前看到的格蕾丝方面都不太乐观 但又不好描述
+
