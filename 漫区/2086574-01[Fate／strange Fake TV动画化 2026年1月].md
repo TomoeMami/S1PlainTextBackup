@@ -93,3 +93,22 @@ b站链接：[《Fate/strange Fake》监督对谈——力求呈现出《Fake》
 明明就是个吃小孩的小丑</blockquote>
 吃小孩的事不是早就被洗地说是黑泥影响了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天堂懵懂人  
+##### 614#       发表于 2026-1-18 03:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">背景画得是真好
+
+*****
+
+####  洛克萨斯  
+##### 615#       发表于 2026-1-18 03:10
+
+1.转场很生硬，节奏不行
+
+2.打戏很酷炫，原谅节奏不行的问题了
+
+3.2b修女小姐好好看<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
