@@ -14,3 +14,15 @@
 
 金先生要被刷b格咯~
 
+
+*****
+
+####  幼稚完了吗zz  
+##### 606#       发表于 2026-1-17 23:29
+
+想起来前几天翻的访谈没在这里宣传，如果感兴趣的可以来看一下。
+
+b站链接：[《Fate/strange Fake》监督对谈——力求呈现出《Fake》风格的画面](https://weibo.com/ttarticle/p/show?id=2309405254203529887990)
+
+微博链接：[《Fate/strange Fake》监督对谈——力求呈现出《Fake》风格的画面](https://www.bilibili.com/opus/1156827214771126275?spm_id_from=333.999.0.0)
+
