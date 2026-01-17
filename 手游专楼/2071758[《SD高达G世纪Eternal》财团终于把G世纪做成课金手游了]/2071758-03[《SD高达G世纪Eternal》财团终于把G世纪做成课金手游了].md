@@ -3030,3 +3030,11 @@ ur动画还不错，只是机体选择错误了吧，默示录感觉是斗狼人
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  arthes  
+##### 3534#       发表于 2026-1-17 10:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">养服大佬牛逼，话说其实这也和万代自己那个商店渠道有关吧，应该分流了不少充值的人？
+
