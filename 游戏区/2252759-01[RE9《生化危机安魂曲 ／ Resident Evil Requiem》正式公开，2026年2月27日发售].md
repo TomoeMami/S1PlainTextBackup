@@ -428,3 +428,18 @@ Our development team is just doing its best to make sure that it’s creating th
 </blockquote>
 想万物皆兵的话做个丧尸围城5再挂个生化危机10的名字就行了
 
+
+*****
+
+####  eilot  
+##### 505#       发表于 2026-1-17 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69041631&amp;ptid=2252759" target="_blank">Ironman_mk5 发表于 2026-1-17 13:23</a>
+
+想万物皆兵的话做个丧尸围城5再挂个生化危机10的名字就行了</blockquote>
+真是做喪屍圍城的話，就有點像6代再無雙化..鏡頭角度有點不合適
+
+不過還是先解決現在想準備出去外面但前面的木門被鎖，但旁邊有一個普通的玻璃窗出面是平地來
+
+這時就要先回之前的路慢慢解迷解機關找寶石，才能找到本門匙...
+
