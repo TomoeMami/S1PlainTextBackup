@@ -413,3 +413,18 @@ Our development team is just doing its best to make sure that it’s creating th
 
 查了下，去年11月就确认没demo了
 
+
+*****
+
+####  Ironman_mk5  
+##### 504#       发表于 2026-1-17 13:23
+
+<blockquote>eilot 发表于 2026-1-17 00:51
+6代眾人都可以搶走對方「身」上的武器來攻擊
+
+不過只得那一次
+
+不過某程度來講，隨著機能上升
+</blockquote>
+想万物皆兵的话做个丧尸围城5再挂个生化危机10的名字就行了
+
