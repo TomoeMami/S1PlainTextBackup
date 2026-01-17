@@ -26,3 +26,11 @@ b站链接：[《Fate/strange Fake》监督对谈——力求呈现出《Fake》
 
 微博链接：[《Fate/strange Fake》监督对谈——力求呈现出《Fake》风格的画面](https://www.bilibili.com/opus/1156827214771126275?spm_id_from=333.999.0.0)
 
+
+*****
+
+####  黑酒杯  
+##### 607#       发表于 2026-1-18 00:16
+
+只有我觉得这集节奏差得离谱吗？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
