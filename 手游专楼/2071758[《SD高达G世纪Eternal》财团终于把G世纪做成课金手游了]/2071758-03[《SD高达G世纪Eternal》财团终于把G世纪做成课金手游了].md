@@ -3019,3 +3019,14 @@ ur动画还不错，只是机体选择错误了吧，默示录感觉是斗狼人
 
 我要消灭吉翁公国，天天往卡池里放垃圾ur，尤其是污染支援
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 3533#       发表于 2026-1-17 08:56
+
+登。。。登顶了？<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">第二天登顶会送吗？
+<img src="https://p.sda1.dev/30/d566753ae6cafa96bbebc49779926b9e/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
