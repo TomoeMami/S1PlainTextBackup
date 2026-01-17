@@ -3066,3 +3066,11 @@ ur动画还不错，只是机体选择错误了吧，默示录感觉是斗狼人
 登。。。登顶了？第二天登顶会送吗？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万代：看来还没到下限，继续测试
 
+
+*****
+
+####  ドロロ  
+##### 3537#       发表于 2026-1-17 14:03
+
+送3000钻了，又抽了个空气<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
