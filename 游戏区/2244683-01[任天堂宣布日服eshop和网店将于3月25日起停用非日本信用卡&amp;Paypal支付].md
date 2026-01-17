@@ -2413,3 +2413,15 @@ ana pay（虚拟visa，绑大陆发行的JCB）可以正常 ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">妈的 我的VISA还是被扣任天堂会员的款了 不是说不接受非日本信用卡么
 
+
+*****
+
+####  oi99o  
+##### 247#         楼主| 发表于 2026-1-18 01:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69043822&amp;ptid=2244683" target="_blank">椎名mahuyo 发表于 2026-1-17 22:01</a>
+妈的 我的VISA还是被扣任天堂会员的款了 不是说不接受非日本信用卡么</blockquote>
+在截止日前开启的自动续费就能扣
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
