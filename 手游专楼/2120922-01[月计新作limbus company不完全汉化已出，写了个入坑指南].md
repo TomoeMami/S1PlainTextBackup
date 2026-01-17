@@ -184,3 +184,16 @@
 
 补完第九章剧情了，很满意，玩巴士就是为了看这个！
 
+
+*****
+
+####  lls2388  
+##### 1227#       发表于 2026-1-17 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69038082&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2026-1-16 19:14</a>
+
+中指玛PV里好像把食指养父给性转了，变成了老妈...
+
+不知道人格会给谁，女角色也就剩罗佳了（我觉得罗佳 ...</blockquote>
+参考神父虫和炎拳虫，包有人要双三灯的
+
