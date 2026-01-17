@@ -2405,3 +2405,11 @@ ana pay（虚拟visa，绑大陆发行的JCB）可以正常 ...</blockquote>
 
 争取3打头。
 
+
+*****
+
+####  椎名mahuyo  
+##### 246#       发表于 2026-1-17 22:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">妈的 我的VISA还是被扣任天堂会员的款了 不是说不接受非日本信用卡么
+
