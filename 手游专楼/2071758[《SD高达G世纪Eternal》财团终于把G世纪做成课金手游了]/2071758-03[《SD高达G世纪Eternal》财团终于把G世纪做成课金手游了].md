@@ -3038,3 +3038,31 @@ ur动画还不错，只是机体选择错误了吧，默示录感觉是斗狼人
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">养服大佬牛逼，话说其实这也和万代自己那个商店渠道有关吧，应该分流了不少充值的人？
 
+
+*****
+
+####  シャル  
+##### 3535#         楼主| 发表于 2026-1-17 11:11
+
+发现ssp徽章又够了
+
+第二个ssp
+
+<img src="https://img.stage1st.com/forum/202601/17/111052lj160j9q22ncj4jp.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202601/17/111052lj160j9q22ncj4jp.png">
+
+<strong>IMG_4545.png</strong> (837.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-17 11:10 上传
+
+*****
+
+####  洛克萨斯  
+##### 3536#       发表于 2026-1-17 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69040592&amp;ptid=2071758" target="_blank">真贝尔奈普斯 发表于 2026-1-17 08:56</a>
+
+登。。。登顶了？第二天登顶会送吗？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万代：看来还没到下限，继续测试
+
