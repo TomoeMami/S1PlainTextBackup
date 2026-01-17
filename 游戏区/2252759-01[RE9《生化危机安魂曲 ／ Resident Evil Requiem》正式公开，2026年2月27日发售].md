@@ -397,3 +397,19 @@ LEON的招式可以说全系列最cool没有之一，grace的内容估计还在�
 
 什么时候能表演下飞刀  反正都这么花里胡哨了
 
+
+*****
+
+####  哈罗  
+##### 503#       发表于 2026-1-17 13:09
+
+<blockquote>bingo0716 发表于 2026-1-17 00:51
+顺手搜了一下，生化34的试玩都是发售前两周给的，等2月13日吧</blockquote>
+RE7’s Beginning Hour demo was a game-changer. As a lifelong fan, I was amazed that I got to jump in and see what I could expect from the next big release, but in a way that was unique, and different than just a slice from the game itself. Can we expect something similar for Requiem?
+
+So, in terms of a demo play, we actually have no plan for one [for the general public] at the stage. None at all. We just want to focus on finishing off the game.
+
+Our development team is just doing its best to make sure that it’s creating the best quality game; to make sure that it’s a fine product.
+
+查了下，去年11月就确认没demo了
+
