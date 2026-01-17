@@ -3082,3 +3082,15 @@ ur动画还不错，只是机体选择错误了吧，默示录感觉是斗狼人
 
 这都能登顶，我服了
 
+
+*****
+
+####  acg_gyanc  
+##### 3539#       发表于 2026-1-17 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69041994&amp;ptid=2071758" target="_blank">demon6666 发表于 2026-1-17 14:58</a>
+这都能登顶，我服了</blockquote>
+还得是港服<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
