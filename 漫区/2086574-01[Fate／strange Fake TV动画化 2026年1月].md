@@ -44,3 +44,39 @@ b站链接：[《Fate/strange Fake》监督对谈——力求呈现出《Fake》
 
 —— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  poiqwe  
+##### 609#       发表于 2026-1-18 00:48
+
+还有2b<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leonardydd  
+##### 610#       发表于 2026-1-18 00:48
+
+神父你还是魔鬼改造人啊。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 611#       发表于 2026-1-18 00:49
+
+这么多年来闪闪形象是彻底无害化了是吧
+明明就是个吃小孩的小丑
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  岸波白野  
+##### 612#       发表于 2026-1-18 00:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69044498&amp;ptid=2086574" target="_blank">ParadiseMartyr 发表于 2026-1-18 00:49</a>
+这么多年来闪闪形象是彻底无害化了是吧
+明明就是个吃小孩的小丑</blockquote>
+没办法菌虚成三人都是闪孝子
+
