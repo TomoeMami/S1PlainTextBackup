@@ -34,3 +34,13 @@ b站链接：[《Fate/strange Fake》监督对谈——力求呈现出《Fake》
 
 只有我觉得这集节奏差得离谱吗？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  乞力马札罗的雪  
+##### 608#       发表于 2026-1-18 00:31
+
+平平淡淡<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
