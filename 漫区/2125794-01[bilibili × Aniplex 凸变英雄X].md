@@ -12,3 +12,14 @@
 
 youtube的日版角色剧情pv是纯音乐没有台词，少了很多关键信息（例如“月球”），中配版有台词却没配乐，两边都感觉缺了点东西
 
+
+*****
+
+####  rushsong  
+##### 546#       发表于 2026-1-17 19:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69041287&amp;ptid=2125794" target="_blank">zqqwe 发表于 2026-1-17 11:56</a>
+
+去年补了火凤、枕刀歌，今年初看到推上的切片去补了凸变X（日配），感觉国产动画制作最后一块短板只剩中文 ...</blockquote>
+不是，最大的短板是剧本，没发现凸变英雄x经常出现情节衔接生硬，台词对不上情绪变化吗？这就是不会写剧本的毛病
+
