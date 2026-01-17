@@ -80,3 +80,16 @@ b站链接：[《Fate/strange Fake》监督对谈——力求呈现出《Fake》
 明明就是个吃小孩的小丑</blockquote>
 没办法菌虚成三人都是闪孝子
 
+
+*****
+
+####  pokemon最爱  
+##### 613#       发表于 2026-1-18 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69044498&amp;ptid=2086574" target="_blank">ParadiseMartyr 发表于 2026-1-18 00:49</a>
+
+这么多年来闪闪形象是彻底无害化了是吧
+
+明明就是个吃小孩的小丑</blockquote>
+吃小孩的事不是早就被洗地说是黑泥影响了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
