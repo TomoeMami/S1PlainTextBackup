@@ -26,3 +26,15 @@
 全成就后在奥尔大教堂那里还有隐藏boss可以打</blockquote>
 奥尔大教堂在哪里，找不到啊<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  正田崇  
+##### 227#       发表于 2026-1-17 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69041262&amp;ptid=2263973" target="_blank">kyyytu 发表于 2026-1-17 11:52</a>
+奥尔大教堂在哪里，找不到啊</blockquote>
+直接去打古神的地方对话
+
+—— 来自 OnePlus PJA110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
