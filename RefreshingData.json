@@ -4767,7 +4767,7 @@
     "lastedit": 1768737000,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2119338": {
     "totalreply": 945,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 28130,
+    "totalreply": 28191,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》12.25 老库拉伸]",
-    "lastedit": 1768762569,
+    "lastedit": 1768774451,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12069,10 +12069,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 35290,
+    "totalreply": 35293,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1768767971,
+    "lastedit": 1768774688,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12627,10 +12627,10 @@
     "update": false
   },
   "2269491": {
-    "totalreply": 6499,
+    "totalreply": 6500,
     "title": "[牢A与赞美诗]",
     "newtitle": "[牢A与赞美诗（转型牢A切片讨论楼）]",
-    "lastedit": 1768772650,
+    "lastedit": 1768774210,
     "category": "外野",
     "active": true,
     "update": false
@@ -14814,10 +14814,10 @@
     "update": false
   },
   "2251328": {
-    "totalreply": 63,
+    "totalreply": 64,
     "title": "[「凭你也想讨伐魔王？」TV动画化]",
     "newtitle": "[「凭你也想讨伐魔王？」TV动画化]",
-    "lastedit": 1768625648,
+    "lastedit": 1768774328,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16362,12 +16362,12 @@
     "update": false
   },
   "2271287": {
-    "totalreply": 43,
+    "totalreply": 44,
     "title": "[【2026】格斗游戏节奏楼]",
     "newtitle": "[【2026】格斗游戏节奏楼]",
-    "lastedit": 1768450691,
+    "lastedit": 1768774569,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2272304": {
