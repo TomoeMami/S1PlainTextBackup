@@ -153,3 +153,19 @@ HF线的话，就是走夜路被间桐樱吃掉的老马。
 明明就是个吃小孩的小丑</blockquote>
 早转型完了<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">蘑菇自从FZ开始到后来的CCC就一直在给他闪爹加补丁修改人设，在10年前的FGO的1.7章那会就已经变得人畜无害了
 
+
+*****
+
+####  kyonkoism  
+##### 619#       发表于 2026-1-18 14:14
+
+<img src="https://img.stage1st.com/forum/202601/18/141442rnrngqb9zqgmpo49.png" referrerpolicy="no-referrer">
+
+<strong>KD@GM_2({{WH~SNWI4DYREE_tmb.png</strong> (310.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-18 14:14 上传
+
+草 这还有官方玩梗看的哦
+
