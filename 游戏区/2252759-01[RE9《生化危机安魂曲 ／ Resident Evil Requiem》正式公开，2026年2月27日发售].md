@@ -518,3 +518,14 @@ RE7’s Beginning Hour demo was a game-changer. As a lifelong fan, I was amazed 
 
 试玩其实有吧，也就之前游戏展览给的版本，就是不想做个消费者版本了，流程能有4re的体量就满足了。
 
+
+*****
+
+####  csolfans  
+##### 514#       发表于 2026-1-18 20:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69047500&amp;ptid=2252759" target="_blank">finalstar099 发表于 2026-1-18 20:04</a>
+
+试玩其实有吧，也就之前游戏展览给的版本，就是不想做个消费者版本了，流程能有4re的体量就满足了。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">我本来想等demo 看看各平台数毛
+
