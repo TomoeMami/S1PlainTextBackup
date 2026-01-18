@@ -470,3 +470,13 @@ AGA祖传读心术又发力了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们这是什么群啊.jpg
 
+
+*****
+
+####  冰风血羽  
+##### 1853#       发表于 2026-1-18 12:38
+
+抽到楓才发现原来换色没做她的，一身黑更帅啊
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
