@@ -139,3 +139,17 @@ HF线的话，就是走夜路被间桐樱吃掉的老马。
 
 这集看2000万被制裁好有节目效果，另外突然听出来神父的声优这不是音柱的配音嘛？
 
+
+*****
+
+####  6x6z6w  
+##### 618#       发表于 2026-1-18 13:04
+
+ 本帖最后由 6x6z6w 于 2026-1-18 13:07 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69044498&amp;ptid=2086574" target="_blank">ParadiseMartyr 发表于 2026-1-18 00:49</a>
+
+这么多年来闪闪形象是彻底无害化了是吧
+
+明明就是个吃小孩的小丑</blockquote>
+早转型完了<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">蘑菇自从FZ开始到后来的CCC就一直在给他闪爹加补丁修改人设，在10年前的FGO的1.7章那会就已经变得人畜无害了
+
