@@ -480,3 +480,11 @@ AGA祖传读心术又发力了
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  madcow  
+##### 1854#       发表于 2026-1-18 13:04
+
+AN装备就是黑的啊
+
