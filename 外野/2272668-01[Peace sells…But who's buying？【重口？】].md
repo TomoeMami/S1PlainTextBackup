@@ -377,3 +377,25 @@ Killing Is My Business... and Business Is Good!
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  俾斯麥  
+##### 44#       发表于 2026-1-19 07:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69048504&amp;ptid=2272668" target="_blank">Asimot 发表于 2026-1-19 00:17</a>
+
+你给总部多少钱？十个亿？我滴妈呀。十个亿你报了个只有你们自己人的组织，那你想管谁啊？
+
+来摄像头360°转 ...</blockquote>
+你钱多烧的是吧，你说你是小白，你不懂，你不懂怎么不来问呢<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nukacolamania  
+##### 45#       发表于 2026-1-19 07:29
+
+“今晚八点半，有骨气！”
+
+—— 来自 motorola moto g stylus 5G (2022), Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
