@@ -4767,7 +4767,7 @@
     "lastedit": 1768737000,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2119338": {
     "totalreply": 945,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 28048,
+    "totalreply": 28050,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》12.25 老库拉伸]",
-    "lastedit": 1768736535,
+    "lastedit": 1768738689,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 32104,
+    "totalreply": 32106,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1768737744,
+    "lastedit": 1768738691,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12069,10 +12069,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 35166,
+    "totalreply": 35168,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1768737613,
+    "lastedit": 1768738573,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12519,10 +12519,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 5012,
+    "totalreply": 5013,
     "title": "[日本12月专楼]",
     "newtitle": "[日本12月专楼]",
-    "lastedit": 1768737744,
+    "lastedit": 1768738345,
     "category": "外野",
     "active": true,
     "update": false
@@ -12546,19 +12546,19 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 7831,
+    "totalreply": 7840,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1768737983,
+    "lastedit": 1768738578,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
   },
   "2218875": {
-    "totalreply": 429,
+    "totalreply": 430,
     "title": "[紫皮厨娘11／6日上线，大巴扎专楼，背包乱斗promax，异步联机自走棋]",
     "newtitle": "[紫皮厨娘11／6日上线，大巴扎专楼，背包乱斗promax，异步联机自走棋]",
-    "lastedit": 1768737013,
+    "lastedit": 1768738450,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12573,10 +12573,10 @@
     "update": false
   },
   "2252759": {
-    "totalreply": 512,
+    "totalreply": 513,
     "title": "[RE9《生化危机安魂曲 ／ Resident Evil Requiem》正式公开，2026年2月27日发售]",
     "newtitle": "[RE9《生化危机安魂曲 ／ Resident Evil Requiem》正式公开，2026年2月27日发售]",
-    "lastedit": 1768737849,
+    "lastedit": 1768738218,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12636,10 +12636,10 @@
     "update": false
   },
   "2269491": {
-    "totalreply": 6370,
+    "totalreply": 6374,
     "title": "[牢A与赞美诗]",
     "newtitle": "[牢A与赞美诗（转型牢A切片讨论楼）]",
-    "lastedit": 1768737983,
+    "lastedit": 1768738345,
     "category": "外野",
     "active": true,
     "update": false
@@ -13203,10 +13203,10 @@
     "update": false
   },
   "2271376": {
-    "totalreply": 3858,
+    "totalreply": 3859,
     "title": "[南美砖楼2026 委内瑞拉遭到袭击]",
     "newtitle": "[美洲砖楼2026 委内瑞拉遭到袭击]",
-    "lastedit": 1768733419,
+    "lastedit": 1768738345,
     "category": "外野",
     "active": true,
     "update": false
@@ -16344,10 +16344,10 @@
     "update": false
   },
   "2272308": {
-    "totalreply": 239,
+    "totalreply": 240,
     "title": "[一代围棋大师聂卫平疑似去世]",
     "newtitle": "[一代围棋大师聂卫平去世]",
-    "lastedit": 1768735823,
+    "lastedit": 1768738345,
     "category": "外野",
     "active": true,
     "update": false
@@ -16457,7 +16457,7 @@
     "newtitle": "[大家，求助有没有3个月胖30斤的方法]",
     "lastedit": 1768479132,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2272323": {
@@ -16758,10 +16758,10 @@
     "update": false
   },
   "2177407": {
-    "totalreply": 184,
+    "totalreply": 185,
     "title": "[大龄宅宅养身 素食 维生素 神药个人评价]",
     "newtitle": "[大龄宅宅养身 素食 维生素 神药个人评价]",
-    "lastedit": 1768733785,
+    "lastedit": 1768738578,
     "category": "外野",
     "active": true,
     "update": false
@@ -16974,10 +16974,10 @@
     "update": false
   },
   "2272600": {
-    "totalreply": 157,
+    "totalreply": 159,
     "title": "[美国斩杀线下的良家子退伍军人沦为流浪汉]",
     "newtitle": "[美国斩杀线下的良家子退伍军人沦为流浪汉]",
-    "lastedit": 1768737744,
+    "lastedit": 1768738345,
     "category": "外野",
     "active": true,
     "update": false
@@ -17100,10 +17100,10 @@
     "update": false
   },
   "2267982": {
-    "totalreply": 86,
+    "totalreply": 87,
     "title": "[怪猎荒野 无主4 暴雷之后，下一款外国单机／多人游戏你不看好谁？]",
     "newtitle": "[怪猎荒野 无主4 暴雷之后，下一款外国单机／多人游戏你不看好谁？]",
-    "lastedit": 1768669331,
+    "lastedit": 1768738218,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17190,19 +17190,19 @@
     "update": false
   },
   "2272666": {
-    "totalreply": 55,
+    "totalreply": 56,
     "title": "[媒体：印度和法国就采购114架阵风战机的条款达成一致]",
     "newtitle": "[媒体：印度和法国就采购114架阵风战机的条款达成一致]",
-    "lastedit": 1768737983,
+    "lastedit": 1768738345,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2272664": {
-    "totalreply": 61,
+    "totalreply": 63,
     "title": "[所以有机会开格陵兰专楼吗]",
     "newtitle": "[所以有机会开格陵兰专楼吗]",
-    "lastedit": 1768735823,
+    "lastedit": 1768738578,
     "category": "外野",
     "active": true,
     "update": false
@@ -17226,10 +17226,10 @@
     "update": false
   },
   "2272665": {
-    "totalreply": 47,
+    "totalreply": 48,
     "title": "[欧洲专楼-2026]",
     "newtitle": "[欧洲专楼-2026]",
-    "lastedit": 1768737737,
+    "lastedit": 1768738578,
     "category": "外野",
     "active": true,
     "update": false
@@ -17275,6 +17275,15 @@
     "title": "[「東島丹三郎は仮面ライダーになりたい ／ 东岛丹三郎想成为假面骑士」动画化]",
     "newtitle": "[「東島丹三郎は仮面ライダーになりたい ／ 东岛丹三郎想成为假面骑士」动画化]",
     "lastedit": 1768737625,
+    "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2269949": {
+    "totalreply": 63,
+    "title": "[《CLANNAD 〜AFTER STORY〜》历史上第一次位居bangumi全年代动画评分榜单第一名]",
+    "newtitle": "[《CLANNAD 〜AFTER STORY〜》历史上第一次位居bangumi全年代动画评分榜单第一名]",
+    "lastedit": 1768738219,
     "category": "漫区",
     "active": true,
     "update": false
