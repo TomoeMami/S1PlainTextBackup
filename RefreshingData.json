@@ -4767,7 +4767,7 @@
     "lastedit": 1768737000,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2119338": {
     "totalreply": 945,
@@ -10593,10 +10593,10 @@
     "update": false
   },
   "2210855": {
-    "totalreply": 12408,
+    "totalreply": 12409,
     "title": "[中二电波台真爱楼 2.0]",
     "newtitle": "[中二电波台真爱楼 2.0]",
-    "lastedit": 1768751653,
+    "lastedit": 1768758372,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12069,10 +12069,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 35274,
+    "totalreply": 35275,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1768757774,
+    "lastedit": 1768758131,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12537,10 +12537,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 7964,
+    "totalreply": 7965,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1768757888,
+    "lastedit": 1768758129,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12627,10 +12627,10 @@
     "update": false
   },
   "2269491": {
-    "totalreply": 6484,
+    "totalreply": 6485,
     "title": "[牢A与赞美诗]",
     "newtitle": "[牢A与赞美诗（转型牢A切片讨论楼）]",
-    "lastedit": 1768757777,
+    "lastedit": 1768758376,
     "category": "外野",
     "active": true,
     "update": false
@@ -16740,10 +16740,10 @@
     "update": false
   },
   "2272530": {
-    "totalreply": 71,
+    "totalreply": 72,
     "title": "[假如性病被完全攻克，人类会不会成为色孽种族]",
     "newtitle": "[假如性病被完全攻克，人类会不会成为色孽种族]",
-    "lastedit": 1768756576,
+    "lastedit": 1768758376,
     "category": "外野",
     "active": true,
     "update": false
@@ -16938,10 +16938,10 @@
     "update": false
   },
   "2272600": {
-    "totalreply": 167,
+    "totalreply": 168,
     "title": "[美国斩杀线下的良家子退伍军人沦为流浪汉]",
     "newtitle": "[美国斩杀线下的良家子退伍军人沦为流浪汉]",
-    "lastedit": 1768754422,
+    "lastedit": 1768758011,
     "category": "外野",
     "active": true,
     "update": false
@@ -17321,6 +17321,15 @@
     "newtitle": "[《JOJOLANDS》乔九部讨论帖，天国之门就是秒杀全场啊]",
     "lastedit": 1768753473,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2272714": {
+    "totalreply": 42,
+    "title": "[波士顿圆脸和牢A矛盾明面化？]",
+    "newtitle": "[波士顿圆脸和牢A矛盾明面化？]",
+    "lastedit": 1768758376,
+    "category": "外野",
     "active": true,
     "update": false
   }
