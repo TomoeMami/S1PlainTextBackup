@@ -169,3 +169,13 @@ HF线的话，就是走夜路被间桐樱吃掉的老马。
 
 草 这还有官方玩梗看的哦
 
+
+*****
+
+####  ardente  
+##### 620#       发表于 2026-1-18 20:32
+
+你闪的形象不是在FHA里就已经比较正面了
+
+话说又回来了，确实有点好奇对他正面塑造的不满源自为何<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -529,3 +529,18 @@ RE7’s Beginning Hour demo was a game-changer. As a lifelong fan, I was amazed 
 试玩其实有吧，也就之前游戏展览给的版本，就是不想做个消费者版本了，流程能有4re的体量就满足了。 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">我本来想等demo 看看各平台数毛
 
+
+*****
+
+####  JOJO42  
+##### 515#       发表于 2026-1-18 20:29
+
+我看b站不少人都高呼这体术演出、打击感牛逼，不亏是动作天尊云云，但我怎么感觉无论动作设计还是玩法上都挺....没意思的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">？
+
+*****
+
+####  星花  
+##### 516#       发表于 2026-1-18 20:32
+
+反正到等卖100块时候买来10几小时通关。就没当大作期待。
+
