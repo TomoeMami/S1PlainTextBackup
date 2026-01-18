@@ -1275,3 +1275,21 @@ BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes
 
        [https://t.co/ae8L3zKyIh](https://t.co/ae8L3zKyIh)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41684#       发表于 2026-1-19 00:09
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/19/000857h414oql7lo1474t8.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-19_00-08-37.jpg</strong> (163.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-19 00:08 上传
+
+       [https://x.com/diggymo04/status/2012827163838607765](https://x.com/diggymo04/status/2012827163838607765)
+
