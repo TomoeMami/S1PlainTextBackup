@@ -105,3 +105,26 @@ wink又拿到好作画了。<img src="https://static.stage1st.com/image/smiley/f
 
 2026-1-18 14:08 上传
 
+
+*****
+
+####  Blackson  
+##### 1551#       发表于 2026-1-18 14:49
+
+ 本帖最后由 Blackson 于 2026-1-18 14:52 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69044844&amp;ptid=2208663" target="_blank">経緯 发表于 2026-1-18 08:03</a>
+
+wink有内部爱吧，只有wink的作画很亮眼</blockquote>
+平常集数的普通打斗里，Wink总会拿到某些”优待"。
+
+即使是像42集这种纯挨打的场合也能画得很美。大概是因为主腿技的缘故。(日本论坛<strong>プリキュアのまとめ</strong>里的Wink相关帖子里内容大多跟<strong>大腿</strong>有关)
+
+另外这一年大棉花的上镜率真高。
+
+*****
+
+####  codezwei  
+##### 1552#       发表于 2026-1-18 14:52
+
+啊 这集Wink的腿  伟大无需多言<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
