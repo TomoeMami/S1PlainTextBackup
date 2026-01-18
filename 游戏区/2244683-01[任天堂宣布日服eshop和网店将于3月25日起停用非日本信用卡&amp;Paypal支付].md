@@ -2483,3 +2483,14 @@ ana pay（虚拟visa，绑大陆发行的JCB）可以正常 ...</blockquote>
 上面提到的ana pay还能用吗？ ...</blockquote>
 Ana pay还能用 不过我觉得现在在eshop买下载版不如去amazon买
 
+
+*****
+
+####  Antidote丶  
+##### 253#       发表于 2026-1-18 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69045433&amp;ptid=2244683" target="_blank">信长的呕吐 发表于 2026-1-18 11:33</a>
+
+Ana pay还能用 不过我觉得现在在eshop买下载版不如去amazon买</blockquote>
+amazon等发码什么的肯定不如在eshop方便，我数字版买的也少
+
