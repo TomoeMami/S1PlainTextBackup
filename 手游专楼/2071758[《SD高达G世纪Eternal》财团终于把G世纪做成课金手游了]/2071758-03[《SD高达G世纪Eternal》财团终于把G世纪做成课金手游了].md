@@ -3164,3 +3164,17 @@ ur动画还不错，只是机体选择错误了吧，默示录感觉是斗狼人
 
 话说下周就有X玩了吧，估计是红卡限定的DX还挺诱人的，ULT给个X三号机就好了
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 3547#       发表于 2026-1-18 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69046163&amp;ptid=2071758" target="_blank">plok201 发表于 2026-1-18 14:15</a>
+机体就飞天魔蟹比较有用，实际上就是看哪台顺眼吧，IGLOO这些都差不多歪瓜裂枣
+
+人物的话，卡池斗狼机师吧 ...</blockquote>
+如果偷懒就是给三号机或者莫分高达，这两之前dlc里出过，有素材了，但是有可能像水瓶座一样出原创的贝尔菲戈高达呢，设定上是新人类机杀手？那来个红机塞可谬特攻怎么样<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
