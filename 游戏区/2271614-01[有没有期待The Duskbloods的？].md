@@ -235,3 +235,11 @@ https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2272514&amp;extra=page%
 
 https://bbs.a9vg.com/forum.php?mod=viewthread&amp;tid=9062402&amp;extra=page%3D2&amp;mobile=2
 
+
+*****
+
+####  hkguty  
+##### 64#       发表于 2026-1-19 07:42
+
+ns2的联机游戏，感觉网络会比黑环更麻烦
+
