@@ -678,3 +678,234 @@ kirakira✩dokidoki）
 
        [https://t.co/hM1yriG3Fy](https://t.co/hM1yriG3Fy)
 
+
+*****
+
+####  新HGCG  
+##### 27468#       发表于 2026-1-13 07:40
+
+<img src="https://img.stage1st.com/forum/202601/13/074045pm3de8e8kcv0s018.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (212.25 KB, 下载次数: 1)
+
+下载附件
+
+2026-1-13 07:40 上传
+
+*****
+
+####  nanayashikijp  
+##### 27469#       发表于 2026-1-13 08:06
+
+怀念最好的七个乐队（已切割）（已切割）（已切割）（已切割）（已切割）（已切割）（已切割）
+
+*****
+
+####  堀内爱里衣  
+##### 27470#       发表于 2026-1-13 13:48
+
+       <img src="https://img.stage1st.com/forum/202601/13/134724raatgahg7gxdc7tc.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/nobusawa_ex/status/2010636725199233410](https://x.com/nobusawa_ex/status/2010636725199233410)
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 27471#       发表于 2026-1-13 15:02
+
+b站减震小鬼已经耍疯了，密码本大更新了说是
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 27472#       发表于 2026-1-13 15:40
+
+感觉millsage有新爆款潜质啊，希望剩下的队员能找点跟鸡一样业务水平强的。
+
+*****
+
+####  夜游宫  
+##### 27473#       发表于 2026-1-13 17:09
+
+希望不要重演当年侦探歌剧第三季第四季的场面。
+
+*****
+
+####  DARK_HGCG  
+##### 27474#       发表于 2026-1-13 22:29
+
+<img src="https://img.stage1st.com/forum/202601/13/222858px4qhxwlrl16wfww.jpg" referrerpolicy="no-referrer">
+
+<strong>-2d6c96c0f6556f17.jpg</strong> (341.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-13 22:28 上传
+
+*****
+
+####  仟音一心  
+##### 27475#       发表于 2026-1-14 22:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69016493&amp;ptid=2159415" target="_blank">wolf1997 发表于 2026-1-12 19:54</a>
+
+有个乐队朋友在ICON上头
+
+青春不变  名字叫做皇后
+
+每次更新随我到处去奔走</blockquote>
+邦邦大道东
+<img src="https://p.sda1.dev/30/c783c61c346262968715f3405195a48d/image.jpg" referrerpolicy="no-referrer">
+[https://b23.tv/gTvskeO](https://b23.tv/gTvskeO)
+
+邦邦大道西又邦邦大道东
+
+邦邦大道东转邦邦大道中
+
+邦邦大道东上为何要分工
+
+邦邦大道中乐团如潮涌
+
+有个新团朋友在列表最后
+
+传统不变名字叫做MyGO!!!!!
+
+不仅有出动漫还实装手游
+
+虽然非老资历却汇聚成就
+
+新团一声拜拜远去了老团
+
+要靠伟大资本搞搞新手段
+
+照买照卖IP总有人买单
+
+但是新游名字可能得换换
+
+邦邦大道西又邦邦大道东
+
+邦邦大道东转邦邦大道中
+
+邦邦大道东上为何要分工
+
+邦邦大道中乐团如潮涌
+
+这个新游朋友看着能赚钱
+
+因此批准发布时间在今年
+
+玩家当然也要跨过分割线
+
+若要保留乐团只要有钱赚
+
+新团一声拜拜远去了Party
+
+要靠伟大资本搞搞新游戏
+
+两头都要吃管你新老资历
+
+但要小心粉丝原创新歌名
+
+（kirakira✩️dokidoki
+
+kirakira✩dokidoki）
+
+邦邦大道西又邦邦大道东
+
+邦邦大道东转邦邦大道中
+
+邦邦大道东上为何要分工
+
+邦邦大道中乐团如潮涌
+
+这个新团朋友道别亦漂亮
+
+往后番剧也请继续新形象
+
+到了下个周年都为你鼓掌
+
+往后新游图标都是你模样
+
+新团一声拜拜远去了Party
+
+要靠伟大资本搞搞新游戏
+
+不管是西是东都叫邦多利
+
+但是路线可能先要停一停
+
+邦邦大道西又邦邦大道东
+
+邦邦大道东转邦邦大道中
+
+邦邦大道东上为何要分工
+
+邦邦大道中乐团如潮涌
+
+*****
+
+####  wolf1997  
+##### 27476#       发表于 2026-1-15 19:51
+
+ 本帖最后由 wolf1997 于 2026-1-15 20:07 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69027029&amp;ptid=2159415" target="_blank">仟音一心 发表于 2026-1-14 22:48</a>
+
+邦邦大道东
+
+[https://b23.tv/gTvskeO](https://b23.tv/gTvskeO)</blockquote>
+笑了，视频昨天我还看到来着，今天就没了
+
+两个补档：[https://www.bilibili.com/video/BV1z7rRB9EUM](https://www.bilibili.com/video/BV1z7rRB9EUM)  [https://www.bilibili.com/video/BV1f7rRB9Ei6](https://www.bilibili.com/video/BV1f7rRB9Ei6)
+
+*****
+
+####  CyDiablo  
+##### 27477#       发表于 2026-1-15 21:15
+
+一转废土
+[【《BanG Dream! 梦想协奏曲 第三季》 元祖迷你15 嗡嗡摩托 Go-哔哩哔哩番剧】](https://b23.tv/ep2737146)
+<img src="https://p.sda1.dev/30/f5b68532f9fb001bd4e4da57d32cd41c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  堀内爱里衣  
+##### 27478#       发表于 2026-1-15 21:26
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/15/212638xka88hbr99hh8t8w.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-15_21-25-20.jpg</strong> (297.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-15 21:26 上传
+
+       [https://weibo.com/1796981640/Qne9W7klf](https://weibo.com/1796981640/Qne9W7klf)
+
+*****
+
+####  刑部姬真可爱  
+##### 27479#       发表于 2026-1-15 21:36
+
+废墟少女终末旅行吗，紧跟邦多利分家时事了
+
+*****
+
+####  堀内爱里衣  
+##### 27480#       发表于 2026-1-15 22:35
+
+       <img src="https://img.stage1st.com/forum/202601/15/223517fmc85m83ljm08gii.jpg" referrerpolicy="no-referrer">
+
+       [https://x.com/WEGO_press/status/2011800373892431983](https://x.com/WEGO_press/status/2011800373892431983)
+
+       [https://t.co/hM1yriG3Fy](https://t.co/hM1yriG3Fy)
+
+
+*****
+
+####  小日向美香  
+##### 27481#       发表于 2026-1-18 11:54
+
+没搞懂，突然之间弄出个新企划有什么意义吗
+
