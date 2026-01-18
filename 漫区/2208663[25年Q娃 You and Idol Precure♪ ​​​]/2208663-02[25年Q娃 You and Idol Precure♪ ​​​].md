@@ -70,3 +70,20 @@ BD1 special event REPO（N5水平日语只能记住一丁点……）
 
 苹果抽选好啊，一排正中近战南条
 
+
+*****
+
+####  経緯  
+##### 1548#       发表于 2026-1-18 08:03
+
+wink有内部爱吧，只有wink的作画很亮眼
+
+*****
+
+####  Parahure  
+##### 1549#       发表于 2026-1-18 09:08
+
+最终话能看到歌凯复刻抱q结局上本垒吗，能的话我愿称之为神作<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
