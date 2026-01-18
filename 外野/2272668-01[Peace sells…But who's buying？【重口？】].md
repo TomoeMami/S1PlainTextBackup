@@ -355,3 +355,15 @@ Killing Is My Business... and Business Is Good!
 
 —— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  wing130083  
+##### 42#       发表于 2026-1-19 07:01
+
+<blockquote>粉色猛男 发表于 2026-1-18 23:04
+川宝卸任后会不会被民主党追杀啊，他打算带着钱躲哪儿。如果民主党上台的话，老美传统盟友都是民主党势力范 ...</blockquote>
+当然是压根没卸任的打算
+
+只要在位的时候加冕就行了
+
