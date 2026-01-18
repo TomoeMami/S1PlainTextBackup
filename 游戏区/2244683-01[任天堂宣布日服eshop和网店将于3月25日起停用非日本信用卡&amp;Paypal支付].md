@@ -2425,3 +2425,18 @@ ana pay（虚拟visa，绑大陆发行的JCB）可以正常 ...</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  wdw  
+##### 248#       发表于 2026-1-18 09:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67339616&amp;ptid=2244683" target="_blank">oi99o 发表于 2025-2-3 15:12</a>
+
+那么eshop和官网商店搞3d认证是会有什么技术难度吗？是的话国内卡又要怎么进行本人认证？
+
+论坛助手,iPhone ...</blockquote>
+国内VISA卡都支持3DS认证的……
+
+哪有不支持3DS的啊
+
