@@ -2454,3 +2454,20 @@ ana pay（虚拟visa，绑大陆发行的JCB）可以正常 ...</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  冰原狼  
+##### 250#       发表于 2026-1-18 11:12
+
+以前在美国的时候一直用paypal在playasia上买日服点卡，看了一下貌似还能继续用
+
+*****
+
+####  Antidote丶  
+##### 251#       发表于 2026-1-18 11:14
+
+现在中行的jcb卡还有什么曲线救国在eshop直接买游戏的方法吗？
+
+上面提到的ana pay还能用吗？
+
