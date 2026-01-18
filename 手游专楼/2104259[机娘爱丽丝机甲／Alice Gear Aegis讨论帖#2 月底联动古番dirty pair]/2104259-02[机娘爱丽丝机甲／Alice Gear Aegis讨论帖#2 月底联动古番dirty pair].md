@@ -488,3 +488,15 @@ AGA祖传读心术又发力了
 
 AN装备就是黑的啊
 
+
+*****
+
+####  冰风血羽  
+##### 1855#       发表于 2026-1-18 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69045868&amp;ptid=2104259" target="_blank">madcow 发表于 2026-1-18 13:04</a>
+AN装备就是黑的啊</blockquote>
+金币商店没有卖换色功能，AN脚跟商店买的一身白没办法搭同色<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
