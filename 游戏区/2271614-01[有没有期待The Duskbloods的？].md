@@ -221,3 +221,17 @@ duskblood宣发没有什么战斗场景大部分都是角色特写还有一个�
 
 不过FS的数值平衡能力我持100%怀疑态度，没有一代能让人满意。虽然之前大家不看好的网络问题黑夜君临上也还好，不过平衡应该比这种纯技术问题难解决。
 
+
+*****
+
+####  ffmzsj  
+##### 63#       发表于 2026-1-18 23:59
+
+<blockquote>窦唯 发表于 2026-1-18 15:06
+谨慎期待
+
+小高亲自监督、开发用时长，*任天堂也看好*。小高采访说设计上考虑了不喜欢PvP的玩家群体，对我 ...</blockquote>
+https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2272514&amp;extra=page%3D2&amp;mobile=2 你管这叫底色吗 给你看看底色应该是啥样的
+
+https://bbs.a9vg.com/forum.php?mod=viewthread&amp;tid=9062402&amp;extra=page%3D2&amp;mobile=2
+
