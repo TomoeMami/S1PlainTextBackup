@@ -24,3 +24,14 @@
 
 于是乎这还只是你们这些“嘴上强者”反派们的试探性攻击？不过最后这三角味道才是你丸户想写的吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 89#       发表于 2026-1-18 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69045837&amp;ptid=2257332" target="_blank">MMIno 发表于 2026-1-18 12:57</a>
+
+这一集感觉对味了，没想到赛莲是这片子的学姐定位，泪感觉是坐实了寡妇角色了，开始期待后续的修罗场了，不 ...</blockquote>
+我每次看到义妹开口说话总是暗自庆许不是羊宫来配音（石见舞这话的发挥也不错），否则我很怀疑我能不能坚持看下去<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
