@@ -144,3 +144,15 @@ wink有内部爱吧，只有wink的作画很亮眼</blockquote>
 
 怎么蓝毛的作画和比别人高了一个level
 
+
+*****
+
+####  leleq  
+##### 1555#       发表于 2026-1-18 23:22
+
+至少到达了最低标准打得不错
+
+如果说偶Q还有啥值得留恋的那毫无疑问就是wink的大腿了<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+看了下有人认领了wink的作画这么看来偶q靠的是厨力啊，这么说今年黑Q估计能经费战士？
+
