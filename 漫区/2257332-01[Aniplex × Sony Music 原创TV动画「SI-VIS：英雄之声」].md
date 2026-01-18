@@ -35,3 +35,19 @@
 这一集感觉对味了，没想到赛莲是这片子的学姐定位，泪感觉是坐实了寡妇角色了，开始期待后续的修罗场了，不 ...</blockquote>
 我每次看到义妹开口说话总是暗自庆许不是羊宫来配音（石见舞这话的发挥也不错），否则我很怀疑我能不能坚持看下去<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 90#       发表于 2026-1-18 19:22
+
+<img src="https://img.stage1st.com/forum/202601/18/192036blcziggg44ogc1uz.jpg" referrerpolicy="no-referrer">
+
+<strong>紫毛魅羽.jpg</strong> (50.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-18 19:20 上传
+
+鬼头配的这个紫毛到是意外的纯良，战力也不差（当然，也和对面给的压力还不够），话说回来自从b站没有更新以后，有些翻译水准感觉已经是凑合着看的感觉了
+
