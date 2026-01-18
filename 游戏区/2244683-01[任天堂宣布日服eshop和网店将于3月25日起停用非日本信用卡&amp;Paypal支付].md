@@ -2471,3 +2471,15 @@ ana pay（虚拟visa，绑大陆发行的JCB）可以正常 ...</blockquote>
 
 上面提到的ana pay还能用吗？
 
+
+*****
+
+####  信长的呕吐  
+##### 252#       发表于 2026-1-18 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69045349&amp;ptid=2244683" target="_blank">Antidote丶 发表于 2026-1-18 11:14</a>
+现在中行的jcb卡还有什么曲线救国在eshop直接买游戏的方法吗？
+
+上面提到的ana pay还能用吗？ ...</blockquote>
+Ana pay还能用 不过我觉得现在在eshop买下载版不如去amazon买
+
