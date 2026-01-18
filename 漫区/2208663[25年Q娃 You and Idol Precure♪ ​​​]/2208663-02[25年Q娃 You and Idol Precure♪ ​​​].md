@@ -87,3 +87,21 @@ wink有内部爱吧，只有wink的作画很亮眼
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  湖静欲成冰  
+##### 1550#       发表于 2026-1-18 14:07
+
+ 本帖最后由 湖静欲成冰 于 2026-1-18 14:09 编辑 
+
+wink又拿到好作画了。<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">额头很涩，不是吗？
+
+<img src="https://img.stage1st.com/forum/202601/18/140836csnixvn8n1i0ev81.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (758.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-18 14:08 上传
+
