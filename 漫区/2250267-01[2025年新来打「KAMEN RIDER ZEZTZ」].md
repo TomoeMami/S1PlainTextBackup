@@ -48,3 +48,14 @@
 
 至于这一系列悲剧的元凶，全TM赖小鹰。
 
+
+*****
+
+####  暗黑能乐  
+##### 606#       发表于 2026-1-18 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69045254&amp;ptid=2250267" target="_blank">milky658 发表于 2026-1-18 10:47</a>
+
+好几条线索以CODE为交点一起展开，在解释前期一些小线索的同时推进谜题，相当不错的叙事节奏。璃塔登场后， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">两人都还挺有水平的，狼姐这反篮上的好顺溜，我这种菜逼一辈子打不出来的，璃塔这急停胯下后撤步也很帅，不过感觉假如真打还是狼姐这身材优势大，剧里应该放水了（
+
