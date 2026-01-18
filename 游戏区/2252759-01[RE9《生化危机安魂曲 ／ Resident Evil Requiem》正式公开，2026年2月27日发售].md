@@ -494,3 +494,11 @@ RE7’s Beginning Hour demo was a game-changer. As a lifelong fan, I was amazed 
 
 对我来说这类游戏太吃无剧透首发体验了，云一下或者等社区口碑会毁掉大部分体验
 
+
+*****
+
+####  shyso  
+##### 511#       发表于 2026-1-18 15:02
+
+现在哪个渠道买steam版生化9的价格最低？
+
