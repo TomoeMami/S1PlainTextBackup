@@ -3118,3 +3118,22 @@ ur动画还不错，只是机体选择错误了吧，默示录感觉是斗狼人
 
 这次活动大家sp机体和sp角色是谁
 
+
+*****
+
+####  arthes  
+##### 3543#       发表于 2026-1-18 13:25
+
+sp材料现在越给越猛了，感觉没必要纠结太多，哪个顺眼给哪个完了…
+
+*****
+
+####  acg_gyanc  
+##### 3544#       发表于 2026-1-18 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69045863&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2026-1-18 13:03</a>
+这次活动大家sp机体和sp角色是谁</blockquote>
+机体没啥优先级，都挺菜的，也就改装魔蝎那个因为有空中用标签可能更有用一点……机师的话，活动送的女支援或者卡池斗狼的机师还行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
