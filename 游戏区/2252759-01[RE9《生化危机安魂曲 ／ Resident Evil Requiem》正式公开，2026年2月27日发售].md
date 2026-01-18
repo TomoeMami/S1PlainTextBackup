@@ -502,3 +502,11 @@ RE7’s Beginning Hour demo was a game-changer. As a lifelong fan, I was amazed 
 
 现在哪个渠道买steam版生化9的价格最低？
 
+
+*****
+
+####  Dorohedoro  
+##### 512#       发表于 2026-1-18 20:01
+
+卡普空现在这便秘宣发是谁想出来的，离发售还剩一个多月的游戏到现在连基本的场景和流程都看不到，就那么几个播烂了的片段不停的复读，生8和4re第一个预告片信息量就已经很大了
+
