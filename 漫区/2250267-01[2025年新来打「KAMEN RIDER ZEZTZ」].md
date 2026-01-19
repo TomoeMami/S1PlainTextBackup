@@ -99,3 +99,14 @@
 回复和屏障两个大爹都被抢了</blockquote>
 回复拿回来了吧，上集不还哪来恢复了0
 
+
+*****
+
+####  洛克萨斯  
+##### 611#       发表于 2026-1-19 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69048633&amp;ptid=2250267" target="_blank">UnhappyTails 发表于 2026-1-19 00:55</a>
+
+回复拿回来了吧，上集不还哪来恢复了0</blockquote>
+哦对，应该是都被抢过
+
