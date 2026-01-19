@@ -1276,3 +1276,33 @@ https://www.reddit.com/r/GamingLeaksAndRumours/s/TnVnOdgPvb ...</blockquote>
 
 不知道到时候会不会有群
 
+
+*****
+
+####  Sorastlos  
+##### 118#       发表于 2026-1-20 00:36
+
+<img src="https://static.stage1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">来了来了，标准版168，豪华版248
+
+还是没胆子free to play啊
+
+预购《失落星船：马拉松》即可获取：
+
+零步004近战战术手枪
+
+零步RC武器挂件
+
+零步切换武器贴纸
+
+至远拦截背景
+
+至远拦截徽标
+
+你还将获得以下与你的Bungie.net账号关联的《命运2》奖励：
+
+UESC回响型外壳异域机灵
+
+UESC漫游者异域飞船
+
+UESC迅驰者异域快雀
+
