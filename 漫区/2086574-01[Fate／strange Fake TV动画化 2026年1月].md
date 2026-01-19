@@ -207,3 +207,11 @@ HF线的话，就是走夜路被间桐樱吃掉的老马。
 
 后面写的再好也改变不了金皮卡在fsn，特别是ubw里像个杀比吧，更何况月球闪最初登场就是在fsn。旧闪倒是比较像人。不过我不喜欢闪闪单纯是因为他一个混血还要天天喊别人杂种<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  windhawind2  
+##### 623#       发表于 2026-1-19 10:02
+
+个人不爽闪闪纯粹是因为蘑菇老拿他那套最古=最强的设定吹他爹 就想问一个原始部落酋长神气什么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
