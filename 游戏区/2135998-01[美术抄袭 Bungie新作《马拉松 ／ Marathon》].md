@@ -1314,3 +1314,13 @@ UESC迅驰者异域快雀
 
 这不是塔科夫的scav吗
 
+
+*****
+
+####  Stellar_Frost  
+##### 120#       发表于 2026-1-20 07:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">这游戏可是之前无限期推迟过的，很难不认为定档是把现有资产攒吧攒吧赶鸭子上架端上来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
