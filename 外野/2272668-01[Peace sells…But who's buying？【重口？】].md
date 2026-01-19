@@ -425,3 +425,24 @@ Killing Is My Business... and Business Is Good!
 
 【metaltrump--peace sell】 [https://www.bilibili.com/video/B ... 8b5ea917f753fb105f0](https://www.bilibili.com/video/BV19K411K73v/?share_source=copy_web&amp;vd_source=227d786d86f048b5ea917f753fb105f0)
 
+
+*****
+
+####  fat  
+##### 49#       发表于 2026-1-19 12:49
+
+ykw任终身**，乐
+
+—— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  羊寢  
+##### 50#       发表于 2026-1-19 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69048825&amp;ptid=2272668" target="_blank">gawain 发表于 2026-1-19 02:54</a>
+包的，兄弟包的 下一任要不是懂王或者懂王遗产继承人，包被清算的。只会比第一任期结束时更彻底
+
+ ...</blockquote>
+我觉得奶龙也是知道这点所以才想要撑地，而且他也只能这么干，不然按正常流程28年他卸任要是换个dem的人上来，不光共和党，他自己家族都会整个被青蒜从天堂落进斩杀线
+
