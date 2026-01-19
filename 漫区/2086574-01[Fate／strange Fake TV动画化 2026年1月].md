@@ -383,3 +383,36 @@ FSF本质正经版幻想嘉年华（确信）</blockquote>
 话说这死徒光看目前为止的表现很可能连麻婆都打不过，哪里来的勇气敢冲进有复数英灵的战场搅局，是还有底牌 ...</blockquote>
 六条命6个形态加本体，彻底打死她七次才能消灭她
 
+
+*****
+
+####  亚历山大帝  
+##### 641#       发表于 2026-1-19 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69053077&amp;ptid=2086574" target="_blank">性急的蜗牛 发表于 2026-1-19 18:09</a>
+
+话说这死徒光看目前为止的表现很可能连麻婆都打不过，哪里来的勇气敢冲进有复数英灵的战场搅局，是还有底牌 ...</blockquote>
+既然都提到麻婆了，就说说这次的神父到底什么水平？
+
+嘴上说自己能打出肉身核武器的伤害，如果不是吹牛，那可比FSN、F/Z的麻婆都强。
+
+言峰绮礼打断一棵树都要用两下，跑一百米要7秒，肉体能力比普通人高的有限。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer"> 
+
+这边的汉萨可是飞檐走壁，和死徒对扔汽车，徒手拆屋毁房，
+
+完全不当人嘞。
+
+就算是英灵，也没几个能打出核武器伤害啊。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.stage1st.com/forum/202601/19/223138sfmr2lrzf5q2ic29.jpg" referrerpolicy="no-referrer">
+
+<strong>核武器.jpg</strong> (38.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-19 22:31 上传
+
