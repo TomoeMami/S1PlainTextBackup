@@ -110,3 +110,27 @@
 回复拿回来了吧，上集不还哪来恢复了0</blockquote>
 哦对，应该是都被抢过
 
+
+*****
+
+####  UnhappyTails  
+##### 612#       发表于 2026-1-19 10:02
+
+岂止不如，简直就是不如
+
+丽塔这种真是若手里少见的英气美人（当然小林结月已经24了照理来说不算若手，但在你zzz这个老登开会的剧组还是足够若手了）
+
+而且演学生有青春校园味，演大人有社会人味，声音也很合适
+
+跟演技关系也不是特别大，主要就是角色合适吧
+
+*****
+
+####  暗黑能乐  
+##### 613#       发表于 2026-1-19 10:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69047693&amp;ptid=2250267" target="_blank">洛克萨斯 发表于 2026-1-18 20:49</a>
+
+回复和屏障两个大爹都被抢了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">需要抢的只有NOX吧，莫丢了再扭一个完事
+
