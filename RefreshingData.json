@@ -4767,7 +4767,7 @@
     "lastedit": 1768788060,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2119338": {
     "totalreply": 945,
@@ -7362,10 +7362,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 74152,
+    "totalreply": 74154,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1768787775,
+    "lastedit": 1768789095,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8910,10 +8910,10 @@
     "update": false
   },
   "2185578": {
-    "totalreply": 8009,
+    "totalreply": 8010,
     "title": "[真・三国无双 起源公布，原创主角，2025年登录ps5／pc／xs]",
     "newtitle": "[真・三国无双 起源专楼｜梦幻四英杰dlc&amp;ns2版26.1.22发售]",
-    "lastedit": 1768788383,
+    "lastedit": 1768788976,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11457,10 +11457,10 @@
     "update": false
   },
   "2207249": {
-    "totalreply": 348,
+    "totalreply": 349,
     "title": "[2025年新奥  奥美迦奥特曼]",
     "newtitle": "[2025年新奥  奥美迦奥特曼]",
-    "lastedit": 1768786571,
+    "lastedit": 1768788737,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11934,10 +11934,10 @@
     "update": false
   },
   "2250267": {
-    "totalreply": 613,
+    "totalreply": 614,
     "title": "[2025年新来打「KAMEN RIDER ZEZTZ」]",
     "newtitle": "[2025年新来打「KAMEN RIDER ZEZTZ」]",
-    "lastedit": 1768788378,
+    "lastedit": 1768788974,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12069,10 +12069,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 35312,
+    "totalreply": 35315,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1768788146,
+    "lastedit": 1768788976,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12213,10 +12213,10 @@
     "update": false
   },
   "2208973": {
-    "totalreply": 780,
+    "totalreply": 783,
     "title": "[GNOSIA TV动画化 2025年]",
     "newtitle": "[GNOSIA TV动画化 2025年]",
-    "lastedit": 1768784170,
+    "lastedit": 1768788976,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12339,10 +12339,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 1926,
+    "totalreply": 1927,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【明日方舟：终末地】情报汇总3号楼 2026.1.22 全球公测]",
-    "lastedit": 1768787535,
+    "lastedit": 1768788733,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12510,10 +12510,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 5029,
+    "totalreply": 5030,
     "title": "[日本12月专楼]",
     "newtitle": "[日本12月专楼]",
-    "lastedit": 1768784301,
+    "lastedit": 1768789099,
     "category": "外野",
     "active": true,
     "update": false
@@ -12537,10 +12537,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 8001,
+    "totalreply": 8004,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1768788384,
+    "lastedit": 1768788976,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12627,10 +12627,10 @@
     "update": false
   },
   "2269491": {
-    "totalreply": 6589,
+    "totalreply": 6614,
     "title": "[牢A与赞美诗]",
     "newtitle": "[牢A与赞美诗（转型牢A切片讨论楼）]",
-    "lastedit": 1768788384,
+    "lastedit": 1768789099,
     "category": "外野",
     "active": true,
     "update": false
@@ -13041,10 +13041,10 @@
     "update": false
   },
   "2271232": {
-    "totalreply": 877,
+    "totalreply": 878,
     "title": "[中东专楼-2026]",
     "newtitle": "[中东专楼-2026]",
-    "lastedit": 1768788384,
+    "lastedit": 1768788619,
     "category": "外野",
     "active": true,
     "update": false
@@ -13247,15 +13247,6 @@
     "active": false,
     "update": false
   },
-  "2271191": {
-    "totalreply": 48,
-    "title": "[顺德有什么好吃必吃的美食？]",
-    "newtitle": "[顺德有什么好吃必吃的美食？]",
-    "lastedit": 1767579378,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2144693": {
     "totalreply": 159,
     "title": "[勇者处刑 惩罚勇者9004队服刑记录 动画化 2026年1月]",
@@ -13414,15 +13405,6 @@
     "title": "[普通人一生会搬几次家]",
     "newtitle": "[普通人一生会搬几次家]",
     "lastedit": 1767582274,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2271446": {
-    "totalreply": 46,
-    "title": "[联合国通过决议：纪念“糖丸爷爷”]",
-    "newtitle": "[联合国通过决议：纪念“糖丸爷爷”]",
-    "lastedit": 1767579382,
     "category": "外野",
     "active": false,
     "update": false
@@ -15885,12 +15867,12 @@
     "update": false
   },
   "2272188": {
-    "totalreply": 74,
+    "totalreply": 75,
     "title": "[韩国教育面临＂无人可教＂危机 小学新生人数跌破30万]",
     "newtitle": "[韩国教育面临＂无人可教＂危机 小学新生人数跌破30万]",
-    "lastedit": 1768355785,
+    "lastedit": 1768789099,
     "category": "外野",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2268966": {
@@ -16484,7 +16466,7 @@
     "newtitle": "[2025年10月国庆莫斯科单人自由行游记（完结）]",
     "lastedit": 1768529554,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2272442": {
@@ -16893,10 +16875,10 @@
     "update": false
   },
   "2272600": {
-    "totalreply": 171,
+    "totalreply": 172,
     "title": "[美国斩杀线下的良家子退伍军人沦为流浪汉]",
     "newtitle": "[美国斩杀线下的良家子退伍军人沦为流浪汉]",
-    "lastedit": 1768784301,
+    "lastedit": 1768788619,
     "category": "外野",
     "active": true,
     "update": false
@@ -17001,10 +16983,10 @@
     "update": false
   },
   "2267228": {
-    "totalreply": 61,
+    "totalreply": 62,
     "title": "[Empress 20周年，圣少女回归？]",
     "newtitle": "[Empress 20周年，圣少女回归？]",
-    "lastedit": 1768672090,
+    "lastedit": 1768788618,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17037,10 +17019,10 @@
     "update": false
   },
   "2272607": {
-    "totalreply": 47,
+    "totalreply": 48,
     "title": "[1片培根1美元，知道培根放哪里999美元]",
     "newtitle": "[1片培根1美元，知道培根放哪里999美元]",
-    "lastedit": 1768773611,
+    "lastedit": 1768788737,
     "category": "外野",
     "active": true,
     "update": false
@@ -17118,10 +17100,10 @@
     "update": false
   },
   "2272664": {
-    "totalreply": 91,
+    "totalreply": 92,
     "title": "[所以有机会开格陵兰专楼吗]",
     "newtitle": "[所以有机会开格陵兰专楼吗]",
-    "lastedit": 1768785138,
+    "lastedit": 1768789099,
     "category": "外野",
     "active": true,
     "update": false
@@ -17217,10 +17199,10 @@
     "update": false
   },
   "2272699": {
-    "totalreply": 91,
+    "totalreply": 93,
     "title": "[到处都说要多喝水, 我真的多喝水了, 发现有个问题从没人提……]",
     "newtitle": "[到处都说要多喝水, 我真的多喝水了, 发现有个问题从没人提……]",
-    "lastedit": 1768788383,
+    "lastedit": 1768789099,
     "category": "外野",
     "active": true,
     "update": false
@@ -17253,10 +17235,10 @@
     "update": false
   },
   "2272700": {
-    "totalreply": 71,
+    "totalreply": 74,
     "title": "[1500名美军做好部署明州准备]",
     "newtitle": "[1500名美军做好部署明州准备]",
-    "lastedit": 1768788146,
+    "lastedit": 1768788737,
     "category": "外野",
     "active": true,
     "update": false
