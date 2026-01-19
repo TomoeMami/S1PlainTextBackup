@@ -589,3 +589,15 @@ RE7’s Beginning Hour demo was a game-changer. As a lifelong fan, I was amazed 
 —— 来自 Xiaomi 2410DPN6CC, Android 16, 鹅球 v3.5.9 ...</blockquote>
 满斩味手斧估计很强，耐久是一种限制手段，估计跟re4一样耐久没了还能用但是速度和伤害都低很多，但这代又不像re4那样随地可以捡小刀或者找商人修，所以就以磨刀石作为回斩味的手段了，不卡你磨刀时间，主要卡你获取磨刀石的数量，做对照的话就跟换弹匣和余弹数一样
 
+
+*****
+
+####  隔壁老黄  
+##### 521#       发表于 2026-1-19 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69047487&amp;ptid=2252759" target="_blank">Dorohedoro 发表于 2026-1-18 20:01</a>
+卡普空现在这便秘宣发是谁想出来的，离发售还剩一个多月的游戏到现在连基本的场景和流程都看不到，就那么几 ...</blockquote>
+生化7当年快发售还不知道居然还有战斗呢，都以为是类似逃生那种<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
