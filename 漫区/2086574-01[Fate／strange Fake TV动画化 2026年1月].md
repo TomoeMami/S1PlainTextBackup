@@ -445,3 +445,12 @@ FSF本质正经版幻想嘉年华（确信）</blockquote>
 虽然不是祖但实力很强的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也就fsf片场没有圣人系从者，不然真就当沙包打了
 
+
+*****
+
+####  岸浪白野  
+##### 645#       发表于 2026-1-20 02:02
+
+我服了，比喻核武器或化学武器伤害如果你们能理解成是真造成了核武器或化学武器般的火力真能逗人笑吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这句话说的是圣别或圣属性的武器对死徒的相性大特攻就如同你找飞哥屠龙对龙种相性也大特攻，那肯定受到特攻的人如同受核武器或化学武器伤害啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
