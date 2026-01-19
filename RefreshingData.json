@@ -4767,7 +4767,7 @@
     "lastedit": 1768788060,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2119338": {
     "totalreply": 945,
@@ -12060,10 +12060,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 35843,
+    "totalreply": 35846,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1768827853,
+    "lastedit": 1768828456,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12519,10 +12519,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 8171,
+    "totalreply": 8174,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1768827971,
+    "lastedit": 1768828568,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12951,10 +12951,10 @@
     "update": false
   },
   "2271221": {
-    "totalreply": 164,
+    "totalreply": 165,
     "title": "[【年经贴】你心目中2025年排名前五的动画作品是哪些？]",
     "newtitle": "[【年经贴】你心目中2025年排名前五的动画作品是哪些？]",
-    "lastedit": 1768825214,
+    "lastedit": 1768828459,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13167,10 +13167,10 @@
     "update": false
   },
   "2271402": {
-    "totalreply": 711,
+    "totalreply": 712,
     "title": "[任天堂病棟14楼，等一个春节春直]",
     "newtitle": "[任天堂病棟14楼，等一个春节春直]",
-    "lastedit": 1768826169,
+    "lastedit": 1768828211,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17073,10 +17073,10 @@
     "update": false
   },
   "2272729": {
-    "totalreply": 361,
+    "totalreply": 362,
     "title": "[2025年全国人口出生数据公布，比上年末减少162万]",
     "newtitle": "[2025年全国人口出生数据公布，比上年末减少162万]",
-    "lastedit": 1768827857,
+    "lastedit": 1768828459,
     "category": "外野",
     "active": true,
     "update": false
@@ -17217,10 +17217,10 @@
     "update": false
   },
   "2272765": {
-    "totalreply": 57,
+    "totalreply": 58,
     "title": "[观察了王骁这几年对中东做的节目一点问题]",
     "newtitle": "[观察了王骁这几年对中东做的节目一点问题]",
-    "lastedit": 1768827490,
+    "lastedit": 1768828459,
     "category": "外野",
     "active": true,
     "update": false
@@ -17244,11 +17244,20 @@
     "update": false
   },
   "2272777": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[我们究竟在担心什么？]",
     "newtitle": "[我们究竟在担心什么？]",
-    "lastedit": 1768828090,
+    "lastedit": 1768828459,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2272740": {
+    "totalreply": 42,
+    "title": "[后知后觉，原来进击的巨人（漫画版）这么好看]",
+    "newtitle": "[后知后觉，原来进击的巨人（漫画版）这么好看]",
+    "lastedit": 1768828459,
+    "category": "漫区",
     "active": true,
     "update": false
   }
