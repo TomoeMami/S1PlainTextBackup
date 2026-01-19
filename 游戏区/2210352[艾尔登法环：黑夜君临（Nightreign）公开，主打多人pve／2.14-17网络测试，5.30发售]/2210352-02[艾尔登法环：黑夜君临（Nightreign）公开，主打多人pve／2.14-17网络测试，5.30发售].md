@@ -3252,3 +3252,27 @@ bug修了？那确实是加强。隐士我不常用不评论，法爵现在也�
 
 刚上手打不过永夜三狼很正常啊，非深夜的永夜就三狼和山羊最难了吧，练练就是了
 
+
+*****
+
+####  RinC  
+##### 2096#       发表于 2026-1-19 14:37
+
+这次不知道为啥也不给神鹰哥调一下输出端的性能，明明也可以加强一下反击速度和倍率的啥嘛。虽然加强了防御耗精和深夜减伤确实耐揍了不少，但还是没感觉到除了娱乐玩法以外非选神鹰不可的必要性在哪
+
+*****
+
+####  Aoye  
+##### 2097#       发表于 2026-1-19 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69051602&amp;ptid=2210352" target="_blank">RinC 发表于 2026-1-19 14:37</a>
+
+这次不知道为啥也不给神鹰哥调一下输出端的性能，明明也可以加强一下反击速度和倍率的啥嘛。虽然加强了防御 ...</blockquote>
+防反神鹰可以作为对策卡对策王七仙女<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+转阶段举盾嘲讽吸引小仙女冲过来那一下，然后能打一个蓄力防反，因为基础数值很高，局内词条不胡也能打个半血，队友再随便补两刀就行，接下来只要拉开距离防反下一只。
+
+蛆阶段更是可以全程举盾，除了开花都能用盾挡<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+难点反而在于第二夜的蒙格，多吸引仇恨让队友输出吧。
+
