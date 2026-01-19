@@ -234,3 +234,24 @@ HF线的话，就是走夜路被间桐樱吃掉的老马。
 
 发现虽然有人不满闪这人设是想往好里洗，但看到反而好几个闪厨好像是恨死了这部甚至连带对觉得好看的人放地图炮的程度
 
+
+*****
+
+####  失落之翼  
+##### 626#       发表于 2026-1-19 11:49
+
+这部闪开始挺开心的，直到被仇海打脸
+
+仇海：你亮EA啊，你有本事亮EA啊<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  失落之翼  
+##### 627#       发表于 2026-1-19 11:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69045438&amp;ptid=2086574" target="_blank">爱吃冻鳗的猫 发表于 2026-1-18 11:34</a>
+
+这集看2000万被制裁好有节目效果，另外突然听出来神父的声优这不是音柱的配音嘛？话说修女那身完全就是照着 ...</blockquote>
+紧身胶衣修女本来就是某种固有设定吧？<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
