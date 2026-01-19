@@ -516,3 +516,13 @@ AN装备就是黑的啊</blockquote>
 
 B站关注的阿嘎UP在吐槽话题已经混进隔壁BA的爱丽丝了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 1858#       发表于 2026-1-19 11:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟每次在B站看到你游评论区必有这游戏原来还活着吗
+
+哎阿姨罪大恶极
+

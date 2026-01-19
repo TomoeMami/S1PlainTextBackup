@@ -417,3 +417,11 @@ Killing Is My Business... and Business Is Good!
 
 “Peace comes at a price”<img src="https://static.stage1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  迷路的石头  
+##### 48#       发表于 2026-1-19 11:25
+
+【metaltrump--peace sell】 [https://www.bilibili.com/video/B ... 8b5ea917f753fb105f0](https://www.bilibili.com/video/BV19K411K73v/?share_source=copy_web&amp;vd_source=227d786d86f048b5ea917f753fb105f0)
+
