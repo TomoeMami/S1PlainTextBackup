@@ -424,3 +424,11 @@ FSF本质正经版幻想嘉年华（确信）</blockquote>
 
 这神父有器具外挂，本来也没有当人<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 643#       发表于 2026-1-20 00:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">言峰会洗礼咏唱吧，对这种邪门歪道应该有特攻的，主要是不同作品表现力差别，很难说用这个规格重制fsn和fz会不会也打得惊天动地，按设定来说言峰能碰瓷下旧版学姐，说明强度还可以
+
