@@ -454,3 +454,21 @@ FSF本质正经版幻想嘉年华（确信）</blockquote>
 我服了，比喻核武器或化学武器伤害如果你们能理解成是真造成了核武器或化学武器般的火力真能逗人笑吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 这句话说的是圣别或圣属性的武器对死徒的相性大特攻就如同你找飞哥屠龙对龙种相性也大特攻，那肯定受到特攻的人如同受核武器或化学武器伤害啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 646#       发表于 2026-1-20 02:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69054607&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-1-20 00:06</a>
+言峰会洗礼咏唱吧，对这种邪门歪道应该有特攻的，主要是不同作品表现力差别，很难说用这个规格重制fsn和fz ...</blockquote>
+【武内：说到强度，Ciel和言峰哪边较 强？ 奈须：Ciel压倒性地强。因为她的血统 而且又有不死身。《Zero》时期的言峰之所 以强，原因是他拥有异常数量的令咒以及对 切嗣的固执，是人生中最闪耀的瞬间啊。那 时候的言峰甚至能打赢Ciel。】
+
+陈年访谈说的4战麻婆碰瓷旧学姐主要是因为靠异常数量令咒提供魔力补输出打趴一下旧版学姐，但是旧版学姐在那时有不死和第七圣典就已经是月世界的超人了，更别说打趴后也能恢复站起来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+之前在楼里说过小说前期写杰斯塔的时候明显还没得知月姬R新的死徒分阶级，月姬R出了后出的第7卷迅速找补上杰斯塔是7阶上级死徒
+代行者肯定对死徒有一定相性，然后达到一定等级的优秀代行者才能有资格挑战上级死徒
+
+只要知道麻婆是优秀的代行者有代行者B级评价就行了，这评价的介绍本来也说已经是在代行者中可以算是一流水准虽然远不及A级、超A级、超超A级的那些人，幻想麻婆能不能打的过杰斯塔其实不重要
+以前作品的表现已经过时了，现在FSF动画的打架表现只是符合现在的战力上涨才这样画<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
