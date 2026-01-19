@@ -432,3 +432,16 @@ FSF本质正经版幻想嘉年华（确信）</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">言峰会洗礼咏唱吧，对这种邪门歪道应该有特攻的，主要是不同作品表现力差别，很难说用这个规格重制fsn和fz会不会也打得惊天动地，按设定来说言峰能碰瓷下旧版学姐，说明强度还可以
 
+
+*****
+
+####  洛克萨斯  
+##### 644#       发表于 2026-1-20 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69053678&amp;ptid=2086574" target="_blank">シャル 发表于 2026-1-19 20:23</a>
+
+六条命6个形态加美少女本体，彻底打死她七次才能消灭她
+
+虽然不是祖但实力很强的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也就fsf片场没有圣人系从者，不然真就当沙包打了
+
