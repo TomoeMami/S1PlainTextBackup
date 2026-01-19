@@ -304,3 +304,24 @@ FSF本质正经版幻想嘉年华（确信）</blockquote>
 
 话说回来一开始扔掉的旺财钥匙居然是真货吗，我以为就是个复制品闪闪才不屑一顾的
 
+
+*****
+
+####  失落之翼  
+##### 633#       发表于 2026-1-19 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69052429&amp;ptid=2086574" target="_blank">阿刚 发表于 2026-1-19 16:35</a>
+
+话说回来一开始扔掉的旺财钥匙居然是真货吗，我以为就是个复制品闪闪才不屑一顾的 ...</blockquote>
+可能金大王觉得反正又没人能用，自己开又不需要钥匙，谁知道某阴湿女神也来了<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  性急的蜗牛  
+##### 634#       发表于 2026-1-19 17:32
+
+完全没看过小说，但这两集完全满足了我对Fate衍生作的需求：让各路英灵打个头破血流，有多热闹搞多热闹就行了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+成田良悟只是不会给故事收尾而已，但听起来这一季本来也做不到尾，那就照最热闹的来演就没错了。
+
