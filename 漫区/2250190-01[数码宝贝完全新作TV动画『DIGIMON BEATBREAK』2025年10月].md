@@ -31,3 +31,11 @@
 以及这两集剧情节奏是不是怪怪的 ...</blockquote>
 会川升单写一个单元剧可能还好（蝙蝠进化的那两集）一旦跟在系构后面写感觉就像是在给系构差屁股（第3集和14集）<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失落之翼  
+##### 382#       发表于 2026-1-19 17:06
+
+蘑菇三人是要成为新的EI库被吸吗？如果当守卫的话闪耀黎明岂不是多3个人要养？<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

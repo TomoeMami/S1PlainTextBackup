@@ -1251,3 +1251,28 @@ Fairgame+马拉松, 一起剑指2026. 必将歼灭NS2随着游戏机发售陆陆
 [https://streamable.com/b6u0um](https://streamable.com/b6u0um)
 [https://www.reddit.com/r/GamingLeaksAndRumours/s/TnVnOdgPvb](https://www.reddit.com/r/GamingLeaksAndRumours/s/TnVnOdgPvb)
 
+
+*****
+
+####  缺德猫  
+##### 116#       发表于 2026-1-19 17:09
+
+美术算偷不算抄，玩法算抄
+
+
+*****
+
+####  Sopp  
+##### 117#       发表于 2026-1-19 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69052426&amp;ptid=2135998" target="_blank">Piano-Forest 发表于 2026-1-19 16:35</a>
+
+3月5日发售
+
+https://streamable.com/b6u0um
+
+https://www.reddit.com/r/GamingLeaksAndRumours/s/TnVnOdgPvb ...</blockquote>
+组队中
+
+不知道到时候会不会有群
+
