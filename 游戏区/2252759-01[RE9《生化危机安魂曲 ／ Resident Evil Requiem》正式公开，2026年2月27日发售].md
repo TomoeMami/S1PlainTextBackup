@@ -554,3 +554,15 @@ RE7’s Beginning Hour demo was a game-changer. As a lifelong fan, I was amazed 
 生化毕竟有恐怖这个标签在，所以这个妹子还是要有的，不过先行流程来回切猪脚的游戏我是真不太喜欢，而且试 ...</blockquote>
 启示录2还行。
 
+
+*****
+
+####  windlikeman  
+##### 518#       发表于 2026-1-19 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69047601&amp;ptid=2252759" target="_blank">JOJO42 发表于 2026-1-18 20:29</a>
+我看b站不少人都高呼这体术演出、打击感牛逼，不亏是动作天尊云云，但我怎么感觉无论动作设计还是玩法上都 ...</blockquote>
+不知道为什么 用不同的角色视角体现不一样的游玩氛围让我想到了...6代<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-CT72, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
