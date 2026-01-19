@@ -344,3 +344,21 @@ FSF本质正经版幻想嘉年华（确信）</blockquote>
 
 话说这死徒光看目前为止的表现很可能连麻婆都打不过，哪里来的勇气敢冲进有复数英灵的战场搅局，是还有底牌？还是单纯的不知道天高地厚了
 
+
+*****
+
+####  Yugao  
+##### 637#       发表于 2026-1-19 19:36
+
+把马路当自家客厅然后变减速带不是很正常<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大耳兽  
+##### 638#       发表于 2026-1-19 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69050476&amp;ptid=2086574" target="_blank">窝里蹲 发表于 2026-1-19 11:42</a>
+发现虽然有人不满闪这人设是想往好里洗，但看到反而好几个闪厨好像是恨死了这部甚至连带对觉得好看的人放地 ...</blockquote>
+闪厨对ccc是什么态度啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+
