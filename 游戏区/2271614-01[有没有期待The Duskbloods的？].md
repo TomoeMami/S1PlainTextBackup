@@ -259,3 +259,48 @@ ns2的联机游戏，感觉网络会比黑环更麻烦
 
 还是有些期待的
 
+
+*****
+
+####  skgaminger1988  
+##### 67#       发表于 2026-1-19 17:20
+
+魂系的pvp属于扣分项，fs擅长做宏大史诗的pve，但是一到pvp就变成两个人搁那立回尬砍。
+
+不过这游戏预告也说了可以抱团pve通关，如果pvp不占主轴还是挺期待的
+
+—— 来自 vivo V2458A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  skgaminger1988  
+##### 68#       发表于 2026-1-19 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69036361&amp;ptid=2271614" target="_blank">hu794 发表于 2026-1-16 14:55</a>
+哈哈是的，看了一下这个楼，除了极个别坛友比如宫崎英高信者zakki以及另外一两个人期待，其余的人要么是 ...</blockquote>
+因为fs的pvp就没好过，要是纯pve起码黑夜君临玩家肯定都期待<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2458A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  hu794  
+##### 69#         楼主| 发表于 2026-1-19 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69052755&amp;ptid=2271614" target="_blank">skgaminger1988 发表于 2026-1-19 17:21</a>
+因为fs的pvp就没好过，要是纯pve起码黑夜君临玩家肯定都期待
+
+—— 来自 vivo V2458A, Android 15, 鹅球  ...</blockquote>
+黑夜君临出之前不是被喷死了吗？就是刚出的时候也是喷的要死。我还记得当时duskbloods刚出的时候就嘲讽是黑夜君临2.0，哪有期待的。
+
+*****
+
+####  skgaminger1988  
+##### 70#       发表于 2026-1-19 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69052772&amp;ptid=2271614" target="_blank">hu794 发表于 2026-1-19 17:23</a>
+黑夜君临出之前不是被喷死了吗？就是刚出的时候也是喷的要死。我还记得当时duskbloods刚出的时候就嘲讽是 ...</blockquote>
+出之前都觉得冲击波，但现在喜欢黑环的也还是有不少不看好黑血源，就是因为它多了这个pvp
+
+—— 来自 vivo V2458A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
