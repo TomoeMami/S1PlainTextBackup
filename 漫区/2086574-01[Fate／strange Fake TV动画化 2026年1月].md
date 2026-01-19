@@ -263,3 +263,14 @@ HF线的话，就是走夜路被间桐樱吃掉的老马。
 
 fate本身就有角色时髦没刷完就不能死的感觉，搭配上成田更是给人一种OC遍地跑的错觉，每个人都是他的小蛋糕绝对都要秀个不停
 
+
+*****
+
+####  pokemon最爱  
+##### 629#       发表于 2026-1-19 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69050826&amp;ptid=2086574" target="_blank">pzk 发表于 2026-1-19 12:31</a>
+
+fate本身就有角色时髦没刷完就不能死的感觉，搭配上成田更是给人一种OC遍地跑的错觉，每个人都是他的小蛋糕 ...</blockquote>
+FSF本质正经版幻想嘉年华（确信）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
