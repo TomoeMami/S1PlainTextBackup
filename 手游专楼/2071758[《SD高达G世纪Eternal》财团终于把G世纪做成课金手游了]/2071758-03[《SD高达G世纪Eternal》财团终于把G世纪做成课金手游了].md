@@ -3178,3 +3178,11 @@ ur动画还不错，只是机体选择错误了吧，默示录感觉是斗狼人
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  fireadol  
+##### 3548#       发表于 2026-1-19 13:03
+
+540抽1螃蟹头0拉克丝，加上第一次的200抽就是740抽0拉克丝，拉克丝你跟我有仇啊<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
