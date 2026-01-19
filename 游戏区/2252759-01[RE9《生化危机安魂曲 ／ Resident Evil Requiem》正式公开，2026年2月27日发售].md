@@ -576,3 +576,16 @@ RE7’s Beginning Hour demo was a game-changer. As a lifelong fan, I was amazed 
 我看b站不少人都高呼这体术演出、打击感牛逼，不亏是动作天尊云云，但我怎么感觉无论动作设计还是玩法上都 ...</blockquote>
 生化4re单看玩法也没什么特色，全是烂大街的机制，这恰恰说明了关卡设计好不好和玩法机制没有绝对关系
 
+
+*****
+
+####  Muteki_Link  
+##### 520#       发表于 2026-1-19 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69040006&amp;ptid=2252759" target="_blank">隔壁老黄 发表于 2026-1-17 00:10</a>
+
+他那斧头看着像高科技冷兵器，没想到居然还要磨
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, 鹅球 v3.5.9 ...</blockquote>
+满斩味手斧估计很强，耐久是一种限制手段，估计跟re4一样耐久没了还能用但是速度和伤害都低很多，但这代又不像re4那样随地可以捡小刀或者找商人修，所以就以磨刀石作为回斩味的手段了，不卡你磨刀时间，主要卡你获取磨刀石的数量，做对照的话就跟换弹匣和余弹数一样
+
