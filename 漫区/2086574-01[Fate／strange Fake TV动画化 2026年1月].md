@@ -362,3 +362,24 @@ FSF本质正经版幻想嘉年华（确信）</blockquote>
 发现虽然有人不满闪这人设是想往好里洗，但看到反而好几个闪厨好像是恨死了这部甚至连带对觉得好看的人放地 ...</blockquote>
 闪厨对ccc是什么态度啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  今天不守尸  
+##### 639#       发表于 2026-1-19 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69053077&amp;ptid=2086574" target="_blank">性急的蜗牛 发表于 2026-1-19 18:09</a>
+
+话说这死徒光看目前为止的表现很可能连麻婆都打不过，哪里来的勇气敢冲进有复数英灵的战场搅局，是还有底牌 ...</blockquote>
+不是说她有六条命吗，每条命还是不同的形象，那不是随便浪？
+
+
+*****
+
+####  シャル  
+##### 640#       发表于 2026-1-19 20:23
+
+<blockquote>性急的蜗牛 发表于 2026-1-19 18:09
+话说这死徒光看目前为止的表现很可能连麻婆都打不过，哪里来的勇气敢冲进有复数英灵的战场搅局，是还有底牌 ...</blockquote>
+六条命6个形态加本体，彻底打死她七次才能消灭她
+
