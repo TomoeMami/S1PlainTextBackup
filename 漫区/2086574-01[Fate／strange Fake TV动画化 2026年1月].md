@@ -215,3 +215,14 @@ HF线的话，就是走夜路被间桐樱吃掉的老马。
 
 个人不爽闪闪纯粹是因为蘑菇老拿他那套最古=最强的设定吹他爹 就想问一个原始部落酋长神气什么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leonardydd  
+##### 624#       发表于 2026-1-19 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69049547&amp;ptid=2086574" target="_blank">windhawind2 发表于 2026-1-19 10:02</a>
+
+个人不爽闪闪纯粹是因为蘑菇老拿他那套最古=最强的设定吹他爹 就想问一个原始部落酋长神气什么 ...</blockquote>
+日式特色，古代都是失落的超文明或者外星文明，有的神就是外星人。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
