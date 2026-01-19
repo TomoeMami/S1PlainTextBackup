@@ -243,3 +243,11 @@ https://bbs.a9vg.com/forum.php?mod=viewthread&amp;tid=9062402&amp;extra=page%3D2
 
 ns2的联机游戏，感觉网络会比黑环更麻烦
 
+
+*****
+
+####  awy002  
+##### 65#       发表于 2026-1-19 08:31
+
+等试玩吧，还是挺期待的
+
