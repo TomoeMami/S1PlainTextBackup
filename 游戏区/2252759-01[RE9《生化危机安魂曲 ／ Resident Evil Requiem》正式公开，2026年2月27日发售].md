@@ -566,3 +566,13 @@ RE7’s Beginning Hour demo was a game-changer. As a lifelong fan, I was amazed 
 
 —— 来自 Sony XQ-CT72, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Dorohedoro  
+##### 519#       发表于 2026-1-19 12:44
+
+<blockquote>JOJO42 发表于 2026-1-18 20:29
+我看b站不少人都高呼这体术演出、打击感牛逼，不亏是动作天尊云云，但我怎么感觉无论动作设计还是玩法上都 ...</blockquote>
+生化4re单看玩法也没什么特色，全是烂大街的机制，这恰恰说明了关卡设计好不好和玩法机制没有绝对关系
+
