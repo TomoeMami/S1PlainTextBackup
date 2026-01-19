@@ -156,3 +156,14 @@
 怎么没人抢我飞翼大王，已经是公认最菜的扭蛋了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉来打本身需要飞上天的场景也不算多吧，都是怪人会飞才会去用一些对空的，PVP场景就更少了 
 
+
+*****
+
+####  洛克萨斯  
+##### 616#       发表于 2026-1-19 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69049906&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-1-19 10:44</a>
+
+感觉来打本身需要飞上天的场景也不算多吧，都是怪人会飞才会去用一些对空的，PVP场景就更少了  ...</blockquote>
+飞翼除了会飞，没别的用，问题是重力他也能飞，还有强控和输出<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
