@@ -274,3 +274,14 @@ fate本身就有角色时髦没刷完就不能死的感觉，搭配上成田更�
 fate本身就有角色时髦没刷完就不能死的感觉，搭配上成田更是给人一种OC遍地跑的错觉，每个人都是他的小蛋糕 ...</blockquote>
 FSF本质正经版幻想嘉年华（确信）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 630#       发表于 2026-1-19 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69050570&amp;ptid=2086574" target="_blank">失落之翼 发表于 2026-1-19 11:55</a>
+
+紧身胶衣修女本来就是某种固有设定吧？</blockquote>
+各种开洞+高开叉+眼罩太像寄叶部队女性制服了，色<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
