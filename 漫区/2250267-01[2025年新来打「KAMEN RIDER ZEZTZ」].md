@@ -134,3 +134,14 @@
 回复和屏障两个大爹都被抢了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">需要抢的只有NOX吧，莫丢了再扭一个完事
 
+
+*****
+
+####  洛克萨斯  
+##### 614#       发表于 2026-1-19 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69049570&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-1-19 10:05</a>
+
+需要抢的只有NOX吧，莫丢了再扭一个完事</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">怎么没人抢我飞翼大王，已经是公认最菜的扭蛋了
+
