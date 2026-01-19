@@ -296,3 +296,11 @@ FSF本质正经版幻想嘉年华（确信）<img src="https://static.stage1st.c
 FSF本质正经版幻想嘉年华（确信）</blockquote>
 本片ED给你点了个赞<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 632#       发表于 2026-1-19 16:35
+
+话说回来一开始扔掉的旺财钥匙居然是真货吗，我以为就是个复制品闪闪才不屑一顾的
+
