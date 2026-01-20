@@ -589,3 +589,13 @@ FSF本质正经版幻想嘉年华（确信）</blockquote>
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  影伴光生  
+##### 657#       发表于 2026-1-20 15:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">b叔：这把轮到闪闪你要护着小女孩御主了是吧，看我抽不抽你就完事了
+
+—— 来自 vivo V2302A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
