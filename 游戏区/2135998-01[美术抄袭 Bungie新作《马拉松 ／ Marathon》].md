@@ -1339,3 +1339,13 @@ UESC迅驰者异域快雀
 
 现在的棒鸡能不能跟命运、命运2一样神一阵鬼一阵都很难说
 
+
+*****
+
+####  zzy516232108  
+##### 122#       发表于 2026-1-20 10:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">168尝尝咸蛋
+
+正好arc国区也封了，难道是索尼的大手发力？
+
