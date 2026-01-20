@@ -664,3 +664,28 @@ FSF海有五战海的记忆?那FSF是作为FSN哪条线的后续？</blockquote>
 
 我理解是无关FSF的世界线，只是招出了其他世界的复仇海
 
+
+*****
+
+####  岸浪白野  
+##### 663#       发表于 2026-1-20 16:51
+
+ 本帖最后由 岸浪白野 于 2026-1-20 16:52 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69057973&amp;ptid=2086574" target="_blank">饭冢武也 发表于 2026-1-20 15:57</a>
+
+只有UBW海会复仇金闪闪吧
+
+我理解是无关FSF的世界线，只是招出了其他世界的复仇海 ...</blockquote>
+楼上说的类似HF线是说FSF的世界观用的冰室天地的世界观做基底，和冰室天地的相关其实只是用了冰室天地的5战结果就是HF线TE加二爷活着和作品里的沙条绫香的设定<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 664#       发表于 2026-1-20 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69057787&amp;ptid=2086574" target="_blank">azbhg1 发表于 2026-1-20 15:31</a>
+
+FSF海有五战海的记忆?那FSF是作为FSN哪条线的后续？</blockquote>
+本来你看下去就明白了，但如果你先看了某些人误导那还是要说下大家都根本没有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
