@@ -363,3 +363,14 @@ ns2的联机游戏，感觉网络会比黑环更麻烦
 
 不能忍受自家主机要指望第三方作品带货所以狂黑，这不就是底色<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厄斯沃穆  
+##### 77#       发表于 2026-1-20 11:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我信你的邪，看这楼还以为黑环发售前是什么倍受期待新要素拉满试玩好评媒体分爆表的明日之星呢
+能这么睁眼说瞎话马后炮的是当人没有记忆吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
