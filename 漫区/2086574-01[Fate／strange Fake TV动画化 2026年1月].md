@@ -697,3 +697,17 @@ FSF海有五战海的记忆?那FSF是作为FSN哪条线的后续？</blockquote>
 
 反正知道是有五战的世界就行了，不用太较真，本质上是打到爽的嘉年华
 
+
+*****
+
+####  KUMA  
+##### 666#       发表于 2026-1-20 18:22
+
+就看过fate zero和stay night的动画，进来看全是设定和原作党，完全不知道说的啥。
+
+看个动画，我还专门去查了Wikipedia，了解下背景，居然有中文版
+
+https://zh.wikipedia.org/wiki/Fate/strange_Fake
+
+估计欧美很多观众都跟我一样吧orz
+
