@@ -510,3 +510,25 @@ FSF本质正经版幻想嘉年华（确信）</blockquote>
 【靠言语进行驱散，敌 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那fsf召唤天草这种也打不了？天草近战应该还没这种专业驱魔人强
 
+
+*****
+
+####  失落之翼  
+##### 650#       发表于 2026-1-20 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69053077&amp;ptid=2086574" target="_blank">性急的蜗牛 发表于 2026-1-19 18:09</a>
+
+话说这死徒光看目前为止的表现很可能连麻婆都打不过，哪里来的勇气敢冲进有复数英灵的战场搅局，是还有底牌 ...</blockquote>
+反正这又不是本体浪就完事，而且事前以为这次没教会监督的伪圣杯，就是来愉悦的
+
+
+*****
+
+####  洛克萨斯  
+##### 651#       发表于 2026-1-20 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69055839&amp;ptid=2086574" target="_blank">失落之翼 发表于 2026-1-20 10:28</a>
+
+反正这又不是本体浪就完事，而且事前以为这次没教会监督的伪圣杯，就是来愉悦的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有人召唤出玛尔达和圣乔治这种不是把他当沙包打？玩不了一点
+
