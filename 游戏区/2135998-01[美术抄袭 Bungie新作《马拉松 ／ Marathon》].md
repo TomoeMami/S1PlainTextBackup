@@ -1349,3 +1349,31 @@ UESC迅驰者异域快雀
 
 正好arc国区也封了，难道是索尼的大手发力？
 
+
+*****
+
+####  liekong  
+##### 123#       发表于 2026-1-20 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69055735&amp;ptid=2135998" target="_blank">zzy516232108 发表于 2026-1-20 10:11</a>
+168尝尝咸蛋
+
+正好arc国区也封了，难道是索尼的大手发力？</blockquote>
+Arc国区不是据说腾讯的大手么
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zzy516232108  
+##### 124#       发表于 2026-1-20 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69055788&amp;ptid=2135998" target="_blank">liekong 发表于 2026-1-20 10:21</a>
+
+Arc国区不是据说腾讯的大手么
+
+—— 来自 S1Fun</blockquote>
+是啊，藤据说又要代理了，保护性封禁
+
+只不过时间确实挺近的，不得不遐想一下
+

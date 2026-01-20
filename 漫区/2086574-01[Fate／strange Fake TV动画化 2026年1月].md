@@ -497,3 +497,16 @@ FSF本质正经版幻想嘉年华（确信）</blockquote>
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  洛克萨斯  
+##### 649#       发表于 2026-1-20 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69055568&amp;ptid=2086574" target="_blank">姬茧墨 发表于 2026-1-20 09:48</a>
+
+其实月r有个反直觉的设定，那就是洗礼咏唱其实对死徒效果不大所以锻炼肉体才是正确的
+
+【靠言语进行驱散，敌 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那fsf召唤天草这种也打不了？天草近战应该还没这种专业驱魔人强
+
