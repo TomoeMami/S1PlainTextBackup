@@ -783,3 +783,15 @@ FSN游戏没打完，只看完了UBW+HF动画的路人
 看个动画，我还专门去查 ...</blockquote>
 别在乎，看打架就完事了
 
+
+*****
+
+####  7do  
+##### 673#       发表于 2026-1-20 23:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69060097&amp;ptid=2086574" target="_blank">hkguty 发表于 2026-1-20 21:33</a>
+感觉金闪闪是不是喜欢小孩讨厌大人，我感觉他在FZ对待master的调性跟FSF里对待master的调性相差挺大的，虽 ...</blockquote>
+给出场时杀小孩找补罢了
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
