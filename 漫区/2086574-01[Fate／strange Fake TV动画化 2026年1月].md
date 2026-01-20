@@ -721,3 +721,21 @@ https://zh.wikipedia.org/wiki/Fate/strange_Fake
 
 所以不早说了单纯点看动画爆米花，别想这么多，信了B的小友路边科普和自己想太多了那不又讨论了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  memset051  
+##### 668#       发表于 2026-1-20 19:52
+
+ 本帖最后由 memset051 于 2026-1-20 19:55 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69054862&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-1-20 02:02</a>
+
+我服了，比喻核武器或化学武器伤害如怎么可能能理解成是真造成了核武器或化学武器般的火力
+
+这句话说的是圣 ...</blockquote>
+就算是比喻，这也是在拿核武器比喻人类啊，
+
+你看FSN里对宝具威力的比喻，都是用导弹、巡航导弹这样的。
+
+等级B+的宝具“死翔”也只是比喻为巡航导弹罢了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
