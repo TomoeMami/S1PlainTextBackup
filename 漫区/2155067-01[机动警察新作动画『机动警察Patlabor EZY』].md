@@ -1343,3 +1343,19 @@ CG制作：GAZEN・J.C.STAFF CG部
 三部剧场版的上映时间不是都公布了？</blockquote>
 说的是剧场版本身有熟肉的速度，不过现在看来是OVA拆成了三部剧场版
 
+
+*****
+
+####  Stellar_Frost  
+##### 115#       发表于 2026-1-20 13:51
+
+<img src="https://img.stage1st.com/forum/202601/20/135130rhlywj2z1zy97xk1.png" referrerpolicy="no-referrer">
+
+<strong>Image_1768888266941_427.png</strong> (283.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-20 13:51 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
