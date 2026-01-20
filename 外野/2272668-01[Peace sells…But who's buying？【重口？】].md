@@ -558,3 +558,28 @@ ykw任终身**，乐
 
 每个十亿真好赚
 
+
+*****
+
+####  全面回忆的痛苦  
+##### 52#       发表于 2026-1-20 17:56
+
+三年， **的美国总统就剩三年了。
+
+*****
+
+####  diodio233  
+##### 53#       发表于 2026-1-20 17:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老登子在台上的时候米国还算皇帝的新衣，大家还假装你还穿着衣服
+
+川皇一上来大家发现这皇帝不仅没穿衣服，还当众jerk off
+
+
+*****
+
+####  火星後繼者  
+##### 54#       发表于 2026-1-20 18:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么新五常，明明是阿川的老鼠会
+
