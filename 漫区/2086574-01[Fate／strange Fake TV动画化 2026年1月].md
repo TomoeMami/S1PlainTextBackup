@@ -577,3 +577,15 @@ FSF本质正经版幻想嘉年华（确信）</blockquote>
 
 你楼还有几个动画党啊，已经成设定党版聊了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KDConan  
+##### 656#       发表于 2026-1-20 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69057146&amp;ptid=2086574" target="_blank">zakki 发表于 2026-1-20 13:41</a>
+你楼还有几个动画党啊，已经成设定党版聊了，不如说任何fsf的讨论区都会成为设定党版聊 ...</blockquote>
+最喜欢的讨论第一名永远是战力讨论，必然战设定<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
