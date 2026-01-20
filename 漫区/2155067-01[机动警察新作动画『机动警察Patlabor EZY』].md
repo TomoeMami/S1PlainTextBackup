@@ -1296,3 +1296,23 @@ CG制作：GAZEN・J.C.STAFF CG部
 
 搞剧场版虽然一定程度能保证点制作质量，但是也意味着很久才能看到…… 另外索尼的手都伸到这里来了吗(
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 111#       发表于 2026-1-20 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69056896&amp;ptid=2155067" target="_blank">aptx8285144 发表于 2026-1-20 12:46</a>
+
+搞剧场版虽然一定程度能保证点制作质量，但是也意味着很久才能看到…… 另外索尼的手都伸到这里来了吗( ...</blockquote>
+有系构，应该是ova拆三次剧场版上映
+
+*****
+
+####  leolodge  
+##### 112#       发表于 2026-1-20 13:10
+
+<blockquote>wtwtwt21 发表于 2025-12-13 20:33
+原作漫画完结了吗，结局是什么</blockquote>
+内海带着格里锋恐袭特车二课。格里锋被野明极限反杀，内海挟持熊耳出逃被shaft安保反杀，完结。
+
