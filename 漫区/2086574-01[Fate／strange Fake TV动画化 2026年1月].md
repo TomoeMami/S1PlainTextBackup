@@ -751,3 +751,22 @@ https://zh.wikipedia.org/wiki/Fate/strange_Fake
 你看FSN里对宝具威力的比喻，都是用导弹、巡航导弹这样的。</blockquote>
 首先你要理解这是回应红毛醉汉皮套说的，然后这套武器比喻请放心到月姬R还在用着<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kinoan  
+##### 670#       发表于 2026-1-20 21:26
+
+FSN游戏没打完，只看完了UBW+HF动画的路人
+纯粹是当年很喜欢永生之酒和drrr所以冲着成田良悟来的
+动画目前为止看得挺爽，虽然设定啥都没看懂，但逼装得到位啊<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+每集看完点进专楼看都一脸懵
+
+
+*****
+
+####  hkguty  
+##### 671#       发表于 2026-1-20 21:33
+
+感觉金闪闪是不是喜欢小孩讨厌大人，我感觉他在FZ对待master的调性跟FSF里对待master的调性相差挺大的，虽然也有不同作者的原因，但FSF毕竟也算是平行世界的FZ后传吧？之前那个无双游戏里，金闪闪也喜欢给小孩送糖还是玩具
+
