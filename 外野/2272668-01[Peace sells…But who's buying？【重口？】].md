@@ -446,3 +446,115 @@ ykw任终身**，乐
  ...</blockquote>
 我觉得奶龙也是知道这点所以才想要撑地，而且他也只能这么干，不然按正常流程28年他卸任要是换个dem的人上来，不光共和党，他自己家族都会整个被青蒜从天堂落进斩杀线
 
+
+*****
+
+####  猪突猛进R  
+##### 51#       发表于 2026-1-20 17:41
+
+媒体公布了奶龙邀请参加加沙和平委员会的国家和机构名单。
+
+-Algeria  -阿尔及利亚
+
+-Argentina  -阿根廷
+
+-Australia  -澳大利亚
+
+-Austria  -奥地利
+
+-Bahrain  -巴林
+
+-Belarus  -白俄罗斯
+
+-Brazil  -巴西
+
+-Canada  -加拿大
+
+-Cyprus  -塞浦路斯
+
+-Egypt  -埃及
+
+-European Commission  -欧盟委员会
+
+-Finland  -芬兰
+
+-France  -法国
+
+-Germany  -德国
+
+-Greece  -希腊
+
+-Hungary  -匈牙利
+
+-India  -印度
+
+-Indonesia  -印度尼西亚
+
+-Ireland  -爱尔兰
+
+-Israel  -以色列
+
+-Italy  -意大利
+
+-Japan  -日本
+
+-Jordan  -约旦
+
+-Kazakhstan  -哈萨克斯坦
+
+-Morocco  -摩洛哥
+
+-Netherlands  -荷兰
+
+-New Zealand  -新西兰
+
+-Norway  -挪威
+
+-Oman  -阿曼
+
+-Pakistan  -巴基斯坦
+
+-Paraguay  -巴拉圭
+
+-Poland  -波兰
+
+-Portugal  -葡萄牙
+
+-Qatar  -卡塔尔
+
+-Romania  -罗马尼亚
+
+-Russia  -俄罗斯
+
+-Saudi Arabia  -沙特阿拉伯
+
+-Singapore  -新加坡
+
+-Slovenia  -斯洛文尼亚
+
+-South Korea  -韩国
+
+-Spain  -西班牙
+
+-Sweden  -瑞典
+
+-Switzerland  -瑞士
+
+-Thailand  -泰国
+
+-Turkey  -土耳其
+
+-United Arab Emirates  -阿联酋
+
+-United Kingdom  -英国
+
+-Ukraine  -乌克兰
+
+-Uzbekistan  -乌兹别克斯坦
+
+-Vietnam  -越南
+
+来源：彭博社
+
+每个十亿真好赚
+
