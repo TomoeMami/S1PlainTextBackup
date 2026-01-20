@@ -739,3 +739,15 @@ https://zh.wikipedia.org/wiki/Fate/strange_Fake
 
 等级B+的宝具“死翔”也只是比喻为巡航导弹罢了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 669#       发表于 2026-1-20 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69059626&amp;ptid=2086574" target="_blank">memset051 发表于 2026-1-20 19:52</a>
+就算是比喻，这也是在拿核武器比喻人类啊，
+
+你看FSN里对宝具威力的比喻，都是用导弹、巡航导弹这样的。</blockquote>
+首先你要理解这是回应红毛醉汉皮套说的，然后这套武器比喻请放心到月姬R还在用着<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
