@@ -1359,3 +1359,11 @@ CG制作：GAZEN・J.C.STAFF CG部
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  nosmokingsp  
+##### 116#       发表于 2026-1-20 15:05
+
+上来就出RG？万代这么重视吗？话说下一个RG钢普拉都还没影呢
+
