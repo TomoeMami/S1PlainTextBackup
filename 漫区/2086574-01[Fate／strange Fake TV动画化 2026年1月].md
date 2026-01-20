@@ -795,3 +795,13 @@ FSN游戏没打完，只看完了UBW+HF动画的路人
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  格林卡罗尔  
+##### 674#       发表于 2026-1-21 01:37
+
+如果觉得动画对白里的设定听不懂去看fz就够了，甚至只用看第一集。楼里讨论的设定基本和剧情关系不大，甚至有生搬硬套的嫌疑
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
