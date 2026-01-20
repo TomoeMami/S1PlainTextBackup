@@ -651,3 +651,16 @@ FSF海有五战海的记忆?那FSF是作为FSN哪条线的后续？
 FSF海有五战海的记忆?那FSF是作为FSN哪条线的后续？</blockquote>
 类似hf线
 
+
+*****
+
+####  饭冢武也  
+##### 662#       发表于 2026-1-20 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69057934&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-1-20 15:51</a>
+
+类似hf线</blockquote>
+只有UBW海会复仇金闪闪吧
+
+我理解是无关FSF的世界线，只是招出了其他世界的复仇海
+
