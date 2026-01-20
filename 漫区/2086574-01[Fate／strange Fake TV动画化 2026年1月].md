@@ -711,3 +711,13 @@ https://zh.wikipedia.org/wiki/Fate/strange_Fake
 
 估计欧美很多观众都跟我一样吧orz
 
+
+*****
+
+####  岸浪白野  
+##### 667#       发表于 2026-1-20 18:30
+
+ 本帖最后由 岸浪白野 于 2026-1-20 18:35 编辑 
+
+所以不早说了单纯点看动画爆米花，别想这么多，信了B的小友路边科普和自己想太多了那不又讨论了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
