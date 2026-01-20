@@ -583,3 +583,21 @@ ykw任终身**，乐
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么新五常，明明是阿川的老鼠会
 
+
+*****
+
+####  jago2051  
+##### 55#         楼主| 发表于 2026-1-20 23:47
+
+1.20更新
+白俄罗斯加入，详见一楼。
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  sagajytc  
+##### 56#       发表于 2026-1-20 23:51
+
+啥和平委员会啊，洪宪皇帝的筹安会差不多
+
