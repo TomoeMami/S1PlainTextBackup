@@ -3300,3 +3300,23 @@ bug修了？那确实是加强。隐士我不常用不评论，法爵现在也�
 转阶段举盾嘲讽吸引小仙女冲过来那一下，然后能打一个蓄力防反，因 ...</blockquote>
 也不是很对策吧说实话，仙女只要会后退稍微滚两下谁都能处理<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。主要是这两天太刀无赖玩多了再去试了下肉鹰和防反鹰给的落差感真的太大了，有点白瞎了难得的调整机会
 
+
+*****
+
+####  RinC  
+##### 2100#       发表于 2026-1-19 20:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69051913&amp;ptid=2210352" target="_blank">Aoye 发表于 2026-1-19 15:26</a>
+
+防反神鹰可以作为对策卡对策王七仙女
+
+转阶段举盾嘲讽吸引小仙女冲过来那一下，然后能打一个蓄力防反，因 ...</blockquote>
+也不是很对策吧说实话，仙女只要会后退稍微滚两下谁都能处理<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。主要是这两天太刀无赖玩多了再去试了下肉鹰和防反鹰给的落差感真的太大了，有点白瞎了难得的调整机会
+
+*****
+
+####  AEmpire  
+##### 2101#       发表于 2026-1-21 02:36
+
+专属遗物限定一下角色不行吗，为啥要把项链的连击词条一刀砍废<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">修女大人现在伤害少一大截玩着好难受啊
+
