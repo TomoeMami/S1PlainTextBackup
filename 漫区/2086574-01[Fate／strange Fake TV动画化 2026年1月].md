@@ -556,3 +556,16 @@ FSF本质正经版幻想嘉年华（确信）</blockquote>
 那还是不至于的，天草好歹也是个圣人，从裤裆掏点别的特攻手段应该还是不难的，这里只是说洗礼咏唱这个玩 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">正常天草是没有搓黑洞这招的，感觉打起来够呛，如果汉萨开始那一拳是玛尔达打的估计杰斯塔已经一条命没了
 
+
+*****
+
+####  姬茧墨  
+##### 654#       发表于 2026-1-20 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69055941&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-1-20 10:41</a>
+
+正常天草是没有搓黑洞这招的，感觉打起来够呛，如果汉萨开始那一拳是玛尔达打的估计杰斯塔已经一条命没了 ...</blockquote>
+其实就是看天草有没有别的教会圣属性魔术和圣别手段，如果只论定位普通天草和全开杰斯塔正面对决可能还真不一定能拿下
+
+不过好歹也是个盖章的圣人，贷款一下应该没啥问题
+
