@@ -532,3 +532,27 @@ FSF本质正经版幻想嘉年华（确信）</blockquote>
 反正这又不是本体浪就完事，而且事前以为这次没教会监督的伪圣杯，就是来愉悦的 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有人召唤出玛尔达和圣乔治这种不是把他当沙包打？玩不了一点
 
+
+*****
+
+####  姬茧墨  
+##### 652#       发表于 2026-1-20 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69055786&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-1-20 10:20</a>
+
+那fsf召唤天草这种也打不了？天草近战应该还没这种专业驱魔人强</blockquote>
+那还是不至于的，天草好歹也是个圣人，从裤裆掏点别的特攻手段应该还是不难的，这里只是说洗礼咏唱这个玩意其实是对那些灵魂还保留人类形态的敌人有特攻（虫爷，吸血鬼大公），教会打死徒有圣典武装和一些别的特攻手段
+
+如果是全开的杰斯塔应该也有二流到一流从者左右的战斗力（现在杰斯塔的身体不是专门为战斗准备的），但圣人系角色打死徒的相性优势还是存在的
+
+
+*****
+
+####  洛克萨斯  
+##### 653#       发表于 2026-1-20 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69055913&amp;ptid=2086574" target="_blank">姬茧墨 发表于 2026-1-20 10:38</a>
+
+那还是不至于的，天草好歹也是个圣人，从裤裆掏点别的特攻手段应该还是不难的，这里只是说洗礼咏唱这个玩 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">正常天草是没有搓黑洞这招的，感觉打起来够呛，如果汉萨开始那一拳是玛尔达打的估计杰斯塔已经一条命没了
+
