@@ -526,3 +526,13 @@ B站关注的阿嘎UP在吐槽话题已经混进隔壁BA的爱丽丝了<img src=
 
 哎阿姨罪大恶极
 
+
+*****
+
+####  冰风血羽  
+##### 1859#       发表于 2026-1-20 19:05
+
+那个UP的群也炸了，我现在有个想法是不是国内玩阿嘎的都在一个群里<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
