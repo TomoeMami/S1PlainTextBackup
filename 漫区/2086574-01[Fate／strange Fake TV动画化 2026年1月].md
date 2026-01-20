@@ -599,3 +599,44 @@ FSF本质正经版幻想嘉年华（确信）</blockquote>
 
 —— 来自 vivo V2302A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  三月的老虎  
+##### 658#       发表于 2026-1-20 15:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69057146&amp;ptid=2086574" target="_blank">zakki 发表于 2026-1-20 13:41</a>
+
+你楼还有几个动画党啊，已经成设定党版聊了，不如说任何fsf的讨论区都会成为设定党版聊 ...</blockquote>
+没看过fsf小说和漫画也没玩过fgo，但玩过月姬魔夜看过fate几个老动画的算动画党吗<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+说实话型月的一大堆设定一概不通，像是杰斯塔这个死徒的设定我看了好一会儿才意识到是月姬的东西
+
+至于魔术和魔法的区别，反正就只知道魔法更牛逼就是了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+还有魔术师追求根源跟打圣杯战争有甚么关系。为啥这些魔术师只要愿意就能让圣杯在这个地方出现。圣杯分配令咒的逻辑，为啥会偏偏分配给这个人。甚至为啥assassin只能召哈桑而五战是小次郎这种。我一概当作者说啥就是啥，看个乐呵就完事了。
+
+所以从这个层面来说，fsf这三集看的很爽，里面的角色也不会像蘑菇那样打到一半开始价值观思辨，或者说里面的角色就是思辨也是为了装逼服务，纯种爆米花就很好看。还有像是老韦伯再次看到金闪闪时的那个表情和反应，情怀也是拉满。
+
+
+*****
+
+####  洛克萨斯  
+##### 659#       发表于 2026-1-20 15:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69057646&amp;ptid=2086574" target="_blank">影伴光生 发表于 2026-1-20 15:11</a>
+
+b叔：这把轮到闪闪你要护着小女孩御主了是吧，看我抽不抽你就完事了
+
+—— 来自 vivo V2302A, Android 15,  ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下一集就是伊阿宋大战蘑菇
+
+你月唯一尊重海格力斯的作者笔下最强表现力的海格力斯大战蘑菇野爹
+
+*****
+
+####  azbhg1  
+##### 660#       发表于 2026-1-20 15:31
+
+FSF海有五战海的记忆?那FSF是作为FSN哪条线的后续？
+
