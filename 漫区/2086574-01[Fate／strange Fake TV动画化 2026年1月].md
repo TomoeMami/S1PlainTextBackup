@@ -770,3 +770,16 @@ FSN游戏没打完，只看完了UBW+HF动画的路人
 
 感觉金闪闪是不是喜欢小孩讨厌大人，我感觉他在FZ对待master的调性跟FSF里对待master的调性相差挺大的，虽然也有不同作者的原因，但FSF毕竟也算是平行世界的FZ后传吧？之前那个无双游戏里，金闪闪也喜欢给小孩送糖还是玩具
 
+
+*****
+
+####  stunflare  
+##### 672#       发表于 2026-1-20 21:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69059054&amp;ptid=2086574" target="_blank">KUMA 发表于 2026-1-20 18:22</a>
+
+就看过fate zero和stay night的动画，进来看全是设定和原作党，完全不知道说的啥。
+
+看个动画，我还专门去查 ...</blockquote>
+别在乎，看打架就完事了
+
