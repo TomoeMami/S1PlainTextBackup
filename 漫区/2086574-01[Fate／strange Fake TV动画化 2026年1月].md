@@ -640,3 +640,14 @@ b叔：这把轮到闪闪你要护着小女孩御主了是吧，看我抽不抽�
 
 FSF海有五战海的记忆?那FSF是作为FSN哪条线的后续？
 
+
+*****
+
+####  洛克萨斯  
+##### 661#       发表于 2026-1-20 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69057787&amp;ptid=2086574" target="_blank">azbhg1 发表于 2026-1-20 15:31</a>
+
+FSF海有五战海的记忆?那FSF是作为FSN哪条线的后续？</blockquote>
+类似hf线
+
