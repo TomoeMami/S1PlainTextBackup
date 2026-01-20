@@ -472,3 +472,14 @@ FSF本质正经版幻想嘉年华（确信）</blockquote>
 只要知道麻婆是优秀的代行者有代行者B级评价就行了，这评价的介绍本来也说已经是在代行者中可以算是一流水准虽然远不及A级、超A级、超超A级的那些人，幻想麻婆能不能打的过杰斯塔其实不重要
 以前作品的表现已经过时了，现在FSF动画的打架表现只是符合现在的战力上涨才这样画<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 647#       发表于 2026-1-20 09:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69054893&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-1-20 02:30</a>
+
+【武内：说到强度，Ciel和言峰哪边较 强？ 奈须：Ciel压倒性地强。因为她的血统 而且又有不死身。《Zero》 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要汉萨好像不会洗礼咏唱这种对邪门歪道特攻的术式，全是圣属性附魔拳脚刀剑炮弹攻击
+
