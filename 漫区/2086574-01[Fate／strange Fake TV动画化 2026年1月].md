@@ -689,3 +689,11 @@ FSF海有五战海的记忆?那FSF是作为FSN哪条线的后续？</blockquote>
 FSF海有五战海的记忆?那FSF是作为FSN哪条线的后续？</blockquote>
 本来你看下去就明白了，但如果你先看了某些人误导那还是要说下大家都根本没有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 665#       发表于 2026-1-20 17:36
+
+反正知道是有五战的世界就行了，不用太较真，本质上是打到爽的嘉年华
+
