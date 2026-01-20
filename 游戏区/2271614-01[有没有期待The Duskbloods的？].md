@@ -355,3 +355,11 @@ ns2的联机游戏，感觉网络会比黑环更麻烦
 小高亲自监督、开发用时长，*任天堂也看好*。小高采访说设计上考虑了不喜欢PvP的玩家群体，对我 ...</blockquote>
 黑环的平衡改动玩家都很认可吧
 
+
+*****
+
+####  xiaosayang  
+##### 76#       发表于 2026-1-20 10:55
+
+不能忍受自家主机要指望第三方作品带货所以狂黑，这不就是底色<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
