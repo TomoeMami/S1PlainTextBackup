@@ -24,3 +24,53 @@ Xbox《马拉松》俱乐部发布了马拉松将于3月5日发售的宣传片�
 
 2026-1-20 12:37 上传
 
+
+*****
+
+####  黑猫软  
+##### 464#       发表于 2026-1-20 16:12
+
+《马拉松》主题PS5手柄：
+
+<img src="https://img.stage1st.com/forum/202601/20/161142fy26wcjgf2oafaiv.jpg" referrerpolicy="no-referrer">
+
+<strong>马拉松1.jpg</strong> (57.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-20 16:11 上传
+
+游戏截图：
+
+<img src="https://img.stage1st.com/forum/202601/20/161203xrr1eht6a7pgup1t.jpg" referrerpolicy="no-referrer">
+
+<strong>1768865869_108496_jpg_r.jpg</strong> (84.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-20 16:12 上传
+
+<img src="https://img.stage1st.com/forum/202601/20/161203oywq9y6a1pss01ao.jpg" referrerpolicy="no-referrer">
+
+<strong>1768865869_179363_2jpg_r.jpg</strong> (110.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-20 16:12 上传
+
+<img src="https://img.stage1st.com/forum/202601/20/161203rqfnjjirwhidhwc9.jpg" referrerpolicy="no-referrer">
+
+<strong>1768866392_508874_2334jpg_r.jpg</strong> (116.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-20 16:12 上传
+
+<img src="https://img.stage1st.com/forum/202601/20/161204mfw7vf67t767fou7.jpg" referrerpolicy="no-referrer">
+
+<strong>1768866392_83684333_jpg_r.jpg</strong> (69.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-20 16:12 上传
+
