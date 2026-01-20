@@ -1316,3 +1316,18 @@ CG制作：GAZEN・J.C.STAFF CG部
 原作漫画完结了吗，结局是什么</blockquote>
 内海带着格里锋恐袭特车二课。格里锋被野明极限反杀，内海挟持熊耳出逃被shaft安保反杀，完结。
 
+
+*****
+
+####  Toby_dak  
+##### 113#       发表于 2026-1-20 13:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69056896&amp;ptid=2155067" target="_blank">aptx8285144 发表于 2026-1-20 13:46</a>
+
+搞剧场版虽然一定程度能保证点制作质量，但是也意味着很久才能看到…… 另外索尼的手都伸到这里来了吗( ...</blockquote>
+？？？
+
+三部剧场版的上映时间不是都公布了？
+
+<img src="https://p.sda1.dev/30/346925aeb30eb609e1ab6954f62a9116/5894917688860212.png" referrerpolicy="no-referrer">
+
