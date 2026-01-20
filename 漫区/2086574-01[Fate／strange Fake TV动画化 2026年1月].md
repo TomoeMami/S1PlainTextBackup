@@ -569,3 +569,11 @@ FSF本质正经版幻想嘉年华（确信）</blockquote>
 
 不过好歹也是个盖章的圣人，贷款一下应该没啥问题
 
+
+*****
+
+####  zakki  
+##### 655#       发表于 2026-1-20 13:41
+
+你楼还有几个动画党啊，已经成设定党版聊了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
