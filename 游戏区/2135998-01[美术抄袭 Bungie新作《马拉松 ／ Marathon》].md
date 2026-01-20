@@ -1324,3 +1324,18 @@ UESC迅驰者异域快雀
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  牙狼GARO  
+##### 121#       发表于 2026-1-20 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69054681&amp;ptid=2135998" target="_blank">Sorastlos 发表于 2026-1-20 00:36</a>
+
+来了来了，标准版168，豪华版248
+
+还是没胆子free to play啊</blockquote>
+那就不玩了，有胆子free还能试试，连free的胆子都没有
+
+现在的棒鸡能不能跟命运、命运2一样神一阵鬼一阵都很难说
+
