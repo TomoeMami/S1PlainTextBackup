@@ -1392,3 +1392,14 @@ Arc国区不是据说腾讯的大手么
 
 这美术风格玩多了很累的。
 
+
+*****
+
+####  zzy516232108  
+##### 127#       发表于 2026-1-20 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69057328&amp;ptid=2135998" target="_blank">星花 发表于 2026-1-20 14:19</a>
+
+这美术风格玩多了很累的。</blockquote>
+命运2也是差不多，要么黑的一笔要么亮的一比，特效瞎眼的厉害
+
