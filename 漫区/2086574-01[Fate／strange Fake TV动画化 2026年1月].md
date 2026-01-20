@@ -805,3 +805,19 @@ FSN游戏没打完，只看完了UBW+HF动画的路人
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  岸浪白野  
+##### 675#       发表于 2026-1-21 02:12
+
+ 本帖最后由 岸浪白野 于 2026-1-21 02:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69060971&amp;ptid=2086574" target="_blank">格林卡罗尔 发表于 2026-1-21 01:37</a>
+
+如果觉得动画对白里的设定听不懂去看fz就够了，甚至只用看第一集。楼里讨论的设定基本和剧情关系不大，甚至 ...</blockquote>
+讲道理前面一直就有建议作为动画党路人好好看动画欣赏魅力论战没幸福的不要虚空讨论不会发生在FSF的事
+
+你脑补设定是错就会被人指正，你如果真在意有些点说到的有些点也不是看个FSF甚至看FATE动画就懂那肯定会被人补充点那忍的了
+
+别没犯罪就先做判官判人了，觉得别人路边科普就先干事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
