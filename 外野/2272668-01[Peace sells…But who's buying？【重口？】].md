@@ -609,3 +609,20 @@ ykw任终身**，乐
 
 大型真国秀综艺节目，和平委员会<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  烦死了  
+##### 58#       发表于 2026-1-21 00:40
+
+卸任？ 我看想多了 病死可能性更大<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S938U1, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  deadline  
+##### 59#       发表于 2026-1-21 00:45
+
+看出来了，这是真想当球长<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
