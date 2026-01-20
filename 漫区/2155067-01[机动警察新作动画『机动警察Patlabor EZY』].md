@@ -1331,3 +1331,15 @@ CG制作：GAZEN・J.C.STAFF CG部
 
 <img src="https://p.sda1.dev/30/346925aeb30eb609e1ab6954f62a9116/5894917688860212.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 114#       发表于 2026-1-20 13:29
+
+<blockquote>Toby_dak 发表于 2026-1-20 13:17
+？？？
+
+三部剧场版的上映时间不是都公布了？</blockquote>
+说的是剧场版本身有熟肉的速度，不过现在看来是OVA拆成了三部剧场版
+
