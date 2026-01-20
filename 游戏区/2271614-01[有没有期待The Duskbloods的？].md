@@ -342,3 +342,16 @@ ns2的联机游戏，感觉网络会比黑环更麻烦
 
 感觉会是ARC那种有PVP要素的PVE游戏
 
+
+*****
+
+####  缺德猫  
+##### 75#       发表于 2026-1-20 08:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69046346&amp;ptid=2271614" target="_blank">窦唯 发表于 2026-1-18 15:06</a>
+
+谨慎期待
+
+小高亲自监督、开发用时长，*任天堂也看好*。小高采访说设计上考虑了不喜欢PvP的玩家群体，对我 ...</blockquote>
+黑环的平衡改动玩家都很认可吧
+
