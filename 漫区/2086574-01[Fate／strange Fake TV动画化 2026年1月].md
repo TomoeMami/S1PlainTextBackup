@@ -483,3 +483,17 @@ FSF本质正经版幻想嘉年华（确信）</blockquote>
 【武内：说到强度，Ciel和言峰哪边较 强？ 奈须：Ciel压倒性地强。因为她的血统 而且又有不死身。《Zero》 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要汉萨好像不会洗礼咏唱这种对邪门歪道特攻的术式，全是圣属性附魔拳脚刀剑炮弹攻击
 
+
+*****
+
+####  姬茧墨  
+##### 648#       发表于 2026-1-20 09:48
+
+其实月r有个反直觉的设定，那就是洗礼咏唱其实对死徒效果不大<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以锻炼肉体才是正确的
+【靠言语进行驱散，敌不过以死徒为首的『完全非人类化』生物。
+因为他们的灵魂『已经无法理解其中意义』。
+人之理只与人相通。
+对成为死徒的生物，主的言语无法传达。】
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
