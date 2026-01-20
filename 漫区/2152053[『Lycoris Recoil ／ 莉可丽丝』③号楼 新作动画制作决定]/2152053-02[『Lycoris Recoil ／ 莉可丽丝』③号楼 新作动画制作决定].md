@@ -14,3 +14,12 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么要塞弹珠机里，这是要把河豚都变堵狗吗
 
+
+*****
+
+####  osore  
+##### 2443#       发表于 2026-1-20 21:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给钱就塞啊
+有钱真的可以为所欲为的
+
