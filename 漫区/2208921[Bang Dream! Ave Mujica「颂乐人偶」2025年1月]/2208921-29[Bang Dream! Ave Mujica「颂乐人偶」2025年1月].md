@@ -1343,3 +1343,52 @@ BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes
 
 我还以为出不了了，不过这么大的阵仗不出BD也太浪费了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 41688#       发表于 2026-1-21 22:54
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/21/225400l4h449bveyhe3v2h.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-21_20-37-58.jpg</strong> (214.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-21 22:54 上传
+
+       [https://x.com/bang_dream_info/status/2013929818224828894](https://x.com/bang_dream_info/status/2013929818224828894)
+
+       [https://www.youtube.com/watch?v=Wlhx6odKdgc](https://www.youtube.com/watch?v=Wlhx6odKdgc)
+
+       
+
+<img src="https://img.stage1st.com/forum/202601/21/225401vukjqq211jjg3okg.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-01-21_20-35-50.jpg</strong> (76.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-21 22:54 上传
+
+       [https://t.bilibili.com/1160306078153441408](https://t.bilibili.com/1160306078153441408)
+
+       <strong>にゃむちチャンネル（Nyamuchi channel）第11回</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202601/21/225400ldojuobjues5ej3y.jpg" referrerpolicy="no-referrer">
+
+<strong>0f1ee870fa461de00dd8db40356fbd05d0dd37a8.jpg</strong> (166.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-21 22:54 上传
+
+对不起让大家久等了……
+
+大家期待的sumimi嘉宾回终于来了！~
+
+说了很多话 好开心呀♡</blockquote>
+       [https://www.bilibili.com/video/BV1U3z5BUETZ/](https://www.bilibili.com/video/BV1U3z5BUETZ/)
+
