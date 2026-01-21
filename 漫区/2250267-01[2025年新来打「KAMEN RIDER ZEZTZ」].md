@@ -183,3 +183,11 @@
 2022年，小鹰贤政加入怪事科
 2024年，小鹰贤政辞职，向赝作师订购名画，2025年1月后小鹰捐赠名画。故事开始近一年开始，暗箱事件发生频率增加
 
+
+*****
+
+####  黄泉川此方  
+##### 618#       发表于 2026-1-21 18:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉看了一集persona
+
