@@ -870,3 +870,13 @@ FSN游戏没打完，只看完了UBW+HF动画的路人
 嘴上说自己能打出肉身核武器的伤害，如果不是吹牛， ...</blockquote>
 这是特攻啦，就像F**场的天草用驱魔咏唱秒了吸血鬼大公
 
+
+*****
+
+####  大耳兽  
+##### 681#       发表于 2026-1-21 23:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69057146&amp;ptid=2086574" target="_blank">zakki 发表于 2026-1-20 13:41</a>
+你楼还有几个动画党啊，已经成设定党版聊了，不如说任何fsf的讨论区都会成为设定党版聊 ...</blockquote>
+这部感觉不了解设定很难看懂吧，当然不看懂只看战斗爽也能有很嗨的体验。
+
