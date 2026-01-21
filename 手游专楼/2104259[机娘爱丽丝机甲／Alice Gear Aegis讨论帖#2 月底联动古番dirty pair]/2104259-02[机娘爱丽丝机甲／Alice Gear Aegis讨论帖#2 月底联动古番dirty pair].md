@@ -580,3 +580,11 @@ B站关注的阿嘎UP在吐槽话题已经混进隔壁BA的爱丽丝了<img src=
 
 可惜染料人是联动角色，没饰品没衣服真可惜
 
+
+*****
+
+####  冰风血羽  
+##### 1865#       发表于 2026-1-22 01:51
+
+26号寿屋联动全返场何意味啊<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
