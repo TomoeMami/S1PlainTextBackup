@@ -1327,3 +1327,19 @@ BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes
 
 2026-1-21 17:25 上传
 
+
+*****
+
+####  yone0000  
+##### 41687#       发表于 2026-1-21 21:42
+
+我还以为出不了了，不过这么大的阵仗不出BD也太浪费了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yone0000  
+##### 41687#       发表于 2026-1-21 21:42
+
+我还以为出不了了，不过这么大的阵仗不出BD也太浪费了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
