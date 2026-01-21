@@ -880,3 +880,13 @@ FSN游戏没打完，只看完了UBW+HF动画的路人
 你楼还有几个动画党啊，已经成设定党版聊了，不如说任何fsf的讨论区都会成为设定党版聊 ...</blockquote>
 这部感觉不了解设定很难看懂吧，当然不看懂只看战斗爽也能有很嗨的体验。
 
+
+*****
+
+####  zakki  
+##### 682#       发表于 2026-1-21 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69065274&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-1-21 23:07</a>
+这部感觉不了解设定很难看懂吧，当然不看懂只看战斗爽也能有很嗨的体验。 ...</blockquote>
+没必要看那么懂，这才第三集，弹幕一堆打着科普的都剧透到哪去了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
