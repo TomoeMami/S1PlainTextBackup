@@ -2238,7 +2238,7 @@
     "lastedit": 1768990200,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2043629": {
     "totalreply": 793,
@@ -2265,7 +2265,7 @@
     "lastedit": 1768932660,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1274,
@@ -5091,7 +5091,7 @@
     "lastedit": 1768992300,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1025935": {
     "totalreply": 2152,
@@ -8916,7 +8916,7 @@
     "lastedit": 1768990440,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2188082": {
     "totalreply": 512,
@@ -11193,7 +11193,7 @@
     "lastedit": 1768991160,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2184766": {
     "totalreply": 796,
@@ -11931,7 +11931,7 @@
     "lastedit": 1768990320,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2260400": {
     "totalreply": 5976,
@@ -12066,7 +12066,7 @@
     "lastedit": 1768992360,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1860303": {
     "totalreply": 1534,
@@ -12336,7 +12336,7 @@
     "lastedit": 1768992360,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2266103": {
     "totalreply": 837,
@@ -12513,10 +12513,10 @@
     "totalreply": 9111,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1768993860,
+    "lastedit": 1768993380,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2218875": {
     "totalreply": 476,
@@ -12582,13 +12582,13 @@
     "update": false
   },
   "2269491": {
-    "totalreply": 7969,
+    "totalreply": 7971,
     "title": "[牢A与赞美诗]",
     "newtitle": "[牢A与赞美诗（转型牢A切片讨论楼）]",
-    "lastedit": 1768991160,
+    "lastedit": 1768994503,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2269514": {
     "totalreply": 444,
@@ -12894,7 +12894,7 @@
     "lastedit": 1768991760,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2271206": {
     "totalreply": 55,
@@ -13037,7 +13037,7 @@
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
     "lastedit": 1768733784,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2144693": {
@@ -13056,7 +13056,7 @@
     "lastedit": 1768990080,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2271431": {
     "totalreply": 75,
@@ -13218,7 +13218,7 @@
     "lastedit": 1768990320,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2252859": {
     "totalreply": 448,
@@ -15639,7 +15639,7 @@
     "lastedit": 1768992300,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2272357": {
     "totalreply": 45,
@@ -16223,7 +16223,7 @@
     "newtitle": "[观西贝有感：为何他们选择在微博上发公告？]",
     "lastedit": 1768734015,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2272651": {
@@ -16260,7 +16260,7 @@
     "lastedit": 1768992900,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2252068": {
     "totalreply": 74,
@@ -16674,7 +16674,7 @@
     "lastedit": 1768990320,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2272473": {
     "totalreply": 62,
@@ -16755,7 +16755,7 @@
     "lastedit": 1768991160,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2272717": {
     "totalreply": 54,
@@ -16836,7 +16836,7 @@
     "lastedit": 1768990200,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2272818": {
     "totalreply": 49,
@@ -16872,7 +16872,7 @@
     "lastedit": 1768990560,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2077933": {
     "totalreply": 313,
@@ -16953,7 +16953,7 @@
     "lastedit": 1768990500,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2272845": {
     "totalreply": 104,
@@ -17097,7 +17097,7 @@
     "lastedit": 1768990260,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2272894": {
     "totalreply": 59,
@@ -17151,7 +17151,7 @@
     "lastedit": 1768993740,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "1991292": {
     "totalreply": 230,
@@ -17241,6 +17241,6 @@
     "lastedit": 1768991520,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   }
 }
