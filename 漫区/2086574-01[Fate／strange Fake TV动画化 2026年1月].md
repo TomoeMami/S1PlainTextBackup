@@ -821,3 +821,15 @@ FSN游戏没打完，只看完了UBW+HF动画的路人
 
 别没犯罪就先做判官判人了，觉得别人路边科普就先干事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakki  
+##### 676#       发表于 2026-1-21 08:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69057753&amp;ptid=2086574" target="_blank">三月的老虎 发表于 2026-1-20 15:27</a>
+没看过fsf小说和漫画也没玩过fgo，但玩过月姬魔夜看过fate几个老动画的算动画党吗
+
+说实话型月的一大堆设 ...</blockquote>
+是的，fsf在装逼这里做的简直是型月动画最强，发挥了原作优势了，这还只是神父死徒，后面几个从者上来更能装<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
