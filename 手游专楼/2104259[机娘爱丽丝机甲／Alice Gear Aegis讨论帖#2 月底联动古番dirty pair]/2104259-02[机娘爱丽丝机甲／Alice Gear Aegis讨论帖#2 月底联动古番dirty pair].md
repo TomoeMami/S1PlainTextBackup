@@ -552,3 +552,13 @@ B站关注的阿嘎UP在吐槽话题已经混进隔壁BA的爱丽丝了<img src=
 
 原来这个还有群的嘛
 
+
+*****
+
+####  江戸前ルナ  
+##### 1862#         楼主| 发表于 2026-1-21 22:55
+
+8周年这套衣服不怎么行的感觉啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有那个新天井和NPC到底是怎么样的？有绑定？
+
