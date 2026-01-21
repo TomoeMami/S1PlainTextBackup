@@ -857,3 +857,16 @@ FSN游戏没打完，只看完了UBW+HF动画的路人
 
 美少女太多了 看不过来了
 
+
+*****
+
+####  wangandh  
+##### 680#       发表于 2026-1-21 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69054185&amp;ptid=2086574" target="_blank">亚历山大帝 发表于 2026-1-19 22:31</a>
+
+既然都提到麻婆了，就说说这次的神父到底什么水平？
+
+嘴上说自己能打出肉身核武器的伤害，如果不是吹牛， ...</blockquote>
+这是特攻啦，就像F**场的天草用驱魔咏唱秒了吸血鬼大公
+
