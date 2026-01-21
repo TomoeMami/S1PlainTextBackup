@@ -1435,3 +1435,34 @@ CG制作：GAZEN・J.C.STAFF CG部
 
 昨天看了新pv，老人物目前只有斯波繁夫（千叶繁）一个人露脸啊，感觉机动警察里，CV对角色最为真爱的只有他
 
+
+*****
+
+####  Utumi  
+##### 125#       发表于 2026-1-21 12:50
+
+<blockquote>RhmBWT_Wu 发表于 2026-1-21 10:02
+英格拉姆有老hg？我印象中是mg吧</blockquote>
+有的，出了9款，机型比MG多
+
+
+*****
+
+####  nice女武神  
+##### 126#       发表于 2026-1-21 12:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69061775&amp;ptid=2155067" target="_blank">RhmBWT_Wu 发表于 2026-1-21 10:02</a>
+
+英格拉姆有老hg？我印象中是mg吧</blockquote>
+上个世纪有1/60的老模  说明书背面是海报
+
+*****
+
+####  nice女武神  
+##### 127#       发表于 2026-1-21 12:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69060802&amp;ptid=2155067" target="_blank">diyihaoshitu 发表于 2026-1-21 00:44</a>
+
+我更关心万代会出新的hg品种模型吗？老款hg可动太差，价格还上天，完全没有性价比 ...</blockquote>
+我觉得 没法对机动条子的可动有梦想的  毕竟 这个垃圾套实在太影响可动了
+
