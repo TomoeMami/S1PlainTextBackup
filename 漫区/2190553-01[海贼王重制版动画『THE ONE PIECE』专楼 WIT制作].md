@@ -741,3 +741,15 @@ Jump Festa的现场来宾们！你们好——！！我是朝着光辉生命未�
 
 今天，山东省东营市利津县政府官号发布了宣传片，隆重宣传了本地企业华韩动漫参加了WIT霸权社#重制版海贼王动画#工作，画面出现了巴基海贼团卡巴吉的原画动画画面。此外，还有鬼灭之刃的猗窝座的制作画面。
 
+
+*****
+
+####  starfisher  
+##### 48#       发表于 2026-1-22 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69064360&amp;ptid=2190553" target="_blank">Piano-Forest 发表于 2026-1-21 17:19</a>
+https://m.weibo.cn/detail/5257543341311372
+
+今天，山东省东营市利津县政府官号发布了宣传片，隆重宣传了 ...</blockquote>
+没想到小小利津居然出了个动漫制作公司，以前只有水煎包出名。
+

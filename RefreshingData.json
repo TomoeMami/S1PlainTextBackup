@@ -2265,7 +2265,7 @@
     "lastedit": 1768932660,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1274,
@@ -12060,10 +12060,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 36926,
+    "totalreply": 36930,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1769013371,
+    "lastedit": 1769013974,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12510,10 +12510,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 9188,
+    "totalreply": 9189,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1769013080,
+    "lastedit": 1769013853,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12582,10 +12582,10 @@
     "update": false
   },
   "2269491": {
-    "totalreply": 8000,
+    "totalreply": 8006,
     "title": "[牢A与赞美诗]",
     "newtitle": "[牢A与赞美诗（转型牢A切片讨论楼）]",
-    "lastedit": 1769013274,
+    "lastedit": 1769013856,
     "category": "外野",
     "active": true,
     "update": false
@@ -13378,15 +13378,6 @@
     "title": "[美国“出于安全原因需要”格陵兰]",
     "newtitle": "[美国“出于安全原因需要”格陵兰]",
     "lastedit": 1768032020,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2271666": {
-    "totalreply": 65,
-    "title": "[小米新su7来了]",
-    "newtitle": "[小米新su7来了]",
-    "lastedit": 1767804133,
     "category": "外野",
     "active": false,
     "update": false
@@ -16461,10 +16452,10 @@
     "update": false
   },
   "2272694": {
-    "totalreply": 95,
+    "totalreply": 96,
     "title": "[让人感到别扭的游戏简称]",
     "newtitle": "[让人感到别扭的游戏简称]",
-    "lastedit": 1768981451,
+    "lastedit": 1769014158,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16731,10 +16722,10 @@
     "update": false
   },
   "2272725": {
-    "totalreply": 60,
+    "totalreply": 61,
     "title": "[（牙裂，要做根管吗）牙齿咬到硬的东西痛是咋回事，有救吗]",
     "newtitle": "[（牙裂，要做根管吗）牙齿咬到硬的东西痛是咋回事，有救吗]",
-    "lastedit": 1769012051,
+    "lastedit": 1769013856,
     "category": "外野",
     "active": true,
     "update": false
@@ -16920,10 +16911,10 @@
     "update": false
   },
   "2272854": {
-    "totalreply": 139,
+    "totalreply": 140,
     "title": "[索尼剥离电视业务]",
     "newtitle": "[索尼剥离电视业务]",
-    "lastedit": 1769013171,
+    "lastedit": 1769013856,
     "category": "外野",
     "active": true,
     "update": false
@@ -17019,10 +17010,10 @@
     "update": false
   },
   "2272829": {
-    "totalreply": 74,
+    "totalreply": 75,
     "title": "[我们后台一直监测，它坏之前确实是好的]",
     "newtitle": "[我们后台一直监测，它坏之前确实是好的]",
-    "lastedit": 1769013170,
+    "lastedit": 1769013618,
     "category": "外野",
     "active": true,
     "update": false
@@ -17082,10 +17073,10 @@
     "update": false
   },
   "2272894": {
-    "totalreply": 62,
+    "totalreply": 63,
     "title": "[怪不得现在城市里斑鸠越来越多了]",
     "newtitle": "[怪不得现在城市里斑鸠越来越多了]",
-    "lastedit": 1769013200,
+    "lastedit": 1769013618,
     "category": "外野",
     "active": true,
     "update": false
@@ -17109,10 +17100,10 @@
     "update": false
   },
   "2272887": {
-    "totalreply": 61,
+    "totalreply": 62,
     "title": "[为什么很多网络歌曲的歌词都写的那么“满”]",
     "newtitle": "[为什么很多网络歌曲的歌词都写的那么“满”]",
-    "lastedit": 1769013156,
+    "lastedit": 1769013614,
     "category": "外野",
     "active": true,
     "update": false
@@ -17208,10 +17199,10 @@
     "update": false
   },
   "2190553": {
-    "totalreply": 47,
+    "totalreply": 48,
     "title": "[海贼王重制版动画『THE ONE PIECE』专楼 WIT制作]",
     "newtitle": "[海贼王重制版动画『THE ONE PIECE』专楼 WIT制作]",
-    "lastedit": 1768987227,
+    "lastedit": 1769013972,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17253,10 +17244,10 @@
     "update": false
   },
   "2272939": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[中国人，吃得起吗？]",
     "newtitle": "[中国人，吃得起吗？]",
-    "lastedit": 1769013141,
+    "lastedit": 1769013618,
     "category": "外野",
     "active": true,
     "update": false
