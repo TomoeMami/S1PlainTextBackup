@@ -1412,3 +1412,11 @@ BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes
 
        [https://t.co/3NKf8g2PoQ](https://t.co/3NKf8g2PoQ)
 
+
+*****
+
+####  凉良  
+##### 41690#       发表于 2026-1-23 00:17
+
+推理游戏是啥 剧本杀么
+
