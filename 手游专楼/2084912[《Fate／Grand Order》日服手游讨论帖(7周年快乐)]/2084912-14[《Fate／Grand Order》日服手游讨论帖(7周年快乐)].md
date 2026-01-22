@@ -240,3 +240,15 @@
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  angelooo  
+##### 20425#       发表于 2026-1-22 09:55
+
+ 本帖最后由 angelooo 于 2026-1-22 09:56 编辑 
+<blockquote>DARKGRAY 发表于 2026-1-22 00:39
+但蛇女房也做辅助宝具才合理吧，还得狠扣自己血</blockquote>
+
+这个做在技能里也行吧，或者宝具在攻击之后带一点加buff的功能？
+
