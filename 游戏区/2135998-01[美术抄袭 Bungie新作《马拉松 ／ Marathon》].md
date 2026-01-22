@@ -1437,3 +1437,16 @@ Arc国区不是据说腾讯的大手么
 
 是素材抄袭还是整个美术概念抄袭啊，虽然叫不出名字但马拉松这个美术整体氛围应该不是近几年由某一个人独创的？
 
+
+*****
+
+####  Sopp  
+##### 131#       发表于 2026-1-22 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69067313&amp;ptid=2135998" target="_blank">樽——見 发表于 2026-1-22 11:35</a>
+
+是素材抄袭还是整个美术概念抄袭啊，虽然叫不出名字但马拉松这个美术整体氛围应该不是近几年由某一个人独创 ...</blockquote>
+素材
+
+美术风格是joseph cross和棒鸡团队的，打过命运2raid本深石地窖和dlc邪姬魅影就能找到很多近似的美术
+
