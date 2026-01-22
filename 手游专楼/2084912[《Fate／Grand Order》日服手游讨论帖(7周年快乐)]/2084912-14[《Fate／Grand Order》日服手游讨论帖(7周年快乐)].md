@@ -263,3 +263,19 @@
 这个做在技能里也行吧，或者宝具在攻击之后带一点加buff的功能？</blockquote>
 主要去年活动里她的核心就是这个嘛，做成宝具比技能会更有说服力。当然这次活动提些更重要的东西也不是不行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 20427#       发表于 2026-1-22 17:17
+
+我服了，拖了4天后才来澄清蛇女房是常驻4星<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/30/1128b987a6221cc494b294f5090c2044/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 20428#       发表于 2026-1-22 17:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更好了 反正没石头 等以后歪
+
