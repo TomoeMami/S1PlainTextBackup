@@ -890,3 +890,11 @@ FSN游戏没打完，只看完了UBW+HF动画的路人
 这部感觉不了解设定很难看懂吧，当然不看懂只看战斗爽也能有很嗨的体验。 ...</blockquote>
 没必要看那么懂，这才第三集，弹幕一堆打着科普的都剧透到哪去了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakki  
+##### 683#       发表于 2026-1-22 08:56
+
+像什么真假从者，明明动画里只说了会再召唤6个从者，一堆人非跳出来科普前面的是伪6骑，后面是真6骑，就搞得一堆人不明白前面从者为啥是假的。为了装逼而科普只会增加别人的理解成本<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
