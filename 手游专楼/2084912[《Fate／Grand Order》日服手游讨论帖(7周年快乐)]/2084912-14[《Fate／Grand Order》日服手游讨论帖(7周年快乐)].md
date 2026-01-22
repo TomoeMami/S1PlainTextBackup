@@ -252,3 +252,14 @@
 
 这个做在技能里也行吧，或者宝具在攻击之后带一点加buff的功能？
 
+
+*****
+
+####  DARKGRAY  
+##### 20426#       发表于 2026-1-22 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69066517&amp;ptid=2084912" target="_blank">angelooo 发表于 2026-1-22 09:55</a>
+
+这个做在技能里也行吧，或者宝具在攻击之后带一点加buff的功能？</blockquote>
+主要去年活动里她的核心就是这个嘛，做成宝具比技能会更有说服力。当然这次活动提些更重要的东西也不是不行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
