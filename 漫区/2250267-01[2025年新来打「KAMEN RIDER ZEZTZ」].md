@@ -222,3 +222,14 @@
 拍到这的时候是不是制作组终于收到那个摸嘴太油腻的反馈了 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那你可能之前一直没发现，不同颜色的变身姿势是 不一样的
 
+
+*****
+
+####  饭冢武也  
+##### 622#       发表于 2026-1-22 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69067198&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-1-22 11:21</a>
+
+那你可能之前一直没发现，不同颜色的变身姿势是 不一样的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
