@@ -309,3 +309,14 @@
 
 太牛逼了，想要满配的往死里抽吧，要是老头子很弱我就跑了等歪
 
+
+*****
+
+####  alucardcz  
+##### 20432#       发表于 2026-1-22 18:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69068951&amp;ptid=2084912" target="_blank">qixinno2 发表于 2026-1-22 17:40</a>
+
+不如狗萌新</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">我们萌新今年一个5星都没出过呢 妥妥你楼垫底
+
