@@ -645,3 +645,31 @@ B站关注的阿嘎UP在吐槽话题已经混进隔壁BA的爱丽丝了<img src=
 
 8周年还有点新的东西，看来还能继续玩。
 
+
+*****
+
+####  江戸前ルナ  
+##### 1873#         楼主| 发表于 2026-1-22 21:38
+
+因为阿嘎晚上难登陆于是早早挂着游戏玩RM游戏
+
+然后就听到大小姐的新抱怨语音了<img src="https://static.stage1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+貌似有至少3句
+
+<img src="https://img.stage1st.com/forum/202601/22/213847wqdnkopodoj6jfon.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20260122213838.png</strong> (455.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-22 21:38 上传
+
+<img src="https://img.stage1st.com/forum/202601/22/213848p49kjh7p9sxpjxxk.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20260122213832.png</strong> (434.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-22 21:38 上传
+
