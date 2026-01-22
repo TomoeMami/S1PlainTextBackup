@@ -1411,3 +1411,21 @@ Arc国区不是据说腾讯的大手么
 
 不免费不玩
 
+
+*****
+
+####  JOJO42  
+##### 129#       发表于 2026-1-22 09:37
+
+ 本帖最后由 JOJO42 于 2026-1-22 09:39 编辑 
+
+虽然不看好这游戏，不过它这典藏版里一些小玩意还挺有意思的
+
+<img src="https://img.stage1st.com/forum/202601/22/093900x8ac77add8b9cwjg.jpg" referrerpolicy="no-referrer">
+
+<strong>G_IXszgW0AA2yhr.jpg</strong> (472.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-22 09:39 上传
+
