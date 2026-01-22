@@ -910,3 +910,18 @@ FSN游戏没打完，只看完了UBW+HF动画的路人
 
 米国人这次用假圣杯战争为引子启动真圣杯战争，所以二世才说saber出现圣杯战争才刚刚开始
 
+
+*****
+
+####  zakki  
+##### 685#       发表于 2026-1-22 10:17
+
+ 本帖最后由 zakki 于 2026-1-22 10:19 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69066579&amp;ptid=2086574" target="_blank">シャル 发表于 2026-1-22 10:03</a>
+这不很好懂嘛。假圣杯战争就是民间山寨，召唤不出saber，数量只能召唤6骑以下
+
+米国人这次用假圣杯战争为 ...</blockquote>
+对看过fsf的好懂，伪从者全称是伪圣杯战争从者，但弹幕里一群张口闭口“伪6+真7”，“前面都是伪从者”的，让动画党看，只会觉得前面从者是假的，我已经看到一堆评论在疑惑这点了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以说动画里都没明确提的东西，一些人非要跳出来增加别人理解成本，不知道是想装老资历啊还是真想科普啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

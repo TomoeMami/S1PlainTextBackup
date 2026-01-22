@@ -588,3 +588,18 @@ B站关注的阿嘎UP在吐槽话题已经混进隔壁BA的爱丽丝了<img src=
 
 26号寿屋联动全返场何意味啊<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alialex  
+##### 1866#       发表于 2026-1-22 10:22
+
+大群还没复活，二群可以来：664179316
+
+*****
+
+####  alialex  
+##### 1867#       发表于 2026-1-22 10:22
+
+8周年衣服设计感确实远不如油漆人啊
+
