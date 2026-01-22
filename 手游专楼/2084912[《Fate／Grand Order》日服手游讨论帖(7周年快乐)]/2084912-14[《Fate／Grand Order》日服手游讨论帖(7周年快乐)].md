@@ -336,3 +336,14 @@
 
 2026-1-22 19:05 上传
 
+
+*****
+
+####  qixinno2  
+##### 20434#       发表于 2026-1-22 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69069406&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-22 18:36</a>
+
+我们萌新今年一个5星都没出过呢 妥妥你楼垫底</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">然后随便一个池子随便几发单抽出货是吧
+
