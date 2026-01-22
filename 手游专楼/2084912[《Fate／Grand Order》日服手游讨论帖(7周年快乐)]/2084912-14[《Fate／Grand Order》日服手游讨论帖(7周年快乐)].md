@@ -347,3 +347,11 @@
 我们萌新今年一个5星都没出过呢 妥妥你楼垫底</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">然后随便一个池子随便几发单抽出货是吧
 
+
+*****
+
+####  angelooo  
+##### 20435#       发表于 2026-1-22 20:38
+
+说起来蛇女房的建模也太拉了，立绘的丰满感基本是没有，然后那个站姿和侧面脸的角度看着太难受了……哦反正她是蛇，好像也没关系的样子
+
