@@ -241,3 +241,13 @@ You guys have a really long, historical relationship with Nintendo. Is there any
 
 Furushima: There's nothing to announce right now about other platforms that have not already been announced.
 
+
+*****
+
+####  lbzlxx  
+##### 143#       发表于 2026-1-23 12:54
+
+<blockquote>Dorohedoro 发表于 2026-1-23 12:23
+GF跟着任天堂屁股后面混了这么多年任天堂的那套游戏方法论还是学了不少的，不至于做出个毫无游戏性的东西 ...</blockquote>
+齿轮计划笑了
+
