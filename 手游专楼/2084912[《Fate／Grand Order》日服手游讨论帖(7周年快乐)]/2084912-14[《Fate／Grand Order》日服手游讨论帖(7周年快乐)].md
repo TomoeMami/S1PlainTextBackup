@@ -620,3 +620,21 @@ alucardcz 发表于 2026-1-22 18:36
 
 30抽礼装go了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 20459#       发表于 2026-1-23 20:42
+
+70连3五星1四星，五星四星李庄满破
+
+蛇妈3破好看啊
+
+<img src="https://img.stage1st.com/forum/202601/23/204216zcr4c3wyyw439xnx.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4665.png</strong> (604.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-23 20:42 上传
+
