@@ -397,3 +397,11 @@ GF跟着任天堂屁股后面混了这么多年任天堂的那套游戏方法论
 
 首发XGP，那没啥好说的了<img src="https://static.stage1st.com/image/smiley/carton2017/467.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我特么吹爆  
+##### 158#       发表于 2026-1-23 23:47
+
+这游戏有少终什么事……
+
