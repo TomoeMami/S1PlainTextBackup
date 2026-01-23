@@ -509,3 +509,63 @@
 
 2026-1-23 17:22 上传
 
+
+*****
+
+####  alucardcz  
+##### 20449#       发表于 2026-1-23 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69075951&amp;ptid=2084912" target="_blank">qixinno2 发表于 2026-1-23 17:22</a>
+
+我麻了 冠呆990纯正大保底 这破池子随手一发十连 真狗屎</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">欧 不羡慕
+
+*****
+
+####  qixinno2  
+##### 20450#       发表于 2026-1-23 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69076023&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-1-23 17:31</a>
+
+欧 不羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我早说了 越是这种花里胡哨没什么屁用的玩意我出货率越高 越强的我越抽不到
+
+*****
+
+####  khxooo  
+##### 20451#       发表于 2026-1-23 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69075951&amp;ptid=2084912" target="_blank">qixinno2 发表于 2026-1-23 17:22</a>
+
+我麻了 冠呆990纯正大保底 这破池子随手一发十连 真狗屎</blockquote>
+ 发表于 2026-1-22 19:23 | 只看该作者
+
+alucardcz 发表于 2026-1-22 18:36
+
+我们萌新今年一个5星都没出过呢 妥妥你楼垫底
+
+然后随便一个池子随便几发单抽出货是吧
+
+这下回旋镖了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 20452#       发表于 2026-1-23 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69076088&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-1-23 17:40</a>
+
+发表于 2026-1-22 19:23 | 只看该作者
+
+alucardcz 发表于 2026-1-22 18:36
+
+我们萌新今年一个5星都没出过 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">并不想要这种傻逼回旋镖 能不能给我换个娄希
+
+*****
+
+####  alucardcz  
+##### 20453#       发表于 2026-1-23 17:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">都说了 漏油就是欧皇  我们萌新才是最非得那个
+
