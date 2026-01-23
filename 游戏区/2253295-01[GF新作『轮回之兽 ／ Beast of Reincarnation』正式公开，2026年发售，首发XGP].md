@@ -220,3 +220,11 @@ good enough for XGP
 過酷な世界を描くにはリアルでなければならなかった──「一人と一匹」の旅路から逆算して制作された『Beast of Reincarnation』が示す「ゲームフリークらしさ」と「驚きと発見」の再定義【ディレクター古島康太氏インタビュー】
 [https://news.denfaminicogamer.jp/interview/260123b](https://news.denfaminicogamer.jp/interview/260123b)
 
+
+*****
+
+####  Dorohedoro  
+##### 141#       发表于 2026-1-23 12:23
+
+GF跟着任天堂屁股后面混了这么多年任天堂的那套游戏方法论还是学了不少的，不至于做出个毫无游戏性的东西
+
