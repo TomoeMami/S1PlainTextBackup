@@ -208,3 +208,15 @@ good enough for XGP
 
 不知道为啥这片子看得完全没有购买欲<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 140#         楼主| 发表于 2026-1-23 11:35
+
+【ゲーフリ新作】『ビースト・オブ・リンカネーション』ゲームフリーク・ディレクター古島康太氏インタビュー。世界観、ゲーム性、バトルシステム、プレイ時間、開発体制など気になることを全部訊いた。
+[https://www.famitsu.com/article/202601/63919](https://www.famitsu.com/article/202601/63919)
+
+過酷な世界を描くにはリアルでなければならなかった──「一人と一匹」の旅路から逆算して制作された『Beast of Reincarnation』が示す「ゲームフリークらしさ」と「驚きと発見」の再定義【ディレクター古島康太氏インタビュー】
+[https://news.denfaminicogamer.jp/interview/260123b](https://news.denfaminicogamer.jp/interview/260123b)
+
