@@ -437,3 +437,75 @@
 
 大奖是蛇女房
 
+
+*****
+
+####  Jamaisvu  
+##### 20445#       发表于 2026-1-23 17:17
+
+搬一下新角色卡面～
+
+无人在意二人组只有两张卡面：
+
+<img src="https://img.stage1st.com/forum/202601/23/171819t2bet4eqxjxe3qxq.jpg" referrerpolicy="no-referrer">
+
+<strong>E2785B175068E3D69600C0B9722AB597.jpg</strong> (464.66 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-1-23 17:18 上传
+
+<img src="https://img.stage1st.com/forum/202601/23/171630z2dwmb3w0562a30k.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260123_171605.jpg</strong> (190.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-1-23 17:16 上传
+
+卡池大奖蛇女房阿巳小姐，宝具模组果然是三破造型：
+
+<img src="https://img.stage1st.com/forum/202601/23/171705y1jl2l1geibi0b0a.jpg" referrerpolicy="no-referrer">
+
+<strong>C603FA92A685B5B8857121BD01ADBE72.jpg</strong> (359.76 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-1-23 17:17 上传
+
+眼睛越来越少，突破一次少一只，三破直接瞎了（大误）
+
+*****
+
+####  Jamaisvu  
+##### 20446#       发表于 2026-1-23 17:20
+
+不对啊，蛇女房和黑姬一样是常驻角色，这这这...还有下池的必要么...
+
+（黑姬我当初因为太好看以为是限定抽了个五宝，结果后面经常溢出...）
+
+*****
+
+####  壳壳牛  
+##### 20447#       发表于 2026-1-23 17:21
+
+新礼装是换人服<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 20448#       发表于 2026-1-23 17:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">我麻了
+
+<img src="https://img.stage1st.com/forum/202601/23/172237d9uy8f5vyyuz9zf0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (352.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-23 17:22 上传
+
