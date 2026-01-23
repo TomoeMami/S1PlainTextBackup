@@ -131,3 +131,39 @@ good enough for XGP
 
 女主很漂亮，音乐也很尼尔味，游戏的市场地位一目了然了，当低配版尼尔玩也不错，SE这傻luan公司9年了还不出尼尔3，市场都要被其他厂占光了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 132#       发表于 2026-1-23 10:11
+
+<img src="https://img.stage1st.com/forum/202601/23/101126n7ann772nknn25gz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-23 10:11 上传
+
+*****
+
+####  卢迪克  
+##### 133#       发表于 2026-1-23 10:12
+
+[https://www.famitsu.com/article/202601/63919](https://www.famitsu.com/article/202601/63919)
+
+<img src="https://img.stage1st.com/forum/202601/23/101159fbvyguifygwut6f0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (72.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-23 10:11 上传
+
+*****
+
+####  9Suns  
+##### 134#       发表于 2026-1-23 10:14
+
+下一场直面会上能看到么
+
