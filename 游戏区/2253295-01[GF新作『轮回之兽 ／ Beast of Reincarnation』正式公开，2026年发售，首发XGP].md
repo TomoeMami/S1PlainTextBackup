@@ -90,3 +90,26 @@ GF从做宝之后就杉森建搞的那个GBA游戏还算不错，尤其齿轮计
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">可以玩一下，优化估计是指望不上了
 
+
+*****
+
+####  herryk159  
+##### 127#       发表于 2026-1-23 09:39
+
+good enough for XGP
+
+
+*****
+
+####  milky658  
+##### 128#       发表于 2026-1-23 09:43
+
+敬请见证，游戏界幻神——不缺工期游戏富力克<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lbzlxx  
+##### 129#       发表于 2026-1-23 09:47
+
+真有人期待gf这新作吗，它家技术你们又不是不知道，动作游戏开发经验零，代表作就是宝可梦二段踢，完全没有相关技术和人才积累能做好就有鬼了
+
