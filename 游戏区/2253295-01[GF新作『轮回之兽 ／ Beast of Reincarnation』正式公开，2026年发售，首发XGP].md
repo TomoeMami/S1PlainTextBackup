@@ -358,3 +358,14 @@ GF跟着任天堂屁股后面混了这么多年任天堂的那套游戏方法论
 
 主角没有记忆和感情，又有超能力，多半是改造人。
 
+
+*****
+
+####  ra2163  
+##### 154#       发表于 2026-1-23 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69075662&amp;ptid=2253295" target="_blank">医生狼多 发表于 2026-1-23 16:45</a>
+
+【《轮回之兽》总监采访信息汇总：本作为单机游戏，不含任何线上元素】Game Freak今日公布了动作角色扮演游 ...</blockquote>
+外包方便算是UE一大优势，33也是大量外包，GF美术还是不错的，把流程跑通，未来大有可为
+
