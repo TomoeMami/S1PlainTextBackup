@@ -739,3 +739,14 @@ FY15 0TWP QG13 1NTY
 
 8周年服，紧身衣，颜色搭配挺多选择，跟各种装备都方便搭倒是。
 
+
+*****
+
+####  江戸前ルナ  
+##### 1881#         楼主| 发表于 2026-1-23 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69076078&amp;ptid=2104259" target="_blank">madcow 发表于 2026-1-23 17:39</a>
+
+怎么感觉今年周年福利比去年少了，正常怎么也还有个AN自选吧，是因为收成比去年好吗 ...</blockquote>
+AN自选有吧，还没开而已
+
