@@ -228,3 +228,16 @@ good enough for XGP
 
 GF跟着任天堂屁股后面混了这么多年任天堂的那套游戏方法论还是学了不少的，不至于做出个毫无游戏性的东西
 
+
+*****
+
+####  卢迪克  
+##### 142#       发表于 2026-1-23 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69072945&amp;ptid=2253295" target="_blank">9Suns 发表于 2026-1-23 10:14</a>
+
+下一场直面会上能看到么</blockquote>
+You guys have a really long, historical relationship with Nintendo. Is there any chance we'll see this game come to Nintendo Switch 2 eventually?
+
+Furushima: There's nothing to announce right now about other platforms that have not already been announced.
+
