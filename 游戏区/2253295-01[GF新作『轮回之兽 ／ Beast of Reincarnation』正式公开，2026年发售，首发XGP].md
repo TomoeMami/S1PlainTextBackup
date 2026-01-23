@@ -40,3 +40,37 @@ GF从做宝之后就杉森建搞的那个GBA游戏还算不错，尤其齿轮计
 
 唯一的悬念是剧情是不是还要包寿司
 
+
+*****
+
+####  卢迪克  
+##### 122#       发表于 2026-1-23 09:00
+
+六年
+
+<img src="https://img.stage1st.com/forum/202601/23/085950i4v88z0wu9kxv78k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260123_085843.jpg</strong> (112.15 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-1-23 08:59 上传
+
+
+*****
+
+####  superlink  
+##### 123#       发表于 2026-1-23 09:04
+
+这画面不是挺好的嘛
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  farAway  
+##### 124#       发表于 2026-1-23 09:04
+
+现在能玩得起首发XGP的人也不多了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
