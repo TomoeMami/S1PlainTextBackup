@@ -729,3 +729,13 @@ FY15 0TWP QG13 1NTY
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么感觉今年周年福利比去年少了，正常怎么也还有个AN自选吧，是因为收成比去年好吗
 
+
+*****
+
+####  regular  
+##### 1880#       发表于 2026-1-23 18:04
+
+新福利看来都去充值网站了。
+
+8周年服，紧身衣，颜色搭配挺多选择，跟各种装备都方便搭倒是。
+
