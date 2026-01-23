@@ -44,3 +44,18 @@ pvp的飞鸟不会开mp<img src="https://static.stage1st.com/image/smiley/face20
 
 配队是真难啊
 
+
+*****
+
+####  arthes  
+##### 3552#       发表于 2026-1-23 21:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">拉克丝真是保值，一击必杀队已经混了差不多一年了
+
+*****
+
+####  ティグル  
+##### 3553#       发表于 2026-1-23 21:40
+
+不过这一圈活动下来可以看到ssp给得相当扣，也不知道以后会不会加量
+
