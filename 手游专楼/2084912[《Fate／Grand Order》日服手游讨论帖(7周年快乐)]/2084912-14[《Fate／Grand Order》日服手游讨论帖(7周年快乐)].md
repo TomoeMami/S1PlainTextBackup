@@ -403,3 +403,37 @@
 光炮带辅助效果<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/30/5025490e408efbdd36f82c8ff1884e5b/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 20441#       发表于 2026-1-23 13:36
+
+强度不保了啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 20442#       发表于 2026-1-23 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69074426&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2026-1-23 13:36</a>
+
+强度不保了啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">紫发尺子老太婆：嘻嘻
+
+*****
+
+####  alucardcz  
+##### 20443#       发表于 2026-1-23 17:07
+
+绿卡光炮 有点辅助 但不是拐
+
+可以完美跳过 好！
+
+*****
+
+####  khxooo  
+##### 20444#       发表于 2026-1-23 17:12
+
+大奖是蛇女房
+
