@@ -656,3 +656,13 @@ alucardcz 发表于 2026-1-22 18:36
 蛇女房这退场宝具……所以去年最后让蛇王那个屑枕膝实际是在开宝具是吧</blockquote>
 蛇妈这宝具，按传说2次以后应该是瞎眼状态，咋即死呢？
 
+
+*****
+
+####  sesuna  
+##### 20462#       发表于 2026-1-24 00:49
+
+花神绿卡爆伤100？！
+
+龙娘开启活动英灵膨胀期<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
