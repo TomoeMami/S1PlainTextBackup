@@ -251,3 +251,16 @@ Furushima: There's nothing to announce right now about other platforms that have
 GF跟着任天堂屁股后面混了这么多年任天堂的那套游戏方法论还是学了不少的，不至于做出个毫无游戏性的东西 ...</blockquote>
 齿轮计划笑了
 
+
+*****
+
+####  蓝雉  
+##### 144#       发表于 2026-1-23 13:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69073491&amp;ptid=2253295" target="_blank">病態極端 发表于 2026-1-23 11:17</a>
+
+尼爾+狂野之心感覺挺好。
+
+不過演示里GF這個自研引擎觀感不如尼爾或Katana引擎啊。畫面整體像是曝光不足。毛 ...</blockquote>
+这个是UE5啊
+
