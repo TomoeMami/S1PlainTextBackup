@@ -1420,3 +1420,19 @@ BanG Dream! Project 为大家带来的全新手机游戏「BanG Dream! Our Notes
 
 推理游戏是啥 剧本杀么
 
+
+*****
+
+####  哈曼的YY  
+##### 41691#       发表于 2026-1-23 16:45
+
+这样的桌游
+
+<img src="https://img.stage1st.com/forum/202601/23/164535jlthd06l45f6017o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-01-23-13-40-35-61_3aea4af51f236e4932235f**7d1643.jpg</strong> (431.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-23 16:45 上传
+
