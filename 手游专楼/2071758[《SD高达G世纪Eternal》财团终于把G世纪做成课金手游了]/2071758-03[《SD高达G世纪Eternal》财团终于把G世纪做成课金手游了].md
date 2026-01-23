@@ -22,3 +22,15 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">哪怕对面上两个双盾也是直接砸穿
 
+
+*****
+
+####  一个陆仁贾  
+##### 3550#       发表于 2026-1-23 19:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69076054&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-1-23 17:35</a>
+哪怕对面上两个双盾也是直接砸穿</blockquote>
+pvp的飞鸟不会开mp<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
