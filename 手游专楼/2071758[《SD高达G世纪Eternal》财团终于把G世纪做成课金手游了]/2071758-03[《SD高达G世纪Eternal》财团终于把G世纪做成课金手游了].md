@@ -34,3 +34,13 @@ pvp的飞鸟不会开mp<img src="https://static.stage1st.com/image/smiley/face20
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ティグル  
+##### 3551#       发表于 2026-1-23 20:00
+
+没抽奥托，只能用螃蟹头凑活了
+
+配队是真难啊
+
