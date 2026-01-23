@@ -264,3 +264,13 @@ GF跟着任天堂屁股后面混了这么多年任天堂的那套游戏方法论
 不過演示里GF這個自研引擎觀感不如尼爾或Katana引擎啊。畫面整體像是曝光不足。毛 ...</blockquote>
 这个是UE5啊
 
+
+*****
+
+####  虚无连斩  
+##### 145#       发表于 2026-1-23 14:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我想看UE5来个喜闻乐见的优化爆炸
+
+然后就是都怪英伟达造出5090这种电子垃圾拖累了GF
+
