@@ -646,3 +646,13 @@ alucardcz 发表于 2026-1-22 18:36
 
 1发10抽直接1个蛇女房目的达成<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 20461#       发表于 2026-1-23 21:27
+
+<blockquote>angelooo 发表于 2026-1-23 18:39
+蛇女房这退场宝具……所以去年最后让蛇王那个屑枕膝实际是在开宝具是吧</blockquote>
+蛇妈这宝具，按传说2次以后应该是瞎眼状态，咋即死呢？
+
