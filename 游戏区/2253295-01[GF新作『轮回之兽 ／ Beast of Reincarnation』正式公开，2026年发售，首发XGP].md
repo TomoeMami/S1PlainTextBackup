@@ -282,3 +282,14 @@ GF跟着任天堂屁股后面混了这么多年任天堂的那套游戏方法论
 
 一人一狗，newa
 
+
+*****
+
+####  karastar  
+##### 147#       发表于 2026-1-23 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69074000&amp;ptid=2253295" target="_blank">Dorohedoro 发表于 2026-1-23 12:23</a>
+
+GF跟着任天堂屁股后面混了这么多年任天堂的那套游戏方法论还是学了不少的，不至于做出个毫无游戏性的东西 ...</blockquote>
+别多想，就是新人练手的东西
+
