@@ -389,3 +389,11 @@ GF跟着任天堂屁股后面混了这么多年任天堂的那套游戏方法论
 【少女终末旅行丨《轮回之兽》开发者深入介绍宣传片】 
 [https://b23.tv/5Qebzhz](https://b23.tv/5Qebzhz)
 
+
+*****
+
+####  Sorastlos  
+##### 157#       发表于 2026-1-23 23:27
+
+首发XGP，那没啥好说的了<img src="https://static.stage1st.com/image/smiley/carton2017/467.png" referrerpolicy="no-referrer">
+
