@@ -33,3 +33,18 @@
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  艾特娜  
+##### 1751#       发表于 2026-1-24 15:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69080822&amp;ptid=2171972" target="_blank">poipanchao 发表于 2026-1-24 14:41</a>
+
+这技术我啵真的很需要啊，打比赛活动的时候很有用
+
+不过vspo连棚子都没，没啥希望 ...</blockquote>
+横滨的场馆是租的，那这套设备肯定是可移动的。
+
+就看设备有没有得租了。
+
