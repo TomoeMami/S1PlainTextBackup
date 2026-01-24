@@ -59,3 +59,11 @@ pvp的飞鸟不会开mp<img src="https://static.stage1st.com/image/smiley/face20
 
 不过这一圈活动下来可以看到ssp给得相当扣，也不知道以后会不会加量
 
+
+*****
+
+####  ドロロ  
+##### 3554#       发表于 2026-1-24 14:17
+
+为了对付三星神，我只能上四个盾机给师匠打防反了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
