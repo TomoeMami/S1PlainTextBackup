@@ -842,3 +842,13 @@ UENUTZJPRF又是一张票
 
 反正我是没奶妈就不会玩，特别是高难度宙域DMAX，要是没奶妈我直接弃打。大回血+减伤不知道增加多少次试错机会。高难度时间长敌人多本来就不缺SP，再加上现在一堆+SP的技能真的好用。
 
+
+*****
+
+####  冰风血羽  
+##### 1890#       发表于 2026-1-25 00:26
+
+我的高难全靠大魔王一拖二带过去的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
