@@ -563,3 +563,13 @@ Game Freak在过去几年因其部分3D开放世界游戏的性能和画面表�
 
 连着都要曲曲？
 
+
+*****
+
+####  cot90  
+##### 167#       发表于 2026-1-24 20:45
+
+经过la和za之后应该是对gf动作游戏方面的设计没什么期望的，到时候就能看出到底是因为欠打磨还是因为水平就这样，当然我倾向于就这水平<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+就看妹子们和大狗的表现了，没xgp，价格别太高的话考虑考虑
+
