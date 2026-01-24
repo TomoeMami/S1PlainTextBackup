@@ -958,3 +958,12 @@ FSN游戏没打完，只看完了UBW+HF动画的路人
 
 —— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  usodakedo  
+##### 689#       发表于 2026-1-25 03:11
+
+不要太在意战力设定，这玩样就是随着时代水涨船高而已，无限打补丁加作品切割加创作者自己都不知道是不是随便口嗨的设定是你月的一环，像旧学姐和月r学姐的战力根本不能比，蘑菇野爹闪比fsn闪强百倍不止，如果麻婆是现在新出的人物估计表现力也会很夸张<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+反正图一乐看这群人打打打就行了
+
