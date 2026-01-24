@@ -150,3 +150,20 @@ Switch 2位居榜首，PS5位居第二
 
 来源：Circana（前NPD)
 
+
+*****
+
+####  黑猫软  
+##### 468#       发表于 2026-1-24 23:00
+
+gt7下周更新 小米应该要来了
+
+<img src="https://img.stage1st.com/forum/202601/24/230006tqedetqd88l1vvib.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260124_225937.jpg</strong> (252.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-1-24 23:00 上传
+
