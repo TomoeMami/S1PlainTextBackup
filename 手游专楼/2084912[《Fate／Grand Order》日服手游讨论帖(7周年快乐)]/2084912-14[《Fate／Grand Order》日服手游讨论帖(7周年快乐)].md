@@ -666,3 +666,43 @@ alucardcz 发表于 2026-1-22 18:36
 
 龙娘开启活动英灵膨胀期<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 20463#       发表于 2026-1-23 21:19
+
+1发10抽直接1个蛇女房目的达成<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 20464#       发表于 2026-1-23 21:27
+
+ 本帖最后由 シャル 于 2026-1-23 23:08 编辑 
+<blockquote>angelooo 发表于 2026-1-23 18:39
+蛇女房这退场宝具……所以去年最后让蛇王那个屑枕膝实际是在开宝具是吧</blockquote>
+蛇妈这宝具，按传说2次以后应该是瞎眼状态，咋即死呢？
+
+不是限定就给的debuff<img src="https://static.stage1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sesuna  
+##### 20465#       发表于 2026-1-24 00:49
+
+花神绿卡爆伤100？！
+
+龙娘开启活动英灵膨胀期<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20466#       发表于 2026-1-24 18:24
+
+ 本帖最后由 岸浪白野 于 2026-1-24 18:29 编辑 
+
+绿卡一出生就是原罪，3破所长+水提妈都扶不起绿卡，你绿卡没锁卡还全队加30暴伤再加100绿爆也就那样啊，现在算是合理设计免费赠送强度有趣点尽量不落后现在环境还差不多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+再来前年送的圣诞阿比那种才是异端吧
+
