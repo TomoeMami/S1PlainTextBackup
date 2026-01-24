@@ -812,3 +812,13 @@ UENUTZJPRF又是一张票
 就我经验来说fa舞和an米人这种兼职奶比专职奶要好用不少 那几个纯奶的战斗力都挺一言难尽的 实战的sp回转效率折算下来回复力甚至会被反超
 至于奶这玩意有没有用就见仁见智了 毕竟现在玩家多了一堆强化系统数值上天差这一口血翻车的局好久没见过了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hl7424994  
+##### 1887#       发表于 2026-1-24 20:16
+
+专职奶地位比较尴尬。要么一般模式根本不需要上奶，要么高难牺牲一个攻击位多换那么一两次的容错，显然不太划算
+
+唯一优势就是协力混分能打出匪夷所思的分数，但是分数本身没有意义<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
