@@ -60,3 +60,14 @@ Sport模式跑了49场比赛，今天原本以为跑完厂商杯就可以跳白�
 
 第一次白金游戏了属于是<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  洛克萨斯  
+##### 1982#       发表于 2026-1-25 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69083143&amp;ptid=2027972" target="_blank">Totokei 发表于 2026-1-25 00:17</a>
+
+Sport模式跑了49场比赛，今天原本以为跑完厂商杯就可以跳白金，结果没跳，搜了下说游戏里表面的计 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太牛逼了，你用盘子开的么
+
