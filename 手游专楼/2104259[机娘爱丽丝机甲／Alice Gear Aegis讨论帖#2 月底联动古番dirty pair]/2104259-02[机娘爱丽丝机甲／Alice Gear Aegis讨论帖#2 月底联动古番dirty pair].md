@@ -801,3 +801,14 @@ UENUTZJPRF又是一张票
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  wilkyway  
+##### 1886#       发表于 2026-1-24 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69080523&amp;ptid=2104259" target="_blank">イクイノックス 发表于 2026-1-24 13:28</a>
+好的，还有治疗有必要专门练或者必得去拿吗，我治疗就火练了一个文岛，虽然也不怎么主控就是了 ...</blockquote>
+就我经验来说fa舞和an米人这种兼职奶比专职奶要好用不少 那几个纯奶的战斗力都挺一言难尽的 实战的sp回转效率折算下来回复力甚至会被反超
+至于奶这玩意有没有用就见仁见智了 毕竟现在玩家多了一堆强化系统数值上天差这一口血翻车的局好久没见过了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
