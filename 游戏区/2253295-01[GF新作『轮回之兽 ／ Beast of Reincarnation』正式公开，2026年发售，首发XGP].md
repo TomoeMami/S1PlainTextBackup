@@ -524,3 +524,22 @@ Game Freak在过去几年因其部分3D开放世界游戏的性能和画面表�
 
 打到敌人身上都没啥反馈的，感觉在砍空气...
 
+
+*****
+
+####  卢迪克  
+##### 164#       发表于 2026-1-24 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69075026&amp;ptid=2253295" target="_blank">karastar 发表于 2026-1-23 15:01</a>
+
+别多想，就是新人练手的东西</blockquote>
+导演是开发部的副部长不算新人了
+
+<img src="https://img.stage1st.com/forum/202601/24/174348l57l3q9mq3nltgjg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (723.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-24 17:43 上传
+
