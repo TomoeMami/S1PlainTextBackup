@@ -1240,3 +1240,24 @@ fate的动画动画除了fe我都看完了，甚至fsn那个剧场版我都去�
 金皮卡旺财不管用又不想拔EA，是准备上去玩换刀流吗</blockquote>
 不用ea是对的
 
+
+*****
+
+####  pokemon最爱  
+##### 719#       发表于 2026-1-26 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69087331&amp;ptid=2086574" target="_blank">稀勢のささ 发表于 2026-1-25 23:37</a>
+
+金皮卡旺财不管用又不想拔EA，是准备上去玩换刀流吗</blockquote>
+真拔EA就死了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斯卡哈  
+##### 720#       发表于 2026-1-26 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69087331&amp;ptid=2086574" target="_blank">稀勢のささ 发表于 2026-1-25 23:37</a>
+
+金皮卡旺财不管用又不想拔EA，是准备上去玩换刀流吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这里仇海激金皮卡用EA的意图太明显了，真拔EA了仇海就要用天风了
+

@@ -354,3 +354,14 @@ A Part要给Boss自问自答说明理由，解开封印，变身，收拾掉Boss
 看预告片银兽在粉色怀里发光下意识以为就是穿越镜头了</blockquote>
 是你认错颜色了，发光那里是穿越但是那个角色不是粉Q是紫主<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1587#       发表于 2026-1-26 00:04
+
+很标准的结局回，但看得很没劲<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+今年的剧情完全一团糟，跟主题一点都不搭只剩下带货。一开始还挺喜欢kyunkyun可是后来就变成悸动复读人<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
