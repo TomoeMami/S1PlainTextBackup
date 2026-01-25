@@ -983,3 +983,27 @@ FSN游戏没打完，只看完了UBW+HF动画的路人
 
 不玩手游，和月球脱节了。这顶着张saber脸，声音是咕哒子的真rider是有啥特殊伏笔吗？
 
+
+*****
+
+####  pokemon最爱  
+##### 692#       发表于 2026-1-25 10:05
+
+仇海那句嘲讽只有没有理智的野兽才会被王财打死的台词被删了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  死宅真恶心  
+##### 693#       发表于 2026-1-25 10:06
+
+fgo啥时候联动抽卡啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cowgp01  
+##### 694#       发表于 2026-1-25 10:07
+
+<blockquote>根正苗红 发表于 2026-1-25 09:49
+不玩手游，和月球脱节了。这顶着张saber脸，声音是咕哒子的真rider是有啥特殊伏笔吗？ ...</blockquote>
+伏笔是发型是认识呆毛的人梳的
+
