@@ -1093,3 +1093,11 @@ fgo啥时候联动抽卡啊<img src="https://static.stage1st.com/image/smiley/fa
 希波酱加戏内部爱太狠了，没挂彩+一枪捅爆阿喀琉斯的世界盾原型</blockquote>
 还有女武神的神铁盾。
 
+
+*****
+
+####  バーチャルS1er  
+##### 704#       发表于 2026-1-25 13:38
+
+是不是都不舍得当垫子啊，目前的感觉故事架构比较微妙，没有FN的主角冒险升级感和潜在性、也没有FZ的宿命感、戏剧感，这部感觉更像是舞台秀<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
