@@ -1101,3 +1101,24 @@ fgo啥时候联动抽卡啊<img src="https://static.stage1st.com/image/smiley/fa
 
 是不是都不舍得当垫子啊，目前的感觉故事架构比较微妙，没有FN的主角冒险升级感和潜在性、也没有FZ的宿命感、戏剧感，这部感觉更像是舞台秀<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mffx  
+##### 705#       发表于 2026-1-25 14:20
+
+<blockquote>バーチャルS1er 发表于 2026-1-25 13:38
+是不是都不舍得当垫子啊，目前的感觉故事架构比较微妙，没有FN的主角冒险升级感和潜在性、也没有FZ的宿命感 ...</blockquote>
+你的感觉是正确的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+真正意义上的有角色退场是第八卷<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  usodakedo  
+##### 706#       发表于 2026-1-25 14:22
+
+只能说成田的剧本是这样的，大家看上去b格都贼高，场面很激烈，但最后真正退场的可能就那么一两个
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
