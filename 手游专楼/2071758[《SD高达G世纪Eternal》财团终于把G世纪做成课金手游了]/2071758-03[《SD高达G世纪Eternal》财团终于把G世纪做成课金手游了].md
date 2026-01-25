@@ -67,3 +67,15 @@ pvp的飞鸟不会开mp<img src="https://static.stage1st.com/image/smiley/face20
 
 为了对付三星神，我只能上四个盾机给师匠打防反了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 3555#       发表于 2026-1-26 00:25
+
+<img src="https://p.sda1.dev/30/73cc46d4db489c2860add1a0faeb9261/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/57fe89be5dffe3447b22aa53c861fd7f/image.jpg" referrerpolicy="no-referrer">
+抄了个歌姬队打完20万了，还挺好玩的
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
