@@ -1186,3 +1186,21 @@ fgo啥时候联动抽卡啊<img src="https://static.stage1st.com/image/smiley/fa
 漫画都那样如实画剧情的场面你动画还要加什么隆重的戏
 提前在那造势的不就是除了云的就是自我期待现在在自我破防开始批判动画做他哪点做的不对的角色厨<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  屈江鸟  
+##### 713#       发表于 2026-1-25 16:09
+
+这寸止味你就品吧，后面全是
+
+*****
+
+####  zakki  
+##### 714#       发表于 2026-1-25 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69085459&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-1-25 15:44</a>
+漫画都那样如实画剧情的场面你动画还要加什么隆重的戏
+提前在那造势的不就是除了云的就是自我期待现在在自 ...</blockquote>
+一堆人是脑补会有加戏，但最后没有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
