@@ -1039,3 +1039,13 @@ fgo啥时候联动抽卡啊<img src="https://static.stage1st.com/image/smiley/fa
 
 至于CV只能说是内部爱了，你看动画这集大加强
 
+
+*****
+
+####  仟音一心  
+##### 698#       发表于 2026-1-25 11:48
+
+这话看完后：
+<img src="https://p.sda1.dev/30/a39e499ac67490ab0e305fb105744ac4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/ae59624d88dedb42fc0c43668975b3e7/image.jpg" referrerpolicy="no-referrer">
+
