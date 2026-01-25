@@ -1175,3 +1175,14 @@ fgo啥时候联动抽卡啊<img src="https://static.stage1st.com/image/smiley/fa
 有很多话已经前面的楼都说过一遍了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 说了爆米花真当骗你吗<img src="https://p.sda1.dev/30/9107a740173988e978f8cd2cca6fdeb4/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 712#       发表于 2026-1-25 15:44
+
+ 本帖最后由 岸浪白野 于 2026-1-25 15:47 编辑 
+
+漫画都那样如实画剧情的场面你动画还要加什么隆重的戏
+提前在那造势的不就是除了云的就是自我期待现在在自我破防开始批判动画做他哪点做的不对的角色厨<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
