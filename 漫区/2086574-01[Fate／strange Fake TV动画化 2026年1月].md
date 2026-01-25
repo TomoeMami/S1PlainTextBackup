@@ -1017,3 +1017,13 @@ fgo啥时候联动抽卡啊<img src="https://static.stage1st.com/image/smiley/fa
 不玩手游，和月球脱节了。这顶着张saber脸，声音是咕哒子的真rider是有啥特殊伏笔吗？ ...</blockquote>
 英灵本身一般，但是御主能让很多人大跌眼镜。
 
+
+*****
+
+####  仟音一心  
+##### 696#       发表于 2026-1-25 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69066172&amp;ptid=2086574" target="_blank">zakki 发表于 2026-1-22 08:56</a>
+像什么真假从者，明明动画里只说了会再召唤6个从者，一堆人非跳出来科普前面的是伪6骑，后面是真6骑，就搞 ...</blockquote>
+“伪”和“真”只是编制不同，英灵的存在和实力都是实打实的。
+
