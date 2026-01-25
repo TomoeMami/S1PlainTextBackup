@@ -80,3 +80,22 @@
 
 所以一般路过名侦探小姐您是怎么在一年后才会穿越到28年前和搭档一起变身的情况下以一个人变身状态跑过来偶Q这边的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  李霞  
+##### 1562#       发表于 2026-1-25 11:33
+
+看乐了 <img src="https://static.stage1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/30/83cdec17d8d6dfc4247a51baf405bcdf/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cmyk1234  
+##### 1563#       发表于 2026-1-25 11:34
+
+加藤阳一2025-2026接的主笔太多了，显得对偶q很不负责任。
+30分钟动画：魔神创造传（半年动画）、偶像光之美少女（全年动画）、迪斯尼扭曲仙境（web8集动画）、勇者之屑（季度动画）。
+泡面动画：正能量企鹅、JOCHUM动画、欺骗侦探-番茄人（うそ探偵トマント）。
+
