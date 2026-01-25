@@ -82,3 +82,16 @@ Sport模式跑了49场比赛，今天原本以为跑完厂商杯就可以跳白�
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国产盘子用不了，只能手柄了
 自适应扳机在循迹和油门控制上还是很牛的
 
+
+*****
+
+####  洛克萨斯  
+##### 1984#       发表于 2026-1-25 13:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69084770&amp;ptid=2027972" target="_blank">Totokei 发表于 2026-1-25 12:48</a>
+
+国产盘子用不了，只能手柄了
+
+自适应扳机在循迹和油门控制上还是很牛的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我陀螺仪跑法，会各种转向不足哈哈哈，没办法打很多方向，开着也累，不过挺爽的
+

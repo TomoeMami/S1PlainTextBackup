@@ -1074,3 +1074,11 @@ fgo啥时候联动抽卡啊<img src="https://static.stage1st.com/image/smiley/fa
 
 真正的闪海大战在这一季最后几集呢，这集本来就是女王的个人秀，那俩人就平A下，不知道一堆人疯狂造势干嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nemuru_baka  
+##### 702#       发表于 2026-1-25 13:08
+
+每个人都要装逼打了半天一点伤都没有实在是有点出戏，尤其是金闪闪站了大半天我都替他觉得尴尬<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
