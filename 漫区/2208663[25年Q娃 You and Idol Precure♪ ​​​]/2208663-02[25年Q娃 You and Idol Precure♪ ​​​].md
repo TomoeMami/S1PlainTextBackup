@@ -343,3 +343,14 @@ A Part要给Boss自问自答说明理由，解开封印，变身，收拾掉Boss
 粉可能是紫的妈妈 ...</blockquote>
 看预告片银兽在粉色怀里发光下意识以为就是穿越镜头了<img src="https://static.stage1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1586#       发表于 2026-1-25 23:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69087137&amp;ptid=2208663" target="_blank">leleq 发表于 2026-1-25 22:48</a>
+
+看预告片银兽在粉色怀里发光下意识以为就是穿越镜头了</blockquote>
+是你认错颜色了，发光那里是穿越但是那个角色不是粉Q是紫主<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
