@@ -265,3 +265,11 @@ A Part要给Boss自问自答说明理由，解开封印，变身，收拾掉Boss
 
 最后没让现代人的粉来串场而是让过去人紫来是因为什么呢？
 
+
+*****
+
+####  leleq  
+##### 1579#       发表于 2026-1-25 18:16
+
+今年这个鸟样，主创谁都跑不了每一个想认真写的，主线不在意，主题不在意，音乐不在意，就在意你那小鲜肉偶像<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
