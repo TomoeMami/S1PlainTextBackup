@@ -1082,3 +1082,14 @@ fgo啥时候联动抽卡啊<img src="https://static.stage1st.com/image/smiley/fa
 
 每个人都要装逼打了半天一点伤都没有实在是有点出戏，尤其是金闪闪站了大半天我都替他觉得尴尬<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晨灯  
+##### 703#       发表于 2026-1-25 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69084610&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-1-25 12:23</a>
+
+希波酱加戏内部爱太狠了，没挂彩+一枪捅爆阿喀琉斯的世界盾原型</blockquote>
+还有女武神的神铁盾。
+
