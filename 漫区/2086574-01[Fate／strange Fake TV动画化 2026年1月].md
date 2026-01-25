@@ -1229,3 +1229,14 @@ fate的动画动画除了fe我都看完了，甚至fsn那个剧场版我都去�
 
 金皮卡旺财不管用又不想拔EA，是准备上去玩换刀流吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  proselyte  
+##### 718#       发表于 2026-1-25 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69087331&amp;ptid=2086574" target="_blank">稀勢のささ 发表于 2026-1-25 23:37</a>
+
+金皮卡旺财不管用又不想拔EA，是准备上去玩换刀流吗</blockquote>
+不用ea是对的
+
