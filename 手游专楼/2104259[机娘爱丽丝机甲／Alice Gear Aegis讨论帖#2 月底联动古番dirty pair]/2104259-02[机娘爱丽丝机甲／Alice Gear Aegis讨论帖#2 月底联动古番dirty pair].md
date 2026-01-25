@@ -852,3 +852,27 @@ UENUTZJPRF又是一张票
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  イクイノックス  
+##### 1891#       发表于 2026-1-25 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69080917&amp;ptid=2104259" target="_blank">wilkyway 发表于 2026-1-24 15:08</a>
+
+就我经验来说fa舞和an米人这种兼职奶比专职奶要好用不少 那几个纯奶的战斗力都挺一言难尽的 实战的sp回转 ...</blockquote>
+好的。我还是先把手上的输出先拉满了再说
+
+
+*****
+
+####  イクイノックス  
+##### 1892#       发表于 2026-1-25 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69082302&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2026-1-24 20:55</a>
+
+有输出的或者能拖的奶妈才是合格的奶妈。调查V2高等级还是有点奶妈需求的。
+
+例如有输出的：3IN1或者4IN1的 ...</blockquote>
+问一下，这里的3IN1和4IN1是什么意思？
+
