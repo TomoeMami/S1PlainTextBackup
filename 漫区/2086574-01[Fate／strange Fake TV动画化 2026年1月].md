@@ -1144,3 +1144,14 @@ fgo啥时候联动抽卡啊<img src="https://static.stage1st.com/image/smiley/fa
 那三个半退场的和退场没啥区别，基本已经被踢出局了</blockquote>
 苍白骑士感觉最后还有
 
+
+*****
+
+####  leonardydd  
+##### 709#       发表于 2026-1-25 15:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69065274&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-1-21 23:07</a>
+
+这部感觉不了解设定很难看懂吧，当然不看懂只看战斗爽也能有很嗨的体验。 ...</blockquote>
+只看过FSN三部就行，FZ不看也无所谓。
+
