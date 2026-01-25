@@ -876,3 +876,15 @@ UENUTZJPRF又是一张票
 例如有输出的：3IN1或者4IN1的 ...</blockquote>
 问一下，这里的3IN1和4IN1是什么意思？
 
+
+*****
+
+####  江戸前ルナ  
+##### 1893#         楼主| 发表于 2026-1-25 11:04
+
+ 本帖最后由 江戸前ルナ 于 2026-1-25 11:07 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69084199&amp;ptid=2104259" target="_blank">イクイノックス 发表于 2026-1-25 10:56</a>
+
+问一下，这里的3IN1和4IN1是什么意思？</blockquote>
+角色有原版，AN，FA，ST四个版本，每抽到一个就会开对应的天赋盘子。N IN 1就是抽到了对应开到了盘子。部分角色天赋盘子里的某个天赋技能或者搭配其手脚技能被动技能SP会出现很强力的效果。而且还有面板加成。
+
