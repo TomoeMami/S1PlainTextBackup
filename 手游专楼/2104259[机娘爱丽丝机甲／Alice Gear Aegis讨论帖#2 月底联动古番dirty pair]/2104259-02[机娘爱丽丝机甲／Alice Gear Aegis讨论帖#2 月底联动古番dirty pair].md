@@ -896,3 +896,11 @@ UENUTZJPRF又是一张票
 
 <img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">不是说角色都加了待机语音吗，我角色语音列表里没有啊（
 
+
+*****
+
+####  江戸前ルナ  
+##### 1895#         楼主| 发表于 2026-1-25 17:13
+
+才补完圣诞树剧情，最后这么生猛的，以后剧情要弄个新了吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
