@@ -65,3 +65,22 @@ moiw2025没听到GR@TITUDE原来是放在这里唱，确实是真正的moiw了
 
 话说能在vision pro上搞个vr版吗?
 
+
+*****
+
+####  wfhtony  
+##### 7285#       发表于 2026-1-25 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69086186&amp;ptid=2130897" target="_blank">勿徊哉 发表于 2026-1-25 18:51</a>
+
+学马应该有dlsite版了吧
+
+话说能在vision pro上搞个vr版吗?</blockquote>
+那个是dmm... vision pro的话，目前来看QA应该不会专门去搞VR版，依然还会是ipad版兼容（果那边的特性）。
+
+另外，学马上steam的可能性，除非确认会弄国际版，否则目前上steam的几率无限趋近于0。
+
+偶像大师系的手游，也就万南自家的sfp、算上cy的话还有cgss，这两款是出了PC版，而且全都只上dmm且没上steam。
+
+只算QA自己开发的游戏的话，偶像荣耀至今没出PC版（更早的GF(仮)，那款本身就是页游，浏览器就能玩，更别提这个IP底下那个短命的音游了）。
+
