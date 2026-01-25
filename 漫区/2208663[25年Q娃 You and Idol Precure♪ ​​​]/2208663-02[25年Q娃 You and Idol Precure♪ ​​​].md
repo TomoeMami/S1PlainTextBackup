@@ -117,3 +117,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">这连寿司都没包明白吧？为什么突然就和暗赞大和解了？分别之后为什么直接就跳到成年了？凯特又跑哪去了总不能是特意跑到最后的CM里吓唬人吧？
 
+
+*****
+
+####  codezwei  
+##### 1566#       发表于 2026-1-25 13:21
+
+偶Q真好看啊，虽然主线很水 还有男同十指相扣的情节，但人设和音乐真的很棒，每周看完真有kirakirara的感觉（个别特别水或者毁人设的剧情集数除外），综合考虑还是非常值得一看的<img src="https://static.stage1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
