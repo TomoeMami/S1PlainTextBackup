@@ -706,3 +706,14 @@ alucardcz 发表于 2026-1-22 18:36
 
 再来前年送的圣诞阿比那种才是异端吧
 
+
+*****
+
+####  岸浪白野  
+##### 20467#       发表于 2026-1-25 18:14
+
+ 本帖最后由 岸浪白野 于 2026-1-25 18:15 编辑 
+
+抽下艾蕾池怎么真的会出现【是森井画的然后5星金卡枪】但歪了个恩奇都的情况<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/bd7b4ec77f5202fedd43d745b48cbb67/image.jpg" referrerpolicy="no-referrer">
+
