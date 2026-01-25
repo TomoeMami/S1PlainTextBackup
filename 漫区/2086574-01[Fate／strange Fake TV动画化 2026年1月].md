@@ -1221,3 +1221,11 @@ fgo啥时候联动抽卡啊<img src="https://static.stage1st.com/image/smiley/fa
 只看过FSN三部就行，FZ不看也无所谓。</blockquote>
 fate的动画动画除了fe我都看完了，甚至fsn那个剧场版我都去看了，fe看了两集觉得比物语还意识流就不看了。
 
+
+*****
+
+####  稀勢のささ  
+##### 717#       发表于 2026-1-25 23:37
+
+金皮卡旺财不管用又不想拔EA，是准备上去玩换刀流吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
