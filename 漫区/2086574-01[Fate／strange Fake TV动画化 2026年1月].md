@@ -1007,3 +1007,13 @@ fgo啥时候联动抽卡啊<img src="https://static.stage1st.com/image/smiley/fa
 不玩手游，和月球脱节了。这顶着张saber脸，声音是咕哒子的真rider是有啥特殊伏笔吗？ ...</blockquote>
 伏笔是发型是认识呆毛的人梳的
 
+
+*****
+
+####  仟音一心  
+##### 695#       发表于 2026-1-25 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69083989&amp;ptid=2086574" target="_blank">根正苗红 发表于 2026-1-25 09:49</a>
+不玩手游，和月球脱节了。这顶着张saber脸，声音是咕哒子的真rider是有啥特殊伏笔吗？ ...</blockquote>
+英灵本身一般，但是御主能让很多人大跌眼镜。
+
