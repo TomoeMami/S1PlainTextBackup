@@ -306,3 +306,16 @@ A Part要给Boss自问自答说明理由，解开封印，变身，收拾掉Boss
 
 不过这里最大的疑惑点在于紫要1年后的2027才会遇到QB然后穿越回1999遇到粉然后作为二人Q娃一起变身，所以这个出现在2026的单人变身的紫就很有问题了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 1583#       发表于 2026-1-25 21:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69086571&amp;ptid=2208663" target="_blank">pokemon最爱 发表于 2026-1-25 20:39</a>
+
+首先你搞错了，紫才是现代人，粉才是过去人
+
+不过这里最大的疑惑点在于紫要1年后的2027才会遇到QB然后穿越 ...</blockquote>
+预告片里不是粉穿越的吗？
+
