@@ -1134,3 +1134,13 @@ fgo啥时候联动抽卡啊<img src="https://static.stage1st.com/image/smiley/fa
 真正意义上的有角色退场是第八卷</blockquote>
 那三个半退场的和退场没啥区别，基本已经被踢出局了
 
+
+*****
+
+####  mffx  
+##### 708#       发表于 2026-1-25 14:36
+
+<blockquote>zakki 发表于 2026-1-25 14:26
+那三个半退场的和退场没啥区别，基本已经被踢出局了</blockquote>
+苍白骑士感觉最后还有
+

@@ -157,3 +157,14 @@
 完结滚蛋 带货与公款追星 偶像光之美少女♪
 终于不用听预制歌 《笑顔のユニゾン♪》封个q娃版《关羽之歌》得了<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 1571#       发表于 2026-1-25 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69084862&amp;ptid=2208663" target="_blank">経緯 发表于 2026-1-25 13:09</a>
+这连寿司都没包明白吧？为什么突然就和暗赞大和解了？分别之后为什么直接就跳到成年了？凯特又跑哪去了总不 ...</blockquote>
+和暗赞和解（错）
+和暗赞共存（对）
+
