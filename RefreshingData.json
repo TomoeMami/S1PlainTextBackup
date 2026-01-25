@@ -1508,7 +1508,7 @@
     "newtitle": "[EPIC每周白嫖指南：侠盗猎马手]",
     "lastedit": 1769100856,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1861134": {
@@ -5346,10 +5346,10 @@
     "update": false
   },
   "2130897": {
-    "totalreply": 7285,
+    "totalreply": 7286,
     "title": "[偶像大师 アイドルマスター THE IDOLM@STER 系列综合专楼]",
     "newtitle": "[偶像大师 アイドルマスター THE IDOLM@STER 系列综合专楼]",
-    "lastedit": 1769348419,
+    "lastedit": 1769360409,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12060,10 +12060,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 40263,
+    "totalreply": 40269,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1769360051,
+    "lastedit": 1769360649,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12465,10 +12465,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 5442,
+    "totalreply": 5443,
     "title": "[日本12月专楼]",
     "newtitle": "[日本12月专楼]",
-    "lastedit": 1769357768,
+    "lastedit": 1769360887,
     "category": "外野",
     "active": true,
     "update": false
@@ -17150,6 +17150,15 @@
     "newtitle": "[不   要   联   想]",
     "lastedit": 1769357534,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2185749": {
+    "totalreply": 126,
+    "title": "[wj连载一周年《神乐钵》（疑似动画情报偷跑）]",
+    "newtitle": "[wj连载一周年《神乐钵》（疑似动画情报偷跑）]",
+    "lastedit": 1769360654,
+    "category": "漫区",
     "active": true,
     "update": false
   }
