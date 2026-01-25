@@ -319,3 +319,15 @@ A Part要给Boss自问自答说明理由，解开封印，变身，收拾掉Boss
 不过这里最大的疑惑点在于紫要1年后的2027才会遇到QB然后穿越 ...</blockquote>
 预告片里不是粉穿越的吗？
 
+
+*****
+
+####  pokemon最爱  
+##### 1584#       发表于 2026-1-25 22:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69086728&amp;ptid=2208663" target="_blank">leleq 发表于 2026-1-25 21:15</a>
+
+预告片里不是粉穿越的吗？</blockquote>
+你看混了，今年是紫主<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">穿越的也是紫，这集登场的也是紫。
+粉可能是紫的妈妈
+
