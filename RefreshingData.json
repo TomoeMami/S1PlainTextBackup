@@ -401,7 +401,7 @@
     "newtitle": "[【七代目】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
     "lastedit": 1769086810,
     "category": "虚拟主播区专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2086516": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 28887,
+    "totalreply": 28890,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》1.15 古德莫宁]",
-    "lastedit": 1769345653,
+    "lastedit": 1769346254,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8910,10 +8910,10 @@
     "update": false
   },
   "2185578": {
-    "totalreply": 8291,
+    "totalreply": 8292,
     "title": "[真・三国无双 起源公布，原创主角，2025年登录ps5／pc／xs]",
     "newtitle": "[真・三国无双 起源专楼｜梦幻四英杰dlc&amp;ns2版26.1.22发售]",
-    "lastedit": 1769343738,
+    "lastedit": 1769346126,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12060,10 +12060,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 40073,
+    "totalreply": 40078,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1769345659,
+    "lastedit": 1769346260,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12492,10 +12492,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 10152,
+    "totalreply": 10158,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1769345767,
+    "lastedit": 1769346370,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12555,10 +12555,10 @@
     "update": false
   },
   "2269491": {
-    "totalreply": 9187,
+    "totalreply": 9188,
     "title": "[牢A与赞美诗]",
     "newtitle": "[牢A与赞美诗（转型牢A切片讨论楼）]",
-    "lastedit": 1769345299,
+    "lastedit": 1769346490,
     "category": "外野",
     "active": true,
     "update": false
@@ -12924,10 +12924,10 @@
     "update": false
   },
   "2266493": {
-    "totalreply": 277,
+    "totalreply": 278,
     "title": "[山下清悟监督 原创动画『超时空辉夜姬！／ 超かぐや姫！』2026年1月22日 Netflix配信]",
     "newtitle": "[山下清悟监督 原创动画『超时空辉夜姬！／ 超かぐや姫！』2026年1月22日 Netflix配信]",
-    "lastedit": 1769345058,
+    "lastedit": 1769346260,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13167,10 +13167,10 @@
     "update": false
   },
   "2271755": {
-    "totalreply": 1931,
+    "totalreply": 1935,
     "title": "[美国移民及海关执法局ICE在明尼阿波利斯爆头了一个抗议者]",
     "newtitle": "[美国移民及海关执法局ICE在明尼阿波利斯爆头了一名白人女性]",
-    "lastedit": 1769345890,
+    "lastedit": 1769346260,
     "category": "外野",
     "active": true,
     "update": false
@@ -15786,10 +15786,10 @@
     "update": false
   },
   "2272774": {
-    "totalreply": 76,
+    "totalreply": 77,
     "title": "[关于牢真讲的东西，可能真的很多]",
     "newtitle": "[关于牢真讲的东西，可能真的很多]",
-    "lastedit": 1769345058,
+    "lastedit": 1769346261,
     "category": "外野",
     "active": true,
     "update": false
@@ -17064,10 +17064,10 @@
     "update": false
   },
   "2273162": {
-    "totalreply": 116,
+    "totalreply": 117,
     "title": "[在新西兰修个房子老外也能破防啊？]",
     "newtitle": "[在新西兰修个房子老外也能破防啊？]",
-    "lastedit": 1769345299,
+    "lastedit": 1769346260,
     "category": "外野",
     "active": true,
     "update": false
@@ -17109,11 +17109,20 @@
     "update": false
   },
   "2273197": {
-    "totalreply": 48,
+    "totalreply": 50,
     "title": "[李湘赵薇这瓜有点大啊]",
     "newtitle": "[李湘赵薇这瓜有点大啊]",
-    "lastedit": 1769345890,
+    "lastedit": 1769346489,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2262587": {
+    "totalreply": 87,
+    "title": "[《魔法少女的魔女审判》好玩吗]",
+    "newtitle": "[《魔法少女的魔女审判》好玩吗]",
+    "lastedit": 1769346372,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
