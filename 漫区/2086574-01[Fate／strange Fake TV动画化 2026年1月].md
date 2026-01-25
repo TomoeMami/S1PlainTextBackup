@@ -1155,3 +1155,23 @@ fgo啥时候联动抽卡啊<img src="https://static.stage1st.com/image/smiley/fa
 这部感觉不了解设定很难看懂吧，当然不看懂只看战斗爽也能有很嗨的体验。 ...</blockquote>
 只看过FSN三部就行，FZ不看也无所谓。
 
+
+*****
+
+####  洛克萨斯  
+##### 710#       发表于 2026-1-25 15:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">希波这段骑马戏手绘真是肉眼可见的烧钱，这一集的经费都在她身上了，ceo和神奇女侠赞助的是吧，颜值高身材好，打戏好看
+
+设定不是呆毛脸，但这个发型+脸型怎么看都是希腊呆毛
+
+*****
+
+####  岸浪白野  
+##### 711#       发表于 2026-1-25 15:25
+
+ 本帖最后由 岸浪白野 于 2026-1-25 15:30 编辑 
+
+有很多话已经前面的楼都说过一遍了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+说了爆米花真当骗你吗<img src="https://p.sda1.dev/30/9107a740173988e978f8cd2cca6fdeb4/image.jpg" referrerpolicy="no-referrer">
+
