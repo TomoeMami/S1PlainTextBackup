@@ -1204,3 +1204,20 @@ fgo啥时候联动抽卡啊<img src="https://static.stage1st.com/image/smiley/fa
 提前在那造势的不就是除了云的就是自我期待现在在自 ...</blockquote>
 一堆人是脑补会有加戏，但最后没有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大耳兽  
+##### 715#       发表于 2026-1-25 23:19
+
+漫画里闪闪手甲碎了东华里屁事没有，射棕皮的那一箭也改了不少，直接用天之锁扯成两截了。
+
+*****
+
+####  大耳兽  
+##### 716#       发表于 2026-1-25 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69085334&amp;ptid=2086574" target="_blank">leonardydd 发表于 2026-1-25 15:10</a>
+只看过FSN三部就行，FZ不看也无所谓。</blockquote>
+fate的动画动画除了fe我都看完了，甚至fsn那个剧场版我都去看了，fe看了两集觉得比物语还意识流就不看了。
+
