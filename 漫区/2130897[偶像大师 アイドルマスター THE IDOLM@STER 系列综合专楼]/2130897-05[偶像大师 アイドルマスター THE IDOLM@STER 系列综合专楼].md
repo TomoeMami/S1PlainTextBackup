@@ -23,3 +23,11 @@ day1是nei，day2是moiw 2026吗<img src="https://static.stage1st.com/image/smil
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Vacuolar  
+##### 7280#       发表于 2026-1-25 16:59
+
+moiw2025没听到GR@TITUDE原来是放在这里唱，确实是真正的moiw了
+
