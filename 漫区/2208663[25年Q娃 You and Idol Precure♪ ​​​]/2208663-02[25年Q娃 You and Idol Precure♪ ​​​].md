@@ -291,3 +291,18 @@ A Part要给Boss自问自答说明理由，解开封印，变身，收拾掉Boss
 
 感觉wink是最强盾役了啊
 
+
+*****
+
+####  pokemon最爱  
+##### 1582#       发表于 2026-1-25 20:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69085998&amp;ptid=2208663" target="_blank">leleq 发表于 2026-1-25 18:09</a>
+
+这种暗赞这剧情Q里一大堆到现在也没啥好吐槽的了
+
+这集只能说完成了底线打得不错，2男人没来抢戏。但也就这 ...</blockquote>
+首先你搞错了，紫才是现代人，粉才是过去人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这里最大的疑惑点在于紫要1年后的2027才会遇到QB然后穿越回1999遇到粉然后作为二人Q娃一起变身，所以这个出现在2026的单人变身的紫就很有问题了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
