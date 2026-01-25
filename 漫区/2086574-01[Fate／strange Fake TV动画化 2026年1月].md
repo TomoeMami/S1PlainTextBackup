@@ -975,3 +975,11 @@ FSN游戏没打完，只看完了UBW+HF动画的路人
 
 <img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">花式相互吹比
 
+
+*****
+
+####  根正苗红  
+##### 691#       发表于 2026-1-25 09:49
+
+不玩手游，和月球脱节了。这顶着张saber脸，声音是咕哒子的真rider是有啥特殊伏笔吗？
+
