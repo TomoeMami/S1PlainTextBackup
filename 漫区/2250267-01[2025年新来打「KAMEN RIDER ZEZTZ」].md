@@ -311,3 +311,13 @@ nox保护期那么短么
 
 ZZZ的主题之一是每个人客服恐惧，宁梦的恐惧是什么是全剧相当重要的谜题了。如果高桥能默不作声地铺垫出宁梦究竟在怕什么，那就很优秀了，能行吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 628#       发表于 2026-1-25 16:23
+
+这集同花顺笑到了
+
+看推特时知道今天刚好是播当年橘前辈打爆孔雀那集，如果是用方块就更好了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
