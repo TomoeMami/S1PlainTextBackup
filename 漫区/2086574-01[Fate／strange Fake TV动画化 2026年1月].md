@@ -1049,3 +1049,12 @@ fgo啥时候联动抽卡啊<img src="https://static.stage1st.com/image/smiley/fa
 <img src="https://p.sda1.dev/30/a39e499ac67490ab0e305fb105744ac4/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/30/ae59624d88dedb42fc0c43668975b3e7/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 699#       发表于 2026-1-25 12:13
+
+其实是这俩。
+<img src="https://p.sda1.dev/30/9860f77a3bc3028e324a109131722ec1/image.jpg" referrerpolicy="no-referrer">
+
