@@ -49,3 +49,34 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">又过去了一年……楼友这一年过得都怎么样？反正这部动画是有够烂的
 
+
+*****
+
+####  Parahure  
+##### 1559#       发表于 2026-1-25 08:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69044954&amp;ptid=2208663" target="_blank">Parahure 发表于 2026-1-18 09:08</a>
+最终话能看到歌凯复刻抱q结局        吗，能的话我愿称之为神作
+
+—— 来自 鹅球 v3.5.99-alpha ...</blockquote>
+残念です，并没有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  晴雯丽  
+##### 1560#       发表于 2026-1-25 09:48
+
+无所谓了，现在看q娃我已经是一种玩轨迹的心态了，简单吃点屎<img src="https://static.stage1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  pokemon最爱  
+##### 1561#       发表于 2026-1-25 09:51
+
+就……好典中典的Q娃决战啊，你Q娃上次最终BOSS战团灭是什么时候了，治愈吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以一般路过名侦探小姐您是怎么在一年后才会穿越到28年前和搭档一起变身的情况下以一个人变身状态跑过来偶Q这边的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
