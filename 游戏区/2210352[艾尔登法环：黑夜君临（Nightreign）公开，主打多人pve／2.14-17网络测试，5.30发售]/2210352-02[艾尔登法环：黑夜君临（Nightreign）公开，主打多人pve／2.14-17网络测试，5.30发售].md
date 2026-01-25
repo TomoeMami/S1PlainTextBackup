@@ -48,3 +48,24 @@
 发现基本功太差了会被卢恩熊疯狂腐乳啊 第一夜见到两头大熊就脸一黑 ...</blockquote>
 正常情况，在深度徘徊都会变成将来上分的经验
 
+
+*****
+
+####  lilod  
+##### 2107#       发表于 2026-1-25 11:33
+
+感谢连续 4 盘普通大嘴，让我爬到了深夜 3 （，这个随机种子是不是有问题啊，总觉得一段时间都是同一个 boss 和地图种子
+
+*****
+
+####  skgaminger1988  
+##### 2108#       发表于 2026-1-25 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69083319&amp;ptid=2210352" target="_blank">盐星 发表于 2026-1-25 01:08</a>
+艰难爬上深度3又掉回了深度2
+
+发现基本功太差了会被卢恩熊疯狂腐乳啊 第一夜见到两头大熊就脸一黑 ...</blockquote>
+双卢恩熊本来就是首夜最强小怪，单通被腐乳正常
+
+—— 来自 vivo V2458A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -1066,3 +1066,11 @@ fgo啥时候联动抽卡啊<img src="https://static.stage1st.com/image/smiley/fa
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希波酱加戏内部爱太狠了，没挂彩+一枪捅爆阿喀琉斯的世界盾原型
 
+
+*****
+
+####  zakki  
+##### 701#       发表于 2026-1-25 12:42
+
+真正的闪海大战在这一季最后几集呢，这集本来就是女王的个人秀，那俩人就平A下，不知道一堆人疯狂造势干嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
