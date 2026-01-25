@@ -31,3 +31,11 @@ day1是nei，day2是moiw 2026吗<img src="https://static.stage1st.com/image/smil
 
 moiw2025没听到GR@TITUDE原来是放在这里唱，确实是真正的moiw了
 
+
+*****
+
+####  Vacuolar  
+##### 7281#       发表于 2026-1-25 17:32
+
+太完美了，今天确认千早真的已经是生命的一部分了，不需要刻意记住，她就在我生命里
+
