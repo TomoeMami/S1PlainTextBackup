@@ -1122,3 +1122,15 @@ fgo啥时候联动抽卡啊<img src="https://static.stage1st.com/image/smiley/fa
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zakki  
+##### 707#       发表于 2026-1-25 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69085149&amp;ptid=2086574" target="_blank">mffx 发表于 2026-1-25 14:20</a>
+你的感觉是正确的
+
+真正意义上的有角色退场是第八卷</blockquote>
+那三个半退场的和退场没啥区别，基本已经被踢出局了
+
