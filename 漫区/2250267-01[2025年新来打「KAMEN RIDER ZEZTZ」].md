@@ -339,3 +339,15 @@ ZZZ的主题之一是每个人客服恐惧，宁梦的恐惧是什么是全剧�
 
 台词好评，bgm好评
 
+
+*****
+
+####  cqc1021  
+##### 631#       发表于 2026-1-25 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69083441&amp;ptid=2250267" target="_blank">赤黑的假面 发表于 2026-1-25 02:06</a>
+特工装原来是统一制服</blockquote>
+为什么不是紫色，好气啊<img src="https://static.stage1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
