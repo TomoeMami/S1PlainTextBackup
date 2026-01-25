@@ -1058,3 +1058,11 @@ fgo啥时候联动抽卡啊<img src="https://static.stage1st.com/image/smiley/fa
 其实是这俩。
 <img src="https://p.sda1.dev/30/9860f77a3bc3028e324a109131722ec1/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 700#       发表于 2026-1-25 12:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希波酱加戏内部爱太狠了，没挂彩+一枪捅爆阿喀琉斯的世界盾原型
+
