@@ -1315,3 +1315,14 @@ fate的动画动画除了fe我都看完了，甚至fsn那个剧场版我都去�
 不知道是不是我把其他设定搞混了，印象中有把自带战斗经验的剑？</blockquote>
 蓝胖子的电光丸是吧，那玩意被宫本武藏砍断了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 726#       发表于 2026-1-26 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69088777&amp;ptid=2086574" target="_blank">失落之翼 发表于 2026-1-26 10:17</a>
+
+不知道是不是我把其他设定搞混了，印象中有把自带战斗经验的剑？</blockquote>
+自带战斗经验是士郎系的投影填装，能读取宝具所有者的战斗经验，金皮卡是钦定他仓库里面的很多是不会用的单纯当炮弹用
+
