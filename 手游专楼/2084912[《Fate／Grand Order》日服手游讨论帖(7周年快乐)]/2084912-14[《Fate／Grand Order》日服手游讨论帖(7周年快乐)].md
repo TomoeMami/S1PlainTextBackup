@@ -736,3 +736,11 @@ alucardcz 发表于 2026-1-22 18:36
 这段莉莉丝和蔓斗嘴还顺便迫害紫罗兰的操作太6了，绝对是故意的</blockquote>
 绝对故意的，最后莉莉丝都不提拿破仑，直接说戴眼镜的女人了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 20470#       发表于 2026-1-26 09:43
+
+总觉得最后的特异点就是fsf的片场，这里太适合搞事了。
+
