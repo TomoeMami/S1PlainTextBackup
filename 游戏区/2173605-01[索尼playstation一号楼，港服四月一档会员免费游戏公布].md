@@ -185,3 +185,20 @@ Xbox游戏工作室负责人Craig Duncan最近接受了GamesRadar采访，在被
 
 据知名爆料人billbil-kun透露，《Undisputed》将成为PS+2月会免（1档）作品之一。本作是一款由Steel City Interactive开发、Deep Silver在2024年发行的拳击游戏。目前PS商店中游戏的全球玩家评分2.57，五星好评率22%。《Undisputed》预计会在2月3日~3月3日期间面向PS+会免用户开放。billbil-kun昨晚发文暗示了今年PS+游戏质量将出现下滑的可能，并强调本月会免或略显普通。
 
+
+*****
+
+####  黑猫软  
+##### 471#       发表于 2026-1-26 20:31
+
+2月有sop（虽然是废话）
+
+<img src="https://img.stage1st.com/forum/202601/26/203100qw7xxia8uweiy11g.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1769430631978_628.jpg</strong> (190.8 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-1-26 20:31 上传
+
