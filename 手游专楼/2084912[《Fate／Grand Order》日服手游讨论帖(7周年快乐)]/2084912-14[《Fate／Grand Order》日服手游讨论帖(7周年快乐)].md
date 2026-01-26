@@ -717,3 +717,22 @@ alucardcz 发表于 2026-1-22 18:36
 抽下艾蕾池怎么真的会出现【是森井画的然后5星金卡枪】但歪了个恩奇都的情况<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/30/bd7b4ec77f5202fedd43d745b48cbb67/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 20468#       发表于 2026-1-26 09:09
+
+<blockquote>khxooo 发表于 2026-1-25 17:59
+今天难得莉莉丝出场，算是给了点莉莉丝厨的糖了</blockquote>
+这段莉莉丝和蔓斗嘴还顺便迫害紫罗兰的操作太6了，绝对是故意的
+
+*****
+
+####  khxooo  
+##### 20469#       发表于 2026-1-26 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69088355&amp;ptid=2084912" target="_blank">angelooo 发表于 2026-1-26 09:09</a>
+这段莉莉丝和蔓斗嘴还顺便迫害紫罗兰的操作太6了，绝对是故意的</blockquote>
+绝对故意的，最后莉莉丝都不提拿破仑，直接说戴眼镜的女人了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
