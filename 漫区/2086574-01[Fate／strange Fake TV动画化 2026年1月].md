@@ -1391,3 +1391,14 @@ fate的动画动画除了fe我都看完了，甚至fsn那个剧场版我都去�
 好劲的作画，有没有懂哥说下后续剧本是啥实力</blockquote>
 战斗爽剧本，这一季最后几集是大战
 
+
+*****
+
+####  少年游不游  
+##### 734#       发表于 2026-1-26 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69091171&amp;ptid=2086574" target="_blank">zakki 发表于 2026-1-26 16:51</a>
+
+战斗爽剧本，这一季最后几集是大混战</blockquote>
+那还挺好，我要看到血流成河口牙
+
