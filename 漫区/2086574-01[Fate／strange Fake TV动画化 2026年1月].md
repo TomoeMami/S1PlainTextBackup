@@ -1367,3 +1367,27 @@ fate的动画动画除了fe我都看完了，甚至fsn那个剧场版我都去�
 
 懒得看小说了，有没有剧情总结？我就看到阿B的漫画那边。
 
+
+*****
+
+####  少年游不游  
+##### 731#       发表于 2026-1-26 16:49
+
+好劲的作画，有没有懂哥说下后续剧本是啥实力
+
+*****
+
+####  zakki  
+##### 732#       发表于 2026-1-26 16:50
+
+弹幕和评论又开始打着科普的旗号肆意剧透了，希波的御主是中后期才揭晓的悬念，又开始显得自己知道的多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 733#       发表于 2026-1-26 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69091152&amp;ptid=2086574" target="_blank">少年游不游 发表于 2026-1-26 16:49</a>
+好劲的作画，有没有懂哥说下后续剧本是啥实力</blockquote>
+战斗爽剧本，这一季最后几集是大战
+
