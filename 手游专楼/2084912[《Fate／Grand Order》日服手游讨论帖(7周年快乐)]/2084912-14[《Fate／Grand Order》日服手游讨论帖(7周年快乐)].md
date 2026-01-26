@@ -757,3 +757,13 @@ alucardcz 发表于 2026-1-22 18:36
 不是限定就给的debuff</blockquote>
 应该给个退场效果，比如说鹤小姐那种，直接即死太地狱了
 
+
+*****
+
+####  jackyhuang  
+##### 20472#       发表于 2026-1-26 18:49
+
+让武则天推荐牡丹也挺地狱的
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
