@@ -1293,3 +1293,14 @@ fate的动画动画除了fe我都看完了，甚至fsn那个剧场版我都去�
 这我知道啊，但金皮卡除了那个抽象的换刀流初见杀真有近战能力吗</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以你没看到他一直在船上开炮么，他又没蠢到和海格力斯拼近战
 
+
+*****
+
+####  失落之翼  
+##### 724#       发表于 2026-1-26 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69087433&amp;ptid=2086574" target="_blank">稀勢のささ 发表于 2026-1-26 00:08</a>
+
+这我知道啊，但金皮卡除了那个抽象的换刀流初见杀真有近战能力吗</blockquote>
+不知道是不是我把其他设定搞混了，印象中有把自带战斗经验的剑？
+
