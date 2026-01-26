@@ -14,3 +14,11 @@ https://page.onstove.com/chaoszeronightmare/tw/view/11909178平衡性调整出�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但可以说丑刀整体都废了
 
+
+*****
+
+####  伊布桑  
+##### 694#       发表于 2026-1-26 23:27
+
+我对于削弱啥的本身没什么意见，就是笑门美其名曰重做太难绷了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
