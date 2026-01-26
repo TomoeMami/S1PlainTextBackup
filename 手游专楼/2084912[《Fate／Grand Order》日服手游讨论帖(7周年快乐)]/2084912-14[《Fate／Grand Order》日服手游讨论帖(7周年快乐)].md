@@ -744,3 +744,16 @@ alucardcz 发表于 2026-1-22 18:36
 
 总觉得最后的特异点就是fsf的片场，这里太适合搞事了。
 
+
+*****
+
+####  失落之翼  
+##### 20471#       发表于 2026-1-26 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69077790&amp;ptid=2084912" target="_blank">シャル 发表于 2026-1-23 21:27</a>
+
+蛇妈这宝具，按传说2次以后应该是瞎眼状态，咋即死呢？
+
+不是限定就给的debuff</blockquote>
+应该给个退场效果，比如说鹤小姐那种，直接即死太地狱了
+
