@@ -1423,3 +1423,16 @@ fate的动画动画除了fe我都看完了，甚至fsn那个剧场版我都去�
 
 很难说他对士郎系是什么心态，毕竟虽然日常削UBW但二世大冒险还给UBW加了新的阴间用法（亚种幻崩将武器的性能和存在方式抽出赋予其他剑，把赤原猎犬的必中赋予了UBW里的其他武器）
 
+
+*****
+
+####  シャル  
+##### 737#       发表于 2026-1-26 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69090063&amp;ptid=2086574" target="_blank">usodakedo 发表于 2026-1-26 13:45</a>
+
+主要是不断给闪闪打补丁，然后又不断削弱士系，例如像ubw，最开始设定是e到a＋＋，过了里面被砍到e到a， ...</blockquote>
+还是E-A
+
+废狗宝具强化了都没++
+
