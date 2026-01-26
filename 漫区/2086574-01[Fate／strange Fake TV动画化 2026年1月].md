@@ -1304,3 +1304,14 @@ fate的动画动画除了fe我都看完了，甚至fsn那个剧场版我都去�
 这我知道啊，但金皮卡除了那个抽象的换刀流初见杀真有近战能力吗</blockquote>
 不知道是不是我把其他设定搞混了，印象中有把自带战斗经验的剑？
 
+
+*****
+
+####  leonardydd  
+##### 725#       发表于 2026-1-26 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69088777&amp;ptid=2086574" target="_blank">失落之翼 发表于 2026-1-26 10:17</a>
+
+不知道是不是我把其他设定搞混了，印象中有把自带战斗经验的剑？</blockquote>
+蓝胖子的电光丸是吧，那玩意被宫本武藏砍断了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
