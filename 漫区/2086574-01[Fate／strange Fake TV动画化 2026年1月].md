@@ -1272,3 +1272,13 @@ fate的动画动画除了fe我都看完了，甚至fsn那个剧场版我都去�
 这里仇海激金皮卡用EA的意图太明显了，真拔EA了仇海就要用天风了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这我知道啊，但金皮卡除了那个抽象的换刀流初见杀真有近战能力吗
 
+
+*****
+
+####  KDConan  
+##### 722#       发表于 2026-1-26 09:20
+
+真正实力怎么样不知道反正垃圾话是说满了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
