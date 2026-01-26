@@ -1436,3 +1436,16 @@ fate的动画动画除了fe我都看完了，甚至fsn那个剧场版我都去�
 
 废狗宝具强化了都没++
 
+
+*****
+
+####  洛克萨斯  
+##### 738#       发表于 2026-1-26 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69091713&amp;ptid=2086574" target="_blank">pokemon最爱 发表于 2026-1-26 18:33</a>
+
+蘑菇懂个P战力
+
+很难说他对士郎系是什么心态，毕竟虽然日常削UBW但二世大冒险还给UBW加了新的阴间用法（亚 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ulw和亚种幻崩阴间程度比ubw剑雨和投影装填这种偏正面的用法的实用多了，特别是ulw这种超容易初见杀的
+
