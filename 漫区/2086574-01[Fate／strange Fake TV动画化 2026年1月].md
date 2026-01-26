@@ -1334,3 +1334,14 @@ fate的动画动画除了fe我都看完了，甚至fsn那个剧场版我都去�
 
 你们都说闪闪是蘑菇亲爹，但你们没想过越多设定去补充，越证明士郎多NB，谁才是亲爹？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  稀勢のささ  
+##### 728#       发表于 2026-1-26 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69088519&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-1-26 09:34</a>
+
+所以你没看到他一直在船上开炮么，他又没蠢到和海格力斯拼近战</blockquote>
+主要是嘴臭完开门伸手拔剑，一副要不是被打断就想上去近战的样子给我看乐了<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
