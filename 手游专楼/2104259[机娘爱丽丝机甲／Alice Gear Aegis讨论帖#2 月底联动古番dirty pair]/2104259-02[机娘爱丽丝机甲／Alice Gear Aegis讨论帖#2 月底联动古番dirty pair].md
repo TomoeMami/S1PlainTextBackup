@@ -904,3 +904,11 @@ UENUTZJPRF又是一张票
 
 才补完圣诞树剧情，最后这么生猛的，以后剧情要弄个新了吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1896#       发表于 2026-1-26 15:12
+
+参考贴吧玄学摆塑料小人抽卡，去求了家里几只fag，血战40发拿下轰雷改，只可惜最后10发没拿下神手娘，只能跟小迷糊一起以待来日了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
