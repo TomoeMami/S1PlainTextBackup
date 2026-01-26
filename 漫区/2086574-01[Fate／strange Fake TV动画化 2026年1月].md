@@ -1345,3 +1345,17 @@ fate的动画动画除了fe我都看完了，甚至fsn那个剧场版我都去�
 所以你没看到他一直在船上开炮么，他又没蠢到和海格力斯拼近战</blockquote>
 主要是嘴臭完开门伸手拔剑，一副要不是被打断就想上去近战的样子给我看乐了<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usodakedo  
+##### 729#       发表于 2026-1-26 13:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69089656&amp;ptid=2086574" target="_blank">cenhr 发表于 2026-1-26 12:11</a>
+你们都说闪闪是蘑菇亲爹，但你们没想过越多设定去补充，越证明士郎多NB，谁才是亲爹？ ...</blockquote>
+主要是不断给闪闪打补丁，然后又不断削弱士系，例如像ubw，最开始设定是e到a＋＋，一会儿变成e到a，现在又在设定集里变回了e到a＋＋。说不能投神造，结果fsn的各种版本里都保留了hf最后投咖喱棒的描写。说什么士郎战胜闪闪是万中无一的奇迹，然而他当初自己游戏里写的描写就是纯士郎抽闪闪陀螺，闪闪被打到想逃命了。我看蘑菇现在也是个redp，那种拧巴劲，越是年纪大越厌恶年轻时自己的创作<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且从闪闪和士郎的例子来看，你月的设定图一乐就行了，蘑菇可能自己都不记得自己口嗨了啥，其他人例如像ubw tv的导演能在一次访谈里前后打脸起码三次。
+但有一点是共识，那就是给蘑菇越给他那人类最古野爹加强的越多，那他就越小丑，就好像刘备文里的仙子，吹的巨厉害，进了屋直没几秒直接被士郎调教的只剩下哦齁齁齁了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
