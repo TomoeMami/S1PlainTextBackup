@@ -248,3 +248,13 @@ pc上用ds5也适配下啊
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  cmyk1234  
+##### 548#       发表于 2026-1-27 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69095047&amp;ptid=2252759" target="_blank">nagitoY 发表于 2026-1-27 14:04</a>
+格蕾丝线应该也能切第三人称吧？</blockquote>
+按暂停切换第一人称和第三人称，两人都可以切换。
+
