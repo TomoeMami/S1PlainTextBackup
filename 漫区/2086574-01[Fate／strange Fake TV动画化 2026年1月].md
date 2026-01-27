@@ -1621,3 +1621,18 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 
 2个卫宫都不如村正，无元剑制是EX
 
+
+*****
+
+####  亚历山大帝  
+##### 754#       发表于 2026-1-27 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69084042&amp;ptid=2086574" target="_blank">pokemon最爱 发表于 2026-1-25 10:05</a>
+
+仇海那句嘲讽只有没有理智的野兽才会被王财打死的台词被删了啊</blockquote>
+那当然要删，
+
+骂谁呢？得罪的人可太多了。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
