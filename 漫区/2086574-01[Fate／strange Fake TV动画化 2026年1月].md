@@ -1636,3 +1636,40 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 
 <img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  亚历山大帝  
+##### 755#       发表于 2026-1-27 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69092839&amp;ptid=2086574" target="_blank">usodakedo 发表于 2026-1-27 01:30</a>
+
+从设定上来说，它只是个大号真名看破，可以看到对方英灵的名字以及宝具信息，但是你该打不过那还是打不过 ...</blockquote>
+闪闪在FSN里吃瘪这些事儿，其实问题都不大，
+
+随时都可以说成是 “Master不行 / Master先没了”，所以属性下降了，
+
+毕竟最强形态的闪闪只有远坂时臣时期有，没吃过瘪，我见过。
+
+<img src="https://static.stage1st.com/image/smiley/carton2017/079.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.stage1st.com/forum/202601/27/195609qhdeks1aks94kc2k.jpg" referrerpolicy="no-referrer">
+
+<strong>image002.jpg</strong> (38.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-27 19:56 上传
+
+*****
+
+####  洛克萨斯  
+##### 756#       发表于 2026-1-27 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69096846&amp;ptid=2086574" target="_blank">亚历山大帝 发表于 2026-1-27 19:40</a>
+
+那当然要删，
+
+骂谁呢？得罪的人可太多了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大帝你要是开王军直接大军包围闪大王不是随便打，列阵冲锋傻了吧
+
