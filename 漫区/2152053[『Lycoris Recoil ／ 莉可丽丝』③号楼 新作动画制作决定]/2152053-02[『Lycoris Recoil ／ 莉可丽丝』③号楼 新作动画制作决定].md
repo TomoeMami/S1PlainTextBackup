@@ -41,3 +41,16 @@
 
 你这毒奶，该当何罪<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 2447#       发表于 2026-1-27 15:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69095448&amp;ptid=2152053" target="_blank">蒜苗 发表于 2026-1-27 15:11</a>
+
+你这毒奶，该当何罪</blockquote>
+<img src="https://static.stage1st.com/image/smiley/carton2017/094.gif" referrerpolicy="no-referrer">大家都被沙发套给骗了
+
+我真是个笨蛋<img src="https://static.stage1st.com/image/smiley/carton2017/091.gif" referrerpolicy="no-referrer">
+
