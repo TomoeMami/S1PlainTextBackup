@@ -117,3 +117,29 @@ fami通访谈里提到一个很有意思的地方，电锯僵尸被击倒后电�
 
 格蕾丝线应该也能切第三人称吧？
 
+
+*****
+
+####  仲可怀  
+##### 536#       发表于 2026-1-27 14:06
+
+不太看好 里昂部分感觉动作有点拖沓 表演成分过高了 妹子部分感觉和里昂部分撕裂感过重了 不说一个是躲避一个是爽游这种桥接的生硬感，第一人称和第三人称的切换本就无此必要
+
+
+*****
+
+####  windlikeman  
+##### 537#       发表于 2026-1-27 14:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">IGNJ直接明说了 就是RE2和RE4拼接起来 
+
+*****
+
+####  nagitoY  
+##### 538#       发表于 2026-1-27 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69095078&amp;ptid=2252759" target="_blank">windlikeman 发表于 2026-1-27 14:10</a>
+
+IGNJ直接明说了 就是RE2和RE4拼接起来</blockquote>
+re2的里昂和克莱尔线流程几乎一致啊，主要是表里线的区别，而且区别也不大
+
