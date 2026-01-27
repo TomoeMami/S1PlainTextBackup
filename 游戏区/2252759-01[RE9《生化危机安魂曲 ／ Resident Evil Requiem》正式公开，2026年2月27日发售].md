@@ -348,3 +348,19 @@ LEON路線都是之後的再之後繞路回來
 
 之後全留給LEON來處理...
 
+
+*****
+
+####  csolfans  
+##### 555#       发表于 2026-1-27 23:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69097586&amp;ptid=2252759" target="_blank">eilot 发表于 2026-1-27 22:55</a>
+剛看到報導
+
+說GRACE編真是能避開所有敵人(固定BOSS應該不算在內)，生還的會有所強化，
+
+之後全留給LEON來 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好像不是爆头和药剂暗杀都会狂暴化
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
