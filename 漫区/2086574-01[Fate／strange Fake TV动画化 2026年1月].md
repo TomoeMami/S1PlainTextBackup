@@ -1531,3 +1531,14 @@ fgo我一直云的剧情，没玩，但是fgom里是a++，也是经典贴吧论�
 
 问一下楼里的月帅，fe和ccc的游戏值得玩吗，还是说云一下剧情就好。
 
+
+*****
+
+####  hououmon  
+##### 747#       发表于 2026-1-27 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69093830&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-1-27 10:41</a>
+
+问一下楼里的月帅，fe和ccc的游戏值得玩吗，还是说云一下剧情就好。</blockquote>
+FE还是云吧，毕竟那剧情也没好到值得你去坐牢。CCC系统虽然也没比FE好多少，但起码剧情能回本。
+
