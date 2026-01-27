@@ -278,3 +278,14 @@ pc上用ds5也适配下啊
 
 —— 来自 meizu MEIZU 20, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  血狂毘沙门  
+##### 551#       发表于 2026-1-27 21:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69095708&amp;ptid=2252759" target="_blank">nagitoY 发表于 2026-1-27 15:53</a>
+
+地图和敌人复用看出来了，路线应该不同吧。不然那也太无聊了。</blockquote>
+描述不太准确，不是说完全相同的关卡流程，但明显有些房间的敌人配置是一模一样的
+
