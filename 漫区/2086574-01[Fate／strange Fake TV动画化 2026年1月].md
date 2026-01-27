@@ -1494,3 +1494,14 @@ fgo我一直云的剧情，没玩，但是fgom里是a++，也是经典贴吧论�
 从设定上来说，它只是个大号真名看破，可以看到对方英灵的名字以及宝具信息，但是你该打不过那还是打不过 ...</blockquote>
 谁叫闪大王强化了那么多次也没有神域近战呢，那被士郎拉进UBW贴脸打近战可不是就只能被腐乳了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟红A近战有神域防御，被红A喂招喂出来的UBW士近战就算没有神域防御腐乳闪大王也够了，没有对士郎系起手掏EA就是最大的慢心啊（
 
+
+*****
+
+####  洛克萨斯  
+##### 743#       发表于 2026-1-27 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69093363&amp;ptid=2086574" target="_blank">pokemon最爱 发表于 2026-1-27 09:42</a>
+
+谁叫闪大王强化了那么多次也没有神域近战呢，那被士郎拉进UBW贴脸打近战可不是就只能被腐乳了毕竟红A近战 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没喂招也有投影装填这种变态玩意，面板技术都能复制打闪大王不是随便打
+
