@@ -419,3 +419,13 @@ BR跟箱子斗争时间能成立是因为有不确定会不会落地就开打的
 
 这玩意锁国区的情况下，简中竟然是好评率最高的语言。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 43#       发表于 2026-1-27 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69096672&amp;ptid=2272985" target="_blank">frankCC 发表于 2026-1-27 18:57</a>
+这玩意锁国区的情况下，简中竟然是好评率最高的语言。</blockquote>
+锁区还去玩的，本来不就筛选出真爱了吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

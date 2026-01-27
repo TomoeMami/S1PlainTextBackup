@@ -1607,3 +1607,17 @@ ulw和亚种幻崩阴间程度比ubw剑雨和投影装填这种偏正面的用�
 
 在人体内开ubw<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 753#       发表于 2026-1-27 19:19
+
+ 本帖最后由 シャル 于 2026-1-27 19:23 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69092955&amp;ptid=2086574" target="_blank">usodakedo 发表于 2026-1-27 05:28</a>
+
+fgo我一直云的剧情，没玩，但是fgom里是a++，也是经典贴吧论战议题了，最后基本都是想认哪个认哪个（主要 ...</blockquote>
+Fgo应该还要2次强化，现在算不了战力了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+2个卫宫都不如村正，无元剑制是EX
+
