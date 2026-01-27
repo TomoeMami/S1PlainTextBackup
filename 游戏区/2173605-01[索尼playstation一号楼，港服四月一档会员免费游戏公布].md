@@ -229,3 +229,14 @@ FF7第三部要来了吗
 
 针对PS5 Pro机型，中西表示，玩家可以自由选择开关光线追踪功能。开启光追后，玩家可在全光追效果下以4K/60帧游玩；关闭光追的话，若显示器支持，则可享受最高120帧、平均90帧的流畅体验。中西称团队为这些优化投入了大量的时间。
 
+
+*****
+
+####  哎哟卧槽了  
+##### 475#       发表于 2026-1-27 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69092244&amp;ptid=2173605" target="_blank">任天索尼子 发表于 2026-1-26 21:05</a>
+
+FF7第三部要来了吗</blockquote>
+怎么可能，今年东京电玩节吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
