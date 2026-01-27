@@ -266,3 +266,15 @@ pc上用ds5也适配下啊
 
 感觉丧尸被子弹击中的特效是不是变得明显了，re2手枪打上去和BB弹似的
 
+
+*****
+
+####  yyman  
+##### 550#       发表于 2026-1-27 20:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69096795&amp;ptid=2252759" target="_blank">性兽阿怪 发表于 2026-1-27 19:29</a>
+感觉丧尸被子弹击中的特效是不是变得明显了，re2手枪打上去和BB弹似的</blockquote>
+确实感觉得到这作里昂线就是特别强调战斗爽快感的，不管射击还是体术的声音和特效都很有“打击感”，应该就是刻意跟格蕾丝线的憋屈区分开让你在里昂线尽情发泄
+
+—— 来自 meizu MEIZU 20, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

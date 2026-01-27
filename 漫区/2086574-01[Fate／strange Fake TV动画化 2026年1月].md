@@ -1673,3 +1673,14 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 骂谁呢？得罪的人可太多了。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大帝你要是开王军直接大军包围闪大王不是随便打，列阵冲锋傻了吧
 
+
+*****
+
+####  亚历山大帝  
+##### 757#       发表于 2026-1-27 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69096914&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-1-27 19:57</a>
+
+大帝你要是开王军直接大军包围闪大王不是随便打，列阵冲锋傻了吧</blockquote>
+理解一下古代将领吧，我们是真没见过立体战术。 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
