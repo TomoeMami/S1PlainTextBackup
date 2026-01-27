@@ -165,3 +165,24 @@
 
 想不通加血条是个什么想法
 
+
+*****
+
+####  Humpy  
+##### 5823#       发表于 2026-1-27 18:49
+
+血条想法倒是好理解，很多人高端局打多后可能忘了鱼塘低端局的样子：
+1.野排根本没有任何配合，你对枪差点没杀死的人队友多数时候都不会注意到去收残血。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+2.菜鸡玩家玩的时候根本不会注意对方身上异色墨点的数量，基本就是“动？打！”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+3.长时间看纯色墨水可能跑出来个人都看不清在哪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然这个血条ui确实太丑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 5824#       发表于 2026-1-27 18:55
+
+久违上app看了看，铁球连7000都没到，这金章还有得肝
+

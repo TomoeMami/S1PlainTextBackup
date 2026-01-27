@@ -403,3 +403,19 @@ BR跟箱子斗争时间能成立是因为有不确定会不会落地就开打的
 
 现在在线就剩1w1了，感觉褒姒的有点快<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  frankCC  
+##### 42#       发表于 2026-1-27 18:57
+
+<img src="https://img.stage1st.com/forum/202601/27/185619ch5yd8fh2zey34ye.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (63.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-27 18:56 上传
+
+这玩意锁国区的情况下，简中竟然是好评率最高的语言。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
