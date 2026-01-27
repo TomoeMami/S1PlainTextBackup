@@ -89,3 +89,13 @@ leon和grace对话时有个小细节，leon说自己是DSO的人时，grace紧�
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69094750&amp;ptid=2252759" target="_blank">kalavinka 发表于 2026-1-27 13:09</a></blockquote>
 结果游戏出来大家一看原来是雪莉<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  siansian  
+##### 533#       发表于 2026-1-27 13:30
+
+ 本帖最后由 siansian 于 2026-1-27 13:32 编辑 
+
+fami通访谈里提到一个很有意思的地方，电锯僵尸被击倒后电锯仍会爬行，其他僵尸可捡起电锯当武器
+
