@@ -429,3 +429,14 @@ BR跟箱子斗争时间能成立是因为有不确定会不会落地就开打的
 这玩意锁国区的情况下，简中竟然是好评率最高的语言。</blockquote>
 锁区还去玩的，本来不就筛选出真爱了吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 44#       发表于 2026-1-27 21:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69095739&amp;ptid=2272985" target="_blank">Wounds 发表于 2026-1-27 16:00</a>
+
+这个神必卖相还有不少人愿意去下来玩已经比90%的游戏强上800个星鸣特工了，多少免费游戏宣发拉满都没这个 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那些免费游戏也打不出apex原班人马的广告啊，还上tga呢
+
