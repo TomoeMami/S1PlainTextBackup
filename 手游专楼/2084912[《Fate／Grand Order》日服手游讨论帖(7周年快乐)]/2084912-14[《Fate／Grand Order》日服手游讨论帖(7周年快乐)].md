@@ -767,3 +767,11 @@ alucardcz 发表于 2026-1-22 18:36
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  岸浪白野  
+##### 20473#       发表于 2026-1-27 17:31
+
+比以前泡温泉照搬立绘进步了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/30/e7690d9d3db7eb6799b1d4ea630ffb8d/image.jpg" referrerpolicy="no-referrer">
+

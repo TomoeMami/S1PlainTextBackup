@@ -54,3 +54,11 @@
 
 我真是个笨蛋<img src="https://static.stage1st.com/image/smiley/carton2017/091.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒜人  
+##### 2448#       发表于 2026-1-27 17:33
+
+战斗不会画，同床不会画，伊右群你该当何罪
+
