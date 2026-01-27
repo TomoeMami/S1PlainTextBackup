@@ -1721,3 +1721,14 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 
 懂了，红胡子腓特烈必秒金闪闪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  7do  
+##### 762#       发表于 2026-1-27 23:52
+
+哦哦报了真名<img src="https://static.stage1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+你谁啊没听过<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
