@@ -1505,3 +1505,21 @@ fgo我一直云的剧情，没玩，但是fgom里是a++，也是经典贴吧论�
 谁叫闪大王强化了那么多次也没有神域近战呢，那被士郎拉进UBW贴脸打近战可不是就只能被腐乳了毕竟红A近战 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没喂招也有投影装填这种变态玩意，面板技术都能复制打闪大王不是随便打
 
+
+*****
+
+####  leonardydd  
+##### 744#       发表于 2026-1-27 09:57
+
+魔法少女里牢闪开大输了一次，虽然对方是氪命。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 745#       发表于 2026-1-27 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69093397&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-1-27 09:47</a>
+
+没喂招也有投影装填这种变态玩意，面板技术都能复制打闪大王不是随便打 ...</blockquote>
+投影装填好像是HF麒麟臂士郎用的吧，估计和大冒险的阴间亚种幻崩一样属于高阶应用了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
