@@ -1594,3 +1594,16 @@ fe主要是重制版已经快到了，可以缓缓
 
 警察哥的逼格断崖式下跌 刚开播的时候搞得还很装笑死
 
+
+*****
+
+####  シャル  
+##### 752#       发表于 2026-1-27 19:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69092443&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-1-26 22:08</a>
+
+ulw和亚种幻崩阴间程度比ubw剑雨和投影装填这种偏正面的用法的实用多了，特别是ulw这种超容易初见杀的 ...</blockquote>
+还是不如黑A这种阴啊
+
+在人体内开ubw<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
