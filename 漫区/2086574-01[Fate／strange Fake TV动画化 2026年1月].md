@@ -1742,3 +1742,11 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 
 应该给他分配远坂凛看看孝心<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纯夏  
+##### 764#       发表于 2026-1-28 07:01
+
+这个FSF的闪闪越看越喜欢 智商在线 战术合理 像个正常的英雄王<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
