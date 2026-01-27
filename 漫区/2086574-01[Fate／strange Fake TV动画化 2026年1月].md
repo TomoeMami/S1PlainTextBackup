@@ -1572,3 +1572,17 @@ fe主要是重制版已经快到了，可以缓缓
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  stmule  
+##### 750#       发表于 2026-1-27 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69011615&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-1-11 20:34</a>
+首先现在宝石翁设定也是自相矛盾
+
+武：澤爾里奇在Fate的世界也是吸血種吧？</blockquote>
+宝石翁在魔法少女伊莉雅里也有啊，红宝石蓝宝石就是他做的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
