@@ -318,3 +318,18 @@ LEON路線都是之後的再之後繞路回來
 
 所以敵人配置都是一樣
 
+
+*****
+
+####  フィオルン  
+##### 553#       发表于 2026-1-27 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69097390&amp;ptid=2252759" target="_blank">eilot 发表于 2026-1-27 21:58</a>
+
+樂觀一點
+
+可能學當年老生2的表里關設計
+
+老生2的2人的表和里的地圖大多一樣，但部份內容就完全不同</blockquote>
+这不就是鬼泣4嘛，真要这么玩么
+
