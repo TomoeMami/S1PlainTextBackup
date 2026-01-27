@@ -1684,3 +1684,13 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 大帝你要是开王军直接大军包围闪大王不是随便打，列阵冲锋傻了吧</blockquote>
 理解一下古代将领吧，我们是真没见过立体战术。 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wlhlz  
+##### 758#       发表于 2026-1-27 20:23
+
+菲特这种字面意思上关公战秦琼的作品，恕我直言最大的价值本来就是战力厨论战<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
