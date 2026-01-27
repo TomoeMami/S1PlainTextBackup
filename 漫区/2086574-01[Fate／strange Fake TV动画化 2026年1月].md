@@ -1732,3 +1732,13 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ardente  
+##### 763#       发表于 2026-1-28 05:01
+
+金闪闪只有让女人带着的时候才会比较拟人
+
+应该给他分配远坂凛看看孝心<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
