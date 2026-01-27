@@ -1694,3 +1694,14 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  洛克萨斯  
+##### 759#       发表于 2026-1-27 20:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69096970&amp;ptid=2086574" target="_blank">亚历山大帝 发表于 2026-1-27 20:13</a>
+
+理解一下古代将领吧，我们是真没见过立体战术。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">控制对方入场位置就是固有结界基本功啊，你花园打哈桑才用过，打闪大王还是太有底线了
+
