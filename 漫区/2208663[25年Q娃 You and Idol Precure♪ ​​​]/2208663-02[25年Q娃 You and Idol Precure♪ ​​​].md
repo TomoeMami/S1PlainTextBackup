@@ -439,3 +439,13 @@ A Part要给Boss自问自答说明理由，解开封印，变身，收拾掉Boss
 
 蓝紫都挺路人的，然后想了想，普莉伦也挺路人
 
+
+*****
+
+####  我吃诗人  
+##### 1596#       发表于 2026-1-27 13:05
+
+一怒之下打了4分
+
+然后一看评分比例，我居然是最不极端的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
