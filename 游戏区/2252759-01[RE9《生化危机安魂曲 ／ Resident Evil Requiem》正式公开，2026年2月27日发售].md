@@ -80,3 +80,12 @@ leon和grace对话时有个小细节，leon说自己是DSO的人时，grace紧�
 
 2026-1-27 13:09 上传
 
+
+*****
+
+####  黑夜守望者  
+##### 532#       发表于 2026-1-27 13:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69094750&amp;ptid=2252759" target="_blank">kalavinka 发表于 2026-1-27 13:09</a></blockquote>
+结果游戏出来大家一看原来是雪莉<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
