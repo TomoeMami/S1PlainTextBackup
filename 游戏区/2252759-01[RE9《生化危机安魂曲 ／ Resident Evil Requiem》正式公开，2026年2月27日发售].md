@@ -210,3 +210,28 @@ re2的里昂和克莱尔线流程几乎一致啊，主要是表里线的区别�
 
 人物有性能差异，只有两个人的小爆发嘛，正好格蕾丝妈妈就是爆发的人物
 
+
+*****
+
+####  Chao  
+##### 545#       发表于 2026-1-27 15:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69095562&amp;ptid=2252759" target="_blank">相棒 发表于 2026-1-27 15:27</a>
+
+里昂已经超神了，害怕电锯老祖，战胜电锯老祖，成为电锯老祖！</blockquote>
+这个成就恶灵附身2的塞巴斯蒂安已经达成了
+
+根据试玩解说，这次电锯有多种用法，可以平砍可以设置地雷可以投掷可以当自爆卡车，其他丧失也能捡起来用。电锯开会了。
+
+*****
+
+####  nagitoY  
+##### 546#       发表于 2026-1-27 15:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69095514&amp;ptid=2252759" target="_blank">血狂毘沙门 发表于 2026-1-27 15:21</a>
+
+这次两个角色的流程区别应该就体现在角色本身性能上了
+
+最新的媒体试玩视频里有几段明显是用不同角色走完全 ...</blockquote>
+地图和敌人复用看出来了，路线应该不同吧。不然那也太无聊了。
+
