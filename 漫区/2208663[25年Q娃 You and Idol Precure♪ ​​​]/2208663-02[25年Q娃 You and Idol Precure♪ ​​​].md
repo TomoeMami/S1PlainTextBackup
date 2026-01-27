@@ -404,3 +404,11 @@ A Part要给Boss自问自答说明理由，解开封印，变身，收拾掉Boss
 宠物真的是q娃哥查德<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 可偶像 现在可没有什么东西来洗地
 
+
+*****
+
+####  codezwei  
+##### 1592#       发表于 2026-1-27 10:49
+
+偶像的音乐和人设至少都是顶级的，正片直到梅洛伦洗白前还是很给力的，最多算后劲不足，哪有你们说的这么糟糕，被小黑子气晕<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
