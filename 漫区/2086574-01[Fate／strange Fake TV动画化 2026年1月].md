@@ -1713,3 +1713,11 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 
 整体打得还挺好看
 
+
+*****
+
+####  大耳兽  
+##### 761#       发表于 2026-1-27 23:46
+
+懂了，红胡子腓特烈必秒金闪闪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
