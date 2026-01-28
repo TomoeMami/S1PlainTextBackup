@@ -79,3 +79,13 @@ pvp的飞鸟不会开mp<img src="https://static.stage1st.com/image/smiley/face20
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  洛克萨斯  
+##### 3556#       发表于 2026-1-28 09:13
+
+第一次打够20w，王牌队舒服啊
+
+阵容：神（机师多蒙），sf（一星，机师辅助鸟），命运（一星，机师攻击鸟），雷金雷兹sp（机师蝴蝶女lv90），巴巴托斯（2星，机师约拿）
+
