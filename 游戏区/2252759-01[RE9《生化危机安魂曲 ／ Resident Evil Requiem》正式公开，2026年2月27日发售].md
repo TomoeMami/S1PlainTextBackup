@@ -518,3 +518,13 @@ RE2里第一天上班从开超市门到爆丧尸头救下克莱尔用了5秒
 
 看來一些大型武器是不能收納，而且棄置後其他人就能用到
 
+
+*****
+
+####  cangyuyao  
+##### 566#       发表于 2026-1-28 12:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69035688&amp;ptid=2252759" target="_blank">cangyuyao 发表于 2026-1-16 12:43</a>
+体术动画观感有点不自然，不知道是不是为了第一视角好看</blockquote>
+实机：生6重制就在后台让我们把它请出来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
