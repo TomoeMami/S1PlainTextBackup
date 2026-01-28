@@ -528,3 +528,11 @@ RE2里第一天上班从开超市门到爆丧尸头救下克莱尔用了5秒
 体术动画观感有点不自然，不知道是不是为了第一视角好看</blockquote>
 实机：生6重制就在后台让我们把它请出来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mikumiku831  
+##### 567#       发表于 2026-1-28 15:45
+
+不管怎么样开头的演出就是灾难   都30年老兵了反应这么慢就离谱
+
