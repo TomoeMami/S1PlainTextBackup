@@ -309,3 +309,13 @@ FF7第三部要来了吗</blockquote>
 古墓11本体和demo都收到退款邮件了</blockquote>
 我还是没有，早上出门1上班前还试了下，可以运行
 
+
+*****
+
+####  duo_wolf  
+##### 483#       发表于 2026-1-28 10:56
+
+我也被退款了，收到邮件，库里也没了，试玩版也一起退有点幽默的。
+
+趴在地上想了一下，会不会是玩过的话他就不退了，没有玩过的就给你退了？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
