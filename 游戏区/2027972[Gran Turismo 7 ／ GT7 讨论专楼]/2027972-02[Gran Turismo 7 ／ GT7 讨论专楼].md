@@ -38,3 +38,37 @@
 
 ？明天上么，到时候上去试试，山内搞个电车大战啊，不过你游好像没几台性能电车
 
+
+*****
+
+####  Totokei  
+##### 1989#       发表于 2026-1-28 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69102090&amp;ptid=2027972" target="_blank">洛克萨斯 发表于 2026-1-28 21:24</a>
+
+？明天上么，到时候上去试试，山内搞个电车大战啊，不过你游好像没几台性能电车 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说个笑话，你游现代性能轿车只有电车
+
+taycan ps5还有准备进来的小米
+
+
+*****
+
+####  洛克萨斯  
+##### 1990#       发表于 2026-1-28 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69102142&amp;ptid=2027972" target="_blank">Totokei 发表于 2026-1-28 21:37</a>
+
+说个笑话，你游现代性能轿车只有电车
+
+taycan ps5还有准备进来的小米</blockquote>
+taycan只是基础版吧，没有tgt
+
+我记得有台特斯拉，忘了是不是3p
+
+现代艾尼氪5n
+
+算上明天进来的su7u
+
+............好少
+
