@@ -1874,3 +1874,25 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 
 第四集niconico评分
 
+
+*****
+
+####  usodakedo  
+##### 776#       发表于 2026-1-28 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69098505&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-1-28 09:16</a>
+不是，是因为恩奇都被召唤了他心情比较好（外置大脑上线了），加上fha给他洗白加了个孩子王的设定，对这 ...</blockquote>
+其实fha给他加孩子王设定相当地狱，毕竟fsn本篇他是吸小孩子电池的，不过事到如今，只能把闪闪不断切割了，一个版本一个闪<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  洛克萨斯  
+##### 777#       发表于 2026-1-28 14:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69100306&amp;ptid=2086574" target="_blank">usodakedo 发表于 2026-1-28 14:56</a>
+
+其实fha给他加孩子王设定相当地狱，毕竟fsn本篇他是吸小孩子电池的，不过事到如今，只能把闪闪不断切割了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">越是孝顺越是难绷
+
