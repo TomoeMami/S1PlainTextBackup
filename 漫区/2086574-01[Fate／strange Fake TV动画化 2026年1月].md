@@ -1826,3 +1826,11 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 不过剑豪章确实难玩也难看 ...</blockquote>
 我的意思是弃坑很久了，所以记不得了，不是没经历过那章。
 
+
+*****
+
+####  pokemon最爱  
+##### 772#       发表于 2026-1-28 13:39
+
+英灵剑豪七番胜负唯一的亮点就是村正<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
