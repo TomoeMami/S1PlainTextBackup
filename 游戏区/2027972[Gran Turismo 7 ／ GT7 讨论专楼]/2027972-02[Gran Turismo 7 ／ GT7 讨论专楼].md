@@ -72,3 +72,18 @@ taycan只是基础版吧，没有tgt
 
 ............好少
 
+
+*****
+
+####  Totokei  
+##### 1991#       发表于 2026-1-28 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69102161&amp;ptid=2027972" target="_blank">洛克萨斯 发表于 2026-1-28 21:40</a>
+
+taycan只是基础版吧，没有tgt
+
+我记得有台特斯拉，忘了是不是3p
+
+现代艾尼氪5n</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">taycan是初代的turbo s，只是没更新而已
+
