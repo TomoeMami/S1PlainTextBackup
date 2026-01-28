@@ -240,3 +240,13 @@ FF7第三部要来了吗
 FF7第三部要来了吗</blockquote>
 怎么可能，今年东京电玩节吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cmnewfan  
+##### 476#       发表于 2026-1-28 07:48
+
+牢索已经把临时工送的古墓丽影暗影收回去了。
+
+—— 来自 vivo V2303A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
