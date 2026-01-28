@@ -1781,3 +1781,24 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 
 唯一觉得还可以的闪是fgo第六章的c闪，人确实不错，至少不会随地乱丢垃圾了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  消防  
+##### 768#       发表于 2026-1-28 12:33
+
+<blockquote>大耳兽 发表于 2026-1-28 10:33
+唯一觉得还可以的闪是fgo第六章的c闪，人确实不错，至少不会随地乱丢垃圾了。
+
+而且讲道理，就知名度而言的 ...</blockquote>
+虽然但是，六章是亚瑟王和圆桌主场，1.7才是闪闪
+
+*****
+
+####  大耳兽  
+##### 769#       发表于 2026-1-28 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69099633&amp;ptid=2086574" target="_blank">消防 发表于 2026-1-28 12:33</a>
+虽然但是，六章是亚瑟王和圆桌主场，1.7才是闪闪</blockquote>
+记岔了，之前玩到剑豪生死斗就弃坑了。
+
