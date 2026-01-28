@@ -588,3 +588,20 @@ RE2里第一天上班从开超市门到爆丧尸头救下克莱尔用了5秒
 
 —— 来自 vivo V2436A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  eilot  
+##### 574#       发表于 2026-1-28 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69101115&amp;ptid=2252759" target="_blank">u2deack 发表于 2026-1-28 17:33</a>
+
+反正生化打折很快的，基本半年7折一年半价两年骨折，卡婊也就这点对等等党算是有良心 ...</blockquote>
+現在生化系列還是會玩DLC，和多種大中小規模內容更新
+
+優化方面反而不用太擔心
+
+這半年甚至一年真是值得去等的
+
+打折多，一年後甚至可能有DLC出了更會永久降價也不出奇
+
