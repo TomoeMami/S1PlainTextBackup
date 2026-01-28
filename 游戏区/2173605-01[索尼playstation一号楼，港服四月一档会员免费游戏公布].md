@@ -366,3 +366,11 @@ FF7第三部要来了吗</blockquote>
 上周我看国行pro在pdd用v3券可以3900这样买到.日版4300</blockquote>
 刚刚又刷出来个4400的国行，感觉也还行，跟3900是没法比了<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  clyde-wang  
+##### 489#       发表于 2026-1-28 11:39
+
+卧槽，不会我的号要被封了吧？我到现在还是没收到暗影的退款信息
+
