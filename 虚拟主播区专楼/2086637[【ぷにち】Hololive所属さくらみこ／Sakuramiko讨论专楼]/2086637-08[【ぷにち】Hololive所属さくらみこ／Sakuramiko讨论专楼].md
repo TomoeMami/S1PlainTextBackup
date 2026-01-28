@@ -80,3 +80,22 @@
 
 人的确比3年前都少了。今天一看人就那么点是能真实感觉到她不行了
 
+
+*****
+
+####  holofan  
+##### 11445#       发表于 2026-1-27 23:50
+
+人少不是因为最近，是切换到ps版以后就没人了，本来ps版gta就没人玩剩下来的都是核心粉才愿意跟过来换平台，今天又是无预告突击直播，能凑个10来人直播成立就万岁了，这些年ps版的直播参加人最多的时候也就二三十人
+
+*****
+
+####  rs5621  
+##### 11446#       发表于 2026-1-28 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69097672&amp;ptid=2086637" target="_blank">holofan 发表于 2026-1-27 23:23</a>
+这次周边我单买的杯子和玩偶果然是卖得最好的两个</blockquote>
+图呢，买了不发出来不就是白买了么
+
+—— 来自 vivo V2509A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
