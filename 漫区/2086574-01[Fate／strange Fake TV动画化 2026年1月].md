@@ -1814,3 +1814,15 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 
 不过剑豪章确实难玩也难看
 
+
+*****
+
+####  大耳兽  
+##### 771#       发表于 2026-1-28 13:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69099696&amp;ptid=2086574" target="_blank">消防 发表于 2026-1-28 12:45</a>
+剑豪生死斗还在第一部之后，第二部开始前拖时间塞的四个章节
+
+不过剑豪章确实难玩也难看 ...</blockquote>
+我的意思是弃坑很久了，所以记不得了，不是没经历过那章。
+
