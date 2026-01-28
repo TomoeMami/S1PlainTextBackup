@@ -409,3 +409,15 @@ FF7第三部要来了吗</blockquote>
 由手机上传
 2026-1-28 21:16 上传
 
+
+*****
+
+####  csolfans  
+##### 493#       发表于 2026-1-28 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69099260&amp;ptid=2173605" target="_blank">渡边加奈子 发表于 2026-1-28 11:17</a>
+上周我看国行pro在pdd用v3券可以3900这样买到.日版4300</blockquote>
+上周？确定不是月初吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
