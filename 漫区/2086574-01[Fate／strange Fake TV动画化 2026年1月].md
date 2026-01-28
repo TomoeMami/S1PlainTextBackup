@@ -1896,3 +1896,11 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 其实fha给他加孩子王设定相当地狱，毕竟fsn本篇他是吸小孩子电池的，不过事到如今，只能把闪闪不断切割了 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">越是孝顺越是难绷
 
+
+*****
+
+####  yangun22  
+##### 778#       发表于 2026-1-28 15:42
+
+其实喜欢养狗和喜欢吃狗肉不矛盾
+
