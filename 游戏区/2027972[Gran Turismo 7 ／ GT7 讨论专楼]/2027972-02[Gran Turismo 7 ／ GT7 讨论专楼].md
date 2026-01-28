@@ -87,3 +87,29 @@ taycan只是基础版吧，没有tgt
 现代艾尼氪5n</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">taycan是初代的turbo s，只是没更新而已
 
+
+*****
+
+####  洛克萨斯  
+##### 1992#       发表于 2026-1-28 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69102182&amp;ptid=2027972" target="_blank">Totokei 发表于 2026-1-28 21:48</a>
+
+taycan是初代的turbo s，只是没更新而已</blockquote>
+挺想开一次波子泰坎tgt的，毕竟这玩意现实里摸不到哈哈哈，看看过弯是不是真的那么牛逼<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 1993#       发表于 2026-1-28 21:57
+
+<img src="https://img.stage1st.com/forum/202601/28/215704i799dh4cb7zitenr.png" referrerpolicy="no-referrer">
+
+<strong>_7%UB~ZD4_D3KU_BVKQ6V9G.png</strong> (126.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-28 21:57 上传
+
+内饰连车机的ui都做进去了
+
