@@ -483,3 +483,38 @@ LEON路線都是之後的再之後繞路回來
 我今天一早已经看到好几个视频在讨论这次演示的过场分镜应该如何调整才可以让护士被锯那段里的里昂显得没那 ...</blockquote>
 那段真的搞笑，一个混了快三十年的老油条就那么看着杂兵走过来把人弄死<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Chao  
+##### 564#       发表于 2026-1-28 11:08
+
+有人作了比较
+
+丧尸出现到电锯人用15秒
+
+就算从拉锯到电锯人也要用5秒
+
+RE2里第一天上班从开超市门到爆丧尸头救下克莱尔用了5秒
+
+结论是30年资深特工反应不如第一天上班片警<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eilot  
+##### 565#       发表于 2026-1-28 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69099212&amp;ptid=2252759" target="_blank">Chao 发表于 2026-1-28 11:08</a>
+
+有人作了比较
+
+丧尸出现到电锯人用15秒
+
+就算从拉锯到电锯人也要用5秒</blockquote>
+反而是今次电锯看來是大家都能用
+
+先是电锯人出來被LEON搶了後用了數下就丟了，但轉頭另一位女喪屍就拾起來使用
+
+看來一些大型武器是不能收納，而且棄置後其他人就能用到
+
