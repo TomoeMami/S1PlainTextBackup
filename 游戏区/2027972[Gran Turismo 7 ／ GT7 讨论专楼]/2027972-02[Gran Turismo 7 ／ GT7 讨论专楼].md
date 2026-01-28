@@ -22,3 +22,11 @@
 看了对比图，怎么感觉搞不好是 3YC</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在官宣了会有小米和u9加入的前提下突然杀出个比亚迪汉还是有点太抽象的
 
+
+*****
+
+####  crosz1985  
+##### 1987#       发表于 2026-1-28 21:12
+
+【首台中国品牌车型：小米 SU7 Ultra 正式上线 Gran Turismo 7 / 跑车浪漫旅 7】小米汽车官方今日宣布，北京时间 1 月 29 日 14:00，小米 SU7 Ultra 正式上线 Gran Turismo 7 / 跑车浪漫旅 7（此处预计指《GT 赛车 7》），是首台上线的中国品牌车型。#小米SU7Ultra# ​​​
+
