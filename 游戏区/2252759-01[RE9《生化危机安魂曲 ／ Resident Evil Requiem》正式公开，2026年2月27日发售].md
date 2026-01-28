@@ -641,3 +641,11 @@ RE2里第一天上班从开超市门到爆丧尸头救下克莱尔用了5秒
 4的体验不是那么好复刻出来的，对里昂线只能说谨慎期待。女主线应该没啥问题，氛围到了资源管理有了玩家体 ...</blockquote>
 相反<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我只担心女主线会不会做成寂静岭那种步行解谜模拟器，里昂线只用来战斗调剂
 
+
+*****
+
+####  pentacles  
+##### 579#       发表于 2026-1-28 22:08
+
+鬼泣5：first time？
+
