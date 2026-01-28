@@ -576,3 +576,15 @@ RE2里第一天上班从开超市门到爆丧尸头救下克莱尔用了5秒
 
 刚看完实机演示。。。只能说4/RE还是太NB。。9我也准备当等等党了
 
+
+*****
+
+####  qappip  
+##### 573#       发表于 2026-1-28 18:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69095708&amp;ptid=2252759" target="_blank">nagitoY 发表于 2026-1-27 15:53</a>
+地图和敌人复用看出来了，路线应该不同吧。不然那也太无聊了。</blockquote>
+他的小号已经玩过重新走一遍的套路了，卡表完全有理由干的出来
+
+—— 来自 vivo V2436A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
