@@ -1750,3 +1750,16 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 
 这个FSF的闪闪越看越喜欢 智商在线 战术合理 像个正常的英雄王<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 765#       发表于 2026-1-28 09:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69098120&amp;ptid=2086574" target="_blank">ardente 发表于 2026-1-28 05:01</a>
+
+金闪闪只有让女人带着的时候才会比较拟人
+
+应该给他分配远坂凛看看孝心</blockquote>
+不是，是因为恩奇都被召唤了他心情比较好（外置大脑上线了），加上fha给他洗白加了个孩子王的设定，对这次态度很好的御主也不讨厌
+
