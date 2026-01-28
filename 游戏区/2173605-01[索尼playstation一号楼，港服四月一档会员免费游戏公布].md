@@ -250,3 +250,17 @@ FF7第三部要来了吗</blockquote>
 
 —— 来自 vivo V2303A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  clyde-wang  
+##### 477#       发表于 2026-1-28 08:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69098251&amp;ptid=2173605" target="_blank">cmnewfan 发表于 2026-1-28 07:48</a>
+牢索已经把临时工送的古墓丽影暗影收回去了。
+
+—— 来自 vivo V2303A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+<img src="https://p.sda1.dev/30/1d1dd93ce65701a387350a305960b2ce/image.jpg" referrerpolicy="no-referrer">
+
+没有啊，还在我库里啊
+
