@@ -355,3 +355,14 @@ FF7第三部要来了吗</blockquote>
 话说现在PRO好价是多少，之前多多好像有4299的国行版，现在没有了，本来明年的PC升级计划因为DIY大涨价也吹 ...</blockquote>
 上周我看国行pro在pdd用v3券可以3900这样买到.日版4300
 
+
+*****
+
+####  a2042312  
+##### 488#       发表于 2026-1-28 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69099260&amp;ptid=2173605" target="_blank">渡边加奈子 发表于 2026-1-28 11:17</a>
+
+上周我看国行pro在pdd用v3券可以3900这样买到.日版4300</blockquote>
+刚刚又刷出来个4400的国行，感觉也还行，跟3900是没法比了<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
