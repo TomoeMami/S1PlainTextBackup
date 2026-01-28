@@ -49,3 +49,14 @@
 
 次抛最后通牒有点意思，就是不知道一次下来一个还是两个
 
+
+*****
+
+####  赤井稻妻  
+##### 7282#       发表于 2026-1-28 09:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69098371&amp;ptid=2170852" target="_blank">ykyin09 发表于 2026-1-28 08:48</a>
+
+次抛最后通牒有点意思，就是不知道一次下来一个还是两个</blockquote>
+肯定是一个，cd还会很长，箭头平衡法是这样的
+
