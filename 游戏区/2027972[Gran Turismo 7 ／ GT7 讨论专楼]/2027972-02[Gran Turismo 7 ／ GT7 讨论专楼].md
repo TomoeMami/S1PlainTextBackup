@@ -141,3 +141,11 @@ taycan是初代的turbo s，只是没更新而已</blockquote>
 
 第二场P2起跑，雨天进站后一路隔着两三秒的差距斗到底最后完赛<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  byisme001  
+##### 1996#       发表于 2026-1-29 00:08
+
+只有量产 没原型车啊
+
