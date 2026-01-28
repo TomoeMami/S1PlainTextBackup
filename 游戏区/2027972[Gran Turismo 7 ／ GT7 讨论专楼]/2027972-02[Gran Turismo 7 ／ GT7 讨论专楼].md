@@ -113,3 +113,13 @@ taycan是初代的turbo s，只是没更新而已</blockquote>
 
 内饰连车机的ui都做进去了
 
+
+*****
+
+####  一个陆仁贾  
+##### 1994#       发表于 2026-1-28 22:40
+
+毕竟给了制作组一辆车用了大半年了，就是不知道算买的还是借的还是送的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
