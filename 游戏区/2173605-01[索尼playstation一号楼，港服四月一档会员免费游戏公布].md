@@ -448,3 +448,15 @@ FF7第三部要来了吗</blockquote>
 2月会面</blockquote>
 这个月真TM拉垮<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DioxinsX  
+##### 496#       发表于 2026-1-29 05:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69099165&amp;ptid=2173605" target="_blank">a2042312 发表于 2026-1-28 11:00</a>
+话说现在PRO好价是多少，之前多多好像有4299的国行版，现在没有了，本来明年的PC升级计划因为DIY大涨价也吹 ...</blockquote>
+我也是首发国行版，没感觉会坏啊，你的机器已经有要坏了的征兆吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
