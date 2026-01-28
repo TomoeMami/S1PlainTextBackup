@@ -1834,3 +1834,27 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 
 英灵剑豪七番胜负唯一的亮点就是村正<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黄泉川此方  
+##### 773#       发表于 2026-1-28 13:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小说看完全忘了，看动画渐渐响起哦好像是有这么一回事
+
+顺便确实和小说一样，反正就是打起来了，大家装个逼，然后切镜头继续装逼就完事了
+
+*****
+
+####  wangandh  
+##### 774#       发表于 2026-1-28 13:57
+
+<blockquote>シャル 发表于 2026-1-3 21:44
+现在看起来，FS的伊斯塔实力真的牛逼的
+
+能从第0异闻带把天之公牛带出来
+</blockquote>
+那玩意本来也没说是fgo拐来的
+
+纯属成田故意营造了这么一种氛围而已
+
