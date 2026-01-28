@@ -290,3 +290,22 @@ FF7第三部要来了吗</blockquote>
 
 问下，春节psn会员会打折吗，折扣力度有多大？
 
+
+*****
+
+####  clyde-wang  
+##### 481#       发表于 2026-1-28 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69098320&amp;ptid=2173605" target="_blank">袄_偶滴小乔 发表于 2026-1-28 08:32</a>
+看看邮箱</blockquote>
+没有，我邮箱里目前还没有收到退款的信息
+
+*****
+
+####  clyde-wang  
+##### 482#       发表于 2026-1-28 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69098468&amp;ptid=2173605" target="_blank">黑猫软 发表于 2026-1-28 09:11</a>
+古墓11本体和demo都收到退款邮件了</blockquote>
+我还是没有，早上出门1上班前还试了下，可以运行
+
