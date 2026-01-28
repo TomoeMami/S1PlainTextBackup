@@ -1773,3 +1773,11 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  大耳兽  
+##### 767#       发表于 2026-1-28 10:33
+
+唯一觉得还可以的闪是fgo第六章的c闪，人确实不错，至少不会随地乱丢垃圾了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+

@@ -472,3 +472,14 @@ LEON路線都是之後的再之後繞路回來
 
 我今天一早已经看到好几个视频在讨论这次演示的过场分镜应该如何调整才可以让护士被锯那段里的里昂显得没那么迟钝/冷无缺<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灵魂收割机  
+##### 563#       发表于 2026-1-28 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69098840&amp;ptid=2252759" target="_blank">Muteki_Link 发表于 2026-1-28 10:09</a>
+
+我今天一早已经看到好几个视频在讨论这次演示的过场分镜应该如何调整才可以让护士被锯那段里的里昂显得没那 ...</blockquote>
+那段真的搞笑，一个混了快三十年的老油条就那么看着杂兵走过来把人弄死<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
