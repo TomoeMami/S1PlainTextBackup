@@ -149,3 +149,14 @@ taycan是初代的turbo s，只是没更新而已</blockquote>
 
 只有量产 没原型车啊
 
+
+*****
+
+####  洛克萨斯  
+##### 1997#       发表于 2026-1-29 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69102675&amp;ptid=2027972" target="_blank">byisme001 发表于 2026-1-29 00:08</a>
+
+只有量产 没原型车啊</blockquote>
+当初说是su7u和小米的vgt两台，没记错的话
+
