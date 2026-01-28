@@ -123,3 +123,21 @@ taycan是初代的turbo s，只是没更新而已</blockquote>
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Totokei  
+##### 1995#       发表于 2026-1-28 23:15
+
+<img src="https://img.stage1st.com/forum/202601/28/231312xldsga2f74a4mdfk.jpg" referrerpolicy="no-referrer">
+
+<strong>跑車浪漫旅® 7_20260128230515_1.jpg</strong> (410.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-28 23:13 上传
+
+今晚跑了GTWS车厂杯的斯帕站，第一场下雨了发现没买雨胎（居然不是强制所有人买齐轮胎的）直接退赛
+
+第二场P2起跑，雨天进站后一路隔着两三秒的差距斗到底最后完赛<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
