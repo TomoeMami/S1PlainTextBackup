@@ -99,3 +99,43 @@
 
 —— 来自 vivo V2509A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  holofan  
+##### 11447#       发表于 2026-1-28 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69099742&amp;ptid=2086637" target="_blank">rs5621 发表于 2026-1-28 12:55</a>
+
+图呢，看看阿泡返图
+
+—— 来自 vivo V2509A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+8个月后发货的玩意我去哪搞图？miko自己都没有样品图还在监修
+
+<img src="https://img.stage1st.com/forum/202601/28/183646hhtb8g8qit4hhj1t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-28 18:36 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rs5621| + 1|原来还没发货|
+
+查看全部评分
+
+*****
+
+####  holofan  
+##### 11448#       发表于 2026-1-28 19:53
+
+其他人都在搞小团体，你们七字母故意不参加原来是为了自己吃独食还行
+
