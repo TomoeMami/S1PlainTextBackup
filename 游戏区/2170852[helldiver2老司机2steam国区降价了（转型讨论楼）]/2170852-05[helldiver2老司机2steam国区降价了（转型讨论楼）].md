@@ -82,3 +82,11 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ykyin09  
+##### 7285#       发表于 2026-1-28 15:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">忽然想到这锤真不会把自己炸死吗？
+
