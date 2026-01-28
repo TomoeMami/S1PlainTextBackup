@@ -440,3 +440,29 @@ BR跟箱子斗争时间能成立是因为有不确定会不会落地就开打的
 这个神必卖相还有不少人愿意去下来玩已经比90%的游戏强上800个星鸣特工了，多少免费游戏宣发拉满都没这个 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那些免费游戏也打不出apex原班人马的广告啊，还上tga呢
 
+
+*****
+
+####  herryk159  
+##### 45#       发表于 2026-1-28 10:05
+
+简介中已经删掉了“由 Apex 和 Titanfall 的开发商制作”这句话.
+
+<img src="https://img.stage1st.com/forum/202601/28/100432rkezgshee1ew1b5j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (223.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-28 10:04 上传
+
+<img src="https://img.stage1st.com/forum/202601/28/100343qkfkzk676wl255xl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (249.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-28 10:03 上传
+
+为什么不加一句，TGA震撼首发？<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
