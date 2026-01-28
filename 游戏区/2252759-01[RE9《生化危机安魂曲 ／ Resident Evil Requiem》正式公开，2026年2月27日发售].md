@@ -434,3 +434,23 @@ LEON路線都是之後的再之後繞路回來
 
 大概后续流程也会无法抑制的变成突突突 只是体术没里昂方便
 
+
+*****
+
+####  yw1  
+##### 559#       发表于 2026-1-28 09:27
+
+这代女主真赞啊～！<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yw1  
+##### 560#       发表于 2026-1-28 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69051739&amp;ptid=2252759" target="_blank">隔壁老黄 发表于 2026-1-19 14:58</a>
+
+生化7当年快发售还不知道居然还有战斗呢，都以为是类似逃生那种
+
+—— 来自 Xiaomi 2410DPN6CC, Android  ...</blockquote>
+生化 7 刚出来时候我记得还有个 VR 版...着实是给我吓死了...
+
