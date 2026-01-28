@@ -775,3 +775,43 @@ alucardcz 发表于 2026-1-22 18:36
 
 比以前泡温泉照搬立绘进步了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/30/e7690d9d3db7eb6799b1d4ea630ffb8d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失落之翼  
+##### 20474#       发表于 2026-1-26 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69077790&amp;ptid=2084912" target="_blank">シャル 发表于 2026-1-23 21:27</a>
+
+蛇妈这宝具，按传说2次以后应该是瞎眼状态，咋即死呢？
+
+不是限定就给的debuff</blockquote>
+应该给个退场效果，比如说鹤小姐那种，直接即死太地狱了
+
+*****
+
+####  jackyhuang  
+##### 20475#       发表于 2026-1-26 18:49
+
+让武则天推荐牡丹也挺地狱的
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  岸浪白野  
+##### 20476#       发表于 2026-1-27 17:31
+
+比以前泡温泉照搬立绘进步了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/30/e7690d9d3db7eb6799b1d4ea630ffb8d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  jackyhuang  
+##### 20477#       发表于 2026-1-28 18:54
+
+新年第一波节奏开始了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你倭的神真没什么吸引力，活动剧情又水的要死
+不过不用看剧情就能打新free倒是好改动
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
