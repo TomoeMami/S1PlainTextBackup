@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 29230,
+    "totalreply": 29231,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》1.15 古德莫宁]",
-    "lastedit": 1769716567,
+    "lastedit": 1769721967,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -17015,6 +17015,15 @@
     "newtitle": "[无双深渊  有点可惜]",
     "lastedit": 1769717649,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2266645": {
+    "totalreply": 81,
+    "title": "[王座易主：Kimi K2 Thinking开源超闭源]",
+    "newtitle": "[王座易主：Kimi K2 Thinking开源超闭源]",
+    "lastedit": 1769721730,
+    "category": "外野",
     "active": true,
     "update": false
   }
