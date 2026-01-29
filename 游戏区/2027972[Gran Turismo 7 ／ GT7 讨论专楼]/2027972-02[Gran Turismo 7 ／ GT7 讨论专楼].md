@@ -189,3 +189,20 @@ taycan是初代的turbo s，只是没更新而已</blockquote>
 在官宣了会有小米和u9加入的前提下突然杀出个比亚迪汉还是有点太抽象的</blockquote>
 好吧是我想多了，山内不至于
 
+
+*****
+
+####  leystage  
+##### 2001#         楼主| 发表于 2026-1-29 15:26
+
+把广告打到全世界 <img src="https://static.stage1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+Unknown.jpg
+(115.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-29 15:26 上传
+
+<img src="https://img.stage1st.com/forum/202601/29/152618maawtajyn24w6y5y.jpg" referrerpolicy="no-referrer">
+
