@@ -466,3 +466,16 @@ BR跟箱子斗争时间能成立是因为有不确定会不会落地就开打的
 
 为什么不加一句，TGA震撼首发？<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泰坦失足  
+##### 46#         楼主| 发表于 2026-1-29 13:38
+
+[https://x.com/pcgamer/status/2015951997472739524](https://x.com/pcgamer/status/2015951997472739524)
+
+@pcgamer
+
+如果没人在你耳边唠叨说 Highguard 不好，那它就挺好的。
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
