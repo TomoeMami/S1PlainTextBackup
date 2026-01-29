@@ -241,3 +241,14 @@ Unknown.jpg
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  洛克萨斯  
+##### 2005#       发表于 2026-1-29 19:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69106929&amp;ptid=2027972" target="_blank">一个陆仁贾 发表于 2026-1-29 18:44</a>
+
+能跑超现实记录那么多秒，是不是默认轮胎给太强了(或者说车手太珍惜生命)</blockquote>
+你游的轮胎好像是米其林吧，赛车软胎应该是光头胎，他记录是用半热熔做的，差距应该在这
+
