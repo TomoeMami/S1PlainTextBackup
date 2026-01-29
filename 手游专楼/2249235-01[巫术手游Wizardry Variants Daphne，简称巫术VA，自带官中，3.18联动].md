@@ -17,3 +17,13 @@ B&amp;B联动复刻加新角 大概是两小只吧</blockquote>
 
 新卡是萨姆来，感觉可以攒着等联动了，希望有精灵牧师<img src="https://static.stage1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 685#       发表于 2026-1-29 19:18
+
+大太刀不给双倍魔力加成<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+对于现在优先吃攻击词条的武士而言，0.65*攻击+0.65*魔力的伤害公式完全是debuff，只能靠武士技能的倍率去补齐和战士的差距
+
