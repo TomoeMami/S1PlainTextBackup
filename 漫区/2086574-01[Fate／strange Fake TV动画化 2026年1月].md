@@ -1970,3 +1970,16 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 狮心王的万物皆可咖喱棒上限只有A+对军，拿着正版咖喱棒也只能打出自己的万物皆可咖喱棒的A+对军威力没办 ...</blockquote>
 懂了。另外这版的教会代理人汉萨战斗力有月姬里咖喱学姐强么？能跟死徒单挑不落下风，肯定是强过fz的麻婆
 
+
+*****
+
+####  pokemon最爱  
+##### 785#       发表于 2026-1-29 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69104115&amp;ptid=2086574" target="_blank">razielzyc 发表于 2026-1-29 10:42</a>
+
+懂了。另外这版的教会代理人汉萨战斗力有月姬里咖喱学姐强么？能跟死徒单挑不落下风，肯定是强过fz的麻婆 ...</blockquote>
+咖喱学姐再丢人也是埋葬机关的一员，不是普通代行者可以碰瓷的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+FZ麻婆并不菜，传说中可以胜过旧版咖喱学姐的麻婆就是FZ74战的令咒麻婆（
+
