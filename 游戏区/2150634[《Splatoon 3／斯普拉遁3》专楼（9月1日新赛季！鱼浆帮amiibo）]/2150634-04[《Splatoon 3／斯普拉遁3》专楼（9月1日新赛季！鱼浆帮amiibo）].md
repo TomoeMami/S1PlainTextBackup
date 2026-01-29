@@ -278,3 +278,15 @@
 
 然后去打了两把工，体感是大佬都去对战试新系统了，工友水平不是低了一星半点，连着两拨w1团灭<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeroblast  
+##### 5834#       发表于 2026-1-29 14:56
+
+感觉没有特别明显的变化。
+
+血条出现时间短可以不用在意。
+
+常用短手很容易拿心流但依旧容易死。
+
