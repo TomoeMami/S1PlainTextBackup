@@ -218,3 +218,26 @@ Unknown.jpg
 
 看目前反馈是车很重，刹车要早，基本和现实情况差不多
 
+
+*****
+
+####  一个陆仁贾  
+##### 2003#       发表于 2026-1-29 18:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69102810&amp;ptid=2027972" target="_blank">袄_偶滴小乔 发表于 2026-1-29 01:22</a>
+没有拉花和风味挖孔引擎盖吗</blockquote>
+<img src="https://p.sda1.dev/30/2dc92b2f9887f57b732dde6bd202189a/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  一个陆仁贾  
+##### 2004#       发表于 2026-1-29 18:44
+
+能跑超现实记录那么多秒，是不是默认轮胎给太强了(或者说车手太珍惜生命<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+在线计时赛居然给跑蒙扎而不是纽博格林
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
