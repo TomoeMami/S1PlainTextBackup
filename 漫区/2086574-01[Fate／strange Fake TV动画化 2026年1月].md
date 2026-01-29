@@ -1923,3 +1923,11 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 一口气追到第四话。质量出乎意料的高。作画演出绝对是顶级了。所以fsf的理查德男saber能碰瓷fsn的亚瑟王女s ...</blockquote>
 不能，狮心王算一流，呆毛是top
 
+
+*****
+
+####  大耳兽  
+##### 781#       发表于 2026-1-29 10:27
+
+想到一件事情，比起说fsn闪闪没出全力，不如说大狗一直没出过全力<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，都怪麻婆。
+
