@@ -2049,3 +2049,16 @@ fsn和fz的麻婆比实力有没有退步啊，照道理来说十年里身体的
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  razielzyc  
+##### 792#       发表于 2026-1-29 14:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69104353&amp;ptid=2086574" target="_blank">pokemon最爱 发表于 2026-1-29 11:14</a>
+
+咖喱学姐再丢人也是埋葬机关的一员，不是普通代行者可以碰瓷的
+
+FZ麻婆并不菜，传说中可以胜过旧版咖喱学 ...</blockquote>
+月姬里表现没有那么强，反倒是后面月姬格斗表现力还算可以。但不得不说，fsf的汉萨表现力确实够强。
+
