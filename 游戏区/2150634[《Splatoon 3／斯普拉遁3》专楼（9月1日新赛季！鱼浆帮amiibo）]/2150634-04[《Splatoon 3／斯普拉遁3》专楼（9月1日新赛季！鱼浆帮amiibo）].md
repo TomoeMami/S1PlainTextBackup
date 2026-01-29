@@ -266,3 +266,15 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5833#       发表于 2026-1-29 14:45
+
+打了一个多小时，蹭到了2次心流，体验还算不错，重刷用起来太爽
+
+血条对我来说还是可有可无的系统，ttk太短了实际作用很小，也没见过队友帮忙收残血的
+
+然后去打了两把工，体感是大佬都去对战试新系统了，工友水平不是低了一星半点，连着两拨w1团灭<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
