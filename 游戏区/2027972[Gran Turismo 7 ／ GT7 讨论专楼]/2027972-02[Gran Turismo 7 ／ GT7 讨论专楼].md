@@ -252,3 +252,18 @@ Unknown.jpg
 能跑超现实记录那么多秒，是不是默认轮胎给太强了(或者说车手太珍惜生命)</blockquote>
 你游的轮胎好像是米其林吧，赛车软胎应该是光头胎，他记录是用半热熔做的，差距应该在这
 
+
+*****
+
+####  nice女武神  
+##### 2006#       发表于 2026-1-29 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69106629&amp;ptid=2027972" target="_blank">洛克萨斯 发表于 2026-1-29 17:44</a>
+
+已经有人刷到6分57了，北环
+
+风味机盖在车房里面
+
+看目前反馈是车很重，刹车要早，基本和现实情况差不多 ...</blockquote>
+617了  ﹃_﹃〣  [https://www.bilibili.com/video/B ... arch-card.all.click](https://www.bilibili.com/video/BV13U6wBfEkE/?spm_id_from=333.337.search-card.all.click)
+
