@@ -2089,3 +2089,13 @@ FZ麻婆并不菜，传说中可以胜过旧版咖喱学 ...</blockquote>
 而且这个问题我前面646楼也说过一遍了 ...</blockquote>
 遗老了。只看过旧版，玩过月姬格斗。月姬格斗里的学姐才让我觉得她有点强。
 
+
+*****
+
+####  zakki  
+##### 795#       发表于 2026-1-29 19:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69104415&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-1-29 11:22</a>
+打不过学姐，大概率和麻婆五五开吧，毕竟旧设巅峰麻婆可以碰瓷一下学姐 ...</blockquote>
+那个能碰学姐的麻婆就和什么情报自来也，回家水门一样是个概念幻神。访谈说全令咒对切嗣爆发执念的麻婆能赢学姐，但问题是你打学姐是怎么爆发对切嗣执念的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
