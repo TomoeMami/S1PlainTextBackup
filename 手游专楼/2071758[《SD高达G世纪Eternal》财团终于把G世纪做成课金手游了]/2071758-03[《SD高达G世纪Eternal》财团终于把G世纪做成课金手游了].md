@@ -156,3 +156,11 @@ pvp的飞鸟不会开mp<img src="https://static.stage1st.com/image/smiley/face20
 这月光炮动画硬塞个G猎鹰合体进去是何意味</blockquote>
 海牛大招还硬塞了个战舰呢<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 3564#       发表于 2026-1-29 23:28
+
+开发机里面有G猎鹰DX，之后大概率会出个卡池版
+
