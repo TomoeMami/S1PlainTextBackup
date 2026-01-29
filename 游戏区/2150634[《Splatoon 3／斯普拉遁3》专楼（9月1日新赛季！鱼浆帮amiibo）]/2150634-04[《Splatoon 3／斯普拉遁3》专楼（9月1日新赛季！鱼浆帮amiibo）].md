@@ -230,3 +230,13 @@
 
 刚跟群友打了一小时开放，总体是正向改动
 
+
+*****
+
+####  Humpy  
+##### 5830#       发表于 2026-1-29 12:09
+
+感觉野人确实更会打配合了，不知道是不是错觉，虽然大家还是菜<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+文森更容易死了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+环境里重刷真多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
