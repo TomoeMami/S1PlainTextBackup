@@ -460,3 +460,15 @@ FF7第三部要来了吗</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  a2042312  
+##### 497#       发表于 2026-1-29 08:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69102982&amp;ptid=2173605" target="_blank">DioxinsX 发表于 2026-1-29 05:09</a>
+我也是首发国行版，没感觉会坏啊，你的机器已经有要坏了的征兆吗？
+
+—— 来自 鹅球 v3.5.99 ...</blockquote>
+那到没有，游戏机都还挺耐操的，家里的NDS和PSV都还能开机。不过只怕万一嘛，毕竟明年消费电子肉眼可见的要全体涨价。万一坏了就得多出血了。虽然还是有点想在节前消费一下的意思在里面<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
