@@ -100,3 +100,18 @@ pvp的飞鸟不会开mp<img src="https://static.stage1st.com/image/smiley/face20
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  ティグル  
+##### 3558#       发表于 2026-1-29 15:34
+
+你这瓦萨戈后面放个阿斯塔隆是什么意思呢？
+
+*****
+
+####  王俊凯  
+##### 3559#       发表于 2026-1-29 15:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为了打炮弟弟就当送你了，那个打牌的还送4台呢
+
