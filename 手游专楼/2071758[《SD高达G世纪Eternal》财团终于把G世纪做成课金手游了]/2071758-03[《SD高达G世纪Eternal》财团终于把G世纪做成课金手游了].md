@@ -115,3 +115,15 @@ pvp的飞鸟不会开mp<img src="https://static.stage1st.com/image/smiley/face20
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为了打炮弟弟就当送你了，那个打牌的还送4台呢
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3560#       发表于 2026-1-29 16:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自身MP越高武装威力越为提高
+
+真飞鸟：量身定制
+
+虽然月光炮估计是特殊射击
+
