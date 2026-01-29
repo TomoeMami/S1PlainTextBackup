@@ -951,3 +951,15 @@ k2.5出来了，性能相当强
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  haiuhfuwah  
+##### 82#         楼主| 发表于 2026-1-30 07:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69109223&amp;ptid=2266645" target="_blank">lactone 发表于 2026-1-30 05:17</a>
+k2.5出来了，性能相当强
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+这次是all in one
+
