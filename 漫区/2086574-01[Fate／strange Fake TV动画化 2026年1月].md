@@ -2074,3 +2074,18 @@ FZ麻婆并不菜，传说中可以胜过旧版咖喱学 ...</blockquote>
 你还能问出这种对比你先说清楚自己是说旧月姬
 还是你还没看过月姬R<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  razielzyc  
+##### 794#       发表于 2026-1-29 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69106012&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-1-29 16:06</a>
+
+你还能问出这种对比你先说清楚自己是说旧月姬
+
+还是你还没看过月姬R
+
+而且这个问题我前面646楼也说过一遍了 ...</blockquote>
+遗老了。只看过旧版，玩过月姬格斗。月姬格斗里的学姐才让我觉得她有点强。
+
