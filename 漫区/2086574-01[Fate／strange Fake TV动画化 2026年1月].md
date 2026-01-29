@@ -1912,3 +1912,14 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 
 一口气追到第四话。质量出乎意料的高。作画演出绝对是顶级了。所以fsf的理查德男saber能碰瓷fsn的亚瑟王女saber么？
 
+
+*****
+
+####  洛克萨斯  
+##### 780#       发表于 2026-1-29 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69103763&amp;ptid=2086574" target="_blank">razielzyc 发表于 2026-1-29 09:57</a>
+
+一口气追到第四话。质量出乎意料的高。作画演出绝对是顶级了。所以fsf的理查德男saber能碰瓷fsn的亚瑟王女s ...</blockquote>
+不能，狮心王算一流，呆毛是top
+
