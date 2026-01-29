@@ -2037,3 +2037,15 @@ fsn和fz的麻婆比实力有没有退步啊，照道理来说十年里身体的
 鬼佬评分</blockquote>
 没我推和咒术？
 
+
+*****
+
+####  任天索尼子  
+##### 791#       发表于 2026-1-29 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69104562&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-1-29 11:40</a>
+fsn和fz的麻婆比实力有没有退步啊，照道理来说十年里身体的衰老加上看起来没怎么锻炼应该体质会变弱一些， ...</blockquote>
+黑泥救了麻婆 但是也腐蚀了他的身体 虽然不像切嗣直接死了 但是也让他大不如前了
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
