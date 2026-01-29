@@ -179,3 +179,13 @@ taycan是初代的turbo s，只是没更新而已</blockquote>
 没有拉花和风味挖孔引擎盖吗</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">去车房改吧，不知道有没有实装这些，拉花这个倒是随便找方案，前盖就不知道了
 
+
+*****
+
+####  leystage  
+##### 2000#         楼主| 发表于 2026-1-29 07:46
+
+<blockquote>Totokei 发表于 2026-1-28 20:04
+在官宣了会有小米和u9加入的前提下突然杀出个比亚迪汉还是有点太抽象的</blockquote>
+好吧是我想多了，山内不至于
+
