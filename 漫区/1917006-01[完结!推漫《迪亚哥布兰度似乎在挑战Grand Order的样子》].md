@@ -40,3 +40,11 @@ NGA：[https://bbs.nga.cn/read.php?tid=46084817](https://bbs.nga.cn/read.php?tid
 
 DGO1.0的视频化企划似乎也将借机重启，可以好好期待一下了
 
+
+*****
+
+####  kyonkoism  
+##### 484#         楼主| 发表于 2026-1-29 23:34
+
+这个宣传MAD做的还真不赖
+
