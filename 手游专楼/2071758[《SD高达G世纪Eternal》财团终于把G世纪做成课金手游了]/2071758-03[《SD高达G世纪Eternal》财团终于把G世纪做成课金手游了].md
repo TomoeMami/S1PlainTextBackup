@@ -135,3 +135,13 @@ pvp的飞鸟不会开mp<img src="https://static.stage1st.com/image/smiley/face20
 
 这月光炮动画硬塞个G猎鹰合体进去是何意味<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 3562#       发表于 2026-1-29 21:02
+
+这dx的ex动画还把设定的流星锤光束标枪做出来了，虽然gvg里早做了
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
