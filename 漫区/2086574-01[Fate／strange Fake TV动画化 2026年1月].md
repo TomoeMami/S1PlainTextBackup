@@ -2062,3 +2062,15 @@ fsn和fz的麻婆比实力有没有退步啊，照道理来说十年里身体的
 FZ麻婆并不菜，传说中可以胜过旧版咖喱学 ...</blockquote>
 月姬里表现没有那么强，反倒是后面月姬格斗表现力还算可以。但不得不说，fsf的汉萨表现力确实够强。
 
+
+*****
+
+####  岸浪白野  
+##### 793#       发表于 2026-1-29 16:06
+
+ 本帖最后由 岸浪白野 于 2026-1-29 16:11 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69104115&amp;ptid=2086574" target="_blank">razielzyc 发表于 2026-1-29 10:42</a>
+懂了。另外这版的教会代理人汉萨战斗力有月姬里咖喱学姐强么？能跟死徒单挑不落下风，肯定是强过fz的麻婆 ...</blockquote>
+你还能问出这种对比你先说清楚自己是说旧月姬
+还是你还没看过月姬R<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
