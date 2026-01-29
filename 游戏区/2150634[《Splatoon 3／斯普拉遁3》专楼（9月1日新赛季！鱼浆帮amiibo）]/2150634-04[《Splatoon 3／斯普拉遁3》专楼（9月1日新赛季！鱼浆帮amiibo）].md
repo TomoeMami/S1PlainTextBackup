@@ -248,3 +248,21 @@
 
 实际中血条小小的，还会摇晃一下，还可以吧。看着对方血条一丢丢被镭射碰死还蛮爽的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shirolin  
+##### 5832#       发表于 2026-1-29 13:27
+
+<img src="https://img.stage1st.com/forum/202601/29/132656xq644cjcf63jwwhf.jpg" referrerpolicy="no-referrer">
+
+<strong>20260129_131201.jpg</strong> (69.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-29 13:26 上传
+
+环境
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
