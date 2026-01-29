@@ -794,3 +794,11 @@ re7不算抠，要把re引擎的投入算进去，这作的份量在capcom这应
 你说的离子炮还是没脱开【强力武器】这个桎梏，而我说的是 ...</blockquote>
 哪里提到了具体年份？
 
+
+*****
+
+####  cangyuyao  
+##### 591#       发表于 2026-1-30 00:56
+
+反派都叫基甸了少不了自封使者请神上身的传统艺能<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
