@@ -1931,3 +1931,42 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 
 想到一件事情，比起说fsn闪闪没出全力，不如说大狗一直没出过全力<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，都怪麻婆。
 
+
+*****
+
+####  pokemon最爱  
+##### 782#       发表于 2026-1-29 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69103763&amp;ptid=2086574" target="_blank">razielzyc 发表于 2026-1-29 09:57</a>
+
+一口气追到第四话。质量出乎意料的高。作画演出绝对是顶级了。所以fsf的理查德男saber能碰瓷fsn的亚瑟王女s ...</blockquote>
+狮心王的万物皆可咖喱棒上限只有A+对军，拿着正版咖喱棒也只能打出自己的万物皆可咖喱棒的A+对军威力没办法解放正版圣剑的A++对城威力，碰瓷不了的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+呆毛王怎么说也是Top从者了，理查先过同供魔水准的红A在考虑碰瓷呆毛王的（暴论）
+
+*****
+
+####  李正力  
+##### 783#       发表于 2026-1-29 10:41
+
+<img src="https://img.stage1st.com/forum/202601/29/104146qq7cisi7bii1y7vy.jpg" referrerpolicy="no-referrer">
+
+<strong>1000037306.jpg</strong> (123.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-29 10:41 上传
+
+鬼佬评分
+
+
+*****
+
+####  razielzyc  
+##### 784#       发表于 2026-1-29 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69104084&amp;ptid=2086574" target="_blank">pokemon最爱 发表于 2026-1-29 10:37</a>
+
+狮心王的万物皆可咖喱棒上限只有A+对军，拿着正版咖喱棒也只能打出自己的万物皆可咖喱棒的A+对军威力没办 ...</blockquote>
+懂了。另外这版的教会代理人汉萨战斗力有月姬里咖喱学姐强么？能跟死徒单挑不落下风，肯定是强过fz的麻婆
+
