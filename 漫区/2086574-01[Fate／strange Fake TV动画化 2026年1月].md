@@ -1983,3 +1983,14 @@ Fgo应该还要2次强化，现在算不了战力了<img src="https://static.sta
 
 FZ麻婆并不菜，传说中可以胜过旧版咖喱学姐的麻婆就是FZ74战的令咒麻婆（
 
+
+*****
+
+####  洛克萨斯  
+##### 786#       发表于 2026-1-29 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69104115&amp;ptid=2086574" target="_blank">razielzyc 发表于 2026-1-29 10:42</a>
+
+懂了。另外这版的教会代理人汉萨战斗力有月姬里咖喱学姐强么？能跟死徒单挑不落下风，肯定是强过fz的麻婆 ...</blockquote>
+打不过学姐，大概率和麻婆五五开吧，毕竟旧设巅峰麻婆可以碰瓷一下学姐
+
