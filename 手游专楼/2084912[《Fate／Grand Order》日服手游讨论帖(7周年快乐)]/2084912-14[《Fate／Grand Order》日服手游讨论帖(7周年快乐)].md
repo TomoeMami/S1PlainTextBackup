@@ -815,3 +815,46 @@ alucardcz 发表于 2026-1-22 18:36
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  岸浪白野  
+##### 20478#       发表于 2026-1-28 20:27
+
+ 本帖最后由 岸浪白野 于 2026-1-28 20:59 编辑 
+
+反正一点都不想理解你什么麻辣节奏，别说公式剧情都多少了水濑写剧情公式依赖就那个样改不了也没什么好波动<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但能发癫到出来什么破坏了美好活动都不希望有想fgo现在就结束，真的求收收味了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20479#       发表于 2026-1-29 18:34
+
+花神的功劳<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还有这过了剧情后强化3技能变身换冥界形态的宝具也挺有意思的
+<img src="https://p.sda1.dev/30/0e58ba8eaee291f9b1b97a6e28358068/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  yangun22  
+##### 20480#       发表于 2026-1-29 21:39
+
+那黑狗人我还以为就是三破了结果居然是为了当boss专门做出来的独立模型<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 20481#       发表于 2026-1-29 22:11
+
+<blockquote>jackyhuang 发表于 2026-1-28 18:54
+新年第一波节奏开始了
+
+你倭的神真没什么吸引力，活动剧情又水的要死
+
+不过不用看剧情就能打新free倒是好改动 ...</blockquote>
+少彦名也是很有名的神
+
+火须势理啥玩意，这货又不是火神，本子火神只有迦具土
+
