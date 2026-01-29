@@ -172,3 +172,15 @@ pvp的飞鸟不会开mp<img src="https://static.stage1st.com/image/smiley/face20
 
 开发DX和猎鹰DX如果有一个攻击型的话，还值得捞个驾驶，要不其他副产物看着太毒了，特别是那个战舰，凑一队都难
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 3566#       发表于 2026-1-30 03:24
+
+ 本帖最后由 真贝尔奈普斯 于 2026-1-30 03:25 编辑 
+
+别忘了蒂珐是防御机师<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肯定有个开发DX是盾机，分裂者不ssp移动才4用不了
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
