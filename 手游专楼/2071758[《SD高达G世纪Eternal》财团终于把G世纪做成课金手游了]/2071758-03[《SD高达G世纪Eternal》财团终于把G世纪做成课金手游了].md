@@ -89,3 +89,14 @@ pvp的飞鸟不会开mp<img src="https://static.stage1st.com/image/smiley/face20
 
 阵容：神（机师多蒙），sf（一星，机师辅助鸟），命运（一星，机师攻击鸟），雷金雷兹sp（机师蝴蝶女lv90），巴巴托斯（2星，机师约拿）
 
+
+*****
+
+####  blue321  
+##### 3557#       发表于 2026-1-29 15:13
+
+卡罗德能白嫖一次武器次数，想玩地图炮真得抽一个啊
+可惜真没钻了…<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
