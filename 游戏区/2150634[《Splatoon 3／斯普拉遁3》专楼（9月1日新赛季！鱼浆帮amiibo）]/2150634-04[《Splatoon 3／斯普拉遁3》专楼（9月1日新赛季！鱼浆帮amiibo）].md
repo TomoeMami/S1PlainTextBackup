@@ -240,3 +240,11 @@
 文森更容易死了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 环境里重刷真多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  藏獒·烨  
+##### 5831#       发表于 2026-1-29 12:56
+
+实际中血条小小的，还会摇晃一下，还可以吧。看着对方血条一丢丢被镭射碰死还蛮爽的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
