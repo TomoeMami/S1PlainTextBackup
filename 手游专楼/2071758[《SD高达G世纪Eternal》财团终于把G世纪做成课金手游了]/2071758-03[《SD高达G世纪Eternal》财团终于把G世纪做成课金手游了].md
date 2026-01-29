@@ -127,3 +127,11 @@ pvp的飞鸟不会开mp<img src="https://static.stage1st.com/image/smiley/face20
 
 虽然月光炮估计是特殊射击
 
+
+*****
+
+####  里村紅葉  
+##### 3561#       发表于 2026-1-29 19:23
+
+这月光炮动画硬塞个G猎鹰合体进去是何意味<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
