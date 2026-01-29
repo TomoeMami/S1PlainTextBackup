@@ -738,3 +738,18 @@ RE2里有手枪大小的大功率电磁枪；RE3里有一个女人能拿起来 .
 看到贴吧好像有人问到导演中西晃史了，关于最近那段Leon对于女护士见死不救演出的。回复是导演没仔细关注过 ...</blockquote>
 re7不算抠，要把re引擎的投入算进去，这作的份量在capcom这应该跟re4是同级的，当年光是独立于本篇的demo都更新了3次后续，dlc也是系列最多的
 
+
+*****
+
+####  圣罗.希露温  
+##### 587#       发表于 2026-1-29 14:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69104291&amp;ptid=2252759" target="_blank">哼哈二将 发表于 2026-1-29 11:05</a>
+
+希望游戏里出现一些对得起时间的科技。毕竟是2028年，你拿个小手枪也说得过去，但要是没有无人机和外骨骼这 ...</blockquote>
+不给主角用罢了
+
+按照生化世界观，不说从尸骨提取DNA搞进行人工受精这种最NB的生物技术了，什么粒子炮什么天基武器都已经早就实用化了，现实世界也就听个传闻
+
+至于外骨骼，七代DLC其实也有动力外骨骼AMG-78来着，就是正篇主角没得用而已，真给就不能太削，不然直接生化无双，DLC倒是可以放飞一下 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
