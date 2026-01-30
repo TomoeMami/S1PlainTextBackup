@@ -862,3 +862,18 @@ re7不算抠，要把re引擎的投入算进去，这作的份量在capcom这应
 
 —— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  shemoves  
+##### 596#       发表于 2026-1-30 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69099212&amp;ptid=2252759" target="_blank">Chao 发表于 2026-1-28 11:08</a>
+
+有人作了比较
+
+丧尸出现到电锯人用15秒
+
+就算从拉锯到电锯人也要用5秒</blockquote>
+半百老头反应下降不是正常<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
