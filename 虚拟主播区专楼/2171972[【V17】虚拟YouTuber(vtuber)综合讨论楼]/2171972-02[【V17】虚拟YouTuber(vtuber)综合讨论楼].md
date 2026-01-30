@@ -31,3 +31,35 @@
 
 这两皮套相当可以啊，开局就赢了
 
+
+*****
+
+####  poipanchao  
+##### 1761#       发表于 2026-1-30 20:35
+
+嗯……两个声音不太喜欢，一个太夹一个太蠢（）
+
+*****
+
+####  cckuku  
+##### 1762#       发表于 2026-1-30 20:43
+
+感觉声音不是很贴皮啊，做了两个jk皮怎么不找两个正统jk音？
+
+*****
+
+####  格林卡罗尔  
+##### 1763#       发表于 2026-1-31 02:06
+
+我只能指望这两个哪天想通了不夹<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+卷羊真是画管人的神，可惜大多都不能长久，简直是暴殄天物
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  noHentai  
+##### 1764#       发表于 2026-1-31 02:08
+
+时间问题罢了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
