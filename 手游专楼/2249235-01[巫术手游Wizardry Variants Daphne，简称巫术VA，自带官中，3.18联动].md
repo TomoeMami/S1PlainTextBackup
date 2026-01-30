@@ -37,3 +37,13 @@ B&amp;B联动复刻加新角 大概是两小只吧</blockquote>
 
 二周目打完继续埋头刷水洞
 
+
+*****
+
+####  orz100  
+##### 687#       发表于 2026-1-30 14:51
+
+这鬼洞产出是真的垃圾，活动给的缘也是垃圾，新出的武士也弱得一批。刷够葫芦把5本通用书换完结束了。<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
