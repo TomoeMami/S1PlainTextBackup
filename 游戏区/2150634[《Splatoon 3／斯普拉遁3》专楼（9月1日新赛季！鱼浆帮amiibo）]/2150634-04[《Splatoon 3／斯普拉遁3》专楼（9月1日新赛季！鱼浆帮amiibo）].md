@@ -364,3 +364,19 @@
 
 确实睿智。不过他本身水平我不评论，主要是本来我是和人家双排，不是和他。你说那种嘲讽人的我见多了，不允许别人群里组排不带他的我还是第一次见<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋月孝三  
+##### 5842#       发表于 2026-1-30 19:18
+
+<img src="https://img.stage1st.com/forum/202601/30/191819jk63juj9zj6cz68g.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (148.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-30 19:18 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我找茬都想不出来这种标题
+
