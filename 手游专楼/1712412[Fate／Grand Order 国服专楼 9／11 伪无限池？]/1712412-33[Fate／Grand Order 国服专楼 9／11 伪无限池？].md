@@ -24,3 +24,14 @@
 
 草，一时被黑姬迷住，大头被小头控制，将剩下的120多石头丢池子里，黑姬不见，比肖内却来了，真是4星比5星难出，日服也是，将终章刷到的羁绊石丢了一半才抽到黑姬。她真是讨厌我<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47703#       发表于 2026-1-30 19:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69108525&amp;ptid=1712412" target="_blank">史艳文 发表于 2026-1-29 23:48</a>
+
+回坑后第一次打奏章3，怎么每次都捆绑2个人，打得怒火</blockquote>
+所以为什么马修这么败好感度就是这样的<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
