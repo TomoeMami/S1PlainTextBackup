@@ -348,3 +348,16 @@ Unknown.jpg
 
 现在dunlop学乖了不写具体型号了
 
+
+*****
+
+####  洛克萨斯  
+##### 2016#       发表于 2026-1-30 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69109919&amp;ptid=2027972" target="_blank">Totokei 发表于 2026-1-30 09:48</a>
+
+按照米其林合作时的胎纹，运动胎都是cup2那就勉强把ss当成cup2r吧
+
+现在dunlop学乖了不写具体型号了 ...</blockquote>
+我看高翔说他觉得游戏里的比现实的轮胎抓，gt7现在是邓禄普吧，邓禄普性能比倍耐力强可太搞了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
