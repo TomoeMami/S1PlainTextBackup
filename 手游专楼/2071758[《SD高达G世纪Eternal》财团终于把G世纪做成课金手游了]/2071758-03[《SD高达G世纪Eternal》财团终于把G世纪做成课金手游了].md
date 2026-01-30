@@ -211,3 +211,13 @@ pvp的飞鸟不会开mp<img src="https://static.stage1st.com/image/smiley/face20
 
 这次sdd和水魔后半段掉碎片也太痛苦了，X不会也是巨难掉的吧<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 3570#       发表于 2026-1-30 19:32
+
+漏油猜对了，ult还真是贝尔菲戈尔
+
+那到时候V的ult就是赞斯帕因了吧
+
