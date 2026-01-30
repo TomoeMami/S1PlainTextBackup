@@ -22,3 +22,13 @@
 
 皮套有点帅啊
 
+
+*****
+
+####  暗黑能乐  
+##### 635#       发表于 2026-1-30 16:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这加特林还能再玩具点
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
