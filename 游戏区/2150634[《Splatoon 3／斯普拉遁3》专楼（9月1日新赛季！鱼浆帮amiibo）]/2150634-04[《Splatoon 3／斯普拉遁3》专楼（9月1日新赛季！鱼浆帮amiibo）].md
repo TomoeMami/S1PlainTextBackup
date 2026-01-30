@@ -348,3 +348,19 @@
 
 这人头像看上去就挺睿智的，组排难道不是为了开心吗，3k7d也好意思锐评上了，估计他本人就是那种打输了就只会怪队友不从自身找原因的类型
 
+
+*****
+
+####  doraemonmilmil  
+##### 5841#       发表于 2026-1-30 16:59
+
+<img src="https://img.stage1st.com/forum/202601/30/165255poc95w1e9175o5b7.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (190.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-30 16:52 上传
+
+确实睿智。不过他本身水平我不评论，主要是本来我是和人家双排，不是和他。你说那种嘲讽人的我见多了，不允许别人群里组排不带他的我还是第一次见<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
