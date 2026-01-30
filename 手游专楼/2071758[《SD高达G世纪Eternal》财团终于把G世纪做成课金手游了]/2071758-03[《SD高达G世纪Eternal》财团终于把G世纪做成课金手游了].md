@@ -195,3 +195,11 @@ pvp的飞鸟不会开mp<img src="https://static.stage1st.com/image/smiley/face20
 海牛大招还硬塞了个战舰呢</blockquote>
 海牛大炮还要战舰供电，这G猎鹰合不合体对月光炮一毛钱影响都没有啊<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 3568#       发表于 2026-1-30 14:04
+
+我说是个帕拉一个出场说话的机会有没有懂的
+
