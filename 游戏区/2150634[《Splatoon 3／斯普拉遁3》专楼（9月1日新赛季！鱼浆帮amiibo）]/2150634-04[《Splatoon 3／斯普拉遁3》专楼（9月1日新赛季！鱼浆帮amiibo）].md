@@ -321,3 +321,11 @@
 
 常年单排，以前有个400+的喷射群但喊人喊不动的我，前两天心血来潮加个小群就碰到这种，算是什么体质233<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蓝色的眷念  
+##### 5838#       发表于 2026-1-30 16:13
+
+打喷还当压力怪啊
+
