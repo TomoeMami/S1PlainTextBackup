@@ -184,3 +184,14 @@ pvp的飞鸟不会开mp<img src="https://static.stage1st.com/image/smiley/face20
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  里村紅葉  
+##### 3567#       发表于 2026-1-30 13:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69108005&amp;ptid=2071758" target="_blank">马桶3 发表于 2026-1-29 22:04</a>
+
+海牛大招还硬塞了个战舰呢</blockquote>
+海牛大炮还要战舰供电，这G猎鹰合不合体对月光炮一毛钱影响都没有啊<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
