@@ -380,3 +380,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我找茬都想不出来这种标题
 
+
+*****
+
+####  Aeroblast  
+##### 5843#       发表于 2026-1-30 22:05
+
+乐，进入心流喷的墨水被验证出有同步bug，在自己这里显示也可以潜入，但是在其他人那不显示，也不算进涂地，会看到你潜入敌阵墨水。
+
