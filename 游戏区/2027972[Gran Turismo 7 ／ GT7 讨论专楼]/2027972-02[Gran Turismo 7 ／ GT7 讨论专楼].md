@@ -372,3 +372,16 @@ Unknown.jpg
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自己买的那个我没开，就开了计时的
 如果按刚刚说的设定的话ss等于cup2r同级，查了下现实里约等于tgt刷圈那套trofeo rs
 
+
+*****
+
+####  洛克萨斯  
+##### 2018#       发表于 2026-1-30 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69110545&amp;ptid=2027972" target="_blank">Totokei 发表于 2026-1-30 10:57</a>
+
+自己买的那个我没开，就开了计时的
+
+如果按刚刚说的设定的话ss等于cup2r同级，查了下现实里约等于tgt刷圈 ...</blockquote>
+你是说最顶级那个软胎还是次一级的，我没留意过ss是哪个胎，最顶级那个应该是光头胎吧，gr1组别的赛车好像就是用最顶级那批轮胎
+
