@@ -361,3 +361,14 @@ Unknown.jpg
 现在dunlop学乖了不写具体型号了 ...</blockquote>
 我看高翔说他觉得游戏里的比现实的轮胎抓，gt7现在是邓禄普吧，邓禄普性能比倍耐力强可太搞了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Totokei  
+##### 2017#       发表于 2026-1-30 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69110167&amp;ptid=2027972" target="_blank">洛克萨斯 发表于 2026-1-30 10:16</a>
+我看高翔说他觉得游戏里的比现实的轮胎抓，gt7现在是邓禄普吧，邓禄普性能比倍耐力强可太搞了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自己买的那个我没开，就开了计时的
+如果按刚刚说的设定的话ss等于cup2r同级，查了下现实里约等于tgt刷圈那套trofeo rs
+
