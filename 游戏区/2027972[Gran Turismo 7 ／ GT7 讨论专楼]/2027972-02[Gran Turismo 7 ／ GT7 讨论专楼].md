@@ -338,3 +338,13 @@ Unknown.jpg
 
 狗屎，他的逻辑居然写成是要持续按着boost才是1500hp啊，我就说怎么速度不对
 
+
+*****
+
+####  Totokei  
+##### 2015#       发表于 2026-1-30 09:48
+
+按照米其林合作时的胎纹，运动胎都是cup2那就勉强把ss当成cup2r吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在dunlop学乖了不写具体型号了
+
