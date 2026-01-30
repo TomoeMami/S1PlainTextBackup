@@ -203,3 +203,11 @@ pvp的飞鸟不会开mp<img src="https://static.stage1st.com/image/smiley/face20
 
 我说是个帕拉一个出场说话的机会有没有懂的
 
+
+*****
+
+####  ドロロ  
+##### 3569#       发表于 2026-1-30 18:21
+
+这次sdd和水魔后半段掉碎片也太痛苦了，X不会也是巨难掉的吧<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
