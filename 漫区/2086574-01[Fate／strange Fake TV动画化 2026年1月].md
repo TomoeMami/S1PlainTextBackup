@@ -2211,3 +2211,14 @@ fsn按现在规格重制的话ex咖喱棒和ea对波的时候冬木市就完蛋�
 冬木起码得炸成美游世界的冬木</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人子炮和ea对波都能搞出这种坑，我星之圣剑和ea对波规格不能差啊
 
+
+*****
+
+####  pokemon最爱  
+##### 806#       发表于 2026-1-31 13:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69117413&amp;ptid=2086574" target="_blank">hkguty 发表于 2026-1-31 12:50</a>
+
+如果是fate线，士郎魔力不够，感觉怎么样都会限死咖喱棒上限吧</blockquote>
+说实话，按照如今的月球来说，呆毛供魔不足本身就是个匪夷所思的事，你这人又是活人被召唤又是龙心魔力炉的怎么能缺魔到宝具开不出来的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">魔都被剑鞘抽走了吗（
+
