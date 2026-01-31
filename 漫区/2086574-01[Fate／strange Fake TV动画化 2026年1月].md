@@ -2347,3 +2347,14 @@ ED2：[https://youtu.be/rHlLzmlc69I](https://youtu.be/rHlLzmlc69I)
 
 作画监督：浜友里恵
 
+
+*****
+
+####  6x6z6w  
+##### 818#       发表于 2026-2-1 02:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69120691&amp;ptid=2086574" target="_blank">阿刚 发表于 2026-2-1 00:45</a>
+
+小哥的声线也太老成了吧，不贴脸啊感觉</blockquote>
+他实际年龄本身就比外表要大，因为身体被魔术改造过
+
