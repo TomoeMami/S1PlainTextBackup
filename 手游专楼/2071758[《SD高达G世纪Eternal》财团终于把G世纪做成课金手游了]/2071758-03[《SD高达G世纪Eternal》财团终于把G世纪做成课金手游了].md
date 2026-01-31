@@ -304,3 +304,16 @@ W都是一击必杀吧
 等EW掉毛</blockquote>
 掉毛估摸着周年见了，到时候啥环境还两说
 
+
+*****
+
+####  acg_gyanc  
+##### 3580#       发表于 2026-1-31 16:47
+
+ 本帖最后由 acg_gyanc 于 2026-1-31 16:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69118274&amp;ptid=2071758" target="_blank">シャル 发表于 2026-1-31 16:09</a>
+ssrDXssp又不加地图炮弹数，攻击还低</blockquote>
+超强势增伤是不写在面板上的，华沙哥那台你别看面板有1w3，增伤是最麻烦的50%以下血，这个是写在面板上的，而且我自己有的能用的ur船就是电光和王牌，猎鹰dx完美符合条件，其实龙骑兵强袭也是，但是前面也说了我觉得龙骑兵强袭长得丑，池子赌了下运气不错，两发十连把卡罗得抽出来了，这下更没有理由不ssp了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
