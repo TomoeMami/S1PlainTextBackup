@@ -329,3 +329,11 @@ ssrDXssp又不加地图炮弹数，攻击还低</blockquote>
 
 卡池DX户口优秀是优点也是缺点吧，竞争者太多了，4射EX可惜了，虽然实际上用起来应该不差，但是王牌有神，一击必杀有SF，真去攻坚应该想不起他
 
+
+*****
+
+####  ドロロ  
+##### 3582#       发表于 2026-1-31 18:40
+
+日了，100抽就抽了个死神<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
