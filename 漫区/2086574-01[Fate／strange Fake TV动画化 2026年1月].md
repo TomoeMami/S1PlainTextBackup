@@ -2126,3 +2126,11 @@ FZ麻婆并不菜，传说中可以胜过旧版咖喱学 ...</blockquote>
 
 这是麻婆这个水平能碰瓷的嘛。。。。。
 
+
+*****
+
+####  羊寢  
+##### 798#       发表于 2026-1-31 09:57
+
+昨天看到奥古斯丁那个狮心王的视频才想起来fsf开播了，找来看了下感觉依旧是作画超强但是这bgm配得一股说不出来的怪<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
