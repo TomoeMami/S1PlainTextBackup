@@ -2178,3 +2178,11 @@ fsn那个半吊子杯战的战力现在已经跟不上趟了，其他人都更�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">fsn按现在规格重制的话ex咖喱棒和ea对波的时候冬木市就完蛋了吧
 
+
+*****
+
+####  hkguty  
+##### 803#       发表于 2026-1-31 12:50
+
+如果是fate线，士郎魔力不够，感觉怎么样都会限死咖喱棒上限吧
+
