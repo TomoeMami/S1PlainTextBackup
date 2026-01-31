@@ -2261,3 +2261,36 @@ fsn按现在规格重制的话ex咖喱棒和ea对波的时候冬木市就完蛋�
 原本黑帮召的是弓海，但是弓海太正义不符合黑帮的要求所以用类似黑泥的玩意把他强行扭曲成仇海 ...</blockquote>
 完全变成仇的话不是应该单标一个标仇吗。
 
+
+*****
+
+####  仟音一心  
+##### 811#       发表于 2026-1-31 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69120387&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-1-31 23:31</a>
+插图里写的仇/弓是什么意思，难道说现在既是仇又是弓吗。</blockquote>
+就是职介转换了，从Archer变为Avenger。
+设定上三骑士Saber、Lancer、Archer职介的赫拉克勒斯品质非常高洁，不会做出杀害幼童这种行为，愿意以此与御主为敌，很不好用，于是御主用光三划令咒和使用黑泥，强制将赫拉克勒斯转为Avenger。失去神性和不死性，换取全部的十二荣光宝具和EX级天风的篡夺者。以“向神明复仇”的姿态重现，成为认真金闪闪的最大对手。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 大耳兽| + 1|行|
+
+查看全部评分
+
+*****
+
+####  岸浪白野  
+##### 812#       发表于 2026-1-31 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69120428&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-1-31 23:44</a>
+
+完全变成仇的话不是应该单标一个标仇吗。</blockquote>
+想东西灵通点，反转成仇阶是后天的事，顶替了这个位置还是要标啊，而且又不是不同CV配一个角色<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
