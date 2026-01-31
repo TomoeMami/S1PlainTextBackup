@@ -337,3 +337,13 @@ ssrDXssp又不加地图炮弹数，攻击还低</blockquote>
 
 日了，100抽就抽了个死神<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 3583#       发表于 2026-1-31 18:57
+
+先不管强弱，玩这游戏就是为了X，现在我等到了肯定要抽<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
