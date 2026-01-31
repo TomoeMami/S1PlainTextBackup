@@ -2335,3 +2335,15 @@ fsn按现在规格重制的话ex咖喱棒和ea对波的时候冬木市就完蛋�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">帅气啊，弓有力
 
+
+*****
+
+####  Piano-Forest  
+##### 817#         楼主| 发表于 2026-2-1 01:37
+
+ED2：[https://youtu.be/rHlLzmlc69I](https://youtu.be/rHlLzmlc69I)
+
+分镜·演出：山本健
+
+作画监督：浜友里恵
+
