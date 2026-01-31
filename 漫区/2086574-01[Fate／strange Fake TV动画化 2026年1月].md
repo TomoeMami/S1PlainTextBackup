@@ -2390,3 +2390,15 @@ ED2：[https://youtu.be/rHlLzmlc69I](https://youtu.be/rHlLzmlc69I)
 
 2026-2-1 02:23 上传
 
+
+*****
+
+####  猫兔同笼  
+##### 821#       发表于 2026-2-1 02:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69120880&amp;ptid=2086574" target="_blank">jojog 发表于 2026-2-1 02:18</a>
+没看过原作 小哥招出来的几个人现在确定都是谁了么？
+
+只有医神和伊卡洛斯这俩？ ...</blockquote>
+除了医神和伊卡洛斯之外，现在通过声优俄里翁也确认了，那个女性基本确认为独自飞越大西洋的阿梅莉亚·埃尔哈特，小孩大概为儿童十字军创造者“斯蒂芬”，船长就是白鲸记的亚哈船长，只剩下那个日本武士还没有指定性证据了
+
