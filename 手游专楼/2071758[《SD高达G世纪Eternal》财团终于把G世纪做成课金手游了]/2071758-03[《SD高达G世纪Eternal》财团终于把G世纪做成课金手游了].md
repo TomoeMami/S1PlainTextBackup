@@ -268,3 +268,39 @@ g猎鹰dx开发红机有电光和王牌词条，超强势10%增伤，之前我�
 
 感觉年内代便都不会原谅一击必杀了
 
+
+*****
+
+####  シャル  
+##### 3577#         楼主| 发表于 2026-1-31 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69117741&amp;ptid=2071758" target="_blank">acg_gyanc 发表于 2026-1-31 14:06</a>
+
+g猎鹰dx开发红机有电光和王牌词条，超强势10%增伤，之前我嫌弃龙骑兵强袭不好看没spp，这下可以ssp它了，爽 ...</blockquote>
+ssrDXssp又不加地图炮弹数，攻击还低<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 3578#         楼主| 发表于 2026-1-31 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69117931&amp;ptid=2071758" target="_blank">ティグル 发表于 2026-1-31 14:44</a>
+
+感觉年内代便都不会原谅一击必杀了</blockquote>
+W都是一击必杀吧
+
+等EW掉毛
+
+
+*****
+
+####  ティグル  
+##### 3579#       发表于 2026-1-31 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69118277&amp;ptid=2071758" target="_blank">シャル 发表于 2026-1-31 16:10</a>
+
+W都是一击必杀吧
+
+等EW掉毛</blockquote>
+掉毛估摸着周年见了，到时候啥环境还两说
+
