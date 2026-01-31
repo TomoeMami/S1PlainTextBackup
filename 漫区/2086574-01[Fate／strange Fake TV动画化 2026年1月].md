@@ -2437,3 +2437,23 @@ ED2：[https://youtu.be/rHlLzmlc69I](https://youtu.be/rHlLzmlc69I)
 
 <img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">怎么把卓别林这句给砍了，是要和后面给法尔迪乌斯报告那合并起来吗
 
+
+*****
+
+####  岸浪白野  
+##### 824#       发表于 2026-2-1 02:58
+
+ 本帖最后由 岸浪白野 于 2026-2-1 03:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69120899&amp;ptid=2086574" target="_blank">猫兔同笼 发表于 2026-2-1 02:31</a>
+
+除了医神和伊卡洛斯之外，现在通过声优俄里翁也确认了，那个女性基本确认为独自飞越大西洋的阿梅莉亚·埃 ...</blockquote>
+除了通过CV确认是俄里翁，也回应了为什么成田在16年说俄里翁第3卷也有出现<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202602/01/025813mt7k7qya7qyihm3g.png" referrerpolicy="no-referrer">
+
+<strong>GRJVN{~_P82VISU[C7)]@GC.png</strong> (174.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-1 02:58 上传
+
