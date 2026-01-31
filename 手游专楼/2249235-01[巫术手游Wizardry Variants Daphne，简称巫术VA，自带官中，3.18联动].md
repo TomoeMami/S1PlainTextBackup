@@ -55,3 +55,59 @@ B&amp;B联动复刻加新角 大概是两小只吧</blockquote>
 
 武士装了大太刀以后原本的武士技能全部不能用了，日本人的脑回路无法理解
 
+
+*****
+
+####  琉歌  
+##### 689#       发表于 2026-1-31 15:38
+
+ 本帖最后由 琉歌 于 2026-1-31 15:39 编辑 
+
+没经住诱惑下了池，0克己灵巧个体BP全加力，换了个专武，目前平民装备60级已进阶，面板如图：
+
+<img src="https://img.stage1st.com/forum/202601/31/153036cch98p2mtcp58jx2.jpg" referrerpolicy="no-referrer">
+
+<strong>20260131151137_1.jpg</strong> (213.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-31 15:30 上传
+
+<img src="https://img.stage1st.com/forum/202601/31/153044qh29luh1zgy9f6k1.jpg" referrerpolicy="no-referrer">
+
+<strong>20260131151143_1.jpg</strong> (207.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-31 15:30 上传
+
+在B2F小测了下，横一文字无会心800多，会心1400多，焰走无会心2400多
+
+<img src="https://img.stage1st.com/forum/202601/31/153223rlpfdfllgkaddp4d.jpg" referrerpolicy="no-referrer">
+
+<strong>20260131151333_1.jpg</strong> (225.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-31 15:32 上传
+
+<img src="https://img.stage1st.com/forum/202601/31/153226bihcfuf3lc63hg6f.jpg" referrerpolicy="no-referrer">
+
+<strong>20260131151419_1.jpg</strong> (230.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-31 15:32 上传
+
+<img src="https://img.stage1st.com/forum/202601/31/153228awwimsyrghrrfdme.jpg" referrerpolicy="no-referrer">
+
+<strong>20260131151816_2.jpg</strong> (282.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-1-31 15:32 上传
+
+感觉日常推图打小怪就横一文字当个能会心（但有副作用）的持弓盗贼凛音的终之刻用，BOSS焰走能灌一波。但是之后呢？切武士刀打破竹斩？还是说直接强袭算了。
+
+总之这池应该算是抑制膨胀了吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
