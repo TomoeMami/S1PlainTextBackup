@@ -229,3 +229,27 @@ pvp的飞鸟不会开mp<img src="https://static.stage1st.com/image/smiley/face20
 
 难度是不是出问题了，x普通关有几关比hard血都厚……
 
+
+*****
+
+####  acg_gyanc  
+##### 3572#       发表于 2026-1-31 14:06
+
+g猎鹰dx开发红机有电光和王牌词条，超强势10%增伤，之前我嫌弃龙骑兵强袭不好看没spp，这下可以ssp它了，爽到
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  王俊凯  
+##### 3573#       发表于 2026-1-31 14:06
+
+打一次的问题都不是问题 hard还有个来回刷需要
+
+*****
+
+####  螺旋的小夜曲  
+##### 3574#       发表于 2026-1-31 14:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">URDX怎么感觉毒得离谱，4格的EX，MAP的数值给得也不够高
+
