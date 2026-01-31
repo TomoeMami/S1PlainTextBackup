@@ -2230,3 +2230,34 @@ fsn按现在规格重制的话ex咖喱棒和ea对波的时候冬木市就完蛋�
 
 插图里写的仇/弓是什么意思，难道说现在既是仇又是弓吗。
 
+
+*****
+
+####  199april  
+##### 808#       发表于 2026-1-31 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69120387&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-1-31 23:31</a>
+
+插图里写的仇/弓是什么意思，难道说现在既是仇又是弓吗。</blockquote>
+原本黑帮召的是弓海，但是弓海太正义不符合黑帮的要求所以用类似黑泥的玩意把他强行扭曲成仇海
+
+*****
+
+####  199april  
+##### 809#       发表于 2026-1-31 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69117369&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-1-31 12:41</a>
+
+fsn按现在规格重制的话ex咖喱棒和ea对波的时候冬木市就完蛋了吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">实际上就士郎的魔力量根本就供不起咖喱棒。还不如开ubw自己上
+
+
+*****
+
+####  大耳兽  
+##### 810#       发表于 2026-1-31 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69120411&amp;ptid=2086574" target="_blank">199april 发表于 2026-1-31 23:39</a>
+原本黑帮召的是弓海，但是弓海太正义不符合黑帮的要求所以用类似黑泥的玩意把他强行扭曲成仇海 ...</blockquote>
+完全变成仇的话不是应该单标一个标仇吗。
+
