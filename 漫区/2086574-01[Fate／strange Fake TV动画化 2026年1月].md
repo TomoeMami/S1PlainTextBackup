@@ -2134,3 +2134,31 @@ FZ麻婆并不菜，传说中可以胜过旧版咖喱学 ...</blockquote>
 
 昨天看到奥古斯丁那个狮心王的视频才想起来fsf开播了，找来看了下感觉依旧是作画超强但是这bgm配得一股说不出来的怪<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 799#       发表于 2026-1-31 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69116390&amp;ptid=2086574" target="_blank">COLEETE 发表于 2026-1-31 09:02</a>
+
+新月姬的咖喱学姐
+
+现在麻婆真能打吗
+
+战绩是秒了阿尔奎特一阶段</blockquote>
+说的肯定是旧咖喱学姐，月姬R的战力膨胀了一轮FSN众至少在正常冬木杯战环境的发挥应该是比不了的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 800#       发表于 2026-1-31 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69116973&amp;ptid=2086574" target="_blank">pokemon最爱 发表于 2026-1-31 11:25</a>
+
+说的肯定是旧咖喱学姐，月姬R的战力膨胀了一轮FSN众至少在正常冬木杯战环境的发挥应该是比不了的 ...</blockquote>
+学姐现在都进化到宇宙版本了
+
+只有地球姬才配交手啊
+
