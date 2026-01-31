@@ -2099,3 +2099,14 @@ FZ麻婆并不菜，传说中可以胜过旧版咖喱学 ...</blockquote>
 打不过学姐，大概率和麻婆五五开吧，毕竟旧设巅峰麻婆可以碰瓷一下学姐 ...</blockquote>
 那个能碰学姐的麻婆就和什么情报自来也，回家水门一样是个概念幻神。访谈说全令咒对切嗣爆发执念的麻婆能赢学姐，但问题是你打学姐是怎么爆发对切嗣执念的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ardente  
+##### 796#       发表于 2026-1-31 08:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69098505&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-1-28 09:16</a>
+
+不是，是因为恩奇都被召唤了他心情比较好（外置大脑上线了），加上fha给他洗白加了个孩子王的设定，对这 ...</blockquote>
+你好，fha这货就是换了女御主即重新做人<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
