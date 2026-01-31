@@ -2162,3 +2162,11 @@ FZ麻婆并不菜，传说中可以胜过旧版咖喱学 ...</blockquote>
 
 只有地球姬才配交手啊
 
+
+*****
+
+####  绷带绷得住  
+##### 801#       发表于 2026-1-31 12:12
+
+fsn那个半吊子杯战的战力现在已经跟不上趟了，其他人都更新了版本，不考虑拉斯普京的话，也就麻婆原地踏步了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
