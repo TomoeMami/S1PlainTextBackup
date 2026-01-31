@@ -2294,3 +2294,11 @@ fsn按现在规格重制的话ex咖喱棒和ea对波的时候冬木市就完蛋�
 完全变成仇的话不是应该单标一个标仇吗。</blockquote>
 想东西灵通点，反转成仇阶是后天的事，顶替了这个位置还是要标啊，而且又不是不同CV配一个角色<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 813#       发表于 2026-2-1 00:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">小哥的声线也太老成了吧，不贴脸啊感觉
+
