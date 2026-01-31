@@ -46,3 +46,16 @@
 所以为什么马修这么败好感度就是这样的</blockquote>
 官方恶意，最主要还是她没有什么输出，做t还只能t1回合，还没有克制打白字。
 
+
+*****
+
+####  khxooo  
+##### 47705#       发表于 2026-1-31 23:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69120067&amp;ptid=1712412" target="_blank">史艳文 发表于 2026-1-31 22:20</a>
+
+官方恶意，最主要还是她没有什么输出，做t还只能t1回合，还没有克制打白字。
+
+ ...</blockquote>
+不过马上会从马头变成马修大人就是了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
