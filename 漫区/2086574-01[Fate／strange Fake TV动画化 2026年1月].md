@@ -2170,3 +2170,11 @@ FZ麻婆并不菜，传说中可以胜过旧版咖喱学 ...</blockquote>
 
 fsn那个半吊子杯战的战力现在已经跟不上趟了，其他人都更新了版本，不考虑拉斯普京的话，也就麻婆原地踏步了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 802#       发表于 2026-1-31 12:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">fsn按现在规格重制的话ex咖喱棒和ea对波的时候冬木市就完蛋了吧
+
