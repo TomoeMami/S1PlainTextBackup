@@ -2358,3 +2358,35 @@ ED2：[https://youtu.be/rHlLzmlc69I](https://youtu.be/rHlLzmlc69I)
 小哥的声线也太老成了吧，不贴脸啊感觉</blockquote>
 他实际年龄本身就比外表要大，因为身体被魔术改造过
 
+
+*****
+
+####  jojog  
+##### 819#       发表于 2026-2-1 02:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">没看过原作 小哥招出来的几个人现在确定都是谁了么？
+
+只有医神和伊卡洛斯这俩？
+
+
+*****
+
+####  岸浪白野  
+##### 820#       发表于 2026-2-1 02:25
+
+ 本帖最后由 岸浪白野 于 2026-2-1 02:26 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69120691&amp;ptid=2086574" target="_blank">阿刚 发表于 2026-2-1 00:45</a>
+
+小哥的声线也太老成了吧，不贴脸啊感觉</blockquote>
+这个就是明显音监没要求CV声线也按符合这身体年龄配啊，不说动画台词都已经说了外表被成长停止影响
+
+是和法尔迪乌斯同年代甚至可能比法尔迪乌斯还大呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202602/01/022357m7jbaa3a2nap8282.png" referrerpolicy="no-referrer">
+
+<strong>7S{EG554$DX@X45H%6V`BF6.png</strong> (106.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-1 02:23 上传
+
