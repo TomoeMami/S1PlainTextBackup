@@ -2402,3 +2402,38 @@ ED2：[https://youtu.be/rHlLzmlc69I](https://youtu.be/rHlLzmlc69I)
 只有医神和伊卡洛斯这俩？ ...</blockquote>
 除了医神和伊卡洛斯之外，现在通过声优俄里翁也确认了，那个女性基本确认为独自飞越大西洋的阿梅莉亚·埃尔哈特，小孩大概为儿童十字军创造者“斯蒂芬”，船长就是白鲸记的亚哈船长，只剩下那个日本武士还没有指定性证据了
 
+
+*****
+
+####  岸浪白野  
+##### 822#       发表于 2026-2-1 02:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69120723&amp;ptid=2086574" target="_blank">yanghuangu 发表于 2026-2-1 00:56</a>
+
+小鬼是切嗣助手的儿子吗？</blockquote>
+
+是，但是动画要压缩剧情和台词，西格玛和陪聊的这种说自己身世的台词始终是不可避免删减的，最重要还是不影响剧情主体节奏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202602/01/024132z93b67m2bncf08o0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (150.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-1 02:41 上传
+
+<img src="https://img.stage1st.com/forum/202602/01/024419hfm8q4w4w5w3ypzo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.11 MB, 下载次数: 0)
+
+下载附件
+
+2026-2-1 02:44 上传
+
+*****
+
+####  斯卡哈  
+##### 823#       发表于 2026-2-1 02:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">怎么把卓别林这句给砍了，是要和后面给法尔迪乌斯报告那合并起来吗
+
