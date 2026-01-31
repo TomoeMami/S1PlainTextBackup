@@ -2186,3 +2186,28 @@ fsn那个半吊子杯战的战力现在已经跟不上趟了，其他人都更�
 
 如果是fate线，士郎魔力不够，感觉怎么样都会限死咖喱棒上限吧
 
+
+*****
+
+####  COLEETE  
+##### 804#       发表于 2026-1-31 13:01
+
+<blockquote>洛克萨斯 发表于 2026-1-31 12:41
+fsn按现在规格重制的话ex咖喱棒和ea对波的时候冬木市就完蛋了吧</blockquote>
+按照FSF那表现  
+
+冬木起码得炸成美游世界的冬木
+
+
+*****
+
+####  洛克萨斯  
+##### 805#       发表于 2026-1-31 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69117466&amp;ptid=2086574" target="_blank">COLEETE 发表于 2026-1-31 13:01</a>
+
+按照FSF那表现  
+
+冬木起码得炸成美游世界的冬木</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人子炮和ea对波都能搞出这种坑，我星之圣剑和ea对波规格不能差啊
+

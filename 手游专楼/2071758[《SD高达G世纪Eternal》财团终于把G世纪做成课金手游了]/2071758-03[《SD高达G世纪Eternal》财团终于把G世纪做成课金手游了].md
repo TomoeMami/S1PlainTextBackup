@@ -221,3 +221,11 @@ pvp的飞鸟不会开mp<img src="https://static.stage1st.com/image/smiley/face20
 
 那到时候V的ult就是赞斯帕因了吧
 
+
+*****
+
+####  rockroxas  
+##### 3571#       发表于 2026-1-31 13:03
+
+难度是不是出问题了，x普通关有几关比hard血都厚……
+
