@@ -2302,3 +2302,20 @@ fsn按现在规格重制的话ex咖喱棒和ea对波的时候冬木市就完蛋�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">小哥的声线也太老成了吧，不贴脸啊感觉
 
+
+*****
+
+####  乞力马札罗的雪  
+##### 814#       发表于 2026-2-1 00:54
+
+每组露下脸一集就没了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  yanghuangu  
+##### 815#       发表于 2026-2-1 00:56
+
+小鬼是切嗣助手的儿子吗？
+
