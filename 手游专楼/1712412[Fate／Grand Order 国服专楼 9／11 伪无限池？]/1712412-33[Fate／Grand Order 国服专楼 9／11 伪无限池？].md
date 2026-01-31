@@ -35,3 +35,14 @@
 回坑后第一次打奏章3，怎么每次都捆绑2个人，打得怒火</blockquote>
 所以为什么马修这么败好感度就是这样的<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  史艳文  
+##### 47704#       发表于 2026-1-31 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69114369&amp;ptid=1712412" target="_blank">khxooo 发表于 2026-1-30 19:39</a>
+
+所以为什么马修这么败好感度就是这样的</blockquote>
+官方恶意，最主要还是她没有什么输出，做t还只能t1回合，还没有克制打白字。
+
