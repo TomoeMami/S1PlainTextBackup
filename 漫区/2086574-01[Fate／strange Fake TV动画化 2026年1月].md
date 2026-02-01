@@ -2457,3 +2457,28 @@ ED2：[https://youtu.be/rHlLzmlc69I](https://youtu.be/rHlLzmlc69I)
 
 2026-2-1 02:58 上传
 
+
+*****
+
+####  gs2-d2up  
+##### 825#       发表于 2026-2-1 10:09
+
+就这个群像爽。
+唯一bug的就是汉萨和伪装成小孩的捷斯塔面对面都没发现这小孩有异样。穷途末路的吸血鬼逃命时杀了一走廊的人唯独留下个小孩没杀，汉萨却没察觉出来，怎么看都像是强行降智推剧情。
+
+
+*****
+
+####  浅倉透  
+##### 826#       发表于 2026-2-1 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69116390&amp;ptid=2086574" target="_blank">COLEETE 发表于 2026-1-31 09:02</a>
+新月姬的咖喱学姐
+
+现在麻婆真能打吗
+
+战绩是秒了阿尔奎特一阶段</blockquote>
+不提fgo的话，从type lumina来看
+全武装学姐还藏了个腑海林的原理血戒
+其实对光体公主未必毫无办法
+
