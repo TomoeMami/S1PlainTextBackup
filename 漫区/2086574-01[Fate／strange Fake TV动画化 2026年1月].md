@@ -2482,3 +2482,14 @@ ED2：[https://youtu.be/rHlLzmlc69I](https://youtu.be/rHlLzmlc69I)
 全武装学姐还藏了个腑海林的原理血戒
 其实对光体公主未必毫无办法
 
+
+*****
+
+####  zakki  
+##### 827#       发表于 2026-2-1 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69121473&amp;ptid=2086574" target="_blank">gs2-d2up 发表于 2026-2-1 10:09</a>
+就这个群像爽。
+唯一bug的就是汉萨和伪装成小孩的捷斯塔面对面都没发现这小孩有异样。穷途末路的吸血鬼逃命 ...</blockquote>
+其他人也没有杀，打伤了，而且汉萨毕竟不知道他能变身
+
