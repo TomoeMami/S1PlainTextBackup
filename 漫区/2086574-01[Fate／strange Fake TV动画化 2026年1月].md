@@ -2713,3 +2713,11 @@ FA这种25集改5卷小说的都改不好还觉得能拉出来举例和FSF比的
 
 要不是靠无障碍字幕，等成田去说等到什么时候才知道剩下那个日本人是钟卷自斋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usodakedo  
+##### 849#       发表于 2026-2-2 01:13
+
+钟卷自斋有点意外，其他的基本也都和主流猜测没差
+
