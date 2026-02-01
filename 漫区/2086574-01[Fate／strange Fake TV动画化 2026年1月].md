@@ -2612,3 +2612,20 @@ ED2：[https://youtu.be/rHlLzmlc69I](https://youtu.be/rHlLzmlc69I)
 
 就fsf这改编难度，无论删啥我都不会觉得有问题的，我都不知道第二季那一大堆人还有一大堆背景故事要怎么做，替制作组头疼。说到底，有的看就不错了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  今天不守尸  
+##### 839#       发表于 2026-2-1 16:46
+
+因为删减和乳海，已经被贴吧喷成不如fa了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 840#       发表于 2026-2-1 16:48
+
+为什么仇海对黑道老大言听计从？没咒印了啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
