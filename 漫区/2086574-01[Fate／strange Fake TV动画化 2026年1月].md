@@ -2597,3 +2597,18 @@ ED2：[https://youtu.be/rHlLzmlc69I](https://youtu.be/rHlLzmlc69I)
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qucqee  
+##### 837#       发表于 2026-2-1 16:40
+
+有钱 ed回头还要换吗
+
+*****
+
+####  zakki  
+##### 838#       发表于 2026-2-1 16:40
+
+就fsf这改编难度，无论删啥我都不会觉得有问题的，我都不知道第二季那一大堆人还有一大堆背景故事要怎么做，替制作组头疼。说到底，有的看就不错了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
