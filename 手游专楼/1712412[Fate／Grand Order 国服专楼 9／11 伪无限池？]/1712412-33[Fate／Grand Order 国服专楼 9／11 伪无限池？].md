@@ -67,3 +67,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而最难崩的不是变马修大人是打完相关主线后么 打加拉哈德还是只有第一段宝具
 
+
+*****
+
+####  Urakawa  
+##### 47707#       发表于 2026-2-1 18:45
+
+没忍住还是扔了50抽出了黑姬，顺便出了比肖内。
+
+明年国服怎么翻译虞姬的强化技能呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
