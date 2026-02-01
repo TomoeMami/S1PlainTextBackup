@@ -2695,3 +2695,13 @@ FA这种25集改5卷小说的都改不好还觉得能拉出来举例和FSF比的
 
 没看过原著，为什么小黑哥从master变成lancer了啊？
 
+
+*****
+
+####  大耳兽  
+##### 847#       发表于 2026-2-2 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69125252&amp;ptid=2086574" target="_blank">中二小旋风 发表于 2026-2-2 00:33</a>
+没看过原著，为什么小黑哥从master变成lancer了啊？</blockquote>
+小哥召唤了watcher，这个位置本来是lancer，但是上三骑的位置没办法被ex职阶顶，没办法这个空位只能让小哥来顶了。
+
