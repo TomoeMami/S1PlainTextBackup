@@ -2552,3 +2552,11 @@ ED2：[https://youtu.be/rHlLzmlc69I](https://youtu.be/rHlLzmlc69I)
 话说这场圣杯战争先召唤6骑作为引子再来召唤七骑有没在利用FA提到七个御主里要是有4人同属一个阵营就会启动 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正常来说是裁判下来吧，阿贞要是下来杰斯塔和横飞姬要被裁判追着杀了
 
+
+*****
+
+####  大耳兽  
+##### 833#       发表于 2026-2-1 15:06
+
+其实感觉也没有很乳海，毕竟吃了俩令咒加黑泥都差点上去把御主砍死，直到吃了第三发令咒才彻底体型变小失去对御主的杀意。硬要说的话还是闪闪黑泥洗澡不讲道理过了头。
+
