@@ -2541,3 +2541,14 @@ ED2：[https://youtu.be/rHlLzmlc69I](https://youtu.be/rHlLzmlc69I)
 
 警察局长，横飞姬，法尔迪乌斯，西格玛，黑帮老大目前看来都是同一阵营的
 
+
+*****
+
+####  洛克萨斯  
+##### 832#       发表于 2026-2-1 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69122644&amp;ptid=2086574" target="_blank">发财就收 发表于 2026-2-1 14:29</a>
+
+话说这场圣杯战争先召唤6骑作为引子再来召唤七骑有没在利用FA提到七个御主里要是有4人同属一个阵营就会启动 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正常来说是裁判下来吧，阿贞要是下来杰斯塔和横飞姬要被裁判追着杀了
+
