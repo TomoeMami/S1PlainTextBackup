@@ -442,3 +442,15 @@
 
 splatoon这个更新，是不是碰到一点血就会亮血条啊？有时候偷偷靠近被溅射到一点点不会被发现的，但是血条一显示就暴露了，这不太好吧
 
+
+*****
+
+####  doraemonmilmil  
+##### 5850#       发表于 2026-2-1 09:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69120744&amp;ptid=2150634" target="_blank">downnote 发表于 2026-2-1 01:02</a>
+splatoon这个更新，是不是碰到一点血就会亮血条啊？有时候偷偷靠近被溅射到一点点不会被发现的，但是血条一 ...</blockquote>
+目测只有主武器击中才会显示
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
