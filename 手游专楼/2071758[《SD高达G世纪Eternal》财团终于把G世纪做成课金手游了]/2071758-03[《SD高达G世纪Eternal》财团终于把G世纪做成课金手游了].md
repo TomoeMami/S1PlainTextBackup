@@ -355,3 +355,13 @@ ssrDXssp又不加地图炮弹数，攻击还低</blockquote>
 
 送的3000又抽了一把终于出DX了<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 3585#       发表于 2026-2-1 14:28
+
+一月份收入历史第二，仅次于去年五月的z+sf<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+要超越感觉得上非凡自由了
+
