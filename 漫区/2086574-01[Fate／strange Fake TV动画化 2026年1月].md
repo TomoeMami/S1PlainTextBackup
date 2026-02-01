@@ -2570,3 +2570,20 @@ ED2：[https://youtu.be/rHlLzmlc69I](https://youtu.be/rHlLzmlc69I)
 
 —— 来自 Xiaomi 24122RKC7C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  洛克萨斯  
+##### 835#       发表于 2026-2-1 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69122841&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-2-1 15:06</a>
+
+其实感觉也没有很乳海，毕竟吃了俩令咒加黑泥都差点上去把御主砍死，直到吃了第三发令咒才彻底体型变小失去 ...</blockquote>
+1.删了海的回忆
+
+2.删了海保护黑道小弟不被黑泥侵蚀
+
+3.删了一些对御主的想法
+
+实际观感就很差了
+
