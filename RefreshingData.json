@@ -221,7 +221,7 @@
     "newtitle": "[夏色（なついろ）まつり／夏色祭 祭丝日记楼]",
     "lastedit": 1769705656,
     "category": "虚拟主播区专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2078110": {
@@ -540,10 +540,10 @@
     "update": false
   },
   "2094432": {
-    "totalreply": 12347,
+    "totalreply": 12352,
     "title": "[【Mr.Quin／秦川】真爱（？）讨论三号楼]",
     "newtitle": "[【Mr.Quin／秦川】秦智障真爱（？）讨论三号楼]",
-    "lastedit": 1769964249,
+    "lastedit": 1769964852,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 29509,
+    "totalreply": 29510,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》1.15 古德莫宁]",
-    "lastedit": 1769962692,
+    "lastedit": 1769964623,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11448,10 +11448,10 @@
     "update": false
   },
   "2252821": {
-    "totalreply": 1990,
+    "totalreply": 1991,
     "title": "[Team Ninja《仁王3》正式公布，2026年初发售，Demo现已上线PS5]",
     "newtitle": "[Team Ninja《仁王3》正式公布，2026年2月6日发售]",
-    "lastedit": 1769963061,
+    "lastedit": 1769964623,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11970,10 +11970,10 @@
     "update": false
   },
   "2250190": {
-    "totalreply": 394,
+    "totalreply": 395,
     "title": "[数码宝贝完全新作TV动画『DIGIMON BEATBREAK』2025年10月]",
     "newtitle": "[数码宝贝完全新作TV动画『DIGIMON BEATBREAK』2025年10月]",
-    "lastedit": 1769928733,
+    "lastedit": 1769964852,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12060,10 +12060,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 44306,
+    "totalreply": 44310,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1769963888,
+    "lastedit": 1769965088,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12465,10 +12465,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 11354,
+    "totalreply": 11360,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1769964248,
+    "lastedit": 1769964975,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12519,10 +12519,10 @@
     "update": false
   },
   "2269491": {
-    "totalreply": 10196,
+    "totalreply": 10198,
     "title": "[牢A与赞美诗]",
     "newtitle": "[牢A与赞美诗（转型牢A切片讨论楼）]",
-    "lastedit": 1769963061,
+    "lastedit": 1769964616,
     "category": "外野",
     "active": true,
     "update": false
@@ -13028,15 +13028,6 @@
     "newtitle": "[2026 哆啦A梦新作剧场动画『新・大雄的海底鬼岩城』]",
     "lastedit": 1769579050,
     "category": "漫区",
-    "active": false,
-    "update": false
-  },
-  "2271970": {
-    "totalreply": 68,
-    "title": "[不喜欢黄油 但喜欢有点擦边球内容的游戏 有没有爱好者推一下]",
-    "newtitle": "[不喜欢黄油 但喜欢有点擦边球内容的游戏 有没有爱好者推一下]",
-    "lastedit": 1768755375,
-    "category": "游戏区",
     "active": false,
     "update": false
   },
@@ -16848,19 +16839,19 @@
     "update": false
   },
   "2273715": {
-    "totalreply": 118,
+    "totalreply": 120,
     "title": "[正道世界的人间地狱（略重口，慎入）]",
     "newtitle": "[正道世界的人间地狱（略重口，慎入）]",
-    "lastedit": 1769964368,
+    "lastedit": 1769964975,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2273681": {
-    "totalreply": 89,
+    "totalreply": 90,
     "title": "[古巴还能撑几天？]",
     "newtitle": "[古巴还能撑几天？]",
-    "lastedit": 1769963658,
+    "lastedit": 1769964971,
     "category": "外野",
     "active": true,
     "update": false
@@ -16884,10 +16875,10 @@
     "update": false
   },
   "2273724": {
-    "totalreply": 73,
+    "totalreply": 76,
     "title": "[作为一个普通人，对生成式ai的暴怒]",
     "newtitle": "[作为一个普通人，对生成式ai的暴怒]",
-    "lastedit": 1769963658,
+    "lastedit": 1769964975,
     "category": "外野",
     "active": true,
     "update": false
@@ -16902,10 +16893,10 @@
     "update": false
   },
   "2273726": {
-    "totalreply": 62,
+    "totalreply": 63,
     "title": "[任天堂会在天朝部署CDN吗]",
     "newtitle": "[任天堂会在天朝部署CDN吗]",
-    "lastedit": 1769962455,
+    "lastedit": 1769964623,
     "category": "游戏区",
     "active": true,
     "update": false
