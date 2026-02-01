@@ -30,3 +30,15 @@
 
 所以当公主是真的有死亡风险啊
 
+
+*****
+
+####  cmyk1234  
+##### 272#       发表于 2026-2-1 14:15
+
+Wixoss公布了公主管弦乐Circle of Life（生命之环）形态的Lv4分身卡牌（5张）。
+
+<img src="https://p.sda1.dev/30/c40fd018cdf758c75b0161604d26fc50/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/30/50a769680cb09a8e8ff753588f3867ac/image.jpg" referrerpolicy="no-referrer">
+
