@@ -2651,3 +2651,11 @@ ED2：[https://youtu.be/rHlLzmlc69I](https://youtu.be/rHlLzmlc69I)
 
 FA这种25集改5卷小说的都改不好还觉得能拉出来举例和FSF比的人无理取闹到闹麻了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakki  
+##### 843#       发表于 2026-2-1 17:35
+
+等到漫画的部分都演完后，“原作党”会断崖式的减少<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
