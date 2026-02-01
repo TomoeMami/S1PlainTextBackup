@@ -347,3 +347,11 @@ ssrDXssp又不加地图炮弹数，攻击还低</blockquote>
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ドロロ  
+##### 3584#       发表于 2026-2-1 13:57
+
+送的3000又抽了一把终于出DX了<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
