@@ -119,3 +119,15 @@ B&amp;B联动复刻加新角 大概是两小只吧</blockquote>
 
 我去怎么没人提过要塞三周目赌场那帮剧毒暴击多轮高伤崽种这么难打，连两回合都撑不下去，完全看运气<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  orz100  
+##### 691#       发表于 2026-2-1 13:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69121896&amp;ptid=2249235" target="_blank">爱上了三个你 发表于 2026-2-1 11:52</a>
+我去怎么没人提过要塞三周目赌场那帮剧毒暴击多轮高伤崽种这么难打，连两回合都撑不下去，完全看运气 ...</blockquote>
+这群畜生怪玩意正常打很难，但是因为有pc无限凹复活bug，所以这些只会单体不会aoe一次杀多个人的怪都可以凹过去<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
