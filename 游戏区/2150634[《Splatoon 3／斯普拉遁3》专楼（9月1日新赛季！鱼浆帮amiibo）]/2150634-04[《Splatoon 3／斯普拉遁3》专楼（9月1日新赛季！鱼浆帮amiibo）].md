@@ -474,3 +474,11 @@ splatoon这个更新，是不是碰到一点血就会亮血条啊？有时候偷
 
 ……
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5853#       发表于 2026-2-1 17:34
+
+以往基本只打工不对战的，这次更新完用重刷狠狠在对战泼了个爽<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
