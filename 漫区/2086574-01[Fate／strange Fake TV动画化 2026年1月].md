@@ -2705,3 +2705,11 @@ FA这种25集改5卷小说的都改不好还觉得能拉出来举例和FSF比的
 没看过原著，为什么小黑哥从master变成lancer了啊？</blockquote>
 小哥召唤了watcher，这个位置本来是lancer，但是上三骑的位置没办法被ex职阶顶，没办法这个空位只能让小哥来顶了。
 
+
+*****
+
+####  岸浪白野  
+##### 848#       发表于 2026-2-2 01:01
+
+要不是靠无障碍字幕，等成田去说等到什么时候才知道剩下那个日本人是钟卷自斋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

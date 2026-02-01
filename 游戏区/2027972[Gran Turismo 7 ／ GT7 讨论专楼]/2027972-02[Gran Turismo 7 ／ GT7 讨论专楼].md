@@ -395,3 +395,32 @@ Unknown.jpg
 你是说最顶级那个软胎还是次一级的，我没留意过ss是哪个胎，最顶级那个应该是光头胎吧，gr1组别的赛车好 ...</blockquote>
 游戏里分了三个大类，舒适胎C运动胎S和赛车胎R然后细分硬度，R胎都是赛车胎了直接略过，那ss不就是最顶级的街胎了嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 2020#       发表于 2026-1-30 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69110545&amp;ptid=2027972" target="_blank">Totokei 发表于 2026-1-30 10:57</a>
+
+自己买的那个我没开，就开了计时的
+
+如果按刚刚说的设定的话ss等于cup2r同级，查了下现实里约等于tgt刷圈 ...</blockquote>
+你是说最顶级那个软胎还是次一级的，我没留意过ss是哪个胎，最顶级那个应该是光头胎吧，gr1组别的赛车好像就是用最顶级那批轮胎
+
+*****
+
+####  Totokei  
+##### 2021#       发表于 2026-1-30 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69110676&amp;ptid=2027972" target="_blank">洛克萨斯 发表于 2026-1-30 11:10</a>
+你是说最顶级那个软胎还是次一级的，我没留意过ss是哪个胎，最顶级那个应该是光头胎吧，gr1组别的赛车好 ...</blockquote>
+游戏里分了三个大类，舒适胎C运动胎S和赛车胎R然后细分硬度，R胎都是赛车胎了直接略过，那ss不就是最顶级的街胎了嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 2022#       发表于 2026-2-2 01:03
+
+玩了一下，很恐怖的车，根本不知道轮胎什么时候不行
+
