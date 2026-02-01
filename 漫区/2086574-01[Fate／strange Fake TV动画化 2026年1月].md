@@ -2659,3 +2659,15 @@ FA这种25集改5卷小说的都改不好还觉得能拉出来举例和FSF比的
 
 等到漫画的部分都演完后，“原作党”会断崖式的减少<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  马桶3  
+##### 844#       发表于 2026-2-1 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69123304&amp;ptid=2086574" target="_blank">ParadiseMartyr 发表于 2026-2-1 16:48</a>
+为什么仇海对黑道老大言听计从？没咒印了啊
+
+—— 来自 鹅球 v3.3.96</blockquote>
+催眠app的事儿不用搞得那么清楚<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
