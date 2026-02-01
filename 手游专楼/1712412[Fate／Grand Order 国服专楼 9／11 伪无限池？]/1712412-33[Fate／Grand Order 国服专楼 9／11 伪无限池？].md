@@ -77,3 +77,15 @@
 
 明年国服怎么翻译虞姬的强化技能呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Humpy  
+##### 47708#       发表于 2026-2-1 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69123760&amp;ptid=1712412" target="_blank">Urakawa 发表于 2026-2-1 18:45</a>
+没忍住还是扔了50抽出了黑姬，顺便出了比肖内。
+
+明年国服怎么翻译虞姬的强化技能呢 ...</blockquote>
+汲取公女<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
