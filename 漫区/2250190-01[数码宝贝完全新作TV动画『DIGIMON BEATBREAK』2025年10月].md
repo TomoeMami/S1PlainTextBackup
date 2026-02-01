@@ -40,3 +40,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">两边都是正太搭配大姐姐，给吾朗写个大写的惨
 
+
+*****
+
+####  永恒的王牌  
+##### 397#       发表于 2026-2-2 05:04
+
+我还挺喜欢突击龙兽的，希望不要是恶役<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
