@@ -2629,3 +2629,15 @@ ED2：[https://youtu.be/rHlLzmlc69I](https://youtu.be/rHlLzmlc69I)
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  大耳兽  
+##### 841#       发表于 2026-2-1 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69123304&amp;ptid=2086574" target="_blank">ParadiseMartyr 发表于 2026-2-1 16:48</a>
+为什么仇海对黑道老大言听计从？没咒印了啊
+
+—— 来自 鹅球 v3.3.96</blockquote>
+要靠黑老大供魔的啊。而且也没有言听计从吧。
+

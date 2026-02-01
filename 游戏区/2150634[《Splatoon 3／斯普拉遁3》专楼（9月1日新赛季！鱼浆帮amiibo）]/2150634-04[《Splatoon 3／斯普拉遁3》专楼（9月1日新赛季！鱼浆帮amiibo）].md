@@ -462,3 +462,15 @@ splatoon这个更新，是不是碰到一点血就会亮血条啊？有时候偷
 
 上手玩发现这血条加的感觉还好，主要够细
 
+
+*****
+
+####  Humpy  
+##### 5852#       发表于 2026-2-1 17:01
+
+文森现在有什么比较好的重刷对策吗<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+感觉更新后遇到对面有重刷就异常的难受
+
+……
+
