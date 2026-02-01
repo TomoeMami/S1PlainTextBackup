@@ -79,3 +79,25 @@ zzz这强化变体为什么总要在腮部加这么一块破坏简洁设计的�
 
 预告还挺唬人的，想着梦主是小孩子，所以不会整什么大活
 
+
+*****
+
+####  离心  
+##### 641#       发表于 2026-2-1 13:08
+
+补到最新一集了，zzz给我目前的感觉前期（？)的时候非常的日剧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">等离子出场之后特摄味才重起来，主角也渐渐讨喜了起来。nox反而越来越不知所谓了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  milky658  
+##### 642#       发表于 2026-2-1 13:13
+
+山口监督几次拍摄的塑造方向还蛮明显的，他手下的莫情绪起伏更大更喜欢耍帅，喜欢在梦里出现意外场景后切到现实的睡相营造喜剧效果。不知道是不是EA时期一个想法：新人演员不怎么演得出来角色的多面性，不如放开一点，浮夸一点。莫以为梦魇死了转身想离开也挺生草。经历前几集的低压氛围，这集蛮微妙的，质感下去了点，预兆的暗流涌动感表现得也不怎么样。
+
+RPG到有一点让我会心一笑的桥段，看到桶我只想赶紧玩到DQ7RE，至于树木贴图质量，感觉不如GAME FREAK<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+孩子们画的梦魇应该是怪人干部的定位。NOX的谜语解读下来是噩梦人传人到群体，最终孕育庞大的梦魇。孩子们可能是梦魇干部的祭品，这个干部可能是灾厄祭天怪。宁梦也想获得力量了，后期不会真变NOX吧。一无所知的孩子们被梦魇利用，感觉也在暗示以莫为代表的特工的处境。
+
