@@ -416,3 +416,13 @@ ssrDXssp又不加地图炮弹数，攻击还低</blockquote>
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  blue321  
+##### 3591#       发表于 2026-2-2 20:16
+
+这次爬塔比上一次多了两个满突UR，打起来舒服多了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+10层之后慢慢打了
+
