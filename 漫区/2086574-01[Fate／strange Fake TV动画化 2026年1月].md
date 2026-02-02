@@ -2745,3 +2745,27 @@ watcher没战斗力啊，只是观测
 
 抽到这个就是爆死
 
+
+*****
+
+####  洛克萨斯  
+##### 852#       发表于 2026-2-2 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69126439&amp;ptid=2086574" target="_blank">シャル 发表于 2026-2-2 10:52</a>
+
+watcher没战斗力啊，只是观测
+
+抽到这个就是爆死</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给切嗣的话估计很强，开图直接偷御主了
+
+*****
+
+####  大耳兽  
+##### 853#       发表于 2026-2-2 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69126439&amp;ptid=2086574" target="_blank">シャル 发表于 2026-2-2 10:52</a>
+watcher没战斗力啊，只是观测
+
+抽到这个就是爆死</blockquote>
+但是英灵本身好像不太容易被打死吧，御主能不能躲起来硬拖时间<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
