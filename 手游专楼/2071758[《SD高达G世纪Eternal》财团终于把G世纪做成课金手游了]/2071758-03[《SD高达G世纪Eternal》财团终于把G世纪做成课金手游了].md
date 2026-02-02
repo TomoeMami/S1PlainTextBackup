@@ -402,3 +402,17 @@ ssrDXssp又不加地图炮弹数，攻击还低</blockquote>
 
 蒂法这次有点拉了
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 3590#       发表于 2026-2-2 19:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69129015&amp;ptid=2071758" target="_blank">captoon 发表于 2026-2-2 18:42</a>
+粉毛歌姬和米米还可以的
+
+蒂法这次有点拉了</blockquote>
+就把蒂珐当成觉醒高的攻击机师用吧。。。坐一台觉醒武器厉害的机体。。。
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
