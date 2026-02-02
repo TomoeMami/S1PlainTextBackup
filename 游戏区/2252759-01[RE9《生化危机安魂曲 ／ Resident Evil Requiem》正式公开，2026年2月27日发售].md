@@ -1048,3 +1048,16 @@ re7不算抠，要把re引擎的投入算进去，这作的份量在capcom这应
 
 不需要期待ada登场=ada肯定登场所以不用期待有没有了
 
+
+*****
+
+####  阿西噶基米  
+##### 609#       发表于 2026-2-2 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69112674&amp;ptid=2252759" target="_blank">docklabor 发表于 2026-1-30 15:31</a>
+那一幕是一点，后面里昂来句冷笑话我是真没想到。虽然生4里里昂喜欢说冷笑话，但都是看场合的，调戏妹子， ...</blockquote>
+鬼扯，四代看着钉墙上的女村民尸体说了句
+我猜这里不兴女权
+
+重制版和谐掉了，还是你觉得女村民不无辜<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
