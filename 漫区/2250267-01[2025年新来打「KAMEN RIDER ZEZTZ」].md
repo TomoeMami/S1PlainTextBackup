@@ -173,3 +173,11 @@ RPG到有一点让我会心一笑的桥段，看到桶我只想赶紧玩到DQ7RE
 
 爱二tv  if线快打成宇宙骑士blade了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 652#       发表于 2026-2-2 13:18
+
+所以说TV本篇一辉献祭了自己和维斯的大脑换来了镇压一切的超级力量（指除了基夫复活到双究极诞生这段时间以外战斗力一直把敌人当减速带碾压平推）守护了家人，快说谢谢大哥<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
