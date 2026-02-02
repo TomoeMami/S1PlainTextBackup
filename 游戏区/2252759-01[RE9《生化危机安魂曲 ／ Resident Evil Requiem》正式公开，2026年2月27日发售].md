@@ -1082,3 +1082,12 @@ re7不算抠，要把re引擎的投入算进去，这作的份量在capcom这应
 
 说实话只要你让我玩体术射击，我对谁登场谁不登场真的无所谓，虽然我基本每作都玩但是对生化系列的剧情确实是毫不在意
 
+
+*****
+
+####  Piano-Forest  
+##### 612#         楼主| 发表于 2026-2-2 23:19
+
+Resident Evil Requiem - Evil Has Always Had A Name | Short Film
+[https://m.youtube.com/watch?v=M6gXJoN8RNk](https://m.youtube.com/watch?v=M6gXJoN8RNk)
+
