@@ -30,3 +30,23 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">带得越少百合纯度越高
 
+
+*****
+
+####  半年  
+##### 2455#       发表于 2026-2-2 09:59
+
+ 本帖最后由 半年 于 2026-2-2 10:01 编辑 
+
+<img src="https://img.stage1st.com/forum/202602/02/095747porymn7y8avmpmuo.jpg" referrerpolicy="no-referrer">
+
+<strong>HAEpBOXaQAAdFK9.jpg</strong> (435.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-2 09:57 上传
+
+[https://x.com/NewginGroup/status/2017939279616561431/photo/1](https://x.com/NewginGroup/status/2017939279616561431/photo/1)
+
+[https://www.youtube.com/watch?v=cF2ZcOBYajU](https://www.youtube.com/watch?v=cF2ZcOBYajU)
+
