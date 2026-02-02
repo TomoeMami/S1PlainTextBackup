@@ -58,3 +58,30 @@
 
 是长得像的neta还是真的暗示了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  恋叶梦境  
+##### 399#       发表于 2026-2-2 13:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69126710&amp;ptid=2250190" target="_blank">mrm4B 发表于 2026-2-2 11:29</a>
+
+看推上说 带突击龙的那个兄弟是seeker里的英仕？
+
+是长得像的neta还是真的暗示了 ...</blockquote>
+除非有舅舅，最快的情报也得周五的先行图，现在也没谁可以给你剧透。目前也只是纯看着像吧，而且瑛士带的是小狼和巨龙，突击龙姑且还是数对那边的
+
+基于目前dbb的剧情和设定来推测的话应该单纯只是前战术队的，之前介绍的时候都有类军事训练风格，孵化出突击龙也不是不可能
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| mrm4B| + 1|好评加鹅|
+
+查看全部评分
+
