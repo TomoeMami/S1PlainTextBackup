@@ -389,3 +389,16 @@ ssrDXssp又不加地图炮弹数，攻击还低</blockquote>
 
 活动UR驾驶员不就是纯收藏的，你还想多强
 
+
+*****
+
+####  captoon  
+##### 3589#       发表于 2026-2-2 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69128894&amp;ptid=2071758" target="_blank">ドロロ 发表于 2026-2-2 18:16</a>
+
+活动UR驾驶员不就是纯收藏的，你还想多强</blockquote>
+粉毛歌姬和米米还可以的
+
+蒂法这次有点拉了
+
