@@ -2769,3 +2769,15 @@ watcher没战斗力啊，只是观测
 抽到这个就是爆死</blockquote>
 但是英灵本身好像不太容易被打死吧，御主能不能躲起来硬拖时间<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  格林卡罗尔  
+##### 854#       发表于 2026-2-2 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69120387&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-1-31 23:31</a>
+插图里写的仇/弓是什么意思，难道说现在既是仇又是弓吗。</blockquote>
+成田说是什么就是什么，不要追问这么细
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
