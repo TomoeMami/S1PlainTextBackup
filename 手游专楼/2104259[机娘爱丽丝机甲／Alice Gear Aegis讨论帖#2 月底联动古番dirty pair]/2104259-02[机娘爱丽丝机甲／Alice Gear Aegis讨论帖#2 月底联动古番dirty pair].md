@@ -24,3 +24,16 @@ P站联动复刻之后现在最想要的就是DOA联动了，学姐寡妇那个�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">话说我记得以前fa角不是放着会不停自己说话的嘛，怎么现在都没响了
 
+
+*****
+
+####  不灭的旋律  
+##### 1903#       发表于 2026-2-2 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69126717&amp;ptid=2104259" target="_blank">madcow 发表于 2026-2-2 11:31</a>
+
+话说我记得以前fa角不是放着会不停自己说话的嘛，怎么现在都没响了</blockquote>
+不会啊，只有刚开机时会说特殊语音。
+
+还有你上面问的待机语音，只有FA和部分角色有，而且语音列表里确实没有。按金字塔的脑回路估计就是想让你多待机听
+
