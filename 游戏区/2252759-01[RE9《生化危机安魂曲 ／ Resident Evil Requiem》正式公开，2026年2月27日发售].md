@@ -1007,3 +1007,15 @@ re7不算抠，要把re引擎的投入算进去，这作的份量在capcom这应
 
 之前中西晃史：我也没说过他不会出场
 
+
+*****
+
+####  cangyuyao  
+##### 605#       发表于 2026-2-2 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69126334&amp;ptid=2252759" target="_blank">finalstar099 发表于 2026-2-2 10:31</a>
+制作人明确表达“不需要期待艾达登场”
+
+过于直白了，过往作品有里昂，就有艾达吧。</blockquote>
+这又是哪里说的啊？
+
