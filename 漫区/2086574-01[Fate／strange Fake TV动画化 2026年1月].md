@@ -2792,3 +2792,13 @@ watcher没战斗力啊，只是观测
 但是英灵本身好像不太容易被打死吧，御主能不能躲起来硬拖时间。</blockquote>
 总归要面对最后吃鸡剩下的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  软软人  
+##### 856#       发表于 2026-2-3 00:51
+
+fate系列信息和设定真是太密集了，不补一下设定脑子跟不上槽都没法吐<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
