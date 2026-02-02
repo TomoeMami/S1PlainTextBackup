@@ -48,3 +48,13 @@
 
 我还挺喜欢突击龙兽的，希望不要是恶役<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mrm4B  
+##### 398#       发表于 2026-2-2 11:29
+
+看推上说 带突击龙的那个兄弟是seeker里的英仕？
+
+是长得像的neta还是真的暗示了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

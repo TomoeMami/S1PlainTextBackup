@@ -16,3 +16,11 @@ P站联动复刻之后现在最想要的就是DOA联动了，学姐寡妇那个�
 
 这些被动升级没开的联动角色也只能等复刻了，还不少吧
 
+
+*****
+
+####  madcow  
+##### 1902#       发表于 2026-2-2 11:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">话说我记得以前fa角不是放着会不停自己说话的嘛，怎么现在都没响了
+
