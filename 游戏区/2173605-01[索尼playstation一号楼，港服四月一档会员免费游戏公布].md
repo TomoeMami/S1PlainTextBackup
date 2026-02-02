@@ -12,3 +12,11 @@
 
 <img src="https://p.sda1.dev/30/eb4c797fff022b9a5b26dc4e4f8e8aa3/0.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 500#       发表于 2026-2-2 15:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">索尼申请专利多了去了，没看到几个落地的
+
