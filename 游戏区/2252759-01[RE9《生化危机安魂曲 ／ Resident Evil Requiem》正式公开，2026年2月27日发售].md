@@ -1061,3 +1061,16 @@ re7不算抠，要把re引擎的投入算进去，这作的份量在capcom这应
 
 重制版和谐掉了，还是你觉得女村民不无辜<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灵魂收割机  
+##### 610#       发表于 2026-2-2 21:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69128609&amp;ptid=2252759" target="_blank">阿西噶基米 发表于 2026-2-2 17:16</a>
+
+鬼扯，四代看着钉墙上的女村民尸体说了句
+
+我猜这里不兴女权</blockquote>
+英文版是“Guess there's no sex discrimination here（我看这里不存在性别歧视）”，日文版是“女も容赦なしか…（对女人也不留情吗……）”。英文版发挥了一下。
+
