@@ -2781,3 +2781,14 @@ watcher没战斗力啊，只是观测
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  風卷豹  
+##### 855#       发表于 2026-2-2 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69126518&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-2-2 11:03</a>
+
+但是英灵本身好像不太容易被打死吧，御主能不能躲起来硬拖时间。</blockquote>
+总归要面对最后吃鸡剩下的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
