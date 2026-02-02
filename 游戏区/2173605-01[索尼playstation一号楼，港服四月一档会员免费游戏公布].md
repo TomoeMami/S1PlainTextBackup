@@ -1,0 +1,14 @@
+﻿
+*****
+
+####  霖岚_  
+##### 499#       发表于 2026-2-2 15:23
+
+索尼最近申请了新手柄设计专利，用电容屏代替实体按键，看着有够怪的
+
+顺便好奇去搜了下有没有别的，还看到这个适用dualsense上的枪支手柄配件专利（[https://mapp.api.weibo.cn/fx/e10 ... 51a46ccbeb50ca.html](https://mapp.api.weibo.cn/fx/e102a413cf6d87c22351a46ccbeb50ca.html)）……看着更怪了
+
+以前玩次子的时候就觉得竖握手柄喷漆的小玩法还挺有意思，感觉可以也用在射击游戏上，但后续也没再看到类似的游戏设计，估计是竖握的陀螺仪算法好跟常规平握的不一样，次子那也只是按脚本运行的也不是实际用上陀螺仪
+
+<img src="https://p.sda1.dev/30/eb4c797fff022b9a5b26dc4e4f8e8aa3/0.png" referrerpolicy="no-referrer">
+
