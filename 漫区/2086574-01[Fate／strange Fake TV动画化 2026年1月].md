@@ -2721,3 +2721,14 @@ FA这种25集改5卷小说的都改不好还觉得能拉出来举例和FSF比的
 
 钟卷自斋有点意外，其他的基本也都和主流猜测没差
 
+
+*****
+
+####  proselyte  
+##### 850#       发表于 2026-2-2 08:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69125331&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-2-2 01:01</a>
+
+要不是靠无敌的无障碍字幕，等成田去说等到什么时候才知道剩下那个日本人是钟卷自斋</blockquote>
+没想到是钟卷自斋，那个小孩十字军我一开始没往儿童十字军去想
+
