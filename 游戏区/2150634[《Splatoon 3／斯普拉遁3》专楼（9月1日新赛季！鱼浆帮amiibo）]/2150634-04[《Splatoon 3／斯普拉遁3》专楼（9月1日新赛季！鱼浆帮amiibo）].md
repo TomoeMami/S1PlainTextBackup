@@ -526,3 +526,15 @@ splatoon这个更新，是不是碰到一点血就会亮血条啊？有时候偷
 
 初代重刷最强的时候也是这个感觉吗
 
+
+*****
+
+####  秋月孝三  
+##### 5858#       发表于 2026-2-3 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69133637&amp;ptid=2150634" target="_blank">Humpy 发表于 2026-2-3 20:59</a>
+初代重刷最强的时候也是这个感觉吗</blockquote>
+差不多，不过一代还有更强的压着重刷<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
