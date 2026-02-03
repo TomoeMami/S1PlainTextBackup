@@ -371,3 +371,15 @@
 
 要不箭头还是给这榴弹枪削100伤害吧，要不我实在用不踏实，强度太夸张了
 
+
+*****
+
+####  ParadiseMartyr  
+##### 7303#       发表于 2026-2-4 00:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69134366&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2026-2-4 00:47</a>
+要不箭头还是给这榴弹枪削100伤害吧，要不我实在用不踏实，强度太夸张了</blockquote>
+链式榴弹比补包榴弹差多了，还是别削榴弹了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
