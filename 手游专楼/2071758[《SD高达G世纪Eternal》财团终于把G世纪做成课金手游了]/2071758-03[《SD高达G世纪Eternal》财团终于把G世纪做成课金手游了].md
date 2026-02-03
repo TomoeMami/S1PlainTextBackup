@@ -455,3 +455,16 @@ dx的体验是独一份的
 —— 来自 Xiaomi 23049RAD8C, ...</blockquote>
 少有的 蓝人当红人用用
 
+
+*****
+
+####  fireadol  
+##### 3595#       发表于 2026-2-3 08:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69129224&amp;ptid=2071758" target="_blank">真贝尔奈普斯 发表于 2026-2-2 19:39</a>
+
+就把蒂珐当成觉醒高的攻击机师用吧。。。坐一台觉醒武器厉害的机体。。。
+
+—— 来自 Xiaomi 23049RAD8C, ...</blockquote>
+X开发机就那台MA觉醒武装好点吧
+
