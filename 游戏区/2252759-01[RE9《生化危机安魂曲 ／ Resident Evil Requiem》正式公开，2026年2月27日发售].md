@@ -1091,3 +1091,11 @@ re7不算抠，要把re引擎的投入算进去，这作的份量在capcom这应
 Resident Evil Requiem - Evil Has Always Had A Name | Short Film
 [https://m.youtube.com/watch?v=M6gXJoN8RNk](https://m.youtube.com/watch?v=M6gXJoN8RNk)
 
+
+*****
+
+####  pentacles  
+##### 613#       发表于 2026-2-3 14:08
+
+Lily Gao的声音挺明显的 也算是明示了
+

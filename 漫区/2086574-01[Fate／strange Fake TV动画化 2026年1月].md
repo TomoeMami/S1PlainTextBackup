@@ -2970,3 +2970,15 @@ fate系列信息和设定真是太密集了，不补一下设定脑子跟不上�
 
 你月强度现在最重要是要有十字升天光炮对单，牢虚这种万物转平a的习惯基本碰谁谁死
 
+
+*****
+
+####  pokemon最爱  
+##### 871#       发表于 2026-2-3 14:12
+
+主要你月目前论战前提都是不缺魔，就显得老虚这个保守的车卡很抽象<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大帝和始皇的卡也抽象，好在后续其他写手把逼格补上来了，枪刷没人救就比较惨<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+主任四战下场那么惨枪刷这个抽象的配置是要负责的，主任这么个不缺魔的主偏偏召唤了一个纯白刃的节能从者<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
