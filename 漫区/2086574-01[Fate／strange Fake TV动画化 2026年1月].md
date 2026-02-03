@@ -2995,3 +2995,14 @@ fate系列信息和设定真是太密集了，不补一下设定脑子跟不上�
 大帝和始皇的卡也抽象，好在后续其他写 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主任归天是天命，召唤谁都会死，主任按原计划召唤亚历山大不缺魔的话估计表现力会强很多
 
+
+*****
+
+####  pokemon最爱  
+##### 873#       发表于 2026-2-3 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69132359&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-2-3 14:35</a>
+
+主任归天是天命，召唤谁都会死，主任按原计划召唤亚历山大不缺魔的话估计表现力会强很多 ...</blockquote>
+是天命但但凡换个不那么抽象的从者都不至于表现的这么小丑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
