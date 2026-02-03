@@ -39,3 +39,14 @@
 好奇pssr2真的存在吗，效果能有传的那么好嘛</blockquote>
 这个应该没跑,只是上线时间问题.
 
+
+*****
+
+####  哎哟卧槽了  
+##### 503#       发表于 2026-2-3 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69131598&amp;ptid=2173605" target="_blank">渡边加奈子 发表于 2026-2-3 10:50</a>
+
+这个应该没跑,只是上线时间问题.</blockquote>
+估计在找游戏商去聊支持，上线的时候宣传多款游戏兼容吧
+
