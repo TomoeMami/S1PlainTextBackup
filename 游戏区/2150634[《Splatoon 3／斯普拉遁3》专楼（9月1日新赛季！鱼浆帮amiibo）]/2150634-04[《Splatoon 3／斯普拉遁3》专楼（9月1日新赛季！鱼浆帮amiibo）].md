@@ -500,3 +500,11 @@ splatoon这个更新，是不是碰到一点血就会亮血条啊？有时候偷
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5855#       发表于 2026-2-3 20:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">重刷这强度能活过下个月吗，强的离谱
+
