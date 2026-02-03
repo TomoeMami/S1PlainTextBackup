@@ -3035,3 +3035,16 @@ fate系列信息和设定真是太密集了，不补一下设定脑子跟不上�
 从写作角度看，刷子是典型工具人设啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，三骑士就他一个没对军，四战除了最底层的百貌和红枪稍克狂兰以外基本谁也打不过（不过按大海魔是顶级守门员的说法四战其实也只有闪和呆毛能过，比起五战的希腊大联欢还是菜鸡互啄了）
 黄枪设定就是为了圆“满魔万全呆毛怎么不一路光炮乱杀”，才开篇封掉单手到后半。泪痣除了坑自己人以外没有任何作用，整组人的下场更是拿来凸显魔术师杀手威名的垫子，完全体现作者恶意。
 
+
+*****
+
+####  pokemon最爱  
+##### 876#       发表于 2026-2-3 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69132443&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-2-3 14:52</a>
+
+还是迪卢木多太老实了，直接双剑双枪全带下来估计初见呆毛不止损失一只手了，他宝具还挺阴的 ...</blockquote>
+其实枪刷这个配置要是遇上围脖这种供不起魔的弱鸡御主的话倒也还行，偏偏御主是个不缺魔的主<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过跨职介带宝具能不能带我觉得可以讨论一下，特别是刷子这种剑比枪效果强太多的，闪毕竟EA是放进王财里的算是钻空子了<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
