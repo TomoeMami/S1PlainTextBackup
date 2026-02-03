@@ -28,3 +28,14 @@
 
 好奇pssr2真的存在吗，效果能有传的那么好嘛
 
+
+*****
+
+####  渡边加奈子  
+##### 502#       发表于 2026-2-3 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69131548&amp;ptid=2173605" target="_blank">Jigsaw1999 发表于 2026-2-3 10:44</a>
+
+好奇pssr2真的存在吗，效果能有传的那么好嘛</blockquote>
+这个应该没跑,只是上线时间问题.
+
