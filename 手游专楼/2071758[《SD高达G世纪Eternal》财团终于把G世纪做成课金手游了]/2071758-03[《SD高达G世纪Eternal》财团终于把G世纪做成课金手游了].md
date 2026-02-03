@@ -487,3 +487,23 @@ X开发机就那台MA觉醒武装好点吧
 
 15比14还简单，备一个穿越map送到金色紧身衣前面，一发其他地图炮打残5个然后收掉神后拿右边小兵跳板飞进去就行
 
+
+*****
+
+####  シャル  
+##### 3598#         楼主| 发表于 2026-2-3 09:58
+
+14用大哥打10次发动200攻打援攻，上面5个很容易打爆
+
+注意不要进入DX月光炮射程里
+
+15更简单了，就硬打，打爆BD3和神，直接凤凰/尊者/天照偷渡进去，不偷渡也可以选择打爆嫣红iwsp
+
+<img src="https://img.stage1st.com/forum/202602/03/095813priwwj9q79m99r9p.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202602/03/095813priwwj9q79m99r9p.png">
+
+<strong>IMG_4787.png</strong> (577.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-3 09:58 上传
+
