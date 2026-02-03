@@ -2812,3 +2812,14 @@ fate系列信息和设定真是太密集了，不补一下设定脑子跟不上�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  xiongxingyu  
+##### 858#       发表于 2026-2-3 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69126518&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-2-2 11:03</a>
+
+但是英灵本身好像不太容易被打死吧，御主能不能躲起来硬拖时间。</blockquote>
+这个全图不带破隐形，而且要自己主动去看监控，所以可以用各种方法妨碍，就比如这集刚召出来还没来得及看就被狂信子突脸了，如果不是遇到saber组的话，西格玛其实大概率要交代在这里了。
+
