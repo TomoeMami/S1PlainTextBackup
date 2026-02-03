@@ -2925,3 +2925,40 @@ fate系列信息和设定真是太密集了，不补一下设定脑子跟不上�
 
 查看全部评分
 
+
+*****
+
+####  proselyte  
+##### 867#       发表于 2026-2-3 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69131321&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-2-3 10:18</a>
+
+好像是说挑战自然的失败者</blockquote>
+当时猜的吧
+
+儿童十字军也算挑战自然吗
+
+*****
+
+####  proselyte  
+##### 868#       发表于 2026-2-3 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69131366&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-2-3 10:23</a>
+
+我看的说法是双枪或者双剑都很垃圾，要一枪一剑才厉害。但是好像没有常规职阶能这么带的吧，难道要狂吗。 ...</blockquote>
+理论上rider应该能全带
+
+刷子问题应该还是老虚车卡
+
+*****
+
+####  洛克萨斯  
+##### 869#       发表于 2026-2-3 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69131486&amp;ptid=2086574" target="_blank">proselyte 发表于 2026-2-3 10:37</a>
+
+理论上rider应该能全带
+
+刷子问题应该还是老虚车卡</blockquote>
+你虚笔下的卡全是没有强度美的，惨的不行
+
