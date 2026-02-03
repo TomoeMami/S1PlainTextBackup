@@ -482,3 +482,21 @@ splatoon这个更新，是不是碰到一点血就会亮血条啊？有时候偷
 
 以往基本只打工不对战的，这次更新完用重刷狠狠在对战泼了个爽<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shirolin  
+##### 5854#       发表于 2026-2-3 10:39
+
+涂击队消息
+
+<img src="https://img.stage1st.com/forum/202602/03/103852dxyf6wxzvtmvtfrr.jpg" referrerpolicy="no-referrer">
+
+<strong>weibo_52621795928368842.jpg</strong> (253.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-3 10:38 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

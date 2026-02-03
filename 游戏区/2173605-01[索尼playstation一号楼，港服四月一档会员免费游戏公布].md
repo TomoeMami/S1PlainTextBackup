@@ -20,3 +20,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">索尼申请专利多了去了，没看到几个落地的
 
+
+*****
+
+####  Jigsaw1999  
+##### 501#       发表于 2026-2-3 10:44
+
+好奇pssr2真的存在吗，效果能有传的那么好嘛
+
