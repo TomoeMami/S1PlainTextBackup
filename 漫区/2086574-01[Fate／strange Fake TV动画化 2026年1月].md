@@ -2859,3 +2859,46 @@ fate系列信息和设定真是太密集了，不补一下设定脑子跟不上�
 
 所以watcher刷出来的这四五个英灵是根据什么来的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 863#       发表于 2026-2-3 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69131092&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-2-3 09:43</a>
+
+刷子真的是最垃圾的那一档从者吗，我还以为剑刷子很厉害，结果发现连讨论fsf的地方都在乳刷。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">一流水平是有的，他比较老实枪阶下来没带剑而已，双枪都是被动效果没有主动效果缺乏决定性的输出
+
+*****
+
+####  洛克萨斯  
+##### 864#       发表于 2026-2-3 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69131162&amp;ptid=2086574" target="_blank">ardente 发表于 2026-2-3 09:53</a>
+
+所以watcher刷出来的这四五个英灵是根据什么来的</blockquote>
+好像是说挑战自然的失败者
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ardente| + 1|欢乐多|
+
+查看全部评分
+
+
+*****
+
+####  大耳兽  
+##### 865#       发表于 2026-2-3 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69131320&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-2-3 10:17</a>
+一流水平是有的，他比较老实枪阶下来没带剑而已，双枪都是被动效果没有主动效果缺乏决定性的输出 ...</blockquote>
+我看的说法是双枪或者双剑都很垃圾，要一枪一剑才厉害。但是好像没有常规职阶能这么带的吧，难道要狂吗。
+
