@@ -396,12 +396,12 @@
     "update": false
   },
   "2086637": {
-    "totalreply": 11452,
+    "totalreply": 11454,
     "title": "[【ぷにち】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
     "newtitle": "[【七代目】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
-    "lastedit": 1769776449,
+    "lastedit": 1770137289,
     "category": "虚拟主播区专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2086516": {
@@ -12051,10 +12051,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 44859,
+    "totalreply": 44864,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1770136707,
+    "lastedit": 1770137050,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12717,10 +12717,10 @@
     "update": false
   },
   "2271402": {
-    "totalreply": 1906,
+    "totalreply": 1907,
     "title": "[任天堂病棟14楼，等一个春节春直]",
     "newtitle": "[任天堂病棟14楼，等一个春节春直]",
-    "lastedit": 1770136707,
+    "lastedit": 1770137054,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12825,10 +12825,10 @@
     "update": false
   },
   "2271540": {
-    "totalreply": 1531,
+    "totalreply": 1534,
     "title": "[黄金又又回四位数了，真是跌宕起伏啊]",
     "newtitle": "[黄金又又回四位数了，真是跌宕起伏啊——更新，沪金又又又回四位数了]",
-    "lastedit": 1770135970,
+    "lastedit": 1770136927,
     "category": "外野",
     "active": true,
     "update": false
@@ -16128,10 +16128,10 @@
     "update": false
   },
   "2273622": {
-    "totalreply": 80,
+    "totalreply": 81,
     "title": "[还有没有像魔炮这种百合和媚男通吃的女女作品…？]",
     "newtitle": "[还有没有像魔炮这种百合和媚男通吃的女女作品…？]",
-    "lastedit": 1770132508,
+    "lastedit": 1770136806,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16650,10 +16650,10 @@
     "update": false
   },
   "2273843": {
-    "totalreply": 247,
+    "totalreply": 248,
     "title": "[笑死，什么巨婴，躲自己权限帖子里疯狂扣鹅]",
     "newtitle": "[笑死，什么巨婴，躲自己权限帖子里疯狂扣鹅]",
-    "lastedit": 1770133347,
+    "lastedit": 1770137290,
     "category": "外野",
     "active": true,
     "update": false
@@ -16826,6 +16826,15 @@
     "newtitle": "[酒，还是不错的~]",
     "lastedit": 1770135623,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2176497": {
+    "totalreply": 251,
+    "title": "[高达系列45周年 ／ 高达GWX30周年纪念企划始动]",
+    "newtitle": "[高达系列45周年 ／ 高达GWX30周年纪念企划始动]",
+    "lastedit": 1770137061,
+    "category": "漫区",
     "active": true,
     "update": false
   }
