@@ -2982,3 +2982,16 @@ fate系列信息和设定真是太密集了，不补一下设定脑子跟不上�
 
 主任四战下场那么惨枪刷这个抽象的配置是要负责的，主任这么个不缺魔的主偏偏召唤了一个纯白刃的节能从者<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 872#       发表于 2026-2-3 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69132198&amp;ptid=2086574" target="_blank">pokemon最爱 发表于 2026-2-3 14:12</a>
+
+主要你月目前论战前提都是不缺魔，就显得老虚这个保守的车卡很抽象
+
+大帝和始皇的卡也抽象，好在后续其他写 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主任归天是天命，召唤谁都会死，主任按原计划召唤亚历山大不缺魔的话估计表现力会强很多
+
