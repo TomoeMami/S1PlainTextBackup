@@ -3061,3 +3061,13 @@ fate系列信息和设定真是太密集了，不补一下设定脑子跟不上�
 不过跨职介 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">罗无力的罗财不也复数宝具，我觉得纯看写手心情
 
+
+*****
+
+####  zakki  
+##### 878#       发表于 2026-2-3 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69131162&amp;ptid=2086574" target="_blank">ardente 发表于 2026-2-3 09:53</a>
+所以watcher刷出来的这四五个英灵是根据什么来的</blockquote>
+挑战某种试炼的失败者
+
