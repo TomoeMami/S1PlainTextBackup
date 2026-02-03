@@ -3071,3 +3071,25 @@ fate系列信息和设定真是太密集了，不补一下设定脑子跟不上�
 所以watcher刷出来的这四五个英灵是根据什么来的</blockquote>
 挑战某种试炼的失败者
 
+
+*****
+
+####  pokemon最爱  
+##### 879#       发表于 2026-2-3 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69132491&amp;ptid=2086574" target="_blank">zqqwe 发表于 2026-2-3 15:06</a>
+
+从写作角度看，刷子是典型工具人设啊，三骑士就他一个没对军，四战除了最底层的百貌和红枪稍克狂兰以外基本 ...</blockquote>
+带帝还是被老虚的卡给坑了，结果就是堂堂Top从者开大缺火力<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+带帝您还是赶紧找个自己被卫宫士郎召唤的世界想办法把士郎和UBW拉进王军里吧
+
+*****
+
+####  pokemon最爱  
+##### 880#       发表于 2026-2-3 18:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69132690&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-2-3 17:35</a>
+
+罗无力的罗财不也复数宝具，我觉得纯看写手心情</blockquote>
+罗财等级被限制了吧，我觉得整体上职介对宝具的持有和使用还是有一定限制的。
+
