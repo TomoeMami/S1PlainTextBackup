@@ -2851,3 +2851,11 @@ fate系列信息和设定真是太密集了，不补一下设定脑子跟不上�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷子真的是最垃圾的那一档从者吗，我还以为剑刷子很厉害，结果发现连讨论fsf的地方都在乳刷。
 
+
+*****
+
+####  ardente  
+##### 862#       发表于 2026-2-3 09:53
+
+所以watcher刷出来的这四五个英灵是根据什么来的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
