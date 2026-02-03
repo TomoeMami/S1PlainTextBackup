@@ -131,3 +131,16 @@ B&amp;B联动复刻加新角 大概是两小只吧</blockquote>
 
 —— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  电脑死机  
+##### 692#       发表于 2026-2-3 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69121896&amp;ptid=2249235" target="_blank">爱上了三个你 发表于 2026-2-1 11:52</a>
+
+我去怎么没人提过要塞三周目赌场那帮剧毒暴击多轮高伤崽种这么难打，连两回合都撑不下去，完全看运气 ...</blockquote>
+现在才知道？剧毒除了魔法和嗑药之外还有个法子是直接死了拉起来清掉，我倒是没去解毒，奶妈一路奶就行，四个战士砍他娘的杀了过去
+
+大家都在吐槽，这赌场卧虎藏龙怎么不去打大异形呢
+
