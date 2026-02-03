@@ -508,3 +508,13 @@ splatoon这个更新，是不是碰到一点血就会亮血条啊？有时候偷
 
 <img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">重刷这强度能活过下个月吗，强的离谱
 
+
+*****
+
+####  Aeroblast  
+##### 5856#       发表于 2026-2-3 20:53
+
+感觉要体现重量感，范围和伤害都不能太削弱，不如加大硬直吧。
+
+尤其是跳跃落地立刻攻击的情况，稳赚不赔。
+
