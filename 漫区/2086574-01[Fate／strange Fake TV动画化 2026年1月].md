@@ -3048,3 +3048,16 @@ fate系列信息和设定真是太密集了，不补一下设定脑子跟不上�
 
 不过跨职介带宝具能不能带我觉得可以讨论一下，特别是刷子这种剑比枪效果强太多的，闪毕竟EA是放进王财里的算是钻空子了<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 877#       发表于 2026-2-3 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69132624&amp;ptid=2086574" target="_blank">pokemon最爱 发表于 2026-2-3 15:51</a>
+
+其实枪刷这个配置要是遇上围脖这种供不起魔的弱鸡御主的话倒也还行，偏偏御主是个不缺魔的主
+
+不过跨职介 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">罗无力的罗财不也复数宝具，我觉得纯看写手心情
+
