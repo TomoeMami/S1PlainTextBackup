@@ -89,3 +89,11 @@
 明年国服怎么翻译虞姬的强化技能呢 ...</blockquote>
 汲取公女<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 47709#       发表于 2026-2-3 20:40
+
+很好奇到时候是用什么字代替精<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
