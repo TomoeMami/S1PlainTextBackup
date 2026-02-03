@@ -468,3 +468,14 @@ dx的体验是独一份的
 —— 来自 Xiaomi 23049RAD8C, ...</blockquote>
 X开发机就那台MA觉醒武装好点吧
 
+
+*****
+
+####  电脑死机  
+##### 3596#       发表于 2026-2-3 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69129762&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2026-2-2 22:15</a>
+
+一口气打完9,10-15等攻略了</blockquote>
+9到13都简单，水关注意地图炮就行，14关重要的是让BL兄弟尽快出援护加攻和拉上去，一炮一个小朋友
+
