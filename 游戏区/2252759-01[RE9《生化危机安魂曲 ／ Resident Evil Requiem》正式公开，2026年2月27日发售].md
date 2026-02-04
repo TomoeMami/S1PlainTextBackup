@@ -1115,3 +1115,11 @@ Lily Gao的声音挺明显的 也算是明示了
 
 昨天RE4突然更新 进去一看单纯就是主菜单加了个RE9的预购跳转<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cangyuyao  
+##### 616#       发表于 2026-2-4 17:32
+
+还加了两种语言的配音，结果首页一堆怒喷拉美西语配得垃圾<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
