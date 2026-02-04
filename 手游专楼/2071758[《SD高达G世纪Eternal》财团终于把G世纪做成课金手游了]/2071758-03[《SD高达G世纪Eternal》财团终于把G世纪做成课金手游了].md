@@ -572,3 +572,11 @@ byd我就说这强敌袭来送的机子面板怎么怪怪的，这还能填错�
 
 要不把年代比较久远的漫画都放上来，彻底坐实联网的高达百科全书这一块
 
+
+*****
+
+####  ドロロ  
+##### 3605#       发表于 2026-2-4 20:01
+
+好好的坦克援，现在索然无味了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
