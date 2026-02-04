@@ -8,3 +8,13 @@
 https://store.steampowered.com/app/3219580
 国人做的画风很可爱的解谜游戏，玩过 demo 印象还不错
 
+
+*****
+
+####  酒々井かんづめ  
+##### 303#       发表于 2026-2-4 17:02
+
+<blockquote>BRAVADO 发表于 2026-1-8 22:47
+Spooky Express没想到居然很不错，让一笔画苦手的我玩得津津有味。每个puzzle基本只有两三个major catch： ...</blockquote>
+这作和前作相比差异大吗？前作玩了一大半感觉关卡设计大同小异，也没什么有意思的新机制就没全通
+
