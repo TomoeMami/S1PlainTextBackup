@@ -4415,7 +4415,7 @@
     "newtitle": "[黑神话 悟空，pc、ps5版24.8.20上午十点发售｜xs版25.8.20发售]",
     "lastedit": 1769906409,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1962013": {
@@ -6318,10 +6318,10 @@
     "update": false
   },
   "2152053": {
-    "totalreply": 2456,
+    "totalreply": 2457,
     "title": "[『Lycoris Recoil ／ 莉可丽丝』③号楼 新作动画制作决定]",
     "newtitle": "[『Lycoris Recoil ／ 莉可丽丝』③号楼 新作动画制作决定]",
-    "lastedit": 1770113902,
+    "lastedit": 1770166091,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12690,10 +12690,10 @@
     "update": false
   },
   "2268175": {
-    "totalreply": 408,
+    "totalreply": 409,
     "title": "[2026年Q娃 ​​​​名侦探Precure]",
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
-    "lastedit": 1770165368,
+    "lastedit": 1770165730,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12708,19 +12708,19 @@
     "update": false
   },
   "2271402": {
-    "totalreply": 1913,
+    "totalreply": 1915,
     "title": "[任天堂病棟14楼，等一个春节春直]",
     "newtitle": "[任天堂病棟14楼，等一个春节春直]",
-    "lastedit": 1770164412,
+    "lastedit": 1770165609,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2266493": {
-    "totalreply": 822,
+    "totalreply": 823,
     "title": "[山下清悟监督 原创动画『超时空辉夜姬！／ 超かぐや姫！』2026年1月22日 Netflix配信]",
     "newtitle": "[山下清悟监督 原创动画『超时空辉夜姬！／ 超かぐや姫！』2026年1月22日 Netflix配信]",
-    "lastedit": 1770164168,
+    "lastedit": 1770166094,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13648,15 +13648,6 @@
     "title": "[高童权本身也会降低生育率吧]",
     "newtitle": "[高童权本身也会降低生育率吧]",
     "lastedit": 1768988779,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2272822": {
-    "totalreply": 47,
-    "title": "[唐代这官职好像比宋代的精简的多？]",
-    "newtitle": "[唐代这官职好像比宋代的精简的多？]",
-    "lastedit": 1768956137,
     "category": "外野",
     "active": false,
     "update": false
@@ -16254,10 +16245,10 @@
     "update": false
   },
   "2273715": {
-    "totalreply": 307,
+    "totalreply": 309,
     "title": "[正道世界的人间地狱（略重口，慎入）]",
     "newtitle": "[正道世界的人间地狱（转爱泼斯坦百官行述专楼，重口，慎入）]",
-    "lastedit": 1770165494,
+    "lastedit": 1770166094,
     "category": "外野",
     "active": true,
     "update": false
@@ -16686,10 +16677,10 @@
     "update": false
   },
   "2273859": {
-    "totalreply": 110,
+    "totalreply": 111,
     "title": "[你永远可以相信上海人民的排队能力]",
     "newtitle": "[你永远可以相信上海人民的排队能力]",
-    "lastedit": 1770165494,
+    "lastedit": 1770165731,
     "category": "外野",
     "active": true,
     "update": false
@@ -16834,6 +16825,15 @@
     "title": "[国内的环境，哎]",
     "newtitle": "[国内的环境，哎]",
     "lastedit": 1770164895,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2273747": {
+    "totalreply": 41,
+    "title": "[己巳之变是不是袁崇焕的锅？他为何要遣散援兵ZT]",
+    "newtitle": "[己巳之变是不是袁崇焕的锅？他为何要遣散援兵ZT]",
+    "lastedit": 1770166094,
     "category": "外野",
     "active": true,
     "update": false

@@ -66,3 +66,12 @@
 
 <img src="https://iili.io/fZpS4ZQ.gif" referrerpolicy="no-referrer">受害者+1
 
+
+*****
+
+####  osore  
+##### 2457#       发表于 2026-2-4 08:45
+
+鬼bba被除外了，所以不参加联动<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+话说上推看了才发现是有声音的
+
