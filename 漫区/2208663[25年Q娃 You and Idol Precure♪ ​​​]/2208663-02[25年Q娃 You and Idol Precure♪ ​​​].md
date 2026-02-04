@@ -24,3 +24,16 @@
 
 <img src="https://img.stage1st.com/forum/202602/04/211522bif2m7mfmpzfscyi.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Blackson  
+##### 1609#       发表于 2026-2-4 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69139077&amp;ptid=2208663" target="_blank">経緯 发表于 2026-2-4 21:55</a>
+
+竟然追平了拥抱……</blockquote>
+刚看了图表，令和年间涨幅最大的是天空~汪Q的这一波(涨幅1.87亿)；汪Q~偶像涨幅0.82亿；
+
+感觉今年有可能像拥抱~星闪一样降幅
+
