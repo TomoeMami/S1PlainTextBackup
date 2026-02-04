@@ -590,3 +590,16 @@ byd我就说这强敌袭来送的机子面板怎么怪怪的，这还能填错�
 
 已发布
 
+
+*****
+
+####  洛克萨斯  
+##### 3607#       发表于 2026-2-4 20:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69138655&amp;ptid=2071758" target="_blank">AminGly 发表于 2026-2-4 20:25</a>
+
+https://tieba.baidu.com/p/104603 ... &amp;cid=0#153165177660
+
+已发布</blockquote>
+能天使和山楂饼分别是牛逼和菜逼的守门员是吧
+
