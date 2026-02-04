@@ -1107,3 +1107,11 @@ Lily Gao的声音挺明显的 也算是明示了
 
 前脚我才说采访不期待，这真人视频就藏了个ada…
 
+
+*****
+
+####  windlikeman  
+##### 615#       发表于 2026-2-4 15:18
+
+昨天RE4突然更新 进去一看单纯就是主菜单加了个RE9的预购跳转<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
