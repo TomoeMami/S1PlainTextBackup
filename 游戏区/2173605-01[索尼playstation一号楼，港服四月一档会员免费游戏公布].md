@@ -50,3 +50,19 @@
 这个应该没跑,只是上线时间问题.</blockquote>
 估计在找游戏商去聊支持，上线的时候宣传多款游戏兼容吧
 
+
+*****
+
+####  黑猫软  
+##### 504#       发表于 2026-2-4 09:03
+
+给他爱6首发是有盘的 之前一直传首发没盘索索破大防<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202602/04/090306rz86cyvqcd73qzne.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1770166930857_891.jpg</strong> (269.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-4 09:03 上传
+
