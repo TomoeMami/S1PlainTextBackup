@@ -515,3 +515,15 @@ X开发机就那台MA觉醒武装好点吧
 
 byd我就说这强敌袭来送的机子面板怎么怪怪的，这还能填错的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 3600#       发表于 2026-2-4 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69136460&amp;ptid=2071758" target="_blank">里村紅葉 发表于 2026-2-4 13:34</a>
+byd我就说这强敌袭来送的机子面板怎么怪怪的，这还能填错的</blockquote>
+太好笑了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然后给了100石头？
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
