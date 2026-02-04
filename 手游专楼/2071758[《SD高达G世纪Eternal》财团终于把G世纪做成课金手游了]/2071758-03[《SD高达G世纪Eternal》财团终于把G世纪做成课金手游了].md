@@ -673,3 +673,15 @@ X系列要出后续UR的话感觉可能会是舰长配带Gbit的GX这种，刚�
 
 今年开的卡池都带100pt小保底，闪哈的上年11月开的自然没
 
+
+*****
+
+####  acg_gyanc  
+##### 3615#       发表于 2026-2-5 01:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69139045&amp;ptid=2071758" target="_blank">blue321 发表于 2026-2-4 21:49</a>
+当初EXIA还是开服推荐吧，没想到迭代这么快</blockquote>
+也就能天使机体菜了，傻子那这个驾驶员还是很顶的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
