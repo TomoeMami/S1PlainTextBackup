@@ -644,3 +644,14 @@ https://tieba.baidu.com/p/104603 ... &amp;cid=0#153165177660
 
 X系列要出后续UR的话感觉可能会是舰长配带Gbit的GX这种，刚好舰长没出卡池SSR
 
+
+*****
+
+####  洛克萨斯  
+##### 3612#       发表于 2026-2-4 22:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69139045&amp;ptid=2071758" target="_blank">blue321 发表于 2026-2-4 21:49</a>
+
+当初EXIA还是开服推荐吧，没想到迭代这么快</blockquote>
+刹那还是强的，机体送驾驶员
+
