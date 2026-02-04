@@ -551,3 +551,14 @@ byd我就说这强敌袭来送的机子面板怎么怪怪的，这还能填错�
 byd我就说这强敌袭来送的机子面板怎么怪怪的，这还能填错的</blockquote>
 改了之后变成啥
 
+
+*****
+
+####  GameTheory  
+##### 3603#       发表于 2026-2-4 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69136800&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2026-2-4 14:31</a>
+
+改了之后变成啥</blockquote>
+公告上有，说支援机的数值填成了防御机，现在改回去了
+
