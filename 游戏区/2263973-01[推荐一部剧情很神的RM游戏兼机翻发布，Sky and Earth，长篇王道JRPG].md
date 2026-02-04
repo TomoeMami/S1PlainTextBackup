@@ -21,3 +21,14 @@
 求问最后一个实绩是什么？要怎么获得？ ...</blockquote>
 确定前面的都亮了的话，再去打一次马耳朵
 
+
+*****
+
+####  urvark  
+##### 232#       发表于 2026-2-4 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69137697&amp;ptid=2263973" target="_blank">Booorunestud 发表于 2026-2-4 16:43</a>
+
+确定前面的都亮了的话，再去打一次马耳朵</blockquote>
+拿到了，感谢……没想到一共要打三次最终BOSS才能拿全成就，这设计有点奇怪
+
