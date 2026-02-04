@@ -47,3 +47,16 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  pokemon最爱  
+##### 1611#       发表于 2026-2-5 01:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69139445&amp;ptid=2208663" target="_blank">luffy0085 发表于 2026-2-4 23:14</a>
+
+公主……这么低的么？
+
+—— 来自 S1Fun</blockquote>
+相比于大友的评价来说小友对公主的评价没有那么高，以及撞上妖表的影响吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
