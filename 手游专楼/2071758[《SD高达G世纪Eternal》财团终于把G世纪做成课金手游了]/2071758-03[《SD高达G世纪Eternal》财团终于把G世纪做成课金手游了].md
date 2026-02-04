@@ -603,3 +603,23 @@ https://tieba.baidu.com/p/104603 ... &amp;cid=0#153165177660
 已发布</blockquote>
 能天使和山楂饼分别是牛逼和菜逼的守门员是吧
 
+
+*****
+
+####  AminGly  
+##### 3608#       发表于 2026-2-4 21:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69138701&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2026-2-4 20:39</a>
+
+能天使和山楂饼分别是牛逼和菜逼的守门员是吧</blockquote>
+可以这么认为
+
+*****
+
+####  HATENA  
+##### 3609#       发表于 2026-2-4 21:23
+
+<blockquote>真贝尔奈普斯 发表于 2026-1-31 18:57
+先不管强弱，玩这游戏就是为了X，现在等到了肯定要抽而且很明显还留了一手，G猎鹰合体的空霸和斑豹后续机没 ...</blockquote>
+感觉短时间内不会出，看种跟x的模式后续有这种大型外挂都是同类型ssr开发+高性能让你正主去骑的
+
