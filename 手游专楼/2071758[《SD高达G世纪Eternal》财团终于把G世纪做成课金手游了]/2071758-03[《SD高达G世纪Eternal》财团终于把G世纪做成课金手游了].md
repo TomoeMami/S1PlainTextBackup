@@ -631,3 +631,16 @@ https://tieba.baidu.com/p/104603 ... &amp;cid=0#153165177660
 
 当初EXIA还是开服推荐吧，没想到迭代这么快<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alialex  
+##### 3611#       发表于 2026-2-4 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69118946&amp;ptid=2071758" target="_blank">真贝尔奈普斯 发表于 2026-1-31 18:57</a>
+
+先不管强弱，玩这游戏就是为了X，现在等到了肯定要抽而且很明显还留了一手，G猎鹰合体的空霸和斑豹后续机没 ...</blockquote>
+这次的UR虽然只叫DX但一眼就是G猎鹰DX了，用卫星炮是DX，用EX武装就是G猎鹰DX的动画，已经是一口气给够了。
+
+X系列要出后续UR的话感觉可能会是舰长配带Gbit的GX这种，刚好舰长没出卡池SSR
+
