@@ -424,3 +424,16 @@ Unknown.jpg
 
 玩了一下，很恐怖的车，根本不知道轮胎什么时候不行
 
+
+*****
+
+####  洛克萨斯  
+##### 2023#       发表于 2026-2-4 23:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69139126&amp;ptid=2027972" target="_blank">Totokei 发表于 2026-2-4 22:02</a>
+
+上周备战GTWS最终站就没开小米，蒙扎计时跑完之后今晚开了几圈纽北</blockquote>
+基本听不到电机声音，只有轮胎在尖叫，其实开着是挺恐怖的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我只能说不怎么适合多连续高速弯道的路段，铃鹿很容易就飞出跑道了
+
