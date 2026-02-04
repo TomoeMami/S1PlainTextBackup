@@ -623,3 +623,11 @@ https://tieba.baidu.com/p/104603 ... &amp;cid=0#153165177660
 先不管强弱，玩这游戏就是为了X，现在等到了肯定要抽而且很明显还留了一手，G猎鹰合体的空霸和斑豹后续机没 ...</blockquote>
 感觉短时间内不会出，看种跟x的模式后续有这种大型外挂都是同类型ssr开发+高性能让你正主去骑的
 
+
+*****
+
+####  blue321  
+##### 3610#       发表于 2026-2-4 21:49
+
+当初EXIA还是开服推荐吧，没想到迭代这么快<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
