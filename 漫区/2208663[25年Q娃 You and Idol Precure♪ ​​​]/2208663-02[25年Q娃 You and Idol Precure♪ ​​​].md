@@ -79,3 +79,14 @@
 相比于大友的评价来说小友对公主的评价没有那么高，以及撞上妖表的影响吧 ...</blockquote>
 不但公主 后面的魔法还有热带都是叫好不叫做的 不知道为什么。。。。。
 
+
+*****
+
+####  雷之  
+##### 1614#       发表于 2026-2-5 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69141961&amp;ptid=2208663" target="_blank">八木爱月 发表于 2026-2-5 13:07</a>
+
+不但公主 后面的魔法还有热带都是叫好不叫做的 不知道为什么。。。。。</blockquote>
+幼女动画的战争不是只靠自己好就行的
+
