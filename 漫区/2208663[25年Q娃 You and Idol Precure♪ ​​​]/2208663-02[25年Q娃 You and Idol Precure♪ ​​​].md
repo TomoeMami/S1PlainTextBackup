@@ -60,3 +60,11 @@
 —— 来自 S1Fun</blockquote>
 相比于大友的评价来说小友对公主的评价没有那么高，以及撞上妖表的影响吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  codezwei  
+##### 1612#       发表于 2026-2-5 11:54
+
+剧场版好看，要是把剧场版的剧情套皮TV主线 偶Q的风评也不至于这么差
+
