@@ -30,3 +30,20 @@
 —— ...</blockquote>
 猜你想点名血源是吧<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nightmare902015  
+##### 2112#       发表于 2026-2-5 09:45
+
+讲道理这游戏很可能已经到点了。dlc就这样了，幽影地的武器装备极大概率也不会出。以后最多调调数值出个永夜垃圾王等dead game这样
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  hugosol  
+##### 2113#       发表于 2026-2-5 13:21
+
+这游戏现在的体量已经挺大的了，不过要是能把黄金树幽影的武器加进去那将是绝杀
+
