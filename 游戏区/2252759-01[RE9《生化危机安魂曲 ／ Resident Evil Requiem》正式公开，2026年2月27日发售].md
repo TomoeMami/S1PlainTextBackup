@@ -1123,3 +1123,22 @@ Lily Gao的声音挺明显的 也算是明示了
 
 还加了两种语言的配音，结果首页一堆怒喷拉美西语配得垃圾<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  siansian  
+##### 617#       发表于 2026-2-5 22:42
+
+ 本帖最后由 siansian 于 2026-2-5 22:45 编辑 
+
+RE9这出的两个amibo也太邪神了吧
+
+FB511C6699476C2EFA4981E21DDD6B1E.jpg
+(66.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-5 22:44 上传
+
+<img src="https://img.stage1st.com/forum/202602/05/224436bs025hx5uusyfu33.jpg" referrerpolicy="no-referrer">
+
