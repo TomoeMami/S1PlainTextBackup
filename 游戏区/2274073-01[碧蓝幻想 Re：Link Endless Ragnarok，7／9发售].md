@@ -588,3 +588,13 @@ steam页面上了
 
 — from asus ASUS_AI2302, Android 15, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  oyss  
+##### 64#       发表于 2026-2-6 02:31
+
+这游戏后期基本靠攒奥义硬控住boss然后往死里打.
+
+看着召唤兽的意思是给更多控boss的手段了?2+2奥义,再加召唤兽,boss不能动的时间更长了.
+
