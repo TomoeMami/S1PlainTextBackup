@@ -74,3 +74,22 @@
 
 ps5累计：9220w台
 
+
+*****
+
+####  日日日日日野  
+##### 506#       发表于 2026-2-5 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69141255&amp;ptid=2173605" target="_blank">黑猫软 发表于 2026-2-5 11:15</a>
+
+索尼今天公开了25-26财年第三季度的财务报告，透露了PlayStation业务的几项关键指标，以下是本次财报的主要 ...</blockquote>
+这一季度的出货量跟NS1+NS2基本持平
+
+
+*****
+
+####  nancygreenlife  
+##### 507#       发表于 2026-2-5 11:45
+
+NS2第一年销量就把对手的壮年机当年销量给超了，以前有过这样先例吗？
+
