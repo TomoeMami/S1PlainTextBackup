@@ -428,3 +428,17 @@ smoke bomb是名将里翔的AB扣血无敌技，原作里挺弱的，远不如�
 
 在机器人大战系列里，他设计过著名的原创主角机之一古铁(以及白骑士及各自后继机)，还有A战五台主角机
 
+
+*****
+
+####  bk_201  
+##### 44#       发表于 2026-2-5 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69140218&amp;ptid=2273938" target="_blank">cuchulain2021 发表于 2026-2-5 08:30</a>
+pxz2上个月刚汉化完啊
+
+—— 来自 Xiaomi 25053RT47C, Android 16, 鹅球 v3.5.99</blockquote>
+什么，那太好了，可以重温了<img src="https://static.stage1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2301A, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
