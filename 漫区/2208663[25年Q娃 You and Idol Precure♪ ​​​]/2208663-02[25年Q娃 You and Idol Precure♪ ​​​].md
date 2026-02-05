@@ -68,3 +68,14 @@
 
 剧场版好看，要是把剧场版的剧情套皮TV主线 偶Q的风评也不至于这么差
 
+
+*****
+
+####  八木爱月  
+##### 1613#       发表于 2026-2-5 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69139884&amp;ptid=2208663" target="_blank">pokemon最爱 发表于 2026-2-5 01:40</a>
+
+相比于大友的评价来说小友对公主的评价没有那么高，以及撞上妖表的影响吧 ...</blockquote>
+不但公主 后面的魔法还有热带都是叫好不叫做的 不知道为什么。。。。。
+
