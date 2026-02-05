@@ -100,3 +100,13 @@
 
 既要体现出游戏角色里她的枪种，又要复刻足立无罪的名场面嘛<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 2460#       发表于 2026-2-5 12:18
+
+这联动视频下面的评论一会消失一个也太哈人了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
