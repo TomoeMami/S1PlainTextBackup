@@ -500,3 +500,13 @@ steam页面上了
 本来就没和vs角色有什么错开，事到如今还错开啥，难道不应该什么人气高上哪个么，当初的诟病的毛病 ...</blockquote>
 天知道cy咋想的，不过真有芙劳的话还是不错的，本体全角类角色就一个牛爷爷真是绷不住，Relink做出来怕不是贝姐再就业
 
+
+*****
+
+####  超极巨鲨鲨  
+##### 56#       发表于 2026-2-6 00:29
+
+下回来试了一下，时隔两年居然纯靠肌肉记忆就想起来怎么玩了，当年几百个小时没白刷<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
