@@ -705,3 +705,13 @@ X系列要出后续UR的话感觉可能会是舰长配带Gbit的GX这种，刚�
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  arthes  
+##### 3618#       发表于 2026-2-5 14:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">结果嫣红也挺肉的被迫放弃再来
+
+感觉可以给强杀降一点难度再丰富一下过关方法
+
