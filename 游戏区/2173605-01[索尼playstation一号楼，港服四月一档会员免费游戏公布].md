@@ -142,3 +142,45 @@ NS2第一年销量就把对手的壮年机当年销量给超了，以前有过�
 
 看sop会不会有
 
+
+*****
+
+####  黑猫软  
+##### 513#       发表于 2026-2-5 23:08
+
+<img src="https://img.stage1st.com/forum/202602/05/230750x82mjmjg90ggmhea.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260205_230735.jpg</strong> (248.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-5 23:07 上传
+
+地平线网游
+
+看画质感觉不是主力作品<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑猫软  
+##### 514#       发表于 2026-2-5 23:10
+
+《地平线猎人聚会》是一款合作动作游戏（由Guerrilla开发，面向PS5和PC平台），最多允许三名玩家组队，扮演英雄猎人，保护一个受到致命机器威胁的世界。战斗具有战术性、反应性强且高度依赖技巧，建立在《地平线》系列的战术精准基础上，同时融合团队合作的动态。
+
+<img src="https://img.stage1st.com/forum/202602/05/231002b4hx58q8dtayzka7.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1770304190791_17.jpg</strong> (218.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-5 23:10 上传
+
+
+*****
+
+####  任天索尼子  
+##### 515#       发表于 2026-2-5 23:15
+
+0人在意
+
