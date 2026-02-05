@@ -1142,3 +1142,13 @@ FB511C6699476C2EFA4981E21DDD6B1E.jpg
 
 <img src="https://img.stage1st.com/forum/202602/05/224436bs025hx5uusyfu33.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 618#       发表于 2026-2-5 23:00
+
+LEON那把大口徑給變色版...
+
+不過今個PV多了LEON用狙擊槍
+
