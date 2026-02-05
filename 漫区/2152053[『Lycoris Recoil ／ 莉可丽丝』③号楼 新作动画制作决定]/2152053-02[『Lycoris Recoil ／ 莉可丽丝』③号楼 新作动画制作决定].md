@@ -92,3 +92,11 @@
 
 你的神人队友端着狙击枪冲锋
 
+
+*****
+
+####  osore  
+##### 2459#       发表于 2026-2-5 11:16
+
+既要体现出游戏角色里她的枪种，又要复刻足立无罪的名场面嘛<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
