@@ -459,3 +459,34 @@ steam页面上了
 
 卧槽难道说今年是游戏大年
 
+
+*****
+
+####  bgmilk  
+##### 52#       发表于 2026-2-6 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69145229&amp;ptid=2274073" target="_blank">黑酒杯 发表于 2026-2-5 23:52</a>
+
+评论区说未公布的俩角色是暗龙和芙劳</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那感觉还不如羊和狐狸........咋想的
+
+*****
+
+####  黑酒杯  
+##### 53#       发表于 2026-2-6 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69145278&amp;ptid=2274073" target="_blank">bgmilk 发表于 2026-2-6 00:08</a>
+那感觉还不如羊和狐狸........咋想的</blockquote>
+和vs选角错开呗，暗龙对应土龙，芙劳对应尼娅，不过我是真想不通组织待遇咋这么好，都快出齐了都不出维拉
+
+
+*****
+
+####  bgmilk  
+##### 54#       发表于 2026-2-6 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69145291&amp;ptid=2274073" target="_blank">黑酒杯 发表于 2026-2-6 00:10</a>
+
+和vs选角错开呗，暗龙对应土龙，芙劳对应尼娅，不过我是真想不通组织待遇咋这么好，都快出齐了都不出维拉 ...</blockquote>
+     本来就没和vs角色有什么错开，事到如今还错开啥，难道不应该什么人气高上哪个么，当初的诟病的毛病还要再来一遍阿。
+
