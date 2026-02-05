@@ -104,3 +104,15 @@ NS2第一年销量就把对手的壮年机当年销量给超了，以前有过�
 NS2第一年销量就把对手的壮年机当年销量给超了，以前有过这样先例吗？</blockquote>
 以历史而论，一台迈入第六年的主机，都该谈换代了，跟壮年机搭不上边。但以眼下的情况来看，索尼拖到2年后公布我都不意外
 
+
+*****
+
+####  名字已被吃  
+##### 509#       发表于 2026-2-5 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69141472&amp;ptid=2173605" target="_blank">nancygreenlife 发表于 2026-2-5 11:45</a>
+NS2第一年销量就把对手的壮年机当年销量给超了，以前有过这样先例吗？</blockquote>
+笑死，你在这里说壮年，外面说不定不认呢，你有几个独占就说壮年了，去年不是都解读索尼社长说法是步入后期了吗
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
