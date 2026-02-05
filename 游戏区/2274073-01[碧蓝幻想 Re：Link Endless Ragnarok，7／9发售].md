@@ -364,3 +364,43 @@ ps5版刷了100个小时了，你不会叫我重新刷吧<img src="https://stati
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  超极巨鲨鲨  
+##### 42#       发表于 2026-2-5 23:10
+
+steam页面上了
+
+<img src="https://img.stage1st.com/forum/202602/05/231012fukauafuu95akd2q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (183.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-5 23:10 上传
+
+<img src="https://img.stage1st.com/forum/202602/05/231044fr4zbz8rl2l32o4n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (137.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-5 23:10 上传
+
+*****
+
+####  口三才信徒  
+##### 43#       发表于 2026-2-5 23:11
+
+祈愿有土龙,看gbfvsr真的好馋
+
+*****
+
+####  windlikeman  
+##### 44#       发表于 2026-2-5 23:13
+
+看了下steam的片 
+
+和巴布桑一起追加的副本还有.........螃蟹王和咸鱼王！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
