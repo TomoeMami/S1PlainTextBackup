@@ -510,3 +510,45 @@ steam页面上了
 
 —— 来自 realme RMX3706, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  hello0607  
+##### 57#       发表于 2026-2-6 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69145339&amp;ptid=2274073" target="_blank">黑酒杯 发表于 2026-2-6 00:26</a>
+
+天知道cy咋想的，不过真有芙劳的话还是不错的，本体全角类角色就一个牛爷爷真是绷不住，Relink做出来怕不 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+该把牛爷爷换成ntr专用角色阿丽莎的 你游第一个活动sr到现在都那么二创
+
+
+*****
+
+####  新庄運切  
+##### 58#       发表于 2026-2-6 00:44
+
+念念不忘必有回想<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+买买买
+
+*****
+
+####  Cerberus01  
+##### 59#       发表于 2026-2-6 00:47
+
+看到世界boss了，肯定会有贤者队友，希望是萝莉妈妈
+
+*****
+
+####  伊露伊道格拉斯  
+##### 60#       发表于 2026-2-6 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69145090&amp;ptid=2274073" target="_blank">windlikeman 发表于 2026-2-5 23:13</a>
+
+看了下steam的片 
+
+和巴布桑一起追加的副本还有.........螃蟹王和咸鱼王！</blockquote>
+真的吗，还有奥古斯提的海鲜？<img src="https://static.stage1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">不过没有梅格的可选角色……
+
