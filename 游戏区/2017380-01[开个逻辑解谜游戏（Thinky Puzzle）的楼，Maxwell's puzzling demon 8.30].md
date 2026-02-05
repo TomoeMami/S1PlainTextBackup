@@ -41,3 +41,14 @@ Spooky Express 跟前作比差别不算小，不太剧透的讲，初代几个�
 
 楼上已经说得很好了，我补充一点：主线，尤其是前半部分确实（刻意）做简单了点；ABC附加关卡才是正菜。
 
+
+*****
+
+####  Algie  
+##### 306#       发表于 2026-2-6 01:16
+
+2025年thinky awards
+[https://thinkygames.com/events/awards/](https://thinkygames.com/events/awards/)
+
+年度游戏/社区之选：蓝途王子
+
