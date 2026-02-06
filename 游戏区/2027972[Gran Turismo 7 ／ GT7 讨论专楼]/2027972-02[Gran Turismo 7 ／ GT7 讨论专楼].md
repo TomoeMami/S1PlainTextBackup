@@ -437,3 +437,16 @@ Unknown.jpg
 
 我只能说不怎么适合多连续高速弯道的路段，铃鹿很容易就飞出跑道了
 
+
+*****
+
+####  洛克萨斯  
+##### 2024#       发表于 2026-2-6 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69109919&amp;ptid=2027972" target="_blank">Totokei 发表于 2026-1-30 09:48</a>
+
+按照米其林合作时的胎纹，运动胎都是cup2那就勉强把ss当成cup2r吧
+
+现在dunlop学乖了不写具体型号了 ...</blockquote>
+高翔最新的节目里任周灿说gt7的sm胎和赛轮pt01差不多
+
