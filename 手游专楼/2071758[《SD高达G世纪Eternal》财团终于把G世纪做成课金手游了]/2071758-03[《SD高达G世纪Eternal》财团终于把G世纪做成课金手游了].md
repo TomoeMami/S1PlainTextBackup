@@ -754,3 +754,21 @@ X系列要出后续UR的话感觉可能会是舰长配带Gbit的GX这种，刚�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  arthes  
+##### 3623#       发表于 2026-2-6 12:35
+
+虽然动画感觉挺敷衍的，但是那么快就有sd建模还是有点厉害的，可能这裹得严严实实的本来也不好做动画，而且还是送的，就这样吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">图鉴喜+1
+
+
+*****
+
+####  真贝尔奈普斯  
+##### 3624#       发表于 2026-2-6 12:43
+
+之前sp过大白鹅了，现在送专用sp芯片真是浪费了。。。
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
