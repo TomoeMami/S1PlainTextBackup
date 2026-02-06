@@ -728,3 +728,11 @@ X系列要出后续UR的话感觉可能会是舰长配带Gbit的GX这种，刚�
 
 14我好几次失败都是叠层叠半天被月光炮一炮杀了，最后直接换家打法先杀了dx后面慢慢叠层收割
 
+
+*****
+
+####  洛克萨斯  
+##### 3620#       发表于 2026-2-6 11:33
+
+送新鹅和雷恩了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
