@@ -736,3 +736,11 @@ X系列要出后续UR的话感觉可能会是舰长配带Gbit的GX这种，刚�
 
 送新鹅和雷恩了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CCMkIII  
+##### 3621#       发表于 2026-2-6 11:57
+
+我们永恒玩家居然是最早玩到大白牛的一批人，也是好起来了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
