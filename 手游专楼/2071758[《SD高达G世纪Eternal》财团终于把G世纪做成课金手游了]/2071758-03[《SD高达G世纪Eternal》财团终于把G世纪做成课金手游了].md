@@ -788,3 +788,11 @@ X系列要出后续UR的话感觉可能会是舰长配带Gbit的GX这种，刚�
 
 以后sp芯片只会越来越多吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，倒也不用太可惜
 
+
+*****
+
+####  王俊凯  
+##### 3627#       发表于 2026-2-6 13:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">送五周东西呢 还有三个礼拜
+
