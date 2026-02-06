@@ -780,3 +780,11 @@ X系列要出后续UR的话感觉可能会是舰长配带Gbit的GX这种，刚�
 
 没事，可以等不知道多久来的决战装备
 
+
+*****
+
+####  arthes  
+##### 3626#       发表于 2026-2-6 13:00
+
+以后sp芯片只会越来越多吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，倒也不用太可惜
+

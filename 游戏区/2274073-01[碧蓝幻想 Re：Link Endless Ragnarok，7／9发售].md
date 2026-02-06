@@ -674,3 +674,25 @@ steam页面上了
 
 能不能优化下飞剑萝莉的建模啊
 
+
+*****
+
+####  嘉术2015  
+##### 74#       发表于 2026-2-6 13:04
+
+只希望ns2不要是钥匙卡
+
+还有希望能有跨平台存档（可能性不大）
+
+*****
+
+####  geniuswu  
+##### 75#       发表于 2026-2-6 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69147660&amp;ptid=2274073" target="_blank">嘉术2015 发表于 2026-2-6 13:04</a>
+只希望ns2不要是钥匙卡
+
+还有希望能有跨平台存档（可能性不大）</blockquote>
+cystore限定版的页面有小盒的包装图，基本上确定是key卡了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+eshop写的是39GB
+
