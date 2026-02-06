@@ -744,3 +744,13 @@ X系列要出后续UR的话感觉可能会是舰长配带Gbit的GX这种，刚�
 
 我们永恒玩家居然是最早玩到大白牛的一批人，也是好起来了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 3622#       发表于 2026-2-6 12:24
+
+王朝！永恒！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
