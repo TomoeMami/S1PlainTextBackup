@@ -796,3 +796,11 @@ X系列要出后续UR的话感觉可能会是舰长配带Gbit的GX这种，刚�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">送五周东西呢 还有三个礼拜
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3628#       发表于 2026-2-6 17:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">漫画怎么是原版的，我记得不是有繁中吗
+
