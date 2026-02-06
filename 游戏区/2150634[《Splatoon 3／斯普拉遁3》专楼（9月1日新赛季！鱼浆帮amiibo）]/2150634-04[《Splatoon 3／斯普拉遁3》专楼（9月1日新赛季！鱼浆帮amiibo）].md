@@ -548,3 +548,22 @@ splatoon这个更新，是不是碰到一点血就会亮血条啊？有时候偷
 
 blaster又挨一刀
 
+
+*****
+
+####  shirolin  
+##### 5860#       发表于 2026-2-6 20:05
+
+心流机制总结。
+可能还有些错误待订正。
+
+<img src="https://img.stage1st.com/forum/202602/06/200434zzku2ta0vadfdtut.png" referrerpolicy="no-referrer">
+
+<strong>Image_1770379425123.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2026-2-6 20:04 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
