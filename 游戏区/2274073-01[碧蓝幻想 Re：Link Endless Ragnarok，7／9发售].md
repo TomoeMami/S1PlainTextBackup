@@ -606,3 +606,13 @@ steam页面上了
 
 贝熊 电狼 暗龙 芙劳这个人选在2024年就听说有外包接到。如果是真的，拖了两年在所有人都觉得死透的时候诈尸蛮乐的
 
+
+*****
+
+####  全世界失恋  
+##### 66#       发表于 2026-2-6 08:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">刷刷刷游戏还是要开老金才能体验完整的游戏内容啊
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
