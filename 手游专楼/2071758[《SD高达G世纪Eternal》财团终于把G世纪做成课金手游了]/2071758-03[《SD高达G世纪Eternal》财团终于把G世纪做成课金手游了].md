@@ -804,3 +804,14 @@ X系列要出后续UR的话感觉可能会是舰长配带Gbit的GX这种，刚�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">漫画怎么是原版的，我记得不是有繁中吗
 
+
+*****
+
+####  zksandy  
+##### 3629#       发表于 2026-2-6 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69149594&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-2-6 17:43</a>
+
+漫画怎么是原版的，我记得不是有繁中吗</blockquote>
+台湾角川繁中版权又不一样吧
+
