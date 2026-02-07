@@ -696,3 +696,19 @@ steam页面上了
 cystore限定版的页面有小盒的包装图，基本上确定是key卡了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 eshop写的是39GB
 
+
+*****
+
+####  伊露伊道格拉斯  
+##### 76#       发表于 2026-2-7 11:26
+
+唉，还是不出薇拉，所以只能用卡姐cos了
+
+<img src="https://img.stage1st.com/forum/202602/07/112620bsa7ssbjis1f4s3b.jpg" referrerpolicy="no-referrer">
+
+<strong>881020_7761.jpg</strong> (634.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-7 11:26 上传
+

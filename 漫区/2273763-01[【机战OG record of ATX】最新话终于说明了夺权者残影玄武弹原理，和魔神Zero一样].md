@@ -550,3 +550,13 @@ ogs的chaos的确不行
 
 没气势
 
+
+*****
+
+####  王元姬无惨  
+##### 45#       发表于 2026-2-7 11:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69152468&amp;ptid=2273763" target="_blank">Ironman_mk5 发表于 2026-2-7 10:24</a>
+学种命万能里三主角的写法一个在前期吃瘪另一个在后期吃瘪如何</blockquote>
+常见的做法是因为误会冲突打起来 然后再解除误会联手 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">种命那个不是全得罪了的反面例子吗
+
