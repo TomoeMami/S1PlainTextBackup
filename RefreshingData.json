@@ -3777,7 +3777,7 @@
     "lastedit": 1770461280,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1414,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 30312,
+    "totalreply": 30315,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》2.5 可曾记得爱]",
-    "lastedit": 1770468857,
+    "lastedit": 1770469700,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7362,10 +7362,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 74508,
+    "totalreply": 74509,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1770467900,
+    "lastedit": 1770469700,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11448,10 +11448,10 @@
     "update": false
   },
   "2252821": {
-    "totalreply": 2754,
+    "totalreply": 2755,
     "title": "[Team Ninja《仁王3》正式公布，2026年初发售，Demo现已上线PS5]",
     "newtitle": "[Team Ninja《仁王3》正式公布，2026年2月6日发售]",
-    "lastedit": 1770468616,
+    "lastedit": 1770469456,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11925,10 +11925,10 @@
     "update": false
   },
   "2260400": {
-    "totalreply": 6353,
+    "totalreply": 6354,
     "title": "[【明日方舟】国服16号楼 9.4 Ave Mujica联动SS「无忧梦呓」 (本楼含YJWL动态交流)]",
     "newtitle": "[【明日方舟】国服16号楼 1.27「相见欢」复刻(本楼含YJWL动态交流)]",
-    "lastedit": 1770466934,
+    "lastedit": 1770469700,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12051,10 +12051,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 45782,
+    "totalreply": 45786,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1770468728,
+    "lastedit": 1770469695,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12312,10 +12312,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 6362,
+    "totalreply": 6364,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【明日方舟：终末地】情报汇总3号楼 2026.1.22 全球公测]",
-    "lastedit": 1770468852,
+    "lastedit": 1770469700,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12456,10 +12456,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 12491,
+    "totalreply": 12496,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1770468368,
+    "lastedit": 1770469700,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12510,10 +12510,10 @@
     "update": false
   },
   "2269491": {
-    "totalreply": 11038,
+    "totalreply": 11040,
     "title": "[牢A与赞美诗]",
     "newtitle": "[牢A与赞美诗（转型牢A切片讨论楼）]",
-    "lastedit": 1770468622,
+    "lastedit": 1770469456,
     "category": "外野",
     "active": true,
     "update": false
@@ -16848,10 +16848,10 @@
     "update": false
   },
   "2274204": {
-    "totalreply": 65,
+    "totalreply": 66,
     "title": "[还没有看诡秘第二部，但看到有人说克莱恩成了汪精卫是什么鬼？小说还值得补吗？]",
     "newtitle": "[还没有看诡秘第二部，但看到有人说克莱恩成了汪精卫是什么鬼？小说还值得补吗？]",
-    "lastedit": 1770468013,
+    "lastedit": 1770469213,
     "category": "外野",
     "active": true,
     "update": false
@@ -16924,6 +16924,15 @@
     "title": "[皇国经济看宅男！]",
     "newtitle": "[皇国经济看宅男！]",
     "lastedit": 1770468622,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2274211": {
+    "totalreply": 41,
+    "title": "[gemini到期了咋办？]",
+    "newtitle": "[gemini到期了咋办？]",
+    "lastedit": 1770469457,
     "category": "外野",
     "active": true,
     "update": false
