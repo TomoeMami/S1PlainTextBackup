@@ -1544,7 +1544,7 @@
     "newtitle": "[漫画《少年的深渊》讨论楼]",
     "lastedit": 1770222251,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2046370": {
@@ -3777,7 +3777,7 @@
     "lastedit": 1770461280,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1414,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 30391,
+    "totalreply": 30392,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》2.5 可曾记得爱]",
-    "lastedit": 1770481094,
+    "lastedit": 1770481453,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11448,10 +11448,10 @@
     "update": false
   },
   "2252821": {
-    "totalreply": 2789,
+    "totalreply": 2790,
     "title": "[Team Ninja《仁王3》正式公布，2026年初发售，Demo现已上线PS5]",
     "newtitle": "[Team Ninja《仁王3》正式公布，2026年2月6日发售]",
-    "lastedit": 1770480857,
+    "lastedit": 1770481212,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12312,10 +12312,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 6399,
+    "totalreply": 6402,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【明日方舟：终末地】情报汇总3号楼 2026.1.22 全球公测]",
-    "lastedit": 1770481094,
+    "lastedit": 1770481453,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12456,19 +12456,19 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 12523,
+    "totalreply": 12524,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1770480853,
+    "lastedit": 1770481212,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
   },
   "2218875": {
-    "totalreply": 571,
+    "totalreply": 573,
     "title": "[紫皮厨娘11／6日上线，大巴扎专楼，背包乱斗promax，异步联机自走棋]",
     "newtitle": "[紫皮厨娘11／6日上线，大巴扎专楼，背包乱斗promax，异步联机自走棋]",
-    "lastedit": 1770479056,
+    "lastedit": 1770481571,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14751,10 +14751,10 @@
     "update": false
   },
   "2273512": {
-    "totalreply": 321,
+    "totalreply": 322,
     "title": "[如果四大名著换掉其中一本，你想那本换哪本？为什么？]",
     "newtitle": "[如果四大名著换掉其中一本，你想那本换哪本？为什么？]",
-    "lastedit": 1770480371,
+    "lastedit": 1770481329,
     "category": "外野",
     "active": true,
     "update": false
@@ -16893,10 +16893,10 @@
     "update": false
   },
   "2274227": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[皇国经济看宅男！]",
     "newtitle": "[皇国经济看宅男！]",
-    "lastedit": 1770480371,
+    "lastedit": 1770481569,
     "category": "外野",
     "active": true,
     "update": false
