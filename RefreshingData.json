@@ -3777,7 +3777,7 @@
     "lastedit": 1770461280,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1414,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 30412,
+    "totalreply": 30413,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》2.5 可曾记得爱]",
-    "lastedit": 1770496689,
+    "lastedit": 1770497049,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11448,10 +11448,10 @@
     "update": false
   },
   "2252821": {
-    "totalreply": 2811,
+    "totalreply": 2812,
     "title": "[Team Ninja《仁王3》正式公布，2026年初发售，Demo现已上线PS5]",
     "newtitle": "[Team Ninja《仁王3》正式公布，2026年2月6日发售]",
-    "lastedit": 1770490451,
+    "lastedit": 1770496808,
     "category": "游戏区",
     "active": true,
     "update": false
