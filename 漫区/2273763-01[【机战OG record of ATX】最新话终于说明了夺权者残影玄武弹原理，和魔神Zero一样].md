@@ -570,3 +570,13 @@ ogs的chaos的确不行
 常见的做法是因为误会冲突打起来 然后再解除误会联手 种命那个不是全得罪了的反面例子吗 ...</blockquote>
 阿克塞尔这个和南部一起打败原生种孤狼这心结就解开了啊
 
+
+*****
+
+####  王元姬无惨  
+##### 47#       发表于 2026-2-7 14:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69153262&amp;ptid=2273763" target="_blank">シャル 发表于 2026-2-7 13:32</a>
+阿克塞尔这个和南部一起打败原生种孤狼这心结就解开了啊</blockquote>
+你这是动画加戏的呀 游戏里又没这段 俩人游戏里正式和解要到ogg里阿库队长DTD救回拉米亚 
+
