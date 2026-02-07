@@ -47,3 +47,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">就是拳头打着打着莫名其妙飞上天有点出戏
 
+
+*****
+
+####  cowgp01  
+##### 888#       发表于 2026-2-8 07:20
+
+答案是左脚踩右脚上天，志贵做得到那a++速的理查也做得到
+
