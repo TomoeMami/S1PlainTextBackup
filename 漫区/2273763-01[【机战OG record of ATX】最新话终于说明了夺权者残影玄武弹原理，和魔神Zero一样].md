@@ -526,3 +526,27 @@ AP版的CHAOS也不赖，挺带劲的，老温对于不少玩家来说也挺难�
 OG都是主角参战的问题就是迟早炸的雷 就跟速度与激情里 家人侠 巨石 郭达 三个人合同上都要求不吃瘪一样  ...</blockquote>
 学种命万能里三主角的写法一个在前期吃瘪另一个在后期吃瘪如何
 
+
+*****
+
+####  シャル  
+##### 43#         楼主| 发表于 2026-2-7 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69148275&amp;ptid=2273763" target="_blank">hamartia 发表于 2026-2-6 14:26</a>
+
+如果可以复用模具的话，千值练还是可以痛快一把的。它家的巨神高古以同一个体模换色出过玛农那台紫色守护 ...</blockquote>
+万代扭扭捏捏才出了一个黑天使和反Rgun，还是给smp这种垃圾
+
+
+*****
+
+####  シャル  
+##### 44#         楼主| 发表于 2026-2-7 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69151298&amp;ptid=2273763" target="_blank">xunit 发表于 2026-2-6 23:00</a>
+
+AP版的CHAOS也不赖，挺带劲的，老温对于不少玩家来说也挺难打的</blockquote>
+ogs的chaos的确不行
+
+没气势
+
