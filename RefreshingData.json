@@ -3777,7 +3777,7 @@
     "lastedit": 1770461280,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1414,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 30415,
+    "totalreply": 30416,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》2.5 可曾记得爱]",
-    "lastedit": 1770498490,
+    "lastedit": 1770498852,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12456,10 +12456,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 12537,
+    "totalreply": 12538,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1770496210,
+    "lastedit": 1770498968,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16569,10 +16569,10 @@
     "update": false
   },
   "2274102": {
-    "totalreply": 71,
+    "totalreply": 72,
     "title": "[claude opus 4.6更新了，还整了个大活]",
     "newtitle": "[claude opus 4.6更新了，还整了个大活]",
-    "lastedit": 1770495490,
+    "lastedit": 1770498610,
     "category": "外野",
     "active": true,
     "update": false
@@ -16893,10 +16893,10 @@
     "update": false
   },
   "2274211": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[gemini到期了咋办？]",
     "newtitle": "[gemini到期了咋办？]",
-    "lastedit": 1770480253,
+    "lastedit": 1770498855,
     "category": "外野",
     "active": true,
     "update": false
@@ -16938,10 +16938,19 @@
     "update": false
   },
   "2274220": {
-    "totalreply": 43,
+    "totalreply": 44,
     "title": "[西方人，特别是美国的普通平民，他们的家庭生活小常识是不是在失传？]",
     "newtitle": "[西方人，特别是美国的普通平民，他们的家庭生活小常识是不是在失传？]",
-    "lastedit": 1770496331,
+    "lastedit": 1770498852,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2274248": {
+    "totalreply": 41,
+    "title": "[郭荣是不是唯一一个以皇帝身份冲阵的？]",
+    "newtitle": "[郭荣是不是唯一一个以皇帝身份冲阵的？]",
+    "lastedit": 1770498855,
     "category": "外野",
     "active": true,
     "update": false
