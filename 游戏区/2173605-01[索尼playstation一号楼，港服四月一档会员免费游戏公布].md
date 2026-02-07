@@ -245,3 +245,14 @@ NS2第一年销量就把对手的壮年机当年销量给超了，以前有过�
 由手机上传
 2026-2-7 18:25 上传
 
+
+*****
+
+####  哈罗  
+##### 521#       发表于 2026-2-7 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69154382&amp;ptid=2173605" target="_blank">黑猫软 发表于 2026-2-7 18:25</a>
+
+战神真人剧的选角</blockquote>
+奥丁有现成的演员都不用，可惜了，Richard Schiff在良医里演技很好的，不过saul也不错
+
