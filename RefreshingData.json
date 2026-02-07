@@ -6170,7 +6170,7 @@
     "newtitle": "[（转掌机讨论楼）国产安卓掌机奥丁3的u公布了，居然是8e]",
     "lastedit": 1770181570,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1755649": {
@@ -12051,10 +12051,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 45687,
+    "totalreply": 45689,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1770440294,
+    "lastedit": 1770440888,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12312,10 +12312,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 6251,
+    "totalreply": 6253,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【明日方舟：终末地】情报汇总3号楼 2026.1.22 全球公测]",
-    "lastedit": 1770440167,
+    "lastedit": 1770440531,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12429,10 +12429,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 6315,
+    "totalreply": 6316,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼2月]",
-    "lastedit": 1770439941,
+    "lastedit": 1770440533,
     "category": "外野",
     "active": true,
     "update": false
@@ -16686,10 +16686,10 @@
     "update": false
   },
   "2273991": {
-    "totalreply": 64,
+    "totalreply": 66,
     "title": "[这个年代还有读银英的价值吗]",
     "newtitle": "[这个年代还有读银英的价值吗]",
-    "lastedit": 1770439689,
+    "lastedit": 1770440889,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16704,10 +16704,10 @@
     "update": false
   },
   "2266080": {
-    "totalreply": 47,
+    "totalreply": 48,
     "title": "[怪物猎人物语3预购已开启，这游戏没人开帖？]",
     "newtitle": "[怪物猎人物语3预购已开启，这游戏没人开帖？]",
-    "lastedit": 1770435742,
+    "lastedit": 1770440649,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16722,10 +16722,10 @@
     "update": false
   },
   "2274131": {
-    "totalreply": 141,
+    "totalreply": 142,
     "title": "[米日喜欢棒球也是个奇怪的事]",
     "newtitle": "[米日喜欢棒球也是个奇怪的事]",
-    "lastedit": 1770439583,
+    "lastedit": 1770440768,
     "category": "外野",
     "active": true,
     "update": false
@@ -16839,10 +16839,10 @@
     "update": false
   },
   "2274133": {
-    "totalreply": 55,
+    "totalreply": 57,
     "title": "[一场博士逃离潮正在席卷整个美国]",
     "newtitle": "[一场博士逃离潮正在席卷整个美国]",
-    "lastedit": 1770440299,
+    "lastedit": 1770440533,
     "category": "外野",
     "active": true,
     "update": false
@@ -16952,6 +16952,15 @@
     "newtitle": "[明年起，隐藏式车门把手将退出市场！]",
     "lastedit": 1770439583,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2274110": {
+    "totalreply": 41,
+    "title": "[SIE突放大招，游骑兵地平线新作《地平线猎人集结》公开，登录PS5／PC]",
+    "newtitle": "[SIE突放大招，游骑兵地平线新作《地平线猎人集结》公开，登录PS5／PC]",
+    "lastedit": 1770440651,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
