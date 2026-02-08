@@ -137,3 +137,14 @@
 圣日耳曼CV梶裕贵，设定战力很差但杀个横飞姬还是没什么问题。</blockquote>
 我可以理解为其实横飞姬战斗力很菜吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  洛克萨斯  
+##### 897#       发表于 2026-2-8 12:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69157313&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-2-8 12:12</a>
+
+我可以理解为其实横飞姬战斗力很菜吗。</blockquote>
+对，之前以为她活那么久见过那么多猛人是实力横飞，结果是被打的横飞出去
+
