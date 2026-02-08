@@ -193,3 +193,18 @@
 
 不知不觉之间，活在众多角色口中的欧洲三大诈骗师的月球形象都已经有了，而且居然都保住了牛子（横飞姬和自己的原版是同时落地的，四舍五入也算吧）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 903#       发表于 2026-2-8 19:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69156912&amp;ptid=2086574" target="_blank">199april 发表于 2026-2-8 10:40</a>
+
+这集作画修正好得不像电视动画，甚至和辉夜姬这种投了大钱的都差不了多少
+
+只能说真羡慕月丑啊
+
+ ...</blockquote>
+感觉是在梭哈，也不是FATE动画都有这个经费，FA就没有这个待遇……
+
