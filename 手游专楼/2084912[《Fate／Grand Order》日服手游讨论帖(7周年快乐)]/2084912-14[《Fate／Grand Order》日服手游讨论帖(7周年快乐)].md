@@ -145,3 +145,14 @@
 
 就是说现在的P.P.P是最后的小篇章了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 20507#       发表于 2026-2-8 17:57
+
+ 本帖最后由 岸浪白野 于 2026-2-8 17:59 编辑 
+
+这张是活动礼装实在是太好了<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/2e4e8f5a5a3066057ac9a8144c3a84c2/image.jpg" referrerpolicy="no-referrer">
+
