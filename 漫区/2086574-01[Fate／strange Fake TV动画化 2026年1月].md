@@ -588,3 +588,21 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么看来男神拿的6命毫无含金量
 
+
+*****
+
+####  大十字紅朔  
+##### 942#       发表于 2026-2-9 00:28
+
+这还能偷跑的，不如再偷跑几集
+
+*****
+
+####  7do  
+##### 943#       发表于 2026-2-9 00:29
+
+我啥都不知道 我就看看画面
+这集提到咖喱棒的剑鞘不见了，剑鞘是士郎来着？这个时间点他还在冬木市吧 读大学了？
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
