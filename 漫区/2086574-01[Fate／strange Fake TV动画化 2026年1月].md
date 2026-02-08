@@ -496,3 +496,62 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 
 所以现在能总结出来staff的偏好角色了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usodakedo  
+##### 933#       发表于 2026-2-8 23:49
+
+是时候讨论一下为何无论什么fate片场都不待见你海了，本来原作仇海其实也挺被乳的，后面才打了翻身仗，结果动画这直接原创了一段乳海又是何意啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+结合外面的男神贴，总不至于逻辑是这样的吧：因为蘑菇不待见男神，所以被男神干了六次的海无力，无论什么变体也都必然是三流英灵<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 934#       发表于 2026-2-8 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69160215&amp;ptid=2086574" target="_blank">usodakedo 发表于 2026-2-8 23:49</a>
+
+是时候讨论一下为何无论什么fate片场都不待见你海了，本来原作仇海其实也挺被乳的，后面才打了翻身仗，结果 ...</blockquote>
+原作中这里仇海一打二女神和芬巴巴，轻松扫开女神箭雨+把芬巴巴射到哀嚎，动画不仅把这些全删了还原创了一个仇海接箭被逼退10米<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 935#       发表于 2026-2-8 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69160198&amp;ptid=2086574" target="_blank">圆环之爱 发表于 2026-2-8 23:43</a>
+
+所以现在能总结出来staff的偏好角色了吗</blockquote>
+美少女上大分
+
+
+*****
+
+####  Iphigenie  
+##### 936#       发表于 2026-2-8 23:55
+
+我感觉恩奇都像是给剧组塞钱了……尤其对比他的挚友<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+平心而论我觉得恩奇都这种角色还挺难画的，造型设计上比较简单，设定上又是美少女脸+中性。动画还真给了我一个大惊喜，脸好看但不女气，身体部分尤其是手指的画法很明显偏男性
+
+横飞姬也不错，我只能说本来我就不太喜欢这种乐子人，动起来后更加让人想揍她了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  usodakedo  
+##### 937#       发表于 2026-2-8 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69160220&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-2-8 23:50</a>
+原作中这里仇海一打二女神和芬巴巴，轻松扫开女神箭雨+把芬巴巴射到哀嚎，动画不仅把这些全删了还原创了 ...</blockquote>
+只能说红p怪人哪有美少女好赚钱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  故障机器人  
+##### 938#       发表于 2026-2-8 23:57
+
+羊宫配得也太难听了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">重伤治好了怎么还是断气嗓
+
