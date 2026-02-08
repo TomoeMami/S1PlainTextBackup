@@ -81,3 +81,13 @@
 恩皇这张脸重点下功夫了吧，太伟大了</blockquote>
 森井既然有深度参与动画制作那恩奇都的脸肯定是他重点叮嘱过的
 
+
+*****
+
+####  199april  
+##### 892#       发表于 2026-2-8 10:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">这集作画修正好得不像电视动画，甚至和辉夜姬这种投了大钱的都差不了多少
+
+只能说真羡慕月丑啊
+
