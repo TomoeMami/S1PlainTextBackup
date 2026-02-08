@@ -67,3 +67,18 @@
 
 —— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  仟音一心  
+##### 1797#       发表于 2026-2-8 19:28
+
+地上波节目 第2期 放送决定  4月开始 共10回
+相关Live8月1日~2日 举办 ​​​
+今天主要新闻就这个
+<img src="https://p.sda1.dev/30/a08261234a45e4abd6a0ab263fd12159/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/96d14088896e8608ad1d257a45e1e749/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/05f5018a8f71d2604ec221eec8f6ff31/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/b22553d0059af7cb1c584685601cecf9/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/a2945f42d911afca7856dc3a2961db70/image.jpg" referrerpolicy="no-referrer">
+
