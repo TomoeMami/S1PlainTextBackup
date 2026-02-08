@@ -71,3 +71,13 @@
 
 这集太爽了，下集终于要有真狂组剧情了吗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kurihayn  
+##### 891#       发表于 2026-2-8 10:02
+
+<blockquote>洛克萨斯 发表于 2026-2-8 02:17
+恩皇这张脸重点下功夫了吧，太伟大了</blockquote>
+森井既然有深度参与动画制作那恩奇都的脸肯定是他重点叮嘱过的
+
