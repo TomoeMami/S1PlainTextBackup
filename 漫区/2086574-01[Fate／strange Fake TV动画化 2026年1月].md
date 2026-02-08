@@ -567,3 +567,16 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  洛克萨斯  
+##### 940#       发表于 2026-2-9 00:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69160250&amp;ptid=2086574" target="_blank">usodakedo 发表于 2026-2-8 23:57</a>
+
+只能说红p怪人哪有美少女好赚钱
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这才是你月的内部恨啊，发自真心，蛐蛐闻名世界的大英雄就是拿来垫的。芬无力好歹混了个冠军，罗无力和海无力太惨了
+
