@@ -237,3 +237,14 @@ fe动画的作画就挺好的好，可惜我根本看不下去。
 说啥不许君主去，纯粹是之前主任太菜了吧</blockquote>
 主任不菜的，纯粹被针对翻车<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 907#       发表于 2026-2-8 20:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69159050&amp;ptid=2086574" target="_blank">シャル 发表于 2026-2-8 19:52</a>
+
+说啥不许君主去，纯粹是之前主任太菜了吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">主任砸了一大半家当搞了个魔术堡垒，然后被切嗣定点爆破了
+
