@@ -1406,3 +1406,11 @@ f43119a6-00b1-4c54-9271-853ae10cb164.jpg
 
 <img src="https://img.stage1st.com/forum/202602/08/230217n57nnggsnxefxejo.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古战场亡魂  
+##### 20275#       发表于 2026-2-9 00:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">日本真是人均一口烂牙啊。
+
