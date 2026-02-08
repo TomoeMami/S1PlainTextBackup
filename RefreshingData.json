@@ -40,7 +40,7 @@
     "title": "[千年戦争アイギス 4.0（？）]",
     "lastedit": 1770285269,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "newtitle": "[千年戦争アイギス 4.0（？）]",
     "update": false
   },
@@ -2232,10 +2232,10 @@
     "update": false
   },
   "2068301": {
-    "totalreply": 21834,
+    "totalreply": 21835,
     "title": "[【绝区零】调率测试结束 咖啡馆 141718492]",
     "newtitle": "[绝区零 咖啡馆 交流群 141718492 更多情报 2024年公布]",
-    "lastedit": 1770543383,
+    "lastedit": 1770544570,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -3777,7 +3777,7 @@
     "lastedit": 1770461280,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1414,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 30517,
+    "totalreply": 30519,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》2.5 可曾记得爱]",
-    "lastedit": 1770543612,
+    "lastedit": 1770544332,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11916,10 +11916,10 @@
     "update": false
   },
   "2250267": {
-    "totalreply": 663,
+    "totalreply": 664,
     "title": "[2025年新来打「KAMEN RIDER ZEZTZ」]",
     "newtitle": "[2025年新来打「KAMEN RIDER ZEZTZ」]",
-    "lastedit": 1770534610,
+    "lastedit": 1770544329,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12447,10 +12447,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 12582,
+    "totalreply": 12585,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1770543850,
+    "lastedit": 1770544464,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -14634,10 +14634,10 @@
     "update": false
   },
   "2246441": {
-    "totalreply": 198,
+    "totalreply": 199,
     "title": "[无双深渊  有点可惜]",
     "newtitle": "[无双深渊  有点可惜]",
-    "lastedit": 1770484692,
+    "lastedit": 1770544464,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16758,10 +16758,10 @@
     "update": false
   },
   "2274227": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[皇国经济看宅男！]",
     "newtitle": "[皇国经济看宅男！]",
-    "lastedit": 1770481569,
+    "lastedit": 1770544458,
     "category": "外野",
     "active": true,
     "update": false
@@ -16830,10 +16830,10 @@
     "update": false
   },
   "2274275": {
-    "totalreply": 130,
+    "totalreply": 132,
     "title": "[联合早报：最高法推翻加拿大涉毒男子死刑判决]",
     "newtitle": "[联合早报：最高法推翻加拿大涉毒男子死刑判决]",
-    "lastedit": 1770543137,
+    "lastedit": 1770544464,
     "category": "外野",
     "active": true,
     "update": false
@@ -16893,28 +16893,28 @@
     "update": false
   },
   "2274284": {
-    "totalreply": 56,
+    "totalreply": 57,
     "title": "[史上最强昼间战斗机]",
     "newtitle": "[史上最强昼间战斗机]",
-    "lastedit": 1770542542,
+    "lastedit": 1770544464,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2274276": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[孕妇独自驾车就医，超速撞死闯红灯电瓶车男子，车已脱保]",
     "newtitle": "[孕妇独自驾车就医，超速撞死闯红灯电瓶车男子，车已脱保]",
-    "lastedit": 1770543378,
+    "lastedit": 1770544464,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2274278": {
-    "totalreply": 55,
+    "totalreply": 59,
     "title": "[成功让越南人破防，追着骂了我半年]",
     "newtitle": "[成功让越南人破防，追着骂了我半年]",
-    "lastedit": 1770544099,
+    "lastedit": 1770544464,
     "category": "外野",
     "active": true,
     "update": false
@@ -16952,6 +16952,15 @@
     "newtitle": "[仁王3这游戏也太复杂挫败感太强了]",
     "lastedit": 1770541938,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2274198": {
+    "totalreply": 41,
+    "title": "[奥运会这么拉了吗，冬奥会没有讨论楼，都开幕了]",
+    "newtitle": "[奥运会这么拉了吗，冬奥会没有讨论楼，都开幕了]",
+    "lastedit": 1770544465,
+    "category": "外野",
     "active": true,
     "update": false
   }
