@@ -328,3 +328,65 @@ crunchyroll的临时工也太搞笑了，把第7集泄露出来了</blockquote>
 
 真狂组！白毛女神画的太美了，连续两集这个质量A1真的无敌了<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 916#       发表于 2026-2-8 22:18
+
+已经下载第7集的资源了，可以看了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 917#       发表于 2026-2-8 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69159788&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-2-8 22:18</a>
+已经下载第7集的资源了，可以看了</blockquote>
+可以来一个吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 918#       发表于 2026-2-8 22:19
+
+顺便羊姐<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/97e2901d3e18651fc5d5a1e745918004/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 919#       发表于 2026-2-8 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69159790&amp;ptid=2086574" target="_blank">zakki 发表于 2026-2-8 22:19</a>
+
+可以来一个吗</blockquote>
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/torrent.gif" referrerpolicy="no-referrer">
+
+Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
+(22.74 KB, 下载次数: 0)
+
+2026-2-8 22:20 上传
+
+点击文件名下载附件
+
+这个
+
+*****
+
+####  Keiji  
+##### 920#       发表于 2026-2-8 22:23
+
+咖喱棒零帧起手啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 921#       发表于 2026-2-8 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69159797&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-2-8 22:20</a>
+这个</blockquote>
+这个能看吗，我怎么打不开<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
