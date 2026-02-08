@@ -139,3 +139,16 @@
 
 “高糖互动”，糖是工业糖精的糖吗
 
+
+*****
+
+####  蒜人  
+##### 2463#       发表于 2026-2-8 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69159361&amp;ptid=2152053" target="_blank">osore 发表于 2026-2-8 20:52</a>
+
+居然会引进小说和漫画，而且和nikke联动是同一天
+
+是腾讯的大手吗</blockquote>
+国服联动不了直接装死了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，这编辑私货有点多！
+
