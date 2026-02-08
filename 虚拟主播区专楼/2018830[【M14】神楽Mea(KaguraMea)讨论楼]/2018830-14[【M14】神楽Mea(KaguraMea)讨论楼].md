@@ -1355,3 +1355,54 @@ mea常常会把新宿作为卡拉OK/歌回的收尾曲，这首曲子里的惆�
 以及联动前洗个澡这个行为不知道为什么感觉有些仪式感，还是说是为了等下直播的neta？
 总觉得会回收伏笔
 
+
+*****
+
+####  古战场亡魂  
+##### 20274#       发表于 2026-2-8 23:05
+
+这q版挺可爱啊。
+
+<img src="https://img.stage1st.com/forum/202602/08/230447hzn1n2rrewzpiaez.png" referrerpolicy="no-referrer">
+
+<strong>9098b30cec558003221211b91c57fa51.png</strong> (212.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-8 23:04 上传
+
+以这个为模版感觉很容易生成头像啊
+
+<img src="https://img.stage1st.com/forum/202602/08/230431jn8zcvqeqviilcir.png" referrerpolicy="no-referrer">
+
+<strong>f0dd7b0beaef51c63ea245274702dfef.png</strong> (1.11 MB, 下载次数: 0)
+
+下载附件
+
+2026-2-8 23:04 上传
+
+<img src="https://img.stage1st.com/forum/202602/08/230518ro8cl44jletbl4v4.png" referrerpolicy="no-referrer">
+
+<strong>9f46071b1f09ef74f291743a9995e68d.png</strong> (1.27 MB, 下载次数: 0)
+
+下载附件
+
+2026-2-8 23:05 上传
+
+<img src="https://img.stage1st.com/forum/202602/08/230524xov2rvcpko4bwhor.png" referrerpolicy="no-referrer">
+
+<strong>4de2e89e933bbd8a6ff649bf77a078c7.png</strong> (1.17 MB, 下载次数: 0)
+
+下载附件
+
+2026-2-8 23:05 上传
+
+f43119a6-00b1-4c54-9271-853ae10cb164.jpg
+(42.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-8 23:02 上传
+
+<img src="https://img.stage1st.com/forum/202602/08/230217n57nnggsnxefxejo.jpg" referrerpolicy="no-referrer">
+
