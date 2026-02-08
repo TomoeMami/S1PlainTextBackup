@@ -92,3 +92,24 @@
 
 看X上说，今天solo环节有家虎捣乱？
 
+
+*****
+
+####  仟音一心  
+##### 1799#       发表于 2026-2-8 19:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69159018&amp;ptid=2201887" target="_blank">ViyViy 发表于 2026-2-8 19:47</a>
+呃啊，到二期综艺前中间难道都是空着的？发发新歌吧，求你了。
+
+看X上说，今天solo环节有家虎捣乱？ ...</blockquote>
+我有视频的，就是Liyuu那首 不过不知道发哪里，太厄介了。
+
+
+*****
+
+####  仟音一心  
+##### 1800#       发表于 2026-2-8 20:06
+
+歌单就换了2首。
+<img src="https://p.sda1.dev/30/b0023a936e07ba9593026044e66373b3/image.jpg" referrerpolicy="no-referrer">
+
