@@ -256,3 +256,14 @@ fe动画的作画就挺好的好，可惜我根本看不下去。
 
 <img src="https://p.sda1.dev/30/6cb29a526f80f1a29055a56a7df429f9/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 909#       发表于 2026-2-8 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69159212&amp;ptid=2086574" target="_blank">阿刚 发表于 2026-2-8 20:24</a>
+
+主任砸了一大半家当搞了个魔术堡垒，然后被切嗣定点爆破了</blockquote>
+谁家会在旅馆顶楼造魔术工坊啊<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
