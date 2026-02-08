@@ -111,3 +111,29 @@
 
 好美的打戲
 
+
+*****
+
+####  李正力  
+##### 895#       发表于 2026-2-8 12:09
+
+<img src="https://img.stage1st.com/forum/202602/08/120913owm89z9wquw5uuo1.jpg" referrerpolicy="no-referrer">
+
+<strong>1000037471.jpg</strong> (32.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-8 12:09 上传
+
+沙条绫香在热搜上挂了大半天了
+
+
+*****
+
+####  大耳兽  
+##### 896#       发表于 2026-2-8 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69157073&amp;ptid=2086574" target="_blank">仟音一心 发表于 2026-2-8 11:20</a>
+圣日耳曼CV梶裕贵，设定战力很差但杀个横飞姬还是没什么问题。</blockquote>
+我可以理解为其实横飞姬战斗力很菜吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
