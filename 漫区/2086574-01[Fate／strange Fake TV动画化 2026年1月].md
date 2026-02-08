@@ -267,3 +267,29 @@ fe动画的作画就挺好的好，可惜我根本看不下去。
 主任砸了一大半家当搞了个魔术堡垒，然后被切嗣定点爆破了</blockquote>
 谁家会在旅馆顶楼造魔术工坊啊<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 910#       发表于 2026-2-8 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69159050&amp;ptid=2086574" target="_blank">シャル 发表于 2026-2-8 19:52</a>
+
+说啥不许君主去，纯粹是之前主任太菜了吧</blockquote>
+所长爹如果也是被天命收掉的话至少两个君主没了
+
+*****
+
+####  岸浪白野  
+##### 911#       发表于 2026-2-8 21:52
+
+crunchyroll的临时工也太搞笑了，把第7集泄露出来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202602/08/215200se7glenetoynhst7.png" referrerpolicy="no-referrer">
+
+<strong>LF@H[@K)[TD`A[P3M~2V}PB.png</strong> (744.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-8 21:52 上传
+
