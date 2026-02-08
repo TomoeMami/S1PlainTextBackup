@@ -91,3 +91,15 @@
 
 只能说真羡慕月丑啊
 
+
+*****
+
+####  仟音一心  
+##### 893#       发表于 2026-2-8 11:20
+
+圣日耳曼CV梶裕贵，设定战力很差但杀个横飞姬还是没什么问题。
+<img src="https://p.sda1.dev/30/5bd8ea4202d8a70cd2f3fee6bbb168c2/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/6c1aef2aa52002b0e36a87ef27ae11ca/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/75990f39318f4bf0c90652f9469d4387/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/d3a653e20a6b5b1cc09946d3b004bbcf/image.jpg" referrerpolicy="no-referrer">
+
