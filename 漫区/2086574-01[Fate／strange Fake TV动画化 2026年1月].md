@@ -474,3 +474,25 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 
 别急，后面杰克，警察局约翰有的是仇海当沙包的<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月亮上的珊瑚  
+##### 930#       发表于 2026-2-8 23:39
+
+谢谢坛友，啥时候会有字幕呀<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 931#       发表于 2026-2-8 23:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仇有力打伊斯塔和上一集比质量差太多了
+
+*****
+
+####  圆环之爱  
+##### 932#       发表于 2026-2-8 23:43
+
+所以现在能总结出来staff的偏好角色了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
