@@ -164,3 +164,14 @@
 
 不亏是fgo的情人节，在爱神和农神之间果断选择了妈系<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 20509#       发表于 2026-2-8 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69158592&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2026-2-8 18:10</a>
+
+不亏是fgo的情人节，在爱神和农神之间果断选择了妈系回顾过往十年，猛然发现第一年的嫁尼禄和第二年的小艾 ...</blockquote>
+是的，别人一般都是落地ML系角色的， 也就FGO这样独立独行了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
