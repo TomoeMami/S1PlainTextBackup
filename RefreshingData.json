@@ -3777,7 +3777,7 @@
     "lastedit": 1770461280,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1414,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 30458,
+    "totalreply": 30462,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》2.5 可曾记得爱]",
-    "lastedit": 1770525624,
+    "lastedit": 1770526578,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11448,10 +11448,10 @@
     "update": false
   },
   "2252821": {
-    "totalreply": 2857,
+    "totalreply": 2861,
     "title": "[Team Ninja《仁王3》正式公布，2026年初发售，Demo现已上线PS5]",
     "newtitle": "[Team Ninja《仁王3》正式公布，2026年2月6日发售]",
-    "lastedit": 1770524779,
+    "lastedit": 1770526578,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12051,10 +12051,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 45971,
+    "totalreply": 45975,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1770525383,
+    "lastedit": 1770526578,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12312,10 +12312,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 6432,
+    "totalreply": 6434,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【明日方舟：终末地】情报汇总3号楼 2026.1.22 全球公测]",
-    "lastedit": 1770525983,
+    "lastedit": 1770526578,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12429,10 +12429,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 6397,
+    "totalreply": 6398,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼2月]",
-    "lastedit": 1770525856,
+    "lastedit": 1770526221,
     "category": "外野",
     "active": true,
     "update": false
@@ -12681,10 +12681,10 @@
     "update": false
   },
   "2268175": {
-    "totalreply": 562,
+    "totalreply": 563,
     "title": "[2026年Q娃 ​​​​名侦探Precure]",
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
-    "lastedit": 1770524774,
+    "lastedit": 1770526573,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13230,10 +13230,10 @@
     "update": false
   },
   "2272812": {
-    "totalreply": 264,
+    "totalreply": 265,
     "title": "[勇哥餐饮专楼，那就好好告个别吧～]",
     "newtitle": "[勇哥餐饮专楼，那就好好告个别吧～]",
-    "lastedit": 1770525016,
+    "lastedit": 1770526696,
     "category": "外野",
     "active": true,
     "update": false
@@ -13540,15 +13540,6 @@
     "title": "[女子路遇雪豹后下车拍照试图触摸被咬伤]",
     "newtitle": "[女子路遇雪豹后下车拍照试图触摸被咬伤]",
     "lastedit": 1769789175,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2273105": {
-    "totalreply": 267,
-    "title": "[波士顿圆脸都开始掉粉了]",
-    "newtitle": "[波士顿圆脸都开始掉粉了]",
-    "lastedit": 1769316501,
     "category": "外野",
     "active": false,
     "update": false
@@ -15332,7 +15323,7 @@
     "newtitle": "[国游买断榜 明末：渊虚之羽 如果没有碰瓷明末销量能翻一倍吧]",
     "lastedit": 1770267139,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2273676": {
@@ -16272,10 +16263,10 @@
     "update": false
   },
   "2274043": {
-    "totalreply": 232,
+    "totalreply": 233,
     "title": "[不知道大家怎么看《太平年》这部剧？]",
     "newtitle": "[不知道大家怎么看《太平年》这部剧？]",
-    "lastedit": 1770525262,
+    "lastedit": 1770526221,
     "category": "外野",
     "active": true,
     "update": false
@@ -16542,10 +16533,10 @@
     "update": false
   },
   "2274131": {
-    "totalreply": 173,
+    "totalreply": 176,
     "title": "[米日喜欢棒球也是个奇怪的事]",
     "newtitle": "[米日喜欢棒球也是个奇怪的事]",
-    "lastedit": 1770525856,
+    "lastedit": 1770526702,
     "category": "外野",
     "active": true,
     "update": false
@@ -16614,10 +16605,10 @@
     "update": false
   },
   "2274176": {
-    "totalreply": 227,
+    "totalreply": 230,
     "title": "[把大舅气走了，我们吃什么？]",
     "newtitle": "[把大舅气走了，我们吃什么？]",
-    "lastedit": 1770525262,
+    "lastedit": 1770526702,
     "category": "外野",
     "active": true,
     "update": false
@@ -16749,10 +16740,10 @@
     "update": false
   },
   "2274210": {
-    "totalreply": 64,
+    "totalreply": 65,
     "title": "[相信我，你绝对不想春节期间待在中国]",
     "newtitle": "[相信我，你绝对不想春节期间待在中国]",
-    "lastedit": 1770523462,
+    "lastedit": 1770526702,
     "category": "外野",
     "active": true,
     "update": false
@@ -16875,10 +16866,10 @@
     "update": false
   },
   "2274240": {
-    "totalreply": 68,
+    "totalreply": 69,
     "title": "[辽宁住建厅工作人员王某，对不送钱的故意刁难拖延，8年收取好处费1614万元]",
     "newtitle": "[辽宁住建厅工作人员王某，对不送钱的故意刁难拖延，8年收取好处费1614万元]",
-    "lastedit": 1770523814,
+    "lastedit": 1770526221,
     "category": "外野",
     "active": true,
     "update": false
@@ -16902,10 +16893,10 @@
     "update": false
   },
   "2274275": {
-    "totalreply": 85,
+    "totalreply": 88,
     "title": "[联合早报：最高法推翻加拿大涉毒男子死刑判决]",
     "newtitle": "[联合早报：最高法推翻加拿大涉毒男子死刑判决]",
-    "lastedit": 1770525856,
+    "lastedit": 1770526702,
     "category": "外野",
     "active": true,
     "update": false
@@ -16920,10 +16911,10 @@
     "update": false
   },
   "2274268": {
-    "totalreply": 43,
+    "totalreply": 45,
     "title": "[加拿大批准中国汽车进口后，美国经销商陷入全面恐慌]",
     "newtitle": "[加拿大批准中国汽车进口后，美国经销商陷入全面恐慌]",
-    "lastedit": 1770525624,
+    "lastedit": 1770526702,
     "category": "外野",
     "active": true,
     "update": false
@@ -16934,6 +16925,15 @@
     "newtitle": "[推漫画，又一位老师上岸作，青春过后]",
     "lastedit": 1770525393,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2274209": {
+    "totalreply": 41,
+    "title": "[zt爱泼斯坦案衍生，科普一下战后历代教宗]",
+    "newtitle": "[zt爱泼斯坦案衍生，科普一下战后历代教宗]",
+    "lastedit": 1770526703,
+    "category": "外野",
     "active": true,
     "update": false
   }
