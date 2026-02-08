@@ -176,3 +176,20 @@
 
 结局会不会是绫香最后变成属于理查的ex咖喱棒？
 
+
+*****
+
+####  大耳兽  
+##### 901#       发表于 2026-2-8 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69158651&amp;ptid=2086574" target="_blank">仟音一心 发表于 2026-2-8 18:26</a>
+结局会不会是绫香最后变成属于理查的ex咖喱棒？</blockquote>
+你让我想起几年前有一个野良神同人，结局就是日和变成夜斗的刀<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  xiongxingyu  
+##### 902#       发表于 2026-2-8 18:57
+
+不知不觉之间，活在众多角色口中的欧洲三大诈骗师的月球形象都已经有了，而且居然都保住了牛子（横飞姬和自己的原版是同时落地的，四舍五入也算吧）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
