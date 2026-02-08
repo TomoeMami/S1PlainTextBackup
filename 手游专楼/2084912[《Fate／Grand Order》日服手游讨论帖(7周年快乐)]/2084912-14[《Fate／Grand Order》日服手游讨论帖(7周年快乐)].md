@@ -156,3 +156,11 @@
 这张是活动礼装实在是太好了<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/30/2e4e8f5a5a3066057ac9a8144c3a84c2/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiongxingyu  
+##### 20508#       发表于 2026-2-8 18:10
+
+不亏是fgo的情人节，在爱神和农神之间果断选择了妈系<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
