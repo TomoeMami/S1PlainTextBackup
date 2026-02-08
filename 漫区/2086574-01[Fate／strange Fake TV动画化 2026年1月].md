@@ -208,3 +208,13 @@
  ...</blockquote>
 感觉是在梭哈，也不是FATE动画都有这个经费，FA就没有这个待遇……
 
+
+*****
+
+####  大耳兽  
+##### 904#       发表于 2026-2-8 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69158820&amp;ptid=2086574" target="_blank">大十字紅朔 发表于 2026-2-8 19:08</a>
+感觉是在梭哈，也不是FATE动画都有这个经费，FA就没有这个待遇……</blockquote>
+fe动画的作画就挺好的好，可惜我根本看不下去。
+
