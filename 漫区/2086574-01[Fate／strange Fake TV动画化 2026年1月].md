@@ -293,3 +293,14 @@ crunchyroll的临时工也太搞笑了，把第7集泄露出来了<img src="http
 
 2026-2-8 21:52 上传
 
+
+*****
+
+####  洛克萨斯  
+##### 912#       发表于 2026-2-8 22:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69159646&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-2-8 21:52</a>
+
+crunchyroll的临时工也太搞笑了，把第7集泄露出来了</blockquote>
+芬巴巴和伊阿宋都出来了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">泄密太离谱了
+
