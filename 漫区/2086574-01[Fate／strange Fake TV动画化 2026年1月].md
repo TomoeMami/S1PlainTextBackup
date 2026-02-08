@@ -304,3 +304,27 @@ crunchyroll的临时工也太搞笑了，把第7集泄露出来了<img src="http
 crunchyroll的临时工也太搞笑了，把第7集泄露出来了</blockquote>
 芬巴巴和伊阿宋都出来了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">泄密太离谱了
 
+
+*****
+
+####  仟音一心  
+##### 913#       发表于 2026-2-8 22:09
+
+太草台班子了
+<img src="https://p.sda1.dev/30/702c812c324f4158782d7528dbb5d807/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  henry8848  
+##### 914#       发表于 2026-2-8 22:12
+
+这集怎么感觉运镜变了，像进了物语的片场
+
+*****
+
+####  zakki  
+##### 915#       发表于 2026-2-8 22:17
+
+真狂组！白毛女神画的太美了，连续两集这个质量A1真的无敌了<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
