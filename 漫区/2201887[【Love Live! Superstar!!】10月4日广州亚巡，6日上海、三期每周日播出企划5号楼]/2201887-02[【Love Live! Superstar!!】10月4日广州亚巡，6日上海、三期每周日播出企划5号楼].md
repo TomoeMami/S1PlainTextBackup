@@ -113,3 +113,16 @@
 歌单就换了2首。
 <img src="https://p.sda1.dev/30/b0023a936e07ba9593026044e66373b3/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 1801#       发表于 2026-2-9 05:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69156967&amp;ptid=2201887" target="_blank">starring 发表于 2026-2-8 10:52</a>
+对7th首日的表现很满意，歌单的编排很爽
+居然3个小时唱了差不多30首歌有点猛</blockquote>
+去现地了没<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
