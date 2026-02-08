@@ -555,3 +555,15 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 
 羊宫配得也太难听了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">重伤治好了怎么还是断气嗓
 
+
+*****
+
+####  usodakedo  
+##### 939#       发表于 2026-2-9 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69160251&amp;ptid=2086574" target="_blank">故障机器人 发表于 2026-2-8 23:57</a>
+羊宫配得也太难听了重伤治好了怎么还是断气嗓</blockquote>
+按照我前几天看到的给羊洗的方式就是，业界占用资源的老前辈太多，偶像化红利被老登吃完了，所以羊这种新生代cv就要靠不可代替的独特性上分，所以羊就要断气式配音，有问题那也是音监的锅，市场选择的锅
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
