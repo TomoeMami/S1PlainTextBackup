@@ -3777,7 +3777,7 @@
     "lastedit": 1770461280,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1414,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 30428,
+    "totalreply": 30429,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》2.5 可曾记得爱]",
-    "lastedit": 1770515650,
+    "lastedit": 1770516255,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11448,10 +11448,10 @@
     "update": false
   },
   "2252821": {
-    "totalreply": 2832,
+    "totalreply": 2834,
     "title": "[Team Ninja《仁王3》正式公布，2026年初发售，Demo现已上线PS5]",
     "newtitle": "[Team Ninja《仁王3》正式公布，2026年2月6日发售]",
-    "lastedit": 1770515772,
+    "lastedit": 1770516491,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12051,10 +12051,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 45921,
+    "totalreply": 45925,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1770514457,
+    "lastedit": 1770516252,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12312,10 +12312,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 6418,
+    "totalreply": 6420,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【明日方舟：终末地】情报汇总3号楼 2026.1.22 全球公测]",
-    "lastedit": 1770513131,
+    "lastedit": 1770516012,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12429,10 +12429,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 6376,
+    "totalreply": 6377,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼2月]",
-    "lastedit": 1770515536,
+    "lastedit": 1770516373,
     "category": "外野",
     "active": true,
     "update": false
@@ -12636,10 +12636,10 @@
     "update": false
   },
   "2086574": {
-    "totalreply": 890,
+    "totalreply": 891,
     "title": "[Fate／strange Fake TV动画化 2026年1月]",
     "newtitle": "[Fate／strange Fake TV动画化 2026年1月]",
-    "lastedit": 1770512289,
+    "lastedit": 1770516255,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12681,10 +12681,10 @@
     "update": false
   },
   "2268175": {
-    "totalreply": 551,
+    "totalreply": 552,
     "title": "[2026年Q娃 ​​​​名侦探Precure]",
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
-    "lastedit": 1770512536,
+    "lastedit": 1770516255,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13567,15 +13567,6 @@
     "title": "[其实很多“高收入”国家本质上和勇哥连线的这期西藏小镇差不多吧]",
     "newtitle": "[其实很多“高收入”国家本质上和勇哥连线的这期西藏小镇差不多吧]",
     "lastedit": 1769336068,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2273122": {
-    "totalreply": 77,
-    "title": "[为什么没人在美国建立一个桃花源。]",
-    "newtitle": "[为什么没人在美国建立一个桃花源。]",
-    "lastedit": 1769306305,
     "category": "外野",
     "active": false,
     "update": false
@@ -16061,7 +16052,7 @@
     "newtitle": "[吃老乡鸡不好意思只点一道菜]",
     "lastedit": 1770256950,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2273984": {
@@ -16569,10 +16560,10 @@
     "update": false
   },
   "2274131": {
-    "totalreply": 168,
+    "totalreply": 169,
     "title": "[米日喜欢棒球也是个奇怪的事]",
     "newtitle": "[米日喜欢棒球也是个奇怪的事]",
-    "lastedit": 1770515774,
+    "lastedit": 1770516131,
     "category": "外野",
     "active": true,
     "update": false
@@ -16641,10 +16632,10 @@
     "update": false
   },
   "2274176": {
-    "totalreply": 221,
+    "totalreply": 225,
     "title": "[把大舅气走了，我们吃什么？]",
     "newtitle": "[把大舅气走了，我们吃什么？]",
-    "lastedit": 1770515774,
+    "lastedit": 1770516373,
     "category": "外野",
     "active": true,
     "update": false
@@ -16776,10 +16767,10 @@
     "update": false
   },
   "2274210": {
-    "totalreply": 58,
+    "totalreply": 59,
     "title": "[相信我，你绝对不想春节期间待在中国]",
     "newtitle": "[相信我，你绝对不想春节期间待在中国]",
-    "lastedit": 1770510860,
+    "lastedit": 1770516373,
     "category": "外野",
     "active": true,
     "update": false
@@ -16821,10 +16812,10 @@
     "update": false
   },
   "2274142": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[你们说作者到底知不知道读者想看什么？]",
     "newtitle": "[你们说作者到底知不知道读者想看什么？]",
-    "lastedit": 1770515412,
+    "lastedit": 1770516010,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16875,10 +16866,10 @@
     "update": false
   },
   "2274126": {
-    "totalreply": 43,
+    "totalreply": 44,
     "title": "[红A在经历🍄这么多年打压，人气依然超高]",
     "newtitle": "[红A在经历🍄这么多年打压，人气依然超高]",
-    "lastedit": 1770484459,
+    "lastedit": 1770516012,
     "category": "漫区",
     "active": true,
     "update": false
