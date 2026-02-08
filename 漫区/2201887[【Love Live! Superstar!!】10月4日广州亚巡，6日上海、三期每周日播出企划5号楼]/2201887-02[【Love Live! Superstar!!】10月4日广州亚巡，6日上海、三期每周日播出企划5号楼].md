@@ -56,3 +56,14 @@
 <img src="https://p.sda1.dev/30/ec1a4d3a22ec8dd7942f122a2fc06ac0/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/30/59cce170259509732456a33711d267bc/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1796#       发表于 2026-2-8 10:52
+
+对7th首日的表现很满意，歌单的编排很爽
+居然3个小时唱了差不多30首歌有点猛
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

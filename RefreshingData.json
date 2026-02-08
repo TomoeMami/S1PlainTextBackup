@@ -3777,7 +3777,7 @@
     "lastedit": 1770461280,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1414,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 30434,
+    "totalreply": 30435,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》2.5 可曾记得爱]",
-    "lastedit": 1770518173,
+    "lastedit": 1770519018,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 33433,
+    "totalreply": 33434,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1770505810,
+    "lastedit": 1770519382,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9990,10 +9990,10 @@
     "update": false
   },
   "2201887": {
-    "totalreply": 1795,
+    "totalreply": 1796,
     "title": "[【Love Live! Superstar!!】10月4日广州亚巡，6日上海、三期每周日播出企划5号楼]",
     "newtitle": "[【Love Live! Superstar!!】10月4日广州亚巡，6日上海、三期每周日播出企划5号楼]",
-    "lastedit": 1770476053,
+    "lastedit": 1770519375,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11448,10 +11448,10 @@
     "update": false
   },
   "2252821": {
-    "totalreply": 2841,
+    "totalreply": 2842,
     "title": "[Team Ninja《仁王3》正式公布，2026年初发售，Demo现已上线PS5]",
     "newtitle": "[Team Ninja《仁王3》正式公布，2026年2月6日发售]",
-    "lastedit": 1770518649,
+    "lastedit": 1770519488,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11925,10 +11925,10 @@
     "update": false
   },
   "2260400": {
-    "totalreply": 6389,
+    "totalreply": 6390,
     "title": "[【明日方舟】国服16号楼 9.4 Ave Mujica联动SS「无忧梦呓」 (本楼含YJWL动态交流)]",
     "newtitle": "[【明日方舟】国服16号楼 1.27「相见欢」复刻(本楼含YJWL动态交流)]",
-    "lastedit": 1770518417,
+    "lastedit": 1770519018,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11961,10 +11961,10 @@
     "update": false
   },
   "2250190": {
-    "totalreply": 402,
+    "totalreply": 403,
     "title": "[数码宝贝完全新作TV动画『DIGIMON BEATBREAK』2025年10月]",
     "newtitle": "[数码宝贝完全新作TV动画『DIGIMON BEATBREAK』2025年10月]",
-    "lastedit": 1770515053,
+    "lastedit": 1770519013,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11979,10 +11979,10 @@
     "update": false
   },
   "2208790": {
-    "totalreply": 543,
+    "totalreply": 544,
     "title": "[2025年超级战队 No.1 SENTAI GOZYUGER]",
     "newtitle": "[2025年超级战队 No.1 SENTAI GOZYUGER]",
-    "lastedit": 1770512532,
+    "lastedit": 1770519382,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12051,10 +12051,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 45940,
+    "totalreply": 45947,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1770518782,
+    "lastedit": 1770519382,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12312,10 +12312,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 6425,
+    "totalreply": 6426,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【明日方舟：终末地】情报汇总3号楼 2026.1.22 全球公测]",
-    "lastedit": 1770518777,
+    "lastedit": 1770519018,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12429,10 +12429,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 6384,
+    "totalreply": 6386,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼2月]",
-    "lastedit": 1770518782,
+    "lastedit": 1770519382,
     "category": "外野",
     "active": true,
     "update": false
@@ -15341,7 +15341,7 @@
     "newtitle": "[有没有什么可能已经过时的习惯你还在无意识地坚持？]",
     "lastedit": 1770259823,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2273717": {
@@ -16290,10 +16290,10 @@
     "update": false
   },
   "2274043": {
-    "totalreply": 228,
+    "totalreply": 229,
     "title": "[不知道大家怎么看《太平年》这部剧？]",
     "newtitle": "[不知道大家怎么看《太平年》这部剧？]",
-    "lastedit": 1770516737,
+    "lastedit": 1770519382,
     "category": "外野",
     "active": true,
     "update": false
@@ -16515,10 +16515,10 @@
     "update": false
   },
   "2274087": {
-    "totalreply": 76,
+    "totalreply": 77,
     "title": "[rts为何死掉了？]",
     "newtitle": "[rts为何死掉了？]",
-    "lastedit": 1770470070,
+    "lastedit": 1770519250,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16920,10 +16920,10 @@
     "update": false
   },
   "2274275": {
-    "totalreply": 44,
+    "totalreply": 46,
     "title": "[联合早报：最高法推翻加拿大涉毒男子死刑判决]",
     "newtitle": "[联合早报：最高法推翻加拿大涉毒男子死刑判决]",
-    "lastedit": 1770518782,
+    "lastedit": 1770519017,
     "category": "外野",
     "active": true,
     "update": false
