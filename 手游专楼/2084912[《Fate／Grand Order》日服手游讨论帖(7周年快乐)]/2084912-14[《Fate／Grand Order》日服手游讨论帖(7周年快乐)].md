@@ -81,3 +81,67 @@
 
 草，还在猜爱神，结果是农神
 
+
+*****
+
+####  khxooo  
+##### 20501#       发表于 2026-2-8 17:24
+
+要打两个认定战，后续估计要求全部认定战都打完才能给打新主线了。
+
+*****
+
+####  Jamaisvu  
+##### 20502#       发表于 2026-2-8 17:25
+
+希腊三卫星落地了一个，白情有没有可能出宙斯啊。
+
+话说我感觉冠位戴位战可以更新一波木桩，宙斯这种等级的当做冠位守门人落地也不错...
+
+*****
+
+####  岸浪白野  
+##### 20503#       发表于 2026-2-8 17:25
+
+又来冠位战撑时间了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202602/08/172447ry4rrvyyhr3yncvv.png" referrerpolicy="no-referrer">
+
+<strong>LWBW4Z_AC4MZK%JJ@_4I}Y9.png</strong> (1.62 MB, 下载次数: 0)
+
+下载附件
+
+2026-2-8 17:24 上传
+
+<img src="https://img.stage1st.com/forum/202602/08/172452m5z2oo0ixyyxwoyx.png" referrerpolicy="no-referrer">
+
+<strong>2Z_{2W}UZP0PX5B@P_2I6$A.png</strong> (1.14 MB, 下载次数: 0)
+
+下载附件
+
+2026-2-8 17:24 上传
+
+
+*****
+
+####  希望之花  
+##### 20504#       发表于 2026-2-8 17:31
+
+哎 索尼的大手<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 20505#       发表于 2026-2-8 17:32
+
+当年被农神暴打还要听她在那叫个不停的痛苦回忆开始攻击我23333
+
+*****
+
+####  岸浪白野  
+##### 20506#       发表于 2026-2-8 17:35
+
+之前在楼里就说过现在标题界面的BGM是BGM_TITLE_7空出了BGM_TITLE_6，这期种田活动的BGM就是剧情曲和战斗曲的编号断开的几首，制作顺序是终章之前的
+
+就是说现在的P.P.P是最后的小篇章了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
