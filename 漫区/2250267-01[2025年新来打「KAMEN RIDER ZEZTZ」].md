@@ -132,3 +132,13 @@ ok确定code执行层是纯白了的现实世界也是梦境的感觉越来越�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5的那个变身姿势，我是真看笑了，也没开始变啊你在那嗷嗷啥
 
+
+*****
+
+####  milky658  
+##### 668#       发表于 2026-2-9 07:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69160323&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-2-9 00:20</a>
+5的那个变身姿势，我是真看笑了，也没开始变啊你在那嗷嗷啥</blockquote>
+就我感觉，角色在描写和拍摄上比较克制，个性不怎么鲜明突出的基调下，5的亢奋演出蛮格格不入的。尤其在19集这个极具zzz风格，文戏质量极高的一回以后，接上的20集浮夸氛围都让我觉得不是在看zzz。21集回到正常水准了，别的还好，到5变身那段还是觉得用力过猛，有点出戏<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
