@@ -671,3 +671,11 @@ lny还是cny？为什么会变成一个需要争论的事，问题就出在这
 
 我还是喜欢CNY, 我身边在美国的朋友什么的，去年开始为了避免卷入大战都直接说happy new year了
 
+
+*****
+
+####  秋枫叶  
+##### 69#       发表于 2026-2-10 01:06
+
+去年就因为这事上头把反对他的人挂动态，我寻思反对的人已经表明了自己反对的原因和逻辑，就非要年年出一期视频来辩赢不可<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
