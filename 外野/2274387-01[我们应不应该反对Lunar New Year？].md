@@ -1,0 +1,455 @@
+﻿
+*****
+
+####  Mojito  
+##### 1#       楼主       发表于 2026-2-9 18:12
+
+.cronclosethread_getbox{border: 1px dashed #FF9A9A;padding:6px 8px;line-height: 24px;margin: 10px 0;font-size: 12px;overflow:hidden;color: #CA4312;}
+
+此帖将于2026-03-11 18:01自动关闭
+
+小Q不是导盲犬发了新视频论证“spring festival”   “chinese new year”   “lunar new year” 都是属于我们的，应该部笑纳而不是反对其中的任何一个
+
+视频链接：https://b23.tv/oq1cPem
+
+简介：
+
+【观点总结】（想骂我的麻烦先看完视频，不要只看个标题就扣帽子）
+
+1. Lunar New Year 并不是“错误翻译”，也不是近几年的新鲜事物，而是一种被长期使用的约定俗成，在1930年就有记录。农历确实在科学上是阴阳合历，但词语并不永远“科学”，银河（milky way）既没有奶（milk）也没有河。
+
+2. 事实上，Lunar New Year源自民国时期，孙中山上台后推行“阳历”，因此把旧历称之为“阴历”，春节被称为“阴历新年”或“废历新年”，LNY恰恰是源此而来（Chinese New Year历史更久，因为从西方中心论的角度，CNY就是“中国的一种新年”，实际上是默认New Year是西方的“标准”）
+
+3. 混用 CNY / LNY / Spring Festival，是一种成熟的外交策略，把所有叫法都打上中国文化的烙印，强化春节文化和中国的关系，避免将LNY的定义权拱手让人（如果希望强化中国元素，也可以用CLNY）
+
+4. 有些国家试图把LNY“去中国化”，声称中国人从来不过“阴历新年”不仅是史实错误，更是主动退出叙事竞争
+
+5. 一个文化越强，越会被泛化、模仿、本土化，被“偷走”；如果一个文化没有人“偷”，说明这个文化没有任何生命力；如果一个国家把中国的文化全“偷”了，穿中国服饰、过中国节日、说中国话、写中国字——恭喜，夷狄入中国则中国之，你就是中国人了，华夏本身就不是种族概念而是文化概念。
+
+6. 一言以蔽之：Chinese New Year、Lunar New Year、Spring Festival、Chunjie、Guonian都可以用，且应该都多多用。
+
+7.        欢迎讨论，不要人身攻击，语言就是在讨论和使用中变化和发展的。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yukino1029| + 1|没必要扣，正常讨论|
+| WA2ST|-1|chinese new year only|
+
+查看全部评分
+
+*****
+
+####  高町城管  
+##### 2#       发表于 2026-2-9 18:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在老约瑟被绿日能被白皮接受为圣诞节的另一种称呼之前，我都不会接受lunar new year
+
+—— 来自 Xiaomi 23116PN5BC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  小小雪空  
+##### 3#       发表于 2026-2-9 18:16
+
+是不是每年一到新年就要论战一次Lunar New Year
+
+*****
+
+####  gammatau  
+##### 4#       发表于 2026-2-9 18:17
+
+以前我会说Chinese new Year 就可以了，现在只接受Chunjie
+
+*****
+
+####  阿菠萝13  
+##### 5#       发表于 2026-2-9 18:17
+
+年初一月相绑定新月，说lunar没问题啊
+
+*****
+
+####  Neet_Factory  
+##### 6#       发表于 2026-2-9 18:17
+
+确实，与其给外网解释半天区别，不如全吃了，直接声明棒子越南的文化祖宗都是老中，叫什么都是中国新年
+
+*****
+
+####  cqc1021  
+##### 7#       发表于 2026-2-9 18:17
+
+在Merry Koreastmas成为美国官方用语前不发表意见
+
+—— 来自 samsung SM-N9860, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  走来走去  
+##### 8#       发表于 2026-2-9 18:20
+
+汴京真的没啥用，多下饺子是王道，当然了，得多用，用了就有大儒替你汴京
+
+*****
+
+####  飛霞精灵  
+##### 9#       发表于 2026-2-9 18:21
+
+你能抢回来定义权之前，先别让人家给夺舍了。
+
+老钟自己体量大能压住，但不等于事事都得靠势，该争还得争。
+
+*****
+
+####  广州粉肠  
+##### 10#       发表于 2026-2-9 18:21
+
+我觉得大体没问题
+
+虽然我也认为正名是最优解，但这做不到，那么最合理的选择就是给所有称呼都烙上中国印记
+
+*****
+
+####  sellboy  
+##### 11#       发表于 2026-2-9 18:21
+
+天文基准不一样，定的节气也不一样。
+
+判断是否置润就不一样，而置润不一样春节位置就可以差出一个月。
+
+那么天文基准是谁，叫这名字，是月球的么？
+
+*****
+
+####  regular  
+##### 12#       发表于 2026-2-9 18:22
+
+一步步来呗，别说chunjie了最后X节全给你覆盖了。
+
+*****
+
+####  Promeus  
+##### 13#       发表于 2026-2-9 18:22
+
+<img src="https://p.sda1.dev/30/89434ce2a5c1d655d47e4ff7afc79b05/image.jpg" referrerpolicy="no-referrer">
+
+然而有博主调查过，LNY就是港英当局为了去中国化推广的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飛霞精灵  
+##### 14#       发表于 2026-2-9 18:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69163983&amp;ptid=2274387" target="_blank">Promeus 发表于 2026-2-9 18:22</a>
+
+然而有博主调查过，LNY就是港英当局为了去中国化推广的</blockquote>
+小Q这up算个典型的国际法建制派……
+
+但国际法的意义和价值，依旧比想象中要低不少。
+
+*****
+
+####  冤枉呐  
+##### 15#       发表于 2026-2-9 18:25
+
+如果大家都承认洪秀全是上帝家老儿子，我也对这个月亮节没意见
+别只要求别人啊
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  杀仁小登  
+##### 16#       发表于 2026-2-9 18:25
+
+教你三步偷走中国文化
+
+1，学习引入该文化，或者纯抄一下。
+
+2，宣称该文化是东亚共同财产。
+
+3，宣称该文化是自己的，比如KOREAN NEW YEAR, VIETNAM NEW YEAR.
+
+*****
+
+####  link@1018max  
+##### 17#       发表于 2026-2-9 18:25
+
+为什么不直接chunjie？
+
+*****
+
+####  7745774577  
+##### 18#       发表于 2026-2-9 18:25
+
+抢这些东西就没有意义，你强了都是你的，你弱了你的也是别人的，多少文物躺大英博物馆里
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 杀仁小登|-1|所以现在是强是弱？|
+
+查看全部评分
+
+*****
+
+####  Promeus  
+##### 19#       发表于 2026-2-9 18:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69164002&amp;ptid=2274387" target="_blank">link@1018max 发表于 2026-2-9 18:25</a>
+为什么不直接chunjie？</blockquote>
+很简单，cny已经是广泛使用的代指春节英文了，你用个新词去替代它只会把春节拱手让人
+
+*****
+
+####  ninomo  
+##### 20#       发表于 2026-2-9 18:26
+
+你要搞清楚为什么为什么现在都在蹭中国新年，大部分有话语权的都是商家蹭流量或者拉选票的利益相关，当他们觉得chinese烫嘴的时候背后就是有意识形态问题，而不是无知
+
+*****
+
+####  Waldeinsamkeit  
+##### 21#       发表于 2026-2-9 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69164002&amp;ptid=2274387" target="_blank">link@1018max 发表于 2026-2-9 18:25</a>
+为什么不直接chunjie？</blockquote>
+去年春节申遗时用的是Spring Festival
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kivz  
+##### 22#       发表于 2026-2-9 18:29
+
+全都用，给洋人看的不差这几个字吧<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bubuyu  
+##### 23#       发表于 2026-2-9 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69163983&amp;ptid=2274387" target="_blank">Promeus 发表于 2026-2-9 18:22</a>
+然而有博主调查过，LNY就是港英当局为了去中国化推广的</blockquote>
+就不能把话语权抢过来吗<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Geronimo  
+##### 24#       发表于 2026-2-9 18:34
+
+阴历又不是月相历法，为啥要用lunar？
+
+*****
+
+####  lly778  
+##### 25#       发表于 2026-2-9 18:34
+
+无所谓，反正最后都是指代农历新年，词语原本的意思反而无人关心了。比如dumpling现在的意思就是饺子。
+
+*****
+
+####  7776169  
+##### 26#       发表于 2026-2-9 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69163955&amp;ptid=2274387" target="_blank">gammatau 发表于 2026-2-9 18:17</a>
+
+以前我会说Chinese new Year 就可以了，现在只接受Chunjie</blockquote>
+应该直接“春节”
+
+中文你爱听不听，爱说不说
+
+*****
+
+####  圣雷科诺  
+##### 27#       发表于 2026-2-9 18:35
+
+“正月初一”只有一个正确的名称，那就是“元旦”，现在被换成“春节”本身就是已经退无可退了，决不能接受所谓的“阴历新年”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  我是大鲨鱼1453  
+##### 28#       发表于 2026-2-9 18:35
+
+在国内或者官方机构的正规宣传里一律使用汉语拼音chunjie即可，外国人用什么鸟语关我屁事。我看从香港开始推行就很不错。
+
+我一直觉得，我们对于“某某外语里怎么翻译某个中文概念”这件事，实在是关心得有点过头了。这特么是人家母语使用者才应该困扰的事情。
+
+相应的，国内的地铁站、路牌之类，早就该取消外语标识，只保留罗马字母汉语拼音。这已经是对不识汉字的外国旅客最大限度的照顾了，而且是以占用中国居民公共资源为代价的。外国旅客应该对此感恩，并且应该管好自己养的狗，不要乱叫唤。
+
+*****
+
+####  泥头车  
+##### 29#       发表于 2026-2-9 18:36
+
+春节最好的翻译难道不是 spring festival 吗，为什么没人支持这个
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  hl氏  
+##### 30#       发表于 2026-2-9 18:36
+
+我不喜欢春节，新年就是新年，我会用new year或者xinnian或者guonian
+
+*****
+
+####  ドロロ  
+##### 31#       发表于 2026-2-9 18:42
+
+在sushi改成lunar rice前我不会评论
+
+*****
+
+####  月白天青  
+##### 32#       发表于 2026-2-9 18:46
+
+这个观点就是真空球形鸡，我们这样做这样做理论上是最好的。但现实的场景是原来用Chinese new year用得好好的机构组织，被冲了开始改lunar new year，所以才会有这个话题，才呼吁要对冲回去。
+就好比你说繁体字简体字都是中国字，我们都要用，要绑定在一起，但实际上人家就是以繁体字为旗帜打你的。你跟着混用不是在斗争，而是在退让。
+
+—— 来自 OnePlus PJE110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  wlhlz  
+##### 33#       发表于 2026-2-9 18:52
+
+这up一贯理客中，哪怕是有些不该理客中的事情他也在那理客中
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  碟  
+##### 34#       发表于 2026-2-9 18:53
+
+当然是用chunjie啊。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  乡村音乐老师  
+##### 35#       发表于 2026-2-9 18:54
+
+chunjie个什么劲<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+我倒是希望官方把春节改成中国年
+
+本来就是几千年的传统新年 被大炮和校长强行改成春节 叫中国年反而是回归了 还避免了公立新年的歧义
+
+*****
+
+####  hl氏  
+##### 36#       发表于 2026-2-9 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69164138&amp;ptid=2274387" target="_blank">乡村音乐老师 发表于 2026-2-9 18:54</a>
+
+chunjie个什么劲
+
+我倒是希望官方把春节改成中国年
+
+本来就是几千年的传统新年 被大炮和校长强行改成春节 叫 ...</blockquote>
+农历新年直接叫新年，另外那个叫阳历新年
+
+*****
+
+####  tourbillion  
+##### 37#       发表于 2026-2-9 19:00
+
+南棒东9区，越猴东7区，我们是东8区，时差导致节气日期（地球的黄经度数）和置闰月有差别。越猴和南棒与我国春节经常差一天，偶尔差一个月。如果叫LNY，那很可能今天是LNY，明天也是LNY，30天前也是LNY。所以春节就叫CNY
+
+*****
+
+####  熊边上  
+##### 38#       发表于 2026-2-9 19:01
+
+看了下这个up主的视频
+说句不好听的…感觉学国关的那种精英感快溢出来了，但实际又没讲啥东西，本质就是在读报纸，还…不如圆脸？<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鳄鱼亮爪  
+##### 39#       发表于 2026-2-9 19:06
+
+ 本帖最后由 鳄鱼亮爪 于 2026-2-9 19:12 编辑 
+
+其实叫啥无所谓，主要农历起源不要被误认为是其他国家就行
+
+*****
+
+####  YG111  
+##### 40#       发表于 2026-2-9 19:10
+
+本身在英语里用 lunar 搞代替的就是用来消解你文化主体性的。我们说的阴历/农历  不是lunar的月亮历。  这套历法就是China独有的，其他在那一天过这个节的地球人都跟着紫金山天文台定是哪一天是春节。
+
+要不其他人用中性的 spring festival 要不然就只有Chinese new year。 
+
+你可以叫Lunar 不过那就是属于番邦小国自己跟风瞎玩而已。我只过Chinese new year
+
+
+*****
+
+####  fneasag  
+##### 41#       发表于 2026-2-9 19:11
+
+不用反对，我们体量巨大，产生的信息远大于那几家，都叫露娜年的结果就是到最后搜露娜年只能搜到本朝。
+
+*****
+
+####  鳄鱼亮爪  
+##### 42#       发表于 2026-2-9 19:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69164004&amp;ptid=2274387" target="_blank">7745774577 发表于 2026-2-9 18:25</a>
+
+抢这些东西就没有意义，你强了都是你的，你弱了你的也是别人的，多少文物躺大英博物馆里 ...</blockquote>
+懂你意思但太抽象了，强弱的定义是啥？
+
+而且这种观点往往结论就是什么都不做，或者认为“主要的事情”做好了“次要的事情”也会好，这种观点早该祛魅了
+
+*****
+
+####  七草真由美  
+##### 43#       发表于 2026-2-9 19:12
+
+农历是日月历，不是月历，所以用露娜来代替是不太对的。
+
+*****
+
+####  275042314  
+##### 44#       发表于 2026-2-9 19:15
+
+2024年 2025年也是他在设置这个议题 到底要来讨论辫经多少次
+
+—— 来自 vivo V2417A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lindley  
+##### 45#       发表于 2026-2-9 19:15
+
+<img src="https://img.stage1st.com/forum/202602/09/191334k33dzs0b5d1no57b.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2685.jpeg</strong> (170.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-9 19:13 上传
+
+很多人主要是觉得lunar new year是去中国化的表达，故意削弱农历新年跟中国/华人的关系，事实上英国越南韩国也确实是这么做的。如果你真觉得lunar new year不影响他跟中国的关系，可以参考墨尔本机场的做法：反正不让韩国和越南有操作空间就对了
+
