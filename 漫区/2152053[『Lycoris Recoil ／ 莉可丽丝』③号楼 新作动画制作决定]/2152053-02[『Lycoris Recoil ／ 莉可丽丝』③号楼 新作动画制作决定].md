@@ -152,3 +152,14 @@
 是腾讯的大手吗</blockquote>
 国服联动不了直接装死了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，这编辑私货有点多！
 
+
+*****
+
+####  osore  
+##### 2464#       发表于 2026-2-9 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69159543&amp;ptid=2152053" target="_blank">蒜人 发表于 2026-2-8 21:31</a>
+
+国服联动不了直接装死了，这编辑私货有点多！</blockquote>
+不懂国服。但相信即使联动不了国服也会有独占的更好联动<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
