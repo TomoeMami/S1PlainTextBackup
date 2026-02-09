@@ -634,3 +634,11 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 伊什塔尔你没让神代复苏就吊打闪级，那你不如现在去雷普牢闪算了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">仇有力脸接王财360扫射纹丝不动，接自己射出去的箭要被击退十米，感觉伊斯塔俘虏闪大王问题不大好吧
 
+
+*****
+
+####  月亮上的珊瑚  
+##### 947#       发表于 2026-2-9 08:16
+
+现在有外挂字幕了吗，看到阿B已经有人上传中文字幕版了
+
