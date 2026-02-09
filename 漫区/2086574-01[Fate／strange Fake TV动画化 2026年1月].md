@@ -864,3 +864,13 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 
 但是这个动画提前做好三到四集肯定赶不上
 
+
+*****
+
+####  khxooo  
+##### 972#       发表于 2026-2-9 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69161377&amp;ptid=2086574" target="_blank">Acatv 发表于 2026-2-9 10:17</a>
+不懂就问，这条时间线里老所长是摆了还是寄了？</blockquote>
+除了fgo的世界线，应该都是摆了的。
+
