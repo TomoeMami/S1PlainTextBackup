@@ -761,3 +761,24 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 
 —— 来自 OnePlus PJX110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  楠城旧篱  
+##### 961#       发表于 2026-2-9 12:44
+
+<blockquote>proselyte 发表于 2026-2-9 11:29
+第七集太乐了
+
+又有乳海又有羊叫</blockquote>
+而且提前放出来还能多发酵几天hhhhh
+
+*****
+
+####  KDConan  
+##### 962#       发表于 2026-2-9 12:47
+
+7集就超漫画进度了<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
