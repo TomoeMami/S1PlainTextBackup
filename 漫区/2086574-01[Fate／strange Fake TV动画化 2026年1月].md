@@ -924,3 +924,11 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 
 不愧是高贵的锁卡女神<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  中二小旋风  
+##### 979#       发表于 2026-2-9 22:45
+
+为什么一开始的时候羊被机器人打趴了？
+
