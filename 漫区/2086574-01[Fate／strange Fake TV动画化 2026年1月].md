@@ -851,3 +851,16 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 
 <img src="https://p.sda1.dev/30/d13c092281656133434b43fa633009a6/image.jpg" referrerpolicy="no-referrer">为什么我b站搜“乳海”，弹出来的第一个是fsf第七集，呃？
 
+
+*****
+
+####  大十字紅朔  
+##### 971#       发表于 2026-2-9 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69161477&amp;ptid=2086574" target="_blank">失落之翼 发表于 2026-2-9 10:33</a>
+
+这是提前做1集还是提前做好几集了，那两年不是没干事啊，就是等第十卷写好才放送是吧？ ...</blockquote>
+一般是提前做好三到四集，电视在放第一集的时候在做第四集
+
+但是这个动画提前做好三到四集肯定赶不上
+
