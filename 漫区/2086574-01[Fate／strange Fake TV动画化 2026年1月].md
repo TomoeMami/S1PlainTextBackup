@@ -710,3 +710,11 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
  ...</blockquote>
 所以说啊，这戏份删减和表现还是看人气啊，那海的人气不如伊，恩，理查，有这个结果也是可想而知了，而且别看国内貌似海厨多，其实都是乳海梗厨，本质和你月大部分作者没啥区别<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失落之翼  
+##### 956#       发表于 2026-2-9 10:33
+
+这是提前做1集还是提前做好几集了，那两年不是没干事啊，就是等第十卷写好才放送是吧？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
