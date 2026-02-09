@@ -535,3 +535,23 @@ lny还是cny？为什么会变成一个需要争论的事，问题就出在这
 年初一月相绑定新月，说lunar没问题啊</blockquote>
 根据月相定的历法可不止中国农历一家
 
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 55#       发表于 2026-2-9 19:54
+
+只要能把傻逼白皮和他们的走狗全图了叫什么new year我都无所谓
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ork  
+##### 56#       发表于 2026-2-9 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69164044&amp;ptid=2274387" target="_blank">Geronimo 发表于 2026-2-9 18:34</a>
+
+阴历又不是月相历法，为啥要用lunar？</blockquote>
+分不清农历和阴历的人太多了
+
