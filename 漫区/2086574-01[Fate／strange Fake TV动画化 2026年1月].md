@@ -642,3 +642,11 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 
 现在有外挂字幕了吗，看到阿B已经有人上传中文字幕版了
 
+
+*****
+
+####  zakki  
+##### 948#       发表于 2026-2-9 08:54
+
+闹麻了，觉得待遇不好就待遇不好，非要说制作组偏心美少女，又说对男人不好，理查不用说，恩奇都中性也不算，那闪闪第0集忘了？然后2，3集的杰斯塔神父外表又是美少女了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
