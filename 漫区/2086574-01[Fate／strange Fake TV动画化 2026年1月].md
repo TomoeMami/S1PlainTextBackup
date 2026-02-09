@@ -943,3 +943,23 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 看是看爽了，但是凛厨是不是这季看不到附身了。</blockquote>
 你要的是第8卷的内容那当然跟分割播放动画这季13集会做到第6卷没什么关系<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 981#       发表于 2026-2-10 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69165110&amp;ptid=2086574" target="_blank">中二小旋风 发表于 2026-2-9 22:45</a>
+
+为什么一开始的时候羊被机器人打趴了？</blockquote>
+
+因为真的只是单纯发狂被打啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202602/10/002043bbbia290abbti0ba.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.65 MB, 下载次数: 0)
+
+下载附件
+
+2026-2-10 00:20 上传
+
