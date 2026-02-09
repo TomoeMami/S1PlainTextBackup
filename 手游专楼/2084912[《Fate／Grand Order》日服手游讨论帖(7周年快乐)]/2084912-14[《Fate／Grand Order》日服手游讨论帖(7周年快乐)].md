@@ -175,3 +175,11 @@
 不亏是fgo的情人节，在爱神和农神之间果断选择了妈系回顾过往十年，猛然发现第一年的嫁尼禄和第二年的小艾 ...</blockquote>
 是的，别人一般都是落地ML系角色的， 也就FGO这样独立独行了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失落之翼  
+##### 20510#       发表于 2026-2-9 16:45
+
+6月才新主线，这也太饼了吧
+
