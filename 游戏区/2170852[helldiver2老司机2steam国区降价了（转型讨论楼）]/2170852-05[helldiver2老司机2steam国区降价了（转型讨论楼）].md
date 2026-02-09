@@ -18,3 +18,15 @@
 
 结果最近打完通行证发现才700多币，这还是我之前有余额的前提下。。。
 
+
+*****
+
+####  Sannapolis  
+##### 7314#       发表于 2026-2-9 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69161318&amp;ptid=2170852" target="_blank">Muteki_Link 发表于 2026-2-9 10:05</a>
+现在战局中蓝币获取量是不是明显降了？
+
+以前只要你不去买联动通行证不瞎消费，买普通1000蓝币的通行证正常 ...</blockquote>
+是降了，现在高难度哨站数量变多，兴趣点数量减少，能在兴趣点内获取的蓝币数量自然就少了
+
