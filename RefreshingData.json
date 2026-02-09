@@ -2111,7 +2111,7 @@
     "newtitle": "[18年4月动画化 黄金神威：美食+民俗+悬疑+哲学+……]",
     "lastedit": 1770419530,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1938312": {
@@ -3777,7 +3777,7 @@
     "lastedit": 1770621480,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1414,
@@ -12420,10 +12420,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 7421,
+    "totalreply": 7424,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼2月]",
-    "lastedit": 1770677652,
+    "lastedit": 1770678856,
     "category": "外野",
     "active": true,
     "update": false
@@ -12501,10 +12501,10 @@
     "update": false
   },
   "2269491": {
-    "totalreply": 11175,
+    "totalreply": 11176,
     "title": "[牢A与赞美诗]",
     "newtitle": "[牢A与赞美诗（转型牢A切片讨论楼）]",
-    "lastedit": 1770653782,
+    "lastedit": 1770678856,
     "category": "外野",
     "active": true,
     "update": false
@@ -16506,10 +16506,10 @@
     "update": false
   },
   "2274240": {
-    "totalreply": 98,
+    "totalreply": 99,
     "title": "[辽宁住建厅工作人员王某，对不送钱的故意刁难拖延，8年收取好处费1614万元]",
     "newtitle": "[辽宁住建厅工作人员王某，对不送钱的故意刁难拖延，8年收取好处费1614万元]",
-    "lastedit": 1770646939,
+    "lastedit": 1770678856,
     "category": "外野",
     "active": true,
     "update": false
@@ -16956,10 +16956,10 @@
     "update": false
   },
   "2274378": {
-    "totalreply": 79,
+    "totalreply": 80,
     "title": "[国内有哪个文化ip有潜力做成中国的指环王／星球大战？]",
     "newtitle": "[国内有哪个文化ip有潜力做成中国的指环王／星球大战？]",
-    "lastedit": 1770677652,
+    "lastedit": 1770678856,
     "category": "外野",
     "active": true,
     "update": false
