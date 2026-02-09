@@ -275,3 +275,29 @@ PlayStation高级产品开发总监Mihir Sheth在社交平台上转发了一则S
 PlayStation高级产品开发总监Mihir Sheth在社交平台上转发了一则State of Play发布会公告，所标注的日期正 ...</blockquote>
 nate和grubb已经确认是12号了，可信度较高
 
+
+*****
+
+####  黑猫软  
+##### 524#       发表于 2026-2-9 21:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69164423&amp;ptid=2173605" target="_blank">哈罗 发表于 2026-2-9 19:59</a>
+
+nate和grubb已经确认是12号了，可信度较高</blockquote>
+是的 官宣了已经
+
+奶一个ds2pc 战神银河城
+
+*****
+
+####  黑猫软  
+##### 525#       发表于 2026-2-9 21:11
+
+<img src="https://img.stage1st.com/forum/202602/09/211112jpjzan5aehhh5tmm.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1770642587457_526.jpg</strong> (154.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-9 21:11 上传
+
