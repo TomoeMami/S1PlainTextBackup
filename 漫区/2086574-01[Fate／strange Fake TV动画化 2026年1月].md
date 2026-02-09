@@ -971,3 +971,14 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 
 <img src="https://p.sda1.dev/30/6cdce062035e1e1ad8c4aa9c7a6988a0/image.jpg" referrerpolicy="no-referrer">旮旯底还是厉害。
 
+
+*****
+
+####  fatzhi  
+##### 983#       发表于 2026-2-10 01:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69165463&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-2-10 00:12</a>
+
+你要的是第8卷的内容那当然跟分割播放动画这季13集会做到5，6卷没什么关系 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">可惜了，希望月厨大伙多支持。我就能看到下一季高质量的凛！
+
