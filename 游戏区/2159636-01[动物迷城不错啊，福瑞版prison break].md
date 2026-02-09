@@ -1174,3 +1174,13 @@ https://www.gamersky.com/handbook/202507/1963876.shtml</blockquote>
 
 —— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  落油Я  
+##### 120#       发表于 2026-2-9 17:13
+
+玩了几天，玩得贼难受，晚上没被子盖血量一直在掉，掉到一定程度睡觉还有debuff
+
+虽然想在NS上玩，但这售价也太高了，接近steam的三倍了
+
