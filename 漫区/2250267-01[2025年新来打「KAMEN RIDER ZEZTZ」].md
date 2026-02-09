@@ -142,3 +142,27 @@ ok确定code执行层是纯白了的现实世界也是梦境的感觉越来越�
 5的那个变身姿势，我是真看笑了，也没开始变啊你在那嗷嗷啥</blockquote>
 就我感觉，角色在描写和拍摄上比较克制，个性不怎么鲜明突出的基调下，5的亢奋演出蛮格格不入的。尤其在19集这个极具zzz风格，文戏质量极高的一回以后，接上的20集浮夸氛围都让我觉得不是在看zzz。21集回到正常水准了，别的还好，到5变身那段还是觉得用力过猛，有点出戏<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duo_wolf  
+##### 669#       发表于 2026-2-9 09:09
+
+没有腰带连体紧身衣，这背后的线条好顶啊
+
+<img src="https://img.stage1st.com/forum/202602/09/090751vr1mzegr988mnbqg.png" referrerpolicy="no-referrer">
+
+<strong>d6b10ae024b6d6f9a5d9569a0485f367_720.png</strong> (90.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-9 09:07 上传
+
+<img src="https://img.stage1st.com/forum/202602/09/090804okvc8ezl5urg8taz.png" referrerpolicy="no-referrer">
+
+<strong>f671fc5e69e88636a381eb68b05f09df.png</strong> (171.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-9 09:08 上传
+
