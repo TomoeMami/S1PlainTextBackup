@@ -766,3 +766,24 @@ LNY别国推行就是去中国化
 
 我跟国家走<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星零影  
+##### 78#       发表于 2026-2-10 04:45
+
+要么直接Chinese lunar new year，CNY和lny都算简称
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  灰鸟  
+##### 79#       发表于 2026-2-10 04:47
+
+CNY挺好的，西方普通民众哪来那么多脑子追根溯源，就搞最通俗易懂的
+你问为什么不是Chinese也过CNY，因为他们是亚种Chinese。
+你说还有过LNY的？因为他们最低贱，没资格过CNY<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo PA2473, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
