@@ -1164,3 +1164,13 @@ https://www.gamersky.com/handbook/202507/1963876.shtml</blockquote>
 
 传奇调查员灰猫·班姆~喵喵喵喵<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  水边井  
+##### 119#       发表于 2026-2-9 17:05
+
+50w玩家？看来他们至少没亏钱，还能支持出dlc
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
