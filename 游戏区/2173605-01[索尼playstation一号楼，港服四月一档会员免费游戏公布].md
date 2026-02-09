@@ -264,3 +264,14 @@ NS2第一年销量就把对手的壮年机当年销量给超了，以前有过�
 
 PlayStation高级产品开发总监Mihir Sheth在社交平台上转发了一则State of Play发布会公告，所标注的日期正是2月12日。不过该公告实际上为去年的内容。相关转发随后已被删除。
 
+
+*****
+
+####  哈罗  
+##### 523#       发表于 2026-2-9 19:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69164266&amp;ptid=2173605" target="_blank">黑猫软 发表于 2026-2-9 19:22</a>
+
+PlayStation高级产品开发总监Mihir Sheth在社交平台上转发了一则State of Play发布会公告，所标注的日期正 ...</blockquote>
+nate和grubb已经确认是12号了，可信度较高
+
