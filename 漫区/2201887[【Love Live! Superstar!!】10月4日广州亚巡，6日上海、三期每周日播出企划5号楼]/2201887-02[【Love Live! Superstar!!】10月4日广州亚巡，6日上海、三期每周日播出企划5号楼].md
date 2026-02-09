@@ -126,3 +126,18 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  starring  
+##### 1802#       发表于 2026-2-9 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69160653&amp;ptid=2201887" target="_blank">csolfans 发表于 2026-2-9 05:12</a>
+去现地了没
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+没有
+今年无论是大环境还是个人情况能不能去现地得打个问号<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
