@@ -814,3 +814,23 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 
 现在哪里可以看到第七集带汉化字幕的版本呢
 
+
+*****
+
+####  xwr  
+##### 967#       发表于 2026-2-9 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69162821&amp;ptid=2086574" target="_blank">月亮上的珊瑚 发表于 2026-2-9 14:52</a>
+
+现在哪里可以看到第七集带汉化字幕的版本呢</blockquote>
+？B站随便一搜不是好几个<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月亮上的珊瑚  
+##### 968#       发表于 2026-2-9 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69162951&amp;ptid=2086574" target="_blank">xwr 发表于 2026-2-9 15:20</a>
+？B站随便一搜不是好几个</blockquote>
+哦哦，我一直在刷bt站，看来方向没对
+
