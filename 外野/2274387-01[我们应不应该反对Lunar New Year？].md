@@ -823,3 +823,23 @@ CNY挺好的，西方普通民众哪来那么多脑子追根溯源，就搞最�
 
 chinese new year也不行，就得给屎山英语加屎，就春节<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，就跟番茄酱英语四ketchup一样
 
+
+*****
+
+####  DFantasy  
+##### 84#       发表于 2026-2-10 05:11
+
+<blockquote>泥头车 发表于 2026-2-9 18:36
+春节最好的翻译难道不是 spring festival 吗，为什么没人支持这个
+
+论坛助手,iPhone ...</blockquote>
+我今年做的海报用的就是Spring Festival
+
+<img src="https://img.stage1st.com/forum/202602/10/051104lpq5z76qp8ww5181.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>For more info, please visit agwcs.org (4).jpeg</strong> (436.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-10 05:11 上传
+
