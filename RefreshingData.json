@@ -3777,7 +3777,7 @@
     "lastedit": 1770621480,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1414,
@@ -12447,10 +12447,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 12822,
+    "totalreply": 12824,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1770664810,
+    "lastedit": 1770665769,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16965,10 +16965,10 @@
     "update": false
   },
   "2274387": {
-    "totalreply": 74,
+    "totalreply": 76,
     "title": "[我们应不应该反对Lunar New Year？]",
     "newtitle": "[我们应不应该反对Lunar New Year？]",
-    "lastedit": 1770662890,
+    "lastedit": 1770665649,
     "category": "外野",
     "active": true,
     "update": false
