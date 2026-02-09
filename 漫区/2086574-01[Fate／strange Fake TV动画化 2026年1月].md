@@ -782,3 +782,13 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  yevvet  
+##### 963#       发表于 2026-2-9 14:10
+
+<blockquote>usodakedo 发表于 2026-2-9 00:01
+按照我前几天看到的给羊洗的方式就是，业界占用资源的老前辈太多，偶像化红利被老登吃完了，所以羊这种新 ...</blockquote>
+羊姐赶上好时候了。就这断气配音法放以前的收音设备连音都收不进去。
+
