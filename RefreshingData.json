@@ -3777,7 +3777,7 @@
     "lastedit": 1770621480,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1414,
@@ -12420,10 +12420,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 7419,
+    "totalreply": 7420,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼2月]",
-    "lastedit": 1770676694,
+    "lastedit": 1770677049,
     "category": "外野",
     "active": true,
     "update": false
