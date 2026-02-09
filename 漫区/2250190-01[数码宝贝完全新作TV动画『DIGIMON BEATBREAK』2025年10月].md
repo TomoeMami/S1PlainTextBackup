@@ -210,3 +210,26 @@ syl，下一话竟然还有人口贩卖，这部动画怎么感觉全是黑暗�
 
 反正这种设定加上战争现阶段只能说非常不看好后续塑造，早点搞掉土星回归唯心大战是最好的
 
+
+*****
+
+####  闭挂锁人  
+##### 412#       发表于 2026-2-9 12:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69161455&amp;ptid=2250190" target="_blank">liekong 发表于 2026-2-9 10:30</a>
+
+之前有说过这作可能不会有数码世界</blockquote>
+感觉还是得有，目前最强战力就5个完全体，不够看的
+
+
+*****
+
+####  liekong  
+##### 413#       发表于 2026-2-9 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69162120&amp;ptid=2250190" target="_blank">闭挂锁人 发表于 2026-2-9 12:19</a>
+感觉还是得有，目前最强战力就5个完全体，不够看的</blockquote>
+究极体也不是非得跟数码世界绑定，目前没看到数码兽跟数码世界有什么关联，到时候要让究极体出场也可以究极体直接穿过来，DGG也几乎没有数码世界的戏份，就最后过了一下场。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
