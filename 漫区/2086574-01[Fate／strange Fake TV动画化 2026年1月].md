@@ -690,3 +690,23 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 
 一个完全状况外的萝莉和一个真的没有人格的纯机仆，太舞台装置了所以没什么人厨吧大概<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Acatv  
+##### 954#       发表于 2026-2-9 10:17
+
+不懂就问，这条时间线里老所长是摆了还是寄了？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 955#       发表于 2026-2-9 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69161303&amp;ptid=2086574" target="_blank">久井路路 发表于 2026-2-9 10:02</a>
+一个完全状况外的萝莉和一个真的没有人格的纯机仆，太舞台装置了所以没什么人厨吧大概
+
+ ...</blockquote>
+所以说啊，这戏份删减和表现还是看人气啊，那海的人气不如伊，恩，理查，有这个结果也是可想而知了，而且别看国内貌似海厨多，其实都是乳海梗厨，本质和你月大部分作者没啥区别<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
