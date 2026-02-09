@@ -3777,7 +3777,7 @@
     "lastedit": 1770621480,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1414,
@@ -6260,7 +6260,7 @@
     "newtitle": "[《Splatoon 3／斯普拉遁3》专楼（1月29日更新Ver.11.0.0）]",
     "lastedit": 1770380054,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2130296": {
@@ -11448,10 +11448,10 @@
     "update": false
   },
   "2252821": {
-    "totalreply": 3135,
+    "totalreply": 3136,
     "title": "[Team Ninja《仁王3》正式公布，2026年初发售，Demo现已上线PS5]",
     "newtitle": "[Team Ninja《仁王3》正式公布，2026年2月6日发售]",
-    "lastedit": 1770638769,
+    "lastedit": 1770639019,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12177,10 +12177,10 @@
     "update": false
   },
   "2208973": {
-    "totalreply": 921,
+    "totalreply": 922,
     "title": "[GNOSIA TV动画化 2025年]",
     "newtitle": "[GNOSIA TV动画化 2025年]",
-    "lastedit": 1770620649,
+    "lastedit": 1770639253,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12303,10 +12303,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 6677,
+    "totalreply": 6681,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【明日方舟：终末地】情报汇总3号楼 2026.1.22 全球公测]",
-    "lastedit": 1770638172,
+    "lastedit": 1770639492,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12420,10 +12420,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 7323,
+    "totalreply": 7326,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼2月]",
-    "lastedit": 1770638653,
+    "lastedit": 1770639257,
     "category": "外野",
     "active": true,
     "update": false
@@ -12447,10 +12447,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 12733,
+    "totalreply": 12734,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1770638058,
+    "lastedit": 1770639019,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12627,10 +12627,10 @@
     "update": false
   },
   "2086574": {
-    "totalreply": 975,
+    "totalreply": 976,
     "title": "[Fate／strange Fake TV动画化 2026年1月]",
     "newtitle": "[Fate／strange Fake TV动画化 2026年1月]",
-    "lastedit": 1770634449,
+    "lastedit": 1770639257,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12929,7 +12929,7 @@
     "newtitle": "[《潜水员戴夫》这游戏有点神奇的]",
     "lastedit": 1770380054,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2256230": {
@@ -13352,15 +13352,6 @@
     "newtitle": "[TikTok官宣]",
     "lastedit": 1769652264,
     "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2272934": {
-    "totalreply": 62,
-    "title": "[很符合命运的齿轮开始转动的动漫BGM都有哪些？]",
-    "newtitle": "[很符合命运的齿轮开始转动的动漫BGM都有哪些？]",
-    "lastedit": 1769429316,
-    "category": "漫区",
     "active": false,
     "update": false
   },
@@ -14373,10 +14364,10 @@
     "update": false
   },
   "2273512": {
-    "totalreply": 340,
+    "totalreply": 341,
     "title": "[如果四大名著换掉其中一本，你想那本换哪本？为什么？]",
     "newtitle": "[如果四大名著换掉其中一本，你想那本换哪本？为什么？]",
-    "lastedit": 1770635173,
+    "lastedit": 1770639019,
     "category": "外野",
     "active": true,
     "update": false
@@ -15633,10 +15624,10 @@
     "update": false
   },
   "2271992": {
-    "totalreply": 46,
+    "totalreply": 47,
     "title": "[嘟嘟脸恶作剧怎么没人发帖【当是专楼吧】]",
     "newtitle": "[嘟嘟脸恶作剧怎么没人发帖【当是专楼吧】]",
-    "lastedit": 1770637935,
+    "lastedit": 1770639492,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -16434,10 +16425,10 @@
     "update": false
   },
   "2274210": {
-    "totalreply": 68,
+    "totalreply": 69,
     "title": "[相信我，你绝对不想春节期间待在中国]",
     "newtitle": "[相信我，你绝对不想春节期间待在中国]",
-    "lastedit": 1770627857,
+    "lastedit": 1770639257,
     "category": "外野",
     "active": true,
     "update": false
@@ -16713,10 +16704,10 @@
     "update": false
   },
   "2274198": {
-    "totalreply": 64,
+    "totalreply": 66,
     "title": "[奥运会这么拉了吗，冬奥会没有讨论楼，都开幕了]",
     "newtitle": "[奥运会这么拉了吗，冬奥会没有讨论楼，都开幕了]",
-    "lastedit": 1770602888,
+    "lastedit": 1770639019,
     "category": "外野",
     "active": true,
     "update": false
@@ -16947,10 +16938,10 @@
     "update": false
   },
   "2274344": {
-    "totalreply": 54,
+    "totalreply": 55,
     "title": "[反中乱港分子黎智英获刑20年]",
     "newtitle": "[反中乱港分子黎智英获刑20年]",
-    "lastedit": 1770638060,
+    "lastedit": 1770639257,
     "category": "外野",
     "active": true,
     "update": false
@@ -16965,10 +16956,10 @@
     "update": false
   },
   "2149336": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[威赫战线专楼 MENACE~(战场兄弟团队）2月EA开始]",
     "newtitle": "[威赫战线专楼 MENACE~(战场兄弟团队）2月EA开始]",
-    "lastedit": 1770635288,
+    "lastedit": 1770639015,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17010,10 +17001,10 @@
     "update": false
   },
   "2274378": {
-    "totalreply": 51,
+    "totalreply": 52,
     "title": "[国内有哪个文化ip有潜力做成中国的指环王／星球大战？]",
     "newtitle": "[国内有哪个文化ip有潜力做成中国的指环王／星球大战？]",
-    "lastedit": 1770638653,
+    "lastedit": 1770639019,
     "category": "外野",
     "active": true,
     "update": false
