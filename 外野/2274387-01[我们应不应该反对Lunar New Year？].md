@@ -787,3 +787,39 @@ CNY挺好的，西方普通民众哪来那么多脑子追根溯源，就搞最�
 
 —— 来自 vivo PA2473, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  畜男不是人  
+##### 80#       发表于 2026-2-10 04:55
+
+我只过春节 英语看不懂
+
+
+*****
+
+####  畜男不是人  
+##### 81#       发表于 2026-2-10 05:00
+
+<blockquote>snailium 发表于 2026-2-9 14:30
+吵这些都没用，我一直在等一份官方翻译指南，规范一下各个翻译，节日，节气还有一些约定俗成的用法。
+
+至于 ...</blockquote>
+中文语境下都没统一 翻译怎么下手呢 中国年 农历新年 春节 大年
+
+*****
+
+####  如月尤菲  
+##### 82#       发表于 2026-2-10 05:04
+
+ 本帖最后由 如月尤菲 于 2026-2-10 05:05 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">貌似越南这几年偷的比棒子还猖狂，连短视频都一比一复制的偷。不过这也没办法，你上不去tt，拿人家真就一点办法没有
+
+*****
+
+####  Shih0_Matsuri  
+##### 83#       发表于 2026-2-10 05:05
+
+chinese new year也不行，就得给屎山英语加屎，就春节<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，就跟番茄酱英语四ketchup一样
+
