@@ -890,3 +890,13 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 
 昨天在age上就有看见带字幕的版本了，不过是机翻，估计是临时用AI跑出来的
 
+
+*****
+
+####  乞力马札罗的雪  
+##### 975#       发表于 2026-2-9 18:48
+
+不过，赫拉克勒斯也就那样了.jpg
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
