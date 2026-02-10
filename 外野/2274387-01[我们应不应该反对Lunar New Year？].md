@@ -1299,3 +1299,14 @@ chinese new year也不行，就得给屎山英语加屎，就春节<img src="htt
 我今年做的海报用的就是Spring Festival</blockquote>
 奥斯汀还能有中文学校？我看UTAustin他们已经草木皆兵的不行了，看到中国国籍上来问你句是不是spy<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxn  
+##### 127#       发表于 2026-2-10 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69166157&amp;ptid=2274387" target="_blank">ymm1030 发表于 2026-2-10 08:56</a>
+
+这个词你从学术上探讨已经没什么意义了。就像chi na不过是chin**假名化，但是你能说这个词在学术上成立吗？ ...</blockquote>
+有点区别的，zhina是双边的，就日本用来称呼中国，中国觉得被冒犯提出反对，日本不嚷嚷全世界都清净了，而LNY是多边的，你可以自律不说，你也可以尝试阻止别人对你说，但很难阻止别人之间互道LNY
+
