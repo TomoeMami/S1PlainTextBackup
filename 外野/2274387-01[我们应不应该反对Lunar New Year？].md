@@ -1172,3 +1172,28 @@ chinese new year也不行，就得给屎山英语加屎，就春节<img src="htt
 
 再说现实点你统一成chunjie, 那好了假设现在越南继续主张lny是越南的, 提问你争还是不争呢? 不争你吃屎, 争就代表正名脱裤子放屁
 
+
+*****
+
+####  孤高饭饭  
+##### 116#       发表于 2026-2-10 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69166588&amp;ptid=2274387" target="_blank">披头破落户 发表于 2026-2-10 09:55</a>
+
+先从课本里下了再说狗哨
+
+—— 来自 vivo V2502A, Android 16, 鹅球 v3.5.99</blockquote>
+编辑zsbd
+
+*****
+
+####  孤高饭饭  
+##### 117#       发表于 2026-2-10 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69166588&amp;ptid=2274387" target="_blank">披头破落户 发表于 2026-2-10 09:55</a>
+
+先从课本里下了再说狗哨
+
+—— 来自 vivo V2502A, Android 16, 鹅球 v3.5.99</blockquote>
+编辑zsbd
+
