@@ -233,3 +233,29 @@ syl，下一话竟然还有人口贩卖，这部动画怎么感觉全是黑暗�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  TOYSTORY  
+##### 414#       发表于 2026-2-10 23:42
+
+ 本帖最后由 TOYSTORY 于 2026-2-10 23:43 编辑 
+
+<img src="https://img.stage1st.com/forum/202602/10/234247jhahppa00b00l88o.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (695.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-10 23:42 上传
+
+[https://www.medicos-e.net/newsdetail/digimon_beatbreak/](https://www.medicos-e.net/newsdetail/digimon_beatbreak/)
+
+<img src="https://img.stage1st.com/forum/202602/10/234338ww31ntz3y6jzbjlk.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (544.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-10 23:43 上传
+
