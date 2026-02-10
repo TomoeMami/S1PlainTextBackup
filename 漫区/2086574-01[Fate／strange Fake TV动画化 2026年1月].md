@@ -1056,3 +1056,23 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 不是，你为难产的抱不平那是那边不单A1还有推进方的问题啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 我还想说FSF作为是aniplexUSA推进的但是拿到的资源只能10卷改26集这么极限
 
+
+*****
+
+####  亚历山大帝  
+##### 991#       发表于 2026-2-10 19:55
+
+ 本帖最后由 亚历山大帝 于 2026-2-10 19:58 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69157854&amp;ptid=2086574" target="_blank">空彦秋 发表于 2026-2-8 14:29</a>
+
+小恩一个嘴唇和几个眼神特写就足见制作组厨力了。
+
+话说银狼对比沙条，显得完全不内耗啊，动画这部分更加明 ...</blockquote>
+是啊，那一话的傻条显得格外讨厌，
+
+打起来的时候不吭声，打完了出来闹别扭，扯了半天全是车轱辘话，
+
+真实人比人该死，御主比御主得扔。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
