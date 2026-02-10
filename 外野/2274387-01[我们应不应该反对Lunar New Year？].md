@@ -884,3 +884,35 @@ chinese new year也不行，就得给屎山英语加屎，就春节<img src="htt
 阴历又不是月相历法，为啥要用lunar？</blockquote>
 大年初一的时候你见过满月吗
 
+
+*****
+
+####  洛拉斯  
+##### 89#       发表于 2026-2-10 08:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69165813&amp;ptid=2274387" target="_blank">如月尤菲 发表于 2026-2-10 05:04</a>
+貌似越南这几年偷的比棒子还猖狂，连短视频都一比一复制的偷。不过这也没办法，你上不去tt，拿人家真就一点 ...</blockquote>
+其实没关系，偷到最后把自己东西丢了，邯郸学步而已
+
+*****
+
+####  lionheart  
+##### 90#       发表于 2026-2-10 08:37
+
+四个译名共存太混乱了，要统一推广新译名chunjie
+
+现在我们有五个共存译名了
+
+
+*****
+
+####  紫吹兰  
+##### 91#       发表于 2026-2-10 08:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69163959&amp;ptid=2274387" target="_blank">cqc1021 发表于 2026-2-9 02:17</a>
+
+在Merry Koreastmas成为美国官方用语前不发表意见
+
+—— 来自 samsung SM-N9860, Android 13, 鹅球 v3.5.99 ...</blockquote>
+至少加州公共场合已经几乎看不见Merry Christmas，只使用Happy Holidays了。
+
