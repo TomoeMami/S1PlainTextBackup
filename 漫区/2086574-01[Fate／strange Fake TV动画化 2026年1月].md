@@ -1018,3 +1018,32 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 一个强者，与初登场的角色战斗次数越多，就越容易被乳
 就像海贼王里的路飞，新登场的角色十有八九都要与王路飞交手展示一下实力，导致王路飞现在都贵为五皇了，还是什么阿猫阿狗都能来“值得一战”，动不动就初见吃瘪，哪怕有亲爹尾田也避免不了被乳<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 988#       发表于 2026-2-10 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69166130&amp;ptid=2086574" target="_blank">yangun22 发表于 2026-2-10 08:51</a>
+不是我说真的会有第二季吗，就第一季这制作速度，真有也要几年以后了吧</blockquote>
+跟你说了分割2季度你就信，月球动画企划没有没做完的准备<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+免的继续误解还是要说下
+这片3年来推进慢的真正原因是设定、世界观、美术等前期阶段考据在那磨洋工花的时间太长
+才导致进入作画中后期流程太晚了
+不是真的制作速度慢的离谱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yangun22  
+##### 989#       发表于 2026-2-10 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69169046&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-2-10 16:19</a>
+
+跟你说了分割2季度你就信，月球动画企划没有没做完的准备
+
+免的继续误解还是要说下
+
+这片3年来推进慢的真正 ...</blockquote>
+其实我不光不相信月球，我更不相信A1,你看看A1还欠着多少续篇没拿出来呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
