@@ -1092,3 +1092,11 @@ chinese new year也不行，就得给屎山英语加屎，就春节<img src="htt
 我看好多人还是做题心态。也该轮到我们出题了。春节就用new year，要么就是Guonian。你说为什么新年在二月 ...</blockquote>
 这不是有人对吴大使最近使用Lunar不满吗？请问这算出题还是做题？
 
+
+*****
+
+####  Litccc  
+##### 108#       发表于 2026-2-10 09:30
+
+还是用Chunjie吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
