@@ -110,3 +110,56 @@
 
 又分兵了，感觉这期mo有点悬
 
+
+*****
+
+####  LrGsite  
+##### 7325#       发表于 2026-2-10 18:27
+
+<img src="https://img.stage1st.com/forum/202602/10/182742gfze3z67kmmxa66m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (318.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-10 18:27 上传
+
+*****
+
+####  ykyin09  
+##### 7326#       发表于 2026-2-10 21:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这生化斯坦打得有点像开服那会的机器人了
+
+*****
+
+####  FLZB  
+##### 7327#       发表于 2026-2-10 21:51
+
+新机甲真的好笑，百米开外跟队友拉扯突然转头一炮给我秒了，进点搓个地狱火刚站起来又被瞬秒，有意思么？另外老资历类似光能棍哥，是三叉戟的星努力，但你最好别被近身，否则会吃无限肘击再起不能<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  madcow  
+##### 7328#       发表于 2026-2-10 22:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">为什么赛博斯坦进不了
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">顺便现在机器人的大构筑怎么拆方便的，怎么现在导弹井一发都打不掉
+
+*****
+
+####  紫沙狐  
+##### 7329#       发表于 2026-2-10 22:56
+
+草泥马 这生化斯坦是人打的 箭头真的疯了  两把全是撤离团灭 4个大机甲一起刷 谁TM顶得住<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gnleez  
+##### 7330#       发表于 2026-2-10 23:03
+
+生化斯坦这个新坦克太阴间了，血量特别高，弱点在背后和底盘，荡平者正面得2发
+
+还经常同屏四五个，绕后机会很少
+
