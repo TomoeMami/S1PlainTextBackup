@@ -1019,3 +1019,76 @@ chinese new year也不行，就得给屎山英语加屎，就春节<img src="htt
 
 随便，要正宗就直接对鬼佬说新春
 
+
+*****
+
+####  downnote  
+##### 101#       发表于 2026-2-10 09:18
+
+那为什么不直接happy new year呢
+
+*****
+
+####  benhawk  
+##### 102#       发表于 2026-2-10 09:20
+
+<blockquote>披头破落户 发表于 2026-2-10 09:13
+大概是因为zhina具有明切贬低含义和严重历史原因而lny并没有特别明显的贬低含义而且我国外交对外宣传也经 ...</blockquote>
+但是我记得最开始lny吵起来就是因为猴子棒子之流在做泛化宣传。所以大家才抵制。我不觉得现在再讨论什么意思。简而言之就是lny也打上了侮辱类的色彩。
+
+何况这个事情根本没啥好讨论☞就是我们春节叫cny。甚至是chunjie。
+
+讨论就是被摆上议题。这种人坏的很。
+
+*****
+
+####  亚瑟·摩根  
+##### 103#       发表于 2026-2-10 09:21
+
+这种话题否认Lunar new year也不对的，民间日常也叫阴历年，农历的阴阳合历，阳历的部分在二十四节气嘛。
+
+该否定的是棒子和猴子把阴历年和他们强行绑定，试图剔除中国影响
+
+我们应该说，中国新年既是Chinese new year，也是 Spring Festival，也是Lunar new year，这才对哦，猴棒过春节，是因为过去藩属国传统习惯罢了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">沐猴而冠
+
+
+*****
+
+####  披头破落户  
+##### 104#       发表于 2026-2-10 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69166333&amp;ptid=2274387" target="_blank">benhawk 发表于 2026-2-10 09:20</a>
+但是我记得最开始lny吵起来就是因为猴子棒子之流在做泛化宣传。所以大家才抵制。我不觉得现在再讨论什么 ...</blockquote>
+打没打上侮辱含义你说了不算，广大人民群主说了算中国政府说了算，然而事实是lny依旧收录在英语课本里，中国外交外宣也经常使用说明不是侮辱含义。事实就是这个话题没人提就无人在意cny lny SpringFestival chunjie都是春节
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cxn  
+##### 105#       发表于 2026-2-10 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69166321&amp;ptid=2274387" target="_blank">downnote 发表于 2026-2-10 09:18</a>
+
+那为什么不直接happy new year呢</blockquote>
+可以，中文就是新年快乐，谁吃饱了会说农历新年快乐，英文不这么说只是为了避免重名，农历新年比公历新年晚，Happy new year被公历先用了，那为了避免重名不如就直接Xin Nian Kuai Le吧<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  披头破落户  
+##### 106#       发表于 2026-2-10 09:27
+
+就算是这层楼里就同时出现了不许用lny Spring Festival 甚至cny的“弃地”言论和都可以用的杂烩菜言论，讨论这些除了给自己挣小红点以外毫无意义
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  大金刚剑桥鼓掌  
+##### 107#       发表于 2026-2-10 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69166117&amp;ptid=2274387" target="_blank">theyoung 发表于 2026-2-10 08:49</a>
+
+我看好多人还是做题心态。也该轮到我们出题了。春节就用new year，要么就是Guonian。你说为什么新年在二月 ...</blockquote>
+这不是有人对吴大使最近使用Lunar不满吗？请问这算出题还是做题？
+
