@@ -1257,3 +1257,21 @@ chinese new year也不行，就得给屎山英语加屎，就春节<img src="htt
 
 还lunar spring，你就进入弱智老外的话语体系了
 
+
+*****
+
+####  iriyano  
+##### 123#       发表于 2026-2-10 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69166180&amp;ptid=2274387" target="_blank">往世雷书 发表于 2026-2-10 09:59</a>
+并不是，实际上他的观点和古墓派公知都是反着来的</blockquote>
+哪些观点？愿闻其详
+
+
+*****
+
+####  宅音  
+##### 124#       发表于 2026-2-10 11:22
+
+上赶着帮小偷去中国化的帮凶罢了，联合国看多了真以为自己世界公民
+
