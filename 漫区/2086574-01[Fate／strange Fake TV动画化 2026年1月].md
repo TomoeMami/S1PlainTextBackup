@@ -1100,3 +1100,18 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 赫拉克勒斯只要出场都会被削弱也是没办法的事，要真按神话里连正神都被他吊打的战斗力来故事就编不下去了， ...</blockquote>
 海无力不是冠位就是削弱啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kurihayn  
+##### 994#       发表于 2026-2-10 22:19
+
+<blockquote>亚历山大帝 发表于 2026-2-10 19:55
+是啊，那一话的傻条显得格外讨厌，
+
+打起来的时候不吭声，打完了出来闹别扭，扯了半天全是车轱辘话，
+</blockquote>
+打的时候吭声才讨厌吧
+
+有一说一她在开打之前就有意见了只是被狼拉住了
+
