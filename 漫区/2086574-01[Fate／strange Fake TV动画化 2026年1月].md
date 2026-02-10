@@ -1089,3 +1089,14 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 我还想说FSF作为是aniplexUSA推进的但是拿到的资 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 卧槽，小太刀，差点儿都忘了这名字了，查了一下他这些年一直没消停。
 
+
+*****
+
+####  シャル  
+##### 993#       发表于 2026-2-10 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69168755&amp;ptid=2086574" target="_blank">wlhlz 发表于 2026-2-10 15:39</a>
+
+赫拉克勒斯只要出场都会被削弱也是没办法的事，要真按神话里连正神都被他吊打的战斗力来故事就编不下去了， ...</blockquote>
+海无力不是冠位就是削弱啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
