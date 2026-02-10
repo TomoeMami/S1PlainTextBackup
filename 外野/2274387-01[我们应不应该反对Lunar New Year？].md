@@ -1341,3 +1341,19 @@ chinese new year也不行，就得给屎山英语加屎，就春节<img src="htt
 
 奥斯汀中文学校很多啊，不过大部分都是做after school。奥斯汀的几所basis小学都有中文必修课，另外还有好几所有中文课的公立小学。
 
+
+*****
+
+####  特隆凯蒂  
+##### 131#       发表于 2026-2-10 15:50
+
+拿lunar指农历洗地的，我想说的是农历有标准官方翻译：Chinese Calendar
+
+
+*****
+
+####  憧憬鲨  
+##### 132#       发表于 2026-2-10 15:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">讲应不应该就很难说，讲能不能，我是支持任何人都能反对的
+
