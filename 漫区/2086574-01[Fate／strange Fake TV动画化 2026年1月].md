@@ -1047,3 +1047,12 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 这片3年来推进慢的真正 ...</blockquote>
 其实我不光不相信月球，我更不相信A1,你看看A1还欠着多少续篇没拿出来呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 990#       发表于 2026-2-10 16:48
+
+不是，你为难产的抱不平那是那边不单A1还有推进方的问题啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我还想说FSF作为是aniplexUSA推进的但是拿到的资源只能10卷改26集这么极限
+
