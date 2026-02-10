@@ -1100,3 +1100,30 @@ chinese new year也不行，就得给屎山英语加屎，就春节<img src="htt
 
 还是用Chunjie吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  4396777  
+##### 109#       发表于 2026-2-10 09:38
+
+看完汴京之后发现汉妃还是对的，坛友们就像下议院议员，只需要关心活到下周五，上面的大人们就像FAO，需要考虑到下个世纪的事情<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  今天不守尸  
+##### 110#       发表于 2026-2-10 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69165508&amp;ptid=2274387" target="_blank">taidui 发表于 2026-2-10 00:25</a>
+ 都怪墙是吧</blockquote>
+油罐翻墙就能上，这么多年了，上面牢中是什么风评
+而洋抖光翻墙不行，还有sim卡限制，比上油罐麻烦多了，但上面牢中又是什么风评
+如果你觉得两者的区别是墙的问题的话，那就是你对
+
+
+*****
+
+####  扎克远山  
+##### 111#       发表于 2026-2-10 09:44
+
+你反对与否是你自己的事，问题是如何让非中文使用者群体接受，不然除了自己内部互相出警扣帽子有一毛钱意义吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
