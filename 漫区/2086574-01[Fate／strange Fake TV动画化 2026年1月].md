@@ -1076,3 +1076,16 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 
 <img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斯塔久  
+##### 992#       发表于 2026-2-10 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69169284&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-2-10 16:48</a>
+
+不是，你为难产的抱不平那是那边不单A1还有推进方的问题啊
+
+我还想说FSF作为是aniplexUSA推进的但是拿到的资 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 卧槽，小太刀，差点儿都忘了这名字了，查了一下他这些年一直没消停。
+
