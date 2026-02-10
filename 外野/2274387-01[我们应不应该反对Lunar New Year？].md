@@ -916,3 +916,25 @@ chinese new year也不行，就得给屎山英语加屎，就春节<img src="htt
 —— 来自 samsung SM-N9860, Android 13, 鹅球 v3.5.99 ...</blockquote>
 至少加州公共场合已经几乎看不见Merry Christmas，只使用Happy Holidays了。
 
+
+*****
+
+####  炽十二翼  
+##### 92#       发表于 2026-2-10 08:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">反对一切中译英用意译，坚决要求音译，往屎山拉稀不能停
+
+*****
+
+####  theyoung  
+##### 93#       发表于 2026-2-10 08:49
+
+我看好多人还是做题心态。也该轮到我们出题了。春节就用new year，要么就是Guonian。你说为什么新年在二月，这不是我们考虑的问题，让老外自己去理解。
+
+*****
+
+####  liangyi345  
+##### 94#       发表于 2026-2-10 08:50
+
+在海外火的那几个氪金游戏能用好就行了 
+

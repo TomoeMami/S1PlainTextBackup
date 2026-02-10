@@ -982,3 +982,11 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 你要的是第8卷的内容那当然跟分割播放动画这季13集会做到5，6卷没什么关系 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">可惜了，希望月厨大伙多支持。我就能看到下一季高质量的凛！
 
+
+*****
+
+####  yangun22  
+##### 984#       发表于 2026-2-10 08:51
+
+不是我说真的会有第二季吗，就第一季这制作速度，真有也要几年以后了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
