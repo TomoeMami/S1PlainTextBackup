@@ -62,3 +62,51 @@
 
 狂发垃圾邮件，这哈机人不爱不行了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sannapolis  
+##### 7319#       发表于 2026-2-9 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69161318&amp;ptid=2170852" target="_blank">Muteki_Link 发表于 2026-2-9 10:05</a>
+现在战局中蓝币获取量是不是明显降了？
+
+以前只要你不去买联动通行证不瞎消费，买普通1000蓝币的通行证正常 ...</blockquote>
+是降了，现在高难度哨站数量变多，兴趣点数量减少，能在兴趣点内获取的蓝币数量自然就少了
+
+*****
+
+####  保科智子  
+##### 7320#       发表于 2026-2-9 10:39
+
+城市图兴趣点只有飞机和少量的集装箱才有蓝币，大都市更是基本0收入。感觉大部分都被弹药取代了。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  赤井稻妻  
+##### 7321#       发表于 2026-2-9 10:46
+
+城市图蓝币变少被吐槽很久了，想farm还是得专门找适合的图，然后在低难度组队，虽然这种行为会变相提升MO难度
+
+*****
+
+####  ykyin09  
+##### 7322#       发表于 2026-2-9 14:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">解包解出机器人偷袭地球，互相换家都来了
+
+*****
+
+####  FLZB  
+##### 7323#       发表于 2026-2-9 17:08
+
+狂发垃圾邮件，这哈机人不爱不行了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤井稻妻  
+##### 7324#       发表于 2026-2-10 08:54
+
+又分兵了，感觉这期mo有点悬
+
