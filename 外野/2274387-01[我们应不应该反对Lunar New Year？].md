@@ -1127,3 +1127,48 @@ chinese new year也不行，就得给屎山英语加屎，就春节<img src="htt
 
 你反对与否是你自己的事，问题是如何让非中文使用者群体接受，不然除了自己内部互相出警扣帽子有一毛钱意义吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  孤高饭饭  
+##### 112#       发表于 2026-2-10 09:47
+
+推广lunar new year就是典型的狗哨效应，不知内情的人觉得无所谓，知道其中含义的人当然会竭力反对，然后会被不知情的大众嘲讽反应过度
+
+
+*****
+
+####  大金刚剑桥鼓掌  
+##### 113#       发表于 2026-2-10 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69166507&amp;ptid=2274387" target="_blank">扎克远山 发表于 2026-2-10 09:44</a>
+
+你反对与否是你自己的事，问题是如何让非中文使用者群体接受，不然除了自己内部互相出警扣帽子有一毛钱意义 ...</blockquote>
+话倒也不能这么说，如果自己官方是混着用的，那么向外面出警必然受挫啊，那可不得先自己内部互相出警
+
+*****
+
+####  披头破落户  
+##### 114#       发表于 2026-2-10 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69166537&amp;ptid=2274387" target="_blank">孤高饭饭 发表于 2026-2-10 09:47</a>
+推广lunar new year就是典型的狗哨效应，不知内情的人觉得无所谓，知道其中含义的人当然会竭力反对，然后会 ...</blockquote>
+先从课本里下了再说狗哨
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  广州粉肠  
+##### 115#       发表于 2026-2-10 09:55
+
+我寻思这楼不是恰好论证了楼主言论的正确?
+
+就算只讨论应该正名的坛友, 都有不同译法, 这还是内部
+
+更别提外部不用, 你内部讨论再多除了扣帽子有啥别的意义
+
+就像楼上说的一样, 现在春节有四个译法, 我们现在决定统一为chunjie, 很好现在有五个译法了
+
+再说现实点你统一成chunjie, 那好了假设现在越南继续主张lny是越南的, 提问你争还是不争呢? 不争你吃屎, 争就代表正名脱裤子放屁
+
