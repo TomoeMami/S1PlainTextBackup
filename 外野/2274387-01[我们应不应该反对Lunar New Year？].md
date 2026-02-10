@@ -1289,3 +1289,13 @@ chinese new year也不行，就得给屎山英语加屎，就春节<img src="htt
 
 自古以来中国的日期就没按一年365天算过
 
+
+*****
+
+####  AshPenguin  
+##### 126#       发表于 2026-2-10 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69165819&amp;ptid=2274387" target="_blank">DFantasy 发表于 2026-2-10 05:11</a>
+我今年做的海报用的就是Spring Festival</blockquote>
+奥斯汀还能有中文学校？我看UTAustin他们已经草木皆兵的不行了，看到中国国籍上来问你句是不是spy<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
