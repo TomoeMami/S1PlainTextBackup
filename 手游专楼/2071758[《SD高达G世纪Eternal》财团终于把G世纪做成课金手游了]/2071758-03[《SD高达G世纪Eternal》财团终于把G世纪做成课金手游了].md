@@ -25,3 +25,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">看惯了各种堆堆堆，好久不见这么素的红异端，感觉有点微妙，而且金天居然是盾机，明天看看具体性能如何
 
+
+*****
+
+####  ドロロ  
+##### 3633#       发表于 2026-2-10 19:18
+
+虽然想要红异端，但是害得继续攒石头备战下个池子<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
