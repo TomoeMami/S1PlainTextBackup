@@ -853,3 +853,34 @@ chinese new year也不行，就得给屎山英语加屎，就春节<img src="htt
 
 2.想想中文里的职务、行政职务、技术职务、职务名称、职称、职称资格之间的关系，你自己能理顺也没用，其他人就是混着用，没救了
 
+
+*****
+
+####  鳄鱼亮爪  
+##### 86#       发表于 2026-2-10 08:27
+
+<blockquote>7745774577 发表于 2026-2-10 02:40
+我确实同意你的观点，很多问题不能否认主观能动性的意义，但这个问题上真的是取得对美决定性胜利后不缺大 ...</blockquote>
+还是太抽象了，做到世界第一就有大儒辩经虽然有，但又不是全部领域和全部人，你哪怕看看现状也是这样啊
+
+
+*****
+
+####  iriyano  
+##### 87#       发表于 2026-2-10 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69164132&amp;ptid=2274387" target="_blank">wlhlz 发表于 2026-2-9 19:52</a>
+这up一贯理客中，哪怕是有些不该理客中的事情他也在那理客中
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+这是个古墓派公知<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛拉斯  
+##### 88#       发表于 2026-2-10 08:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69164044&amp;ptid=2274387" target="_blank">Geronimo 发表于 2026-2-9 18:34</a>
+阴历又不是月相历法，为啥要用lunar？</blockquote>
+大年初一的时候你见过满月吗
+
