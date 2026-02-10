@@ -1226,3 +1226,11 @@ chinese new year也不行，就得给屎山英语加屎，就春节<img src="htt
 
 正确叫法就是中国新年，其他一律不认。
 
+
+*****
+
+####  罗马还能再战  
+##### 120#       发表于 2026-2-10 11:01
+
+我发邮件从来不用lunar new year,一直都是写Chinese Spring Festival Holiday
+
