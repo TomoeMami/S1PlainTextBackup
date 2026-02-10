@@ -990,3 +990,13 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 
 不是我说真的会有第二季吗，就第一季这制作速度，真有也要几年以后了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 985#       发表于 2026-2-10 09:00
+
+几年后是必然的，型月目前除了fsr以外都没啥有动画化可能的作品
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
