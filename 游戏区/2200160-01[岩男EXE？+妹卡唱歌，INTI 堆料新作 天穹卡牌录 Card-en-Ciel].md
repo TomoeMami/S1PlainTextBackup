@@ -1955,3 +1955,16 @@ WonderGOO 原创（加钱）特典：
 
 听说会dlc要来了，追加超惑星战记卡组
 
+
+*****
+
+####  检索者  
+##### 170#       发表于 2026-2-11 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69171249&amp;ptid=2200160" target="_blank">wj101207777 发表于 2026-2-11 01:45</a>
+
+听说会dlc要来了，追加超惑星战记卡组</blockquote>
+预定是2月19号出DLC，目前透露的两弹是少女魔役和超惑星战记，不过不确定是不是同时出
+
+然后前段时间还出了个小更新，加了一张安谢新卡，一些新的异属和一些新的挑战关
+
