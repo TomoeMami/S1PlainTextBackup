@@ -1160,3 +1160,14 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 我一年只看几部动画，之前都没怎么看过羊配音的动画，对网上流传的烤羊之类的发言大为不解，第7集一听惊为 ...</blockquote>
 可以去看一下空轨1st里羊配的公主怎么被皆口裕子吊打<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  88is88  
+##### 1000#       发表于 2026-2-11 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69172654&amp;ptid=2086574" target="_blank">heseran 发表于 2026-2-11 11:41</a>
+
+可以去看一下空轨1st里羊配的公主怎么被皆口裕子吊打</blockquote>
+我空轨1ST20多年前玩的，EVO没玩过，玩轨迹语音我都是看完对话就跳，所以反而没什么感觉<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
