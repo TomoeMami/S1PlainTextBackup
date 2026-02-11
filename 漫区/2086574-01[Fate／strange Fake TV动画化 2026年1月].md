@@ -1131,3 +1131,14 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">躺地上吐泡泡已经是你羊姐最擅长的场景了，这把6分，转天片场10分
 
+
+*****
+
+####  仟音一心  
+##### 997#       发表于 2026-2-11 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69171323&amp;ptid=2086574" target="_blank">Illidan 发表于 2026-2-11 03:47</a>
+
+看下来…角色群像真的是很考验功底，导演和编剧都很考验。</blockquote>
+原作问题其实已经不小了，动画只能说放大了问题。
+

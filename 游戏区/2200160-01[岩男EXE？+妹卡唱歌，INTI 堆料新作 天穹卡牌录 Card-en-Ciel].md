@@ -1968,3 +1968,16 @@ WonderGOO 原创（加钱）特典：
 
 然后前段时间还出了个小更新，加了一张安谢新卡，一些新的异属和一些新的挑战关
 
+
+*****
+
+####  红魔馆的糖  
+##### 171#       发表于 2026-2-11 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69171915&amp;ptid=2200160" target="_blank">检索者 发表于 2026-2-11 09:40</a>
+
+预定是2月19号出DLC，目前透露的两弹是少女魔役和超惑星战记，不过不确定是不是同时出
+
+然后前段时间还出 ...</blockquote>
+2月中出少女魔怡，3月中出超惑星，就等着都出完再打了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
