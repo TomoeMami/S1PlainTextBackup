@@ -1181,3 +1181,11 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 我空轨1ST20多年前玩的，EVO没玩过，玩轨迹语音我都是看完对话就跳，所以反而没什么感觉 ...</blockquote>
 我说的是去年新出的重制版<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">配音换成羊了
 
+
+*****
+
+####  大耳兽  
+##### 1002#       发表于 2026-2-11 14:18
+
+以前确实这书上看到过“赫伍力”的翻译，“海无力”的不会是从这里来的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
