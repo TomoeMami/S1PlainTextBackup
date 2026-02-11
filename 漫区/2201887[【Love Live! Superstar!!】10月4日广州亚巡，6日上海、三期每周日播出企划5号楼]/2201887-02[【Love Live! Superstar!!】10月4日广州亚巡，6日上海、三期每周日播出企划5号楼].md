@@ -141,3 +141,20 @@
 
 —— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  仟音一心  
+##### 1803#       发表于 2026-2-11 22:07
+
+月音瑚奈加入结那的LustQueen乐队成为双人组合
+<img src="https://p.sda1.dev/30/873dc8cd9aa4431a87bb7e769cc86b0f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/d306e88e289fdf6584e2890605926b75/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/d4a676503eb1cebdb053816c03c5f674/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/a9081b5eb30ee5e025f5035bd4052f3b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/85296d6276569e183c26fbab9bca7b07/image.jpg" referrerpolicy="no-referrer">
+新体制首次专场演唱会：全新阵容的 LustQueen 将于 2026年5月9日（周六） 在东京 吉祥寺CLUB SEATA 举办名为 “The story resumes” 的专场演唱会。
+<img src="https://p.sda1.dev/30/1571614e681d5119f85b9fad0045087d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/8f9ebd4047a33d42ceac4c37450fd6dc/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/0d8965c0bfe0ba23ecbb403b0a6fb632/image.jpg" referrerpolicy="no-referrer">
+
