@@ -19,3 +19,11 @@
 
 —— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  茄子自走炮  
+##### 701#       发表于 2026-2-11 19:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没专的狐狸lv3打出去单下暴击才1K 更别提平民的会心数值了
+
