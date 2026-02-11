@@ -318,3 +318,11 @@ nate和grubb已经确认是12号了，可信度较高</blockquote>
 由手机上传
 2026-2-11 08:23 上传
 
+
+*****
+
+####  漫漫来  
+##### 527#       发表于 2026-2-11 08:28
+
+等一个Astro bot，可以补dlc奖杯了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
