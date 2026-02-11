@@ -1150,3 +1150,13 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 
 我一年只看几部动画，之前都没怎么看过羊配音的动画，对网上流传的烤羊之类的发言大为不解，第7集一听惊为天人，请问羊是特型配音CV吗，感觉都和别人不在一个音轨似的
 
+
+*****
+
+####  heseran  
+##### 999#       发表于 2026-2-11 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69172557&amp;ptid=2086574" target="_blank">88is88 发表于 2026-2-11 11:24</a>
+我一年只看几部动画，之前都没怎么看过羊配音的动画，对网上流传的烤羊之类的发言大为不解，第7集一听惊为 ...</blockquote>
+可以去看一下空轨1st里羊配的公主怎么被皆口裕子吊打<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
