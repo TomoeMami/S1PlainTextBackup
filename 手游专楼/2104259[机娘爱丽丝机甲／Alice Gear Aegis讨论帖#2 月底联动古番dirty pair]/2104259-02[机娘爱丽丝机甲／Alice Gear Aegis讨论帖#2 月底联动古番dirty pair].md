@@ -54,3 +54,24 @@
 
 新游戏？哪来的消息？应该不是阿嘎了吧
 
+
+*****
+
+####  不灭的旋律  
+##### 1910#       发表于 2026-2-11 15:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69173388&amp;ptid=2104259" target="_blank">alialex 发表于 2026-2-11 14:28</a>
+
+新游戏？哪来的消息？应该不是阿嘎了吧</blockquote>
+[https://pinmark.colopl.co.jp/entries/03610404](https://pinmark.colopl.co.jp/entries/03610404)
+
+顺便你游真的稳
+
+<img src="https://img.stage1st.com/forum/202602/11/155229exmnxw6nms6s7ou6.png" referrerpolicy="no-referrer">
+
+<strong>HAS1P6VbsAAwXm7.png</strong> (122.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-11 15:52 上传
+
