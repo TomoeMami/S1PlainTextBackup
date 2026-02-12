@@ -24,3 +24,11 @@
 
 —— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  sandro  
+##### 47715#       发表于 2026-2-12 21:31
+
+什么鬼，打第一个本就掉礼装了，抽卡怎么没这么欧
+
