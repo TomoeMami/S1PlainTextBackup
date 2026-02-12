@@ -43,3 +43,14 @@
 这种免费网游看的是热销榜，在线数没用</blockquote>
 PVP在线游戏不看玩家数看什么……
 
+
+*****
+
+####  NeverCU  
+##### 53#       发表于 2026-2-12 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69176931&amp;ptid=2272985" target="_blank">zzy516232108 发表于 2026-2-12 10:10</a>
+
+PVP在线游戏不看玩家数看什么……</blockquote>
+买断制游戏一个在线就是一份钱，免费网游一个在线可能是0.1刀也可能是60刀，差别大了去了
+
