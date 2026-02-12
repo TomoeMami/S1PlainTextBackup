@@ -592,3 +592,98 @@ https://www.bilibili.com/video/B ... ba0d9328bf8962a589a▸
 
 原来是英国人搞的乳化阴谋吗？那个年代英国的文官政府就想到了如何系统化地矮化中华文化，看来英国的文官在这方面颇有水准，比我们的宣传废物强多了
 
+
+*****
+
+####  apefrank  
+##### 45#       发表于 2026-2-12 17:16
+
+用lunar new year非蠢即坏，有什么好争的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dllplayer  
+##### 46#       发表于 2026-2-12 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69178574&amp;ptid=2274615" target="_blank">muyefytte 发表于 2026-2-12 15:14</a>
+最简单的，我们的历法是基于地理天文观测的结果，适用于我们的农业生产情况。
+
+二十四节气放在韩国和越南完 ...</blockquote>
+你猜猜定正朔是啥意思<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+藩属国朝贡并带回宗主国的历书是朝贡体系最重要的一环<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX741J, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  小川彩  
+##### 47#       发表于 2026-2-12 17:20
+
+我没记错的话 这位去年已经在同样的话题上露过屁股了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  鳄鱼亮爪  
+##### 48#       发表于 2026-2-12 17:20
+
+我现在觉得叫什么都行，只要起源不被认为是其他国家就行了
+
+*****
+
+####  muyefytte  
+##### 49#       发表于 2026-2-12 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69179164&amp;ptid=2274615" target="_blank">wlbthh 发表于 2026-2-12 17:00</a>
+
+你就告诉我，春分秋分是不是在太阳南北回归线，夏至冬至是不是赤道南北极线关联就完事儿了，，春秋分3月9 ...</blockquote>
+二十四节气 只看春分秋分，夏至冬至的吗？
+
+节气的命名有没有气象学意义上的含义？
+
+立春、雨水、惊蛰、春分、清明、谷雨、立夏、小满、芒种、夏至、小暑、大暑、立秋、处暑、白露、秋分、寒露、霜降、立冬、小雪、大雪、冬至、小寒、大寒
+
+具体例子，大寒是越南一年中最冷的日子吗？靠近中国的北部是，中部和南部就很不对了
+
+*****
+
+####  我是大鲨鱼1453  
+##### 50#       发表于 2026-2-12 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69178645&amp;ptid=2274615" target="_blank">高分子聚合物 发表于 2026-2-12 15:28</a>
+
+这个吧
+
+—— 来自 vivo V2405A, Android 16, 鹅球 v3.5.99</blockquote>
+卢诗翰这家伙也是滑头。美国超级碗这事跟lunar new year有什么可比性？
+
+超级碗那真的是美国人自己最常用的文化符号之一，是美国人自己的文化母语。英语单词对中国人来说能有同样的地位吗？什么lunar new year或者chinese new year，你上街随便找20个中国人问一问，看能有一个听懂你在说什么的吗？
+
+明明有更鲜明的对比案例，太敏感了不敢说是吧？过年不能说割猪肉什么的？狗肉馆子被网暴什么的？同志这词是怎么眼睁睁变了味的？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  muyefytte  
+##### 51#       发表于 2026-2-12 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69179239&amp;ptid=2274615" target="_blank">dllplayer 发表于 2026-2-12 17:19</a>
+
+你猜猜定正朔是啥意思
+
+藩属国朝贡并带回宗主国的历书是朝贡体系最重要的一环</blockquote>
+所以才觉得诧异，衣冠 历法都是宗主国赐予的，哪来那么大的脸。
+
+*****
+
+####  dllplayer  
+##### 52#       发表于 2026-2-12 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69179164&amp;ptid=2274615" target="_blank">wlbthh 发表于 2026-2-12 17:00</a>
+你就告诉我，春分秋分是不是在太阳南北回归线，夏至冬至是不是赤道南北极线关联就完事儿了，，春秋分3月9 ...</blockquote>
+紫金历=格里高利历+农历
+你去买本洋人的格里高利历看上面有没有二十四节气就行<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX741J, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
