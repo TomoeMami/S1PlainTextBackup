@@ -118,3 +118,36 @@ PVP在线游戏不看玩家数看什么……</blockquote>
 
 和highguard这种免费游戏不是一个盈利模式
 
+
+*****
+
+####  zzy516232108  
+##### 58#       发表于 2026-2-12 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69177184&amp;ptid=2272985" target="_blank">NeverCU 发表于 2026-2-12 10:53</a>
+
+就拿最近的仁王比同样是峰值9W，仁王热销榜最高排名全球第一。
+
+这个峰值9W热销榜最高排名前80。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你和手游孝子一样看流水看直播同接数好了。
+
+打开流水统计软件，搜索highguard然后去B站发视频，标题highguard2026年2月11日流水统计，然后再算算XBOX系数0.8和PS系数1.2，加起来流水又虚空翻了三倍。
+
+然后打开各种直播平台，找个在播《highguard》的主播，然后录个直播去B站发视频说我们highguard真的太火爆了，随便一个主播直播都有百万人同接观看。
+
+我方法论都教给你了，等着你的好消息。
+
+*****
+
+####  NeverCU  
+##### 59#       发表于 2026-2-12 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69177204&amp;ptid=2272985" target="_blank">sunix 发表于 2026-2-12 10:55</a>
+
+仁王是正价单机大作
+
+和highguard这种免费游戏不是一个盈利模式</blockquote>
+差不多得了。鸣潮1w在线登陆都能进畅销前二十。
+
+这游戏最高74名，估计连1000份游戏收入都不入。
+
