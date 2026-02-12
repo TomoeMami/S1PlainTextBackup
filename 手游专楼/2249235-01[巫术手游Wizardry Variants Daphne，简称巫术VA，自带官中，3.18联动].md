@@ -144,3 +144,13 @@
 
 武士转职要打三个地图 最后还有三次目押<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  琉歌  
+##### 710#       发表于 2026-2-12 21:23
+
+结果主角武士还是要从Lv1开始练，还以为会直接把65级的修行成果继承过来<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
