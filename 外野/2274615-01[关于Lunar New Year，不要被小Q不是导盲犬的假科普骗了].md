@@ -755,3 +755,50 @@ https://www.bilibili.com/video/B ... ba0d9328bf8962a589a▸
 跟Chinese new year差不多的翻译是京剧的英文名Beijing Opera，意思是“北京歌剧”，听上去就很傻很土很自 ...</blockquote>
 感谢，这种内容，我可以收录到视频里吗，征求个同意...
 
+
+*****
+
+####  ddddxxx  
+##### 59#       发表于 2026-2-12 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69179298&amp;ptid=2274615" target="_blank">wlbthh 发表于 2026-2-12 17:28</a>
+节气之间间隔是不是太阳历14天吧
+
+—— 来自 Xiaomi 23049RAD8C, Android 13, 鹅球 v3.5.99 ...</blockquote>
+还真不是。格里高利历这种日不和地球自传有关，月不和月球公转有关，年不和地球公转有关的历法，拿什么碰瓷基于天文观测的，绝对精确的农历。
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  约定的明日  
+##### 60#       发表于 2026-2-12 17:59
+
+说白了还是给近代还债，为了主动融入世界丢失了不少自主性
+
+现在国力变强开始反思一些称谓是否合理是很正常的
+
+*****
+
+####  sofing  
+##### 61#       发表于 2026-2-12 17:59
+
+不是很懂，这些外国人怎么叫无所谓吧。老外也管不了我们用什么词翻译洋节。
+
+我还是喜欢春节或者直译spring festival。加个Chinese反而不自信了。
+
+
+*****
+
+####  cybernetics31  
+##### 62#       发表于 2026-2-12 18:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">架不住魔法部搁那和稀泥啊，咱们chunjie就完事了
+
+*****
+
+####  落墨无忧  
+##### 63#       发表于 2026-2-12 18:05
+
+现在最好就是我们把cny和lny还有chunjie的定位全部占了，不管外网用什么，全部指向我们中国的春节，管棒子猴子怎么跳，骂我们霸权占词汇，反正我们都要，全部算我们的春节
+
