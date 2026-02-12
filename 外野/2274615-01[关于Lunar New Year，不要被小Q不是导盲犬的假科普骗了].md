@@ -906,3 +906,61 @@ https://www.bilibili.com/video/B ... ba0d9328bf8962a589a▸
 
 中国春节只有一种叫法：“春节”。
 
+
+*****
+
+####  zmw_831110  
+##### 74#       发表于 2026-2-12 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69180039&amp;ptid=2274615" target="_blank">糟糕喵 发表于 2026-2-12 20:37</a>
+
+中国春节只有一种叫法：“春节”。</blockquote>
+
+<img src="https://img.stage1st.com/forum/202602/12/204045hawdhfkiyebip4mg.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-02-12_204024_668.jpg</strong> (26.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-12 20:40 上传
+
+微软翻译
+
+<img src="https://img.stage1st.com/forum/202602/12/204045ljsr58shs5ssell5.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-02-12_204007_486.jpg</strong> (21.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-12 20:40 上传
+
+谷歌翻译
+
+<img src="https://img.stage1st.com/forum/202602/12/204143u2llrta4zgqytgqq.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-02-12_204114_190.jpg</strong> (28.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-12 20:41 上传
+
+硅基流动
+
+<img src="https://img.stage1st.com/forum/202602/12/204225dhvgwahbvjrghvwa.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-02-12_204210_265.jpg</strong> (28.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-12 20:42 上传
+
+GLM
+
+<img src="https://img.stage1st.com/forum/202602/12/204316zbtz6f2c9fyf9hfn.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-02-12_204249_301.jpg</strong> (29.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-12 20:43 上传
+

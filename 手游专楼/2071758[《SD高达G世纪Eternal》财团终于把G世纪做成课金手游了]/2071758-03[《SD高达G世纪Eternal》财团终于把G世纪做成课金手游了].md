@@ -77,3 +77,11 @@
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">结果运气挺好的三个十连一船一DX，SSR三动双援机师也有了，这下节省军资金了
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">虽然有点躁动要不要红异端池子试试水，想想还是忍着，说不定下个池子就有蛋蛋或者W了呢
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3637#       发表于 2026-2-12 20:41
+
+现在这个环境没有什么要来回拉扯的，敌我都是一招秒，回血就显得很鸡肋。蓝机可能有用点，红机我宁可你把回的那点血加在伤害上
+
