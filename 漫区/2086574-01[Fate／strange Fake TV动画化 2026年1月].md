@@ -1213,3 +1213,19 @@ Fate-strange.Fake.S01E07.1080p.PLAY.WEB-DL.AAC2.0.H.264-VARYG.torrent
 以前确实这书上看到过“赫伍力”的翻译，“海无力”的不会是从这里来的吧。 ...</blockquote>
 海（海格力斯）大力（大力神）演变来的，在那几段知名乳海剧情出来之前就一直用的海大力来代指b叔，后来乳的实在太多了，就笑称他为海无力。
 
+
+*****
+
+####  李正力  
+##### 1005#       发表于 2026-2-12 13:27
+
+<img src="https://img.stage1st.com/forum/202602/12/132655pom7vzizaegkf2of.jpg" referrerpolicy="no-referrer">
+
+<strong>1000037526.jpg</strong> (66.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-12 13:26 上传
+
+第六话niconico评分
+
