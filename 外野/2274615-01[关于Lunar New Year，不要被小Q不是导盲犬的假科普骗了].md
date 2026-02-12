@@ -687,3 +687,27 @@ https://www.bilibili.com/video/B ... ba0d9328bf8962a589a▸
 
 —— 来自 nubia NX741J, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  我是大鲨鱼1453  
+##### 53#       发表于 2026-2-12 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69178853&amp;ptid=2274615" target="_blank">liuguokobe 发表于 2026-2-12 16:06</a>
+
+春节是依照紫金山天文台的观测定的，你棒子猴子自己没有天文台么</blockquote>
+你还真别说，泥潭给我科普过，越南确实自己会发布自己的农历，而且有时候在闰月的置闰上会跟中国发生偏差，最多会差10天。这涉及到各国所选择的观测参考点相互之间的月相区别。
+
+*****
+
+####  wlbthh  
+##### 54#       发表于 2026-2-12 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69179259&amp;ptid=2274615" target="_blank">muyefytte 发表于 2026-2-12 17:21</a>
+二十四节气 只看春分秋分，夏至冬至的吗？
+
+节气的命名有没有气象学意义上的含义？</blockquote>
+节气之间间隔是不是太阳历14天吧
+
+—— 来自 Xiaomi 23049RAD8C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
