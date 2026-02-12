@@ -16,3 +16,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yanglian72  
+##### 5864#       发表于 2026-2-12 20:01
+
+重刷环境还能撑多久呢，现在几乎每局都有一个重刷
+
