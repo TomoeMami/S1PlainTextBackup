@@ -875,3 +875,14 @@ https://www.bilibili.com/video/B ... ba0d9328bf8962a589a▸
 
 这些国际机构在现在右转风向下其存在意义已经被减弱了，为了存续合法性制造些“小问题”来是这样的，不然一些“国际范儿”不就显得更像小丑了
 
+
+*****
+
+####  紧那罗  
+##### 71#       发表于 2026-2-12 20:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69179164&amp;ptid=2274615" target="_blank">wlbthh 发表于 2026-2-12 17:00</a>
+
+你就告诉我，春分秋分是不是在太阳南北回归线，夏至冬至是不是赤道南北极线关联就完事儿了，，春秋分3月9 ...</blockquote>
+农历中既有根据月亮望朔制定的月份，也有根据太阳制定的节气。你都知道农历是阴阳历了，你把节气拿掉，那请问农历和太阳的关系是什么？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">格里高历只有年月日，不代表一套历法里面只可以包含这些东西。
+
