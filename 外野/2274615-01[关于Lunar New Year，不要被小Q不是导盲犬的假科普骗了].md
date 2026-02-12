@@ -1,0 +1,576 @@
+﻿
+*****
+
+####  上帝的爪子  
+##### 1#       楼主       发表于 2026-2-12 15:10
+
+.cronclosethread_getbox{border: 1px dashed #FF9A9A;padding:6px 8px;line-height: 24px;margin: 10px 0;font-size: 12px;overflow:hidden;color: #CA4312;}
+
+此帖将于2026-03-14 15:09自动关闭
+
+ 本帖最后由 上帝的爪子 于 2026-2-12 15:15 编辑 
+
+[https://www.bilibili.com/video/B ... ba0d9328bf8962a589a](https://www.bilibili.com/video/BV1hVFxzzEYD/?spm_id_from=333.337.search-card.all.click&amp;vd_source=2dcf67d1c01eeba0d9328bf8962a589a)▸
+
+这两天看到有人发这个，我就直接说吧，这么个百万大V的水平烂的一B，如果这能叫考据的话，一个中专生都比他强。。
+
+Lunar New Year一直都是欧洲人的叫法，这里不单单是叫中国春节，还有东南亚春节，甚至欧洲新年，犹太新年也会用这个叫法。
+
+.
+
+Chinese New Year是中国人带到北美的，自19世纪以来，将近200多年的历史，都是叫中国春节！！无论什么时期都是一样，美国开始推行Lunar New Year的历史只有50多年，也就是从90年代才开始！
+
+这里的原因有两个！
+
+一个是美国在推行多元化，包容教育！
+
+另一个，就是出于冷战时期的意识形态，美国正在把春节美国化！
+
+这里有一个68年，英国在香港搞的去中国化，里面就强调了把中国春节改成Lunar New Year，殖民者最喜欢的套路就是这样。
+
+关于这个事，我查过相当多资料，这一块属于冷战史的内容，[@小Q不是导盲犬] 炮制的那一套“”一个文化越强，越会被泛化、模仿、本土化，被“偷走”；相当扯淡，根本就是不懂装懂。
+
+<img src="https://img.stage1st.com/forum/202602/12/151018c1rcp7xt1hzrf6xr.jpg" referrerpolicy="no-referrer">
+
+<strong>Lunar New Year使用的源头找到了_1_爵士喵 Jazz Meow_来自小红书网页版.jpg</strong> (171.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-12 15:10 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 11战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zmw_831110| + 2|好评加鹅|
+| 罗莎|-1||
+| 275042314| + 2||
+| carnelius| + 1||
+| loli炮| + 1||
+| 虚江啸卧| + 1||
+| 你说啥就是啥| + 1|还有Q孝子？|
+| 笑为谁而生|-1||
+| vigilgt|-2|欢乐多|
+| 空き地卯木| + 2|发贴机在哪|
+| WntFlm|-2|买号发帖机|
+
+查看全部评分
+
+*****
+
+####  muyefytte  
+##### 2#       发表于 2026-2-12 15:14
+
+ 本帖最后由 muyefytte 于 2026-2-12 16:23 编辑 
+
+最简单的，我们的历法是基于地理天文观测的结果，适用于我们的农业生产情况。
+
+二十四节气放在韩国和越南完全没有指导意义，误差太大了，他们两家应该按照自己的情况推算才对。
+
+我们庆祝自己的节日有什么问题？
+
+2个现代独立国家，拿邻国的历法来用，还不能直接套用 魔改也要用的情况下 干预宗主国管这玩意叫什么，脸也太大了。
+
+比如芒种：湄公河三角洲是夏稻的生长期，和中国的芒种忙种根本对不上
+
+*****
+
+####  shoel  
+##### 3#       发表于 2026-2-12 15:14
+
+改成Chunjie之间看都不看<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  长生久视  
+##### 4#       发表于 2026-2-12 15:15
+
+扯这些就是给lunar啥的画面，无视一切lunar的歪理邪说就行了
+
+*****
+
+####  loli炮  
+##### 5#       发表于 2026-2-12 15:20
+
+知乎有个懂子今年最烂超级碗的回复，说的很明白了 。外交部门习惯性和稀泥，讲和和气气 迁就国际惊诧 让这种不是问题的问题变成了问题
+
+*****
+
+####  何然  
+##### 6#       发表于 2026-2-12 15:20
+
+还是那句话，就叫chunjie
+
+你看ninja翻译了吗
+
+什么lunar spring都是洋人体系
+
+*****
+
+####  zqpm1235  
+##### 7#       发表于 2026-2-12 15:23
+
+本质上是争夺lunar new year的话语权，让lunar new year也变成chinese new year
+
+*****
+
+####  圣雷科诺  
+##### 8#       发表于 2026-2-12 15:23
+
+一般来说外交部门都是鸽派，在中国，就意味着外交部里大批殖人
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  naclken.  
+##### 9#       发表于 2026-2-12 15:28
+
+搞不懂，chinese new year到底是确立中国春节独立地位，还是放弃争夺lunar new year的创造权？
+
+*****
+
+####  高分子聚合物  
+##### 10#       发表于 2026-2-12 15:28
+
+这个吧<img src="https://p.sda1.dev/30/b08cafe0a96372eada9882a214fa6796/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  上帝的爪子  
+##### 11#         楼主| 发表于 2026-2-12 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69178644&amp;ptid=2274615" target="_blank">naclken. 发表于 2026-2-12 15:28</a>
+
+搞不懂，chinese new year到底是确立中国春节独立地位，还是放弃争夺lunar new year的创造权？ ...</blockquote>
+根本没有什么争夺lunar new year的创造权这个事~！
+
+甚至很多越南人都不知道他们过的春节叫lunar new year。去跟风这种词，就是中了套。
+
+*****
+
+####  小野賢章  
+##### 12#       发表于 2026-2-12 15:31
+
+Lunar 本身也是错误说法，回历新年才是 Lunar New Year<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不见不散  
+##### 13#       发表于 2026-2-12 15:33
+
+都是狗屁翻译，唯一正确翻译是chunjie
+
+*****
+
+####  非洲龙骑  
+##### 14#       发表于 2026-2-12 15:34
+
+本国自己的正月初一的名字能改回来先吗？别英语更正成CNY了，汉语还“春节”
+
+*****
+
+####  czhhws  
+##### 15#       发表于 2026-2-12 15:35
+
+ 本帖最后由 czhhws 于 2026-2-12 15:37 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">每年争这个也是累了
+能不能确立一种情况
+Chunjie(音译)=spring festival(直译)=Chinese new year(表意)=Lunar new year(深意)然后确立这几个词都是中国文化诞生就行啊。推崇人们使用音译和表意，对深意不予推崇并解释就是因为大众不了解什么叫lunar new year必须配上Chinese new year才能知道是什么内容。
+
+我的意思是除了推崇chunjie这个翻译外，连lunar new year都不配让他们使用就行。
+
+—— 来自 realme RMX3700, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wlbthh| + 1||
+
+查看全部评分
+
+*****
+
+####  JOHNCHCHAN  
+##### 16#       发表于 2026-2-12 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69178574&amp;ptid=2274615" target="_blank">muyefytte 发表于 2026-2-12 15:14</a>
+最简单的，我们的历法是基于地理天文观测的结果，适用于我们的农业生产情况。
+
+二十四节气放在韩国和越南完 ...</blockquote>
+？？？？
+先不说韩国（朝鲜半岛）和越南这两个邻锅能有多大误差。
+冬至和夏至都是有明确的天文学含义，而24节气又将一个太阳年基本划分为24等份，都在一个地球上怎样按自己情况推算？
+
+*****
+
+####  里奥哟西  
+##### 17#       发表于 2026-2-12 15:53
+
+外卖部还需要洗？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| vigilgt|-2|思路广|
+
+查看全部评分
+
+*****
+
+####  jannine  
+##### 18#       发表于 2026-2-12 15:56
+
+ 本帖最后由 jannine 于 2026-2-12 16:28 编辑 
+
+最开始这事其实是海外华人在争， 上reddit就知道，新马泰喊了好多年甚至写到法定的节假日条例的CNY说法因为照顾也放春节假期的韩国人和越南人，在民间宣传时候变成了LNY，当地华人回过味道觉得不对，觉得LNY有去中华化和过于追求政治正确的意味，开始要求恢复CNY的官方说法来强调中华起源说，这事本来就不是个翻译问题，本来就带有政治意味的，后来因为留学生、跨境电商和游戏海外发行做CNY的春节活动被韩越投诉的风波传回国内来引起讨论。
+
+至于为什么不用Spring festival和Chunjie，人家海外华人老祖宗百多年前出去的时候，不兴Spring Festival的说法啊，但是他们也要过节啊，CNY在海外华人社区喊了快上百年了，新加坡和马来西亚在假日相关法律条例对春节的官方翻译就是CNY。
+
+那个小Q在国内做专题问墙内要不要反对LNY，不去问下人家正儿八经出力的海外华人和出海企业的意见么，一个企业海外社媒账号用CNY做宣传，转头外交部用个LNY，韩国人一看乐了：谢谢老铁给我送的投诉材料，CNY就是对其他过春节国家的政治不正确，你看你们外交部也要带LNY。
+
+他一直搅浑水好像大家在争几个单词的翻译问题，吃这话题流量吃了好几年了，评论区被说到破防还想要素人跟他做视频对线。 
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 275042314| + 2||
+| 你说啥就是啥| + 1||
+| wlbthh| + 1||
+
+查看全部评分
+
+*****
+
+####  灰鸟  
+##### 19#       发表于 2026-2-12 15:56
+
+我的看法还是输出鄙视链，硬要什么都搞多元文化平等只会被人偷家
+
+最高等就是“春节”，“Chinese new year”“spring festival”非母语天生低一等，“Lunar new year”就是待在最底层的一条
+
+*****
+
+####  muyefytte  
+##### 20#       发表于 2026-2-12 15:58
+
+ 本帖最后由 muyefytte 于 2026-2-12 16:02 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69178762&amp;ptid=2274615" target="_blank">JOHNCHCHAN 发表于 2026-2-12 15:52</a>
+
+？？？？
+
+先不说韩国（朝鲜半岛）和越南这两个邻锅能有多大误差。
+
+冬至和夏至都是有明确的天文学含义，而 ...</blockquote>
+朝鲜半岛冷的多，而越南属于热带季风气候，南部地区稻作可以一年三熟。
+
+在农业生产中照搬我们的二十四节气等于找死，必须针对本地进行微调。
+
+天文学上自然是固定的，但是二十四节气是中国黄河流域农业文明的产物，它的物候描述、农事指令、气候预期，都是针对温带季风气候与中原作物周期定制的。
+
+*****
+
+####  大暴死  
+##### 21#       发表于 2026-2-12 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69178556&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-12 15:10</a>
+https://www.bilibili.com/video/B ... ba0d9328bf8962a589a▸
+
+这两天看到有人发这个，我就直接说吧，这么 ...</blockquote>
+90年代，50多年，原来我已经年过半百了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  上帝的爪子  
+##### 22#         楼主| 发表于 2026-2-12 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69178803&amp;ptid=2274615" target="_blank">大暴死 发表于 2026-2-12 15:58</a>
+
+90年代，50多年，原来我已经年过半百了
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, 鹅球 v3.5.99 ...</blockquote>
+哦，我有印象的是美国从79-81年这时候开始的嘛，这能不能算到50多年这里头噻？
+
+*****
+
+####  wlbthh  
+##### 23#       发表于 2026-2-12 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69178574&amp;ptid=2274615" target="_blank">muyefytte 发表于 2026-2-12 15:14</a>
+最简单的，我们的历法是基于地理天文观测的结果，适用于我们的农业生产情况。
+
+二十四节气放在韩国和越南完 ...</blockquote>
+二十四节气基本跟公历一致了，和农历就不要挂钩了。
+
+—— 来自 Xiaomi 23049RAD8C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zycilcy|-1|唉，把二十四节气开除出农历|
+
+查看全部评分
+
+*****
+
+####  ayu-00  
+##### 24#       发表于 2026-2-12 16:05
+
+不就是洋人觉得china烫嘴么，就得时时提，刻刻提，让白狗对China脱敏。
+
+*****
+
+####  liuguokobe  
+##### 25#       发表于 2026-2-12 16:06
+
+春节是依照紫金山天文台的观测定的，你棒子猴子自己没有天文台么<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Naaru  
+##### 26#       发表于 2026-2-12 16:09
+
+还在绕着欧美媒体设计的“议题”转烦不烦啊，只要现在趋势不变，外国小朋友更多地玩老中游戏、看老中仙侠剧，管你怎么叫，小朋友只会记得世界上过两种年，一种西方的，一种是老中的。
+
+*****
+
+####  cmg1988  
+##### 27#       发表于 2026-2-12 16:10
+
+最大的问题是农历新年根本不是luna new year，农历是阴阳合历，所以把农历叫阴历也是错误的，纯月历是阿拉伯的历法
+
+*****
+
+####  wangandh  
+##### 28#       发表于 2026-2-12 16:10
+
+ 本帖最后由 wangandh 于 2026-2-12 16:18 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69178574&amp;ptid=2274615" target="_blank">muyefytte 发表于 2026-2-12 15:14</a>
+
+最简单的，我们的历法是基于地理天文观测的结果，适用于我们的农业生产情况。
+
+二十四节气放在韩国和越南完 ...</blockquote>
+正月初一和二十四节气没关系。
+
+农历是阴阳合历，节气那一块是属于阳历的，初一十五的月历是属于阴历的
+
+其次，同样是一年12个月，哪个月作为起始的“正月”、“岁首”又和政治有关，为了显示“自己是正朔”。夏商周的“正月”都不是同一个月，不是差几天，是实实在在的差几个月
+
+好吧，编辑更正一下，月历和节气还是有点关系的，农历是刻意调整过，12个月，每个月都恰好包括两个节气（一个中气、一个节气），逢闰年，多出来的闰月不带中气
+
+*****
+
+####  碧空之歌P  
+##### 29#       发表于 2026-2-12 16:11
+
+小Q是只慕洋犬嘛，正常
+
+*****
+
+####  蓝色火焰  
+##### 30#       发表于 2026-2-12 16:12
+
+说起来看到一个新闻说联合国出了农历丙午年的纪念邮票，英文写的是Chinese Lunar Calendar，然后韩越又在说联合国这个是不尊重亚洲（中国以外）圈文化的行为<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">。天天就是那么一小撮人在蹦跶。
+
+*****
+
+####  QAQAQA11  
+##### 31#       发表于 2026-2-12 16:12
+
+不说论点正确与否，这主楼写的什么玩意，一会说lunar new year是美国90年代去中国化创造的，有50年历史？下面举例的又是六十年代大英在香港推行lunar new year<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  muyefytte  
+##### 32#       发表于 2026-2-12 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69178834&amp;ptid=2274615" target="_blank">wlbthh 发表于 2026-2-12 16:03</a>
+
+二十四节气基本跟公历一致了，和农历就不要挂钩了。
+
+—— 来自 Xiaomi 23049RAD8C, Android 13, 鹅球 v3 ...</blockquote>
+这个问题也可以类比成，如果澳村被拿下了，那么传统节日要怎么庆祝的问题。
+
+或者星际殖民时代，火星上的居民是过地球年还是或新年？
+
+*****
+
+####  JOHNCHCHAN  
+##### 33#       发表于 2026-2-12 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69178802&amp;ptid=2274615" target="_blank">muyefytte 发表于 2026-2-12 15:58</a>
+
+朝鲜半岛冷的多，而越南属于热带季风气候，南部地区稻作可以一年三熟。
+
+在农业生产中照搬我们的二十四节 ...</blockquote>
+照这么说国内南北差异也极大，在国内也没有普适的指导作用。历法有工具性，但也不能忽视历法的人文意义。
+
+*****
+
+####  明斯克  
+##### 34#       发表于 2026-2-12 16:25
+
+这有什么好争的    不用Chinese就是因为黄皮白芯的那帮子人不愿意提起Chinese      扯什么多元包容    <img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wangandh  
+##### 35#       发表于 2026-2-12 16:28
+
+ 本帖最后由 wangandh 于 2026-2-12 17:02 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69178834&amp;ptid=2274615" target="_blank">wlbthh 发表于 2026-2-12 16:03</a>
+
+二十四节气基本跟公历一致了，和农历就不要挂钩了。
+
+—— 来自 Xiaomi 23049RAD8C, Android 13, 鹅球 v3 ...</blockquote>
+因为节气就是跟阳历（太阳回归年）挂钩的
+
+农历本身的阴阳合历，
+
+初一初二初三…………看的是月相变化确定下来的，
+
+建朔确定什么时候开始算是元月，靠的是北斗七星的斗柄指向来定义“什么时候是1月”（或者看满月时月亮经过的星宿），然后跟在1月后面顺理成章的2月、3月…………
+
+至于属于太阳历系统的节气怎么加入到这套太阴历系统里，靠的就是“节气”本身，除了春分、秋分、夏至、冬至这四个显而易见的节气，其他节气多少有些是凑出来的，为了凑够24这个数目，为什么要凑？为了让“一个月恰好包含两个节气（具体说是一个中气，一个节气）”
+
+只不过“十九年七闰法”导致了这套系统运行起来，并不能总是1个月2节气，1年24节气。经常会出现因为多一个闰月，一年384天，一年25个节气（首尾各有一个立春的）双春年；或者反过来，平年的时候1年354天，有时候农历年首尾的正月和腊月都蹭不到立春，变成了一年23节气的无春年
+
+*****
+
+####  StrangerJ  
+##### 36#       发表于 2026-2-12 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69178818&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-12 16:00</a>
+哦，我有印象的是美国从79-81年这时候开始的嘛，这能不能算到50多年这里头噻？ ...</blockquote>
+你自己读读原文咯，
+“只有50多年，也就是从90年代才开始”
+
+*****
+
+####  帕拉米蒂斯  
+##### 37#       发表于 2026-2-12 16:39
+
+对的，就叫春节，沟槽的越猴南棒都去死
+
+*****
+
+####  LilithMardin  
+##### 38#       发表于 2026-2-12 16:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">冠名权无所谓的，别人爱叫什么叫什么，你说你的他说他的，圣诞节你也可以叫牢耶登机日，不行把它和happy birthday混一起，就看老外红不红就完了，不都是生日吗。
+要我说啊，就该搞支队伍专门魔改国外节日，喧宾夺主，你叫得我叫不得？你说你是纯血耶稣？哥们儿这洪秀全辈分不比你大？算不得历史载册？你说有几千年历史老资历，那我这五千年要不要对对账？
+不要在别人画的圈子里打架，这种没有明确客观答案的事儿就是汴京，谁声音大谁赢。就要扩大化，你说lunar是对的，那我说birthday也是对的。
+
+*****
+
+####  homesickness  
+##### 39#       发表于 2026-2-12 16:57
+
+这下90后五旬老人了
+
+*****
+
+####  zmw_831110  
+##### 40#       发表于 2026-2-12 16:58
+
+反正我看**看到这期"最受外籍人士欢迎的居住地，中国排名飙升至世界第六！"就取关这个家伙了
+
+[https://www.youtube.com/watch?v=WgGlz9G3KiM](https://www.youtube.com/watch?v=WgGlz9G3KiM)
+
+<img src="https://img.stage1st.com/forum/202602/12/164233tpkjpa7zpkawz7k6.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-02-12_163853_932.jpg</strong> (53.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-12 16:42 上传
+
+<img src="https://img.stage1st.com/forum/202602/12/164233zrvmcg9ohg9mxsrh.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-02-12_163922_223.jpg</strong> (118.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-12 16:42 上传
+
+<img src="https://img.stage1st.com/forum/202602/12/164232m5km6q7bflq5z6xf.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-02-12_163948_720.jpg</strong> (119.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-12 16:42 上传
+
+[https://www.internations.org/expat-insider](https://www.internations.org/expat-insider) <blockquote>《外籍人士指南 2025》——个人财务的重要性
+
+欢迎回到《外籍人士内幕》第十二期！
+
+今年，超过1万名来自172个国家的侨民参与了一项规模空前的调查，分享了他们在海外的生活体验。调查结果汇总成一份包含46个目的地的排名，涵盖了侨民生活的方方面面，从安顿下来到职业发展规划，无所不包。
+
+我们邀请您探索结果并发现全球趋势，例如个人财务状况对海外侨民生活满意度的重要性日益增加：在我们的个人财务指数中排名靠前的国家，也比以往任何时候都更频繁地出现在我们的总体排名中。
+
+排名与报告
+
+想知道 2025 年最适合（和最不适合）外籍人士居住的国家有哪些吗？在下面的文章中，您可以查看总体排名结果，了解最大的赢家和输家，查看我们五个专题指数的结果，并了解更多关于调查的人口统计数据和方法。</blockquote>
+平均每个国家58.14人的样本
+
+他吃爱国饭我是知道的,
+
+是不是真的爱国我也不知道
+
+但搜集资料的能力的确存疑
+
+
+*****
+
+####  wlbthh  
+##### 41#       发表于 2026-2-12 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69178894&amp;ptid=2274615" target="_blank">muyefytte 发表于 2026-2-12 16:12</a>
+这个问题也可以类比成，如果澳村被拿下了，那么传统节日要怎么庆祝的问题。</blockquote>
+你就告诉我，春分秋分是不是在太阳南北回归线，夏至冬至是不是赤道南北极线关联就完事儿了，，春秋分3月9月21-23号，到底与农历有多大关联？
+说24节气和公历关联有什么问题，这玩意初高中地理上课别睡觉不至于范常识性错误。
+农历改成阴阳历就好好传承，日常使用历法就完事儿了，反而是一堆人啥也不懂瞎扯这也太乐了
+
+—— 来自 Xiaomi 23049RAD8C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Tissuesea  
+##### 42#       发表于 2026-2-12 17:03
+
+加沙死太多人后就不关注这位了，不再想看这类up主了。
+
+—— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
