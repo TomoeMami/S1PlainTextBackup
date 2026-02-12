@@ -151,3 +151,60 @@ PVP在线游戏不看玩家数看什么……</blockquote>
 
 这游戏最高74名，估计连1000份游戏收入都不入。
 
+
+*****
+
+####  NeverCU  
+##### 60#       发表于 2026-2-12 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69177246&amp;ptid=2272985" target="_blank">zzy516232108 发表于 2026-2-12 11:01</a>
+
+那你和手游孝子一样看流水看直播同接数好了。
+
+打开流水统计软件，搜索highguard然后去B站发视频，标题hi ...</blockquote>
+那不是你正在干的吗？
+
+搞笑
+
+
+*****
+
+####  sunix  
+##### 61#       发表于 2026-2-12 11:10
+
+ 本帖最后由 sunix 于 2026-2-12 11:11 编辑 
+<blockquote>NeverCU 发表于 2026-2-12 11:06
+差不多得了。鸣潮1w在线登陆都能进畅销前二十。
+
+这游戏最高74名，估计连1000份全价游戏收入都不入。 ...</blockquote>
+
+手游孝这么爱手游嘛
+
+我寻思这高卫也不是手游啊
+
+你要不要去看看steam在线榜
+
+看是不是免费竞技类游戏在线人数越多的越挣钱
+
+<img src="https://img.stage1st.com/forum/202602/12/111023bfx442dcf4oplos4.jpg" referrerpolicy="no-referrer">
+
+<strong>1000038709.jpg</strong> (337.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-12 11:10 上传
+
+*****
+
+####  NeverCU  
+##### 62#       发表于 2026-2-12 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69177310&amp;ptid=2272985" target="_blank">sunix 发表于 2026-2-12 11:10</a>
+
+手游孝这么爱手游嘛
+
+我寻思这高卫也不是手游啊</blockquote>
+鸣潮不是steam上的？畅销榜不就是steam赚多少钱
+
+怎么蒸批人均智商不到100
+
