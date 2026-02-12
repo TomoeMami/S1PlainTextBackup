@@ -326,3 +326,20 @@ nate和grubb已经确认是12号了，可信度较高</blockquote>
 
 等一个Astro bot，可以补dlc奖杯了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑猫软  
+##### 528#       发表于 2026-2-12 09:13
+
+老司机也要出电影
+
+<img src="https://img.stage1st.com/forum/202602/12/091325lrjeo1l8lo55trte.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1770858800403_554.jpg</strong> (271.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-12 09:13 上传
+
