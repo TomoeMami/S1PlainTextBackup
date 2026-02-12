@@ -711,3 +711,25 @@ https://www.bilibili.com/video/B ... ba0d9328bf8962a589a▸
 
 —— 来自 Xiaomi 23049RAD8C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  薄皮破船  
+##### 55#       发表于 2026-2-12 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69178762&amp;ptid=2274615" target="_blank">JOHNCHCHAN 发表于 2026-2-12 15:52</a>
+
+？？？？
+
+先不说韩国（朝鲜半岛）和越南这两个邻锅能有多大误差。
+
+冬至和夏至都是有明确的天文学含义，而 ...</blockquote>
+纬度差异，导致二十四节气在热带没有农业指导意义
+
+*****
+
+####  adw667  
+##### 56#       发表于 2026-2-12 17:43
+
+[https://bbs.nga.cn/read.php?tid=46192417](https://bbs.nga.cn/read.php?tid=46192417)
+
