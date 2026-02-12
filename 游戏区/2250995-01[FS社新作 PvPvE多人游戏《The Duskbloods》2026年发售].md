@@ -430,3 +430,17 @@ PVPVE：？
 <img src="https://p.sda1.dev/30/509c57fa3551871bdef068cf5bb6ad0c/1000160698.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/30/7116872562c251046221c05f0bb7496b/1000160699.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  咸鱼无双  
+##### 45#       发表于 2026-2-12 22:58
+
+ 本帖最后由 咸鱼无双 于 2026-2-12 23:01 编辑 
+
+鉴于黑夜君临风评不错
+
+这作是不是也可以期待一手
+
+不过ns2独占，后期真不上pc了？
+
