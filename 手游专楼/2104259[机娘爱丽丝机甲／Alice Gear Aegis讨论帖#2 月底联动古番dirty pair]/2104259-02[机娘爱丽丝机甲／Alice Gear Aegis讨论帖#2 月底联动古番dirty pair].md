@@ -114,3 +114,11 @@ https://pinmark.colopl.co.jp/entries/03610404</blockquote>
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  madcow  
+##### 1915#       发表于 2026-2-12 19:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">所以bu券有说平时怎么拿吗
+
