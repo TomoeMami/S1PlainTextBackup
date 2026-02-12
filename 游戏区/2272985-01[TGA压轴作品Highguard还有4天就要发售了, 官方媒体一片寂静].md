@@ -641,3 +641,17 @@ Wildlight官方推特账号发布声明证实了裁员消息：“今天，我�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 并不是完全没人花钱，只是 如果在小地方10个员工-行 ， 在加州百人团队-没戏
 
+
+*****
+
+####  Yukino-Yukino  
+##### 94#       发表于 2026-2-12 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69177459&amp;ptid=2272985" target="_blank">sunix 发表于 2026-2-12 11:35</a>
+感觉遇上一个神经病
+
+整楼都在说高卫大爆死的事儿</blockquote>
+这人不就之前一个steam楼里舌战群儒的蛇精病<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">经典言论steam打压单机推广网游。看一口一个蒸批的也知道是什么人了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
