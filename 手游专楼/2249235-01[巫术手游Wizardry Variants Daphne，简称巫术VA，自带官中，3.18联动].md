@@ -63,3 +63,16 @@
 
 这个月底有联动，现在入坑刚刚好吧
 
+
+*****
+
+####  requiem116  
+##### 706#       发表于 2026-2-12 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69179781&amp;ptid=2249235" target="_blank">茄子自走炮 发表于 2026-2-12 19:41</a>
+
+不知道石头号行情，反正绿石2k=11连，1井是100抽
+
+这个月底有联动，现在入坑刚刚好吧 ...</blockquote>
+咸鱼7w1的钻卖38，能抽3井？
+
