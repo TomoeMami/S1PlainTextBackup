@@ -562,3 +562,17 @@ steam国区锁了 不过这游戏本身也烂了，无所谓啦
 
 Geoff推特下面都是嘲讽他的，要不是他这么卖力的吹，这游戏还不会死这么快
 
+
+*****
+
+####  Lisylfn  
+##### 87#       发表于 2026-2-12 13:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69177628&amp;ptid=2272985" target="_blank">NeverCU 发表于 2026-2-12 12:05</a>
+看来要做蒸批也不容易，还得够蠢才行。
+
+搞半天两个看在线都不会的搁这吹在线。 ...</blockquote>
+看了玩感觉就你在那虚空锁敌有人吹10w，我只能扣任豚脑子不好的帽子了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
