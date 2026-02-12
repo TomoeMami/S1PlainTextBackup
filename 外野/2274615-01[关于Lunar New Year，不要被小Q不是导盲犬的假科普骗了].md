@@ -733,3 +733,25 @@ https://www.bilibili.com/video/B ... ba0d9328bf8962a589a▸
 
 [https://bbs.nga.cn/read.php?tid=46192417](https://bbs.nga.cn/read.php?tid=46192417)
 
+
+*****
+
+####  杀仁小登  
+##### 57#       发表于 2026-2-12 17:50
+
+跟Chinese new year差不多的翻译是京剧的英文名Beijing Opera，意思是“北京歌剧”，听上去就很傻很土很自卑，对无知的外国人来说，好像是北京人对意大利歌剧的拙劣模仿。
+
+日本的能剧英文名就直接音译为Noh，歌舞伎就叫Kabuki，英语国家的人听不懂就觉得牛逼厉害很独特。
+
+反过来讲，如果那些洋节日换个类似Chinese new year这样直白的中文翻译，也会失去魅力。比如万圣节就直接叫“美国鬼节”，对我们来说更容易理解，而“美国鬼节”这个词是不是准确、欧洲人听了会不会不舒服，那就由他们吵架就好了，跟我们没啥关系。
+
+*****
+
+####  上帝的爪子  
+##### 58#         楼主| 发表于 2026-2-12 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69179404&amp;ptid=2274615" target="_blank">杀仁小登 发表于 2026-2-12 17:50</a>
+
+跟Chinese new year差不多的翻译是京剧的英文名Beijing Opera，意思是“北京歌剧”，听上去就很傻很土很自 ...</blockquote>
+感谢，这种内容，我可以收录到视频里吗，征求个同意...
+
