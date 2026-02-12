@@ -181,3 +181,19 @@
 
 开战略机遇了，打虫子去咯，vox掰掰。
 
+
+*****
+
+####  狭义文具爱好者  
+##### 7333#       发表于 2026-2-12 23:18
+
+<img src="https://img.stage1st.com/forum/202602/12/231758mig4wowzawmips2s.png" referrerpolicy="no-referrer">
+
+<strong>0B785E3D214E2E0978C79FFCB8EA7423.png</strong> (15.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-12 23:17 上传
+
+超级地球/箭头表示伤亡过快有先例吗？
+
