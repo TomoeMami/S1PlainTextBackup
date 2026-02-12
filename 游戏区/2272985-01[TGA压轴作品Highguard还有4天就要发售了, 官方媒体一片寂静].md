@@ -293,3 +293,79 @@ PVP在线游戏不看玩家数看什么……</blockquote>
 </blockquote>
 战争雷霆峰值10万，又把这游戏畅销榜爆了，这次又编个什么理由开除免费游戏籍
 
+
+*****
+
+####  sunix  
+##### 67#       发表于 2026-2-12 11:29
+
+<blockquote>NeverCU 发表于 2026-2-12 11:25
+战争雷霆峰值10万，又把这游戏畅销榜爆了，这次又编个什么理由开除免费游戏籍 ...</blockquote>
+
+全球在线榜
+
+<img src="https://img.stage1st.com/forum/202602/12/112905fyptygmzkpgpmpdx.jpg" referrerpolicy="no-referrer">
+
+<strong>1000038718.jpg</strong> (112.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-12 11:29 上传
+
+全球畅销榜
+
+<img src="https://img.stage1st.com/forum/202602/12/112917quly4tmw4qqshlez.jpg" referrerpolicy="no-referrer">
+
+<strong>1000038720.jpg</strong> (98.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-12 11:29 上传
+
+
+*****
+
+####  NeverCU  
+##### 68#       发表于 2026-2-12 11:30
+
+1个10万块收入都没的游戏，一帮在这谈人多赚钱，怎么说得出口的。
+
+*****
+
+####  NeverCU  
+##### 69#       发表于 2026-2-12 11:31
+
+<blockquote>sunix 发表于 2026-2-12 11:29
+全球在线榜
+
+</blockquote>
+高卫在哪发财呢
+
+*****
+
+####  zzy516232108  
+##### 70#       发表于 2026-2-12 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69177429&amp;ptid=2272985" target="_blank">NeverCU 发表于 2026-2-12 11:30</a>
+1个10万块收入都没的游戏，一帮在这谈人多赚钱，怎么说得出口的。</blockquote>
+哥们你就像那个超早期的ai对话模型，上下文数量有限。
+这楼今天最早的发言是说highguard裁员传闻
+然后你说看在线没用，要看热销榜
+下面又开始说人均付费什么的
+都没人在这里谈钱，你在这里谈钱
+现在说我们谈赚钱
+真不明白。
+
+*****
+
+####  sunix  
+##### 71#       发表于 2026-2-12 11:35
+
+<blockquote>NeverCU 发表于 2026-2-12 11:31
+高卫在哪发财呢</blockquote>
+感觉遇上一个神经病
+
+整楼都在说高卫大爆死的事儿
+
+算了，这脑回路，惹不起，撤了
+
