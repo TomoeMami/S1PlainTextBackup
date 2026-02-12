@@ -65,3 +65,15 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好菜的限定.jpg，就算米很多抽个罗哥就行了
 
+
+*****
+
+####  arthes  
+##### 3636#       发表于 2026-2-12 16:27
+
+金天动画挺帅的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">，但是再有爱感觉也很难拿出去用
+
+本来周年前有点闲钻在观望要不要抽DX的，看到红异端这个池子果断去抽DX了
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">结果运气挺好的三个十连一船一DX，SSR三动双援机师也有了，这下节省军资金了
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">虽然有点躁动要不要红异端池子试试水，想想还是忍着，说不定下个池子就有蛋蛋或者W了呢
+
