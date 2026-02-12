@@ -32,3 +32,14 @@
 
 这种免费网游看的是热销榜，在线数没用
 
+
+*****
+
+####  zzy516232108  
+##### 52#       发表于 2026-2-12 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69176885&amp;ptid=2272985" target="_blank">NeverCU 发表于 2026-2-12 10:01</a>
+
+这种免费网游看的是热销榜，在线数没用</blockquote>
+PVP在线游戏不看玩家数看什么……
+
