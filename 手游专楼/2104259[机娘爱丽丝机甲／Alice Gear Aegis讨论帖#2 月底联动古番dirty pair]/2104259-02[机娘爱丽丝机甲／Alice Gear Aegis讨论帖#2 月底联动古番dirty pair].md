@@ -130,3 +130,11 @@ https://pinmark.colopl.co.jp/entries/03610404</blockquote>
 
 看了眼wiki的aina共鸣属性和我的完全不一样啊 纯随机？
 
+
+*****
+
+####  江戸前ルナ  
+##### 1917#         楼主| 发表于 2026-2-12 21:04
+
+有AEGIS我懂，有办公室的大姐姐们我懂，还有马鞭草是何意味啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

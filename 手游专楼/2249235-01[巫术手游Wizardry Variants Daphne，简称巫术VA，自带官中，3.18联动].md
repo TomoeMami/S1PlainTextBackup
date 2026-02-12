@@ -128,3 +128,19 @@
 
 另外联动赶紧给伊亚玛斯武士转职拯救一下吧，我真的快忍不住把他喂给土法了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  茄子自走炮  
+##### 709#       发表于 2026-2-12 21:10
+
+<img src="https://img.stage1st.com/forum/202602/12/210906v1jbgnnohhnr1kkk.png" referrerpolicy="no-referrer">
+
+<strong>samurai.png</strong> (24.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-12 21:09 上传
+
+武士转职要打三个地图 最后还有三次目押<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
