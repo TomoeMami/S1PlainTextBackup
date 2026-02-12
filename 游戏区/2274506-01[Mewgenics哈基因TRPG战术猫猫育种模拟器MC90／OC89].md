@@ -495,3 +495,13 @@ boss无限招，我就看它在那无限53就打死了。
 我老婆看我打到那个会换位的猫妈妈的时候表示接受不了了。感觉这游戏在残忍表现上远超以撒。以撒虽然是虐人 ...</blockquote>
 后面还有真爱猫的boss，我等乐子人都受不了，太地狱了
 
+
+*****
+
+####  wwmmddqqbbpp  
+##### 42#       发表于 2026-2-13 07:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69181069&amp;ptid=2274506" target="_blank">慕兰 发表于 2026-2-13 01:43</a>
+刚过防御入侵boss，射手是真的稳定暴力输出，特别是我有一个投射物+1的饰品，打了4把都没坏也是牛逼。箭雨 ...</blockquote>
+四叶草应该是越多越容易出更好的奖励
+
