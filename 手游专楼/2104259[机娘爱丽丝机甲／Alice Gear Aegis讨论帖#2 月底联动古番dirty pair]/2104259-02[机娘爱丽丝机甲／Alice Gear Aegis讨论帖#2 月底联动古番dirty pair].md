@@ -122,3 +122,11 @@ https://pinmark.colopl.co.jp/entries/03610404</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">所以bu券有说平时怎么拿吗
 
+
+*****
+
+####  wilkyway  
+##### 1916#       发表于 2026-2-12 20:56
+
+看了眼wiki的aina共鸣属性和我的完全不一样啊 纯随机？
+
