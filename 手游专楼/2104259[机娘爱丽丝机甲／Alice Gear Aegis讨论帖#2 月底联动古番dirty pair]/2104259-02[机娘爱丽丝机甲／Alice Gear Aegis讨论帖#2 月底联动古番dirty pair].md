@@ -86,3 +86,11 @@
 https://pinmark.colopl.co.jp/entries/03610404</blockquote>
 推特我记得有人看了阿嘎的年收吐槽，形容词是 気持ち悪い的稳<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  regular  
+##### 1912#       发表于 2026-2-12 17:11
+
+版本号都1.9.9.0了，都快可以出二代了。顺便backup鸽了。
+
