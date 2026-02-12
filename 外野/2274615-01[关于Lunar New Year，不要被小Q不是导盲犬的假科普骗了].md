@@ -1044,3 +1044,13 @@ GLM
 
 就好像现在大家用的公历和公元年是基督教制定的一样。管你在12月底叫Christmas 还是holiday还是new year，都逃不出基督教的历法。
 
+
+*****
+
+####  midearth  
+##### 83#       发表于 2026-2-13 05:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69179473&amp;ptid=2274615" target="_blank">tourbillion 发表于 2026-2-12 18:10</a>
+上个讨论CNY的帖子被移除了，我再回复下。南棒东9区，越猴东7区，我们是东8区，时差导致节气日期（地球的 ...</blockquote>
+不知道你在这孜孜不倦地科普这个是何用意，能差一个月，不就让他们更理直气壮地说跟中国新年不一样。
+
