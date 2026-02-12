@@ -14,3 +14,13 @@
 
 福袋出了信长，new一个，还行
 
+
+*****
+
+####  shimotsuki14  
+##### 47714#       发表于 2026-2-12 20:32
+
+象征性一发十连居然出了
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
