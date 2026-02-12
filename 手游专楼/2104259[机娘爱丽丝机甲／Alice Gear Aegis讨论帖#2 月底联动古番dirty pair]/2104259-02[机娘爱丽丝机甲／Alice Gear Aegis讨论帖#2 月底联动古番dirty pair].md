@@ -104,3 +104,13 @@ https://pinmark.colopl.co.jp/entries/03610404</blockquote>
 
 送的10连BU券不知道该不该现在用，管两个月呢
 
+
+*****
+
+####  冰风血羽  
+##### 1914#       发表于 2026-2-12 18:31
+
+反正四星已经送了个兔妹，票留着算了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
