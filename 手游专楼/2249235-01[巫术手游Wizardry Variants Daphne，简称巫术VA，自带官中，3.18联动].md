@@ -154,3 +154,25 @@
 
 —— 来自 HONOR PGT-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  orz100  
+##### 711#       发表于 2026-2-13 01:29
+
+这悬赏好不容易拼死凹过去，就给了两个大师戒合成素材，略失望。关键这戒指也不值得刷属性啊。
+武士转职也开了，然后又开始长草。目前剩一个井边的鬼武士没打过，这货秒我面具我一点办法都没有<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  orz100  
+##### 712#       发表于 2026-2-13 01:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69179900&amp;ptid=2249235" target="_blank">requiem116 发表于 2026-2-12 20:08</a>
+咸鱼7w1的钻卖38，能抽3井？</blockquote>
+买一个十连是11抽，2000绿钻，可以认为一井是1800绿钻
+
+—— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
