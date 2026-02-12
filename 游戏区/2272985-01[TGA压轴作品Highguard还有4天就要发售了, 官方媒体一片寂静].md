@@ -441,3 +441,72 @@ PVP在线游戏不看玩家数看什么……</blockquote>
 
 还是亮学信网吧，感觉在和ai对话
 
+
+*****
+
+####  zzy516232108  
+##### 78#       发表于 2026-2-12 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69177475&amp;ptid=2272985" target="_blank">NeverCU 发表于 2026-2-12 11:39</a>
+裁员不就是亏钱，发个裁员新闻，我给鸵鸟们指出来有问题？</blockquote>
+你是工作室的股东吗？
+是游戏的content creator，靠这个吃饭？
+或者已经在这个游戏里冲了1919810元，跑不掉了？
+还是觉得这个游戏是梦中情游，再也没有替代品了所以死了很可惜？
+
+麻烦对号入座一下让我知道你是什么心态
+
+不然一个普通中国玩家为什么要关注一个
+日活不超过1w的
+刚发售就差评如潮的
+在国区steam锁区的
+免费在线多人对战游戏是不是赚了钱？
+
+顺带一提我四不沾，点进这个帖子单纯就是想看笑话，我甚至都没玩过。
+你呢？
+
+
+*****
+
+####  NeverCU  
+##### 79#       发表于 2026-2-12 11:52
+
+<blockquote>zzy516232108 发表于 2026-2-12 11:47
+你是工作室的股东吗？
+
+是游戏的content creator，靠这个吃饭？
+
+或者已经在这个游戏里冲了1919810元，跑不 ...</blockquote>
+
+那不是看到了。
+
+一堆看到10万在线就幻想赚了钱（实际分钱没赚到）就跪舔的不是最大笑话。
+
+*****
+
+####  moonblackwh  
+##### 80#       发表于 2026-2-12 11:52
+
+原来这游戏都发售了吗，各大平台完全没看见过
+
+
+*****
+
+####  zzy516232108  
+##### 81#       发表于 2026-2-12 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69177545&amp;ptid=2272985" target="_blank">NeverCU 发表于 2026-2-12 11:52</a>
+那不是看到了。
+
+一堆看到10万在线（实际分钱没赚到）就跪舔的不是最大笑话。 ...</blockquote>
+哈哈，我只看到了你
+
+*****
+
+####  zzy516232108  
+##### 82#       发表于 2026-2-12 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69177546&amp;ptid=2272985" target="_blank">moonblackwh 发表于 2026-2-12 11:52</a>
+原来这游戏都发售了吗，各大平台完全没看见过</blockquote>
+steam国区锁了 不过这游戏本身也烂了，无所谓啦
+
