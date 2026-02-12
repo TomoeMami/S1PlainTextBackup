@@ -618,3 +618,26 @@ Wildlight官方推特账号发布声明证实了裁员消息：“今天，我�
 
 不好说把这游戏放在压轴是正向宣传还是反向宣传 不过你新工作室上来就这么多人吗 超过200？
 
+
+*****
+
+####  llysander  
+##### 92#       发表于 2026-2-12 16:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 结束倒计时辣
+
+“个人游戏媒体届”又是一顿狂欢
+
+*****
+
+####  llysander  
+##### 93#       发表于 2026-2-12 16:28
+
+ 本帖最后由 llysander 于 2026-2-12 16:29 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69176885&amp;ptid=2272985" target="_blank">NeverCU 发表于 2026-2-12 10:01</a>
+
+这种免费网游看的是热销榜，在线数没用</blockquote>
+记得上次特地看了眼steam营收榜，大概在一个棒子百合vn附近（找了好tm久
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 并不是完全没人花钱，只是 如果在小地方10个员工-行 ， 在加州百人团队-没戏
+
