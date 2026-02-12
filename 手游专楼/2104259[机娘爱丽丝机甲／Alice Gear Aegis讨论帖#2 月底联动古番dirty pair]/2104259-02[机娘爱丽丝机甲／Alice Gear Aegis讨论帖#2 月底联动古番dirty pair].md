@@ -94,3 +94,13 @@ https://pinmark.colopl.co.jp/entries/03610404</blockquote>
 
 版本号都1.9.9.0了，都快可以出二代了。顺便backup鸽了。
 
+
+*****
+
+####  不灭的旋律  
+##### 1913#       发表于 2026-2-12 18:25
+
+维护好了以后还是有BUG用了BU就崩，金字塔不测试的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+送的10连BU券不知道该不该现在用，管两个月呢
+

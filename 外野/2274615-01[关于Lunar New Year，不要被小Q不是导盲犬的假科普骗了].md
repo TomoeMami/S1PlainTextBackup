@@ -820,3 +820,22 @@ https://www.bilibili.com/video/B ... ba0d9328bf8962a589a▸
 
 全给他占了不行吗
 
+
+*****
+
+####  Alunamin  
+##### 66#       发表于 2026-2-12 18:19
+
+说了这么多但外交部就是在混用啊，这能算到主楼这up头上吗
+
+
+*****
+
+####  上帝的爪子  
+##### 67#         楼主| 发表于 2026-2-12 18:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69179462&amp;ptid=2274615" target="_blank">落墨无忧 发表于 2026-2-12 18:05</a>
+
+现在最好就是我们把cny和lny还有chunjie的定位全部占了，不管外网用什么，全部指向我们中国的春节，管棒子 ...</blockquote>
+说实话，这是一种自欺欺人的想法，所以我才开这个帖子骂那个假科普的博主。
+
