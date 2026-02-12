@@ -1008,3 +1008,11 @@ GLM
 他的考据水平确实做的很差。Lunar new year这个说法也确实不能说没有包含一点西方的恶意。
 但是考虑到我们现在纯粹的数值力大转飞，确实可能最后所有的说法都被中国垄断。
 
+
+*****
+
+####  阿刚  
+##### 79#       发表于 2026-2-13 02:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">问题 Lunar New Year字面意义上是月亮历啊，这玩意的信念是特么三十年一轮轮换的，新疆这边肉孜节才是真正的 Lunar New Year啊
+
