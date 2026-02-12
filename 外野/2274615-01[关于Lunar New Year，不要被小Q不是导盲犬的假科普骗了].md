@@ -964,3 +964,16 @@ GLM
 
 2026-2-12 20:43 上传
 
+
+*****
+
+####  紧那罗  
+##### 75#       发表于 2026-2-12 20:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69180028&amp;ptid=2274615" target="_blank">wlbthh 发表于 2026-2-12 20:35</a>
+
+本身现有农历的太阳历部分已经用公历转译并且已经爽用好多年了，我只需要记住三月底20多号是春分，我干嘛 ...</blockquote>
+你说用公历的日期来记节气更方便没问题
+
+这不意味着公历（格里高历）包含节气，也不是说农历和节气没关系
+
