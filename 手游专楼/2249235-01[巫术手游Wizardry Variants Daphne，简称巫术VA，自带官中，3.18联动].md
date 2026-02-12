@@ -106,3 +106,25 @@
 
 说实话有点失望，不像前三张图基本每层都有一只，四图的悬赏怪就4只，而且全是前三图的怪物，连雪中冰狼+大雪怪这样的普通大便阵容都不出，不够尽兴
 
+
+*****
+
+####  Flechette  
+##### 708#       发表于 2026-2-12 20:48
+
+打完新悬赏后兑换所新增大师戒指合一素材，4500一份，限定2份
+
+这是我打悬赏石像的阵容，说来也真是挺不常规的：
+
+<img src="https://img.stage1st.com/forum/202602/12/204612r0sm687rs7twet6b.png" referrerpolicy="no-referrer">
+
+<strong>401.png</strong> (233.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-12 20:46 上传
+
+双手锤矛战士/匕首游侠/忍刀忍者
+
+另外联动赶紧给伊亚玛斯武士转职拯救一下吧，我真的快忍不住把他喂给土法了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
