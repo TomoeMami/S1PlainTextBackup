@@ -278,3 +278,17 @@
 
 机神真体时代生小孩是交换数据写设计图造飞船
 
+
+*****
+
+####  exiaexa  
+##### 20533#       发表于 2026-2-13 22:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69185221&amp;ptid=2084912" target="_blank">シャル 发表于 2026-2-13 21:33</a>
+
+难怪海无力不是机神
+
+农神说明里机神真体被白色巨人打爆后12神就只剩端末拟体了</blockquote>
+最草的是，机体交换数据造新舰反而比希腊乱交Play看起来更有说服力
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
