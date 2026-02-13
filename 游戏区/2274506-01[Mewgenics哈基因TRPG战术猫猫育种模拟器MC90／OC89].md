@@ -820,3 +820,17 @@ tink需要你捐赠10只幼猫，每批捐赠都会解锁额外的视觉辅助�
 
 如果本指南对你有用，请点赞收藏！
 
+
+*****
+
+####  fireflies  
+##### 58#       发表于 2026-2-13 21:43
+
+ 本帖最后由 fireflies 于 2026-2-13 21:46 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69184712&amp;ptid=2274506" target="_blank">机动三轮 发表于 2026-2-13 19:20</a>
+
+有没有吸钱的道具或技能啊？，刚开始玩钱要走上去捡好难绷</blockquote>
+可以适当拖回合捡东西回状态，近战攻击也能捡东西
+
+快速结束容易给好道具，快速结束不了就拖回合回状态了
+
