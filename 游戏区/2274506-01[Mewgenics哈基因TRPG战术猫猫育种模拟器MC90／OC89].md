@@ -584,3 +584,16 @@ stimulation影响新生儿质量，comfort影响事件发生概率（交配/哈�
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  wwddrte  
+##### 50#       发表于 2026-2-13 14:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69183404&amp;ptid=2274506" target="_blank">Awanano 发表于 2026-2-13 14:34</a>
+
+而且我感觉母猫有生育次数限制的样子
+
+理想情况下应该一间房优质公+多个流浪母，另一件优质母+多个流浪公 ...</blockquote>
+喜欢小猫的那个你多给他点猫他就会教你看父母了
+
