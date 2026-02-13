@@ -1077,3 +1077,14 @@ GLM
 
 还有那个北京的翻译也是以前都是都是beijing ，后来也是啥不多时候学校里开始说Peking，真的是有的人就是脊梁骨是弯的。
 
+
+*****
+
+####  糟糕喵  
+##### 87#       发表于 2026-2-13 09:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69180068&amp;ptid=2274615" target="_blank">zmw_831110 发表于 2026-2-12 20:43</a>
+
+微软翻译</blockquote>
+我管NM，我就只认“春节”
+
