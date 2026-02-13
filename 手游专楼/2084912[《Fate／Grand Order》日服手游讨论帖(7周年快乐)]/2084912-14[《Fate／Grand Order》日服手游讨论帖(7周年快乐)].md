@@ -52,3 +52,34 @@
 欧，羡慕</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">弱鸡卡+1也没意义啊
 
+
+*****
+
+####  khxooo  
+##### 20515#       发表于 2026-2-13 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69184280&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-2-13 17:28</a>
+
+弱鸡卡+1也没意义啊</blockquote>
+不弱啊，双地特攻，最大50自充+20缓冲，起码比艾蕾强了。
+
+*****
+
+####  Jamaisvu  
+##### 20516#       发表于 2026-2-13 17:39
+
+<blockquote>qixinno1 发表于 2026-2-13 17:28
+弱鸡卡+1也没意义啊</blockquote>
+强度还可以吧，全队20蓝绿、20加攻、30地特攻，自身50自充20缓充，宝具也有地特攻，算是个蓝卡版艾蕾上位？
+
+
+*****
+
+####  qixinno1  
+##### 20517#       发表于 2026-2-13 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69184308&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-2-13 17:38</a>
+
+不弱啊，双地特攻，最大50自充+20缓冲，起码比艾蕾强了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2026年我觉得这种强度就很菜了
+
