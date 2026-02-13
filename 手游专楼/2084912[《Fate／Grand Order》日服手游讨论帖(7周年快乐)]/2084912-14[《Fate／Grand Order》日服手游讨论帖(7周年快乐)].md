@@ -292,3 +292,13 @@
 最草的是，机体交换数据造新舰反而比希腊乱交Play看起来更有说服力
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rollingusagi  
+##### 20534#       发表于 2026-2-13 22:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这剧情笑死了，官方明牌搞妈妈力判定，玛修比不过黑胡子被搞郁闷了，厨房组+太太三ex又玩53w战斗力的梗，光妈和提妈这俩妈妈力只有十几就比小番茄高一点，咕哒还以为是看错了，最搞的是最后道满跑出来标着数字六十多，把光妈和提妈搞破防了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
