@@ -521,3 +521,16 @@ boss无限招，我就看它在那无限53就打死了。
 
 我说怎么每次出征都是勉勉强强打完第二张图就哈气了 原来大家都是在家培育猫猫找好苗子的 我是只要凑够4只就直接出门了 猫粮上限140了每次还都是溢出
 
+
+*****
+
+####  菜菜菜菜  
+##### 45#       发表于 2026-2-13 13:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69182388&amp;ptid=2274506" target="_blank">一将宫成万股哭 发表于 2026-2-13 11:16</a>
+
+我说怎么每次出征都是勉勉强强打完第二张图就哈气了 原来大家都是在家培育猫猫找好苗子的 我是只要凑够4只 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+咋培育？我刚进第二张图。男女比例感觉还得控制，家里就一只公猫，结果不去和任何母猫结合。
+
