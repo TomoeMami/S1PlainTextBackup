@@ -393,3 +393,16 @@ xb like的游戏越来越多了
 
 也有可能一些人只玩过xb<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  whzfjd  
+##### 49#       发表于 2026-2-13 20:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69182876&amp;ptid=2274658" target="_blank">沧兰殇 发表于 2026-2-13 12:44</a>
+
+xb到底孵化出了多少游戏，先是鸣潮和zmd，之后又来一个抄这两个游戏的可乐美新作，
+
+—— 来自 鹅球 v3.3.9 ...</blockquote>
+带一个原神挪德卡莱，那试验局一眼XB机神风
+
