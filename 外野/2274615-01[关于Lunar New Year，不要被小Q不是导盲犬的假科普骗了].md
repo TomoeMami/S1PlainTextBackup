@@ -1221,3 +1221,27 @@ LNY当然也要抢，最好NY也一起抢过来。
 
 本来就是欧美各国给中国庆祝节日，几个小国非要蹬鼻子上脸蹭，要是这几个小国有自己的新年（比如外蒙），你看欧美国家还这么大张旗鼓庆祝它们的节日不~~~~
 
+
+*****
+
+####  上帝的爪子  
+##### 99#         楼主| 发表于 2026-2-13 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69181526&amp;ptid=2274615" target="_blank">walkerzero 发表于 2026-2-13 08:40</a>
+
+我去听了一下小Q的意思，可能是话语权之争，就是成年人不做选择，既要又要还要的那种感觉，在目前这个鱼龙 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202602/13/120413lz3q03lmdlzxq5z2.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202602/13/120413lz3q03lmdlzxq5z2.png">
+
+<strong>786.png</strong> (139.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-13 12:04 上传
+
+昨天看到有个老哥说京剧的翻译，然后我在某个对外宣的网站简介上面，你看这段就错的离谱啊。
+
+ Peking Opera is a harmonious combination of the Grand Opera, ballet and acrobatics, consisting of dance, dialogue, monologues, martial arts and mime.
+
+翻译错误，但是实际得用，这个不管是学术还是口头上照样得用的现象相当相当多。
+

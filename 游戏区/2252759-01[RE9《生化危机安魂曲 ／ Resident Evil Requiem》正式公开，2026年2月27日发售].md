@@ -94,3 +94,23 @@ sherry也算正式回來
 
 只是她不再是前線而是電腦後勤?
 
+
+*****
+
+####  nage560  
+##### 626#       发表于 2026-2-13 12:09
+
+我就说上一个预告听声音就知道是雪莉了。
+
+*****
+
+####  梅斯之围  
+##### 627#       发表于 2026-2-13 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69181708&amp;ptid=2252759" target="_blank">StarCrusader 发表于 2026-2-13 09:17</a>
+
+新预告00:45电脑屏幕的文件  转自b站评论
+
+机密——DARPA(国防高级研究计划局)  </blockquote>
+黑色斑块不就是预告片里李昂的手上的，李昂当初是在哪被咬过的
+
