@@ -83,3 +83,11 @@
 不弱啊，双地特攻，最大50自充+20缓冲，起码比艾蕾强了。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2026年我觉得这种强度就很菜了
 
+
+*****
+
+####  khxooo  
+##### 20518#       发表于 2026-2-13 18:00
+
+不过农神的三破我蛮喜欢的。
+
