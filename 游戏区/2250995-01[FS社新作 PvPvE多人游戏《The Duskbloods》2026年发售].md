@@ -444,3 +444,18 @@ PVPVE：？
 
 不过ns2独占，后期真不上pc了？
 
+
+*****
+
+####  浅色轮回  
+##### 46#       发表于 2026-2-13 12:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69180631&amp;ptid=2250995" target="_blank">咸鱼无双 发表于 2026-2-12 22:58</a>
+
+鉴于黑夜君临风评不错
+
+这作是不是也可以期待一手
+
+不过ns2独占，后期真不上pc了？ ...</blockquote>
+ip所有权在fs，大概率限时独占
+
