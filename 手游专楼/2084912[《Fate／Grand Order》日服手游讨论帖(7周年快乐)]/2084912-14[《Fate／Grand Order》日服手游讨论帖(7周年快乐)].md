@@ -198,3 +198,14 @@
 
 异闻的衣服竟然不加
 
+
+*****
+
+####  khxooo  
+##### 20528#       发表于 2026-2-13 19:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69184728&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2026-2-13 19:26</a>
+
+虽然现在没有塞灵衣特性能提前知道出灵衣，但有可能像214一样后面活动剧情更新追加吧，不然浪费这立绘了 ...</blockquote>
+看立绘， 下面还是真空的<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
