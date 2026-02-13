@@ -868,3 +868,23 @@ tink需要你捐赠10只幼猫，每批捐赠都会解锁额外的视觉辅助�
 
 我们在不明生物体内发现了少许猫的基因
 
+
+*****
+
+####  PigMourne  
+##### 62#       发表于 2026-2-14 00:21
+
+这游戏的不造成友伤对混乱的单位没效果吗<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+凹了一个全程混乱+不造成友伤的大哥结果还是疯狂自残
+
+
+*****
+
+####  pzk  
+##### 63#       发表于 2026-2-14 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69185715&amp;ptid=2274506" target="_blank">wwddrte 发表于 2026-2-13 23:56</a>
+我们在不明生物体内发现了少许猫的基因</blockquote>
+怎么名字还有梗的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
