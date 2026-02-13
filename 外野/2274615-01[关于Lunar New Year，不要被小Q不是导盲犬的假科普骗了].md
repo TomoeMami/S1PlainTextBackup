@@ -1337,3 +1337,16 @@ Chinese Lunar Chunjie!
 
 要么直接叫chunjie，要么CNY，扯什么LNY被别人牵着鼻子走的科普，我很难赞同
 
+
+*****
+
+####  可鲁  
+##### 108#       发表于 2026-2-13 18:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69182755&amp;ptid=2274615" target="_blank">macos 发表于 2026-2-13 12:16</a>
+
+原来上贴被删了，让洋人音译春节也合理吧
+
+但又想到另一层，元旦已经被改到一月一日了，新年对应哪一个呢 ...</blockquote>
+新年对公历年和农历年都可以用，但现在为了区分元旦的新年好，农历年一般用春节好避免歧义。
+
