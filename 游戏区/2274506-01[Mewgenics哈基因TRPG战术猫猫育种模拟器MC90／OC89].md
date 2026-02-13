@@ -635,3 +635,13 @@ stimulation影响新生儿质量，comfort影响事件发生概率（交配/哈�
 
 有没有吸钱的道具或技能啊？，刚开始玩钱要走上去捡好难绷<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  scikirbypoke  
+##### 55#       发表于 2026-2-13 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69184712&amp;ptid=2274506" target="_blank">机动三轮 发表于 2026-2-13 19:20</a>
+有没有吸钱的道具或技能啊？，刚开始玩钱要走上去捡好难绷</blockquote>
+好像后面有打完自动全屏收钱的
+
