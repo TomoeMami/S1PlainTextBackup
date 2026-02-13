@@ -91,3 +91,12 @@
 
 不过农神的三破我蛮喜欢的。
 
+
+*****
+
+####  岸浪白野  
+##### 20519#       发表于 2026-2-13 18:15
+
+214的新差分立绘和所长用1破夏装的立绘是去除了兽角不错的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/68a004c9f679b654c2e70477e40c3300/image.jpg" referrerpolicy="no-referrer">
+
