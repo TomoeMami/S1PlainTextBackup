@@ -176,3 +176,14 @@
 
 —— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  电脑死机  
+##### 713#       发表于 2026-2-13 09:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69175137&amp;ptid=2249235" target="_blank">Flechette 发表于 2026-2-11 20:46</a>
+
+忍者分为两种，一种是千紫万红spammer，一种是练满70就转职的，凛音是优质AOE弓贼，切羽是优质战士。第四章 ...</blockquote>
+忍刀虽然弱，但是偶尔cos一把黑旋风忍者为民除害也是不错的（笑）
+
