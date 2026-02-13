@@ -351,3 +351,18 @@ nate和grubb已经确认是12号了，可信度较高</blockquote>
 
 二档库更新了空洞骑士PS5版
 
+
+*****
+
+####  黑猫软  
+##### 530#       发表于 2026-2-13 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69164691&amp;ptid=2173605" target="_blank">黑猫软 发表于 2026-2-9 21:10</a>
+
+是的 官宣了已经
+
+奶一个ds2pc 战神银河城</blockquote>
+基本算是奶中了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+羊蹄山 3.10号奇谭模式，看pv感觉内容比对马丰富点
+
