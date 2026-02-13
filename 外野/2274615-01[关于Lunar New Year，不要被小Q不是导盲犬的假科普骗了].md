@@ -1266,3 +1266,14 @@ LNY当然也要抢，最好NY也一起抢过来。
 二十四节气放在韩国和越南完 ...</blockquote>
 按照古时候的规矩，要用中原的历法，首先要入质纳贡，连称臣都不肯做还想过春节？
 
+
+*****
+
+####  非洲龙骑  
+##### 102#       发表于 2026-2-13 14:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69182507&amp;ptid=2274615" target="_blank">忠诚派欧格林 发表于 2026-2-13 11:31</a>
+
+所以正月初一原本该叫什么名字？为什么不能叫春节</blockquote>
+格里高利历的一月一日现在叫什么？
+
