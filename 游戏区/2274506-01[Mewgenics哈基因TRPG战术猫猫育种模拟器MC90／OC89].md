@@ -568,3 +568,19 @@ stimulation影响新生儿质量，comfort影响事件发生概率（交配/哈�
 
 爹7妈3的属性，子代会继承7的属性，优先保留优质种公猫，和流浪母猫配。
 
+
+*****
+
+####  Awanano  
+##### 49#       发表于 2026-2-13 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69183356&amp;ptid=2274506" target="_blank">苏西踩我了 发表于 2026-2-13 14:24</a>
+说到育种，多次近亲繁育会发生先天残疾，所以要引入流浪猫的基因。
+
+爹7妈3的属性，子代会继承7的属性，优先 ...</blockquote>
+而且我感觉母猫有生育次数限制的样子
+理想情况下应该一间房优质公+多个流浪母，另一件优质母+多个流浪公，每次出发组队都必带野猫
+但这游戏不给明确看父母是谁，感觉近亲繁殖不可避免，一想到那个收小猫的大概率收一堆近亲繁殖产物就觉得好地狱
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
