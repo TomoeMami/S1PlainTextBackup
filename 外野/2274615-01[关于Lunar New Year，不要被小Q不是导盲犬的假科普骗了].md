@@ -1303,3 +1303,15 @@ Chinese Lunar Chunjie!
 
 当然也有各种阴湿角度曲解的，不过至少都承认了春节是中国文化，叫中国春节才对这种观点。说实话还挺让我意外的，我已经习惯了点开评论区看他们无脑哈气。
 
+
+*****
+
+####  wlhlz  
+##### 105#       发表于 2026-2-13 15:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69183444&amp;ptid=2274615" target="_blank">bbk6rz 发表于 2026-2-13 14:42</a>
+刚好今天看见了一个让我有点意外的日本新闻评论区。平时的中国新闻，评论区的小日子都是使劲哈气的。这个新 ...</blockquote>
+日韩从来就不是一个思路，韩国是中国的东西其实都是我发明的，日本是中华正统被我继承了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
