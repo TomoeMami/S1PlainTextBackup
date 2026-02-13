@@ -148,3 +148,11 @@ https://pinmark.colopl.co.jp/entries/03610404</blockquote>
 有AEGIS我懂，有办公室的大姐姐们我懂，还有马鞭草是何意味啊</blockquote>
 巫女女仆偶像模特 只要能跟应援扯上关系的基本都算吧（所以江古田的那位<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alialex  
+##### 1919#       发表于 2026-2-13 10:02
+
+世界观内有人气点角色跑过来当一日站长之类的吧
+
