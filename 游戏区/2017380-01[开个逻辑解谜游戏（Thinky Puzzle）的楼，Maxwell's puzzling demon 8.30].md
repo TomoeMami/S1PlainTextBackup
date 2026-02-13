@@ -14,3 +14,11 @@
 
 茜塔确实好玩啊，已经40h游戏时间进去了还在第六大关卡着呢完全没玩腻，我看玩了的逻辑解谜老油子就没有不跟那使劲吹的
 
+
+*****
+
+####  BRAVADO  
+##### 309#       发表于 2026-2-13 17:26
+
+Theta实在是太好玩了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
