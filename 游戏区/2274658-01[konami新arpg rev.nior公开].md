@@ -385,3 +385,11 @@ xb like的游戏越来越多了
 
 另外，xb不愧是坛游，我看全网只有S1才会集中有那么多人光凭目前这么点信息就得出这游戏是XB like的结论……
 
+
+*****
+
+####  妄想中毒  
+##### 48#       发表于 2026-2-13 20:19
+
+也有可能一些人只玩过xb<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

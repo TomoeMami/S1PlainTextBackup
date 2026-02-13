@@ -221,3 +221,20 @@
 
 主机坏了？
 
+
+*****
+
+####  exiaexa  
+##### 20530#       发表于 2026-2-13 20:18
+
+ 本帖最后由 exiaexa 于 2026-2-13 20:20 编辑 
+
+这次剧情可以的
+
+有主线回顾了，有关系网，有搞笑
+
+重点是非常生草，指某两人加起来还不如黑胡子和上铺兄弟
+
+已经开始期待后面几天了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
