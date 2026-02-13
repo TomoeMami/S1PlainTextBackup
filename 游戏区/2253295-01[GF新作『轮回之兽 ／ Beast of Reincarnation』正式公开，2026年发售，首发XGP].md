@@ -1760,3 +1760,12 @@ Game Freak在过去几年因其部分3D开放世界游戏的性能和画面表�
 
 所以说朱紫之后就是三线交替并行开发了，za，轮回兽和10代，效率惊人啊<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  u2deack  
+##### 175#       发表于 2026-2-13 11:08
+
+这游戏一出，等今年宝可梦新作出了，到时候gf黑和孝子吵架又多了很多点可以吵
+或者说等月底宝可梦直面会之后就要开始了
+
