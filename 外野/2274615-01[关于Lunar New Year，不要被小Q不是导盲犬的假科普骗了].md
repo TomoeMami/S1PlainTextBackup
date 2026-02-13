@@ -1315,3 +1315,11 @@ Chinese Lunar Chunjie!
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  foolyu  
+##### 106#       发表于 2026-2-13 17:02
+
+韩国越南春节有自己的翻译啊（Seollal、Tet），是看CNY影响力太大了，强行推个LNY分分喜气吗
+
