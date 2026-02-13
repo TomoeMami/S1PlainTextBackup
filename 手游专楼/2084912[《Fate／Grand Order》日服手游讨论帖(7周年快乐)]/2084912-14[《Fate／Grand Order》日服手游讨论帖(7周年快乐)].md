@@ -146,3 +146,31 @@
 这群希腊机械，怕不是不要机神以后，转头就走到另一个极端了
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 20523#       发表于 2026-2-13 19:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69184642&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-2-13 19:00</a>
+
+感谢楼友的欧气，我也一发10连除了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太强了 竟然还去追礼装
+
+*****
+
+####  シャル  
+##### 20524#       发表于 2026-2-13 19:06
+
+30连出货
+
+情人节搞这种太惊悚了
+
+<img src="https://img.stage1st.com/forum/202602/13/190616jkvttc0vvkh8pejv.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4924.jpeg</strong> (636.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-13 19:06 上传
+
