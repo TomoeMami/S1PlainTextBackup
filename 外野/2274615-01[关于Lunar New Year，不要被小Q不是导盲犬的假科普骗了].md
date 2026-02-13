@@ -1277,3 +1277,13 @@ LNY当然也要抢，最好NY也一起抢过来。
 所以正月初一原本该叫什么名字？为什么不能叫春节</blockquote>
 格里高利历的一月一日现在叫什么？
 
+
+*****
+
+####  朗巴尔多  
+##### 103#       发表于 2026-2-13 14:24
+
+Chinese Lunar Chunjie!
+
+—— 来自 vivo V2502A, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
