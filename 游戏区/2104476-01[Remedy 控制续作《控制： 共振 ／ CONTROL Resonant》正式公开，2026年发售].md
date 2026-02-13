@@ -859,3 +859,22 @@ DMC鬼泣
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  FACS  
+##### 90#       发表于 2026-2-13 09:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69015815&amp;ptid=2104476" target="_blank">ybfelix 发表于 2026-1-12 17:29</a>
+“社区经理”就类似官方论坛网管而已，在市场部里都不算头，有这权限吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有锤子权限，我看这帮游戏公司招个社区经理就是没事找事啊
+
+*****
+
+####  sunix  
+##### 91#       发表于 2026-2-13 09:20
+
+<blockquote>FACS 发表于 2026-2-13 09:17
+有锤子权限，我看这帮游戏公司招个社区经理就是没事找事啊</blockquote>
+本来就是给这些必须占多元化员工名额的人一个闲职，毕竟这帮人啥也不会
+
