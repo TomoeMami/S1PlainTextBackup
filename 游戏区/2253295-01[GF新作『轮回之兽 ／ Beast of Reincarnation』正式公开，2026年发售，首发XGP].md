@@ -1752,3 +1752,11 @@ Game Freak在过去几年因其部分3D开放世界游戏的性能和画面表�
 
 不过话说回来，最开始时是我一个人构思试作、推敲世界观设定和剧情大纲的阶段。开发人员开始增加是从2022年左右开始的。
 
+
+*****
+
+####  LLLLLuB  
+##### 174#       发表于 2026-2-13 10:40
+
+所以说朱紫之后就是三线交替并行开发了，za，轮回兽和10代，效率惊人啊<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
