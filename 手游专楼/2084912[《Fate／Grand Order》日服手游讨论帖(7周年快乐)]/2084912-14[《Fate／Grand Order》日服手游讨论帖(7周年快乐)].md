@@ -318,3 +318,34 @@
 
 确认了一下有珠的巧克力剧情，去年全部是257个，今年改到275个了，又再奇怪的地方细节了
 
+
+*****
+
+####  rollingusagi  
+##### 20537#       发表于 2026-2-13 22:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这剧情笑死了，官方明牌搞妈妈力判定，玛修比不过黑胡子被搞郁闷了，厨房组+太太三ex又玩53w战斗力的梗，光妈和提妈这俩妈妈力只有十几就比小番茄高一点，咕哒还以为是看错了，最搞的是最后道满跑出来标着数字六十多，把光妈和提妈搞破防了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  洛克萨斯  
+##### 20538#       发表于 2026-2-14 01:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">源赖光提亚马特的妈力简直是杂鱼水平
+
+*****
+
+####  yangun22  
+##### 20539#       发表于 2026-2-14 02:42
+
+确认了一下有珠的巧克力剧情，去年全部是257个，今年改到275个了，又再奇怪的地方细节了
+
+*****
+
+####  sosgame67  
+##### 20540#       发表于 2026-2-14 07:25
+
+提妈和源赖光的妈妈自称不是摆明了玩母子play用的么，妈妈力杂鱼理所当然啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
