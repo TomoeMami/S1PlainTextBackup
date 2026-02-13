@@ -1712,3 +1712,13 @@ Game Freak在过去几年因其部分3D开放世界游戏的性能和画面表�
 
 2026-2-13 08:00 上传
 
+
+*****
+
+####  otakun  
+##### 172#       发表于 2026-2-13 08:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69181398&amp;ptid=2253295" target="_blank">纯夏 发表于 2026-2-13 08:01</a>
+不管好不好玩 冲着建模我也买了</blockquote>
+看成了小霞
+
