@@ -1088,3 +1088,18 @@ GLM
 微软翻译</blockquote>
 我管NM，我就只认“春节”
 
+
+*****
+
+####  胶布  
+##### 88#       发表于 2026-2-13 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69181532&amp;ptid=2274615" target="_blank">酱豆腐 发表于 2026-2-13 08:41</a>
+还有那个北京的翻译也是以前都是都是beijing ，后来也是啥不多时候学校里开始说Peking，真的是有的人就是脊 ...</blockquote>
+PKU是吧
+
+Peking这个转写是耶稣会的那些传教士在明清之交的时候搞出来的，“京”字腭音化之前的读音。
+这个转写的p、k都不应该送气，对应的是类似汉语拼音“beiging”的读音。也就是说耶稣会的人那时候搞出的这个转写对应的读音其实还算准确。是英语人把这个词读坏了（想想“约翰”）。
+
+把这个“Peking”按照英语母语者的没文化读法读成“批King”的确有点脊梁骨不正。
+
