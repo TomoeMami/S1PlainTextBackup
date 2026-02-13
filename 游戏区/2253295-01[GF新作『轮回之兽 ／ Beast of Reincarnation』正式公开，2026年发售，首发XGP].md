@@ -1783,3 +1783,27 @@ Game Freak在过去几年因其部分3D开放世界游戏的性能和画面表�
 或者说等月底宝可梦直面会之 ...</blockquote>
 时机选的不好，和宝太接近了，不过也没办法，索尼和微软什么时候开发布会也不是gf能干预的
 
+
+*****
+
+####  卢迪克  
+##### 177#       发表于 2026-2-13 20:38
+
+十张以上地图，通关时间40小说
+
+<img src="https://img.stage1st.com/forum/202602/13/203728mb6bznh3nydruuq6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (100.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-13 20:37 上传
+
+<img src="https://img.stage1st.com/forum/202602/13/203812x01zj9sjssz9xrfl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (42.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-13 20:38 上传
+
