@@ -109,3 +109,40 @@
 哦对，还有冠呆这个新差分，长发<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/30/6d0ab441a479f06bba54839d05f55862/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 20521#       发表于 2026-2-13 19:00
+
+感谢楼友的欧气，我也一发10连除了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202602/13/185917fp356hmkg01mp04a.png" referrerpolicy="no-referrer">
+
+<strong>MuMu-20260213-180619-987.png</strong> (475.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-13 18:59 上传
+
+然后这是五星礼装出货的结果<img src="https://static.stage1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202602/13/185946ukkusi5okux87scc.png" referrerpolicy="no-referrer">
+
+<strong>MuMu-20260213-180757-541.png</strong> (481.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-13 18:59 上传
+
+*****
+
+####  exiaexa  
+##### 20522#       发表于 2026-2-13 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69184234&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2026-2-13 17:17</a>
+
+农神三破立绘挺好看的，本来以为是机械飞升，没想到是生物朋克...</blockquote>
+这群希腊机械，怕不是不要机神以后，转头就走到另一个极端了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
