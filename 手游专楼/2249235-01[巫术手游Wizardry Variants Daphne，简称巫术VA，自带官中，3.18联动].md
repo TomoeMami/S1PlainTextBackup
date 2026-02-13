@@ -187,3 +187,11 @@
 忍者分为两种，一种是千紫万红spammer，一种是练满70就转职的，凛音是优质AOE弓贼，切羽是优质战士。第四章 ...</blockquote>
 忍刀虽然弱，但是偶尔cos一把黑旋风忍者为民除害也是不错的（笑）
 
+
+*****
+
+####  茄子自走炮  
+##### 714#       发表于 2026-2-13 23:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">情人节活动还能提到去年啊，本以为你游是没有时间概念的
+
