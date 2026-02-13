@@ -100,3 +100,12 @@
 214的新差分立绘和所长用1破夏装的立绘是去除了兽角不错的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/30/68a004c9f679b654c2e70477e40c3300/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 20520#       发表于 2026-2-13 18:26
+
+哦对，还有冠呆这个新差分，长发<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/6d0ab441a479f06bba54839d05f55862/image.jpg" referrerpolicy="no-referrer">
+
