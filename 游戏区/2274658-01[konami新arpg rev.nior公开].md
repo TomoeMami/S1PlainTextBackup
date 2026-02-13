@@ -406,3 +406,19 @@ xb到底孵化出了多少游戏，先是鸣潮和zmd，之后又来一个抄这
 —— 来自 鹅球 v3.3.9 ...</blockquote>
 带一个原神挪德卡莱，那试验局一眼XB机神风
 
+
+*****
+
+####  whzfjd  
+##### 50#       发表于 2026-2-13 21:06
+
+有点像33之前的法JRPG《永恒边缘》
+
+<img src="https://img.stage1st.com/forum/202602/13/205708dg6yg996y6vn9chd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (339.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-13 20:57 上传
+
