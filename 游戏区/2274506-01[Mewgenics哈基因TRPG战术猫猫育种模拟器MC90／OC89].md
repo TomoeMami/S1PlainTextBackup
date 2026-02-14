@@ -1089,3 +1089,11 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">法师拿到队友耗一次蓝就加魔攻的天赋，然后队友有个花一蓝挖草地的先天技能，每回合上buff都得要一分钟
 
+
+*****
+
+####  慕兰  
+##### 83#       发表于 2026-2-15 01:07
+
+看群友发的无限sl大法，切steam点关闭游戏，再切回游戏，游戏内点否。亲测可用
+
