@@ -1034,3 +1034,11 @@ tink需要你捐赠10只幼猫，每批捐赠都会解锁额外的视觉辅助�
 
 而且如果团灭了的话几乎没有成长，这导致打完boss觉得有点吃力就会直接选回家然后把猫送给npc，至少没白打
 
+
+*****
+
+####  Yugao  
+##### 77#       发表于 2026-2-14 22:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有图鉴mod和汉化mod吗，以撒没这俩我根本玩不动
+
