@@ -29,3 +29,16 @@
 
 —— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  仟音一心  
+##### 213#       发表于 2026-2-14 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69189077&amp;ptid=2244986" target="_blank">离心 发表于 2026-2-14 19:05</a>
+这制作就是正规动画mv制作啊
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, 鹅球 v3.5.99</blockquote>
+新打歌服新歌新的高质量动画MV
+隔壁莲之空馋哭😭了要
+
