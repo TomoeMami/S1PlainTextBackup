@@ -11,3 +11,11 @@
 <img src="https://p.sda1.dev/30/904e726db8bd044e5635439bf075c249/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/30/86e605d55ba2d07d56a31cd4f26837de/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 211#       发表于 2026-2-14 18:56
+
+找出这么多L开头的负面词汇也是辛苦了。
+
