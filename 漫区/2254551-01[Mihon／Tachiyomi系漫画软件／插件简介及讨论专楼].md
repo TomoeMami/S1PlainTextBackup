@@ -19,3 +19,14 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  月夜凝雪  
+##### 150#       发表于 2026-2-14 13:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69187613&amp;ptid=2254551" target="_blank">软软人 发表于 2026-2-14 13:04</a>
+
+移机之前老手机啥都行，移机之后92打不开了，拷贝能看，但是有的漫画是五页，有的漫画可以看全本，也不知 ...</blockquote>
+我的之前是R18只有五页，一般向正常，现在是拷贝完全读不出来，打开拷贝自己的app是正常的
+
