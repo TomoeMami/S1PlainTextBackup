@@ -1072,3 +1072,20 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 是不是没法预览敌人的攻击范围 要自己算 我右键点他们只能看到移动范围？
 
+
+*****
+
+####  pzk  
+##### 81#       发表于 2026-2-15 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69190112&amp;ptid=2274506" target="_blank">Emmerich 发表于 2026-2-15 00:00</a>
+是不是没法预览敌人的攻击范围 要自己算 我右键点他们只能看到移动范围？ ...</blockquote>
+红色的格子就是攻击范围呀
+
+*****
+
+####  pzk  
+##### 82#       发表于 2026-2-15 00:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">法师拿到队友耗一次蓝就加魔攻的天赋，然后队友有个花一蓝挖草地的先天技能，每回合上buff都得要一分钟
+
