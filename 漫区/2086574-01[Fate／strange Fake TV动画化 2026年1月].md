@@ -1255,3 +1255,14 @@ fgo总算解释了海无力为啥是人类而不是飞船
 
 第七集又是完全看不懂的叙事，只知道画面好炫好酷，人物狂拽霸气
 
+
+*****
+
+####  shoel  
+##### 1008#       发表于 2026-2-14 08:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69164536&amp;ptid=2086574" target="_blank">fatzhi 发表于 2026-2-9 20:33</a>
+
+看是看爽了，但是凛厨是不是这季看不到附身了。</blockquote>
+你猜希波吕忒为什么是呆毛同款发型<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
