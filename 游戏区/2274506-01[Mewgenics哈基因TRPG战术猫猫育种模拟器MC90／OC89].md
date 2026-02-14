@@ -1042,3 +1042,13 @@ tink需要你捐赠10只幼猫，每批捐赠都会解锁额外的视觉辅助�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有图鉴mod和汉化mod吗，以撒没这俩我根本玩不动
 
+
+*****
+
+####  伯利恒星  
+##### 78#       发表于 2026-2-14 22:29
+
+发现前期两个房间已经可以育种了，把属性一般的全扔到楼上空房间去，打架打死也无所谓，反正每天还有新的
+家具全放楼下，只放有技能属性高的或者带变异的猫，每天生了新的看下属性，不行的也扔楼上，就这么重复选优
+然后也不用急着出门打，正常通一次猫粮绝对溢出，每次先把猫粮吃完再出门，多蹭回合育种，属性高的猫过图也会更简单<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
