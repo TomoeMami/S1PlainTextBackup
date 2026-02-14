@@ -2210,7 +2210,7 @@
     "newtitle": "[Gran Turismo 7 ／ GT7 讨论专楼]",
     "lastedit": 1770820457,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2034757": {
@@ -6111,10 +6111,10 @@
     "update": false
   },
   "1992973": {
-    "totalreply": 5749,
+    "totalreply": 5750,
     "title": "[『葬送的芙莉莲』动画化决定！2023年秋]",
     "newtitle": "[『葬送的芙莉莲』动画化决定！2023年秋 剧透请反白]",
-    "lastedit": 1771078453,
+    "lastedit": 1771079534,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10593,10 +10593,10 @@
     "update": false
   },
   "2210855": {
-    "totalreply": 12531,
+    "totalreply": 12532,
     "title": "[中二电波台真爱楼 2.0]",
     "newtitle": "[中二电波台真爱楼 2.0]",
-    "lastedit": 1771071375,
+    "lastedit": 1771079767,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12051,10 +12051,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 47866,
+    "totalreply": 47867,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1771078930,
+    "lastedit": 1771079531,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12303,10 +12303,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 7603,
+    "totalreply": 7605,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【明日方舟：终末地】情报汇总3号楼 2026.1.22 全球公测]",
-    "lastedit": 1771078808,
+    "lastedit": 1771079649,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12411,10 +12411,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 8352,
+    "totalreply": 8353,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼2月]",
-    "lastedit": 1771075932,
+    "lastedit": 1771079534,
     "category": "外野",
     "active": true,
     "update": false
@@ -12438,10 +12438,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 14057,
+    "totalreply": 14058,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1771079289,
+    "lastedit": 1771079651,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16259,7 +16259,7 @@
     "newtitle": "[开会过程中放了一个湿屁]",
     "lastedit": 1770820457,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2009762": {
@@ -16268,7 +16268,7 @@
     "newtitle": "[科幻复古未来主义动作游戏《Replaced》PV公开，2026年春发售]",
     "lastedit": 1770820457,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2274554": {
@@ -16569,10 +16569,10 @@
     "update": false
   },
   "2274506": {
-    "totalreply": 77,
+    "totalreply": 78,
     "title": "[Mewgenics哈基因TRPG战术猫猫育种模拟器MC90／OC89]",
     "newtitle": "[Mewgenics哈基因TRPG战术猫猫育种模拟器MC90／OC89]",
-    "lastedit": 1771079291,
+    "lastedit": 1771079651,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17132,6 +17132,15 @@
     "newtitle": "[推本单元剧恐怖漫画《灰色兼职：禁止逃亡》]",
     "lastedit": 1771078108,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2274637": {
+    "totalreply": 42,
+    "title": "[（接上帖）加上店员的微信了，约吃饭感觉像是婉拒了]",
+    "newtitle": "[（接上帖）加上店员的微信了，约吃饭感觉像是婉拒了]",
+    "lastedit": 1771079535,
+    "category": "外野",
     "active": true,
     "update": false
   }
