@@ -1009,3 +1009,16 @@ tink需要你捐赠10只幼猫，每批捐赠都会解锁额外的视觉辅助�
 
 钱够商店买升级和道具就行，刷关送猫比较重要
 
+
+*****
+
+####  harry3  
+##### 75#       发表于 2026-2-14 20:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69188454&amp;ptid=2274506" target="_blank">Awanano 发表于 2026-2-14 16:13</a>
+
+猫慢慢给吧，我感觉都很重要，每个lv1升级一下，第三件房/更大仓库都挺重要的，食物仓库应该不急着升
+
+博 ...</blockquote>
+哪个是第三件房/更大仓库的呀，左上和左下吗
+
