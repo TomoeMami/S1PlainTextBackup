@@ -953,3 +953,16 @@ tink需要你捐赠10只幼猫，每批捐赠都会解锁额外的视觉辅助�
 
 有每个人要什么猫给什么奖励的wiki吗，已经记不住了猫也才10个不知道先给升谁，tink吗
 
+
+*****
+
+####  Awanano  
+##### 70#       发表于 2026-2-14 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69188031&amp;ptid=2274506" target="_blank">harry3 发表于 2026-2-14 14:43</a>
+有每个人要什么猫给什么奖励的wiki吗，已经记不住了猫也才10个不知道先给升谁，tink吗 ...</blockquote>
+肉块这条件太哈人了我草，最后稳扎稳打推过去了
+博士给的支线道具都是会随着灭队掉落的 要打就得不灭队
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
