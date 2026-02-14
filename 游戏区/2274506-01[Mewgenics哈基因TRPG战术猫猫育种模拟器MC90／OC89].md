@@ -980,3 +980,14 @@ tink需要你捐赠10只幼猫，每批捐赠都会解锁额外的视觉辅助�
 
 现在这游戏打得压力好大，一整局太久了，下次再来肯定不会是相同的build。有的怪还有机制初见没克制几个小时就没了。
 
+
+*****
+
+####  月海的秋鸟  
+##### 72#       发表于 2026-2-14 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69184712&amp;ptid=2274506" target="_blank">机动三轮 发表于 2026-2-13 19:20</a>
+
+有没有吸钱的道具或技能啊？，刚开始玩钱要走上去捡好难绷</blockquote>
+刷怪爆不了几个钱  用高幸运的猫去轮盘赌刷钱<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
