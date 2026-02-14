@@ -357,3 +357,11 @@
 
 头掉了再接上这种事，1.6不也有过吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 20542#       发表于 2026-2-14 21:30
+
+神贞的巧克力剧情笑死，自己审判自己。不过没想到是三个形态，以为第一和第三是同一个形态。
+
