@@ -1249,3 +1249,19 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 给博士第一个变异猫的道具翻车爆了，没法再搞了吗，还是再送5个猫还给这个
 
+
+*****
+
+####  Awanano  
+##### 97#       发表于 2026-2-15 13:01
+
+ 本帖最后由 Awanano 于 2026-2-15 13:02 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69191471&amp;ptid=2274506" target="_blank">harry3 发表于 2026-2-15 12:54</a>
+给博士第一个变异猫的道具翻车爆了，没法再搞了吗，还是再送5个猫还给这个 ...</blockquote>
+好像就变其他的任务了，任务池可能很大，不知道是不是固定顺序
+我第二个任务就是看不到血量状态的，那个任务失败后下一个任务是消耗品栏位护甲+8的未知药道具，敌人变难会带精英词条，走完墓园给一个brace+3和可将自己视为石头的道具
+
+这任务被幽灵猫整麻了最后他带火属性堵不住路
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
