@@ -172,3 +172,12 @@ nox变特殊战士那集讲了一句“code在你出生之前就已经存在了�
 红霸是真死还是假死，后续有没有返场的可能</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少没收花，可以认为是假死
 
+
+*****
+
+####  32767  
+##### 689#       发表于 2026-2-15 16:26
+
+NOX掏出手枪的时候是真绷不住
+你不是有酷炫的玩具枪吗，非要用手枪这么现实的东西
+
