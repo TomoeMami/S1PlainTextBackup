@@ -141,3 +141,15 @@ sherry也算正式回來
 
 DLC出个克莱尔，警局同学会就到齐了
 
+
+*****
+
+####  烈焰舞阳  
+##### 631#       发表于 2026-2-15 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69182742&amp;ptid=2252759" target="_blank">梅斯之围 发表于 2026-2-13 12:13</a>
+黑色斑块不就是预告片里李昂的手上的，李昂当初是在哪被咬过的</blockquote>
+就浣熊市那个病毒浓度，出来的人多少都会带着的，更何况主角团这几个还是下水道实验室跑了个遍
+
+—— 来自 Xiaomi 2407FRK8EC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
