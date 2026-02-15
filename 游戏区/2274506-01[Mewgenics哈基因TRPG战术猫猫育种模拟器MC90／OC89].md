@@ -1177,3 +1177,13 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 带博士道具的那只死了，结果一趟下来就完成了猫头任务
 
+
+*****
+
+####  傲慢的空想家X  
+##### 91#       发表于 2026-2-15 10:35
+
+听说国区销量占比最大结果没有首发官中？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
