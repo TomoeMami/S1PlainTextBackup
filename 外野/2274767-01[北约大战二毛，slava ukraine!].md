@@ -564,3 +564,11 @@ Slava Ukraini
 
 这十个兵的主观视点是不是杀爽了，虽然是演习。有种fps游戏瞅谁谁死的感觉
 
+
+*****
+
+####  smiths146  
+##### 52#       发表于 2026-2-15 20:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">所以 乌克兰 和 俄罗斯 媾和 然后 组联军闪击西欧 是最优解？
+
