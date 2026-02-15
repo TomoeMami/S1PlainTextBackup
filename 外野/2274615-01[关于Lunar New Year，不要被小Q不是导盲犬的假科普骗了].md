@@ -1372,3 +1372,15 @@ Chunjie (春节, Chūn Jié), often referred to as the Spring Festival or simply
 
 而且这个逼是不是狗汉奸，我记得不单是在春节的叫法上面，好像其他话题都好几次和国人的认知唱反调
 
+
+*****
+
+####  三天八百万  
+##### 111#       发表于 2026-2-15 11:07
+
+<blockquote>高分子聚合物 发表于 2026-2-12 15:28
+这个吧
+
+—— 来自 vivo V2405A, Android 16, 鹅球 v3.5.99</blockquote>
+所以mc（粤语）ga非蠢即坏
+
