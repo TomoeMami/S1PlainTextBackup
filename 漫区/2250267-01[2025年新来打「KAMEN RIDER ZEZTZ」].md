@@ -155,3 +155,20 @@ nox变特殊战士那集讲了一句“code在你出生之前就已经存在了�
 烂不烂难说，吵起来概率99.9%吧第一集梦境相当篇幅是对特务的负面描写，这个角色实质是有一些病态的，按套 ...</blockquote>
 战火这不已经要烧起来了吗，早有预料<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤黑的假面  
+##### 687#       发表于 2026-2-15 15:15
+
+红霸是真死还是假死，后续有没有返场的可能
+
+*****
+
+####  FACS  
+##### 688#       发表于 2026-2-15 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69191865&amp;ptid=2250267" target="_blank">赤黑的假面 发表于 2026-2-15 15:15</a>
+红霸是真死还是假死，后续有没有返场的可能</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少没收花，可以认为是假死
+
