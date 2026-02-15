@@ -1441,3 +1441,18 @@ lunar new year是属于白帽的，可不敢和它们抢<img src="https://static
 
 狗操的玩意带着任务来的
 
+
+*****
+
+####  上帝的爪子  
+##### 118#         楼主| 发表于 2026-2-15 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69181920&amp;ptid=2274615" target="_blank">啪啦啦啦啦 发表于 2026-2-13 09:52</a>
+
+唔……怎么说呢，其实Chunjie仍然是一个“约定俗成”的结果，从正本清源的角度出发，不如CNY。
+
+这个问题涉 ...</blockquote>
+今晚我会把完整的考据内容做一次更新，这种说法，就是“自证式反驳”，实际就是被导盲犬小Q带歪了。
+
+根本不存在要抢LNY的情形。
+
