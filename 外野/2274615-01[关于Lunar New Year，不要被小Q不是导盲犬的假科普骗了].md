@@ -1495,3 +1495,14 @@ lunar new year是属于白帽的，可不敢和它们抢<img src="https://static
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 123#       发表于 2026-2-16 01:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69191713&amp;ptid=2274615" target="_blank">squallx 发表于 2026-2-15 14:16</a>
+
+先把棒子首尔改回汉城再说</blockquote>
+等将军南下
+
