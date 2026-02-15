@@ -556,3 +556,11 @@ Slava Ukraini
 
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  oyss  
+##### 51#       发表于 2026-2-15 19:55
+
+这十个兵的主观视点是不是杀爽了，虽然是演习。有种fps游戏瞅谁谁死的感觉
+
