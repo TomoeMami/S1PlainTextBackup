@@ -1300,3 +1300,16 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 之前打失败了一次好像也 ...</blockquote>
 可以的，直接送，只不过打输了过几天之后又会来进攻
 
+
+*****
+
+####  qianoooo  
+##### 101#       发表于 2026-2-15 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69191156&amp;ptid=2274506" target="_blank">leeskies 发表于 2026-2-15 11:39</a>
+
+顺便问下，那个倒计时进攻的猫，如果状态不好是不是可以只拿一只猫出战当替死鬼。
+
+之前打失败了一次好像也 ...</blockquote>
+失败了没有做任务用的道具就是
+
