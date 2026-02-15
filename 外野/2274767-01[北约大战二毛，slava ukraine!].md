@@ -504,3 +504,11 @@ Slava Ukraini
 
 —— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  凯尔薇斯  
+##### 45#       发表于 2026-2-15 08:52
+
+也算展示了一下真·实战经验是啥样，省的阿美和欧公子成天逼逼赖赖自己那点治安战虐菜打老乡的经验<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
