@@ -1265,3 +1265,13 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  harry3  
+##### 98#       发表于 2026-2-15 18:31
+
+灭队没装备彻底不会玩了，已经被替换炸弹鼠的河马女王打得第一关回家三次了，每次都被她三连动打残打死，主要近战不得不站她范围里，我又没紧贴站临近一格站的第二格还是被三连<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还是该直接打沙漠去了吗，沙漠用什么配队比较好
+
