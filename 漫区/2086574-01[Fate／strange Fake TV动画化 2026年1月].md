@@ -1274,3 +1274,14 @@ fgo总算解释了海无力为啥是人类而不是飞船
 
 这作品里一直称呼美国为合众国/这片大地/这个国家，我还以为他在有意回避现实的美国，结果最新一集直接叫美国了，原来并没这个避讳啊。
 
+
+*****
+
+####  仟音一心  
+##### 1010#       发表于 2026-2-15 10:10
+
+成田：（伊什塔尔）用脚底接住箭矢这段帅炸了！
+<img src="https://p.sda1.dev/30/19ea5035b8a5aecfe7f2efbf1e2eb0d7/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/3fa24a20a7567d047c7370383376b517/image.jpg" referrerpolicy="no-referrer">
+连你也……
+
