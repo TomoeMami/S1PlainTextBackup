@@ -145,3 +145,13 @@ nox变特殊战士那集讲了一句“code在你出生之前就已经存在了�
 
 2026-2-15 13:15 上传
 
+
+*****
+
+####  milky658  
+##### 686#       发表于 2026-2-15 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68398837&amp;ptid=2250267" target="_blank">milky658 发表于 2025-9-10 07:35</a>
+烂不烂难说，吵起来概率99.9%吧第一集梦境相当篇幅是对特务的负面描写，这个角色实质是有一些病态的，按套 ...</blockquote>
+战火这不已经要烧起来了吗，早有预料<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
