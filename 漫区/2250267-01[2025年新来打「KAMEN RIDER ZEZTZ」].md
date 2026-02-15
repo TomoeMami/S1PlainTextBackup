@@ -181,3 +181,22 @@ nox变特殊战士那集讲了一句“code在你出生之前就已经存在了�
 NOX掏出手枪的时候是真绷不住
 你不是有酷炫的玩具枪吗，非要用手枪这么现实的东西
 
+
+*****
+
+####  四毛流浪记  
+##### 690#       发表于 2026-2-15 16:30
+
+说不定等下集播完开枪镜头之后再收花呢
+
+
+*****
+
+####  milky658  
+##### 691#       发表于 2026-2-15 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69192042&amp;ptid=2250267" target="_blank">32767 发表于 2026-2-15 16:26</a>
+NOX掏出手枪的时候是真绷不住
+你不是有酷炫的玩具枪吗，非要用手枪这么现实的东西 ...</blockquote>
+我觉得是剧组故意的。玩具枪不管设定吹得多天花乱坠，也没有现实里的枪崩一下给人冲击力大。经典哪怕你能把毁天灭地的大boss当陀螺抽，脸接花里胡哨的特效，一把小匕首捅一下照样得跪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
