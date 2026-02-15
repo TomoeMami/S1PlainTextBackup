@@ -30,3 +30,14 @@
 移机之前老手机啥都行，移机之后92打不开了，拷贝能看，但是有的漫画是五页，有的漫画可以看全本，也不知 ...</blockquote>
 我的之前是R18只有五页，一般向正常，现在是拷贝完全读不出来，打开拷贝自己的app是正常的
 
+
+*****
+
+####  azbhg1  
+##### 151#         楼主| 发表于 2026-2-15 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69167271&amp;ptid=2254551" target="_blank">月夜凝雪 发表于 2026-2-10 11:31</a>
+
+拷贝完全读不出来了</blockquote>
+我api切成热辣的还能看
+

@@ -572,3 +572,13 @@ Slava Ukraini
 
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">所以 乌克兰 和 俄罗斯 媾和 然后 组联军闪击西欧 是最优解？
 
+
+*****
+
+####  fooltiger  
+##### 53#       发表于 2026-2-15 22:02
+
+<blockquote>傻吧喵 发表于 2026-2-15 10:25
+乌克兰现在被打成这样又不单单靠俄罗斯的地面和fpv，还有空军的滑翔制导炸弹和大量的导弹。这些你北约也有 ...</blockquote>
+滑翔制导炸弹和导弹也要依靠地面部队的情报和引导。文中描述的北约地面部队未必有这个前出侦查能力。
+
