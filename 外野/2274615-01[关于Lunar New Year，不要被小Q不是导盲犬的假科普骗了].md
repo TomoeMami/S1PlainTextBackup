@@ -1467,3 +1467,13 @@ lunar new year是属于白帽的，可不敢和它们抢<img src="https://static
 所以正月初一原本该叫什么名字？为什么不能叫春节</blockquote>
 正月初一原名：元旦
 
+
+*****
+
+####  星零影  
+##### 120#       发表于 2026-2-15 21:13
+
+突然想到个问题，当初不用cny改用lny的理由是拉上一帮东亚国家一起申请放假，但是怎么就不怕用回历msl反对呢？<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
