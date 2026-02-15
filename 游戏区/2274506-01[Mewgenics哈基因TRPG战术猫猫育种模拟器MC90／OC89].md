@@ -1139,3 +1139,13 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  玉之龙  
+##### 88#       发表于 2026-2-15 08:42
+
+这游戏我看有人都把最终boss解包出来了，结果现在还没看到打到的，也太耐玩了吧<img src="https://static.stage1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3800, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
