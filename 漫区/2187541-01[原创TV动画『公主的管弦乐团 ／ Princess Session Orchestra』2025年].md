@@ -44,3 +44,28 @@
 
 估计下集纳比优要出来了，标题那么大一个王，刚好对应之前的算国际象棋元素缺国王的原因，不知道下集纳比优会不会开唱
 
+
+*****
+
+####  32767  
+##### 283#       发表于 2026-2-16 02:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745060&amp;ptid=2187541" target="_blank">32767 发表于 2025-4-22 01:03</a>
+
+我现在就是幼女的家长啊，每周日和5岁的娃一起看这个和隔壁Q娃
+
+我的意思就是相比隔壁都有点太平淡了</blockquote>
+看片初期就觉得纳比尤看着可疑，结果硬是最终章才跳反
+
+虽说估计打几集就最后10个人一起打真boss的节奏
+
+造型确实是OP里面的样子
+
+<img src="https://img.stage1st.com/forum/202602/16/021843bepppdys7zv7s1zw.jpg" referrerpolicy="no-referrer">
+
+<strong>c81f69906d0dcfcee1dda5f9d71f72714150085.jpg</strong> (489.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-16 02:18 上传
+
