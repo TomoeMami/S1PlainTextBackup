@@ -1149,3 +1149,13 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 —— 来自 realme RMX3800, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  leeskies  
+##### 89#       发表于 2026-2-15 09:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">草草草  这游戏竟然还有套装
+
+石头武器（损坏后给硬币那个）+石头帽子（1格挡）+煤渣块（3护盾）=失去护盾后给一个石头随从
+
