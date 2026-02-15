@@ -1360,3 +1360,15 @@ Chinese Lunar Chunjie!
 
 Chunjie (春节, Chūn Jié), often referred to as the Spring Festival or simply Chinese New Year, is undoubtedly the most significant and widely celebrated festival in China.
 
+
+*****
+
+####  史艳文  
+##### 110#       发表于 2026-2-15 11:01
+
+我还以为你们是讨论前几年的视频，刚刚推送到了我的首页了才发现这个逼又发了一次
+
+我印象中前几年他就发过了，当时引得不少人喷
+
+而且这个逼是不是狗汉奸，我记得不单是在春节的叫法上面，好像其他话题都好几次和国人的认知唱反调
+
