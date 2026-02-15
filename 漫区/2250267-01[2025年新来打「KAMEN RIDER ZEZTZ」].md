@@ -127,3 +127,21 @@ nox变特殊战士那集讲了一句“code在你出生之前就已经存在了�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫是外星人的可能性增加了啊，梦里能看到远处是城市，莫自己是在陨石上的
 
+
+*****
+
+####  洛克萨斯  
+##### 685#       发表于 2026-2-15 13:10
+
+ 本帖最后由 洛克萨斯 于 2026-2-15 13:15 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">灾厄这数值太夸张了吧
+
+<img src="https://img.stage1st.com/forum/202602/15/131531wlmxzy6bmjbjfxkj.png" referrerpolicy="no-referrer">
+
+<strong>DOJMU8Y}T8TB{5[%_7PV}IO.png</strong> (602.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-15 13:15 上传
+
