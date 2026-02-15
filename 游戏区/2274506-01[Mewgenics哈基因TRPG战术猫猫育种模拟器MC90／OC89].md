@@ -1395,3 +1395,11 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 有开荒攻略吗，前期有点吃力
 
+
+*****
+
+####  wwddrte  
+##### 111#       发表于 2026-2-16 07:31
+
+去终焉装发射天线这任务怎么做啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，所有技能用过之后都会被随机替代，那岂不是全废了？
+
