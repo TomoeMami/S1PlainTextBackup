@@ -1285,3 +1285,13 @@ fgo总算解释了海无力为啥是人类而不是飞船
 <img src="https://p.sda1.dev/30/3fa24a20a7567d047c7370383376b517/image.jpg" referrerpolicy="no-referrer">
 连你也……
 
+
+*****
+
+####  meailove  
+##### 1011#       发表于 2026-2-15 23:08
+
+这绫香是直接变成两个从者的御主了吗？还是单纯的只提供魔力，没有指挥权
+
+—— 来自 Xiaomi 24122RKC7C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

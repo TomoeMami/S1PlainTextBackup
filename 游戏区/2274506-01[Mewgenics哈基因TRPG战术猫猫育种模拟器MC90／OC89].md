@@ -1336,3 +1336,27 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 除了一把天胡局牧师自带回治疗量半血的天赋，别的局前期死得最快的就是牧师了。好像除了法师有个回血眩晕和死灵有个天赋，别的回血手段我都没见到啊。
 
+
+*****
+
+####  schneehertz  
+##### 105#       发表于 2026-2-15 23:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69191027&amp;ptid=2274506" target="_blank">scikirbypoke 发表于 2026-2-15 11:03</a>
+这名字是改的优生学eugenics啊，猫基因什么的对不上的
+
+另外官中挺多节奏的，反正一年E胖前就说会根据愿望单 ...</blockquote>
+没那么难，ai机翻已经出了几天了，差别只在翻译质量上
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  wwddrte  
+##### 106#       发表于 2026-2-15 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69193171&amp;ptid=2274506" target="_blank">spring_water 发表于 2026-2-15 22:59</a>
+
+除了一把天胡局牧师自带回治疗量半血的天赋，别的局前期死得最快的就是牧师了。好像除了法师有个回血眩晕和 ...</blockquote>
+德鲁伊普攻能回1血，配合唱歌重置普攻的被动一回合也能回不少
+
