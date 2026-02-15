@@ -119,3 +119,11 @@ nox变特殊战士那集讲了一句“code在你出生之前就已经存在了�
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  暗黑能乐  
+##### 684#       发表于 2026-2-15 11:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫是外星人的可能性增加了啊，梦里能看到远处是城市，莫自己是在陨石上的
+
