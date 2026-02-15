@@ -1485,3 +1485,13 @@ lunar new year是属于白帽的，可不敢和它们抢<img src="https://static
 
 联合国人又狗叫惹
 
+
+*****
+
+####  acg_gyanc  
+##### 122#       发表于 2026-2-16 00:53
+
+刷了下b站看到蔡正元都加入战场了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
