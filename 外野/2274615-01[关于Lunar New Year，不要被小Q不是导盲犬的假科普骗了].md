@@ -1420,3 +1420,24 @@ lunar new year是属于白帽的，可不敢和它们抢<img src="https://static
 
 小Q犬和北巴拉特圆脸一样本质黄皮建制派，和民意相左才是正常的
 
+
+*****
+
+####  squallx  
+##### 116#       发表于 2026-2-15 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69182706&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-13 12:06</a>
+
+昨天看到有个老哥说京剧的翻译，然后我在某个对外宣的网站简介上面，你看这段就错的离谱啊。
+
+ Pekin ...</blockquote>
+先把棒子首尔改回汉城再说
+
+
+*****
+
+####  chivalry  
+##### 117#       发表于 2026-2-15 14:21
+
+狗操的玩意带着任务来的
+
