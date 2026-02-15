@@ -117,3 +117,14 @@ x异端的地图炮范围太小了吧，难道伤害很高吗？
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  AminGly  
+##### 3641#       发表于 2026-2-15 23:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69180059&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-2-12 20:41</a>
+
+现在这个环境没有什么要来回拉扯的，敌我都是一招秒，回血就显得很鸡肋。蓝机可能有用点，红机我宁可你把回 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">其实有点用，红异端可以一个人不需要盾，抗住深渊+混沌+毁灭那个组合
+
