@@ -42,3 +42,22 @@
 
 —— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  石狮鬼  
+##### 676#       发表于 2026-2-15 08:58
+
+Q娃棚的shadow：OMO，坐看同事被未来同事制裁
+
+骑士棚的shadow：亲手补刀击杀前同事
+
+同事都是恩人！<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  milky658  
+##### 677#       发表于 2026-2-15 09:02
+
+剧里干了畜生的事，但又能通过设定做戏。剧外没有收花照，演员几个月后还参加舞台活动。就是这种生死不明就是死的叠加态最能吵起来。这就是我想看到的舞台<img src="https://static.stage1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
