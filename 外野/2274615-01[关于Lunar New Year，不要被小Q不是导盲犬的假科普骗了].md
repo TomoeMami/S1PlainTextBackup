@@ -1402,3 +1402,13 @@ Chunjie (春节, Chūn Jié), often referred to as the Spring Festival or simply
 
 lunar new year是属于白帽的，可不敢和它们抢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dear81  
+##### 114#       发表于 2026-2-15 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69178600&amp;ptid=2274615" target="_blank">loli炮 发表于 2026-2-12 15:20</a>
+知乎有个懂子今年最烂超级碗的回复，说的很明白了 。外交部门习惯性和稀泥，讲和和气气 迁就国际惊诧 让这 ...</blockquote>
+对，外交部喜欢惊诧才是最大的问题
+
