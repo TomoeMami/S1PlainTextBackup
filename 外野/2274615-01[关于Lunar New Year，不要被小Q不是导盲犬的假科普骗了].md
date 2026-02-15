@@ -1394,3 +1394,11 @@ Chunjie (春节, Chūn Jié), often referred to as the Spring Festival or simply
 刚好今天看见了一个让我有点意外的日本新闻评论区。平时的中国新闻，评论区的小日子都是使劲哈气的。这个新 ...</blockquote>
 因为🐌是把新中国和古代中国当成不同的文化来看待，并且刻意忽视文化传承的事实，讲道理如果⏰一直没强起来或者真像他们幻想的那样碎掉，他们会立刻迫不及待爬出来喊中国文化正统在泥盆
 
+
+*****
+
+####  不会起名  
+##### 113#       发表于 2026-2-15 12:00
+
+lunar new year是属于白帽的，可不敢和它们抢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
