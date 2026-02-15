@@ -1456,3 +1456,14 @@ lunar new year是属于白帽的，可不敢和它们抢<img src="https://static
 
 根本不存在要抢LNY的情形。
 
+
+*****
+
+####  heyfly  
+##### 119#       发表于 2026-2-15 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69182507&amp;ptid=2274615" target="_blank">忠诚派欧格林 发表于 2026-2-13 11:31</a>
+
+所以正月初一原本该叫什么名字？为什么不能叫春节</blockquote>
+正月初一原名：元旦
+
