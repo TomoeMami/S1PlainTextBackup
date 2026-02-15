@@ -161,3 +161,30 @@ DLC出个克莱尔，警局同学会就到齐了
 
 这次又不说通关后内容，感觉首发也是没有了
 
+
+*****
+
+####  eilot  
+##### 633#       发表于 2026-2-15 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69185033&amp;ptid=2252759" target="_blank">Chao 发表于 2026-2-13 20:50</a>
+
+DLC出个克莱尔，警局同学会就到齐了</blockquote>
+感覺DLC真是可能是CLAIRE+SHERRY
+
+徹底復刻生2的里關路線
+
+現在表關還是LEON+GLACE+真女主角ADA吧
+
+就看JILL+BARRY能否出場，老生3是BARRY最後直昇機救出2人，3R是C負責開直昇機的
+
+
+*****
+
+####  shyso  
+##### 634#       发表于 2026-2-15 16:46
+
+不知道雪梨这次脸模能不能对上我的审美
+
+6代的雪梨真是我的日式cg脸白月光
+
