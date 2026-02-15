@@ -107,3 +107,13 @@ x异端的地图炮范围太小了吧，难道伤害很高吗？
 14 ...</blockquote>
 先发制人dx吃一发map降了气力就打不出map了
 
+
+*****
+
+####  zExs  
+##### 3640#       发表于 2026-2-15 08:57
+
+挣扎着抽完dx池 我要写个惨字 200抽只有哥哥 dx保底换的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
