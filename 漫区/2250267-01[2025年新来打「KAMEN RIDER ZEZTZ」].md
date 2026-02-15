@@ -78,3 +78,11 @@ nox好狠的补刀，一次下线两个，火药味要起来了
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这个战斗爽
 不过看下集预告宁梦要醒了？
 
+
+*****
+
+####  kal_008  
+##### 680#       发表于 2026-2-15 10:23
+
+小作文说下一集醒来后的莫变了，估计要开始“究竟是莫变成了seven，还是seven变成了莫”，这个梦主题绝对绕不开的庄周梦蝶了
+
