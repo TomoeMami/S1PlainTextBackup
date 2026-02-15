@@ -108,3 +108,14 @@ nox变特殊战士那集讲了一句“code在你出生之前就已经存在了�
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  一个陆仁贾  
+##### 683#       发表于 2026-2-15 11:21
+
+<img src="https://p.sda1.dev/30/e6357e873435a37cc7091631c2007cd2/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/a9aa011d0732a5e57b35ca5ca41f1dfe/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
