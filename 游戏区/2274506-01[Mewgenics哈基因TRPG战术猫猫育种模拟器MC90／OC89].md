@@ -1187,3 +1187,19 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 —— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Awanano  
+##### 92#       发表于 2026-2-15 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69190932&amp;ptid=2274506" target="_blank">傲慢的空想家X 发表于 2026-2-15 10:35</a>
+听说国区销量占比最大结果没有首发官中？
+
+—— 来自 HUAWEI NOH-AL10, Android 12, 鹅球 v3.5.99-alpha ...</blockquote>
+以撒现在忏悔+都没原生中文呢，e胖特有的字多了顾不上中文<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+会首发的大多知道e胖是谁也大概是以撒玩家，以撒国内社群算是自成一派有，玩家玩了这么多年没汉化适应性很强的
+现在这个猫猫的结合的名字也不知道谁敲定的有点刻意蹭了，直球翻成猫基因够了，从这点看e胖汉化这块确实拉
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
