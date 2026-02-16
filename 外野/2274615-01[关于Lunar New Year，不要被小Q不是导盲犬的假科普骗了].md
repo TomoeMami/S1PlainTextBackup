@@ -3021,3 +3021,52 @@ spring festival：？？？？？
 这也是你说的，我可没接你的茬</blockquote>
 我把两个选择给你，你认为没有比分裂更坏的事不是么？
 
+
+*****
+
+####  Demi.Albertini  
+##### 247#       发表于 2026-2-16 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69195013&amp;ptid=2274615" target="_blank">sellboy 发表于 2026-2-16 15:37</a>
+
+我把两个选择给你，你认为没有比分裂更坏的事不是么？</blockquote>
+那你的意思就是说分裂也不要紧咯？
+
+*****
+
+####  sellboy  
+##### 248#       发表于 2026-2-16 15:41
+
+<blockquote>Demi.Albertini 发表于 2026-2-16 15:39
+那你的意思就是说分裂也不要紧咯？</blockquote>
+我说有更坏的事。
+
+两个选择，我认为自毁国格自污国体更坏。
+
+*****
+
+####  pgain2004  
+##### 249#       发表于 2026-2-16 15:44
+
+妈的后面都变成什么弱智争论了，再争你们怕不是可以进小黑屋过年了，收收吧
+
+
+*****
+
+####  Demi.Albertini  
+##### 250#       发表于 2026-2-16 15:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69195029&amp;ptid=2274615" target="_blank">sellboy 发表于 2026-2-16 15:41</a>
+
+我说有更坏的事。
+
+两个选择，我认为自毁国格自污国体更坏。</blockquote>
+行了，不要说下去了，懂你的成分了。
+
+*****
+
+####  Vneeto  
+##### 251#       发表于 2026-2-16 15:46
+
+还在卞啊，包括主楼转的小q在内，那么多年说的都是cny和lny都不应该放弃，两者都对，春节直接就最好，某些人就别非要立个靶扭曲成cny/lny才是唯一正确用另一个就出警，烦不烦。
+
