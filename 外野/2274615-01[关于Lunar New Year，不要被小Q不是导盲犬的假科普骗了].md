@@ -1773,3 +1773,63 @@ lunar对应月亮（阴历），但我们过的是农历新年，是要阴历基
 因为国内对面美国人这种概念输出，一点反击的能力也没有，还自定义，纯粹自欺欺人。 ...</blockquote>
 那看来你还挺笃信西方中心叙事的强大的。
 
+
+*****
+
+####  圣雷科诺  
+##### 144#       发表于 2026-2-16 10:07
+
+<img src="https://img.stage1st.com/forum/202602/16/100746a4og232195o1g8or.png" referrerpolicy="no-referrer">
+
+<strong>1771207650690.png</strong> (981.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-16 10:07 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  sellboy  
+##### 145#       发表于 2026-2-16 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69193965&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 09:52</a>
+
+凭什么他就是美国文化中心主义的词了，因为是英文写的？他说解构就解构了？你这不就是西方中心叙事？
+
+明 ...</blockquote>
+不是同一天，可能差一天，也可能差一个月。
+
+*****
+
+####  上帝的爪子  
+##### 146#         楼主| 发表于 2026-2-16 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194009&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 10:05</a>
+
+那看来你还挺笃信西方中心叙事的强大的。</blockquote>
+这个事闹了快有5年了，
+
+全网没有一个能把来龙去脉讲清楚的博主，
+
+全都在玩那种“自证式解释”的方式来反驳，
+
+要么就跟风抄点老外的书来当白皮传声筒，像安森垚都是这种套路。
+
+好了，今年又有小Q这种自欺欺人的想法冒出来，还反击呢。
+
+*****
+
+####  霖星  
+##### 147#       发表于 2026-2-16 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69193995&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 10:02</a>
+
+这点我和你持相反态度，
+
+类似这样的词，国内一点招架的能力都没有。</blockquote>
+这种所谓危害估计也就你们网上经常键政的人才知道
+
+拿去线下问问周边的人，估计问上100个都找不到一个知道这是啥玩意的
+
