@@ -2151,3 +2151,128 @@ Chinese New Year一直是主流，甚至到了现在依然是主流，也就你�
 LNY这种伪名，我的建 ...</blockquote>
 传统历法至今已经发展成为了一种民间习俗，早已融入了文化层面。不要把放弃斗争美化成一种文化洁癖，没有意义。
 
+
+*****
+
+####  sellboy  
+##### 172#       发表于 2026-2-16 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194162&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 10:52</a>
+
+农历不是阴历而是阴阳合历的说法起势不过10年，以前在大众认知里农历就是阴历。究其原因就是你们没搞懂民 ...</blockquote>
+这是不科学的称呼
+
+农历随着观测技术的进步，定义的科学化，就像国际度量衡那样逐渐完成纯粹的自然定义。
+
+美不胜收，但，不容玷污。
+
+*****
+
+####  上帝的爪子  
+##### 173#         楼主| 发表于 2026-2-16 10:59
+
+ 本帖最后由 上帝的爪子 于 2026-2-16 11:02 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194176&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 10:56</a>
+
+传统历法至今已经发展成为了一种民间习俗，早已融入了文化层面。不要把放弃斗争美化成一种文化洁癖，没有 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/023.png">按你这说法，LNY是从八十年代才出现的，而CNY已经用了有两百多年的历史，那更应该丢在一边，你这上下说法这么分裂，你不觉得你人格分裂吗？
+
+乃连概念辨析能力都没有，在那儿大谈文化斗争，有种传武骗子空谈，被人几拳KO的即视感。
+
+*****
+
+####  sellboy  
+##### 174#       发表于 2026-2-16 11:01
+
+LNY不仅仅是去中国化，它是对人类目前唯一纯粹依靠自然科学定义的历法的玷污。
+
+*****
+
+####  Demi.Albertini  
+##### 175#       发表于 2026-2-16 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194189&amp;ptid=2274615" target="_blank">sellboy 发表于 2026-2-16 10:59</a>
+
+这是不科学的称呼
+
+农历随着观测技术的进步，定义的科学化，就像国际度量衡那样逐渐完成纯粹的自然定义。
+
+ ...</blockquote>
+民俗有时候就是不完全具备科学性的，就是这么一直发展下来的，没必要去否定它。
+
+
+*****
+
+####  Demi.Albertini  
+##### 176#       发表于 2026-2-16 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194190&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 10:59</a>
+
+按你这说法，LNY是从八十年代才出现的，而CNY已经用了有两百多年的历史，那更应该丢在一边，你这上下说法 ...</blockquote>
+你连自己说的东西都不敢正面承认，还说KO别人呢？
+
+一边拿台湾春节和中国春节并列，一边又说中国人对美国的文化侵略没有还手之力，你都已经不装了好嘛？
+
+*****
+
+####  上帝的爪子  
+##### 177#         楼主| 发表于 2026-2-16 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194206&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 11:04</a>
+
+你连自己说的东西都不敢正面承认，还说KO别人呢？
+
+一边拿台湾春节和中国春节并列，一边又说中国人对美国 ...</blockquote>
+哦，你意思是说台巴子在用LNY，是尊敬科学而不是搞去中国化咯？
+
+*****
+
+####  sellboy  
+##### 178#       发表于 2026-2-16 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194197&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 11:02</a>
+
+民俗有时候就是不完全具备科学性的，就是这么一直发展下来的，没必要去否定它。 ...</blockquote>
+就是要否定，否定错误才是进步的象征。
+
+只不过不要修改历史硬说过去没人这么叫罢了。
+
+*****
+
+####  Demi.Albertini  
+##### 179#       发表于 2026-2-16 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194209&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 11:05</a>
+
+哦，你意思是说台巴子在用LNY，是尊敬科学而不是搞去中国化咯？</blockquote>
+那你的意思是说台湾和中国不是一个国家？所以把台湾春节和中国春节特地分割出来咯？
+
+*****
+
+####  sellboy  
+##### 180#       发表于 2026-2-16 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194176&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 10:56</a>
+
+传统历法至今已经发展成为了一种民间习俗，早已融入了文化层面。不要把放弃斗争美化成一种文化洁癖，没有 ...</blockquote>
+四旧也融入了文化层面，但去四旧不是错误。
+
+*****
+
+####  上帝的爪子  
+##### 181#         楼主| 发表于 2026-2-16 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194214&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 11:07</a>
+
+那你的意思是说台湾和中国不是一个国家？所以把台湾春节和中国春节特地分割出来咯？ ...</blockquote>
+
+那你说台巴子这么推行LNY是什么目的来着？是不是去中国化？？
+
+<img src="https://img.stage1st.com/forum/202602/16/110739k9vru7uxi9a2p37f.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="750" zoomfile="https://img.stage1st.com/forum/202602/16/110739k9vru7uxi9a2p37f.png">
+
+<strong>437.png</strong> (408.23 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-16 11:07 上传
+
