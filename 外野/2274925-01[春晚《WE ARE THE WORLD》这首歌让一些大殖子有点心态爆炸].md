@@ -873,3 +873,14 @@ we are the world  这歌 从精神上 打垮苏联 ，我觉得这个评价是
 
 —— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  空き地卯木  
+##### 86#       发表于 2026-2-17 02:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69197745&amp;ptid=2274925" target="_blank">smiths146 发表于 2026-2-16 22:15</a>
+
+we are the world  这歌 从精神上 打垮苏联 ，我觉得这个评价是名至实归的，41年从黄金美国从灯塔堕落到现 ...</blockquote>
+能和MJ写出这样歌词的人,自然是希望冷战之后世界越来越好的理想主义者,在亲眼目睹了美国从黄金时代战胜苏联到一路堕落成今天模样,小国过得还不如冷战期间之后,接这个单倒是也不稀奇了
+
