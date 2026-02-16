@@ -277,3 +277,15 @@ nox和lady明显知道莫的噩梦，灾厄形态估计都在意料之中，不�
 
 杀人肯定上真枪了，要继续用儿童塑料枪，还想不想卖玩具了
 
+
+*****
+
+####  blue321  
+##### 699#       发表于 2026-2-16 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194551&amp;ptid=2250267" target="_blank">otakun 发表于 2026-2-16 13:04</a>
+杀人肯定上真枪了，要继续用儿童塑料枪，还想不想卖玩具了</blockquote>
+忘记了这个最现实的原因<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
