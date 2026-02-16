@@ -1025,3 +1025,13 @@ MJ如果无恙，
 恭喜鳖可以称帝了！</blockquote>
 再让我听到新三国的梗，我就扎聋自己的耳朵
 
+
+*****
+
+####  绷带绷得住  
+##### 101#       发表于 2026-2-17 07:43
+
+《We are the world》也是一种传国玉玺
+
+—— 来自 HONOR PGT-AN20, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
