@@ -551,3 +551,65 @@ MJ的外貌有点奇怪，但想不到他是个真好人。</blockquote>
 
 我上一次听这个歌还是耗子那期奇葩小国，刚刚去回顾了一下，果然评论区最新很多人都是春晚回去的
 
+
+*****
+
+####  Sopp  
+##### 58#       发表于 2026-2-17 00:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">义乌确实有底气说自己"we are the  world "
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  GLYSDSB  
+##### 59#       发表于 2026-2-17 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69197901&amp;ptid=2274925" target="_blank">youranchen1 发表于 2026-2-16 22:27</a>
+
+30多年前一首美国歌是**春晚最好的节目，是谁赢了呢</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">傻逼 是40年前
+
+*****
+
+####  刑部姬真可爱  
+##### 60#       发表于 2026-2-17 00:12
+
+真有大殖子哈气使得本帖好笑程度上升100<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX5062, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  与天争锋_L  
+##### 61#       发表于 2026-2-17 00:15
+
+我才是灯塔，你们都不是.jpg
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  INDIASH  
+##### 62#       发表于 2026-2-17 00:15
+
+这其实算第二句 WE ARE THE WORLD
+
+意思是：我们才是世界！
+
+*****
+
+####  xiaogouride  
+##### 63#       发表于 2026-2-17 00:16
+
+tmd，美国怎么成了这个样子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cube  
+##### 64#       发表于 2026-2-17 00:17
+
+楼主也想不到一砖头下去就敲倒一个都不用等到第二页吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
