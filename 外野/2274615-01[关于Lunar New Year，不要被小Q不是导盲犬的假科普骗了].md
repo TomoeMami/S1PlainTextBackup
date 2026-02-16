@@ -1887,3 +1887,84 @@ lunar对应月亮（阴历），但我们过的是农历新年，是要阴历基
 不敢正面回复？你把中国春节和台湾春节并列放一起是什么意思啊？</blockquote>
 你是真傻还是装傻？台巴子从几年前开始去不用CNY，而改用LNY来去中国化了，你还不明白？
 
+
+*****
+
+####  sellboy  
+##### 153#       发表于 2026-2-16 10:28
+
+各国农历是同一套基本规则，但是选择的天文基准不一样。
+
+如果公历那样，有格林威治天文台这个唯一基准，然后各国根据时区加一个偏移量，可以认为是同一套历法
+
+但是目前的农历不是，各国有各国的天文基准，因此各国的农历是独立历法。
+
+*****
+
+####  Demi.Albertini  
+##### 154#       发表于 2026-2-16 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194067&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 10:27</a>
+
+你是真傻还是装傻？台巴子从几年前开始去不用CNY，而改用LNY来去中国化了，你还不明白？ ...</blockquote>
+别打马虎眼，我就问你，为啥在你的图里台湾春节会和中国春节拿出来并列的？难道你的意思是说台湾和中国不是一个？
+
+*****
+
+####  上帝的爪子  
+##### 155#         楼主| 发表于 2026-2-16 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194071&amp;ptid=2274615" target="_blank">sellboy 发表于 2026-2-16 10:28</a>
+
+各国农历是同一套基本规则，但是选择的天文基准不一样。
+
+如果公历那样，有格林威治天文台这个唯一基准，然 ...</blockquote>
+我考据完资料是这样的，Lunar New Year这个词，
+
+在19和20世纪的时候，只是个泛指，
+
+会用来指**新年，还有雅典新年，还有暹罗地区的新年，还有中国的新年。
+
+他们根本不在意什么农历还是公历。
+
+*****
+
+####  上帝的爪子  
+##### 156#         楼主| 发表于 2026-2-16 10:32
+
+ 本帖最后由 上帝的爪子 于 2026-2-16 10:34 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194078&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 10:30</a>
+
+别打马虎眼，我就问你，为啥在你的图里台湾春节会和中国春节拿出来并列的？难道你的意思是说台湾和中国不 ...</blockquote>
+你是不是脑子还没醒？美国人弄个LNY就是这意思啊，要不然台巴子为什么用LNY？我在前面说了，用了LNY就是自带分裂效果。你不是说你有那自信吗？你怎么连美国语境里的LNY是什么意思都没搞懂，就想着自定义啊？
+
+*****
+
+####  Demi.Albertini  
+##### 157#       发表于 2026-2-16 10:33
+
+如果是泛指就把他变成特指，如果是妄图拿来去中国化，就更应该让它中国化，多简单的事啊。闭着眼睛甩出去那不是更去中国化了
+
+
+*****
+
+####  Demi.Albertini  
+##### 158#       发表于 2026-2-16 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194085&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 10:32</a>
+
+你是不是脑子还没醒？美国人弄个LNY就是这意思啊，要不然台巴子为什么用LNY？我在前面说了，用了LNY就是自 ...</blockquote>
+行了，你的成分我看懂了，台湾网友
+
+*****
+
+####  sellboy  
+##### 159#       发表于 2026-2-16 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194081&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 10:31</a>
+
+我考据完资料是这样的，Lunar New Year这个词，
+
+在19和20世纪的时候，只是个泛指，</blockquote>
+所以不过这些具体节日的人确实可以这么泛泛称呼，但是过这些具体节日的人不行，得叫不混淆的原名。
+
