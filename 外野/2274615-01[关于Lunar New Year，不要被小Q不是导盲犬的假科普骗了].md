@@ -1543,3 +1543,18 @@ LNY和CNY根本不是一个概念，LNY包含了中国春节，越南春节，�
 
 lunar对应月亮（阴历），但我们过的是农历新年，是要阴历基础上补月的，所以压根就不是一个东西<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Demi.Albertini  
+##### 127#       发表于 2026-2-16 08:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69193543&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 01:59</a>
+
+我和你说，这是个很严肃的概念之争，不是说叙不叙事权的问题。类似的现象不是没有，而是有危害。
+
+比如eth ...</blockquote>
+你看……这不就很自然的把中国和台湾，中国春节和越南韩国人的春节分开了吗……什么意思啊？
+
+什么叫自带分裂效果，现在不就是在争统一的话语权嘛，难道你的意思是说各国的春节是自己发明的，而不是从中国春节学去的？
+
