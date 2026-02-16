@@ -628,3 +628,27 @@ tmd，美国怎么成了这个样子<img src="https://static.stage1st.com/image/
 
 脱敏脱了恁多年还是超绝敏感肌<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  飛霞精灵  
+##### 67#       发表于 2026-2-17 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69197901&amp;ptid=2274925" target="_blank">youranchen1 发表于 2026-2-16 22:27</a>
+
+30多年前一首美国歌是**春晚最好的节目，是谁赢了呢</blockquote>
+那还是美国赢了，能出来MJ这种天才。
+
+对了，MJ这种又有爱心又正面的偶像，一定在美国能好好活着寿终正寝、不会被诋毁也不会被药物问题弄死吧？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  琉璃苑軒風  
+##### 68#       发表于 2026-2-17 00:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69198224&amp;ptid=2274925" target="_blank">法皇干政 发表于 2026-2-16 22:51</a>
+
+MJ的外貌有点奇怪，但想不到他是个真好人。</blockquote>
+之前那边骂他恋·童·癖，结果现在两级反转
+
