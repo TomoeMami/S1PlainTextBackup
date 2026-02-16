@@ -3114,3 +3114,11 @@ spring festival：？？？？？
 
 lny 要cny 要chunjie也要
 
+
+*****
+
+####  撸一记  
+##### 256#       发表于 2026-2-16 18:40
+
+Marry chrismas 和 happy holiday 都对，但你不能说圣诞快乐不然就是不包容。话语权都不在自己手上，还不允许别人去争，笑死。
+

@@ -268,3 +268,22 @@
 
 顶着压力拆了俩干扰塔做完主任务慷慨赴死了
 
+
+*****
+
+####  muderx  
+##### 7342#       发表于 2026-2-16 18:42
+
+现在这个版本入坑，按什么顺序买战争债券？用什么战备？刚刚4级。
+
+*****
+
+####  风萧飒  
+##### 7343#       发表于 2026-2-16 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69195511&amp;ptid=2170852" target="_blank">muderx 发表于 2026-2-16 18:42</a>
+现在这个版本入坑，按什么顺序买战争债券？用什么战备？刚刚4级。</blockquote>
+先买民主爆破。战备先解锁补包和榴弹发射器
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
