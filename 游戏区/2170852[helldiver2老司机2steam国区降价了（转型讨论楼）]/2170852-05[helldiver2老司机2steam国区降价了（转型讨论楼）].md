@@ -287,3 +287,14 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  FLZB  
+##### 7344#       发表于 2026-2-16 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69195511&amp;ptid=2170852" target="_blank">muderx 发表于 2026-2-16 18:42</a>
+
+现在这个版本入坑，按什么顺序买战争债券？用什么战备？刚刚4级。</blockquote>
+民主爆破、自由公仆（最后通牒）、化学专家（毒雷），剩下的是凑拼图，基本每个债卷都有一两个能用的东西，但多数只在某种配装或特定情境下才能发挥比较大的作用，看个人喜欢选择
+
