@@ -1492,3 +1492,18 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 试一次死一次
 
+
+*****
+
+####  scikirbypoke  
+##### 120#       发表于 2026-2-16 13:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194473&amp;ptid=2274506" target="_blank">首领 发表于 2026-2-16 12:40</a>
+
+随机事件太残暴了
+
+伊藤润二洞，过了检定猫也会进洞消失
+
+猿猴之手，要技能会给智力变〇被动</blockquote>
+据说进洞的猫以后会带着9个变异回来
+
