@@ -32,3 +32,11 @@
 
 之前主角团有兜底实力的男主、阿京这次也吃了大瘪，玩配合反弹光炮都没打赢蓝毛，观感实在有些差了。看下话预告又可能是蓝毛正式掌握完全体的单回，保不住男主又要接着吃瘪<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 422#       发表于 2026-2-16 14:52
+
+哇，有冰，这就是16+动画
+
