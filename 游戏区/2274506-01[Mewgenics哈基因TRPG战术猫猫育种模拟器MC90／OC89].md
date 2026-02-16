@@ -1550,3 +1550,15 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 屠夫有个天赋是再次攻击受到非自己伤害的临近单位，我有只猫被敌人拱到它旁边被一下打死了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杜文乐超神归来  
+##### 125#       发表于 2026-2-16 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194694&amp;ptid=2274506" target="_blank">scikirbypoke 发表于 2026-2-16 13:53</a>
+射手的哨兵技能升级后变成一回合见移动就打，配合队友强制位移技和多动症boss可实现一回合10+打 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">最变态是带那个暴击击退10格的，暴击击退撞回来触发，暴击击退撞回来触发，暴击率100%就是无限循环
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
