@@ -2357,3 +2357,113 @@ LNY不仅仅是去中国化，它是对人类目前唯一纯粹依靠自然科�
 哦，看来你是承认台湾和大陆不是一个国家咯？</blockquote>
 如果4v独立叫东亚国，你是建议跟进改名东亚国避免分裂，还是打过去纠正？
 
+
+*****
+
+####  Demi.Albertini  
+##### 190#       发表于 2026-2-16 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194253&amp;ptid=2274615" target="_blank">sellboy 发表于 2026-2-16 11:16</a>
+
+如果4v独立叫东亚国，你是建议跟进改名东亚国避免分裂，还是打过去纠正？ ...</blockquote>
+这是一回事吗？脑子抽了吧
+
+*****
+
+####  上帝的爪子  
+##### 191#         楼主| 发表于 2026-2-16 11:19
+
+ 本帖最后由 上帝的爪子 于 2026-2-16 11:20 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194251&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 11:15</a>
+
+哦，看来你是承认台湾和大陆不是一个国家咯？</blockquote>
+我想了想前面，你就是纯粹莫名其妙在抬扛。你这么菜，就不要和别人来扯。
+
+那个图摆明了就是写了美国人为了推行LNY背后带的目的和危害，你扯的是什么意思。
+
+你这还硬生生要扛着说别人搞分裂，实际是你自己一直在为LNY招魂。
+
+好声好气和你解释一通，我大过年的不准备骂人，你就少出来找骂。
+
+*****
+
+####  sellboy  
+##### 192#       发表于 2026-2-16 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194258&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 11:18</a>
+
+这是一回事吗？脑子抽了吧</blockquote>
+分裂是坏事，但分裂不是最坏的事。
+
+*****
+
+####  上帝的爪子  
+##### 193#         楼主| 发表于 2026-2-16 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194264&amp;ptid=2274615" target="_blank">sellboy 发表于 2026-2-16 11:20</a>
+
+分裂是坏事，但分裂不是最坏的事。</blockquote>
+你别上那个**的当，他摆明了就是一直在为LNY招魂。
+
+*****
+
+####  Demi.Albertini  
+##### 194#       发表于 2026-2-16 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194262&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 11:19</a>
+
+我想了想前面，你就是纯粹莫名其妙在抬扛。
+
+你这么菜，就不要和别人来扯。</blockquote>
+你看，宁可疯狂对我哈气，就是不敢承认台湾春节就是中国春节。我可是问了你好几遍了，你每次都是顾左右而言他。
+
+*****
+
+####  qty  
+##### 195#       发表于 2026-2-16 11:21
+
+楼里有个暗搓搓加鹅给两边拱火的负一百多分惯犯脏东西，能不能封了？
+
+*****
+
+####  sellboy  
+##### 196#       发表于 2026-2-16 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194268&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 11:21</a>
+
+你看，宁可疯狂对我哈气，就是不敢承认台湾春节就是中国春节。我可是问了你好几遍了，你每次都是顾左右而 ...</blockquote>
+4v傻逼你要打它，不是跟它一起傻逼。
+
+*****
+
+####  Demi.Albertini  
+##### 197#       发表于 2026-2-16 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194264&amp;ptid=2274615" target="_blank">sellboy 发表于 2026-2-16 11:20</a>
+
+分裂是坏事，但分裂不是最坏的事。</blockquote>
+好嘛，又来了一个台湾网友
+
+
+*****
+
+####  Demi.Albertini  
+##### 198#       发表于 2026-2-16 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194262&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 11:19</a>
+
+我想了想前面，你就是纯粹莫名其妙在抬扛。你这么菜，就不要和别人来扯。
+
+那个图摆明了就是写了美国人为 ...</blockquote>
+你无非就是想说美国人战无不胜，中国人束手无策嘛。美国人说lunar new year分裂，然后有一些牛鬼蛇神跟进，这个词就是分裂啦，你一个西方中心叙事信徒还科普啥啊。
+
+*****
+
+####  上帝的爪子  
+##### 199#         楼主| 发表于 2026-2-16 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194284&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 11:25</a>
+
+你无非就是想说美国人战无不胜，中国人束手无策嘛。美国人说lunar new year分裂，然后有一些牛鬼蛇神跟进 ...</blockquote>
+这就神奇了呀，整个楼下来，LNY是你自己吹得最多的啊？你哪来的脸说别人？
+
