@@ -900,3 +900,28 @@ we are the world  这歌 从精神上 打垮苏联 ，我觉得这个评价是
 
 本来还想这么一首名曲怎么就能戳“人”肺管子，看到20L笑出声了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madbird023  
+##### 89#       发表于 2026-2-17 02:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69198182&amp;ptid=2274925" target="_blank">s1edge 发表于 2026-2-16 22:46</a>
+
+娱乐圈，zf，资本家，齐心协力搞死了mj，现在还有人在泥潭问，到底谁赢了……
+
+忍不住问一句何意味了</blockquote>
+也只有年轻时的奶龙拉了他一把，然而现在也变成这样了，美国毁灭吧
+
+
+*****
+
+####  千代  
+##### 90#       发表于 2026-2-17 02:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199648&amp;ptid=2274925" target="_blank">空き地卯木 发表于 2026-2-17 02:00</a>
+能和MJ写出这样歌词的人,自然是希望冷战之后世界越来越好的理想主义者,在亲眼目睹了美国从黄金时代战胜苏 ...</blockquote>
+我倒是担心接这个单之后他在美国会不会（被）自杀
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
