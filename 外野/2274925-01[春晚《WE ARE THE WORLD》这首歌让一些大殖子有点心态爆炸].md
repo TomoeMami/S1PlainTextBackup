@@ -462,3 +462,21 @@ MJ的外貌有点奇怪，但想不到他是个真好人。
 
 —— 来自 OPPO PKH110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  流浪的使徒  
+##### 48#       发表于 2026-2-16 23:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69198184&amp;ptid=2274925" target="_blank">big9999 发表于 2026-2-16 22:47</a>
+
+比苏联更民主，比美国更自由</blockquote>
+错了，是比苏联更自由，比美国更民主
+
+*****
+
+####  买表大户  
+##### 49#       发表于 2026-2-16 23:11
+
+哇泥潭怎么还有现身说法哈气的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
