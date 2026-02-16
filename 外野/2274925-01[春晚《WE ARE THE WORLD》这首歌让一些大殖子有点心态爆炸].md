@@ -728,3 +728,27 @@ b站现在有春晚版的视频看吗？</blockquote>
 
 —— 来自 OnePlus PJE110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  外挂全家脚气  
+##### 76#       发表于 2026-2-17 00:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199499&amp;ptid=2274925" target="_blank">凡人一名 发表于 2026-2-17 00:53</a>
+
+b站现在有春晚版的视频看吗？</blockquote>
+有切片
+[https://www.bilibili.com/video/BV1npZuBrEZZ/](https://www.bilibili.com/video/BV1npZuBrEZZ/)
+
+*****
+
+####  凡人一名  
+##### 77#       发表于 2026-2-17 00:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199507&amp;ptid=2274925" target="_blank">月白天青 发表于 2026-2-17 00:56</a>
+
+有，直接搜，账号就叫春晚
+
+—— 来自 OnePlus PJE110, Android 16, 鹅球 v3.5.99</blockquote>
+现在搜了，但是在舞台纯享哪里没看到，请问对应那个？
+
