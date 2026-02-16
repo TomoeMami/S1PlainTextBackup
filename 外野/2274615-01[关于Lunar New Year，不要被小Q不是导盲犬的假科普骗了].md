@@ -2925,3 +2925,45 @@ spring festival：？？？？？
 
 难道这就是你所说的分裂不是最坏的事情？难道你的后半句是文化的不纯粹才是最坏的？
 
+
+*****
+
+####  sellboy  
+##### 238#       发表于 2026-2-16 15:18
+
+<blockquote>Demi.Albertini 发表于 2026-2-16 15:11
+把自家的文化传统让给别人无所谓，反正不符合你所谓的科学定义
+
+把文化上的话语权让给别人无所谓，反正不 ...</blockquote>
+你的文化传统是LNY，我的不是，我从科学理解农历认为他也不是。
+
+*****
+
+####  长征5号  
+##### 239#       发表于 2026-2-16 15:20
+
+这就是你们过除夕的方式吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Demi.Albertini  
+##### 240#       发表于 2026-2-16 15:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194951&amp;ptid=2274615" target="_blank">sellboy 发表于 2026-2-16 15:18</a>
+
+你的文化传统是LNY，我的不是，我从科学理解农历认为他也不是。</blockquote>
+所以这就是你宣扬台湾文化分割出来也不要紧的根源么……
+
+
+*****
+
+####  JAROD009  
+##### 241#       发表于 2026-2-16 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69179628&amp;ptid=2274615" target="_blank">隔壁老黄 发表于 2026-2-12 18:55</a>
+能剧狂言歌舞伎，不直接挪用原词，怎么翻译成英文？泥盆欧珀啦吗？鬼佬太多拿来就用的词了</blockquote>
+你解释下饺子豆腐拉面毛豆之类的中国起源物产的拿来就用，为啥都是拿的日语发音？
+
