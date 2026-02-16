@@ -2276,3 +2276,84 @@ LNY不仅仅是去中国化，它是对人类目前唯一纯粹依靠自然科�
 
 2026-2-16 11:07 上传
 
+
+*****
+
+####  sellboy  
+##### 182#       发表于 2026-2-16 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194214&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 11:07</a>
+
+那你的意思是说台湾和中国不是一个国家？所以把台湾春节和中国春节特地分割出来咯？ ...</blockquote>
+分割也比LNY好
+
+哪怕分割了至少没害到自己，未来可以打回去，毒害自己可不行。
+
+*****
+
+####  Demi.Albertini  
+##### 183#       发表于 2026-2-16 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194216&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 11:08</a>
+
+那你说台巴子这么推行LNY是什么目的来着？是不是去中国化？？</blockquote>
+你敢正面回答我的问题嘛？台湾妄图推行去中国化，难道你就可以把台湾春节和中国春节分开并列了？
+
+*****
+
+####  Naaru  
+##### 184#       发表于 2026-2-16 11:12
+
+我怎么在这个帖子里闻到一股皇汉味<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sellboy  
+##### 185#       发表于 2026-2-16 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194227&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 11:11</a>
+
+你敢正面回答我的问题嘛？台湾妄图推行去中国化，难道你就可以把台湾春节和中国春节分开并列了？ ...</blockquote>
+分割也比LNY好
+
+哪怕分割了至少没害到自己，未来可以打回去，毒害自己可不行。
+
+*****
+
+####  上帝的爪子  
+##### 186#         楼主| 发表于 2026-2-16 11:12
+
+ 本帖最后由 上帝的爪子 于 2026-2-16 11:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194227&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 11:11</a>
+
+你敢正面回答我的问题嘛？台湾妄图推行去中国化，难道你就可以把台湾春节和中国春节分开并列了？ ...</blockquote>
+哦，看来你也承认LNY带有分裂的意思了。既然有这意思，还能当宝了，你这病的不轻啊。
+
+*****
+
+####  Rapture1st  
+##### 187#       发表于 2026-2-16 11:12
+
+蛙岛贱畜推广LNY当然是为了回归祖**亲怀抱啦 这都不懂
+
+
+*****
+
+####  Demi.Albertini  
+##### 188#       发表于 2026-2-16 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194234&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 11:12</a>
+
+哦，看来你也承认LNY带有分裂的意思了。既然有这意思，还能当宝了，你这病的不轻啊。 ...</blockquote>
+哦，看来你是承认台湾和大陆不是一个国家咯？
+
+*****
+
+####  sellboy  
+##### 189#       发表于 2026-2-16 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194251&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 11:15</a>
+
+哦，看来你是承认台湾和大陆不是一个国家咯？</blockquote>
+如果4v独立叫东亚国，你是建议跟进改名东亚国避免分裂，还是打过去纠正？
+
