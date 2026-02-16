@@ -394,3 +394,16 @@ c妈怒砍两分<img src="https://static.stage1st.com/image/smiley/face2017/067.
 
 老乡锐评老乡太不给面子了
 
+
+*****
+
+####  khxooo  
+##### 20546#       发表于 2026-2-16 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69195366&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2026-2-16 17:39</a>
+
+c妈怒砍两分
+
+老乡锐评老乡太不给面子了</blockquote>
+不怪C妈发飙，真是这群希腊神不做人
+
