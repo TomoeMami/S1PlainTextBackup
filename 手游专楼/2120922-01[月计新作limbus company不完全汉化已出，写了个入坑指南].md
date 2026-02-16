@@ -30,3 +30,42 @@
 
 属实没绷住
 
+
+*****
+
+####  Jamaisvu  
+##### 1233#       发表于 2026-2-16 17:42
+
+传奇堆料人格——食指箱/里箱。
+
+一个人格，三页说明，五个技能，七个词条，九种武器：
+
+<img src="https://img.stage1st.com/forum/202602/16/174114wd10xxcdp1ia2j1k.jpg" referrerpolicy="no-referrer">
+
+<strong>1771234524214.jpg</strong> (419.28 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-16 17:41 上传
+
+<img src="https://img.stage1st.com/forum/202602/16/174114tiwyx1xdcbmxefcm.jpg" referrerpolicy="no-referrer">
+
+<strong>1771234533444.jpg</strong> (422.49 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-16 17:41 上传
+
+<img src="https://img.stage1st.com/forum/202602/16/174115nmx8mx4u9urtjbgz.jpg" referrerpolicy="no-referrer">
+
+<strong>1771234549627.jpg</strong> (534.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-16 17:41 上传
+
+小金太厚道了，有素材是真给玩家用啊。
+
