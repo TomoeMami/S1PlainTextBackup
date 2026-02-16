@@ -1614,3 +1614,56 @@ lunar对应月亮（阴历），但我们过的是农历新年，是要阴历基
 
 这就好比咱们说朝鲜战争，美国人或者反贼喜欢说韩战这个意思。不同的表达用词，代表了不同的意识形态。
 
+
+*****
+
+####  JOHNCHCHAN  
+##### 133#       发表于 2026-2-16 09:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69193543&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 01:59</a>
+我和你说，这是个很严肃的概念之争，不是说叙不叙事权的问题。类似的现象不是没有，而是有危害。
+
+比如eth ...</blockquote>
+什么叫中国春节台湾春节，贼喊捉贼
+
+*****
+
+####  霖星  
+##### 134#       发表于 2026-2-16 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69193935&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 09:41</a>
+
+我稍微做个图，明白这个是什么意思吗？LNY这个词，本身就是个美国文化中心主义的的词，最早开始使用是8 ...</blockquote>
+所以说你还是西方人叙事那一套，遵从他们的定义
+
+要争夺话语权就要无视他们的说法，啥都是我们的才对
+
+*****
+
+####  上帝的爪子  
+##### 135#         楼主| 发表于 2026-2-16 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69193958&amp;ptid=2274615" target="_blank">霖星 发表于 2026-2-16 09:49</a>
+
+所以说你还是西方人叙事那一套，遵从他们的定义
+
+要争夺话语权就要无视他们的说法，啥都是我们的才对 ...</blockquote>
+这就是我要强调的点啊，
+
+你想占用LNY，那自然就进了美国人的概念陷阱啊。
+
+
+*****
+
+####  Demi.Albertini  
+##### 136#       发表于 2026-2-16 09:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69193935&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 09:41</a>
+
+我稍微做个图，明白这个是什么意思吗？LNY这个词，本身就是个美国文化中心主义的的词，最早开始使用是8 ...</blockquote>
+凭什么他就是美国文化中心主义的词了，因为是英文写的？他说解构就解构了？你这不就是西方中心叙事？
+
+明明我们现在就是在反西方中心叙事之下来重新定义这个词，你却要把他甩出去，什么意思？
+
+还有，你解释一下中国春节和台湾春节为啥要分开来。越南新年和韩国新年难道和中国不是同一天？同一种习俗？名字不一样他就不一样了？
+
