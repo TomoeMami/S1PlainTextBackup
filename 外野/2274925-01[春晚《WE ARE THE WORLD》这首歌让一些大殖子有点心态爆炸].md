@@ -892,3 +892,11 @@ we are the world  这歌 从精神上 打垮苏联 ，我觉得这个评价是
 
 这个世界终究是物质支撑的，再唯心逃避现实，最终还是要面对现实的
 
+
+*****
+
+####  qsjs  
+##### 88#       发表于 2026-2-17 02:39
+
+本来还想这么一首名曲怎么就能戳“人”肺管子，看到20L笑出声了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
