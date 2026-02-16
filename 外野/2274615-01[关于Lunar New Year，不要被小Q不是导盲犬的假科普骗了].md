@@ -2715,3 +2715,13 @@ lunar new year这个词的定义应该听谁的。
 他要论证的就是，只要老中下场，就必定会面临越南韩国日本台湾背后的那个日薄西山的美国，以及几十年没有过世界范围任何文化产出的**教派联合围堵，然后输输输
 所以中国必须避开任何的议题设置，千军万马避白袍地避开LUNAR NEW year，这样才能在各国围剿下苟延残喘
 
+
+*****
+
+####  jackyhuang  
+##### 219#       发表于 2026-2-16 14:05
+
+已经到互相扣帽子阶段了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
