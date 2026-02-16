@@ -652,3 +652,29 @@ tmd，美国怎么成了这个样子<img src="https://static.stage1st.com/image/
 MJ的外貌有点奇怪，但想不到他是个真好人。</blockquote>
 之前那边骂他恋·童·癖，结果现在两级反转
 
+
+*****
+
+####  达达达达葱  
+##### 69#       发表于 2026-2-17 00:41
+
+<blockquote>Jobtownb 发表于 2026-2-16 22:17
+苏联的大旗我们接了，美国的大旗我们也接了
+
+天命昭昭
+</blockquote>
+加上我们自己本来自己也有一面旗
+
+*****
+
+####  长征5号  
+##### 70#       发表于 2026-2-17 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69197901&amp;ptid=2274925" target="_blank">youranchen1 发表于 2026-2-16 22:27</a>
+30多年前一首美国歌是**春晚最好的节目，是谁赢了呢</blockquote>
+清末，当洋大人握着指南针开着海船，拿着用活字印刷术在造纸术改良下成本平民化的白纸上印刷的《圣经》，对着天朝的土地将火药包和炮弹塞入铸铁的炮管并点燃印信的时候，是不是算这个拥有四大发明的东方帝国赢？
+
+攻守之势易也！<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
