@@ -1595,3 +1595,20 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 盗贼太离谱了，我还有个忍者头巾，杀敌回移动，一回合打七八下。
 刚打完月球，打到后面回合才知道打这boss是让他扇巴掌<img src="https://p.sda1.dev/30/fda18146b7777273fb6b2e3f742441c2/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fireflies  
+##### 130#       发表于 2026-2-17 01:49
+
+出门就能组合技了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，灵魂碎裂被动加生成漂浮玻璃，灵能拉一下一回合结束了
+
+20260217014509_1.jpg
+(358.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-17 01:47 上传
+
+<img src="https://img.stage1st.com/forum/202602/17/014704fumv6orygjyjzogo.jpg" referrerpolicy="no-referrer">
+
