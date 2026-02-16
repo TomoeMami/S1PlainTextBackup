@@ -2467,3 +2467,68 @@ LNY不仅仅是去中国化，它是对人类目前唯一纯粹依靠自然科�
 你无非就是想说美国人战无不胜，中国人束手无策嘛。美国人说lunar new year分裂，然后有一些牛鬼蛇神跟进 ...</blockquote>
 这就神奇了呀，整个楼下来，LNY是你自己吹得最多的啊？你哪来的脸说别人？
 
+
+*****
+
+####  sellboy  
+##### 200#       发表于 2026-2-16 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194279&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 11:23</a>
+
+好嘛，又来了一个台湾网友</blockquote>
+你如果觉得分裂是最坏的事，就是回答改名东亚国嘛
+
+
+*****
+
+####  Demi.Albertini  
+##### 201#       发表于 2026-2-16 11:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194291&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 11:27</a>
+
+这就神奇了呀，整个楼下来，LNY是你自己吹得最多的啊？你哪来的脸说别人？别人是避之不及，你能甘之如饴， ...</blockquote>
+你一个美狗+蛙毒就别来哈气了好嘛。
+
+*****
+
+####  上帝的爪子  
+##### 202#         楼主| 发表于 2026-2-16 11:31
+
+ 本帖最后由 上帝的爪子 于 2026-2-16 11:32 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194300&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 11:30</a>
+
+你一个美狗+蛙毒就别来哈气了好嘛。</blockquote>
+急了急了，这又加了个美狗，台巴子原来这么喜欢LNY，看来科普一下LNY的危害能让台巴子破防啊，那我更得推广LNY的危害了。
+
+*****
+
+####  飞车飞车  
+##### 203#       发表于 2026-2-16 11:32
+
+<img src="https://img.stage1st.com/forum/202602/16/113224a5s3xrzasn35isrw.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4621.jpeg</strong> (256.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-16 11:32 上传
+
+
+*****
+
+####  Demi.Albertini  
+##### 204#       发表于 2026-2-16 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194302&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 11:31</a>
+
+急了急了，这又加了个美狗，台巴子原来这么喜欢LNY，看来科普一下LNY的危害能让台巴子破防啊，那我更得推 ...</blockquote>
+你越说就暴露自己的成分越多，实在不敢正面回答，索性就对我哈气，你们这群人不都这样嘛。
+
+*****
+
+####  sellboy  
+##### 205#       发表于 2026-2-16 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194304&amp;ptid=2274615" target="_blank">飞车飞车 发表于 2026-2-16 11:32</a></blockquote>
+本来这次讨论的起因就是国内出现了改名东亚国的傻逼人呀。
+
