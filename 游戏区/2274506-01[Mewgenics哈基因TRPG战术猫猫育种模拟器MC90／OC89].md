@@ -1403,3 +1403,17 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 去终焉装发射天线这任务怎么做啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，所有技能用过之后都会被随机替代，那岂不是全废了？
 
+
+*****
+
+####  harry3  
+##### 112#       发表于 2026-2-16 08:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69190241&amp;ptid=2274506" target="_blank">慕兰 发表于 2026-2-15 01:07</a>
+
+看群友发的无限sl大法，切steam点关闭游戏，再切回游戏，游戏内点否。亲测可用 ...</blockquote>
+不用那么麻烦，以撒同款打开命令行<blockquote>taskkill /f /im Mewgenics.exe</blockquote>
+杀掉游戏就没有steve，
+
+刚学会了感觉实力暴增口阿
+
