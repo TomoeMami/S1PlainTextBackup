@@ -1589,3 +1589,28 @@ lunar对应月亮（阴历），但我们过的是农历新年，是要阴历基
 
 就应该直接叫Chunjie，你看咱给外国节日翻译的多高大上“圣诞节”，咋不叫美国春节呢，就该直接给个概念具体啥意思让老外自己查去
 
+
+*****
+
+####  上帝的爪子  
+##### 132#         楼主| 发表于 2026-2-16 09:41
+
+ 本帖最后由 上帝的爪子 于 2026-2-16 09:45 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69193814&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 08:52</a>
+
+你看……这不就很自然的把中国和台湾，中国春节和越南韩国人的春节分开了吗……什么意思啊？
+
+什么叫自带分 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202602/16/094021tv3iprr1mr1xr88x.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202602/16/094021tv3iprr1mr1xr88x.png">
+
+<strong>980.png</strong> (20.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-16 09:40 上传
+
+我稍微做个图，明白这个是什么意思吗？LNY这个词，本身就是个美国文化中心主义的的词，最早开始使用是80年代才开始的，不是什么约定俗成，本身就是用来解构Chinese  New Year的。
+
+这就好比咱们说朝鲜战争，美国人或者反贼喜欢说韩战这个意思。不同的表达用词，代表了不同的意识形态。
+
