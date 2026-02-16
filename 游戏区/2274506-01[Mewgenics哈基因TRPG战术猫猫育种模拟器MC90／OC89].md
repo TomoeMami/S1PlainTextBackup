@@ -1515,3 +1515,14 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 射手的哨兵技能升级后变成一回合见移动就打，配合队友强制位移技和多动症boss可实现一回合10+打
 
+
+*****
+
+####  wwddrte  
+##### 122#       发表于 2026-2-16 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69193997&amp;ptid=2274506" target="_blank">harry3 发表于 2026-2-16 10:03</a>
+
+加成是什么情况啊，为什么点了法爷喵喵导弹那个无限距离普攻，上面写的伤害随智力scale，10智力了还是5点伤 ...</blockquote>
+法师普攻涨了应该是因为敏捷涨了，它同时被视作物理和魔法攻击
+
