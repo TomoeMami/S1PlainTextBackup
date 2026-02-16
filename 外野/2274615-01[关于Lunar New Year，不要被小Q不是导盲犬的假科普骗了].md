@@ -1968,3 +1968,76 @@ lunar对应月亮（阴历），但我们过的是农历新年，是要阴历基
 在19和20世纪的时候，只是个泛指，</blockquote>
 所以不过这些具体节日的人确实可以这么泛泛称呼，但是过这些具体节日的人不行，得叫不混淆的原名。
 
+
+*****
+
+####  sellboy  
+##### 160#       发表于 2026-2-16 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194088&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 10:33</a>
+
+如果是泛指就把他变成特指，如果是妄图拿来去中国化，就更应该让它中国化，多简单的事啊。闭着眼睛甩出去那 ...</blockquote>
+凭什么让LNY中国化？且不论农历不是阴历，真论阴历新年的定义资格，有用伊历的人多么？
+
+
+*****
+
+####  上帝的爪子  
+##### 161#         楼主| 发表于 2026-2-16 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194096&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 10:34</a>
+
+行了，你的成分我看懂了，台湾网友</blockquote>
+你不是有自信夺回美国人的定义权吗？
+
+我再给你看这三个截图，
+
+<img src="https://img.stage1st.com/forum/202602/16/104108yjttvh43gyg2z5ul.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="683" zoomfile="https://img.stage1st.com/forum/202602/16/104108yjttvh43gyg2z5ul.png">
+
+<strong>358.png</strong> (54.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-16 10:41 上传
+
+<img src="https://img.stage1st.com/forum/202602/16/104126wg4u3upyg9805oo5.png" referrerpolicy="no-referrer">
+
+<strong>054.png</strong> (41.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-16 10:41 上传
+
+<img src="https://img.stage1st.com/forum/202602/16/104108ti3io6ofaoi47ohi.png" referrerpolicy="no-referrer">
+
+<strong>359.png</strong> (54.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-16 10:41 上传
+
+你能明白这三个不同新闻里的民族主义分别是什么意思不？
+
+*****
+
+####  Demi.Albertini  
+##### 162#       发表于 2026-2-16 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194122&amp;ptid=2274615" target="_blank">sellboy 发表于 2026-2-16 10:41</a>
+
+凭什么让LNY中国化？且不论农历不是阴历，真论阴历新年的定义资格，有用伊历的人多么？
+
+ ...</blockquote>
+因为我们文化强大了，自信了，自然就应该有重新定义的能力。就好像以前西方文化强势，周边小国就妄图用一个新词来解构中国的传统文化一样。我们现在就应该要把这些东西归于一统。
+
+
+*****
+
+####  sellboy  
+##### 163#       发表于 2026-2-16 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194133&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 10:43</a>
+
+因为我们文化强大了，自信了，自然就应该有重新定义的能力。就好像以前西方文化强势，周边小国就妄图用一 ...</blockquote>
+侵占一个伪名，有点出息行不行？
+
