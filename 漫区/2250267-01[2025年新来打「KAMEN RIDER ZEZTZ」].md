@@ -257,3 +257,15 @@ nox和lady明显知道莫的噩梦，灾厄形态估计都在意料之中，不�
 
 另外分享个红迪看到的有过度解读:莫在日本还有个发音是moku，code发音kodo，连起来是kodomo，谐音儿童。zzz近几个月一直提到了儿童要素。99%是巧合，但蛮有意思的
 
+
+*****
+
+####  blue321  
+##### 697#       发表于 2026-2-16 13:00
+
+能说浩劫这初登场表现力比去年超越表现力好吗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不过现实中非要拿手枪补刀是有什么讲究吗，还是单纯想表现“真死人”了…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
