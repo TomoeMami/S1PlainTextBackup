@@ -1833,3 +1833,57 @@ lunar对应月亮（阴历），但我们过的是农历新年，是要阴历基
 
 拿去线下问问周边的人，估计问上100个都找不到一个知道这是啥玩意的
 
+
+*****
+
+####  上帝的爪子  
+##### 148#         楼主| 发表于 2026-2-16 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194009&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 10:05</a>
+
+那看来你还挺笃信西方中心叙事的强大的。我倒是一点也不信。我觉得迟早lunar new year不会成为争议的焦点 ...</blockquote>
+那这里，我问你一个问题哈，你认为二战起始点或者标志性事件是从哪一年开始算的？
+
+*****
+
+####  Demi.Albertini  
+##### 149#       发表于 2026-2-16 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194046&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 10:19</a>
+
+那这里，我问你一个问题哈，你认为二战起始点或者标志性事件是从哪一年开始算的？
+
+ ...</blockquote>
+这位台湾网友，在东拉西扯之前请先回答一下之前那个台湾春节是怎么回事好吗？
+
+*****
+
+####  上帝的爪子  
+##### 150#         楼主| 发表于 2026-2-16 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194055&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 10:22</a>
+
+这位台湾网友，在东拉西扯之前请先回答一下之前那个台湾春节是怎么回事好吗？ ...</blockquote>
+笑死了，你看吧，你还说别人相信西方中心叙事的强大呢，你这一点辨析能力也没有。
+
+
+*****
+
+####  Demi.Albertini  
+##### 151#       发表于 2026-2-16 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194059&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 10:23</a>
+
+笑死了，你看吧，你还说别人相信西方中心叙事的强大呢，你这一点辨析能力也没有。我不是发了新闻咯？是不 ...</blockquote>
+不敢正面回复？你把中国春节和台湾春节并列放一起是什么意思啊？
+
+*****
+
+####  上帝的爪子  
+##### 152#         楼主| 发表于 2026-2-16 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194064&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 10:26</a>
+
+不敢正面回复？你把中国春节和台湾春节并列放一起是什么意思啊？</blockquote>
+你是真傻还是装傻？台巴子从几年前开始去不用CNY，而改用LNY来去中国化了，你还不明白？
+
