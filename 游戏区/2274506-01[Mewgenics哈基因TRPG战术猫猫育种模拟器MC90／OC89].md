@@ -1612,3 +1612,22 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 <img src="https://img.stage1st.com/forum/202602/17/014704fumv6orygjyjzogo.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Awanano  
+##### 131#       发表于 2026-2-17 07:33
+
+ 本帖最后由 Awanano 于 2026-2-17 07:37 编辑 
+
+最难受的一把，本来出门即成型的一局结果走错路了选到actI，遗憾解锁一个内容
+
+20260216170926_1.jpg
+(565.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-17 07:36 上传
+
+<img src="https://img.stage1st.com/forum/202602/17/073658qif4bfkdqd7cfcvi.jpg" referrerpolicy="no-referrer">
+
