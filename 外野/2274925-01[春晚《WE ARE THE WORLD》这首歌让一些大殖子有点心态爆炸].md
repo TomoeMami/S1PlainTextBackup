@@ -815,3 +815,61 @@ MJ如果无恙，
 
 来春晚唱这首才是巨大攻势<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zmw_831110  
+##### 83#       发表于 2026-2-17 01:36
+
+上X看了下
+
+人气最高的是机器人功夫表演那个节目
+
+谁说他们唯心的,明明很唯物啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202602/17/013638bboxkzxk5xcxqfb4.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-02-17_013607_318.jpg</strong> (244.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-17 01:36 上传
+
+<img src="https://img.stage1st.com/forum/202602/17/013638vb9fa21u00tatufg.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-02-17_013554_761.jpg</strong> (200.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-17 01:36 上传
+
+<img src="https://img.stage1st.com/forum/202602/17/013638f62dr9dtd6dixqt4.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-02-17_013533_709.jpg</strong> (186.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-17 01:36 上传
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 84#       发表于 2026-2-17 01:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69197745&amp;ptid=2274925" target="_blank">smiths146 发表于 2026-2-16 22:15</a>
+
+we are the world  这歌 从精神上 打垮苏联 ，我觉得这个评价是名至实归的，41年从黄金美国从灯塔堕落到现 ...</blockquote>
+这歌不是为了给非洲难民筹款吗
+
+
+*****
+
+####  liquer  
+##### 85#       发表于 2026-2-17 01:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199618&amp;ptid=2274925" target="_blank">卡奥斯·克斯拉 发表于 2026-2-17 01:38</a>
+这歌不是为了给非洲难民筹款吗</blockquote>
+埃塞俄比亚饥荒本质上是埃塞俄比亚被美苏拉锯后撕裂内战的恶果的延续
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
