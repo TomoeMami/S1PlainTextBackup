@@ -299,3 +299,13 @@ nox和lady明显知道莫的噩梦，灾厄形态估计都在意料之中，不�
 
 这集脸嫩的像开了美颜
 
+
+*****
+
+####  暗黑能乐  
+##### 701#       发表于 2026-2-16 22:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">诺克斯非说啥永恒的沉眠，感觉也不像真杀了
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
