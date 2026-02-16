@@ -417,3 +417,14 @@ c妈怒砍两分
 不怪C妈发飙，真是这群希腊神不做人</blockquote>
 杀孩子也是C妈自愿自导还跟爽。不会是蘑菇洗得太白以为C妈纯无辜，伊尔森纯渣男吧
 
+
+*****
+
+####  khxooo  
+##### 20548#       发表于 2026-2-16 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69196724&amp;ptid=2084912" target="_blank">cenhr 发表于 2026-2-16 21:09</a>
+
+杀孩子也是C妈自愿自导还跟爽。不会是蘑菇洗得太白以为C妈纯无辜，伊尔森纯渣男吧 ...</blockquote>
+好吧，是我忘记原典了。
+
