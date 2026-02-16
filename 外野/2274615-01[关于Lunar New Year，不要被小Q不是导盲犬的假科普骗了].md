@@ -1535,3 +1535,11 @@ LNY和CNY根本不是一个概念，LNY包含了中国春节，越南春节，�
 
 藏历新年losar，蒙古新年Tsagaan Sar，台湾春节能和中国春节一起并列吗？就是瞎扯淡的。
 
+
+*****
+
+####  永远的访客  
+##### 126#       发表于 2026-2-16 08:35
+
+lunar对应月亮（阴历），但我们过的是农历新年，是要阴历基础上补月的，所以压根就不是一个东西<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
