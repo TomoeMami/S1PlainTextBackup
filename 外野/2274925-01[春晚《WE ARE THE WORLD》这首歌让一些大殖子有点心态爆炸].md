@@ -752,3 +752,56 @@ b站现在有春晚版的视频看吗？</blockquote>
 —— 来自 OnePlus PJE110, Android 16, 鹅球 v3.5.99</blockquote>
 现在搜了，但是在舞台纯享哪里没看到，请问对应那个？
 
+
+*****
+
+####  RYURYUTA  
+##### 78#       发表于 2026-2-17 01:07
+
+感慨啊
+
+<img src="https://img.stage1st.com/forum/202602/17/010727yoik8a3iaozuka8i.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6744.PNG</strong> (490.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-17 01:07 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  SH-gpj  
+##### 79#       发表于 2026-2-17 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69197901&amp;ptid=2274925" target="_blank">youranchen1 发表于 2026-2-16 22:27</a>
+
+30多年前一首美国歌是**春晚最好的节目，是谁赢了呢</blockquote>
+除夕喜欢死马，就自己在家里慢慢死，不要出来恶心大家，谢谢<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月白天青  
+##### 80#       发表于 2026-2-17 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199523&amp;ptid=2274925" target="_blank">凡人一名 发表于 2026-2-17 00:59</a>
+现在搜了，但是在舞台纯享哪里没看到，请问对应那个？</blockquote>
+我手机搜的
+<img src="https://p.sda1.dev/30/cc66d0adfc6a7c8dcee3a955340341d2/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJE110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  bt4ever  
+##### 81#       发表于 2026-2-17 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199523&amp;ptid=2274925" target="_blank">凡人一名 发表于 2026-2-17 00:59</a>
+现在搜了，但是在舞台纯享哪里没看到，请问对应那个？</blockquote>
+【《世界义乌中国年》在义乌分会场 过一个满载而归的中国年！【总台春晚】-哔哩哔哩】 https://b23.tv/Y5yzDK3
+5:31
+
+—— 来自 vivo V2324HA, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
