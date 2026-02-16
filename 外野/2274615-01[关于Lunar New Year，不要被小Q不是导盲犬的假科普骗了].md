@@ -2041,3 +2041,113 @@ lunar对应月亮（阴历），但我们过的是农历新年，是要阴历基
 因为我们文化强大了，自信了，自然就应该有重新定义的能力。就好像以前西方文化强势，周边小国就妄图用一 ...</blockquote>
 侵占一个伪名，有点出息行不行？
 
+
+*****
+
+####  上帝的爪子  
+##### 164#         楼主| 发表于 2026-2-16 10:48
+
+ 本帖最后由 上帝的爪子 于 2026-2-16 10:49 编辑 
+
+已经有了Chinese  New Year，还要个伪名，真是莫名其妙。
+
+现在中国再怎么样强大，都不会去用Shina一样。
+
+本身就带着去中国化的词义，还去捡回来，所以说信小Q的粉丝脑袋都是有坑的。
+
+*****
+
+####  Demi.Albertini  
+##### 165#       发表于 2026-2-16 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194139&amp;ptid=2274615" target="_blank">sellboy 发表于 2026-2-16 10:45</a>
+
+侵占一个伪名，有点出息行不行？</blockquote>
+什么叫伪？伪不伪谁说了算？遇到文化侵略，不去主动斗争，反而搞起闭关锁国，自我规训起来了，像话吗。
+
+*****
+
+####  sellboy  
+##### 166#       发表于 2026-2-16 10:50
+
+1、中国农历不是阴历，阴历的代表是伊历，名字不要瞎占。
+
+2、因为天文基准不同各国农历也不是一个历法，真不爽要做的是打到周边农历用户改天文基准，变成类似公历的以为准自己加偏移量的模式，但在这之前，各国农历就是不同历法。
+
+目前大年初一最合适的国际称呼就是中国新年，比春节这个立春搬过来的名字更适合。
+
+*****
+
+####  Demi.Albertini  
+##### 167#       发表于 2026-2-16 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194126&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 10:42</a>
+
+你不是有自信夺回美国人的定义权吗？
+
+我再给你看这三个截图，</blockquote>
+你的意思就是说中国人面对西方的文化侵略一定会输咯？
+
+*****
+
+####  Demi.Albertini  
+##### 168#       发表于 2026-2-16 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194157&amp;ptid=2274615" target="_blank">sellboy 发表于 2026-2-16 10:50</a>
+
+1、中国农历不是阴历，阴历的代表是伊历，名字不要瞎占。
+
+2、因为天文基准不同各国农历也不是一个历法，真 ...</blockquote>
+农历不是阴历而是阴阳合历的说法起势不过10年，以前在大众认知里农历就是阴历。究其原因就是你们没搞懂民间通俗叫法和它本身定义的区别。
+
+*****
+
+####  sellboy  
+##### 169#       发表于 2026-2-16 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194154&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 10:49</a>
+
+什么叫伪？伪不伪谁说了算？遇到文化侵略，不去主动斗争，反而搞起闭关锁国，自我规训起来了，像话吗。 ...</blockquote>
+历法首先是一门科学。
+
+而完全由天文观测定义的农历更是极致的毫无妥协的自然科学。
+
+LNY这种伪名，我的建议是碰都别碰，脏。
+
+
+*****
+
+####  上帝的爪子  
+##### 170#         楼主| 发表于 2026-2-16 10:55
+
+ 本帖最后由 上帝的爪子 于 2026-2-16 10:56 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194162&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 10:52</a>
+
+农历不是阴历而是阴阳合历的说法起势不过10年，以前在大众认知里农历就是阴历。究其原因就是你们没搞懂民 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202602/16/105416bqvtz2oo6q2m2cfq.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202602/16/105416bqvtz2oo6q2m2cfq.png">
+
+<strong>054.png</strong> (528.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-16 10:54 上传
+
+我把1900年到1963年，这60年间，英国和美国报纸里，使用的Chinese New Year和Lunar New Year做个对比。
+
+Chinese New Year一直是主流，甚至到了现在依然是主流，也就你和小Q还能把Lunar New Year当个宝。
+
+*****
+
+####  Demi.Albertini  
+##### 171#       发表于 2026-2-16 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194164&amp;ptid=2274615" target="_blank">sellboy 发表于 2026-2-16 10:52</a>
+
+历法首先是一门科学。
+
+而完全由天文观测定义的农历更是极致的毫无妥协的自然科学。
+
+LNY这种伪名，我的建 ...</blockquote>
+传统历法至今已经发展成为了一种民间习俗，早已融入了文化层面。不要把放弃斗争美化成一种文化洁癖，没有意义。
+
