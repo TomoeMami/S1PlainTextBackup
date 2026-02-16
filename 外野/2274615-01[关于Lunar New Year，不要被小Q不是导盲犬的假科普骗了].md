@@ -2532,3 +2532,11 @@ LNY不仅仅是去中国化，它是对人类目前唯一纯粹依靠自然科�
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194304&amp;ptid=2274615" target="_blank">飞车飞车 发表于 2026-2-16 11:32</a></blockquote>
 本来这次讨论的起因就是国内出现了改名东亚国的傻逼人呀。
 
+
+*****
+
+####  foolyu  
+##### 206#       发表于 2026-2-16 11:46
+
+对英语这坨屎山代码，直译为chunjie是最尊重其历史传统的，CNY/SP/LNY在牢美看来多少有点僭越了
+
