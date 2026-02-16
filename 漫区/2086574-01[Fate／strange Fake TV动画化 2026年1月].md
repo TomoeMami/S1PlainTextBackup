@@ -1308,3 +1308,14 @@ fgo总算解释了海无力为啥是人类而不是飞船
 —— 来自 Xiaomi 24122RKC7C, A ...</blockquote>
 当纯电池
 
+
+*****
+
+####  大十字紅朔  
+##### 1013#       发表于 2026-2-17 00:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69187179&amp;ptid=2086574" target="_blank">Vneeto 发表于 2026-2-14 11:33</a>
+
+这作品里一直称呼美国为合众国/这片大地/这个国家，我还以为他在有意回避现实的美国，结果最新一集直接叫美 ...</blockquote>
+这片大地
+
