@@ -992,3 +992,16 @@ we are the world  这歌 从精神上 打垮苏联 ，我觉得这个评价是
 是后来事故毁了容，整容没搞好。然后还叠加了白癜风</blockquote>
 记得当年黑他的还说他是故意漂白想做白人，是漂白失败才变成那样的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  武川日玄  
+##### 98#       发表于 2026-2-17 04:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199601&amp;ptid=2274925" target="_blank">爱撕衣魔刃 发表于 2026-2-17 01:31</a>
+
+MJ如果无恙， 
+
+来春晚唱这首才是巨大攻势</blockquote>
+然后不知哪里消息传出MJ娈童，移花接木还施彼身？
+
