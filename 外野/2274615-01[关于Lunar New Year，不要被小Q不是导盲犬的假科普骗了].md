@@ -1667,3 +1667,109 @@ lunar对应月亮（阴历），但我们过的是农历新年，是要阴历基
 
 还有，你解释一下中国春节和台湾春节为啥要分开来。越南新年和韩国新年难道和中国不是同一天？同一种习俗？名字不一样他就不一样了？
 
+
+*****
+
+####  上帝的爪子  
+##### 137#         楼主| 发表于 2026-2-16 09:56
+
+ 本帖最后由 上帝的爪子 于 2026-2-16 09:58 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69193965&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 09:52</a>
+
+凭什么他就是美国文化中心主义的词了，因为是英文写的？他说解构就解构了？你这不就是西方中心叙事？
+
+明 ...</blockquote>
+你没明白这个点吗？LNY是个概念陷阱！根本不存在什么你有本事占用的情形。
+
+你用了LNY，就代表着去中国中心化，这么明显的点，怎么就理解不来。
+
+你看台巴子这个新闻，好不好理解啊？
+
+<img src="https://img.stage1st.com/forum/202602/16/095558ipwa9fjttpjjm0za.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="590" zoomfile="https://img.stage1st.com/forum/202602/16/095558ipwa9fjttpjjm0za.png">
+
+<strong>357.png</strong> (183.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-16 09:55 上传
+
+*****
+
+####  霖星  
+##### 138#       发表于 2026-2-16 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69193962&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 09:51</a>
+
+这就是我要强调的点，
+
+你想宣称并且占用LNY，那自然就进了美国人的概念陷阱啊。 ...</blockquote>
+以国人在互联网上的体量上来说
+
+我们并不需要去主动强占某些词语
+
+只要不禁止，网上多多使用，那么这个东西就能慢慢变成我们的
+
+*****
+
+####  隔壁老黄  
+##### 139#       发表于 2026-2-16 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69193977&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 09:56</a>
+你没明白这个点吗？LNY是个概念陷阱！根本不存在什么你有本事占用的情形。
+
+你用了LNY，就代表着去中国中 ...</blockquote>
+那还不是因为你觉得西方掌握定义权
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Demi.Albertini  
+##### 140#       发表于 2026-2-16 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69193977&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 09:56</a>
+
+你没明白这个点吗？LNY是个概念陷阱！根本不存在什么你有本事占用的情形。
+
+你用了LNY，就代表着去中国中 ...</blockquote>
+狗屁个概念陷阱，凭什么lunar new year代表着去中国中心化？因为是美国人发明的？我就问了，lunar new year是不是代表着农历正月初一这一天？是不是根据中国传统习俗来的？既然如此凭啥不能由我们自己重新定义，非要跟着美国人说的东西走？
+
+
+*****
+
+####  上帝的爪子  
+##### 141#         楼主| 发表于 2026-2-16 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69193984&amp;ptid=2274615" target="_blank">霖星 发表于 2026-2-16 09:58</a>
+
+以国人在互联网上的体量上来说
+
+我们并不需要去主动强占某些词语
+
+只要不禁止，网上多多使用，那么这个东西 ...</blockquote>
+这点我和你持相反态度，
+
+类似这样的词，国内一点招架的能力都没有。
+
+除了LNY和CNY的区别，王朝—帝国，民族—族群，这区别能理解背后的危害性吗？这种少之又少。
+
+*****
+
+####  上帝的爪子  
+##### 142#         楼主| 发表于 2026-2-16 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69193989&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 09:59</a>
+
+狗屁个概念陷阱，凭什么lunar new year代表着去中国中心化？因为是美国人发明的？我就问了，lunar new ye ...</blockquote>
+因为国内面对美国人这种概念输出，一点反击的能力也没有，还自定义，纯粹自欺欺人。
+
+*****
+
+####  Demi.Albertini  
+##### 143#       发表于 2026-2-16 10:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194001&amp;ptid=2274615" target="_blank">上帝的爪子 发表于 2026-2-16 10:04</a>
+
+因为国内对面美国人这种概念输出，一点反击的能力也没有，还自定义，纯粹自欺欺人。 ...</blockquote>
+那看来你还挺笃信西方中心叙事的强大的。
+
