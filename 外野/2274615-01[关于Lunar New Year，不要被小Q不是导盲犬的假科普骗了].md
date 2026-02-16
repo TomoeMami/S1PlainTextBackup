@@ -3122,3 +3122,30 @@ lny 要cny 要chunjie也要
 
 Marry chrismas 和 happy holiday 都对，但你不能说圣诞快乐不然就是不包容。话语权都不在自己手上，还不允许别人去争，笑死。
 
+
+*****
+
+####  Synopses6087  
+##### 257#       发表于 2026-2-16 21:56
+
+不如改名叫海灯节吧，刚才刷**看见有人祝 Lantern Festival 快乐
+
+<img src="https://img.stage1st.com/forum/202602/16/215631hdjjf1kl5scffnsn.jpg" referrerpolicy="no-referrer">
+
+<strong>1000058249.jpg</strong> (204.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-16 21:56 上传
+
+*****
+
+####  kaminagi  
+##### 258#       发表于 2026-2-16 21:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69197488&amp;ptid=2274615" target="_blank">Synopses6087 发表于 2026-2-16 21:56</a>
+不如改名叫海灯节吧，刚才刷**看见有人祝 Lantern Festival 快乐</blockquote>
+差点没笑死我<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
