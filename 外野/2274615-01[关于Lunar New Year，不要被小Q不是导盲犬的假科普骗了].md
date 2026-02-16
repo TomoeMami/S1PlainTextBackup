@@ -2630,3 +2630,37 @@ lunar new year这个词的定义应该听谁的。
 
 就像世界上有很多国家庆祝圣诞节一样，你不需要说Happy Korean christmas。</blockquote>
 
+
+*****
+
+####  sellboy  
+##### 213#       发表于 2026-2-16 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194408&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 12:09</a>
+
+我引用B站一个叫“旧山”的网友发的评论，发完就过年去啦~补充一句：我个人希望这个翻译核心是“chunjie”
+
+ ...</blockquote>
+CYN≠LNY，把LNY作为分类单元来放入CNY都是错误的。
+
+不是画一张哪天能说服中国＝东亚国的大饼就能让我接受改名东亚国的。
+
+
+*****
+
+####  sellboy  
+##### 214#       发表于 2026-2-16 12:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194383&amp;ptid=2274615" target="_blank">Demi.Albertini 发表于 2026-2-16 12:00</a>
+
+归根到底就是一个
+
+lunar new year这个词的定义应该听谁的。
+
+如果觉得要接受欧美西方的说法，这个词是去中国 ...</blockquote>
+任何一种定义下都是错误的
+
+分类单位，不是，因为农历是阴阳历
+
+历史称呼也谈不上，在公历使用前这叫元旦，称呼公历为阳历，农历为阴历不仅仅没有官方性，在民间实际上也只是非常短的时期。
+
