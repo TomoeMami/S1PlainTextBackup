@@ -1542,3 +1542,11 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 灵能的普通没看出来咋加的，我用的灵能都是2
 
+
+*****
+
+####  spring_water  
+##### 124#       发表于 2026-2-16 16:23
+
+屠夫有个天赋是再次攻击受到非自己伤害的临近单位，我有只猫被敌人拱到它旁边被一下打死了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
