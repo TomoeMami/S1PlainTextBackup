@@ -678,3 +678,53 @@ MJ的外貌有点奇怪，但想不到他是个真好人。</blockquote>
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ly4236  
+##### 71#       发表于 2026-2-17 00:51
+
+<blockquote>TTAA 发表于 2026-2-16 22:45
+这歌最开始的mv还被禁了
+
+我一直觉得mj是非常了解美国的内部矛盾，而且也知道出路的。不然不会在黑与白mv ...</blockquote>
+这mv倒是不光美国内部矛盾，虽然主要还是美国。又是罗斯福又是马丁路德金的。
+
+以前哪个共青团的b站号改了几个画面在那摆了几年然后删了就有点乐。
+
+*****
+
+####  RYURYUTA  
+##### 72#       发表于 2026-2-17 00:52
+
+“我爹都不唱了你怎么敢”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  凡人一名  
+##### 73#       发表于 2026-2-17 00:53
+
+b站现在有春晚版的视频看吗？
+
+*****
+
+####  Yidam  
+##### 74#       发表于 2026-2-17 00:55
+
+<blockquote>凡人一名 发表于 2026-2-17 00:53
+b站现在有春晚版的视频看吗？</blockquote>
+春晚微博有
+
+*****
+
+####  月白天青  
+##### 75#       发表于 2026-2-17 00:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199499&amp;ptid=2274925" target="_blank">凡人一名 发表于 2026-2-17 00:53</a>
+b站现在有春晚版的视频看吗？</blockquote>
+有，直接搜，账号就叫春晚
+
+—— 来自 OnePlus PJE110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
