@@ -981,3 +981,14 @@ we are the world  这歌 从精神上 打垮苏联 ，我觉得这个评价是
 
 你猜猜，到时候全世界认为谁赢了？
 
+
+*****
+
+####  king520kyo  
+##### 97#       发表于 2026-2-17 04:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69198572&amp;ptid=2274925" target="_blank">lawsherman 发表于 2026-2-16 23:22</a>
+
+是后来事故毁了容，整容没搞好。然后还叠加了白癜风</blockquote>
+记得当年黑他的还说他是故意漂白想做白人，是漂白失败才变成那样的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
