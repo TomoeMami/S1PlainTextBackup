@@ -2967,3 +2967,57 @@ spring festival：？？？？？
 能剧狂言歌舞伎，不直接挪用原词，怎么翻译成英文？泥盆欧珀啦吗？鬼佬太多拿来就用的词了</blockquote>
 你解释下饺子豆腐拉面毛豆之类的中国起源物产的拿来就用，为啥都是拿的日语发音？
 
+
+*****
+
+####  sellboy  
+##### 242#       发表于 2026-2-16 15:27
+
+<blockquote>Demi.Albertini 发表于 2026-2-16 15:23
+所以这就是你宣扬台湾文化分割出来也不要紧的根源么……</blockquote>
+所以这就是你改东亚国国籍的真相么？
+
+
+*****
+
+####  Demi.Albertini  
+##### 243#       发表于 2026-2-16 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194983&amp;ptid=2274615" target="_blank">sellboy 发表于 2026-2-16 15:27</a>
+
+所以这就是你改东亚国国籍的真相么？</blockquote>
+没话说只能虚空造牌来哈气了么……自己画靶子自己打是吧
+
+说把台湾春节分割出去也不要紧的是你，说分裂不是最坏的事的也是你，咋了，不敢认啊
+
+*****
+
+####  sellboy  
+##### 244#       发表于 2026-2-16 15:33
+
+<blockquote>Demi.Albertini 发表于 2026-2-16 15:32
+没话说只能虚空造牌来哈气了么……自己画靶子自己打是吧
+
+说把台湾春节分割出去也不要紧的是你，说分裂不 ...</blockquote>
+所以你为了避免分裂改名东亚国呀。
+
+
+*****
+
+####  Demi.Albertini  
+##### 245#       发表于 2026-2-16 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69195004&amp;ptid=2274615" target="_blank">sellboy 发表于 2026-2-16 15:33</a>
+
+所以你为了避免分裂改名东亚国呀。</blockquote>
+这也是你说的，我可没接你的茬
+
+*****
+
+####  sellboy  
+##### 246#       发表于 2026-2-16 15:37
+
+<blockquote>Demi.Albertini 发表于 2026-2-16 15:35
+这也是你说的，我可没接你的茬</blockquote>
+我把两个选择给你，你认为没有比分裂更坏的事不是么？
+
