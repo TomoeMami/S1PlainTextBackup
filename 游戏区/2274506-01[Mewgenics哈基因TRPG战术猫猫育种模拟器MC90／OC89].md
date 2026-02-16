@@ -1466,3 +1466,13 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 放屁会把范围敌我双方全部弹飞，然后放屁猫就永久疯狂了，敌我不分了。 ...</blockquote>
 不是的，放屁猫是放完屁以后随机给上个坏死病，贫血，抑郁症什么的疾病，每个病都是有buff也有debuff，最多同时存在2个，出新的刷旧的，回来以后带病的猫博士会收
 
+
+*****
+
+####  千魄万斩  
+##### 118#       发表于 2026-2-16 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194241&amp;ptid=2274506" target="_blank">嘲风 发表于 2026-2-16 11:13</a>
+不是的，放屁猫是放完屁以后随机给上个坏死病，贫血，抑郁症什么的疾病，每个病都是有buff也有debuff，最 ...</blockquote>
+居然还能有buff，我的唯一一只放屁猫直接自爆死了
+
