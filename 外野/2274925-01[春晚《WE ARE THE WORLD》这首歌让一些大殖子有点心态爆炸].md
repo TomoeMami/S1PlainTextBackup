@@ -1123,3 +1123,24 @@ We are the world，但白皮猪、小日子、棒子、阿三、黑鬼、殖人�
 胡乱猜测立本人不让放今年春 ...</blockquote>
 和戚继光抗倭关系可能更大<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 110#       发表于 2026-2-17 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199844&amp;ptid=2274925" target="_blank">休斯顿·张伯伦 发表于 2026-2-17 08:36</a>
+右派挪用左派口号然后感动涕零简直是我最喜欢的政治笑话了。在如此热衷于竖切细分人为制造对立的时代，口号 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正这歌前面就是抗倭环节
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  JRPG  
+##### 111#       发表于 2026-2-17 09:32
+
+<blockquote>かしこま 发表于 2026-2-17 07:18
+再让我听到新三国的梗，我就扎聋自己的耳朵</blockquote>
+龙可是帝王之证啊
+
