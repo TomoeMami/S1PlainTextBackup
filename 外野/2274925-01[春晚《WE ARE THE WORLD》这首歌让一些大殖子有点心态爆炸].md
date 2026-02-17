@@ -1368,3 +1368,42 @@ Mj多少反美的歌，当年就有人举报爱泼斯坦了，结果FBI精力全
 AI是这么用的。
 <img src="https://p.sda1.dev/30/a22f216d6d212679cdd4f2888477ca8e/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绝地潜兵  
+##### 133#       发表于 2026-2-17 11:59
+
+成龙主唱已经无敌，太短了不够看，这些经典歌曲就应该重新中文填词
+
+*****
+
+####  Baccano  
+##### 134#       发表于 2026-2-17 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199844&amp;ptid=2274925" target="_blank">休斯顿·张伯伦 发表于 2026-2-17 08:36</a>
+右派挪用左派口号然后感动涕零简直是我最喜欢的政治笑话了。在如此热衷于竖切细分人为制造对立的时代，口号 ...</blockquote>
+笑点一：张伯伦自称左派
+笑点二：给所有人扣右派帽子
+你还是少冲点浪，多读点书吧。以前红小将都比你政治素养。
+
+*****
+
+####  洛拉斯  
+##### 135#       发表于 2026-2-17 12:04
+
+笑了，左派斩杀线，右派扶贫
+
+网左之所以引人发笑就是因为没脑子还爱bb
+
+*****
+
+####  春哥亲自  
+##### 136#       发表于 2026-2-17 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69200047&amp;ptid=2274925" target="_blank">YF29 发表于 2026-2-17 10:15</a>
+热知识：一般不称反全球化群体为左派。
+
+我寻思天天骂第三世界穷团结、达倭利息、满蒙布尔什维的时候佐佐帽 ...</blockquote>
+taco：对的，因为我的权利是无限的<img src="https://static.stage1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
