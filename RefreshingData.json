@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 31562,
+    "totalreply": 31566,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》2.5 可曾记得爱]",
-    "lastedit": 1771302493,
+    "lastedit": 1771303693,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 33807,
+    "totalreply": 33808,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1771302727,
+    "lastedit": 1771303697,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12411,10 +12411,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 8520,
+    "totalreply": 8521,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼2月]",
-    "lastedit": 1771303092,
+    "lastedit": 1771303697,
     "category": "外野",
     "active": true,
     "update": false
@@ -16385,7 +16385,7 @@
     "newtitle": "[宇树进厂打螺丝]",
     "lastedit": 1771044147,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2274602": {
@@ -16812,10 +16812,10 @@
     "update": false
   },
   "2274890": {
-    "totalreply": 71,
+    "totalreply": 72,
     "title": "[网传去年六一cos乳化动漫coser自杀]",
     "newtitle": "[网传去年六一cos乳化动漫coser自杀]",
-    "lastedit": 1771252689,
+    "lastedit": 1771303697,
     "category": "外野",
     "active": true,
     "update": false
@@ -16839,10 +16839,10 @@
     "update": false
   },
   "2274892": {
-    "totalreply": 72,
+    "totalreply": 73,
     "title": "[历史人物只挑兄弟两个，综合素质最高的是哪对兄弟。]",
     "newtitle": "[历史人物只挑兄弟两个，综合素质最高的是哪对兄弟。]",
-    "lastedit": 1771300810,
+    "lastedit": 1771303697,
     "category": "外野",
     "active": true,
     "update": false
@@ -16875,10 +16875,10 @@
     "update": false
   },
   "2274925": {
-    "totalreply": 137,
+    "totalreply": 138,
     "title": "[春晚《WE ARE THE WORLD》这首歌让一些大殖子有点心态爆炸]",
     "newtitle": "[春晚《WE ARE THE WORLD》这首歌让一些大殖子有点心态爆炸]",
-    "lastedit": 1771302012,
+    "lastedit": 1771303447,
     "category": "外野",
     "active": true,
     "update": false
@@ -16974,10 +16974,10 @@
     "update": false
   },
   "2274950": {
-    "totalreply": 63,
+    "totalreply": 65,
     "title": "[春节快乐 所以各位大年初一的第一餐是什么]",
     "newtitle": "[春节快乐 所以各位大年初一的第一餐是什么]",
-    "lastedit": 1771303092,
+    "lastedit": 1771303697,
     "category": "外野",
     "active": true,
     "update": false
@@ -16997,6 +16997,24 @@
     "newtitle": "[米国家长：＂just do it＂教学法]",
     "lastedit": 1771301175,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2187742": {
+    "totalreply": 152,
+    "title": "[来个串游和云游戏讨论楼吧 — PC／主机串流、云游戏平台、串流设备等]",
+    "newtitle": "[来个串游和云游戏讨论楼吧 — PC／主机串流、云游戏平台、串流设备等]",
+    "lastedit": 1771303575,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2274918": {
+    "totalreply": 41,
+    "title": "[『.hack』系列完全新作『.hack／／Z.E.R.O.』正式公开！]",
+    "newtitle": "[『.hack』系列完全新作『.hack／／Z.E.R.O.』正式公开！]",
+    "lastedit": 1771303571,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
