@@ -410,3 +410,28 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  再也不咬钩勒  
+##### 7354#       发表于 2026-2-17 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69202166&amp;ptid=2170852" target="_blank">ParadiseMartyr 发表于 2026-2-17 22:59</a>
+
+超级商店轮换
+
+—— 来自 鹅球 v3.3.96</blockquote>
+谢了，可惜新号没权限加鹅
+
+*****
+
+####  再也不咬钩勒  
+##### 7355#       发表于 2026-2-17 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201971&amp;ptid=2170852" target="_blank">滋啦球 发表于 2026-2-17 21:47</a>
+
+我个人是离子喷+法令+铝热+防电服
+
+离子喷可以应付除了三足以外的所有敌人,而且伤害还不差, 2发一个蚊子, 3 ...</blockquote>
+谢了，回头试试
+
