@@ -2377,3 +2377,14 @@ tmd饺子翻成dumpling的时候这帮大翻译家都死哪去了
 这群逼以后会论证华夏子女是白人的，恶心坏了，有毒的白人文化</blockquote>
 他们甚至不需要论证，只需要翻出清朝之前他们的故纸堆就好了，里面都说中国人是白人<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  logiccat  
+##### 224#       发表于 2026-2-18 02:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69197570&amp;ptid=2274925" target="_blank">KioShiMa 发表于 2026-2-16 22:02</a>
+
+这歌出的时候是美国真正的黄金时代吧</blockquote>
+仓廪实而知礼节
+
