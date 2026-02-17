@@ -2400,3 +2400,13 @@ we are the children直译就是我们是孩子
 你说神的孩子那是上下文赋义，属于理解层面，不属于字面意思</blockquote>
 我们是孩子英文会说we are children，加了the就是有某种特指，一般确实指上帝的孩子
 
+
+*****
+
+####  wpwing  
+##### 226#       发表于 2026-2-18 05:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199807&amp;ptid=2274925" target="_blank">Hikiyaga⑧man 发表于 2026-2-17 07:49</a>
+楼上不说我还忘了 当年mj被诬陷奶龙可是站mj的 萝莉岛刚爆出来时大家还说奶龙是金发大波审美遗老没有嫌疑  ...</blockquote>
+奶龙现在好像都不提mj了
+
