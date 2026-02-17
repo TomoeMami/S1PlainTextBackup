@@ -1252,3 +1252,19 @@ Mj多少反美的歌，当年就有人举报爱泼斯坦了，结果FBI精力全
 
 —— 来自 OPPO PKB110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  YF29  
+##### 122#       发表于 2026-2-17 10:15
+
+ 本帖最后由 YF29 于 2026-2-17 10:16 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199994&amp;ptid=2274925" target="_blank">高町城管 发表于 2026-2-17 09:56</a>
+
+右派在建设人类命运共同体，左派在网上扯犊子，也不知道到底是谁在挪用谁
+
+—— 来自 Xiaomi 23116PN5BC, ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">热知识：一般不称反全球化群体为左派。
+
+我寻思天天骂第三世界穷团结、达倭利息、满蒙布尔什维的时候佐佐帽子发的不少啊，怎么这会反全球化的帽子也要给佐佐戴上了，这对吗<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
