@@ -1957,3 +1957,64 @@ deepseek 还真挺会写...
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  飛霞精灵  
+##### 188#       发表于 2026-2-17 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201615&amp;ptid=2274925" target="_blank">动荡的远方 发表于 2026-2-17 19:34</a>
+
+虽然但是，we are the world，we are the children这一句直译可不就是“我们是孩子”？还想译出个啥花来？
+
+ ...</blockquote>
+歌词里是有明确好几个God意象的。
+
+所以其实这个we are the children就是指我们是上帝的孩子……
+
+这歌的宗教意图很明显。
+
+但说实话春晚去宗教化，没必要再往宗教意义上贴了。
+
+
+*****
+
+####  绝地潜兵  
+##### 189#       发表于 2026-2-17 19:44
+
+大概懂它们的意思，所谓的翻译后没有了英文的“文化负重”，也就是那些神神叨叨的玩意
+
+比如守护者：
+
+中文是“温和、坚定、可靠的”这样一个世俗词汇
+
+英文那是Gadian，“上位的神圣的令人敬畏的”，等级分明
+
+你如果认同英文的Gadian比中文世俗词汇更高级，那就是被文化殖民的典型表现
+
+*****
+
+####  飛霞精灵  
+##### 190#       发表于 2026-2-17 19:45
+
+<img src="https://img.stage1st.com/forum/202602/17/194523wpzr8r188rphwssz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-17 19:45 上传
+
+看到有个有意思的说法。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大暴死  
+##### 191#       发表于 2026-2-17 19:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201583&amp;ptid=2274925" target="_blank">liquer 发表于 2026-2-17 19:21</a>
+我在B站弹幕和评论区留言的建议是翻译成“赤子”</blockquote>
+但从歌曲角度，赤子唱出来感觉韵律不太对
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
