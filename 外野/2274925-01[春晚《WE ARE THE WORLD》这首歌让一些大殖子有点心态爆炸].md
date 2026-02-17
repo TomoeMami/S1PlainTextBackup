@@ -1407,3 +1407,21 @@ AI是这么用的。
 我寻思天天骂第三世界穷团结、达倭利息、满蒙布尔什维的时候佐佐帽 ...</blockquote>
 taco：对的，因为我的权利是无限的<img src="https://static.stage1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  飛霞精灵  
+##### 137#       发表于 2026-2-17 12:18
+
+ 本帖最后由 飛霞精灵 于 2026-2-17 12:19 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199852&amp;ptid=2274925" target="_blank">adw667 发表于 2026-2-17 08:43</a>
+
+跟我三国无双说去吧</blockquote>
+老钟扶贫、维护贸易、满世界不打仗、不输出贫困也不制造危机。不配we are the world。
+
+老钟网友互相喷几句，然后就成群体右派不配喊口号了。立马罪大恶极是么。
+
+美国人满世界输出战乱，we are the world就可以代表美国精神。
+
+我寻思we are the children of the God时候，也没说自己是左派吧。
+
