@@ -2252,3 +2252,15 @@ children of red</blockquote>
 
 刚发现因为都是mj参与的，主题也近似，所以我一直都把we are the world和heal the world弄混了。
 
+
+*****
+
+####  豪福  
+##### 212#       发表于 2026-2-17 22:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201682&amp;ptid=2274925" target="_blank">绝地潜兵 发表于 2026-2-17 19:56</a>
+不需要按照基督那一套去理解，你就当我们是地球的孩子，生活在同一片蓝天下 ...</blockquote>
+为什么不能，你玩全球化就必须接纳基督徒，甚至是**，更甚至是印度屎
+
+—— 来自 OnePlus PHB110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

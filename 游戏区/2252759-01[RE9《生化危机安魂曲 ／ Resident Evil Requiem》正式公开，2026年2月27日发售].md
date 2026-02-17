@@ -259,3 +259,14 @@ DLC出个克莱尔，警局同学会就到齐了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  kcalb  
+##### 642#       发表于 2026-2-17 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69194844&amp;ptid=2252759" target="_blank">iamleoy 发表于 2026-2-16 14:42</a>
+
+真的吗，我觉得工厂没有城堡好玩</blockquote>
+但是再回忆一下只有阴宅的异形宝宝关卡印象深刻，城堡工厂这种传统烂街地图没什么特别的记忆点
+
