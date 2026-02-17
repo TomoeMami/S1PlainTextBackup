@@ -3278,3 +3278,15 @@ Marry chrismas 和 happy holiday 都对，但你不能说圣诞快乐不然就�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真正的端水
 
+
+*****
+
+####  史艳文  
+##### 271#       发表于 2026-2-17 21:38
+
+【【TVB翡翠台】六点半新闻:香港新春花车巡游汇演 晚上八时正尖沙咀举行 及澳门新春资讯】 [https://www.bilibili.com/video/B ... 6e35a39ff5dc1b3e218](https://www.bilibili.com/video/BV1cgZyBqEtR/?share_source=copy_web&amp;vd_source=f0508452fedcf6e35a39ff5dc1b3e218)
+
+今晚TVB新闻采访的一个法国旅行者，第50秒开始，说的是chinese new year。
+
+我觉得鬼佬一开始的认知叫法还是cny吧。
+
