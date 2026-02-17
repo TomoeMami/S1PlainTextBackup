@@ -1178,3 +1178,65 @@ We are the world，但白皮猪、小日子、棒子、阿三、黑鬼、殖人�
 
 Mj多少反美的歌，当年就有人举报爱泼斯坦了，结果FBI精力全在MJ这边，最后人还是清白的
 
+
+*****
+
+####  cloudian  
+##### 115#       发表于 2026-2-17 09:50
+
+苏联输掉了冷战，美帝并未赢得冷战。有人下山挑了桃子，我不说他是谁。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  影伴光生  
+##### 116#       发表于 2026-2-17 09:52
+
+义乌分会场塞的内容确实多，也确实是最适合放万国牌的部分
+
+鸡毛换糖，戚家军，板凳龙，陈望道，鸡鸣阁，国际商贸城，中欧班列
+
+（其实义乌名人还有骆宾王跟吴晗）
+
+*****
+
+####  阿刚  
+##### 117#       发表于 2026-2-17 09:53
+
+<blockquote>oyss 发表于 2026-2-17 09:47
+Mj多少反美的歌，当年就有人举报爱泼斯坦了，结果FBI精力全在MJ这边，最后人还是清白的 ...</blockquote>
+现在想想最让人恶心的就是MJ诬告案很可能就是给爱泼斯坦这帮畜牲转移公众注意力的
+
+*****
+
+####  bankofsoul  
+##### 118#       发表于 2026-2-17 09:55
+
+<blockquote>休斯顿·张伯伦 发表于 2026-2-17 08:36
+右派挪用左派口号然后感动涕零简直是我最喜欢的政治笑话了。在如此热衷于竖切细分人为制造对立的时代，口号 ...</blockquote>
+发言跟您这自定义头衔真是“相得益彰”
+
+*****
+
+####  高町城管  
+##### 119#       发表于 2026-2-17 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199844&amp;ptid=2274925" target="_blank">休斯顿·张伯伦 发表于 2026-2-17 08:36</a>
+右派挪用左派口号然后感动涕零简直是我最喜欢的政治笑话了。在如此热衷于竖切细分人为制造对立的时代，口号 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">右派在建设人类命运共同体，左派在网上扯犊子，也不知道到底是谁在挪用谁
+
+—— 来自 Xiaomi 23116PN5BC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  高町城管  
+##### 120#       发表于 2026-2-17 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69197901&amp;ptid=2274925" target="_blank">youranchen1 发表于 2026-2-16 22:27</a>
+30多年前一首美国歌是**春晚最好的节目，是谁赢了呢</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">美国人最喜欢的文具用的还是东大发明的火药呢
+
+—— 来自 Xiaomi 23116PN5BC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
