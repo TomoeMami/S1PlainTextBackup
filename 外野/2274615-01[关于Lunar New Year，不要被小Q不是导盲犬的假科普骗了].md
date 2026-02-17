@@ -3230,3 +3230,11 @@ Marry chrismas 和 happy holiday 都对，但你不能说圣诞快乐不然就�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  黑白魔炮使  
+##### 266#       发表于 2026-2-17 17:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要拿下Lunar New Year的前提也是要向外宣称，要骑脸宣称而不是发个动态就完事了，向内宣称有啥用
+
