@@ -1514,3 +1514,22 @@ MJ是发自内心的善良的人，所以他在美国活不下去
 
 现在的牢美只适合唱kids in the dark，自欺欺人的高层团体和那些被抛弃被斩杀的民众，为什么还要在这条自欺欺人的末路上狂奔。总不能因为大火没烧到自家所以生活依旧岁月静好吧？
 
+
+*****
+
+####  eblis2  
+##### 145#       发表于 2026-2-17 13:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199968&amp;ptid=2274925" target="_blank">sjax001 发表于 2026-2-17 09:44</a>
+除了装逼犯，所有人都包括，毕竟装逼犯喜欢站在外太空看地球，已经不属于world了 ...</blockquote>
+过些年说不定就要站柯伯伊带外面说酸话了。地月系可能都算world站不下它们了
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  亚尔迪8424  
+##### 146#       发表于 2026-2-17 13:09
+
+左右不分的也在回帖啊
+

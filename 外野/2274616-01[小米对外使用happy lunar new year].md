@@ -50,3 +50,16 @@
 
 全是狗屎，唯有chunjie才是正统翻译
 
+
+*****
+
+####  Konayu  
+##### 52#       发表于 2026-2-17 13:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69178990&amp;ptid=2274616" target="_blank">mooerfoes 发表于 2026-2-12 16:27</a>
+
+今年可能风向在变，哪怕以前官方渠道多次使用Lunar，现在也在进行极其严厉的批判……
+
+微博也已经有些KOL在 ...</blockquote>
+别以前了，今年外交部还在用呢
+
