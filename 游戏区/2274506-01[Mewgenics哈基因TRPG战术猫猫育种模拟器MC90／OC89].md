@@ -1888,3 +1888,11 @@ goto loop
 echo.</blockquote>
 不用这么写吧，就建个kill.bat，里面写<blockquote>taskkill /f /im Mewgenics.exe</blockquote>一行就行，想sl就双击<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fireflies  
+##### 147#       发表于 2026-2-17 23:21
+
+牧师感染了弓形虫病，治疗的远程吐口水，一吐一个传染<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
