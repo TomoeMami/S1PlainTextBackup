@@ -2244,3 +2244,11 @@ god of red
 children of red</blockquote>
 老美听了更害怕了<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  noneoneone  
+##### 211#       发表于 2026-2-17 21:35
+
+刚发现因为都是mj参与的，主题也近似，所以我一直都把we are the world和heal the world弄混了。
+
