@@ -1791,3 +1791,85 @@ Link_啊呤的个人空间-Link_啊呤个人主页-哔哩哔哩视频
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  leeskies  
+##### 145#       发表于 2026-2-17 20:52
+
+ 本帖最后由 leeskies 于 2026-2-17 20:56 编辑 
+
+[@Echo](https://stage1st.com/2b/home.php?mod=space&amp;uid=118165) off
+
+:loop
+
+echo.
+
+echo ===================================
+
+echo      Mewgenics Process Killer
+
+echo ===================================
+
+echo Enter 1 to kill Mewgenics.exe
+
+echo Enter 0 to exit
+
+echo ===================================
+
+echo.
+
+set /p choice="Input: "
+
+if "%choice%"=="1" (
+
+    echo.
+
+    echo Killing Mewgenics.exe...
+
+    taskkill /f /im Mewgenics.exe
+
+    if %errorlevel% == 0 (
+
+        echo Success!
+
+    ) else (
+
+        echo Failed or process not found
+
+    )
+
+    echo.
+
+    pause
+
+    goto loop
+
+)
+
+if "%choice%"=="0" (
+
+    exit
+
+)
+
+echo Invalid input, try again
+
+timeout /t 2 &gt;nul
+
+goto loop
+
+打开后按1杀进程，按0退出。
+
+浪了，一个半满编小队出去，打沙漠那个僵尸猫，被打死一个后被复活，boss滚雪球把小队杀完了。
+<img src="https://static.stage1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">草草草
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/binary.gif" referrerpolicy="no-referrer">
+
+傻猫.bat
+
+2026-2-17 20:53 上传
+点击文件名下载附件
+
+634 Bytes, 下载次数: 0
+

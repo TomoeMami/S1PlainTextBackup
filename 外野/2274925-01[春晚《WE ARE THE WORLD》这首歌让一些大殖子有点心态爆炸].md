@@ -2116,3 +2116,35 @@ we are the children直译就是我们是孩子
 这么一说，义乌地区的外商，背后祖国可是让基教国家坑完了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你这么一说,查了下尼泊尔这山高皇帝远的也给带英霍霍过,至于南非倒是整个国家也信基教,至于基教怎么来的就不用多说了
 
+
+*****
+
+####  topia  
+##### 199#       发表于 2026-2-17 20:44
+
+tmd饺子翻成dumpling的时候这帮大翻译家都死哪去了
+
+去**
+
+*****
+
+####  WindBlade  
+##### 200#       发表于 2026-2-17 20:45
+
+<blockquote>中国科学院 发表于 2026-2-17 15:39
+对老🀄️来说最痛快的复仇是不是就是在你擅长的领域彻底打败你？</blockquote>
+美国人贫弱的知识和历史让他们以为只靠武力能维持霸权，该给他们教一下什么叫做吊民伐罪，天命所归！
+
+
+*****
+
+####  FACS  
+##### 201#       发表于 2026-2-17 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201793&amp;ptid=2274925" target="_blank">topia 发表于 2026-2-17 20:44</a>
+tmd饺子翻成dumpling的时候这帮大翻译家都死哪去了
+
+去**</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">会说jiaozi白皮不会发音
+我寻思英语外来语一大堆也没见不会读，不多你这一个
+
