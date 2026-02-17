@@ -1876,3 +1876,24 @@ deepseek 还真挺会写...
 
 —— 来自 OPPO PKH110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  66367749  
+##### 180#       发表于 2026-2-17 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201537&amp;ptid=2274925" target="_blank">ads147147 发表于 2026-2-17 19:03</a>
+我们的歌词肯定是完全去宗教化的，不过在某些大儒眼里，唱这首歌本身就是认同自己是神的孩子，属于传教大 ...</blockquote>
+试图占据释经权解构罢了。基督教加起来不到2.5b的人口，全世界还有2/3以上的人呢
+
+*****
+
+####  wlhlz  
+##### 181#       发表于 2026-2-17 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201537&amp;ptid=2274925" target="_blank">ads147147 发表于 2026-2-17 19:03</a>
+我们的歌词肯定是完全去宗教化的，不过在某些大儒眼里，唱这首歌本身就是认同自己是神的孩子，属于传教大 ...</blockquote>
+这句原词确实是宗教意味，去了才正常
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

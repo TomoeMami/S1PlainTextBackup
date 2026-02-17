@@ -31,3 +31,24 @@ AiScReam组合成员 黑泽露比 役 降幡爱 将从AiScReam组合毕业，AiS
 
 —— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  仟音一心  
+##### 1807#       发表于 2026-2-17 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201418&amp;ptid=2201887" target="_blank">wsdbyh 发表于 2026-2-17 18:19</a>
+老实说AiScReam大家都知道做不长，一个原来是临时起意的短期组合，再干个一年半载赚够钱热度也应该没了
+
+这 ...</blockquote>
+主要是你这企划想一出是一出没有规划预案的问题太严重了，这么泼天的流量你真的接不住，红白都没上。
+
+*****
+
+####  仟音一心  
+##### 1808#       发表于 2026-2-17 19:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201524&amp;ptid=2201887" target="_blank">离心 发表于 2026-2-17 18:58</a>
+本来就是宣传anng广播组的，anng正常轮换人。frrn合同正常到期走人，只是也没想到会这么火。你也不可能只是 ...</blockquote>
+对的，但是这么处理，还是得挨一阵子骂，一开始没有想好怎么处理这种情况。
+
