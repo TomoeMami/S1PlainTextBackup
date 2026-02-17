@@ -1706,3 +1706,16 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 因为他不会升级所以队友会升的很快，水蛭前两层伤害都是够的，第三层开始靠队友C
 
+
+*****
+
+####  fireflies  
+##### 137#       发表于 2026-2-17 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69200057&amp;ptid=2274506" target="_blank">schneehertz 发表于 2026-2-17 10:18</a>
+
+骸骨地的后空翻boss除了用AOE处理还有没有其他办法
+
+—— 来自 鹅球 v3.5.99</blockquote>
+战士反击，弓箭塔台，地形点燃或者召唤物围殴
+
