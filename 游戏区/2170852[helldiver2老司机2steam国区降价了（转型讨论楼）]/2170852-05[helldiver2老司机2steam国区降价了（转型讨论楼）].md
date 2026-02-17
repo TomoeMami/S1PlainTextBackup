@@ -398,3 +398,15 @@
 
 刚才没事听飞船上的维修工废话，维修工连工作用的维修工具都是租的，简直太民主了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 7353#       发表于 2026-2-17 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69202066&amp;ptid=2170852" target="_blank">再也不咬钩勒 发表于 2026-2-17 22:25</a>
+法令是哪个债权的？还没解锁</blockquote>
+超级商店轮换
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

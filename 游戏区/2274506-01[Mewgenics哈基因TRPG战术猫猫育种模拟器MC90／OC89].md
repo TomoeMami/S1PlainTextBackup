@@ -1873,3 +1873,18 @@ goto loop
 
 634 Bytes, 下载次数: 0
 
+
+*****
+
+####  harry3  
+##### 146#       发表于 2026-2-17 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201817&amp;ptid=2274506" target="_blank">leeskies 发表于 2026-2-17 20:52</a>
+
+@Echo off
+
+:loop
+
+echo.</blockquote>
+不用这么写吧，就建个kill.bat，里面写<blockquote>taskkill /f /im Mewgenics.exe</blockquote>一行就行，想sl就双击<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
