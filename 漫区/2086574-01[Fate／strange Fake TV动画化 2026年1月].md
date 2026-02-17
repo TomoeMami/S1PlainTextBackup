@@ -1319,3 +1319,13 @@ fgo总算解释了海无力为啥是人类而不是飞船
 这作品里一直称呼美国为合众国/这片大地/这个国家，我还以为他在有意回避现实的美国，结果最新一集直接叫美 ...</blockquote>
 这片大地
 
+
+*****
+
+####  zakki  
+##### 1014#       发表于 2026-2-17 19:38
+
+目前所有阵营分布图总算填满了，要开始大混战了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/30/151bba3715a26b173c509c481428a897/image.jpg" referrerpolicy="no-referrer">
+
