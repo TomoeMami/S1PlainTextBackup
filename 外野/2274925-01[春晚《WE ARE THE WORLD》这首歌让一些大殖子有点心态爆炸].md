@@ -2092,3 +2092,16 @@ we are the children直译就是我们是孩子
 
 这版翻译是服务于整个义乌分会场场景的
 
+
+*****
+
+####  飛霞精灵  
+##### 197#       发表于 2026-2-17 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201701&amp;ptid=2274925" target="_blank">空き地卯木 发表于 2026-2-17 20:10</a>
+
+最后一幕摇的没一个是基教的外商和友人，这些国家的孩子过得确实也不太好的
+
+这版翻译是服务于整个义乌分 ...</blockquote>
+这么一说，义乌地区的外商，背后祖国可是让基教国家坑完了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
