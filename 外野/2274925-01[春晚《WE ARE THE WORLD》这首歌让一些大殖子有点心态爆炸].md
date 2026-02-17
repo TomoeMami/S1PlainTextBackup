@@ -1496,3 +1496,21 @@ MJ是发自内心的善良的人，所以他在美国活不下去
 
 美国曾经也不是没有这个机会，问题是它已经自己主动放弃，不要这个“天命”了。
 
+
+*****
+
+####  adw667  
+##### 143#       发表于 2026-2-17 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199844&amp;ptid=2274925" target="_blank">休斯顿·张伯伦 发表于 2026-2-17 08:36</a>
+
+右派挪用左派口号然后感动涕零简直是我最喜欢的政治笑话了。在如此热衷于竖切细分人为制造对立的时代，口号 ...</blockquote>
+没列出一百多个群体还是差点火候，不过味也够大了<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  dfbbymice  
+##### 144#       发表于 2026-2-17 13:02
+
+现在的牢美只适合唱kids in the dark，自欺欺人的高层团体和那些被抛弃被斩杀的民众，为什么还要在这条自欺欺人的末路上狂奔。总不能因为大火没烧到自家所以生活依旧岁月静好吧？
+
