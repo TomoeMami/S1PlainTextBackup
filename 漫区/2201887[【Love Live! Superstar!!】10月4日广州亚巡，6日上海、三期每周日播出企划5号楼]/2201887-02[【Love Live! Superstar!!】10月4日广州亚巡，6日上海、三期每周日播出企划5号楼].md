@@ -52,3 +52,15 @@ AiScReam组合成员 黑泽露比 役 降幡爱 将从AiScReam组合毕业，AiS
 本来就是宣传anng广播组的，anng正常轮换人。frrn合同正常到期走人，只是也没想到会这么火。你也不可能只是 ...</blockquote>
 对的，但是这么处理，还是得挨一阵子骂，一开始没有想好怎么处理这种情况。
 
+
+*****
+
+####  离心  
+##### 1809#       发表于 2026-2-17 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201555&amp;ptid=2201887" target="_blank">仟音一心 发表于 2026-2-17 19:10</a>
+对的，但是这么处理，还是得挨一阵子骂，一开始没有想好怎么处理这种情况。 ...</blockquote>
+那解散重组骂的更凶更别想要这流量了，和隔壁讨论一下23年重组正式为三校联合广播正好是三年。确定是合同到期。只能说是没办法的办法了
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
