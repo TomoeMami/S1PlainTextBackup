@@ -94,3 +94,15 @@ AiScReam组合成员 黑泽露比 役 降幡爱 将从AiScReam组合毕业，AiS
 
 唯一遗憾就是被nhk耍了，不然就是完美企划，之后解散也好带新人也好都随便
 
+
+*****
+
+####  仟音一心  
+##### 1813#       发表于 2026-2-17 22:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201661&amp;ptid=2201887" target="_blank">离心 发表于 2026-2-17 19:48</a>
+哪能怎么办，一切馈赠都在冥冥之中标好了价码本来就是个玩票性质的小企划。三个人都有自己的本职工作。12 ...</blockquote>
+<img src="https://p.sda1.dev/30/94967b1cbae7a11c115e95512b2bcc53/image.jpg" referrerpolicy="no-referrer">
+x：koaranin9981
+<img src="https://p.sda1.dev/30/7a01975132c3d678826a5e63bead79df/image.jpg" referrerpolicy="no-referrer">
+
