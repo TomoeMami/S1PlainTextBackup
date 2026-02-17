@@ -1240,3 +1240,15 @@ Mj多少反美的歌，当年就有人举报爱泼斯坦了，结果FBI精力全
 
 —— 来自 Xiaomi 23116PN5BC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  乔伊  
+##### 121#       发表于 2026-2-17 10:05
+
+2026年春晚还能看到MJ的名字，感慨万千
+
+<img src="https://p.sda1.dev/30/12188f92862721593de4e59ae8a688b4/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKB110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
