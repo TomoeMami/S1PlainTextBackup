@@ -21,3 +21,13 @@ AiScReam组合成员 黑泽露比 役 降幡爱 将从AiScReam组合毕业，AiS
 
 这骚操作本来只会让本来就短命的组合寿命进一步缩短
 
+
+*****
+
+####  离心  
+##### 1806#       发表于 2026-2-17 18:58
+
+本来就是宣传anng广播组的，anng正常轮换人。frrn合同正常到期走人，只是也没想到会这么火。你也不可能只是一首歌的爆火且不确定能不能接着火就强压事务所放人吧<img src="https://static.stage1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">不打算和事务所合作了？
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
