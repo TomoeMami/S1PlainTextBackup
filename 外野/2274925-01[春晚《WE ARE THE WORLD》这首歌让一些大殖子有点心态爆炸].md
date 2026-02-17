@@ -1533,3 +1533,43 @@ MJ是发自内心的善良的人，所以他在美国活不下去
 
 左右不分的也在回帖啊
 
+
+*****
+
+####  春哥亲自  
+##### 147#       发表于 2026-2-17 13:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69200625&amp;ptid=2274925" target="_blank">亚尔迪8424 发表于 2026-2-17 13:09</a>
+左右不分的也在回帖啊</blockquote>
+当你够左的时候，不够左就是右
+更何况有傻福无孩爱猫爱外来移民胜过爱身边的流浪汉<img src="https://static.stage1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+反观有的右派表示我们不能照顾所有人，只能照顾身边人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  widder  
+##### 148#       发表于 2026-2-17 13:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69200155&amp;ptid=2274925" target="_blank">sellboy 发表于 2026-2-17 10:49</a>
+
+马克思的基于生产力决定生产关系推导的奴隶-封建-资本-社会-共产的线性发展观点就是有问题的
+
+比如古代中国 ...</blockquote>
+马克思没来过中国，没读过24史不奇怪，但他的理论还是没有问题的，古代中欧同时期的生产力本来就有差别，中国的粮食产量足以供养更多的官僚从而采取郡县制。
+
+*****
+
+####  AlsoSprachRyu  
+##### 149#       发表于 2026-2-17 13:22
+
+别的先不谈，作为听着地球村，听着北京欢迎你长大的千禧一代，至少这个节目让人想起人类本质上是同一个基因序列的智人。肤色，政治立场，阶级矛盾之上，还有更宏大更崇高的愿景。哪怕大团结大概只会在文艺作品里实现，但好歹是个念想，真挺好
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  johnkamsar  
+##### 150#       发表于 2026-2-17 13:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">昨晚春晚觉得不够过瘾去yt上听了一遍完整版，就发现有殖人破防了，只能说太欢乐了
+
