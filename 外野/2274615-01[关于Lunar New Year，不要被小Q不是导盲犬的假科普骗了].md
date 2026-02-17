@@ -3290,3 +3290,16 @@ Marry chrismas 和 happy holiday 都对，但你不能说圣诞快乐不然就�
 
 我觉得鬼佬一开始的认知叫法还是cny吧。
 
+
+*****
+
+####  Demi.Albertini  
+##### 272#       发表于 2026-2-17 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199859&amp;ptid=2274615" target="_blank">nianiania 发表于 2026-2-17 08:47</a>
+
+看了下来你这不是纯在抬杠，辩不赢了马上就是你支持分裂的帽子扣下来，来来回回好几次了
+
+—— 来自 vivo ...</blockquote>
+你搞错了，我从一开始就是冲着扣帽子去的
+
