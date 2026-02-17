@@ -1712,3 +1712,22 @@ WE ARE THE WORLD，不服憋着🎶
 
 民威叙述现在看有点老了，这边的内核更新太快？第三次工业革命吃老本也得看有没有新的对比
 
+
+*****
+
+####  wlbthh  
+##### 164#       发表于 2026-2-17 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201040&amp;ptid=2274925" target="_blank">rgm2000 发表于 2026-2-17 16:05</a>
+本来这次春晚还有一些不太满意，但是总体不错，至少让我完整看完了，现在看大侄子们破防今天春晚算是非常成 ...</blockquote>
+感谢这些“好心人”为春节带来了年味儿<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，新的一年里祝大家大吉大利！
+
+—— 来自 Xiaomi 23049RAD8C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  theworld  
+##### 165#       发表于 2026-2-17 16:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">之前你要和我说今年春晚可以听到we are theworld，美女与野兽，西城男孩，我是不信的
+
