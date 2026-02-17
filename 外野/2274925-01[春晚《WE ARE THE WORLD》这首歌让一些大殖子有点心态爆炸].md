@@ -1731,3 +1731,11 @@ WE ARE THE WORLD，不服憋着🎶
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">之前你要和我说今年春晚可以听到we are theworld，美女与野兽，西城男孩，我是不信的
 
+
+*****
+
+####  leleq  
+##### 166#       发表于 2026-2-17 16:18
+
+就现在闹钟的世界舆论，这事很快就会登上美国主流媒体……在一番感慨后一转乳川<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
