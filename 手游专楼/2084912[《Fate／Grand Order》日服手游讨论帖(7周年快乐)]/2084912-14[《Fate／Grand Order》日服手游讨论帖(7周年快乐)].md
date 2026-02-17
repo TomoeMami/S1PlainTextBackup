@@ -479,3 +479,14 @@ c妈怒砍两分
 
 2026-2-17 20:55 上传
 
+
+*****
+
+####  khxooo  
+##### 20553#       发表于 2026-2-18 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201827&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2026-2-17 20:54</a>
+
+还有何意啊，真就成纯剧情用立绘了就出现几秒没有灵衣了</blockquote>
+我还以为最后会实装呢，和BX那个银河灵衣一样，给看不给用是吧<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
