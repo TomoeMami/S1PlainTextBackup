@@ -74,3 +74,15 @@ AiScReam组合成员 黑泽露比 役 降幡爱 将从AiScReam组合毕业，AiS
 那解散重组骂的更凶更别想要这流量了，和隔壁讨论一下23年重组正式为三校联合广播正好是三年。确定是合同 ...</blockquote>
 我现在不满的不是这个毕业，而是你企划没接住这个泼天流量没能在火起来的时候及时做好尽可能多的安排，大半年了就一个人都凑不齐的live。
 
+
+*****
+
+####  离心  
+##### 1811#       发表于 2026-2-17 19:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201627&amp;ptid=2201887" target="_blank">仟音一心 发表于 2026-2-17 19:39</a>
+我现在不满的不是这个毕业，而是你企划没接住这个泼天流量没能在火起来的时候及时做好尽可能多的安排，大 ...</blockquote>
+哪能怎么办，一切馈赠都在冥冥之中标好了价码<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
