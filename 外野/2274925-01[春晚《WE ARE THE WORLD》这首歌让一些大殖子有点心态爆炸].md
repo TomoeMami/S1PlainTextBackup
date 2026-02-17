@@ -1897,3 +1897,32 @@ deepseek 还真挺会写...
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Vneeto  
+##### 182#       发表于 2026-2-17 19:20
+
+人家原作/原唱对去宗教化没意见还过来一起唱了，他们算个屁。
+
+*****
+
+####  liquer  
+##### 183#       发表于 2026-2-17 19:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201537&amp;ptid=2274925" target="_blank">ads147147 发表于 2026-2-17 19:03</a>
+
+我们的歌词肯定是完全去宗教化的，不过在某些大儒眼里，唱这首歌本身就是认同自己是神的孩子，属于传教大 ...</blockquote>
+我在B站弹幕和评论区留言的建议是翻译成“赤子” <blockquote>个人一点小想法，“the children”翻译成“赤子”可能更好一些，赤子在中文是婴儿，指诞生之初皮肤通红的新生儿，也指纯洁无瑕未受世俗污染的心，“海内赤子”古代是指“四海之内皆陛下赤子”，是接受中国教化的畿内之人，后来指全球范围内的同胞，“赤子”以后当然也可以指世界上所有愿意反抗压迫的人民。我们的党被称为赤色政权，我们的国家的人民当然也是赤色的人民，用赤子是很合适的。</blockquote>
+
+
+*****
+
+####  wasian  
+##### 184#       发表于 2026-2-17 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201583&amp;ptid=2274925" target="_blank">liquer 发表于 2026-2-17 19:21</a>
+
+我在B站弹幕和评论区留言的建议是翻译成“赤子”</blockquote>
+这不是更拗口了吗，但凡你自己唱一句呢，而且赤子平时一般是"赤子之心”这样连用的，突然来个赤子那还不如孩子来的直白易懂
+
