@@ -334,3 +334,21 @@ zzz开播前就被太君各种质疑，第一集开始评价和热度就不咋�
 
 我还蛮喜欢谷中这风格的，最新一集很多演出也戳我，希望能顶住压力，也给我多出点小人。
 
+
+*****
+
+####  黄泉川此方  
+##### 704#       发表于 2026-2-17 18:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">22集了还在吊胃口+谜语人，我看高桥写的挺爽是真的
+
+
+*****
+
+####  一个陆仁贾  
+##### 705#       发表于 2026-2-17 18:51
+
+利维斯自从赤石出来后无聊得看不下去，zzz现在倒觉得还好，日本风评这么差的话到时候玩具都别倒了让给其他地区的吧<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
