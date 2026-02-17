@@ -327,3 +327,17 @@
 周年披风和2周年披风可以合体</blockquote>
 一颗莫里迪亚一颗彭塔是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，一年炸一颗
 
+
+*****
+
+####  Poketto  
+##### 7348#       发表于 2026-2-17 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69171352&amp;ptid=2170852" target="_blank">xinfengj 发表于 2026-2-11 04:44</a>
+认识的美国老哥被打出心理阴影跑去n5做日常三次撤离了
+
+话说光头老资历是不是可以给杂兵加buff，老资历振臂 ...</blockquote>
+让周围的小怪打的更准，跑的更快。如果把带队的老资历杀了，那些获得buff的小怪会强制眩晕
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
