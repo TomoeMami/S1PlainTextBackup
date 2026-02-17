@@ -1638,3 +1638,39 @@ MJ是发自内心的善良的人，所以他在美国活不下去
 
 我当时听到这歌就觉得，这是在世界大舞台高调宣布自己要当文明灯塔了啊，要我说这歌哪里唱哪里就是灯塔。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凡人一名  
+##### 157#       发表于 2026-2-17 15:19
+
+歌是有点短了，要是能唱完整的就好了。
+
+我拿总台春晚的版本转了一版acc和mp3的版本
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/av.gif" referrerpolicy="no-referrer">
+
+世界义乌中国年.aac
+
+2026-2-17 15:18 上传
+点击文件名下载附件
+
+2.27 MB, 下载次数: 0
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/av.gif" referrerpolicy="no-referrer">
+
+世界义乌中国年.mp3
+
+2026-2-17 15:18 上传
+点击文件名下载附件
+
+1.64 MB, 下载次数: 0
+
+
+*****
+
+####  朵雅空咖  
+##### 158#       发表于 2026-2-17 15:24
+
+看殖乎在<strong>2026年2月16日</strong>以前的说法，这首歌就是美帝之所以被世人视为灯塔的象征，这么一首政治象征意义这么大的歌没想到原作之一会选择在春晚和成龙合唱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
