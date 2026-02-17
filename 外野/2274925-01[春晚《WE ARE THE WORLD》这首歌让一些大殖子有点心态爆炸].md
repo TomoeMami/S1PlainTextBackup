@@ -1324,3 +1324,11 @@ Mj多少反美的歌，当年就有人举报爱泼斯坦了，结果FBI精力全
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  喵咪咪格勒  
+##### 128#       发表于 2026-2-17 11:17
+
+原来部分人眼里美国川子是左翼国家左派人士<img src="https://static.stage1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer"> 怪不得到处给人扣左帽呢
+
