@@ -1739,3 +1739,16 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  harry3  
+##### 140#       发表于 2026-2-17 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69200358&amp;ptid=2274506" target="_blank">Awanano 发表于 2026-2-17 11:51</a>
+
+水蛭平A和武器都带吸血效果，搞个武器战或者防战就行了
+
+因为他不会升级所以队友会升的很快，水蛭前两层伤 ...</blockquote>
+不大会玩战士，感觉抓的不好就是腿短摸不到人又容易残血，抓的好倒是能跳过去全杀了
+
