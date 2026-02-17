@@ -1631,3 +1631,33 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 <img src="https://img.stage1st.com/forum/202602/17/073658qif4bfkdqd7cfcvi.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wwddrte  
+##### 132#       发表于 2026-2-17 09:42
+
+ 本帖最后由 wwddrte 于 2026-2-17 09:44 编辑 
+
+差不多通了，最后的育种结果
+
+<img src="https://img.stage1st.com/forum/202602/17/093843jp7v328fpppmsr38.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-02-17 023744.png</strong> (375.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-17 09:38 上传
+
+打完回来就这个属性了
+
+<img src="https://img.stage1st.com/forum/202602/17/093843ix2ebpzpepefdp3b.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-02-17 023813.png</strong> (390.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-17 09:38 上传
+
+那个耳朵的缺陷我配了好久都消不掉，最后也懒得管了，反正我不玩弓箭
+
