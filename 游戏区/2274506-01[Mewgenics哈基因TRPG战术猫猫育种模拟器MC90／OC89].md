@@ -1693,3 +1693,16 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 —— 来自 鹅球 v3.5.99</blockquote>
 走位逼到角落里或者卡地形
 
+
+*****
+
+####  Awanano  
+##### 136#       发表于 2026-2-17 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69200000&amp;ptid=2274506" target="_blank">harry3 发表于 2026-2-17 09:59</a>
+
+断头台tina第二战给的道具限制1级+倒地必死给哪个职业用好打埋骨地啊，怕翻车爆了，只有五六点属性的猫也没 ...</blockquote>
+水蛭平A和武器都带吸血效果，搞个武器战或者防战就行了
+
+因为他不会升级所以队友会升的很快，水蛭前两层伤害都是够的，第三层开始靠队友C
+
