@@ -2148,3 +2148,37 @@ tmd饺子翻成dumpling的时候这帮大翻译家都死哪去了
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">会说jiaozi白皮不会发音
 我寻思英语外来语一大堆也没见不会读，不多你这一个
 
+
+*****
+
+####  希望之花  
+##### 202#       发表于 2026-2-17 20:58
+
+ 本帖最后由 希望之花 于 2026-2-17 21:02 编辑 
+
+神的孩子翻译这事情怎么说呢
+
+接触过一个对中国文化很有兴趣的德国人，还是个大学教授
+
+他跟我兴冲冲地说“你看中文的船这个字，拆开看是舟八口，对应的是诺亚方舟载了八个人的故事”，然后大谈中国文化和西方那些宗教的渊源<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他们可不管你这那信达雅的就直接把自己的东西强行套上去
+
+所以别人文化里说自己是children，那我们自己释经说指的是人民的儿子，反正你歌词里也没点名是谁的孩子嘛
+
+
+*****
+
+####  joverkok  
+##### 203#       发表于 2026-2-17 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69198005&amp;ptid=2274925" target="_blank">uxon 发表于 2026-2-16 22:32</a>
+
+天数有变，神器更易，而归有德之人，此乃自然之理也。</blockquote>
+不对味，这话是不是王朗说的
+
+*****
+
+####  KioShiMa  
+##### 204#       发表于 2026-2-17 21:05
+
+实际上这个世界没有一个国家能够“we”所有人，“world”所有国家，四海一家只能说处于并将长期处于地平线上
+
