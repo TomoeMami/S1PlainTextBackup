@@ -1080,3 +1080,21 @@ MJ如果无恙，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  休斯顿·张伯伦  
+##### 106#       发表于 2026-2-17 08:36
+
+We are the world，但白皮猪、小日子、棒子、阿三、黑鬼、殖人、反贼除外。还剩下不少人，够了。
+
+
+*****
+
+####  adw667  
+##### 107#       发表于 2026-2-17 08:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69197901&amp;ptid=2274925" target="_blank">youranchen1 发表于 2026-2-16 22:27</a>
+30多年前一首美国歌是**春晚最好的节目，是谁赢了呢</blockquote>
+跟我三国无双说去吧<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
