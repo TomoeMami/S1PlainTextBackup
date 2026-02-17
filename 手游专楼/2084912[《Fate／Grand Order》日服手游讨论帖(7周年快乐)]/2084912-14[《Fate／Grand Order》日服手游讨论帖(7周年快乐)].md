@@ -438,3 +438,44 @@ c妈怒砍两分
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  岸浪白野  
+##### 20550#       发表于 2026-2-17 20:50
+
+ 本帖最后由 岸浪白野 于 2026-2-17 20:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201520&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2026-2-17 18:57</a>
+
+每一次活动都给下一个活动挖坑是吧
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99 ...</blockquote>
+这次给下一次铺垫到农神的资料最后一格都还是锁着的过了活动都没用，又要等幕间或主线了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 20551#       发表于 2026-2-17 20:52
+
+【【FGO】(新春特供）打手和插件-哔哩哔哩】 https://b23.tv/dMlA2GN
+
+笑出声
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  岸浪白野  
+##### 20552#       发表于 2026-2-17 20:54
+
+还有何意啊，真就成纯剧情用立绘了就出现几秒没有灵衣了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202602/17/205525e4esq2bgun6z0s3b.png" referrerpolicy="no-referrer">
+
+<strong>M{ZBV{T9(%P{(S3(P4HBCF7.png</strong> (1.92 MB, 下载次数: 0)
+
+下载附件
+
+2026-2-17 20:55 上传
+
