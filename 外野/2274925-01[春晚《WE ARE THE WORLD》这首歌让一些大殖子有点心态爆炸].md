@@ -1144,3 +1144,37 @@ We are the world，但白皮猪、小日子、棒子、阿三、黑鬼、殖人�
 再让我听到新三国的梗，我就扎聋自己的耳朵</blockquote>
 龙可是帝王之证啊
 
+
+*****
+
+####  wlhlz  
+##### 112#       发表于 2026-2-17 09:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199844&amp;ptid=2274925" target="_blank">休斯顿·张伯伦 发表于 2026-2-17 08:36</a>
+右派挪用左派口号然后感动涕零简直是我最喜欢的政治笑话了。在如此热衷于竖切细分人为制造对立的时代，口号 ...</blockquote>
+那可不，跟泥潭网友一样用屁股思考想必就是世界大势啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  sjax001  
+##### 113#       发表于 2026-2-17 09:44
+
+<blockquote>休斯顿·张伯伦 发表于 2026-2-17 08:36
+右派挪用左派口号然后感动涕零简直是我最喜欢的政治笑话了。在如此热衷于竖切细分人为制造对立的时代，口号 ...</blockquote>
+除了装逼犯，所有人都包括，毕竟装逼犯喜欢站在外太空看地球，已经不属于world了
+
+*****
+
+####  oyss  
+##### 114#       发表于 2026-2-17 09:47
+
+<blockquote>TTAA 发表于 2026-2-16 22:40
+十五年mj老粉诚挚推荐mj另一首歌history，你会感受到其中的历史唯物主义情怀
+
+我一直相信，如果mj还活着，他 ...</blockquote>
+
+Mj多少反美的歌，当年就有人举报爱泼斯坦了，结果FBI精力全在MJ这边，最后人还是清白的
+

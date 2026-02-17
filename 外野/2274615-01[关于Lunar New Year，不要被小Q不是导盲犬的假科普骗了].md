@@ -3194,3 +3194,18 @@ Marry chrismas 和 happy holiday 都对，但你不能说圣诞快乐不然就�
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  乔伊  
+##### 263#       发表于 2026-2-17 09:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69179269&amp;ptid=2274615" target="_blank">我是大鲨鱼1453 发表于 2026-2-12 17:23</a>
+卢诗翰这家伙也是滑头。美国超级碗这事跟lunar new year有什么可比性？
+
+超级碗那真的是美国人自己最常用 ...</blockquote>
+拉丁美洲这个概念本来就是山巅之城生造出来的，只为在WASP和AMIGO之间作出区隔
+懂王这么破防当然也是因为它们的话语权被动摇了嘛，NORTH AMERICA里面包含这么多非白人，这怎么行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKB110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
