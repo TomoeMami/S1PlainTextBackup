@@ -2275,3 +2275,56 @@ children of red</blockquote>
 有点小看美国人的脸皮了吧</blockquote>
 想多了，超级碗唱了个西班牙语歌能把奶龙唱破防
 
+
+*****
+
+####  绝地潜兵  
+##### 214#       发表于 2026-2-17 22:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69202080&amp;ptid=2274925" target="_blank">豪福 发表于 2026-2-17 22:29</a>
+
+为什么不能，你玩全球化就必须接纳基督徒，甚至是**，更甚至是印度屎
+
+—— 来自 OnePlus PHB110, Androi ...</blockquote>
+全球化是做生意，不是去赤石
+
+*****
+
+####  tansapple  
+##### 215#       发表于 2026-2-17 22:57
+
+我国的全球化是建立全球供应链，大家有钱一起赚，不是欧美那种全球化是要建立一种全球统一价值观，所以什么基督教和阿三屎我们都不吃，你们在你们自己家玩就行。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Demi.Albertini  
+##### 216#       发表于 2026-2-17 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201793&amp;ptid=2274925" target="_blank">topia 发表于 2026-2-17 20:44</a>
+
+tmd饺子翻成dumpling的时候这帮大翻译家都死哪去了
+
+去**</blockquote>
+但是这是清朝的事了啊……
+
+*****
+
+####  qratosones1337  
+##### 217#       发表于 2026-2-17 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201134&amp;ptid=2274925" target="_blank">Panik_meme 发表于 2026-2-17 16:39</a>
+
+泥潭幽默左批真是层出不穷人才济济</blockquote>
+其实是蜗佐
+
+
+*****
+
+####  qratosones1337  
+##### 218#       发表于 2026-2-17 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201537&amp;ptid=2274925" target="_blank">ads147147 发表于 2026-2-17 19:03</a>
+
+我们的歌词肯定是完全去宗教化的，不过在某些大儒眼里，唱这首歌本身就是认同自己是神的孩子，属于传教大 ...</blockquote>
+其实上帝的二儿子都是中国人了
+
