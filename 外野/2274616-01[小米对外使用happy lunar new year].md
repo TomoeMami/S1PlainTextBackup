@@ -87,3 +87,18 @@
 
 原来现在都不用spring festival了吗，记得中学时期一直用这个
 
+
+*****
+
+####  chuchoselph  
+##### 56#       发表于 2026-2-17 18:00
+
+要我说chunjie也是狗屎，直接new year<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FeteFrumoase  
+##### 57#       发表于 2026-2-17 18:02
+
+提一嘴，前面两个在都嗯提小米的兄台已经被永封了
+
