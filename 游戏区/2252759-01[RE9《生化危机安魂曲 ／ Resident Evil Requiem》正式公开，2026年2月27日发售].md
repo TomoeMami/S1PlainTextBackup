@@ -247,3 +247,15 @@ DLC出个克莱尔，警局同学会就到齐了</blockquote>
 
 媒体评价何时出来？？？？？
 
+
+*****
+
+####  csolfans  
+##### 641#       发表于 2026-2-17 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201698&amp;ptid=2252759" target="_blank">godless2020 发表于 2026-2-17 20:05</a>
+媒体评价何时出来？？？？？</blockquote>
+25号晚上
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

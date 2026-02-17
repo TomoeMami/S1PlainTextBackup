@@ -2220,3 +2220,27 @@ god of red
 接触过一个对中国文化很有兴趣的德国人，还是个大学教授</blockquote>
 这群逼以后会论证华夏子女是白人的，恶心坏了，有毒的白人文化
 
+
+*****
+
+####  smiths146  
+##### 209#       发表于 2026-2-17 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201841&amp;ptid=2274925" target="_blank">希望之花 发表于 2026-2-17 20:58</a>
+
+神的孩子翻译这事情怎么说呢
+
+接触过一个对中国文化很有兴趣的德国人，还是个大学教授</blockquote>
+我能说 德国汉学家 是对中华文化 恶意第二大的人群么
+
+
+*****
+
+####  外挂全家脚气  
+##### 210#       发表于 2026-2-17 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201866&amp;ptid=2274925" target="_blank">03e7 发表于 2026-2-17 21:12</a>
+
+children of red</blockquote>
+老美听了更害怕了<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
