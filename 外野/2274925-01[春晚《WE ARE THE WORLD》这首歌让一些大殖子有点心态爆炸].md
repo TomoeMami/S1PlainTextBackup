@@ -2338,3 +2338,15 @@ tmd饺子翻成dumpling的时候这帮大翻译家都死哪去了
 
 —— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  66367749  
+##### 220#       发表于 2026-2-18 01:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201841&amp;ptid=2274925" target="_blank">希望之花 发表于 2026-2-17 20:58</a>
+神的孩子翻译这事情怎么说呢
+
+接触过一个对中国文化很有兴趣的德国人，还是个大学教授</blockquote>
+个人觉得歌词本身的基督教方面是由于美国是个教国，狗来了都得信个教，深入生活方方面面的关系，而孩子则是个独立的概念，mj本身就喜欢小孩，和宗教的关联性实际没那么强。去宗教后更宏大，也更贴切想传递的思想。
+
