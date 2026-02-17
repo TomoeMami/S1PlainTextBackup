@@ -435,3 +435,15 @@
 离子喷可以应付除了三足以外的所有敌人,而且伤害还不差, 2发一个蚊子, 3 ...</blockquote>
 谢了，回头试试
 
+
+*****
+
+####  ParadiseMartyr  
+##### 7356#       发表于 2026-2-18 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69202284&amp;ptid=2170852" target="_blank">再也不咬钩勒 发表于 2026-2-17 23:44</a>
+谢了，可惜新号没权限加鹅</blockquote>
+其实就是个带自瞄的中穿手枪，可以拿其他手枪先平替着
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
