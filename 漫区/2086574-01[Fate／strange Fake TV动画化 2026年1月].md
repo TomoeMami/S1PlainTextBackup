@@ -1337,3 +1337,16 @@ fgo总算解释了海无力为啥是人类而不是飞船
 
 秦始皇还没有出来呢（虽然并不是秦始皇）
 
+
+*****
+
+####  199april  
+##### 1016#       发表于 2026-2-17 23:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69193201&amp;ptid=2086574" target="_blank">meailove 发表于 2026-2-15 23:08</a>
+
+这绫香是直接变成两个从者的御主了吗？还是单纯的只提供魔力，没有指挥权
+
+—— 来自 Xiaomi 24122RKC7C, A ...</blockquote>
+单纯供魔，绫香指挥不动狂信子
+
