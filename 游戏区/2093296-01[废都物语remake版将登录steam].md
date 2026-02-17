@@ -60,3 +60,13 @@
 
 —— 来自 OnePlus PJA110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  laputah  
+##### 843#       发表于 2026-2-18 07:12
+
+<blockquote>Piano-Forest 发表于 2026-2-17 23:46
+</blockquote>
+这马画的有那味了 期待各种立绘
+
