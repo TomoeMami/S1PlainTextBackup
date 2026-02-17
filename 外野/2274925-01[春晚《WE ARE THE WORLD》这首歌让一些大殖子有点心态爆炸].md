@@ -2105,3 +2105,14 @@ we are the children直译就是我们是孩子
 这版翻译是服务于整个义乌分 ...</blockquote>
 这么一说，义乌地区的外商，背后祖国可是让基教国家坑完了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空き地卯木  
+##### 198#       发表于 2026-2-17 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201735&amp;ptid=2274925" target="_blank">飛霞精灵 发表于 2026-2-17 20:21</a>
+
+这么一说，义乌地区的外商，背后祖国可是让基教国家坑完了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你这么一说,查了下尼泊尔这山高皇帝远的也给带英霍霍过,至于南非倒是整个国家也信基教,至于基教怎么来的就不用多说了
+
