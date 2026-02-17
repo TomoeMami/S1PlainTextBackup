@@ -3247,3 +3247,34 @@ Marry chrismas 和 happy holiday 都对，但你不能说圣诞快乐不然就�
 马克龙表示你们不用争lnycny还是chunjie了
 我用法中越韩四语发了四条农历新年祝福，你们自己认领自己看得懂的那条就行了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无恨  
+##### 268#       发表于 2026-2-17 18:18
+
+各类明星祝福都是说Chinese New year<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无恨  
+##### 269#       发表于 2026-2-17 18:18
+
+各类明星祝福都是说Chinese New year<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  The_Ether_  
+##### 270#       发表于 2026-2-17 18:20
+
+<img src="https://img.stage1st.com/forum/202602/17/182001hwugeknu6hm0t049.png" referrerpolicy="no-referrer">
+
+<strong>AE5772C8E80CA4C982BB892F9B2B15B0.png</strong> (133.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-17 18:20 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真正的端水
+
