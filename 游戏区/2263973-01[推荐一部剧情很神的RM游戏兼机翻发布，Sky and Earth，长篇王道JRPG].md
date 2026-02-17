@@ -20,3 +20,13 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  煌煌其烨  
+##### 235#       发表于 2026-2-17 13:02
+
+在贴吧的经典jrpg吧那边找到了作者前作《千年时计》的机翻，我目前已经玩了可能有三分之二的进度，感觉相对没有sky and earth那么“严肃”，有更多二次元的插科打诨以及和上个作品的联动，剧情上比较典的地方也更多
+
+—— 来自 HUAWEI GLA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
