@@ -71,3 +71,11 @@
 
 要我说就应该直接用new year，阳历新年叫solar new year<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zycilcy  
+##### 54#       发表于 2026-2-17 13:44
+
+才几年呀，大家就忘了以前外交部的评价是什么了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，我看钙片还是寄少了
+
