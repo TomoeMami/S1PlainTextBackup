@@ -3172,3 +3172,13 @@ Marry chrismas 和 happy holiday 都对，但你不能说圣诞快乐不然就�
 
 为什么要选择？CNY，Lny，chunjie都是中国的，我们应该把这三个名字都打上中国烙印。
 
+
+*****
+
+####  deenyao  
+##### 261#       发表于 2026-2-17 08:00
+
+记得以前学的spring festival?
+
+—— 来自 samsung SM-T978U, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -1055,3 +1055,28 @@ MJ如果无恙，
 30多年前一首美国歌是**春晚最好的节目，是谁赢了呢</blockquote>
 👈🤣赢学侵蚀大脑了
 
+
+*****
+
+####  neptunehs  
+##### 104#       发表于 2026-2-17 07:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199706&amp;ptid=2274925" target="_blank">nnknnk 发表于 2026-2-17 03:17</a>
+不知道这歌国际影响在什么境界，国内影响是真的大，小时候看电视真的经常听。
+
+胡乱猜测立本人不让放今年春 ...</blockquote>
+看推 春晚有这歌给部分日本人也是相当震撼的 而且基本是好感
+那绝壁不能转播啊
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  圣雷科诺  
+##### 105#       发表于 2026-2-17 07:59
+
+这歌词本身写的不错，但🇺🇸完全不配里面的内容导致歌曲评价被**拖累了
+“夷狄之人贪而好利，被发左衽，人面兽心。”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
