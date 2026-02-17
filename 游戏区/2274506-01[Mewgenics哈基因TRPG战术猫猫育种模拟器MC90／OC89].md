@@ -1904,3 +1904,11 @@ echo.</blockquote>
 
 蜥蜴君直播初见墓地boss差点过了，节目效果拉满 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嘲风  
+##### 149#       发表于 2026-2-18 04:27
+
+妈的随机事件太畜生了，给了个什么头部的寄生虫，每场战斗完了全能力-1，把我无敌的屠夫大哥生生废了，打最后月球boss差点儿放弃，结果靠着盗贼叠流血的装备生生给月中人流血耗死了，太特么累了
+
