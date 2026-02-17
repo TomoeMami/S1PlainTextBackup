@@ -341,3 +341,16 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  全装甲夏亚  
+##### 7349#       发表于 2026-2-17 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69193850&amp;ptid=2170852" target="_blank">再也不咬钩勒 发表于 2026-2-16 09:11</a>
+
+现在南线带什么战备比较爽？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+我一直觉得南线最好用的战备是黄蜂导弹巢，再带个轨道火，南线就随便玩了
+
