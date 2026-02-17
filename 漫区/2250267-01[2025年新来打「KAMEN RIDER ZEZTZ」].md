@@ -309,3 +309,13 @@ nox和lady明显知道莫的噩梦，灾厄形态估计都在意料之中，不�
 
 —— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  白玫瑰之夜  
+##### 702#       发表于 2026-2-17 17:59
+
+牢莫这灾厄前面看着还以为要干一架，结果倒是没费劲说用就用了，还有nox这谜语人状态希望别持续太久了，天天复读组织的黑暗完了自己也不干人事看着真挺折磨人的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2337A, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
