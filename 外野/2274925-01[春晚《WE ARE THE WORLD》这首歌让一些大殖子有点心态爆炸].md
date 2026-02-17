@@ -1098,3 +1098,28 @@ We are the world，但白皮猪、小日子、棒子、阿三、黑鬼、殖人�
 30多年前一首美国歌是**春晚最好的节目，是谁赢了呢</blockquote>
 跟我三国无双说去吧<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 108#       发表于 2026-2-17 09:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199844&amp;ptid=2274925" target="_blank">休斯顿·张伯伦 发表于 2026-2-17 08:36</a>
+右派挪用左派口号然后感动涕零简直是我最喜欢的政治笑话了。在如此热衷于竖切细分人为制造对立的时代，口号 ...</blockquote>
+⏰：包括（秒答）
+
+我自己心胸狭窄称赞⏰心胸广大，海纳百川有啥矛盾，我就是自己心胸狭窄不代表讨厌心胸广大，海纳百川啊。
+
+—— 来自 HUAWEI NOH-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  仟音一心  
+##### 109#       发表于 2026-2-17 09:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69199706&amp;ptid=2274925" target="_blank">nnknnk 发表于 2026-2-17 03:17</a>
+不知道这歌国际影响在什么境界，国内影响是真的大，小时候看电视真的经常听。
+
+胡乱猜测立本人不让放今年春 ...</blockquote>
+和戚继光抗倭关系可能更大<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
