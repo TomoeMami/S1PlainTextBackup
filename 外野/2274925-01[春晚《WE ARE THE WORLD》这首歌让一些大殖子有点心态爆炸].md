@@ -1332,3 +1332,30 @@ Mj多少反美的歌，当年就有人举报爱泼斯坦了，结果FBI精力全
 
 原来部分人眼里美国川子是左翼国家左派人士<img src="https://static.stage1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer"> 怪不得到处给人扣左帽呢
 
+
+*****
+
+####  Surlert  
+##### 129#       发表于 2026-2-17 11:25
+
+大殖子破防不失为春晚最佳小品<img src="https://static.stage1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RYURYUTA  
+##### 130#       发表于 2026-2-17 11:28
+
+这楼里有人哈气有人扣帽子，属于是让一个小品完整了<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  疼子  
+##### 131#       发表于 2026-2-17 11:30
+
+跳脚好看，继续跳<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HBN-AL80, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
