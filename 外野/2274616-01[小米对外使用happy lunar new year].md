@@ -63,3 +63,11 @@
 微博也已经有些KOL在 ...</blockquote>
 别以前了，今年外交部还在用呢
 
+
+*****
+
+####  wjmly1988  
+##### 53#       发表于 2026-2-17 13:30
+
+要我说就应该直接用new year，阳历新年叫solar new year<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
