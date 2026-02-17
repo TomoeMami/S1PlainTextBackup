@@ -1926,3 +1926,34 @@ deepseek 还真挺会写...
 我在B站弹幕和评论区留言的建议是翻译成“赤子”</blockquote>
 这不是更拗口了吗，但凡你自己唱一句呢，而且赤子平时一般是"赤子之心”这样连用的，突然来个赤子那还不如孩子来的直白易懂
 
+
+*****
+
+####  FACS  
+##### 185#       发表于 2026-2-17 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201484&amp;ptid=2274925" target="_blank">空き地卯木 发表于 2026-2-17 18:42</a>
+反正我昨晚上推特和5ch看 欧美人知道这歌什么含义的 听到这首都挺乐呵又感慨的 就算是不懂这歌意味着什么 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">皇帝不急太监急是这样的
+
+*****
+
+####  绝地潜兵  
+##### 186#       发表于 2026-2-17 19:33
+
+大量英文词汇都有极强宗教意味，语言本身是带意识形态的
+
+没有意识到去宗教化的重要性，不是土就是殖
+
+
+*****
+
+####  动荡的远方  
+##### 187#       发表于 2026-2-17 19:34
+
+虽然但是，we are the world，we are the children这一句直译可不就是“我们是孩子”？还想译出个啥花来？
+有些人完全是有“中文过敏症”
+还记得多年以前一篇影评说“set me free”余音袅袅，直击心扉，合着“直白”放英语是天籁之音，放中文就成了“没文化”？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
