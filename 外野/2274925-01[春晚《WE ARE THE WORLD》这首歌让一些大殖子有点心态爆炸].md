@@ -1810,3 +1810,32 @@ deepseek 还真挺会写...
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  66367749  
+##### 173#       发表于 2026-2-17 18:36
+
+刚在贴吧看到个相关帖子，有个人几乎每个回复下都解释“这歌大家不买账，用的老外的价值，真丢人”的，只能说这种破防的把节目提高到了另一个高度，爱看<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  希望之花  
+##### 174#       发表于 2026-2-17 18:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201471&amp;ptid=2274925" target="_blank">66367749 发表于 2026-2-17 18:36</a>
+
+刚在贴吧看到个相关帖子，有个人几乎每个回复下都解释“这歌大家不买账，用的老外的价值，真丢人”的，只能 ...</blockquote>
+被口球的20楼就是这个思路<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空き地卯木  
+##### 175#       发表于 2026-2-17 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201471&amp;ptid=2274925" target="_blank">66367749 发表于 2026-2-17 18:36</a>
+
+刚在贴吧看到个相关帖子，有个人几乎每个回复下都解释“这歌大家不买账，用的老外的价值，真丢人”的，只能 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正我昨晚上推特和5ch看 欧美人知道这歌什么含义的 听到这首都挺乐呵又感慨的 就算是不懂这歌意味着什么的本子也没见到哈气的 只有说中文的二鬼子是在上蹿下跳"你也配唱我爹的歌"的
+

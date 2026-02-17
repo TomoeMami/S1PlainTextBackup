@@ -1760,3 +1760,24 @@ sl多了，直接被ai接管，换选普通路线结果把boss都打完了
 
 sd上玩用哪个汉化最好
 
+
+*****
+
+####  leeskies  
+##### 142#       发表于 2026-2-17 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201387&amp;ptid=2274506" target="_blank">基顿老爷让来的 发表于 2026-2-17 18:07</a>
+
+sd上玩用哪个汉化最好</blockquote>
+b站那个有大字版
+
+Link_啊呤的个人空间-Link_啊呤个人主页-哔哩哔哩视频
+[https://space.bilibili.com/11365 ... upinfo.detail.click](https://space.bilibili.com/11365739?spm_id_from=333.788.upinfo.detail.click)
+
+*****
+
+####  scikirbypoke  
+##### 143#       发表于 2026-2-17 18:41
+
+已经是steam的肉鸽里同时在线最高的了，第二是哈迪斯2
+
