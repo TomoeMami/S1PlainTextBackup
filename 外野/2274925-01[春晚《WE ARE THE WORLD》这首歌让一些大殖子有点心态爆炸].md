@@ -1739,3 +1739,23 @@ WE ARE THE WORLD，不服憋着🎶
 
 就现在闹钟的世界舆论，这事很快就会登上美国主流媒体……在一番感慨后一转乳川<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  phorcys02  
+##### 167#       发表于 2026-2-17 16:35
+
+deepseek 还真挺会写...
+
+&lt;世界同&gt;
+
+一歌成谶，万邦与共
+
+铁幕烬冷，鬼神破封
+
+戈陈金销，塔毁玉熔
+
+昭昭天命，归之于东
+
+-- by  deepseek
+
