@@ -2182,3 +2182,41 @@ tmd饺子翻成dumpling的时候这帮大翻译家都死哪去了
 
 实际上这个世界没有一个国家能够“we”所有人，“world”所有国家，四海一家只能说处于并将长期处于地平线上
 
+
+*****
+
+####  myarms  
+##### 205#       发表于 2026-2-17 21:11
+
+如果不唱We are the world，看了机器人表演应该更害怕了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  03e7  
+##### 206#       发表于 2026-2-17 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201583&amp;ptid=2274925" target="_blank">liquer 发表于 2026-2-17 19:21</a>
+
+我在B站弹幕和评论区留言的建议是翻译成“赤子”</blockquote>
+god of red
+
+*****
+
+####  tillnight  
+##### 207#       发表于 2026-2-17 21:13
+
+第一遍听到我们是孩子的时候是觉得有点尬，多听几遍反而觉得这直译其实很有韵味。
+
+
+*****
+
+####  绝地潜兵  
+##### 208#       发表于 2026-2-17 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201841&amp;ptid=2274925" target="_blank">希望之花 发表于 2026-2-17 20:58</a>
+
+神的孩子翻译这事情怎么说呢
+
+接触过一个对中国文化很有兴趣的德国人，还是个大学教授</blockquote>
+这群逼以后会论证华夏子女是白人的，恶心坏了，有毒的白人文化
+
