@@ -1992,3 +1992,26 @@ echo.</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Awanano  
+##### 159#       发表于 2026-2-18 17:37
+
+ 本帖最后由 Awanano 于 2026-2-18 17:40 编辑 
+
+打完月球，好平静😐
+
+那么问题来了月亮上的人如果没多发伤害该怎么过，我这把是天选局，盗贼双发被动+99小刺的武器，技能拿了背刺翻滚，一只猫就能控两个手。但是其他职业该怎么打
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+20260218040628_1.jpg
+(551.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-18 17:40 上传
+
+<img src="https://img.stage1st.com/forum/202602/18/174005jbq52262o5l886wl.jpg" referrerpolicy="no-referrer">
+
