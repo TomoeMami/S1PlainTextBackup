@@ -511,3 +511,15 @@ xin nian 必须也有个位置
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Kaornao  
+##### 47#       发表于 2026-2-19 00:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69205351&amp;ptid=2275005" target="_blank">今天不守尸 发表于 2026-2-18 23:38</a>
+你是说马克龙吗，他发了法中越韩四语的祝贺新年快乐，主打一个端水谁也不得罪 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
