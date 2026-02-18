@@ -70,3 +70,13 @@
 </blockquote>
 这马画的有那味了 期待各种立绘
 
+
+*****
+
+####  Rainwedell  
+##### 844#       发表于 2026-2-18 08:58
+
+这次重制版是带 cv 还是说不带有消息吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
