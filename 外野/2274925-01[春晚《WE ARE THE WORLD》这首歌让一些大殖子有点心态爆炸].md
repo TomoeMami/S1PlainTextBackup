@@ -2579,3 +2579,13 @@ MJ真来的话那就肯定不止we are the world了，Heal the World必须安排
 
 —— 来自 HONOR PGT-AN20, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  adw667  
+##### 244#       发表于 2026-2-18 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69203909&amp;ptid=2274925" target="_blank">goranger 发表于 2026-2-18 15:43</a>
+这波看得出来是真破防了。老反贼都得出来悄悄阴阳两句，以下是一个江浙出身的财经up（牛猫）的阴阳：后半段 ...</blockquote>
+《政治学人》<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
