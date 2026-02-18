@@ -16,3 +16,17 @@
 
 真是未来可期<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 717#       发表于 2026-2-18 18:38
+
+ 本帖最后由 Flechette 于 2026-2-18 18:40 编辑 
+
+这叫尊重原作设定<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，虽说已经出了红胡子这个中立僧侣
+
+新角应该是青春版领主，僧侣+战士或者僧侣+骑士，但是这次主要还得观望伊亚玛斯是否有售后，青春版武士早就退环境了，没售后的话青春版领主我也不是很想抽
+
+虽说多半还是会冲着早见沙织忍不住下池，然后暴死吃井
+
