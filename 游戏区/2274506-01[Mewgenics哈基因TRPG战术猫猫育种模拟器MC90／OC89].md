@@ -2023,3 +2023,24 @@ echo.</blockquote>
 
 这游戏猫猫养成也太离谱了，群友发的离谱小猫，出生比我退休猫属性还吊<img src="https://p.sda1.dev/30/d2549ed091ff791bb6dea3f8b3d8840b/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wwddrte  
+##### 161#       发表于 2026-2-19 06:38
+
+感觉这游戏缺乏一个小猫冷冻功能，养好的小猫暂时不用可以先冻起来，不然已经培育好的越来越老，不把突变和技能传下去等于之前白养了
+
+
+*****
+
+####  Awanano  
+##### 162#       发表于 2026-2-19 06:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69205742&amp;ptid=2274506" target="_blank">wwddrte 发表于 2026-2-19 06:38</a>
+感觉这游戏缺乏一个小猫冷冻功能，养好的小猫暂时不用可以先冻起来，不然已经培育好的越来越老，不把突变和 ...</blockquote>
+只能专门开一间养老院了吧，拉高健康不做突变，我昨天第一次弹出小猫年老的提示，想了想还是送出去了
+健康似乎是最稀缺的属性
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
