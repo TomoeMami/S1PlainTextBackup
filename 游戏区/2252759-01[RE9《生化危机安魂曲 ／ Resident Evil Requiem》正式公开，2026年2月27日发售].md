@@ -314,3 +314,11 @@ DLC出个克莱尔，警局同学会就到齐了</blockquote>
 
 11小时标准难度通关，不安desu
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 648#       发表于 2026-2-18 23:22
+
+11小时标准通关<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">好大的体量啊
+
