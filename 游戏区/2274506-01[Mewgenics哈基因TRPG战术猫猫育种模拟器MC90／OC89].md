@@ -1945,3 +1945,13 @@ echo.</blockquote>
 
 —— 来自 HONOR PGT-AN10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  嘲风  
+##### 154#       发表于 2026-2-18 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69203153&amp;ptid=2274506" target="_blank">12not3 发表于 2026-2-18 11:45</a>
+队里盗贼随机事件得了癌症，每场战斗打完随机降三点属性但是获得一个突变（还是变种？），就是+2属性-1属性 ...</blockquote>
+突变都可以遗传的，属性看遗传属性
+

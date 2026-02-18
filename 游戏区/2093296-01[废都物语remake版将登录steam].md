@@ -80,3 +80,15 @@
 
 —— 来自 Xiaomi 22041211AC, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  宛若青空  
+##### 845#       发表于 2026-2-18 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69202754&amp;ptid=2093296" target="_blank">Rainwedell 发表于 2026-2-18 08:58</a>
+这次重制版是带 cv 还是说不带有消息吗
+
+—— 来自 Xiaomi 22041211AC, Android 14, 鹅球 v3.5.99-alpha ...</blockquote>
+Steam上显示没有中日语音，估计至少初版是不会有的
+
