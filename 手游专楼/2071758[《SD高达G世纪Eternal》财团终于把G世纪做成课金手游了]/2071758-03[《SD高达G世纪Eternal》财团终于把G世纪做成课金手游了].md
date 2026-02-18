@@ -174,3 +174,13 @@ x异端的地图炮范围太小了吧，难道伤害很高吗？
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  acg_gyanc  
+##### 3647#       发表于 2026-2-18 22:00
+
+编辑下
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

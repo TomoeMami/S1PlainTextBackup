@@ -286,3 +286,11 @@ DLC出个克莱尔，警局同学会就到齐了</blockquote>
 
 真的偷跑啦<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">还是当年生化6的反向延期舒服
 
+
+*****
+
+####  bwsusaga  
+##### 645#       发表于 2026-2-18 22:02
+
+希望DLC有机会操纵雪莉，生6换装那段印象太深了。好像之后就很少有福利场景了（八尺不算）
+
