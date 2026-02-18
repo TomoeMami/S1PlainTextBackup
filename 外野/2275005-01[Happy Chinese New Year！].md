@@ -492,3 +492,22 @@ xin nian 必须也有个位置
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  今天不守尸  
+##### 45#       发表于 2026-2-18 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69205324&amp;ptid=2275005" target="_blank">Kaornao 发表于 2026-2-18 23:28</a>
+ 如果按照西方世界的文化尊重，什么时候不发这些英文，全发中文的马年快乐打破英语在这种话语权上的垄断才是 ...</blockquote>
+你是说马克龙吗，他发了法中越韩四语的祝贺新年快乐，主打一个端水谁也不得罪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面筋融化c  
+##### 46#       发表于 2026-2-18 23:42
+
+追星的都知道韩团官号发新年推都带个标叫설날，怕你看不懂还要标上 seollal，正统文明源头就应该全力推 chunjie ，别跟我什么 Chinese 不 lunar 的东西，生下来讲的是 putonghua 还是啥，外人听不懂就好好学
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
