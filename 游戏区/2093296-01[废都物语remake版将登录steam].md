@@ -102,3 +102,15 @@ Steam上显示没有中日语音，估计至少初版是不会有的
 我就不懂一个小型游戏重置专楼怎么这么爱唱衰，什么新消息都一转这游戏完蛋了。说好的没人在意新版做得怎么 ...</blockquote>
 反复跳票延期就是雷的典型前兆
 
+
+*****
+
+####  宛若青空  
+##### 847#       发表于 2026-2-18 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69203245&amp;ptid=2093296" target="_blank">不见不散 发表于 2026-2-18 12:12</a>
+
+反复跳票延期就是雷的典型前兆</blockquote>
+
+搞笑了，废物物语RE从来就没官方宣布过发售日，何来跳票延期之说
+
