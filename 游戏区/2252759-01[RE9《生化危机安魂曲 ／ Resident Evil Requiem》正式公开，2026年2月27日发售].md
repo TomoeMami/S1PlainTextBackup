@@ -437,3 +437,13 @@ DLC出个克莱尔，警局同学会就到齐了</blockquote>
 
 笑死 贴吧已经透爆炸了
 
+
+*****
+
+####  センコウ  
+##### 661#       发表于 2026-2-19 02:38
+
+[https://x.com/TurfyCoffee1/with_replies](https://x.com/TurfyCoffee1/with_replies)
+
+放了不少图，还有视频
+
