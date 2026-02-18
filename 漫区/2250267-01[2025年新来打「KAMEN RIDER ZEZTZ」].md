@@ -360,3 +360,13 @@ zzz开播前就被太君各种质疑，第一集开始评价和热度就不咋�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加油啊高桥gg，来点大伙最爱的爆点
 
+
+*****
+
+####  pointer243  
+##### 707#       发表于 2026-2-19 07:32
+
+zzz现在属于还不够爆吧,谜语人和一堆伏笔迟迟不爆是要把观众憋死。nox过于搅屎棍感觉目前人气不会高。现在剧情就是老莫一个人推着走,稍微翻一下车感觉整部剧就要崩坏了
+
+—— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
