@@ -2501,3 +2501,11 @@ MJ真来的话那就肯定不止we are the world了，Heal the World必须安排
 
 若是几十年前这个词叫祖国的花朵 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无动于衷  
+##### 237#       发表于 2026-2-18 12:15
+
+如果我翻就直接写成 我们是未来
+
