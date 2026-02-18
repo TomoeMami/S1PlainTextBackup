@@ -2466,3 +2466,11 @@ MJ真来的话那就肯定不止we are the world了，Heal the World必须安排
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Risa_g  
+##### 233#       发表于 2026-2-18 11:10
+
+“我们是孩子”这确实不像中文原生词句。但是考虑音韵的话确实合适的词不多。我觉得赤子是好翻译，原生词，顺嘴程度上也不比孩子差。
+
