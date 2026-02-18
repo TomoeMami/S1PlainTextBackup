@@ -2430,3 +2430,11 @@ MJ真来的话那就肯定不止we are the world了，Heal the World必须安排
 
 可以试着唱一下，非常怪，还不如“孩子”。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  云梦泽岸  
+##### 229#       发表于 2026-2-18 09:19
+
+把歌里宗教化去除后，“我们是孩子”就不是特指了，基督教徒看到的是神之子，**看到是安拉之子，我们唱的是世界的孩子，都是孩子，求同存异。
+
