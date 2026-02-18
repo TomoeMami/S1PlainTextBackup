@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 31600,
+    "totalreply": 31601,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》2.5 可曾记得爱]",
-    "lastedit": 1771373774,
+    "lastedit": 1771375687,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -15021,10 +15021,10 @@
     "update": false
   },
   "2274321": {
-    "totalreply": 299,
+    "totalreply": 300,
     "title": "[Seedance2.0这不比sora强十倍，以后想看啥自己拍就完事了。]",
     "newtitle": "[Seedance2.0这不比sora强十倍，以后想看啥自己拍就完事了。]",
-    "lastedit": 1771336695,
+    "lastedit": 1771375567,
     "category": "外野",
     "active": true,
     "update": false
@@ -15962,7 +15962,7 @@
     "newtitle": "[王者天下最新回]",
     "lastedit": 1771115892,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2274636": {
@@ -16965,10 +16965,19 @@
     "update": false
   },
   "2274989": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[破防了]",
     "newtitle": "[破防了]",
-    "lastedit": 1771358886,
+    "lastedit": 1771375208,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2274936": {
+    "totalreply": 41,
+    "title": "[王菲嗓子都成这样了啊]",
+    "newtitle": "[王菲嗓子都成这样了啊]",
+    "lastedit": 1771375210,
     "category": "外野",
     "active": true,
     "update": false
