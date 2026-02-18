@@ -92,3 +92,13 @@
 —— 来自 Xiaomi 22041211AC, Android 14, 鹅球 v3.5.99-alpha ...</blockquote>
 Steam上显示没有中日语音，估计至少初版是不会有的
 
+
+*****
+
+####  不见不散  
+##### 846#       发表于 2026-2-18 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68326601&amp;ptid=2093296" target="_blank">forestlimit 发表于 2025-8-27 01:29</a>
+我就不懂一个小型游戏重置专楼怎么这么爱唱衰，什么新消息都一转这游戏完蛋了。说好的没人在意新版做得怎么 ...</blockquote>
+反复跳票延期就是雷的典型前兆
+
