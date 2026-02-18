@@ -2520,3 +2520,19 @@ MJ真来的话那就肯定不止we are the world了，Heal the World必须安排
 我们的歌词肯定是完全去宗教化的，不过在某些大儒眼里，唱这首歌本身就是认同自己是神的孩子，属于传教大 ...</blockquote>
 一年赢365次的地方怕不是觉得国内那些教堂就是传教领域的诺曼底
 
+
+*****
+
+####  李霞  
+##### 239#       发表于 2026-2-18 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69202622&amp;ptid=2274925" target="_blank">wpwing 发表于 2026-2-18 05:26</a>
+奶龙现在好像都不提mj了</blockquote>
+前几天有怀念过一次
+
+【**发布视频回忆迈克尔杰克逊-哔哩哔哩】 https://b23.tv/Wixwv8q
+
+竞选前有一次跟网红互动，也提到过，看神态是真的很动情
+
+【**听到挚友迈克尔杰克逊的歌 注意他的表情 估计勾起了他的很多回忆-哔哩哔哩】 https://b23.tv/AYAp7P8
+
