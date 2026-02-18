@@ -447,3 +447,45 @@ DLC出个克莱尔，警局同学会就到齐了</blockquote>
 
 放了不少图，还有视频
 
+
+*****
+
+####  纸冰心  
+##### 662#       发表于 2026-2-19 03:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69202315&amp;ptid=2252759" target="_blank">佛罗伦萨 发表于 2026-2-17 23:54</a>
+
+明天可以开个偷跑剧透楼了</blockquote>
+我觉得已经不用了，剧透已经全方位无死角铺天盖地的糊脸了
+
+*****
+
+####  kcalb  
+##### 663#       发表于 2026-2-19 03:29
+
+好嘛，结果反派那边才是真复仇者联盟<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纸冰心  
+##### 664#       发表于 2026-2-19 03:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69205681&amp;ptid=2252759" target="_blank">kcalb 发表于 2026-2-19 03:29</a>
+
+好嘛，结果反派那边才是真复仇者联盟</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到底是给谁安魂 哈哈哈
+
+*****
+
+####  plok201  
+##### 665#       发表于 2026-2-19 03:35
+
+文件？？？就剩那么2-3个的样子，搜刮的挺仔细了
+
+11小时挺难评价的，毕竟7,8也差不多这个长度，最大问题可能是这个是双主角游戏，虽然都知道里昂才是主菜，但是你要不要除以2
+
+4代一定程度上减轻的剧情演出比重，这作怎么看剧情都要演很多，格蕾丝初遇丧尸就演了那么长一段了，真不好对比
+
+合理猜测大概是里昂RE2长度，格蕾丝RE3长度？
+
