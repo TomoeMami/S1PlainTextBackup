@@ -322,3 +322,14 @@ DLC出个克莱尔，警局同学会就到齐了</blockquote>
 
 11小时标准通关<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">好大的体量啊
 
+
+*****
+
+####  纸冰心  
+##### 649#       发表于 2026-2-19 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69205298&amp;ptid=2252759" target="_blank">桥洞底下盖小被 发表于 2026-2-18 23:22</a>
+
+11小时标准通关好大的体量啊</blockquote>
+给坛友回顾一下，re4偷跑结算通关时间是8.5h
+
