@@ -30,3 +30,13 @@
 
 虽说多半还是会冲着早见沙织忍不住下池，然后暴死吃井
 
+
+*****
+
+####  orz100  
+##### 718#       发表于 2026-2-18 20:16
+
+这次如果单角色的话，可能不用吃一井了，留点给狐狸换专武算了。<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
