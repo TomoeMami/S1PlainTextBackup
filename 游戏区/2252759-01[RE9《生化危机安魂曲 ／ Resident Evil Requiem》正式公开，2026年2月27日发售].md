@@ -377,3 +377,21 @@ DLC出个克莱尔，警局同学会就到齐了</blockquote>
 不过这位偷跑哥貌似基本上都收集的差不多了，看画面屏幕上的问号好像也确实也没几个了 ...</blockquote>
 嗯 看意思是正常推进，能收集的尽量会收集
 
+
+*****
+
+####  jockeyjoestar  
+##### 655#       发表于 2026-2-19 00:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">  11h算是意料之中吧  关键是4个场景  西木旅馆 疗养院 浣熊市 方舟
+
+*****
+
+####  纸冰心  
+##### 656#       发表于 2026-2-19 00:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69205534&amp;ptid=2252759" target="_blank">fcssnake 发表于 2026-2-19 00:55</a>
+
+既然**的都通关了，那到底有没有ADA？</blockquote>
+偷跑哥原话是xxx not where
+
