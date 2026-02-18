@@ -490,3 +490,48 @@ c妈怒砍两分
 还有何意啊，真就成纯剧情用立绘了就出现几秒没有灵衣了</blockquote>
 我还以为最后会实装呢，和BX那个银河灵衣一样，给看不给用是吧<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 20554#       发表于 2026-2-17 20:52
+
+【【FGO】(新春特供）打手和插件-哔哩哔哩】 https://b23.tv/dMlA2GN
+
+笑出声
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  岸浪白野  
+##### 20555#       发表于 2026-2-17 20:54
+
+还有何意啊，真就成纯剧情用立绘了就出现几秒没有灵衣了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202602/17/205525e4esq2bgun6z0s3b.png" referrerpolicy="no-referrer">
+
+<strong>M{ZBV{T9(%P{(S3(P4HBCF7.png</strong> (1.92 MB, 下载次数: 0)
+
+下载附件
+
+2026-2-17 20:55 上传
+
+*****
+
+####  khxooo  
+##### 20556#       发表于 2026-2-18 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201827&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2026-2-17 20:54</a>
+
+还有何意啊，真就成纯剧情用立绘了就出现几秒没有灵衣了</blockquote>
+我还以为最后会实装呢，和BX那个银河灵衣一样，给看不给用是吧<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20557#       发表于 2026-2-18 17:09
+
+月神和羽蛇神一起迎来技能强化本<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/a001be37e1166b5e5c8c65ed48081b6c/image.jpg" referrerpolicy="no-referrer">
+
