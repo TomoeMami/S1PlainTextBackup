@@ -470,3 +470,15 @@ xin nian 必须也有个位置
 
 哈基倭虽然不过春节了，但大部分人还是知道有这么一个节日的吧
 
+
+*****
+
+####  一心六文  
+##### 43#       发表于 2026-2-18 23:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69203792&amp;ptid=2275005" target="_blank">糖尔 发表于 2026-2-18 14:48</a>
+在ins上祝福春节时，三星和苹果都用了Chinese new year而华为用了lny这怎么说</blockquote>
+当然是骂蛙为汉奸啊。<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2454A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
