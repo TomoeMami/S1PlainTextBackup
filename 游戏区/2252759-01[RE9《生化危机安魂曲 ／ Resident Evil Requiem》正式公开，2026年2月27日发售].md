@@ -333,3 +333,47 @@ DLC出个克莱尔，警局同学会就到齐了</blockquote>
 11小时标准通关好大的体量啊</blockquote>
 给坛友回顾一下，re4偷跑结算通关时间是8.5h
 
+
+*****
+
+####  Fuero  
+##### 650#       发表于 2026-2-19 00:46
+
+11小时确实挺标准的，印象里7、8也差不多时间，2re和4re单线也接近，一个周末能打完的量，但细品的话又远不止这点时间
+
+*****
+
+####  JOJO42  
+##### 651#       发表于 2026-2-19 00:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69205474&amp;ptid=2252759" target="_blank">纸冰心 发表于 2026-2-19 00:30</a>
+
+给坛友回顾一下，re4偷跑结算通关时间是8.5h</blockquote>
+不过这位偷跑哥貌似基本上都收集的差不多了，看画面屏幕上的问号好像也确实也没几个了
+
+
+*****
+
+####  u2deack  
+##### 652#       发表于 2026-2-19 00:53
+
+有没有说通关后有解锁什么东西
+要是没有佣兵或者raid那真就只能狂打流程了，卡婊能不能给点力别磨蹭
+
+*****
+
+####  fcssnake  
+##### 653#       发表于 2026-2-19 00:55
+
+既然**的都通关了，那到底有没有ADA？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  纸冰心  
+##### 654#       发表于 2026-2-19 00:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69205511&amp;ptid=2252759" target="_blank">JOJO42 发表于 2026-2-19 00:46</a>
+
+不过这位偷跑哥貌似基本上都收集的差不多了，看画面屏幕上的问号好像也确实也没几个了 ...</blockquote>
+嗯 看意思是正常推进，能收集的尽量会收集
+
