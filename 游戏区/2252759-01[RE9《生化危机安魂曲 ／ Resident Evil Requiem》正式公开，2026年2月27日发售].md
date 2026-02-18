@@ -417,3 +417,15 @@ DLC出个克莱尔，警局同学会就到齐了</blockquote>
 
 按capcom的78的意思基本就是老角色不太适合当做第一人称恐怖游戏的主角了，但现在生化的基本盘其实是7出圈后进来的新血，这一部分需要一个合适的人第一人称恐怖摄像机
 
+
+*****
+
+####  csolfans  
+##### 659#       发表于 2026-2-19 02:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69205510&amp;ptid=2252759" target="_blank">Fuero 发表于 2026-2-19 00:46</a>
+11小时确实挺标准的，印象里7、8也差不多时间，2re和4re单线也接近，一个周末能打完的量，但细品的话又远不 ...</blockquote>
+7短多了，8跟4re差不多长
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
