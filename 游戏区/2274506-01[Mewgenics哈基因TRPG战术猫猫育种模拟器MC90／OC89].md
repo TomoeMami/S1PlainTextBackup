@@ -1955,3 +1955,12 @@ echo.</blockquote>
 队里盗贼随机事件得了癌症，每场战斗打完随机降三点属性但是获得一个突变（还是变种？），就是+2属性-1属性 ...</blockquote>
 突变都可以遗传的，属性看遗传属性
 
+
+*****
+
+####  tonyunreal  
+##### 155#       发表于 2026-2-18 12:59
+
+销量破百万
+<img src="https://p.sda1.dev/30/f36b81b4b4480f21676c1597bd9287bd/v4ev9oykr3kg1.jpg" referrerpolicy="no-referrer">
+
