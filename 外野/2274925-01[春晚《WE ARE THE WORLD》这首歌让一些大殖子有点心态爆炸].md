@@ -2509,3 +2509,14 @@ MJ真来的话那就肯定不止we are the world了，Heal the World必须安排
 
 如果我翻就直接写成 我们是未来
 
+
+*****
+
+####  adw667  
+##### 238#       发表于 2026-2-18 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201537&amp;ptid=2274925" target="_blank">ads147147 发表于 2026-2-17 19:03</a>
+
+我们的歌词肯定是完全去宗教化的，不过在某些大儒眼里，唱这首歌本身就是认同自己是神的孩子，属于传教大 ...</blockquote>
+一年赢365次的地方怕不是觉得国内那些教堂就是传教领域的诺曼底
+
