@@ -1972,3 +1972,13 @@ echo.</blockquote>
 
 一周百万销量，劲耶<img src="https://static.stage1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tissuesea  
+##### 157#       发表于 2026-2-18 14:38
+
+有点小贵，以撒也靠控制台才会玩一点，等汉化出来看看了。
+
+—— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
