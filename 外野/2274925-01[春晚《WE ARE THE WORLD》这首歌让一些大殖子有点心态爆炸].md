@@ -2418,3 +2418,15 @@ we are the children直译就是我们是孩子
 
 MJ真来的话那就肯定不止we are the world了，Heal the World必须安排上
 
+
+*****
+
+####  神圣天使书记官  
+##### 228#       发表于 2026-2-18 08:48
+
+ 本帖最后由 神圣天使书记官 于 2026-2-18 08:50 编辑 
+<blockquote>
+</blockquote>“赤子”唱出来很别扭的，而且歌曲没有原词的音调听起来歧义超多。
+
+可以试着唱一下，非常怪，还不如“孩子”。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
