@@ -128,3 +128,15 @@ x异端的地图炮范围太小了吧，难道伤害很高吗？
 现在这个环境没有什么要来回拉扯的，敌我都是一招秒，回血就显得很鸡肋。蓝机可能有用点，红机我宁可你把回 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">其实有点用，红异端可以一个人不需要盾，抗住深渊+混沌+毁灭那个组合
 
+
+*****
+
+####  blue321  
+##### 3642#       发表于 2026-2-18 20:24
+
+才打到14层，真羡慕ai那个无效距离的月光炮<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+还有就是已经养成没神和命运走不动道的坏习惯了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
