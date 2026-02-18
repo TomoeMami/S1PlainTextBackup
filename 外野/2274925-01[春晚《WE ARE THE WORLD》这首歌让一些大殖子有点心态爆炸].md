@@ -2569,3 +2569,13 @@ MJ真来的话那就肯定不止we are the world了，Heal the World必须安排
 
 这波看得出来是真破防了。老反贼都得出来悄悄阴阳两句，以下是一个江浙出身的财经up（牛猫）的阴阳：后半段还有国际艺人登场，传奇哥唱了《美女与野兽》，西城男孩唱了《my love》，还有成龙和里奇合作《we are the world》，但这首歌差评，中文翻译的歌词没有美感还不押韵，听着巨难受。
 
+
+*****
+
+####  绷带绷得住  
+##### 243#       发表于 2026-2-18 16:34
+
+这些人也就只敢在这种地方蛐蛐两句了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。人屁用没有，话也是屁用没有。
+
+—— 来自 HONOR PGT-AN20, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
