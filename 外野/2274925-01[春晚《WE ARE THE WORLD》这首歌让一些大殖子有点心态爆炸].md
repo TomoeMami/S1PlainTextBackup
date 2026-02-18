@@ -2493,3 +2493,11 @@ MJ真来的话那就肯定不止we are the world了，Heal the World必须安排
 
 非要说的话，“we are the children”最准确的翻译应该是“我们是子民”，但显然那样翻不符合当今的时代语境。还是赤子好。
 
+
+*****
+
+####  loli炮  
+##### 236#       发表于 2026-2-18 11:55
+
+若是几十年前这个词叫祖国的花朵 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
