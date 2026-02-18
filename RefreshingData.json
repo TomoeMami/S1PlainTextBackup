@@ -11331,10 +11331,10 @@
     "update": false
   },
   "2251486": {
-    "totalreply": 5712,
+    "totalreply": 5716,
     "title": "[【纯良向】米哈游百合讨论楼2]",
     "newtitle": "[【纯良向】米哈游百合讨论楼2]",
-    "lastedit": 1771360688,
+    "lastedit": 1771455487,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -11448,10 +11448,10 @@
     "update": false
   },
   "2252821": {
-    "totalreply": 3902,
+    "totalreply": 3906,
     "title": "[Team Ninja《仁王3》正式公布，2026年初发售，Demo现已上线PS5]",
     "newtitle": "[Team Ninja《仁王3》正式公布，2026年2月6日发售]",
-    "lastedit": 1771439652,
+    "lastedit": 1771455368,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16358,7 +16358,7 @@
     "newtitle": "[机甲游戏求推荐]",
     "lastedit": 1771195687,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2274817": {
@@ -16947,11 +16947,20 @@
     "update": false
   },
   "2275046": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[徐波这真是恐怖如斯]",
     "newtitle": "[徐波这真是恐怖如斯]",
-    "lastedit": 1771453451,
+    "lastedit": 1771455246,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2274978": {
+    "totalreply": 41,
+    "title": "[游戏区万能，求推荐肥肠值得补课的GBA游戏]",
+    "newtitle": "[游戏区万能，求推荐肥肠值得补课的GBA游戏]",
+    "lastedit": 1771455370,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
