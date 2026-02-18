@@ -456,3 +456,66 @@
 <img src="https://p.sda1.dev/30/c21df9b18358a2d0c35ff552760ac972/CMP_20260218044709903.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/30/2a9231e8a4560cf3127b1141f76d4d59/CMP_20260218044709998.jpg" referrerpolicy="no-referrer">
 突兀进入最终战<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老外还在指望中国神兵天降救他们于水火
 
+
+*****
+
+####  ParadiseMartyr  
+##### 7358#       发表于 2026-2-17 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69202066&amp;ptid=2170852" target="_blank">再也不咬钩勒 发表于 2026-2-17 22:25</a>
+法令是哪个债权的？还没解锁</blockquote>
+超级商店轮换
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  再也不咬钩勒  
+##### 7359#       发表于 2026-2-17 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69202166&amp;ptid=2170852" target="_blank">ParadiseMartyr 发表于 2026-2-17 22:59</a>
+
+超级商店轮换
+
+—— 来自 鹅球 v3.3.96</blockquote>
+谢了，可惜新号没权限加鹅
+
+*****
+
+####  再也不咬钩勒  
+##### 7360#       发表于 2026-2-17 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69201971&amp;ptid=2170852" target="_blank">滋啦球 发表于 2026-2-17 21:47</a>
+
+我个人是离子喷+法令+铝热+防电服
+
+离子喷可以应付除了三足以外的所有敌人,而且伤害还不差, 2发一个蚊子, 3 ...</blockquote>
+谢了，回头试试
+
+
+*****
+
+####  ParadiseMartyr  
+##### 7361#       发表于 2026-2-18 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69202284&amp;ptid=2170852" target="_blank">再也不咬钩勒 发表于 2026-2-17 23:44</a>
+谢了，可惜新号没权限加鹅</blockquote>
+其实就是个带自瞄的中穿手枪，可以拿其他手枪先平替着
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  xinfengj  
+##### 7362#       发表于 2026-2-18 04:49
+
+<img src="https://p.sda1.dev/30/c21df9b18358a2d0c35ff552760ac972/CMP_20260218044709903.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/30/2a9231e8a4560cf3127b1141f76d4d59/CMP_20260218044709998.jpg" referrerpolicy="no-referrer">
+突兀进入最终战<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老外还在指望中国神兵天降救他们于水火
+
+*****
+
+####  踩水看月亮  
+##### 7363#       发表于 2026-2-18 07:52
+
+洋人太畜生了，十几级的拿个机炮往里进，150的拿空爆类星体这种垃圾往里进，四个人人手一个荡平者大象根本不足为虑，拿个飞矛也行啊，结果这群畜生就非得拿着自己理解的狗屎进来送，杂兵清不掉大象打不掉，已经不想打了，根本不是人
+
