@@ -519,3 +519,12 @@
 
 洋人太畜生了，十几级的拿个机炮往里进，150的拿空爆类星体这种垃圾往里进，四个人人手一个荡平者大象根本不足为虑，拿个飞矛也行啊，结果这群畜生就非得拿着自己理解的狗屎进来送，杂兵清不掉大象打不掉，已经不想打了，根本不是人
 
+
+*****
+
+####  xinfengj  
+##### 7364#       发表于 2026-2-19 19:47
+
+<img src="https://p.sda1.dev/30/53edead16e5b53c57ce7e809d4899149/CMP_20260219194610954.jpg" referrerpolicy="no-referrer">
+一下午没打到1%，时不时还会后退，we're over<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
