@@ -2052,3 +2052,13 @@ echo.</blockquote>
 
 老了影响什么啊，好像可以继续战斗和生育？我有个老祖宗猫22岁弹出来衰老40岁才寄一直疯狂生人均range+1
 
+
+*****
+
+####  scikirbypoke  
+##### 164#       发表于 2026-2-19 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69205945&amp;ptid=2274506" target="_blank">harry3 发表于 2026-2-19 09:29</a>
+老了影响什么啊，好像可以继续战斗和生育？我有个老祖宗猫22岁弹出来衰老40岁才寄一直疯狂生人均range+1 ...</blockquote>
+据说是开始力竭的回合从10减到5
+
