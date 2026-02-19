@@ -40,3 +40,13 @@
 
 —— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  琉歌  
+##### 719#       发表于 2026-2-19 11:26
+
+没有大剑萝莉吗 这牙膏挤得 看来每年都要打火龙<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
