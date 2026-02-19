@@ -1541,3 +1541,15 @@ BOSS战霸体这一点……其实有不少格斗游戏本家也是这么搞，�
 
 目前最犯规的是不是桃子，运气好好像可以无限空中变向冲刺，冲够mp和sp就放个大，全程无敌，根本没机会掉血……
 
+
+*****
+
+####  pgain2004  
+##### 148#       发表于 2026-2-19 21:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69208141&amp;ptid=2149107" target="_blank">astrayveller 发表于 2026-2-19 20:35</a>
+应该是更新bbee同时进行原创新作的开发 角色dlc卖的好就多出几个多续一会命
+
+— from Xiaomi 2410DPN6CC, ...</blockquote>
+原创新作有什么消息么，没了BB资产做原创还是有点虚的啊，虽然手感调教经验这些倒是能用上了
+
