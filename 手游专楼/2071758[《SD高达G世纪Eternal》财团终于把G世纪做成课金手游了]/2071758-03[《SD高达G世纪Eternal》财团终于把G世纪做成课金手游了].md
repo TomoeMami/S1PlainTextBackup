@@ -218,3 +218,16 @@ x异端的地图炮范围太小了吧，难道伤害很高吗？
 为什么你不是考虑怎么秒掉对面</blockquote>
 因为一开始只能走到那个位置，还没来得及上去
 
+
+*****
+
+####  zksandy  
+##### 3651#       发表于 2026-2-19 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69204770&amp;ptid=2071758" target="_blank">blue321 发表于 2026-2-18 20:24</a>
+
+才打到14层，真羡慕ai那个无效距离的月光炮
+
+还有就是已经养成没神和命运走不动道的坏习惯了</blockquote>
+神多了可以给小鸟开啊
+
