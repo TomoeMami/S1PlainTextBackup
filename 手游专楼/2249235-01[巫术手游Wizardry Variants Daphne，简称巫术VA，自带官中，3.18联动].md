@@ -107,3 +107,21 @@
 
 2026-2-19 16:58 上传
 
+
+*****
+
+####  Flechette  
+##### 725#       发表于 2026-2-19 17:12
+
+伊亚玛斯的武士转职除了常规居合外，还给了个法术版
+
+<img src="https://img.stage1st.com/forum/202602/19/170730dw7tka4keoi3e7ei.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (267.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-19 17:07 上传
+
+相比狮樱多了一整管MP当资源，单体打桩应该更强
+
