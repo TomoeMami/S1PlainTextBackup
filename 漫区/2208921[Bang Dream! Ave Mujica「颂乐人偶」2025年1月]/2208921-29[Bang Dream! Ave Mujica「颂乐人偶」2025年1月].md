@@ -69,3 +69,23 @@
 
        [https://x.com/bang_dream_info/status/2023955635839332719](https://x.com/bang_dream_info/status/2023955635839332719)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41718#       发表于 2026-2-19 13:06
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/19/130602shjdjhz0hhg0zchg.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-19_13-04-55.jpg</strong> (140.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-19 13:06 上传
+
+       [https://x.com/comic_growl/status/2024319454205854064](https://x.com/comic_growl/status/2024319454205854064)
+
+       [https://comic-growl.com/episodes/8403e6bf4798f](https://comic-growl.com/episodes/8403e6bf4798f)
+
