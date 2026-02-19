@@ -1507,3 +1507,29 @@ BOSS战霸体这一点……其实有不少格斗游戏本家也是这么搞，�
 素质很强，以单机横版动作Roguelite来说这个角色量+招式派生量+被动派系融合量真不简单（当然因为继承了BB资产所以相关成本下降很多），甚至有多结局（能快速复制存档所以也不容易错过，挺友好）
 现在制作组算是个什么情况啊？
 
+
+*****
+
+####  wj101207777  
+##### 145#       发表于 2026-2-19 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69208119&amp;ptid=2149107" target="_blank">pgain2004 发表于 2026-2-19 20:27</a>
+
+2026年了，没想到还在更（对应主机板X的角色+剧情DLC），终于入手，准备趁春假打完（直接改资源免得刷）
+
+素 ...</blockquote>
+跟本家联动不亦乐乎中
+
+*****
+
+####  astrayveller  
+##### 146#       发表于 2026-2-19 20:35
+
+ 本帖最后由 astrayveller 于 2026-2-19 20:36 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69208119&amp;ptid=2149107" target="_blank">pgain2004 发表于 2026-2-19 20:27</a>
+2026年了，没想到还在更（对应主机板X的角色+剧情DLC），终于入手，准备趁春假打完（直接改资源免得刷）
+素 ...</blockquote>
+应该是更新bbee同时进行原创新作的开发 角色dlc卖的好就多出几个多续一会命
+
+— from Xiaomi 2410DPN6CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
