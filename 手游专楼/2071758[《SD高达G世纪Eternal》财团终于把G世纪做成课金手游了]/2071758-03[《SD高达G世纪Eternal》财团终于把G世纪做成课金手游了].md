@@ -207,3 +207,14 @@ x异端的地图炮范围太小了吧，难道伤害很高吗？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  AminGly  
+##### 3650#       发表于 2026-2-19 19:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69205775&amp;ptid=2071758" target="_blank">卡奥斯·克斯拉 发表于 2026-2-19 07:09</a>
+
+为什么你不是考虑怎么秒掉对面</blockquote>
+因为一开始只能走到那个位置，还没来得及上去
+
