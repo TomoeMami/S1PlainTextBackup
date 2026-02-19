@@ -868,3 +868,11 @@ re4也是发卖一段时间后翻盘的，先观望再说</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  灵魂收割机  
+##### 701#       发表于 2026-2-19 21:39
+
+最终boss是个啥哟，差评<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
