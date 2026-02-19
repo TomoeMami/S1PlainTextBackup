@@ -102,3 +102,21 @@
 
 提一嘴，前面两个在都嗯提小米的兄台已经被永封了
 
+
+*****
+
+####  依法治国  
+##### 58#       发表于 2026-2-19 13:39
+
+<blockquote>油条小贩 发表于 2026-2-12 15:19
+赶紧搜搜华为</blockquote>
+华为也用了lny，反而苹果用的是cny
+
+<img src="https://img.stage1st.com/forum/202602/19/133858ttesd2zdr50zpkj7.jpg" referrerpolicy="no-referrer">
+
+<strong>1000011886.jpg</strong> (299.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-19 13:38 上传
+
