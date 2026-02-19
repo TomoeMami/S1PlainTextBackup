@@ -33,3 +33,13 @@ Pragmata的游戏总监在MGR里负责了角色和造型设计, 尼尔里负责�
 
 —— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  宛若青空  
+##### 332#       发表于 2026-2-19 12:59
+
+NS2和PS5都试玩了几遍，PS5最快10分钟通了，这战斗其实还挺有趣的，美术和音乐都很吸引我，一定会玩，另外日配戴安娜是东山吧，太可爱了<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+（还有不知道为什么最近几个游戏都默认开这个色差，开了后这感觉那么怪，是故意的？）
+
