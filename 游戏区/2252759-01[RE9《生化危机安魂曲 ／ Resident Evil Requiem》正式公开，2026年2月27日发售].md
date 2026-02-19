@@ -690,3 +690,24 @@ re4也是发卖一段时间后翻盘的，先观望再说</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">所以一周目大概多少时间？
 
+
+*****
+
+####  哈罗  
+##### 686#       发表于 2026-2-19 13:48
+
+<blockquote>黑猫软 发表于 2026-2-19 12:53
+这么看克里斯这几年也是忙着做主线的
+
+神神秘秘的干嘛呢</blockquote>
+8结尾准备干bsaa，按时间线应该已经结束了，再说9以后再跟现实时间捆绑也没意义了，可能会往回说
+
+*****
+
+####  cangyuyao  
+##### 687#       发表于 2026-2-19 13:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69206109&amp;ptid=2252759" target="_blank">godless2020 发表于 2026-2-19 10:34</a>
+没佣兵，那不是没啥内容了.....</blockquote>
+可能后续加吧，佣兵dlc也不难
+
