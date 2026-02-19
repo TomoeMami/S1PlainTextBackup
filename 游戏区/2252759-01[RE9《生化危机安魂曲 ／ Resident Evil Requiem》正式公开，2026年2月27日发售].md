@@ -858,3 +858,13 @@ re4也是发卖一段时间后翻盘的，先观望再说</blockquote>
 
 里昂人气是真高啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看一圈还不少因为分支结局破防的
 
+
+*****
+
+####  violettor  
+##### 700#       发表于 2026-2-19 21:01
+
+佣兵拆分出来卖，最主要的原因还是防二手。先用佣兵把玩家吊着，减少二手流通，这样首月出货量可以有保障。日本买断制游戏厂一个重要的业务考核指标就是首月出荷/二手流通率。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
