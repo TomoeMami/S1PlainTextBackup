@@ -2152,3 +2152,11 @@ echo.</blockquote>
 
 没创意工坊玩起来太难受了，猫猫没有管理列表、回家清包清半天，都太痛苦了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wwddrte  
+##### 175#       发表于 2026-2-20 03:02
+
+每次回家清包我都觉得很奇怪，为什么新物品混到老的库存里了。我有只猫有了11个突变，最后一个是事件给的，现在有两个手臂突变。虽然有一个是负面的，不过我感觉这应该是bug，不能遗传吧
+
