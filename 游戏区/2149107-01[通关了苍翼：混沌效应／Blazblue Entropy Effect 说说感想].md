@@ -1553,3 +1553,14 @@ BOSS战霸体这一点……其实有不少格斗游戏本家也是这么搞，�
 — from Xiaomi 2410DPN6CC, ...</blockquote>
 原创新作有什么消息么，没了BB资产做原创还是有点虚的啊，虽然手感调教经验这些倒是能用上了
 
+
+*****
+
+####  astrayveller  
+##### 149#       发表于 2026-2-20 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69208247&amp;ptid=2149107" target="_blank">pgain2004 发表于 2026-2-19 21:04</a>
+
+原创新作有什么消息么，没了BB资产做原创还是有点虚的啊，虽然手感调教经验这些倒是能用上了 ...</blockquote>
+目前只是几个采访有放消息 设定啥的都不知道……不过这个组还做2D动作我相信质量不会差
+
