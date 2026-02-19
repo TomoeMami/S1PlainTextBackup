@@ -719,3 +719,14 @@ re4也是发卖一段时间后翻盘的，先观望再说</blockquote>
 
 我是真不知道为什么4重制开始还是说7开始佣兵就要分割发布，又没多少内容
 
+
+*****
+
+####  Andariel  
+##### 689#       发表于 2026-2-19 14:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69206924&amp;ptid=2252759" target="_blank">u2deack 发表于 2026-2-19 14:11</a>
+
+我是真不知道为什么4重制开始还是说7开始佣兵就要分割发布，又没多少内容 ...</blockquote>
+感觉这是一种长时间维持游戏热度的手段
+
