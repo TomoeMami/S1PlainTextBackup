@@ -194,3 +194,16 @@ x异端的地图炮范围太小了吧，难道伤害很高吗？
 其实有点用，红异端可以一个人不需要盾，抗住深渊+混沌+毁灭那个组合</blockquote>
 为什么你不是考虑怎么秒掉对面
 
+
+*****
+
+####  blue321  
+##### 3649#       发表于 2026-2-19 10:25
+
+这次的15层看着吓人，实际打起来真简单
+数值不吓人时间还充裕<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不知道这次更新30层的时候会不会刷新资源？刷新的话来个跳过已通关关卡功能吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

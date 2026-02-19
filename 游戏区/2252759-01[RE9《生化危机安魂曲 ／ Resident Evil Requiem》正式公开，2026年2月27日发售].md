@@ -557,3 +557,23 @@ DLC出个克莱尔，警局同学会就到齐了</blockquote>
 
 真没艾达王？
 
+
+*****
+
+####  cangyuyao  
+##### 674#       发表于 2026-2-19 10:19
+
+ 本帖最后由 cangyuyao 于 2026-2-19 10:21 编辑 
+
+偷跑哥说没佣兵
+
+几个过场剧情侧重都在格雷丝身上，目前没看出来要里昂干啥，感觉能打的谁来都行<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">……不知道中间回RPD会不会讲
+
+
+*****
+
+####  反方向的波  
+##### 675#       发表于 2026-2-19 10:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">结局那段场景看笑了，合着生5re素材都有了呗
+
