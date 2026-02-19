@@ -536,3 +536,15 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">支线要求打团结堡，然而几乎没人去
 
+
+*****
+
+####  Mokou1207  
+##### 7366#       发表于 2026-2-19 22:59
+
+我怀疑有的人根本没了解过生化斯坦的对策<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+上把升旗有个50级小登带着机炮和飞鹰火箭巢就插进来，死个7、8次就退了；还有一个150级的跳包类星体玩不明白一看结算死了10次。
+
+整个队里就我带了荡平者和导弹反VOX，得亏有个传送背包绝活哥才能升完旗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
