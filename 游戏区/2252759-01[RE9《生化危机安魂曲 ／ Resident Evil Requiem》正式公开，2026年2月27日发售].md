@@ -876,3 +876,13 @@ re4也是发卖一段时间后翻盘的，先观望再说</blockquote>
 
 最终boss是个啥哟，差评<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  武川日玄  
+##### 702#       发表于 2026-2-19 23:41
+
+badending就破防？
+
+想起当年玩寂静岭起源打了一气最后结局还是绑床上被当精神病了<img src="https://static.stage1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
