@@ -2044,3 +2044,11 @@ echo.</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  harry3  
+##### 163#       发表于 2026-2-19 09:29
+
+老了影响什么啊，好像可以继续战斗和生育？我有个老祖宗猫22岁弹出来衰老40岁才寄一直疯狂生人均range+1
+
