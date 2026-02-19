@@ -850,3 +850,11 @@ re4也是发卖一段时间后翻盘的，先观望再说</blockquote>
 
 只有re4r玩过佣兵，玩的唯一理由是拿手炮
 
+
+*****
+
+####  格林达姆  
+##### 699#       发表于 2026-2-19 20:48
+
+里昂人气是真高啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看一圈还不少因为分支结局破防的
+
