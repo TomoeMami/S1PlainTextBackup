@@ -577,3 +577,24 @@ DLC出个克莱尔，警局同学会就到齐了</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">结局那段场景看笑了，合着生5re素材都有了呗
 
+
+*****
+
+####  eilot  
+##### 676#       发表于 2026-2-19 10:29
+
+其實有沒解釋GRACE的特典衣服是生8的蒂米特雷斯庫夫人?
+
+
+*****
+
+####  godless2020  
+##### 677#       发表于 2026-2-19 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69206068&amp;ptid=2252759" target="_blank">cangyuyao 发表于 2026-2-19 10:19</a>
+
+偷跑哥说没佣兵
+
+几个过场剧情侧重都在格雷丝身上，目前没看出来要里昂干啥，感觉能打的谁来都行……不知道 ...</blockquote>
+没佣兵，那不是没啥内容了.....
+
