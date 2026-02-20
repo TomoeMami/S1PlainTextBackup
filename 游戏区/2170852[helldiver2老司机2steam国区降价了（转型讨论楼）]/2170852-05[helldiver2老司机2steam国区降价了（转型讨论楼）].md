@@ -609,3 +609,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超级气球也要有自己的丢人现眼
 
+
+*****
+
+####  狭义文具爱好者  
+##### 7373#       发表于 2026-2-20 22:49
+
+本来还能编个故事搞个大撤退保留有生力量，死了三千万打下一个城市救了三万seaf，箭头数学还是太权威了
+
+倒是再次get到了这游戏的黑色幽默本质
+
