@@ -961,3 +961,11 @@ win10不提供技术支持吧，报错了不管
 雪梨越长越成熟了，坐等mod佬移植模型到RE2，给艾恩斯一点小小的毒二代震撼 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二代早有六代雪莉的mod了
 
+
+*****
+
+####  卡拉德利姆  
+##### 710#       发表于 2026-2-20 16:47
+
+很多新玩家是把里昂当“我家哥哥”看待的，当然见不得吃一点瘪
+
