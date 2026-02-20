@@ -3303,3 +3303,19 @@ Marry chrismas 和 happy holiday 都对，但你不能说圣诞快乐不然就�
 —— 来自 vivo ...</blockquote>
 你搞错了，我从一开始就是冲着扣帽子去的
 
+
+*****
+
+####  佛剑分说  
+##### 273#       发表于 2026-2-20 13:22
+
+这个台湾人平时大部分观点我都不同意，不过他年纪够老，到底还是见过这个称谓是怎么演变的
+
+<img src="https://img.stage1st.com/forum/202602/20/132131mhgmh9gi020m4r0i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (251.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-20 13:21 上传
+
