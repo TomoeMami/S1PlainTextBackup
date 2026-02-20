@@ -2242,3 +2242,11 @@ d6变异要怎么获取啊，家里变异7一直没获取出来，一直不刷�
  ...</blockquote>
 月球上有各种变异事件，地心也有一些
 
+
+*****
+
+####  pzk  
+##### 182#       发表于 2026-2-20 13:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卧槽，roll技能的物品在技能全满后升级技能的时候只能roll出属性来
+
