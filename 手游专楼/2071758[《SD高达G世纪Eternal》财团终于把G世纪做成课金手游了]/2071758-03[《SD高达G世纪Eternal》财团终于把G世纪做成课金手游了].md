@@ -327,3 +327,16 @@ DX就不适合打pvp
 
 但是绝活独特性不高
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 3660#       发表于 2026-2-21 02:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69212543&amp;ptid=2071758" target="_blank">AminGly 发表于 2026-2-20 23:04</a>
+
+其实就是想说红异端的绝活就是一个人无需任何帮助能消灭一个方向杂兵增员
+
+但是绝活独特性不高 ...</blockquote>
+真的多了你的EN顶不住
+
