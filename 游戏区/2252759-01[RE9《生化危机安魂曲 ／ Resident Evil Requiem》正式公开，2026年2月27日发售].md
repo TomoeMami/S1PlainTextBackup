@@ -916,3 +916,38 @@ badending就破防？
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  烈焰舞阳  
+##### 706#       发表于 2026-2-20 13:02
+
+我在其他地方看到说本作是win11独占win10不能玩是啥情况，我不信卡婊能弱智到放弃所有win10用户
+
+—— 来自 Xiaomi 2407FRK8EC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Andariel  
+##### 707#       发表于 2026-2-20 13:04
+
+win10不提供技术支持吧，报错了不管
+属于是官方甩锅
+不过以后支持10的游戏肯定是越来越少的
+玩游戏的机器还是该升就升
+
+*****
+
+####  smdzh2  
+##### 708#       发表于 2026-2-20 13:07
+
+雪梨越长越成熟了，坐等mod佬移植模型到RE2，给艾恩斯一点小小的毒二代震撼
+
+<img src="https://img.stage1st.com/forum/202602/20/140659alceij51chjqivxj.png" referrerpolicy="no-referrer">
+
+<strong>037.png</strong> (420 Bytes, 下载次数: 0)
+
+下载附件
+
+2026-2-20 13:06 上传
+

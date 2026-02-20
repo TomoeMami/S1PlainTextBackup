@@ -465,3 +465,50 @@ ND都砍了土楼派系，你这个战神凭啥不砍
 
 说ps6 能兼容全世代。
 
+
+*****
+
+####  yxzdr  
+##### 50#       发表于 2026-2-20 12:57
+
+ 本帖最后由 yxzdr 于 2026-2-20 12:58 编辑 
+
+马拉松真的能成功吗，我感觉这游戏热度有点低啊，b站一搜感觉视频播放量都挺少。
+
+还是我信息茧房了实际命运2内部圈子都在关注或者外网热度很高？
+
+
+*****
+
+####  卡拉德利姆  
+##### 51#       发表于 2026-2-20 13:03
+
+外网热度确实挺高的，被称为concord 3.0（2.0被半路杀出来的highguard抢了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  clyde-wang  
+##### 52#       发表于 2026-2-20 13:04
+
+ 本帖最后由 clyde-wang 于 2026-2-20 13:05 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69210273&amp;ptid=2275131" target="_blank">卡拉德利姆 发表于 2026-2-20 13:03</a>
+外网热度确实挺高的，被称为concord 3.0（2.0被半路杀出来的highguard抢了）</blockquote>
+2.0是 Fair game，3.0是Highguard 4.0是马拉松
+当然具体顺序也无所谓，现在还有个地平线多人也在竞争这个席位了
+
+*****
+
+####  黑猫软  
+##### 53#       发表于 2026-2-20 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69210254&amp;ptid=2275131" target="_blank">yxzdr 发表于 2026-2-20 12:57</a>
+
+马拉松真的能成功吗，我感觉这游戏热度有点低啊，b站一搜感觉视频播放量都挺少。
+
+还是我信息茧房了实际命运 ...</blockquote>
+等二月底公测就知道了，之前口碑时好时坏都是内测
+
+马拉松第一个PV播放量很高，后续因为素材那事儿改了半天又整的不温不火的
+
+至于命运圈，那确实不少人好奇棒鸡献祭后能掏出个什么玩意<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
