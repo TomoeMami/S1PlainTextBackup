@@ -904,3 +904,15 @@ badending就破防？
 卡表现在故事越往下编越显得竹内润一部生5就让威斯克和斯宾塞两个人杀青这件事傻福 ...</blockquote>
 那还不是杉村升去世太突然了？
 
+
+*****
+
+####  任天索尼子  
+##### 705#       发表于 2026-2-20 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69209488&amp;ptid=2252759" target="_blank">风景很好 发表于 2026-2-20 08:59</a>
+那还不是杉村升去世太突然了？</blockquote>
+生化4的几个版本就已经推翻过一次衫村升的剧本方案了 为了游戏玩法剧本始终是次要的
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
