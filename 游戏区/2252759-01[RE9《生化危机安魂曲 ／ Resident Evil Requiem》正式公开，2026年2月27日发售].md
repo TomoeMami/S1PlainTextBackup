@@ -951,3 +951,13 @@ win10不提供技术支持吧，报错了不管
 
 2026-2-20 13:06 上传
 
+
+*****
+
+####  王元姬无惨  
+##### 709#       发表于 2026-2-20 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69210298&amp;ptid=2252759" target="_blank">smdzh2 发表于 2026-2-20 13:07</a>
+雪梨越长越成熟了，坐等mod佬移植模型到RE2，给艾恩斯一点小小的毒二代震撼 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二代早有六代雪莉的mod了
+
