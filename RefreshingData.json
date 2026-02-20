@@ -12051,10 +12051,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 49380,
+    "totalreply": 49383,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1771586291,
+    "lastedit": 1771586655,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12411,10 +12411,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 8705,
+    "totalreply": 8706,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼2月]",
-    "lastedit": 1771583893,
+    "lastedit": 1771586661,
     "category": "外野",
     "active": true,
     "update": false
@@ -12429,10 +12429,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 14929,
+    "totalreply": 14931,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1771586177,
+    "lastedit": 1771586892,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12483,10 +12483,10 @@
     "update": false
   },
   "2269491": {
-    "totalreply": 11422,
+    "totalreply": 11423,
     "title": "[牢A与赞美诗]",
     "newtitle": "[牢A与赞美诗（转型牢A切片讨论楼）]",
-    "lastedit": 1771584491,
+    "lastedit": 1771586661,
     "category": "外野",
     "active": true,
     "update": false
@@ -12501,12 +12501,12 @@
     "update": false
   },
   "2266648": {
-    "totalreply": 107,
+    "totalreply": 108,
     "title": "[ZT 漫画：盖比的资本（又译哥布林经济学读本）]",
     "newtitle": "[ZT 漫画：盖比的资本（又译哥布林经济学读本）]",
-    "lastedit": 1770894968,
+    "lastedit": 1771586661,
     "category": "外野",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2022397": {
@@ -15192,10 +15192,10 @@
     "update": false
   },
   "2274638": {
-    "totalreply": 684,
+    "totalreply": 686,
     "title": "[最近没啥游戏玩，于是去蝗了几个手游，氪了几单以后感觉自己像个冤种]",
     "newtitle": "[最近没啥游戏玩，于是去蝗了几个手游，氪了几单以后感觉自己像个冤种]",
-    "lastedit": 1771585208,
+    "lastedit": 1771586408,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15903,10 +15903,10 @@
     "update": false
   },
   "2274816": {
-    "totalreply": 65,
+    "totalreply": 66,
     "title": "[有什么推荐的随身防具]",
     "newtitle": "[有什么推荐的随身防具]",
-    "lastedit": 1771585339,
+    "lastedit": 1771586661,
     "category": "外野",
     "active": true,
     "update": false
@@ -16695,10 +16695,10 @@
     "update": false
   },
   "2179402": {
-    "totalreply": 134,
+    "totalreply": 135,
     "title": "[《杀戮尖塔2》公开，延期至2026年3月Steam EA发售]",
     "newtitle": "[《杀戮尖塔2》公开，延期至2026年3月Steam EA发售]",
-    "lastedit": 1771570225,
+    "lastedit": 1771586768,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16758,10 +16758,10 @@
     "update": false
   },
   "2275160": {
-    "totalreply": 59,
+    "totalreply": 60,
     "title": "[刘备开局算最底层吗？]",
     "newtitle": "[刘备开局算最底层吗？]",
-    "lastedit": 1771586177,
+    "lastedit": 1771586661,
     "category": "外野",
     "active": true,
     "update": false
@@ -16781,6 +16781,15 @@
     "newtitle": "[高端翻译行业受AI影响大么]",
     "lastedit": 1771586173,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2031565": {
+    "totalreply": 56,
+    "title": "[尖帽子的魔法工坊 动画化]",
+    "newtitle": "[尖帽子的魔法工坊 动画化]",
+    "lastedit": 1771586893,
+    "category": "漫区",
     "active": true,
     "update": false
   }
