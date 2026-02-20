@@ -894,3 +894,13 @@ badending就破防？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">卡表现在故事越往下编越显得竹内润一部生5就让威斯克和斯宾塞两个人杀青这件事傻福
 
+
+*****
+
+####  风景很好  
+##### 704#       发表于 2026-2-20 08:59
+
+<blockquote>反方向的波 发表于 2026-2-20 08:52
+卡表现在故事越往下编越显得竹内润一部生5就让威斯克和斯宾塞两个人杀青这件事傻福 ...</blockquote>
+那还不是杉村升去世太突然了？
+
