@@ -3537,12 +3537,12 @@
     "update": false
   },
   "2104259": {
-    "totalreply": 1922,
+    "totalreply": 1923,
     "title": "[机娘爱丽丝机甲／Alice Gear Aegis讨论帖#2 月底联动古番dirty pair]",
     "newtitle": "[机娘爱丽丝机甲／Alice Gear Aegis 8周年啦（流泪猫猫头]",
-    "lastedit": 1771040066,
+    "lastedit": 1771581856,
     "category": "手游专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1569854": {
@@ -11448,10 +11448,10 @@
     "update": false
   },
   "2252821": {
-    "totalreply": 3995,
+    "totalreply": 3997,
     "title": "[Team Ninja《仁王3》正式公布，2026年初发售，Demo现已上线PS5]",
     "newtitle": "[Team Ninja《仁王3》正式公布，2026年2月6日发售]",
-    "lastedit": 1771581129,
+    "lastedit": 1771582095,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12051,10 +12051,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 49360,
+    "totalreply": 49361,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1771581009,
+    "lastedit": 1771581730,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12303,10 +12303,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 8252,
+    "totalreply": 8253,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 2026.1.22 全球公测]",
-    "lastedit": 1771581252,
+    "lastedit": 1771581853,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12411,10 +12411,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 8701,
+    "totalreply": 8702,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼2月]",
-    "lastedit": 1771581255,
+    "lastedit": 1771581856,
     "category": "外野",
     "active": true,
     "update": false
@@ -12906,10 +12906,10 @@
     "update": false
   },
   "2272409": {
-    "totalreply": 406,
+    "totalreply": 407,
     "title": "[2026中国火箭发射专楼]",
     "newtitle": "[2026中国航天专楼]",
-    "lastedit": 1771576461,
+    "lastedit": 1771581856,
     "category": "外野",
     "active": true,
     "update": false
@@ -13460,15 +13460,6 @@
     "newtitle": "[办公室同桌吸烟怎么办，有什么过滤手段]",
     "lastedit": 1770470070,
     "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2273792": {
-    "totalreply": 111,
-    "title": "[Falcom 2月将有重大发表]",
-    "newtitle": "[Falcom 2月将有重大发表 ／『东京迷城 -桜花幻舞-』2026年夏发售]",
-    "lastedit": 1770372264,
-    "category": "游戏区",
     "active": false,
     "update": false
   },
@@ -16034,7 +16025,7 @@
     "newtitle": "[你们认为现在的AI算有智能吗]",
     "lastedit": 1771322417,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2274835": {
@@ -16587,10 +16578,10 @@
     "update": false
   },
   "2149224": {
-    "totalreply": 343,
+    "totalreply": 345,
     "title": "[《本所七大不可思议》steam官中上线]",
     "newtitle": "[《本所七大不可思议》steam官中上线]",
-    "lastedit": 1771571172,
+    "lastedit": 1771582091,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16767,11 +16758,20 @@
     "update": false
   },
   "2275160": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[刘备开局算最底层吗？]",
     "newtitle": "[刘备开局算最底层吗？]",
-    "lastedit": 1771581492,
+    "lastedit": 1771581856,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2199341": {
+    "totalreply": 70,
+    "title": "[泰坦之旅2信息集中贴]",
+    "newtitle": "[泰坦之旅2信息集中贴]",
+    "lastedit": 1771582096,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
