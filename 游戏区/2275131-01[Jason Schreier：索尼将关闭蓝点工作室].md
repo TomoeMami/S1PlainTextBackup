@@ -594,3 +594,12 @@ ND都砍了土楼派系，你这个战神凭啥不砍
 搞不懂为啥把这样一个做老游戏重制的工作室给砍了，以前老游戏重制不挺好的吗 ...</blockquote>
 不需要了，经典ip要不外包重制，要不原ip持有者亲自操刀，专门养重制工作室不划算了，蓝点做新ip又不合格
 
+
+*****
+
+####  usodakedo  
+##### 62#       发表于 2026-2-21 04:35
+
+既然血源重置无望，这个ip捏在索尼手里也算是基本废了，那能不能打包卖给fs，fs这些年都不在arpg上做变形武器整的都让我怀疑当初做血源时是不是签了啥协议<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还有当初宫崎英高说看到恶魂重置画面水平感到了压力，那现在相关的技术人员能不能来fs，最近据说fs刚好在招新员工<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
