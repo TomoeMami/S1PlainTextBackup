@@ -2304,3 +2304,19 @@ and，蝴蝶结可以秒杀造物主二阶段。<img src="https://static.stage1s
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">蝴蝶结已经丢掉了
 
+
+*****
+
+####  ことわり  
+##### 188#       发表于 2026-2-20 18:52
+
+<img src="https://img.stage1st.com/forum/202602/20/184807d0pqbni99q5iss05.png" referrerpolicy="no-referrer">
+
+<strong>c73ec9b0a016d57bdc5f4b4a380d8ec8.png</strong> (66.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-20 18:48 上传
+
+  后期每次升级确实只能选加一点属性，技能学满后总共只能升级一个主动技能和一个被动技能，前期如果技能多主动和被动就各有1次机会选择顶替的技能，我这个就是单纯的10伤害冲撞无限连组合，似乎选择了无限连技能组合猫的名字就有这种前缀，而且寿命会很长，还有什么其他职业的技能组合能给猫加前缀的？
+
