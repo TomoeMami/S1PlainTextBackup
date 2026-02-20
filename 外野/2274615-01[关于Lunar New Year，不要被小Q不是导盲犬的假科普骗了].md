@@ -3319,3 +3319,15 @@ Marry chrismas 和 happy holiday 都对，但你不能说圣诞快乐不然就�
 
 2026-2-20 13:21 上传
 
+
+*****
+
+####  wlbthh  
+##### 274#       发表于 2026-2-20 15:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69210361&amp;ptid=2274615" target="_blank">佛剑分说 发表于 2026-2-20 13:22</a>
+这个台湾人平时大部分观点我都不同意，不过他年纪够老，到底还是见过这个称谓是怎么演变的</blockquote>
+看来lny就是按照外国的导向走了。国内文化还是不够强，没压过去，可惜了，希望未来能彻底搞定这件事
+
+—— 来自 Xiaomi 23049RAD8C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
