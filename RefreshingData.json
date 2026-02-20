@@ -2265,7 +2265,7 @@
     "lastedit": 1771567620,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1274,
@@ -16515,10 +16515,10 @@
     "update": false
   },
   "2149224": {
-    "totalreply": 357,
+    "totalreply": 358,
     "title": "[《本所七大不可思议》steam官中上线]",
     "newtitle": "[《本所七大不可思议》steam官中上线]",
-    "lastedit": 1771614129,
+    "lastedit": 1771615090,
     "category": "游戏区",
     "active": true,
     "update": false
