@@ -204,3 +204,13 @@ MZEC3xP4fG
 
 虽然巫术1就开始借鉴dnd，但是这里对话肯定指的是巫术1自己的ac。
 
+
+*****
+
+####  茄子自走炮  
+##### 733#       发表于 2026-2-20 18:51
+
+隐藏黑龙给课佬打的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+普通黑龙的武器掉落怎么样 能不能刷一把四星+20
+
