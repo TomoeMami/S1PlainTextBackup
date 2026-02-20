@@ -3331,3 +3331,13 @@ Marry chrismas 和 happy holiday 都对，但你不能说圣诞快乐不然就�
 
 —— 来自 Xiaomi 23049RAD8C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  暖气  
+##### 275#       发表于 2026-2-20 15:41
+
+天王老子来了lunar也是月亮历，纯阴历。跟有闰月调整，节气对标太阳历的阴阳历-农历有本质的区别。
+
+—— 来自 OnePlus PJA110, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
