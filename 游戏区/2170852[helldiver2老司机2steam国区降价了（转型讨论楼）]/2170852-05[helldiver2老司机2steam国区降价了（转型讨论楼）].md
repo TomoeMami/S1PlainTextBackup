@@ -593,3 +593,11 @@
 
 还有一个因素是这期活动玩家太多，导致增援数消耗过大
 
+
+*****
+
+####  FLZB  
+##### 7371#       发表于 2026-2-20 16:18
+
+潜兵越多潜兵越少，招笑活动只打了一把，看来是做出了巨大的贡献<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
