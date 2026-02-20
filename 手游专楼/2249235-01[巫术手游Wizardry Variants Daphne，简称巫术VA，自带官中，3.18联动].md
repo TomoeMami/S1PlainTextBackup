@@ -235,3 +235,15 @@ MZEC3xP4fG
 
 常驻6角里我的叶卡已经克8多一只了，就差最后两只，第二多的王女加上两只放浪才到克5
 
+
+*****
+
+####  琉歌  
+##### 736#       发表于 2026-2-20 23:26
+
+刚免费骨出了艾妮琪，目前75抽1艾妮琪、2异装贝卡南、1原皮贝卡南、1伊亚玛斯，弥补了去年氪到井换完两只总共才各一的非
+
+话说有必要补到100给艾妮琪克己吗（武器真不想换，这个池都是给我出的一两星白的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
