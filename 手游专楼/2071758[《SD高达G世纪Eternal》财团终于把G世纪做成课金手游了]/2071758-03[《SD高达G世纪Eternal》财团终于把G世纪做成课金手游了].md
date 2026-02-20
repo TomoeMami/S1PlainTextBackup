@@ -271,3 +271,14 @@ DX就不适合打pvp
 
 现在打一场要比以前打一场多用好几秒<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 3656#       发表于 2026-2-20 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69207997&amp;ptid=2071758" target="_blank">AminGly 发表于 2026-2-19 19:44</a>
+
+因为一开始只能走到那个位置，还没来得及上去</blockquote>
+2动上不去就3动，再不行3动MAP总够得着
+
