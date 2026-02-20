@@ -165,3 +165,18 @@ MZEC3xP4fG
 
 冷知识：dnd一直到最新版都是叫ac。巫术1代也是沿用dnd的ac。
 
+
+*****
+
+####  Flechette  
+##### 730#       发表于 2026-2-20 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69210488&amp;ptid=2249235" target="_blank">wbtsy 发表于 2026-2-20 13:54</a>
+
+和adnd遗老没关系。
+
+冷知识：dnd一直到最新版都是叫ac。巫术1代也是沿用dnd的ac。 ...</blockquote>
+伊亚玛斯原句说的是用了大盾法术后AC-2，不过我按得快没截到那句
+
+就是巫术1沿用的2版DND的AC负数提升
+
