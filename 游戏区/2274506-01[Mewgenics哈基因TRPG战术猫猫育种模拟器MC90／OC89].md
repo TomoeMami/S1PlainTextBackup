@@ -2385,3 +2385,17 @@ and，蝴蝶结可以秒杀造物主二阶段。<img src="https://static.stage1s
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  yyf1940  
+##### 193#       发表于 2026-2-21 07:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69213009&amp;ptid=2274506" target="_blank">幻想风靡_ 发表于 2026-2-21 02:39</a>
+完了，闷头玩了22个小时开始有点腻了
+
+虽然肉眼可见后面还有海量的内容，三层打完之后用支线道具解锁的第四 ...</blockquote>
+按照大多数人说的，第一章三层都是教学关，可能22小时一直在教学关确实会腻吧…
+
+—— 来自 OPPO PKB110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
