@@ -253,3 +253,21 @@ DX就不适合打pvp
 
 没有王牌战舰太伤了勉强过15W
 
+
+*****
+
+####  dio999  
+##### 3654#       发表于 2026-2-20 17:09
+
+第一天竟然没过18万<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 3655#       发表于 2026-2-20 17:12
+
+神经病啊....这PVP能别多此一举加什么动画....我只想快点打完拿奖励
+
+现在打一场要比以前打一场多用好几秒<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
