@@ -2221,3 +2221,24 @@ d6变异要怎么获取啊，家里变异7一直没获取出来，搞个cancer�
 
 这也太变态了
 
+
+*****
+
+####  嘲风  
+##### 180#       发表于 2026-2-20 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69209575&amp;ptid=2274506" target="_blank">nailuo1993 发表于 2026-2-20 09:33</a>
+大体型boss很容易把身后的地图挡住啊，加上一堆buff图标，信息太乱了</blockquote>
+鼠标中键
+
+*****
+
+####  嘲风  
+##### 181#       发表于 2026-2-20 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69209576&amp;ptid=2274506" target="_blank">harry3 发表于 2026-2-20 09:33</a>
+d6变异要怎么获取啊，家里变异7一直没获取出来，一直不刷变异家具，搞个cancer给猫带上出去打吗
+
+ ...</blockquote>
+月球上有各种变异事件，地心也有一些
+
