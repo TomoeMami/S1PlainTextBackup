@@ -969,3 +969,13 @@ win10不提供技术支持吧，报错了不管
 
 很多新玩家是把里昂当“我家哥哥”看待的，当然见不得吃一点瘪
 
+
+*****
+
+####  Mikumiku831  
+##### 711#       发表于 2026-2-20 22:38
+
+其实就是一个免责声明 像我们公司做的软件 也是直接说官方21年就停止支持了 建议用最新的系统<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是我还是会要尝试兼容 但是没办法也是震没办法<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
