@@ -418,3 +418,21 @@ ND都砍了土楼派系，你这个战神凭啥不砍
 
 搞不懂为啥把这样一个做老游戏重制的工作室给砍了，以前老游戏重制不挺好的吗
 
+
+*****
+
+####  名字已被吃  
+##### 45#       发表于 2026-2-20 12:15
+
+感觉这家近年做的基本是重置重制，要是当初让他专门搞重置这项业务，估计也不至于被关，你索或许还能赚点小钱钱<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  亚瑟摩根  
+##### 46#       发表于 2026-2-20 12:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">有没有可能就是赚不了几个米呢
+
