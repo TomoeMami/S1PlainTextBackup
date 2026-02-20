@@ -314,3 +314,16 @@ DX就不适合打pvp
 
 <img src="https://static.stage1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">DX猎鹰SSP非常棒，甚至是物超所值，无气力限制月光炮用了都说好
 
+
+*****
+
+####  AminGly  
+##### 3659#       发表于 2026-2-20 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69211268&amp;ptid=2071758" target="_blank">卡奥斯·克斯拉 发表于 2026-2-20 17:30</a>
+
+2动上不去就3动，再不行3动MAP总够得着</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">其实就是想说红异端的绝活就是一个人无需任何帮助能消灭一个方向杂兵增员
+
+但是绝活独特性不高
+
