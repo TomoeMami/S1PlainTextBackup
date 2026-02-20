@@ -2284,3 +2284,15 @@ d6变异要怎么获取啊，家里变异7一直没获取出来，一直不刷�
 
 而且我感觉普通难度远程可能还行，高难根本没法打吧，场均一个投射物反射的精英这怎么打。
 
+
+*****
+
+####  苏西踩到我了  
+##### 186#       发表于 2026-2-20 16:37
+
+局外成长很重要，我又讨厌折腾局外成长，等Mod了。
+
+and，蝴蝶结可以秒杀造物主二阶段。<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+【以防你不知道蝴蝶结可以秒杀最终boss造物主二阶段【喵喵的结合】】 [https://www.bilibili.com/video/B ... 4f0efe52b51a31f9328](https://www.bilibili.com/video/BV1huZCBEELm/?share_source=copy_web&amp;vd_source=c153c3ae088bc4f0efe52b51a31f9328)
+
