@@ -153,3 +153,15 @@ MZEC3xP4fG
 
 —— 来自 HONOR PGT-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  wbtsy  
+##### 729#       发表于 2026-2-20 13:54
+
+<blockquote>Flechette 发表于 2026-2-19 16:58
+我去，ADND遗老</blockquote>
+和adnd遗老没关系。
+
+冷知识：dnd一直到最新版都是叫ac。巫术1代也是沿用dnd的ac。
+
