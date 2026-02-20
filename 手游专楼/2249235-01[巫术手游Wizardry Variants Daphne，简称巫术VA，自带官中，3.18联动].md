@@ -222,3 +222,16 @@ MZEC3xP4fG
 
 一井没见到传说 真有你的drecom<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 735#       发表于 2026-2-20 23:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69212558&amp;ptid=2249235" target="_blank">茄子自走炮 发表于 2026-2-20 23:08</a>
+
+一井没见到传说 真有你的drecom</blockquote>
+我比你强一点，我出了一个人妻，实现了上一页里暴死吃井的自我预言<img src="https://static.stage1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">
+
+常驻6角里我的叶卡已经克8多一只了，就差最后两只，第二多的王女加上两只放浪才到克5
+
