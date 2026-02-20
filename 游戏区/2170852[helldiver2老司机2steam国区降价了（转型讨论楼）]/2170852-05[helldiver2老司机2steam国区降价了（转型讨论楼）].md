@@ -571,3 +571,15 @@
 <img src="https://p.sda1.dev/30/1283d8a9db0ab6177ba1f42513c9c92d/Image_1771545472711_319.jpg" referrerpolicy="no-referrer">
 总统加农炮:孩子们我打赢复活赛回来了！
 
+
+*****
+
+####  Sannapolis  
+##### 7369#       发表于 2026-2-20 08:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69209199&amp;ptid=2170852" target="_blank">狭义文具爱好者 发表于 2026-2-20 02:22</a>
+本来以为有添油下，问题不大，现在看来还就差在尾宿八那边拉扯消耗掉的时间和人力
+
+该去团结堡救seaf了，不 ...</blockquote>
+导致失败的节点应该有两个。一个是在当时投票没选择给尾宿八雀特湾烧玻璃导致后续在这两个星球的防卫战浪费了大量人力；另一个是第三阶段凑任务完成数的MO没完成，如果完成了理论上应该会有增援补充或者解放度加成，而不是像现在一样什么都没有
+
