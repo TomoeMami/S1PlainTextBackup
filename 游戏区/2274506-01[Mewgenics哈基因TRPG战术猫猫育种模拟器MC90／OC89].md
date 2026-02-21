@@ -2438,3 +2438,16 @@ and，蝴蝶结可以秒杀造物主二阶段。<img src="https://static.stage1s
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  harry3  
+##### 198#       发表于 2026-2-21 09:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69213172&amp;ptid=2274506" target="_blank">pzk 发表于 2026-2-21 07:51</a>
+
+博士的支线一定要按顺序打吗？我水蛭没做，先做了蜘蛛，到关底怎么没有之前像肉墙塞肉块类似的选项 ...</blockquote>
+塞肉块是主线，打tina给的，博士的打完关卡就行。
+
+顺序无所谓，好像有的是固定有的会根据你开的图随机目的地。
+
