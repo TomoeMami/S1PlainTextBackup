@@ -641,3 +641,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">贴吧和b站都快成超级功德林了，都是分锅大会
 
+
+*****
+
+####  FLZB  
+##### 7376#       发表于 2026-2-22 00:21
+
+鬼佬也差不多，刚开打就在骂了。只能说这次虽然败北，但从此以后可以名正言顺的骂混子和胡闹潜兵了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
