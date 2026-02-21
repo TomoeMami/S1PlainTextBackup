@@ -2527,3 +2527,19 @@ e胖说战士这个无限combo要被修了
 
 每局1-4层，每层结束有机会撤离
 
+
+*****
+
+####  ことわり  
+##### 206#       发表于 2026-2-21 18:06
+
+<img src="https://img.stage1st.com/forum/202602/21/180555tx3gmhl0zyq14luq.png" referrerpolicy="no-referrer">
+
+<strong>44e52ef3-7984-48d5-bc43-388e70e7b05a.png</strong> (51.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-21 18:05 上传
+
+ 昨天出双7，今天出三7，很顺利，希望明天能出四7
+
