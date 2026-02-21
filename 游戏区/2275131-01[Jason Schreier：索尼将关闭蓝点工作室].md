@@ -613,3 +613,18 @@ sony脑子是不是有问题
 
 每年搞一个重制活给蓝点稳赚不赔啊
 
+
+*****
+
+####  llysander  
+##### 64#       发表于 2026-2-22 01:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69210273&amp;ptid=2275131" target="_blank">卡拉德利姆 发表于 2026-2-20 13:03</a>
+
+外网热度确实挺高的，被称为concord 3.0（2.0被半路杀出来的highguard抢了）</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">迫真躲了一发子弹
+
+当时这么端出来难以想象画面多美
+
+大难不死应该必有后福了吧，现在看已经改了不少东西，然后就是定价可能还是难以服众
+
