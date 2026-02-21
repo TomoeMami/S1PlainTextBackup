@@ -619,3 +619,17 @@
 
 倒是再次get到了这游戏的黑色幽默本质
 
+
+*****
+
+####  xinfengj  
+##### 7374#       发表于 2026-2-21 07:51
+
+<img src="https://p.sda1.dev/30/dcf0eb1ba82ac7f5ef5f7fa58db97d2a/CMP_20260221074832637.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/527e1729daf25e8dc4b09131dd253bf9/CMP_20260221074832468.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/668c8eb5fa536b4a7845282dedfe5796/CMP_20260221074832532.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/528967d0e0bf79dbe168f30a8972bc31/CMP_20260221074832593.png" referrerpolicy="no-referrer">
+
+用两周时间人工轰炸敌首都后胜利转进，超级地球的又一次伟大胜利<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+所以被偷的DSS设计图呢？
+
