@@ -2632,3 +2632,15 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 沙漠有对策的，可以找视频
 没猫就攒流浪猫去小巷跑刀，赚起始装备和家具
 
+
+*****
+
+####  darkXcross  
+##### 213#       发表于 2026-2-21 22:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69213144&amp;ptid=2274506" target="_blank">da2008 发表于 2026-2-21 07:19</a>
+最强被动提名一个迷你自身+，复制体的装备也是复制原体的，每场战斗重新复制一遍
+
+原体带好最强的消耗武器 ...</blockquote>
+确实，家里留个迷你+和两个红武红消耗防守就很安心。但是有些武器和消耗品迷你死活不用就很迷。（例如后空翻、刀片和粗糙爪）
+

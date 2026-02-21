@@ -1107,3 +1107,26 @@ win10不提供技术支持吧，报错了不管
 
 集2345素材的大作啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 724#       发表于 2026-2-21 22:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69215044&amp;ptid=2252759" target="_blank">ww-tsl 发表于 2026-2-21 18:37</a>
+
+根据结尾的表现，李三光是不是被打了返老还童药可以再战30年的意思？
+
+说起来，“主角变异长生不老”，在寄 ...</blockquote>
+JILL姊再上次CG電影中，在人設中都說獲得接近不老(?)體質
+
+在生化這個世界，返它還童並不算出奇，就看有沒副作用
+
+當然未必是「真」不老，緩老吧
+
+威叔如果未死，及定時定量打針，除了能獲得超人能力外，副作用可以說鎖了年齡沒分別...
+
+不過換另一角度來看
+
+打完針後細胞能短時間再次活性化，某程度和返老還童其實都有點接近
+
