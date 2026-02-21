@@ -1077,3 +1077,15 @@ win10不提供技术支持吧，报错了不管
 
 甚至连脸上的胡子还有没有都看不清
 
+
+*****
+
+####  cangyuyao  
+##### 721#       发表于 2026-2-21 21:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69215541&amp;ptid=2252759" target="_blank">Andariel 发表于 2026-2-21 21:14</a>
+偷跑太模糊了吧.....根本看不出来三光有没有变年轻
+
+甚至连脸上的胡子还有没有都看不清 ...</blockquote>
+今天通关的人录的，凹pose大特写清的不能再清了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
