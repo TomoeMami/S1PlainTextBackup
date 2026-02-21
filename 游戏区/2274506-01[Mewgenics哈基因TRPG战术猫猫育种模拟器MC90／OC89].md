@@ -2582,3 +2582,15 @@ e胖说战士这个无限combo要被修了</blockquote>
 
 我只装了套装信息和取消SL惩罚，体验好了不少，还急需一个猫猫管理界面
 
+
+*****
+
+####  嘲风  
+##### 209#       发表于 2026-2-21 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69213389&amp;ptid=2274506" target="_blank">harry3 发表于 2026-2-21 09:54</a>
+nexus上已经有不少mod了，包括mod管理器和save editor之类，
+
+贴吧也有整合的但是过于op了，需要小心点，看 ...</blockquote>
+有猫咪管理的了吗？一只一只点太耽误时间了
+
