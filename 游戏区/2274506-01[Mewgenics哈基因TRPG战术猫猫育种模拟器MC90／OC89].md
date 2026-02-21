@@ -2514,3 +2514,16 @@ e胖说战士这个无限combo要被修了
 因为一直有支线任务，看来该往后走了orz</blockquote>
 推主线到第三章会给道具要回头打第一章隐藏关的
 
+
+*****
+
+####  tonyunreal  
+##### 205#       发表于 2026-2-21 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69213654&amp;ptid=2274506" target="_blank">子虚乌有 发表于 2026-2-21 11:22</a>
+
+请教下，这游戏是肉鸽吗？就是不停的挂了然后从第一层开始打？类似爬塔</blockquote>
+是轻肉鸽Roguelite，不同个体有初始属性高低，有技能差别，开局可以从家里带装备
+
+每局1-4层，每层结束有机会撤离
+
