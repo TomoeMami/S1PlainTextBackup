@@ -1062,3 +1062,18 @@ win10不提供技术支持吧，报错了不管
 
 （结果端上来的是re3和6流程设计<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Andariel  
+##### 720#       发表于 2026-2-21 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69215329&amp;ptid=2252759" target="_blank">cangyuyao 发表于 2026-2-21 20:04</a>
+
+假的而且神奇的是这条又tm是DG发的……
+
+前两天乱成一锅了，至少从打boss的CG来看没这事 ...</blockquote>
+偷跑太模糊了吧.....根本看不出来三光有没有变年轻
+
+甚至连脸上的胡子还有没有都看不清
+

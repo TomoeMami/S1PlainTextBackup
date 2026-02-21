@@ -2610,3 +2610,14 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 
 2026-2-21 21:02 上传
 
+
+*****
+
+####  harry3  
+##### 211#       发表于 2026-2-21 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69215093&amp;ptid=2274506" target="_blank">嘲风 发表于 2026-2-21 18:49</a>
+
+有猫咪管理的了吗？一只一只点太耽误时间了</blockquote>
+没有，今天捣鼓了一下一半都有bug，得看评论区，saveeditor也只能用1.0的用2.0的会坏档，只能改很少的东西777都改不了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
