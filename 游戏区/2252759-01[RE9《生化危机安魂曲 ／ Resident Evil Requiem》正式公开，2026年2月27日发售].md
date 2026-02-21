@@ -1089,3 +1089,13 @@ win10不提供技术支持吧，报错了不管
 甚至连脸上的胡子还有没有都看不清 ...</blockquote>
 今天通关的人录的，凹pose大特写清的不能再清了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 722#       发表于 2026-2-21 22:28
+
+看了个boss战，某个人形boss也真是没想到被拉出来……
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
