@@ -633,3 +633,11 @@
 用两周时间人工轰炸敌首都后胜利转进，超级地球的又一次伟大胜利<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 所以被偷的DSS设计图呢？
 
+
+*****
+
+####  ykyin09  
+##### 7375#       发表于 2026-2-21 23:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">贴吧和b站都快成超级功德林了，都是分锅大会
+
