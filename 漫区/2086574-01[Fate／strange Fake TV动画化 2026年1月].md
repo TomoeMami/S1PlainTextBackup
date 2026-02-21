@@ -78,3 +78,17 @@
 
 优秀的群像剧就是这样不知不觉20分钟就过去了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bbjajdd  
+##### 1025#       发表于 2026-2-22 05:42
+
+<blockquote>ParadiseMartyr 发表于 2026-2-22 01:38
+这集美国人要杀谁？不会是美国总统吧
+
+—— 来自 鹅球 v3.3.96</blockquote>
+过几集应该会讲
+
+只能说f2d54这手骚操作连串子都串不出来
+
