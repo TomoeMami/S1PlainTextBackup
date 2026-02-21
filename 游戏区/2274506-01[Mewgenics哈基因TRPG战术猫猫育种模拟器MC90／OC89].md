@@ -2543,3 +2543,14 @@ e胖说战士这个无限combo要被修了
 
  昨天出双7，今天出三7，很顺利，希望明天能出四7
 
+
+*****
+
+####  wwddrte  
+##### 207#       发表于 2026-2-21 18:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69213635&amp;ptid=2274506" target="_blank">harry3 发表于 2026-2-21 11:15</a>
+
+e胖说战士这个无限combo要被修了</blockquote>
+不要啊<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
