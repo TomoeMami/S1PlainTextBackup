@@ -1023,3 +1023,16 @@ win10不提供技术支持吧，报错了不管
 
 说起来，“主角变异长生不老”，在寄生前夜里也有这个设定，然而这个本来很有潜力的IP被SE玩死了。
 
+
+*****
+
+####  cangyuyao  
+##### 717#       发表于 2026-2-21 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69215044&amp;ptid=2252759" target="_blank">ww-tsl 发表于 2026-2-21 18:37</a>
+根据结尾的表现，李三光是不是被打了返老还童药可以再战30年的意思？
+
+说起来，“主角变异长生不老”，在寄 ...</blockquote>
+假的而且神奇的是这条又tm是DG发的……<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+前两天乱成一锅了，至少从打boss的CG来看没这事
+
