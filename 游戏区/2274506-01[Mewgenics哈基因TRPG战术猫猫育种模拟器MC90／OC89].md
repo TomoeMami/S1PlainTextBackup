@@ -2493,3 +2493,24 @@ e胖说战士这个无限combo要被修了
 —— 来自 OPPO PKB110, ...</blockquote>
 因为一直有支线任务，看来该往后走了orz
 
+
+*****
+
+####  fireflies  
+##### 203#       发表于 2026-2-21 13:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69213654&amp;ptid=2274506" target="_blank">子虚乌有 发表于 2026-2-21 11:22</a>
+
+请教下，这游戏是肉鸽吗？就是不停的挂了然后从第一层开始打？类似爬塔</blockquote>
+肉鸽，三大章，每个章节有三关加个隐藏关。每次进都是新猫队伍再选章节进
+
+*****
+
+####  fireflies  
+##### 204#       发表于 2026-2-21 13:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69214018&amp;ptid=2274506" target="_blank">幻想风靡_ 发表于 2026-2-21 12:59</a>
+
+因为一直有支线任务，看来该往后走了orz</blockquote>
+推主线到第三章会给道具要回头打第一章隐藏关的
+
