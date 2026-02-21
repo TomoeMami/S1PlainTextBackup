@@ -562,3 +562,11 @@ c妈怒砍两分
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">魔夜剧场版上映时我青能开强化本吗？
 
+
+*****
+
+####  khxooo  
+##### 20561#       发表于 2026-2-21 17:38
+
+闲得无聊将土所长那两个高难本也打了。也算是完成了一个遗憾了。
+
