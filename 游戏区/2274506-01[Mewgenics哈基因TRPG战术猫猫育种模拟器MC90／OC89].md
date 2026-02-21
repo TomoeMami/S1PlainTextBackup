@@ -2461,3 +2461,14 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 
 贴吧也有整合的但是过于op了，需要小心点，看反馈加强家具都会导致逆天猫太多用不过来微管理更累，家具过了阈值收益太高了
 
+
+*****
+
+####  harry3  
+##### 200#       发表于 2026-2-21 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69210827&amp;ptid=2274506" target="_blank">wwddrte 发表于 2026-2-20 15:27</a>
+
+昨天绝望难度（impossible）战士单通了二图。遗传石拳+冷酷无情和手臂跳跃攻击突变，出门装备带个10点护甲 ...</blockquote>
+e胖说战士这个无限combo要被修了
+
