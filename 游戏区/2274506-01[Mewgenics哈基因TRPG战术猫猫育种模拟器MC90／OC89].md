@@ -2428,3 +2428,13 @@ and，蝴蝶结可以秒杀造物主二阶段。<img src="https://static.stage1s
 博士的支线一定要按顺序打吗？我水蛭没做，先做了蜘蛛，到关底怎么没有之前像肉墙塞肉块类似的选项 ...</blockquote>
 博士支线有顺序吗？道具会坏，应该不会有啥强制内容，我就当作是刷金币的任务。
 
+
+*****
+
+####  人畜无害沃特碧  
+##### 197#       发表于 2026-2-21 08:51
+
+沙漠boss过不去，团灭回家没有🐱可以送，一把时间又太久，陷入恶性循环有点腻了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一开始还以为能玩上百小时呢，30小时已经不太想玩了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
