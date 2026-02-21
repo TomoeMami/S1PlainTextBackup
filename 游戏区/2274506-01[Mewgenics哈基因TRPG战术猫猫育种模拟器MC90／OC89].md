@@ -2554,3 +2554,31 @@ e胖说战士这个无限combo要被修了
 e胖说战士这个无限combo要被修了</blockquote>
 不要啊<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风尘的时光  
+##### 208#       发表于 2026-2-21 18:34
+
+【【喵喵的结合】太肝了？8个mod拯救你的游戏体验】 [https://www.bilibili.com/video/BV1dgfGBgEf8](https://www.bilibili.com/video/BV1dgfGBgEf8)
+
+ ▶ Mod列表
+
+ ① 物品不毁坏 — 装备不再碎裂
+
+ ② 取消SL惩罚 — 读档不被Steven扣属性
+
+ ③ 更好的经济 — 金币产出+40%，冒险上限99→999
+
+ ④ NPC需求简化 — 固定3只猫，不限章节
+
+ ⑤ 更好的家具 — 正面效果+50%，负面不变
+
+ ⑥ 猫屎优化 — -2舒适-2健康 → +1健康
+
+ ⑦ 升级多3次reroll — 职业升级多3次重随机会
+
+ ⑧ 套装信息显示 — 物品直接显示所属套装和效果
+
+我只装了套装信息和取消SL惩罚，体验好了不少，还急需一个猫猫管理界面
+
