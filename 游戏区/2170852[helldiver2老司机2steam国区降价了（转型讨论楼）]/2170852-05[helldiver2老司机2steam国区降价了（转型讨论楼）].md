@@ -659,3 +659,58 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  狭义文具爱好者  
+##### 7378#       发表于 2026-2-20 22:49
+
+本来还能编个故事搞个大撤退保留有生力量，死了三千万打下一个城市救了三万seaf，箭头数学还是太权威了
+
+倒是再次get到了这游戏的黑色幽默本质
+
+*****
+
+####  xinfengj  
+##### 7379#       发表于 2026-2-21 07:51
+
+<img src="https://p.sda1.dev/30/dcf0eb1ba82ac7f5ef5f7fa58db97d2a/CMP_20260221074832637.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/527e1729daf25e8dc4b09131dd253bf9/CMP_20260221074832468.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/668c8eb5fa536b4a7845282dedfe5796/CMP_20260221074832532.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/528967d0e0bf79dbe168f30a8972bc31/CMP_20260221074832593.png" referrerpolicy="no-referrer">
+
+用两周时间人工轰炸敌首都后胜利转进，超级地球的又一次伟大胜利<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+所以被偷的DSS设计图呢？
+
+*****
+
+####  ykyin09  
+##### 7380#       发表于 2026-2-21 23:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">贴吧和b站都快成超级功德林了，都是分锅大会
+
+*****
+
+####  FLZB  
+##### 7381#       发表于 2026-2-22 00:21
+
+鬼佬也差不多，刚开打就在骂了。只能说这次虽然败北，但从此以后可以名正言顺的骂混子和胡闹潜兵了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰风血羽  
+##### 7382#       发表于 2026-2-22 03:31
+
+好哥哥们，我B站首页已经推了好几次超级功德林了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  xinfengj  
+##### 7383#       发表于 2026-2-22 05:49
+
+功德林是自娱自乐项目之一，开心一下就好，别当真了。
+根本原因还是从一代继承过来的系统太过时了，人多了反而没法组织有效进攻。次要原因是政令不通，各部不知道该往哪打一窝蜂聚集。三是奖惩不分，只有一个模糊的主命令，还是你去不去打都能拿到奖励。
+真参与玩rp的玩不够，一步步深入打进去没什么奖励，不玩剧情瞎打的天天在那乔尔大手然后奖励一分也没少拿。
+
