@@ -649,3 +649,13 @@
 
 鬼佬也差不多，刚开打就在骂了。只能说这次虽然败北，但从此以后可以名正言顺的骂混子和胡闹潜兵了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 7377#       发表于 2026-2-22 03:31
+
+好哥哥们，我B站首页已经推了好几次超级功德林了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
