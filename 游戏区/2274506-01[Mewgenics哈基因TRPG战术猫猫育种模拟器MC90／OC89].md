@@ -2594,3 +2594,19 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 贴吧也有整合的但是过于op了，需要小心点，看 ...</blockquote>
 有猫咪管理的了吗？一只一只点太耽误时间了
 
+
+*****
+
+####  fireflies  
+##### 210#       发表于 2026-2-21 21:04
+
+太可怕了松鼠德，两个松鼠德开局变身完就赢了
+
+<img src="https://img.stage1st.com/forum/202602/21/210258lzetl777wu7lybb3.jpg" referrerpolicy="no-referrer">
+
+<strong>20260221205114_1.jpg</strong> (372.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-21 21:02 上传
+
