@@ -2480,3 +2480,16 @@ e胖说战士这个无限combo要被修了
 
 请教下，这游戏是肉鸽吗？就是不停的挂了然后从第一层开始打？类似爬塔
 
+
+*****
+
+####  幻想风靡_  
+##### 202#       发表于 2026-2-21 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69213135&amp;ptid=2274506" target="_blank">yyf1940 发表于 2026-2-21 07:11</a>
+
+按照大多数人说的，第一章三层都是教学关，可能22小时一直在教学关确实会腻吧…
+
+—— 来自 OPPO PKB110, ...</blockquote>
+因为一直有支线任务，看来该往后走了orz
+
