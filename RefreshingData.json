@@ -2265,7 +2265,7 @@
     "lastedit": 1771567620,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1804478": {
     "totalreply": 1274,
@@ -15120,10 +15120,10 @@
     "update": false
   },
   "2274638": {
-    "totalreply": 749,
+    "totalreply": 751,
     "title": "[最近没啥游戏玩，于是去蝗了几个手游，氪了几单以后感觉自己像个冤种]",
     "newtitle": "[最近没啥游戏玩，于是去蝗了几个手游，氪了几单以后感觉自己像个冤种]",
-    "lastedit": 1771633449,
+    "lastedit": 1771634410,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16232,7 +16232,7 @@
     "newtitle": "[王菲嗓子都成这样了啊]",
     "lastedit": 1771375210,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2274794": {
@@ -16758,10 +16758,10 @@
     "update": false
   },
   "2275159": {
-    "totalreply": 50,
+    "totalreply": 51,
     "title": "[火红 叶绿 227]",
     "newtitle": "[火红 叶绿 227]",
-    "lastedit": 1771629132,
+    "lastedit": 1771634768,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16772,6 +16772,15 @@
     "newtitle": "[NS1版游戏升级NS2相关信息（2026-02-21更新）]",
     "lastedit": 1771626134,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2275198": {
+    "totalreply": 41,
+    "title": "[美国最高法院驳回YKW的全球关税计划]",
+    "newtitle": "[美国最高法院驳回YKW的全球关税计划]",
+    "lastedit": 1771634890,
+    "category": "外野",
     "active": true,
     "update": false
   }
