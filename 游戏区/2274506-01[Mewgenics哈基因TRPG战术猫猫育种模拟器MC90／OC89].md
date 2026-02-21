@@ -2621,3 +2621,14 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 有猫咪管理的了吗？一只一只点太耽误时间了</blockquote>
 没有，今天捣鼓了一下一半都有bug，得看评论区，saveeditor也只能用1.0的用2.0的会坏档，只能改很少的东西777都改不了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  scikirbypoke  
+##### 212#       发表于 2026-2-21 21:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69213249&amp;ptid=2274506" target="_blank">人畜无害沃特碧 发表于 2026-2-21 08:51</a>
+沙漠boss过不去，团灭回家没有🐱可以送，一把时间又太久，陷入恶性循环有点腻了一开始还以为能玩上百小时呢 ...</blockquote>
+沙漠有对策的，可以找视频
+没猫就攒流浪猫去小巷跑刀，赚起始装备和家具
+
