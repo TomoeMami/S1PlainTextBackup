@@ -2417,3 +2417,14 @@ and，蝴蝶结可以秒杀造物主二阶段。<img src="https://static.stage1s
 
 <img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">博士的支线一定要按顺序打吗？我水蛭没做，先做了蜘蛛，到关底怎么没有之前像肉墙塞肉块类似的选项
 
+
+*****
+
+####  ことわり  
+##### 196#       发表于 2026-2-21 08:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69213172&amp;ptid=2274506" target="_blank">pzk 发表于 2026-2-21 07:51</a>
+
+博士的支线一定要按顺序打吗？我水蛭没做，先做了蜘蛛，到关底怎么没有之前像肉墙塞肉块类似的选项 ...</blockquote>
+博士支线有顺序吗？道具会坏，应该不会有啥强制内容，我就当作是刷金币的任务。
+
