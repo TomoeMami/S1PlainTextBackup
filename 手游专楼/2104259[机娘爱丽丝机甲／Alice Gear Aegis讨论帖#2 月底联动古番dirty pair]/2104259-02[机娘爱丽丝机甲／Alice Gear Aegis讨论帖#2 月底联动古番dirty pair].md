@@ -8,3 +8,11 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  madcow  
+##### 1924#       发表于 2026-2-22 11:17
+
+这BACKUP抽出一个四星桑迪，但是看了下也没特殊语音啥的（？？
+
