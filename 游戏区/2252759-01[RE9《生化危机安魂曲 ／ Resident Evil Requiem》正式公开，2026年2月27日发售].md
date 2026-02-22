@@ -1211,3 +1211,13 @@ JILL姊再上次CG電影中，在人設中都說獲得接近不老(?)體質
 
 还在犹豫买不买豪华版<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wyy123  
+##### 734#       发表于 2026-2-22 15:09
+
+生化9都要出了，首发的生化4刚
+
+才玩到第7章，9还是不首发了，等个打折吧
+
