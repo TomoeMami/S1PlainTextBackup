@@ -636,3 +636,14 @@ sony脑子是不是有问题
 
 现在外包维塔士程度的拼好饭重制，玩家一个个也用不吃白不吃的心态吃下了，那自己养人重制不就显得给猪吃细糠了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  日日日日日野  
+##### 66#       发表于 2026-2-22 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69210054&amp;ptid=2275131" target="_blank">时空之旅 发表于 2026-2-20 11:59</a>
+
+搞不懂为啥把这样一个做老游戏重制的工作室给砍了，以前老游戏重制不挺好的吗 ...</blockquote>
+因为不划算，内不一定有专门移植PC那个工作室做得好，外不一定有那些对某个IP有情怀的工作室做得好，那从资本角度就很危险了
+
