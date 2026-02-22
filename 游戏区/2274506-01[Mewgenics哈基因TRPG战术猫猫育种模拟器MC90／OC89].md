@@ -2694,3 +2694,19 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 前期啥职 ...</blockquote>
 三猫会少一个吃升级次数的人，这样每人升级的更快更早拿到第二天赋和高级技能。但是作为代价三个人容错率会下降，毕竟少一动<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有一说一我是没感觉这套路特别强，我就是4猫打的一路打到实验室基本没有翻车过。作为上位替代是4猫一个人带不变石不升级
 
+
+*****
+
+####  千魄万斩  
+##### 218#       发表于 2026-2-22 11:14
+
+猴爪事件也太爽了吧。直接给我工程师喵喵12个变异
+
+<img src="https://img.stage1st.com/forum/202602/22/111405tgkobxzxf0fxbvoe.png" referrerpolicy="no-referrer">
+
+<strong>超级变异-12.png</strong> (553.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-22 11:14 上传
+
