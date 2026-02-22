@@ -2777,3 +2777,14 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
  ▶ Mo ...</blockquote>
 这个不行啊，用了以后不显示道具说明了，你用的是哪个版本的汉化啊
 
+
+*****
+
+####  风尘的时光  
+##### 225#       发表于 2026-2-22 22:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69219000&amp;ptid=2274506" target="_blank">嘲风 发表于 2026-2-22 20:30</a>
+
+这个不行啊，用了以后不显示道具说明了，你用的是哪个版本的汉化啊</blockquote>
+【Mewgenics自制汉化补丁v0.5！大规模翻译润色以及以撒相关物品翻译修改(简介附下载链接及安装教程）】 [https://www.bilibili.com/video/BV1yefGB9EBB](https://www.bilibili.com/video/BV1yefGB9EBB)
+
