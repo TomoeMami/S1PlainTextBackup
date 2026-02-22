@@ -771,3 +771,26 @@ PS商店排行榜前端雷打不动的那些游戏呗</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  liekong  
+##### 77#       发表于 2026-2-22 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69218553&amp;ptid=2275131" target="_blank">BK10 发表于 2026-2-22 18:40</a>
+至少可以试试，或者说索尼尝试过吗？或者直接放生回归独立类似se对于杀手系列ioi的做法，现在想想se对几 ...</blockquote>
+SE卖水晶动力那几家公司的时候还有疫情游戏红利期尾气，能找到人接手，现在各游戏公司都在裁员，大环境完全不同。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  BK10  
+##### 78#       发表于 2026-2-22 18:53
+
+ 本帖最后由 BK10 于 2026-2-22 18:55 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69218587&amp;ptid=2275131" target="_blank">liekong 发表于 2026-2-22 18:47</a>
+SE卖水晶动力那几家公司的时候还有疫情游戏红利期尾气，能找到人接手，现在各游戏公司都在裁员，大环境完 ...</blockquote>
+那直接放生呢？类似微软让做古惑狼重制的开发商Toys for Bob直接独立和或者se做杀手的ioi，微软这个就是最近的，毕竟蓝点在我看也是没啥大错的开发商，又不是做了一坨屎被关了
+
