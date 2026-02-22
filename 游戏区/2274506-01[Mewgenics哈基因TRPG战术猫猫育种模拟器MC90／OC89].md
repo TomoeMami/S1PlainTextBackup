@@ -2764,3 +2764,16 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  嘲风  
+##### 224#       发表于 2026-2-22 20:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69215035&amp;ptid=2274506" target="_blank">风尘的时光 发表于 2026-2-21 18:34</a>
+
+【【喵喵的结合】太肝了？8个mod拯救你的游戏体验】 https://www.bilibili.com/video/BV1dgfGBgEf8
+
+ ▶ Mo ...</blockquote>
+这个不行啊，用了以后不显示道具说明了，你用的是哪个版本的汉化啊
+
