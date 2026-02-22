@@ -472,3 +472,11 @@ NOX肯定不会这样直接下线，也不太像玩假死的把戏，6的演员�
 
 从预告看来，感觉下集像是要全部重启了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  丹德里恩  
+##### 719#       发表于 2026-2-22 11:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">灾厄大王真是酷炫啊，可怜的莫压力越来越大了
+
