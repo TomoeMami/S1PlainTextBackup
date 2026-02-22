@@ -1243,3 +1243,22 @@ JILL姊再上次CG電影中，在人設中都說獲得接近不老(?)體質
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我能理解这是游戏，而且也有BSAA驻扎的关系还弄了个商店，但是看到里昂靠探索浣熊市的各种角落武装自己还是有点难绷
 
+
+*****
+
+####  eilot  
+##### 737#       发表于 2026-2-22 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69217981&amp;ptid=2252759" target="_blank">plok201 发表于 2026-2-22 16:00</a>
+
+虽然我能理解这是游戏，而且也有BSAA驻扎的关系还弄了个商店，但是看到里昂靠探索浣熊市的各种角落武装自己 ...</blockquote>
+理論上還是有點合理
+
+否則就會做成美國末日那種找到的都是物資素材，要自己做出弓箭或雞X尾X酒
+
+子彈都是靠拾回來的
+
+說到底浣熊市是有兩重封鎖，不利用BSAA進駐基地來補給，也難說過去
+
+可惜都是對著電腦來交易及強化武器，基地內都沒有真人
+
