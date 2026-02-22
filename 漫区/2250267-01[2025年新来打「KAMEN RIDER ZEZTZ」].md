@@ -654,3 +654,25 @@ SEVEN你好强大
 
 看nox死的时候内心毫无波澜，一想到商法大手发力过两话就该复活了
 
+
+*****
+
+####  damian-wade  
+##### 738#       发表于 2026-2-22 18:11
+
+虽然这集灾厄大爹两次抽陀螺非常爽，但感觉如果在上一集将nox那场放完整观感会好很多
+
+—— 来自 HONOR MAG-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  暗黑能乐  
+##### 739#       发表于 2026-2-22 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69218381&amp;ptid=2250267" target="_blank">AAAZZZWWW 发表于 2026-2-22 17:51</a>
+
+对这话特工7人格表现很满意，就是下一话好像又要变回去了真想看这样性格的特工7一路到结局的样子
+
+看nox死的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉下一话就被CODE搞破防了，看这预告的意思，宁梦真要站妈这边吧
+
