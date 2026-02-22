@@ -451,3 +451,24 @@ NOX肯定不会这样直接下线，也不太像玩假死的把戏，6的演员�
 
 这几集小孩子噩梦成真，枪击同事，主角杀人等等，对这个年代的子供向来说做太过火了吧。朝日怕不是要家长投诉信吃到饱<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  离心  
+##### 717#       发表于 2026-2-22 10:58
+
+ 本帖最后由 离心 于 2026-2-22 11:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69216841&amp;ptid=2250267" target="_blank">milky658 发表于 2026-2-22 10:54</a>
+灾厄出来的时候我猜过会不会先死主要角色，把世界整到无法挽回的余地，然后重启，以此来揭晓世界观。所以上 ...</blockquote>
+嗨呀某个爱黄金的大叔叔虽然不是主角但玩的也比较过火了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  暗黑能乐  
+##### 718#       发表于 2026-2-22 11:05
+
+从预告看来，感觉下集像是要全部重启了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
