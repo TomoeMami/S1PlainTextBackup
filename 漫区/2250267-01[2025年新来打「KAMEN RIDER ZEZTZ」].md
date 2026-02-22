@@ -644,3 +644,13 @@ SEVEN你好强大
 —— 来自 HONOR BVL-AN00, Android 16, 鹅球 v3.4.98 ...</blockquote>
 妈是美国人
 
+
+*****
+
+####  AAAZZZWWW  
+##### 737#       发表于 2026-2-22 17:51
+
+对这话特工7人格表现很满意，就是下一话好像又要变回去了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">真想看这样性格的特工7一路到结局的样子
+
+看nox死的时候内心毫无波澜，一想到商法大手发力过两话就该复活了
+
