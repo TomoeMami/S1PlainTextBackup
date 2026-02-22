@@ -2720,3 +2720,13 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 
 等未来开了地下室五间房以及有管理mod，自动配装mod应该会好不少。
 
+
+*****
+
+####  Tissuesea  
+##### 220#       发表于 2026-2-22 14:27
+
+试玩了一下对于战旗白痴似乎有点不友好，非常想悔棋，各种走位总感觉不对。
+
+—— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
