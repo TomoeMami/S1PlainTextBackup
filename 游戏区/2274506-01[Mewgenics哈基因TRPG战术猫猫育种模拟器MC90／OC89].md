@@ -2730,3 +2730,16 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 
 —— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  harry3  
+##### 221#       发表于 2026-2-22 14:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69217656&amp;ptid=2274506" target="_blank">Tissuesea 发表于 2026-2-22 14:27</a>
+
+试玩了一下对于战旗白痴似乎有点不友好，非常想悔棋，各种走位总感觉不对。
+
+—— 来自 HONOR ALI-AN00, An ...</blockquote>
+就最开始那几局腿太短+没有移动撤回不习惯，后面无所谓的，用猎爹当核心的就是无脑走到覆盖敌人最多的位置攻击，坦克牧师随便走走，坦克放那发呆直接过都行
+
