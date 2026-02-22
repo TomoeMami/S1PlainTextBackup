@@ -348,3 +348,20 @@ DX就不适合打pvp
 
 age的机子感觉没啥兴趣，又可以节约钻石了
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3662#       发表于 2026-2-23 02:19
+
+<img src="https://img.stage1st.com/forum/202602/23/021836rzfvbfrofvo2kb4o.png" referrerpolicy="no-referrer">
+
+<strong>MuMu12-20260223-021643.png</strong> (559.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-23 02:18 上传
+
+20W了，只有一个很小的排名百分比，没有具体名次
+<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">不过还是得说这AI真的是有大病，明明有月光炮可以用，他就不用，要走到人脸上放导弹，然后被人反手打死
+
