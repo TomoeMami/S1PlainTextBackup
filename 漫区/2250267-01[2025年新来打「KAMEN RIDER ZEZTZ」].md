@@ -676,3 +676,11 @@ SEVEN你好强大
 看nox死的 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉下一话就被CODE搞破防了，看这预告的意思，宁梦真要站妈这边吧
 
+
+*****
+
+####  blue321  
+##### 740#       发表于 2026-2-22 18:34
+
+这序章好长啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
