@@ -282,3 +282,14 @@
 
        [https://www.bilibili.com/video/BV15QfHBPE3d](https://www.bilibili.com/video/BV15QfHBPE3d)    &lt;——哔哩哔哩搬运
 
+
+*****
+
+####  仟音一心  
+##### 41726#       发表于 2026-2-22 10:21
+
+キノ老师的要乐奈生日贺图。
+<img src="https://p.sda1.dev/30/1fcd070d28b761a7c43595f7b5d09409/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/3df8db9704a36fdd252e84a8cad4136f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/30/ca9221becf3025e26b0c6a4fecb5ef07/image.jpg" referrerpolicy="no-referrer">
+

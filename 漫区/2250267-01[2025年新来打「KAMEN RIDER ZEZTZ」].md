@@ -396,3 +396,11 @@ nox直接确认死亡了
 
 猜中一半吧，第五集谜语说肉体，文明，精神，次元都会被毁灭，灾厄介绍一出就猜到是女士计划用来灭世的。但没想到灭的是梦世界
 
+
+*****
+
+####  milky658  
+##### 711#       发表于 2026-2-22 10:22
+
+这集一股子推旮旯推出BE的味儿，谜语太多会降好感哦<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
