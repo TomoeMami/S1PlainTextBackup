@@ -647,3 +647,43 @@ sony脑子是不是有问题
 搞不懂为啥把这样一个做老游戏重制的工作室给砍了，以前老游戏重制不挺好的吗 ...</blockquote>
 因为不划算，内不一定有专门移植PC那个工作室做得好，外不一定有那些对某个IP有情怀的工作室做得好，那从资本角度就很危险了
 
+
+*****
+
+####  llysander  
+##### 67#       发表于 2026-2-22 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69213099&amp;ptid=2275131" target="_blank">keytomylife 发表于 2026-2-21 06:14</a>
+
+sony脑子是不是有问题
+
+每年搞一个重制活给蓝点稳赚不赔啊</blockquote>
+但是蓝点确实20年后没作品，22年后没参与支援
+
+现在有
+
+1索尼强压战神gaas蓝点做砸了
+
+2蓝点拒做重制谈崩被炒
+
+3管理开会一看报表随机一指就你了
+
+等等等等说法，一年一个可能本就不现实
+
+总之 可能永远也不知道其中心路历程了<img src="https://static.stage1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+------------------------------
+
+刚说躲了一发子弹，今天一看估计马拉松的pr团队又心肺停止了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 蓝点死了尸体也被拱上反gaas图腾
+
+*****
+
+####  ppa11  
+##### 68#       发表于 2026-2-22 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69209252&amp;ptid=2275131" target="_blank">ultraseven 发表于 2026-2-20 03:35</a>
+和微软关Tango一样令人震惊</blockquote>
+Tango不太一样吧，Tango是制作人全走了
+
+—— 來自 realme RMX3700, Android 14, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
