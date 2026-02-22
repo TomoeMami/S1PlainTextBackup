@@ -2680,3 +2680,17 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 
 前期啥职业比较好？我现在是坦克 弓箭 牧师 盗贼。
 
+
+*****
+
+####  kyonko15  
+##### 217#       发表于 2026-2-22 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69216580&amp;ptid=2274506" target="_blank">子虚乌有 发表于 2026-2-22 09:43</a>
+这个是不是要是团灭相当于白玩了没收益。
+
+另外我看视频说出门3只猫比4只猫好，因为经验多，是吗？
+
+前期啥职 ...</blockquote>
+三猫会少一个吃升级次数的人，这样每人升级的更快更早拿到第二天赋和高级技能。但是作为代价三个人容错率会下降，毕竟少一动<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有一说一我是没感觉这套路特别强，我就是4猫打的一路打到实验室基本没有翻车过。作为上位替代是4猫一个人带不变石不升级
+
