@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 31835,
+    "totalreply": 31836,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》2.5 可曾记得爱]",
-    "lastedit": 1771732689,
+    "lastedit": 1771733661,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9846,12 +9846,12 @@
     "update": false
   },
   "2200312": {
-    "totalreply": 15163,
+    "totalreply": 15218,
     "title": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
     "newtitle": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
-    "lastedit": 1770433104,
+    "lastedit": 1771733662,
     "category": "手游战斗",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1549678": {
@@ -11916,10 +11916,10 @@
     "update": false
   },
   "2250267": {
-    "totalreply": 725,
+    "totalreply": 726,
     "title": "[2025年新来打「KAMEN RIDER ZEZTZ」]",
     "newtitle": "[2025年新来打「KAMEN RIDER ZEZTZ」]",
-    "lastedit": 1771732453,
+    "lastedit": 1771733766,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12303,10 +12303,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 8410,
+    "totalreply": 8412,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 2026.1.22 全球公测]",
-    "lastedit": 1771732089,
+    "lastedit": 1771733655,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12591,10 +12591,10 @@
     "update": false
   },
   "2271232": {
-    "totalreply": 1675,
+    "totalreply": 1676,
     "title": "[中东专楼-2026]",
     "newtitle": "[中东专楼-2026]",
-    "lastedit": 1771726810,
+    "lastedit": 1771733407,
     "category": "外野",
     "active": true,
     "update": false
@@ -12645,10 +12645,10 @@
     "update": false
   },
   "2271402": {
-    "totalreply": 3022,
+    "totalreply": 3023,
     "title": "[任天堂病棟14楼，等一个春节春直]",
     "newtitle": "[任天堂病棟14楼，2.27宝可梦日]",
-    "lastedit": 1771733048,
+    "lastedit": 1771733661,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16542,10 +16542,10 @@
     "update": false
   },
   "2275200": {
-    "totalreply": 60,
+    "totalreply": 62,
     "title": "[没明白“XB2问题太多了”的观点哪来的]",
     "newtitle": "[没明白“XB2问题太多了”的观点哪来的]",
-    "lastedit": 1771733287,
+    "lastedit": 1771733887,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16596,10 +16596,10 @@
     "update": false
   },
   "2275218": {
-    "totalreply": 65,
+    "totalreply": 66,
     "title": "[国产+街霸没有做头吗？感觉街霸的逻辑非常“长期自洽”]",
     "newtitle": "[国产+街霸没有做头吗？感觉街霸的逻辑非常“长期自洽”]",
-    "lastedit": 1771731501,
+    "lastedit": 1771733661,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16772,6 +16772,15 @@
     "newtitle": "[同样是超英三巨头，为啥蜘蛛侠的漫画作品质量不如超蝙？]",
     "lastedit": 1771729575,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2275249": {
+    "totalreply": 41,
+    "title": "[美国年轻人正活成精神中国人]",
+    "newtitle": "[美国年轻人正活成精神中国人]",
+    "lastedit": 1771733662,
+    "category": "外野",
     "active": true,
     "update": false
   }
