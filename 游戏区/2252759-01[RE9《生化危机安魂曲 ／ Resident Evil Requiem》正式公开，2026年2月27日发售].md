@@ -1235,3 +1235,11 @@ JILL姊再上次CG電影中，在人設中都說獲得接近不老(?)體質
 
 就是回憶感非常大
 
+
+*****
+
+####  plok201  
+##### 736#       发表于 2026-2-22 16:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我能理解这是游戏，而且也有BSAA驻扎的关系还弄了个商店，但是看到里昂靠探索浣熊市的各种角落武装自己还是有点难绷
+
