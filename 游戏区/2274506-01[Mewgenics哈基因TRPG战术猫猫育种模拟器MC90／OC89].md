@@ -2656,3 +2656,15 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  scikirbypoke  
+##### 215#       发表于 2026-2-22 08:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69216329&amp;ptid=2274506" target="_blank">Awanano 发表于 2026-2-22 07:18</a>
+大狙我之前守家没舍得用灭掉丢了，结果又捡到了
+博士给的任务有个要带去洞穴的，所有升级都变为给道具
+有没 ...</blockquote>
+可以的，贴吧看见过
+
