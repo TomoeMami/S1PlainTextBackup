@@ -480,3 +480,29 @@ NOX肯定不会这样直接下线，也不太像玩假死的把戏，6的演员�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">灾厄大王真是酷炫啊，可怜的莫压力越来越大了
 
+
+*****
+
+####  milky658  
+##### 720#       发表于 2026-2-22 11:19
+
+这集告诉你莫的内心崩溃了一角，为什么守护世界不惜抹杀普通好青年的自我，图了nox后也是相当痛苦的。这种情节摆明了是错误的，要被批判的，莫迟早要找回真正的自我。
+所以清算剧本已经写好了:后期对人下不了杀手，明明过渡都有觉悟了，拿到最终居然又圣母了，成长倒退，人设崩完了！
+
+
+*****
+
+####  一个陆仁贾  
+##### 721#       发表于 2026-2-22 11:20
+
+崩灭大人咱们还是用骑士踢吧，武器的破坏力也太夸张了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  pokemon最爱  
+##### 722#       发表于 2026-2-22 11:21
+
+说起来灾厄这也算一种大杂烩形态吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
