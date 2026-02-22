@@ -725,3 +725,49 @@ PS商店排行榜前端雷打不动的那些游戏呗</blockquote>
 
 发现楼里居然没人讨论过和Tango一样卖掉的可能性吗？为什么非要死？索尼便宜点卖了也能回点钱吧
 
+
+*****
+
+####  liekong  
+##### 73#       发表于 2026-2-22 18:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69218532&amp;ptid=2275131" target="_blank">BK10 发表于 2026-2-22 18:34</a>
+发现楼里居然没人讨论过和Tango一样卖掉的可能性吗？为什么非要死？索尼便宜点卖了也能回点钱吧 ...</blockquote>
+问题在于没有多少人想买一家只有做HD有成绩的工作室，做HD一般都是直接外包的，不需要专门养人
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  byisme001  
+##### 74#       发表于 2026-2-22 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69218540&amp;ptid=2275131" target="_blank">liekong 发表于 2026-2-22 18:36</a>
+问题在于没有多少人想买一家只有做HD有成绩的工作室，做HD一般都是直接外包的，不需要专门养人
+
+—— 来 ...</blockquote>
+索尼都能为了移植pc收购工作室
+
+
+*****
+
+####  BK10  
+##### 75#       发表于 2026-2-22 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69218540&amp;ptid=2275131" target="_blank">liekong 发表于 2026-2-22 18:36</a>
+问题在于没有多少人想买一家只有做HD有成绩的工作室，做HD一般都是直接外包的，不需要专门养人
+
+—— 来 ...</blockquote>
+至少可以试试，或者说索尼尝试过吗？或者直接放生回归独立类似se对于杀手系列ioi的做法，现在想想se对几个西方工作室处理倒是挺好的
+
+*****
+
+####  liekong  
+##### 76#       发表于 2026-2-22 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69218545&amp;ptid=2275131" target="_blank">byisme001 发表于 2026-2-22 18:38</a>
+索尼都能为了移植pc收购工作室</blockquote>
+所以现在不就裁员+关停了嘛
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
