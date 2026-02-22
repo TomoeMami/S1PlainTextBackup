@@ -59,3 +59,14 @@ EX语音（人物是金色框）目前就蓝奈有，直播的时候说过因为
 EX语音（人物是金色框）目前就蓝奈有，直播的时候说过因为不好说的原因无法所有人都实装EX语音（无非就是 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">之前直播没仔细看，我原来以为四星就蓝奈和安藤两个然后剩下的三星，没想到还有凑数的四星（（
 
+
+*****
+
+####  weiweiEX  
+##### 1929#       发表于 2026-2-22 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69216927&amp;ptid=2104259" target="_blank">madcow 发表于 2026-2-22 11:17</a>
+
+这BACKUP抽出一个四星桑迪，但是看了下也没特殊语音啥的（？？</blockquote>
+蓝奈那样带黄色背景的才有语音
+
