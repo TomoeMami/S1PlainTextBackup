@@ -6516,10 +6516,10 @@
     "update": false
   },
   "2156895": {
-    "totalreply": 16231,
+    "totalreply": 16232,
     "title": "[微软收购楼，ABK之后，Who's Next？P3想其他方式拓展11区业务]",
     "newtitle": "[微软楼，ABK之后，p3时代已经结束了！]",
-    "lastedit": 1771746854,
+    "lastedit": 1771753214,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12294,10 +12294,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 8468,
+    "totalreply": 8470,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 2026.1.22 全球公测]",
-    "lastedit": 1771752974,
+    "lastedit": 1771753578,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 8807,
+    "totalreply": 8809,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼2月]",
-    "lastedit": 1771746851,
+    "lastedit": 1771753578,
     "category": "外野",
     "active": true,
     "update": false
@@ -12411,10 +12411,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 15222,
+    "totalreply": 15238,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1771745171,
+    "lastedit": 1771753214,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12609,10 +12609,10 @@
     "update": false
   },
   "2268175": {
-    "totalreply": 781,
+    "totalreply": 782,
     "title": "[2026年Q娃 ​​​​名侦探Precure]",
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
-    "lastedit": 1771751411,
+    "lastedit": 1771753573,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12767,7 +12767,7 @@
     "newtitle": "[帕鲁TCG 2026.07.30 发售——尝试建一个TCG专楼]",
     "lastedit": 1771494126,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2271721": {
@@ -13136,15 +13136,6 @@
     "newtitle": "[生化危机9首发大家换选择哪个平台？]",
     "lastedit": 1770573609,
     "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2273747": {
-    "totalreply": 79,
-    "title": "[己巳之变是不是袁崇焕的锅？他为何要遣散援兵ZT]",
-    "newtitle": "[己巳之变是不是袁崇焕的锅？他为何要遣散援兵ZT]",
-    "lastedit": 1770543736,
-    "category": "外野",
     "active": false,
     "update": false
   },
@@ -16317,10 +16308,10 @@
     "update": false
   },
   "2275131": {
-    "totalreply": 68,
+    "totalreply": 69,
     "title": "[Jason Schreier：索尼将关闭蓝点工作室]",
     "newtitle": "[Jason Schreier：索尼将关闭蓝点工作室]",
-    "lastedit": 1771751413,
+    "lastedit": 1771753578,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16785,10 +16776,10 @@
     "update": false
   },
   "2275288": {
-    "totalreply": 90,
+    "totalreply": 97,
     "title": "[广东湛江东海岛拾石村妈祖换人事件]",
     "newtitle": "[广东湛江东海岛拾石村妈祖换人事件]",
-    "lastedit": 1771752977,
+    "lastedit": 1771753577,
     "category": "外野",
     "active": true,
     "update": false
@@ -16808,6 +16799,15 @@
     "newtitle": "[小红书消息，上汽集团的汽车运输船已抵达加拿大。]",
     "lastedit": 1771751651,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2275256": {
+    "totalreply": 41,
+    "title": "[早该完结但是被抻得太长的系列]",
+    "newtitle": "[早该完结但是被抻得太长的系列]",
+    "lastedit": 1771753578,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
