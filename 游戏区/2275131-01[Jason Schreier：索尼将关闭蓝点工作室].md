@@ -628,3 +628,11 @@ sony脑子是不是有问题
 
 大难不死应该必有后福了吧，现在看已经改了不少东西，然后就是定价可能还是难以服众
 
+
+*****
+
+####  ybfelix  
+##### 65#       发表于 2026-2-22 12:46
+
+现在外包维塔士程度的拼好饭重制，玩家一个个也用不吃白不吃的心态吃下了，那自己养人重制不就显得给猪吃细糠了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
