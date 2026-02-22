@@ -583,3 +583,11 @@ NOX肯定不会这样直接下线，也不太像玩假死的把戏，6的演员�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是26集完结的话应该没啥问题，现在就是后半年要演啥的事情了
 
+
+*****
+
+####  暗黑能乐  
+##### 731#       发表于 2026-2-22 14:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3号在人家睡觉的时候腹击真的没绷住，那段太搞笑了
+
