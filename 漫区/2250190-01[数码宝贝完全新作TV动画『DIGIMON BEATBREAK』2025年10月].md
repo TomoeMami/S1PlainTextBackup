@@ -73,3 +73,13 @@
 
 这样黑幕（金星/王会长）铲除了反对派，主角团守护了无辜的辅助主和数码兽，国民省完成本职工作铲除了黑恶势力，战术小队可能得到自由，大家都有光明的未来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤道氮  
+##### 432#       发表于 2026-2-22 13:50
+
+我一直觉得暴龙兽是有象征意义的，结果给杂鱼当打手<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
