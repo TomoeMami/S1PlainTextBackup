@@ -684,3 +684,13 @@ SEVEN你好强大
 
 这序章好长啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  milky658  
+##### 741#       发表于 2026-2-22 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69218473&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-2-22 18:14</a>
+感觉下一话就被CODE搞破防了，看这预告的意思，宁梦真要站妈这边吧</blockquote>
+重要角色死了几个，梦世界在真相解明前毁灭，女主认亲被争抢，男主迫于压力抛掉人性和自我却被围剿。放文字游戏里这发展妥妥是进be了，谜语人全责<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

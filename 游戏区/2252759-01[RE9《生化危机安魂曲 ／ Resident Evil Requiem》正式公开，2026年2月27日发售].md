@@ -1301,3 +1301,16 @@ b站随便搜一下很多吧
 从半小时的粗讲到几小时按作品精讲的都有
 这系列剧情也不怎么复杂...
 
+
+*****
+
+####  quanlix  
+##### 742#       发表于 2026-2-22 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69218377&amp;ptid=2252759" target="_blank">Kiyohara_Yasuke 发表于 2026-2-22 17:49</a>
+
+所以现在想补一下生化系列的剧情有什么办法吗</blockquote>
+[https://space.bilibili.com/15408289/lists/15972?type=season](https://space.bilibili.com/15408289/lists/15972?type=season)
+
+可以看这up整理的，都赶上纪录片了
+
