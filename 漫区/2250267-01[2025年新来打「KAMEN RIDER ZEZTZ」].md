@@ -404,3 +404,40 @@ nox直接确认死亡了
 
 这集一股子推旮旯推出BE的味儿，谜语太多会降好感哦<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 712#       发表于 2026-2-22 10:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">不过最后这一发核爆直接炸的现场都成啥样了，你都守护了些什么啊莫！
+
+*****
+
+####  暗黑能乐  
+##### 713#       发表于 2026-2-22 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69216472&amp;ptid=2250267" target="_blank">milky658 发表于 2026-2-22 08:53</a>
+
+猜中一半吧，第五集谜语说肉体，文明，精神，次元都会被毁灭，灾厄介绍一出就猜到是女士计划用来灭世的。但 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">我还以为直接梦世界再见了，结果最后怎么红月嗨在
+
+
+*****
+
+####  JOHNCHCHAN  
+##### 714#       发表于 2026-2-22 10:42
+
+NOX肯定不会这样直接下线，也不太像玩假死的把戏，6的演员也还没收花，有预感后面会“重启”
+
+*****
+
+####  离心  
+##### 715#       发表于 2026-2-22 10:43
+
+ 本帖最后由 离心 于 2026-2-22 10:45 编辑 
+
+现实世界这么玩灾厄？妹妹的flag立的好高啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
