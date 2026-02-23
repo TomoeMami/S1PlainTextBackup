@@ -2889,3 +2889,11 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 
 感谢各位，等我去第一幕捞点好一点的装备再来试试沙漠吧，被锤得不知东西南北<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  水边井  
+##### 234#       发表于 2026-2-23 21:00
+
+这游戏没法取消移动吗？<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
