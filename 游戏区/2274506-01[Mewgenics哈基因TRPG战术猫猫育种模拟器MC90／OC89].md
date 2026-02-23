@@ -2830,3 +2830,39 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Awanano  
+##### 229#       发表于 2026-2-23 12:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69221298&amp;ptid=2274506" target="_blank">魂淡放我出去 发表于 2026-2-23 12:48</a>
+第一次出门就误打误撞正好碰上雨天了，所以回血倒没成问题
+
+问题是怪处理不了</blockquote>
+沙漠别带太低速的吧，我感觉有几个图的出生点特别不友好。腐尸和赏金猎人这种都很吃速度跑过去，纯近战或者没法术推很难受赶路一万年
+哦说到这个可以带灵能，灵能平a全图打击范围的
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  pzk  
+##### 230#       发表于 2026-2-23 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69221219&amp;ptid=2274506" target="_blank">魂淡放我出去 发表于 2026-2-23 12:30</a>
+沙漠是不是得等育种搞好了再去才行？
+
+刚过第一幕，没怎么挑猫就去打沙漠，碰上要多段攻击的苍蝇群和会复活 ...</blockquote>
+苍蝇找多段攻击（类似坦克撞墙、反伤、法师的火花），骷髅怪找那种吸血或者无视护盾的攻击（类似猎人瞄准）
+
+*****
+
+####  pzk  
+##### 231#       发表于 2026-2-23 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69221331&amp;ptid=2274506" target="_blank">Awanano 发表于 2026-2-23 12:57</a>
+沙漠别带太低速的吧，我感觉有几个图的出生点特别不友好。腐尸和赏金猎人这种都很吃速度跑过去，纯近战或 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">灵能应该还没解锁吧
+
