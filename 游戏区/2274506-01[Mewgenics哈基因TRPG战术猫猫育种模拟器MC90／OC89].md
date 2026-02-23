@@ -2800,3 +2800,18 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Awanano  
+##### 227#       发表于 2026-2-23 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69221219&amp;ptid=2274506" target="_blank">魂淡放我出去 发表于 2026-2-23 12:30</a>
+沙漠是不是得等育种搞好了再去才行？
+
+刚过第一幕，没怎么挑猫就去打沙漠，碰上要多段攻击的苍蝇群和会复活 ...</blockquote>
+你可以挑在基地里的雨天出，雨天战斗后可以回血，身上带的水瓶会补上
+其他天气带个水瓶一般是够的，找会拉尿的小猫也可以湿润战斗后回血
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
