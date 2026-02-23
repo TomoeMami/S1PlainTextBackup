@@ -232,3 +232,15 @@ FSF第八集最后和下一集大致剧情概括.jpg
 说起来这部的漫画画完了吗，前阵子想去补漫画，但是tachi上好几个图源都只到22年没搜到最新的，有无好心人 ...</blockquote>
 漫画只是一小部分
 
+
+*****
+
+####  岸浪白野  
+##### 1039#       发表于 2026-2-23 23:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69222961&amp;ptid=2086574" target="_blank">scorbian 发表于 2026-2-23 20:12</a>
+说起来这部的漫画画完了吗，前阵子想去补漫画，但是tachi上好几个图源都只到22年没搜到最新的，有无好心人 ...</blockquote>
+因为漫画就是22年出第五卷只是画到小说第4卷开头的内容就断了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+森井主要还是作为插画师，画漫画工作量太大有别的工作导致这漫画摸了都是很正常的事
+现在漫画的新消息只有重新发布新装版，只能说借此恢复连载有一定可能
+
