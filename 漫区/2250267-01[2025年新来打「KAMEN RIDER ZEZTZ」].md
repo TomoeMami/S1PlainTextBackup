@@ -770,3 +770,21 @@ QE_P2Y]~8U4(GVBQ}TL0MH2.jpg
 
 如果还要从这个思路入手，要么就是0真有梦境假死方法，诺克斯用了这个方法让56一起和自己暂时从局内跳出去，只能这么想了。问题下集预告的0看着真的好反派脸
 
+
+*****
+
+####  王九的哥哥  
+##### 748#       发表于 2026-2-24 06:35
+
+看到说预告里有川平慈英跑去重新看了一遍，发现是侧脸所以一发没认出来……
+
+楽天カードマン的印象太牢固了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202602/24/063544p59yttn0anz9b5mz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-24 06:35 上传
+
