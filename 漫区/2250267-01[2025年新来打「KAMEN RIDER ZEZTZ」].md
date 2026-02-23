@@ -720,3 +720,33 @@ SEVEN你好强大
 
 很奇怪的一点，宁梦为啥能直接叫出妈，所以她其实一直知道自己老妈是谁，而且，宁梦的重要性应该是code的“现实世界”这一梦境也必要的存在吧，那为什么当初没被控制在code里呢
 
+
+*****
+
+####  洛克萨斯  
+##### 745#       发表于 2026-2-23 11:49
+
+你是 code 的一名普通士兵，而你下一集的任务是
+
+击败灾厄大王！
+
+code这种吃皇粮的机构，我7哥的工资呢，被贪污了是吧，太黑暗了<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+QE_P2Y]~8U4(GVBQ}TL0MH2.jpg
+(102.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-23 11:48 上传
+
+<img src="https://img.stage1st.com/forum/202602/23/114827sjjssjrt18zc80ej.jpg" referrerpolicy="no-referrer">
+
+[LG~~HCE6K)`0_S~730TM]P.jpg
+(117.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-23 11:48 上传
+
+<img src="https://img.stage1st.com/forum/202602/23/114829f009ma0oodiqqz9n.jpg" referrerpolicy="no-referrer">
+
