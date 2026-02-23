@@ -2788,3 +2788,15 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 这个不行啊，用了以后不显示道具说明了，你用的是哪个版本的汉化啊</blockquote>
 【Mewgenics自制汉化补丁v0.5！大规模翻译润色以及以撒相关物品翻译修改(简介附下载链接及安装教程）】 [https://www.bilibili.com/video/BV1yefGB9EBB](https://www.bilibili.com/video/BV1yefGB9EBB)
 
+
+*****
+
+####  魂淡放我出去  
+##### 226#       发表于 2026-2-23 12:30
+
+沙漠是不是得等育种搞好了再去才行？
+
+刚过第一幕，没怎么挑猫就去打沙漠，碰上要多段攻击的苍蝇群和会复活尸体的猫，感觉完全处理不了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
