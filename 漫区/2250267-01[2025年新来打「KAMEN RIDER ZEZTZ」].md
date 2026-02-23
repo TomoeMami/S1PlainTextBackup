@@ -750,3 +750,11 @@ QE_P2Y]~8U4(GVBQ}TL0MH2.jpg
 
 <img src="https://img.stage1st.com/forum/202602/23/114829f009ma0oodiqqz9n.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  法拉  
+##### 746#       发表于 2026-2-23 12:59
+
+感觉哥哥不一定是在谜语，可能他似前说的就是字面意思
+
