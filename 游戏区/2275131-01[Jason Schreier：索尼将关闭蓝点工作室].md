@@ -838,3 +838,13 @@ tfb是分拆，ip归微软，两者签合作，tfb自主运营，拿销售分成
 到底哪个游戏给Sony灌了**啊，PS4时代满地都是的电影化游戏还挺成功的，PS5一转All in GAAS后拿出来的都是 ...</blockquote>
 Genshin Impact
 
+
+*****
+
+####  clover293  
+##### 83#       发表于 2026-2-23 15:53
+
+其实蓝点基本上都是在薅日本组的遗产，但日本组的遗产本来也没多少能薅的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+唯一可惜是没把ICO重制了
+
