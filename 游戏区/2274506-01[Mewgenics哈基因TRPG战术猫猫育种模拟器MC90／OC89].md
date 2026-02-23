@@ -2866,3 +2866,18 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 沙漠别带太低速的吧，我感觉有几个图的出生点特别不友好。腐尸和赏金猎人这种都很吃速度跑过去，纯近战或 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">灵能应该还没解锁吧
 
+
+*****
+
+####  harry3  
+##### 232#       发表于 2026-2-23 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69221219&amp;ptid=2274506" target="_blank">魂淡放我出去 发表于 2026-2-23 12:30</a>
+
+沙漠是不是得等育种搞好了再去才行？
+
+刚过第一幕，没怎么挑猫就去打沙漠，碰上要多段攻击的苍蝇群和会复活 ...</blockquote>
+可以用死灵代替坦克，死灵也是自回T，而且有无限0费尸体爆炸法术，morana确实初见强度挺高的，
+
+多段攻击靠猎爹，这个是提示后面的图也需要多段攻击
+
