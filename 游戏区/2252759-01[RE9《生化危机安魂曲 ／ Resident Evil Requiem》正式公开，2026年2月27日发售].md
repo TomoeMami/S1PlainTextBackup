@@ -1422,3 +1422,12 @@ PC版，这次有路径追踪
 大街上还有事发当时的报纸呢……什么纸和油墨风吹日晒雨淋30年还能看清字，这专利费先赚他个20年<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 搞得跟庞贝古城似的
 
+
+*****
+
+####  u2deack  
+##### 753#       发表于 2026-2-23 20:02
+
+已经买了steam豪华版了反正开小黄鸭deck应该也能玩，不行就用电脑吧
+不想等ns2的卡带了
+
