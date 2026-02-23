@@ -827,3 +827,14 @@ tfb是分拆，ip归微软，两者签合作，tfb自主运营，拿销售分成
 tfb是分拆，ip归微软，两者签合作，tfb自主运营，拿销售分成，有点像外包了 ...</blockquote>
 感觉蓝点应该只能第二种，感觉挺好的，这不就是以前，蓝点大部分项目不也是ip在索尼然后索尼出钱，他就接活打工吗，索尼不用管工作室花钱养员工
 
+
+*****
+
+####  riin2  
+##### 82#       发表于 2026-2-23 14:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69209254&amp;ptid=2275131" target="_blank">泰坦失足 发表于 2026-2-20 03:41</a>
+
+到底哪个游戏给Sony灌了**啊，PS4时代满地都是的电影化游戏还挺成功的，PS5一转All in GAAS后拿出来的都是 ...</blockquote>
+Genshin Impact
+
