@@ -1453,3 +1453,16 @@ PS5电子版要518港币
 
 实体版是多少钱 有快发的吗<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  任天索尼子  
+##### 756#       发表于 2026-2-23 22:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69223270&amp;ptid=2252759" target="_blank">Mikumiku831 发表于 2026-2-23 21:29</a>
+
+PS5电子版要518港币 
+
+实体版是多少钱 有快发的吗</blockquote>
+因为没有百亿补贴 实体大概是400多
+
