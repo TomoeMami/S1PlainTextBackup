@@ -1338,3 +1338,18 @@ b站随便搜一下很多吧
 
 有偷跑了？
 
+
+*****
+
+####  eilot  
+##### 746#       发表于 2026-2-23 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69221032&amp;ptid=2252759" target="_blank">乔迪奥 发表于 2026-2-23 11:41</a>
+
+被核弹炸过之后，黄色胶带还是全新闪亮，油纸包里的黄胶带</blockquote>
+基本上已經吃書了
+
+不再是核彈，
+
+而且也提到市外市內不少地區甚至RPD內，都曾經BSAA也有另外派人進駐，否則LEON也沒法購物，市外更築了牆
+
