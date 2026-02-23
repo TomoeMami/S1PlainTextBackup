@@ -222,3 +222,13 @@ FSF第八集最后和下一集大致剧情概括.jpg
 说起来这部的漫画画完了吗，前阵子想去补漫画，但是tachi上好几个图源都只到22年没搜到最新的，有无好心人 ...</blockquote>
 没有，动画的进度已经超过森井的漫画了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 1038#       发表于 2026-2-23 20:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69222961&amp;ptid=2086574" target="_blank">scorbian 发表于 2026-2-23 20:12</a>
+说起来这部的漫画画完了吗，前阵子想去补漫画，但是tachi上好几个图源都只到22年没搜到最新的，有无好心人 ...</blockquote>
+漫画只是一小部分
+
