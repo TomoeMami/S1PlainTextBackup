@@ -154,3 +154,22 @@
 山口这b还要加码<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 不如这样您去写来打吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AAAZZZWWW  
+##### 441#       发表于 2026-2-23 16:58
+
+突击龙兽拿着忠犬剧本实惨，最后这下不会被火龙果大人给打回幼年期吧<img src="https://static.stage1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
+*****
+
+####  零崎不识  
+##### 442#       发表于 2026-2-23 17:01
+
+感觉这片后面剧情别暴走的话，怎么也是佳作了，目前剧情控制都不错，20集了还在好好讲故事，无非和1-6部核心侧重不一样了而已
+
+战策小队的事希望大概25集左右能阶段性结束
+
+35话前搞定五行星的事，最后十几话整点儿大活儿，我觉得差不多了
+
