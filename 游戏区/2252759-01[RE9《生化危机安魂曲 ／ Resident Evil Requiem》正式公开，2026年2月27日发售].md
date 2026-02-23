@@ -1400,3 +1400,25 @@ PC版，这次有路径追踪
 
 泄露了一个女主被丧尸活活砍下肩膀死亡动画 带劲
 
+
+*****
+
+####  kalavinka  
+##### 751#       发表于 2026-2-23 19:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69218417&amp;ptid=2252759" target="_blank">IRIS虹 发表于 2026-2-22 17:59</a>
+各位都打算买什么版本的？有点心动NS2版本
+
+—— 来自 realme RMX3800, Android 15, 鹅球 v3.5.99 ...</blockquote>
+我是ns2上买了 steam等出黄金版骨折了再玩一遍高清的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cangyuyao  
+##### 752#       发表于 2026-2-23 19:44
+
+大街上还有事发当时的报纸呢……什么纸和油墨风吹日晒雨淋30年还能看清字，这专利费先赚他个20年<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+搞得跟庞贝古城似的
+
