@@ -2815,3 +2815,18 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  魂淡放我出去  
+##### 228#       发表于 2026-2-23 12:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69221288&amp;ptid=2274506" target="_blank">Awanano 发表于 2026-2-23 12:45</a>
+你可以挑在基地里的雨天出，雨天战斗后可以回血，身上带的水瓶会补上
+其他天气带个水瓶一般是够的，找会 ...</blockquote>
+第一次出门就误打误撞正好碰上雨天了，所以回血倒没成问题
+
+问题是怪处理不了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
