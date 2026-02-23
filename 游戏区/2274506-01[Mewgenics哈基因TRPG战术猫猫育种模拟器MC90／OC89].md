@@ -2881,3 +2881,11 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 
 多段攻击靠猎爹，这个是提示后面的图也需要多段攻击
 
+
+*****
+
+####  魂淡放我出去  
+##### 233#       发表于 2026-2-23 18:54
+
+感谢各位，等我去第一幕捞点好一点的装备再来试试沙漠吧，被锤得不知东西南北<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
