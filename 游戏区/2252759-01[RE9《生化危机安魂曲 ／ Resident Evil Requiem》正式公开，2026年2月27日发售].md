@@ -1554,3 +1554,13 @@ PS5电子版要518港币
 
 看了点偷跑，感觉场景敌人用过去素材太多，流程如果又短的话这次首发感觉又要当卡婊冤大头了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 766#       发表于 2026-2-24 14:50
+
+偷跑流程说长肯定不算长，初期城市和旅馆可以说算不上地图，都是走几步进剧情了，地下研究所到通关也很短，配上看剧情2个小时不到
+
+主要是疗养院和浣熊市了，感觉像优化版的RE2，一次过就跑了里昂和克莱尔的线，然后场景不像RE2那么复用，虽然怪物复用了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
