@@ -608,3 +608,31 @@ best seller in Science Fiction Erotica</blockquote>
 
 就是如此的自由
 
+
+*****
+
+####  鳄鱼亮爪  
+##### 56#       发表于 2026-2-24 10:31
+
+ 本帖最后由 鳄鱼亮爪 于 2026-2-24 10:34 编辑 
+<blockquote>千千千千鸟 发表于 2026-2-24 10:23
+讲实在的这方面确实不好对比，个人觉得哪怕是大众审美，对于雄性兽人，全野兽化的脑袋的接受度都是不低的 ...</blockquote>
+没有啊
+
+一个是自己扮演兽脸，伴侣是美人
+
+一个是自己扮演美人，伴侣是兽脸
+
+这两种差别不是很明显吗
+
+（没有说谁是大众的意思，只是表达这两种情况不一样，并不是读者性别互换就是同类的情况）
+
+*****
+
+####  KDConan  
+##### 57#       发表于 2026-2-24 10:35
+
+那么science的部分就是这个牛奶么<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
