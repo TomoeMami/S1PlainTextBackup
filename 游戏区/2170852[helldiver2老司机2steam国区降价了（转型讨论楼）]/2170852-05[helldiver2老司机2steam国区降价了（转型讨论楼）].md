@@ -714,3 +714,80 @@
 根本原因还是从一代继承过来的系统太过时了，人多了反而没法组织有效进攻。次要原因是政令不通，各部不知道该往哪打一窝蜂聚集。三是奖惩不分，只有一个模糊的主命令，还是你去不去打都能拿到奖励。
 真参与玩rp的玩不够，一步步深入打进去没什么奖励，不玩剧情瞎打的天天在那乔尔大手然后奖励一分也没少拿。
 
+
+*****
+
+####  踩水看月亮  
+##### 7384#       发表于 2026-2-22 07:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69216042&amp;ptid=2170852" target="_blank">FLZB 发表于 2026-2-22 00:21</a>
+
+鬼佬也差不多，刚开打就在骂了。只能说这次虽然败北，但从此以后可以名正言顺的骂混子和胡闹潜兵了 ...</blockquote>
+SB鬼佬是最没有资格骂的，天天背什么重机枪类星体弹链榴弹激光狗进图的傻叉，至少一半增援是被这帮低能洋人消耗完的
+
+*****
+
+####  xinfengj  
+##### 7385#       发表于 2026-2-24 05:35
+
+<img src="https://p.sda1.dev/31/7df1a990a5b937605858513e18df0dae/CMP_20260224053415403.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/29a656a2c79081054cc7c57286b63f71/CMP_20260224053415443.png" referrerpolicy="no-referrer">
+
+对的对的对的，重现开头宣传片的一幕
+
+*****
+
+####  当光停止  
+##### 7386#       发表于 2026-2-24 09:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">仁仁仁打得不想碰近战act类型了，来专楼问问，现在老司机2好入门吗？要是对打枪苦手的彩笔压力不大的话，想入个。
+
+*****
+
+####  ParadiseMartyr  
+##### 7387#       发表于 2026-2-24 10:38
+
+ 本帖最后由 ParadiseMartyr 于 2026-2-24 10:40 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69224596&amp;ptid=2170852" target="_blank">当光停止 发表于 2026-2-24 09:56</a>
+仁仁仁打得不想碰近战act类型了，来专楼问问，现在老司机2好入门吗？要是对打枪苦手的彩笔压力不大的话，想 ...</blockquote>
+不大，玩爆炸类武器就行，擦到敌人就是全额伤害
+你非要玩什么大狙，半自动，那确实可能需要点枪法。但是事实上由于是PVE枪法次一点也能玩。
+还有就是重型精英敌人可能需要点准头打致命部位，不过相比于PvP射击游戏还是简单很多的，毕竟笨逼电脑的走位还是比较好判断的
+现在刚好是长草期，你入坑随便玩。
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  赤井稻妻  
+##### 7388#       发表于 2026-2-24 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69224596&amp;ptid=2170852" target="_blank">当光停止 发表于 2026-2-24 09:56</a>
+
+仁仁仁打得不想碰近战act类型了，来专楼问问，现在老司机2好入门吗？要是对打枪苦手的彩笔压力不大的话，想 ...</blockquote>
+这游戏基本和打枪关系不大，多人部分也不需要什么有意识的合作或者社交之类的，只要你别有意识pvp就行
+
+所谓的星际战争也只是个箭头给大家讲故事丰富超级地球世界观的东西，因为玩家社区能左右的东西终究还是比较有限，与其说玩家主导战争走向，不如说是让全体玩家来选择选项的大型旮旯给木
+
+*****
+
+####  FLZB  
+##### 7389#       发表于 2026-2-24 17:03
+
+原来改装配件有一个隐藏的晃动（负）加成，阴得没边<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202602/24/165758qrklvwbt263llzz5.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (33.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-24 16:57 上传
+
+<img src="https://img.stage1st.com/forum/202602/24/170253a33zwgfw19933qwf.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (29.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-24 17:02 上传
+
