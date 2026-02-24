@@ -675,3 +675,11 @@ Google Threat Intelligence Group
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">a/是这样的，closed ai比起来都眉清目秀的
 
+
+*****
+
+####  onezeron  
+##### 59#       发表于 2026-2-24 16:26
+
+我严重怀疑这个b当年在百度的时候李彦宏干过**，不然就算正常反华也不至于这么恨
+
