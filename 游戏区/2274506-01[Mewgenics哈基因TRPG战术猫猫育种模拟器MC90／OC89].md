@@ -2945,3 +2945,15 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">房间解锁我是真想叮了，这数量要求也太夸张了吧
 
+
+*****
+
+####  da2008  
+##### 239#       发表于 2026-2-25 00:36
+
+曾经我以为弱智战士和标记射手很强了，直到我找到了智商超群的武僧
+
+擦E胖一定是抄5e的武僧吧，怎么能强成这样，做做操就能打翻全场
+
+甚至不需要装备，省心省力
+
