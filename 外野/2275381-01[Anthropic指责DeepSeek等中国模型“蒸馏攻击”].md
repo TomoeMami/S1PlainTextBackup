@@ -803,3 +803,21 @@ https://www.reddit.com/r/DeepSeek/s/6xt1PX9P8v
 
 卖过钩子
 
+
+*****
+
+####  万恶淫猥手  
+##### 72#       发表于 2026-2-24 19:51
+
+ 本帖最后由 万恶淫猥手 于 2026-2-24 19:53 编辑 
+
+抓取了一下 6000 条评论数据的分析结果如下<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202602/24/195101mk0h2o600ox5zkok.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>HB6e9dwa4AE9lGE.jpeg</strong> (90.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-24 19:51 上传
+
