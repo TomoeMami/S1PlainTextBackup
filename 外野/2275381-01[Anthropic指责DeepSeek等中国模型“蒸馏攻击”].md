@@ -550,3 +550,14 @@ ds也是一种反a雅士
 
 这也算是一种信息污染了。只要把这个印象散播出去，不管你研发了多少还有人觉得这是抄的。
 
+
+*****
+
+####  林无德  
+##### 47#       发表于 2026-2-24 14:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69225978&amp;ptid=2275381" target="_blank">飛霞精灵 发表于 2026-2-24 14:10</a>
+
+这也算是一种信息污染了。只要把这个印象散播出去，不管你研发了多少还有人觉得这是抄的。 ...</blockquote>
+又不是头一回了，so what<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
