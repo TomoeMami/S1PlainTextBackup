@@ -738,3 +738,18 @@ best seller in Science Fiction Erotica</blockquote>
 你别说，代入牛牛视角也挺带感的</blockquote>
 代入牛牛的视角就是人类都是榨精魅魔<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  心灵的乳头  
+##### 66#       发表于 2026-2-24 11:43
+
+可能人类女的手比母牛蹄子灵活吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cqduoluo  
+##### 67#       发表于 2026-2-24 11:47
+
+这种情节感觉就是很原始的巨·阳·具崇拜。
+
