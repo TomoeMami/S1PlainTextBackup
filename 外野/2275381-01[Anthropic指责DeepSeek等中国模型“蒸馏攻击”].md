@@ -784,3 +784,14 @@ https://www.reddit.com/r/DeepSeek/s/6xt1PX9P8v
 
 所以智谱（GLM5)不靠蒸馏claude系列就能达到很强的agentic coding能力？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">属于是有点意外了。
 
+
+*****
+
+####  万恶淫猥手  
+##### 70#       发表于 2026-2-24 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69227204&amp;ptid=2275381" target="_blank">羊寢 发表于 2026-2-24 17:41</a>
+
+正常，玩ai写刘备的都有一群恨国蛆把克劳德吹上天还不准别人在自己地盘上提国模呢 ...</blockquote>
+你别说，GLM-5 是真到我点子上了，OpenRouter匿名测试的时候，爽用
+
