@@ -636,3 +636,34 @@ ds也是一种反a雅士
 
 —— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
 
+
+*****
+
+####  ljj1209  
+##### 55#       发表于 2026-2-24 15:55
+
+如果anthropic作为闭源盈利模型公司，所有训练数据都是有合法版权的，那我就承认他有指责开源模型蒸馏它模型的权利<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  gammatau  
+##### 56#       发表于 2026-2-24 16:02
+
+GTIG AI Threat Tracker: Distillation, Experimentation, and (Continued) Integration of AI for Adversarial Use
+
+February 13, 2026
+
+Google Threat Intelligence Group
+
+我就说眼熟，过节前谷歌早就跳出来哈气过一轮了，类人公司造谣骂人都赶不上热的
+
+*****
+
+####  磁场颠佬  
+##### 57#       发表于 2026-2-24 16:05
+
+有用的啊，一发声就可以给殖人提供弹药污染中文互联网啊
+
