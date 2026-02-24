@@ -718,3 +718,52 @@ https://www.reddit.com/r/DeepSeek/s/6xt1PX9P8v
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  sandro  
+##### 63#       发表于 2026-2-24 17:38
+
+说实话，我至今没见过不吹claude骂国内ai的国内码农
+
+*****
+
+####  schneehertz  
+##### 64#       发表于 2026-2-24 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69227192&amp;ptid=2275381" target="_blank">sandro 发表于 2026-2-24 17:38</a>
+说实话，我至今没见过不吹claude骂国内ai的国内码农</blockquote>
+那你孤陋寡闻了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  羊寢  
+##### 65#       发表于 2026-2-24 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69227192&amp;ptid=2275381" target="_blank">sandro 发表于 2026-2-24 17:38</a>
+说实话，我至今没见过不吹claude骂国内ai的国内码农</blockquote>
+正常，玩ai写刘备的都有一群恨国蛆把克劳德吹上天还不准别人在自己地盘上提国模呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  希德尼娅  
+##### 66#       发表于 2026-2-24 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69224788&amp;ptid=2275381" target="_blank">Lokad 发表于 2026-2-24 10:26</a>
+禁止商业途径完全闭源即可，克劳德本身就禁止这边的ip使用，禁止商业使用完全闭源就能杜绝蒸馏了。 ...</blockquote>
+禁止商业使用什么鬼
+
+*****
+
+####  eblis2  
+##### 67#       发表于 2026-2-24 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69227192&amp;ptid=2275381" target="_blank">sandro 发表于 2026-2-24 17:38</a>
+说实话，我至今没见过不吹claude骂国内ai的国内码农</blockquote>
+那得考虑一下是不是圈子问题了
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
