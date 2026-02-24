@@ -167,3 +167,20 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Hominidae  
+##### 1242#       发表于 2026-2-24 16:29
+
+ 本帖最后由 Hominidae 于 2026-2-24 16:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69224730&amp;ptid=2120922" target="_blank">imba419 发表于 2026-2-24 10:16</a>
+就我玩这一两个月来看 玩命推主线 抽爹箱 到手后 抽黑兽池 别看错了抽成鸿璐池 碎片换本赛季的就行 ...</blockquote>
+感觉不如等下周周年活动签到的人格自选和2500狂的自选……鸿园池子0.12%的人格up概率也不是多高，上赛季血魔池子坠机的就不少。
+
+或者设定一个目标抽到哪些人格里面一两个就收手
+
+爹箱也能换，感觉没啥好抽的，除非不刷牢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
