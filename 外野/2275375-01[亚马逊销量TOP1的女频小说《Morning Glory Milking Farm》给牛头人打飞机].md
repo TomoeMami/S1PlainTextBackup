@@ -715,3 +715,26 @@ best seller in Science Fiction Erotica</blockquote>
 根据女⭕️的一大类行为逻辑是模仿男性行为的理论，我觉得有理由相信这玩意是套黄毛+异种族刘备模板再性转 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">再性转一下不就是黄毛牛奶牛娘，而且产奶是媚药，好像也没什么值得大惊小怪的
 
+
+*****
+
+####  鳄鱼亮爪  
+##### 64#       发表于 2026-2-24 10:51
+
+<blockquote>七千星 发表于 2026-2-24 10:47
+再性转一下不就是黄毛牛奶牛娘，而且产奶是媚药，好像也没什么值得大惊小怪的 ...</blockquote>
+怎么可能，这可是牛头牛脸的牛娘
+
+没有表达谁更大众的意思，只是表达这并不是性别互换就是同类的情况
+
+
+*****
+
+####  yanghuangu  
+##### 65#       发表于 2026-2-24 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69223801&amp;ptid=2275375" target="_blank">飛霞精灵 发表于 2026-2-24 00:25</a>
+
+你别说，代入牛牛视角也挺带感的</blockquote>
+代入牛牛的视角就是人类都是榨精魅魔<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

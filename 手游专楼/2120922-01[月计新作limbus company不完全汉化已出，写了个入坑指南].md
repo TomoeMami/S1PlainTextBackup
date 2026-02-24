@@ -124,3 +124,18 @@
 
 目前打到第三章，感觉剧情劲不够大啊
 
+
+*****
+
+####  菟原手兒奈  
+##### 1239#       发表于 2026-2-24 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69224916&amp;ptid=2120922" target="_blank">嘿等等 发表于 2026-2-24 10:46</a>
+买了个多石号，没看清周年送的东西，井了兔浮和家主，还抽了食指
+
+目前打到第三章，感觉剧情劲不够大啊 ...</blockquote>
+前三章比较平庸，第四章有所改观，第五章开始发力
+第四章坊间评价也不错但是有点冗长了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
