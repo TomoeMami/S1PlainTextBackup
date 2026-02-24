@@ -821,3 +821,13 @@ https://www.reddit.com/r/DeepSeek/s/6xt1PX9P8v
 
 2026-2-24 19:51 上传
 
+
+*****
+
+####  灰流うらら  
+##### 73#       发表于 2026-2-24 20:03
+
+艳红究竟对他做了什么整出这么大ptsd<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
