@@ -788,3 +788,16 @@ QE_P2Y]~8U4(GVBQ}TL0MH2.jpg
 
 2026-2-24 06:35 上传
 
+
+*****
+
+####  黑上シグマ  
+##### 749#       发表于 2026-2-24 08:24
+
+<blockquote>引用第747楼王九的哥哥于2026-02-24 06:35发表的  :
+
+看到说预告里有川平慈英跑去重新看了一遍，发现是侧脸所以一发没认出来……楽天カードマン的印象太牢固了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">「なななんと、8000ポイントプレゼント！」
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
