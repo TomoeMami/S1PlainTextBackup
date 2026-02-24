@@ -443,3 +443,14 @@ zack2012 发表于 2026-2-24 16:42
 
 结果令我大吃一惊<img src="https://static.stage1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">，整个开发期间AI都在刷新我的三观。开发工期也大幅缩短，要以前，没个半年搞不定，现在用AI差不多一周就做的差不多了。
 
+
+*****
+
+####  万恶淫猥手  
+##### 45#       发表于 2026-2-24 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69227919&amp;ptid=2275392" target="_blank">赛肯特布拉泽 发表于 2026-2-24 20:22</a>
+
+借楼问一下怎么订阅token最划算啊，上个月刚配了opencode，用的openrouter中转的api ，爽是真爽，贵是真贵 ...</blockquote>
+国内模型你可以考虑买个火山或者阿里云的 Coding Plan 省事
+

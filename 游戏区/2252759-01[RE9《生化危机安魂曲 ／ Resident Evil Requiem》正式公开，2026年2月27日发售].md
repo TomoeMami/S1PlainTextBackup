@@ -1637,3 +1637,14 @@ PS5电子版要518港币
 感觉不好说，前两天re4刚有国内玩家破了里昂线专家通关记录，1小时49分无邪道 ...</blockquote>
 这是初见啊，完全没细节和路线规划可言，re4都发售多久了才卷到这个成绩的。
 
+
+*****
+
+####  lighttt  
+##### 774#       发表于 2026-2-24 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69227312&amp;ptid=2252759" target="_blank">大厨麦当牛 发表于 2026-2-24 18:04</a>
+
+已经有简单难度只用handgun3小时40分钟通关的视频了，感觉流程还是短了点，4re还是太难超越了。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那只能等永降打折了
+
