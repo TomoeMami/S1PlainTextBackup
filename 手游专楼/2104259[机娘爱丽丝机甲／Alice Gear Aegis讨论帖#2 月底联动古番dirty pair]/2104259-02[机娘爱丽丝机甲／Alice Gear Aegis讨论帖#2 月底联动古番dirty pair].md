@@ -86,3 +86,14 @@ EX语音（人物是金色框）目前就蓝奈有，直播的时候说过因为
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没钱找配音了（
 
+
+*****
+
+####  江戸前ルナ  
+##### 1932#         楼主| 发表于 2026-2-24 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69226457&amp;ptid=2104259" target="_blank">astrayl 发表于 2026-2-24 15:34</a>
+
+所以这个安藤为什么又没有金框了，奇怪的设定</blockquote>
+安藤因为本身就是因为人气而加模型和配音的NPC角色，现在加到支援里可以直接用语音不用急着专门录啊（
+
