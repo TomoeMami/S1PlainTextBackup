@@ -1525,3 +1525,14 @@ PS5电子版要518港币
 墨策昨天就发货了
 <img src="https://p.sda1.dev/31/fb32ddc8e879706e51ae9e31a9116045/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangfanel  
+##### 763#       发表于 2026-2-24 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69225119&amp;ptid=2252759" target="_blank">oahcihs 发表于 2026-2-24 11:14</a>
+
+墨策昨天就发货了</blockquote>
+看了一眼，我得NS版还没有发，急急急
+
