@@ -767,3 +767,20 @@ https://www.reddit.com/r/DeepSeek/s/6xt1PX9P8v
 
 —— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  西瓜不甜不甜  
+##### 68#       发表于 2026-2-24 17:48
+
+他家产品在某一段时间确实还可以，审美也还行。但他家老板反华的态度确实是令人迷惑，考虑到之前在百度工作过，真的很难不八卦他到底经历了什么。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ayanamilin  
+##### 69#       发表于 2026-2-24 17:50
+
+所以智谱（GLM5)不靠蒸馏claude系列就能达到很强的agentic coding能力？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">属于是有点意外了。
+
