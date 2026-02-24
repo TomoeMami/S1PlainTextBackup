@@ -533,3 +533,22 @@ best seller in Science Fiction Erotica</blockquote>
 
 默默祈祷明天一觉醒来能穿越到一个给魔物娘牧场的奶牛娘榨乳故事得到了好莱坞改编的世界线
 
+
+*****
+
+####  RPMWT  
+##### 51#       发表于 2026-2-24 10:14
+
+哪怕在日本，魔物娘也算小众XP啊，只是贴个兽耳和尾巴那种可不算魔物娘哦
+
+*****
+
+####  vviosonia  
+##### 52#       发表于 2026-2-24 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69223844&amp;ptid=2275375" target="_blank">夜光铃 发表于 2026-2-24 00:45</a>
+外国人也这么性压抑吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">宙斯的性癖不就是变成动物跟各路人类妹子OOXX
+
+—— 来自 samsung SM-S9080, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
