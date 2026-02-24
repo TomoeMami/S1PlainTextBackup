@@ -103,3 +103,14 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  imba419  
+##### 1237#       发表于 2026-2-24 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69215670&amp;ptid=2120922" target="_blank">嘿等等 发表于 2026-2-21 21:52</a>
+
+下载好了，过了新手教程，问下需不需要买初始号？有没有强度教程之类的</blockquote>
+就我玩这一两个月来看 玩命推主线 抽爹箱 到手后 抽黑兽池 别看错了抽成鸿璐池 碎片换本赛季的就行
+
