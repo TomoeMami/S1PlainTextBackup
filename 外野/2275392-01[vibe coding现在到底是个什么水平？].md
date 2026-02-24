@@ -421,3 +421,13 @@ zack2012 发表于 2026-2-24 16:42
 
 我更加好奇的是能不能兼容识别一些自封组件的拖拉拽的java-eclipse项目。。。之前遇到几次用httpclient封装的拖拉拽组件，代码倒不用写，就是天天在ide里拖来拖去以及写工作流
 
+
+*****
+
+####  赛肯特布拉泽  
+##### 43#       发表于 2026-2-24 20:22
+
+借楼问一下怎么订阅token最划算啊，上个月刚配了opencode，用的openrouter中转的api ，爽是真爽，贵是真贵，之前用的比较多的都是Gemini 3 pro、gpt5.2和Claude 4.5御三家，也用过GLM5感觉也不错
+
+—— 来自 OPPO PKJ110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
