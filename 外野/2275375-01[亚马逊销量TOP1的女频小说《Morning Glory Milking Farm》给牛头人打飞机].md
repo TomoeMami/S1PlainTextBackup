@@ -636,3 +636,82 @@ best seller in Science Fiction Erotica</blockquote>
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  52756901  
+##### 58#       发表于 2026-2-24 10:37
+
+大惊小怪
+
+昨天还在e-hentai上看了一篇日本人的异种奸漫画
+
+女主放弃了给他提供稳定实物的雄壮异形，去跟一只快要死的畸形残废异形OOXX并给它生下了新的异形，然后这只异形是个巨婴宅男每天挂在女主身上OOXX她，最绝的是结尾的时候女主收到了前夫异形不知道什么时候给女主留下的食物得以苟延残喘。
+
+主楼这什么香草小说
+
+*****
+
+####  盲目者  
+##### 59#       发表于 2026-2-24 10:39
+
+一本催人泪下的言情小说：牛奶情缘
+
+—— 来自 Xiaomi 23078RKD5C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  千千千千鸟  
+##### 60#       发表于 2026-2-24 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69224816&amp;ptid=2275375" target="_blank">鳄鱼亮爪 发表于 2026-2-24 10:31</a>
+
+没有啊
+
+一个是自己扮演兽脸，伴侣是美人
+
+一个是自己扮演美人，伴侣是兽脸</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">两种情况都建立在兽脸和美人都让人觉得好看的基础上吧。以女性视角看兽脸就是帅哥呗。不太恰当的类比，就像女人看大奶会骂说畸形丑陋，而男人觉得很美丽。在这个案例里甚至男性也不觉得兽脸多丑。
+
+
+*****
+
+####  鳄鱼亮爪  
+##### 61#       发表于 2026-2-24 10:45
+
+ 本帖最后由 鳄鱼亮爪 于 2026-2-24 10:48 编辑 
+<blockquote>千千千千鸟 发表于 2026-2-24 10:39
+两种情况都建立在兽脸和美人都让人觉得好看的基础上吧。以女性视角看兽脸就是帅哥呗。不太恰当的类比，就 ...</blockquote>
+
+没有啊，假设全世界人都欣赏兽脸，也分可以和不可以两种人啊
+
+喜欢猫脸的人都想入猫吗？对吧。这是两种爱好。（没有表达谁更大众的意思，只是表达这并不是性别互换就是同类的情况）
+
+*****
+
+####  EliLillyCo  
+##### 62#       发表于 2026-2-24 10:47
+
+营销号说啥你们就信啥？亚马逊图书的女频是什么玩意儿？？？？
+
+脑瘫知乎营销号嗯编你们也信啊
+
+|这本书排名第一的那个榜叫“science erotica（科幻情|色|小|说）”, 完全就是细分品类中的再细分，这个词是怎么和“女频”划等号的？|
+[https://www.amazon.com/Best-Sell ... g_bs_nav_books_2_17](https://www.amazon.com/Best-Sellers-Books-Erotic-Literature-Fiction/zgbs/books/10141/ref=zg_bs_nav_books_2_17)
+
+好歹点到Literature &amp; Fiction这个大类再看看呢
+
+[https://www.amazon.com/Best-Sell ... unv_books_2_10141_1](https://www.amazon.com/Best-Sellers-Books-Literature-Fiction/zgbs/books/17/ref=zg_bs_unv_books_2_10141_1)
+
+看到一群人就因为这个辩论我都觉得好笑
+
+*****
+
+####  七千星  
+##### 63#       发表于 2026-2-24 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69223577&amp;ptid=2275375" target="_blank">TuzDoDez 发表于 2026-2-23 23:04</a>
+
+根据女⭕️的一大类行为逻辑是模仿男性行为的理论，我觉得有理由相信这玩意是套黄毛+异种族刘备模板再性转 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">再性转一下不就是黄毛牛奶牛娘，而且产奶是媚药，好像也没什么值得大惊小怪的
+
