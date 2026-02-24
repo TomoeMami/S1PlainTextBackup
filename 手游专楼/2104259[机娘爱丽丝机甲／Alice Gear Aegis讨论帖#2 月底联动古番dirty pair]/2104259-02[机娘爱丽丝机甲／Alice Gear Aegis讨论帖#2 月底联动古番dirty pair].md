@@ -78,3 +78,11 @@ EX语音（人物是金色框）目前就蓝奈有，直播的时候说过因为
 
 所以这个安藤为什么又没有金框了，奇怪的设定
 
+
+*****
+
+####  madcow  
+##### 1931#       发表于 2026-2-24 16:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没钱找配音了（
+

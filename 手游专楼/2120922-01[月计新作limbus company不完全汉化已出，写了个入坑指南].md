@@ -139,3 +139,31 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Hominidae  
+##### 1240#       发表于 2026-2-24 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69224916&amp;ptid=2120922" target="_blank">嘿等等 发表于 2026-2-24 10:46</a>
+买了个多石号，没看清周年送的东西，井了兔浮和家主，还抽了食指
+
+目前打到第三章，感觉剧情劲不够大啊 ...</blockquote>
+前三章是这样，第一赛季的剧情挺一般的，这几个人的故事也没讲完，明显留了扣子。
+从第四章（第二赛季）开始往后一赛季一章的节奏剧情就开始发力了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Hominidae  
+##### 1241#       发表于 2026-2-24 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69224965&amp;ptid=2120922" target="_blank">菟原手兒奈 发表于 2026-2-24 10:53</a>
+前三章比较平庸，第四章有所改观，第五章开始发力
+第四章坊间评价也不错但是有点冗长了</blockquote>
+最后的迷宫太长了<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">剧情不赖，纯打的累
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
