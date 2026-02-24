@@ -854,3 +854,14 @@ https://www.reddit.com/r/DeepSeek/s/6xt1PX9P8v
 结合那个沟子贴，很难不怀疑</blockquote>
 艳红和他谁爆谁啊
 
+
+*****
+
+####  Lokad  
+##### 76#       发表于 2026-2-24 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69227222&amp;ptid=2275381" target="_blank">希德尼娅 发表于 2026-2-24 17:44</a>
+
+禁止商业使用什么鬼</blockquote>
+闭门训练、不再提供模型给别人用直到AGI出世谁能蒸馏它的模型
+
