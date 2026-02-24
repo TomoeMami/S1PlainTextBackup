@@ -442,3 +442,75 @@ best seller in Science Fiction Erotica</blockquote>
 与其说是对老米有不正确的滤镜，不如说是对女性有错误的滤镜，国内那些女作者写的重口内容照样比男作者更离 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当年ao3上看洋妞写的腐女文的时候都是地铁老人手机
 
+
+*****
+
+####  Promeus  
+##### 45#       发表于 2026-2-24 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69224388&amp;ptid=2275375" target="_blank">シャル 发表于 2026-2-24 09:18</a>
+但是没有男人干牛头人的啊
+
+干哥布林的也基本跟看不到</blockquote>
+但是看牛头人猪**人哥布林搞女人的多啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 46#         楼主| 发表于 2026-2-24 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69223882&amp;ptid=2275375" target="_blank">agsva 发表于 2026-2-24 01:06</a>
+
+这玩意儿是“科幻皇叔”销量第一</blockquote>
+标题不用改，确实是亚马逊销量TOP1的女频小说。
+
+
+*****
+
+####  summerfish  
+##### 47#       发表于 2026-2-24 09:52
+
+欧美好像真的很喜欢furry
+
+*****
+
+####  哈利谢顿  
+##### 48#       发表于 2026-2-24 09:55
+
+<img src="https://img.stage1st.com/forum/202602/24/095508pqrrqqrtt9cqtt0t.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8883.jpeg</strong> (773.49 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-24 09:55 上传
+
+<img src="https://img.stage1st.com/forum/202602/24/095509g75ttl4qhqoilqm6.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8884.jpeg</strong> (696.61 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-24 09:55 上传
+
+<img src="https://img.stage1st.com/forum/202602/24/095510fphej2xpxexp2koq.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8885.jpeg</strong> (704.96 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-24 09:55 上传
+
+<img src="https://img.stage1st.com/forum/202602/24/095512wcdxi7atm0qoo7ea.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8886.jpeg</strong> (725.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-24 09:55 上传
+
