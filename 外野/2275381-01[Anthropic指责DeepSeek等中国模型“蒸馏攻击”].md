@@ -683,3 +683,28 @@ Google Threat Intelligence Group
 
 我严重怀疑这个b当年在百度的时候李彦宏干过**，不然就算正常反华也不至于这么恨
 
+
+*****
+
+####  mp5  
+##### 60#       发表于 2026-2-24 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69224246&amp;ptid=2275381" target="_blank">施人诚 发表于 2026-2-24 08:34</a>
+请问现在cladue遇到什么问题了吗？我看到的怎么都是说这个厂的AI很好用，编程能力很爆炸？ ...</blockquote>
+编程能力被国内开源模型追上了，所以就狗叫了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  煙雲靉靆  
+##### 61#       发表于 2026-2-24 16:45
+
+claude-sonnet-4-6的API在使用中文进行模型信息询问的情况下某些时候会回答自己是Deepseek
+
+https://x.com/i/status/2026130112685416881
+
+https://www.reddit.com/r/DeepSeek/s/6xt1PX9P8v
+
+<img src="https://p.sda1.dev/31/1334a0d7c178fbc6ead1b3f32da99a4c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/4b4ad50714c1243636d83a2f0c696eb5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/9b5b8c4ca270122fe063ba5f3f5cdb45/image.jpg" referrerpolicy="no-referrer">
+
