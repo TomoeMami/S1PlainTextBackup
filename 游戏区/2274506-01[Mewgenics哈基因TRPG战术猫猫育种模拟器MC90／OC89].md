@@ -2927,3 +2927,13 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 
 打到后面就不是个四个随机职业裸猫下本就能通关的游戏了。局外好累。
 
+
+*****
+
+####  bigraymond  
+##### 237#       发表于 2026-2-24 09:22
+
+养猫有点麻烦，假期后半叮了钱，不然加上跑刀估计真正推图的时间连四分之一都到不了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
