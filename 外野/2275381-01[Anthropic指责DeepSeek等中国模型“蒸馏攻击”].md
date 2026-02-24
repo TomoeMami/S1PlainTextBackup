@@ -583,3 +583,32 @@ ds也是一种反a雅士
 
 这次最串的还是马斯克，直接嘲讽Anthropic偷别人数据训练<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ななひら  
+##### 50#       发表于 2026-2-24 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69224674&amp;ptid=2275381" target="_blank">renious 发表于 2026-2-24 10:08</a>
+
+这事情能验证吗？比如国外不更新大版本，国内也将会停止更新大版本</blockquote>
+万一国外先不更新后国内还是更了怎么办<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gammatau  
+##### 51#       发表于 2026-2-24 15:09
+
+蒸馏“攻击”这用词真是把全世界关注ai的都逗乐了
+
+
+*****
+
+####  ROT  
+##### 52#       发表于 2026-2-24 15:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69225895&amp;ptid=2275381" target="_blank">万恶淫猥手 发表于 2026-2-24 13:50</a>
+
+你说的这个外网可能不包含简中和繁中圈</blockquote>
+还有英语圈的三哥。
+
