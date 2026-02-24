@@ -561,3 +561,25 @@ ds也是一种反a雅士
 这也算是一种信息污染了。只要把这个印象散播出去，不管你研发了多少还有人觉得这是抄的。 ...</blockquote>
 又不是头一回了，so what<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  亚瑟摩根  
+##### 48#       发表于 2026-2-24 14:37
+
+比起dario，altman真像一个人了
+
+要不是claude审美还在线，勾八是真不想给cc送钱了
+
+不过现在coding已经被codex干掉了
+
+等codex审美上去，估计也差不多了
+
+
+*****
+
+####  ayanamilin  
+##### 49#       发表于 2026-2-24 14:41
+
+这次最串的还是马斯克，直接嘲讽Anthropic偷别人数据训练<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
