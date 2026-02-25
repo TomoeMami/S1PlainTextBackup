@@ -4214,3 +4214,31 @@ blacksouls2启动，完了三个小时后的一系列想法和体验
 
 7.求问楔形石小碎片在哪里刷，赶紧把斩首大斧头升到+3再推图了
 
+
+*****
+
+####  检索者  
+##### 359#         楼主| 发表于 2026-2-25 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69228940&amp;ptid=1812121" target="_blank">三月的老虎 发表于 2026-2-25 00:46</a>
+
+blacksouls2启动，完了三个小时后的一系列想法和体验
+
+1.开局选择了母亲爱丽丝，我估计要三种爱丽丝都通关一 ...</blockquote>
+三爱丽丝选谁不影响真结局，按XP选就行，后面有地方可以随时重选方便刷不同结局
+
+战斗中可以换装备，所以多收集和强化武器还是挺有用的，强化石除了最高级的圆盘之外都能在鱼市找NPC买
+
+
+*****
+
+####  红魔馆的糖  
+##### 360#       发表于 2026-2-25 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69228940&amp;ptid=1812121" target="_blank">三月的老虎 发表于 2026-2-25 00:46</a>
+
+blacksouls2启动，完了三个小时后的一系列想法和体验
+
+1.开局选择了母亲爱丽丝，我估计要三种爱丽丝都通关一 ...</blockquote>
+其实这游戏只要在开局的城镇买一堆黄金酒就随便打了，狂化副作用基本为0，换来巨额攻击力。强化石在鱼市那边随便买
+
