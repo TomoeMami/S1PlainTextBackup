@@ -2107,3 +2107,44 @@ NS2版本7个评测90分，讲道理第一个同步的3A大作不应该盯着NS2
 
 除了6代外，卡表的生化非重制系列的质量不一直就和罐头游戏一样，四平八稳，没有大惊喜也没有大雷点。
 
+
+*****
+
+####  Cranberries  
+##### 818#       发表于 2026-2-26 00:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69233896&amp;ptid=2252759" target="_blank">hkguty 发表于 2026-2-25 23:25</a>
+
+额，本质8续作却不是8后续剧情？</blockquote>
+还真是8后续的剧情，毕竟生化都是跟着时间走的。
+
+*****
+
+####  yuanico  
+##### 819#       发表于 2026-2-26 00:25
+
+中规中矩的分数，反正自从6亏麻了以后，生化ip预算就这点，9为了fans满意已经是最高预算了。而且2、3、4的重置和9制作上都不是太顺利，都存在初期走偏的情况，目前这口碑很不错了。
+
+*****
+
+####  ShiKi847  
+##### 820#       发表于 2026-2-26 00:25
+
+感觉卡普空现在就像10年前的育碧，靠着re引擎这波红利量产流水线作品，永远不给够经费，社长扣的一笔，就看玩家啥时候厌倦他这套re流水线游戏了
+
+*****
+
+####  ff2077  
+##### 821#       发表于 2026-2-26 00:27
+
+每一部才10小时甚至没有的体量 如何厌倦<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  红魔馆的糖  
+##### 822#       发表于 2026-2-26 00:28
+
+厌倦个啥呀，这么多年过去了这套生化玩法依旧没有代餐，连喜欢打枪的欧美厂都做不明白，最后还是和怪猎一样一堆人抢着买<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
