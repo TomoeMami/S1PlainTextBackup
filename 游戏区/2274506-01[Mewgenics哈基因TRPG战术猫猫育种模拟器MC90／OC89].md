@@ -3002,3 +3002,11 @@ https://www.wjx.cn/vm/wwnic7M.aspx
 
 —— 来自 OPPO PCGM00, Android 11, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  harry3  
+##### 244#       发表于 2026-2-25 21:00
+
+刺激度关系的不是继承吗，我看贴吧说32稳定继承一个主动，96继承一个被动还是多少
+
