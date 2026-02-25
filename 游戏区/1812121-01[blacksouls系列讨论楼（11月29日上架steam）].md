@@ -4250,3 +4250,15 @@ blacksouls2启动，完了三个小时后的一系列想法和体验
 
 这游戏给我带来的体验就是一直处于不是秒就是被秒的状态，根本不存在和boss打的有来有回的情况<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pf67  
+##### 362#       发表于 2026-2-25 18:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69232488&amp;ptid=1812121" target="_blank">妄想中毒 发表于 2026-2-25 18:03</a>
+这游戏给我带来的体验就是一直处于不是秒就是被秒的状态，根本不存在和boss打的有来有回的情况 ...</blockquote>
+看怎么玩，比如本篇你不刻意刷魂，只是把骑士剑升满就可以和大多数boss打的有来有回了
+
+—— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
