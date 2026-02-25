@@ -1829,3 +1829,11 @@ Steam版下午才解锁，主机版一出就耐久的估计都通关了
 
 所以这次里昂篇和grace大概各占多少流程啊，只想玩李三光斧王对砍，对潜行逃生毫无兴趣。。
 
+
+*****
+
+####  如月尤菲  
+##### 791#       发表于 2026-2-25 16:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以流程到底多长啊，我还在犹豫要不要xbox版
+
