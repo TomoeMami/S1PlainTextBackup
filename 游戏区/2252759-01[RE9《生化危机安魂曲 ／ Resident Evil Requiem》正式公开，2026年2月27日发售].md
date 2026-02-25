@@ -1765,3 +1765,23 @@ img_1333.jpg
 
 <img src="https://img.stage1st.com/forum/202602/25/142031ytidhwiyhwh9hq99.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  byisme001  
+##### 785#       发表于 2026-2-25 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69231132&amp;ptid=2252759" target="_blank">lingfeng1236 发表于 2026-2-25 13:46</a>
+这部是哪几个角色当主角？</blockquote>
+里昂和新人
+
+
+*****
+
+####  赤黑的假面  
+##### 786#       发表于 2026-2-25 14:46
+
+<blockquote>Chao 发表于 2026-2-25 14:01
+PS5开始预载了，73G</blockquote>
+这次怎么这么大
+
