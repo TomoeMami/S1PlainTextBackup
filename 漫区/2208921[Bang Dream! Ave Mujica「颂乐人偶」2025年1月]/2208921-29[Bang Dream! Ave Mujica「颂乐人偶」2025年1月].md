@@ -120,3 +120,11 @@ https://x.com/bang_dream_info/status/2026575884661203040
        First Love covered b ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卖太大了，已经不知天地为何物了
 
+
+*****
+
+####  lawsherman  
+##### 41731#       发表于 2026-2-26 00:08
+
+官方卖药，最为致命
+

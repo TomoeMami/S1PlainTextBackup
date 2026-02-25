@@ -241,3 +241,17 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  嘿等等  
+##### 1248#       发表于 2026-2-26 00:03
+
+没借人一路自动攻击，卡在第四章结尾了，被控到死，我要的不是这个劲大啊<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+关卡里面能借人吗，找了下没找到就退出了，一晚上全部白打<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+攻略看的迷迷糊糊，脑死中<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
