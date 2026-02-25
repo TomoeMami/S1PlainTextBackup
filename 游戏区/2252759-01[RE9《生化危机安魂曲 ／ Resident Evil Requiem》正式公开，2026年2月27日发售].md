@@ -1648,3 +1648,51 @@ PS5电子版要518港币
 已经有简单难度只用handgun3小时40分钟通关的视频了，感觉流程还是短了点，4re还是太难超越了。 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那只能等永降打折了
 
+
+*****
+
+####  eilot  
+##### 775#       发表于 2026-2-25 11:26
+
+ 本帖最后由 eilot 于 2026-2-25 11:29 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69228592&amp;ptid=2252759" target="_blank">lighttt 发表于 2026-2-24 22:49</a>
+
+那只能等永降打折了</blockquote>
+看7小時多那個全程高清版本通關
+
+基本上都是在GRACE編不停地型殺、初見殺，被追逐戰時直接殺
+
+在解迷時通處找零件時認不到路及被初見殺
+
+LEON編也有多次地型殺，被雜兵連戰重傷死
+
+不過也有一些要密碼的寶箱是沒有回頭解開
+
+將這些都減掉的話，大約5小時
+
+不過GRACE編大多都是各種追蹤戰，逃不及未必是重傷而是即死，2周目應該也難以再縮短更多時間
+
+RE4還有些少路可以用手雷直接開門，未修正版時更能直接對著門來炸(還有就是用狙槍來移位)，城堡的大閘也能用手雷掉出去將其炸開，這些都是在初次玩的時候根本不會知道
+
+看9代暫時沒有這些捷徑
+
+
+*****
+
+####  pointer243  
+##### 776#       发表于 2026-2-25 11:33
+
+ 本帖最后由 pointer243 于 2026-2-25 11:35 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69221032&amp;ptid=2252759" target="_blank">乔迪奥 发表于 2026-2-23 11:41</a>
+被核弹炸过之后，黄色胶带还是全新闪亮，油纸包里的黄胶带</blockquote>
+官方一直没说是核弹,说的是有着仅次于核弹威力的实验性温压弹
+
+—— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  星花  
+##### 777#       发表于 2026-2-25 11:36
+
+不用核弹比用核弹现实。不过好像也没啥效果。
+
