@@ -894,3 +894,14 @@ QE_P2Y]~8U4(GVBQ}TL0MH2.jpg
 —— 来自 vivo V2419A, Android 16, 鹅球 v3.5.99 ...</blockquote>
 从字面上看的确是这意思啊，“the lady为了防止她和nightmare之间生出的nemu被zero回收从而卷入阴谋，将她托付给了孤儿院”
 
+
+*****
+
+####  洛克萨斯  
+##### 759#       发表于 2026-2-26 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69224691&amp;ptid=2250267" target="_blank">黄泉川此方 发表于 2026-2-24 10:11</a>
+
+人外女主角已经确定是高桥的固定性癖了</blockquote>
+机器人伊兹，许愿机茨姆利，死尸亚马逊依优，崩原体poppy<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，含人量好可怜
+
