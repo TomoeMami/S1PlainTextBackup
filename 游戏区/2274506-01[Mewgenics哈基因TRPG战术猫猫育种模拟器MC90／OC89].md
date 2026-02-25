@@ -2981,3 +2981,24 @@ https://www.wjx.cn/vm/wwnic7M.aspx
 中文版征集中文猫名，没有漏油感兴趣嘛</blockquote>
 反正只会是耄耋、哈基米、那没路多三选一吧
 
+
+*****
+
+####  leeskies  
+##### 242#       发表于 2026-2-25 19:18
+
+【喵喵的结合】 刺激度是陷阱？逆向代码揭示最优繁殖路线_哔哩哔哩_bilibili
+[https://www.bilibili.com/video/BV19BfsBzEce/](https://www.bilibili.com/video/BV19BfsBzEce/)
+
+*****
+
+####  玉之龙  
+##### 243#       发表于 2026-2-25 19:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69232776&amp;ptid=2274506" target="_blank">oidoid 发表于 2026-2-25 19:10</a>
+反正只会是耄耋、哈基米、那没路多三选一吧</blockquote>
+没有曼波？
+养猫的可以把自己猫名放上去<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCGM00, Android 11, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
