@@ -255,3 +255,18 @@
 
 —— 来自 Xiaomi 23113RKC6C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  荆棘花冠  
+##### 1249#       发表于 2026-2-26 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69234015&amp;ptid=2120922" target="_blank">嘿等等 发表于 2026-2-26 00:03</a>
+
+没借人一路自动攻击，卡在第四章结尾了，被控到死，我要的不是这个劲大啊
+
+关卡里面能借人吗，找了下没找到 ...</blockquote>
+编辑里
+
+Q023261318，除了句点没挂这几期瓦夜的我都挂着了，可以直接嫖
+
