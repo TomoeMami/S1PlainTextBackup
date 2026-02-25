@@ -916,3 +916,14 @@ QE_P2Y]~8U4(GVBQ}TL0MH2.jpg
 机器人伊兹，许愿机茨姆利，死尸亚马逊依优，崩原体poppy，含人量好可怜</blockquote>
 虽然但是，极狐女主不是吃牡蛎而是猫猫吧<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">（猫猫也不是普通人类就是了）
 
+
+*****
+
+####  himfsz  
+##### 761#       发表于 2026-2-26 00:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69234049&amp;ptid=2250267" target="_blank">pokemon最爱 发表于 2026-2-26 00:15</a>
+
+虽然但是，极狐女主不是吃牡蛎而是猫猫吧（猫猫也不是普通人类就是了） ...</blockquote>
+真是奇怪，那为什么没有人觉得01的女主是刃唯阿，明明都是三骑，而且祢音在一开始的op里面甚至都没有自己的专属镜头，就和其他参赛选手一个待遇，二骑都有一个自己的镜头
+
