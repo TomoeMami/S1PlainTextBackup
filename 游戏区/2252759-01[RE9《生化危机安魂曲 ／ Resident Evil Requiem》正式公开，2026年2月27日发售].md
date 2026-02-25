@@ -1948,3 +1948,14 @@ Grace流程看上去只是子弹长期只有个位数，体术没有伤害罢了
 
 重制版世界线里2代变成分头表关克妹里关了？
 
+
+*****
+
+####  bingo0716  
+##### 803#       发表于 2026-2-25 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69232279&amp;ptid=2252759" target="_blank">eilot 发表于 2026-2-25 17:16</a>
+
+看來沒法子了</blockquote>
+确实，生4我重玩好多次，虽然碍事梨那段已经滚瓜烂熟了但是还是不喜欢，这次超级加倍变成一半流程，感觉扣分点会集中在这里
+
