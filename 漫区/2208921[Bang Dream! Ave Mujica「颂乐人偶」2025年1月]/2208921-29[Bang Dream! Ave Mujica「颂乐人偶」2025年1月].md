@@ -107,3 +107,16 @@
 
        [https://www.anipluscafe.com/bangdream4/](https://www.anipluscafe.com/bangdream4/)
 
+
+*****
+
+####  yone0000  
+##### 41730#       发表于 2026-2-25 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69232731&amp;ptid=2208921" target="_blank">堀内爱里衣 发表于 2026-2-25 19:01</a>
+
+https://x.com/bang_dream_info/status/2026575884661203040
+
+       First Love covered b ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卖太大了，已经不知天地为何物了
+
