@@ -205,3 +205,25 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  嘿等等  
+##### 1245#       发表于 2026-2-25 16:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69226774&amp;ptid=2120922" target="_blank">Hominidae 发表于 2026-2-24 16:22</a>
+前三章是这样，第一赛季的剧情挺一般的，这几个人的故事也没讲完，明显留了扣子。
+从第四章（第二赛季） ...</blockquote>
+申请了
+
+—— 来自 Xiaomi 23113RKC6C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  嘿等等  
+##### 1246#       发表于 2026-2-25 16:25
+
+这赛季是不是明天就结束了，买了战令只有8级，亏惨了
+
+—— 来自 Xiaomi 23113RKC6C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
