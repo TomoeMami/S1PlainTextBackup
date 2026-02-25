@@ -1940,3 +1940,11 @@ Grace流程看上去只是子弹长期只有个位数，体术没有伤害罢了
 
 好像明晚7点又UP主提前玩了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  莉音厨  
+##### 802#       发表于 2026-2-25 21:57
+
+重制版世界线里2代变成分头表关克妹里关了？
+
