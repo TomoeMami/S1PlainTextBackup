@@ -61,3 +61,49 @@
 
 2026-2-25 19:24 上传
 
+
+*****
+
+####  堀内爱里衣  
+##### 41729#       发表于 2026-2-25 19:52
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/25/195206b7ixcdouqpx67q99.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-25_19-49-29.jpg</strong> (228.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-25 19:52 上传
+
+       [https://x.com/anipluscafesg/status/2026552749639479350](https://x.com/anipluscafesg/status/2026552749639479350)
+
+       [https://www.anipluscafe.com/bangdream4/merchandise/](https://www.anipluscafe.com/bangdream4/merchandise/)
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/25/195206ne34zznxm877vs7w.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-25_19-50-11.jpg</strong> (122.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-25 19:52 上传
+
+       [https://x.com/anipluscafesg/status/2026554002717159643](https://x.com/anipluscafesg/status/2026554002717159643)
+
+       
+
+<img src="https://img.stage1st.com/forum/202602/25/195205qpfoxopxygwxwzoo.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-02-25_19-50-37.jpg</strong> (243.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-25 19:52 上传
+
+       [https://x.com/anipluscafesg/status/2026582950691876991](https://x.com/anipluscafesg/status/2026582950691876991)
+
+       [https://www.anipluscafe.com/bangdream4/](https://www.anipluscafe.com/bangdream4/)
+
