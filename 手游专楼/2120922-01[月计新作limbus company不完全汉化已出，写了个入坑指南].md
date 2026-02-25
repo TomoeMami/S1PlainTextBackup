@@ -227,3 +227,17 @@
 
 —— 来自 Xiaomi 23113RKC6C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Hominidae  
+##### 1247#       发表于 2026-2-25 23:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69231973&amp;ptid=2120922" target="_blank">嘿等等 发表于 2026-2-25 16:25</a>
+这赛季是不是明天就结束了，买了战令只有8级，亏惨了
+
+—— 来自 Xiaomi 23113RKC6C, Android 16, 鹅球 v3. ...</blockquote>
+不是不是，这赛季早着呢，现在一个赛季一般七八个月，这赛季去年12月31号才开的……
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

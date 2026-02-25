@@ -1992,3 +1992,82 @@ Grace流程看上去只是子弹长期只有个位数，体术没有伤害罢了
 
 我很讨厌恐怖解密逃生玩法。。。这次占一半的话，就不首发了。。等DLC出齐了再补吧。
 
+
+*****
+
+####  霸王向小受  
+##### 807#       发表于 2026-2-25 23:06
+
+啧，又又又又又又是集大成，真能集吗？
+
+*****
+
+####  zhacaizn  
+##### 808#       发表于 2026-2-25 23:07
+
+mc开分72媒体 89分
+
+*****
+
+####  Piano-Forest  
+##### 809#         楼主| 发表于 2026-2-25 23:07
+
+主机版2月27日0点解锁，PC版2月27日13点解锁
+
+IGN 9
+[https://www.ign.com/articles/resident-evil-requiem-review](https://www.ign.com/articles/resident-evil-requiem-review)
+
+GS 8
+[https://www.gamespot.com/reviews ... utant/1900-6418464/](https://www.gamespot.com/reviews/resident-evil-requiem-review-two-headed-mutant/1900-6418464/)
+
+MC
+[https://www.metacritic.com/game/resident-evil-requiem/](https://www.metacritic.com/game/resident-evil-requiem/)
+
+*****
+
+####  D-JoeII  
+##### 810#       发表于 2026-2-25 23:08
+
+預想之內的分數,我準備好了
+
+*****
+
+####  clyde-wang  
+##### 811#       发表于 2026-2-25 23:10
+
+NS2版本7个评测90分，讲道理第一个同步的3A大作不应该盯着NS2版本评测嘛
+
+
+*****
+
+####  乔迪奥  
+##### 812#       发表于 2026-2-25 23:12
+
+卡普空媒体打点的太好了，还是按最低的算吧
+
+*****
+
+####  eilot  
+##### 813#       发表于 2026-2-25 23:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69233660&amp;ptid=2252759" target="_blank">bingo0716 发表于 2026-2-25 22:32</a>
+
+确实，生4我重玩好多次，虽然碍事梨那段已经滚瓜烂熟了但是还是不喜欢，这次超级加倍变成一半流程，感觉 ...</blockquote>
+碍事梨能直接穿裝甲，除了被活捉即死外，就不用擔心被殺，甚至影響評價
+
+就看今次的任務完成獎勵分(和4R不同，今次沒有寫不是A+評價)
+
+而是說你完成了甚麼內容
+
+就看GRACE編有沒完全潛行0殺，
+
+或完全擊殺(連所有被追殺的大型BOSS)這類CP獎勵
+
+(CP獎勵分是用來在周目時GRADE SHOP買隱藏內容)
+
+因為現階段GRACE編見到的大型BOSS(那隻巨型老女人、肉團胖子)，都是逃亡或劇情殺
+
+沒有用過安魂曲(不過在普通難度，也見到打屠夫的頭部都死不去)
+
+可能他們可以用武器擊殺，擊殺後除非去突然出來地點，他們就不會再出來追你
+
