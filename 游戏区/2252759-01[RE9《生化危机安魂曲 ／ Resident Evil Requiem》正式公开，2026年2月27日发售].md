@@ -1969,3 +1969,26 @@ Grace流程看上去只是子弹长期只有个位数，体术没有伤害罢了
 好像明晚7点又UP主提前玩了</blockquote>
 明晚七点xbox玩家能当新西兰人提前解锁吧。
 
+
+*****
+
+####  zhacaizn  
+##### 805#       发表于 2026-2-25 23:04
+
+评分解锁 ign9 gs8
+
+<img src="https://img.stage1st.com/forum/202602/25/230415l5k0dpjddp1op5e1.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (101.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-25 23:04 上传
+
+*****
+
+####  drenched  
+##### 806#       发表于 2026-2-25 23:05
+
+我很讨厌恐怖解密逃生玩法。。。这次占一半的话，就不首发了。。等DLC出齐了再补吧。
+

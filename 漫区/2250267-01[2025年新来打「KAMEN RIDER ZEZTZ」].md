@@ -881,3 +881,16 @@ QE_P2Y]~8U4(GVBQ}TL0MH2.jpg
 
 【“CODE的黑暗到底是什么？”来看看至今为止1~23集诺克斯到死说的那些暗藏玄机的话吧~~[X酱]-哔哩哔哩】 https://b23.tv/VDg0eWA
 
+
+*****
+
+####  黑上シグマ  
+##### 758#       发表于 2026-2-25 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69224641&amp;ptid=2250267" target="_blank">一个陆仁贾 发表于 2026-2-24 10:04</a>
+
+我用ai翻译可翻译不出来这个意思，确定没错吗？
+
+—— 来自 vivo V2419A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+从字面上看的确是这意思啊，“the lady为了防止她和nightmare之间生出的nemu被zero回收从而卷入阴谋，将她托付给了孤儿院”
+
