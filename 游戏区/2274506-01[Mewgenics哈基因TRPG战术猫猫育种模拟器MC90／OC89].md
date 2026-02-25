@@ -2957,3 +2957,14 @@ nexus上已经有不少mod了，包括mod管理器和save editor之类，
 
 甚至不需要装备，省心省力
 
+
+*****
+
+####  玉之龙  
+##### 240#       发表于 2026-2-25 17:34
+
+https://www.wjx.cn/vm/wwnic7M.aspx
+中文版征集中文猫名，没有漏油感兴趣嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3800, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
