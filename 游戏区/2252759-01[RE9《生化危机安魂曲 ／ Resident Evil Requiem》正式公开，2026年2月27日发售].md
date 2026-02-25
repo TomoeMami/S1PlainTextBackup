@@ -1785,3 +1785,14 @@ img_1333.jpg
 PS5开始预载了，73G</blockquote>
 这次怎么这么大
 
+
+*****
+
+####  djw1984  
+##### 787#       发表于 2026-2-25 14:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69231356&amp;ptid=2252759" target="_blank">赤黑的假面 发表于 2026-2-25 14:46</a>
+
+这次怎么这么大</blockquote>
+可能dlc都藏在里面
+
