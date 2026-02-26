@@ -2215,3 +2215,14 @@ NS2版本7个评测90分，讲道理第一个同步的3A大作不应该盯着NS2
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  djw1984  
+##### 830#       发表于 2026-2-26 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69234538&amp;ptid=2252759" target="_blank">耶耶抛的岔 发表于 2026-2-26 08:32</a>
+
+这分数很难入围今年goty评选了</blockquote>
+看今年游戏整体情况吧，再说81分都能入围goty评选，88分绰绰有余了
+
