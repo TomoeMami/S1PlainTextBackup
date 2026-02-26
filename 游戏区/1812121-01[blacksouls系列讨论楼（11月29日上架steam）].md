@@ -4262,3 +4262,31 @@ blacksouls2启动，完了三个小时后的一系列想法和体验
 
 —— 来自 Xiaomi 25042PN24C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  三月的老虎  
+##### 363#       发表于 2026-2-27 01:17
+
+玩了差不多十个小时左右了，感觉还有一半地图没探索到，这一代内容量太大了，恐怖氛围渲染也比一代要厉害的多
+
+1.原本觉得这游戏要求你武器选择多样化，结果我错了，我只是没找到合适的轮椅罢了，自从拿到汉斯的机关枪并升级到+4后打哪个boss都是薄砂
+
+2.公爵夫人之馆的boss我之前打不过就先搁置了，但之后再去发现这boss似乎已经没了，不知道为啥
+
+3.把san值回复了上来才意识到这游戏原来每个场景都有bgm，然而我一开始把san值搞到负数啥也听不到，不过这游戏只有san值上来才能跟npc对话这个设计也着实有点讨厌。
+
+4.走了个结局c，这个柴郡猫实在有点难打
+
+5.这游戏的谏言系统真是太棒了，强烈建议所有玩家开着谏言玩，真的有意思
+
+“你没资格啊你没资格因为你没资格所以你没资格反正你没资格<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">”
+
+<img src="https://img.stage1st.com/forum/202602/27/011444c91sjku69gw14h9d.png" referrerpolicy="no-referrer">
+
+<strong>BLACK SOULS II Full Ver. 2026_2_27 1_04_28.png</strong> (62.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 01:14 上传
+
