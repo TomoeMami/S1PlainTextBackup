@@ -36,3 +36,35 @@
 <img src="https://p.sda1.dev/31/06ff80ef849e1b7dc45aaaae2a5c5fd1/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/31/56fad2fae95729093ae2b72e316a579f/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 20566#       发表于 2026-2-26 17:15
+
+船长这强化也是很原始的强化，np率换成20群充都不至于这么弱智。
+
+*****
+
+####  岸浪白野  
+##### 20567#       发表于 2026-2-26 17:18
+
+意义只有从17%宝威攻击1回合变成正常20%宝威攻击3回合<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+加上2技能有65%np率有毛用
+新时代应该整个给除自己外给别人加20充，还加np率已经是意味不明了
+
+*****
+
+####  khxooo  
+##### 20568#       发表于 2026-2-26 17:28
+
+算是将残疾人从轮椅拯救到撑拐杖的程度吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 20569#       发表于 2026-2-26 17:35
+
+按你游现在的玩法，NP率想要有用，大概只有让NP率能影响NP直充了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
