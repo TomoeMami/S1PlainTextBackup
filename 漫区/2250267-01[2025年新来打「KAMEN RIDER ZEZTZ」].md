@@ -950,3 +950,13 @@ QE_P2Y]~8U4(GVBQ}TL0MH2.jpg
 真是奇怪，那为什么没有人觉得01的女主是刃唯阿，明明都是三骑，而且祢音在一开始的op里面甚至都没有自己 ...</blockquote>
 番位和戏份和几号骑士没什么关系。猫猫和黑白丝有杂志讲过是双女主。甚至ZZZ里，古川雄辉是嘉宾位，男二是富士见
 
+
+*****
+
+####  暗黑能乐  
+##### 764#       发表于 2026-2-26 08:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三骑莫非就是宁梦爹
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
