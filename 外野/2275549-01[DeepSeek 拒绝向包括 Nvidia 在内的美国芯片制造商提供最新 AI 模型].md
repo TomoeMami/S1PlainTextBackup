@@ -597,3 +597,38 @@ api还是3.2的，可以用api来写
 api还是3.2的，可以用api来写</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">这不是白嫖的快乐吗。。
 
+
+*****
+
+####  Promeus  
+##### 59#       发表于 2026-2-26 22:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69238966&amp;ptid=2275549" target="_blank">羊寢 发表于 2026-2-26 22:32</a>
+api还是3.2的，可以用api来写</blockquote>
+3.2写着写着就会忘设定，跟现在那个注意力不能比啊
+
+*****
+
+####  羊寢  
+##### 60#       发表于 2026-2-26 22:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69238970&amp;ptid=2275549" target="_blank">谎称 发表于 2026-2-26 22:32</a>
+这不是白嫖的快乐吗。。</blockquote>
+那还是建议不要先贷款给太高期待，目前v4 lite情况来看v4本体除非有加强写作方面的训练不然可能不会太好，而幻方他们也不是把写作能力当做重要训练目标来做，目前为止其实写作能力特别突出的也就0528和3.1t两个版本，还是先放平心态吧…………欸，我为什么默默流泪了？<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  谎称  
+##### 61#       发表于 2026-2-26 22:44
+
+ 本帖最后由 谎称 于 2026-2-26 22:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69239002&amp;ptid=2275549" target="_blank">羊寢 发表于 2026-2-26 22:42</a>
+
+那还是建议不要先贷款给太高期待，目前v4 lite情况来看v4本体除非有加强写作方面的训练不然可能不会太好 ...</blockquote>
+我怀疑v4lite是不是扒起点的网文库了，这家伙，一句话一段，尤其是人物对话的时候，这个分段水的啊。
+
+还有什么，语气平平，嘴角勾起弧度，嘴角微微弯了弯，了然的表情……
+
+看得我头都大了。。
+
