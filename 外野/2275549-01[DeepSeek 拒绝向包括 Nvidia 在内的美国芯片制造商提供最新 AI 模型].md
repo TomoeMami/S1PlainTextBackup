@@ -570,3 +570,30 @@ AI计算卡脱离西大板上钉钉。
 
 就是国产才能能不能跟上。
 
+
+*****
+
+####  谎称  
+##### 56#       发表于 2026-2-26 22:28
+
+V4快来吧。现在的版本写小说太蛋疼了，完全没有3.2好用
+
+*****
+
+####  羊寢  
+##### 57#       发表于 2026-2-26 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69238954&amp;ptid=2275549" target="_blank">谎称 发表于 2026-2-26 22:28</a>
+V4快来吧。现在的版本写小说太蛋疼了，完全没有3.2好用</blockquote>
+api还是3.2的，可以用api来写
+
+*****
+
+####  谎称  
+##### 58#       发表于 2026-2-26 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69238966&amp;ptid=2275549" target="_blank">羊寢 发表于 2026-2-26 22:32</a>
+
+api还是3.2的，可以用api来写</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">这不是白嫖的快乐吗。。
+
