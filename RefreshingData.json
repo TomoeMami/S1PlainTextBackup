@@ -16677,10 +16677,10 @@
     "update": false
   },
   "2275490": {
-    "totalreply": 57,
+    "totalreply": 58,
     "title": "[qwen3.5开源了]",
     "newtitle": "[qwen3.5开源了]",
-    "lastedit": 1772122334,
+    "lastedit": 1772140927,
     "category": "外野",
     "active": true,
     "update": false
@@ -16863,6 +16863,6 @@
     "lastedit": 1772138880,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   }
 }
