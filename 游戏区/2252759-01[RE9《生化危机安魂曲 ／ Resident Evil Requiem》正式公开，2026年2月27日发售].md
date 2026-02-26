@@ -2205,3 +2205,13 @@ NS2版本7个评测90分，讲道理第一个同步的3A大作不应该盯着NS2
 
 运动类游戏吃相更难看
 
+
+*****
+
+####  黑上シグマ  
+##### 829#       发表于 2026-2-26 09:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">题外话，今天光头47更新的名人联动暗杀目标是生化真人电影的米拉乔沃维奇，内容是病毒相关，任务名还带个requiem，我觉得是故意的
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
