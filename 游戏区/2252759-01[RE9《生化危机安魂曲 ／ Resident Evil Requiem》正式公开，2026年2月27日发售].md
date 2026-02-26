@@ -2267,3 +2267,19 @@ NS2版本7个评测90分，讲道理第一个同步的3A大作不应该盯着NS2
 
 之前担心的因为要顾及两种视角在关卡设计上妥协的问题不知道处理的如何
 
+
+*****
+
+####  渡边加奈子  
+##### 834#       发表于 2026-2-26 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69235640&amp;ptid=2252759" target="_blank">eilot 发表于 2026-2-26 11:40</a>
+美未1可以說是遊戲重點/核心就是潛行及反擊
+
+不過美末1可以用氣息...聽覺感應敵人位置及正在做甚麼
+
+升級也 ...</blockquote>
+血液可以合成物资，包括各类子弹，并且带有一定特效
+
+—— 来自 samsung SM-F9660, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
