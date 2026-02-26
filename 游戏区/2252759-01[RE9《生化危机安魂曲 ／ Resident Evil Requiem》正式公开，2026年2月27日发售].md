@@ -2660,3 +2660,16 @@ c2bd1ab2c2c60552285a88b90133189d.jpg
 
 但前提是緊急檔格的判定非常奇怪，和敵人攻擊動作配合得差就會變成主動閃避到遠處或緊急回避，就是不會發動緊急檔格
 
+
+*****
+
+####  Cranberries  
+##### 866#       发表于 2026-2-26 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69236928&amp;ptid=2252759" target="_blank">刘昊霖 发表于 2026-2-26 15:30</a>
+
+生化六选人全网爆了是卡普空买的水军？</blockquote>
+抖音火啥是没有预兆的。
+
+知不知道是生化里面的都难说。
+
