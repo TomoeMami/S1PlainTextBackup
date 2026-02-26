@@ -2573,3 +2573,21 @@ c2bd1ab2c2c60552285a88b90133189d.jpg
 
 生化6这坨有点像隔壁的xb3，平时声量和争论最多，投起票来一投一个不吱声<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡拉德利姆  
+##### 859#       发表于 2026-2-26 15:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69236806&amp;ptid=2252759" target="_blank">bill910 发表于 2026-2-26 15:07</a>
+制作人有表态过这个李三光的感情问题？还是说是假料？</blockquote>
+推上经典造谣再国内经典把id截掉发散
+因为id就暴露了这个人是魔怔cp粉
+
+*****
+
+####  刘昊霖  
+##### 860#       发表于 2026-2-26 15:30
+
+生化六选人全网爆了是卡普空买的水军？
+
