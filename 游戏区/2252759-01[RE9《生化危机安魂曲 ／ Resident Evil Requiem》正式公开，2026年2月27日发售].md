@@ -2283,3 +2283,22 @@ NS2版本7个评测90分，讲道理第一个同步的3A大作不应该盯着NS2
 
 —— 来自 samsung SM-F9660, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  eilot  
+##### 835#       发表于 2026-2-26 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69235779&amp;ptid=2252759" target="_blank">渡边加奈子 发表于 2026-2-26 12:04</a>
+
+血液可以合成物资，包括各类子弹，并且带有一定特效
+
+—— 来自 samsung SM-F9660, Android 16上的 S1Nex ...</blockquote>
+這個知道
+
+就是不知道多了這容量，能否令資源稍為寬鬆
+
+還有就是每次抽血(汗)都一定能抽滿
+
+應該不會真是有成就是她全擊殺
+
