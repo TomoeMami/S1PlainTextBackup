@@ -2302,3 +2302,19 @@ NS2版本7个评测90分，讲道理第一个同步的3A大作不应该盯着NS2
 
 應該不會真是有成就是她全擊殺
 
+
+*****
+
+####  渡边加奈子  
+##### 836#       发表于 2026-2-26 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69235859&amp;ptid=2252759" target="_blank">eilot 发表于 2026-2-26 12:15</a>
+這個知道
+
+就是不知道多了這容量，能否令資源稍為寬鬆
+
+還有就是每次抽血(汗)都一定能抽滿</blockquote>
+我感觉无限小刀就够格蕾丝挥霍了。格蕾丝的小刀攻击范围和频率都很高，无限小刀很大程度就可以应对机制怪以外的敌人了
+
+—— 来自 samsung SM-F9660, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
