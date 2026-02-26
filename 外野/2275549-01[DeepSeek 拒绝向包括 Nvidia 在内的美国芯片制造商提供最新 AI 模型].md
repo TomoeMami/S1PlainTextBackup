@@ -525,3 +525,28 @@ lz怎么知道在内测的快透露点内幕消息
 
 现在就是要上下文长，说白了coding agent涌现出的一堆能力都是释放上下文威力的结果
 
+
+*****
+
+####  cyberalogo  
+##### 51#       发表于 2026-2-26 20:58
+
+去年底至今老黄没向东大卖出过一张算力卡，是不是意味着在中国市场上英伟达药丸了？<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一般市民  
+##### 52#       发表于 2026-2-26 20:59
+
+所有传闻来源都是外网，感觉有人急着要拿deepseek当枪使 
+
+
+*****
+
+####  2017.05.04  
+##### 53#       发表于 2026-2-26 21:01
+
+这不是美帝急了在搞假新闻ddos吗
+
+—— 来自 HUAWEI SGT-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
