@@ -2691,3 +2691,11 @@ c2bd1ab2c2c60552285a88b90133189d.jpg
 
 [https://www.bilibili.com/video/B ... ed061755b2bdb9fda4b](https://www.bilibili.com/video/BV1STfiB8EMt/?spm_id_from=333.337.search-card.all.click&amp;vd_source=47bd2a6ee4d57ed061755b2bdb9fda4b)这次画面就是按光追标准做的开不开差距很大
 
+
+*****
+
+####  siansian  
+##### 869#       发表于 2026-2-26 19:04
+
+新西兰区买的竟然没有中文，难绷
+

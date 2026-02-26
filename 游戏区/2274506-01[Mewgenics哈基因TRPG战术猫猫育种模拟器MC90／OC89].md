@@ -3073,3 +3073,15 @@ https://www.reddit.com/r/gaming/comments/1r3bcj8/mewge ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  kyonko15  
+##### 249#       发表于 2026-2-26 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69236365&amp;ptid=2274506" target="_blank">菜菜菜菜 发表于 2026-2-26 13:55</a>
+我说我打着打着会有个即视感，然后猫猫不行动。
+
+https://www.reddit.com/r/gaming/comments/1r3bcj8/mewge ...</blockquote>
+这玩意e胖让史蒂夫一上来来一句“你作弊了”倒是给不少人人整急眼了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
