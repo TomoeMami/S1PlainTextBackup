@@ -2411,3 +2411,33 @@ NS2版本7个评测90分，讲道理第一个同步的3A大作不应该盯着NS2
 
 评语： “如果你只玩前五个小时，这游戏是满分；但如果你通关了全流程，你会感到一种被欺骗的愤怒。双主角双视角的噱头最终反噬了游戏本身。为了让 AI 和场景比例同时适配两种视角，里昂的动作模组付出了惨痛的代价。他的近战衔接和受击判定充满了难以忽视的生硬感和穿模。后期的方舟区域更是缺乏打磨，感觉像是直接从《生 8》废案里翻出来的边角料大**。”
 
+
+*****
+
+####  洛亚替身  
+##### 845#       发表于 2026-2-26 14:16
+
+ 本帖最后由 洛亚替身 于 2026-2-26 14:18 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69236459&amp;ptid=2252759" target="_blank">乔迪奥 发表于 2026-2-26 14:12</a>
+
+1. Gamekult —— 6/10
+
+评语： “《生化 9》的前五个小时让我们以为重回巅峰，但当里昂进入方舟区域后， ...</blockquote>
+给低分的感觉都更喜欢疗养院的恐怖要素对动作内容不满意，其中三个都想要全流程都是疗养院那种模式
+
+说像是一个患有严重身份危机的缝合怪的确没问题，生化现在恐怖游戏基本盘和动作角色厨基本盘都太大，没办法放弃任何一边只能这样湊合当连体婴儿了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 846#       发表于 2026-2-26 14:19
+
+<img src="https://p.sda1.dev/31/cce53d3d888860c935723c029283febf/20260226141032.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/c5225becef21dd791f0ef96ddf46794c/20260226141105.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/6c8368965c7ee42d2ab32f7159ab0cda/20260226141123.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/e68a6301afd36af21787e908d2f4ae6b/20260226141147.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/025154b818c6f290adef7fb6ca7ba9e8/20260226141208.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/541bfdabc7025c6ac6f72f14b2eb7592/HBiJEDNXwAA-NIu.jpg" referrerpolicy="no-referrer">
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有这样一款最新的游戏，反派要用病毒搞事，实验室里各种尸体，反派给自己注射了病毒，跑路的时候要躲激光，还可以用药草合成药剂，名字里有“requiem”，那么这款游戏是……
+
