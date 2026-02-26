@@ -2808,3 +2808,15 @@ xb3是啥？总是投票赢？
 
 声量没低过，投票没赢过
 
+
+*****
+
+####  黑夜守望者  
+##### 881#       发表于 2026-2-26 22:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69238318&amp;ptid=2252759" target="_blank">kcalb 发表于 2026-2-26 19:49</a>
+真结婚了也正常，威斯克的老婆是谁？维吉尔的老婆是谁？赛文的老婆是谁？泰罗的老婆是谁？
+
+和BE一样，大概 ...</blockquote>
+这你就说笑了，圆谷和卡表尿性不一样，所以圆谷的例子不适合。至于威斯克和抛瓦哥，那又不是主角，卡表可没那个胆量随便让作品的主角不明不白有了孩子，就算是成步堂，美贯也是养女<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

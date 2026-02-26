@@ -550,3 +550,13 @@ lz怎么知道在内测的快透露点内幕消息
 
 —— 来自 HUAWEI SGT-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  羊寢  
+##### 54#       发表于 2026-2-26 22:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69238580&amp;ptid=2275549" target="_blank">一般市民 发表于 2026-2-26 20:59</a>
+所有传闻来源都是外网，感觉有人急着要拿deepseek当枪使</blockquote>
+拿ds当枪使是真的，但ds国产芯片优先应该也是真的，3.2出来前我记得ds就有说过适配国产芯片的事，当初3.2还没出就有人骂国产芯片产量质量拉不上来拖了ds脚步
+
