@@ -2351,3 +2351,14 @@ NS2版本7个评测90分，讲道理第一个同步的3A大作不应该盯着NS2
 
 王阿姨党输了这是
 
+
+*****
+
+####  chizuru  
+##### 841#       发表于 2026-2-26 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69233828&amp;ptid=2252759" target="_blank">clyde-wang 发表于 2026-2-25 23:10</a>
+
+NS2版本7个评测90分，讲道理第一个同步的3A大作不应该盯着NS2版本评测嘛</blockquote>
+媒体都是厂商给哪个版本评测哪个，又不是自己选的。生化本家就是索尼平台，肯定按大众买的最多的平台评
+
