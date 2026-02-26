@@ -2900,3 +2900,11 @@ CHRIS的地位，今次也提到他的名字，還有BSAA的狼隊...
 問題在於弄死了HUNK...
 山寨版的威叔就這樣退場，是留給傭兵模式嗎...
 
+
+*****
+
+####  mashav  
+##### 889#       发表于 2026-2-27 00:16
+
+操作里昂拿电锯那里，试出了4种死法，初次演出还不能跳过，每个死法至少5秒左右的动画<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
