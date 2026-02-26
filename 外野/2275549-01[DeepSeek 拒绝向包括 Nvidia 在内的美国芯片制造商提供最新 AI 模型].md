@@ -444,3 +444,11 @@ lz怎么知道在内测的快透露点内幕消息
 —— 来自 OPPO PLG110, Android 16, 鹅球 v3.4.97-alpha ...</blockquote>
 现在官网和app应该就是在给v4搞灰测，可以看出来模型不是v3基底了
 
+
+*****
+
+####  炽十二翼  
+##### 43#       发表于 2026-2-26 16:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">ai自由等不及啦
+

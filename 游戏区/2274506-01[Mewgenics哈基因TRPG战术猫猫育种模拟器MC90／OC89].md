@@ -3059,3 +3059,17 @@ Mewgenics 有一个很天才的防“读档”功能
 
 单凭这个功能就让它成为年度最佳游戏。
 
+
+*****
+
+####  糊状物  
+##### 248#       发表于 2026-2-26 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69236365&amp;ptid=2274506" target="_blank">菜菜菜菜 发表于 2026-2-26 13:55</a>
+我说我打着打着会有个即视感，然后猫猫不行动。
+
+https://www.reddit.com/r/gaming/comments/1r3bcj8/mewge ...</blockquote>
+路上遇到事件也可能染上既视感
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
