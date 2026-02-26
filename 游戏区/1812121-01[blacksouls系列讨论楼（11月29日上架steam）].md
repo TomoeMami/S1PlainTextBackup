@@ -4290,3 +4290,13 @@ blacksouls2启动，完了三个小时后的一系列想法和体验
 
 2026-2-27 01:14 上传
 
+
+*****
+
+####  红魔馆的糖  
+##### 364#       发表于 2026-2-27 03:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69239442&amp;ptid=1812121" target="_blank">三月的老虎 发表于 2026-2-27 01:17</a>
+玩了差不多十个小时左右了，感觉还有一半地图没探索到，这一代内容量太大了，恐怖氛围渲染也比一代要厉害的 ...</blockquote>
+最好玩的还是多周目后进dlc2，dlc2相当于血源诅咒的老猎人，超越本体很多。而且到了dlc2，多动的装备就搜集的七七八八了，一个回合多动不断换刀才是这游戏最好玩的地方<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
