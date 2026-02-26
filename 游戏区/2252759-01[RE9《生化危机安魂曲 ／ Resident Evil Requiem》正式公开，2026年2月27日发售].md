@@ -2757,3 +2757,14 @@ c2bd1ab2c2c60552285a88b90133189d.jpg
 
 2026-2-26 20:06 上传
 
+
+*****
+
+####  ultraseven  
+##### 875#       发表于 2026-2-26 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69236651&amp;ptid=2252759" target="_blank">JOJOROY 发表于 2026-2-26 14:45</a>
+
+媒体是可以申请想要哪个平台的Code的</blockquote>
+不一定，有的时候某些平台的评测码会后发
+
