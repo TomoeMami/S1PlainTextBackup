@@ -2164,3 +2164,36 @@ NS2版本7个评测90分，讲道理第一个同步的3A大作不应该盯着NS2
 
 这分数很难入围今年goty评选了
 
+
+*****
+
+####  1096beam  
+##### 825#       发表于 2026-2-26 08:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69234255&amp;ptid=2252759" target="_blank">大厨麦当牛 发表于 2026-2-26 01:35</a>
+
+9很难评，不能说9没新意，但整个流程看下来真的是肉眼可见的省钱，素材真的是能复用的就复用，不能复用的也 ...</blockquote>
+黑叔叔明显是为了5re做素材啊
+
+*****
+
+####  simonroam  
+##### 826#       发表于 2026-2-26 08:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69234088&amp;ptid=2252759" target="_blank">红魔馆的糖 发表于 2026-2-26 00:28</a>
+
+厌倦个啥呀，这么多年过去了这套生化玩法依旧没有代餐，连喜欢打枪的欧美厂都做不明白，最后还是和怪猎一样 ...</blockquote>
+不是有没有代餐的问题，2k fifa也没有代餐，吃相问题
+
+*****
+
+####  渡边加奈子  
+##### 827#       发表于 2026-2-26 08:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69231280&amp;ptid=2252759" target="_blank">kalavinka 发表于 2026-2-25 14:23</a>
+
+游戏内原画三光手上戒指是何意味啊
+
+论坛助手,iPhone</blockquote>
+可能是和抑制感染有关,雪莉小指也戴着一支
+
