@@ -13,3 +13,11 @@
 
 欢迎各位疾行者们加入这场生存前哨战！
 
+
+*****
+
+####  Sopp  
+##### 135#       发表于 2026-2-27 04:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">AI的威胁比真人大多了……死在AI手里两次
+
