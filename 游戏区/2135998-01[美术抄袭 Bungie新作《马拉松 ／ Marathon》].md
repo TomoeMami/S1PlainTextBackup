@@ -21,3 +21,15 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">AI的威胁比真人大多了……死在AI手里两次
 
+
+*****
+
+####  新庄運切  
+##### 136#       发表于 2026-2-27 05:13
+
+ 本帖最后由 新庄運切 于 2026-2-27 05:16 编辑 
+
+开了UU载入要黑屏好久才能看到内容<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+手感还行，就是打了几把眼睛疼
+
