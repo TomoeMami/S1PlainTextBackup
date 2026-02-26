@@ -452,3 +452,26 @@ lz怎么知道在内测的快透露点内幕消息
 
 <img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">ai自由等不及啦
 
+
+*****
+
+####  GMJ  
+##### 44#       发表于 2026-2-26 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69235810&amp;ptid=2275549" target="_blank">精钢魔像 发表于 2026-2-26 12:07</a>
+
+看到有b站up主测试，上传一本《黎明之剑》，ds能读完前150万字，让它列出出场人物关系，全对。
+
+ ...</blockquote>
+可以了，150万字让ds提炼一下内容出个2，3万字的文档，然后把后面150W字加这个文档一起喂，，反复几次就可以把整个小说都记下了
+
+            
+
+        
+
+        
+
+    
+
+网文看着长，其实提炼下有信息量的干货没多少
+
