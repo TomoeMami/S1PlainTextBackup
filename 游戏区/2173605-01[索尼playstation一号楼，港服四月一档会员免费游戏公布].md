@@ -78,3 +78,13 @@ PS4/PS5《上古卷轴Online Collection: Gold Road》
 
 领取时间为2026年3月3日~2026年4月6日
 
+
+*****
+
+####  ybfelix  
+##### 545#       发表于 2026-2-26 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69234702&amp;ptid=2173605" target="_blank">黑猫软 发表于 2026-2-26 09:10</a>
+《失落星船：马拉松》的服务器压力测试公开试玩周末*将于北京时间2月27日凌晨2点开始，至3月3日凌晨2点结束 ...</blockquote>
+beta客户端没有预载的吗，现在看还没
+
