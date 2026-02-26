@@ -501,3 +501,11 @@ lz怎么知道在内测的快透露点内幕消息
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  sellboy  
+##### 48#       发表于 2026-2-26 20:17
+
+我觉得可能直接抛出一套新的部署工具来，V4不能用LM Studio之类旧工具的理由是这套新工具才可以挂Engram，然后目前还不支持英伟达硬件。
+
