@@ -4380,3 +4380,20 @@ leon线=4
 
 (現階段還是沒打算用風靈，就算有都暫時無視，最低限度都自力通關一次)
 
+
+*****
+
+####  zqqwe  
+##### 1035#       发表于 2026-2-27 23:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69244604&amp;ptid=2252759" target="_blank">洛亚替身 发表于 2026-2-27 22:59</a>
+就是B级片，还是把结局开头缝一块那种，前面格蕾丝刚让游戏氛围拉扯到恐怖片那边，里昂这刚进精神病院就飙 ...</blockquote>
+重制2的雪莉很普通小屁孩模型，还有难绷颜艺。这次emily实属飞跃
+
+*****
+
+####  洛亚替身  
+##### 1036#       发表于 2026-2-27 23:55
+
+我懂了，格蕾丝篇不是恐怖游戏是潜行转圈圈游戏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
