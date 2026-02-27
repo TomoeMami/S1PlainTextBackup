@@ -3109,3 +3109,13 @@ https://www.reddit.com/r/gaming/comments/1r3bcj8/mewge ...</blockquote>
 
 杀进程还要进去看intro动画加载存档，等一个局内重开按钮，不过这个得先等UI框架出来了吧感觉要好久
 
+
+*****
+
+####  harry3  
+##### 253#       发表于 2026-2-27 13:40
+
+【【双语字幕】那些小猫白骨 Them Kitty Bones(Feat. Zoe Lewis)-Mewgenics OST】 [https://www.bilibili.com/video/BV1aBZtBVE4H/](https://www.bilibili.com/video/BV1aBZtBVE4H/)
+
+这个up做的ost合集很精美，翻译质量也好
+
