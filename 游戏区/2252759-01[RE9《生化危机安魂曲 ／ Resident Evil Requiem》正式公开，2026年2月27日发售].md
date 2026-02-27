@@ -4177,3 +4177,11 @@ steam正式版win10目前玩到疗养院没什么问题
 
 这路径光追的女主和无光追女主是同一个人吗？一个和老角色颜值同梯队，另一个跟路边毒虫一样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mikumiku831  
+##### 1017#       发表于 2026-2-27 22:00
+
+第二只大怪是可以杀的吗 好难受
+
