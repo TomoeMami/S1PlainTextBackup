@@ -4746,3 +4746,11 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 这代的抓投过程中依旧不能通过打头来打断，这么恶心的东西感觉比4re还变本加厉了
 
+
+*****
+
+####  如月尤菲  
+##### 1069#       发表于 2026-2-28 04:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">黑白浣熊先生剩最后一个，开了位置提示，可是两个地图都没显示啊
+
