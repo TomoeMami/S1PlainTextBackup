@@ -26,3 +26,11 @@ t0卡组千唤万唤终于出来了，这商鞅法除了遇到守护和快攻外
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  小黑鱼  
+##### 733#       发表于 2026-2-27 14:36
+
+CY:我们这版本精心设计了那么多刷信仰任务卡组怎么能让一个三虹卡组截胡？一定要光速削弱<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
