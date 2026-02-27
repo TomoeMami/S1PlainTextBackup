@@ -54,3 +54,26 @@ AGE1+2的纯正AGE池，你们说这次能送钻么<img src="https://static.stag
 
 反NT机制被AGE摘了桃子，意难平
 
+
+*****
+
+####  洛克萨斯  
+##### 3668#       发表于 2026-2-27 17:13
+
+<img src="https://img.stage1st.com/forum/202602/27/171305avmqw0am100bab0q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 17:13 上传
+
+这格斗射击还需要什么户口啊，太变态了
+
+*****
+
+####  plok201  
+##### 3669#       发表于 2026-2-27 17:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">AGE:口桀口桀，这就是人气低的好处哇
+
