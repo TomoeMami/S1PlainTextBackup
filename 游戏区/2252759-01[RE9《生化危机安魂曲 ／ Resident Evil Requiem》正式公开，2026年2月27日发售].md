@@ -3426,3 +3426,44 @@ ps5pro一个加强版表现最好不是应该的吗
 
 我也没觉得手柄瞄准和前几个RE引擎的有什么不同
 
+
+*****
+
+####  夜雨秋水  
+##### 937#       发表于 2026-2-27 11:48
+
+re4我就瞄不准，稍微试了会果断拔手柄。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  仲可怀  
+##### 938#       发表于 2026-2-27 11:54
+
+凯辅助瞄准呢
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
+*****
+
+####  乔迪奥  
+##### 939#       发表于 2026-2-27 11:56
+
+<img src="https://img.stage1st.com/forum/202602/27/115621p5jv9gjljq8g9wjw.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260227115610.png</strong> (90.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 11:56 上传
+
+<img src="https://img.stage1st.com/forum/202602/27/115621i9k0a2od7lde0pas.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260227115606.png</strong> (94.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 11:56 上传
+
