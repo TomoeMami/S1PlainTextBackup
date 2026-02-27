@@ -170,3 +170,24 @@ a0554cad-a340-4d73-a9d0-9811f6d7afed.png
 
 <img src="https://img.stage1st.com/forum/202602/27/154134n7exx8eem8y27vpe.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FuckSCUT  
+##### 151#       发表于 2026-2-27 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69242231&amp;ptid=2135998" target="_blank">zzy516232108 发表于 2026-2-27 15:39</a>
+
+多大来着，看看要不要删点游戏</blockquote>
+17g，看看200g的cod和117g的战地6吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzy516232108  
+##### 152#       发表于 2026-2-27 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69242382&amp;ptid=2135998" target="_blank">FuckSCUT 发表于 2026-2-27 16:04</a>
+
+17g，看看200g的cod和117g的战地6吧</blockquote>
+我哥们说bungie的贴图都很屎，全靠美术撑着，土命2更新以后的新剧情开场欧洲死区那个蜘蛛坦克他说一眼法线贴图，我也不明白（
+
