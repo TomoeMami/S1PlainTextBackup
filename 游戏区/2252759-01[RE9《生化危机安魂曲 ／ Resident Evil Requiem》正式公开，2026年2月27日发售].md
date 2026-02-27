@@ -4754,3 +4754,11 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">黑白浣熊先生剩最后一个，开了位置提示，可是两个地图都没显示啊
 
+
+*****
+
+####  zhacaizn  
+##### 1070#       发表于 2026-2-28 04:46
+
+感觉戏份分配节奏还是有点问题的，前面以为会交错都给一点戏份，但是里昂都是没爽几分钟就切走了（特别是格蕾丝清完怪后），我甚至看到感觉是欺诈直接退款的。然而后面里昂大段刷怪流程又感觉太同质化，虽然整体算五五开但是还是有点怪
+
