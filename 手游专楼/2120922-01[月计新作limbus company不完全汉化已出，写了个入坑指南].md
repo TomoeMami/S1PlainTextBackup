@@ -491,3 +491,17 @@ LB今年的行程计划，大概八月出第十章“被凝视者”，这之前
 
 不过这游戏最杀时间的活动是镜牢刷箱子，小金想让大家重复玩自走棋的话最好有充足的资源产出...
 
+
+*****
+
+####  Hominidae  
+##### 1260#       发表于 2026-2-27 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69243671&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2026-2-27 19:59</a>
+比较期待自走棋玩法，不知道是娱乐性达标随时都想开一盘，还是可玩性不足拿完奖励就吃灰...
+
+不过这游戏 ...</blockquote>
+不过自走棋要到下个赛季吧，先期待一手，就是不知道你游做自走棋的是怎么个玩法<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

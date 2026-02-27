@@ -4009,3 +4009,21 @@ Grace的部分和二代差不多吧
 关闭旁边的是AMD的FSR</blockquote>
 可以看看win系统设置里的GPU硬件加速是不是关闭了，一样的问题，我最近在荒野里遇到了。
 
+
+*****
+
+####  不灭人形  
+##### 998#       发表于 2026-2-27 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69243636&amp;ptid=2252759" target="_blank">conanoysq 发表于 2026-2-27 19:51</a>
+
+可以看看win系统设置里的GPU硬件加速是不是关闭了，一样的问题，我最近在荒野里遇到了。 ...</blockquote>
+解决了，感谢
+
+*****
+
+####  红魔馆的糖  
+##### 999#       发表于 2026-2-27 20:09
+
+有没有感觉到这帮人有时候说话声音很小的<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
