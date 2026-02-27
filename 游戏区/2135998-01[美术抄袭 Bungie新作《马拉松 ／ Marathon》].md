@@ -210,3 +210,14 @@ uesc通讯天线究竟在哪<img src="https://static.stage1st.com/image/smiley/f
 uesc通讯天线究竟在哪</blockquote>
 我记得到站点了会自动出现一个图标的
 
+
+*****
+
+####  C.W.Nimitz  
+##### 155#       发表于 2026-2-27 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69066395&amp;ptid=2135998" target="_blank">JOJO42 发表于 2026-1-22 09:37</a>
+
+虽然不看好这游戏，不过它这典藏版里一些小玩意还挺有意思的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就这超模高级脸？艾可拉比她顺眼多了
+
