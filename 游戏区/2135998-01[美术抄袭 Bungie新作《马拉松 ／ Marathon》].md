@@ -93,3 +93,11 @@
 
 除非接下来测试口碑崩盘过几天正式版没几个人买。
 
+
+*****
+
+####  FuckSCUT  
+##### 144#       发表于 2026-2-27 13:15
+
+这搜打撤捡垃圾的意义是啥？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">好几把无聊
+
