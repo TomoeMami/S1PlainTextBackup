@@ -77,3 +77,11 @@ AGE1+2的纯正AGE池，你们说这次能送钻么<img src="https://static.stag
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">AGE:口桀口桀，这就是人气低的好处哇
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3670#       发表于 2026-2-27 17:55
+
+当年psp游戏新增的青年福皇剧情能不能加进去，修改一些主线剧情把age更完善一些
+
