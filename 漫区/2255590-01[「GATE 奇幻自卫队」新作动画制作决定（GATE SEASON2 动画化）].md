@@ -567,3 +567,87 @@ PV1：[https://youtu.be/2P40hX1vK1E](https://youtu.be/2P40hX1vK1E)
 原作就不知道了没看 ...</blockquote>
 漫画到异世界三王子联系东大想引兵把大王子和公主推翻，男主组建的探查队和本地神沟通后发现门持续开放会毁灭异世界后连代毁灭联通的世界，需要定期关闭开启。
 
+
+*****
+
+####  wingofsilver  
+##### 60#       发表于 2026-2-27 20:48
+
+可能是记错了，我又下载翻了一遍，除了那个特战，104话有几页这个：
+
+<img src="https://img.stage1st.com/forum/202602/27/204054a4zzrgv5rv2vzq4t.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (223.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 20:40 上传
+
+<img src="https://img.stage1st.com/forum/202602/27/204057rdvb1qx3z5wvwj6l.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (251.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 20:40 上传
+
+<img src="https://img.stage1st.com/forum/202602/27/204100gjhqo2hrrq0nn2cz.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (214.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 20:41 上传
+
+<img src="https://img.stage1st.com/forum/202602/27/204102dd5frqqrorrsll0q.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (207.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 20:41 上传
+
+<img src="https://img.stage1st.com/forum/202602/27/204103yj59w754wjva5xc5.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (190.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 20:41 上传
+
+133话：
+
+<img src="https://img.stage1st.com/forum/202602/27/204815ouypb2ndezakeunr.jpg" referrerpolicy="no-referrer">
+
+<strong>131-1.jpg</strong> (199.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 20:48 上传
+
+<img src="https://img.stage1st.com/forum/202602/27/204816zmsveun4094ie9uu.jpg" referrerpolicy="no-referrer">
+
+<strong>131-2.jpg</strong> (214.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 20:48 上传
+
+<img src="https://img.stage1st.com/forum/202602/27/204818nd1h2o3vmgmyme46.jpg" referrerpolicy="no-referrer">
+
+<strong>131-3.jpg</strong> (165.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 20:48 上传
+
+<img src="https://img.stage1st.com/forum/202602/27/204819vzd77e77xzimmi7w.jpg" referrerpolicy="no-referrer">
+
+<strong>131-4.jpg</strong> (191.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 20:48 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">挺没意思得就
+
