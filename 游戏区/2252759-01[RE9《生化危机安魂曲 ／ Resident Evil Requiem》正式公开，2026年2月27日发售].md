@@ -3155,3 +3155,16 @@ hunk讲道理比三光还老资历吧。到9的时间线都应该快60了,真能
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">分头篇像是在玩TLOU.....这箱子这武装，搁这郊游呢
 
+
+*****
+
+####  无动于衷  
+##### 912#       发表于 2026-2-27 08:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69239491&amp;ptid=2252759" target="_blank">Mikumiku831 发表于 2026-2-27 01:52</a>
+
+不行太生草了 这次新加了NPC生前干啥 被感染后还在干啥的设定  
+
+本来还有点怕的 看到呆呆傻傻的真的乐的不 ...</blockquote>
+我只想戳良子的腚眼（
+
