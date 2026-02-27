@@ -3882,3 +3882,27 @@ Grace的部分和二代差不多吧
 这次有中文配音如何？</blockquote>
 比起英配,其他我能听得懂的语言都相形见绌
 
+
+*****
+
+####  kiralzb  
+##### 985#       发表于 2026-2-27 17:14
+
+外国人都不喜欢撑伞吗，开始就淋雨漫步<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kalavinka  
+##### 986#       发表于 2026-2-27 17:16
+
+这代grace是不是不要省左轮子弹 能爆头就爆头
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  星花  
+##### 987#       发表于 2026-2-27 17:16
+
+是的，不喜欢。
+
