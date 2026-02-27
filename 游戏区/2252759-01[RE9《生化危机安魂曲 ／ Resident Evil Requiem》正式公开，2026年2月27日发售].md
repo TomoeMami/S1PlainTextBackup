@@ -3239,3 +3239,53 @@ hunk讲道理比三光还老资历吧。到9的时间线都应该快60了,真能
 我以为只是主播在播呢，原来只有我的生化9是27日解锁吗？ ...</blockquote>
 赛博新西兰人，最早到27号的
 
+
+*****
+
+####  eilot  
+##### 920#       发表于 2026-2-27 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69239525&amp;ptid=2252759" target="_blank">火红之眼 发表于 2026-2-27 02:33</a>
+
+道具栏这种糟粕什么时候能扔了，初期这8格太弱智了</blockquote>
+這可是傳統來
+
+GRACE編要找道具包每次擴充一個格數，又有ITEMBOX次元箱隨時儲存各種道具，她就是沒甚麼武器可用...
+
+LEON編是4代方式公事包方式，可以在BSAA的電腦來擴充上限，但問題是他沒次元箱
+
+
+*****
+
+####  leavan  
+##### 921#       发表于 2026-2-27 10:04
+
+Digital Foundry 表示，《生化危机安魂曲》在 PS5 Pro 上“独树一帜”，是“该系统性能的真正展现”：
+
+▪️ PS5 Pro 是唯一一款支持光线追踪（反射和实时全局光照）的游戏机。
+
+▪️ PS5 Pro 拥有“卓越的”时间升频解决方案，并且“看起来接近原生 4K”
+
+PS5/Series X 基础版
+
+▪️所有版本均以 60FPS 运行，基础版 PS5/Series X 的画面清晰度“明显低于 Pro 版”。
+
+▪️ 120FPS/非RT模式是PS5 Pro独有的，支持VRR，并且“在视觉上与基础版PS5和Series X完全相同”。
+
+▪️在所有已发售游戏中，角色模型堪称一流
+
+▪️ Series S 的图像质量“不算好”，但运行流畅，没有毛发系统
+
+*****
+
+####  csolfans  
+##### 922#       发表于 2026-2-27 10:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69240220&amp;ptid=2252759" target="_blank">leavan 发表于 2026-2-27 10:04</a>
+Digital Foundry 表示，《生化危机安魂曲》在 PS5 Pro 上“独树一帜”，是“该系统性能的真正展现”：
+
+▪ ...</blockquote>
+数毛社没说Pro的光追模式用的啥超分技术，现在有猜是不是PSSR2.0
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
