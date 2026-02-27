@@ -3388,3 +3388,41 @@ ps5pro一个加强版表现最好不是应该的吗
 
 已经看到好几个直播的吐槽手柄瞄准了，就是瞄不准……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mikumiku831  
+##### 933#       发表于 2026-2-27 11:37
+
+难瞄准的一笔 以前生4生5瞄准不知道多舒服  
+
+7之后无论是瞄准 开枪手感都垃圾的不行 
+
+瞄不准就算了 怪还会躲枪 司马卡普空弄个红点辅助瞄准都不愿意
+
+*****
+
+####  kalavinka  
+##### 934#       发表于 2026-2-27 11:38
+
+昨天玩了两小时还是用破joycon没感觉哪不对啊 用了re引擎后手柄瞄准不一直这样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么这代才吐槽
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  windlikeman  
+##### 935#       发表于 2026-2-27 11:42
+
+原来都瞄不准么 我调了半天感觉都不对劲 明明RE4手柄瞄准还挺舒服的
+
+顺便RE4打多了这个R1吃药已经让我满血吃了三瓶药了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JOJOROY  
+##### 936#       发表于 2026-2-27 11:43
+
+我也没觉得手柄瞄准和前几个RE引擎的有什么不同
+
