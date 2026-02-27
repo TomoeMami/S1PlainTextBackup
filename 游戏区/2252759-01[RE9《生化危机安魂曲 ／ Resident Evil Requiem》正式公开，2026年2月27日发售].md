@@ -4206,3 +4206,22 @@ steam正式版win10目前玩到疗养院没什么问题
 第二只大怪是可以杀的吗 好难受</blockquote>
 东翼的胖子吗，似乎是后面里昂篇的小boss战才能杀
 
+
+*****
+
+####  如月尤菲  
+##### 1020#       发表于 2026-2-27 22:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">居然不能读档二周目
+
+
+*****
+
+####  Jyions  
+##### 1021#       发表于 2026-2-27 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69244130&amp;ptid=2252759" target="_blank">Gwyndolin 发表于 2026-2-27 21:48</a>
+
+卡关了。。。女主地下部分，要拿3个插头。拿第三个插头要先启动起货机，但我找了好久没找到起货机钥匙在哪 ...</blockquote>
+扳手用来打开血池的配电箱，拿两个插头给血池供电，然后往里走起货机钥匙在处理间
+
