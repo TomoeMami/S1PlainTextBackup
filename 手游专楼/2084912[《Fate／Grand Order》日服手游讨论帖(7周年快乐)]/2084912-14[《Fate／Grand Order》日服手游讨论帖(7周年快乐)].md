@@ -68,3 +68,43 @@
 按你游现在的玩法，NP率想要有用，大概只有让NP率能影响NP直充了
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 20570#       发表于 2026-2-26 18:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按说NP率就该这么设计吧 提升NP获得的效率 充能根据额外NP率增加
+
+*****
+
+####  都谷捻柏  
+##### 20571#       发表于 2026-2-26 18:11
+
+np率开服那会儿还是有用的，那会儿还是有指令卡打np的机会，现在就纯纯的恶心人了。
+
+*****
+
+####  壳壳牛  
+##### 20572#       发表于 2026-2-26 18:44
+
+给个溢出np保留到下回合的技能，副作用无法触发oc效果
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  exiaexa  
+##### 20573#       发表于 2026-2-27 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69237874&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2026-2-26 18:11</a>
+
+np率开服那会儿还是有用的，那会儿还是有指令卡打np的机会，现在就纯纯的恶心人了。 ...</blockquote>
+开服也是没用的，公认的废物技能，甚至都不建议点
+
+唯一有用的是茄子在1.4解锁的钻石率
+
+后面是各种单蓝超人，NP率真的有用是再后面斯卡蒂出来以后
+
+各种缺口气的绿光炮刚需NP率，然后才是C呆带来的蓝卡革命
+
