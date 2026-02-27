@@ -191,3 +191,22 @@ a0554cad-a340-4d73-a9d0-9811f6d7afed.png
 17g，看看200g的cod和117g的战地6吧</blockquote>
 我哥们说bungie的贴图都很屎，全靠美术撑着，土命2更新以后的新剧情开场欧洲死区那个蜘蛛坦克他说一眼法线贴图，我也不明白（
 
+
+*****
+
+####  殿珣  
+##### 153#       发表于 2026-2-27 16:38
+
+uesc通讯天线究竟在哪<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  请问有猪扒饭吗  
+##### 154#       发表于 2026-2-27 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69242598&amp;ptid=2135998" target="_blank">殿珣 发表于 2026-2-27 16:38</a>
+
+uesc通讯天线究竟在哪</blockquote>
+我记得到站点了会自动出现一个图标的
+
