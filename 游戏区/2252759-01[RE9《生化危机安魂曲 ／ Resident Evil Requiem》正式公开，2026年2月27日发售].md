@@ -4657,3 +4657,11 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 用斧头弹了暴君攻击后，暴君一脸难以置信的表情笑死我了，“咱俩tmd到底谁是bow？”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/31/c24a433e4b2a682f8a837ab0cba22903/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jxzeroga0  
+##### 1060#       发表于 2026-2-28 02:04
+
+传统难度打到疗养院地下，格蕾丝意外的战斗爽，摸清地图后规划下路线屠夫巨婴全杀光全收集还是不难的。吃过三个威力加强剂后用加强的手枪杀怪也很快，完全不输给李三光。
+
