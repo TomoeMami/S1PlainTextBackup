@@ -659,3 +659,19 @@ api还是3.2的，可以用api来写</blockquote>
 
 当然这个只是针对3.2的提示词，不清楚对v4lite有没有用
 
+
+*****
+
+####  万恶淫猥手  
+##### 63#         楼主| 发表于 2026-2-27 08:52
+
+我最喜欢看英伟达
+
+<img src="https://img.stage1st.com/forum/202602/27/085154jnxaa5xkorjwj9hr.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0585.jpeg</strong> (147.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 08:51 上传
+
