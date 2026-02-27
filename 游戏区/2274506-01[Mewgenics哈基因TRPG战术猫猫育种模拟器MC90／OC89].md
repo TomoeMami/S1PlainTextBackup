@@ -3203,3 +3203,24 @@ https://www.bilibili.com/vid ...</blockquote>
 
 请教下打完大蜘蛛怎么解锁下一关？有个血肉墙让我猫 上去啃结果啃不动。
 
+
+*****
+
+####  leeskies  
+##### 260#       发表于 2026-2-27 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69242937&amp;ptid=2274506" target="_blank">zwqcm 发表于 2026-2-27 17:37</a>
+
+所以我现在高属性的（3个7左右）猫全是近亲出来的，要怎么减少畸形概率。是应该在繁殖房多放野猫+一只畸 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">找一只流浪猫能和高属性旧猫互补的，例如
+
+777444
+
+555666
+
+然后就是上面结论的按第一阶段第二阶段操作
+
+减少畸形只能少近亲繁殖，靠二阶段的洗血
+
+（其实这些视频里都说得挺详细了
+
