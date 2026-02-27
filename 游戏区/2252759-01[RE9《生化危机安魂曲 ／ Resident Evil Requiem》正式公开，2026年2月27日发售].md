@@ -4079,3 +4079,26 @@ Grace的部分和二代差不多吧
 
 喷了，丧尸竟然是1RE那种打死又会复活的，瞬间难度提升一个档次了。
 
+
+*****
+
+####  Mikumiku831  
+##### 1005#       发表于 2026-2-27 20:50
+
+尖叫怪是真弱智啊 好几枪头没硬值 单独一只就算了前后还有其他怪 打的很气
+
+
+*****
+
+####  里村紅葉  
+##### 1006#       发表于 2026-2-27 20:54
+
+感觉缝了一大堆前作，还有恶灵附身<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  社友者  
+##### 1007#       发表于 2026-2-27 20:55
+
+切换视角是个伟大的设计<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
