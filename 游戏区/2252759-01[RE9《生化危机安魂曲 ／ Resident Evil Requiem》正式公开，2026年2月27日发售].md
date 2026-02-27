@@ -4225,3 +4225,13 @@ steam正式版win10目前玩到疗养院没什么问题
 卡关了。。。女主地下部分，要拿3个插头。拿第三个插头要先启动起货机，但我找了好久没找到起货机钥匙在哪 ...</blockquote>
 扳手用来打开血池的配电箱，拿两个插头给血池供电，然后往里走起货机钥匙在处理间
 
+
+*****
+
+####  canti  
+##### 1022#       发表于 2026-2-27 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69244180&amp;ptid=2252759" target="_blank">Mikumiku831 发表于 2026-2-27 22:00</a>
+第二只大怪是可以杀的吗 好难受</blockquote>
+两个唱歌怪、一个屠夫、一个肥仔，女主杀掉都有成就的
+
