@@ -3619,3 +3619,13 @@ N卡昨天的RE9對應新驅動是不是有什麼問題,他們似乎臨時下架
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">系列新人，开头玩了一会好吓人，先退款了
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 956#       发表于 2026-2-27 14:49
+
+ 本帖最后由 Lorraine_Kinney 于 2026-2-27 14:52 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这代细节非常满弄得好整蛊，这电锯太好笑了，掉地上跟陀螺一样碰到会掉血，其他僵尸拿地上电锯的优先度是高于攻击你的
+
