@@ -3957,3 +3957,13 @@ Grace的部分和二代差不多吧
 喷了，还能遇到豆腐
 <img src="https://p.sda1.dev/31/1bf4f3db148d9c471a256c2ea1de5d04/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wsdbyh  
+##### 994#       发表于 2026-2-27 18:18
+
+<blockquote>大金刚剑桥鼓掌 发表于 2026-2-27 16:39
+这次有中文配音如何？</blockquote>
+这次中配水平感觉和生4重制差不多。但是英配格蕾斯出来的效果实在是太屌了
+
