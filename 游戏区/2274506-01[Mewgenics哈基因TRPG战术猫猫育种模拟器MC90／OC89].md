@@ -3251,3 +3251,19 @@ https://www.bilibili.com/vid ...</blockquote>
 
 如果不打隐藏关，墓地和山洞打穿应该就解锁act2沙漠了
 
+
+*****
+
+####  leeskies  
+##### 263#       发表于 2026-2-28 02:21
+
+<img src="https://img.stage1st.com/forum/202602/28/021956p57txx5j7a7ijajz.png" referrerpolicy="no-referrer">
+
+<strong>13114E680CFF875C6BC9CEAC3313FA69.png</strong> (266.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-28 02:19 上传
+
+act1跑点金币和道具，进了一个山洞事件，法爷猫进去之后变异了。
+
