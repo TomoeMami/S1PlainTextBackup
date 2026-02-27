@@ -229,3 +229,14 @@ uesc通讯天线究竟在哪</blockquote>
 
 柱列区的感染建筑的门一直都打不开……是bug还是要有什么前提条件？
 
+
+*****
+
+####  m98626  
+##### 157#       发表于 2026-2-27 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69243238&amp;ptid=2135998" target="_blank">Sopp 发表于 2026-2-27 18:32</a>
+
+柱列区的感染建筑的门一直都打不开……是bug还是要有什么前提条件？</blockquote>
+走房顶进去
+

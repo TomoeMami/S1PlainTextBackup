@@ -4027,3 +4027,37 @@ Grace的部分和二代差不多吧
 
 有没有感觉到这帮人有时候说话声音很小的<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  double8G  
+##### 1000#       发表于 2026-2-27 20:16
+
+经常D3D报错咋办，开局就崩溃调低了画质能玩了但是还是常见贴图丢失，结果等到了分头第二关上来一波僵尸潮清完后又跳了同样的报错……
+
+
+*****
+
+####  平贺才人  
+##### 1001#       发表于 2026-2-27 20:20
+
+<img src="https://img.stage1st.com/forum/202602/27/202006zdfrzur66bbzb5rz.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9aQ2x-g55eK20T3cSzk-jq.webp</strong> (71.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 20:20 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也差的太大了点
+
+
+*****
+
+####  红魔馆的糖  
+##### 1002#       发表于 2026-2-27 20:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69243767&amp;ptid=2252759" target="_blank">平贺才人 发表于 2026-2-27 20:20</a>
+这也差的太大了点</blockquote>
+女主的第三人称建模应该是单独的，过场的实时演算和cg都挺好看的，平时的建模开了光追也难看。流程也是，感觉就是纯做了第一人称之后补得越肩视角
+
