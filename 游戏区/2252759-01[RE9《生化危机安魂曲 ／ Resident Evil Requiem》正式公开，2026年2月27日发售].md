@@ -4641,3 +4641,19 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 这作不能调鼠标灵敏度吗，转视角鼠标要划好多下</blockquote>
 第三人称第一人称那里可以点进去有2级菜单
 
+
+*****
+
+####  红魔馆的糖  
+##### 1058#       发表于 2026-2-28 01:48
+
+钱币多了好多，开完几个柜子，剩下的都没用了么
+
+*****
+
+####  不见不散  
+##### 1059#       发表于 2026-2-28 01:52
+
+用斧头弹了暴君攻击后，暴君一脸难以置信的表情笑死我了，“咱俩tmd到底谁是bow？”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/c24a433e4b2a682f8a837ab0cba22903/image.jpg" referrerpolicy="no-referrer">
+
