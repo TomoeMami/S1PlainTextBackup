@@ -3760,3 +3760,46 @@ bio9是D加密吗？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">比re4恐怖几成？我能接受的恐怖上限就到4
 
+
+*****
+
+####  卡拉德利姆  
+##### 972#       发表于 2026-2-27 16:28
+
+那格蕾丝线应该够呛
+
+*****
+
+####  u2deack  
+##### 973#       发表于 2026-2-27 16:29
+
+碰到第一个警察僵尸这段演出不错，但是格蕾丝一直wth我都笑了出来
+
+
+*****
+
+####  bingo0716  
+##### 974#       发表于 2026-2-27 16:32
+
+我错了，不只是手柄不好瞄准，这怪多动症比+延迟感很高的瞄准，鼠标一样打不中
+
+*****
+
+####  1096beam  
+##### 975#       发表于 2026-2-27 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69242528&amp;ptid=2252759" target="_blank">seki_m 发表于 2026-2-27 16:26</a>
+
+这代比re4恐怖几成？我能接受的恐怖上限就到四代</blockquote>
+再生者那段没问题的话再配个第三人称问题不大
+
+*****
+
+####  seki_m  
+##### 976#       发表于 2026-2-27 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69242565&amp;ptid=2252759" target="_blank">1096beam 发表于 2026-2-27 16:33</a>
+
+再生者那段没问题的话再配个第三人称问题不大</blockquote>
+谢谢，那我先云这个片段
+
