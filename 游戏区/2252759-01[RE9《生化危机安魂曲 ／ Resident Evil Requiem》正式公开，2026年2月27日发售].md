@@ -3147,3 +3147,11 @@ hunk讲道理比三光还老资历吧。到9的时间线都应该快60了,真能
 
 —— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  火红之眼  
+##### 911#       发表于 2026-2-27 08:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">分头篇像是在玩TLOU.....这箱子这武装，搁这郊游呢
+
