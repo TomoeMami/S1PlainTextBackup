@@ -3611,3 +3611,11 @@ N卡昨天的RE9對應新驅動是不是有什麼問題,他們似乎臨時下架
 
 同时在线居然这么高，这卡普空属实一线大厂，又大卖了
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 955#       发表于 2026-2-27 14:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">系列新人，开头玩了一会好吓人，先退款了
+
