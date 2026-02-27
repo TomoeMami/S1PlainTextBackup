@@ -4162,3 +4162,18 @@ steam正式版win10目前玩到疗养院没什么问题
 经常被女主吓到，然后才意识到刚才有吓人的内容。</blockquote>
 对的，跟恐怖元素提词器一样，能弄出来这类型角色卡婊简直是天才，以后恐怖游戏都可以弄这种主角<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gwyndolin  
+##### 1015#       发表于 2026-2-27 21:48
+
+卡关了。。。女主地下部分，要拿3个插头。拿第三个插头要先启动起货机，但我找了好久没找到起货机钥匙在哪（锅炉房的扳手也拿了，不知道在哪互动）
+
+*****
+
+####  洛亚替身  
+##### 1016#       发表于 2026-2-27 21:50
+
+这路径光追的女主和无光追女主是同一个人吗？一个和老角色颜值同梯队，另一个跟路边毒虫一样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
