@@ -48,3 +48,25 @@ PV1：[https://youtu.be/c4-6PwVRRj8](https://youtu.be/c4-6PwVRRj8)
 
 像是漫区话题度会很高的片子
 
+
+*****
+
+####  水莲寺流歌  
+##### 53#       发表于 2026-2-27 19:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">pv越强调王子这个身份越觉得不会是简单的boy meet girl剧情
+
+*****
+
+####  MASKA-1  
+##### 54#       发表于 2026-2-27 19:13
+
+黑毛相关的内容pv里没怎么露
+
+*****
+
+####  moras2694  
+##### 55#       发表于 2026-2-27 19:13
+
+画面看起来不错，还是原创，来吧来吧<img src="https://static.stage1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">，一月的辉夜姬算原创电影，四月忘了有啥了，今年的原创tv大舞台看看有啥
+
