@@ -381,3 +381,15 @@ zero那本 ...</blockquote>
 
 如果黑道哥沒退讓說以後絕對不提這事，黑道哥就當場到此為止了。
 
+
+*****
+
+####  zakki  
+##### 1053#       发表于 2026-2-27 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69237500&amp;ptid=2086574" target="_blank">性急的蜗牛 发表于 2026-2-26 17:07</a>
+我刚看完FGO2.5前篇，现在是完全的伊阿宋铁粉状态
+
+话说Avenger的海格力斯为什么能被伊斯塔压着打，而且当 ...</blockquote>
+没用全力，都是互相试探而已。不过都用全力打不过带天牛的伊什塔尔
+
