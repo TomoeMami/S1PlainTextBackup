@@ -4623,3 +4623,21 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 —— 来自 Xiaomi 22127RK46C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  樽——見  
+##### 1056#       发表于 2026-2-28 01:39
+
+好玩到起飞。
+
+*****
+
+####  樽——見  
+##### 1057#       发表于 2026-2-28 01:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69245096&amp;ptid=2252759" target="_blank">manyin1 发表于 2026-2-28 01:22</a>
+
+这作不能调鼠标灵敏度吗，转视角鼠标要划好多下</blockquote>
+第三人称第一人称那里可以点进去有2级菜单
+
