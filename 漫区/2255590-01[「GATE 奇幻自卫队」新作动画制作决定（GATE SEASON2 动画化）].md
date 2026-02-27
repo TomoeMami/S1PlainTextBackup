@@ -651,3 +651,14 @@ PV1：[https://youtu.be/2P40hX1vK1E](https://youtu.be/2P40hX1vK1E)
 
 <img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">挺没意思得就
 
+
+*****
+
+####  wingofsilver  
+##### 61#       发表于 2026-2-27 20:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68160370&amp;ptid=2255590" target="_blank">gold013 发表于 2025-7-26 02:52</a>
+
+偶然刷到漫画更新，看到最新一话，感觉100话之后开始有些放飞自我了，甚至主动卷入“殖民地”内战，至于⏰ ...</blockquote>
+野上武志也画过一个“朝鲜王子”在鬼子军跟美少女们在战舰（外形类似日俄时期得三笠）上活动得漫画；感觉这类作品都是在复刻朝鲜、我国东北那点破事，鬼子就是怀念赌国运成功占领朝鲜东北那几年...
+
