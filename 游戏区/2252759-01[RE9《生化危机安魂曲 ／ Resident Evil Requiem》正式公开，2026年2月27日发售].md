@@ -3996,3 +3996,16 @@ Grace的部分和二代差不多吧
 
 关闭旁边的是AMD的FSR
 
+
+*****
+
+####  conanoysq  
+##### 997#       发表于 2026-2-27 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69243333&amp;ptid=2252759" target="_blank">不灭人形 发表于 2026-2-27 18:47</a>
+
+为什么我4070显卡画面设置里没有英伟达的帧生成
+
+关闭旁边的是AMD的FSR</blockquote>
+可以看看win系统设置里的GPU硬件加速是不是关闭了，一样的问题，我最近在荒野里遇到了。
+
