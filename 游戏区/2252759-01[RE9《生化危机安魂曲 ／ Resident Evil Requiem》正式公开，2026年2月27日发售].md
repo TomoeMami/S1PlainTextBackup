@@ -3187,3 +3187,23 @@ hunk讲道理比三光还老资历吧。到9的时间线都应该快60了,真能
 不过疗养院开头分头就死了5次了，还有被拦腰锯断的，感觉 ...</blockquote>
 斧子改大点都要当斧王玩了。
 
+
+*****
+
+####  lighttt  
+##### 915#       发表于 2026-2-27 08:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69239082&amp;ptid=2252759" target="_blank">hkguty 发表于 2026-2-26 23:07</a>
+麻痹傻逼剧透直接把威斯克放视频封面，我cnmd</blockquote>
+所以你也剧透给别人吗
+
+—— 来自 OPPO PHY110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  如月尤菲  
+##### 916#       发表于 2026-2-27 09:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">警局二楼那个箱子密码提示在哪找啊，找了半天没找到
+
