@@ -3592,3 +3592,14 @@ N卡昨天的RE9對應新驅動是不是有什麼問題,他們似乎臨時下架
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开局PC在线22W历史最高了，应该又要给卡表赚麻了
 
+
+*****
+
+####  h122h  
+##### 953#       发表于 2026-2-27 13:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69241564&amp;ptid=2252759" target="_blank">D-JoeII 发表于 2026-2-27 13:43</a>
+
+N卡昨天的RE9對應新驅動是不是有什麼問題,他們似乎臨時下架了?</blockquote>
+新驱动会导致显卡风扇出现异常
+
