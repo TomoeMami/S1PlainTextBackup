@@ -674,3 +674,13 @@ LB今年的行程计划，大概八月出第十章“被凝视者”，这之前
 
 最后小金这个地雷妹皮套给我看力竭了。
 
+
+*****
+
+####  Hominidae  
+##### 1263#       发表于 2026-2-28 02:56
+
+联动就是消耗了太多产能<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虽然做的还算挺不错的，但是我当时就和朋友说我更想看小金把更多的产能拿来讲自己的故事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
