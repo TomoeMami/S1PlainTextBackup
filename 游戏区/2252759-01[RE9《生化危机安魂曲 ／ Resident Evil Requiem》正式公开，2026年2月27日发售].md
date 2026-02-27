@@ -3629,3 +3629,23 @@ N卡昨天的RE9對應新驅動是不是有什麼問題,他們似乎臨時下架
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这代细节非常满弄得好整蛊，这电锯太好笑了，掉地上跟陀螺一样碰到会掉血，其他僵尸拿地上电锯的优先度是高于攻击你的
 
+
+*****
+
+####  kalavinka  
+##### 957#       发表于 2026-2-27 14:55
+
+第一章拼高达拿手环有点难绷<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  1096beam  
+##### 958#       发表于 2026-2-27 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69241942&amp;ptid=2252759" target="_blank">Lorraine_Kinney 发表于 2026-2-27 14:49</a>
+
+这代细节非常满弄得好整蛊，这电锯太好笑了，掉地上跟陀螺一样碰到会掉血，其他僵尸拿地上电锯的优先度是高 ...</blockquote>
+纯关卡设计失败，又要你用电锯爽又不给你太爽
+
