@@ -3267,3 +3267,16 @@ https://www.bilibili.com/vid ...</blockquote>
 
 act1跑点金币和道具，进了一个山洞事件，法爷猫进去之后变异了。
 
+
+*****
+
+####  子虚乌有  
+##### 264#       发表于 2026-2-28 07:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69244839&amp;ptid=2274506" target="_blank">tonyunreal 发表于 2026-2-27 23:51</a>
+
+墓地那条路也要打，墓地和山洞最后各有一个肉墙
+
+两个肉墙都放上指定的house boss掉落的任务道具，就能解 ...</blockquote>
+收到，我之前看每个分支写着困难还以为得等打通了再回来挑战呢。
+
