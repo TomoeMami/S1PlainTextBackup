@@ -505,3 +505,162 @@ LB今年的行程计划，大概八月出第十章“被凝视者”，这之前
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Jamaisvu  
+##### 1261#       发表于 2026-2-27 20:21
+
+小金：第九章做的不错，奖励自己一个动画短片。
+
+【[边狱公司] 3周年纪念动画-哔哩哔哩】 https://b23.tv/52bXJDd
+
+做的实在是太艺术了，忍不住截了好多图：
+
+<img src="https://img.stage1st.com/forum/202602/27/201010u0axqnzvzwzccb20.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260227_200246.jpg</strong> (141.49 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-27 20:10 上传
+
+优雅的拇指师徒。
+
+<img src="https://img.stage1st.com/forum/202602/27/201010kka8add8uuatrdvf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260227_200257.jpg</strong> (156 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-27 20:10 上传
+
+维导的气质太忧郁了，像饿脱了相的李箱（误）
+
+<img src="https://img.stage1st.com/forum/202602/27/201011n0dah20p8ph3rho2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260227_200310.jpg</strong> (135.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-27 20:10 上传
+
+里恩无悲无喜的杀戮着，左胸的赫尔墨斯仿佛心脏一般接管着他的人生。
+
+<img src="https://img.stage1st.com/forum/202602/27/201011m5555o6ee155ol5u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260227_200349.jpg</strong> (170.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-27 20:10 上传
+
+电光火石间，色彩与长兄在一个孩子身上决出胜负。
+
+<img src="https://img.stage1st.com/forum/202602/27/201011immwcmwjynl7fl6m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260227_200405.jpg</strong> (159.28 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-27 20:10 上传
+
+环指二人组。
+
+<img src="https://img.stage1st.com/forum/202602/27/201012vrg7os6g6co9diz6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260227_200419.jpg</strong> (159.19 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-27 20:10 上传
+
+小金是用五协辛和花札玛通的这关？
+
+<img src="https://img.stage1st.com/forum/202602/27/201012h4k9f945zzfz4rnm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260227_200445.jpg</strong> (155.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-27 20:10 上传
+
+正在觉醒金枝权能的神秘钟表头。
+
+<img src="https://img.stage1st.com/forum/202602/27/201012za3urlxao5iotsxg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260227_200459.jpg</strong> (159.76 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-27 20:10 上传
+
+你看到的我，是哪一种颜色，悲伤或快乐，也许老了一点，眼神变得不再那么清澈，热血依然沸腾着我的脉搏。
+
+<img src="https://img.stage1st.com/forum/202602/27/201013njjbbjs8t788kklt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260227_200508.jpg</strong> (155.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-27 20:10 上传
+
+良秀盛世美颜。
+
+<img src="https://img.stage1st.com/forum/202602/27/201013r3shs35fs55rr6ss.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260227_200526.jpg</strong> (85.98 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-27 20:10 上传
+
+猩红凝视的压迫感，这一刻他是凯撒，是屋大维，是卡里古拉，是尼禄，罗马的独裁者和暴君聚于一身，他为新生者洗礼，为蒙尘者送葬。
+
+<img src="https://img.stage1st.com/forum/202602/27/201013ugpredpifmrr3phr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260227_200640.jpg</strong> (128.28 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-27 20:10 上传
+
+未来辛这发型好像钢炼的男主啊...现在的身高也很像...
+
+<img src="https://img.stage1st.com/forum/202602/27/201013tu4lakkeeoh6ezak.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260227_200714.jpg</strong> (136.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-27 20:10 上传
+
+神似双面人的里恩，可惜他连抛硬币决定命运的机会都没有...
+
+<img src="https://img.stage1st.com/forum/202602/27/201014e5ww9f54lw32zv69.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260227_200735.jpg</strong> (131.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-2-27 20:10 上传
+
+索命死神般的良秀。
+
+不知不觉月亮计划已经从那个草台班子进化成手游大厂了，接下来是不是该到处联动和出动画片了？
+
+虽然周年庆生放送不用录播、全靠小金即兴尬聊这点依然很草台，本来有机会看良秀赛季人格PV的，愣是被他搞丢了...
+
