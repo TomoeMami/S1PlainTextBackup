@@ -132,3 +132,41 @@
 
 所以近距离语音系统也是游戏的一环……
 
+
+*****
+
+####  zzy516232108  
+##### 148#       发表于 2026-2-27 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69241466&amp;ptid=2135998" target="_blank">请问有猪扒饭吗 发表于 2026-2-27 13:23</a>
+
+单人跑刀倒地了还能在地上爬是何意味，等着敌人来扶吗？还是说有什么能自扶的东西？ ...</blockquote>
+说是可以爬到撤离点
+
+*****
+
+####  zzy516232108  
+##### 149#       发表于 2026-2-27 15:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多大来着，看看要不要删点游戏
+
+
+*****
+
+####  m98626  
+##### 150#       发表于 2026-2-27 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69241466&amp;ptid=2135998" target="_blank">请问有猪扒饭吗 发表于 2026-2-27 13:23</a>
+
+单人跑刀倒地了还能在地上爬是何意味，等着敌人来扶吗？还是说有什么能自扶的东西？ ...</blockquote>
+倒地也可以捡起这玩意
+
+a0554cad-a340-4d73-a9d0-9811f6d7afed.png
+(847.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 15:41 上传
+
+<img src="https://img.stage1st.com/forum/202602/27/154134n7exx8eem8y27vpe.png" referrerpolicy="no-referrer">
+
