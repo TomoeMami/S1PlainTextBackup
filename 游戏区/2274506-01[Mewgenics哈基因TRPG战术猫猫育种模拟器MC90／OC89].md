@@ -3119,3 +3119,17 @@ https://www.reddit.com/r/gaming/comments/1r3bcj8/mewge ...</blockquote>
 
 这个up做的ost合集很精美，翻译质量也好
 
+
+*****
+
+####  观炬镜  
+##### 254#       发表于 2026-2-27 15:22
+
+<blockquote>leeskies 发表于 2026-2-26 19:13
+所以前面楼友有分享无痛杀进程</blockquote>
+任务管理器，详细信息，关闭进程树
+
+不用走steam强行关闭，很方便
+
+当然真受不了被史蒂文嘴臭不如直接打个mod让他闭嘴，我是把这个sl惩罚当资源管理的一部分来玩的
+
