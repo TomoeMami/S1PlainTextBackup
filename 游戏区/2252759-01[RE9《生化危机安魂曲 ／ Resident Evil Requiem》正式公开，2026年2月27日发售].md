@@ -4682,3 +4682,41 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 问下是不是能注射溶血的僵尸都没真死？</blockquote>
 已经躺地上的不用溶解针，因为不一定会复活，但站着的最好都用溶解针给炸了以免复活，我记得那种上身赤裸的尼哥必复活成红头，最好用针炸了
 
+
+*****
+
+####  eilot  
+##### 1063#       发表于 2026-2-28 02:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69245161&amp;ptid=2252759" target="_blank">jxzeroga0 发表于 2026-2-28 02:04</a>
+
+传统难度打到疗养院地下，格蕾丝意外的战斗爽，摸清地图后规划下路线屠夫巨婴全杀光全收集还是不难的。吃过 ...</blockquote>
+見到配方有火力加強藥，和硬幣都能換
+
+能升到多少次?
+
+
+*****
+
+####  jxzeroga0  
+##### 1064#       发表于 2026-2-28 02:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69245177&amp;ptid=2252759" target="_blank">eilot 发表于 2026-2-28 02:19</a>
+見到配方有火力加強藥，和硬幣都能換
+
+能升到多少次?</blockquote>
+疗养院三晶石开场这一章用币换一个，能捡到3个空药瓶合成三次，一共四次。后面应该还能继续强化。
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  红魔馆的糖  
+##### 1065#       发表于 2026-2-28 02:24
+
+ 本帖最后由 红魔馆的糖 于 2026-2-28 02:25 编辑 
+
+还以为格蕾丝是废物点心只会叫和潜行，没想到资源搜刮上来之后谁也不怕就是干，资源越打越多<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+这个虽然路上的怪都吓人，但是只要活着的都能宰的味儿太正了
+
