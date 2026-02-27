@@ -526,3 +526,11 @@ PV1：[https://youtu.be/2P40hX1vK1E](https://youtu.be/2P40hX1vK1E)
 
 製作：Kasagi Labo、Oshi
 
+
+*****
+
+####  谢晓暮  
+##### 56#       发表于 2026-2-27 14:10
+
+当年还在说这是集齐三大法的动画
+

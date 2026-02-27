@@ -403,3 +403,18 @@ zero那本 ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  性急的蜗牛  
+##### 1055#       发表于 2026-2-27 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69239612&amp;ptid=2086574" target="_blank">Niu 发表于 2026-2-27 06:17</a>
+
+什麼不在意。
+
+如果黑道哥沒退讓說以後絕對不提這事，黑道哥就當場到此為止了。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">原来哪里的意思是“再多说一句就弄死你”么？
+
+听起来明明就像：“他确实是个白痴，但毕竟是我认识的人所以算了吧”“好的虽然我没说错，但考虑到合作关系还是不说了”……
+
