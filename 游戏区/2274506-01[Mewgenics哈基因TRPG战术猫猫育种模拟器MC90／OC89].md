@@ -3172,3 +3172,14 @@ https://www.reddit.com/r/gaming/comments/1r3bcj8/mewge ...</blockquote>
 原本是进场给2灵魂链接的，现在磨损进场只有一个敌人有链接，场上也 ...</blockquote>
 BUG吧,我用过好几次,没有问题的.
 
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 257#       发表于 2026-2-27 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69242513&amp;ptid=2274506" target="_blank">lmclmc2 发表于 2026-2-27 16:23</a>
+
+BUG吧,我用过好几次,没有问题的.</blockquote>
+我也是昨天打了三四场都没问题，今天上来就这样了。貌似这个BUG还是影响单次探索的，每一场战斗都是只有单链接<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
