@@ -4585,3 +4585,30 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 <img src="https://img.stage1st.com/forum/202602/28/011009j4thjm1qxttqtxj1.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛亚替身  
+##### 1052#       发表于 2026-2-28 01:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69245003&amp;ptid=2252759" target="_blank">Lorraine_Kinney 发表于 2026-2-28 00:34</a>
+
+设定上是这样，但不用浪费，疗养院不是每一个都会变红头僵尸
+
+我遇到过会复活的普通僵尸就只有解剖室拿骨锯 ...</blockquote>
+我这仓鼠起手就用溶血把这俩秒了，后面还有大怪吗？<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  manyin1  
+##### 1053#       发表于 2026-2-28 01:22
+
+这作不能调鼠标灵敏度吗，转视角鼠标要划好多下
+
+*****
+
+####  iamleoy  
+##### 1054#       发表于 2026-2-28 01:23
+
+生化9比忍龙4实诚，生化9说平衡里昂格蕾丝的戏份人家是真平衡，甚至我体感里昂还多一点。忍龙4说要平衡八云隼龙戏份结果也就七三开而且隼龙喜提鬼泣4同款正反走
+
