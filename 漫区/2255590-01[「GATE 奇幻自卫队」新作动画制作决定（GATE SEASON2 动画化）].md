@@ -534,3 +534,11 @@ PV1：[https://youtu.be/2P40hX1vK1E](https://youtu.be/2P40hX1vK1E)
 
 当年还在说这是集齐三大法的动画
 
+
+*****
+
+####  wingofsilver  
+##### 57#       发表于 2026-2-27 15:54
+
+<img src="https://static.stage1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">隐约记得好像第一季后面已经开始和其他世界大国的异世界远征军接触了？ 什么神奇的虚拟和显示世界联动2333
+

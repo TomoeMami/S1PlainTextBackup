@@ -3133,3 +3133,29 @@ https://www.reddit.com/r/gaming/comments/1r3bcj8/mewge ...</blockquote>
 
 当然真受不了被史蒂文嘴臭不如直接打个mod让他闭嘴，我是把这个sl惩罚当资源管理的一部分来玩的
 
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 255#       发表于 2026-2-27 15:44
+
+这个羽毛是翻译问题还是机制还是BUG？
+
+原本是进场给2灵魂链接的，现在磨损进场只有一个敌人有链接，场上也没有伪装怪。
+
+<img src="https://img.stage1st.com/forum/202602/27/154332pycrm2rkooyqmdry.png" referrerpolicy="no-referrer">
+
+<strong>BDFAE513862815999A8BD9CBBDF0B5E1.png</strong> (361.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 15:43 上传
+
+<img src="https://img.stage1st.com/forum/202602/27/154331bqaygzctgh92upc5.png" referrerpolicy="no-referrer">
+
+<strong>7143ACF99D8F0418B9D075E87C170A17.png</strong> (2.09 MB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 15:43 上传
+
