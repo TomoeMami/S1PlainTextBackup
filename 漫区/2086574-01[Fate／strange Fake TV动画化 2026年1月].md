@@ -418,3 +418,21 @@ zero那本 ...</blockquote>
 
 听起来明明就像：“他确实是个白痴，但毕竟是我认识的人所以算了吧”“好的虽然我没说错，但考虑到合作关系还是不说了”……
 
+
+*****
+
+####  岸浪白野  
+##### 1056#       发表于 2026-2-27 19:12
+
+之前听过第9集质量挺好的消息，还真到成田自己都出来说了
+
+当然现在也已经能看到第9集的staff表了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202602/27/190740be8ozase865lxzug.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (568.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 19:07 上传
+
