@@ -4318,3 +4318,36 @@ leon线=4
 就是B级片，还是把结局开头缝一块那种，前面格蕾丝刚让游戏氛围拉扯到恐怖片那边，里昂这刚进精神病院就飙 ...</blockquote>
 没错，太割裂了，起码不要切换的那么频繁。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 1031#       发表于 2026-2-27 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69244595&amp;ptid=2252759" target="_blank">大厨麦当牛 发表于 2026-2-27 22:58</a>
+
+格蕾丝线所有的怪格蕾丝都能杀，用溶血针背后暗杀是最高效的，手枪只是打硬直然后上针的工具。如果用手枪当 ...</blockquote>
+巨嬰要幫他打3針，但每次都要繞路去他背後才能打
+
+就是沒太多安魂曲子曲，所以沒勇氣去射巨大女鬼，因為一捉就容易即死...
+
+
+*****
+
+####  大厨麦当牛  
+##### 1032#       发表于 2026-2-27 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69244653&amp;ptid=2252759" target="_blank">eilot 发表于 2026-2-27 23:08</a>
+
+巨嬰要幫他打3針，但每次都要繞路去他背後才能打
+
+就是沒太多安魂曲子曲，所以沒勇氣去射巨大女鬼，因為 ...</blockquote>
+巨大女鬼？怕光的那个是章节boss杀不了
+
+*****
+
+####  Mikumiku831  
+##### 1033#       发表于 2026-2-27 23:17
+
+下地下前里昂没去右侧后面还能去吗 md一进三楼剧情完又切回格蕾丝了
+
