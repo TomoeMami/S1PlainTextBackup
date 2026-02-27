@@ -4397,3 +4397,22 @@ leon线=4
 
 我懂了，格蕾丝篇不是恐怖游戏是潜行转圈圈游戏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AKAKUTIBA  
+##### 1037#       发表于 2026-2-28 00:02
+
+剧情真的烂爆
+
+*****
+
+####  和菜头  
+##### 1038#       发表于 2026-2-28 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69244853&amp;ptid=2252759" target="_blank">洛亚替身 发表于 2026-2-27 23:55</a>
+我懂了，格蕾丝篇不是恐怖游戏是潜行转圈圈游戏</blockquote>
+刚放下手柄，感觉有种恶灵附身DLC的美，但没恶灵附身恐怖<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2454A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
