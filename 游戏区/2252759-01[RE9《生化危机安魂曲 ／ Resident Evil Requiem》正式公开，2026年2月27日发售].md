@@ -4185,3 +4185,24 @@ steam正式版win10目前玩到疗养院没什么问题
 
 第二只大怪是可以杀的吗 好难受
 
+
+*****
+
+####  卡拉德利姆  
+##### 1018#       发表于 2026-2-27 22:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69244130&amp;ptid=2252759" target="_blank">Gwyndolin 发表于 2026-2-27 21:48</a>
+
+卡关了。。。女主地下部分，要拿3个插头。拿第三个插头要先启动起货机，但我找了好久没找到起货机钥匙在哪 ...</blockquote>
+卡住你门的起货机旁边就有钥匙
+
+*****
+
+####  卡拉德利姆  
+##### 1019#       发表于 2026-2-27 22:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69244180&amp;ptid=2252759" target="_blank">Mikumiku831 发表于 2026-2-27 22:00</a>
+
+第二只大怪是可以杀的吗 好难受</blockquote>
+东翼的胖子吗，似乎是后面里昂篇的小boss战才能杀
+
