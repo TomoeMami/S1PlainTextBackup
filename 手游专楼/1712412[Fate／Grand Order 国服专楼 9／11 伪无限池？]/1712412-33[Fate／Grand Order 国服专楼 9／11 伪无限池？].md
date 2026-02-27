@@ -30,3 +30,13 @@
 
 所长战是不是该等几天有了新茶壶再打
 
+
+*****
+
+####  khxooo  
+##### 47719#       发表于 2026-2-27 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69240006&amp;ptid=1712412" target="_blank">hyhaha 发表于 2026-2-27 09:30</a>
+所长战是不是该等几天有了新茶壶再打</blockquote>
+没茶壶建议拿到3月茶壶再打。
+
