@@ -4144,3 +4144,21 @@ steam正式版win10目前玩到疗养院没什么问题
 
 格雷斯线的保险柜里昂连互动都不可以啊<img src="https://static.stage1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bypass  
+##### 1013#       发表于 2026-2-27 21:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 经常被女主吓到，然后才意识到刚才有吓人的内容。
+
+*****
+
+####  洛亚替身  
+##### 1014#       发表于 2026-2-27 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69244001&amp;ptid=2252759" target="_blank">bypass 发表于 2026-2-27 21:17</a>
+
+经常被女主吓到，然后才意识到刚才有吓人的内容。</blockquote>
+对的，跟恐怖元素提词器一样，能弄出来这类型角色卡婊简直是天才，以后恐怖游戏都可以弄这种主角<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
