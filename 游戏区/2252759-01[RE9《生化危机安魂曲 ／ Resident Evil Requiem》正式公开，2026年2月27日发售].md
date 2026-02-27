@@ -3967,3 +3967,14 @@ Grace的部分和二代差不多吧
 这次有中文配音如何？</blockquote>
 这次中配水平感觉和生4重制差不多。但是英配格蕾斯出来的效果实在是太屌了
 
+
+*****
+
+####  godless2020  
+##### 995#       发表于 2026-2-27 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69242873&amp;ptid=2252759" target="_blank">Muteki_Link 发表于 2026-2-27 17:25</a>
+
+自决用的是吧</blockquote>
+普通难度，一枪暴击打爆厨师的头，随便拿个奖杯<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

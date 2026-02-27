@@ -76,3 +76,21 @@ B站上的攻略大多是“注意**和##之后，其他简单看滚一下就过
 
 相比起来，恶兆妖鬼入侵真是清秀不做作，送货上门不乱节奏。
 
+
+*****
+
+####  hugosol  
+##### 2123#       发表于 2026-2-27 14:00
+
+上分最大的障碍是匹配到鬼佬，网络卡顿+满世界渴血放生主城，神仙来了也救不了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wasian  
+##### 2124#       发表于 2026-2-27 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69240836&amp;ptid=2210352" target="_blank">库玛吉 发表于 2026-2-27 11:30</a>
+
+B站上的攻略大多是“注意**和##之后，其他简单看滚一下就过了“，但实际上看滚目押之类的本身就很吃熟练度 ...</blockquote>
+最好的练法就是单通，单通对路线规划和背板要求很高，对理解提升很有帮助，能单通过深几就说明能呆在深几
+

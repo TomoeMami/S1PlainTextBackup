@@ -221,3 +221,11 @@ uesc通讯天线究竟在哪</blockquote>
 虽然不看好这游戏，不过它这典藏版里一些小玩意还挺有意思的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就这超模高级脸？艾可拉比她顺眼多了
 
+
+*****
+
+####  Sopp  
+##### 156#       发表于 2026-2-27 18:32
+
+柱列区的感染建筑的门一直都打不开……是bug还是要有什么前提条件？
+
