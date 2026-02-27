@@ -3846,3 +3846,28 @@ bio9是D加密吗？
 这代比re4恐怖几成？我能接受的恐怖上限就到四代</blockquote>
 Grace的部分和二代差不多吧
 
+
+*****
+
+####  windlikeman  
+##### 982#       发表于 2026-2-27 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69242358&amp;ptid=2252759" target="_blank">cangyuyao 发表于 2026-2-27 16:00</a>
+
+昨天官方活动的演示，电锯砍一阵会卡在怪身上，然后怪会反手拔下来再砍你
+
+娱乐效果满分了属于是 ...</blockquote>
+电锯卡怪身上之后被怪投会直接被秒<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这段我花式死了三次
+
+*****
+
+####  Mikumiku831  
+##### 983#       发表于 2026-2-27 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69242528&amp;ptid=2252759" target="_blank">seki_m 发表于 2026-2-27 16:26</a>
+
+这代比re4恐怖几成？我能接受的恐怖上限就到四代</blockquote>
+第三人称来说我觉得没有4代再生怪恐怖
+
