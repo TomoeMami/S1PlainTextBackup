@@ -15,3 +15,34 @@ AGE1+2的纯正AGE池，你们说这次能送钻么<img src="https://static.stag
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  洛克萨斯  
+##### 3665#       发表于 2026-2-27 16:58
+
+奶茶这技能和age2.............有一种朴实无华的强度美，苏帕派骆驼！
+
+*****
+
+####  洛克萨斯  
+##### 3666#       发表于 2026-2-27 16:59
+
+<img src="https://img.stage1st.com/forum/202602/27/165857lujnydzw1z2nmvvi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 16:58 上传
+
+<img src="https://img.stage1st.com/forum/202602/27/165908hpvvuz4uvq1at4m3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 16:59 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你怎么能aoe到uc的
+
