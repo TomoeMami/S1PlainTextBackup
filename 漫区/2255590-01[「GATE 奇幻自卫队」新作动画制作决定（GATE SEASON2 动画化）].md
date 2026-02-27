@@ -672,3 +672,14 @@ PV1：[https://youtu.be/2P40hX1vK1E](https://youtu.be/2P40hX1vK1E)
 野上武志也画过一个“朝鲜王子”在鬼子军跟美少女们在战舰（外形类似日俄时期得三笠）上活动得漫画；感觉 ...</blockquote>
 一般看到“野上武志”我直接跳过的，这货的右臭比奇观自卫队的还浓。
 
+
+*****
+
+####  wingofsilver  
+##### 63#       发表于 2026-2-27 21:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69243981&amp;ptid=2255590" target="_blank">gold013 发表于 2026-2-27 21:13</a>
+
+一般看到“野上武志”我直接跳过的，这货的右臭比奇观自卫队的还浓。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">之前看他的少战同人还可以，再就是有个紫电改的真纪，JK开战斗机什么的还挺欢乐。
+

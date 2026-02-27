@@ -3224,3 +3224,13 @@ https://www.bilibili.com/vid ...</blockquote>
 
 （其实这些视频里都说得挺详细了
 
+
+*****
+
+####  千魄万斩  
+##### 261#       发表于 2026-2-27 21:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69243354&amp;ptid=2274506" target="_blank">子虚乌有 发表于 2026-2-27 18:50</a>
+请教下打完大蜘蛛怎么解锁下一关？有个血肉墙让我猫 上去啃结果啃不动。</blockquote>
+好象是房屋boss击倒后用道具开门，必定献祭带道具的猫
+
