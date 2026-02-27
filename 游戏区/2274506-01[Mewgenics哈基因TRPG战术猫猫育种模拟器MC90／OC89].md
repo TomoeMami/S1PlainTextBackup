@@ -3101,3 +3101,11 @@ https://www.reddit.com/r/gaming/comments/1r3bcj8/mewge ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏想办法配两只全7种猫后感觉才刚刚开始，就像以撒解锁死亡证明那样
 
+
+*****
+
+####  harry3  
+##### 252#       发表于 2026-2-27 12:50
+
+杀进程还要进去看intro动画加载存档，等一个局内重开按钮，不过这个得先等UI框架出来了吧感觉要好久
+
