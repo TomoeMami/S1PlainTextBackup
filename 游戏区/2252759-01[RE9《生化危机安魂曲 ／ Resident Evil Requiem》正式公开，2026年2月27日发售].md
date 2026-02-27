@@ -3906,3 +3906,45 @@ Grace的部分和二代差不多吧
 
 是的，不喜欢。
 
+
+*****
+
+####  aemper  
+##### 988#       发表于 2026-2-27 17:24
+
+捏马这代怎么有大蜘蛛boss啊，除了那个boss还有小怪蜘蛛吗，这不打mod玩不了了
+
+*****
+
+####  Muteki_Link  
+##### 989#       发表于 2026-2-27 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69242450&amp;ptid=2252759" target="_blank">里村紅葉 发表于 2026-2-27 16:13</a>
+
+分头这个吊人，给小姑娘那么大一把马格南，完了只有一发子弹</blockquote>
+自决用的是吧<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星花  
+##### 990#       发表于 2026-2-27 17:27
+
+关键时刻保证爆头。
+
+
+*****
+
+####  大厨麦当牛  
+##### 991#       发表于 2026-2-27 17:34
+
+【《生化危机9》威斯克你还是这么爱瑞贝卡啊！-哔哩哔哩】 https://b23.tv/bvy1hQi
+
+原来威斯克不仅是异性恋还是STARS第一深情
+
+*****
+
+####  57042711  
+##### 992#       发表于 2026-2-27 17:34
+
+这格蕾丝进剧情切第一人称把我摇晕了<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
