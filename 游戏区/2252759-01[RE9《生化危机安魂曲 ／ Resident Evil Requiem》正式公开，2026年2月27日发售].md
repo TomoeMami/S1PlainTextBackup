@@ -3736,3 +3736,27 @@ bio9是D加密吗？
 
 分头这个吊人，给小姑娘那么大一把马格南，完了只有一发子弹<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤黑的假面  
+##### 969#       发表于 2026-2-27 16:23
+
+<blockquote>里村紅葉 发表于 2026-2-27 16:13
+分头这个吊人，给小姑娘那么大一把马格南，完了只有一发子弹</blockquote>
+中西导演的小巧思
+
+*****
+
+####  卡拉德利姆  
+##### 970#       发表于 2026-2-27 16:23
+
+老老实实按官方推荐的人称来，我就知道他那个自由切换结果肯定怪异
+
+*****
+
+####  seki_m  
+##### 971#       发表于 2026-2-27 16:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">比re4恐怖几成？我能接受的恐怖上限就到4
+
