@@ -542,3 +542,16 @@ PV1：[https://youtu.be/2P40hX1vK1E](https://youtu.be/2P40hX1vK1E)
 
 <img src="https://static.stage1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">隐约记得好像第一季后面已经开始和其他世界大国的异世界远征军接触了？ 什么神奇的虚拟和显示世界联动2333
 
+
+*****
+
+####  tewaku  
+##### 58#       发表于 2026-2-27 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69242331&amp;ptid=2255590" target="_blank">wingofsilver 发表于 2026-2-27 15:54</a>
+
+隐约记得好像第一季后面已经开始和其他世界大国的异世界远征军接触了？ 什么神奇的虚拟和显示世界联动2333 ...</blockquote>
+动画？动画的话好像是大国派特战部队绑人被本子+哥特萝莉击退吧，没有别国远征军啊
+
+原作就不知道了没看过
+
