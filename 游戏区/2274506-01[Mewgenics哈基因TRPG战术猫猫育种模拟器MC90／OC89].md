@@ -3183,3 +3183,15 @@ BUG吧,我用过好几次,没有问题的.
 BUG吧,我用过好几次,没有问题的.</blockquote>
 我也是昨天打了三四场都没问题，今天上来就这样了。貌似这个BUG还是影响单次探索的，每一场战斗都是只有单链接<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zwqcm  
+##### 258#       发表于 2026-2-27 17:37
+
+<blockquote>leeskies 发表于 2026-2-25 19:18
+【喵喵的结合】 刺激度是陷阱？逆向代码揭示最优繁殖路线_哔哩哔哩_bilibili
+
+https://www.bilibili.com/vid ...</blockquote>
+所以我现在高属性的（3个7左右）猫全是近亲出来的，要怎么减少畸形概率。是应该在繁殖房多放野猫+一只畸形猫么？
+
