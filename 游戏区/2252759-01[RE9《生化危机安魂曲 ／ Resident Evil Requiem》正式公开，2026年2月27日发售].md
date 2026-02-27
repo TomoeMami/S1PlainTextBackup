@@ -3380,3 +3380,11 @@ ps5pro一个加强版表现最好不是应该的吗
 看了下直播，感觉又是血压高的剧情</blockquote>
 生化还有什么高血压剧情?除了6代
 
+
+*****
+
+####  christiny  
+##### 932#       发表于 2026-2-27 11:30
+
+已经看到好几个直播的吐槽手柄瞄准了，就是瞄不准……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
