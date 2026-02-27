@@ -3719,3 +3719,12 @@ bio9是D加密吗？
 
 第一人称，体术还是第三人称，这体术简直像发必杀技。
 
+
+*****
+
+####  cangyuyao  
+##### 967#       发表于 2026-2-27 16:00
+
+昨天官方活动的演示，电锯砍一阵会卡在怪身上，然后怪会反手拔下来再砍你<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+娱乐效果满分了属于是
+
