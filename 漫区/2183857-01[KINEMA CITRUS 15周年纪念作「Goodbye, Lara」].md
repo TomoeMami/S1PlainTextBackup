@@ -70,3 +70,18 @@ PV1：[https://youtu.be/c4-6PwVRRj8](https://youtu.be/c4-6PwVRRj8)
 
 画面看起来不错，还是原创，来吧来吧<img src="https://static.stage1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">，一月的辉夜姬算原创电影，四月忘了有啥了，今年的原创tv大舞台看看有啥
 
+
+*****
+
+####  堆雪若叶  
+##### 56#       发表于 2026-2-27 19:35
+
+才注意到人鱼的耳朵都是鱼鳍啊，感觉有点怪。
+
+*****
+
+####  JELEEちゃん  
+##### 57#       发表于 2026-2-27 19:38
+
+哦还真是7月，PV都直接出了。不知道AJ上还有没有新东西。
+
