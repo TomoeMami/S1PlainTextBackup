@@ -4281,3 +4281,40 @@ leon线=4
 
 溶血针杀良子三针，杀其它所有怪都只要一针，而且包死不复活。
 
+
+*****
+
+####  洛亚替身  
+##### 1028#       发表于 2026-2-27 22:59
+
+ 本帖最后由 洛亚替身 于 2026-2-27 23:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69244502&amp;ptid=2252759" target="_blank">ROT 发表于 2026-2-27 22:46</a>
+
+玩到刚见到小女孩，目前的剧情真的太蠢一种无脑B级片的感觉，女主妈和女主强行谜语人啥有用的都不说，里昂 ...</blockquote>
+就是B级片，还是把结局开头缝一块那种，前面格蕾丝刚让游戏氛围拉扯到恐怖片那边，里昂这刚进精神病院就飙血浆，我整个人都绷不住了
+
+而且小萝莉开路径追踪颜值已经达到和卡婊那个机器人萝莉一个水准了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+没记错生2重制雪莉颜值也贼高，卡婊里面有些人是不是有很危险的思想，每部作品萝莉的颜值都在进步<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gwyndolin  
+##### 1029#       发表于 2026-2-27 23:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69244289&amp;ptid=2252759" target="_blank">Jyions 发表于 2026-2-27 22:23</a>
+
+扳手用来打开血池的配电箱，拿两个插头给血池供电，然后往里走起货机钥匙在处理间 ...</blockquote>
+找到了。进血池的那个门地图上不显示，之前一直错过，看了别人视频才知道在哪<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ROT  
+##### 1030#       发表于 2026-2-27 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69244604&amp;ptid=2252759" target="_blank">洛亚替身 发表于 2026-2-27 22:59</a>
+
+就是B级片，还是把结局开头缝一块那种，前面格蕾丝刚让游戏氛围拉扯到恐怖片那边，里昂这刚进精神病院就飙 ...</blockquote>
+没错，太割裂了，起码不要切换的那么频繁。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
