@@ -109,3 +109,26 @@
 
 单人跑刀倒地了还能在地上爬是何意味，等着敌人来扶吗？还是说有什么能自扶的东西？
 
+
+*****
+
+####  ybfelix  
+##### 146#       发表于 2026-2-27 13:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69241466&amp;ptid=2135998" target="_blank">请问有猪扒饭吗 发表于 2026-2-27 13:23</a>
+单人跑刀倒地了还能在地上爬是何意味，等着敌人来扶吗？还是说有什么能自扶的东西？ ...</blockquote>
+还没玩上，不过像以前CODDMZ倒确实可以投降求敌人扶起来 拜为义父加入小队
+
+
+*****
+
+####  Sopp  
+##### 147#       发表于 2026-2-27 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69241466&amp;ptid=2135998" target="_blank">请问有猪扒饭吗 发表于 2026-2-27 13:23</a>
+
+单人跑刀倒地了还能在地上爬是何意味，等着敌人来扶吗？还是说有什么能自扶的东西？ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">别人能扶
+
+所以近距离语音系统也是游戏的一环……
+
