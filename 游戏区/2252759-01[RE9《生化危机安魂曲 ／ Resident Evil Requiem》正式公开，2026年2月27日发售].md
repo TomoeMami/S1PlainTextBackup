@@ -3978,3 +3978,21 @@ Grace的部分和二代差不多吧
 自决用的是吧</blockquote>
 普通难度，一枪暴击打爆厨师的头，随便拿个奖杯<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不灭人形  
+##### 996#       发表于 2026-2-27 18:47
+
+<img src="https://img.stage1st.com/forum/202602/27/184720l2nzh8mlut8226mr.png" referrerpolicy="no-referrer">
+
+<strong>060a095989e6d3205a8f0bfff3485165.png</strong> (56.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-2-27 18:47 上传
+
+为什么我4070显卡画面设置里没有英伟达的帧生成<img src="https://static.stage1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+关闭旁边的是AMD的FSR
+
