@@ -4235,3 +4235,32 @@ steam正式版win10目前玩到疗养院没什么问题
 第二只大怪是可以杀的吗 好难受</blockquote>
 两个唱歌怪、一个屠夫、一个肥仔，女主杀掉都有成就的
 
+
+*****
+
+####  洛亚替身  
+##### 1023#       发表于 2026-2-27 22:43
+
+ 本帖最后由 洛亚替身 于 2026-2-27 22:45 编辑 
+
+为社么要这么频繁切换三光啊，好出戏啊.....刚进入恐怖游戏氛围，三光叔叔就过来拍一段动作片(就不能像以前一样通关格蕾丝再玩里昂？)<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何然  
+##### 1024#       发表于 2026-2-27 22:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69242528&amp;ptid=2252759" target="_blank">seki_m 发表于 2026-2-27 16:26</a>
+
+这代比re4恐怖几成？我能接受的恐怖上限就到四代</blockquote>
+grace线你开个搞笑节目看着玩吧
+
+leon线=4
+
+*****
+
+####  ROT  
+##### 1025#       发表于 2026-2-27 22:46
+
+玩到刚见到小女孩，目前的剧情真的太蠢一种无脑B级片的感觉，女主妈和女主强行谜语人啥有用的都不说，里昂和木头人一样，看到人扛着女主不做反应，看到人乱射病毒不做反应，看到人要被咬了不做反应，看到护士被捅了不做反应。然后等人死了就开始能随机应变踢凳子阻挡了，千钧一发之际枪枪命中救女主了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
