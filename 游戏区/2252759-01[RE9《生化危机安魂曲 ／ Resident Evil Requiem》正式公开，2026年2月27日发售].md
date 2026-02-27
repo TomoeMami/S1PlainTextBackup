@@ -4738,3 +4738,11 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 这代抓投怎么这么难躲，感觉移动速度被狠狠砍了一刀不能立回绕圈了
 
+
+*****
+
+####  红魔馆的糖  
+##### 1068#       发表于 2026-2-28 03:41
+
+这代的抓投过程中依旧不能通过打头来打断，这么恶心的东西感觉比4re还变本加厉了
+
