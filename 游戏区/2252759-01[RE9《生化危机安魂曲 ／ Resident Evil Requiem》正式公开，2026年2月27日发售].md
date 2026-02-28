@@ -5038,3 +5038,16 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 优化简直神鬼二相性，室内场景光照阴影也很复杂，大量敌人的情况下帧数也能保持在100以上。室外场景里昂开场那段雨夜追击那段给我干到30帧都不稳<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  simonroam  
+##### 1096#       发表于 2026-2-28 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69246553&amp;ptid=2252759" target="_blank">Edgefield 发表于 2026-2-28 11:27</a>
+
+优化简直神鬼二相性，室内场景光照阴影也很复杂，大量敌人的情况下帧数也能保持在100以上。室外场景里昂开 ...</blockquote>
+室内场景你有一万种办法去优化，室外大场景只能拼技术硬实力了
+
+我看比起一个劲的吹RE引擎，卡普空的模型材质资产是真的好，面数控制的非常合理，你导到别的引擎里效果也不差
+
