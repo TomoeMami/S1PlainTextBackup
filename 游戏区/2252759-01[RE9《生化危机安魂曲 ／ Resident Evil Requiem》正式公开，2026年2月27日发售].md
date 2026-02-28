@@ -6027,3 +6027,29 @@ Boss战最无聊的应该是女孩，铺垫了这么久，结果就是个解谜b
 
 所以畫面特效是甚麼來?
 
+
+*****
+
+####  hkguty  
+##### 1191#       发表于 2026-3-1 00:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69252042&amp;ptid=2252759" target="_blank">eilot 发表于 2026-3-1 00:43</a>
+
+我是用3060TI
+
+直接叫救命，玻璃地型那段算是稍為正常，一出外就超級卡
+
+是去到警局才恢復正常</blockquote>
+我吗，我就是默认，没动过配置，应该是优化没做好，女主篇因为是第一视角而且多是封闭区域，应该是只加载了很小一片区域，然后当角色移动到快到别的区域的时候才加载新地区。里昂浣熊市篇估计是直接加载了一大片区域才会导致那么卡
+
+
+*****
+
+####  ParadiseMartyr  
+##### 1192#       发表于 2026-3-1 00:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打通了，中期很爽，结局拉了是可以说的么？
+be也是何意味，真结局也是何意味
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
