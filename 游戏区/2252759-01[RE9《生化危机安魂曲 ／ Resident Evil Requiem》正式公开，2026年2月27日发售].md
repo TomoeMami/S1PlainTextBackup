@@ -5169,3 +5169,13 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 空注射器有几个？
 
+
+*****
+
+####  卡拉德利姆  
+##### 1108#       发表于 2026-2-28 13:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69247320&amp;ptid=2252759" target="_blank">洛亚替身 发表于 2026-2-28 13:13</a>
+空注射器有几个？还有卡婊你TM看人下菜碟是吧，我这仓鼠潜行流箱子瓶子甚至大补给点就给两发子弹，UP那种弹 ...</blockquote>
+祖传动态掉落<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
