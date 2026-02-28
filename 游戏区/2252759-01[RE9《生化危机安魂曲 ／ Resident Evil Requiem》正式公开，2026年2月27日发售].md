@@ -5719,3 +5719,16 @@ D加密真的已经到头了？
 连地下室那个器 ...</blockquote>
 兩次都是直接解了星月機關後，之後才進入房間發現鉛筆，才想起之前被撤的筆記簿...
 
+
+*****
+
+####  kcalb  
+##### 1162#       发表于 2026-2-28 20:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69250543&amp;ptid=2252759" target="_blank">ParadiseMartyr 发表于 2026-2-28 20:22</a>
+
+有的，笔记手册夹的小纸片
+
+—— 来自 鹅球 v3.3.96</blockquote>
+笔记本是在附近么？铲车剧情后回不去了，其他文件似乎没找到相关
+
