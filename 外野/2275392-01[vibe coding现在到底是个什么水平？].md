@@ -68,3 +68,20 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  ytrfegd  
+##### 52#       发表于 2026-3-1 04:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69227304&amp;ptid=2275392" target="_blank">seedees3 发表于 2026-2-24 18:02</a>
+
+所以现在AI敲代码哪家强 ？cursor vibe codex claude Windsurf 哪个更好点</blockquote>
+GPT 5.3思考时间最长最深度最有工程感，但256K上下文压缩导致长对话大工程场景耗费时间更长
+
+claude 4.6 opus 速度极佳，长上下文最强，有非常好的计划能力。但是缺点是实在太贵，不值得中大型需求
+
+agent方面claude code和codex的提示词工程和MCP属性方面做的我觉得不如augment code。但是augment应该是所有agent中最贵的
+
+现在我的主力是codex，200刀可以完全使用一个月，可惜没有60刀这个档位
+
