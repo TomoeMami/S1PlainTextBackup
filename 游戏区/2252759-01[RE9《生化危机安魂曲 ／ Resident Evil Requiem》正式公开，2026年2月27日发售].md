@@ -5098,3 +5098,28 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 不过我对这次的潜行玩法还是颇有 ...</blockquote>
 这代的做题感很强，再叠加这个精英怪的血量设计，一股恶灵附身味儿<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  christiny  
+##### 1101#       发表于 2026-2-28 12:19
+
+<blockquote>Muteki_Link 发表于 2026-2-28 09:43
+格蕾丝篇的安魂曲应用尽用吗？没有那种必须过的boss战打吗？我看就一颗子弹直接丢箱子了
+
+另外硬币兑换箱 ...</blockquote>
+格蕾丝只有马格南子弹可以留给李三光，仅限装在枪里的。
+
+其他武器是她专用。
+
+
+*****
+
+####  烈焰舞阳  
+##### 1102#       发表于 2026-2-28 12:22
+
+<img src="https://p.sda1.dev/31/a7092c9a7bc13fc6f8350c4ece25013c/image.jpg" referrerpolicy="no-referrer">
+看到有人发这个笑死，bow通货膨胀到这个地步，再加上剧情里和美国政府合作，真不是在暗示史密斯专员吗
+
+—— 来自 Xiaomi 2407FRK8EC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
