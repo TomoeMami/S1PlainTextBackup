@@ -183,3 +183,14 @@ age1跟2分别新做了一套装备 不知道以后还能不能多做一点
 
 送的券出奶茶了，省钻了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  丹德里恩  
+##### 3683#       发表于 2026-2-28 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69245391&amp;ptid=2071758" target="_blank">夜之光 发表于 2026-2-28 07:58</a>
+
+奶茶挺强，但电光+专用不好配队吧，主流一击（突破）王牌新人类（精神感应）三不沾，就有点。 ...</blockquote>
+这个的意思其实就是...往后要出电光船了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
