@@ -5797,3 +5797,11 @@ D加密真的已经到头了？
 
 卡普空自己都知道自己这次故事讲的一塌糊涂，还要最后搞个文档专门专门解释一下<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhacaizn  
+##### 1171#       发表于 2026-2-28 22:49
+
+这代boss战有点太无聊了  攻击性不如小兵
+
