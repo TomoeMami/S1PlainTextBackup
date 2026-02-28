@@ -4919,3 +4919,20 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 看到豆腐偷窥李昂，我突发奇想，难道本作也会有豆腐DLC，而且这个豆腐会顶替王阿姨的戏份暗中搞间谍活动<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 1086#       发表于 2026-2-28 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69245920&amp;ptid=2252759" target="_blank">Muteki_Link 发表于 2026-2-28 09:58</a>
+
+是的，这代风格相当荒诞，所谓丧尸会重复生前行为的设定根本不能细想。开局那个医生为啥会拿园林用电锯我 ...</blockquote>
+生前行為只限沒發現你之前
+
+但發現之後就互搶電割
+
+不過剛發現原來敵人太多時候，可以引到對方錯手將其他喪屍砍了...
+
+特別是在開場護士那幕非常多人，非常容易誤傷(笑)
+
