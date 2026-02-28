@@ -5464,3 +5464,17 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 然后被动态掉落2发子弹恶心<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yuanico  
+##### 1137#       发表于 2026-2-28 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69248654&amp;ptid=2252759" target="_blank">洛亚替身 发表于 2026-2-28 15:52</a>
+酣畅淋漓，关卡设计方面超神了，能看出每一个地方都有精心设计，体验非常好（甚至可以称得上脚本化关卡）
+
+ ...</blockquote>
+但是我用脚想也知道后面地图要缩水，预算就用第一张图了。
+
+—— 来自 Xiaomi 22127RK46C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
