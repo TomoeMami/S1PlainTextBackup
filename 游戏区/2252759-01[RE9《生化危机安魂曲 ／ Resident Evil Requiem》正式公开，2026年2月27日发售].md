@@ -5740,3 +5740,14 @@ D加密真的已经到头了？
 
 大脑袋丧尸已经开始抽风瞬移了，动作游戏里的怪都不至于这么鬼畜
 
+
+*****
+
+####  月夜的风  
+##### 1164#       发表于 2026-2-28 21:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69250614&amp;ptid=2252759" target="_blank">kcalb 发表于 2026-2-28 20:33</a>
+
+笔记本是在附近么？铲车剧情后回不去了，其他文件似乎没找到相关</blockquote>
+拿I级权限卡隔壁存档点里的太阳机关盒内（要融锁的）。这种绝不可能漏啊。那个笔记拿了还占一个道具格呢
+
