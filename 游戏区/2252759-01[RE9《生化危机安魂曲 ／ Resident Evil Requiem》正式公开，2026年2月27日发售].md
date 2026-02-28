@@ -5588,3 +5588,21 @@ D加密真的已经到头了？
 
 感觉这代就很有re4重制被老资历们抱怨缺失了的糊逼b级片味
 
+
+*****
+
+####  godless2020  
+##### 1149#       发表于 2026-2-28 18:57
+
+那个指挥官就是汉克吧，装备可以被别人COSPLAY，招牌拧脖子这么明显<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Veronica0096  
+##### 1150#       发表于 2026-2-28 19:00
+
+一周目传统难度，打到推土机那里，路上的怪都清了，资源也不觉得缺啊，主打一个有子弹/血针就用，不需要扣扣索索<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
