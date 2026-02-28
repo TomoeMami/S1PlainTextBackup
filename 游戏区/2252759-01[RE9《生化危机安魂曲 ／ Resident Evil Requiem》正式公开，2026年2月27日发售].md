@@ -4799,3 +4799,13 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 里昂篇真的是爽爆了，恐惧真的是来源于输出不够<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红魔馆的糖  
+##### 1075#       发表于 2026-2-28 08:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69245315&amp;ptid=2252759" target="_blank">pointer243 发表于 2026-2-28 06:59</a>
+看pmm直播,感觉re9是不是给抓投添加霸体了。看了很多回丧尸在他面前2走到面前抓投前各种爆头都打不出硬直最 ...</blockquote>
+应该是只有伤害硬直才能生效，但是这作伤害硬直也很随机，只能说纯抽盲盒
+
