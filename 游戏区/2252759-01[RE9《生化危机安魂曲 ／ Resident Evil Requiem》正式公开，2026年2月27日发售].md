@@ -5486,3 +5486,25 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 掉进血池这里真生怕别人不知道了，纯纯恶灵附身啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 1139#       发表于 2026-2-28 16:50
+
+ 本帖最后由 eilot 于 2026-2-28 16:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69248908&amp;ptid=2252759" target="_blank">yuanico 发表于 2026-2-28 16:19</a>
+
+但是我用脚想也知道后面地图要缩水，预算就用第一张图了。
+
+—— 来自 Xiaomi 22127RK46C, Android 15,  ...</blockquote>
+最前和最後地圖吧
+
+RPD這段就是情懷分，彩蛋雖多但實際內容不多，就是不停繞路去圖書館找工具，再開兩個門閘，只是一個是方便回頭路，另一個是劇情，如果連地下停車場都有就更好，不過類似地下停車場又在另一地方出現
+
+豆腐人見到數次，前後不停繞路就見到他，但不知道有何用
+
+另外就是太多BSAA遺棄基地了，就不能解釋為何他們曾經在此原因嗎...
+
+看來都就快通關，去到找雨傘寶珠了，之前看視頻GRACE就不能再用，她居然能用暗殺針偷襲小甜甜，但每次區域都太多甜甜和數隻人型，真的麻煩...
+
