@@ -151,3 +151,19 @@ age1跟2分别新做了一套装备 不知道以后还能不能多做一点
 
 还是等AGE二期出FX吧，可预见的爆炸
 
+
+*****
+
+####  岸波白野  
+##### 3679#       发表于 2026-2-28 12:57
+
+被动画骗了下池了，周年要烦神了<img src="https://static.stage1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 3680#       发表于 2026-2-28 13:05
+
+尤琳是盾机师<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
