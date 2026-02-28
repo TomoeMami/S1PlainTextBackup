@@ -4817,3 +4817,16 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 和4re的歪脖子不一样，里昂的斧头可以格挡狂暴丧尸的冲锋乱抓，但狂暴丧尸多了一招蹲在原地吼叫之后飞扑，这招格挡不了是即死技，只能重火力打断或者跑远。
 
+
+*****
+
+####  destroyworlder  
+##### 1077#       发表于 2026-2-28 09:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69245142&amp;ptid=2252759" target="_blank">不见不散 发表于 2026-2-28 01:52</a>
+
+用斧头弹了暴君攻击后，暴君一脸难以置信的表情笑死我了，“咱俩tmd到底谁是bow？”
+
+ ...</blockquote>
+后面的人还比这bow难打，难绷的
+
