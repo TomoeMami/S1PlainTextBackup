@@ -5023,3 +5023,18 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 環境音當然要開，因為要找浣熊公仔，就是靠他來知道附近有沒
 
+
+*****
+
+####  卡拉德利姆  
+##### 1094#       发表于 2026-2-28 11:23
+
+里昂没有存储箱吗<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Edgefield  
+##### 1095#       发表于 2026-2-28 11:27
+
+优化简直神鬼二相性，室内场景光照阴影也很复杂，大量敌人的情况下帧数也能保持在100以上。室外场景里昂开场那段雨夜追击那段给我干到30帧都不稳<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
