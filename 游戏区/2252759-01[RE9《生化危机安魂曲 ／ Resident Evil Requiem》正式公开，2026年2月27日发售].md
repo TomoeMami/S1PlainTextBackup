@@ -5187,3 +5187,39 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 断手的谜题是不是目前还没解出来？血液研究室里研究断手后，在研究主任室的密码箱输入日月星密码 但后续就不知道怎么做了
 
+
+*****
+
+####  洛亚替身  
+##### 1110#       发表于 2026-2-28 13:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69247482&amp;ptid=2252759" target="_blank">卡拉德利姆 发表于 2026-2-28 13:36</a>
+
+祖传动态掉落</blockquote>
+每次玩都觉得这个机制不公平，大家同一个难度你这机制不就是欺负我这种仓鼠玩家？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  变老的大二  
+##### 1111#       发表于 2026-2-28 13:51
+
+<blockquote>樽——見 发表于 2026-2-28 11:06
+真的假的</blockquote>
+真的，你少一个币
+
+*****
+
+####  Leona_Akari  
+##### 1112#       发表于 2026-2-28 13:52
+
+唱歌的那个白衣服能用血剂吗，我靠近她她就嗷的一嗓子给我一个大硬直然后就突脸了，怎么杀<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  变老的大二  
+##### 1113#       发表于 2026-2-28 13:53
+
+<blockquote>perfect_duck 发表于 2026-2-28 11:14
+为什么这么缺子弹</blockquote>
+合成的话不缺啊，打到后面快两组子弹了。
+
