@@ -5161,3 +5161,11 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 只知道厨子不杀的话会在里昂狙击掩护那段出现，可能不用溶血毁尸的话也会出现吧。
 
+
+*****
+
+####  洛亚替身  
+##### 1107#       发表于 2026-2-28 13:13
+
+空注射器有几个？
+
