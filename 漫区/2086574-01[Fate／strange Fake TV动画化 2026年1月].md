@@ -491,3 +491,11 @@ zero那本 ...</blockquote>
 
 —— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  露奎蒂亚  
+##### 1062#       发表于 2026-3-1 01:52
+
+我还挺喜欢这种打半天都没人退场的写法的，感觉非常利好角色厨
+
