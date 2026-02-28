@@ -5972,3 +5972,41 @@ Boss战最无聊的应该是女孩，铺垫了这么久，结果就是个解谜b
 
 打完女孩我安魂子弹剩10发 溶血剂剩5发 然后告诉我屯的没了就结束了 起码让我开几枪爽爽啊
 
+
+*****
+
+####  Mikumiku831  
+##### 1186#       发表于 2026-3-1 00:27
+
+到浣熊市的时候有种在玩TLOU的错觉 卡普空干脆别演了直接弄个克里斯带罗斯的野外基地大作战吧 想玩
+
+*****
+
+####  hkguty  
+##### 1187#       发表于 2026-3-1 00:28
+
+里昂篇太老派太街机味了，直接杀怪赚点数升级装备，不过我这电脑玩到那里蚌埠住了，超级卡，明明前面女主篇还没什么问题
+
+*****
+
+####  yuanico  
+##### 1188#       发表于 2026-3-1 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69251986&amp;ptid=2252759" target="_blank">hkguty 发表于 2026-3-1 00:28</a>
+里昂篇太老派太街机味了，直接杀怪赚点数升级装备，不过我这电脑玩到那里蚌埠住了，超级卡，明明前面女主篇 ...</blockquote>
+我也是，浣熊市外围很卡，难道是地图太大了。显卡9070xt
+
+—— 来自 Xiaomi 22127RK46C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  hkguty  
+##### 1189#       发表于 2026-3-1 00:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69251999&amp;ptid=2252759" target="_blank">yuanico 发表于 2026-3-1 00:30</a>
+
+我也是，浣熊市外围很卡，难道是地图太大了。显卡9070xt
+
+—— 来自 Xiaomi 22127RK46C, Android 15, 鹅 ...</blockquote>
+应该是，加载的地图范围太大了吧
+
