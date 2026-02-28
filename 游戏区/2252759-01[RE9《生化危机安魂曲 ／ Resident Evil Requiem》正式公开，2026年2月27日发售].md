@@ -4772,3 +4772,14 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 —— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 1072#       发表于 2026-2-28 08:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69245095&amp;ptid=2252759" target="_blank">洛亚替身 发表于 2026-2-28 01:21</a>
+
+我这仓鼠起手就用溶血把这俩秒了，后面还有大怪吗？</blockquote>
+疗养院没有了
+
