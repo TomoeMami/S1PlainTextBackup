@@ -5327,3 +5327,33 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69247923&amp;ptid=2252759" target="_blank">红魔馆的糖 发表于 2026-2-28 14:35</a></blockquote>
 这段简直就是给女玩家和南通量身定做的
 
+
+*****
+
+####  洛亚替身  
+##### 1125#       发表于 2026-2-28 15:14
+
+ 本帖最后由 洛亚替身 于 2026-2-28 15:17 编辑 
+
+机关也没有放卡死系统你就不能自己猜一下，偏要带小孩来？
+
+警备室一个肥仔带三个精神病站一排是为了让我用安魂把他们一穿四？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 1126#       发表于 2026-2-28 15:16
+
+断手和沙漏有什么用
+我怎么没用就显示对号了
+不会关乎真结局吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  卡拉德利姆  
+##### 1127#       发表于 2026-2-28 15:16
+
+浣熊市这前半段流程有种打re4 dlc的感觉，绕几圈，打几个竞技场<img src="https://static.stage1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
