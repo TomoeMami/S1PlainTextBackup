@@ -4936,3 +4936,23 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 特別是在開場護士那幕非常多人，非常容易誤傷(笑)
 
+
+*****
+
+####  洛亚替身  
+##### 1087#       发表于 2026-2-28 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69245955&amp;ptid=2252759" target="_blank">大厨麦当牛 发表于 2026-2-28 10:04</a>
+
+【【生化危机9安魂曲】声敏丧尸：出声老子就抡死你！-哔哩哔哩】 https://b23.tv/gY9gXbU
+
+格蕾丝篇强烈建 ...</blockquote>
+这游戏瓶子太缺了，子弹反而够
+
+*****
+
+####  Mikumiku831  
+##### 1088#       发表于 2026-2-28 10:54
+
+整蛊可以但是也有点太抽象 各种大刀拿手里  好几个西装男在那关灯  纯纯复制粘贴幽默完了 
+
