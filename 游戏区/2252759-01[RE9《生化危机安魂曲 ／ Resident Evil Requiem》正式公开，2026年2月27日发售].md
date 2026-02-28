@@ -5384,3 +5384,38 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 —— 来自 Xiaomi 22127RK46C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  红魔馆的糖  
+##### 1130#       发表于 2026-2-28 15:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69248301&amp;ptid=2252759" target="_blank">洛亚替身 发表于 2026-2-28 15:14</a>
+机关也没有放卡死系统你就不能自己猜一下，偏要带小孩来？
+
+警备室一个肥仔带三个精神病站一排是为了让我用 ...</blockquote>
+我觉得最变态的是手环只是被压着，她跑了整个疗养院拿器官就为了让一个私人把手拿开<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛亚替身  
+##### 1131#       发表于 2026-2-28 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69248578&amp;ptid=2252759" target="_blank">红魔馆的糖 发表于 2026-2-28 15:44</a>
+
+我觉得最变态的是手环只是被压着，她跑了整个疗养院拿器官就为了让一个私人把手拿开 ...</blockquote>
+那东西甚至室合成纤维的，孩子你忘了手里的猎刀吗？那可只不是给僵尸补刀用的（你改成收集两个物品打开门都行，这种细节问题挺微妙的）
+
+
+*****
+
+####  洛亚替身  
+##### 1132#       发表于 2026-2-28 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69248416&amp;ptid=2252759" target="_blank">yuanico 发表于 2026-2-28 15:27</a>
+
+疗养院通了，真的是最好玩的生化开头了，这地图设计，双主角设计都很好，超越2和4了。
+
+—— 来自 Xiaomi 2 ...</blockquote>
+酣畅淋漓，关卡设计方面超神了，能看出每一个地方都有精心设计，体验非常好（甚至可以称得上脚本化关卡）<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
