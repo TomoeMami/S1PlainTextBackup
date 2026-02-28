@@ -499,3 +499,11 @@ zero那本 ...</blockquote>
 
 我还挺喜欢这种打半天都没人退场的写法的，感觉非常利好角色厨
 
+
+*****
+
+####  洛克萨斯  
+##### 1063#       发表于 2026-3-1 02:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">海巨力！
+
