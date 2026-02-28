@@ -5275,3 +5275,36 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 唱歌的那个白衣服能用血剂吗，我靠近她她就嗷的一嗓子给我一个大硬直然后就突脸了，怎么杀 ...</blockquote>
 传统难度下能，普通手枪爆头也能打出硬直，然后上去血剂
 
+
+*****
+
+####  红魔馆的糖  
+##### 1119#       发表于 2026-2-28 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69247259&amp;ptid=2252759" target="_blank">Racyjackman 发表于 2026-2-28 13:03</a>
+已经被完全击倒的怪（比如厨子）靠近还提示用溶血剂，是表示不用之后还会复活吗 ...</blockquote>
+有些固定不会，其他的小怪好像随机
+
+*****
+
+####  红魔馆的糖  
+##### 1120#       发表于 2026-2-28 14:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/31/5ce4e36290a4769d6937f56efe3771d7/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  红魔馆的糖  
+##### 1121#       发表于 2026-2-28 14:38
+
+无语了，格蕾丝把人杀光了里昂没事干<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pygrads  
+##### 1122#       发表于 2026-2-28 14:42
+
+这一代的中文配音非常棒，尤其是僵尸的配音，非常有沉浸感。
+
