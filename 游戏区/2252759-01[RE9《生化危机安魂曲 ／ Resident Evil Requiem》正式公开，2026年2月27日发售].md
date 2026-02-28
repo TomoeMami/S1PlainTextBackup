@@ -5419,3 +5419,21 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 —— 来自 Xiaomi 2 ...</blockquote>
 酣畅淋漓，关卡设计方面超神了，能看出每一个地方都有精心设计，体验非常好（甚至可以称得上脚本化关卡）<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡拉德利姆  
+##### 1133#       发表于 2026-2-28 15:54
+
+倒不如说一个实验体为啥能带着三级手环，高管都只带着一级呢
+
+
+*****
+
+####  yuanico  
+##### 1134#       发表于 2026-2-28 16:02
+
+更不合理的是疗养院最后这个谜题，就算不懂盲文，按一下不就知道是什么符号了么，何苦去请小女孩来按。
+
+—— 来自 Xiaomi 22127RK46C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
