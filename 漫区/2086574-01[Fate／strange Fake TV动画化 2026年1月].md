@@ -515,3 +515,11 @@ zero那本 ...</blockquote>
 
 怎么感觉把狂信子写的像西格玛的妈妈一样。
 
+
+*****
+
+####  Yugao  
+##### 1065#       发表于 2026-3-1 02:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">成田除了不喜欢收人其实挺适合来写FATE的剧本的，希望他能进来踢走yjg和水濑两个臭傻逼
+
