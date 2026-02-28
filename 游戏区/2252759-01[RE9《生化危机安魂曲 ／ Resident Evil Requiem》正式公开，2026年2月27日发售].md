@@ -5478,3 +5478,11 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 —— 来自 Xiaomi 22127RK46C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  红魔馆的糖  
+##### 1138#       发表于 2026-2-28 16:28
+
+掉进血池这里真生怕别人不知道了，纯纯恶灵附身啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
