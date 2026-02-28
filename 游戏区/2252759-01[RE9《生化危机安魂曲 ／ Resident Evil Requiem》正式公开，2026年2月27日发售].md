@@ -4997,3 +4997,29 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 对于平时游弋的丧尸，你的潜行又很被动，你不像TLOU那样随地有空瓶板砖，遇到一两个堵路中间的你如果不想浪费子弹就只能在那干等，很浪费时间。而且一般潜行游戏那种警戒提示机制你都没有。你躲在看上去不是很踏实的地方时或者距离微妙的地方时你不知道对面的丧尸看不看得到你，发现你会吼但提示很不明显，确定自己被发现时往往已经贴脸了，而且一旦被发现仇恨能拉很远很远。。。所以实际潜行的情况是：墨迹蹲了半天→发现自己根本没藏住→楼上楼下疯狂拉火车逃回大堂<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  perfect_duck  
+##### 1092#       发表于 2026-2-28 11:14
+
+为什么这么缺子弹
+
+*****
+
+####  eilot  
+##### 1093#       发表于 2026-2-28 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69246387&amp;ptid=2252759" target="_blank">Muteki_Link 发表于 2026-2-28 11:06</a>
+
+环境音字幕必开的，提醒怪物和收集品都需要，战神血袋男也早有耳闻了。
+
+不过我对这次的潜行玩法还是颇有 ...</blockquote>
+現在期待那個3.5小時和2.7小時視頻是如何走位
+
+不知道是否有像RE234那種敵人攻擊範圍的死點，或看攻擊時間判定，能直接走去前方或旁邊
+
+和有沒靠特典武器(無限機槍)殺過去
+
+環境音當然要開，因為要找浣熊公仔，就是靠他來知道附近有沒
+
