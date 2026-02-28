@@ -5179,3 +5179,11 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 空注射器有几个？还有卡婊你TM看人下菜碟是吧，我这仓鼠潜行流箱子瓶子甚至大补给点就给两发子弹，UP那种弹 ...</blockquote>
 祖传动态掉落<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑猫软  
+##### 1109#       发表于 2026-2-28 13:40
+
+断手的谜题是不是目前还没解出来？血液研究室里研究断手后，在研究主任室的密码箱输入日月星密码 但后续就不知道怎么做了
+
