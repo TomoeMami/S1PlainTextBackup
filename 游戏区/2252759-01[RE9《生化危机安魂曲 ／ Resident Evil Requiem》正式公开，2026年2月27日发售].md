@@ -5254,3 +5254,24 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不行了，这代电锯太抽象了，我就不说前期那个僵尸爬下让电锯带着自己跑的招数，看秦川后面玩卡肉送装备太好笑了
 
+
+*****
+
+####  Muteki_Link  
+##### 1117#       发表于 2026-2-28 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69247320&amp;ptid=2252759" target="_blank">洛亚替身 发表于 2026-2-28 13:13</a>
+
+空注射器有几个？还有卡婊你TM看人下菜碟是吧，我这仓鼠潜行流箱子瓶子甚至大补给点就给两发子弹，UP那种弹 ...</blockquote>
+原来格蕾丝篇杀怪也会掉子弹啊，那我以后除了初见以外不潜行了。潜行太不划算了，风险高又墨迹，唯一的好处就是可以观察利用丧尸的习性。之后需要调查的地方全放倒，不需要调查的地方直接打硬直跑酷。
+
+*****
+
+####  wzh5555  
+##### 1118#       发表于 2026-2-28 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69247606&amp;ptid=2252759" target="_blank">Leona_Akari 发表于 2026-2-28 13:52</a>
+
+唱歌的那个白衣服能用血剂吗，我靠近她她就嗷的一嗓子给我一个大硬直然后就突脸了，怎么杀 ...</blockquote>
+传统难度下能，普通手枪爆头也能打出硬直，然后上去血剂
+
