@@ -18,3 +18,11 @@
 
 不会真有富哥买四小龙的 coding plan 吧，火山八块九，百炼才七块九
 
+
+*****
+
+####  Kazuhira  
+##### 48#       发表于 2026-3-1 00:11
+
+《人人都是产品经理》<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
