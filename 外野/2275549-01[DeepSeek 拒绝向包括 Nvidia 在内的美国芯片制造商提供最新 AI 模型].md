@@ -675,3 +675,17 @@ api还是3.2的，可以用api来写</blockquote>
 
 2026-2-27 08:51 上传
 
+
+*****
+
+####  王兰花秀丽  
+##### 64#       发表于 2026-2-28 09:13
+
+DeepSeek刚刚向DeepGEMM提交了一项重大更新
+Manifold Constrained Hyperconnection （mHC） 的正式整合。
+对 NVIDIA 下一代 Blackwell（SM100）架构的早期支持。<img src="https://p.sda1.dev/31/b4756a79cf9408a90f431cf7b2ebaa9f/image.jpg" referrerpolicy="no-referrer">
+
+楼主你怎么死了
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
