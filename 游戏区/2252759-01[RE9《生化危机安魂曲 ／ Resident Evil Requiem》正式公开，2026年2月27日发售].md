@@ -4783,3 +4783,11 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 我这仓鼠起手就用溶血把这俩秒了，后面还有大怪吗？</blockquote>
 疗养院没有了
 
+
+*****
+
+####  u2deack  
+##### 1073#       发表于 2026-2-28 08:27
+
+个个丧尸都出投技真的太恶心，主要是又不能躲又要看那又臭又长的动画
+
