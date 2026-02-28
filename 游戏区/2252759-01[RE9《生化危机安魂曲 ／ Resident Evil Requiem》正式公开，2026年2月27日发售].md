@@ -5774,3 +5774,11 @@ D加密真的已经到头了？
 
 老狙我觉得挂那个不带瞄准镜增伤的挂件好，反正这作真正意义上的狙击战就只有一开始拿狙击枪那一段，凸显了本作在战点设计上水平的无聊<img src="https://static.stage1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  里村紅葉  
+##### 1168#       发表于 2026-2-28 22:35
+
+这次的阿暴感觉比以前聪明了，又好像没有聪明<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">尼玛武举人做的机器僵尸都知道要护一下弱点
+
