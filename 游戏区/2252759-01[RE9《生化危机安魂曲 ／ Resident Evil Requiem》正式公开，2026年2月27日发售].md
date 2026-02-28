@@ -5357,3 +5357,30 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 浣熊市这前半段流程有种打re4 dlc的感觉，绕几圈，打几个竞技场<img src="https://static.stage1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑猫软  
+##### 1128#       发表于 2026-2-28 15:24
+
+<blockquote>ParadiseMartyr 发表于 2026-2-28 15:16
+断手和沙漏有什么用
+
+我怎么没用就显示对号了
+
+不会关乎真结局吧</blockquote>
+沙漏没用
+
+断手跟挑战一个解密有关，目前还没见到彻底解开的
+
+不过都跟结局没关系
+
+*****
+
+####  yuanico  
+##### 1129#       发表于 2026-2-28 15:27
+
+疗养院通了，真的是最好玩的生化开头了，这地图设计，双主角设计都很好，超越2和4了。
+
+—— 来自 Xiaomi 22127RK46C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
