@@ -5782,3 +5782,18 @@ D加密真的已经到头了？
 
 这次的阿暴感觉比以前聪明了，又好像没有聪明<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">尼玛武举人做的机器僵尸都知道要护一下弱点
 
+
+*****
+
+####  theworld  
+##### 1169#       发表于 2026-2-28 22:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">打到浣熊市这画风突变
+
+*****
+
+####  卡拉德利姆  
+##### 1170#       发表于 2026-2-28 22:43
+
+卡普空自己都知道自己这次故事讲的一塌糊涂，还要最后搞个文档专门专门解释一下<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
