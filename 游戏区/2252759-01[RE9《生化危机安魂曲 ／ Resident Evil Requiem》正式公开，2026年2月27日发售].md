@@ -5223,3 +5223,17 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 为什么这么缺子弹</blockquote>
 合成的话不缺啊，打到后面快两组子弹了。
 
+
+*****
+
+####  luffy0085  
+##### 1114#       发表于 2026-2-28 14:05
+
+ 本帖最后由 luffy0085 于 2026-2-28 14:06 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69246991&amp;ptid=2252759" target="_blank">烈焰舞阳 发表于 2026-2-28 12:22</a>
+
+看到有人发这个笑死，bow通货膨胀到这个地步，再加上剧情里和美国政府合作，真不是在暗示史密斯专员吗
+
+— ...</blockquote>
+你看到的这个是开法票价格，当然贵啦<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
