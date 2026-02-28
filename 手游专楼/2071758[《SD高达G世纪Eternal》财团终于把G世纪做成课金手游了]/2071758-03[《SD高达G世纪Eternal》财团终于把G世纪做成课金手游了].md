@@ -194,3 +194,13 @@ age1跟2分别新做了一套装备 不知道以后还能不能多做一点
 奶茶挺强，但电光+专用不好配队吧，主流一击（突破）王牌新人类（精神感应）三不沾，就有点。 ...</blockquote>
 这个的意思其实就是...往后要出电光船了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 3684#       发表于 2026-2-28 17:46
+
+忍住啊！周年强度更高还有限定船！<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
