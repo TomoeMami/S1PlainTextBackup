@@ -5663,3 +5663,59 @@ D加密真的已经到头了？
 
 吃了个饭回来发现消除胶片颗粒和接管hdr的Renodx都上了，刚刚到浣熊市，体验逐渐到顶<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 1157#       发表于 2026-2-28 20:16
+
+图书馆书架有个浣熊小子的声音，死活找不到位置啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  雪城穗乃香  
+##### 1158#       发表于 2026-2-28 20:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69250517&amp;ptid=2252759" target="_blank">ParadiseMartyr 发表于 2026-2-28 20:16</a>
+图书馆书架有个浣熊小子的声音，死活找不到位置啊
+
+—— 来自 鹅球 v3.3.96</blockquote>
+书架下层里面，被书挡了一半
+
+*****
+
+####  kcalb  
+##### 1159#       发表于 2026-2-28 20:19
+
+果然有人吐槽那段剧情了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+连地下室那个器官盒都是试出来的（话说这盒子游戏里到底有没有官方提示信息？
+
+*****
+
+####  ParadiseMartyr  
+##### 1160#       发表于 2026-2-28 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69250533&amp;ptid=2252759" target="_blank">kcalb 发表于 2026-2-28 20:19</a>
+果然有人吐槽那段剧情了，日月星就那几种排列一般都是直接试出来的，不会有人真去找提示吧
+
+连地下室那个器 ...</blockquote>
+有的，笔记手册夹的小纸片
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  eilot  
+##### 1161#       发表于 2026-2-28 20:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69250533&amp;ptid=2252759" target="_blank">kcalb 发表于 2026-2-28 20:19</a>
+
+果然有人吐槽那段剧情了，日月星就那几种排列一般都是直接试出来的，不会有人真去找提示吧
+
+连地下室那个器 ...</blockquote>
+兩次都是直接解了星月機關後，之後才進入房間發現鉛筆，才想起之前被撤的筆記簿...
+
