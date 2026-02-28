@@ -5237,3 +5237,20 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 — ...</blockquote>
 你看到的这个是开法票价格，当然贵啦<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大厨麦当牛  
+##### 1115#       发表于 2026-2-28 14:14
+
+<blockquote>Leona_Akari 发表于 2026-2-28 13:52
+唱歌的那个白衣服能用血剂吗，我靠近她她就嗷的一嗓子给我一个大硬直然后就突脸了，怎么杀 ...</blockquote>
+安魂曲远距离一枪爆头。
+
+*****
+
+####  Lorraine_Kinney  
+##### 1116#       发表于 2026-2-28 14:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不行了，这代电锯太抽象了，我就不说前期那个僵尸爬下让电锯带着自己跑的招数，看秦川后面玩卡肉送装备太好笑了
+
