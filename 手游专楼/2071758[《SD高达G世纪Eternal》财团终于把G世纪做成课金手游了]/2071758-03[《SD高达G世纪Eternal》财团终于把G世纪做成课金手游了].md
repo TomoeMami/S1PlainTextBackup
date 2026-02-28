@@ -204,3 +204,13 @@ age1跟2分别新做了一套装备 不知道以后还能不能多做一点
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  无念  
+##### 3685#       发表于 2026-2-28 18:29
+
+fx机设在我心中还不如3呢
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
