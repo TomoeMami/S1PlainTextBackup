@@ -4791,3 +4791,11 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 个个丧尸都出投技真的太恶心，主要是又不能躲又要看那又臭又长的动画
 
+
+*****
+
+####  wseedx  
+##### 1074#       发表于 2026-2-28 08:52
+
+里昂篇真的是爽爆了，恐惧真的是来源于输出不够<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
