@@ -5076,3 +5076,13 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 格篇我就没咋潜行过，前期正面撞到的点两枪头推到跑路就行了，血除了升级外都用来合溶剂，绕着绕着僵尸都清的差不多了
 
+
+*****
+
+####  bwsusaga  
+##### 1099#       发表于 2026-2-28 11:56
+
+4RE我玩一口气两小时以上才会晕，这作半小时就晕的不行了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+只能每天玩一小会儿了<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
