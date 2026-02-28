@@ -436,3 +436,15 @@ zero那本 ...</blockquote>
 
 2026-2-27 19:07 上传
 
+
+*****
+
+####  character  
+##### 1057#       发表于 2026-2-28 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69241704&amp;ptid=2086574" target="_blank">性急的蜗牛 发表于 2026-2-27 14:09</a>
+原来哪里的意思是“再多说一句就弄死你”么？
+
+听起来明明就像：“他确实是个白痴，但毕竟是我认识的人所 ...</blockquote>
+这个是作者在推特上补充的说明，小说里也明确讲到仇海这话是带着杀意说的
+
