@@ -5123,3 +5123,16 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 —— 来自 Xiaomi 2407FRK8EC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  洛亚替身  
+##### 1103#       发表于 2026-2-28 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69246991&amp;ptid=2252759" target="_blank">烈焰舞阳 发表于 2026-2-28 12:22</a>
+
+看到有人发这个笑死，bow通货膨胀到这个地步，再加上剧情里和美国政府合作，真不是在暗示史密斯专员吗
+
+— ...</blockquote>
+美国开头还退出生化武器条约我是蚌埠的，脑袋有问题退出条约破坏人类共识花大价钱让史密斯专员搞这个<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
