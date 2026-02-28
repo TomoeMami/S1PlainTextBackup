@@ -6053,3 +6053,16 @@ be也是何意味，真结局也是何意味
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  57042711  
+##### 1193#       发表于 2026-3-1 01:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69250927&amp;ptid=2252759" target="_blank">u2deack 发表于 2026-2-28 21:22</a>
+大脑袋丧尸已经开始抽风瞬移了，动作游戏里的怪都不至于这么鬼畜</blockquote>
+拿出机枪进行扫射<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这次各种提示确实都很到位了，死了以后马上告诉你错在哪里…
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
