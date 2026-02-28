@@ -58,3 +58,13 @@
 
 用啥比较适合？
 
+
+*****
+
+####  startraveller  
+##### 51#       发表于 2026-3-1 02:12
+
+感觉字节的 coding plan 要比百炼的快一点，可能用的人少，但是只能用 seed 2.0，其他 glm 和 kimi 只有上一代。虽然 seed 2.0 也站起来了一些，能用。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
