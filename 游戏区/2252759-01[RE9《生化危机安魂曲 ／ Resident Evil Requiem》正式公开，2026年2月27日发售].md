@@ -5913,3 +5913,54 @@ GRACE編太勤力，令到LEON沒甚麼壓力...
 
 能殺的精英怪或小BOSS都要殺
 
+
+*****
+
+####  Mikumiku831  
+##### 1180#       发表于 2026-3-1 00:07
+
+里昂要强化哪个武器好点 身怀5万点数很茫然
+
+*****
+
+####  Lorraine_Kinney  
+##### 1181#       发表于 2026-3-1 00:08
+
+里昂找到个密码本，本来还想着拍照的，想了想反正可以翻文件，结果还真是格雷的箱子
+
+那个逼蜘蛛真的又臭又长
+
+*****
+
+####  Mikumiku831  
+##### 1182#       发表于 2026-3-1 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69250533&amp;ptid=2252759" target="_blank">kcalb 发表于 2026-2-28 20:19</a>
+
+果然有人吐槽那段剧情了，日月星就那几种排列一般都是直接试出来的，不会有人真去找提示吧
+
+连地下室那个器 ...</blockquote>
+有提醒 日月星我第一次按 就按解锁了也是难绷<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mikumiku831  
+##### 1183#       发表于 2026-3-1 00:12
+
+ 本帖最后由 Mikumiku831 于 2026-3-1 00:13 编辑 
+
+BOSS战是真的无聊 手柄还不好打弱点  全是那种要你上二楼梯爬上去
+
+然后演出也是狗屎一坨  你干脆就别演了直接表演一个砍断蜘蛛腿的啥的吧 敲脑袋三下就噶了难评
+
+倒是杂兵战打起很爽 进浣熊市四处搜刮找路的感觉不要太爽
+
+就是杂兵都是从地上爬起来真给人一种鬼泣的感觉难绷<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红魔馆的糖  
+##### 1184#       发表于 2026-3-1 00:13
+
+Boss战最无聊的应该是女孩，铺垫了这么久，结果就是个解谜boss，隔壁同规格的贞子都能杀好几次呢，这个就解个谜就死了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
