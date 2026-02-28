@@ -2265,7 +2265,7 @@
     "lastedit": 1772256240,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1804478": {
     "totalreply": 1274,
@@ -12051,10 +12051,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 52055,
+    "totalreply": 52056,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1772274976,
+    "lastedit": 1772275216,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12438,10 +12438,10 @@
     "update": false
   },
   "2252759": {
-    "totalreply": 1143,
+    "totalreply": 1144,
     "title": "[RE9《生化危机安魂曲 ／ Resident Evil Requiem》正式公开，2026年2月27日发售]",
     "newtitle": "[RE9《生化危机安魂曲 ／ Resident Evil Requiem》正式公开，2026年2月27日发售]",
-    "lastedit": 1772274982,
+    "lastedit": 1772275221,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12573,10 +12573,10 @@
     "update": false
   },
   "2271232": {
-    "totalreply": 2640,
+    "totalreply": 2666,
     "title": "[中东专楼-2026]",
     "newtitle": "[中东专楼-2026]",
-    "lastedit": 1772274982,
+    "lastedit": 1772275574,
     "category": "外野",
     "active": true,
     "update": false
@@ -12627,10 +12627,10 @@
     "update": false
   },
   "2271402": {
-    "totalreply": 3567,
+    "totalreply": 3568,
     "title": "[任天堂病棟14楼，等一个春节春直]",
     "newtitle": "[任天堂病棟14楼，2.27宝可梦日]",
-    "lastedit": 1772268250,
+    "lastedit": 1772275221,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16551,10 +16551,10 @@
     "update": false
   },
   "2275608": {
-    "totalreply": 86,
+    "totalreply": 87,
     "title": "[北宋短暂收回幽云时原来人心尽失]",
     "newtitle": "[北宋短暂收回幽云时原来人心尽失]",
-    "lastedit": 1772274383,
+    "lastedit": 1772275571,
     "category": "外野",
     "active": true,
     "update": false
@@ -16839,10 +16839,10 @@
     "update": false
   },
   "2275719": {
-    "totalreply": 112,
+    "totalreply": 117,
     "title": "[犯罪嫌疑人“任某”因编造品牌茶饮“准毒品”不实信息已被依法采取刑事强制措施。]",
     "newtitle": "[犯罪嫌疑人“任某”因编造品牌茶饮“准毒品”不实信息已被依法采取刑事强制措施。]",
-    "lastedit": 1772274982,
+    "lastedit": 1772275574,
     "category": "外野",
     "active": true,
     "update": false
@@ -16911,10 +16911,10 @@
     "update": false
   },
   "2275692": {
-    "totalreply": 41,
+    "totalreply": 42,
     "title": "[小学馆旗下部分连载漫画作者停更抗议]",
     "newtitle": "[小学馆旗下部分连载漫画作者停更抗议]",
-    "lastedit": 1772274617,
+    "lastedit": 1772275221,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16925,6 +16925,15 @@
     "newtitle": "[为什么国内这帮做gal的就没意识到自己做的是商品]",
     "lastedit": 1772274982,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2275742": {
+    "totalreply": 41,
+    "title": "[《生化危机9》验证了牢A的传言]",
+    "newtitle": "[《生化危机9》验证了牢A的传言]",
+    "lastedit": 1772275221,
+    "category": "外野",
     "active": true,
     "update": false
   }
