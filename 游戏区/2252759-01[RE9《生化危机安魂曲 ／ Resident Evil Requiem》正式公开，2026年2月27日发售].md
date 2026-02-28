@@ -6010,3 +6010,20 @@ Boss战最无聊的应该是女孩，铺垫了这么久，结果就是个解谜b
 —— 来自 Xiaomi 22127RK46C, Android 15, 鹅 ...</blockquote>
 应该是，加载的地图范围太大了吧
 
+
+*****
+
+####  eilot  
+##### 1190#       发表于 2026-3-1 00:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69252009&amp;ptid=2252759" target="_blank">hkguty 发表于 2026-3-1 00:33</a>
+
+应该是，加载的地图范围太大了吧</blockquote>
+我是用3060TI
+
+直接叫救命，玻璃地型那段算是稍為正常，一出外就超級卡
+
+是去到警局才恢復正常
+
+所以畫面特效是甚麼來?
+
