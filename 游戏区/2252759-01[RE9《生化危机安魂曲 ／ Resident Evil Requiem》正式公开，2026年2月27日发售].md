@@ -5870,3 +5870,14 @@ GRACE編太勤力，令到LEON沒甚麼壓力...
 
 这次的“敌人打不死只能捉迷藏找保险丝”节目有点致死量了，很打击人多周目挑战的动力啊
 
+
+*****
+
+####  windlikeman  
+##### 1177#       发表于 2026-2-28 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69251682&amp;ptid=2252759" target="_blank">zero4166 发表于 2026-2-28 23:30</a>
+
+地下救出小女孩后那个空注射器怎么拿？把小女孩放进电梯再跑回去时间不够 ...</blockquote>
+那个单间三个电池找完还没放回去 里面的人就会越狱出来 我是捡完注射器再开门的
+
