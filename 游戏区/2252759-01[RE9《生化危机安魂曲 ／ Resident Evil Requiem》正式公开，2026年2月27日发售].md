@@ -4830,3 +4830,31 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
  ...</blockquote>
 后面的人还比这bow难打，难绷的
 
+
+*****
+
+####  Muteki_Link  
+##### 1078#       发表于 2026-2-28 09:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69243236&amp;ptid=2252759" target="_blank">godless2020 发表于 2026-2-27 18:32</a>
+
+普通难度，一枪暴击打爆厨师的头，随便拿个奖杯</blockquote>
+我拿到一看就一个子弹，第一时间就收箱子里了<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+顺便之前用里昂的时候也是一枪没用，节省高级弹药成习惯了，结果cg里给我连开五枪，剩一颗给格蕾丝，给我气笑了。
+
+
+*****
+
+####  Muteki_Link  
+##### 1079#       发表于 2026-2-28 09:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69241035&amp;ptid=2252759" target="_blank">大厨麦当牛 发表于 2026-2-27 11:59</a>
+
+狂暴丧尸等敌人的头部或者弱点在移动中的运动幅度非常大，而且很诡异，用手柄低灵敏度是跟不上的。
+
+另外 ...</blockquote>
+格蕾丝篇的安魂曲应用尽用吗？没有那种必须过的boss战打吗？我看就一颗子弹直接丢箱子了
+
+另外硬币兑换箱里的升级是格蕾丝篇专用过了就没了还是可以留给里昂？感觉格蕾丝用枪机会不多，血量和射击注射剂想留给里昂
+
