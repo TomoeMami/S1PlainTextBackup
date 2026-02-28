@@ -5318,3 +5318,12 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 这套潜行+采集的解密玩法你跟上了制作组的思路倒还行，就是为了这个玩法整个流程只有一把小手枪真的有点过了
 
+
+*****
+
+####  卡拉德利姆  
+##### 1124#       发表于 2026-2-28 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69247923&amp;ptid=2252759" target="_blank">红魔馆的糖 发表于 2026-2-28 14:35</a></blockquote>
+这段简直就是给女玩家和南通量身定做的
+
