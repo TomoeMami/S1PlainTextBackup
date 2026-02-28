@@ -4911,3 +4911,11 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 格蕾丝篇强烈建议开字幕玩，疗养院里几乎每个丧尸都有自己的独门绝活，能反过来利用，比如这个就类似于4带的铁爪瞎子，能用空瓶引他杀怪。
 
+
+*****
+
+####  Chao  
+##### 1085#       发表于 2026-2-28 10:34
+
+看到豆腐偷窥李昂，我突发奇想，难道本作也会有豆腐DLC，而且这个豆腐会顶替王阿姨的戏份暗中搞间谍活动<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
