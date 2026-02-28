@@ -5086,3 +5086,15 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 只能每天玩一小会儿了<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红魔馆的糖  
+##### 1100#       发表于 2026-2-28 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69246387&amp;ptid=2252759" target="_blank">Muteki_Link 发表于 2026-2-28 11:06</a>
+环境音字幕必开的，提醒怪物和收集品都需要，战神血袋男也早有耳闻了。
+
+不过我对这次的潜行玩法还是颇有 ...</blockquote>
+这代的做题感很强，再叠加这个精英怪的血量设计，一股恶灵附身味儿<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
