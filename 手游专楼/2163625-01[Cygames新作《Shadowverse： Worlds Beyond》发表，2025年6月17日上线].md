@@ -34,3 +34,14 @@ t0卡组千唤万唤终于出来了，这商鞅法除了遇到守护和快攻外
 
 CY:我们这版本精心设计了那么多刷信仰任务卡组怎么能让一个三虹卡组截胡？一定要光速削弱<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FuckSCUT  
+##### 734#       发表于 2026-2-28 18:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69007707&amp;ptid=2163625" target="_blank">千千千千鸟 发表于 2026-1-10 20:25</a>
+
+NGA傻逼吧，发个帖子说影之诗BYD做成了，有5个卡包的环境真好玩了，被删了</blockquote>
+影之诗版不给说szb三个字<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
