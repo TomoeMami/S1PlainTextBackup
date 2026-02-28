@@ -5437,3 +5437,30 @@ FireShot Capture 028 - OVERVIEW - BIOHAZARD requiem WITH RESIDENT EVIL.NET - RES
 
 —— 来自 Xiaomi 22127RK46C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  SYH617  
+##### 1135#       发表于 2026-2-28 16:10
+
+<blockquote>黑猫软 发表于 2026-2-28 15:24
+沙漏没用
+
+断手跟挑战一个解密有关，目前还没见到彻底解开的
+
+不过都跟结局没关系 ...</blockquote>
+沙漏有写断手解密相关密码。
+
+*****
+
+####  红魔馆的糖  
+##### 1136#       发表于 2026-2-28 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69248654&amp;ptid=2252759" target="_blank">洛亚替身 发表于 2026-2-28 15:52</a>
+酣畅淋漓，关卡设计方面超神了，能看出每一个地方都有精心设计，体验非常好（甚至可以称得上脚本化关卡）
+
+ ...</blockquote>
+做题性很强，每个场景都有对应的处理方式，处理好了能省一大堆资源。
+
+然后被动态掉落2发子弹恶心<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
