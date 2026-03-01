@@ -12,3 +12,13 @@
 
 干架输了——哭——打输了——果然还是不能输——得打回去www
 
+
+*****
+
+####  渡边菌  
+##### 294#       发表于 2026-3-1 12:54
+
+什么狂战士<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-FS72, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
