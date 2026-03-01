@@ -7072,3 +7072,33 @@ DLC怕不是还是克里斯</blockquote>
 
 最后BOSS战处决动画真就是但丁上号了，太离谱了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  变老的大二  
+##### 1293#       发表于 2026-3-1 18:47
+
+<blockquote>zore 发表于 2026-3-1 13:11
+bsaa也太弱鸡了
+
+被世界第一bow威哥复制版30秒团灭可以理解
+
+后面蜘蛛眼bsaa还被苍蝇头干掉了
+</blockquote>
+那苍蝇头是neta死神汉克的。
+
+
+*****
+
+####  变老的大二  
+##### 1294#       发表于 2026-3-1 18:52
+
+这代里昂篇战斗系统打的爽，但是会被恶心怪和女主路线拖慢节奏。多周目留个存档专玩里昂篇了。
+
+*****
+
+####  dfdddfdd  
+##### 1295#       发表于 2026-3-1 18:55
+
+格蕾丝线的舔舔放水太明显了吧，同一个地图同一种怪里昂打硬的不行<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
