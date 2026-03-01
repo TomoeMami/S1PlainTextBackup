@@ -334,3 +334,26 @@ Ai写样式行不行啊？最近写样式写的有点难受。
 你们VIBE codeing都用的什么IDE?比如UNITY或者JAVA/C#,目前还在agenet阶段，用腾讯的GLM5.0还挺好用，不过 ...</blockquote>
 都vibe了为啥还要ide？ide是古代科技了，现在只需要在claude code里面打字聊天了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奶香花卷  
+##### 73#       发表于 2026-3-1 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69252947&amp;ptid=2275392" target="_blank">天地猫MKII 发表于 2026-3-1 09:21</a>
+你们VIBE codeing都用的什么IDE?比如UNITY或者JAVA/C#,目前还在agenet阶段，用腾讯的GLM5.0还挺好用，不过 ...</blockquote>
+Cursor看文件
+
+*****
+
+####  henvelleng  
+##### 74#       发表于 2026-3-1 14:23
+
+其实目前感觉和ai对话来分析代码结构的收获比较大，ai见多识广，一些不开源、半开源的框架，看不见的部分里面的很多机制，ai能猜出来，但让我猜我确实猜不出。
+
+编程的流程仍然是测试先行，边写边测，当然现在测试也让ai来写了。
+
+ai现在最大的瓶颈还是token消耗实在太快了，以至于有些小修小改我都不舍的让ai来，我自己不吃token，动动手得了
+
+—— 来自 Xiaomi 23117RK66C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
