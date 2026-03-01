@@ -7102,3 +7102,35 @@ bsaa也太弱鸡了
 
 格蕾丝线的舔舔放水太明显了吧，同一个地图同一种怪里昂打硬的不行<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cwlqxs  
+##### 1296#       发表于 2026-3-1 19:18
+
+经典难度通了 格蕾丝part整体设计都挺棒的 里昂的开放世界part真的让我ptsd了 
+
+这代里昂与其说是但丁不如说是奎托斯 大部分boss都是手斧直接把头劈开<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+另外这代小女孩真的太好看了 一堆光头娃娃那段就算我死了我也完全不觉得吓人 只觉得那些光头太可爱了
+
+*****
+
+####  drx66  
+##### 1297#       发表于 2026-3-1 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69255538&amp;ptid=2252759" target="_blank">eilot 发表于 2026-3-1 18:09</a>
+
+喪屍由地下挖出來都算，就不知道能否刷新，清完後轉了數次場景再回來都是沒有新喪屍出來
+
+做成這樣，不介意 ...</blockquote>
+这代没有存档次数限制，物品箱次数限制这些要求了吗？
+
+
+*****
+
+####  godless2020  
+##### 1298#       发表于 2026-3-1 19:22
+
+女主主要战斗在疗养院，但是不需要过度节省资源，在方舟的时候，资源足够的把舔爷全灭了，最后见里昂的时候，子弹80发，溶血剂3个，加血药3个，废料9个，心里想着前面打的那么憋屈省个屁<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
