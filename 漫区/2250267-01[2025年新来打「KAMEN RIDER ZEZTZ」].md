@@ -1172,3 +1172,11 @@ zero这真的反派像了吧
 
 主角主观杀人是子供向的红线，上集的烂摊子肯定要尽快处理。这集所有人都在指责seven，还有最后的死亡都是在告诉观众，seven的行为是错误的。不这么搞其他电视台就开香槟了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 789#       发表于 2026-3-1 11:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在要紧的就是赶紧揍诺克斯一顿让他别谜语了我已经全知道了
+
