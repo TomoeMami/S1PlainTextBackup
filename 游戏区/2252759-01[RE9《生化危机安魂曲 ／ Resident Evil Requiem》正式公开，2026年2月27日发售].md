@@ -6584,3 +6584,15 @@ bsaa也太弱鸡了
 
 发现一个中配的优势，这作路人对白没字幕，包括后面警局ZENO和女主在另一房间的剧情对话竟然也没给字幕，听力不行的慎选原声<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 1244#       发表于 2026-3-1 13:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254443&amp;ptid=2252759" target="_blank">kcalb 发表于 2026-3-1 13:42</a>
+发现一个中配的优势，这作路人对白没字幕，包括后面警局ZENO和女主在另一房间的剧情对话竟然也没给字幕，听 ...</blockquote>
+无所谓，那段在外面偷听到的也是些无关紧要的废话，
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

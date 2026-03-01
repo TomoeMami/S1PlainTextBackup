@@ -593,3 +593,11 @@ zero那本 ...</blockquote>
 仇海毛走这玩意也没用啊</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">再不毛就要被特攻打死了，他第一次见闪闪就是想用这玩意毛ea的，可惜被搅局了
 
+
+*****
+
+####  pzk  
+##### 1073#       发表于 2026-3-1 13:57
+
+有点难忍了，角色感觉全是自说自话的神人，登场的唯一目的就是混几句台词装逼，群像就是这么个“群”法吗
+
