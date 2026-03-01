@@ -1025,3 +1025,28 @@ QE_P2Y]~8U4(GVBQ}TL0MH2.jpg
 
 <img src="https://p.sda1.dev/31/cc8a8993f59c852d8f3695c1a1995df3/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  离心  
+##### 772#       发表于 2026-3-1 08:38
+
+真被高桥玩出来了<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/31/e22f86aeeacab1cbc49c4a7820a380a8/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  kal_008  
+##### 773#       发表于 2026-3-1 08:40
+
+这个是真爆了，莫被杀死，看见梦境红月，回到第二集，外加op2更换，相当于做了快半年的饺子就为了这一碟醋，是真敢啊
+
+*****
+
+####  milky658  
+##### 774#       发表于 2026-3-1 08:44
+
+这集最后的重置之前隐隐约约感觉到了，死那么多人，莫还崩溃了，很像文字游戏推出BE的展开。我原本猜是nox或者code主导重置世界，拿一集总集篇写nox视角的剧情展开。直接回溯到第一集没想到
+op最后zzz慢慢走上前，背景在不断循环，循环速度越来越快，会不会也是有意为之呢...
+
