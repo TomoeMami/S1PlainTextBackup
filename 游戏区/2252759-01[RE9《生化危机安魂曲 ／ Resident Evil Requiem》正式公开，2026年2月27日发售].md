@@ -6531,3 +6531,17 @@ switch2进浣熊市卡飞了<img src="https://static.stage1st.com/image/smiley/f
 一周目传统难度和现代难度除了存档方式还有什么区别吗？</blockquote>
 似乎血量攻击力之类的都会有影响
 
+
+*****
+
+####  zore  
+##### 1239#       发表于 2026-3-1 13:11
+
+bsaa也太弱鸡了
+
+被世界第一bow威哥复制版30秒团灭可以理解
+
+后面蜘蛛眼bsaa还被苍蝇头干掉了
+
+这精英卫队苍蝇头还能和病老头55开，这么吊有病老头和肘岩哥啥事啊<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

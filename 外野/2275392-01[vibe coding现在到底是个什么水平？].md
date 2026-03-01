@@ -226,3 +226,21 @@ augment现在中小需求用sonnet算是性价比极高了
 
 公司部署的菜鸡glm都能完成挺多工作了。
 
+
+*****
+
+####  darklinden  
+##### 65#       发表于 2026-3-1 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69253866&amp;ptid=2275392" target="_blank">mishizuo 发表于 2026-3-1 11:59</a>
+我是跟ai讨论计划，计划ok了，才让ai上手。
+
+感觉不怎么乱改，输出不好时回滚，更新计划重做。
+
+公司部署的 ...</blockquote>
+只能说我的活儿太碎太小，curd和UI boy的活儿让ai干给它说半天不如自己干快了
+偶尔通用控件类的需求让它干，讲半天也是烦，给出要求让它自己出测试然后跑也是瞎扯加低级错误还会感谢你指出token消耗飞快，想想这点小事儿就不劳烦它老人家了
+能干是能干，一是有点请不起它，一个是看它给我瞎扯或者玩屎有点考验血压
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
