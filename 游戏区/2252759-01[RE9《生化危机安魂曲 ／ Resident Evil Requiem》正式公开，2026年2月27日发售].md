@@ -7705,3 +7705,11 @@ GGC AAG AUA ACG  ...</blockquote>
 
 有人通过修改在物品栏得到了玛丽的玩偶，然后带着玩偶抱着艾米莉去听笑声解开了最终谜题。剩下需要知道的就是如何正常取得这个玩偶
 
+
+*****
+
+####  霸王向小受  
+##### 1351#       发表于 2026-3-2 03:09
+
+总不会是又没做完吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
