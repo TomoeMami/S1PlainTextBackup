@@ -261,3 +261,11 @@ fx机设在我心中还不如3呢
 
 由琳的守备值也太低了，最弱ssr双盾了
 
+
+*****
+
+####  Hominidae  
+##### 3691#       发表于 2026-3-1 15:19
+
+这3000钻还是发出来了，好啊好啊<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
