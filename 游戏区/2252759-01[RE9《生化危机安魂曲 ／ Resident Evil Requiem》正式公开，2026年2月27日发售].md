@@ -6679,3 +6679,52 @@ bsaa也太弱鸡了
 但是我寻思不是都知道密码是星星月日了吗，穷举最多6次就能解开的玩意，结果带小女孩来还不告诉人家密码是什么，甚至不告诉她密码有几位，然后出去打了一架回来小女孩说解完谜了
 无敌了这剧情
 
+
+*****
+
+####  梅斯之围  
+##### 1253#       发表于 2026-3-1 14:47
+
+这游戏鼠标灵敏度设置在哪？我怎么找不到
+
+*****
+
+####  bingo0716  
+##### 1254#       发表于 2026-3-1 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254720&amp;ptid=2252759" target="_blank">梅斯之围 发表于 2026-3-1 14:47</a>
+
+这游戏鼠标灵敏度设置在哪？我怎么找不到</blockquote>
+在第一人称第三人称视角切换那里，选项后面有个按钮
+
+
+*****
+
+####  bingo0716  
+##### 1255#       发表于 2026-3-1 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254691&amp;ptid=2252759" target="_blank">UmarIbnLaAhad 发表于 2026-3-1 14:38</a>
+
+妈的气笑了，第三个方块解谜说是分不清三个按钮哪个是日月星，只有盲文，所以必须带小女孩来；
+
+但是我寻思 ...</blockquote>
+抱着的时候对话里确实是有告诉Emily密码是什么，穷举这真没得说，可能是这机关跟厄尔庇斯一样输错就自爆吧<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  卡拉德利姆  
+##### 1256#       发表于 2026-3-1 14:52
+
+没办法，现代游戏业编剧的逻辑水平就这样，尤其是卡普空
+指望我他们能理清楚反派的行动逻辑和盲文密码还是要求太高了
+
+*****
+
+####  センコウ  
+##### 1257#       发表于 2026-3-1 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69253998&amp;ptid=2252759" target="_blank">武川日玄 发表于 2026-3-1 12:25</a>
+
+像jill一样强化人了吧</blockquote>
+可以是克隆，最后镜头也是克隆汉克大军就完事
+
