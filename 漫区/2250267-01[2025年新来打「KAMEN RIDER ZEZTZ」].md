@@ -1180,3 +1180,54 @@ zero这真的反派像了吧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在要紧的就是赶紧揍诺克斯一顿让他别谜语了我已经全知道了
 
+
+*****
+
+####  故障机器人  
+##### 790#       发表于 2026-3-1 11:19
+
+一周目结束了，能看吗
+之前灾厄大王登场就想补了，但是骑士这几年…
+
+*****
+
+####  milky658  
+##### 791#       发表于 2026-3-1 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69253435&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-3-1 10:43</a>
+我大概懂了，宁梦是绫波丽，暗码通过无数个宁梦控制着无数个梦境，而非宁梦可以进出无数个梦境，宁梦不可能 ...</blockquote>
+7上集舍弃名字等细节都和特工前辈对上了，实则走上了前辈的老路，精神崩坏舍弃生活，梦境学习还有后遗症一直折磨特工。变成seven的莫放着不管估计也会变成夫人那样行为极端精神失常的人吧
+
+
+*****
+
+####  暗黑能乐  
+##### 792#       发表于 2026-3-1 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69253533&amp;ptid=2250267" target="_blank">milky658 发表于 2026-3-1 10:58</a>
+
+预告里0和3也保留记忆，而且计划似乎进入下一阶段，那code创造的扭曲的世界就更有意思了 ...</blockquote>
+加长版预告里感觉狼姐和6可能也有记忆
+
+*****
+
+####  暗黑能乐  
+##### 793#       发表于 2026-3-1 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69253672&amp;ptid=2250267" target="_blank">milky658 发表于 2026-3-1 11:20</a>
+
+7上集舍弃名字等细节都和特工前辈对上了，实则走上了前辈的老路，精神崩坏舍弃生活，梦境学习还有后遗症 ...</blockquote>
+不是，主要是夫人上一秒还在聊出任务，下一秒威胁到孩子后一秒变脸，总感觉更像是触发了什么设置的底线后精神催眠发动了，母爱虽然感人，但是我感觉母爱来的有点突然，更像是下暗示下的
+
+*****
+
+####  milky658  
+##### 794#       发表于 2026-3-1 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69253668&amp;ptid=2250267" target="_blank">故障机器人 发表于 2026-3-1 11:19</a>
+一周目结束了，能看吗
+之前灾厄大王登场就想补了，但是骑士这几年…</blockquote>
+这种剧情推动人物，重视解谜的剧建议再等等。官方定义这半年都是一阶段。直到这几集之前节奏都缓慢，琐碎的伏笔很多，逻辑性也强，一直总结的话不难猜出最新一集的展开。但这种叙事结构谜底撑不住就全垮掉了，后半段解谜才是重头戏
+
+而且特工这种灰色题材，抛出的矛盾和人物负面描写都尖锐得多，很多矛盾没有答案，角色都有自己的立场，后期吵三观的烈度估计要激烈得多，一些社区太向着主角了，一些矛盾冲突看得会比较难受
+
