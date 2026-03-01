@@ -7362,3 +7362,12 @@ CAU → 编码 组氨酸 （Histidine，简写为 His 或 H）
 
 如果用单字母简写表示，这条肽链就是：G K I T C H。
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 1319#       发表于 2026-3-1 22:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">保护伞隔几年一堆掉san的事故真遭得住吗
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女主崩溃，威斯克复制人在那安慰你得支棱起来太好玩了
+

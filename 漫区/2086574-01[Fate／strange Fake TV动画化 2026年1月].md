@@ -769,3 +769,11 @@ zero那本 ...</blockquote>
 所以弗拉特这蓝条是无限的？</blockquote>
 这么说吧，弗拉特实力远强于自己的从者。
 
+
+*****
+
+####  大耳兽  
+##### 1089#       发表于 2026-3-1 21:54
+
+<img src="https://p.sda1.dev/31/c9eff76141dc841e4ef45c137957dbd9/image.jpg" referrerpolicy="no-referrer">吾的无力。
+
