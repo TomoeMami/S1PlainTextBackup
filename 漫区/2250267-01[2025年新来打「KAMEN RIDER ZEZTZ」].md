@@ -1582,3 +1582,11 @@ nox：我说梦境沉睡之时世界将作为梦魇苏醒你尔多龙吗？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  pokemon最爱  
+##### 829#       发表于 2026-3-2 00:45
+
+感觉应该是灾厄破坏梦世界搞出bug了所以牢莫二周目成功继承一周目存档<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
