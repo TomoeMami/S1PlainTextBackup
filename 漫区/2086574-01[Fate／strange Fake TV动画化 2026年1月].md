@@ -795,3 +795,14 @@ zero那本 ...</blockquote>
 这么说吧，弗拉特实力远强于自己的从者。</blockquote>
 尊嘟假嘟，fa里和二世小说里没这么离谱吧
 
+
+*****
+
+####  大丈夫萌大乃  
+##### 1092#       发表于 2026-3-2 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69257724&amp;ptid=2086574" target="_blank">妄想中毒 发表于 2026-3-1 23:40</a>
+
+这群条子也太幽默了，杰克都说让他们先去救人结果就站那发呆一整集，然后起手就被秒 ...</blockquote>
+结尾小兄弟一回忆就很明显感觉要上去送了,然后果然送了,这剧本太刻意了吧<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
