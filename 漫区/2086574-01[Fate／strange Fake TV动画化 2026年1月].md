@@ -806,3 +806,11 @@ zero那本 ...</blockquote>
 这群条子也太幽默了，杰克都说让他们先去救人结果就站那发呆一整集，然后起手就被秒 ...</blockquote>
 结尾小兄弟一回忆就很明显感觉要上去送了,然后果然送了,这剧本太刻意了吧<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hosilly  
+##### 1093#       发表于 2026-3-2 00:53
+
+杰克、仇海、闪闪对峙的时候，saber组一边大摇大摆路过真的好怪好出戏啊
+
