@@ -1148,3 +1148,27 @@ zero这真的反派像了吧
 
 —— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  milky658  
+##### 786#       发表于 2026-3-1 10:58
+
+预告里0和3也保留记忆，而且计划似乎进入下一阶段，那code创造的扭曲的世界就更有意思了
+
+*****
+
+####  AP0rt_  
+##### 787#       发表于 2026-3-1 11:01
+
+此时不开，更待何时！
+<img src="https://p.sda1.dev/31/e77a07f809fd0294bd97cab4dcca7c75/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  milky658  
+##### 788#       发表于 2026-3-1 11:06
+
+主角主观杀人是子供向的红线，上集的烂摊子肯定要尽快处理。这集所有人都在指责seven，还有最后的死亡都是在告诉观众，seven的行为是错误的。不这么搞其他电视台就开香槟了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
