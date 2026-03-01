@@ -7371,3 +7371,33 @@ CAU → 编码 组氨酸 （Histidine，简写为 His 或 H）
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">保护伞隔几年一堆掉san的事故真遭得住吗
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女主崩溃，威斯克复制人在那安慰你得支棱起来太好玩了
 
+
+*****
+
+####  雪城穗乃香  
+##### 1320#       发表于 2026-3-1 22:08
+
+发售三天了，就没人试过通过解包之类的野路子来查查最终谜题要怎么解么
+
+还是说卡普空真藏了等过几天加个补丁就有后续线索了
+
+
+*****
+
+####  大厨麦当牛  
+##### 1321#       发表于 2026-3-1 22:12
+
+会不会在癫狂难度才能解？
+
+*****
+
+####  bingo0716  
+##### 1322#       发表于 2026-3-1 22:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69257006&amp;ptid=2252759" target="_blank">雪城穗乃香 发表于 2026-3-1 22:08</a>
+
+发售三天了，就没人试过通过解包之类的野路子来查查最终谜题要怎么解么
+
+还是说卡普空真藏了等过几天加个补 ...</blockquote>
+我也是急到不行，现在每天睁眼都英文日文各搜一轮新情况，现在最坏的结果就是笑声就是结果，只是bug没解锁
+
