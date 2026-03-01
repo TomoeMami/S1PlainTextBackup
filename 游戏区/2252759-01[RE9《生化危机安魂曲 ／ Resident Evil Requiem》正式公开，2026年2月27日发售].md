@@ -7655,3 +7655,14 @@ GGC AAG AUA ACG  ...</blockquote>
 
 还算感觉物有所值。下作还买
 
+
+*****
+
+####  木木の林  
+##### 1346#       发表于 2026-3-2 01:05
+
+打到拿到炸药了，目前个人最帅的一张截图出现了
+<img src="https://p.sda1.dev/31/29a942d34d22f5cb1afc1ac006b259c6/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
