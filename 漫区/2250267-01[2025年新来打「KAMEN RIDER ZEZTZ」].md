@@ -1515,3 +1515,14 @@ nox：我说梦境沉睡之时世界将作为梦魇苏醒你尔多龙吗？
 那里我第一反应有什么伏笔吗，但是没给出明确的闪回，我就想是不是宁梦也有下暗示能力，“不要毁掉”这个 ...</blockquote>
 宁梦是code用来掌握所有人梦境的，同时也有给人下暗示的能力（通过做梦？），所以这就是code的黑暗？2说的想要一个自由的世界所以就是不能有code在背后控制？好像串起来了
 
+
+*****
+
+####  法拉  
+##### 822#       发表于 2026-3-1 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69221338&amp;ptid=2250267" target="_blank">法拉 发表于 2026-2-23 12:59</a>
+
+感觉哥哥不一定是在谜语，可能他似前说的就是字面意思</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">我说什么来着
+
