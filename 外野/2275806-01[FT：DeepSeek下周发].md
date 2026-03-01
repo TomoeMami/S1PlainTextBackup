@@ -502,3 +502,22 @@ qwen3.5是1M上下文</blockquote>
 
 glm5 coder要来了，这个是真sonet甚至opus平替
 
+
+*****
+
+####  羊寢  
+##### 47#       发表于 2026-3-1 23:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69257266&amp;ptid=2275806" target="_blank">astkaasa 发表于 2026-3-1 22:40</a>
+glm5 coder要来了，这个是真sonet甚至opus平替</blockquote>
+唉，两碗饭你要deepsleep到什么时候<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  astkaasa  
+##### 48#       发表于 2026-3-1 23:02
+
+<blockquote>羊寢 发表于 2026-3-1 23:01
+唉，两碗饭你要deepsleep到什么时候</blockquote>
+两会+血月吧
+
