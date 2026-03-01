@@ -278,3 +278,20 @@ vibe coding尽头是coding，一旦涉及到细节修改，自己会点改的效
 
 最后呢这个“初段”的范围在光速增大。软件行业很快就要事实上消亡了。
 
+
+*****
+
+####  赤星ビスコ  
+##### 68#       发表于 2026-3-1 13:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69252781&amp;ptid=2275392" target="_blank">darklinden 发表于 2026-3-1 08:15</a>
+
+？
+
+我让sonnet4.5写个通用控件，给它堆了三页需求和公式和不要做什么，写出一坨不能跑的废物；
+
+改用oups 4. ...</blockquote>
+一般来讲，AI能做的最好的模式是，先告诉AI实现某种功能需要怎么做，AI再用同样的模式推广到其他功能。这就需要AI事先在项目中得到足够的信息
+
+可以理解为token消耗越多，给AI的上下文越多，AI做的更好。基本上消耗几十万token来构建上下文，生成一个执行计划，然后再消耗更多的token，生成可能几百行代码
+
