@@ -482,3 +482,11 @@ PS：其实老学校fps跟清版act殊途同归，反而是现代fps把fps作为
 
 <img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">第八层的难度有点窒息了。我指的是跑图难度。
 
+
+*****
+
+####  JOJO42  
+##### 59#       发表于 2026-3-1 16:28
+
+现在残酷血宫光是上40的难度都大增，v1那点控场性能根本控不住了
+
