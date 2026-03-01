@@ -7198,3 +7198,14 @@ bsaa也太弱鸡了
 
 pv里手炮一枪也崩不死厨师算是官方提示吧
 
+
+*****
+
+####  里村紅葉  
+##### 1305#       发表于 2026-3-1 20:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69255313&amp;ptid=2252759" target="_blank">梅斯之围 发表于 2026-3-1 17:26</a>
+
+感觉格蕾丝老妈遇害那段俩人傻站着，还有里昂直愣愣跟着吉迪恩进疗养院，都挺难绷的。觉得里昂没从电锯手里 ...</blockquote>
+他最后打完药平台塌的时候只张嘴喊格蕾丝抓住东西都不带拉一下人的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉整个人都处于被迫营业状态
+
