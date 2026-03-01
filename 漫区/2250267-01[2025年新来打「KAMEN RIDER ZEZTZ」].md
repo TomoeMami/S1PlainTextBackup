@@ -1558,3 +1558,15 @@ nox：我说梦境沉睡之时世界将作为梦魇苏醒你尔多龙吗？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">结果NOX只是教师职业病，遣词用句过于文雅
 
+
+*****
+
+####  shinnluna  
+##### 827#       发表于 2026-3-1 22:58
+
+ 本帖最后由 shinnluna 于 2026-3-1 22:59 编辑 
+
+2周目继承1周目神装<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+这不就是生化危机，里昂2周目带着一把无限弹药加特林重新刷关吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
