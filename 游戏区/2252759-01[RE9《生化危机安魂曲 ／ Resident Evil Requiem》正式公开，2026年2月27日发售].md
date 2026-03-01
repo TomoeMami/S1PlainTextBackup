@@ -6746,3 +6746,23 @@ bsaa也太弱鸡了
 开场就被格蕾丝恶心到了，一惊一乍，心里创伤，有话不说，各种恐怖片垃圾桥段一锅烩了。作为NPC的话没什么 ...</blockquote>
 格蕾丝最爽的就是全程一惊一乍之余把敌人全宰了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qappip  
+##### 1260#       发表于 2026-3-1 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69248225&amp;ptid=2252759" target="_blank">卡拉德利姆 发表于 2026-2-28 15:06</a>
+这段简直就是给女玩家和南通量身定做的</blockquote>
+小红书一堆这个<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2436A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  dio999  
+##### 1261#       发表于 2026-3-1 15:21
+
+果然开什么都不能在生化开直升机，这又献祭了一个直升机派骆驼
+
