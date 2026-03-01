@@ -1526,3 +1526,11 @@ nox：我说梦境沉睡之时世界将作为梦魇苏醒你尔多龙吗？
 感觉哥哥不一定是在谜语，可能他似前说的就是字面意思</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">我说什么来着
 
+
+*****
+
+####  赤黑的假面  
+##### 823#       发表于 2026-3-1 19:27
+
+牢莫：什么，nox说得是真的
+

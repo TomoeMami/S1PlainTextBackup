@@ -7134,3 +7134,18 @@ bsaa也太弱鸡了
 
 女主主要战斗在疗养院，但是不需要过度节省资源，在方舟的时候，资源足够的把舔爷全灭了，最后见里昂的时候，子弹80发，溶血剂3个，加血药3个，废料9个，心里想着前面打的那么憋屈省个屁<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 1299#       发表于 2026-3-1 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69255884&amp;ptid=2252759" target="_blank">drx66 发表于 2026-3-1 19:18</a>
+
+这代没有存档次数限制，物品箱次数限制这些要求了吗？</blockquote>
+看了通關成就分數
+
+反而有在難度普通(傳統)，最少都要用一次墨帶儲存的要求
+
+還有使用一次次元箱等要求
+
