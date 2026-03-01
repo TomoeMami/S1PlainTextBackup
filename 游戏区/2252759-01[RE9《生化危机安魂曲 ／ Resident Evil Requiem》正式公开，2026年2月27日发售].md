@@ -6853,3 +6853,13 @@ bsaa也太弱鸡了
 
 生化啥时候经费能拉满一次 这后期的地图设计跟疗养院比差太多了 要吓人不吓人，要新怪还是浣熊市特产再就业
 
+
+*****
+
+####  红魔馆的糖  
+##### 1270#       发表于 2026-3-1 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69255098&amp;ptid=2252759" target="_blank">黑色的js 发表于 2026-3-1 16:38</a>
+生化啥时候经费能拉满一次 这后期的地图设计跟疗养院比差太多了 要吓人不吓人，要新怪还是浣熊市特产再就业 ...</blockquote>
+4代+dlc已经拉满过一次了，仅此一次，过期不候<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
