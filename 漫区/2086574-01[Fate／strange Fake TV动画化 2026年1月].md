@@ -649,3 +649,29 @@ zero那本 ...</blockquote>
 
 太爽了，上一次追动画看的这么爽的都忘记是啥时候的事儿了，就是中间理查被闪闪追着射出烟雾的时候，怎么有火影的替身术的音效，弹幕也发现了，然后那段对话完，理查一冲上去，BGM的说唱开头还是 撒！sei！ 整的我好险没一口水喷电脑屏幕上<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakki  
+##### 1078#       发表于 2026-3-1 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254586&amp;ptid=2086574" target="_blank">今天不守尸 发表于 2026-3-1 14:16</a>
+还是把文戏删了直接打打打弄的更热闹点算了
+像西格玛和狂信子这种翻来覆去说什么信仰啊善良啊，台词文本太 ...</blockquote>
+这就是前几集原作党闹着要做的cp文戏，不做就说动画屁股歪，不推狂信西格玛推狂信蕾忍<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿刚  
+##### 1079#       发表于 2026-3-1 15:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254640&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-3-1 14:29</a>
+
+首先这是动画压缩台词整成了像临急只能要用天风反杀而已
+
+但是阿尔喀德斯无视他的话，又继续说了下去。
+
+「 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">主要他偷完之后后面好像一直都没用过？
+
