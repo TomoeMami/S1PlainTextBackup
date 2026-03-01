@@ -1550,3 +1550,11 @@ nox：我说梦境沉睡之时世界将作为梦魇苏醒你尔多龙吗？
 
 灾厄大王能超越白金成为令和过度形态待遇最好的么<img src="https://static.stage1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">太有安全感了
 
+
+*****
+
+####  黄泉川此方  
+##### 826#       发表于 2026-3-1 20:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">结果NOX只是教师职业病，遣词用句过于文雅
+
