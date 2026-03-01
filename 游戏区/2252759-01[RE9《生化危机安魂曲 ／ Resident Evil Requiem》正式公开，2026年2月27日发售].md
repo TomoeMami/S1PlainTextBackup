@@ -7515,3 +7515,29 @@ GGC AAG AUA ACG  ...</blockquote>
 抱着的时候对话里确实是有告诉Emily密码是什么，穷举这真没得说，可能是这机关跟厄尔庇斯一样输错就自爆 ...</blockquote>
 就和千辛万苦弄来两个人造器官，发现只是要尸体腿上的权限环一样难泵，怎么地人家不动弹一下你还拿不了了是吧<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  u2deack  
+##### 1334#       发表于 2026-3-1 23:20
+
+里昂的枪强什么比较好，刚能升级这段感觉点数也不是很多的样子
+
+*****
+
+####  变老的大二  
+##### 1335#       发表于 2026-3-1 23:24
+
+<blockquote>u2deack 发表于 2026-3-1 23:20
+里昂的枪强什么比较好，刚能升级这段感觉点数也不是很多的样子</blockquote>
+连喷，连狙，消音9吧。
+
+*****
+
+####  红魔馆的糖  
+##### 1336#       发表于 2026-3-1 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69257565&amp;ptid=2252759" target="_blank">u2deack 发表于 2026-3-1 23:20</a>
+里昂的枪强什么比较好，刚能升级这段感觉点数也不是很多的样子</blockquote>
+散弹换成商店的半自动散弹，然后和老狙一起先拉满威力，这然后升威力比较高的那把冲锋的弹容和威力，然后升安魂威力，其他稳定性啥的后期看着升就行，最后都能拉满的
+

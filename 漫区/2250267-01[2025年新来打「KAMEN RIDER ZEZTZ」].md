@@ -1570,3 +1570,15 @@ nox：我说梦境沉睡之时世界将作为梦魇苏醒你尔多龙吗？
 
 这不就是生化危机，里昂2周目带着一把无限弹药加特林重新刷关吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 828#       发表于 2026-3-1 23:14
+
+灾厄大人你收手吧，别欺负小朋友了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+剧情就这么直接loop起来，希望后面能圆回来吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
