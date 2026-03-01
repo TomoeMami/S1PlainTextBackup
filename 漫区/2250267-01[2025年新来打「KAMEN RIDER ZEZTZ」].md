@@ -1390,3 +1390,11 @@ nox：我说梦境沉睡之时世界将作为梦魇苏醒你尔多龙吗？
 
 结果牢诺说的都是大白话，只是当时大家觉得他是个谜语人<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 809#       发表于 2026-3-1 14:12
+
+炸弹梦魇:行行好吧，普通形态我都打不过，你让我打爆肌蚊？
+

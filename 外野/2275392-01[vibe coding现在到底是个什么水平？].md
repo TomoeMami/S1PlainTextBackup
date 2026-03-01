@@ -324,3 +324,13 @@ vibe coding尽头是coding，一旦涉及到细节修改，自己会点改的效
 
 Ai写样式行不行啊？最近写样式写的有点难受。
 
+
+*****
+
+####  jxwats1  
+##### 72#       发表于 2026-3-1 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69252947&amp;ptid=2275392" target="_blank">天地猫MKII 发表于 2026-3-1 09:21</a>
+你们VIBE codeing都用的什么IDE?比如UNITY或者JAVA/C#,目前还在agenet阶段，用腾讯的GLM5.0还挺好用，不过 ...</blockquote>
+都vibe了为啥还要ide？ide是古代科技了，现在只需要在claude code里面打字聊天了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
