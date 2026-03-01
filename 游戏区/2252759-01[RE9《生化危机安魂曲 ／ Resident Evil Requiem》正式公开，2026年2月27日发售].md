@@ -6776,3 +6776,23 @@ bsaa也太弱鸡了
  抱着的时候对话里确实是有告诉Emily密码是什么，穷举这真没得说，可能是这机关跟厄尔庇斯一样输错就自爆 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我玩到那里地图都清干净了，一路直冲过去路上根本没对话
 
+
+*****
+
+####  月夜的风  
+##### 1263#       发表于 2026-3-1 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254866&amp;ptid=2252759" target="_blank">UmarIbnLaAhad 发表于 2026-3-1 15:29</a>
+
+我玩到那里地图都清干净了，一路直冲过去路上根本没对话</blockquote>
+刚抱出III级房时就说了，不可能漏的啊。
+
+123.png
+(381.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 15:38 上传
+
+<img src="https://img.stage1st.com/forum/202603/01/153850mkn4kj4oz6ow7g1d.png" referrerpolicy="no-referrer">
+
