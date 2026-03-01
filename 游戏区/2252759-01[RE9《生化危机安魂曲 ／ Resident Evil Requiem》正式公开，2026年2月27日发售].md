@@ -6512,3 +6512,22 @@ switch2进浣熊市卡飞了<img src="https://static.stage1st.com/image/smiley/f
 
 一周目传统难度和现代难度除了存档方式还有什么区别吗？
 
+
+*****
+
+####  红魔馆的糖  
+##### 1237#       发表于 2026-3-1 12:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69253945&amp;ptid=2252759" target="_blank">UmarIbnLaAhad 发表于 2026-3-1 12:14</a>
+女主关卡谁设计的，傻逼吧，我玩生化是来拿瓶子开关引怪躲猫猫的？</blockquote>
+女主进了疗养院后就是正常生化体验了
+
+*****
+
+####  红魔馆的糖  
+##### 1238#       发表于 2026-3-1 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254167&amp;ptid=2252759" target="_blank">DawnGuardian 发表于 2026-3-1 12:57</a>
+一周目传统难度和现代难度除了存档方式还有什么区别吗？</blockquote>
+似乎血量攻击力之类的都会有影响
+
