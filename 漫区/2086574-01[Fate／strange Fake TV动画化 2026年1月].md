@@ -714,3 +714,11 @@ zero那本 ...</blockquote>
 像西格玛和狂信子这种翻来覆去说什么信仰啊善良啊，台词文本太 ...</blockquote>
 可能對標Fate原作遊戲的文本水平吧<img src="https://static.stage1st.com/image/smiley/carton2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  index  
+##### 1084#       发表于 2026-3-1 16:09
+
+所以弗拉特这蓝条是无限的？
+
