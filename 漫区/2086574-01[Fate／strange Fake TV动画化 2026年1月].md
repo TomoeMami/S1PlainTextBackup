@@ -777,3 +777,11 @@ zero那本 ...</blockquote>
 
 <img src="https://p.sda1.dev/31/c9eff76141dc841e4ef45c137957dbd9/image.jpg" referrerpolicy="no-referrer">吾的无力。
 
+
+*****
+
+####  妄想中毒  
+##### 1090#       发表于 2026-3-1 23:40
+
+这群条子也太幽默了，杰克都说让他们先去救人结果就站那发呆一整集，然后起手就被秒<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
