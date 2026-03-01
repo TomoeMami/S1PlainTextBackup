@@ -6,3 +6,15 @@
 
 muvgg马上半周年了，这半年基本长期dmm榜一。属于盘活了。
 
+
+*****
+
+####  whzfjd  
+##### 2443#       发表于 2026-3-1 21:15
+
+因为 rule34video 的 HS 录屏很没品地把对话框给隐藏了所以还是去玩了下，现在也是好时代了**终于可以模拟网卡（tun模式），再也不用斗代理导流了日本节点随便进。
+
+发现还有 5000 日元的买断 H scene，5000 日元都能买个骨折大黄油了吧，网络游戏不要太过分（所以买不买？）。
+
+另外吐槽下这些 DMM 页游不少也是 gal 厂出身吧，怎么连 ctrl 快进这种祖宗之法都丢了，还有一家 skip 是快进，另一家 skip 是全跳<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
