@@ -1231,3 +1231,47 @@ zero这真的反派像了吧
 
 而且特工这种灰色题材，抛出的矛盾和人物负面描写都尖锐得多，很多矛盾没有答案，角色都有自己的立场，后期吵三观的烈度估计要激烈得多，一些社区太向着主角了，一些矛盾冲突看得会比较难受
 
+
+*****
+
+####  TOYSTORY  
+##### 795#       发表于 2026-3-1 11:28
+
+ 本帖最后由 TOYSTORY 于 2026-3-1 11:30 编辑 
+
+有意思，这样诺克斯说的不少谜语都能有合理解释了。轮回者说的话反正普通人也听不懂，懂了也不一定愿意信。之前有几次放任梦魇搞事也能用“摆烂/大不了死了读档”来圆<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说上次来打棚搞这种轮回甚至可能是集体轮回是哪部，假面骑士4号？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  金星  
+##### 796#       发表于 2026-3-1 11:30
+
+这展开……<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+是一开始就在恶梦中呢，还是用能力直接重启呢
+有意思了
+
+
+*****
+
+####  milky658  
+##### 797#       发表于 2026-3-1 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69253692&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-3-1 11:24</a>
+不是，主要是夫人上一秒还在聊出任务，下一秒威胁到孩子后一秒变脸，总感觉更像是触发了什么设置的底线后 ...</blockquote>
+我倾向于夫人的精神也已经坏掉了。op和正剧里喜怒无常的表现都在刻画一个表面端庄，内心疯狂的人。她体内应该也有梦魇，存在和莫一样被梦魇夺舍的可能性。而且富士见说的话也能套到夫人身上，强烈的愿望被扭曲了，她的美梦是有个孩子，变梦魇变成噩梦，诞下宁梦的时候把强烈的愿望寄托在她身上了吧
+3下的任务是消灭梦魇，最后杀了7，感觉莫已经被梦胶囊反噬变成梦魇了
+
+*****
+
+####  黑上シグマ  
+##### 798#       发表于 2026-3-1 11:37
+
+<blockquote>引用第791楼暗黑能乐于2026-03-01 11:22发表的  :
+
+milky658 发表于 2026-3-1 10:58预告里0和3也保留记忆，而且计划似乎进入下一阶......</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">壮汉是5
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
