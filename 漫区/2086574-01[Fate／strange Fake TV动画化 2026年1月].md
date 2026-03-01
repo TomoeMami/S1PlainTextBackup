@@ -701,3 +701,16 @@ zero那本 ...</blockquote>
 
 “当你相信了乳海言论”be like
 
+
+*****
+
+####  病態極端  
+##### 1083#       发表于 2026-3-1 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254586&amp;ptid=2086574" target="_blank">今天不守尸 发表于 2026-3-1 14:16</a>
+
+还是把文戏删了直接打打打弄的更热闹点算了
+
+像西格玛和狂信子这种翻来覆去说什么信仰啊善良啊，台词文本太 ...</blockquote>
+可能對標Fate原作遊戲的文本水平吧<img src="https://static.stage1st.com/image/smiley/carton2017/075.png" referrerpolicy="no-referrer">
+
