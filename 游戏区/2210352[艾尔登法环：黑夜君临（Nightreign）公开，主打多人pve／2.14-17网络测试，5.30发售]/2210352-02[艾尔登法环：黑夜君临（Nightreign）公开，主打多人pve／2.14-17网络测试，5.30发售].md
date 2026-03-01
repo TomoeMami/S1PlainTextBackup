@@ -121,3 +121,16 @@ B站上的攻略大多是“注意**和##之后，其他简单看滚一下就过
 
 胖宝宝没减伤真就和蛆一样<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wasian  
+##### 2128#       发表于 2026-3-2 02:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254189&amp;ptid=2210352" target="_blank">ohi.02 发表于 2026-3-1 13:00</a>
+
+最近在玩处决流，辛辛苦苦蓄力打出来的处决老是被队友抢了，更别提切武器加上决心了，好难受啊
+
+—— 来自  ...</blockquote>
+处决流也就单通厉害了，多人玩不是纯折磨
+
