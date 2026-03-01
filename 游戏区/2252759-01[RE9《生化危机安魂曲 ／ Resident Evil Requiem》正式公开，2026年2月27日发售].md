@@ -7419,3 +7419,49 @@ CAU → 编码 组氨酸 （Histidine，简写为 His 或 H）
 然后我之前都以为伞老板只是经商天才，没想到还真有点实力，这解毒剂太权威了，生效也快，以后直接配成子弹，还有生化超人什么事<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 最后经典dlc或者续作埋伏笔，等了
 
+
+*****
+
+####  MR骑士道MKⅦ  
+##### 1325#       发表于 2026-3-1 22:46
+
+这游戏没有新游戏+吗？
+
+*****
+
+####  哈罗  
+##### 1326#       发表于 2026-3-1 22:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69256168&amp;ptid=2252759" target="_blank">梅斯之围 发表于 2026-3-1 20:04</a>
+
+pv里手炮一枪也崩不死厨师算是官方提示吧</blockquote>
+我一周目崩不死，二周目却崩死了，选的不继承全新开局
+
+
+*****
+
+####  cangyuyao  
+##### 1327#       发表于 2026-3-1 22:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69256904&amp;ptid=2252759" target="_blank">hacisiki 发表于 2026-3-1 21:54</a>
+
+生化9断手解谜的第一步没人提那一段密码其实是一个碱基对么？我这边跑了一下大概是这个：
+
+GGC AAG AUA ACG  ...</blockquote>
+这个已经解了，现在全卡在到底要让哪两个人听到声音
+
+对比了不同语言的挑战说明应该是两个女的，但试了很多都没有进展
+
+*****
+
+####  变老的大二  
+##### 1328#       发表于 2026-3-1 22:55
+
+<blockquote>zore 发表于 2026-3-1 19:48
+那也太多了
+
+一共出现3个苍蝇头，如果水平都这么吊</blockquote>
+1v1那个声优和处决都用的汉克的，躺尸后手上也有感染痕迹。
+
+当然卡婊大概率不会认这是真汉克，到时候随便扯一扯什么理由说是复制人得了。
+
