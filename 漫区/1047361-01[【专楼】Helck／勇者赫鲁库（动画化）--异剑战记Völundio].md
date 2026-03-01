@@ -30,3 +30,23 @@
 
 唉，心情复杂，不过作者以前说过即便腰斩了也会想办法以其他形式连载完，先观望吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TR4835  
+##### 1242#       发表于 2026-3-1 23:07
+
+下一话应该有进展了
+
+
+*****
+
+####  azbhg1  
+##### 1243#       发表于 2026-3-1 23:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69257462&amp;ptid=1047361" target="_blank">TR4835 发表于 2026-3-1 23:07</a>
+
+下一话应该有进展了</blockquote>
+没有下一话了，下一话遥遥无期
+<img src="https://p.sda1.dev/31/04e6bbad661caa8083c111aa043354c4/msedge_7sNBFmTiOO.png" referrerpolicy="no-referrer">
+

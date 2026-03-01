@@ -7486,3 +7486,32 @@ GGC AAG AUA ACG  ...</blockquote>
 我也是急到不行，现在每天睁眼都英文日文各搜一轮新情况，现在最坏的结果就是笑声就是结果，只是bug没解 ...</blockquote>
 大概率是太空小萝莉的联动彩蛋。 小萝莉发售要六月份了。 要么等新demo解谜吧。
 
+
+*****
+
+####  红魔馆的糖  
+##### 1331#       发表于 2026-3-1 23:07
+
+ 本帖最后由 红魔馆的糖 于 2026-3-1 23:09 编辑 
+
+流程通关感想:
+标准难度女主完全不需要省安魂，有就用就得了，女主线根本没有需要安魂爆输出的boss，李三光完全不需要继承安魂，散弹大狙冲锋枪打boss输出也是猛的一批，最后打大boss还有20发加一堆其他子弹，最终boss甚至会掉火箭筒炸自己，整个流程中需要安魂秒怪的地方靠三光自己的子弹也足够了<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大厨麦当牛  
+##### 1332#       发表于 2026-3-1 23:12
+
+三光本作是完全不用担心子弹不够的问题的，因为这个手斧太屌了，三光又几乎可以格挡万物，完美格挡又能用手斧直接处决小怪，手斧的耐久可以自己无限磨出来。
+
+*****
+
+####  takerest  
+##### 1333#       发表于 2026-3-1 23:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254734&amp;ptid=2252759" target="_blank">bingo0716 发表于 2026-3-1 14:51</a>
+
+抱着的时候对话里确实是有告诉Emily密码是什么，穷举这真没得说，可能是这机关跟厄尔庇斯一样输错就自爆 ...</blockquote>
+就和千辛万苦弄来两个人造器官，发现只是要尸体腿上的权限环一样难泵，怎么地人家不动弹一下你还拿不了了是吧<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
