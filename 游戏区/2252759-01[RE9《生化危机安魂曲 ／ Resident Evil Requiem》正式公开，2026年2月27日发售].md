@@ -7721,3 +7721,13 @@ GGC AAG AUA ACG  ...</blockquote>
 
 玩偶不就两个地方有吗，一个地下关的牢房一个艾米丽房间旁边空房里那个，严重怀疑就是空房可互动那个好吧，估计又是经典没实装<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ZOHAR=往世之痕  
+##### 1353#       发表于 2026-3-2 07:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69255708&amp;ptid=2252759" target="_blank">星野心叶 发表于 2026-3-1 18:44</a>
+最后BOSS战处决动画真就是但丁上号了，太离谱了</blockquote>
+分头刚进浣熊镇打大蜘蛛，让我一秒出戏到DMC初代
+
