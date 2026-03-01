@@ -114,3 +114,23 @@
 
        [https://bang-dream.com/bdp-guideline/](https://bang-dream.com/bdp-guideline/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 27505#       发表于 2026-3-1 21:44
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/01/214438bhiq0kdi83amhkqi.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-01_21-43-38.jpg</strong> (315.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 21:44 上传
+
+       [https://x.com/nobusawa_ex/status/2028092898382696662](https://x.com/nobusawa_ex/status/2028092898382696662)
+
+       [https://bushiroad.com/cv-nobusawa-ex-v2](https://bushiroad.com/cv-nobusawa-ex-v2)
+
