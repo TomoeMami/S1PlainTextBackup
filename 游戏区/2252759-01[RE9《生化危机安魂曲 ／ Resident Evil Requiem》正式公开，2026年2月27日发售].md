@@ -7160,3 +7160,16 @@ bsaa也太弱鸡了
 巅狂难度就变成act了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="http://i0.hdslb.com/bfs/new_dyn/2b02f80609439afae8590bc43a4ad3d91627378.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zore  
+##### 1301#       发表于 2026-3-1 19:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69255729&amp;ptid=2252759" target="_blank">变老的大二 发表于 2026-3-1 18:47</a>
+
+那苍蝇头是neta死神汉克的。</blockquote>
+那也太多了
+
+一共出现3个苍蝇头，如果水平都这么吊<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
