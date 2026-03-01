@@ -1275,3 +1275,19 @@ milky658 发表于 2026-3-1 10:58预告里0和3也保留记忆，而且计划似
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  theti  
+##### 799#       发表于 2026-3-1 12:13
+
+<img src="https://img.stage1st.com/forum/202603/01/121237vh46tvt7fcjt8tff.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8116.jpeg</strong> (418.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 12:12 上传
+
+真神了，第一集为什么车没有司机，是因为3号隐身来撞，斗对上了
+
