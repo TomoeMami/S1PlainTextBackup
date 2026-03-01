@@ -6452,3 +6452,17 @@ switch2进浣熊市卡飞了<img src="https://static.stage1st.com/image/smiley/f
 不是，里昂在这作已经很莫名其妙了（其他主角好歹都在浣熊市长住过他就呆了一晚上被迫卖情怀），杰克那就更 ...</blockquote>
 我看结局的意思是elpis不限量，救雪梨还说得过去，但连艾米丽这种路人实验体都救了，那意思是所有病毒都要完蛋了。要么只是旧系t系和衍生病毒完蛋，要么以后走真菌和寄生虫方向，要么斯宾塞的研究没真正结束，应该就这三种可能了
 
+
+*****
+
+####  cangyuyao  
+##### 1232#       发表于 2026-3-1 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254042&amp;ptid=2252759" target="_blank">哈罗 发表于 2026-3-1 12:34</a>
+我看结局的意思是elpis不限量，救雪梨还说得过去，但连艾米丽这种路人实验体都救了，那意思是所有病毒都 ...</blockquote>
+这作设计成这样目的就是把t系病毒埋了以后重开，不然也没必要把什么植物复仇女神威斯克都拉出来打一顿，库里有哪些素材全堆出来<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+估计卡普空理想是跟生6差不多30周年大家一起卖，结果没钱只能上里昂，而且同伴系统也没做完，没法双人打boss只能让格蕾丝和里昂随机下线一个
+
+但以后怎么写真不好说，生化没有哪一作不吃书的
+

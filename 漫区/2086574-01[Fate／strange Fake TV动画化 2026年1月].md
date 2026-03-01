@@ -580,3 +580,16 @@ zero那本 ...</blockquote>
 那被毛走的是变恶魔？
 仇海毛走这玩意也没用啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 1072#       发表于 2026-3-1 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254049&amp;ptid=2086574" target="_blank">azbhg1 发表于 2026-3-1 12:35</a>
+
+那被毛走的是变恶魔？
+
+仇海毛走这玩意也没用啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">再不毛就要被特攻打死了，他第一次见闪闪就是想用这玩意毛ea的，可惜被搅局了
+
