@@ -253,3 +253,11 @@ fx机设在我心中还不如3呢
 仔细想想，都要一周年了，敌方受击动画还有防御、回避动画也都该做一下了吧 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">就是为了节省空间所以全删了
 
+
+*****
+
+####  silvia  
+##### 3690#       发表于 2026-3-1 14:19
+
+由琳的守备值也太低了，最弱ssr双盾了
+

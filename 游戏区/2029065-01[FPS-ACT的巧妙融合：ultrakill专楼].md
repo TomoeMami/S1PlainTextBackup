@@ -474,3 +474,11 @@ PS：其实老学校fps跟清版act殊途同归，反而是现代fps把fps作为
 
 特么的都2026年了怎么还在EA啊，刚加的Layer8，所以目标是多少层？
 
+
+*****
+
+####  桐道悠  
+##### 58#       发表于 2026-3-1 14:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">第八层的难度有点窒息了。我指的是跑图难度。
+
