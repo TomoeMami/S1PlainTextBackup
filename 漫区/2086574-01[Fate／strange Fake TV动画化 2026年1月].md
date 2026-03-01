@@ -558,3 +558,14 @@ zero那本 ...</blockquote>
 杰克这堆宝具都是干啥的</blockquote>
 宝具一变成对人特攻的恶魔，强度由所处地区人口密度决定，雪原人口应该是80万左右，这个状态已经能和top从者过招了，真能到东京、魔都这种地方的话估计能够到闪级。宝具二分身，每个都等同于本体实力，数量没有限制。杰克两个宝具最可怕的地方就是本身没有上限，只要条件符合同时御主魔管够，就能招出成千上万的top从者围殴。当然，正常的御主肯定是做不到的，就这一集这用法，一般魔术师估计已经被抽成人干了，只能说弗拉德的含金量还是太高了，狂杰克大概是这回签运最好的从者之一了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  199april  
+##### 1070#       发表于 2026-3-1 12:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69253689&amp;ptid=2086574" target="_blank">十壹 发表于 2026-3-1 11:24</a>
+
+杰克这就退场了？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">看结局会不会跳出来诈尸救场，没有的话就是直接在这里被海打死了
+
