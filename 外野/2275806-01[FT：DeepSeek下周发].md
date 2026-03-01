@@ -458,3 +458,18 @@ qwen3.5是1M上下文</blockquote>
 
 —— 来自 Xiaomi 24069RA21C, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  精钢魔像  
+##### 43#       发表于 2026-3-1 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69256728&amp;ptid=2275806" target="_blank">挖泥船 发表于 2026-3-1 21:30</a>
+
+感觉大众对ds寄予太多期待了
+
+不至于此
+
+当成正常的前沿实验室就好了，科研不是一帆风顺的，有顺利突破也有缓 ...</blockquote>
+主要是ds 总能搞出些不一样的成果。
+
