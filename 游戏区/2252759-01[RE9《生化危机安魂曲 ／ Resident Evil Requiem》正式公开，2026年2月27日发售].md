@@ -6736,3 +6736,13 @@ bsaa也太弱鸡了
 
 开场就被格蕾丝恶心到了，一惊一乍，心里创伤，有话不说，各种恐怖片垃圾桥段一锅烩了。作为NPC的话没什么，但是作为主要操作角色就过了，本来应该是可怜的受害者定位，结果第一印象变成了这B玩意真烦人。
 
+
+*****
+
+####  红魔馆的糖  
+##### 1259#       发表于 2026-3-1 15:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254760&amp;ptid=2252759" target="_blank">浴缸子 发表于 2026-3-1 14:59</a>
+开场就被格蕾丝恶心到了，一惊一乍，心里创伤，有话不说，各种恐怖片垃圾桥段一锅烩了。作为NPC的话没什么 ...</blockquote>
+格蕾丝最爽的就是全程一惊一乍之余把敌人全宰了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
