@@ -242,3 +242,14 @@ fx机设在我心中还不如3呢
 
 仔细想想，都要一周年了，敌方受击动画还有防御、回避动画也都该做一下了吧
 
+
+*****
+
+####  AminGly  
+##### 3689#       发表于 2026-3-1 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69252464&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-3-1 02:59</a>
+
+仔细想想，都要一周年了，敌方受击动画还有防御、回避动画也都该做一下了吧 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">就是为了节省空间所以全删了
+
