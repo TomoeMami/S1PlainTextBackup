@@ -960,3 +960,68 @@ QE_P2Y]~8U4(GVBQ}TL0MH2.jpg
 
 —— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  himfsz  
+##### 765#       发表于 2026-2-26 00:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69234049&amp;ptid=2250267" target="_blank">pokemon最爱 发表于 2026-2-26 00:15</a>
+
+虽然但是，极狐女主不是吃牡蛎而是猫猫吧（猫猫也不是普通人类就是了） ...</blockquote>
+真是奇怪，那为什么没有人觉得01的女主是刃唯阿，明明都是三骑，而且祢音在一开始的op里面甚至都没有自己的专属镜头，就和其他参赛选手一个待遇，二骑都有一个自己的镜头
+
+*****
+
+####  pokemon最爱  
+##### 766#       发表于 2026-2-26 01:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69234152&amp;ptid=2250267" target="_blank">himfsz 发表于 2026-2-26 00:48</a>
+
+真是奇怪，那为什么没有人觉得01的女主是刃唯阿，明明都是三骑，而且祢音在一开始的op里面甚至都没有自己 ...</blockquote>
+这个就要问东映了，极狐Cast表里角色顺序是狐神-狸猫-猫猫-牛-吃牡蛎，各种日语百科里也是把猫猫定位成女主角的（日文维基给了一个出处『フィギュア王』No.295里武部和高桥的访谈），国内在极狐时期提到女主也一直是说虽然看上去和波比和伊兹同位置的是吃牡蛎但女主是猫猫。
+
+01这边Cast表顺序是或人-不破-伊兹-刃姐，伊兹介绍也是女主角。
+
+*****
+
+####  milky658  
+##### 767#       发表于 2026-2-26 07:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69234152&amp;ptid=2250267" target="_blank">himfsz 发表于 2026-2-26 00:48</a>
+真是奇怪，那为什么没有人觉得01的女主是刃唯阿，明明都是三骑，而且祢音在一开始的op里面甚至都没有自己 ...</blockquote>
+番位和戏份和几号骑士没什么关系。猫猫和黑白丝有杂志讲过是双女主。甚至ZZZ里，古川雄辉是嘉宾位，男二是富士见
+
+*****
+
+####  暗黑能乐  
+##### 768#       发表于 2026-2-26 08:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三骑莫非就是宁梦爹
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  milky658  
+##### 769#       发表于 2026-3-1 08:31
+
+还真是loop题材啊，前几集确实是打出BE了
+
+
+*****
+
+####  离心  
+##### 770#       发表于 2026-3-1 08:35
+
+还有op2啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">今年这么有信心<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/31/c332517f1990130d31f8e175629ed9a0/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  挺好的  
+##### 771#       发表于 2026-3-1 08:36
+
+<img src="https://p.sda1.dev/31/cc8a8993f59c852d8f3695c1a1995df3/image.jpg" referrerpolicy="no-referrer">
+
