@@ -6863,3 +6863,11 @@ bsaa也太弱鸡了
 生化啥时候经费能拉满一次 这后期的地图设计跟疗养院比差太多了 要吓人不吓人，要新怪还是浣熊市特产再就业 ...</blockquote>
 4代+dlc已经拉满过一次了，仅此一次，过期不候<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nailuo1993  
+##### 1271#       发表于 2026-3-1 17:08
+
+女主线手枪弹药合成配方不如删了，害人浪费资源，血能成子弹也不合理
+
