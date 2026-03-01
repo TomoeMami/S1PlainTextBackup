@@ -18,3 +18,14 @@ muvgg马上半周年了，这半年基本长期dmm榜一。属于盘活了。
 
 另外吐槽下这些 DMM 页游不少也是 gal 厂出身吧，怎么连 ctrl 快进这种祖宗之法都丢了，还有一家 skip 是快进，另一家 skip 是全跳<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 2444#       发表于 2026-3-1 21:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68606167&amp;ptid=1860817" target="_blank">纯夏 发表于 2025-10-21 20:58</a>
+
+虽然是类BA的画风 但是意外的还不错 就是这么快把本家联动的底牌打出来了 后续还怎么继续吸引玩 ...</blockquote>
+还有其他系列可以联动吧
+
