@@ -1138,3 +1138,13 @@ zero这真的反派像了吧
 
 但是现在还有个疑问，女士的行为像是她也被催眠了，有一种异样感，不知道是不是错觉。
 
+
+*****
+
+####  离心  
+##### 785#       发表于 2026-3-1 10:50
+
+隔壁有句话说得好，用旮旯的话来说就是只刷了🍋一个人的好感导致be了。0 3连好感都没刷，nox是2周目角色<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
