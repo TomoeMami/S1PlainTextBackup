@@ -1086,3 +1086,19 @@ op最后zzz慢慢走上前，背景在不断循环，循环速度越来越快，
 
 高桥神了，大家都还在猜nox间谍，56假死时。他直接重启了
 
+
+*****
+
+####  浅川雏羽  
+##### 779#       发表于 2026-3-1 10:18
+
+带着战斗经验和灾厄大王回溯到第一话不就成了重生网文，上一世我被上司抹杀这一世我要让组织付出代价<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  暗黑能乐  
+##### 780#       发表于 2026-3-1 10:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卧槽，原来是回第二集，我说该怎么重启合理还在想呢，这回信息量是真爆炸了，好多分析得重新思考了啊
+
