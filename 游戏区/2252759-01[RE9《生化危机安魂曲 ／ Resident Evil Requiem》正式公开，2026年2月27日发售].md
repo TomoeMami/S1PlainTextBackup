@@ -6613,3 +6613,33 @@ bsaa也太弱鸡了
 
 这次是不是生化系列首次有里昂而无艾达的？
 
+
+*****
+
+####  红魔馆的糖  
+##### 1247#       发表于 2026-3-1 14:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254284&amp;ptid=2252759" target="_blank">Mikumiku831 发表于 2026-3-1 13:17</a>
+我是觉得浣熊市设计的比疗养院好 虽然地图指引一般 但是你去到每个角落都有物资补给 反正我舔的很爽很开心
+
+ ...</blockquote>
+手提箱够大而且不用墨带，要是也像女主一样小手提箱+物资箱以及不能自动存档的话估计也是来回跑，里昂线就是拿来爽的
+
+*****
+
+####  Cranberries  
+##### 1248#       发表于 2026-3-1 14:07
+
+【动画进步了？生化危机9：安魂曲 - 全武器『第一/三人称』演示 | 4K-哔哩哔哩】 https://b23.tv/qPK4OfZ
+这代检视动画感觉比4re又变好好多，第一人称的原因？
+
+
+*****
+
+####  王元姬无惨  
+##### 1249#       发表于 2026-3-1 14:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254538&amp;ptid=2252759" target="_blank">sagajytc 发表于 2026-3-1 14:04</a>
+这次是不是生化系列首次有里昂而无艾达的？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">dlc 请
+
