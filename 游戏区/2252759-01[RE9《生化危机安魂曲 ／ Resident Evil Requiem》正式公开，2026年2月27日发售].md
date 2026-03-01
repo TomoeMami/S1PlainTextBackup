@@ -6766,3 +6766,13 @@ bsaa也太弱鸡了
 
 果然开什么都不能在生化开直升机，这又献祭了一个直升机派骆驼
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 1262#       发表于 2026-3-1 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254734&amp;ptid=2252759" target="_blank">bingo0716 发表于 2026-3-1 14:51</a>
+ 抱着的时候对话里确实是有告诉Emily密码是什么，穷举这真没得说，可能是这机关跟厄尔庇斯一样输错就自爆 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我玩到那里地图都清干净了，一路直冲过去路上根本没对话
+
