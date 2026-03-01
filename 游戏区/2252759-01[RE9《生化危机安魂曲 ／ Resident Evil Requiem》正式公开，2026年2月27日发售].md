@@ -6596,3 +6596,20 @@ bsaa也太弱鸡了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  红魔馆的糖  
+##### 1245#       发表于 2026-3-1 14:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254262&amp;ptid=2252759" target="_blank">UmarIbnLaAhad 发表于 2026-3-1 13:14</a>
+正常吗，子弹缺得我还以为在玩专家模式</blockquote>
+标准模式，资源控的好的话，打完整个疗养院后你会发现敌人全宰了，身上还有一大堆资源。
+
+*****
+
+####  sagajytc  
+##### 1246#       发表于 2026-3-1 14:04
+
+这次是不是生化系列首次有里昂而无艾达的？
+

@@ -1382,3 +1382,11 @@ nox：我说梦境沉睡之时世界将作为梦魇苏醒你尔多龙吗？
 
 现在洗白nox就是莫和nox都是懂哥就合理了
 
+
+*****
+
+####  蔺无双  
+##### 808#       发表于 2026-3-1 13:59
+
+结果牢诺说的都是大白话，只是当时大家觉得他是个谜语人<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
