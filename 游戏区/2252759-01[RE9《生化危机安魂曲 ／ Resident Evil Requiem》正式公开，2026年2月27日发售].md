@@ -7713,3 +7713,11 @@ GGC AAG AUA ACG  ...</blockquote>
 
 总不会是又没做完吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RinC  
+##### 1352#       发表于 2026-3-2 03:50
+
+玩偶不就两个地方有吗，一个地下关的牢房一个艾米丽房间旁边空房里那个，严重怀疑就是空房可互动那个好吧，估计又是经典没实装<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
