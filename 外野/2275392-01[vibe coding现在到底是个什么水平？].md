@@ -303,3 +303,16 @@ vibe coding尽头是coding，一旦涉及到细节修改，自己会点改的效
 
 大善人谷歌的反重力的pro会员提供Opus, 我这一年不黑Google关闭GReader了.
 
+
+*****
+
+####  RookieTnT  
+##### 70#       发表于 2026-3-1 13:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69251729&amp;ptid=2275392" target="_blank">云卷花开 发表于 2026-2-28 23:39</a>
+
+买百炼的 coding plan，毕竟三方厂商上新快成本低，而且还能享受多个模型
+
+—— 来自 OnePlus PJD110, An ...</blockquote>
+别买百炼的 上下文阉割. 吐token特别慢.. 
+
