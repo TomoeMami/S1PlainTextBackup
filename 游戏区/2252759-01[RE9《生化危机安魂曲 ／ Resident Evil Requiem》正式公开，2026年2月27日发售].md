@@ -6466,3 +6466,49 @@ switch2进浣熊市卡飞了<img src="https://static.stage1st.com/image/smiley/f
 
 但以后怎么写真不好说，生化没有哪一作不吃书的
 
+
+*****
+
+####  谈积极  
+##### 1233#       发表于 2026-3-1 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69253123&amp;ptid=2252759" target="_blank">Lorraine_Kinney 发表于 2026-3-1 09:54</a>
+
+下面有材料做安魂曲弹药，没事。
+
+下面就只会遇见一个拦路的孢头丧尸，用融雪剂就行
+
+安魂曲弹药主要用来控 ...</blockquote>
+安心了，还想着重开攒点资源
+
+*****
+
+####  谈积极  
+##### 1234#       发表于 2026-3-1 12:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69253064&amp;ptid=2252759" target="_blank">plok201 发表于 2026-3-1 09:43</a>
+
+格蕾丝地下要杀的其实不多，过了疗养院后属于随便打了，我甚至没搞子弹配方导致没有安魂用
+
+其实格蕾丝线 ...</blockquote>
+我用的英语配音，女主在那哼哼唧唧的，胆子太小了，不像里·昂直接管他三七二十一
+
+
+*****
+
+####  yuanico  
+##### 1235#       发表于 2026-3-1 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69253227&amp;ptid=2252759" target="_blank">godless2020 发表于 2026-3-1 10:12</a>
+浣熊市你们不觉得绕吗，关键是地图没有很强辨识度，最后发现哪里有新敌人冒出来哪里就是路 ...</blockquote>
+主要是游戏内地图展示做的不好，比如地铁入口不标，通向哪里不直观。
+
+—— 来自 Xiaomi 22127RK46C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  DawnGuardian  
+##### 1236#       发表于 2026-3-1 12:57
+
+一周目传统难度和现代难度除了存档方式还有什么区别吗？
+
