@@ -134,3 +134,16 @@
 
        [https://bushiroad.com/cv-nobusawa-ex-v2](https://bushiroad.com/cv-nobusawa-ex-v2)
 
+
+*****
+
+####  堀内爱里衣  
+##### 27506#       发表于 2026-3-2 01:07
+
+       <strong>猴子也能看懂的邦多利Our Notes贝塔测试申请教程</strong> <blockquote><img src="https://img.stage1st.com/forum/202603/02/010659wm8e4aok804a44no.jpg" referrerpolicy="no-referrer">
+
+申请地址[https://bang-dream-on.bushimo.jp/cbt/](https://bang-dream-on.bushimo.jp/cbt/)
+
+苹果日本官网[https://www.apple.com/jp/](https://www.apple.com/jp/)</blockquote>
+       [https://www.bilibili.com/video/BV1AYPuz4EQc](https://www.bilibili.com/video/BV1AYPuz4EQc)
+
