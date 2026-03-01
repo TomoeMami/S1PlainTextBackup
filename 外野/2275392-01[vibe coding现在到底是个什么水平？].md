@@ -207,3 +207,22 @@ augment现在中小需求用sonnet算是性价比极高了
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  mishizuo  
+##### 64#       发表于 2026-3-1 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69252781&amp;ptid=2275392" target="_blank">darklinden 发表于 2026-3-1 08:15</a>
+
+？
+
+我让sonnet4.5写个通用控件，给它堆了三页需求和公式和不要做什么，写出一坨不能跑的废物；
+
+改用oups 4. ...</blockquote>
+我是跟ai讨论计划，计划ok了，才让ai上手。
+
+感觉不怎么乱改，输出不好时回滚，更新计划重做。
+
+公司部署的菜鸡glm都能完成挺多工作了。
+
