@@ -6643,3 +6643,29 @@ bsaa也太弱鸡了
 这次是不是生化系列首次有里昂而无艾达的？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">dlc 请
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 1250#       发表于 2026-3-1 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254521&amp;ptid=2252759" target="_blank">红魔馆的糖 发表于 2026-3-1 14:01</a>
+ 标准模式，资源控的好的话，打完整个疗养院后你会发现敌人全宰了，身上还有一大堆资源。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我应该快打完了，资源是不少，但是前面啥都没解锁让你拿三把烧火棍一共没10发子弹探图还是太难绷
+
+
+*****
+
+####  plok201  
+##### 1251#       发表于 2026-3-1 14:32
+
+剧情真的不能细想，毕竟你都不好说这个维克多究竟想干啥
+
+一开始以为他发现格蕾丝是老师的遗产，所以抓回去好好抽血研究，生死其实不重要，所以弄了个丧尸警察咬一下还可以测试格蕾丝的特殊性
+
+过场里也有他拿着血液兴奋一定要得到厄尔庇斯的场景
+
+但是中间假威出来后，格蕾丝又变成了厄尔庇斯的钥匙，也就是说其实体质不重要，有格蕾丝就能找到厄尔庇斯，那怎么之前不老老实实保护好格蕾丝
+
+你说假威和维克多不是一路，那为什么给格蕾丝输密码的机会，不是运气好厄尔庇斯肯定被毁，从所有剧情来看他都不想让斯宾塞这个成果毁掉
+
