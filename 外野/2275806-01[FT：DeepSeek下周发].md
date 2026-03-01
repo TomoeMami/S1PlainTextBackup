@@ -485,3 +485,20 @@ qwen3.5是1M上下文</blockquote>
 —— 来自 HUAWEI PLA-AL10, Android 12, 鹅球 v3.5.99</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">想看我给你编Gemini 4.0，gpt-6.1-codex，Claude-5.1，seedance3.0，qwen 4.0，GLM-6，泄漏
 
+
+*****
+
+####  astkaasa  
+##### 45#       发表于 2026-3-1 22:39
+
+<blockquote>蜇灵 发表于 2026-3-1 20:37
+qwen3.5是1M上下文</blockquote>
+1M好像是阿里云api给的，不是开源的版本
+
+*****
+
+####  astkaasa  
+##### 46#       发表于 2026-3-1 22:40
+
+glm5 coder要来了，这个是真sonet甚至opus平替
+
