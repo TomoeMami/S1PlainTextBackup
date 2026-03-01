@@ -71,3 +71,16 @@
 
 因为会心冻，男主因为他哥的事是不会想见到任何人心冻的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 452#       发表于 2026-3-1 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254036&amp;ptid=2250190" target="_blank">TOYSTORY 发表于 2026-3-1 12:33</a>
+
+肉身挡可能有完全体数码兽水平的攻击.....
+
+土星事迹败露被会长通缉，下一话粉毛就算没有跟阿诚的羁绊也 ...</blockquote>
+番茄头果然是开过高达的
+
