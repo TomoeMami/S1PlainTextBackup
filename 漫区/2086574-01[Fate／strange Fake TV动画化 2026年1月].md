@@ -759,3 +759,13 @@ zero那本 ...</blockquote>
 
 —— 来自 vivo V2302A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  仟音一心  
+##### 1088#       发表于 2026-3-1 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254990&amp;ptid=2086574" target="_blank">index 发表于 2026-3-1 16:09</a>
+所以弗拉特这蓝条是无限的？</blockquote>
+这么说吧，弗拉特实力远强于自己的从者。
+
