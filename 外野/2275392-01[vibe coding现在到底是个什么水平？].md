@@ -197,3 +197,13 @@ augment现在中小需求用sonnet算是性价比极高了
 
 再过几年Claude opus可以淘汰我了，现在还拒绝的只会被时代车轮碾过。
 
+
+*****
+
+####  pyjq  
+##### 63#       发表于 2026-3-1 11:56
+
+公司提供cc，我九成代码都是opus或者sonnet写的。限定好框架，让ai没有发挥空间把搬砖的活交给ai就能省好多事。
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
