@@ -1352,3 +1352,23 @@ nox：我说梦境沉睡之时世界将作为梦魇苏醒你尔多龙吗？
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  丹德里恩  
+##### 805#       发表于 2026-3-1 13:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69253471&amp;ptid=2250267" target="_blank">离心 发表于 2026-3-1 10:50</a>
+
+隔壁有句话说得好，用旮旯的话来说就是只刷了🍋一个人的好感导致be了。0 3连好感都没刷，nox是2周目角色
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">0有刷好感啊，flag都立了结果有个剧情锁
+
+*****
+
+####  JOHNCHCHAN  
+##### 806#       发表于 2026-3-1 13:24
+
+这看上去是血源那种梦境设定，无限层的梦境，每次死亡都会从上一层梦境中苏醒，甚至还可以在梦境中会遇到其他也能轮回的特工（猎人）
+

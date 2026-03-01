@@ -6545,3 +6545,34 @@ bsaa也太弱鸡了
 
 这精英卫队苍蝇头还能和病老头55开，这么吊有病老头和肘岩哥啥事啊<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 1240#       发表于 2026-3-1 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254178&amp;ptid=2252759" target="_blank">红魔馆的糖 发表于 2026-3-1 12:58</a>
+ 女主进了疗养院后就是正常生化体验了</blockquote>
+正常吗，子弹缺得我还以为在玩专家模式<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大厨麦当牛  
+##### 1241#       发表于 2026-3-1 13:15
+
+原来疗养院战神瞎子哥的吊针架攻击是代码杀，把空瓶扔良子肚皮上，他抡良子也是一击必杀。
+
+*****
+
+####  Mikumiku831  
+##### 1242#       发表于 2026-3-1 13:17
+
+我是觉得浣熊市设计的比疗养院好 虽然地图指引一般 但是你去到每个角落都有物资补给 反正我舔的很爽很开心
+
+清完一根区域后都有快路返回存档点 不用绕来绕去
+
+疗养院感觉每个区域都有不知所以 大房间套小房间 来回绕 没什么特别的捷径也没有解密 反正玩的很焦急
+
+倒是地下部分真不错 极致的空间利用 一切都刚刚好 
+
