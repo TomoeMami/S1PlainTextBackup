@@ -111,3 +111,13 @@ B站上的攻略大多是“注意**和##之后，其他简单看滚一下就过
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  2014720  
+##### 2127#       发表于 2026-3-2 01:40
+
+深4太折磨了，自己菜队友也菜<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+胖宝宝没减伤真就和蛆一样<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
