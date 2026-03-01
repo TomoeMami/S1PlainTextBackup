@@ -473,3 +473,15 @@ qwen3.5是1M上下文</blockquote>
 当成正常的前沿实验室就好了，科研不是一帆风顺的，有顺利突破也有缓 ...</blockquote>
 主要是ds 总能搞出些不一样的成果。
 
+
+*****
+
+####  FACS  
+##### 44#       发表于 2026-3-1 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69256165&amp;ptid=2275806" target="_blank">a4ac7 发表于 2026-3-1 20:03</a>
+啊？
+
+—— 来自 HUAWEI PLA-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">想看我给你编Gemini 4.0，gpt-6.1-codex，Claude-5.1，seedance3.0，qwen 4.0，GLM-6，泄漏
+
