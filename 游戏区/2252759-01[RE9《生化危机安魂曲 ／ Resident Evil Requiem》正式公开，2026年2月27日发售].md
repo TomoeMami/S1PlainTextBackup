@@ -6895,3 +6895,46 @@ bsaa也太弱鸡了
 
 格蕾丝疗养院就是鼓励你智取，甚至有一个空瓶引瞎子秒良子这种设定，良子本身也能挤死走廊上挡他路的丧尸，我怀疑整个生9制作组的心血全灌注在这个B疗养院了，各个敌人都是绝活哥，所以攻略法也千奇百怪，如果给格蕾丝足够的子弹，那这些心血就白费了。
 
+
+*****
+
+####  卡拉德利姆  
+##### 1275#       发表于 2026-3-1 17:47
+
+是的 
+
+所以你知道我带着对疗养院部分好印象来到浣熊市，然后看见丧尸从地下咕嘟一冒泡就钻出来的心情吗
+
+*****
+
+####  sliencer  
+##### 1276#       发表于 2026-3-1 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69255405&amp;ptid=2252759" target="_blank">大厨麦当牛 发表于 2026-3-1 17:44</a>
+格蕾丝疗养院就是鼓励你智取，甚至有一个空瓶引瞎子秒良子这种设定，良子本身也能挤死走廊上挡他路的丧尸， ...</blockquote>
+但除了癫狂难度其实你的子弹数量是够的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">胞头除非非要打，否则留给三光这种能近站打死的更好啊
+
+
+*****
+
+####  hkguty  
+##### 1277#       发表于 2026-3-1 17:52
+
+疗养院比较有趣，而且有些考验玩家资源管理，例如杀胖子要扎三针，里昂篇太街机就是杀，不过我觉得后面女主流程也麻麻地，都是躲猫猫玩得有点烦
+
+*****
+
+####  猫将军  
+##### 1278#       发表于 2026-3-1 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69253707&amp;ptid=2252759" target="_blank">里村紅葉 发表于 2026-3-1 11:27</a>
+DLC怕不是还是克里斯</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大战威斯克复制体
+
+*****
+
+####  卡拉德利姆  
+##### 1279#       发表于 2026-3-1 17:54
+
+方舟就更不用说了，全程就舔舔和白皮这俩从re3里复制过来的怪，成功地把我的印象拉到了和re3一个水平
+
