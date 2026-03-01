@@ -569,3 +569,14 @@ zero那本 ...</blockquote>
 杰克这就退场了？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">看结局会不会跳出来诈尸救场，没有的话就是直接在这里被海打死了
 
+
+*****
+
+####  azbhg1  
+##### 1071#       发表于 2026-3-1 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69253949&amp;ptid=2086574" target="_blank">xiongxingyu 发表于 2026-3-1 12:15</a>
+宝具一变成对人特攻的恶魔，强度由所处地区人口密度决定，雪原人口应该是80万左右，这个状态已经能和top ...</blockquote>
+那被毛走的是变恶魔？
+仇海毛走这玩意也没用啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

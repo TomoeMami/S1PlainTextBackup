@@ -1301,3 +1301,42 @@ milky658 发表于 2026-3-1 10:58预告里0和3也保留记忆，而且计划似
 
 不过这集确实好看，天才编剧m人格keep住啊
 
+
+*****
+
+####  theti  
+##### 801#       发表于 2026-3-1 12:30
+
+<img src="https://img.stage1st.com/forum/202603/01/123001mzxgqzinxtx7i773.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8118.jpeg</strong> (383.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 12:30 上传
+
+全是细节
+
+*****
+
+####  milky658  
+##### 802#       发表于 2026-3-1 12:32
+
+红迪看到这条绷不住了<img src="https://p.sda1.dev/31/23aa0ad250c9ff77578719c3c1f6bcf0/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 803#       发表于 2026-3-1 12:35
+
+<img src="https://img.stage1st.com/forum/202603/01/123516p49go6bwj7nn6oya.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (87.15 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-1 12:35 上传
+
+炸弹怪：？？？？不是，新手村刷新中期boss什么鬼
+
