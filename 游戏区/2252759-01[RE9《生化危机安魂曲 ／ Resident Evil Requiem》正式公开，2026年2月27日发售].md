@@ -6576,3 +6576,11 @@ bsaa也太弱鸡了
 
 倒是地下部分真不错 极致的空间利用 一切都刚刚好 
 
+
+*****
+
+####  kcalb  
+##### 1243#       发表于 2026-3-1 13:42
+
+发现一个中配的优势，这作路人对白没字幕，包括后面警局ZENO和女主在另一房间的剧情对话竟然也没给字幕，听力不行的慎选原声<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
