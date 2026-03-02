@@ -167,3 +167,16 @@ Nate：Sony Santa Monica 的新作设定在《战神》宇宙中，主角是 菲
 不过目前索尼第一方好像都没公布过27年的发售计划，圣莫 ...</blockquote>
 这个就是cory带队做的那个游戏，大概率不要gow了
 
+
+*****
+
+####  a2042312  
+##### 552#       发表于 2026-3-2 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69261248&amp;ptid=2173605" target="_blank">霖岚_ 发表于 2026-3-2 14:40</a>
+
+嚯嚯，难道要上演暴揍索尔，娘们雷普奎爷的剧情吗
+
+不过目前索尼第一方好像都没公布过27年的发售计划，圣莫 ...</blockquote>
+那个2D是外包的
+
