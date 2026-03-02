@@ -7782,3 +7782,14 @@ bsaa也太弱鸡了
 之前采访后说的通关后玩法是什么啊，这游戏又没NG+，总不能就是点数解锁武器和这个社区解谜吧…… ...</blockquote>
 目前就是这玩意了吧，不用采血器速通休闲模式。解锁无限弹药打癫狂模式。
 
+
+*****
+
+####  Muteki_Link  
+##### 1358#       发表于 2026-3-2 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69248633&amp;ptid=2252759" target="_blank">洛亚替身 发表于 2026-2-28 15:50</a>
+
+那东西甚至室合成纤维的，孩子你忘了手里的猎刀吗？那可只不是给僵尸补刀用的（你改成收集两个物品打开门 ...</blockquote>
+人造器官尸体那边后面会刷一个拿手术锯的丧尸杵在那边盯着他看，我还以为干掉可以用手术锯把腕带那边给锯开，结果发现不能互动，还浪费了我一个溶血剂<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
