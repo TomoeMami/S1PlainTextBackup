@@ -126,3 +126,27 @@ steps:
 
 复现了<img src="https://p.sda1.dev/31/fb28dbcb5fd531c4d5c500587da1eba0/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kcalb  
+##### 1494#       发表于 2026-3-3 02:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69264800&amp;ptid=2252759" target="_blank">红魔馆的糖 发表于 2026-3-3 00:35</a>
+
+1.在地下粉碎机排血前，等待15分钟使得足够多的尸体掉入血池
+
+2.在粉碎机运行时不要攻击任何一只丧尸
+
+3. 回 ...</blockquote>
+第二条上面说的是杀死，应该是可以攻击但要用粉碎机收人头？
+
+*****
+
+####  chdhdhd  
+##### 1495#       发表于 2026-3-3 02:11
+
+这回不是因为bug或者时候未到无解了。卡婊还是有长进的
+
+只是最终谜题不知道怎么复盘，希望这条件有啥逻辑说道
+
