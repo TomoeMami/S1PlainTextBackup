@@ -372,3 +372,33 @@ emmm
 
 有的机子太专了，把原驾驶调走就是没人开了
 
+
+*****
+
+####  AminGly  
+##### 3701#       发表于 2026-3-2 19:45
+
+ 本帖最后由 AminGly 于 2026-3-2 19:47 编辑 
+
+<img src="https://img.stage1st.com/forum/202603/02/194534x8keocaaukn6vybk.png" referrerpolicy="no-referrer">
+
+<strong>惊天大野榜.png</strong> (276.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-2 19:45 上传
+
+<img src="https://img.stage1st.com/forum/202603/02/194534b5t0onmwzt4bgb7k.png" referrerpolicy="no-referrer">
+
+<strong>惊天大野榜（细分）.png</strong> (257.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-2 19:45 上传
+
+修正之后的榜单
+
+其实平时用起来体验应该是第二张
+
+然后我两张图名字还标反了
+

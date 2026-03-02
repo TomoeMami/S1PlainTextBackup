@@ -499,3 +499,16 @@ claude code 刚闹了个会大量吃token的bug，但是你能看得到套餐用
 
 —— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  woodcoin  
+##### 89#       发表于 2026-3-2 19:51
+
+开了个百炼试玩 模型用qwen
+叫他写个vue3带增删改查列表管理页面，生成了一套vue2的
+里面方法和变量名重复导致报错绑model
+要用还是要自己会看才行
+
+—— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
