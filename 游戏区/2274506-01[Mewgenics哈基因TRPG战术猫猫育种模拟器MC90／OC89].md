@@ -3333,3 +3333,24 @@ e胖歌品味不错，boss曲都挺好听
 
 —— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  leeskies  
+##### 270#       发表于 2026-3-2 19:10
+
+ 本帖最后由 leeskies 于 2026-3-2 19:11 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">跑刀差点在1-1翻车，拿点废柴猫出去，中间碰到一个事件给法爷猫加了10魅力，但是第一回合发狂无差别攻击。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">法爷猫带着aoe火和下个法术0费，在投弹老鼠那里先动痛击队友，还给了全员燃烧。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">杀了进程，然后调了下装备，给弓手猫先动把法爷猫秒了。打完果断回家。
+
+*****
+
+####  kyonko15  
+##### 271#       发表于 2026-3-2 19:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">反正我的第一次团灭就是疯狂再动给我整出来的
+
