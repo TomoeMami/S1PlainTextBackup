@@ -82,3 +82,11 @@
 这也太折磨人了</blockquote>
 日服最高难度我还是最近才清的，大不了等月P复刻+所长实装再打吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GALLADE  
+##### 47724#       发表于 2026-3-2 12:04
+
+拿土碎片只要打过最低难度就行是吧，感觉护符可以放弃了，真没到这个份上折磨自己
+
