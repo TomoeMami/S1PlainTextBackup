@@ -353,3 +353,22 @@ fx机设在我心中还不如3呢
 
 <img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">奶一手周年池子是蛋蛋（主线）+华尔兹（OVA），这样我就不会担心下哪边池错过另一边了
 
+
+*****
+
+####  AminGly  
+##### 3700#       发表于 2026-3-2 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69261835&amp;ptid=2071758" target="_blank">alialex 发表于 2026-3-2 16:02</a>
+
+这榜内容还行，但不换机这个前提条件很不切合游戏系统，参考意义太低了吧 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+emmm
+
+好多人其实是原机党
+
+好多人没那么多ur技师互换
+
+有的机子太专了，把原驾驶调走就是没人开了
+

@@ -8749,3 +8749,89 @@ CG電影最少都來了兩次，一次是中後期，一次是早期開始就來
 
 而这个zeno显然已经对得到厄尔必丝这件事走火入魔了，居然信了维克多的这一套...本作最大的小丑。
 
+
+*****
+
+####  eilot  
+##### 1439#       发表于 2026-3-2 16:56
+
+ 本帖最后由 eilot 于 2026-3-2 16:57 编辑 
+
+看油X管找到有關娃娃可能入手的方法
+
+tube.com/watch?v=mU6KsEu1jBA
+
+不過他自己都搞不清是如何能入手
+
+時間線是找直昇機鑰匙時進入的實驗室
+
+但在抱emily那段逃生的地牢時也找到不少娃娃，但都是不能入手的，這時應該不太關事，但可能都要檢查?
+
+*****
+
+####  红魔馆的糖  
+##### 1440#       发表于 2026-3-2 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69262123&amp;ptid=2252759" target="_blank">爱撕衣魔刃 发表于 2026-3-2 16:42</a>
+
+貌似可以用输液干掉良子，
+
+就是触发条件挺麻烦的</blockquote>
+现在能很稳定触发了，记个固定倒计时，把瞎子引到门口然后往胖子身上扔个瓶就行
+
+
+*****
+
+####  爱撕衣魔刃  
+##### 1441#       发表于 2026-3-2 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69262227&amp;ptid=2252759" target="_blank">红魔馆的糖 发表于 2026-3-2 16:56</a>
+
+现在能很稳定触发了，记个固定倒计时，把瞎子引到门口然后往胖子身上扔个瓶就行 ...</blockquote>
+试了多次，
+
+良子过来就把输液挤到了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+迷得不行...
+
+*****
+
+####  大厨麦当牛  
+##### 1442#       发表于 2026-3-2 17:02
+
+<blockquote>mai6696 发表于 2026-3-2 16:45
+啥意思？
+
+你说Grace拿Lv.1腕带时候出来的那只？
+
+不是捅三针就杀了吗？
+</blockquote>
+【【RE9】如何引诱吊瓶战神单杀良子-哔哩哔哩】 https://b23.tv/zxlc8Vg
+
+他说的是这个，这个吊瓶哥A友军的伤害应该是机制杀，要么就是超高数值，总之敲一下良子就被秒了。
+
+视频里这个看着简单，其实细节挺多的。最关键的细节就是必须卡准良子巡逻到门口的时间。
+
+*****
+
+####  变老的大二  
+##### 1443#       发表于 2026-3-2 17:04
+
+<blockquote>大厨麦当牛 发表于 2026-3-2 16:53
+血液遗传记忆我觉得是维克多和zeno的癔症，或者说是维克多给zeno画大饼，因为他要靠这个饼获得zeno的资助 ...</blockquote>
+维克多他们认为斯宾塞偷偷在她身上完成了记忆遗传其实挺合理的，又是半篇论文，又是莫名其妙的身边多个小孩。
+
+只是万万没想到女主除了有抗体外，就是个正常人吧。
+
+
+*****
+
+####  红魔馆的糖  
+##### 1444#       发表于 2026-3-2 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69262281&amp;ptid=2252759" target="_blank">大厨麦当牛 发表于 2026-3-2 17:02</a>
+【【RE9】如何引诱吊瓶战神单杀良子-哔哩哔哩】 https://b23.tv/zxlc8Vg
+
+他说的是这个，这个吊瓶哥A友军 ...</blockquote>
+现在好像是开发出固定点位之后立刻手机开一个40多秒的倒计时，然后就开始引瞎子<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
