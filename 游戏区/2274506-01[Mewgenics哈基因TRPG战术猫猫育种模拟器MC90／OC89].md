@@ -3362,3 +3362,11 @@ e胖歌品味不错，boss曲都挺好听
 
 和重生是同个乐队，只是这次风格选对了，这乐队本来就擅长jazz
 
+
+*****
+
+####  fireflies  
+##### 273#       发表于 2026-3-2 19:56
+
+带了死神镰刀让c-1000复制，看boss一回合自灭<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
