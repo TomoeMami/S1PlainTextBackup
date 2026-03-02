@@ -875,3 +875,27 @@ zero那本 ...</blockquote>
 大仲马的能力有点像魔法少女的卡牌变身？都是制造假货给凡人用。</blockquote>
 安徒生对人升华，大仲马对物升华
 
+
+*****
+
+####  stmule  
+##### 1100#       发表于 2026-3-2 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69131395&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2026-2-3 10:28</a>
+你看闪大王弓阶照样拿着电钻剑啊，还不是看写手心情，没有硬性规定不能带下来的 ...</blockquote>
+卫宫巨侠作为弓兵，固有结界还叫无限剑制呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  洛克萨斯  
+##### 1101#       发表于 2026-3-2 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69261120&amp;ptid=2086574" target="_blank">stmule 发表于 2026-3-2 14:22</a>
+
+卫宫巨侠作为弓兵，固有结界还叫无限剑制呢
+
+—— 来自 samsung SM-S9110, Android 14, 鹅球 v3.5.99 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑a才是更高效的用法，擦到你就没了，没有情报绝对初见杀
+
