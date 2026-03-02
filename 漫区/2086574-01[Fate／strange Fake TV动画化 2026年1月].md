@@ -835,3 +835,11 @@ zero那本 ...</blockquote>
 尊嘟假嘟，fa里和二世小说里没这么离谱吧</blockquote>
 因为那边的弗拉特没觉醒<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leonardydd  
+##### 1096#       发表于 2026-3-2 09:56
+
+大仲马的能力有点像魔法少女的卡牌变身？都是制造假货给凡人用。<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
