@@ -843,3 +843,14 @@ zero那本 ...</blockquote>
 
 大仲马的能力有点像魔法少女的卡牌变身？都是制造假货给凡人用。<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 1097#       发表于 2026-3-2 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69257802&amp;ptid=2086574" target="_blank">怀特布莱克 发表于 2026-3-1 23:55</a>
+
+尊嘟假嘟，fa里和二世小说里没这么离谱吧</blockquote>
+简单来说是弗拉特体内有个非常强大而恐怖的东西，这个东西才是他召出狂杰克的原因。
+
