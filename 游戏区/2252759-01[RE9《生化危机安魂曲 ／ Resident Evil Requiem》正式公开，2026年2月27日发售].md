@@ -7731,3 +7731,21 @@ GGC AAG AUA ACG  ...</blockquote>
 最后BOSS战处决动画真就是但丁上号了，太离谱了</blockquote>
 分头刚进浣熊镇打大蜘蛛，让我一秒出戏到DMC初代
 
+
+*****
+
+####  你说啥就是啥  
+##### 1354#       发表于 2026-3-2 08:11
+
+[https://www.youtube.com/watch?v=82z326-STqI](https://www.youtube.com/watch?v=82z326-STqI)
+
+老驱动比新驱动帧数高了 20%，不过到室内场景就只高 3% 了
+
+<img src="https://img.stage1st.com/forum/202603/02/081155ngse602xej7q0aqg.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-03-02 081037.jpg</strong> (484.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-2 08:11 上传
+
