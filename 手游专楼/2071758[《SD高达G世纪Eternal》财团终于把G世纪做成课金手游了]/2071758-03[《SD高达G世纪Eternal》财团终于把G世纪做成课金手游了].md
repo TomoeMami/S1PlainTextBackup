@@ -323,3 +323,17 @@ fx机设在我心中还不如3呢
 
 半周年2部，周年起码也能更新2部了，而且EW那么短，说不定能加点小短篇更3个呢
 
+
+*****
+
+####  AminGly  
+##### 3697#       发表于 2026-3-2 15:53
+
+ 本帖最后由 AminGly 于 2026-3-2 15:55 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69261015&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2026-3-2 14:08</a>
+
+有没有辅助和防御的</blockquote>
+没排
+
+因为那两我觉得都是看你主c选了啥再塞得
+
