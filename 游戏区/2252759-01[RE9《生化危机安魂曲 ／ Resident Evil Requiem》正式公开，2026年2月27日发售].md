@@ -7757,3 +7757,28 @@ GGC AAG AUA ACG  ...</blockquote>
 
 之前采访后说的通关后玩法是什么啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，这游戏又没NG+，总不能就是点数解锁武器和这个社区解谜吧……
 
+
+*****
+
+####  烈焰舞阳  
+##### 1356#       发表于 2026-3-2 08:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254242&amp;ptid=2252759" target="_blank">zore 发表于 2026-3-1 13:11</a>
+bsaa也太弱鸡了
+
+被世界第一bow威哥复制版30秒团灭可以理解
+
+后面蜘蛛眼bsaa还被苍蝇头干掉了</blockquote>
+下来救人的是克里斯的狼队，最后被干掉的是路人bsaa
+
+—— 来自 Xiaomi 2407FRK8EC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  变老的大二  
+##### 1357#       发表于 2026-3-2 08:54
+
+<blockquote>cangyuyao 发表于 2026-3-2 08:39
+之前采访后说的通关后玩法是什么啊，这游戏又没NG+，总不能就是点数解锁武器和这个社区解谜吧…… ...</blockquote>
+目前就是这玩意了吧，不用采血器速通休闲模式。解锁无限弹药打癫狂模式。
+
