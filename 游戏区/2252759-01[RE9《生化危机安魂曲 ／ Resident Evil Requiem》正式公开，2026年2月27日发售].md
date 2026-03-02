@@ -8202,3 +8202,38 @@ pc版玩到浣熊市外围很卡的情况，看外网说关主板的Resizable BA
 发售前里昂掉线风波现在自然是没人提了，因为类 ...</blockquote>
 确实做得很敷衍，感觉一瞬间回到了6代的粗糙感
 
+
+*****
+
+####  Leon-7  
+##### 1394#       发表于 2026-3-2 12:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69259884&amp;ptid=2252759" target="_blank">刘昊霖 发表于 2026-3-2 11:09</a>
+
+只有我最后选错了？我还思考了一下觉得我选对了</blockquote>
+和你一样，我也是想了半天选的怀结局，这暗示真是迷<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jxzeroga0  
+##### 1395#       发表于 2026-3-2 12:20
+
+系列剧情本身就很多糊逼的地方，可以理解问题不大。这次只有最后明明知道厄尔皮斯打完能解毒了，结果格蕾丝还是看两人在那里逼逼不赶紧给里昂打针，看得着急死。
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  露卡  
+##### 1396#       发表于 2026-3-2 12:21
+
+我好像遇到BUG,安魂还回来时候我三光身上没地方了，然后就这么没了
+
+
+*****
+
+####  卡拉德利姆  
+##### 1397#       发表于 2026-3-2 12:23
+
+厄尔匹斯在希腊神话就是希望的意思，潘多拉魔盒里最后出来的那个，理解这个梗就不会选错<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
