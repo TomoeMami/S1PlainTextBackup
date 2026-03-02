@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 32541,
+    "totalreply": 32542,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》2.5 可曾记得爱]",
-    "lastedit": 1772472968,
+    "lastedit": 1772481128,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12573,10 +12573,10 @@
     "update": false
   },
   "2271232": {
-    "totalreply": 7649,
+    "totalreply": 7650,
     "title": "[中东专楼-2026]",
     "newtitle": "[中东专楼-2026]",
-    "lastedit": 1772480886,
+    "lastedit": 1772481250,
     "category": "外野",
     "active": true,
     "update": false
@@ -16911,10 +16911,10 @@
     "update": false
   },
   "2275717": {
-    "totalreply": 52,
+    "totalreply": 53,
     "title": "[Jeff Grubb：FS因不满意《恶魔之魂》重制相关事宜而与索尼存在紧张关系]",
     "newtitle": "[Jeff Grubb：FS因不满意《恶魔之魂》重制相关事宜而与索尼存在紧张关系]",
-    "lastedit": 1772474650,
+    "lastedit": 1772481249,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17037,11 +17037,20 @@
     "update": false
   },
   "2262919": {
-    "totalreply": 47,
+    "totalreply": 48,
     "title": "[红色沙漠确认26.3.19发售]",
     "newtitle": "[红色沙漠确认26.3.19发售]",
-    "lastedit": 1772476810,
+    "lastedit": 1772481250,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2076121": {
+    "totalreply": 379,
+    "title": "[『枪神 TRIGUN』完全新作动画『TRIGUN STAMPEDE』完结续篇决定]",
+    "newtitle": "[『枪神 TRIGUN』完全新作动画『TRIGUN STAMPEDE』完结续篇决定]",
+    "lastedit": 1772481143,
+    "category": "漫区",
     "active": true,
     "update": false
   }
