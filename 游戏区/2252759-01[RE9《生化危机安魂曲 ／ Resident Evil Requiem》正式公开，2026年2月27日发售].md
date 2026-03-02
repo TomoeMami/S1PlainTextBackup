@@ -8237,3 +8237,14 @@ pc版玩到浣熊市外围很卡的情况，看外网说关主板的Resizable BA
 
 厄尔匹斯在希腊神话就是希望的意思，潘多拉魔盒里最后出来的那个，理解这个梗就不会选错<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 1398#       发表于 2026-3-2 12:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69260390&amp;ptid=2252759" target="_blank">露卡 发表于 2026-3-2 12:21</a>
+
+我好像遇到BUG,安魂还回来时候我三光身上没地方了，然后就这么没了</blockquote>
+那你去奖励箱看看
+
