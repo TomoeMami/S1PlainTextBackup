@@ -134,3 +134,28 @@ B站上的攻略大多是“注意**和##之后，其他简单看滚一下就过
 —— 来自  ...</blockquote>
 处决流也就单通厉害了，多人玩不是纯折磨
 
+
+*****
+
+####  wasian  
+##### 2129#       发表于 2026-3-2 02:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69254189&amp;ptid=2210352" target="_blank">ohi.02 发表于 2026-3-1 13:00</a>
+
+最近在玩处决流，辛辛苦苦蓄力打出来的处决老是被队友抢了，更别提切武器加上决心了，好难受啊
+
+—— 来自  ...</blockquote>
+处决流也就单通厉害了，多人玩不是纯折磨
+
+*****
+
+####  hugosol  
+##### 2130#       发表于 2026-3-2 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69258038&amp;ptid=2210352" target="_blank">Eutopia 发表于 2026-3-2 00:46</a>
+
+双大饼时代上9999了却感觉自己比刚更新历战王那会菜了不少，双安定光环镰刀还是太权威了，纯纯淌口水轮椅。 ...</blockquote>
+其实除了女爵其他双安定都可以当保发育的提速位吧，女爵的初始匕首打战技真的太弱了，手短又没冲击力，改啥都不好使
+
+追的炎击，铁眼初始武器带毒+毒爆，执的血刃，这些都是落地就能成型的输出来源，只不过这些角色手里的光环镰刀都不如在女爵手上那么强
+
