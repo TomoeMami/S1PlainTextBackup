@@ -8862,3 +8862,18 @@ tube.com/watch?v=mU6KsEu1jBA
 
 威斯克见过里昂，但里昂没见过威斯克，所以里昂这次没什么反应，但换成克里斯就大不一样了。
 
+
+*****
+
+####  乔迪奥  
+##### 1448#       发表于 2026-3-2 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69262410&amp;ptid=2252759" target="_blank">变老的大二 发表于 2026-3-2 17:17</a>
+
+哎对了，有个bug啊。
+
+疗养院的僵尸因为维克多的记忆遗传实验会重复生前的行为，这一点很合理
+
+浣熊市的bsaa ...</blockquote>
+就像楼里说的，看到丧尸唐突从地里爬出来打死还给500分，就该扔掉脑子了
+
