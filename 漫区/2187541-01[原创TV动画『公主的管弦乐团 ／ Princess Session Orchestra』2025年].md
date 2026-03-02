@@ -32,3 +32,16 @@
 rpg怕是op欺诈了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 还有4集 所谓的卡罗尔只有可能op2黑毛妹子了
 
+
+*****
+
+####  lydia5989  
+##### 296#       发表于 2026-3-2 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69253801&amp;ptid=2187541" target="_blank">wwwDYYU 发表于 2026-3-1 11:45</a>
+
+花骑士返场，公主权限被夺和我花骑士有什么关系，新歌+1
+
+这堆公主多少有点好战了，在无法变身的前提还是跑 ...</blockquote>
+上次被打趴躺地上哭哭唧唧也小半天，这次说是过了几天，也没哭没闹然后一看事大了觉得不行立马振作起来打回去了。。这帮公主忒坚强了。。然后对上乐队好像都表示虽然不能变身，但努力对抗肯定行，这代确实值得上强度，各个都心理坚强的不行
+
