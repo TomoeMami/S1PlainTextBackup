@@ -826,3 +826,15 @@ LB今年的行程计划，大概八月出第十章“被凝视者”，这之前
 
 3.5号马上要迎来一次瓦夜，建议到时候再抽，毕竟很容易歪卡，新人出new不亏...
 
+
+*****
+
+####  嘿等等  
+##### 1272#       发表于 2026-3-2 22:35
+
+刚打完第六章，感觉劲不够大……
+
+而且最后几个boss连战，自己打不过，频繁切出去看攻略又很影响体验。攻略还是借的狂猎，操作对面的机体自己打自己心情就很复杂。<img src="https://static.stage1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
