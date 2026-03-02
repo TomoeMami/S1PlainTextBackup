@@ -126,3 +126,13 @@ np率开服那会儿还是有用的，那会儿还是有指令卡打np的机会�
 
 兽艾蕾还是没有羁绊加成<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 20576#       发表于 2026-3-2 20:13
+
+新的主线6月出
+
+原来还是要出主线的啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
