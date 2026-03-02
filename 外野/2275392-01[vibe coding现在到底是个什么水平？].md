@@ -520,3 +520,20 @@ claude code 刚闹了个会大量吃token的bug，但是你能看得到套餐用
 
 有没有开发独立游戏的大佬？哪个模型最合适？
 
+
+*****
+
+####  TiiTiiLL  
+##### 91#       发表于 2026-3-3 00:24
+
+直接用一般，现在skill+plan再生成，几个ai交叉验证已经完全ok了，我已经有两三个项目纯vibe了，就是有点费token，20美元的cursor基本一个项目就用完了，用完了再用codex顶住
+
+*****
+
+####  TiiTiiLL  
+##### 92#       发表于 2026-3-3 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69263687&amp;ptid=2275392" target="_blank">UncleDracula 发表于 2026-3-2 21:18</a>
+有没有开发独立游戏的大佬？哪个模型最合适？</blockquote>
+Codex长上下文能力弱，但是写的规矩，指令遵循能力强，我现在一般是codex + skill先plan再生成打个稿，再用Claude微调
+
