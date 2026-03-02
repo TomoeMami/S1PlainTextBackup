@@ -19,3 +19,21 @@
 
 这作癫狂难度太大了，人也年纪大了，只能看下半支烟云一下癫狂了
 
+
+*****
+
+####  nemunoki  
+##### 1483#       发表于 2026-3-3 00:05
+
+v=-kOlDs0DIwA
+
+已有视频解释了玛丽玩偶的出现方法
+
+steps:
+
+-wait 15 mins and let bodies drop on conveyor belt
+
+-dont kill zombies on the grinder part
+
+-flush any single toilet x8 times
+
