@@ -824,3 +824,14 @@ zero那本 ...</blockquote>
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  pokemon最爱  
+##### 1095#       发表于 2026-3-2 08:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69257802&amp;ptid=2086574" target="_blank">怀特布莱克 发表于 2026-3-1 23:55</a>
+
+尊嘟假嘟，fa里和二世小说里没这么离谱吧</blockquote>
+因为那边的弗拉特没觉醒<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
