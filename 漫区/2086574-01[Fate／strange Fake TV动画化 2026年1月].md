@@ -814,3 +814,13 @@ zero那本 ...</blockquote>
 
 杰克、仇海、闪闪对峙的时候，saber组一边大摇大摆路过真的好怪好出戏啊
 
+
+*****
+
+####  KDConan  
+##### 1094#       发表于 2026-3-2 08:26
+
+经典理查没头脑和金皮卡不高兴<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
