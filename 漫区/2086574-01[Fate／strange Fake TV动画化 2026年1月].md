@@ -899,3 +899,13 @@ zero那本 ...</blockquote>
 —— 来自 samsung SM-S9110, Android 14, 鹅球 v3.5.99 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑a才是更高效的用法，擦到你就没了，没有情报绝对初见杀
 
+
+*****
+
+####  怀特布莱克  
+##### 1102#       发表于 2026-3-2 23:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69259574&amp;ptid=2086574" target="_blank">仟音一心 发表于 2026-3-2 10:34</a>
+简单来说是弗拉特体内有个非常强大而恐怖的东西，这个东西才是他召出狂杰克的原因。 ...</blockquote>
+什么东西，剧透一哈
+
