@@ -7793,3 +7793,44 @@ bsaa也太弱鸡了
 那东西甚至室合成纤维的，孩子你忘了手里的猎刀吗？那可只不是给僵尸补刀用的（你改成收集两个物品打开门 ...</blockquote>
 人造器官尸体那边后面会刷一个拿手术锯的丧尸杵在那边盯着他看，我还以为干掉可以用手术锯把腕带那边给锯开，结果发现不能互动，还浪费了我一个溶血剂<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Muteki_Link  
+##### 1359#       发表于 2026-3-2 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69251221&amp;ptid=2252759" target="_blank">卡拉德利姆 发表于 2026-2-28 22:05</a>
+
+老狙我觉得挂那个不带瞄准镜增伤的挂件好，反正这作真正意义上的狙击战就只有一开始拿狙击枪那一段，凸显了 ...</blockquote>
+狙击战那段发现这作开镜后的瞄准灵敏度居然没有针对镜头倍率调节，导致手柄在低倍镜状态下移速很慢挪不动，高倍镜状态下移速反而很快摇杆轻推画面就不知道给转哪边去了，和实际高低倍镜下的灵敏度需求背道而驰，偏偏设置里还没有这方面的手动设置。
+
+
+*****
+
+####  bingo0716  
+##### 1360#       发表于 2026-3-2 10:03
+
+ 本帖最后由 bingo0716 于 2026-3-2 10:04 编辑 
+
+那个说跟识质万象联动的我在贴吧跟本帖都看到了，而且还都说错成6月发售，你们现在这些赛博人真就一点自己的想法没有，纯转发观点啊
+
+IMG_0692.jpeg
+(614.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-2 10:04 上传
+
+<img src="https://img.stage1st.com/forum/202603/02/100444smktktvvx2xa6423.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tachikoma27  
+##### 1361#       发表于 2026-3-2 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69255579&amp;ptid=2252759" target="_blank">Racyjackman 发表于 2026-3-1 18:18</a>
+
+打通了，还是好玩的，就是感觉体量还是有点短，而且太致敬二代了。然后就是剧情有点难绷，没法细想。里昂后 ...</blockquote>
+对啊，最后反派在原地抽烟等二人组自己半残了爬回来给我看楞住了<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
