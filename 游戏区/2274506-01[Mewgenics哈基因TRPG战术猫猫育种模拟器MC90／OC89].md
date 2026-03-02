@@ -3354,3 +3354,11 @@ e胖歌品味不错，boss曲都挺好听
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">反正我的第一次团灭就是疯狂再动给我整出来的
 
+
+*****
+
+####  harry3  
+##### 272#       发表于 2026-3-2 19:24
+
+和重生是同个乐队，只是这次风格选对了，这乐队本来就擅长jazz
+
