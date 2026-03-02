@@ -345,3 +345,11 @@ fx机设在我心中还不如3呢
 
 这榜内容还行，但不换机这个前提条件很不切合游戏系统，参考意义太低了吧
 
+
+*****
+
+####  arthes  
+##### 3699#       发表于 2026-3-2 16:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">奶一手周年池子是蛋蛋（主线）+华尔兹（OVA），这样我就不会担心下哪边池错过另一边了
+

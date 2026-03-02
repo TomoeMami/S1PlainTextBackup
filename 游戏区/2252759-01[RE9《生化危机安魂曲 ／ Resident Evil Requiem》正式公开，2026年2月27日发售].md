@@ -8637,3 +8637,64 @@ CG電影最少都來了兩次，一次是中後期，一次是早期開始就來
 浣熊市多来点跟雪梨聊天的剧情就好了 赶路的时候多讲几句 目前没感受到雪梨有啥实际帮助 除了给个疗养院平 ...</blockquote>
 记录行为应该改成联系雪梨，然后每次记录完就会分享一个浣熊市幸存者现状，多说点克莱尔王阿姨的生活，情怀就更足了
 
+
+*****
+
+####  shinra-01  
+##### 1431#       发表于 2026-3-2 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69261092&amp;ptid=2252759" target="_blank">灰色的狐狸 发表于 2026-3-2 14:18</a>
+
+想问一下
+
+看过场算不算进游戏时间？</blockquote>
+据说这次不指暂停，过场，连开地图，开道具栏，开商店，看文件，都不算时间，这次时间统计变了，所以最后通关显示的游戏内时间是纯操控角色的时间，比实际体感时间少很多
+
+*****
+
+####  Mikumiku831  
+##### 1432#       发表于 2026-3-2 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69262072&amp;ptid=2252759" target="_blank">Chao 发表于 2026-3-2 16:35</a>
+
+记录行为应该改成联系雪梨，然后每次记录完就会分享一个浣熊市幸存者现状，多说点克莱尔王阿姨的生活，情 ...</blockquote>
+对的 这样也OK   啥都不知道就打打杀杀 连文档都见不到几个 现场留点bsaa的调查信息也好 感觉每个场景都有点莫名其妙的
+
+*****
+
+####  Mikumiku831  
+##### 1433#       发表于 2026-3-2 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69262082&amp;ptid=2252759" target="_blank">shinra-01 发表于 2026-3-2 16:37</a>
+
+据说这次不指暂停，过场，连开地图，开道具栏，开商店，看文件，都不算时间，这次时间统计变了，所以最后 ...</blockquote>
+我体感起码玩了12小时 基本都舔干净了 一看只花了8个半小时感觉就不对
+
+
+*****
+
+####  爱撕衣魔刃  
+##### 1434#       发表于 2026-3-2 16:42
+
+貌似可以用输液干掉良子，
+
+就是触发条件挺麻烦的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mai6696  
+##### 1435#       发表于 2026-3-2 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69262123&amp;ptid=2252759" target="_blank">爱撕衣魔刃 发表于 2026-3-2 16:42</a>
+
+貌似可以用输液干掉良子，
+
+就是触发条件挺麻烦的</blockquote>
+啥意思？
+
+你说Grace拿Lv.1腕带时候出来的那只？
+
+不是捅三针就杀了吗？
+
+找个门给他卡主就能连续偷背。
+

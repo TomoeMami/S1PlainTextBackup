@@ -1606,3 +1606,25 @@ nox：我说梦境沉睡之时世界将作为梦魇苏醒你尔多龙吗？
 
 我猜1号是莫的前世或者本体，现在的莫和宁梦一样是复制体。莫是THE 'ONE' AND ONLY AGENT，制作组也想把ZZZ打造成面向海外的“1号”，这样NETA会很有趣
 
+
+*****
+
+####  theti  
+##### 832#       发表于 2026-3-2 16:36
+
+<img src="https://img.stage1st.com/forum/202603/02/163531wojlukrooojuoeok.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8137.jpeg</strong> (78.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-2 16:35 上传
+
+官方小作文：虽说这是力量强悍的灾厄（Catastrom）形态，
+
+这具身躯却仅凭着对宁梦的执念才得以维系。
+
+在得知了其与「淑女（The Lady）」的渊源之后，便脆弱地彻底崩毁了。
+
+重男万津莫你做的好啊，高桥
+
