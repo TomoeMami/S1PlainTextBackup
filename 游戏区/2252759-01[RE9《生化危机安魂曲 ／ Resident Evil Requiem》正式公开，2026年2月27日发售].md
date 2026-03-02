@@ -7834,3 +7834,27 @@ IMG_0692.jpeg
 打通了，还是好玩的，就是感觉体量还是有点短，而且太致敬二代了。然后就是剧情有点难绷，没法细想。里昂后 ...</blockquote>
 对啊，最后反派在原地抽烟等二人组自己半残了爬回来给我看楞住了<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  F·U·罗格纳  
+##### 1362#       发表于 2026-3-2 10:08
+
+他这个针对病毒的万能解药，能解4代衍生出的寄生虫系列和7代衍生出的真菌系列吗？
+
+*****
+
+####  Muteki_Link  
+##### 1363#       发表于 2026-3-2 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69251906&amp;ptid=2252759" target="_blank">Mikumiku831 发表于 2026-3-1 00:12</a>
+
+BOSS战是真的无聊 手柄还不好打弱点  全是那种要你上二楼梯爬上去
+
+然后演出也是狗屎一坨  你干脆就别演了直 ...</blockquote>
+蜘蛛确实是粪boss。
+
+开战cg里昂用手斧对蜘蛛造成了伤害，正式开打后一路还要用手斧砍蜘蛛网，导致我以为这个boss就是要用手斧拼近战和弹反，结果被打成狗。<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+后面即使知道弱点在屁股也很难有机会绕到，蜘蛛追的太紧回头看一眼就得跑，基本上只有产卵和屁股对着你攻击时才有机会，所以只能一直长期二人转等boss出招，经常产卵还在你看不到的地方。而且那些小蜘蛛纯消耗你弹药，打完一点东西不给，所以越拖越不利。
+
