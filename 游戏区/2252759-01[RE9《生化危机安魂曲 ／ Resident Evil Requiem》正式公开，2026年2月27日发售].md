@@ -8835,3 +8835,15 @@ tube.com/watch?v=mU6KsEu1jBA
 他说的是这个，这个吊瓶哥A友军 ...</blockquote>
 现在好像是开发出固定点位之后立刻手机开一个40多秒的倒计时，然后就开始引瞎子<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  变老的大二  
+##### 1445#       发表于 2026-3-2 17:17
+
+哎对了，有个bug啊。
+
+疗养院的僵尸因为维克多的记忆遗传实验会重复生前的行为，这一点很合理
+
+浣熊市的bsaa士兵僵尸为什么会打炮?维克多跑屋顶上去感染他们吗
+
