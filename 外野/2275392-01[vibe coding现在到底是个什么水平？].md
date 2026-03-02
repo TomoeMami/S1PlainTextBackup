@@ -512,3 +512,11 @@ claude code 刚闹了个会大量吃token的bug，但是你能看得到套餐用
 
 —— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  UncleDracula  
+##### 90#       发表于 2026-3-2 21:18
+
+有没有开发独立游戏的大佬？哪个模型最合适？
+
