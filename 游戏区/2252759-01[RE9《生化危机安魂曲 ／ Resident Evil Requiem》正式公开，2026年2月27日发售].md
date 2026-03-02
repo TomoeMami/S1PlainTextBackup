@@ -8290,3 +8290,27 @@ pc版玩到浣熊市外围很卡的情况，看外网说关主板的Resizable BA
 浣熊市变成白天之后感觉氛围又不好画面看起来又大又空，跟寂静岭2打了去雾mod一样，只能说很多游戏爱搞黑黑 ...</blockquote>
 一开始雨天画面这么吊，浣熊市就应该设置成雨天，最多后面再天晴。现在一成不变的黃土色调真是有点疲劳
 
+
+*****
+
+####  cosx  
+##### 1403#       发表于 2026-3-2 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69259771&amp;ptid=2252759" target="_blank">Chao 发表于 2026-3-2 10:56</a>
+经典模式下燃烧瓶配方在地下宿舍的房间中间桌子上</blockquote>
+我合成列表都亮了，没有燃烧瓶和硫酸瓶
+
+
+*****
+
+####  windlikeman  
+##### 1404#       发表于 2026-3-2 13:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69259993&amp;ptid=2252759" target="_blank">hkguty 发表于 2026-3-2 11:24</a>
+感觉不如生化8和4r，缝了很多东西没一样比得过别人，女主一大堆躲猫猫流程然后还一堆堵门脚本，一到开关位 ...</blockquote>
+里昂上来被大只佬一个投弄晕抓走拷问 后面病情加重咳嗽吐血看到幻觉 打最后boss前才解毒成功 就差一个2王阿姨送火箭筒环节了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看通关格蕾丝报告6代剧情还是在里面的 但6代分头形象和RE世界线这个苦大仇深的形象有点微妙的对不上啊
+
+—— 来自 Sony XQ-CT72, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
