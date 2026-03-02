@@ -180,3 +180,36 @@ Nate：Sony Santa Monica 的新作设定在《战神》宇宙中，主角是 菲
 不过目前索尼第一方好像都没公布过27年的发售计划，圣莫 ...</blockquote>
 那个2D是外包的
 
+
+*****
+
+####  霖岚_  
+##### 553#       发表于 2026-3-2 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69261441&amp;ptid=2173605" target="_blank">a2042312 发表于 2026-3-2 15:08</a>
+
+那个2D是外包的</blockquote>
+真是外包的……当时SOP就因为观感太差完全不想了解，现在才知道
+
+不过翻了下外包的这家mega cat studios过去的游戏履历也不咋地，就一个午夜熊横板和喷神8bit算是有点名气的IP，除了这俩以外都是些4399的程度，而且看了下steam上他们的游戏也没一个上80rmb的，这斯巴达之子上来就238hdk也太过分了点
+
+*****
+
+####  卡拉德利姆  
+##### 554#       发表于 2026-3-2 15:31
+
+比起这个真应该查查这么一个名不见经传的工作室为啥能外包战神这么大的ip
+万一查出点什么呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a2042312  
+##### 555#       发表于 2026-3-2 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69261586&amp;ptid=2173605" target="_blank">霖岚_ 发表于 2026-3-2 15:29</a>
+
+真是外包的……当时SOP就因为观感太差完全不想了解，现在才知道
+
+不过翻了下外包的这家mega cat studios过 ...</blockquote>
+这家基本上都是做复古游戏的，也不知道咋找上这家的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
