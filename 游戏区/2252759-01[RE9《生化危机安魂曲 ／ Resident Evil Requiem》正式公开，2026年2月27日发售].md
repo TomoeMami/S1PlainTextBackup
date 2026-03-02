@@ -8698,3 +8698,54 @@ CG電影最少都來了兩次，一次是中後期，一次是早期開始就來
 
 找个门给他卡主就能连续偷背。
 
+
+*****
+
+####  爱撕衣魔刃  
+##### 1436#       发表于 2026-3-2 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69262151&amp;ptid=2252759" target="_blank">mai6696 发表于 2026-3-2 16:45</a>
+
+啥意思？
+
+你说Grace拿Lv.1腕带时候出来的那只？
+
+不是捅三针就杀了吗？</blockquote>
+三针太奢侈了（松鼠党选手）<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+厨师不好引过来，它不远离厨房。
+
+输液的伤害特别高，锤普通杂兵基本上一下一个，
+
+想办法让它和良子互殴，
+
+不就省下这三针了？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  红魔馆的糖  
+##### 1437#       发表于 2026-3-2 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69262151&amp;ptid=2252759" target="_blank">mai6696 发表于 2026-3-2 16:45</a>
+
+啥意思？
+
+你说Grace拿Lv.1腕带时候出来的那只？
+
+不是捅三针就杀了吗？</blockquote>
+打无奖励癫狂用的，一共两个剑圣，附近分别有胖子和白色歌手，官方也有类似成就，特意留的口子。
+
+*****
+
+####  大厨麦当牛  
+##### 1438#       发表于 2026-3-2 16:53
+
+<blockquote>yunalesca 发表于 2026-3-2 14:28
+其实女主是真的血有特别之处的，有几份文件暗示了这一点
+
+</blockquote>
+血液遗传记忆我觉得是维克多和zeno的癔症，或者说是维克多给zeno画大饼，因为他要靠这个饼获得zeno的资助。文件里负责照顾实验体的工作人员都在文件里吐槽“主任偶尔会来问实验体一些问题，一个小孩怎么可能知道这些”。事实上维克多弄了171个也没成功，只弄出一个高度变异的T病毒亚种能让僵尸保留生前的习性。
+
+而这个zeno显然已经对得到厄尔必丝这件事走火入魔了，居然信了维克多的这一套...本作最大的小丑。
+
