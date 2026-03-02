@@ -8088,3 +8088,50 @@ pc版玩到浣熊市外围很卡的情况，看外网说关主板的Resizable BA
 
 方舟這段2人劇情還是感覺有點不足，不過關鍵是BOSS戰都做得好差...令
 
+
+*****
+
+####  Leona_Akari  
+##### 1384#       发表于 2026-3-2 11:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当怪物直接从地下冒出来和打怪算积分的时候就已经知道后半流程已经放弃治疗了吧
+
+*****
+
+####  u2deack  
+##### 1385#       发表于 2026-3-2 11:52
+
+说是说里昂这边资源够战斗爽，但是他们现在做的这种铁头铁腿虚空投技的丧尸打起来根本一点都不爽，是不是丧尸比4重制还要硬了而且体术也很普通，真的不知道为什么要把丧尸做成这种一夹子弹打不爆头打不断腿的设计
+
+*****
+
+####  eilot  
+##### 1386#       发表于 2026-3-2 11:53
+
+ 本帖最后由 eilot 于 2026-3-2 11:54 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69260125&amp;ptid=2252759" target="_blank">红魔馆的糖 发表于 2026-3-2 11:42</a>
+
+蜘蛛那个不是绕的吧思路就是爆输出打头把它干趴下再打屁股，它趴下之后还会往后跑，然后追着打它屁股，整 ...</blockquote>
+蜘蛛是當時初見及環境，非常容易誤判其解決方法
+
+看CG是以為是斧頭才是特攻，所以打近戰...
+
+看地型是廢屋又長又窄不停繞路，而且對方非常厚血加上我方子彈資源看似不足，以為之後都是只能繞或逃
+
+加上地型是有石油氣罐，也可能以為是地型殺
+
+是見到打扒後再繞背發現屁股後，才知道以上內容都是錯的...
+
+*****
+
+####  红魔馆的糖  
+##### 1387#       发表于 2026-3-2 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69260204&amp;ptid=2252759" target="_blank">eilot 发表于 2026-3-2 11:53</a>
+蜘蛛是當時初見及環境，非常容易誤判其解決方法
+
+看CG是以為是斧頭才是特攻，所以打近戰...
+
+看地型是廢屋又 ...</blockquote>
+4re玩太多遍了，看到什么大怪都拿老狙打一梭子头再说<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

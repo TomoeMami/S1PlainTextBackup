@@ -68,3 +68,17 @@
 
 这鬼东西主要是他不是一开始就开最高难度，然后通最高难度自动获得前面难度的奖励，但是谁要来三遍啊哪怕前面的可以少T爆破
 
+
+*****
+
+####  khxooo  
+##### 47723#       发表于 2026-3-2 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69240535&amp;ptid=1712412" target="_blank">hyhaha 发表于 2026-2-27 10:47</a>
+然后发现土所长居然还分3个难度
+
+后面两个难度还有呼符
+
+这也太折磨人了</blockquote>
+日服最高难度我还是最近才清的，大不了等月P复刻+所长实装再打吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
