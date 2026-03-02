@@ -909,3 +909,13 @@ zero那本 ...</blockquote>
 简单来说是弗拉特体内有个非常强大而恐怖的东西，这个东西才是他召出狂杰克的原因。 ...</blockquote>
 什么东西，剧透一哈
 
+
+*****
+
+####  大耳兽  
+##### 1103#       发表于 2026-3-3 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69264538&amp;ptid=2086574" target="_blank">怀特布莱克 发表于 2026-3-2 23:47</a>
+什么东西，剧透一哈</blockquote>
+是newtyper<img src="https://static.stage1st.com/image/smiley/carton2017/022.png" referrerpolicy="no-referrer">。
+
