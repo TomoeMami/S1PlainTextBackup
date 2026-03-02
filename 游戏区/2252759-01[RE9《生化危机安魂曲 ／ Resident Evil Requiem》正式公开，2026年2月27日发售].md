@@ -8483,3 +8483,61 @@ pc版玩到浣熊市外围很卡的情况，看外网说关主板的Resizable BA
 
 分头这是中了毒还有这战斗力，要是分头没中毒的话...真就一把斧子就够了吧
 
+
+*****
+
+####  Chao  
+##### 1419#       发表于 2026-3-2 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69261162&amp;ptid=2252759" target="_blank">yunalesca 发表于 2026-3-2 14:28</a>
+
+其实女主是真的血有特别之处的，有几份文件暗示了这一点</blockquote>
+我还真觉得反派是冤大头
+
+如果是T系列的疫苗，系列里就出现过很多次，3里综合医院就有还救活了吉尔，爆发里也出现了更完善的疫苗而且被幸存者带出去了（但是不知道为什么没有公开）。
+
+就算格蕾丝是天然抗体，但是在疫苗前还是太弱
+
+要是有记忆遗传，除了学术价值外，也不能武器化，不如一只暴君
+
+反派真的是被自己发散性思维坑死了
+
+
+*****
+
+####  eilot  
+##### 1420#       发表于 2026-3-2 15:00
+
+ 本帖最后由 eilot 于 2026-3-2 15:02 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69261343&amp;ptid=2252759" target="_blank">Chao 发表于 2026-3-2 14:55</a>
+
+我还真觉得反派是冤大头
+
+如果是T系列的疫苗，系列里就出现过很多次，3里综合医院就有还救活了吉尔，爆发 ...</blockquote>
+grace成長可能也是計劃之一
+
+如果按照老日漫思維，今次幕後的史賓格在死後數十年突然反省，或不想再有人利用他的成品所以留下最後一著，以類似洗白(?)方式間接救世也是當年常見套路
+
+給女記者要求代養的原因，可能就是希望GRACE她能正常生活，以數十年日常中獲得自我成長，同時令終極反始祖能完成時間
+
+emily系列她們全失敗的原因，都是近年才開始生產及急速成長
+
+感覺按這思維的話，被救回來的emily看到她最後的合照也開眼，過多數十年也可能成為反始祖基因抗體的完成型
+
+*****
+
+####  Chao  
+##### 1421#       发表于 2026-3-2 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69261260&amp;ptid=2252759" target="_blank">Bani82 发表于 2026-3-2 14:43</a>
+
+分头这是中了毒还有这战斗力，要是分头没中毒的话...真就一把斧子就够了吧 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202603/02/150331rh0k494ipy4tpi0n.gif" referrerpolicy="no-referrer">
+
+<strong>C605376F6A7BCF2CE6F6C11F809E4220.gif</strong> (5.35 MB, 下载次数: 0)
+
+下载附件
+
+2026-3-2 15:03 上传
+
