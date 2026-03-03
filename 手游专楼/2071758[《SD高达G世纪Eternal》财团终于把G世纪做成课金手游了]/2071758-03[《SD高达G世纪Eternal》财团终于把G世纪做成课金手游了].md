@@ -584,3 +584,15 @@ AGE还是有MSV的，反正研发树已经塞了到时候选一个就行了
 
 己方战场被击坠会有惩罚吗? 像单机那样直接没了?
 
+
+*****
+
+####  一个陆仁贾  
+##### 3720#       发表于 2026-3-3 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69269671&amp;ptid=2071758" target="_blank">风夏 发表于 2026-3-3 19:15</a>
+己方战场被击坠会有惩罚吗? 像单机那样直接没了?</blockquote>
+不会，就是重打而已
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
