@@ -654,3 +654,21 @@ fs除了只狼外自己没有资格做这种事情</blockquote>
 
 至于FS的虚伪，老头环发售前吹的DS适配有了吗？<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blz436  
+##### 54#       发表于 2026-3-3 11:02
+
+就蓝点各方面表现出来的觉得自己比原作团队更懂恶魂的样子，然后成品端出来这么一坨Hollywood Slop，把阴睾气到完全不奇怪，更别提现在关键词搜Demon Souls出来结果都是蓝点版了
+
+*****
+
+####  浅色轮回  
+##### 55#       发表于 2026-3-3 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69265184&amp;ptid=2275717" target="_blank">雪菜碧池 发表于 2026-3-3 03:50</a>
+
+版权是最无关紧要的，血源有大量道具只是隐藏了，补丁只能由FS出，其实就是60帧的逻辑改动需要些功夫，分 ...</blockquote>
+你应该问为什么同引擎的黑魂3 只狼 ps5版fs都给了60帧，血源为什么给不了，有没有种可能老贼想给但是版权不在自己手上了，血源60帧就是改行代码的事完全不需要老贼动手
+
