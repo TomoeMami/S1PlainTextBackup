@@ -30,3 +30,15 @@
 
 话说ai可以结合弹幕做上下文分析吗
 
+
+*****
+
+####  sino__unnko3  
+##### 20332#       发表于 2026-3-3 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69268556&amp;ptid=2018830" target="_blank">TiHaru 发表于 2026-3-3 16:10</a>
+会限的时候说的是あ开头ち结尾的某个区
+
+话说ai可以结合弹幕做上下文分析吗 ...</blockquote>
+理论上可以；现在有办法可以导出弹幕列表吗，我先试着一起给gemini分析
+
