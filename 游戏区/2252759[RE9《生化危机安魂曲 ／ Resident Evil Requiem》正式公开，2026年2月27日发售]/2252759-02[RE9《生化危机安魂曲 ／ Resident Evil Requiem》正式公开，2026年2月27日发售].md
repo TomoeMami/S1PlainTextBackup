@@ -601,3 +601,20 @@ tmd浣熊错过了啊啊啊啊啊啊
 警局遇到暴君是打死还是跑路？打得话不挑武器，就重火力硬砍就行了吧</blockquote>
 跑路，随便跑几步就进boos战了
 
+
+*****
+
+####  Bani82  
+##### 1536#       发表于 2026-3-3 18:15
+
+分头怎么造安魂曲子弹？
+
+*****
+
+####  红魔馆的糖  
+##### 1537#       发表于 2026-3-3 18:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69269405&amp;ptid=2252759" target="_blank">Bani82 发表于 2026-3-3 18:15</a>
+分头怎么造安魂曲子弹？</blockquote>
+造不了，捡
+
