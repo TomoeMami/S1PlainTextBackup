@@ -1638,3 +1638,18 @@ nox：我说梦境沉睡之时世界将作为梦魇苏醒你尔多龙吗？
 
 比如说被抓走的幼驯染那种
 
+
+*****
+
+####  饭冢武也  
+##### 834#       发表于 2026-3-3 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69262078&amp;ptid=2250267" target="_blank">theti 发表于 2026-3-2 16:36</a>
+
+官方小作文：虽说这是力量强悍的灾厄（Catastrom）形态，
+
+这具身躯却仅凭着对宁梦的执念才得以维系。
+
+在得 ...</blockquote>
+看起来像是强行对抗破坏欲才崩解的
+
