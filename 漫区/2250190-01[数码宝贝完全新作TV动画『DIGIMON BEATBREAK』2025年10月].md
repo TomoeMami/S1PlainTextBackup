@@ -124,3 +124,11 @@
 
 非全盛期都是外人的说法，从他立不杀dm的规矩来看应该是误杀过数码兽，以至于现在战斗都会留手
 
+
+*****
+
+####  怀特布莱克  
+##### 457#       发表于 2026-3-3 19:34
+
+喷了，咋突然就整了一出玲奈肉身挡成熟期的剧情<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
