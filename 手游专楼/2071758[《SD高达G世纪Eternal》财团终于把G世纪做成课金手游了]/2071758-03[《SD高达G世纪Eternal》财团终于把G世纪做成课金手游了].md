@@ -494,3 +494,27 @@ emmm
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不同服又有各种不同奇奇怪怪的译名 都不充钱还是日服吧 免得突然冒出一个翻译刺眼
 
+
+*****
+
+####  行政裁定书  
+##### 3712#       发表于 2026-3-3 14:12
+
+age的ult难猜啊，本来以为是那台原始高达，结果这次直接送了。
+
+最后ult不会是try age高达吧？
+
+不过考虑到水魔已经有让量产机当ult的先例了，我觉得那个x-rounder女叛徒开的机体有机会当ult，
+
+<img src="https://img.stage1st.com/forum/202603/03/141009rsiuzu3u7vveuxbs.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (48.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-3 14:10 上传
+
+提亚路华
+
+g巨人改版，暴走后硬控了全场的顶级x-rounder们，作为量产机，可谓是相当高光了。值得一个ult。
+
