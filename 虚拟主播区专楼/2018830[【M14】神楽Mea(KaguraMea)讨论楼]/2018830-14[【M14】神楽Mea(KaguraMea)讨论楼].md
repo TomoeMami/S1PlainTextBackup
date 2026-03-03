@@ -85,3 +85,19 @@ AI说啊，“千岁糖的吃法并没有特别的规定，即使折断或切成
 
 我twitch有试过是可以的，**应该有类似的接口？弹幕分析网站能做到那应该是没问题的
 
+
+*****
+
+####  shmilyhua  
+##### 20336#       发表于 2026-3-4 03:35
+
+对于直播：
+yt-dlp --skip-download --write-subs --sub-lang live_chat https://www.youtube.com/@KaguraMea/live
+
+回放因为是会限，还需要提供cookie：
+yt-dlp --cookies /path/to/file --skip-download --write-subs --sub-lang live_chat https://www.youtube.com/watch?v=video_id
+
+下载到的是json。
+
+—— 来自 Google Pixel 8 Pro, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
