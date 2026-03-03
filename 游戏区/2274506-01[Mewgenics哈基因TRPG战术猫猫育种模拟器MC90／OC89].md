@@ -3417,3 +3417,22 @@ e胖歌品味不错，boss曲都挺好听
 
 <img src="https://img.stage1st.com/forum/202603/03/153024e76aqnnlncnv2707.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pzk  
+##### 278#       发表于 2026-3-3 16:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69268271&amp;ptid=2274506" target="_blank">leonz79 发表于 2026-3-3 15:26</a>
+初始属性只有4，出去冒险途中这个属性升到了7，那么生孩子会继承这个7吗？还是只能继承4？ ...</blockquote>
+只能继承4。多送小猫给npc会给区分先天属性和后天属性的能力。
+
+*****
+
+####  leonz79  
+##### 279#       发表于 2026-3-3 16:04
+
+<blockquote>pzk 发表于 2026-3-3 16:02
+只能继承4。多送小猫给npc会给区分先天属性和后天属性的能力。</blockquote>
+ok          
+
