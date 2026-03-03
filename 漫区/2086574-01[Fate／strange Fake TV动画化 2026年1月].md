@@ -919,3 +919,11 @@ zero那本 ...</blockquote>
 什么东西，剧透一哈</blockquote>
 是newtyper<img src="https://static.stage1st.com/image/smiley/carton2017/022.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  zakki  
+##### 1104#       发表于 2026-3-4 00:49
+
+闹麻了，当动画党觉得文戏拖沓删少了的时候，贴吧又因为谁的戏份不该删饭圈大战撕起来了，只不过比起之前战力党乳海大战，这次是成了cp党大战了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
