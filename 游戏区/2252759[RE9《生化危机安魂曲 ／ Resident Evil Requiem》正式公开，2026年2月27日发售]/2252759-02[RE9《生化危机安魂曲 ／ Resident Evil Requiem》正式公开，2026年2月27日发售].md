@@ -565,3 +565,11 @@ tmd浣熊错过了啊啊啊啊啊啊
 
 身为一个男人能觉得里昂这身肌肉配黑色紧身衣很性感吗<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Bani82  
+##### 1532#       发表于 2026-3-3 16:44
+
+警局遇到暴君是打死还是跑路？打得话不挑武器，就重火力硬砍就行了吧
+
