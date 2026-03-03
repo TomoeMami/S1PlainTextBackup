@@ -486,3 +486,11 @@ emmm
 
 那后半不得上天了？
 
+
+*****
+
+####  王俊凯  
+##### 3711#       发表于 2026-3-3 13:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不同服又有各种不同奇奇怪怪的译名 都不充钱还是日服吧 免得突然冒出一个翻译刺眼
+
