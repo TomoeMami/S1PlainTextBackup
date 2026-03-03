@@ -168,3 +168,11 @@ steps:
 
 —— 来自 Xiaomi 22127RK46C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  hkguty  
+##### 1498#       发表于 2026-3-3 08:43
+
+感觉是跳过了线索先试出了答案
+
