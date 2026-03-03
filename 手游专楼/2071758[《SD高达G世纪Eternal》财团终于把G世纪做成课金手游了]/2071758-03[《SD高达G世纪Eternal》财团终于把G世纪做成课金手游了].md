@@ -445,3 +445,24 @@ emmm
 萌新问个问题, 这游戏该玩日服还是国际服? 不打算充钱</blockquote>
 国际服有中文
 
+
+*****
+
+####  风夏  
+##### 3707#       发表于 2026-3-3 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69266767&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2026-3-3 11:22</a>
+
+国际服有中文</blockquote>
+中文翻译是大陆翻译吗? 比如基拉 多蒙 而不是 吉良 杜门这种...
+
+*****
+
+####  洛克萨斯  
+##### 3708#       发表于 2026-3-3 11:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69267027&amp;ptid=2071758" target="_blank">风夏 发表于 2026-3-3 11:53</a>
+
+中文翻译是大陆翻译吗? 比如基拉 多蒙 而不是 吉良 杜门这种...</blockquote>
+大部分是你熟悉的翻译，有些人会翻得有点怪，影响不大
+
