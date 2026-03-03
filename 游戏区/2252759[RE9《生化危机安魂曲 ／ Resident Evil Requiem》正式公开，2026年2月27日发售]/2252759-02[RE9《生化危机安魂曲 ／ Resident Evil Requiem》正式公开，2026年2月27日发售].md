@@ -591,3 +591,13 @@ tmd浣熊错过了啊啊啊啊啊啊
 警局遇到暴君是打死还是跑路？打得话不挑武器，就重火力硬砍就行了吧</blockquote>
 尝试打了，10发安魂+很多发霰弹没打死，只有硬直。loading的界面给了提示狭小空间对战暴君没有胜算，需要先逃跑。
 
+
+*****
+
+####  红魔馆的糖  
+##### 1535#       发表于 2026-3-3 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69268786&amp;ptid=2252759" target="_blank">Bani82 发表于 2026-3-3 16:44</a>
+警局遇到暴君是打死还是跑路？打得话不挑武器，就重火力硬砍就行了吧</blockquote>
+跑路，随便跑几步就进boos战了
+
