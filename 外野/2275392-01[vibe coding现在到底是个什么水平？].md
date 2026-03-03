@@ -555,3 +555,12 @@ Codex长上下文能力弱，但是写的规矩，指令遵循能力强，我现
 问问坛友现在Opus怎么订阅比较稳妥呢</blockquote>
 走谷歌或者苹果
 
+
+*****
+
+####  kraxia  
+##### 95#       发表于 2026-3-3 20:27
+
+本来用antigravity的，今天谷歌好像炸了，antigravity全都报错<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+然后打开trae一看，全是难民，随便一个指令排队3000+<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
