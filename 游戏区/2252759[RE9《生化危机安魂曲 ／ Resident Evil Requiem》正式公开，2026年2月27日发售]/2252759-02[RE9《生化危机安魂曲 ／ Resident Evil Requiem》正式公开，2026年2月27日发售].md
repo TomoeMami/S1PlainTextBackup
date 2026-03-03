@@ -524,3 +524,36 @@ tmd浣熊错过了啊啊啊啊啊啊
 
 我读之前存的档把浣熊点了然后再读我高进度的档有用吗
 
+
+*****
+
+####  Chao  
+##### 1528#       发表于 2026-3-3 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69268183&amp;ptid=2252759" target="_blank">猫溺泉君 发表于 2026-3-3 15:13</a>
+
+tmd浣熊错过了啊啊啊啊啊啊
+
+我读之前存的档把浣熊点了然后再读我高进度的档有用吗</blockquote>
+有用，浣熊和文件都是共通的
+
+*****
+
+####  猫溺泉君  
+##### 1529#       发表于 2026-3-3 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69268224&amp;ptid=2252759" target="_blank">Chao 发表于 2026-3-3 15:19</a>
+
+有用，浣熊和文件都是共通的</blockquote>
+得救了！
+
+*****
+
+####  红魔馆的糖  
+##### 1530#       发表于 2026-3-3 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69268169&amp;ptid=2252759" target="_blank">freedom12 发表于 2026-3-3 15:10</a>
+
+那我还是等打折吧，不着急玩了</blockquote>
+后面其实挺短的，流程占大头的疗养院和市区都不错，倒也不亏
+
