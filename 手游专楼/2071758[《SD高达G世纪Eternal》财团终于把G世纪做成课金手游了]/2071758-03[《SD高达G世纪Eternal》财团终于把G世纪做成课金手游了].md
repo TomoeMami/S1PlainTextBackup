@@ -434,3 +434,14 @@ emmm
 
 萌新问个问题, 这游戏该玩日服还是国际服? 不打算充钱
 
+
+*****
+
+####  洛克萨斯  
+##### 3706#       发表于 2026-3-3 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69266618&amp;ptid=2071758" target="_blank">风夏 发表于 2026-3-3 11:05</a>
+
+萌新问个问题, 这游戏该玩日服还是国际服? 不打算充钱</blockquote>
+国际服有中文
+
