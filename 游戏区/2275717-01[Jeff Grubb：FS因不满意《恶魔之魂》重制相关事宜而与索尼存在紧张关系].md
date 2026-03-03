@@ -683,3 +683,13 @@ fs除了只狼外自己没有资格做这种事情</blockquote>
 你应该问为什么同引擎的黑魂3 只狼 ps5版fs都给了60帧，血源为什么给不了，有没有种可能老贼想给但是版权 ...</blockquote>
 没给啊，环印城之前给PS4PRO解锁不锁30，PS5直接跑满
 
+
+*****
+
+####  acejoe  
+##### 57#       发表于 2026-3-3 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69262287&amp;ptid=2275717" target="_blank">哎哟卧槽了 发表于 2026-3-2 17:03</a>
+如果只是重制加私货，为什么不能重组工作室+做好内部审核。直接把蓝点裁了是怎么都说不过去的 ...</blockquote>
+蓝点只搞移植重制，要缩减第一个关的就是这种。
+
