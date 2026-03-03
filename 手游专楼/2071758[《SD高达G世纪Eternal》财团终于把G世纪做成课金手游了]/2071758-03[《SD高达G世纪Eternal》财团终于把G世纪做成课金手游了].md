@@ -555,3 +555,24 @@ AGE还是有MSV的，反正研发树已经塞了到时候选一个就行了
 
 初始的ur选啥合适? 有seed剧场版的自由吗? 有水星的机体可选么?
 
+
+*****
+
+####  一个陆仁贾  
+##### 3717#       发表于 2026-3-3 18:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69269483&amp;ptid=2071758" target="_blank">风夏 发表于 2026-3-3 18:31</a>
+初始的ur选啥合适? 有seed剧场版的自由吗? 有水星的机体可选么?</blockquote>
+一般推荐初始能刷出两三个ur开局，前期开荒有风灵肯定舒服一点
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  白猫MKII  
+##### 3718#       发表于 2026-3-3 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69269483&amp;ptid=2071758" target="_blank">风夏 发表于 2026-3-3 18:31</a>
+初始的ur选啥合适? 有seed剧场版的自由吗? 有水星的机体可选么?</blockquote>
+初始？看你下不下当期池，啥都没有建议抽个沙扎比和支援牛，普池也没什么特别要抽的
+
