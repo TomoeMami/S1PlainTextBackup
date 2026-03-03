@@ -1039,3 +1039,15 @@ tmd浣熊错过了啊啊啊啊啊啊
 
 这代最高难度的数值啥情况啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，想试试不开无限和奖励武器能打到哪，然后开头里昂部分就四五只孢子头飞你脸上，这是逼你练完美弹反吗。而且格蕾丝开场西侧也是牢底坐穿，初始枪给你换到东侧保险柜那里去了，没枪没刀纯跑全程就两次容错
 
+
+*****
+
+####  pointer243  
+##### 1578#       发表于 2026-3-4 06:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69271027&amp;ptid=2252759" target="_blank">shyso 发表于 2026-3-3 23:58</a>
+那么下一作还会是重制吗，维罗妮卡还是5？总不能是启示录吧，0也有机会？ ...</blockquote>
+5要重置考虑的东西太多了。不说黑叔叔这个政治因素,狗屎剧情轻率地写死两个重要反派导致后面剧情缺少可拓展性。同时因为9突然抛出了个斯宾塞在浣熊市事件之前整出了个厄尔普斯导致人物前后不一致ooc。剧本大改是板上钉钉的事,话说都这么改了还不如直接出新作
+
+—— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
