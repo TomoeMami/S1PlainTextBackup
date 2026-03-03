@@ -715,3 +715,38 @@ tmd浣熊错过了啊啊啊啊啊啊
 那个空注射器我知道可以抱着艾米莉冲进去捡了就走，但是这几滩血的意义何在，连放艾米莉坐的地方都没有，难 ...</blockquote>
 你是不是一到这里把牢里的人宰了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  梅斯之围  
+##### 1548#       发表于 2026-3-3 22:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69270598&amp;ptid=2252759" target="_blank">红魔馆的糖 发表于 2026-3-3 22:21</a>
+
+你是不是一到这里把牢里的人宰了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">经历过浣熊市警察局那个地下牢房之后再见到这种的第一反应就是要把这些宰了吧
+
+*****
+
+####  疯褒之伶  
+##### 1549#       发表于 2026-3-3 22:32
+
+<img src="https://img.stage1st.com/forum/202603/03/223151qpxp4c4a26pxp4l4.png" referrerpolicy="no-referrer">
+
+<strong>C00B66EDCB5C5192741D66896FF264F8.png</strong> (331.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-3 22:31 上传
+
+最终谜题的第一步是不是这儿
+
+*****
+
+####  红魔馆的糖  
+##### 1550#       发表于 2026-3-3 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69270644&amp;ptid=2252759" target="_blank">梅斯之围 发表于 2026-3-3 22:30</a>
+经历过浣熊市警察局那个地下牢房之后再见到这种的第一反应就是要把这些宰了吧 ...</blockquote>
+有几个会在你探索的时候破牢而出的，那时候可以进去捡，提前杀了就没了
+
