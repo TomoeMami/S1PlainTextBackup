@@ -840,3 +840,13 @@ tmd浣熊错过了啊啊啊啊啊啊
 
 骂9的同时也别对7的问题视而不见啊，7从别墅到游轮再到地洞地图设计也是一跌再跌，地洞直接一拉到底啊。说到底卡普空的单机现在流程后40%-30%开始拉胯已经是常态了，不拉的才是少数。
 
+
+*****
+
+####  阿卵真是牛逼  
+##### 1560#       发表于 2026-3-3 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69270957&amp;ptid=2252759" target="_blank">iamleoy 发表于 2026-3-3 23:41</a>
+骂9的同时也别对7的问题视而不见啊，7从别墅到游轮再到地洞地图设计也是一跌再跌，地洞直接一拉到底啊。说 ...</blockquote>
+不如说从RE引擎时代开始卡表就一直在这么干<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
