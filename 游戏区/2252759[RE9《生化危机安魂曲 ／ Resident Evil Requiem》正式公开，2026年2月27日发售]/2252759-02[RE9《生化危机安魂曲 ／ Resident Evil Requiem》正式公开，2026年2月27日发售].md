@@ -1433,3 +1433,11 @@ DLC真是洋馆的话…………敬请期待生化危机初代真重制版<img 
 我还是觉得生化这些boss都要把自己强化成怪物就很神秘，有哪个是变怪物之后能变回来的么，要是变不回人你再 ...</blockquote>
 西蒙斯，一阶段的时候能切来切去，堪比斗士之魂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，唯一对不上的可能是他不是自愿注射成boss的。
 
+
+*****
+
+####  kalavinka  
+##### 1617#       发表于 2026-3-4 15:11
+
+看别人视频才发现自己一次枪反没用出来过<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">，是不是得贴脸然后等攻击快到身上开枪才行
+
