@@ -1344,3 +1344,15 @@ highguard罪不至此。
 问题还是出在品质玩法等根本上 ...</blockquote>
 不逆天但毫无记忆点，不光美术，看发售介绍短片台词文本也是完全白开水。感觉是晚了十年出来的PS4世代便宜工作室欧美免费游戏（which，要不是工作室开在加州，大概也确实是？
 
+
+*****
+
+####  滋啦球  
+##### 115#       发表于 2026-3-4 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69271688&amp;ptid=2272985" target="_blank">卡拉德利姆 发表于 2026-3-4 08:06</a>
+
+https://www.pcgamer.com/games/fps/rip-highguard-in-a-better-world-an-fps-is-allowed-to-be-unpopular/ ...</blockquote>
+"Highguard was not a dead game, it's being murdered."
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Highguard死了, 喷子们赢了.
+
