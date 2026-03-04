@@ -1182,3 +1182,31 @@ TGA就是個徹頭徹尾的笑話
 
 叫做比靜靜地去世好吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhacaizn  
+##### 99#       发表于 2026-3-4 08:04
+
+下一个是马拉松吗
+
+*****
+
+####  卡拉德利姆  
+##### 100#       发表于 2026-3-4 08:06
+
+[https://www.pcgamer.com/games/fp ... ed-to-be-unpopular/](https://www.pcgamer.com/games/fps/rip-highguard-in-a-better-world-an-fps-is-allowed-to-be-unpopular/)
+
+pc gamer神文<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  catabridge  
+##### 101#       发表于 2026-3-4 08:09
+
+ 本帖最后由 catabridge 于 2026-3-4 08:10 编辑 
+<blockquote>Yukino-Yukino 发表于 2026-2-12 16:35
+这人不就之前一个steam楼里舌战群儒的蛇精病经典言论steam打压单机推广网游。看一口一个蒸批的也知道是什 ...</blockquote>
+
+题外话，我在港区感觉steam在打压一切其他作品推广黄油，新品榜基本全是黄油
+
