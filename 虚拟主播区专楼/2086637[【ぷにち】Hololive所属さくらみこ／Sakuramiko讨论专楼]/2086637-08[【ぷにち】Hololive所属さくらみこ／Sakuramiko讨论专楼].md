@@ -115,3 +115,20 @@
 
 跟高达联动也是群魔乱舞,踩杏都快刻入基因了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holofan  
+##### 11488#       发表于 2026-3-4 22:56
+
+一说之前那个游戏的告知突然捂嘴说是不能提的话题
+
+一看就是明天要告知的内容<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 11489#       发表于 2026-3-4 23:52
+
+去年3 4000吧我记得，今年1万了？还怕卖不完不可能的
+
