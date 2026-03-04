@@ -1441,3 +1441,35 @@ DLC真是洋馆的话…………敬请期待生化危机初代真重制版<img 
 
 看别人视频才发现自己一次枪反没用出来过<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">，是不是得贴脸然后等攻击快到身上开枪才行
 
+
+*****
+
+####  卡拉德利姆  
+##### 1618#       发表于 2026-3-4 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69274493&amp;ptid=2252759" target="_blank">kalavinka 发表于 2026-3-4 15:11</a>
+
+看别人视频才发现自己一次枪反没用出来过，是不是得贴脸然后等攻击快到身上开枪才行 ...</blockquote>
+还要敌人的血线在斩杀线之下，除了耍帅意义不大的技巧
+
+
+*****
+
+####  乔迪奥  
+##### 1619#       发表于 2026-3-4 15:20
+
+<img src="https://img.stage1st.com/forum/202603/04/152033okyehpeyukz1ce9l.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20260304152020.png</strong> (120.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-4 15:20 上传
+
+*****
+
+####  红魔馆的糖  
+##### 1620#       发表于 2026-3-4 15:22
+
+<img src="https://p.sda1.dev/31/78ddff606e7e1b05ce1a23ad9becacad/image.jpg" referrerpolicy="no-referrer">
+
