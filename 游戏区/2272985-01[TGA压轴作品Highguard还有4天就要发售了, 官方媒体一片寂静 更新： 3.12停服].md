@@ -1356,3 +1356,15 @@ https://www.pcgamer.com/games/fps/rip-highguard-in-a-better-world-an-fps-is-allo
 "Highguard was not a dead game, it's being murdered."
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Highguard死了, 喷子们赢了.
 
+
+*****
+
+####  安广多惠子  
+##### 116#       发表于 2026-3-4 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69271942&amp;ptid=2272985" target="_blank">herryk159 发表于 2026-3-4 09:04</a>
+不再是三部曲，已经发展成时间线了！可惜少了个fairgame$</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太棒了这个图，已严肃转发至各游戏群
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
