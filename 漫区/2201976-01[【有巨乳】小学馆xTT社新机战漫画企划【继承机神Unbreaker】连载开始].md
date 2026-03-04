@@ -22,3 +22,14 @@
 
 真要被笑死，好不容易作者复刊，迎面撞上小学馆大炎上<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王九的哥哥  
+##### 88#       发表于 2026-3-4 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69277026&amp;ptid=2201976" target="_blank">永恒的王牌 发表于 2026-3-4 22:35</a>
+
+居然还活着吗，但目前是什么情况</blockquote>
+这周三是诈尸后第二个更新日<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
