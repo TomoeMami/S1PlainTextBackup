@@ -1215,3 +1215,32 @@ RE4就这么几次露面人物就塌方了。9代的ZENO和小丑一样，前面
 汉克感觉很明显有后续剧情啊，不知会不会也像R2那样更新个小关卡</blockquote>
 但是死得这么low，总舵主式的死法，什么后续都救不回时髦值了，卡表最好的弥补做法是确认死的这个不是汉克只是汉克的克隆体之类。
 
+
+*****
+
+####  ParadiseMartyr  
+##### 1595#       发表于 2026-3-4 11:26
+
+可以不可以是汉克假死<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+靠病毒自愈能力复活，在方舟爆炸前跑路
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  nage560  
+##### 1596#       发表于 2026-3-4 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69273053&amp;ptid=2252759" target="_blank">Chao 发表于 2026-3-4 11:22</a>
+
+你知道维克多和ZENO这两个活宝最后对手戏给我什么感觉吗，我眼前浮现了徐浩伦和谭湘文怎么能有反派LOW成 ...</blockquote>
+是的，目前为止的生化系列最low boss无误，前面铺垫那么多又是秒了一队bsaa又是吊打里昂，结果最后把自己蠢死了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">好像还是卡表游戏里少数死在过场的反派，上一次我有印象的还是鬼武者3开头过场那个boss。
+
+*****
+
+####  hkguty  
+##### 1597#       发表于 2026-3-4 11:34
+
+我也不知道，其实我感觉他好像有些放水的小动作，例如一开始摔下去，原本想攻击但等了一下里昂站起来再单挑，中途的过场拿枪瞄准了里昂的头但是被里昂架开了，不知道是故意还是里昂动作快。但里昂打他也没有放水，一斧子砍脖子上正常人或者正常尸都要死了，最后还能跑掉也不知道他是不是早就注射了病毒
+
