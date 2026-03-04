@@ -1351,3 +1351,15 @@ DLC真是洋馆的话…………敬请期待生化危机初代真重制版<img 
 钢筋混凝土的话还要看武器位置，要站在钢筋那一头才能拿起来</blockquote>
 这设计也太幽默了吧......
 
+
+*****
+
+####  cangyuyao  
+##### 1609#       发表于 2026-3-4 13:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69273142&amp;ptid=2252759" target="_blank">hkguty 发表于 2026-3-4 11:34</a>
+我也不知道，其实我感觉他好像有些放水的小动作，例如一开始摔下去，原本想攻击但等了一下里昂站起来再单挑 ...</blockquote>
+第一次打里昂他枪里没子弹打着玩的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+总得来说就没把里昂放眼里，里昂不干他他也不动手，但生化的演出你甚至分不清想捧还是想杀，坏结局更是一切为了展示里昂凄美就义<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
