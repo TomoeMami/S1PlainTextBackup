@@ -1941,3 +1941,27 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 最后的过场他已经说明白了，他从一开始就知道格蕾丝和艾米莉没关系，也知道厄尔比斯的实际作用不是病毒而是解药，所以他是一路在骗齐诺把自己带到方舟，然后反水确保厄尔比斯最终销毁在自己手里。
 
+
+*****
+
+####  Sissii  
+##### 1666#       发表于 2026-3-5 03:32
+
+<img src="https://img.stage1st.com/forum/202603/05/032749v8pghm3sz8pe3ihz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-5 03:27 上传
+
+<img src="https://img.stage1st.com/forum/202603/05/032801lqv5o54454m41gig.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (53.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-5 03:28 上传
+
+维克托不仅啥都知道，而且还是个忠厚人。
+
