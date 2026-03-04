@@ -1051,3 +1051,18 @@ tmd浣熊错过了啊啊啊啊啊啊
 
 —— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Chao  
+##### 1579#       发表于 2026-3-4 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69271559&amp;ptid=2252759" target="_blank">pointer243 发表于 2026-3-4 06:29</a>
+
+5要重置考虑的东西太多了。不说黑叔叔这个政治因素,狗屎剧情轻率地写死两个重要反派导致后面剧情缺少可拓 ...</blockquote>
+就现在这编剧能力，庆幸威斯克在5代被写死了。
+
+RE4就这么几次露面人物就塌方了。9代的ZENO和小丑一样，前面逼格多高后面就有多丑。
+
+现在的剧本没能力设计威斯克这样复杂的人。
+
