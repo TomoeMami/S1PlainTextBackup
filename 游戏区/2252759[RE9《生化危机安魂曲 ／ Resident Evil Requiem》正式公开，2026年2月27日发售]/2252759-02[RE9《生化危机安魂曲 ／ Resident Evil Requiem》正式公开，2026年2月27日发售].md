@@ -1084,3 +1084,36 @@ RE4就这么几次露面人物就塌方了。9代的ZENO和小丑一样，前面
 
 至于剧情，生化剧情真无所吊喂吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 1582#       发表于 2026-3-4 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69272107&amp;ptid=2252759" target="_blank">hkguty 发表于 2026-3-4 09:27</a>
+
+如果后面剧情还有其他克隆威的话，重制5应该是板上钉钉的，毕竟是老威退场作，维罗妮卡里其实老威戏份也很 ...</blockquote>
+如果後面還想克隆威再出場的話
+
+麻煩請應該應該快大學畢業的小威姨出場解決
+
+*****
+
+####  nage560  
+##### 1583#       发表于 2026-3-4 10:39
+
+所以格蕾丝的血是不是真的有什么记忆继承的能力？还是搞半天是维克多忽悠假威斯克的？话说威斯克一死各种精神威斯克都出来了，有点夏亚死后那味了。
+
+
+*****
+
+####  Chao  
+##### 1584#       发表于 2026-3-4 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69272695&amp;ptid=2252759" target="_blank">nage560 发表于 2026-3-4 10:39</a>
+
+所以格蕾丝的血是不是真的有什么记忆继承的能力？还是搞半天是维克多忽悠假威斯克的？话说威斯克一死各种精 ...</blockquote>
+从头到底ZENO就是冤大头，花大量成本去找武器，结果找到个自爆炸弹，把自己炸死的同时，还把对面李昂给救活了，要是没搞这事，李昂就已经是死人一个了。
+
+二周目看他装逼一次就笑一个。生化里怎么会出这么搞笑的人物。
+
