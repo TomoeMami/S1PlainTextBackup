@@ -1363,3 +1363,15 @@ DLC真是洋馆的话…………敬请期待生化危机初代真重制版<img 
 
 总得来说就没把里昂放眼里，里昂不干他他也不动手，但生化的演出你甚至分不清想捧还是想杀，坏结局更是一切为了展示里昂凄美就义<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  武川日玄  
+##### 1610#       发表于 2026-3-4 13:29
+
+莫名其妙的伪威，下线好几章再出现只剩个肌肉萎缩小手的吉迪恩。
+
+大概有个dlc是坏结局伪威逃脱绕回去想捡俄尔普斯，大战吉迪恩胜了，然后注射俄尔普斯没了抛瓦，还是被缓过来的吉迪恩杀了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外里昂让雪梨不要冒险，回复是“才不会呢”，我信你个鬼。
+
