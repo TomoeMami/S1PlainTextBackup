@@ -1393,3 +1393,22 @@ DLC真是洋馆的话…………敬请期待生化危机初代真重制版<img 
 
 —— 来自 Xiaomi 25128PNA1C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cosx  
+##### 1613#       发表于 2026-3-4 14:14
+
+最傻逼的是加油站捡了电锯出门被煤气罐砸脸，请问丢下武器是什么按键
+
+
+*****
+
+####  月夜的风  
+##### 1614#       发表于 2026-3-4 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69274147&amp;ptid=2252759" target="_blank">cosx 发表于 2026-3-4 14:14</a>
+
+最傻逼的是加油站捡了电锯出门被煤气罐砸脸，请问丢下武器是什么按键</blockquote>
+随便切把枪就放下电锯了。
+
