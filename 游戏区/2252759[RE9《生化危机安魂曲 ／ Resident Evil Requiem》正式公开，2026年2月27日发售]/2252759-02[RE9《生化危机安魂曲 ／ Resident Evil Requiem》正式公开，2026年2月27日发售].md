@@ -1679,3 +1679,14 @@ https://www.capcom.co.jp/ir/english/news/html/e260304.html</blockquote>
 『バイオハザード レクイエム』を500万人以上の方々に遊んでいただき、開発チーム一同、心より感謝しております！シリーズを支えてくださっている皆様、本当にありがとうございます！
 <img src="https://p.sda1.dev/31/9f06746d4618c7191e2aa3bd4fe42033/1000161610.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  godless2020  
+##### 1642#       发表于 2026-3-4 18:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69275407&amp;ptid=2252759" target="_blank">siansian 发表于 2026-3-4 17:16</a>
+
+我觉得卡婊人设根本没把grace当主角塑造，人设太普通穷酸，扔到大街上都不会瞥一眼那种，一路上只是被动的 ...</blockquote>
+格蕾丝一直都是抑，完全没有释放，我是卡表就大胆点，最后体内病毒觉醒，屠杀方舟！
+
