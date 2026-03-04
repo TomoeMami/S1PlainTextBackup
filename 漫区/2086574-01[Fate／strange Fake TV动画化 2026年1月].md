@@ -1170,3 +1170,13 @@ zero那本 ...</blockquote>
 
 前面集数做前4卷剧情已经是尽量压缩了，第5卷的内容明显变多2集不够用的，但又要重点做好第6卷占了3集和做完作为这季的结尾就会这样了
 
+
+*****
+
+####  zakki  
+##### 1125#       发表于 2026-3-4 23:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69277260&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-3-4 23:12</a>
+总需要有些角色出来当牺牲品，动画制作组选择了金色头发的2位角色，但以作品戏份的出现时间来说牢闪算表面 ...</blockquote>
+不过往好了想下一季就可以13集做4卷了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
