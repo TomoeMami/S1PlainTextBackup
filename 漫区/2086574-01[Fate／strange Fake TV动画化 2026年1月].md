@@ -1035,3 +1035,15 @@ zero那本 ...</blockquote>
 
 所以横飞姬比她的从者厉害咯。
 
+
+*****
+
+####  大耳兽  
+##### 1114#       发表于 2026-3-4 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69272346&amp;ptid=2086574" target="_blank">大十字紅朔 发表于 2026-3-4 09:56</a>
+像塞巴其实生前有剑有盾有枪有马，但是在从者里只能选带几个，比如枪就没有剑，剑就没有枪
+
+所以从者的时 ...</blockquote>
+她不是“以活人状态”被召唤的吗。
+
