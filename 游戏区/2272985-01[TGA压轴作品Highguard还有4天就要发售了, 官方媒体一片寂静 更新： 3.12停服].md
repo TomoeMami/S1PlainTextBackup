@@ -1432,3 +1432,13 @@ https://www.pcgamer.com/games/fps/rip-highguard-in-a-better-world-an-fps-is-allo
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">能盖四页多亏了某个你坛著名傻逼 不然死都死的路边一条
 
+
+*****
+
+####  trentswd  
+##### 123#       发表于 2026-3-4 12:04
+
+所以为什么tga要压轴
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
