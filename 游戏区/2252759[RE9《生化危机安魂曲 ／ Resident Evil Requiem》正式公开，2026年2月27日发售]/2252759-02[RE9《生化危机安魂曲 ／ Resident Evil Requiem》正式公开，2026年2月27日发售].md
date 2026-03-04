@@ -1657,3 +1657,11 @@ QQ图片20260304170525.jpg
 
 ZENO这个名字是不是致敬芸梦馆生化2速通第一人ZENO啊？<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这个也是情怀吗？
 
+
+*****
+
+####  siansian  
+##### 1640#       发表于 2026-3-4 17:16
+
+我觉得卡婊人设根本没把grace当主角塑造，人设太普通穷酸，扔到大街上都不会瞥一眼那种，一路上只是被动的卷入事件，最终也只是沦为leon的陪衬，没有属于自己的人物弧光
+
