@@ -1773,3 +1773,36 @@ https://www.capcom.co.jp/ir/english/news/html/e260304.html</blockquote>
 
 哦对了，里昂都算白宫下属机构创始人，怎么还不学克队友弄手下帮自己打工还跟个愣头青一样穿个皮衣带把斧头自己去闯啊.......看雪莉那德行里昂也算有点权力的
 
+
+*****
+
+####  eilot  
+##### 1651#       发表于 2026-3-4 19:41
+
+ 本帖最后由 eilot 于 2026-3-4 19:42 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69276079&amp;ptid=2252759" target="_blank">哈罗 发表于 2026-3-4 19:17</a>
+
+7，8两作的商业表现跟克里斯没关系，有他的内容都是垃圾环节</blockquote>
+7的劇情可是一直都和生化劇情脫節，作為普遍人的新主角收到以為死了的人郵件就去荒間大屋，這是silent hill劇情嗎
+
+最後chris露個臉才能給玩家認為是同一世界觀
+
+8代的劇情更是開場就見到CHRIS就殺人老婆...
+
+沒有老人客串，還是難以帶動情懷
+
+有些東西單靠物品彩蛋，未必能容易挑起回憶
+
+BSAA有關人物能在世界各地隨處客串，在劇情上還是比較合理
+
+*****
+
+####  隔壁老黄  
+##### 1652#       发表于 2026-3-4 19:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69275407&amp;ptid=2252759" target="_blank">siansian 发表于 2026-3-4 17:16</a>
+我觉得卡婊人设根本没把grace当主角塑造，人设太普通穷酸，扔到大街上都不会瞥一眼那种，一路上只是被动的 ...</blockquote>
+就是碍事莉加强版，实际上原版碍事莉也不咋讨人喜欢，RE改了性格才讨人喜欢
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
