@@ -1174,3 +1174,11 @@ TGA就是個徹頭徹尾的笑話
 
 —— 来自 Google Pixel 2, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  D-JoeII  
+##### 98#       发表于 2026-3-4 07:50
+
+叫做比靜靜地去世好吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
