@@ -1332,3 +1332,22 @@ RE4就这么几次露面人物就塌方了。9代的ZENO和小丑一样，前面
 这次真结局的艾米莉可以解答你的问题</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这艾米莉能捞出来科技含量比西蒙斯还要高了
 
+
+*****
+
+####  1096beam  
+##### 1607#       发表于 2026-3-4 12:36
+
+DLC真是洋馆的话…………敬请期待生化危机初代真重制版<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉DLC应该也是走一文一武的角色搭配
+
+*****
+
+####  CswStar  
+##### 1608#       发表于 2026-3-4 12:41
+
+<blockquote>Chao 发表于 2026-3-4 12:10
+钢筋混凝土的话还要看武器位置，要站在钢筋那一头才能拿起来</blockquote>
+这设计也太幽默了吧......
+
