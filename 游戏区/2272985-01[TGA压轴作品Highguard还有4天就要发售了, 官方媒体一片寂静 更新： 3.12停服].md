@@ -1210,3 +1210,15 @@ pc gamer神文<img src="https://static.stage1st.com/image/smiley/face2017/066.pn
 
 题外话，我在港区感觉steam在打压一切其他作品推广黄油，新品榜基本全是黄油
 
+
+*****
+
+####  siebten  
+##### 102#       发表于 2026-3-4 08:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69271688&amp;ptid=2272985" target="_blank">卡拉德利姆 发表于 2026-3-4 08:06</a>
+https://www.pcgamer.com/games/fps/rip-highguard-in-a-better-world-an-fps-is-allowed-to-be-unpopular/ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结论：老钟/资本太坏了 既然会撤资不赚钱的游戏
+
+从重生出来的这帮人完全可以做个不需要看在线人数的单机游戏 但结果是他们选择做在线服务游戏 想赚大钱就要愿赌服输 
+
