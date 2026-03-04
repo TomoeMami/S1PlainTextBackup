@@ -1222,3 +1222,29 @@ https://www.pcgamer.com/games/fps/rip-highguard-in-a-better-world-an-fps-is-allo
 
 从重生出来的这帮人完全可以做个不需要看在线人数的单机游戏 但结果是他们选择做在线服务游戏 想赚大钱就要愿赌服输 
 
+
+*****
+
+####  liekong  
+##### 103#       发表于 2026-3-4 09:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69271694&amp;ptid=2272985" target="_blank">catabridge 发表于 2026-3-4 08:09</a>
+
+题外话，我在港区感觉steam在打压一切其他作品推广黄油，新品榜基本全是黄油 ...</blockquote>
+会不会是想买黄油的老中涩批们大部分都搞了港区号<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  herryk159  
+##### 104#       发表于 2026-3-4 09:04
+
+<img src="https://img.stage1st.com/forum/202603/04/090252qt7p3m1tpmavmftf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (404.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-4 09:02 上传
+
+不再是三部曲，已经发展成时间线了！可惜少了个fairgame$
+
