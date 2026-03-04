@@ -1871,3 +1871,13 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 没有李三光突然发红魔人化，我觉得就是不如UC
 
+
+*****
+
+####  普朗克  
+##### 1659#       发表于 2026-3-4 22:50
+
+格蕾丝黄金版的衣服漏小香肩非常不错
+
+—— 来自 samsung SM-F9460, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
