@@ -1368,3 +1368,13 @@ https://www.pcgamer.com/games/fps/rip-highguard-in-a-better-world-an-fps-is-allo
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  D-JoeII  
+##### 117#       发表于 2026-3-4 11:02
+
+<blockquote>herryk159 发表于 2026-3-4 09:04
+不再是三部曲，已经发展成时间线了！可惜少了个fairgame$</blockquote>
+馬拉松感覺能撐很久,畢竟棒雞死忠也挺多的
+
