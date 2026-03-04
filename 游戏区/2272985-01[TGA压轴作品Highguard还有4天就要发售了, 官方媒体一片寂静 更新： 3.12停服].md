@@ -1332,3 +1332,15 @@ highguard罪不至此。
 相对楼上那张图的另外三家，算是相当正常了。</blockquote>
 这个的爆点主要是在TGA压轴<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ybfelix  
+##### 114#       发表于 2026-3-4 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69272117&amp;ptid=2272985" target="_blank">wwhaha 发表于 2026-3-4 09:27</a>
+话说这游戏的人设不算逆天吧，至少和星鸣特攻没得比
+
+问题还是出在品质玩法等根本上 ...</blockquote>
+不逆天但毫无记忆点，不光美术，看发售介绍短片台词文本也是完全白开水。感觉是晚了十年出来的PS4世代便宜工作室欧美免费游戏（which，要不是工作室开在加州，大概也确实是？
+
