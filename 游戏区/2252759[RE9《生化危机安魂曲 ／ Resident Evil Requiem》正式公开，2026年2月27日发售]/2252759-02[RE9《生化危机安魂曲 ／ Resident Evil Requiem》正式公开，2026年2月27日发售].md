@@ -1973,3 +1973,13 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 里昂开局在鹪木市刻意救的话，最多能救下几个人？
 
+
+*****
+
+####  新庄運切  
+##### 1668#       发表于 2026-3-5 04:26
+
+通关了，手斧白象牙真牛逼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这次分头算不算战斗力新高了。
+
