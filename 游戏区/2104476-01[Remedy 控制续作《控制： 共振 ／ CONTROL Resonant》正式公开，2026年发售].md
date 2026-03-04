@@ -894,3 +894,13 @@ DMC鬼泣
 【《控制：共振》的灵感来源】 
 [https://b23.tv/TVkZ98v](https://b23.tv/TVkZ98v)
 
+
+*****
+
+####  pgain2004  
+##### 94#       发表于 2026-3-5 04:18
+
+虽然是旧闻了，但看到楼顶上来，还是说一句：
+这作要是还不太成功，Remedy可能就得大变样了
+1月份上任的新CEO的背景是“体-育-博-彩”和EA、CCP(EVE那家)的执行官之一，并且准备“scale Remedy in a way that builds lasting value”噢
+
