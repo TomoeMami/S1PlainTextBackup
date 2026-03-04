@@ -1003,3 +1003,14 @@ md我还是第一次遇到游戏低级地图初期小兵就能有隐身突脸跑
 
 <img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">好像预购的还蛮多的
 
+
+*****
+
+####  赤井稻妻  
+##### 226#       发表于 2026-3-4 14:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69261310&amp;ptid=2135998" target="_blank">razielzyc 发表于 2026-3-2 14:50</a>
+
+玩了几盘，美术很有特色。氛围感做得不错，手感也扎实。但你说40usd，确实没又让我觉得比三角洲 apex arc这 ...</blockquote>
+arc不也40刀吗
+
