@@ -14,3 +14,11 @@
 
 居然还活着吗，但目前是什么情况<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊布桑  
+##### 87#       发表于 2026-3-4 22:43
+
+真要被笑死，好不容易作者复刊，迎面撞上小学馆大炎上<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

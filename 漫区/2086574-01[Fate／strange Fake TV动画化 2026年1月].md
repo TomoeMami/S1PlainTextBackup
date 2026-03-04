@@ -1144,3 +1144,15 @@ zero那本 ...</blockquote>
 
 反正这季就是压宝在第6卷做3集了
 
+
+*****
+
+####  zakki  
+##### 1123#       发表于 2026-3-4 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69277019&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-3-4 22:35</a>
+虽然之前就知道了第5卷做9,10集，重点第6卷做11,12,13集的消息
+
+前面4卷2集做1卷反正都播完了也还行，但第5 ...</blockquote>
+没看懂这个安排，第5卷做2集半基本就够了吧，1集搞定那改动也太大了。第9集推进节奏还挺正常的，怎么第10集飙升了。总不能是加长版吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
