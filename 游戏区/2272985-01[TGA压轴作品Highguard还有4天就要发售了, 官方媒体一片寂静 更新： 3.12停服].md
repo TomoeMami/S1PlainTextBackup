@@ -1462,3 +1462,27 @@ jeff很喜欢<img src="https://static.stage1st.com/image/smiley/animal2017/029.p
 
 腾讯                   
 
+
+*****
+
+####  FLZB  
+##### 126#       发表于 2026-3-4 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69271724&amp;ptid=2272985" target="_blank">siebten 发表于 2026-3-4 08:21</a>
+
+结论：老钟/资本太坏了 既然会撤资不赚钱的游戏
+
+从重生出来的这帮人完全可以做个不需要看在线人数的单机 ...</blockquote>
+毫无意外，刚开那会鬼佬就试图把锅甩给企鹅，但是没人说得明白企鹅投资到底跟这游戏做拉了有什么关系，反正⏰就是原罪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zzy516232108  
+##### 127#       发表于 2026-3-4 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69275417&amp;ptid=2272985" target="_blank">FLZB 发表于 2026-3-4 17:17</a>
+
+毫无意外，刚开那会鬼佬就试图把锅甩给企鹅，但是没人说得明白企鹅投资到底跟这游戏做拉了有什么关系，反 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">一直输血没砍掉就是最大的错误
+
