@@ -1904,3 +1904,11 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 夏亚暗算好友，威斯克暗算恩师。</blockquote>
 可以再加一个都是金发背头墨镜男<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 1662#       发表于 2026-3-5 01:11
+
+其实最后维克多甚至不用打，他应该本来就是想散布反病毒的。他应该是抓女主的时候就知道反病毒的真相了，毕竟抽了血，只是还在继续利用假威罢了。不过bug就是女主本来也算是个国家公务员，之前没抽过血没人发现就很奇怪。
+
