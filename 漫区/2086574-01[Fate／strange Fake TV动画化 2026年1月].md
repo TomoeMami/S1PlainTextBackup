@@ -927,3 +927,13 @@ zero那本 ...</blockquote>
 
 闹麻了，当动画党觉得文戏拖沓删少了的时候，贴吧又因为谁的戏份不该删饭圈大战撕起来了，只不过比起之前战力党乳海大战，这次是成了cp党大战了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  性急的蜗牛  
+##### 1105#       发表于 2026-3-4 09:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我对之前一切瞧不起海格力斯的言行道歉，偷宝具什么的也太犯规了吧。
+
+这能力哪怕像传说一样最多12件也足够打完一整场圣杯战争了吧？没有什么限制么
+
