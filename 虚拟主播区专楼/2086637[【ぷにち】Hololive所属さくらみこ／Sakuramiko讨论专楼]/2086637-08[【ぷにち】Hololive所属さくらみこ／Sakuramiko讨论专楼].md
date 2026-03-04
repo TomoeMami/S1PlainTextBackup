@@ -96,3 +96,22 @@
 
 2434的姐妹们求求不要再集火这边了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">放过我们吧
 
+
+*****
+
+####  holofan  
+##### 11486#       发表于 2026-3-4 21:37
+
+这隔壁的隔壁是谁牵的线啊？你哪来加的​​かるび的discord号？
+
+*****
+
+####  sekai2014  
+##### 11487#       发表于 2026-3-4 21:53
+
+虹太监能听主子的话早和平了.
+
+虹官方发公告点艹部分粉丝不依旧有披着V黑的皮干着杏黑的事的虹粉
+
+跟高达联动也是群魔乱舞,踩杏都快刻入基因了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
