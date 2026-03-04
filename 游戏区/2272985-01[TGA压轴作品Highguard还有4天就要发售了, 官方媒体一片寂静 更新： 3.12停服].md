@@ -1321,3 +1321,14 @@ https://www.pcgamer.com/games/fps/rip-highguard-in-a-better-world-an-fps-is-allo
 不再是三部曲，已经发展成时间线了！可惜少了个fairgame$</blockquote>
 highguard罪不至此。
 
+
+*****
+
+####  哎哟卧槽了  
+##### 113#       发表于 2026-3-4 09:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69272140&amp;ptid=2272985" target="_blank">曼彻斯特联 发表于 2026-3-4 09:31</a>
+
+相对楼上那张图的另外三家，算是相当正常了。</blockquote>
+这个的爆点主要是在TGA压轴<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
