@@ -848,3 +848,16 @@ LB今年的行程计划，大概八月出第十章“被凝视者”，这之前
 
 想组个黑兽队，但手上只有兔浮，鸡和园长哪个自选的优先级更高些
 
+
+*****
+
+####  法拉  
+##### 1274#       发表于 2026-3-5 04:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69277262&amp;ptid=2120922" target="_blank">Sleipnirω 发表于 2026-3-4 23:12</a>
+
+沟槽的鞭子，第七章打到关底打不过抄单通作业发现拿了负面藏品只能重新打一遍，但是演出还行
+
+想组个黑兽队 ...</blockquote>
+没有君主宝根本无从谈起
+
