@@ -1074,3 +1074,13 @@ RE4就这么几次露面人物就塌方了。9代的ZENO和小丑一样，前面
 
 如果后面剧情还有其他克隆威的话，重制5应该是板上钉钉的，毕竟是老威退场作，维罗妮卡里其实老威戏份也很多，如果重制的话应该是一条龙的
 
+
+*****
+
+####  红魔馆的糖  
+##### 1581#       发表于 2026-3-4 09:42
+
+5代只希望关卡重制，这玩意是想继承4但是又推双人的扭曲产物，目前看来卡普空完全有能力重制关卡，但是就怕原汁原味高清拓展<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+至于剧情，生化剧情真无所吊喂吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
