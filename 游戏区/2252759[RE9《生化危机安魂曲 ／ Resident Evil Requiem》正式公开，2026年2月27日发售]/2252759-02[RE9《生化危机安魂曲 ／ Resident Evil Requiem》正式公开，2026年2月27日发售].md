@@ -1665,3 +1665,17 @@ ZENO这个名字是不是致敬芸梦馆生化2速通第一人ZENO啊？<img src
 
 我觉得卡婊人设根本没把grace当主角塑造，人设太普通穷酸，扔到大街上都不会瞥一眼那种，一路上只是被动的卷入事件，最终也只是沦为leon的陪衬，没有属于自己的人物弧光
 
+
+*****
+
+####  Piano-Forest  
+##### 1641#         楼主| 发表于 2026-3-4 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69274593&amp;ptid=2252759" target="_blank">Piano-Forest 发表于 2026-3-4 15:26</a>
+
+销量已突破500万份
+
+https://www.capcom.co.jp/ir/english/news/html/e260304.html</blockquote>
+『バイオハザード レクイエム』を500万人以上の方々に遊んでいただき、開発チーム一同、心より感謝しております！シリーズを支えてくださっている皆様、本当にありがとうございます！
+<img src="https://p.sda1.dev/31/9f06746d4618c7191e2aa3bd4fe42033/1000161610.jpg" referrerpolicy="no-referrer">
+
