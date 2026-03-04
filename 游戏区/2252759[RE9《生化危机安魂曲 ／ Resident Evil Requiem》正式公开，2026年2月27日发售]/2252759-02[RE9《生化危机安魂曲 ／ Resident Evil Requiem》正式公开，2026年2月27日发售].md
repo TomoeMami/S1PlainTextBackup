@@ -1518,3 +1518,33 @@ DLC真是洋馆的话…………敬请期待生化危机初代真重制版<img 
 然而从整个谜题的顺序来看抽水马桶才是前半部分，密码精华要下周目才有用。 ...</blockquote>
 没毛病，浣熊市开放世界是先做的，疗养院躲猫猫是后做的。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛亚替身  
+##### 1626#       发表于 2026-3-4 15:38
+
+ 本帖最后由 洛亚替身 于 2026-3-4 15:42 编辑 
+
+泽诺是怎么得出全都是克隆人的结论，狠狠共情了？我看这孤儿院合照小女孩长得都不一样，艾米丽和克洛伊长相好像也不同(性格感觉也不同，感觉艾米丽长大会很高冷那种，克洛伊性格像正常小孩)<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛亚替身  
+##### 1627#       发表于 2026-3-4 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69274648&amp;ptid=2252759" target="_blank">乔迪奥 发表于 2026-3-4 15:34</a>
+
+没毛病，浣熊市开放世界是先做的，疗养院躲猫猫是后做的。</blockquote>
+？很明显疗养院更受欢迎，下一代弄三个半或四个疗养院式关卡就真成神作了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 1628#       发表于 2026-3-4 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69273451&amp;ptid=2252759" target="_blank">zhacaizn 发表于 2026-3-4 12:14</a>
+
+还有人说删了一段生1洋馆情怀放dlc的，也不知道能不能信</blockquote>
+这种搞法5代不是已经玩过一次了，还来
+
