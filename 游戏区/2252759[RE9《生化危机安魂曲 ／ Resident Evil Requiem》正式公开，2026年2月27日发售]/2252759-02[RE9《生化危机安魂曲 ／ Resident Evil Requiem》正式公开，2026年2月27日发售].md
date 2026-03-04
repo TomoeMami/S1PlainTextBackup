@@ -1754,3 +1754,14 @@ https://www.capcom.co.jp/ir/english/news/html/e260304.html</blockquote>
 </blockquote>
 7，8两作的商业表现跟克里斯没关系，有他的内容都是垃圾环节
 
+
+*****
+
+####  洛亚替身  
+##### 1649#       发表于 2026-3-4 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69276079&amp;ptid=2252759" target="_blank">哈罗 发表于 2026-3-4 19:17</a>
+
+7，8两作的商业表现跟克里斯没关系，有他的内容都是垃圾环节</blockquote>
+人家意思不一定是销量，而是剧情撑不起来，或者说没老角色辨识度对老玩家很难知道自己玩的是生化危机........光靠文档是不够的
+
