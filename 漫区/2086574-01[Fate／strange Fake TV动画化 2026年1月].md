@@ -937,3 +937,26 @@ zero那本 ...</blockquote>
 
 这能力哪怕像传说一样最多12件也足够打完一整场圣杯战争了吧？没有什么限制么
 
+
+*****
+
+####  Wondering  
+##### 1106#       发表于 2026-3-4 09:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69272083&amp;ptid=2086574" target="_blank">性急的蜗牛 发表于 2026-3-4 09:23</a>
+
+我对之前一切瞧不起海格力斯的言行道歉，偷宝具什么的也太犯规了吧。
+
+这能力哪怕像传说一样最多12件也足够 ...</blockquote>
+灵基有上限，后面偷完第二个宝具后再加上本身被注入了某某直接疯掉了
+
+*****
+
+####  性急的蜗牛  
+##### 1107#       发表于 2026-3-4 09:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69272099&amp;ptid=2086574" target="_blank">Wondering 发表于 2026-3-4 09:25</a>
+
+灵基有上限，后面偷完第二个宝具后再加上本身被注入了某某直接疯掉了</blockquote>
+如果这样那用来偷杰克宝具还蛮……吃亏的？毕竟这宝具杰克以外的人用出来就变成单纯的“恶魔人！变身！”了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
