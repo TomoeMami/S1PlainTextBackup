@@ -1839,3 +1839,15 @@ BSAA有關人物能在世界各地隨處客串，在劇情上還是比較合理
 
 boss的RPG能用斧子弹刀弹开就离谱
 
+
+*****
+
+####  星野心叶  
+##### 1657#       发表于 2026-3-4 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69276668&amp;ptid=2252759" target="_blank">moeful 发表于 2026-3-4 21:23</a>
+boss的RPG能用斧子弹刀弹开就离谱</blockquote>
+迫击炮也可以弹<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
