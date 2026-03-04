@@ -1881,3 +1881,11 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 —— 来自 samsung SM-F9460, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  moonblackwh  
+##### 1660#       发表于 2026-3-5 00:07
+
+汉克尸体会消失，其他小兵的都不会。本来模棱两可的，搞这么一出基本可以确认是汉克本人了。
+
