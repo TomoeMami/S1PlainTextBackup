@@ -1633,3 +1633,27 @@ DLC真是洋馆的话…………敬请期待生化危机初代真重制版<img 
 
 —— 来自 Xiaomi 25128PNA1C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  斯卡雷特  
+##### 1638#       发表于 2026-3-4 17:06
+
+印尼某生化9线下活动，格蕾丝的人气作为新主角已经是非常高的了，X上面投票一对一分头能拿近3成的票
+
+QQ图片20260304170525.jpg
+(207.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-4 17:05 上传
+
+<img src="https://img.stage1st.com/forum/202603/04/170540dij28aj6mvqvhqha.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Chao  
+##### 1639#       发表于 2026-3-4 17:08
+
+ZENO这个名字是不是致敬芸梦馆生化2速通第一人ZENO啊？<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这个也是情怀吗？
+
