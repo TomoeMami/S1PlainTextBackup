@@ -1889,3 +1889,18 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 汉克尸体会消失，其他小兵的都不会。本来模棱两可的，搞这么一出基本可以确认是汉克本人了。
 
+
+*****
+
+####  nage560  
+##### 1661#       发表于 2026-3-5 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69276742&amp;ptid=2252759" target="_blank">moeful 发表于 2026-3-4 21:37</a>
+
+我之前在这楼发的反白：
+
+夏亚潜伏在鸡瘟，威斯克潜伏在stars。
+
+夏亚暗算好友，威斯克暗算恩师。</blockquote>
+可以再加一个都是金发背头墨镜男<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
