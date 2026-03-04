@@ -1383,3 +1383,13 @@ DLC真是洋馆的话…………敬请期待生化危机初代真重制版<img 
 
 钢筋啥的都还好，最傻逼的是汽油桶，没怪时候不给移位，有怪时候往怪扔也不知道往哪扔能扔多远，我他妈有次直接扔墙上反弹到我身上给我炸了，mdzz<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  vacuumsword  
+##### 1612#       发表于 2026-3-4 14:06
+
+克里斯DLC打假威斯克会有吗
+
+—— 来自 Xiaomi 25128PNA1C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
