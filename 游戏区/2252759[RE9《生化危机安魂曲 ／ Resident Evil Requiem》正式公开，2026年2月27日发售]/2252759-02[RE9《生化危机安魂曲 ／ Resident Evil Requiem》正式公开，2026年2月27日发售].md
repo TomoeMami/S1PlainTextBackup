@@ -1117,3 +1117,34 @@ RE4就这么几次露面人物就塌方了。9代的ZENO和小丑一样，前面
 
 二周目看他装逼一次就笑一个。生化里怎么会出这么搞笑的人物。
 
+
+*****
+
+####  cangyuyao  
+##### 1585#       发表于 2026-3-4 10:58
+
+发售第二天我就看到了各种语言的威斯克夏亚说<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这次剧情场外因素实在太多了，斯宾塞洗白和克隆人这种属于卡普空的正常水平，但情怀卖这么勉强99%是因为没钱（虽然风评还行但堆了这么多老素材只卖成这样还是太普了），新角色剧情全都没头没尾上句接不上下句因为没钱，boss 草率出场唐突退场因为没钱，两种游戏风格缝一起为了卖钱，放眼望去全是预算
+
+
+*****
+
+####  nage560  
+##### 1586#       发表于 2026-3-4 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69272738&amp;ptid=2252759" target="_blank">Chao 发表于 2026-3-4 10:44</a>
+
+从头到底ZENO就是冤大头，花大量成本去找武器，结果找到个自爆炸弹，把自己炸死的同时，还把对面李昂给救 ...</blockquote>
+这里我感觉是这个角色被强行降智了，哪怕就算明确是新的并毒武器，也得找实验体试药免得被反噬才对，结果是连是什么东西都不确认就直接打，还有这个维克多搞半天就是个斯宾塞迷弟那种愉悦犯角色，所以我觉得生化9这次剧情差评一大原因就是boss过于low了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">哪怕西蒙斯和女威斯克虽然到最后也无能狂怒很掉价，但起码还没有到这种降智的程度。
+
+*****
+
+####  红魔馆的糖  
+##### 1587#       发表于 2026-3-4 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69272738&amp;ptid=2252759" target="_blank">Chao 发表于 2026-3-4 10:44</a>
+
+从头到底ZENO就是冤大头，花大量成本去找武器，结果找到个自爆炸弹，把自己炸死的同时，还把对面李昂给救 ...</blockquote>
+这角色好像二周目跳过剧情的话根本不会出现<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
