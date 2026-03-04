@@ -1473,3 +1473,48 @@ DLC真是洋馆的话…………敬请期待生化危机初代真重制版<img 
 
 <img src="https://p.sda1.dev/31/78ddff606e7e1b05ce1a23ad9becacad/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 1621#         楼主| 发表于 2026-3-4 15:26
+
+销量已突破500万份
+[https://www.capcom.co.jp/ir/english/news/html/e260304.html](https://www.capcom.co.jp/ir/english/news/html/e260304.html)
+
+*****
+
+####  dio999  
+##### 1622#       发表于 2026-3-4 15:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69272938&amp;ptid=2252759" target="_blank">u2deack 发表于 2026-3-4 11:08</a>
+我还是觉得生化这些boss都要把自己强化成怪物就很神秘，有哪个是变怪物之后能变回来的么，要是变不回人你再 ...</blockquote>
+你可以再回忆下席梦思是怎么死的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DawnGuardian  
+##### 1623#       发表于 2026-3-4 15:29
+
+<blockquote>kalavinka 发表于 2026-3-4 15:11
+看别人视频才发现自己一次枪反没用出来过，是不是得贴脸然后等攻击快到身上开枪才行 ...</blockquote>
+不需要等攻击，僵尸血量够低靠的够近开枪就会触发，但是貌似装上瞄具后就不行了
+
+
+*****
+
+####  Chao  
+##### 1624#       发表于 2026-3-4 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69274556&amp;ptid=2252759" target="_blank">乔迪奥 发表于 2026-3-4 15:20</a></blockquote>
+然而从整个谜题的顺序来看<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">抽水马桶才是前半部分，密码精华要下周目才有用。
+
+*****
+
+####  乔迪奥  
+##### 1625#       发表于 2026-3-4 15:34
+
+<blockquote>Chao 发表于 2026-3-4 15:32
+然而从整个谜题的顺序来看抽水马桶才是前半部分，密码精华要下周目才有用。 ...</blockquote>
+没毛病，浣熊市开放世界是先做的，疗养院躲猫猫是后做的。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
