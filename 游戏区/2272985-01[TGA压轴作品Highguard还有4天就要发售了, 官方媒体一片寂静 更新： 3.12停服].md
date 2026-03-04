@@ -1289,3 +1289,25 @@ https://www.pcgamer.com/games/fps/rip-highguard-in-a-better-world-an-fps-is-allo
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  wwhaha  
+##### 110#       发表于 2026-3-4 09:27
+
+话说这游戏的人设不算逆天吧，至少和星鸣特攻没得比
+
+问题还是出在品质玩法等根本上
+
+*****
+
+####  曼彻斯特联  
+##### 111#       发表于 2026-3-4 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69272117&amp;ptid=2272985" target="_blank">wwhaha 发表于 2026-3-4 09:27</a>
+
+话说这游戏的人设不算逆天吧，至少和星鸣特攻没得比
+
+问题还是出在品质玩法等根本上 ...</blockquote>
+相对楼上那张图的另外三家，算是相当正常了。
+
