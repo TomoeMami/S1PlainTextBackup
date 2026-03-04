@@ -1851,3 +1851,23 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  moeful  
+##### 1658#       发表于 2026-3-4 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69272695&amp;ptid=2252759" target="_blank">nage560 发表于 2026-3-4 10:39</a>
+
+所以格蕾丝的血是不是真的有什么记忆继承的能力？还是搞半天是维克多忽悠假威斯克的？话说威斯克一死各种精 ...</blockquote>我之前在这楼发的反白：
+
+夏亚潜伏在鸡瘟，威斯克潜伏在stars。
+
+夏亚暗算好友，威斯克暗算恩师。
+
+夏亚喜欢同事拉拉，威斯克喜欢同事瑞贝卡
+
+夏亚在续篇有个假分身，威斯克也在续篇有个假分身。还都死得很窝囊
+
+没有李三光突然发红魔人化，我觉得就是不如UC
+
