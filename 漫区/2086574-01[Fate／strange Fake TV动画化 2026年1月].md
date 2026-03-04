@@ -1156,3 +1156,17 @@ zero那本 ...</blockquote>
 前面4卷2集做1卷反正都播完了也还行，但第5 ...</blockquote>
 没看懂这个安排，第5卷做2集半基本就够了吧，1集搞定那改动也太大了。第9集推进节奏还挺正常的，怎么第10集飙升了。总不能是加长版吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 1124#       发表于 2026-3-4 23:12
+
+ 本帖最后由 岸浪白野 于 2026-3-4 23:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69277068&amp;ptid=2086574" target="_blank">zakki 发表于 2026-3-4 22:41</a>
+
+没看懂这个安排，第5卷做2集半基本就够了吧，1集搞定那改动也太大了。第9集推进节奏还挺正常的，怎么第10 ...</blockquote>
+总需要有些角色出来当牺牲品，那只能是金色头发的2位角色了，但以作品戏份的出现时间来说牢闪算明面的最大牺牲人物，反正你楼也是热衷讨论他如何小丑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+前面集数做前4卷剧情已经是尽量压缩了，第5卷的内容明显变多2集不够用的，但又要重点做好第6卷占了3集和做完作为这季的结尾就会这样了
+
