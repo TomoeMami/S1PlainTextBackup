@@ -1310,3 +1310,25 @@ RE4就这么几次露面人物就塌方了。9代的ZENO和小丑一样，前面
 
 还有人说删了一段生1洋馆情怀放dlc的，也不知道能不能信
 
+
+*****
+
+####  Chao  
+##### 1605#       发表于 2026-3-4 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69272938&amp;ptid=2252759" target="_blank">u2deack 发表于 2026-3-4 11:08</a>
+
+我还是觉得生化这些boss都要把自己强化成怪物就很神秘，有哪个是变怪物之后能变回来的么，要是变不回人你再 ...</blockquote>
+这次真结局的艾米莉可以解答你的问题<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  windlikeman  
+##### 1606#       发表于 2026-3-4 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69273558&amp;ptid=2252759" target="_blank">Chao 发表于 2026-3-4 12:27</a>
+
+这次真结局的艾米莉可以解答你的问题</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这艾米莉能捞出来科技含量比西蒙斯还要高了
+
