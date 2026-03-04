@@ -1442,3 +1442,23 @@ https://www.pcgamer.com/games/fps/rip-highguard-in-a-better-world-an-fps-is-allo
 
 —— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Sorastlos  
+##### 124#       发表于 2026-3-4 13:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69273367&amp;ptid=2272985" target="_blank">trentswd 发表于 2026-3-4 12:04</a>
+所以为什么tga要压轴
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, 鹅球 v3.5.99</blockquote>
+jeff很喜欢<img src="https://static.stage1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">主动提供的 
+制作组没有额外花钱
+
+*****
+
+####  卡拉德利姆  
+##### 125#       发表于 2026-3-4 13:12
+
+腾讯                   
+
