@@ -1311,3 +1311,13 @@ https://www.pcgamer.com/games/fps/rip-highguard-in-a-better-world-an-fps-is-allo
 问题还是出在品质玩法等根本上 ...</blockquote>
 相对楼上那张图的另外三家，算是相当正常了。
 
+
+*****
+
+####  hu794  
+##### 112#       发表于 2026-3-4 09:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69271942&amp;ptid=2272985" target="_blank">herryk159 发表于 2026-3-4 09:04</a>
+不再是三部曲，已经发展成时间线了！可惜少了个fairgame$</blockquote>
+highguard罪不至此。
+
