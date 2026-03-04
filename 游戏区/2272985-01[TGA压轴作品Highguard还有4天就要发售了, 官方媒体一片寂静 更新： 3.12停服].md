@@ -1378,3 +1378,49 @@ https://www.pcgamer.com/games/fps/rip-highguard-in-a-better-world-an-fps-is-allo
 不再是三部曲，已经发展成时间线了！可惜少了个fairgame$</blockquote>
 馬拉松感覺能撐很久,畢竟棒雞死忠也挺多的
 
+
+*****
+
+####  longlivedick  
+##### 118#       发表于 2026-3-4 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69271942&amp;ptid=2272985" target="_blank">herryk159 发表于 2026-3-4 09:04</a>
+不再是三部曲，已经发展成时间线了！可惜少了个fairgame$</blockquote>
+说起来那个fairgame$差不多一年没消息了吧？已经砍了吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  mcq_2  
+##### 119#       发表于 2026-3-4 11:17
+
+我看到一个消息说这个游戏背后金主是腾讯
+
+
+*****
+
+####  泰坦失足  
+##### 120#         楼主| 发表于 2026-3-4 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69272995&amp;ptid=2272985" target="_blank">longlivedick 发表于 2026-3-4 11:16</a>
+
+说起来那个fairgame$差不多一年没消息了吧？已经砍了吗
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+那个看着也堪忧.<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pointer243  
+##### 121#       发表于 2026-3-4 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69272995&amp;ptid=2272985" target="_blank">longlivedick 发表于 2026-3-4 11:16</a>
+说起来那个fairgame$差不多一年没消息了吧？已经砍了吗
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+上一条有关这游戏的新闻是总监跑路,再上一条是工作室创始人跑路<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
