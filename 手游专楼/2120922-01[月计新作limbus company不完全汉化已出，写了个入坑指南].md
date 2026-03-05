@@ -883,3 +883,34 @@ LB今年的行程计划，大概八月出第十章“被凝视者”，这之前
 
 一井4个UP全都是默尔索，是不是该换另一个人格
 
+
+*****
+
+####  荆棘花冠  
+##### 1277#       发表于 2026-3-5 13:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69280009&amp;ptid=2120922" target="_blank">LMBS 发表于 2026-3-5 12:53</a>
+一井4个UP全都是默尔索，是不是该换另一个人格，3UP抽起来还是有点难受
+
+大部分角色都没EGO</blockquote>
+换了良秀就行，沉队新大手子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  荆棘花冠  
+##### 1278#       发表于 2026-3-5 13:34
+
+该出把蜘蛛良t了的良秀了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+<img src="https://img.stage1st.com/forum/202603/05/133452ixmnexcwxwpzq2sz.jpg" referrerpolicy="no-referrer">
+
+<strong>2fbddd3e-a817-4686-aef8-b4a4217af0bb.jpg</strong> (105.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-5 13:34 上传
+
