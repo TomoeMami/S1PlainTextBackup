@@ -2219,3 +2219,39 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 开头萝莉那个房间门口的npc，我记得是说被锋利物品杀死的，谁杀的啊</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer"> “女孩”的爪子啊，女孩变身的时间显然是李三光进医院全院报警的那个时间点
 
+
+*****
+
+####  洛亚替身  
+##### 1691#       发表于 2026-3-5 16:11
+
+楼里有玩过Darkwood的吗？感觉开局恐怖氛围神了，不知道卡婊下一代会不会学下这种......
+
+*****
+
+####  Chao  
+##### 1692#       发表于 2026-3-5 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69281278&amp;ptid=2252759" target="_blank">魔法煎饼 发表于 2026-3-5 15:58</a>
+
+玛丽的爪子啊，玛丽变身的时间显然是李三光进医院全院报警的那个时间点
+
+格蕾丝第一次见玛丽的时候，她可 ...</blockquote>
+根据地下设施的文件，玛丽变身已经有很长一段时间了，地下还专门设置了强光灯。
+
+就是9的爆发契机一直不清楚，威克托要消灭证据直接炸了病院就是，什么要在那个时间和给所有人打针？玛丽又为什么会这么巧合出现在地上？反派的行为一直都很迷。
+
+*****
+
+####  洛亚替身  
+##### 1693#       发表于 2026-3-5 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69281385&amp;ptid=2252759" target="_blank">Chao 发表于 2026-3-5 16:12</a>
+
+根据地下设施的文件，玛丽变身已经有很长一段时间了，地下还专门设置了强光灯。
+
+就是9的爆发契机一直不 ...</blockquote>
+现在生化反派方面属于弃疗状态，随便编一个出来糊弄下，或者说编剧已经弃疗了
+
+新生化已经不需要在乎剧情，只要新角色恐怖箱庭玩爽后看boss演出和老角色耍酷<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
