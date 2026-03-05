@@ -2022,3 +2022,11 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 前面抓住脖子就该直接掐死吧。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  广州粉肠  
+##### 1672#       发表于 2026-3-5 08:43
+
+话说我看ns版带了张纸质兑换码是干什么用的
+
