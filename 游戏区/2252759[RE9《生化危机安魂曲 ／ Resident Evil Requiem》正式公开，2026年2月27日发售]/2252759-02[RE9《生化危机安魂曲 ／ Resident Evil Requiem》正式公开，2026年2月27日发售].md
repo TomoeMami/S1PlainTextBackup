@@ -2624,3 +2624,34 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 好巧，我也是，我宁愿先中远距离先步枪搞定明面上的，近距离全靠霰弹枪（只有箱子里买来的才是真神），手枪制止力约等于没有，放在包里权当没子弹时的补充，而且不知道是动态机制还是怎么样，后期箱子和路边子弹爷明显霰弹居多，霰弹比RE4充裕多了。不过感觉手枪装了加穿透的挂件后，好用很多，不知道是不是错觉。
 
+
+*****
+
+####  P-link  
+##### 1725#       发表于 2026-3-6 01:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69274493&amp;ptid=2252759" target="_blank">kalavinka 发表于 2026-3-4 15:11</a>
+
+看别人视频才发现自己一次枪反没用出来过，是不是得贴脸然后等攻击快到身上开枪才行 ...</blockquote>
+听说不能装瞄准镜
+
+*****
+
+####  oahcihs  
+##### 1726#       发表于 2026-3-6 01:09
+
+<blockquote>cangyuyao 发表于 2026-3-5 19:15
+因为生9去翻了一些旧采访，说安布雷拉历代记是因为威斯克在海外人气很高所以拿他做的
+
+虽然也是没想明白这人 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202603/06/010831k1xxf163o8x64e7h.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260306_010033_edit_80891.jpg</strong> (527.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-6 01:08 上传
+
+还有单独的日版小说版 其他人没有这个待遇
+
