@@ -2485,3 +2485,16 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 又仔细看了眼过场动画，zeno明确跟看着屏幕里艾米丽的格蕾丝说这些女孩都是她的复制品，所以克洛伊 格蕾丝 艾米丽都是同一个人克隆来的？
 
+
+*****
+
+####  武川日玄  
+##### 1713#       发表于 2026-3-5 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69282277&amp;ptid=2252759" target="_blank">hokagokenjatime 发表于 2026-3-5 18:37</a>
+
+又仔细看了眼过场动画，zeno明确跟看着屏幕里艾米丽的格蕾丝说这些女孩都是她的复制品，所以克洛伊 格蕾丝  ...</blockquote>
+其实都是爱丽丝的克隆。
+
+下作女主脸模请艾尔安德森好了
+
