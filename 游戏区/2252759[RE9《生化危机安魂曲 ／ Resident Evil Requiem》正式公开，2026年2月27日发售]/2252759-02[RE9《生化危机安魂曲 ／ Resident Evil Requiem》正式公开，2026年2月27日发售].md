@@ -2050,3 +2050,15 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 最后的过场他已经说明 ...</blockquote>
 那这脑回路也够癫的，和5代威斯克6代西蒙斯差不多，生化这系列剧情果然不能细看，就没几个正常人，还是爽干算了。
 
+
+*****
+
+####  yuanico  
+##### 1675#       发表于 2026-3-5 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69278006&amp;ptid=2252759" target="_blank">Sissii 发表于 2026-3-5 03:32</a>
+维克托不仅啥都知道，而且还是个忠厚人。</blockquote>
+问题是当时他们根本不知道怎么治疗t病毒，不然就变成维克托一直知道Elpis是解药不是新病毒，在逗zeno玩。总之生化的剧情一直就是将就将就，capcom不是很重视。
+
+—— 来自 Xiaomi 22127RK46C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
