@@ -2570,3 +2570,14 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 0和维罗妮卡也要重制？好事儿，看来全系列都有机会re一下了
 
+
+*****
+
+####  Sissii  
+##### 1720#       发表于 2026-3-5 23:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69282277&amp;ptid=2252759" target="_blank">hokagokenjatime 发表于 2026-3-5 18:37</a>
+
+又仔细看了眼过场动画，zeno明确跟看着屏幕里艾米丽的格蕾丝说这些女孩都是她的复制品，所以克洛伊 格蕾丝  ...</blockquote>
+说明你也被维克多忽悠了，齐诺被维克多忽悠的找不到北了，维克多还睁眼说瞎话跟他说格蕾丝血清全阳呢
+
