@@ -2138,3 +2138,15 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 2小时整就到浣熊市营地的时候还觉得稳了 没想到最后差点超时<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windlikeman  
+##### 1683#       发表于 2026-3-5 14:35
+
+癫狂开了个头 还真有够癫的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+里昂那边上强度就算了 格蕾丝这里包括女孩所有敌人速度变快 大厨这里推个锅速度变成普通的1/3不到 想不开枪过给我重打了好几次 何意味啊
+
+本来癫狂谜题和道具配置改了不少还想夸一下的
+
