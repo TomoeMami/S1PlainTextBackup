@@ -2198,3 +2198,13 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 准备入NS2版体验一下，希望卡普空优化够给力<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  drx66  
+##### 1689#       发表于 2026-3-5 15:52
+
+生化9这HDR做的挺好
+
+完全不会亮瞎眼
+
