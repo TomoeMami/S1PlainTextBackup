@@ -1983,3 +1983,15 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 这次分头算不算战斗力新高了。
 
+
+*****
+
+####  pointer243  
+##### 1669#       发表于 2026-3-5 07:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69276062&amp;ptid=2252759" target="_blank">hkguty 发表于 2026-3-4 19:13</a>
+感觉克里斯的人气虽然也不是没有吧，但是肯定是没里昂高的，克里斯高参与度主要是因为大纲里跟新反派对垒的 ...</blockquote>
+克里斯人设太伟光正了。自生化1起次次克里斯出场基本都是全身战术装备,洋馆事件以后都是作为某某部队/组织的头头,也就是说他就没多少可以单独行动的机会。在生化里基本上克里斯早就是官方大手对抗bow的象征意义2了。和三光这种自由度高的特工相比自然就少了可以描写的点了
+
+—— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
