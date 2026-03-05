@@ -2589,3 +2589,14 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 话说流程里收集的爪子和沙漏有啥用吗
 
+
+*****
+
+####  魔法煎饼  
+##### 1722#       发表于 2026-3-6 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69283848&amp;ptid=2252759" target="_blank">IRIS虹 发表于 2026-3-5 23:48</a>
+
+话说流程里收集的爪子和沙漏有啥用吗</blockquote>
+都是最终谜题的提示来源
+
