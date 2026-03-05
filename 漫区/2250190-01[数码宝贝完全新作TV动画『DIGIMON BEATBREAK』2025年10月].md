@@ -144,3 +144,14 @@
 
 典型就是隔壁生化危机里昂钢背兽，明显里昂的战斗力已经是美国队长了，但因为生化整体质量过关，这只会变成梗
 
+
+*****
+
+####  天光逸  
+##### 459#       发表于 2026-3-6 05:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69269774&amp;ptid=2250190" target="_blank">怀特布莱克 发表于 2026-3-3 19:34</a>
+
+喷了，咋突然就整了一出玲奈肉身挡成熟期的剧情</blockquote>
+是性转大门大，不过路德虽然表现超强，不过成长期
+
