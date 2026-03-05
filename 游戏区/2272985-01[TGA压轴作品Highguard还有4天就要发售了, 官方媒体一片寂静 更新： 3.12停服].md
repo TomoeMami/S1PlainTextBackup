@@ -1486,3 +1486,11 @@ jeff很喜欢<img src="https://static.stage1st.com/image/smiley/animal2017/029.p
 毫无意外，刚开那会鬼佬就试图把锅甩给企鹅，但是没人说得明白企鹅投资到底跟这游戏做拉了有什么关系，反 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">一直输血没砍掉就是最大的错误
 
+
+*****
+
+####  llysander  
+##### 128#       发表于 2026-3-5 18:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">最后狂欢一次吧，感谢highguard为我们带来的45天
+
