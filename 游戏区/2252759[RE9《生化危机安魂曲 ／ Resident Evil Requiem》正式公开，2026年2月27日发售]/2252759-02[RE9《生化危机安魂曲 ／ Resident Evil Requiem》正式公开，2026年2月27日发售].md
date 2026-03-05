@@ -2329,3 +2329,43 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 到后期两人相熟交心后格蕾丝了解到里昂的苦痛很自然的又把她的人性放在了里昂身上.如果说生化历史上最有人性光辉的角色,格蕾丝是当仁不让的
 
+
+*****
+
+####  这名字谁会去看  
+##### 1699#       发表于 2026-3-5 16:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">生化789已经在塑造暗线了，9代老威克隆体明说BSAA（收集病毒目的不明）、联盟（老威的新保护伞）、家族（美国政府里病毒研究派）三方在浣熊市搞事。
+
+可惜这几个组织都不给正面对抗的机会，净推出一些中层头目出来搞事。
+
+
+*****
+
+####  这名字谁会去看  
+##### 1700#       发表于 2026-3-5 16:42
+
+艾米丽这怎么救回来的，神奇，明明动画里是小孩子身体变异膨胀成怪物的，结果最后你告诉我怪物尸体里面还包了个艾米丽，不能理解
+
+*****
+
+####  Chao  
+##### 1701#       发表于 2026-3-5 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69281632&amp;ptid=2252759" target="_blank">这名字谁会去看 发表于 2026-3-5 16:42</a>
+
+艾米丽这怎么救回来的，神奇，明明动画里是小孩子身体变异膨胀成怪物的，结果最后你告诉我怪物尸体里面还包 ...</blockquote>
+可以查查生化6的C病毒化蛹生命期，不仅能改变容貌，连眼睛等器官都能再生
+
+*****
+
+####  魔法煎饼  
+##### 1702#       发表于 2026-3-5 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69281385&amp;ptid=2252759" target="_blank">Chao 发表于 2026-3-5 16:12</a>
+
+根据地下设施的文件，玛丽变身已经有很长一段时间了，地下还专门设置了强光灯。
+
+就是9的爆发契机一直不 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer"> 我去翻翻，主要是除了玛丽之外也没别人了啊，那个老哥的状态看着很像是当场看到萝莉变身后的应激状态
+
