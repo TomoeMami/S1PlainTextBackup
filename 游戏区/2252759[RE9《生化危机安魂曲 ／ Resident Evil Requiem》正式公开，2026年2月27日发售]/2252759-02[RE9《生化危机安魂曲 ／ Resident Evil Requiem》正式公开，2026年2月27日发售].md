@@ -1995,3 +1995,30 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 —— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  mai6696  
+##### 1670#       发表于 2026-3-5 08:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69278030&amp;ptid=2252759" target="_blank">神之飞雪 发表于 2026-3-5 04:11</a>
+
+里昂开局在鹪木市刻意救的话，最多能救下几个人？</blockquote>
+我只救到了站着被缠住的两人。
+
+剩下的就是注意你自己别误伤。手枪带克莱尔的话有一穿。
+
+*****
+
+####  mai6696  
+##### 1671#       发表于 2026-3-5 08:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69278006&amp;ptid=2252759" target="_blank">Sissii 发表于 2026-3-5 03:32</a>
+
+维克托不仅啥都知道，而且还是个忠厚人。</blockquote>
+里昂DSO的身份都暴露了，我不知道维克多绑他是有什么要拷问的。
+
+反过来自己在那儿透露情报。
+
+前面抓住脖子就该直接掐死吧。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
