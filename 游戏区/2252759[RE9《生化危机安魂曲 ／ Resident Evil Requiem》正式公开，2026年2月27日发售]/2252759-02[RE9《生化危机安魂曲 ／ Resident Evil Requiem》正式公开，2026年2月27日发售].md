@@ -2062,3 +2062,18 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 —— 来自 Xiaomi 22127RK46C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  umbasa  
+##### 1676#       发表于 2026-3-5 10:39
+
+<blockquote>moeful 发表于 2026-3-4 21:37
+我之前在这楼发的反白：
+
+夏亚潜伏在鸡瘟，威斯克潜伏在stars。
+
+夏亚暗算好友，威斯克暗算恩师。
+</blockquote>
+你还漏了他俩都戴墨镜
+
