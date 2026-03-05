@@ -2467,3 +2467,13 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 开头萝莉那个房间门口的npc，我记得是说被锋利物品杀死的，谁杀的啊</blockquote>
 上面有个洞，女孩的爪子
 
+
+*****
+
+####  武川日玄  
+##### 1711#       发表于 2026-3-5 18:28
+
+正版游戏的受害者<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+一夜之间风灵月影闪退了。
+
