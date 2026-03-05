@@ -1229,3 +1229,14 @@ zero那本 ...</blockquote>
 
 那堆霓虹从者除了某个捧到冠位的和某个魔神附体的，碰上海有力这种top级从者怕是宝具都拿不出来吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 1130#       发表于 2026-3-5 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69277430&amp;ptid=2086574" target="_blank">zakki 发表于 2026-3-4 23:41</a>
+
+不过往好了想下一季就可以13集做4卷了</blockquote>
+下一季是3年后还是5年后……<img src="https://static.stage1st.com/image/smiley/carton2017/083.png" referrerpolicy="no-referrer">
+
