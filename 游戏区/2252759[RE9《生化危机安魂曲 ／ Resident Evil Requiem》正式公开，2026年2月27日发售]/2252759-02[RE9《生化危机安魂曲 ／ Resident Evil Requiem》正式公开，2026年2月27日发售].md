@@ -2208,3 +2208,14 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 完全不会亮瞎眼
 
+
+*****
+
+####  魔法煎饼  
+##### 1690#       发表于 2026-3-5 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69281067&amp;ptid=2252759" target="_blank">mashav 发表于 2026-3-5 15:35</a>
+
+开头萝莉那个房间门口的npc，我记得是说被锋利物品杀死的，谁杀的啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer"> “女孩”的爪子啊，女孩变身的时间显然是李三光进医院全院报警的那个时间点
+
