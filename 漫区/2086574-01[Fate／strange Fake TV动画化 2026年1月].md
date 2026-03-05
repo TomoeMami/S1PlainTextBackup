@@ -1271,3 +1271,14 @@ zero那本 ...</blockquote>
 
 总的来说仇海就是个普通的强力从者，只不过在fsf这个强者满地爬的杯战里遇上了个强的冒烟的御主，让他也能遇强则强。
 
+
+*****
+
+####  AKESI  
+##### 1133#       发表于 2026-3-5 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69283643&amp;ptid=2086574" target="_blank">hououmon 发表于 2026-3-5 22:57</a>
+
+话说ED在泳池里面时，凌香对面那个背对屏幕的金发是谁？</blockquote>
+就是理查啊，剑组两张都在，白天理查正面绫香背面，黑夜绫香正面理查背面
+
