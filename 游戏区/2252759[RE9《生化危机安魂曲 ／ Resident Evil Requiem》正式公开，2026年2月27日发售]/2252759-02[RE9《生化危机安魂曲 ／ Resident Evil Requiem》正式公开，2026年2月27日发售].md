@@ -2369,3 +2369,48 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 就是9的爆发契机一直不 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer"> 我去翻翻，主要是除了玛丽之外也没别人了啊，那个老哥的状态看着很像是当场看到萝莉变身后的应激状态
 
+
+*****
+
+####  洛亚替身  
+##### 1703#       发表于 2026-3-5 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69281616&amp;ptid=2252759" target="_blank">这名字谁会去看 发表于 2026-3-5 16:40</a>
+
+生化789已经在塑造暗线了，9代老威克隆体明说BSAA（收集病毒目的不明）、联盟（老威的新保护伞）、家族（美 ...</blockquote>
+对的，联盟就是文档怪，我到现在也不知道联盟的设计风格是什么
+
+全都是雇佣兵式的打工仔，要不然就是内鬼和暗中接触，还有卢卡斯这种畜生代理人
+
+家族我都能从生6想象出一个刻板印象的深层政府，联盟到现在跟tm蚊子一样到处都是，却想象不出它是什么样的组织
+
+*****
+
+####  1096beam  
+##### 1704#       发表于 2026-3-5 16:49
+
+只要能再生器官，不愁没人继续作死<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  这名字谁会去看  
+##### 1705#       发表于 2026-3-5 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69281661&amp;ptid=2252759" target="_blank">洛亚替身 发表于 2026-3-5 16:48</a>
+
+对的，联盟就是文档怪，我到现在也不知道联盟的设计风格是什么
+
+全都是雇佣兵式的打工仔，要不然就是内鬼 ...</blockquote>
+联盟现在给我感觉就是一桌子股东推一个代理人出来做全球bow代理生意，5代老威一死这组织估计没主心骨了开始原地踏步，直到这奇诺出来有想法想重走老威用病毒控制全世界的老路，结果成了小丑。
+
+*****
+
+####  Chao  
+##### 1706#       发表于 2026-3-5 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69281656&amp;ptid=2252759" target="_blank">魔法煎饼 发表于 2026-3-5 16:47</a>
+
+我去翻翻，主要是除了玛丽之外也没别人了啊，那个老哥的状态看着很像是当场看到萝莉变身后的应激状态 ...</blockquote>
+这个人的确是玛丽杀的，因为尸体上面有个大洞。他应该是警报响起后来处理艾米莉的时候被杀的。至于为什么这么巧，游戏里没说。
+
