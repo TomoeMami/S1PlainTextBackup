@@ -2520,3 +2520,15 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 又仔细看了眼过场动画，zeno明确跟看着屏幕里艾米丽的格蕾丝说这些女孩都是她的复制品，所以克洛伊 格蕾丝  ...</blockquote>
 格蕾丝是普通人，zeno的理解是错的，斯宾塞那段采访影像全是真情流露
 
+
+*****
+
+####  siansian  
+##### 1716#       发表于 2026-3-5 20:43
+
+据知名《生化危机》系列爆料人 Dusk Golem（@AestheticGamer1）透露，Resident Evil Requiem 已确定存在DLC内容。该DLC最初的规划是用于填补主游戏与 Resident Evil Code: Veronica / Resident Evil Zero 重制版之间的发行空档。不过由于本体开发出现延期，这个DLC反而可能会更早推出，目前流传的时间点大约在7月，甚至可能与相关Amiibo等周边同步发布。
+
+从近期情报来看，DLC的核心内容很可能围绕 Leon S. Kennedy 展开。消息称该DLC会利用原本在主线后期被删减的Leon剧情素材，将其重新制作成一段独立战役，并且整体风格会更偏向动作导向，而非潜行玩法。这一点也与此前关于Leon在 Resident Evil 7: Biohazard 和 Resident Evil Village 中“缺席但曾被考虑加入”的部分爆料相互呼应。
+
+至于另一位角色 Alyssa Ashcroft，目前的开发版本中已经存在完整可操作的角色模型（包括绑定与动画），但她并不会作为故事DLC的主角。更可能的定位是出现在奖励或挑战模式中，例如类似佣兵模式或高分挑战玩法。早期曾有传闻猜测Alyssa会担任DLC主角，但Dusk Golem后来已经澄清，当前的开发方向已经转向以Leon为核心。
+
