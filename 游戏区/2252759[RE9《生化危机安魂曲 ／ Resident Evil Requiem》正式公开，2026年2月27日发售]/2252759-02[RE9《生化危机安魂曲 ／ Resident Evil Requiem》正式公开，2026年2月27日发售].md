@@ -2509,3 +2509,14 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 生化危机长线是一等一的烂，说得好听是增加塑造，说得难听这前后是一个人吗？
 
+
+*****
+
+####  哈罗  
+##### 1715#       发表于 2026-3-5 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69282277&amp;ptid=2252759" target="_blank">hokagokenjatime 发表于 2026-3-5 18:37</a>
+
+又仔细看了眼过场动画，zeno明确跟看着屏幕里艾米丽的格蕾丝说这些女孩都是她的复制品，所以克洛伊 格蕾丝  ...</blockquote>
+格蕾丝是普通人，zeno的理解是错的，斯宾塞那段采访影像全是真情流露
+
