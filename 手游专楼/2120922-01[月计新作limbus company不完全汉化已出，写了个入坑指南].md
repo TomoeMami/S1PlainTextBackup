@@ -861,3 +861,17 @@ LB今年的行程计划，大概八月出第十章“被凝视者”，这之前
 想组个黑兽队 ...</blockquote>
 没有君主宝根本无从谈起
 
+
+*****
+
+####  Hominidae  
+##### 1275#       发表于 2026-3-5 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69277262&amp;ptid=2120922" target="_blank">Sleipnirω 发表于 2026-3-4 23:12</a>
+沟槽的鞭子，第七章打到关底打不过抄单通作业发现拿了负面藏品只能重新打一遍，但是演出还行
+
+想组个黑兽队 ...</blockquote>
+宝，没有君主宝就没有黑兽队<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
