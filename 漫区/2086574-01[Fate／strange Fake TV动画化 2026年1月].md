@@ -1221,3 +1221,11 @@ zero那本 ...</blockquote>
 正常杯战不可能出现比天牛灵基还高的东西，能抢天牛≈所有东西都能 ...</blockquote>
 技能可抢不了，本子拿票剑豪剑圣的宝具就不行，单纯的剑法咋抢
 
+
+*****
+
+####  Wondering  
+##### 1129#       发表于 2026-3-5 19:28
+
+那堆霓虹从者除了某个捧到冠位的和某个魔神附体的，碰上海有力这种top级从者怕是宝具都拿不出来吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
