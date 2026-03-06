@@ -114,3 +114,13 @@
 
 土所长随便配配全五星上场就过了，认真级那2场考虑要不要打，好像可以以后戴冠后再打？<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47728#       发表于 2026-3-6 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69287890&amp;ptid=1712412" target="_blank">失落之翼 发表于 2026-3-6 16:57</a>
+土所长随便配配全五星上场就过了，认真级那2场考虑要不要打，好像可以以后戴冠后再打？ ...</blockquote>
+不打会一直在那里直到你打过。
+
