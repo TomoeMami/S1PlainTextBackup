@@ -299,3 +299,29 @@
 
 今天各种新情报太多了晚上整理一下，不过搞不好明后天还有什么新的告知
 
+
+*****
+
+####  holofan  
+##### 11500#       发表于 2026-3-6 13:35
+
+<img src="https://img.stage1st.com/forum/202603/06/133440p8xc7slstu7gm8t8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-6 13:34 上传
+
+现场粉丝太多了吓到了
+
+*****
+
+####  stmule  
+##### 11501#       发表于 2026-3-6 13:55
+
+粉牛比蓝沙扎比好，想买<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+可是rg牛都买了3盒了，怎么办
+
+—— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
