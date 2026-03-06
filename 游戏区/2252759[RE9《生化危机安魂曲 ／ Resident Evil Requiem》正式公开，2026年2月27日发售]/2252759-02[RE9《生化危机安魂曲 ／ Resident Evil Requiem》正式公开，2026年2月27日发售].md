@@ -2837,3 +2837,20 @@ Zeno带暴君的概念图是不是抄的这个封面<img src="https://static.sta
 BSAA丧尸还有ARK特殊部队都会掉冲锋子弹的。</blockquote>
 普通丧尸都掉手枪和霰弹，我寻思卡普空把这两种敌人设置成会掉落其他弹药，我寻思玩家不会有意见或“出戏”的。
 
+
+*****
+
+####  大耳兽  
+##### 1742#       发表于 2026-3-6 11:26
+
+看到一个好搞笑的评论<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，“如果你全程不看剧情的话，那么你甚至会不知道齐诺这号人。”
+
+*****
+
+####  Chao  
+##### 1743#       发表于 2026-3-6 11:26
+
+刚才通了一遍坏结局，发觉这个结局处理的不错啊<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">李昂的人物弧光完整，格蕾丝也有了战斗下去的理由，场面情绪也调动起来了，最重要的是反派保持住了逼格没有讲相声，剧情也相对说得通了。
+
+我猜CAP可能是想学TLOU2立新人，但是不敢做绝，小小试探了一下。
+

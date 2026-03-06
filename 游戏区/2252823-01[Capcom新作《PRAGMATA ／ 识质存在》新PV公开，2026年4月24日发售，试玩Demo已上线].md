@@ -3244,3 +3244,11 @@ P2：英文配音 / 繁中字幕版
 
 ※澳洲和北美的戴安娜amiibo™发售日期将改为2026年4月17日（五）。
 
+
+*****
+
+####  Chao  
+##### 334#       发表于 2026-3-6 11:27
+
+糟了，反向跳票<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">上次反向跳票的是生化6
+
