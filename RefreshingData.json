@@ -9999,10 +9999,10 @@
     "update": false
   },
   "2044818": {
-    "totalreply": 571,
+    "totalreply": 572,
     "title": "[《头文字D》续作《MF Ghost》2023年10月放送]",
     "newtitle": "[《头文字D》续作《MF Ghost》2023年10月，二期2024年10月，三期2026年1月]",
-    "lastedit": 1772804534,
+    "lastedit": 1772818327,
     "category": "漫区",
     "active": true,
     "update": false
@@ -10661,7 +10661,7 @@
     "newtitle": "[金牌得主 动画化 2025年1月]",
     "lastedit": 1772558896,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2088649": {
@@ -12285,10 +12285,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 10380,
+    "totalreply": 10381,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「新潮起，故渊离」版本即将开放]",
-    "lastedit": 1772809809,
+    "lastedit": 1772818217,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12402,10 +12402,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 17837,
+    "totalreply": 17839,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1772817612,
+    "lastedit": 1772818453,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13599,10 +13599,10 @@
     "update": false
   },
   "2179402": {
-    "totalreply": 339,
+    "totalreply": 342,
     "title": "[《杀戮尖塔2》公开，延期至2026年3月Steam EA发售]",
     "newtitle": "[《杀戮尖塔2》公开，2026年3月5日Steam EA发售]",
-    "lastedit": 1772817250,
+    "lastedit": 1772818451,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13923,10 +13923,10 @@
     "update": false
   },
   "2275215": {
-    "totalreply": 2171,
+    "totalreply": 2173,
     "title": "[巴哥和田姐这瓜简直是白色相簿2pro max]",
     "newtitle": "[巴哥和田姐这瓜简直是白色相簿2pro max]",
-    "lastedit": 1772817851,
+    "lastedit": 1772818453,
     "category": "外野",
     "active": true,
     "update": false
@@ -15993,10 +15993,10 @@
     "update": false
   },
   "2275787": {
-    "totalreply": 136,
+    "totalreply": 138,
     "title": "[生化危机9暴君标价1.2亿美元，假设一发火箭筒就死的公式不变，还有性价比吗]",
     "newtitle": "[生化危机9暴君标价1.2亿美元，假设一发火箭筒就死的公式不变，还有性价比吗]",
-    "lastedit": 1772816529,
+    "lastedit": 1772818217,
     "category": "外野",
     "active": true,
     "update": false
@@ -16452,10 +16452,10 @@
     "update": false
   },
   "2275908": {
-    "totalreply": 6211,
+    "totalreply": 6213,
     "title": "[中东专楼-2026年3月]",
     "newtitle": "[中东专楼-2026年3月]",
-    "lastedit": 1772817850,
+    "lastedit": 1772818217,
     "category": "外野",
     "active": true,
     "update": false
@@ -17316,10 +17316,10 @@
     "update": false
   },
   "2276137": {
-    "totalreply": 62,
+    "totalreply": 63,
     "title": "[深入新泽西“犹太特区”：全靠福利养娃？被神秘警队当街驱赶！]",
     "newtitle": "[深入新泽西“犹太特区”：全靠福利养娃？被神秘警队当街驱赶！]",
-    "lastedit": 1772817852,
+    "lastedit": 1772818454,
     "category": "外野",
     "active": true,
     "update": false
@@ -17359,5 +17359,14 @@
     "category": "外野",
     "active": true,
     "update": false
+  },
+  "2270820": {
+    "totalreply": 0,
+    "title": "[暴论-随着ai的继续发展开源软件行业将衰落]",
+    "newtitle": "[]",
+    "lastedit": 1772818020,
+    "category": "外野",
+    "active": true,
+    "update": true
   }
 }
