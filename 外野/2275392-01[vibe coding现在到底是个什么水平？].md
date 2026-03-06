@@ -612,3 +612,20 @@ claude挺强的，最近靠它通过apitrace找到显卡驱动的一个bug，然
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  darktide  
+##### 101#       发表于 2026-3-6 17:29
+
+类似Unity，UE，ROS开发这种，Vibe Coding表现如何？有没有先行者分享下经验？
+
+*****
+
+####  热带鱼鱼  
+##### 102#       发表于 2026-3-6 17:33
+
+最近vibe coding了一个科学计算代码，再不是非常讲究性能的情况下，基本上我只需要盯着逻辑有没有写对就行了，虽然最核心的逻辑部分基本上一直在错，但是只要我发现哪里错了，就可以一口气改过来
+
+—— 来自 Xiaomi 22101317C, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
