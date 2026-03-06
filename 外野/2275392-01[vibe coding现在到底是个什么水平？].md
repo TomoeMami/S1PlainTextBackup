@@ -629,3 +629,13 @@ claude挺强的，最近靠它通过apitrace找到显卡驱动的一个bug，然
 
 —— 来自 Xiaomi 22101317C, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  赤星ビスコ  
+##### 103#       发表于 2026-3-6 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69286769&amp;ptid=2275392" target="_blank">ArtemisI 发表于 2026-3-6 13:56</a>
+小项目很好用，大的项目的话你光是让AI把你的代码都读一遍上下文就用完了 ...</blockquote>
+所以现在核心就是做上下文工程，可以让ai分模块分层分切面来总结成文档和范式，plan的时候通过文档来指导
+
