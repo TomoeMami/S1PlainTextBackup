@@ -1390,3 +1390,14 @@ zero那本 ...</blockquote>
 
 说起来，天风这种“死后根据生前事迹获得的宝具”是不是能实锤活海用不了。
 
+
+*****
+
+####  8aa8aa8aa  
+##### 1143#       发表于 2026-3-6 16:05
+
+ 本帖最后由 8aa8aa8aa 于 2026-3-6 16:07 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69287409&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-3-6 15:36</a>
+说起来，天风这种“死后根据生前事迹获得的宝具”是不是能实锤活海用不了。 ...</blockquote>
+活海用不了，但活海搞不好满身机神纳米加护。硬抢同是希腊系的别人的宝具用就是了，最多抢不了技能，挖不了他人灵基。
+
