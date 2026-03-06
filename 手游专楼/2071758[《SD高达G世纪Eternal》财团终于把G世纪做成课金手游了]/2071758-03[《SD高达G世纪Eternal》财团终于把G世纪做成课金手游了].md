@@ -669,3 +669,11 @@ AGE还是有MSV的，反正研发树已经塞了到时候选一个就行了
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  alialex  
+##### 3729#       发表于 2026-3-6 15:41
+
+为什么亚麻大连个SR的都不给<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
