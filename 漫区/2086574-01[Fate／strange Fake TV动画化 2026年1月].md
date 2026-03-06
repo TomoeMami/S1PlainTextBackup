@@ -1382,3 +1382,11 @@ zero那本 ...</blockquote>
 
 看了图透，这次杯战冠军，闪小弟又同意了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大耳兽  
+##### 1142#       发表于 2026-3-6 15:36
+
+说起来，天风这种“死后根据生前事迹获得的宝具”是不是能实锤活海用不了。
+
