@@ -572,3 +572,32 @@ Codex长上下文能力弱，但是写的规矩，指令遵循能力强，我现
 
 antigravity和gemini不太行，有些难以解释的bug gemini会自己瞎编一堆理由然后瞎改，而claude能把持住改代码的冲动，会先给出具体调试跟踪的建议，然后根据结果定位问题之后再改
 
+
+*****
+
+####  Processed  
+##### 97#       发表于 2026-3-6 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69286733&amp;ptid=2275392" target="_blank">mqm 发表于 2026-3-6 13:46</a>
+
+antigravity和gemini不太行，有些难以解释的bug gemini会自己瞎编一堆理由然后瞎改，而claude能把持住改代 ...</blockquote>
+改bug这个事目前AI都不太擅长，最多给你改改错别字，但是逻辑错误（类似缩进错误，类型错误）这种层面的问题，如果它第一次没有发现，以后基本上就不可能发现了
+
+
+*****
+
+####  mqm  
+##### 98#       发表于 2026-3-6 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69286745&amp;ptid=2275392" target="_blank">Processed 发表于 2026-3-6 13:50</a>
+
+改bug这个事目前AI都不太擅长，最多给你改改错别字，但是逻辑错误（类似缩进错误，类型错误）这种层面的 ...</blockquote>
+claude挺强的，最近靠它通过apitrace找到显卡驱动的一个bug，然后把原本显卡侧的计算移到cpu侧绕过了崩溃，反正靠我自己和gemini搞了一周都没搞定，claude两小时
+
+*****
+
+####  ArtemisI  
+##### 99#       发表于 2026-3-6 13:56
+
+小项目很好用，大的项目的话你光是让AI把你的代码都读一遍上下文就用完了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
