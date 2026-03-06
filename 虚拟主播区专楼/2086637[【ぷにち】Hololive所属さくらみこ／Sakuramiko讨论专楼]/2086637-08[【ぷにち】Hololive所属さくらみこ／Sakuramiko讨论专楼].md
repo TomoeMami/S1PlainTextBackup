@@ -276,3 +276,26 @@
 
 2026-3-6 10:54 上传
 
+
+*****
+
+####  holofan  
+##### 11498#       发表于 2026-3-6 13:11
+
+作监鉴定一下，holodream主视觉官图被人发现手指画的有问题<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202603/06/131133cr5mx7mw2jfw55wj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-6 13:11 上传
+
+*****
+
+####  holofan  
+##### 11499#       发表于 2026-3-6 13:31
+
+今天各种新情报太多了晚上整理一下，不过搞不好明后天还有什么新的告知
+
