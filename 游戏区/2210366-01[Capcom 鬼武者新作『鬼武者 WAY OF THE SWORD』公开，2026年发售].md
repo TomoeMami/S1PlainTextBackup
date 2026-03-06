@@ -3194,3 +3194,11 @@ pmm的vlog也发了，这作鬼武者线下demo目前清一色好评，而且动
 【《鬼武者 Way of the Sword》 本篇介绍视频】 
 [https://b23.tv/lgwARF4](https://b23.tv/lgwARF4)
 
+
+*****
+
+####  病態極端  
+##### 343#       发表于 2026-3-6 12:02
+
+<img src="https://p.sda1.dev/31/96a4a0f8924e910d16363dfd9486c015/《鬼武者 Way of the Sword》 本篇介绍视频 @01-51.27 1772769646617.png" referrerpolicy="no-referrer">
+
