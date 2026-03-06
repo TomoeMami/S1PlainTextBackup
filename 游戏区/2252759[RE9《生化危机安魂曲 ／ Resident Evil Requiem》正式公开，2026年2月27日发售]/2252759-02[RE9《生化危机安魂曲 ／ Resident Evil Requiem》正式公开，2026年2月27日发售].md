@@ -2655,3 +2655,16 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 还有单独的日版小说版 其他人没有这个待遇
 
+
+*****
+
+####  mai6696  
+##### 1727#       发表于 2026-3-6 08:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69284091&amp;ptid=2252759" target="_blank">P-link 发表于 2026-3-6 00:52</a>
+
+而且后期的敌人人均钢头铁膝盖，本来想跟4一样打至跪地都得清空手枪半个弹匣，搞得我后面都懒得用手枪了， ...</blockquote>
+那你干脆把手枪先卖了，这样木箱子就出其他子弹了吧。
+
+平时打杂射机关也是冲锋枪更划算。
+
