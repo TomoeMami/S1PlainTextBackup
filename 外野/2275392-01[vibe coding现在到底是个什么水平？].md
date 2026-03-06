@@ -601,3 +601,14 @@ claude挺强的，最近靠它通过apitrace找到显卡驱动的一个bug，然
 
 小项目很好用，大的项目的话你光是让AI把你的代码都读一遍上下文就用完了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a4ac7  
+##### 100#       发表于 2026-3-6 17:22
+
+<blockquote>在之前的 《Flutter 2026 Roadmap》我们就聊到，如今一个项目要有发展前景，就必须能够和 AI 持续贴一起，而显然 Flutter 做到了，除了之前的 Flutter MCP ，GenUI 等 AI 相关支持产物，现在官方又新增了 flutter/skills 支持，用于补全 Flutter 在 AI 编程缺乏官方 skills 的短板。</blockquote>
+官方skill真的伟大<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
