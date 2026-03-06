@@ -3252,3 +3252,11 @@ P2：英文配音 / 繁中字幕版
 
 糟了，反向跳票<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">上次反向跳票的是生化6
 
+
+*****
+
+####  u2deack  
+##### 335#       发表于 2026-3-6 11:36
+
+说明这游戏真的老早就做好了，不知道为什么就一直憋着，还放到下一个财年出
+
