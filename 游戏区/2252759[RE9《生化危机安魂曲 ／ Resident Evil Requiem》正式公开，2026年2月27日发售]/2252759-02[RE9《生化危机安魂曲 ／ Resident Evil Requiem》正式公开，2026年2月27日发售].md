@@ -2802,3 +2802,14 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 什么，还有最终谜题，能不能指个路，我通关了都没意识到最终谜题是啥</blockquote>
 【生化危机9最终谜题=足够多的血=“玛丽的娃娃”获取超详细简单一看就会，为什么你解不开？包过程问腿奶奶级教学】 [https://www.bilibili.com/video/B ... 59e7069944a3c3395d7](https://www.bilibili.com/video/BV1XSAdzTEWj/?share_source=copy_web&amp;vd_source=f30631754e45359e7069944a3c3395d7)
 
+
+*****
+
+####  mai6696  
+##### 1739#       发表于 2026-3-6 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69285202&amp;ptid=2252759" target="_blank">P-link 发表于 2026-3-6 10:05</a>
+
+我没有冲锋枪，我都一直能捡到子弹卖钱。也是很迷惑的。箱子的话，我感觉都是霰弹居多，感觉制作组也是知 ...</blockquote>
+BSAA丧尸还有ARK特殊部队都会掉冲锋子弹的。
+
