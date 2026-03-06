@@ -2854,3 +2854,36 @@ BSAA丧尸还有ARK特殊部队都会掉冲锋子弹的。</blockquote>
 
 我猜CAP可能是想学TLOU2立新人，但是不敢做绝，小小试探了一下。
 
+
+*****
+
+####  哈罗  
+##### 1744#       发表于 2026-3-6 11:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69285799&amp;ptid=2252759" target="_blank">Chao 发表于 2026-3-6 11:26</a>
+
+刚才通了一遍坏结局，发觉这个结局处理的不错啊李昂的人物弧光完整，格蕾丝也有了战斗下去的理由，场面情绪 ...</blockquote>
+zeno有浣熊市综合征，这人就是出来搞笑的，打药失去超能力被维克托秒，不打药等死
+
+
+*****
+
+####  洛亚替身  
+##### 1745#       发表于 2026-3-6 12:04
+
+ 本帖最后由 洛亚替身 于 2026-3-6 12:06 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69285799&amp;ptid=2252759" target="_blank">Chao 发表于 2026-3-6 11:26</a>
+
+刚才通了一遍坏结局，发觉这个结局处理的不错啊李昂的人物弧光完整，格蕾丝也有了战斗下去的理由，场面情绪 ...</blockquote>
+想多了，三光还要去拍CG电影怎么可能死......卡婊RE后怎么也不可能丢了三光这个角色(选坏结局都让你读档)，就是现在三光太老登最多只能陪卡婊两部新作（按照15年4-5部新作登场两作算的）
+
+*****
+
+####  Chao  
+##### 1746#       发表于 2026-3-6 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69286015&amp;ptid=2252759" target="_blank">哈罗 发表于 2026-3-6 11:55</a>
+
+zeno有浣熊市综合征，这人就是出来搞笑的，打药失去超能力被维克托秒，不打药等死 ...</blockquote>
+就算是搞笑的，坏结局里死的逼格也比真结局里高得多啊，有种壮志未酬同归于尽的效果。坏结局里好人坏人的人设都立住了。
+
