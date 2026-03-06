@@ -1025,3 +1025,11 @@ arc不也40刀吗
 arc不也40刀吗</blockquote>
 arc有点自己的绝活。有点那股子绝地潜兵2的味，但又加了pvp要素。马拉松目前我玩的少，还没体验出那股味。
 
+
+*****
+
+####  qianoooo  
+##### 228#       发表于 2026-3-6 09:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真和预测一样首日没干过杀戮尖塔2 不过有稳定受众还可以了
+
