@@ -3218,3 +3218,13 @@ pmm的vlog也发了，这作鬼武者线下demo目前清一色好评，而且动
 
 卡婊还是舍不得公布发售日<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  乔迪奥  
+##### 346#       发表于 2026-3-6 14:00
+
+真的会给demo吗，感觉小次郎可能就是整部游戏最好的boss了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得留着防止玩家退款
+
+带有卡表特色精准成本控制的影之刃
+
