@@ -469,3 +469,13 @@ pc版3060ti笔记本都能60帧，逼着买第二份了<img src="https://static.
 
 当然这次的新结局也可能更劲爆
 
+
+*****
+
+####  martinoy  
+##### 46#       发表于 2026-3-7 03:02
+
+ps2和真红都在模拟器玩了，如果ns2电视没有体感的话，那是不是不如直接上pc版？
+
+— from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
