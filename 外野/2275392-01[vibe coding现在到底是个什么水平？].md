@@ -652,3 +652,15 @@ claude挺强的，最近靠它通过apitrace找到显卡驱动的一个bug，然
 —— 来自 HUAWEI PLA-AL10, Android 12, 鹅球 v3.5.99</blockquote>
 好用吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a4ac7  
+##### 105#       发表于 2026-3-6 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69288841&amp;ptid=2275392" target="_blank">Ganzkiller 发表于 2026-3-6 20:13</a>
+好用吗</blockquote>
+一条命令就导进环境了，看官方写的指导C++调用和原生视图嵌入我自己以前写得不规范，后面试试有skill的ai生成效果
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
