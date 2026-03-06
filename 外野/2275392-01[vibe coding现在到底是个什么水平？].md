@@ -639,3 +639,16 @@ claude挺强的，最近靠它通过apitrace找到显卡驱动的一个bug，然
 小项目很好用，大的项目的话你光是让AI把你的代码都读一遍上下文就用完了 ...</blockquote>
 所以现在核心就是做上下文工程，可以让ai分模块分层分切面来总结成文档和范式，plan的时候通过文档来指导
 
+
+*****
+
+####  Ganzkiller  
+##### 104#       发表于 2026-3-6 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69288029&amp;ptid=2275392" target="_blank">a4ac7 发表于 2026-3-6 17:22</a>
+
+官方skill真的伟大
+
+—— 来自 HUAWEI PLA-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+好用吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
