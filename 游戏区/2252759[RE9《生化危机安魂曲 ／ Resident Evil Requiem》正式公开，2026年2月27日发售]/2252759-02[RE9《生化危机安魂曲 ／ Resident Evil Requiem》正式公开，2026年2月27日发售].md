@@ -2754,3 +2754,30 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 孤儿院那段真该skip
 总体来说只能感觉过得去  最终谜题也解了 等dlc了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  P-link  
+##### 1735#       发表于 2026-3-6 10:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69284617&amp;ptid=2252759" target="_blank">mai6696 发表于 2026-3-6 08:25</a>
+
+那你干脆把手枪先卖了，这样木箱子就出其他子弹了吧。
+
+平时打杂射机关也是冲锋枪更划算。
+
+ ...</blockquote>
+我没有冲锋枪，我都一直能捡到子弹卖钱。也是很迷惑的。
+
+*****
+
+####  P-link  
+##### 1736#       发表于 2026-3-6 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69285011&amp;ptid=2252759" target="_blank">抹茶瓜 发表于 2026-3-6 09:37</a>
+
+白金了 多周目的时候 地下躲猫猫和发电这两段是真折磨吧 找插头那还特意挑高了女孩血量 安魂好几发才打退 
+
+ ...</blockquote>
+地下直接用燃烧瓶吧，安魂太浪费了。
+
