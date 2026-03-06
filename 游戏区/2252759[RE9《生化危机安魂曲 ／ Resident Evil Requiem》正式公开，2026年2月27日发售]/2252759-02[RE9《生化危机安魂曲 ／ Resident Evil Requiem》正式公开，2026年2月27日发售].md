@@ -2813,3 +2813,27 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 我没有冲锋枪，我都一直能捡到子弹卖钱。也是很迷惑的。箱子的话，我感觉都是霰弹居多，感觉制作组也是知 ...</blockquote>
 BSAA丧尸还有ARK特殊部队都会掉冲锋子弹的。
 
+
+*****
+
+####  cangyuyao  
+##### 1740#       发表于 2026-3-6 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69284144&amp;ptid=2252759" target="_blank">oahcihs 发表于 2026-3-6 01:09</a>
+还有单独的日版小说版 其他人没有这个待遇</blockquote>
+游戏不好说，这小说是真把威斯克往主角写的，很多神秘桥段<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但全都和生5没有关系<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Zeno带暴君的概念图是不是抄的这个封面<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  P-link  
+##### 1741#       发表于 2026-3-6 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69285389&amp;ptid=2252759" target="_blank">mai6696 发表于 2026-3-6 10:33</a>
+
+BSAA丧尸还有ARK特殊部队都会掉冲锋子弹的。</blockquote>
+普通丧尸都掉手枪和霰弹，我寻思卡普空把这两种敌人设置成会掉落其他弹药，我寻思玩家不会有意见或“出戏”的。
+
