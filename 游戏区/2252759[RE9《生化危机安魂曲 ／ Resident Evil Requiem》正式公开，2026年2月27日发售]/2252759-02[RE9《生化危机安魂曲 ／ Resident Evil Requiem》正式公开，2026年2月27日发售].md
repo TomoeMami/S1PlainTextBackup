@@ -2781,3 +2781,24 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
  ...</blockquote>
 地下直接用燃烧瓶吧，安魂太浪费了。
 
+
+*****
+
+####  IRIS虹  
+##### 1737#       发表于 2026-3-6 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69284004&amp;ptid=2252759" target="_blank">魔法煎饼 发表于 2026-3-6 00:22</a>
+
+都是最终谜题的提示来源</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">什么，还有最终谜题，能不能指个路，我通关了都没意识到最终谜题是啥
+
+*****
+
+####  P-link  
+##### 1738#       发表于 2026-3-6 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69285231&amp;ptid=2252759" target="_blank">IRIS虹 发表于 2026-3-6 10:09</a>
+
+什么，还有最终谜题，能不能指个路，我通关了都没意识到最终谜题是啥</blockquote>
+【生化危机9最终谜题=足够多的血=“玛丽的娃娃”获取超详细简单一看就会，为什么你解不开？包过程问腿奶奶级教学】 [https://www.bilibili.com/video/B ... 59e7069944a3c3395d7](https://www.bilibili.com/video/BV1XSAdzTEWj/?share_source=copy_web&amp;vd_source=f30631754e45359e7069944a3c3395d7)
+
