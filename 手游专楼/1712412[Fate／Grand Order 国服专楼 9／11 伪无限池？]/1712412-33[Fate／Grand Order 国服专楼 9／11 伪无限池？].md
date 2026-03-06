@@ -106,3 +106,11 @@
 
 友情点抽空了，礼装也没齐.....
 
+
+*****
+
+####  失落之翼  
+##### 47727#       发表于 2026-3-6 16:57
+
+土所长随便配配全五星上场就过了，认真级那2场考虑要不要打，好像可以以后戴冠后再打？<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
