@@ -3236,3 +3236,13 @@ pmm的vlog也发了，这作鬼武者线下demo目前清一色好评，而且动
 
 不公布发售日是为了等gta吗？上半年塞满了，想塞下半年，但是想先等gta？
 
+
+*****
+
+####  kalavinka  
+##### 348#       发表于 2026-3-6 14:51
+
+全是老画面<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
