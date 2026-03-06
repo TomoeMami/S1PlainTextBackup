@@ -1331,3 +1331,30 @@ zero那本 ...</blockquote>
 
 现在看来黑帮哥在召出赫拉克勒斯后强行上黑泥是不是画蛇添足了，变仇阶后除了能面不改色的对小孩下死手外完全不如弓阶啊
 
+
+*****
+
+####  character  
+##### 1138#       发表于 2026-3-6 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69285468&amp;ptid=2086574" target="_blank">The_Fool_ 发表于 2026-3-6 10:42</a>
+现在看来黑帮哥在召出赫拉克勒斯后强行上黑泥是不是画蛇添足了，变仇阶后除了能面不改色的对小孩下死手外完 ...</blockquote>
+天风是变了复仇者才有的宝具
+
+黑泥洗掉了神性对闪闪和恩奇都的相性大幅提升
+
+后面中了毒之后强行靠黑泥维持住灵基
+
+而且这场圣杯战3个罗莉御主
+
+
+*****
+
+####  失落之翼  
+##### 1139#       发表于 2026-3-6 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69285468&amp;ptid=2086574" target="_blank">The_Fool_ 发表于 2026-3-6 10:42</a>
+
+现在看来黑帮哥在召出赫拉克勒斯后强行上黑泥是不是画蛇添足了，变仇阶后除了能面不改色的对小孩下死手外完 ...</blockquote>
+记得设定好像是那些魔力电池要靠黑帮哥和海身上的黑泥传输魔力？
+
