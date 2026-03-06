@@ -564,3 +564,11 @@ Codex长上下文能力弱，但是写的规矩，指令遵循能力强，我现
 本来用antigravity的，今天谷歌好像炸了，antigravity全都报错<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 然后打开trae一看，全是难民，随便一个指令排队3000+<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mqm  
+##### 96#       发表于 2026-3-6 13:46
+
+antigravity和gemini不太行，有些难以解释的bug gemini会自己瞎编一堆理由然后瞎改，而claude能把持住改代码的冲动，会先给出具体调试跟踪的建议，然后根据结果定位问题之后再改
+
