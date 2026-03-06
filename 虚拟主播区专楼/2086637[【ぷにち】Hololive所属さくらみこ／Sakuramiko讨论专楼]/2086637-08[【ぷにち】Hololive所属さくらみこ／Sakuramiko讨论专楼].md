@@ -182,3 +182,36 @@
 
 2026-3-5 22:28 上传
 
+
+*****
+
+####  holofan  
+##### 11494#       发表于 2026-3-5 23:28
+
+毫无意外的党争开始了。
+
+<img src="https://img.stage1st.com/forum/202603/05/232853kmzxff6d5dv8tv6z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (61.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-5 23:28 上传
+
+*****
+
+####  holofan  
+##### 11495#       发表于 2026-3-6 09:13
+
+<img src="https://img.stage1st.com/forum/202603/06/091152c6ro7qdqc4jdo7ru.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (83.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-6 09:11 上传
+
+确实有点，而且粉色配色确实不行
+
+看看本人怎么说了
+

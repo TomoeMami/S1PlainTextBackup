@@ -2668,3 +2668,48 @@ boss的RPG能用斧子弹刀弹开就离谱</blockquote>
 
 平时打杂射机关也是冲锋枪更划算。
 
+
+*****
+
+####  oahcihs  
+##### 1728#       发表于 2026-3-6 09:07
+
+<img src="https://p.sda1.dev/31/3be468b1500e85cabb2314e266b2d47a/image.jpg" referrerpolicy="no-referrer">
+前两个是谁 哪个生化大神告诉我
+一点印象没有 能排在马库斯前面
+
+*****
+
+####  渡边加奈子  
+##### 1729#       发表于 2026-3-6 09:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69284617&amp;ptid=2252759" target="_blank">mai6696 发表于 2026-3-6 08:25</a>
+
+那你干脆把手枪先卖了，这样木箱子就出其他子弹了吧。
+
+平时打杂射机关也是冲锋枪更划算。
+
+ ...</blockquote>
+我的冲锋枪是直接卖掉的,但是依旧拿到大量弹药,每次一卖都是几百发
+
+
+*****
+
+####  mai6696  
+##### 1730#       发表于 2026-3-6 09:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69284804&amp;ptid=2252759" target="_blank">渡边加奈子 发表于 2026-3-6 09:07</a>
+
+我的冲锋枪是直接卖掉的,但是依旧拿到大量弹药,每次一卖都是几百发</blockquote>
+固定掉落肯定不受影响，我说的是木箱子，那里面你如果没带对应枪的话应该是不出的吧。
+
+普通难度我用手枪还是很好用的。三枪出体术把。
+
+尤其消音手枪不会惊动远处丧尸。
+
+冲锋枪其实也很猛了。打暴君和大花都好用。
+
+大花需要横向走位，你拿手枪输出低，霰弹距离不够没威力，狙击要开镜动作慢。
+
+我所有枪用的都是箱子里买的。
+
