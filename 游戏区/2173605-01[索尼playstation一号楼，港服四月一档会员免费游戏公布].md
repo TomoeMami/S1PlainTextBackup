@@ -315,3 +315,13 @@ Bungie新作《失落星船：马拉松》即将于3月6日正式发售，官方
 
 索尼突然放风不上pc会不会真跟微软新主机有关，Xbox新代号已经官宣了<img src="https://static.stage1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AlsoSprachRyu  
+##### 565#       发表于 2026-3-6 12:15
+
+新一代Xbox支持pc游戏，上pc等于上xbox，不会是这个逻辑吧<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
