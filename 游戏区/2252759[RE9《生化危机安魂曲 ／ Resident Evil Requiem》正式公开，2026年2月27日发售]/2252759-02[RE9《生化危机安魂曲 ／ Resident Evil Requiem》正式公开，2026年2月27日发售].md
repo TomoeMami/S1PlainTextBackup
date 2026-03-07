@@ -3485,3 +3485,15 @@ GRACE編更有一次通關是要完全禁了採血，這個不用S/L的話，要
 1-3时代就有设定，大概10%的人天然免疫。战区里面的这些人要么会死于其他丧尸的围攻或者次生灾害，要么投 ...</blockquote>
 据说是电影死亡岛里加的补丁：T病毒后期迭代成无法通过外伤传染了，感觉挺迷的，为了可控？
 
+
+*****
+
+####  ——啧  
+##### 1801#       发表于 2026-3-8 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69292774&amp;ptid=2252759" target="_blank">Edgefield 发表于 2026-3-7 18:16</a>
+主角的衣服会脏的啊，格蕾丝那件t袖最后都脏成什么样了</blockquote>
+硬说的话，她还掉进过血池的，但是从血池出来没几分钟就干净了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
