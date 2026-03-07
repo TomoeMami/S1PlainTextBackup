@@ -3589,3 +3589,16 @@ GRACE編開場第一身視點，沒武器時就已經直接衝去各種巨大BOS
 
 指揮官是能秒殺就算了，所以就不以HUNK之名參戰嗎...
 
+
+*****
+
+####  P-link  
+##### 1808#       发表于 2026-3-8 01:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69294395&amp;ptid=2252759" target="_blank">sauron.j 发表于 2026-3-8 01:17</a>
+
+癫狂难度……这可能是玛蒂尔达雪耻的一集，两把破手枪毛用都没
+
+玩多了发现这一代美术和氛围是靠拢123老生 ...</blockquote>
+玛蒂尔达只要子弹够多或无限子弹，那就是神器
+
