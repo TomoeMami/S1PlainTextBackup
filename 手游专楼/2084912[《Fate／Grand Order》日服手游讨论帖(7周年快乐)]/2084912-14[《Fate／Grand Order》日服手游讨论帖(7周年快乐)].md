@@ -32,3 +32,11 @@
 一看活动那加成就知道是男团长，还有这期活动没Free本纯长草了</blockquote>
 还有说主线剧情每天开放，基本上将爬塔给否定了，那么要么战棋，要么柱子，或者真是纯长草了。
 
+
+*****
+
+####  Jamaisvu  
+##### 20580#       发表于 2026-3-7 17:39
+
+又是个戴眼镜的角色，不晓得未来有没有“戴眼镜从者获得加成”的羁绊礼装<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
