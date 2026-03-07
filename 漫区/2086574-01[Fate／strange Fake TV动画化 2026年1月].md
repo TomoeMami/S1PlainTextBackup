@@ -1515,3 +1515,21 @@ title:ヒッポリュテ星人
 
 <img src="https://p.sda1.dev/31/d57657f1df8f6567331f9a072ecffb5f/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斯卡哈  
+##### 1152#       发表于 2026-3-8 00:29
+
+理查的高光感觉完全简化乃至砍了啊，神速表现的一般咖喱棒连发也没那个气势
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">金皮卡变成木桩不是因为中毒外加芬巴巴的技能吗，成田你也乳闪啊
+
+
+*****
+
+####  赤黑的假面  
+##### 1153#       发表于 2026-3-8 00:33
+
+闪小弟没了王之财宝也太菜了，真是惊天一条蛆
+
