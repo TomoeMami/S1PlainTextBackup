@@ -677,3 +677,13 @@ AGE还是有MSV的，反正研发树已经塞了到时候选一个就行了
 
 为什么亚麻大连个SR的都不给<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 3730#       发表于 2026-3-7 19:33
+
+AGE前半开发机做完了，也就AGE1二号机有点用
+
+这就是内部爱吗
+
