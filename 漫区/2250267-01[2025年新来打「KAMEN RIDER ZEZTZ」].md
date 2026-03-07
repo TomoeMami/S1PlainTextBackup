@@ -1898,3 +1898,11 @@ EA里设计帕拉德台词的时候，高桥也刻意植入了“心”这个和
 
 这下年番变成两个半年番，编故事难度减半！<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AAAZZZWWW  
+##### 858#       发表于 2026-3-8 03:26
+
+op2风格变了，不知道剧内剧情风格会不会也有变化
+
