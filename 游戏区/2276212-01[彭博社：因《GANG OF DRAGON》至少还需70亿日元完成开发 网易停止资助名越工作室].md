@@ -365,3 +365,29 @@ ip和目前已经开发出来的内容名越要想继续用就要给网易钱买
 对于开发大型游戏来说70亿日元其实不算特别多，对比号称预算不高的游戏宝可梦za，第一个季度ns2实体版卖 ...</blockquote>
 从零开始要当然不多了，但问题是名越出来这么几年憋出一个毫无想象力的玩意（已经离不开如龙公式了），这还是要求的追加投资，也就是摸鱼两年最终决定套公式做如龙like，最多加上个开车和打枪吗？那祝名越好运，争取早日找到金主
 
+
+*****
+
+####  chizuru  
+##### 44#       发表于 2026-3-7 21:45
+
+难道没有监工的吗？
+
+*****
+
+####  春风画雨  
+##### 45#       发表于 2026-3-7 21:45
+
+这下网易明白名越为啥被世嘉踢了吧，不过楼上说小岛的，我记得岛哥哥被科乐美踢的原因之一也是游戏成本弄爆炸了吧吧。。。
+
+*****
+
+####  kimmmmmm  
+##### 46#       发表于 2026-3-7 21:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69293135&amp;ptid=2276212" target="_blank">乔迪奥 发表于 2026-3-7 19:59</a>
+武侠光荣还真不一定懂，这边给好世界观和美术，以忍者组的本事做个8分游戏还是手拿把掐的 ...</blockquote>
+武刃街<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2602BRT18C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
