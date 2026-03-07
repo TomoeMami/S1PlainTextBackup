@@ -47,3 +47,14 @@
 有两种，主线道具（一般是打完入侵后给的）回家就回来了，支线道具要等刷完一圈才会再出。例外是说服装置 ...</blockquote>
 啊这，我的说服道具丢了，只能重开档了吗
 
+
+*****
+
+####  lmclmc2  
+##### 287#       发表于 2026-3-7 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69290864&amp;ptid=2274506" target="_blank">dreamquest 发表于 2026-3-7 10:28</a>
+
+啊这，我的说服道具丢了，只能重开档了吗</blockquote>
+目前是这样的。不过如果没复制存档，因为大怪兽对战的成就有俩，总有一个要开新档。后面召唤再打是不给的
+
