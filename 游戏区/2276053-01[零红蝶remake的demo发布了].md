@@ -642,3 +642,37 @@ ns2版帧率是不是有点低啊，卖这么贵
 
 月蚀虽然有全系列初见压力最大的1v6战点，但不省资源的话可以靠火力碾压。
 
+
+*****
+
+####  moeful  
+##### 62#       发表于 2026-3-8 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69280393&amp;ptid=2276053" target="_blank">恋妖壶 发表于 2026-3-5 14:06</a>
+
+根本无所谓，腿（和袜子）会出手</blockquote>
+搞得好像所有人都在这里拍照了。
+
+没错，我刚刚玩的时候也拍了
+
+
+*****
+
+####  moeful  
+##### 63#       发表于 2026-3-8 00:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69289161&amp;ptid=2276053" target="_blank">nage560 发表于 2026-3-6 21:24</a>
+
+战斗系统大海了，试玩玩了我觉得这战斗系统蛮好的，怎么也比又玩一遍只有画面提升的零红蝶好吧，都来2遍了 ...</blockquote>
+10号左右请了个艺人弄个网络节目，至于网络主播的话找了个专门玩恐怖游戏的做pr，前几天播过了，就那个什么游戏店店员
+
+*****
+
+####  moeful  
+##### 64#       发表于 2026-3-8 00:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69292346&amp;ptid=2276053" target="_blank">如月尤菲 发表于 2026-3-7 16:22</a>
+
+不是自动识别的，得设置里调，手柄显示调成类型2</blockquote>
+我懒得调了直接副屏拉了个官网操作手册打完了demo<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
