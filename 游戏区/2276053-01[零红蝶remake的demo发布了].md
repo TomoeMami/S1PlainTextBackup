@@ -676,3 +676,16 @@ ns2版帧率是不是有点低啊，卖这么贵
 不是自动识别的，得设置里调，手柄显示调成类型2</blockquote>
 我懒得调了直接副屏拉了个官网操作手册打完了demo<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moeful  
+##### 65#       发表于 2026-3-8 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69292677&amp;ptid=2276053" target="_blank">zqqwe 发表于 2026-3-7 17:45</a>
+
+打完demo的battle难度，07式装填巨长+SC硬直贼短，进FF血线之前都只能打回合制，初期压力应该比过去任何一 ...</blockquote>
+我说怪不得，你一个练手小怪打了我快4分钟才磨死，不熟悉键盘操作是真的第一战我跟主角一样“我在哪儿我在干什么”
+
+不过这一作回血方法很多，而且普通难度非常舍得给你回血，战斗中能牵手不说，第二战须堂打完之后我血满了。不知道boss战后是不是会自动给你回还是怎么的
+
