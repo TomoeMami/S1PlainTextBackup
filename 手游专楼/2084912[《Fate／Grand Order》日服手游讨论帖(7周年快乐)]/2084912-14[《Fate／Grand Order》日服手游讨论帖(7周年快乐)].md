@@ -21,3 +21,14 @@
 
 2026-3-7 17:21 上传
 
+
+*****
+
+####  khxooo  
+##### 20579#       发表于 2026-3-7 17:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69292591&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2026-3-7 17:22</a>
+
+一看活动那加成就知道是男团长，还有这期活动没Free本纯长草了</blockquote>
+还有说主线剧情每天开放，基本上将爬塔给否定了，那么要么战棋，要么柱子，或者真是纯长草了。
+
