@@ -570,3 +570,14 @@ ns2版帧率是不是有点低啊，卖这么贵
 怎么pc版键位显示的是ps手柄的，我用的xbox手柄，提示我长按触摸板</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是自动识别的，得设置里调，手柄显示调成类型2
 
+
+*****
+
+####  catabridge  
+##### 56#       发表于 2026-3-7 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69291687&amp;ptid=2276053" target="_blank">リンリー・グー 发表于 2026-3-7 13:44</a>
+
+不至于，我也5080，4k全高显卡占用率只有60%</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我4K全高能吃99%然后开始卡，比生化9/2077开路径光追帧数还低
+
