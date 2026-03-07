@@ -8,3 +8,13 @@
 
 3月更新内容全是粪，这周开强化折扣结果还不把合一改进放出来，最后再灌你一盆屎。除了捞钱啥正事不做，这游戏已经没救了，快点关服吧
 
+
+*****
+
+####  琉歌  
+##### 740#       发表于 2026-3-7 15:23
+
+才被骗氪了俩月卡<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+只能随缘玩了，作为一个RPG主线年更已经很变态了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
