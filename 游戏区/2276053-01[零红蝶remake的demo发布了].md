@@ -552,3 +552,11 @@ ns2版帧率是不是有点低啊，卖这么贵
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  dopant  
+##### 54#       发表于 2026-3-7 14:13
+
+怎么pc版键位显示的是ps手柄的，我用的xbox手柄，提示我长按触摸板<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
