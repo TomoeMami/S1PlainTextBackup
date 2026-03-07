@@ -343,3 +343,28 @@
 35牛高达不是还有一个mr魂么</blockquote>
 就只有一个mr魂确定商品化，其他企划都还没公开
 
+
+*****
+
+####  holofan  
+##### 11504#       发表于 2026-3-7 18:53
+
+<img src="https://img.stage1st.com/forum/202603/07/185308x87zdfgi7ygf99uv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-7 18:53 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 11505#       发表于 2026-3-7 19:43
+
+你怎么又被人随便占便宜了
+
+不过是EN的，算了
+
