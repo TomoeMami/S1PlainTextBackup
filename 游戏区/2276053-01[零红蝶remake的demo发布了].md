@@ -500,3 +500,15 @@ PS5游戏更新就只知道更新了其余一抹黑。
 
 这主机版不能关胶片滤镜也太恶心了，katana引擎这么垃圾吗
 
+
+*****
+
+####  宛若青空  
+##### 49#       发表于 2026-3-7 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69290679&amp;ptid=2276053" target="_blank">PYY 发表于 2026-3-7 09:33</a>
+demo更新了个0.1版，试玩版都还要更新的嘛？
+话说PS5游戏更新了在哪里看更新内容啊？
+PS4游戏更新了能看历 ...</blockquote>
+看不了，傻逼SIE把这功能砍了
+
