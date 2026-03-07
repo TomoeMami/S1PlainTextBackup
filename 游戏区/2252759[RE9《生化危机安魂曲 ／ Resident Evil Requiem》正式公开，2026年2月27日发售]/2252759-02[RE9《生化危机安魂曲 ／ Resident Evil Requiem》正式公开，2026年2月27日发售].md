@@ -3544,3 +3544,18 @@ GRACE編開場第一身視點，沒武器時就已經直接衝去各種巨大BOS
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69241013&amp;ptid=2252759" target="_blank">乔迪奥 发表于 2026-2-27 11:56</a></blockquote>
 这妹子看她玩RE2简直血压上升，不会看地图，对走过好多遍的地方都没一个基本认知，不会资源管理，背包满了完全没有先去安全房存东西的想法，明明安全房不远，然后打开背包一直吐槽格子危机，一边考虑半天要不要扔什么。更搞笑的是，玩完克莱尔表关之后，玩里昂里关，竟然还会对地图不熟悉，死活不会上3楼拿黑桃钥匙，拿了钥匙死活不记得能去开西侧办公室的门，能拿着黑桃钥匙走西侧走廊好几遍也是没法说了。<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  P-link  
+##### 1805#       发表于 2026-3-8 01:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69294335&amp;ptid=2252759" target="_blank">eilot 发表于 2026-3-8 00:58</a>
+
+剛打完瘋狂
+
+現在基本上只剩下不吃藥、不採血、4小時內、採血3000、
+
+以及看手辦那些</blockquote>
+1小时50分是怎么办到的？？？？？？？？？？？？？？？
+
