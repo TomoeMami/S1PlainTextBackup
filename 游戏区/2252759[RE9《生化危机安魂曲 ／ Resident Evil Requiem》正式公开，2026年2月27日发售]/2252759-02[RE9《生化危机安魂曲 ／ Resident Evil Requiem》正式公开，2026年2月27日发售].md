@@ -3497,3 +3497,18 @@ GRACE編更有一次通關是要完全禁了採血，這個不用S/L的話，要
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  P-link  
+##### 1802#       发表于 2026-3-8 00:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69293111&amp;ptid=2252759" target="_blank">eilot 发表于 2026-3-7 19:52</a>
+
+刷分方面
+
+除非能多周目全部都能保留
+
+否則都只會集中改2~3支(連斧頭)即可</blockquote>
+不嗑药不采血的挑战直接休闲模式搞定就是了。休闲模式能死都能算是一种本事。
+
