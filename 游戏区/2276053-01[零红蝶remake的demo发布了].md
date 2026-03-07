@@ -540,3 +540,15 @@ PS4游戏更新了能看历 ...</blockquote>
 
 ns2版帧率是不是有点低啊，卖这么贵
 
+
+*****
+
+####  英俊莹  
+##### 53#       发表于 2026-3-7 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69279422&amp;ptid=2276053" target="_blank">iamsolowingpixy 发表于 2026-3-5 11:21</a>
+零红蝶是不是极少数能实现两代重制待遇的日厂作品了？卡婊得再重做一遍BIO才能达到这个标准。 ...</blockquote>
+不负责任的推测一下，DQ、FF那种从FC到GBA到PSP到当代主机这些应该有案例吧。
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
