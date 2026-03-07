@@ -581,3 +581,11 @@ ns2版帧率是不是有点低啊，卖这么贵
 不至于，我也5080，4k全高显卡占用率只有60%</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我4K全高能吃99%然后开始卡，比生化9/2077开路径光追帧数还低
 
+
+*****
+
+####  zqqwe  
+##### 57#       发表于 2026-3-7 17:45
+
+打完demo的battle难度，07式装填巨长+SC硬直贼短，进FF血线之前都只能打回合制，初期压力应该比过去任何一作都大。从目前公布战斗系统看，FF期间不吃胶片性能加成，“灭”需要长按满蓄释放，FF期间速杀打法好像不复存在了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">除非来个无需蓄力的“击”挽救一下（不过原版红蝶就是FF伤害递减，和后续作品都不一样）
+

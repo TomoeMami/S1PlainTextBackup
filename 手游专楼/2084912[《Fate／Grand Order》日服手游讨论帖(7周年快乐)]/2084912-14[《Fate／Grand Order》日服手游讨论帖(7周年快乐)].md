@@ -40,3 +40,31 @@
 
 又是个戴眼镜的角色，不晓得未来有没有“戴眼镜从者获得加成”的羁绊礼装<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 20581#       发表于 2026-3-7 17:51
+
+搬一下街机男团长的宝具和技能：
+
+<img src="https://img.stage1st.com/forum/202603/07/175015ip4cz44ca3a3a84a.png" referrerpolicy="no-referrer">
+
+<strong>f8ac0a5de5bc744c0b17f75e2851f450_41873dd357586b3da04e5c5615628b5f21840109.png</strong> (144.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-7 17:50 上传
+
+<img src="https://img.stage1st.com/forum/202603/07/175036vvuvj98twulwfpf7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (372.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-7 17:50 上传
+
+看起来是个T位（误），基本没有参考价值...
+
+女团长是诅咒特攻的话，男团长可能会有燃烧特攻吧。
+
