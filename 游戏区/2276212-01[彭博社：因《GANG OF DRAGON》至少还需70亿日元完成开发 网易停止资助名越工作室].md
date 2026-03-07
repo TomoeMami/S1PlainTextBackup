@@ -344,3 +344,24 @@ ip和目前已经开发出来的内容名越要想继续用就要给网易钱买
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">70亿日元我草，真敢要啊
 
+
+*****
+
+####  向荣  
+##### 42#       发表于 2026-3-7 21:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69293432&amp;ptid=2276212" target="_blank">FACS 发表于 2026-3-7 21:16</a>
+
+70亿日元我草，真敢要啊</blockquote>
+对于开发大型游戏来说70亿日元其实不算特别多，对比号称预算不高的游戏宝可梦za，第一个季度ns2实体版卖了389w，ns2卡带的成本是16美元，也就是光是ns2实体卡带的物料成本就已经98亿日元
+
+
+*****
+
+####  iamleoy  
+##### 43#       发表于 2026-3-7 21:32
+
+<blockquote>向荣 发表于 2026-3-7 21:27
+对于开发大型游戏来说70亿日元其实不算特别多，对比号称预算不高的游戏宝可梦za，第一个季度ns2实体版卖 ...</blockquote>
+从零开始要当然不多了，但问题是名越出来这么几年憋出一个毫无想象力的玩意（已经离不开如龙公式了），这还是要求的追加投资，也就是摸鱼两年最终决定套公式做如龙like，最多加上个开车和打枪吗？那祝名越好运，争取早日找到金主
+
