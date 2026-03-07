@@ -1461,3 +1461,11 @@ title:ヒッポリュテ星人
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zakki  
+##### 1149#       发表于 2026-3-7 23:30
+
+太赶了，这段不应该是上半部的核心剧情吗，怎么做的这么匆匆忙忙的，完全可以把伊露脸作为结尾，打斗多做一点。本来13集做4卷已经很赶了，真要做5录播吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

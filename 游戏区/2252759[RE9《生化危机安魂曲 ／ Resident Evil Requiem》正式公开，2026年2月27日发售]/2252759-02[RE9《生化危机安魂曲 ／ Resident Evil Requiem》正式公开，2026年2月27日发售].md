@@ -3474,3 +3474,14 @@ GRACE編更有一次通關是要完全禁了採血，這個不用S/L的話，要
 
 这次最高难度也有自动存档，4re海岛都没存一下就回到村子<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alecwong  
+##### 1800#       发表于 2026-3-7 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69289012&amp;ptid=2252759" target="_blank">hacisiki 发表于 2026-3-6 20:50</a>
+
+1-3时代就有设定，大概10%的人天然免疫。战区里面的这些人要么会死于其他丧尸的围攻或者次生灾害，要么投 ...</blockquote>
+据说是电影死亡岛里加的补丁：T病毒后期迭代成无法通过外伤传染了，感觉挺迷的，为了可控？
+
