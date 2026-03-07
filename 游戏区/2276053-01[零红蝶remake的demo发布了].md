@@ -560,3 +560,13 @@ ns2版帧率是不是有点低啊，卖这么贵
 
 怎么pc版键位显示的是ps手柄的，我用的xbox手柄，提示我长按触摸板<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  如月尤菲  
+##### 55#       发表于 2026-3-7 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69291816&amp;ptid=2276053" target="_blank">dopant 发表于 2026-3-7 14:13</a>
+怎么pc版键位显示的是ps手柄的，我用的xbox手柄，提示我长按触摸板</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是自动识别的，得设置里调，手柄显示调成类型2
+
