@@ -1582,3 +1582,25 @@ title:ヒッポリュテ星人
 
 御主的水平差距啊，同样出事了要被秒了一个马上用令咒转移一个却只能傻看着，果然还是小孩子<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 1160#       发表于 2026-3-8 01:20
+
+我在想，假如这个海是狂海，这集结束是不是该倒欠12条命了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+这个开膛手杰克吹b成这样真的是越看越恶心，哪怕换成面具杰森来吹我都觉得合理一些，至少人真有“主场优势”<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸波白野  
+##### 1161#       发表于 2026-3-8 01:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69294402&amp;ptid=2086574" target="_blank">刑部姬真可爱 发表于 2026-3-8 01:20</a>
+我在想，假如这个海是狂海，这集结束是不是该倒欠12条命了
+
+这个开膛手杰克吹b成这样真的是越看越恶心，哪 ...</blockquote>
+成田凹“人类皆强大”这个题眼有时候有些突兀的毛病也不是第一天，不过丢啦啦啦那个毛妹看静雄突然拐一下这套好像是比突然开吹杰克观感好点
+
