@@ -325,3 +325,21 @@
 
 —— 来自 samsung SM-S9110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  rs5621  
+##### 11502#       发表于 2026-3-7 00:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">35牛高达不是还有一个mr魂么
+
+*****
+
+####  holofan  
+##### 11503#       发表于 2026-3-7 14:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69290002&amp;ptid=2086637" target="_blank">rs5621 发表于 2026-3-7 00:36</a>
+
+35牛高达不是还有一个mr魂么</blockquote>
+就只有一个mr魂确定商品化，其他企划都还没公开
+
