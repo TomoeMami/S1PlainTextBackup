@@ -512,3 +512,14 @@ demo更新了个0.1版，试玩版都还要更新的嘛？
 PS4游戏更新了能看历 ...</blockquote>
 看不了，傻逼SIE把这功能砍了
 
+
+*****
+
+####  如月尤菲  
+##### 50#       发表于 2026-3-7 13:07
+
+ 本帖最后由 如月尤菲 于 2026-3-7 13:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69289161&amp;ptid=2276053" target="_blank">nage560 发表于 2026-3-6 21:24</a>
+战斗系统大海了，试玩玩了我觉得这战斗系统蛮好的，怎么也比又玩一遍只有画面提升的零红蝶好吧，都来2遍了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">姐妹两穿这么烧鸡，弄不好会成为福利姬直播主和二刺螈烧鸡直播主新爆款，不用担心，到时说不定还可以看到谷子店或者漫展上没玩游戏的学生仔妹妹cos姐妹俩，然后xhs上男的敢玩这游戏？之类的
+
