@@ -3456,3 +3456,13 @@ GRACE編更有一次通關是要完全禁了採血，這個不用S/L的話，要
 
 果然LEON才是反派的最終BOSS嗎
 
+
+*****
+
+####  windlikeman  
+##### 1798#       发表于 2026-3-7 20:15
+
+癫狂通了 新加的几个开门初见杀真弱智
+
+打完汉克正好在出口门口 直接冲进来2个人砰砰砰给我秒了 躲都躲不了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 还好有自动存档
+
