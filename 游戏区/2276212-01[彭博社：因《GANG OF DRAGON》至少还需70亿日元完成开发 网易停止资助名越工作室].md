@@ -391,3 +391,16 @@ ip和目前已经开发出来的内容名越要想继续用就要给网易钱买
 
 —— 来自 Xiaomi 2602BRT18C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  keytomylife  
+##### 47#       发表于 2026-3-7 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69293553&amp;ptid=2276212" target="_blank">春风画雨 发表于 2026-3-7 21:45</a>
+
+这下网易明白名越为啥被世嘉踢了吧，不过楼上说小岛的，我记得岛哥哥被科乐美踢的原因之一也是游戏成本弄爆 ...</blockquote>
+小岛在KONAMI的大作频出但赤字
+
+炒掉他后哪怕不做游戏都盈利了
+
