@@ -589,3 +589,19 @@ ns2版帧率是不是有点低啊，卖这么贵
 
 打完demo的battle难度，07式装填巨长+SC硬直贼短，进FF血线之前都只能打回合制，初期压力应该比过去任何一作都大。从目前公布战斗系统看，FF期间不吃胶片性能加成，“灭”需要长按满蓄释放，FF期间速杀打法好像不复存在了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">除非来个无需蓄力的“击”挽救一下（不过原版红蝶就是FF伤害递减，和后续作品都不一样）
 
+
+*****
+
+####  哈迪斯兜帽  
+##### 58#       发表于 2026-3-7 20:20
+
+在太阳光最好的时候把demo打完了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+好像在哪里看到说红蝶是系列最恐怖的？
+
+之前买了濡鸦只打了第一章
+
+这demo感觉强度是比濡鸦高
+
+为什么女二叫茧，听起来会孵化boss。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
