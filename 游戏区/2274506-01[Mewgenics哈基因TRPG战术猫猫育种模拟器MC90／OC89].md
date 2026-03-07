@@ -36,3 +36,14 @@
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  dreamquest  
+##### 286#       发表于 2026-3-7 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69290267&amp;ptid=2274506" target="_blank">lmclmc2 发表于 2026-3-7 04:07</a>
+
+有两种，主线道具（一般是打完入侵后给的）回家就回来了，支线道具要等刷完一圈才会再出。例外是说服装置 ...</blockquote>
+啊这，我的说服道具丢了，只能重开档了吗
+
