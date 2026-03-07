@@ -3466,3 +3466,11 @@ GRACE編更有一次通關是要完全禁了採血，這個不用S/L的話，要
 
 打完汉克正好在出口门口 直接冲进来2个人砰砰砰给我秒了 躲都躲不了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 还好有自动存档
 
+
+*****
+
+####  kiralzb  
+##### 1799#       发表于 2026-3-7 20:19
+
+这次最高难度也有自动存档，4re海岛都没存一下就回到村子<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
