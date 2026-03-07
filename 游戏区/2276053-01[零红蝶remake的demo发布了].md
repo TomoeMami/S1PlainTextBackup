@@ -605,3 +605,17 @@ ns2版帧率是不是有点低啊，卖这么贵
 
 为什么女二叫茧，听起来会孵化boss。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  隔壁老黄  
+##### 59#       发表于 2026-3-7 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69293213&amp;ptid=2276053" target="_blank">哈迪斯兜帽 发表于 2026-3-7 20:20</a>
+在太阳光最好的时候把demo打完了
+
+好像在哪里看到说红蝶是系列最恐怖的？</blockquote>
+一代或者月蚀最恐怖
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
