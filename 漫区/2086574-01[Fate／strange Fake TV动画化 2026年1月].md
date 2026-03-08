@@ -2049,3 +2049,12 @@ fa ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真万能还得是恩皇，除了人召唤不出来真没有缺点
 
+
+*****
+
+####  马桶3  
+##### 1207#       发表于 2026-3-8 22:48
+
+蘑菇爹没那么容易下线，既然海无力能用令咒催眠改造，闪闪也可以<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+毕竟黑皮萝莉也算是小有人气<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
