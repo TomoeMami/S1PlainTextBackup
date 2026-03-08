@@ -795,3 +795,18 @@ demo里的血手柜子是不是打不开 拍了半天也不开</blockquote>
 
 这破画面PS5PRO连60帧都没有啊，光荣真拉完了。
 
+
+*****
+
+####  爱撕衣魔刃  
+##### 77#       发表于 2026-3-9 01:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69280310&amp;ptid=2276053" target="_blank">smdzh2 发表于 2026-3-5 13:48</a>
+
+我原以为月蚀假面重置的人脸已经是系列下限了，没想到还有高手</blockquote>
+假面除人以外，
+
+全是原汁原味720p,
+
+坑人无下限<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
