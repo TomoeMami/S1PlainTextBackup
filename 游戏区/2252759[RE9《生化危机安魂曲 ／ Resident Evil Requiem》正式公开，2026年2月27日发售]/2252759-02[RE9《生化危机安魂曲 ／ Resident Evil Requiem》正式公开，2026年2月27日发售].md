@@ -3632,3 +3632,13 @@ GRACE編開場第一身視點，沒武器時就已經直接衝去各種巨大BOS
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">旅店流程和播片有啥区别，里昂那段也只有跑路，其他作品可不是序章这种纯演出
 
+
+*****
+
+####  飛霞精灵  
+##### 1812#       发表于 2026-3-8 12:39
+
+地下尸体传送带和全毁那段是这些年生化里最明显让我感觉掉san的一个场景了。
+
+另一个可能是C病毒的眼球暴增<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
