@@ -1902,3 +1902,23 @@ fa ...</blockquote>
 虽然这里全力打大概也打不过女神 ...</blockquote>
 这个时间出场的伊斯塔实力很菜的，和闪单挑应该会被轻松拿下
 
+
+*****
+
+####  仟音一心  
+##### 1193#       发表于 2026-3-8 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69296820&amp;ptid=2086574" target="_blank">月亮上的珊瑚 发表于 2026-3-8 16:41</a>
+海无力被带毒小刀刺了之后变得也能使用蛇毒了吗，是不是有点太bug了</blockquote>
+十二荣光之一就是海德拉毒箭。
+顺便还有一个荣光和海德拉毒有关。
+
+*****
+
+####  仟音一心  
+##### 1194#       发表于 2026-3-8 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69296336&amp;ptid=2086574" target="_blank">赤黑的假面 发表于 2026-3-8 14:04</a>
+感觉闪小弟是不是一直被吹过了，两河流域的汉谟拉比和阿卡德王国时期功绩都比闪小弟好看 ...</blockquote>
+你说得对，但是蘑菇就是最大的闪吹。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
