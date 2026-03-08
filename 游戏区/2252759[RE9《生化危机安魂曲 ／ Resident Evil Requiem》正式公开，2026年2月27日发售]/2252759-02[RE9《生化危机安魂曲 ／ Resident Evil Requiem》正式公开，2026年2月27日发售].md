@@ -3642,3 +3642,19 @@ GRACE編開場第一身視點，沒武器時就已經直接衝去各種巨大BOS
 
 另一个可能是C病毒的眼球暴增<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  snowism  
+##### 1813#       发表于 2026-3-8 14:38
+
+<img src="https://img.stage1st.com/forum/202603/08/143811geoepv7kpb7yr0k0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (328.81 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-8 14:38 上传
+
+[https://x.com/Mr_jonnasse/status/2029863500953309649](https://x.com/Mr_jonnasse/status/2029863500953309649)
+
