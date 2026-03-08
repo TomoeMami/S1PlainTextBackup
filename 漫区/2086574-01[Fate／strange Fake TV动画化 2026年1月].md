@@ -1843,3 +1843,20 @@ fa ...</blockquote>
 
 现在fgo杂七杂八英灵出太多了，红A倒是一般固定在一个一流英灵的中上评价了
 
+
+*****
+
+####  wangandh  
+##### 1187#       发表于 2026-3-8 16:40
+
+<blockquote>仟音一心 发表于 2026-3-8 09:32
+</blockquote>
+没有挎包，没有精髓
+
+*****
+
+####  月亮上的珊瑚  
+##### 1188#       发表于 2026-3-8 16:41
+
+海无力被带毒小刀刺了之后变得也能使用蛇毒了吗，是不是有点太bug了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

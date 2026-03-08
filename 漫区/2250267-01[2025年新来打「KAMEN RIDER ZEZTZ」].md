@@ -2188,3 +2188,11 @@ nox你也有被谜语的一天，笑死我了
 说起来，下一集红霸居然比牢nox先变身</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">红霸算预备役随时上岗，诺克斯可是叛徒，一倒带又要重来
 
+
+*****
+
+####  洛克萨斯  
+##### 890#       发表于 2026-3-8 16:42
+
+nox还要走一次程序修复腰带么
+
