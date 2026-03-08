@@ -2000,3 +2000,14 @@ fa ...</blockquote>
 理查感觉强在把大招变成平a连发。但面板水平不够高，上限锁死了。</blockquote>
 理查的永恒遥远的胜利之剑最高只有A+对军（即使拿到圣剑本体也只能到这个等级），阿尔托莉雅的誓约胜利之剑是A++对城，等级和范围都差很多。
 
+
+*****
+
+####  character  
+##### 1202#       发表于 2026-3-8 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69297796&amp;ptid=2086574" target="_blank">仟音一心 发表于 2026-3-8 20:42</a>
+本传的话闪闪会掏EA，五战唯一克制EA的是Saber的Avalon。
+理查常规圣杯战争实力肯定够，但这雪原市太神仙 ...</blockquote>
+常规圣杯战理查只会更差，平A咖喱棒连发耗魔，自身性格也不咋的，除了敏捷以外没啥吹点
+
