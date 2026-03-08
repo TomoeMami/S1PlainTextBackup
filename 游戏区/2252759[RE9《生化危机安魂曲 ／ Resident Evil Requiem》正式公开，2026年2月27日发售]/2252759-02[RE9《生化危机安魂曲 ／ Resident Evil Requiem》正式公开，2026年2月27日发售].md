@@ -3624,3 +3624,11 @@ GRACE編開場第一身視點，沒武器時就已經直接衝去各種巨大BOS
 
 就像同一个游戏普通速通和any%这种可以卡bug的都算速通，比时间分开比
 
+
+*****
+
+####  plok201  
+##### 1811#       发表于 2026-3-8 09:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">旅店流程和播片有啥区别，里昂那段也只有跑路，其他作品可不是序章这种纯演出
+
