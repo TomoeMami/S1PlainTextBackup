@@ -1721,3 +1721,11 @@ title:ヒッポリュテ星人
 
 这萝莉咋办 我还挺爱看她和闪闪的戏份的 不会这季就没她事了吧<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大耳兽  
+##### 1176#       发表于 2026-3-8 12:30
+
+西格玛是怎么知道杰斯塔真名的，我看到两个说法，一个是watcher和他讲的，一个是是他跟另一个死徒问的 
+
