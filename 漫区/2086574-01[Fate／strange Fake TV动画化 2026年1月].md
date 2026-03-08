@@ -1679,3 +1679,19 @@ title:ヒッポリュテ星人
 知道闪闪早晚要吃瘪，没想到吃瘪的这么早<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 不贪财，不关键时刻掉链子的女神是无敌的，果然魔兽战线的那位是被机体耽误了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakki  
+##### 1171#       发表于 2026-3-8 11:18
+
+看动画才反应过来，海和伊什塔尔合力前后夹击闪闪应该就是他们的交易吧，钥匙情报应该是横飞姬透露给伊的
+
+
+*****
+
+####  lyz1196  
+##### 1172#       发表于 2026-3-8 11:22
+
+黑皮小妹吃瘪也太美味了吧<img src="https://static.stage1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
