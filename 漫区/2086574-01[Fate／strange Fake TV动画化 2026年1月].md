@@ -1872,3 +1872,20 @@ fa ...</blockquote>
 以及在UBW線中以嘴 ...</blockquote>
 没说他没b格，吃瘪和装逼，强大不冲突的啊。
 
+
+*****
+
+####  character  
+##### 1190#       发表于 2026-3-8 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69296820&amp;ptid=2086574" target="_blank">月亮上的珊瑚 发表于 2026-3-8 16:41</a>
+海无力被带毒小刀刺了之后变得也能使用蛇毒了吗，是不是有点太bug了</blockquote>
+不是被刺了之后能用，而是十二荣光本身就有蛇毒
+
+*****
+
+####  麻花疼  
+##### 1191#       发表于 2026-3-8 17:19
+
+剧情太乱了，当年永生之酒和无头骑士我就因为这原因弃的，看来这部我也看不长了。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
