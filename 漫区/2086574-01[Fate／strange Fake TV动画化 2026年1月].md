@@ -1889,3 +1889,16 @@ fa ...</blockquote>
 
 剧情太乱了，当年永生之酒和无头骑士我就因为这原因弃的，看来这部我也看不长了。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  霖星  
+##### 1192#       发表于 2026-3-8 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69296364&amp;ptid=2086574" target="_blank">klzxs 发表于 2026-3-8 14:18</a>
+
+所谓最强就是用来垫的，什么作品都一样，除非这个最强是主角本人
+
+虽然这里全力打大概也打不过女神 ...</blockquote>
+这个时间出场的伊斯塔实力很菜的，和闪单挑应该会被轻松拿下
+
