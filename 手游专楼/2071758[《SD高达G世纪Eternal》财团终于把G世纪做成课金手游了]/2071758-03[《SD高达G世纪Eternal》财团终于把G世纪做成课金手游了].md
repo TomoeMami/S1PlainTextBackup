@@ -687,3 +687,13 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 这就是内部爱吗
 
+
+*****
+
+####  plok201  
+##### 3731#       发表于 2026-3-8 08:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这堆开发大部分也就射程差了，属性可不算差
+
+双炮已经摸到DX猎鹰的伤害水平了，不敢想象AGE3开始那堆重火力把射程补了后有多强
+
