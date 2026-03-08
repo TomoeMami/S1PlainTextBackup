@@ -2153,3 +2153,11 @@ nox你也有被谜语的一天，笑死我了
 不是自带的，是从预知梦里带出来的啊</blockquote>
 这梦真方便啊，还能从预知的梦境里带东西出来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤黑的假面  
+##### 886#       发表于 2026-3-8 14:08
+
+说起来，下一集红霸居然比牢nox先变身
+
