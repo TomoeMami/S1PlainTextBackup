@@ -1931,3 +1931,14 @@ op2风格变了，不知道剧内剧情风格会不会也有变化
 
 这是自剑以来第一个双op的来打吧
 
+
+*****
+
+####  himfsz  
+##### 862#       发表于 2026-3-8 08:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69294916&amp;ptid=2250267" target="_blank">pointer243 发表于 2026-3-8 08:42</a>
+
+这是自剑以来第一个双op的来打吧</blockquote>
+剑的下一年就是响鬼 
+
