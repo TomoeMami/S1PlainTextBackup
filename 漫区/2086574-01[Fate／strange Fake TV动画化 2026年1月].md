@@ -1753,3 +1753,14 @@ title:ヒッポリュテ星人
 fa ...</blockquote>
 红A虽然吃瘪但是相比于他的实力定位来说他的战绩完全算不上吃瘪了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟五战那都什么牛鬼蛇神啊。（实际上从红A表现看给我一种他要是真认真起来拿出全力的话是能拿下五战胜利的感觉）
 
+
+*****
+
+####  洛克萨斯  
+##### 1179#       发表于 2026-3-8 13:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69296207&amp;ptid=2086574" target="_blank">pokemon最爱 发表于 2026-3-8 13:37</a>
+
+红A虽然吃瘪但是相比于他的实力定位来说他的战绩完全算不上吃瘪了毕竟五战那都什么牛鬼蛇神啊。（实际上 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">男神最牛逼一点就是会装说骚话，给你一种他真的很强的错觉
+
