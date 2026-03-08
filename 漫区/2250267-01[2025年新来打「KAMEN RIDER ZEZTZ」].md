@@ -1981,3 +1981,11 @@ Case26「揃う」
 轮回说破产
 <img src="https://p.sda1.dev/31/77793048e965d74eba4e0ff8f40a8c37/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 867#       发表于 2026-3-8 10:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉进入真实后，诺克斯的谜语病好了不少啊，可是变身器没了啊！又要重新走一遍流程吗
+
