@@ -3804,3 +3804,31 @@ GRACE編開場第一身視點，沒武器時就已經直接衝去各種巨大BOS
 主要是之前7跑的时候前面也是一堆无聊的散步环节但是也没有跳，都是老老实实逛完街，这个却可以跳，也许是 ...</blockquote>
 8和4re都有跳序章的赛道，4re还规定了装备的具体内容，在初遇牛头人那里开始。
 
+
+*****
+
+####  梅斯之围  
+##### 1825#       发表于 2026-3-8 21:14
+
+这个成就是不能用采血器采血还是用血袋合成也不行
+
+<img src="https://img.stage1st.com/forum/202603/08/211251hqkbbioi0o4ciotc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-8 21:12 上传
+
+*****
+
+####  月夜的风  
+##### 1826#       发表于 2026-3-8 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69297917&amp;ptid=2252759" target="_blank">梅斯之围 发表于 2026-3-8 21:14</a>
+
+这个成就是不能用采血器采血还是用血袋合成也不行</blockquote>
+合成也不行，因为血袋的血要装进采血器里。
+
+要稳妥的获得就直接不要拿采血器这个道具。
+
