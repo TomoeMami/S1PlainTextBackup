@@ -5612,7 +5612,7 @@
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "lastedit": 1772752928,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2125110": {
@@ -12051,10 +12051,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 54108,
+    "totalreply": 54109,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1772999527,
+    "lastedit": 1773012368,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12402,10 +12402,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 18244,
+    "totalreply": 18245,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1773010449,
+    "lastedit": 1773012007,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16074,10 +16074,10 @@
     "update": false
   },
   "2275908": {
-    "totalreply": 8082,
+    "totalreply": 8086,
     "title": "[中东专楼-2026年3月]",
     "newtitle": "[中东专楼-2026年3月]",
-    "lastedit": 1773011892,
+    "lastedit": 1773012488,
     "category": "外野",
     "active": true,
     "update": false
@@ -16128,10 +16128,10 @@
     "update": false
   },
   "2275914": {
-    "totalreply": 336,
+    "totalreply": 337,
     "title": "[安装了小龙虾OpenClaw，被震撼了，这就是未来吧？羡慕现在出生的孩子]",
     "newtitle": "[安装了小龙虾OpenClaw，被震撼了，这就是未来吧？羡慕现在出生的孩子]",
-    "lastedit": 1773010929,
+    "lastedit": 1773012490,
     "category": "外野",
     "active": true,
     "update": false
@@ -17257,6 +17257,15 @@
     "title": "[树洞我现在感觉攒钱有种最纯粹的原始的快感，不由得畅想未来各种美好生活]",
     "newtitle": "[树洞我现在感觉攒钱有种最纯粹的原始的快感，不由得畅想未来各种美好生活]",
     "lastedit": 1772988376,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2276221": {
+    "totalreply": 41,
+    "title": "[榨干剩余价值这一块]",
+    "newtitle": "[榨干剩余价值这一块]",
+    "lastedit": 1773012491,
     "category": "外野",
     "active": true,
     "update": false
