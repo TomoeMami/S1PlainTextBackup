@@ -3793,3 +3793,14 @@ GRACE編開場第一身視點，沒武器時就已經直接衝去各種巨大BOS
 
 第一次通关之后没有想怎么拿无限弹药然后爽一遍的想法
 
+
+*****
+
+####  1096beam  
+##### 1824#       发表于 2026-3-8 20:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69296640&amp;ptid=2252759" target="_blank">hkguty 发表于 2026-3-8 15:43</a>
+
+主要是之前7跑的时候前面也是一堆无聊的散步环节但是也没有跳，都是老老实实逛完街，这个却可以跳，也许是 ...</blockquote>
+8和4re都有跳序章的赛道，4re还规定了装备的具体内容，在初遇牛头人那里开始。
+

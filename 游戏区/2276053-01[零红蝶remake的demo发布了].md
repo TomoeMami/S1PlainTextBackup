@@ -777,3 +777,13 @@ demo里的血手柜子是不是打不开 拍了半天也不开</blockquote>
 没咸猪手捡东西这么慢</blockquote>
 这个设计保留的挺莫名其妙的 确实拖慢节奏
 
+
+*****
+
+####  zqqwe  
+##### 75#       发表于 2026-3-8 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69297808&amp;ptid=2276053" target="_blank">食粪者 发表于 2026-3-8 20:46</a>
+没咸猪手捡东西这么慢</blockquote>
+至少不是捡每个消耗品都要长按了，现在只有关键道具有演出
+
