@@ -2177,3 +2177,14 @@ nox你也有被谜语的一天，笑死我了
 
 说了这么久暗码的黑暗，应该就是指这个somnia吧
 
+
+*****
+
+####  暗黑能乐  
+##### 889#       发表于 2026-3-8 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69296346&amp;ptid=2250267" target="_blank">赤黑的假面 发表于 2026-3-8 14:08</a>
+
+说起来，下一集红霸居然比牢nox先变身</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">红霸算预备役随时上岗，诺克斯可是叛徒，一倒带又要重来
+

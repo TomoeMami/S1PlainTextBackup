@@ -3694,3 +3694,16 @@ GRACE編開場第一身視點，沒武器時就已經直接衝去各種巨大BOS
 
 另一個是通關時遊戲的時間
 
+
+*****
+
+####  hkguty  
+##### 1816#       发表于 2026-3-8 15:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69294626&amp;ptid=2252759" target="_blank">searcher 发表于 2026-3-8 03:54</a>
+
+理由是没有任何操作，纯走流程
+
+不过这些速通都是约定好条件大家认就行，你要正经从头开始也可以，分开各 ...</blockquote>
+主要是之前7跑的时候前面也是一堆无聊的散步环节但是也没有跳，都是老老实实逛完街，这个却可以跳
+
