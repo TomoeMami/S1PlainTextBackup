@@ -1990,3 +1990,13 @@ fa ...</blockquote>
 
 看了下后面复活的剧情感觉挺捞的，这能算是一个人吗，味道很怪
 
+
+*****
+
+####  仟音一心  
+##### 1201#       发表于 2026-3-8 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69297815&amp;ptid=2086574" target="_blank">razielzyc 发表于 2026-3-8 20:48</a>
+理查感觉强在把大招变成平a连发。但面板水平不够高，上限锁死了。</blockquote>
+理查的永恒遥远的胜利之剑最高只有A+对军（即使拿到圣剑本体也只能到这个等级），阿尔托莉雅的誓约胜利之剑是A++对城，等级和范围都差很多。
+
