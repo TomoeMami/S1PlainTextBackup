@@ -2021,3 +2021,31 @@ fa ...</blockquote>
 胡姆巴巴就是芬巴巴。
 <img src="https://p.sda1.dev/31/5cda8e4998c16cc8726b220917019ada/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 1204#       发表于 2026-3-8 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69298072&amp;ptid=2086574" target="_blank">character 发表于 2026-3-8 21:50</a>
+常规圣杯战理查只会更差，平A咖喱棒连发耗魔，自身性格也不咋的，除了敏捷以外没啥吹点 ...</blockquote>
+一流上水平肯定有的，御主供魔够的话能到一流顶级。
+<img src="https://p.sda1.dev/31/10580324012dfd75a3ee6c50aa7154e8/image.jpg" referrerpolicy="no-referrer">
+而且本来就要看主从相性的，肯主任那种不缺魔的强力御主偏偏招了个省魔的刷子在谁说理去？
+
+*****
+
+####  KDConan  
+##### 1205#       发表于 2026-3-8 22:31
+
+这剧情确实赶着投胎<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  洛克萨斯  
+##### 1206#       发表于 2026-3-8 22:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真万能还得是恩皇，除了人召唤不出来真没有缺点
+

@@ -2366,3 +2366,11 @@ A5.25話で描かれた「強くてニューゲーム」、そして「バタフ
 
 红字部分，三骑有能力观测到牢莫的预知梦？
 
+
+*****
+
+####  马桶3  
+##### 904#       发表于 2026-3-8 22:34
+
+二周目愚蠢开局，竟然暴露了自己有上周目记忆<img src="https://static.stage1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
