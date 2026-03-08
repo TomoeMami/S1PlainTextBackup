@@ -3770,3 +3770,18 @@ GRACE編開場第一身視點，沒武器時就已經直接衝去各種巨大BOS
 维克多首先追求的确实是病毒永生计划，他一直误认为Elpis就是他想要的病毒女神，能推动人类下一步的进化 ...</blockquote>
 维克多绑人不搜身这点很迷，格蕾丝拿到光盘后，在疗养院逛一圈光盘也没碰坏也是很神奇。
 
+
+*****
+
+####  kcalb  
+##### 1822#       发表于 2026-3-8 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69297422&amp;ptid=2252759" target="_blank">何然 发表于 2026-3-8 19:12</a>
+
+说来经典难度的良子到底几发安魂能搞定的
+
+我搜出来说的2发头结果根本打不死
+
+然后问下丧尸复活到底是固定的 ...</blockquote>
+解刨室那块的都会复活，猜测可能是卡婊设计的一个陷阱，因为很多人开卷考到这拿了第一管针会折回去用在屠夫或者别的精英怪上，结果没想到后面处理这几只看似普通的丧尸成本会更高<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
