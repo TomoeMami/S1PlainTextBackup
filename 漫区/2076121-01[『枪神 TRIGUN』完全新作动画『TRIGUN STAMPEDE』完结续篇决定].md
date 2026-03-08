@@ -3896,3 +3896,11 @@ VFXアートディレクター：早川大嗣
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么这季总要把一些已知情报用很拖沓的方式换不同的角色对话反复传达......
 
+
+*****
+
+####  weige  
+##### 386#       发表于 2026-3-8 18:15
+
+因为编剧没活
+

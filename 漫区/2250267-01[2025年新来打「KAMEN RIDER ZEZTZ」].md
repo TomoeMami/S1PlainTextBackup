@@ -2234,3 +2234,41 @@ nox还要走一次程序修复腰带么</blockquote>
 下集预告居然有4个特工站一起的画面。
 预知梦这个访谈一出我劝民那桑还是不要把剧情想得太复杂为好<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kurihayn  
+##### 895#       发表于 2026-3-8 18:18
+
+这房子竟然是租的
+
+*****
+
+####  暗黑能乐  
+##### 896#       发表于 2026-3-8 18:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69296851&amp;ptid=2250267" target="_blank">挺好的 发表于 2026-3-8 16:50</a>
+不如直接向女士要装备</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">直接要装备也没有暗影胶囊
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  暗黑能乐  
+##### 897#       发表于 2026-3-8 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69297038&amp;ptid=2250267" target="_blank">金星 发表于 2026-3-8 17:38</a>
+老诺现在只能做双面间谍才能拿到腰带吧，但问题是夫人不睡觉，老诺又回不到现实，梦里还要去画家那里才能拿 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以下集他肉身在那和5对砍，也就5也是个不爱变身的主儿刚好
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  milky658  
+##### 898#       发表于 2026-3-8 18:25
+
+暗影胶囊要打爆梦魇才能造。暗影梦魇:暗影梦胶囊也可以从万津莫大人的深层心理里带出来，对，对吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
