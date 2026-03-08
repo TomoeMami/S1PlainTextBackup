@@ -1729,3 +1729,27 @@ title:ヒッポリュテ星人
 
 西格玛是怎么知道杰斯塔真名的，我看到两个说法，一个是watcher和他讲的，一个是是他跟另一个死徒问的 
 
+
+*****
+
+####  シャル  
+##### 1177#       发表于 2026-3-8 13:37
+
+所以闪就是慢心
+
+天之锁都不用，没神性也能锁住啊
+
+哥伦布的船锚都能锁住巨神海无力
+
+*****
+
+####  pokemon最爱  
+##### 1178#       发表于 2026-3-8 13:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69295905&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-3-8 12:30</a>
+
+西格玛是怎么知道杰斯塔真名的，我看到两个说法，一个是watcher和他讲的，一个是是他跟另一个死徒问的。
+
+fa ...</blockquote>
+红A虽然吃瘪但是相比于他的实力定位来说他的战绩完全算不上吃瘪了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟五战那都什么牛鬼蛇神啊。（实际上从红A表现看给我一种他要是真认真起来拿出全力的话是能拿下五战胜利的感觉）
+
