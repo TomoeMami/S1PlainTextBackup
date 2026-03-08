@@ -2374,3 +2374,18 @@ A5.25話で描かれた「強くてニューゲーム」、そして「バタフ
 
 二周目愚蠢开局，竟然暴露了自己有上周目记忆<img src="https://static.stage1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黄泉川此方  
+##### 905#       发表于 2026-3-8 23:41
+
+loop，然后成为谜语人！
+
+*****
+
+####  失落之翼  
+##### 906#       发表于 2026-3-8 23:44
+
+梦里全都有<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
