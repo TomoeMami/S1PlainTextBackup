@@ -2026,3 +2026,18 @@ Case26「揃う」
 
 我是猜测zzz的觉醒对code是必要一环，看来确实是，只不过内部也持不同意见，3应该是不太喜欢这种不受控的元素的，但0迫切想要一个能带来破局的变量。现在确实保留了很多可能性
 
+
+*****
+
+####  暗黑能乐  
+##### 872#       发表于 2026-3-8 11:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说0这么连人带车跑了，莫没得骑摩托了啊
+
+*****
+
+####  洛克萨斯  
+##### 873#       发表于 2026-3-8 11:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这集舒服了，最后good莫宁那段拍出见家长的感觉，bmg是对的
+

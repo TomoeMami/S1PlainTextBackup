@@ -728,3 +728,14 @@ demo里的血手柜子是不是打不开 拍了半天也不开
 demo里的血手柜子是不是打不开 拍了半天也不开</blockquote>
 是得用特殊拍摄的
 
+
+*****
+
+####  tiffanyfliage  
+##### 70#         楼主| 发表于 2026-3-8 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69292677&amp;ptid=2276053" target="_blank">zqqwe 发表于 2026-3-7 17:45</a>
+
+打完demo的battle难度，07式装填巨长+SC硬直贼短，进FF血线之前都只能打回合制，初期压力应该比过去任何一 ...</blockquote>
+感觉这次是给所有人整了个保底的ff阶段，所有人但凡破盾了都得老老实实倒地，抓不准ff的太多了
+
