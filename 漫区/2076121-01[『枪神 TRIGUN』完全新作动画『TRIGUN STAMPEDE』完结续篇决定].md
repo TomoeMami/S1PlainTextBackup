@@ -3888,3 +3888,11 @@ VFXアートディレクター：早川大嗣
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哪里能找到码率高一点的片源，我找到的都是糊成一片的
 
+
+*****
+
+####  火红之眼  
+##### 385#       发表于 2026-3-8 13:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么这季总要把一些已知情报用很拖沓的方式换不同的角色对话反复传达......
+
