@@ -368,3 +368,30 @@
 
 不过是EN的，算了
 
+
+*****
+
+####  holofan  
+##### 11506#       发表于 2026-3-7 22:30
+
+刚好又重新补一遍前两天的生日live，再回来看今天fes
+
+对比之下fes的运镜就跟屎一样，也知道miko在细节方面确实下狠功夫了，官方都烂成这样了
+
+*****
+
+####  holofan  
+##### 11507#       发表于 2026-3-8 10:59
+
+刚才直播发表的音游OPMV部分
+
+做这些动画的某些人 绝对是有私念的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202603/08/105903ru6mp4n34siz1s7s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (131.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-8 10:59 上传
+
