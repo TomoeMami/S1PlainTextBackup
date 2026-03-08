@@ -2123,3 +2123,14 @@ nox你也有被谜语的一天，笑死我了
 
 如果前24都是预知梦的话，那莫其实从一开始就自带那堆胶囊么<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 883#       发表于 2026-3-8 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69296142&amp;ptid=2250267" target="_blank">otakun 发表于 2026-3-8 13:24</a>
+
+如果前24都是预知梦的话，那莫其实从一开始就自带那堆胶囊么</blockquote>
+不是自带的，是从预知梦里带出来的啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
