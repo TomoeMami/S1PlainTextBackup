@@ -821,3 +821,20 @@ konami足球棒球手游才是营收主力，主机游戏业务没啥能吹的
 
 寂静岭因为出新作了，属于不算游戏的叠加态，外包神气什么！
 
+
+*****
+
+####  hugosol  
+##### 84#       发表于 2026-3-8 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69296338&amp;ptid=2276212" target="_blank">plok201 发表于 2026-3-8 14:05</a>
+
+国内讨论区就没把桃铁当游戏，整个konami只有合金装备和恶魔城算游戏
+
+寂静岭因为出新作了，属于不算游戏 ...</blockquote>
+其实还有游戏王，K社对游戏王的运营也是属于慢性自杀级别<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，现在每年就靠翻炒历代动画角色主题续命，别人都开始搞TCG了自然游戏王的份额就掉下去
+
+说句K社只会吃老本完全不为过吧，游戏靠外包，没有自己的开发团队，自然没法积累经验，授权ip只是一时爽，任天堂和卡普空也不是没有外包的ip作品，但人家正作质量可没有落下，这样才能维持住外包作品的人气和号召力
+
+就看K社这玩法能维持多久吧<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
