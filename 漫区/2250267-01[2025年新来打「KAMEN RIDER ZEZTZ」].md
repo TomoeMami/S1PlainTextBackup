@@ -2134,3 +2134,22 @@ nox你也有被谜语的一天，笑死我了
 如果前24都是预知梦的话，那莫其实从一开始就自带那堆胶囊么</blockquote>
 不是自带的，是从预知梦里带出来的啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Schwftyyyyy  
+##### 884#       发表于 2026-3-8 13:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69296142&amp;ptid=2250267" target="_blank">otakun 发表于 2026-3-8 13:24</a>
+如果前24都是预知梦的话，那莫其实从一开始就自带那堆胶囊么</blockquote>
+目前只是先定性为预知梦，具体原理还不清楚，不过zero看到莫和新道具很惊讶，说明道具是预知梦里带出来的。看样子应该是三号在利用zzz做预知梦的特性
+
+*****
+
+####  otakun  
+##### 885#       发表于 2026-3-8 13:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69296171&amp;ptid=2250267" target="_blank">pokemon最爱 发表于 2026-3-8 13:29</a>
+不是自带的，是从预知梦里带出来的啊</blockquote>
+这梦真方便啊，还能从预知的梦境里带东西出来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
