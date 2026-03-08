@@ -3858,3 +3858,14 @@ GRACE編開場第一身視點，沒武器時就已經直接衝去各種巨大BOS
 
 这个假威斯克，乍一看和威斯克一样吊，西装墨镜银背头，暴打BSAA小队，结果被维克托随随便便斩首了，死得相当潦草<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大厨麦当牛  
+##### 1830#       发表于 2026-3-8 22:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69297238&amp;ptid=2252759" target="_blank">Sissii 发表于 2026-3-8 18:25</a>
+
+维克多不知道不太可能，维克多和齐诺打电话的时候说过格蕾丝所有测试全阳，事后我们是知道的，格蕾丝并没 ...</blockquote>
+测试全阳应该是比对格蕾丝和他们弄的克隆体之间的基因比对吧，这能证明格蕾丝是他们一直找的斯宾塞创造的“原版”。因为维克多他们弄的171个克隆体全都是基于斯宾塞研究里记录的格蕾丝的数据克隆的，并不是直接提取格蕾丝本人的生物组织克隆。
+
