@@ -2272,3 +2272,15 @@ nox还要走一次程序修复腰带么</blockquote>
 
 暗影胶囊要打爆梦魇才能造。暗影梦魇:暗影梦胶囊也可以从万津莫大人的深层心理里带出来，对，对吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 899#       发表于 2026-3-8 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69297236&amp;ptid=2250267" target="_blank">milky658 发表于 2026-3-8 18:25</a>
+暗影胶囊要打爆梦魇才能造。暗影梦魇:暗影梦胶囊也可以从万津莫大人的深层心理里带出来，对，对吧 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了，万津莫就是扭蛋机
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

@@ -1922,3 +1922,19 @@ fa ...</blockquote>
 感觉闪小弟是不是一直被吹过了，两河流域的汉谟拉比和阿卡德王国时期功绩都比闪小弟好看 ...</blockquote>
 你说得对，但是蘑菇就是最大的闪吹。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 1195#       发表于 2026-3-8 18:38
+
+ 本帖最后由 シャル 于 2026-3-8 18:39 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69296726&amp;ptid=2086574" target="_blank">klzxs 发表于 2026-3-8 16:10</a>
+
+红A不算弱，战绩其实也挺好看，但五战强度太超标了
+
+正面一战比他弱的只有c妈和小次郎了
+
+以前讨论环境红A怎 ...</blockquote>
+农民单挑剑法不会输啊
+
