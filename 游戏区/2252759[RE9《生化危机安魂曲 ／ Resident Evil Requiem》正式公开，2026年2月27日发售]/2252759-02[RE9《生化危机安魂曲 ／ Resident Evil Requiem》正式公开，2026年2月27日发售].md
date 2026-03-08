@@ -3881,3 +3881,19 @@ GRACE編開場第一身視點，沒武器時就已經直接衝去各種巨大BOS
 
 —— 来自 Xiaomi 22127RK46C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ZOHAR=往世之痕  
+##### 1832#       发表于 2026-3-9 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69297422&amp;ptid=2252759" target="_blank">何然 发表于 2026-3-8 19:12</a>
+说来经典难度的良子到底几发安魂能搞定的
+
+我搜出来说的2发头结果根本打不死
+
+然后问下丧尸复活到底是固定的 ...</blockquote>
+癫狂是5发
+经典差不多3发吧
+但可能我没完全打中头
+
