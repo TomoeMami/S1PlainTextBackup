@@ -1294,3 +1294,33 @@ TWAB（不是
 
 哎，你也知道目标不好找，我现在做的任务都是内测做过的
 
+
+*****
+
+####  Sorastlos  
+##### 251#       发表于 2026-3-9 00:09
+
+<img src="https://img.stage1st.com/forum/202603/09/000758x6ynnirrvfv5nvsk.png" referrerpolicy="no-referrer">
+
+<strong>8d795bf5-e167-4d4d-be53-c402b52ca068.png</strong> (34.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-9 00:07 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得结束了
+
+第四张图还要解密还要三月下旬，到时候还能有1w人吗
+
+
+*****
+
+####  zzy516232108  
+##### 252#       发表于 2026-3-9 00:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实没明白为什么会允许单排
+
+这游戏单排不就是瞬间死亡
+
+可惜我固定队散了，感觉到头了
+
