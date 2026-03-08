@@ -3759,3 +3759,14 @@ GRACE編開場第一身視點，沒武器時就已經直接衝去各種巨大BOS
 
 但实际遇到了那个拿刀的老头医生也复活了
 
+
+*****
+
+####  P-link  
+##### 1821#       发表于 2026-3-8 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69297174&amp;ptid=2252759" target="_blank">工口兔 发表于 2026-3-8 18:10</a>
+
+维克多首先追求的确实是病毒永生计划，他一直误认为Elpis就是他想要的病毒女神，能推动人类下一步的进化 ...</blockquote>
+维克多绑人不搜身这点很迷，格蕾丝拿到光盘后，在疗养院逛一圈光盘也没碰坏也是很神奇。
+
