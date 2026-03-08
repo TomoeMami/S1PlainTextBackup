@@ -2058,3 +2058,11 @@ fa ...</blockquote>
 蘑菇爹没那么容易下线，既然海无力能用令咒催眠改造，闪闪也可以<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 毕竟黑皮萝莉也算是小有人气<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  稀勢のささ  
+##### 1208#       发表于 2026-3-8 23:41
+
+闪大哥躺得好搞笑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
