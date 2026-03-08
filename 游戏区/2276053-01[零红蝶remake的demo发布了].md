@@ -717,3 +717,14 @@ ns2版帧率是不是有点低啊，卖这么贵
 
 demo里的血手柜子是不是打不开 拍了半天也不开
 
+
+*****
+
+####  tiffanyfliage  
+##### 69#         楼主| 发表于 2026-3-8 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69295168&amp;ptid=2276053" target="_blank">苦瓜师傅 发表于 2026-3-8 09:59</a>
+
+demo里的血手柜子是不是打不开 拍了半天也不开</blockquote>
+是得用特殊拍摄的
+
