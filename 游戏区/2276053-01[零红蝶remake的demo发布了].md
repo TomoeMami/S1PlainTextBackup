@@ -739,3 +739,23 @@ demo里的血手柜子是不是打不开 拍了半天也不开</blockquote>
 打完demo的battle难度，07式装填巨长+SC硬直贼短，进FF血线之前都只能打回合制，初期压力应该比过去任何一 ...</blockquote>
 感觉这次是给所有人整了个保底的ff阶段，所有人但凡破盾了都得老老实实倒地，抓不准ff的太多了
 
+
+*****
+
+####  苦瓜师傅  
+##### 71#       发表于 2026-3-8 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69295542&amp;ptid=2276053" target="_blank">tiffanyfliage 发表于 2026-3-8 11:33</a>
+是得用特殊拍摄的</blockquote>
+试过了不行 可能demo没开放 还有横梁上的巫女也无法拍摄        [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  childhood20  
+##### 72#       发表于 2026-3-8 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69295620&amp;ptid=2276053" target="_blank">苦瓜师傅 发表于 2026-3-8 11:46</a>
+ 试过了不行 可能demo没开放 还有横梁上的巫女也无法拍摄        Re:Source</blockquote>
+要用别的滤镜拍，后面章节才解锁
+
