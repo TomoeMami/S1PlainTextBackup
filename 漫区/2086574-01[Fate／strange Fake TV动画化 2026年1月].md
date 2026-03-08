@@ -1958,3 +1958,14 @@ fa ...</blockquote>
 
 这一版saber看来比亚瑟王得弱2档啊。本传我记得saber全力跟闪闪对波，闪闪也打不过。
 
+
+*****
+
+####  仟音一心  
+##### 1198#       发表于 2026-3-8 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69297742&amp;ptid=2086574" target="_blank">razielzyc 发表于 2026-3-8 20:28</a>
+这一版saber看来比亚瑟王得弱2档啊。本传我记得saber全力跟闪闪对波，闪闪也打不过。 ...</blockquote>
+本传的话闪闪会掏EA，五战唯一克制EA的是Saber的Avalon。
+理查常规圣杯战争实力肯定够，但这雪原市太神仙打架了。
+
