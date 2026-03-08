@@ -2217,3 +2217,11 @@ nox还要走一次程序修复腰带么</blockquote>
 
 特工不卧底叫啥特工，不轮回三次叫啥ZZZ
 
+
+*****
+
+####  金星  
+##### 893#       发表于 2026-3-8 17:38
+
+老诺现在只能做双面间谍才能拿到腰带吧，但问题是夫人不睡觉，老诺又回不到现实，梦里还要去画家那里才能拿到暗码腰带，但又没有重构修复，下集拿头打啊。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
