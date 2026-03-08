@@ -1860,3 +1860,15 @@ fa ...</blockquote>
 
 海无力被带毒小刀刺了之后变得也能使用蛇毒了吗，是不是有点太bug了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大耳兽  
+##### 1189#       发表于 2026-3-8 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69296671&amp;ptid=2086574" target="_blank">eilot 发表于 2026-3-8 15:51</a>
+紅A能單殺一半海叔的戰力，還是逐條命慢慢殺，而不是一炮擊了一半命後再來多一炮轟殺，
+
+以及在UBW線中以嘴 ...</blockquote>
+没说他没b格，吃瘪和装逼，强大不冲突的啊。
+

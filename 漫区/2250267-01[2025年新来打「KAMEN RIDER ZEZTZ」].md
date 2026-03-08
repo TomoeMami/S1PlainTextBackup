@@ -2196,3 +2196,14 @@ nox你也有被谜语的一天，笑死我了
 
 nox还要走一次程序修复腰带么
 
+
+*****
+
+####  挺好的  
+##### 891#       发表于 2026-3-8 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69296822&amp;ptid=2250267" target="_blank">洛克萨斯 发表于 2026-3-8 16:42</a>
+
+nox还要走一次程序修复腰带么</blockquote>
+不如直接向女士要装备
+
