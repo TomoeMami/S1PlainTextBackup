@@ -1789,3 +1789,14 @@ fa ...</blockquote>
 
 纸面实力强，打起来却动不动翻车爆冷，用电竞的话来说就是“本质菜比”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lawliet.L  
+##### 1183#       发表于 2026-3-8 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69296336&amp;ptid=2086574" target="_blank">赤黑的假面 发表于 2026-3-8 14:04</a>
+
+感觉闪小弟是不是一直被吹过了，两河流域的汉谟拉比和阿卡德王国时期功绩都比闪小弟好看 ...</blockquote>
+闪主要靠好兄弟舒勒吉<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
