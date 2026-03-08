@@ -1969,3 +1969,16 @@ fa ...</blockquote>
 本传的话闪闪会掏EA，五战唯一克制EA的是Saber的Avalon。
 理查常规圣杯战争实力肯定够，但这雪原市太神仙打架了。
 
+
+*****
+
+####  razielzyc  
+##### 1199#       发表于 2026-3-8 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69297796&amp;ptid=2086574" target="_blank">仟音一心 发表于 2026-3-8 20:42</a>
+
+本传的话闪闪会掏EA，五战唯一克制EA的是Saber的Avalon。
+
+理查常规圣杯战争实力肯定够，但这雪原市太神仙 ...</blockquote>
+理查感觉强在把大招变成平a连发。但面板水平不够高，上限锁死了。
+
