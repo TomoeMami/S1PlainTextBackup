@@ -2005,3 +2005,14 @@ Case26「揃う」
 
 这集信息量爆炸，好看好看<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 870#       发表于 2026-3-8 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69295416&amp;ptid=2250267" target="_blank">pokemon最爱 发表于 2026-3-8 11:02</a>
+
+从牢诺的反应看轮回的力量应该还是来自宁梦，或者说宁梦有着可以将真实的现实变成虚假的梦境的能力。应该是 ...</blockquote>
+暂时还是就认为是预知梦吧，毕竟只有7一个人记得。而且有一点诺克斯的反应很怪，就是他觉得女士和宁梦是母女让他有点讶异，一个可能是女士对他隐瞒了，另一个可能是女士在骗宁梦，还一个可能是女士自身陷入了催眠
+
