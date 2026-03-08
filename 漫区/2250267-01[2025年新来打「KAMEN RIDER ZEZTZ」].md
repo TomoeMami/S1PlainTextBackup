@@ -2080,3 +2080,20 @@ Case26「揃う」
 
 —— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  离心  
+##### 878#       发表于 2026-3-8 12:43
+
+赞同前面老哥说的这周目应该也要be了秩序出场到最终出场前还要再开一周目。code线还没开呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  milky658  
+##### 879#       发表于 2026-3-8 12:47
+
+这集叙事节奏好舒服，有条不紊地把上一周目的关键节点都做了回顾，还有人物弧光的回收
+
