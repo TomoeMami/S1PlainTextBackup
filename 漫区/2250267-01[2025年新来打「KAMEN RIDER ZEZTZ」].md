@@ -2225,3 +2225,12 @@ nox还要走一次程序修复腰带么</blockquote>
 
 老诺现在只能做双面间谍才能拿到腰带吧，但问题是夫人不睡觉，老诺又回不到现实，梦里还要去画家那里才能拿到暗码腰带，但又没有重构修复，下集拿头打啊。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  風卷豹  
+##### 894#       发表于 2026-3-8 18:09
+
+下集预告居然有4个特工站一起的画面。
+预知梦这个访谈一出我劝民那桑还是不要把剧情想得太复杂为好<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
