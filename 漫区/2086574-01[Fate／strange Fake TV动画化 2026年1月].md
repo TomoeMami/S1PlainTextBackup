@@ -1938,3 +1938,15 @@ fa ...</blockquote>
 以前讨论环境红A怎 ...</blockquote>
 农民单挑剑法不会输啊
 
+
+*****
+
+####  仟音一心  
+##### 1196#       发表于 2026-3-8 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69295905&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-3-8 12:30</a>
+西格玛是怎么知道杰斯塔真名的，我看到两个说法，一个是watcher和他讲的，一个是是他跟另一个死徒问的。
+fa ...</blockquote>
+1. 没记错的话是watcher的情报。
+2. 现在的话FGO里面很多已经不遵循这个职介规则了，Saber还有伊阿宋呢。
+
