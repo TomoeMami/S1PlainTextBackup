@@ -2066,3 +2066,11 @@ fa ...</blockquote>
 
 闪大哥躺得好搞笑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天王寺凯伊姆  
+##### 1209#       发表于 2026-3-9 01:28
+
+感觉还得是有闪大王的原生模式的圣杯战争，这关公战秦琼的热度让人回忆起十几年前
+
