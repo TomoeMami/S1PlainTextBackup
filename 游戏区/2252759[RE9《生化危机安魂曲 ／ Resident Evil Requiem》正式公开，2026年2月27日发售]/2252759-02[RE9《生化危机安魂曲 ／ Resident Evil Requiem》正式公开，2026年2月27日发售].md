@@ -4440,3 +4440,14 @@ ZENO的問題
 这个成就能打类固醇回血么</blockquote>
 类固醇不算，但做这个直接悠闲难度喘气回血都够用了
 
+
+*****
+
+####  cangyuyao  
+##### 1873#       发表于 2026-3-9 19:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69302522&amp;ptid=2252759" target="_blank">Muteki_Link 发表于 2026-3-9 17:57</a>
+说实话我感觉Zeno打针变小丑前一直表现得挺游刃有余的，没怎么感受到生命将逝的威胁，最后急着打针更像是 ...</blockquote>
+Elpis废的是t系吧，始祖病毒同源的全都无了，g也是t出来的
+我完全不怀疑这几个桥段是真的就是因为这堆东西跟前几代是一个模子出来的，病毒无端冒出来个副作用5代干了，反派无端给自己打针5代干了，反派无端突然良心发现56代都干了，纯正卡普空味<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
