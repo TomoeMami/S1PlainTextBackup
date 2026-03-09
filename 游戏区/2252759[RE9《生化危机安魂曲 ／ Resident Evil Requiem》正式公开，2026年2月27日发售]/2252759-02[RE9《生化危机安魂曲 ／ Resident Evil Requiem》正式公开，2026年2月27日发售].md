@@ -4192,3 +4192,17 @@ GRACE編開場第一身視點，沒武器時就已經直接衝去各種巨大BOS
 你 ...</blockquote>
 按照9代的表现,浣熊综合征是无解的.大家都在感到自己慢性消亡不可逆.和里昂雪梨不同,zeno应该是非常迫切想要改变现状,否则自己在联盟也会开始失势
 
+
+*****
+
+####  cangyuyao  
+##### 1856#       发表于 2026-3-9 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69300722&amp;ptid=2252759" target="_blank">windlikeman 发表于 2026-3-9 12:59</a>
+
+生化日英台词一直有很多微妙区别的
+
+比如4里里昂经典的泣けるぜ英文文本几乎每次都不一样</blockquote>
+
+生化的台词怎么看都是英文比日文更离谱吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">…………比如这次护士被砍了的冷笑话
+
