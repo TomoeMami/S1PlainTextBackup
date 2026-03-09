@@ -3951,3 +3951,26 @@ GRACE編開場第一身視點，沒武器時就已經直接衝去各種巨大BOS
 这四个应该都是格蕾丝的死因，我想一会试试能不能被开头的警察打死和被推土机撞死 ...</blockquote>
 都可以,而且不仅开枪,之后逃去开门时也可以被逮到咬死.推土机也可以被弄死
 
+
+*****
+
+####  渡边加奈子  
+##### 1837#       发表于 2026-3-9 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69294395&amp;ptid=2252759" target="_blank">sauron.j 发表于 2026-3-8 01:17</a>
+
+癫狂难度……这可能是玛蒂尔达雪耻的一集，两把破手枪毛用都没
+
+玩多了发现这一代美术和氛围是靠拢123老生 ...</blockquote>
+玛蒂尔达还是有些烧钱,总觉得钱有更值得花的地方
+
+
+*****
+
+####  Chao  
+##### 1838#       发表于 2026-3-9 10:11
+
+这代的剧本在设定维克托是个大忽悠的前提下，才能圆起来<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。
+
+难以想象这是做出了启示录1这种神剧本，和7的自洽剧本的中西晃史的作品。
+
