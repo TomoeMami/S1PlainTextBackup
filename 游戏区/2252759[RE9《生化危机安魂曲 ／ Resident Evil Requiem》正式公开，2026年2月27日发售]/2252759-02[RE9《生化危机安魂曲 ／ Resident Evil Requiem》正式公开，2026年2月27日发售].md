@@ -4300,3 +4300,40 @@ ZENO的問題
 
 主要是癫狂开枪太快了，我还没搞清楚眼前这枪管算左还是右就寄了。不得不说后面过去也是瞎搓过去的，远没有之前的难度有条理。
 
+
+*****
+
+####  雲夢淵澤  
+##### 1862#       发表于 2026-3-9 16:58
+
+躲喷子没意义，不如直接roll它会不会第一枪打空。
+
+你躲了以后挣脱进度就归零，结果你还是要从头开始按是何意？
+
+它开枪不是必中的，直接挣脱，只要第一枪空了就过了
+
+*****
+
+####  qappip  
+##### 1863#       发表于 2026-3-9 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69300477&amp;ptid=2252759" target="_blank">pentacles 发表于 2026-3-9 12:11</a>
+忘了在哪看到的这作原本男主应该是杰克的猜想，通关后感觉也许有点可能：
+
+毒血或对病毒免疫的相关内容；
+
+某 ...</blockquote>
+换成杰克剧情会比较理顺，里昂剧情最大问题一个临死之人完全想不到自己老婆，警察局又安排很多里昂是同理心共情都有正常人片段，通关里昂带婚戒把我整不会了，感情结婚了，你是形婚吗？
+
+—— 来自 vivo V2436A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  otakun  
+##### 1864#       发表于 2026-3-9 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69302156&amp;ptid=2252759" target="_blank">qappip 发表于 2026-3-9 17:00</a>
+换成杰克剧情会比较理顺，里昂剧情最大问题一个临死之人完全想不到自己老婆，警察局又安排很多里昂是同理 ...</blockquote>
+那么只有一个可能，他老婆在游戏里已经有镜头出现过了，那就是雪莉！<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">（不对
+
