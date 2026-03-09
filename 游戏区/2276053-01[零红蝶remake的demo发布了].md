@@ -850,3 +850,13 @@ pdd百亿补贴呢
 
 有鬼手吧，之前有个宣传视频里摸万叶丸出鬼手<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  如月尤菲  
+##### 83#       发表于 2026-3-9 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69300177&amp;ptid=2276053" target="_blank">u2deack 发表于 2026-3-9 11:21</a>
+那他们可以去玩之前有一个制服jk用枪械打鬼的游戏</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在年轻玩家，反而游戏越多却玩的越窄了，能说出生化一直越肩视角
+
