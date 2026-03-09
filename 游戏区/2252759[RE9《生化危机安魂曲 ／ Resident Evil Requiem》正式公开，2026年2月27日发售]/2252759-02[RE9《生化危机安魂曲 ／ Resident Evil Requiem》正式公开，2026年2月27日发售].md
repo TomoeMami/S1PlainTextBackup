@@ -4177,3 +4177,18 @@ GRACE編開場第一身視點，沒武器時就已經直接衝去各種巨大BOS
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便看了直播才知道 这2级卡丧尸拼完复活后直接跑 过一小会他会自己死在那里
 
+
+*****
+
+####  渡边加奈子  
+##### 1855#       发表于 2026-3-9 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69300550&amp;ptid=2252759" target="_blank">mai6696 发表于 2026-3-9 12:25</a>
+
+我还是无法理解ZENO为什么拿到药就往自己身上扎。
+
+就算是什么控制思想的病毒，那也得有个使用说明书吧？
+
+你 ...</blockquote>
+按照9代的表现,浣熊综合征是无解的.大家都在感到自己慢性消亡不可逆.和里昂雪梨不同,zeno应该是非常迫切想要改变现状,否则自己在联盟也会开始失势
+
