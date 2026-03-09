@@ -2140,3 +2140,14 @@ fa ...</blockquote>
 
 <img src="https://img.stage1st.com/forum/202603/09/093010o6226rzrr2044302.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  razielzyc  
+##### 1214#       发表于 2026-3-9 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69297939&amp;ptid=2086574" target="_blank">仟音一心 发表于 2026-3-8 21:18</a>
+
+理查的永恒遥远的胜利之剑最高只有A+对军（即使拿到圣剑本体也只能到这个等级），阿尔托莉雅的誓约胜利之 ...</blockquote>
+fsf这批从者里理查是不是顶多算中等强度的从者。感觉开膛手杰克上限都比他高?理论上讲，把它丢到上海，东京这种特大人口城市强度可以拉满。没出来的苍白骑士，实际理论上限也极强。闪闪，恩奇都这些都不用说了。感觉这代saber只能跟assassin坐一桌。
+
