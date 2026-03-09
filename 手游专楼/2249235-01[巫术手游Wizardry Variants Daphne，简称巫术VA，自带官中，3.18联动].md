@@ -27,3 +27,11 @@
 已经有4chan鬼佬拿到8w7绿石了
 [https://rentry.org/wizg_mistplay_gems](https://rentry.org/wizg_mistplay_gems)
 
+
+*****
+
+####  UnknownRei  
+##### 742#       发表于 2026-3-9 21:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这个Tapjoy加的实在是太傻逼了，坐实了drecom有多贪婪&amp;低开发力
+
