@@ -838,3 +838,16 @@ konami足球棒球手游才是营收主力，主机游戏业务没啥能吹的
 
 就看K社这玩法能维持多久吧<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  flyzzhj  
+##### 85#       发表于 2026-3-9 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69296338&amp;ptid=2276212" target="_blank">plok201 发表于 2026-3-8 14:05</a>
+
+国内讨论区就没把桃铁当游戏，整个konami只有合金装备和恶魔城算游戏
+
+寂静岭因为出新作了，属于不算游戏 ...</blockquote>
+今年科婊那个恶魔城饼还不知道打不打得过五十岚那个血污2呢
+
