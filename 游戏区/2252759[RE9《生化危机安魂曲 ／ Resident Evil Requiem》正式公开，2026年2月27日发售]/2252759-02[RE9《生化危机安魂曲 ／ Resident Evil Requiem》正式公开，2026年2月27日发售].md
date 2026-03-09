@@ -3926,3 +3926,17 @@ GRACE編開場第一身視點，沒武器時就已經直接衝去各種巨大BOS
 
 而且维克多的行为一直都不小丑啊，他就是个科学疯子，听了斯宾塞的病毒永生论之后全盘认可，谁都不能撼动，就算是斯宾塞本人来都不行。
 
+
+*****
+
+####  cangyuyao  
+##### 1835#       发表于 2026-3-9 09:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69298870&amp;ptid=2252759" target="_blank">Sissii 发表于 2026-3-9 03:11</a>
+结局CG，维克多原话：“艾米莉和格蕾丝之间没有任何关联” 
+
+他都验过血了，他还懂不懂格蕾丝是啥人吗，所 ...</blockquote>
+这句英文和日文不一样，英文是她们之间没有关系，日文是（研究）和她们都没有关系
+
+你问我信哪个，我信卡普空根本不知道自己写了啥<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
