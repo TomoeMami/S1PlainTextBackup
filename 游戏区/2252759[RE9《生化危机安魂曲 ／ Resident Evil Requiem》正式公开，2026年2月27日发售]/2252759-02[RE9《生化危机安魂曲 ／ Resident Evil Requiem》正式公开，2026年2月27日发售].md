@@ -4459,3 +4459,24 @@ Elpis废的是t系吧，始祖病毒同源的全都无了，g也是t出来的
 
 刚打完疗养院，里昂战斗爽5分钟，格蕾丝生存恐惧两小时，后面还会这样吗，我要战斗爽呀
 
+
+*****
+
+####  P-link  
+##### 1875#       发表于 2026-3-9 23:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69303761&amp;ptid=2252759" target="_blank">螺旋的小夜曲 发表于 2026-3-9 22:51</a>
+
+刚打完疗养院，里昂战斗爽5分钟，格蕾丝生存恐惧两小时，后面还会这样吗，我要战斗爽呀 ...</blockquote>
+到了浣熊市就是战斗爽了，就是浣熊市的敌人的膝盖和头比疗养院的更硬，还有把捡来的霰弹买了，那是废物，买商店里面的
+
+
+*****
+
+####  红魔馆的糖  
+##### 1876#       发表于 2026-3-9 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69303761&amp;ptid=2252759" target="_blank">螺旋的小夜曲 发表于 2026-3-9 22:51</a>
+刚打完疗养院，里昂战斗爽5分钟，格蕾丝生存恐惧两小时，后面还会这样吗，我要战斗爽呀 ...</blockquote>
+后半段基本都是里昂了
+
