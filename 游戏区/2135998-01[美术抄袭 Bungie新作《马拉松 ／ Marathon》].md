@@ -1332,3 +1332,15 @@ TWAB（不是
 
 <img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">单排碰上2黑概率挺高的，跟着配合打打工还行，就是不太能指望对方也帮你做合约了，这游戏怎么就不能匹配后再进，好歹能调整下合约，现在单排基本只能带些小任务混经验了
 
+
+*****
+
+####  zzy516232108  
+##### 254#       发表于 2026-3-9 08:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69298828&amp;ptid=2135998" target="_blank">火红之眼 发表于 2026-3-9 02:17</a>
+单排碰上2黑概率挺高的，跟着配合打打工还行，就是不太能指望对方也帮你做合约了，这游戏怎么就不能匹配后 ...</blockquote>
+后面都是长任务，单排很难做
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
