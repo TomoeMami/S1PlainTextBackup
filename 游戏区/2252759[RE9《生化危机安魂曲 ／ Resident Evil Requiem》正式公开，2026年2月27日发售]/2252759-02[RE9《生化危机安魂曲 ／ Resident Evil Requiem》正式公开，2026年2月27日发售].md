@@ -4397,3 +4397,20 @@ ZENO的問題
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉这个威斯克复制人比启示录2巴瑞线那个自杀转生失败的女威斯克还小丑
 
+
+*****
+
+####  eilot  
+##### 1870#       发表于 2026-3-9 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69302671&amp;ptid=2252759" target="_blank">Andariel 发表于 2026-3-9 18:28</a>
+
+感觉这个威斯克复制人比启示录2巴瑞线那个自杀转生失败的女威斯克还小丑</blockquote>
+威姨才是真正轉生成功，這在HE中證實了
+
+至於威姨原本的身體，她原本目的就是舊的身體能死透，和魔偶馬戲團那位無臉的手段類似
+
+只是舊的身體被恐懼T強行復活回來
+
+不過就算是BE，最後她都會自行解決了舊的身體
+

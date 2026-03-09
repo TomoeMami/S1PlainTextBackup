@@ -420,3 +420,26 @@ honeyworks的垃圾烂大街偶像曲3个月播放40万
 
 一换路线3天播放30万，果然就是听腻了
 
+
+*****
+
+####  holofan  
+##### 11510#       发表于 2026-3-9 18:17
+
+<img src="https://img.stage1st.com/forum/202603/09/181709ewn8hgnkpagwpxgn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (63.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-9 18:17 上传
+
+现在就这环境<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 11511#       发表于 2026-3-9 18:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没有ns2，可以安心看35播新宝游戏了
+
