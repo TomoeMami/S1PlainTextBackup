@@ -3940,3 +3940,14 @@ GRACE編開場第一身視點，沒武器時就已經直接衝去各種巨大BOS
 
 你问我信哪个，我信卡普空根本不知道自己写了啥<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡边加奈子  
+##### 1836#       发表于 2026-3-9 09:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69290980&amp;ptid=2252759" target="_blank">Edgefield 发表于 2026-3-7 10:59</a>
+
+这四个应该都是格蕾丝的死因，我想一会试试能不能被开头的警察打死和被推土机撞死 ...</blockquote>
+都可以,而且不仅开枪,之后逃去开门时也可以被逮到咬死.推土机也可以被弄死
+
