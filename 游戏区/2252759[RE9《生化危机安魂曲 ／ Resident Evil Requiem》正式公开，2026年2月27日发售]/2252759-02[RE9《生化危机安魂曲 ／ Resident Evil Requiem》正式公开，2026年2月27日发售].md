@@ -4430,3 +4430,13 @@ ZENO的問題
 
 2026-3-9 18:52 上传
 
+
+*****
+
+####  otakun  
+##### 1872#       发表于 2026-3-9 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69302769&amp;ptid=2252759" target="_blank">梅斯之围 发表于 2026-3-9 18:52</a>
+这个成就能打类固醇回血么</blockquote>
+类固醇不算，但做这个直接悠闲难度喘气回血都够用了
+
