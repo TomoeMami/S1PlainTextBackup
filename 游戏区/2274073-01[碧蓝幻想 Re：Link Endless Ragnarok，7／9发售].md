@@ -730,3 +730,11 @@ ns2版不知道能不能60帧
 
 淦想着抽选就没去申请，原来是点击就有吗？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不过这次测试就看下ns2优化了
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 82#       发表于 2026-3-10 00:58
+
+贝雅特丽丝这动作模组简直母SOL，ARC做的动作游戏菜了，能在这里弥补一些遗憾<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
