@@ -18,3 +18,12 @@
 
 只能随缘玩了，作为一个RPG主线年更已经很变态了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 741#       发表于 2026-3-9 17:53
+
+已经有4chan鬼佬拿到8w7绿石了
+[https://rentry.org/wizg_mistplay_gems](https://rentry.org/wizg_mistplay_gems)
+
