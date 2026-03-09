@@ -35,3 +35,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这个Tapjoy加的实在是太傻逼了，坐实了drecom有多贪婪&amp;低开发力
 
+
+*****
+
+####  茄子自走炮  
+##### 743#       发表于 2026-3-10 00:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这东西不能用v 和我无关
+
