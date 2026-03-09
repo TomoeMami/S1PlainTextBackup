@@ -2085,3 +2085,23 @@ fa ...</blockquote>
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  丹德里恩  
+##### 1211#       发表于 2026-3-9 09:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69298816&amp;ptid=2086574" target="_blank">7do 发表于 2026-3-9 01:55</a>
+
+英灵不是可以直接消失隐藏起来的吗
+
+理查躺那还要人搀扶是干什么</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">脱战之后才能潜行
+
+*****
+
+####  風卷豹  
+##### 1212#       发表于 2026-3-9 09:26
+
+开播以来最烂的一集
+
