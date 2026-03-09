@@ -2389,3 +2389,39 @@ loop，然后成为谜语人！
 
 梦里全都有<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  马桶3  
+##### 907#       发表于 2026-3-8 22:34
+
+二周目愚蠢开局，竟然暴露了自己有上周目记忆<img src="https://static.stage1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黄泉川此方  
+##### 908#       发表于 2026-3-8 23:41
+
+ 本帖最后由 黄泉川此方 于 2026-3-9 00:02 编辑 
+
+先当一集谜语人爽爽<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  失落之翼  
+##### 909#       发表于 2026-3-8 23:44
+
+梦里全都有<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  失落之翼  
+##### 910#       发表于 2026-3-9 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69297353&amp;ptid=2250267" target="_blank">blue321 发表于 2026-3-8 18:56</a>
+
+但是这二周目要怎样才能把灾厄大人逼到用奶，然后抢过来
+
+—— 来自 鹅球 v3.4.98 ...</blockquote>
+直接滑轨抱灾厄大人大腿啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

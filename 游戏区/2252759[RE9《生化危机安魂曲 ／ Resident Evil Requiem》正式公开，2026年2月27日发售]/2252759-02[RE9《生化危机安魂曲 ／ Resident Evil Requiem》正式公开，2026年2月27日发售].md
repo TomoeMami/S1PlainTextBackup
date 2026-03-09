@@ -3986,3 +3986,41 @@ GRACE編開場第一身視點，沒武器時就已經直接衝去各種巨大BOS
 3、明明被维克多的触手捅到肚子流血 最后居然无事发生醒过来喝咖啡等待撤离
 4、怎么不让格蕾丝亲自回去把妹妹救回来 依托答辩里面露出来个小女孩 真难崩
 
+
+*****
+
+####  otakun  
+##### 1840#       发表于 2026-3-9 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69290980&amp;ptid=2252759" target="_blank">Edgefield 发表于 2026-3-7 10:59</a>
+这四个应该都是格蕾丝的死因，我想一会试试能不能被开头的警察打死和被推土机撞死 ...</blockquote>
+我玩癫狂模式之前也以为警察的散弹枪只是做做样子，前面玩都没关左右闪避直接按挣脱的<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">，结果癫狂第一血就被警察拿了
+
+
+*****
+
+####  Edgefield  
+##### 1841#       发表于 2026-3-9 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69300007&amp;ptid=2252759" target="_blank">otakun 发表于 2026-3-9 10:56</a>
+
+我玩癫狂模式之前也以为警察的散弹枪只是做做样子，前面玩都没关左右闪避直接按挣脱的，结果癫狂第一血就 ...</blockquote>
+我不一样，我一周目传统难度上来就被警察来了一枪屏幕红了， 所以我知道这里会死人<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 1842#       发表于 2026-3-9 11:03
+
+维克托大忽悠其实也挺难圆的，真为了忽悠泽诺那旅馆和格蕾丝剧情演给谁看啊
+
+现在重看序章剧情，想到维克托为了布置现场又是照片上贴钥匙，又是开关门吓格蕾丝，放一台新的收音机和一堆照片衬托气氛，保证火灾现场通电开灯，搬一台留声机过来装逼
+
+因为这次病毒全靠打针而且见效快，也就是他给警察打完针后得立马跑去楼上坐着，如果二楼钥匙只有一条的话，他还要把钥匙布置到手推车上顺便锁好门
+
+疗养院那里通电话说成功了是挂了电话再兴奋说了好几次
+
+明显是格蕾丝确实有啥特别所以高兴起来，总不能是觉得自己成功忽悠泽诺高兴吧<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+反正这游戏的维克托真的整蛊，前期拼命装，好像有什么大计划，疗养院搞一堆有的没的生怕格蕾丝不死，一到浣熊市变成RPG飞车党，然后就下线到大结局唐突复仇女神
+
