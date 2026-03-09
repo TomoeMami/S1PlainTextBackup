@@ -2452,3 +2452,25 @@ loop，然后成为谜语人！
 灾厄大王是不是有四种颜色胶囊的能力？理论上他也能造黑洞碎天体么</blockquote>
 应该没有吧，顶多带一点效果但是没有完全附带满格能力，不然何必掏回复胶囊，直接灾厄手搓不就好了
 
+
+*****
+
+####  挺好的  
+##### 914#       发表于 2026-3-9 16:20
+
+ 本帖最后由 挺好的 于 2026-3-9 16:22 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69301482&amp;ptid=2250267" target="_blank">洛克萨斯 发表于 2026-3-9 15:17</a>
+
+灾厄大王是不是有四种颜色胶囊的能力？理论上他也能造黑洞碎天体么</blockquote>
+回错了
+
+*****
+
+####  挺好的  
+##### 915#       发表于 2026-3-9 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69301753&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-3-9 15:59</a>
+
+应该没有吧，顶多带一点效果但是没有完全附带满格能力，不然何必掏回复胶囊，直接灾厄手搓不就好了 ...</blockquote>
+恢复本质是宁梦用扭蛋机捏出来的，而23集也展现了一点宁梦的回复能力，自然算不上灾厄自己的能力
+
