@@ -2509,3 +2509,14 @@ loop，然后成为谜语人！
 但就目前灾厄的表现，也出现了最强派生形态重力的重力操控，那自然也能使用其他胶囊的能力，但剧组没表现 ...</blockquote>
 所以我说能用一定的能力，但是没有满格
 
+
+*****
+
+####  pokemon最爱  
+##### 919#       发表于 2026-3-9 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69301753&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-3-9 15:59</a>
+
+应该没有吧，顶多带一点效果但是没有完全附带满格能力，不然何必掏回复胶囊，直接灾厄手搓不就好了 ...</blockquote>
+灾厄切回复是因为灾厄自带的回复能力已经满载用于奶灾厄自身强大的力量带来的反伤了，不是灾厄没有回复能力<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

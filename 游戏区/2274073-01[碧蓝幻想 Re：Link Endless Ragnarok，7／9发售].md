@@ -722,3 +722,11 @@ ns2版不知道能不能60帧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">ps5版代码也还不给兑换
 
+
+*****
+
+####  黑酒杯  
+##### 81#       发表于 2026-3-9 17:15
+
+淦想着抽选就没去申请，原来是点击就有吗？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不过这次测试就看下ns2优化了
+
