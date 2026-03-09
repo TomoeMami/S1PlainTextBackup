@@ -4488,3 +4488,21 @@ Elpis废的是t系吧，始祖病毒同源的全都无了，g也是t出来的
 
 玩癫狂难度这次先跳了地下打完再回头拿酸液，突发奇想抱着艾米利过去，反正怪都被里昂清了，结果抱着小孩拿了酸野回去直接跳过在研究主任室里跟维克托相遇那段过场<img src="https://static.stage1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">，没事发生。
 
+
+*****
+
+####  leavan  
+##### 1878#       发表于 2026-3-9 23:51
+
+<img src="https://img.stage1st.com/forum/202603/09/235009ye4s45sqaqvoe1ok.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2655.jpeg</strong> (261.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-9 23:50 上传
+
+有没有买过的，说说这个版本画面有没有和谐
+
+版本很怪，背面显示是港版，前面有日文，名称又是bio
+
