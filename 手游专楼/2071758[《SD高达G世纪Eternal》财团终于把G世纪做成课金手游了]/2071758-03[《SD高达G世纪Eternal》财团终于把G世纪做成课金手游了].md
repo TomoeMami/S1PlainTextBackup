@@ -715,3 +715,15 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 33，会送一台age2
 
+
+*****
+
+####  无念  
+##### 3734#       发表于 2026-3-9 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69298807&amp;ptid=2071758" target="_blank">ティグル 发表于 2026-3-9 01:47</a>
+33，会送一台age2</blockquote>
+奶茶自己要吃一台
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
