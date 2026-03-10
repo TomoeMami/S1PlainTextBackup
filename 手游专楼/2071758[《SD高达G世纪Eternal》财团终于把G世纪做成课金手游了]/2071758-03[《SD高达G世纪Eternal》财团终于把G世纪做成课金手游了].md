@@ -750,3 +750,16 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 下半还要刷，太享受了</blockquote>
 没事，抄攻略过了ex了，开发机不用AGE2本体，只要搞定另外9台+AGE1本体，用14船+1破密涅瓦号打过了
 
+
+*****
+
+####  AminGly  
+##### 3737#       发表于 2026-3-10 19:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69301358&amp;ptid=2071758" target="_blank">ティグル 发表于 2026-3-9 14:58</a>
+
+那就是36了
+
+下半还要刷，太享受了</blockquote>
+还是33 会送3个碎片的
+
