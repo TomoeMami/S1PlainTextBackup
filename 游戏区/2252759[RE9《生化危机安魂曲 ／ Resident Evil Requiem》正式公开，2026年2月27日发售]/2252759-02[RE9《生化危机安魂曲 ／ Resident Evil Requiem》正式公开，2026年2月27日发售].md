@@ -4537,3 +4537,18 @@ Elpis废的是t系吧，始祖病毒同源的全都无了，g也是t出来的
 
 癫狂多了好多古董钱币，就没用了吗？
 
+
+*****
+
+####  mai6696  
+##### 1882#       发表于 2026-3-10 08:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69304183&amp;ptid=2252759" target="_blank">shamanda 发表于 2026-3-10 01:46</a>
+
+癫狂多了好多古董钱币，就没用了吗？</blockquote>
+后期拿到硫酸配方之后好像5个币能做一个金属废料？
+
+我癫狂刚开始玩，杀了厨子有币，关灯哥有币，清扫姐也有币。
+
+但是我缺的储藏室钥匙谁给我补啊？
+
