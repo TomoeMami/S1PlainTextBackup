@@ -4580,3 +4580,34 @@ Elpis废的是t系吧，始祖病毒同源的全都无了，g也是t出来的
 到了浣熊市就是战斗爽了，就是浣熊市的敌人的膝盖和头比疗养院的更硬，还有把捡来的霰弹买了，那是废物， ...</blockquote>
 为啥要用商店的霰弹枪？捡的那把弹道宽感觉打 aoe 挺爽的
 
+
+*****
+
+####  Muteki_Link  
+##### 1886#       发表于 2026-3-10 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69304950&amp;ptid=2252759" target="_blank">灵魂收割机 发表于 2026-3-10 09:50</a>
+
+老威打的病毒按生5的说法是“試作段階のウィルス”，病毒性质按安布雷拉编年史攻略书的说法是t病毒。总之 ...</blockquote>
+特地去查了一下资料，不看不知道看了吓一跳，还抱着早期威斯克报告书的几十年的认知直接被刷新了好几层。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+当年报告书里威廉给的病毒确实没明确说是什么病毒，可能当年以为威廉一心研究g病毒就顺道以为是g病毒研究产物了。然后从5开始一下子刷新了好多设定，明确威廉给的是始祖病毒变异株，还有威斯克计划（project W）等于威斯克也是安布雷拉造出来的特殊体，威廉给威斯克的病毒其实是斯宾塞给的，又又又又是斯宾塞的大棋。
+
+还有我一直以为杰克是跟mgs片场的魔童计划一样是试管研究出来的儿子，没想到是威斯克入警队前真的成过家<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ——啧  
+##### 1887#       发表于 2026-3-10 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69299913&amp;ptid=2252759" target="_blank">snowism 发表于 2026-3-9 10:42</a>
+终于打完了 好想吐槽几个点（防剧透已隐藏）
+
+1、俩反派最后内讧对喷场面一度小丑
+
+2、格蕾丝到底什么身份 也 ...</blockquote>
+都做了怎么出DLC<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
