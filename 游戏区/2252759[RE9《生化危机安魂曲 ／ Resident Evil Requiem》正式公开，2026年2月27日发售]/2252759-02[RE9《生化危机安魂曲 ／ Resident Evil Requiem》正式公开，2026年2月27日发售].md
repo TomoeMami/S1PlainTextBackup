@@ -4852,3 +4852,12 @@ RE系列有剧情吗，正作全是B级片小点子集锦<img src="https://stati
 
 ZENO才是搞笑，連一場戰鬥都沒有，會直接給威叔的動作嗎嗎
 
+
+*****
+
+####  cangyuyao  
+##### 1911#       发表于 2026-3-10 21:02
+
+生化危机宣发这么巨魔的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+点开转发神谷在那问能不能做个不恐怖的模式……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
