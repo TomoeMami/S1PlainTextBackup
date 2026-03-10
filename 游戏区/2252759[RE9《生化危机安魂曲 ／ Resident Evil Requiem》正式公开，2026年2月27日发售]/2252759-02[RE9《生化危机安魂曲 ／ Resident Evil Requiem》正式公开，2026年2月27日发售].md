@@ -4869,3 +4869,14 @@ ZENO才是搞笑，連一場戰鬥都沒有，會直接給威叔的動作嗎嗎
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">打完了，格蕾丝这报告真敢写啊，不怕背后8枪，官宣紫砂吗
 
+
+*****
+
+####  P-link  
+##### 1913#       发表于 2026-3-10 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69307391&amp;ptid=2252759" target="_blank">shamanda 发表于 2026-3-10 16:52</a>
+
+是的后来我在楼梯上发现打腿比较容易出体术，但是时间太短了，我在楼梯下面打出体术，兴冲冲跑上去发现它 ...</blockquote>
+格蕾丝的原配枪才好出硬直。
+
