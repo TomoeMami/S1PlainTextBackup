@@ -4725,3 +4725,28 @@ RE系列有剧情吗，正作全是B级片小点子集锦<img src="https://stati
 发现这次安魂曲太适合没什么时间的上班族了，开荒随性打、二周目解4小时不吃药和极简和最终彩蛋前置、三周 ...</blockquote>
 完全同意。一周目完全断绝外界自己打，通关后文档分别就少了格蕾丝开头和里昂开那份头，然后也是悠闲搞成就，现在癫狂爽炸中<img src="https://static.stage1st.com/image/smiley/animal2017/004.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 1899#       发表于 2026-3-10 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69306886&amp;ptid=2252759" target="_blank">Muteki_Link 发表于 2026-3-10 15:26</a>
+
+发现这次安魂曲太适合没什么时间的上班族了，开荒随性打、二周目解4小时不吃药和极简和最终彩蛋前置、三周 ...</blockquote>
+4R最可惜還是那支火箭炮，是只限在2周目在商店購買才能使用，而不是通關特典武器
+
+4R追評價時，雖然能用特典武器但一定要新周目，不能哈哈哈隨便火箭炮來直接暴力開路
+
+*****
+
+####  Muteki_Link  
+##### 1900#       发表于 2026-3-10 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69307009&amp;ptid=2252759" target="_blank">otakun 发表于 2026-3-10 15:47</a>
+
+完全同意。一周目完全断绝外界自己打，通关后文档分别就少了格蕾丝开头和里昂开那份头，然后也是悠闲搞成 ...</blockquote>
+癫狂强度哪怕有无限子弹，手枪类除了隐藏的玛蒂尔达外已经全面被淘汰了，喷子都降格当手枪用了。而且我记得死亡时官方tips还会提示你去cp商店购买强力升级，基本可以认定官方就是默认你癫狂要结合cp来玩的。
+
+不过我疗养院篇格蕾丝还是花了很长时间，主要是想尽量不杀丧尸多留怪给里昂杀能赚钱，癫狂难度武器价格也涨价了，加上高额极限改造费，我前期真的怕钱不够。还好后面发现cp解锁的武器多数不用改造。
+
