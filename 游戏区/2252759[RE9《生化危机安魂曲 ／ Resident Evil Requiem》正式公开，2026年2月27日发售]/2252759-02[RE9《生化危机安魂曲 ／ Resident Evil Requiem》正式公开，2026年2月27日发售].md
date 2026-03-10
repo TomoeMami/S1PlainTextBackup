@@ -4656,3 +4656,14 @@ Elpis废的是t系吧，始祖病毒同源的全都无了，g也是t出来的
 
 RE系列有剧情吗，正作全是B级片小点子集锦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，7代以后反而已经现代化改造，人文色彩多了
 
+
+*****
+
+####  P-link  
+##### 1892#       发表于 2026-3-10 14:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69305157&amp;ptid=2252759" target="_blank">这次是十块钱 发表于 2026-3-10 10:16</a>
+
+为啥要用商店的霰弹枪？捡的那把弹道宽感觉打 aoe 挺爽的</blockquote>
+威力低且停止力不够。
+
