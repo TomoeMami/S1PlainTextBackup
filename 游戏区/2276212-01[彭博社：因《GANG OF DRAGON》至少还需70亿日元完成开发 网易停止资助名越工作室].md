@@ -891,3 +891,22 @@ konami足球棒球手游才是营收主力，主机游戏业务没啥能吹的
 
 —— 来自 vivo V2218A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  北魏汉化组  
+##### 90#       发表于 2026-3-10 10:10
+
+榜一大哥不愿做冤大头了
+
+*****
+
+####  nianiania  
+##### 91#       发表于 2026-3-10 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69293170&amp;ptid=2276212" target="_blank">Akmenter 发表于 2026-3-7 20:08</a>
+玩腾讯网易游戏一分钱不充，这帮玩意拿从国内玩家那盘剥来的钱在国外大撒笔，都当金主了还没有夹带私货的自 ...</blockquote>
+腾讯好歹还是愿意投资下国内做单机的，虽然要求定的高一些，狗逼网易是真的眼高于顶，根本不拿眼睛看人
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

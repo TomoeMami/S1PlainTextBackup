@@ -750,3 +750,17 @@ ns2版不知道能不能60帧
 
 我想问问这个资料片增加的内容会不会导致无印版的大量刷刷内容失去意义？我是吃屎也想尽量吃原味党，纠结
 
+
+*****
+
+####  魂淡放我出去  
+##### 84#       发表于 2026-3-10 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69304228&amp;ptid=2274073" target="_blank">shyso 发表于 2026-3-10 02:35</a>
+话说作为前骑空士，我开始玩gbf的原因就是relink的公布，但因为一直没时间玩一直就没买，还想着什么时候有 ...</blockquote>
+还不确定这个dlc难度设定是终局内容还是像牛一样插在中间吧
+
+如果是终局内容，那至少找人带到原巴，刷到主力角色巴武齐全，进dlc才不会拖后腿
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
