@@ -58,3 +58,28 @@
 
 steam放个demo不行吗还搞封测，不知道的还以为是什么手游<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 854#       发表于 2026-3-10 17:27
+
+一个rm游戏remake能拖上3年只能说制作组要么没钱磨洋工，要么想加的东西太多了争论不休没统一方向<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苇原雪道  
+##### 855#       发表于 2026-3-10 17:32
+
+封测了？听上去是基本开发完成了？
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  topia  
+##### 856#       发表于 2026-3-10 17:33
+
+单机游戏搞封测是几个意思<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
