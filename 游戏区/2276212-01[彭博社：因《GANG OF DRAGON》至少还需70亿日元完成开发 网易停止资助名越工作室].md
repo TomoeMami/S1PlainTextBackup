@@ -960,3 +960,28 @@ konami足球棒球手游才是营收主力，主机游戏业务没啥能吹的</
 对于开发大型游戏来说70亿日元其实不算特别多，对比号称预算不高的游戏宝可梦za，第一个季度ns2实体版卖 ...</blockquote>
 这70亿不是总预算，而是网易全资给名越组工作室折腾了4年毫无产出后又喊出来的追加投资。也就是说成本150亿打底。更别提这钱绝对还没有考虑销售宣传和光盘等的额外成本
 
+
+*****
+
+####  riin2  
+##### 97#       发表于 2026-3-10 16:44
+
+这钱给国内早就做出黑神话了，还用得着游科<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ネコカイザー  
+##### 98#       发表于 2026-3-10 16:48
+
+能不能给mono打个真的富裕仗啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Synopses6087  
+##### 99#       发表于 2026-3-10 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69293135&amp;ptid=2276212" target="_blank">乔迪奥 发表于 2026-3-7 19:59</a>
+
+武侠光荣还真不一定懂，这边给好世界观和美术，以忍者组的本事做个8分游戏还是手拿把掐的 ...</blockquote>
+燕云现在还在 Steam 畅销榜17 挂着，忍者组的 8 分游戏在哪呢，仁王还是浪人崛起
+

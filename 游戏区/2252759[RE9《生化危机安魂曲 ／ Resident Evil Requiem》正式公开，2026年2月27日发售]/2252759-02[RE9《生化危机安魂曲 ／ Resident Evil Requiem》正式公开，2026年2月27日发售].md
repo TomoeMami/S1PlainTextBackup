@@ -4810,3 +4810,15 @@ RE系列有剧情吗，正作全是B级片小点子集锦<img src="https://stati
 
 癫狂红头只能练完美弹反处决，要么就用地上的投掷物打硬直处决
 
+
+*****
+
+####  shamanda  
+##### 1907#       发表于 2026-3-10 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69307281&amp;ptid=2252759" target="_blank">Muteki_Link 发表于 2026-3-10 16:35</a>
+癫狂普通丧尸打头连喷子都很难击退，所以说喷子降格成手枪手枪直接淘汰，突击步枪更是气氛组了，能一击杀 ...</blockquote>
+是的后来我在楼梯上发现打腿比较容易出体术，但是时间太短了，我在楼梯下面打出体术，兴冲冲跑上去发现它已经站起来了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+但是格蕾丝那边又是打头容易出。做最终迷题那个绞肉传送带，我带的是cp那把用手抢子弹的冲锋枪，一开始打腿发现打到死都不出体术，害得我以为这周目都要拿不到娃娃了，后来发现打头容易出点。
+
