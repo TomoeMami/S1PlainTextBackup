@@ -92,3 +92,13 @@
 
 感觉主线也不要什么苦大仇深拯救世界了，型月世界哪个故事有遗憾？旮旯地联动提供IF版本！<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 20585#       发表于 2026-3-10 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69307313&amp;ptid=2084912" target="_blank">失落之翼 发表于 2026-3-10 16:40</a>
+感觉主线也不要什么苦大仇深拯救世界了，型月世界哪个故事有遗憾？旮旯地联动提供IF版本！ ...</blockquote>
+个人的幻想是5月联动FSF ，然后借这个联动引出第五兽，然后将迦勒底和第五兽的矛盾彻底引爆，接入六月的主线。
+
