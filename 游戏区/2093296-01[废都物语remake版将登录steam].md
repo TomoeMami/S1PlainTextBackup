@@ -150,3 +150,11 @@ steam放个demo不行吗还搞封测，不知道的还以为是什么手游<img 
 
 谨慎观望
 
+
+*****
+
+####  嘉术2015  
+##### 865#       发表于 2026-3-10 22:25
+
+谨慎不看好<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
