@@ -118,3 +118,11 @@ steam放个demo不行吗还搞封测，不知道的还以为是什么手游<img 
 
 填了问卷，希望能抽上吧，已经等太久了
 
+
+*****
+
+####  七千星  
+##### 861#       发表于 2026-3-10 19:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">抓免费苦力吧
+
