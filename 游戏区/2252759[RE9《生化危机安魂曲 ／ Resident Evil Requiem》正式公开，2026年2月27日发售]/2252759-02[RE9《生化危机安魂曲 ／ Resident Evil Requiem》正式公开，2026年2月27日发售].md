@@ -4611,3 +4611,15 @@ Elpis废的是t系吧，始祖病毒同源的全都无了，g也是t出来的
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cangyuyao  
+##### 1888#       发表于 2026-3-10 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69306027&amp;ptid=2252759" target="_blank">Muteki_Link 发表于 2026-3-10 12:26</a>
+特地去查了一下资料，不看不知道看了吓一跳，还抱着早期威斯克报告书的几十年的认知直接被刷新了好几层。 ...</blockquote>
+试作型T病毒是UC提出的，但被生5搞成了一盘大棋……生5左右脑互搏一边把战力堆得神乎其神一边开各种各样的后门用来剧情杀
+
+生6，你甚至都不知道杰克出生的时候从哪来的抗体遗传<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
