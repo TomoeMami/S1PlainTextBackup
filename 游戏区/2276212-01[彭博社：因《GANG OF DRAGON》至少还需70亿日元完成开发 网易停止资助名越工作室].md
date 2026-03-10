@@ -910,3 +910,16 @@ konami足球棒球手游才是营收主力，主机游戏业务没啥能吹的
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  C.W.Nimitz  
+##### 92#       发表于 2026-3-10 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69296327&amp;ptid=2276212" target="_blank">bonysl 发表于 2026-3-8 14:03</a>
+
+konami足球棒球手游才是营收主力，主机游戏业务没啥能吹的</blockquote>
+虽然但是
+
+目前找第三方外包搞出高质量成果的主要还是konami，寂静岭2，F，全是外包的，销量口碑都不错
+
