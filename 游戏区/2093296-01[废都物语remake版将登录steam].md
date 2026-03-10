@@ -174,3 +174,13 @@ steam放个demo不行吗还搞封测，不知道的还以为是什么手游<img 
 
 这还是在联系了汉化人员的情况下，一个单机remake做四年，消息都没两个<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rainwedell  
+##### 868#       发表于 2026-3-11 03:19
+
+本身就不是游戏厂也没找成熟外包，约等于上面有人花钱追星自己搞了个草台班子做，做出来再看吧
+
+—— 来自 Xiaomi 22041211AC, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
