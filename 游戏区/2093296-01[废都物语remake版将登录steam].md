@@ -83,3 +83,20 @@ steam放个demo不行吗还搞封测，不知道的还以为是什么手游<img 
 
 单机游戏搞封测是几个意思<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 857#       发表于 2026-3-10 17:35
+
+手游营销套路，不要太在意。现在就这样。
+
+你真要做游戏就抓不到几个没有手游厂经历的。
+
+*****
+
+####  urvark  
+##### 858#       发表于 2026-3-10 17:39
+
+毕竟原作我玩了很久，本着爱好者的态度还填了一下问卷，前面也就罢了，到后面居然让我填电脑配置，CPU显卡型号和硬盘空间啥的，这游戏还要看这些的吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">实在填不下去放弃了，给有缘人去测吧……
+
