@@ -82,3 +82,13 @@
 
 刚刚好像出bug了？我打第二章那个约翰尼，就是坐中间会放心灵风暴的boss，我boss以及它小弟们都打死了，但是场上一直刷新僵尸小猫，我只剩下两个只能打一次的猫了，打死一只僵尸小猫就从地上又出一只，场上永远保持三只最后我疲劳死了。
 
+
+*****
+
+####  大空魔术  
+##### 290#       发表于 2026-3-10 13:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69266004&amp;ptid=2274506" target="_blank">eccarrot 发表于 2026-3-3 09:55</a>
+那个全员击退5的支线任务，看似只是多个位移和碰撞伤害，实际就是个弹球游戏，只要5格内有障碍物，近战a一 ...</blockquote>
+我觉得这个应该是故意这样设计的，我做这个支线的时候还同步接了个技能全乱的支线，就是靠弹弹乐过图，法师学了个大浪进去就在怪堆中间放一个开始冲水<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
