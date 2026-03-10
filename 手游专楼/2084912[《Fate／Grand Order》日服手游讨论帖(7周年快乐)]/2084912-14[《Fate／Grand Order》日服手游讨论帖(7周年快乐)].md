@@ -84,3 +84,11 @@
 
 笑死，听了听农神的关店语音，农神甚至怀疑咕哒是宙斯转世<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失落之翼  
+##### 20584#       发表于 2026-3-10 16:40
+
+感觉主线也不要什么苦大仇深拯救世界了，型月世界哪个故事有遗憾？旮旯地联动提供IF版本！<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

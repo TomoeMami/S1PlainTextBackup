@@ -4776,3 +4776,37 @@ RE系列有剧情吗，正作全是B级片小点子集锦<img src="https://stati
 
 癫狂别的怪还好，孢头还是太神经了，里昂疗养院那段手上没安魂，然后那里两个孢头一起，打得我屁滚尿流，最后去楼梯上卡它仇恨范围才无伤过了。弄了把cp的突击步枪都没用，3梭子才能扫死一个<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  snowism  
+##### 1903#       发表于 2026-3-10 16:33
+
+好像没人提 格蕾丝每次紧张焦虑被吓到的时候 就会冒出来好多汗  给她换的露肩装 直接看到大片汗淋淋的皮肤  只能说味大无需多盐<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Muteki_Link  
+##### 1904#       发表于 2026-3-10 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69307191&amp;ptid=2252759" target="_blank">shamanda 发表于 2026-3-10 16:19</a>
+
+对的，所以我4re通关就封盘了，9正在3周目癫狂。就是前两周目都没做最终迷题，刚拿到娃娃，癫狂用不了这200 ...</blockquote>
+癫狂普通丧尸打头连喷子都很难击退，所以说喷子降格成手枪手枪直接淘汰，突击步枪更是气氛组了，能一击杀的只有两把12.7。不过12.7以外的常规武器真要打的话依然优先打腿，至少还是有击退效果的，比打铁头强。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  conanoysq  
+##### 1905#       发表于 2026-3-10 16:36
+
+ 本帖最后由 conanoysq 于 2026-3-10 16:37 编辑 
+
+无强化奖励下，癫狂的胞头和舔食者我都只能靠斧头弹反处决，这俩货都是吃子弹大户，更本消费不起资源。
+
+*****
+
+####  大厨麦当牛  
+##### 1906#       发表于 2026-3-10 16:40
+
+癫狂红头只能练完美弹反处决，要么就用地上的投掷物打硬直处决
+
