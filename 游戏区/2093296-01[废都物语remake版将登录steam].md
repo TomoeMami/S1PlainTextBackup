@@ -166,3 +166,11 @@ steam放个demo不行吗还搞封测，不知道的还以为是什么手游<img 
 
 唉好可惜了，感觉一波N折，不靠谱啊<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 867#       发表于 2026-3-11 03:13
+
+这还是在联系了汉化人员的情况下，一个单机remake做四年，消息都没两个<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
