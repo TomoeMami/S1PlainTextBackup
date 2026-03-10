@@ -4686,3 +4686,24 @@ RE系列有剧情吗，正作全是B级片小点子集锦<img src="https://stati
 这次RE9用浣熊市警察局不到总流程1/10的量就成功激发了100%的购买欲，情怀牌可以说是大成功了。我要是负责 ...</blockquote>
 你有这个想法还不如把点子拿来做10。王阿姨那个dlc出来以后摆明了卡婊的dlc基本就是本作的素材复用，顶多改变下地形和机关摆放。重建洋馆这么个功夫活最后卖你20刀简直亏本亏到姥姥家了
 
+
+*****
+
+####  红魔馆的糖  
+##### 1895#       发表于 2026-3-10 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69306764&amp;ptid=2252759" target="_blank">pointer243 发表于 2026-3-10 15:05</a>
+你有这个想法还不如把点子拿来做10。王阿姨那个dlc出来以后摆明了卡婊的dlc基本就是本作的素材复用，顶多 ...</blockquote>
+王阿姨那个dlc已经是良心中的良心了，原版的王阿姨线那才叫一个究极复用，就是纯走一遍里昂的路
+
+*****
+
+####  Muteki_Link  
+##### 1896#       发表于 2026-3-10 15:26
+
+发现这次安魂曲太适合没什么时间的上班族了，开荒随性打、二周目解4小时不吃药和极简、三周目开无限子弹癫狂，打完就能收工封盘等dlc了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这次通关没有评价，除了4h挑战以外没给任何时间压力，换re4这会儿还在用刚攒钱买来的无限火箭筒打专家积极备战四周目打字机专家S+呢<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+不过这次武器升级通关不继承挺可惜的，否则那么多武器我挺乐意为了升满全武器收藏多打一周目的（虽然后来发现CP点解锁的武器大多都不能改造）
+
