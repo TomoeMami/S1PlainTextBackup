@@ -949,3 +949,14 @@ konami足球棒球手游才是营收主力，主机游戏业务没啥能吹的</
 
 科乐美就是当年手游爆了 手游派上台才踢走小岛的啊  对于公司来说正常 毕竟手游项目更赚钱  同时代老厂里卡普空se等也押宝手游 但是表现平平被大家嘲讽  特别卡普空  就是因为在手游界跌了大跟头才又回来大搞主机游戏的 要是当年和科乐美一样手游大爆 估计当年一堆主机游戏都已经被砍<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  pointer243  
+##### 96#       发表于 2026-3-10 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69293470&amp;ptid=2276212" target="_blank">向荣 发表于 2026-3-7 21:27</a>
+
+对于开发大型游戏来说70亿日元其实不算特别多，对比号称预算不高的游戏宝可梦za，第一个季度ns2实体版卖 ...</blockquote>
+这70亿不是总预算，而是网易全资给名越组工作室折腾了4年毫无产出后又喊出来的追加投资。也就是说成本150亿打底。更别提这钱绝对还没有考虑销售宣传和光盘等的额外成本
+
