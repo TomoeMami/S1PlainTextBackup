@@ -4707,3 +4707,21 @@ RE系列有剧情吗，正作全是B级片小点子集锦<img src="https://stati
 
 不过这次武器升级通关不继承挺可惜的，否则那么多武器我挺乐意为了升满全武器收藏多打一周目的（虽然后来发现CP点解锁的武器大多都不能改造）
 
+
+*****
+
+####  格林达姆  
+##### 1897#       发表于 2026-3-10 15:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泽诺这角色是真惨
+最后打药还被骂的时候这表情都要哭出来了吧
+
+*****
+
+####  otakun  
+##### 1898#       发表于 2026-3-10 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69306886&amp;ptid=2252759" target="_blank">Muteki_Link 发表于 2026-3-10 15:26</a>
+发现这次安魂曲太适合没什么时间的上班族了，开荒随性打、二周目解4小时不吃药和极简和最终彩蛋前置、三周 ...</blockquote>
+完全同意。一周目完全断绝外界自己打，通关后文档分别就少了格蕾丝开头和里昂开那份头，然后也是悠闲搞成就，现在癫狂爽炸中<img src="https://static.stage1st.com/image/smiley/animal2017/004.png" referrerpolicy="no-referrer">
+
