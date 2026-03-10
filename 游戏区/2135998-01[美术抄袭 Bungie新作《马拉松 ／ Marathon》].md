@@ -1421,3 +1421,18 @@ TWAB（不是
 
 看解包出的杜兰达尔语音，果然藏了大东西在第四张图，不过大棒老师这玩法确实不太适合现在这时代了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 263#       发表于 2026-3-10 13:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69305618&amp;ptid=2135998" target="_blank">ybfelix 发表于 2026-3-10 11:24</a>
+
+正式版我还在观望，公测时候的感觉是，各种装备的词条过于诡异，抑或说，“高度游戏规则化”，难以对应到 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说的这些问题命运2都有，所以玩命运2一般要关注几个刷枪大佬
+
+命运2枪的perk是和枪绑定的，盯着一把枪刷到昏厥，刷出大佬推荐的godroll就行
+
+当然了放到马拉松那就是直接刷perk，记住哪几个perk牛逼就行
+
