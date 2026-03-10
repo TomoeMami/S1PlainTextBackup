@@ -4552,3 +4552,21 @@ Elpis废的是t系吧，始祖病毒同源的全都无了，g也是t出来的
 
 但是我缺的储藏室钥匙谁给我补啊？
 
+
+*****
+
+####  theworld  
+##### 1883#       发表于 2026-3-10 09:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这一代无限子弹还是给的太简单了，不像之前几代要折腾我好久
+
+*****
+
+####  灵魂收割机  
+##### 1884#       发表于 2026-3-10 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69302522&amp;ptid=2252759" target="_blank">Muteki_Link 发表于 2026-3-9 17:57</a>
+
+说实话我感觉Zeno打针变小丑前一直表现得挺游刃有余的，没怎么感受到生命将逝的威胁，最后急着打针更像是 ...</blockquote>
+老威打的病毒按生5的说法是“試作段階のウィルス”，病毒性质按安布雷拉编年史攻略书的说法是t病毒。总之不是G病毒。
+
