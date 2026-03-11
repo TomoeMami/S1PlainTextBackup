@@ -102,3 +102,63 @@
 感觉主线也不要什么苦大仇深拯救世界了，型月世界哪个故事有遗憾？旮旯地联动提供IF版本！ ...</blockquote>
 个人的幻想是5月联动FSF ，然后借这个联动引出第五兽，然后将迦勒底和第五兽的矛盾彻底引爆，接入六月的主线。
 
+
+*****
+
+####  khxooo  
+##### 20586#       发表于 2026-3-8 00:36
+
+笑死，听了听农神的关店语音，农神甚至怀疑咕哒是宙斯转世<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  失落之翼  
+##### 20587#       发表于 2026-3-10 16:40
+
+感觉主线也不要什么苦大仇深拯救世界了，型月世界哪个故事有遗憾？旮旯地联动提供IF版本！<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 20588#       发表于 2026-3-10 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69307313&amp;ptid=2084912" target="_blank">失落之翼 发表于 2026-3-10 16:40</a>
+感觉主线也不要什么苦大仇深拯救世界了，型月世界哪个故事有遗憾？旮旯地联动提供IF版本！ ...</blockquote>
+个人的幻想是5月联动FSF ，然后借这个联动引出第五兽，然后将迦勒底和第五兽的矛盾彻底引爆，接入六月的主线。
+
+*****
+
+####  Jamaisvu  
+##### 20589#       发表于 2026-3-11 17:10
+
+雅克•德•莫莱（saber）立绘及技能：
+
+<img src="https://img.stage1st.com/forum/202603/11/171018w55l89o6be8oh306.jpg" referrerpolicy="no-referrer">
+
+<strong>1773220195167.jpg</strong> (282.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-3-11 17:10 上传
+
+为了与街机区分，反差极大的灵基二...拿着女体版自己的滑板不羞耻吗...
+
+<img src="https://img.stage1st.com/forum/202603/11/170903ffqlmddg73mdqdqg.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20260311_170830.png</strong> (394.51 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-3-11 17:09 上传
+
+<img src="https://img.stage1st.com/forum/202603/11/170903gfasuma2dopl7lda.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20260311_170840.png</strong> (272.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-3-11 17:09 上传
+
