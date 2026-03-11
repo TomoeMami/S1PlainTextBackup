@@ -1456,3 +1456,16 @@ TWAB（不是
 
 感恩Steam平台, 要没实时在线人数, 这些开发者和媒体不知道还要在多少个游戏上嘴硬
 
+
+*****
+
+####  zzy516232108  
+##### 266#       发表于 2026-3-11 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69309657&amp;ptid=2135998" target="_blank">火红之眼 发表于 2026-3-11 04:29</a>
+
+开黑的小伙伴们休息后打了下单排，等级高了之后野人都太有个性了点……开局各自跑自己的任务，毫无配合意愿 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">单排我试了几把，因为大家都是带任务进组，碰到2黑带我的就他们小团体做任务我跟着后面吃屎
+
+偶尔3个野人打起来就被三排三轮车碾死……
+

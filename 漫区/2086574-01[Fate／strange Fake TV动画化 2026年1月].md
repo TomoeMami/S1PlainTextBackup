@@ -2750,3 +2750,14 @@ Fate/Prototype不就是苍银吗</blockquote>
 
 理查还有个点是相比漫画版本性格好了不少吧，漫画里一显现就挎着个脸，动不动还给个阴阳脸特写，看着像下一秒就准备背刺master一样，动画倒是改得爽朗多了，性格好自然加分不少
 
+
+*****
+
+####  朵雅空咖  
+##### 1261#       发表于 2026-3-11 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69309964&amp;ptid=2086574" target="_blank">pokemon最爱 发表于 2026-3-11 08:32</a>
+
+苍银时FP前传啊相当于FP的FZ那个定位。（只不过FP本篇至今仍然在菌类的新建文件夹里） ...</blockquote>
+说到苍银，真沙条姐妹在御主里面属于什么梯队？
+
