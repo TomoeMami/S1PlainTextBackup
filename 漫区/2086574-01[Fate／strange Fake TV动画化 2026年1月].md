@@ -2713,3 +2713,14 @@ Fate/Prototype不就是苍银吗
 
 开膛手杰克吊打赫拉克勒斯到底哪来的灵感，这本比终末女武神早吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1257#       发表于 2026-3-11 08:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69309458&amp;ptid=2086574" target="_blank">月亮上的珊瑚 发表于 2026-3-11 01:02</a>
+
+Fate/Prototype不就是苍银吗</blockquote>
+苍银时FP前传啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">相当于FP的FZ那个定位。（只不过FP本篇至今仍然在菌类的新建文件夹里）
+
