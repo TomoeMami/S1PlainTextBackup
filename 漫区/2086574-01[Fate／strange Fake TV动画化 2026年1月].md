@@ -2793,3 +2793,24 @@ Fate/Prototype不就是苍银吗</blockquote>
 蘑菇真是闪儿子吗？ 每次吹的震天响，然后各种滑稽暴毙，真不是特意骗闪厨进来杀的吗？ ...</blockquote>
 是蘑菇亲儿子，但不是成田的，成田亲女儿小恩才是fsf待遇最好的，从头到尾都在打硬仗，刷逼格，闪只是衬托恩的工具人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1265#       发表于 2026-3-11 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69311226&amp;ptid=2086574" target="_blank">windhawind2 发表于 2026-3-11 11:25</a>
+
+在FP和苍银的世界观里姐姐是t0 妹妹不好说（因为她主场的fp本传还是个大坑没填） ...</blockquote>
+绫香终究是觉醒后可以一拖三TOP的玛丽苏女主<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windhawind2  
+##### 1266#       发表于 2026-3-11 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69311347&amp;ptid=2086574" target="_blank">pokemon最爱 发表于 2026-3-11 11:40</a>
+
+绫香终究是觉醒后可以一拖三TOP的玛丽苏女主</blockquote>
+是设定集里说的？那确实nb了
+
