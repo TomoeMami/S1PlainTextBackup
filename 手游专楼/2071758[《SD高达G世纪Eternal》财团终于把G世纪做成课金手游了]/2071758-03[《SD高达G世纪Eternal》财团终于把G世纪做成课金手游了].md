@@ -805,3 +805,11 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 话说诺里斯这五动也没混到个攻击机<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 3742#       发表于 2026-3-11 18:34
+
+大师凤凰的奖池还在累积！
+
