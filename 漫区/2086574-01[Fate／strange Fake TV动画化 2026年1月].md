@@ -2834,3 +2834,14 @@ Fate/Prototype不就是苍银吗</blockquote>
 这Fate世界观都 ...</blockquote>
 还在启动,还没找到必须战斗的理由吧
 
+
+*****
+
+####  pokemon最爱  
+##### 1269#       发表于 2026-3-11 13:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69311380&amp;ptid=2086574" target="_blank">windhawind2 发表于 2026-3-11 11:44</a>
+
+是设定集里说的？那确实nb了</blockquote>
+FP后期绫香契约了旧剑旧闪旧狗三个从者打姐姐这个应该不是什么冷门信息吧……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
