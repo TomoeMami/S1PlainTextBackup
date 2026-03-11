@@ -122,3 +122,29 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ヒトニナル  
+##### 7311#       发表于 2026-3-11 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69314758&amp;ptid=2130897" target="_blank">Unlight 发表于 2026-3-11 21:33</a>
+但是枫女士最后不还是如愿以偿了吗
+拿到冠军的就不算了（</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哦我漏看了最后一句
+我看了一下应该是麻油，命苦的话志希P更命苦一点
+
+
+*****
+
+####  a1370303  
+##### 7312#       发表于 2026-3-11 22:05
+
+ 本帖最后由 a1370303 于 2026-3-11 22:06 编辑 
+
+毫无疑问是志希吧，近三届两亚一季，要不是SfC改规则了，说不定就拿下了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+順位名前タイプ1位イヴ・サンタクロースPa2位一ノ瀬志希Cu3位高森藍子Pa4位高垣楓Co5位久川颯Co6位佐藤心Pa7位神谷奈緒Co8位依田芳乃Pa9位久川凪Pa10位佐久間まゆCu
+順位名前タイプ1位鷺沢文香Co2位一ノ瀬志希Cu3位神谷奈緒Co4位高森藍子Pa5位佐久間まゆCu6位高垣楓Co7位速水奏Co8位佐藤心Pa9位緒方智絵里Cu10位二宮飛鳥Co
+順位名前タイプ1位北条加蓮Co2位鷺沢文香Co3位一ノ瀬志希Cu4位神谷奈緒Co5位高垣楓Co6位高森藍子Pa7位佐久間まゆCu8位新田美波Co9位緒方智絵里Cu10位速水奏Co
+
