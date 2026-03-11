@@ -2897,3 +2897,14 @@ FP后期绫香契约了旧剑旧闪旧狗三个从者打姐姐这个应该不是
 问题她老姐那个直通根源已经算是人形兽了吧，都不知道原来设计里他们打算怎么赢。。。 ...</blockquote>
 旧版本兽应该还没有膨胀成现在那么夸张的实力<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KDConan  
+##### 1275#       发表于 2026-3-11 17:59
+
+学问猫这个吉尔伽美什的故事真有趣
+<img src="https://p.sda1.dev/31/57d72e7400b212bca26f8e4f9948b801/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
