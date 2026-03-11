@@ -795,3 +795,13 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 精神力halo还行
 
+
+*****
+
+####  arthes  
+##### 3741#       发表于 2026-3-11 16:54
+
+经典强角黑哈罗，还好不是限定，是限定真不一定能忍住不抽
+
+话说诺里斯这五动也没混到个攻击机<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
