@@ -193,3 +193,41 @@
 
 惊了，个人空间合影怎么还有A组全员的迦勒底形象...
 
+
+*****
+
+####  岸浪白野  
+##### 20594#       发表于 2026-3-11 18:08
+
+没有表情差分还不是剧情用的立绘，预告罢了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/2a8e3c4a6ff4375e9b827b8b9319ad1b/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 20595#       发表于 2026-3-11 18:15
+
+我玉什么时候阴到前置灼烧宝具本？<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno1  
+##### 20596#       发表于 2026-3-11 18:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">除了卡多克和虞姬怎么其他的都那么怪
+
+*****
+
+####  exiaexa  
+##### 20597#       发表于 2026-3-11 18:45
+
+ 本帖最后由 exiaexa 于 2026-3-11 18:47 编辑 
+
+团长这是用脸换了多少强度
+
+整一个新时代旧剑，和查理一起等强化本把
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+唯独宝具前置灼伤爆杀了女版自己，可是人家开强化本了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
