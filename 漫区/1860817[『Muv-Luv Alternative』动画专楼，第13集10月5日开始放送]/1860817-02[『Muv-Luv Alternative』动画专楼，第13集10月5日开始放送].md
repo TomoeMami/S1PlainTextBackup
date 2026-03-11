@@ -50,3 +50,13 @@
 
 最新剧情的世界观揭底外加傻逼AI所谓的人类保护序列，可能只有主角是人的几率大一点
 
+
+*****
+
+####  鹦与鹉  
+##### 2454#       发表于 2026-3-12 01:48
+
+草，穿上卫士服过家家的游戏就结束了，会长还有救吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR ANN-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
