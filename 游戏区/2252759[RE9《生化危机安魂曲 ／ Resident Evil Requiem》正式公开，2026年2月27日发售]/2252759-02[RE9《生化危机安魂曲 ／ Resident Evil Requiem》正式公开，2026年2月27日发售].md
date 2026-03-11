@@ -5283,3 +5283,18 @@ ZENO才是搞笑，連一場戰鬥都沒有，會直接給威叔的動作嗎嗎
 
 —— 来自 Xiaomi 25128PNA1C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Muteki_Link  
+##### 1938#       发表于 2026-3-11 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69313500&amp;ptid=2252759" target="_blank">vacuumsword 发表于 2026-3-11 17:27</a>
+
+话说癫狂舔舔可以打针秒杀吗？疗养院搓了20针才意识到应该搓一些瓶子出硫酸瓶的。
+
+—— 来自 Xiaomi 25128 ...</blockquote>
+可以。我癫狂疗养院为了多留怪给里昂（里昂杀有钱拿）清屯了好多针头，到了方舟直接清空。
+
+顺便癫狂的舔舔在1v1的情况下也是可以用无限子弹芙蕾雅之针风筝一到两次直接送走的，弹夹清空就差不多了，血没想象中那么厚（带了新人和浣熊饰品）
+
