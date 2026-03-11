@@ -1581,3 +1581,18 @@ TWAB（不是
 
 这几天玩了一下感觉居然还挺不错的，比我预期的好点，主要是美术那个调调我挺喜欢，打枪手感也特好，然后装备和成长比我预期的有深度，还是可以玩玩的～<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  llysander  
+##### 277#       发表于 2026-3-11 21:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69309721&amp;ptid=2135998" target="_blank">泰坦失足 发表于 2026-3-11 06:53</a>
+
+"《守望先锋》高级设计师称马拉松“观看玩家人数”是“无所事事的行为”：
+
+“所谓‘玩家掉了 50%’这事现 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">　原文是unempolyed和maidenless 相当乐
+
+嫌自己的游戏宣传压力太轻了，站草根玩家对立面最近两年结果都不太好
+
