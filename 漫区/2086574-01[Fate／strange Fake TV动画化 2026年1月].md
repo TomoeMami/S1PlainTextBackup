@@ -2908,3 +2908,28 @@ FP后期绫香契约了旧剑旧闪旧狗三个从者打姐姐这个应该不是
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  亚历山大帝  
+##### 1276#       发表于 2026-3-11 19:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69310533&amp;ptid=2086574" target="_blank">newise 发表于 2026-3-11 10:09</a>
+
+蛆蛆青铜时代城邦主的旺财里难道有匹敌龙泉宝剑的神兵利器吗？不都菜鸡互啄 ...</blockquote>
+按设定的话，确实有龙泉宝剑，
+
+他那个王财的设定是 “古往今来的所有财宝”，
+
+曾经当着我的面掏出一把大戟。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202603/11/193306kp8rddd6q9np939a.jpg" referrerpolicy="no-referrer">
+
+<strong>10dfa9ec8a136327868db2e0938fa0ec09fac785.jpg</strong> (231.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-11 19:33 上传
+
