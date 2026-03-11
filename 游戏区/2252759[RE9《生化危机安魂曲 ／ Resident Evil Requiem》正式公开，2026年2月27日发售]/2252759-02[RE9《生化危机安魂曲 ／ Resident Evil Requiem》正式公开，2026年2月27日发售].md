@@ -5046,3 +5046,29 @@ ZENO才是搞笑，連一場戰鬥都沒有，會直接給威叔的動作嗎嗎
 
 这个文件应该讲了本作的变异T病毒也是有高度传染性的。
 
+
+*****
+
+####  Chao  
+##### 1918#       发表于 2026-3-11 09:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69309371&amp;ptid=2252759" target="_blank">大厨麦当牛 发表于 2026-3-11 00:33</a>
+
+这个文件应该讲了本作的变异T病毒也是有高度传染性的。</blockquote>
+本作剧本还有一个大特点就是文件内容文不对题，参考性极低，刻意制造猜疑链。
+
+就拿这篇为例。里面说“极少情况”，实际上游戏里出现的浣熊幸存者全部都有变异，连G病毒二代都没幸免；里面说全球蔓延，实际游戏中没有体液感染的案例，更可能是说浣熊市幸存者分布到了全球。
+
+所以对此游戏中经过维克托的手的任何情报，多少都有忽悠的成分。
+
+
+*****
+
+####  Andariel  
+##### 1919#       发表于 2026-3-11 09:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69308208&amp;ptid=2252759" target="_blank">u2deack 发表于 2026-3-10 19:52</a>
+说是5月只更新迷你游戏，是他们也觉得这套系统和内容出不了佣兵了么</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">佣兵不是做到主线里面了么
+里昂那个杀敌赚代币升级越杀越爽的系统就是佣兵啊
+
