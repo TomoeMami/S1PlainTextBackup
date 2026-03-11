@@ -2703,3 +2703,13 @@ Fate/Prototype不就是苍银吗
 
 真論主角定位，小紅帽跟西格瑪都比理查高。
 
+
+*****
+
+####  ardente  
+##### 1256#       发表于 2026-3-11 07:51
+
+虽然但是，海某人被弗拉特打了一顿结果嗷的一声竟是直接溜了来切金闪闪真的很搞
+
+开膛手杰克吊打赫拉克勒斯到底哪来的灵感，这本比终末女武神早吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
