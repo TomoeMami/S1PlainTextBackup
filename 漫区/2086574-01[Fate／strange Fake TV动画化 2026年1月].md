@@ -2742,3 +2742,11 @@ Fate/Prototype不就是苍银吗</blockquote>
 
 蛆蛆青铜时代城邦主的旺财里难道有匹敌龙泉宝剑的神兵利器吗？不都菜鸡互啄<img src="https://static.stage1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  裂空之龙  
+##### 1260#       发表于 2026-3-11 10:39
+
+理查还有个点是相比漫画版本性格好了不少吧，漫画里一显现就挎着个脸，动不动还给个阴阳脸特写，看着像下一秒就准备背刺master一样，动画倒是改得爽朗多了，性格好自然加分不少
+
