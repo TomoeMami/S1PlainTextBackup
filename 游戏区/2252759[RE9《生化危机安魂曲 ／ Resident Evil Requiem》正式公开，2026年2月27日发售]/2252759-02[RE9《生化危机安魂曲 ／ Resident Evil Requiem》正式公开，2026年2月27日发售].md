@@ -5365,3 +5365,11 @@ ZENO才是搞笑，連一場戰鬥都沒有，會直接給威叔的動作嗎嗎
 
 希望不要跟我说是因为我身上没空间了然后grace还我安魂的时候挤掉了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  reficul  
+##### 1945#       发表于 2026-3-11 23:49
+
+第一人称真吓人啊，换成第三人称玩了
+
