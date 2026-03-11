@@ -2761,3 +2761,35 @@ Fate/Prototype不就是苍银吗</blockquote>
 苍银时FP前传啊相当于FP的FZ那个定位。（只不过FP本篇至今仍然在菌类的新建文件夹里） ...</blockquote>
 说到苍银，真沙条姐妹在御主里面属于什么梯队？
 
+
+*****
+
+####  pokemon最爱  
+##### 1262#       发表于 2026-3-11 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69311026&amp;ptid=2086574" target="_blank">朵雅空咖 发表于 2026-3-11 11:02</a>
+
+说到苍银，真沙条姐妹在御主里面属于什么梯队？</blockquote>
+应该算顶级吧，沙条家毕竟摩根后代，姐妹俩一个继承了魔女侧面一个继承了湖中仙女侧面<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比不了咕哒白野就是了。
+
+
+*****
+
+####  windhawind2  
+##### 1263#       发表于 2026-3-11 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69311026&amp;ptid=2086574" target="_blank">朵雅空咖 发表于 2026-3-11 11:02</a>
+
+说到苍银，真沙条姐妹在御主里面属于什么梯队？</blockquote>
+在FP和苍银的世界观里姐姐是t0 妹妹不好说（因为她主场的fp本传还是个大坑没填）
+
+*****
+
+####  zakki  
+##### 1264#       发表于 2026-3-11 11:26
+
+ 本帖最后由 zakki 于 2026-3-11 11:27 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69308740&amp;ptid=2086574" target="_blank">四氧化三铅 发表于 2026-3-10 21:54</a>
+蘑菇真是闪儿子吗？ 每次吹的震天响，然后各种滑稽暴毙，真不是特意骗闪厨进来杀的吗？ ...</blockquote>
+是蘑菇亲儿子，但不是成田的，成田亲女儿小恩才是fsf待遇最好的，从头到尾都在打硬仗，刷逼格，闪只是衬托恩的工具人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
