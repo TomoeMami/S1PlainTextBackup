@@ -1479,3 +1479,16 @@ TWAB（不是
 
 包不能的。
 
+
+*****
+
+####  火红之眼  
+##### 268#       发表于 2026-3-11 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69310984&amp;ptid=2135998" target="_blank">zzy516232108 发表于 2026-3-11 10:58</a>
+
+单排我试了几把，因为大家都是带任务进组，碰到2黑带我的就他们小团体做任务我跟着后面吃屎
+
+偶尔3个野人 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
