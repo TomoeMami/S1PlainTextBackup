@@ -1503,3 +1503,14 @@ TWAB（不是
 跟着做任务感觉最舒服，阶段性完成那种直接嫖他们声望了，就是架不住带慈善包做任务还喜欢惹三轮车的 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">感觉很难匹配到和我进度差不多的哥们……
 
+
+*****
+
+####  Sopp  
+##### 270#       发表于 2026-3-11 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69305618&amp;ptid=2135998" target="_blank">ybfelix 发表于 2026-3-10 11:24</a>
+
+正式版我还在观望，公测时候的感觉是，各种装备的词条过于诡异，抑或说，“高度游戏规则化”，难以对应到 ...</blockquote>
+是的，靠build构成一个输出/技能循环
+
