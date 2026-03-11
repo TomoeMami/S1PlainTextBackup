@@ -53,3 +53,19 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  a1370303  
+##### 7304#       发表于 2026-3-11 20:09
+
+总选复活是今天最大的惊喜了，灰灰的声优终于要进入三位数了<img src="https://static.stage1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/c819a7d003a47f18a4b8b143ea11da21/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 7305#       发表于 2026-3-11 20:11
+
+灰真的复活了
+
