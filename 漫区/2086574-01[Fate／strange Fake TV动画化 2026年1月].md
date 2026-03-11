@@ -2886,3 +2886,14 @@ FP后期绫香契约了旧剑旧闪旧狗三个从者打姐姐这个应该不是
 FP后期绫香契约了旧剑旧闪旧狗三个从者打姐姐这个应该不是什么冷门信息吧…… ...</blockquote>
 问题她老姐那个直通根源已经算是人形兽了吧，都不知道原来设计里他们打算怎么赢。。。
 
+
+*****
+
+####  pokemon最爱  
+##### 1274#       发表于 2026-3-11 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69313002&amp;ptid=2086574" target="_blank">阿刚 发表于 2026-3-11 16:17</a>
+
+问题她老姐那个直通根源已经算是人形兽了吧，都不知道原来设计里他们打算怎么赢。。。 ...</blockquote>
+旧版本兽应该还没有膨胀成现在那么夸张的实力<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
