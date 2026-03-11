@@ -1034,3 +1034,15 @@ konami足球棒球手游才是营收主力，主机游戏业务没啥能吹的</
 
 手游也是这样，网易是最早在日本买量刷榜然后国内发软文吹日本流水前几的
 
+
+*****
+
+####  花礫  
+##### 104#       发表于 2026-3-11 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69311376&amp;ptid=2276212" target="_blank">Ironman_mk5 发表于 2026-3-11 11:44</a>
+漫威争锋说是不火了但还能活下去</blockquote>
+国外活的还不错，不然丁老板也不会在林云枫离职后把整个梦幻事业部给现在的漫威争锋制作人了。
+
+—— 来自 OPPO PLJ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
