@@ -5244,3 +5244,11 @@ ZENO才是搞笑，連一場戰鬥都沒有，會直接給威叔的動作嗎嗎
 
 最关键的是既然一周目是重体验自由玩那我也是默认一周目大家错过血池娃娃的，大多数人不会拿到游戏第一次new game就去查最终谜题攻略吧。。。<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  thealoneer  
+##### 1935#       发表于 2026-3-11 17:25
+
+这代癫狂僵尸是真的硬，到浣熊市发现三发麦林都打不死一个普通僵尸，想无脑通癫狂还是换无限rpg稳妥些<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
