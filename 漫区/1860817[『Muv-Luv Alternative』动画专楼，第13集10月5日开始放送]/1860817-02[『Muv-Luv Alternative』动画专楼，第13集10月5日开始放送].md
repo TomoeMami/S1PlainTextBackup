@@ -16,3 +16,13 @@
 
 有大佬说一下现在剧情是啥情况 这个世界观是什么情况
 
+
+*****
+
+####  KOPKOM  
+##### 2451#         楼主| 发表于 2026-3-11 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69304500&amp;ptid=1860817" target="_blank">zhwpjy 发表于 2026-3-10 08:26</a>
+有大佬说一下现在剧情是啥情况 这个世界观是什么情况</blockquote>
+现在是某HIVE攻略战一万年之后
+
