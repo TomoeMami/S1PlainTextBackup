@@ -77,3 +77,22 @@
 
 灰今年下新活挺多的，还准备今年看完周年毕业（
 
+
+*****
+
+####  RedSpecial  
+##### 7307#       发表于 2026-3-11 21:25
+
+志希同志是早就响彻346的老艺术家，无须总选证明自己
+
+*****
+
+####  Unlight  
+##### 7308#         楼主| 发表于 2026-3-11 21:27
+
+话说，对总选了解不多，有没有谁是陪跑王啊
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+就差一个冠军那种
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

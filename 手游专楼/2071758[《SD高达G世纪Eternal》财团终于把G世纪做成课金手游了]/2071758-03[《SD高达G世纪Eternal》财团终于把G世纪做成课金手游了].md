@@ -821,3 +821,13 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 说起来代便是该快点更新G世纪原创的开发机了，藏卡池里嗯抽有点太割了
 
+
+*****
+
+####  jackyhuang  
+##### 3744#       发表于 2026-3-11 21:23
+
+没有出格罗姆林还是太保守了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
