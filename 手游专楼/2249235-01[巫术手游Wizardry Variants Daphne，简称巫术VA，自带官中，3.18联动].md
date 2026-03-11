@@ -43,3 +43,17 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这东西不能用v 和我无关
 
+
+*****
+
+####  Flechette  
+##### 744#       发表于 2026-3-12 00:04
+
+抽到个10BP力个体阿贝，开始犯难
+
+一直用的阿贝已经吃了3只克己，喂过骑士心得不屈斗志等一大堆技能，先驱闪也拉到lv3，遗物酒也拉到4lv5，但是应该是5BP还是6BP的无个体
+
+想重练，但是治疗个体强迫症的代价有点太高<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+个体这个机制真的太恶心了
+
