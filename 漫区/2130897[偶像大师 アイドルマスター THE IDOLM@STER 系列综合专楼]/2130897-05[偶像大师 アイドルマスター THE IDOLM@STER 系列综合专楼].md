@@ -96,3 +96,29 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ヒトニナル  
+##### 7309#       发表于 2026-3-11 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69314731&amp;ptid=2130897" target="_blank">Unlight 发表于 2026-3-11 21:27</a>
+话说，对总选了解不多，有没有谁是陪跑王啊
+
+就差一个冠军那种</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该是枫女士吧，有一张meme，不争不抢躺在家里就能唱总选举曲
+
+*****
+
+####  Unlight  
+##### 7310#         楼主| 发表于 2026-3-11 21:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69314749&amp;ptid=2130897" target="_blank">ヒトニナル 发表于 2026-3-11 21:31</a>
+应该是枫女士吧，有一张meme，不争不抢躺在家里就能唱总选举曲</blockquote>
+但是枫女士最后不还是如愿以偿了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+拿到冠军的就不算了（
+
+还有就是枫女士自己翻唱自己的solo，并且出了张高规格碟
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
