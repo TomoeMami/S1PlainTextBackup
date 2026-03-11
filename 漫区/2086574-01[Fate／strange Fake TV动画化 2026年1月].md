@@ -2855,3 +2855,14 @@ FP后期绫香契约了旧剑旧闪旧狗三个从者打姐姐这个应该不是
 绫香终究是觉醒后可以一拖三TOP的玛丽苏女主</blockquote>
 姐姐的设定往那一堆也挺玛丽苏的
 
+
+*****
+
+####  仟音一心  
+##### 1271#       发表于 2026-3-11 14:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69311419&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-3-11 11:49</a>
+
+之前漏油发的那个国漫里面除了闪海，居然还有c妈，笑喷了。</blockquote>
+希腊神话不讲海格力斯不讲美杜莎不讲美狄亚根本不可能吧。
+
