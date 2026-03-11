@@ -5072,3 +5072,16 @@ ZENO才是搞笑，連一場戰鬥都沒有，會直接給威叔的動作嗎嗎
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">佣兵不是做到主线里面了么
 里昂那个杀敌赚代币升级越杀越爽的系统就是佣兵啊
 
+
+*****
+
+####  渡边加奈子  
+##### 1920#       发表于 2026-3-11 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69305157&amp;ptid=2252759" target="_blank">这次是十块钱 发表于 2026-3-10 10:16</a>
+
+为啥要用商店的霰弹枪？捡的那把弹道宽感觉打 aoe 挺爽的</blockquote>
+集中伤害高,扩散大的枪随距离伤害衰减比较多.
+
+一般来说,生化里中近距离压制力突出的枪械会更加强势.这代990的瞄具收束刚好不大不小.瞄准体验也极其出色.
+
