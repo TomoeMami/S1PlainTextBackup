@@ -1596,3 +1596,16 @@ TWAB（不是
 
 嫌自己的游戏宣传压力太轻了，站草根玩家对立面最近两年结果都不太好
 
+
+*****
+
+####  缺德猫  
+##### 278#       发表于 2026-3-11 22:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69309721&amp;ptid=2135998" target="_blank">泰坦失足 发表于 2026-3-11 06:53</a>
+
+"《守望先锋》高级设计师称马拉松“观看玩家人数”是“无所事事的行为”：
+
+“所谓‘玩家掉了 50%’这事现 ...</blockquote>
+经典生活不如意
+
