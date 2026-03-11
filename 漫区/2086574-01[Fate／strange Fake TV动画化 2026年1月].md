@@ -2724,3 +2724,13 @@ Fate/Prototype不就是苍银吗
 Fate/Prototype不就是苍银吗</blockquote>
 苍银时FP前传啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">相当于FP的FZ那个定位。（只不过FP本篇至今仍然在菌类的新建文件夹里）
 
+
+*****
+
+####  sanada  
+##### 1258#       发表于 2026-3-11 09:19
+
+貌似这集理查连发咖喱棒的时候拿的都是闪闪旺财里丢出来的自称宝具原型的剑？那不是应该刀刀都是A+
+
+这么一想更菜了
+
