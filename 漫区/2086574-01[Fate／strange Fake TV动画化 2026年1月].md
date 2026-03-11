@@ -2845,3 +2845,13 @@ Fate/Prototype不就是苍银吗</blockquote>
 是设定集里说的？那确实nb了</blockquote>
 FP后期绫香契约了旧剑旧闪旧狗三个从者打姐姐这个应该不是什么冷门信息吧……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kurihayn  
+##### 1270#       发表于 2026-3-11 13:35
+
+<blockquote>pokemon最爱 发表于 2026-3-11 11:40
+绫香终究是觉醒后可以一拖三TOP的玛丽苏女主</blockquote>
+姐姐的设定往那一堆也挺玛丽苏的
+
