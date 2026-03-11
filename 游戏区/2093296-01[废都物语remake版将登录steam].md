@@ -216,3 +216,11 @@ steam放个demo不行吗还搞封测，不知道的还以为是什么手游<img 
 
 q群生态，DDDD。
 
+
+*****
+
+####  林无德  
+##### 872#       发表于 2026-3-11 14:52
+
+还得封测，真有这个必要吗<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
