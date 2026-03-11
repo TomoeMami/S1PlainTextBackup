@@ -5105,3 +5105,42 @@ ZENO才是搞笑，連一場戰鬥都沒有，會直接給威叔的動作嗎嗎
 
 也就是说理想状态是否可以二周目先换无限弹药再去做4小时+不吃药+不采血成就能简单很多？
 
+
+*****
+
+####  红魔馆的糖  
+##### 1923#       发表于 2026-3-11 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69310500&amp;ptid=2252759" target="_blank">luffy0085 发表于 2026-3-11 10:05</a>
+请教下无限弹药的解锁条件除了50000点数以外，还有其他要求么？我盘算了下，一周目通关的话，算上最终谜题 ...</blockquote>
+最终解谜要二周目吧
+
+
+*****
+
+####  shamanda  
+##### 1924#       发表于 2026-3-11 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69310500&amp;ptid=2252759" target="_blank">luffy0085 发表于 2026-3-11 10:05</a>
+请教下无限弹药的解锁条件除了50000点数以外，还有其他要求么？我盘算了下，一周目通关的话，算上最终谜题 ...</blockquote>
+没啥必要，4小时的话怪都是能跳就跳，对子弹没太大需求，路上随便薅点就行了。而且照着视频攻略或者自己规划得好的话还是挺充裕的。
+
+*****
+
+####  otakun  
+##### 1925#       发表于 2026-3-11 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69310523&amp;ptid=2252759" target="_blank">红魔馆的糖 发表于 2026-3-11 10:08</a>
+最终解谜要二周目吧</blockquote>
+一个周目搞到娃娃之后，通关这个周目就会保存娃娃到手状态，之后再读取前面的存档，储物箱里也有娃娃了。事先留一个存档就行。
+
+*****
+
+####  luffy0085  
+##### 1926#       发表于 2026-3-11 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69310523&amp;ptid=2252759" target="_blank">红魔馆的糖 发表于 2026-3-11 10:08</a>
+
+最终解谜要二周目吧</blockquote>
+留了一个一周目疗养院刚解放艾米丽的档，理论上直接读这个档，带上储物箱里的娃娃就可以直接去解谜获得点数，这样二周目新游戏点数就够了。
+
