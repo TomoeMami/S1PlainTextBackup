@@ -92,3 +92,11 @@
 那个全员击退5的支线任务，看似只是多个位移和碰撞伤害，实际就是个弹球游戏，只要5格内有障碍物，近战a一 ...</blockquote>
 我觉得这个应该是故意这样设计的，我做这个支线的时候还同步接了个技能全乱的支线，就是靠弹弹乐过图，法师学了个大浪进去就在怪堆中间放一个开始冲水<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  防撞桶好  
+##### 291#       发表于 2026-3-12 17:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">艹，猪鼻操作了，带着任务石头去打地核，结果最后忘了拿石头**oss，白打了··
+
