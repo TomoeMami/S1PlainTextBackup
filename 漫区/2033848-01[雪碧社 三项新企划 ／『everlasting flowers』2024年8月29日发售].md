@@ -912,3 +912,16 @@ Sprite 15周年纪念作《小金井庄与金色扬羽蝶》OP公开，详情将
 这一列的表界cv，苍彼凯子的钱又给雪碧拿去做全年龄了</blockquote>
 不是说全年龄搞百合欺诈的上一作在本土赚到了，也可以说是百合党被骗的钱给拿去做bg了
 
+
+*****
+
+####  aptx8285144  
+##### 87#       发表于 2026-3-12 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69316866&amp;ptid=2033848" target="_blank">Piano-Forest 发表于 2026-3-12 10:52</a>
+
+sprite15周年記念作品『小金井荘と金色の揚羽蝶』OP
+
+https://youtu.be/Q**IpF3grU</blockquote>
+南央美，这位大前辈上次看到是什么时候了....
+
