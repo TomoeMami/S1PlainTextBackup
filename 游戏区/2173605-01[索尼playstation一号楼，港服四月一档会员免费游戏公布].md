@@ -411,3 +411,31 @@ Compulsion Games宣布，《午夜以南》将于2026年3月31日登陆PS5和Swi
 
 实际上漫威系列游戏，在PC算卖的非常好的也就蜘蛛侠一代吧，参考二代的话，PC上占比就低了一大截了
 
+
+*****
+
+####  黑猫软  
+##### 574#       发表于 2026-3-12 11:15
+
+ 本帖最后由 黑猫软 于 2026-3-12 11:16 编辑 
+
+<img src="https://img.stage1st.com/forum/202603/12/111457o9o7ovur3k7n7fws.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1773285285373_151.jpg</strong> (190.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-3-12 11:14 上传
+
+<img src="https://img.stage1st.com/forum/202603/12/111435ra52wjbcdik85tac.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1773285136298_114.jpg</strong> (103.14 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-3-12 11:14 上传
+
+看来还是带ps玩的
+
