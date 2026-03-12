@@ -884,3 +884,13 @@ Sprite 15周年纪念作《小金井庄与金色扬羽蝶》OP公开，详情将
 
 —— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  mooerfoes  
+##### 84#       发表于 2026-3-12 12:20
+
+脚本：四葩，和everlasting flowers的脚本是同一个人，或许也会是一样题材吧
+
+没看PV，姑且一猜
+
