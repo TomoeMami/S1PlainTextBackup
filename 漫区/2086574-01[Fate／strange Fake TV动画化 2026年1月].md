@@ -2945,3 +2945,11 @@ FP后期绫香契约了旧剑旧闪旧狗三个从者打姐姐这个应该不是
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  ardente  
+##### 1278#       发表于 2026-3-12 08:57
+
+这把美服副本直接能匹配出四个乌鲁克老朋友，我看已经是很有孝心了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
