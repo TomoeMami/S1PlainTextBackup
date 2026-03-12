@@ -841,3 +841,11 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 说起来这么多99都提到了V2AB，到时候赞斯帕因应该会塞ult里吧，有点可惜了
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3746#       发表于 2026-3-12 08:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">UR特虎怎么会是盾...
+
