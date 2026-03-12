@@ -133,3 +133,13 @@ drecom这么想赚钱怎么不给假面也加上去
 
 现拉的4个40级 杰拉德的传说任务也得做
 
+
+*****
+
+####  UnknownRei  
+##### 751#       发表于 2026-3-12 18:01
+
+不想把主队里的王女拉出去跑派遣，没有姬骑士一起陪伴冒险下地宫那种事，我不可以<img src="https://static.stage1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+如果专门再拉一只跑专属派遣需不需要重新做一遍个人任务？
+
