@@ -2541,3 +2541,14 @@ loop，然后成为谜语人！
 副音轨貌似有提到，code和nox态度暧昧，有一部分原因是莫的主观视角认知不足，这是高桥的意图，可能存在视角欺诈。第一集没出现0的真容是因为那时候莫还没见过0。0是个有深度的角色，现在不能透露太多
 按这套说法，意思估计是，一周目莫没直接看到的上帝视角的部分，是莫根据自己直接接收到的信息潜意识里反推过去的，角色性格会有点不同。他临死前见过0，第24集里0的其他镜头是他根据临死前0的态度脑补的，不一定全对，什么海猫鸣泣之时<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 922#       发表于 2026-3-12 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69315141&amp;ptid=2250267" target="_blank">milky658 发表于 2026-3-11 23:18</a>
+
+副音轨貌似有提到，code和nox态度暧昧，有一部分原因是莫的主观视角认知不足，这是高桥的意图，可能存在 ...</blockquote>
+0那里不见得是见过吧，只是剪辑切了个画面而已吧
+
