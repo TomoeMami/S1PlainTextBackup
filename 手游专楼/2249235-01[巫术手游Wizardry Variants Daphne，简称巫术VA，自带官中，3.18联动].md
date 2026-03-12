@@ -57,3 +57,16 @@
 
 个体这个机制真的太恶心了
 
+
+*****
+
+####  电脑死机  
+##### 745#       发表于 2026-3-12 14:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69315311&amp;ptid=2249235" target="_blank">Flechette 发表于 2026-3-12 00:04</a>
+
+抽到个10BP力个体阿贝，开始犯难
+
+一直用的阿贝已经吃了3只克己，喂过骑士心得不屈斗志等一大堆技能，先驱闪 ...</blockquote>
+算了，想想已经吃下去的那堆资源，我家那只垃圾生命个体也咬咬牙练了，最多看以后不知道什么时候的sp蝴蝶补救
+
