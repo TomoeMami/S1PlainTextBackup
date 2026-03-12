@@ -156,3 +156,14 @@ drecom这么想赚钱怎么不给假面也加上去
 如果专门再拉一只跑专属 ...</blockquote>
 需要，个人任务和单个角色绑定
 
+
+*****
+
+####  UnknownRei  
+##### 753#       发表于 2026-3-12 19:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69319969&amp;ptid=2249235" target="_blank">Flechette 发表于 2026-3-12 18:34</a>
+
+需要，个人任务和单个角色绑定</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">那正好练一只过骑士试炼好了
+
