@@ -1617,3 +1617,25 @@ TWAB（不是
 
 测试的时候玩了一下，感觉难度很高，不知道是不是我的问题，我单排连人机都打不过，感觉ai强度比真人还高，很有挫败感。
 
+
+*****
+
+####  asd235614  
+##### 280#       发表于 2026-3-12 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69316193&amp;ptid=2135998" target="_blank">saicci 发表于 2026-3-12 09:08</a>
+
+测试的时候玩了一下，感觉难度很高，不知道是不是我的问题，我单排连人机都打不过，感觉ai强度比真人还高， ...</blockquote>
+AI确实很猛，而且打AI一个是很消耗资源还一个是容易吸引其他玩家，所以一般非必要不主动开
+
+
+*****
+
+####  zzy516232108  
+##### 281#       发表于 2026-3-12 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69316193&amp;ptid=2135998" target="_blank">saicci 发表于 2026-3-12 09:08</a>
+
+测试的时候玩了一下，感觉难度很高，不知道是不是我的问题，我单排连人机都打不过，感觉ai强度比真人还高， ...</blockquote>
+小兵可以直接刀，小兵以外的绕
+
