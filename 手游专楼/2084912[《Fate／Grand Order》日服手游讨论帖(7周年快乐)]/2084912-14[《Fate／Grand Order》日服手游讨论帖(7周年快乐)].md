@@ -231,3 +231,39 @@
 唯独宝具前置灼伤爆杀了女版自己，可是人家开强化本了
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xunit  
+##### 20598#       发表于 2026-3-11 21:42
+
+这个新队长画的，小山你在干勾b啥
+
+*****
+
+####  白金口袋  
+##### 20599#       发表于 2026-3-12 02:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69307400&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-3-10 02:54</a>
+个人的幻想是5月联动FSF ，然后借这个联动引出第五兽，然后将迦勒底和第五兽的矛盾彻底引爆，接入六月的 ...</blockquote>
+你的意思是让成田4月就写出最终卷？我觉得哪怕拿枪顶他脑门上都做不到好吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20600#       发表于 2026-3-12 16:14
+
+ 本帖最后由 岸浪白野 于 2026-3-12 17:56 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69315579&amp;ptid=2084912" target="_blank">白金口袋 发表于 2026-3-12 02:29</a>
+你的意思是让成田4月就写出最终卷？我觉得哪怕拿枪顶他脑门上都做不到好吗 ...</blockquote>
+首先有个联动叫事件簿是年初播了第0集4月底就联动活动能用的音乐都是只有第0集的然后7月才开播动画，魔眼列车的内容是复刻才追加的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+做联动确实做原作后日谈的思路，但动画联动不用想太多不需要一次做完
+
+
+*****
+
+####  khxooo  
+##### 20601#       发表于 2026-3-12 19:22
+
+其实是他们母亲的自导自演吧，都是为了给桑松继承家业铺路<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
