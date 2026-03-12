@@ -143,3 +143,16 @@ drecom这么想赚钱怎么不给假面也加上去
 
 如果专门再拉一只跑专属派遣需不需要重新做一遍个人任务？
 
+
+*****
+
+####  Flechette  
+##### 752#       发表于 2026-3-12 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69319801&amp;ptid=2249235" target="_blank">UnknownRei 发表于 2026-3-12 18:01</a>
+
+不想把主队里的王女拉出去跑派遣，没有姬骑士一起陪伴冒险下地宫那种事，我不可以
+
+如果专门再拉一只跑专属 ...</blockquote>
+需要，个人任务和单个角色绑定
+
