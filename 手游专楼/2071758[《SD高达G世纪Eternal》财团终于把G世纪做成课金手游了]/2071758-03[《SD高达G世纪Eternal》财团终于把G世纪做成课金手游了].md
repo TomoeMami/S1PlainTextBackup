@@ -849,3 +849,11 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">UR特虎怎么会是盾...
 
+
+*****
+
+####  natlk  
+##### 3747#       发表于 2026-3-12 09:13
+
+真没想到是黑哈罗ur
+
