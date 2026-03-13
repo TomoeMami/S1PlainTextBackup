@@ -2110,3 +2110,11 @@ Timberborn_jhtAfjZ25s.jpg
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  wthall  
+##### 178#       发表于 2026-3-13 09:58
+
+1.0版本加了啥啊，谁能帮忙总结一下，之前看百里浪玩了10个小时，觉得自己总算有点看懂了。现在1.0 又有点迷糊了 
+
