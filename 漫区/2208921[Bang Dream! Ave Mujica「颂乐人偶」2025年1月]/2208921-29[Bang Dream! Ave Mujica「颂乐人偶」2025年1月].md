@@ -71,3 +71,22 @@
 <img src="https://p.sda1.dev/31/aacf982a2735bcdecd5f17ce51e50bd3/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/31/b68477e16a7019af6d27bd785d8180a6/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 41800#       发表于 2026-3-13 13:10
+
+       <strong>【中日熟肉】Sumimi推旅EXPRESS 东海道新干线车内限定语音</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202603/13/131024kry4r44zy4yy5emy.jpg" referrerpolicy="no-referrer">
+
+<strong>f9ee380f958e6f088de8accb4430e14d8efa4a0c.jpg</strong> (136.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-13 13:10 上传
+
+-</blockquote>
+       [https://www.bilibili.com/video/BV142c2zhEaz](https://www.bilibili.com/video/BV142c2zhEaz)
+
