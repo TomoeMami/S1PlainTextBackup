@@ -5821,3 +5821,13 @@ Leon狙击枪那里太容易漏了<img src="https://static.stage1st.com/image/sm
 问一下那个铁头电锯怎么打，弱点是啥，打头跳弹，打身体安魂好几发才能打死 ...</blockquote>
 神射手1A拆镜上挂件，电锯根本近不了身<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，当然最好也先升级一下伤害。
 
+
+*****
+
+####  大厨麦当牛  
+##### 1981#       发表于 2026-3-14 01:00
+
+<blockquote>无攻不受鹿 发表于 2026-3-13 22:16
+问一下那个铁头电锯怎么打，弱点是啥，打头跳弹，打身体安魂好几发才能打死 ...</blockquote>
+普通难度拿地上电锯和他对锯，两次就能锯了他。癫狂他会让你电锯脱手，所以还是用枪打身体比较好
+
