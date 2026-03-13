@@ -5691,3 +5691,13 @@ C4准备的那么好，但起爆装置每次都很费劲。
 
 结果最高难度卡在克里斯那里了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 1969#       发表于 2026-3-13 17:10
+
+如果不来那就是维克多在家等着。
+<img src="https://p.sda1.dev/31/9e810fb7862f28aadb3077f892d3e5d5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/d2b1e4022bff4cd3965219f7d2b95494/image.jpg" referrerpolicy="no-referrer">
+
