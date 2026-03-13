@@ -5678,3 +5678,16 @@ C4准备的那么好，但起爆装置每次都很费劲。
 
 相比之下2代警局找电池还算合理点。
 
+
+*****
+
+####  dewey  
+##### 1968#       发表于 2026-3-13 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69320701&amp;ptid=2252759" target="_blank">arbilest 发表于 2026-3-12 21:20</a>
+
+一周目休闲难度文档全收集，该打的怪都清空，不用回复物品（休闲红了会自动回到黄）不用做最终迷题也不用 ...</blockquote>
+8代我也这么搞的
+
+结果最高难度卡在克里斯那里了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
