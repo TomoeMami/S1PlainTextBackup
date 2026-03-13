@@ -18,3 +18,11 @@ Liyuu：
 肚子快要撑爆了……真好吃。​​​
 <img src="https://p.sda1.dev/31/7b611712f92b5fcbd339618cf2db87e5/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  经验值UP  
+##### 1823#       发表于 2026-3-13 12:32
+
+近一年没关注了，星团在动画完结后是不是算是冷毕业了？感觉没啥官方活动了啊？
+
