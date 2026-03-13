@@ -5810,3 +5810,14 @@ Leon狙击枪那里太容易漏了<img src="https://static.stage1st.com/image/sm
 
 指揮官那場能直接秒殺
 
+
+*****
+
+####  P-link  
+##### 1980#       发表于 2026-3-14 00:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69326802&amp;ptid=2252759" target="_blank">无攻不受鹿 发表于 2026-3-13 22:16</a>
+
+问一下那个铁头电锯怎么打，弱点是啥，打头跳弹，打身体安魂好几发才能打死 ...</blockquote>
+神射手1A拆镜上挂件，电锯根本近不了身<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，当然最好也先升级一下伤害。
+
