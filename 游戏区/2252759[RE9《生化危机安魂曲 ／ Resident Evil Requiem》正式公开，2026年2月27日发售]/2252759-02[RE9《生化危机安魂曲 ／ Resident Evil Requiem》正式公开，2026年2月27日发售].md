@@ -5738,3 +5738,11 @@ C4准备的那么好，但起爆装置每次都很费劲。
 问一下那个铁头电锯怎么打，弱点是啥，打头跳弹，打身体安魂好几发才能打死 ...</blockquote>
 打身体，没了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dio999  
+##### 1974#       发表于 2026-3-13 22:58
+
+Leon狙击枪那里太容易漏了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
