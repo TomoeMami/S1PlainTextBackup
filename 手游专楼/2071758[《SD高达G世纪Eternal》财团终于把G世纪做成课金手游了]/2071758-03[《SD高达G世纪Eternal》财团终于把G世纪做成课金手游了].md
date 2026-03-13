@@ -865,3 +865,23 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 看错了编辑
 
+
+*****
+
+####  gpx234mqx  
+##### 3749#       发表于 2026-3-13 22:16
+
+注意
+
+<img src="https://img.stage1st.com/forum/202603/13/221558zigb6lmriccbldkw.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5348.png</strong> (505.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-13 22:15 上传
+
+阿普萨拉斯3是扎古
+
+可用扎古sp芯片
+
