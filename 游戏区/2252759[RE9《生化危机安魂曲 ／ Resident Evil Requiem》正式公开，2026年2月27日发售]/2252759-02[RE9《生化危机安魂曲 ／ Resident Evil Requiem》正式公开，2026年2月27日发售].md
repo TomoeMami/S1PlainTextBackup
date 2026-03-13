@@ -5774,3 +5774,13 @@ Leon狙击枪那里太容易漏了<img src="https://static.stage1st.com/image/sm
 
 走了數分鐘後，就劇情LEON自動對她開槍...
 
+
+*****
+
+####  theworld  
+##### 1978#       发表于 2026-3-14 00:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">浣熊还差一个，上面3个说的全打了，还有哪几个是地图上不显示的啊
+
+晚上自己跑了遍速通拿着无限子弹都打了3小时多，那些1小时多的怎么打的
+
