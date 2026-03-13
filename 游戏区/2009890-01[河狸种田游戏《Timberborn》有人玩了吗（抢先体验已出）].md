@@ -2118,3 +2118,18 @@ Timberborn_jhtAfjZ25s.jpg
 
 1.0版本加了啥啊，谁能帮忙总结一下，之前看百里浪玩了10个小时，觉得自己总算有点看懂了。现在1.0 又有点迷糊了 
 
+
+*****
+
+####  defer  
+##### 179#       发表于 2026-3-13 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69322339&amp;ptid=2009890" target="_blank">wthall 发表于 2026-3-13 09:58</a>
+1.0版本加了啥啊，谁能帮忙总结一下，之前看百里浪玩了10个小时，觉得自己总算有点看懂了。现在1.0 又有点 ...</blockquote>
+触发器和逻辑门
+
+以前旱季恶水之类的事件要手动操作应对，现在都可以自动化了。
+工厂等设施也可以批量开关。
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
