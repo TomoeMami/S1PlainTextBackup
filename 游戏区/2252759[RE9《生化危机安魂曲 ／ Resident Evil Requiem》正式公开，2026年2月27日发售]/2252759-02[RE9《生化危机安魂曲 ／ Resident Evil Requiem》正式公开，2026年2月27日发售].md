@@ -6027,3 +6027,23 @@ LEON是沒整理箱，只得買賣武器的BSAA供應盒
 
 暴君就只能純逃走
 
+
+*****
+
+####  P-link  
+##### 1997#       发表于 2026-3-14 22:47
+
+ 本帖最后由 P-link 于 2026-3-14 22:51 编辑 
+
+升满3级的神射手1A真特么好用啊，在癫狂难度下停止力也是杠杠的，可以打出各种硬直和击飞，有无限子弹加成就更爽了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  razielzyc  
+##### 1998#       发表于 2026-3-14 22:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69331668&amp;ptid=2252759" target="_blank">红魔馆的糖 发表于 2026-3-14 22:16</a>
+
+现在测试出来的话，唯一t0是那把缩圈最小的连喷带中距离增伤挂件，完全代替了连狙的中距离dps生态位，全 ...</blockquote>
+谢谢 明白了
+
