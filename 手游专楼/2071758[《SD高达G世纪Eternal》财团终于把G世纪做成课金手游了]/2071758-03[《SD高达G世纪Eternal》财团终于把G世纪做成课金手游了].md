@@ -893,3 +893,18 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">最感恩，这种池子也能登顶
 
+
+*****
+
+####  natlk  
+##### 3751#       发表于 2026-3-14 15:04
+
+00后半终于来了
+
+*****
+
+####  blue321  
+##### 3752#       发表于 2026-3-14 15:07
+
+战损EXIA终于来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
