@@ -2011,3 +2011,11 @@ pc端dlc也更新了，dlc合集是42rmb
 女主很色，可惜太冷门了图太少连lora都没人做</blockquote>
 inti是手握财富密码的那位，可是和女主同框的男主造型一眼难尽，下次要出什么强化版时就不要让男主上封面了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红魔馆的糖  
+##### 176#       发表于 2026-3-14 12:04
+
+更新完了就直接开始了，怎么打了两盘一个新包的卡都没看到，不在前面的随机池里面么
+
