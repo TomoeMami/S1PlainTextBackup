@@ -3021,3 +3021,57 @@ FP后期绫香契约了旧剑旧闪旧狗三个从者打姐姐这个应该不是
 
 说到底你月从者的战力表现跟面板的关系只能说如有，男神那垃圾敏捷C抓敏捷A的咒腕都跟抓小鸡一样
 
+
+*****
+
+####  岸浪白野  
+##### 1285#       发表于 2026-3-14 23:20
+
+ 本帖最后由 岸浪白野 于 2026-3-14 23:21 编辑 
+
+早上的时候找益山亮司发的11集的贺图挺草的
+
+不过11集的四重奏就开口说话了2个，井上的女儿除了最近才在FGO配了个花神原来还在这配个四重奏龙套挺好<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[X 上的 益山亮司 R.Masuyama：“本日Fate/strange Fake 11話放送でカルテットが活躍するかはまぁ置いといて…監督のリクエストで描いた一枚です！ #strangefake #ストレンジフェイク](https://x.com/masuyama56/status/2032604634276311314)[https://t.co/XFaYVMiDm7](https://t.co/XFaYVMiDm7)” / X
+
+<img src="https://img.stage1st.com/forum/202603/14/231229wzikqq6zbqq0bh6l.jpg" referrerpolicy="no-referrer">
+
+<strong>51FO0(CU}DEDA8$YU2GMB{A.jpg</strong> (514.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-14 23:12 上传
+
+<img src="https://img.stage1st.com/forum/202603/14/231719za9ya4n7tnme4xae.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (923.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-14 23:17 上传
+
+<img src="https://img.stage1st.com/forum/202603/14/231242kx55ypqa9h5zxyyq.jpg" referrerpolicy="no-referrer">
+
+<strong>A)E$HU]MMIG4O92WFLQ2T.jpg</strong> (256.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-14 23:12 上传
+
+<img src="https://img.stage1st.com/forum/202603/14/231614h2fkzzjfn279ip22.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (460.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-14 23:16 上传
+
+<img src="https://img.stage1st.com/forum/202603/14/231949q007prd333j9bwbs.png" referrerpolicy="no-referrer">
+
+<strong>[PNO8BC1`U93W[(7DP3(VZH.png</strong> (526.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-14 23:19 上传
+

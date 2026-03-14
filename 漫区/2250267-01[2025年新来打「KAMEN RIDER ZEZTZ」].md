@@ -2660,3 +2660,21 @@ loop，然后成为谜语人！
 引进版停播了，刚火就暴毙，这片够倒霉的</blockquote>
 哪里有说呀？？
 
+
+*****
+
+####  暗黑能乐  
+##### 935#       发表于 2026-3-14 23:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">啥情况啊这是
+
+
+*****
+
+####  挺好的  
+##### 936#       发表于 2026-3-14 23:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69331920&amp;ptid=2250267" target="_blank">kurihayn 发表于 2026-3-14 23:10</a>
+哪里有说呀？？</blockquote>
+<img src="https://p.sda1.dev/31/bb18af92e91dc4ac56caa9ba9754f811/image.jpg" referrerpolicy="no-referrer">
+
