@@ -3168,3 +3168,15 @@ FP后期绫香契约了旧剑旧闪旧狗三个从者打姐姐这个应该不是
 
 所以海神是什么东西？不会是妈祖吧
 
+
+*****
+
+####  大耳兽  
+##### 1294#       发表于 2026-3-15 01:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69332057&amp;ptid=2086574" target="_blank">仟音一心 发表于 2026-3-14 23:51</a>
+经历过FZ的那个不行。
+但是有其他世界线的，和士郎一样与抑止力签约的。
+ ...</blockquote>
+感觉西格玛变英灵了也会变成白毛黑皮<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
