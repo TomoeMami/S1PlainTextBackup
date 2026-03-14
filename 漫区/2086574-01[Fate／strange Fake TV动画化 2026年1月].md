@@ -3180,3 +3180,23 @@ FP后期绫香契约了旧剑旧闪旧狗三个从者打姐姐这个应该不是
  ...</blockquote>
 感觉西格玛变英灵了也会变成白毛黑皮<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  zakki  
+##### 1295#       发表于 2026-3-15 01:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69332079&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-3-14 23:56</a>
+彩蛋其实也尽量做的到位了，格蕾起码有找上田礼奈过来配句话，继续闪回麻婆幼闪画面，海神出现有人设和说句 ...</blockquote>
+我觉得这集已经改编的很精炼了，原作意思基本都表达了出来，但还是有人说看不懂，再塞彩蛋，那是不让路人看了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 1296#       发表于 2026-3-15 01:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69332314&amp;ptid=2086574" target="_blank">zakki 发表于 2026-3-15 01:21</a>
+
+我觉得这集已经改编的很精炼了，原作意思基本都表达了出来，但还是有人说看不懂，再塞彩蛋，那是不让路人 ...</blockquote>
+什么，这片原来还有路人看吗<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
