@@ -5929,3 +5929,30 @@ GRACE可以是新一代刀神了...
 
 好贵啊，打折再买吧
 
+
+*****
+
+####  drifotrhu  
+##### 1989#       发表于 2026-3-14 21:21
+
+打完收工，这作最大的问题还是两种玩法刚进入状态就立即强制转换弄得很不适应，然后就是找引爆器那关说实话纯粹靠跑图刷时间毫无体验感。
+
+*****
+
+####  红魔馆的糖  
+##### 1990#       发表于 2026-3-14 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69331376&amp;ptid=2252759" target="_blank">drifotrhu 发表于 2026-3-14 21:21</a>
+打完收工，这作最大的问题还是两种玩法刚进入状态就立即强制转换弄得很不适应，然后就是找引爆器那关说实话 ...</blockquote>
+那里其实和生化4的思路差不多就是给你个理由去到处打战点，但是问题还是这作最大的问题就是没有好的boss做调剂，搞的只是在各种跑路，没有道中或者关底boss给玩家爽
+
+*****
+
+####  sauron.j  
+##### 1991#       发表于 2026-3-14 21:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69330851&amp;ptid=2252759" target="_blank">razielzyc 发表于 2026-3-14 19:47</a>
+
+打到进入浣熊市了。借楼问下武器有什么推荐升级购买的么？新枪哪一个值得买，哪个配件值得升级。 ...</blockquote>
+这一代杀怪机制比较简单所以DPS为王，射速快的优先，主要堆伤害
+
