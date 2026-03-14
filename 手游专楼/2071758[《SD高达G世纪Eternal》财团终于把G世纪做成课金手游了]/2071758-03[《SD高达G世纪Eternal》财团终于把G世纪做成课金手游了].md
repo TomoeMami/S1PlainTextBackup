@@ -1006,3 +1006,15 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 特么剃刀型不给青年福皇是想留着什么时 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">剃刀型有啊，在补给SSR里，但是很可惜没有对应驾驶员
 
+
+*****
+
+####  无念  
+##### 3764#       发表于 2026-3-15 02:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69330029&amp;ptid=2071758" target="_blank">ティグル 发表于 2026-3-14 16:56</a>
+蛋的ult会是啥，正义女神？</blockquote>
+正义女神太骗钱了不会的，外传那个座天使三合一都比他几率高
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
