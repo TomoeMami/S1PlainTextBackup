@@ -5861,3 +5861,17 @@ GRACE可以是新一代刀神了...
 
 而且砍殺對方後還能再釆30~40血...
 
+
+*****
+
+####  红魔馆的糖  
+##### 1984#       发表于 2026-3-14 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69329211&amp;ptid=2252759" target="_blank">eilot 发表于 2026-3-14 13:35</a>
+真的想不到安息之刃攻擊力那麼高，
+
+卡普空的傷害設定真的傻了...
+
+除了衝行跑攻擊會稍為輕微高些少外</blockquote>
+其实还好，给新周目癫狂准备的道具，隔壁里三光都给商店了，格蕾丝也得补点
+
