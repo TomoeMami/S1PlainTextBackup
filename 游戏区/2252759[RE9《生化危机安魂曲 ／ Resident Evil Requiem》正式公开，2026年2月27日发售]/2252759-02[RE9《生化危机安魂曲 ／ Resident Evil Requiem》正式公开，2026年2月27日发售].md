@@ -5977,3 +5977,28 @@ GRACE可以是新一代刀神了...
 这一代杀怪机制比较简单所以DPS为王，射速快的优先，主要堆伤害</blockquote>
 分头到了浣熊市是不是没有整理箱了。格子不够把旧武器卖掉？
 
+
+*****
+
+####  红魔馆的糖  
+##### 1994#       发表于 2026-3-14 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69330851&amp;ptid=2252759" target="_blank">razielzyc 发表于 2026-3-14 19:47</a>
+打到进入浣熊市了。借楼问下武器有什么推荐升级购买的么？新枪哪一个值得买，哪个配件值得升级。 ...</blockquote>
+现在测试出来的话，唯一t0是那把缩圈最小的连喷带中距离增伤挂件，完全代替了连狙的中距离dps生态位，全游戏dps第一。手枪是废物。其他看着升升老狙和马格南就行
+
+
+*****
+
+####  eilot  
+##### 1995#       发表于 2026-3-14 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69331561&amp;ptid=2252759" target="_blank">razielzyc 发表于 2026-3-14 21:58</a>
+
+分头到了浣熊市是不是没有整理箱了。格子不够把旧武器卖掉？</blockquote>
+LEON是沒整理箱，只得買賣武器的BSAA供應盒
+
+所以不喜歡的武器就可以賣掉
+
+通關後供應盒會四處出現，不過你手上是沒錢所以也不能改造，只是用來領免費的特典武器(如果有的話)
+
