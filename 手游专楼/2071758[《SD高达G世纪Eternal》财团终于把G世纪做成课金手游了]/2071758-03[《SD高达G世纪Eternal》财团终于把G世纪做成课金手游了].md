@@ -993,3 +993,16 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 普池120水深，补还是不补都很亏的感觉</blockquote>
 也没啥必要补，就当做少出一台古董机就完了，平时抽卡也不是每个池子的PT都刚好用完的
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3763#       发表于 2026-3-15 02:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69332147&amp;ptid=2071758" target="_blank">光辉传递者 发表于 2026-3-15 00:21</a>
+
+刚听说上AGE了回坑一看狗代居然还没删我号，邮箱一领直接开始爽抽。
+
+特么剃刀型不给青年福皇是想留着什么时 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">剃刀型有啊，在补给SSR里，但是很可惜没有对应驾驶员
+
