@@ -3245,3 +3245,16 @@ FP后期绫香契约了旧剑旧闪旧狗三个从者打姐姐这个应该不是
 
 蒂妮他们这一族是指印第安人吗，不过作为现代印第安人的话，财力资金似乎不科学的雄厚
 
+
+*****
+
+####  wangchaowind  
+##### 1301#       发表于 2026-3-15 02:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69332400&amp;ptid=2086574" target="_blank">hkguty 发表于 2026-3-15 02:15</a>
+
+蒂妮他们这一族是指印第安人吗，不过作为现代印第安人的话，财力资金似乎不科学的雄厚 ...</blockquote>
+没看原作，感觉应该是开赌场的。
+
+现实中很多印第安人都在美国开赌场，好像是特许。
+
