@@ -948,3 +948,11 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">绝杀，100抽沉没成本，也是服了
 
+
+*****
+
+####  vincenttc  
+##### 3758#       发表于 2026-3-14 18:43
+
+不继承也太抠门了吧 还好昨天刚刚好够200了
+
