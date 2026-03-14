@@ -940,3 +940,11 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 普池不继承有点闹心，之前其实一直在防着这个，不到井都不用蓝票，后来存够200之后就去下井了，抽得有点欧，后来飘了，一有就抽，回过头来已经是70发没出货<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">，这下血本无归了
 
+
+*****
+
+####  夜之光  
+##### 3757#       发表于 2026-3-14 18:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">绝杀，100抽沉没成本，也是服了
+
