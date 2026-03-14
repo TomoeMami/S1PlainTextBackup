@@ -982,3 +982,14 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 特么剃刀型不给青年福皇是想留着什么时候出啊？直接跳过了？
 
+
+*****
+
+####  arthes  
+##### 3762#       发表于 2026-3-15 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69331530&amp;ptid=2071758" target="_blank">alialex 发表于 2026-3-14 21:52</a>
+
+普池120水深，补还是不补都很亏的感觉</blockquote>
+也没啥必要补，就当做少出一台古董机就完了，平时抽卡也不是每个池子的PT都刚好用完的
+
