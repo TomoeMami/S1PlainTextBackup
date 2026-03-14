@@ -36,3 +36,15 @@ Liyuu：
 
 —— 来自 OPPO PKH110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  csolfans  
+##### 1825#       发表于 2026-3-14 08:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69323469&amp;ptid=2201887" target="_blank">经验值UP 发表于 2026-3-13 12:32</a>
+近一年没关注了，星团在动画完结后是不是算是冷毕业了？感觉没啥官方活动了啊？ ...</blockquote>
+没有二次元活动，有三次元活动
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
