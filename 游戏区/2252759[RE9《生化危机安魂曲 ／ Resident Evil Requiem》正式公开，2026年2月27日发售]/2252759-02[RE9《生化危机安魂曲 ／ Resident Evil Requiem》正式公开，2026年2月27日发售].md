@@ -5966,3 +5966,14 @@ GRACE可以是新一代刀神了...
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  razielzyc  
+##### 1993#       发表于 2026-3-14 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69331408&amp;ptid=2252759" target="_blank">sauron.j 发表于 2026-3-14 21:25</a>
+
+这一代杀怪机制比较简单所以DPS为王，射速快的优先，主要堆伤害</blockquote>
+分头到了浣熊市是不是没有整理箱了。格子不够把旧武器卖掉？
+
