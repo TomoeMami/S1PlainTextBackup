@@ -2634,3 +2634,11 @@ loop，然后成为谜语人！
 
 橘前辈加起来三个角色了，不过除非再来一次界外者不然应该没有官方玩梗的机会
 
+
+*****
+
+####  阿刚  
+##### 932#       发表于 2026-3-14 22:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">橘前辈怎么又是你
+
