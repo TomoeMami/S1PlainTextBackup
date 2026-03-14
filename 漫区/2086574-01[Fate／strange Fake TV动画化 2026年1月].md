@@ -3075,3 +3075,31 @@ FP后期绫香契约了旧剑旧闪旧狗三个从者打姐姐这个应该不是
 
 2026-3-14 23:19 上传
 
+
+*****
+
+####  岸浪白野  
+##### 1286#       发表于 2026-3-14 23:39
+
+ 本帖最后由 岸浪白野 于 2026-3-14 23:44 编辑 
+
+还有把小说第三卷里 出现黑发绫香的事本来第6集就该播的内容改编排放到第11集现在来看也还行，就是为撑起这集文戏的情绪有一份功劳<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过大仲马
+
+<img src="https://img.stage1st.com/forum/202603/14/233311burilz0mdi9qeq9e.jpg" referrerpolicy="no-referrer">
+
+<strong>I2M)T9]OD$J~RE[B33OFD_X.jpg</strong> (66.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-14 23:33 上传
+
+
+*****
+
+####  朵雅空咖  
+##### 1287#       发表于 2026-3-14 23:44
+
+卫宫切嗣能当英灵吗
+
