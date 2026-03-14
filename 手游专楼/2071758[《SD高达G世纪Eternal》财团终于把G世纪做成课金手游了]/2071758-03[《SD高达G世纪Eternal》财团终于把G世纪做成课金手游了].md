@@ -885,3 +885,11 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 可用扎古sp芯片
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3750#       发表于 2026-3-14 13:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">最感恩，这种池子也能登顶
+
