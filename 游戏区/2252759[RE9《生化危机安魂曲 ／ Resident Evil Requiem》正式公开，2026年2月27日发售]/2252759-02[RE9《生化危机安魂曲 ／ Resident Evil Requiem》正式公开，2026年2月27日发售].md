@@ -6047,3 +6047,13 @@ LEON是沒整理箱，只得買賣武器的BSAA供應盒
 现在测试出来的话，唯一t0是那把缩圈最小的连喷带中距离增伤挂件，完全代替了连狙的中距离dps生态位，全 ...</blockquote>
 谢谢 明白了
 
+
+*****
+
+####  TheOccuria  
+##### 1999#       发表于 2026-3-14 23:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">刚通关，谁能说说维克托到底在干什么，这厄尔庇斯不是解药么
+
+我要继承老师的事业，事业是啥不管？那最后还打什么
+
