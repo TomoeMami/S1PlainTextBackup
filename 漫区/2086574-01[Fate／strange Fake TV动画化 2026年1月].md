@@ -3103,3 +3103,33 @@ FP后期绫香契约了旧剑旧闪旧狗三个从者打姐姐这个应该不是
 
 卫宫切嗣能当英灵吗
 
+
+*****
+
+####  仟音一心  
+##### 1288#       发表于 2026-3-14 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69332037&amp;ptid=2086574" target="_blank">朵雅空咖 发表于 2026-3-14 23:44</a>
+卫宫切嗣能当英灵吗</blockquote>
+经历过FZ的那个不行。
+但是有其他世界线的，和士郎一样与抑止力签约的。
+<img src="https://p.sda1.dev/31/0e92c7bea98e7c67bef58c7ade02c313/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  岸浪白野  
+##### 1289#       发表于 2026-3-14 23:56
+
+其实也尽量彩蛋做的到位了，格蕾起码有找上田礼奈过来配句话，继续闪回麻婆幼闪画面
+
+之前狂杰克变杀杰克的剧情虽然删减但最后开宝具的时候还是补了个杀杰克有出现，但大仲马部分本来就高强度删减，自然也会把约翰的做梦删到找信长过来配伯爵说一句话闪回都没份<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202603/14/235107q5l00fibil7zfgr0.jpg" referrerpolicy="no-referrer">
+
+<strong>IKTR{1YFZ$@09TM$@7T6NOJ.jpg</strong> (110.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-14 23:51 上传
+
