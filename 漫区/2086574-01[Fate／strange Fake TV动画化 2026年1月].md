@@ -3200,3 +3200,24 @@ FP后期绫香契约了旧剑旧闪旧狗三个从者打姐姐这个应该不是
 我觉得这集已经改编的很精炼了，原作意思基本都表达了出来，但还是有人说看不懂，再塞彩蛋，那是不让路人 ...</blockquote>
 什么，这片原来还有路人看吗<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 1297#       发表于 2026-3-15 01:28
+
+ 本帖最后由 岸浪白野 于 2026-3-15 01:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69332236&amp;ptid=2086574" target="_blank">fatzhi 发表于 2026-3-15 00:55</a>
+所以海神是什么东西？不会是妈祖吧</blockquote>
+这个在小说第6卷的时候只能靠这个存在自称鲛和说到秦始皇的事和龙宫来猜到是海神和知道其实准备了弩弓来招秦始皇
+小说第8卷的时候才会很清楚说【这把秦始皇的弩弓，据说曾经射杀妨碍徐福寻找长生不老药的海神── 一条大海所化身的大鲨鱼】 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 1298#       发表于 2026-3-15 01:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69332316&amp;ptid=2086574" target="_blank">pokemon最爱 发表于 2026-3-15 01:23</a>
+什么，这片原来还有路人看吗</blockquote>
+泛式直播间不都是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
