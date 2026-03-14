@@ -2000,3 +2000,14 @@ pc端dlc也更新了，dlc合集是42rmb
 
 超惑星战记DLC卡包上线了。
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 175#       发表于 2026-3-14 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69174421&amp;ptid=2200160" target="_blank">妄想中毒 发表于 2026-2-11 18:08</a>
+
+女主很色，可惜太冷门了图太少连lora都没人做</blockquote>
+inti是手握财富密码的那位，可是和女主同框的男主造型一眼难尽，下次要出什么强化版时就不要让男主上封面了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
