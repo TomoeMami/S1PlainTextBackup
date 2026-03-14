@@ -2578,3 +2578,25 @@ loop，然后成为谜语人！
 
 三号骑士变身者演员情报：天野浩成
 
+
+*****
+
+####  赤黑的假面  
+##### 926#       发表于 2026-3-14 17:31
+
+<blockquote>洛克萨斯 发表于 2026-3-14 17:15
+三号骑士变身者演员情报：天野浩成</blockquote>
+又是老熟人
+
+*****
+
+####  暗黑能乐  
+##### 927#       发表于 2026-3-14 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69330059&amp;ptid=2250267" target="_blank">重装型摇曳 发表于 2026-3-14 17:05</a>
+
+有无详细，谢谢</blockquote>
+[https://www.bilibili.com/video/B ... f12969f9848de75b3ff](https://www.bilibili.com/video/BV1jccCzvESk/?spm_id_from=333.1391.0.0&amp;vd_source=f1e21a108a8f7f12969f9848de75b3ff)
+
+目前还是去年透露的内容其实
+
