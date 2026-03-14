@@ -1018,3 +1018,21 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 —— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  光辉传递者  
+##### 3765#       发表于 2026-3-15 06:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69332428&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-3-15 02:29</a>
+剃刀型有啊，在补给SSR里，但是很可惜没有对应驾驶员</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说的就是蛋池剃刀型没对应驾驶员这个事，byd主线都出到奶茶篇了怎么连做个活动ssr
+青年福皇机师送都不舍得。这两天回归邮箱钻石一领哐哐抽，age池子一百发下去，1破奶茶，一只小福皇，还有雷霆宙域和捷多。08ms十连券一开始点成了单抽以为完蛋了，后面9连一股脑扔进去，来了91和华沙哥，这算是骗我刷日活的鱼饵吗？
+<img src="https://p.sda1.dev/31/6af4831b766b3ada86e6090f130f1efa/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/bfc0fc0b1218b722b3fc46c3d5972c5e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/4696f404ade4fe39bd073073df16f4ab/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/3fa6b61d1493ab834fe7373c598ab689/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/8a4097ff21aee89f5f4bdd96827c4a53/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 LENOVO TB322FC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
