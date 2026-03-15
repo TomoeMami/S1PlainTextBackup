@@ -2995,3 +2995,14 @@ CODE NO.3 请做好表情管理
 
 所以这次NOX不用抢胶囊，莫直接给了？
 
+
+*****
+
+####  阿刚  
+##### 969#       发表于 2026-3-15 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69334047&amp;ptid=2250267" target="_blank">无敌のpeach 发表于 2026-3-15 13:45</a>
+
+所以这次NOX不用抢胶囊，莫直接给了？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">看剧情不但给了复原还送一个暗影就等直接问lady要腰带了
+
