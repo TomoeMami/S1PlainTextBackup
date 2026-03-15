@@ -267,3 +267,11 @@
 
 其实是他们母亲的自导自演吧，都是为了给桑松继承家业铺路<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 20602#       发表于 2026-3-15 17:31
+
+这样才对啊，将痛点给改掉，不是+3000这种弱智东西。
+
