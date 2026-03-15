@@ -3276,3 +3276,15 @@ FP后期绫香契约了旧剑旧闪旧狗三个从者打姐姐这个应该不是
 感觉西格玛变英灵了也会变成白毛黑皮。</blockquote>
 西格玛人气不太够，以后FSF落地FGO估计都难实装西格玛。
 
+
+*****
+
+####  character  
+##### 1304#       发表于 2026-3-15 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69331944&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-3-14 23:20</a>
+本来早上的时候找益山亮司发的11集的贺图就挺草的
+
+不过11集的四重奏就开口说话了2个，井上的女儿除了最近才 ...</blockquote>
+连官方都在恶搞四重奏 X 尼尔的梗啊
+
