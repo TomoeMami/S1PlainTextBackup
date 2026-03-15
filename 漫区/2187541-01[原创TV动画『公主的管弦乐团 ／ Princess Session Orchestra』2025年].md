@@ -76,3 +76,13 @@
 
 用拳头对话正是公主的正理<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  32767  
+##### 305#       发表于 2026-3-16 02:50
+
+这集看得是真开心，纳比尤忍不住变回吐槽役和被吓出尾巴来都挺有意思的
+
+一边说要对话一边一拳头上去的味道也挺对的
+
