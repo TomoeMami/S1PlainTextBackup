@@ -3288,3 +3288,17 @@ FP后期绫香契约了旧剑旧闪旧狗三个从者打姐姐这个应该不是
 不过11集的四重奏就开口说话了2个，井上的女儿除了最近才 ...</blockquote>
 连官方都在恶搞四重奏 X 尼尔的梗啊
 
+
+*****
+
+####  大十字紅朔  
+##### 1305#       发表于 2026-3-15 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69332400&amp;ptid=2086574" target="_blank">hkguty 发表于 2026-3-15 02:15</a>
+
+蒂妮他们这一族是指印第安人吗，不过作为现代印第安人的话，财力资金似乎不科学的雄厚 ...</blockquote>
+牢美给原住民准备了保留地，可以看看这个人的旅游视频
+[https://www.bilibili.com/video/BV19E421w7Mj](https://www.bilibili.com/video/BV19E421w7Mj)
+
+虽然是原始社会但是原住民里面也是有阶级的，蒂妮这种部落的高级阶层是有钱的人没问题，普通原住民嘛……
+
