@@ -1036,3 +1036,11 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 —— 来自 LENOVO TB322FC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  森兰丸  
+##### 3766#       发表于 2026-3-15 17:14
+
+后知后觉....角色任务等级如果升到了6后下面的周常也完成了的话那这角色任务不做是不是也没关系了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
