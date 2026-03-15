@@ -118,3 +118,33 @@
 
 没了修理感觉蓝色职业更区了，昨晚打了一把蓝色职业得了血怒病，本来没当回事的，选的是机器猫技能+锁科技被动，结果发现蓝色职业也能通过召机器猫刷武器+杀机器猫多回合得到唐氏无限动，把我的其他三只猫都杀光了
 
+
+*****
+
+####  Hydro  
+##### 294#       发表于 2026-3-15 20:26
+
+<img src="https://img.stage1st.com/forum/202603/15/202255rend7xy5e4dgxhqi.png" referrerpolicy="no-referrer">
+
+<strong>8DD461FED2A882FB19465CCD23BD6577.png</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2026-3-15 20:22 上传
+
+<img src="https://img.stage1st.com/forum/202603/15/202303tx6xbb5v8evl5eje.png" referrerpolicy="no-referrer">
+
+<strong>7D2E2F79E90EC1D41C84D17B1BA69DB4.png</strong> (2.78 MB, 下载次数: 0)
+
+下载附件
+
+2026-3-15 20:23 上传
+
+拾荒者帽子=武器损坏时在身边生成3个随机掉落物
+
+制箭=消耗身边的掉落物，刷新你的基础攻击
+
+基础攻击=如果你有武器，丢出并损坏你的武器；如果你没有武器，制造一把武器
+
+1turn武器无限连，蓝门！
+
