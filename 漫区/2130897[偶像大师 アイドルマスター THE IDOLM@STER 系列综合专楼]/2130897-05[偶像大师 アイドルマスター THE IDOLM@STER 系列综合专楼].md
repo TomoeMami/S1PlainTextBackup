@@ -16,3 +16,17 @@
 
 今天闲的没事从头开始回顾一下你楼，发现回旋镖多的数不清啊（
 
+
+*****
+
+####  斑驳的阴影  
+##### 7316#       发表于 2026-3-15 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69335098&amp;ptid=2130897" target="_blank">Unlight 发表于 2026-3-15 17:13</a>
+已知百万现场11th是这两天，13th是五月，那么12th是什么时候举办的呢（
+
+—— 来自 S1Fun ...</blockquote>
+去年，11是因为传染病临时延期的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
