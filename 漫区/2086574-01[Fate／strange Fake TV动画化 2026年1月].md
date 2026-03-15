@@ -3266,3 +3266,13 @@ FP后期绫香契约了旧剑旧闪旧狗三个从者打姐姐这个应该不是
 
 四重奏的衣服，卡莲的衣服，这教会的衣品真不错啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 1303#       发表于 2026-3-15 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69332260&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-3-15 01:02</a>
+感觉西格玛变英灵了也会变成白毛黑皮。</blockquote>
+西格玛人气不太够，以后FSF落地FGO估计都难实装西格玛。
+
