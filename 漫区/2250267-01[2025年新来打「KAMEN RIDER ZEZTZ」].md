@@ -3006,3 +3006,13 @@ CODE NO.3 请做好表情管理
 所以这次NOX不用抢胶囊，莫直接给了？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">看剧情不但给了复原还送一个暗影就等直接问lady要腰带了
 
+
+*****
+
+####  暗黑能乐  
+##### 970#       发表于 2026-3-15 16:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">闪太快了根本看不清，原来op最后那个上下分割镜头上面下面人影有在闪烁变化。我看一个up是认为上面的是美浪宁梦莫，下面是成华富士见。我是感觉不像，上面有宁梦莫是肯定的，但是第一个看不清，下面我还是认为是诺克斯
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
