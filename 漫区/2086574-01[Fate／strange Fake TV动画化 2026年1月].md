@@ -3317,3 +3317,13 @@ https://www.bilibili.com/video/BV19E421w7Mj
 虽然 ...</blockquote>
 奇怪的知识增加了，没想到现代印第安人还流行开赌场。不过成田良悟看来确实有做些功课。
 
+
+*****
+
+####  大耳兽  
+##### 1307#       发表于 2026-3-15 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69332855&amp;ptid=2086574" target="_blank">仟音一心 发表于 2026-3-15 09:12</a>
+西格玛人气不太够，以后FSF落地FGO估计都难实装西格玛。</blockquote>
+不是说抑制力给予试炼是为了把他收编吗。
+
