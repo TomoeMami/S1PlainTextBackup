@@ -2853,3 +2853,23 @@ nox估计有自己的一套预知/循环系办法，不然谜语也太怪了
 
 nox应该是知道code对莫做了什么，知道他体内有灾厄梦魇，但没料到莫能觉醒预知梦。制作组说富士见狼姐和小鹰之间还有一段故事没有公开，以nox视角看一周目会很有意思，女士希望莫觉醒灾厄的力量，小鹰不是很愿意
 
+
+*****
+
+####  暗黑能乐  
+##### 954#       发表于 2026-3-15 10:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">莫这个预知梦有待商榷了，视野范围也太广了直接发生了啥全都知道了，但是这下我反而感觉梦里发生的可能有假情报了。。
+
+3的鬼畜伸舌头是否有点<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  iceddd  
+##### 955#       发表于 2026-3-15 10:12
+
+这等离子体表现是真的强啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不过zzz里面包括初始所有型态表现都挺夸张的
+
