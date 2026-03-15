@@ -63,3 +63,11 @@
 
 打土星应该至少2集起步吧。24集战术小队篇应该就结束了，下周的DIGIMON CON估计会有下个篇章的情报放出吧。
 
+
+*****
+
+####  zechins  
+##### 467#       发表于 2026-3-15 22:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
