@@ -2781,3 +2781,50 @@ loop，然后成为谜语人！
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  故障机器人  
+##### 947#       发表于 2026-3-15 09:00
+
+<img src="https://p.sda1.dev/31/cc7ad6d476a04c845200a30c0249d78d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/463f55165c481453ffbbaf5b60a956ca/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  故障机器人  
+##### 948#       发表于 2026-3-15 09:01
+
+op里的三号也太颜艺了
+
+*****
+
+####  挺好的  
+##### 949#       发表于 2026-3-15 09:03
+
+<img src="https://img.stage1st.com/forum/202603/15/090302t2pwtm5dm0nwxzwi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-15 09:03 上传
+
+下集就解锁shadow了
+
+
+*****
+
+####  挺好的  
+##### 950#       发表于 2026-3-15 09:05
+
+<img src="https://img.stage1st.com/forum/202603/15/090504cqx182qxllzq8a7f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (68.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-15 09:05 上传
+
+设定，千岁老人
+
