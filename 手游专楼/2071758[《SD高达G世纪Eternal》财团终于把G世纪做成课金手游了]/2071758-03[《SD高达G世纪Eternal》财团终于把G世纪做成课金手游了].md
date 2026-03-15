@@ -1064,3 +1064,18 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  森兰丸  
+##### 3769#       发表于 2026-3-16 04:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69337041&amp;ptid=2071758" target="_blank">acg_gyanc 发表于 2026-3-16 02:43</a>
+
+有个非常小的蚊子腿是完成角色要求次数
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">那就无视了
+
+这个人任务如果是直接交钱的还好....碰到要开发或者要升级的还要跳转界面...能不做就不做了
+
