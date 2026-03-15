@@ -6080,3 +6080,14 @@ LEON是沒整理箱，只得買賣武器的BSAA供應盒
 
 看到好像手雷不算分，意思是多合手雷然后大枪打到备单0？
 
+
+*****
+
+####  P-link  
+##### 2002#       发表于 2026-3-15 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69332187&amp;ptid=2252759" target="_blank">红魔馆的糖 发表于 2026-3-15 00:37</a>
+
+这玩意以前比老狙dps也只是稍高，但是研究出中距离散弹之后感觉中距离全面不如散弹。真正的优势可能是大 ...</blockquote>
+癫狂基本就是990霰弹+神射手+安魂+斧头就差不多了
+
