@@ -3302,3 +3302,18 @@ FP后期绫香契约了旧剑旧闪旧狗三个从者打姐姐这个应该不是
 
 虽然是原始社会但是原住民里面也是有阶级的，蒂妮这种部落的高级阶层是有钱的人没问题，普通原住民嘛……
 
+
+*****
+
+####  hkguty  
+##### 1306#       发表于 2026-3-15 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69333551&amp;ptid=2086574" target="_blank">大十字紅朔 发表于 2026-3-15 11:46</a>
+
+牢美给原住民准备了保留地，可以看看这个人的旅游视频
+
+https://www.bilibili.com/video/BV19E421w7Mj
+
+虽然 ...</blockquote>
+奇怪的知识增加了，没想到现代印第安人还流行开赌场。不过成田良悟看来确实有做些功课。
+
