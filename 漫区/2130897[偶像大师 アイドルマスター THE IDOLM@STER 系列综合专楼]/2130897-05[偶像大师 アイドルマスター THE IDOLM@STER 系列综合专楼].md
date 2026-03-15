@@ -30,3 +30,17 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Unlight  
+##### 7317#         楼主| 发表于 2026-3-15 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69336610&amp;ptid=2130897" target="_blank">斑驳的阴影 发表于 2026-3-15 23:21</a>
+去年，11是因为传染病临时延期的
+
+—— 来自 鹅球 v3.5.99</blockquote>
+7th就因为疫情延期一年，把后续好几年的序号都搞乱了，到11th的时候破罐子破摔，通过先开12后开11的方式，才终于把序号恢复对应<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
