@@ -1052,3 +1052,15 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 6级前几个首次给金强化材料的没压力可以做一下，重复了给银材料的就没啥好做了
 
+
+*****
+
+####  acg_gyanc  
+##### 3768#       发表于 2026-3-16 02:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69335099&amp;ptid=2071758" target="_blank">森兰丸 发表于 2026-3-15 17:14</a>
+后知后觉....角色任务等级如果升到了6后下面的周常也完成了的话那这角色任务不做是不是也没关系了 ...</blockquote>
+有个非常小的蚊子腿是完成角色要求次数<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
