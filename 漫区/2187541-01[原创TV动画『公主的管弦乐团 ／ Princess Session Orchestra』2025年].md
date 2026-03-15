@@ -58,3 +58,21 @@
 
 爱丽丝比亚应该出自爱丽丝漫游仙境，白女王招的怪原型是蛇鲨Snark,都出自刘易斯·卡罗尔。所以这个卡罗尔是某种更上层的存在？最后会不会解释爱丽丝比亚的起源？
 
+
+*****
+
+####  渡边菌  
+##### 303#       发表于 2026-3-15 22:30
+
+很标准的对话流程。<img src="https://p.sda1.dev/31/4a27d5bffa88355a386ef628725f8557/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-FS72, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  柴突猛进  
+##### 304#       发表于 2026-3-15 22:34
+
+用拳头对话正是公主的正理<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
