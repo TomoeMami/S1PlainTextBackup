@@ -6448,3 +6448,17 @@ RPD只得開門一刻有2R的回憶，內容過短才感到失敗
 
 最後的槍店也沒了另一半在場，轉視點看下方的大渠口時也沒有吐槽，又是想回憶殺但就是少了一半感覺000
 
+
+*****
+
+####  ——啧  
+##### 2034#       发表于 2026-3-16 18:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69327336&amp;ptid=2252759" target="_blank">eilot 发表于 2026-3-14 00:39</a>
+留意視頻的標題通關時間，和視頻最後顯示的通關時間，通常都有近10分鐘的差別
+
+他們是由療養院開始，到最後 ...</blockquote>
+用无限耐久斧头是什么思路？序章无聊拖时间我可以理解，可以容许无限耐久斧头这个很奇怪吧？<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
