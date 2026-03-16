@@ -1583,3 +1583,14 @@ FER这事要是没处理好，感觉以后就不信型月画的饼了
 本来想等re出了再打库里放了好久的mmv那两个无双的，如果不先了解fe的剧情先打fee影响大吗 ...</blockquote>
 首先看过fe也顶多是对人物更有感情，extella 的背景又是if线的发展，你玩extella甚至是看一遍17年蘑菇日记的extella zero不就行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 157#       发表于 2026-3-16 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69340014&amp;ptid=2083714" target="_blank">医生狼多 发表于 2026-3-16 16:02</a>
+本来想等re出了再打库里放了好久的mmv那两个无双的，如果不先了解fe的剧情先打fee影响大吗 ...</blockquote>
+16年蘑菇日记的extella zero
+http://www.typemoon.org/bbb/diary/log/201611.html
+
