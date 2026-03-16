@@ -6411,3 +6411,40 @@ ZEON那把單發狙擊+最後一擊插件也是超暴力
 
 这种蹭热度的没意思，其实还是格挡暴君冲过来那招然后他头跟着你转看你比较搞笑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哼哈二将  
+##### 2032#       发表于 2026-3-16 17:48
+
+我打完9代才觉得
+
+哎，有些元素，比如斧子处决、斧子格挡暴君这种玩法
+
+要是4重置里出现就好了。这样我会感觉起码4代重置的还有更多的新意。
+
+结果9代这样，反而我会有“就这？”的失望。<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eilot  
+##### 2033#       发表于 2026-3-16 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69340638&amp;ptid=2252759" target="_blank">哼哈二将 发表于 2026-3-16 17:48</a>
+
+我打完9代才觉得
+
+哎，有些元素，比如斧子处决、斧子格挡暴君这种玩法</blockquote>
+4R已經有刀仔擋電割，和刀仔檔格
+
+已經算非常有進步了，是那個耐久...
+
+9代還是場所不算多，中後回到浣熊市的前半(找3個引爆零件)，
+
+之後電單車那段是刺激根本是換了某位馬甲上來，但沒有回憶殺
+
+RPD只得開門一刻有2R的回憶，內容過短才感到失敗
+
+最後的槍店也沒了另一半在場，轉視點看下方的大渠口時也沒有吐槽，又是想回憶殺但就是少了一半感覺000
+
