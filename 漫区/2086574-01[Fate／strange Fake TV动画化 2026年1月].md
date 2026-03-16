@@ -3327,3 +3327,15 @@ https://www.bilibili.com/video/BV19E421w7Mj
 西格玛人气不太够，以后FSF落地FGO估计都难实装西格玛。</blockquote>
 不是说抑制力给予试炼是为了把他收编吗。
 
+
+*****
+
+####  ardente  
+##### 1308#       发表于 2026-3-16 08:48
+
+狗子怎么也会踩水飘
+
+打成这样了闪阵营怎么自保的，仇海不都脱身了，过来补刀那不冚家铲
+
+不会又是靠他老婆吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
