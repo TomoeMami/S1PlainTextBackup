@@ -3457,3 +3457,13 @@ https://www.bilibili.com/video/BV19E421w7Mj
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  大耳兽  
+##### 1319#       发表于 2026-3-16 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69337692&amp;ptid=2086574" target="_blank">仟音一心 发表于 2026-3-16 09:35</a>
+但是真正的“抑制力”是FGO的运营，现在完全不知道会怎么搞。</blockquote>
+也不需要实装进fgo，到时候第十卷结尾或者有个日后谈性质的东西提一嘴就可以了。
+
