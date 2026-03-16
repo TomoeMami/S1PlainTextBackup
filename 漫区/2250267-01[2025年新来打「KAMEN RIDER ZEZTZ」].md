@@ -3104,3 +3104,18 @@ C.O.D.E这个雷不会要到最终章才爆吧
 
 啊B上了，难道介质真是人肉背过来的，结果因为航班停飞所以迟到了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失落之翼  
+##### 981#       发表于 2026-3-16 09:19
+
+3号之前一脸死人样现在变成变态了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  32767  
+##### 982#       发表于 2026-3-16 09:20
+
+怪事科这两警察塑造得太像同性恋了，一提到前下属/同学就激动这毛病能不能改改
+
