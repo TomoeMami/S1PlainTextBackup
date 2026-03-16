@@ -3339,3 +3339,29 @@ https://www.bilibili.com/video/BV19E421w7Mj
 
 不会又是靠他老婆吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2017.05.04  
+##### 1309#       发表于 2026-3-16 09:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69337451&amp;ptid=2086574" target="_blank">ardente 发表于 2026-3-16 08:48</a>
+
+狗子怎么也会踩水飘
+
+打成这样了闪阵营怎么自保的，仇海不都脱身了，过来补刀那不冚家铲
+
+不会又是靠他老婆吧 ...</blockquote>
+出门在外还是得靠老婆<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  失落之翼  
+##### 1310#       发表于 2026-3-16 09:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69332236&amp;ptid=2086574" target="_blank">fatzhi 发表于 2026-3-15 00:55</a>
+
+所以海神是什么东西？不会是妈祖吧</blockquote>
+鱼，好大的鱼，虎纹鲨鱼<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
