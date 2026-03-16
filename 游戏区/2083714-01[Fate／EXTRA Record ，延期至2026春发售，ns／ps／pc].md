@@ -1534,3 +1534,16 @@ bn搞结构重组之后的状态虽然也抽象就是了
 
 你月最近几年的项目进展真是个顶个的吃屎
 
+
+*****
+
+####  哎哟卧槽了  
+##### 152#       发表于 2026-3-16 15:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69339826&amp;ptid=2083714" target="_blank">御坂MKII 发表于 2026-3-16 15:30</a>
+
+还有 bn 实际参与的部分倒也说得过去，不过如果真的基本完成了 bn 都能撤回开发的部分吗
+
+你月最近几年的 ...</blockquote>
+冷饭和手游已经吃撑了，其他当然是随缘了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
