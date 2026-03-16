@@ -3376,3 +3376,24 @@ https://www.bilibili.com/video/BV19E421w7Mj
 不是说抑制力给予试炼是为了把他收编吗。</blockquote>
 但是真正的“抑制力”是FGO的运营，现在完全不知道会怎么搞。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  風卷豹  
+##### 1312#       发表于 2026-3-16 09:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69332855&amp;ptid=2086574" target="_blank">仟音一心 发表于 2026-3-15 09:12</a>
+
+西格玛人气不太够，以后FSF落地FGO估计都难实装西格玛。</blockquote>
+正因为人气和定位低才适合做赠送4星，池子名额就让高人气从这慢慢争去吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 1313#       发表于 2026-3-16 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69337764&amp;ptid=2086574" target="_blank">風卷豹 发表于 2026-3-16 09:43</a>
+
+正因为人气和定位低才适合做赠送4星，池子名额就让高人气从这慢慢争去吧 ...</blockquote>
+主要FSF这波卫星实在是太多了。
+
