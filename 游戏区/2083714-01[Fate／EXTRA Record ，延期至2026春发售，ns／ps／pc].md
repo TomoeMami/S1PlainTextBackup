@@ -1623,3 +1623,26 @@ http://www.typemoon.org/bbb/diary/log/201611.html
 本来想等re出了再打库里放了好久的mmv那两个无双的，如果不先了解fe的剧情先打fee影响大吗 ...</blockquote>
 建议云一下剧情，我记得有人做中文字幕流程来着。fe是这个系列的起点，岸波白野的身世、塑造和尼禄无铭玉藻前的故事都要玩这部。fex作为无双游戏虽然是续作，但大部分笔力都用在塑造巨神阿提拉上了。
 
+
+*****
+
+####  大十字紅朔  
+##### 161#       发表于 2026-3-16 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69339437&amp;ptid=2083714" target="_blank">qiyu1234 发表于 2026-3-16 14:24</a>
+
+本来就不是型月不想做而是万南因为内部问题没法继续做了（有传闻万南工作室暂停了所有的外部合作项目）
+
+ ...</blockquote>
+据说是开发了6年还没妇科出来BN感觉被仙人跳了
+
+而且有FRS前车之鉴，那个开发了7年还没卖到30万
+
+<img src="https://img.stage1st.com/forum/202603/16/212625buljgfvopujl1ifl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-16 21:26 上传
+
