@@ -6462,3 +6462,11 @@ RPD只得開門一刻有2R的回憶，內容過短才感到失敗
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  卡拉德利姆  
+##### 2035#       发表于 2026-3-16 18:28
+
+斧头是展现里昂战力比4提升的重要甚至是主要元素<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
