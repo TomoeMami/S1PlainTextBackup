@@ -1613,3 +1613,13 @@ http://www.typemoon.org/bbb/diary/log/201611.html
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">找暗耻转型成真月球无双也不是不行前两作月球无双不太行
 
+
+*****
+
+####  ——裂锦——  
+##### 160#       发表于 2026-3-16 17:35
+
+<blockquote>医生狼多 发表于 2026-3-16 16:02
+本来想等re出了再打库里放了好久的mmv那两个无双的，如果不先了解fe的剧情先打fee影响大吗 ...</blockquote>
+建议云一下剧情，我记得有人做中文字幕流程来着。fe是这个系列的起点，岸波白野的身世、塑造和尼禄无铭玉藻前的故事都要玩这部。fex作为无双游戏虽然是续作，但大部分笔力都用在塑造巨神阿提拉上了。
+
