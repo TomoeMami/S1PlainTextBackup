@@ -6203,3 +6203,17 @@ re系列还在吃三上真司的老本。re2的箱庭设计、re4的动作设计
 就是这个理由啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 浣熊市相关的所有剧情和角色都是被缝进来的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红魔馆的糖  
+##### 2013#       发表于 2026-3-16 10:24
+
+ 本帖最后由 红魔馆的糖 于 2026-3-16 10:27 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69337656&amp;ptid=2252759" target="_blank">渡边加奈子 发表于 2026-3-16 09:28</a>
+
+手枪这代是极度弱势武器,也就奖励的玛蒂尔达满改后火力很猛,媲美990.除了会把手枪弹药打成稀缺物资
+
+霰弹 ...</blockquote>
+狙击我觉得既然难选那就干脆不选，反正这作的物资箱特别大，带上两把轮流用，再加上连狙的大弹仓，可以骗出非常大量的动态掉落子弹。990确实完美武器，可惜这作不能像RE4大物资箱子+火药动态掉落去集中骗同一个类型的子弹，不然就真没有别的武器什么事了
+
