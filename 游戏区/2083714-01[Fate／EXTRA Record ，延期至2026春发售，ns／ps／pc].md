@@ -1566,3 +1566,20 @@ bn搞结构重组之后的状态虽然也抽象就是了
 本来想等re出了再打库里放了好久的mmv那两个无双的，如果不先了解fe的剧情先打fee影响大吗 ...</blockquote>
 还好，extella 本身是 fe 分岔出来的另一个 if 后续。知道背景基本就够了
 
+
+*****
+
+####  赤黑的假面  
+##### 155#       发表于 2026-3-16 16:17
+
+FER这事要是没处理好，感觉以后就不信型月画的饼了
+
+*****
+
+####  岸浪白野  
+##### 156#       发表于 2026-3-16 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69340014&amp;ptid=2083714" target="_blank">医生狼多 发表于 2026-3-16 16:02</a>
+本来想等re出了再打库里放了好久的mmv那两个无双的，如果不先了解fe的剧情先打fee影响大吗 ...</blockquote>
+首先看过fe也顶多是对人物更有感情，extella 的背景又是if线的发展，你玩extella甚至是看一遍17年蘑菇日记的extella zero不就行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
