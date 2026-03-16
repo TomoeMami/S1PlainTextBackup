@@ -1480,3 +1480,25 @@ bn搞结构重组之后的状态虽然也抽象就是了
 ----发送自 STAGE1 App for Android.</blockquote>
 蘑菇起码还能看到fgo写了不少东西只能说重心放在恰烂钱了，型月除了能看到武内偶尔画点抽象图，其他人真是不知道在干啥
 
+
+*****
+
+####  御坂MKII  
+##### 147#       发表于 2026-3-16 14:16
+
+開発は引き続き継続しており
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">你还要开发啥
+
+
+*****
+
+####  qiyu1234  
+##### 148#       发表于 2026-3-16 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69339406&amp;ptid=2083714" target="_blank">御坂MKII 发表于 2026-3-16 14:16</a>
+開発は引き続き継続しており
+
+你还要开发啥</blockquote>
+本来就不是型月不想做而是万南因为内部问题没法继续做了（有传闻万南工作室暂停了所有的外部合作项目）
+万南工作室跟万南娱乐是两个公司，一个是开发一个是发行相关，这游戏因为有万南工作室参与一部分，导致殃及池鱼了
+
