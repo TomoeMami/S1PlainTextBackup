@@ -6470,3 +6470,20 @@ RPD只得開門一刻有2R的回憶，內容過短才感到失敗
 
 斧头是展现里昂战力比4提升的重要甚至是主要元素<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 2036#       发表于 2026-3-16 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69340804&amp;ptid=2252759" target="_blank">——啧 发表于 2026-3-16 18:22</a>
+
+用无限耐久斧头是什么思路？序章无聊拖时间我可以理解，可以容许无限耐久斧头这个很奇怪吧？
+
+—— 来自  ...</blockquote>
+斧頭無限耐久= 接近無敵，就是防不到子彈
+
+擋格實在太霸道
+
+各種BOSS如果有連擊，也是擋了第一下第2下就爆之後就被重擊，有時手忙腳亂避招時，忘了磨斧就容易被爆甲
+
