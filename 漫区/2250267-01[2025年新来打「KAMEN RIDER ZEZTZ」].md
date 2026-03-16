@@ -3180,3 +3180,25 @@ C.O.D.E这个雷不会要到最终章才爆吧
 
 —— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  TOYSTORY  
+##### 988#       发表于 2026-3-16 10:58
+
+ 本帖最后由 TOYSTORY 于 2026-3-16 10:59 编辑 
+
+三骑看介绍像是那种混沌乐子人，新手保护期也该有几话吧。但因为演员的关系，大家都觉得他会马上吃瘪变成搞笑角色，也是没谁了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鲁邦三世1  
+##### 989#       发表于 2026-3-16 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69338132&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-3-16 10:35</a>
+
+问题是你这个全知视角看到的是不是都是真的而已，原本如果你不全知我会觉得大部分行为不会违背角色本质属 ...</blockquote>
+不猜，后续走向无所谓
+
+只要不像加布坠机这么严重就行
+
