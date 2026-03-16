@@ -6540,3 +6540,15 @@ RPD只得開門一刻有2R的回憶，內容過短才感到失敗
 
 瘋狂模式開局時，LEON故意打腳令對方全變大頭後再殺，可以賺多些少錢將安魂升到2級再加品酒，這時「不要」再用其他影響威力的掛件，更指明就是不要用「厲害菜鳥」，因為有BUG會令傷害反而下降
 
+
+*****
+
+####  Piano-Forest  
+##### 2042#         楼主| 发表于 2026-3-17 00:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69275556&amp;ptid=2252759" target="_blank">Piano-Forest 发表于 2026-3-4 17:36</a>
+
+『バイオハザード レクイエム』を500万人以上の方々に遊んでいただき、開発チーム一同、心より感謝してお ...</blockquote>
+破600万
+[https://www.capcom.co.jp/ir/english/news/html/e260316.html](https://www.capcom.co.jp/ir/english/news/html/e260316.html)
+
