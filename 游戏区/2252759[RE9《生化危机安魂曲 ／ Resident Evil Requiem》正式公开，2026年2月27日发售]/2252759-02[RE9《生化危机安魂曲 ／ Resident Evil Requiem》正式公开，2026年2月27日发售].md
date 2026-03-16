@@ -6385,3 +6385,11 @@ ZEON那把單發狙擊+最後一擊插件也是超暴力
 
 原来红刀这么猛吗，少玩了几块钱，我都是无限子弹奖励冲锋枪扫过去的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  里村紅葉  
+##### 2029#       发表于 2026-3-16 15:13
+
+原来一开始焦木市大街上乱冲的车都可以弹反<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这代码怎么写的
+
