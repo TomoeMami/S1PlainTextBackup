@@ -1089,3 +1089,11 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 —— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3771#       发表于 2026-3-16 22:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">有没有买了BGM包的，苏帕派骆驼处刑曲在哪一个包里？
+
