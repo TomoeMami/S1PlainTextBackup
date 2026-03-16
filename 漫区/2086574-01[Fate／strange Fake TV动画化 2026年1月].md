@@ -3481,3 +3481,42 @@ https://www.bilibili.com/video/BV19E421w7Mj
 
 男角色比较靠谱的就大仲马和西格玛，西格玛可以拉个watcher做挂件，仇海我都觉得悬，其他基本不用指望了
 
+
+*****
+
+####  失落之翼  
+##### 1321#       发表于 2026-3-16 11:47
+
+FGO现在一股大结局后日谈随时可以关服的氛围，还要看看6月主线是什么情况吧
+
+*****
+
+####  失落之翼  
+##### 1322#       发表于 2026-3-16 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69337972&amp;ptid=2086574" target="_blank">仟音一心 发表于 2026-3-16 10:14</a>
+
+主要是伊什塔尔已经有弓凛了啊，再出一个会怎么样无法想象。</blockquote>
+闪就有3个，凛也有宇宙凛啊，再来个也不是事
+
+*****
+
+####  風卷豹  
+##### 1323#       发表于 2026-3-16 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69338578&amp;ptid=2086574" target="_blank">character 发表于 2026-3-16 11:35</a>
+
+女角色你漏了横飞姬，她实装的可能性很高的；反而伊什塔尔在fgo已经有弓凛没啥可能
+
+男角色比较靠谱的就 ...</blockquote>
+只联动动画的话横飞姬很难的，光从者形态的话出场太少，从者+御主缝起来做双形态卡又要考虑性价比。伊什塔尔卡名做成伊什塔尔【菲莉亚】之类的就好了
+
+*****
+
+####  拖鞋脚后跟  
+##### 1324#       发表于 2026-3-16 11:49
+
+杰克附身弗拉特落地可能性几何？宝具动画直接套伯爵的分身放光炮模组<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9660, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
