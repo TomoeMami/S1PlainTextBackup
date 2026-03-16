@@ -35,3 +35,27 @@
 
 索尼已开始为 PS5 Pro 推送升级后的 PSSR 更新，官方支持的游戏名单比此前在 X 平台（原推特）上曝光的版本覆盖范围更广。在 3 月 16 日发布的 PlayStation 官方博客文章中，索尼表示，最新的 PS5 系统软件更新为升级版PlayStation 光谱超分辨率技术（PSSR） 提供了全面支持，该功能将于太平洋时间 3 月 16 日晚 10 点起分阶段推送上线。
 
+
+*****
+
+####  clover293  
+##### 577#       发表于 2026-3-17 02:35
+
+<img src="https://img.stage1st.com/forum/202603/17/023526lyehnr6cep85cc5r.png" referrerpolicy="no-referrer">
+
+<strong>1000021706.png</strong> (35.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-17 02:35 上传
+
+<img src="https://img.stage1st.com/forum/202603/17/023527qjgg38f3gfgljwhb.jpg" referrerpolicy="no-referrer">
+
+<strong>1000021707.jpg</strong> (219.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-17 02:35 上传
+
+感觉寂静岭f效果好一些
+
