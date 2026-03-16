@@ -1519,3 +1519,18 @@ bn搞结构重组之后的状态虽然也抽象就是了
 这个我记得不是个重制版吗，还是我记错了</blockquote>
 是重制版，原版是psp上的游戏。
 
+
+*****
+
+####  御坂MKII  
+##### 151#       发表于 2026-3-16 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69339437&amp;ptid=2083714" target="_blank">qiyu1234 发表于 2026-3-16 14:24</a>
+
+本来就不是型月不想做而是万南因为内部问题没法继续做了（有传闻万南工作室暂停了所有的外部合作项目）
+
+ ...</blockquote>
+还有 bn 实际参与的部分倒也说得过去，不过如果真的基本完成了 bn 都能撤回开发的部分吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+你月最近几年的项目进展真是个顶个的吃屎
+
