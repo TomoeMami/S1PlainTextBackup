@@ -1407,3 +1407,25 @@ FSR的语音量也很不小吧，为什么光荣这么快能做好
 
 剧情现成的，建模已经不如二游，全cv已经二游标配，玩法是照搬尖塔的，这都能做这么多年还跑路，你月是废得有点稀有
 
+
+*****
+
+####  warjuggler  
+##### 140#       发表于 2026-3-16 12:06
+
+拉完了，型月除了蘑菇之外的人每天到底都在忙啥，多少年没有正经产出了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  黑上シグマ  
+##### 141#       发表于 2026-3-16 12:07
+
+<blockquote>引用第139楼warjuggler于2026-03-16 12:06发表的  :
+
+拉完了，型月除了蘑菇之外的人每天到底都在忙啥，多少年没有正经产出了论坛助手,iPhone</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蘑菇也不知道在忙啥，月姬里线多少年了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
