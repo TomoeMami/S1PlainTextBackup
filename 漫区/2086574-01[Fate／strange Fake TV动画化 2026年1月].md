@@ -3435,3 +3435,25 @@ https://www.bilibili.com/video/BV19E421w7Mj
 要细细盘的话，只看动画第一 ...</blockquote>
 主要是伊什塔尔已经有弓凛了啊，再出一个会怎么样无法想象。
 
+
+*****
+
+####  格林卡罗尔  
+##### 1317#       发表于 2026-3-16 11:17
+
+想太多了，FSR联动都只落地三个。fsf应该也就这个数量，而且fsf大部分角色合法性存疑，大概会有落地改造，但就算这样我也想不出几个能落地的从者名字，甚至怀疑御主像警察局长都更有可能落地
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  黑上シグマ  
+##### 1318#       发表于 2026-3-16 11:17
+
+<blockquote>引用第1315楼仟音一心于2026-03-16 10:14发表的  :
+
+風卷豹 发表于 2026-3-16 10:03也有可能会像FSR一样几乎全部舍弃，LXS的产能和小心......</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有什么无法想象的，废狗一个名字出N张卡还少吗？大狗后面挂个注释就能出旧狗，俄里翁一个月神挂名一个本体还俩人都是弓阶，真想出没有出不了的事
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+

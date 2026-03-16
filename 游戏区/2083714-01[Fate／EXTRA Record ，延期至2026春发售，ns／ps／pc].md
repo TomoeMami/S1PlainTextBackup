@@ -1345,3 +1345,20 @@ FSR的语音量也很不小吧，为什么光荣这么快能做好
 
 我只能说可能并不是这个游戏的问题，单纯是换发行商的情况
 
+
+*****
+
+####  ネロ  
+##### 133#       发表于 2026-3-16 11:17
+
+果然烂完了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 134#       发表于 2026-3-16 11:20
+
+问就是配音都去年配完了总之型月本社的活干完了
+是新纳一哉年初还在那总之请期待今年的情报，以前访谈还吹万代不仅是发行，还来参与开发的管理和部分乐曲以及影像的制作
+现在自己要找下一家接盘发行，自己找锅去吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
