@@ -1467,3 +1467,16 @@ bn搞结构重组之后的状态虽然也抽象就是了
 阿万只是发行，这玩意预售都一年了，p都没做出来一个，还能怪阿万？
 阿万自己一对垃圾都能丢出来，tm是多废物能让阿万都不和它玩了
 
+
+*****
+
+####  warjuggler  
+##### 146#       发表于 2026-3-16 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69338765&amp;ptid=2083714" target="_blank">黑上シグマ 发表于 2026-3-16 12:07</a>
+
+蘑菇也不知道在忙啥，月姬里线多少年了
+
+----发送自 STAGE1 App for Android.</blockquote>
+蘑菇起码还能看到fgo写了不少东西只能说重心放在恰烂钱了，型月除了能看到武内偶尔画点抽象图，其他人真是不知道在干啥
+
