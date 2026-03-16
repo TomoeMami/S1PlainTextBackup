@@ -1189,3 +1189,38 @@ FSR的语音量也很不小吧，为什么光荣这么快能做好
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嘉术2015  
+##### 115#       发表于 2026-3-16 10:16
+
+什么情况？
+
+这就没了
+
+*****
+
+####  黑上シグマ  
+##### 116#       发表于 2026-3-16 10:17
+
+<blockquote>引用第113楼zechins于2026-03-16 10:09发表的  :</blockquote>
+财团B跑路了，型月表示开发还在继续，今后谁来出啥时候出不知道
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
+*****
+
+####  whzfjd  
+##### 117#       发表于 2026-3-16 10:17
+
+要么贪了，要么嫖了
+
+
+*****
+
+####  纯白花火  
+##### 118#       发表于 2026-3-16 10:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是狗屎万代，赶紧倒闭吧
+

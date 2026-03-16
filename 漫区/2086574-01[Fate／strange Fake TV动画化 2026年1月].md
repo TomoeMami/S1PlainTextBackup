@@ -3422,3 +3422,16 @@ https://www.bilibili.com/video/BV19E421w7Mj
 
 这么看最大的问题是女从者太少，真做的话希波吕忒和伊什塔尔双五星仇海四星也不是不可能<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 1316#       发表于 2026-3-16 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69337902&amp;ptid=2086574" target="_blank">風卷豹 发表于 2026-3-16 10:03</a>
+
+也有可能会像FSR一样几乎全部舍弃，LXS的产能和小心思不是一般人能猜到的。
+
+要细细盘的话，只看动画第一 ...</blockquote>
+主要是伊什塔尔已经有弓凛了啊，再出一个会怎么样无法想象。
+
