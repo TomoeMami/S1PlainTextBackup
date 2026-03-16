@@ -3213,3 +3213,14 @@ C.O.D.E这个雷不会要到最终章才爆吧
 
 —— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  風卷豹  
+##### 991#       发表于 2026-3-16 15:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69337615&amp;ptid=2250267" target="_blank">32767 发表于 2026-3-16 09:20</a>
+
+怪事科这两警察塑造得太像同性恋了，一提到前下属/同学就激动这毛病能不能改改 ...</blockquote>
+这是这两跟主线唯一的联系了。说实话前期还有点单元回这两可以派上用场，现在跟CODE和LADY都算正面开战了，还真的有余力去拍主线外的单元回吗
+
