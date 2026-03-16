@@ -3245,3 +3245,23 @@ C.O.D.E这个雷不会要到最终章才爆吧
 
 又过渡一集，而且是总集篇，是编不出来还是在憋个大的
 
+
+*****
+
+####  暗黑能乐  
+##### 994#       发表于 2026-3-16 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69340322&amp;ptid=2250267" target="_blank">windaria 发表于 2026-3-16 16:49</a>
+
+又过渡一集，而且是总集篇，是编不出来还是在憋个大的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">额，总集篇是固定环节啊
+
+*****
+
+####  无敌钢人泰坦3  
+##### 995#       发表于 2026-3-16 17:12
+
+<blockquote>windaria 发表于 2026-3-16 16:49
+又过渡一集，而且是总集篇，是编不出来还是在憋个大的</blockquote>
+惯例的半程总集篇辣
+
