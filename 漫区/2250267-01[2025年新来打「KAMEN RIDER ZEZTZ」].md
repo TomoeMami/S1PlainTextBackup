@@ -3143,3 +3143,11 @@ C.O.D.E这个雷不会要到最终章才爆吧
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  大耳兽  
+##### 985#       发表于 2026-3-16 10:30
+
+越来越好奇一号特工会是什么样子了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。
+
