@@ -3397,3 +3397,28 @@ https://www.bilibili.com/video/BV19E421w7Mj
 正因为人气和定位低才适合做赠送4星，池子名额就让高人气从这慢慢争去吧 ...</blockquote>
 主要FSF这波卫星实在是太多了。
 
+
+*****
+
+####  Saker_bobo  
+##### 1314#       发表于 2026-3-16 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69333818&amp;ptid=2086574" target="_blank">hkguty 发表于 2026-3-15 12:55</a>
+
+奇怪的知识增加了，没想到现代印第安人还流行开赌场。不过成田良悟看来确实有做些功课。 ...</blockquote>
+纸牌屋里有讲过，保留地内实施部落自治，所以不受法律约束开的赌场，不过基本上只有高位的能拿到利益
+
+*****
+
+####  風卷豹  
+##### 1315#       发表于 2026-3-16 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69337798&amp;ptid=2086574" target="_blank">仟音一心 发表于 2026-3-16 09:47</a>
+
+主要FSF这波卫星实在是太多了。</blockquote>
+也有可能会像FSR一样几乎全部舍弃，LXS的产能和小心思不是一般人能猜到的。
+
+要细细盘的话，只看动画第一季，闪恩理查都实装了；苍白大概率是做不了的，剧情里拉个大骷髅怪或者骑士怪模型当BOSS凑数；大仲马可以做成低星；狂信子、希波吕忒卡池四星；仇海、伊什塔尔5星。幽戈和芬巴巴应该很难实装，特别是幽戈。
+
+这么看最大的问题是女从者太少，真做的话希波吕忒和伊什塔尔双五星仇海四星也不是不可能<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

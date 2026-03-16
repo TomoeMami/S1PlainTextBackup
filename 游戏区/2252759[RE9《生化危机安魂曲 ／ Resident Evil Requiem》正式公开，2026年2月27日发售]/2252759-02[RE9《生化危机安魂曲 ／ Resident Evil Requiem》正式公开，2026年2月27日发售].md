@@ -6192,3 +6192,14 @@ re系列还在吃三上真司的老本。re2的箱庭设计、re4的动作设计
 有人能告诉我剧情上为什么齐诺要带格蕾丝去浣熊市警察局？昨天越想越不对劲，除了给里昂一个旧址重游的理由 ...</blockquote>
 9代讲不清道不明的地方很多.从意会角度来看,联盟作为新晋世界观大黑手,2代的设施已经都被渗透了.并且9代的浣熊市废墟依旧是bow黑市交易的隐蔽场所.rpd就是其一.
 
+
+*****
+
+####  cangyuyao  
+##### 2012#       发表于 2026-3-16 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69336811&amp;ptid=2252759" target="_blank">大厨麦当牛 发表于 2026-3-16 00:21</a>
+有人能告诉我剧情上为什么齐诺要带格蕾丝去浣熊市警察局？昨天越想越不对劲，除了给里昂一个旧址重游的理由 ...</blockquote>
+就是这个理由啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+浣熊市相关的所有剧情和角色都是被缝进来的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
