@@ -1594,3 +1594,14 @@ FER这事要是没处理好，感觉以后就不信型月画的饼了
 16年蘑菇日记的extella zero
 http://www.typemoon.org/bbb/diary/log/201611.html
 
+
+*****
+
+####  伽拉忒亚i  
+##### 158#       发表于 2026-3-16 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69339701&amp;ptid=2083714" target="_blank">空洞骑士 发表于 2026-3-16 15:07</a>
+
+是重制版，原版是psp上的游戏。</blockquote>
+那怎么开发会这么吃力的<img src="https://static.stage1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
