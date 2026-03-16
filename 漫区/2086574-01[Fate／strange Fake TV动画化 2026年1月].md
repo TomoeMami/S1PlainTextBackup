@@ -3365,3 +3365,14 @@ https://www.bilibili.com/video/BV19E421w7Mj
 所以海神是什么东西？不会是妈祖吧</blockquote>
 鱼，好大的鱼，虎纹鲨鱼<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 1311#       发表于 2026-3-16 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69336714&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-3-15 23:46</a>
+
+不是说抑制力给予试炼是为了把他收编吗。</blockquote>
+但是真正的“抑制力”是FGO的运营，现在完全不知道会怎么搞。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
