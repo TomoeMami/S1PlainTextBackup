@@ -3467,3 +3467,17 @@ https://www.bilibili.com/video/BV19E421w7Mj
 但是真正的“抑制力”是FGO的运营，现在完全不知道会怎么搞。</blockquote>
 也不需要实装进fgo，到时候第十卷结尾或者有个日后谈性质的东西提一嘴就可以了。
 
+
+*****
+
+####  character  
+##### 1320#       发表于 2026-3-16 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69337902&amp;ptid=2086574" target="_blank">風卷豹 发表于 2026-3-16 10:03</a>
+也有可能会像FSR一样几乎全部舍弃，LXS的产能和小心思不是一般人能猜到的。
+
+要细细盘的话，只看动画第一 ...</blockquote>
+女角色你漏了横飞姬，她实装的可能性很高的；反而伊什塔尔在fgo已经有弓凛没啥可能
+
+男角色比较靠谱的就大仲马和西格玛，西格玛可以拉个watcher做挂件，仇海我都觉得悬，其他基本不用指望了
+
