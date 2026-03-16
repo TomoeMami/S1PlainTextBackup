@@ -1266,3 +1266,11 @@ FSR的语音量也很不小吧，为什么光荣这么快能做好
 
 相信也没人抱希望了，但还是得说一句新纳一哉这人真不适合在小厂干活，没人管着他就飘
 
+
+*****
+
+####  quanlix  
+##### 124#       发表于 2026-3-16 10:44
+
+一定是不想给小玉开强化本导致的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
