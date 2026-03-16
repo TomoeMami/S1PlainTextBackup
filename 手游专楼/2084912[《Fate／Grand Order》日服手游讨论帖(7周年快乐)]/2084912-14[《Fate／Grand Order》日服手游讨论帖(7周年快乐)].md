@@ -275,3 +275,13 @@
 
 这样才对啊，将痛点给改掉，不是+3000这种弱智东西。
 
+
+*****
+
+####  森兰丸  
+##### 20603#       发表于 2026-3-16 18:56
+
+看到EXTRA重制版发售中止了....又想起前2天名越把猪场当猪宰的事
+
+真就只有这么一个表情可以发<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
