@@ -1359,3 +1359,11 @@ Galgame？
 
 啊 可以攻略你咩姐吗
 
+
+*****
+
+####  thisisaspider  
+##### 20359#       发表于 2026-3-17 03:35
+
+galgame是独立贩售的还是怎样的，有点兴趣。虽然要攻略伪娘<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
