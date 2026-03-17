@@ -1107,3 +1107,11 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  alialex  
+##### 3773#       发表于 2026-3-17 21:31
+
+玩家都是有偷懒心理的，能一次过就不想打两次，但是一次过就得是全开发+不死人而且没有系列对应的金色加攻插件难度又太大了，干脆不打<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
