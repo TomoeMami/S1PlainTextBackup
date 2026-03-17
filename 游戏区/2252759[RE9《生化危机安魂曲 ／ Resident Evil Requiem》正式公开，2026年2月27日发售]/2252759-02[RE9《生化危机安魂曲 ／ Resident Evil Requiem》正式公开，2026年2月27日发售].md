@@ -6572,3 +6572,11 @@ RE4要是也能骗弹匣就好，大伙都能骗怎么就你拉了跨
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">re4确实迷，改弹匣不补子弹我都惊了
 
+
+*****
+
+####  razielzyc  
+##### 2045#       发表于 2026-3-17 10:22
+
+连接雷比普通雷强得多么？得用2个去合成性价比不知道高不高。
+
