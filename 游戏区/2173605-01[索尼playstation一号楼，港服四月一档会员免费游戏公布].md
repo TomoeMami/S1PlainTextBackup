@@ -168,3 +168,22 @@ what，之前没1080吗？还是指更高码率？</blockquote>
 1080p高质量模式——玩家现在可以在进行远程游玩和云串流传输时选择1080p高质量模式。与默认的1080p标准 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以，不知道码率能不能追上psplay
 
+
+*****
+
+####  黑猫软  
+##### 587#       发表于 2026-3-17 23:39
+
+星空来了！
+
+<img src="https://img.stage1st.com/forum/202603/17/233820dhsyj2isj62plzht.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1773761307083_43.jpg</strong> (72.29 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-3-17 23:38 上传
+
+港服358港币 之前pc首发的，我还是等打折吧
+
