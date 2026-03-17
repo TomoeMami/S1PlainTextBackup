@@ -6646,3 +6646,14 @@ RE4要是也能骗弹匣就好，大伙都能骗怎么就你拉了跨
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  红魔馆的糖  
+##### 2052#       发表于 2026-3-17 18:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69346355&amp;ptid=2252759" target="_blank">矮矮人 发表于 2026-3-17 18:34</a>
+游戏恐怖吗，胆小。
+玩过234，2开风灵火箭筒走路，3的苍白有点哈人，4的再生有点哈人</blockquote>
+按你这个接受范围，格蕾丝线会很吓人，里昂线一点吓人要素都没有，流程各占一半
+
