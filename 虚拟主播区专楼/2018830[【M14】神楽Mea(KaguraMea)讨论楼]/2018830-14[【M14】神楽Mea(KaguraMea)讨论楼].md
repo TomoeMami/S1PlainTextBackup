@@ -1367,3 +1367,11 @@ Galgame？
 
 galgame是独立贩售的还是怎样的，有点兴趣。虽然要攻略伪娘<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古战场亡魂  
+##### 20360#       发表于 2026-3-17 19:48
+
+直接去steam买不就得了。
+
