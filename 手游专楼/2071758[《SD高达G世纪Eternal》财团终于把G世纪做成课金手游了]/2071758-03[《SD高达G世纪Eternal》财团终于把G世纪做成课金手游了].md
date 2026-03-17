@@ -1097,3 +1097,13 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 <img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">有没有买了BGM包的，苏帕派骆驼处刑曲在哪一个包里？
 
+
+*****
+
+####  jackyhuang  
+##### 3772#       发表于 2026-3-17 16:39
+
+突然发现永恒之路EX前几关给了攻略提示，觉得玩家太摆了吗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
