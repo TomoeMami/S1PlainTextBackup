@@ -158,3 +158,13 @@ what，之前没1080吗？还是指更高码率？</blockquote>
 
 —— 来自 OPPO PLA110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  医生狼多  
+##### 586#       发表于 2026-3-17 21:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69346949&amp;ptid=2173605" target="_blank">哎哟卧槽了 发表于 2026-3-17 21:16</a>
+1080p高质量模式——玩家现在可以在进行远程游玩和云串流传输时选择1080p高质量模式。与默认的1080p标准 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以，不知道码率能不能追上psplay
+
