@@ -748,3 +748,11 @@ PV：[https://youtu.be/y5MiWXKGVyc](https://youtu.be/y5MiWXKGVyc)
 
 <img src="https://p.sda1.dev/31/427d4aa6d49981445f61e2d555a5e8b4/1000162198.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 81#       发表于 2026-3-17 17:50
+
+虽然是提前收录，但是没想到能再次听到土师孝也得声音。
+
