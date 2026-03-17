@@ -6564,3 +6564,11 @@ RPD只得開門一刻有2R的回憶，內容過短才感到失敗
 
 RE4要是也能骗弹匣就好，大伙都能骗怎么就你拉了跨
 
+
+*****
+
+####  astrayl  
+##### 2044#       发表于 2026-3-17 09:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">re4确实迷，改弹匣不补子弹我都惊了
+
