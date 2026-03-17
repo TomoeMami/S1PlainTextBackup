@@ -732,3 +732,11 @@ PV：[https://youtu.be/y5MiWXKGVyc](https://youtu.be/y5MiWXKGVyc)
 
 (『The Best of ‘Playing the Orchestra 2014’』)
 
+
+*****
+
+####  acejoe  
+##### 79#       发表于 2026-3-17 13:06
+
+你还真别说，越看越很期待了
+
