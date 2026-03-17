@@ -6,3 +6,11 @@
 
 闹麻了，玩这游戏就好像进了精神病院一样<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真红眼教授  
+##### 7397#       发表于 2026-3-17 22:52
+
+电榴弹加快换弹速度后真舒服，以后电榴弹补包就是新的榴弹补包了
+
