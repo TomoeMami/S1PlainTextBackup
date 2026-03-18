@@ -3361,3 +3361,13 @@ C.O.D.E这个雷不会要到最终章才爆吧
 令和我印象中有总编集的也就01、极狐（不太记得清，好像也就半集而已）、加布、ZZZ，01是有疫情原因，极 ...</blockquote>
 加布的总集篇在44集，大后期了，太迷惑了
 
+
+*****
+
+####  masonknight  
+##### 1006#       发表于 2026-3-18 23:19
+
+看完26集了，从未有过如此美妙的开局！<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+另外那个3号特工贼像暗黑版的张一山，太出戏了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
