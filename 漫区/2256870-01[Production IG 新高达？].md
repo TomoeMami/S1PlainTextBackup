@@ -1039,3 +1039,18 @@ IG当年也是做eva的
 
 都外星人了，敢不敢再来部超级系
 
+
+*****
+
+####  poiqwe  
+##### 114#       发表于 2026-3-18 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69352774&amp;ptid=2256870" target="_blank">鳄鱼亮爪 发表于 2026-3-18 22:23</a>
+
+会不会又是这种剧情：
+
+1、外星人和人类在外形上基本没区别
+
+2、外星人和人类区别很大，但是是曾今离开地球的 ...</blockquote>
+第二个复刻翠星是吧<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，正好都是ig做的
+
