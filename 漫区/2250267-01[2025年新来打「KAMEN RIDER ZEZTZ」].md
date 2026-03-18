@@ -3350,3 +3350,14 @@ C.O.D.E这个雷不会要到最终章才爆吧
 空我 龙骑 build这三部有，令和就成惯例了</blockquote>
 令和我印象中有总编集的也就01、极狐（不太记得清，好像也就半集而已）、加布、ZZZ，01是有疫情原因，极狐和ZZZ也算插入得比较自然，最迷惑的是加布
 
+
+*****
+
+####  挺好的  
+##### 1005#       发表于 2026-3-18 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69350735&amp;ptid=2250267" target="_blank">JOHNCHCHAN 发表于 2026-3-18 15:46</a>
+
+令和我印象中有总编集的也就01、极狐（不太记得清，好像也就半集而已）、加布、ZZZ，01是有疫情原因，极 ...</blockquote>
+加布的总集篇在44集，大后期了，太迷惑了
+
