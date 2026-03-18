@@ -846,3 +846,26 @@ IG当年也是做eva的
 不是打移民外星人，真的打生命体
 和鸭志田高达刚好题材一样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  飞天猪2005  
+##### 92#       发表于 2026-3-18 18:04
+
+半个OO厨表示？
+
+*****
+
+####  巴尔干炮  
+##### 93#       发表于 2026-3-18 18:09
+
+打外星人不适合高达，高达聚焦于人类内斗就是因为当年打外星人的机器人动画太多了，这条路到现在已经没什么可拍的了。
+
+
+*****
+
+####  Humpy  
+##### 94#       发表于 2026-3-18 18:12
+
+别是最开始说是地球外生命体，结果是<blockquote>从地球外飘来一台神秘的ms，上面用的技术远超地球水平，于是地球人开始逆向制作了这台ms的兄弟机并量产……</blockquote>这样的展开<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

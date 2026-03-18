@@ -1303,3 +1303,12 @@ https://ttcg.jp/theatre_shinjuku/top ...</blockquote>
 
 好耶字数补丁
 
+
+*****
+
+####  Piano-Forest  
+##### 128#         楼主| 发表于 2026-3-18 18:09
+
+全篇但有河蟹（今晚8点公开）
+[https://youtu.be/FsgjXJIdJUY](https://youtu.be/FsgjXJIdJUY)
+
