@@ -756,3 +756,14 @@ PV：[https://youtu.be/y5MiWXKGVyc](https://youtu.be/y5MiWXKGVyc)
 
 虽然是提前收录，但是没想到能再次听到土师孝也得声音。
 
+
+*****
+
+####  Piano-Forest  
+##### 82#         楼主| 发表于 2026-3-18 18:24
+
+驚愕の“全編手描き”アニメ──『SEKIRO: NO DEFEAT』制作陣が語った反骨精神と業界への挑戦
+[https://premium.kai-you.net/article/965](https://premium.kai-you.net/article/965)
+
+<img src="https://p.sda1.dev/31/50d23a987e50b6653efe730077ad8dae/1000162224.jpg" referrerpolicy="no-referrer">
+
