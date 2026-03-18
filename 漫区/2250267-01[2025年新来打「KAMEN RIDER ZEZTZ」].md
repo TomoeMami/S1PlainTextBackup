@@ -3310,3 +3310,23 @@ C.O.D.E这个雷不会要到最终章才爆吧
 额，总集篇是固定环节啊</blockquote>
 平成时期有总集吗，我补drive时候感觉好像没有？
 
+
+*****
+
+####  FACS  
+##### 1001#       发表于 2026-3-18 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69350208&amp;ptid=2250267" target="_blank">饭冢武也 发表于 2026-3-18 14:16</a>
+平成时期有总集吗，我补drive时候感觉好像没有？</blockquote>
+空我好像有一集是总集篇
+
+*****
+
+####  暗黑能乐  
+##### 1002#       发表于 2026-3-18 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69350208&amp;ptid=2250267" target="_blank">饭冢武也 发表于 2026-3-18 14:16</a>
+
+平成时期有总集吗，我补drive时候感觉好像没有？</blockquote>
+额，可能引进的时候有删减？我没太注意，遗忘了已经，我是时王入坑的
+
