@@ -187,3 +187,13 @@ what，之前没1080吗？还是指更高码率？</blockquote>
 
 港服358港币 之前pc首发的，我还是等打折吧
 
+
+*****
+
+####  iou90  
+##### 588#       发表于 2026-3-18 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69335432&amp;ptid=2173605" target="_blank">黑猫软 发表于 2026-3-15 18:45</a>
+尼尔仙贝全新力作要来了</blockquote>
+今年会公布发售日吧 2027 快夏天慢年底公布
+
