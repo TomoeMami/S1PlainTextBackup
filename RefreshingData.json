@@ -7893,10 +7893,10 @@
     "update": false
   },
   "2050404": {
-    "totalreply": 71913,
+    "totalreply": 71914,
     "title": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
     "newtitle": "[东映原创动画『GIRLS BAND CRY』专楼 完全新作电影制作决定！]",
-    "lastedit": 1773826450,
+    "lastedit": 1773827654,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12285,10 +12285,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 11933,
+    "totalreply": 11934,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「新潮起，故渊离」版本即将开放]",
-    "lastedit": 1773826097,
+    "lastedit": 1773827654,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12402,10 +12402,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 20280,
+    "totalreply": 20282,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1773827174,
+    "lastedit": 1773827771,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13122,10 +13122,10 @@
     "update": false
   },
   "2275215": {
-    "totalreply": 4297,
+    "totalreply": 4301,
     "title": "[巴哥和田姐这瓜简直是白色相簿2pro max]",
     "newtitle": "[巴哥和田姐这瓜简直是白色相簿2pro max]",
-    "lastedit": 1773827174,
+    "lastedit": 1773827771,
     "category": "外野",
     "active": true,
     "update": false
@@ -13581,21 +13581,12 @@
     "update": false
   },
   "2275908": {
-    "totalreply": 16188,
+    "totalreply": 16191,
     "title": "[中东专楼-2026年3月]",
     "newtitle": "[中东专楼-2026年3月]",
-    "lastedit": 1773826698,
+    "lastedit": 1773827770,
     "category": "外野",
     "active": true,
-    "update": false
-  },
-  "2275830": {
-    "totalreply": 53,
-    "title": "[血源在小高的作品里应该是剧本信息密度最大的一部]",
-    "newtitle": "[血源在小高的作品里应该是剧本信息密度最大的一部]",
-    "lastedit": 1772617929,
-    "category": "游戏区",
-    "active": false,
     "update": false
   },
   "2275911": {
@@ -15629,7 +15620,7 @@
     "newtitle": "[勇气默示录怎么样]",
     "lastedit": 1773568567,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2276572": {
@@ -15660,10 +15651,10 @@
     "update": false
   },
   "2276566": {
-    "totalreply": 65,
+    "totalreply": 66,
     "title": "[【默认剧透】来建一个《逆转裁判》专楼]",
     "newtitle": "[【默认剧透】来建一个《逆转裁判》专楼]",
-    "lastedit": 1773715827,
+    "lastedit": 1773827651,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16614,10 +16605,10 @@
     "update": false
   },
   "2276842": {
-    "totalreply": 69,
+    "totalreply": 70,
     "title": "[捐赠相册的美国人埃文凯尔宣布定居中国]",
     "newtitle": "[捐赠相册的美国人埃文凯尔宣布定居中国]",
-    "lastedit": 1773826695,
+    "lastedit": 1773827417,
     "category": "外野",
     "active": true,
     "update": false
@@ -16731,10 +16722,10 @@
     "update": false
   },
   "2276911": {
-    "totalreply": 116,
+    "totalreply": 117,
     "title": "[做了个撸管打卡app，诚邀坛友帮忙测试]",
     "newtitle": "[做了个撸管打卡app，诚邀坛友帮忙测试]",
-    "lastedit": 1773826332,
+    "lastedit": 1773827414,
     "category": "外野",
     "active": true,
     "update": false
@@ -16875,10 +16866,10 @@
     "update": false
   },
   "2276934": {
-    "totalreply": 110,
+    "totalreply": 111,
     "title": "[上海有那么多野生貉的吗？]",
     "newtitle": "[上海有那么多野生貉的吗？]",
-    "lastedit": 1773826212,
+    "lastedit": 1773827419,
     "category": "外野",
     "active": true,
     "update": false
@@ -16956,11 +16947,20 @@
     "update": false
   },
   "2276963": {
-    "totalreply": 51,
+    "totalreply": 56,
     "title": "[红色沙漠来考验s1嗅觉了]",
     "newtitle": "[红色沙漠来考验s1嗅觉了]",
-    "lastedit": 1773827292,
+    "lastedit": 1773827887,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2256870": {
+    "totalreply": 89,
+    "title": "[Production IG 新高达？]",
+    "newtitle": "[Production IG 新高达？]",
+    "lastedit": 1773827421,
+    "category": "漫区",
     "active": true,
     "update": false
   }
