@@ -869,3 +869,26 @@ IG当年也是做eva的
 
 别是最开始说是地球外生命体，结果是<blockquote>从地球外飘来一台神秘的ms，上面用的技术远超地球水平，于是地球人开始逆向制作了这台ms的兄弟机并量产……</blockquote>这样的展开<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿卵真是牛逼  
+##### 95#       发表于 2026-3-18 18:19
+
+不是已经和外星生命体通过对话互相理解了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无敌钢人泰坦3  
+##### 96#       发表于 2026-3-18 18:20
+
+既然是机动奥阵容，那系构会是最终季的下山健人吗，机动奥最终季放送之前还是年年当一部银链便宜片系构，之后就没什么消息了
+
+*****
+
+####  岸浪白野  
+##### 97#       发表于 2026-3-18 18:22
+
+清水画的主角机很保守很像海老川负责画元祖
+虽然上一台海老川画风的元祖就是AGE1<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
