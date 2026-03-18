@@ -68,3 +68,15 @@ ign中国也不吝赞美之词
 
 感觉还不错啊
 
+
+*****
+
+####  BK10  
+##### 347#       发表于 2026-3-18 22:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69352423&amp;ptid=2252823" target="_blank">孔方兄 发表于 2026-3-18 21:13</a>
+游民星空说可以先开半瓶香槟
+
+ign中国也不吝赞美之词</blockquote>
+你要知道一件事媒体前瞻这种事情，是属于无压力乱吹环节，你可以搜搜红霞岛前瞻都有不少不错的评价
+
