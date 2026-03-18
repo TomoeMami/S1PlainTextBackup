@@ -1320,3 +1320,19 @@ https://ttcg.jp/theatre_shinjuku/top ...</blockquote>
 
 有下载了magnet:?xt=urn:btih:ff6c43dfe42ca26aca58c2c41deb96cf4c8c7161
 
+
+*****
+
+####  Toby_dak  
+##### 130#       发表于 2026-3-18 22:20
+
+2025年6月に劇場公開した『ヴァージン・パンク Clockwork Girl』をフルサイズでYouTube公開！
+
+YouTubeでの公開にあたって、過激すぎるシーンには編集を加えております。
+
+ありのままの本編をご覧になりたい方は、ぜひBlu-rayでお確かめください！
+
+※2026年3月25日（水）までの期間限定公開です
+
+[https://www.youtube.com/watch?v=FsgjXJIdJUY](https://www.youtube.com/watch?v=FsgjXJIdJUY)
+
