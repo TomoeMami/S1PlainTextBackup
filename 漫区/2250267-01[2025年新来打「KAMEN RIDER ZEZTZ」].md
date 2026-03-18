@@ -3299,3 +3299,14 @@ C.O.D.E这个雷不会要到最终章才爆吧
 
 我突然有个假药，也许三号的真实身份就是之前提到过的外星人<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  饭冢武也  
+##### 1000#       发表于 2026-3-18 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69340429&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-3-16 17:10</a>
+
+额，总集篇是固定环节啊</blockquote>
+平成时期有总集吗，我补drive时候感觉好像没有？
+
