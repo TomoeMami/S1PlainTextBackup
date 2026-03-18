@@ -1009,3 +1009,11 @@ IG当年也是做eva的
 
 不会又和gq一样，清水荣一全包了吧<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poiqwe  
+##### 111#       发表于 2026-3-18 21:42
+
+现在看到这种已经功成名就但很多年做不出一部佳作的老监督就犯怵，如果是新人监督或许更有信心
+
