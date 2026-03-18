@@ -6812,3 +6812,14 @@ HUNK戰都不知道是否BUG，會否修了
 
 —— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  渡边加奈子  
+##### 2069#       发表于 2026-3-18 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69346841&amp;ptid=2252759" target="_blank">梦诗歌雪 发表于 2026-3-17 20:49</a>
+
+没有吧，至少普通丧尸是只要走到剑圣攻击范围内就能被打死，二楼办公室里那个和等待室里的保洁都是这种情 ...</blockquote>
+是,两人都会对声音有反应.但是攻击仇恨是需要被打的那只出声才会打
+
