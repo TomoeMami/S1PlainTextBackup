@@ -80,3 +80,24 @@ ign中国也不吝赞美之词
 ign中国也不吝赞美之词</blockquote>
 你要知道一件事媒体前瞻这种事情，是属于无压力乱吹环节，你可以搜搜红霞岛前瞻都有不少不错的评价
 
+
+*****
+
+####  葵  
+##### 348#       发表于 2026-3-18 22:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69352423&amp;ptid=2252823" target="_blank">孔方兄 发表于 2026-3-18 21:13</a>
+
+游民星空说可以先开半瓶香槟
+
+ign中国也不吝赞美之词</blockquote>
+你咋不看看近期吹得最厉害的红色沙漠，已经被媒体吹成有塞尔达野炊的玩法乐趣，有大表哥2的广阔世界和细节丰富度，战斗有鬼泣忍龙的爽度深度，仅在GTA6一游之下，万游之上<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  红魔馆的糖  
+##### 349#       发表于 2026-3-18 22:41
+
+这游戏，媒体一直吹连连看小游戏很有感觉，都快吹成和战斗一样牛逼了，到时候看看是什么水平，反正要凯的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
