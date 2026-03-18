@@ -1070,3 +1070,18 @@ IG当年也是做eva的
 
 起码清水荣一能画出符合俺审美的高达，应该能吧（绝望）<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  管理员我不敢了  
+##### 117#       发表于 2026-3-19 00:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">上一部前期宣传打外星人的高达是高达AGE，那个维根的背后故事和这片子的评价就不多说了吧
+
+*****
+
+####  大十字紅朔  
+##### 118#       发表于 2026-3-19 00:19
+
+清水荣一？铁，铁中二高达？
+

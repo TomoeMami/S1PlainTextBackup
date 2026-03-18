@@ -1115,3 +1115,19 @@ AGE前半开发机做完了，也就AGE1二号机有点用
 
 玩家都是有偷懒心理的，能一次过就不想打两次，但是一次过就得是全开发+不死人而且没有系列对应的金色加攻插件难度又太大了，干脆不打<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3774#       发表于 2026-3-19 00:22
+
+<img src="https://img.stage1st.com/forum/202603/19/002239s3effuf4re4enfd3.png" referrerpolicy="no-referrer">
+
+<strong>MuMu12-20260319-002148.png</strong> (501.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-19 00:22 上传
+
+这回的20W怕是没指望了
+
