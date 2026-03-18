@@ -938,3 +938,28 @@ IG当年也是做eva的
 
 这次主角机找新人还是老登<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 103#       发表于 2026-3-18 19:38
+
+ 本帖最后由 岸浪白野 于 2026-3-18 19:39 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69351921&amp;ptid=2256870" target="_blank">bai5468 发表于 2026-3-18 19:14</a>
+别又是披外星人皮的地球人
+
+这次主角机找新人还是老登</blockquote>
+清水荣一 ，机动奥特曼和铁盖塔<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且主角机上面也说过了，那帮最早知情的已经是去年就看到机设了
+
+
+*****
+
+####  aptx8285144  
+##### 104#       发表于 2026-3-18 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69351672&amp;ptid=2256870" target="_blank">阿卵真是牛逼 发表于 2026-3-18 18:19</a>
+
+不是已经和外星生命体通过对话互相理解了吗</blockquote>
+世界线不一样，可以操作jpg
+
