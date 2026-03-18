@@ -892,3 +892,13 @@ IG当年也是做eva的
 清水画的主角机很保守很像海老川负责画元祖
 虽然上一台海老川画风的元祖就是AGE1<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 98#       发表于 2026-3-18 18:30
+
+对剧情不抱期望，但请给我好看的机会<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
