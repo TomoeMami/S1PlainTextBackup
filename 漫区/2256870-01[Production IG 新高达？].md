@@ -1062,3 +1062,11 @@ IG当年也是做eva的
 
 目前感觉没吸引力啊，不如GQ，GQ皮真的太出彩了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白色池塘  
+##### 116#       发表于 2026-3-19 00:06
+
+起码清水荣一能画出符合俺审美的高达，应该能吧（绝望）<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
