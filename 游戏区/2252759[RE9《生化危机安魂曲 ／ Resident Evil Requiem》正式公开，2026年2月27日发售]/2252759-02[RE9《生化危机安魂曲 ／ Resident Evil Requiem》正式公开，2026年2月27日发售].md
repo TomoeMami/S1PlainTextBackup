@@ -6800,3 +6800,15 @@ HUNK戰都不知道是否BUG，會否修了
 
   看了一下PDD上生化9怎么那么贵，基本上是490~500都跟PSN上港币价一比一了
 
+
+*****
+
+####  任天索尼子  
+##### 2068#       发表于 2026-3-18 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69350677&amp;ptid=2252759" target="_blank">yyman 发表于 2026-3-18 15:39</a>
+看了一下PDD上生化9怎么那么贵，基本上是490~500都跟PSN上港币价一比一了</blockquote>
+现在已经大量降到450左右了
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
