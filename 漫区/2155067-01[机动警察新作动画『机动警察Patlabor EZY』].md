@@ -1615,3 +1615,11 @@ CG制作：GAZEN・J.C.STAFF CG部
 
 主题曲竟然是森美声来唱<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古怪山庄士大夫  
+##### 134#       发表于 2026-3-19 22:17
+
+看着不错
+
