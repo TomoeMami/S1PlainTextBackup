@@ -37,3 +37,35 @@
 </blockquote>
        [https://www.bilibili.com/bangumi/play/ep3348683](https://www.bilibili.com/bangumi/play/ep3348683)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41806#       发表于 2026-3-19 21:16
+
+ 本帖最后由 堀内爱里衣 于 2026-3-19 21:17 编辑 
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/19/211735d69zcsvccq6vc04s.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-19_21-17-24.jpg</strong> (267.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-19 21:17 上传
+
+       [https://x.com/miyaji_maseiya/status/2034618390480855187](https://x.com/miyaji_maseiya/status/2034618390480855187)
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/19/211558tllccpl3k3to42l4.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-19_21-15-22.jpg</strong> (128.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-19 21:15 上传
+
+       [https://t.bilibili.com/1181491646408163328](https://t.bilibili.com/1181491646408163328)
+
