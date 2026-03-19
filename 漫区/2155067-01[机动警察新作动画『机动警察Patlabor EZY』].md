@@ -1623,3 +1623,13 @@ CG制作：GAZEN・J.C.STAFF CG部
 
 看着不错
 
+
+*****
+
+####  褪色的雪花  
+##### 135#       发表于 2026-3-19 22:37
+
+pv里有零式和地狱使者 
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
