@@ -6939,3 +6939,11 @@ Eurogamer直接去问卡婊里昂和谁结婚了，中西光头依旧打太极<i
 
 "He may never voice the answer himself, but for now, after finishing a long battle, he has a 'place to go home to'. Isn't that enough?"</blockquote>
 
+
+*****
+
+####  kcalb  
+##### 2081#       发表于 2026-3-19 23:55
+
+＂至少要给李老汉一个回家的地方＂这种语气一般是路人NPC，但从根上讲是既没想好也没权决定，甚至小分头的设计都可能都比肯尼迪夫人先落地。
+
