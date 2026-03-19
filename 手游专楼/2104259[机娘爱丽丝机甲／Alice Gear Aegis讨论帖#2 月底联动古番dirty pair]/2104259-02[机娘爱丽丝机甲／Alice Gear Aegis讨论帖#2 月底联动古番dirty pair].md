@@ -31,3 +31,11 @@
 
 突袭好歹还说得通，是利用打东京时VICE开的传送门。很地狱的就是这一波明明是干东京船团的就算没利维坦军团当时我方也被压着打，被夜露开挂一怒之下跑去打中东了后我方现在能派救援打正面偷老巢分兵几路<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 1945#       发表于 2026-3-19 22:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">联动曲真蛮上头的，数字版哪里能买嘛（
+
