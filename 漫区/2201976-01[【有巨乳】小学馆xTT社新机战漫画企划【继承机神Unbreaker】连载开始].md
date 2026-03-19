@@ -25,3 +25,13 @@
 
 感谢了二代目担当编辑没有一代目 那看来是前任编辑作妖了？
 
+
+*****
+
+####  王九的哥哥  
+##### 92#       发表于 2026-3-19 13:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69353753&amp;ptid=2201976" target="_blank">siebten 发表于 2026-3-19 07:33</a>
+感谢了二代目担当编辑没有一代目 那看来是前任编辑作妖了？</blockquote>
+那不一定，你日在涉及到工作交割时可能发生的夭蛾子种类繁多，前任作妖这种讲真都能算好的了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
