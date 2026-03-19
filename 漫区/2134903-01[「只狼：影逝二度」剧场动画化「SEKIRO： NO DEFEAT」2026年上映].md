@@ -767,3 +767,16 @@ PV：[https://youtu.be/y5MiWXKGVyc](https://youtu.be/y5MiWXKGVyc)
 
 <img src="https://p.sda1.dev/31/50d23a987e50b6653efe730077ad8dae/1000162224.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 83#         楼主| 发表于 2026-3-19 19:49
+
+‘Sekiro: No Defeat’ Anime Trailer Revealed; Director Addresses Fans’ Concerns About Adapting Video Game Into Crunchyroll Series (EXCLUSIVE)
+[https://variety.com/2026/tv/news ... terview-1236677478/](https://variety.com/2026/tv/news/sekiro-no-defeat-trailer-crunchyroll-anime-director-interview-1236677478/)
+
+动画导演沓名健一接受采访时透露，该片在剧本创作和分镜设计阶段与FS社进行了“非常紧密”的合作。
+
+“游戏中存在三条主要分支，而在动画中我们大致选择了其中一条作为核心剧情展开。FromSoftware会对所有内容进行审核和确认，确保其与既有的世界观设定保持一致。”
+
