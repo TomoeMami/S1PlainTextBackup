@@ -166,3 +166,27 @@
 
 全宗门之力养出来的天才就献祭了灵魂罐
 
+
+*****
+
+####  leeskies  
+##### 297#       发表于 2026-3-19 18:56
+
+ 本帖最后由 leeskies 于 2026-3-19 18:57 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">和解了，装了几个mod。
+
+套装只需两件生效
+
+猫咪献祭减半
+
+升级重roll一次
+
+家具正面效果翻倍
+
+德鲁伊宠物全自动
+
+重开无debuff
+
+死灵猫不附身
+
