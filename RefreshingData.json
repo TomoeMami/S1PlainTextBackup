@@ -12384,10 +12384,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 10297,
+    "totalreply": 10299,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼2月]",
-    "lastedit": 1773947168,
+    "lastedit": 1773947529,
     "category": "外野",
     "active": true,
     "update": false
@@ -12681,10 +12681,10 @@
     "update": false
   },
   "2197589": {
-    "totalreply": 320,
+    "totalreply": 321,
     "title": "[以死亡游戏为生 TV动画化]",
     "newtitle": "[以死亡游戏为生 TV动画化]",
-    "lastedit": 1773935169,
+    "lastedit": 1773947406,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13473,10 +13473,10 @@
     "update": false
   },
   "2275908": {
-    "totalreply": 17887,
+    "totalreply": 17894,
     "title": "[中东专楼-2026年3月]",
     "newtitle": "[中东专楼-2026年3月]",
-    "lastedit": 1773947168,
+    "lastedit": 1773947767,
     "category": "外野",
     "active": true,
     "update": false
@@ -16952,6 +16952,15 @@
     "newtitle": "[巨型“充电宝”诞生记]",
     "lastedit": 1773934221,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2276485": {
+    "totalreply": 41,
+    "title": "[高速动作act《炎姬》 专楼]",
+    "newtitle": "[高速动作act《炎姬》 专楼]",
+    "lastedit": 1773947648,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
