@@ -1600,3 +1600,18 @@ CG制作：GAZEN・J.C.STAFF CG部
 佐伯貴美香：林原めぐみ
 <img src="https://p.sda1.dev/31/55baf3c60e1d86f650885a43ee391cf7/1000162293.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滴虫研究学家  
+##### 132#       发表于 2026-3-19 21:37
+
+致敬东京毁灭战的地方未免太多了
+
+*****
+
+####  影山银  
+##### 133#       发表于 2026-3-19 21:39
+
+主题曲竟然是森美声来唱<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
