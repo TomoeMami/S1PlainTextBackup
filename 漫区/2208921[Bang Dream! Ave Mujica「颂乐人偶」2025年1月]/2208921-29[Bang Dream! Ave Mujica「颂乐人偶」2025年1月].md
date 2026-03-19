@@ -18,3 +18,22 @@
 
        [https://comic-growl.com/episodes/1bea836539003](https://comic-growl.com/episodes/1bea836539003)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41805#       发表于 2026-3-19 21:04
+
+       <strong>【元祖！BanG Dream Chan】 #24 漂流・教室</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202603/19/210421ubdxvbzmpbmb9x3a.jpg" referrerpolicy="no-referrer">
+
+<strong>1d26506199600442e2fce45d50df21d68ae148a2.jpg</strong> (245.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-19 21:04 上传
+
+</blockquote>
+       [https://www.bilibili.com/bangumi/play/ep3348683](https://www.bilibili.com/bangumi/play/ep3348683)
+
