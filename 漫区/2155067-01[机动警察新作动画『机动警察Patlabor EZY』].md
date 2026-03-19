@@ -1649,3 +1649,16 @@ pv里有零式和地狱使者
 
 经典贯手，suki
 
+
+*****
+
+####  EFSF  
+##### 137#       发表于 2026-3-19 23:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69062681&amp;ptid=2155067" target="_blank">转子引擎 发表于 2026-1-21 12:30</a>
+
+昨天看了新pv，老人物目前只有斯波繁夫（千叶繁）一个人露脸啊，感觉机动警察里，CV对角色最为真爱的只有他 ...</blockquote>
+因为这个角色就是他自己啊，外形都是，押井为他量身打造的。
+
+押井守和千叶繁合作很早了，福星小子押井守执掌的时候，里面眼镜也是根据千叶繁调过。
+
