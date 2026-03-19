@@ -69,3 +69,42 @@
 
        [https://t.bilibili.com/1181491646408163328](https://t.bilibili.com/1181491646408163328)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41807#       发表于 2026-3-19 21:23
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/19/212330svqm2fzb6gqqijqp.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-19_21-20-45.jpg</strong> (217.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-19 21:23 上传
+
+       [https://x.com/bang_dream_info/status/2034540377810817441](https://x.com/bang_dream_info/status/2034540377810817441)
+
+       [https://bang-dream.com/avemujica_livetour_fukuoka/](https://bang-dream.com/avemujica_livetour_fukuoka/)
+
+*****
+
+####  堀内爱里衣  
+##### 41808#       发表于 2026-3-19 21:23
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/19/212348e2dsnibccjnnjhqd.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-19_21-21-49.jpg</strong> (273.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-19 21:23 上传
+
+       [https://x.com/bang_dream_info/status/2034585681448911100](https://x.com/bang_dream_info/status/2034585681448911100)
+
+       [https://megavegas.jp/](https://megavegas.jp/)
+
