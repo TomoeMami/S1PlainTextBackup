@@ -9891,10 +9891,10 @@
     "update": false
   },
   "2093389": {
-    "totalreply": 1932,
+    "totalreply": 1933,
     "title": "[小岛工作室新作《死亡搁浅2 ／ DS2》正式公开，2025年发售]",
     "newtitle": "[小岛工作室新作《死亡搁浅2 ／ DS2》 ／ PC版26年3月19日发售]",
-    "lastedit": 1774029608,
+    "lastedit": 1774030809,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12105,10 +12105,10 @@
     "update": false
   },
   "2262701": {
-    "totalreply": 615,
+    "totalreply": 616,
     "title": "[立一座赛博打卡碑]",
     "newtitle": "[立一座赛博打卡碑]",
-    "lastedit": 1774020490,
+    "lastedit": 1774030808,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12402,10 +12402,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 20992,
+    "totalreply": 20993,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1774029247,
+    "lastedit": 1774031048,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13113,10 +13113,10 @@
     "update": false
   },
   "2275215": {
-    "totalreply": 4926,
+    "totalreply": 4929,
     "title": "[巴哥和田姐这瓜简直是白色相簿2pro max]",
     "newtitle": "[巴哥和田姐这瓜简直是白色相簿2pro max]",
-    "lastedit": 1774030689,
+    "lastedit": 1774031289,
     "category": "外野",
     "active": true,
     "update": false
@@ -13410,10 +13410,10 @@
     "update": false
   },
   "2275908": {
-    "totalreply": 18675,
+    "totalreply": 18676,
     "title": "[中东专楼-2026年3月]",
     "newtitle": "[中东专楼-2026年3月]",
-    "lastedit": 1774030691,
+    "lastedit": 1774031288,
     "category": "外野",
     "active": true,
     "update": false
@@ -14490,12 +14490,12 @@
     "update": false
   },
   "2276422": {
-    "totalreply": 70,
+    "totalreply": 71,
     "title": "[还有没有啥有意思的类生化游戏]",
     "newtitle": "[还有没有啥有意思的类生化4游戏]",
-    "lastedit": 1773666012,
+    "lastedit": 1774031170,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2246063": {
@@ -17024,6 +17024,15 @@
     "newtitle": "[黑球群彻底似辣]",
     "lastedit": 1774025775,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2255282": {
+    "totalreply": 148,
+    "title": "[开放世界生存建造游戏专楼 非生物因素正式版已解锁 禁闭求生2已开启EA 联机群302125055]",
+    "newtitle": "[开放世界生存建造游戏专楼 非生物因素正式版已解锁 禁闭求生2已开启EA 联机群302125055]",
+    "lastedit": 1774031174,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
