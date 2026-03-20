@@ -4361,3 +4361,13 @@ blacksouls2启动，完了三个小时后的一系列想法和体验
 最近无聊到找了噩梦摇篮和亡灵之都这两个国产bs代餐来玩，寿司快点把红死给出了吧，不然后面四魔姬外传＋bs ...</blockquote>
 不行啊，没有黄代不动<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 368#       发表于 2026-3-20 21:37
+
+最近那个淫骸のトランスクラップ也算blacksouls like（？）吧，虽说题材更往AC6靠
+
+整体上有一种bs1的生涩感，包括CG实用度也是，但可更换义体这个机制我是真喜欢
+
