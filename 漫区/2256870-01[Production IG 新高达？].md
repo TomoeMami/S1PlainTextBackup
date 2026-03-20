@@ -1249,3 +1249,15 @@ S.H.MonsterArts
 
 《哥斯拉：怪兽行星》
 
+
+*****
+
+####  Atamaitai  
+##### 137#       发表于 2026-3-21 07:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69364832&amp;ptid=2256870" target="_blank">bai5468 发表于 2026-3-20 22:07</a>
+外星人是怪兽怎么出胶，代孙的大手开摆了？</blockquote>
+可以出软胶<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
