@@ -1241,3 +1241,11 @@ S.H.MonsterArts
 之前不是有个什么最后一台高达的漫画吗，好像也是打外星人？还是异形来着？ ...</blockquote>
 鸭志田一脚本的漫画高达Eight，和这内容都是打怪兽相似真的只是碰巧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  z692689995  
+##### 136#       发表于 2026-3-21 04:18
+
+《哥斯拉：怪兽行星》
+
