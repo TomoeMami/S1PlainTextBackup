@@ -4351,3 +4351,13 @@ blacksouls2启动，完了三个小时后的一系列想法和体验
 
 2026-3-20 20:59 上传
 
+
+*****
+
+####  红魔馆的糖  
+##### 367#       发表于 2026-3-20 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69239880&amp;ptid=1812121" target="_blank">虚无缥缈的分身 发表于 2026-2-27 09:08</a>
+最近无聊到找了噩梦摇篮和亡灵之都这两个国产bs代餐来玩，寿司快点把红死给出了吧，不然后面四魔姬外传＋bs ...</blockquote>
+不行啊，没有黄代不动<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
