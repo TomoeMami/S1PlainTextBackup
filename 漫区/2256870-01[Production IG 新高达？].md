@@ -1103,3 +1103,17 @@ IG当年也是做eva的
 
 铁奥制作组=屎，端下去吧
 
+
+*****
+
+####  岸浪白野  
+##### 121#       发表于 2026-3-20 18:23
+
+高达RG
+火星
+地球夺还作战
+异化兽化的有点吉翁味道的MA
+甲斗剧场版？
+MS战的3DCG制作公司是SOLA DIGITAL ARTS
+<img src="https://p.sda1.dev/31/9a4ec78f657fa32cf6aab31335c15676/image.jpg" referrerpolicy="no-referrer">
+
