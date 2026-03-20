@@ -3379,3 +3379,11 @@ C.O.D.E这个雷不会要到最终章才爆吧
 
 最终绘图<img src="https://p.sda1.dev/31/408fd7a9b42cfa1b41906a50f2fa08f1/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金星  
+##### 1008#       发表于 2026-3-20 09:03
+
+太多尖角了吧，快成刺猬了
+
