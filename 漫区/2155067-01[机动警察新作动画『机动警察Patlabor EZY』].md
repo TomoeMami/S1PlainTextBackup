@@ -1662,3 +1662,12 @@ pv里有零式和地狱使者
 
 押井守和千叶繁合作很早了，福星小子押井守执掌的时候，里面眼镜也是根据千叶繁调过。
 
+
+*****
+
+####  仟音一心  
+##### 138#       发表于 2026-3-20 15:00
+
+<img src="https://s3.bmp.ovh/2026/03/20/U1Rr5dKR.png" referrerpolicy="no-referrer">
+<img src="https://s3.bmp.ovh/2026/03/20/UA7zgfJC.png" referrerpolicy="no-referrer">
+
