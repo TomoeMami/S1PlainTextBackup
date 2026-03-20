@@ -223,3 +223,16 @@ portal的更新太有感了，至少在家里爽玩已经不是问题
 买红沙盘的注意，日版盘无中文</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我看这游戏港日美欧服务器都共用同一个sku编号，实体居然单独出不同版本？
 
+
+*****
+
+####  黑猫软  
+##### 592#       发表于 2026-3-20 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69362351&amp;ptid=2173605" target="_blank">袄_偶滴小乔 发表于 2026-3-20 14:44</a>
+
+我看这游戏港日美欧服务器都共用同一个sku编号，实体居然单独出不同版本？ ...</blockquote>
+不知道棒子咋想的，日版数字好像有中文 但实体没有
+
+目前日版盘已经大跳水<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
