@@ -50,3 +50,15 @@
 联动曲真蛮上头的，数字版哪里能买嘛（</blockquote>
 C107场贩，通贩已经结束预定了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rincewind  
+##### 1947#       发表于 2026-3-20 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69359427&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2026-3-20 01:37</a>
+C107场贩，通贩已经结束预定了
+
+反正以我的检索能力实在是找不到你游CM发售曲有流出过…… ...</blockquote>
+khinsider没有吗
+
