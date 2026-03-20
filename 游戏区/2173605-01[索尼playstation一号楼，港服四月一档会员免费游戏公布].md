@@ -205,3 +205,21 @@ what，之前没1080吗？还是指更高码率？</blockquote>
 
 portal的更新太有感了，至少在家里爽玩已经不是问题
 
+
+*****
+
+####  黑猫软  
+##### 590#       发表于 2026-3-20 14:37
+
+买红沙盘的注意，日版盘无中文
+
+
+*****
+
+####  袄_偶滴小乔  
+##### 591#       发表于 2026-3-20 14:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69362311&amp;ptid=2173605" target="_blank">黑猫软 发表于 2026-3-20 14:37</a>
+买红沙盘的注意，日版盘无中文</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我看这游戏港日美欧服务器都共用同一个sku编号，实体居然单独出不同版本？
+
