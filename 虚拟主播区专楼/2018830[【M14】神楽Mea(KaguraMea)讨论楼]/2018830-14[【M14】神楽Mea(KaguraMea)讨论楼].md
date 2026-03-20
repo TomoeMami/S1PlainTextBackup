@@ -1521,3 +1521,18 @@ galgame是独立贩售的还是怎样的，有点兴趣。虽然要攻略伪娘<
 
 希望早点好起来吧<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  术士q  
+##### 20365#       发表于 2026-3-20 22:45
+
+ 本帖最后由 术士q 于 2026-3-20 22:48 编辑 
+
+那次以及罗贝尔联动以后的久违的棉花糖
+咩绘也是许久不见却越发可爱
+
+棉花糖里依旧是熟悉的人生相谈环节。<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+痛いの痛いの飛んでゆけ。
+
