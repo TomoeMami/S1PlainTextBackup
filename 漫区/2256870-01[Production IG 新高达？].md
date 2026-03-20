@@ -1164,3 +1164,21 @@ MS战的3DCG制作公司是SOLA DIGITAL ARTS
 
 听起来挺无聊的
 
+
+*****
+
+####  滴虫研究学家  
+##### 128#       发表于 2026-3-20 22:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69364832&amp;ptid=2256870" target="_blank">bai5468 发表于 2026-3-20 22:07</a>
+
+外星人是怪兽怎么出胶，代孙的大手开摆了？</blockquote>
+S.H.MonsterArts
+
+*****
+
+####  滴虫研究学家  
+##### 129#       发表于 2026-3-20 22:20
+
+不过好处是，主角终于不是美少女了😏
+
