@@ -3387,3 +3387,14 @@ C.O.D.E这个雷不会要到最终章才爆吧
 
 太多尖角了吧，快成刺猬了
 
+
+*****
+
+####  洛克萨斯  
+##### 1009#       发表于 2026-3-20 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69358651&amp;ptid=2250267" target="_blank">milky658 发表于 2026-3-19 21:57</a>
+
+最终绘图</blockquote>
+有点究极空我+金属簇01的设计思路
+
