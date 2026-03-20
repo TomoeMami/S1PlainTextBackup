@@ -1230,3 +1230,14 @@ S.H.MonsterArts
 
 之前不是有个什么最后一台高达的漫画吗，好像也是打外星人？还是异形来着？
 
+
+*****
+
+####  岸浪白野  
+##### 135#       发表于 2026-3-21 04:12
+
+ 本帖最后由 岸浪白野 于 2026-3-21 04:16 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69365406&amp;ptid=2256870" target="_blank">nagamasa 发表于 2026-3-21 00:31</a>
+之前不是有个什么最后一台高达的漫画吗，好像也是打外星人？还是异形来着？ ...</blockquote>
+鸭志田一脚本的漫画高达Eight，和这内容都是打怪兽相似真的只是碰巧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

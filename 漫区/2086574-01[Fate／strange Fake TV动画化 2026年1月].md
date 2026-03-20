@@ -3734,3 +3734,14 @@ FSF这战斗逻辑都看得我一头雾水的，也不知道删了多少剧情
 <img src="https://p.sda1.dev/31/7e8a1cf7134e83a6de7f90ee7465b5df/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/31/aad90ce2f3adfa7e169a130e7b7c397b/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 1344#       发表于 2026-3-21 04:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69365466&amp;ptid=2086574" target="_blank">被子十三 发表于 2026-3-21 00:57</a>
+这一作是因为原作小说太长了必须要在26集里做完才这么赶的吗？这第一季做了原作小说多少卷的剧情？FZ我记得 ...</blockquote>
+你接下来要看的12集和13集就是做完小说第6卷<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+集数有限，主要是要表现阶段性解决第一个boss和要做到某段三王会议内容来作为第一季剑阶主从内容的收尾
+
