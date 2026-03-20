@@ -62,3 +62,15 @@ C107场贩，通贩已经结束预定了
 反正以我的检索能力实在是找不到你游CM发售曲有流出过…… ...</blockquote>
 khinsider没有吗
 
+
+*****
+
+####  冰风血羽  
+##### 1948#       发表于 2026-3-20 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69363712&amp;ptid=2104259" target="_blank">Rincewind 发表于 2026-3-20 18:02</a>
+khinsider没有吗</blockquote>
+哦草<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">破案了，khinsider我只用日文搜过，用英文才有
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
