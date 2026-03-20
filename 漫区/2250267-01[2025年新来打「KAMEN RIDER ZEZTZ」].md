@@ -3398,3 +3398,19 @@ C.O.D.E这个雷不会要到最终章才爆吧
 最终绘图</blockquote>
 有点究极空我+金属簇01的设计思路
 
+
+*****
+
+####  挺好的  
+##### 1010#       发表于 2026-3-20 13:08
+
+上面那个确认为同人了
+
+<img src="https://img.stage1st.com/forum/202603/20/130849djlun6luuiuillll.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-20 13:08 上传
+
