@@ -236,3 +236,11 @@ portal的更新太有感了，至少在家里爽玩已经不是问题
 
 目前日版盘已经大跳水<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 593#       发表于 2026-3-20 16:29
+
+之前公告就说了实体版中文亚洲区盘only<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
