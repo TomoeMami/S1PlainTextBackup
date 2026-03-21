@@ -8420,7 +8420,7 @@
     "newtitle": "[学园偶像大师]",
     "lastedit": 1773841942,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1803414": {
@@ -9495,10 +9495,10 @@
     "update": false
   },
   "2195588": {
-    "totalreply": 19788,
+    "totalreply": 19789,
     "title": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
     "newtitle": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
-    "lastedit": 1774100911,
+    "lastedit": 1774101257,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12051,10 +12051,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 55877,
+    "totalreply": 55879,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1774100531,
+    "lastedit": 1774101129,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12402,10 +12402,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 21152,
+    "totalreply": 21155,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1774100910,
+    "lastedit": 1774101253,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12483,10 +12483,10 @@
     "update": false
   },
   "2022397": {
-    "totalreply": 609,
+    "totalreply": 610,
     "title": "[「机动战士高达 闪光的哈萨维」第二部『喀耳刻的魔女』]",
     "newtitle": "[「机动战士高达 闪光的哈萨维」第二部『喀耳刻的魔女』]",
-    "lastedit": 1774069086,
+    "lastedit": 1774101128,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13392,10 +13392,10 @@
     "update": false
   },
   "2275908": {
-    "totalreply": 19187,
+    "totalreply": 19203,
     "title": "[中东专楼-2026年3月]",
     "newtitle": "[中东专楼-2026年3月]",
-    "lastedit": 1774100654,
+    "lastedit": 1774101258,
     "category": "外野",
     "active": true,
     "update": false
@@ -16443,10 +16443,10 @@
     "update": false
   },
   "2276976": {
-    "totalreply": 106,
+    "totalreply": 107,
     "title": "[我搓了一款AI驱动龙与地下城文字跑团游戏《剑湾历险记》]",
     "newtitle": "[我搓了一款AI驱动龙与地下城文字跑团游戏《剑湾历险记》]",
-    "lastedit": 1774100052,
+    "lastedit": 1774101010,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16731,10 +16731,10 @@
     "update": false
   },
   "2277089": {
-    "totalreply": 60,
+    "totalreply": 61,
     "title": "[“加油兄弟，下辈子拆腻子”]",
     "newtitle": "[“加油兄弟，下辈子拆腻子”]",
-    "lastedit": 1774061777,
+    "lastedit": 1774101257,
     "category": "外野",
     "active": true,
     "update": false
@@ -16992,10 +16992,10 @@
     "update": false
   },
   "2277176": {
-    "totalreply": 74,
+    "totalreply": 75,
     "title": "[仁王3 美国销量暴死]",
     "newtitle": "[仁王3 美国销量暴死]",
-    "lastedit": 1774100654,
+    "lastedit": 1774101012,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17078,6 +17078,15 @@
     "newtitle": "[《节奏医生》正式版12月7日早上7点发售]",
     "lastedit": 1774099814,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2277224": {
+    "totalreply": 41,
+    "title": "[我的傻逼表哥终于把他退休工资一万多的亲爹给气死了]",
+    "newtitle": "[我的傻逼表哥终于把他退休工资一万多的亲爹给气死了]",
+    "lastedit": 1774101258,
+    "category": "外野",
     "active": true,
     "update": false
   }
