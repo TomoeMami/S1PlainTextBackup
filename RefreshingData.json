@@ -13392,10 +13392,10 @@
     "update": false
   },
   "2275908": {
-    "totalreply": 19367,
+    "totalreply": 19368,
     "title": "[中东专楼-2026年3月]",
     "newtitle": "[中东专楼-2026年3月]",
-    "lastedit": 1774120327,
+    "lastedit": 1774121768,
     "category": "外野",
     "active": true,
     "update": false
@@ -17087,6 +17087,15 @@
     "newtitle": "[推漫《愚者之夜》，余命两年之人的极夜]",
     "lastedit": 1774119011,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2277213": {
+    "totalreply": 41,
+    "title": "[外网讨论：为什么你们这么喜欢2010版的《新三国》？]",
+    "newtitle": "[外网讨论：为什么你们这么喜欢2010版的《新三国》？]",
+    "lastedit": 1774121770,
+    "category": "外野",
     "active": true,
     "update": false
   }
