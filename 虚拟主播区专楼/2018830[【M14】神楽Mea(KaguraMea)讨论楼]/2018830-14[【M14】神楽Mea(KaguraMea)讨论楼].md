@@ -1639,3 +1639,13 @@ galgame是独立贩售的还是怎样的，有点兴趣。虽然要攻略伪娘<
 
 因为弹幕也没爆，所以倒是意料之中，你咩不至于会限说这种话
 
+
+*****
+
+####  xuanwu_lei  
+##### 20370#       发表于 2026-3-21 18:28
+
+FX战士神乐咩又来B限了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉可以根据屌人的B限频率做一个人民币强势指数了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
