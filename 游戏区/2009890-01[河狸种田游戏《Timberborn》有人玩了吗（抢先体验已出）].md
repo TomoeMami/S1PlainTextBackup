@@ -17,3 +17,11 @@
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  oyss  
+##### 184#       发表于 2026-3-21 19:03
+
+以前你用sluice也是自动开关的
+
