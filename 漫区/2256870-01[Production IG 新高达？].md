@@ -1333,3 +1333,18 @@ blue gender?
 
 高达或者说真实系就是冷战时期诞生的，你说打仗不适合拍.....
 
+
+*****
+
+####  大十字紅朔  
+##### 145#       发表于 2026-3-21 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69363825&amp;ptid=2256870" target="_blank">岸浪白野 发表于 2026-3-20 18:23</a>
+
+高达RG
+
+火星
+
+地球夺还作战</blockquote>
+RG还行，什么时候出MG
+
