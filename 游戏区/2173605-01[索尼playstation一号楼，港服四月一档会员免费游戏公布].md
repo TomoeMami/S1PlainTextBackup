@@ -244,3 +244,23 @@ portal的更新太有感了，至少在家里爽玩已经不是问题
 
 之前公告就说了实体版中文亚洲区盘only<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑猫软  
+##### 594#       发表于 2026-3-21 12:54
+
+根据William R. Aguilar的消息，索尼计划将数字服务整合为单一订阅，PlayStation Network（PSN）品牌或将被逐步停用。
+
+索尼内部正计划将旗下所有数字服务整合为单一订阅套餐，整合范围包括：
+
+PlayStation 游戏内容、影视内容（通过索尼影视核心平台 Sony Pictures Core）、电视剧集、音乐服务、动漫内容（如 Crunchyroll 平台旗下作品）
+
+这项 “一站式” 综合服务，预计将在索尼下一代主机发布时全面落地。
+
+索尼或还将为该服务推出手机 / PC 端应用，但存在明确限制：
+
+无法在 PC / 手机端原生运行 PlayStation 游戏，大概率仅能通过流媒体方式（云游戏或远程游玩 Remote Play）体验。
+
+针对订阅库内的游戏，目前有两套备选落地模式： 必须持有 PlayStation 主机（PS6），才可访问游玩订阅库内容，所有用户均可通过云游戏流媒体体验，但不提供 PC 端可下载的游戏版本。
+
