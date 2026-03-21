@@ -3759,3 +3759,17 @@ FSF这战斗逻辑都看得我一头雾水的，也不知道删了多少剧情
 这么好的一个英灵大乱斗的题材压缩成这样也是可惜了，而且从A1的制作来看规格还挺高的。
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看了看原作的更新频率……我估计谁也没想到连FGO完结了FSF都没完结
 
+
+*****
+
+####  character  
+##### 1346#       发表于 2026-3-21 12:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69366819&amp;ptid=2086574" target="_blank">被子十三 发表于 2026-3-21 12:27</a>
+这么好的一个英灵大乱斗的题材压缩成这样也是可惜了，而且从A1的制作来看规格还挺高的。
+
+看了看原作的更 ...</blockquote>
+FSF核心的问题不是篇幅，原作本身就有问题，主线松散打架永远雷声大雨点小，对白各种强行致敬和商业互吹
+
+当然10卷内容塞26集肯定要大量删减，但就第一季都延期了那么长时间你再做长估计工期会直接炸掉
+
