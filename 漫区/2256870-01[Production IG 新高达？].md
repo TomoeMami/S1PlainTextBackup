@@ -1394,3 +1394,11 @@ RG还行，什么时候出MG
 
 万一剧情不如暴风战士奥刚，日常不如苍穹之法夫娜，战斗戏不如银河机攻队那就尴尬了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1096beam  
+##### 151#       发表于 2026-3-21 23:53
+
+问题还是高达打高达才是高达最大的卖点吧
+
