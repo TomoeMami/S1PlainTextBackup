@@ -1384,3 +1384,13 @@ RG还行，什么时候出MG
 
 —— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  被击坠王  
+##### 150#       发表于 2026-3-21 22:54
+
+ 本帖最后由 被击坠王 于 2026-3-21 22:56 编辑 
+
+万一剧情不如暴风战士奥刚，日常不如苍穹之法夫娜，战斗戏不如银河机攻队那就尴尬了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
