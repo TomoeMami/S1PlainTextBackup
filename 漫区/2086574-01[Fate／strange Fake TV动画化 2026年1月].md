@@ -3745,3 +3745,17 @@ FSF这战斗逻辑都看得我一头雾水的，也不知道删了多少剧情
 你接下来要看的12集和13集就是做完小说第6卷<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 集数有限，主要是要表现阶段性解决第一个boss和要做到某段三王会议内容来作为第一季剑阶主从内容的收尾
 
+
+*****
+
+####  被子十三  
+##### 1345#       发表于 2026-3-21 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69365693&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-3-21 04:11</a>
+
+你接下来要看的12集和13集就是做完小说第6卷
+
+主要是执着阶段性解决第一个boss和要做到某段三王会议内容来 ...</blockquote>
+这么好的一个英灵大乱斗的题材压缩成这样也是可惜了，而且从A1的制作来看规格还挺高的。
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看了看原作的更新频率……我估计谁也没想到连FGO完结了FSF都没完结
+
