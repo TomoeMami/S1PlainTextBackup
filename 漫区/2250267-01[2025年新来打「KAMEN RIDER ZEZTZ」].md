@@ -3439,3 +3439,13 @@ C.O.D.E这个雷不会要到最终章才爆吧
 
 秩序可能是灾厄爆甲变的？
 
+
+*****
+
+####  暗黑能乐  
+##### 1013#       发表于 2026-3-21 11:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">真这样希望爆甲特效弄好点
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
