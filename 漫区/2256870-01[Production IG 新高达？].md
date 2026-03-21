@@ -1261,3 +1261,16 @@ S.H.MonsterArts
 
 —— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  闽明  
+##### 138#       发表于 2026-3-21 08:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69365695&amp;ptid=2256870" target="_blank">岸浪白野 发表于 2026-3-21 04:12</a>
+鸭志田一脚本的漫画高达Eight，和这内容都是打怪兽相似真的只是碰巧</blockquote>
+可能是同一道命题作文？
+就好像水魔开始的几部红发女主（水魔、敏鬼高达漫画、洋人镇魂歌）
+
+—— 来自 Xiaomi 25097RP43C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
