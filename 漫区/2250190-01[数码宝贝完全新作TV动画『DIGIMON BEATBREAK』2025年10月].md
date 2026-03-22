@@ -125,3 +125,11 @@
 
 土星哥牙口不错啊，还有下次主角团能不能把幼年体打出来再话疗啊<img src="https://static.stage1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zechins  
+##### 478#       发表于 2026-3-22 15:59
+
+全力家人侠Lv.99完全体胜利Lv.0.5究极体可以理解，重甲蜥大王为什么能破金字塔兽防的，还是太权威了…下一集看样子是要错误进化完全体？<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
