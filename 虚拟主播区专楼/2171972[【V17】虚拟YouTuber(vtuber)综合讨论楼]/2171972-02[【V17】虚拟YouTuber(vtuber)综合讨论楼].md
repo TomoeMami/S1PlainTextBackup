@@ -72,3 +72,11 @@ day2lol赢一场，st6打的也够精彩
 
 好场面还是有的，就是valo纯坐牢了
 
+
+*****
+
+####  cckuku  
+##### 1795#       发表于 2026-3-23 01:04
+
+xjhx单飞，却看不到不开心尾巴出来锐评，我的青春结束了<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
