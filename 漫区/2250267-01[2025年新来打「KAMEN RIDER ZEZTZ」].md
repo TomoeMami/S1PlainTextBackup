@@ -3660,3 +3660,16 @@ zzz这次热度高多了，搞得阿b不要脸只有两集免费
 
 只要高桥稳住，就算要坠机只要男主梦魇杀戮机的人设不崩塌香槟也没白开
 
+
+*****
+
+####  milky658  
+##### 1033#       发表于 2026-3-22 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69371040&amp;ptid=2250267" target="_blank">鲁邦三世1 发表于 2026-3-22 13:27</a>
+
+zzz这次热度高多了，搞得阿b不要脸只有两集免费
+
+还是24集逆天展开和灾厄大人太破圈</blockquote>
+和阿B没关系，其他平台一样播一半后取消限免，去年加布也一样
+
