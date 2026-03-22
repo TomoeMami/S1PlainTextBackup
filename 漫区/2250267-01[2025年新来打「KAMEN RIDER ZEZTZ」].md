@@ -3598,3 +3598,11 @@ tv君杂志设定灾厄是肌肉，秩序是骨头
 二周目新开升星机制，但是敌人属性也加强机制也跟一周目相比有变化，高桥你还是忘不了游戏<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 不过这个升星指数级成长，多叠几下不好吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蔺无双  
+##### 1027#       发表于 2026-3-22 11:23
+
+过半了还有一大堆未知之谜需要解答，这次难道真的要槟了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
