@@ -93,3 +93,27 @@
 阴湿就阴湿呗，反过来讲正因为阴湿才证明真打得痛了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 原本以为这集动画出京的究极体结果没有，说不定正统究极体并不是单纯靠堆量或者状态不好的前顶级驯兽师爆个种就能整出来的
 
+
+*****
+
+####  moudianzi  
+##### 476#       发表于 2026-3-22 14:16
+
+石油的生态位被稀土占了。
+
+不过话说回来，结合数码相关硬件材料的设定，跨国抢稀土倒是会比抢石油更自洽一些。以及按目前局势，套用惯用的抢石油能源没准反而更敏感一些<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+再回到内容，下集都24了，按进度的话火龙果真该进化完全体了吧，以及真这样安排的话还挺巧妙的，刚好能错开究极体回头打完全体；又或者等战策小队救场，继续顺延？
+
+而且这E脉冲非调侃性质来看，就纯粹是真的有毒吧，结合预告画面，这都二次黑化了。
+
+还有这表情制作组是怎么想出来的，土星应该是本作目前为止，表情最丰富生动的角色了吧
+
+<img src="https://img.stage1st.com/forum/202603/22/141354ato6pm8d18pzyla8.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2026-03-22_14-12-54.png</strong> (53.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-22 14:13 上传
+
