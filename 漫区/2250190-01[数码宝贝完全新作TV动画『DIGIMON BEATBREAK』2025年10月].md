@@ -30,3 +30,37 @@
 
 就是金字塔兽因为不稳定进化，实力表现有些水，阿京被偷袭算是放松警惕+保护队友，但观感还是有点微妙。
 
+
+*****
+
+####  TOYSTORY  
+##### 472#       发表于 2026-3-22 11:56
+
+ 本帖最后由 TOYSTORY 于 2026-3-22 11:57 编辑 
+
+<img src="https://img.stage1st.com/forum/202603/22/115605iq4o746q579d6y4k.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (323.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-22 11:56 上传
+
+<img src="https://img.stage1st.com/forum/202603/22/115611qs05jaxj5k7o6j6b.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (272.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-22 11:56 上传
+
+<img src="https://img.stage1st.com/forum/202603/22/115611ef80zfy3z1f00h3f.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (149.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-22 11:56 上传
+
+丛雨兽的究极体
+
