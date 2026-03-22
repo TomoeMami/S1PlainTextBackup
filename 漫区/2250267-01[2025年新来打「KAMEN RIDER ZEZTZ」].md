@@ -3485,3 +3485,34 @@ tv君杂志设定灾厄是肌肉，秩序是骨头
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">避雷针。。
 
+
+*****
+
+####  故障机器人  
+##### 1018#       发表于 2026-3-22 08:28
+
+橘前辈这完全是龙牙吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  故障机器人  
+##### 1019#       发表于 2026-3-22 08:33
+
+纸面实力大于灾厄啊
+
+<img src="https://img.stage1st.com/forum/202603/22/083239jll2f6gg2gsbgg26.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (89.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-22 08:32 上传
+
+<img src="https://img.stage1st.com/forum/202603/22/083245hn0p3inn67sijqqm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-22 08:32 上传
+
