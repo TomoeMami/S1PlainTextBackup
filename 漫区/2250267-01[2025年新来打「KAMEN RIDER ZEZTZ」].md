@@ -3683,3 +3683,13 @@ zzz这次热度高多了，搞得阿b不要脸只有两集免费
 
 胶囊升星的设定也太搞了，大后期不会叠一堆冲击干大BOSS吧
 
+
+*****
+
+####  大耳兽  
+##### 1035#       发表于 2026-3-22 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69370570&amp;ptid=2250267" target="_blank">蔺无双 发表于 2026-3-22 11:23</a>
+过半了还有一大堆未知之谜需要解答，这次难道真的要槟了</blockquote>
+当初exaid也写了好多外传补充剧情<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">。感觉
+
