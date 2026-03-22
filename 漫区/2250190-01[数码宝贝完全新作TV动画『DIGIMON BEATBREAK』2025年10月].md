@@ -64,3 +64,13 @@
 
 丛雨兽的究极体
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 473#       发表于 2026-3-22 12:40
+
+稀土采集紧跟时事，是不是在暗示什么？
+
+不过日本人的阴湿见怪不怪了，接下来片还是会照常看<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
