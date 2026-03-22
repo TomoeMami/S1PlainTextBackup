@@ -45,3 +45,11 @@ showdown结束
 真的有意思吗，看着主播被暴打</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">现场还有不少对手队的粉丝，所以也不光赚自家观众的钱
 
+
+*****
+
+####  格林卡罗尔  
+##### 1793#       发表于 2026-3-22 21:56
+
+我只感觉rival队优势的时候全场一片死寂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
