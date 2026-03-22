@@ -3730,3 +3730,15 @@ zzz这次热度高多了，搞得阿b不要脸只有两集免费
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么避雷针克等离子，是不是橘前辈只要带了剑，等离子能从任意位置必杀命中
 
+
+*****
+
+####  鲁邦三世1  
+##### 1040#       发表于 2026-3-22 18:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69371823&amp;ptid=2250267" target="_blank">无敌のpeach 发表于 2026-3-22 17:31</a>
+什么避雷针克等离子，是不是橘前辈只要带了剑，等离子能从任意位置必杀命中 ...</blockquote>
+就橘前辈这个反应速度和观察力，拔剑一扔你不就完了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
