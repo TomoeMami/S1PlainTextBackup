@@ -3693,3 +3693,11 @@ zzz这次热度高多了，搞得阿b不要脸只有两集免费
 过半了还有一大堆未知之谜需要解答，这次难道真的要槟了</blockquote>
 当初exaid也写了好多外传补充剧情<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">。感觉
 
+
+*****
+
+####  kal_008  
+##### 1036#       发表于 2026-3-22 15:11
+
+居然在第17集黎明就出手了，虽然还不清楚在那个阶段救一次狼影有什么意义
+
