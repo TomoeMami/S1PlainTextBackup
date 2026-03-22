@@ -53,3 +53,22 @@ showdown结束
 
 我只感觉rival队优势的时候全场一片死寂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poipanchao  
+##### 1794#       发表于 2026-3-22 22:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69373093&amp;ptid=2171972" target="_blank">格林卡罗尔 发表于 2026-3-22 21:56</a>
+
+我只感觉rival队优势的时候全场一片死寂</blockquote>
+现场反馈倒是没那么惨
+
+不过运营1也发罪己诏了，应该会吸取教训吧
+
+day1lol第一场猫请神faker，ema和ren先输后胜
+
+day2lol赢一场，st6打的也够精彩
+
+好场面还是有的，就是valo纯坐牢了
+
