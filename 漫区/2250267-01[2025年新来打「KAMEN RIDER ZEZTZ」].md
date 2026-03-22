@@ -3622,3 +3622,11 @@ tv君杂志设定灾厄是肌肉，秩序是骨头
 
 现在一看天野浩成这脸就有点假面骑士喜剧人的感觉
 
+
+*****
+
+####  失落之翼  
+##### 1030#       发表于 2026-3-22 12:15
+
+这扭蛋多久一次啊，不会把脉冲大爷强化到顶吧<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
