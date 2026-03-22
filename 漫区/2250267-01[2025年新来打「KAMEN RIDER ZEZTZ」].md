@@ -3722,3 +3722,11 @@ zzz这次热度高多了，搞得阿b不要脸只有两集免费
 
 —— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  无敌のpeach  
+##### 1039#       发表于 2026-3-22 17:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么避雷针克等离子，是不是橘前辈只要带了剑，等离子能从任意位置必杀命中
+
