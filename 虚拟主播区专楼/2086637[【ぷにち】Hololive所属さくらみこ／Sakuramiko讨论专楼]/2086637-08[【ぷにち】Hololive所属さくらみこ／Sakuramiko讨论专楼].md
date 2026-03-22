@@ -38,3 +38,26 @@
 
 看以后还瞎几把给自己加限制，没那水平就普通玩不行吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holofan  
+##### 11518#       发表于 2026-3-21 21:11
+
+七字母和rui3个人的家基本都在一起
+
+每次rui杂谈都能多少听到七字母的新话题
+
+*****
+
+####  holofan  
+##### 11519#       发表于 2026-3-22 19:11
+
+<img src="https://img.stage1st.com/forum/202603/22/191152uatjw1bdztns1415.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-22 19:11 上传
+
