@@ -74,3 +74,22 @@
 
 不过日本人的阴湿见怪不怪了，接下来片还是会照常看<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 474#       发表于 2026-3-22 13:06
+
+关键回还是靠会川写
+
+智朗又双黑化了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  永恒的王牌  
+##### 475#       发表于 2026-3-22 13:15
+
+阴湿就阴湿呗，反过来讲正因为阴湿才证明真打得痛了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+原本以为这集动画出京的究极体结果没有，说不定正统究极体并不是单纯靠堆量或者状态不好的前顶级驯兽师爆个种就能整出来的
+
