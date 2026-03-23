@@ -3768,3 +3768,16 @@ zzz这次热度高多了，搞得阿b不要脸只有两集免费
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在不确定元素和新的坑越挖越大，越发理不清了
 
+
+*****
+
+####  鲁邦三世1  
+##### 1044#       发表于 2026-3-23 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69377161&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-3-23 15:51</a>
+
+现在不确定元素和新的坑越挖越大，越发理不清了</blockquote>
+有新东西写是好事
+
+没活硬整才是完蛋的征兆
+
