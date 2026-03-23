@@ -85,3 +85,16 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  FLZB  
+##### 7410#       发表于 2026-3-24 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69379625&amp;ptid=2170852" target="_blank">The_Fool_ 发表于 2026-3-23 23:46</a>
+
+法令没找到，电榴弹这个确实不错啊，和焦土补包适配性很好，还不用担心弩铳那样炸自己
+
+—— 来自 S1Fun ...</blockquote>
+法令要等商店轮换，另外电榴弹无自伤是bug，能炸死队友，最好不要习惯无自伤的打法
+
