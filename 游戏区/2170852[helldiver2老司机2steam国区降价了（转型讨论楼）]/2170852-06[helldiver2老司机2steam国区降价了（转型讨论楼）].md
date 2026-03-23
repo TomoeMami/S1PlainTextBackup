@@ -98,3 +98,16 @@
 —— 来自 S1Fun ...</blockquote>
 法令要等商店轮换，另外电榴弹无自伤是bug，能炸死队友，最好不要习惯无自伤的打法
 
+
+*****
+
+####  Dashuaibi  
+##### 7411#       发表于 2026-3-24 01:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69379691&amp;ptid=2170852" target="_blank">FLZB 发表于 2026-3-24 00:05</a>
+
+法令要等商店轮换，另外电榴弹无自伤是bug，能炸死队友，最好不要习惯无自伤的打法 ...</blockquote>
+修了也就再次穿上电甲，一开始电榴弹也会秒自己但是6发泰坦，只要数值到位护甲什么的都能安排
+
+现在喷火器王朝人人都穿防火甲
+
