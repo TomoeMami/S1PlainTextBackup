@@ -111,3 +111,16 @@
 
 现在喷火器王朝人人都穿防火甲
 
+
+*****
+
+####  FLZB  
+##### 7412#       发表于 2026-3-24 01:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69379852&amp;ptid=2170852" target="_blank">Dashuaibi 发表于 2026-3-24 01:00</a>
+
+修了也就再次穿上电甲，一开始电榴弹也会秒自己但是6发泰坦，只要数值到位护甲什么的都能安排
+
+现在喷火 ...</blockquote>
+电榴弹不太值得专门为它穿防电甲，首发版我穿过一次就弃了，说白了无bug的自伤打法并不实用，掉血不说还要吃眩晕，抽奖没抽死附近的虫子或者有重型单位就被切臊子了
+
