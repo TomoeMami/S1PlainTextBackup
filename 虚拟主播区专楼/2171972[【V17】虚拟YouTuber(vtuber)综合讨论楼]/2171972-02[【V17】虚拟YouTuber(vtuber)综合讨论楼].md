@@ -88,3 +88,45 @@ xjhx单飞，却看不到不开心尾巴出来锐评，我的青春结束了<img
 
 单飞这事应该只有运营粉和某些为自推抱不平的粉丝才不开心吧，对其他人来说应该都算好事<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poipanchao  
+##### 1797#       发表于 2026-3-22 22:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69373093&amp;ptid=2171972" target="_blank">格林卡罗尔 发表于 2026-3-22 21:56</a>
+
+我只感觉rival队优势的时候全场一片死寂</blockquote>
+现场反馈倒是没那么惨
+
+不过运营1也发罪己诏了，应该会吸取教训吧
+
+day1lol第一场猫请神faker，ema和ren先输后胜
+
+day2lol赢一场，st6打的也够精彩
+
+好场面还是有的，就是valo纯坐牢了
+
+*****
+
+####  cckuku  
+##### 1798#       发表于 2026-3-23 01:04
+
+xjhx单飞，却看不到不开心尾巴出来锐评，我的青春结束了<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  noHentai  
+##### 1799#       发表于 2026-3-23 02:21
+
+单飞这事应该只有运营粉和某些为自推抱不平的粉丝才不开心吧，对其他人来说应该都算好事<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 1800#       发表于 2026-3-23 11:28
+
+比如猴楼某最近毕业的粉丝群体<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过确实看着太搞了，这才几个月
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
