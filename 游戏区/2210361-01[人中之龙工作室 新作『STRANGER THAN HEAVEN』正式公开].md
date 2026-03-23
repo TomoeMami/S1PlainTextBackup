@@ -748,3 +748,11 @@ During Xbox Partner Preview, you’ll get an in-depth look at Ryu Ga Gotoku’s 
 
 <img src="https://p.sda1.dev/31/183eaaf9ba01320d24f203843bee129a/1000162491.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  你好s1  
+##### 79#       发表于 2026-3-23 23:01
+
+  继续做如龙0那个时代多好，这特么1943，加上横皮尔博格的屎剧本，剧情能好就奇了怪了<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
