@@ -7016,3 +7016,15 @@ LEON主要是開場時及不少地方都新增了補給箱
 
 然后感觉 这个路线的话大忽悠维克多的时间线和行动轨迹有点幽默 不能细想<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 2088#       发表于 2026-3-23 21:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69378513&amp;ptid=2252759" target="_blank">windlikeman 发表于 2026-3-23 19:42</a>
+试了格蕾丝先拿2级卡3级卡跳地下再上来拿东侧主任室水晶的路线
+
+然后感觉 这个路线的话大忽悠维克多的时间线 ...</blockquote>
+二周目也算鼓励走这条线了，第二个唱歌僵尸前面的楼梯和她那里都有里昂的战斗点数可以捡到<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
