@@ -7028,3 +7028,17 @@ LEON主要是開場時及不少地方都新增了補給箱
 然后感觉 这个路线的话大忽悠维克多的时间线 ...</blockquote>
 二周目也算鼓励走这条线了，第二个唱歌僵尸前面的楼梯和她那里都有里昂的战斗点数可以捡到<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡拉德利姆  
+##### 2089#       发表于 2026-3-23 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69378464&amp;ptid=2252759" target="_blank">yyman1980 发表于 2026-3-23 19:31</a>
+卧槽怎么没人告诉我开第二轮游戏里昂之前拿过的武器就不会再给了啊？打肥仔前钱全改手枪了没有散弹枪捡我 ...</blockquote>
+1、冲8次厕所或以上，什么时候无所谓
+2、血池前等15分钟
+3、绞肉机环节不杀任何一只丧尸
+
+以上三个条件都达成了就可以在逃离研究室时捡到娃娃
+
