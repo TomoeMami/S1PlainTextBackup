@@ -44,3 +44,15 @@
 
 我差不多是枪匠系统上线后不久AFK的，现在有更新什么适合夕阳红枪法的小玩具吗
 
+
+*****
+
+####  ParadiseMartyr  
+##### 7406#       发表于 2026-3-23 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69378498&amp;ptid=2170852" target="_blank">The_Fool_ 发表于 2026-3-23 19:38</a>
+我差不多是枪匠系统上线后不久AFK的，现在有更新什么适合夕阳红枪法的小玩具吗 ...</blockquote>
+法令，自瞄副手
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
