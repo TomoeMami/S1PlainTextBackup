@@ -736,3 +736,15 @@ PV2：[https://youtu.be/s2EMatSXJoU](https://youtu.be/s2EMatSXJoU)
 
 During Xbox Partner Preview, you’ll get an in-depth look at Ryu Ga Gotoku’s new project, Stranger Than Heaven
 
+
+*****
+
+####  Piano-Forest  
+##### 78#         楼主| 发表于 2026-3-23 22:15
+
+官推
+[https://x.com/STH_Game](https://x.com/STH_Game)
+[https://x.com/STH_JP](https://x.com/STH_JP)
+
+<img src="https://p.sda1.dev/31/183eaaf9ba01320d24f203843bee129a/1000162491.jpg" referrerpolicy="no-referrer">
+
