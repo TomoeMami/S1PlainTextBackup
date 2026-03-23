@@ -75,3 +75,13 @@
 
 法令现在还能买吗？
 
+
+*****
+
+####  The_Fool_  
+##### 7409#       发表于 2026-3-23 23:46
+
+法令没找到，电榴弹这个确实不错啊，和焦土补包适配性很好，还不用担心弩铳那样炸自己<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
