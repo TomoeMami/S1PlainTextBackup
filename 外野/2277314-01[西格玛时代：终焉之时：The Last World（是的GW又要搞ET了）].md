@@ -440,3 +440,12 @@ ET本身就意味着不够挣钱要重启拉销量。
 
 反正以全战玩家的视角来看aos真是没什么吸引力，唯二有好感的设计是精矮滤镜下的火矮子和空矮子
 
+
+*****
+
+####  Promeus  
+##### 49#       发表于 2026-3-23 22:34
+
+<img src="https://p.sda1.dev/31/260bb441b87af3d7e6789dcff2d7dfa8/image.jpg" referrerpolicy="no-referrer">
+哇还有东西罗马
+
