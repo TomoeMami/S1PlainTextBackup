@@ -536,3 +536,13 @@ GW纯粹神经病，你软重启就软重启，拿精灵神全家加个大骨佬
 
 讨论过了，西格玛用死拉开了西格玛时代，之前都是前戏！还有如果只看棋子，目前的棋子该用的还继续用，不影响。拉回中古地图的主要目的可能是办公室政治，还有没人喜欢倒霉的界门系统。对了，楼上说Gw只关心棋子的，你要知道，英国小厂的ip 虽然值钱，但人家主要业务就是卖棋子，而且是差不多比银价要高的那种。
 
+
+*****
+
+####  Promeus  
+##### 59#       发表于 2026-3-24 08:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69380155&amp;ptid=2277314" target="_blank">老弗 发表于 2026-3-24 07:54</a>
+GW纯粹神经病，你软重启就软重启，拿精灵神全家加个大骨佬去垫剧情现在怕不是一堆人叫好，结果是在剩下的角 ...</blockquote>
+有员工出来辟谣说只死了个西格玛<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
