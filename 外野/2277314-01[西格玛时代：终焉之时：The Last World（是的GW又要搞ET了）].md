@@ -607,3 +607,11 @@ GW纯粹神经病，你软重启就软重启，拿精灵神全家加个大骨佬
 至少我在国内接触更多还是40k</blockquote>
 但全战战锤3影响力很大，更不用说出了震旦势力给国内拉了一大波人气。
 
+
+*****
+
+####  ykyin09  
+##### 66#       发表于 2026-3-24 09:49
+
+西格玛死了还能造小金人吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
