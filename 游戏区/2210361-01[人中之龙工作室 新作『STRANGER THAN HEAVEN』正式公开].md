@@ -795,3 +795,11 @@ During Xbox Partner Preview, you’ll get an in-depth look at Ryu Ga Gotoku’s 
 
 不一定有真实历史角色
 
+
+*****
+
+####  猫将军  
+##### 84#       发表于 2026-3-24 12:19
+
+<img src="https://static.stage1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">山口组起源？
+
