@@ -615,3 +615,31 @@ GW纯粹神经病，你软重启就软重启，拿精灵神全家加个大骨佬
 
 西格玛死了还能造小金人吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  huanghphp  
+##### 67#       发表于 2026-3-24 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69380652&amp;ptid=2277314" target="_blank">dqjsss 发表于 2026-3-24 09:43</a>
+但全战战锤3影响力很大，更不用说出了震旦势力给国内拉了一大波人气。</blockquote>
+从买棋子倒爷的角度看，震旦国内卖的不好，价格波澜不惊
+
+*****
+
+####  huanghphp  
+##### 68#       发表于 2026-3-24 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69380674&amp;ptid=2277314" target="_blank">ykyin09 发表于 2026-3-24 09:49</a>
+西格玛死了还能造小金人吗</blockquote>
+那姥爷还在……昨天我们聊天还说，可以让一半金人投靠死亡，这剧情马上就好看起来了
+
+*****
+
+####  Nico_Minoru  
+##### 69#       发表于 2026-3-24 10:25
+
+<blockquote>ykyin09 发表于 2026-3-24 09:49
+西格玛死了还能造小金人吗</blockquote>
+克大师：酷不酷，想不想学？
+
