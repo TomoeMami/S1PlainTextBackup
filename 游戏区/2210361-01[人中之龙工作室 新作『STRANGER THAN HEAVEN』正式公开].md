@@ -811,3 +811,12 @@ During Xbox Partner Preview, you’ll get an in-depth look at Ryu Ga Gotoku’s 
 
 演出能不能回升到审判系列啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">几个如龙新作和重制boss开场演出都一般
 
+
+*****
+
+####  Piano-Forest  
+##### 86#         楼主| 发表于 2026-3-25 04:30
+
+<img src="https://p.sda1.dev/31/d71307544869444814ff4c7db36acdc9/1000162600.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/03edd1cbbff9c09c14092ad578a2e758/1000162601.jpg" referrerpolicy="no-referrer">
+
