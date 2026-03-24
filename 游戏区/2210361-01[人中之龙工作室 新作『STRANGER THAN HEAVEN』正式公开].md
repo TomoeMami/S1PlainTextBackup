@@ -803,3 +803,11 @@ During Xbox Partner Preview, you’ll get an in-depth look at Ryu Ga Gotoku’s 
 
 <img src="https://static.stage1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">山口组起源？
 
+
+*****
+
+####  医生狼多  
+##### 85#       发表于 2026-3-24 13:43
+
+演出能不能回升到审判系列啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">几个如龙新作和重制boss开场演出都一般
+
