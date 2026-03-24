@@ -66,3 +66,11 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Chao  
+##### 356#       发表于 2026-3-24 13:25
+
+要是后面有动作和黑客相互影响的系统就不枯燥了，比如紧急闪避一次增加一个破防点，走一定的格子能加一次霸体之类<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
