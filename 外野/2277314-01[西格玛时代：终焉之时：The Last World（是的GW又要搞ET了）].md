@@ -709,3 +709,15 @@ GW纯粹神经病，你软重启就软重启，拿精灵神全家加个大骨佬
 这时候我要说，战争黎明12都整的不错，三是特么什么辣鸡</blockquote>
 快了快了，黎明4马上来了
 
+
+*****
+
+####  傲慢的空想家X  
+##### 76#       发表于 2026-3-24 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69381212&amp;ptid=2277314" target="_blank">alialex 发表于 2026-3-24 11:19</a>
+借楼问下中古重启的事情，之前只听到这个消息没关注，重启是指在中古ET开了个没ET的IF线，或者补充ET之前其 ...</blockquote>
+指aos世界观软重启，八界合一重新变成一个星球
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
