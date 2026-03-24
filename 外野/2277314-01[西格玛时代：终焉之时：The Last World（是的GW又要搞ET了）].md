@@ -572,3 +572,25 @@ GW纯粹神经病，你软重启就软重启，拿精灵神全家加个大骨佬
 
 这次蒸蛋戏份太多一点？
 
+
+*****
+
+####  陈八尺  
+##### 63#       发表于 2026-3-24 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69380257&amp;ptid=2277314" target="_blank">Promeus 发表于 2026-3-24 08:28</a>
+
+有员工出来辟谣说只死了个西格玛</blockquote>
+四小贩：都是永世神选，差距怎么这么大呢<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  markava  
+##### 64#       发表于 2026-3-24 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69380474&amp;ptid=2277314" target="_blank">Nico_Minoru 发表于 2026-3-24 09:10</a>
+
+全战出时，中古早完结啦。震旦和基斯里夫也是游戏里出时才细化的，以前挺背景版的。火了以后去年gw开了个 ...</blockquote>
+因为gw出旧世界就是圈钱来的，全是万年老模型，现在这销量已经突破gw预期了
+
