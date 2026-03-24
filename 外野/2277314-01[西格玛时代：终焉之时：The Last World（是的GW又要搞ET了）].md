@@ -737,3 +737,13 @@ GW纯粹神经病，你软重启就软重启，拿精灵神全家加个大骨佬
 
 中国玩家很多接触过震旦了，GW都不给AOS的震旦出场，还想吸引中国玩家入坑AOS，不会吧~？<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nico_Minoru  
+##### 79#       发表于 2026-3-25 07:00
+
+<blockquote>玉树临疯啊 发表于 2026-3-24 17:54
+中国玩家很多接触过震旦了，GW都不给AOS的震旦出场，还想吸引中国玩家入坑AOS，不会吧~？ ...</blockquote>
+让震旦远征军从星空坐着华丽的“龙舟”来救场不帅吗
+
