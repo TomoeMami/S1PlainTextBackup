@@ -651,3 +651,34 @@ GW纯粹神经病，你软重启就软重启，拿精灵神全家加个大骨佬
 
 我个人还是蛮喜欢AOS的设定的，中古锤现在来看是有点俗套了，有点可惜
 
+
+*****
+
+####  傲慢的空想家X  
+##### 71#       发表于 2026-3-24 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69380400&amp;ptid=2277314" target="_blank">solitaryx 发表于 2026-3-24 08:57</a>
+卖棋子其实没问题，但是全战中古这么火，不应该加码中古吗，结果终了中古跑去开西格玛，还是说全战出的时候 ...</blockquote>
+简单来说就是，aos和中古的关系很差，非常差，除了一些历史原因之外，最重要是，因为他们之间的客群重合；大家都是所谓的战锤奇幻世界，爱好者群体就是这么大，中古多吃一口，aos就得少吃一口。
+
+中古现在有明显的回暖趋势，大家伙心知肚明手里能整的活还有好几个，你是aos的负责人，你会眼睁睁看着对家起死回生吗？就因为你俩都是一家公司的？绩效奖金不想要了是吧？
+
+因此，在GW内部，AOS和40K的制作组是一对同盟，另一边，30K和TOW是另一对同盟。大家找的都是和自己客群“相对”不重合的制作组联手
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  jojog  
+##### 72#       发表于 2026-3-24 10:56
+
+<img src="https://img.stage1st.com/forum/202603/24/105529reznkngb6gcwcent.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (153.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-24 10:55 上传
+
+已经结束咧
+
