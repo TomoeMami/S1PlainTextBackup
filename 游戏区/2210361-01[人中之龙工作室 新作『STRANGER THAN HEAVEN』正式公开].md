@@ -756,3 +756,11 @@ During Xbox Partner Preview, you’ll get an in-depth look at Ryu Ga Gotoku’s 
 
   继续做如龙0那个时代多好，这特么1943，加上横皮尔博格的屎剧本，剧情能好就奇了怪了<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lokken  
+##### 80#       发表于 2026-3-24 11:42
+
+鲁迅先生可以加进去一下？
+
