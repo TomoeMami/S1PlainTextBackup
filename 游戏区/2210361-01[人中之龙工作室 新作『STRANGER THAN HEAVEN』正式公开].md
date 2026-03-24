@@ -764,3 +764,34 @@ During Xbox Partner Preview, you’ll get an in-depth look at Ryu Ga Gotoku’s 
 
 鲁迅先生可以加进去一下？
 
+
+*****
+
+####  黑暗之眼  
+##### 81#       发表于 2026-3-24 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69381361&amp;ptid=2210361" target="_blank">lokken 发表于 2026-3-24 11:42</a>
+
+鲁迅先生可以加进去一下？</blockquote>
+1943年哪儿还有鲁迅了
+
+*****
+
+####  lokken  
+##### 82#       发表于 2026-3-24 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69381469&amp;ptid=2210361" target="_blank">黑暗之眼 发表于 2026-3-24 11:59</a>
+
+1943年哪儿还有鲁迅了</blockquote>
+不是跨度1915-1943么
+
+
+*****
+
+####  qiyu1234  
+##### 83#       发表于 2026-3-24 12:04
+
+假想版近现代日本
+
+不一定有真实历史角色
+
