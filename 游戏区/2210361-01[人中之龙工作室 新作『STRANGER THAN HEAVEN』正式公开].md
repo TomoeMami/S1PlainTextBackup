@@ -820,3 +820,11 @@ During Xbox Partner Preview, you’ll get an in-depth look at Ryu Ga Gotoku’s 
 <img src="https://p.sda1.dev/31/d71307544869444814ff4c7db36acdc9/1000162600.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/31/03edd1cbbff9c09c14092ad578a2e758/1000162601.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  byisme001  
+##### 87#       发表于 2026-3-25 06:38
+
+世嘉系现在彻底脱索了啊 以前索系两王牌persona和如龙新作都是上微软发布会 大概率xgp，索尼要不是没余粮了不得扶持下名越
+
