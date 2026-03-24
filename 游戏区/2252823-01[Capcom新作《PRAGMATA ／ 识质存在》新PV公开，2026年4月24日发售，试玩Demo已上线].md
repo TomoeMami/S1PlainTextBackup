@@ -6,3 +6,11 @@
 
 玩了demo，这鬼连连看真的弱智吧。新手教程就有点无语了，这要是后期打群架，全程注意力在自机身上，敌人的动作还看不看了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CALPISSODA  
+##### 351#       发表于 2026-3-24 12:17
+
+本来坚定了想用NS2玩，但试玩看到掌机模式的帧数和画面清晰度又有点想叛逃到别的平台了……
+
