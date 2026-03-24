@@ -124,3 +124,66 @@
 现在喷火 ...</blockquote>
 电榴弹不太值得专门为它穿防电甲，首发版我穿过一次就弃了，说白了无bug的自伤打法并不实用，掉血不说还要吃眩晕，抽奖没抽死附近的虫子或者有重型单位就被切臊子了
 
+
+*****
+
+####  Jabeck  
+##### 7413#       发表于 2026-3-23 20:55
+
+法令现在还能买吗？
+
+*****
+
+####  The_Fool_  
+##### 7414#       发表于 2026-3-23 23:46
+
+法令没找到，电榴弹这个确实不错啊，和焦土补包适配性很好，还不用担心弩铳那样炸自己<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  FLZB  
+##### 7415#       发表于 2026-3-24 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69379625&amp;ptid=2170852" target="_blank">The_Fool_ 发表于 2026-3-23 23:46</a>
+
+法令没找到，电榴弹这个确实不错啊，和焦土补包适配性很好，还不用担心弩铳那样炸自己
+
+—— 来自 S1Fun ...</blockquote>
+法令要等商店轮换，另外电榴弹无自伤是bug，能炸死队友，最好不要习惯无自伤的打法
+
+*****
+
+####  Dashuaibi  
+##### 7416#       发表于 2026-3-24 01:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69379691&amp;ptid=2170852" target="_blank">FLZB 发表于 2026-3-24 00:05</a>
+
+法令要等商店轮换，另外电榴弹无自伤是bug，能炸死队友，最好不要习惯无自伤的打法 ...</blockquote>
+修了也就再次穿上电甲，一开始电榴弹也会秒自己但是6发泰坦，只要数值到位护甲什么的都能安排
+
+现在喷火器王朝人人都穿防火甲
+
+*****
+
+####  FLZB  
+##### 7417#       发表于 2026-3-24 01:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69379852&amp;ptid=2170852" target="_blank">Dashuaibi 发表于 2026-3-24 01:00</a>
+
+修了也就再次穿上电甲，一开始电榴弹也会秒自己但是6发泰坦，只要数值到位护甲什么的都能安排
+
+现在喷火 ...</blockquote>
+电榴弹不太值得专门为它穿防电甲，首发版我穿过一次就弃了，说白了无bug的自伤打法并不实用，掉血不说还要吃眩晕，抽奖没抽死附近的虫子或者有重型单位就被切臊子了
+
+*****
+
+####  8604132000  
+##### 7418#       发表于 2026-3-24 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69379915&amp;ptid=2170852" target="_blank">FLZB 发表于 2026-3-24 01:38</a>
+
+电榴弹不太值得专门为它穿防电甲，首发版我穿过一次就弃了，说白了无bug的自伤打法并不实用，掉血不说还 ...</blockquote>
+电榴弹无伤是写进补丁的。哪来的说是BUG
+

@@ -54,3 +54,14 @@
 
 确实算高度定制，不过好在这游戏抽卡资源基本不需要高要求，能拿完我就无所谓
 
+
+*****
+
+####  windaria  
+##### 714#       发表于 2026-3-24 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69378674&amp;ptid=2256125" target="_blank">伊布桑 发表于 2026-3-23 20:10</a>
+
+确实算高度定制，不过好在这游戏抽卡资源基本不需要高要求，能拿完我就无所谓 ...</blockquote>
+真的不算高要求吗，赛季难度最高的那一部分奖励我是拿不到的
+
