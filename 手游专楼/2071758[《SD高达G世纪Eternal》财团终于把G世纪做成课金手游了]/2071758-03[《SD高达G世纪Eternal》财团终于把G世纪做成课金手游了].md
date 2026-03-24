@@ -113,3 +113,35 @@ tag就是控水温逼氪的，问题是运营好像控不太明白
 
 <img src="https://img.stage1st.com/forum/202603/24/204243ryznii5yrfz5xca7.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 3788#       发表于 2026-3-24 20:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">00r，掉毛，托3，不知道红黄蓝怎么分，希望oor是红
+
+*****
+
+####  ティグル  
+##### 3789#       发表于 2026-3-24 20:48
+
+两红一蓝或者两红一黄，不玩抽象的话就是这么分配了
+
+
+*****
+
+####  gpx234mqx  
+##### 3790#       发表于 2026-3-24 20:52
+
+癌变狂飙终于上了
+
+屏幕截图 2026-03-24 205213.jpg
+(119.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-24 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202603/24/205247ngmkmtp9wqxqqoqw.jpg" referrerpolicy="no-referrer">
+
