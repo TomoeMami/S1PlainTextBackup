@@ -2811,3 +2811,38 @@ mea先打护卫再打碎骨，我脑溢血犯了。这种操作还挺多的。
 
 昨天mea和几个vspo的还有shaka打lol的，赢两把输两把吧好像。
 
+
+*****
+
+####  术士q  
+##### 20380#       发表于 2026-3-24 16:18
+
+ 本帖最后由 术士q 于 2026-3-24 16:20 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69382238&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2026-3-24 14:01</a>
+碎骨群伤9点获得9点格挡，然后骨头死掉。护卫给骨头5滴血。
+
+mea先打护卫再打碎骨，我脑溢血犯了。这种操 ...</blockquote>
+还好我主玩鸡煲打到a10的，看了咩直播才去碰的几局骨杖祭器人了解一下体系思路，血压不怎么变<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+深夜的lol的话我是当成bo5来看了，最终咩是赢三把输两把，第一把第四把第五把赢了，两边ad都很出色，第四把的泽丽玩三保一确实保出来了，璐璐的kda也高得哈人，第五把的小火龙布隆也确实选得很好，后面整个过程也都一直在指挥，处于劣势也没放弃找机会，看得还是挺开心的
+
+让二追三
+
+还有铁男后面发现单挑打不过泽丽以后，基本上都关璐璐了，然后咩闪现过墙闪击f6位置，给铁男在外面坐牢，那里特别好玩<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  古战场亡魂  
+##### 20381#       发表于 2026-3-24 16:20
+
+ 本帖最后由 古战场亡魂 于 2026-3-24 16:24 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69383207&amp;ptid=2018830" target="_blank">术士q 发表于 2026-3-24 16:18</a>
+
+深夜的lol的话我其实是当成bo5来看了，最终咩是赢三把输两把，第一把第四把第五把赢了，两边ad都很出色， ...</blockquote>
+这lol也不用看成bo5，谁和银城同队谁输呗。
+
+我鸡煲也刚a10了。大概鸡煲通关玩一局时间大概是骨头的三分之二吧。
+
+我是在看其他人的油罐直播回放的，twitch回放电脑上打不开。
+
