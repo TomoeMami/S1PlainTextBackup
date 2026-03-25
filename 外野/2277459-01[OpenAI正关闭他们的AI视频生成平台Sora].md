@@ -516,3 +516,16 @@ seedance2.0是真的能作质量不错的长视频的，如果迭代到一次能
 上月底还回去看了一眼，网页端生成不了app已经没问题了，app还了些网页端的功能（像是横竖屏、视频时长这些基础<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">），但是也没多少用sora2做的想法了，seedance2.0更好更方便。像是seedance2.0小火的咖啡厅摸店员腿模板，sora2就一塌糊涂。
 不过sora2这么快就要die了还是挺意外，说好的迪士尼大手呢。其实sora2有些像，每天30免费额度，remix改编、风格预设、角色卡、故事板这些还是挺好的，seedance2.0也暂时还没有。不过现在看seedance2.0还有可能出同类甚至更多功能，sora2是没机会了。
 
+
+*****
+
+####  洛拉斯  
+##### 50#       发表于 2026-3-25 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69386773&amp;ptid=2277459" target="_blank">Vneeto 发表于 2026-3-25 08:34</a>
+
+seedance会不会也步后尘在一两年后也面临关闭，虽然两者条件很不一样。</blockquote>
+seedance出的东西可以反手就发抖音赚钱
+
+你sora出的东西反手就发谷歌和抖音，openai除了那点可怜的token钱以外一个子都赚不到
+
