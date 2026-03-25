@@ -7125,3 +7125,16 @@ LEON主要是開場時及不少地方都新增了補給箱
 
 那穩定劑就有點用
 
+
+*****
+
+####  yyman1980  
+##### 2098#       发表于 2026-3-26 02:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69390343&amp;ptid=2252759" target="_blank">windlikeman 发表于 2026-3-25 16:56</a>
+
+绞肉机结束了有漏怪也没关系 直接不要管上梯子拿电池走人
+
+最准确的提示应该是血池排空之后的文字提示 ...</blockquote>
+  最好是不要留，我打的时候最后剩一个怪没搅碎结果后边血池就只给了大量的血，还好下池子前存了个档。
+
