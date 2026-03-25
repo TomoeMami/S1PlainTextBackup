@@ -134,3 +134,34 @@ EN的小孩子都知道例のプール
 
 2026-3-23 13:44 上传
 
+
+*****
+
+####  holofan  
+##### 11528#       发表于 2026-3-25 21:12
+
+<img src="https://img.stage1st.com/forum/202603/25/211148pissslihin3noa3n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-25 21:11 上传
+
+yabai
+
+*****
+
+####  holofan  
+##### 11529#       发表于 2026-3-25 21:45
+
+说回来，这次的新曲在mora没有上架，只有在几个大的流媒体平台能听，不知道是不是刻意而为的但是感觉也很奇怪就是了，多几个平台发布没有坏处啊明明
+
+<img src="https://img.stage1st.com/forum/202603/25/214515nb8e91mmo30o3q9q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (135.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-25 21:45 上传
+

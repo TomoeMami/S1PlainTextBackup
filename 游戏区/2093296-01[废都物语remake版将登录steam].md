@@ -17,3 +17,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">同问，有人收到邮件么，按他说的周五就结束了吧
 
+
+*****
+
+####  夏玻利利的嘶吼  
+##### 876#       发表于 2026-3-25 21:49
+
+当时不是说截止后五个工作日内给通知么，理论上最晚周五该通知的都能通知到
+
