@@ -529,3 +529,14 @@ seedance出的东西可以反手就发抖音赚钱
 
 你sora出的东西反手就发谷歌和抖音，openai除了那点可怜的token钱以外一个子都赚不到
 
+
+*****
+
+####  BISSBISS  
+##### 51#       发表于 2026-3-25 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69386584&amp;ptid=2277459" target="_blank">勿徊哉 发表于 2026-3-25 07:42</a>
+
+我回看了下24年正老对Sora的评价。我自己感觉正老一直有些高估AI上限，当然也可能是我目光短浅。</blockquote>
+其他的你看看他也就算了，科技类的看他和公园老大爷没啥区别，有洋奴的思想烙印了。
+
