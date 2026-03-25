@@ -481,3 +481,18 @@ seedance会不会也步后尘在一两年后也面临关闭，虽然两者条件
 
 sora沟通一坨，摁死英文，理解一坨，整个操作也反视频制作，活该啊。
 
+
+*****
+
+####  simonroam  
+##### 47#       发表于 2026-3-25 13:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69388748&amp;ptid=2277459" target="_blank">ycjiang1337 发表于 2026-3-25 13:05</a>
+
+抖音：你在说啥？
+
+—— 来自 HUAWEI SGT-AL50, Android 12, 鹅球 v3.4.97-alpha</blockquote>
+字节现在也怕数字流量影响自然流量，以后上面全是机器人矩阵号自动发视频自动评论会影响现有的盈利模式
+
+你看豆包手机在抖音上的限制，很多的东西底层是冲突的
+
