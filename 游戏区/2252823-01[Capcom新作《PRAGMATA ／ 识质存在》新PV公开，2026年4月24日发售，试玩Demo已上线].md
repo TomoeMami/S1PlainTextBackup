@@ -84,3 +84,14 @@
 预计主线10h左右，应该是和生化那样有反复游玩价值
 <blockquote>制作人大山直人采访里说：“可以参考最新《生化危机》系列的体量”，不是超长开放世界游戏，属于线性关卡制动作冒险。</blockquote>
 
+
+*****
+
+####  oahcihs  
+##### 358#       发表于 2026-3-25 11:23
+
+pdd上了
+这个豪华版实体是日版独占吗 没看到港版信息啊<img src="https://p.sda1.dev/31/47c1a6a4e9d0bc07bfe78f27cccb4484/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/d87bb9f74e7a8d8ae5ad10925ed14634/image.jpg" referrerpolicy="no-referrer">
+没想好留哪个
+
