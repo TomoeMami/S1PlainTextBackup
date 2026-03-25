@@ -252,3 +252,23 @@
 
        [https://bushiroad.com/cv-nobusawa-ex-v2](https://bushiroad.com/cv-nobusawa-ex-v2)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41815#       发表于 2026-3-25 11:48
+
+       
+
+<img src="https://img.stage1st.com/forum/202603/25/114849ap1aacc5rzrtav9u.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-03-25_11-46-16.jpg</strong> (360.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-25 11:48 上传
+
+       [https://x.com/summer_sonic/status/2036639215413604389](https://x.com/summer_sonic/status/2036639215413604389)
+
+       [https://www.summersonic.com/news/2026-03-25-40622/](https://www.summersonic.com/news/2026-03-25-40622/)
+
