@@ -281,3 +281,35 @@ EW出现漫画机体了那ult大概就是原型飞翼0或者天翼了吧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">00ULT必不是战损能天使，现在00开发路线能天使前面有个空出来的问号，没有和0高达接上，已经很明显了吧
 
+
+*****
+
+####  里村紅葉  
+##### 3806#       发表于 2026-3-25 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69387479&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-3-25 10:08</a>
+
+00ULT必不是战损能天使，现在00开发路线能天使前面有个空出来的问号，没有和0高达接上，已经很明显了吧 ...</blockquote>
+那里不应该是正妹吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杨过应该排在能天使后面啊
+
+
+*****
+
+####  螺旋的小夜曲  
+##### 3807#       发表于 2026-3-25 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69387560&amp;ptid=2071758" target="_blank">里村紅葉 发表于 2026-3-25 10:18</a>
+
+那里不应该是正妹吗杨过应该排在能天使后面啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">正妹还要搭配冯爷来骗钱的，绝无可能出现在这里
+
+*****
+
+####  里村紅葉  
+##### 3808#       发表于 2026-3-25 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69387598&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-3-25 10:22</a>
+
+正妹还要搭配冯爷来骗钱的，绝无可能出现在这里</blockquote>
+有开发版跟出卡池UR也不冲突啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
