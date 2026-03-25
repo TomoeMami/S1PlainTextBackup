@@ -313,3 +313,14 @@ EW出现漫画机体了那ult大概就是原型飞翼0或者天翼了吧
 正妹还要搭配冯爷来骗钱的，绝无可能出现在这里</blockquote>
 有开发版跟出卡池UR也不冲突啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 3809#       发表于 2026-3-25 11:53
+
+十连好像刷不出两个ur…
+新安洲，精神扎古和gto扎古不知道抽哪个好了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
