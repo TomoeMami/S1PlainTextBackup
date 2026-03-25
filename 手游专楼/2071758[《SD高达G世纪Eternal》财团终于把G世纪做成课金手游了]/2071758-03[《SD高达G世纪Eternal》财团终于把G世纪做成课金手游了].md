@@ -353,3 +353,18 @@ EW出现漫画机体了那ult大概就是原型飞翼0或者天翼了吧
 
 宇宙女鬼母舰
 
+
+*****
+
+####  ティグル  
+##### 3813#       发表于 2026-3-25 19:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69391012&amp;ptid=2071758" target="_blank">gpx234mqx 发表于 2026-3-25 19:04</a>
+
+我直接上独眼队哈哈
+
+宇宙女鬼母舰</blockquote>
+我还看到个ssp烧饼，估计是用来抓元祖队的
+
+也是下血本了
+
