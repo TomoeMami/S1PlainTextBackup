@@ -20,3 +20,16 @@
 
 更新的什么高难0侵蚀门番 死神 别离大恶魔 隐藏黑龙 超级红龙一个不碰<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电脑死机  
+##### 757#       发表于 2026-3-26 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69391873&amp;ptid=2249235" target="_blank">UnknownRei 发表于 2026-3-25 22:48</a>
+
+躺平签到玩别的等半周年睡法级新waifu
+
+更新的什么高难0侵蚀门番 死神 别离大恶魔 隐藏黑龙 超级红龙一个不 ...</blockquote>
+0侵蚀焖饭没什么，通了四章三周目，回头打这货像杀鸡
+
