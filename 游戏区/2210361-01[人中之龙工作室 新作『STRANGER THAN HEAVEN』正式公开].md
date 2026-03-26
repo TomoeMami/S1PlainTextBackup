@@ -828,3 +828,17 @@ During Xbox Partner Preview, you’ll get an in-depth look at Ryu Ga Gotoku’s 
 
 世嘉系现在彻底脱索了啊 以前索系两王牌persona和如龙新作都是上微软发布会 大概率xgp，索尼要不是没余粮了不得扶持下名越
 
+
+*****
+
+####  Piano-Forest  
+##### 88#         楼主| 发表于 2026-3-27 01:14
+
+新PV（首发XGP，5月6日新情报）：[https://youtu.be/PGqkjDoyI8o](https://youtu.be/PGqkjDoyI8o)
+
+An epic saga of men battling through five eras and five cities.
+
+Tune-in to Xbox Presents: A Special Look at STRANGER THAN HEAVEN, a standalone broadcast featuring a full reveal of the brand-new title from Ryu Ga Gotoku Studio on May 6th at 4:00 pm PDT | May 7 at 12:00 am BST. 
+
+Look forward to exciting details and an all-star cast from around the world.
+
