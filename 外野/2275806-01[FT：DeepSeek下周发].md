@@ -633,3 +633,43 @@ glm5 coder要来了，这个是真sonet甚至opus平替</blockquote>
 是的，感觉就这周了。    Re:Source</blockquote>
 这周感觉不太可能了，深度求索一般都是周一周四更新(除了上次偷偷灰测的v4 lite是周三)，周五概率很低了，周末基本没可能，所以这个月更的话应该还是0330
 
+
+*****
+
+####  御坂MKII  
+##### 55#       发表于 2026-3-26 19:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 这次国内适配真的花太多时间了，到底谁家菜
+
+*****
+
+####  你说这个谁懂呀?  
+##### 56#       发表于 2026-3-26 19:09
+
+我的体感是现在各家的技术水平其实都是大差不差的,
+
+最大的问题其实来自于数据清洗,
+
+这点只能说不是deepseek这种不是以AI为核心的公司可以去比的.
+
+不过中国公司清洗英文语料只能说确实是吃亏的
+
+*****
+
+####  御坂MKII  
+##### 57#       发表于 2026-3-26 19:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69257266&amp;ptid=2275806" target="_blank">astkaasa 发表于 2026-3-1 22:40</a>
+
+glm5 coder要来了，这个是真sonet甚至opus平替</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我们内部自组的 benchmark 还没国产模型靠谱过
+
+*****
+
+####  geoion  
+##### 58#       发表于 2026-3-26 19:11
+
+贾跃亭：这个我熟啊
+
+-- 来自 [s1cli 0.2.0](https://github.com/Geoion/s1cli)
+
