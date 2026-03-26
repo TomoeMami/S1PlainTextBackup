@@ -1596,3 +1596,16 @@ bd rip有放流了。
 求一个BD链接</blockquote>
 dmhy有 只有字幕版的
 
+
+*****
+
+####  かしこま  
+##### 159#       发表于 2026-3-26 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69392920&amp;ptid=2199597" target="_blank">kenqqex 发表于 2026-3-26 09:20</a>
+
+dmhy有 只有字幕版的</blockquote>
+找到了
+
+感谢
+
