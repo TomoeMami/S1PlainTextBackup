@@ -730,3 +730,20 @@ DS可是开源的啊，模型一出，大伙都能上，如果有生图和视屏
 华为吧，硬件百度，在 AI 上起大早赶晚集，芯片太菜把 DS4 耽误了</blockquote>
 都是用nv的好意思说出来？
 
+
+*****
+
+####  谎称  
+##### 65#       发表于 2026-3-26 20:46
+
+反正app更新了一下，不知道是不是预告什么……    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  Promeus  
+##### 66#       发表于 2026-3-26 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69396832&amp;ptid=2275806" target="_blank">谎称 发表于 2026-3-26 20:46</a>
+反正app更新了一下，不知道是不是预告什么……    Re:Source</blockquote>
+1.711了，我记得之前上测试版本前也是更新了
+
