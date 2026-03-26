@@ -1629,3 +1629,13 @@ dmhy有 只有字幕版的</blockquote>
 
 仔细看了下他似乎是本来打算下班去烤肉，看到那个杀手盯着女主才决定下手，后面也是注意到杀手的丝线即将接触到女主才开枪，全身义肢应该也不便宜，可能是某些原因觉得全身义肢可以保护女主？后面醒过来的那个妹子似乎也是优雅的员工，那个应该才是队友吧。
 
+
+*****
+
+####  KDConan  
+##### 162#       发表于 2026-3-26 22:42
+
+依然很黄很暴力<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">这么多年还是保持初心
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
