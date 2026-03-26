@@ -69,3 +69,14 @@
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  江戸前ルナ  
+##### 1957#         楼主| 发表于 2026-3-26 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69395295&amp;ptid=2104259" target="_blank">イクイノックス 发表于 2026-3-26 16:07</a>
+
+大佬，未罗的装备分支怎么选？</blockquote>
+腿分支很强很强，无脑选。双手剑分支是玩具，不要选。
+
