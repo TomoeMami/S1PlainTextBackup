@@ -18,3 +18,13 @@
 
        [https://comic-growl.com/episodes/fb5697cc1fe1a](https://comic-growl.com/episodes/fb5697cc1fe1a)
 
+
+*****
+
+####  CyDiablo  
+##### 27515#       发表于 2026-3-26 21:20
+
+woc催眠app
+[【【元祖！BanG Dream Chan】 #25 宇田川催眠波-哔哩哔哩】](https://b23.tv/DVCvA8K)
+<img src="https://p.sda1.dev/31/81a0c61aecff67c2a61d0a33371fc8ac/image.jpg" referrerpolicy="no-referrer">
+
