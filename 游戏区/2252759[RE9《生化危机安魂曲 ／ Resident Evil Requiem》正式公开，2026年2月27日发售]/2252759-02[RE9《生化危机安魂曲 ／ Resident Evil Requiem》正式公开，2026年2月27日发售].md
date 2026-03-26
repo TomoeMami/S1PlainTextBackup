@@ -7254,3 +7254,18 @@ LEON主要是開場時及不少地方都新增了補給箱
 
 感觉不如兜里揣两把刀然后全打镇静剂了。
 
+
+*****
+
+####  kcalb  
+##### 2109#       发表于 2026-3-26 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69396888&amp;ptid=2252759" target="_blank">eilot 发表于 2026-3-26 20:58</a>
+
+真的想保險，就是之前15分鐘那段棄置更長時間，
+
+馬桶那段看其他人測試是多過8次都沒問題，那就狂拉多數次 ...</blockquote>
+还真别被抓，是有可能被吸进绞肉机的，休闲也是秒杀<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+存档也别在送尸带停止运输后存，没够数就死档了
+
