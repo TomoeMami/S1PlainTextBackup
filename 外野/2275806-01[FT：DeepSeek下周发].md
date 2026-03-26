@@ -757,3 +757,11 @@ DS可是开源的啊，模型一出，大伙都能上，如果有生图和视屏
 反正app更新了一下，不知道是不是预告什么……    Re:Source</blockquote>
 2月份到现在app其实更了好多次了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  darktide  
+##### 68#       发表于 2026-3-26 21:12
+
+太好了，ds一直都是我的主力模型。
+
