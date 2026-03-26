@@ -699,3 +699,34 @@ DS可是开源的啊，模型一出，大伙都能上，如果有生图和视屏
 这次国内适配真的花太多时间了，到底谁家菜</blockquote>
 华为吧，硬件百度，在 AI 上起大早赶晚集，芯片太菜把 DS4 耽误了
 
+
+*****
+
+####  tillnight  
+##### 62#       发表于 2026-3-26 20:38
+
+<blockquote>绝地潜兵 发表于 2026-3-26 19:16
+DS可是开源的啊，模型一出，大伙都能上，如果有生图和视屏，就不用天天排队了 ...</blockquote>
+多模态一般指的是模型有识别文字图片和视频的能力，而不是指输出内容。实际上现在没有哪家生文和生视频用的是同一个模型。
+
+
+*****
+
+####  绝地潜兵  
+##### 63#       发表于 2026-3-26 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69396792&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-3-26 20:38</a>
+
+多模态一般指的是模型有识别文字图片和视频的能力，而不是指输出内容。实际上现在没有哪家生文和生视频用 ...</blockquote>
+我说的就是生图，多模态的api我已经在用kimi2.5了
+
+*****
+
+####  zerona  
+##### 64#       发表于 2026-3-26 20:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69396770&amp;ptid=2275806" target="_blank">Synopses6087 发表于 2026-3-26 20:30</a>
+
+华为吧，硬件百度，在 AI 上起大早赶晚集，芯片太菜把 DS4 耽误了</blockquote>
+都是用nv的好意思说出来？
+
