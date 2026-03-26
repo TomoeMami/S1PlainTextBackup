@@ -688,3 +688,14 @@ DS可是开源的啊，模型一出，大伙都能上，如果有生图和视屏
 
 还搞不出来吗
 
+
+*****
+
+####  Synopses6087  
+##### 61#       发表于 2026-3-26 20:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69396409&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-3-26 19:07</a>
+
+这次国内适配真的花太多时间了，到底谁家菜</blockquote>
+华为吧，硬件百度，在 AI 上起大早赶晚集，芯片太菜把 DS4 耽误了
+
