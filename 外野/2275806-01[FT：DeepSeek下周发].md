@@ -747,3 +747,13 @@ DS可是开源的啊，模型一出，大伙都能上，如果有生图和视屏
 反正app更新了一下，不知道是不是预告什么……    Re:Source</blockquote>
 1.711了，我记得之前上测试版本前也是更新了
 
+
+*****
+
+####  羊寢  
+##### 67#       发表于 2026-3-26 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69396832&amp;ptid=2275806" target="_blank">谎称 发表于 2026-3-26 20:46</a>
+反正app更新了一下，不知道是不是预告什么……    Re:Source</blockquote>
+2月份到现在app其实更了好多次了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
