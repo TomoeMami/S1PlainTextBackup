@@ -604,3 +604,32 @@ glm5 coder要来了，这个是真sonet甚至opus平替</blockquote>
 已经快一个月了    Re:Source</blockquote>
 倒是真有个内部工程师出来说快发了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  脸宽  
+##### 52#       发表于 2026-3-26 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69396365&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-3-26 18:58</a>
+倒是真有个内部工程师出来说快发了</blockquote>
+是的，感觉就这周了。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  ayanamilin  
+##### 53#       发表于 2026-3-26 19:02
+
+放心好了，模型在那里，跑不掉的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这种规模的模型适配基本上都要花几个月甚至半年，DeepSeek 身上还套了一层国家队的 buff，所以一堆国内公司也需要在首发之前做适配。
+
+
+*****
+
+####  羊寢  
+##### 54#       发表于 2026-3-26 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69396371&amp;ptid=2275806" target="_blank">脸宽 发表于 2026-3-26 19:00</a>
+是的，感觉就这周了。    Re:Source</blockquote>
+这周感觉不太可能了，深度求索一般都是周一周四更新(除了上次偷偷灰测的v4 lite是周三)，周五概率很低了，周末基本没可能，所以这个月更的话应该还是0330
+
