@@ -376,3 +376,19 @@ EW出现漫画机体了那ult大概就是原型飞翼0或者天翼了吧
 
 见到好几个nta配4个走地机的鬼才队伍
 
+
+*****
+
+####  Abomination  
+##### 3815#       发表于 2026-3-27 00:29
+
+<img src="https://img.stage1st.com/forum/202603/27/002500to30zk0sff283a8d.png" referrerpolicy="no-referrer">
+
+<strong>MuMu-20260327-002019-229.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2026-3-27 00:25 上传
+
+免费十抽一抽就出了不是一架，而是两架我缺的飞龙高达，但UR是我有的ZZ<img src="https://static.stage1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">，放弃了
+
