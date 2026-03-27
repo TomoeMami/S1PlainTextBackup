@@ -400,3 +400,16 @@ EW出现漫画机体了那ult大概就是原型飞翼0或者天翼了吧
 
 等1号抽了47抽再来刷这个池
 
+
+*****
+
+####  jackyhuang  
+##### 3817#       发表于 2026-3-28 00:39
+
+<img src="https://p.sda1.dev/31/04edc13939c0b05cb8ff9b8a3e4c502f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/b84e85dfefe7193db452a89abfa83b4a/image.jpg" referrerpolicy="no-referrer">
+就这种队伍也打上20万了
+最大的难点在怎么避免骡子一开局就把自己送掉
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
