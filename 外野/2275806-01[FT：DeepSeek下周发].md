@@ -989,3 +989,29 @@ Claude已经开始测试下一代超强模型了，但愿deepseek V4不要陷入
 
 祈祷别来个1T的V4   真没法部署了<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  StrangerJ  
+##### 90#       发表于 2026-3-27 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69401202&amp;ptid=2275806" target="_blank">忧郁的杰哥 发表于 2026-3-27 16:37</a>
+下一代还不出小参数的模型  本地没法配置啊
+
+祈祷别来个1T的V4   真没法部署了 ...</blockquote>
+本地配置你就别指望ds了，这不是他要做的事
+
+—— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  忧郁的杰哥  
+##### 91#       发表于 2026-3-27 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69401239&amp;ptid=2275806" target="_blank">StrangerJ 发表于 2026-3-27 16:43</a>
+
+本地配置你就别指望ds了，这不是他要做的事
+
+—— 来自 OPPO PKU110, Android 16, 鹅球 v3.5.99 ...</blockquote>
+哦  我意思是内部本地化部署提供API服务那种
+
