@@ -971,3 +971,11 @@ Claude已经开始测试下一代超强模型了，但愿deepseek V4不要陷入
 
 我最近写材料已经换成kimi了，不知道这个新版能不能让我换回ds
 
+
+*****
+
+####  小野賢章  
+##### 88#       发表于 2026-3-27 16:24
+
+预期管理行为<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
