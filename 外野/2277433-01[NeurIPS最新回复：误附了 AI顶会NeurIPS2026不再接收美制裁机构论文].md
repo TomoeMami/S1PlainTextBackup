@@ -490,3 +490,13 @@ neurips更新公告</blockquote>
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  logiczr  
+##### 45#       发表于 2026-3-27 16:46
+
+感觉CCF一面对国内说：先不许和nips玩了，一面找nips直接骂：你什么意思
+
+做两手准备，还真是
+
