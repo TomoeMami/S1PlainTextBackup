@@ -937,3 +937,11 @@ Look forward to exciting details and an all-star cast from around the world.
 
 世嘉到现在都没出过完全本世代游戏吧 都是有p4x1的
 
+
+*****
+
+####  卡拉德利姆  
+##### 99#       发表于 2026-3-27 09:40
+
+5个年代不敢想主地图要小成啥样子
+
