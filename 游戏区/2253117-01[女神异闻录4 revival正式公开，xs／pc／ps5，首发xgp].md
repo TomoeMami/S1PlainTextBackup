@@ -95,3 +95,27 @@ P30到现在一点饼都画不出来，除了回顾还是回顾
 
 其他组也是一问一个不吱声
 
+
+*****
+
+####  这次是十块钱  
+##### 149#       发表于 2026-3-27 11:24
+
+a➗这几年都在干什么烂事啊，三十周年要不要表演个切腹啊
+
+*****
+
+####  InfiniteGyre  
+##### 150#       发表于 2026-3-27 11:26
+
+p6就不说了，p4r这炒冷饭的东西除了个丢人现眼的pv连个屁都放不出来，怕不是天天在摆
+
+*****
+
+####  黑夜守望者  
+##### 151#       发表于 2026-3-27 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69399177&amp;ptid=2253117" target="_blank">新世界的派蒙 发表于 2026-3-27 10:48</a>
+p5建模早就是PS3时代的产物了吧，P3R人物建模肉眼可见的爆了P5，有着P3R探路的成熟重制经验，P4R憋了这么久 ...</blockquote>
+问题是P4R那个PV里的建模连P5都不如啊，我觉得就是原版小人拉高拉长，所以我觉得有P5水平就是赢<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
