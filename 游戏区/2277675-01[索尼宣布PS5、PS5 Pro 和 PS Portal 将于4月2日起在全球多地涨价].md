@@ -504,3 +504,11 @@ ns不涨价ns卖不出去
 
 现在SSD在涨价、内存在涨价、CPU在涨价、手机在涨价、游戏机也在涨价。电子消费品涨价之年可以说是。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Philpho  
+##### 53#       发表于 2026-3-27 23:34
+
+之前还有、怀疑，现在我不太信下代xbox能1000刀做出5080的性能了
+
