@@ -1136,3 +1136,12 @@ D老师写文是真的顶，前前后后国内的几家都试过了，就D老师
 
 才发现是3月1日的帖子。。。<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  沙发果冻  
+##### 105#       发表于 2026-3-28 07:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">你们真以为1m上下文等于理解上下文的内容啊，NGA这个讲得挺好的，建议看下是怎么工作的
+https://ngabbs.com/read.php?tid=46408344
+
