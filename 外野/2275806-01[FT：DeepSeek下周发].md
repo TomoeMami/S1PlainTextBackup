@@ -790,3 +790,15 @@ DS可是开源的啊，模型一出，大伙都能上，如果有生图和视屏
 这次DS要瞄着打仗去做空美股了吗</blockquote>
 量化才是主业嘛。手动狗头。
 
+
+*****
+
+####  zeroboss4  
+##### 72#       发表于 2026-3-27 10:05
+
+英伟达171
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">怎么感觉要再现ds出来的腥风血雨了 
+
+—— 来自 OnePlus PLR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
