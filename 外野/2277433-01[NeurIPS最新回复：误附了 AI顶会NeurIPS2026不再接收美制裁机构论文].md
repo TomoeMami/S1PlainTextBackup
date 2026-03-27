@@ -535,3 +535,28 @@ neurips更新公告</blockquote>
 误触真是太可怕了
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qq2007ssy  
+##### 50#       发表于 2026-3-27 18:38
+
+其实之前就已经把俄罗斯给制裁了，只是无人在意罢了，现在的修改也只是分的更清楚了，制裁跟制裁亦有区别,  Specially Designated Nationals (SDN) List 上的还是被制裁，但国内这些高校企业本来就不在这个list上，谁说科学没国界呢。
+
+<img src="https://img.stage1st.com/forum/202603/27/183214exmtg2nznvt1tiyn.png" referrerpolicy="no-referrer">
+
+<strong>37790d9bdae2262375fff03b4b1d9c7d.png</strong> (267.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-27 18:32 上传
+
+*****
+
+####  红炉灰  
+##### 51#       发表于 2026-3-27 18:40
+
+误封等误解<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
