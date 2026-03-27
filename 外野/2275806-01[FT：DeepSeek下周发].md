@@ -926,3 +926,20 @@ Claude已经开始测试下一代超强模型了，但愿deepseek V4不要陷入
 
 昨天让D导又写了一篇，感觉笔力爆炸，不知道是因为好久没用了还是偷偷升级了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ayanamilin  
+##### 84#       发表于 2026-3-27 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69400139&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-3-27 13:27</a>
+
+你理解的适配是什么？现在昇腾推理适配新模型全都是Day0支持
+
+—— 来自 HUAWEI SGT-AL50, Android 12,  ...</blockquote>
+你觉得 day0 指的是模型出来的当天就能自动支持吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我借用游凯超的一段话：
+
+“或许用户已经习以为常，觉得一个模型首发支持vLLM是理所当然的。其实，对于vLLM来说，每一个day 0模型支持的背后，都是提前数周甚至数月的model integration工作。受限于开源项目的人手与资源的短缺，我们在day 0模型支持方面一直是艰难维持。更要命的是，模型在发布之前都是需要保密的，这极大地限制了我们从合作公司里借调人手与资源的可能性。”
+
