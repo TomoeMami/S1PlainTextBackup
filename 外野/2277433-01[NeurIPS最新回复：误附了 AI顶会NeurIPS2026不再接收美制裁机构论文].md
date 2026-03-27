@@ -586,3 +586,13 @@ neurips更新公告</blockquote>
 
 —— 来自 HONOR PTP-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  御坂MKII  
+##### 55#       发表于 2026-3-28 05:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"> 怎么能跪呢 阿川能不能来整个活
+
+—— 来自 Xiaomi 24072PX77C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
