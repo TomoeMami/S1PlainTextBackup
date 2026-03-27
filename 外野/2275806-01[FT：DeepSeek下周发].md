@@ -963,3 +963,11 @@ Claude已经开始测试下一代超强模型了，但愿deepseek V4不要陷入
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  高粱河车神  
+##### 87#       发表于 2026-3-27 15:24
+
+我最近写材料已经换成kimi了，不知道这个新版能不能让我换回ds
+
