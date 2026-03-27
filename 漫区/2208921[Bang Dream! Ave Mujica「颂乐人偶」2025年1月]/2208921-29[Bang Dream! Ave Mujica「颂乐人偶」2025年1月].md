@@ -272,3 +272,28 @@
 
        [https://www.summersonic.com/news/2026-03-25-40622/](https://www.summersonic.com/news/2026-03-25-40622/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41816#       发表于 2026-3-27 19:31
+
+       <strong>ASL2025特典映像 Ave Mujica 部分 - Animelo Summer Live 2025</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202603/27/193132h3jor8osge0ij9vi.jpg" referrerpolicy="no-referrer">
+
+<strong>c78a1d88ce62211a82ac01a3d6be22c0b7696794.jpg</strong> (134.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-27 19:31 上传
+
+[https://weibo.com/5470219265/QxQNW8lNn](https://weibo.com/5470219265/QxQNW8lNn)
+
+Animelo Summer Live 2025 “ThanXX!” Blu-ray Day2
+
+特典映像：アニサマ2025 バックステージ映像 前半(08.30）
+
+Ave Mujica 部分</blockquote>
+       [https://www.bilibili.com/video/BV1UPXbBoEMt](https://www.bilibili.com/video/BV1UPXbBoEMt)
+
