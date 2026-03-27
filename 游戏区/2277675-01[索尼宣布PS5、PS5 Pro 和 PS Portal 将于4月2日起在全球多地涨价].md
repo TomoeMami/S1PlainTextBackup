@@ -544,3 +544,17 @@ PS4 Pro (1TB): $349.99
 
 现在这个别说打对折了,过了5年价格往上涨的也算奇观了
 
+
+*****
+
+####  clyde-wang  
+##### 57#       发表于 2026-3-28 01:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69403405&amp;ptid=2277675" target="_blank">泰坦失足 发表于 2026-3-28 01:25</a>
+2018年时候:
+
+1TB PS4 Slim Spider-Man Bundle: $199.99.
+
+PS4 Pro (1TB): $349.99</blockquote>
+现在的悬念是到生涯结束会不会翻倍
+
