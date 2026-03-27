@@ -75,3 +75,18 @@
 
 盗贼这个职业实在太过鸡肋，单从专精辅助而言最好的转职是僧，但是僧的SP又不高，要是给游侠就有打输出的能力了，可唱歌buff自己又听不到，两头堵
 
+
+*****
+
+####  Flechette  
+##### 762#       发表于 2026-3-27 21:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69402394&amp;ptid=2249235" target="_blank">Flechette 发表于 2026-3-27 20:48</a>
+
+再动很美好，但是触发太不稳定了，首次再动的触发率都不是100%，这就比较毒
+
+唱歌的效果范围导致这个角色最 ...</blockquote>
+但是话又说回来，她会在泉水休息的时候唱歌
+
+要是我的大脑没有被强度毒害<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">，我肯定会把她塞进队伍里的
+

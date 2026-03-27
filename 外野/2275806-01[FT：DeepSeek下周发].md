@@ -1072,3 +1072,11 @@ D老师写文是真的顶，前前后后国内的几家都试过了，就D老师
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  有鱼  
+##### 98#       发表于 2026-3-27 21:13
+
+现在那个超长上下文的只上了网页吧，要用只能嗯用了，我宁愿ds哥把这个实验性模型的api先端出来解解渴<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
