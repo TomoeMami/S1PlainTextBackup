@@ -883,3 +883,14 @@ Look forward to exciting details and an all-star cast from around the world.
 
 大道寺起源
 
+
+*****
+
+####  Demi.Albertini  
+##### 94#       发表于 2026-3-27 08:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69398063&amp;ptid=2210361" target="_blank">黑修士 发表于 2026-3-27 06:36</a>
+
+动作性看起来不错，不过5个年代啊，横皮尔伯格驾驭得住么</blockquote>
+肯定驾驭不住啊
+
