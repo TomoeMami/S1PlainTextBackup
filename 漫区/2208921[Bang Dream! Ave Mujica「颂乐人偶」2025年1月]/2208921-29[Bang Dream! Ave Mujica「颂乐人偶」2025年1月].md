@@ -297,3 +297,74 @@ Animelo Summer Live 2025 “ThanXX!” Blu-ray Day2
 Ave Mujica 部分</blockquote>
        [https://www.bilibili.com/video/BV1UPXbBoEMt](https://www.bilibili.com/video/BV1UPXbBoEMt)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41817#       发表于 2026-3-27 19:37
+
+       <strong>【ASL2025 DAY2】KINGS angela feat. Doloris from Ave Mujica</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202603/27/193704zicyjsassl66ev6c.jpg" referrerpolicy="no-referrer">
+
+<strong>f082dc730a2a1a632f1bb171b9cad133fc60ccf7.jpg</strong> (127.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-27 19:37 上传
+
+</blockquote>
+       [https://www.bilibili.com/video/BV1hBXbBeEav](https://www.bilibili.com/video/BV1hBXbBeEav)
+
+       <strong></strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202603/27/193703uijzdx9yfwf7f6ai.jpg" referrerpolicy="no-referrer">
+
+<strong>95982e99a0ab328a4864f954a2dbb18b12dfddc6.jpg</strong> (180.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-27 19:37 上传
+
+</blockquote>
+       [https://www.bilibili.com/video/BV13BXbBvELN](https://www.bilibili.com/video/BV13BXbBvELN)
+
+       <strong>【ASL2025 DAY2】KiLLKiSS-Ave Mujica</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202603/27/193703paosaatbmoqgobaf.jpg" referrerpolicy="no-referrer">
+
+<strong>94f0a9a28ff0c07ea3045c6c09d62a3c0c5c054c.jpg</strong> (211.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-27 19:37 上传
+
+</blockquote>
+       [https://www.bilibili.com/video/BV1hBXbBeELd](https://www.bilibili.com/video/BV1hBXbBeELd)
+
+       <strong>【ASL2025 DAY2】八芒星ダンス-Ave Mujica</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202603/27/193702t4celgrchgrze8e8.jpg" referrerpolicy="no-referrer">
+
+<strong>1682428587771c15e89972908d5f9c0f72409157.jpg</strong> (111.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-27 19:37 上传
+
+</blockquote>
+       [https://www.bilibili.com/video/BV1YGXNBNEWr](https://www.bilibili.com/video/BV1YGXNBNEWr)
+
+       <strong>【ASL2025 DAY2】Crucifix X-Ave Mujica</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202603/27/193701wzq77uhaakukaej7.jpg" referrerpolicy="no-referrer">
+
+<strong>1dbd319039e7b6e7a3d3158e445be470ca40ac69.jpg</strong> (110.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-27 19:37 上传
+
+</blockquote>
+      [https://www.bilibili.com/video/BV1XGXNBPE3m](https://www.bilibili.com/video/BV1XGXNBPE3m)
+
