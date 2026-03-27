@@ -979,3 +979,13 @@ Claude已经开始测试下一代超强模型了，但愿deepseek V4不要陷入
 
 预期管理行为<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  忧郁的杰哥  
+##### 89#       发表于 2026-3-27 16:37
+
+ 下一代还不出小参数的模型  本地没法配置啊
+
+祈祷别来个1T的V4   真没法部署了<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
