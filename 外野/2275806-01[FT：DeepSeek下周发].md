@@ -870,3 +870,19 @@ Claude已经开始测试下一代超强模型了，但愿deepseek V4不要陷入
 不过我感觉v4还是纯文字模型，感觉幻方他们不太重视多 ...</blockquote>
 我一直觉得如果深度求索真的目标是agi那多模态肯定是绕不开的一环，但至于是不是下个版本就出或者v4版本出，那还是不太好说，只能说v4确实有多模态的可能性
 
+
+*****
+
+####  astkaasa  
+##### 80#       发表于 2026-3-27 13:13
+
+<img src="https://img.stage1st.com/forum/202603/27/131306ez9pxcqxy9pr71cv.jpg" referrerpolicy="no-referrer">
+
+<strong>1000102982.jpg</strong> (286.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-27 13:13 上传
+
+来了来了
+
