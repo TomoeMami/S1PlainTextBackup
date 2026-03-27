@@ -894,3 +894,20 @@ Look forward to exciting details and an all-star cast from around the world.
 动作性看起来不错，不过5个年代啊，横皮尔伯格驾驭得住么</blockquote>
 肯定驾驭不住啊
 
+
+*****
+
+####  空气先生  
+##### 95#       发表于 2026-3-27 08:50
+
+ 本帖最后由 空气先生 于 2026-3-27 08:54 编辑 
+
+感觉即使做成**good enough for xgp也比诈骗大作如马强
+
+*****
+
+####  clover293  
+##### 96#       发表于 2026-3-27 08:53
+
+这游戏b站评论区都不开啊xs
+
