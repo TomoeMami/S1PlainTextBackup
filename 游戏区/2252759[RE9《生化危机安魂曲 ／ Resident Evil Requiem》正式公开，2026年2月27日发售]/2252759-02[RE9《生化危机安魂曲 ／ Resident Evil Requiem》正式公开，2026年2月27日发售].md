@@ -7370,3 +7370,11 @@ LEON主要是開場時及不少地方都新增了補給箱
 
 但第2把手槍還是在水吧附近
 
+
+*****
+
+####  windlikeman  
+##### 2119#       发表于 2026-3-27 19:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">诚实预告片RE9这期找了威斯克英文CV来配音 喷了
+
