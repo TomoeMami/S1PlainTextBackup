@@ -957,3 +957,11 @@ Look forward to exciting details and an all-star cast from around the world.
 
 从里面选5个出来改改继续用。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zqqwe  
+##### 101#       发表于 2026-3-27 10:31
+
+这战斗风格基本抛弃如龙的武术元素变成纯粹暴力了，评级会上r18吧
+
