@@ -481,3 +481,11 @@ ns不涨价ns卖不出去
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只说了能供货，又没说不涨价
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 50#       发表于 2026-3-27 22:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这价格要吓死人了
+
