@@ -1005,3 +1005,18 @@ Look forward to exciting details and an all-star cast from around the world.
 
 我看下来感觉是很像mafia，其实做成纯线性流程我也觉得还行，但是他们肯定要充分利用螺丝壳搞一些有的没的
 
+
+*****
+
+####  flyzzhj  
+##### 106#       发表于 2026-3-27 13:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69398827&amp;ptid=2210361" target="_blank">stoiorz 发表于 2026-3-27 09:57</a>
+
+如来系列，积攒的地图有几个了。
+
+神室町，道顿堀，札幌，冲绳，横滨，福冈，名古屋，夏威夷。
+
+从里面选5个 ...</blockquote>
+还有广岛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -886,3 +886,15 @@ Claude已经开始测试下一代超强模型了，但愿deepseek V4不要陷入
 
 来了来了
 
+
+*****
+
+####  ycjiang1337  
+##### 81#       发表于 2026-3-27 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69396770&amp;ptid=2275806" target="_blank">Synopses6087 发表于 2026-3-26 20:30</a>
+华为吧，硬件百度，在 AI 上起大早赶晚集，芯片太菜把 DS4 耽误了</blockquote>
+你理解的适配是什么？现在昇腾推理适配新模型全都是Day0支持
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
