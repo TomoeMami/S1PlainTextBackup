@@ -810,3 +810,13 @@ DS可是开源的啊，模型一出，大伙都能上，如果有生图和视屏
 
 Claude已经开始测试下一代超强模型了，但愿deepseek V4不要陷入发布即落后的窘境
 
+
+*****
+
+####  yikaa  
+##### 74#       发表于 2026-3-27 12:06
+
+<img src="https://p.sda1.dev/31/a38c2dd7fe60ce34d0b440fe7cef6bc8/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
