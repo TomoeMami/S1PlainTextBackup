@@ -108,3 +108,49 @@ PS5数字版 – ¥89,980
 
 PS5 Pro – ¥137,980
 
+
+*****
+
+####  PYY  
+##### 603#       发表于 2026-3-27 23:26
+
+<blockquote>椎名mahuyo 发表于 2026-3-26 20:01
+用app有没有遇到截图同步到app后只能看没法下到手机里的情况，用了各种工具都不行
+
+—— 来自 realme RMX37 ...</blockquote>
+我也经常主机上抓图，然后手机下载。
+
+现在的确是越来越慢了。
+
+我的理解是，psapp上只是预览，你点了后他才慢慢给你下载，而且还是没有国内节点的那种。
+
+<img src="https://img.stage1st.com/forum/202603/27/232104xcdhtf88z0mdymga.jpg" referrerpolicy="no-referrer">
+
+<strong>1000026203.jpg</strong> (222.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-27 23:21 上传
+
+<img src="https://img.stage1st.com/forum/202603/27/232105yi4jz33qzbj0x31b.jpg" referrerpolicy="no-referrer">
+
+<strong>1000026207.jpg</strong> (235.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-27 23:21 上传
+
+<img src="https://img.stage1st.com/forum/202603/27/232105m0u8a8oihcchb8sy.jpg" referrerpolicy="no-referrer">
+
+<strong>1000026205.jpg</strong> (105.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-27 23:21 上传
+
+还有想吐槽的一点就是，psapp的不同服务器的账号登录后界面还不一样。
+
+港服账号就有这个截图和视频接口，
+
+国服账号就没有，不过国服账号可以曲线救国，就是和自己港服账号加个好友然后在国服账号主机上把图片视频发给港服账号然后登psapp港服账号下载。。。
+
