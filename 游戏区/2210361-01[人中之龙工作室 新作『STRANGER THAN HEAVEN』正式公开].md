@@ -975,3 +975,13 @@ Look forward to exciting details and an all-star cast from around the world.
 这战斗风格基本抛弃如龙的武术元素变成纯粹暴力了，评级会上r18吧</blockquote>
 就是如龙每部也是r18啊
 
+
+*****
+
+####  zqqwe  
+##### 103#       发表于 2026-3-27 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69399102&amp;ptid=2210361" target="_blank">byisme001 发表于 2026-3-27 10:39</a>
+就是如龙每部也是r18啊</blockquote>
+特指日服的c评级，信用卡限购的才是r18，如龙系列至今都没有达到
+
