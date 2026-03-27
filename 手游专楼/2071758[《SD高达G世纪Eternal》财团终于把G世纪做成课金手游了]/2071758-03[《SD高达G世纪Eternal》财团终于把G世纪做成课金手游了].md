@@ -392,3 +392,11 @@ EW出现漫画机体了那ult大概就是原型飞翼0或者天翼了吧
 
 免费十抽一抽就出了不是一架，而是两架我缺的飞龙高达，但UR是我有的ZZ<img src="https://static.stage1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">，放弃了
 
+
+*****
+
+####  闽明  
+##### 3816#       发表于 2026-3-27 09:24
+
+等1号抽了47抽再来刷这个池
+
