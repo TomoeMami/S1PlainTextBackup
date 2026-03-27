@@ -443,3 +443,41 @@ ns不涨价ns卖不出去
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  RTLordCaptain  
+##### 47#       发表于 2026-3-27 22:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69402618&amp;ptid=2277675" target="_blank">nancygreenlife 发表于 2026-3-27 21:33</a>
+
+笑死，我当时还是想得太保守了，现在看来光ps6就可能上千刀了</blockquote>
+掌机如果不是串流机，实际不可能比主机便宜很多（就类似手机性能哪怕比PC低不少均价也不会比PC便宜），哪怕在内存涨价前也不可能1000拿下主机+掌机，除非两个都是499（也太极限了）
+
+*****
+
+####  RTLordCaptain  
+##### 48#       发表于 2026-3-27 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69402872&amp;ptid=2277675" target="_blank">沧兰殇 发表于 2026-3-27 22:34</a>
+
+二月份才说的
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+可能只是说能锁定了内存的合约，但没说是低价的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+先报喜，现在可能市场本身就在动荡正好浑水摸鱼可以报忧了
+
+
+*****
+
+####  黑上シグマ  
+##### 49#       发表于 2026-3-27 22:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69402872&amp;ptid=2277675" target="_blank">沧兰殇 发表于 2026-3-27 22:34</a>
+
+二月份才说的
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只说了能供货，又没说不涨价
+
