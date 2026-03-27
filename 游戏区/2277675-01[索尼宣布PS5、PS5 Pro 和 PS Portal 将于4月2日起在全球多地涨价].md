@@ -530,3 +530,17 @@ ns不涨价ns卖不出去
 
 趁打折买的pro和portal太值了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">pro当时才600刀portal也不贵
 
+
+*****
+
+####  泰坦失足  
+##### 56#       发表于 2026-3-28 01:25
+
+2018年时候:
+
+1TB PS4 Slim Spider-Man Bundle: $199.99.
+
+PS4 Pro (1TB): $349.99
+
+现在这个别说打对折了,过了5年价格往上涨的也算奇观了
+
