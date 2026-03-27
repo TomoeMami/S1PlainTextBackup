@@ -489,3 +489,18 @@ ns不涨价ns卖不出去
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这价格要吓死人了
 
+
+*****
+
+####  jklcui  
+##### 51#       发表于 2026-3-27 22:57
+
+已经无所谓了，目前根本没有刚需上ps5玩的游戏
+
+*****
+
+####  斯哈  
+##### 52#       发表于 2026-3-27 23:01
+
+现在SSD在涨价、内存在涨价、CPU在涨价、手机在涨价、游戏机也在涨价。电子消费品涨价之年可以说是。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
