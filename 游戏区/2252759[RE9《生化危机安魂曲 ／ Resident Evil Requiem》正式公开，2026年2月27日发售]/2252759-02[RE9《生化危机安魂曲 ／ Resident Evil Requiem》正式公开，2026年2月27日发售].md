@@ -7378,3 +7378,24 @@ LEON主要是開場時及不少地方都新增了補給箱
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">诚实预告片RE9这期找了威斯克英文CV来配音 喷了
 
+
+*****
+
+####  何然  
+##### 2120#       发表于 2026-3-27 19:46
+
+更新把子弹bug修了，有病吧卡婊<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  何然  
+##### 2121#       发表于 2026-3-27 19:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69399312&amp;ptid=2252759" target="_blank">eilot 发表于 2026-3-27 11:06</a>
+
+看了有更新，是補回拍照模式和修BUG
+
+不知道會否修了GRACE的換槍械武器時，第一把武器的子彈上膛數量變成第2 ...</blockquote>
+子弹bug已经修了
+
