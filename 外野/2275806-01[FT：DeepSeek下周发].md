@@ -773,3 +773,20 @@ DS可是开源的啊，模型一出，大伙都能上，如果有生图和视屏
 
 4月希望能上，酒馆长草好久了
 
+
+*****
+
+####  tonyshva  
+##### 70#       发表于 2026-3-27 09:56
+
+这次DS要瞄着打仗去做空美股了吗 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  bankofsoul  
+##### 71#       发表于 2026-3-27 09:58
+
+<blockquote>tonyshva 发表于 2026-3-27 09:56
+这次DS要瞄着打仗去做空美股了吗</blockquote>
+量化才是主业嘛。手动狗头。
+
