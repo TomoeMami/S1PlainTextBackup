@@ -945,3 +945,15 @@ Look forward to exciting details and an all-star cast from around the world.
 
 5个年代不敢想主地图要小成啥样子
 
+
+*****
+
+####  stoiorz  
+##### 100#       发表于 2026-3-27 09:57
+
+如来系列，积攒的地图有几个了。
+
+神室町，道顿堀，札幌，冲绳，横滨，福冈，名古屋，夏威夷。
+
+从里面选5个出来改改继续用。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
