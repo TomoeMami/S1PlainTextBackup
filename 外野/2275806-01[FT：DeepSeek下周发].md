@@ -951,3 +951,15 @@ Claude已经开始测试下一代超强模型了，但愿deepseek V4不要陷入
 
 烂炒，信这个还不如去信类脑烂炒帖
 
+
+*****
+
+####  长征5号  
+##### 86#       发表于 2026-3-27 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69400411&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-3-27 14:28</a>
+烂炒，信这个还不如去信类脑烂炒帖</blockquote>
+不是炒，只是还不够尽善尽美
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
