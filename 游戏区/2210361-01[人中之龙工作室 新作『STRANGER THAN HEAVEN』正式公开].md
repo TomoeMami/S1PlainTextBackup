@@ -965,3 +965,13 @@ Look forward to exciting details and an all-star cast from around the world.
 
 这战斗风格基本抛弃如龙的武术元素变成纯粹暴力了，评级会上r18吧
 
+
+*****
+
+####  byisme001  
+##### 102#       发表于 2026-3-27 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69399042&amp;ptid=2210361" target="_blank">zqqwe 发表于 2026-3-27 10:31</a>
+这战斗风格基本抛弃如龙的武术元素变成纯粹暴力了，评级会上r18吧</blockquote>
+就是如龙每部也是r18啊
+
