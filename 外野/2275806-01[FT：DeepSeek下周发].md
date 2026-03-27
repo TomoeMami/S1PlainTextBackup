@@ -1015,3 +1015,13 @@ Claude已经开始测试下一代超强模型了，但愿deepseek V4不要陷入
 —— 来自 OPPO PKU110, Android 16, 鹅球 v3.5.99 ...</blockquote>
 哦  我意思是内部本地化部署提供API服务那种
 
+
+*****
+
+####  有鱼  
+##### 92#       发表于 2026-3-27 18:16
+
+我只想看幻方发出来超长上下文怎么实现的论文
+
+堪称魔法，御三家的超长上下文模型想用上都得花大钱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
