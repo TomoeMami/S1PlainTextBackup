@@ -1080,3 +1080,14 @@ D老师写文是真的顶，前前后后国内的几家都试过了，就D老师
 
 现在那个超长上下文的只上了网页吧，要用只能嗯用了，我宁愿ds哥把这个实验性模型的api先端出来解解渴<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  羊寢  
+##### 99#       发表于 2026-3-27 21:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69402416&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-3-27 20:52</a>
+现在还没有1M的api吧？你们怎么写文的        Re:Source</blockquote>
+不搞刘备不碰zz敏感话题就能在官网app上直接写
+所以相对的v4 lite现在nsfw写作力还是个未知数<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望能有3.1t那个等级
+
