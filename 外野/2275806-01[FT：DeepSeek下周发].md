@@ -898,3 +898,31 @@ Claude已经开始测试下一代超强模型了，但愿deepseek V4不要陷入
 
 —— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  GMJ  
+##### 82#       发表于 2026-3-27 14:01
+
+ 本帖最后由 GMJ 于 2026-3-27 14:02 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69255408&amp;ptid=2275806" target="_blank">valigarmanda 发表于 2026-3-1 17:44</a>
+
+因为这几家ai公司只有deepseek是一直发论文的，相当于开源了。而且ds的api定价简直就是免费送，一点也不 ...</blockquote>
+大概做金融的看不上这点吧，对接的用户数量太多，维护起来又烦，还不如免费开放大家使用给数据，拿训练好的数据去金融市场杀一圈。<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">            
+
+        
+
+        
+
+    
+
+
+*****
+
+####  ymm1030  
+##### 83#       发表于 2026-3-27 14:06
+
+反正写文我只认D导！
+
+昨天让D导又写了一篇，感觉笔力爆炸，不知道是因为好久没用了还是偷偷升级了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
