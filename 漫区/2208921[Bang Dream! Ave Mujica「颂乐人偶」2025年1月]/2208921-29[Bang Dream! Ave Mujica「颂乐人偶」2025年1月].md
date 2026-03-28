@@ -436,3 +436,13 @@ Ave Mujica 部分</blockquote>
 
  一起吃屎的日子
 
+
+*****
+
+####  傘木希美  
+##### 41824#       发表于 2026-3-28 18:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">太难了，兄弟们
+
+—— 来自 vivo V2454A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
