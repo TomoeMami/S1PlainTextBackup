@@ -535,3 +535,12 @@ AGI L2.9999999
 不冲突，现在第一步外包全裁了。剩下的用ai提效</blockquote>
 好巧，这事IBM干过
 
+
+*****
+
+####  奈姆乐斯美都莎  
+##### 54#       发表于 2026-3-28 22:22
+
+Claude：不小心手滑发出来了 哈哈要谈AGI的来
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
