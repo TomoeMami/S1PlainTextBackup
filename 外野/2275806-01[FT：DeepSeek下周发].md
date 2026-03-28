@@ -1166,3 +1166,15 @@ https://ngabbs.com ...</blockquote>
 
 也不符合llm的用法
 
+
+*****
+
+####  沙发果冻  
+##### 107#       发表于 2026-3-28 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69403859&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-3-28 09:12</a>
+从编程的角度来看, 写小说的人对于 1M上下文的理解和使用是有点离谱的
+
+他们的"拆书"要求,其实是 跨啦一 ...</blockquote>
+问题在于这就是很多人对1m上下文的理解，你看上面有些人的发言就懂了
+
