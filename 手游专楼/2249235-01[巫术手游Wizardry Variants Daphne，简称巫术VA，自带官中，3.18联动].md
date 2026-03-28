@@ -90,3 +90,16 @@
 
 要是我的大脑没有被强度毒害<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">，我肯定会把她塞进队伍里的
 
+
+*****
+
+####  UNINSTALL42  
+##### 763#       发表于 2026-3-29 01:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69318744&amp;ptid=2249235" target="_blank">茄子自走炮 发表于 2026-3-12 15:26</a>
+
+我说这转职每次都要消耗道具真是傻逼设计啊
+
+drecom这么想赚钱怎么不给假面也加上去 ...</blockquote>
+现在消耗道具已经是改过的了，之前是必须用反过来的转职书
+
