@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 34435,
+    "totalreply": 34436,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》3.19 橘里橘气]",
-    "lastedit": 1774684095,
+    "lastedit": 1774684450,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9495,10 +9495,10 @@
     "update": false
   },
   "2195588": {
-    "totalreply": 19953,
+    "totalreply": 19965,
     "title": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
     "newtitle": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
-    "lastedit": 1774619049,
+    "lastedit": 1774684328,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12051,10 +12051,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 56982,
+    "totalreply": 56984,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1774683974,
+    "lastedit": 1774684572,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12384,10 +12384,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 11233,
+    "totalreply": 11234,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼2月]",
-    "lastedit": 1774684099,
+    "lastedit": 1774684452,
     "category": "外野",
     "active": true,
     "update": false
@@ -12402,10 +12402,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 23276,
+    "totalreply": 23277,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1774683974,
+    "lastedit": 1774684688,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12821,7 +12821,7 @@
     "newtitle": "[「東島丹三郎は仮面ライダーになりたい ／ 东岛丹三郎想成为假面骑士」动画化]",
     "lastedit": 1774425033,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2272729": {
@@ -13248,10 +13248,10 @@
     "update": false
   },
   "2275908": {
-    "totalreply": 24187,
+    "totalreply": 24192,
     "title": "[中东专楼-2026年3月]",
     "newtitle": "[中东专楼-2026年3月]",
-    "lastedit": 1774684099,
+    "lastedit": 1774684452,
     "category": "外野",
     "active": true,
     "update": false
@@ -15084,10 +15084,10 @@
     "update": false
   },
   "2276976": {
-    "totalreply": 287,
+    "totalreply": 288,
     "title": "[我搓了一款AI驱动龙与地下城文字跑团游戏《剑湾历险记》]",
     "newtitle": "[【25／3大更新】我搓了一款AI驱动龙与地下城2024的文字跑团游戏《剑湾历险记》]",
-    "lastedit": 1774682782,
+    "lastedit": 1774684209,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17343,10 +17343,10 @@
     "update": false
   },
   "2185584": {
-    "totalreply": 75,
+    "totalreply": 76,
     "title": "[偶像活动新作『偶活学园』正式公开，直播+集卡【已开播】]",
     "newtitle": "[偶像活动新作『偶活学园』正式公开，直播+集卡【已开播】]",
-    "lastedit": 1774680985,
+    "lastedit": 1774684572,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17384,6 +17384,15 @@
     "newtitle": "[安利视频，＊＊Ludwig和朋友无导航无翻译摩旅中国]",
     "lastedit": 1774683490,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2010843": {
+    "totalreply": 42,
+    "title": "[幼女战记 第二季 tv动画制作决定]",
+    "newtitle": "[幼女战记 第二季 tv动画制作决定]",
+    "lastedit": 1774684572,
+    "category": "漫区",
     "active": true,
     "update": false
   }
