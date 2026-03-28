@@ -7422,3 +7422,16 @@ LEON主要是開場時及不少地方都新增了補給箱
 
 周四刚把nsfw mod安装到位又更新了……
 
+
+*****
+
+####  武川日玄  
+##### 2125#       发表于 2026-3-28 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69402757&amp;ptid=2252759" target="_blank">椎名mahuyo 发表于 2026-3-27 22:07</a>
+
+更新以后不停的闪退有人遇到过么？</blockquote>
+打mod用reframwork了么？
+
+不要用外观mod，更新27号出的dinput.dll就好了
+
