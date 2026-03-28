@@ -544,3 +544,15 @@ AGI L2.9999999
 Claude：不小心手滑发出来了 哈哈要谈AGI的来
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  s1234y  
+##### 55#       发表于 2026-3-29 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69403783&amp;ptid=2277663" target="_blank">wengnaicong 发表于 2026-3-28 08:44</a>
+虽然达里奥这个人是个**，但是你说他骗投资，没有营收，这就是扯淡了。你可以查查年化和月入是多少亿美金。 ...</blockquote>
+B 端订阅他也差 oai 挺远的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
