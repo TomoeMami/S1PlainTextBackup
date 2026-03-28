@@ -524,3 +524,14 @@ AGI L2.9999999
 
 说到这个惨案，海格塞斯支支吾吾搪塞，懂王满口胡言甩锅，都没你理直气壮啊。
 
+
+*****
+
+####  风过留声  
+##### 53#       发表于 2026-3-28 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69404496&amp;ptid=2277663" target="_blank">zypyong 发表于 2026-3-28 12:01</a>
+
+不冲突，现在第一步外包全裁了。剩下的用ai提效</blockquote>
+好巧，这事IBM干过
+
