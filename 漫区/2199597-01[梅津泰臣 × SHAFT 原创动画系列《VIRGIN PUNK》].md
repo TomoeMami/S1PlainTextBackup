@@ -1736,3 +1736,40 @@ dmhy有 只有字幕版的</blockquote>
 <img src="https://p.sda1.dev/31/3a0c6033924bc48002d333fa860fb892/1000162824.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/31/8e17d29a277c4d396e26ee2a3c555951/1000162823.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 173#         楼主| 发表于 2026-3-28 21:54
+
+【✒️書影解禁📕】
+
+『A KITE』『MEZZO』などを手掛けた
+
+稀代のアニメーター&amp;監督・梅津泰臣。
+
+その原画やコンテ、イラストなど資料を厳選して収録したアニメーションワークス――
+
+『Unfinished 梅津泰臣アニメーションワークス』
+
+その男、未だ進化の途中――。
+
+2025/8/25発売。 ​
+<img src="https://p.sda1.dev/31/66c6f59629be94d30676c2699ea41d9a/1000162859.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/7b63496f984435f6362e4c37df3bb7f7/1000162861.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/17b9a80b910bd70b356f86674539c3cc/1000162856.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/31/02b0bc1e5c4404e783a90cf271003f99/1000162860.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/c6f00d7f327144f0ac221d25ff81e501/1000162866.jpg" referrerpolicy="no-referrer">
+
+『ヴァージン・パンク Clockwork Girl』の絵コンテ集が本日より発売開始！
+
+#梅津泰臣 監督の精緻かつ美麗な絵コンテがフルカラーでお楽しみ頂けます。
+
+監督インタビューも収録！
+
+ファン必携のアイテムをぜひ入手してください！
+<img src="https://p.sda1.dev/31/ba6e5d5f6cae6cccbc57ac1446eebf6c/1000162862.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/f51905f8034e852a7fdd93b445f56605/1000162863.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/91baaf8347f00c08e21a9d4bbfd4c25f/1000162864.jpg" referrerpolicy="no-referrer">
+
