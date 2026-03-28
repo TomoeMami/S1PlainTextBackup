@@ -3182,3 +3182,13 @@ gemini3.1pro的翻译质量比gpt5.4t好多了，gpt5.4t会莫名其妙的压缩
 
 0:50:00 - 0:54:25 ★ 09. 世界的约定 / 世界の約束 / 倍賞千恵子
 
+
+*****
+
+####  sino__unnko3  
+##### 20397#       发表于 2026-3-28 20:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69397513&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2026-3-26 23:49</a>
+gemini3.1pro的翻译质量比gpt5.4t好多了，gpt5.4t会莫名其妙的压缩掉不少细节以至于偏离原意，查看原文发现 ...</blockquote>
+证实在经期
+
