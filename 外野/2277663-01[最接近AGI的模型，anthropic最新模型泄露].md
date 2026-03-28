@@ -384,3 +384,17 @@ a➗差不多得了，天天搁这炒作
 年年大幅提升，年年没有能用的应用和场景</blockquote>
 这就过份了，Claude已经把码农干失业了
 
+
+*****
+
+####  simonroam  
+##### 42#       发表于 2026-3-28 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69404410&amp;ptid=2277663" target="_blank">lowezack 发表于 2026-3-28 11:40</a>
+
+这就过份了，Claude已经把码农干失业了</blockquote>
+
+你想想看，一方面你感觉是要把码农裁了，一方面是claude的订阅用户和需求稳定增长
+
+而订阅Claude的主力军又是写代码的，那码农究竟是多了还是少了呢
+
