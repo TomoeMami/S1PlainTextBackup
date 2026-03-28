@@ -494,3 +494,18 @@ AGI L2.9999999
 一个外包工资顶二十个克劳德max账号，这要怎么算？</blockquote>
 以后外包会卷到自费买AI模型的，工资减订阅费是实际收入<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ZBY901026  
+##### 51#       发表于 2026-3-28 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69404644&amp;ptid=2277663" target="_blank">ad2015 发表于 2026-3-28 12:36</a>
+那，能不能“简单”地分析下建筑外观和地理位，不杀一百多无辜的孩子</blockquote>
+我又不是给以色列洗地 我说这事干的对了炸的好了吗？ 只是说没没这么简单罢了
+
+美国第一次是全方位饱和式攻击 同时打了几个区域 当时目标就是宁可错杀不可放过 因为是按照委内瑞拉那种斩首行动的思路制定的计划
+
+他回复说的像是高德导航附近搜索一样 说个地点就给附近相似目标全都炸了
+美军傻逼也不至于这样    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
