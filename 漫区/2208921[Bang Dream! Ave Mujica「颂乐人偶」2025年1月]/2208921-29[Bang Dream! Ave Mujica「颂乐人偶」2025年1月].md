@@ -412,3 +412,11 @@ Ave Mujica 部分</blockquote>
 
 我整个人脸上不知道该做什么表情<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yone0000  
+##### 41821#       发表于 2026-3-28 15:07
+
+又可以和大家一起赤石了，开心<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
