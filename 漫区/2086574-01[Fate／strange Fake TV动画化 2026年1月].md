@@ -142,3 +142,11 @@
 
 法小弟灵机一动搞出来的大活<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liu461  
+##### 1370#       发表于 2026-3-29 01:58
+
+所以多次提到炉子精非常狐狸是为了暗示上一集最后闪回的卫星是狐狸本人嘛 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
