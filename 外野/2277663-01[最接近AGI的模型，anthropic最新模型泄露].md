@@ -465,3 +465,32 @@ A÷又开始烂炒了<img src="https://static.stage1st.com/image/smiley/face2017
 不是简单的分析建 ...</blockquote>
 那，能不能“简单”地分析下建筑外观和地理位，不杀一百多无辜的孩子<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jet.Black  
+##### 48#       发表于 2026-3-28 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69404557&amp;ptid=2277663" target="_blank">simonroam 发表于 2026-3-28 12:15</a>
+我指的是用户人数也增加了，从2026开始直接翻了一倍
+
+也许这反映了程序员整体数量其实没有大变化，还有就 ...</blockquote>
+一个外包工资顶二十个克劳德max账号，这要怎么算？
+
+*****
+
+####  木谷高明  
+##### 49#       发表于 2026-3-28 13:00
+
+AGI L2.9999999
+
+
+*****
+
+####  木谷高明  
+##### 50#       发表于 2026-3-28 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69404726&amp;ptid=2277663" target="_blank">Jet.Black 发表于 2026-3-28 12:59</a>
+一个外包工资顶二十个克劳德max账号，这要怎么算？</blockquote>
+以后外包会卷到自费买AI模型的，工资减订阅费是实际收入<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
