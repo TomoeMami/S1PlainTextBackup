@@ -410,3 +410,18 @@ a➗差不多得了，天天搁这炒作
 而订阅Claude的主力 ...</blockquote>
 不冲突，现在第一步外包全裁了。剩下的用ai提效
 
+
+*****
+
+####  simonroam  
+##### 44#       发表于 2026-3-28 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69404496&amp;ptid=2277663" target="_blank">zypyong 发表于 2026-3-28 12:01</a>
+
+不冲突，现在第一步外包全裁了。剩下的用ai提效</blockquote>
+我指的是用户人数也增加了，从2026开始直接翻了一倍
+
+也许这反映了程序员整体数量其实没有大变化，还有就是什么AI取代了手绘和摄影
+
+但是你看数位板和影视器材销量还在上升就发现其实还有大把人在手绘和拍照
+
