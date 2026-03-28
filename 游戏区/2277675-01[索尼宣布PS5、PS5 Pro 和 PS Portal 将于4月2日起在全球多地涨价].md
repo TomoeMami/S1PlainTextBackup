@@ -674,3 +674,23 @@ PSP：$99.96，2011 年 Walmart 的 PSP-3000。
 索叩这就受不了啦，把彭博社望月崇当宝的索叩团建贴还在第一页呢
 索叩怎么和法西斯一样只准自己炸别人，自己挨炸就哭惨啊<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泰坦失足  
+##### 68#       发表于 2026-3-28 10:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69403893&amp;ptid=2277675" target="_blank">mcq_2 发表于 2026-3-28 09:23</a>
+
+卷硬件快到头了。那么贵的价格会促使市场转向更廉价的消遣娱乐方式。其实软件跟社交层面本来就没多少优势了 ...</blockquote>
+欧美日是真不玩中国等地区玩的重度手游. 不过也不是去玩主机游戏, 手机看擦边/OnlyFans/炒金融炒币/Polymarket竞猜. <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Lisylfn  
+##### 69#       发表于 2026-3-28 10:10
+
+前两个月4000出头没人买，现在涨价加百亿补贴被任豚玩坏了，只能尽孝了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
