@@ -509,3 +509,18 @@ AGI L2.9999999
 他回复说的像是高德导航附近搜索一样 说个地点就给附近相似目标全都炸了
 美军傻逼也不至于这样    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  ad2015  
+##### 52#       发表于 2026-3-28 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69404793&amp;ptid=2277663" target="_blank">ZBY901026 发表于 2026-3-28 13:14</a>
+
+我又不是给以色列洗地 我说这事干的对了炸的好了吗？ 只是说没没这么简单罢了
+
+美国第一次是全方位饱和式 ...</blockquote>
+又双叒叕沙雕“旧地图”是吧？<img src="https://static.stage1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
+
+说到这个惨案，海格塞斯支支吾吾搪塞，懂王满口胡言甩锅，都没你理直气壮啊。
+
