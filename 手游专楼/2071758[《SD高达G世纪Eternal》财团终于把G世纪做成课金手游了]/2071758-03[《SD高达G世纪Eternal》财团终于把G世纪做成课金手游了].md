@@ -413,3 +413,13 @@ EW出现漫画机体了那ult大概就是原型飞翼0或者天翼了吧
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  无念  
+##### 3818#       发表于 2026-3-28 16:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">你别说各种古早4+3红鸡配断腿盾真的是乐趣拉满
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
