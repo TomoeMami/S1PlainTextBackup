@@ -425,3 +425,28 @@ a➗差不多得了，天天搁这炒作
 
 但是你看数位板和影视器材销量还在上升就发现其实还有大把人在手绘和拍照
 
+
+*****
+
+####  Azcarlo  
+##### 45#       发表于 2026-3-28 12:21
+
+A÷又开始烂炒了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  黑夜中的冥想  
+##### 46#       发表于 2026-3-28 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69404268&amp;ptid=2277663" target="_blank">ZBY901026 发表于 2026-3-28 11:04</a>
+
+炸学校是因为那里以前是个军事基地
+
+十几年前废弃了 然后变成普通用地几年前开办了小学
+
+不是简单的分析建 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你真信啊，上一次没有人工智能的时候你猜他们怎么说。
+
