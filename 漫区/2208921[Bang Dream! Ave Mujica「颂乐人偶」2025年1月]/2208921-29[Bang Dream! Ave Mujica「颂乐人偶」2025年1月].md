@@ -420,3 +420,11 @@ Ave Mujica 部分</blockquote>
 
 又可以和大家一起赤石了，开心<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 41822#       发表于 2026-3-28 17:43
+
+我估摸着十本在鸡玩多重人格玩多了只给黑暗留了一集不够爽 续作就要狠狠玩他的黑暗小姨了捏
+
