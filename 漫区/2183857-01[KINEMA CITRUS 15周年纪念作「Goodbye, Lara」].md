@@ -901,3 +901,78 @@ PV1：[https://youtu.be/c4-6PwVRRj8](https://youtu.be/c4-6PwVRRj8)
 製作：「さよならララ」製作委員会
 <img src="https://p.sda1.dev/31/1d56b2c61f45139bd42eec4dbdcb8825/HEdzjmXacAA2uWR.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 63#         楼主| 发表于 2026-3-28 15:17
+
+第1話先行映像：[https://youtu.be/n9yOsxU9V_Y](https://youtu.be/n9yOsxU9V_Y)
+
+2026年7月より放送
+
+スタッフ
+
+原作：キネマシトラス
+
+監督：小出卓史
+
+シリーズ構成：川原杏奈
+
+キャラクターデザイン：谷紫織
+
+美術監督：藤野真里（studio Pablo）
+
+色彩設計：山下宮緒・相澤里佳　
+
+撮影監督：出水田和人（T2studio）
+
+編集：黒澤雅之
+
+グラフィックデザイン：濱 祐斗・山口真生
+
+深海イメージ：MON
+
+ウォーターアーティスト：吉邉尚希　
+
+音響監督：山田陽
+
+音楽：yuma yamaguchi 
+
+音楽制作：KADOKAWA
+
+シニアプロデューサー：小笠原宗紀
+
+チームプロデューサー：石川祥気
+
+クリエイティブプロデューサー：森山菜月
+
+アニメーション制作：キネマシトラス
+
+製作：「さよならララ」製作委員会
+
+キャスト
+
+ララ：菱川花菜
+
+大津茉里：川石奈奈
+
+グレイス：深見梨加
+
+ルカ：村瀬歩
+<img src="https://p.sda1.dev/31/6e3aec374ab7767a68af02ccb9e74c6b/1000162776.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2037755328859873374](https://x.com/i/status/2037755328859873374)
+<img src="https://p.sda1.dev/31/4a40babdebc39d91fb76a112aa2096d8/1000162778.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/141530d20b1688bf7fc0c0a609fd0113/1000162779.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zzhh0131  
+##### 64#       发表于 2026-3-28 15:23
+
+有第一话现行放映会，就不搬了，另外比较搞的是滋贺的先行放映在7月1日，最晚的一天，有点搞。
+
+第一话的2分半先行映像也有了，可自行搜索，质量符合预期。
+
