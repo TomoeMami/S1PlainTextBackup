@@ -584,3 +584,14 @@ PS4 Pro (1TB): $349.99</blockquote>
 
 我看pdd pro卖5999，可以入吗？
 
+
+*****
+
+####  sswhxj  
+##### 61#       发表于 2026-3-28 09:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69403788&amp;ptid=2277675" target="_blank">缺德猫 发表于 2026-3-28 08:46</a>
+
+我看pdd pro卖5999，可以入吗？</blockquote>
+前几个月才4999或者更低
+
