@@ -150,3 +150,11 @@
 
 所以多次提到炉子精非常狐狸是为了暗示上一集最后闪回的卫星是狐狸本人嘛 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fatzhi  
+##### 1371#       发表于 2026-3-29 07:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虽然很多莫名其妙的人，不知为何露了个脸。但是只要我不深究，就是一场好的爆米花和美少女剧集！
+
