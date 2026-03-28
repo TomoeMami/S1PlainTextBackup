@@ -604,3 +604,11 @@ neurips更新公告</blockquote>
 
 念圣经的白人男性没有创造过任何文明，他们的一切都是剽窃自中国人、信仰其他宗教之人士、其他有色人种、性少数人士和女人的，最后老白男出来领个奖而已。他们刚刚不小心让自己没有东西可剽窃了，遂连称误会。
 
+
+*****
+
+####  onezeron  
+##### 57#       发表于 2026-3-28 09:30
+
+前据而后恭，思之令人发笑（老祖宗的话真是万用万灵呀<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">）
+
