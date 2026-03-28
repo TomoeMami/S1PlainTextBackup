@@ -398,3 +398,15 @@ a➗差不多得了，天天搁这炒作
 
 而订阅Claude的主力军又是写代码的，那码农究竟是多了还是少了呢
 
+
+*****
+
+####  zypyong  
+##### 43#         楼主| 发表于 2026-3-28 12:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69404462&amp;ptid=2277663" target="_blank">simonroam 发表于 2026-3-28 11:54</a>
+你想想看，一方面你感觉是要把码农裁了，一方面是claude的订阅用户和需求稳定增长
+
+而订阅Claude的主力 ...</blockquote>
+不冲突，现在第一步外包全裁了。剩下的用ai提效
+
