@@ -3144,3 +3144,13 @@ gemini3.1pro的翻译质量比gpt5.4t好多了，gpt5.4t会莫名其妙的压缩
 
 五人瓦
 
+
+*****
+
+####  格林卡罗尔  
+##### 20395#       发表于 2026-3-28 09:33
+
+居然和那两个lol教练一起被拐去打瓦了
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

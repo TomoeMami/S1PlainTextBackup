@@ -1178,3 +1178,28 @@ https://ngabbs.com ...</blockquote>
 他们的"拆书"要求,其实是 跨啦一 ...</blockquote>
 问题在于这就是很多人对1m上下文的理解，你看上面有些人的发言就懂了
 
+
+*****
+
+####  andychen  
+##### 108#       发表于 2026-3-28 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69400061&amp;ptid=2275806" target="_blank">astkaasa 发表于 2026-3-27 13:13</a>
+来了来了</blockquote>
+这条消息本身也是一周前的了
+deepseek相对其他实验室更偏重研究一些，我觉得他们在训练技术上取得显著突破前不会发新模型
+
+
+*****
+
+####  秦南心  
+##### 109#       发表于 2026-3-28 09:32
+
+ 本帖最后由 秦南心 于 2026-3-28 09:34 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69403879&amp;ptid=2275806" target="_blank">沙发果冻 发表于 2026-3-28 09:18</a>
+
+问题在于这就是很多人对1m上下文的理解，你看上面有些人的发言就懂了</blockquote>
+就是nb啊，我把模拟长生路这本书拆成5份，每份上下文下面问解谜流程、问角色关系、问地图变迁、问主角成长过程、问境界划分等等，对于这种不讲人物交互关系纯讲升级和世界观的书，拆书完全够我“看完”这本书了
+
+这nga帖子全文也没讲ds v4 lite什么表现，根本就不懂装懂嘛<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
