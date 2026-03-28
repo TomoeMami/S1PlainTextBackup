@@ -450,3 +450,18 @@ A÷又开始烂炒了<img src="https://static.stage1st.com/image/smiley/face2017
 不是简单的分析建 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你真信啊，上一次没有人工智能的时候你猜他们怎么说。
 
+
+*****
+
+####  ad2015  
+##### 47#       发表于 2026-3-28 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69404268&amp;ptid=2277663" target="_blank">ZBY901026 发表于 2026-3-28 11:04</a>
+
+炸学校是因为那里以前是个军事基地
+
+十几年前废弃了 然后变成普通用地几年前开办了小学
+
+不是简单的分析建 ...</blockquote>
+那，能不能“简单”地分析下建筑外观和地理位，不杀一百多无辜的孩子<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
