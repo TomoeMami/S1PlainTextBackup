@@ -1203,3 +1203,20 @@ deepseek相对其他实验室更偏重研究一些，我觉得他们在训练技
 
 这nga帖子全文也没讲ds v4 lite什么表现，根本就不懂装懂嘛<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sellboy  
+##### 110#       发表于 2026-3-28 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69403622&amp;ptid=2275806" target="_blank">沙发果冻 发表于 2026-3-28 07:12</a>
+
+你们真以为1m上下文等于理解上下文的内容啊，NGA这个讲得挺好的，建议看下是怎么工作的
+
+https://ngabbs.com ...</blockquote>
+有不同的实现办法。
+
+Deepseek 在v3.2上用了DSA但没有提供更长的上下文长度只是对输入token降价，GLM5使用该技术实现了1M上下文。
+
+主流方法是DCA。
+
