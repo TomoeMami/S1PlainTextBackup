@@ -388,3 +388,27 @@ Ave Mujica 部分</blockquote>
 
 色taki在第三季中会有非常可爱的表现。
 
+
+*****
+
+####  MagicGiraffe  
+##### 41819#       发表于 2026-3-28 14:52
+
+我想看krkrdkdk一点的…<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 41820#       发表于 2026-3-28 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69405077&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2026-3-28 14:19</a>
+
+你能从全力柿本的过家家黑暗中幸存吗
+
+一制作进度：续编的配音工作已经正式启动。</blockquote>
+故事是「超越深渊的黑暗/更加黑暗的深渊」，整体
+
+风格会比前作更加黑暗沉重。
+
+我整个人脸上不知道该做什么表情<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
