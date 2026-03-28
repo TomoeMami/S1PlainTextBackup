@@ -1145,3 +1145,24 @@ D老师写文是真的顶，前前后后国内的几家都试过了，就D老师
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">你们真以为1m上下文等于理解上下文的内容啊，NGA这个讲得挺好的，建议看下是怎么工作的
 https://ngabbs.com/read.php?tid=46408344
 
+
+*****
+
+####  phorcys02  
+##### 106#       发表于 2026-3-28 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69403622&amp;ptid=2275806" target="_blank">沙发果冻 发表于 2026-3-28 07:12</a>
+
+你们真以为1m上下文等于理解上下文的内容啊，NGA这个讲得挺好的，建议看下是怎么工作的
+
+https://ngabbs.com ...</blockquote>
+从编程的角度来看, 写小说的人对于 1M上下文的理解和使用是有点离谱的
+
+他们的"拆书"要求,其实是 跨啦一下丢给 llm 一本 两百万字的书,在 1-2次提示内,就要完全总结所有细节,还不能错 
+
+这就相当于10-20w行的一个项目,丢给llm,要求一次性静态分析出所有code-flow... 数据结构生命期,还要求不错.
+
+想太多了.
+
+也不符合llm的用法
+

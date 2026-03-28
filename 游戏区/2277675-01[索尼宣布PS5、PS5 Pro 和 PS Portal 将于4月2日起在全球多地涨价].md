@@ -595,3 +595,33 @@ PS4 Pro (1TB): $349.99</blockquote>
 我看pdd pro卖5999，可以入吗？</blockquote>
 前几个月才4999或者更低
 
+
+*****
+
+####  椎名mahuyo  
+##### 62#       发表于 2026-3-28 09:09
+
+<img src="https://img.stage1st.com/forum/202603/28/090636ihvhl8uqhrsrzvah.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (90.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-28 09:06 上传
+
+小丑啊小丑
+
+顺便1提5999是PRO刚出来的价格 你用5000就算现在硬件偏贵也能配5060主机了，配合DLSS跟PRO体验差不多，软件还便宜点
+
+*****
+
+####  woaimiyabi  
+##### 63#       发表于 2026-3-28 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69402551&amp;ptid=2277675" target="_blank">名字已被吃 发表于 2026-3-27 21:18</a>
+
+笑死，没看到谁在转移矛盾，只看到团建
+
+索索这第一个跳出来喊涨价是嫌卖太好了还是卖不好破罐子破摔</blockquote>
+就这几个回复就算团建了？要不你去看看外面那个彭博社任天堂ns2减产的帖子， 那才叫团建，索粉平时看似不活跃，一旦有任天堂不是正面的相关新闻 就一股全涌进去了 团建人数几十个都是很常见的。
+
