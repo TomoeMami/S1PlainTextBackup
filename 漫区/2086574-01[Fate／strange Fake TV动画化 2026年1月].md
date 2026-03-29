@@ -382,3 +382,24 @@ Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
 
 —— 来自 Xiaomi 24072PX77C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 1392#       发表于 2026-3-29 19:02
+
+<blockquote>zakki 发表于 2026-3-29 17:37
+我倒是没觉得fsf做了三年，但对第二季的播出时间感到担忧，之前fate动画分割都没间隔太久，fate这种杯战 ...</blockquote>
+现在不是得看最后一卷出不出的来吗？型月的作品总是会步入难产的症状，感觉是物以类聚吧。
+
+*****
+
+####  御坂MKII  
+##### 1393#       发表于 2026-3-29 19:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69408164&amp;ptid=2086574" target="_blank">朵雅空咖 发表于 2026-3-29 09:16</a>
+如果真祖是这么牛逼的存在的话，那么是不是月姬里面那群人属于月球的战力的战力巅峰？ ...</blockquote>
+虽然菌类已经弃疗把月姬和 fate 的世界线分家了。不过月姬 r 为了适应 fgo 的战力膨胀，公主和学姐都获得了极大加强，公主动用星之权能确实能整点儿大活
+
+—— 来自 Xiaomi 24072PX77C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
