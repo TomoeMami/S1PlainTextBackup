@@ -184,3 +184,11 @@
 
 不过橘前辈这能力太BUG了啊，要下下周才能看到秩序大王怎么抽陀螺了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  金星  
+##### 1065#       发表于 2026-3-29 15:04
+
+一刻也没有为灾厄大王的败北哀悼，立刻赶往战场的是……！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
