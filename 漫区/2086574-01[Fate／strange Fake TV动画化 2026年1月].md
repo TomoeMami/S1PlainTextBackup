@@ -195,3 +195,16 @@
 虽然很多莫名其妙的人，不知为何露了个脸。但是只要我不深究，就是一场好的爆米花和美少女剧集！ ...</blockquote>
 成田还是太爱蹭了，关键有些蹭的还是关键剧情动画还没法删，就比如这集的黑皮吸血鬼和上集的蛟，在剧本上就算把他俩删了也不会有任何影响<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1376#       发表于 2026-3-29 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69408164&amp;ptid=2086574" target="_blank">朵雅空咖 发表于 2026-3-29 09:16</a>
+
+如果真祖是这么牛逼的存在的话，那么是不是月姬里面那群人属于月球的战力的战力巅峰？ ...</blockquote>
+旧设两边还没分家时，月球各作的战力比对是空境月姬的高端战力（式姐青子二十七祖这些）来fate是平宝从者（蘑菇举例是死翔大狗和风王呆）水准，被fate系压一头吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在的话fate系因为FGO表现大涨好像月姬系也占不了什么便宜（
+
