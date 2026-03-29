@@ -247,3 +247,13 @@
 
 合着成田还是看了动画还要改10卷啊，那第二季得啥时候才能出了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  性急的蜗牛  
+##### 1381#       发表于 2026-3-29 11:30
+
+看完三王会谈后还能坚持给呆毛辩护的理查那是真·亚瑟王全肯定厨了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后咏唱那么长的一剑都没砍出来敌人自杀了…………成田你是懂寸止的
+
