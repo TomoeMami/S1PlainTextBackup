@@ -504,3 +504,11 @@ Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  碎月  
+##### 1403#       发表于 2026-3-29 23:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">法尔迪乌斯啥情况，老去招惹时钟塔，卧底的时候难道没听说过埃尔梅罗教室，不知道弗拉特什么背景吗
+
