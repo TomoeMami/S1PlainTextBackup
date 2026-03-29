@@ -109,3 +109,13 @@ OMG，开始领悟环指的艺术了。
 
 各位好啊，刚刚准备入坑结果在B站搜了一下，发现有视频警告说使用了汉化工具会被封号啊。现在到底怎么入坑比较安全啊，手机上的话加速器那种靠谱吗?
 
+
+*****
+
+####  imba419  
+##### 1292#       发表于 2026-3-29 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69410043&amp;ptid=2120922" target="_blank">厨具战士mk2 发表于 2026-3-29 17:04</a>
+各位好啊，刚刚准备入坑结果在B站搜了一下，发现有视频警告说使用了汉化工具会被封号啊。现在到底怎么入坑 ...</blockquote>
+我在平板上用的OurPlay 够用
+
