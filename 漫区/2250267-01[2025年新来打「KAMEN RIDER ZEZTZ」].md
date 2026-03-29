@@ -212,3 +212,15 @@
 
 —— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  黄泉川此方  
+##### 1068#       发表于 2026-3-29 16:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">眼看手下就要全体跳反，无能的牢零
+
+琴酒因为酒厂内鬼太多成了搞笑角色
+
+ZERO本来是个搞笑角色，现在我看好他是被夺舍了
+
