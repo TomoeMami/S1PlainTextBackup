@@ -346,3 +346,14 @@ Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
 不要真把前期制作的时间当中期然后想着fsf做了三年<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/31/70a8f0b97250ed6fef6128d3a59c7aa3/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yugao  
+##### 1389#       发表于 2026-3-29 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69408164&amp;ptid=2086574" target="_blank">朵雅空咖 发表于 2026-3-29 09:16</a>
+
+如果真祖是这么牛逼的存在的话，那么是不是月姬里面那群人属于月球的战力的战力巅峰？ ...</blockquote>
+真祖你可以简单理解为盖亚一侧的英灵
+
