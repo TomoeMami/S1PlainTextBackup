@@ -403,3 +403,14 @@ Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
 
 —— 来自 Xiaomi 24072PX77C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  pokemon最爱  
+##### 1394#       发表于 2026-3-29 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69410146&amp;ptid=2086574" target="_blank">Yugao 发表于 2026-3-29 17:32</a>
+
+真祖你可以简单理解为盖亚一侧的英灵</blockquote>
+说起这个，隐约记得很多年前我看到的设定里英灵座是盖亚侧的玩意，阿赖耶侧的是守护者，但是现在好像英灵座也是归阿赖耶管了？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
