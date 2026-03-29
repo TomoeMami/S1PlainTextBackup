@@ -485,3 +485,22 @@ Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
 
 要是放的是五战的录像，理查看到他的偶像跟红毛高中生补魔，会不会信仰崩溃啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  发财就收  
+##### 1401#       发表于 2026-3-29 22:59
+
+这横飞姬感觉就是个人形摄像机，可以把看到的东西以幻术方式放给他人看，还能剪辑画面那种
+
+*****
+
+####  KDConan  
+##### 1402#       发表于 2026-3-29 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69411224&amp;ptid=2086574" target="_blank">evangelina 发表于 2026-3-29 22:38</a>
+要是放的是五战的录像，理查看到他的偶像跟红毛高中生补魔，会不会信仰崩溃啊 ...</blockquote>
+那不得先收图<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
