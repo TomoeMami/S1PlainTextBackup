@@ -990,3 +990,11 @@ PV1：[https://youtu.be/c4-6PwVRRj8](https://youtu.be/c4-6PwVRRj8)
 
 搞的好复杂。而且印象里这是kc的片里第一次看到チームプロデューサー和クリエイティブプロデューサー的职务
 
+
+*****
+
+####  很久就在那边l  
+##### 66#       发表于 2026-3-29 11:04
+
+已经要把豚哥吓跑了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过我感觉后面大概率有反套路
+
