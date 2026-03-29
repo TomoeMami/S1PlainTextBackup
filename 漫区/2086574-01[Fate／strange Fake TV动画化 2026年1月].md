@@ -537,3 +537,14 @@ Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  洛克萨斯  
+##### 1406#       发表于 2026-3-30 00:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69411345&amp;ptid=2086574" target="_blank">碎月 发表于 2026-3-29 23:08</a>
+
+法尔迪乌斯啥情况，老去招惹时钟塔，卧底的时候难道没听说过埃尔梅罗教室，不知道弗拉特什么背景吗 ...</blockquote>
+弗拉特他家的大活除了宝石翁和金融魔王这些老东西，没啥人知道<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
