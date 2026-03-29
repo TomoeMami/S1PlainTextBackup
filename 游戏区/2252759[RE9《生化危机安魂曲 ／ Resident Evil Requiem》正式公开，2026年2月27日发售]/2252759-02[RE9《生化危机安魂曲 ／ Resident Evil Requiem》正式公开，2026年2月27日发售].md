@@ -7546,3 +7546,16 @@ LEON就麻煩給累積金錢保留，本身獎勵中就有記錄LEON累積賺了
 
 净水厂那里我要一枪头一枪身体才能打出硬直，全打身体要三枪。ps5手柄瞄准手感太差了，再加上癫狂女孩应该是有移速加成，空枪一次基本就被女孩抓了。
 
+
+*****
+
+####  蒋公卖萌  
+##### 2135#       发表于 2026-3-29 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69410322&amp;ptid=2252759" target="_blank">mai6696 发表于 2026-3-29 18:12</a>
+
+热知识：安魂可以一串三。
+
+冷知识：那四个丧尸在布帘子那里就算变异，只要抱着艾米莉冲进去，它们就会消失 ...</blockquote>
+我说的就是“守护艾米丽”阶段遇到的那四只丧尸啊，前面那四只丧尸我也知道可以冲过去，而且我的两发安魂子弹全去打两只唱歌丧尸了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
