@@ -37,3 +37,11 @@
 
 卡罗尔这个概念没怎么表现好，整部都在奇怪的地方很可惜
 
+
+*****
+
+####  wilkyway  
+##### 314#       发表于 2026-3-30 04:36
+
+打完比安打螺旋王 然后揪着英格拉姆上宇宙手撕stmc 就是机战就是机战<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
