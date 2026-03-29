@@ -192,3 +192,13 @@
 
 一刻也没有为灾厄大王的败北哀悼，立刻赶往战场的是……！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  iceddd  
+##### 1066#       发表于 2026-3-29 15:09
+
+橘前辈这角色是真的雷霆啊<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">一整个精神病
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
