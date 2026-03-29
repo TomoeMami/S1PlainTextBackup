@@ -357,3 +357,16 @@ Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
 如果真祖是这么牛逼的存在的话，那么是不是月姬里面那群人属于月球的战力的战力巅峰？ ...</blockquote>
 真祖你可以简单理解为盖亚一侧的英灵
 
+
+*****
+
+####  zakki  
+##### 1390#       发表于 2026-3-29 17:37
+
+ 本帖最后由 zakki 于 2026-3-29 17:38 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69410087&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-3-29 17:16</a>
+不至于.......成田还是有提前通知第10卷那点东西给这两兄弟监督的
+2月就知道分割第二季是明年的事的消息 ...</blockquote>
+我倒是没觉得fsf做了三年，但对第二季的播出时间感到担忧，之前fate动画分割都没间隔太久，fate这种杯战的模式，隔的越久怕是效果越差。
+总之这个项目是真的一波三折啊，看来你月也就配得上这个待遇了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
