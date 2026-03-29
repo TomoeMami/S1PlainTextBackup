@@ -18,3 +18,14 @@
 
 歌有人统计好了 不算上各种版本翻唱重新混音有44首 这个记录以后很难超过了
 
+
+*****
+
+####  lydia5989  
+##### 312#       发表于 2026-3-29 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69408159&amp;ptid=2187541" target="_blank">堆雪若叶 发表于 2026-3-29 09:15</a>
+
+结局潦草感有点强。设定最终boss是现象结果完全没驾驭住，体感就是一直在清杂，对抗卡罗尔也没啥来回献祭融 ...</blockquote>
+算平稳落地吧，之前咬死了就是个自然现象估计也是想好了怎么擦屁股
+
