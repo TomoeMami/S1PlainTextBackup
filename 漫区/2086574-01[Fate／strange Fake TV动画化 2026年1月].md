@@ -216,3 +216,18 @@
 
 原来fsf连圣杯问答都和原作不一样，到底有什么是和fate接轨的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  这次是十块钱  
+##### 1378#       发表于 2026-3-29 10:40
+
+这一集梗太多了，边看边笑
+什么被叔叔抛弃的蕾忍 be like
+什么下线的金皮卡助人为乐
+什么来点胃药结果整个大活
+什么当着主角面说自己邪恶计划
+什么叫应该给他看士郎补魔片段？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
