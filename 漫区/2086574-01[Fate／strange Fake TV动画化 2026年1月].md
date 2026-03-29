@@ -548,3 +548,11 @@ Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
 法尔迪乌斯啥情况，老去招惹时钟塔，卧底的时候难道没听说过埃尔梅罗教室，不知道弗拉特什么背景吗 ...</blockquote>
 弗拉特他家的大活除了宝石翁和金融魔王这些老东西，没啥人知道<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hosilly  
+##### 1407#       发表于 2026-3-30 01:28
+
+有点难绷，杰克太虚弱了？魔术师御主这么简单就被偷的吗？F2D54为啥不顺便把绫香的人头也收了？
+
