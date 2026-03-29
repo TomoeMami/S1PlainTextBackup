@@ -7608,3 +7608,13 @@ GRACE編其實不太需要幫她用獎勵補強
 
 癫狂难度下白皮僵尸的头是铁做的吗？格蕾丝手枪4枪头打不出体术硬直，反倒是空瓶扔中就出硬直。
 
+
+*****
+
+####  红魔馆的糖  
+##### 2139#       发表于 2026-3-29 22:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69410891&amp;ptid=2252759" target="_blank">nagitoY 发表于 2026-3-29 20:57</a>
+癫狂难度下白皮僵尸的头是铁做的吗？格蕾丝手枪4枪头打不出体术硬直，反倒是空瓶扔中就出硬直。 ...</blockquote>
+格蕾丝打腿3枪稳定趔趄，6枪稳定硬直
+
