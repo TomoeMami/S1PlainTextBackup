@@ -566,3 +566,11 @@ Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Yugao  
+##### 1409#       发表于 2026-3-30 07:12
+
+动画的蕾忍宗圣女还是太漂亮了，我原谅它了
+
