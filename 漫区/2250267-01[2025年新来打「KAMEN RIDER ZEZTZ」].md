@@ -116,3 +116,18 @@
 
 最终BOSS是3号的话，一想起OP的镜头就蚌埠住了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 1058#       发表于 2026-3-29 13:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">nox名字那段太搞笑了，为人师表被学生戳穿蚌埠住了
+
+*****
+
+####  風卷豹  
+##### 1059#       发表于 2026-3-29 13:07
+
+谁是最终boss得看索姆尼亚到底是啥
+
