@@ -369,3 +369,11 @@ DIGIMON BEATBREAK ＃25
 
 祖宗之法
 
+
+*****
+
+####  zing223  
+##### 499#       发表于 2026-3-29 16:24
+
+不过如果要斗蛐蛐的话，四天王的level是不是也就完全体，逼急了用点特殊手段上究极体的水平<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">tomorou一路开挂确实是有点战力膨胀，还是说后面其实也没那么多集要演了
+
