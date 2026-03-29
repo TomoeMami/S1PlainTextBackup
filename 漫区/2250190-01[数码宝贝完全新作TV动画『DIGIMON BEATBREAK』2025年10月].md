@@ -305,3 +305,43 @@ yysy
 
 这集没有上一集疯，信息密度也有点低<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">不过新完全体还是蛮好看的
 
+
+*****
+
+####  TOYSTORY  
+##### 496#       发表于 2026-3-29 14:55
+
+ 本帖最后由 TOYSTORY 于 2026-3-29 14:59 编辑 
+
+<img src="https://img.stage1st.com/forum/202603/29/145538qodlk889ku6phu7l.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (164.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-29 14:55 上传
+
+DIGIMON BEATBREAK ＃25
+
+アジトへの帰り、豪華客船でつかの間の休暇を過ごすトモロウたちは、人気ショーマンの半田とスターモンに出会う。
+
+下话估计是纯日常回，等到再往后2话春臣、瞳妹回归估计才有些信息量了
+
+<img src="https://img.stage1st.com/forum/202603/29/145916p8dewlfke5yzli1l.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (150.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-29 14:59 上传
+
+<img src="https://img.stage1st.com/forum/202603/29/145917cobrp338pqxpy1rx.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (81.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-29 14:59 上传
+
+话说钉宫、玲奈的表情有点涩啊<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
