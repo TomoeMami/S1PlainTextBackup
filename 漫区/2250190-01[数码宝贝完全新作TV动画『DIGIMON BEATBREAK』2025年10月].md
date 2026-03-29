@@ -297,3 +297,11 @@ yysy
 
 我还以为是不同分支的成熟期，但是这个好奇怪，从成长期直接进化成完全体，还没说超进化
 
+
+*****
+
+####  zing223  
+##### 495#       发表于 2026-3-29 14:44
+
+这集没有上一集疯，信息密度也有点低<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">不过新完全体还是蛮好看的
+
