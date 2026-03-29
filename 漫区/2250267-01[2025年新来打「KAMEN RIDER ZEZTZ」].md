@@ -174,3 +174,13 @@
 
 牢诺被迫害一整集，疯狂吃瘪笑死
 
+
+*****
+
+####  蔺无双  
+##### 1064#       发表于 2026-3-29 14:34
+
+灾厄大人这次是真的很体面了，1v2加上达成目标后力竭解除变身
+
+不过橘前辈这能力太BUG了啊，要下下周才能看到秩序大王怎么抽陀螺了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
