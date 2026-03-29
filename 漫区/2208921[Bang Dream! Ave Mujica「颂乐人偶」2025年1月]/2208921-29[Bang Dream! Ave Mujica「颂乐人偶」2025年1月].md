@@ -742,3 +742,26 @@ Ave Mujica 部分</blockquote>
 
        官方网站：[https://anime.bang-dream.com/mygo-avemujica/](https://anime.bang-dream.com/mygo-avemujica/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41832#       发表于 2026-3-29 16:35
+
+       <strong>【Sound ＆ Recording】佐佐木李子a.k.a Doloris讲述与Aver的关系</strong> <blockquote>       
+
+<img src="https://img.stage1st.com/forum/202603/29/163453rz707f8gvvrz30vt.jpg" referrerpolicy="no-referrer">
+
+<strong>20260105124254.jpg</strong> (383.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-29 16:34 上传
+
+|       <strong>Sound ＆ Recording 2026.02 P18-23 翻译|校对|润色 Gemini 3 pro、車</strong>|
+
+       バンドリ！のバンドAve Mujicaのドロリス（vo、g）を演じる歌手／声優で、『夢ノ結唱 AVER』（以下AVER）に歌唱を提供した佐々木李子。自身のボーカルがAIベースの歌声合成ソフトSynthesizer V 2用の歌声データベースとなり、流布していくことに何を思うのか聞いてみよう。ところで、トップ画像はお楽しみいただけただろうか？ドロリスの衣装を着た佐々木を天井から真俯瞰（まふかん）で撮り、撮影したそばから写真をパソコンに移してレイアウトに配置し、AVERのキャラクター・イラストとのバランスを見る……という試行錯誤を重ねて制作した。撮影の直後に敢行したのが、このインタビューである。
+
+       饰演BanG Dream!乐队Ave Mujica中Doloris（主唱兼吉他手）的歌手兼声优，并为《梦之结唱 AVER》（以下简称AVER）提供歌唱音源的佐佐木李子。对于自己的歌声成为基于 AI 的歌声合成软件 Synthesizer V 2 的歌声数据库并广为流传这一点，她有何感想呢？话说回来，大家喜欢这次的封面吗？从天花板以正俯视的角度拍摄穿着Doloris服装的佐佐木，我们一边拍一边马上将照片传到电脑里并配置到排版中，观察与AVER角色插图的平衡协调度……这是经过这样反复试错才制作出来的。紧接着在拍摄结束后立刻进行的，就是此次的访谈。</blockquote>
+       [https://weibo.com/ttarticle/p/show?id=2309405281810174574653](https://weibo.com/ttarticle/p/show?id=2309405281810174574653)
+
