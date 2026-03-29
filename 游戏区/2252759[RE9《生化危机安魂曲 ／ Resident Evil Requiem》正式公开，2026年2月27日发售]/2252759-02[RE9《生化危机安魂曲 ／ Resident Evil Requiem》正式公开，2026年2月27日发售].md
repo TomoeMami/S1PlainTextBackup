@@ -7481,3 +7481,11 @@ LEON就麻煩給累積金錢保留，本身獎勵中就有記錄LEON累積賺了
 最低限度GRACE應該給合成配方保留，廢料 ...</blockquote>
 格蕾丝线放在那，多周目也就那样了。现在还是卡表赶紧把dlc放出来，然后素材足够等大佬们民间改版了
 
+
+*****
+
+####  P-link  
+##### 2129#       发表于 2026-3-29 16:00
+
+反正素材在那，DLC会不会搞个“浣熊市行动”<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+

@@ -345,3 +345,11 @@ DIGIMON BEATBREAK ＃25
 
 话说钉宫、玲奈的表情有点涩啊<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  himfsz  
+##### 497#       发表于 2026-3-29 15:58
+
+天才这回才做了点人做的事，话说直接用ds的台词是偷懒还是致敬自己
+
