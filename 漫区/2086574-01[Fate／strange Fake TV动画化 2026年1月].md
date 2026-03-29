@@ -450,3 +450,22 @@ Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
 路过，这格蕾怎么比二世动画年代难看很多？？这A1还是成田的奇葩审美观念吗？ ...</blockquote>
 这里单纯是路人待遇没细画，动画人设以森井画风为基础，连画女角色会有的眼睫毛多画点都没画<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakki  
+##### 1398#       发表于 2026-3-29 21:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69410519&amp;ptid=2086574" target="_blank">爱吃冻鳗的猫 发表于 2026-3-29 19:02</a>
+现在不是得看最后一卷出不出的来吗？型月的作品总是会步入难产的症状，感觉是物以类聚吧。 ...</blockquote>
+最后一卷夏天就出了，只不过不知道制作组是现在才开始做还是等最终卷出来后才开始做
+
+*****
+
+####  zakki  
+##### 1399#       发表于 2026-3-29 21:42
+
+第一季最后的关系图，弗拉特杰克黑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/31/979b8668d7bbd19601a0c42b0868a0ed/image.jpg" referrerpolicy="no-referrer">
+
