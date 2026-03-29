@@ -158,3 +158,14 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虽然很多莫名其妙的人，不知为何露了个脸。但是只要我不深究，就是一场好的爆米花和美少女剧集！
 
+
+*****
+
+####  刑部姬真可爱  
+##### 1372#       发表于 2026-3-29 08:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69407917&amp;ptid=2086574" target="_blank">fatzhi 发表于 2026-3-29 07:42</a>
+
+虽然很多莫名其妙的人，不知为何露了个脸。但是只要我不深究，就是一场好的爆米花和美少女剧集！ ...</blockquote>
+爆米花吗<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">全篇到处是寸止
+
