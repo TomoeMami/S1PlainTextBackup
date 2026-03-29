@@ -414,3 +414,27 @@ Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
 真祖你可以简单理解为盖亚一侧的英灵</blockquote>
 说起这个，隐约记得很多年前我看到的设定里英灵座是盖亚侧的玩意，阿赖耶侧的是守护者，但是现在好像英灵座也是归阿赖耶管了？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lawliet.L  
+##### 1395#       发表于 2026-3-29 19:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69408631&amp;ptid=2086574" target="_blank">性急的蜗牛 发表于 2026-3-29 11:30</a>
+
+看完三王会谈后还能坚持给呆毛辩护的理查那是真·亚瑟王全肯定厨了
+
+然后咏唱那么长的一剑都没砍出来敌人自 ...</blockquote>
+全肯定厨是理查他爸，甚至有传言：他爸一本正经地论证亚瑟王搞儿媳合情合理又合法<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 1396#       发表于 2026-3-29 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69332079&amp;ptid=2086574" target="_blank">岸浪白野 发表于 2026-3-14 23:56</a>
+
+彩蛋其实也尽量做的到位了，格蕾起码有找上田礼奈过来配句话，继续闪回麻婆幼闪画面，海神出现有人设和说句 ...</blockquote>
+路过，这格蕾怎么比二世动画年代难看很多？？这A1还是成田的奇葩审美观念吗？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
