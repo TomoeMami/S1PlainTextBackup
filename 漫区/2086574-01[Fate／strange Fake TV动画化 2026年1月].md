@@ -239,3 +239,11 @@
 
 不是这13集第一季就结束了还要再等多久啊<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakki  
+##### 1380#       发表于 2026-3-29 11:09
+
+合着成田还是看了动画还要改10卷啊，那第二季得啥时候才能出了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
