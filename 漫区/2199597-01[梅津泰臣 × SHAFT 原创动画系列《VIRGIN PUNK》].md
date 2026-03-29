@@ -1797,3 +1797,11 @@ dmhy有 只有字幕版的</blockquote>
 
 似乎没有大组做BDRIP了
 
+
+*****
+
+####  aptx8285144  
+##### 177#       发表于 2026-3-29 14:53
+
+喷了，开头死的那个人物血“直接写上不能让孩子们看”，你就算打点小马赛克之类也比这样遮住屏幕一样的操作好一万倍呀，等等，为什么后面那个女的拉着“院长”尸体过去又没和谐？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
