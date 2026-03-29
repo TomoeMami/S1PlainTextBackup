@@ -768,3 +768,15 @@ PS6我觉得机器1000欧，会员160欧一年，就差不多了
 
 他表示，如果索尼愿意补贴，他们可能会将价格定在 700 美元，但他不确定索尼是否会这样做，因为 Xbox 已经不再是直接竞争对手了。
 
+
+*****
+
+####  nukacolamania  
+##### 78#       发表于 2026-3-29 10:55
+
+【PS5新価格Pro-哔哩哔哩】 https://b23.tv/ZDxMyIK
+
+催更催更<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola moto g stylus 5G (2022), Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
