@@ -386,3 +386,11 @@ DIGIMON BEATBREAK ＃25
 竟然op君阵亡了 
 标准送队友 主角黑化 被打醒 开挂套路 山口还是忘不了ds
 
+
+*****
+
+####  天风绯炎  
+##### 501#       发表于 2026-3-29 22:58
+
+完全体进化的演出差口气啊<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，没有让我那种燃尽的爽感
+
