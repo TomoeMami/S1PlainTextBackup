@@ -257,3 +257,11 @@
 
 然后咏唱那么长的一剑都没砍出来敌人自杀了…………成田你是懂寸止的
 
+
+*****
+
+####  gs2-d2up  
+##### 1382#       发表于 2026-3-29 12:57
+
+补药带走弗拉特，补药带走弗拉特，不推荐弗拉特，推荐带走法尔迪乌斯<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
