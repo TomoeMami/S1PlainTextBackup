@@ -370,3 +370,15 @@ Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
 我倒是没觉得fsf做了三年，但对第二季的播出时间感到担忧，之前fate动画分割都没间隔太久，fate这种杯战的模式，隔的越久怕是效果越差。
 总之这个项目是真的一波三折啊，看来你月也就配得上这个待遇了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御坂MKII  
+##### 1391#       发表于 2026-3-29 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69408307&amp;ptid=2086574" target="_blank">格林卡罗尔 发表于 2026-3-29 10:02</a>
+原来fsf连圣杯问答都和原作不一样，到底有什么是和fate接轨的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">微妙不同.jpg
+
+—— 来自 Xiaomi 24072PX77C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
