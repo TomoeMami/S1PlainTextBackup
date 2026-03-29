@@ -556,3 +556,13 @@ Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
 
 有点难绷，杰克太虚弱了？魔术师御主这么简单就被偷的吗？F2D54为啥不顺便把绫香的人头也收了？
 
+
+*****
+
+####  7do  
+##### 1408#       发表于 2026-3-30 03:21
+
+不公屏放黄油 你好温柔啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
