@@ -394,3 +394,14 @@ DIGIMON BEATBREAK ＃25
 
 完全体进化的演出差口气啊<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，没有让我那种燃尽的爽感
 
+
+*****
+
+####  天光逸  
+##### 502#       发表于 2026-3-30 04:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69409891&amp;ptid=2250190" target="_blank">zing223 发表于 2026-3-29 16:24</a>
+
+不过如果要斗蛐蛐的话，四天王的level是不是也就完全体，逼急了用点特殊手段上究极体的水平tomorou一路开挂 ...</blockquote>
+游戏感觉理解是lv练得很高的完全体，但训练家等级不够还不足进化XD
+
