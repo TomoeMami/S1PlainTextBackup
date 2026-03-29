@@ -469,3 +469,19 @@ Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
 
 <img src="https://p.sda1.dev/31/979b8668d7bbd19601a0c42b0868a0ed/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  evangelina  
+##### 1400#       发表于 2026-3-29 22:38
+
+<img src="https://img.stage1st.com/forum/202603/29/223842fzkf1ak6fj19rd6f.jpg" referrerpolicy="no-referrer">
+
+<strong>2m5e7xeifir.jpg</strong> (356.73 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-29 22:38 上传
+
+要是放的是五战的录像，理查看到他的偶像跟红毛高中生补魔，会不会信仰崩溃啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
