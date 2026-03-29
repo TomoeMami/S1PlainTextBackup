@@ -257,3 +257,27 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  恋叶梦境  
+##### 491#       发表于 2026-3-29 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69408543&amp;ptid=2250190" target="_blank">InfiniteGyre 发表于 2026-3-29 11:06</a>
+
+怕不是又是完全体机械炮台究极体圣骑士哦
+
+—— 来自 鹅球 v3.5.99</blockquote>
+这已经是完全体了，改造型
+
+*****
+
+####  bbjajdd  
+##### 492#       发表于 2026-3-29 11:17
+
+yysy
+
+黑化火龙果已经可以揍飞原颚甲兽了
+
+如果不是时空，怕不是进化都不必要
+
