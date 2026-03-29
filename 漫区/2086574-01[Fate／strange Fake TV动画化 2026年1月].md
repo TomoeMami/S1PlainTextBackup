@@ -304,3 +304,27 @@ Boy是留了那两夫妻一条狗命？好像没断气
 
 2026-3-29 13:56 上传
 
+
+*****
+
+####  久井路路  
+##### 1386#       发表于 2026-3-29 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69409164&amp;ptid=2086574" target="_blank">爱吃冻鳗的猫 发表于 2026-3-29 13:44</a>
+Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
+西格玛觉得要是爹妈连命都没了椿可能会伤心，所以只是废了夫妻俩的魔术回路。
+
+对魔术师来说却比死还难受就是了（
+
+
+*****
+
+####  久井路路  
+##### 1387#       发表于 2026-3-29 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69409621&amp;ptid=2086574" target="_blank">久井路路 发表于 2026-3-29 15:20</a>
+西格玛觉得要是爹妈连命都没了椿可能会伤心，所以只是废了夫妻俩的魔术回路。
+
+对魔术师来说却比死还难受 ...</blockquote>
+啊不对，魔术刻印（
+
