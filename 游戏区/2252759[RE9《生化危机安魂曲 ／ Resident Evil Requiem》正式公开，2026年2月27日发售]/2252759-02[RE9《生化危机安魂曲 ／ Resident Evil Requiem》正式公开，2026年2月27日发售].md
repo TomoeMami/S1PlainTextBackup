@@ -7559,3 +7559,13 @@ LEON就麻煩給累積金錢保留，本身獎勵中就有記錄LEON累積賺了
 冷知识：那四个丧尸在布帘子那里就算变异，只要抱着艾米莉冲进去，它们就会消失 ...</blockquote>
 我说的就是“守护艾米丽”阶段遇到的那四只丧尸啊，前面那四只丧尸我也知道可以冲过去，而且我的两发安魂子弹全去打两只唱歌丧尸了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红魔馆的糖  
+##### 2136#       发表于 2026-3-29 19:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69410287&amp;ptid=2252759" target="_blank">蒋公卖萌 发表于 2026-3-29 18:05</a>
+感觉癫狂难度格蕾丝要是不买无限小刀根本没法打，我打到带艾米丽去解读盲文机关那，来了4个丧尸，最后一个 ...</blockquote>
+无限小刀很垃圾的，癫狂给安息之刃了用都用不完
+
