@@ -574,3 +574,13 @@ Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
 
 动画的蕾忍宗圣女还是太漂亮了，我原谅它了
 
+
+*****
+
+####  被子十三  
+##### 1410#       发表于 2026-3-30 07:22
+
+翻贴吧看到一万个幽戈的哈桑<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">意识到贴吧文盲率有多少了
+
+— from OnePlus CPH2583, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
