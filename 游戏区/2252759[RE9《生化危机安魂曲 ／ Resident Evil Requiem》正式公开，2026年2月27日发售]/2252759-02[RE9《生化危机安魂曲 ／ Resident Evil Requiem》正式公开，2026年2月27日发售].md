@@ -7507,3 +7507,42 @@ LEON就麻煩給累積金錢保留，本身獎勵中就有記錄LEON累積賺了
 
 感觉癫狂难度格蕾丝要是不买无限小刀根本没法打，我打到带艾米丽去解读盲文机关那，来了4个丧尸，最后一个还会变异，打的我是弹尽粮绝
 
+
+*****
+
+####  arbilest  
+##### 2132#       发表于 2026-3-29 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69409869&amp;ptid=2252759" target="_blank">nagitoY 发表于 2026-3-29 16:16</a>
+把禁药、禁采血的二周目休闲速通打了，比想象中的简单。参考了攻略的路线规划，自己走的时候很多意外，但是 ...</blockquote>
+有无限子弹只要稳定剂打满外加硬派新人挂件，癫狂难度女孩安魂两枪就会倒，根本没压力的啊。倒是李昂的火箭筒装弹太慢还有自伤，有时候会被摸到一下。
+
+
+*****
+
+####  mai6696  
+##### 2133#       发表于 2026-3-29 18:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69410287&amp;ptid=2252759" target="_blank">蒋公卖萌 发表于 2026-3-29 18:05</a>
+
+感觉癫狂难度格蕾丝要是不买无限小刀根本没法打，我打到带艾米丽去解读盲文机关那，来了4个丧尸，最后一个 ...</blockquote>
+热知识：安魂可以一串三。
+
+冷知识：那四个丧尸在布帘子那里就算变异，只要抱着艾米莉冲进去，它们就会消失。
+
+最后守护艾米莉那里也只有一只红头。
+
+所以最后这一段从第一次来到第二次抱着艾米莉来，只需要两发安魂。
+
+*****
+
+####  nagitoY  
+##### 2134#       发表于 2026-3-29 18:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69410311&amp;ptid=2252759" target="_blank">arbilest 发表于 2026-3-29 18:10</a>
+
+有无限子弹只要稳定剂打满外加硬派新人挂件，癫狂难度女孩安魂两枪就会倒，根本没压力的啊。倒是李昂的火 ...</blockquote>
+三周目癫狂我还是按照二周目休闲速通路线的经验来走的，一个稳定剂都没有<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+净水厂那里我要一枪头一枪身体才能打出硬直，全打身体要三枪。ps5手柄瞄准手感太差了，再加上癫狂女孩应该是有移速加成，空枪一次基本就被女孩抓了。
+
