@@ -438,3 +438,15 @@ Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
 彩蛋其实也尽量做的到位了，格蕾起码有找上田礼奈过来配句话，继续闪回麻婆幼闪画面，海神出现有人设和说句 ...</blockquote>
 路过，这格蕾怎么比二世动画年代难看很多？？这A1还是成田的奇葩审美观念吗？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 1397#       发表于 2026-3-29 20:13
+
+ 本帖最后由 岸浪白野 于 2026-3-29 20:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69410705&amp;ptid=2086574" target="_blank">aptx8285144 发表于 2026-3-29 19:54</a>
+
+路过，这格蕾怎么比二世动画年代难看很多？？这A1还是成田的奇葩审美观念吗？ ...</blockquote>
+这里单纯是路人待遇没细画，动画人设以森井画风为基础，连画女角色会有的眼睫毛多画点都没画<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
