@@ -328,3 +328,21 @@ Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
 对魔术师来说却比死还难受 ...</blockquote>
 啊不对，魔术刻印（
 
+
+*****
+
+####  岸浪白野  
+##### 1388#       发表于 2026-3-29 17:16
+
+ 本帖最后由 岸浪白野 于 2026-3-29 17:17 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69408554&amp;ptid=2086574" target="_blank">zakki 发表于 2026-3-29 11:09</a>
+合着成田还是看了动画还要改10卷啊，那第二季得啥时候才能出了</blockquote>
+不至于.......<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">成田还是有提前通知第10卷那点东西给这两兄弟监督的
+2月就知道分割第二季是明年的事的消息了
+如果说一遍这片的历程
+知道的消息是做22年底那时的特番其实对TV动画化没有想法，是后面临时决定启动的才开始前期制作设定考据沿用了部分资产但摄影啥的其实还是重新换过了，只是那个粗线条的效果保留了
+第1话要赶24年底特番上播就开始万策尽
+因为25年初时才进入中期制作，25年初说的动画25年内播出就是他们最早定的25年7月延到10月再延到26年1月
+不要真把前期制作的时间当中期然后想着fsf做了三年<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/70a8f0b97250ed6fef6128d3a59c7aa3/image.jpg" referrerpolicy="no-referrer">
+
