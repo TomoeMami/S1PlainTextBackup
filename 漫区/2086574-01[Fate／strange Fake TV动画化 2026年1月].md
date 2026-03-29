@@ -208,3 +208,11 @@
 
 现在的话fate系因为FGO表现大涨好像月姬系也占不了什么便宜（
 
+
+*****
+
+####  格林卡罗尔  
+##### 1377#       发表于 2026-3-29 10:02
+
+原来fsf连圣杯问答都和原作不一样，到底有什么是和fate接轨的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
