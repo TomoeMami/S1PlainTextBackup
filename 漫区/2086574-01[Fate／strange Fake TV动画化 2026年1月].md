@@ -629,3 +629,14 @@ FSF走的是类HF线展开的冰室天地线，首先就不会有这些补魔CG<
 就算看见了，呆毛王全肯定bot也只会欢喜于王终于找到了可以托付真心的恋人<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 而且讲道理，他打不过这个红毛高中生
 
+
+*****
+
+####  洛克萨斯  
+##### 1415#       发表于 2026-3-30 09:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69411690&amp;ptid=2086574" target="_blank">hosilly 发表于 2026-3-30 01:28</a>
+
+有点难绷，杰克太虚弱了？魔术师御主这么简单就被偷的吗？F2D54为啥不顺便把绫香的人头也收了？ ...</blockquote>
+杰克当时注意力在理查身上，然后被偷了
+
