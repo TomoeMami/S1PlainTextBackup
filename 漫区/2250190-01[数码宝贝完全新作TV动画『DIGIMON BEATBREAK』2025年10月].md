@@ -433,3 +433,11 @@ DIGIMON BEATBREAK ＃25
 
 2026-3-30 10:01 上传
 
+
+*****
+
+####  InfiniteGyre  
+##### 505#       发表于 2026-3-30 10:13
+
+感觉现在进化bank都不够帅了，为了减短时间而简化演出。小时候最喜欢的就是进化bank，但是长大了仔细想想那不就是兼用卡拖时间吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人长大了心态确实不一样
+
