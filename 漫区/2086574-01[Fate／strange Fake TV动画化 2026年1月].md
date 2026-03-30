@@ -661,3 +661,16 @@ FSF走的是类HF线展开的冰室天地线，首先就不会有这些补魔CG<
 法尔迪乌斯啥情况，老去招惹时钟塔，卧底的时候难道没听说过埃尔梅罗教室，不知道弗拉特什么背景吗 ...</blockquote>
 上次都扬了一个君王，一个学生算什么？<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  姬茧墨  
+##### 1418#       发表于 2026-3-30 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69408164&amp;ptid=2086574" target="_blank">朵雅空咖 发表于 2026-3-29 09:16</a>
+
+如果真祖是这么牛逼的存在的话，那么是不是月姬里面那群人属于月球的战力的战力巅峰？ ...</blockquote>
+真祖现在在月姬侧定位被压的非常严重（普通真祖不愿招惹八阶死徒），死徒这边反而是二十七祖的定位集体飞升。估计得是真祖王族才能对位普通祖
+
+这集登场的梵是最古三死徒之一（活了快4000年的老东西），在祖里也是特殊位格的存在
+
