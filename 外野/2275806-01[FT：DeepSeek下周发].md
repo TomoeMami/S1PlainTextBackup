@@ -1266,3 +1266,16 @@ nga那个帖子简直闹麻了<img src="https://static.stage1st.com/image/smiley
 
 玩rp的这些人都不睡觉的吗？一直刷到凌晨<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真红之闪电  
+##### 115#       发表于 2026-3-30 08:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69402603&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-3-27 21:30</a>
+不搞刘备不碰zz敏感话题就能在官网app上直接写
+所以相对的v4 lite现在nsfw写作力还是个未知数希望能有3.1 ...</blockquote>
+所以刘备该怎么搞
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

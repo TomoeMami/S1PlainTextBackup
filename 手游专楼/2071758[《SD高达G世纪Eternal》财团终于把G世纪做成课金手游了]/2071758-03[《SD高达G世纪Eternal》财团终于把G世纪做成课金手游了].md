@@ -473,3 +473,16 @@ EW出现漫画机体了那ult大概就是原型飞翼0或者天翼了吧
 
 可以囤体力了，2个新主线又要肝一阵子了
 
+
+*****
+
+####  电脑死机  
+##### 3822#       发表于 2026-3-30 08:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69386072&amp;ptid=2071758" target="_blank">arthes 发表于 2026-3-25 00:34</a>
+
+蛋的ULT我猜就是杨过能天使
+
+EW如果是单开一个主线篇章和开发树，那应该也会有个ULT？ ...</blockquote>
+盲猜猎兵权天使，或者当年那个隐藏boss版O高达，再不然雪崩Exia
+
