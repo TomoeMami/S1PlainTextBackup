@@ -1334,3 +1334,14 @@ nga那个帖子简直闹麻了<img src="https://static.stage1st.com/image/smiley
 
 刚刚试了一下，能用了
 
+
+*****
+
+####  飛霞精灵  
+##### 122#       发表于 2026-3-30 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69412344&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-3-30 09:30</a>
+
+刚刚试了一下，能用了</blockquote>
+能用但思考过程和输出结果混一块了，突出一个不是特别能用<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
