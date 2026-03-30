@@ -1364,3 +1364,49 @@ nga那个帖子简直闹麻了<img src="https://static.stage1st.com/image/smiley
 
 隐约感觉虽然炸了但变聪明了
 
+
+*****
+
+####  ccared  
+##### 125#       发表于 2026-3-30 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69411978&amp;ptid=2275806" target="_blank">流缨 发表于 2026-3-30 08:20</a>
+小红书半夜各种哀嚎
+
+玩rp的这些人都不睡觉的吗？一直刷到凌晨</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">哈基米把免费额度砍废+降智之后酒馆社区长期哀嚎遍野
+广大群众已经性压抑很久了，急需性价比模型
+
+*****
+
+####  冤枉呐  
+##### 126#       发表于 2026-3-30 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69411999&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-3-30 08:26</a>
+所以刘备该怎么搞
+
+—— 来自 S1Fun</blockquote>
+cherrystudio，设置好提示词，硅基流动的api还没有破不了的甲
+用知识库设定基础知识
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  冤枉呐  
+##### 127#       发表于 2026-3-30 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69412297&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-3-30 09:20</a>
+刘备用api在酒馆或者chatbox上写，相比较chatbox还是更推荐酒馆，毕竟整个用户生态比较成熟了 ...</blockquote>
+酒馆消耗token有点大，lorebook搞多了感觉十倍于cherrystudio
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  sellboy  
+##### 128#       发表于 2026-3-30 10:02
+
+我感觉今天吐字变慢了一点，而且输出的排版经常有bug。
+
