@@ -615,3 +615,17 @@ Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
 原作是准备一起收了，不过狮心王让背后灵给绫香上了个守护魔术，没狙掉。动画没有表现出来 ...</blockquote>
 不是，原作法小弟说觉得凌香很有趣，决定先放着看看
 
+
+*****
+
+####  pokemon最爱  
+##### 1414#       发表于 2026-3-30 08:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69411224&amp;ptid=2086574" target="_blank">evangelina 发表于 2026-3-29 22:38</a>
+
+要是放的是五战的录像，理查看到他的偶像跟红毛高中生补魔，会不会信仰崩溃啊 ...</blockquote>
+FSF走的是类HF线展开的冰室天地线，首先就不会有这些补魔CG<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+就算看见了，呆毛王全肯定bot也只会欢喜于王终于找到了可以托付真心的恋人<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+而且讲道理，他打不过这个红毛高中生
+
