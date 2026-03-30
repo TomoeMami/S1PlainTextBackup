@@ -7966,3 +7966,16 @@ so，bsaa进去了谁关的门
 
 对，进了警察局连手推车都搬动，桌面都不清理是吧<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡边加奈子  
+##### 2169#       发表于 2026-3-30 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69412763&amp;ptid=2252759" target="_blank">nagitoY 发表于 2026-3-30 10:30</a>
+
+感觉re9体量还是小了点。
+
+箱庭部分比较难设计？格蕾丝的疗养院、方舟部分都还可以，地下和净水厂比较无聊。 ...</blockquote>
+目前觉得体量小主要因为流程设计与4代的差异.实际上9代目前是官方有统计的初次通关平均时间最长的一代,目前统计的初次通关是接近17个钟头,当然这里也包括因为这代吸收了大量全新玩家拉长了平均时长.
+

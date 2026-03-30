@@ -1457,3 +1457,35 @@ app端正文怎么全被放在思维链里了
 后知后觉现在还这么多人用DS吗，我常年就是挂沉浸翻译和论文阅读插件，写垃圾材料用的是豆包，论文用gpt和g ...</blockquote>
 这家伙的API近乎裸奔，你让他干啥就干啥，毫无道德限制
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 134#       发表于 2026-3-30 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69412801&amp;ptid=2275806" target="_blank">洛拉斯 发表于 2026-3-30 10:35</a>
+
+文字处理为什么不用d老师，便宜好用啊</blockquote>
+我也就是apikey挂着，网页版很少用
+
+
+*****
+
+####  Rowen233  
+##### 135#       发表于 2026-3-30 11:11
+
+<blockquote>忧郁的杰哥 发表于 2026-3-27 16:37
+下一代还不出小参数的模型  本地没法配置啊
+
+祈祷别来个1T的V4   真没法部署了 ...</blockquote>
+本地部署就用qwen啊 从4b到90b都有
+
+*****
+
+####  Freewolf  
+##### 136#       发表于 2026-3-30 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69412768&amp;ptid=2275806" target="_blank">Lorraine_Kinney 发表于 2026-3-30 10:31</a>
+后知后觉现在还这么多人用DS吗，我常年就是挂沉浸翻译和论文阅读插件，写垃圾材料用的是豆包，论文用gpt和g ...</blockquote>
+ds的api价格相对于其他提供商约等于免费，智商够用，很适合给杂七杂八的地方用
+
