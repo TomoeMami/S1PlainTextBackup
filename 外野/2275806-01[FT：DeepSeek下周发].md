@@ -1314,3 +1314,15 @@ nga那个帖子简直闹麻了<img src="https://static.stage1st.com/image/smiley
 
 炸了怎么办，我也不知道
 
+
+*****
+
+####  羊寢  
+##### 120#       发表于 2026-3-30 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69411999&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-3-30 08:26</a>
+所以刘备该怎么搞
+
+—— 来自 S1Fun</blockquote>
+刘备用api在酒馆或者chatbox上写，相比较chatbox还是更推荐酒馆，毕竟整个用户生态比较成熟了
+
