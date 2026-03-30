@@ -283,3 +283,13 @@ ZERO本来是个搞笑角色，现在我看好他是被夺舍了
 妹妹也好柠檬也罢赶紧变身我是不是就能把这个三骑打成反骑了 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">橘前辈虽然看着是很反派，但是。。他实际目前对人类是0伤害，还没之前的诺克斯造成的危害大，看下周会不会伤害美浪吧
 
+
+*****
+
+####  UnhappyTails  
+##### 1075#       发表于 2026-3-30 17:58
+
+橘前辈居然50岁都不到，惊呆了
+
+当年拍橘前辈居然才28岁<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
