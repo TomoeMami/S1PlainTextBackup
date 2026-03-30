@@ -8244,3 +8244,18 @@ CHRIS編(如有)應該要解釋清楚，BSAA這時是否已經分裂但未去到
 
 集装箱里面的几头怎么进去的
 
+
+*****
+
+####  白昼梦DD  
+##### 2190#       发表于 2026-3-30 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69414637&amp;ptid=2252759" target="_blank">纯爱战士段正淳 发表于 2026-3-30 15:57</a>
+
+你要说集装箱
+
+我就要提新问题了
+
+停车场的货车里面有丧尸还勉强可以解释</blockquote>
+考虑到里昂线僵尸都是通天术刷出来的，大概是通天术通进集装箱了
+

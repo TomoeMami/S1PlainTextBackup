@@ -270,3 +270,16 @@ ZERO本来是个搞笑角色，现在我看好他是被夺舍了
 
 妹妹也好柠檬也罢赶紧变身我是不是就能把这个三骑打成反骑了
 
+
+*****
+
+####  暗黑能乐  
+##### 1074#       发表于 2026-3-30 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69414540&amp;ptid=2250267" target="_blank">饭冢武也 发表于 2026-3-30 15:42</a>
+
+现在说实话一点也不想看橘前辈洗白
+
+妹妹也好柠檬也罢赶紧变身我是不是就能把这个三骑打成反骑了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">橘前辈虽然看着是很反派，但是。。他实际目前对人类是0伤害，还没之前的诺克斯造成的危害大，看下周会不会伤害美浪吧
+
