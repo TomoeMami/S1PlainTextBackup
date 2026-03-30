@@ -1435,3 +1435,25 @@ app端正文怎么全被放在思维链里了
 后知后觉现在还这么多人用DS吗，我常年就是挂沉浸翻译和论文阅读插件，写垃圾材料用的是豆包，论文用gpt和g ...</blockquote>
 文字处理为什么不用d老师，便宜好用啊
 
+
+*****
+
+####  库德里尔  
+##### 132#       发表于 2026-3-30 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69412768&amp;ptid=2275806" target="_blank">Lorraine_Kinney 发表于 2026-3-30 10:31</a>
+后知后觉现在还这么多人用DS吗，我常年就是挂沉浸翻译和论文阅读插件，写垃圾材料用的是豆包，论文用gpt和g ...</blockquote>
+我是有一组ds的key常年用于随手接上去
+口粮级别的简单使用<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  阿刚  
+##### 133#       发表于 2026-3-30 10:44
+
+<blockquote>Lorraine_Kinney 发表于 2026-3-30 10:31
+后知后觉现在还这么多人用DS吗，我常年就是挂沉浸翻译和论文阅读插件，写垃圾材料用的是豆包，论文用gpt和g ...</blockquote>
+这家伙的API近乎裸奔，你让他干啥就干啥，毫无道德限制
+
