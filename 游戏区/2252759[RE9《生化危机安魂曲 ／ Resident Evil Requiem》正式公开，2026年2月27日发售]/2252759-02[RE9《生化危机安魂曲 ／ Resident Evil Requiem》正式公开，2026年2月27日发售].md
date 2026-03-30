@@ -8098,3 +8098,15 @@ re9我一周目地毯式收集，通关时间显示11h+，文件差4个浣熊差
 也还是存在拉时长拖节奏的部分，比如迫击炮战点前拿摇柄，加油站拿油桶封场地，危楼部分迂回绕路。这种小 ...</blockquote>
 迫击炮那里的躲避和狙击点位都是固定的，狙完之后直接用迫击炮来清图了，全程只需要几发狙击子弹<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡边加奈子  
+##### 2180#       发表于 2026-3-30 12:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69413606&amp;ptid=2252759" target="_blank">红魔馆的糖 发表于 2026-3-30 12:40</a>
+迫击炮那里的躲避和狙击点位都是固定的，狙完之后直接用迫击炮来清图了，全程只需要几发狙击子弹 ...</blockquote>
+现在习惯按照高速打法，不碰迫击炮冲机枪兵还是压力挺大的
+
+—— 来自 samsung SM-F9660, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
