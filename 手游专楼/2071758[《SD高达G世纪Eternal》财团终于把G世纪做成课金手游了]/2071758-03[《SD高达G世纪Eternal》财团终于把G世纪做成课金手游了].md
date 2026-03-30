@@ -654,3 +654,16 @@ w的白雪姬感觉不会比这几个早出<img src="https://static.stage1st.com
 
 推上都在骂 万代应有的
 
+
+*****
+
+####  光辉传递者  
+##### 3841#       发表于 2026-3-30 20:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69415040&amp;ptid=2071758" target="_blank">plok201 发表于 2026-3-30 17:04</a>
+
+00R要红的唯一办法是双红，因为谁都知道这次是卖EW的，所以掉毛肯定红
+
+至于内部恨那就没必要了，00一个高 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">OO7S/G有说法没
+
