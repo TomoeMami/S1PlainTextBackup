@@ -584,3 +584,24 @@ Boy是留了那两夫妻一条狗命？好像没断气</blockquote>
 
 — from OnePlus CPH2583, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  213专用  
+##### 1411#       发表于 2026-3-30 07:46
+
+<blockquote>hosilly 发表于 2026-3-30 01:28
+有点难绷，杰克太虚弱了？魔术师御主这么简单就被偷的吗？F2D54为啥不顺便把绫香的人头也收了？ ...</blockquote>
+原作是准备一起收了，不过狮心王让背后灵给绫香上了个守护魔术，没狙掉。动画没有表现出来
+
+
+*****
+
+####  ardente  
+##### 1412#       发表于 2026-3-30 07:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69411224&amp;ptid=2086574" target="_blank">evangelina 发表于 2026-3-29 22:38</a>
+
+要是放的是五战的录像，理查看到他的偶像跟红毛高中生补魔，会不会信仰崩溃啊 ...</blockquote>
+别逗你猹哥笑了，就他那吊样肯定得锐评两句这小赤佬戳的位置不对好像不是很熟练<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
