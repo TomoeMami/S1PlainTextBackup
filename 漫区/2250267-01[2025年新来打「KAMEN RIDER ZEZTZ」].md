@@ -301,3 +301,16 @@ ZERO本来是个搞笑角色，现在我看好他是被夺舍了
 
 1000年是关梦魇那里的1000年？也就是梦里，时间感知流速可以不一样<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鲁邦三世1  
+##### 1077#       发表于 2026-3-30 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69415464&amp;ptid=2250267" target="_blank">失落之翼 发表于 2026-3-30 18:27</a>
+1000年是关梦魇那里的1000年？也就是梦里，时间感知流速可以不一样</blockquote>
+判1000年，跟牢美那一堆几百年刑期一样
+形式大于意义的无期徒刑
+还没怎么坐牢就出来做梦魇实验了
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
