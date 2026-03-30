@@ -8163,3 +8163,14 @@ bsaa部署这玩意儿是想打啥
 
 还是太菜，打完仓库出来，子弹只剩3颗步枪弹。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红魔馆的糖  
+##### 2185#       发表于 2026-3-30 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69414168&amp;ptid=2252759" target="_blank">P-link 发表于 2026-3-30 14:33</a>
+
+还是太菜，打完仓库出来，子弹只剩3颗步枪弹。</blockquote>
+这不是爽死了，回去升级一下弹匣，全部自动补满
+
