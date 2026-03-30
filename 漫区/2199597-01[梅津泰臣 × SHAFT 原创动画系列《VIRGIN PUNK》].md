@@ -1850,3 +1850,15 @@ dmhy有 只有字幕版的</blockquote>
 
 等有未和谐版我再看了
 
+
+*****
+
+####  AlfredXC  
+##### 183#       发表于 2026-3-30 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69411465&amp;ptid=2199597" target="_blank">chdhdhd 发表于 2026-3-29 23:51</a>
+内置和谐了，还以为是转载加的
+
+等有未和谐版我再看了</blockquote>
+bd已经出了都快一周了
+

@@ -69,3 +69,14 @@
 主要还是太穷 加上制作组没有做过幼女子供向年番的经历 感觉什么都差一口气 商业价值也不行很难也 ...</blockquote>
 我是觉得有些ver和混音完全可以当首新歌了，听感差异真的大，按照官方今天发的推来看完全可以算48首👀
 
+
+*****
+
+####  lydia5989  
+##### 317#       发表于 2026-3-30 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69412136&amp;ptid=2187541" target="_blank">wwwDYYU 发表于 2026-3-30 08:53</a>
+
+我是觉得有些ver和混音完全可以当首新歌了，听感差异真的大，按照官方今天发的推来看完全可以算48首👀 ...</blockquote>
+夏夏的tmh和三首角色曲就是新歌，新的op1词都全改了
+
