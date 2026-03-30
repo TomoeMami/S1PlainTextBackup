@@ -524,3 +524,31 @@ OOR还真是蓝啊
 
 ....................这么恨00？00r给蓝机啊草
 
+
+*****
+
+####  ティグル  
+##### 3827#       发表于 2026-3-30 16:16
+
+解包这下剧透大发了，内部恨这一块
+
+*****
+
+####  螺旋的小夜曲  
+##### 3828#       发表于 2026-3-30 16:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">屋檐了，掉毛和T3都是什么？
+
+
+*****
+
+####  洛克萨斯  
+##### 3829#       发表于 2026-3-30 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69414762&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-3-30 16:19</a>
+
+屋檐了，掉毛和T3都是什么？
+
+不过话又说回来了，希望是个高速盾，PVP里能追上先动的红机给他挡一刀还是非 ...</blockquote>
+掉毛红，t3黄
+
