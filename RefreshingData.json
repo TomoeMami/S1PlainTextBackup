@@ -2265,7 +2265,7 @@
     "lastedit": 1774882740,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1804478": {
     "totalreply": 1278,
@@ -9891,10 +9891,10 @@
     "update": false
   },
   "2093389": {
-    "totalreply": 2105,
+    "totalreply": 2106,
     "title": "[小岛工作室新作《死亡搁浅2 ／ DS2》正式公开，2025年发售]",
     "newtitle": "[小岛工作室新作《死亡搁浅2 ／ DS2》 ／ PC版26年3月19日发售]",
-    "lastedit": 1774880531,
+    "lastedit": 1774890730,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12591,10 +12591,10 @@
     "update": false
   },
   "2268175": {
-    "totalreply": 1150,
+    "totalreply": 1151,
     "title": "[2026年Q娃 ​​​​名侦探Precure]",
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
-    "lastedit": 1774875373,
+    "lastedit": 1774890609,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12609,10 +12609,10 @@
     "update": false
   },
   "2271402": {
-    "totalreply": 5055,
+    "totalreply": 5056,
     "title": "[任天堂病棟14楼，等一个春节春直]",
     "newtitle": "[任天堂病棟14楼，3.3新一期iw]",
-    "lastedit": 1774889529,
+    "lastedit": 1774890731,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13221,10 +13221,10 @@
     "update": false
   },
   "2275908": {
-    "totalreply": 25841,
+    "totalreply": 25843,
     "title": "[中东专楼-2026年3月]",
     "newtitle": "[中东专楼-2026年3月]",
-    "lastedit": 1774890016,
+    "lastedit": 1774890852,
     "category": "外野",
     "active": true,
     "update": false
@@ -16938,10 +16938,10 @@
     "update": false
   },
   "2277736": {
-    "totalreply": 129,
+    "totalreply": 130,
     "title": "[现在市面上已经找不到评测合资电器的靠谱渠道了]",
     "newtitle": "[.]",
-    "lastedit": 1774878975,
+    "lastedit": 1774890855,
     "category": "外野",
     "active": true,
     "update": false
@@ -17046,10 +17046,10 @@
     "update": false
   },
   "2277781": {
-    "totalreply": 232,
+    "totalreply": 233,
     "title": "[李荣浩开撕单依纯侵权]",
     "newtitle": "[李荣浩开撕单依纯侵权]",
-    "lastedit": 1774890016,
+    "lastedit": 1774890855,
     "category": "外野",
     "active": true,
     "update": false
@@ -17397,10 +17397,10 @@
     "update": false
   },
   "2277816": {
-    "totalreply": 41,
+    "totalreply": 42,
     "title": "[对比电锯和异兽魔都，无力构建完整世界观的作者是否注定烂尾]",
     "newtitle": "[对比电锯和异兽魔都，无力构建完整世界观的作者是否注定烂尾]",
-    "lastedit": 1774889416,
+    "lastedit": 1774890610,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17411,6 +17411,15 @@
     "newtitle": "[21.04『致不灭的你 ／ 不灭のあなたへ』专楼 三期制作决定]",
     "lastedit": 1774889671,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2277882": {
+    "totalreply": 41,
+    "title": "[最近日泰有网络舆论冲突，日本人差点让泰国人当野狗踢死]",
+    "newtitle": "[最近日泰有网络舆论冲突，日本人差点让泰国人当野狗踢死]",
+    "lastedit": 1774890855,
+    "category": "外野",
     "active": true,
     "update": false
   }
