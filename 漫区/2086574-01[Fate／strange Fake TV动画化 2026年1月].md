@@ -640,3 +640,24 @@ FSF走的是类HF线展开的冰室天地线，首先就不会有这些补魔CG<
 有点难绷，杰克太虚弱了？魔术师御主这么简单就被偷的吗？F2D54为啥不顺便把绫香的人头也收了？ ...</blockquote>
 杰克当时注意力在理查身上，然后被偷了
 
+
+*****
+
+####  失落之翼  
+##### 1416#       发表于 2026-3-30 09:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69411224&amp;ptid=2086574" target="_blank">evangelina 发表于 2026-3-29 22:38</a>
+
+要是放的是五战的录像，理查看到他的偶像跟红毛高中生补魔，会不会信仰崩溃啊 ...</blockquote>
+就中世纪欧洲宫廷和贵族圈那JB乱的环境，应该见怪不怪吧？<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  失落之翼  
+##### 1417#       发表于 2026-3-30 09:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69411345&amp;ptid=2086574" target="_blank">碎月 发表于 2026-3-29 23:08</a>
+
+法尔迪乌斯啥情况，老去招惹时钟塔，卧底的时候难道没听说过埃尔梅罗教室，不知道弗拉特什么背景吗 ...</blockquote>
+上次都扬了一个君王，一个学生算什么？<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
