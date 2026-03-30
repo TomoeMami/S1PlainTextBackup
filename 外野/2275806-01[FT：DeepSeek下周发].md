@@ -1326,3 +1326,11 @@ nga那个帖子简直闹麻了<img src="https://static.stage1st.com/image/smiley
 —— 来自 S1Fun</blockquote>
 刘备用api在酒馆或者chatbox上写，相比较chatbox还是更推荐酒馆，毕竟整个用户生态比较成熟了
 
+
+*****
+
+####  德尔惠净水器  
+##### 121#       发表于 2026-3-30 09:30
+
+刚刚试了一下，能用了
+
