@@ -562,3 +562,15 @@ OOR还真是蓝啊
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  plok201  
+##### 3831#       发表于 2026-3-30 17:04
+
+00R要红的唯一办法是双红，因为谁都知道这次是卖EW的，所以掉毛肯定红
+
+至于内部恨那就没必要了，00一个高达投票前20一台都没进的作品，内部无论是恨是爱都肯定要让步给更高人气的，他都给你一周年位置了，说明还是看得起的
+
+反正傻子那的机体池深不见底，00Q如果是黄的话，ELS和全刃总有一个红<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
