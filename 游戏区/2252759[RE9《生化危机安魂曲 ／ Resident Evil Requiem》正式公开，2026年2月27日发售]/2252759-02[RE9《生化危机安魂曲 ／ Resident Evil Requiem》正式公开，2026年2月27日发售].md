@@ -8155,3 +8155,11 @@ bsaa部署这玩意儿是想打啥
 @SaiWestwood</blockquote>
 卧槽<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  P-link  
+##### 2184#       发表于 2026-3-30 14:33
+
+还是太菜，打完仓库出来，子弹只剩3颗步枪弹。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
