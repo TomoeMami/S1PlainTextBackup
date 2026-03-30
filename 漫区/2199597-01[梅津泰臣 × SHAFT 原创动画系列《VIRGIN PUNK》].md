@@ -1895,3 +1895,32 @@ bd已经出了都快一周了</blockquote>
 
 好看。2077得代餐。就是这个味。
 
+
+*****
+
+####  Toby_dak  
+##### 187#       发表于 2026-3-30 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69409511&amp;ptid=2199597" target="_blank">aptx8285144 发表于 2026-3-29 15:53</a>
+
+喷了，开头死的那个人物血“直接写上不能让孩子们看”，你就算打点小马赛克之类也比这样遮住屏幕一样的操作 ...</blockquote>
+我觉得你去确认下看的是不是BD rip比较好<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202603/30/195817saqq4kckgkb4rpzf.jpg" referrerpolicy="no-referrer">
+
+<strong>[Nekomoe kissaten][Virgin Punk Clockwork Girl][BDRip][1080p][CHS].mp4_snapshot_0.jpg</strong> (291.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-30 18:58 上传
+
+*****
+
+####  Toby_dak  
+##### 188#       发表于 2026-3-30 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69412699&amp;ptid=2199597" target="_blank">AlfredXC 发表于 2026-3-30 11:21</a>
+
+bd已经出了都快一周了</blockquote>
+你之前的磁链编辑或者加个标记吧，不然很多人分不清什么是网络先行放松i版什么是BD rip。
+
