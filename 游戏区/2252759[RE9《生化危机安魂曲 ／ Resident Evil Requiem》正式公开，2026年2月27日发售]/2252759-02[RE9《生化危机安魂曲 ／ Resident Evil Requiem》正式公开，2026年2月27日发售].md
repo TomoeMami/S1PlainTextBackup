@@ -8174,3 +8174,52 @@ bsaa部署这玩意儿是想打啥
 还是太菜，打完仓库出来，子弹只剩3颗步枪弹。</blockquote>
 这不是爽死了，回去升级一下弹匣，全部自动补满
 
+
+*****
+
+####  eilot  
+##### 2186#       发表于 2026-3-30 15:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69413744&amp;ptid=2252759" target="_blank">纯爱战士段正淳 发表于 2026-3-30 13:09</a>
+
+迫击炮那儿就更搞了
+
+bsaa部署这玩意儿是想打啥</blockquote>
+還有一台迫擊炮是放在室內還未搬出來
+
+牆外BSAA的定位不是說要和前面已進入警局那批會合嗎?
+
+在大廈多處建立小型營地、軍用雷達裝置、和小型對地的迫擊炮，還有3個BSAA物資大型貨櫃(應該有更多?)
+
+究竟是想打甚麼
+
+CHRIS編(如有)應該要解釋清楚，BSAA這時是否已經分裂但未去到反臉地步吧?
+
+
+*****
+
+####  mai6696  
+##### 2187#       发表于 2026-3-30 15:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69414578&amp;ptid=2252759" target="_blank">eilot 发表于 2026-3-30 15:48</a>
+
+還有一台迫擊炮是放在室內還未搬出來
+
+牆外BSAA的定位不是說要和前面已進入警局那批會合嗎?
+
+在大廈多處建立 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 首先要解释一下为什么在能直接去爆心地的情况下还要往隔离墙外投放这么一只部队。
+
+明显这些人是里昂的粉丝，来这里布置游乐园来了。
+
+不然为什么起爆装置要分成三个部件？分三个点保存。
+
+离了C4你这起爆装置难道能自己爆？
+
+*****
+
+####  1096beam  
+##### 2188#       发表于 2026-3-30 15:53
+
+想太多了，就是抄一下4的投石机罢了
+
