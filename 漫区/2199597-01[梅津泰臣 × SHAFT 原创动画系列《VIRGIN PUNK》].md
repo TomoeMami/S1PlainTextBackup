@@ -1874,3 +1874,16 @@ bd已经出了都快一周了</blockquote>
 
 我搜到的3月23日的生肉资源都是有“小朋友不能看”的屏幕遮盖，蓝光版没有吗？
 
+
+*****
+
+####  千恋万花  
+##### 185#       发表于 2026-3-30 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69413384&amp;ptid=2199597" target="_blank">chdhdhd 发表于 2026-3-30 12:00</a>
+
+从讨论看，应该还是有和谐吧？
+
+我搜到的3月23日的生肉资源都是有“小朋友不能看”的屏幕遮盖，蓝光版没 ...</blockquote>
+3 月 18 日在 YTB 上公开的是有遮挡的，3 月 25 日发售的蓝光版没有
+

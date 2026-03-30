@@ -674,3 +674,16 @@ FSF走的是类HF线展开的冰室天地线，首先就不会有这些补魔CG<
 
 这集登场的梵是最古三死徒之一（活了快4000年的老东西），在祖里也是特殊位格的存在
 
+
+*****
+
+####  这次是十块钱  
+##### 1419#       发表于 2026-3-30 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69411690&amp;ptid=2086574" target="_blank">hosilly 发表于 2026-3-30 01:28</a>
+有点难绷，杰克太虚弱了？魔术师御主这么简单就被偷的吗？F2D54为啥不顺便把绫香的人头也收了？ ...</blockquote>
+原著说的是杰克重点在理查这边，而且狙击枪玩意离得也远，再退一步讲，这位在时钟塔的师傅的师傅不也是死于切嗣的急性金属中毒嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+gun 这玩意儿高低也算个宝具了吧，别觉得是科学侧就轻视了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
