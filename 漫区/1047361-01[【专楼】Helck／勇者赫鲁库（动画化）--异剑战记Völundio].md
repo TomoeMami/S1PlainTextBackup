@@ -23,3 +23,13 @@
 
 异剑这个第一部就跟个序章似的，连网页宣传图都在几十话之后才callback到。就这漫画现在的进度给我的感觉顶多才相当于helck刚讲完自己的过去
 
+
+*****
+
+####  小黑鱼  
+##### 1247#       发表于 2026-3-30 21:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69415529&amp;ptid=1047361" target="_blank">azbhg1 发表于 2026-3-30 18:45</a>
+他这个“終盤くらいまでの構想は練っている”，我不好说是按连载初就基本确定好的那份，还是考虑到基于 ...</blockquote>
+真这样也没办法，我倒是希望能快点，前面许多篇幅缩减些观感会更好
+
