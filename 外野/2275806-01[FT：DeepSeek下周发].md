@@ -1418,3 +1418,20 @@ cherrystudio，设置好提示词，硅基流动的api还没有破不了的甲
 
 app端正文怎么全被放在思维链里了
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 130#       发表于 2026-3-30 10:31
+
+后知后觉现在还这么多人用DS吗，我常年就是挂沉浸翻译和论文阅读插件，写垃圾材料用的是豆包，论文用gpt和gemini
+
+*****
+
+####  洛拉斯  
+##### 131#       发表于 2026-3-30 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69412768&amp;ptid=2275806" target="_blank">Lorraine_Kinney 发表于 2026-3-30 10:31</a>
+后知后觉现在还这么多人用DS吗，我常年就是挂沉浸翻译和论文阅读插件，写垃圾材料用的是豆包，论文用gpt和g ...</blockquote>
+文字处理为什么不用d老师，便宜好用啊
+
