@@ -405,3 +405,11 @@ DIGIMON BEATBREAK ＃25
 不过如果要斗蛐蛐的话，四天王的level是不是也就完全体，逼急了用点特殊手段上究极体的水平tomorou一路开挂 ...</blockquote>
 游戏感觉理解是lv练得很高的完全体，但训练家等级不够还不足进化XD
 
+
+*****
+
+####  永恒的王牌  
+##### 503#       发表于 2026-3-30 09:14
+
+蜥蜴变大恐龙变机械大恐龙，最后估计又是人形了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
