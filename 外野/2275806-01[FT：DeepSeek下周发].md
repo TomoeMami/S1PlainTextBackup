@@ -1345,3 +1345,22 @@ nga那个帖子简直闹麻了<img src="https://static.stage1st.com/image/smiley
 刚刚试了一下，能用了</blockquote>
 能用但思考过程和输出结果混一块了，突出一个不是特别能用<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑哥啥时改密码  
+##### 123#       发表于 2026-3-30 09:55
+
+看到第一页吹字节的视频模型赚钱大的
+
+我觉得应该没有想象中的赚钱
+
+字节做媒介传播起家的应该知道 人的注意力是有限的 全世界就这么点人 市场就这么大而已
+
+*****
+
+####  goranger  
+##### 124#       发表于 2026-3-30 09:56
+
+隐约感觉虽然炸了但变聪明了
+
