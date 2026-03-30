@@ -677,3 +677,21 @@ neurips更新公告</blockquote>
 
 想起汤不热
 
+
+*****
+
+####  NeTlk  
+##### 65#         楼主| 发表于 2026-3-30 18:38
+
+ 本帖最后由 NeTlk 于 2026-3-30 18:44 编辑 
+
+<img src="https://img.stage1st.com/forum/202603/30/183839cdiiiedqhtnn7nss.jpg" referrerpolicy="no-referrer">
+
+<strong>1000002692.jpg</strong> (51.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-30 18:38 上传
+
+https://www.ccf.org.cn/Media_list/ccf/2026-03-30/869614.shtml
+
