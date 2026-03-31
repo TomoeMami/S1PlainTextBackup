@@ -530,3 +530,11 @@ ai 是这样的
 不出所料加了反蒸馏的代码，每轮请求会加一个假的 tool call</blockquote>
 这是防客户端自己被蒸馏？
 
+
+*****
+
+####  超级大基魔  
+##### 59#       发表于 2026-4-1 00:19
+
+huggingface.co/anthropic/claude-Mythos
+
