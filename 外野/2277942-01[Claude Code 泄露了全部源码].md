@@ -560,3 +560,24 @@ huggingface.co/anthropic/claude-Mythos
 
 ai 写的代码没什么人仔细看的，又是一个无关紧要的，无害的 debug 开关，review 的 ai 估计也放过了，非常符合草台原理<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  whzfjd  
+##### 62#       发表于 2026-4-1 00:49
+
+<blockquote>希望之花 发表于 2026-4-1 00:45
+一般麻瓜拿到这个能做些啥，自己找个llm用这个搭vibe coding环境吗</blockquote>
+躺着等其他家的客户端吸收code可能存在的优势和经验
+
+
+*****
+
+####  redbuck  
+##### 63#       发表于 2026-4-1 00:56
+
+其实我是有点奇怪这次为啥搞这么轰动
+
+claude 本来就是 npm 分发，是直接 js 装到客户环境的，虽然混淆了，但混淆不是加密，真想看的人，反混淆一下，大致结构，思路肯定是看得出的。
+只能说大家都是懒狗，饭得做熟喂到嘴才吃<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
