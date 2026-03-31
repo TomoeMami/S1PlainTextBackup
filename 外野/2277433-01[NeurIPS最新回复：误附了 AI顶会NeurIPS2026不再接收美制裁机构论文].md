@@ -781,3 +781,13 @@ CCF 意思是无事发生了？</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  琪露诺酱  
+##### 74#       发表于 2026-3-31 17:25
+
+CCF和科协是两个不同的组织
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
