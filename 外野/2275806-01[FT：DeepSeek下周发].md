@@ -1580,3 +1580,20 @@ DS手上应该没有H800，要么是A100/A800，要么就是华子的CM384、A3/
 DeepSeek 的Api便宜稳定，本身能力也很强。接下来都传是1M上下文，毕竟网页端已经上线1M上下文了。再加上多 ...</blockquote>
 gemini的1m上下文纯勾巴搞笑的，google算力现在捉襟见肘，降智太厉害了
 
+
+*****
+
+####  villsian  
+##### 147#       发表于 2026-3-31 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69420444&amp;ptid=2275806" target="_blank">chuchoselph 发表于 2026-3-31 17:55</a>
+
+gemini的1m上下文纯勾巴搞笑的，google算力现在捉襟见肘，降智太厉害了</blockquote>
+之前Gemini用的AI Studio，后来又用了GCP300的赠金，1M上下文还是有体感的。改代码的时候，经常会把整个项目要改的相关模块文件都放到上下文中，改BUG就很准很快，最多的时候看到Token能到70-80十万。
+
+现在赠金不让用了，开了反重力的会员，没有扔相关代码的习惯了，就让它自己分析，复杂点的问题有时候还是会丢细节，得多提醒它。
+
+体感下来AI Studio的模型智力一直都挺在线的，就是免费额度太少。反重力这边使用方式跟以前不一样，也没法比较是不是降智。
+
+现在就等便宜大碗的DeepSeek了，只要上下文够，至少能够在牵连文件比较多的时候不至于一轮对话分析不完。反重力开了最高档的会员，真是肉疼。。。每天不用的时候就感觉在亏钱。<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
