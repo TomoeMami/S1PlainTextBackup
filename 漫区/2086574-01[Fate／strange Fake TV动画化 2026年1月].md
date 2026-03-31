@@ -846,3 +846,21 @@ FSK开场如果不是小恩引起闪闪警戒提前布置阵地
 能练出闪大王都没有的神域武技的狠人不能拿来和一般现代魔术师相提并论这可是在FGO一众拟似从者中唯一一 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至今都还没看到传说中大成士郎的强度
 
+
+*****
+
+####  阿刚  
+##### 1433#       发表于 2026-3-31 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69416752&amp;ptid=2086574" target="_blank">大耳兽 发表于 2026-3-31 00:20</a>
+
+法尔迪乌斯杀弗拉特的动机到底是什么，按道理来说杰克没什么战斗力，退场是迟早的事了吧。 ...</blockquote>
+他把警察局，西格玛，查理，恩齐都这帮子一下全串起来了，剩下三方势力，仇海，天空女神，半死不活的金皮卡，哪个都不是法小弟能插手的了，更何况法小弟这会已经和仇海的御主结下死仇了。让弗拉特活着他就只能当监控室大爷了，不过没想到弄死弗拉特直接搞出一个大爹
+
+*****
+
+####  阿刚  
+##### 1434#       发表于 2026-3-31 22:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">主要法小弟这缺德玩意小说里面不光补了脑袋一枪，直接狙击鞭尸打成碎肉了……
+
