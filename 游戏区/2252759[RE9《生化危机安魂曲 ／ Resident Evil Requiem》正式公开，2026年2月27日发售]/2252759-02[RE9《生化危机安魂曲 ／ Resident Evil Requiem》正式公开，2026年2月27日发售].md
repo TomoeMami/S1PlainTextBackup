@@ -8341,3 +8341,28 @@ LEON編是殺不過癮，和下周目金錢會清0，之前找到的新武器也
 
 可能外面的BSAA和里面的不是一波人，里面的是8代空降小型暴君那一派系，所以狼队会现身，应该是在执行某个任务而不是劳师动众只为给克队捎个话
 
+
+*****
+
+####  nagitoY  
+##### 2199#       发表于 2026-3-31 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69414817&amp;ptid=2252759" target="_blank">红魔馆的糖 发表于 2026-3-30 16:28</a>
+
+没必要和RE4比，RE4这个叠加原版设计思路+重制充足制作的特殊产物哪怕在现代游戏里都是标杆级别的，卡普空 ...</blockquote>
+dlc想要做什么内容？有点难以想象。
+
+re4的艾达路线体量也是很足的，新boss很多。
+
+
+*****
+
+####  红魔馆的糖  
+##### 2200#       发表于 2026-3-31 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69418112&amp;ptid=2252759" target="_blank">nagitoY 发表于 2026-3-31 10:47</a>
+dlc想要做什么内容？有点难以想象。
+
+re4的艾达路线体量也是很足的，新boss很多。 ...</blockquote>
+往好处想艾达篇，往坏处想是螺丝魅影<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
