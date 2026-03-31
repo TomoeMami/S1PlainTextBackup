@@ -458,3 +458,11 @@ https://github.com/instructkr/claude-code</blockquote>
 
 第三方的api接入客户端能参考的东西多不，赶紧迭代啊
 
+
+*****
+
+####  chronicle  
+##### 52#       发表于 2026-3-31 23:28
+
+我试过trae上用gpt 4.5 和codex直接用，体验还是差很多,agent的壳本身还是有很大作用的
+
