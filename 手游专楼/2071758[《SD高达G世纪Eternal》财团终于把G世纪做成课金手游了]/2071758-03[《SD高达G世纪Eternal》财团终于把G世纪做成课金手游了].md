@@ -745,3 +745,18 @@ w的白雪姬感觉不会比这几个早出<img src="https://static.stage1st.com
 
 6700面板+一回合超雄，感觉是为大师联盟量身定制了
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3850#       发表于 2026-3-31 17:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">极乐大回环作为可p地图炮感觉也算掉毛标配了
+
+*****
+
+####  dio999  
+##### 3851#       发表于 2026-3-31 17:01
+
+大师赛一刀一个小朋友<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
