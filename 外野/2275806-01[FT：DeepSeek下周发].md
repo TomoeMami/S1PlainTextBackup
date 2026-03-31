@@ -1569,3 +1569,14 @@ DS手上应该没有H800，要么是A100/A800，要么就是华子的CM384、A3/
 
 所以什么时候做空老黄<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chuchoselph  
+##### 146#       发表于 2026-3-31 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69255862&amp;ptid=2275806" target="_blank">villsian 发表于 2026-3-1 19:11</a>
+
+DeepSeek 的Api便宜稳定，本身能力也很强。接下来都传是1M上下文，毕竟网页端已经上线1M上下文了。再加上多 ...</blockquote>
+gemini的1m上下文纯勾巴搞笑的，google算力现在捉襟见肘，降智太厉害了
+
