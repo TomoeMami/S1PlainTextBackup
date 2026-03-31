@@ -1561,3 +1561,11 @@ DS服务器被泥潭毒奶崩了是吧</blockquote>
 我猜测啊，崩是因为从熟悉的H800换成菊花平台了。</blockquote>
 DS手上应该没有H800，要么是A100/A800，要么就是华子的CM384、A3/A5
 
+
+*****
+
+####  scikirbypoke  
+##### 145#       发表于 2026-3-31 17:45
+
+所以什么时候做空老黄<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
