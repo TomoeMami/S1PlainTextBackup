@@ -1530,3 +1530,23 @@ DS服务器被泥潭毒奶崩了是吧<img src="https://static.stage1st.com/imag
 
 测试版现在的问题就是会出现极其低级的错误<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  neptunehs  
+##### 142#       发表于 2026-3-31 17:27
+
+又炸了啊
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  sellboy  
+##### 143#       发表于 2026-3-31 17:30
+
+<blockquote>蜇灵 发表于 2026-3-30 11:45
+DS服务器被泥潭毒奶崩了是吧</blockquote>
+我猜测啊，崩是因为从熟悉的H800换成菊花平台了。
+
