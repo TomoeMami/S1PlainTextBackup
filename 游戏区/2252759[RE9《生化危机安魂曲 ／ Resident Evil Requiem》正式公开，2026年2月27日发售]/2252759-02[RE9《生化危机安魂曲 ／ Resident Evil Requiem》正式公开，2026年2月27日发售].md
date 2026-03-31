@@ -8406,3 +8406,22 @@ re4的艾达路线体量也是很足的，新boss很多。 ...</blockquote>
 
 往好處想就是兩種都同時有，再加能刷分刷武器的傭兵模式
 
+
+*****
+
+####  eilot  
+##### 2205#       发表于 2026-3-31 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69418112&amp;ptid=2252759" target="_blank">nagitoY 发表于 2026-3-31 10:47</a>
+
+dlc想要做什么内容？有点难以想象。
+
+re4的艾达路线体量也是很足的，新boss很多。 ...</blockquote>
+ADA編本身在老版已經寫好，就算和原版己不同也容易改編
+
+4RE的新BOSS是老版LEON真的太多在新版塞不入，在ADA補回(左手還是右手君，澈光陣)
+
+只是沒有還原巨人石像的追逐戰，4R的LEON是將這段改為跑塔頂
+
+新版ADA編還有自己的商人，遊戲時間也長
+
