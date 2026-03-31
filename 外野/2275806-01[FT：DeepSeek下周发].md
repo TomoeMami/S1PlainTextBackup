@@ -1550,3 +1550,14 @@ DS服务器被泥潭毒奶崩了是吧<img src="https://static.stage1st.com/imag
 DS服务器被泥潭毒奶崩了是吧</blockquote>
 我猜测啊，崩是因为从熟悉的H800换成菊花平台了。
 
+
+*****
+
+####  ayanamilin  
+##### 144#       发表于 2026-3-31 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69420303&amp;ptid=2275806" target="_blank">sellboy 发表于 2026-3-31 17:30</a>
+
+我猜测啊，崩是因为从熟悉的H800换成菊花平台了。</blockquote>
+DS手上应该没有H800，要么是A100/A800，要么就是华子的CM384、A3/A5
+
