@@ -1646,3 +1646,13 @@ gemini的1m上下文纯勾巴搞笑的，google算力现在捉襟见肘，降智
 
 网页端好像偶尔能刷到智力很强的版本，不知道怎么回事
 
+
+*****
+
+####  tk553521  
+##### 154#       发表于 2026-3-31 23:27
+
+今天中午用官方api写刘备突然色得不行，不知道是不是我的错觉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
