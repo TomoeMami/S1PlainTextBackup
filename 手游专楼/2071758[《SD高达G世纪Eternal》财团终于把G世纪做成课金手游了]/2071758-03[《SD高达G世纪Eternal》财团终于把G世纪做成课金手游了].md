@@ -882,3 +882,18 @@ oor 9k攻击力算
 
 仅供参考
 
+
+*****
+
+####  plok201  
+##### 3865#       发表于 2026-3-31 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69420956&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2026-3-31 19:37</a>
+
+这个盾刹那，回去开能天使或者开发OO会不会因为技能加持伤害比攻刹那高
+
+—— 来自 vivo V2419A, Android 1 ...</blockquote>
+看这个盾刹那有没有攻击爆裂了，傻子那格斗800，双盾机师三明格斗已经600往上了，估计这个限定能到700，技能全开大概率破千
+
+拿这家伙去玩开发00应该比一大堆红机师都厉害<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
