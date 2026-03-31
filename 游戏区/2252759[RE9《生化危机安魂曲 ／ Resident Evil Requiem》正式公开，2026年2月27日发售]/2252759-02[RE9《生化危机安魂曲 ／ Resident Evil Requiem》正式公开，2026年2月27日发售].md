@@ -8435,3 +8435,16 @@ ADA編本身在老版已經寫好，就算和原版己不同也容易改編
 
 DLC的话，反正不会太少吧，毕竟这作销量那么好，应该比7，8的DLC多？
 
+
+*****
+
+####  mai6696  
+##### 2207#       发表于 2026-3-31 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69418647&amp;ptid=2252759" target="_blank">plok201 发表于 2026-3-31 12:14</a>
+
+9的一周目时长纯粹靠格蕾丝篇拖的吧，搞不清机制见到女孩就躲着硬等，然后格蕾丝也不给强力武器比如散弹和 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 还有一个很大的拖时长要素就是抽血。
+
+经常是血满了要回去拿素材合东西，合完了再回来抽走地上剩余的血。
+
