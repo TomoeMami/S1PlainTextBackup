@@ -8366,3 +8366,29 @@ dlc想要做什么内容？有点难以想象。
 re4的艾达路线体量也是很足的，新boss很多。 ...</blockquote>
 往好处想艾达篇，往坏处想是螺丝魅影<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 2201#       发表于 2026-3-31 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69418145&amp;ptid=2252759" target="_blank">红魔馆的糖 发表于 2026-3-31 10:53</a>
+
+往好处想艾达篇，往坏处想是螺丝魅影</blockquote>
+往好处想是铁拳乔大爷，往坏处想是Ethan Must Die.
+
+*****
+
+####  大厨麦当牛  
+##### 2202#       发表于 2026-3-31 10:59
+
+往好处想是第四生存者豪华plus版，往坏处想是幽灵幸存者马文女儿篇（
+
+
+*****
+
+####  Chao  
+##### 2203#       发表于 2026-3-31 11:05
+
+卖情怀的话应该是豆腐吧，毕竟都登场了
+
