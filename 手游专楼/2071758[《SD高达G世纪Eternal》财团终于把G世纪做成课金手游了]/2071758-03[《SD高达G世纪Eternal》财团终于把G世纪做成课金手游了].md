@@ -783,3 +783,21 @@ w的白雪姬感觉不会比这几个早出<img src="https://static.stage1st.com
 
 这波一周年膨胀的好狠啊，不装了
 
+
+*****
+
+####  洛克萨斯  
+##### 3855#       发表于 2026-3-31 17:18
+
+pvp以后左手oor右手大冰箱，那不是恶心死了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  plok201  
+##### 3856#       发表于 2026-3-31 17:22
+
+专为PVP准备的2台机体，现在就看AI能不能用好了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+希罗给人的感觉是上位SF，刹那要等上手了，毕竟给了一堆新东西
+
