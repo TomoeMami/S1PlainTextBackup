@@ -538,3 +538,25 @@ ai 是这样的
 
 huggingface.co/anthropic/claude-Mythos
 
+
+*****
+
+####  希望之花  
+##### 60#       发表于 2026-4-1 00:45
+
+一般麻瓜拿到这个能做些啥，自己找个llm用这个搭vibe coding环境吗
+
+*****
+
+####  redbuck  
+##### 61#       发表于 2026-4-1 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69421075&amp;ptid=2277942" target="_blank">我是大鲨鱼1453 发表于 2026-3-31 20:06</a>
+卧槽，天网越狱是吧，细思恐极</blockquote>
+没那么玄乎，应该就是草台了
+
+一般编译器会有个 source-map 级别的字段，开发会开，生产一般要关的，用来前端调试定位到源码的。
+我猜就是某人用 claude 开发 claude debug 的时候，把开关写死了，提交上去，ci 一跑，就把带 map 的版本发布了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ai 写的代码没什么人仔细看的，又是一个无关紧要的，无害的 debug 开关，review 的 ai 估计也放过了，非常符合草台原理<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
