@@ -1951,3 +1951,11 @@ bd已经出了都快一周了</blockquote>
 女主人设有点怪，脸又圆眼睛又大，但是仍子好圆好挺</blockquote>
 梅津的人设一直就这个风格
 
+
+*****
+
+####  失落之翼  
+##### 192#       发表于 2026-3-31 16:47
+
+梅津泰臣还是这个味，虽然很多时候剧情挺差的但是女性人设太符合XP了<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
