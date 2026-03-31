@@ -265,3 +265,20 @@ NG word OMG
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holofan  
+##### 11538#       发表于 2026-3-31 19:30
+
+一直有人说其实是适应障害的症状了，但是看上去又没那么严重 做做直播精神又恢复了，反正趁机好好休一阵不是坏事，反而长期不休连轴转下去更会加重病情
+
+*****
+
+####  rs5621  
+##### 11539#       发表于 2026-3-31 21:10
+
+是该休息出去玩了，等回来又能听见闻<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2509A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
