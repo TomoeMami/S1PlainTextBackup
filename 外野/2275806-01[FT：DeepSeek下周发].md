@@ -1622,3 +1622,11 @@ gemini的1m上下文纯勾巴搞笑的，google算力现在捉襟见肘，降智
 小道消息，最近连续的炸就是在更新</blockquote>
 之前也这样，更新前一段时间不是炸就是智商掉成白痴级别，算是基操了
 
+
+*****
+
+####  绝地潜兵  
+##### 151#       发表于 2026-3-31 21:34
+
+硅基流动的第三方模型有人用来写文么<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
