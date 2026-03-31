@@ -1597,3 +1597,11 @@ gemini的1m上下文纯勾巴搞笑的，google算力现在捉襟见肘，降智
 
 现在就等便宜大碗的DeepSeek了，只要上下文够，至少能够在牵连文件比较多的时候不至于一轮对话分析不完。反重力开了最高档的会员，真是肉疼。。。每天不用的时候就感觉在亏钱。<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zxdrtyhn  
+##### 148#       发表于 2026-3-31 20:42
+
+小道消息，最近连续的炸就是在更新
+
