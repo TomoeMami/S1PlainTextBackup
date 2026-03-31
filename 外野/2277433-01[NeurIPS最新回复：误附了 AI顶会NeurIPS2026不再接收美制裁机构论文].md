@@ -748,3 +748,36 @@ CCF 意思是无事发生了？</blockquote>
 CCF 意思是无事发生了？</blockquote>
 这明显就是保留措施了啊。
 
+
+*****
+
+####  sellboy  
+##### 71#       发表于 2026-3-31 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69420028&amp;ptid=2277433" target="_blank">noword 发表于 2026-3-31 16:50</a>
+
+CCF 意思是无事发生了？</blockquote>
+参会费用不报销
+
+发表文章也不直接认可，需自行申请
+
+*****
+
+####  cody198879  
+##### 72#       发表于 2026-3-31 17:23
+
+意思就是26年我已经发话了，直接无视这个会议，也不会改了。27年看你改正效果
+
+—— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  朵雅空咖  
+##### 73#       发表于 2026-3-31 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69420028&amp;ptid=2277433" target="_blank">noword 发表于 2026-3-31 16:50</a>
+CCF 意思是无事发生了？</blockquote>
+意思是既然对面滑跪了就不把事情做绝但是这事不能完全过去
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
