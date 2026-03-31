@@ -675,3 +675,11 @@ w的白雪姬感觉不会比这几个早出<img src="https://static.stage1st.com
 
 <img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">是骡子是马，下午也该知道了
 
+
+*****
+
+####  马桶3  
+##### 3843#       发表于 2026-3-31 13:32
+
+这次大师最恶心的盾是GP03，最难受的攻是吉翁号，如果00R真的是3盾+无伤，那PVE无伤大雅，PVP铁人权<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
