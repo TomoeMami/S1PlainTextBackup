@@ -695,3 +695,19 @@ neurips更新公告</blockquote>
 
 https://www.ccf.org.cn/Media_list/ccf/2026-03-30/869614.shtml
 
+
+*****
+
+####  NeTlk  
+##### 66#         楼主| 发表于 2026-3-31 15:42
+
+科协公告
+
+<img src="https://img.stage1st.com/forum/202603/31/154247jkvywymzy6y1dsk4.jpg" referrerpolicy="no-referrer">
+
+<strong>1000002693.jpg</strong> (124.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-3-31 15:42 上传
+
