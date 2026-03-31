@@ -1630,3 +1630,11 @@ gemini的1m上下文纯勾巴搞笑的，google算力现在捉襟见肘，降智
 
 硅基流动的第三方模型有人用来写文么<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 152#       发表于 2026-3-31 21:39
+
+8点在用，第二次问答又炸了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
