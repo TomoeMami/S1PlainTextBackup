@@ -466,3 +466,18 @@ https://github.com/instructkr/claude-code</blockquote>
 
 我试过trae上用gpt 4.5 和codex直接用，体验还是差很多,agent的壳本身还是有很大作用的
 
+
+*****
+
+####  土星魔豆  
+##### 53#       发表于 2026-3-31 23:37
+
+ai 是这样的
+有个功能我故意设成禁用的，它改代码自作聪明顺手给我启用了，总结的时候也没告诉我
+
+好在很明显就发现了，其实也没事，后面还有很多环节肯定能发现
+不过 ai 就是有这种手欠的习惯，一次不手欠，不代表次次不手欠
+省了编码时间，不能省最后的 review 和测试
+
+—— 来自 HUAWEI BRA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
