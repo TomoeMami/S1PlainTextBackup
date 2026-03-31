@@ -727,3 +727,24 @@ https://www.ccf.org.cn/Media_list/ccf/2026-03-30/869614.shtml
 
 CCF 意思是无事发生了？
 
+
+*****
+
+####  kumh  
+##### 69#       发表于 2026-3-31 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69420028&amp;ptid=2277433" target="_blank">noword 发表于 2026-3-31 16:50</a>
+
+CCF 意思是无事发生了？</blockquote>
+看那个最新的都不认可其价值，怎么可能无事发生。
+
+*****
+
+####  飛霞精灵  
+##### 70#       发表于 2026-3-31 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69420028&amp;ptid=2277433" target="_blank">noword 发表于 2026-3-31 16:50</a>
+
+CCF 意思是无事发生了？</blockquote>
+这明显就是保留措施了啊。
+

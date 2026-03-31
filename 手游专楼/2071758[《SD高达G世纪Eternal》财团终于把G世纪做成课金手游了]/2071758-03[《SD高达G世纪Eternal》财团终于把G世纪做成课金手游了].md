@@ -760,3 +760,26 @@ w的白雪姬感觉不会比这几个早出<img src="https://static.stage1st.com
 
 大师赛一刀一个小朋友<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  马桶3  
+##### 3852#       发表于 2026-3-31 17:06
+
+傻子那更是重量级，防御版真飞鸟，还带了一次复活
+
+
+*****
+
+####  arthes  
+##### 3853#       发表于 2026-3-31 17:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">傻子那超一击锁死两回合超一击状态还有一次春哥，开三红回合这一堆加攻加持下不知道具体输出能有多少，要是能客串个普通二动红机来用好像也不错
+
+*****
+
+####  alialex  
+##### 3854#       发表于 2026-3-31 17:17
+
+这波一周年膨胀的好狠啊，不装了
+
