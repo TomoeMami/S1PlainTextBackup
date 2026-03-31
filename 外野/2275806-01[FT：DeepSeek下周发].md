@@ -1605,3 +1605,20 @@ gemini的1m上下文纯勾巴搞笑的，google算力现在捉襟见肘，降智
 
 小道消息，最近连续的炸就是在更新
 
+
+*****
+
+####  蜇灵  
+##### 149#       发表于 2026-3-31 20:55
+
+泥潭毒奶还是狠，又给奶炸了一天<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  羊寢  
+##### 150#       发表于 2026-3-31 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69421214&amp;ptid=2275806" target="_blank">zxdrtyhn 发表于 2026-3-31 20:42</a>
+小道消息，最近连续的炸就是在更新</blockquote>
+之前也这样，更新前一段时间不是炸就是智商掉成白痴级别，算是基操了
+
