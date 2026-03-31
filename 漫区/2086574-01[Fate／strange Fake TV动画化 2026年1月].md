@@ -826,3 +826,23 @@ FSK开场如果不是小恩引起闪闪警戒提前布置阵地
 
 也是大概率被海叔远程直接狙掉御主的
 
+
+*****
+
+####  仟音一心  
+##### 1431#       发表于 2026-3-31 20:17
+
+动画鉴赏区投票，花了很长时间把Fate宇宙的动画鉴赏区链接找齐了。
+[[TV] [2026.01][TV.13]Fate/strange Fake / 命运/奇异赝品](https://stage1st.com/2b/thread-2277950-1-1.html)
+
+
+*****
+
+####  洛克萨斯  
+##### 1432#       发表于 2026-3-31 20:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69416812&amp;ptid=2086574" target="_blank">pokemon最爱 发表于 2026-3-31 00:49</a>
+
+能练出闪大王都没有的神域武技的狠人不能拿来和一般现代魔术师相提并论这可是在FGO一众拟似从者中唯一一 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至今都还没看到传说中大成士郎的强度
+
