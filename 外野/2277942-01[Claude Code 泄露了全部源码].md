@@ -481,3 +481,52 @@ ai 是这样的
 
 —— 来自 HUAWEI BRA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  w2131978  
+##### 54#       发表于 2026-3-31 23:49
+
+前几天刚讲了个笑话：最强网安模型<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/95f4667df29d3975d27b3d7c3a237cd1/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX5010, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  tonyshva  
+##### 55#       发表于 2026-3-31 23:51
+
+这下A➗是不是要开除所有华人了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  超级大基魔  
+##### 56#       发表于 2026-3-31 23:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好似喵，权重什么时候也泄露
+
+*****
+
+####  novem  
+##### 57#       发表于 2026-3-31 23:54
+
+ 本帖最后由 novem 于 2026-3-31 23:56 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69421853&amp;ptid=2277942" target="_blank">w2131978 发表于 2026-3-31 23:49</a>
+
+前几天刚讲了个笑话：最强网安模型</blockquote>
+这几天吹calude新模型的文章看的人流口水，智商都要掉完了
+
+*****
+
+####  whzfjd  
+##### 58#       发表于 2026-3-31 23:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69421675&amp;ptid=2277942" target="_blank">ayanamilin 发表于 2026-3-31 22:49</a>
+
+不出所料加了反蒸馏的代码，每轮请求会加一个假的 tool call</blockquote>
+这是防客户端自己被蒸馏？
+
