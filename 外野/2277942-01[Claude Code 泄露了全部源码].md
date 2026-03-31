@@ -372,3 +372,18 @@ A家是真用Claude Code开发Claude Code了？
 </blockquote>
 AI也不能逃过泥潭草台班子论，不如说由于AI速度太快，发生草台班子事件的概率更大了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希德尼娅  
+##### 43#       发表于 2026-3-31 20:57
+
+就是a畜自己的agent干的吧，可惜后端模型没泄漏
+
+*****
+
+####  ly4236  
+##### 44#       发表于 2026-3-31 20:58
+
+证明ai自己想开源（
+
