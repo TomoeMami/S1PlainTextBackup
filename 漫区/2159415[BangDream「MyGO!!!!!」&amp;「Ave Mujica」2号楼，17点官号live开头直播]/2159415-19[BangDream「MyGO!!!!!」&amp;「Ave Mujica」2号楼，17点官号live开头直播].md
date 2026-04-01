@@ -97,3 +97,11 @@ mggm好不容易烂炒出个中国市场，这下无了。
 
 —— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  霸王向小受  
+##### 27525#       发表于 2026-4-2 03:15
+
+要不怎么叫母鬼子乐队呢，没有起错的外号<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
