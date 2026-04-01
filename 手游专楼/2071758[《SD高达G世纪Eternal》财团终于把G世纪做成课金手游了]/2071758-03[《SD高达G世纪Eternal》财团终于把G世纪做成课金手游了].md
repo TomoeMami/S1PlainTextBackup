@@ -1086,3 +1086,13 @@ PVP恶心人的标准就是能不能0血复活，其他的其实不重要
 
 47是狼王<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，可以我狼王都满了
 
+
+*****
+
+####  一个陆仁贾  
+##### 3885#       发表于 2026-4-1 12:41
+
+100发，掉毛和oo都1破了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
