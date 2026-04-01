@@ -1667,3 +1667,16 @@ gemini的1m上下文纯勾巴搞笑的，google算力现在捉襟见肘，降智
 之前Gemini用的AI Studio，后来又用了GCP300的赠金，1M上下文还是有体感的。改代码的时候，经常会把整个 ...</blockquote>
 AI Studio或者调API勉强还成，网页端直接不可用级别，更了3.1之后巨变态经常感觉不如2.5
 
+
+*****
+
+####  阿刚  
+##### 156#       发表于 2026-4-1 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69421792&amp;ptid=2275806" target="_blank">tk553521 发表于 2026-3-31 23:27</a>
+
+今天中午用官方api写刘备突然色得不行，不知道是不是我的错觉
+
+—— 来自 nubia NX809J, Android 16, 鹅球  ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">是有点，尤其是用chat，什么指节啊，脊椎啊，颈窝啊之类的八股都没了，文字结构开始像人话了
+
