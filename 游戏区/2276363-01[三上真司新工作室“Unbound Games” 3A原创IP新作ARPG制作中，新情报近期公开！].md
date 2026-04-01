@@ -434,3 +434,24 @@ I am deeply moved to support the visionaries behind the legendary games I’ve c
 
 <img src="https://p.sda1.dev/31/8356af2c0aa982adfdbaa4d99e7bb6f7/1000163116.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzy516232108  
+##### 44#       发表于 2026-4-1 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69305130&amp;ptid=2276363" target="_blank">back57992 发表于 2026-3-10 10:13</a>
+
+这老哥已经好久没有做游戏了吧。。hifirush也不是制作人</blockquote>
+幽灵线东京算吗 做一半丢给他了
+
+
+*****
+
+####  byisme001  
+##### 45#       发表于 2026-4-1 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69424721&amp;ptid=2276363" target="_blank">zzy516232108 发表于 2026-4-1 15:20</a>
+幽灵线东京算吗 做一半丢给他了</blockquote>
+也不是扔给他啊 
+
