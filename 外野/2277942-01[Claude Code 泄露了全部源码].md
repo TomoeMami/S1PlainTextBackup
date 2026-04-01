@@ -741,3 +741,21 @@ Claude Code比codex强很多么</blockquote>
 
 claude code和Gemini cli有什么区别
 
+
+*****
+
+####  Van夫膜开  
+##### 78#       发表于 2026-4-1 17:59
+
+最后悔的应该是openAI，codex开源那天也没有这么大轰动，如果codex当时也被泄露一下，说不定就没有claude code什么事了。
+
+closedAI为数不多的open结果居然是这样。
+
+
+*****
+
+####  flyinsea  
+##### 79#       发表于 2026-4-1 18:04
+
+Claude Code 和Open Code如果都用同一个大模型的情况下体验区别大吗？
+
