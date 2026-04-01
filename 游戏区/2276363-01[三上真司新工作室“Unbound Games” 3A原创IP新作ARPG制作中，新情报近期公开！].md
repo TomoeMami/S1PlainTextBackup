@@ -455,3 +455,11 @@ I am deeply moved to support the visionaries behind the legendary games I’ve c
 幽灵线东京算吗 做一半丢给他了</blockquote>
 也不是扔给他啊 
 
+
+*****
+
+####  pk1308  
+##### 46#       发表于 2026-4-1 15:30
+
+tango最后也是被韩国公司买走了，
+
