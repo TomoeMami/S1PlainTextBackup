@@ -1263,3 +1263,27 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 
 说起来出货动画里，元祖那个朝背后射击好像是新加的？
 
+
+*****
+
+####  Abomination  
+##### 3904#       发表于 2026-4-1 20:24
+
+想要三动机师，下池想着抽到背心尊者就收手，结果120抽才出，不过之前出了5个OOR<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">和X的華沙哥
+
+<img src="https://img.stage1st.com/forum/202604/01/201933ycafkzgadwxdkdfd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-04-01-19-29-32-155_com.bandainamcoent.gget_WW.jpg</strong> (335.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-1 20:19 上传
+
+<img src="https://img.stage1st.com/forum/202604/01/201936rryxb1ww1ffdfyyd.png" referrerpolicy="no-referrer">
+
+<strong>MuMu-20260401-201603-531.png</strong> (1.4 MB, 下载次数: 0)
+
+下载附件
+
+2026-4-1 20:19 上传
+
