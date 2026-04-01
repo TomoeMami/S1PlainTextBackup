@@ -1180,3 +1180,11 @@ PVP恶心人的标准就是能不能0血复活，其他的其实不重要
 
 47抽NEW到了狼王，但是囤的70抽一个UR都没，挖矿去<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alialex  
+##### 3895#       发表于 2026-4-1 15:55
+
+new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
