@@ -1656,3 +1656,14 @@ gemini的1m上下文纯勾巴搞笑的，google算力现在捉襟见肘，降智
 
 —— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  chuchoselph  
+##### 155#       发表于 2026-4-1 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69421155&amp;ptid=2275806" target="_blank">villsian 发表于 2026-3-31 20:28</a>
+
+之前Gemini用的AI Studio，后来又用了GCP300的赠金，1M上下文还是有体感的。改代码的时候，经常会把整个 ...</blockquote>
+AI Studio或者调API勉强还成，网页端直接不可用级别，更了3.1之后巨变态经常感觉不如2.5
+
