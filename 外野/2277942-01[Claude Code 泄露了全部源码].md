@@ -718,3 +718,18 @@ trae迭代了那么多次不还是一坨
 
 Claude Code比codex强很多么
 
+
+*****
+
+####  流缨  
+##### 76#       发表于 2026-4-1 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69424784&amp;ptid=2277942" target="_blank">lly778 发表于 2026-4-1 15:29</a>
+
+Claude Code比codex强很多么</blockquote>
+都用本家模型的情况下，前者属于年级第一，后者大概年级前三
+
+让他们做普通水平测试看不大出来，但是具体到实际工程，我的体验是可以很清晰的看出CC比CODEX各方面都强，尤其是这个harness水平。
+
+好马配好鞍，现在好鞍free了，不敢想正在招agent工程师的Deepseek有多开心<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
