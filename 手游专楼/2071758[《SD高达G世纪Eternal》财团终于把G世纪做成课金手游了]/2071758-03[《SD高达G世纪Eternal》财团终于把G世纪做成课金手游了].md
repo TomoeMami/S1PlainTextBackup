@@ -1172,3 +1172,11 @@ PVP恶心人的标准就是能不能0血复活，其他的其实不重要
 
 这次终于欧了点 90 2掉毛1船 剩下补下就好了
 
+
+*****
+
+####  cwlo  
+##### 3894#       发表于 2026-4-1 15:00
+
+47抽NEW到了狼王，但是囤的70抽一个UR都没，挖矿去<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
