@@ -1255,3 +1255,11 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 
 新船的疾风迅雷也没几个UR有这词条<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 3903#       发表于 2026-4-1 19:12
+
+说起来出货动画里，元祖那个朝背后射击好像是新加的？
+
