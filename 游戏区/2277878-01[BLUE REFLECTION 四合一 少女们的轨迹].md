@@ -485,3 +485,14 @@ RAY应该就是个走路模拟器
 
 加衣服和dei也没关系<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">原本单在日本发布，后面改为全球化复刻加衣服也不少见了
 
+
+*****
+
+####  Cropia  
+##### 43#       发表于 2026-4-1 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69420454&amp;ptid=2277878" target="_blank">llysander 发表于 2026-3-31 17:57</a>
+
+河不河豚另说吧，就幻舞和帝，只能说是个像jrpg的jrpg，能跑，很难让人有再玩一遍的念头 ...</blockquote>
+感觉每一个都不是很想再玩一遍啊，看过的动画也不想在玩一遍剧情一样的游戏，手游想到它是个手游就已经不想玩了
+
