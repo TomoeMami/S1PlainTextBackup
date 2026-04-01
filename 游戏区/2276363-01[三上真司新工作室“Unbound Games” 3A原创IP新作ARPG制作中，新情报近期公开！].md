@@ -463,3 +463,12 @@ I am deeply moved to support the visionaries behind the legendary games I’ve c
 
 tango最后也是被韩国公司买走了，
 
+
+*****
+
+####  Piano-Forest  
+##### 47#         楼主| 发表于 2026-4-1 22:06
+
+<img src="https://p.sda1.dev/31/7eecfc42881f1c6b211a970c7adf9759/1000163124.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/52543874afc9f3fba4469407ef723739/1000163125.jpg" referrerpolicy="no-referrer">
+
