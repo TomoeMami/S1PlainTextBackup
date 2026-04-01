@@ -1311,3 +1311,31 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 
 感觉这个才是大奖？
 
+
+*****
+
+####  plok201  
+##### 3907#       发表于 2026-4-1 23:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次制作组真的对得起00了
+
+最强开发红，最强级别的sr驾驶，最强卡池盾，词条是环境吃香那档，掉毛还要等售后，00直接入职王牌银河战舰
+
+
+*****
+
+####  Marseille  
+##### 3908#       发表于 2026-4-1 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69425602&amp;ptid=2071758" target="_blank">rockroxas 发表于 2026-4-1 17:49</a>
+
+是不是说强敌什么时候可以直接打20来着？下次才有吗？</blockquote>
+是爬塔吧
+
+*****
+
+####  Schw  
+##### 3909#       发表于 2026-4-1 23:24
+
+现在是不是抽出来的ssr机子都没用直接分了吗
+
