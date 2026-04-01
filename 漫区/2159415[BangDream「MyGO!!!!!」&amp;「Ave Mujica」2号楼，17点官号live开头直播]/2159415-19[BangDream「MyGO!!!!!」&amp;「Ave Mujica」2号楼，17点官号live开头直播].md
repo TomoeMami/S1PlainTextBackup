@@ -105,3 +105,13 @@ mggm好不容易烂炒出个中国市场，这下无了。
 
 要不怎么叫母鬼子乐队呢，没有起错的外号<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxj649  
+##### 27526#       发表于 2026-4-2 03:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我更好奇这破剧GE还是BE
+
+这剧是乳不是我们，而是爸爸国
+
