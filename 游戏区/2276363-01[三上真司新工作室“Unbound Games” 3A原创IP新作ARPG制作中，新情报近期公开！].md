@@ -472,3 +472,11 @@ tango最后也是被韩国公司买走了，
 <img src="https://p.sda1.dev/31/7eecfc42881f1c6b211a970c7adf9759/1000163124.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/31/52543874afc9f3fba4469407ef723739/1000163125.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  魔法煎饼  
+##### 48#       发表于 2026-4-1 22:47
+
+有谣言说幽灵线东京原本的玩法构思没成才换成了上线时那个挺一般的第一人称战斗，是真的么？
+
