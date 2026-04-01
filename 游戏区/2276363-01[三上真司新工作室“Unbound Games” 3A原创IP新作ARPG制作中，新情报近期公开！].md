@@ -426,3 +426,11 @@ It is a profound honor to work alongside the top-tier creative team at Unbound.
 I am deeply moved to support the visionaries behind the legendary games I’ve cherished my whole life, especially a project directed by Shinji Mikami himself. We are currently preparing a diverse lineup—from massive blockbusters that will shock the world to experimental projects fueled by brilliant, sparkling ideas. Please look forward to what’s coming!
 <img src="https://p.sda1.dev/31/5a18eea5c8a6bb5ce98468c0f943bb9c/1000163103.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 43#         楼主| 发表于 2026-4-1 14:18
+
+<img src="https://p.sda1.dev/31/8356af2c0aa982adfdbaa4d99e7bb6f7/1000163116.jpg" referrerpolicy="no-referrer">
+
