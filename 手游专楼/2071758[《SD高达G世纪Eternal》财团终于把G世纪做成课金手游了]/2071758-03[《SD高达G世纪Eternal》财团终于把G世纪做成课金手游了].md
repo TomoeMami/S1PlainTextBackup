@@ -1339,3 +1339,25 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 
 现在是不是抽出来的ssr机子都没用直接分了吗
 
+
+*****
+
+####  blue321  
+##### 3910#       发表于 2026-4-1 23:45
+
+这ai用的掉毛是原地放地图炮的，直接把我笑死<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  plok201  
+##### 3911#       发表于 2026-4-1 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69426984&amp;ptid=2071758" target="_blank">Schw 发表于 2026-4-1 23:24</a>
+
+现在是不是抽出来的ssr机子都没用直接分了吗</blockquote>
+基本都是分了，除非真的很喜欢，像G那几台小金人
+
+目前所有卡池SSR都没地方用了，PVP用UR，永恒抄开发版作业，爬塔用不上
+
