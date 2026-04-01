@@ -162,3 +162,13 @@ PS5 Pro – ¥137,980
 
 【billbil-kun爆料称《刀剑神域 碎梦边境》即将加入PS一档会免】billbil-kun更新了有关4月PlayStation Plus一档免费游戏阵容的爆料，此前他称《堕落之主》将是会免游戏之一，现在他补充道第二款可供领取的作品是《刀剑神域 碎梦边境》。
 
+
+*****
+
+####  泰坦失足  
+##### 605#       发表于 2026-4-1 16:12
+
+[https://blog.playstation.com/202 ... sins-creed-shadows/](https://blog.playstation.com/2026/03/31/ps5-pro-new-pssr-upscaler-is-now-accessible-on-assassins-creed-shadows/)
+
+不错是不错, 看了眼美亚的历史价格, 什么叫做现在750刀, 马上899刀, 去年底全新的才650刀, 亚马逊出售的Used版585刀. 
+
