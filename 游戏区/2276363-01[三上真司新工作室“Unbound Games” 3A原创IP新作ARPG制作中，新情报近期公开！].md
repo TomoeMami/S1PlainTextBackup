@@ -401,3 +401,28 @@ SHIFT UP宣布已全资收购三上真司创立的新工作室「UNBOUND」，UN
 [https://shiftup.co.kr/eng/news/n ... 1&amp;code=news_eng](https://shiftup.co.kr/eng/news/news.php?ptype=view&amp;idx=416&amp;page=1&amp;code=news_eng)
 [https://shiftup.co.kr/eng/news/b ... 1&amp;code=blog_eng](https://shiftup.co.kr/eng/news/blog.php?ptype=view&amp;idx=414&amp;page=1&amp;code=blog_eng)
 
+
+*****
+
+####  Piano-Forest  
+##### 42#         楼主| 发表于 2026-4-1 11:54
+
+「UNBOUND x SHIFT UP」
+
+二つの力が一つとなり、完全新作の開発が始動します。三上真司氏が直接指揮を執るプロジェクトと、SHIFT UPとの融合が生み出すシナジーにぜひご注目ください！
+
+アンバウンド(UNBOUND)のメインスタッフの皆様と共に。
+
+私がこれまで愛してきた数々の伝説的なゲームを生み出してきた方々、そして三上真司さんが自らディレクションされる作品にお力添えできることを、心から光栄に思っております。
+
+世界を驚かせるような大作はもちろん、独創的なアイデアが光る実験的な作品まで準備しておりますので、どうぞご期待ください。
+
+「UNBOUND x SHIFT UP」
+
+Two powerhouses unite to develop a brand-new title. Stay tuned for the incredible synergy between Shinji Mikami's directorship and SHIFT UP!
+
+It is a profound honor to work alongside the top-tier creative team at Unbound.
+
+I am deeply moved to support the visionaries behind the legendary games I’ve cherished my whole life, especially a project directed by Shinji Mikami himself. We are currently preparing a diverse lineup—from massive blockbusters that will shock the world to experimental projects fueled by brilliant, sparkling ideas. Please look forward to what’s coming!
+<img src="https://p.sda1.dev/31/5a18eea5c8a6bb5ce98468c0f943bb9c/1000163103.jpg" referrerpolicy="no-referrer">
+
