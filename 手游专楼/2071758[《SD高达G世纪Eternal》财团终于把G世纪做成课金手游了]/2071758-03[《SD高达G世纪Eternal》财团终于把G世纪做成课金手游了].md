@@ -1188,3 +1188,26 @@ PVP恶心人的标准就是能不能0血复活，其他的其实不重要
 
 new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CCMkIII  
+##### 3896#       发表于 2026-4-1 16:15
+
+虽然没有非到极致但是出的也不多<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">就这样吧
+
+飞翼0不能上这次的船有点难绷，反而00能上王牌船，也许下赛季还应该继续王牌
+
+47抽的2UR是重复的能天使和正义，最难绷的是半周年46抽就出了能天使，但那个时候我就已经满破溢出了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  电脑死机  
+##### 3897#       发表于 2026-4-1 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69423790&amp;ptid=2071758" target="_blank">silvia 发表于 2026-4-1 12:14</a>
+
+47抽限定是gp03,万念俱灰了</blockquote>
+比我好，我出的狼王，之前已经有了
+
