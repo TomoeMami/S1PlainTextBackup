@@ -49,3 +49,16 @@ mggm好不容易烂炒出个中国市场，这下无了。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  UnrealApartheid  
+##### 27521#       发表于 2026-4-2 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69426643&amp;ptid=2159415" target="_blank">AlfredXC 发表于 2026-4-1 21:58</a>
+怎么林鼓子也干了</blockquote>
+林鼓子本人的推特已删，但是各大新闻和事务所网站也依然在刊载她出演的报道
+<img src="https://p.sda1.dev/31/0cf2f3f152de6ecb53d893f2d25dbf9e/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
