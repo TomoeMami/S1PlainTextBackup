@@ -1078,3 +1078,11 @@ PVP恶心人的标准就是能不能0血复活，其他的其实不重要
 
 奥托舰长，你在哪里，，，
 
+
+*****
+
+####  dio999  
+##### 3884#       发表于 2026-4-1 12:30
+
+47是狼王<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，可以我狼王都满了
+
