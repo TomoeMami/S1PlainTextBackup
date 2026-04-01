@@ -62,3 +62,28 @@ mggm好不容易烂炒出个中国市场，这下无了。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  kiragz  
+##### 27522#       发表于 2026-4-2 00:18
+
+都神风了，怎么一点敏感性都没
+
+还是她们真的觉得这很光荣
+
+太有乐子了
+
+*****
+
+####  saintsimpler  
+##### 27523#       发表于 2026-4-2 00:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69427176&amp;ptid=2159415" target="_blank">kiragz 发表于 2026-4-2 00:18</a>
+都神风了，怎么一点敏感性都没
+
+还是她们真的觉得这很光荣
+
+太有乐子了</blockquote>
+对于日本人来说当然觉得光荣
+
