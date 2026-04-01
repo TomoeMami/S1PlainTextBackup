@@ -984,3 +984,38 @@ PVP恶心人的标准就是能不能0血复活，其他的其实不重要
 
 蛋R出货有特殊演出
 
+
+*****
+
+####  blue321  
+##### 3874#       发表于 2026-4-1 11:16
+
+47抽没有一个new，保底的限定是神…
+非常不错了但是我想要z！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  vincenttc  
+##### 3875#       发表于 2026-4-1 11:17
+
+100抽结束战斗
+3个00R，限定船也出来了，还有两个常驻船
+100保底给的飞翼<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 代哥牛逼
+
+*****
+
+####  horacio  
+##### 3876#       发表于 2026-4-1 11:21
+
+这47抽给我的是高达，天鹅，限定是强自。真不是读心吗？非限定就这两货满破了，限定强自我已经满破了2只了。。
+
+
+*****
+
+####  dio999  
+##### 3877#       发表于 2026-4-1 11:24
+
+6万钻下去一毛不拔啊，oo两星，疾风船出了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
