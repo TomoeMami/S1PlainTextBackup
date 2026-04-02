@@ -1410,3 +1410,23 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 
 话说就目前刚过了初始教程的感受来说，对比起家用机，没买原作BGM包的话是不是太闷了一点……过教程时还得忍受那个掐嗓子的棒读教官，老实说有点折磨
 
+
+*****
+
+####  gpx234mqx  
+##### 3916#       发表于 2026-4-2 21:41
+
+有空出新词条
+
+先把突破力44的限定船给出了啊<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 3917#       发表于 2026-4-2 21:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69425307&amp;ptid=2071758" target="_blank">shinnluna 发表于 2026-4-1 16:54</a>
+
+这船有必要抽吗，未来可期船，即战力是用不上了…………但是小日本手游，呵呵，之前出命运，监牢也说未来可 ...</blockquote>
+坚牢队还是很稳的啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
