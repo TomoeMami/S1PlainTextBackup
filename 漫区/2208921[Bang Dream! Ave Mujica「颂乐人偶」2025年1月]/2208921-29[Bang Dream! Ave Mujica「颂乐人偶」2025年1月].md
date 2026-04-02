@@ -805,3 +805,55 @@ Ave Mujica 部分</blockquote>
 <img src="https://p.sda1.dev/31/31c6739a9b8f39431c3bd87825acfec3/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/31/6f794216a2e01327ef98527159e26292/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 41836#       发表于 2026-4-2 21:13
+
+       
+
+<img src="https://img.stage1st.com/forum/202604/02/210930xzz1mvzh6ku1r1bv.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-04-02_21-03-52.jpg</strong> (204.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-2 21:09 上传
+
+       [https://x.com/bang_dream_info/status/2039687542086483999](https://x.com/bang_dream_info/status/2039687542086483999)
+
+       [https://www.youtube.com/watch?v=u77D1tZPi6w](https://www.youtube.com/watch?v=u77D1tZPi6w)
+
+       <strong>【元祖！BanG Dream Chan】 #26 魔法少女Pappy, Muji GO!</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202604/02/210930nm6g6gg8yzhgp77z.jpg" referrerpolicy="no-referrer">
+
+<strong>452c13a2a2f146fcfeb0616192ae59dd3a988bb2.jpg</strong> (183.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-2 21:09 上传
+
+</blockquote>
+       [https://www.bilibili.com/video/BV1Hw9LB1EZG/](https://www.bilibili.com/video/BV1Hw9LB1EZG/)
+
+*****
+
+####  堀内爱里衣  
+##### 41837#       发表于 2026-4-2 21:14
+
+       
+
+<img src="https://img.stage1st.com/forum/202604/02/211411vuuoc69cfus56gu9.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-04-02_16-12-40.jpg</strong> (266.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-2 21:14 上传
+
+       [https://x.com/BDP_AveMujica/status/2039613815164432855](https://x.com/BDP_AveMujica/status/2039613815164432855)
+
+       [https://bang-dream.com/discographies/4192/](https://bang-dream.com/discographies/4192/)
+
