@@ -1864,3 +1864,44 @@ https://mp.weixin.qq.com/s/bYZrKp48Y7EpsU8_vd6TcQ
 真有钱烧啊，现在没感觉目前的deepseek能赢利啊，我还寻思着这次v4会不会有coding plan来着    Re:Source ...</blockquote>
 思路发散下  其实是给自己量化公司做一些社会公益  承担大厂责任  毕竟去年又又又赚了50%那
 
+
+*****
+
+####  龙骑士尹志平  
+##### 172#       发表于 2026-4-2 19:08
+
+研究人脑是不是被陈天桥带歪了
+
+
+*****
+
+####  有鱼  
+##### 173#       发表于 2026-4-2 19:10
+
+不学人脑的话，llm永远不会是agi，就这么回事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在御三家的能力相比agi，估计还是约等于0吧。
+
+*****
+
+####  有鱼  
+##### 174#       发表于 2026-4-2 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69430860&amp;ptid=2275806" target="_blank">哈里-谢顿 发表于 2026-4-2 18:10</a>
+[https://mp.weixin.qq.com/s/bYZrKp48Y7EpsU8_vd6TcQ](https://mp.weixin.qq.com/s/bYZrKp48Y7EpsU8_vd6TcQ)
+
+就在DeepSeek V4山雨欲来的前夜，晚点LatePost的更新 ...</blockquote>
+虽然总结很不错，但是为啥唐突出现了文中没有提到的罗福莉？<img src="https://static.stage1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈里-谢顿  
+##### 175#       发表于 2026-4-2 19:13
+
+<blockquote>龙骑士尹志平 发表于 2026-4-2 19:08
+研究人脑是不是被陈天桥带歪了</blockquote>
+
+研究人脑是从计算机开始就有的路线
+
+不过现在人类对大脑研究都只能说很浅，不好说会有啥结果
+
