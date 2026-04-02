@@ -25,3 +25,15 @@
 
 也akf一段时间了上礼拜才捡起来 光能天上那个大蝠鲼能击杀吗<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  再也不咬钩勒  
+##### 7422#       发表于 2026-4-2 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69429272&amp;ptid=2170852" target="_blank">kalavinka 发表于 2026-4-2 12:37</a>
+也akf一段时间了上礼拜才捡起来 光能天上那个大蝠鲼能击杀吗</blockquote>
+4穿以上都能，前提是打的准<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SER-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
