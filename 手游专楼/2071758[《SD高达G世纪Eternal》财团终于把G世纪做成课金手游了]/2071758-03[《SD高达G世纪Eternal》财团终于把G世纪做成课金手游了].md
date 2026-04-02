@@ -1361,3 +1361,14 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 
 目前所有卡池SSR都没地方用了，PVP用UR，永恒抄开发版作业，爬塔用不上
 
+
+*****
+
+####  电脑死机  
+##### 3912#       发表于 2026-4-2 08:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69426984&amp;ptid=2071758" target="_blank">Schw 发表于 2026-4-1 23:24</a>
+
+现在是不是抽出来的ssr机子都没用直接分了吗</blockquote>
+图鉴收藏用，另外也可以拿出来玩玩，谁叫AOZ和S高达没开发机呢
+
