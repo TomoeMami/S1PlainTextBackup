@@ -2076,3 +2076,11 @@ ds真的能维持开源最强的地位就很不错了，当年直接开源打闭
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Litccc  
+##### 190#       发表于 2026-4-3 01:39
+
+v4l写文确实可以，没gemini那么极端，也不像claude那样冷淡，还得是⏰自己的大模型<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
