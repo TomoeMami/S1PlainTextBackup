@@ -1480,3 +1480,14 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 
 后面还有标签呢，比如虎视眈眈这种
 
+
+*****
+
+####  冰风血羽  
+##### 3922#       发表于 2026-4-3 07:22
+
+自建号上去抽了玩，70抽俩oor+掉毛+新安洲，俩免费池选了能天使跟亚斯塔禄，随便玩玩应该没问题吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+说起来明明是谷歌下的日服，线路选日本却会报483，选hk才能进，神秘
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
