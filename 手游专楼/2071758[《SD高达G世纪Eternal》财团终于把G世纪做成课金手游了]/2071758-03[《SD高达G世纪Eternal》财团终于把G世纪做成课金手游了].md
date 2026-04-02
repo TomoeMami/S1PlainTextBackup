@@ -1390,3 +1390,13 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 
 但是好歹区分化一下吧<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 3914#       发表于 2026-4-2 12:32
+
+这个系列的tag连四字都凑不明白，最后一个直接叫切り札
+
+不要太为难代便了
+
