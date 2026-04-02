@@ -480,3 +480,15 @@ tango最后也是被韩国公司买走了，
 
 有谣言说幽灵线东京原本的玩法构思没成才换成了上线时那个挺一般的第一人称战斗，是真的么？
 
+
+*****
+
+####  astrayveller  
+##### 49#       发表于 2026-4-2 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69426838&amp;ptid=2276363" target="_blank">魔法煎饼 发表于 2026-4-1 22:47</a>
+有谣言说幽灵线东京原本的玩法构思没成才换成了上线时那个挺一般的第一人称战斗，是真的么？ ...</blockquote>
+制作人跑路了 三上半路接的
+
+— from Xiaomi 2410DPN6CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
