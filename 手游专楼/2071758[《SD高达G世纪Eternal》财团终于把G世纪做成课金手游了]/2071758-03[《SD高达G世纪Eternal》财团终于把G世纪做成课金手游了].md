@@ -1430,3 +1430,11 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 这船有必要抽吗，未来可期船，即战力是用不上了…………但是小日本手游，呵呵，之前出命运，监牢也说未来可 ...</blockquote>
 坚牢队还是很稳的啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  grey0310  
+##### 3918#       发表于 2026-4-2 21:52
+
+会出多船玩法吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
