@@ -37,3 +37,15 @@
 
 —— 来自 HONOR SER-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  kalavinka  
+##### 7423#         楼主| 发表于 2026-4-2 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69429733&amp;ptid=2170852" target="_blank">再也不咬钩勒 发表于 2026-4-2 14:18</a>
+4穿以上都能，前提是打的准
+
+你说的是利维坦的话，那个用轮椅炮打比较好，瞄准肚子下的圆圈，但是 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">原来是王泪急冻盖拉
+
