@@ -1853,3 +1853,14 @@ https://mp.weixin.qq.com/s/bYZrKp48Y7EpsU8_vd6TcQ
 
 真有钱烧啊，现在没感觉目前的deepseek能赢利啊，我还寻思着这次v4会不会有coding plan来着    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  忧郁的杰哥  
+##### 171#       发表于 2026-4-2 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69431013&amp;ptid=2275806" target="_blank">脸宽 发表于 2026-4-2 18:49</a>
+
+真有钱烧啊，现在没感觉目前的deepseek能赢利啊，我还寻思着这次v4会不会有coding plan来着    Re:Source ...</blockquote>
+思路发散下  其实是给自己量化公司做一些社会公益  承担大厂责任  毕竟去年又又又赚了50%那
+
