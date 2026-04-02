@@ -1438,3 +1438,11 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 
 会出多船玩法吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 3919#       发表于 2026-4-2 22:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">红傻子那开SSP00R似乎比他开UR能天使要厉害一点
+
