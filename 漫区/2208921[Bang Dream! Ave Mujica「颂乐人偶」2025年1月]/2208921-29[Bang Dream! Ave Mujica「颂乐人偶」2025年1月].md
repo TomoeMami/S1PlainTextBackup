@@ -857,3 +857,33 @@ Ave Mujica 部分</blockquote>
 
        [https://bang-dream.com/discographies/4192/](https://bang-dream.com/discographies/4192/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41838#       发表于 2026-4-2 21:19
+
+       
+
+<img src="https://img.stage1st.com/forum/202604/02/211913ewet04wtt7xqzitr.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-04-02_21-17-50.jpg</strong> (242.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-2 21:19 上传
+
+       [https://x.com/miyaji_maseiya/status/2039691820658225158](https://x.com/miyaji_maseiya/status/2039691820658225158)
+
+       
+
+<img src="https://img.stage1st.com/forum/202604/02/211912eok5glf9lggosjfs.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-04-02_21-18-33.jpg</strong> (116.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-2 21:19 上传
+
+       [https://t.bilibili.com/1186686838887153681](https://t.bilibili.com/1186686838887153681)
+
