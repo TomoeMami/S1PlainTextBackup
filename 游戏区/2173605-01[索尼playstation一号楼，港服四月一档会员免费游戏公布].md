@@ -197,3 +197,22 @@ PS5 Pro – ¥137,980
 
 堕落之主不错，这个月回本了
 
+
+*****
+
+####  黑猫软  
+##### 608#       发表于 2026-4-3 01:25
+
+https://www.playstation.com/en-sg/introduction-resident-evil/?emcid=ow-3r-531871
+
+生化30周年头像
+
+<img src="https://img.stage1st.com/forum/202604/03/012523f0inhoilsnyl6oyi.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1775150682341_551.jpg</strong> (197.81 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-4-3 01:25 上传
+
