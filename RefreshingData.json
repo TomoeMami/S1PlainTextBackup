@@ -12384,10 +12384,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 11644,
+    "totalreply": 11645,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼4月]",
-    "lastedit": 1775134457,
+    "lastedit": 1775135051,
     "category": "外野",
     "active": true,
     "update": false
@@ -14189,7 +14189,7 @@
     "newtitle": "[之前用的整合资源站寄了，坛友有无相似网站推荐]",
     "lastedit": 1774875866,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2277111": {
@@ -16920,10 +16920,10 @@
     "update": false
   },
   "2277977": {
-    "totalreply": 1315,
+    "totalreply": 1323,
     "title": "[中东砖楼 2026年4月版]",
     "newtitle": "[中东砖楼 2026年4月版]",
-    "lastedit": 1775134457,
+    "lastedit": 1775135051,
     "category": "外野",
     "active": true,
     "update": false
@@ -17280,10 +17280,10 @@
     "update": false
   },
   "2278069": {
-    "totalreply": 104,
+    "totalreply": 105,
     "title": "[AI研发中，华人的断崖式高比重地位是怎么出现的？]",
     "newtitle": "[AI研发中，华人的断崖式高比重地位是怎么出现的？]",
-    "lastedit": 1775128458,
+    "lastedit": 1775135053,
     "category": "外野",
     "active": true,
     "update": false
@@ -17343,10 +17343,10 @@
     "update": false
   },
   "2278080": {
-    "totalreply": 70,
+    "totalreply": 72,
     "title": "[mygo声优参演神风特攻作品]",
     "newtitle": "[mygo声优参演神风特攻作品]",
-    "lastedit": 1775133367,
+    "lastedit": 1775135167,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17392,6 +17392,24 @@
     "title": "[e社这是重置幻磷了？]",
     "newtitle": "[e社这是重置幻磷了？]",
     "lastedit": 1775131096,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2266494": {
+    "totalreply": 47,
+    "title": "[【玄鉴仙族】剧情讨论专楼]",
+    "newtitle": "[【玄鉴仙族】剧情讨论专楼]",
+    "lastedit": 1775135053,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2278066": {
+    "totalreply": 41,
+    "title": "[《龙战士4》今日登录steam，无中文，首发五折]",
+    "newtitle": "[《龙战士4》今日登录steam，无中文，首发五折]",
+    "lastedit": 1775135289,
     "category": "游戏区",
     "active": true,
     "update": false
