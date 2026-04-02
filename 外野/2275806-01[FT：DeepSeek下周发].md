@@ -2030,3 +2030,13 @@ ds真的能维持开源最强的地位就很不错了，当年直接开源打闭
 
 话说今晚看到有人测了二次元nsfw知识，说是目前国模里面数据库最全的，不知道sfw方面是否也一样
 
+
+*****
+
+####  羊寢  
+##### 186#       发表于 2026-4-3 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69431864&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-4-2 22:41</a>
+以前有没有多次搜索，今晚用的时候才发现</blockquote>
+看了一下确实现在都是多步搜索了，而且之前灰测能不能灰到都是纯看脸，现在应该是是大面积铺开了，下周可能真有希望？虽然我是希望能等一周……下周我玩不了<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
