@@ -2011,3 +2011,14 @@ ds真的能维持开源最强的地位就很不错了，当年直接开源打闭
 
 现在动不动90个网页，是上下文变大的原因吗
 
+
+*****
+
+####  御坂MKII  
+##### 184#       发表于 2026-4-2 23:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69431954&amp;ptid=2275806" target="_blank">weironx 发表于 2026-4-2 23:06</a>
+
+现在动不动90个网页，是上下文变大的原因吗</blockquote>
+这个倒应该是工作流变了的原因，属于 agent 能力的一部分
+
