@@ -1816,3 +1816,32 @@ https://mp.weixin.qq.com/s/bYZrKp48Y7EpsU8_vd6TcQ
 
 #DeepSeek不打卡也不加班##DeepSeekV4或将在4月发布#
 
+
+*****
+
+####  Azcarlo  
+##### 168#       发表于 2026-4-2 18:33
+
+晚点的文
+V4 发布前的 DeepSeek：特质、组织和梁文锋的独特目标
+https://mp.weixin.qq.com/s/bYZrKp48Y7EpsU8_vd6TcQ
+梁老板的公司真是科研狗的理想之地，正常上下班没有强制kpi，有点子就给你调资源。
+甚至还有尝试做类脑方向研究的你敢信。
+我就不期待DS以后发的模型性能多强了，更在意梁老板有没有怪点子和花活给大伙整。
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  a4ac7  
+##### 169#       发表于 2026-4-2 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69430860&amp;ptid=2275806" target="_blank">哈里-谢顿 发表于 2026-4-2 18:10</a>
+https://mp.weixin.qq.com/s/bYZrKp48Y7EpsU8_vd6TcQ
+
+就在DeepSeek V4山雨欲来的前夜，晚点LatePost的更新 ...</blockquote>
+没打卡不加班，这还说什么呢，祝DS这样的公司越办越好了
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
