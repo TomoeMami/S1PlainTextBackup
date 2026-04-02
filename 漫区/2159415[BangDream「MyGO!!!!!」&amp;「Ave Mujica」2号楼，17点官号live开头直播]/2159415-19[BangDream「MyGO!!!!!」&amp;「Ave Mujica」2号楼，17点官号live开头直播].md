@@ -308,3 +308,14 @@ mggm好不容易烂炒出个中国市场，这下无了。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  adw667  
+##### 27547#       发表于 2026-4-2 12:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69428811&amp;ptid=2159415" target="_blank">飞天意面怪 发表于 2026-4-2 11:18</a>
+
+因为这种事换人怕是不想要它们自己国内市场了，还是我们这边早点给封杀了完事。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那日本人要狠狠反思一下为什么这种事换人会导致失去它们的国内市场，我没义务去共情或理解她
+
