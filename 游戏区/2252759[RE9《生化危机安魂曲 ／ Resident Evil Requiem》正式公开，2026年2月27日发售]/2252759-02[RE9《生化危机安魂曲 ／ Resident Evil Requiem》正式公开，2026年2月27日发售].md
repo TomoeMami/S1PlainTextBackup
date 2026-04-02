@@ -8591,3 +8591,15 @@ DLC的话，反正不会太少吧，毕竟这作销量那么好，应该比7，8
 
 今天看通关CG发现这里有团黑影，然后又迅速向左消失了，疑似DLC伏笔。
 
+
+*****
+
+####  谁介意  
+##### 2217#       发表于 2026-4-2 19:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69413744&amp;ptid=2252759" target="_blank">纯爱战士段正淳 发表于 2026-3-30 13:09</a>
+迫击炮那儿就更搞了
+
+bsaa部署这玩意儿是想打啥</blockquote>
+也许是进城时遇到的大蜘蛛
+
