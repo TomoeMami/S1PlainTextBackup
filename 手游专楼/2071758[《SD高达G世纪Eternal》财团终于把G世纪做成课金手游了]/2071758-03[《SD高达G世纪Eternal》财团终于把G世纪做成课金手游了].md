@@ -1372,3 +1372,21 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 现在是不是抽出来的ssr机子都没用直接分了吗</blockquote>
 图鉴收藏用，另外也可以拿出来玩玩，谁叫AOZ和S高达没开发机呢
 
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 3913#       发表于 2026-4-2 09:51
+
+有一说一
+
+【疾风迅雷】和【电光火石】
+
+就算是日语，这不也是一个意思吗
+
+居然拆开2种tag
+
+知道你要卖钱
+
+但是好歹区分化一下吧<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
