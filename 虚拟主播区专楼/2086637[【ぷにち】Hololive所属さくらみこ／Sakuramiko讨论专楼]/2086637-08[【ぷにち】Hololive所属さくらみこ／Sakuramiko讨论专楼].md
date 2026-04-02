@@ -282,3 +282,61 @@ NG word OMG
 
 —— 来自 vivo V2509A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  holofan  
+##### 11540#       发表于 2026-4-1 21:33
+
+ 本帖最后由 holofan 于 2026-4-1 22:10 编辑 
+
+今天的新闻
+
+taiyaki的周边预定不知道为什么出事故了（我也是最后一天才下单的也没出问题就是）然后也不知道什么时候突然悄悄地决定延期了，而且延期消息没有在推特上做任何告知（刚好miko休假，脱离推特了）
+
+<img src="https://img.stage1st.com/forum/202604/01/213134ftj4jks14kegjy9e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-1 21:31 上传
+
+另一个之前工商联动的速冻饺子一开始限一个人只能买一份被抱怨然后运营调整了一下放开限制，限定35份（到现在也还没卖完）
+
+<img src="https://img.stage1st.com/forum/202604/01/213357myl8e6yh6z6hsli6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (152.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-1 21:33 上传
+
+第三个新闻 1/7大手办的专用场景台座加印miko在expo展示的等身大模型的台座留下的亲笔字
+
+<img src="https://img.stage1st.com/forum/202604/01/213834b42b52qcbzp1deny.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.35 MB, 下载次数: 0)
+
+下载附件
+
+2026-4-1 21:38 上传
+
+*****
+
+####  holofan  
+##### 11541#       发表于 2026-4-2 17:26
+
+会限投稿壁纸
+以下内容需要积分高于 5000 才可浏览
+
+<img src="https://img.stage1st.com/forum/202604/02/172556grsm9t4bb5m3wzx4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.8 MB, 下载次数: 0)
+
+下载附件
+
+2026-4-2 17:25 上传
+
+其他日记说了些有的没的
+
