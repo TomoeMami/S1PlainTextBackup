@@ -1446,3 +1446,29 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">红傻子那开SSP00R似乎比他开UR能天使要厉害一点
 
+
+*****
+
+####  Abomination  
+##### 3920#       发表于 2026-4-2 22:53
+
+查了现在UR老四大标签各20左右一击必杀27
+
+新的一个8一个6，我猜新的标签可能有8到12个，分那么多干嘛<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202604/02/224700byf5oc5us7wc7dfb.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2026-04-02 224508.png</strong> (2.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-2 22:47 上传
+
+<img src="https://img.stage1st.com/forum/202604/02/224701pnokmkj5yyku5za8.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2026-04-02 224533.png</strong> (1.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-2 22:47 上传
+
