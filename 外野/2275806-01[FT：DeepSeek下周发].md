@@ -2066,3 +2066,13 @@ ds真的能维持开源最强的地位就很不错了，当年直接开源打闭
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  7do  
+##### 189#       发表于 2026-4-3 01:26
+
+所以ds是真的在搞ai，不只是大语言模型了
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
