@@ -2040,3 +2040,15 @@ ds真的能维持开源最强的地位就很不错了，当年直接开源打闭
 以前有没有多次搜索，今晚用的时候才发现</blockquote>
 看了一下确实现在都是多步搜索了，而且之前灰测能不能灰到都是纯看脸，现在应该是是大面积铺开了，下周可能真有希望？虽然我是希望能等一周……下周我玩不了<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杀人鲸  
+##### 187#       发表于 2026-4-3 01:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69431954&amp;ptid=2275806" target="_blank">weironx 发表于 2026-4-2 23:06</a>
+现在动不动90个网页，是上下文变大的原因吗</blockquote>
+我嘞了个去，我总算是体验到了那些灰度测试的哥们才体验到的东西，真的开始全面铺开了吗？那也太好了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
