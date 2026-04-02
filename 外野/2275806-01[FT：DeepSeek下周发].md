@@ -1978,3 +1978,11 @@ ds真的能维持开源最强的地位就很不错了，当年直接开源打闭
 
 多模态什么的都不重要啦，便宜大碗的1M上下文快来吧。
 
+
+*****
+
+####  御坂MKII  
+##### 181#       发表于 2026-4-2 22:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不加班（2c 业务相关除外
+
