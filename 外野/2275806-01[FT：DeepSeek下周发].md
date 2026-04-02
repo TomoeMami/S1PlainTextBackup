@@ -1905,3 +1905,62 @@ https://mp.weixin.qq.com/s/bYZrKp48Y7EpsU8_vd6TcQ
 
 不过现在人类对大脑研究都只能说很浅，不好说会有啥结果
 
+
+*****
+
+####  哈里-谢顿  
+##### 176#       发表于 2026-4-2 19:14
+
+<blockquote>有鱼 发表于 2026-4-2 19:12
+虽然总结很不错，但是为啥唐突出现了文中没有提到的罗福莉？</blockquote>
+这是阑夕的总结，应该是私货
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 有鱼| + 1|得学啊|
+
+查看全部评分
+
+*****
+
+####  wlbthh  
+##### 177#       发表于 2026-4-2 19:18
+
+不容易，压力下好好生活好好发展就挺厉害挺能耐的
+
+—— 来自 Xiaomi 23049RAD8C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  oldttt  
+##### 178#       发表于 2026-4-2 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69430953&amp;ptid=2275806" target="_blank">a4ac7 发表于 2026-4-2 18:34</a>
+没打卡不加班，这还说什么呢，祝DS这样的公司越办越好了
+
+—— 来自 HUAWEI PLA-AL10, Android 12, 鹅球  ...</blockquote>
++1 
+跟那些打着研发旗号一副全心投入假装不知道上下班节假日 一到下班点就下楼坐上车语音给各种人派活的虚伪人士相比 天壤之别
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  有鱼  
+##### 179#       发表于 2026-4-2 19:22
+
+当代的llm已经是一个聚集着巨量资源的大厂战场了
+
+ds真的能维持开源最强的地位就很不错了，当年直接开源打闭源御三家也算是时也命也。
+
+还是那句话，能搞出便宜大碗的1m上下文大模型，就能封梁圣<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+多模态都没那么重要，虽然我觉得长期来看想搞agi多模态是不可避免的。
+
