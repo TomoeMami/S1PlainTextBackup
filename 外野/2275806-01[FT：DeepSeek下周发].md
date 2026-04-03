@@ -2437,3 +2437,13 @@ DS这迟迟不出新模型的样子，要变路边了吗？
 
 应该只是orc，这个原来也有。
 
+
+*****
+
+####  羊寢  
+##### 219#       发表于 2026-4-3 15:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69435436&amp;ptid=2275806" target="_blank">十点半 发表于 2026-4-3 15:33</a>
+应该只是orc，这个原来也有。</blockquote>
+关键就是不知道鲸鱼娘是不是也要学其他家那样弄快速版和专家版，以及不知道专家版ocr能力如何
+
