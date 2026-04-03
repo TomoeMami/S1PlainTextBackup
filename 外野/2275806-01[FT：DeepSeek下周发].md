@@ -2295,3 +2295,22 @@ qwen3.5的27b也能打80b 只能说属于正统进化
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  忧郁的杰哥  
+##### 208#       发表于 2026-4-3 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69433851&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-4-3 11:13</a>
+
+主要是旗舰你发出来了大家也用不起啊
+
+就便宜火山之类的平台了
+
+只开源小模型也挺好的说真的</blockquote>
+个人肯定是小参数
+
+我意思是对于企业来讲  Qwen3.5  397B  AWQ量化只有200多G的权重文件了  是可以负担本地部署调用API服务的
+
+如果以后千问之开源30B左右的  那可能只能自己微调或者去买API用了
+
