@@ -49,3 +49,14 @@
 你说的是利维坦的话，那个用轮椅炮打比较好，瞄准肚子下的圆圈，但是 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">原来是王泪急冻盖拉
 
+
+*****
+
+####  stormquantage  
+##### 7424#       发表于 2026-4-4 02:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69428918&amp;ptid=2170852" target="_blank">曼彻斯特联 发表于 2026-4-2 11:32</a>
+
+因为指挥官拉红武斗被下放到客机也生效了，不过这版本喷火武器在东线战力很足，可以抵消这部分增强。 ...</blockquote>
+现版本真正抵消红武斗满地跑的是电榴弹大人，全方位落地就追踪高伤还没自伤真就爆杀指挥官+武斗集群。这比起来喷火因为DOT还得被挠爪子。
+
