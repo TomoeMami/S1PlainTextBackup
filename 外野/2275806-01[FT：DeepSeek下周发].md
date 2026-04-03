@@ -2526,3 +2526,18 @@ deepseek-ocr识别真的很快。
 
 — from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  晓黑雾  
+##### 226#       发表于 2026-4-3 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69435100&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-4-3 14:33</a>
+
+确实傻一点，硅基上面模型，ds刘备能力不如kimi2.5
+
+而且至少会慢啊，ds4出来肯定得过一阵子
+
+不过年初送了 ...</blockquote>
+kimi2.5怎么写刘备？求个教程<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
