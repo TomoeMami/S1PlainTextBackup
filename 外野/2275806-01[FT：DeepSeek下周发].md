@@ -2398,3 +2398,11 @@ DS这迟迟不出新模型的样子，要变路边了吗？
 
 不过ds官方没有嵌入模型，用RAG知识库还是得用第三方
 
+
+*****
+
+####  羊寢  
+##### 215#       发表于 2026-4-3 15:10
+
+现在网页版多了个快速模式的说明，然而没人知道这个快速模式究竟是什么<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
