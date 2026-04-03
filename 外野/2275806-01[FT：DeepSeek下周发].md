@@ -2549,3 +2549,24 @@ kimi2.5怎么写刘备？求个教程<img src="https://static.stage1st.com/image
 
 好像还挖出来有专家模式（不能上传文件）了
 
+
+*****
+
+####  lostfile  
+##### 228#       发表于 2026-4-3 23:06
+
+the information今晚的一篇报道，说的是V4模型可能很快（未来几周内）。DeepSeek 的 V4 模型将运行在H芯片上，推动中国实现技术自主。中国科技巨头已订购数十万颗H昇teng 950PR 芯片。由于批量采购，H昇teng 950PR 芯片价格飙升 20%。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  羊寢  
+##### 229#       发表于 2026-4-3 23:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69436130&amp;ptid=2275806" target="_blank">晓黑雾 发表于 2026-4-3 17:40</a>
+kimi2.5怎么写刘备？求个教程</blockquote>
+弄个酒馆(sillytavern，不是云酒馆)/chatbox/cherrystudio接api，要用硅基的话去闲鱼之类的买赠金来用
+首推的还是直接弄酒馆，不过现在某脑关门不让进人了所以预设什么的不太好弄，或者可以看看有没有在里面的人愿意分享预设资源吧……(我自己没下过kimi的预设不知道自己现在用的这个ds预设还能不能给kimi，不过感觉最好还是拿专用预设比较好)
+酒馆安装教程b站搜一下就有，如果嫌太麻烦那就用chatbox或者cherry吧……好像我记得cherry会比较接近酒馆，chatbox就是得每次都自己手动调了。不过这俩我上一次用已经是一年多之前，也可能现在功能有进化了但我不知道，不过这俩在写文尤其是写刘备方面玩家数量肯定是比不过酒馆，酒馆的资源和教程也相对多一些
+
