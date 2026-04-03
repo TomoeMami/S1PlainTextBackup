@@ -2590,3 +2590,24 @@ the information今晚的一篇报道，说的是V4模型可能很快（未来几
 the information去年底就发了一次假消息
 现实是没人知道深度求索什么时候发新模型，他家本来也没啥必须更新的动力
 
+
+*****
+
+####  羊寢  
+##### 232#       发表于 2026-4-3 23:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69437551&amp;ptid=2275806" target="_blank">andychen 发表于 2026-4-3 23:12</a>
+the information去年底就发了一次假消息
+现实是没人知道深度求索什么时候发新模型，他家本来也没啥必须更 ...</blockquote>
+但是从二月底拖到现在都是在网页和app在测，这么长时间也该更了……总不可能真要等到搓出多模态才会正式更新吧，虽然ds肯定是有准备做多模态，但我觉得应该不会这么快就端出成品
+
+*****
+
+####  木水风铃  
+##### 233#       发表于 2026-4-3 23:21
+
+ds只要能达到哈基米2.5的效果，我就不用受谷畜和a畜限制的气了。。。
+早日端上来吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
