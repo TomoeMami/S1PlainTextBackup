@@ -2570,3 +2570,23 @@ kimi2.5怎么写刘备？求个教程</blockquote>
 首推的还是直接弄酒馆，不过现在某脑关门不让进人了所以预设什么的不太好弄，或者可以看看有没有在里面的人愿意分享预设资源吧……(我自己没下过kimi的预设不知道自己现在用的这个ds预设还能不能给kimi，不过感觉最好还是拿专用预设比较好)
 酒馆安装教程b站搜一下就有，如果嫌太麻烦那就用chatbox或者cherry吧……好像我记得cherry会比较接近酒馆，chatbox就是得每次都自己手动调了。不过这俩我上一次用已经是一年多之前，也可能现在功能有进化了但我不知道，不过这俩在写文尤其是写刘备方面玩家数量肯定是比不过酒馆，酒馆的资源和教程也相对多一些
 
+
+*****
+
+####  羊寢  
+##### 230#       发表于 2026-4-3 23:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69437528&amp;ptid=2275806" target="_blank">lostfile 发表于 2026-4-3 23:06</a>
+the information今晚的一篇报道，说的是V4模型可能很快（未来几周内）。DeepSeek 的 V4 模型将运行在H芯片 ...</blockquote>
+最希望两碗饭延迟更新的一集……希望是下下周，下周我真没时间<img src="https://static.stage1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 231#       发表于 2026-4-3 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69437528&amp;ptid=2275806" target="_blank">lostfile 发表于 2026-4-3 23:06</a>
+the information今晚的一篇报道，说的是V4模型可能很快（未来几周内）。DeepSeek 的 V4 模型将运行在H芯片 ...</blockquote>
+the information去年底就发了一次假消息
+现实是没人知道深度求索什么时候发新模型，他家本来也没啥必须更新的动力
+
