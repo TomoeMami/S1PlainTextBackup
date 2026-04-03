@@ -551,3 +551,41 @@ RAY应该就是个走路模拟器
 
 就是不知道有普通帝的存档会不会有特典
 
+
+*****
+
+####  linhaitora  
+##### 49#       发表于 2026-4-3 08:29
+
+<blockquote>喵喵叫的猫 发表于 2026-4-1 16:10
+以前居然还有裸戏的吗
+
+就记得这系列dlc出了一大堆内衣 虽然都买了但涩不起来完全没换上的欲望 ...</blockquote>
+以前有啊
+
+现在游戏都是不锁区，越来越少了
+
+
+*****
+
+####  DARK_HGCG  
+##### 50#       发表于 2026-4-3 08:35
+
+就冲这个特典也要买实体卡了
+
+<img src="https://img.stage1st.com/forum/202604/03/083522ovxve5velidvkd3v.jpg" referrerpolicy="no-referrer">
+
+<strong>wondergoo2.jpg</strong> (276.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-3 08:35 上传
+
+<img src="https://img.stage1st.com/forum/202604/03/083541mnomlzmmo99cu9tm.gif" referrerpolicy="no-referrer">
+
+<strong>113e8cbe9e46076a.gif</strong> (332.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-3 08:35 上传
+
