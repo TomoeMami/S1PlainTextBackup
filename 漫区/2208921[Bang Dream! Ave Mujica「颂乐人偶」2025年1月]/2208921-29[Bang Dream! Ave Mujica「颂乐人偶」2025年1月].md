@@ -887,3 +887,56 @@ Ave Mujica 部分</blockquote>
 
        [https://t.bilibili.com/1186686838887153681](https://t.bilibili.com/1186686838887153681)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41839#       发表于 2026-4-3 23:28
+
+ 本帖最后由 堀内爱里衣 于 2026-4-3 23:29 编辑 
+
+       
+
+<img src="https://img.stage1st.com/forum/202604/03/232807emb0bx3l0m1nlnlh.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-04-03_23-24-35.jpg</strong> (266.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-3 23:28 上传
+
+       [https://x.com/bang_dream_info/status/2040006406707740953](https://x.com/bang_dream_info/status/2040006406707740953)
+
+       [https://central-fest.com](https://central-fest.com)
+
+*****
+
+####  堀内爱里衣  
+##### 41840#       发表于 2026-4-3 23:29
+
+       
+
+<img src="https://img.stage1st.com/forum/202604/03/232906sy62qh9lzvwvzzb3.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-04-03_23-25-24.jpg</strong> (296.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-3 23:29 上传
+
+       [https://x.com/bang_dream_info/status/2040021641582014562](https://x.com/bang_dream_info/status/2040021641582014562)
+
+       [https://anime.bang-dream.com/bandorichan/special/42](https://anime.bang-dream.com/bandorichan/special/42)
+
+       
+
+<img src="https://img.stage1st.com/forum/202604/03/232905wea1va0i0xx0g10k.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-04-03_23-27-05.jpg</strong> (83.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-3 23:29 上传
+
+       [https://t.bilibili.com/1187026742588473366](https://t.bilibili.com/1187026742588473366)
+
