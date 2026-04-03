@@ -2406,3 +2406,34 @@ DS这迟迟不出新模型的样子，要变路边了吗？
 
 现在网页版多了个快速模式的说明，然而没人知道这个快速模式究竟是什么<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 216#       发表于 2026-4-3 15:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69435327&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-4-3 15:10</a>
+现在网页版多了个快速模式的说明，然而没人知道这个快速模式究竟是什么
+补一下图
+ ...</blockquote>
+这真是多模态要来了啊<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  overflowal  
+##### 217#       发表于 2026-4-3 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69435327&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-4-3 15:10</a>
+现在网页版多了个快速模式的说明，然而没人知道这个快速模式究竟是什么
+补一下图
+ ...</blockquote>
+就是不开思考吧我猜    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  十点半  
+##### 218#       发表于 2026-4-3 15:33
+
+应该只是orc，这个原来也有。
+
