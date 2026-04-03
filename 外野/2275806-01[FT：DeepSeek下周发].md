@@ -2541,3 +2541,11 @@ deepseek-ocr识别真的很快。
 不过年初送了 ...</blockquote>
 kimi2.5怎么写刘备？求个教程<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 227#       发表于 2026-4-3 22:41
+
+好像还挖出来有专家模式（不能上传文件）了
+
