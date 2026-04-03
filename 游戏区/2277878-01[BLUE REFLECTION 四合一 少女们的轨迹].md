@@ -599,3 +599,23 @@ RAY应该就是个走路模拟器
 
 反正就是个工具人
 
+
+*****
+
+####  无动于衷  
+##### 52#       发表于 2026-4-3 13:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69434614&amp;ptid=2277878" target="_blank">linhaitora 发表于 2026-4-3 13:09</a>
+
+手游的那个能把男主改女主吗
+
+反正就是个工具人</blockquote>
+不能 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 53#       发表于 2026-4-3 13:59
+
+就要带入男主百合破坏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
