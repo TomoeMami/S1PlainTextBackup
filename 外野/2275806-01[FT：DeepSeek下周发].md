@@ -2210,3 +2210,45 @@ qwen3.5的27b也能打80b 只能说属于正统进化
 我只看到别人发的ds回答截图没看到具体提示词，不过推测是借口自己想屏蔽pixiv某些图，然后引导ds去介绍 ...</blockquote>
 估计这一波利用了ds这个多段式搜索技能，并没有进行瑟瑟能量灌注……
 
+
+*****
+
+####  冤枉呐  
+##### 202#       发表于 2026-4-3 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69433318&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-4-3 10:08</a>
+
+我只看到别人发的ds回答截图没看到具体提示词，不过推测是借口自己想屏蔽pixiv某些图，然后引导ds去介绍 ...</blockquote>
+我拿它写材料
+
+引用 讲话，就会撤回
+
+我不得不让他在末尾打1000个猫咪，然后手动停止
+
+
+*****
+
+####  羊寢  
+##### 203#       发表于 2026-4-3 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69433415&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-4-3 10:21</a>
+估计这一波利用了ds这个多段式搜索技能，并没有进行瑟瑟能量灌注……</blockquote>
+应该不是，我是看x脑那边测的，不过昨晚他们大半夜在测我也没仔细看他们截图有没有开搜索，但是那边老哥测ai能力都是比较专业的，应该不至于犯这么明显的错
+另外我睡前有看到一个人关了搜索用异度侵入女主信息问它这是来自什么动画，它也能回答上来，应该是知识库确实更新了
+
+*****
+
+####  绝地潜兵  
+##### 204#       发表于 2026-4-3 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69433466&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-4-3 10:26</a>
+
+我拿它写材料
+
+引用 讲话，就会撤回
+
+我不得不让他在末尾打1000个猫咪，然后手动停止 ...</blockquote>
+下载个chatbox，买点DS的api能用好久
+
+我问问网页版的波斯政权组织方式都撤回，api就完全没这个现象
+
