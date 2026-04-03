@@ -2275,3 +2275,23 @@ qwen3.5的27b也能打80b 只能说属于正统进化
 
 不过对于训练微调低参数模型适配本地部署业务需求方面会可能会有很多工作需求出来
 
+
+*****
+
+####  neptunehs  
+##### 207#       发表于 2026-4-3 11:13
+
+ 本帖最后由 neptunehs 于 2026-4-3 11:14 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69433593&amp;ptid=2275806" target="_blank">忧郁的杰哥 发表于 2026-4-3 10:42</a>
+从google刚才开源几个低参数模型来看
+
+未来基本就是巨头们之开源不超过30B的模型来引流宣传   想要旗舰性能 ...</blockquote>
+主要是旗舰你发出来了大家也用不起啊
+就便宜火山之类的平台了
+只开源小模型也挺好的说真的
+至少比豆包或者chatgpt这种flash模型都拒绝开源的好
+
+当然我还是觉得qwen这一波分裂后 国内大厂应该都不会支持开源了吧 不来钱 只能看ds跟kimi这批了
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
