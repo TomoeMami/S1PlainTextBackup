@@ -1515,3 +1515,27 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 
 两个NEW还行
 
+
+*****
+
+####  Abomination  
+##### 3925#       发表于 2026-4-3 15:09
+
+忘了还有开发ult<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">纯抽UR老四样是15/16，新出的两个都是6，就是说会有10个新标签吧
+
+<img src="https://img.stage1st.com/forum/202604/03/150305c0wsw9w15lcpcm11.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2026-04-03 150115.png</strong> (2.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-3 15:03 上传
+
+<img src="https://img.stage1st.com/forum/202604/03/150306ru93v2v52evqj53k.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2026-04-03 150136.png</strong> (1.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-3 15:03 上传
+
