@@ -2510,3 +2510,19 @@ ima里面看快速好像就是不带思考模式
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Azcarlo  
+##### 225#       发表于 2026-4-3 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69435327&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-4-3 15:10</a>
+现在网页版多了个快速模式的说明，然而没人知道这个快速模式究竟是什么
+补一下图
+ ...</blockquote>
+估计就是只是文字识别的话接之前出的ocr模型。
+deepseek-ocr识别真的很快。
+难道V4真有多模态吗<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
