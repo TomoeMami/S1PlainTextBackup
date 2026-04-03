@@ -30,3 +30,11 @@
 
 假设是OP里的五个梦魇的四个，那还一个没有出来（
 
+
+*****
+
+####  暗黑能乐  
+##### 1081#       发表于 2026-4-3 16:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">俺们NOX真的是杂鱼吗，不要啊
+

@@ -2447,3 +2447,20 @@ DS这迟迟不出新模型的样子，要变路边了吗？
 应该只是orc，这个原来也有。</blockquote>
 关键就是不知道鲸鱼娘是不是也要学其他家那样弄快速版和专家版，以及不知道专家版ocr能力如何
 
+
+*****
+
+####  木水风铃  
+##### 220#       发表于 2026-4-3 16:02
+
+能发大txt吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  Promeus  
+##### 221#       发表于 2026-4-3 16:06
+
+我的理解是未来更新的版本在快速模式下只会做ocr识别，非快速模式进行多模态识别<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
