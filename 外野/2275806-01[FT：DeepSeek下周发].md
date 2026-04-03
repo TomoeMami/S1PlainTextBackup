@@ -2464,3 +2464,49 @@ DS这迟迟不出新模型的样子，要变路边了吗？
 
 我的理解是未来更新的版本在快速模式下只会做ocr识别，非快速模式进行多模态识别<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冤枉呐  
+##### 222#       发表于 2026-4-3 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69435190&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-4-3 14:47</a>
+
+硅基pro kimi2.5算很强了
+
+我还有好多白山智算api余额，那边DSV3、3.2车轱辘话来回说，更加傻
+
+不过ds官方 ...</blockquote>
+我都是让他写英文然后用cherry的免费翻译
+
+效果比直接中文好
+
+*****
+
+####  冤枉呐  
+##### 223#       发表于 2026-4-3 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69435160&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-4-3 14:43</a>
+
+我有一个小技巧，你让他把领导人的名字替换成123，就可以输出了</blockquote>
+哈哈哈哈哈哈哈
+
+学到了
+
+我都是在末尾让他说一大段废话
+
+不过后来几次对话他发现我就是写材料而已，就不忌讳了
+
+还怪聪明的
+
+*****
+
+####  a4ac7  
+##### 224#       发表于 2026-4-3 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69435617&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-4-3 16:06</a>
+我的理解是未来更新的版本在快速模式下只会做ocr识别，非快速模式进行多模态识别 ...</blockquote>
+ima里面看快速好像就是不带思考模式
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
