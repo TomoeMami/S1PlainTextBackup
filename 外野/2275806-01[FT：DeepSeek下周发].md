@@ -2164,3 +2164,38 @@ qwen3.5的27b也能打80b 只能说属于正统进化
 
 下周一定
 
+
+*****
+
+####  梅林的三角裤  
+##### 198#       发表于 2026-4-3 10:08
+
+虽然酒馆里多轮对话之后ds就不太行，容易复读。但是单轮对话对于中文文风的理解和把控很到位，gemini比起来就很平。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  羊寢  
+##### 199#       发表于 2026-4-3 10:08
+
+ 本帖最后由 羊寢 于 2026-4-3 10:12 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69433035&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-4-3 09:26</a>
+二刺猿nsfw咋测啊?</blockquote>
+我只看到别人发的ds回答截图没看到具体提示词，不过推测是借口自己想屏蔽pixiv某些图，然后引导ds去介绍这些图片以及tag，ds会把这些tag上常见的角色神态什么的都描述出来，算是擦边提问，不过不知道回答完会不会撤回
+诱导ai回答这种问题其实比较依赖提示词，一般人试成功的概率不大，建议还是等正式版上线了用api玩
+
+*****
+
+####  mitzvah  
+##### 200#       发表于 2026-4-3 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69433189&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-4-3 09:50</a>
+
+qwen3.5的27b也能打80b 只能说属于正统进化
+
+没有惊喜</blockquote>
+27b 打爆得是qwen3 coder next这个80b
+
+这个80b模型能力极强的，算是无思维链的的开源模型中顶尖的
+
