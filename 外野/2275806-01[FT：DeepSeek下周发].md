@@ -2322,3 +2322,45 @@ qwen3.5的27b也能打80b 只能说属于正统进化
 
 DS这迟迟不出新模型的样子，要变路边了吗？
 
+
+*****
+
+####  冤枉呐  
+##### 210#       发表于 2026-4-3 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69433525&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-4-3 10:32</a>
+
+下载个chatbox，买点DS的api能用好久
+
+我问问网页版的波斯政权组织方式都撤回，api就完全没这个现象 ...</blockquote>
+我用的硅基流动和o3
+
+就没搞ds单独的api
+
+*****
+
+####  绝地潜兵  
+##### 211#       发表于 2026-4-3 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69435071&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-4-3 14:29</a>
+
+我用的硅基流动和o3
+
+就没搞ds单独的api</blockquote>
+硅基流动的我也用，模型缩水的，没官方的泛用
+
+
+*****
+
+####  冤枉呐  
+##### 212#       发表于 2026-4-3 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69435081&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-4-3 14:30</a>
+
+硅基流动的我也用，模型缩水的，没官方的泛用</blockquote>
+确实傻一点，硅基上面模型，ds刘备能力不如kimi2.5
+
+而且至少会慢啊，ds4出来肯定得过一阵子
+
+不过年初送了不少代金券……
+
