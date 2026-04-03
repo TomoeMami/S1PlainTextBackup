@@ -2140,3 +2140,27 @@ Gemma 都上新了</blockquote>
 而且居然有思维链了 gemma3明明是没 ...</blockquote>
 主要强在用30b参数打100b模型
 
+
+*****
+
+####  neptunehs  
+##### 196#       发表于 2026-4-3 09:50
+
+ 本帖最后由 neptunehs 于 2026-4-3 09:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69433104&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-4-3 09:35</a>
+主要强在用30b参数打100b模型</blockquote>
+qwen3.5的27b也能打80b 只能说属于正统进化
+没有惊喜
+
+但还是能用的 gemma3当时就是属于没有惊喜却异常好用
+但没有gemini式出图我还是失望啊（拖
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  奥柏伦亲王  
+##### 197#       发表于 2026-4-3 09:54
+
+下周一定
+
