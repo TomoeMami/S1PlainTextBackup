@@ -2199,3 +2199,14 @@ qwen3.5的27b也能打80b 只能说属于正统进化
 
 这个80b模型能力极强的，算是无思维链的的开源模型中顶尖的
 
+
+*****
+
+####  绝地潜兵  
+##### 201#       发表于 2026-4-3 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69433318&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-4-3 10:08</a>
+
+我只看到别人发的ds回答截图没看到具体提示词，不过推测是借口自己想屏蔽pixiv某些图，然后引导ds去介绍 ...</blockquote>
+估计这一波利用了ds这个多段式搜索技能，并没有进行瑟瑟能量灌注……
+
