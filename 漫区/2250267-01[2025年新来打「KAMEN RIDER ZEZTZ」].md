@@ -38,3 +38,16 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">俺们NOX真的是杂鱼吗，不要啊
 
+
+*****
+
+####  鲁邦三世1  
+##### 1082#       发表于 2026-4-4 07:08
+
+按照新情报来的话，那个老鼠或者猫皮套大概率是26年骑士给男主用的不是给妹妹的
+那这样后期还是目前登场的几个骑士，顶多再多一个柠檬妈妈前2号
+
+后期红霸的戏份能不能多一点这颜值当背景板白瞎了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
