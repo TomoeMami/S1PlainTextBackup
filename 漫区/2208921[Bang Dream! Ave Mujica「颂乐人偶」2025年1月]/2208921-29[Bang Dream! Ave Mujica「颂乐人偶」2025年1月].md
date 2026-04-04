@@ -964,3 +964,80 @@ Ave Mujica 部分</blockquote>
 
 2026-4-4 14:34 上传
 
+
+*****
+
+####  堀内爱里衣  
+##### 41843#       发表于 2026-4-4 18:25
+
+       
+
+<img src="https://img.stage1st.com/forum/202604/04/182459ptus2tj2e74fjjz2.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-04-04_18-18-10.jpg</strong> (243.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-4 18:24 上传
+
+       [https://x.com/bang_dream_info/status/2040354241534136763](https://x.com/bang_dream_info/status/2040354241534136763)
+
+*****
+
+####  堀内爱里衣  
+##### 41844#       发表于 2026-4-4 18:25
+
+       
+
+<img src="https://img.stage1st.com/forum/202604/04/182536emimynssy4xli7n4.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-04-04_18-17-15.jpg</strong> (241.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-4 18:25 上传
+
+       [https://x.com/CENTRAL___ofc/status/2040360591303606370/history](https://x.com/CENTRAL___ofc/status/2040360591303606370/history)
+
+       [https://t.co/LrmYKOTPeL](https://t.co/LrmYKOTPeL)
+
+*****
+
+####  堀内爱里衣  
+##### 41845#       发表于 2026-4-4 18:26
+
+       <strong>CENTRAL MUSIC &amp; ENTERTAINMENT FESTIVAL 2026 / Ave Mujica</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202604/04/182626w21ti2ttt07irc8r.jpg" referrerpolicy="no-referrer">
+
+<strong>745f2daa3b6987f6fc4903a784c49e63c7194be5.jpg</strong> (177.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-4 18:26 上传
+
+[https://m.youtube.com/watch?v=9jCmOdWvTQk&amp;pp=iggCQAE%3D](https://m.youtube.com/watch?v=9jCmOdWvTQk&amp;pp=iggCQAE%3D)
+
+【CENTRAL LAB.】CENTRAL MUSIC &amp; ENTERTAINMENT FESTIVAL 2026 / THE FIRST TAKE Powered by NURO
+
+收音比武士道的收音还屎，最痛苦的一次
+
+我再也不玩贝斯笑话了
+
+1. KiLLKiSS
+
+2. 顔
+
+3. Slash the way
+
+4. 八芒星ダンス
+
+5. Angles
+
+6. Symbol II : Air
+
+7. Sophie
+
+8. Symbol I : △</blockquote>
+       [https://www.bilibili.com/video/BV184DMBeEVp](https://www.bilibili.com/video/BV184DMBeEVp)
+
