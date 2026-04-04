@@ -8669,3 +8669,16 @@ ps5的re9开hdr非常不明显，是因为整体光线偏昏暗吗？
 
 借楼问一下卡婊之前说要给PC版支持DS手柄的震动和自适应扳机，有更新吗目前？
 
+
+*****
+
+####  牙晓  
+##### 2224#       发表于 2026-4-4 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69431790&amp;ptid=2252759" target="_blank">nagitoY 发表于 2026-4-2 22:22</a>
+
+下一部重置re5？
+
+re5和6好像卖的不好，09年的游戏画面也不是特别落后，有重置的价值吗 ...</blockquote>
+5是生化危机开始重置之前销量最高的
+
