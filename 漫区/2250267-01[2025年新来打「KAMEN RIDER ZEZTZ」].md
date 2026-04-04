@@ -68,3 +68,14 @@
 
 也可能之前头部设计确实是新作流出的，但是身体的部分是女四骑的
 
+
+*****
+
+####  饭冢武也  
+##### 1084#       发表于 2026-4-4 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69435388&amp;ptid=2250267" target="_blank">挺好的 发表于 2026-4-3 15:24</a>
+
+假设是OP里的五个梦魇的四个，那还一个没有出来（</blockquote>
+崩坏+三骑+四骑+二骑最终，第五大是主角最终？
+
