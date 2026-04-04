@@ -125,3 +125,14 @@
 崩灭和惩戒都是直接对应胶囊名字的，nox最终爆料是midnight shadow，也没有血腥梦魇对应。莫和橘前辈都是接 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">正因为如此反而更期待诺克斯最终了
 
+
+*****
+
+####  饭冢武也  
+##### 1089#       发表于 2026-4-4 21:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69440082&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-4-4 17:50</a>
+
+问题是有声优了，你如果是妹妹没必要换声优</blockquote>
+四个都有声优，也都有对应的骑士，不冲突
+
