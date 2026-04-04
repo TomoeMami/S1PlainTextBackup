@@ -2712,3 +2712,11 @@ kimi2.5怎么写刘备？求个教程</blockquote>
 
 这还是泥潭吗 怎么没有把LZ塞到发布为止？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Thalassa  
+##### 243#       发表于 2026-4-4 16:11
+
+网页版使用体验有明显变化，比硅基流动的v3.2强很多（又慢又蠢） 希望v4能把我现在用的Gemini 3 flash取代掉，其他国模知识面上感觉都差很多
+
