@@ -1566,3 +1566,13 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 爆气 三动 800格斗 
 这不就是为开发oor量身定做的么
 
+
+*****
+
+####  alialex  
+##### 3929#       发表于 2026-4-4 15:00
+
+拯救开服弱势UR的方式是给他一个最适合的开发机
+
+但也有我这种不喜欢00只喜欢能天的人啊，能天四台开发机也没啥能打的，哪怕SSP<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
