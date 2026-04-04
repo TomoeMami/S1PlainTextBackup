@@ -1576,3 +1576,11 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 
 但也有我这种不喜欢00只喜欢能天的人啊，能天四台开发机也没啥能打的，哪怕SSP<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  arthes  
+##### 3930#       发表于 2026-4-4 16:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">exia还是有挺多拯救机会的，以后保不准出个UR的三红exia，雪崩装备，甚至R2决战版
+
