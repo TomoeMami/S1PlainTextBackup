@@ -20,3 +20,18 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  江戸前ルナ  
+##### 107#       发表于 2026-4-4 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69439189&amp;ptid=2256342" target="_blank">blackll7 发表于 2026-4-4 12:50</a>
+
+你可以试试神奇的luck加成技能
+
+—— 来自 鹅球 v3.3.96</blockquote>
+我现在打强敌都给弓手带弱化抵抗的装备了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+LUCK技能好像现在就学了1、2个，都是直接加固定数值没倍率，LUCK面板能叠得很厉害？？但是弓手的3连射太强了啊，我现在新职业的二动都还没到等级学，等到了来个三保一推弓箭手感觉对面就基本不用玩了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
