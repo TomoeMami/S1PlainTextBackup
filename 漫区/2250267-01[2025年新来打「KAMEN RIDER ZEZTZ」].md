@@ -92,3 +92,36 @@
 
 我猜藏得那个是最终boss
 
+
+*****
+
+####  milky658  
+##### 1086#       发表于 2026-4-4 17:46
+
+崩灭和惩戒都是直接对应胶囊名字的，nox最终爆料是midnight shadow，也没有血腥梦魇对应。莫和橘前辈都是接受了血腥梦魇的力量获得同名胶囊，老师体内可能就没有血腥梦魇，不是天选之子所以梦里更憔悴
+
+
+*****
+
+####  暗黑能乐  
+##### 1087#       发表于 2026-4-4 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69438881&amp;ptid=2250267" target="_blank">饭冢武也 发表于 2026-4-4 11:40</a>
+
+四大干部了，左下又真的很像之前按透的皮套，我还是看好妹妹
+
+新作我觉得不太可能腰带还是挎包
+
+也可能之前 ...</blockquote>
+问题是有声优了，你如果是妹妹没必要换声优
+
+*****
+
+####  暗黑能乐  
+##### 1088#       发表于 2026-4-4 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69440059&amp;ptid=2250267" target="_blank">milky658 发表于 2026-4-4 17:46</a>
+
+崩灭和惩戒都是直接对应胶囊名字的，nox最终爆料是midnight shadow，也没有血腥梦魇对应。莫和橘前辈都是接 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">正因为如此反而更期待诺克斯最终了
+
