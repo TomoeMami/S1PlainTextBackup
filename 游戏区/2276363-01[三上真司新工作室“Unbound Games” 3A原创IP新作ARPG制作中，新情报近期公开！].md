@@ -500,3 +500,11 @@ tango最后也是被韩国公司买走了，
 
 三上再来一作恶灵附身1水准的作品吧<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dotiaffy  
+##### 51#       发表于 2026-4-4 13:14
+
+三上是公司老板吧，有说他参与制作吗？
+
