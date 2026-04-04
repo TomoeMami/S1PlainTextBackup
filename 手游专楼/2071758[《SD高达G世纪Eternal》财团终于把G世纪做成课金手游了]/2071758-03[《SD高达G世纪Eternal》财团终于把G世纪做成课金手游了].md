@@ -1555,3 +1555,14 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草了，最后还是吃井换出来的OOR，这池子特么全是托3。
 
+
+*****
+
+####  bonnwang  
+##### 3928#       发表于 2026-4-4 08:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69431763&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-4-2 22:13</a>
+红傻子那开SSP00R似乎比他开UR能天使要厉害一点</blockquote>
+爆气 三动 800格斗 
+这不就是为开发oor量身定做的么
+
