@@ -242,3 +242,15 @@ DualSense 控制器：
 
 《星空》 将于 4 月 7 日登陆 PS5 平台，同时推出的还有游戏的“自由航线”更新和剧情 DLC“地球舰队”。
 
+
+*****
+
+####  a2042312  
+##### 610#       发表于 2026-4-4 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69439364&amp;ptid=2173605" target="_blank">黑猫软 发表于 2026-4-4 13:37</a>
+Bethesda发布《星空》 PS5版特性宣传片。
+
+PS5 和 PS5 Pro 的功能：</blockquote>
+适配的不错，等打折了来一份<img src="https://static.stage1st.com/image/smiley/carton2017/308.png" referrerpolicy="no-referrer">
+
