@@ -1584,3 +1584,11 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">exia还是有挺多拯救机会的，以后保不准出个UR的三红exia，雪崩装备，甚至R2决战版
 
+
+*****
+
+####  洛克萨斯  
+##### 3931#       发表于 2026-4-4 19:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">exia还有雪崩，r4这两个应该不会太菜的机体
+
