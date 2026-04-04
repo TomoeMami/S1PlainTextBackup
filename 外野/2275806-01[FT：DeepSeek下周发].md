@@ -2691,3 +2691,24 @@ kimi2.5怎么写刘备？求个教程</blockquote>
 
 信息搜索能力变强了，但感觉智商还在忽上忽下。
 
+
+*****
+
+####  zy450  
+##### 241#       发表于 2026-4-4 15:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69439086&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-4-4 12:24</a>
+硅基流动的api
+根本没有甲</blockquote>
+确实，最近爱上了轨迹流动
+
+—— 来自 Xiaomi 24031PN0DC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  squallx  
+##### 242#       发表于 2026-4-4 15:12
+
+这还是泥潭吗 怎么没有把LZ塞到发布为止？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
