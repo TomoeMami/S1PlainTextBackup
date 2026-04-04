@@ -254,3 +254,11 @@ Bethesda发布《星空》 PS5版特性宣传片。
 PS5 和 PS5 Pro 的功能：</blockquote>
 适配的不错，等打折了来一份<img src="https://static.stage1st.com/image/smiley/carton2017/308.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 611#       发表于 2026-4-4 16:27
+
+xgp版能支持吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
