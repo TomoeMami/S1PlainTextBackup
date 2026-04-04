@@ -79,3 +79,16 @@
 假设是OP里的五个梦魇的四个，那还一个没有出来（</blockquote>
 崩坏+三骑+四骑+二骑最终，第五大是主角最终？
 
+
+*****
+
+####  鲁邦三世1  
+##### 1085#       发表于 2026-4-4 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69438984&amp;ptid=2250267" target="_blank">饭冢武也 发表于 2026-4-4 12:02</a>
+
+崩坏+三骑+四骑+二骑最终，第五大是主角最终？</blockquote>
+崩坏应该还是主角最终
+
+我猜藏得那个是最终boss
+
