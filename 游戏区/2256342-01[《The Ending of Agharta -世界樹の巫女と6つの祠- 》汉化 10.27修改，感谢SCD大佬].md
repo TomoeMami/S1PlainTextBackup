@@ -35,3 +35,16 @@
 
 LUCK技能好像现在就学了1、2个，都是直接加固定数值没倍率，LUCK面板能叠得很厉害？？但是弓手的3连射太强了啊，我现在新职业的二动都还没到等级学，等到了来个三保一推弓箭手感觉对面就基本不用玩了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blackll7  
+##### 108#       发表于 2026-4-4 15:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69439259&amp;ptid=2256342" target="_blank">江戸前ルナ 发表于 2026-4-4 13:07</a>
+
+我现在打强敌都给弓手带弱化抵抗的装备了
+
+LUCK技能好像现在就学了1、2个，都是直接加固定数值没倍率，LU ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">LUCK技能不只是版面好堆高，而是有任何技能都附加1.0倍率LUCK的饰品，配合各种多段多动伤害哈人，而2级LUCK非常好加。
+
