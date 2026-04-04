@@ -51,3 +51,20 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  饭冢武也  
+##### 1083#       发表于 2026-4-4 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69438113&amp;ptid=2250267" target="_blank">鲁邦三世1 发表于 2026-4-4 07:08</a>
+
+按照新情报来的话，那个老鼠或者猫皮套大概率是26年骑士给男主用的不是给妹妹的
+
+那这样后期还是目前登场的 ...</blockquote>
+四大干部了，左下又真的很像之前按透的皮套，我还是看好妹妹
+
+新作我觉得不太可能腰带还是挎包
+
+也可能之前头部设计确实是新作流出的，但是身体的部分是女四骑的
+
