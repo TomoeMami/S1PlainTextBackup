@@ -1592,3 +1592,13 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">exia还有雪崩，r4这两个应该不会太菜的机体
 
+
+*****
+
+####  光辉传递者  
+##### 3932#       发表于 2026-4-4 21:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可恶，我想要r3啊
+
+—— 来自 LENOVO TB322FC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
