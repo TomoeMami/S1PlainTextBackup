@@ -537,3 +537,13 @@ lady的装备给得太极限了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宁梦没原地跑步可惜了
 
+
+*****
+
+####  赤黑的假面  
+##### 1131#       发表于 2026-4-5 18:34
+
+<blockquote>蔺无双 发表于 2026-4-5 14:48
+下一集又到了传说中看哭全剧组的一集了</blockquote>
+看哭全剧组这说辞不是日本动画片那么喜欢用吗，怎么特摄儿童秀也开始用这说辞了
+
