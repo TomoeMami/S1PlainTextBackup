@@ -2720,3 +2720,18 @@ kimi2.5怎么写刘备？求个教程</blockquote>
 
 网页版使用体验有明显变化，比硅基流动的v3.2强很多（又慢又蠢） 希望v4能把我现在用的Gemini 3 flash取代掉，其他国模知识面上感觉都差很多
 
+
+*****
+
+####  冤枉呐  
+##### 244#       发表于 2026-4-5 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69439640&amp;ptid=2275806" target="_blank">zy450 发表于 2026-4-4 15:10</a>
+确实，最近爱上了轨迹流动
+
+—— 来自 Xiaomi 24031PN0DC, Android 16, 鹅球 v3.5.99</blockquote>
+我已经写到索然无味了
+他思考过程都是“哎呀你要写刘备，我来想想怎么更好地写”
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
