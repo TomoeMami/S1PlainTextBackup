@@ -4479,3 +4479,13 @@ Bero Bero Baa冰淇淋。哈密瓜。原来是苹果啊，这个。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  格林卡罗尔  
+##### 20420#       发表于 2026-4-6 01:21
+
+之前看到直播投票瓦快比lol高了，何意味啊
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
