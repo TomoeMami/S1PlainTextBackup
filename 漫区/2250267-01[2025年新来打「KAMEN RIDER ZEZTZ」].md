@@ -263,3 +263,20 @@ lady的装备给得太极限了
 
 孩子们，NOX没有说谎
 
+
+*****
+
+####  暗黑能乐  
+##### 1102#       发表于 2026-4-5 10:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卧槽了，这对牢莫也太狠了，虽然我早有预感两人不是亲兄妹，但是也没想到居然真是卧底特工啊
+
+
+*****
+
+####  kal_008  
+##### 1103#       发表于 2026-4-5 10:34
+
+0：没有code的支援你是活不下去的
+这也是字面意义啊，code甚至负责了莫的日常生活起居，没有code真的活不下去<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
