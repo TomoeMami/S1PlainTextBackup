@@ -466,3 +466,14 @@ lady的装备给得太极限了
 暗码的梦境学习培养学校这条线就不提了？
 妹妹肯定也是学生。
 
+
+*****
+
+####  暗黑能乐  
+##### 1124#       发表于 2026-4-5 13:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69443160&amp;ptid=2250267" target="_blank">iceddd 发表于 2026-4-5 12:34</a>
+
+这紫爹要怎么洗 看了两集纯处啊</blockquote>
+好像不一定洗，而且现在可以是被梦魇完全控制的状态，非本人自主意识呢
+
