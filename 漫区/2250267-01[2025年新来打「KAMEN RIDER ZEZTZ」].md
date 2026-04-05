@@ -437,3 +437,15 @@ lady的装备给得太极限了
 一个是上集牢莫眼睁睁看着牢诺被橘前辈抓走，这集对这件事提也不提仿佛相信牢诺 ...</blockquote>
 高桥一直有急起来不管细节的毛病，不过这集算好了，至少有警视二人组找nox住处的画面，还是能脑补出莫告诉其他人情况然后在现实中想办法的情节
 
+
+*****
+
+####  鲁邦三世1  
+##### 1121#       发表于 2026-4-5 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69443160&amp;ptid=2250267" target="_blank">iceddd 发表于 2026-4-5 12:34</a>
+这紫爹要怎么洗 看了两集纯处啊</blockquote>
+不择手段强迫出主角和二骑的最终形态一块打code呗，最后牺牲赎罪
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
