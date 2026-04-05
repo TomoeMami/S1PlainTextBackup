@@ -247,3 +247,11 @@ lady的装备给得太极限了
 
 —— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  AP0rt_  
+##### 1100#       发表于 2026-4-5 09:59
+
+虚假的英雄，这比战兔还惨了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
