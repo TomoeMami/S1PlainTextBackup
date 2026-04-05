@@ -237,3 +237,13 @@ lady的装备给得太极限了
 
 —— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  离心  
+##### 1099#       发表于 2026-4-5 09:23
+
+艹回旋镖了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">现在还是一路不好的方向俯冲啊还有一次预知梦？<img src="https://p.sda1.dev/31/f8fae227e3bf8e4a41e8eb2cf9a206e4/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
