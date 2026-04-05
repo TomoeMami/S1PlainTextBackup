@@ -2832,3 +2832,38 @@ kimi2.5怎么写刘备？求个教程</blockquote>
 
 这贴要不改成deepseek集中楼得了，省的讨论贴不好找<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  neptunehs  
+##### 252#       发表于 2026-4-5 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69443767&amp;ptid=2275806" target="_blank">那一年的河川 发表于 2026-4-5 15:25</a>
+这贴要不改成deepseek集中楼得了，省的讨论贴不好找</blockquote>
+我倒想要一个llm专楼 想找个地方讨论qwen3.5 vs gemma4都不行 我自己又没有干货来开一个楼
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  杀人鲸  
+##### 253#       发表于 2026-4-5 15:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69443767&amp;ptid=2275806" target="_blank">那一年的河川 发表于 2026-4-5 15:25</a>
+这贴要不改成deepseek集中楼得了，省的讨论贴不好找</blockquote>
+很难不支持，没事就想点进来看看有什么新的消息吗？
+真的是希望4月份的时候能够看到大版本更新的D老师。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  羊寢  
+##### 254#       发表于 2026-4-5 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69443808&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-4-5 15:36</a>
+我倒想要一个llm专楼 想找个地方讨论qwen3.5 vs gemma4都不行 我自己又没有干货来开一个楼
+
+—— 来自 On ...</blockquote>
+以前是有个llm专楼，不过去年泥潭重启之后那楼应该是看不了了
+
