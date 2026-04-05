@@ -565,3 +565,27 @@ lady的装备给得太极限了
 
 打魔王就塞了三个小胶囊
 
+
+*****
+
+####  暗黑能乐  
+##### 1134#       发表于 2026-4-5 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69444487&amp;ptid=2250267" target="_blank">赤黑的假面 发表于 2026-4-5 18:34</a>
+
+看哭全剧组这说辞不是日本动画片那么喜欢用吗，怎么特摄儿童秀也开始用这说辞了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他这是夸张说法了吧，谷中说他看哭了，没说全员吧
+
+
+*****
+
+####  阿刚  
+##### 1135#       发表于 2026-4-5 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69444868&amp;ptid=2250267" target="_blank">黄泉川此方 发表于 2026-4-5 20:29</a>
+
+说起来牢莫这次是真急了，第一次把灾厄拿下来塞加特林里的完整开大
+
+打魔王就塞了三个小胶囊 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">山都打没了，这真打中了妹妹别说断气，渣都剩不下了
+
