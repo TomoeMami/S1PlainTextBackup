@@ -623,3 +623,22 @@ lady的装备给得太极限了
 
 妹妹应该不是梦境特工，也没受过相关训练，就纯现实的暗桩
 
+
+*****
+
+####  阿刚  
+##### 1139#       发表于 2026-4-5 22:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我觉的最虐的地方是老莫开灾厄大运的时候是清醒且充满了杀意的，等发现一直打得是妹妹真的要爆炸，老师一口气点爆反而把他救回来了一点吧
+
+
+*****
+
+####  浅川雏羽  
+##### 1140#       发表于 2026-4-5 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69445280&amp;ptid=2250267" target="_blank">阿刚 发表于 2026-4-5 22:20</a>
+
+我觉的最虐的地方是老莫开灾厄大运的时候是清醒且充满了杀意的，等发现一直打得是妹妹真的要爆炸，老师一口 ...</blockquote>
+牢莫这把连开大都史无前例的把灾厄胶囊装枪上了，杀意确实拉满<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
