@@ -603,3 +603,15 @@ lady的装备给得太极限了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  TOYSTORY  
+##### 1137#       发表于 2026-4-5 21:37
+
+ 本帖最后由 TOYSTORY 于 2026-4-5 21:39 编辑 
+
+前边美浪见机车版的零的时候的态度就有种两人早认识的感觉，不过之后10话左右也没提是怎么回事，还以为只是美浪有点自来熟，没想到真的是早就认识零而且当过特工啊
+
+这真的有点像战兔了，不过BUILD那边跟大森合作的不是高桥是武藤<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
