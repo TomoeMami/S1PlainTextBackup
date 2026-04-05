@@ -2867,3 +2867,18 @@ kimi2.5怎么写刘备？求个教程</blockquote>
 —— 来自 On ...</blockquote>
 以前是有个llm专楼，不过去年泥潭重启之后那楼应该是看不了了
 
+
+*****
+
+####  杀人鲸  
+##### 255#       发表于 2026-4-5 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69443808&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-4-5 15:36</a>
+我倒想要一个llm专楼 想找个地方讨论qwen3.5 vs gemma4都不行 我自己又没有干货来开一个楼
+
+—— 来自 On ...</blockquote>
+不对，突然想到了那句名言，你与其寻找一个专楼，不如创造一个专楼。
+既然你有这个需求的话，自己创建一个不就好了吗？有需求的朋友也自然会来和你进行讨论交流的呀。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
