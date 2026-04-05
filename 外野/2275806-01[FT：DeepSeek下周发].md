@@ -2735,3 +2735,11 @@ kimi2.5怎么写刘备？求个教程</blockquote>
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qwased  
+##### 245#       发表于 2026-4-5 12:28
+
+现在网页版好像都是新的高智力模型了，用着舒服太多
+
