@@ -589,3 +589,17 @@ lady的装备给得太极限了
 打魔王就塞了三个小胶囊 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">山都打没了，这真打中了妹妹别说断气，渣都剩不下了
 
+
+*****
+
+####  鲁邦三世1  
+##### 1136#       发表于 2026-4-5 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69444728&amp;ptid=2250267" target="_blank">AAAZZZWWW 发表于 2026-4-5 19:49</a>
+难怪原设从姐姐变成妹妹，这样让观众的冲击感会更大吧</blockquote>
+长姐如母
+
+这下是要彻底摧毁主角的心里防线吗？气的当场变身灾厄梦魇毁灭世界
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
