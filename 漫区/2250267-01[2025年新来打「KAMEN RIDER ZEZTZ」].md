@@ -280,3 +280,29 @@ lady的装备给得太极限了
 0：没有code的支援你是活不下去的
 这也是字面意义啊，code甚至负责了莫的日常生活起居，没有code真的活不下去<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 1104#       发表于 2026-4-5 10:39
+
+这个倒是没啥大意外，毕竟说过原剧本是打算设定成姐姐，不是亲姐姐太正常了，搞成妹妹还能反直觉一点<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浅川雏羽  
+##### 1105#       发表于 2026-4-5 10:40
+
+牢诺突然来一句你不必为此感到难过也太低情商了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  暗黑能乐  
+##### 1106#       发表于 2026-4-5 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69442573&amp;ptid=2250267" target="_blank">浅川雏羽 发表于 2026-4-5 10:40</a>
+
+牢诺突然来一句你不必为此感到难过也太低情商了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他是真恨code，没太考虑到兄妹感情吧
+
