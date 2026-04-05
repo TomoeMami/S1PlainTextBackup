@@ -255,3 +255,11 @@ lady的装备给得太极限了
 
 虚假的英雄，这比战兔还惨了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤黑的假面  
+##### 1101#       发表于 2026-4-5 10:11
+
+孩子们，NOX没有说谎
+
