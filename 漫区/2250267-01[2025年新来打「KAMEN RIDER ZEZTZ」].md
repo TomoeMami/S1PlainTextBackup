@@ -615,3 +615,11 @@ lady的装备给得太极限了
 
 这真的有点像战兔了，不过BUILD那边跟大森合作的不是高桥是武藤<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  scikirbypoke  
+##### 1138#       发表于 2026-4-5 22:14
+
+妹妹应该不是梦境特工，也没受过相关训练，就纯现实的暗桩
+
