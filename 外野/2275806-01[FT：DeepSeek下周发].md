@@ -2753,3 +2753,16 @@ kimi2.5怎么写刘备？求个教程</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  冤枉呐  
+##### 247#       发表于 2026-4-5 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69443202&amp;ptid=2275806" target="_blank">serj005 发表于 2026-4-5 12:43</a>
+网页版ds现在的搜索能力太强了，充分利用长上下文的优势，每次都是搜50来个网页加精读十几篇搜索结果，时效 ...</blockquote>
+我自己布了一个miro
+学术搜索能力挺强的
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
