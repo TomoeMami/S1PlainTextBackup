@@ -306,3 +306,57 @@ lady的装备给得太极限了
 牢诺突然来一句你不必为此感到难过也太低情商了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他是真恨code，没太考虑到兄妹感情吧
 
+
+*****
+
+####  AP0rt_  
+##### 1107#       发表于 2026-4-5 10:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/31/17849f7d631cd97b9d23098f5e315822/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  龙爪  
+##### 1108#       发表于 2026-4-5 10:50
+
+果然是这样啊，不过是暗码的特工真的没想到.....<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 1109#       发表于 2026-4-5 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69442573&amp;ptid=2250267" target="_blank">浅川雏羽 发表于 2026-4-5 10:40</a>
+牢诺突然来一句你不必为此感到难过也太低情商了</blockquote>
+毕竟没想到两兄妹的感情有多好吧，毕竟真的讨厌code，美浪从小就在莫的身边了。认为是code走狗让莫不要太伤心太正常了。但没想到更伤心了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  milky658  
+##### 1110#       发表于 2026-4-5 10:54
+
+这二周目谁都以为自己是情报位，然后被爆个大的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 1111#       发表于 2026-4-5 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69442621&amp;ptid=2250267" target="_blank">离心 发表于 2026-4-5 10:51</a>
+
+毕竟没想到两兄妹的感情有多好吧，毕竟真的讨厌code，美浪从小就在莫的身边了。认为是code走狗让莫不要太 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不好说是不是从小哦，毕竟有大记忆改写术
+
+*****
+
+####  kurihayn  
+##### 1112#       发表于 2026-4-5 10:57
+
+<blockquote>浅川雏羽 发表于 2026-4-5 10:40
+牢诺突然来一句你不必为此感到难过也太低情商了</blockquote>
+他好像一直都没什么情商的样子，不能说的就谜语，能说的都直说
+
