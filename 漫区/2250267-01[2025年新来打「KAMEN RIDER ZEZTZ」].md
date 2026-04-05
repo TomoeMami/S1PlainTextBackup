@@ -547,3 +547,11 @@ lady的装备给得太极限了
 下一集又到了传说中看哭全剧组的一集了</blockquote>
 看哭全剧组这说辞不是日本动画片那么喜欢用吗，怎么特摄儿童秀也开始用这说辞了
 
+
+*****
+
+####  AAAZZZWWW  
+##### 1132#       发表于 2026-4-5 19:49
+
+难怪原设从姐姐变成妹妹，这样让观众的冲击感会更大吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
