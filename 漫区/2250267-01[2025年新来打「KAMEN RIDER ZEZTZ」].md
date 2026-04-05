@@ -417,3 +417,23 @@ lady的装备给得太极限了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">梦想是假的，家人是假的，只有数值是真的，太惨了，令和抗压王，龙太郎演技可圈可点啊，表情挺到位的
 
+
+*****
+
+####  iceddd  
+##### 1119#       发表于 2026-4-5 12:34
+
+这紫爹要怎么洗 看了两集纯处啊<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  法拉  
+##### 1120#       发表于 2026-4-5 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69442932&amp;ptid=2250267" target="_blank">kurihayn 发表于 2026-4-5 11:51</a>
+
+这集有两个我很在意的地方
+
+一个是上集牢莫眼睁睁看着牢诺被橘前辈抓走，这集对这件事提也不提仿佛相信牢诺 ...</blockquote>
+高桥一直有急起来不管细节的毛病，不过这集算好了，至少有警视二人组找nox住处的画面，还是能脑补出莫告诉其他人情况然后在现实中想办法的情节
+
