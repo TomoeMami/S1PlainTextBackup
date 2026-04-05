@@ -409,3 +409,11 @@ lady的装备给得太极限了
 
 一个是妹妹的梦境里柠檬是她的妈妈。不知道是在Call back夫人和柠檬的关系，还是后期的一个伏笔
 
+
+*****
+
+####  洛克萨斯  
+##### 1118#       发表于 2026-4-5 12:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">梦想是假的，家人是假的，只有数值是真的，太惨了，令和抗压王，龙太郎演技可圈可点啊，表情挺到位的
+
