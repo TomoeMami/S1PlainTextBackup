@@ -1644,3 +1644,16 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 
 疾风迅雷船是不是该拿一个，这周年船之后会狠狠补强吗
 
+
+*****
+
+####  plok201  
+##### 3938#       发表于 2026-4-6 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69445758&amp;ptid=2071758" target="_blank">中野梓 发表于 2026-4-6 01:24</a>
+
+疾风迅雷船是不是该拿一个，这周年船之后会狠狠补强吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只能说没人能说清万代的思路
+
+疾风迅雷目前看起来强度很一般，能组的队基本被王牌船覆盖，现在全靠几台00R撑场面，技能减伤只能说杂技，这池子建议拿了机子就跑路
+
