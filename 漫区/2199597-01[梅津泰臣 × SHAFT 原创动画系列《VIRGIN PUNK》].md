@@ -38,3 +38,11 @@
 
 如果是90年代ova黄金期，女主角每次意识断片的时候估计就是肉戏，等AI导演补奸版233
 
+
+*****
+
+####  丹德里恩  
+##### 201#       发表于 2026-4-6 10:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">才半个钟头根本看不过瘾啊
+
