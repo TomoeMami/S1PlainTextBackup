@@ -736,3 +736,15 @@ nox真的在干活还一直说真话<img src="https://static.stage1st.com/image/
 不过目前还不足以完全反派化，毕竟明面上还是在举着打击梦魇，维护世界 ...</blockquote>
 那3Z需要一个自己的天王路博史了
 
+
+*****
+
+####  damian-wade  
+##### 1149#       发表于 2026-4-6 22:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69446453&amp;ptid=2250267" target="_blank">nagamasa 发表于 2026-4-6 10:56</a>
+仔细想想牢莫在经历这一切之前还是在床上没病没痛但躺了一天还数了3亿只羊，更痛苦了 ...</blockquote>
+跳着数的<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+—— 来自 HONOR MAG-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
