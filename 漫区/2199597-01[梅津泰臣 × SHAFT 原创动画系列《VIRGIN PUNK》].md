@@ -96,3 +96,58 @@
 
 <img src="https://p.sda1.dev/31/d17198a86b931dbace97c2d83b7b781f/1000163471.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oyss  
+##### 206#       发表于 2026-4-6 20:32
+
+ 本帖最后由 oyss 于 2026-4-6 20:34 编辑 
+
+梅津泰臣的一些作画要求
+
+"仅限女性角色,眉毛透过头发."
+
+"头发优先,眼睛不得透过头发."
+
+<img src="https://img.stage1st.com/forum/202604/06/202858uw73ksw8dj1pjb3j.jpg" referrerpolicy="no-referrer">
+
+<strong>1 small.jpg</strong> (139.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-6 20:28 上传
+
+爆炸不能只有火和烟,必须有大量的碎片.
+
+这个非常明显,这片的爆炸质量不是一般高.尤其炸火车那段.
+
+<img src="https://img.stage1st.com/forum/202604/06/202910gimm19o4e2y1bmez.jpg" referrerpolicy="no-referrer">
+
+<strong>2 small.jpg</strong> (100.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-6 20:29 上传
+
+不管穿什么衣服,不得画两个圆形的影子在胸下面.
+
+要把跟衣服褶子对应的阴影画出来
+
+<img src="https://img.stage1st.com/forum/202604/06/203016vd82n8nq43n8xd23.jpg" referrerpolicy="no-referrer">
+
+<strong>3 small.jpg</strong> (92.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-6 20:30 上传
+
+*****
+
+####  oyss  
+##### 207#       发表于 2026-4-6 20:35
+
+还有特典送的画集里面多个地方提到VP#1, VP001这样的字眼.
+
+当然不代表一定就有2.
+
