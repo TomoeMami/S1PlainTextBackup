@@ -56,3 +56,27 @@
 
 怀念当年在D版偶然发现《Yellow Star》时的惊艳感啊。<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oyss  
+##### 203#       发表于 2026-4-6 16:29
+
+碟到了.
+
+<img src="https://img.stage1st.com/forum/202604/06/162658s9sull98usi633ua.jpg" referrerpolicy="no-referrer">
+
+<strong>20260406_154355.JPG</strong> (221.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-6 16:26 上传
+
+<img src="https://img.stage1st.com/forum/202604/06/162905jbr2ebke87ewez70.jpg" referrerpolicy="no-referrer">
+
+<strong>20260406_154412.JPG</strong> (256.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-6 16:29 上传
+
