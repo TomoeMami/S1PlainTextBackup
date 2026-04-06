@@ -8781,3 +8781,16 @@ ps版是完全没做ps5的升级？分辨率和帧数都是原汁原味是吧。
 暴君的丢车也不行</blockquote>
 大植物boss弹不了，小植物能弹。
 
+
+*****
+
+####  1aVa  
+##### 2233#       发表于 2026-4-6 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69432519&amp;ptid=2252759" target="_blank">kcalb 发表于 2026-4-3 07:41</a>
+
+复习了下好像就是前面的烟雾变化造成后面的黑色部分忽明忽暗罢了
+
+不过伏笔确实是有不少，比如维克多最后 ...</blockquote>
+有bsaa僵尸啊，打掉头盔能露脸，就是素材复用
+
