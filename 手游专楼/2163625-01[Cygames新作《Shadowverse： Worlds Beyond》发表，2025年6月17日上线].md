@@ -8,3 +8,11 @@
 
 —— 来自 vivo V2148A, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  FuckSCUT  
+##### 750#       发表于 2026-4-6 14:02
+
+教友7费贞德太厉害了，我去玩蛋鱼了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
