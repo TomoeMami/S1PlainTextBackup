@@ -140,3 +140,11 @@ https://www.bilibili.com/video/BV16LDGBtEzP
 
 新篇章看上去很有活，怎么还搞Starman这种David Bowie老梗……<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 515#       发表于 2026-4-6 19:37
+
+上集预告里说要买泳装的语气是那么有干劲，原来只是喜欢玩水没有其它意思啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
