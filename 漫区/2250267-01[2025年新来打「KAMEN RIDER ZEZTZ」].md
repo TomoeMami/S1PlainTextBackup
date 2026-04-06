@@ -714,3 +714,13 @@ nox真的在干活还一直说真话<img src="https://static.stage1st.com/image/
 
 2026-4-6 17:49 上传
 
+
+*****
+
+####  金星  
+##### 1147#       发表于 2026-4-6 18:25
+
+这集过后，暗码的黑暗又加重一分了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过目前还不足以完全反派化，毕竟明面上还是在举着打击梦魇，维护世界和平的旗子。
+要完全黑化估计是要像平成剑那样，从头到尾其实根本没有梦魇危害，一直都是暗码搞出来烂摊子，为的就是代号索穆尼亚，或者什么控制全世界之类的反派理由。<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
