@@ -8794,3 +8794,17 @@ ps版是完全没做ps5的升级？分辨率和帧数都是原汁原味是吧。
 不过伏笔确实是有不少，比如维克多最后 ...</blockquote>
 有bsaa僵尸啊，打掉头盔能露脸，就是素材复用
 
+
+*****
+
+####  乔迪奥  
+##### 2234#       发表于 2026-4-6 21:07
+
+<img src="https://img.stage1st.com/forum/202604/06/210714bidxqwgxxgi6u2jw.jpg" referrerpolicy="no-referrer">
+
+<strong>HFMuOIka4AA7jM3.jpg</strong> (66.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-6 21:07 上传
+
