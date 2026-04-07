@@ -4569,3 +4569,27 @@ Bero Bero Baa冰淇淋。哈密瓜。原来是苹果啊，这个。
 
 2026-4-7 09:11 上传
 
+
+*****
+
+####  古战场亡魂  
+##### 20424#       发表于 2026-4-7 10:51
+
+确实热血，但是瓦是真的看不懂。
+
+<img src="https://img.stage1st.com/forum/202604/07/105145s336dl1o2ll33bbb.png" referrerpolicy="no-referrer">
+
+<strong>04e7ff02c6b2215cca02c2b180be7429.png</strong> (472.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-7 10:51 上传
+
+<img src="https://img.stage1st.com/forum/202604/07/105151xsxgz95rprbw98r5.png" referrerpolicy="no-referrer">
+
+<strong>0031fa90fe08ee48e44bb558f971b2b4.png</strong> (372.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-7 10:51 上传
+
