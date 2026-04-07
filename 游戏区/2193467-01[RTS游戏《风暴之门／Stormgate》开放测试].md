@@ -451,3 +451,13 @@ IT之家 4 月 2 日消息，开发商 Frost Giant Studios 于 3 月 31 日在 D
 
 — from Xiaomi 2304FPN6DC, Android 16, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  再也不咬钩勒  
+##### 51#       发表于 2026-4-7 14:44
+
+当时试玩视频出来我就全方位不看好，能活到现在才死，赞助商应该是真爱了
+
+—— 来自 HONOR SER-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
