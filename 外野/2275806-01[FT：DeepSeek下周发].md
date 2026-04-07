@@ -3243,3 +3243,57 @@ ds网页端的回答的越来越短了
 不要等正式更新会更吗，负载上去官d很快降智的</blockquote>
 正式更新一段时间内api智商应该还是能保持住一周左右，直接在官网写文除非弄反代不然也写不了刘备吧
 
+
+*****
+
+####  neptunehs  
+##### 293#       发表于 2026-4-8 00:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69454780&amp;ptid=2275806" target="_blank">Lorraine_Kinney 发表于 2026-4-7 23:04</a>
+这次又不是路边社的，是官网的灰度测试，而且论坛有人已经灰度到了前端 ...</blockquote>
+我说的是路边社的 截图传不上来 说是v4马上就会开源出来
+不是说灰度的事情 路边社要比灰度早那么几个小时
+说真的 既然要灰度 证明开源权重肯定还要一段时间
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  羊寢  
+##### 294#       发表于 2026-4-8 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69454975&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-4-8 00:15</a>
+我说的是路边社的 截图传不上来 说是v4马上就会开源出来
+不是说灰度的事情 路边社要比灰度早那么几个小时 ...</blockquote>
+现在就有人担心v4会不会弄成强推套餐+闭源<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是觉得应该还不至于……吧
+
+
+*****
+
+####  黄泉川此方  
+##### 295#       发表于 2026-4-8 00:21
+
+API好像没变
+
+*****
+
+####  一般市民  
+##### 296#       发表于 2026-4-8 00:21
+
+感觉不出什么特别的…… 不会只上了个前端吧？ <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有鱼  
+##### 297#       发表于 2026-4-8 00:23
+
+感觉只是改了个前端啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  脸宽  
+##### 298#       发表于 2026-4-8 00:24
+
+我需要api<img src="https://static.stage1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
+
