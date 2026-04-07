@@ -792,3 +792,36 @@ https://m.weibo.cn/detail/5257543341311372
 
 <img src="https://p.sda1.dev/31/f8f89299de3c4b95916938c14567044d/1000164224.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 53#         楼主| 发表于 2026-4-7 22:05
+
+〝東の海〟編から
+
+新たにアニメを描きおろし！
+
+『THE ONE PIECE』のキャラ設定画＆
+
+イメージボードをチラ見せ！
+
+続報をお楽しみに！
+
+【THE ONE PIECE】 特報映像 -Inside the Creation-
+[https://youtu.be/DOriySlleg4](https://youtu.be/DOriySlleg4)
+
+『ONE PIECE』 新アニメシリーズ「THE ONE PIECE」🏴‍☠️
+
+WIT STUDIO（「SPY×FAMILY」「進撃の巨人」など）制作による
+
+『ONE PIECE』の新しいアニメシリーズ「THE ONE PIECE」より
+
+イメージボードやキャラクター設定画を通じて制作の一端が垣間見える特報映像が公開‼️
+
+【THE ONE PIECE】
+
+原作漫画『ONE PIECE』「東の海(イーストブルー)編」から新たにアニメとして作り出され、
+
+「Netflix」等にて近日世界公開予定。
+
