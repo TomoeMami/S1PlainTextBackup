@@ -3106,3 +3106,24 @@ ds网页端的回答的越来越短了
 又出现了新的新模型快出的传言了 明明大家都喜欢说ds比不上三大巨头 干嘛总是时不时来个真假不明最后空欢喜 ...</blockquote>
 更多是外媒搞预期管理和脱敏呗，当年v3/r1打崩股价的事情只能发生一遍<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ycjiang1337  
+##### 277#       发表于 2026-4-7 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69453858&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-4-7 18:50</a>
+
+又出现了新的新模型快出的传言了 明明大家都喜欢说ds比不上三大巨头 干嘛总是时不时来个真假不明最后空欢喜 ...</blockquote>
+灰度新模型这事也不是完全的传言，现在网页端明显已经上了V4或者至少V4 Lite的早期版本
+
+*****
+
+####  Lorraine_Kinney  
+##### 278#       发表于 2026-4-7 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69453858&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-4-7 18:50</a>
+
+又出现了新的新模型快出的传言了 明明大家都喜欢说ds比不上三大巨头 干嘛总是时不时来个真假不明最后空欢喜 ...</blockquote>
+这次又不是路边社的，是官网的灰度测试，而且论坛有人已经灰度到了前端
+
