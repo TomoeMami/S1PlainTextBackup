@@ -262,3 +262,20 @@ PS5 和 PS5 Pro 的功能：</blockquote>
 
 xgp版能支持吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑猫软  
+##### 612#       发表于 2026-4-7 13:05
+
+据说新ui
+
+<img src="https://img.stage1st.com/forum/202604/07/130505kjiq4y93j6pq3npg.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1775538286207_360.jpg</strong> (130.43 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-4-7 13:05 上传
+
