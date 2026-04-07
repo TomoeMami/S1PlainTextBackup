@@ -174,3 +174,13 @@ https://www.bilibili.com/video/BV16LDGBtEzP
 
 形象跟之前的主角究极体差太多了吧，真不是错误进化啥的吗......<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晴雯丽  
+##### 517#       发表于 2026-4-8 07:03
+
+？还以为是蝙蝠的究极体
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
