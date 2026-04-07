@@ -295,3 +295,15 @@ CDPR官方宣布，《赛博朋克2077》PS5 Pro增强补丁将于4月8日正式
 
 最后，为了兼顾画质与性能的玩家，我们设计了“光线追踪模式”，作为二者之间的最佳平衡点。该模式具备精选的光线追踪增强功能，同时保持流畅的60帧/秒，实现了全面的提升。
 
+
+*****
+
+####  csolfans  
+##### 614#       发表于 2026-4-8 01:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69451749&amp;ptid=2173605" target="_blank">黑猫软 发表于 2026-4-7 13:05</a>
+据说新ui</blockquote>
+有啥区别
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
