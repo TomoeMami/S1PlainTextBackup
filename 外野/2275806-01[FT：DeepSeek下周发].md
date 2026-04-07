@@ -3297,3 +3297,11 @@ API好像没变
 
 我需要api<img src="https://static.stage1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  羊寢  
+##### 299#       发表于 2026-4-8 00:29
+
+api都是等正式更新才会动，官网app已经灰测快两个月了，这段时间其实每隔几天就有点新进展，但什么时候能正式更新谁都说不好<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
