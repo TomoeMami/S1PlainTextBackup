@@ -162,3 +162,11 @@
 梅津泰臣的一些作画要求</blockquote>
 老色批精益求精，respect！
 
+
+*****
+
+####  勿徊哉  
+##### 209#       发表于 2026-4-7 16:13
+
+什么时候大模型能直接根据分镜稿、台本、声优录音样品和人设图，直接生成完整动画<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
