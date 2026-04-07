@@ -919,3 +919,14 @@ nox真的在干活还一直说真话<img src="https://static.stage1st.com/image/
 
 之前觉得OP1的歌词只是说二周目，29集之后看着歌词说的怕不是更多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失落之翼  
+##### 1164#       发表于 2026-4-7 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69450788&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-4-7 10:42</a>
+
+那一护是内心同时有白一护和斩月大叔，也没见莫心里有两个啊</blockquote>
+特工莫和灾厄大王，算不算2个<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
