@@ -3305,3 +3305,13 @@ API好像没变
 
 api都是等正式更新才会动，官网app已经灰测快两个月了，这段时间其实每隔几天就有点新进展，但什么时候能正式更新谁都说不好<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0WHan0  
+##### 300#       发表于 2026-4-8 00:41
+
+还是有点区别，我让他介绍一个在特定小圈子里有点名气的人，都开了深度思考和联网智能搜索。专家模式完全是对的，而且内容很新，快速模式有一些小错误，而且内容有点老了
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
