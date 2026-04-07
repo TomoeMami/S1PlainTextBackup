@@ -836,3 +836,22 @@ nox真的在干活还一直说真话<img src="https://static.stage1st.com/image/
 
 零是知道还是不知道，如果他本身不是梦魇这个1000年有期徒刑又是怎么来的
 
+
+*****
+
+####  浅川雏羽  
+##### 1158#       发表于 2026-4-7 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69451344&amp;ptid=2250267" target="_blank">饭冢武也 发表于 2026-4-7 12:00</a>
+
+我看你们的意思现在的橘前辈是被惩戒夺舍了
+
+那他被招安的时候就已经是梦魇了吗
+
+零是知道还是不知道，如果他 ...</blockquote>
+塔基巴拉桑是被判了一千年不是蹲了一千年，和是不是梦魇无关
+
+至于为什么被判了一千年，可能是因为袭击了board和诱拐了乌丸所长<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+目前没有任何实质证据说塔基巴拉桑被夺舍了，反而从一开始到现在都是疯批的可能性更大
+
