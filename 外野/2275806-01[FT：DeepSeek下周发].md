@@ -3070,3 +3070,28 @@ ds网页端的回答的越来越短了
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 274#       发表于 2026-4-7 18:48
+
+<img src="https://img.stage1st.com/forum/202604/07/184755qhgherw6h6pr1gvg.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (22.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-7 18:47 上传
+
+据传新一轮的灰度开始了
+
+*****
+
+####  neptunehs  
+##### 275#       发表于 2026-4-7 18:50
+
+又出现了新的新模型快出的传言了 明明大家都喜欢说ds比不上三大巨头 干嘛总是时不时来个真假不明最后空欢喜一场的新闻呢
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
