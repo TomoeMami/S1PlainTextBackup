@@ -151,3 +151,14 @@
 
 当然不代表一定就有2.
 
+
+*****
+
+####  牙狼GARO  
+##### 208#       发表于 2026-4-7 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69448532&amp;ptid=2199597" target="_blank">oyss 发表于 2026-4-6 20:32</a>
+
+梅津泰臣的一些作画要求</blockquote>
+老色批精益求精，respect！
+
