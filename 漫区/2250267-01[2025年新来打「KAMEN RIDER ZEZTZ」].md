@@ -791,3 +791,16 @@ nox真的在干活还一直说真话<img src="https://static.stage1st.com/image/
 
 因为不是人是真正的梦魇，所以掏出来真正的觉醒冲击大王<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 1154#       发表于 2026-4-7 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69450514&amp;ptid=2250267" target="_blank">faxi 发表于 2026-4-7 09:58</a>
+
+既然身份是假的，家人也是假的，记忆也是假的，那会不会力量也是假的，自己也不是人。
+
+然后灾厄大王是斩月= ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那一护是内心同时有白一护和斩月大叔，也没见莫心里有两个啊
+
