@@ -911,3 +911,11 @@ nox真的在干活还一直说真话<img src="https://static.stage1st.com/image/
 
 <img src="https://img.stage1st.com/forum/202604/07/143132ea81f6pazbqyp8y1.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蔺无双  
+##### 1163#       发表于 2026-4-7 16:37
+
+之前觉得OP1的歌词只是说二周目，29集之后看着歌词说的怕不是更多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
