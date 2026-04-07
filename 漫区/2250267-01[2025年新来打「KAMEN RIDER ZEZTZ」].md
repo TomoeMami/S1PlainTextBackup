@@ -779,3 +779,15 @@ nox真的在干活还一直说真话<img src="https://static.stage1st.com/image/
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1和2那个镜头四张床，都在奶就是对应四大梦魇
 
+
+*****
+
+####  faxi  
+##### 1153#       发表于 2026-4-7 09:58
+
+既然身份是假的，家人也是假的，记忆也是假的，那会不会力量也是假的，自己也不是人。
+
+然后灾厄大王是斩月=友哈巴赫的设定，等后面灾厄大王和老莫决裂了才发现自己真正的力量
+
+因为不是人是真正的梦魇，所以掏出来真正的觉醒冲击大王<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
