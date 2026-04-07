@@ -148,3 +148,29 @@ https://www.bilibili.com/video/BV16LDGBtEzP
 
 上集预告里说要买泳装的语气是那么有干劲，原来只是喜欢玩水没有其它意思啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TOYSTORY  
+##### 516#       发表于 2026-4-7 22:36
+
+<img src="https://img.stage1st.com/forum/202604/07/223659vd5uezmdf0q5zpoe.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2026-4-7 22:36 上传
+
+<img src="https://img.stage1st.com/forum/202604/07/223703lq5p3qfyex4h75ew.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (309.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-7 22:37 上传
+
+守宫兽究极体长这样？？？
+
+形象跟之前的主角究极体差太多了吧，真不是错误进化啥的吗......<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
