@@ -8808,3 +8808,16 @@ ps版是完全没做ps5的升级？分辨率和帧数都是原汁原味是吧。
 
 2026-4-6 21:07 上传
 
+
+*****
+
+####  渡边加奈子  
+##### 2235#       发表于 2026-4-7 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69439841&amp;ptid=2252759" target="_blank">nagitoY 发表于 2026-4-4 16:36</a>
+
+ps5的re9开hdr非常不明显，是因为整体光线偏昏暗吗？
+
+剑星、无双起源、仁王3开hdr后光线都很明显明亮了很多 ...</blockquote>
+手动设置亮度
+
