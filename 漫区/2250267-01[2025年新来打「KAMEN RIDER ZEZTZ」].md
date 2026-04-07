@@ -748,3 +748,16 @@ nox真的在干活还一直说真话<img src="https://static.stage1st.com/image/
 
 —— 来自 HONOR MAG-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  蔺无双  
+##### 1150#       发表于 2026-4-7 08:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69447967&amp;ptid=2250267" target="_blank">milky658 发表于 2026-4-6 17:51</a>
+
+这集真相揭露以后，我也想到了桐生战兔，但细细思考一下万津莫和他的核心矛盾差蛮多的
+
+桐生战兔是知道自己 ...</blockquote>
+自我价值的认定是个很容易写出彩也很容易写烂的主题，就看这次高桥能不能把握住了
+
