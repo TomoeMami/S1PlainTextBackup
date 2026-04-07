@@ -930,3 +930,16 @@ nox真的在干活还一直说真话<img src="https://static.stage1st.com/image/
 那一护是内心同时有白一护和斩月大叔，也没见莫心里有两个啊</blockquote>
 特工莫和灾厄大王，算不算2个<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鲁邦三世1  
+##### 1165#       发表于 2026-4-7 20:33
+
+【虚假的英雄？ZZZ可能回归骑士内核原点-哔哩哔哩】 https://www.bilibili.com/video/BV1Z9DhB5EDK
+
+很有意思的一个猜想
+我认同的一点事可能梦中那个自信的7才是莫本来的性格，日常的废材莫才是被灌输的虚假人格
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
