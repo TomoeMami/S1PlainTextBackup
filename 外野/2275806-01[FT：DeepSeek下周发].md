@@ -3095,3 +3095,14 @@ ds网页端的回答的越来越短了
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  有鱼  
+##### 276#       发表于 2026-4-7 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69453858&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-4-7 18:50</a>
+
+又出现了新的新模型快出的传言了 明明大家都喜欢说ds比不上三大巨头 干嘛总是时不时来个真假不明最后空欢喜 ...</blockquote>
+更多是外媒搞预期管理和脱敏呗，当年v3/r1打崩股价的事情只能发生一遍<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
