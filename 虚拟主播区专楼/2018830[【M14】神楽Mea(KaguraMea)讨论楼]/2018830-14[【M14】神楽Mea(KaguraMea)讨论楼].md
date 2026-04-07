@@ -4539,3 +4539,33 @@ Bero Bero Baa冰淇淋。哈密瓜。原来是苹果啊，这个。
 
 不知道明天一觉醒来会不会看到咩打上白银了啊
 
+
+*****
+
+####  古战场亡魂  
+##### 20422#       发表于 2026-4-7 09:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">真是活出第二世了。
+
+<img src="https://img.stage1st.com/forum/202604/07/090809b1144y55kyyery9j.png" referrerpolicy="no-referrer">
+
+<strong>06a9b6813a0bf814cc3783758b82a286.png</strong> (164.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-7 09:08 上传
+
+
+*****
+
+####  古战场亡魂  
+##### 20423#       发表于 2026-4-7 09:11
+
+<img src="https://img.stage1st.com/forum/202604/07/091134d9u9g034777fr4tt.png" referrerpolicy="no-referrer">
+
+<strong>90cc34e2f467870b3132b7a0c9b04d44.png</strong> (131.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-7 09:11 上传
+
