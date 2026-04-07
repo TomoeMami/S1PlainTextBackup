@@ -721,3 +721,11 @@ NS2没有实体版就算了
 就要带入男主百合破坏</blockquote>
 这游戏某种意义上是把百破党骗进去刹<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，一是很难说有没有真正意义上的百破，二是手游时间线在第二部单机前面，男主疑似垫给了第二部单机的女主
 
+
+*****
+
+####  cauchua3  
+##### 59#       发表于 2026-4-7 14:07
+
+帝玩了一半没通关的进度能继承到本作吗
+
