@@ -739,3 +739,35 @@ NS2没有实体版就算了
 这游戏某种意义上是把百破党骗进去刹，一是很难说有没有真正意义上的百破，二是手游时间线在第二部单机前 ...</blockquote>
 真的没有百合破坏倒还好
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 61#       发表于 2026-4-8 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69423248&amp;ptid=2277878" target="_blank">医生狼多 发表于 2026-4-1 10:44</a>
+
+加衣服和dei也没关系原本单在日本发布，后面改为全球化复刻加衣服的先例也挺久了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">初代2017年就是全球发行的啊，最多就是英文版比日文版晚半年
+
+
+*****
+
+####  无动于衷  
+##### 62#       发表于 2026-4-8 08:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69451681&amp;ptid=2277878" target="_blank">pudnils 发表于 2026-4-7 12:53</a>
+
+这游戏某种意义上是把百破党骗进去刹，一是很难说有没有真正意义上的百破，二是手游时间线在第二部单机前 ...</blockquote>
+笑死，你要不要再想想帝里面那些手游女角色说到男主的时候是什么态度
+
+*****
+
+####  三级怪兽  
+##### 63#       发表于 2026-4-8 08:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69422462&amp;ptid=2277878" target="_blank">Shabadadoo 发表于 2026-4-1 08:25</a>
+
+光荣真的是吃屎都赶不上热的，游戏行业DEI都开始退潮了你在这搞给谁看呢</blockquote>
++1，也想说这句了，而且不只光荣，不少日厂最近都开始搞dei，为了支持美国粑粑就是疯狂吃屎呗
+
