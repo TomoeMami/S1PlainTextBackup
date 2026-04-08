@@ -815,3 +815,11 @@ NS2没有实体版就算了
 
 而且我一开始发言说的就是站在百破党角度不算百破，谁关心河豚了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Xenor  
+##### 67#       发表于 2026-4-8 13:18
+
+这是一个非常纯洁的游戏<img src="https://static.stage1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">衣服穿多穿少并不影响
+
