@@ -771,3 +771,16 @@ NS2没有实体版就算了
 光荣真的是吃屎都赶不上热的，游戏行业DEI都开始退潮了你在这搞给谁看呢</blockquote>
 +1，也想说这句了，而且不只光荣，不少日厂最近都开始搞dei，为了支持美国粑粑就是疯狂吃屎呗
 
+
+*****
+
+####  pudnils  
+##### 64#       发表于 2026-4-8 10:24
+
+ 本帖最后由 pudnils 于 2026-4-8 10:28 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69455739&amp;ptid=2277878" target="_blank">无动于衷 发表于 2026-4-8 08:55</a>
+
+笑死，你要不要再想想帝里面那些手游女角色说到男主的时候是什么态度</blockquote>
+
+手游男主听说是似了？那怎么破坏<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 而且论时间线帝在后面，应该算bg破坏才对吧，反正我认为这玩意对百破爱好者是妥妥的缅北
+
