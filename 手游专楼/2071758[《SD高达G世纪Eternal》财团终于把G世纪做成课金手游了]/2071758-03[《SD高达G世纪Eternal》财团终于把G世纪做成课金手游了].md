@@ -1707,3 +1707,17 @@ new蜂巢号+new狼王，最强作品船和最想要的限定红，有被爽到<
 
 oo系开发机：oor黄和oor红都值得交sp，红可以交ssp，再生也可以交sp，其他好像不太行，不过贴吧有人说智天使挺厉害的，可以交个sp
 
+
+*****
+
+####  acg_gyanc  
+##### 3944#       发表于 2026-4-8 23:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69457543&amp;ptid=2071758" target="_blank">marko556 发表于 2026-4-8 13:49</a>
+不，就是歪，只要红机，我一直会歪。譬如说常驻的雷霆宙域的机体我抽限定池都满破了...山楂饼我有5个...
+
+ ...</blockquote>
+你不屯石头，每次强力机限定池能抽几次？这要是抽不到不是挺正常么……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
