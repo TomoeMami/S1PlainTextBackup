@@ -3564,3 +3564,25 @@ Current Date: Wednesday, April 8, 2026.
 
 所以有什么区别吗，官方有更新公告吗
 
+
+*****
+
+####  一般市民  
+##### 318#       发表于 2026-4-8 11:34
+
+X上有人填鸭，专家模式上下文估算也就是128K。
+
+直接询问的话，快速模式回复上下文有1M。专家模式回复1M是传闻，实际上下文还是128K。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sellboy  
+##### 319#       发表于 2026-4-8 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69456455&amp;ptid=2275806" target="_blank">精钢魔像 发表于 2026-4-8 10:44</a>
+
+可能是专家模式收费</blockquote>
+我的看法，API收费，网页和客户端不收费，但是会限流。
+
+而专家模式更容易限流。
+
