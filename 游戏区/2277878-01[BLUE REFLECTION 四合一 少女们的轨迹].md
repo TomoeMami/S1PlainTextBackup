@@ -784,3 +784,17 @@ NS2没有实体版就算了
 
 手游男主听说是似了？那怎么破坏<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 而且论时间线帝在后面，应该算bg破坏才对吧，反正我认为这玩意对百破爱好者是妥妥的缅北
 
+
+*****
+
+####  无动于衷  
+##### 65#       发表于 2026-4-8 10:40
+
+ 本帖最后由 无动于衷 于 2026-4-8 10:43 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69456302&amp;ptid=2277878" target="_blank">pudnils 发表于 2026-4-8 10:24</a>
+
+手游男主听说是似了？那怎么破坏 而且论时间线帝在后面，应该算bg破坏才对吧，反正我认为这玩意对百破爱 ...</blockquote>
+首先，在意这种事情的是河豚不是我，我只是转述贴吧那群xx在看到帝相关剧情之后的态度
+
+其次，如果你以为河豚只在乎剧情发展那说明你一点也不了解河豚现在的生态，甚至不知道什么叫麻辣仙人
+

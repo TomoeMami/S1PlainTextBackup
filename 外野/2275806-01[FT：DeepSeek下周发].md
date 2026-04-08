@@ -3497,3 +3497,35 @@ Current Date: Wednesday, April 8, 2026.
 
 如果是v4正式版会有公告的，现在应该还是v4lite
 
+
+*****
+
+####  忧郁的杰哥  
+##### 312#       发表于 2026-4-8 10:36
+
+是不是换芯片换得绷不住了
+
+搞个快速模式给分离开来
+
+
+*****
+
+####  精钢魔像  
+##### 313#       发表于 2026-4-8 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69456400&amp;ptid=2275806" target="_blank">忧郁的杰哥 发表于 2026-4-8 10:36</a>
+
+是不是换芯片换得绷不住了
+
+搞个快速模式给分离开来</blockquote>
+可能是专家模式收费
+
+*****
+
+####  a4ac7  
+##### 314#       发表于 2026-4-8 10:44
+
+我这边网页也更新了，灰度测试好了？
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
