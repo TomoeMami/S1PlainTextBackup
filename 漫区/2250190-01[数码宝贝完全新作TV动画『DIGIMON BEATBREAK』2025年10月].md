@@ -194,3 +194,11 @@ https://www.bilibili.com/video/BV16LDGBtEzP
 
 —— 来自 Xiaomi 2312CRAD3C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  xiongxingyu  
+##### 519#       发表于 2026-4-8 10:48
+
+看这脸，又是究极体一转变高达的套路吗？估计会有别的模式吧，这斗篷怎么看都是可以脱的
+
