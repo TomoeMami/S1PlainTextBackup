@@ -307,3 +307,15 @@ CDPR官方宣布，《赛博朋克2077》PS5 Pro增强补丁将于4月8日正式
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  a2042312  
+##### 615#       发表于 2026-4-8 08:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69455050&amp;ptid=2173605" target="_blank">黑猫软 发表于 2026-4-8 00:42</a>
+CDPR官方宣布，《赛博朋克2077》PS5 Pro增强补丁将于4月8日正式上线。
+
+游戏提供三种不同的PS5 Pro模式，让 ...</blockquote>
+专业模式不知道是不是跟黑猴一样锁40帧，黑猴那个平衡模式配上120hz模式体验还不错。
+
