@@ -3489,3 +3489,11 @@ Current Date: Wednesday, April 8, 2026.
 
 — from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Litccc  
+##### 311#       发表于 2026-4-8 10:14
+
+如果是v4正式版会有公告的，现在应该还是v4lite
+
