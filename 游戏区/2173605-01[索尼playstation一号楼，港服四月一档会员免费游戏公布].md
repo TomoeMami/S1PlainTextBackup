@@ -331,3 +331,20 @@ CDPR官方宣布，《赛博朋克2077》PS5 Pro增强补丁将于4月8日正式
 —— 来自 鹅球 v3.3.96-alpha</blockquote>
 好像就是把ps商店会员这些放左上角了
 
+
+*****
+
+####  黑猫软  
+##### 617#       发表于 2026-4-8 23:41
+
+007手柄 说来这游戏宣发还挺足 御三家发布会都上了
+
+<img src="https://img.stage1st.com/forum/202604/08/234048b7ddfdz4bl9i7iof.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1775662824467_392.jpg</strong> (54.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-4-8 23:40 上传
+
