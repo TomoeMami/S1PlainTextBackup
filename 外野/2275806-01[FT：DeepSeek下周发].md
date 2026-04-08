@@ -3626,3 +3626,15 @@ nooooooooooo!我的1M上下文呢....现在灰度以后上下文怎么变小了?
 
 编辑
 
+
+*****
+
+####  羊寢  
+##### 325#       发表于 2026-4-8 13:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69456867&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-4-8 11:34</a>
+X上有人填鸭，专家模式上下文估算也就是128K。
+
+直接询问的话，快速模式回复上下文有1M。专家模式回复1M是传 ...</blockquote>
+专家模式回答128K是幻觉，昨晚刚开始灰测就有人发现了，roll一下能roll到1M的回答，感觉幻觉还是比较重
+
