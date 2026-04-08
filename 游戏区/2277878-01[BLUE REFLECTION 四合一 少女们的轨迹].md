@@ -798,3 +798,20 @@ NS2没有实体版就算了
 
 其次，如果你以为河豚只在乎剧情发展那说明你一点也不了解河豚现在的生态，甚至不知道什么叫麻辣仙人
 
+
+*****
+
+####  pudnils  
+##### 66#       发表于 2026-4-8 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69456422&amp;ptid=2277878" target="_blank">无动于衷 发表于 2026-4-8 10:40</a>
+
+首先，在意这种事情的是河豚不是我，我只是转述贴吧那群xx在看到帝相关剧情之后的态度
+
+其次，如果你以为 ...</blockquote>
+河豚比麻辣仙人逆天多了，啥都能磕，不说黑琴这种，跨作品拉娘也是信手拈来，破防只能说活该
+
+不过河豚战斗力确实不如麻辣仙人一根，毕竟当初b站邦多利bg二创被麻辣仙人打得丢盔弃甲只能缩回狗窝赢赢赢
+
+而且我一开始发言说的就是站在百破党角度不算百破，谁关心河豚了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
