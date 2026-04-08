@@ -823,3 +823,13 @@ NS2没有实体版就算了
 
 这是一个非常纯洁的游戏<img src="https://static.stage1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">衣服穿多穿少并不影响
 
+
+*****
+
+####  Ironman_mk5  
+##### 68#       发表于 2026-4-8 14:15
+
+<blockquote>pudnils 发表于 2026-4-8 10:24
+手游男主听说是似了？那怎么破坏 而且论时间线帝在后面，应该算bg破坏才对吧，反正我认为这玩意对百破爱 ...</blockquote>
+大概要看bg欺诈的程度吧，毕竟有自称百合遗老的说神无月男配吻过女主这种现在也能算百合雷点
+
