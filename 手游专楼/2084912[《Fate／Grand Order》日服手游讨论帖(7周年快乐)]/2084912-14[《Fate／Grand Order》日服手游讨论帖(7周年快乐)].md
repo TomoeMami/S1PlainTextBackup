@@ -50,3 +50,14 @@
 上线扔着玩 结果单抽出阿提拉和X毛 艹了</blockquote>
 欧，不怎么羡慕<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 20637#       发表于 2026-4-8 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69459066&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-4-8 18:41</a>
+
+欧，不怎么羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毕竟都是1.0级的菜B卡了 不如现在的各种三体人
+
