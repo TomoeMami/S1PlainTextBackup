@@ -3638,3 +3638,14 @@ X上有人填鸭，专家模式上下文估算也就是128K。
 直接询问的话，快速模式回复上下文有1M。专家模式回复1M是传 ...</blockquote>
 专家模式回答128K是幻觉，昨晚刚开始灰测就有人发现了，roll一下能roll到1M的回答，感觉幻觉还是比较重
 
+
+*****
+
+####  overflowal  
+##### 326#       发表于 2026-4-8 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69457554&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-4-8 13:51</a>
+专家模式回答128K是幻觉，昨晚刚开始灰测就有人发现了，roll一下能roll到1M的回答，感觉幻觉还是比较重 ...</blockquote>
+并不是，专家模式下只能让你输入128k左右的token。
+不过这没啥意思，现在就是半成品，后面的模型看起来接的也是同一款。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
