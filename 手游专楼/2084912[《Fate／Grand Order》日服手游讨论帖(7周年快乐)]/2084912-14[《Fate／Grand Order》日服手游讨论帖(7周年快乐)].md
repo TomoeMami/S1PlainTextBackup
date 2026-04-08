@@ -71,3 +71,14 @@
 毕竟都是1.0级的菜B卡了 不如现在的各种三体人</blockquote>
 不对，你是5呼符2五星，还是羡慕了<img src="https://static.stage1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 20639#       发表于 2026-4-8 19:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69458857&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-4-8 17:52</a>
+
+上线扔着玩 结果单抽出阿提拉和X毛 艹了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">欧 但不羡慕 我们萌新 今年还没有出过5星
+
