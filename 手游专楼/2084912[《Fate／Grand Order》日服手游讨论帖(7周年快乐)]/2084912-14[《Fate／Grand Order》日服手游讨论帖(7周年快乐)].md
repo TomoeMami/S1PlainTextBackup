@@ -61,3 +61,13 @@
 欧，不怎么羡慕</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毕竟都是1.0级的菜B卡了 不如现在的各种三体人
 
+
+*****
+
+####  khxooo  
+##### 20638#       发表于 2026-4-8 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69459146&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-4-8 19:02</a>
+毕竟都是1.0级的菜B卡了 不如现在的各种三体人</blockquote>
+不对，你是5呼符2五星，还是羡慕了<img src="https://static.stage1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+
