@@ -184,3 +184,13 @@ https://www.bilibili.com/video/BV16LDGBtEzP
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  leonlink  
+##### 518#       发表于 2026-4-8 08:42
+
+这看着像错误进化路线
+
+—— 来自 Xiaomi 2312CRAD3C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
