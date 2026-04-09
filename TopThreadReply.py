@@ -149,7 +149,7 @@ if __name__ == '__main__':
     headers = {'User-agent':'Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/92.0.4515.159 Safari/537.36 Edg/92.0.902.78'}
     ''' 获取formhash'''
     RURL = 'https://stage1st.com/2b/forum.php?mod=viewthread&tid=2252916&extra=page%3D1'
-    s1 = requests.get(RURL, headers=headers,  cookies=cookies)
+    s1 = requests.get(RURL, headers=headers,  cookies=cookies ,timeout=10)
     content = s1.content
     signal.signal(signal.SIGALRM, timeout_handler)
     signal.alarm(60)  # 设置超时时间为60秒
@@ -169,7 +169,7 @@ if __name__ == '__main__':
                 replyurl = 'https://stage1st.com/2b/forum.php?mod=post&action=reply&fid=157&tid='+str(threadid)+'&extra=page%3D1&replysubmit=yes'
                 #url为要回帖的地址
                 Data = {'formhash': formhash,'message': 回帖字符串,'subject': subject,'posttime':int(time.time()),'wysiwyg':1,'usesig':1}
-                req = requests.post(replyurl,data=Data,headers=headers,cookies=cookies)
+                req = requests.post(replyurl,data=Data,headers=headers,cookies=cookies,timeout=10)
                 print(req)
                 break
             else:
