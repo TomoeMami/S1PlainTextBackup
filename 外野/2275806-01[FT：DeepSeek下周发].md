@@ -3753,3 +3753,11 @@ app上去看到有专家模式了
 我倒是希望专家模式能够自自总结的提示词文档
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绝地潜兵  
+##### 337#       发表于 2026-4-9 21:03
+
+下午是在调整么，写出来的东西降智了
+
