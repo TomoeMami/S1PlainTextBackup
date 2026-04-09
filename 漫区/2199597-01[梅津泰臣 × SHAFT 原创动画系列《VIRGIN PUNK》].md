@@ -275,3 +275,11 @@
 可恶 他是来带货的吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 看他发切了 本来没打算买赶紧跑去aniplex下了一单当时还觉得是捡漏了 今天上去看还没卖完
 
+
+*****
+
+####  theredsoul  
+##### 220#       发表于 2026-4-9 20:45
+
+第二集什么时候出有消息吗
+
