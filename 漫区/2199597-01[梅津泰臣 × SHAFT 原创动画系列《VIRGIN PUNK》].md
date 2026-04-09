@@ -303,3 +303,22 @@
 
 羽舞对他的行动大概也算有个数了,虽然一脸厌恶,根本想不到他会掏枪. 
 
+
+*****
+
+####  7do  
+##### 223#       发表于 2026-4-10 01:21
+
+这两天补了kite和mezzo ova
+他的作品里建筑物都跟纸糊的一样啊，随便肉身破墙穿地板什么的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  gawain  
+##### 224#       发表于 2026-4-10 01:25
+
+我在沙发套官网买的豪华版还没发货<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
