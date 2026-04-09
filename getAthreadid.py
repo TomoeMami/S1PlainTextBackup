@@ -4,7 +4,9 @@
 import re
 from pathlib import Path
 
-def getallfile(dirpath,allpath=[]):
+def getallfile(dirpath,allpath=None):
+    if allpath is None:
+        allpath = []
     for pa in Path(dirpath).iterdir():
         if Path(pa).is_dir():
             print(pa)
