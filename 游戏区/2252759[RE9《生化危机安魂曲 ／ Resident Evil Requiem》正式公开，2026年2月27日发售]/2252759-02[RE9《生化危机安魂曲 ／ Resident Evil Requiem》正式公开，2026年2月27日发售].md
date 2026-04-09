@@ -8881,3 +8881,14 @@ grace到底是不是普通人其实也留了口子
 经典难度和现代难度只有存档限制的区别吗</blockquote>
 动态难度也有差别，经典的难度高一点，但是差别不算很大，该爆头爆头该硬直硬直该仓检仓检，数值没有一枪死到两枪死那种质变
 
+
+*****
+
+####  梅斯之围  
+##### 2241#       发表于 2026-4-9 13:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69461857&amp;ptid=2252759" target="_blank">创始’’’天翔 发表于 2026-4-9 11:47</a>
+
+经典难度和现代难度只有存档限制的区别吗</blockquote>
+经典难度我觉得存档次数也是过剩的
+
