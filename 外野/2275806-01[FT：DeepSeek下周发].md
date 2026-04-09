@@ -3659,3 +3659,13 @@ X上有人填鸭，专家模式上下文估算也就是128K。
 
 之后迭代的版本应该可以吧？
 
+
+*****
+
+####  vuderearth  
+##### 328#       发表于 2026-4-9 09:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69255146&amp;ptid=2275806" target="_blank">Evelynn 发表于 2026-3-1 16:51</a>
+为什么都那么关注deepseek？感觉这些大语言模型在商用潜力上被seedance2完爆，那个太恐怖了，商业价值已经 ...</blockquote>
+因为deepseek开源
+
