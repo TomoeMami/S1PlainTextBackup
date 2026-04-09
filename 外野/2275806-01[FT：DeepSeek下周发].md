@@ -3731,3 +3731,14 @@ app上去看到有专家模式了
 
 国内coding plan几乎全部售罄，有点想提前给ds尽孝充点了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  流缨  
+##### 335#       发表于 2026-4-9 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69463104&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-4-9 16:19</a>
+
+原来这个鬼“不是 而是 是”是通用问题啊，我让它给我写个七千字的文，这个句子能出现至少十遍，服了 ...</blockquote>
+这个问题所有家都是这个问题，中文语料反复污染+互相蒸馏导致权重太高了
+
