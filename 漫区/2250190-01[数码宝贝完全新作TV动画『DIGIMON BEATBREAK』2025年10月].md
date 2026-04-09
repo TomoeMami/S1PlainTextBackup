@@ -232,3 +232,51 @@ https://www.bilibili.com/video/BV16LDGBtEzP
 
 我错了，真的是守宫究极体，编号跟着守宫完全体的
 
+
+*****
+
+####  TOYSTORY  
+##### 523#       发表于 2026-4-9 23:47
+
+<img src="https://img.stage1st.com/forum/202604/09/234643fuyypp6ww9qyjyk9.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (105.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-9 23:46 上传
+
+<img src="https://img.stage1st.com/forum/202604/09/234643ajixk1dgz15gi1pm.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (250.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-9 23:46 上传
+
+<img src="https://img.stage1st.com/forum/202604/09/234644n34ddz2ske2pdd3d.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (115.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-9 23:46 上传
+
+<img src="https://img.stage1st.com/forum/202604/09/234644hyce38k8i8n2y2f1.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (379.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-9 23:46 上传
+
+<img src="https://img.stage1st.com/forum/202604/09/234645ahiy33sh00ih2i2i.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (341.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-9 23:46 上传
+
+有人根据卡上细节画的这只的假想图，搞不好下半身都没有脚的
+
