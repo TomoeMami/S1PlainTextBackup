@@ -3669,3 +3669,16 @@ X上有人填鸭，专家模式上下文估算也就是128K。
 为什么都那么关注deepseek？感觉这些大语言模型在商用潜力上被seedance2完爆，那个太恐怖了，商业价值已经 ...</blockquote>
 因为deepseek开源
 
+
+*****
+
+####  zack1999  
+##### 329#       发表于 2026-4-9 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69460869&amp;ptid=2275806" target="_blank">行政裁定书 发表于 2026-4-9 08:55</a>
+
+专家竟然不能上传附件，
+
+之后迭代的版本应该可以吧？</blockquote>
+现在我网页上去有附件上传入口了
+
