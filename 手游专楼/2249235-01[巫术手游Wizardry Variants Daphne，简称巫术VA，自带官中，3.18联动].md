@@ -18,3 +18,13 @@
 
 狐狸给个盗贼转职就要飞升T0和爱丽丝坐一块了，游戏改名巫术：柚奈壬姬
 
+
+*****
+
+####  茄子自走炮  
+##### 767#       发表于 2026-4-9 16:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">有专的狐狸一直是T0啊
+
+只有我这种抽一井没有角的穷逼没拿专了
+
