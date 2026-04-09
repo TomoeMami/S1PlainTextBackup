@@ -221,3 +221,13 @@
 
 —— 来自 HUAWEI EVR-AL00, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  oyss  
+##### 215#       发表于 2026-4-9 16:47
+
+<blockquote>AlfredXC 发表于 2026-4-7 18:43
+</blockquote>
+马上就有人送他一个豪华版，他那么大个公司呢，肯定也有人买的
+
