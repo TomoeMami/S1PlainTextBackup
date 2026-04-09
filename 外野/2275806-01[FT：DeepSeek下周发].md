@@ -3682,3 +3682,14 @@ X上有人填鸭，专家模式上下文估算也就是128K。
 之后迭代的版本应该可以吧？</blockquote>
 现在我网页上去有附件上传入口了
 
+
+*****
+
+####  行政裁定书  
+##### 330#       发表于 2026-4-9 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69461837&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-4-9 11:43</a>
+
+现在我网页上去有附件上传入口了</blockquote>
+还真是，正好在这两个小时里更新了
+
