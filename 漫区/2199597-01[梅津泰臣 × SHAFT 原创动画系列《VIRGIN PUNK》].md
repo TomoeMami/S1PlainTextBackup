@@ -266,3 +266,12 @@
 如果是90年代ova黄金期，女主角每次意识断片的时候估计就是肉戏，等AI导演补奸版233 ...</blockquote>
 肉戏应该会有残留不难被发现吧，mezzo倒是一次是春梦一次是机器人女主没真上<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  喵喵叫的猫  
+##### 219#       发表于 2026-4-9 17:41
+
+可恶 他是来带货的吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+看他发切了 本来没打算买赶紧跑去aniplex下了一单当时还觉得是捡漏了 今天上去看还没卖完
+
