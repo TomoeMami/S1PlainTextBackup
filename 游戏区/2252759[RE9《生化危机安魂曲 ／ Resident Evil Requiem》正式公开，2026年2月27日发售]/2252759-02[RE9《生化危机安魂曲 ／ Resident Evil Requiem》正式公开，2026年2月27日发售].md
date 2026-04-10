@@ -8954,3 +8954,16 @@ grace到底是不是普通人其实也留了口子
 
 但我看速通还是会故意清子弹，只是清格子？
 
+
+*****
+
+####  1096beam  
+##### 2247#       发表于 2026-4-10 21:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69469368&amp;ptid=2252759" target="_blank">何然 发表于 2026-4-10 20:57</a>
+
+疯狂锁死的？
+
+但我看速通还是会故意清子弹，只是清格子？</blockquote>
+对的，还有故意受伤吃两个绿草的操作
+
