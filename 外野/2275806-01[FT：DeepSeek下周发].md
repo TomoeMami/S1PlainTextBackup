@@ -3805,3 +3805,15 @@ app上去看到有专家模式了
 凤凰网科技【梁文锋回应DeepSeekV4发布时间 DeepSeekV4即将发布】在历经数次"跳票"传闻后，备受关注的DeepS ...</blockquote>
 这些野鸡媒体只要每周都猜，总能猜到的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  neptunehs  
+##### 342#       发表于 2026-4-10 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69463988&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-4-9 19:44</a>
+国内coding plan几乎全部售罄，有点想提前给ds尽孝充点了    Re:Source</blockquote>
+这也是我想知道其实 ds api能不能取代coding plan？
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
