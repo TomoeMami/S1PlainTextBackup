@@ -322,3 +322,13 @@
 
 我在沙发套官网买的豪华版还没发货<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AlfredXC  
+##### 225#       发表于 2026-4-10 13:12
+
+我的BD也到了
+<img src="https://p.sda1.dev/32/ab85436910f8d7fe55543c40ebf7ccba/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/f15adc23ee151312a795bc22a1fc9d5f/image.jpg" referrerpolicy="no-referrer">
+
