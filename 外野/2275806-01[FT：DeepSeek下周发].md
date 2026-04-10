@@ -3868,3 +3868,11 @@ deepseek要是真发新的大版本，效果特别好的话，api肯定会因为
 
 在KIMI2.5上面试过无效，感觉DS是有酒馆插件<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  S_ky  
+##### 347#       发表于 2026-4-10 17:33
+
+我现在gemini、kimi都充的最高会员，但是用下来还是免费的deepseek最好用
+
