@@ -3777,3 +3777,21 @@ app上去看到有专家模式了
 
 便秘式更新也是够了，所以到底有啥问题？
 
+
+*****
+
+####  当光停止  
+##### 340#       发表于 2026-4-10 13:45
+
+[凤凰网科技](https://weibo.com/u/1856404484)【[梁文锋回应DeepSeekV4发布时间](https://s.weibo.com/weibo?q=%23%E6%A2%81%E6%96%87%E9%94%8B%E5%9B%9E%E5%BA%94DeepSeekV4%E5%8F%91%E5%B8%83%E6%97%B6%E9%97%B4%23) [DeepSeekV4即将发布](https://s.weibo.com/weibo?q=%23DeepSeekV4%E5%8D%B3%E5%B0%86%E5%8F%91%E5%B8%83%23)】在历经数次"跳票"传闻后，备受关注的DeepSeek V4即将登场。
+
+据《创智记》从多位知情人士处获悉，DeepSeek创始人梁文锋近日在内部沟通中透露，DeepSeek新一代旗舰大模型DeepSeek V4将于4月下旬正式发布。
+
+此前有相关消息显示，DeepSeek V4不仅将带来万亿参数规模和百万级上下文窗口，更首次实现与华为昇腾等国产芯片的深度适配，标志着中国AI产业在"去CUDA化"道路上迈出关键一步。
+
+值得关注的是，3月29日晚，DeepSeek经历了整整13小时服务中断。当时官方仅称"服务器故障"，但多位开发者在恢复后发现，模型输出逻辑发生显著变化：编码结构更清晰，逻辑严谨度飞跃式提升，SVG图形生成能力明显增强。
+
+业内普遍猜测，这次"停摆"实为V4的灰度测试或全量部署
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">难道说？
+
