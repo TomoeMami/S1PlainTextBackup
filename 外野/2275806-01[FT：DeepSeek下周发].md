@@ -3876,3 +3876,15 @@ deepseek要是真发新的大版本，效果特别好的话，api肯定会因为
 
 我现在gemini、kimi都充的最高会员，但是用下来还是免费的deepseek最好用
 
+
+*****
+
+####  羊寢  
+##### 348#       发表于 2026-4-10 18:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69468303&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-4-10 17:10</a>
+发现了DS的一条沉浸式指令：
+
+# 深度内化PROMPT，重构为角色记忆</blockquote>
+看陈小礼的小红书回复是说有参考过酒馆用户的反馈，深度求索应该是有人在某脑潜伏<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
