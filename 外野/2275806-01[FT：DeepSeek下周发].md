@@ -3795,3 +3795,13 @@ app上去看到有专家模式了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">难道说？
 
+
+*****
+
+####  overflowal  
+##### 341#       发表于 2026-4-10 14:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69467259&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-4-10 13:45</a>
+凤凰网科技【梁文锋回应DeepSeekV4发布时间 DeepSeekV4即将发布】在历经数次"跳票"传闻后，备受关注的DeepS ...</blockquote>
+这些野鸡媒体只要每周都猜，总能猜到的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
