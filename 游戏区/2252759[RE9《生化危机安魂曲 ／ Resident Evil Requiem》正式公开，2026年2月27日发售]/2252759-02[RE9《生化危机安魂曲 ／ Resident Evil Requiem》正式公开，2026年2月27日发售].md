@@ -8931,3 +8931,11 @@ grace到底是不是普通人其实也留了口子
 
 是瘋狂鎖死第9級，硬直更去到0.1，所以要多槍才能出硬直，
 
+
+*****
+
+####  纯夏  
+##### 2245#       发表于 2026-4-10 16:24
+
+今天voices38大神正式破解了D加密 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 看来RE9人气是真的高
+
