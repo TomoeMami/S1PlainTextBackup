@@ -527,3 +527,14 @@ wiki说ILCA是I Love Computer Art, 既没看到Love也没看到Art
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69182473&amp;ptid=2274658" target="_blank">Lisylfn 发表于 2026-2-13 11:27</a></blockquote>
 XB2知名败犬尼亚同款配色
 
+
+*****
+
+####  红魔馆的糖  
+##### 64#       发表于 2026-4-10 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69185291&amp;ptid=2274658" target="_blank">偏執王 发表于 2026-2-13 21:55</a>
+
+美丽的二次元3D模型 你在哪里...</blockquote>
+美丽的二次元3D模型在PS氪金榜上面<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
