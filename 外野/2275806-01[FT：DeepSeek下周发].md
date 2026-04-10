@@ -3909,3 +3909,21 @@ deepseek要是真发新的大版本，效果特别好的话，api肯定会因为
 我在批站看酒馆大佬构建角色卡高级描述就有这么一条，“每次输入要展示心里活动”，和DS的扮演模式思考太 ...</blockquote>
 有酒馆用户私他，他回的说是这次会用大量的复杂的酒馆提示词来训练角色扮演，所以到时候思维链里出现什么都不要奇怪。
 
+
+*****
+
+####  Quelaan  
+##### 351#       发表于 2026-4-10 19:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69468865&amp;ptid=2275806" target="_blank">88316756 发表于 2026-4-10 18:58</a>
+有酒馆用户私他，他回的说是这次会用大量的复杂的酒馆提示词来训练角色扮演，所以到时候思维链里出现什么 ...</blockquote>
+鲸鱼娘神了<img src="https://static.stage1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  drodchang  
+##### 352#       发表于 2026-4-10 19:46
+
+glm，kimi，minimax的会员我都买过，用下来还是kimi最好用，虽然并不是最聪明的。
+
