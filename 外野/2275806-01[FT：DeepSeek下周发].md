@@ -3888,3 +3888,14 @@ deepseek要是真发新的大版本，效果特别好的话，api肯定会因为
 # 深度内化PROMPT，重构为角色记忆</blockquote>
 看陈小礼的小红书回复是说有参考过酒馆用户的反馈，深度求索应该是有人在某脑潜伏<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绝地潜兵  
+##### 349#       发表于 2026-4-10 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69468789&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-4-10 18:37</a>
+
+看陈小礼的小红书回复是说有参考过酒馆用户的反馈，深度求索应该是有人在某脑潜伏 ...</blockquote>
+我在批站看酒馆大佬构建角色卡高级描述就有这么一条，“每次输入要展示心里活动”，和DS的扮演模式思考太像了
+
