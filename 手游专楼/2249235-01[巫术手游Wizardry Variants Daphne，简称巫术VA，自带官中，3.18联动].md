@@ -28,3 +28,14 @@
 
 只有我这种抽一井没有角的穷逼没拿专了
 
+
+*****
+
+####  电脑死机  
+##### 768#       发表于 2026-4-10 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69462832&amp;ptid=2249235" target="_blank">UnknownRei 发表于 2026-4-9 15:33</a>
+
+狐狸给个盗贼转职就要飞升T0和爱丽丝坐一块了，游戏改名巫术：柚奈壬姬</blockquote>
+或者看看有什么盗贼的东西可以给她学的，我那边已经塞了个会心加伤
+
