@@ -3817,3 +3817,22 @@ app上去看到有专家模式了
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  当光停止  
+##### 343#       发表于 2026-4-10 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69467339&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-4-10 14:08</a>
+
+这也是我想知道其实 ds api能不能取代coding plan？
+
+—— 来自 OnePlus PJX110, Android 14, 鹅球 v3.5. ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别指望。
+
+deepseek要是真发新的大版本，效果特别好的话，api肯定会因为访问量不稳定一段时间。
+
+目前deepseek的代码能力不是很强。
+
+要是跑龙虾的话很麻烦，有很多重要的指令参数或者提示词角色会被吞。
+
