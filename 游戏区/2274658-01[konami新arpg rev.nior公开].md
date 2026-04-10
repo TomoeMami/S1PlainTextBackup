@@ -480,3 +480,33 @@ Jrpg正统在二游
 
 这就是ilca，这家公司到底是能洗多少钱啊都找他们做
 
+
+*****
+
+####  泰坦失足  
+##### 59#       发表于 2026-4-10 09:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69465856&amp;ptid=2274658" target="_blank">u2deack 发表于 2026-4-10 09:38</a>
+
+这就是ilca，这家公司到底是能洗多少钱啊都找他们做</blockquote>
+wiki说ILCA是I Love Computer Art, 既没看到Love也没看到Art
+
+*****
+
+####  chris1987  
+##### 60#       发表于 2026-4-10 09:48
+
+这建模有种很廉价的感觉<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cc-2  
+##### 61#       发表于 2026-4-10 09:51
+
+男主角感觉是个黑皮啊？
+
+样子有点像高达00主角刹那（中东人）+阿三的既视感
+
+两个女角色风格有点割裂，然后中间那个有点像异度装甲的女主角
+
