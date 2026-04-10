@@ -518,3 +518,12 @@ wiki说ILCA是I Love Computer Art, 既没看到Love也没看到Art
 
   这男主总有一股国产二游自捏主角的味儿
 
+
+*****
+
+####  farAway  
+##### 63#       发表于 2026-4-10 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69182473&amp;ptid=2274658" target="_blank">Lisylfn 发表于 2026-2-13 11:27</a></blockquote>
+XB2知名败犬尼亚同款配色
+
