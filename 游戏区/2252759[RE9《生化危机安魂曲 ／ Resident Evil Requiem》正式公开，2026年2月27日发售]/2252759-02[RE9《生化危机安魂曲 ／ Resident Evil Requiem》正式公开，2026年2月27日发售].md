@@ -9069,3 +9069,18 @@ LEON你剛才在病房看不到嗎?
 
 和护士一样普通人被杀死并不会变异
 
+
+*****
+
+####  何然  
+##### 2253#       发表于 2026-4-11 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69473711&amp;ptid=2252759" target="_blank">kcalb 发表于 2026-4-11 21:44</a>
+
+手电在西区卡尸体旁边捡的，你跳动画了吧
+
+西区卡那个独立建模可能是被利器或者girl抹脖子的（grace进门前 ...</blockquote>
+哦真是我失忆了，确认了下甚至在去警卫室之前打火机也不能用
+
+不，问题在于独立建模老哥死的时候大家都变异了啊
+
