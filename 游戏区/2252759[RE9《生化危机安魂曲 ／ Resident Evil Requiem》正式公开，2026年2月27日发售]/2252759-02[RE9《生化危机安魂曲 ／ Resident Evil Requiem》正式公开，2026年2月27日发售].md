@@ -8994,3 +8994,13 @@ grace到底是不是普通人其实也留了口子
 
 但瘋狂也只是0.4，大約多了一倍略多，和之前多些少，所以看LEON武器如果大多都是2改火力的話，還是沒太太分別
 
+
+*****
+
+####  何然  
+##### 2249#       发表于 2026-4-11 11:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">三周目了我都没发现grace怎么拿回手电筒的
+
+之前一直以为是leon给的，结果也只递给了她安魂啊
+
