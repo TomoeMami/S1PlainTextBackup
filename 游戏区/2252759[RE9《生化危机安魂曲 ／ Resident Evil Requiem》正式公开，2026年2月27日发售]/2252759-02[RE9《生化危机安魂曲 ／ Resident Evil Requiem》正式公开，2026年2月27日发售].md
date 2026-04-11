@@ -9050,3 +9050,22 @@ LEON你剛才在病房看不到嗎?
 
 如果不是空氣感染的話，沒可能解釋到變異速度那麼快
 
+
+*****
+
+####  kcalb  
+##### 2252#       发表于 2026-4-11 21:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69471243&amp;ptid=2252759" target="_blank">何然 发表于 2026-4-11 11:43</a>
+
+目前感觉剧情上生草点还挺多的
+
+电筒的问题刚才说了
+
+还有更早发现的异次元光盘</blockquote>
+手电在西区卡尸体旁边捡的，你跳动画了吧<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+西区卡那个独立建模可能是被利器或者girl抹脖子的（grace进门前为关灯状态
+
+和护士一样普通人被杀死并不会变异
+
