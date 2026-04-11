@@ -348,3 +348,13 @@ CDPR官方宣布，《赛博朋克2077》PS5 Pro增强补丁将于4月8日正式
 由手机上传
 2026-4-8 23:40 上传
 
+
+*****
+
+####  黑猫软  
+##### 618#       发表于 2026-4-11 09:44
+
+https://store.playstation.com/zh-hant-hk/product/EP0096-CUSA10811_00-GRAVEYARDKEEPER0/
+
+守墓人喜加一 官方全平台送
+
