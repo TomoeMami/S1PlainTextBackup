@@ -4013,3 +4013,16 @@ Deepseek文学功底真是一绝。
 
 现在专家模式可以上传附件了
 
+
+*****
+
+####  杀人鲸  
+##### 361#       发表于 2026-4-11 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69472656&amp;ptid=2275806" target="_blank">sellboy 发表于 2026-4-11 18:21</a>
+现在专家模式可以上传附件了</blockquote>
+前几天就可以了吧？在上面有看到说不能上传附件的那一天，几乎可以说是到晚上的时候，就更新成为可以上传附件了。
+还是说这个更新是有时效性的？有些朋友的客户端没有来得及更新这个功能吗？至少我昨天或者说前天就已经可以上传文件了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
