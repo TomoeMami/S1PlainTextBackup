@@ -9027,3 +9027,26 @@ grace到底是不是普通人其实也留了口子
 但剧情上从执行code 6到grace进入西区顶天了也就半小时，实际呈现出来的并不是“才变异”而是已经形成了一股生态的味道了
 <img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 2251#       发表于 2026-4-11 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69471243&amp;ptid=2252759" target="_blank">何然 发表于 2026-4-11 11:43</a>
+
+目前感觉剧情上生草点还挺多的
+
+电筒的问题刚才说了
+
+还有更早发现的异次元光盘</blockquote>
+明明在開局時，LEON見到VICTOR是用針槍對路人變異
+
+但去到療養院時，LEON見到活人護士剛被殺後，除了門外病床已經有數隻已變異的人行入去
+
+即時回到病房(即時解決了電割後)，在門後面就有一隻女喪屍...而病房去倉庫門後面的喪屍數隻這時還未行到
+
+LEON你剛才在病房看不到嗎?
+
+如果不是空氣感染的話，沒可能解釋到變異速度那麼快
+
