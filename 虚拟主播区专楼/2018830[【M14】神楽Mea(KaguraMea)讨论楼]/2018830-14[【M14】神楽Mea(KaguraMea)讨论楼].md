@@ -5216,3 +5216,13 @@ Steam上的新游戏，它的主题曲由我来负责演唱了。
 
 1:09:37 - 1:11:21 ★ 12. 梦灯笼 / 夢灯籠 / RADWIMPS
 
+
+*****
+
+####  术士q  
+##### 20445#       发表于 2026-4-11 10:44
+
+官号好像涨了好多粉丝，之前我记得都快跌破83万了，早上一看变成83.2万了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+不过新曲人声版确实带劲的啊
+
