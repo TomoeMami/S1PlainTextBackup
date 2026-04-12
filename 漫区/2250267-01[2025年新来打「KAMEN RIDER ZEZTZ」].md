@@ -1326,3 +1326,15 @@ Counter the assassination.（对抗暗杀）
 
 下集简介就这么轻飘飘的抛出了code高层，虽然是意料中的，我还以为至少应该剧里面先铺垫一下<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 1202#       发表于 2026-4-12 19:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69476822&amp;ptid=2250267" target="_blank">風卷豹 发表于 2026-4-12 18:57</a>
+下集简介就这么轻飘飘的抛出了code高层，虽然是意料中的，我还以为至少应该剧里面先铺垫一下 ...</blockquote>
+能不能有露脸都不好说呢，感觉高层估计不是坏，但可能蠢，所以只需要执行层有反派就行了，搞得跟公司似的，董事会和经理，0是总经理，3是副手想夺权（
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
