@@ -1028,3 +1028,21 @@ Counter the assassination.（对抗暗杀）
 
 2026-4-12 09:49 上传
 
+
+*****
+
+####  zakki  
+##### 1172#       发表于 2026-4-12 09:55
+
+太重拿轻放了吧，除了不是亲生的外对剧情格局没有任何改变和推进，习惯的高桥炒热度写法<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 1173#       发表于 2026-4-12 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69475041&amp;ptid=2250267" target="_blank">milky658 发表于 2026-4-12 09:47</a>
+
+铺垫这么久的猫梦魇后面应该还有戏份吧，不然太浪费了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉秩序和灾厄的初登场毛病都差不多，都有点在那想一会儿，噔噔咚我得出结论了，然后就获得力量了。。美浪目前看就是没啥太大关系的局外人，真能有戏份吗
+
