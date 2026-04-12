@@ -1286,3 +1286,17 @@ Counter the assassination.（对抗暗杀）
 
 这集感觉需要点激情的时候依然表现太平淡了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑暗之眼  
+##### 1198#       发表于 2026-4-12 13:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69475364&amp;ptid=2250267" target="_blank">iceddd 发表于 2026-4-12 11:10</a>
+橘前辈这角色让我观感好差 能不能正常点    Re:Source</blockquote>
+角色的作用是得对作品整体有用处，让观众看得爽不是必须的，甚至没这个必要。
+
+情节发展需要有这样的角色，那就应该有。
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
