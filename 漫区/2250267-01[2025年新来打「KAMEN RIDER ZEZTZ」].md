@@ -971,3 +971,31 @@ nox真的在干活还一直说真话<img src="https://static.stage1st.com/image/
 这段时间看贴吧老拿zzz热度比来比去蛮难绷的，看发言又不像真了解情况的样子。流水论战也是论战的一环吧大概<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 如果是要拷打螃蟹无限的话，那玩意现在远不止没活那么简单。白仓说好的负责呢？穿身兔女郎装跳舞吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  挺好的  
+##### 1169#       发表于 2026-4-12 09:23
+
+假面骑士ZZZ 第31话『苛责』
+
+脚本：高桥悠也
+
+监督：上堀内佳寿也
+
+万津莫——假面骑士ZZZ
+
+是通过预知梦掌握了各种机密情报，并制造出远超组织预想的双重梦胶囊的危险分子
+
+极秘防卫机关CODE的高层得出了这一结论。
+
+就连在预知梦中曾站在ZZZ一方的司令官Zero如今也已无法再包庇他
+
+Zero必须对抗自己和同伴们所面临的生死危机
+
+这次他自己下达的任务代码是——
+
+Counter the assassination.（对抗暗杀）
+
+直面造就了ZZZ的最强特工——暗码编号Zero。
+
