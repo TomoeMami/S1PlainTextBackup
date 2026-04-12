@@ -329,3 +329,11 @@ https://www.bilibili.com/video/BV16LDGBtEzP
 修罗场-&gt;你们都是翅膀
 这片感觉虽然单元剧但剧情之间衔接做得挺扎实的，之前帮助的商店街又出现了，数码兽的直白修罗场过渡到下一集人的疑似暧昧
 
+
+*****
+
+####  liekong  
+##### 527#       发表于 2026-4-13 01:18
+
+看起来主角这边都是单独进化，为了体现进化的多样性，我看晴臣就很合适以后成为合体进化担当啊<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
