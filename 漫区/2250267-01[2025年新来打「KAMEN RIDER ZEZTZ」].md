@@ -1308,3 +1308,21 @@ Counter the assassination.（对抗暗杀）
 
 0很多时候对老莫都有种老父亲的感觉，这集实锤父母也不是亲的，是不是该传统艺能07父子局了<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  scikirbypoke  
+##### 1200#       发表于 2026-4-12 18:52
+
+妹妹外传这是0要培养妹妹当梦境特工了？
+
+明明已经不站在code那边了……
+
+
+*****
+
+####  風卷豹  
+##### 1201#       发表于 2026-4-12 18:57
+
+下集简介就这么轻飘飘的抛出了code高层，虽然是意料中的，我还以为至少应该剧里面先铺垫一下<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
