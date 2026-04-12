@@ -345,3 +345,11 @@ https://www.bilibili.com/video/BV16LDGBtEzP
 
 商店街返场挺好的，之前一直在想都结义兄弟了哪怕打个酱油呢？春臣你个人回怎么都这么沉重…<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">既然结局是去商店街兼养了俩数码兽，那估计是成不了常驻后援了，估计是后期大决战作为商店街保护者登场那种定位吧。
 
+
+*****
+
+####  天光逸  
+##### 529#       发表于 2026-4-13 04:54
+
+DBB感觉还是挺好吃的
+
