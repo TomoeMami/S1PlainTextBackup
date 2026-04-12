@@ -4085,3 +4085,15 @@ Deepseek文学功底真是一绝。
 
 2026-4-12 21:15 上传
 
+
+*****
+
+####  杀人鲸  
+##### 367#       发表于 2026-4-13 02:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69477247&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-4-12 21:15</a>
+私心希望鲸鱼不要去卷编程的，现在凡是卷编程的LLM，哪个不是被码农挂满一身的Agent抽干算力变成废废的。难 ...</blockquote>
+现如今用API的同时，再对比一下客户端的鲸鱼的时候，就真的感觉怎么越进化越抽象呀？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
