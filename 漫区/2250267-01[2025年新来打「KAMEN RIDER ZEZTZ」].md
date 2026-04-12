@@ -1192,3 +1192,43 @@ Counter the assassination.（对抗暗杀）
 
 橘前辈这角色让我观感好差<img src="https://static.stage1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JOHNCHCHAN  
+##### 1189#       发表于 2026-4-12 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69475064&amp;ptid=2250267" target="_blank">zakki 发表于 2026-4-12 09:55</a>
+太重拿轻放了吧，除了不是亲生的外对剧情格局没有任何改变和推进，习惯的高桥炒热度写法 ...</blockquote>
+还是引出了父母这个线索，连父母都是虚假的这冲击其实更大，可惜都是发生在回忆里，没能拍出莫的反应观众也就觉得是轻轻带过
+
+*****
+
+####  pointer243  
+##### 1190#       发表于 2026-4-12 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69475364&amp;ptid=2250267" target="_blank">iceddd 发表于 2026-4-12 11:10</a>
+橘前辈这角色让我观感好差 能不能正常点    Re:Source</blockquote>
+你把1当成王蛇那样看就没那么突兀了,要是你把他当橘前辈那是挺脱线的。
+
+—— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  iceddd  
+##### 1191#       发表于 2026-4-12 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69475427&amp;ptid=2250267" target="_blank">pointer243 发表于 2026-4-12 11:29</a>
+你把1当成王蛇那样看就没那么突兀了,要是你把他当橘前辈那是挺脱线的。
+
+—— 来自 LGE LM-Q730, Android ...</blockquote>
+这角色有点太油腻了 nox酱 小猫咪 学猫叫  <img src="https://static.stage1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  AP0rt_  
+##### 1192#       发表于 2026-4-12 11:35
+
+看了圈评价，怎么感觉呱呱拉这么多啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
