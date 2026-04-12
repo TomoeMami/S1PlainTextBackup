@@ -1263,3 +1263,16 @@ Counter the assassination.（对抗暗杀）
 
 搞不好后续是快被三干掉的时候被妹妹救了，CODE高层怕不是早就被梦魇夺舍渗透完了
 
+
+*****
+
+####  暗黑能乐  
+##### 1196#       发表于 2026-4-12 12:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69475575&amp;ptid=2250267" target="_blank">鲁邦三世1 发表于 2026-4-12 12:11</a>
+零怕不是要成背锅侠
+从预告来看零对膜类似老父亲，对zzz也是欣赏居多</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">有没有可能黑幕假死骗一波。。。好像小糖人演过了
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
