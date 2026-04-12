@@ -1300,3 +1300,11 @@ Counter the assassination.（对抗暗杀）
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  AAAZZZWWW  
+##### 1199#       发表于 2026-4-12 17:03
+
+0很多时候对老莫都有种老父亲的感觉，这集实锤父母也不是亲的，是不是该传统艺能07父子局了<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
