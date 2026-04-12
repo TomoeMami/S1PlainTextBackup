@@ -9094,3 +9094,16 @@ LEON你剛才在病房看不到嗎?
 
 当然也不排除这几位体内的病毒更特殊潜伏期更久，安排在了DLC正面突袭疗养院时才会面对。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 2255#       发表于 2026-4-12 19:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69468030&amp;ptid=2252759" target="_blank">纯夏 发表于 2026-4-10 16:24</a>
+
+今天voices38大神正式破解了D加密  看来RE9人气是真的高</blockquote>
+已經有影片比較移除 Denuvo，和用hypervisor bypass 運行但保留 Denuvo的版本
+
+移除D加密是更省資源，VRAM省了近1GB，當然幀數等也更穩定
+

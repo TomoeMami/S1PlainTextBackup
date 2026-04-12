@@ -48,3 +48,18 @@
 
 大概是因为看漫画时不爽的段落可以直接跳过吧
 
+
+*****
+
+####  Ferrari  
+##### 62#       发表于 2026-4-12 19:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69475008&amp;ptid=2258779" target="_blank">嘉术2015 发表于 2026-4-12 09:40</a>
+西索打棒球是超智游戏吗
+
+我漫画看了不下五遍
+
+不知道动画化的质量怎么样啊 ...</blockquote>
+非常好 当年标准的疯房子作品
+可惜没出完所有剧情
+
