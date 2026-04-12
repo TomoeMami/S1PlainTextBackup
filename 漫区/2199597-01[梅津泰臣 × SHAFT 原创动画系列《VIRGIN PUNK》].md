@@ -359,3 +359,14 @@ real type shit，真密码好看，我直接一个碟的买
 我的BD也到了</blockquote>
 这是哪里海关？特典插画卡竟然能过。
 
+
+*****
+
+####  AlfredXC  
+##### 229#       发表于 2026-4-12 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69475287&amp;ptid=2199597" target="_blank">勿徊哉 发表于 2026-4-12 10:54</a>
+
+这是哪里海关？特典插画卡竟然能过。</blockquote>
+上海的，可能因为确实没露点吧
+

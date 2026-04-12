@@ -1232,3 +1232,11 @@ Counter the assassination.（对抗暗杀）
 
 看了圈评价，怎么感觉呱呱拉这么多啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakki  
+##### 1193#       发表于 2026-4-12 11:46
+
+预知梦这个设定抛出来几集除了重演第三集有啥意义吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所有角色看过总集数就等于塑造和经历默认继承了，就现在西格和code暗杀的剧情就算接在被3枪击后面也毫无违和
+
