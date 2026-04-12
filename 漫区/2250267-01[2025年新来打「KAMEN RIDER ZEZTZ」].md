@@ -1422,3 +1422,13 @@ Counter the assassination.（对抗暗杀）
 毕竟周日英雄剧场，不可能给你来个大家都是骗你的，你就是把眼泪掩盖在面具之下的黑暗英雄，只能说妹妹的安排和处理都没出乎意料，甚至于零都有留下成为伙伴的钩子
 橘前辈现在就是个剧情需要的搞事役，这个角色要评价还得等到第一次吃瘪、揭露这么疯癫的理由的时候才行
 
+
+*****
+
+####  FACS  
+##### 1212#       发表于 2026-4-13 06:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69477557&amp;ptid=2250267" target="_blank">饭冢武也 发表于 2026-4-12 22:33</a>
+特工编号什么逻辑，为什么17比7加入还早</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那7小时候还有神秘梦境培训班呢
+
