@@ -1135,3 +1135,32 @@ Counter the assassination.（对抗暗杀）
 
 看贴吧还以为这话烂完了，实际看完还行吧，柴崎贵行也就这水平了
 
+
+*****
+
+####  鲁邦三世1  
+##### 1183#       发表于 2026-4-12 10:48
+
+监督就这几个人，难不成换水鬼来？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  挺好的  
+##### 1184#       发表于 2026-4-12 10:52
+
+就秩序能把人和梦魇分离，然后橘前辈是人＋梦魇融合，后续应该会把惩戒梦魇分离出来吧，要不然怎么登场的
+
+
+*****
+
+####  黑暗之眼  
+##### 1185#       发表于 2026-4-12 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69475275&amp;ptid=2250267" target="_blank">挺好的 发表于 2026-4-12 10:52</a>
+就秩序能把人和梦魇分离，然后橘前辈是人＋梦魇融合，后续应该会把惩戒梦魇分离出来吧，要不然怎么登场的 ...</blockquote>
+直接化身呗
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
