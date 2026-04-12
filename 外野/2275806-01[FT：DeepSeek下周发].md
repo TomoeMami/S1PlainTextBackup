@@ -4026,3 +4026,20 @@ Deepseek文学功底真是一绝。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  绝地潜兵  
+##### 362#       发表于 2026-4-12 11:56
+
+悄悄的进村，打枪的不要<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+屏幕截图_12-4-2026_11546_tv.cctv.com.jpeg
+(136.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-12 11:56 上传
+
+<img src="https://img.stage1st.com/forum/202604/12/115655f3g49vl2m88lu3gb.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
