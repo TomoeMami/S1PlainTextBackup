@@ -1276,3 +1276,13 @@ Counter the assassination.（对抗暗杀）
 
 —— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  blue321  
+##### 1197#       发表于 2026-4-12 13:18
+
+莫的特工/本人性格都属于HIGH不起来的那种
+
+这集感觉需要点激情的时候依然表现太平淡了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
