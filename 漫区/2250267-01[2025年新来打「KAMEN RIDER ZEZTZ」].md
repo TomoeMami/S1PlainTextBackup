@@ -1117,3 +1117,21 @@ Counter the assassination.（对抗暗杀）
 
 秩序就是重编程+ufo啊，我还以为这集能打校长的
 
+
+*****
+
+####  暗黑能乐  
+##### 1181#       发表于 2026-4-12 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69475193&amp;ptid=2250267" target="_blank">milky658 发表于 2026-4-12 10:31</a>
+
+拍得太平铺直叙了，感情没烘托起来，也是一直以来的**病了。解决假妹妹的事以后下集就莫的生父展开，妹妹充 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">从下集变身还是灾厄的情况看，怕不是秩序并非无时无刻都能变，得要守护欲足够强的时候才能爆甲
+
+*****
+
+####  浅川雏羽  
+##### 1182#       发表于 2026-4-12 10:43
+
+看贴吧还以为这话烂完了，实际看完还行吧，柴崎贵行也就这水平了
+
