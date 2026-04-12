@@ -1393,3 +1393,13 @@ Counter the assassination.（对抗暗杀）
 特工编号什么逻辑，为什么17比7加入还早</blockquote>
 个位数和十位数职责不同吧 妹妹明显没有清晰梦能力
 
+
+*****
+
+####  scikirbypoke  
+##### 1209#       发表于 2026-4-12 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69477557&amp;ptid=2250267" target="_blank">饭冢武也 发表于 2026-4-12 22:33</a>
+特工编号什么逻辑，为什么17比7加入还早</blockquote>
+有可能是萝卜坑，小时候就预定了
+
