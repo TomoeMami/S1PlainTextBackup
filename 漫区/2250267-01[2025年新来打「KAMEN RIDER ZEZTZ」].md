@@ -1240,3 +1240,16 @@ Counter the assassination.（对抗暗杀）
 
 预知梦这个设定抛出来几集除了重演第三集有啥意义吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所有角色看过总集数就等于塑造和经历默认继承了，就现在西格和code暗杀的剧情就算接在被3枪击后面也毫无违和
 
+
+*****
+
+####  鲁邦三世1  
+##### 1194#       发表于 2026-4-12 12:11
+
+零怕不是要成背锅侠
+从预告来看零对膜类似老父亲，对zzz也是欣赏居多
+
+说不定接下来就是零要么被三干掉要么被高层干掉然后code彻底转黑
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
