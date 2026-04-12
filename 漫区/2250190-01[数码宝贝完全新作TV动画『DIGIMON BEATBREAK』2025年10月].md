@@ -280,3 +280,35 @@ https://www.bilibili.com/video/BV16LDGBtEzP
 
 有人根据卡上细节画的这只的假想图，搞不好下半身都没有脚的
 
+
+*****
+
+####  TOYSTORY  
+##### 524#       发表于 2026-4-12 11:58
+
+<img src="https://img.stage1st.com/forum/202604/12/115739t5zcc5nc9lbuf55g.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (83.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-12 11:57 上传
+
+<img src="https://img.stage1st.com/forum/202604/12/115740cdi0kmyy0m52vf0e.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (84.23 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-12 11:57 上传
+
+<img src="https://img.stage1st.com/forum/202604/12/115740u32a6zza0ykkx3vn.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (76 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-12 11:57 上传
+
+下一话有恋爱八卦看<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
