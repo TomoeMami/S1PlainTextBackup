@@ -23,3 +23,18 @@
 以降の話数にも時々参加していますので、ぜひご覧いただけたら嬉しいです！
 <img src="https://p.sda1.dev/32/1862f2011c3af569eefeec0a996e59c9/1000164360.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嘉术2015  
+##### 60#       发表于 2026-4-12 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69439576&amp;ptid=2258779" target="_blank">我爱喵喵 发表于 2026-4-4 14:45</a>
+
+西索打棒球在我这儿差不多算是年番了，基本上每年都会翻出来看一遍，有时候甚至只是当个白噪音摆在那儿， ...</blockquote>
+西索打棒球是超智游戏吗
+
+我漫画看了不下五遍
+
+不知道动画化的质量怎么样啊
+
