@@ -999,3 +999,32 @@ Counter the assassination.（对抗暗杀）
 
 直面造就了ZZZ的最强特工——暗码编号Zero。
 
+
+*****
+
+####  milky658  
+##### 1170#       发表于 2026-4-12 09:47
+
+铺垫这么久的猫梦魇后面应该还有戏份吧，不然太浪费了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  挺好的  
+##### 1171#       发表于 2026-4-12 09:49
+
+<img src="https://img.stage1st.com/forum/202604/12/094922t7c3lpmtj3af1wjf.png" referrerpolicy="no-referrer">
+
+<strong>d3c96916328f8b61f46463cbaff76ac1.png</strong> (121.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-12 09:49 上传
+
+<img src="https://img.stage1st.com/forum/202604/12/094922g101vlivl954jqdd.png" referrerpolicy="no-referrer">
+
+<strong>f80625df1f283cf861e331c20f5a7fe8.png</strong> (60.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-12 09:49 上传
+
