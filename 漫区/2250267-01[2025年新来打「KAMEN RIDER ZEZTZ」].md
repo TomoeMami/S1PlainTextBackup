@@ -1356,3 +1356,11 @@ Counter the assassination.（对抗暗杀）
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拍出了一个情绪稳定
 
+
+*****
+
+####  milky658  
+##### 1205#       发表于 2026-4-12 21:48
+
+莫和老妹都是好脾气的人，本来就不会撕破脸，现在莫人物他和妹妹都是CODE的受害者。单谈这集我还算满意，就是不确定后面妹妹还有没有剧情，OP都藏了那么多集就这么断了的话有点浪费，去年加布品鉴够多了
+
