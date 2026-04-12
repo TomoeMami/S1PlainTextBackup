@@ -4097,3 +4097,14 @@ Deepseek文学功底真是一绝。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  big9999  
+##### 368#       发表于 2026-4-13 03:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69477247&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-4-12 21:15</a>
+私心希望鲸鱼不要去卷编程的，现在凡是卷编程的LLM，哪个不是被码农挂满一身的Agent抽干算力变成废废的。难 ...</blockquote>
+附议，甚至可以进一步定个规范。“我在讨论ai好不好用到底在讨论什么”
+现在对好至少有3种释义。一是超能力者说便于编程，二是酒馆爱好者说便于破甲，三是下沉用户说这个能做图做视频balabala一堆。这几者碰一起往往说的都不是一回事。
+
