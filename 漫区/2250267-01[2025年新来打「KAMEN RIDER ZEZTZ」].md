@@ -1184,3 +1184,11 @@ Counter the assassination.（对抗暗杀）
 从下集变身还是灾厄的情况看，怕不是秩序并非无时无刻都能变，得要守护欲足够强的时候才能爆甲 ...</blockquote>
 橘前辈说莫把心灵出卖给了梦魇，还在装乖宝宝。不装了就是24集莫得状态，也对应了橘前辈想让莫的预知梦成真。秩序这个形态也没解决梦魇的问题，说不定也有副作用限制
 
+
+*****
+
+####  iceddd  
+##### 1188#       发表于 2026-4-12 11:10
+
+橘前辈这角色让我观感好差<img src="https://static.stage1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
+
