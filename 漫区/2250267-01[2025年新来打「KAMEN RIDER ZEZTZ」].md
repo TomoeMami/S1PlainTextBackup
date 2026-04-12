@@ -1046,3 +1046,11 @@ Counter the assassination.（对抗暗杀）
 铺垫这么久的猫梦魇后面应该还有戏份吧，不然太浪费了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉秩序和灾厄的初登场毛病都差不多，都有点在那想一会儿，噔噔咚我得出结论了，然后就获得力量了。。美浪目前看就是没啥太大关系的局外人，真能有戏份吗
 
+
+*****
+
+####  挺好的  
+##### 1174#       发表于 2026-4-12 10:06
+
+当然是梦境里的想当然之力
+
