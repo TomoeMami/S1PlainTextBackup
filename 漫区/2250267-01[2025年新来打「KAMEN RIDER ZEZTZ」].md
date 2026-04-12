@@ -1054,3 +1054,41 @@ Counter the assassination.（对抗暗杀）
 
 当然是梦境里的想当然之力
 
+
+*****
+
+####  挺好的  
+##### 1175#       发表于 2026-4-12 10:20
+
+<img src="https://img.stage1st.com/forum/202604/12/102048flrp3bzdo3vl3qul.png" referrerpolicy="no-referrer">
+
+<strong>c66059a68717fc33ce7bf2d4b3319a64.png</strong> (24.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-12 10:20 上传
+
+<img src="https://img.stage1st.com/forum/202604/12/102048rcx4mf1ddx90yix9.png" referrerpolicy="no-referrer">
+
+<strong>22cc94ef70bdd47dbf6fc983abe1f18c.png</strong> (27.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-12 10:20 上传
+
+*****
+
+####  暗黑能乐  
+##### 1176#       发表于 2026-4-12 10:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">不过下一集我反而很期待，这才是大的要来了 
+
+*****
+
+####  iceddd  
+##### 1177#       发表于 2026-4-12 10:23
+
+有点闹麻 跟牢莫一起生活了十几年 突然跑过来塞个合同说其实你和你哥没关系 
+不就是事实妹妹
+我还以为是给牢莫修改十几年记忆硬塞个妹妹进来    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
