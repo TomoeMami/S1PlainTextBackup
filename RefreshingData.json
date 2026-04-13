@@ -1611,12 +1611,12 @@
     "update": false
   },
   "1998011": {
-    "totalreply": 2329,
+    "totalreply": 2331,
     "title": "[21.10『86－不存在的战区－』专楼 10.02放送（剧透请反白）]",
     "newtitle": "[21.10『86－不存在的战区－』专楼 10.02放送（剧透请反白）]",
-    "lastedit": 1766666769,
+    "lastedit": 1776092410,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2075355": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 35238,
+    "totalreply": 35239,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》3.19 橘里橘气]",
-    "lastedit": 1776090848,
+    "lastedit": 1776092413,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -5607,10 +5607,10 @@
     "update": false
   },
   "2139166": {
-    "totalreply": 17352,
+    "totalreply": 17353,
     "title": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
-    "lastedit": 1776091938,
+    "lastedit": 1776092534,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -7398,10 +7398,10 @@
     "update": false
   },
   "2170738": {
-    "totalreply": 7574,
+    "totalreply": 7575,
     "title": "[《碧蓝航线》五号楼｜新年啦]",
     "newtitle": "[《碧蓝航线》五号楼｜7周年了]",
-    "lastedit": 1776091447,
+    "lastedit": 1776092413,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12042,10 +12042,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 60065,
+    "totalreply": 60066,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1776091208,
+    "lastedit": 1776092650,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 26876,
+    "totalreply": 26878,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1776091573,
+    "lastedit": 1776092537,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12564,10 +12564,10 @@
     "update": false
   },
   "2268175": {
-    "totalreply": 1330,
+    "totalreply": 1331,
     "title": "[2026年Q娃 ​​​​名侦探Precure]",
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
-    "lastedit": 1776089773,
+    "lastedit": 1776092649,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14904,10 +14904,10 @@
     "update": false
   },
   "2271992": {
-    "totalreply": 68,
+    "totalreply": 69,
     "title": "[嘟嘟脸恶作剧怎么没人发帖【当是专楼吧】]",
     "newtitle": "[嘟嘟脸恶作剧怎么没人发帖【当是专楼吧】]",
-    "lastedit": 1776066500,
+    "lastedit": 1776092413,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -16623,10 +16623,10 @@
     "update": false
   },
   "2278687": {
-    "totalreply": 106,
+    "totalreply": 107,
     "title": "[钓鱼，自行车，摩托中年爱好三选一]",
     "newtitle": "[钓鱼，自行车，摩托中年爱好三选一]",
-    "lastedit": 1776088459,
+    "lastedit": 1776092533,
     "category": "外野",
     "active": true,
     "update": false
@@ -17150,6 +17150,15 @@
     "newtitle": "[与你相恋到生命尽头 TV动画化]",
     "lastedit": 1776089777,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2278855": {
+    "totalreply": 42,
+    "title": "[AI写刘备有没有入门指南？]",
+    "newtitle": "[AI写刘备有没有入门指南？]",
+    "lastedit": 1776092537,
+    "category": "外野",
     "active": true,
     "update": false
   }
