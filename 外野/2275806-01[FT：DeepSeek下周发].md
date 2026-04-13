@@ -4268,3 +4268,11 @@ GLM 5.1 开源的吧</blockquote>
 
 可以默认对面将拥有所有代码、数据和漏洞信息。
 
+
+*****
+
+####  gawain  
+##### 382#       发表于 2026-4-13 12:43
+
+我怀疑现在付费tokens里超过70%都是码农兄弟们提供的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
