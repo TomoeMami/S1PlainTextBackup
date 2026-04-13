@@ -34,3 +34,35 @@
 
 这是我目前打出过的最高伤害，都够完成第十赛季镜牢成就了吧<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 1303#       发表于 2026-4-13 18:18
+
+ 本帖最后由 Jamaisvu 于 2026-4-13 18:21 编辑 
+
+野兽派二人组又是新体系，流血沉沦：
+
+<img src="https://img.stage1st.com/forum/202604/13/181703l4warsaa8pr4ki10.jpg" referrerpolicy="no-referrer">
+
+<strong>1776075372399.jpg</strong> (383.38 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-4-13 18:17 上传
+
+<img src="https://img.stage1st.com/forum/202604/13/181704ettwc11wzc5210ws.jpg" referrerpolicy="no-referrer">
+
+<strong>1776075382715.jpg</strong> (593.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-4-13 18:17 上传
+
+镜牢更新把杰作合成公式改了，凡作+画布+归途，不占用无头肖像。
+
+毕竟本身就是强行凑几幅画作，还耽误走双体系...
+
