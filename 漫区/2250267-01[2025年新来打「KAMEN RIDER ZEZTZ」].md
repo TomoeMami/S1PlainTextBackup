@@ -1504,3 +1504,13 @@ Counter the assassination.（对抗暗杀）
 
 秩序纯内战用吧，毕竟现在出于情理不能直接打死的人太多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一个陆仁贾  
+##### 1221#       发表于 2026-4-13 12:07
+
+那看来灾厄大王还能出场到体内梦魇“出事”为止<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
