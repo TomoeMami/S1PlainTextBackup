@@ -4166,3 +4166,14 @@ ds一直以来都很注重效率和成本方面的研究，实际上最近半年
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  赛肯特布拉泽  
+##### 373#       发表于 2026-4-13 09:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69477247&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-4-12 21:15</a>
+
+私心希望鲸鱼不要去卷编程的，现在凡是卷编程的LLM，哪个不是被码农挂满一身的Agent抽干算力变成废废的。难 ...</blockquote>
+倒反天罡了属于是，唯一有希望实现通用AGI的方向不去大力投入，搞这些才是南辕北辙
+
