@@ -4203,3 +4203,11 @@ ds一直以来都很注重效率和成本方面的研究，实际上最近半年
 私心希望鲸鱼不要去卷编程的，现在凡是卷编程的LLM，哪个不是被码农挂满一身的Agent抽干算力变成废废的。难 ...</blockquote>
 主要码农是真爆金币啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  碧空之歌P  
+##### 376#       发表于 2026-4-13 09:59
+
+码农确实真爆金币，不过也覆盖不了成本吧
+
