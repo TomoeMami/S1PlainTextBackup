@@ -9153,3 +9153,15 @@ LEON你剛才在病房看不到嗎?
 这样 ...</blockquote>
 那你一个疗养院要打两周了吧。
 
+
+*****
+
+####  何然  
+##### 2260#       发表于 2026-4-13 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69478501&amp;ptid=2252759" target="_blank">mai6696 发表于 2026-4-13 08:48</a>
+
+那你一个疗养院要打两周了吧。</blockquote>
+第四晚拿到枪了就砍瓜切菜一路干过去了
+<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
