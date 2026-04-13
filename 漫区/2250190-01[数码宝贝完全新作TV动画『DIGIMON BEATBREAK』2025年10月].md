@@ -369,3 +369,15 @@ DBB感觉还是挺好吃的
 
 2026-4-13 10:10 上传
 
+
+*****
+
+####  leleq  
+##### 531#       发表于 2026-4-13 11:50
+
+这世界观属于低数码吧……就现在这速度小诚哥玲奈真能进化出究极体吗<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+京哥应该能活到出究极体吧？<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+该不会到最后主角队就智郎一个出究极体吧<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
