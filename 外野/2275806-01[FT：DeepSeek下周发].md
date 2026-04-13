@@ -4224,3 +4224,13 @@ ds一直以来都很注重效率和成本方面的研究，实际上最近半年
 本地部署以及 ...</blockquote>
 GLM 5.1 开源的吧
 
+
+*****
+
+####  tk553521  
+##### 378#       发表于 2026-4-13 11:14
+
+去某脑整了个v4l反代大锅饭，搞涩涩确实进步很大，可惜play稍微过激一些就空回，api快点把完全体端上来吧<img src="https://static.stage1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
