@@ -1462,3 +1462,11 @@ Counter the assassination.（对抗暗杀）
 要洗白简单的很，说橘前辈现在是梦魇在主控就行</blockquote>
 像王蛇那样始终敌对被打死也挺好，骑士棚搞洗白太多了
 
+
+*****
+
+####  粉儿alice  
+##### 1216#       发表于 2026-4-13 10:32
+
+别问 现在整个大环境刀一个恶心反派也磨磨唧唧的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
