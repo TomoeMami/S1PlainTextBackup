@@ -1432,3 +1432,11 @@ Counter the assassination.（对抗暗杀）
 特工编号什么逻辑，为什么17比7加入还早</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那7小时候还有神秘梦境培训班呢
 
+
+*****
+
+####  洛克萨斯  
+##### 1213#       发表于 2026-4-13 09:20
+
+秩序这种重编程+场景召唤吃特效的形态表现力和究极王八拳的灾厄比确实有劣势，毕竟骑士片场经费就这样了
+
