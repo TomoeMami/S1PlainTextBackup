@@ -1451,3 +1451,14 @@ Counter the assassination.（对抗暗杀）
 毕竟周日英雄剧场，不可能给你来个大家都是骗你的，你就是把眼泪掩盖在面具之下的黑暗英雄，只能说妹妹的安 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要洗白简单的很，说橘前辈现在是梦魇在主控就行
 
+
+*****
+
+####  洛克萨斯  
+##### 1215#       发表于 2026-4-13 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69478718&amp;ptid=2250267" target="_blank">丹德里恩 发表于 2026-4-13 09:27</a>
+
+要洗白简单的很，说橘前辈现在是梦魇在主控就行</blockquote>
+像王蛇那样始终敌对被打死也挺好，骑士棚搞洗白太多了
+
