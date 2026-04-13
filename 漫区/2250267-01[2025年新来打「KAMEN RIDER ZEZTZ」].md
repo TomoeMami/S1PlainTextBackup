@@ -1533,3 +1533,13 @@ Counter the assassination.（对抗暗杀）
 
 妹妹也就多领一份工资还是干原来照顾无业老哥的活，也没做啥坏事嘛<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duo_wolf  
+##### 1224#       发表于 2026-4-13 17:07
+
+在0找妹妹之前妹妹并不知道这个哥哥不是亲生的样子，说明妹妹出生的时候这个哥哥已经在家里作为长男在生活了，那么我有点好奇爸爸妈妈是原来就是暗码的夫妻特工被安排了抚养莫的任务，还是本来两个人只是普通的特工同事被安排假扮夫妻抚养莫之后日久生情再生出的妹妹呢？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
