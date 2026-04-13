@@ -4211,3 +4211,16 @@ ds一直以来都很注重效率和成本方面的研究，实际上最近半年
 
 码农确实真爆金币，不过也覆盖不了成本吧
 
+
+*****
+
+####  noword  
+##### 377#       发表于 2026-4-13 10:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69478460&amp;ptid=2275806" target="_blank">ov_efly 发表于 2026-4-13 08:39</a>
+
+别忘记了，deepseek 是开源模型，不像 GLM 5.1 啊 minimax 2.7 啊，都闭源才导致的算力紧张
+
+本地部署以及 ...</blockquote>
+GLM 5.1 开源的吧
+
