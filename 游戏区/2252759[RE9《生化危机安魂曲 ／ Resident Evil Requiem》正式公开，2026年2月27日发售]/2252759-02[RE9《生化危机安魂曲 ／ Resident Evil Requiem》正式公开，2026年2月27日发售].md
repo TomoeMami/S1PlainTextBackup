@@ -9165,3 +9165,16 @@ LEON你剛才在病房看不到嗎?
 第四晚拿到枪了就砍瓜切菜一路干过去了
 <img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡边加奈子  
+##### 2261#       发表于 2026-4-13 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69469368&amp;ptid=2252759" target="_blank">何然 发表于 2026-4-10 20:57</a>
+
+疯狂锁死的？
+
+但我看速通还是会故意清子弹，只是清格子？</blockquote>
+腾格子,打开包包会暂停游戏时间流逝,对于按秒挤时间的速通来说开包包都是要极力避免的.包括暂停菜单提前把指针放在调帧数选项的位置再切进设置直接拉帧数秒退,这些细节都是要控制的.9代和3re类似,速通操作精度要求极高.在拿星星晶石的防卫战等最后开门计时的时间要完成控子弹和清空药草的操作.
+

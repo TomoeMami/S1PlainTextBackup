@@ -1440,3 +1440,14 @@ Counter the assassination.（对抗暗杀）
 
 秩序这种重编程+场景召唤吃特效的形态表现力和究极王八拳的灾厄比确实有劣势，毕竟骑士片场经费就这样了
 
+
+*****
+
+####  丹德里恩  
+##### 1214#       发表于 2026-4-13 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69478109&amp;ptid=2250267" target="_blank">永恒的王牌 发表于 2026-4-13 01:47</a>
+
+毕竟周日英雄剧场，不可能给你来个大家都是骗你的，你就是把眼泪掩盖在面具之下的黑暗英雄，只能说妹妹的安 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要洗白简单的很，说橘前辈现在是梦魇在主控就行
+
