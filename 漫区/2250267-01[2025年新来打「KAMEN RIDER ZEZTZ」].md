@@ -1470,3 +1470,14 @@ Counter the assassination.（对抗暗杀）
 
 别问 现在整个大环境刀一个恶心反派也磨磨唧唧的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  饭冢武也  
+##### 1217#       发表于 2026-4-13 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69478672&amp;ptid=2250267" target="_blank">洛克萨斯 发表于 2026-4-13 09:20</a>
+
+秩序这种重编程+场景召唤吃特效的形态表现力和究极王八拳的灾厄比确实有劣势，毕竟骑士片场经费就这样了 ...</blockquote>
+我估计后期主战场在现实，秩序根本发挥不出来？
+

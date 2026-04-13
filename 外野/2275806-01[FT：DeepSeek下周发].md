@@ -4247,3 +4247,11 @@ GLM 5.1 开源的吧
  ...</blockquote>
 某脑是什么啊，不懂黑话，不方便说可否私信<img src="https://static.stage1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Litccc  
+##### 380#       发表于 2026-4-13 11:44
+
+discord的类脑社区
+
