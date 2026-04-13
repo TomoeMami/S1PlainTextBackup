@@ -4177,3 +4177,29 @@ ds一直以来都很注重效率和成本方面的研究，实际上最近半年
 私心希望鲸鱼不要去卷编程的，现在凡是卷编程的LLM，哪个不是被码农挂满一身的Agent抽干算力变成废废的。难 ...</blockquote>
 倒反天罡了属于是，唯一有希望实现通用AGI的方向不去大力投入，搞这些才是南辕北辙
 
+
+*****
+
+####  当光停止  
+##### 374#       发表于 2026-4-13 09:28
+
+ 本帖最后由 当光停止 于 2026-4-13 09:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69478541&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-4-13 08:55</a>
+
+【你的手机、电脑、智能马桶，可能都要疯狂打补丁修漏洞了-哔哩哔哩】 [https://b23.tv/B99nDyo](https://b23.tv/B99nDyo)
+
+不知道克劳 ...</blockquote>
+算力不够-&gt;模型量化降智-&gt;模型甚至无法正确识别龙虾对工具的调用语句与参数-&gt;无法调用工具或调用出错。
+
+没什么人用deepseek跑龙虾就是因为鲸鱼对tools调用的支持有点问题。
+
+*****
+
+####  Rowen233  
+##### 375#       发表于 2026-4-13 09:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69477247&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-4-12 21:15</a>
+
+私心希望鲸鱼不要去卷编程的，现在凡是卷编程的LLM，哪个不是被码农挂满一身的Agent抽干算力变成废废的。难 ...</blockquote>
+主要码农是真爆金币啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
