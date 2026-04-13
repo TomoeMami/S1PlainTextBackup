@@ -1525,3 +1525,11 @@ Counter the assassination.（对抗暗杀）
 要洗白简单的很，说橘前辈现在是梦魇在主控就行</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这话从台词的边边角角看起来感觉是本人主控但是已经自暴自弃完全接受了梦魇力量的感觉。应该如果你的行为模式和梦魇的本质准则不一致的话力量会有所折扣，所以秩序明显破坏力就没有灾厄那么夸张了。所以如果洗白也会弱三分，最合理的一集
 
+
+*****
+
+####  失落之翼  
+##### 1223#       发表于 2026-4-13 16:38
+
+妹妹也就多领一份工资还是干原来照顾无业老哥的活，也没做啥坏事嘛<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
