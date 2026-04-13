@@ -420,3 +420,11 @@ DBB感觉还是挺好吃的
 该不会到 ...</blockquote>
 不慌，年番的战术性调整，等后续主线和世界观挖的差不多以后就只有连集战力膨胀可以充篇幅了
 
+
+*****
+
+####  失落之翼  
+##### 535#       发表于 2026-4-13 16:50
+
+主角现在已经进入闲时钓鱼忙时打怪的节奏了，要不是上次看到悟空兽还记得他哥吗？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
