@@ -428,3 +428,16 @@ DBB感觉还是挺好吃的
 
 主角现在已经进入闲时钓鱼忙时打怪的节奏了，要不是上次看到悟空兽还记得他哥吗？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hsyg  
+##### 536#       发表于 2026-4-13 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69481356&amp;ptid=2250190" target="_blank">失落之翼 发表于 2026-4-13 16:50</a>
+
+主角现在已经进入闲时钓鱼忙时打怪的节奏了，要不是上次看到悟空兽还记得他哥吗？ ...</blockquote>
+按世界观来说，都过这么久了，真拿回来有没有用都难说。
+
+虽然从剧情外观众来说大概不会整死哥哥，但是剧情内也只能接受现状了，顶多找到猴子就抢回来尽力一下。
+
