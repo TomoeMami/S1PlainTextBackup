@@ -2795,3 +2795,18 @@ https://skyandearth.wiki.fc2.com/m/
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  NaughtyCat  
+##### 241#       发表于 2026-4-13 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69479961&amp;ptid=2263973" target="_blank">InfiniteGyre 发表于 2026-4-13 12:29</a>
+
+查wiki就行了
+
+https://skyandearth.wiki.fc2.com/m/
+
+印象里好像只有不完全王基地的那个疯狂敌人是限时的</blockquote>
+坏了，看了下wiki，缺的疯狂敌人是剧情前面坐船误入的那个无人岛那里，这还能回去吗？
+
