@@ -1543,3 +1543,15 @@ Counter the assassination.（对抗暗杀）
 
 —— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  一个陆仁贾  
+##### 1225#       发表于 2026-4-13 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69481466&amp;ptid=2250267" target="_blank">duo_wolf 发表于 2026-4-13 17:07</a>
+在0找妹妹之前妹妹并不知道这个哥哥不是亲生的样子，说明妹妹出生的时候这个哥哥已经在家里作为长男在生活 ...</blockquote>
+我希望是后者，颇具浪漫主义气质<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
