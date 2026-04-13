@@ -4234,3 +4234,16 @@ GLM 5.1 开源的吧
 
 —— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  绝地潜兵  
+##### 379#       发表于 2026-4-13 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69479480&amp;ptid=2275806" target="_blank">tk553521 发表于 2026-4-13 11:14</a>
+
+去某脑整了个v4l反代大锅饭，搞涩涩确实进步很大，可惜play稍微过激一些就空回，api快点把完全体端上来吧
+
+ ...</blockquote>
+某脑是什么啊，不懂黑话，不方便说可否私信<img src="https://static.stage1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
