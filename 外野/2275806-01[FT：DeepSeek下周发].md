@@ -4255,3 +4255,16 @@ GLM 5.1 开源的吧
 
 discord的类脑社区
 
+
+*****
+
+####  ov_efly  
+##### 381#       发表于 2026-4-13 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69478983&amp;ptid=2275806" target="_blank">noword 发表于 2026-4-13 10:05</a>
+
+GLM 5.1 开源的吧</blockquote>
+记得刚开始没有？ 还是 GLM turbo ，但不管怎么样，开源模型不卷编码，未来拱手让人。
+
+可以默认对面将拥有所有代码、数据和漏洞信息。
+
