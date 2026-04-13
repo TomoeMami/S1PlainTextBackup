@@ -23,3 +23,17 @@
 
 <img src="https://img.stage1st.com/forum/202604/13/162112ecixdpi2kk2j9ik8.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1963#       发表于 2026-4-13 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69481135&amp;ptid=2104259" target="_blank">大道寺 发表于 2026-4-13 16:18</a>
+不要往下扫一下，要往下滑并按住。
+
+目标就一个还不太看得出来，多个目标就能看到飞出扇形的多道剑光。 ...</blockquote>
+原来是按住，我手上其他人好像都没这个机制所以没搞懂<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
