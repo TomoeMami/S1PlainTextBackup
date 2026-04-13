@@ -1496,3 +1496,11 @@ Counter the assassination.（对抗暗杀）
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是本来以为是类似燃烧-闪耀，没想到还是双形态
 
+
+*****
+
+####  RStocking  
+##### 1220#       发表于 2026-4-13 11:55
+
+秩序纯内战用吧，毕竟现在出于情理不能直接打死的人太多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

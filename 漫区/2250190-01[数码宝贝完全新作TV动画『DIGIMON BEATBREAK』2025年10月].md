@@ -381,3 +381,19 @@ DBB感觉还是挺好吃的
 
 该不会到最后主角队就智郎一个出究极体吧<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  InfiniteGyre  
+##### 532#       发表于 2026-4-13 12:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69479723&amp;ptid=2250190" target="_blank">leleq 发表于 2026-4-13 11:50</a>
+这世界观属于低数码吧……就现在这速度小诚哥玲奈真能进化出究极体吗
+
+京哥应该能活到出究极体吧？
+
+该不会到 ...</blockquote>
+村雨兽的究极体不是已经出卡了吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
