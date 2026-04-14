@@ -4299,3 +4299,13 @@ GLM 5.1 开源的吧</blockquote>
 后天也算是下旬<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 不过讲道理这周我觉得还是可能性不大
 
+
+*****
+
+####  overflowal  
+##### 385#       发表于 2026-4-14 12:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69480033&amp;ptid=2275806" target="_blank">gawain 发表于 2026-4-13 12:43</a>
+我怀疑现在付费tokens里超过70%都是码农兄弟们提供的</blockquote>
+可能90%都是coding类的。做coding一天大几千万token属于基本操作    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
