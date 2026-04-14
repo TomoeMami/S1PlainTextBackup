@@ -2181,3 +2181,14 @@ PVP模拟器，等下期大师开了试试成色
 所以从SDGGF到花2这三年到底发生了什么 ...</blockquote>
 版权在日本印刷啊
 
+
+*****
+
+####  ティグル  
+##### 3991#       发表于 2026-4-14 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69486828&amp;ptid=2071758" target="_blank">gpx234mqx 发表于 2026-4-14 18:46</a>
+
+版权在日本印刷啊</blockquote>
+三年前没事到花2就不能用就太搞了吧
+
