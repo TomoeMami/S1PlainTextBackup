@@ -4286,3 +4286,16 @@ GLM 5.1 开源的吧</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  羊寢  
+##### 384#       发表于 2026-4-14 12:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69484880&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-4-14 12:03</a>
+明天一过，就到有可能真的发布的本月下旬了。看国外真金白银的**站上面，下半个月的比例是最高的。
+
+——  ...</blockquote>
+后天也算是下旬<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+不过讲道理这周我觉得还是可能性不大
+
