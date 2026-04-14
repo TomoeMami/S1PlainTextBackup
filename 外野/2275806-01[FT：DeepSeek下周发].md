@@ -4276,3 +4276,13 @@ GLM 5.1 开源的吧</blockquote>
 
 我怀疑现在付费tokens里超过70%都是码农兄弟们提供的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杀人鲸  
+##### 383#       发表于 2026-4-14 12:03
+
+明天一过，就到有可能真的发布的本月下旬了。看国外真金白银的**站上面，下半个月的比例是最高的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
