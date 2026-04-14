@@ -2142,3 +2142,19 @@ PVP模拟器，等下期大师开了试试成色
 
 顺便日升虽然已经改名叫BNF了，但是这也不关他的事啊
 
+
+*****
+
+####  arthes  
+##### 3988#       发表于 2026-4-14 18:31
+
+<img src="https://img.stage1st.com/forum/202604/14/183043ct8xtz871ks7vcmt.png" referrerpolicy="no-referrer">
+
+<strong>新对话.png</strong> (527.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-14 18:30 上传
+
+驾驶员是AI的alice会更合理吗<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
