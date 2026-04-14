@@ -4348,3 +4348,19 @@ GLM 5.1 开源的吧</blockquote>
 现在不清楚，不过我那时候是初中学的……至于前面，我是顺着玩梗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 反正这个月要更肯定也是下周之后了
 
+
+*****
+
+####  杀人鲸  
+##### 389#       发表于 2026-4-14 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69485366&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-4-14 13:58</a>
+现在不清楚，不过我那时候是初中学的……至于前面，我是顺着玩梗
+反正这个月要更肯定也是下周之后了 ...</blockquote>
+只能说真就永远的下周了是吧？莫名其妙还是挺搞笑的。
+人想象中的人工智能以这样的形态出现，就只能说是丰满的幻想和冰冷残酷的现实吧。
+就像我上面说的那样，实际上这一次更新估计也很难出现什么很重量级，带着冲击性的、革命性的成果。但这种成果又有多少呢？
+只能说还是基督山伯爵的那句话吧，希望和等待。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
