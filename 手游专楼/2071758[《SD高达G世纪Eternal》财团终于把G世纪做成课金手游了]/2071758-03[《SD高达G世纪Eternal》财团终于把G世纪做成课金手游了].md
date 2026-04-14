@@ -2192,3 +2192,14 @@ PVP模拟器，等下期大师开了试试成色
 版权在日本印刷啊</blockquote>
 三年前没事到花2就不能用就太搞了吧
 
+
+*****
+
+####  jackyhuang  
+##### 3992#       发表于 2026-4-14 19:23
+
+<img src="https://p.sda1.dev/32/c838fca8a35657e8b2a63daef18e28b7/image.jpg" referrerpolicy="no-referrer">
+万代越来越不行了啊
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
