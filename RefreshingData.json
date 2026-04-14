@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 35262,
+    "totalreply": 35263,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》3.19 橘里橘气]",
-    "lastedit": 1776175453,
+    "lastedit": 1776181328,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9180,10 +9180,10 @@
     "update": false
   },
   "2192398": {
-    "totalreply": 11067,
+    "totalreply": 11068,
     "title": "[《尘白禁区》攻略活动互助讨论楼 ver2.0空都演绎（7.11-8.22）]",
     "newtitle": "[《尘白禁区》综合讨论楼#3.5 自往昔归还 跨年直播2.16 23：30]",
-    "lastedit": 1776176167,
+    "lastedit": 1776181329,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12042,10 +12042,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 60267,
+    "totalreply": 60268,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1776180851,
+    "lastedit": 1776181218,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12096,10 +12096,10 @@
     "update": false
   },
   "2262701": {
-    "totalreply": 683,
+    "totalreply": 684,
     "title": "[立一座赛博打卡碑]",
     "newtitle": "[立一座赛博打卡碑]",
-    "lastedit": 1776109086,
+    "lastedit": 1776181687,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12708,10 +12708,10 @@
     "update": false
   },
   "2272409": {
-    "totalreply": 588,
+    "totalreply": 591,
     "title": "[2026中国火箭发射专楼]",
     "newtitle": "[2026中国航天专楼]",
-    "lastedit": 1776141502,
+    "lastedit": 1776181449,
     "category": "外野",
     "active": true,
     "update": false
@@ -13958,20 +13958,11 @@
     "active": false,
     "update": false
   },
-  "2084839": {
-    "totalreply": 138,
-    "title": "[拳头FTG《2XKO》，2025上市，pc第0赛季测试已上线]",
-    "newtitle": "[拳头FTG《2XKO》，2025上市，pc第0赛季测试已上线]",
-    "lastedit": 1774971492,
-    "category": "游戏区",
-    "active": false,
-    "update": false
-  },
   "2277977": {
-    "totalreply": 10172,
+    "totalreply": 10176,
     "title": "[中东砖楼 2026年4月版]",
     "newtitle": "[中东砖楼 2026年4月版]",
-    "lastedit": 1776180853,
+    "lastedit": 1776181450,
     "category": "外野",
     "active": true,
     "update": false
@@ -14504,7 +14495,7 @@
     "newtitle": "[假面骑士55周年『亚极陀 超能力战争』4月29日上映]",
     "lastedit": 1775922375,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2278102": {
@@ -16992,10 +16983,10 @@
     "update": false
   },
   "2278808": {
-    "totalreply": 59,
+    "totalreply": 60,
     "title": "[为啥KOF系列没有一部好的番剧？]",
     "newtitle": "[为啥KOF系列没有一部好的番剧？]",
-    "lastedit": 1776168281,
+    "lastedit": 1776181218,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17055,10 +17046,10 @@
     "update": false
   },
   "2278879": {
-    "totalreply": 49,
+    "totalreply": 50,
     "title": "[有没有试过咸豆浆的？]",
     "newtitle": "[有没有试过咸豆浆的？]",
-    "lastedit": 1776180011,
+    "lastedit": 1776181218,
     "category": "外野",
     "active": true,
     "update": false
@@ -17213,6 +17204,15 @@
     "newtitle": "[科幻复古未来主义动作游戏《Replaced》PV公开，2026年春发售]",
     "lastedit": 1776180971,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2278908": {
+    "totalreply": 41,
+    "title": "[整个互联网最有信念感的两个人]",
+    "newtitle": "[整个互联网最有信念感的两个人]",
+    "lastedit": 1776181218,
+    "category": "外野",
     "active": true,
     "update": false
   }
