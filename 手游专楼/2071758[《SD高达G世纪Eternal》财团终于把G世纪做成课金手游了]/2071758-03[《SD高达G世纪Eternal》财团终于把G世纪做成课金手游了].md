@@ -2097,3 +2097,28 @@ PVP模拟器，等下期大师开了试试成色
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  gpx234mqx  
+##### 3984#       发表于 2026-4-14 17:58
+
+明明GF版权没问题
+
+<img src="https://img.stage1st.com/forum/202604/14/175759j6jb4eht94z49ltl.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5905.jpeg</strong> (91.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-14 17:57 上传
+
+*****
+
+####  gpx234mqx  
+##### 3985#       发表于 2026-4-14 18:03
+
+日升傻逼不用说了
+
+搞到自己没版权也是厉害
+
