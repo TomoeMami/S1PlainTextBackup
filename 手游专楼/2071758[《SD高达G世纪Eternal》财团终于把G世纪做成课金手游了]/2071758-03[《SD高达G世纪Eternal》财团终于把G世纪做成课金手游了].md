@@ -2158,3 +2158,13 @@ PVP模拟器，等下期大师开了试试成色
 
 驾驶员是AI的alice会更合理吗<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安广多惠子  
+##### 3989#       发表于 2026-4-14 18:42
+
+膠達吐了，配個g世紀原創機師都比這強
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
