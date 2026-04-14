@@ -4309,3 +4309,13 @@ GLM 5.1 开源的吧</blockquote>
 我怀疑现在付费tokens里超过70%都是码农兄弟们提供的</blockquote>
 可能90%都是coding类的。做coding一天大几千万token属于基本操作    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  charlespfan  
+##### 386#       发表于 2026-4-14 13:47
+
+一个月是分成上中下三旬的，高中没学古代文化常识吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
