@@ -4319,3 +4319,19 @@ GLM 5.1 开源的吧</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  杀人鲸  
+##### 387#       发表于 2026-4-14 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69485321&amp;ptid=2275806" target="_blank">charlespfan 发表于 2026-4-14 13:47</a>
+一个月是分成上中下三旬的，高中没学古代文化常识吗
+
+—— 来自 S1Fun</blockquote>
+草，你不说还真的是没发现，以为只有上下两旬，原来是上中下三度轮换的。
+但这个知识真的有在高中会学吗？这还真的不太好说吧。
+当然另外一方面也是因为神秘网站上面对于4月份的标注只有上下两个部分，也就下意识只认为有上旬和下旬两个划分了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
