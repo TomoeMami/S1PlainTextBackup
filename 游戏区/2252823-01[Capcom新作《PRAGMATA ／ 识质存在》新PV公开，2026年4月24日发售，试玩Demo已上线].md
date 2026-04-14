@@ -53,3 +53,11 @@ MC
 
 —— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Piano-Forest  
+##### 368#         楼主| 发表于 2026-4-14 20:00
+
+明早8点新PV公开（可能有新角色解禁）
+
