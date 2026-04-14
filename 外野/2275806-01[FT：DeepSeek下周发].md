@@ -4335,3 +4335,16 @@ GLM 5.1 开源的吧</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  羊寢  
+##### 388#       发表于 2026-4-14 13:58
+
+ 本帖最后由 羊寢 于 2026-4-14 14:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69485335&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-4-14 13:50</a>
+草，你不说还真的是没发现，以为只有上下两旬，原来是上中下三度轮换的。
+但这个知识真的有在高中会学吗 ...</blockquote>
+现在不清楚，不过我那时候是初中学的……至于前面，我是顺着玩梗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+反正这个月要更肯定也是下周之后了
+
