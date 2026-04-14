@@ -61,3 +61,13 @@ MC
 
 明早8点新PV公开（可能有新角色解禁）
 
+
+*****
+
+####  57042711  
+##### 369#       发表于 2026-4-15 00:21
+
+希望能火，这样卡普空就能出更多机器人游戏了！<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
