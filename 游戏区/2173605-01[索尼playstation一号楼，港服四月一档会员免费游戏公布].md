@@ -375,3 +375,13 @@ https://store.playstation.com/zh-hant-hk/product/EP0096-CUSA10811_00-GRAVEYARDKE
 由手机上传
 2026-4-12 12:15 上传
 
+
+*****
+
+####  黑猫软  
+##### 620#       发表于 2026-4-14 16:25
+
+索尼影业将推出《血源诅咒》R 级动画电影，由PlayStation Productions、Lyrical Animation以及创作者兼游戏玩家Jacksepticeye联合制作。
+
+索尼影业娱乐电影集团总裁Sanford Panitch在工作室的CinemaCon展示会上承诺，这部改编电影将非常忠实于《血源诅咒》血腥残酷的风格。
+
