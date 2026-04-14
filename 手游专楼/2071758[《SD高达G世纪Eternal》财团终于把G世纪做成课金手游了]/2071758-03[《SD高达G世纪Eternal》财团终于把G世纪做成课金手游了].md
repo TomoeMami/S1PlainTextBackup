@@ -2078,3 +2078,22 @@ PVP模拟器，等下期大师开了试试成色
 
 回忆里面开过，小时候的
 
+
+*****
+
+####  blue321  
+##### 3982#       发表于 2026-4-14 17:31
+
+艹，exs是我心头好却给我整这种烂活？？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  jackyhuang  
+##### 3983#       发表于 2026-4-14 17:33
+
+在哑巴换配音AI代驾里选择了彩蛋梗
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
