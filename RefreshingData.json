@@ -15351,7 +15351,7 @@
     "lastedit": 1776191640,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2278188": {
     "totalreply": 61,
@@ -17204,6 +17204,15 @@
     "newtitle": "[中小学春假还真是全国范围内的硬性要求啊]",
     "lastedit": 1776188050,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2278916": {
+    "totalreply": 41,
+    "title": "[『租借女友』汉化组怒发声：玩梗须适度！水原好女孩！]",
+    "newtitle": "[『租借女友』汉化组怒发声：玩梗须适度！水原好女孩！]",
+    "lastedit": 1776202691,
+    "category": "漫区",
     "active": true,
     "update": false
   }
