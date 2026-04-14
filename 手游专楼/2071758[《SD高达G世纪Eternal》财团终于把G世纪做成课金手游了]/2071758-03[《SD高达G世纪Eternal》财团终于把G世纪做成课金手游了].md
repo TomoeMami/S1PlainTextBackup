@@ -2168,3 +2168,16 @@ PVP模拟器，等下期大师开了试试成色
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  gpx234mqx  
+##### 3990#       发表于 2026-4-14 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69486742&amp;ptid=2071758" target="_blank">ティグル 发表于 2026-4-14 18:22</a>
+
+花2也有前哨战的废弃数据，文本里也没删干净，提到了好几次相关内容
+
+所以从SDGGF到花2这三年到底发生了什么 ...</blockquote>
+版权在日本印刷啊
+
