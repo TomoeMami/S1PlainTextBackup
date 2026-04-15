@@ -102,3 +102,11 @@ MC
 
 月球上怎么还有植物43号<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">连T病毒都打印出来了吗
 
+
+*****
+
+####  otakun  
+##### 373#       发表于 2026-4-15 10:11
+
+填补了只有地球有T病毒的遗憾
+
