@@ -18,3 +18,13 @@
 
 短人小队这一块<img src="https://i.redd.it/79pctyeevxbb1.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  茄子自走炮  
+##### 771#       发表于 2026-4-16 02:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不记得原来的阿贝是多少bonus的什么个体
+
+直接同化给新抽的8点了
+
