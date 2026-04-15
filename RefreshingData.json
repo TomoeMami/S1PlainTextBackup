@@ -3911,7 +3911,7 @@
     "newtitle": "[21.07『漂流少年 ／ Sonny Boy ／ サニーボーイ』专楼 07.15放送]",
     "lastedit": 1775993537,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1860328": {
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 36302,
+    "totalreply": 36303,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1776252249,
+    "lastedit": 1776252850,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 13854,
+    "totalreply": 13855,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「春晓时」版本即将开放]",
-    "lastedit": 1776251901,
+    "lastedit": 1776252613,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 12318,
+    "totalreply": 12320,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼4月]",
-    "lastedit": 1776249736,
+    "lastedit": 1776252743,
     "category": "外野",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 27122,
+    "totalreply": 27124,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1776251178,
+    "lastedit": 1776252851,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12906,10 +12906,10 @@
     "update": false
   },
   "2179402": {
-    "totalreply": 2053,
+    "totalreply": 2055,
     "title": "[《杀戮尖塔2》公开，延期至2026年3月Steam EA发售]",
     "newtitle": "[《杀戮尖塔2》公开，2026年3月5日Steam EA发售]",
-    "lastedit": 1776251770,
+    "lastedit": 1776252969,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13788,10 +13788,10 @@
     "update": false
   },
   "2277977": {
-    "totalreply": 10513,
+    "totalreply": 10516,
     "title": "[中东砖楼 2026年4月版]",
     "newtitle": "[中东砖楼 2026年4月版]",
-    "lastedit": 1776252142,
+    "lastedit": 1776253094,
     "category": "外野",
     "active": true,
     "update": false
@@ -17064,10 +17064,10 @@
     "update": false
   },
   "2278941": {
-    "totalreply": 62,
+    "totalreply": 63,
     "title": "[烟鬼们但凡不夹一根烟干晾着，反对吸烟的人都要少一半]",
     "newtitle": "[烟鬼们但凡不夹一根烟干晾着，反对吸烟的人都要少一半]",
-    "lastedit": 1776238947,
+    "lastedit": 1776252743,
     "category": "外野",
     "active": true,
     "update": false
@@ -17118,10 +17118,10 @@
     "update": false
   },
   "2278982": {
-    "totalreply": 115,
+    "totalreply": 118,
     "title": "[【zt】游戏研究社：漕河泾的年轻人们]",
     "newtitle": "[【zt】游戏研究社：漕河泾的年轻人们]",
-    "lastedit": 1776252142,
+    "lastedit": 1776253094,
     "category": "外野",
     "active": true,
     "update": false
@@ -17136,10 +17136,10 @@
     "update": false
   },
   "2278992": {
-    "totalreply": 60,
+    "totalreply": 61,
     "title": "[claude发布公告，要求用户进行拍照身份验证]",
     "newtitle": "[claude发布公告，要求用户进行拍照身份验证]",
-    "lastedit": 1776251901,
+    "lastedit": 1776252743,
     "category": "外野",
     "active": true,
     "update": false
@@ -17172,10 +17172,10 @@
     "update": false
   },
   "2278995": {
-    "totalreply": 55,
+    "totalreply": 58,
     "title": "[法国罕见全票通过“文物归还法案”]",
     "newtitle": "[法国罕见全票通过“文物归还法案”]",
-    "lastedit": 1776251901,
+    "lastedit": 1776252743,
     "category": "外野",
     "active": true,
     "update": false
@@ -17199,11 +17199,20 @@
     "update": false
   },
   "2279005": {
-    "totalreply": 43,
+    "totalreply": 48,
     "title": "[测测你骨子里 最像哪位中国皇帝]",
     "newtitle": "[测测你骨子里 最像哪位中国皇帝]",
-    "lastedit": 1776252136,
+    "lastedit": 1776253094,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2278949": {
+    "totalreply": 42,
+    "title": "[一个人如果一辈子都在玩游戏，会留下什么？]",
+    "newtitle": "[一个人如果一辈子都在玩游戏，会留下什么？]",
+    "lastedit": 1776252970,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
