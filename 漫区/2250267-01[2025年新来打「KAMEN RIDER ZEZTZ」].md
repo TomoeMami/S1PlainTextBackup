@@ -1573,3 +1573,14 @@ Counter the assassination.（对抗暗杀）
 4号怎么又和1号对上线了？
 一定是我梦里变成蝴蝶还没分得清现实和梦境吧?
 
+
+*****
+
+####  阿刚  
+##### 1227#       发表于 2026-4-16 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69479693&amp;ptid=2250267" target="_blank">milky658 发表于 2026-4-13 11:44</a>
+
+秩序官网小作文说是把事物纠正到正确的状态，光看这句话发动条件还蛮苛刻的，梦魇设定还是自然现象，不知道 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">梦魇不用秩序啊，灾厄大王碾过去就行了，秩序把克制黎明直接写在设定里了，就是专门拿来抽橘前辈陀螺的
+
