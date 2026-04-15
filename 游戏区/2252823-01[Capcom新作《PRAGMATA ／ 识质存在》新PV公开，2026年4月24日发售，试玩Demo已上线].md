@@ -110,3 +110,11 @@ MC
 
 填补了只有地球有T病毒的遗憾
 
+
+*****
+
+####  谢皮利男爵  
+##### 374#       发表于 2026-4-15 10:21
+
+独孤月与金刚鼠<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
