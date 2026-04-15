@@ -71,3 +71,17 @@ MC
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ParadiseMartyr  
+##### 370#       发表于 2026-4-15 09:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69487895&amp;ptid=2252823" target="_blank">57042711 发表于 2026-4-15 00:21</a>
+希望能火，这样卡普空就能出更多机器人游戏了！
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, 鹅球 v3.5.99 ...</blockquote>
+机器人(萝莉)游戏
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
