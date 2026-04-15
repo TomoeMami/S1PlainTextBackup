@@ -118,3 +118,11 @@ MC
 
 独孤月与金刚鼠<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 375#       发表于 2026-4-15 15:08
+
+原来是两巫女死一个活一个的经典模式
+
