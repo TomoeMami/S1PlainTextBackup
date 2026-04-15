@@ -540,10 +540,10 @@
     "update": false
   },
   "2094432": {
-    "totalreply": 12823,
+    "totalreply": 12824,
     "title": "[【Mr.Quin／秦川】真爱（？）讨论三号楼]",
     "newtitle": "[【Mr.Quin／秦川】秦智障真爱（？）讨论三号楼]",
-    "lastedit": 1776256579,
+    "lastedit": 1776260534,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11223,10 +11223,10 @@
     "update": false
   },
   "2251014": {
-    "totalreply": 3765,
+    "totalreply": 3766,
     "title": "[超级机器人大战Y 25年内发售 NS／PS5／STEAM]",
     "newtitle": "[超级机器人大战Y 25年8月28日发售 NS／PS5／STEAM]",
-    "lastedit": 1776259340,
+    "lastedit": 1776260534,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 13875,
+    "totalreply": 13876,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「春晓时」版本即将开放]",
-    "lastedit": 1776259098,
+    "lastedit": 1776260650,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 27142,
+    "totalreply": 27143,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1776258131,
+    "lastedit": 1776260652,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13779,10 +13779,10 @@
     "update": false
   },
   "2277977": {
-    "totalreply": 10554,
+    "totalreply": 10556,
     "title": "[中东砖楼 2026年4月版]",
     "newtitle": "[中东砖楼 2026年4月版]",
-    "lastedit": 1776260171,
+    "lastedit": 1776260413,
     "category": "外野",
     "active": true,
     "update": false
@@ -15126,7 +15126,7 @@
     "lastedit": 1776254760,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2278188": {
     "totalreply": 61,
@@ -16367,7 +16367,7 @@
     "newtitle": "[传颂之物系列新作《传颂之物 通往白之道标》2026年春]",
     "lastedit": 1776000974,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2262984": {
@@ -17163,10 +17163,10 @@
     "update": false
   },
   "2278995": {
-    "totalreply": 62,
+    "totalreply": 63,
     "title": "[法国罕见全票通过“文物归还法案”]",
     "newtitle": "[法国罕见全票通过“文物归还法案”]",
-    "lastedit": 1776259699,
+    "lastedit": 1776260413,
     "category": "外野",
     "active": true,
     "update": false
@@ -17226,10 +17226,10 @@
     "update": false
   },
   "2279021": {
-    "totalreply": 57,
+    "totalreply": 58,
     "title": "[人到中年……情绪化了一把，愤而离职了]",
     "newtitle": "[人到中年……情绪化了一把，愤而离职了]",
-    "lastedit": 1776260173,
+    "lastedit": 1776260410,
     "category": "外野",
     "active": true,
     "update": false
@@ -17240,6 +17240,15 @@
     "newtitle": "[面对何润东翻红，李旎阿姨想出的对策是]",
     "lastedit": 1776259943,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2252073": {
+    "totalreply": 61,
+    "title": "[2026年奥特曼系列60周年 新奥「ULTRAMAN THEO」]",
+    "newtitle": "[2026年奥特曼系列60周年 新奥「ULTRAMAN THEO」]",
+    "lastedit": 1776260532,
+    "category": "漫区",
     "active": true,
     "update": false
   }
