@@ -15081,7 +15081,7 @@
     "lastedit": 1776270900,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2278188": {
     "totalreply": 61,
@@ -17221,6 +17221,15 @@
     "title": "[不想给手机戴套，又是黄油手的朋友]",
     "newtitle": "[不想给手机戴套，又是黄油手的朋友]",
     "lastedit": 1776270859,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2279022": {
+    "totalreply": 41,
+    "title": "[北京商报：“小杨生煎北京首店等位超1小时”]",
+    "newtitle": "[北京商报：“小杨生煎北京首店等位超1小时”]",
+    "lastedit": 1776282490,
     "category": "外野",
     "active": true,
     "update": false
