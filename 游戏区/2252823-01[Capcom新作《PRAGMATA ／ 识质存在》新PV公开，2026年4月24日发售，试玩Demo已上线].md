@@ -242,3 +242,23 @@ MC
 
 开发了7年，然后7小时吗。那确实不着急买了，反正一两年后卡普空自己会永降的
 
+
+*****
+
+####  skgaminger1988  
+##### 389#       发表于 2026-4-16 16:16
+
+7小时流程是真的牛逼嗷，这个体量敢卖268的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2458A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  医生狼多  
+##### 390#       发表于 2026-4-16 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69495483&amp;ptid=2252823" target="_blank">Sopp 发表于 2026-4-16 14:58</a>
+这游戏不是DRM的么？现在破解那么成熟了？</blockquote>
+虚拟机破解貌似，b站全流程满天飞了
+
