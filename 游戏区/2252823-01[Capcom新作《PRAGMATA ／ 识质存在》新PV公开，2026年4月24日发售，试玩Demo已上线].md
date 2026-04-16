@@ -226,3 +226,11 @@ MC
 2026年了pc也能吃上盗版偷跑……</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏不是DRM的么？现在破解那么成熟了？
 
+
+*****
+
+####  Xperia  
+##### 387#       发表于 2026-4-16 15:11
+
+等坛友打分了，re9预购吃屎吃饱了
+

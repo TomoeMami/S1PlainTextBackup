@@ -4380,3 +4380,32 @@ DS的API是不是在升级？中断了一下子
 
 不是，我以为发布了呢，结果在这讨论下旬定义呢。。。一个尘白禁区一个deepseek，我看呀，悬
 
+
+*****
+
+####  杀人鲸  
+##### 392#       发表于 2026-4-16 15:12
+
+不清楚你们那边推送没有，至少我这里没有。但是没事点一下更新以后，今天点击发现又可以更新了，也不知道又更新了什么东西。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Azcarlo  
+##### 393#       发表于 2026-4-16 15:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/a1ad40a551d38ef6f2275bcb743f3809/image.jpg" referrerpolicy="no-referrer">
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Promeus  
+##### 394#       发表于 2026-4-16 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69495577&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-4-16 15:12</a>
+不清楚你们那边推送没有，至少我这里没有。但是没事点一下更新以后，今天点击发现又可以更新了，也不知道又 ...</blockquote>
+app升级1.8.5版本吧
+
