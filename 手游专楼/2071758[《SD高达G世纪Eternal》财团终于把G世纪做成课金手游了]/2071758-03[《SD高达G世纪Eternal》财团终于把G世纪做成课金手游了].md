@@ -2512,3 +2512,13 @@ EXS数值强度怎样，在红限大概是哪个水平？神高就不指望了</
 
 一天打完高难那后面半个月就直接回归长草等NT了
 
+
+*****
+
+####  jackyhuang  
+##### 4024#       发表于 2026-4-16 18:52
+
+38万关好不容易打出增援一看配置吐了，这不买满buff真不好过吧<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
