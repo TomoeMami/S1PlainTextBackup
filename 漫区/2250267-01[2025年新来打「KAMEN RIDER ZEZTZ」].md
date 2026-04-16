@@ -1597,3 +1597,11 @@ Counter the assassination.（对抗暗杀）
 
 上一个浑身能力都用来针对当前反派的传奇形态，叫创骑大聪明<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kal_008  
+##### 1229#       发表于 2026-4-16 15:50
+
+难道不奇怪莫的养父母是怎么死的吗，虽然是特工，但是他们的任务就是抚养莫，这种任务怎么会死人呢，死的时间就是宁梦出事故那一年，这背后是不是有什么无形的大手在操作
+
