@@ -2643,3 +2643,18 @@ seed送的sp我全用来突sr的自由了，这元祖高达送的突那个好点
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  alialex  
+##### 4036#       发表于 2026-4-17 00:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69497178&amp;ptid=2071758" target="_blank">jackyhuang 发表于 2026-4-16 22:07</a>
+
+游玩记录可以看了，项目不多
+
+刷的最多的关卡是逆袭HARD2，万恶的绿鹦鹉
+
+出击最多的角色煌大和</blockquote>
+在哪看记录？
+
