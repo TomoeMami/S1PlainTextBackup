@@ -451,3 +451,14 @@ xbox版本居然不让预载反复让我下一个300mb的玩意儿
 
 日文配音感觉故意加了一点非人的成分，英文配音则是我管你这那的全力往真人小女孩的方向演
 
+
+*****
+
+####  宛若青空  
+##### 410#       发表于 2026-4-16 21:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69496309&amp;ptid=2252823" target="_blank">WGTCorp 发表于 2026-4-16 17:32</a>
+ign的编辑说打到出制作名单大概12小时，完成所有额外内容大概15到16小时
+https://www.ign.com/articles/p ...</blockquote>
+差不多就是这个时间，有个挑战模式据说很难
+
