@@ -428,3 +428,18 @@ xbox版本居然不让预载反复让我下一个300mb的玩意儿
 
 其实如果游戏形象塑造成功，更多时间是花在游戏外到处搜刮二创。
 
+
+*****
+
+####  wasian  
+##### 407#       发表于 2026-4-16 20:27
+
+戴安娜今晚吃什么<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Andariel  
+##### 408#       发表于 2026-4-16 20:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中文那个最新的pv都给我看尬了，反正到时候肯定玩日文了
+
