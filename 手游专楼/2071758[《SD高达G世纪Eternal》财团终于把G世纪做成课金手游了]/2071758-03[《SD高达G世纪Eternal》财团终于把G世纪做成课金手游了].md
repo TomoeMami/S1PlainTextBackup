@@ -2412,3 +2412,11 @@ ca Ex-S终于出了 然而抽掉毛不剩什么石头了啊（而且驾驶员找
 
 就看之後MK-V會綁了誰人，應該也會出，
 
+
+*****
+
+####  arthes  
+##### 4014#       发表于 2026-4-16 11:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">EXS的EX动画卖点是变形过程，展示武装的爽快连击给了alice，感觉是把一个很长的EX动画拆成了两段吧，算是用心的了
+
