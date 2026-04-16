@@ -334,3 +334,29 @@ https://www.ign.com/articles/pragmata-review
 
 果然流程超短，这游戏我玩DEMO的时候就有这种预感，就是整体玩法各种层面感觉都很浅，枪械又是随机捡，这种模式流程长才有鬼呢，加上现在卡普空这种做游戏各种缩水的尿性<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  沧兰殇  
+##### 398#       发表于 2026-4-16 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69495483&amp;ptid=2252823" target="_blank">Sopp 发表于 2026-4-16 14:58</a>
+这游戏不是DRM的么？现在破解那么成熟了？</blockquote>
+D加密现在有一个迅速破解方法，用虚拟机，不过用了虚拟机后对电脑的额外性能消耗和直接D加密差不多
+前段时间生化九就几小时破解，游戏区也有讨论这个破解方法的帖子，现在不断进化，已经几乎一键安装了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  你说啥就是啥  
+##### 399#       发表于 2026-4-16 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69496435&amp;ptid=2252823" target="_blank">沧兰殇 发表于 2026-4-16 18:04</a>
+
+D加密现在有一个迅速破解方法，用虚拟机，不过用了虚拟机后对电脑的额外性能消耗和直接D加密差不多
+
+前段 ...</blockquote>
+生化9 的 D 加密已经破了，已经是非虚拟机了
+
