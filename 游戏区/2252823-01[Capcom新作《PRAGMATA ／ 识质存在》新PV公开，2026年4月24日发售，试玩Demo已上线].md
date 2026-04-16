@@ -490,3 +490,14 @@ https://www.ign.com/articles/p ...</blockquote>
 
 小萝莉开头左蹦右跳可爱捏<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mashav  
+##### 414#       发表于 2026-4-17 00:34
+
+打完了第一个区域，小萝莉可爱捏
+有不能通过的区域大概需要后续解锁能力再返回
+有类似传火祭祀场的设计，升级能力买东西啥的
+地图里甚至还有隐藏墙壁
+
