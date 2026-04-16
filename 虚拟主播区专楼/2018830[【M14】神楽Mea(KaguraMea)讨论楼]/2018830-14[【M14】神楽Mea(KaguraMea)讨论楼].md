@@ -5837,3 +5837,11 @@ Tonito先生，Sosa先生，非常感谢，我收下了，谢谢。
 
 今天在Twitch表演发狂艺，嗓子也有点伤，发狂到一半反应过来后面还有工商🤣被观众安慰给工商的知道你啥情况。
 
+
+*****
+
+####  术士q  
+##### 20472#       发表于 2026-4-16 23:00
+
+不过不得不说工商的这个游戏挺精致的啊，而且好像这游戏也是有点来头的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
