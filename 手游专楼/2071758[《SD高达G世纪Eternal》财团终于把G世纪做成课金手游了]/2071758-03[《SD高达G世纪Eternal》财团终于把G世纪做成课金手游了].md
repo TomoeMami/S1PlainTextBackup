@@ -2522,3 +2522,15 @@ EXS数值强度怎样，在红限大概是哪个水平？神高就不指望了</
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  裂空之龙  
+##### 4025#       发表于 2026-4-16 19:10
+
+那么问题来了，初始20w钻00池子300抽00R一破无wzc换了船，是补个希罗还是ex-s？<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+目前格纳库没强力红，47连限定给的个冰箱，普池绿螳螂刘备太难用了，已经准备拿免费给的山楂饼和红有三出来凑数了<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+对了，抽卡中间出了坚牢的普池船来着
+
