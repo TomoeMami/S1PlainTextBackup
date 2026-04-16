@@ -443,3 +443,11 @@ xbox版本居然不让预载反复让我下一个300mb的玩意儿
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中文那个最新的pv都给我看尬了，反正到时候肯定玩日文了
 
+
+*****
+
+####  jacket  
+##### 409#       发表于 2026-4-16 20:57
+
+日文配音感觉故意加了一点非人的成分，英文配音则是我管你这那的全力往真人小女孩的方向演
+
