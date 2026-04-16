@@ -2420,3 +2420,23 @@ ca Ex-S终于出了 然而抽掉毛不剩什么石头了啊（而且驾驶员找
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">EXS的EX动画卖点是变形过程，展示武装的爽快连击给了alice，感觉是把一个很长的EX动画拆成了两段吧，算是用心的了
 
+
+*****
+
+####  无念  
+##### 4015#       发表于 2026-4-16 11:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69492922&amp;ptid=2071758" target="_blank">arthes 发表于 2026-4-16 00:44</a>
+那马克五近期有望吗，我还挺喜欢这个的</blockquote>
+池子里有
+还有被他当鱼捞的fazz
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  dio999  
+##### 4016#       发表于 2026-4-16 12:00
+
+扔了100发进去，除了水魔都出了，暂时应该没啥想抽的了，开启攒钻模式
+
