@@ -470,3 +470,15 @@ https://www.ign.com/articles/p ...</blockquote>
 
 中文配音太恶心了
 
+
+*****
+
+####  chosamy  
+##### 412#       发表于 2026-4-16 22:13
+
+<blockquote>周处除三害 发表于 2026-4-16 18:58
+所以ns2版慢半个月是为啥？怕偷跑？
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, 鹅球 v3.5.99 ...</blockquote>
+避开朋友收集
+
