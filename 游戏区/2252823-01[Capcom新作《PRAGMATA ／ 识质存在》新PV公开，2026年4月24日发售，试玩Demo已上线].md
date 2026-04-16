@@ -326,3 +326,11 @@ https://www.ign.com/articles/pragmata-review
 
 这不就是标准的点子游戏，游戏深度不太够，流程全靠制作组各种奇思妙想撑着，点子用光了，游戏也通关了。真要做长了，那游戏只会变得又臭又长，后期体验变成灾难。
 
+
+*****
+
+####  葵  
+##### 397#       发表于 2026-4-16 17:50
+
+果然流程超短，这游戏我玩DEMO的时候就有这种预感，就是整体玩法各种层面感觉都很浅，枪械又是随机捡，这种模式流程长才有鬼呢，加上现在卡普空这种做游戏各种缩水的尿性<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
