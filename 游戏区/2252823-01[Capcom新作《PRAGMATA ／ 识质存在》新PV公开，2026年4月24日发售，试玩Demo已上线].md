@@ -185,3 +185,13 @@ MC
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏不是没发售吗，怎么还有盗版偷跑？
 
+
+*****
+
+####  57042711  
+##### 383#       发表于 2026-4-16 12:49
+
+看看速通大佬能多久打完<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
