@@ -295,3 +295,26 @@ MC
 
 当然估计大概率一年后五折
 
+
+*****
+
+####  Xperia  
+##### 394#       发表于 2026-4-16 17:25
+
+268/7=38.2
+
+348/9=38.6
+
+以后卡婊出什么游戏售价除咦38就知道体量了
+
+
+*****
+
+####  WGTCorp  
+##### 395#       发表于 2026-4-16 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69496011&amp;ptid=2252823" target="_blank">宛若青空 发表于 2026-4-16 16:31</a>
+听风就是雨，正常玩家初见都要十几个小时的，除非不管小萝莉的剧情不回去基地和她频繁对话，但是小萝莉的剧 ...</blockquote>
+ign的编辑说打到出制作名单大概12小时，完成所有额外内容大概15到16小时
+https://www.ign.com/articles/pragmata-review
+
