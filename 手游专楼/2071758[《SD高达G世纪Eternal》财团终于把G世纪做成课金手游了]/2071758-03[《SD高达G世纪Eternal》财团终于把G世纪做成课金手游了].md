@@ -2440,3 +2440,13 @@ ca Ex-S终于出了 然而抽掉毛不剩什么石头了啊（而且驾驶员找
 
 扔了100发进去，除了水魔都出了，暂时应该没啥想抽的了，开启攒钻模式
 
+
+*****
+
+####  blue321  
+##### 4017#       发表于 2026-4-16 12:07
+
+这exs还给了你两个角度的变形过程给你看，太占时间了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
