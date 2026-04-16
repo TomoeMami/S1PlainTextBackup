@@ -2450,3 +2450,13 @@ ca Ex-S终于出了 然而抽掉毛不剩什么石头了啊（而且驾驶员找
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  plok201  
+##### 4018#       发表于 2026-4-16 13:27
+
+主线高难送一个保证SP的机师和驾驶，目前来看是UR下放，定位是ult那种对系列特攻，那台开发绿独角应该是放这个模式了
+
+比起只有5点体力的活动，感觉这边才是真的主菜<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
