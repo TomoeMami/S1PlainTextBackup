@@ -2534,3 +2534,27 @@ EXS数值强度怎样，在红限大概是哪个水平？神高就不指望了</
 
 对了，抽卡中间出了坚牢的普池船来着
 
+
+*****
+
+####  gpx234mqx  
+##### 4026#       发表于 2026-4-16 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69496599&amp;ptid=2071758" target="_blank">jackyhuang 发表于 2026-4-16 18:52</a>
+
+38万关好不容易打出增援一看配置吐了，这不买满buff真不好过吧
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 ...</blockquote>
+buff不加满不行
+
+敌人太硬了
+
+*****
+
+####  gpx234mqx  
+##### 4027#       发表于 2026-4-16 19:52
+
+ssed挑战关还是看练度的
+
+敌人都高攻高防
+
