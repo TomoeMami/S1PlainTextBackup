@@ -177,3 +177,11 @@ MC
 
 5小时还行，比re3耐玩就是胜利
 
+
+*****
+
+####  手铐君  
+##### 382#       发表于 2026-4-16 12:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏不是没发售吗，怎么还有盗版偷跑？
+
