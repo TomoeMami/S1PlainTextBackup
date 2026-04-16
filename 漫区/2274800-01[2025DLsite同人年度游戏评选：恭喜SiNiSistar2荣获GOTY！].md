@@ -560,3 +560,16 @@ JK密室生活才这么点票？这是神作啊
 
 DL上的游戏不大了解，就玩了SIN2，请问下有没有又色口味又比较轻的推荐？举例来说就是只有SIN2女主和村民的那种程度
 
+
+*****
+
+####  naclken.  
+##### 48#         楼主| 发表于 2026-4-16 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69495543&amp;ptid=2274800" target="_blank">安姆闲人 发表于 2026-4-16 15:05</a>
+
+DL上的游戏不大了解，就玩了SIN2，请问下有没有又色口味又比较轻的推荐？举例来说就是只有SIN2女主和村民的 ...</blockquote>
+[https://stage1st.com/2b/thread-2045114-1-1.html](https://stage1st.com/2b/thread-2045114-1-1.html)
+
+专楼，请<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
