@@ -52,3 +52,42 @@
 
 strange fake 的从者有卫星么？会上谁？
 
+
+*****
+
+####  qixinno1  
+##### 20647#       发表于 2026-4-16 22:07
+
+ 本帖最后由 qixinno1 于 2026-4-16 22:09 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">能不能别辱海了出个正常海叔吧 明明一堆臭鱼烂虾各种瞎JB缝整的都很NB的样子 真的很NB的海叔却只能被当垫子和迫害
+
+*****
+
+####  khxooo  
+##### 20648#       发表于 2026-4-16 23:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69497176&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-4-16 22:07</a>
+
+能不能别辱海了出个正常海叔吧 明明一堆臭鱼烂虾各种瞎JB缝整的都很NB的样子 真的很NB的海叔却只能被当垫子 ...</blockquote>
+这次五星大概率是仇海了，毕竟龙娘都迎来了自己的五星，B叔也时候出了。不过我希望二期是伊修塔尔，看看纯正的屑女神究竟是怎样的。
+
+*****
+
+####  qixinno1  
+##### 20649#       发表于 2026-4-17 00:27
+
+<blockquote>khxooo 发表于 2026-4-16 23:19
+这次五星大概率是仇海了，毕竟龙娘都迎来了自己的五星，B叔也时候出了。不过我希望二期是伊修塔尔，看看 ...</blockquote>
+比起仇海更希望出正常海
+
+*****
+
+####  khxooo  
+##### 20650#       发表于 2026-4-17 01:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69497546&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-4-17 00:27</a>
+
+比起仇海更希望出正常海</blockquote>
+那么来个技能转职介，来个弓转仇，然后技能组换了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
