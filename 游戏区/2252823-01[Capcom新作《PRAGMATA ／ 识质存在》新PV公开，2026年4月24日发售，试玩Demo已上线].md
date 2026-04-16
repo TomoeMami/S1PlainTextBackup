@@ -578,3 +578,11 @@ ns2掌机模式如何，可以玩吗
 
 有人通关了吗 能不能无剧透的说一说剧情怎么样 
 
+
+*****
+
+####  Andariel  
+##### 423#       发表于 2026-4-17 07:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么要期待卡婊的剧情...
+
