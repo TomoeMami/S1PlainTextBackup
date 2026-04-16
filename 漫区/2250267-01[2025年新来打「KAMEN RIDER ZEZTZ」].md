@@ -1584,3 +1584,16 @@ Counter the assassination.（对抗暗杀）
 秩序官网小作文说是把事物纠正到正确的状态，光看这句话发动条件还蛮苛刻的，梦魇设定还是自然现象，不知道 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">梦魇不用秩序啊，灾厄大王碾过去就行了，秩序把克制黎明直接写在设定里了，就是专门拿来抽橘前辈陀螺的
 
+
+*****
+
+####  milky658  
+##### 1228#       发表于 2026-4-16 08:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69492899&amp;ptid=2250267" target="_blank">阿刚 发表于 2026-4-16 00:31</a>
+
+梦魇不用秩序啊，灾厄大王碾过去就行了，秩序把克制黎明直接写在设定里了，就是专门拿来抽橘前辈陀螺的 ...</blockquote>
+黎明修改梦境的能力只是用来恶心阿莫的，正面作战不修改梦境打灾厄也游刃有余，比起战力上能打黎明，更像是封掉小手段防止无下限对身边人动手。官网小作文给我的感觉是，比如同样是人和梦魇融合，黎明篡改梦境的情况下秩序能够分离，但假如这是梦主自己的梦，秩序就分离不了，因为这本身是正确的
+
+上一个浑身能力都用来针对当前反派的传奇形态，叫创骑大聪明<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
