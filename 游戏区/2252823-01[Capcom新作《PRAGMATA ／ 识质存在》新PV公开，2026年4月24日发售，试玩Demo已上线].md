@@ -195,3 +195,11 @@ MC
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  JOJOROY  
+##### 384#       发表于 2026-4-16 12:57
+
+一周目长度和RE比如何
+
