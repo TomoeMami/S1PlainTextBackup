@@ -1605,3 +1605,16 @@ Counter the assassination.（对抗暗杀）
 
 难道不奇怪莫的养父母是怎么死的吗，虽然是特工，但是他们的任务就是抚养莫，这种任务怎么会死人呢，死的时间就是宁梦出事故那一年，这背后是不是有什么无形的大手在操作
 
+
+*****
+
+####  鲁邦三世1  
+##### 1230#       发表于 2026-4-16 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69495778&amp;ptid=2250267" target="_blank">kal_008 发表于 2026-4-16 15:50</a>
+难道不奇怪莫的养父母是怎么死的吗，虽然是特工，但是他们的任务就是抚养莫，这种任务怎么会死人呢，死的时 ...</blockquote>
+有博主逐帧观察，妹妹梦境，柠檬车祸日期都是21年
+到后期肯定会有解释
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
