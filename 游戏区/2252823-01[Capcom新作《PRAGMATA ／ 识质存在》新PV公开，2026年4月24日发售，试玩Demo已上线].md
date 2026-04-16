@@ -150,3 +150,14 @@ MC
 
 有信息说已经有人7个多小时通关了。
 
+
+*****
+
+####  Caa  
+##### 379#       发表于 2026-4-16 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69494273&amp;ptid=2252823" target="_blank">纯情小鸭鸭 发表于 2026-4-16 11:10</a>
+
+有信息说已经有人7个多小时通关了。</blockquote>
+我看的主播5小时就通关了
+

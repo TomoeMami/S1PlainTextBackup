@@ -2402,3 +2402,13 @@ ca Ex-S终于出了 然而抽掉毛不剩什么石头了啊（而且驾驶员找
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那马克五近期有望吗，我还挺喜欢这个的
 
+
+*****
+
+####  eilot  
+##### 4013#       发表于 2026-4-16 11:21
+
+其實EX-S應該綁G世界的角色才對吧
+
+就看之後MK-V會綁了誰人，應該也會出，
+
