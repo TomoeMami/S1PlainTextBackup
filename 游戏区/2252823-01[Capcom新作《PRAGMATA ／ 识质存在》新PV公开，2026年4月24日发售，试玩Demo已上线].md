@@ -586,3 +586,16 @@ ns2掌机模式如何，可以玩吗
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么要期待卡婊的剧情...
 
+
+*****
+
+####  火红之眼  
+##### 424#       发表于 2026-4-17 07:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69497687&amp;ptid=2252823" target="_blank">Chao 发表于 2026-4-17 02:13</a>
+
+小萝莉超可爱，三种豪华版舞蹈都很棒
+
+手感好，很顺而且不滑，相比之下生化9简直脚下生根</blockquote>
+模型的话，开声音文字显示很容易找
+
