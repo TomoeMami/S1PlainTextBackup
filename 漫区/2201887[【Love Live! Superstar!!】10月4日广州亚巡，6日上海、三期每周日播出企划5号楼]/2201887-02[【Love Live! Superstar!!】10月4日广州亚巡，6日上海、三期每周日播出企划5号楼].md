@@ -13,3 +13,16 @@
 
 主要是想吐槽京极说的，难道二期那鬼样子能让人对她们感兴趣吗，后面接的话更是，人在无语到极点的时候是会笑的。。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 1832#       发表于 2026-4-17 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69497298&amp;ptid=2201887" target="_blank">ViyViy 发表于 2026-4-16 22:53</a>
+
+后一张图忘去掉了，跟我之前想法差不多，大体占位符有了就是差形象；
+
+主要是想吐槽京极说的，难道二期那 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">公式书甚至依然没有花田
+
