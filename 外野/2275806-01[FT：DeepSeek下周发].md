@@ -4409,3 +4409,22 @@ DS的API是不是在升级？中断了一下子
 不清楚你们那边推送没有，至少我这里没有。但是没事点一下更新以后，今天点击发现又可以更新了，也不知道又 ...</blockquote>
 app升级1.8.5版本吧
 
+
+*****
+
+####  overflowal  
+##### 395#       发表于 2026-4-16 15:36
+
+目前是可以知道网页版在做各种A/B test。他们应该在尝试做最后的后训练    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  杀人鲸  
+##### 396#       发表于 2026-4-16 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69495608&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-4-16 15:17</a>
+app升级1.8.5版本吧</blockquote>
+是的，只不过真就属于是那种更新了也不知道更新了什么，总感觉有点搞笑。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
