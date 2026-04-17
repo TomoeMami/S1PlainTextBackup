@@ -4486,3 +4486,15 @@ Claude Kimi Gemini Grok（？不清楚马是谁）Qwen  Llama 豆包
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  coldhot3  
+##### 403#       发表于 2026-4-17 12:07
+
+<blockquote>oopsoops 发表于 2026-4-17 10:03
+那个卡皮巴拉是grok？qwen在哪
+
+论坛助手,iPhone</blockquote>
+卡皮巴拉是antrophic新大模型吧
+
