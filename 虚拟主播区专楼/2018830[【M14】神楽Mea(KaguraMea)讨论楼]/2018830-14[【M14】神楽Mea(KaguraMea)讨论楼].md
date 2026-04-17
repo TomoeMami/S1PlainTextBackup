@@ -5845,3 +5845,11 @@ Tonito先生，Sosa先生，非常感谢，我收下了，谢谢。
 
 不过不得不说工商的这个游戏挺精致的啊，而且好像这游戏也是有点来头的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古战场亡魂  
+##### 20473#       发表于 2026-4-17 09:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">犬山这主题曲还好说，pv做的也太简单了吧，pv里不放cg是吧。
+
