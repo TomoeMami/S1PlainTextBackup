@@ -2680,3 +2680,13 @@ https://user-playdata-gget.ggame.jp/ja
 
 版块送的和规模战店里卖的新普池券，20发下去出来2EZ81正义1鸡煲饭1绿螳螂1创制强袭，怎么回事
 
+
+*****
+
+####  dfdddfdd  
+##### 4039#       发表于 2026-4-17 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69497999&amp;ptid=2071758" target="_blank">电脑死机 发表于 2026-4-17 08:36</a>
+版块送的和规模战店里卖的新普池券，20发下去出来2EZ81正义1鸡煲饭1绿螳螂1创制强袭，怎么回事 ...</blockquote>
+普池要五月才换新池子
+
