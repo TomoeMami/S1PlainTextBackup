@@ -740,3 +740,11 @@ ns2掌机模式如何，可以玩吗
 
 刚才我看到一个主播直播这游戏看到连保时捷精虫都要破解，直接破防<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sgssk  
+##### 440#       发表于 2026-4-17 14:52
+
+真是偷电池吗，我试玩版就觉得制作组要是没憋住指不定要把处决动作做成草薙素子大猩猩<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
