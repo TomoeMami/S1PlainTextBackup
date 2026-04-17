@@ -867,3 +867,11 @@ VANQUISH流程完全一条线走到底，系统简单的不行，剧情从头看
 
 草，游戏打一半一看群里，怎么还有上市第一天就和手游联动的游戏。
 
+
+*****
+
+####  chivalry  
+##### 454#       发表于 2026-4-17 20:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有没有兄弟说说ns2表现咋样，昨天看到个和sd对比的好像还行，读取也快了不少，掌机模式体验上呢
+
