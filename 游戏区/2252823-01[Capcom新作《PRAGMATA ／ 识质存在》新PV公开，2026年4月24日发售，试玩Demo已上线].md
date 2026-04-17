@@ -919,3 +919,19 @@ VANQUISH流程完全一条线走到底，系统简单的不行，剧情从头看
 这光影的质感太棒了，好喜欢，卡婊🐂🍺</blockquote>
 买的盘还没到，请问这是PC还是PS5版的画面<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  conanoysq  
+##### 458#       发表于 2026-4-17 20:59
+
+ 本帖最后由 conanoysq 于 2026-4-17 21:00 编辑 
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69501962&amp;ptid=2252823" target="_blank">宛若青空 发表于 2026-4-17 20:41</a>
+
+买的盘还没到，请问这是PC还是PS5版的画面</blockquote>
+
+PC的，4080拉满，感觉优化比生9好多了，
+
+然后刚回完贴，游戏就崩溃了……
+
