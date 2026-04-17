@@ -1643,3 +1643,15 @@ Counter the assassination.（对抗暗杀）
 
 那一话cast表只标注了code no.6的声音：平川结月<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一个陆仁贾  
+##### 1233#       发表于 2026-4-18 00:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69501256&amp;ptid=2250267" target="_blank">milky658 发表于 2026-4-17 18:38</a>
+灾厄shf官店就开了几百个，万代不想卖可以不卖的。怎么跟极狐那年一样，前期小人随便订，后面玩具涨价小人 ...</blockquote>
+拿超可动解馋吧<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
