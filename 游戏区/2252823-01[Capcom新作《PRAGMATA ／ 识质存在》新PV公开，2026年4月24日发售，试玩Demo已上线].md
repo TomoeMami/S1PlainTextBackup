@@ -843,3 +843,11 @@ VANQUISH流程完全一条线走到底，系统简单的不行，剧情从头看
 
 总之先闭眼拉黑，免得B站推给我
 
+
+*****
+
+####  卡拉德利姆  
+##### 451#       发表于 2026-4-17 17:31
+
+打了第二个boss 战斗爽我只能说<img src="https://static.stage1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
+
