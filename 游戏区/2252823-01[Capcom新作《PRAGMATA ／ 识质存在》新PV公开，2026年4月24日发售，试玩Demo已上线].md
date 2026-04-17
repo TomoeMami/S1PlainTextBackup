@@ -1172,3 +1172,12 @@ PC的，4080拉满，感觉优化比生9好多了，
 
 打群架真的好恶心<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 483#       发表于 2026-4-18 01:31
+
+缝了好多游戏，死亡空间+篝火+吹逼点等等<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过主干的战斗系统挺有意思
+
