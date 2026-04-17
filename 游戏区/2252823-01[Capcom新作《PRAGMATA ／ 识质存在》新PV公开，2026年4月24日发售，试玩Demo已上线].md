@@ -1141,3 +1141,26 @@ PC的，4080拉满，感觉优化比生9好多了，
 
 箱庭地图回头探图收集有点折磨 遭遇战都会刷新 大门直接给你一关都得重新打
 
+
+*****
+
+####  wwddrte  
+##### 479#       发表于 2026-4-18 00:29
+
+玩到矿场，感觉除了萝莉以外没啥优点<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wasian  
+##### 480#       发表于 2026-4-18 00:29
+
+小东西真可爱啊<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 481#       发表于 2026-4-18 00:29
+
+感觉有点像街机游戏，闯关式，但是有个休息的基地跟萝莉互动
+
