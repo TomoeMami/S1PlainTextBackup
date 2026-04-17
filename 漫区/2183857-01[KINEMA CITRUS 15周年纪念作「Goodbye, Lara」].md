@@ -1091,3 +1091,15 @@ PV1：[https://youtu.be/c4-6PwVRRj8](https://youtu.be/c4-6PwVRRj8)
 
 PV2：[https://youtu.be/-FVOUh7_obU](https://youtu.be/-FVOUh7_obU)
 
+
+*****
+
+####  堆雪若叶  
+##### 68#       发表于 2026-4-17 18:01
+
+原来茉里的奶奶是牧师，怪不得有个十字吊坠，感觉会是妈的遗物。之前pv里角度不一样没注意，放正面人设对比你俩是换了饱和度的兄弟吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/c5c319a0e24bb2681a6113f7df52906c/bg_chara04.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/d89f9980aed932dfba21f9a512b4f9f6/bg_chara06.png" referrerpolicy="no-referrer">
+
+中间还出现不少路人，感觉是不同单元剧里学人间之爱什么京紫
+
