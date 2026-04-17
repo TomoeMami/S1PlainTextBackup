@@ -599,3 +599,38 @@ ns2掌机模式如何，可以玩吗
 手感好，很顺而且不滑，相比之下生化9简直脚下生根</blockquote>
 模型的话，开声音文字显示很容易找
 
+
+*****
+
+####  ydd-319  
+##### 425#       发表于 2026-4-17 08:25
+
+ 本帖最后由 ydd-319 于 2026-4-17 08:27 编辑 
+
+<img src="https://img.stage1st.com/forum/202604/17/082711len0h58er7ebn0rh.jpg" referrerpolicy="no-referrer">
+
+<strong>e4e759b0d24c1da7be49be246e4e880d98763294.jpg</strong> (182.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-17 08:27 上传
+
+看到有人说想要这种MOD<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chiziru  
+##### 426#       发表于 2026-4-17 08:26
+
+这游戏哪个配音好点
+
+—— 来自 Xiaomi 2510DRK44C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Andariel  
+##### 427#       发表于 2026-4-17 08:31
+
+问下有多结局要素吗？
+收集要素影响结局吗？
+

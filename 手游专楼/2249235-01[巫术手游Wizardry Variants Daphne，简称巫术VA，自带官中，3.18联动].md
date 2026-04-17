@@ -56,3 +56,16 @@
 
 里面死人出来了不会掉心情
 
+
+*****
+
+####  电脑死机  
+##### 774#       发表于 2026-4-17 08:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69497439&amp;ptid=2249235" target="_blank">茄子自走炮 发表于 2026-4-16 23:44</a>
+
+把精锐之部打完了 能通四周目雪地的话应该能一队人+2~3个替补过15
+
+英雄就不考虑 给课佬玩</blockquote>
+日，手快把难度2打完了，还有救吗
+
