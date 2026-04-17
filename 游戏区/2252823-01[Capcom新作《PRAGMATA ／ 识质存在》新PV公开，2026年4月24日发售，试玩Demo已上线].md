@@ -983,3 +983,21 @@ PC的，4080拉满，感觉优化比生9好多了，
 
 何意味，手柄只能改四个键？
 
+
+*****
+
+####  嘿等等  
+##### 462#       发表于 2026-4-17 22:42
+
+战斗适合手柄还是键鼠？
+
+
+*****
+
+####  ParadiseMartyr  
+##### 463#       发表于 2026-4-17 22:46
+
+这保时捷精虫居然不刷新，我痛苦面具了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
