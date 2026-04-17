@@ -2726,3 +2726,14 @@ https://user-playdata-gget.ggame.jp/ja
 
 ML应该会做成一个剧情活动吧，卡池机搞不好是红昆曼莎
 
+
+*****
+
+####  光辉传递者  
+##### 4043#       发表于 2026-4-17 13:26
+
+<img src="https://p.sda1.dev/32/ebf1e2729cb28a1f2c96f694862ef290/image.jpg" referrerpolicy="no-referrer">
+一队oor，踏马的燃尽了。
+
+—— 来自 LENOVO TB322FC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
