@@ -2672,3 +2672,11 @@ https://user-playdata-gget.ggame.jp/ja
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  电脑死机  
+##### 4038#       发表于 2026-4-17 08:36
+
+版块送的和规模战店里卖的新普池券，20发下去出来2EZ81正义1鸡煲饭1绿螳螂1创制强袭，怎么回事
+
