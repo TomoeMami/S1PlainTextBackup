@@ -875,3 +875,36 @@ VANQUISH流程完全一条线走到底，系统简单的不行，剧情从头看
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有没有兄弟说说ns2表现咋样，昨天看到个和sd对比的好像还行，读取也快了不少，掌机模式体验上呢
 
+
+*****
+
+####  renkan119  
+##### 455#       发表于 2026-4-17 20:21
+
+宝石结晶虫只有一次机会？ 跑了重进关卡也不刷新
+
+
+*****
+
+####  conanoysq  
+##### 456#       发表于 2026-4-17 20:25
+
+<img src="https://img.stage1st.com/forum/202604/17/202509c7woi7wylzw72wzi.jpg" referrerpolicy="no-referrer">
+
+<strong>20260417202403_1.jpg</strong> (429.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-17 20:25 上传
+
+这光影的质感太棒了，好喜欢，卡婊🐂🍺
+
+81e227f715831a17e02ae5989aa19853.jpg
+(435.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-17 20:24 上传
+
+<img src="https://img.stage1st.com/forum/202604/17/202427y9yd3uq6jb997xij.jpg" referrerpolicy="no-referrer">
+
