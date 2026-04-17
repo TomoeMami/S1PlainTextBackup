@@ -908,3 +908,14 @@ VANQUISH流程完全一条线走到底，系统简单的不行，剧情从头看
 
 <img src="https://img.stage1st.com/forum/202604/17/202427y9yd3uq6jb997xij.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 457#       发表于 2026-4-17 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69501850&amp;ptid=2252823" target="_blank">conanoysq 发表于 2026-4-17 20:25</a>
+
+这光影的质感太棒了，好喜欢，卡婊🐂🍺</blockquote>
+买的盘还没到，请问这是PC还是PS5版的画面<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
