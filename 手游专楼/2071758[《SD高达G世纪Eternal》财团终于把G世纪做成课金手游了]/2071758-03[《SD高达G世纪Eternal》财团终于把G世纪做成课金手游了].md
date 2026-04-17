@@ -2753,3 +2753,20 @@ ML应该会做成一个剧情活动吧，卡池机搞不好是红昆曼莎
 
 把oo之外的永恒之路都清了，最后保底换了oor，船就不想了，溜了溜了
 
+
+*****
+
+####  horacio  
+##### 4046#       发表于 2026-4-17 23:53
+
+刚看到个oor单机突破ex的，你可以全清了…
+
+*****
+
+####  arthes  
+##### 4047#       发表于 2026-4-17 23:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">高难关打完了，送的东西真不少，难度也没永恒之路高，通关后得的主界面动画也不错，话说这不是以后要送的动画都给剧透完了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+白给的那个一周年动画蛋蛋+掉毛不知道为啥整的那么糊，看了一遍直接撤走了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
