@@ -724,3 +724,11 @@ ns2掌机模式如何，可以玩吗
 
 年度最差中配，hanser都比这强<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风间坚次  
+##### 438#       发表于 2026-4-17 13:21
+
+嗯。。忍不住看了一下结局。。。除了这个通用的结局，还有没有其他结局？戴安娜太可爱了，想买一份
+
