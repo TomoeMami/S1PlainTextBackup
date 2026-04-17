@@ -1088,3 +1088,48 @@ PC的，4080拉满，感觉优化比生9好多了，
 不需要点血量吧，我反正没点，两个血瓶够用。
 手柄不太建议开辅助瞄准，自动锁头不利于打干扰天线<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  超极巨鲨鲨  
+##### 474#       发表于 2026-4-18 00:05
+
+真不错啊，打了4个小时左右比想象中的好多了，战斗上手之后打起来是真爽，地图设计也不错，各种峰回路转、隐藏、挑战房、能力锁玩出了一种银河城的感觉，还有就是戴安娜实在是太可爱了<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+不过豪华版给的戴安娜衣服都好丑，看来看去还是初始装好看<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202604/18/000321xnxkbbn92x2pqb1k.jpg" referrerpolicy="no-referrer">
+
+<strong>20260417202917_1.jpg</strong> (372.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-18 00:03 上传
+
+*****
+
+####  魔法酪饼  
+##### 475#       发表于 2026-4-18 00:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 这战斗感觉是狂战赴死的全面劣化版。。。
+
+*****
+
+####  Chao  
+##### 476#       发表于 2026-4-18 00:06
+
+两人技能搭配方向开始有了，有个踉跄流打起来挺爽的，但是就算有专精的搭配还是受限于节点数量，这个不知道后面如何解决
+
+*****
+
+####  oldttt  
+##### 477#       发表于 2026-4-18 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69502063&amp;ptid=2252823" target="_blank">conanoysq 发表于 2026-4-17 20:59</a>
+宛若青空 发表于 2026-4-17 20:41
+
+买的盘还没到，请问这是PC还是PS5版的画面</blockquote>
+我也4080 选完语言设置就崩溃了 之后启动就崩
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
