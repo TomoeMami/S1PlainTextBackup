@@ -642,3 +642,16 @@ ns2掌机模式如何，可以玩吗
 
 卖萝莉建模的游戏，把萝莉换成无人机纯纯路边一条
 
+
+*****
+
+####  Chao  
+##### 429#       发表于 2026-4-17 09:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69497955&amp;ptid=2252823" target="_blank">chiziru 发表于 2026-4-17 08:26</a>
+
+这游戏哪个配音好点
+
+—— 来自 Xiaomi 2510DRK44C, Android 16, 鹅球 v3.5.99</blockquote>
+就小萝莉而言，日语很不错，有少许非人感；英语是完全不装，把小萝莉当真人来配；中文则是太装了，不是装机器人，是装可爱，一听在玩原神
+
