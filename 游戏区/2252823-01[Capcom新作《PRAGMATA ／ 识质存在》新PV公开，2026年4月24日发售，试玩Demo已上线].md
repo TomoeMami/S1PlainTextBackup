@@ -682,3 +682,21 @@ ns2掌机模式如何，可以玩吗
 今年玩到的第一个不伤害视力的主机游戏，隔壁忍组真不是人<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 在基地聊天互动就能玩半个小时，但好像没看到拍照模式选项
 
+
+*****
+
+####  chris1987  
+##### 433#       发表于 2026-4-17 11:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">还没发货急急急，我看好几个主播前天就开播了。。昨天小肉包都玩上了
+
+
+*****
+
+####  stoiorz  
+##### 434#       发表于 2026-4-17 11:23
+
+从英配切换到中配，感觉背后的萝莉变成了半老徐娘。
+
+这是二师兄背着大师兄呢，一步一个脚印走的十分艰辛。好哥哥快下来，这个婚我老猪不结了。
+
