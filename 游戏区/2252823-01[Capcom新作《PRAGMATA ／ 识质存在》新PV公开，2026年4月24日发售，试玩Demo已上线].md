@@ -1201,3 +1201,27 @@ ign这测评怎么这么搞笑
 
 2026-4-18 01:50 上传
 
+
+*****
+
+####  drx66  
+##### 485#       发表于 2026-4-18 03:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69503135&amp;ptid=2252823" target="_blank">雪绒画 发表于 2026-4-18 01:52</a>
+
+ign这测评怎么这么搞笑
+
+看了眼测评的是外国人啊
+
+难道国外也在蒸馏前恩人？</blockquote>
+
+<img src="https://img.stage1st.com/forum/202604/18/030019yn6vccgbnvnfvfnm.png" referrerpolicy="no-referrer">
+
+<strong>gsg2.png</strong> (3.23 MB, 下载次数: 0)
+
+下载附件
+
+2026-4-18 03:00 上传
+
+路径的脸还是权威
+
