@@ -4446,3 +4446,13 @@ app升级1.8.5版本吧</blockquote>
 
 更了吗？如更<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不见不散  
+##### 399#       发表于 2026-4-17 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69495599&amp;ptid=2275806" target="_blank">Azcarlo 发表于 2026-4-16 15:15</a>
+— from Xiaomi 23127PN0CC, Android 16, S1 Next Goose v3.5.99</blockquote>
+站着的这几位都是谁
+
