@@ -1052,3 +1052,22 @@ PC的，4080拉满，感觉优化比生9好多了，
 
 说起来这游戏优先升级血量有性价比吗，我全部资源投资给小手枪争取两枪爆头能点死一个，但是遇到那些大只佬经常失误一下就要吃药
 
+
+*****
+
+####  Andariel  
+##### 470#       发表于 2026-4-17 23:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我没怎么点血，红房子里经常被秒杀
+
+这红房子不能立刻重试有点恶心
+
+*****
+
+####  红魔馆的糖  
+##### 471#       发表于 2026-4-17 23:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69502793&amp;ptid=2252823" target="_blank">Yugao 发表于 2026-4-17 23:30</a>
+说起来这游戏优先升级血量有性价比吗，我全部资源投资给小手枪争取两枪爆头能点死一个，但是遇到那些大只佬 ...</blockquote>
+金方块是逐渐递增的，而且手枪升级不是每次都加攻击，感觉最具性价比还是平均升
+
