@@ -673,3 +673,12 @@ ns2掌机模式如何，可以玩吗
 
 坐等一个坛友今天通关报告时长。<img src="https://static.stage1st.com/image/smiley/normal/037.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zqqwe  
+##### 432#       发表于 2026-4-17 11:09
+
+今年玩到的第一个不伤害视力的主机游戏，隔壁忍组真不是人<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+在基地聊天互动就能玩半个小时，但好像没看到拍照模式选项
+
