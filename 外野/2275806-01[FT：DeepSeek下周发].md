@@ -4456,3 +4456,33 @@ app升级1.8.5版本吧</blockquote>
 — from Xiaomi 23127PN0CC, Android 16, S1 Next Goose v3.5.99</blockquote>
 站着的这几位都是谁
 
+
+*****
+
+####  ayanamilin  
+##### 400#       发表于 2026-4-17 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69498349&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-4-17 09:50</a>
+
+站着的这几位都是谁</blockquote>
+Claude Kimi Gemini Grok（？不清楚马是谁）Qwen  Llama 豆包
+
+
+*****
+
+####  oopsoops  
+##### 401#       发表于 2026-4-17 10:00
+
+人是豆包，羊是ollama，那个网一样的是claude code，菱形的是gemini，球是kimi
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  oopsoops  
+##### 402#       发表于 2026-4-17 10:03
+
+那个卡皮巴拉是grok？qwen在哪
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
