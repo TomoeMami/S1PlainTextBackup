@@ -830,3 +830,16 @@ VANQUISH流程完全一条线走到底，系统简单的不行，剧情从头看
 
 这游戏里一共没几个角色，你们这样算不算另一种剧透呢<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  放大镜  
+##### 450#       发表于 2026-4-17 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69500647&amp;ptid=2252823" target="_blank">scp073 发表于 2026-4-17 16:44</a>
+
+妈的B站有吊人封面剧透最终boss啊，wrsndm</blockquote>
+求ID
+
+总之先闭眼拉黑，免得B站推给我
+
