@@ -2658,3 +2658,17 @@ seed送的sp我全用来突sr的自由了，这元祖高达送的突那个好点
 出击最多的角色煌大和</blockquote>
 在哪看记录？
 
+
+*****
+
+####  jackyhuang  
+##### 4037#       发表于 2026-4-17 08:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69497594&amp;ptid=2071758" target="_blank">alialex 发表于 2026-4-17 00:50</a>
+在哪看记录？</blockquote>
+https://user-playdata-gget.ggame.jp/ja
+不过日服和国际服网址应该不一样吧
+一周年活动公告往下翻就有了
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
