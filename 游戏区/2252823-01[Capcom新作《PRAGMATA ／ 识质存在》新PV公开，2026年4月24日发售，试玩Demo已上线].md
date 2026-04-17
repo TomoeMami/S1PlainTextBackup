@@ -803,3 +803,22 @@ VANQUISH流程完全一条线走到底，系统简单的不行，剧情从头看
 
 妈的B站有吊人封面剧透最终boss啊，wrsndm
 
+
+*****
+
+####  就是剑鞘  
+##### 447#       发表于 2026-4-17 16:56
+
+有必要用键鼠吗
+
+
+*****
+
+####  泰坦失足  
+##### 448#       发表于 2026-4-17 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69500647&amp;ptid=2252823" target="_blank">scp073 发表于 2026-4-17 16:44</a>
+
+妈的B站有吊人封面剧透最终boss啊，wrsndm</blockquote>
+我也刷到了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
