@@ -1618,3 +1618,28 @@ Counter the assassination.（对抗暗杀）
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  milky658  
+##### 1231#       发表于 2026-4-17 18:38
+
+灾厄shf官店就开了几百个，万代不想卖可以不卖的。怎么跟极狐那年一样，前期小人随便订，后面玩具涨价小人秒没，太可恶了，高桥悠也<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  浅川雏羽  
+##### 1232#       发表于 2026-4-17 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69491857&amp;ptid=2250267" target="_blank">milky658 发表于 2026-4-15 19:45</a>
+
+6号演了了一个多月床戏，醒了以后:
+
+1号是谁?
+
+什么叫7号和4号相互理解了？</blockquote>
+其实丽塔根本没演床戏，躺床上那个是个替身来的
+
+那一话cast表只标注了code no.6的声音：平川结月<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
