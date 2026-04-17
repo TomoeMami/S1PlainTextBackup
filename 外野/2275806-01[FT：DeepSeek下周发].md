@@ -4508,3 +4508,26 @@ https://mp.weixin.qq.com/s/-7bnbEl5BRT2JDXJdgPHMg
 
 红星资本局消息，有传言称，前DeepSeek研究员郭达雅已被字节跳动以亿元年薪“挖角”。4月16日，据澎湃新闻，记者通过多方信源了解到，郭达雅确实已经加盟字节跳动，但具体薪资尚未披露。4月16日，抖音集团副总裁李亮回应称，相关消息不实，字节跳动招聘的所有Seed团队技术人员的薪资体系都是一样的，包括现金、字节期权和豆包期权，期权是四年期全部归属，无所谓“需要满足一定条件才能拿全”的情况，近期更没有招聘到什么近亿元年薪的员工。当然Seed员工的字节和豆包期权，未来收益根据期权价格有波动，假如业务发展的很好，不排除有些Seed技术人员四年后收益会达到数亿元。据相关消息披露，郭达雅已加入字节跳动负责大模型研发的组织Seed，是agent（智能体）方向负责人之一，职级为L8。有传言称，郭达雅的薪资水平接近国内顶级AI人才，类似腾讯姚顺雨。据介绍，郭达雅1994年出生于广东珠海，是代码智能（Code Intelligence）与大模型推理方向的顶尖人才。2023 年，中山大学博士毕业后，郭达雅加入DeepSeek，深度参与了DeepSeek代码与推理方向的研究。他是DeepSeek V3、R1以及Coder、Math等模型的核心贡献者。这位曾被导师寄予厚望成为“中山大学雷军”的技术天才，在学术与竞赛领域有着近乎传奇的履历。在真人秀《燃烧吧！天才程序员》中，他自述在入学博士后的第三天便完成了毕业所需的论文发表要求。他还多次在腾讯广告算法大赛中夺冠，并在ATEC科技精英赛和微信大数据挑战赛中夺冠，被调侃“还没毕业就有百万奖金”。2026年3月，郭达雅被曝离职。消息传出后，字节跳动、百度、阿里均向其发出要约，字节跳动Seed团队为热门下家，但字节跳动方面保持沉默，未置可否。值得关注的是，这起人才流动并非孤例，近期多位DeepSeek核心成员被曝离职或流向其他公司。例如，DeepSeek前多模态核心研究员阮翀被曝已加盟第三方智能驾驶解决方案供应商元戎启行，并担任首席科学家；DeepSeek-OCR系列核心作者魏浩然春节前后离职，传闻将入职“某大厂”；第一代LLM核心作者王炳宣则加入了腾讯。不过，在业内人士看来，这种顶尖人才的流动实属正常，字节跳动Seed团队也是国内大厂的重点挖角对象，过去一年已被挖近70人，包括Seed Edge成员徐名宇，加入了DeepSeek模型结构组。DeepSeek的首位员工李宇琨，则是2023年从字节搜索团队跳槽DeepSeek。腾讯也挖走近30名Seed员工，助其重构AI Infra和数据基建，阿里Qwen团队则有葛浩等多名Seed成员加入负责重要岗位
 
+
+*****
+
+####  Promeus  
+##### 405#       发表于 2026-4-17 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69498415&amp;ptid=2275806" target="_blank">oopsoops 发表于 2026-4-17 10:03</a>
+那个卡皮巴拉是grok？qwen在哪
+
+论坛助手,iPhone</blockquote>
+卡皮巴拉就是千问
+
+*****
+
+####  羊寢  
+##### 406#       发表于 2026-4-17 13:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69498415&amp;ptid=2275806" target="_blank">oopsoops 发表于 2026-4-17 10:03</a>
+那个卡皮巴拉是grok？qwen在哪
+
+论坛助手,iPhone</blockquote>
+卡皮巴拉是qwen或者a÷那个新模型(不过qwen可能性比较大)，grok应该是马，因为马斯克<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
