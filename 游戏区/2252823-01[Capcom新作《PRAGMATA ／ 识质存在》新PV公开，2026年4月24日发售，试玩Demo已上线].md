@@ -1181,3 +1181,23 @@ PC的，4080拉满，感觉优化比生9好多了，
 缝了好多游戏，死亡空间+篝火+吹逼点等等<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 不过主干的战斗系统挺有意思
 
+
+*****
+
+####  雪绒画  
+##### 484#       发表于 2026-4-18 01:52
+
+ign这测评怎么这么搞笑
+
+看了眼测评的是外国人啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+难道国外也在蒸馏前恩人？
+
+<img src="https://img.stage1st.com/forum/202604/18/015017ab0ea55akibkoabd.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (127.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-18 01:50 上传
+
