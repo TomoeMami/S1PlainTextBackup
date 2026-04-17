@@ -1001,3 +1001,28 @@ PC的，4080拉满，感觉优化比生9好多了，
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Booorunestud  
+##### 464#       发表于 2026-4-17 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69502587&amp;ptid=2252823" target="_blank">嘿等等 发表于 2026-4-17 22:42</a>
+战斗适合手柄还是键鼠？</blockquote>
+手柄没问题，对枪法没要求
+
+*****
+
+####  Chao  
+##### 465#       发表于 2026-4-17 23:15
+
+这巨蛋的地图设计相当棒啊，立体空间峰回路转，颇有老生化的风格
+
+
+*****
+
+####  Yugao  
+##### 466#       发表于 2026-4-17 23:20
+
+这红房子还能靠老ass底力硬打，训练关和保时捷我是碰不了一点，拿点关键资源就算了，平台跳跳乐和射击游戏苦手<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -2745,3 +2745,11 @@ ML应该会做成一个剧情活动吧，卡池机搞不好是红昆曼莎
 
 <img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">这也能3000，只有感谢
 
+
+*****
+
+####  忧郁  
+##### 4045#       发表于 2026-4-17 23:21
+
+把oo之外的永恒之路都清了，最后保底换了oor，船就不想了，溜了溜了
+
