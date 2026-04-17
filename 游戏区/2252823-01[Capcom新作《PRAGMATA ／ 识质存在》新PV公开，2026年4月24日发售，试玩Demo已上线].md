@@ -1026,3 +1026,29 @@ PC的，4080拉满，感觉优化比生9好多了，
 
 这红房子还能靠老ass底力硬打，训练关和保时捷我是碰不了一点，拿点关键资源就算了，平台跳跳乐和射击游戏苦手<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Andariel  
+##### 467#       发表于 2026-4-17 23:27
+
+果然有自动破解能力，不过感觉选了的话会少很多乐趣<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+打了一晚上目前没发现什么硬伤，就是操作还是有点生疏，捡枪经常捡不起来
+
+*****
+
+####  红魔馆的糖  
+##### 468#       发表于 2026-4-17 23:28
+
+跳跳乐+解谜+回头能力+拾取打枪
+
+我算是明白了，这是银河城<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yugao  
+##### 469#       发表于 2026-4-17 23:30
+
+说起来这游戏优先升级血量有性价比吗，我全部资源投资给小手枪争取两枪爆头能点死一个，但是遇到那些大只佬经常失误一下就要吃药
+
