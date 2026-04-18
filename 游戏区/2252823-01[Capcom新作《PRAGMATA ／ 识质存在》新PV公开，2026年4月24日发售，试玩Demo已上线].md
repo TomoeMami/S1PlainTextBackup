@@ -1618,3 +1618,19 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 这游戏真的很有360世代精品游戏的气质，真的感觉很像在打绝对征服，没啥花里胡哨的但就是好玩，硬要挑个缺点就是真的有点小贵<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wasian  
+##### 525#       发表于 2026-4-19 02:54
+
+<img src="https://img.stage1st.com/forum/202604/19/025400i7w7rq8oan77oot4.png" referrerpolicy="no-referrer">
+
+<strong>ea823a299d8abaad904c26e21c0a3ea4.png</strong> (242.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-19 02:54 上传
+
+回去收集的时候发现个黄点，是在挖矿虫的boss场地，这是bug还是什么奇奇怪怪的玩意
+
