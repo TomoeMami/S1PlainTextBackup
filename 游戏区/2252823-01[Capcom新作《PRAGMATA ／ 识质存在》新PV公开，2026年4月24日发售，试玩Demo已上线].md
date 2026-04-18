@@ -1290,3 +1290,24 @@ ign这测评怎么这么搞笑
 升级了R3自动破击，但有时候无法自动破解是啥情况，有使用条件吗</blockquote>
 要两格蓝吧
 
+
+*****
+
+####  sgssk  
+##### 493#       发表于 2026-4-18 15:48
+
+咱不是科幻游戏吗，怎么打到矿场这些大怪物设计越来越生化了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过植物站那个boss也太给面子了，这个甩尾前摇，怪猎那个慢节奏都不会这么客气吧
+
+*****
+
+####  红魔馆的糖  
+##### 494#       发表于 2026-4-18 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69504749&amp;ptid=2252823" target="_blank">sgssk 发表于 2026-4-18 15:48</a>
+咱不是科幻游戏吗，怎么打到矿场这些大怪物设计越来越生化了
+
+不过植物站那个boss也太给面子了，这个甩尾前 ...</blockquote>
+这游戏为了适配连连看，怪物的出招都做的很慢
+
