@@ -1470,3 +1470,12 @@ NS2版还挺流畅，也是有点糊</blockquote>
 这游戏甚至玩着有种生化的感觉.....</blockquote>
 从玩法最开始公布的时候，就能一眼看出来是卡普空自己的生化like吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡拉德利姆  
+##### 511#       发表于 2026-4-18 20:53
+
+战斗这块，也就前期像，后期主角飞天遁地，生化不了一点
+剧情嘛，只能说卡表所有游戏都共用一套模板<img src="https://static.stage1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
