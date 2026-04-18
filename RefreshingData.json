@@ -13014,10 +13014,10 @@
     "update": false
   },
   "2252823": {
-    "totalreply": 525,
+    "totalreply": 526,
     "title": "[Capcom新作《PRAGMATA ／ 识质存在》新PV公开，2026年4月24日发售，试玩Demo已上线]",
     "newtitle": "[Capcom新作《PRAGMATA ／ 识质存在》新PV公开，2026年4月17日发售，试玩Demo已上线]",
-    "lastedit": 1776538809,
+    "lastedit": 1776540728,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14247,13 +14247,13 @@
     "update": false
   },
   "2278388": {
-    "totalreply": 145,
+    "totalreply": 146,
     "title": "[有人在EVA里共情真嗣的吗？]",
     "newtitle": "[有人在EVA里共情真嗣的吗？]",
-    "lastedit": 1776540120,
+    "lastedit": 1776540480,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2278188": {
     "totalreply": 61,
@@ -17024,6 +17024,15 @@
     "newtitle": "[新出的朋友收集梦想生活 怎么样]",
     "lastedit": 1776527532,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2133494": {
+    "totalreply": 54,
+    "title": "[记一次奇妙的相遇——读偶像大师Shiny Colors]",
+    "newtitle": "[记一次奇妙的相遇——读偶像大师Shiny Colors]",
+    "lastedit": 1776540612,
+    "category": "漫区",
     "active": true,
     "update": false
   }
