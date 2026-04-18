@@ -1534,3 +1534,25 @@ NS2版还挺流畅，也是有点糊</blockquote>
 那就是光栅的原理了呀，做到路径那水平成本太高了。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer"> 他说的才是对的，这就是大家都在用的实时GI技术中的光线探针和反射探针。
 
+
+*****
+
+####  魔法酪饼  
+##### 518#       发表于 2026-4-18 23:09
+
+ 本帖最后由 魔法酪饼 于 2026-4-18 23:11 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69503233&amp;ptid=2252823" target="_blank">whzfjd 发表于 2026-4-18 04:26</a>
+
+为什么不能蒸馏，哦不，烘焙路径追踪的结果呢</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 能的，这就是光线探针和反射探针。
+
+光线探针是烘培一些点，有实体靠近这些点的时候，根据最近的几个点的数据计算出折中值然后把光打上去。
+
+反射探针是以一个点为中心烘培一个360度全景球图，附近有镜子之类的反射面，就用这个图来表现反射。
+
+现在将光线追踪结果烘培到面上的烘培贴图用的已经不咋多了，实际上不开实时光线追踪的时候，在使用的是被称作实时GI的一系列技术。
+
+还是光追好的主要原因是这些毕竟都是走偏门搞近似模拟，虽然在算力上省，但是会有很多很多奇怪的地方。
+
+大多数时候看不出来的原因是因为打光已经是一门专门的手艺了，而且你自己打一下就知道会怪的地方到底怪在哪里了。
+
