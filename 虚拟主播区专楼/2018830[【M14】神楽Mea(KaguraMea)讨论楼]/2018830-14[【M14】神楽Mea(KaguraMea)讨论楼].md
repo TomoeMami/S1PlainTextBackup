@@ -6149,3 +6149,16 @@ Tonito先生，Sosa先生，非常感谢，我收下了，谢谢。
 
 咩神五杀ace片段查看此剪辑！kagura0mea 正在直播 VALORANT！https://www.twitch.tv/kagura0mea/clip/EmpathicStupidAyeayeDerp-68Kz4EYXpJF7RI0c
 
+
+*****
+
+####  术士q  
+##### 20482#       发表于 2026-4-18 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69504988&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2026-4-18 17:01</a>
+咩神五杀ace片段查看此剪辑！kagura0mea 正在直播 VALORANT！https://www.twitch.tv/kagura0mea/clip/Empat ...</blockquote>
+这段前面咩还在自我怀疑，然后反手杀了五个，节目效果疑似有点太足了
+阿姆罗来了(
+
+以及希望咩嗓子早点调养好啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
