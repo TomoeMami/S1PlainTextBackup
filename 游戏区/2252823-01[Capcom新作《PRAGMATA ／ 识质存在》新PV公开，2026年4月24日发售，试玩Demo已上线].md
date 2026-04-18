@@ -1652,3 +1652,15 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 —— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  卡拉德利姆  
+##### 528#       发表于 2026-4-19 06:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69506728&amp;ptid=2252823" target="_blank">pointer243 发表于 2026-4-19 06:00</a>
+还没入手,玩过的能说说武器是不是就demo里的那几把?有突击步/机枪这种武器吗
+
+—— 来自 LGE LM-Q730, Andr ...</blockquote>
+武器有十几种呢，手枪到中期就能切换成突击步枪
+
