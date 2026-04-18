@@ -6141,3 +6141,11 @@ Tonito先生，Sosa先生，非常感谢，我收下了，谢谢。
 
 😅这嗓子还不如昨天呢。
 
+
+*****
+
+####  古战场亡魂  
+##### 20481#       发表于 2026-4-18 17:01
+
+咩神五杀ace片段查看此剪辑！kagura0mea 正在直播 VALORANT！https://www.twitch.tv/kagura0mea/clip/EmpathicStupidAyeayeDerp-68Kz4EYXpJF7RI0c
+
