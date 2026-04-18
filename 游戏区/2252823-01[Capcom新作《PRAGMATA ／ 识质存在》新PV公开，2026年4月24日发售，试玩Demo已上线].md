@@ -1515,3 +1515,22 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 —— 来自 Xiaomi 25128PNA1C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  卡拉德利姆  
+##### 516#       发表于 2026-4-18 22:56
+
+这种高速战斗喷子优势太大了
+
+
+*****
+
+####  魔法酪饼  
+##### 517#       发表于 2026-4-18 23:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69504211&amp;ptid=2252823" target="_blank">变老的大二 发表于 2026-4-18 12:48</a>
+
+那就是光栅的原理了呀，做到路径那水平成本太高了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer"> 他说的才是对的，这就是大家都在用的实时GI技术中的光线探针和反射探针。
+
