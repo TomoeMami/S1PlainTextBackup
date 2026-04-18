@@ -9383,3 +9383,11 @@ zeno本人出場次數比victor少，而且連戰鬥都沒有
 可能是這部份原本是想做開放區域但最後大 ...</blockquote>
 我本来以为会是复刻5代克和威两人战呢，刚出场的时候大口径左轮那个压迫力还是很强的，结果逗笑了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然我也感觉维克多肯定会返场但是没想到是这样返场
 
+
+*****
+
+####  saberlee  
+##### 2277#       发表于 2026-4-18 22:56
+
+终于白金了，话说这个ZENO是威斯克的克隆吗？
+
