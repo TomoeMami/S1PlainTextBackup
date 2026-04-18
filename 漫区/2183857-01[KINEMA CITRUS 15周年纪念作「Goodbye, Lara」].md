@@ -1112,3 +1112,11 @@ PV2：[https://youtu.be/-FVOUh7_obU](https://youtu.be/-FVOUh7_obU)
 师徒情深<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/72a7560d3e991c6e67b37ebba638c130/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  闪光的肥耗子  
+##### 70#       发表于 2026-4-18 09:57
+
+op的名字也是再见拉拉，很有感觉
+
