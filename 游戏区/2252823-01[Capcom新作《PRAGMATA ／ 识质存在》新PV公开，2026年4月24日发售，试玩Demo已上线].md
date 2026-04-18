@@ -1460,3 +1460,13 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 每种武器对应特定战术和解法，绝不是用来乱射的，一种情况用不同武器打效果大不相同，直接会影响到战斗的难度，这点很白金流
 
+
+*****
+
+####  玉之龙  
+##### 510#       发表于 2026-4-18 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69505356&amp;ptid=2252823" target="_blank">当光停止 发表于 2026-4-18 18:37</a>
+这游戏甚至玩着有种生化的感觉.....</blockquote>
+从玩法最开始公布的时候，就能一眼看出来是卡普空自己的生化like吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
