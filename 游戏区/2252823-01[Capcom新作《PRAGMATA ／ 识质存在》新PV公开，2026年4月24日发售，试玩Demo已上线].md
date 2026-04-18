@@ -1556,3 +1556,11 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 大多数时候看不出来的原因是因为打光已经是一门专门的手艺了，而且你自己打一下就知道会怪的地方到底怪在哪里了。
 
+
+*****
+
+####  RStocking  
+##### 519#       发表于 2026-4-18 23:27
+
+通关了，净化能力的蓄力特效太蛋疼了，试了好多次才搞明白什么时候是蓄力完成<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
