@@ -1393,3 +1393,11 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 戴安娜很萌，就是越看越像艾露猫……
 
+
+*****
+
+####  zqqwe  
+##### 504#       发表于 2026-4-18 18:27
+
+一路爽到植物图，前两张图除红月丝能力锁以外的收集也基本清了，红房战点设计刺激又不坐牢，终于遇到梦中的tps了<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
