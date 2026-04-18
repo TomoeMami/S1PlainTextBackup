@@ -1409,3 +1409,19 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这游戏甚至玩着有种生化的感觉.....
 
+
+*****
+
+####  ネロ  
+##### 506#       发表于 2026-4-18 19:07
+
+<img src="https://img.stage1st.com/forum/202604/18/190753lvqpquhuklxpq5vf.jpg" referrerpolicy="no-referrer">
+
+<strong>20260418165559_1.jpg</strong> (330.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-18 19:07 上传
+
+我能看着她玩地球仪一下午<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
