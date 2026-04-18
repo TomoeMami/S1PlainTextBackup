@@ -2770,3 +2770,15 @@ ML应该会做成一个剧情活动吧，卡池机搞不好是红昆曼莎
 
 白给的那个一周年动画蛋蛋+掉毛不知道为啥整的那么糊，看了一遍直接撤走了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 4048#       发表于 2026-4-18 18:20
+
+<img src="https://p.sda1.dev/32/3be9eb6573211b04b0221f1861c3a2e5/image.jpg" referrerpolicy="no-referrer">
+这次重开跟上次比还算好点了，就是百抽没有EXS有点伤，现在俩免费选谁比较好？
+还想打元祖高难拿3000石头，可是手上没啥能用的
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
