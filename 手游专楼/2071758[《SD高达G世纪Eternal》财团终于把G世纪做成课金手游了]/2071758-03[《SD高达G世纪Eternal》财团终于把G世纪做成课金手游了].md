@@ -2828,3 +2828,15 @@ oo和疾风迅雷外面能点的都点了
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  无念  
+##### 4054#       发表于 2026-4-19 01:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69506136&amp;ptid=2071758" target="_blank">AminGly 发表于 2026-4-18 22:25</a>
+洛叔有个地图炮，已经算不是很会送的了</blockquote>
+其实上个图伊扎克也送的快，但尸装有两条命所以经常能撑到大部队赶过来<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
