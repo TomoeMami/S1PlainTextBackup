@@ -1401,3 +1401,11 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 一路爽到植物图，前两张图除红月丝能力锁以外的收集也基本清了，红房战点设计刺激又不坐牢，终于遇到梦中的tps了<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  当光停止  
+##### 505#       发表于 2026-4-18 18:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这游戏甚至玩着有种生化的感觉.....
+
