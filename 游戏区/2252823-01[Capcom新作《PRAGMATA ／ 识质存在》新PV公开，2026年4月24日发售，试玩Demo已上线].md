@@ -1487,3 +1487,11 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 喷了，阿舱还会播放洛克人的待机画面
 
+
+*****
+
+####  scp073  
+##### 513#       发表于 2026-4-18 22:25
+
+十字键切枪玩着真的不太舒服，有背键切枪的方案吗<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
