@@ -1425,3 +1425,13 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 我能看着她玩地球仪一下午<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 507#       发表于 2026-4-18 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69505356&amp;ptid=2252823" target="_blank">当光停止 发表于 2026-4-18 18:37</a>
+这游戏甚至玩着有种生化的感觉.....</blockquote>
+感觉设计就是奔着弱化恐怖感的生化去的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
