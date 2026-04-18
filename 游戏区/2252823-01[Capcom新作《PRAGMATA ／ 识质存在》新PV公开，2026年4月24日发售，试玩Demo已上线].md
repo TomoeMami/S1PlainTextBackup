@@ -1479,3 +1479,11 @@ NS2版还挺流畅，也是有点糊</blockquote>
 战斗这块，也就前期像，后期主角飞天遁地，生化不了一点
 剧情嘛，只能说卡表所有游戏都共用一套模板<img src="https://static.stage1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 512#       发表于 2026-4-18 21:49
+
+喷了，阿舱还会播放洛克人的待机画面
+
