@@ -1564,3 +1564,11 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 通关了，净化能力的蓄力特效太蛋疼了，试了好多次才搞明白什么时候是蓄力完成<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sgssk  
+##### 520#       发表于 2026-4-18 23:39
+
+用很新很新的瓶装很旧很旧的酒，只能对卡普空大哥服气！
+
