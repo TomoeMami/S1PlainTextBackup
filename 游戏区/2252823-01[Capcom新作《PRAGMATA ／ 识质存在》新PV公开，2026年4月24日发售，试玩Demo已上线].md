@@ -1435,3 +1435,11 @@ NS2版还挺流畅，也是有点糊</blockquote>
 这游戏甚至玩着有种生化的感觉.....</blockquote>
 感觉设计就是奔着弱化恐怖感的生化去的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 508#       发表于 2026-4-18 19:56
+
+搜刮途中看一眼拐角没东西捡扭头就走，实际上已经慢悠悠打印了一个怪，转两圈回到之前走过的地方，迎面再碰上就会吓一跳
+

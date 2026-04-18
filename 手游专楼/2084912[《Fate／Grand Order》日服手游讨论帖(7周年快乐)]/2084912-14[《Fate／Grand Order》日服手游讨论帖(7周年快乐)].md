@@ -99,3 +99,15 @@ strange fake 的从者有卫星么？会上谁？
 
 310石了，没想到竟然能长草到让我攒到这么多石头<img src="https://static.stage1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 20652#       发表于 2026-4-18 19:46
+
+梦火终于吃完了....这下是真的完球了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+平常每日长草期就刷9次冠位....就这也遭不住梦火的消耗
+
+现在这可咋办....我不想回去刷狗粮啊
+
