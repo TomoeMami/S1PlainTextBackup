@@ -2818,3 +2818,13 @@ oo和疾风迅雷外面能点的都点了
 
 不过最后一关配置有点恶心，我也是手动打的，自动的话绝对断连动
 
+
+*****
+
+####  一个陆仁贾  
+##### 4053#       发表于 2026-4-19 00:58
+
+草我说区域2异灵图标那关怎么这么难打，原来是隐藏关<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
