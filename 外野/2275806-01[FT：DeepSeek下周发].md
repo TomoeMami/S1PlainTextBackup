@@ -4618,3 +4618,16 @@ ai这个行当，砸钱不一定能出效果
 看有up评论区自称内线的说是20号发</blockquote>
 已经品鉴过很多"内部消息"了。<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 416#       发表于 2026-4-18 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69498415&amp;ptid=2275806" target="_blank">oopsoops 发表于 2026-4-17 10:03</a>
+
+那个卡皮巴拉是grok？qwen在哪
+
+论坛助手,iPhone</blockquote>
+卡皮巴拉是千问
+
