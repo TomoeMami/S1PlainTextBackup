@@ -1582,3 +1582,21 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 结果并没有，似乎只是一个很传统的故事了
 
+
+*****
+
+####  超极巨鲨鲨  
+##### 522#       发表于 2026-4-19 01:02
+
+通了，好游戏，探索体验、战斗体验和剧情体验都挺不错的，现在还有大厂愿意做这种创新玩法真是难能可贵，还有就是戴安娜可爱可爱可爱可爱可爱<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+另外通关后解锁的这个服装也太吓人了，卡普空玩抽象一直有一手的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202604/19/010027o271o0aooeew7707.jpg" referrerpolicy="no-referrer">
+
+<strong>20260419003056_1.jpg</strong> (303 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-19 01:00 上传
+
