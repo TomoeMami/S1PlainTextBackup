@@ -108,3 +108,26 @@
 
 新动画前的live就这样了，没新歌也没新活，4th5th还是巅峰<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 41858#       发表于 2026-4-18 11:05
+
+       <strong>【BanG Dream! Our Notes】Ave Mujica乐队介绍</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202604/18/110543zuyxrvthhmfwllw3.jpg" referrerpolicy="no-referrer">
+
+<strong>a8d9f22b116bdcd24fa5d58678aa29f2d7dfd8a3.jpg</strong> (338.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-18 11:05 上传
+
+"欢迎来到Ave Mujica的假面舞会。"
+
+┈┈┈┈┈┈┈┈┈⿻*.·
+
+#BanGDream# #OurNotes# #交织的乐章# #AveMujica#</blockquote>
+       [https://www.bilibili.com/video/BV1o3dzBCE9c](https://www.bilibili.com/video/BV1o3dzBCE9c)
+
