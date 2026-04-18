@@ -4647,3 +4647,14 @@ ai这个行当，砸钱不一定能出效果
 
 <img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">首先 这些大牛在DS 工资就不低，第二 行业内人员流动是很正常的，这些还是留在国内的，你们还没统计因为缺卡 出国的高级算法专家有多少，
 
+
+*****
+
+####  秦南心  
+##### 419#       发表于 2026-4-18 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69506093&amp;ptid=2275806" target="_blank">谎称 发表于 2026-4-18 22:10</a>
+
+哎，被挖走的这些大牛，经历几年的资本洗礼，还会记得在deepseek的初心吗？    Re:Source ...</blockquote>
+如果真的是去字节，那还不赖的，seed 2 pro本身就挺厉害的，有郭达雅加入可能带来统治地位
+
