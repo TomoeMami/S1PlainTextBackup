@@ -6162,3 +6162,11 @@ Tonito先生，Sosa先生，非常感谢，我收下了，谢谢。
 
 以及希望咩嗓子早点调养好啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古战场亡魂  
+##### 20483#       发表于 2026-4-18 17:48
+
+反正目前就卡白银3了，不过也算不错了，如果30级上黄金真就天赋怪或者老手了。mea fps经验太少了，pupg，apex没怎么深度的去玩。现在慢慢补吧。
+
