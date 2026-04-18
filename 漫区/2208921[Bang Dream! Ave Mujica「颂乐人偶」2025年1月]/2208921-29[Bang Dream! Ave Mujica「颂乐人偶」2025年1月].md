@@ -131,3 +131,55 @@
 #BanGDream# #OurNotes# #交织的乐章# #AveMujica#</blockquote>
        [https://www.bilibili.com/video/BV1o3dzBCE9c](https://www.bilibili.com/video/BV1o3dzBCE9c)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41859#       发表于 2026-4-18 20:38
+
+       
+
+<img src="https://img.stage1st.com/forum/202604/18/203838zb7nwb37gj5bbauj.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-04-18_20-37-01.jpg</strong> (243.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-18 20:38 上传
+
+       [https://x.com/bang_dream_info/status/2045457320805531868](https://x.com/bang_dream_info/status/2045457320805531868)
+
+       [https://www.youtube.com/watch?v=DMtcR8q3e7I](https://www.youtube.com/watch?v=DMtcR8q3e7I)
+
+       <strong>【妙手回春终于不是只有贝斯了】CENTRAL MUSIC &amp; ENTERTAINMENT FESTIVAL 2026/Ave Mujica 官方修音</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202604/18/203839wp2opbkolkny0z5j.jpg" referrerpolicy="no-referrer">
+
+<strong>026a29d8f656d731c9ecc01f704a460a715e288e.jpg</strong> (90.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-18 20:38 上传
+
+[https://m.youtube.com/watch?v=DMtcR8q3e7I](https://m.youtube.com/watch?v=DMtcR8q3e7I)
+[https://m.youtube.com/watch?v=DMtcR8q3e7I](https://m.youtube.com/watch?v=DMtcR8q3e7I)【CENTRAL LAB.】CENTRAL MUSIC &amp; ENTERTAINMENT FESTIVAL 2026 / THE FIRST TAKE Powered by NURO
+
+官方妙手回春啊....
+
+1. KiLLKiSS
+
+2. 顔
+
+3. Slash the way
+
+4. 八芒星ダンス
+
+5. Angles
+
+6. Symbol II : Air
+
+7. Sophie
+
+8. Symbol I : △</blockquote>
+      [https://www.bilibili.com/video/BV18RdHBnELz/](https://www.bilibili.com/video/BV18RdHBnELz/)
+
