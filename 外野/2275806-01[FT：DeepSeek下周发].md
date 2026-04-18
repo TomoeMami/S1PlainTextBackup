@@ -4571,3 +4571,24 @@ https://mp.weixin.qq.com/s/-7bnbEl5BRT2JDXJdgPHMg
 红星资本局消息，有传言称，前DeepSeek研究员郭达雅 ...</blockquote>
  这么看腾讯也砸了不少钱进去，怎么元宝还是没个水花<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  drodchang  
+##### 411#       发表于 2026-4-18 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69503597&amp;ptid=2275806" target="_blank">夜游宫 发表于 2026-4-18 09:31</a>
+
+这么看腾讯也砸了不少钱进去，怎么元宝还是没个水花</blockquote>
+ai这个行当，砸钱不一定能出效果
+
+
+*****
+
+####  Geronimo  
+##### 412#       发表于 2026-4-18 09:54
+
+腾子之前的战略是等着抄，后来发现抄都抄不明白，去年底才从OpenAI挖了个尧舜禹。
+
+—— 来自 HUAWEI VYG-AL30, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
