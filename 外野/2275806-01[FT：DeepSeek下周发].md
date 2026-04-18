@@ -4631,3 +4631,19 @@ ai这个行当，砸钱不一定能出效果
 论坛助手,iPhone</blockquote>
 卡皮巴拉是千问
 
+
+*****
+
+####  谎称  
+##### 417#       发表于 2026-4-18 22:10
+
+哎，被挖走的这些大牛，经历几年的资本洗礼，还会记得在deepseek的初心吗？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  smiths146  
+##### 418#       发表于 2026-4-18 22:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">首先 这些大牛在DS 工资就不低，第二 行业内人员流动是很正常的，这些还是留在国内的，你们还没统计因为缺卡 出国的高级算法专家有多少，
+
