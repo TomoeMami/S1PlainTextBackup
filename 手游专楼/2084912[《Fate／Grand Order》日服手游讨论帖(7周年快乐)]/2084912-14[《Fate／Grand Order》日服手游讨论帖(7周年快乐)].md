@@ -91,3 +91,11 @@ strange fake 的从者有卫星么？会上谁？
 比起仇海更希望出正常海</blockquote>
 那么来个技能转职介，来个弓转仇，然后技能组换了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 20651#       发表于 2026-4-18 12:58
+
+310石了，没想到竟然能长草到让我攒到这么多石头<img src="https://static.stage1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
