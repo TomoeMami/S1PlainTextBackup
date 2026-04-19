@@ -1947,3 +1947,11 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 你要觉得你说的都对不许别人回，那我只能说你说的都对<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Black寿司  
+##### 559#       发表于 2026-4-19 20:40
+
+游戏体量不足
+
