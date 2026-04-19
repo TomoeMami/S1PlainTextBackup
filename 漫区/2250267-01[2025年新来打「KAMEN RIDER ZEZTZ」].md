@@ -2010,3 +2010,11 @@ Q6~RAYJ7MS7UP~_Y@(%N@3J_tmb.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  暗黑能乐  
+##### 1269#       发表于 2026-4-19 23:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然没有想黑的意思，宁梦的演技在主要角色里确实是垫底的。。演得好的角色太多了
+

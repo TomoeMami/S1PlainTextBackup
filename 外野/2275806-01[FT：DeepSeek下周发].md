@@ -4769,3 +4769,11 @@ ai这个行当，砸钱不一定能出效果
 
 大家都很急<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novem  
+##### 431#       发表于 2026-4-19 23:37
+
+希望deepseek各种被挖人不会对新模型产生比较大的影响
+
