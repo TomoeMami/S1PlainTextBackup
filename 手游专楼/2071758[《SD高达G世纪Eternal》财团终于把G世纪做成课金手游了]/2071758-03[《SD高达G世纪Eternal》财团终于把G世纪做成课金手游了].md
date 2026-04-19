@@ -2848,3 +2848,11 @@ oo和疾风迅雷外面能点的都点了
 
 OOR对自动党来说真好用，丢一个上去谁来都是0伤，就不怕死人掉评分<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 4056#       发表于 2026-4-19 11:18
+
+蛋R在PVP才是顶级恶心，不敢想象这期王牌+三星蛋R是什么品种的÷生
+
