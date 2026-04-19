@@ -4693,3 +4693,13 @@ ai这个行当，砸钱不一定能出效果
 群里图，不知真假，说下周发</blockquote>
 假，其他模型分数都不对
 
+
+*****
+
+####  御坂MKII  
+##### 423#       发表于 2026-4-19 19:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> gpt 5.3 只有一个特化的 5.3 codex 和对话里的 5.3 instant。标模直接 5.4 的
+
+—— 来自 Xiaomi 24072PX77C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
