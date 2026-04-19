@@ -1906,3 +1906,32 @@ NS2版还挺流畅，也是有点糊</blockquote>
 这地图虽然能转的头晕晕，但是场景设计千篇一律，跑起来很让人无聊，纯为了收集在跑 ...</blockquote>
 另外啥叫为了收集而收集，玩家看到地图上有一个明显的收集品，基于地图设计的引导，通过思考拿到收集品，只要这个过程是有趣的，结果并不重要，这套公式任地狱玩了多少年了
 
+
+*****
+
+####  红魔馆的糖  
+##### 555#       发表于 2026-4-19 19:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69508730&amp;ptid=2252823" target="_blank">Dorohedoro 发表于 2026-4-19 19:27</a>
+聊地图设计你不聊地图结构，不聊隐藏元素设计，不聊空间移动和地图的结合这些最重要的东西，因为你也知道 ...</blockquote>
+这是在应激个啥<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sgssk  
+##### 556#       发表于 2026-4-19 19:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">本篇不就是双结局嘛，虽然彩蛋式一句话结局还是多少显露出乱花预算的后果
+
+*****
+
+####  Dorohedoro  
+##### 557#       发表于 2026-4-19 19:53
+
+<blockquote>红魔馆的糖 发表于 2026-4-19 19:47
+这是在应激个啥我从没和你讨论过任何其他内容，就说了一句场景千篇一律就精神胜利了
+
+ ...</blockquote>
+我应激啥，我在这里发表一下我的游戏感想和游玩建议你凑上来干啥，你想输出你的那些反智言论自己去发帖就行了
+
