@@ -4751,3 +4751,13 @@ ai这个行当，砸钱不一定能出效果
 别奶了，我看上次服务器崩溃就是被泥潭毒奶的</blockquote>
 不至于，别的社群里面奶的人更多更疯狂，坛友这还算阵仗小的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御坂MKII  
+##### 429#       发表于 2026-4-19 23:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer"> gpt 的新模型也在灰度了，ds 快动吧
+
+—— 来自 Xiaomi 24072PX77C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
