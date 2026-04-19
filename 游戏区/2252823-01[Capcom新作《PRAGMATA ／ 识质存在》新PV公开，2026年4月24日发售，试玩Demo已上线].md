@@ -1935,3 +1935,15 @@ NS2版还挺流畅，也是有点糊</blockquote>
  ...</blockquote>
 我应激啥，我在这里发表一下我的游戏感想和游玩建议你凑上来干啥，你想输出你的那些反智言论自己去发帖就行了
 
+
+*****
+
+####  红魔馆的糖  
+##### 558#       发表于 2026-4-19 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69508831&amp;ptid=2252823" target="_blank">Dorohedoro 发表于 2026-4-19 19:53</a>
+我应激啥，我在这里发表一下我的游戏感想和游玩建议你凑上来干啥，你想输出你的那些反智言论自己去发帖就 ...</blockquote>
+无敌了，讨论楼还不让回复咯。别人发一句我回复一下我的感受不是很正常的事，搞的我要和你吵架一样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你要觉得你说的都对不许别人回，那我只能说你说的都对<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
