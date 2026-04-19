@@ -1928,3 +1928,13 @@ Q6~RAYJ7MS7UP~_Y@(%N@3J_tmb.jpg
 0的生命如同风中残烛</blockquote>
 还有葛城忍和富加宫隼人 骑士爹真是高危职业<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一个陆仁贾  
+##### 1261#       发表于 2026-4-19 16:29
+
+你们都是根据什么线索猜出来是父子关系的，我一脸懵
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
