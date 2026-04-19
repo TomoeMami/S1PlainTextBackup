@@ -1711,3 +1711,11 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 关卡尤其是一坨屎，场景内没有任何能称得上环境叙事的东西，视觉设计上又细碎又缺乏记忆点，战点又是清一色的厕所厕所厕所
 
+
+*****
+
+####  卡拉德利姆  
+##### 534#       发表于 2026-4-19 11:53
+
+等一下 月狂难度只能新游戏 不能新游戏+吗
+
