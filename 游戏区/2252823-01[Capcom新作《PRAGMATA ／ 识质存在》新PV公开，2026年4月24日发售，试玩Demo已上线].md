@@ -1664,3 +1664,14 @@ NS2版还挺流畅，也是有点糊</blockquote>
 —— 来自 LGE LM-Q730, Andr ...</blockquote>
 武器有十几种呢，手枪到中期就能切换成突击步枪
 
+
+*****
+
+####  simonroam  
+##### 529#       发表于 2026-4-19 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69506595&amp;ptid=2252823" target="_blank">RinC 发表于 2026-4-19 02:07</a>
+
+这游戏真的很有360世代精品游戏的气质，真的感觉很像在打绝对征服，没啥花里胡哨的但就是好玩，硬要挑个缺 ...</blockquote>
+360世代一个这样的游戏开发周期两年多，快的两年不到
+
