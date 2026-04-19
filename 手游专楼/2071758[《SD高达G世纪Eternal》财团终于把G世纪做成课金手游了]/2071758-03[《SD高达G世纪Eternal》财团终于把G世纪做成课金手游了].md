@@ -2840,3 +2840,11 @@ oo和疾风迅雷外面能点的都点了
 
 —— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  blue321  
+##### 4055#       发表于 2026-4-19 08:40
+
+OOR对自动党来说真好用，丢一个上去谁来都是0伤，就不怕死人掉评分<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
