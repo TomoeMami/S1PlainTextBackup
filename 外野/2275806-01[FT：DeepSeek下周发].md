@@ -4703,3 +4703,21 @@ ai这个行当，砸钱不一定能出效果
 
 —— 来自 Xiaomi 24072PX77C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  最低文化限度  
+##### 424#       发表于 2026-4-19 21:26
+
+只求回复速度能赶上3.1，智商这块我已经挺满意的了，要是能不吞参数就更好了
+
+
+*****
+
+####  overflowal  
+##### 425#       发表于 2026-4-19 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69508364&amp;ptid=2275806" target="_blank">大喵喵 发表于 2026-4-19 17:10</a>
+群里图，不知真假，说下周发</blockquote>
+某个群里测试gpt image2和nano banana做的图，被传出去了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
