@@ -1785,3 +1785,11 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 而且怎么还能和隔壁游戏梦幻联动的<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yugao  
+##### 542#       发表于 2026-4-19 18:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后一张地图略显敷衍，但是大冰箱环节让我原谅他了，最后一场boss站会错意带了一堆用不上的模块进去，硬是靠底力打过去了，另外狂月模式真的是人玩的吗
+
