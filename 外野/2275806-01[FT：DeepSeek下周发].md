@@ -4666,3 +4666,30 @@ ai这个行当，砸钱不一定能出效果
 
 我得了相思病，天天盼一个大模型
 
+
+*****
+
+####  大喵喵  
+##### 421#       发表于 2026-4-19 17:10
+
+<img src="https://img.stage1st.com/forum/202604/19/170940d2m00cz32hcnejec.jpg" referrerpolicy="no-referrer">
+
+<strong>image_1776589766287.jpg</strong> (98.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-19 17:09 上传
+
+群里图，不知真假，说下周发
+
+
+*****
+
+####  无尽的牙刷  
+##### 422#       发表于 2026-4-19 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69508364&amp;ptid=2275806" target="_blank">大喵喵 发表于 2026-4-19 17:10</a>
+
+群里图，不知真假，说下周发</blockquote>
+假，其他模型分数都不对
+

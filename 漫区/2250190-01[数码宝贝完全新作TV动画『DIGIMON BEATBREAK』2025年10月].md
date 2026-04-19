@@ -32,3 +32,13 @@
 
 这集的脚本担当小林キリコ好像是处女秀啊<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">恭喜，这集也确实很乐
 
+
+*****
+
+####  liekong  
+##### 542#       发表于 2026-4-19 17:08
+
+这集真是欢乐，还丰富了大家的人设（性格喜好），
+
+我说DBB的单元回真的要比DGG单元回要有趣多了吧
+
