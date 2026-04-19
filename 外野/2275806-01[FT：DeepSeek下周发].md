@@ -4741,3 +4741,13 @@ ai这个行当，砸钱不一定能出效果
 
 别奶了，我看上次服务器崩溃就是被泥潭毒奶的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  羊寢  
+##### 428#       发表于 2026-4-19 22:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69509351&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-4-19 22:36</a>
+别奶了，我看上次服务器崩溃就是被泥潭毒奶的</blockquote>
+不至于，别的社群里面奶的人更多更疯狂，坛友这还算阵仗小的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
