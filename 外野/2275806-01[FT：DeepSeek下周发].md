@@ -4721,3 +4721,15 @@ ai这个行当，砸钱不一定能出效果
 群里图，不知真假，说下周发</blockquote>
 某个群里测试gpt image2和nano banana做的图，被传出去了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  qz66618  
+##### 426#       发表于 2026-4-19 21:57
+
+ 本帖最后由 qz66618 于 2026-4-19 22:00 编辑 
+
+大概率下周了吧，我看推上之前有个爆料比较准的人也说了下周，说不定就是明天<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/d13bdddd4b0dcc0687e7ff06697c25ad/image.jpg" referrerpolicy="no-referrer">
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
