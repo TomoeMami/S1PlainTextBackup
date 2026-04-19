@@ -2084,3 +2084,13 @@ Q6~RAYJ7MS7UP~_Y@(%N@3J_tmb.jpg
 爱上了 又是个颜值在历代都能打的最终。名字叫kamen rider zeztz ex-dream，命名思路有变回时王开始的假面骑士xxx了。令和最终就加布over/master mode破坏队形<img src="https://p.sda1.dev/32/12f007e6aa706554e718304534446d05/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/c85263fb252a7461c294046fa5711b42/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  センコウ  
+##### 1276#       发表于 2026-4-20 07:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">下意识的看胸口
+
+秩序大王那胸口和带子完全不贴合实在过于出戏了
+
