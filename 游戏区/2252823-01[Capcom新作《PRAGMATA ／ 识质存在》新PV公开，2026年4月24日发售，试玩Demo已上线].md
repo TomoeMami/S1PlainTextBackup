@@ -1771,3 +1771,17 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 从死亡空间里获取了很多灵感
 
+
+*****
+
+####  何然  
+##### 541#       发表于 2026-4-19 18:02
+
+要故事有故事要叙事有叙事要萌有萌要燃有燃要GP03D有GP03D。
+
+要说关卡设计还是差了一些，走得有些烦人+战点一看就知
+
+中配太恶心了
+
+而且怎么还能和隔壁游戏梦幻联动的<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
