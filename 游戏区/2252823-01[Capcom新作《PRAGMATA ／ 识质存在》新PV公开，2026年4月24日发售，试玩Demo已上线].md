@@ -1844,3 +1844,13 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 挑战关卡，战斗关手柄不好操作，跑酷关键盘不好操作，害我两边一直切来切去。
 
+
+*****
+
+####  红魔馆的糖  
+##### 549#       发表于 2026-4-19 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69508642&amp;ptid=2252823" target="_blank">Dorohedoro 发表于 2026-4-19 19:00</a>
+这游戏不要开任何扫描玩，地图设计不比魂系差</blockquote>
+这地图虽然能转的头晕晕，但是场景设计千篇一律，跑起来很让人无聊，纯为了收集在跑<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
