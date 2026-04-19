@@ -1854,3 +1854,13 @@ NS2版还挺流畅，也是有点糊</blockquote>
 这游戏不要开任何扫描玩，地图设计不比魂系差</blockquote>
 这地图虽然能转的头晕晕，但是场景设计千篇一律，跑起来很让人无聊，纯为了收集在跑<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  何然  
+##### 550#       发表于 2026-4-19 19:18
+
+场景要素不就是隔壁游戏废案吗
+
+不对，隔壁游戏不就是我们的废案吗
+
