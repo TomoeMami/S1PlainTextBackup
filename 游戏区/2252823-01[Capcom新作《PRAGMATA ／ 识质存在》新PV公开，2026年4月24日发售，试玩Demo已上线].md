@@ -1745,3 +1745,21 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 自以为高强度搜刮了，没想到还是漏了第二个隐藏墙，看别人玩才发现
 
+
+*****
+
+####  acropolis  
+##### 538#       发表于 2026-4-19 14:58
+
+玩到最后一张图还是有点腻 自从给到收集品扫描器之后这游戏箱庭探索设计就有点开摆
+
+*****
+
+####  魔法酪饼  
+##### 539#       发表于 2026-4-19 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69507627&amp;ptid=2252823" target="_blank">Chenlh 发表于 2026-4-19 12:35</a>
+
+这游戏跳票这么久肯定就是权衡戴安娜的玩法了，最后选了个最保守的方案。技能没啥惊喜(一周目没全解锁， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 我倒觉得戴安娜的玩法是最早定下来的，因为这个战斗节奏非常像是参考的狂战士，时间对的上的同时这个项目这段时间刚好陷入无限延期开发地狱
+
