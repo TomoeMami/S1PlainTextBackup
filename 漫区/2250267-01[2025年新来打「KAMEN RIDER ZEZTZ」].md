@@ -1938,3 +1938,16 @@ Q6~RAYJ7MS7UP~_Y@(%N@3J_tmb.jpg
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  暗黑能乐  
+##### 1262#       发表于 2026-4-19 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69508269&amp;ptid=2250267" target="_blank">一个陆仁贾 发表于 2026-4-19 16:29</a>
+
+你们都是根据什么线索猜出来是父子关系的，我一脸懵
+
+—— 来自 vivo V2419A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+之前有个莫骑zero身上玩的场景，非常像父亲和儿子玩骑大马游戏
+
