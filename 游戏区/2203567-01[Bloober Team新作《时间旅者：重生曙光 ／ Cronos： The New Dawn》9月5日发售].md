@@ -488,3 +488,13 @@ MC
 <img src="https://p.sda1.dev/32/2c8ddb9767a053b967eec5a3bff0a703/4.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/6d437a1a6147e467af291f62328efc30/5.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红魔馆的糖  
+##### 43#       发表于 2026-4-19 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69507239&amp;ptid=2203567" target="_blank">霖岚_ 发表于 2026-4-19 10:35</a>
+之前只玩过他们组负责的寂静岭2重制，因为质量还挺不错就想着也试下这作，打完后给人像是虽然他们已经很努 ...</blockquote>
+我也是没游戏玩玩了这个，不过我只能给5分，扣一分是因为玩这个别说当代餐了，纯属浪费时间<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
