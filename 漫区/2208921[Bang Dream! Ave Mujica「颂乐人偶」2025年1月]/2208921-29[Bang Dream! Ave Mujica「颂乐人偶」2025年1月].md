@@ -183,3 +183,33 @@
 8. Symbol I : △</blockquote>
       [https://www.bilibili.com/video/BV18RdHBnELz/](https://www.bilibili.com/video/BV18RdHBnELz/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41860#       发表于 2026-4-19 13:17
+
+       <strong>来自Ave Mujica声优们的特别问候！</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202604/19/131712aezznmyayzy4l2dm.jpg" referrerpolicy="no-referrer">
+
+<strong>fa4cdef1450803cb603ea086ed5f310a4f8dd360.jpg</strong> (207.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-19 13:17 上传
+
+Ave Mujica的声优们的问候视频来啦！
+
+请一定要观看哦🌙
+
+▼日版CBT正在火热报名中！（本次测试招募仅支持日语）
+[https://bang-dream-on.bushimo.jp/cbt](https://bang-dream-on.bushimo.jp/cbt)
+
+国际版的CBT也在紧张筹备，请多多期待哦！🎵
+
+┈┈┈┈┈┈┈┈┈⿻*.·
+
+#BanGDream# #OurNotes# #交织的乐章# #AveMujica#</blockquote>
+       [https://www.bilibili.com/video/BV1H5doBvEic](https://www.bilibili.com/video/BV1H5doBvEic)
+
