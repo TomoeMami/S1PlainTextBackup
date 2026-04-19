@@ -1689,3 +1689,11 @@ Counter the assassination.（对抗暗杀）
 
 父慈子孝来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  milky658  
+##### 1237#       发表于 2026-4-19 08:54
+
+预告里面3还是真情实感了。所以预知梦里0因为自己儿子抗命，加上被4夺取记忆核心被处分，导致3上位。后面玩养成玩废了，7变成了和橘前辈一样的没有心的怪物，只好处理掉他。原本看24集最后0的表情就感觉很复杂
+
