@@ -1793,3 +1793,22 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后一张地图略显敷衍，但是大冰箱环节让我原谅他了，最后一场boss站会错意带了一堆用不上的模块进去，硬是靠底力打过去了，另外狂月模式真的是人玩的吗
 
+
+*****
+
+####  Betalo  
+##### 543#       发表于 2026-4-19 18:28
+
+打完一周目了，有萝莉、能开高达，卡婊我原谅你了<img src="https://static.stage1st.com/image/smiley/face2017/178.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  红魔馆的糖  
+##### 544#       发表于 2026-4-19 18:29
+
+通了，这游戏的底子有7分，被设计师的菜逼战点设计搞到只有6.5，连连看和跳跳乐太讨厌了再扣0.5，
+
+二周目就算了，就这样吧，一想到又要连连看就没有任何动力了
+
