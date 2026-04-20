@@ -25,3 +25,13 @@
 我有点怀疑这第一季能做到哪里了 ...</blockquote>
 同感，日剧都只用了1集半，第一次见动画比真人拖沓的
 
+
+*****
+
+####  KDConan  
+##### 66#       发表于 2026-4-20 18:12
+
+确实拖，这种节奏实在不适合当下了<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
