@@ -2611,3 +2611,17 @@ re9研究所的素材当然用的re3啊<img src="https://static.stage1st.com/ima
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  57042711  
+##### 620#       发表于 2026-4-20 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69513126&amp;ptid=2252823" target="_blank">——啧 发表于 2026-4-20 17:40</a>
+最后解锁的武器到底要怎么用的？第二段连招提示有时候出有时候不出，没总结出来是有啥诀窍
+
+—— 来自 鹅球 ...</blockquote>
+那个挺宽松的吧，提示很明显等它出按键提示按就行了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
