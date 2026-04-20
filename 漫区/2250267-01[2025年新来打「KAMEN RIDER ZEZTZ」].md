@@ -2229,3 +2229,15 @@ Q6~RAYJ7MS7UP~_Y@(%N@3J_tmb.jpg
 
 狐神划水主要是因为副骑收束全塞到后期了，为了剧情得把他BAN了，还有很搞笑的剧本里写了狐牛在处理暴动，剧里碍于经费没拍多少。ZZZ现在就一个骑士单打独斗，梦魇的机制也导致输一场就完犊子，这些硬性要求下太难看不至于，但2回一单元的模式有可能漏怪拖到第二集处理
 
+
+*****
+
+####  暗黑能乐  
+##### 1292#       发表于 2026-4-20 10:53
+
+ 本帖最后由 暗黑能乐 于 2026-4-20 10:56 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69510811&amp;ptid=2250267" target="_blank">milky658 发表于 2026-4-20 10:41</a>
+
+狐神划水主要是因为副骑收束全塞到后期了，为了剧情得把他BAN了，还有很搞笑的剧本里写了狐牛在处理暴动， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">感觉2回一单元固定的模式真得改改，如果能给美浪分个三集肯定观感好一大截，不过也可能是柴崎这个B水平问题
+
