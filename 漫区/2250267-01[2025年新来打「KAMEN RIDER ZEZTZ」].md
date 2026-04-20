@@ -2398,3 +2398,16 @@ Q6~RAYJ7MS7UP~_Y@(%N@3J_tmb.jpg
 
 EXDREAM新创华暂定译名“超梦”，万津莫也要逆袭了？全TM是山寺宏一的阴谋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  milky658  
+##### 1304#       发表于 2026-4-20 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69512348&amp;ptid=2250267" target="_blank">浅川雏羽 发表于 2026-4-20 15:28</a>
+
+三条z的演员平均业务水平比较高，女主算是这群人里偏菜的，但是干死gotchard剧组还是毫无压力，我一开始 ...</blockquote>
+3条Z几个年轻的女角色，狼姐人设比较古板，没什么展现演技的地方，有记忆点的是璃塔死后破防大哭情绪渲染能把拉跨的拍摄盖过去。妹妹日常戏演得都很自然，感情爆发稍差点。宁梦在剧组里确实菜，近期高桥当虐梦区显得几段戏调动不上去，但整体还算过关，不至于太出戏，几次委屈脸看得我也想欺负她
+
+至于歌查德，我看的时候和太君发出了同样的疑问：剧组从哪挖来那么多天赋型选手的？对新人演员要求不高吧，营业微笑至少好点。乃至于我全程截图搬小团体一起享受被群友骂是不是暗恋本岛纯真。凛音边缘化卖萌接受度要比那些颠佬高些<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
