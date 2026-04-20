@@ -2074,3 +2074,11 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 玩到第二关了，不得不说卡婊做游戏确实还挺有想法的，比光荣像样多了，不过各个方面都有些点到为止的感觉让人不爽
 
+
+*****
+
+####  sgssk  
+##### 571#       发表于 2026-4-20 08:05
+
+导演cho yonghee确实是韩国人不是日本人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
