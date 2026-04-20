@@ -2185,3 +2185,31 @@ Q6~RAYJ7MS7UP~_Y@(%N@3J_tmb.jpg
 
 33集左右最终登场的话打西格么，感觉咖位低了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失落之翼  
+##### 1287#       发表于 2026-4-20 10:29
+
+话说0是没说话被当成默认吧？不会到后面是牢莫的一厢情愿？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  清珏  
+##### 1288#       发表于 2026-4-20 10:30
+
+登场太早了 不会变成天才被抽陀螺
+
+或者九尾那样逛街吧
+
+*****
+
+####  浅川雏羽  
+##### 1289#       发表于 2026-4-20 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69510726&amp;ptid=2250267" target="_blank">失落之翼 发表于 2026-4-20 10:29</a>
+
+话说0是没说话被当成默认吧？不会到后面是牢莫的一厢情愿？</blockquote>
+牢零这话开头想拍肩又退缩和回忆杀里悄咪咪给骑车的小牢莫拍照片都证明牢零对牢莫有亲情，牢莫就算不是真儿子也少说是个梦里的复制品
+
