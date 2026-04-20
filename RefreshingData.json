@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 12638,
+    "totalreply": 12639,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼4月]",
-    "lastedit": 1776704656,
+    "lastedit": 1776725649,
     "category": "外野",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 27981,
+    "totalreply": 27982,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1776721092,
+    "lastedit": 1776725409,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13929,7 +13929,7 @@
     "lastedit": 1776690240,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2278188": {
     "totalreply": 61,
