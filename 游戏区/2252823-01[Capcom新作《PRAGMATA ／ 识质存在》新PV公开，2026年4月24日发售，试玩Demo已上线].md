@@ -2185,3 +2185,18 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  adw667  
+##### 581#       发表于 2026-4-20 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69511460&amp;ptid=2252823" target="_blank">——啧 发表于 2026-4-20 12:19</a>
+
+还真是，这个E不要蓄力的话还行，蓄力的话我都按不过来了
+
+—— 来自 鹅球 v3.5.99 ...</blockquote>
+键盘只按W前进用鼠标转向一定程度可以让脑子没那么打结，无名指疾跑大拇指跳跃和闪避
+
+我没想到有一天能同时吃到怪猎C手和生化坦克式移动这两坨<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
