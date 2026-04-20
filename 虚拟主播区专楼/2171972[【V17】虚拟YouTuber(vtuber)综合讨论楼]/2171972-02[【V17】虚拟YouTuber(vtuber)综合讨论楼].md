@@ -177,3 +177,39 @@
 
 对男的不感兴趣只希望四个新虹女真的是游戏大能直播也别太虚无
 
+
+*****
+
+####  poipanchao  
+##### 1839#       发表于 2026-4-20 10:37
+
+枪女没人看且直接对位vspo，不算vspo也是大把大把的，太红海。MOBA同接毒药，谁来谁死
+好难杀出重围啊
+
+*****
+
+####  艾特娜  
+##### 1840#       发表于 2026-4-20 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69510780&amp;ptid=2171972" target="_blank">poipanchao 发表于 2026-4-20 10:37</a>
+
+枪女没人看且直接对位vspo，不算vspo也是大把大把的，太红海。MOBA同接毒药，谁来谁死
+
+好难杀出重围啊 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">moba水平高的话还是能有个几千同接的，不过枪的话不靠其他游戏吸粉光靠技术好像是不太行了
+
+
+*****
+
+####  Harunoharu  
+##### 1841#       发表于 2026-4-20 13:23
+
+现在没什么人打枪了吧，solo更是无人在意
+
+*****
+
+####  cckuku  
+##### 1842#       发表于 2026-4-20 14:13
+
+蓝色系那个怪可爱的，而且她亲妈账号很眼熟，但我忘了亲妈画过啥了。
+
