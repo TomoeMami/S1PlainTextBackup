@@ -2625,3 +2625,16 @@ re9研究所的素材当然用的re3啊<img src="https://static.stage1st.com/ima
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  何然  
+##### 621#       发表于 2026-4-20 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69514239&amp;ptid=2252823" target="_blank">hkguty 发表于 2026-4-20 23:06</a>
+
+狂月是不是啥都重置，那一周目应该直奔通关，不管支线，二周目再狂月刷？ ...</blockquote>
+啥都重置，但是武器好像会出来得早一些，我第一关打第二个怪就掉了把激光枪
+
+连衣服都他妈的重置，我怀疑挑战任务也全部重置了
+
