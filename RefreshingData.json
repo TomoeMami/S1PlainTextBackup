@@ -12402,10 +12402,10 @@
     "update": false
   },
   "2218875": {
-    "totalreply": 1018,
+    "totalreply": 1019,
     "title": "[紫皮厨娘11／6日上线，大巴扎专楼，背包乱斗promax，异步联机自走棋]",
     "newtitle": "[大巴扎怪物猎人卡基米3月5日上线，大巴扎专楼，背包乱斗promax，异步联机自走棋]",
-    "lastedit": 1776698416,
+    "lastedit": 1776720488,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13929,7 +13929,7 @@
     "lastedit": 1776690240,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2278188": {
     "totalreply": 61,
@@ -17069,6 +17069,15 @@
     "newtitle": "[识质存在两天销量100万]",
     "lastedit": 1776704889,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2275305": {
+    "totalreply": 77,
+    "title": "[明日香还是绫波丽？]",
+    "newtitle": "[明日香还是绫波丽？]",
+    "lastedit": 1776720131,
+    "category": "漫区",
     "active": true,
     "update": false
   }
