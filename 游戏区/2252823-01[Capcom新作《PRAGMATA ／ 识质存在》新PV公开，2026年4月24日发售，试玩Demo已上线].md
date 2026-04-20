@@ -2153,3 +2153,16 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 你们的玩上了，我的还在海关<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adw667  
+##### 578#       发表于 2026-4-20 12:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69510456&amp;ptid=2252823" target="_blank">渡边加奈子 发表于 2026-4-20 09:41</a>
+
+好玩,赏心悦目,没有可以拿出来批评的缺点.
+
+这在一个全新游戏非常难得.</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有的，键盘按净化卡手
+
