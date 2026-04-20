@@ -2651,3 +2651,16 @@ re9研究所的素材当然用的re3啊<img src="https://static.stage1st.com/ima
 连衣服都他妈的重置，我怀疑 ...</blockquote>
 感觉有点捞，这方面居然没学生化那样继承，全部都不继承那一周目完全没有做收集的必要
 
+
+*****
+
+####  shyso  
+##### 623#       发表于 2026-4-21 02:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69512598&amp;ptid=2252823" target="_blank">Chao 发表于 2026-4-20 16:10</a>
+
+通关以后觉得这个游戏的制作理念很有意思，厚积薄发更形象更贴切，就是制作人非常的爱藏，有种生怕别人知道 ...</blockquote>
+说的挺好，我通关的感觉是这游戏在设计上的取舍就很卡婊式成熟，说得好听点叫不走极端也不用力过猛，说得不好听的就是太保守讨好休闲玩家
+
+作为休闲玩家我感觉游戏体验非常愉快，快过左右互搏的生化9<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
