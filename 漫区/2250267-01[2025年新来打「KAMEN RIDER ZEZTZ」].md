@@ -2241,3 +2241,35 @@ Q6~RAYJ7MS7UP~_Y@(%N@3J_tmb.jpg
 狐神划水主要是因为副骑收束全塞到后期了，为了剧情得把他BAN了，还有很搞笑的剧本里写了狐牛在处理暴动， ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">感觉2回一单元固定的模式真得改改，如果能给美浪分个三集肯定观感好一大截，不过也可能是柴崎这个B水平问题
 
+
+*****
+
+####  浅川雏羽  
+##### 1293#       发表于 2026-4-20 12:53
+
+看到隔壁的帖子愣了一下，点开发帖记录之后释怀了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202604/20/125329tx7nqonue2oz7txn.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-04-20 125159.png</strong> (272.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-20 12:53 上传
+
+<img src="https://img.stage1st.com/forum/202604/20/125330jut9wojjkijyv7bl.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-04-20 125216.png</strong> (61.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-20 12:53 上传
+
+<img src="https://img.stage1st.com/forum/202604/20/125330ksu70olrqojd00c5.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-04-20 125229.png</strong> (72.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-20 12:53 上传
+
