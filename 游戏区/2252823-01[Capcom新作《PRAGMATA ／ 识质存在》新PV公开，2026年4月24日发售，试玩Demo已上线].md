@@ -2638,3 +2638,16 @@ re9研究所的素材当然用的re3啊<img src="https://static.stage1st.com/ima
 
 连衣服都他妈的重置，我怀疑挑战任务也全部重置了
 
+
+*****
+
+####  hkguty  
+##### 622#       发表于 2026-4-21 01:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69514358&amp;ptid=2252823" target="_blank">何然 发表于 2026-4-20 23:48</a>
+
+啥都重置，但是武器好像会出来得早一些，我第一关打第二个怪就掉了把激光枪
+
+连衣服都他妈的重置，我怀疑 ...</blockquote>
+感觉有点捞，这方面居然没学生化那样继承，全部都不继承那一周目完全没有做收集的必要
+
