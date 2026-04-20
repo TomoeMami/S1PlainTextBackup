@@ -77,3 +77,14 @@ IO 用国产树莓派平替运行 openjvs
 
 视频输出 GBSC倍线器 + 触摸便携屏
 
+
+*****
+
+####  琴酒  
+##### 7334#       发表于 2026-4-20 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69509830&amp;ptid=2130897" target="_blank">不会起名 发表于 2026-4-20 01:39</a>
+
+那么这个有汉化吗</blockquote>
+目前没有
+
