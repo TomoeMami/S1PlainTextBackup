@@ -9403,3 +9403,16 @@ zeno本人出場次數比victor少，而且連戰鬥都沒有
 
 —— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  windlikeman  
+##### 2279#       发表于 2026-4-20 21:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69496589&amp;ptid=2252759" target="_blank">eilot 发表于 2026-4-16 18:48</a>
+
+前文也有人提到，浣熊市剛來到時，是有有特別卡或稍為不流暢感覺
+
+可能是這部份原本是想做開放區域但最後大 ...</blockquote>
+穿山甲(琥珀眼)到底说了什么(goris队长托我带句话)
+
