@@ -2331,3 +2331,11 @@ Q6~RAYJ7MS7UP~_Y@(%N@3J_tmb.jpg
 
 叙事上没必要搞两次假爹这种展开，而且官网文字也说了是父亲<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duo_wolf  
+##### 1297#       发表于 2026-4-20 13:44
+
+我反向瞎想一个哦：0其实是黑的，暗码和3算不上多好，但也不是全黑，宁梦的出生是他搞的，橘前辈也是被他弄成现在这样的，4背叛以为是暗码作恶其实都是0独走，这集开头高层和3说要阻止的其实是要阻止0继续这么干下去，最终BOSS是0<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
