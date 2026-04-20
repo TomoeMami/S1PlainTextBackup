@@ -2082,3 +2082,13 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 导演cho yonghee确实是韩国人不是日本人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  57042711  
+##### 572#       发表于 2026-4-20 09:27
+
+这vr训练有点东西啊，要全完美还是得费点劲…还好白金需要的奖杯只需要达成主目标<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
