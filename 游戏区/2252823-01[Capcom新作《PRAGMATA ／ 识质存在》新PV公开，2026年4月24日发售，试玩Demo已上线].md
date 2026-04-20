@@ -2480,3 +2480,24 @@ https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 
 甚至还没搞明白热量系统在哪里看，打出处决都随缘的
 
+
+*****
+
+####  serj005  
+##### 606#       发表于 2026-4-20 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69512577&amp;ptid=2252823" target="_blank">mai6696 发表于 2026-4-20 16:06</a>
+这游戏有一点难受的就是无法保证拿到什么补给，导致我一直带的都是比较通用的被动。
+
+带10米内枪械威力上升 ...</blockquote>
+模组感觉只是和出击装备搭配的，实际推图都是捡到啥用啥。更大的作用可能是某些红门关卡用初始装备组一套bd可以碾过去，红门门口基本都有整备点应该就是这么设计出来的。
+另外资源没必要省，demo的时候已经发现这游戏和生化一样有动态难度设计了，资源用完了会发现全场到处都是可以捡的东西。
+
+*****
+
+####  sgssk  
+##### 607#       发表于 2026-4-20 16:31
+
+就boss战需要考虑下骇入节点用太快，什么多动症都要吃我静滞网和宕机节点。武器本身完全是用不完的，经常战点打完一看房间四周掉了三四把枪<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+另外激光不是全距离等伤害吗
+
