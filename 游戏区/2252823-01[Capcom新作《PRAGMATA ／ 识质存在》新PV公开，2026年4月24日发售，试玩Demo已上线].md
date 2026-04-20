@@ -2166,3 +2166,22 @@ NS2版还挺流畅，也是有点糊</blockquote>
 这在一个全新游戏非常难得.</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有的，键盘按净化卡手
 
+
+*****
+
+####  RStocking  
+##### 579#       发表于 2026-4-20 12:15
+
+刷了会视频，不止我一个觉得阿舱的训练关卡畜生，那没事了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ——啧  
+##### 580#       发表于 2026-4-20 12:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69511420&amp;ptid=2252823" target="_blank">adw667 发表于 2026-4-20 12:09</a>
+有的，键盘按净化卡手</blockquote>
+还真是，这个E不要蓄力的话还行，蓄力的话我都按不过来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
