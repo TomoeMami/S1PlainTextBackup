@@ -2129,3 +2129,19 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 我玩起来有种老忍龙的公式解题法，观察敌人--计算敌人攻击空隙--走位寻找安全输出点--连连看（蓄力吸魂）--释放终结技打出大伤害（吸魂释放）--跑位等待下一个循环
 
+
+*****
+
+####  Schwarzess  
+##### 576#       发表于 2026-4-20 11:03
+
+<img src="https://img.stage1st.com/forum/202604/20/110241kv1z9t9x2z1x0clx.jpg" referrerpolicy="no-referrer">
+
+<strong>1000013309.jpg</strong> (380.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-20 11:02 上传
+
+可爱捏。<img src="https://static.stage1st.com/image/smiley/normal/037.gif" referrerpolicy="no-referrer">
+
