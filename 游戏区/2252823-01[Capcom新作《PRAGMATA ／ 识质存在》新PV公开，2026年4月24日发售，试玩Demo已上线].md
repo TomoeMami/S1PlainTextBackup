@@ -2369,3 +2369,13 @@ ps5有日配中字吗？
 https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 父爱如山<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  何然  
+##### 599#       发表于 2026-4-20 15:59
+
+才100万吗，我还以为这玩意儿起码首周500万呢
+
+看来我想多了
+
