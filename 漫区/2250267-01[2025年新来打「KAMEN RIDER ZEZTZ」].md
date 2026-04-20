@@ -2370,3 +2370,15 @@ Q6~RAYJ7MS7UP~_Y@(%N@3J_tmb.jpg
 看到隔壁的帖子愣了一下，点开发帖记录之后释怀了</blockquote>
 柠檬演技可以了，比歌查德那个表情管理都做不明白的强多了
 
+
+*****
+
+####  浅川雏羽  
+##### 1301#       发表于 2026-4-20 15:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69512278&amp;ptid=2250267" target="_blank">洛克萨斯 发表于 2026-4-20 15:18</a>
+柠檬演技可以了，比歌查德那个表情管理都做不明白的强多了</blockquote>
+三条z的演员平均业务水平比较高，女主算是这群人里偏菜的，但是干死gotchard剧组还是毫无压力<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我一开始震撼于那贴居然用gotchard踩三条z，点开发帖记录直接笑出声
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
