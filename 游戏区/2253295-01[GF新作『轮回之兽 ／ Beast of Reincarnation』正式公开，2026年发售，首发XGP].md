@@ -46,3 +46,17 @@ PKG版本日より予約開始🎉🎊🎉
 <img src="https://p.sda1.dev/32/ea4ae69b23df2c6e53af400e5ff77335/1000165135.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/a01ae583012c476daa878986c1d81eda/1000165138.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 188#         楼主| 发表于 2026-4-21 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69510890&amp;ptid=2253295" target="_blank">Piano-Forest 发表于 2026-4-20 10:50</a>
+
+【轮回之兽现已开启预购】 https://b23.tv/9o5q3Y1
+
+https://store.steampowered.com/app/2001760/</blockquote>
+PSN页面
+[https://store.playstation.com/zh-hant-hk/concept/10014719/](https://store.playstation.com/zh-hant-hk/concept/10014719/)
+
