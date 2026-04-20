@@ -2677,3 +2677,11 @@ re9研究所的素材当然用的re3啊<img src="https://static.stage1st.com/ima
 
 这么一看山姆和休搞不好真是表兄弟 【龙哥道别，戴安娜看山姆择菜，杰米和信长喝酒，JP蛟表忠心】 [https://www.bilibili.com/video/BV18adnB7EWG/](https://www.bilibili.com/video/BV18adnB7EWG/)
 
+
+*****
+
+####  jacket  
+##### 625#       发表于 2026-4-21 07:45
+
+月球公司发宠物只有猫鸟鼠可选，似乎没有狗党
+
