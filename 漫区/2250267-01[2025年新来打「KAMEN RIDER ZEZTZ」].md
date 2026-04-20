@@ -2287,3 +2287,47 @@ Q6~RAYJ7MS7UP~_Y@(%N@3J_tmb.jpg
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  饭冢武也  
+##### 1295#       发表于 2026-4-20 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68875716&amp;ptid=2250267" target="_blank">饭冢武也 发表于 2025-12-15 11:56</a></blockquote>
+还真是EVA<img src="https://static.stage1st.com/image/smiley/carton2017/055.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TOYSTORY  
+##### 1296#       发表于 2026-4-20 13:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69510726&amp;ptid=2250267" target="_blank">失落之翼 发表于 2026-4-20 10:29</a>
+
+话说0是没说话被当成默认吧？不会到后面是牢莫的一厢情愿？</blockquote>
+
+<img src="https://img.stage1st.com/forum/202604/20/133329ikquxbxx6zz4jj7j.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (91.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-20 13:33 上传
+
+<img src="https://img.stage1st.com/forum/202604/20/133330i4hvo88h8upc8ao5.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (683.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-20 13:33 上传
+
+<img src="https://img.stage1st.com/forum/202604/20/133333sf1py7kwazmheadd.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (542.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-20 13:33 上传
+
+叙事上没必要搞两次假爹这种展开，而且官网文字也说了是父亲<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
