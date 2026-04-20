@@ -2555,3 +2555,14 @@ Re9 的最终关素材想必就是这里来的
 
 re9研究所的素材当然用的re3啊<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  魔法酪饼  
+##### 614#       发表于 2026-4-20 19:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69513346&amp;ptid=2252823" target="_blank">灼热的小市民 发表于 2026-4-20 18:31</a>
+
+这地图设计还有人说好的，没有一点记忆点扫描如同鸡肋开了也不知道怎么去。篝火设计也是一坨拖沓的一b，强 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 喜欢这个战斗的话试试狂战士、女武神和狂战赴死
+
