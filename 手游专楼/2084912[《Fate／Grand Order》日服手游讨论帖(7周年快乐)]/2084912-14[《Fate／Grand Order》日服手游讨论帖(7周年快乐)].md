@@ -111,3 +111,40 @@ strange fake 的从者有卫星么？会上谁？
 
 现在这可咋办....我不想回去刷狗粮啊
 
+
+*****
+
+####  格林卡罗尔  
+##### 20653#       发表于 2026-4-18 04:49
+
+我说这次联动御主落地会比从者多<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 20654#       发表于 2026-4-18 12:58
+
+310石了，没想到竟然能长草到让我攒到这么多石头<img src="https://static.stage1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 20655#       发表于 2026-4-18 19:46
+
+梦火终于吃完了....这下是真的完球了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+平常每日长草期就刷9次冠位....就这也遭不住梦火的消耗
+
+现在这可咋办....我不想回去刷狗粮啊
+
+*****
+
+####  gpx234mqx  
+##### 20656#       发表于 2026-4-20 10:37
+
+<blockquote>khxooo 发表于 2026-4-17 01:29
+那么来个技能转职介，来个弓转仇，然后技能组换了，只是如果这样又要乳青就是了 ...</blockquote>
+3回合变身仇
+
+和糖果蔓藤一样就行
+
