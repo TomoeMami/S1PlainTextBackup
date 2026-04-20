@@ -2511,3 +2511,11 @@ https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 
 Pragmata料少了其实可以这么想，一方面Capcom对本家顶级IP的那几个3A也是顶级“资源管理”，Pragmata作为一个实验性新IP这样也正常。其次中国区定价这边可能不太好看出来（因为国区大部分3A价格没个准），但以一般统一的美区定价来看，Pragmata是60刀游戏，作为同期Capcom游戏对比，怪猎物语3的售价是绝大多数3A标准的70刀，如果要把MHS3和Pragmata同时拿出去问，可能大部分人第一反应都是Pragmata更像3A。以2A标准来看，目前的销量和口碑显然是非常不错的。
 
+
+*****
+
+####  Firvox  
+##### 609#       发表于 2026-4-20 17:20
+
+话说这作是不是还承担了一点资源素材库的作用，这么多新捏的资产不可能就用这一部吧？科幻题材，外骨骼动力甲，最终BOSS的样子，奶一个失落的星球要出续作了<img src="https://static.stage1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
+
