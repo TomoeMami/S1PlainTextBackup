@@ -2664,3 +2664,16 @@ re9研究所的素材当然用的re3啊<img src="https://static.stage1st.com/ima
 
 作为休闲玩家我感觉游戏体验非常愉快，快过左右互搏的生化9<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泰坦失足  
+##### 624#       发表于 2026-4-21 07:34
+
+向《Pragmata》导演Cho Yonghee致敬（  @SADOUKUJIRA )！
+
+他曾担任《合金装备崛起：复仇》的设计师和《尼尔：机械纪元》的武器设计师。《Pragmata》是他首次担任导演，他和卡普空联手打造了一部杰作！
+[https://x.com/Genki_JPN/status/2046263459759915172](https://x.com/Genki_JPN/status/2046263459759915172)
+
+这么一看山姆和休搞不好真是表兄弟 【龙哥道别，戴安娜看山姆择菜，杰米和信长喝酒，JP蛟表忠心】 [https://www.bilibili.com/video/BV18adnB7EWG/](https://www.bilibili.com/video/BV18adnB7EWG/)
+
