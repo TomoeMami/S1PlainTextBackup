@@ -2175,3 +2175,13 @@ Q6~RAYJ7MS7UP~_Y@(%N@3J_tmb.jpg
 
 塑料感拉满还突出来的小玩具毁了皮套啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RStocking  
+##### 1286#       发表于 2026-4-20 10:24
+
+这一代玩具卖换色面板也能赚真是让万代吃爽了啊。
+
+33集左右最终登场的话打西格么，感觉咖位低了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
