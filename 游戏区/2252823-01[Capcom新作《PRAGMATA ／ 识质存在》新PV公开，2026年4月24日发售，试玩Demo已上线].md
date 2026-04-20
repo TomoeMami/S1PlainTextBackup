@@ -2356,3 +2356,16 @@ ps5有日配中字吗？
 
 但是这游戏也就前两张箱庭有点味道 第一章还是开胃菜级别。第三章开始就一路下滑，基本当成线性过关了
 
+
+*****
+
+####  哎哟卧槽了  
+##### 598#       发表于 2026-4-20 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69512279&amp;ptid=2252823" target="_blank">Piano-Forest 发表于 2026-4-20 15:18</a>
+
+发售2日全球销量已突破100万份
+
+https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
+父爱如山<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -2382,3 +2382,11 @@ Q6~RAYJ7MS7UP~_Y@(%N@3J_tmb.jpg
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  RStocking  
+##### 1302#       发表于 2026-4-20 15:45
+
+突然想起来，ZZZ的胶囊和小莫遭遇的灾难是对应的，但是小莫的灾难是牢零的梦魇造成的，所以胶囊里装的到底是小莫的梦还是牢零的梦？
+
