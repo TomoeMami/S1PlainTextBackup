@@ -2214,3 +2214,58 @@ NS2版还挺流畅，也是有点糊</blockquote>
 
 这样2代就是百合对抗溺爱老爹，再来个真boss，大团圆包饺子
 
+
+*****
+
+####  魔法酪饼  
+##### 583#       发表于 2026-4-20 13:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 真就这么多人觉得这战斗节奏很好吗？还是说我玩了个假的？
+
+
+*****
+
+####  Andariel  
+##### 584#       发表于 2026-4-20 13:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">战斗节奏就是很好呀
+每种敌人也都有优势解法，但同时不想倒腾装备硬杀也能杀
+说真的玩游戏找到适合自己的很重要
+感觉不喜欢没必要硬玩
+
+就像我不打格斗但是我也不会问真有这么多人觉得街霸6很好吗（
+
+*****
+
+####  Bani82  
+##### 585#       发表于 2026-4-20 13:14
+
+战斗节奏很好啊，不过主武器弹药数量确实太少了
+
+*****
+
+####  x分裂者  
+##### 586#       发表于 2026-4-20 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69510715&amp;ptid=2252823" target="_blank">voldovenom 发表于 2026-4-20 10:27</a>
+披着射击皮的动作游戏，射击如果看成combo的最后终结那一下，那逻辑就理顺了。
+
+我玩起来有种老忍龙的公式 ...</blockquote>
+也有纯战斗爽的build，插上完美闪避自动侵入加上侵入完成恢复子弹两个核心插件，闪完马上有子弹，怪多的时候直接游龙<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  x分裂者  
+##### 587#       发表于 2026-4-20 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69511700&amp;ptid=2252823" target="_blank">Bani82 发表于 2026-4-20 13:14</a>
+战斗节奏很好啊，不过主武器弹药数量确实太少了</blockquote>
+后期有build可以玩无限火力
+
+*****
+
+####  卡拉德利姆  
+##### 588#       发表于 2026-4-20 13:16
+
+服务器有最后一发几率保存和增伤两个插件 一把枪清一个点是肯定够的
+
