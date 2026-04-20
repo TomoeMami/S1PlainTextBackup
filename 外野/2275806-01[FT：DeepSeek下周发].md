@@ -4896,3 +4896,15 @@ ai这个行当，砸钱不一定能出效果
 
 热更新不就是发布么，效果不理想就不正式通知了而已
 
+
+*****
+
+####  zy450  
+##### 445#       发表于 2026-4-21 07:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69514456&amp;ptid=2275806" target="_blank">StarForceTi 发表于 2026-4-21 00:39</a>
+热更新不就是发布么，效果不理想就不正式通知了而已</blockquote>
+等的是api发布
+
+—— 来自 Xiaomi 24031PN0DC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
