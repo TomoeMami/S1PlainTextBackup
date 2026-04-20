@@ -2390,3 +2390,11 @@ Q6~RAYJ7MS7UP~_Y@(%N@3J_tmb.jpg
 
 突然想起来，ZZZ的胶囊和小莫遭遇的灾难是对应的，但是小莫的灾难是牢零的梦魇造成的，所以胶囊里装的到底是小莫的梦还是牢零的梦？
 
+
+*****
+
+####  milky658  
+##### 1303#       发表于 2026-4-20 15:49
+
+EXDREAM新创华暂定译名“超梦”，万津莫也要逆袭了？全TM是山寺宏一的阴谋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
