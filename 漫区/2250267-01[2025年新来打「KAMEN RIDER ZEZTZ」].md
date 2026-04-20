@@ -2359,3 +2359,14 @@ Q6~RAYJ7MS7UP~_Y@(%N@3J_tmb.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我感觉人类方真正的敌人果然还是梦魇，0应该是为了真正击败梦魇才要研发zzz系统的。现在看来莫妈应该是外星人无疑了，到现在还在藏妈的信息我是真没想到，下一集应该要给一点了吧
 
+
+*****
+
+####  洛克萨斯  
+##### 1300#       发表于 2026-4-20 15:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69511623&amp;ptid=2250267" target="_blank">浅川雏羽 发表于 2026-4-20 12:53</a>
+
+看到隔壁的帖子愣了一下，点开发帖记录之后释怀了</blockquote>
+柠檬演技可以了，比歌查德那个表情管理都做不明白的强多了
+
