@@ -4819,3 +4819,24 @@ ai这个行当，砸钱不一定能出效果
 
 早盘已入蓝色光标和每日互动，看看本周是否能吃到肉，换点TOKEN
 
+
+*****
+
+####  oopsoops  
+##### 437#       发表于 2026-4-20 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69503781&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-4-18 10:38</a>
+看有up评论区自称内线的说是20号发</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">被开除了吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  tk553521  
+##### 438#       发表于 2026-4-20 12:28
+
+鲸鱼啊你倒是醒醒啊
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
