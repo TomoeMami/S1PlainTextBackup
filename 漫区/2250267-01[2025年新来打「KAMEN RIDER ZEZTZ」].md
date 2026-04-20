@@ -2112,3 +2112,28 @@ Q6~RAYJ7MS7UP~_Y@(%N@3J_tmb.jpg
 
 —— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  挺好的  
+##### 1279#       发表于 2026-4-20 08:26
+
+5月2发售，真就33集登场啊
+
+*****
+
+####  离心  
+##### 1280#       发表于 2026-4-20 08:30
+
+秩序出场还是太晚了，没过几集最终就出场了啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Alicest  
+##### 1281#       发表于 2026-4-20 08:33
+
+秩序其实就是提供一个对橘前辈的特解吧
+
