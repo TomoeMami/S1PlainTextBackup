@@ -2599,3 +2599,15 @@ re9研究所的素材当然用的re3啊<img src="https://static.stage1st.com/ima
 
 狂月是不是啥都重置，那一周目应该直奔通关，不管支线，二周目再狂月刷？
 
+
+*****
+
+####  57042711  
+##### 619#       发表于 2026-4-20 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69512647&amp;ptid=2252823" target="_blank">何然 发表于 2026-4-20 16:16</a>
+想那么多其实没啥卵用，我带着2瓶血+三个属性都只升级到刚6块一级+副武器只有散弹和狙击满级也轻松通关 ...</blockquote>
+热量要带那个加热量的破解才有感觉吧，而且敌人的热量也有差别的…比如说那个隐身的怪就很容易过热<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
