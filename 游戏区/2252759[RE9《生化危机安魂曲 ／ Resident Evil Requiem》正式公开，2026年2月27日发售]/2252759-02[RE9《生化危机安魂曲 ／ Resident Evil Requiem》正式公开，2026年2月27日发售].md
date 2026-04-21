@@ -9432,3 +9432,19 @@ zeno本人出場次數比victor少，而且連戰鬥都沒有
 
 还有安人的事情<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 2281#       发表于 2026-4-21 10:14
+
+ 本帖最后由 mai6696 于 2026-4-21 10:16 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69463278&amp;ptid=2252759" target="_blank">蒋公卖萌 发表于 2026-4-9 16:51</a>
+
+为啥最后里昂要把维克多叫nemsis，难道说维克多是追踪者？</blockquote>
+追踪者是3代那只改造暴君的外号，而他的正式名称，或者说它身上使用的技术（寄生体+暴君）是nemsis。
+
+为什么说生化9全是素材复用？因为连最终BOSS都是从三代搬来的。
+
+只不过你昂哥不需要推箱子给电磁炮充电，直接小斧子就给它办了。
+
