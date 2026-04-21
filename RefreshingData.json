@@ -10656,12 +10656,12 @@
     "update": false
   },
   "2129517": {
-    "totalreply": 1232,
+    "totalreply": 1233,
     "title": "[舞冰的祈愿 动画化 2025年1月]",
     "newtitle": "[金牌得主 动画化 2025年1月]",
-    "lastedit": 1776352936,
+    "lastedit": 1776792729,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2088649": {
@@ -12870,10 +12870,10 @@
     "update": false
   },
   "2179402": {
-    "totalreply": 2297,
+    "totalreply": 2298,
     "title": "[《杀戮尖塔2》公开，延期至2026年3月Steam EA发售]",
     "newtitle": "[《杀戮尖塔2》公开，2026年3月5日Steam EA发售]",
-    "lastedit": 1776787692,
+    "lastedit": 1776792850,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13704,7 +13704,7 @@
     "lastedit": 1776790980,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2278188": {
     "totalreply": 61,
@@ -14580,10 +14580,10 @@
     "update": false
   },
   "2278608": {
-    "totalreply": 60,
+    "totalreply": 63,
     "title": "[好多年没关注模拟器了 有个同事买了个贴屏按键手柄 好奇模拟器现在发展到什么程度了]",
     "newtitle": "[好多年没关注模拟器了 有个同事买了个贴屏按键手柄 好奇模拟器现在发展到什么程度了]",
-    "lastedit": 1776766331,
+    "lastedit": 1776792851,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15894,10 +15894,10 @@
     "update": false
   },
   "2279042": {
-    "totalreply": 201,
+    "totalreply": 202,
     "title": "[所以企鹅花了大价钱的王者荣耀世界暴死了？]",
     "newtitle": "[所以企鹅花了大价钱的王者荣耀世界暴死了？]",
-    "lastedit": 1776787096,
+    "lastedit": 1776792611,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15926,7 +15926,7 @@
     "newtitle": "[“装甲尼禄”起诉B站up主失败，被反诉败诉，被判露脸道歉。]",
     "lastedit": 1776533414,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2279077": {
@@ -17114,6 +17114,15 @@
     "newtitle": "[魔神坛斗士正统续篇TV动画 2026年1月]",
     "lastedit": 1776792387,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2279369": {
+    "totalreply": 41,
+    "title": "[同事去德国出差，想让他带手表怎么操作？]",
+    "newtitle": "[同事去德国出差，想让他带手表怎么操作？]",
+    "lastedit": 1776792614,
+    "category": "外野",
     "active": true,
     "update": false
   }
