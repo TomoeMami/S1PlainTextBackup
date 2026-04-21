@@ -646,3 +646,25 @@ https://www.nintendo.com/jp/games/switch2/aadla/index.html
 
 虽然打鲑鱼也不是不行，但还是希望能加点新的势力多点新鲜度
 
+
+*****
+
+####  Tachikoma88  
+##### 69#       发表于 2026-4-21 21:49
+
+怎么看着还真有点怪物猎人的感觉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hl氏  
+##### 70#       发表于 2026-4-21 21:52
+
+看了PV看了价格心凉了，就是单独卖的加量打工，任天堂这两年活不起了吗，DLC糊弄游戏糊弄
+
+*****
+
+####  多诺  
+##### 71#       发表于 2026-4-21 21:55
+
+港服379，最贵了吧
+
