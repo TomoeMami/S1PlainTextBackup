@@ -849,3 +849,25 @@ gemini为主，不过我是肉眼校对+配图调整了不少内容
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  绿冰  
+##### 89#         楼主| 发表于 2026-4-22 00:21
+
+<blockquote>傾慕桃子 发表于 2026-4-21 22:53
+能别pve限定防水工作服了吗，那么多潮衣搭配就不能用在打合作模式吗</blockquote>
+这次自己捡垃圾去组衣服吧233
+
+*****
+
+####  laosai13  
+##### 90#       发表于 2026-4-22 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69519025&amp;ptid=2253488" target="_blank">shirolin 发表于 2026-4-21 22:58</a>
+
+gemini为主，不过我是肉眼校对+配图调整了不少内容
+
+—— 来自 S1Fun</blockquote>
+请问是整段视频输入还是分块依次输入？
+
