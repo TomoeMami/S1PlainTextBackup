@@ -776,3 +776,46 @@ https://www.nintendo.com/jp/games/switch2/aadla/index.html
 还有我也没玩过正作，求教一下“打工”玩法是什么 ...</blockquote>
 4人合作刷怪，随机上强度
 
+
+*****
+
+####  shirolin  
+##### 82#       发表于 2026-4-21 22:52
+
+快速做了个文字分析，有错漏请指正
+
+<img src="https://img.stage1st.com/forum/202604/21/225150utgrdzzzesg0gsii.jpg" referrerpolicy="no-referrer">
+
+<strong>01391abf-6869-4bb2-9dfa-14fe83e13fca.jpg</strong> (2.79 MB, 下载次数: 0)
+
+下载附件
+
+2026-4-21 22:51 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  傾慕桃子  
+##### 83#       发表于 2026-4-21 22:53
+
+能别pve限定防水工作服了吗，那么多潮衣搭配就不能用在打合作模式吗
+
+
+*****
+
+####  raii  
+##### 84#       发表于 2026-4-21 22:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69518996&amp;ptid=2253488" target="_blank">shirolin 发表于 2026-4-21 22:52</a>
+
+快速做了个文字分析，有错漏请指正</blockquote>
+什么AI，视频解析能力这么强啦
+
+*****
+
+####  墨染白泉  
+##### 85#       发表于 2026-4-21 22:56
+
+在想数字版还是实体版，有联机内容
+
