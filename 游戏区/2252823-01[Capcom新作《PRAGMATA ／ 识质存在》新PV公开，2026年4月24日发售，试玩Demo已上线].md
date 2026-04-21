@@ -2759,3 +2759,20 @@ re9研究所的素材当然用的re3啊<img src="https://static.stage1st.com/ima
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">玩到第二区要去开信号塔，有个boss区好几拨小兵，上面飞的锁你，自爆飞机，地上追着砍你的，还有大头娃娃又是龙车又是beam的。。第一次这个地方死了3次才过。。
 
+
+*****
+
+####  mai6696  
+##### 633#       发表于 2026-4-21 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69515274&amp;ptid=2252823" target="_blank">chris1987 发表于 2026-4-21 09:45</a>
+
+玩到第二区要去开信号塔，有个boss区好几拨小兵，上面飞的锁你，自爆飞机，地上追着砍你的，还有大头娃娃又 ...</blockquote>
+不知道你有没有拿到一个被动技能，处决伤害可以扩散的。
+
+还有残血的时候出紫色方格的那个，也可以在基地里学。
+
+敌人多的时候逮住一个打出处决就可以直接群伤。
+
+后面更是有十字键↓的蓝色枪，不管是假身还是防护罩都可以保证安全输出。
+
