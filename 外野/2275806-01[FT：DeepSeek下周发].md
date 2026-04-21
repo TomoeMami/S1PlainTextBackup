@@ -4977,3 +4977,33 @@ GPT-IMAGE2 比香蕉pro好玩</blockquote>
 
 image2在灰度吧，有什么办法体验到么？oai的会员早就不续了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  88316756  
+##### 452#       发表于 2026-4-21 21:54
+
+ 本帖最后由 88316756 于 2026-4-21 21:59 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69518721&amp;ptid=2275806" target="_blank">chuchoselph 发表于 2026-4-21 21:45</a>
+image2在灰度吧，有什么办法体验到么？oai的会员早就不续了</blockquote>
+不说已经全面开放了吗 ，x上看了一下，细节确实无敌了，人像倒是还好，但是像门神设定这种这种复杂的之前大香蕉绝对做不出来。
+
+门神
+<img src="https://p.sda1.dev/32/6ed636955556ebe5ddeb1bae49baeb1c/image.jpg" referrerpolicy="no-referrer">
+
+设定
+<img src="https://p.sda1.dev/32/f7dc0220d554f06bec9bca1f37b13aba/image.jpg" referrerpolicy="no-referrer">
+
+人像
+<img src="https://p.sda1.dev/32/a6b930462423d04f6b272f429a903851/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Sza  
+##### 453#       发表于 2026-4-21 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69518703&amp;ptid=2275806" target="_blank">88316756 发表于 2026-4-21 21:40</a>
+
+确实不错，比大香蕉更让人惊喜， 要是弄到酒馆文生图的话夯爆了。</blockquote>
+什么2D游戏这么费显卡，我跑不动不玩了<img src="https://static.stage1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
