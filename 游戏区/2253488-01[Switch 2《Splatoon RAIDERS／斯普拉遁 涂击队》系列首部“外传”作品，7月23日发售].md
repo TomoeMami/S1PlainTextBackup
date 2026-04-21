@@ -735,3 +735,21 @@ https://www.nintendo.com/jp/games/switch2/aadla/index.html
 
 最好有点新玩意，天野你说呢<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  raii  
+##### 78#       发表于 2026-4-21 22:26
+
+人森没有NS2升级都能卖60刀这东西卖50刀，所以不要期待多高了
+
+比dlc30刀贵点比正作70刀便宜点，就这个体量了，当个调剂就行
+
+
+*****
+
+####  Aeroblast  
+##### 79#       发表于 2026-4-21 22:30
+
+仔细一想3的pvp玩了那么久，dlc和新作都该无脑买来尝尝咸淡。总不会像纯打工那么无聊。
+
