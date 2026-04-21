@@ -2693,3 +2693,20 @@ re9研究所的素材当然用的re3啊<img src="https://static.stage1st.com/ima
 
 我从哪里看来这个韩国人年轻的印象 这么一看也是老兵了
 
+
+*****
+
+####  何然  
+##### 627#       发表于 2026-4-21 09:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69514513&amp;ptid=2252823" target="_blank">hkguty 发表于 2026-4-21 01:10</a>
+
+感觉有点捞，这方面居然没学生化那样继承，全部都不继承那一周目完全没有做收集的必要 ...</blockquote>
+反正很搞，豪华版送的衣服都太丑了本来说二周目试试其他好看的
+
+打开更衣室发现一共还是5件我就惊呆了
+
+看起来一周目只是个单纯的试玩版，学习下基础系统，二周目再来认真爽的
+
+狂月难度确实玩起来肾上腺素飙升非常愉快
+
