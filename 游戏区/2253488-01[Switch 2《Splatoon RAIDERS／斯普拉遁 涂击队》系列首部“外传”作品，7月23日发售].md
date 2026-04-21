@@ -894,3 +894,18 @@ gemini为主，不过我是肉眼校对+配图调整了不少内容
 
 — from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  星野航  
+##### 93#       发表于 2026-4-22 06:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69518943&amp;ptid=2253488" target="_blank">嘉术2015 发表于 2026-4-21 23:37</a>
+
+没看懂玩法，这算是farcry like吗
+
+还有我也没玩过正作，求教一下“打工”玩法是什么 ...</blockquote>
+sp2开始的一个pve模式，4人组队，分三轮击杀特定敌人获取数量限定的奖励，达标过关，不达标失败
+
+模式内的敌人是设定上的群居鲑鱼，玩家击杀特定的大型种类鲑鱼收获金色鲑鱼卵作为任务目标
+
