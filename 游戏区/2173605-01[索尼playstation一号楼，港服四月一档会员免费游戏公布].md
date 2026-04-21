@@ -22,3 +22,13 @@
 
 。。。我就日了，和3代一样只给英文？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  闽明  
+##### 630#       发表于 2026-4-21 11:20
+
+好像日服也没有3和4，只有1和2
+
+PS4的时候就只在美服上看到3
+
