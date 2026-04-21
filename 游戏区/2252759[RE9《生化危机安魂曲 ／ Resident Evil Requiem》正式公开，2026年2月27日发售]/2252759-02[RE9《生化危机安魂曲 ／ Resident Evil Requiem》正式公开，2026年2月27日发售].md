@@ -9468,3 +9468,17 @@ RACOONCITY！
 
 啊~是情怀啦~是逝去的青春了！
 
+
+*****
+
+####  csolfans  
+##### 2283#       发表于 2026-4-22 01:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69519360&amp;ptid=2252759" target="_blank">metro 发表于 2026-4-22 01:12</a>
+我刚开始玩这贴不能沉~
+
+刚打到第一个大的转场</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">加油
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
