@@ -871,3 +871,14 @@ gemini为主，不过我是肉眼校对+配图调整了不少内容
 —— 来自 S1Fun</blockquote>
 请问是整段视频输入还是分块依次输入？
 
+
+*****
+
+####  小夜不见  
+##### 91#       发表于 2026-4-22 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69518946&amp;ptid=2253488" target="_blank">Aeroblast 发表于 2026-4-21 22:38</a>
+
+4人合作刷怪，随机上强度</blockquote>
+看那个武器换词条一样的就感觉是有点肉鸽的了吧
+
