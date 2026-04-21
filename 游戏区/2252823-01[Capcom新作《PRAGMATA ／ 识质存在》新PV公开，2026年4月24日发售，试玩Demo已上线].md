@@ -2936,3 +2936,30 @@ https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 —— 来自 鹅球 v3.3.96</blockquote>
 z只有钱，丢了就丢了
 
+
+*****
+
+####  bingo0716  
+##### 648#       发表于 2026-4-21 17:13
+
+23小时打完了，几乎是全收集，看了眼奖杯居然只有真结局和狂月没拿到，真结局让我缓缓再玩。
+
+战斗还是蛮好玩的，就是build感觉还缺口气，配技能半天打起来好像也没差多少，boss精英怪也实打实的做出了不少区别化，不至于像生9里昂篇那样一身子弹无boss可打。话说为何这个游戏要设计成枪打完就扔啊，我还是喜欢生化那种自己选枪捡资源比较有意思，不然每次回基地都要重新选一下枪和侵入模块就很烦。剧情还是希望能多做点两人之前情感的变化出来，不说让你做出TLOU那样的细腻，包括Diana跟8号的过去，8号跟博士的故事也应该多给点篇幅描写一下，甚至可以多写点，不然动机不够强烈，草草结局就很怪。
+
+*****
+
+####  adw667  
+##### 649#       发表于 2026-4-21 17:15
+
+<img src="https://img.stage1st.com/forum/202604/21/171137s6rd66wz7wbs0bwp.jpg" referrerpolicy="no-referrer">
+
+<strong>`O18P2)O`7I}P%(1~H3(26I_tmb.jpg</strong> (28.23 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-21 17:11 上传
+
+要是小祖宗有传奇累赘那个性能<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+别的不说，光是魔爆改成两格蓝就能启动然后持续回血都夯爆了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
