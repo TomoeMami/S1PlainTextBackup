@@ -550,3 +550,35 @@ splatoon这肉眼可见要做大，系列作都发展起来了，只希望野上
 
 Nintendo Today!公布了新PV，于7月23日发售，同时推出鱼浆帮的amiibo
 
+
+*****
+
+####  星野航  
+##### 62#       发表于 2026-4-21 21:17
+
+不赖，这PV很性感
+
+<img src="https://img.stage1st.com/forum/202604/21/221354k02j21tapv6hrofc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-21 21:13 上传
+
+这个发型选择不错，有那种熬在车间不洗头的班味儿了
+
+<img src="https://img.stage1st.com/forum/202604/21/221504a272gzrl5776qws7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (213.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-21 21:15 上传
+
+希望地图可以大一点，这么久了，美术素材应该重新积累起来了吧
+
+怎么敌人都是鲑鱼，有点单机版特化打工的味儿<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+风华这个amiibo不错<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
