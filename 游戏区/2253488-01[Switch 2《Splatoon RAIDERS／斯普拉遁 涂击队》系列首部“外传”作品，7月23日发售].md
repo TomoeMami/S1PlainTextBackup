@@ -638,3 +638,11 @@ https://www.nintendo.com/jp/games/switch2/aadla/index.html
 
 截个图
 
+
+*****
+
+####  Tachikoma88  
+##### 68#       发表于 2026-4-21 21:36
+
+虽然打鲑鱼也不是不行，但还是希望能加点新的势力多点新鲜度
+

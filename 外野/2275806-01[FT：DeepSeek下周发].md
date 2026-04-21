@@ -4948,3 +4948,32 @@ GPT-IMAGE2 比香蕉pro好玩<img src="https://static.stage1st.com/image/smiley/
 
 2026-4-21 19:00 上传
 
+
+*****
+
+####  88316756  
+##### 449#       发表于 2026-4-21 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69518001&amp;ptid=2275806" target="_blank">Lorraine_Kinney 发表于 2026-4-21 19:00</a>
+GPT-IMAGE2 比香蕉pro好玩</blockquote>
+<img src="https://p.sda1.dev/32/7a37e3dbf393e929af2886941740e028/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">  确实不错，比大香蕉更让人惊喜， 要是弄到酒馆文生图的话夯爆了。
+
+*****
+
+####  chronicle  
+##### 450#       发表于 2026-4-21 21:43
+
+<blockquote>88316756 发表于 2026-4-21 21:40
+确实不错，比大香蕉更让人惊喜， 要是弄到酒馆文生图的话夯爆了。</blockquote>
+我去 实时gal
+
+
+*****
+
+####  chuchoselph  
+##### 451#       发表于 2026-4-21 21:45
+
+image2在灰度吧，有什么办法体验到么？oai的会员早就不续了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
