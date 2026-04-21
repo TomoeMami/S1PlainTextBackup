@@ -9416,3 +9416,19 @@ zeno本人出場次數比victor少，而且連戰鬥都沒有
 可能是這部份原本是想做開放區域但最後大 ...</blockquote>
 穿山甲(琥珀眼)到底说了什么(goris队长托我带句话)
 
+
+*****
+
+####  refiver  
+##### 2280#       发表于 2026-4-21 10:06
+
+本来看剧情挺困的
+
+但是我得承认最后维克多大吼一声
+
+安！那！其！
+
+活活把我逗乐了
+
+还有安人的事情<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
