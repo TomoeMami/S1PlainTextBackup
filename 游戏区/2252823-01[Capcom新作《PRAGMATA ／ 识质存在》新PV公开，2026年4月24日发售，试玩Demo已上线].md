@@ -2881,3 +2881,13 @@ re9这种带着无限子弹打癫狂其实挺没乐趣的
 https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 <img src="https://p.sda1.dev/32/f97873220dbb74fcf5e0b0f1658e746e/1000165168.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 643#       发表于 2026-4-21 11:30
+
+保时捷精虫打死给什么东西<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
