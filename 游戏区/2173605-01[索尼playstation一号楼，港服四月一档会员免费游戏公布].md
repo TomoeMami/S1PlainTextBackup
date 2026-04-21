@@ -6,3 +6,19 @@
 
 无法连接到服务器。 (0.250c3417.1776721851.f470439a)复制代码
 
+
+*****
+
+####  ztkong  
+##### 629#       发表于 2026-4-21 10:56
+
+<img src="https://img.stage1st.com/forum/202604/21/105531ggk118ob874fok9t.jpg" referrerpolicy="no-referrer">
+
+<strong>5cfd82c0ab96411c593010db176c3454.jpg</strong> (126.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-21 10:55 上传
+
+。。。我就日了，和3代一样只给英文？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

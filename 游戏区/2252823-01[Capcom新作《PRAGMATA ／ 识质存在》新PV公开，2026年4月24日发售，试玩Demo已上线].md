@@ -2856,3 +2856,15 @@ re9这种带着无限子弹打癫狂其实挺没乐趣的
 还有残血的时候出紫色方格的那个，也可以在基地里 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">当时都没这些技能，后面死了两次去回头刷了个红区，升了几个级，然后再打过了。。
 
+
+*****
+
+####  医生狼多  
+##### 641#       发表于 2026-4-21 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69515508&amp;ptid=2252823" target="_blank">哎哟卧槽了 发表于 2026-4-21 10:32</a>
+【更新公告】
+
+我們已發布更新，正式為 PlayStation®5 Pro 新增對最新 PSSR（PlayStation 光譜超解析度） ...</blockquote>
+原来之前没有，我还以为是默认启动设置了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
