@@ -819,3 +819,15 @@ https://www.nintendo.com/jp/games/switch2/aadla/index.html
 
 在想数字版还是实体版，有联机内容
 
+
+*****
+
+####  shirolin  
+##### 86#       发表于 2026-4-21 22:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69519013&amp;ptid=2253488" target="_blank">raii 发表于 2026-4-21 22:55</a>
+什么AI，视频解析能力这么强啦</blockquote>
+gemini为主，不过我是肉眼校对+配图调整了不少内容
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
