@@ -32,3 +32,15 @@
 
 PS4的时候就只在美服上看到3
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 631#       发表于 2026-4-21 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69515806&amp;ptid=2173605" target="_blank">闽明 发表于 2026-4-21 11:20</a>
+好像日服也没有3和4，只有1和2
+
+PS4的时候就只在美服上看到3</blockquote>
+日服今天刚上的4，商店标着日文但是截图都是英语
+
