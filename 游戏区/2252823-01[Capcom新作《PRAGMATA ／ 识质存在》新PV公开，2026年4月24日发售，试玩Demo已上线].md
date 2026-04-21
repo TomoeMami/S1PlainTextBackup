@@ -2843,3 +2843,16 @@ re9这种带着无限子弹打癫狂其实挺没乐趣的
 
 —— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  chris1987  
+##### 640#       发表于 2026-4-21 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69515300&amp;ptid=2252823" target="_blank">mai6696 发表于 2026-4-21 09:49</a>
+
+不知道你有没有拿到一个被动技能，处决伤害可以扩散的。
+
+还有残血的时候出紫色方格的那个，也可以在基地里 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">当时都没这些技能，后面死了两次去回头刷了个红区，升了几个级，然后再打过了。。
+
