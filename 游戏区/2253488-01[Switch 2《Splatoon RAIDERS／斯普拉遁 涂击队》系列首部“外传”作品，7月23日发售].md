@@ -882,3 +882,15 @@ gemini为主，不过我是肉眼校对+配图调整了不少内容
 4人合作刷怪，随机上强度</blockquote>
 看那个武器换词条一样的就感觉是有点肉鸽的了吧
 
+
+*****
+
+####  martinoy  
+##### 92#       发表于 2026-4-22 03:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69519310&amp;ptid=2253488" target="_blank">小夜不见 发表于 2026-4-22 00:37</a>
+看那个武器换词条一样的就感觉是有点肉鸽的了吧</blockquote>
+一点都不肉鸽，每个时段武器是固定的，无非是每轮谁拿到区别。每轮真正随机要素只有涨潮还是退潮，其他都是可控的。甚至连续排的话，你的队友都是固定的
+
+— from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
