@@ -3064,3 +3064,17 @@ pssr在哪设置啊？还是自动开启？
 
 这保时捷有奖杯的呀，还好提前存盘了
 
+
+*****
+
+####  57042711  
+##### 661#       发表于 2026-4-22 00:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69518466&amp;ptid=2252823" target="_blank">shyso 发表于 2026-4-21 20:49</a>
+鼠标侵入还不顺手吗？你用用手柄就知道了
+
+我一开始用的手柄，换成鼠标破解速度飞起，手柄再快也得一格一格 ...</blockquote>
+可以按住对应按键不动一直走的，手柄破解也还行吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
