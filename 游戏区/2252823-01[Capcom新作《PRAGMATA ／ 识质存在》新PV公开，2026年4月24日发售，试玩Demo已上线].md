@@ -2904,3 +2904,14 @@ https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 —— 来自 鹅球 v3.3.96</blockquote>
 好像就是一些月丝
 
+
+*****
+
+####  魔法酪饼  
+##### 645#       发表于 2026-4-21 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69515360&amp;ptid=2252823" target="_blank">GMJ 发表于 2026-4-21 09:59</a>
+
+为什么游戏不能类似于编译着色器一样，让没性能的玩家选择把游戏开在后台挂个几小时把路径最终结果做个缓 ...</blockquote>
+那样就是最早的方案，开发的时候把光追结果烘培到贴图上，空中的光线用特效解决，缺点是基本没有场景互动性（流程中光线不能有变化），且光线变化的时候需要另外重做一套贴图。
+
