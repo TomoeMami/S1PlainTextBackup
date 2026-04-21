@@ -44,3 +44,14 @@ PS4的时候就只在美服上看到3
 PS4的时候就只在美服上看到3</blockquote>
 日服今天刚上的4，商店标着日文但是截图都是英语
 
+
+*****
+
+####  闽明  
+##### 632#       发表于 2026-4-21 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69515861&amp;ptid=2173605" target="_blank">袄_偶滴小乔 发表于 2026-4-21 11:28</a>
+
+日服今天刚上的4，商店标着日文但是截图都是英语</blockquote>
+哦，发帖的时候还用网页版看了一下PS+的经典游戏库没看到，搜了一下原名看到了，=日服的应该是有日文的，晚上回去下个看看，3还没上日服呢<img src="https://static.stage1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
