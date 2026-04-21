@@ -1042,3 +1042,37 @@ neo人物
 
 2026-4-21 13:03 上传
 
+
+*****
+
+####  eilot  
+##### 43#       发表于 2026-4-21 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69516331&amp;ptid=2279329" target="_blank">gpx234mqx 发表于 2026-4-21 13:03</a>
+
+但是还是没有</blockquote>
+感覺上
+
+古拉親衛隊另外那兩隻，可能會當成召喚獸出來
+
+界王神的跟班傑比度也沒有，但可能會用來合體?
+
+只是老巴達克小隊除了女性那位外，還有另一位角色
+
+*****
+
+####  eilot  
+##### 44#       发表于 2026-4-21 17:06
+
+<img src="https://img.stage1st.com/forum/202604/21/170536nin1mmdwip3ppiw2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (622.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-21 17:05 上传
+
+官網暫時只得27人，連GT杜和GT貝都分為兩人
+
+即是還有人未公佈?
+
