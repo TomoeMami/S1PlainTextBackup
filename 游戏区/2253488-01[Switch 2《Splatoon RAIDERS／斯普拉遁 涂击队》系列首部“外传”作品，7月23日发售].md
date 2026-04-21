@@ -582,3 +582,59 @@ Nintendo Today!公布了新PV，于7月23日发售，同时推出鱼浆帮的ami
 
 风华这个amiibo不错<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AEmpire  
+##### 63#       发表于 2026-4-21 21:24
+
+专注单人应该可以解放武器和技能设计了，之前要兼顾pvp总有点束手束脚，期待乌贼研究所的发挥吧 <img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绿冰  
+##### 64#         楼主| 发表于 2026-4-21 21:25
+
+https://www.nintendo.com/jp/games/switch2/aadla/index.html
+
+官网公开，数字版6480日元，实体版7480日元
+
+*****
+
+####  maomaoying  
+##### 65#       发表于 2026-4-21 21:28
+
+20个g，但是这pv没看出什么，后面有专场直面会吧应该
+
+*****
+
+####  u2deack  
+##### 66#       发表于 2026-4-21 21:29
+
+感觉原来是当dlc做的单独拿出来也不好意思卖全价，不过还没看出来具体玩什么，到时候再看看吧
+说是支持2-4人联机，还是能一起打工
+
+
+*****
+
+####  绿冰  
+##### 67#         楼主| 发表于 2026-4-21 21:30
+
+<img src="https://img.stage1st.com/forum/202604/21/213013plbdj938tzpj6ulj.png" referrerpolicy="no-referrer">
+
+<strong>14643617767780952.png</strong> (1.8 MB, 下载次数: 0)
+
+下载附件
+
+2026-4-21 21:30 上传
+
+<img src="https://img.stage1st.com/forum/202604/21/213019yzwullwyjn5wadsn.png" referrerpolicy="no-referrer">
+
+<strong>16104717767781242.png</strong> (1.5 MB, 下载次数: 0)
+
+下载附件
+
+2026-4-21 21:30 上传
+
+截个图
+
