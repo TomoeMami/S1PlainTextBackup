@@ -689,3 +689,27 @@ https://www.nintendo.com/jp/games/switch2/aadla/index.html
 看了PV看了价格心凉了，就是单独卖的加量打工，任天堂这两年活不起了吗，DLC糊弄游戏糊弄 ...</blockquote>
 不是 游戏都还没有发售怎么就开始贷款是DLC了
 
+
+*****
+
+####  clyde-wang  
+##### 74#       发表于 2026-4-21 22:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69518749&amp;ptid=2253488" target="_blank">hl氏 发表于 2026-4-21 21:52</a>
+
+看了PV看了价格心凉了，就是单独卖的加量打工，任天堂这两年活不起了吗，DLC糊弄游戏糊弄 ...</blockquote>
+光看PV就有不少升级，岛建元素了，这就DLC了？
+
+拓展IP玩法，也没什么不好的呀
+
+*****
+
+####  多诺  
+##### 75#       发表于 2026-4-21 22:14
+
+<blockquote>绿冰 发表于 2026-4-21 22:01
+目前最便宜的任天堂NS2游戏了吧，有实体版的
+
+应该就是50美元的游戏定位，日服只是因为游戏整体涨价了，才 ...</blockquote>
+说错编辑了。不过还是觉得贵，379怎么看也都是全价游戏了。一堆ns60刀游戏都329
+
