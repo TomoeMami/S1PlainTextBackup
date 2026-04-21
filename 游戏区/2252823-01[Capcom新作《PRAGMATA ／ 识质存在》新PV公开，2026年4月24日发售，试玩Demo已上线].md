@@ -2729,3 +2729,33 @@ re9研究所的素材当然用的re3啊<img src="https://static.stage1st.com/ima
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  GMJ  
+##### 630#       发表于 2026-4-21 09:38
+
+这个游戏不能双人玩么？一个人只管大叔走路闪避打手枪，一个只管小萝莉连连看，黑机关<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+另外，PS5港服没有中文配音？
+
+
+*****
+
+####  Chao  
+##### 631#       发表于 2026-4-21 09:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69514513&amp;ptid=2252823" target="_blank">hkguty 发表于 2026-4-21 01:10</a>
+
+感觉有点捞，这方面居然没学生化那样继承，全部都不继承那一周目完全没有做收集的必要 ...</blockquote>
+以前的动作游戏都是严格限制跨难度继承的，比如老生化4就是高难度不继承低难度的记录，像VANQUISH干脆就没有继承项目。无限火箭筒也是最高难度S通关才能拿到。像生化9那种拿点数换无限弹的方案，只能说现在玩家越来越娇贵了。
+
+这也是我说这个游戏很老派的原因之一，想获得乐趣的路径就是磨练技术。
+
+*****
+
+####  chris1987  
+##### 632#       发表于 2026-4-21 09:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">玩到第二区要去开信号塔，有个boss区好几拨小兵，上面飞的锁你，自爆飞机，地上追着砍你的，还有大头娃娃又是龙车又是beam的。。第一次这个地方死了3次才过。。
+
