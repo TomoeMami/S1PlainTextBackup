@@ -4932,3 +4932,19 @@ ai这个行当，砸钱不一定能出效果
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 448#       发表于 2026-4-21 19:00
+
+GPT-IMAGE2 比香蕉pro好玩<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202604/21/190029grgr8yrwwrydjtzg.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (302.81 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-21 19:00 上传
+
