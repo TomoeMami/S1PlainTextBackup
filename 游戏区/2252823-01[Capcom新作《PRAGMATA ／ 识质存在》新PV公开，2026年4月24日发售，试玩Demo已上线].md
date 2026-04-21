@@ -2923,3 +2923,16 @@ https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 
 够了啊，把主角去掉做烘焙贴图，，然后正式游戏的时候只要计算主角身上带着的光源影响就行了，其他敌方的直接读缓存贴图
 
+
+*****
+
+####  绯红残叶  
+##### 647#       发表于 2026-4-21 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69515882&amp;ptid=2252823" target="_blank">ParadiseMartyr 发表于 2026-4-21 11:30</a>
+
+保时捷精虫打死给什么东西
+
+—— 来自 鹅球 v3.3.96</blockquote>
+z只有钱，丢了就丢了
+
