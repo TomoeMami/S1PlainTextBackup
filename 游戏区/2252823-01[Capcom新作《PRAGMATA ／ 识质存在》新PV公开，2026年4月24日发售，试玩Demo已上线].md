@@ -2868,3 +2868,16 @@ re9这种带着无限子弹打癫狂其实挺没乐趣的
 我們已發布更新，正式為 PlayStation®5 Pro 新增對最新 PSSR（PlayStation 光譜超解析度） ...</blockquote>
 原来之前没有，我还以为是默认启动设置了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 642#         楼主| 发表于 2026-4-21 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69512279&amp;ptid=2252823" target="_blank">Piano-Forest 发表于 2026-4-20 15:18</a>
+
+发售2日全球销量已突破100万份
+
+https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
+<img src="https://p.sda1.dev/32/f97873220dbb74fcf5e0b0f1658e746e/1000165168.jpg" referrerpolicy="no-referrer">
+
