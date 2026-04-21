@@ -2805,3 +2805,16 @@ PS5打折或者便宜实体盘不知道要等多久
 以前的动作游戏都是严格限制跨难度继承的，比如老生化4就是高难度不继承低难度的记录，像VANQUISH干脆就没 ...</blockquote>
 是很老派，但是我觉得有些糟粕不必一定要很老派，哪怕他的制作人前身参与过的MGR，皮肤跟武器都是有继承的
 
+
+*****
+
+####  缺德猫  
+##### 637#       发表于 2026-4-21 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69512641&amp;ptid=2252823" target="_blank">Andariel 发表于 2026-4-20 16:15</a>
+
+这种真能500万那可真是以小博大了
+
+光荣看到又要哭了</blockquote>
+原价还是有难度的，但卡普空的游戏后面都是各种骨折，500W轻轻松松
+
