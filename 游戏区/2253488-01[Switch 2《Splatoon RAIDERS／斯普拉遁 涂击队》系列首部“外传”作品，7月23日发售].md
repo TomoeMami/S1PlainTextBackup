@@ -753,3 +753,26 @@ https://www.nintendo.com/jp/games/switch2/aadla/index.html
 
 仔细一想3的pvp玩了那么久，dlc和新作都该无脑买来尝尝咸淡。总不会像纯打工那么无聊。
 
+
+*****
+
+####  嘉术2015  
+##### 80#       发表于 2026-4-21 22:37
+
+没看懂玩法，这算是farcry like吗
+
+还有我也没玩过正作，求教一下“打工”玩法是什么
+
+
+*****
+
+####  Aeroblast  
+##### 81#       发表于 2026-4-21 22:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69518943&amp;ptid=2253488" target="_blank">嘉术2015 发表于 2026-4-21 22:37</a>
+
+没看懂玩法，这算是farcry like吗
+
+还有我也没玩过正作，求教一下“打工”玩法是什么 ...</blockquote>
+4人合作刷怪，随机上强度
+

@@ -55,3 +55,14 @@ PS4的时候就只在美服上看到3</blockquote>
 日服今天刚上的4，商店标着日文但是截图都是英语</blockquote>
 哦，发帖的时候还用网页版看了一下PS+的经典游戏库没看到，搜了一下原名看到了，=日服的应该是有日文的，晚上回去下个看看，3还没上日服呢<img src="https://static.stage1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  闽明  
+##### 633#       发表于 2026-4-21 22:39
+
+日服是日文的，这种老游戏就是这样了，港服基本没有中文就给英文
+<img src="https://p.sda1.dev/32/f9bb1b5f8ee512053d057a10f8c2ae36/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25102RKBEC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
