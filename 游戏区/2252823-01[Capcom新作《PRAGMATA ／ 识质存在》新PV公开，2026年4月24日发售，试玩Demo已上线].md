@@ -2710,3 +2710,22 @@ re9研究所的素材当然用的re3啊<img src="https://static.stage1st.com/ima
 
 狂月难度确实玩起来肾上腺素飙升非常愉快
 
+
+*****
+
+####  卡拉德利姆  
+##### 628#       发表于 2026-4-21 09:17
+
+绝大多数游戏里，豪华版送的皮都不如原皮好看
+生化9的格蕾丝除外<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  57042711  
+##### 629#       发表于 2026-4-21 09:24
+
+狂月难度不只是数值提升，敌人行动也变快了然后破解要求也变高，可惜敌人配置没变不然还是很有动力再打一次的<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
