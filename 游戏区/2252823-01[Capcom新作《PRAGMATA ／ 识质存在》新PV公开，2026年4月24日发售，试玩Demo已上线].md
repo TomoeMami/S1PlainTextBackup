@@ -3097,3 +3097,16 @@ pssr在哪设置啊？还是自动开启？
 7血通关<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后boss有点恶心了，感觉废掉了至少一半以上的武器特点，本来都是各种强控让你走格子，结果愣是没效果，体验就很一般，最后龟起来憋破解大招过的
 小怪也是类似思路，super面筋怪这种强免疫各种控的超级恶心
 
+
+*****
+
+####  ParadiseMartyr  
+##### 664#       发表于 2026-4-22 02:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69519408&amp;ptid=2252823" target="_blank">UmarIbnLaAhad 发表于 2026-4-22 01:52</a>
+7血通关最后boss有点恶心了，感觉废掉了至少一半以上的武器特点，本来都是各种强控让你走格子，结果愣是没 ...</blockquote>
+还好吧，绿色镇暴枪没法强控的也会积攒大量热量。
+而且你总不能是没去除黑泥直接打得吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
