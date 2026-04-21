@@ -2818,3 +2818,28 @@ PS5打折或者便宜实体盘不知道要等多久
 光荣看到又要哭了</blockquote>
 原价还是有难度的，但卡普空的游戏后面都是各种骨折，500W轻轻松松
 
+
+*****
+
+####  何然  
+##### 638#       发表于 2026-4-21 10:31
+
+游戏性的角度武器之类的玩意儿不继承其实挺好的
+
+re9这种带着无限子弹打癫狂其实挺没乐趣的
+
+只是服装这种不影响游戏性的玩意儿不继承真的太搞了
+
+*****
+
+####  哎哟卧槽了  
+##### 639#       发表于 2026-4-21 10:32
+
+【更新公告】
+
+我們已發布更新，正式為 PlayStation®5 Pro 新增對最新 PSSR（PlayStation 光譜超解析度）升級的支援。
+
+原來之前沒有<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
