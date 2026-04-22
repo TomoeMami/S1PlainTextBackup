@@ -5063,3 +5063,16 @@ image2在灰度吧，有什么办法体验到么？oai的会员早就不续了</
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  冤枉呐  
+##### 460#       发表于 2026-4-22 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69520018&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-4-22 09:14</a>
+
+谁不想急头白脸地忙了一天，回家以后发现自己最期待的大模型更新了呢？急急急，大家都是急急国王。
+
+—— ...</blockquote>
+我还买了神州数码呢，赌一把炒作升腾芯片
+
