@@ -5201,3 +5201,13 @@ api确实更了，让我测一下上下文，不过只更新lite就有点    [
 
 彻底review了一下一个10w行的项目,deepseek-chat 1.5元/ deepseek-reasoner 5元
 
+
+*****
+
+####  发呆的龙虾  
+##### 473#       发表于 2026-4-22 17:25
+
+大的什么时候来？现在用Kimi2.6感觉还行，就是贵了。除了minimax就没有便宜的了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
