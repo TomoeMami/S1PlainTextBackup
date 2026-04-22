@@ -9543,3 +9543,14 @@ RACOONCITY！
 昨天狂战士玩到浣熊市了，只能说底子还是不够，来来回回都是那几个怪排列组合 ...</blockquote>
 远没有原版好玩
 
+
+*****
+
+####  红魔馆的糖  
+##### 2290#       发表于 2026-4-22 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69520490&amp;ptid=2252759" target="_blank">渡边加奈子 发表于 2026-4-22 10:30</a>
+
+远没有原版好玩</blockquote>
+都玩改版了就不用和原版比了，原版已经打通过几次无奖励癫狂了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">腻了
+
