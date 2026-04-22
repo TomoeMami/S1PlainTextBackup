@@ -5673,3 +5673,55 @@ API 反应很慢，status 页面完全打不开了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qz66618  
+##### 525#       发表于 2026-4-22 23:57
+
+ 本帖最后由 qz66618 于 2026-4-22 23:58 编辑 
+
+都在测试api了，应该就是这周了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  wiwiluo  
+##### 526#       发表于 2026-4-22 23:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69524310&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-4-22 23:39</a>
+最新的版本是1.8.7，看看版本号的显示吧。
+如果客户端里面升级不了，去系统商城看看吧。
+前几天我也是遇 ...</blockquote>
+iOS刚刚更新到了2.0
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  杀人鲸  
+##### 527#       发表于 2026-4-23 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69524374&amp;ptid=2275806" target="_blank">wiwiluo 发表于 2026-4-22 23:59</a>
+iOS刚刚更新到了2.0
+
+论坛助手,iPhone</blockquote>
+苹果的版本居然怎么还更靠前呀？我靠！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  wiwiluo  
+##### 528#       发表于 2026-4-23 00:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69524375&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-4-23 00:00</a>
+苹果的版本居然怎么还更靠前呀？我靠！
+
+—— 来自 S1Fun</blockquote>
+一小时前刚更新的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
