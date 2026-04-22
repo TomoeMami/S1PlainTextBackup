@@ -5325,3 +5325,20 @@ DS是先更新后发新闻
 
 据说这次可以调整思考强度了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  qwased  
+##### 486#       发表于 2026-4-22 18:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69522907&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-4-22 17:55</a>
+GPT-Image-2这种质量的图，一张就要一人民币</blockquote>
+已经看到小红书的平面美工在哀嚎了，做海报乱杀99%混日子的菜鸡<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">而且不需要什么提示词，直接说帮我做好点看点就完事
+
+*****
+
+####  王兰花秀丽  
+##### 487#       发表于 2026-4-22 18:29
+
+你们能发512k以上的内容吗，我直接超时
+
