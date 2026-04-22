@@ -3178,3 +3178,28 @@ VR任务确实比预料的好玩，而且能看出主线他们是真克制着做
  还好吧，绿色镇暴枪没法强控的也会积攒大量热量。 而且你总不能是没去除黑泥直接打得吧 配装对了打起来很 ...</blockquote>
 因为前面build走的是过热+处决+处决伤害aoe，到这里基本强化的道具一大半都没用<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打还是能打，死了一回换了个build7血通关了，但是体验着实不好，没强化的道具打前4/5血甩完了，最后这点血就是靠龟着满地乱滚刷入侵憋大招
 
+
+*****
+
+####  ParadiseMartyr  
+##### 672#       发表于 2026-4-22 14:49
+
+ 本帖最后由 ParadiseMartyr 于 2026-4-22 14:50 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69521855&amp;ptid=2252823" target="_blank">UmarIbnLaAhad 发表于 2026-4-22 14:25</a>
+因为前面build走的是过热+处决+处决伤害aoe，到这里基本强化的道具一大半都没用打还是能打，死了一回换了 ...</blockquote>
+没小怪确实没必要带aoe处决aoe啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打最终boss我也是把这个换了
+我中期到的过热模式发现用不来，后期带的都是强袭模式
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  何然  
+##### 673#       发表于 2026-4-22 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69519361&amp;ptid=2252823" target="_blank">ParadiseMartyr 发表于 2026-4-22 01:14</a>
+
+真结局何意味啊打虚脱了就给个语音么？
+
+这游戏居然是现在少有的，有新意的，没屎的新ip</blockquote>
+没预算了随便弄弄让玩家不炎上罢了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
