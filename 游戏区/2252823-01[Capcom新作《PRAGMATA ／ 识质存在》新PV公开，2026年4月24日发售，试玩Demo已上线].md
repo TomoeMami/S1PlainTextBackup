@@ -3440,3 +3440,13 @@ VR任务确实比预料的好玩，而且能看出主线他们是真克制着做
 该来的还是来了
 [https://ayakamods.com/mods/kit-t-monster-hunter.2110/](https://ayakamods.com/mods/kit-t-monster-hunter.2110/)
 
+
+*****
+
+####  jacket  
+##### 694#       发表于 2026-4-23 05:27
+
+原来换装画面还有机器舞教学
+
+[https://x.com/taka_yuuse/status/2046953931415461888](https://x.com/taka_yuuse/status/2046953931415461888)
+
