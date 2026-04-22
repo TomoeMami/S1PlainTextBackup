@@ -3347,3 +3347,11 @@ VR任务确实比预料的好玩，而且能看出主线他们是真克制着做
 
 耍完了，BOSS跟六道佩恩似的，一袋米扛几楼！<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bronzitro  
+##### 686#       发表于 2026-4-22 23:36
+
+萝莉的演出还是太保守了，基本就是养女儿那一套。
+
