@@ -3339,3 +3339,11 @@ VR任务确实比预料的好玩，而且能看出主线他们是真克制着做
 プラグマタ、クリアした。おっさんと幼女って大体最初はおっさん側が冷たく接するけど、プラグマタは最初から仲良く褒めて伸ばすタイプで新鮮で良かった。
 <img src="https://p.sda1.dev/32/2271f97465241766be40135536dafb78/1000165265.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜歌行  
+##### 685#       发表于 2026-4-22 22:25
+
+耍完了，BOSS跟六道佩恩似的，一袋米扛几楼！<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
