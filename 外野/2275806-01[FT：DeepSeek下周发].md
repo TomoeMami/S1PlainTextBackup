@@ -5383,3 +5383,20 @@ API昨天缩水了，我用第三方的GLM5<img src="https://static.stage1st.com
 
 吃饭前我问API的chat什么版本，它回答是V4o（omni）,吃饭回来又不说了  <img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Freewolf  
+##### 493#       发表于 2026-4-22 19:25
+
+api又回滚了，变回上下文128k，知识截止到2024年7月的版本了
+
+*****
+
+####  wandeeees  
+##### 494#       发表于 2026-4-22 19:26
+
+我的知识截止日期是2024年7月   拥有128K的上下文长度，能处理较长的对话和文档
+
+咋还撤回了呢<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
