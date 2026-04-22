@@ -3168,3 +3168,13 @@ VR任务确实比预料的好玩，而且能看出主线他们是真克制着做
 
 未知信号模式里气象研究所的清扫者不刷新了，没法快速刷钱了
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 671#       发表于 2026-4-22 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69519418&amp;ptid=2252823" target="_blank">ParadiseMartyr 发表于 2026-4-22 02:02</a>
+ 还好吧，绿色镇暴枪没法强控的也会积攒大量热量。 而且你总不能是没去除黑泥直接打得吧 配装对了打起来很 ...</blockquote>
+因为前面build走的是过热+处决+处决伤害aoe，到这里基本强化的道具一大半都没用<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打还是能打，死了一回换了个build7血通关了，但是体验着实不好，没强化的道具打前4/5血甩完了，最后这点血就是靠龟着满地乱滚刷入侵憋大招
+
