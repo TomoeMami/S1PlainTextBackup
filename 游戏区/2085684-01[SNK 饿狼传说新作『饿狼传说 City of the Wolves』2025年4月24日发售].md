@@ -102,3 +102,11 @@
 
 【《饿狼传说：群狼之城》角色性能介绍 - 沃尔夫冈·克劳萨-哔哩哔哩】 [https://b23.tv/wedhA5D](https://b23.tv/wedhA5D)
 
+
+*****
+
+####  蕾丝控  
+##### 681#       发表于 2026-4-22 22:15
+
+东丈也有比赛夺冠了，这平衡性真的可以。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
