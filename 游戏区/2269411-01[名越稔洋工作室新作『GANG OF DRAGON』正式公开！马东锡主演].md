@@ -805,3 +805,13 @@ NetEase to Stop Funding Nagoshi Studio as It Cuts Back on Gaming
 
 这项目应该彻底黄了吧
 
+
+*****
+
+####  xisailuo  
+##### 92#       发表于 2026-4-22 22:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69523803&amp;ptid=2269411" target="_blank">liekong 发表于 2026-4-22 21:32</a>
+这项目应该彻底黄了吧</blockquote>
+两月份他们程序总监在领英就找工作了
+
