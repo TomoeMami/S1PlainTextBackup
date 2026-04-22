@@ -3261,3 +3261,11 @@ VR任务确实比预料的好玩，而且能看出主线他们是真克制着做
 
 训练6打完皇冠就力竭了，几小时通关的都是神人啊
 
+
+*****
+
+####  魔法酪饼  
+##### 679#       发表于 2026-4-22 19:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer"> 雷弹这种核心机制级的东西最后给是图个啥啊？
+
