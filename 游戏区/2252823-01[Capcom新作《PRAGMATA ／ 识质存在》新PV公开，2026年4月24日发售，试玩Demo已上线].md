@@ -3214,3 +3214,24 @@ VR任务确实比预料的好玩，而且能看出主线他们是真克制着做
 谁说训练不用三星同时完成的，这不是有皇冠奖励吗</blockquote>
 皇冠只是多个标记没有单独的东西奖励吧？
 
+
+*****
+
+####  adw667  
+##### 675#       发表于 2026-4-22 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69521855&amp;ptid=2252823" target="_blank">UmarIbnLaAhad 发表于 2026-4-22 14:25</a>
+
+因为前面build走的是过热+处决+处决伤害aoe，到这里基本强化的道具一大半都没用打还是能打，死了一回换了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">利用子弹时间侵入就很简单，另外头部是弱点，这游戏BOSS血量都不算厚，纯用小手枪点都行，一梭子全打弱点上伤害还是很可观的。
+
+*****
+
+####  jacket  
+##### 676#       发表于 2026-4-22 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69522229&amp;ptid=2252823" target="_blank">何然 发表于 2026-4-22 15:43</a>
+
+皇冠只是多个标记没有单独的东西奖励吧？</blockquote>
+标出来的就是正式奖励呀，一页十个项目只亮三个你能忍
+

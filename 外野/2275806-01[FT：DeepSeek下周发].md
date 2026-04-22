@@ -5144,3 +5144,16 @@ api怎么有点区啊，快倒是贼快
 
 2026-4-22 15:54 上传
 
+
+*****
+
+####  ymm1030  
+##### 467#       发表于 2026-4-22 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69522246&amp;ptid=2275806" target="_blank">云卷花开 发表于 2026-4-22 15:45</a>
+
+api 更了，还没有测试信息，不过默认看起来是 v4l
+
+Re:Source</blockquote>
+怎么发现API更的
+
