@@ -162,3 +162,15 @@ IO 用国产树莓派平替运行 openjvs
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  huanzhi  
+##### 7336#       发表于 2026-4-22 22:55
+
+ 本帖最后由 huanzhi 于 2026-4-22 22:57 编辑 
+
+难绷<img src="https://p.sda1.dev/32/fb119eff6fcc80a8801d097ddcdb3095/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
