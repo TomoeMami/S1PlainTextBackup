@@ -9532,3 +9532,14 @@ RACOONCITY！
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">…………这俩出场是什么好事吗
 生化虽然剧情摆烂但他有自知之明，不会昭告天下我就这么烂
 
+
+*****
+
+####  渡边加奈子  
+##### 2289#       发表于 2026-4-22 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69520138&amp;ptid=2252759" target="_blank">红魔馆的糖 发表于 2026-4-22 09:29</a>
+
+昨天狂战士玩到浣熊市了，只能说底子还是不够，来来回回都是那几个怪排列组合 ...</blockquote>
+远没有原版好玩
+
