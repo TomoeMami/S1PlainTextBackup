@@ -3406,3 +3406,37 @@ VR任务确实比预料的好玩，而且能看出主线他们是真克制着做
 
 也是一种循环<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  scp073  
+##### 692#       发表于 2026-4-23 02:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69524021&amp;ptid=2252823" target="_blank">夜歌行 发表于 2026-4-22 22:25</a>
+耍完了，BOSS跟六道佩恩似的，一袋米扛几楼！</blockquote>
+还真是，我看最终boss演出的时候就开始吟唱一袋米扛几楼，念到辛辣填塞的时候刚好boss团成个球，直接破功<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  myep  
+##### 693#       发表于 2026-4-23 02:46
+
+<img src="https://img.stage1st.com/forum/202604/23/024405uzzdvevoxeeea95d.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-04-22 143617.png</strong> (258.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-23 02:44 上传
+
+<img src="https://img.stage1st.com/forum/202604/23/024405pnwwzzr4ny4hwy4r.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-04-22 143445.png</strong> (623.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-23 02:44 上传
+
+该来的还是来了
+[https://ayakamods.com/mods/kit-t-monster-hunter.2110/](https://ayakamods.com/mods/kit-t-monster-hunter.2110/)
+
