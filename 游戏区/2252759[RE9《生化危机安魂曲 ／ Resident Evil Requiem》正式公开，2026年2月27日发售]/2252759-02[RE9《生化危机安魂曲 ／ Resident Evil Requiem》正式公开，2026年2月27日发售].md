@@ -9521,3 +9521,14 @@ RACOONCITY！
 这就有改版mod玩了，真够快的</blockquote>
 昨天狂战士玩到浣熊市了，只能说底子还是不够，来来回回都是那几个怪排列组合
 
+
+*****
+
+####  cangyuyao  
+##### 2288#       发表于 2026-4-22 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69519441&amp;ptid=2252759" target="_blank">发财就收 发表于 2026-4-22 02:47</a>
+如今重看之前的9代PV，感觉卡普空的剪片人员不懂啊，要是把飙车飞到空中看到核爆坑，假威斯克齐诺，汉克随 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">…………这俩出场是什么好事吗
+生化虽然剧情摆烂但他有自知之明，不会昭告天下我就这么烂
+
