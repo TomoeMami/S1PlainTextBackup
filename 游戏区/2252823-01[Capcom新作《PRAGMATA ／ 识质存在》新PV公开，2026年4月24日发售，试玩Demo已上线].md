@@ -3363,3 +3363,12 @@ VR任务确实比预料的好玩，而且能看出主线他们是真克制着做
 
 是我的设置有问题吗，一进庇护所必定会三分钟内触发电脑风扇爆转一通[f:004<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不知道的还以为我电脑要起飞了
 
+
+*****
+
+####  医生狼多  
+##### 688#       发表于 2026-4-23 00:23
+
+打完了，除了演出性质的终关外剩下的最终boss打不过瘾啊，完全没有要我使出终身所学的感觉<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+然后博士的女儿死因实在是……忍俊不禁(
+
