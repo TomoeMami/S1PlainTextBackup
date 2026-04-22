@@ -3269,3 +3269,11 @@ VR任务确实比预料的好玩，而且能看出主线他们是真克制着做
 
 <img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer"> 雷弹这种核心机制级的东西最后给是图个啥啊？
 
+
+*****
+
+####  wasian  
+##### 680#       发表于 2026-4-22 19:46
+
+狂月感觉才是正经交互的难度，前面两个难度跟逛街似的
+
