@@ -5375,3 +5375,11 @@ GPT-Image-2这种质量的图，一张就要一人民币</blockquote>
 
 API昨天缩水了，我用第三方的GLM5<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一般市民  
+##### 492#       发表于 2026-4-22 19:15
+
+吃饭前我问API的chat什么版本，它回答是V4o（omni）,吃饭回来又不说了  <img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
