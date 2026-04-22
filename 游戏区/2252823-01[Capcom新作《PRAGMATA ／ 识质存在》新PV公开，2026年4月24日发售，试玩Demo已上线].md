@@ -3203,3 +3203,14 @@ VR任务确实比预料的好玩，而且能看出主线他们是真克制着做
 这游戏居然是现在少有的，有新意的，没屎的新ip</blockquote>
 没预算了随便弄弄让玩家不炎上罢了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  何然  
+##### 674#       发表于 2026-4-22 15:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69521768&amp;ptid=2252823" target="_blank">jacket 发表于 2026-4-22 14:06</a>
+
+谁说训练不用三星同时完成的，这不是有皇冠奖励吗</blockquote>
+皇冠只是多个标记没有单独的东西奖励吧？
+

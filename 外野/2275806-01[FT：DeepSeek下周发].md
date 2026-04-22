@@ -5108,3 +5108,23 @@ deepseek更新模型不保留旧模型api服务的。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  云卷花开  
+##### 464#       发表于 2026-4-22 15:45
+
+api 更了，还没有测试信息，不过默认看起来是 v4l
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  sellboy  
+##### 465#       发表于 2026-4-22 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69520695&amp;ptid=2275806" target="_blank">忧郁的杰哥 发表于 2026-4-22 10:57</a>
+
+一般是半夜发布   白天发布怕被流量冲垮了</blockquote>
+不是幻方主要炒美股，所以手动画K线得挑晚上画么
+
