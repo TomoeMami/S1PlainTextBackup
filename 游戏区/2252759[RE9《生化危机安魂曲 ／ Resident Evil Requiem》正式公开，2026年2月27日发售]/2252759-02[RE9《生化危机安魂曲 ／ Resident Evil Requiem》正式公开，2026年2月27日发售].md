@@ -9554,3 +9554,29 @@ RACOONCITY！
 远没有原版好玩</blockquote>
 都玩改版了就不用和原版比了，原版已经打通过几次无奖励癫狂了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">腻了
 
+
+*****
+
+####  eilot  
+##### 2291#       发表于 2026-4-22 10:48
+
+ 本帖最后由 eilot 于 2026-4-22 10:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69519441&amp;ptid=2252759" target="_blank">发财就收 发表于 2026-4-22 02:47</a>
+
+如今重看之前的9代PV，感觉卡普空的剪片人员不懂啊，要是把飙车飞到空中看到核爆坑，假威斯克齐诺，汉克随 ...</blockquote>
+那就更差體驗
+
+ZENO和指揮官今集只是路人性質，前者如果全跳劇情CG的話是去到直接查無此人，後者更是戰鬥中突然彈出來
+
+放在PV就只會令玩家期待更大，失望更大
+
+隨時炎上
+
+看第4個PV的最後，是打開RPD的大門一刻，即場令多少玩家期待，但RPD實際內容不多，甚至是浣熊市內部區域也甚少
+
+也好快在國外R論壇嘈起來，有所欺騙
+
+不過飛車這段應該要在PV中放更多內容，特別是準備跳樓那段剪下去吧，
+
+可直接引來LEON根本就是弱化版魔人馬甲來
+
