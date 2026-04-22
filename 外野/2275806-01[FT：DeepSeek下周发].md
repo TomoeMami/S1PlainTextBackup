@@ -5350,3 +5350,28 @@ GPT-Image-2这种质量的图，一张就要一人民币</blockquote>
 
 刚才网页版我有个对话就卡住了…到底现在啥情况
 
+
+*****
+
+####  overflowal  
+##### 489#       发表于 2026-4-22 18:58
+
+api挂了，别试了。想要静默替换没换成    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  sellboy  
+##### 490#       发表于 2026-4-22 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69522907&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-4-22 17:55</a>
+
+GPT-Image-2这种质量的图，一张就要一人民币</blockquote>
+请美工怎么也得2000块吧，不如出5张图挑一个。
+
+*****
+
+####  绝地潜兵  
+##### 491#       发表于 2026-4-22 19:01
+
+API昨天缩水了，我用第三方的GLM5<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
