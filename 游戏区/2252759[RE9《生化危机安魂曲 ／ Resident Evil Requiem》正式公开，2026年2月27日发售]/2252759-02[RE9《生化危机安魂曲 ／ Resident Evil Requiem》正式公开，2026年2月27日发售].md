@@ -9511,3 +9511,13 @@ RACOONCITY！
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 这就有改版mod玩了，真够快的
 
+
+*****
+
+####  红魔馆的糖  
+##### 2287#       发表于 2026-4-22 09:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69519594&amp;ptid=2252759" target="_blank">魔法酪饼 发表于 2026-4-22 07:28</a>
+这就有改版mod玩了，真够快的</blockquote>
+昨天狂战士玩到浣熊市了，只能说底子还是不够，来来回回都是那几个怪排列组合
+
