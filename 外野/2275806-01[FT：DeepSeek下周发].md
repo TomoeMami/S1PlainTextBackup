@@ -5400,3 +5400,45 @@ api又回滚了，变回上下文128k，知识截止到2024年7月的版本了
 
 咋还撤回了呢<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  overflowal  
+##### 495#       发表于 2026-4-22 19:36
+
+回退说明部署出问题了呗，deepseek的运维感觉特别草台<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 496#       发表于 2026-4-22 19:42
+
+正所谓黎明前的黑暗最难熬<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  忧郁的杰哥  
+##### 497#       发表于 2026-4-22 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69523318&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-4-22 19:36</a>
+
+回退说明部署出问题了呗，deepseek的运维感觉特别草台    Re:Source</blockquote>
+也有可能是国产算力卡特效<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+说实话   deepseek如果真全栈国产化  再拉也我也继续用
+
+*****
+
+####  Promeus  
+##### 498#       发表于 2026-4-22 19:43
+
+万一是要发v4发错了呢<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有鱼  
+##### 499#       发表于 2026-4-22 19:44
+
+艹，真回滚了，之前问着问着就卡死了，结果后来重试能用但是明显agent拉了
+
