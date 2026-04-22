@@ -5633,3 +5633,43 @@ API 反应很慢，status 页面完全打不开了
 
 客户端又更新了，这也太微妙了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  Promeus  
+##### 521#       发表于 2026-4-22 23:35
+
+据说v4可选推理思考档位，客户端也会同步更新吧
+
+*****
+
+####  木水风铃  
+##### 522#       发表于 2026-4-22 23:37
+
+客户端更新了？我怎么没反应啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杀人鲸  
+##### 523#       发表于 2026-4-22 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69524210&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-4-22 23:17</a>
+实际就剩两天，明后天没有这周就不会有了
+感觉明天希望还是比较大的…………吧 ...</blockquote>
+草，不要啊！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  杀人鲸  
+##### 524#       发表于 2026-4-22 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69524300&amp;ptid=2275806" target="_blank">木水风铃 发表于 2026-4-22 23:37</a>
+客户端更新了？我怎么没反应啊</blockquote>
+最新的版本是1.8.7，看看版本号的显示吧。
+如果客户端里面升级不了，去系统商城看看吧。
+前几天我也是遇到了系统客户端里面升级不了，但是无意间在软件商城里面看到可以升级。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
