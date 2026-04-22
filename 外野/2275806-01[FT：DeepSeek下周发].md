@@ -5241,3 +5241,54 @@ api确实更了，让我测一下上下文，不过只更新lite就有点    [
 
 —— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  xxwkof  
+##### 477#       发表于 2026-4-22 17:51
+
+还没发啊，等不及了<img src="https://static.stage1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2426A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ayanamilin  
+##### 478#       发表于 2026-4-22 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69518721&amp;ptid=2275806" target="_blank">chuchoselph 发表于 2026-4-21 21:45</a>
+
+image2在灰度吧，有什么办法体验到么？oai的会员早就不续了</blockquote>
+官网免费用户也能用，openrouter可调API
+
+*****
+
+####  qz66618  
+##### 479#       发表于 2026-4-22 17:54
+
+如来<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Promeus  
+##### 480#       发表于 2026-4-22 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69522845&amp;ptid=2275806" target="_blank">tk553521 发表于 2026-4-22 17:40</a>
+大的到底来没来？
+
+—— 来自 nubia NX809J, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+蠕动了一下<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ayanamilin  
+##### 481#       发表于 2026-4-22 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69518760&amp;ptid=2275806" target="_blank">88316756 发表于 2026-4-21 21:54</a>
+
+不说已经全面开放了吗 ，x上看了一下，细节确实无敌了，人像倒是还好，但是像门神设定这种复杂的之前大香 ...</blockquote>
+GPT-Image-2这种质量的图，一张就要一人民币<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
