@@ -5173,3 +5173,31 @@ API如果更新了，应该要有1M上下文吧
 
 api确实更了，让我测一下上下文，不过只更新lite就有点    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  qz66618  
+##### 470#       发表于 2026-4-22 17:08
+
+肯定不会只搞个还不如之前3.2的lite版本，说明大的v4真要来了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  御坂MKII  
+##### 471#       发表于 2026-4-22 17:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 把 reasoner api 也给干掉了吗
+
+*****
+
+####  phorcys02  
+##### 472#       发表于 2026-4-22 17:11
+
+放到 claude里试了下, 确实比起v3.2 堪称翻天覆地的改进.
+
+就是没有coding plan吃不消
+
+彻底review了一下一个10w行的项目,deepseek-chat 1.5元/ deepseek-reasoner 5元
+
