@@ -3126,3 +3126,21 @@ pssr在哪设置啊？还是自动开启？
 
 VR任务确实比预料的好玩，而且能看出主线他们是真克制着做的，没敢给新玩家上强度，比如那个黄色会移动的跳台和各种激光。要是这游戏早出10年，狂月应该才是正常难度水平吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Chao  
+##### 667#       发表于 2026-4-22 10:42
+
+一进入VR就感觉进入了另一个游戏一样，战术、节奏连音乐都变味了。这种训练要是放在MGS里是合理的，放这里是一个工业宇航员和小萝莉该做的事情吗，像是制作团队跳票几年后留下的原型残骸，这才是游戏原本的样子。
+
+看到阿舱的隐藏表情就明白一切了，做这个VR就是要唤醒动作玩家心中的洛克人
+
+<img src="https://img.stage1st.com/forum/202604/22/104040n7z88w3xqro3gx2a.gif" referrerpolicy="no-referrer">
+
+<strong>7FEE6DBEBD72E52242A5F8511DBA5858.gif</strong> (161.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-22 10:40 上传
+
