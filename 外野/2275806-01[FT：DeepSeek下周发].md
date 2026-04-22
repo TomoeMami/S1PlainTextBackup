@@ -5292,3 +5292,11 @@ image2在灰度吧，有什么办法体验到么？oai的会员早就不续了</
 不说已经全面开放了吗 ，x上看了一下，细节确实无敌了，人像倒是还好，但是像门神设定这种复杂的之前大香 ...</blockquote>
 GPT-Image-2这种质量的图，一张就要一人民币<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RGm  
+##### 482#       发表于 2026-4-22 18:05
+
+蓝色鲸鱼这是一睡不起了？
+
