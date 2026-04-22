@@ -5128,3 +5128,19 @@ api 更了，还没有测试信息，不过默认看起来是 v4l
 一般是半夜发布   白天发布怕被流量冲垮了</blockquote>
 不是幻方主要炒美股，所以手动画K线得挑晚上画么
 
+
+*****
+
+####  Freewolf  
+##### 466#       发表于 2026-4-22 15:54
+
+api怎么有点区啊，快倒是贼快
+
+<img src="https://img.stage1st.com/forum/202604/22/155449iz760lcwx6z3hxax.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2026-04-22_15-54-18.png</strong> (124.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-22 15:54 上传
+
