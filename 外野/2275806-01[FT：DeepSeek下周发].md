@@ -5310,3 +5310,18 @@ DS是先更新后发新闻
 
 —— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  有鱼  
+##### 484#       发表于 2026-4-22 18:18
+
+感觉api不如网页版，是我的错觉么<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  overflowal  
+##### 485#       发表于 2026-4-22 18:20
+
+据说这次可以调整思考强度了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
