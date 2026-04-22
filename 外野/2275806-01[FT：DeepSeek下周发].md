@@ -5725,3 +5725,25 @@ iOS刚刚更新到了2.0
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  杀人鲸  
+##### 529#       发表于 2026-4-23 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69524383&amp;ptid=2275806" target="_blank">wiwiluo 发表于 2026-4-23 00:03</a>
+一小时前刚更新的
+
+论坛助手,iPhone</blockquote>
+虽然知道和安卓的版本不一样，但是更大的数字给人的感觉也是不一样呀。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ycjiang1337  
+##### 530#       发表于 2026-4-23 00:17
+
+应该这周就会发了，估计修好API之后就会上
+
