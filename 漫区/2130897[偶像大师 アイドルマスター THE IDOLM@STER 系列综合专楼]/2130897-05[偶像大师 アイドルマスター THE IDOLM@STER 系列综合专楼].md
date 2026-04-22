@@ -88,3 +88,77 @@ IO 用国产树莓派平替运行 openjvs
 那么这个有汉化吗</blockquote>
 目前没有
 
+
+*****
+
+####  Unlight  
+##### 7335#         楼主| 发表于 2026-4-22 17:37
+
+这AI有点东西<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202604/22/173711skr2y21ljr1pdj0y.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6243.PNG</strong> (991.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-22 17:37 上传
+
+<img src="https://img.stage1st.com/forum/202604/22/173711p1sx1mez2yhbnbw3.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6240.PNG</strong> (1.32 MB, 下载次数: 0)
+
+下载附件
+
+2026-4-22 17:37 上传
+
+<img src="https://img.stage1st.com/forum/202604/22/173712gkoevzkdonsm3dah.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6241.PNG</strong> (1.29 MB, 下载次数: 0)
+
+下载附件
+
+2026-4-22 17:37 上传
+
+<img src="https://img.stage1st.com/forum/202604/22/173714nb4f4bheenhyhn8e.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6242.PNG</strong> (1.34 MB, 下载次数: 0)
+
+下载附件
+
+2026-4-22 17:37 上传
+
+<img src="https://img.stage1st.com/forum/202604/22/173714gar33qtzz99bajr8.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6247.PNG</strong> (771.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-22 17:37 上传
+
+<img src="https://img.stage1st.com/forum/202604/22/173715wf1ajnoa46114zb1.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6246.PNG</strong> (1.32 MB, 下载次数: 0)
+
+下载附件
+
+2026-4-22 17:37 上传
+
+<img src="https://img.stage1st.com/forum/202604/22/173716rzqqdxkxxb7lrxwk.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6245.PNG</strong> (974.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-22 17:37 上传
+
+<img src="https://img.stage1st.com/forum/202604/22/173715hvpgkggyepv9w3v8.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6244.PNG</strong> (1.26 MB, 下载次数: 0)
+
+下载附件
+
+2026-4-22 17:37 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
