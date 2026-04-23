@@ -849,3 +849,11 @@ NetEase to Stop Funding Nagoshi Studio as It Cuts Back on Gaming
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看着几个宣传图就感觉窒息，打枪的镜头马东锡肥硕的身体挡住了半个屏幕，我还玩什么
 
+
+*****
+
+####  GrayishWh0  
+##### 96#       发表于 2026-4-23 15:00
+
+经此一事，以后还有人敢接盘名越吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
