@@ -3657,3 +3657,14 @@ VR任务确实比预料的好玩，而且能看出主线他们是真克制着做
 我还有俩武器四分之一多的模块没解锁啊。</blockquote>
 进未知信号后能啊
 
+
+*****
+
+####  当光停止  
+##### 715#       发表于 2026-4-23 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69529026&amp;ptid=2252823" target="_blank">医生狼多 发表于 2026-4-23 22:43</a>
+
+进未知信号后能啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">进了未知区域出来之后才发现可以
+
