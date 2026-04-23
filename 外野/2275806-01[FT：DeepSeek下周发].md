@@ -6534,3 +6534,42 @@ app正式到2.0了，大的要来了<img src="https://static.stage1st.com/image/
 <img src="https://p.sda1.dev/32/246bc6faa91b38fcdee441846958c07c/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/9f384fb884ce4cd8d722e3a4995434ec/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  很久就在那边l  
+##### 588#       发表于 2026-4-23 20:56
+
+混元也发布新模型了，元宝似乎可以不用依赖deepseek了
+
+*****
+
+####  王兰花秀丽  
+##### 589#       发表于 2026-4-23 20:57
+
+我真的急哭了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  david5515  
+##### 590#       发表于 2026-4-23 20:57
+
+就在今天？
+
+*****
+
+####  御坂MKII  
+##### 591#       发表于 2026-4-23 20:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来得及吗，今晚马上就到 gpt5.5 的时间了
+
+
+*****
+
+####  羊寢  
+##### 592#       发表于 2026-4-23 21:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69528632&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-4-23 20:59</a>
+来得及吗，今晚马上就到 gpt5.5 的时间了</blockquote>
+已经更了啊
+
