@@ -6740,3 +6740,29 @@ api直接对话上下文已经支持1m了，但是性能表现出来很垃圾
 
 怎么感觉这几天api智力忽上忽下的
 
+
+*****
+
+####  qz66618  
+##### 610#       发表于 2026-4-23 23:19
+
+就在明天<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  zy450  
+##### 611#       发表于 2026-4-23 23:20
+
+以前鲸鱼没这么反复…应该真在适配国产
+
+—— 来自 Xiaomi 24031PN0DC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  wesdrtfg  
+##### 612#       发表于 2026-4-23 23:21
+
+上api也没什么官方公告，不会只是更大程度的灰度吧
+
