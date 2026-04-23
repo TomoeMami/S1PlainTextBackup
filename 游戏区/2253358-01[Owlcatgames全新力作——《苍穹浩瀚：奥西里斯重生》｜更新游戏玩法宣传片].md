@@ -549,3 +549,15 @@ atom team那更是拉跨到无以复加
 
 还一年呢，好好填点内容吧
 
+
+*****
+
+####  地方就是咖啡好  
+##### 60#       发表于 2026-4-23 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69527177&amp;ptid=2253358" target="_blank">wlhlz 发表于 2026-4-23 15:27</a>
+博德三成功之后，想要成为拉瑞安第二的CRPG制作者是很不少的，但是目前真的开始行动了的大概只有猫头鹰头猫 ...</blockquote>
+pf的两作比bg3还要早两年，你不如换成bg2，猫头鹰明显想做的是生软第二。
+
+—— 来自 HONOR ANY-AN00, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
