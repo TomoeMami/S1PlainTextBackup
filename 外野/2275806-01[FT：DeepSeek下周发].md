@@ -5815,3 +5815,21 @@ api可以调参。</blockquote>
 
 感觉v4l这种小模型写文都已经挺强了
 
+
+*****
+
+####  王兰花秀丽  
+##### 538#       发表于 2026-4-23 12:58
+
+混元3发了
+
+<img src="https://img.stage1st.com/forum/202604/23/125848armr6mrd2re4qdel.png" referrerpolicy="no-referrer">
+
+<strong>1000048533.png</strong> (58.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-23 12:58 上传
+
+    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
