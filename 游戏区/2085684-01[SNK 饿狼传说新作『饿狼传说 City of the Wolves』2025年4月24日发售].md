@@ -110,3 +110,13 @@
 
 东丈也有比赛夺冠了，这平衡性真的可以。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  人生オワタ  
+##### 682#       发表于 2026-4-23 13:15
+
+【《饿狼传说：群狼之城》2.0版本预告-哔哩哔哩】 [https://b23.tv/9Hrviqp](https://b23.tv/9Hrviqp)
+
+【《饿狼传说：群狼之城》Destiny模式预告-哔哩哔哩】 [https://b23.tv/EjyifIf](https://b23.tv/EjyifIf)
+
