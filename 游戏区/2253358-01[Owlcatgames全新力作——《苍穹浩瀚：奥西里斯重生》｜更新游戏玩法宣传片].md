@@ -592,3 +592,16 @@ pf的两作比bg3还要早两年，你不如换成bg2，猫头鹰明显想做的
 
 去补美剧发现第一季以前还看过 质感还不错 但现在实在静不下心补了 看看解说了
 
+
+*****
+
+####  RTLordCaptain  
+##### 64#       发表于 2026-4-23 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69527177&amp;ptid=2253358" target="_blank">wlhlz 发表于 2026-4-23 15:27</a>
+
+博德三成功之后，想要成为拉瑞安第二的CRPG制作者是很不少的，但是目前真的开始行动了的大概只有猫头鹰头猫 ...</blockquote>
+毛子其实在采访里说过他们并不想像拉瑞安一样举全社之力做一款3A级游戏，更想做多个2A，也就是现在这样
+
+奥西里斯这游戏投入大概也并没有到3A级别
+
