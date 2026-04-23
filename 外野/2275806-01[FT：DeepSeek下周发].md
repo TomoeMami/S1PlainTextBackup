@@ -6266,3 +6266,14 @@ API好像稳定了，知识库是2025年5月
 
 现在api上下文开到多少了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  ycjiang1337  
+##### 578#       发表于 2026-4-23 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69528325&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-4-23 19:30</a>
+
+现在更了之后字数缩水好严重，还有掉格式的情况，写文的话会挺难受的</blockquote>
+可以试试指令里面加上“语言需要保证流畅自然，避免短句堆砌”
+
