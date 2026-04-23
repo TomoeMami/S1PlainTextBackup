@@ -6251,3 +6251,18 @@ API好像稳定了，知识库是2025年5月
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Surlert  
+##### 576#       发表于 2026-4-23 19:49
+
+真上Engram，如果出来实际效果不错，硬件市场要震动了。
+
+*****
+
+####  overflowal  
+##### 577#       发表于 2026-4-23 19:50
+
+现在api上下文开到多少了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
