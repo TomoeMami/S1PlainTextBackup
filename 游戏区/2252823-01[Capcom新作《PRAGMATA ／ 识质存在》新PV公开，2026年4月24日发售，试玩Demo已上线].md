@@ -3593,3 +3593,13 @@ VR任务确实比预料的好玩，而且能看出主线他们是真克制着做
 
 从PS5Pro上开始游戏, 云同步到PS5标准版后就是1440p运行了. 上一个类似的Bug也是这游戏的Demo, 当时XSS先玩Demo后用XSX玩会把XSS版的图形设置同步到XSX上来. 所以这游戏难道开发的很匆忙吗.
 
+
+*****
+
+####  thealoneer  
+##### 708#       发表于 2026-4-23 14:33
+
+【《实质存在Pragmata》模拟任务M30至死方休 完美通关02:43.59（手柄操作）】 [https://www.bilibili.com/video/BV1vyotBLEVV](https://www.bilibili.com/video/BV1vyotBLEVV)
+
+死磕了两个多小时，VR全完美之后真是对战斗系统有了全新的理解，好多武器以前根本不会用，美美打狂月去了
+
