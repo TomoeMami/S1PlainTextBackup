@@ -629,3 +629,14 @@ pf的两作比bg3还要早两年，你不如换成bg2，猫头鹰明显想做的
 
 确实，我上reddit，感觉广告80%都是这个游戏，力度这么大吗，还是针对我个人的算法
 
+
+*****
+
+####  RTLordCaptain  
+##### 68#       发表于 2026-4-23 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69529062&amp;ptid=2253358" target="_blank">laputah 发表于 2026-4-23 22:52</a>
+
+这游戏一直在挂广告推送，就想应该不会拖得太久</blockquote>
+已经预报了是明年春季啊
+
