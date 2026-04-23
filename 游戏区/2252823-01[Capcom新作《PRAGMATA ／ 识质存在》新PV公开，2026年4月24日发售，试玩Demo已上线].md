@@ -3627,3 +3627,14 @@ VR任务确实比预料的好玩，而且能看出主线他们是真克制着做
 
 解锁月丝炮再去打狂月，难度直接为0，约等于生化拿了无限火箭筒
 
+
+*****
+
+####  当光停止  
+##### 712#       发表于 2026-4-23 22:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">通关就没法回去收集了吗?
+我还有俩武器四分之一多的模块没解锁啊。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

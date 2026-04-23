@@ -6638,3 +6638,23 @@ reasoner api 真是 v4 本体吗</blockquote>
 
 app现在捞针完全过不了啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蛋黄酱Release  
+##### 600#       发表于 2026-4-23 22:06
+
+这怎么一下子干到未来了
+<img src="https://p.sda1.dev/32/959c23198ea3b872a9aa19255df6e442/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  王兰花秀丽  
+##### 601#       发表于 2026-4-23 22:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69528816&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-4-23 21:46</a>
+
+app现在捞针完全过不了啊在小说里面里面塞了几个114514让他找，一个都没找出来 ...</blockquote>
+api我试了下挺强的，但是只有128k
+
