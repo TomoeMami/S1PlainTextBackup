@@ -6682,3 +6682,11 @@ api我试了下挺强的，但是只有128k
 论坛助手,iPhone</blockquote>
 甚至SSD也可以，Engram就是推荐算法领域常用的稀疏存储在LLM的应用
 
+
+*****
+
+####  脸宽  
+##### 604#       发表于 2026-4-23 22:40
+
+<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+
