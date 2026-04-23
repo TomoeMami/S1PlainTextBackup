@@ -6658,3 +6658,27 @@ app现在捞针完全过不了啊<img src="https://static.stage1st.com/image/smi
 app现在捞针完全过不了啊在小说里面里面塞了几个114514让他找，一个都没找出来 ...</blockquote>
 api我试了下挺强的，但是只有128k
 
+
+*****
+
+####  oopsoops  
+##### 602#       发表于 2026-4-23 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69528403&amp;ptid=2275806" target="_blank">Surlert 发表于 2026-4-23 19:49</a>
+真上Engram，如果出来实际效果不错，硬件市场要震动了。</blockquote>
+不太懂，是可以用dram替代hbm吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ycjiang1337  
+##### 603#       发表于 2026-4-23 22:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69528945&amp;ptid=2275806" target="_blank">oopsoops 发表于 2026-4-23 22:20</a>
+
+不太懂，是可以用dram替代hbm吗
+
+论坛助手,iPhone</blockquote>
+甚至SSD也可以，Engram就是推荐算法领域常用的稀疏存储在LLM的应用
+
