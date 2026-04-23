@@ -841,3 +841,11 @@ NetEase to Stop Funding Nagoshi Studio as It Cuts Back on Gaming
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zzy516232108  
+##### 95#       发表于 2026-4-23 14:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看着几个宣传图就感觉窒息，打枪的镜头马东锡肥硕的身体挡住了半个屏幕，我还玩什么
+
