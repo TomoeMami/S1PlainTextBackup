@@ -5763,3 +5763,25 @@ mimo v2.5发了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html
 
 GPT IMAGE这个图片生成的质感咋感觉没有网上那些图片好啊，我生成以后像素也只有1536*1024
 
+
+*****
+
+####  当光停止  
+##### 533#       发表于 2026-4-23 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69525487&amp;ptid=2275806" target="_blank">madnesshare 发表于 2026-4-23 09:55</a>
+
+GPT IMAGE这个图片生成的质感咋感觉没有网上那些图片好啊，我生成以后像素也只有1536*1024 ...</blockquote>
+api可以调参。
+
+
+*****
+
+####  svmkty  
+##### 534#       发表于 2026-4-23 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69525487&amp;ptid=2275806" target="_blank">madnesshare 发表于 2026-4-23 09:55</a>
+
+GPT IMAGE这个图片生成的质感咋感觉没有网上那些图片好啊，我生成以后像素也只有1536*1024 ...</blockquote>
+希望不要再来老一套割完韭菜就降智的操作
+
