@@ -433,3 +433,25 @@ b测打完了
 等明年发售了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">接近2代的意思是还是以开枪为主吗，人手一把鹤嘴锄？
 
+
+*****
+
+####  RTLordCaptain  
+##### 50#       发表于 2026-4-23 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69525097&amp;ptid=2253358" target="_blank">科本学士 发表于 2026-4-23 08:52</a>
+
+这猫头鹰到底有多少员工，竟然能同时开这么多项目</blockquote>
+
+<img src="https://img.stage1st.com/forum/202604/23/111453heisa10c1cyfi0sc.jpg" referrerpolicy="no-referrer">
+
+<strong>owlcatjob.jpg</strong> (143.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-23 11:14 上传
+
+其实今年还开了个新项目，加上行商浪人DLC现在是4开了，没想到吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看描述是unity引擎的RPG
+
