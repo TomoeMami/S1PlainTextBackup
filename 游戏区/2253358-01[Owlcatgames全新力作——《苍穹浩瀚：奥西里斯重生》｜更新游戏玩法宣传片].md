@@ -605,3 +605,11 @@ pf的两作比bg3还要早两年，你不如换成bg2，猫头鹰明显想做的
 
 奥西里斯这游戏投入大概也并没有到3A级别
 
+
+*****
+
+####  Bieaeml  
+##### 65#       发表于 2026-4-23 22:05
+
+能出有的玩就行，至少比黑曜石期望高不少<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
