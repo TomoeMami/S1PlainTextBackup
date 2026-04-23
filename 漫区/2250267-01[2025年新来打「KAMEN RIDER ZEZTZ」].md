@@ -2555,3 +2555,14 @@ zzz居然在日本是低开么？国内口碑算高开了
 zzz居然在日本是低开么？国内口碑算高开了</blockquote>
 zzz在日本24集才起来的，之前从第一集开始热度就路边一条，到灾厄登场那集日推关联词“无聊”“看不懂”，几乎都是批评的。那会我看着都以为这部在本土要玩几把蛋了。现在风评系列中上我觉得还是有的
 
+
+*****
+
+####  仟音一心  
+##### 1320#       发表于 2026-4-23 18:37
+
+最终形态。
+<img src="https://p.sda1.dev/32/3baa391b238805355a65131d35ac1ba7/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/66c88eabc7f20533ad306a8931782718/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/0ca311ef54ccf5dfbef0d3f4b28fbd50/image.jpg" referrerpolicy="no-referrer">
+
