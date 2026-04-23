@@ -74,3 +74,21 @@ u9多少钱？懒得开PS5看（
 u9多少钱？懒得开PS5看（</blockquote>
 【【PlayStation】《跑车浪漫旅7》品牌中心「仰望 U9」展示｜PS5-哔哩哔哩】 https://b23.tv/eCZsQpX
 
+
+*****
+
+####  Totokei  
+##### 2040#       发表于 2026-4-24 00:00
+
+<img src="https://img.stage1st.com/forum/202604/23/235859y3xxze41y94cleuu.jpg" referrerpolicy="no-referrer">
+
+<strong>跑車浪漫旅® 7_20260423235239.jpg</strong> (517.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-23 23:58 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">powerpack的更新可以自带车跑比赛不用选官方车了
+
+那我用1300马力的车跑300马力对决也勉强算300马力吧<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
