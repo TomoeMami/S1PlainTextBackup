@@ -613,3 +613,11 @@ pf的两作比bg3还要早两年，你不如换成bg2，猫头鹰明显想做的
 
 能出有的玩就行，至少比黑曜石期望高不少<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  laputah  
+##### 66#       发表于 2026-4-23 22:52
+
+这游戏一直在挂广告推送，就想应该不会拖得太久
+
