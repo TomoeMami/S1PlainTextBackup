@@ -6573,3 +6573,34 @@ app正式到2.0了，大的要来了<img src="https://static.stage1st.com/image/
 来得及吗，今晚马上就到 gpt5.5 的时间了</blockquote>
 已经更了啊
 
+
+*****
+
+####  御坂MKII  
+##### 593#       发表于 2026-4-23 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69528639&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-4-23 21:01</a>
+
+已经更了啊</blockquote>
+reasoner api 真是 v4 本体吗<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杀人鲸  
+##### 594#       发表于 2026-4-23 21:09
+
+昨天还是前天，楼里面有朋友说苹果那边更新到2.0了，还以为是安卓和苹果客户端有什么区别，结果今天同样也更新到2.0了。
+但这就是所谓的V4吗？又或者依旧是一次小的更新？但这一次可是客户端层面都主动跳出来鼓励你更新了呀。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  羊寢  
+##### 595#       发表于 2026-4-23 21:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69528660&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-4-23 21:06</a>
+reasoner api 真是 v4 本体吗</blockquote>
+不是，现在api甚至官网和app是什么版本官方都没有确切消息，所谓v4l或者v4都是用户自己的预测
+
