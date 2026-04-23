@@ -3646,3 +3646,14 @@ VR任务确实比预料的好玩，而且能看出主线他们是真克制着做
 
 百亿补贴289买了一份，这游戏跌的也挺快的
 
+
+*****
+
+####  医生狼多  
+##### 714#       发表于 2026-4-23 22:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69528920&amp;ptid=2252823" target="_blank">当光停止 发表于 2026-4-23 22:14</a>
+通关就没法回去收集了吗?
+我还有俩武器四分之一多的模块没解锁啊。</blockquote>
+进未知信号后能啊
+
