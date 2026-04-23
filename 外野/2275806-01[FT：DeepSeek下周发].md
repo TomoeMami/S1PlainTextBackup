@@ -6241,3 +6241,13 @@ API好像稳定了，知识库是2025年5月
 
 现在更了之后字数缩水好严重，还有掉格式的情况，写文的话会挺难受的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 575#       发表于 2026-4-23 19:43
+
+知识库变成去年5月了，怎么限制还是128k？
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
