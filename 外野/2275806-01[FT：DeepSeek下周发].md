@@ -6811,3 +6811,14 @@ api我晚上用起来不如上一版舒服
 
 hy3还是拉了啊
 
+
+*****
+
+####  ycjiang1337  
+##### 618#       发表于 2026-4-24 01:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69529359&amp;ptid=2275806" target="_blank">Su7 发表于 2026-4-24 00:53</a>
+
+hy3还是拉了啊</blockquote>
+这个参数量的正常水平，只能说TX终于重新上桌了
+
