@@ -420,3 +420,16 @@ b测打完了
 
 —— 来自 HONOR ANY-AN00, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zzy516232108  
+##### 49#       发表于 2026-4-23 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69524721&amp;ptid=2253358" target="_blank">HATENA 发表于 2026-4-23 05:31</a>
+
+很质量效应（褒义），战斗整体接近2代而不是3
+
+等明年发售了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">接近2代的意思是还是以开枪为主吗，人手一把鹤嘴锄？
+

@@ -5785,3 +5785,14 @@ api可以调参。
 GPT IMAGE这个图片生成的质感咋感觉没有网上那些图片好啊，我生成以后像素也只有1536*1024 ...</blockquote>
 希望不要再来老一套割完韭菜就降智的操作
 
+
+*****
+
+####  madnesshare  
+##### 535#       发表于 2026-4-23 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69525574&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-4-23 10:09</a>
+
+api可以调参。</blockquote>
+大哥，现在有可用的中转站吗
+
