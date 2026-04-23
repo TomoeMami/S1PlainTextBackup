@@ -5929,3 +5929,13 @@ V4的国产算力适配需要钱，内蒙古乌兰察布的智算中心需要钱
 
 V4月底就发，不管结果如何，这一枪已经上了膛。
 
+
+*****
+
+####  qz66618  
+##### 541#       发表于 2026-4-23 16:22
+
+味道太冲了，一眼把各路小道消息整合了一下写的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
