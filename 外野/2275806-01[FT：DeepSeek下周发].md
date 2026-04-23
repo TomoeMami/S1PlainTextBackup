@@ -6072,3 +6072,70 @@ api的v4l好像不够1m上下文？<img src="https://static.stage1st.com/image/s
 
 就在今晚<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御坂MKII  
+##### 558#       发表于 2026-4-23 17:29
+
+我大 v4 呢
+
+*****
+
+####  有鱼  
+##### 559#       发表于 2026-4-23 17:30
+
+又变v4l了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小鲸鱼仰卧起坐
+
+*****
+
+####  真红之闪电  
+##### 560#       发表于 2026-4-23 17:30
+
+你们怎么分辨API是v4的
+
+
+*****
+
+####  Freewolf  
+##### 561#       发表于 2026-4-23 17:31
+
+有人说现在API支持思考预算了？
+
+*****
+
+####  Geronimo  
+##### 562#       发表于 2026-4-23 17:32
+
+楼友们这仰卧起坐练得不错<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VYG-AL30, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  sellboy  
+##### 563#       发表于 2026-4-23 17:32
+
+<blockquote>真红之闪电 发表于 2026-4-23 17:30
+你们怎么分辨API是v4的</blockquote>
+知识库25年7月。
+
+*****
+
+####  Tomek  
+##### 564#       发表于 2026-4-23 17:33
+
+绷不住了，这仰卧起坐到底要到什么时候
+
+—— 来自 HUAWEI VYG-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  overflowal  
+##### 565#       发表于 2026-4-23 17:36
+
+github更新新东西了，要出来力    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
