@@ -523,3 +523,29 @@ b测打完了
 
 博德三成功之后，想要成为拉瑞安第二的CRPG制作者是很不少的，但是目前真的开始行动了的大概只有猫头鹰头猫，希望他们真的能做大做强吧
 
+
+*****
+
+####  亚瑟摩根  
+##### 58#       发表于 2026-4-23 15:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69527177&amp;ptid=2253358" target="_blank">wlhlz 发表于 2026-4-23 15:27</a>
+
+博德三成功之后，想要成为拉瑞安第二的CRPG制作者是很不少的，但是目前真的开始行动了的大概只有猫头鹰头猫 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">
+
+在2010s后做纯血crpg的还有哪几家
+
+叫得出号，就拉子和猫头猫了
+
+atom team那更是拉跨到无以复加
+
+至于黑岛残躯inxile和黑石头这几个兄弟制作组，跟拉子的情况可不一样。
+
+*****
+
+####  clover293  
+##### 59#       发表于 2026-4-23 15:50
+
+还一年呢，好好填点内容吧
+
