@@ -6506,3 +6506,31 @@ TMD。
 
 —— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  阿刚  
+##### 585#       发表于 2026-4-23 20:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">api怎么连不上了，又没了
+
+*****
+
+####  厍无春  
+##### 586#       发表于 2026-4-23 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69528518&amp;ptid=2275806" target="_blank">勿徊哉 发表于 2026-4-23 20:22</a>
+所以开源真是一步错棋。大模型成长需要的资本支出实在是天量，只有不断攫取更大的利益，才能反哺自身继续成 ...</blockquote>
+就凭ds的名声，要是真的缺钱想融资，各大资方都上赶着投呢，现在还这么干说明在他想做的事上钱还不是问题。你也别杞人忧天了，人家自己都没急你急啥。
+
+
+*****
+
+####  Promeus  
+##### 587#       发表于 2026-4-23 20:53
+
+app正式到2.0了，大的要来了<img src="https://static.stage1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/32/246bc6faa91b38fcdee441846958c07c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/9f384fb884ce4cd8d722e3a4995434ec/image.jpg" referrerpolicy="no-referrer">
+
