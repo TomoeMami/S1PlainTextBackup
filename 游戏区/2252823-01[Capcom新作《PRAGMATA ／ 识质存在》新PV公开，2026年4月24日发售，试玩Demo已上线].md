@@ -3484,3 +3484,30 @@ VR任务确实比预料的好玩，而且能看出主线他们是真克制着做
 
 难道要我1-5章开着扫描重新舔一遍？那我开新周目得了。
 
+
+*****
+
+####  zero4166  
+##### 698#       发表于 2026-4-23 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69524976&amp;ptid=2252823" target="_blank">mai6696 发表于 2026-4-23 08:27</a>
+
+这游戏黄色箱子为什么不计入关卡收集的百分比？
+
+差了大概十几个，我根本不知道去哪儿找。
+
+难道要我1-5章开 ...</blockquote>
+一周目全收集也升不满的，就是差十几个
+
+*****
+
+####  mai6696  
+##### 699#       发表于 2026-4-23 08:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69525060&amp;ptid=2252823" target="_blank">zero4166 发表于 2026-4-23 08:46</a>
+
+一周目全收集也升不满的，就是差十几个</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">那他狂月不让我继承是什么意思？
+
+如果我想保留一个普通难度一个狂月难度的完美存档，我需要打四周目？
+
