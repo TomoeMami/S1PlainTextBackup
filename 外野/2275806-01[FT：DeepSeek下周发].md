@@ -6032,3 +6032,21 @@ api的v4l好像不够1m上下文？<img src="https://static.stage1st.com/image/s
 
 小的又来了？
 
+
+*****
+
+####  overflowal  
+##### 553#       发表于 2026-4-23 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69527695&amp;ptid=2275806" target="_blank">azraelwang 发表于 2026-4-23 17:03</a>
+现在买官方API是不是得用手机号注册，还要实名认证啊？</blockquote>
+国内都要，不想实名你买国外部署的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  冤枉呐  
+##### 554#       发表于 2026-4-23 17:17
+
+感觉幻方是不是在建美股的空仓，准备炒一波
+
