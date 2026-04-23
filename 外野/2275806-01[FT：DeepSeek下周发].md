@@ -6630,3 +6630,11 @@ reasoner api 真是 v4 本体吗</blockquote>
 
 2.0版本埋了模型视觉能力相关的功能。我感觉v4可能不是text only的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  Promeus  
+##### 599#       发表于 2026-4-23 21:46
+
+app现在捞针完全过不了啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
