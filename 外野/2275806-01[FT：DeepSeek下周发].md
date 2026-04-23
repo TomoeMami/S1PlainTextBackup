@@ -6690,3 +6690,27 @@ api我试了下挺强的，但是只有128k
 
 <img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kassne  
+##### 605#       发表于 2026-4-23 22:48
+
+api直接对话上下文已经支持1m了，但是性能表现出来很垃圾
+
+
+*****
+
+####  王兰花秀丽  
+##### 606#       发表于 2026-4-23 22:52
+
+<img src="https://img.stage1st.com/forum/202604/23/224633vjds4bvz8dqvivdn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-23 22:46 上传
+
+逆了一下，2.0版本多了vision版本
+
