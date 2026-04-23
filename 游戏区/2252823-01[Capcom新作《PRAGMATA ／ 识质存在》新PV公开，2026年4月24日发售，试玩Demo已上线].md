@@ -3583,3 +3583,13 @@ VR任务确实比预料的好玩，而且能看出主线他们是真克制着做
 
 这么多优质的机甲还有外骨骼设定美术，不再出个续作复用感觉好浪费啊，就是关卡设计上还是青涩了一点，但未来可期了
 
+
+*****
+
+####  泰坦失足  
+##### 707#       发表于 2026-4-23 14:20
+
+[https://youtu.be/AXzKMWUrMY0?si=WBLVjNBA_iplE-tQ](https://youtu.be/AXzKMWUrMY0?si=WBLVjNBA_iplE-tQ) 提升《Pragmata》PS5 分辨率：如何以 1440p 而非标准的 1080p 分辨率畅玩游戏 
+
+从PS5Pro上开始游戏, 云同步到PS5标准版后就是1440p运行了. 上一个类似的Bug也是这游戏的Demo, 当时XSS先玩Demo后用XSX玩会把XSS版的图形设置同步到XSX上来. 所以这游戏难道开发的很匆忙吗.
+
