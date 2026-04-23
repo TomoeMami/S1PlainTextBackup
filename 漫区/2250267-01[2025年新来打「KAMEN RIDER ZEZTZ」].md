@@ -2545,3 +2545,13 @@ zzz居然在日本是低开么？国内口碑算高开了
 是说某位失忆症吗</blockquote>
 圣刃礼拜四歌查德这仨，圣刃出完远古龙以后死了两年，突然诈尸把最终和十剑士最后一个时剑补完，元素龙，冰狮子等重要形态就没啥指望了。礼拜四完结半年以后出了个恶魔套，现在还没复活。歌查德最幽默，完结当天出了个黎明就死了，当年魂展卫星就一个白金，搞得像极狐完结纪念似的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  milky658  
+##### 1319#       发表于 2026-4-23 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69527570&amp;ptid=2250267" target="_blank">洛克萨斯 发表于 2026-4-23 16:39</a>
+zzz居然在日本是低开么？国内口碑算高开了</blockquote>
+zzz在日本24集才起来的，之前从第一集开始热度就路边一条，到灾厄登场那集日推关联词“无聊”“看不懂”，几乎都是批评的。那会我看着都以为这部在本土要玩几把蛋了。现在风评系列中上我觉得还是有的
+
