@@ -5970,3 +5970,13 @@ V4月底就发，不管结果如何，这一枪已经上了膛。
 看看乐乐就行</blockquote>
 这特么是AI吃AI拉的屎写出来的浓缩屎    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  qz66618  
+##### 545#       发表于 2026-4-23 16:37
+
+DS发布一般都是晚上时间吧，我看微信公众号发的文章都是晚上，这次能有glm5.1水平吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

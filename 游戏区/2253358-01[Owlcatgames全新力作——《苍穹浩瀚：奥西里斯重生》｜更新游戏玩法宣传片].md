@@ -561,3 +561,16 @@ pf的两作比bg3还要早两年，你不如换成bg2，猫头鹰明显想做的
 
 —— 来自 HONOR ANY-AN00, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  wlhlz  
+##### 61#       发表于 2026-4-23 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69527546&amp;ptid=2253358" target="_blank">地方就是咖啡好 发表于 2026-4-23 16:35</a>
+
+pf的两作比bg3还要早两年，你不如换成bg2，猫头鹰明显想做的是生软第二。
+
+—— 来自 HONOR ANY-AN00, An ...</blockquote>
+拥王者我就是第一时间买的，扯什么博德2还是算了吧，自己去看看猫头鹰头猫这两年的一些访谈发言，就知道他们现在的发展方向是怎么来的了
+
