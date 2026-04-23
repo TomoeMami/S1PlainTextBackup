@@ -6139,3 +6139,34 @@ api的v4l好像不够1m上下文？<img src="https://static.stage1st.com/image/s
 
 github更新新东西了，要出来力    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  Promeus  
+##### 566#       发表于 2026-4-23 17:38
+
+准确来说目前这个只是有一定v4l特性的v3.2l来着<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只不过大家叫顺口了
+
+*****
+
+####  Promeus  
+##### 567#       发表于 2026-4-23 17:40
+
+用chatbox捞针一直转圈，怪<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LinkerWeg  
+##### 568#       发表于 2026-4-23 17:40
+
+真开智了，又问了遍海猫里面乘船渡河的问题，思考用时和GPT5.4差不多得出了正确的推断。
+
+*****
+
+####  Azcarlo  
+##### 569#       发表于 2026-4-23 17:43
+
+github上更了一个kernel库，tilelang写的
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
