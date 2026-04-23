@@ -640,3 +640,17 @@ pf的两作比bg3还要早两年，你不如换成bg2，猫头鹰明显想做的
 这游戏一直在挂广告推送，就想应该不会拖得太久</blockquote>
 已经预报了是明年春季啊
 
+
+*****
+
+####  地方就是咖啡好  
+##### 69#       发表于 2026-4-24 02:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69528555&amp;ptid=2253358" target="_blank">RTLordCaptain 发表于 2026-4-23 20:35</a>
+毛子其实在采访里说过他们并不想像拉瑞安一样举全社之力做一款3A级游戏，更想做多个2A，也就是现在这样
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还真让我翻到了，大不等于好，领头人还是清醒的。<img src="https://p.sda1.dev/32/c4dfbec97da9ec3a2454cc5334ef8c39/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR ANY-AN00, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
