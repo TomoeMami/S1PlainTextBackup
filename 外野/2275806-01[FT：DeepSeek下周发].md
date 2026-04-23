@@ -6218,3 +6218,26 @@ CUDA 工具包 13.1 或更高版本
 
 这次是真用了Engram和mHC啊，我觉得这两个算是跨越式创新了
 
+
+*****
+
+####  Promeus  
+##### 572#       发表于 2026-4-23 19:26
+
+<img src="https://p.sda1.dev/32/7528a7e250114fbfb540cca80dfc3d9c/image.jpg" referrerpolicy="no-referrer">
+蠕动了一下又睡了<img src="https://static.stage1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ycjiang1337  
+##### 573#       发表于 2026-4-23 19:29
+
+API好像稳定了，知识库是2025年5月
+
+*****
+
+####  羊寢  
+##### 574#       发表于 2026-4-23 19:30
+
+现在更了之后字数缩水好严重，还有掉格式的情况，写文的话会挺难受的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
