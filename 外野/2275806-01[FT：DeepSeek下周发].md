@@ -6622,3 +6622,11 @@ reasoner api 真是 v4 本体吗</blockquote>
 
 急急急急急急急急急急急急急
 
+
+*****
+
+####  overflowal  
+##### 598#       发表于 2026-4-23 21:36
+
+2.0版本埋了模型视觉能力相关的功能。我感觉v4可能不是text only的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
