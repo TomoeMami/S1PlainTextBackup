@@ -6170,3 +6170,43 @@ github上更了一个kernel库，tilelang写的
 
 — from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  德尔惠净水器  
+##### 570#       发表于 2026-4-23 17:54
+
+Tile Kernels
+
+基于 TileLang 构建的 LLM 运算优化 GPU 内核。TileLang 是一种领域特定语言，用于在 Python 中表达高性能 GPU 内核，具备易于迁移、敏捷开发和自动优化等特性。
+
+本项目中的大多数内核在计算强度和内存带宽方面已接近硬件性能极限。其中部分内核已应用于内部训练和推理场景。不过，它们并非最佳实践的代表，我们正在积极改进代码质量和文档。
+
+特性
+
+门控机制 — 混合专家模型路由中的 Top-k 专家选择与评分
+
+MoE 路由 — 令牌到专家的映射、融合扩展/归约以及权重归一化
+
+量化 — 逐令牌、逐块和逐通道的 FP8/FP4/E5M6 类型转换，包含融合的 SwiGLU + 量化操作
+
+转置 — 批量转置操作
+
+Engram — 融合 RMSNorm 的 Engram 门控内核，包含前向/反向传播及权重梯度归约
+
+流形超连接 — 包含 Sinkhorn 归一化及混合分裂/应用的超连接内核
+
+建模 — 高层级的 torch.autograd.Function 封装器，将底层内核组合为可训练的层（Engram 门控、mHC 流水线）
+
+要求
+
+Python 3.10 或更高版本
+
+PyTorch 2.10 或更高版本
+
+TileLang 0.1.9 或更高版本
+
+NVIDIA SM90 或 SM100 架构 GPU
+
+CUDA 工具包 13.1 或更高版本
+
