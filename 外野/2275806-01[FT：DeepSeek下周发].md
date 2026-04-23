@@ -6050,3 +6050,25 @@ api的v4l好像不够1m上下文？<img src="https://static.stage1st.com/image/s
 
 感觉幻方是不是在建美股的空仓，准备炒一波
 
+
+*****
+
+####  wesdrtfg  
+##### 555#       发表于 2026-4-23 17:19
+
+怎么deepseek还在仰卧起坐
+
+*****
+
+####  近距离作战  
+##### 556#       发表于 2026-4-23 17:20
+
+上午的时候API还是3.2，下午就变v4l了，是准备美股盘前发吗
+
+*****
+
+####  qz66618  
+##### 557#       发表于 2026-4-23 17:22
+
+就在今晚<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
