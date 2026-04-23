@@ -6604,3 +6604,21 @@ reasoner api 真是 v4 本体吗<img src="https://static.stage1st.com/image/smil
 reasoner api 真是 v4 本体吗</blockquote>
 不是，现在api甚至官网和app是什么版本官方都没有确切消息，所谓v4l或者v4都是用户自己的预测
 
+
+*****
+
+####  御坂MKII  
+##### 596#       发表于 2026-4-23 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69528680&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-4-23 21:11</a>
+
+不是，现在api甚至官网和app是什么版本官方都没有确切消息，所谓v4l或者v4都是用户自己的预测 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> opencode 更新出 bug 了，跑我的测试用例直接炸了，也没法测。躺平等奥特曼整活了
+
+*****
+
+####  奥柏伦亲王  
+##### 597#       发表于 2026-4-23 21:28
+
+急急急急急急急急急急急急急
+
