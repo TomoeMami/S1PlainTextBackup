@@ -6877,3 +6877,11 @@ DeepSeek这个模型迭代速度如果能拿前三那国外御三家都别干了
 我真的怀疑你们是不是活在平行世界里，现在上市的智谱和Minimax，没上市但是也风头正劲的Kimi，全都开源 ...</blockquote>
 还真有，买不起前面的人会用<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 我给同事推荐了八百遍GLM，就是不买，用豆包整着。
 
+
+*****
+
+####  忧郁的杰哥  
+##### 625#       发表于 2026-4-24 08:56
+
+前三？   就比国内那几家，前三都难说。。。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
