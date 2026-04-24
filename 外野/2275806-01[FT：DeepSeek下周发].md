@@ -9731,3 +9731,80 @@ gemini 已经这么人嫌狗厌了吗，我拿来当外网豆包用的</blockquo
 Gemini现在这么差吗，我记得半年前大家普遍还认为这是最好用的</blockquote>
 Gemini的特点是刚发的时候很惊艳，然后随着时间推移逐渐烂完
 
+
+*****
+
+####  ytrfegd  
+##### 903#       发表于 2026-4-24 16:37
+
+PRO的API写酒馆太奢侈了吧？写一篇可能大几十就出去了
+
+*****
+
+####  ycjiang1337  
+##### 904#       发表于 2026-4-24 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531978&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-4-24 15:23</a>
+
+vLLM-ascend（昇腾） 也 day-0 support 了，目前只支持 flash，A2 &amp; A3 系列产品都能用：https://docs.vllm ...</blockquote>
+昇腾950本身就是给DeepSeek设计的，其它家都没有使用混合精度训练，FP8和FP4算力基本上没卵用
+
+*****
+
+####  绝地潜兵  
+##### 905#       发表于 2026-4-24 16:39
+
+flash的注意力有问题，很容易出幻觉
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ayanamilin  
+##### 906#       发表于 2026-4-24 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532325&amp;ptid=2275806" target="_blank">ytrfegd 发表于 2026-4-24 16:37</a>
+
+PRO的API写酒馆太奢侈了吧？写一篇可能大几十就出去了</blockquote>
+还有集美拿Opus 4.7玩酒馆（是不是中转站不清楚），每月开销几千人民币的呢<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Litccc  
+##### 907#       发表于 2026-4-24 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532325&amp;ptid=2275806" target="_blank">ytrfegd 发表于 2026-4-24 16:37</a>
+PRO的API写酒馆太奢侈了吧？写一篇可能大几十就出去了</blockquote>
+不要小看鹿克啊<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a4ac7  
+##### 908#       发表于 2026-4-24 16:43
+
+<blockquote>1. 推理路径显著延长（深度思考能力）
+   模型在回答前会进行更长的内部推理链推演，类似 slow-thinking。背后是强化学习优化，模型在训练中获得了更强的多步逻辑验证和自我纠错能力。对算法题、数学证明、复杂 debug 场景帮助明显。
+
+2. 上下文窗口扩至 1M tokens
+支持超长上下文处理，一次可装入三体三部曲体量的文本。技术层面是位置编码和注意力机制的优化，长程依赖保持较好。你可以直接喂整个项目源码仓库、完整日志或长文档，定位具体问题。
+
+3. 联网搜索改为按需触发
+不再是自动检索，而是作为可选工具调用，通过界面开关激活。减少不必要的网络 I/O 和无关信息注入，同时也降低延迟。当需要实时数据时，你手动打开即可。
+
+4. 多模态理解聚焦于文本提取
+虽不支持端到端视觉像素理解，但对图片、PDF、Office 文档（Word/Excel/PPT）、txt 等进行了统一的文本抽取与结构化处理。本质上是将非纯文本输入转为 token 序列纳入上下文，适合处理报告、表格、合同、扫描件里的文字信息。
+
+5. 工程基础保持不变
+
+- 依旧无任何付费墙，API/Web 均可**
+- 对话数据默认不用于训练（可设置）
+- App 端支持语音输入（ASR 集成）
+
+---
+
+总结成一句：推理链更深、上下文更长、工具调用更可控。跑代码、审方案、读长文，现在更趁手。有具体场景想测，随时试。</blockquote>
+好<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
