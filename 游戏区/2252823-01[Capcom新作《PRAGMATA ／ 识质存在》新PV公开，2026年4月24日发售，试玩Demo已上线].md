@@ -3709,3 +3709,11 @@ yahzee对这游戏评价还很好 i didn't dislike it<img src="https://static.st
 
 植物园集装箱这两个老阴逼吓死我，没扫描的时候走路还会观察四周，自从有了扫描看到宝箱都是直奔目标，然后放松警惕就被阴了
 
+
+*****
+
+####  chris1987  
+##### 720#       发表于 2026-4-24 10:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">打到救EIGHT的蝎子boss,感觉后期hack的格子都好长，那个黏黏枪感觉也不实用，用手柄瞄准也好，破解也好都好累。。
+
