@@ -10404,3 +10404,26 @@ v4实测审核变严了，写刘备文被反复拒绝，申请次数过多还会
 
 感觉都可以自己拿ai写个对话客户端了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  羊寢  
+##### 966#       发表于 2026-4-24 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69533174&amp;ptid=2275806" target="_blank">wangandh 发表于 2026-4-24 20:12</a>
+我不明白
+
+为什么ds也pro和flash，命名方法学习哈基米的意义呢</blockquote>
+我也有点不能理解，另外下午刷到b站一个参与过内测的人视频说内测时pro的名字叫pandora
+
+*****
+
+####  杀人鲸  
+##### 967#       发表于 2026-4-24 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69533231&amp;ptid=2275806" target="_blank">m1grandmk1 发表于 2026-4-24 20:23</a>
+v4实测审核变严了，写刘备文被反复拒绝，申请次数过多还会屏蔽你的要求显示无法连接API ...</blockquote>
+在已经或者说之前已经聊过的对话里面，倒是可以继续生成。但感觉如果开新的对话的话，那么这样的要求大概就无法成功了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
