@@ -3692,3 +3692,20 @@ VR任务确实比预料的好玩，而且能看出主线他们是真克制着做
 
 VR模式倒是给了不少枪械的正式教学，但是常规图里还是手枪点一切<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 718#       发表于 2026-4-24 10:22
+
+yahzee对这游戏评价还很好 i didn't dislike it<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  jacket  
+##### 719#       发表于 2026-4-24 10:22
+
+植物园集装箱这两个老阴逼吓死我，没扫描的时候走路还会观察四周，自从有了扫描看到宝箱都是直奔目标，然后放松警惕就被阴了
+
