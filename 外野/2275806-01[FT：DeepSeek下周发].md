@@ -7776,3 +7776,131 @@ Agent 能力大幅提高：相比前代模型，DeepSeek-V4-Pro 的 Agent 能力
 
 梁老板啊梁老板<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狭义文具爱好者  
+##### 721#       发表于 2026-4-24 11:48
+
+经典问题开车50米去洗车店，现在v4会答：虽然50米短途开车因为热车不足，水温不够导致伤车，但是为了洗车还要开过去。
+
+论世界知识的进步。
+
+*****
+
+####  Rowen233  
+##### 722#       发表于 2026-4-24 11:48
+
+谷顺歌呢 3.1 最近幻觉太深了 总结个科技新闻都不少错误
+
+*****
+
+####  剑起苍斓  
+##### 723#       发表于 2026-4-24 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530925&amp;ptid=2275806" target="_blank">hujingjing 发表于 2026-4-24 11:40</a>
+刚无聊刷到新闻，打开网页问了下ds他是不是v4，他告诉我不是，然后我反手发了他们微信公众号的链接，他又说 ...</blockquote>
+都26年了，还在问这个问题。。。
+
+—— 来自 motorola XT2301-5, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  紧那罗  
+##### 724#       发表于 2026-4-24 11:50
+
+好像还顺便爆料了昇腾新卡下半年发<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  spaceblue  
+##### 725#       发表于 2026-4-24 11:51
+
+牛啊
+
+*****
+
+####  tillnight  
+##### 726#       发表于 2026-4-24 11:53
+
+<blockquote>狭义文具爱好者 发表于 2026-4-24 11:33
+还有个问题就是看鲸鱼娘怎么出订阅计划了，涨价后的价格不告code plan可太贵了 ...</blockquote>
+在目前买coding plan的都是会薅光羊毛的用户的前提下，各厂的订阅实际上都是赔本赚吆喝，唯一的好处是营收确实涨了，有利于股价或者估值，但这对ds是没有意义的，所以我认为不会有。退一万步讲，模型是开源的，提供订阅如果能赚钱，有的是二道贩子卖的，第三方没有提供coding plan说明这玩意经济上就是倒挂的。
+
+
+*****
+
+####  灰色的狐狸  
+##### 727#       发表于 2026-4-24 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530976&amp;ptid=2275806" target="_blank">紧那罗 发表于 2026-4-23 21:50</a>
+
+好像还顺便爆料了昇腾新卡下半年发
+
+论坛助手,iPhone</blockquote>
+950这个本来就预计是q3吧
+
+*****
+
+####  忧郁的杰哥  
+##### 728#       发表于 2026-4-24 11:54
+
+竟然不是多模态？
+
+*****
+
+####  木谷高明  
+##### 729#       发表于 2026-4-24 11:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530951&amp;ptid=2275806" target="_blank">谎称 发表于 2026-4-24 11:46</a>
+D指导一开源，全世界的模型是不是都能支持1M上下文了。。</blockquote>
+业界大多1M，记得哪家在ds发布前已经支持10M了
+
+*****
+
+####  findpkq  
+##### 730#       发表于 2026-4-24 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530893&amp;ptid=2275806" target="_blank">勿徊哉 发表于 2026-4-24 11:35</a>
+
+走claude路线那太合适了。
+
+多模态视频生成都是奇技淫巧，靠豆包啥的就行。 ...</blockquote>
+不一定是生成，多模态带来的能力是能直接作用在agent使用过程吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+我要仿一个图片/网页我可以直接甩截图，开发前端过程中可以直接用视觉能力自行检查再规划修改，自动调用浏览器上网时碰到极端情况agent还有办法自行操作，这些都离不开多模态
+
+*****
+
+####  爱护动物抓根宝  
+##### 731#       发表于 2026-4-24 11:56
+
+华为你行不行啊，这pro也也太贵了<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  闪雷可达鸭  
+##### 732#       发表于 2026-4-24 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530856&amp;ptid=2275806" target="_blank">cube 发表于 2026-4-24 11:30</a>
+
+试用了下，还行。
+
+但是就现在这个紧张的算力，怕不是并发太多后又会智商下降 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">ds是开源ai。那其他地方的也会铺开，分流吧？
+
+*****
+
+####  zris  
+##### 733#       发表于 2026-4-24 11:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">用了下V4 PRO
+
+感觉····好像没啥
+
+还是没R1那个文字内味
+
+我再试试
+
