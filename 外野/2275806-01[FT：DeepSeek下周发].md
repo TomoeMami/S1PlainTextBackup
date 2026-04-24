@@ -7111,3 +7111,83 @@ V3.2是缓存未命中的话输入2元每百万，输出3元每百万。
 
 flash 速度好快，太爽了，和 pi 一起用非常爽
 
+
+*****
+
+####  羊寢  
+##### 647#       发表于 2026-4-24 11:08
+
+妈的我今晚要去医院做核磁，华子真会选时间<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蒜苗  
+##### 648#       发表于 2026-4-24 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530696&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-4-24 11:08</a>
+妈的我今晚要去医院做核磁，华子真会选时间</blockquote>
+不用今晚啊，现在就可以API调用了
+
+*****
+
+####  Awanano  
+##### 649#       发表于 2026-4-24 11:13
+
+开源模型现在是压舱石还有人没寻思明白吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，所有现有的大模型要闭源你就不能比他还拉。其他国家想玩ai也不能闹了半天没ds好，ds这个开源就很有老中的味道，恰好不必做到最好最快最前端，但是始终能掌握局势
+国外oai反人类互蒸也没拉开多少差距，要是v4现在真是正统gpt5.4水平，留给其他人的空间又少了很多
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  qz66618  
+##### 650#       发表于 2026-4-24 11:15
+
+我看了一眼，怎么还有个Pro max版本，这个应该是最高的思考档位吧，感觉像是在卖手机<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  sellboy  
+##### 651#       发表于 2026-4-24 11:15
+
+报告里提了mHC、DSA，但是没有提Engram。
+
+*****
+
+####  Lorraine_Kinney  
+##### 652#       发表于 2026-4-24 11:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不管性能怎么样，DS每次都有好活
+
+*****
+
+####  noword  
+##### 653#       发表于 2026-4-24 11:16
+
+网页版是不是已经是v4flash了？
+
+*****
+
+####  drodchang  
+##### 654#       发表于 2026-4-24 11:17
+
+太好了，国内模型又要大幅提升了，deepseek真的功成不必在我，挺好的。
+
+*****
+
+####  Freewolf  
+##### 655#       发表于 2026-4-24 11:17
+
+ds真王朝了，还有之前不会真是华为拖了点后腿吧
+<img src="https://p.sda1.dev/32/59aa18fed417bf6223e8316a81b32de9/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  drodchang  
+##### 656#       发表于 2026-4-24 11:18
+
+想国内模型和美国闭源模型差距就3-5个月，其实已经没啥差距了。
+
