@@ -6856,3 +6856,24 @@ Opus 4.7不是说比4.6拉了吗
 
 这么看很难拿前三了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  qz66618  
+##### 623#       发表于 2026-4-24 08:45
+
+DeepSeek这个模型迭代速度如果能拿前三那国外御三家都别干了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  ymm1030  
+##### 624#       发表于 2026-4-24 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69528552&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-4-23 20:34</a>
+
+我真的怀疑你们是不是活在平行世界里，现在上市的智谱和Minimax，没上市但是也风头正劲的Kimi，全都开源 ...</blockquote>
+还真有，买不起前面的人会用<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 我给同事推荐了八百遍GLM，就是不买，用豆包整着。
+
