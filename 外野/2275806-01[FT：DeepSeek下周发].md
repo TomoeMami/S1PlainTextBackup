@@ -9344,3 +9344,22 @@ gemini 主要发布后一路 ...</blockquote>
 后训练不足是算力问题？
 底模是和高质量数据有关？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  无尽的牙刷  
+##### 866#       发表于 2026-4-24 14:39
+
+无缓存的输入有点贵啊，其他家基本都是输出的四分之一价钱
+
+*****
+
+####  羊寢  
+##### 867#       发表于 2026-4-24 14:41
+
+ 本帖最后由 羊寢 于 2026-4-24 14:42 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531677&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-4-24 14:29</a>
+现在deepseek是不分R1和V3了吗？V4就自己有开和关思考的方式，用的都是V4？</blockquote>
+官方r1在去年夏天v3.1出来后就不存在了啊……<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+现在官网api的原本reasoner/chat接口还保留着，得自行调用才有，7月底会撤掉，如果是直接用的话就是只有v4了
+
