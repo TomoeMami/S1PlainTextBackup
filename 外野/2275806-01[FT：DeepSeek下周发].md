@@ -10250,3 +10250,24 @@ v4flash感觉拉满reasoning_effort之后聪明不少<img src="https://static.st
 这种级别的模型个人电脑跑不起来的。</blockquote>
 flash倒是已经有MLX的量化版了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Su7  
+##### 951#       发表于 2026-4-24 19:16
+
+<blockquote>Rowen233 发表于 2026-4-24 19:03
+虽然我不想搞查身份
+
+但是有几个天天拿Mac能跑大模型吹开源ai的果系博主毫无动静是咋回事 ...</blockquote>
+在写文章批判笔电难大，勿扰。
+
+*****
+
+####  overflowal  
+##### 952#       发表于 2026-4-24 19:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532972&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-4-24 19:13</a>
+你可以看下 vllm-ascend 做适配的代码分支创建时间以及代码量，dsv4是在0.13上做适配的。昇腾推理引擎的 ...</blockquote>
+早期版本可能，训完不太可能，后面都能明显看到web端的模型在变。后训练肯定一直在进行    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
