@@ -6992,3 +6992,122 @@ https://b23.tv/ksArxYY
 
 pro和非pro版本区别是啥
 
+
+*****
+
+####  noword  
+##### 636#       发表于 2026-4-24 10:57
+
+pro是flash的12倍
+
+*****
+
+####  StrangerJ  
+##### 637#       发表于 2026-4-24 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530490&amp;ptid=2275806" target="_blank">SevenYuan23 发表于 2026-4-24 10:40</a>
+https://b23.tv/ksArxYY
+真是CANN？</blockquote>
+为啥我搜了下没这条？又删了？
+
+—— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Freewolf  
+##### 638#       发表于 2026-4-24 10:58
+
+抱脸虫模型卡已发
+[https://huggingface.co/deepseek-ai/DeepSeek-V4-Pro](https://huggingface.co/deepseek-ai/DeepSeek-V4-Pro)
+
+看上去能力和gpt-5.4相近
+
+
+*****
+
+####  木谷高明  
+##### 639#       发表于 2026-4-24 11:00
+
+ 本帖最后由 木谷高明 于 2026-4-24 11:03 编辑 
+
+<img src="https://p.sda1.dev/32/fe0efa5f6e45d600f4f85c614e46804e/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/32/3eb6c9b1125b2a9455871804268543cb/image.jpg" referrerpolicy="no-referrer">
+还行
+
+觉得贵的还是因为推理价格没下来，还有部分推理在用高价值的训练卡在跑
+
+*****
+
+####  SevenYuan23  
+##### 640#       发表于 2026-4-24 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530609&amp;ptid=2275806" target="_blank">StrangerJ 发表于 2026-4-24 10:57</a>
+为啥我搜了下没这条？又删了？
+
+—— 来自 OPPO PKU110, Android 16, 鹅球 v3.5.99</blockquote>
+不知道为啥删了
+
+—— 来自 OnePlus PLK110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  蒜苗  
+##### 641#       发表于 2026-4-24 11:03
+
+哦看到了，pro是1.6T参数的版本，flash是284B的
+
+*****
+
+####  nianiania  
+##### 642#       发表于 2026-4-24 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530625&amp;ptid=2275806" target="_blank">Freewolf 发表于 2026-4-24 10:58</a>
+抱脸虫模型卡已发
+
+https://huggingface.co/deepseek-ai/DeepSeek-V4-Pro
+
+看上去能力和gpt-5.4相近 ...</blockquote>
+希望代码能力能到gpt5.4，好想狠狠蹬起来
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  sellboy  
+##### 643#       发表于 2026-4-24 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530580&amp;ptid=2275806" target="_blank">Shibaobi 发表于 2026-4-24 10:53</a>
+
+怎么感觉涨价了，比原来贵不少</blockquote>
+V4L比3.2便宜
+
+V3.2是缓存未命中的话输入2元每百万，输出3元每百万。
+
+当然，V4比3.2贵。
+
+*****
+
+####  findpkq  
+##### 644#       发表于 2026-4-24 11:03
+
+[https://mp.weixin.qq.com/s/8bxXqS2R8Fx5-1TLDBiEDg](https://mp.weixin.qq.com/s/8bxXqS2R8Fx5-1TLDBiEDg)
+
+跑分不错，等一波测试
+
+*****
+
+####  Lorraine_Kinney  
+##### 645#       发表于 2026-4-24 11:04
+
+[https://huggingface.co/deepseek-ai/DeepSeek-V4-Pro](https://huggingface.co/deepseek-ai/DeepSeek-V4-Pro)技术报告
+
+
+*****
+
+####  lilod  
+##### 646#       发表于 2026-4-24 11:07
+
+flash 速度好快，太爽了，和 pi 一起用非常爽
+
