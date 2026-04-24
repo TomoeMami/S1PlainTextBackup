@@ -10427,3 +10427,26 @@ v4实测审核变严了，写刘备文被反复拒绝，申请次数过多还会
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  发呆的龙虾  
+##### 968#       发表于 2026-4-24 20:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69533231&amp;ptid=2275806" target="_blank">m1grandmk1 发表于 2026-4-24 20:23</a>
+v4实测审核变严了，写刘备文被反复拒绝，申请次数过多还会屏蔽你的要求显示无法连接API ...</blockquote>
+我用的第三方聚合站，没这个问题。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  革萌  
+##### 969#       发表于 2026-4-24 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69533231&amp;ptid=2275806" target="_blank">m1grandmk1 发表于 2026-4-24 20:23</a>
+
+v4实测审核变严了，写刘备文被反复拒绝，申请次数过多还会屏蔽你的要求显示无法连接API ...</blockquote>
+拉高温度
+
