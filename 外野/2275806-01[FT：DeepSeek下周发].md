@@ -6951,3 +6951,44 @@ https://b23.tv/ksArxYY
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Freewolf  
+##### 632#       发表于 2026-4-24 10:47
+
+<img src="https://img.stage1st.com/forum/202604/24/104714k287ws5k7sw282d6.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2026-04-24_10-47-00.png</strong> (158.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-24 10:47 上传
+
+官方文档已更新
+[https://api-docs.deepseek.com/zh-cn/quick_start/pricing](https://api-docs.deepseek.com/zh-cn/quick_start/pricing)
+
+
+*****
+
+####  Azcarlo  
+##### 633#       发表于 2026-4-24 10:50
+
+真来了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Shibaobi  
+##### 634#       发表于 2026-4-24 10:53
+
+怎么感觉涨价了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，比原来贵不少
+
+*****
+
+####  蒜苗  
+##### 635#       发表于 2026-4-24 10:54
+
+pro和非pro版本区别是啥
+
