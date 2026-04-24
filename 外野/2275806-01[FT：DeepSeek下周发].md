@@ -10349,3 +10349,27 @@ Possible values: [high, max]
 
 嗨呀，Chatbox没有调整reasoning_effort的地方 
 
+
+*****
+
+####  有鱼  
+##### 960#       发表于 2026-4-24 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69533119&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-4-24 19:58</a>
+嗨呀，Chatbox没有调整reasoning_effort的地方 
+
+这下得换到CherryStudio了……</blockquote>
+cherry studio可以通过自定义参数改，可惜ios上好像没有
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  wangandh  
+##### 961#       发表于 2026-4-24 20:12
+
+我不明白
+
+为什么ds也pro和flash，命名方法学习哈基米的意义呢
+
