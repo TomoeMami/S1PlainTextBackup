@@ -10823,3 +10823,31 @@ APP和网页版似乎还没更新？
 官网和app就是最新的啊
 不本地部署充几块钱用api就行(讲道理本地部署拿来玩的话也不够，而且现在也没法本地部署了)
 
+
+*****
+
+####  御姐贾  
+##### 995#       发表于 2026-4-24 23:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69533725&amp;ptid=2275806" target="_blank">有鱼 发表于 2026-4-24 22:30</a></blockquote>
+感谢，我以为那个上下文数拉满就行了呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  绝地潜兵  
+##### 996#       发表于 2026-4-24 23:19
+
+舒服了，思考调到MAX，flash比3.2灵动一大截
+
+可能也有cherry的影响，chatbox调用RAG直接报错<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  羊寢  
+##### 997#       发表于 2026-4-24 23:24
+
+某脑那边haruki刚才更新了预设，可以冲了<img src="https://static.stage1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
