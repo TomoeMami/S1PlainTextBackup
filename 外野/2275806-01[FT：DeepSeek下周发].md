@@ -9904,3 +9904,81 @@ pro和claude opus的api价格差多少啊？
 想问问大家调api的手机app都用的哪家    Re:Source</blockquote>
 chatbox，我觉得挺好用的
 
+
+*****
+
+####  发呆的龙虾  
+##### 919#       发表于 2026-4-24 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532464&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-4-24 17:03</a>
+等高手预设完善喽，才出来几个小时啊</blockquote>
+我都是自己写的提示词，没用酒馆预设。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BRA-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  卡普空  
+##### 920#       发表于 2026-4-24 17:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531943&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-4-24 15:15</a>
+
+下午四点昇腾要进行直播。DSV4 从训好到发布拖了这么长时间，很大一部分原因就是要跟华子做适配 ...</blockquote>
+这个国家任务了，国产大模型适配国产算力卡是硬性任务，希望华子不要拖梁总后腿
+
+
+*****
+
+####  有鱼  
+##### 921#       发表于 2026-4-24 17:09
+
+chatbox我也在用，但是目前好像没找到调整reasoning_effort参数的方法<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ytrfegd  
+##### 922#       发表于 2026-4-24 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532339&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-4-24 16:39</a>
+
+还有集美拿Opus 4.7玩酒馆（是不是中转站不清楚），每月开销几千人民币的呢 ...</blockquote>
+我也用过openrouter的opus4.5的api，那钱和流水一样，实在不是可接受的价格。如果deepseek的PRO能到1/6左右，我感觉还不错
+
+*****
+
+####  真红之闪电  
+##### 923#       发表于 2026-4-24 17:12
+
+代码能力如何？我kimi正好要充值了……还可以的话我换成v4pro
+
+还是再等2天？
+
+*****
+
+####  Rowen233  
+##### 924#       发表于 2026-4-24 17:13
+
+怎么感觉调用MCP的能力变差了<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Rowen233  
+##### 925#       发表于 2026-4-24 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532508&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-4-24 17:12</a>
+
+代码能力如何？我kimi正好要充值了……还可以的话我换成v4pro
+
+还是再等2天？ ...</blockquote>
+如果你的工作流里要调用MCP或者Skill的最好再等一等
+
+*****
+
+####  走来走去  
+##### 926#       发表于 2026-4-24 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531943&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-4-24 15:15</a>
+下午四点昇腾要进行直播。DSV4 从训好到发布拖了这么长时间，很大一部分原因就是要跟华子做适配 ...</blockquote>
+不是哦，原计划年前的，当时都准备好了，都已经定了日子。后来不知道什么原因又取消了，主要是知道的都有保密条例不会说。估计是梁文锋还想要更好的效果吧。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
