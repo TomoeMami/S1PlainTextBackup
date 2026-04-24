@@ -3717,3 +3717,11 @@ yahzee对这游戏评价还很好 i didn't dislike it<img src="https://static.st
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">打到救EIGHT的蝎子boss,感觉后期hack的格子都好长，那个黏黏枪感觉也不实用，用手柄瞄准也好，破解也好都好累。。
 
+
+*****
+
+####  scp073  
+##### 721#       发表于 2026-4-24 10:58
+
+服了，狂月乱点武器和bingo遭报应了，打最终boss没对策武器没点月丝炮，硬顶着二阶段闪红破解蹭了一个大招出来，究极折磨
+
