@@ -9399,3 +9399,28 @@ gemini 主要发布后一路 ...</blockquote>
 完全全文扔进去谁 ...</blockquote>
 用ds带着我读了读v4的技术文档，好像整个第二章都是在说是怎么实现超大上下文注意力的，很复杂
 
+
+*****
+
+####  兔灾2号  
+##### 871#       发表于 2026-4-24 15:09
+
+试着给了段梗概让v4写小说，虽然还是那个熟悉的味，但是味轻了不少
+
+
+*****
+
+####  蒜苗  
+##### 872#       发表于 2026-4-24 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531676&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-4-24 14:29</a>
+基于DeepSeek V4-Pro模型，在8K输入场景，昇腾950超节点可实现TPOT约20ms时单卡Decode 吞吐4700TPS。DeepSe ...</blockquote>
+怎么PRO比Flash速度还快？
+
+*****
+
+####  ayanamilin  
+##### 873#       发表于 2026-4-24 15:15
+
+下午四点昇腾要进行直播。DSV4 从训好到发布拖了这么长时间，很大一部分原因就是要跟华子做适配<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
