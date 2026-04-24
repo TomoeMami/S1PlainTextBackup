@@ -10321,3 +10321,31 @@ flash是对的，而且用起来感觉比gemini的flash/gpt的instant强多了<i
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  squallx  
+##### 958#       发表于 2026-4-24 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532929&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-4-24 19:03</a>
+
+虽然我不想搞查身份
+
+但是有几个天天拿Mac能跑大模型吹开源ai的果系博主毫无动静是咋回事 ...</blockquote>
+你不该先反省一下为什么会刷到这种弱智发的内容？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绝地潜兵  
+##### 959#       发表于 2026-4-24 19:58
+
+<blockquote>reasoning_effort
+
+string
+
+Possible values: [high, max]
+
+控制模型的推理强度。对普通请求，默认为 high。对一些复杂 Agent 类请求（如 Claude Code、OpenCode），自动设置为 max。出于兼容考虑 low、medium 会映射为 high, xhigh 会映射为 max。</blockquote>
+
+嗨呀，Chatbox没有调整reasoning_effort的地方 
+
