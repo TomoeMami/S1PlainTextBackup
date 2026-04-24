@@ -8409,3 +8409,102 @@ gemini本来就是人嫌狗厌了。国产模型都比它好用
 
 api炸了？用的人太多？
 
+
+*****
+
+####  Awanano  
+##### 779#       发表于 2026-4-24 12:28
+
+也没啥好挑的了，谷歌3.1p吃上下文多了甚至会影响后续调用基本工具，ppt/pdf都读不了，国外非黄色需求只能oai反人类二选一，考虑稳定性只有oai了
+国内智谱前几天才把老用户清理一波，嘴脸也没好到哪去，对企业线路也在耍滑头
+现在买这些套餐有点像去洗荤脚，就是买个服务态度开心就好，然后别洗一半封号把你送进去就行了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  villsian  
+##### 780#       发表于 2026-4-24 12:28
+
+deepseek没让人失望！
+
+吹个全球顶尖不过分吧。国产之光！！！
+
+*****
+
+####  StrangerJ  
+##### 781#       发表于 2026-4-24 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531109&amp;ptid=2275806" target="_blank">cube 发表于 2026-4-24 12:14</a>
+问题是拥有大算力的像字节一定部署的是自家的模型，能部署DS的其实还是那几家。
+
+不过好歹是出了，开源这 ...</blockquote>
+火山云提供ds的吧
+
+—— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ycjiang1337  
+##### 782#       发表于 2026-4-24 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530803&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-4-24 11:23</a>
+算力限制，等下半年昇腾 950 上来会降价吧</blockquote>
+现在应该是普通昇腾950在推，Q1刚刚出货
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  wiwiluo  
+##### 783#       发表于 2026-4-24 12:32
+
+忘记在哪看的了，950性能相当于h20的水平？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  ayanamilin  
+##### 784#       发表于 2026-4-24 12:34
+
+V4 pro 1.6T，flash 284B，1M 上下文，Pro 价格 ￥12/24，Flash 价格 ￥1/2
+
+新的 attention 架构 + mHC + Muon 优化器
+
+另外还有 DeepSeek V4 Pro-Max 版本，我猜测已经达到 Opus 4.6 水准
+
+新的 attention 架构 CSA 应该是在 DSA 的基础上加上了压缩，从而拓展上下文长度。CSA 和 HCA 混用。
+
+这次的技术报告内容很多，不仅有模型架构上的设计，还有超级多 AI Infra 和 training 的干货。这次已经开源了 Tilelang 的 kernel，根据报告的丰富度来看，后续可能还会开源别的东西。
+
+*****
+
+####  库德里尔  
+##### 785#       发表于 2026-4-24 12:35
+
+什么时候v4promax级别的模型能下到民用级别啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qaz121  
+##### 786#       发表于 2026-4-24 12:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531109&amp;ptid=2275806" target="_blank">cube 发表于 2026-4-24 12:14</a>
+问题是拥有大算力的像字节一定部署的是自家的模型，能部署DS的其实还是那几家。
+
+不过好歹是出了，开源这 ...</blockquote>
+字节的火山现在其实也部署GLM 5.1了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  →熙←  
+##### 787#       发表于 2026-4-24 12:38
+
+没有pro max吧,是pro的模型开了max的推理
+
