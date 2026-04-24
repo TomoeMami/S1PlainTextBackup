@@ -3240,3 +3240,15 @@ ULT机体部分开限界突破了
 
 新号狗粮严重不足 ，打不过攻略战，打不过元祖高难挑战
 
+
+*****
+
+####  acg_gyanc  
+##### 4090#       发表于 2026-4-24 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69526939&amp;ptid=2071758" target="_blank">Xekueins 发表于 2026-4-23 14:29</a>
+没抽OOR的我已经只敢吃15w低保了</blockquote>
+oor自己进攻方有没有其实问题不大，主要这玩意在对面基本就很难拿回合分了，纯毒瘤……<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

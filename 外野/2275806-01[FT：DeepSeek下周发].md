@@ -9688,3 +9688,46 @@ https://github.com/victorchen96/deepseek_v4_rolepaly_instruct/blob/main/README.m
 
 在播了          
 
+
+*****
+
+####  Geronimo  
+##### 899#       发表于 2026-4-24 16:25
+
+这个直播都是是昇腾的人？
+
+
+*****
+
+####  ycjiang1337  
+##### 900#       发表于 2026-4-24 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531397&amp;ptid=2275806" target="_blank">ff2077 发表于 2026-4-24 13:21</a>
+
+有没有试过写小说的，flash能用吗
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+可以用，但是容易忘设定，另外需要调教Prompt
+
+Pro好很多
+
+*****
+
+####  ycjiang1337  
+##### 901#       发表于 2026-4-24 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531377&amp;ptid=2275806" target="_blank">whzfjd 发表于 2026-4-24 13:16</a>
+
+gemini 已经这么人嫌狗厌了吗，我拿来当外网豆包用的</blockquote>
+以前2.5-Pro是唯一能用的1M上下文模型，结果3.x大开倒车
+
+*****
+
+####  ycjiang1337  
+##### 902#       发表于 2026-4-24 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531598&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-4-24 14:14</a>
+
+Gemini现在这么差吗，我记得半年前大家普遍还认为这是最好用的</blockquote>
+Gemini的特点是刚发的时候很惊艳，然后随着时间推移逐渐烂完
+
