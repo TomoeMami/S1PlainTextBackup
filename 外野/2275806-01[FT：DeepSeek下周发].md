@@ -10916,3 +10916,13 @@ APP和网页版似乎还没更新？
 —— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99</blockquote>
 哪天确认了是国产卡训练出来的才可能跌
 
+
+*****
+
+####  飛霞精灵  
+##### 1004#       发表于 2026-4-25 01:59
+
+一晚上试验了一下，感觉就是分析文本上下文能力都变高了，但幻觉似乎也高了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但总体输出的熨帖程度和理解力好了很多。
+
