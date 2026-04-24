@@ -8105,3 +8105,244 @@ windsurf还可以白嫖
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  czhhws  
+##### 751#       发表于 2026-4-24 12:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531057&amp;ptid=2275806" target="_blank">谎称 发表于 2026-4-24 12:06</a>
+下面可以期待V4正式版了。。
+
+年底？</blockquote>
+不至于，7月-8月吧，因为其他接口在7月要弃用。
+
+—— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  dark_saber  
+##### 752#       发表于 2026-4-24 12:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531053&amp;ptid=2275806" target="_blank">ml1642879 发表于 2026-4-24 12:05</a>
+鲸鱼娘醒了，但还是告诉我拿着5米的竹竿还是无法通过3米高2米宽的门的
+
+Re:Source · Xiaomi 15 ...</blockquote>
+<img src="https://p.sda1.dev/32/fec1d2ad8fadd5ee3af450d24d1310be/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX5010, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  三度音  
+##### 753#       发表于 2026-4-24 12:09
+
+以前v3翻译一个4万行左右对话的rpg游戏大概也就4~8块钱。
+
+今天v4试了一下，烧了20块钱了还没有翻译完
+
+*****
+
+####  ml1642879  
+##### 754#       发表于 2026-4-24 12:09
+
+<img src="https://img.stage1st.com/forum/202604/24/120843uuupxekbbef6xpkn.png" referrerpolicy="no-referrer">
+
+<strong>1000005912.png</strong> (80.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-24 12:08 上传
+
+感谢大A，感谢标普，感谢纳指，感谢道指
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
+
+*****
+
+####  木谷高明  
+##### 755#       发表于 2026-4-24 12:10
+
+ 本帖最后由 木谷高明 于 2026-4-24 12:12 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531063&amp;ptid=2275806" target="_blank">勿徊哉 发表于 2026-4-24 12:07</a>
+那我感觉还是华为全责。估计识图太占显存了吧，你看文字都有百万上下文，识图可没有能吃1000张图片的。   ...</blockquote>
+现在HBM全球短缺，没显存也造不出卡，而且先进制程的都在三星海力士镁光三家
+
+甚至有人拿国外芯片封装HBM，运到国内再焊下来绕路的
+
+真的能把推理成本降下来的是英伟达收购的LPU，纯推理舍弃计算功能。就像n卡专业计算卡内部没有显示计算单元一样。
+
+*****
+
+####  勿徊哉  
+##### 756#       发表于 2026-4-24 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531066&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-4-24 12:08</a>
+话说菊花这昇腾系列到底是谁给代工的？这么大产能不可能一点风声都没有啊
+
+—— 来自 HUAWEI SGU-AL10, And ...</blockquote>
+国内就这点需求，真没多少。估计一个厂两条线就搞定了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  mitzvah  
+##### 757#       发表于 2026-4-24 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531040&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-4-24 12:03</a>
+
+https://llm2014.github.io/llm_benchmark/#category=code_v3&amp;dataset=code_v3%7C2026-04%7C0
+
+民间测试 ...</blockquote>
+这东西1m上下文，而且kv缓存小的不可思议，优势太大了
+
+*****
+
+####  big9999  
+##### 758#       发表于 2026-4-24 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531066&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-4-24 12:08</a>
+话说菊花这昇腾系列到底是谁给代工的？这么大产能不可能一点风声都没有啊
+
+—— 来自 HUAWEI SGU-AL10, And ...</blockquote>
+不看港股么，华虹和中芯同一时间旱地拔葱了
+
+*****
+
+####  drodchang  
+##### 759#       发表于 2026-4-24 12:14
+
+kimi 2.6，glm 5.1的参数分别是1T和754B，V4这种1.6T真的是巨大飞跃
+
+
+*****
+
+####  ml1642879  
+##### 760#       发表于 2026-4-24 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531074&amp;ptid=2275806" target="_blank">dark_saber 发表于 2026-4-24 12:09</a>
+—— 来自 realme RMX5010, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+我提问之后它思考了半天都说不行，然后我说出答案它又思考了半天说确实，还真是<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
+
+
+*****
+
+####  谎称  
+##### 761#       发表于 2026-4-24 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531076&amp;ptid=2275806" target="_blank">ml1642879 发表于 2026-4-24 12:09</a>
+
+感谢大A，感谢标普，感谢纳指，感谢道指
+
+Re:Source · Xiaomi 15</blockquote>
+梁老师，伟大！
+
+*****
+
+####  cube  
+##### 762#       发表于 2026-4-24 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531010&amp;ptid=2275806" target="_blank">闪雷可达鸭 发表于 2026-4-24 11:56</a>
+
+ds是开源ai。那其他地方的也会铺开，分流吧？</blockquote>
+问题是拥有大算力的像字节一定部署的是自家的模型，能部署DS的其实还是那几家。
+
+不过好歹是出了，开源这块还是需要有DS这样的能咬住闭源模型的脚步的存在，不然那几家迟早又是要坑人。
+
+*****
+
+####  蒜苗  
+##### 763#       发表于 2026-4-24 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531081&amp;ptid=2275806" target="_blank">木谷高明 发表于 2026-4-24 12:10</a>
+现在HBM全球短缺，没显存也造不出卡，而且先进制程的都在三星海力士镁光三家
+
+甚至有人拿国外芯片封装HBM ...</blockquote>
+长鑫什么时候开始造显存<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Su7  
+##### 764#       发表于 2026-4-24 12:15
+
+<blockquote>ml1642879 发表于 2026-4-24 12:09
+感谢大A，感谢标普，感谢纳指，感谢道指
+
+Re:Source · Xiaomi 15</blockquote>
+还好吧，这是开源的，可以自己部署一个，又不是 A 畜。
+
+*****
+
+####  燕山雪  
+##### 765#       发表于 2026-4-24 12:15
+
+发现之前还有十几块钱api没用完……话说以前api订阅价多少来着？相比之下flash算涨价了吗
+
+*****
+
+####  Awanano  
+##### 766#       发表于 2026-4-24 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531038&amp;ptid=2275806" target="_blank">敏感 发表于 2026-4-24 12:03</a>
+顺道问一下，我现在用的中转API站，claude sonnet限流蛮严重的，让它读代码写文档，输入长一点，都经常报错 ...</blockquote>
+闭源套餐体验肯定是oai的plus，折合下来人民币100多，好像还有邪道能支付的更便宜
+中转站继续找opus/sonnet按量付费用
+oai很难直观从结果水平推测中转站是不是给你注水了，所以我推荐直接买
+我之前看到这个价格和pro只要折合600-700人民币就知道现在这些套餐都是赚吆喝的，用得多很难亏
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  chuchoselph  
+##### 767#       发表于 2026-4-24 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530965&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-4-24 11:48</a>
+
+谷顺歌呢 3.1 最近幻觉太深了 总结个科技新闻都不少错误</blockquote>
+等下个月IO了，看有没有gemini 4
+
+*****
+
+####  drodchang  
+##### 768#       发表于 2026-4-24 12:16
+
+glm 5.1已经是全华为芯片训练了，V4用华为芯片训练也没啥大不了的
+
+*****
+
+####  谎称  
+##### 769#       发表于 2026-4-24 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531121&amp;ptid=2275806" target="_blank">燕山雪 发表于 2026-4-24 12:15</a>
+
+发现之前还有十几块钱api没用完……话说以前api订阅价多少来着？相比之下flash算涨价了吗 ...</blockquote>
+flash还降了。。
+
+*****
+
+####  mitzvah  
+##### 770#       发表于 2026-4-24 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531109&amp;ptid=2275806" target="_blank">cube 发表于 2026-4-24 12:14</a>
+
+问题是拥有大算力的像字节一定部署的是自家的模型，能部署DS的其实还是那几家。
+
+不过好歹是出了，开源这 ...</blockquote>
+284B这个，部署起来门槛不高吧，量化到q4后才，150g左右，按照ppt的kv缓存占用只要170g内存就能跑1兆上下文，这超爽的
+
+*****
+
+####  忧郁的杰哥  
+##### 771#       发表于 2026-4-24 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531076&amp;ptid=2275806" target="_blank">ml1642879 发表于 2026-4-24 12:09</a>
+
+感谢大A，感谢标普，感谢纳指，感谢道指
+
+Re:Source · Xiaomi 15</blockquote>
+去年开会那个宇树的老板竟然位置比梁老板还靠前
+
+让人目瞪口呆
+
