@@ -2578,3 +2578,16 @@ zzz在日本24集才起来的，之前从第一集开始热度就路边一条，
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  黑暗之眼  
+##### 1322#       发表于 2026-4-24 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531800&amp;ptid=2250267" target="_blank">一个陆仁贾 发表于 2026-4-24 14:49</a>
+
+看来令和目前只有圣刃和zzz口碑好不是没有原因的
+
+—— 来自 vivo V2419A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+国内口味异于常人是这样的
+
