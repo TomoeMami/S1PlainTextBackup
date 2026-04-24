@@ -10461,3 +10461,33 @@ v4实测审核变严了，写刘备文被反复拒绝，申请次数过多还会
 拉高温度</blockquote>
 你拉到多少温度？超过0.5就慌得一批
 
+
+*****
+
+####  革萌  
+##### 971#       发表于 2026-4-24 21:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69533430&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-4-24 21:07</a>
+
+你拉到多少温度？超过0.5就慌得一批</blockquote>
+1.8<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  overflowal  
+##### 972#       发表于 2026-4-24 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69533430&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-4-24 21:07</a>
+你拉到多少温度？超过0.5就慌得一批</blockquote>
+现在官方正常就推荐1.0。你这0.5慌啥    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  流缨  
+##### 973#       发表于 2026-4-24 21:24
+
+拿hermes接了flash用，感觉非常不错啊。速度快，理解能力也不差
+
+执行了一个扫码登录小红书的任务，来回几轮最后也就花了我1块，感觉完全可以替代gpt
+
