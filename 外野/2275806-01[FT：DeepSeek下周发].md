@@ -6848,3 +6848,11 @@ GPT 5.5更了，全面碾压Opus 4.7，v4压力更大了<img src="https://static
 GPT 5.5更了，全面碾压Opus 4.7，v4压力更大了</blockquote>
 Opus 4.7不是说比4.6拉了吗
 
+
+*****
+
+####  王兰花秀丽  
+##### 622#       发表于 2026-4-24 08:32
+
+这么看很难拿前三了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
