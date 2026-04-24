@@ -9623,3 +9623,25 @@ https://github.com/victorchen96/deepseek_v4_rolepaly_instruct/blob/main/README.m
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  德尔惠净水器  
+##### 893#       发表于 2026-4-24 16:02
+
+<img src="https://img.stage1st.com/forum/202604/24/160214sa2aaattpxmttacr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260424_160203.jpg</strong> (244.98 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-4-24 16:02 上传
+
+*****
+
+####  羊寢  
+##### 894#       发表于 2026-4-24 16:04
+
+现在没法玩，问下pro的max酒馆里面要怎么调？
+
