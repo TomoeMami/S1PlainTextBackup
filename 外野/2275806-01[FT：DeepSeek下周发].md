@@ -10396,3 +10396,11 @@ v4实测审核变严了，写刘备文被反复拒绝，申请次数过多还会
 
 客户端可以试试 Kelivo，windows/linux/mac/android/ios
 
+
+*****
+
+####  Systemcivil  
+##### 965#       发表于 2026-4-24 20:35
+
+感觉都可以自己拿ai写个对话客户端了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
