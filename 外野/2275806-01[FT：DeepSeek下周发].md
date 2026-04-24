@@ -7191,3 +7191,272 @@ ds真王朝了，还有之前不会真是华为拖了点后腿吧
 
 想国内模型和美国闭源模型差距就3-5个月，其实已经没啥差距了。
 
+
+*****
+
+####  oopsoops  
+##### 657#       发表于 2026-4-24 11:18
+
+我去，真发了，1000楼以内都是前排
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  狭义文具爱好者  
+##### 658#       发表于 2026-4-24 11:18
+
+ 本帖最后由 狭义文具爱好者 于 2026-4-24 11:22 编辑 
+
+稍微不及预期，早发俩月会好很多，但是也算够用了。
+
+华子真拖后腿啊。
+
+中文写作看文档，功能性写作强于gemini3.1，指令遵循高，长文多轮对话弱但不明显弱于4.5opus，这么看是比较适合酒馆的
+
+*****
+
+####  scg2017  
+##### 659#       发表于 2026-4-24 11:18
+
+pro只是模型名字，max应该是指把思考预算拉满。
+分数好像和国内其他公司也没拉开差距，但是deepseek本身是不怎么刷分的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  蒜苗  
+##### 660#       发表于 2026-4-24 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530732&amp;ptid=2275806" target="_blank">sellboy 发表于 2026-4-24 11:15</a>
+报告里提了mHC、DSA，但是没有提Engram。</blockquote>
+确实没有Engram，难道是还没适配好？
+
+*****
+
+####  蒜苗  
+##### 661#       发表于 2026-4-24 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530748&amp;ptid=2275806" target="_blank">Freewolf 发表于 2026-4-24 11:17</a>
+ds真王朝了，还有之前不会真是华为拖了点后腿吧</blockquote>
+华子怎么回事，关键时候拉胯了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 662#       发表于 2026-4-24 11:20
+
+<blockquote>noword 发表于 2026-4-24 11:16
+网页版是不是已经是v4flash了？</blockquote>
+快速模式对应flash，专家模式对应pro
+
+*****
+
+####  Gir4ff3  
+##### 663#       发表于 2026-4-24 11:20
+
+终于来了，Cherry Studio刷新了一下就出新模型了
+
+*****
+
+####  qz66618  
+##### 664#       发表于 2026-4-24 11:21
+
+这个已经超出我的预期了，原本想着能和glm和kimi持平已经很强了，只看跑分没想到还是要比他俩强上一些，主要是1M的上下文也是很大的一种优势啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  drodchang  
+##### 665#       发表于 2026-4-24 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530784&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-4-24 11:21</a>
+
+这个已经超出我的预期了，原本想着能和glm和kimi持平已经很强了，只看跑分没想到还是要比他俩强上一些，主 ...</blockquote>
+无所谓，ds明显和其他公司不是一路的
+
+*****
+
+####  zris  
+##### 666#       发表于 2026-4-24 11:23
+
+过年前发会很好
+
+现在发也还行吧
+
+主要是想着价格能把老美三个出生打下来
+
+没想到pro还挺贵的
+
+先凑合吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FeteFrumoase  
+##### 667#       发表于 2026-4-24 11:23
+
+公司这边已经发了论文了
+
+就是不知道有没有人组织分析了
+
+*****
+
+####  Rowen233  
+##### 668#       发表于 2026-4-24 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530795&amp;ptid=2275806" target="_blank">zris 发表于 2026-4-24 11:23</a>
+
+过年前发会很好
+
+现在发也还行吧</blockquote>
+算力限制，等下半年昇腾 950 上来会降价吧
+
+*****
+
+####  Awanano  
+##### 669#       发表于 2026-4-24 11:23
+
+朋友用起来感觉agent调用工具有4.6的手感，还能说啥呢
+
+今天一天5.5和V4，反人类王朝了三个月后光速进入路边一条的时间段了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+QU@1]`4)65]P{@(_~}YS`VQ.jpg
+(133.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-24 11:22 上传
+
+<img src="https://img.stage1st.com/forum/202604/24/112204ba0q0z3whu8wepsw.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Rowen233  
+##### 670#       发表于 2026-4-24 11:24
+
+还没多模态可惜了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  羊寢  
+##### 671#       发表于 2026-4-24 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530772&amp;ptid=2275806" target="_blank">蒜苗 发表于 2026-4-24 11:19</a>
+华子怎么回事，关键时候拉胯了</blockquote>
+去年3.2正式版出来前就一直在说华子拖了鲸鱼娘后腿了
+
+*****
+
+####  novem  
+##### 672#       发表于 2026-4-24 11:24
+
+<blockquote>noword 发表于 2026-4-24 11:16
+网页版是不是已经是v4flash了？</blockquote>
+知识库时间还是没变化啊，估计还是老的
+
+*****
+
+####  scstriker  
+##### 673#       发表于 2026-4-24 11:25
+
+请问有人说一下本地部署情况吗？
+
+*****
+
+####  _47  
+##### 674#       发表于 2026-4-24 11:25
+
+开源SOTA了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  人形玩偶  
+##### 675#       发表于 2026-4-24 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530748&amp;ptid=2275806" target="_blank">Freewolf 发表于 2026-4-24 11:17</a>
+
+ds真王朝了，还有之前不会真是华为拖了点后腿吧</blockquote>
+是，为了适配拖了2个月
+
+*****
+
+####  德尔惠净水器  
+##### 676#       发表于 2026-4-24 11:25
+
+公众号发文了
+
+<img src="https://img.stage1st.com/forum/202604/24/112544gjraubwruq8r8auc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260424_112537.jpg</strong> (191.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-4-24 11:25 上传
+
+*****
+
+####  tillnight  
+##### 677#       发表于 2026-4-24 11:25
+
+<blockquote>蒜苗 发表于 2026-4-24 11:19
+华子怎么回事，关键时候拉胯了</blockquote>
+这属于没看懂，因为之前国产芯片是没有fp8的，所以满血v4目前只能调用有限的英伟达较新的芯片，所以算力有限。950是首批国产支持fp8的算力卡，大规模出货后肯定能缓解算力紧张问题，之前就是预计二季度开始出货，部署基本上都要下半年，本来也是赶不上的。
+
+*****
+
+####  Vneeto  
+##### 678#       发表于 2026-4-24 11:26
+
+嗯？v4真来了吗？
+
+*****
+
+####  findpkq  
+##### 679#       发表于 2026-4-24 11:26
+
+跑华子上有这个表现属于远超预期了，国内御三家再一起共同进步下，下半年说不准有便宜大碗的opus级别模型用就真王朝了<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Tomek  
+##### 680#       发表于 2026-4-24 11:26
+
+不得不品鉴了
+
+—— 来自 HUAWEI VYG-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Rowen233  
+##### 681#       发表于 2026-4-24 11:27
+
+奥特曼会不会重置额度<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈利谢顿  
+##### 682#       发表于 2026-4-24 11:27
+
+<img src="https://img.stage1st.com/forum/202604/24/112758oe6eqgmdm32m6dp2.png" referrerpolicy="no-referrer">
+
+<strong>C90CD65F34A2B830106A15FB0DF0132E.png</strong> (238.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-4-24 11:27 上传
+
+*****
+
+####  shqingda_  
+##### 683#       发表于 2026-4-24 11:28
+
+这下各大公司欢度五一了<img src="https://static.stage1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
