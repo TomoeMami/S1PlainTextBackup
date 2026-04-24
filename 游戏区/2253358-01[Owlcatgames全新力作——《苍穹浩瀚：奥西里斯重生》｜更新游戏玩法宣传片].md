@@ -654,3 +654,14 @@ pf的两作比bg3还要早两年，你不如换成bg2，猫头鹰明显想做的
 
 —— 来自 HONOR ANY-AN00, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  wgoenitz  
+##### 70#       发表于 2026-4-24 09:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69528508&amp;ptid=2253358" target="_blank">byisme001 发表于 2026-4-23 20:20</a>
+
+去补美剧发现第一季以前还看过 质感还不错 但现在实在静不下心补了 看看解说了 ...</blockquote>
+这剧第一季平庸，二三季优秀，其他的不看也罢，后面烂尾了
+
