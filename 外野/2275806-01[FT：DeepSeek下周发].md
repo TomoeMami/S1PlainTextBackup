@@ -9498,3 +9498,65 @@ https://github.com/victorchen96/deepseek_v4_rolepaly_instruct/blob/main/README.m
 
 —— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  罗莉控  
+##### 881#       发表于 2026-4-24 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531696&amp;ptid=2275806" target="_blank">Azcarlo 发表于 2026-4-24 14:33</a>
+
+engram我觉得不好说，知乎上看到有人在小模型上复现结果不是太好，只是一个模型提点trick，没有想象中那么 ...</blockquote>
+感觉Engram还是得配合类似HBF这类极度优化读取带宽的新型硬件，目前硬件上Engram优势不大
+
+*****
+
+####  spck  
+##### 882#       发表于 2026-4-24 15:38
+
+所以菊花没有自家大模型虽然是个问题但也不是很大的问题，大不了直接抱ds大腿，生态足够了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zy450  
+##### 883#       发表于 2026-4-24 15:39
+
+最近人员变动比较大，希望不要影响DS后续研发
+
+*****
+
+####  qz66618  
+##### 884#       发表于 2026-4-24 15:39
+
+回过头看，如果真的是因为算力导致训练拖延，原计划春节期间发布，那ds目前仍然保持着第一梯队的科研实力啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qwased  
+##### 885#       发表于 2026-4-24 15:39
+
+<img src="https://img.stage1st.com/forum/202604/24/153923qkzdqqs3d097902d.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2026-04-24_15-39-05.jpg</strong> (280.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-24 15:39 上传
+
+问他怎么分橘子他会一直思考怎么才能一刀砍死多个小朋友<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  厍无春  
+##### 886#       发表于 2026-4-24 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531645&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-4-24 14:23</a>
+看技术报告这次没有用到engram啊，技术不成熟还是什么原因
+
+—— 来自 鹅球 v3.5.99 ...</blockquote>
+预览版，等更新吧
+
