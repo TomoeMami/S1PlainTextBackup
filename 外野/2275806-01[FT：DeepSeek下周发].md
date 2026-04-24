@@ -10271,3 +10271,22 @@ flash倒是已经有MLX的量化版了<img src="https://static.stage1st.com/imag
 你可以看下 vllm-ascend 做适配的代码分支创建时间以及代码量，dsv4是在0.13上做适配的。昇腾推理引擎的 ...</blockquote>
 早期版本可能，训完不太可能，后面都能明显看到web端的模型在变。后训练肯定一直在进行    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  ohi.02  
+##### 953#       发表于 2026-4-24 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532114&amp;ptid=2275806" target="_blank">糟糕喵 发表于 2026-4-24 15:49</a>
+网络上显然有这种讨论就自然收录进去了。</blockquote>
+这也太吓人了，万一接入了agent…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  奥柏伦亲王  
+##### 954#       发表于 2026-4-24 19:31
+
+又用了会flash，感觉这个东西是真正的强大，速度无敌快，还很便宜
+
