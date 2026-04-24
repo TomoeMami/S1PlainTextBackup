@@ -8893,3 +8893,35 @@ v4-pro应该是还欠后训练，应该再等一下。    Re:Source</blockquot
 gemini 已经这么人嫌狗厌了吗，我拿来当外网豆包用的</blockquote>
 算力严重不足，还瞎到处jb送pro，最近api都变弱智了，真想一拳打爆谷歌
 
+
+*****
+
+####  AEmpire  
+##### 823#       发表于 2026-4-24 13:38
+
+接 cc 试用了一下 pro，确实还可以。赶紧出 coding plan 吧，我要站起来蹬 <img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  88316756  
+##### 824#       发表于 2026-4-24 13:43
+
+还有这次的1m上下文，可以说是最大的亮点之一，不要拿去年那些老模型的什么1M 2M的上下文来说事，那些只是开放了上下文窗口，实际注意力一坨，根本不能用。
+
+这次V4的mrcr仅次于4.6o和刚发布的GPT 5.5，了，像4.6o 200K以上的上下文还要额外付费，到了4.7注意力还倒退了。而v4这次的新技术成本降低太多太多了，基本上是目前唯三可用的1m上下文模型。
+
+*****
+
+####  JRPG  
+##### 825#       发表于 2026-4-24 13:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531397&amp;ptid=2275806" target="_blank">ff2077 发表于 2026-4-24 13:21</a>
+
+有没有试过写小说的，flash能用吗
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+长篇写小说无论是哪个模型，都会注意力涣散，就跟韩寒似的，写着写着角色竟然丢一个！？我觉得这个事情短时间内无解
+
+我自己玩都得是自己提供框架，自己记着谁该怎么了，提示给大模型让它们写
+
