@@ -9808,3 +9808,48 @@ PRO的API写酒馆太奢侈了吧？写一篇可能大几十就出去了</blockq
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  stanzgy  
+##### 909#       发表于 2026-4-24 16:47
+
+瞄了眼 /r/localllama 全是ds v4和 qwen 3.6。ds啥都好就是模型太大了很难本地部署。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  炽十二翼  
+##### 910#       发表于 2026-4-24 16:48
+
+华子要知耻啊，手机卖的贵就算了鸿蒙不支持很多app也忍了，ds的后腿再拖可不能忍啊
+
+
+*****
+
+####  spck  
+##### 911#       发表于 2026-4-24 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532127&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-4-24 15:52</a>
+建议直接把小艺换成DS，小艺实在是有点蠢</blockquote>
+小艺接的一直就是ds啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Izunu_3  
+##### 912#       发表于 2026-4-24 16:53
+
+pro和claude opus的api价格差多少啊？
+
+之前用过一阵opus 4.5玩酒馆，打的是真爽，可惜后面没羊毛就停了。
+
+*****
+
+####  发呆的龙虾  
+##### 913#       发表于 2026-4-24 16:54
+
+试了一下，flash不太行，状态栏都生成不出来。pro还行，就是文笔不够涩，估计得提示词去调。之前用kimi不用提示词都能写得很涩。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
