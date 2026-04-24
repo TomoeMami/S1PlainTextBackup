@@ -9017,3 +9017,71 @@ gemini 已经这么人嫌狗厌了吗，我拿来当外网豆包用的</blockquo
 
 —— 来自 HUAWEI WGRR-W19, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  勿徊哉  
+##### 835#       发表于 2026-4-24 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531520&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-4-24 13:55</a>
+思考链里面生成的心理活动怎么比输出的正文还生动，字数还多</blockquote>
+我特别喜欢ds这一点，比其他家故意把思考过程藏起来防止蒸馏要好太多了。
+而且有时候虽然回答不是我想要的，但是思考过程很有启发性。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  绝地潜兵  
+##### 836#       发表于 2026-4-24 14:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531536&amp;ptid=2275806" target="_blank">勿徊哉 发表于 2026-4-24 13:59</a>
+
+我特别喜欢ds这一点，比其他家故意把思考过程藏起来防止蒸馏要好太多了。
+
+而且有时候虽然回答不是我想要 ...</blockquote>
+不是这个问题，我发给哈基米分析，它说这简直是**“满级剧本”和“精简版预告片”**的区别。
+
+妹的，思考链里面不是思考过程，而是铺开了一部小电影……
+
+比3.2的时候夸张多了
+
+
+*****
+
+####  奥柏伦亲王  
+##### 837#       发表于 2026-4-24 14:06
+
+用手机app试了一下，体感比V3.2好多了，这下可以试着用d师傅当agent的基座了
+
+*****
+
+####  zris  
+##### 838#       发表于 2026-4-24 14:06
+
+ds要prompt约束
+
+不然很容易干燥
+
+gemini 3pro刚出来那会，巧思和段子不断
+
+拿来airp简直无敌
+
+现在若只的难以附加，所以···<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+谷出还是去死吧
+
+*****
+
+####  有鱼  
+##### 839#       发表于 2026-4-24 14:07
+
+谷顺歌真没活了不如咬个打火机<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  一般市民  
+##### 840#       发表于 2026-4-24 14:07
+
+我以前和Gemini说鲸鱼的时候，Gemini会吐槽鲸鱼喜欢过度推理炫技。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
