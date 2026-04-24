@@ -6915,3 +6915,39 @@ API适配这么久的么，网页端都弄完了呀<img src="https://static.stag
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  SevenYuan23  
+##### 629#       发表于 2026-4-24 10:40
+
+https://b23.tv/ksArxYY
+真是CANN？<img src="https://p.sda1.dev/32/e2a8950ed85cd380db60ae66cd972ccf/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PLK110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Freewolf  
+##### 630#       发表于 2026-4-24 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530490&amp;ptid=2275806" target="_blank">SevenYuan23 发表于 2026-4-24 10:40</a>
+https://b23.tv/ksArxYY
+真是CANN？</blockquote>
+！？难道说？！
+
+*****
+
+####  Lorraine_Kinney  
+##### 631#       发表于 2026-4-24 10:46
+
+<img src="https://img.stage1st.com/forum/202604/24/104604sytt43zyi33tol05.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (5.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-24 10:46 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
