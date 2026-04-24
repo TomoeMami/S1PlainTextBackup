@@ -10491,3 +10491,35 @@ v4实测审核变严了，写刘备文被反复拒绝，申请次数过多还会
 
 执行了一个扫码登录小红书的任务，来回几轮最后也就花了我1块，感觉完全可以替代gpt
 
+
+*****
+
+####  有鱼  
+##### 974#       发表于 2026-4-24 21:26
+
+这次更新感觉主力模型对我来说就是拉满reasoning_effort的flash啦<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+便宜大碗能力过关，还有超长上下文
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  小野賢章  
+##### 975#       发表于 2026-4-24 21:30
+
+我感觉gemini的世界知识还是很强的，ds的文章里也这么说的，用来闲聊很不错<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绝地潜兵  
+##### 976#       发表于 2026-4-24 21:32
+
+ 本帖最后由 绝地潜兵 于 2026-4-24 21:34 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69533480&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-4-24 21:19</a>
+
+现在官方正常就推荐1.0。你这0.5慌啥    Re:Source</blockquote>
+我用过第三方的算力缩水版，温度超过0.5回答就牛头不对马嘴，就怕嘴里吐出触手来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在V4F，温度0.5，才30K，就开始违反指令了 <blockquote>PERSPECTIVE_FORBIDDEN_REFERENCE: 他 .</blockquote>
+
