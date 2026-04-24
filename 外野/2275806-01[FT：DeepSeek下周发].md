@@ -9853,3 +9853,54 @@ pro和claude opus的api价格差多少啊？
 
 试了一下，flash不太行，状态栏都生成不出来。pro还行，就是文笔不够涩，估计得提示词去调。之前用kimi不用提示词都能写得很涩。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ayanamilin  
+##### 914#       发表于 2026-4-24 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532399&amp;ptid=2275806" target="_blank">Izunu_3 发表于 2026-4-24 16:53</a>
+
+pro和claude opus的api价格差多少啊？
+
+之前用过一阵opus 4.5玩酒馆，打的是真爽，可惜后面没羊毛就停了。 ...</blockquote>
+价格差约等于中美汇率差，DSV4 pro 乘以汇率就是 opus 的价格<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sza  
+##### 915#       发表于 2026-4-24 16:59
+
+我刚看昇腾cann直播第一部分好像ppt显示了部署v4需要的显存占用，我只瞄到一眼没截到图，可能是错觉。有楼友截图了吗？如果没有的话得等他们上传ppt和直播录像了。
+
+
+*****
+
+####  Rowen233  
+##### 916#       发表于 2026-4-24 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532127&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-4-24 15:52</a>
+
+建议直接把小艺换成DS，小艺实在是有点蠢</blockquote>
+小艺应该能切换DS吧
+
+*****
+
+####  千千千千鸟  
+##### 917#       发表于 2026-4-24 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532407&amp;ptid=2275806" target="_blank">发呆的龙虾 发表于 2026-4-24 16:54</a>
+
+试了一下，flash不太行，状态栏都生成不出来。pro还行，就是文笔不够涩，估计得提示词去调。之前用kimi不用 ...</blockquote>
+等高手预设完善喽，才出来几个小时啊
+
+*****
+
+####  ymm1030  
+##### 918#       发表于 2026-4-24 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532141&amp;ptid=2275806" target="_blank">脸宽 发表于 2026-4-24 15:55</a>
+
+想问问大家调api的手机app都用的哪家    Re:Source</blockquote>
+chatbox，我觉得挺好用的
+
