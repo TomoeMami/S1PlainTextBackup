@@ -8774,3 +8774,75 @@ v4-pro应该是还欠后训练，应该再等一下。    [Re:Source](https://
 还行还行，试了一下deepseek-v4-flash ...</blockquote>
 贵是因为芯片没有，等下半年上了华为的950超节点就降价。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  holylight2020  
+##### 811#       发表于 2026-4-24 13:16
+
+个人体验agentic 工程比sonnet略强。看价格的话我只能说完爆了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  whzfjd  
+##### 812#       发表于 2026-4-24 13:16
+
+gemini 已经这么人嫌狗厌了吗，我拿来当外网豆包用的
+
+*****
+
+####  绝地潜兵  
+##### 813#       发表于 2026-4-24 13:17
+
+还不稳定，V4 API还在调试，又崩了
+
+*****
+
+####  绝地潜兵  
+##### 814#       发表于 2026-4-24 13:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531377&amp;ptid=2275806" target="_blank">whzfjd 发表于 2026-4-24 13:16</a>
+
+gemini 已经这么人嫌狗厌了吗，我拿来当外网豆包用的</blockquote>
+算力不行，牢美没电了，不然哈基米骚活一堆
+
+*****
+
+####  Rowen233  
+##### 815#       发表于 2026-4-24 13:17
+
+<img src="https://img.stage1st.com/forum/202604/24/131641vjxmjzjof77cjtno.jpg" referrerpolicy="no-referrer">
+
+<strong>2525.jpg</strong> (263.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-24 13:16 上传
+
+还吐槽了一下智谱经常系统繁忙 智谱问要不要帮你开个号
+
+
+*****
+
+####  ff2077  
+##### 816#       发表于 2026-4-24 13:21
+
+有没有试过写小说的，flash能用吗
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  88316756  
+##### 817#       发表于 2026-4-24 13:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531348&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-4-24 13:09</a>
+v4-pro应该是还欠后训练，应该再等一下。    Re:Source</blockquote>
+嗯，是的，看过知乎nao的评价，v4智商是够的，后训练还不够充分，有的时候要抽卡。
+
+我自己的体验就是，v4有能力答对问题，但不能稳定出正确答案，4.6o就能稳定出答案。
+
+所以这次v4还是挂了预览版的名义，正式版还有后续的4.x应该就会完善后训练，新的基模出了后，希望后续升级迭代快一点，这次等了快5个月，实在伤不起了。
+
