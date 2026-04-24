@@ -8508,3 +8508,106 @@ V4 pro 1.6T，flash 284B，1M 上下文，Pro 价格 ￥12/24，Flash 价格 ￥
 
 没有pro max吧,是pro的模型开了max的推理
 
+
+*****
+
+####  med  
+##### 788#       发表于 2026-4-24 12:38
+
+没有多模态也问题不大，多模态有qwen
+
+*****
+
+####  阿萨辛艾沃尔  
+##### 789#       发表于 2026-4-24 12:38
+
+<img src="https://img.stage1st.com/forum/202604/24/123826jj9j6rgtjhw9dnng.jpg" referrerpolicy="no-referrer">
+
+<strong>090fb2d9bc3eb1350deb75a5e01ea8d3fd1f4483.jpg</strong> (40.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-24 12:38 上传
+
+*****
+
+####  →熙←  
+##### 790#       发表于 2026-4-24 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531222&amp;ptid=2275806" target="_blank">qaz121 发表于 2026-4-24 12:37</a>
+
+字节的火山现在其实也部署GLM 5.1了。
+
+—— 来自 S1Fun</blockquote>
+内部倍数太高了,消耗太快, 智谱跑到30%的量, 火山就到限额了
+
+*****
+
+####  忧郁的杰哥  
+##### 791#       发表于 2026-4-24 12:39
+
+本地用vllm试了下提示transformers无法识别要升级  GG
+
+*****
+
+####  ytrfegd  
+##### 792#       发表于 2026-4-24 12:40
+
+之前喜欢用一些看到的小段子看看ai的识别能力
+
+西天过去懂现在懂未来懂一切懂佛——猜一人物
+
+Gemini很快就猜出是ykw
+3.2和v4只是思考时间不同，一个200秒一个18秒，结果都是如来佛
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  紧那罗  
+##### 793#       发表于 2026-4-24 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530995&amp;ptid=2275806" target="_blank">灰色的狐狸 发表于 2026-4-24 11:54</a>
+
+950这个本来就预计是q3吧</blockquote>
+主要提了一句等950大批量上市后V4会大幅降价 算是能让人狠狠期待一把<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 794#       发表于 2026-4-24 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531236&amp;ptid=2275806" target="_blank">ytrfegd 发表于 2026-4-24 12:40</a>
+之前喜欢用一些看到的小段子看看ai的识别能力
+
+西天过去懂现在懂未来懂一切懂佛——猜一人物</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冬眠的龙凰  
+##### 795#       发表于 2026-4-24 12:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">谁能想到 我用v4干的第一件事是我的龙虾在nga上烧了一千多tokrn和喷子对喷
+
+*****
+
+####  ayanamilin  
+##### 796#       发表于 2026-4-24 12:45
+
+vLLM day 0 support 了， DeepSeek V4 需要在 Hopper 或者 Blackwell 架构下部署才能享受完全的加速：[https://vllm.ai/blog/deepseek-v4](https://vllm.ai/blog/deepseek-v4)。其实从昨天开源的 TileLang 算子支持的架构就能看出来了。
+
+DS 这次应该是基于国产硬件也做了优化方案，将国产硬件的推理加速水准对齐 Hopper/Blackwell 架构水平。
+
+*****
+
+####  ytrfegd  
+##### 797#       发表于 2026-4-24 12:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531248&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-4-24 12:42</a>
+猜出来了啊</blockquote>
+什么，我用的DeepSeek自己的app的专家模式，他没猜出来
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
