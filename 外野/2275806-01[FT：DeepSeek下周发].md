@@ -9085,3 +9085,56 @@ gemini 3pro刚出来那会，巧思和段子不断
 
 我以前和Gemini说鲸鱼的时候，Gemini会吐槽鲸鱼喜欢过度推理炫技。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秦南心  
+##### 841#       发表于 2026-4-24 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531377&amp;ptid=2275806" target="_blank">whzfjd 发表于 2026-4-24 13:16</a>
+
+gemini 已经这么人嫌狗厌了吗，我拿来当外网豆包用的</blockquote>
+上传个小说让它总结大纲它只能读个26章，多的直接拒绝，还是pro会员呢，纯垃圾玩意
+
+*****
+
+####  novem  
+##### 842#       发表于 2026-4-24 14:10
+
+网页端不知道是不是V4
+
+但明显回答变详细了
+
+比之前敷衍的两三段话好太多了
+
+
+*****
+
+####  泰坦失足  
+##### 843#       发表于 2026-4-24 14:12
+
+仁义礼智信, Gemini占一个免费送会员的忠. 
+
+*****
+
+####  高粱河车神  
+##### 844#       发表于 2026-4-24 14:14
+
+Gemini现在这么差吗，我记得半年前大家普遍还认为这是最好用的
+
+*****
+
+####  弗里德里希大帝  
+##### 845#       发表于 2026-4-24 14:14
+
+gemini文生图还是可以的吧
+
+*****
+
+####  绝地潜兵  
+##### 846#       发表于 2026-4-24 14:16
+
+gemini是分析我的TASK里面的提示词,被DS放大了,这就说明1M上下文的准确度确实有提升的缘故?
+
+这些模型升级prompt要重新优化了<img src="https://static.stage1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
