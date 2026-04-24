@@ -7633,3 +7633,146 @@ DeepSeek 不可能出 Code Plan 的，他定价再便宜也是赚钱的，Code P
 
 敢情都是若只<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  noword  
+##### 705#       发表于 2026-4-24 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530897&amp;ptid=2275806" target="_blank">木谷高明 发表于 2026-4-24 11:35</a>
+
+被GPT5.5和ds4拷打，A一串突然不降智了，良性市场竞争又回来了</blockquote>
+ds老中医一出手就知道有没有，妙手回春怎么说
+
+*****
+
+####  秦南心  
+##### 706#       发表于 2026-4-24 11:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">庆贺吧！
+
+*****
+
+####  oopsoops  
+##### 707#       发表于 2026-4-24 11:39
+
+ 本帖最后由 oopsoops 于 2026-4-24 11:43 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530872&amp;ptid=2275806" target="_blank">勿徊哉 发表于 2026-4-24 11:33</a>
+中芯国际大涨，然而怎么就涨这么点。
+不开心，多涨点啊</blockquote>
+编辑
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Fam  
+##### 708#       发表于 2026-4-24 11:40
+
+来了来了！
+
+*****
+
+####  hujingjing  
+##### 709#       发表于 2026-4-24 11:40
+
+刚无聊刷到新闻，打开网页问了下ds他是不是v4，他告诉我不是，然后我反手发了他们微信公众号的链接，他又说他搞错了，请以公告为准，乐，可能刚上多少有点问题，api调用啥的可以再看看，但是按ds公告发的指标来看很吊啊，给诸位同行多上点压力<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不见不散  
+##### 710#       发表于 2026-4-24 11:41
+
+mark       
+
+*****
+
+####  Rowen233  
+##### 711#       发表于 2026-4-24 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530925&amp;ptid=2275806" target="_blank">hujingjing 发表于 2026-4-24 11:40</a>
+
+刚无聊刷到新闻，打开网页问了下ds他是不是v4，他告诉我不是，然后我反手发了他们微信公众号的链接，他又说 ...</blockquote>
+问模型是什么版本有时候不准的 看喂的语料里有关 V3 的多可能就说 V3
+
+*****
+
+####  大喵喵  
+##### 712#       发表于 2026-4-24 11:42
+
+太牛了！
+
+*****
+
+####  勿徊哉  
+##### 713#       发表于 2026-4-24 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530918&amp;ptid=2275806" target="_blank">oopsoops 发表于 2026-4-24 11:39</a>
+不一定和发布有关吧，一早上就涨了
+
+论坛助手,iPhone</blockquote>
+那真是涨得太少了。按照美股的逻辑，应该疯涨啊。
+国产卡上训练出来的sota模型，或者至少推理没有什么算力瓶颈了，这不涨停没道理。难道是因为南方没有上市的原因？
+
+*****
+
+####  cleaner  
+##### 714#       发表于 2026-4-24 11:43
+
+这次不狙击美股了吗，那他们母公司还怎么赚钱（担心    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  tillnight  
+##### 715#       发表于 2026-4-24 11:44
+
+<blockquote>勿徊哉 发表于 2026-4-24 11:42
+那真是涨得太少了。按照美股的逻辑，应该疯涨啊。
+
+国产卡上训练出来的sota模型，或者至少推理没有什么算 ...</blockquote>
+中芯南方在表外。当然，国内炒股其实没那么讲究的，谐音也能炒。
+
+*****
+
+####  sellboy  
+##### 716#       发表于 2026-4-24 11:46
+
+<blockquote>cleaner 发表于 2026-4-24 11:43
+这次不狙击美股了吗，那他们母公司还怎么赚钱（担心    Re:Source</blockquote>
+昇腾发布会是19点。
+
+*****
+
+####  holmesjerry  
+##### 717#       发表于 2026-4-24 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530934&amp;ptid=2275806" target="_blank">勿徊哉 发表于 2026-4-24 11:42</a>
+那真是涨得太少了。按照美股的逻辑，应该疯涨啊。
+国产卡上训练出来的sota模型，或者至少推理没有什么算 ...</blockquote>
+推理而已
+训练看论文和tilelang肯定还是英伟达
+
+*****
+
+####  谎称  
+##### 718#       发表于 2026-4-24 11:46
+
+D指导一开源，全世界的模型是不是都能支持1M上下文了。。
+
+*****
+
+####  wtyrambo  
+##### 719#       发表于 2026-4-24 11:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">所以到底水平怎样，官方评测的分数没看头
+
+*****
+
+####  随水常流  
+##### 720#       发表于 2026-4-24 11:46
+
+Agent 能力大幅提高：相比前代模型，DeepSeek-V4-Pro 的 Agent 能力显著增强。在 Agentic Coding 评测中，V4-Pro 已达到当前开源模型最佳水平，并在其他 Agent 相关评测中同样表现优异。目前 DeepSeek-V4 已成为公司内部员工使用的 Agentic Coding 模型，据评测反馈使用体验优于 Sonnet 4.5，交付质量接近 Opus 4.6 非思考模式，但仍与 Opus 4.6 思考模式存在一定差距。
+
+梁老板啊梁老板<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
