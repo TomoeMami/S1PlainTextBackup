@@ -10030,3 +10030,41 @@ chatbox我也在用，但是目前好像没找到调整reasoning_effort参数的
 最近人员变动比较大，希望不要影响DS后续研发</blockquote>
 你去看tech report后面，就几个标了*的，谈不上变动大    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  Su7  
+##### 930#       发表于 2026-4-24 17:31
+
+<img src="https://img.stage1st.com/forum/202604/24/173058i2h2pj92w5wwm5jr.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5301.jpeg</strong> (125.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-24 17:30 上传
+
+<img src="https://img.stage1st.com/forum/202604/24/173059dxlch8m4l8wiy0ci.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5302.jpeg</strong> (71.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-24 17:30 上传
+
+*****
+
+####  Surlert  
+##### 931#       发表于 2026-4-24 17:33
+
+A畜这几天八成又要破防，搞抹黑和封锁动作，毕竟真挡财路了。
+
+*****
+
+####  Su7  
+##### 932#       发表于 2026-4-24 17:35
+
+gemini出道天下无敌，现在变成小树林急急而奔。
+
+AI 的迭代速度实在太快了。
+
