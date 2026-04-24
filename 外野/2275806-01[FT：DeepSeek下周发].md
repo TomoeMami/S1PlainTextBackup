@@ -9377,3 +9377,25 @@ gemini 主要发布后一路 ...</blockquote>
 
 2026-4-24 14:49 上传
 
+
+*****
+
+####  冤枉呐  
+##### 869#       发表于 2026-4-24 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531801&amp;ptid=2275806" target="_blank">Su7 发表于 2026-4-24 14:49</a></blockquote>
+美股开盘就砸是吧
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Chenlh  
+##### 870#       发表于 2026-4-24 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531491&amp;ptid=2275806" target="_blank">cloudinsky 发表于 2026-4-24 13:48</a>
+小说得按照大型工程来吧。先给整体框架约束。提前规划好啊，每一章节精炼后给到上下文。
+
+完全全文扔进去谁 ...</blockquote>
+用ds带着我读了读v4的技术文档，好像整个第二章都是在说是怎么实现超大上下文注意力的，很复杂
+
