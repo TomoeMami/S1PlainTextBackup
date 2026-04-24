@@ -10851,3 +10851,37 @@ APP和网页版似乎还没更新？
 
 某脑那边haruki刚才更新了预设，可以冲了<img src="https://static.stage1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tomorrow_D  
+##### 998#       发表于 2026-4-24 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69533847&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-4-24 23:06</a>
+官网和app就是最新的啊
+不本地部署充几块钱用api就行(讲道理本地部署拿来玩的话也不够，而且现在也没法本 ...</blockquote>
+多谢，下午我试着在APP询问版本号，但是回复说不是v4，所以我还以为没更新呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冤枉呐  
+##### 999#       发表于 2026-4-24 23:33
+
+今晚英伟达咋还+5了
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  体制  
+##### 1000#       发表于 2026-4-24 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531136&amp;ptid=2275806" target="_blank">忧郁的杰哥 发表于 2026-4-24 12:18</a>
+去年开会那个宇树的老板竟然位置比梁老板还靠前
+
+让人目瞪口呆</blockquote>
+因为那个机器狗确实和军方有合作？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
