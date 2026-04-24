@@ -9424,3 +9424,44 @@ gemini 主要发布后一路 ...</blockquote>
 
 下午四点昇腾要进行直播。DSV4 从训好到发布拖了这么长时间，很大一部分原因就是要跟华子做适配<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤星ビスコ  
+##### 874#       发表于 2026-4-24 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531574&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-4-24 14:09</a>
+上传个小说让它总结大纲它只能读个26章，多的直接拒绝，还是pro会员呢，纯垃圾玩意
+
+ ...</blockquote>
+你用notebooklm吧，这个读小说还蛮好用的
+
+*****
+
+####  ayanamilin  
+##### 875#       发表于 2026-4-24 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531942&amp;ptid=2275806" target="_blank">蒜苗 发表于 2026-4-24 15:14</a>
+
+怎么PRO比Flash速度还快？</blockquote>
+TPS 是吞吐量。
+
+目标 TPOT 不一样，所以 Pro 的吞吐要大一些。“TPOT为XXms时”，意思是给定 TPOT 来看 TPS
+
+
+*****
+
+####  ayanamilin  
+##### 876#       发表于 2026-4-24 15:23
+
+vLLM-ascend（昇腾） 也 day-0 support 了，目前只支持 flash，A2 &amp; A3 系列产品都能用：[https://docs.vllm.ai/projects/as ... ls/DeepSeek-V4.html](https://docs.vllm.ai/projects/ascend/en/v0.13.0/tutorials/DeepSeek-V4.html)
+
+*****
+
+####  zaozaoxx  
+##### 877#       发表于 2026-4-24 15:26
+
+体验确实超大杯
+
+—— 来自 HUAWEI LMR-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
