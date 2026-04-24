@@ -6885,3 +6885,23 @@ DeepSeek这个模型迭代速度如果能拿前三那国外御三家都别干了
 
 前三？   就比国内那几家，前三都难说。。。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绝地潜兵  
+##### 626#       发表于 2026-4-24 09:58
+
+API适配这么久的么，网页端都弄完了呀<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蒜苗  
+##### 627#       发表于 2026-4-24 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69528518&amp;ptid=2275806" target="_blank">勿徊哉 发表于 2026-4-23 20:22</a>
+所以开源真是一步错棋。大模型成长需要的资本支出实在是天量，只有不断攫取更大的利益，才能反哺自身继续成 ...</blockquote>
+哥们你这是从哪个世界线穿越过来的
+
+当前的大模型天花板除了牢美的御三家，其他全是开源的，限制国内模型发展的最大因素不是钱，是显卡，现在各家的coding plan是供不应求，当然你也可以说是钱没给够所以不能突破牢美的封锁搞到更多的卡，那就是另外一个话题了
+

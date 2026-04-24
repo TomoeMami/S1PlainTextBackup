@@ -3186,3 +3186,16 @@ ULT机体部分开限界突破了
 
 升星的地方点亮就能用ur芯片
 
+
+*****
+
+####  电脑死机  
+##### 4085#       发表于 2026-4-24 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530073&amp;ptid=2071758" target="_blank">gpx234mqx 发表于 2026-4-24 09:33</a>
+
+ULT机体部分开限界突破了
+
+必须2段UR</blockquote>
+不过资源那么点，值得升2段的机也就那些吧……红高达，红蛇，delta改，天照，癌变，x那台？
+
