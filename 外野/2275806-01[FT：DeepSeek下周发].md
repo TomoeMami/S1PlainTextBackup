@@ -8846,3 +8846,50 @@ v4-pro应该是还欠后训练，应该再等一下。    Re:Source</blockquot
 
 所以这次v4还是挂了预览版的名义，正式版还有后续的4.x应该就会完善后训练，新的基模出了后，希望后续升级迭代快一点，这次等了快5个月，实在伤不起了。
 
+
+*****
+
+####  big9999  
+##### 818#       发表于 2026-4-24 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531397&amp;ptid=2275806" target="_blank">ff2077 发表于 2026-4-24 13:21</a>
+有没有试过写小说的，flash能用吗
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+写小说最大的问题是写不长，短篇目前啥ai都能写出不错的
+
+*****
+
+####  ff2077  
+##### 819#       发表于 2026-4-24 13:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531414&amp;ptid=2275806" target="_blank">big9999 发表于 2026-4-24 13:27</a>
+写小说最大的问题是写不长，短篇目前啥ai都能写出不错的</blockquote>
+之前ds上下文太短了 老是记不住 v4终于也是1M了 最近谷歌降智的厉害 晚上试试v4了
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  飛霞精灵  
+##### 820#       发表于 2026-4-24 13:30
+
+就等网页版和app能不能更新上了。
+
+*****
+
+####  →熙←  
+##### 821#       发表于 2026-4-24 13:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">opencode有办法让思考变中文吗, ds的中文会好一点吧
+
+
+*****
+
+####  chuchoselph  
+##### 822#       发表于 2026-4-24 13:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531377&amp;ptid=2275806" target="_blank">whzfjd 发表于 2026-4-24 13:16</a>
+gemini 已经这么人嫌狗厌了吗，我拿来当外网豆包用的</blockquote>
+算力严重不足，还瞎到处jb送pro，最近api都变弱智了，真想一拳打爆谷歌
+
