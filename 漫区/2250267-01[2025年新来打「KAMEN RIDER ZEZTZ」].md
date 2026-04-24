@@ -2623,3 +2623,13 @@ zzz在日本24集才起来的，之前从第一集开始热度就路边一条，
 
 我也是觉得最终会加回腰带组成Z的，现在这样只能说真有一点出乎意料吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黄泉川此方  
+##### 1326#       发表于 2026-4-24 20:25
+
+ 本帖最后由 黄泉川此方 于 2026-4-24 20:27 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别急，还有剧场版限定最终可以加个披风再拼个Z
+
