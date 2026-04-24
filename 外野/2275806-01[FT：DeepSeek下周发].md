@@ -7460,3 +7460,176 @@ ds真王朝了，还有之前不会真是华为拖了点后腿吧</blockquote>
 
 这下各大公司欢度五一了<img src="https://static.stage1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zeroboss4  
+##### 684#       发表于 2026-4-24 11:28
+
+时间点真好 
+
+—— 来自 OnePlus PLR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  莱茵哈鲁特  
+##### 685#       发表于 2026-4-24 11:29
+
+狙击gpt5.5吗，听说王朝了，就是太贵
+
+*****
+
+####  王兰花秀丽  
+##### 686#       发表于 2026-4-24 11:29
+
+pro跑一轮插针花了50，真的很贵
+
+*****
+
+####  cube  
+##### 687#       发表于 2026-4-24 11:30
+
+试用了下，还行。
+
+但是就现在这个紧张的算力，怕不是并发太多后又会智商下降<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sellboy  
+##### 688#       发表于 2026-4-24 11:31
+
+deepseek不止发布模型，还发布技术论文，开源优化工具。
+
+*****
+
+####  surika  
+##### 689#       发表于 2026-4-24 11:31
+
+下午不干活了 看 tech report<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  脸宽  
+##### 690#       发表于 2026-4-24 11:32
+
+flash出字好快，有点舒服
+
+*****
+
+####  RGm  
+##### 691#       发表于 2026-4-24 11:32
+
+鲸鱼睡醒了，华为给点力啊。
+
+*****
+
+####  勿徊哉  
+##### 692#       发表于 2026-4-24 11:33
+
+中芯国际大涨，然而怎么就涨这么点。
+不开心，多涨点啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Geronimo  
+##### 693#       发表于 2026-4-24 11:33
+
+国内开源模型王朝了啊。
+
+邪恶老钟狠狠拿烟头烫蜥蜴人。
+
+*****
+
+####  狭义文具爱好者  
+##### 694#       发表于 2026-4-24 11:33
+
+还有个问题就是看鲸鱼娘怎么出订阅计划了，涨价后的价格不告code plan可太贵了
+
+
+*****
+
+####  脸宽  
+##### 695#       发表于 2026-4-24 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530877&amp;ptid=2275806" target="_blank">狭义文具爱好者 发表于 2026-4-24 11:33</a>
+
+还有个问题就是看鲸鱼娘怎么出订阅计划了，涨价后的价格不告code plan可太贵了 ...</blockquote>
+搞codeplan，算力更紧张了，感觉短期不会了
+
+*****
+
+####  你谁  
+##### 696#       发表于 2026-4-24 11:34
+
+还没多模态就没想的好
+
+*****
+
+####  Sza  
+##### 697#       发表于 2026-4-24 11:34
+
+X用户Yifan Zhang的信息源是真可靠，这两天看看新模型的用户反馈如何
+
+*****
+
+####  ymm1030  
+##### 698#       发表于 2026-4-24 11:35
+
+牛逼牛逼，chatbox刷了一下已经能调用了。
+
+应该就是硬件拖后腿了，这会儿上可能都不是完美时机，但是没办法了，期待已经拉满了。
+
+中文第一模型！【振声】，它又回来了！
+
+*****
+
+####  勿徊哉  
+##### 699#       发表于 2026-4-24 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530807&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-4-24 11:24</a>
+还没多模态可惜了</blockquote>
+走claude路线那太合适了。
+多模态视频生成都是奇技淫巧，靠豆包啥的就行。
+
+*****
+
+####  飛霞精灵  
+##### 700#       发表于 2026-4-24 11:35
+
+上一轮全民开启修仙，这轮能到全民炼气期大圆满吗？
+
+*****
+
+####  木谷高明  
+##### 701#       发表于 2026-4-24 11:35
+
+<img src="https://p.sda1.dev/32/4e1544bb3e109a22e422051fb59adbdc/image.jpg" referrerpolicy="no-referrer">
+被GPT5.5和ds4拷打，A一串突然不降智了，良性市场竞争又回来了
+
+*****
+
+####  暗口崩子  
+##### 702#       发表于 2026-4-24 11:36
+
+v4涨价也是最便宜的那档token吧，可以买几十块留着应急用，真有5.4水平那其实大部分时候也够用了
+
+*****
+
+####  小野賢章  
+##### 703#       发表于 2026-4-24 11:37
+
+DeepSeek 不可能出 Code Plan 的，他定价再便宜也是赚钱的，Code Plan 纯亏欠<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zris  
+##### 704#       发表于 2026-4-24 11:37
+
+草泥马的dario
+
+5.5和v4出来又不降智了吧
+
+哥们花了不少刀乐在opus 4.7了
+
+敢情都是若只<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
