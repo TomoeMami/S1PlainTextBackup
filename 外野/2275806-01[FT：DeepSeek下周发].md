@@ -10450,3 +10450,14 @@ v4实测审核变严了，写刘备文被反复拒绝，申请次数过多还会
 v4实测审核变严了，写刘备文被反复拒绝，申请次数过多还会屏蔽你的要求显示无法连接API ...</blockquote>
 拉高温度
 
+
+*****
+
+####  绝地潜兵  
+##### 970#       发表于 2026-4-24 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69533413&amp;ptid=2275806" target="_blank">革萌 发表于 2026-4-24 21:03</a>
+
+拉高温度</blockquote>
+你拉到多少温度？超过0.5就慌得一批
+
