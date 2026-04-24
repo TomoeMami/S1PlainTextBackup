@@ -10290,3 +10290,34 @@ flash倒是已经有MLX的量化版了<img src="https://static.stage1st.com/imag
 
 又用了会flash，感觉这个东西是真正的强大，速度无敌快，还很便宜
 
+
+*****
+
+####  有鱼  
+##### 955#       发表于 2026-4-24 19:45
+
+flash是对的，而且用起来感觉比gemini的flash/gpt的instant强多了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cmou333  
+##### 956#       发表于 2026-4-24 19:48
+
+就这样吧，复杂的还得是opus<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oopsoops  
+##### 957#       发表于 2026-4-24 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532929&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-4-24 19:03</a>
+虽然我不想搞查身份
+
+但是有几个天天拿Mac能跑大模型吹开源ai的果系博主毫无动静是咋回事 ...</blockquote>
+这不是很显然么，dsv4 pro 1T以上的参数，得多少内存啊…..这得多少台mac组集群
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
