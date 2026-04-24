@@ -3749,3 +3749,22 @@ yahzee对这游戏评价还很好 i didn't dislike it<img src="https://static.st
 
 碰到个神奇bug，回老家进门时发出“嘀嘀嘀”三下机械鸣笛声，之后闪避操作的喷气音效消失了，其余声音正常，重启恢复。
 
+
+*****
+
+####  绯红残叶  
+##### 724#       发表于 2026-4-24 14:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530491&amp;ptid=2252823" target="_blank">chris1987 发表于 2026-4-24 10:40</a>
+
+打到救EIGHT的蝎子boss,感觉后期hack的格子都好长，那个黏黏枪感觉也不实用，用手柄瞄准也好，破解也好都好 ...</blockquote>
+黏黏枪确实不好用，删行不如定住了慢慢走。我觉得辅助枪除了两个定身，扫描仪其实也还行，能把红叹号扫了
+
+
+*****
+
+####  jacket  
+##### 725#       发表于 2026-4-24 14:34
+
+粘弹枪是不是用来杀保时捷的
+

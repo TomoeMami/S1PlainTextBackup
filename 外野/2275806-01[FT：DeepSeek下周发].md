@@ -9224,3 +9224,123 @@ gpt的免费模型拉完了
 —— 来自 鹅球 v3.5.99 ...</blockquote>
 后面版本更新的时候会用
 
+
+*****
+
+####  德尔惠净水器  
+##### 855#       发表于 2026-4-24 14:29
+
+基于DeepSeek V4-Pro模型，在8K输入场景，昇腾950超节点可实现TPOT约20ms时单卡Decode 吞吐4700TPS。DeepSeek V4-Flash模型，8K长序列输入场景下可实现TPOT约10ms时单卡Decode 吞吐1600TPS
+
+<img src="https://img.stage1st.com/forum/202604/24/142933gl5hw2ynmkpiewan.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260424_142925.jpg</strong> (202.03 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-4-24 14:29 上传
+
+*****
+
+####  奈落的孤火花  
+##### 856#       发表于 2026-4-24 14:29
+
+现在deepseek是不分R1和V3了吗？V4就自己有开和关思考的方式，用的都是V4？
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 857#       发表于 2026-4-24 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531645&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-4-24 14:23</a>
+
+看技术报告这次没有用到engram啊，技术不成熟还是什么原因
+
+—— 来自 鹅球 v3.5.99 ...</blockquote>
+这种跨CPU的通信对推理和训练的AI Infra压力都是极大的，贸然上风险极高
+
+*****
+
+####  有鱼  
+##### 858#       发表于 2026-4-24 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531677&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-4-24 14:29</a>
+现在deepseek是不分R1和V3了吗？V4就自己有开和关思考的方式，用的都是V4？</blockquote>
+v3.2的时候就把两个模型合并了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  goranger  
+##### 859#       发表于 2026-4-24 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531076&amp;ptid=2275806" target="_blank">ml1642879 发表于 2026-4-24 12:09</a>
+
+感谢大A，感谢标普，感谢纳指，感谢道指
+
+Re:Source · Xiaomi 15</blockquote>
+歪一下，梁文峰开理想也不好好停车吗
+
+
+*****
+
+####  Azcarlo  
+##### 860#       发表于 2026-4-24 14:33
+
+engram我觉得不好说，知乎上看到有人在小模型上复现结果不是太好，只是一个模型提点trick，没有想象中那么有用
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  杀人鲸  
+##### 861#       发表于 2026-4-24 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531511&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-4-24 13:53</a></blockquote>
+可悲的循环又来了是吧？刚刚贴吧那边还说大的要来了，玩不了了呀。没关系，永远都还有下一个可以玩的版本。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  andychen  
+##### 862#       发表于 2026-4-24 14:35
+
+ds一如既往的大幅提升了效率。价格上目前1.6t的pro模型和友商大致相当，不过下半年会大幅降价。推理速度上目前官方api提供的v4 flash最快能到100-200 token/s
+
+要注意这个模型已经针对angetic优化了，需要更详细的提示对模型做出指令
+
+目前还是preview版，个人觉得后续应该会先把spciale的超长推理链加进来。engram属于重大技术跨越了，可能还要等一段时间
+
+*****
+
+####  杀人鲸  
+##### 863#       发表于 2026-4-24 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531598&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-4-24 14:14</a>
+Gemini现在这么差吗，我记得半年前大家普遍还认为这是最好用的</blockquote>
+你也说了，那是半年前，现在的信息时代变化可太快了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  羊寢  
+##### 864#       发表于 2026-4-24 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531619&amp;ptid=2275806" target="_blank">findpkq 发表于 2026-4-24 14:18</a>
+好像有反馈部分Skill调用效果和国产御三家还有些差距，是要等后训练优化的正式版吗
+
+gemini 主要发布后一路 ...</blockquote>
+应该是，现在v4p普遍反应就是后训练不足
+
+*****
+
+####  勿徊哉  
+##### 865#       发表于 2026-4-24 14:38
+
+后训练不足是算力问题？
+底模是和高质量数据有关？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
