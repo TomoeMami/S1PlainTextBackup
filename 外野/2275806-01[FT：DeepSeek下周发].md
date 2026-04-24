@@ -10811,3 +10811,15 @@ api
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  羊寢  
+##### 994#       发表于 2026-4-24 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69533826&amp;ptid=2275806" target="_blank">Tomorrow_D 发表于 2026-4-24 23:01</a>
+APP和网页版似乎还没更新？
+没有本地部署的话，有什么方法使用吗？</blockquote>
+官网和app就是最新的啊
+不本地部署充几块钱用api就行(讲道理本地部署拿来玩的话也不够，而且现在也没法本地部署了)
+
