@@ -2615,3 +2615,11 @@ zzz在日本24集才起来的，之前从第一集开始热度就路边一条，
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">极狐同期也是吹上天的，至今依然觉得马克9是最帅最终外加最帅的最终出场，希望超梦能别输，别又把这么重要的回合给柴崎了
 
+
+*****
+
+####  永恒的王牌  
+##### 1325#       发表于 2026-4-24 17:57
+
+我也是觉得最终会加回腰带组成Z的，现在这样只能说真有一点出乎意料吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
