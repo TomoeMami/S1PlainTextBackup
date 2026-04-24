@@ -3214,3 +3214,13 @@ ULT机体部分开限界突破了
 
 之后看看有没有点子王配队，感觉异灵PVP确实不太行
 
+
+*****
+
+####  arthes  
+##### 4087#       发表于 2026-4-24 11:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+托列斯是对的，就不该装射击武器<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
