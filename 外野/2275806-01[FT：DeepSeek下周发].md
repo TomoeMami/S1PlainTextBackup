@@ -10068,3 +10068,39 @@ gemini出道天下无敌，现在变成小树林急急而奔。
 
 AI 的迭代速度实在太快了。
 
+
+*****
+
+####  zris  
+##### 933#       发表于 2026-4-24 17:38
+
+说起来想要玩AIRP可以关注下一个专门拿DS训练的aion labs
+
+
+*****
+
+####  奥柏伦亲王  
+##### 934#       发表于 2026-4-24 17:40
+
+开源SOTA应该算不得夸张说法，但是agent能力还是挂个问号，不管怎么说追上来就好，也相信下个版本会更猛，现阶段我可能会codex+gpt5.5和ClaudeCode+K2.6/V4/Mimo2.5混用
+
+*****
+
+####  御坂MKII  
+##### 935#       发表于 2026-4-24 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532597&amp;ptid=2275806" target="_blank">Surlert 发表于 2026-4-24 17:33</a>
+
+A畜这几天八成又要破防，搞抹黑和封锁动作，毕竟真挡财路了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> a 畜这几天还在被奥特曼上眼药呢
+
+*****
+
+####  御坂MKII  
+##### 936#       发表于 2026-4-24 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532626&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-4-24 17:40</a>
+
+开源SOTA应该算不得夸张说法，但是agent能力还是挂个问号，不管怎么说追上来就好，也相信下个版本会更猛， ...</blockquote>
+gpt5 靠后训练也救回来了，ds4 肯定也行。等正式版吧，智力底子在还是好说
+
