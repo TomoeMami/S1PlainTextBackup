@@ -8346,3 +8346,66 @@ Re:Source · Xiaomi 15</blockquote>
 
 让人目瞪口呆
 
+
+*****
+
+####  脸宽  
+##### 772#       发表于 2026-4-24 12:20
+
+加油华为，加油china，让我赶紧用上便宜pro
+
+*****
+
+####  有鱼  
+##### 773#       发表于 2026-4-24 12:21
+
+论御三家的订阅服务，claude太魔怔反华没用过，但是closeAI的感觉比谷順歌的gemini强不少
+
+gemini现在网页端/app的降智严重，幻觉严重
+
+gpt现在用起来感觉是很多问题只敢照着搜索结果复读，不愿意做推断和判断。
+
+*****
+
+####  med  
+##### 774#       发表于 2026-4-24 12:23
+
+元宝救星终于更新了 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Su7  
+##### 775#       发表于 2026-4-24 12:23
+
+<blockquote>有鱼 发表于 2026-4-24 12:21
+论御三家的订阅服务，claude太魔怔反华没用过，但是closeAI的感觉比谷順歌的gemini强不少
+
+gemini现在网页端 ...</blockquote>
+gemini本来就是人嫌狗厌了。国产模型都比它好用
+
+*****
+
+####  gp1390  
+##### 776#       发表于 2026-4-24 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530943&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-4-24 11:44</a>
+中芯南方在表外。当然，国内炒股其实没那么讲究的，谐音也能炒。</blockquote>
+南方40%并表        [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  Su7  
+##### 777#       发表于 2026-4-24 12:24
+
+<blockquote>med 发表于 2026-4-24 12:23
+元宝救星终于更新了</blockquote>
+凌晨腾讯才发布的hy3，时间卡的真好
+
+*****
+
+####  有鱼  
+##### 778#       发表于 2026-4-24 12:26
+
+api炸了？用的人太多？
+
