@@ -8925,3 +8925,95 @@ gemini 已经这么人嫌狗厌了吗，我拿来当外网豆包用的</blockquo
 
 我自己玩都得是自己提供框架，自己记着谁该怎么了，提示给大模型让它们写
 
+
+*****
+
+####  cloudinsky  
+##### 826#       发表于 2026-4-24 13:48
+
+小说得按照大型工程来吧。先给整体框架约束。提前规划好啊，每一章节精炼后给到上下文。
+
+完全全文扔进去谁都扛不住
+
+*****
+
+####  Rowen233  
+##### 827#       发表于 2026-4-24 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531429&amp;ptid=2275806" target="_blank">飛霞精灵 发表于 2026-4-24 13:30</a>
+
+就等网页版和app能不能更新上了。</blockquote>
+已经更了
+
+*****
+
+####  忧郁的杰哥  
+##### 828#       发表于 2026-4-24 13:50
+
+本地试了下flash版本   同样的一句话提示词效果确实秒杀前面发布的几个号称秒天秒地的小参数模型
+
+<img src="https://img.stage1st.com/forum/202604/24/134855msf8ckeke8h1z3c7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (108.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-24 13:48 上传
+
+
+*****
+
+####  Promeus  
+##### 829#       发表于 2026-4-24 13:53
+
+<img src="https://p.sda1.dev/32/624af6076f78df9b6b1d5017abab2f9f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  羊寢  
+##### 830#       发表于 2026-4-24 13:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531511&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-4-24 13:53</a></blockquote>
+v5还不至于，现在上面的应该换成v4正式版<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绝地潜兵  
+##### 831#       发表于 2026-4-24 13:55
+
+思考链里面生成的心理活动怎么比输出的正文还生动，字数还多<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 832#       发表于 2026-4-24 13:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531397&amp;ptid=2275806" target="_blank">ff2077 发表于 2026-4-24 13:21</a>
+有没有试过写小说的，flash能用吗
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+当然能。D指导写小说算文笔不错的那一类
+
+—— 来自 HUAWEI WGRR-W19, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Su7  
+##### 833#       发表于 2026-4-24 13:56
+
+<blockquote>chuchoselph 发表于 2026-4-24 13:32
+算力严重不足，还瞎到处jb送pro，最近api都变弱智了，真想一拳打爆谷歌</blockquote>
+
+gemini像阿尔兹海默症一样。有时候和他聊，他突然提起了几个月前说过的话。平时聊天不记，他妈的，做事时候回忆起好久之前的话，把我的任务给搞混掉。
+
+*****
+
+####  半江瑟瑟半江红  
+##### 834#       发表于 2026-4-24 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531377&amp;ptid=2275806" target="_blank">whzfjd 发表于 2026-4-24 13:16</a>
+gemini 已经这么人嫌狗厌了吗，我拿来当外网豆包用的</blockquote>
+傻逼GEMINI经常连一个4000字文档都不读完搁哪瞎扯，上下文记忆力更是可以用悲剧来形容，也就官方渠道依托它家自己的谷歌搜索当高级搜索引擎用还凑合
+
+—— 来自 HUAWEI WGRR-W19, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
