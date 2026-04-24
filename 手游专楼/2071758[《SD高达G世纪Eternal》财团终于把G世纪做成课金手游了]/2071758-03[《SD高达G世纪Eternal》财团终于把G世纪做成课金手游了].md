@@ -3199,3 +3199,18 @@ ULT机体部分开限界突破了
 必须2段UR</blockquote>
 不过资源那么点，值得升2段的机也就那些吧……红高达，红蛇，delta改，天照，癌变，x那台？
 
+
+*****
+
+####  ティグル  
+##### 4086#       发表于 2026-4-24 10:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69527356&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2026-4-23 16:04</a>
+
+闭眼打到18w，后面20w慢慢刷吧
+
+—— 来自 vivo V2419A, Android 16, 鹅球 v3.5.99</blockquote>
+一击队两天刷满打了19W，只能用蛋R互相恶心了
+
+之后看看有没有点子王配队，感觉异灵PVP确实不太行
+
