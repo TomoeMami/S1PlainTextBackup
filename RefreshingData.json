@@ -10661,7 +10661,7 @@
     "newtitle": "[金牌得主 动画化 2025年1月]",
     "lastedit": 1776792729,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2088649": {
@@ -11547,10 +11547,10 @@
     "update": false
   },
   "2085684": {
-    "totalreply": 685,
+    "totalreply": 686,
     "title": "[SNK 饿狼传说新作『饿狼传说 City of the Wolves』2025年4月24日发售]",
     "newtitle": "[SNK 饿狼传说新作『饿狼传说 City of the Wolves』2025年4月24日发售]",
-    "lastedit": 1777042934,
+    "lastedit": 1777052052,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11664,10 +11664,10 @@
     "update": false
   },
   "2255622": {
-    "totalreply": 1319,
+    "totalreply": 1320,
     "title": "[架空武侠群像史诗《天之下》讨论专楼（新）]",
     "newtitle": "[架空武侠群像史诗《天之下》讨论专楼（新）]",
-    "lastedit": 1777048333,
+    "lastedit": 1777052299,
     "category": "外野",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 28566,
+    "totalreply": 28567,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1777050850,
+    "lastedit": 1777052054,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12582,10 +12582,10 @@
     "update": false
   },
   "2271402": {
-    "totalreply": 6219,
+    "totalreply": 6220,
     "title": "[任天堂病棟14楼，等一个春节春直]",
     "newtitle": "[任天堂病棟14楼，3.3新一期iw]",
-    "lastedit": 1777050849,
+    "lastedit": 1777052054,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12915,10 +12915,10 @@
     "update": false
   },
   "2191394": {
-    "totalreply": 969,
+    "totalreply": 971,
     "title": "[UE5+二次元GTA+都市UGC开放世界，异环讨论贴]",
     "newtitle": "[UE5+二次元GTA+都市UGC开放世界，异环讨论贴]",
-    "lastedit": 1777051208,
+    "lastedit": 1777052169,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -13203,10 +13203,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 1001,
+    "totalreply": 1002,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[FT：DeepSeek下周发｜已发，转为v4讨论楼]",
-    "lastedit": 1777050128,
+    "lastedit": 1777052294,
     "category": "外野",
     "active": true,
     "update": false
@@ -13239,10 +13239,10 @@
     "update": false
   },
   "2245675": {
-    "totalreply": 223,
+    "totalreply": 227,
     "title": "[上伊那牡丹，酒醉身姿似百合花般 动画化]",
     "newtitle": "[上伊那牡丹，酒醉身姿似百合花般 动画化]",
-    "lastedit": 1777051329,
+    "lastedit": 1777052299,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13302,10 +13302,10 @@
     "update": false
   },
   "2277977": {
-    "totalreply": 13350,
+    "totalreply": 13351,
     "title": "[中东砖楼 2026年4月版]",
     "newtitle": "[中东砖楼 2026年4月版]",
-    "lastedit": 1777046889,
+    "lastedit": 1777052299,
     "category": "外野",
     "active": true,
     "update": false
@@ -17055,19 +17055,19 @@
     "update": false
   },
   "2279644": {
-    "totalreply": 86,
+    "totalreply": 87,
     "title": "[上次的航天宣传海报刚被说美育不行 这次就给大伙上一波有美育的海报了]",
     "newtitle": "[上次的航天宣传海报刚被说美育不行 这次就给大伙上一波有美育的海报了]",
-    "lastedit": 1777048087,
+    "lastedit": 1777052299,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2279646": {
-    "totalreply": 60,
+    "totalreply": 61,
     "title": "[有一说一，印度真的这么短视和草台班子吗]",
     "newtitle": "[有一说一，印度真的这么短视和草台班子吗]",
-    "lastedit": 1777050489,
+    "lastedit": 1777052299,
     "category": "外野",
     "active": true,
     "update": false
@@ -17096,6 +17096,15 @@
     "newtitle": "[其实我不太明白为什么女生对电脑的依赖程度这么低，只要捧个手机就行。。]",
     "lastedit": 1777050728,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2279425": {
+    "totalreply": 41,
+    "title": "[东映株式会社进军游戏领域「东映Games」 首款作品将于4月24日公开]",
+    "newtitle": "[东映株式会社进军游戏领域「东映Games」 首款作品将于4月24日公开]",
+    "lastedit": 1777051809,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
