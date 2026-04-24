@@ -7904,3 +7904,204 @@ D指导一开源，全世界的模型是不是都能支持1M上下文了。。</
 
 我再试试
 
+
+*****
+
+####  木谷高明  
+##### 734#       发表于 2026-4-24 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530912&amp;ptid=2275806" target="_blank">noword 发表于 2026-4-24 11:38</a>
+ds老中医一出手就知道有没有，妙手回春怎么说</blockquote>
+昨天GPT5.5偷跑了，这回是两面包夹芝士，开源闭源左右开弓<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 735#       发表于 2026-4-24 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531000&amp;ptid=2275806" target="_blank">木谷高明 发表于 2026-4-24 11:55</a>
+
+业界大多1M，记得哪家在ds发布前已经支持10M了</blockquote>
+我印象里支持1M的就谷歌，Claude和DS，gpt我用的不多不确定，GLM和kimi都不支持
+
+*****
+
+####  羊寢  
+##### 736#       发表于 2026-4-24 11:59
+
+写文方面pro活人感强了很多，甚至比前几天官网的pro表现更好(不过也可能是我用酒馆测的，预设提示词有一定影响)
+
+*****
+
+####  凉良  
+##### 737#       发表于 2026-4-24 11:59
+
+现在v3输出是多少钱来着 我现在光网页看新闻就一个月要用几十块了 
+
+*****
+
+####  不见不散  
+##### 738#       发表于 2026-4-24 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530925&amp;ptid=2275806" target="_blank">hujingjing 发表于 2026-4-24 11:40</a>
+刚无聊刷到新闻，打开网页问了下ds他是不是v4，他告诉我不是，然后我反手发了他们微信公众号的链接，他又说 ...</blockquote>
+我先问他什么版本的，他说自己没有版本一说。我又问他你的新模型有什么特点，他就开始说4月24日v4的变化了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狭义文具爱好者  
+##### 739#       发表于 2026-4-24 12:02
+
+<blockquote>tillnight 发表于 2026-4-24 11:53
+在目前买coding plan的都是会薅光羊毛的用户的前提下，各厂的订阅实际上都是赔本赚吆喝，唯一的好处是营 ...</blockquote>
+但是竞争对手都在干的情况下直接放弃也不见的正确，国内国外都在这么卷，不这么干用的人就是会少，工具还是要让人用的。
+
+*****
+
+####  zris  
+##### 740#       发表于 2026-4-24 12:02
+
+ 本帖最后由 zris 于 2026-4-24 12:04 编辑 
+
+你好！我是 DeepSeek 最新版模型，由深度求索公司（DeepSeek）开发的AI助手。
+
+具体来说：
+
+我是纯文本模型，支持阅读链接和处理多种文件格式（图片、txt、pdf、ppt、word、excel等）
+
+知识截止日期为2025年5月
+
+拥有100万token的超长上下文，可以一次性处理像《三体》三部曲体量的书籍
+
+完全**，App端还支持语音输入
+
+支持联网搜索功能（需要手动开启）
+
+虽然我是纯文本模型，但可以读取上传文件中的文字信息，比如你上传图片时，我能从中提取文字内容进行处理。
+
+有什么我可以帮你的吗？
+
+数据库才去年5月<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  敏感  
+##### 741#       发表于 2026-4-24 12:03
+
+顺道问一下，我现在用的中转API站，claude sonnet限流蛮严重的，让它读代码写文档，输入长一点，都经常报错或空返回，想试试国产模型了。
+
+想要一个官方或者吞吐量大一点的代理商，可以接受闭源模型先试试用用，开源有推荐的模型嘛，代理商呢（硅基流动如何）? 闭源的话在考虑试试Qwen3.6-Plus，coding能力如何? 
+
+*****
+
+####  秦南心  
+##### 742#       发表于 2026-4-24 12:03
+
+业界的1M大多是💩1M，没有ds v4这种95%以上的注意力
+
+*****
+
+####  很久就在那边l  
+##### 743#       发表于 2026-4-24 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69530953&amp;ptid=2275806" target="_blank">wtyrambo 发表于 2026-4-24 11:46</a>
+所以到底水平怎样，官方评测的分数没看头</blockquote>
+https://llm2014.github.io/llm_benchmark/#category=code_v3&amp;dataset=code_v3%7C2026-04%7C0
+
+民间测试员的数据，编程比glm5.1强一点，国产第一了
+
+
+*****
+
+####  Freewolf  
+##### 744#       发表于 2026-4-24 12:04
+
+简单试了下几个脑筋急转弯，还挺聪明
+
+<img src="https://img.stage1st.com/forum/202604/24/120451ojab3p3jcs3op919.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2026-04-24_12-02-58.png</strong> (124.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-24 12:04 上传
+
+<img src="https://img.stage1st.com/forum/202604/24/120451aqq5bhzc5tkflmqc.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2026-04-24_12-02-49.png</strong> (134.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-24 12:04 上传
+
+酒馆拿3.2的预设试了试，感觉方差有点大，神区二象性，坐等大佬出适配预设
+
+*****
+
+####  drodchang  
+##### 745#       发表于 2026-4-24 12:05
+
+coding plan本来是很好的模式可惜现在各种agent实在太耗token了，所以这个模式迟早维持不下去的。
+
+*****
+
+####  ml1642879  
+##### 746#       发表于 2026-4-24 12:05
+
+鲸鱼娘醒了，但还是告诉我拿着5米的竹竿还是无法通过3米高2米宽的门的
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
+
+*****
+
+####  谎称  
+##### 747#       发表于 2026-4-24 12:06
+
+下面可以期待V4正式版了。。
+
+年底？
+
+*****
+
+####  zris  
+##### 748#       发表于 2026-4-24 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531038&amp;ptid=2275806" target="_blank">敏感 发表于 2026-4-24 12:03</a>
+
+顺道问一下，我现在用的中转API站，claude sonnet限流蛮严重的，让它读代码写文档，输入长一点，都经常报错 ...</blockquote>
+······弄个gpt或者claude的官方渠道吧
+
+中转商基本都掺水还不稳定
+
+无论是gpt还是claude，他们都有自己的context压缩技术
+
+我经常一个session聊一堆需求都没啥问题
+
+因为你要coding就别折磨自己了
+
+除了gpt和claude，其他折腾起来反而更麻烦
+
+推荐弄个windsurf，cursor，factory这些ide
+
+windsurf还可以白嫖
+
+*****
+
+####  勿徊哉  
+##### 749#       发表于 2026-4-24 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531003&amp;ptid=2275806" target="_blank">findpkq 发表于 2026-4-24 11:56</a>
+不一定是生成，多模态带来的能力是能直接作用在agent使用过程吧
+
+我要仿一个图片/网页我可以直接甩截图， ...</blockquote>
+那我感觉还是华为全责。估计识图太占显存了吧，你看文字都有百万上下文，识图可没有能吃1000张图片的。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  半江瑟瑟半江红  
+##### 750#       发表于 2026-4-24 12:08
+
+话说菊花这昇腾系列到底是谁给代工的？这么大产能不可能一点风声都没有啊
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
