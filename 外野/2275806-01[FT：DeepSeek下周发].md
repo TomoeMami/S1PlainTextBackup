@@ -9645,3 +9645,46 @@ https://github.com/victorchen96/deepseek_v4_rolepaly_instruct/blob/main/README.m
 
 现在没法玩，问下pro的max酒馆里面要怎么调？
 
+
+*****
+
+####  脸宽  
+##### 895#       发表于 2026-4-24 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532146&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-4-24 15:56</a>
+手机就装了个chatbox和tavo
+
+—— 来自 HUAWEI SGU-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+感谢，用了下tavo感觉挺方便的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  主人ハム子  
+##### 896#       发表于 2026-4-24 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532127&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-4-24 15:52</a>
+建议直接把小艺换成DS，小艺实在是有点蠢</blockquote>
+小艺不是早就接入ds了？
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  蒜苗  
+##### 897#       发表于 2026-4-24 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532173&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-4-24 16:02</a>
+</blockquote>
+直播已经开了？
+
+*****
+
+####  德尔惠净水器  
+##### 898#       发表于 2026-4-24 16:13
+
+ 本帖最后由 德尔惠净水器 于 2026-4-24 16:14 编辑 
+<blockquote>蒜苗 发表于 2026-4-24 16:11
+直播已经开了？</blockquote>
+
+在播了          
+
