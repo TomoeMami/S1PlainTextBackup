@@ -9465,3 +9465,36 @@ vLLM-ascend（昇腾） 也 day-0 support 了，目前只支持 flash，A2 &amp;
 
 —— 来自 HUAWEI LMR-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  chuchoselph  
+##### 878#       发表于 2026-4-24 15:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531943&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-4-24 15:15</a>
+
+下午四点昇腾要进行直播。DSV4 从训好到发布拖了这么长时间，很大一部分原因就是要跟华子做适配 ...</blockquote>
+不是晚上7点么
+
+*****
+
+####  云卷花开  
+##### 879#       发表于 2026-4-24 15:35
+
+https://github.com/victorchen96/deepseek_v4_rolepaly_instruct/blob/main/README.md
+
+感觉你楼可能不知道，就发一下：ds 做 v4 训练的时候专门加了俩角色扮演和创意写作专用的指令，赞美梁圣和小礼亚圣吧<img src="https://static.stage1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  StrangerJ  
+##### 880#       发表于 2026-4-24 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69532022&amp;ptid=2275806" target="_blank">chuchoselph 发表于 2026-4-24 15:33</a>
+不是晚上7点么</blockquote>
+删了重新发，改时间了
+
+—— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
