@@ -6822,3 +6822,29 @@ hy3还是拉了啊
 hy3还是拉了啊</blockquote>
 这个参数量的正常水平，只能说TX终于重新上桌了
 
+
+*****
+
+####  aw627  
+##### 619#       发表于 2026-4-24 08:07
+
+又过了一夜，大的似乎还没来
+
+
+*****
+
+####  Litccc  
+##### 620#       发表于 2026-4-24 08:13
+
+GPT 5.5更了，全面碾压Opus 4.7，v4压力更大了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  noword  
+##### 621#       发表于 2026-4-24 08:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69529703&amp;ptid=2275806" target="_blank">Litccc 发表于 2026-4-24 08:13</a>
+
+GPT 5.5更了，全面碾压Opus 4.7，v4压力更大了</blockquote>
+Opus 4.7不是说比4.6拉了吗
+
