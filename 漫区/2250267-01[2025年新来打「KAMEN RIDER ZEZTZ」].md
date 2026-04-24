@@ -2566,3 +2566,15 @@ zzz在日本24集才起来的，之前从第一集开始热度就路边一条，
 <img src="https://p.sda1.dev/32/66c88eabc7f20533ad306a8931782718/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/0ca311ef54ccf5dfbef0d3f4b28fbd50/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一个陆仁贾  
+##### 1321#       发表于 2026-4-24 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69527667&amp;ptid=2250267" target="_blank">milky658 发表于 2026-4-23 16:58</a>
+zzz在日本24集才起来的，之前从第一集开始热度就路边一条，到灾厄登场那集日推关联词“无聊”“看不懂” ...</blockquote>
+看来令和目前只有圣刃和zzz口碑好不是没有原因的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

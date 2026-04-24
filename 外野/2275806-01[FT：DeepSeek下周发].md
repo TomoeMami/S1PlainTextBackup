@@ -9363,3 +9363,17 @@ gemini 主要发布后一路 ...</blockquote>
 官方r1在去年夏天v3.1出来后就不存在了啊……<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 现在官网api的原本reasoner/chat接口还保留着，得自行调用才有，7月底会撤掉，如果是直接用的话就是只有v4了
 
+
+*****
+
+####  Su7  
+##### 868#       发表于 2026-4-24 14:49
+
+<img src="https://img.stage1st.com/forum/202604/24/144938rsou0z0mh125u2s0.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5298.png</strong> (420.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-24 14:49 上传
+
