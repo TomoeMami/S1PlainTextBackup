@@ -134,3 +134,13 @@ PS4的时候就只在美服上看到3</blockquote>
 
 《沙罗周期》媒体评分解禁：MC88/OC92，IGN7/GS9
 
+
+*****
+
+####  黑猫软  
+##### 639#       发表于 2026-4-25 11:00
+
+Tom Henderson：在上周Haven Studios 以“espresso”为代号对 Fairgames 进行了另一次试玩，但据参与者称，该游戏依然“难以找到乐趣”。
+
+再似一个赫尔曼也可以润了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
