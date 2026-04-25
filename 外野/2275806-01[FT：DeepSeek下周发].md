@@ -11110,3 +11110,15 @@ Cherry直接能用{{datetime}}变量，好强的哇<img src="https://static.stag
 
 虽然比充足算力的哈基米差了一点，但是价格在那已经笑嘻了
 
+
+*****
+
+####  热带鱼鱼  
+##### 1024#       发表于 2026-4-25 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69534214&amp;ptid=2275806" target="_blank">临界点 发表于 2026-4-25 01:39</a>
+哪天确认了是国产卡训练出来的才可能跌</blockquote>
+预训练还是nv的，flash的后训练用的是昇腾（昇腾昨天直播确认的）
+
+—— 来自 Xiaomi 22101317C, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
