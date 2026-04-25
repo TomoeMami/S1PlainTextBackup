@@ -4038,3 +4038,11 @@ https://x.com/PRAGMATA_JP/status/20475882997333975 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  绯红残叶  
+##### 752#       发表于 2026-4-26 00:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这最后一个挑战也太抽象了，最后一波怪怎么才能打快点啊，留了一个诱饵两个侵入陷阱还是不能快速打死
+
