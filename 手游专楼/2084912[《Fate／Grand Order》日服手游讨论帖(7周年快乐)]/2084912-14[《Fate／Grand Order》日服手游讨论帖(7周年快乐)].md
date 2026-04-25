@@ -246,3 +246,37 @@
 由手机上传
 2026-4-25 19:18 上传
 
+
+*****
+
+####  alucardcz  
+##### 20675#       发表于 2026-4-25 19:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">6066年4月 才出第1个5星 泥楼最非了
+
+*****
+
+####  都谷捻柏  
+##### 20676#       发表于 2026-4-25 19:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">这个卡面，一点抽的欲望都没有……
+
+*****
+
+####  khxooo  
+##### 20677#       发表于 2026-4-25 19:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69536237&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-4-25 19:08</a>
+两发十连出来了 是不是特别菜啊 不菜的角色我一般都抽不到的</blockquote>
+欧羡慕了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno1  
+##### 20678#       发表于 2026-4-25 19:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69536375&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-4-25 19:44</a>
+
+欧羡慕了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">然而随便出货的基本都是菜B卡
+
