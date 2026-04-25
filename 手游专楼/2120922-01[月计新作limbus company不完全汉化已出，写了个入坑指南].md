@@ -46,3 +46,21 @@
 第一队用环指出血队打出boss二阶段，中途用血欲锁层数
 第二队沉沦扣理智拼点大优势，第二次放大的时候李恩箱会刷出神秘红色小技能
 
+
+*****
+
+####  Sleipnirω  
+##### 1308#       发表于 2026-4-25 18:25
+
+ 本帖最后由 Sleipnirω 于 2026-4-25 18:27 编辑 
+
+掏空所有资源拉了四个环指两个黑云，没有血欲19t打过了
+
+<img src="https://img.stage1st.com/forum/202604/25/182532rxww7vhkexxvppph.jpg" referrerpolicy="no-referrer">
+
+<strong>1973530_screenshots_20260425182132_1.jpg</strong> (181.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-25 18:25 上传
+
