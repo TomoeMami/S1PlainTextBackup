@@ -3276,3 +3276,14 @@ oor自用也是巨大提升，大部分对面红机都是一刀
 
 无所谓的事情 00r并不能阻止大家拿20w
 
+
+*****
+
+####  电脑死机  
+##### 4094#       发表于 2026-4-25 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69507661&amp;ptid=2071758" target="_blank">ティグル 发表于 2026-4-19 12:45</a>
+
+没抽奥托肠子都悔青了，有满破蛋R也是低配</blockquote>
+没事，本期大师赛有徐锦江的池
+
