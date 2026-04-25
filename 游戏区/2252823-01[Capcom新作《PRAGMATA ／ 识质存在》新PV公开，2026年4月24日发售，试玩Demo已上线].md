@@ -4027,3 +4027,14 @@ https://x.com/PRAGMATA_JP/status/20475882997333975 ...</blockquote>
 
 顺便，那个图鉴多写几句不行吗，设计一个破解以后扫描出弱点能增加图鉴内容，训练6也不会那么莫名其妙<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  当光停止  
+##### 751#       发表于 2026-4-25 22:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开了把狂月，休不能用抽象机器人皮好不习惯。
+原皮还是太敦实，手感有点重。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
