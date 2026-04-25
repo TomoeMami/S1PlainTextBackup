@@ -10934,3 +10934,24 @@ APP和网页版似乎还没更新？
 
 试了下用pro写刘备文，秒杀3.2啊，甚至有点超出我的期待了
 
+
+*****
+
+####  wokazuleaa  
+##### 1006#       发表于 2026-4-25 08:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69531598&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-4-24 14:14</a>
+Gemini现在这么差吗，我记得半年前大家普遍还认为这是最好用的</blockquote>
+降智严重
+
+—— 来自 vivo V2307A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  Rowen233  
+##### 1007#       发表于 2026-4-25 08:44
+
+黄🐶也不一定会跌
+
+谷顺歌tpu都超过60%也没影响黄🐶<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
