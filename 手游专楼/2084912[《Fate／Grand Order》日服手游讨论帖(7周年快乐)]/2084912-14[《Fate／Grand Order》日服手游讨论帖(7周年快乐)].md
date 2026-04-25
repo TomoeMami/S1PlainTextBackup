@@ -403,3 +403,52 @@
 
 黑影大个也是趁FSF活动先行出场预热的有自己的活动顺带被延了
 
+
+*****
+
+####  岸浪白野  
+##### 20691#       发表于 2026-4-25 21:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69536869&amp;ptid=2084912" target="_blank">quanlix 发表于 2026-4-25 21:24</a>
+
+剧情pv里有个大只佬，等几天看有没有二期，没有就省石头了</blockquote>
+现在还哪会藏二期池一早奏章4给你说抽莉莉丝和新选组给你说抽近藤勇说完了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 20692#       发表于 2026-4-25 21:31
+
+ 本帖最后由 gpx234mqx 于 2026-4-25 21:34 编辑 
+
+炸了70连才出<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+弗兰切斯卡的卡面太随便了
+
+不给狂信啥意思啊
+
+*****
+
+####  exiaexa  
+##### 20693#       发表于 2026-4-25 22:32
+
+打完了，还不错
+
+狠狠的期待后面，看能不能补点设定
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 20694#       发表于 2026-4-25 23:06
+
+不知道该高兴还是无奈<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202604/25/230528u3vru6uv67o29uv6.png" referrerpolicy="no-referrer">
+
+<strong>MuMu-20260425-225849-025.png</strong> (482.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-25 23:05 上传
+

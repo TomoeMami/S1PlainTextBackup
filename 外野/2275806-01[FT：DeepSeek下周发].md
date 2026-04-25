@@ -11260,3 +11260,14 @@ what can i say
 
 应该想搞点数据用来后续训练吧
 
+
+*****
+
+####  真红之闪电  
+##### 1039#       发表于 2026-4-25 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69536220&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-4-25 19:03</a>
+
+Cherry直接能用{{datetime}}变量，好强的哇</blockquote>
+这个又是啥
+
