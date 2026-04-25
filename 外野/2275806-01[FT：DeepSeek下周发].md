@@ -11387,3 +11387,13 @@ deepseek v4还是无法识别图片</blockquote>
 
 今天不知道是ds调整了什么还是我用了适配v4的预设的原因，缓存命中率比昨天高了不少
 
+
+*****
+
+####  lowezack  
+##### 1052#       发表于 2026-4-26 07:00
+
+ 本帖最后由 lowezack 于 2026-4-26 07:02 编辑 
+
+用来实现了一个大的重构，计划是claude写的，v4 pro执行，结果相当能打，确实像发布的文章里说的，可以用来代替日常开发了<img src="https://static.stage1st.com/image/smiley/face/95.gif" referrerpolicy="no-referrer">
+
