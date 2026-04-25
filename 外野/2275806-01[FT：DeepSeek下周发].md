@@ -11290,3 +11290,14 @@ Cherry直接能用{{datetime}}变量，好强的哇</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">伟大无需多言
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 1042#       发表于 2026-4-25 23:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69537286&amp;ptid=2275806" target="_blank">zerona 发表于 2026-4-25 23:21</a>
+
+打折多久时间？</blockquote>
+到5月6号0点，假期爽玩
+
