@@ -280,3 +280,47 @@
 欧羡慕了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">然而随便出货的基本都是菜B卡
 
+
+*****
+
+####  angelooo  
+##### 20679#       发表于 2026-4-25 19:54
+
+横飞姬这卡面画的什么玩意
+
+女王的蛮破倒是还行
+
+*****
+
+####  v22325  
+##### 20680#       发表于 2026-4-25 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69536314&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-4-25 19:31</a>
+
+6066年4月 才出第1个5星 泥楼最非了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我还没出呢 2026年快五个月了没抽到五星
+
+
+*****
+
+####  khxooo  
+##### 20681#       发表于 2026-4-25 20:32
+
+150石头才将C元帅满宝，真是有UP啊喂<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">，没出五星，不如说这才正常，就当还债了。
+
+*****
+
+####  Jamaisvu  
+##### 20682#       发表于 2026-4-25 20:33
+
+<img src="https://img.stage1st.com/forum/202604/25/203341tkf414qkf646vy64.png" referrerpolicy="no-referrer">
+
+<strong>1777120335496.png</strong> (47.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-4-25 20:33 上传
+
+狂信子解包就两个差分表情，别说落地了，有多少戏份都难说...好敷衍的联动...
+
