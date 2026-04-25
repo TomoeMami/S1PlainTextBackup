@@ -2673,3 +2673,15 @@ zzz在日本24集才起来的，之前从第一集开始热度就路边一条，
 
 话说decade变zeztz的话腰带会在哪里
 
+
+*****
+
+####  斯城恶魔  
+##### 1331#       发表于 2026-4-25 13:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69534258&amp;ptid=2250267" target="_blank">himfsz 发表于 2026-4-25 02:25</a>
+话说decade变zeztz的话腰带会在哪里</blockquote>
+decade变其他骑士不改变decade腰带位置，倒是legendzzz、时王zzz表和ghostzzz魂应该考虑怎么设计
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
