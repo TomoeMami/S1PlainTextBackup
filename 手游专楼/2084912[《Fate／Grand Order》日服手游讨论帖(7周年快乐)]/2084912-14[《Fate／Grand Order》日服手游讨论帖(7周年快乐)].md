@@ -124,3 +124,125 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  岸浪白野  
+##### 20671#       发表于 2026-4-25 19:01
+
+问就是我们受限于剧情没完结连大仲马和狂信子都是，给你端出横飞姬和希波这2个就不受限了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20672#       发表于 2026-4-25 19:02
+
+日程
+
+<img src="https://img.stage1st.com/forum/202604/25/190239mnfdwldcnlqs7ecd.png" referrerpolicy="no-referrer">
+
+<strong>]$VSKG(_DF$YDGWHF(M(BQ5.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2026-4-25 19:02 上传
+
+<img src="https://img.stage1st.com/forum/202604/25/190214doneqxnoxkomn2jp.png" referrerpolicy="no-referrer">
+
+<strong>C$E783B26PUK3AI9)6E)4UP.png</strong> (1.47 MB, 下载次数: 0)
+
+下载附件
+
+2026-4-25 19:02 上传
+
+*****
+
+####  qixinno1  
+##### 20673#       发表于 2026-4-25 19:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">两发十连出来了 是不是特别菜啊 不菜的角色我一般都抽不到的
+
+<img src="https://img.stage1st.com/forum/202604/25/190746eqqobvqql8nbttlv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (395.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-25 19:07 上传
+
+*****
+
+####  Jamaisvu  
+##### 20674#       发表于 2026-4-25 19:18
+
+ 本帖最后由 Jamaisvu 于 2026-4-25 19:22 编辑 
+
+搬一下卡面和技能：
+
+<img src="https://img.stage1st.com/forum/202604/25/191738ln76io7mz72b26ni.jpg" referrerpolicy="no-referrer">
+
+<strong>1777115570684.jpg</strong> (367.61 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-4-25 19:17 上传
+
+<img src="https://img.stage1st.com/forum/202604/25/191749nvmhdwsjwcr85hpt.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20260425_191525.png</strong> (406.83 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-4-25 19:17 上传
+
+<img src="https://img.stage1st.com/forum/202604/25/191749zukj4ujfu4004nuu.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20260425_191547.png</strong> (431.36 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-4-25 19:17 上传
+
+<img src="https://img.stage1st.com/forum/202604/25/191750hdx14bdf6b7556w6.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20260425_191558.png</strong> (276.21 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-4-25 19:17 上传
+
+横飞姬，和迪拜BB一样能切换攻击和辅助宝具。
+
+赠送的神代咕哒子：
+
+<img src="https://img.stage1st.com/forum/202604/25/191816gwhptttkqbatqtac.jpg" referrerpolicy="no-referrer">
+
+<strong>1777115649945.jpg</strong> (283.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-4-25 19:18 上传
+
+<img src="https://img.stage1st.com/forum/202604/25/191816ycucefddnmucceoz.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20260425_191505.png</strong> (437.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-4-25 19:18 上传
+
+<img src="https://img.stage1st.com/forum/202604/25/191816pnj6nnnq664nnm6j.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20260425_191642.png</strong> (264.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-4-25 19:18 上传
+
