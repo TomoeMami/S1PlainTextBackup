@@ -39,3 +39,37 @@
 那么来个技能转职介，来个弓转仇，然后技能组换了，只是如果这样又要乳青就是了 ...</blockquote>
 旮旯地哪有那么多黑泥给海变身用<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 20661#       发表于 2026-4-23 11:38
+
+吃完梦火不难吧，我也梦火清空了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20662#       发表于 2026-4-23 12:59
+
+ 本帖最后由 岸浪白野 于 2026-4-23 13:05 编辑 
+
+梦火不是应该在去年一波冠位战和最后砍树就用完的吗
+今年才是给你存梦火的吧，除开金方块总换都开始活动送了2个梦火加上追加常驻送2个了
+而且今年开始的卡就个冠呆能刷下15绊，更别说现在已经刷完了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/afc5b392f1b73897eb67ee75f5cf0333/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 20663#       发表于 2026-4-23 19:16
+
+反正苹果和梦火总有一个缺的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 20664#       发表于 2026-4-25 16:15
+
+对女王无感，看看强度吧，如果强度不高和没有二池的话那FSF的卡池估计就跳过了。
+
