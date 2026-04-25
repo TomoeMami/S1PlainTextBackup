@@ -73,3 +73,54 @@
 
 对女王无感，看看强度吧，如果强度不高和没有二池的话那FSF的卡池估计就跳过了。
 
+
+*****
+
+####  khxooo  
+##### 20665#       发表于 2026-4-25 18:36
+
+女王竟然是送的<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 20666#       发表于 2026-4-25 18:46
+
+海无力不会是柱子吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  khxooo  
+##### 20667#       发表于 2026-4-25 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69536158&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2026-4-25 18:46</a>
+海无力不会是柱子吧
+
+—— 来自 鹅球 v3.5.99</blockquote>
+不用想，肯定是他<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  風卷豹  
+##### 20668#       发表于 2026-4-25 18:52
+
+真出横飞姬啊，不知道有没有强度美，没有就不不抽了<img src="https://static.stage1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 20669#       发表于 2026-4-25 18:55
+
+横飞姬一个算两个吗，所以卡池四星就不做了是吧233
+
+*****
+
+####  blue321  
+##### 20670#       发表于 2026-4-25 18:56
+
+又乳海了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
