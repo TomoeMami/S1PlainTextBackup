@@ -354,3 +354,52 @@
 神代咕哒子还行啊，全方位送走了灰姑娘龙娘
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  里村紅葉  
+##### 20687#       发表于 2026-4-25 21:22
+
+这女王的脸看久了怎么有点吓人<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 20688#       发表于 2026-4-25 21:24
+
+剧情pv里有个大只佬，等几天看有没有二期，没有就省石头了
+
+*****
+
+####  岸浪白野  
+##### 20689#       发表于 2026-4-25 21:24
+
+因为希波和横飞姬这两个占的从者ID 是去年就占好位置，希波是405600，横飞姬是505600和505700 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202604/25/212258lr2kav33zkooo023.png" referrerpolicy="no-referrer">
+
+<strong>Q]P5{@0L@0GYH)F3%T3I.png</strong> (113.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-25 21:22 上传
+
+<img src="https://img.stage1st.com/forum/202604/25/212304ojzcux7glvb5rx37.png" referrerpolicy="no-referrer">
+
+<strong>L8N]42~0M7DEDO4CSMS{[UF.png</strong> (113.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-25 21:23 上传
+
+*****
+
+####  岸浪白野  
+##### 20690#       发表于 2026-4-25 21:26
+
+ 本帖最后由 岸浪白野 于 2026-4-25 21:28 编辑 
+
+意思就是这联动立项是25年初就立好了先占好ID位置，结果动画延期了，动画为什么会延期和A1有关那部分在动画楼说过就不说了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+黑影大个也是趁FSF活动先行出场预热的有自己的活动顺带被延了
+
