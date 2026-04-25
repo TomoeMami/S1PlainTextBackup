@@ -11217,3 +11217,29 @@ what can i say
 
 等下，昨天花钱的岂不是被背刺了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  overflowal  
+##### 1034#       发表于 2026-4-25 22:16
+
+感觉是把训练资源放给出来了，反正要放假    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  木水风铃  
+##### 1035#       发表于 2026-4-25 22:19
+
+啊这，我也烧了50多<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+总之伟大无需多言了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  gawain  
+##### 1036#       发表于 2026-4-25 22:22
+
+伟大！无须多言！
+
