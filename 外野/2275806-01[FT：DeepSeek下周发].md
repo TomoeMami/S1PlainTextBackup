@@ -11243,3 +11243,20 @@ what can i say
 
 伟大！无须多言！
 
+
+*****
+
+####  有鱼  
+##### 1037#       发表于 2026-4-25 22:33
+
+估计是五一假期也不准备训练，算力放出来，顺便降价多搞点数据反馈<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  andychen  
+##### 1038#       发表于 2026-4-25 22:34
+
+应该想搞点数据用来后续训练吧
+
