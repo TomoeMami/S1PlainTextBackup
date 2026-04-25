@@ -9806,3 +9806,11 @@ https://www.capcom.co.jp/ir/english/news/html/e260316.html</blockquote>
 
 2个月不到超了RE4第一年了
 
+
+*****
+
+####  牛奶笛  
+##### 2312#       发表于 2026-4-25 11:26
+
+打折后系列第一销量应该没问题
+
