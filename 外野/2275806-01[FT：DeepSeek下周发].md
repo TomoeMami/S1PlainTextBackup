@@ -11088,3 +11088,25 @@ Cherry直接能用{{datetime}}变量，好强的哇<img src="https://static.stag
 
 手机上哪个能调api的max的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">chatbox调不了啊
 
+
+*****
+
+####  一般市民  
+##### 1022#       发表于 2026-4-25 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69536229&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-4-25 19:05</a>
+
+手机上哪个能调api的max的chatbox调不了啊</blockquote>
+试试： github.com/Chevey339/kelivo
+
+*****
+
+####  绝地潜兵  
+##### 1023#       发表于 2026-4-25 19:17
+
+发现V4F很喜欢乱用形容词，把日常叙事搞得和散文一样
+
+然后去找哈基米校正，最后能稳定输出很有电影感的叙事方式
+
+虽然比充足算力的哈基米差了一点，但是价格在那已经笑嘻了
+
