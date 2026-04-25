@@ -9798,3 +9798,11 @@ https://www.capcom.co.jp/ir/english/news/html/e260316.html</blockquote>
 破700万
 <img src="https://p.sda1.dev/32/d96b8eeee4237d42a3daf7917ae9715d/1000165398.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斯卡雷特  
+##### 2311#       发表于 2026-4-25 08:34
+
+2个月不到超了RE4第一年了
+
