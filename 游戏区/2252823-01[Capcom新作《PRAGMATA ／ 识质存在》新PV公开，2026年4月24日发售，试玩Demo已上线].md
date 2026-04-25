@@ -4046,3 +4046,13 @@ https://x.com/PRAGMATA_JP/status/20475882997333975 ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这最后一个挑战也太抽象了，最后一波怪怎么才能打快点啊，留了一个诱饵两个侵入陷阱还是不能快速打死
 
+
+*****
+
+####  otakun  
+##### 753#       发表于 2026-4-26 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69537418&amp;ptid=2252823" target="_blank">绯红残叶 发表于 2026-4-26 00:05</a>
+这最后一个挑战也太抽象了，最后一波怪怎么才能打快点啊，留了一个诱饵两个侵入陷阱还是不能快速打死 ...</blockquote>
+第一波怪不用诱饵只用入侵雷弹，把两个诱饵两个入侵留到最后用？打出两个群体混乱，用光束把有盾的那个先快速点掉，其他就祈祷混乱的哥们自刎归天。
+
