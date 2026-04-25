@@ -11379,3 +11379,11 @@ deepseek v4还是无法识别图片</blockquote>
 这个意思？ ...</blockquote>
 不是，接住我是chatgpt的口癖<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我这边是前面好好的后面突然冒出来一个接住你了让我绷不住了
 
+
+*****
+
+####  Freewolf  
+##### 1051#       发表于 2026-4-26 01:25
+
+今天不知道是ds调整了什么还是我用了适配v4的预设的原因，缓存命中率比昨天高了不少
+
