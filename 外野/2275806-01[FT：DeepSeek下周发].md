@@ -11367,3 +11367,15 @@ deepseek v4还是无法识别图片</blockquote>
 
 这个意思？
 
+
+*****
+
+####  Promeus  
+##### 1050#       发表于 2026-4-26 01:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69537559&amp;ptid=2275806" target="_blank">zerona 发表于 2026-4-26 00:56</a>
+前期 AI 回应割裂、跟不上思路，经过海量文字磨合后，能连贯共情、贴合设定接话，默契度拉满 
+
+这个意思？ ...</blockquote>
+不是，接住我是chatgpt的口癖<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我这边是前面好好的后面突然冒出来一个接住你了让我绷不住了
+
