@@ -11155,3 +11155,23 @@ Cherry直接能用{{datetime}}变量，好强的哇<img src="https://static.stag
 限时降价了，打2.5折</blockquote>
 什么降价了
 
+
+*****
+
+####  羊寢  
+##### 1028#       发表于 2026-4-25 21:19
+
+ 本帖最后由 羊寢 于 2026-4-25 21:21 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69536822&amp;ptid=2275806" target="_blank">十个印地男孩 发表于 2026-4-25 21:10</a>
+什么降价了</blockquote>
+api
+这下是真的梁圣了<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+另外傍晚时看到某脑有人说自己在发的世界书被v4炼进去了，看来他们是真的有人潜伏在某脑<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  phorcys02  
+##### 1029#       发表于 2026-4-25 21:21
+
+我擦,二五折,亏大了..我这已经烧了50元岂不是一个疯狂星期四没了...
+
