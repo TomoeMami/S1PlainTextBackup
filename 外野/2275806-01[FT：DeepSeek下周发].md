@@ -11813,3 +11813,19 @@ deepseek v4还是无法识别图片</blockquote>
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  闪雷可达鸭  
+##### 1091#       发表于 2026-4-26 23:49
+
+又降价了吗？
+
+<img src="https://img.stage1st.com/forum/202604/26/234936bz0u5pz9hgu5g54z.jpg" referrerpolicy="no-referrer">
+
+<strong>1000147847.jpg</strong> (81.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-26 23:49 上传
+
