@@ -4254,3 +4254,13 @@ Steam版用PS5手柄有自适应扳机吗？怎么感觉没有</blockquote>
 
 现在还没打到解锁模拟仓的时候，问一下狂月的模拟任务小怪血量也会暴增吗？标准难度很多模拟任务战斗关都是拼尽全力才打到时长内，要是模拟任务也这个血量我感觉没法玩了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  scp073  
+##### 769#       发表于 2026-4-27 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69540791&amp;ptid=2252823" target="_blank">serj005 发表于 2026-4-26 23:51</a>
+狂月重新开荒太难受了，真不如和新游戏+放一起，boss+小怪全都肉的要死，还好先打了未知信号把月丝炮解锁了 ...</blockquote>
+不会，未知信号的模拟和阿舱的模拟都是独立难度，打多了狂月甚至会感叹模拟的伤害太温柔了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
