@@ -11436,3 +11436,11 @@ deepseek v4还是无法识别图片</blockquote>
 大模型都有自己的语癖,像轻小说凹人设一样也是挺好玩的(
 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  羊寢  
+##### 1056#       发表于 2026-4-26 09:18
+
+用了两天现在是感觉自己的角色卡都得重新写了，然后估计是后训练不太行的关系，鲸鱼娘过拟合的情况非常严重，有时会直接照抄语料里的段落导致我的角色ooc，果然我的角色卡设定还是太小众了吗……<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
