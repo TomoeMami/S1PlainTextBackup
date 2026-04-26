@@ -11630,3 +11630,46 @@ deepseek v4还是无法识别图片</blockquote>
 
 —— 来自 OnePlus PJE110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  此誓的守望  
+##### 1074#       发表于 2026-4-26 19:54
+
+<img src="https://img.stage1st.com/forum/202604/26/195413gjjs80y0q8h1eg49.png" referrerpolicy="no-referrer">
+
+<strong>ca6b282994969d14f46899e7e2a8bd5c.png</strong> (89.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-26 19:54 上传
+
+我没看错吧？一个27B的模型价钱这么贵？
+
+*****
+
+####  战术核辣条  
+##### 1075#       发表于 2026-4-26 19:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69539996&amp;ptid=2275806" target="_blank">月白天青 发表于 2026-4-26 19:32</a>
+
+酒馆我今天折腾了1个多小时，有点复杂，别人发布的角色卡试了个输出的文本质量很烂，可能是我不会玩。我就 ...</blockquote>
+有各种各样的总结插件
+
+*****
+
+####  yikaa  
+##### 1076#       发表于 2026-4-26 19:59
+
+4.1也是在4的基础上优化吧，突然多个多模态感觉不太现实
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Promeus  
+##### 1077#       发表于 2026-4-26 20:01
+
+前面漏油已经在app里找到vision模式了<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
