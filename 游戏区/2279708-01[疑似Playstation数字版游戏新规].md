@@ -564,3 +564,19 @@ d+迟早要撤 估计就买个一两年后面该咋咋的
 大概率是bug，目前看只有部分人新买ps4游戏会出现这个显示，ps5也有人反馈不过没看到图
 https://x.com/i/status/2048137485834653912
 
+
+*****
+
+####  雲夢淵澤  
+##### 52#       发表于 2026-4-26 20:31
+
+<img src="https://img.stage1st.com/forum/202604/26/203119apsc0ms60mq0060s.jpg" referrerpolicy="no-referrer">
+
+<strong>HGwMuzkawAABpQW.jpg</strong> (39.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-26 20:31 上传
+
+如果玩家接受不了ps4和ps5上的DRM在线验证 我们准备了一个单机产品 它叫ps3
+
