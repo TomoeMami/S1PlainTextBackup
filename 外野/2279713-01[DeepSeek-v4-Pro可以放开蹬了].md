@@ -451,3 +451,14 @@ i’m ok ，link pk
 
 仅就AIRP而言比网页版直接玩强太多，但也有确实有点麻烦。
 
+
+*****
+
+####  564381634  
+##### 43#       发表于 2026-4-26 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69539125&amp;ptid=2279713" target="_blank">boeing 发表于 2026-4-26 14:36</a>
+
+酒馆只是前端界面，帮你管理人物卡，世界书，预设。至于好不好玩要看你接的什么大模型，用的什么预设，还 ...</blockquote>
+多谢回复，正好在折腾酒馆，就是想知道说用不同公司的AI写出来的东西差距会很大嘛。
+
