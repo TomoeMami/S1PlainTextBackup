@@ -227,3 +227,29 @@ IO 用国产树莓派平替运行 openjvs
 
 想了一下，[還是把咱這兩天零零碎碎在隔壁發的感想重新加筆整理了一下，就當怪文書看吧](https://rentry.org/6vxneqip)。
 
+
+*****
+
+####  虚无缥缈的分身  
+##### 7343#       发表于 2026-4-26 21:58
+
+<img src="https://img.stage1st.com/forum/202604/26/215310e41kon2nn2ovos1o.png" referrerpolicy="no-referrer">
+
+<strong>8da5a95c6f30c61ce1ab3958583e35a8.png</strong> (9.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-26 21:53 上传
+
+<img src="https://img.stage1st.com/forum/202604/26/215453f9bul039er7ap6mk.png" referrerpolicy="no-referrer">
+
+<strong>1cadaac97e4f89940c7dd3d661e69423.png</strong> (31.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-26 21:54 上传
+
+这个寡妇不会指的是luka的妈妈八云吧<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+那我不得不猜测其实路加爹的死因是和日花爹在海边搏斗后双双坠入海底溺死了（致敬传奇泳者星野阿夸）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
