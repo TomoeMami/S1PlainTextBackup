@@ -1318,3 +1318,11 @@ ns2躺着玩这个，真爽
 
 搞不太懂，别的图都推的挺正常的，一去迷你桥就和吃了什么一样打的巨难受还过不去<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  樽——見  
+##### 132#       发表于 2026-4-26 22:09
+
+万能牌是版本答案吗 连击数对上来了数值太爆炸了
+
