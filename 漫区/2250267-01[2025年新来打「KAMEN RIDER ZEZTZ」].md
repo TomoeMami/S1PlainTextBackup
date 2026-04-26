@@ -2982,3 +2982,16 @@ K2XQ1M{S$@VRY6H_8)IM9_C.jpg
 
 其实挺合理的，最开始变身用的脉冲和腰带都是code给的，等离子和灾厄都是手搓的，现在腰带坏掉再自己手搓才算真和code断开
 
+
+*****
+
+####  月夜凝雪  
+##### 1363#       发表于 2026-4-26 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69538285&amp;ptid=2250267" target="_blank">金星 发表于 2026-4-26 10:11</a>
+
+这次也要搞共存吗，梦魇没法彻底消灭，怕不是最后来个伟大封印
+
+而且，你这海报是不是骗人啊，怎么上面的的 ...</blockquote>
+这种设定是必然无法彻底消灭的吧，就和响鬼一样
+
