@@ -11686,3 +11686,31 @@ deepseek v4还是无法识别图片</blockquote>
 —— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球  ...</blockquote>
 什么时候不知道，但是2.0的app是预埋了视觉模式的。
 
+
+*****
+
+####  忧郁的杰哥  
+##### 1079#       发表于 2026-4-26 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69540069&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-4-26 19:54</a>
+
+我没看错吧？一个27B的模型价钱这么贵？一张4090都可以部署的东西15块？</blockquote>
+稠密模型 一张卡输出就几十tokens可能
+
+*****
+
+####  Alunamin  
+##### 1080#       发表于 2026-4-26 20:59
+
+ 本帖最后由 Alunamin 于 2026-4-26 21:00 编辑 
+
+<img src="https://img.stage1st.com/forum/202604/26/205840c6ci8tfsnmouz9zc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (175.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-26 20:58 上传
+
+热情提醒目前还有缓存折上折<img src="https://static.stage1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+

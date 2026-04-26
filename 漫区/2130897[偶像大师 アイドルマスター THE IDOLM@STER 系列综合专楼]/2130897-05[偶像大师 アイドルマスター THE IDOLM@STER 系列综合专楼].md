@@ -210,3 +210,20 @@ IO 用国产树莓派平替运行 openjvs
 高山这活，我看不懂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/f810345dc19fb835327b5a30b215dcfe/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a1370303  
+##### 7341#       发表于 2026-4-26 20:54
+
+双人icu和单人fumage，这是不是有些离谱<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/589c1cd9df48f28c95a8dd7408b5e481/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wfhtony  
+##### 7342#       发表于 2026-4-26 21:00
+
+想了一下，[還是把咱這兩天零零碎碎在隔壁發的感想重新加筆整理了一下，就當怪文書看吧](https://rentry.org/6vxneqip)。
+

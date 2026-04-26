@@ -4201,3 +4201,17 @@ Steam版用PS5手柄有自适应扳机吗？怎么感觉没有<img src="https://
 
 说到自适应扳机<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zqqwe  
+##### 764#       发表于 2026-4-26 21:04
+
+一周目全收集17小时非常充实的体验，近几年最爽的打枪手感，一扫生化4re的憋屈感。
+
+大平层车轮战是最好玩的部分，到了后期试炼和未知信号各种跳跳乐配合这喷射惯性就开始恶心了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">但又在彻底放弃之前全部打完了，不得不说内容分量控制得很精妙。
+
+狂月开了个头，要从头养成基础性能有点压力过大了，五一有空再玩吧。
+
+很喜欢这作的机设风格，GP03D部分只有固定演出太遗憾了<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
