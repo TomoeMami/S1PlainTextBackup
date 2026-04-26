@@ -11847,3 +11847,31 @@ deepseek v4还是无法识别图片</blockquote>
 
 这性价比太离谱了吧
 
+
+*****
+
+####  宅🍐eriri  
+##### 1094#       发表于 2026-4-27 03:02
+
+确实又降价了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+🔥DeepSeek Input Cache Price Drop!
+
+Effective immediately, the price for input cache hits across the ENTIRE DeepSeek API series is reduced to just 1/10th of the original price! Build more efficiently for less.
+
+📌Reminder: The DeepSeek-V4-Pro 75% OFF promotion is still active until May 5th, 2026, 15:59 (UTC Time).
+
+ 🔥 DeepSeek 输入缓存价格下调！
+
+即日起，DeepSeek 全系列 API 的输入缓存命中价格降至原价的十分之一！以更低成本实现更高效构建。
+
+ 📌 温馨提示：DeepSeek-V4-Pro 七五折优惠活动仍在进行中，截止时间为 2026 年 5 月 5 日 15:59（UTC 时间）。
+
+<img src="https://img.stage1st.com/forum/202604/27/030154uve3ywwvnshvbsrd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-27 03:01 上传
+
