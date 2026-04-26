@@ -481,3 +481,13 @@ i’m ok ，link pk
 
 跟算力关系也大，deepseek V4 挤爆了，生成的内容极其简单
 
+
+*****
+
+####  羊寢  
+##### 46#       发表于 2026-4-26 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69539368&amp;ptid=2279713" target="_blank">绝地潜兵 发表于 2026-4-26 16:07</a>
+跟算力关系也大，deepseek V4 挤爆了，生成的内容极其简单</blockquote>
+今天high输出量是下降了，不过max字数还是比较多的，刚才roll了一下，我要求的是2500字以上，他输出了10131t(包含思维链，文章本体目测也有个5 6000t左右)<img src="https://static.stage1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
