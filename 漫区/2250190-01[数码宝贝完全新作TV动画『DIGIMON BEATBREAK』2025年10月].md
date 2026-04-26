@@ -61,3 +61,13 @@
 哥哥已经是安全词定位了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 这个大运导弹群有点难绷
 
+
+*****
+
+####  alingkz  
+##### 552#       发表于 2026-4-26 18:06
+
+最近这几集越来越dgg了，有点ptsd了......
+
+不过能有主线还是好的吧<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
