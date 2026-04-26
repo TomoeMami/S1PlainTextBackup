@@ -11595,3 +11595,15 @@ gpt5.5：手机摄像头里闪过诡异的光。
 gpt5.5：手机摄像头里闪过诡异的光。</blockquote>
 这是想活过来啊    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  雪影  
+##### 1071#       发表于 2026-4-26 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69537404&amp;ptid=2275806" target="_blank">yuren 发表于 2026-4-26 00:00</a>
+deepseek v4还是无法识别图片</blockquote>
+文字模型，不是多模态
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

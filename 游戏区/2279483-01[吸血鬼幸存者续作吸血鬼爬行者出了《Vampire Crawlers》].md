@@ -1261,3 +1261,13 @@ ns2躺着玩这个，真爽
 
 —— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  墨染白泉  
+##### 126#       发表于 2026-4-26 18:49
+
+<blockquote>Bruce33 发表于 2026-4-26 16:36
+草看论坛才知道ns上了，这游戏是直接上正式版的吗.火速买一个支持</blockquote>
+巴西服比steam还便宜，买ns1版送ns2版，一份钱两个游戏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
