@@ -11797,3 +11797,19 @@ deepseek v4还是无法识别图片</blockquote>
 
 已严肃充钱
 
+
+*****
+
+####  neptunehs  
+##### 1090#       发表于 2026-4-26 23:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69540069&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-4-26 19:54</a>
+我没看错吧？一个27B的模型价钱这么贵？一张4090都可以部署的东西15块？</blockquote>
+4090可跑不了262144上下文窗口 27b的话 35a3b才可以 这还是q4的情况下
+按照lmstudio的计算跑满262144 q5的情况下需要50gb的显存 
+那非量化的真满血版本体大约是q5的3倍大小 那简单计算也要150gb的显存
+消耗并不低
+当然你这个比dspro还贵就有点离谱了
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

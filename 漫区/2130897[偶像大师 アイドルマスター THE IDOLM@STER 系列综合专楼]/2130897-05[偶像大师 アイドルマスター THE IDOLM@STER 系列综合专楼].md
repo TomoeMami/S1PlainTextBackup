@@ -253,3 +253,37 @@ IO 用国产树莓派平替运行 openjvs
 
 那我不得不猜测其实路加爹的死因是和日花爹在海边搏斗后双双坠入海底溺死了（致敬传奇泳者星野阿夸）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 7344#       发表于 2026-4-26 23:31
+
+<img src="https://img.stage1st.com/forum/202604/26/233103s4tj2dudd2d7b2lc.png" referrerpolicy="no-referrer">
+
+<strong>111.png</strong> (378.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-26 23:31 上传
+
+高山，你不會真想把今天（4/27）的生放送當 Day 3 整啊。
+
+結合前兩天官推的0點推文看來，8th的少女就是《I'm very very sorry》裏的寡婦。
+
+說起來，這個活動劇情，是在ルカ登場的半年前實裝的吧？
+
+另外，
+
+<img src="https://img.stage1st.com/forum/202604/26/233040dro2oi2brmrndkub.png" referrerpolicy="no-referrer">
+
+<strong>THE_IDOLM@STER_SHINY_COLORS_∞th_LIVE_iと夢_│_バンダイナムコ_2026-04-26_23-06-23.png</strong> (27.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-26 23:30 上传
+
+目前 8th 官網上的 Special 這一欄還是不能點的狀態。
+
+估計今天晚上的生放送會說一下這方面的事情... 倒不如說，生放送必須得有 8th 的「售後」環節了吧。
+
