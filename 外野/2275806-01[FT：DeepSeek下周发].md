@@ -11585,3 +11585,13 @@ gpt5.5：手机摄像头里闪过诡异的光。
 大模型都有自己的语癖,像轻小说凹人设一样也是挺好玩的(</blockquote>
 细节闭眼，还是那么喜欢deepsleep
 
+
+*****
+
+####  zerona  
+##### 1070#       发表于 2026-4-26 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69539004&amp;ptid=2275806" target="_blank">精钢魔像 发表于 2026-4-26 13:45</a>
+gpt5.5：手机摄像头里闪过诡异的光。</blockquote>
+这是想活过来啊    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

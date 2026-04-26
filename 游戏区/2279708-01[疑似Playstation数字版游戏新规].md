@@ -495,3 +495,11 @@ ps5不喜欢联网又买数字版的是什么人群？
 
 d+迟早要撤 估计就买个一两年后面该咋咋的
 
+
+*****
+
+####  葵  
+##### 45#       发表于 2026-4-26 18:30
+
+索尼的畜生程度感觉是和同时期微软的活跃度成反比的～<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

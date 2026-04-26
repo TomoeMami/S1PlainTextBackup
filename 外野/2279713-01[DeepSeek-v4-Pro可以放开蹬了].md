@@ -491,3 +491,14 @@ i’m ok ，link pk
 跟算力关系也大，deepseek V4 挤爆了，生成的内容极其简单</blockquote>
 今天high输出量是下降了，不过max字数还是比较多的，刚才roll了一下，我要求的是2500字以上，他输出了10131t(包含思维链，文章本体目测也有个5 6000t左右)<img src="https://static.stage1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  boeing  
+##### 47#       发表于 2026-4-26 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69539302&amp;ptid=2279713" target="_blank">564381634 发表于 2026-4-26 15:42</a>
+
+多谢回复，正好在折腾酒馆，就是想知道说用不同公司的AI写出来的东西差距会很大嘛。 ...</blockquote>
+短篇可能差别不大，长了差距就明显了。另外还要看和预设的搭配，目前来看还是GEMINI的预设最多。
+
