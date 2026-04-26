@@ -11714,3 +11714,18 @@ deepseek v4还是无法识别图片</blockquote>
 
 热情提醒目前还有缓存折上折<img src="https://static.stage1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  →熙←  
+##### 1081#       发表于 2026-4-26 21:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">缓存可没说限时啊
+
+*****
+
+####  Chenlh  
+##### 1082#       发表于 2026-4-26 21:08
+
+除了打折还有别的东西吧，我前两天抽空用用就花了四十多块，今天高强度用了一天就五块钱。
+
