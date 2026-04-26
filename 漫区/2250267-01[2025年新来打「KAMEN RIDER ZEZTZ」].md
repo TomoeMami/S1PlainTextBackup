@@ -2974,3 +2974,11 @@ K2XQ1M{S$@VRY6H_8)IM9_C.jpg
 
 <img src="https://img.stage1st.com/forum/202604/26/124235wyh7v7yxxffr8627.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Alicest  
+##### 1362#       发表于 2026-4-26 13:05
+
+其实挺合理的，最开始变身用的脉冲和腰带都是code给的，等离子和灾厄都是手搓的，现在腰带坏掉再自己手搓才算真和code断开
+
