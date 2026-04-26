@@ -1372,3 +1372,14 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这个打到后期其实有点不太爽，膀胱局有点烦躁，动不动就1~2个小时，玩起来就一个012345w012345w 
 
+
+*****
+
+####  wing130083  
+##### 137#       发表于 2026-4-27 05:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69523335&amp;ptid=2279483" target="_blank">不见不散 发表于 2026-4-22 19:42</a>
+
+玩过demo，这个游戏玩起来不爽，不爽处有2（主要与本家比较）：一是不再是怪物如潮水般涌来，而是要自己找 ...</blockquote>
+本家武器和饰品格子有限，拿满之前也要抉择的，一直刷废物一样会焦虑<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
