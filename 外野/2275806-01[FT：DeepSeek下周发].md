@@ -11502,3 +11502,16 @@ deepseek V4 flash的快速思考链可以验证提示词鲁棒性
 
 优化后投喂到GLM5，生成内容的风格也很稳定了
 
+
+*****
+
+####  Rowen233  
+##### 1063#       发表于 2026-4-26 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69537445&amp;ptid=2275806" target="_blank">狭义文具爱好者 发表于 2026-4-26 00:15</a>
+
+在日程里了，目前还是preview，4.1或者正式版可能还有惊喜</blockquote>
+确定了吗<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+不过我感觉真加多模态会起个新名字 比如DeepSeek-omni啥的
+
