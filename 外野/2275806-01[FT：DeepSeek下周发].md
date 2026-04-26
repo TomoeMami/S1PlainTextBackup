@@ -11409,3 +11409,13 @@ deepseek v4还是无法识别图片</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  overflowal  
+##### 1054#       发表于 2026-4-26 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69538009&amp;ptid=2275806" target="_blank">御姐贾 发表于 2026-4-26 08:24</a>
+现在网页端的专家思考模式，感觉注意力有所下降，估计还得再等几天，我让他写的文，扩展的我都快看不出来了 ...</blockquote>
+网页是high。只有api可以开max    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
