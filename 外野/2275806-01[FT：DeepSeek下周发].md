@@ -11875,3 +11875,11 @@ Effective immediately, the price for input cache hits across the ENTIRE DeepSeek
 
 2026-4-27 03:01 上传
 
+
+*****
+
+####  御坂MKII  
+##### 1095#       发表于 2026-4-27 03:18
+
+跑自己的 bench 测了一下，感觉后训练还要着重提升一下 token efficiency。思维链拉屎太多已经影响自己思考了。大方向的思考上并不比 k2.6 差，但是在细节上确出现了不该出现的思维链思考浅了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 感觉智力在，但是自己误导自己了
+
