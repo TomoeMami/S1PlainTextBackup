@@ -91,3 +91,110 @@ Ave Mujica LIVE TOUR 2026「Exitus」场贩世限2000张Diggy-MO'演唱的Ave Mu
 
        [https://t.bilibili.com/1194479627539578896](https://t.bilibili.com/1194479627539578896)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41864#       发表于 2026-4-26 21:55
+
+       
+
+<img src="https://img.stage1st.com/forum/202604/26/215547ars6vsvq6c4i630s.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-04-26_21-50-23.jpg</strong> (256.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-26 21:55 上传
+
+       [https://x.com/bang_dream_info/status/2048351376372289591](https://x.com/bang_dream_info/status/2048351376372289591)
+
+*****
+
+####  堀内爱里衣  
+##### 41865#       发表于 2026-4-26 21:56
+
+       
+
+<img src="https://img.stage1st.com/forum/202604/26/215621aqv08kcoch2zu2uz.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-04-26_21-51-22.jpg</strong> (209.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-26 21:56 上传
+
+       [https://x.com/Kanon_Takao/status/2048349712533835983](https://x.com/Kanon_Takao/status/2048349712533835983)
+
+       
+
+<img src="https://img.stage1st.com/forum/202604/26/215620iv6jcr8h1bpfarkb.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-04-26_21-52-12.jpg</strong> (182.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-26 21:56 上传
+
+       [https://x.com/Watase_Yuzuki/status/2048354949038567779](https://x.com/Watase_Yuzuki/status/2048354949038567779)
+
+       
+
+<img src="https://img.stage1st.com/forum/202604/26/215620pnm8mmnynsvhzihm.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-04-26_21-52-43.jpg</strong> (133.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-26 21:56 上传
+
+       [https://x.com/sasakirico/status/2048355927783567475](https://x.com/sasakirico/status/2048355927783567475)
+
+       
+
+<img src="https://img.stage1st.com/forum/202604/26/215619k7vly6bbgzx267zc.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-04-26_21-53-08.jpg</strong> (162.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-26 21:56 上传
+
+       [https://x.com/AkaneY_banu/status/2048362138037805358](https://x.com/AkaneY_banu/status/2048362138037805358)
+
+       
+
+<img src="https://img.stage1st.com/forum/202604/26/215619zco7sn0co7zxctx6.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-04-26_21-53-25.jpg</strong> (200.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-26 21:56 上传
+
+       [https://x.com/okada_mei0519/status/2048369972226019436](https://x.com/okada_mei0519/status/2048369972226019436)
+
+       
+
+<img src="https://img.stage1st.com/forum/202604/26/215618qdkisj7iqpdahjaw.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-04-26_21-53-59.jpg</strong> (371.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-26 21:56 上传
+
+       [https://x.com/sasakirico/status/2048376545920877014](https://x.com/sasakirico/status/2048376545920877014)
+
+       
+
+<img src="https://img.stage1st.com/forum/202604/26/215618rbufufzp9fcvcfff.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-04-26_21-54-14.jpg</strong> (199.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-26 21:56 上传
+
+       [https://x.com/Kanon_Takao/status/2048378634155786284](https://x.com/Kanon_Takao/status/2048378634155786284)
+
