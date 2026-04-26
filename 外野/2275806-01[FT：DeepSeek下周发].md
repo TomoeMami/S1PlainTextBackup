@@ -11740,3 +11740,13 @@ deepseek v4还是无法识别图片</blockquote>
 除了打折还有别的东西吧，我前两天抽空用用就花了四十多块，今天高强度用了一天就五块钱。 ...</blockquote>
 前天首发的时候命中有bug，昨天好像热修了
 
+
+*****
+
+####  绝地潜兵  
+##### 1084#       发表于 2026-4-26 21:44
+
+笑死我了，DS有秋之回忆2的剧情，我用框架提取并构建角色卡和RAG场景<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+用户扮演白河萤抓奸
+
