@@ -4193,3 +4193,11 @@ https://x.com/PRAGMATA_JP/status/20475882997333975 ...</blockquote>
 
 Steam版用PS5手柄有自适应扳机吗？怎么感觉没有<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 763#       发表于 2026-4-26 20:29
+
+说到自适应扳机<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
