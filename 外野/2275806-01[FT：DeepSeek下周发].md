@@ -11397,3 +11397,15 @@ deepseek v4还是无法识别图片</blockquote>
 
 用来实现了一个大的重构，计划是claude写的，v4 pro执行，结果相当能打，确实像发布的文章里说的，可以用来代替日常开发了<img src="https://static.stage1st.com/image/smiley/face/95.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御姐贾  
+##### 1053#       发表于 2026-4-26 08:24
+
+现在网页端的专家思考模式，感觉注意力有所下降，估计还得再等几天，我让他写的文，扩展的我都快看不出来了，各种幻觉，乱加设定
+同样的内容，我用api Pro，把reasoning拉到满，最符合我要求，就是一条好几毛，有点猛
+然后昨晚上打折了，铁血捍卫梁圣了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
