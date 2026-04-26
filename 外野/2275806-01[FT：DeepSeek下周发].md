@@ -11547,3 +11547,13 @@ deepseek V4 flash的快速思考链可以验证提示词鲁棒性
 让gpt5.5，v4-flash，v4-pro分别写了一段，文段顺序依次，在自己的中转站填的key，然后在chathub调用，什么 ...</blockquote>
 5.5这已经不是人话了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  羊寢  
+##### 1066#       发表于 2026-4-26 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69538783&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-4-26 12:32</a>
+5.5这已经不是人话了</blockquote>
+也不算不是人话，只是这种完全不是按写文的方式来创作，完全是在写剧本了，把每个东西的状态逐一列出来<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

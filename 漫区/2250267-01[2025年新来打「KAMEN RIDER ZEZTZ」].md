@@ -2995,3 +2995,11 @@ K2XQ1M{S$@VRY6H_8)IM9_C.jpg
 而且，你这海报是不是骗人啊，怎么上面的的 ...</blockquote>
 这种设定是必然无法彻底消灭的吧，就和响鬼一样
 
+
+*****
+
+####  milky658  
+##### 1364#       发表于 2026-4-26 13:35
+
+nga看到个说bg的帖子，回复有个说高桥cp写得不行的。我想想也是，高桥人物关系描写是经常有细节粗糙的毛病，结果后面说三条陆必秒没绷住，吹纯爱战神长谷川也好啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
