@@ -3003,3 +3003,14 @@ K2XQ1M{S$@VRY6H_8)IM9_C.jpg
 
 nga看到个说bg的帖子，回复有个说高桥cp写得不行的。我想想也是，高桥人物关系描写是经常有细节粗糙的毛病，结果后面说三条陆必秒没绷住，吹纯爱战神长谷川也好啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  浅川雏羽  
+##### 1365#       发表于 2026-4-26 13:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69538967&amp;ptid=2250267" target="_blank">milky658 发表于 2026-4-26 13:35</a>
+
+nga看到个说bg的帖子，回复有个说高桥cp写得不行的。我想想也是，高桥人物关系描写是经常有细节粗糙的毛病 ...</blockquote>
+那人是个假懂哥，在幪面超人相关话题低下发表神必言论然后暴露自己知识不足的次数已经数不清了
+
