@@ -452,3 +452,40 @@
 
 2026-4-25 23:05 上传
 
+
+*****
+
+####  格林卡罗尔  
+##### 20695#       发表于 2026-4-26 02:34
+
+ 本帖最后由 格林卡罗尔 于 2026-4-26 02:39 编辑 
+
+怎么会是两个这种不上不下的数字，去年新年从者查理压到现在不好吗，森井感觉画得很仓促，活动又是早早定下的，包括大只佬的延期在内，感觉有很多黑幕啊
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  qixinno1  
+##### 20696#       发表于 2026-4-26 07:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69537234&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-4-25 23:06</a>
+
+不知道该高兴还是无奈，后续石头清零，还是没有抽到横飞姬</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">欧 羡慕 至今没娄希
+
+*****
+
+####  CHCL3  
+##### 20697#       发表于 2026-4-26 10:17
+
+<img src="https://p.sda1.dev/32/fb51639d5aa486fab07d8db53675d4c9/CMP_20260426101615536.jpg" referrerpolicy="no-referrer">
+出了，怎么没有弗拉特？
+
+*****
+
+####  khxooo  
+##### 20698#       发表于 2026-4-26 17:55
+
+根据这次的剧情，还有一个特异点？不过按照官方给的时间表，估计也就是直接剧情杀了。还有对面的柱子要么是狂，要么是骑，估计狂的机会大一点，狂、男人，月神刚好可以上班了。
+
