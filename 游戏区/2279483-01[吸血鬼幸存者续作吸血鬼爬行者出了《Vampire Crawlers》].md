@@ -1364,3 +1364,11 @@ ns2躺着玩这个，真爽
 https://vampire.survivors.wiki/w/Crawlers:Wiki
 官方 wiki 不过只有英文    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  cym887  
+##### 136#       发表于 2026-4-27 00:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这个打到后期其实有点不太爽，膀胱局有点烦躁，动不动就1~2个小时，玩起来就一个012345w012345w 
+
