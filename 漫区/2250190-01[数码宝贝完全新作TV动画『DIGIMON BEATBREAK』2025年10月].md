@@ -95,3 +95,13 @@
 
 DC可以去发律师函了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moudianzi  
+##### 556#       发表于 2026-4-26 22:18
+
+佐仓登场的那几句台词和念法，听着有种氪金二游里的角色在念个人信息界面里的台词的感觉
+
+小丑兽最后的那个货车阵导弹，看着其实还有点意思的，强行整出了一个很神秘的大招演出设计
+
