@@ -4130,3 +4130,18 @@ https://x.com/PRAGMATA_JP/status/20475882997333975 ...</blockquote>
 
 第四区域敌人：40-60s
 
+
+*****
+
+####  绯红残叶  
+##### 757#       发表于 2026-4-26 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69538189&amp;ptid=2252823" target="_blank">TonyKnight 发表于 2026-4-26 09:44</a>
+
+从资源管理的角度帮你分析一波，剩下就是看自己操作了：
+
+资源获取有三次，敌人可分为四个区域。
+
+第一区域 ...</blockquote>
+确实是打法有问题，一开始打的时候那波陷阱怪留了个治疗机用手枪打死的，后来换了下思路先黑一个用陷阱全打死省不少时间最后踩线过关<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
