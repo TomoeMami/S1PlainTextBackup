@@ -462,3 +462,14 @@ i’m ok ，link pk
 酒馆只是前端界面，帮你管理人物卡，世界书，预设。至于好不好玩要看你接的什么大模型，用的什么预设，还 ...</blockquote>
 多谢回复，正好在折腾酒馆，就是想知道说用不同公司的AI写出来的东西差距会很大嘛。
 
+
+*****
+
+####  Freewolf  
+##### 44#       发表于 2026-4-26 15:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69539302&amp;ptid=2279713" target="_blank">564381634 发表于 2026-4-26 15:42</a>
+
+多谢回复，正好在折腾酒馆，就是想知道说用不同公司的AI写出来的东西差距会很大嘛。 ...</blockquote>
+很大，不同模型甚至不同来源的相同模型都会有各自的特点，一般要搭配专门的预设
+
