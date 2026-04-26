@@ -11537,3 +11537,13 @@ deepseek V4 flash的快速思考链可以验证提示词鲁棒性
 
 笔重新落回纸面。手机屏幕再次亮起，是系统推送。她看一眼，把头低下去，刘海垂落遮住了眉眼。空气里飘进楼下隐约的虫鸣，像发烫的电线在低唱。</blockquote>
 
+
+*****
+
+####  Promeus  
+##### 1065#       发表于 2026-4-26 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69538725&amp;ptid=2275806" target="_blank">脸宽 发表于 2026-4-26 12:12</a>
+让gpt5.5，v4-flash，v4-pro分别写了一段，文段顺序依次，在自己的中转站填的key，然后在chathub调用，什么 ...</blockquote>
+5.5这已经不是人话了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
