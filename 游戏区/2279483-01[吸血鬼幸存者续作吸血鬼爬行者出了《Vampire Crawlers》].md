@@ -1351,3 +1351,16 @@ ns2躺着玩这个，真爽
 但说实话本体已经足够吃挺 ...</blockquote>
 本篇就一个人做的，早就财富自由了
 
+
+*****
+
+####  liyropen  
+##### 135#       发表于 2026-4-27 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69540417&amp;ptid=2279483" target="_blank">Znesmoc 发表于 2026-4-26 21:57</a>
+搞不太懂，别的图都推的挺正常的，一去迷你桥就和吃了什么一样打的巨难受还过不去
+
+把两个角色的位置换了一 ...</blockquote>
+https://vampire.survivors.wiki/w/Crawlers:Wiki
+官方 wiki 不过只有英文    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
