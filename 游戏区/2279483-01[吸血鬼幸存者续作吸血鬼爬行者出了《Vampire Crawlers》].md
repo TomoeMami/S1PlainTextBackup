@@ -1271,3 +1271,26 @@ ns2躺着玩这个，真爽
 草看论坛才知道ns上了，这游戏是直接上正式版的吗.火速买一个支持</blockquote>
 巴西服比steam还便宜，买ns1版送ns2版，一份钱两个游戏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  John_Stockton  
+##### 127#         楼主| 发表于 2026-4-26 18:54
+
+这公司一直挺大方的，幸存者当初本体手机版直接就免费了，后续DLC上了才开始卖钱
+
+但说实话本体已经足够吃挺饱的了
+
+
+*****
+
+####  樽——見  
+##### 128#       发表于 2026-4-26 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69539765&amp;ptid=2279483" target="_blank">水边井 发表于 2026-4-26 18:23</a>
+
+能中途退啊
+
+—— 来自 HUAWEI NOH-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+哦还真可以。我一直点的退出至村庄
+
