@@ -4185,3 +4185,11 @@ https://x.com/PRAGMATA_JP/status/20475882997333975 ...</blockquote>
 
 二周目的未知信号10个模拟关也要重打，那只能说再见了，也算玩爽了
 
+
+*****
+
+####  宛若青空  
+##### 762#       发表于 2026-4-26 19:58
+
+Steam版用PS5手柄有自适应扳机吗？怎么感觉没有<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
