@@ -11444,3 +11444,15 @@ deepseek v4还是无法识别图片</blockquote>
 
 用了两天现在是感觉自己的角色卡都得重新写了，然后估计是后训练不太行的关系，鲸鱼娘过拟合的情况非常严重，有时会直接照抄语料里的段落导致我的角色ooc，果然我的角色卡设定还是太小众了吗……<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  脸宽  
+##### 1057#       发表于 2026-4-26 10:28
+
+pro的吐字还是要多，一次性6000字虽然偶尔会有些逻辑错误，但是整体比较满意。
+
+这6000字甚至还用了插叙的手法写，有点意思。
+
+现在玩了pro后一点都不想用flash了<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
