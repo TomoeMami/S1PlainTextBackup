@@ -201,3 +201,12 @@ IO 用国产树莓派平替运行 openjvs
 
 就好这一口，别的地方还看不到
 
+
+*****
+
+####  a1370303  
+##### 7340#       发表于 2026-4-26 19:48
+
+高山这活，我看不懂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/f810345dc19fb835327b5a30b215dcfe/image.jpg" referrerpolicy="no-referrer">
+
