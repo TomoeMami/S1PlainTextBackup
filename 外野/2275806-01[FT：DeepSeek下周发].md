@@ -11673,3 +11673,16 @@ deepseek v4还是无法识别图片</blockquote>
 
 前面漏油已经在app里找到vision模式了<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tillnight  
+##### 1078#       发表于 2026-4-26 20:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69540079&amp;ptid=2275806" target="_blank">yikaa 发表于 2026-4-26 19:59</a>
+
+4.1也是在4的基础上优化吧，突然多个多模态感觉不太现实
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球  ...</blockquote>
+什么时候不知道，但是2.0的app是预埋了视觉模式的。
+
