@@ -11419,3 +11419,20 @@ deepseek v4还是无法识别图片</blockquote>
 现在网页端的专家思考模式，感觉注意力有所下降，估计还得再等几天，我让他写的文，扩展的我都快看不出来了 ...</blockquote>
 网页是high。只有api可以开max    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  断片集  
+##### 1055#       发表于 2026-4-26 08:47
+
+<img src="https://img.stage1st.com/forum/202604/26/084616saawvfnfrvanujuh.png" referrerpolicy="no-referrer">
+
+<strong>bb5a9b3ded75b50ba5284429c90e73d3.png</strong> (492.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-26 08:46 上传
+
+大模型都有自己的语癖,像轻小说凹人设一样也是挺好玩的(
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
