@@ -438,3 +438,16 @@ i’m ok ，link pk
 
 —— 来自 HUAWEI DBR-W10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  boeing  
+##### 42#       发表于 2026-4-26 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69537771&amp;ptid=2279713" target="_blank">564381634 发表于 2026-4-26 03:04</a>
+
+这个玩酒馆好用吗，和Gemini差距有多大</blockquote>
+酒馆只是前端界面，帮你管理人物卡，世界书，预设。至于好不好玩要看你接的什么大模型，用的什么预设，还有玩的什么人物卡（可以接GEMINI）。
+
+仅就AIRP而言比网页版直接玩强太多，但也有确实有点麻烦。
+

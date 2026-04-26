@@ -4145,3 +4145,11 @@ https://x.com/PRAGMATA_JP/status/20475882997333975 ...</blockquote>
 第一区域 ...</blockquote>
 确实是打法有问题，一开始打的时候那波陷阱怪留了个治疗机用手枪打死的，后来换了下思路先黑一个用陷阱全打死省不少时间最后踩线过关<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 758#       发表于 2026-4-26 14:46
+
+这游戏有没有类似生化的几小时内通关之类的限时速通奖励？
+
