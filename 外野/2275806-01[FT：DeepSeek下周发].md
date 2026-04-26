@@ -11776,3 +11776,16 @@ deepseek v4还是无法识别图片</blockquote>
 老哥们，新模型api是直接用就行了吗，原来对应3.2模型的api需不需要再替换成一个新创建的key ...</blockquote>
 换API网址吧 KEY 不用换
 
+
+*****
+
+####  脸宽  
+##### 1088#       发表于 2026-4-26 22:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69539996&amp;ptid=2275806" target="_blank">月白天青 发表于 2026-4-26 19:32</a>
+
+酒馆我今天折腾了1个多小时，有点复杂，别人发布的角色卡试了个输出的文本质量很烂，可能是我不会玩。我就 ...</blockquote>
+先装选一个预设，然后安装酒馆助手，再安装一个表格总结，有很多，会根据楼层自动总结。
+
+如果需要帮忙可以私我
+

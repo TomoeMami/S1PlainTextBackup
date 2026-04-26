@@ -1326,3 +1326,15 @@ ns2躺着玩这个，真爽
 
 万能牌是版本答案吗 连击数对上来了数值太爆炸了
 
+
+*****
+
+####  木竹九  
+##### 133#       发表于 2026-4-26 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69540457&amp;ptid=2279483" target="_blank">樽——見 发表于 2026-4-26 22:09</a>
+万能牌是版本答案吗 连击数对上来了数值太爆炸了</blockquote>
+开了特技之后甚至可以跨回合连击<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">就是牌太多了容易出错断联
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
