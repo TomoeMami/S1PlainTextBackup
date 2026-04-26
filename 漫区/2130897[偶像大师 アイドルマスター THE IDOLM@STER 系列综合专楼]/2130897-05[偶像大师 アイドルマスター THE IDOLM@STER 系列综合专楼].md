@@ -287,3 +287,25 @@ IO 用国产树莓派平替运行 openjvs
 
 估計今天晚上的生放送會說一下這方面的事情... 倒不如說，生放送必須得有 8th 的「售後」環節了吧。
 
+
+*****
+
+####  wfhtony  
+##### 7345#       发表于 2026-4-26 23:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69540424&amp;ptid=2130897" target="_blank">虚无缥缈的分身 发表于 2026-4-26 21:58</a>
+
+这个寡妇不会指的是luka的妈妈八云吧
+
+那我不得不猜测其实路加爹的死因是和日花爹在海边搏斗后双双坠入海底 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202604/26/235257uvn5ee1ond5v5v99.png" referrerpolicy="no-referrer">
+
+<strong>Twitter_上的_桑島法子(朗読夜)：「海をおすそわけした意図なんて無いのにw_たまたま1.png</strong> (33.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-26 23:52 上传
+
+只是偶然分享一張隨拍而已.jpg
+
