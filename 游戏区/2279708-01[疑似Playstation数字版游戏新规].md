@@ -580,3 +580,15 @@ https://x.com/i/status/2048137485834653912
 
 如果玩家接受不了ps4和ps5上的DRM在线验证 我们准备了一个单机产品 它叫ps3
 
+
+*****
+
+####  zhai1zhai0  
+##### 53#       发表于 2026-4-26 20:40
+
+STEAM部分D加密是用的机器码，也就是不变动驱动和硬件的情况下可以一直玩
+
+我当年玩怪物猎人荒野和DOOM永恒就是离线的，在工作地点根本就没网，就那样断断续续玩了快两年
+
+那么主机怎么办呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
