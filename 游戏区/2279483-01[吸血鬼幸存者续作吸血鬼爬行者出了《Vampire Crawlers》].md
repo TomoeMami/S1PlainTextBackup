@@ -1338,3 +1338,16 @@ ns2躺着玩这个，真爽
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  水边井  
+##### 134#       发表于 2026-4-26 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69539853&amp;ptid=2279483" target="_blank">John_Stockton 发表于 2026-4-26 18:54</a>
+
+这公司一直挺大方的，幸存者当初本体手机版直接就免费了，后续DLC上了才开始卖钱
+
+但说实话本体已经足够吃挺 ...</blockquote>
+本篇就一个人做的，早就财富自由了
+
