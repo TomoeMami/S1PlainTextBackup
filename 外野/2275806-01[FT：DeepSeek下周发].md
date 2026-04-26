@@ -11758,3 +11758,21 @@ deepseek v4还是无法识别图片</blockquote>
 
 草，锋哥我哭死。充钱去了。
 
+
+*****
+
+####  L-JoeW  
+##### 1086#       发表于 2026-4-26 22:27
+
+老哥们，新模型api是直接用就行了吗，原来对应3.2模型的api需不需要再替换成一个新创建的key
+
+*****
+
+####  断恶之剑  
+##### 1087#       发表于 2026-4-26 22:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69540521&amp;ptid=2275806" target="_blank">L-JoeW 发表于 2026-4-26 22:27</a>
+
+老哥们，新模型api是直接用就行了吗，原来对应3.2模型的api需不需要再替换成一个新创建的key ...</blockquote>
+换API网址吧 KEY 不用换
+
