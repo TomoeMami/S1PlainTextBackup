@@ -4215,3 +4215,14 @@ Steam版用PS5手柄有自适应扳机吗？怎么感觉没有<img src="https://
 
 很喜欢这作的机设风格，GP03D部分只有固定演出太遗憾了<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  h122h  
+##### 765#       发表于 2026-4-26 21:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69540077&amp;ptid=2252823" target="_blank">宛若青空 发表于 2026-4-26 19:58</a>
+
+Steam版用PS5手柄有自适应扳机吗？怎么感觉没有</blockquote>
+有的，别开steam输入，装好索尼的驱动程序，然后有线连接手柄。进入游戏设置里能打开，甚至陀螺仪都能用。
+

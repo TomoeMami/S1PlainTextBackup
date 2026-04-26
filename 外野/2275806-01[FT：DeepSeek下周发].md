@@ -11729,3 +11729,14 @@ deepseek v4还是无法识别图片</blockquote>
 
 除了打折还有别的东西吧，我前两天抽空用用就花了四十多块，今天高强度用了一天就五块钱。
 
+
+*****
+
+####  爱护动物抓根宝  
+##### 1083#       发表于 2026-4-26 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69540277&amp;ptid=2275806" target="_blank">Chenlh 发表于 2026-4-26 21:08</a>
+
+除了打折还有别的东西吧，我前两天抽空用用就花了四十多块，今天高强度用了一天就五块钱。 ...</blockquote>
+前天首发的时候命中有bug，昨天好像热修了
+
