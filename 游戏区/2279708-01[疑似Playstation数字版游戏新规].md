@@ -764,3 +764,24 @@ IMG_2852.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ffmzsj  
+##### 72#       发表于 2026-4-28 07:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69540127&amp;ptid=2279708" target="_blank">医生狼多 发表于 2026-4-26 20:14</a>
+
+大概率是bug，目前看只有部分人新买ps4游戏会出现这个显示，ps5也有人反馈不过没看到图
+
+https://x.com/i/st ...</blockquote>
+急成这样被打脸咯
+
+
+*****
+
+####  Aeroblast  
+##### 73#       发表于 2026-4-28 07:41
+
+推上第一次刷到节奏带的飞起，第二次刷到是跟官方确认，冷静多了：虽然影响不大，但确实多拿了一把消费者权利。
+
