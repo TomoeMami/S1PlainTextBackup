@@ -12075,3 +12075,11 @@ api
 有什么app或者桌面小挂件可以实时监视各种apikey消耗量吗，每天几个网站来回刷太蠢了 ...</blockquote>
 看你的调 API key 的框架吧，要是主用 CC、codex之类的 coding agent 的话可以用：[https://github.com/mm7894215/TokenTracker](https://github.com/mm7894215/TokenTracker)
 
+
+*****
+
+####  UncleDracula  
+##### 1114#       发表于 2026-4-27 15:22
+
+有大佬指点下么，cline的vscode插件怎么设置思考等级？问了AI都说不清楚
+
