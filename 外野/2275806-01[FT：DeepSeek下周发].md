@@ -12151,3 +12151,57 @@ GPT能力上没有问题，但是口癖真的很烦，这时候DS的口癖至少
 
 应该还有性别意识形态屎的权重问题，用骨块描述人体不会触发风险
 
+
+*****
+
+####  last_regret  
+##### 1121#       发表于 2026-4-27 17:34
+
+<img src="https://img.stage1st.com/forum/202604/27/173442hbrjr3kb6a9brkwa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-04-27-17-34-14-931_com.twitter.android-edit.jpg</strong> (220.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-4-27 17:34 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 冤枉呐| + 1|笑死|
+
+查看全部评分
+
+*****
+
+####  冤枉呐  
+##### 1122#       发表于 2026-4-27 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69544081&amp;ptid=2275806" target="_blank">last_regret 发表于 2026-4-27 17:34</a></blockquote>
+笑死
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  勿徊哉  
+##### 1123#       发表于 2026-4-27 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69544081&amp;ptid=2275806" target="_blank">last_regret 发表于 2026-4-27 17:34</a></blockquote>
+maga！
+
+*****
+
+####  last_regret  
+##### 1124#       发表于 2026-4-27 17:40
+
+<blockquote>勿徊哉 发表于 2026-4-27 17:38
+maga！</blockquote>
+Make AI great again ！
+
