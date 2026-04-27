@@ -12083,3 +12083,13 @@ api
 
 有大佬指点下么，cline的vscode插件怎么设置思考等级？问了AI都说不清楚
 
+
+*****
+
+####  →熙←  
+##### 1115#       发表于 2026-4-27 15:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是要ds,glm在高峰期体验完全没有
+
+用了几天v4f在superpowers下也挺好用,还很快
+
