@@ -11909,3 +11909,13 @@ api崩了？
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  有鱼  
+##### 1098#       发表于 2026-4-27 09:44
+
+pro哥智商感觉明显强于flash小妹，现在折上折也是能爽用，但是速度还是不如flash，flash高速真的爽。
+
+跟v4pro聊了两天，体感不弱于plus订阅给的5.5thinking<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
