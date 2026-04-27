@@ -11948,3 +11948,17 @@ api
 
 昨天晚上用着用着，发现不扣钱了。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  wokazuleaa  
+##### 1102#       发表于 2026-4-27 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69541830&amp;ptid=2275806" target="_blank">之世郎 发表于 2026-4-27 10:20</a>
+某脑是哪
+
+—— 来自 鹅球 v3.3.96</blockquote>
+类脑吧
+
+—— 来自 vivo V2307A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
