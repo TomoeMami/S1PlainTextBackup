@@ -12350,3 +12350,13 @@ v4还需调试，但是v4f太好用了，速度快，玩酒馆之类首选
 <blockquote>1) deepseek-chat 与 deepseek-reasoner 两个模型名将于日后弃用。出于兼容考虑，二者分别对应 deepseek-v4-flash 的非思考与思考模式。</blockquote>
 刚看了一下，原本说7月份停的reasoner，现在直接停止了么
 
+
+*****
+
+####  ml1642879  
+##### 1137#       发表于 2026-4-28 00:18
+
+巨硬和关闭AI解绑了？
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
+
