@@ -325,3 +325,14 @@ IO 用国产树莓派平替运行 openjvs
 
 高山又干啥了
 
+
+*****
+
+####  冰风血羽  
+##### 7348#       发表于 2026-4-27 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69542401&amp;ptid=2130897" target="_blank">真实之影 发表于 2026-4-27 11:55</a>
+
+高山又干啥了</blockquote>
+live开得好好的结尾硬要文青病发作整他的有毒的先锋艺术
+

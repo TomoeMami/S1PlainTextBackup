@@ -4364,3 +4364,36 @@ Steam版用PS5手柄有自适应扳机吗？怎么感觉没有</blockquote>
 一周目标准难度，优先升级哪个能力？？？？？</blockquote>
 随便玩玩二周目狂月再说呗
 
+
+*****
+
+####  ParadiseMartyr  
+##### 779#       发表于 2026-4-27 12:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69542662&amp;ptid=2252823" target="_blank">何然 发表于 2026-4-27 12:49</a>
+突然意识到最终战是在太空
+所以let me try怎么喊出来的</blockquote>
+ai接入休的宇航服无线电语音很正常吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  何然  
+##### 780#       发表于 2026-4-27 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69542692&amp;ptid=2252823" target="_blank">ParadiseMartyr 发表于 2026-4-27 12:58</a>
+
+ai接入休的宇航服无线电语音很正常吧
+
+—— 来自 鹅球 v3.3.96</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">想想你说的话，再想想结局
+
+*****
+
+####  jacket  
+##### 781#       发表于 2026-4-27 13:04
+
+那修还不用吃饭拉屎呢
+
