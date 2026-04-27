@@ -705,3 +705,14 @@ ns还有100多张实体，ps5已99%都入数字版了，现在首发游戏都是
 
 xbox当年说的是实体版也要联网验证，也就是实体版游戏也能限制二手交易，这咋能一样呢
 
+
+*****
+
+####  GMJ  
+##### 67#       发表于 2026-4-27 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69536381&amp;ptid=2279708" target="_blank">B能水野多 发表于 2026-4-25 19:45</a>
+
+建议以后数字版游戏只能玩3年，3年后自动出库，还要玩再重新买一份</blockquote>
+干脆别卖游戏了，就卖PSN会员算了，1档会员可以玩3年前发布的游戏，2档会员可以玩2年前发布的游戏，3档会员可以玩去年前发布的游戏，超级无敌至尊会员可以玩所有的游戏。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
