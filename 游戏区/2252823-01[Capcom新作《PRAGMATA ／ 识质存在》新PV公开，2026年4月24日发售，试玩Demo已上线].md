@@ -4552,3 +4552,21 @@ ai接入休的宇航服无线电语音很正常吧
 但就算不继承也还是建议把一周目全收集打了，因为不打全收集做不了结尾的未知信号，不打未知信号拿不了月丝炮。
 二周目开最高难度如果没月丝炮打起来巨折磨，打什么怪都刮痧。
 
+
+*****
+
+####  jacket  
+##### 795#       发表于 2026-4-27 18:43
+
+官方表情包画了个生化7的家人神拳
+
+[https://store.line.me/stickershop/product/33122401/ja](https://store.line.me/stickershop/product/33122401/ja)
+
+<img src="https://img.stage1st.com/forum/202604/27/184244ptozyjopt0jjvy8x.png" referrerpolicy="no-referrer">
+
+<strong>famipan.png</strong> (23.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-27 18:42 上传
+
