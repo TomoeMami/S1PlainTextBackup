@@ -12006,3 +12006,11 @@ api
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  acgcon  
+##### 1107#       发表于 2026-4-27 12:06
+
+请教个问题，用cherry studio调用的API，模型只留了4pro，结果用量信息里基本都是flash的，是不是哪里配置错了？
+
