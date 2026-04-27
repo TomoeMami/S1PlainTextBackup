@@ -1752,3 +1752,17 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 —— 来自 HONOR BVL-AN16, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  水边井  
+##### 169#       发表于 2026-4-27 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69543985&amp;ptid=2279483" target="_blank">叉子 发表于 2026-4-27 17:17</a>
+打出铁匠铺了。
+
+问一下，有一个孔的卡牌，再加宝石是不是就不能合成超武了？</blockquote>
+卡牌合成超武后镶嵌的宝石会清空，镶嵌宝石是万能牌的一个重要来源，前期加加伤害和投射物也差不多了
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
