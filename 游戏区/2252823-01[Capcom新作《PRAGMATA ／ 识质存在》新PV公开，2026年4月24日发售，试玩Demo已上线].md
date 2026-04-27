@@ -4504,3 +4504,13 @@ ai接入休的宇航服无线电语音很正常吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  夜雨秋水  
+##### 790#       发表于 2026-4-27 17:19
+
+最后的最后，请问楼里有没有环境叙事领域大神，来解读一下那位天才科学家小姐姐和记者小哥有没有逃出月球啊，作为本作为数不多的真npc，总感觉没头没尾的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

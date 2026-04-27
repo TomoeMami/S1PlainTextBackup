@@ -368,3 +368,11 @@ rei7这个チート検出有没有说法，会不会复刻维阿旧事<img src="
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">zeta开了，vcr应该是不会让进了
 
+
+*****
+
+####  ヒトニナル  
+##### 1860#       发表于 2026-4-27 17:21
+
+被开的同时无期限休止，人都没了怎么进<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
