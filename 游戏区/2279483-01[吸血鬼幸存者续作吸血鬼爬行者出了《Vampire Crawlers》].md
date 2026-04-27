@@ -1829,3 +1829,17 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 —— 来自 HONOR BVL-AN16, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  macshi  
+##### 175#       发表于 2026-4-27 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69544423&amp;ptid=2279483" target="_blank">oidoid 发表于 2026-4-27 19:07</a>
+打到后面一堆牌要选真的很麻烦
+
+尤其是眼睛倒计时还不等你，不出牌也会自己增加
+
+牌一多就乱了无法及时打消死 ...</blockquote>
+抽点时停剑，算好倒计时在连锁里控boss，紧急情况下可以放弃连锁硬控，进下回合再重新组织进攻。
+
