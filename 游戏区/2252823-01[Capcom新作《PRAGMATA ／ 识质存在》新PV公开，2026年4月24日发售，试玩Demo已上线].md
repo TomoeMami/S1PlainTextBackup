@@ -4419,3 +4419,38 @@ ai接入休的宇航服无线电语音很正常吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  mai6696  
+##### 784#       发表于 2026-4-27 13:57
+
+ 本帖最后由 mai6696 于 2026-4-27 14:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69542790&amp;ptid=2252823" target="_blank">ParadiseMartyr 发表于 2026-4-27 13:29</a>
+
+都这种这种结局了，就想象个机器人小女孩被老两口子收养的好结局吧
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+德尔斐闹出那么大个丑闻，给月球基地的人都整死了。
+
+不谈机器人有没有人权。
+
+戴安娜可以算是污点证人了，先想想怎么不被财团弄死吧。
+
+至于偷点电我都觉得是小问题。
+
+何况你戴安娜肯定不可能一个人造火箭再回月球救人。
+
+最后要么是跟德尔斐和解，要么是找个友商把德尔斐掐死。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我想马斯克可能会对PRAGMATA感兴趣。
+
+*****
+
+####  卡拉德利姆  
+##### 785#       发表于 2026-4-27 13:59
+
+只能说，目前这个结局要不别往现实的角度想，要不就当是给续作dlc留空间
+
+总之别多想<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
