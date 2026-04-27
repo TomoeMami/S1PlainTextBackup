@@ -1781,3 +1781,29 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lmclmc2  
+##### 171#       发表于 2026-4-27 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69543985&amp;ptid=2279483" target="_blank">叉子 发表于 2026-4-27 17:17</a>
+
+打出铁匠铺了。
+
+问一下，有一个孔的卡牌，再加宝石是不是就不能合成超武了？</blockquote>
+合成本身算一个宝石.但一个装备不止一个孔,铁匠铺打孔就是干这个的
+
+宝石换的那点钱聊胜于无,提升局内体验为主吧.只有BOSS打完那个如果不打死神可以换钱(前期也不用考虑什么死神,换钱就完事了)
+
+
+*****
+
+####  madnesshare  
+##### 172#       发表于 2026-4-27 18:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69543788&amp;ptid=2279483" target="_blank">水边井 发表于 2026-4-27 16:39</a>
+
+似乎没解锁只是人物自带的武器不能合成超武</blockquote>
+我日，难怪。我就说那个秒杀怪物的全屏女角色自带清屏的卡牌，一直不能合成超武
+
