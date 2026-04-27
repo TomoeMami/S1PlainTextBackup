@@ -11962,3 +11962,14 @@ api
 
 —— 来自 vivo V2307A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  villsian  
+##### 1103#       发表于 2026-4-27 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69541054&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-4-27 03:18</a>
+
+跑自己的 bench 测了一下，感觉后训练还要着重提升一下 token efficiency。思维链拉屎太多已经影响自己思考 ...</blockquote>
+你这是不是多轮拼接的有问题啊。我有一次调用API的时候压缩上下文，破坏了思维连，结果它自己出现反复思考横跳的问题。
+
