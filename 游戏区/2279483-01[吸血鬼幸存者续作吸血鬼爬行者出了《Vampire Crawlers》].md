@@ -1766,3 +1766,18 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 —— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  yikaa  
+##### 170#       发表于 2026-4-27 18:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69543985&amp;ptid=2279483" target="_blank">叉子 发表于 2026-4-27 17:17</a>
+打出铁匠铺了。
+
+问一下，有一个孔的卡牌，再加宝石是不是就不能合成超武了？</blockquote>
+宝石是局内成长，带不到下一局，用就完了
+除非是第五关boss宝箱出了宝石，不然基本没必要卖掉
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
