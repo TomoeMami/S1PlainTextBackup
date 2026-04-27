@@ -4530,3 +4530,13 @@ ai接入休的宇航服无线电语音很正常吧
 
 问一下，想打最高难度又想全收集的话一周目直冲主线就行了对吧新周目不继承任何东西？
 
+
+*****
+
+####  卡拉德利姆  
+##### 793#       发表于 2026-4-27 18:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69544213&amp;ptid=2252823" target="_blank">double8G 发表于 2026-4-27 18:01</a>
+问一下，想打最高难度又想全收集的话一周目直冲主线就行了对吧新周目不继承任何东西？ ...</blockquote>
+直接冲主线就好
+
