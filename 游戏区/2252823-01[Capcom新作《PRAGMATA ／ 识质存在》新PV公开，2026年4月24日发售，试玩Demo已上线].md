@@ -4583,3 +4583,55 @@ ai接入休的宇航服无线电语音很正常吧
 但就算不继承也还是建议把一周目 ...</blockquote>
 多谢，顺便问一下全收集的范围是啥，选图时候右边的全打钩就行，还是必须包括隐藏门和模型收集这些？
 
+
+*****
+
+####  zqqwe  
+##### 797#       发表于 2026-4-27 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69544428&amp;ptid=2252823" target="_blank">double8G 发表于 2026-4-27 19:09</a>
+
+多谢，顺便问一下全收集的范围是啥，选图时候右边的全打钩就行，还是必须包括隐藏门和模型收集这些？ ...</blockquote>
+
+阿舱模型不算，但由于宝箱塞红房里，所以红房是必须全通的，隐藏墙壁同理
+
+
+*****
+
+####  wingofsilver  
+##### 798#       发表于 2026-4-27 19:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202604/27/193226q2wqddkojj5oqyow.png" referrerpolicy="no-referrer">
+
+<strong>8S2)NQ]6W~N]GW@PRTI$$HF.png</strong> (103.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-27 19:32 上传
+
+<img src="https://img.stage1st.com/forum/202604/27/193227z7n0mk77bp0pb6d7.png" referrerpolicy="no-referrer">
+
+<strong>V43HJF}V~$AT6(@5C5RXV)6.png</strong> (109 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-27 19:32 上传
+
+<img src="https://img.stage1st.com/forum/202604/27/193226et6tu7gp7c9w961m.png" referrerpolicy="no-referrer">
+
+<strong>MADRNL8~GJOOE8M9REOE0WT.png</strong> (92.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-27 19:32 上传
+
+<img src="https://img.stage1st.com/forum/202604/27/193226aajojk7ozo7fbplb.jpg" referrerpolicy="no-referrer">
+
+<strong>[MC8C[J){VM(KP6UQXP(A3U.jpg</strong> (257.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-27 19:32 上传
+
