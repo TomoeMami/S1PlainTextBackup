@@ -12014,3 +12014,14 @@ api
 
 请教个问题，用cherry studio调用的API，模型只留了4pro，结果用量信息里基本都是flash的，是不是哪里配置错了？
 
+
+*****
+
+####  zerona  
+##### 1108#       发表于 2026-4-27 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69542469&amp;ptid=2275806" target="_blank">acgcon 发表于 2026-4-27 12:06</a>
+
+请教个问题，用cherry studio调用的API，模型只留了4pro，结果用量信息里基本都是flash的，是不是哪里配置 ...</blockquote>
+那你把flash 配上然后看看是不是用的pro。
+
