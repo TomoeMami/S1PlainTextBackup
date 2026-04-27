@@ -1399,3 +1399,40 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 肉鸽打牌只玩过月圆之夜。
 
+
+*****
+
+####  格雷殿下  
+##### 139#       发表于 2026-4-27 08:40
+
+自动出牌ai聪明吗
+
+*****
+
+####  John_Stockton  
+##### 140#         楼主| 发表于 2026-4-27 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69541303&amp;ptid=2279483" target="_blank">mai6696 发表于 2026-4-27 08:35</a>
+
+本家我是很爱玩的。
+
+世界树迷宫我也是很爱玩的。
+
+但是本作我get不到，第一个小时都坚持不下来。</blockquote>
+你也知道是“开头”，无非是那个爽感来得对你来说太慢，坚持不到而已了
+
+按这个好评的比例，那么多人都评价爽感十足总不能是商量好了骗人的吧<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  John_Stockton  
+##### 141#         楼主| 发表于 2026-4-27 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69541323&amp;ptid=2279483" target="_blank">格雷殿下 发表于 2026-4-27 08:40</a>
+
+自动出牌ai聪明吗</blockquote>
+妹有什么ai，从右向左自动出
+
+跟隔壁瓦库老板遥相呼应
+
