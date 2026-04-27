@@ -12205,3 +12205,31 @@ maga！
 maga！</blockquote>
 Make AI great again ！
 
+
+*****
+
+####  羊寢  
+##### 1125#       发表于 2026-4-27 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69544051&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-4-27 17:27</a>
+它认为描述身体部位用骨块定位更加精准……
+
+应该还有性别意识形态屎的权重问题，用骨块描述人体不会触发风 ...</blockquote>
+当初r1也会这样，所以我一开始就习惯提示词里毙掉各种专有名词，现在v4p毙掉专有名词后虽然不会写得像老中医正骨，但在某些特定场合下还是会仿佛在上生物课<img src="https://static.stage1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绝地潜兵  
+##### 1126#       发表于 2026-4-27 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69544127&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-4-27 17:45</a>
+
+当初r1也会这样，所以我一开始就习惯提示词里毙掉各种专有名词，现在v4p毙掉专有名词后虽然不会写得像老 ...</blockquote>
+不能直接毙掉，不然会触发白熊效应
+
+比如禁止<strong>直接</strong>用锁骨等词汇
+
+它就说锁☆骨
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
