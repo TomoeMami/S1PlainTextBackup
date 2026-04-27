@@ -1722,3 +1722,11 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 —— 来自 realme RMX3800, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  水边井  
+##### 166#       发表于 2026-4-27 16:39
+
+似乎没解锁只是人物自带的武器不能合成超武
+
