@@ -12126,3 +12126,14 @@ pro哥智商感觉明显强于flash小妹，现在折上折也是能爽用，但
 跟v4p ...</blockquote>
 GPT能力上没有问题，但是口癖真的很烦，这时候DS的口癖至少没那么明显
 
+
+*****
+
+####  雪夜霧語  
+##### 1119#       发表于 2026-4-27 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69542827&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-4-27 13:39</a>
+我草flash，能把脸颊发红能说成是颧骨发热，这284B的参数真的不够用</blockquote>
+我感觉还是得喂范文。写个两人拥抱的场景跟TM老中医正骨似的，摸的哪根骨头哪块肌肉给我写的明明白白，十分倒胃口<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+喂了范文之后感觉好多了
+
