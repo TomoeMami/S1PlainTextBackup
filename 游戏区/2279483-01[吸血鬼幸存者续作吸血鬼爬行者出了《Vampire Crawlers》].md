@@ -1509,3 +1509,31 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 我看一堆攻略给金银戒指+柳叶刀合成超武..但翻看成就完全没柳叶刀超武，打死神还是要百分比削血么？
 
+
+*****
+
+####  wj101207777  
+##### 148#       发表于 2026-4-27 09:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69541631&amp;ptid=2279483" target="_blank">sosgame67 发表于 2026-4-27 09:43</a>
+本质是没有drpg要素的肉鸽打牌  
+
+我看一堆攻略给金银戒指+柳叶刀合成超武..但翻看成就完全没柳叶刀超武， ...</blockquote>
+连击高了硬吃。
+打红死神最重要的是防御面，血量，复活，冻结，防御牌最好都要有。毕竟每6-4张牌的333点输出还是生存压力巨大。输出尽量用3费以上的高质量输出
+
+—— 来自 Xiaomi 23113RKC6C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  wj101207777  
+##### 149#       发表于 2026-4-27 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69541581&amp;ptid=2279483" target="_blank">mai6696 发表于 2026-4-27 09:34</a>
+主要也是本家前期各个武器能看出明显的攻击方式的差别。
+
+这打牌就不太直观了。匕首和斧子和圣经都是群攻的 ...</blockquote>
+局外有跳过和排除，还有roll
+
+—— 来自 Xiaomi 23113RKC6C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
