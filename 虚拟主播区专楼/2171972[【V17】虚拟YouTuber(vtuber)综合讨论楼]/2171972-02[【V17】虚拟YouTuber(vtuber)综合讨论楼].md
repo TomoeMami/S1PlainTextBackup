@@ -360,3 +360,11 @@ rei7这个チート検出有没有说法，会不会复刻维阿旧事<img src="
 
 人已经被zeta开了，反应比想象中大很多，本来以为最多みっちー待遇
 
+
+*****
+
+####  艾特娜  
+##### 1859#       发表于 2026-4-27 17:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">zeta开了，vcr应该是不会让进了
+
