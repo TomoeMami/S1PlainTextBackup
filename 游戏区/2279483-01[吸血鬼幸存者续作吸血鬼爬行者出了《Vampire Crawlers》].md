@@ -1537,3 +1537,28 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 —— 来自 Xiaomi 23113RKC6C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Ashice  
+##### 150#       发表于 2026-4-27 10:09
+
+<blockquote>sosgame67 发表于 2026-4-27 09:43
+本质是没有drpg要素的肉鸽打牌  
+
+我看一堆攻略给金银戒指+柳叶刀合成超武..但翻看成就完全没柳叶刀超武， ...</blockquote>
+百分比伤害是当前血量的百分比
+
+我觉得能抓金币数量造成伤害最好也抓一下
+
+*****
+
+####  不见不散  
+##### 151#       发表于 2026-4-27 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69527287&amp;ptid=2279483" target="_blank">Tissuesea 发表于 2026-4-23 15:49</a>
+看了评论区好好玩，大家都在阴阳怪气安东尼
+
+—— 来自 HONOR ALI-AN00, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
+吸血鬼系列初始角色就叫安东尼（拿鞭子的）<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
