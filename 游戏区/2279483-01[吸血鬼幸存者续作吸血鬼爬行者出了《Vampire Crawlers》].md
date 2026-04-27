@@ -1436,3 +1436,11 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 跟隔壁瓦库老板遥相呼应
 
+
+*****
+
+####  唯一指定用户名  
+##### 142#       发表于 2026-4-27 08:59
+
+后期把钱刷满了其他宝石都封印就留四个宝石稀有度拉到最低简直不要太变态，全万能卡+不断连击秘能就跟开了挂一样<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
