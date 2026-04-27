@@ -12233,3 +12233,17 @@ Make AI great again ！
 它就说锁☆骨
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 1127#       发表于 2026-4-27 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69542045&amp;ptid=2275806" target="_blank">sdefrfg1 发表于 2026-4-27 10:58</a>
+所以说v4的agent，代码，还有逻辑推理能力到底是什么水平，能跟opus4.5或者4.6比吗，真不想给A➗送钱了
+
+论 ...</blockquote>
+不能
+pro大概是sonnet 4.6水平，但是回复质量不稳定，时好时坏
+flash比老的v3.2强一些，但是太便宜了，而且速度极快。干粗活首选模型
+
