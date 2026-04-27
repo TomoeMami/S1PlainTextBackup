@@ -1819,3 +1819,13 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 牌一多就乱了无法及时打消死神攻击
 
+
+*****
+
+####  叉子  
+##### 174#       发表于 2026-4-27 20:03
+
+多谢各位
+
+—— 来自 HONOR BVL-AN16, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

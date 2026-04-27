@@ -12330,3 +12330,14 @@ v4还需调试，但是v4f太好用了，速度快，玩酒馆之类首选
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nianiania  
+##### 1135#       发表于 2026-4-27 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69544429&amp;ptid=2275806" target="_blank">AEmpire 发表于 2026-4-27 19:10</a>
+
+接 cc 站起来蹬了一下午才四块钱，感觉比很多 coding plan 都便宜了</blockquote>
+我用CC接入，感觉用久了幻觉还是很明显，会唐突认为某个功能已经实现了让我验证
+
