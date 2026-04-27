@@ -1609,3 +1609,27 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 那个家冒险者人数的加成有什么用的 ...</blockquote>
 可以开局带更多冒险家卡，角色特性（x颜色卡加成，抽卡）也可以叠加，此外还有开局卡的影响
 
+
+*****
+
+####  bad_alloc  
+##### 156#       发表于 2026-4-27 11:24
+
+打过红死神了，把金币获取堆到1000%，鞭尸1个boss就能刷到5万金，给卡牌打了金币数量伤害的宝石，打到红死神的时候全身35万金，直接平a打死<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  水边井  
+##### 157#       发表于 2026-4-27 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69542132&amp;ptid=2279483" target="_blank">格雷殿下 发表于 2026-4-27 11:11</a>
+
+玩到解锁金币开孔了，是这游戏起飞的部分吗
+
+那个家冒险者人数的加成有什么用的 ...</blockquote>
+卡牌打孔算是终局玩法了，把商店的局外点上优先级高些
+
+或者先开几张常用黄卡也可以
+
