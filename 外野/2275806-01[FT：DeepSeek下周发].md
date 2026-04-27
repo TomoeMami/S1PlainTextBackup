@@ -12064,3 +12064,14 @@ api
 有什么app或者桌面小挂件可以实时监视各种apikey消耗量吗，每天几个网站来回刷太蠢了 ...</blockquote>
 让AI写一个不就得了<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ayanamilin  
+##### 1113#       发表于 2026-4-27 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69543146&amp;ptid=2275806" target="_blank">leina0602 发表于 2026-4-27 14:44</a>
+
+有什么app或者桌面小挂件可以实时监视各种apikey消耗量吗，每天几个网站来回刷太蠢了 ...</blockquote>
+看你的调 API key 的框架吧，要是主用 CC、codex之类的 coding agent 的话可以用：[https://github.com/mm7894215/TokenTracker](https://github.com/mm7894215/TokenTracker)
+

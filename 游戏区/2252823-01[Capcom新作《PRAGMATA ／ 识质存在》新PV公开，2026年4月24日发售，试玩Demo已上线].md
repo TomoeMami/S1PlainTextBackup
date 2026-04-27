@@ -4454,3 +4454,11 @@ ai接入休的宇航服无线电语音很正常吧
 
 总之别多想<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 786#       发表于 2026-4-27 15:10
+
+卡婊往太空塞人的老惯犯了，26年前不是也塞了个穿蓝色盔甲的小男孩上月球，后续毫无音信<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。还有三个机器人在太空电梯里没下太
+
