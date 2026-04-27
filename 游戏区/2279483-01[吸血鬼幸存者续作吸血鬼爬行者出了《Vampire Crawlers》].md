@@ -1843,3 +1843,17 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 牌一多就乱了无法及时打消死 ...</blockquote>
 抽点时停剑，算好倒计时在连锁里控boss，紧急情况下可以放弃连锁硬控，进下回合再重新组织进攻。
 
+
+*****
+
+####  oidoid  
+##### 176#       发表于 2026-4-27 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69544630&amp;ptid=2279483" target="_blank">macshi 发表于 2026-4-27 20:13</a>
+抽点时停剑，算好倒计时在连锁里控boss，紧急情况下可以放弃连锁硬控，进下回合再重新组织进攻。 ...</blockquote>
+所以吐槽的就是这点啊…哪怕直接下一回合，在后期卡牌太多，ns版又没有鼠标，经常就是晚那么一点就失败了
+
+下次我关倍速和开冰冻宝石再试试打红死神
+
+—— 来自 nubia NX721J, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
