@@ -394,3 +394,12 @@ rei7这个チート検出有没有说法，会不会复刻维阿旧事<img src="
 
 我的看法还是和当年一样，就事论事的谈fanta是被迫接梗的立场，没什么大问题，要批判请直接攻击fanta本人的人设及人格
 
+
+*****
+
+####  高等黑暗  
+##### 1863#       发表于 2026-4-28 00:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">其实在出这个事之前我就有猜fanta私生活不太检点了，不过说实话我是猜有可能和某几个主播可能有关系（嗯，不是二十日，是另外的几个更小主播的），毕竟有几个人根本没多少接触却不断的邀请参加这参加那还特地夸长得漂亮，没想到是大量艹粉hhhh而且还是和比fanta年龄还大的…来者不拒啊hhh
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">就这个人这年龄这水平都能下屌，目测korekore直播的时候不肯说数字，怕是要翻个10倍往上
+
