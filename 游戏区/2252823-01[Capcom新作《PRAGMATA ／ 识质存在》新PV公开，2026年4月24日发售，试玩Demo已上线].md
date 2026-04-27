@@ -4313,3 +4313,28 @@ Steam版用PS5手柄有自适应扳机吗？怎么感觉没有</blockquote>
 
 开玩了，这个闪避是不是要提前走开，精准回避啊<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 775#       发表于 2026-4-27 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69541868&amp;ptid=2252823" target="_blank">哎哟卧槽了 发表于 2026-4-27 10:26</a>
+
+开玩了，这个闪避是不是要提前走开，精准回避啊</blockquote>
+精准回避需要拿道具学技能才行。有伤害规避和时间暂缓。（后面还有模块可以强化判定帧）
+
+前期就提前走位吧。（后期强化到满级可以连喷8次）
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 哎哟卧槽了| + 1|好评加鹅|
+
+查看全部评分
+
