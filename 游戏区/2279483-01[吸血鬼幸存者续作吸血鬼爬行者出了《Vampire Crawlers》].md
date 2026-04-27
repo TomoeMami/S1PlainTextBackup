@@ -1652,3 +1652,30 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  库德里尔  
+##### 160#       发表于 2026-4-27 11:49
+
+感觉查看牌库功能目前是比较粗糙的。
+首先是一个查看全部牌张，而不是看抽牌弃牌堆的功能，小局内凑到升级的时候看牌组过于头大了。
+而且急需一个可以按颜色、法力消耗等分组排序的功能。
+手牌虽然能拖拽排序但是过于鸡肋了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  库德里尔  
+##### 161#       发表于 2026-4-27 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69541581&amp;ptid=2279483" target="_blank">mai6696 发表于 2026-4-27 09:34</a>
+主要也是本家前期各个武器能看出明显的攻击方式的差别。
+
+这打牌就不太直观了。匕首和斧子和圣经都是群攻的 ...</blockquote>
+前前期可以加点买重选次数，前中期可以加点买跳过次数，局内也会捡到一些重选次数，以及一些烧牌事件。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
