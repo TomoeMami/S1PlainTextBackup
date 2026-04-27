@@ -1490,3 +1490,22 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 所以基础玩法在我这儿就不太行。不像本家一个移动和一个多彩的攻击方式已经能给人乐趣以及期待了。
 
+
+*****
+
+####  Nihlathak  
+##### 146#       发表于 2026-4-27 09:39
+
+不知道为啥有几局护腕特别难出，蠕动到书库第四层还是初始三张牌，难绷
+
+—— 来自 samsung SM-S916U, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  sosgame67  
+##### 147#       发表于 2026-4-27 09:43
+
+本质是没有drpg要素的肉鸽打牌<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">  
+
+我看一堆攻略给金银戒指+柳叶刀合成超武..但翻看成就完全没柳叶刀超武，打死神还是要百分比削血么？
+
