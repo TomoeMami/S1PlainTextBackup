@@ -1238,7 +1238,7 @@
     "newtitle": "[棒游《未来战／异界事务所》专楼  康特赛德，至此落幕]",
     "lastedit": 1777020732,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1590697": {
@@ -5607,10 +5607,10 @@
     "update": false
   },
   "2139166": {
-    "totalreply": 17472,
+    "totalreply": 17474,
     "title": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
-    "lastedit": 1777082538,
+    "lastedit": 1777280294,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -6498,10 +6498,10 @@
     "update": false
   },
   "2144272": {
-    "totalreply": 1666,
+    "totalreply": 1667,
     "title": "[【PMM】真爱楼：进狱系福音，终极缝合魂——匹诺曹的谎言]",
     "newtitle": "[【PMM】真爱楼：红色沙漠]",
-    "lastedit": 1777278728,
+    "lastedit": 1777280294,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 28807,
+    "totalreply": 28810,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1777279568,
+    "lastedit": 1777280291,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13248,10 +13248,10 @@
     "update": false
   },
   "2277977": {
-    "totalreply": 13792,
+    "totalreply": 13796,
     "title": "[中东砖楼 2026年4月版]",
     "newtitle": "[中东砖楼 2026年4月版]",
-    "lastedit": 1777279455,
+    "lastedit": 1777280063,
     "category": "外野",
     "active": true,
     "update": false
@@ -13954,15 +13954,6 @@
     "title": "[2025DLsite同人年度游戏评选：恭喜SiNiSistar2荣获GOTY！]",
     "newtitle": "[2025DLsite同人年度游戏评选：恭喜SiNiSistar2荣获GOTY！]",
     "lastedit": 1776324381,
-    "category": "漫区",
-    "active": false,
-    "update": false
-  },
-  "1981060": {
-    "totalreply": 235,
-    "title": "[《历经弦音》这漫画真好看啊]",
-    "newtitle": "[《历经弦音》这漫画真好看啊]",
-    "lastedit": 1776070233,
     "category": "漫区",
     "active": false,
     "update": false
@@ -15930,10 +15921,10 @@
     "update": false
   },
   "2279449": {
-    "totalreply": 119,
+    "totalreply": 120,
     "title": "[你常吃的食物曾被别人嫌弃或难吃]",
     "newtitle": "[你常吃的食物曾被别人嫌弃或难吃]",
-    "lastedit": 1777278869,
+    "lastedit": 1777280063,
     "category": "外野",
     "active": true,
     "update": false
@@ -16218,10 +16209,10 @@
     "update": false
   },
   "2279483": {
-    "totalreply": 166,
+    "totalreply": 167,
     "title": "[吸血鬼幸存者续作吸血鬼爬行者出了《Vampire Crawlers》]",
     "newtitle": "[吸血鬼幸存者续作吸血鬼爬行者出了《Vampire Crawlers》]",
-    "lastedit": 1777279329,
+    "lastedit": 1777280056,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16254,10 +16245,10 @@
     "update": false
   },
   "2279560": {
-    "totalreply": 166,
+    "totalreply": 167,
     "title": "[看了个地图，才感觉萨尔浒打的多离谱]",
     "newtitle": "[看了个地图，才感觉萨尔浒打的多离谱]",
-    "lastedit": 1777278869,
+    "lastedit": 1777280173,
     "category": "外野",
     "active": true,
     "update": false
@@ -16731,10 +16722,10 @@
     "update": false
   },
   "2279669": {
-    "totalreply": 128,
+    "totalreply": 130,
     "title": "[民进党引流成功✌️，高德导航台湾appstore 下载榜首]",
     "newtitle": "[民进党引流成功✌️，高德导航台湾appstore 下载榜首]",
-    "lastedit": 1777279697,
+    "lastedit": 1777280173,
     "category": "外野",
     "active": true,
     "update": false
@@ -16812,10 +16803,10 @@
     "update": false
   },
   "2279708": {
-    "totalreply": 67,
+    "totalreply": 68,
     "title": "[疑似Playstation数字版游戏新规]",
     "newtitle": "[疑似Playstation数字版游戏新规]",
-    "lastedit": 1777279330,
+    "lastedit": 1777280294,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16884,10 +16875,10 @@
     "update": false
   },
   "2279759": {
-    "totalreply": 154,
+    "totalreply": 155,
     "title": "[zt南京一派出所副所长，“设计”让6名未成年人吸毒再查获，一审被判5年]",
     "newtitle": "[zt南京一派出所副所长，“设计”让6名未成年人吸毒再查获，一审被判5年]",
-    "lastedit": 1777274190,
+    "lastedit": 1777280173,
     "category": "外野",
     "active": true,
     "update": false
@@ -17037,10 +17028,10 @@
     "update": false
   },
   "2279801": {
-    "totalreply": 104,
+    "totalreply": 106,
     "title": "[课本对袁大头的评价是完全贬性的，现在来看这是精准的还是偏低了些？]",
     "newtitle": "[课本对袁大头的评价是完全贬性的，现在来看这是精准的还是偏低了些？]",
-    "lastedit": 1777279697,
+    "lastedit": 1777280063,
     "category": "外野",
     "active": true,
     "update": false
@@ -17055,28 +17046,28 @@
     "update": false
   },
   "2279806": {
-    "totalreply": 48,
+    "totalreply": 49,
     "title": "[豆包生成丑小鸭的图会自动规避丑字]",
     "newtitle": "[豆包生成丑小鸭的图会自动规避丑字]",
-    "lastedit": 1777278498,
+    "lastedit": 1777280171,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2279790": {
-    "totalreply": 51,
+    "totalreply": 52,
     "title": "[KFC早餐上新麻酱鸡丝热干面，第一次吃热干面]",
     "newtitle": "[KFC早餐上新麻酱鸡丝热干面，第一次吃热干面]",
-    "lastedit": 1777279455,
+    "lastedit": 1777280063,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2279803": {
-    "totalreply": 47,
+    "totalreply": 49,
     "title": "[AI进步崩老头全自动脚本骗钱指日可待 卧底了一个崩老头群组]",
     "newtitle": "[AI进步崩老头全自动脚本骗钱指日可待 卧底了一个崩老头群组]",
-    "lastedit": 1777277788,
+    "lastedit": 1777280063,
     "category": "外野",
     "active": true,
     "update": false
@@ -17131,6 +17122,15 @@
     "title": "[华晨宇说自己赔了几个亿的事，我看怎么一点也不冤啊]",
     "newtitle": "[华晨宇说自己赔了几个亿的事，我看怎么一点也不冤啊]",
     "lastedit": 1777279100,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2279700": {
+    "totalreply": 41,
+    "title": "[发布会疑似趴窝后，尚界z7再陷罗生门，官方称车展期间遭人破坏]",
+    "newtitle": "[发布会疑似趴窝后，尚界z7再陷罗生门，官方称车展期间遭人破坏]",
+    "lastedit": 1777280064,
     "category": "外野",
     "active": true,
     "update": false
