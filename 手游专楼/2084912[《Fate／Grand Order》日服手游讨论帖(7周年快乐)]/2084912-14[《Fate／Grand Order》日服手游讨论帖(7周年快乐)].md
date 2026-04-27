@@ -489,3 +489,39 @@
 
 根据这次的剧情，还有一个特异点？不过按照官方给的时间表，估计也就是直接剧情杀了。还有对面的柱子要么是狂，要么是骑，估计狂的机会大一点，狂、男人，月神刚好可以上班了。
 
+
+*****
+
+####  希望之花  
+##### 20699#       发表于 2026-4-26 18:23
+
+歪了仇尼托，终于也满5宝了<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+以后不管啥本，都是仇尼托水艾蕾冲就完事，有克制就不打（？
+
+*****
+
+####  格林卡罗尔  
+##### 20700#       发表于 2026-4-27 02:07
+
+我之前一直以为希波吕忒不会出，因为和彭忒西勒亚属性重复，要出早出了。现在回头想想，亚马逊女王根本算不上什么角色属性...
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  格林卡罗尔  
+##### 20701#       发表于 2026-4-27 03:22
+
+说起来成田有玩这么多fgo吗，活动好多fgo梗
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  岸浪白野  
+##### 20702#       发表于 2026-4-27 17:08
+
+理查技能本<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/bebd35b0aeb00eb76cf1c5e1c2f6344f/image.jpg" referrerpolicy="no-referrer">
+
