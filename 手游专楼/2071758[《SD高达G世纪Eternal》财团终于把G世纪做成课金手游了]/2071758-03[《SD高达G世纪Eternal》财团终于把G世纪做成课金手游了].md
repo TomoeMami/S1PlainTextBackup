@@ -3297,3 +3297,16 @@ oor自用也是巨大提升，大部分对面红机都是一刀
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  GameTheory  
+##### 4096#       发表于 2026-4-27 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69541055&amp;ptid=2071758" target="_blank">冰风血羽 发表于 2026-4-27 03:22</a>
+
+大规模攻略战打到99%，2-2那个异灵手上没什么水魔机子实在是过不去满星，手上那些体力拿去刷哪个格子好？
+
+ ...</blockquote>
+2-2 130+100 其次就是 2-1的 100+100
+
