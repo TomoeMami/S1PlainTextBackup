@@ -1865,3 +1865,24 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 前期是怎么设计得那么干巴的。。。差点弃掉<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yikaa  
+##### 178#       发表于 2026-4-27 21:29
+
+开三人队了，用的紫队+每层给一个万能牌的秘能，只要过了前两层基本就能无压力碾过去了
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  macshi  
+##### 179#       发表于 2026-4-27 21:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69544794&amp;ptid=2279483" target="_blank">oidoid 发表于 2026-4-27 21:03</a>
+所以吐槽的就是这点啊…哪怕直接下一回合，在后期卡牌太多，ns版又没有鼠标，经常就是晚那么一点就失败了 ...</blockquote>
+我觉得在后期手牌多的时候手柄选牌比鼠标方便吧。
+不算乾坤一掷这种秒杀流，牌组成型后个人连锁习惯就是起手法力+buff+护甲有啥连啥，中间带入两三次冰冻就行了，连锁高了冷冻层数也高能控好久都不需要特意续，而法力buff护甲没伤害都不会打断冰冻可以专心做好准备工作，起手的时候牌也没那么多那么乱比较好找。
+等叠的七七八八了，就01234万能循环输出了，因为已经把牌组都抽到手牌了，新抽出来的牌只会在最左边就这6张牌循环用打到boss死就行了。
+
