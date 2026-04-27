@@ -1738,3 +1738,17 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 玩到后面一手牌选着都难受，只能等dlc拿诛仙剑打霸王小龙虾了
 
+
+*****
+
+####  叉子  
+##### 168#       发表于 2026-4-27 17:17
+
+打出铁匠铺了。
+
+问一下，有一个孔的卡牌，再加宝石是不是就不能合成超武了？
+
+那么宝石怎么用？我都用来换钱了。感觉我玩的不对。
+
+—— 来自 HONOR BVL-AN16, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
