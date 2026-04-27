@@ -346,3 +346,14 @@ live开得好好的结尾硬要文青病发作整他的有毒的先锋艺术
 我看nga上说机战大师出新周边了？？</blockquote>
 对，狗屋的签……
 
+
+*****
+
+####  真实之影  
+##### 7350#       发表于 2026-4-28 02:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69542707&amp;ptid=2130897" target="_blank">冰风血羽 发表于 2026-4-27 13:02</a>
+live开得好好的结尾硬要文青病发作整他的有毒的先锋艺术</blockquote>
+具体干了啥，我只知道以前干了不止一回
+感觉就是小公主生日宴让来宾按头反思？
+
