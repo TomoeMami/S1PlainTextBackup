@@ -11983,3 +11983,16 @@ api
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  overflowal  
+##### 1105#       发表于 2026-4-27 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69542045&amp;ptid=2275806" target="_blank">sdefrfg1 发表于 2026-4-27 10:58</a>
+所以说v4的agent，代码，还有逻辑推理能力到底是什么水平，能跟opus4.5或者4.6比吗，真不想给A➗送钱了
+
+论 ...</blockquote>
+肯定有差距，但是还是要你自己试试，推荐用opencode，跟deepseek官方联调适配过的。一定开max。
+有可能在你的工作流里差距不大    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
