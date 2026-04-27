@@ -11927,3 +11927,24 @@ pro哥智商感觉明显强于flash小妹，现在折上折也是能爽用，但
 
 爽写了一个周末。状态还是时上时下的，有时候能roll出一段特别有感觉的东西，但是有可能中断，然后重roll好几次都再也写不出来。上限真的很不错，未来可期。
 
+
+*****
+
+####  之世郎  
+##### 1100#       发表于 2026-4-27 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69536852&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-4-25 21:19</a>
+api
+这下是真的梁圣了
+另外傍晚时看到某脑有人说自己在发的世界书被v4炼进去了，看来他们是真的有人潜伏 ...</blockquote>
+某脑是哪
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  yuren  
+##### 1101#       发表于 2026-4-27 10:23
+
+昨天晚上用着用着，发现不扣钱了。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
