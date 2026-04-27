@@ -1383,3 +1383,19 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 玩过demo，这个游戏玩起来不爽，不爽处有2（主要与本家比较）：一是不再是怪物如潮水般涌来，而是要自己找 ...</blockquote>
 本家武器和饰品格子有限，拿满之前也要抉择的，一直刷废物一样会焦虑<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 138#       发表于 2026-4-27 08:35
+
+本家我是很爱玩的。
+
+世界树迷宫我也是很爱玩的。
+
+但是本作我get不到，第一个小时都坚持不下来。
+
+开头翻来覆去就那么三四张卡，按照COST012的顺序点，乐趣何在？
+
+肉鸽打牌只玩过月圆之夜。
+
