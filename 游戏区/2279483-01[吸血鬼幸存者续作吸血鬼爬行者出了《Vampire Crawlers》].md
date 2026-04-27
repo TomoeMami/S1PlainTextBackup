@@ -1679,3 +1679,13 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  yikaa  
+##### 162#       发表于 2026-4-27 12:54
+
+好玩，跪了挫败感不强，胡了就是看我一通操作秒杀对面。局外成长，局内老虎机的刷子游戏挺好的
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
