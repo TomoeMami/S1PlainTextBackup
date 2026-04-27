@@ -12033,3 +12033,15 @@ api
 
 我草flash，能把脸颊发红能说成是颧骨发热，这什么死灵法师
 
+
+*****
+
+####  御坂MKII  
+##### 1110#       发表于 2026-4-27 14:19
+
+ 本帖最后由 御坂MKII 于 2026-4-27 14:22 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69541923&amp;ptid=2275806" target="_blank">villsian 发表于 2026-4-27 10:38</a>
+
+你这是不是多轮拼接的有问题啊。我有一次调用API的时候压缩上下文，破坏了思维连，结果它自己出现反复思 ...</blockquote>
+应该没问题，它现在就是被思维链里的屎污染思路了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我们这些 infra 的巨型项目是这样的
+
