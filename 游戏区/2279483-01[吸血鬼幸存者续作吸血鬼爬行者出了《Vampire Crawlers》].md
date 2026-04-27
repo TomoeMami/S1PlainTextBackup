@@ -1575,3 +1575,14 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 我觉得能抓金币数量造成伤害最好也抓一下 ...</blockquote>
 所以是珠宝那边把几个不用的宝石镶嵌全部ban了，把金币加伤和万能变成普通么？
 
+
+*****
+
+####  John_Stockton  
+##### 153#         楼主| 发表于 2026-4-27 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69541979&amp;ptid=2279483" target="_blank">sosgame67 发表于 2026-4-27 10:46</a>
+
+所以是珠宝那边把几个不用的宝石镶嵌全部ban了，把金币加伤和万能变成普通么？ ...</blockquote>
+是的，效率最大化，就是有点肝，幸存者后期那味儿又来了
+
