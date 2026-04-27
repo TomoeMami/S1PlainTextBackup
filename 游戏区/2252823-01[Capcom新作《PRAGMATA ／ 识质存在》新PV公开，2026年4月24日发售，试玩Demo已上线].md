@@ -4346,3 +4346,21 @@ Steam版用PS5手柄有自适应扳机吗？怎么感觉没有</blockquote>
 
 什么后面还有完美蓄力的事吗？转格斗区
 
+
+*****
+
+####  何然  
+##### 777#       发表于 2026-4-27 12:49
+
+突然意识到最终战是在太空
+所以let me try怎么喊出来的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何然  
+##### 778#       发表于 2026-4-27 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69533037&amp;ptid=2252823" target="_blank">godless2020 发表于 2026-4-24 19:31</a>
+一周目标准难度，优先升级哪个能力？？？？？</blockquote>
+随便玩玩二周目狂月再说呗
+

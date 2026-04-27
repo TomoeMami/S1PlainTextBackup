@@ -3242,3 +3242,18 @@ zzz驱动器怕不是梦魇的黑箱事件产出的，所以没有第二个
 女警倒是很脸熟没想起来哪里见过……</blockquote>
 尤恰米，看综艺的话，熟<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1388#       发表于 2026-4-27 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69541908&amp;ptid=2250267" target="_blank">scikirbypoke 发表于 2026-4-27 10:35</a>
+
+重新看了下朝日的官方设定感觉zzz驱动器很神秘啊
+
+明明写着是code开发的，到Lord Invoker又写要逆向zzz驱动 ...</blockquote>
+可能是ZZZ驱动器的核心部分是黑盒子，Code把这个核心部分研发成了可以发挥力量的驱动器，但本身驱动器的原理并不清楚吧。
+
+打个比方就是现在人类面前突然出现一个可控核聚变引擎，拿它开发了一台核动力坦克，这就是ZZZ驱动器，然后逆向研究这个引擎造出来的仿制品所组装的核动力坦克，这就Lord Invoker。
+
