@@ -1704,3 +1704,21 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 手牌的管理也是亟需，手里好几十张牌的时候鼠标点不准，手柄一张张翻过去累死
 
+
+*****
+
+####  perfect_duck  
+##### 164#       发表于 2026-4-27 16:34
+
+叮叮咣咣，舒服了
+
+*****
+
+####  玉之龙  
+##### 165#       发表于 2026-4-27 16:37
+
+玩了一下这游戏，倒是让我把本家给捡起来了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+感觉这个比本家更刚需ce，要不然容易中途被0123打牌和拿原始卡牌烧脑运转劝退
+
+—— 来自 realme RMX3800, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
