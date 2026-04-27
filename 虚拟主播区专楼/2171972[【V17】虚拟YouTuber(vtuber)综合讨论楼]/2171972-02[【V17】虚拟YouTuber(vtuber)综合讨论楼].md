@@ -376,3 +376,11 @@ rei7这个チート検出有没有说法，会不会复刻维阿旧事<img src="
 
 被开的同时无期限休止，人都没了怎么进<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poipanchao  
+##### 1861#       发表于 2026-4-27 23:15
+
+题外话，刷到说当初老叶rrm那次炎上，反省当时帮fanta他们说话，中国人的批评确实是对的
+
