@@ -12137,3 +12137,17 @@ GPT能力上没有问题，但是口癖真的很烦，这时候DS的口癖至少
 我感觉还是得喂范文。写个两人拥抱的场景跟TM老中医正骨似的，摸的哪根骨头哪块肌肉给我写的明明白白，十分倒胃口<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 喂了范文之后感觉好多了
 
+
+*****
+
+####  绝地潜兵  
+##### 1120#       发表于 2026-4-27 17:27
+
+ 本帖最后由 绝地潜兵 于 2026-4-27 17:29 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69543921&amp;ptid=2275806" target="_blank">雪夜霧語 发表于 2026-4-27 17:07</a>
+
+我感觉还是得喂范文。写个两人拥抱的场景跟TM老中医正骨似的，摸的哪根骨头哪块肌肉给我写的明明白白，十 ...</blockquote>
+它认为描述身体部位用骨块定位更加精准……
+
+应该还有性别意识形态屎的权重问题，用骨块描述人体不会触发风险
+
