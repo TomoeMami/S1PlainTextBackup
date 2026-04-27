@@ -1894,3 +1894,21 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 铁匠铺万能牌宝珠多少几率合适啊，调到稀有度最低就没看到过了
 
+
+*****
+
+####  wj101207777  
+##### 181#       发表于 2026-4-28 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69545457&amp;ptid=2279483" target="_blank">HMC 发表于 2026-4-28 00:26</a>
+
+铁匠铺万能牌宝珠多少几率合适啊，调到稀有度最低就没看到过了</blockquote>
+不如把不要的全封掉算了
+
+*****
+
+####  moondigi  
+##### 182#       发表于 2026-4-28 00:48
+
+厚甲或者时停刀搞成万能牌随便干爆boss啊
+
