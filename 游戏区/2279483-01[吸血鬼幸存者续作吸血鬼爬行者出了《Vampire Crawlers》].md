@@ -1444,3 +1444,26 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 后期把钱刷满了其他宝石都封印就留四个宝石稀有度拉到最低简直不要太变态，全万能卡+不断连击秘能就跟开了挂一样<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 143#       发表于 2026-4-27 09:22
+
+毒性太强，每次都是想着打一个小怪不用二十秒，打完这个就先退了，时间不知不觉被吸走了，要戒<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  水边井  
+##### 144#       发表于 2026-4-27 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69541303&amp;ptid=2279483" target="_blank">mai6696 发表于 2026-4-27 08:35</a>
+本家我是很爱玩的。
+
+世界树迷宫我也是很爱玩的。
+
+肉鸽打牌只玩过月圆之夜。</blockquote>
+和本家一样是任务驱动啊，你觉得无聊说明你很多东西都没解锁，打完一局看着噔噔噔也是爽点
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
