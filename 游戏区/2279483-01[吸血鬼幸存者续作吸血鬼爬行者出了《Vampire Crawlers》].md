@@ -1633,3 +1633,22 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 或者先开几张常用黄卡也可以
 
+
+*****
+
+####  helix  
+##### 158#       发表于 2026-4-27 11:37
+
+解锁防火宝石之后感觉可以先给烛台里掉的万用牌打孔，防火本身稀有度低好出，烛台里万用牌又好拿，能在中期很方便的获取万用牌
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  helix  
+##### 159#       发表于 2026-4-27 11:39
+
+成就就差3000张紫色牌了，感觉有点刷不动了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
