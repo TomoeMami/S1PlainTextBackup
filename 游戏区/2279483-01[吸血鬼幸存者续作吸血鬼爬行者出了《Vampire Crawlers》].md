@@ -1562,3 +1562,16 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 —— 来自 HONOR ALI-AN00, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
 吸血鬼系列初始角色就叫安东尼（拿鞭子的）<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sosgame67  
+##### 152#       发表于 2026-4-27 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69541767&amp;ptid=2279483" target="_blank">Ashice 发表于 2026-4-27 10:09</a>
+
+百分比伤害是当前血量的百分比
+
+我觉得能抓金币数量造成伤害最好也抓一下 ...</blockquote>
+所以是珠宝那边把几个不用的宝石镶嵌全部ban了，把金币加伤和万能变成普通么？
+
