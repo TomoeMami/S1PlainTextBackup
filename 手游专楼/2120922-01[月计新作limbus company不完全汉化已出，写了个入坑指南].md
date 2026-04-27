@@ -64,3 +64,23 @@
 
 2026-4-25 18:25 上传
 
+
+*****
+
+####  Jamaisvu  
+##### 1309#       发表于 2026-4-27 23:08
+
+终于把镜牢的四个隐藏boss都打过了，一时兴起做了个蜘蛛巢父辈的印象表<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">：
+
+<img src="https://img.stage1st.com/forum/202604/27/230509kiyfyijf446u7auz.jpg" referrerpolicy="no-referrer">
+
+<strong>五指父辈印象图.jpg</strong> (472.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-27 23:05 上传
+
+瓦伦希娜：军政女强人，失去一切仍不知所求为何的苦命人，躲闪摇。里恩：镜像黑刺猬，孤寡老鳏夫，冒黑烟老头。马蒂亚斯：义薄云天老爹，自私阴险渣男，会当身技的暴力狂。卡利斯托：太空死灵，高端局惜败，大师我悟了。阿赖耶：鬼母，长大后你就成了我，十万年剑鞘。
+
+纯属娱乐，切勿当真<img src="https://static.stage1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+

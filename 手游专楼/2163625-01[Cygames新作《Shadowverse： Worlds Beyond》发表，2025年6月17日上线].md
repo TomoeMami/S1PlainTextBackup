@@ -12,3 +12,21 @@
 
 只要走位掉亮纹章的法爷，其实挺强的
 
+
+*****
+
+####  珀伽索斯座圣衣  
+##### 757#       发表于 2026-4-27 23:08
+
+看完第七弹新卡，估计环境梦回第一弹，法爷鱼丸把其他职业按在地上摩擦
+
+—— 来自 vivo V2148A, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  FuckSCUT  
+##### 758#       发表于 2026-4-27 23:12
+
+这弹卡太无聊了，没什么神秘combo<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
