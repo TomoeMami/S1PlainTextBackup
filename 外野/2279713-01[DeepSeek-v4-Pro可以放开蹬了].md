@@ -756,3 +756,11 @@ ctrl+t 切换 reasoning efforts。xhigh 和 max 都是 max
 用cherry的楼友可否讲一讲pc端和手机端能否同步对话？
 之前用chatbox登陆了账号两边的对话也同步不了，有点不方便...
 
+
+*****
+
+####  ppntint  
+##### 71#       发表于 2026-4-28 07:37
+
+好！支持！！
+
