@@ -12360,3 +12360,31 @@ v4还需调试，但是v4f太好用了，速度快，玩酒馆之类首选
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
 
+
+*****
+
+####  厍无春  
+##### 1138#       发表于 2026-4-28 01:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69545398&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-4-28 00:05</a>
+刚看了一下，原本说7月份停的reasoner，现在直接停止了么</blockquote>
+v4上线的时候就停了，现在旧的两个接口虽然还保留但是指向的是v4的非思考和思考模式，就是虽然还叫那个名，但是已经是指向了V4模型。7月彻底废弃。
+
+
+*****
+
+####  德尔惠净水器  
+##### 1139#       发表于 2026-4-28 01:05
+
+<blockquote>ml1642879 发表于 2026-4-28 00:18
+巨硬和关闭AI解绑了？
+
+Re:Source · Xiaomi 15</blockquote>
+没完全解绑
+
+OpenAI与微软宣布对双方的合作关系进行重大调整。
+
+微软将不再享有OpenAI知识产权的独家授权。
+
+OpenAI将继续向微软支付收入分成，而微软则将停止向OpenAI支付。
+

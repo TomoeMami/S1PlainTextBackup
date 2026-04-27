@@ -403,3 +403,22 @@ rei7这个チート検出有没有说法，会不会复刻维阿旧事<img src="
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">其实在出这个事之前我就有猜fanta私生活不太检点了，不过说实话我是猜有可能和某几个主播可能有关系（嗯，不是二十日，是另外的几个更小主播的），毕竟有几个人根本没多少接触却不断的邀请参加这参加那还特地夸长得漂亮，没想到是大量艹粉hhhh而且还是和比fanta年龄还大的…来者不拒啊hhh
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">就这个人这年龄这水平都能下屌，目测korekore直播的时候不肯说数字，怕是要翻个10倍往上
 
+
+*****
+
+####  noHentai  
+##### 1864#       发表于 2026-4-28 01:04
+
+hinano百万了，brave group前几天又官宣融资，看起来vspo还能再给集团输血。
+
+8月两三千人的场开2天live，非歌舞专业来说很努力啊。
+
+*****
+
+####  poipanchao  
+##### 1865#       发表于 2026-4-28 01:04
+
+nazu好像在玩stgr的时候，隐晦的说过一些不满，对一些女V参加者
+
+估计私下知道一些事情，保持距离了
+
