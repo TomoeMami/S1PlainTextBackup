@@ -12045,3 +12045,11 @@ api
 你这是不是多轮拼接的有问题啊。我有一次调用API的时候压缩上下文，破坏了思维连，结果它自己出现反复思 ...</blockquote>
 应该没问题，它现在就是被思维链里的屎污染思路了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我们这些 infra 的巨型项目是这样的
 
+
+*****
+
+####  leina0602  
+##### 1111#       发表于 2026-4-27 14:44
+
+有什么app或者桌面小挂件可以实时监视各种apikey消耗量吗，每天几个网站来回刷太蠢了
+
