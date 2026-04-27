@@ -4294,3 +4294,14 @@ Steam版用PS5手柄有自适应扳机吗？怎么感觉没有</blockquote>
 
 【【识质存在】狂月 未知信号 强化8号 无伤 喷子爆杀流-哔哩哔哩】 [https://b23.tv/FcHprkF](https://b23.tv/FcHprkF)
 
+
+*****
+
+####  shinra-01  
+##### 773#       发表于 2026-4-27 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69541311&amp;ptid=2252823" target="_blank">otakun 发表于 2026-4-27 08:37</a>
+
+月丝炮描述显示的武器发光时发射增加掉率的特殊弹药是指什么时候？刚开始还没续满的阶段？需不需要用来打 ...</blockquote>
+我体感是刚刚蓄满时半秒就放出，即发光就马上打出，等亮完了在发就慢了，熟悉节奏后就比较好掌握，满三蓄发光时打出只消耗333就说明成功了，不然就是消耗1000左右，完美蓄的伤害是非发光的三倍，恐怖如斯
+
