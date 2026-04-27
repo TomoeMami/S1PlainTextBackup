@@ -12318,3 +12318,15 @@ v4还需调试，但是v4f太好用了，速度快，玩酒馆之类首选
 
 试了试写文感觉还行
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1134#       发表于 2026-4-27 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69544453&amp;ptid=2275806" target="_blank">mayazi 发表于 2026-4-27 19:16</a>
+试了试写文感觉还行</blockquote>
+得roll，跟抽卡似的
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
