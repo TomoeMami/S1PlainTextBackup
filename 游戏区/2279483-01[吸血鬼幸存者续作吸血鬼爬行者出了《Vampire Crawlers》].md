@@ -1857,3 +1857,11 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 —— 来自 nubia NX721J, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  GrayishWh0  
+##### 177#       发表于 2026-4-27 21:08
+
+前期是怎么设计得那么干巴的。。。差点弃掉<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
