@@ -1596,3 +1596,16 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 那个家冒险者人数的加成有什么用的
 
+
+*****
+
+####  sosgame67  
+##### 155#       发表于 2026-4-27 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69542132&amp;ptid=2279483" target="_blank">格雷殿下 发表于 2026-4-27 11:11</a>
+
+玩到解锁金币开孔了，是这游戏起飞的部分吗
+
+那个家冒险者人数的加成有什么用的 ...</blockquote>
+可以开局带更多冒险家卡，角色特性（x颜色卡加成，抽卡）也可以叠加，此外还有开局卡的影响
+

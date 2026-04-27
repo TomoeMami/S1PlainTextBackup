@@ -11996,3 +11996,13 @@ api
 肯定有差距，但是还是要你自己试试，推荐用opencode，跟deepseek官方联调适配过的。一定开max。
 有可能在你的工作流里差距不大    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  风烨晨曦  
+##### 1106#       发表于 2026-4-27 11:18
+
+终于发布了，试了下，个人感觉 v4 pro 比 GLM 5.1 和 K 2.6 都强，而且强很多，感觉很不错。<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
