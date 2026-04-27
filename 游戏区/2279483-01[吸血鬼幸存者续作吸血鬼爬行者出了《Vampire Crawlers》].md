@@ -1689,3 +1689,18 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  John_Stockton  
+##### 163#         楼主| 发表于 2026-4-27 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69542363&amp;ptid=2279483" target="_blank">库德里尔 发表于 2026-4-27 11:49</a>
+
+感觉查看牌库功能目前是比较粗糙的。
+
+首先是一个查看全部牌张，而不是看抽牌弃牌堆的功能，小局内凑到升级 ...</blockquote>
+太对了，升级看牌组这个功能没给简直不可思议
+
+手牌的管理也是亟需，手里好几十张牌的时候鼠标点不准，手柄一张张翻过去累死
+
