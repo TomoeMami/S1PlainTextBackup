@@ -12275,3 +12275,46 @@ v4还需调试，但是v4f太好用了，速度快，玩酒馆之类首选
 —— 来自 HUAWEI VYG-AL30, Android 12, 鹅球 v3.5.99</blockquote>
 出门左转中芯找梁总<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AEmpire  
+##### 1131#       发表于 2026-4-27 19:10
+
+<img src="https://img.stage1st.com/forum/202604/27/190859pwww63w6b6z6wezo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-27 19:08 上传
+
+接 cc 站起来蹬了一下午才四块钱，感觉比很多 coding plan 都便宜了
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1132#       发表于 2026-4-27 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69544429&amp;ptid=2275806" target="_blank">AEmpire 发表于 2026-4-27 19:10</a>
+接 cc 站起来蹬了一下午才四块钱，感觉比很多 coding plan 都便宜了</blockquote>
+1000多万词元花了两块钱，给我都整不好意思了
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  mayazi  
+##### 1133#       发表于 2026-4-27 19:16
+
+<img src="https://img.stage1st.com/forum/202604/27/191640hggn70na5jtugacz.png" referrerpolicy="no-referrer">
+
+<strong>f534bf3f-ed84-43cf-a7d0-25301569fef3.png</strong> (97.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-27 19:16 上传
+
+试了试写文感觉还行
+

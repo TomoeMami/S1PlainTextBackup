@@ -4570,3 +4570,16 @@ ai接入休的宇航服无线电语音很正常吧
 
 2026-4-27 18:42 上传
 
+
+*****
+
+####  double8G  
+##### 796#       发表于 2026-4-27 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69544307&amp;ptid=2252823" target="_blank">serj005 发表于 2026-4-27 18:28</a>
+
+通关后开最高难度能提前解锁部分武器，不继承技能成长和武器升级进度。
+
+但就算不继承也还是建议把一周目 ...</blockquote>
+多谢，顺便问一下全收集的范围是啥，选图时候右边的全打钩就行，还是必须包括隐藏门和模型收集这些？
+
