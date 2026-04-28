@@ -871,3 +871,24 @@ https://x.com/i/st ...</blockquote>
 真是一对苦命鸳鸯啊 ...</blockquote>
 人体堂也干了 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 83#       发表于 2026-4-28 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69545921&amp;ptid=2279708" target="_blank">无动于衷 发表于 2026-4-28 08:41</a>
+
+笑死，当年索尼是用什么东西打微软的脸来着</blockquote>
+你如果是指PS4的发布会的话，Jack Tretton的原话说的是光盘实体游戏不用联机验证，而不是说数字版 <blockquote>"PlayStation 4 disc-based games don't need to be connected online to play... it won't stop working if you haven't authenticated in 24 hours."</blockquote>
+
+<img src="https://img.stage1st.com/forum/202604/28/095106w02y1memsn86c369.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20260428094941.png</strong> (244.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-28 09:51 上传
+
+当然这句话现在大概也要被打破了，PS5/XSX版本的刺客信条黑旗重制版光盘也必须联网验证安装了
+
