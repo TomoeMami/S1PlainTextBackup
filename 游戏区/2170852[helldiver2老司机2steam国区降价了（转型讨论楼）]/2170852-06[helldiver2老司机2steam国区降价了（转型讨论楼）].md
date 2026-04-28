@@ -32,3 +32,14 @@
 新债券乍样</blockquote>
 第三页的机甲 就那个带盾的突破很好玩 右手喷子给力 左手盾推很带劲儿 
 
+
+*****
+
+####  kalavinka  
+##### 7435#         楼主| 发表于 2026-4-28 23:57
+
+ 本帖最后由 kalavinka 于 2026-4-28 23:59 编辑 
+
+新图换回焦土了 这虫速度也太鸡儿快了 开始用爆裂铳好几次刚开枪就到脸上自杀了<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+而且经常同时拉2，3波烟 太刺激了
+
