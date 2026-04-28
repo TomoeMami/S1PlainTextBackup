@@ -12790,3 +12790,19 @@ toyama nao 甚至在论文里被感谢了<img src="https://static.stage1st.com/i
 
 — from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  overflowal  
+##### 1174#       发表于 2026-4-28 18:38
+
+<img src="https://img.stage1st.com/forum/202604/28/183825wzla68twtfzffbee.jpg" referrerpolicy="no-referrer">
+
+<strong>1000003983.jpg</strong> (165.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-28 18:38 上传
+
+视觉可能在正式版就回来了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
