@@ -162,3 +162,16 @@
 
 但是为了出角色就硬塞给明晃晃戴着主教冕的妖精一个叫治愈师的便宜职业，看起来还像因为懒得做炼金系法术就把炼金术师砍掉半截的产物，我真的有点接受不了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNINSTALL42  
+##### 790#       发表于 2026-4-28 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69549489&amp;ptid=2249235" target="_blank">Flechette 发表于 2026-4-28 20:09</a>
+
+领主还好，可以延续武士的思路弄成神力上防御的骑士僧侣混合职业
+
+主教就真没招了，所有转职都保留法表， ...</blockquote>
+你游模仿对象之一的武神系列就是没有炼金法术但还是做了炼金术师，虽然结果就是除了有个增加素材掉落率的被动基本没啥用（说到底武神这个必须用素材合成魔法石才能学魔法的设计就很迷惑了）
+
