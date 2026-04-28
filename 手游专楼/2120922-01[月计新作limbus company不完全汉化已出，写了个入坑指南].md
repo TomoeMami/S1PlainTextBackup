@@ -95,3 +95,16 @@
 终于把镜牢的四个隐藏boss都打过了，一时兴起做了个蜘蛛巢父辈的印象表：</blockquote>
 抛开都市和五指这个大背景不谈，只看牢瓦的过往，你不觉得这个角色的经历很像那些二次元刻板印象的金发卷钻头高飞车大小姐嘛，只不过家道中落了
 
+
+*****
+
+####  Jamaisvu  
+##### 1311#       发表于 2026-4-28 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69546692&amp;ptid=2120922" target="_blank">lls2388 发表于 2026-4-28 11:02</a>
+
+抛开都市和五指这个大背景不谈，只看牢瓦的过往，你不觉得这个角色的经历很像那些二次元刻板印象的金发卷 ...</blockquote>
+瓦伦希娜的言行举止太成熟了，很难和大小姐联系在一起<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">不过确实属于落魄千金...
+
+话说我一直以为牢瓦是通过烟战立功成为二老板，结果兵痞性子导致其没大没小破坏礼仪被贬谪。间章一出才发现她早就令家族蒙羞了，想同时靠着《蜘蛛巢梦工厂》和《这是我的烟战》两条路子夺回荣耀，结果一个空白支票、一个卸磨杀驴......如此曲折的一生最后竟然没扭曲，也算是抗压王了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
