@@ -3286,3 +3286,11 @@ zzz驱动器怕不是梦魇的黑箱事件产出的，所以没有第二个
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  RStocking  
+##### 1391#       发表于 2026-4-28 09:24
+
+牢零好惨啊，虽然小莫和观众知道预知梦里有过父子温情互动，但是牢零自己一点都没体验过，本来高高兴兴的准备操作机器人给儿子弥补点童年，结果来到作战室就被赶出去，直接快进到父慈子孝环节了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
