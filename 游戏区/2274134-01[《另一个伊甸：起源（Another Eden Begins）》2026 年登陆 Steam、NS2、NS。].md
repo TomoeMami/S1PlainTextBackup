@@ -406,3 +406,37 @@ NS2版居然不是钥匙卡？
 
 话说这游戏之前有没有和本家Chrono Trigger角色联动过？顺便还可以期待下未来马里奥塞尔达XB系列角色都进来玩玩。(如果只有单机内容而不和这些游戏联动以及加入外传等剧情的话，好像真没多大意思。游戏性质的原因导致本篇演出简直是灾难)
 
+
+*****
+
+####  Dragon_Quest_U  
+##### 44#       发表于 2026-4-28 20:04
+
+到时候出单机版能把这个幻象箱庭加进来的话就很好了
+
+<img src="https://img.stage1st.com/forum/202604/28/195916hzk0k50r0kx00f1f.png" referrerpolicy="no-referrer">
+
+<strong>C2AB042E-DDC3-4E84-8C31-71B5ACCB3661.png</strong> (473.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-28 19:59 上传
+
+<img src="https://img.stage1st.com/forum/202604/28/195916cku169bxp69i1pkk.png" referrerpolicy="no-referrer">
+
+<strong>431E2073-ABB6-4F05-B21C-5FE89C0AC820.png</strong> (615.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-28 19:59 上传
+
+<img src="https://img.stage1st.com/forum/202604/28/195916jem48ammappilktl.png" referrerpolicy="no-referrer">
+
+<strong>6FA72778-C111-4BE1-BBEC-8306FE8BF522.png</strong> (882.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-28 19:59 上传
+
+这个模式很早就解锁了，打完13章主线就能玩。场景内收集道具，道具可以组合和拆分，寻找隐藏在各角落的文本提示玩家哪些道具能做什么，或者能满足哪个NPC的需要。玩起来让人想到以前05年左右有个Flash游戏叫小婴儿冒险系列，一直出到第3部。或者更接近的是Lost Souls 失落画布和永恒寓言这两部？
+
