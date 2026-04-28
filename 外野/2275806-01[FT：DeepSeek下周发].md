@@ -12631,3 +12631,11 @@ flash 好爽，速度好快，太喜欢了
 —— 来自 HUAWEI HOP-AL ...</blockquote>
 chatbox没法调参数，手机端上可以用cherry studio app版，可玩性还可以
 
+
+*****
+
+####  ymm1030  
+##### 1162#       发表于 2026-4-28 13:42
+
+查了一下，昨天用chatbox写了68万token，命中58万缓存，啊，我现在想的黄色废料都这么没有创意了吗，心情有点复杂<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
