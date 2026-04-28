@@ -12618,3 +12618,16 @@ flash 好爽，速度好快，太喜欢了
 
 现在经常忍不住在claude code里面和deepseek聊天，以前用sonnet太人机了，一股班味，不想闲聊。
 
+
+*****
+
+####  秦南心  
+##### 1161#       发表于 2026-4-28 13:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69546951&amp;ptid=2275806" target="_blank">发呆的龙虾 发表于 2026-4-28 11:45</a>
+
+不行了，傻逼聚合站不降价，忍不了了要用官方api了，是用chatbox还是chatbot好？
+
+—— 来自 HUAWEI HOP-AL ...</blockquote>
+chatbox没法调参数，手机端上可以用cherry studio app版，可玩性还可以
+
