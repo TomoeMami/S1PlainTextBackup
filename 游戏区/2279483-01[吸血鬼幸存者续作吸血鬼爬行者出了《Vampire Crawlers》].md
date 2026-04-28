@@ -1924,3 +1924,16 @@ https://vampire.survivors.wiki/w/Crawlers:Wiki
 
 话说那个死骨头解锁要打444个骨头怪，是不是必须得回去打森林啊？我没注意怪的种类，打到大教堂了这个进度才300+
 
+
+*****
+
+####  John_Stockton  
+##### 184#         楼主| 发表于 2026-4-28 08:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69545628&amp;ptid=2279483" target="_blank">幻想风靡_ 发表于 2026-4-28 02:25</a>
+
+终于打过第一个死神了，然后第二个死神出来一刀999给我秒了，原来还有后续……
+
+爽是爽，但是到后面一把打完 ...</blockquote>
+我也一样，今天刚开了一把回去打森林了，不知道有没有效率更高的图
+
