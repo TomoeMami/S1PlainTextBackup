@@ -12569,3 +12569,52 @@ v4p我无法命中缓存，酒馆，好奇怪<img src="https://static.stage1st.c
 
 —— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Litccc  
+##### 1156#       发表于 2026-4-28 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69546920&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-4-28 11:40</a>
+v4p我无法命中缓存，酒馆，好奇怪</blockquote>
+插件区下那个缓存优化插件试试
+
+*****
+
+####  名居守  
+##### 1157#       发表于 2026-4-28 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69546951&amp;ptid=2275806" target="_blank">发呆的龙虾 发表于 2026-4-28 11:45</a>
+不行了，傻逼聚合站不降价，忍不了了要用官方api了，是用chatbox还是chatbot好？
+
+—— 来自 HUAWEI HOP-AL ...</blockquote>
+才发现我把box打成了bot<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+chatbox旧版好用，新版难用
+
+
+*****
+
+####  发呆的龙虾  
+##### 1158#       发表于 2026-4-28 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69546984&amp;ptid=2275806" target="_blank">名居守 发表于 2026-4-28 11:50</a>
+才发现我把box打成了bot
+chatbox旧版好用，新版难用</blockquote>
+新版我试了下能用，但是抓不到我的聚合站的API。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lilod  
+##### 1159#       发表于 2026-4-28 11:52
+
+flash 好爽，速度好快，太喜欢了
+
+*****
+
+####  小野賢章  
+##### 1160#       发表于 2026-4-28 11:55
+
+现在经常忍不住在claude code里面和deepseek聊天，以前用sonnet太人机了，一股班味，不想闲聊。
+
