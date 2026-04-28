@@ -3338,3 +3338,18 @@ oor自用也是巨大提升，大部分对面红机都是一刀
 
 约拿开？我还为是丽塔开
 
+
+*****
+
+####  qrlfafner  
+##### 4100#       发表于 2026-4-28 17:02
+
+challenge模式有攻略抄吗，新人想做那个主线challenge的任务，结果居然二队都有限制，看着一堆残疾人陷入了沉思<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  natlk  
+##### 4101#       发表于 2026-4-28 17:05
+
+菲尼克斯就不能让丽塔来开吗
+
