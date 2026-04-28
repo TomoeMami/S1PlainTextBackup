@@ -214,3 +214,24 @@ Ave Mujica LIVE TOUR 2026「Exitus」场贩世限2000张Diggy-MO'演唱的Ave Mu
 
 怎么小漫画不更新了，不会真被骂没了吧，出了不少梗图，没了挺可惜的。
 
+
+*****
+
+####  堀内爱里衣  
+##### 41868#       发表于 2026-4-28 23:04
+
+       <strong>【法配/精翻版】人偶们的Masquerade——episode1 揭下假面（French fandub）</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202604/28/230451zwcbqd8b508ze853.jpg" referrerpolicy="no-referrer">
+
+<strong>aa350aa29b16f7311400f6377801d6adbde09dfd.jpg</strong> (189.15 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-28 23:04 上传
+
+🎭字幕为自制
+
+🎭配音人员见原发布地址：[https://x.com/SerenaZaizen/status/2039055143270842407?s=20](https://x.com/SerenaZaizen/status/2039055143270842407?s=20)</blockquote>
+       [https://www.bilibili.com/video/BV1zfo6BWEmw](https://www.bilibili.com/video/BV1zfo6BWEmw)
+
