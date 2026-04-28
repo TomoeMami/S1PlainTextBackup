@@ -848,3 +848,26 @@ https://x.com/i/st ...</blockquote>
 最近有个新游戏要求是15天，好像跟D加密进化有关系</blockquote>
 是不是说的2k旗下的nba2k26和暗夜之子
 
+
+*****
+
+####  karastar  
+##### 81#       发表于 2026-4-28 09:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">数字版限制越来越多了啊
+
+
+*****
+
+####  卡普空  
+##### 82#       发表于 2026-4-28 09:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69536537&amp;ptid=2279708" target="_blank">嘉术2015 发表于 2026-4-25 20:16</a>
+
+你任有超绝的卡带数据随机失效，坑实体版
+
+你索整了个数字版联网验证，坑数字版
+
+真是一对苦命鸳鸯啊 ...</blockquote>
+人体堂也干了 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
