@@ -147,3 +147,18 @@
 
 7人队不太可能吧，不仅破坏了6人队的神圣法则（via 伊亚马斯），而且总不能让没抽的人队里少一整个辅助
 
+
+*****
+
+####  Flechette  
+##### 789#       发表于 2026-4-28 20:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69549336&amp;ptid=2249235" target="_blank">UNINSTALL42 发表于 2026-4-28 19:34</a>
+
+大概DRE已经完全想不出主教君主在你游该怎么设计了（</blockquote>
+领主还好，可以延续武士的思路弄成神力上防御的骑士僧侣混合职业
+
+主教就真没招了，所有转职都保留法表，装备不需要鉴定，也没有诅咒装备，正作的特色都用不了
+
+但是为了出角色就硬塞给明晃晃戴着主教冕的妖精一个叫治愈师的便宜职业，看起来还像因为懒得做炼金系法术就把炼金术师砍掉半截的产物，我真的有点接受不了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
