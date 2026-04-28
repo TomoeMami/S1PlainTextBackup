@@ -51,3 +51,16 @@
 
 医疗中爆燃弩核手毒雷，补包电榴弹毒地雷飞鹰500，感觉新图就这套焊死在身上了，箭头是觉得虫子个个闪电侠很酷吗？<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 7437#       发表于 2026-4-29 02:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69549840&amp;ptid=2170852" target="_blank">黑酒杯 发表于 2026-4-28 21:28</a>
+
+新图体验不错，风景很棒，胞裂加速快的吓人，必备防身武器（箭头推销子弹风暴） ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">子弹风暴是陷阱，要用长柄镰+激光狗，用激光或者火直击烧死的才不会爆红雾。
+
+新泰坦的头大于2000血，次抛秒不掉，需要专人带无后座反重
+
