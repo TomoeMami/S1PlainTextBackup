@@ -40,3 +40,13 @@
 
 这包都不想点开游戏
 
+
+*****
+
+####  FuckSCUT  
+##### 760#       发表于 2026-4-28 20:24
+
+我错了，新版本造物也太厉害了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+男神高达连拍，扫5扫6再打脸，中期还有铺场，有过牌有aoe有单解无敌了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
