@@ -793,3 +793,15 @@ https://x.com/i/st ...</blockquote>
 
 笑死，2015年索尼是用什么东西打微软的脸来着  <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ppa11  
+##### 75#       发表于 2026-4-28 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69545921&amp;ptid=2279708" target="_blank">无动于衷 发表于 2026-4-28 08:41</a>
+笑死，当年索尼是用什么东西打微软的脸来着</blockquote>
+热知识，当年索尼的联网验证专利比微软早曝光，不过微软早公布，索尼即刻开启嘲讽模式没提过这事了，但事情一直存在的
+
+—— 來自 realme RMX3700, Android 14, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

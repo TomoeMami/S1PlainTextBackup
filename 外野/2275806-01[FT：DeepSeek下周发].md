@@ -12388,3 +12388,30 @@ OpenAI与微软宣布对双方的合作关系进行重大调整。
 
 OpenAI将继续向微软支付收入分成，而微软则将停止向OpenAI支付。
 
+
+*****
+
+####  自動販賣機  
+##### 1140#       发表于 2026-4-28 08:51
+
+我想问一下为什么我的v4pro说它自己是claude啊，思考过程全是英文的，我本来觉得奇怪为什么它是思考过程突然变成英文了，问了一下结果它回答说它是claude<img src="https://static.stage1st.com/image/smiley/face/57.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  chuchoselph  
+##### 1141#       发表于 2026-4-28 08:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69545960&amp;ptid=2275806" target="_blank">自動販賣機 发表于 2026-4-28 08:51</a>
+
+我想问一下为什么我的v4pro说它自己是claude啊，思考过程全是英文的，我本来觉得奇怪为什么它是思考过程突 ...</blockquote>
+你问claude他会告诉你他是deepseek<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+科普很多遍了，大模型其实不知道自己是谁，除非公司专门把这个写进system里，大家都是互相喂屎训练出来的，乱jb说非常正常
+
+*****
+
+####  L-JoeW  
+##### 1142#       发表于 2026-4-28 08:55
+
+试了一下在酒馆用同一个大纲、同一个预设写小说，4p的思考速度和活人感比3.2强了很多，但感觉4p经常会急头白脸地按照大纲推进剧情，3.2则会在某个剧情点展开一些我没有描绘到的细节，不知道该怎么调教，暂且只能把原来3.2的文段挪到4p的生成结果里续写了
+
