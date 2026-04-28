@@ -960,3 +960,21 @@ A9忠诚的纲友纷纷表示不受影响，你们不许黑索尼爸爸。
 
 这玩意一上线再加上psn抽风你就急吧
 
+
+*****
+
+####  iqbsh38  
+##### 91#       发表于 2026-4-28 11:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">那些抱着机器去轮船上玩的船员最倒霉了 利好破解版
+
+*****
+
+####  科本学士  
+##### 92#       发表于 2026-4-28 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69547010&amp;ptid=2279708" target="_blank">iqbsh38 发表于 2026-4-28 11:55</a>
+
+那些抱着机器去轮船上玩的船员最倒霉了 利好破解版</blockquote>
+现在有不少远洋船装了星链终端，就是不知道普通船员有没有资格蹭
+
