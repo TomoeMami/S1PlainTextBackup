@@ -994,3 +994,16 @@ A：菜单 6 → 3，全自动清理全部组件和数据。
 
 ✨ 祝你用手机畅玩 SillyTavern AI 酒馆，体验专属角色扮演的乐趣！
 
+
+*****
+
+####  镜湖月影  
+##### 79#       发表于 2026-4-28 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69545766&amp;ptid=2279713" target="_blank">御姐贾 发表于 2026-4-28 07:20</a>
+
+一个非常喜欢的古早刘备，Pro俩小时续写了十万字，花了一块钱，爽了，铁血捍卫梁圣
+
+—— 来自 S1Fun ...</blockquote>
+兄台,可否借一步说话？
+
