@@ -30,3 +30,13 @@
 
 这弹卡太无聊了，没什么神秘combo<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  icelord  
+##### 759#       发表于 2026-4-28 16:08
+
+给周年庆留东西吧，希望周年包来点活儿
+
+这包都不想点开游戏
+
