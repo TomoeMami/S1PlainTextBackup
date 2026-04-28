@@ -126,3 +126,24 @@
 
 目前有说法是妖精不占队伍格子，是额外一个，还有妖精不能攻击已经官宣了，纯辅助
 
+
+*****
+
+####  UNINSTALL42  
+##### 787#       发表于 2026-4-28 19:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69548389&amp;ptid=2249235" target="_blank">Flechette 发表于 2026-4-28 16:21</a>
+
+纯辅助职业，微妙
+
+我主教呢</blockquote>
+大概DRE已经完全想不出主教君主在你游该怎么设计了（
+
+
+*****
+
+####  Flechette  
+##### 788#       发表于 2026-4-28 19:40
+
+7人队不太可能吧，不仅破坏了6人队的神圣法则（via 伊亚马斯），而且总不能让没抽的人队里少一整个辅助
+
