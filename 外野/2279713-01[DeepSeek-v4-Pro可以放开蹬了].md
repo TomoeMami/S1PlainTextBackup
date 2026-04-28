@@ -774,3 +774,15 @@ ctrl+t 切换 reasoning efforts。xhigh 和 max 都是 max
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  近距离作战  
+##### 73#       发表于 2026-4-28 07:48
+
+<blockquote>明天不再有牛奶 发表于 2026-4-28 07:41
+如果想让它根据我的创意写正经小说，有啥工具推荐吗，之前倒是一直在玩酒馆
+
+—— 来自 S1Fun ...</blockquote>
+我写长篇瑟瑟是直接和GPT多轮聊天确定大纲然后和v4p继续聊添加细节，最后用Agent模式写
+
