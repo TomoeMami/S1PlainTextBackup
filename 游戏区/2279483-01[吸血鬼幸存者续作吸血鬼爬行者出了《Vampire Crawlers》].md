@@ -2033,3 +2033,36 @@ syl : 猫+贪婪面具 ...</blockquote>
 
 组了个-2/-1/w/-2/-1无限连，想刷点幸运属性，打宝箱boss时，用多了画面出现冻结特效；再刷下去，红色死神来了，还是三个<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wj101207777  
+##### 194#       发表于 2026-4-28 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69549234&amp;ptid=2279483" target="_blank">chiziru 发表于 2026-4-28 19:12</a>
+
+桥那张地图打了几次没过，不是伤害不够就是盾不够，是不是要多解锁才能过
+
+—— 来自 Xiaomi 2510DRK44C, A ...</blockquote>
+牌抓的均衡点就能过了啊，前面2张图的6层都打完，把塔罗开了问题就不大。
+
+我是凹了个超武，保证卡组法力分布合力就过了。
+
+*****
+
+####  wj101207777  
+##### 195#       发表于 2026-4-28 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69549625&amp;ptid=2279483" target="_blank">baiduwtf 发表于 2026-4-28 20:42</a>
+
+这卡无限连bug还有惩罚的？？
+
+组了个-2/-1/w/-2/-1无限连，想刷点幸运属性，打宝箱boss时，用多了画面出现 ...</blockquote>
+不是红死神，是紫死神。
+
+一张卡一个回合用4次就会碎掉，第3次使用就会出现破碎特效提醒。
+
+紫死神出现的时候会断连锁，但要下一回合才会攻击，血量一般般，卡组不是太唐的无限随便杀。
+
+所以理论上你卡组够强，是可以无限删卡的。
+
