@@ -3310,3 +3310,13 @@ oor自用也是巨大提升，大部分对面红机都是一刀
  ...</blockquote>
 2-2 130+100 其次就是 2-1的 100+100
 
+
+*****
+
+####  blue321  
+##### 4097#       发表于 2026-4-28 16:11
+
+名副其实的菲尼克斯池<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
