@@ -2066,3 +2066,18 @@ syl : 猫+贪婪面具 ...</blockquote>
 
 所以理论上你卡组够强，是可以无限删卡的。
 
+
+*****
+
+####  yikaa  
+##### 196#       发表于 2026-4-28 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69549234&amp;ptid=2279483" target="_blank">chiziru 发表于 2026-4-28 19:12</a>
+
+桥那张地图打了几次没过，不是伤害不够就是盾不够，是不是要多解锁才能过
+
+—— 来自 Xiaomi 2510DRK44C, A ...</blockquote>
+可以转过头去把前面地图的高难度过了再去打桥
+
+桥上一波怪有50个，可以组紫队用1费的书或者2费的推车击退
+
