@@ -525,3 +525,89 @@
 理查技能本<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/bebd35b0aeb00eb76cf1c5e1c2f6344f/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 20703#       发表于 2026-4-28 17:45
+
+ 本帖最后由 Jamaisvu 于 2026-4-28 18:01 编辑 
+
+2025年最后的剪影战士，复仇者黑狮子，堂堂登场：
+
+<img src="https://img.stage1st.com/forum/202604/28/174506r8vcvhbjl78vxlxx.jpg" referrerpolicy="no-referrer">
+
+<strong>1777369491274.jpg</strong> (284.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-28 17:45 上传
+
+<img src="https://img.stage1st.com/forum/202604/28/174507g7k1x85utcooufac.jpg" referrerpolicy="no-referrer">
+
+<strong>1777369448880.jpg</strong> (158.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-28 17:45 上传
+
+<img src="https://img.stage1st.com/forum/202604/28/174508ubdg111gg7b5h854.png" referrerpolicy="no-referrer">
+
+<strong>1777369469528.png</strong> (1.47 MB, 下载次数: 0)
+
+下载附件
+
+2026-4-28 17:45 上传
+
+<img src="https://img.stage1st.com/forum/202604/28/174509jbw6zjuw4x286nvb.png" referrerpolicy="no-referrer">
+
+<strong>1777369474210.png</strong> (1.56 MB, 下载次数: 0)
+
+下载附件
+
+2026-4-28 17:45 上传
+
+附上一张真假未知的数据解包，疑似双宝具：
+
+<img src="https://img.stage1st.com/forum/202604/28/175206g6hoil6eu1wzey1l.jpg" referrerpolicy="no-referrer">
+
+<strong>img-1777369847844eb27d81fe596ce9c47760a2a4b1d8f2003eea0a00606b8146376e473199ebedc.jpg</strong> (66.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-28 17:52 上传
+
+话说这HP和ATK是认真的吗，看着像ruler阶的...
+
+同为90级情况下，ATK是仇阶倒数第四，仅高于小安、萨老师、藤堂平助...
+
+*****
+
+####  岸浪白野  
+##### 20704#       发表于 2026-4-28 18:25
+
+是不是真假早就能自己看下啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+没有宝具只是ex攻击而已，中立恶只有王属性没了
+能不牢吗，都仇阶第一高血和仇阶5星最低攻了<img src="https://p.sda1.dev/32/a0a4ce2835a06b7e4f2aef3df10f1265/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 20705#       发表于 2026-4-28 18:30
+
+东冬的卡面？那基本不期待了
+
+*****
+
+####  exiaexa  
+##### 20706#       发表于 2026-4-28 18:38
+
+ 本帖最后由 exiaexa 于 2026-4-28 18:42 编辑 
+
+你们哈桑真的是散是一团区，聚起来还是一团区
+
+我还以为要搞什么嘴炮了，怎么还是摇老头子出来收拾烂摊子啊
+
+真是笑的没脾气了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
