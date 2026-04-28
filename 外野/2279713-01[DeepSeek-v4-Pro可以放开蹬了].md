@@ -819,3 +819,178 @@ ctrl+t 切换 reasoning efforts。xhigh 和 max 都是 max
 我之前搞得云酒馆 ...</blockquote>
 求详细
 
+
+*****
+
+####  LazyXXK  
+##### 77#       发表于 2026-4-28 14:45
+
+2.5折已经延长到5月31号了，来跟我说
+
+梁圣牛逼！
+
+*****
+
+####  zfy1989  
+##### 78#       发表于 2026-4-28 14:45
+
+ 本帖最后由 zfy1989 于 2026-4-28 14:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69547721&amp;ptid=2279713" target="_blank">烽火连城 发表于 2026-4-28 14:28</a>
+
+求详细</blockquote>
+我看他b站也有教程，那直接复制这个文字版应该也没啥，刚需梯子
+
+- **作者：** 欤歡  
+
+- **邮箱：** print.yuhuan@gmail.com  
+
+- **GitHub：** [SillyTavern-Termux]([https://github.com/print-yuhuan/SillyTavern-Termux](https://github.com/print-yuhuan/SillyTavern-Termux))  
+
+- **视频教程：** [B站 安卓一键部署酒馆]([https://b23.tv/3DuVq9t](https://b23.tv/3DuVq9t))
+
+**快速上手教程**
+
+&gt; 📺 **视频教程**  
+
+&gt; [SillyTavern 安卓手机一键部署酒馆教程 - 哔哩哔哩]([https://b23.tv/3DuVq9t](https://b23.tv/3DuVq9t))
+
+欢迎使用 **SillyTavern-Termux**，让你在安卓手机上一键部署专属 AI 角色扮演酒馆，体验全中文界面和便捷菜单管理！
+
+## 1️⃣ 环境准备
+
+**请务必通过官方渠道下载安装 Termux，勿用 Play 商店版！否则会因依赖缺失导致脚本无法运行。**
+
+- [GitHub 下载 v0.119.0-beta.3]([https://github.com/termux/termux ... debug_universal.apk](https://github.com/termux/termux-app/releases/download/v0.119.0-beta.3/termux-app_v0.119.0-beta.3+apt-android-7-github-debug_universal.apk))
+
+- [F-Droid 下载 v0.119.0-beta.3]([https://f-droid.org/repo/com.termux_1022.apk](https://f-droid.org/repo/com.termux_1022.apk))  
+
+⚠️ *务必选择上面推荐的安装包！*
+
+## 2️⃣ 一键安装 SillyTavern
+
+1. 打开 Termux
+
+2. 粘贴运行以下命令
+
+```bash
+
+curl -O [https://raw.githubusercontent.co ... ads/main/Install.sh](https://raw.githubusercontent.com/print-yuhuan/SillyTavern-Termux/refs/heads/main/Install.sh) &amp;&amp; bash Install.sh
+
+```
+
+- 首次运行会弹窗申请存储权限，请选择“允许”。
+
+- 后续流程全自动，无需手动干预！
+
+&gt; ⏳ **安装全程仅需 3-5 分钟，有详细进度提示。**
+
+**主要自动流程：**
+
+- 检查环境与权限
+
+- 更新包管理器
+
+- 安装依赖（git、curl、nodejs、zip 等）
+
+- 安装等宽中文字体
+
+- 克隆主程序
+
+- 部署主菜单与配置
+
+- 设置菜单自启动
+
+- 安装 npm 依赖
+
+## 3️⃣ 菜单功能总览
+
+每次打开 Termux，都会自动显示 SillyTavern 菜单：
+
+```
+
+0. 退出脚本
+
+1. 启动酒馆
+
+2. 更新酒馆
+
+3. 酒馆配置
+
+4. 酒馆插件
+
+5. 系统维护
+
+6. 脚本管理
+
+7. 关于脚本
+
+```
+
+### ✅ 常用功能
+
+- **酒馆配置**  
+
+  - 一键开启/关闭局域网监听，同一WiFi下电脑/平板可访问手机酒馆  
+
+  - 查询本机内网 IP（用于访问）
+
+- **插件管理**  
+
+  - 一键安装/卸载：酒馆助手（JS扩展）、记忆表格（长期记忆）、自定义模型等
+
+- **系统维护**  
+
+  - 一键修复依赖环境  
+
+  - 聊天数据/主程序一键导出和恢复（文件位于 Download 文件夹，可以随时转移/备份）
+
+- **脚本管理**  
+
+  - 菜单与安装脚本在线更新  
+
+  - 查看日志、彻底卸载全部组件及数据
+
+## 4️⃣ 常见问题解答 ❓
+
+**Q：为什么不能用 Play 商店的 Termux？**  
+
+A：Play 商店版Termux缺少必要组件，必须用 GitHub/F-Droid 版，否则会因依赖缺失导致脚本无法运行。
+
+**Q：脚本或依赖出错？**  
+
+A：主菜单 5 → 2 一键修复依赖即可。
+
+**Q：局域网其他设备无法访问？**  
+
+A：  
+
+- 手机和访问设备需处于同一 WiFi  
+
+- 菜单 3 → 1 → 1 开启监听  
+
+- 菜单 3 → 1 → 3 获取本机IP  
+
+- 浏览器访问 `http://你的内网IP:8000`
+
+**Q：如何备份/迁移聊天数据？**  
+
+A：菜单 5 支持一键导出至 Download 文件夹，跨设备可恢复。
+
+**Q：彻底卸载怎么做？**  
+
+A：菜单 6 → 3，全自动清理全部组件和数据。
+
+## 5️⃣ 技术支持与交流 👨‍💻
+
+- **作者：** 欤歡  
+
+- **邮箱：** print.yuhuan@gmail.com  
+
+- **GitHub：** [SillyTavern-Termux]([https://github.com/print-yuhuan/SillyTavern-Termux](https://github.com/print-yuhuan/SillyTavern-Termux))  
+
+- **视频教程：** [B站 安卓一键部署酒馆]([https://b23.tv/3DuVq9t](https://b23.tv/3DuVq9t))
+
+💡 *强烈建议：安装/重装前请先备份重要数据。如遇问题欢迎加群或私信咨询！*
+
+✨ 祝你用手机畅玩 SillyTavern AI 酒馆，体验专属角色扮演的乐趣！
+
