@@ -84,3 +84,14 @@
 
 纯属娱乐，切勿当真<img src="https://static.stage1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lls2388  
+##### 1310#       发表于 2026-4-28 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69545219&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2026-4-27 23:08</a>
+
+终于把镜牢的四个隐藏boss都打过了，一时兴起做了个蜘蛛巢父辈的印象表：</blockquote>
+抛开都市和五指这个大背景不谈，只看牢瓦的过往，你不觉得这个角色的经历很像那些二次元刻板印象的金发卷钻头高飞车大小姐嘛，只不过家道中落了
+
