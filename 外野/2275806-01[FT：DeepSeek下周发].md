@@ -12820,3 +12820,35 @@ dp确实做到了开源模型的极致。
  ...</blockquote>
 gemini抽象就抽象在，任何一个版本的bench，无论私人的公开的包括大厂内部的，3.1pro分都很高，而实际使用和得分天差地别
 
+
+*****
+
+####  ycjiang1337  
+##### 1176#       发表于 2026-4-28 19:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69549167&amp;ptid=2275806" target="_blank">狭义文具爱好者 发表于 2026-4-28 18:54</a>
+gemini抽象就抽象在，任何一个版本的bench，无论私人的公开的包括大厂内部的，3.1pro分都很高，而实际使 ...</blockquote>
+Gemini的特点是刚出preview的时候确实强无敌，然后随着时间推移逐渐缩水，直到烂完
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+
+*****
+
+####  overflowal  
+##### 1177#       发表于 2026-4-28 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69549167&amp;ptid=2275806" target="_blank">狭义文具爱好者 发表于 2026-4-28 18:54</a>
+gemini抽象就抽象在，任何一个版本的bench，无论私人的公开的包括大厂内部的，3.1pro分都很高，而实际使 ...</blockquote>
+没什么抽象的，就是刷跑分了，deepmind内部都不用的。人家用claude。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  scg2017  
+##### 1178#       发表于 2026-4-28 19:21
+
+gemini早就降智降到没影了。现在gemini网页统一只有50%思考强度。
+而且32k有效上下文那能编程吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
