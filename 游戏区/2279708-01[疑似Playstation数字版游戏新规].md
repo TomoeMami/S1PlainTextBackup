@@ -785,3 +785,11 @@ https://x.com/i/st ...</blockquote>
 
 推上第一次刷到节奏带的飞起，第二次刷到是跟官方确认，冷静多了：虽然影响不大，但确实多拿了一把消费者权利。
 
+
+*****
+
+####  无动于衷  
+##### 74#       发表于 2026-4-28 08:41
+
+笑死，2015年索尼是用什么东西打微软的脸来着  <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
