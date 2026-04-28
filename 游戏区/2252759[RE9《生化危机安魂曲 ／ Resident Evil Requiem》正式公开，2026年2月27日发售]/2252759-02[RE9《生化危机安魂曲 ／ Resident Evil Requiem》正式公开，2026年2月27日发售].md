@@ -14,3 +14,12 @@
 
 然而格蕾丝部分做的十分优秀 导致里昂的部分我打的昏昏欲睡啊 卡普空你这是颠倒主次[f:068
 
+
+*****
+
+####  cangyuyao  
+##### 2316#       发表于 2026-4-28 19:11
+
+这采访内容有点难评，不管你信不信反正我是信了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+卖了700万怎么说都有理
+
