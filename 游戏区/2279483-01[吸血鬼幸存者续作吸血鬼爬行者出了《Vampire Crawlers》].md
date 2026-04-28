@@ -2023,3 +2023,13 @@ syl : 猫+贪婪面具 ...</blockquote>
 
 —— 来自 Xiaomi 2510DRK44C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  baiduwtf  
+##### 193#       发表于 2026-4-28 20:42
+
+这卡无限连bug还有惩罚的？？<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+组了个-2/-1/w/-2/-1无限连，想刷点幸运属性，打宝箱boss时，用多了画面出现冻结特效；再刷下去，红色死神来了，还是三个<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
