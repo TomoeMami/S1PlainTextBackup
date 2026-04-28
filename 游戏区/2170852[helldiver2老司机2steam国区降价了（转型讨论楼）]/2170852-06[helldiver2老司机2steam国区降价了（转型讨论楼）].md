@@ -43,3 +43,11 @@
 新图换回焦土了 这虫速度也太鸡儿快了 开始用爆裂铳好几次刚开枪就到脸上自杀了<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 而且经常同时拉2，3波烟 太刺激了
 
+
+*****
+
+####  黑酒杯  
+##### 7436#       发表于 2026-4-29 00:19
+
+医疗中爆燃弩核手毒雷，补包电榴弹毒地雷飞鹰500，感觉新图就这套焊死在身上了，箭头是觉得虫子个个闪电侠很酷吗？<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
