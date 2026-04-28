@@ -3316,3 +3316,11 @@ zzz驱动器怕不是梦魇的黑箱事件产出的，所以没有第二个
 
 超梦战斗曲流出了，比两个OP更合我胃口，听前奏就喜欢上了。就是感觉曲风没那么燃不像战斗曲，后半段甚至有点悲壮的感觉，不知道剧里要怎么用<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagamasa  
+##### 1394#       发表于 2026-4-28 21:50
+
+看了一下古川自己频道给三岛打电话的那集，现实里就是长得老的那位对长得年轻的那位说敬语，太怪了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
