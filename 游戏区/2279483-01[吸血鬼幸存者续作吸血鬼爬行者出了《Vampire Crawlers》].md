@@ -1953,3 +1953,14 @@ nslite玩这个怎么样 字体大小能看清吗？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">哎，打死红死神解锁了红死神，一用卧槽，100多防御80多蓝，还用红卡自动抽1，按摩大脑了
 
+
+*****
+
+####  维克塔利昂  
+##### 187#       发表于 2026-4-28 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69541769&amp;ptid=2279483" target="_blank">不见不散 发表于 2026-4-27 10:09</a>
+
+吸血鬼系列初始角色就叫安东尼（拿鞭子的）</blockquote>
+其实是阴阳怪气杀戮尖塔2的制作人安东尼
+
