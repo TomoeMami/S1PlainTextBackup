@@ -60,3 +60,19 @@
 
 不过这个预告也完全看不出会是个啥，不是原创职业的话，炼金术士可能性比较大吧
 
+
+*****
+
+####  elven119  
+##### 784#       发表于 2026-4-28 13:54
+
+<img src="https://img.stage1st.com/forum/202604/28/135317xmumam3fdquaw34d.jpg" referrerpolicy="no-referrer">
+
+<strong>683ACE1CC2344A139080F62972BCA10C.jpg</strong> (4.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-28 13:53 上传
+
+你们要的妖精来了
+
