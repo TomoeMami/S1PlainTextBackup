@@ -21,3 +21,14 @@
 
 新债券乍样
 
+
+*****
+
+####  briareos  
+##### 7434#       发表于 2026-4-28 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69550088&amp;ptid=2170852" target="_blank">madcow 发表于 2026-4-28 22:44</a>
+
+新债券乍样</blockquote>
+第三页的机甲 就那个带盾的突破很好玩 右手喷子给力 左手盾推很带劲儿 
+
