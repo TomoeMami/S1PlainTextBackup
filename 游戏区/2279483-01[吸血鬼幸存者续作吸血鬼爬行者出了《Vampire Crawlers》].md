@@ -2108,3 +2108,11 @@ syl : 猫+贪婪面具 ...</blockquote>
 
 总体来说很爽，但游戏深度甚至不如幸存者，看看后续有没有更新。
 
+
+*****
+
+####  yikaa  
+##### 199#       发表于 2026-4-29 00:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 通关了还没和红死神碰一碰 明天再试试补成就
+
