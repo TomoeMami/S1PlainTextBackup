@@ -1032,3 +1032,24 @@ A9忠诚的纲友纷纷表示不受影响，你们不许黑索尼爸爸。
 
 好奇去5吧转了一圈，对咯，就是这个味<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woodcoin  
+##### 98#       发表于 2026-4-29 08:49
+
+这东西对正常玩家有半点影响？
+除非你买数字版然后三十天不联网
+或者你就是上淘宝租号的
+这还能和当年xbox实体版防二手政策对比混淆视听
+
+—— 来自 Xiaomi 24117RK2CC, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  heseran  
+##### 99#       发表于 2026-4-29 08:53
+
+没关系，索索们会自适应的
+
