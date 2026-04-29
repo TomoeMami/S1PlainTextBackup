@@ -2126,3 +2126,14 @@ syl : 猫+贪婪面具 ...</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  库德里尔  
+##### 201#       发表于 2026-4-29 08:31
+
+是让人期待后续堆量更新的游戏
+以及完成后可能需要一些自限维持难度
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
