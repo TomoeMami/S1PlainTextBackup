@@ -127,3 +127,13 @@
 
 虽然护卫头部变重甲了，但身体血量被砍到350了，在狠狠制裁中穿实弹的同时又双叒叕进一步巩固了爆炸婆罗门的轮椅地位<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 7444#       发表于 2026-4-29 18:47
+
+这游戏只有两种枪，会爆炸的和不会的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
