@@ -13612,3 +13612,80 @@ ds的二次元问题挺大的，我问过一个不太少见的二次元问题他
 
 v4p api挂了个网页翻译, 翻几个网页就走了两毛, 这么耗的吗
 
+
+*****
+
+####  有鱼  
+##### 1249#       发表于 2026-4-29 17:27
+
+只是翻译网页的话，肯定是用v4f，又便宜又快<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  serj005  
+##### 1250#       发表于 2026-4-29 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553731&amp;ptid=2275806" target="_blank">有鱼 发表于 2026-4-29 17:27</a>
+只是翻译网页的话，肯定是用v4f，又便宜又快
+
+论坛助手,iPhone</blockquote>
+不是v4f吗
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 有鱼| + 1|typo|
+
+查看全部评分
+
+*****
+
+####  Lorraine_Kinney  
+##### 1251#       发表于 2026-4-29 17:28
+
+好像app已经推了，但我没有灰度到
+
+<img src="https://img.stage1st.com/forum/202604/29/172841f0oc4s34az5o74z0.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (10.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-29 17:28 上传
+
+*****
+
+####  有鱼  
+##### 1252#       发表于 2026-4-29 17:29
+
+hai
+
+<img src="https://img.stage1st.com/forum/202604/29/172943nu4kpm3s2dsdsuch.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>img_6695.jpeg</strong> (495.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-29 17:29 上传
+
+还真有了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  overflowal  
+##### 1253#       发表于 2026-4-29 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553719&amp;ptid=2275806" target="_blank">Onelooker 发表于 2026-4-29 17:25</a>
+v4p api挂了个网页翻译, 翻几个网页就走了两毛, 这么耗的吗</blockquote>
+翻译很难命中缓存，也就是你就是硬吃正价    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
