@@ -2137,3 +2137,18 @@ syl : 猫+贪婪面具 ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  库德里尔  
+##### 202#       发表于 2026-4-29 08:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69549234&amp;ptid=2279483" target="_blank">chiziru 发表于 2026-4-28 19:12</a>
+桥那张地图打了几次没过，不是伤害不够就是盾不够，是不是要多解锁才能过
+
+—— 来自 Xiaomi 2510DRK44C, A ...</blockquote>
+有好几个桥，问问是哪个桥卡了
+不过楼上也说了，双枪那个角色打第一座桥是轮椅
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
