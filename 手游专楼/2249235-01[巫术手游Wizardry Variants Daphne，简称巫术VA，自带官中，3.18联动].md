@@ -197,3 +197,21 @@
 
 不过毕竟之前已经有黑骑这个画风这么看都是女武神的了（
 
+
+*****
+
+####  UNINSTALL42  
+##### 792#       发表于 2026-4-29 22:48
+
+<img src="https://img.stage1st.com/forum/202604/29/224716ephpfdzh4424l44f.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260429_222313.jpg</strong> (226.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-29 22:47 上传
+
+多翻了些东西，可以确定治愈师原型应该是冬宫哥特版的药草师了。
+
+不过应该也要把恢复mp的能力阉割掉（
+
