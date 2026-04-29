@@ -1292,3 +1292,25 @@ ps本来下载了不管玩没玩过都不能退款 还搞这个30天干嘛</bloc
 ps本来下载了不管玩没玩过都不能退款 还搞这个30天干嘛</blockquote>
 可以，下载没有打开的话，打电话过去退过一次
 
+
+*****
+
+####  爱马仕不爱生活  
+##### 118#       发表于 2026-4-29 18:00
+
+官方都确认了还有洗地的，是上面的新指示还没传达到位吗？
+
+*****
+
+####  llysander  
+##### 119#       发表于 2026-4-29 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69539951&amp;ptid=2279708" target="_blank">椎名mahuyo 发表于 2026-4-26 19:24</a>
+
+。。我还是觉得，STEAM很多游戏都强制联网验证，到主机这边又一大堆洁癖用户了....呃呃 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">　steam上算部分有正当理由的联网（last epoch之类）和没正当理由联网的（某些vn，drm原因）都没被少喷阿，硬被喷出真离线模式的都不少
+
+有人是真的在意说走就走抱着电脑跑到美国没网的大乡下能不能玩<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+再叠加前阵子stop killing games运动，索尼莫名奇妙给自己接一波育碧EA的仇恨
+
