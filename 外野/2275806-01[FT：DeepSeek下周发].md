@@ -13689,3 +13689,13 @@ hai
 v4p api挂了个网页翻译, 翻几个网页就走了两毛, 这么耗的吗</blockquote>
 翻译很难命中缓存，也就是你就是硬吃正价    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  1224700457  
+##### 1254#       发表于 2026-4-29 17:54
+
+现在识图进化到生图难不难？
+
+—— 来自 HUAWEI ADY-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
