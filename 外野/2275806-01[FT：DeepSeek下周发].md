@@ -13922,3 +13922,48 @@ thinking怎么关</blockquote>
 
 蠢蠢的，认不太出动画人物，但让它做中学图形题还可以
 
+
+*****
+
+####  有鱼  
+##### 1274#       发表于 2026-4-29 20:20
+
+这个多模态模型大概率是个实验性的小模型，如果可行的话才会合并进主线里<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+多模态确实方便很多，截图比复制容易多了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  a4ac7  
+##### 1275#       发表于 2026-4-29 20:21
+
+有了识图，我随手写的带图笔记可以让DS整理文档了
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  御坂MKII  
+##### 1276#       发表于 2026-4-29 20:23
+
+看来训练数据不多，上面回答伊蕾娜明显就是纯编的
+
+*****
+
+####  yudms1  
+##### 1277#       发表于 2026-4-29 20:24
+
+被推送了识图模式，能力很难评，能够认得一些地标建筑，知道热门二游人物，但是推理能力还比较弱，远不如纯语言模型。
+
+
+*****
+
+####  zerona  
+##### 1278#       发表于 2026-4-29 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69554568&amp;ptid=2275806" target="_blank">yudms1 发表于 2026-4-29 20:24</a>
+
+被推送了识图模式，能力很难评，能够认得一些地标建筑，知道热门二游人物，但是推理能力还比较弱，远不如纯 ...</blockquote>
+真人的图如何？看看幻方的数据主要向哪个方向的。
+
