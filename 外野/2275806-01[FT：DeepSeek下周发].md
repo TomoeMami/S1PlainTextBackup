@@ -14117,3 +14117,13 @@ thinking怎么关</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  sellboy  
+##### 1294#       发表于 2026-4-30 07:07
+
+我觉得deepseekl可能本来打算等跑一个月，出了成本计算文再打折。
+
+然后发现V4p的机子没跑满没说服力，就先打折了。
+
