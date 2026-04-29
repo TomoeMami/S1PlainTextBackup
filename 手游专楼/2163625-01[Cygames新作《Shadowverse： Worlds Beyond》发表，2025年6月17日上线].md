@@ -50,3 +50,15 @@
 
 男神高达连拍，扫5扫6再打脸，中期还有铺场，有过牌有aoe有单解无敌了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  珀伽索斯座圣衣  
+##### 761#       发表于 2026-4-29 09:07
+
+我错了，脑测果然不准
+
+乐队中速梦、扎针龙和协作皇比想象的强势，反而是被看好的土法不太适应环境
+
+—— 来自 vivo V2148A, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
