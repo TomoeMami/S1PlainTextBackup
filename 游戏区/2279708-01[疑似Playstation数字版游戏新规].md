@@ -1099,3 +1099,30 @@ A9上看到这种说法
 等14天退款期结束后，这个临时的30天drm就会转 ...</blockquote>
 之前就有退款机制漏洞来白嫖游戏，现在临时一次性认证也算是种对策，至少不是每30天需要
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 104#       发表于 2026-4-29 11:24
+
+[https://www.resetera.com/threads/sonys-digital-drm-issue-of-mandatory-activation-every-30-days-reason-potentially-found.1501771/page-7#post-154305715](https://www.resetera.com/threads/sonys-digital-drm-issue-of-mandatory-activation-every-30-days-reason-potentially-found.1501771/page-7#post-154305715)
+[https://forum.psnprofiles.com/topic/192716-recent-ps4-purchases-expiring-in-a-month-visual-bug-or-something-worse-temporary-fix-and-possible-explanation-in-the-first-post/page/3/#comment-3400641](https://forum.psnprofiles.com/topic/192716-recent-ps4-purchases-expiring-in-a-month-visual-bug-or-something-worse-temporary-fix-and-possible-explanation-in-the-first-post/page/3/#comment-3400641)
+
+多个地方提到似乎是买了超过15天就会自动从30天变永久，反正买了两个游戏，到时候看看
+
+<img src="https://img.stage1st.com/forum/202604/29/112348wmcd9c51dh5adh11.jpg" referrerpolicy="no-referrer">
+
+<strong>19dd742590f2-1864556a90be4dcc470b2b73d72aec385943.jpg</strong> (144.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-29 11:23 上传
+
+<img src="https://img.stage1st.com/forum/202604/29/112401eoiii58pwk6imiom.jpg" referrerpolicy="no-referrer">
+
+<strong>19dd7423dfd32-1864556a90be4dcc470b2b73d72aec38594.jpg</strong> (134.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-29 11:24 上传
+

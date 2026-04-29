@@ -611,3 +611,64 @@
 真是笑的没脾气了
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 20707#       发表于 2026-4-28 22:06
+
+ 本帖最后由 岸浪白野 于 2026-4-29 10:59 编辑 
+
+哦对了今天那场虽然黑狮子是没开宝具的但已经把宝具BGM塞进来了，虽然黑狮子和横飞姬希波这些已经是24年左右立项占位从者ID，但宝具BGM黑狮子197和横飞姬200，201就代表制作在迦勒底亚斯196后面<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所罗门，冠呆190，191
+
+今年的花爷爷，农神，团长是192，193，194，195
+
+<img src="https://img.stage1st.com/forum/202604/28/215626g3sdffaf2o21m27z.png" referrerpolicy="no-referrer">
+
+<strong>V7N_D601A}9`7H`34Q36@24.png</strong> (9.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-28 21:56 上传
+
+<img src="https://img.stage1st.com/forum/202604/28/215626wdgskkegkdh6th6y.png" referrerpolicy="no-referrer">
+
+<strong>O4L@F7ZK{I@]U{O(RCCN@G6.png</strong> (18.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-28 21:56 上传
+
+*****
+
+####  洛克萨斯  
+##### 20708#       发表于 2026-4-29 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69549095&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-4-28 18:38</a>
+
+你们哈桑真的是散是一团区，聚起来还是一团区
+
+我还以为要搞什么嘴炮了，怎么还是摇老头子出来收拾烂摊子啊
+
+ ...</blockquote>
+祖师爷亲自下场劝狂信转行<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 20709#       发表于 2026-4-29 01:07
+
+意思是横飞姬果然是赶工出来的是吧。不过活动演出，剧情之类的没什么赶工痕迹。难道说森井真要背锅<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">勤勤恳恳十年的名声啊
+
+*****
+
+####  exiaexa  
+##### 20710#       发表于 2026-4-29 11:23
+
+合着1.6的黑狮子真的被加雷斯打到心态崩溃是吧
+
+这边的加雷斯拿着圣枪一脸懵逼就打出特攻（心理）了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
