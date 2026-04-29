@@ -13576,3 +13576,39 @@ ds的二次元问题挺大的，我问过一个不太少见的二次元问题他
 
 目前看起来更像是外挂了一个识别tag的模型，并不是原生多模态，不过能解决有没有的问题也不错
 
+
+*****
+
+####  overflowal  
+##### 1245#       发表于 2026-4-29 17:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么还没灰度到我，太慢了吧
+
+*****
+
+####  ml1642879  
+##### 1246#       发表于 2026-4-29 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553404&amp;ptid=2275806" target="_blank">Surlert 发表于 2026-4-29 16:26</a>
+一般</blockquote>
+原来我的头像是龙背上的破鞋吗<img src="https://static.stage1st.com/image/smiley/carton2017/274.png" referrerpolicy="no-referrer">
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
+
+
+*****
+
+####  卡修_Kasio  
+##### 1247#       发表于 2026-4-29 17:21
+
+试了下，没问题，思考链是纯识别出来的<img src="https://p.sda1.dev/32/0487bfdebca33117f2d06a184cbf05b2/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PLG110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Onelooker  
+##### 1248#       发表于 2026-4-29 17:25
+
+v4p api挂了个网页翻译, 翻几个网页就走了两毛, 这么耗的吗
+
