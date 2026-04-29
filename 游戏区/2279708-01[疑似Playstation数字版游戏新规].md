@@ -1246,3 +1246,13 @@ ps本来下载了不管玩没玩过都不能退款 还搞这个30天干嘛</bloc
 对呀 要没下载过 能有drm说明已经下载了本来就没法退了</blockquote>
 因为语言版本，或者一些正常原因，比如游戏有严重的运行问题，14天之内打电话过去是可以退的，基本不会卡
 
+
+*****
+
+####  椎名mahuyo  
+##### 113#       发表于 2026-4-29 15:29
+
+怎么传到后面一堆人集体复读30天不上索尼收回你电子版了，那是真的牛哦<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3708, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
