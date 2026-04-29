@@ -13281,3 +13281,68 @@ DeepSeek 更新了各编程 agent 的接入文档：
 —— 来自 Xiaomi 24122RKC7C, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
 deepseek大概不想把自己跟开健身房的混为一谈
 
+
+*****
+
+####  ArthurDent  
+##### 1218#       发表于 2026-4-29 15:20
+
+<img src="https://p.sda1.dev/32/4c54c5d6829c14b6020eab9366b8061c/image.jpg" referrerpolicy="no-referrer">
+好像图还是看不了，以前也能读文字吗
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  王兰花秀丽  
+##### 1219#       发表于 2026-4-29 15:21
+
+更多的灰度对话：[https://chat.deepseek.com/share/its4jy89j8o4ifea6t](https://chat.deepseek.com/share/its4jy89j8o4ifea6t)
+
+<img src="https://img.stage1st.com/forum/202604/29/152056aec0332zs342qqsh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (126.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-29 15:20 上传
+
+实锤了
+
+*****
+
+####  serj005  
+##### 1220#       发表于 2026-4-29 15:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553031&amp;ptid=2275806" target="_blank">ArthurDent 发表于 2026-4-29 15:20</a>
+好像图还是看不了，以前也能读文字吗
+—— 来自 Xiaomi 2112123AC, Android 13, 鹅球 v3.5.99 ...</blockquote>
+文字一直能读，你要发一张完全没有文字的图片触发识图入口。
+不过现在应该只能看到入口，没有被抽中灰度的用户暂时还调用不了。
+
+<img src="https://p.sda1.dev/32/9cbaf4d7e1ce2016b2246ca8a9fed4c9/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  有鱼  
+##### 1221#       发表于 2026-4-29 15:22
+
+真有多模态啊<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+告诉你梁叔叔，闭源模型都去哪了？.jpg
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  viperasi  
+##### 1222#       发表于 2026-4-29 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69552792&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-4-29 14:34</a>
+
+DeepSeek 更新了各编程 agent 的接入文档：
+
+https://github.com/deepseek-ai/awesome-deepseek-agent/blob/ ...</blockquote>
+这工具感觉跟iterm2有冲突，每次输入字符整个缓冲区都重渲染，闪的眼镜疼， 用自带的终端就没事
+
+环境： m1 mbp   iterm2  oh-my-zsh
+

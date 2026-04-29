@@ -74,3 +74,14 @@
 
 我换回了对付耄耋旅的老办法，用榴弹和悬浮包。我管你加不加速，飞天洒榴弹就完了。
 
+
+*****
+
+####  YY骑士  
+##### 7439#       发表于 2026-4-29 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69549826&amp;ptid=2170852" target="_blank">qwased 发表于 2026-4-28 21:23</a>
+
+卡输入法玩不了了，箭头傻逼吧</blockquote>
+对。。。以前没问题的，现在必须把大写键caps打开。。。才能正常玩
+
