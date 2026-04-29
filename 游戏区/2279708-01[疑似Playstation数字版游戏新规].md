@@ -1256,3 +1256,28 @@ ps本来下载了不管玩没玩过都不能退款 还搞这个30天干嘛</bloc
 
 —— 来自 realme RMX3708, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  黑猫软  
+##### 114#       发表于 2026-4-29 15:38
+
+有ps4的去试试就行了
+
+*****
+
+####  Rushtime33  
+##### 115#       发表于 2026-4-29 15:42
+
+那以后也别装了，直接租得了。
+
+*****
+
+####  三级怪兽  
+##### 116#       发表于 2026-4-29 15:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553087&amp;ptid=2279708" target="_blank">椎名mahuyo 发表于 2026-4-29 15:29</a>
+
+怎么传到后面一堆人集体复读30天不上索尼收回你电子版了，那是真的牛哦</blockquote>
+毕竟骂索尼是国内游戏圈zzzq嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，只要不跟着骂立马GK、索狗的帽子就扣过来了
+
