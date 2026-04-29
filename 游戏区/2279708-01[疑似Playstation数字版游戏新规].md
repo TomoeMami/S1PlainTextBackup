@@ -1314,3 +1314,15 @@ ps本来下载了不管玩没玩过都不能退款 还搞这个30天干嘛</bloc
 
 再叠加前阵子stop killing games运动，索尼莫名奇妙给自己接一波育碧EA的仇恨
 
+
+*****
+
+####  ppa11  
+##### 120#       发表于 2026-4-29 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553165&amp;ptid=2279708" target="_blank">三级怪兽 发表于 2026-4-29 15:43</a>
+毕竟骂索尼是国内游戏圈zzzq嘛，只要不跟着骂立马GK、索狗的帽子就扣过来了 ...</blockquote>
+骂索尼是zzzq？你看第一页就一堆洗地的了，换任地狱和微软绝对是另一个画风，尤其是微软
+
+—— 來自 realme RMX3700, Android 14, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
