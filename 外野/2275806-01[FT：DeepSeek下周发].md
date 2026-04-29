@@ -13774,3 +13774,60 @@ v4p api挂了个网页翻译, 翻几个网页就走了两毛, 这么耗的吗</b
 
 2026-4-29 19:18 上传
 
+
+*****
+
+####  杀人鲸  
+##### 1262#       发表于 2026-4-29 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69554264&amp;ptid=2275806" target="_blank">比利的微笑 发表于 2026-4-29 19:19</a>
+已经开放使用了？</blockquote>
+灰度测试罢了，不是所有人都有，看了一下我自己的，就没有。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  INDIASH  
+##### 1263#       发表于 2026-4-29 19:31
+
+<blockquote>Geronimo 发表于 2026-4-29 16:35
+我也有资格，不过我没有二次元图图。
+
+拍了个饼干倒是认出来了。
+
+---</blockquote><blockquote>左边的人： 东亚男性，戴眼镜，穿蓝色西装外套，打白色衬衫，面带自信、略带笑容的表情。这与梁文锋（DeepSeek的创始人兼CEO/实际领导者）的公开露面高度吻合。</blockquote>
+https://chat.deepseek.com/share/d1f0sdzjz3zvxx395t
+
+拿楼里的图试了下，还是能识别出来的
+
+应该是衣服问题<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Freewolf  
+##### 1264#       发表于 2026-4-29 19:32
+
+我也灰度到了，目前用起来还很猪比，可能和之前v4l灰度一样拿了个小模型测试
+
+
+*****
+
+####  passgan  
+##### 1265#       发表于 2026-4-29 19:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69554258&amp;ptid=2275806" target="_blank">Nanachi 发表于 2026-4-29 19:18</a>
+
+翻译的话用flash关thinking就好
+
+论坛助手,iPhone</blockquote>
+thinking怎么关
+
+*****
+
+####  serj005  
+##### 1266#       发表于 2026-4-29 19:35
+
+有个问题想问一下，现在的网页版快速模式和专家模式到底是啥模型？
+感觉既没flash这么快又没pro这么聪明，专家和快速我好像也用不出什么差别。
+

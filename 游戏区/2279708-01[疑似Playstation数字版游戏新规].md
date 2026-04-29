@@ -1326,3 +1326,16 @@ ps本来下载了不管玩没玩过都不能退款 还搞这个30天干嘛</bloc
 
 —— 來自 realme RMX3700, Android 14, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  三级怪兽  
+##### 121#       发表于 2026-4-29 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69554160&amp;ptid=2279708" target="_blank">ppa11 发表于 2026-4-29 18:56</a>
+
+骂索尼是zzzq？你看第一页就一堆洗地的了，换任地狱和微软绝对是另一个画风，尤其是微软
+
+—— 來自 real ...</blockquote>
+要不是常年泡微博和b站还真有可能信你的鬼话<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
