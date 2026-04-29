@@ -1191,3 +1191,13 @@ ps本来下载了不管玩没玩过都不能退款 还搞这个30天干嘛</bloc
 
 2026-4-29 12:45 上传
 
+
+*****
+
+####  byisme001  
+##### 109#       发表于 2026-4-29 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69552229&amp;ptid=2279708" target="_blank">闽明 发表于 2026-4-29 12:46</a>
+其实是有退款支持的，在官网上的support里申请，要没下载过和购买后14天内申请</blockquote>
+对呀 要没下载过 能有drm说明已经下载了本来就没法退了
+
