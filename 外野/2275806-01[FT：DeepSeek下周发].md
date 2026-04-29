@@ -13831,3 +13831,20 @@ thinking怎么关
 有个问题想问一下，现在的网页版快速模式和专家模式到底是啥模型？
 感觉既没flash这么快又没pro这么聪明，专家和快速我好像也用不出什么差别。
 
+
+*****
+
+####  sellboy  
+##### 1267#       发表于 2026-4-29 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69554352&amp;ptid=2275806" target="_blank">serj005 发表于 2026-4-29 19:35</a>
+
+有个问题想问一下，现在的网页版快速模式和专家模式到底是啥模型？
+
+感觉既没flash这么快又没pro这么聪明， ...</blockquote>
+快速模式V4f-high
+
+专家模式V4p-high
+
+思维链比调用API开max短一些。
+
