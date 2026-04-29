@@ -1223,3 +1223,15 @@ ps本来下载了不管玩没玩过都不能退款 还搞这个30天干嘛</bloc
 
 2026-4-29 13:12 上传
 
+
+*****
+
+####  shinra-01  
+##### 111#       发表于 2026-4-29 13:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69552259&amp;ptid=2279708" target="_blank">byisme001 发表于 2026-4-29 12:55</a>
+对呀 要没下载过 能有drm说明已经下载了本来就没法退了</blockquote>
+只要购买后14天内有能支撑的理由，即使玩过也是可以退的
+
+我自己就退过，当时港服买的两个语言版本的7rb，本想打两套奖杯，玩了中文版7天后去试了下日文版，发觉只有一套奖杯了，不像7re那样中日是两套奖杯了，然后发邮件申请退款，而且也是如实说的退款理由，就秒退<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
