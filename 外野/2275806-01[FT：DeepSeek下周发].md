@@ -13430,3 +13430,66 @@ fgnb😭杀！
 
 手机的也能看到识图模式入口，但是点进去不能识图，不是灰度用户吧。<img src="https://static.stage1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  平贺才人  
+##### 1232#       发表于 2026-4-29 16:17
+
+<img src="https://img.stage1st.com/forum/202604/29/161635doavrypvvo4gytt8.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20260429161623.jpg</strong> (109.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-29 16:16 上传
+
+刷进这楼去看了下，真有识图模式啊
+
+就是这个是怎么认成黄金船的
+
+
+*****
+
+####  羊寢  
+##### 1233#       发表于 2026-4-29 16:25
+
+又到了坛友都被灰度到就我只能干瞪眼的时候<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zerona  
+##### 1234#       发表于 2026-4-29 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553350&amp;ptid=2275806" target="_blank">平贺才人 发表于 2026-4-29 16:17</a>
+
+刷进这楼去看了下，真有识图模式啊
+
+就是这个是怎么认成黄金船的</blockquote>
+羡慕啊。感觉是不是没国内网络梗图文化的物料啊。
+
+
+*****
+
+####  Surlert  
+##### 1235#       发表于 2026-4-29 16:26
+
+一般<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202604/29/162643lhullkmurzqzumkr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (113.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-29 16:26 上传
+
+*****
+
+####  Promeus  
+##### 1236#       发表于 2026-4-29 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553397&amp;ptid=2275806" target="_blank">zerona 发表于 2026-4-29 16:25</a>
+羡慕啊。感觉是不是没国内网络梗图文化的物料啊。</blockquote>
+ds的二次元问题挺大的，我问过一个不太少见的二次元问题他给我全编
+
