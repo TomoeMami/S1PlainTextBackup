@@ -14097,3 +14097,11 @@ thinking怎么关</blockquote>
 多模态还蛮重要的 我都拿来当ocr用
 还能一键总结    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  UncleDracula  
+##### 1292#       发表于 2026-4-30 01:57
+
+今天才注意到copilot6月1号要改计费了，然后D老师优惠到5月31号<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
