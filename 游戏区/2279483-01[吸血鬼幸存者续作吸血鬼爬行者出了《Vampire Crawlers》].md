@@ -2205,3 +2205,11 @@ syl : 猫+贪婪面具 ...</blockquote>
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  维克塔利昂  
+##### 209#       发表于 2026-4-29 23:00
+
+今天极限把红死神打死了，就一张10%伤害的卡硬抽<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
