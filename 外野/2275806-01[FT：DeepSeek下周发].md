@@ -14088,3 +14088,12 @@ thinking怎么关</blockquote>
 多模态以前用得少,不知道该怎么测试它的能力，让它答手机截图的各个位置有什么都挺准的，唯一一个问题是把右上角51%的电池电量一直看成是5%
 <img src="https://p.sda1.dev/32/abc02149c083eff393c913dde854d1f6/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ZBY901026  
+##### 1291#       发表于 2026-4-30 01:12
+
+多模态还蛮重要的 我都拿来当ocr用
+还能一键总结    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
