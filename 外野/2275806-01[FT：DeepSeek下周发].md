@@ -13699,3 +13699,18 @@ v4p api挂了个网页翻译, 翻几个网页就走了两毛, 这么耗的吗</b
 
 —— 来自 HUAWEI ADY-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  overflowal  
+##### 1255#       发表于 2026-4-29 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553866&amp;ptid=2275806" target="_blank">1224700457 发表于 2026-4-29 17:54</a>
+
+现在识图进化到生图难不难？
+
+—— 来自 HUAWEI ADY-AL10, Android 12, 鹅球 v3.5.99-alpha ...</blockquote>
+可以做，但是效果没法做到顶尖。
+
+所以一般还是限定输出单模态的。openai也是这么搞的。这方面还欠一个先驱
+

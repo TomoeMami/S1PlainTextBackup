@@ -106,3 +106,16 @@
 
 扫荡者打盾虫头屁事没有，我惊呆了
 
+
+*****
+
+####  YY骑士  
+##### 7442#       发表于 2026-4-29 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553847&amp;ptid=2170852" target="_blank">唯登诗树 发表于 2026-4-29 17:50</a>
+
+扫荡者打盾虫头屁事没有，我惊呆了</blockquote>
+改重甲了，能单防加特林炮塔，233.
+
+主手中穿武器直接干废，也要打弱点了。
+
