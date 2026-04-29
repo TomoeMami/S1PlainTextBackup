@@ -1024,3 +1024,11 @@ A9忠诚的纲友纷纷表示不受影响，你们不许黑索尼爸爸。
 
 我猜索尼离全程强制联网也不太远了，敢断网就踢回主页干瞪眼吧
 
+
+*****
+
+####  pp1349  
+##### 97#       发表于 2026-4-29 08:10
+
+好奇去5吧转了一圈，对咯，就是这个味<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

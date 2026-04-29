@@ -11480,7 +11480,7 @@
     "newtitle": "[江苏省城市足球联赛—2026苏超开赛]",
     "lastedit": 1777162206,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1995890": {
@@ -12573,10 +12573,10 @@
     "update": false
   },
   "2271402": {
-    "totalreply": 6381,
+    "totalreply": 6382,
     "title": "[任天堂病棟14楼，等一个春节春直]",
     "newtitle": "[任天堂病棟14楼，3.3新一期iw]",
-    "lastedit": 1777420928,
+    "lastedit": 1777421786,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13311,10 +13311,10 @@
     "update": false
   },
   "2031565": {
-    "totalreply": 202,
+    "totalreply": 203,
     "title": "[尖帽子的魔法工坊 动画化]",
     "newtitle": "[尖帽子的魔法工坊 动画化]",
-    "lastedit": 1777387810,
+    "lastedit": 1777421647,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13905,10 +13905,10 @@
     "update": false
   },
   "2278930": {
-    "totalreply": 121,
+    "totalreply": 122,
     "title": "[眼妆真是当代最大的直男斩+颜值骗局]",
     "newtitle": "[眼妆真是当代最大的直男斩+颜值骗局]",
-    "lastedit": 1777418768,
+    "lastedit": 1777421786,
     "category": "外野",
     "active": true,
     "update": false
@@ -15849,10 +15849,10 @@
     "update": false
   },
   "2279483": {
-    "totalreply": 199,
+    "totalreply": 200,
     "title": "[吸血鬼幸存者续作吸血鬼爬行者出了《Vampire Crawlers》]",
     "newtitle": "[吸血鬼幸存者续作吸血鬼爬行者出了《Vampire Crawlers》]",
-    "lastedit": 1777392379,
+    "lastedit": 1777421786,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16443,10 +16443,10 @@
     "update": false
   },
   "2279708": {
-    "totalreply": 96,
+    "totalreply": 97,
     "title": "[疑似Playstation数字版游戏新规]",
     "newtitle": "[疑似Playstation数字版游戏新规（官方已确认）]",
-    "lastedit": 1777419009,
+    "lastedit": 1777421786,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16641,10 +16641,10 @@
     "update": false
   },
   "2279776": {
-    "totalreply": 118,
+    "totalreply": 119,
     "title": "[deepseek再次降价，缓存命中价格降低至目前水平的1／10]",
     "newtitle": "[更新：DeepSeek-v4-pro2.5折优惠时间延长至5月底]",
-    "lastedit": 1777421177,
+    "lastedit": 1777421786,
     "category": "外野",
     "active": true,
     "update": false
@@ -16668,10 +16668,10 @@
     "update": false
   },
   "2279801": {
-    "totalreply": 140,
+    "totalreply": 141,
     "title": "[课本对袁大头的评价是完全贬性的，现在来看这是精准的还是偏低了些？]",
     "newtitle": "[课本对袁大头的评价是完全贬性的，现在来看这是精准的还是偏低了些？]",
-    "lastedit": 1777396332,
+    "lastedit": 1777421786,
     "category": "外野",
     "active": true,
     "update": false
@@ -16776,10 +16776,10 @@
     "update": false
   },
   "2279833": {
-    "totalreply": 121,
+    "totalreply": 122,
     "title": "[一根筋两头堵，疾控医生陷入两难境地]",
     "newtitle": "[一根筋两头堵，疾控医生陷入两难境地]",
-    "lastedit": 1777401489,
+    "lastedit": 1777421778,
     "category": "外野",
     "active": true,
     "update": false
@@ -17037,10 +17037,10 @@
     "update": false
   },
   "2279883": {
-    "totalreply": 61,
+    "totalreply": 62,
     "title": "[买车求建议]",
     "newtitle": "[买车求建议]",
-    "lastedit": 1777421177,
+    "lastedit": 1777421786,
     "category": "外野",
     "active": true,
     "update": false
@@ -17109,10 +17109,10 @@
     "update": false
   },
   "2279925": {
-    "totalreply": 80,
+    "totalreply": 82,
     "title": "[终于轮到我了，黄姓起名]",
     "newtitle": "[终于轮到我了，黄姓起名]",
-    "lastedit": 1777420812,
+    "lastedit": 1777421786,
     "category": "外野",
     "active": true,
     "update": false
@@ -17141,6 +17141,15 @@
     "newtitle": "[猫砂清空后再添新的，还是边用边添？]",
     "lastedit": 1777392622,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2251418": {
+    "totalreply": 50,
+    "title": "[《428～被封锁的涩谷～》总监石井二郎开启「涩谷真人冒险项目」众筹。]",
+    "newtitle": "[《428～被封锁的涩谷～》总监石井二郎开启「涩谷真人冒险项目」众筹。]",
+    "lastedit": 1777421786,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
