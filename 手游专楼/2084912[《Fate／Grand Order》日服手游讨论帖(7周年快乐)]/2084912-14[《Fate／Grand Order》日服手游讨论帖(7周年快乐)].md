@@ -672,3 +672,39 @@
 这边的加雷斯拿着圣枪一脸懵逼就打出特攻（心理）了
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 20711#       发表于 2026-4-29 12:37
+
+要是再来个魅惑无效就只能说是内部恨了<img src="https://static.stage1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 20712#       发表于 2026-4-29 12:43
+
+估计是神性混沌恶超巨大，加上还是个狂的90+++，大概能拿出一堆压仓库的英灵打
+顺便一提因为难度太低，羁绊上可能不如戴冠战之类的划算<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  格林卡罗尔  
+##### 20713#       发表于 2026-4-29 12:46
+
+ 本帖最后由 格林卡罗尔 于 2026-4-29 12:53 编辑 
+
+黑狮子应该是被横飞姬设计了，他的印象里加雷斯是和他一起死的，圆桌都不可能还存在，横飞姬故意用幻术伪装了加雷斯打了个措手不及，以至于死到临头还在说不可能，没有发现自己是从哪里开始被安排的
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  岸浪白野  
+##### 20714#       发表于 2026-4-29 12:56
+
+90+++柱子基础只有3164羁绊和90★一样是这样的啊，上次诺亚柱子不也照样打<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/32/17718f627ec7e5ba68677c96afcb7415/image.jpg" referrerpolicy="no-referrer">
+
