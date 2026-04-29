@@ -13967,3 +13967,32 @@ thinking怎么关</blockquote>
 被推送了识图模式，能力很难评，能够认得一些地标建筑，知道热门二游人物，但是推理能力还比较弱，远不如纯 ...</blockquote>
 真人的图如何？看看幻方的数据主要向哪个方向的。
 
+
+*****
+
+####  ArthurDent  
+##### 1279#       发表于 2026-4-29 20:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69554488&amp;ptid=2275806" target="_blank">zerona 发表于 2026-4-29 20:08</a>
+瑟瑟那个对了？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/carton2017/240.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  水原薰  
+##### 1280#       发表于 2026-4-29 20:31
+
+看有识图去试了下，分别是v和二游还有动画人物，三个全错一个都没认出来，这识别率完全用不了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yudms1  
+##### 1281#       发表于 2026-4-29 20:36
+
+<blockquote>水原薰 发表于 2026-4-29 20:31
+看有识图去试了下，分别是v和二游还有动画人物，三个全错一个都没认出来，这识别率完全用不了吧 ...</blockquote>
+确实，我给了张lapwing的图它硬说是银狼，笑死，不过空间推理还可以，让它识别图里有几个人，看推理过程，把人物方位和衣服特征识别很准
+
