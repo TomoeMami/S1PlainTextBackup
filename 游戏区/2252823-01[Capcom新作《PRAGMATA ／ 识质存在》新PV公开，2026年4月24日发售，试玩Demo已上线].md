@@ -5120,3 +5120,11 @@ Skateboard baby!
 https://x.com/yuu_dai_1998/status/2048328944827654440</blockquote>
 怎么一股PM风波火主的感觉。
 
+
+*****
+
+####  哎哟卧槽了  
+##### 841#       发表于 2026-4-29 14:34
+
+卡普空终于找到新一代吉祥物了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
