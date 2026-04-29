@@ -708,3 +708,41 @@
 
 90+++柱子基础只有3164羁绊和90★一样是这样的啊，上次诺亚柱子不也照样打<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/32/17718f627ec7e5ba68677c96afcb7415/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 20715#       发表于 2026-4-29 17:08
+
+ 本帖最后由 exiaexa 于 2026-4-29 17:10 编辑 
+
+这种柱子不就是给你刷素材带点狗粮的吗
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 20716#       发表于 2026-4-29 17:28
+
+170w血的神性狂仿佛是在搞笑，打了几把就把拔刀斋给塞回去了，拔刀斋已经快14羁绊了，得省着点用，还是仓库里拎个4星出来打吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 20717#       发表于 2026-4-29 17:34
+
+ 本帖最后由 格林卡罗尔 于 2026-4-29 17:37 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有精神异常耐性，玛修大人给穿小鞋也太狠了
+
+顺便一提只有天超巨大神性女性
+
+建议上藤乃，配合五星卡池礼装伤害爆炸
+
+*****
+
+####  khxooo  
+##### 20718#       发表于 2026-4-29 17:48
+
+1宝BBA+man+CBA/RBA，爽刷，当然要倍卡。
+
