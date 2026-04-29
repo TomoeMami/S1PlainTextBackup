@@ -13996,3 +13996,13 @@ thinking怎么关</blockquote>
 看有识图去试了下，分别是v和二游还有动画人物，三个全错一个都没认出来，这识别率完全用不了吧 ...</blockquote>
 确实，我给了张lapwing的图它硬说是银狼，笑死，不过空间推理还可以，让它识别图里有几个人，看推理过程，把人物方位和衣服特征识别很准
 
+
+*****
+
+####  sdefrfg1  
+##### 1282#       发表于 2026-4-29 20:46
+
+不知道用opus plan然后用v4执行效果怎么样，毕竟v4比sonnet还便宜不少
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
