@@ -13493,3 +13493,52 @@ fgnb😭杀！
 羡慕啊。感觉是不是没国内网络梗图文化的物料啊。</blockquote>
 ds的二次元问题挺大的，我问过一个不太少见的二次元问题他给我全编
 
+
+*****
+
+####  zerona  
+##### 1237#       发表于 2026-4-29 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553412&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-4-29 16:27</a>
+
+ds的二次元问题挺大的，我问过一个不太少见的二次元问题他给我全编</blockquote>
+他们需要一个二次元老登！！！
+
+*****
+
+####  overflowal  
+##### 1238#       发表于 2026-4-29 16:30
+
+我估计是因为这是个小模型，大的多模态要时间    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  羊寢  
+##### 1239#       发表于 2026-4-29 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553412&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-4-29 16:27</a>
+ds的二次元问题挺大的，我问过一个不太少见的二次元问题他给我全编</blockquote>
+我大概每个版本都会拿狒狒石寺的社区or同人梗问她一次，她就没不幻觉的时候<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Geronimo  
+##### 1240#       发表于 2026-4-29 16:35
+
+我也有资格，不过我没有二次元图图。
+拍了个饼干倒是认出来了。
+
+—— 来自 HUAWEI VYG-AL30, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  有鱼  
+##### 1241#       发表于 2026-4-29 16:37
+
+多模态要效果理想的话，估计得从头重新训练吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+看v4世代能不能端出来旗舰级多模态模型了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
