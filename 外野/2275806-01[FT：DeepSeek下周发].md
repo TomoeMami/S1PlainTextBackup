@@ -13368,3 +13368,33 @@ https://github.com/deepseek-ai/awesome-deepseek-agent/blob/ ...</blockquote>
 —— 来自 Xiaomi 2112123AC, Android 13, 鹅球 v3.5.99 ...</blockquote>
 ocr一直都可以
 
+
+*****
+
+####  a4ac7  
+##### 1225#       发表于 2026-4-29 15:39
+
+<img src="https://p.sda1.dev/32/a7ac32da61a86f9ad0ad1088b0610525/image.jpg" referrerpolicy="no-referrer">
+
+梁圣<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  holmesjerry  
+##### 1226#       发表于 2026-4-29 15:41
+
+等等 我记得deepseek是有传统的开源周的
+
+这一周就打这么多牌 开源周他鲸鱼哥要干什么<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">engram真能做出来实装？还是别的小trick
+
+*****
+
+####  pushare  
+##### 1227#       发表于 2026-4-29 15:43
+
+昨天自删的又发出来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/32/94b967c048009ae05098c00dd57e3c05/image.jpg" referrerpolicy="no-referrer">
+
