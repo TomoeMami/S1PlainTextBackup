@@ -13873,3 +13873,13 @@ thinking怎么关
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ArthurDent  
+##### 1270#       发表于 2026-4-29 19:57
+
+有点菜<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/32/5349914b4f3d6f721170da15758bd6ce/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
