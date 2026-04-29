@@ -5136,3 +5136,12 @@ https://x.com/yuu_dai_1998/status/2048328944827654440</blockquote>
 
 曝光率这样了还不赶快上DLC啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">隔壁马上就要出佣兵模式了，这个现在连剧本都没补完
 
+
+*****
+
+####  WGTCorp  
+##### 843#       发表于 2026-4-29 18:44
+
+这游戏好多科学方面的细节完全不讲究啊，感觉毁了沉浸感（
+如果把背景改在更遥远一些的未来，地点换成空间站/小行星基地这种地方，可能会更好一些。
+
