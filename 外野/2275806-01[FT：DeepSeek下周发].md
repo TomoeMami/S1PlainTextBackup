@@ -14046,3 +14046,12 @@ thinking怎么关</blockquote>
 环境： m ...</blockquote>
 我在 windows terminal 上用 Gemini cli 也遇到过这个问题
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 1287#       发表于 2026-4-29 22:01
+
+图源数据库质量，训练度，决定识图结果，智障不是意料之中么。
+而且v4训练还用老黄的一部分，推理是部署在950上面的。如果识图功能也是，那么成本也会降吧，意义就是纯国产ai部署    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
