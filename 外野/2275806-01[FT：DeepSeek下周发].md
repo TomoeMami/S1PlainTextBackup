@@ -13128,3 +13128,14 @@ a/虽然➗，但是活真不烂<img src="https://static.stage1st.com/image/smil
 传闻开始灰度视觉了</blockquote>
 先等等看看是不是gpt搞的<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 1204#       发表于 2026-4-29 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69552480&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-4-29 13:40</a>
+
+先等等看看是不是gpt搞的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也有可能是
+

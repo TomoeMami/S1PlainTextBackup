@@ -3395,3 +3395,13 @@ challenge模式有攻略抄吗，新人想做那个主线challenge的任务，�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  jackyhuang  
+##### 4106#       发表于 2026-4-29 13:54
+
+真来格罗姆林了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
