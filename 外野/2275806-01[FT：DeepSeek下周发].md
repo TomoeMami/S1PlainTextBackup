@@ -13346,3 +13346,25 @@ https://github.com/deepseek-ai/awesome-deepseek-agent/blob/ ...</blockquote>
 
 环境： m1 mbp   iterm2  oh-my-zsh
 
+
+*****
+
+####  Nanachi  
+##### 1223#       发表于 2026-4-29 15:30
+
+梁圣🙏
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ymm1030  
+##### 1224#       发表于 2026-4-29 15:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553031&amp;ptid=2275806" target="_blank">ArthurDent 发表于 2026-4-29 15:20</a>
+
+好像图还是看不了，以前也能读文字吗
+
+—— 来自 Xiaomi 2112123AC, Android 13, 鹅球 v3.5.99 ...</blockquote>
+ocr一直都可以
+
