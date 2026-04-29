@@ -190,3 +190,11 @@
 
 想单人针对只能核手补包了
 
+
+*****
+
+####  The_Fool_  
+##### 7449#       发表于 2026-4-29 21:37
+
+捏妈妈的箭头，现在这N7虫子玩出了N10的压力，数量又多跑得又快，被任意一只虫子摸到一下减速了马上就要被一群虫子包围**<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
