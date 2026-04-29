@@ -2195,3 +2195,13 @@ syl : 猫+贪婪面具 ...</blockquote>
 成就还差几个，有个【从光源里拿XX张牌】是啥意思，地图里撞蜡烛吗？</blockquote>
 对，火把蜡烛路灯都算
 
+
+*****
+
+####  yikaa  
+##### 208#       发表于 2026-4-29 22:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">死神探索者也太强了，一张红牌抽十一，开局80+费 简直就是官方修改器 
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
