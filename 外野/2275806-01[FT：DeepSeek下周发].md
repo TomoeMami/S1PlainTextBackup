@@ -13157,3 +13157,36 @@ a/虽然➗，但是活真不烂<img src="https://static.stage1st.com/image/smil
 传闻开始灰度视觉了</blockquote>
 一眼假，鉴定为不如gpt image生成的图片    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  ayanamilin  
+##### 1207#       发表于 2026-4-29 14:34
+
+DeepSeek 更新了各编程 agent 的接入文档：
+[https://github.com/deepseek-ai/a ... s/reasonix.zh-CN.md](https://github.com/deepseek-ai/awesome-deepseek-agent/blob/main/docs/reasonix.zh-CN.md)
+
+除了主流 agent 之外，还推荐了一个叫 reasonix 的 coding 工具，缓存优先，默认使用 v4flash，这成本控制也太狠了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  王兰花秀丽  
+##### 1208#       发表于 2026-4-29 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69552464&amp;ptid=2275806" target="_blank">Lorraine_Kinney 发表于 2026-4-29 13:35</a>
+
+传闻开始灰度视觉了</blockquote>
+可信度有点高，原帖链接：[https://linux.do/t/topic/2080191](https://linux.do/t/topic/2080191)
+
+对话链接：[https://chat.deepseek.com/share/ablc57vmv2ompm3vy6](https://chat.deepseek.com/share/ablc57vmv2ompm3vy6)
+
+*****
+
+####  ff2077  
+##### 1209#       发表于 2026-4-29 14:42
+
+什么时候出coding plan啊 梁圣
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

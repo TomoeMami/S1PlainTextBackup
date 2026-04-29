@@ -5128,3 +5128,11 @@ https://x.com/yuu_dai_1998/status/2048328944827654440</blockquote>
 
 卡普空终于找到新一代吉祥物了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Chao  
+##### 842#       发表于 2026-4-29 14:39
+
+曝光率这样了还不赶快上DLC啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">隔壁马上就要出佣兵模式了，这个现在连剧本都没补完
+
