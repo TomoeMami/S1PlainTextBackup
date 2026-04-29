@@ -2213,3 +2213,13 @@ syl : 猫+贪婪面具 ...</blockquote>
 
 今天极限把红死神打死了，就一张10%伤害的卡硬抽<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滝本日富美  
+##### 210#       发表于 2026-4-30 00:52
+
+对局时间太长了，功利打法，搁那鞭尸赚钱，叠buff，把把2/3个小时一张图
+
+—— 来自 vivo V2408A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
