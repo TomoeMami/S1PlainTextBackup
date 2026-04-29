@@ -13258,3 +13258,26 @@ DeepSeek 更新了各编程 agent 的接入文档：
 
 视觉能力肯定是向agi发展必须的能力，生图/视频能力才是并非必要的炫技。
 
+
+*****
+
+####  tillnight  
+##### 1216#       发表于 2026-4-29 15:09
+
+<blockquote>overflowal 发表于 2026-4-29 15:01
+可惜提示暂不可用，应该只是做了接口，推理端还没接上</blockquote>
+看1208l的链接，明显确实已经有人灰度到了。
+
+
+*****
+
+####  奥柏伦亲王  
+##### 1217#       发表于 2026-4-29 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69552832&amp;ptid=2275806" target="_blank">ff2077 发表于 2026-4-29 14:42</a>
+
+什么时候出coding plan啊 梁圣
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+deepseek大概不想把自己跟开健身房的混为一谈
+
