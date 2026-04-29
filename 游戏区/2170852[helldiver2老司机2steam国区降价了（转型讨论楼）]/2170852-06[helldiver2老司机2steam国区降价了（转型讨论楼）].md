@@ -85,3 +85,16 @@
 卡输入法玩不了了，箭头傻逼吧</blockquote>
 对。。。以前没问题的，现在必须把大写键caps打开。。。才能正常玩
 
+
+*****
+
+####  kalavinka  
+##### 7440#         楼主| 发表于 2026-4-29 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69550620&amp;ptid=2170852" target="_blank">xinfengj 发表于 2026-4-29 02:48</a>
+
+子弹风暴是陷阱，要用长柄镰+激光狗，用激光或者火直击烧死的才不会爆红雾。
+
+新泰坦的头大于2000血，次抛 ...</blockquote>
+荡平者不打毒囊应该还是可以一发吧
+
