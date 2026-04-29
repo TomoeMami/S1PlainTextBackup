@@ -13398,3 +13398,35 @@ ocr一直都可以
 
 <img src="https://p.sda1.dev/32/94b967c048009ae05098c00dd57e3c05/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡普空  
+##### 1228#       发表于 2026-4-29 16:08
+
+网页版真有识图模式了啊，亲测可以用
+
+*****
+
+####  ml1642879  
+##### 1229#       发表于 2026-4-29 16:10
+
+fgnb😭杀！
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
+
+
+*****
+
+####  巨魔已被忠诚  
+##### 1230#       发表于 2026-4-29 16:15
+
+今天搞了个语音识别+AI监修文字，记录需求比打字快。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">方便处理提示词和知识库，填表格式化快多了。
+
+*****
+
+####  zerona  
+##### 1231#       发表于 2026-4-29 16:16
+
+手机的也能看到识图模式入口，但是点进去不能识图，不是灰度用户吧。<img src="https://static.stage1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
