@@ -2184,3 +2184,14 @@ syl : 猫+贪婪面具 ...</blockquote>
 
 加洛刷钱好爽，打把擎天塔赚了两百万<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  John_Stockton  
+##### 207#         楼主| 发表于 2026-4-29 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69551650&amp;ptid=2279483" target="_blank">丹德里恩 发表于 2026-4-29 10:57</a>
+
+成就还差几个，有个【从光源里拿XX张牌】是啥意思，地图里撞蜡烛吗？</blockquote>
+对，火把蜡烛路灯都算
+
