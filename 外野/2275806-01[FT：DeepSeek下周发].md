@@ -14006,3 +14006,30 @@ thinking怎么关</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  水原薰  
+##### 1283#       发表于 2026-4-29 20:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69554644&amp;ptid=2275806" target="_blank">yudms1 发表于 2026-4-29 20:36</a>
+确实，我给了张lapwing的图它硬说是银狼，笑死，不过空间推理还可以，让它识别图里有几个人，看推理过程 ...</blockquote>
+还别说，去试了下，真实场景命中率确实挺高的，特殊场景百分百命中，路上的建筑物和普通风景识别率低一点，看来之前是方向没找对，二刺猿属实不行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zerona  
+##### 1284#       发表于 2026-4-29 20:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69554699&amp;ptid=2275806" target="_blank">水原薰 发表于 2026-4-29 20:49</a>
+
+还别说，去试了下，真实场景命中率确实挺高的，特殊场景百分百命中，路上的建筑物和普通风景识别率低一点 ...</blockquote>
+其实最后生成真人也不是不行……
+
+*****
+
+####  一般市民  
+##### 1285#       发表于 2026-4-29 20:52
+
+看回复，描述图片细节还可以，不认识人物大概就是训练数据不足。
+
