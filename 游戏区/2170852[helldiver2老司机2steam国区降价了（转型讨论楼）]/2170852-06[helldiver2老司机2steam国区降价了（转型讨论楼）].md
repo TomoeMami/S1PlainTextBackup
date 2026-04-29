@@ -137,3 +137,28 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  xinfengj  
+##### 7445#       发表于 2026-4-29 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553045&amp;ptid=2170852" target="_blank">YY骑士 发表于 2026-4-29 15:22</a>
+
+对。。。以前没问题的，现在必须把大写键caps打开。。。才能正常玩</blockquote>
+时间和语言- 输入- 高级键盘设置- 输入语言热键- 高级键设置-更改案件顺序
+
+把切换输入语言选未分配
+
+进游戏按win+空格切到英文输入法就行了
+
+*****
+
+####  xinfengj  
+##### 7446#       发表于 2026-4-29 19:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553284&amp;ptid=2170852" target="_blank">kalavinka 发表于 2026-4-29 16:06</a>
+
+荡平者不打毒囊应该还是可以一发吧</blockquote>
+无后座以上都能一发头。荡平打倒是更容易秒，但是cd转不过来
+

@@ -13747,3 +13747,30 @@ deepseek提供视觉功能了也未必是传统实现方案的，到时候看论
 
 OCR那个论文有说靠LLM本身的能力实现视觉，不知道是不是应用在这个上面
 
+
+*****
+
+####  Nanachi  
+##### 1260#       发表于 2026-4-29 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553719&amp;ptid=2275806" target="_blank">Onelooker 发表于 2026-4-29 17:25</a>
+v4p api挂了个网页翻译, 翻几个网页就走了两毛, 这么耗的吗</blockquote>
+翻译的话用flash关thinking就好
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  比利的微笑  
+##### 1261#       发表于 2026-4-29 19:19
+
+已经开放使用了？
+
+<img src="https://img.stage1st.com/forum/202604/29/191832s4r3z6f1ckyb8k1f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-29 19:18 上传
+
