@@ -13139,3 +13139,11 @@ a/虽然➗，但是活真不烂<img src="https://static.stage1st.com/image/smil
 先等等看看是不是gpt搞的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也有可能是
 
+
+*****
+
+####  drodchang  
+##### 1205#       发表于 2026-4-29 13:54
+
+不知道谁调教的，V4pro老喜欢说：我不行
+
