@@ -13542,3 +13542,15 @@ ds的二次元问题挺大的，我问过一个不太少见的二次元问题他
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  overflowal  
+##### 1242#       发表于 2026-4-29 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553457&amp;ptid=2275806" target="_blank">Geronimo 发表于 2026-4-29 16:35</a>
+我也有资格，不过我没有二次元图图。
+拍了个饼干倒是认出来了。
+---</blockquote>
+你这明显也不像它老板啊，而且梁圣在互联网上的照片可能就几张<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
