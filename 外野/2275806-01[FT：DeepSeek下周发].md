@@ -14033,3 +14033,16 @@ thinking怎么关</blockquote>
 
 看回复，描述图片细节还可以，不认识人物大概就是训练数据不足。
 
+
+*****
+
+####  ayanamilin  
+##### 1286#       发表于 2026-4-29 21:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553057&amp;ptid=2275806" target="_blank">viperasi 发表于 2026-4-29 15:24</a>
+
+这工具感觉跟iterm2有冲突，每次输入字符整个缓冲区都重渲染，闪的眼镜疼， 用自带的终端就没事
+
+环境： m ...</blockquote>
+我在 windows terminal 上用 Gemini cli 也遇到过这个问题
+
