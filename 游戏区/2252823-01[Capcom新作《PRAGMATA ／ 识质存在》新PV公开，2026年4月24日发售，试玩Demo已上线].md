@@ -5145,3 +5145,19 @@ https://x.com/yuu_dai_1998/status/2048328944827654440</blockquote>
 这游戏好多科学方面的细节完全不讲究啊，感觉毁了沉浸感（
 如果把背景改在更遥远一些的未来，地点换成空间站/小行星基地这种地方，可能会更好一些。
 
+
+*****
+
+####  何然  
+##### 844#       发表于 2026-4-29 21:55
+
+都月丝+月面T病毒了你还科什么学<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zqqwe  
+##### 845#       发表于 2026-4-29 22:02
+
+不得不说这作的科幻设定缓解了很多原本会生理不适的设计，例如那个隐身蜘蛛怪如果是生物造型<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
