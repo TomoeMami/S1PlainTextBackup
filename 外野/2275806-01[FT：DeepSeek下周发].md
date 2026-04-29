@@ -13190,3 +13190,71 @@ DeepSeek 更新了各编程 agent 的接入文档：
 
 —— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  王兰花秀丽  
+##### 1210#       发表于 2026-4-29 14:54
+
+<img src="https://img.stage1st.com/forum/202604/29/145420xz27rqwjj6rbpjpd.png" referrerpolicy="no-referrer">
+
+<strong>1000048849.png</strong> (69.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-29 14:54 上传
+
+在客户端上传没有文字的图片就可以触发    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  Promeus  
+##### 1211#       发表于 2026-4-29 15:01
+
+<img src="https://p.sda1.dev/32/35df584d51dbfffb8741093333662fdc/image.jpg" referrerpolicy="no-referrer">
+确认有尚不可用的视图模式
+
+*****
+
+####  overflowal  
+##### 1212#       发表于 2026-4-29 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69552902&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-4-29 14:54</a>
+
+在客户端上传没有文字的图片就可以触发    Re:Source</blockquote>
+可惜提示暂不可用，应该只是做了接口，推理端还没接上
+
+
+*****
+
+####  overflowal  
+##### 1213#       发表于 2026-4-29 15:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69552832&amp;ptid=2275806" target="_blank">ff2077 发表于 2026-4-29 14:42</a>
+
+什么时候出coding plan啊 梁圣
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+应该不会了，梁这种做量化的跟做互联网的思路还是不太一样，会便宜卖给你，但是不会亏本卖给你
+
+*****
+
+####  Cortana  
+##### 1214#       发表于 2026-4-29 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69552832&amp;ptid=2275806" target="_blank">ff2077 发表于 2026-4-29 14:42</a>
+什么时候出coding plan啊 梁圣
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+不会出的，缓存命中永久降价到分价位已经够大气了，幻方又不急着推广，没必要赔钱赚吆喝。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  tillnight  
+##### 1215#       发表于 2026-4-29 15:07
+
+视觉能力肯定是向agi发展必须的能力，生图/视频能力才是并非必要的炫技。
+
