@@ -2116,3 +2116,13 @@ syl : 猫+贪婪面具 ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 通关了还没和红死神碰一碰 明天再试试补成就
 
+
+*****
+
+####  木竹九  
+##### 200#       发表于 2026-4-29 08:12
+
+还差3000紫牌和10000击杀，感觉后期就是刷钱封印宝石，只留进化、金币伤害、万能、七彩、防烧就行。然后就是抓张费抓张过牌，满手万能牌直接无脑连（但也太无聊了）
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
