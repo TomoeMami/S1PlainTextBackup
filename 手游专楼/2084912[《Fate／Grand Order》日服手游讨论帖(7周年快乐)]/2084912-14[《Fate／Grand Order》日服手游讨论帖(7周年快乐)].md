@@ -746,3 +746,25 @@
 
 1宝BBA+man+CBA/RBA，爽刷，当然要倍卡。
 
+
+*****
+
+####  都谷捻柏  
+##### 20719#       发表于 2026-4-29 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553759&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2026-4-29 17:34</a>
+
+有精神异常耐性，玛修大人给穿小鞋也太狠了
+
+顺便一提只有天超巨大神性女性</blockquote>
+莉莉丝魅惑150%的，耐性只有30，100%能上上去。
+
+卡的是迦摩这种。
+
+*****
+
+####  angelooo  
+##### 20720#       发表于 2026-4-29 17:56
+
+可以xjbd的柱子好耶
+
