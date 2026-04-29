@@ -14063,3 +14063,19 @@ thinking怎么关</blockquote>
 
 提到的基本是知识库问题，加了联网搜索马上就会好的，这合并进主要模型估计对kimi之类是重大打击
 
+
+*****
+
+####  L-JoeW  
+##### 1289#       发表于 2026-4-29 22:44
+
+<img src="https://img.stage1st.com/forum/202604/29/224402dltate4ht4hqhtxi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-29 22:44 上传
+
+玩爽了，写了十几万字的小说才用了一两块钱
+
