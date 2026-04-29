@@ -162,3 +162,18 @@
 荡平者不打毒囊应该还是可以一发吧</blockquote>
 无后座以上都能一发头。荡平打倒是更容易秒，但是cd转不过来
 
+
+*****
+
+####  YY骑士  
+##### 7447#       发表于 2026-4-29 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69554250&amp;ptid=2170852" target="_blank">xinfengj 发表于 2026-4-29 19:16</a>
+
+时间和语言- 输入- 高级键盘设置- 输入语言热键- 高级键设置-更改案件顺序
+
+把切换输入语言选未分配
+
+进游 ...</blockquote>
+没事，反正这游戏我也不打字，朋友联机是语音，进了游戏把capslock按下去锁定大写就好了。
+
