@@ -13088,3 +13088,17 @@ gemini的问题就是文笔太四平八稳，很容易腻，这方面比不过dp
 
 宣布A÷获得一天免喷权
 
+
+*****
+
+####  有鱼  
+##### 1201#       发表于 2026-4-29 12:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69552220&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-4-29 12:45</a>
+能调用第三方API的Claude Code和Claude Desktop是最棒的聚合App
+
+宣布A÷获得一天免喷权 ...</blockquote>
+a/虽然➗，但是活真不烂<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

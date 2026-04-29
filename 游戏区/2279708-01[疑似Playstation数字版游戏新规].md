@@ -1156,3 +1156,38 @@ A9上看到这种说法
 
 ps本来下载了不管玩没玩过都不能退款 还搞这个30天干嘛
 
+
+*****
+
+####  闽明  
+##### 108#       发表于 2026-4-29 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69551952&amp;ptid=2279708" target="_blank">byisme001 发表于 2026-4-29 11:49</a>
+
+ps本来下载了不管玩没玩过都不能退款 还搞这个30天干嘛</blockquote>
+其实是有退款支持的，在官网上的support里申请，要没下载过和购买后14天内申请
+
+<img src="https://img.stage1st.com/forum/202604/29/124519fh3i4hr33rrromhi.png" referrerpolicy="no-referrer">
+
+<strong>QQ20260429-124348.png</strong> (313.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-29 12:45 上传
+
+<img src="https://img.stage1st.com/forum/202604/29/124524mha6rrorzah2rgr4.png" referrerpolicy="no-referrer">
+
+<strong>QQ20260429-124418.png</strong> (38.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-29 12:45 上传
+
+<img src="https://img.stage1st.com/forum/202604/29/124528e4cp440ocqvi24v0.png" referrerpolicy="no-referrer">
+
+<strong>QQ20260429-124452.png</strong> (20.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-29 12:45 上传
+
