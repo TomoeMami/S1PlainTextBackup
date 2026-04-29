@@ -13883,3 +13883,42 @@ thinking怎么关
 
 —— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zerona  
+##### 1271#       发表于 2026-4-29 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69554441&amp;ptid=2275806" target="_blank">ArthurDent 发表于 2026-4-29 19:57</a>
+
+1/3有点菜</blockquote>
+瑟瑟那个对了？
+
+
+*****
+
+####  Nanachi  
+##### 1272#       发表于 2026-4-29 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69554350&amp;ptid=2275806" target="_blank">passgan 发表于 2026-4-29 19:34</a>
+thinking怎么关</blockquote>
+看你用的什么软件调用api，调用时thinking type disabled就行
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  秦南心  
+##### 1273#       发表于 2026-4-29 20:17
+
+<img src="https://img.stage1st.com/forum/202604/29/201740xs93j68g9kw3nb1b.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ20260429-201855.jpg</strong> (97.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-29 20:17 上传
+
+蠢蠢的，认不太出动画人物，但让它做中学图形题还可以
+
