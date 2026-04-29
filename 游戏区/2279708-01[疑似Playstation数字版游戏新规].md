@@ -1281,3 +1281,14 @@ ps本来下载了不管玩没玩过都不能退款 还搞这个30天干嘛</bloc
 怎么传到后面一堆人集体复读30天不上索尼收回你电子版了，那是真的牛哦</blockquote>
 毕竟骂索尼是国内游戏圈zzzq嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，只要不跟着骂立马GK、索狗的帽子就扣过来了
 
+
+*****
+
+####  哎哟卧槽了  
+##### 117#       发表于 2026-4-29 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69551952&amp;ptid=2279708" target="_blank">byisme001 发表于 2026-4-29 11:49</a>
+
+ps本来下载了不管玩没玩过都不能退款 还搞这个30天干嘛</blockquote>
+可以，下载没有打开的话，打电话过去退过一次
+
