@@ -177,3 +177,16 @@
 进游 ...</blockquote>
 没事，反正这游戏我也不打字，朋友联机是语音，进了游戏把capslock按下去锁定大写就好了。
 
+
+*****
+
+####  qwased  
+##### 7448#       发表于 2026-4-29 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553284&amp;ptid=2170852" target="_blank">kalavinka 发表于 2026-4-29 16:06</a>
+
+荡平者不打毒囊应该还是可以一发吧</blockquote>
+一波烟6-8只
+
+想单人针对只能核手补包了
+
