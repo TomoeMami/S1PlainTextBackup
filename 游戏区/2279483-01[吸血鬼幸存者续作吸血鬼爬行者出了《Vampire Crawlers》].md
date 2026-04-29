@@ -2223,3 +2223,17 @@ syl : 猫+贪婪面具 ...</blockquote>
 
 —— 来自 vivo V2408A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Znesmoc  
+##### 211#       发表于 2026-4-30 01:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刷通了
+
+虽然还一些角色和宝石没解锁，但是已经不想继续打了
+
+万能牌成堆打打到全加成叠满1000再两三拳打翻最终boss，感觉自己大脑皮层都被抚平了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+那么多人拿这游戏阴阳sts2我只感觉很微妙<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
