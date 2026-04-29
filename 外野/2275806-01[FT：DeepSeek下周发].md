@@ -13554,3 +13554,25 @@ ds的二次元问题挺大的，我问过一个不太少见的二次元问题他
 ---</blockquote>
 你这明显也不像它老板啊，而且梁圣在互联网上的照片可能就几张<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rowen233  
+##### 1243#       发表于 2026-4-29 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553457&amp;ptid=2275806" target="_blank">Geronimo 发表于 2026-4-29 16:35</a>
+
+我也有资格，不过我没有二次元图图。
+
+拍了个饼干倒是认出来了。
+
+---</blockquote>
+感觉这图是没触发识图，只是OCR识别出文字了
+
+*****
+
+####  王兰花秀丽  
+##### 1244#       发表于 2026-4-29 16:55
+
+目前看起来更像是外挂了一个识别tag的模型，并不是原生多模态，不过能解决有没有的问题也不错
+
