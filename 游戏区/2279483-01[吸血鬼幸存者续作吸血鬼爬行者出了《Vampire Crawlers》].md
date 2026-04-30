@@ -2305,3 +2305,14 @@ switch.txt
 我自己可以使用python脚本将电脑存档正常转换成switc ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 不如把那个转换脚本发一下 尝试做个逆向的操作
 
+
+*****
+
+####  Deco  
+##### 216#       发表于 2026-4-30 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69559921&amp;ptid=2279483" target="_blank">yikaa 发表于 2026-4-30 21:12</a>
+
+不如把那个转换脚本发一下 尝试做个逆向的操作</blockquote>
+不太行，pc多了一层针对data的验证，似乎是sha1再转成base64的26位数字。根据github上修改存档的脚本改了还是不能被识别，完全不知道怎么办了，只有给那边提了个issue
+
