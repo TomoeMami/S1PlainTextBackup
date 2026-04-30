@@ -5285,3 +5285,16 @@ https://x.com/yuu_dai_1998/status/2048328944827654440</blockquote>
 
 至于拆月丝确实有点奇怪，被打印的物质还能自己分解自己？但月丝设定反正是万能的我也懒得深究了。
 
+
+*****
+
+####  Piano-Forest  
+##### 858#         楼主| 发表于 2026-4-30 15:39
+
+[https://x.com/i/status/2048696086488133738](https://x.com/i/status/2048696086488133738)
+<img src="https://p.sda1.dev/32/29b4dcdc12435d40b1bda1f9a2a84ae1/20260430_153109.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2049153923030896941](https://x.com/i/status/2049153923030896941)
+<img src="https://p.sda1.dev/32/fb482226b17bfc2409b2016e142b4a48/20260430_153148.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/4becf1ac5dbaa0a8098280135ea482b5/20260430_153152.jpg" referrerpolicy="no-referrer">
+
