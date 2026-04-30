@@ -683,3 +683,11 @@ TOE可用角色是7个</blockquote>
 这ps级的画面要只是hd的话那还不得满屏马赛克，bn是认真的吗</blockquote>
 学隔壁se啊，加个滤镜，或者模拟器高清！fft和北欧女神传1不就这样搞的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lion_or_judas  
+##### 70#       发表于 2026-5-1 01:08
+
+原汁原味复刻吗？
+
