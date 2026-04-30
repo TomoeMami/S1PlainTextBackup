@@ -5298,3 +5298,11 @@ https://x.com/yuu_dai_1998/status/2048328944827654440</blockquote>
 <img src="https://p.sda1.dev/32/fb482226b17bfc2409b2016e142b4a48/20260430_153148.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/4becf1ac5dbaa0a8098280135ea482b5/20260430_153152.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 859#       发表于 2026-4-30 16:34
+
+黑进了鬼武者官号，但是黑不动女神之路官号
+
