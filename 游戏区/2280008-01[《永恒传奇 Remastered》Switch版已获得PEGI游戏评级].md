@@ -656,3 +656,11 @@ TOE可用角色是7个</blockquote>
 
 有个中文就可以了，其他的也不期望
 
+
+*****
+
+####  shinra-01  
+##### 67#       发表于 2026-5-1 00:42
+
+这ps级的画面要只是hd的话那还不得满屏马赛克，bn是认真的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
