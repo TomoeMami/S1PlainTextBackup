@@ -362,3 +362,20 @@ TOE挺好的，可以算是TO里第一部没什么短板的作品
 
 toe肯定买，就是psp加强版也买
 
+
+*****
+
+####  抹茶瓜  
+##### 43#       发表于 2026-4-30 14:43
+
+toe我很喜欢啦 也事感觉这系列最有野心的一部 不过万南那德行 移植肯定摆烂完事<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  抹茶瓜  
+##### 44#       发表于 2026-4-30 14:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69557353&amp;ptid=2280008" target="_blank">欧金金 发表于 2026-4-30 11:52</a>
+这部的剧情在传说里面算什么水平？</blockquote>
+差不多就到你能想到的最典型的日幻模版拯救世界展开 适合复古怀旧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
