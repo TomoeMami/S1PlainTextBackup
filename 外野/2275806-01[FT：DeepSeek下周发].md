@@ -14216,3 +14216,11 @@ thinking怎么关</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
  来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qz66618  
+##### 1302#       发表于 2026-4-30 18:59
+
+[https://github.com/deepseek-ai/Thinking-with-Visual-Primitives](https://github.com/deepseek-ai/Thinking-with-Visual-Primitives) 视觉模型的技术报告出来了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
