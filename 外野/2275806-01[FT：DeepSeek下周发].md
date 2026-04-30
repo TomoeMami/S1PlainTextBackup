@@ -14127,3 +14127,29 @@ thinking怎么关</blockquote>
 
 然后发现V4p的机子没跑满没说服力，就先打折了。
 
+
+*****
+
+####  真红之闪电  
+##### 1295#       发表于 2026-4-30 08:01
+
+其实还可以的
+
+<img src="https://img.stage1st.com/forum/202604/30/080151k0xk1iukvev02vpv.png" referrerpolicy="no-referrer">
+
+<strong>IMG_8991.PNG</strong> (749.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-30 08:01 上传
+
+<img src="https://img.stage1st.com/forum/202604/30/080151pnnuz3up82pxbj8j.png" referrerpolicy="no-referrer">
+
+<strong>IMG_8992.PNG</strong> (865.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-30 08:01 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
