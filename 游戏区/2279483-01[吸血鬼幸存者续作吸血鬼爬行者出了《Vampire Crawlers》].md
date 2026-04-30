@@ -2292,3 +2292,16 @@ switch.txt
 
 手牌排序来咯 
 
+
+*****
+
+####  yikaa  
+##### 215#       发表于 2026-4-30 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69558576&amp;ptid=2279483" target="_blank">Deco 发表于 2026-4-30 16:03</a>
+
+请问有办法将任天堂switch的存档转换成电脑可用的吗？
+
+我自己可以使用python脚本将电脑存档正常转换成switc ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 不如把那个转换脚本发一下 尝试做个逆向的操作
+
