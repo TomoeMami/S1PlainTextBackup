@@ -387,3 +387,11 @@ toe我很喜欢啦 也事感觉这系列最有野心的一部 不过万南那德
 
 还是希望初代能复刻一下，还是想玩初代<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渺小小  
+##### 46#       发表于 2026-4-30 15:02
+
+骨折时肯定买~
+
