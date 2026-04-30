@@ -16,3 +16,13 @@
 
 今天的第二条推被人断章取义影射休止删掉了
 
+
+*****
+
+####  sino__unnko3  
+##### 20560#       发表于 2026-4-30 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69558843&amp;ptid=2018830" target="_blank">术士q 发表于 2026-4-30 16:52</a>
+说是两个，其实那段主要是想说如果日本老登如果确实是马内甲之一的话，那么就相当于是除了那个一直跟着的 ...</blockquote>
+顺便问问楼友，“日本老登是海苔男在b站日本分部倒闭之后，邀请的前员工，给你麻做经纪人”这个是哪里最先出的说法？我记得是fafa
+

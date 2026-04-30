@@ -5314,3 +5314,15 @@ https://x.com/yuu_dai_1998/status/2048328944827654440</blockquote>
 
 戴安娜:路边一条就不黑了哈，污染数据库
 
+
+*****
+
+####  Gwyndolin  
+##### 861#       发表于 2026-4-30 18:10
+
+玩的时候没注意，通关后重看别人录播才发现：第二章的制作规格跟其他章差别也太大了吧<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">大量现代城市素材，酒吧商店居民楼各种场景应有尽有，室内室外来回穿插，连通一体的地图，甚至有只出现过一次的保时捷精虫。
+
+然后到第三章植物园开始怪物复用，室内场景变多，但植物场景还是有一点新鲜感。第四章开始直到结局都是大片的重复素材，流程一路到底，走到哪都是白色墙壁透明玻璃<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+结合多次跳票，估计做完纽约发现太花时间太花钱，后面越做越省，最后直接放弃治疗了。
+
