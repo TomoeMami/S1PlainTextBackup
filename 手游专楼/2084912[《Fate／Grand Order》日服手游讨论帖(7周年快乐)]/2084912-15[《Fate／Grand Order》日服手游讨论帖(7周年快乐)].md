@@ -192,3 +192,47 @@
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  yangun22  
+##### 20739#       发表于 2026-5-1 00:18
+
+按照原本预定果子龙应该在这里先露个脸然后再是开自己的活动，等于跳了一段果子龙的剧情
+
+*****
+
+####  洛克萨斯  
+##### 20740#       发表于 2026-5-1 00:42
+
+以后可以叫雪辙了，不用叫狂信了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shokuji  
+##### 20741#       发表于 2026-5-1 00:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69560812&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2026-5-1 00:00</a>
+
+果子龙其实已经出场了，黑狮子利用了她的权能
+
+黑狮子解包出来就是五星</blockquote>
+黑狮子只在fsf动画理查回忆出现了背影一帧，五星落地的话是暗示小说第10卷他也会来吗。
+
+果子龙提醒藤丸快跑那里连立绘都不露，还以为只是小彩蛋，现在知道是在后半部分还会出现了。
+
+*****
+
+####  岸浪白野  
+##### 20742#       发表于 2026-5-1 01:32
+
+就5月2号是中午更新是有点奇怪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202605/01/013137t1c0micc3cb0nnf0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (104.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-1 01:31 上传
+
