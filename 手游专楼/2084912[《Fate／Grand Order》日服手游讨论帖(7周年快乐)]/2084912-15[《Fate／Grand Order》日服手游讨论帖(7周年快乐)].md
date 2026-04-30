@@ -123,3 +123,72 @@
 
 换地图了，看看活动第二阶段能整啥活
 
+
+*****
+
+####  khxooo  
+##### 20734#       发表于 2026-4-30 23:10
+
+ 本帖最后由 khxooo 于 2026-4-30 23:11 编辑 
+
+没想到之前的有第二个特异点竟然猜对了，不过没想到没有剧情杀啊
+
+*****
+
+####  壳壳牛  
+##### 20735#       发表于 2026-4-30 23:17
+
+查询红皮野人状态<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Jamaisvu  
+##### 20736#       发表于 2026-4-30 23:51
+
+没想到打完柱子换地图了，FSF的OP一响瞬间燃起来，看样子还藏了不少原作相关剧情，非常期待。
+
+只可惜卡池角色被黑狮子预定了一个五星，森井的其他立绘也大概率是NPC......要不我奶一下狮子头盔下是红皮野人吧（口胡）
+
+*****
+
+####  shokuji  
+##### 20737#       发表于 2026-4-30 23:58
+
+<img src="https://img.stage1st.com/forum/202604/30/235318g15m3m1c7gx3cdpg.jpg" referrerpolicy="no-referrer">
+
+<strong>20260430_235218.jpg</strong> (103.81 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-30 23:53 上传
+
+万一这位（应该是蛟）才是五星呢，黑狮子的数值和宝具太像四星了
+
+<img src="https://img.stage1st.com/forum/202604/30/235655qkipioi8cspkffkt.jpg" referrerpolicy="no-referrer">
+
+<strong>20260430_235222.jpg</strong> (160.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-30 23:56 上传
+
+果子龙看来有大戏份，难道是这次活动的黑贞定位
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  格林卡罗尔  
+##### 20738#       发表于 2026-5-1 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69560804&amp;ptid=2084912" target="_blank">shokuji 发表于 2026-4-30 23:58</a>
+万一这位（应该是蛟）才是五星呢，黑狮子的数值和宝具太像四星了
+
+果子龙看来有大戏份，难道是这次活动的 ...</blockquote>
+果子龙其实已经出场了，黑狮子利用了她的权能
+黑狮子解包出来就是五星
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
