@@ -14224,3 +14224,24 @@ thinking怎么关</blockquote>
 
 [https://github.com/deepseek-ai/Thinking-with-Visual-Primitives](https://github.com/deepseek-ai/Thinking-with-Visual-Primitives) 视觉模型的技术报告出来了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ayanamilin  
+##### 1303#       发表于 2026-4-30 19:34
+
+尽管近年来多模态大型语言模型（MLLM）在弥合“感知鸿沟”（例如，通过高分辨率裁剪或图像思维）方面取得了长足进步，但它们在处理复杂的结构推理时仍然面临挑战。我们将这一瓶颈称为“<strong>指点鸿沟</strong>”（reference gap）：自然语言过于模糊，无法精确地指向密集的空间布局，这常常导致逻辑崩溃和思维过程中的错觉。本项目引入了一种范式转变。我们的模型不再仅仅是“看得更清楚”，而是学习“<strong>边指点边推理</strong>”。通过将空间标记（点和边界框）作为最小的思维单元直接插入推理轨迹，我们将抽象的语言概念锚定到具体的物理坐标上。
+
+主要亮点
+通过指点来协助推理（point-to-reason synergy）：模仿人类的认知行为（例如用手指计数或描绘迷宫），我们的框架将视觉基元（visual primitive）提升为最小的思维单元，有效地解决了复杂结构推理中的参照差距。极致的视觉token效率：基于 DeepSeek-V4-Flash 的架构，我们将每 4 个视觉token的 KV 缓存压缩为一个条目，从而大幅降低token的消耗，同时保持认知深度。前沿竞争力表现：尽管模型规模较小，图像标记预算也显著低于其他模型，但我们的模型在具有挑战性的<strong>计数和空间推理</strong>基准测试中，性能与GPT-5.4、Claude-Sonnet-4.6 和 Gemini-3-Flash 等前沿模型不相上下。（需要注意的是，此处报告的分数仅涵盖与本文研究重点直接相关的部分评估维度，因此并不能代表模型的整体能力。）
+
+案例：用户给定一张包含咖啡机和相关制作材料的图片，根据这张图片就可以给出拿铁的详细制作流程（选择咖啡机程序 -&gt; 用蒸汽棒准备奶泡 -&gt; 倒入杯内混合）
+
+<img src="https://img.stage1st.com/forum/202604/30/193320z36apzoxyd4oz6kt.gif" referrerpolicy="no-referrer">
+
+<strong>coffee.gif</strong> (3.89 MB, 下载次数: 0)
+
+下载附件
+
+2026-4-30 19:33 上传
+
