@@ -5232,3 +5232,11 @@ https://x.com/yuu_dai_1998/status/2048328944827654440</blockquote>
 不得不说这作的科幻设定缓解了很多原本会生理不适的设计，例如那个隐身蜘蛛怪如果是生物造型 ...</blockquote>
 那段像宝宝版死亡空间似的，还好流程不长。
 
+
+*****
+
+####  何然  
+##### 853#       发表于 2026-4-30 08:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">带女儿玩女儿，玩到地上爬的大头娃娃登场直接让我关了要玩任地狱了
+
