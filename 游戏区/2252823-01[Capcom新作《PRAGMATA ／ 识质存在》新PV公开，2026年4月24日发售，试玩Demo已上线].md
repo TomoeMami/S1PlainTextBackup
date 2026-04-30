@@ -5240,3 +5240,14 @@ https://x.com/yuu_dai_1998/status/2048328944827654440</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">带女儿玩女儿，玩到地上爬的大头娃娃登场直接让我关了要玩任地狱了
 
+
+*****
+
+####  何然  
+##### 854#       发表于 2026-4-30 09:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69555611&amp;ptid=2252823" target="_blank">WGTCorp 发表于 2026-4-30 00:12</a>
+
+我举俩例子吧，一是开场时飞船悬停在月球表面准备降落时，飞船里是失重状态（实际应该是有重力的），二是 ...</blockquote>
+解码念0101010101010其实也很出戏
+

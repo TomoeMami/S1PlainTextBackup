@@ -14161,3 +14161,16 @@ thinking怎么关</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ymm1030  
+##### 1297#       发表于 2026-4-30 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69554609&amp;ptid=2275806" target="_blank">ArthurDent 发表于 2026-4-29 20:31</a>
+
+就认出来个
+
+—— 来自 Xiaomi 2112123AC, Android 13, 鹅球 v3.5.99</blockquote>
+绷，结果把妮娅认成芙莉莲了啊<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
