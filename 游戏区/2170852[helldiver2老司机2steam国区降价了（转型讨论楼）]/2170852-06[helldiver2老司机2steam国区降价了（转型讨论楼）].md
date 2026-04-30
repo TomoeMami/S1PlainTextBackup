@@ -198,3 +198,70 @@
 
 捏妈妈的箭头，现在这N7虫子玩出了N10的压力，数量又多跑得又快，被任意一只虫子摸到一下减速了马上就要被一群虫子包围**<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 7450#       发表于 2026-4-29 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553045&amp;ptid=2170852" target="_blank">YY骑士 发表于 2026-4-29 15:22</a>
+
+对。。。以前没问题的，现在必须把大写键caps打开。。。才能正常玩</blockquote>
+时间和语言- 输入- 高级键盘设置- 输入语言热键- 高级键设置-更改案件顺序
+
+把切换输入语言选未分配
+
+进游戏按win+空格切到英文输入法就行了
+
+*****
+
+####  xinfengj  
+##### 7451#       发表于 2026-4-29 19:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553284&amp;ptid=2170852" target="_blank">kalavinka 发表于 2026-4-29 16:06</a>
+
+荡平者不打毒囊应该还是可以一发吧</blockquote>
+无后座以上都能一发头。荡平打倒是更容易秒，但是cd转不过来
+
+*****
+
+####  YY骑士  
+##### 7452#       发表于 2026-4-29 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69554250&amp;ptid=2170852" target="_blank">xinfengj 发表于 2026-4-29 19:16</a>
+
+时间和语言- 输入- 高级键盘设置- 输入语言热键- 高级键设置-更改案件顺序
+
+把切换输入语言选未分配
+
+进游 ...</blockquote>
+没事，反正这游戏我也不打字，朋友联机是语音，进了游戏把capslock按下去锁定大写就好了。
+
+*****
+
+####  qwased  
+##### 7453#       发表于 2026-4-29 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69553284&amp;ptid=2170852" target="_blank">kalavinka 发表于 2026-4-29 16:06</a>
+
+荡平者不打毒囊应该还是可以一发吧</blockquote>
+一波烟6-8只
+
+想单人针对只能核手补包了
+
+*****
+
+####  The_Fool_  
+##### 7454#       发表于 2026-4-29 21:37
+
+捏妈妈的箭头，现在这N7虫子玩出了N10的压力，数量又多跑得又快，被任意一只虫子摸到一下减速了马上就要被一群虫子包围**<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤井稻妻  
+##### 7455#       发表于 2026-4-30 08:56
+
+盾虫削弱血量之后轻穿击杀效率变高了，榴弹也可以一键删除一片盾虫，以前需要两枪，我现在东线用高燃破裂者+补包榴弹+轨道加特林+荡平者
+
+这次的红雾泰坦感觉威胁不大，每次都是先把小虫子清完，剩下的泰坦慢慢放风筝解决就好了，这次补丁受伤最重的其实是各种炮台，因为现在虫子的耐久伤害变高了，导致炮台坦克什么的都变脆了
+
