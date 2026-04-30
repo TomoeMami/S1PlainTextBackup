@@ -5395,3 +5395,34 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 为什么我的狂月没有月丝炮<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 没点血，打到第三章庭院守卫一尾巴就甩死，容错率低的不行
 
+
+*****
+
+####  Chao  
+##### 869#       发表于 2026-5-1 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69560962&amp;ptid=2252823" target="_blank">x分裂者 发表于 2026-5-1 00:53</a>
+
+为什么我的狂月没有月丝炮
+
+没点血，打到第三章庭院守卫一尾巴就甩死，容错率低的不行 ...</blockquote>
+有没有玩通未知信号？
+
+*****
+
+####  WGTCorp  
+##### 870#       发表于 2026-5-1 00:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69560142&amp;ptid=2252823" target="_blank">benhawk 发表于 2026-4-30 21:57</a>
+话说这游戏手残能不能玩呀？打demo感觉还行，但是双操就怕后面玩不转，观察好几天了 ...</blockquote>
+我感觉这游戏难度算低的，前期怪物比较慢随便闪，后面快起来你也能四五六连闪了。有些场景怪多起来压力可能有点大，但只要舍得用资源基本都是有惊无险的水平。感觉最难的还是模拟训练里那些关卡的三星挑战，限时和无伤之类的挑战不好搞，不过它们就给点资源，不打也不影响你做未知信号和真结局。
+
+*****
+
+####  x分裂者  
+##### 871#       发表于 2026-5-1 01:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69560976&amp;ptid=2252823" target="_blank">Chao 发表于 2026-5-1 00:58</a>
+有没有玩通未知信号？</blockquote>
+通了，全部100%的，我怀疑是不是我通之前建的这个档
+

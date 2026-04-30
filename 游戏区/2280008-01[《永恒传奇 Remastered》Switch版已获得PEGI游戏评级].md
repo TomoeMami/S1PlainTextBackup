@@ -664,3 +664,22 @@ TOE可用角色是7个</blockquote>
 
 这ps级的画面要只是hd的话那还不得满屏马赛克，bn是认真的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫将军  
+##### 68#       发表于 2026-5-1 01:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69560771&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-4-30 23:49</a>
+美乐蒂母亲有段很短的可操作机会</blockquote>
+那样也算的话可用角色是8个，还有一位雷斯
+
+*****
+
+####  猫将军  
+##### 69#       发表于 2026-5-1 01:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69560925&amp;ptid=2280008" target="_blank">shinra-01 发表于 2026-5-1 00:42</a>
+这ps级的画面要只是hd的话那还不得满屏马赛克，bn是认真的吗</blockquote>
+学隔壁se啊，加个滤镜，或者模拟器高清！fft和北欧女神传1不就这样搞的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
