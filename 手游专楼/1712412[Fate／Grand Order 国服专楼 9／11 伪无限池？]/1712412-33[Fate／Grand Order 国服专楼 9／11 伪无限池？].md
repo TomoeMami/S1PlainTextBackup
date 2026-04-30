@@ -59,3 +59,11 @@
 
 两个号都搞掂了，大号用了两个灵脉石，一个是麻婆战，以为打死麻婆就可以了，谁知道要连两个小怪都要打死，翻车了。第二个当然是最后一战。小号反而没用灵脉石，只是用了一划令咒给马修回血。因为小号吸取了大号的教训，上了宅姬，宅姬的宝具+1技能，加拉哈德打宅姬就是0，比马修还肉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，而且还给马修高额的爆伤
 
+
+*****
+
+####  khxooo  
+##### 47746#       发表于 2026-5-1 02:45
+
+硬币本也搞掂了，真是服了LSX，拿个硬币都这么麻烦，草<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
