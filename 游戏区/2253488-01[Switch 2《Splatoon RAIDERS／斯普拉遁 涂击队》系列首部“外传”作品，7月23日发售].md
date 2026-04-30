@@ -40,3 +40,13 @@
 
 喷3打工就是因为武器随机到不会玩的拖后腿感觉挫败感大，以及组队打工没啥收益只能线上抽队友挺雷的，把单人模式打通了就没再开过游戏了
 
+
+*****
+
+####  天堂大法  
+##### 115#       发表于 2026-4-30 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69558313&amp;ptid=2253488" target="_blank">希德尼娅 发表于 2026-4-30 15:14</a>
+求问n现在ns2的死喷乱涂有好的加速器吗，能稳定游戏吗？最早ns1上就是因为加速器不行所以没玩下去。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">UU一直可以啊 喷3之前在NS打了两百多个小时 NS2又打了40小时 用的UU一直很稳
+
