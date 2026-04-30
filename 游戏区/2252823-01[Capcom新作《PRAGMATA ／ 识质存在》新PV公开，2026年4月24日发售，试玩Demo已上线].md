@@ -5326,3 +5326,13 @@ https://x.com/yuu_dai_1998/status/2048328944827654440</blockquote>
 
 结合多次跳票，估计做完纽约发现太花时间太花钱，后面越做越省，最后直接放弃治疗了。
 
+
+*****
+
+####  WGTCorp  
+##### 862#       发表于 2026-4-30 18:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69559138&amp;ptid=2252823" target="_blank">Gwyndolin 发表于 2026-4-30 18:10</a>
+玩的时候没注意，通关后重看别人录播才发现：第二章的制作规格跟其他章差别也太大了吧大量现代城市素材，酒 ...</blockquote>
+宝石结晶虫后面也有吧，我印象里还见过两三次，不过好像就第二章那个位置必刷
+
