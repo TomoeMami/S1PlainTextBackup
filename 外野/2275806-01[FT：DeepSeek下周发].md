@@ -14174,3 +14174,16 @@ thinking怎么关</blockquote>
 —— 来自 Xiaomi 2112123AC, Android 13, 鹅球 v3.5.99</blockquote>
 绷，结果把妮娅认成芙莉莲了啊<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ArthurDent  
+##### 1298#       发表于 2026-4-30 09:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69556376&amp;ptid=2275806" target="_blank">ymm1030 发表于 2026-4-30 09:12</a>
+绷，结果把妮娅认成芙莉莲了啊</blockquote>
+是阿光<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+当然我传的特征不是那么明显，但自己都说了黄头发还认成芙就很
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
