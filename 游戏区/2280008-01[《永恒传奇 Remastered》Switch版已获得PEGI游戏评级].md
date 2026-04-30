@@ -379,3 +379,11 @@ toe我很喜欢啦 也事感觉这系列最有野心的一部 不过万南那德
 这部的剧情在传说里面算什么水平？</blockquote>
 差不多就到你能想到的最典型的日幻模版拯救世界展开 适合复古怀旧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三级怪兽  
+##### 45#       发表于 2026-4-30 14:51
+
+还是希望初代能复刻一下，还是想玩初代<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
