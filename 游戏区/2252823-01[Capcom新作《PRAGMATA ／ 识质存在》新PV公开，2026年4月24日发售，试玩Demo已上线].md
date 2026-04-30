@@ -5375,3 +5375,14 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 
 豪华版送的枪皮在哪换
 
+
+*****
+
+####  RαPβiT  
+##### 867#       发表于 2026-4-30 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69560307&amp;ptid=2252823" target="_blank">crosz1985 发表于 2026-4-30 22:25</a>
+
+豪华版送的枪皮在哪换</blockquote>
+每次家里出门装备配置那里换，但是只有小手枪的皮没有卡宾枪的，搞得我压根没换过
+

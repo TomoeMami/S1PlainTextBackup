@@ -615,3 +615,13 @@ TOE一出就是PS版，基礎已經固定起來
 
 在大屏幕能全屏吗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  笨笨塞  
+##### 63#       发表于 2026-4-30 23:03
+
+<blockquote>司马千晶 发表于 2026-4-30 16:25
+剧情别太期待，人设也比较老旧，e跟d这俩主角一个种地一个放羊跟现在这些元素堆砌花里胡哨的男主角比不了。 ...</blockquote>
+还有上界下来的大仙女啊，怎么就比不了？
+
