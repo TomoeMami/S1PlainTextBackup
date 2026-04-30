@@ -637,3 +637,14 @@ E现在看在系列元祖PDE三作里算非常尴尬的一作了
 P在不断的复刻过程中逐渐升级角色/画面和系统表现，至10年 ...</blockquote>
 TOE可用角色是7个
 
+
+*****
+
+####  qiyu1234  
+##### 65#         楼主| 发表于 2026-4-30 23:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69560724&amp;ptid=2280008" target="_blank">plusfive 发表于 2026-4-30 23:39</a>
+
+TOE可用角色是7个</blockquote>
+美乐蒂母亲有段很短的可操作机会
+
