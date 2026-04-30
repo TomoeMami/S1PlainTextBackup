@@ -2316,3 +2316,47 @@ switch.txt
 不如把那个转换脚本发一下 尝试做个逆向的操作</blockquote>
 不太行，pc多了一层针对data的验证，似乎是sha1再转成base64的26位数字。根据github上修改存档的脚本改了还是不能被识别，完全不知道怎么办了，只有给那边提了个issue
 
+
+*****
+
+####  bad_alloc  
+##### 217#       发表于 2026-4-30 22:12
+
+ 本帖最后由 bad_alloc 于 2026-4-30 22:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69558576&amp;ptid=2279483" target="_blank">Deco 发表于 2026-4-30 16:03</a>
+
+请问有办法将任天堂switch的存档转换成电脑可用的吗？
+
+我自己可以使用python脚本将电脑存档正常转换成switc ...</blockquote>
+试了下，把DATA字段单独拿出来放到一个json里面，然后求sha1的20字节校验和，转成base64就行了
+
+这是我的存档，校验和base64是S63uA+0f/4XapUP9/e0GegqaDHk=，hex形式是4badee03ed1fff85daa543fdfded067a0a9a0c79
+
+把data拿出来放到一个文件里面求sha1sum结果也是4badee03ed1fff85daa543fdfded067a0a9a0c79
+
+<img src="https://img.stage1st.com/forum/202604/30/221439mwwfii5ij5fiibfa.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (54.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-4-30 22:14 上传
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+SaveProfile0-test.json
+(274.57 KB, 下载次数: 0)
+
+2026-4-30 22:14 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+SaveProfile0.save
+(295.08 KB, 下载次数: 0)
+
+2026-4-30 22:15 上传
+
+点击文件名下载附件
+
