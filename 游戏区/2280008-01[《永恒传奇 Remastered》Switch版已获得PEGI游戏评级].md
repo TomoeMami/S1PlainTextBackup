@@ -607,3 +607,11 @@ TOE一出就是PS版，基礎已經固定起來
 
 我刚在STEAM DECK上搞了个PSP版打算重温一下，结果高清版消息就来了，等不及了快端上来吧
 
+
+*****
+
+####  godless2020  
+##### 62#       发表于 2026-4-30 22:33
+
+在大屏幕能全屏吗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
