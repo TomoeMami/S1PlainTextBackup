@@ -24,3 +24,32 @@
 神他吗一天打完，活动柱子有几次是一天打完的
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 20724#       发表于 2026-4-29 21:11
+
+都给你4000W血算下速度都知道吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 20725#       发表于 2026-4-30 00:55
+
+200柱了，不刷了。
+
+*****
+
+####  khxooo  
+##### 20726#       发表于 2026-4-30 01:03
+
+现在是2500W，估计三天时间差不多了。
+
+*****
+
+####  白金口袋  
+##### 20727#       发表于 2026-4-30 12:25
+
+勉强一半了，本来素材就没啥吸引力，希望别再加量了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
