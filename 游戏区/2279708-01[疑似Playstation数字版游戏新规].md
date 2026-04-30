@@ -1375,3 +1375,22 @@ That appears to be the case, with an SIE spokesperson telling GameSpot the follo
 
 https://www.gamespot.com/articles/playstation-users-report-new-online-license-checks-for-digital-games/1100-6539651/
 
+
+*****
+
+####  ybfelix  
+##### 125#       发表于 2026-4-30 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69556102&amp;ptid=2279708" target="_blank">SergeGlenn 发表于 2026-4-30 08:08</a>
+GS要到的官方说法：
+
+That appears to be the case, with an SIE spokesperson telling GameSpot the follow ...</blockquote>
+大概意思好像说是因为有人买了之后立刻主机离线，找客服退款然后继续玩。所以现在是改成购买时发一个30天的临时证，30天出了退款期后，上线再给你改发一个永久签。不知道政策是有什么变化，是说现在同一个用户也可以反复退款了吗
+
+*****
+
+####  我的爱是订书机  
+##### 126#       发表于 2026-4-30 11:48
+
+英语客服权限高点退款政策也松些，说语言版本买错了之类的理由就能退
+
