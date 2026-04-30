@@ -14203,3 +14203,16 @@ thinking怎么关</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">是啊，我灰度呢
 
+
+*****
+
+####  御姐贾  
+##### 1301#       发表于 2026-4-30 13:19
+
+ 本帖最后由 御姐贾 于 2026-4-30 13:21 编辑 
+
+我朋友灰度到了，让D指导给他搭配今日穿搭，要么一身黑，要么红配绿，一顿彩虹屁，乐死我了
+我都不知道他个大老爷们啥时候还买了个亮紫的镜框
+<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+ 来自 [S1Fun](https://s1fun.koalcat.com)
+
