@@ -691,3 +691,25 @@ TOE可用角色是7个</blockquote>
 
 原汁原味复刻吗？
 
+
+*****
+
+####  eilot  
+##### 71#       发表于 2026-5-1 01:18
+
+ 本帖最后由 eilot 于 2026-5-1 01:22 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69560990&amp;ptid=2280008" target="_blank">猫将军 发表于 2026-5-1 01:04</a>
+
+学隔壁se啊，加个滤镜，或者模拟器高清！fft和北欧女神传1不就这样搞的</blockquote>
+根據之前傳說的冷飯的做法
+
+新增/提早開放GRADE SHOP，可以在「遊戲中」就直接購買及開啟功能
+
+TOP的兩個PSP版都在通關後新增了grade shop
+
+不過還是想元老騎士及媽媽能否克隆人身份使用
+
+媽媽的完成度不算太高，應該說招式不多
+
+但元老騎士的招式非常好用，就是沒秘奧(劇中他只學了第一招次元壁，但只用在劇情)
+

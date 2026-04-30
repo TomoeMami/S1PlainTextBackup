@@ -2384,3 +2384,11 @@ SaveProfile0.save
 这是我的存 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer"> 打开存档看了下，字段还挺好理解的。金币数,宝石的等级、封印在存档里都能看到，应该能简单地改了后导入
 
+
+*****
+
+####  phoenixxj  
+##### 220#       发表于 2026-5-1 01:19
+
+数值的增长远超怪物的成长。前3个小时还在和小怪打几个回合。后面打通任督二脉后就从万能卡无限连快速进化到宝石控制的乾坤一掷，万能流的数值和这玩意比还是太没数值了。
+
