@@ -2251,3 +2251,26 @@ syl : 猫+贪婪面具 ...</blockquote>
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Deco  
+##### 213#       发表于 2026-4-30 16:03
+
+请问有办法将任天堂switch的存档转换成电脑可用的吗？
+
+我自己可以使用python脚本将电脑存档正常转换成switch可用的存档，但是无法从switch再次转换到电脑上，似乎是checksum相关的错误，和ai讨论了半天都无法让电脑正常识别存档
+
+github中有人提供了checksum的算法，但让ai加在脚本里面后还是不能识别
+
+我在附件中提供了一个正常的switch存档，非常想在主机和电脑之间同步进度
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/text.gif" referrerpolicy="no-referrer">
+
+switch.txt
+
+2026-4-30 16:01 上传
+点击文件名下载附件
+
+274.04 KB, 下载次数: 0
+

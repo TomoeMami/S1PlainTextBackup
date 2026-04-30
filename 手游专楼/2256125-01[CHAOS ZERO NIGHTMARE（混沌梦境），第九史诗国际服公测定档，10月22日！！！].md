@@ -41,3 +41,18 @@ A了一阵看不懂了
 
 把粉毛天使和御剑天使编队下本，不知道哪来那么高伤害就A过去了
 
+
+*****
+
+####  暗口崩子  
+##### 731#       发表于 2026-4-30 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69558497&amp;ptid=2256125" target="_blank">Chia 发表于 2026-4-30 15:50</a>
+
+A了一阵看不懂了
+
+把粉毛天使和御剑天使编队下本，不知道哪来那么高伤害就A过去了 ...</blockquote>
+你把粉毛开了让飞剑奶牛单走也是不知道哪来的高伤害就A过去了
+
+经常压根没看手上什么牌，只看到一堆蓝线随便甩一张BOSS就自己没了
+
