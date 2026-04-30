@@ -2360,3 +2360,27 @@ SaveProfile0.save
 
 点击文件名下载附件
 
+
+*****
+
+####  Deco  
+##### 218#       发表于 2026-4-30 22:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69560237&amp;ptid=2279483" target="_blank">bad_alloc 发表于 2026-4-30 22:12</a>
+试了下，把DATA字段单独拿出来放到一个json里面，然后求sha1的20字节校验和，转成base64就行了
+
+这是我的存 ...</blockquote>
+感谢！我来试试
+
+*****
+
+####  yikaa  
+##### 219#       发表于 2026-4-30 22:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69560237&amp;ptid=2279483" target="_blank">bad_alloc 发表于 2026-4-30 22:12</a>
+
+试了下，把DATA字段单独拿出来放到一个json里面，然后求sha1的20字节校验和，转成base64就行了
+
+这是我的存 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer"> 打开存档看了下，字段还挺好理解的。金币数,宝石的等级、封印在存档里都能看到，应该能简单地改了后导入
+
