@@ -1361,3 +1361,17 @@ ps本来下载了不管玩没玩过都不能退款 还搞这个30天干嘛</bloc
 
 玩手游的骂电脑和主机，玩电脑的骂主机，反正得额外花钱买的主机永远不缺人骂
 
+
+*****
+
+####  SergeGlenn  
+##### 124#       发表于 2026-4-30 08:08
+
+GS要到的官方说法：
+
+That appears to be the case, with an SIE spokesperson telling GameSpot the following:
+
+"Players can continue to access and play their purchased games as usual. A one-time online check is required to confirm the game's license, after which no further check-ins are required."
+
+https://www.gamespot.com/articles/playstation-users-report-new-online-license-checks-for-digital-games/1100-6539651/
+
