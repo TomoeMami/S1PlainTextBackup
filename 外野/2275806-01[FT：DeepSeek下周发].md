@@ -14365,3 +14365,11 @@ Cherry Studio和Chatbox不都有鸿蒙版本吗，啊好像只有电脑的鸿蒙
 
 —— 来自 HUAWEI VYG-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  madnesshare  
+##### 1316#       发表于 2026-5-1 13:11
+
+目前只有视觉，没有音频的吗？
+
