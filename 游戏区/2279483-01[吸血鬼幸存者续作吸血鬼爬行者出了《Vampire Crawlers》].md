@@ -2500,3 +2500,13 @@ SaveProfile0.save
 
 不过往好了想，这个最大3人组队也许以后会有说法？比如某几个人组队有特殊功能之类的？像是如果还能搞一次恶魔城联动的话，很多奇妙的组合能出现吧（虽然并不想再来一次，感动一次就够了，再消费会变味<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  helix  
+##### 231#       发表于 2026-5-1 15:58
+
+我觉得应该去搞杀戮尖塔联动dlc<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
