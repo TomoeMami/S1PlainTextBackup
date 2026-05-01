@@ -14342,3 +14342,26 @@ ds的技术路径是更高效的进行推理，这既能支撑自家的模型使
 
 鸿蒙原生有类似cherry Studio的用API的App吗
 
+
+*****
+
+####  holylight2020  
+##### 1314#       发表于 2026-5-1 13:02
+
+我现在工作流都是opus4.7/4.6配合各种skill写计划，然后和v4互相交流定版。opus写出实施计划后交给v4pro执行，effort开到最大，爽蹬
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Tomek  
+##### 1315#       发表于 2026-5-1 13:06
+
+ 本帖最后由 Tomek 于 2026-5-1 13:07 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69562444&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-5-1 12:35</a>
+鸿蒙原生有类似cherry Studio的用API的App吗</blockquote>
+Cherry Studio和Chatbox不都有鸿蒙版本吗，啊好像只有电脑的鸿蒙6有这俩
+
+—— 来自 HUAWEI VYG-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
