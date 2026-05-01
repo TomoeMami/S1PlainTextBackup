@@ -268,3 +268,70 @@
 以后可以叫雪辙了，不用叫狂信了</blockquote>
 不存在的第20代
 
+
+*****
+
+####  Jamaisvu  
+##### 20747#       发表于 2026-5-1 11:46
+
+ 本帖最后由 Jamaisvu 于 2026-5-1 11:54 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69562050&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2026-5-1 11:18</a>
+
+黑狮子是狮心王的老婆吧</blockquote>
+FGO X FSF联动 真tvcm 伪典共鳴幻想 スノーフィールド：[https://www.bilibili.com/video/BV192RKB2Eo3](https://www.bilibili.com/video/BV192RKB2Eo3)
+
+<img src="https://img.stage1st.com/forum/202605/01/114636uc59tmm516hm51hh.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4ff10b90f4c2f218aacb42d6338ef6cd_4ff12653a4ea2193128c0110c79fac52160097.png@1036.webp</strong> (183.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-1 11:46 上传
+
+<img src="https://img.stage1st.com/forum/202605/01/114713u9b9vby3en51eoxo.jpg" referrerpolicy="no-referrer">
+
+<strong>6a04733502ebf1e28216ec01fdc02e56_09966859252dd42a5e2285b6453b5bb5c8eab8c5_tbpica.jpg</strong> (180.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-1 11:47 上传
+
+肯定是动画里这个背影，虽然脸像女性，不过游戏里CV是男的，感觉更可能是理查的弟弟约翰？
+
+*****
+
+####  jackyhuang  
+##### 20748#       发表于 2026-5-1 18:44
+
+FSF小说没看，这个伪圣杯战争的成因小说里说过吗
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Jamaisvu  
+##### 20749#       发表于 2026-5-1 19:54
+
+ 本帖最后由 Jamaisvu 于 2026-5-1 20:16 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69563764&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2026-5-1 18:44</a>
+
+FSF小说没看，这个伪圣杯战争的成因小说里说过吗
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99 ...</blockquote>
+漂亮国想利用圣杯搞事（MAGA），就安排真杀御主混进魔术协会盗取冬木大圣杯解体后的碎片，然后在美国复刻圣杯战争。
+
+因为是水土不服的山寨货，量级不够，所以只能先伪（6人赛，补足灵脉）后真（7人赛，填充圣杯）。
+
+原定参赛选手大部分是事前安排的同伙，结果可能是天意抑止力发作，数名御主死于非命或失去资格，越来越多的计划外人物参与到事件中，战况愈发不可收拾...
+
+*****
+
+####  jackyhuang  
+##### 20750#       发表于 2026-5-1 21:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69564001&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2026-5-1 19:54</a>
+漂亮国想利用圣杯搞事（MAGA），就安排真杀御主混进魔术协会盗取冬木大圣杯解体后的碎片，然后在美国复刻 ...</blockquote>
+活动剧情里说的内容在小说里也一样提过吗
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
