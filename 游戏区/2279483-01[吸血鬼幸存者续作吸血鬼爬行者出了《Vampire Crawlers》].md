@@ -2510,3 +2510,14 @@ SaveProfile0.save
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  叉子  
+##### 232#       发表于 2026-5-1 21:54
+
+加洛在哪？
+我都打到大教堂还没解锁加洛？
+
+—— 来自 HONOR BVL-AN16, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
