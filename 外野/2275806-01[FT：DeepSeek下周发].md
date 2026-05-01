@@ -14326,3 +14326,11 @@ ds的技术路径是更高效的进行推理，这既能支撑自家的模型使
 
 目前v4主要的问题是token使用量大带来的时间成本开支，感觉后续还是需要提高token利用效率。不过从之前发布的spciale来看他们可能也会选择通过更多token使用推进模型性能，目前海外大厂那些所谓的内部尖端模型大概率就是这么干的
 
+
+*****
+
+####  overflowal  
+##### 1312#       发表于 2026-5-1 10:59
+
+论文撤掉了，不知道为啥<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
