@@ -2392,3 +2392,30 @@ SaveProfile0.save
 
 数值的增长远超怪物的成长。前3个小时还在和小怪打几个回合。后面打通任督二脉后就从万能卡无限连快速进化到宝石控制的乾坤一掷，万能流的数值和这玩意比还是太没数值了。
 
+
+*****
+
+####  我就再氪一单  
+##### 221#       发表于 2026-5-1 09:52
+
+ 本帖最后由 我就再氪一单 于 2026-5-1 09:53 编辑 
+
+升级选卡界面为什么不给看现在卡组<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+明明箱子可以合上看完卡组再打开选奖励，升级界面就不行
+导致记错哪个多哪个少，拿了好几张本就溢出的卡，然后烧卡机又少<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+虽说局内成长确实随时间成长速度更快，多拿几张倒也无妨
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  我就再氪一单  
+##### 222#       发表于 2026-5-1 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69561025&amp;ptid=2279483" target="_blank">phoenixxj 发表于 2026-5-1 01:19</a>
+数值的增长远超怪物的成长。前3个小时还在和小怪打几个回合。后面打通任督二脉后就从万能卡无限连快速进化 ...</blockquote>
+附议，前天解锁弹弹姐，还在想初始2体力这么少。结果昨天加上那个保存体力的秘能已经动不动就8体力9体力随便打什么高费拿什么了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
