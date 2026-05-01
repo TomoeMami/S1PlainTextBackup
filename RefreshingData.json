@@ -6498,10 +6498,10 @@
     "update": false
   },
   "2144272": {
-    "totalreply": 2407,
+    "totalreply": 2408,
     "title": "[【PMM】真爱楼：进狱系福音，终极缝合魂——匹诺曹的谎言]",
     "newtitle": "[【PMM】真爱楼：红色沙漠]",
-    "lastedit": 1777598288,
+    "lastedit": 1777598528,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -9558,10 +9558,10 @@
     "update": false
   },
   "2196156": {
-    "totalreply": 1172,
+    "totalreply": 1173,
     "title": "[《魔法门之英雄无敌：上古纪元》steam商店页面公开，预计2025年第二季度发售]",
     "newtitle": "[《魔法门之英雄无敌：上古纪元》抢先体验中，首发折扣价111.75元]",
-    "lastedit": 1777597697,
+    "lastedit": 1777598528,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15323,7 +15323,7 @@
     "newtitle": "[重玩DQ11S，感慨现如今JRPG后劲不足]",
     "lastedit": 1777339334,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2279587": {
@@ -16322,7 +16322,7 @@
     "newtitle": "[老三国新花絮流出]",
     "lastedit": 1777339232,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2279867": {
@@ -17082,10 +17082,10 @@
     "update": false
   },
   "2280070": {
-    "totalreply": 59,
+    "totalreply": 63,
     "title": "[最近两次被不相识的人在路上拦下请求援助]",
     "newtitle": "[最近两次被不相识的人在路上拦下请求援助]",
-    "lastedit": 1777598055,
+    "lastedit": 1777598650,
     "category": "外野",
     "active": true,
     "update": false
@@ -17109,10 +17109,10 @@
     "update": false
   },
   "2280081": {
-    "totalreply": 55,
+    "totalreply": 57,
     "title": "[藏了那么多年的报告，最后还是外人给捅出来的]",
     "newtitle": "[藏了那么多年的报告，最后还是外人给捅出来的]",
-    "lastedit": 1777598289,
+    "lastedit": 1777598652,
     "category": "外野",
     "active": true,
     "update": false
@@ -17123,6 +17123,15 @@
     "newtitle": "[大小姐才不会玩格斗游戏 动画化]",
     "lastedit": 1777597333,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2254201": {
+    "totalreply": 224,
+    "title": "[新开一个食贫道专楼讨论一下吧]",
+    "newtitle": "[新开一个食贫道专楼讨论一下吧]",
+    "lastedit": 1777598660,
+    "category": "外野",
     "active": true,
     "update": false
   }
