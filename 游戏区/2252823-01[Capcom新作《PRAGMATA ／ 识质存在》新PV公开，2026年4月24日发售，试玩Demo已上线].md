@@ -5526,3 +5526,17 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 最终boss有侵入雷弹了反而比较简单，感觉这游戏应该是支持0成狂月的。
 我自己模拟仓最难的应该是激光一直烧那个，时间给太紧了，手柄很难控制，打了二三十次差点腱鞘炎<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  何然  
+##### 882#       发表于 2026-5-1 20:47
+
+二周目跑客厅躺着沙发带着女儿玩
+
+进休息区就抢我手柄要玩女儿
+
+打个boss游戏里面在喊游戏外面也在喊，压力是拉满了不过体验感也是拉满了
+
+啥时候更新个双人合作模式就满足了<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
