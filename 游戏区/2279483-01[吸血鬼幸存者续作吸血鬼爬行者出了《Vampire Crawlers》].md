@@ -2490,3 +2490,13 @@ SaveProfile0.save
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nagamasa  
+##### 230#       发表于 2026-5-1 15:10
+
+死神+加洛+万能宝石+金币伤害宝石太无脑了，这下问题变成了就算有更新，不加官方限制或者自主规则会很微妙
+
+不过往好了想，这个最大3人组队也许以后会有说法？比如某几个人组队有特殊功能之类的？像是如果还能搞一次恶魔城联动的话，很多奇妙的组合能出现吧（虽然并不想再来一次，感动一次就够了，再消费会变味<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">）
+
