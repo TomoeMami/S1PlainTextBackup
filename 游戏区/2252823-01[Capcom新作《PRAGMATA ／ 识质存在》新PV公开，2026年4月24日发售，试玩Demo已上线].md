@@ -5516,3 +5516,13 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 
 两个月的时间见到三种储君，塔2一个街霸6一个这里一个
 
+
+*****
+
+####  x分裂者  
+##### 881#       发表于 2026-5-1 19:19
+
+打完狂月了，可能是我之前没通未知信号的时候就建狂月档的原因，二三章的boss用手枪点死的，重开估计得有二十次往上<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+最终boss有侵入雷弹了反而比较简单，感觉这游戏应该是支持0成狂月的。
+我自己模拟仓最难的应该是激光一直烧那个，时间给太紧了，手柄很难控制，打了二三十次差点腱鞘炎<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
