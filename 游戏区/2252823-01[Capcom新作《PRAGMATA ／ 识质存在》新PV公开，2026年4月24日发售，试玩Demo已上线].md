@@ -5490,3 +5490,11 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 
 而且发现有一段说为什么光脚的台词，倒是专门说了“充一次电能用很久很久”<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡拉德利姆  
+##### 878#       发表于 2026-5-1 12:33
+
+洗白好办啊，现在这个八号反正已经身死魂灭了，但是数据库里留一个博士死前的八号备份就行，坏事都是正篇八号干的，和备份八号不相干<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

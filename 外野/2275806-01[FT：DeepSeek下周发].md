@@ -14334,3 +14334,11 @@ ds的技术路径是更高效的进行推理，这既能支撑自家的模型使
 
 论文撤掉了，不知道为啥<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rowen233  
+##### 1313#       发表于 2026-5-1 12:35
+
+鸿蒙原生有类似cherry Studio的用API的App吗
+
