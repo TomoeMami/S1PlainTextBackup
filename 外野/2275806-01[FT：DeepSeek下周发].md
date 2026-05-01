@@ -14383,3 +14383,14 @@ Cherry Studio和Chatbox不都有鸿蒙版本吗，啊好像只有电脑的鸿蒙
 目前只有视觉，没有音频的吗？</blockquote>
 音频现在做进去性价比比较低，可能有资源了才会做    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  ycjiang1337  
+##### 1318#       发表于 2026-5-1 14:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69561959&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-5-1 10:59</a>
+
+论文撤掉了，不知道为啥    Re:Source</blockquote>
+一般这种都是因为发现有错误需要修改
+
