@@ -2419,3 +2419,15 @@ SaveProfile0.save
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Deco  
+##### 223#       发表于 2026-5-1 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69561690&amp;ptid=2279483" target="_blank">我就再氪一单 发表于 2026-5-1 09:52</a>
+升级选卡界面为什么不给看现在卡组
+明明箱子可以合上看完卡组再打开选奖励，升级界面就不行
+导致记错哪个多 ...</blockquote>
+删卡太简单了，一回合出4次卡就碎了，冒出来的死神没几滴血
+
