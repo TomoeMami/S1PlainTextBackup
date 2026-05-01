@@ -544,3 +544,42 @@ vspo之前病休大半年的都有
 
 我不太明白官方为什么要这么直接的处理这种重？说不定爆料已经在路上了无奈的临时决定。
 
+
+*****
+
+####  poipanchao  
+##### 1879#       发表于 2026-4-30 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69557491&amp;ptid=2171972" target="_blank">古战场亡魂 发表于 2026-4-30 12:21</a>
+😅病假和处分是两码事，现在公布一个小时没到已经和之前那位不伦退圈的联系上了。
+
+我不太明白官方为什么 ...</blockquote>
+前几天公布的全社参加的猫狗活动时应该还没这事，现在通告感觉是临时爆发，不得不为之
+外部压力是最合理的解释
+
+*****
+
+####  格林卡罗尔  
+##### 1880#       发表于 2026-4-30 17:40
+
+有点惊悚的，周年纪念回直接给干没了。日本那边已经认为不毕业已经是从轻处理了
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  poipanchao  
+##### 1881#       发表于 2026-4-30 18:47
+
+beni、sumi那次1个月，noah那次2周
+
+这直接2个月确实是应该怀疑严重程度了
+
+*****
+
+####  noHentai  
+##### 1882#       发表于 2026-5-1 17:00
+
+叶山4月爬塔382.9小时荣登fami通<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
