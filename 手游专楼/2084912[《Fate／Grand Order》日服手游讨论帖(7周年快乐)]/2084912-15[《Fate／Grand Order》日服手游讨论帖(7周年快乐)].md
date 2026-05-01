@@ -236,3 +236,35 @@
 
 2026-5-1 01:31 上传
 
+
+*****
+
+####  格林卡罗尔  
+##### 20743#       发表于 2026-5-1 04:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在是什么都有可能发生的情况，考虑到这次柱子战只有90+++，再来的可能性还是挺高的。我比较关心黑狮子西格玛什么时候落地
+
+*****
+
+####  exiaexa  
+##### 20744#       发表于 2026-5-1 09:57
+
+笑死，你这联动怎么还有二阶段的
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 20745#       发表于 2026-5-1 11:18
+
+黑狮子是狮心王的老婆吧
+
+*****
+
+####  gpx234mqx  
+##### 20746#       发表于 2026-5-1 11:21
+
+<blockquote>洛克萨斯 发表于 2026-5-1 00:42
+以后可以叫雪辙了，不用叫狂信了</blockquote>
+不存在的第20代
+
