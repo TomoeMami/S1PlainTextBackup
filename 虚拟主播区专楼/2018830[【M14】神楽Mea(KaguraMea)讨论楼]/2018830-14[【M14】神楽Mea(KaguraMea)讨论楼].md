@@ -839,3 +839,11 @@ Yangi桑第一次遇到状况这么差的。以上，仅作为书信敬上。理
 
 这活动第一天还安排个米奇。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古战场亡魂  
+##### 20569#       发表于 2026-5-1 16:24
+
+😅安排他也没啥问题，mea霓虹还是他教的，虽然确实挺抽象的，但他确实是赋能哥。
+
