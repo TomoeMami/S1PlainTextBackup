@@ -121,3 +121,11 @@ emmm，可能2D成本和3D成本不可同年而语吧，只能靠卖新作炒人
 
 新作能多点人玩么，这作现在已经完全排不到人了<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  荆棘花冠  
+##### 554#       发表于 2026-5-2 20:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都加黑LEN了，那白len能不能顺带一下
+
