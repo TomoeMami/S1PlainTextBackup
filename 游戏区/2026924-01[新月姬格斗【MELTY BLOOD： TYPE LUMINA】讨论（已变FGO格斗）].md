@@ -50,3 +50,16 @@ MELTY BLOOD: TYPE LUMINAがリニューアル
 那前提还是要有里线起码都要月姬R里线比mb早1，2个月发售
 那不就还是要等今年内宣里线的消息
 
+
+*****
+
+####  黑上シグマ  
+##### 547#       发表于 2026-5-2 12:37
+
+<blockquote>引用第545楼岸浪白野于2026-05-02 12:27发表的  :
+
+本帖最后由 岸浪白野 于 2026-5-2 12:31 编辑 黑上シグマ 发表于 2026-5-2 ......</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别的新角色可以从废狗拉嘛（不对
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
