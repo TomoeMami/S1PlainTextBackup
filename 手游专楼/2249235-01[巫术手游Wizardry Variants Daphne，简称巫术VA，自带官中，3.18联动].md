@@ -278,3 +278,11 @@ sr妹子是大奖，这ssr的妖精什么烂货，装备还要专门的，目前
 
 妖精装备还难搞，目前抽了2只，不打算氪金了。先放置拉等级，暂时想不到怎么运用
 
+
+*****
+
+####  UnknownRei  
+##### 799#       发表于 2026-5-2 11:40
+
+摆烂五月，月卡都懒得充了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
