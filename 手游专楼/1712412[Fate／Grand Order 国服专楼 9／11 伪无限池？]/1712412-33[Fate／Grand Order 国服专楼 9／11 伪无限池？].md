@@ -67,3 +67,18 @@
 
 硬币本也搞掂了，真是服了LSX，拿个硬币都这么麻烦，草<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qucqee  
+##### 47747#       发表于 2026-5-2 08:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69559637&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2026-4-30 20:20</a>
+
+全程玛修锁前排，真的是吐了，是得打到最后才转职帕拉丁吧......20多节呢..... ...</blockquote>
+其实还行 大部分水伊吹带个c呆冲过去就行了
+
+就是几个单体关要换仇单
+
+打完就是马头大人了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
