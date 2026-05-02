@@ -5540,3 +5540,11 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 
 啥时候更新个双人合作模式就满足了<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 883#       发表于 2026-5-2 23:40
+
+狂月通关了，存档时间显示12小时。之前普通难度是18，都是全收集加30模拟训练全王冠，这游戏真好玩，爽感十足又不会很简单<img src="https://static.stage1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
