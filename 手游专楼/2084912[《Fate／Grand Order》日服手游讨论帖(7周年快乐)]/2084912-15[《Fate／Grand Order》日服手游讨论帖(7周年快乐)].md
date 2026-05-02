@@ -603,3 +603,51 @@ buff量蛮可观的，也能当拐，作为新时代的五星算是合格。
 
 三技能这个伪神转生感觉缝了什么东西？
 
+
+*****
+
+####  岸浪白野  
+##### 20764#       发表于 2026-5-2 17:15
+
+都直接说3破又是1米85高了，就是在那叠加<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+身長／体重：185cm・70kg（霊基第一・霊基第三）
+　　　　　　165cm・53kg（霊基第二）
+出典：史実
+地域：欧州
+属性：中立・悪　　副属性：人　　性別：男性
+通称『欠地王』。獅子心王の弟であり、様々な物語でロビンフッドの敵対者になりがち。
+
+*****
+
+####  Jamaisvu  
+##### 20765#       发表于 2026-5-2 17:23
+
+<blockquote>岸浪白野 发表于 2026-5-2 17:15
+都直接说3破又是1米85高了，就是在那叠加
+
+身長／体重：185cm・70kg（霊基第一・霊基第三）
+
+　　　　　　165 ...</blockquote>
+三破估计就是黑狮子摘头盔，一三成男，灵二少年，相当于幼闪/幼帝和自己本体做成一张卡...
+
+我对美少年长成糙汉子没什么兴趣，希望成年约翰的造型是为了重要的剧情伏笔而藏的吧......算了，不抱期望。
+
+*****
+
+####  khxooo  
+##### 20766#       发表于 2026-5-2 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69567284&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2026-5-2 17:06</a>
+
+虽然大家都看过了，不过还是搬一下已经透底了的卡面和数据吧：
+
+灵基三四锁剧情，等等看有没有大的吧。</blockquote>
+卡面那黑柯基真不是按照哈士奇来画的吗？<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 20767#       发表于 2026-5-2 18:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">没想到9096年的第2张来的辣么快
+
