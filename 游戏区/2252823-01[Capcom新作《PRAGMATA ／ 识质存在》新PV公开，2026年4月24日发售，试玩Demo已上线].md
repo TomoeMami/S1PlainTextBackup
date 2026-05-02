@@ -5576,3 +5576,14 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 然后真相大白的时候就剩一个感觉，闹麻了
 世界是一个巨大的草台班子
 
+
+*****
+
+####  otakun  
+##### 887#       发表于 2026-5-3 06:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69568776&amp;ptid=2252823" target="_blank">夕暮至破晓 发表于 2026-5-3 00:33</a>
+玩到中期我就在想，看各种文件这公司形象还挺正面的啊，研究人员也都很理智，好奇到底怎么翻车成这样的
+然 ...</blockquote>
+我觉得就算黛西没事，博士没憎恨公司和地球，摇篮基地迟早都会因为黑丝完蛋<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，IDUS控制机器人也只是加快了清扫人类。
+
