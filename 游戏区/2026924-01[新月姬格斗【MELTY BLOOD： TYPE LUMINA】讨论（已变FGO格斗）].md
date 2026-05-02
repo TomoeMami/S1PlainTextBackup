@@ -113,3 +113,11 @@ emmm，可能2D成本和3D成本不可同年而语吧，只能靠卖新作炒人
 
 出新作而不是出DLC，往好了想你可以把它想成GBVSR，往坏了想你可以把它想成DOA6LR，总之能出就还好，但未必会比MBAC到MBAACC的步子大
 
+
+*****
+
+####  红魔馆的糖  
+##### 553#       发表于 2026-5-2 20:19
+
+新作能多点人玩么，这作现在已经完全排不到人了<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
