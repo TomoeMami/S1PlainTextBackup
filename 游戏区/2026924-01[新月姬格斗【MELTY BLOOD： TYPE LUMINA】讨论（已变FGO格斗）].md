@@ -63,3 +63,25 @@ MELTY BLOOD: TYPE LUMINAがリニューアル
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  Jamaisvu  
+##### 548#       发表于 2026-5-2 13:29
+
+这个新作也学老版本RA、AC、AA、AACC那一套版本更新商法吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现今其他FTG都以季票DLC形式更新时，MB直接搞新作迭代...
+
+（看向夜下降生和BB）
+
+emmm，可能2D成本和3D成本不可同年而语吧，只能靠卖新作炒人气才能活下来（其实有些DLC能卖得比本体贵了）...
+
+反正出新作玩就是了，期待能比MBTL的观感更上一层楼<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  医生狼多  
+##### 549#       发表于 2026-5-2 13:35
+
+有没有可能意味着里线差不多了(
+
