@@ -10593,10 +10593,10 @@
     "update": false
   },
   "2210855": {
-    "totalreply": 12758,
+    "totalreply": 12765,
     "title": "[中二电波台真爱楼 2.0]",
     "newtitle": "[中二电波台真爱楼 2.0]",
-    "lastedit": 1777752127,
+    "lastedit": 1777764728,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12695,7 +12695,7 @@
     "newtitle": "[2026中国航天专楼]",
     "lastedit": 1777505408,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2272652": {
@@ -13128,7 +13128,7 @@
     "lastedit": 1777738320,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2277537": {
     "totalreply": 131,
@@ -16776,10 +16776,10 @@
     "update": false
   },
   "2280092": {
-    "totalreply": 311,
+    "totalreply": 312,
     "title": "[中东砖楼 2026年5月版]",
     "newtitle": "[中东砖楼 2026年5月版]",
-    "lastedit": 1777752010,
+    "lastedit": 1777764848,
     "category": "外野",
     "active": true,
     "update": false
