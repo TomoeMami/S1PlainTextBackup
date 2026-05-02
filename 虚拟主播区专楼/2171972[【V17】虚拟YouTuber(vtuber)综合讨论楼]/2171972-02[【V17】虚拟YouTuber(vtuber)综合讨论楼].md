@@ -583,3 +583,14 @@ beni、sumi那次1个月，noah那次2周
 
 叶山4月爬塔382.9小时荣登fami通<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾特娜  
+##### 1883#       发表于 2026-5-2 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69566297&amp;ptid=2171972" target="_blank">古战场亡魂 发表于 2026-5-2 12:47</a>
+
+纪念直播周边都没了。小森那个5月30日不谈，千灯这个5月2号，很多东西早就弄好了吧。</blockquote>
+一般是现在只做了样品，然后按限时下订量生产。画之类的肯定提前一个月以上约好画师画吧。
+
