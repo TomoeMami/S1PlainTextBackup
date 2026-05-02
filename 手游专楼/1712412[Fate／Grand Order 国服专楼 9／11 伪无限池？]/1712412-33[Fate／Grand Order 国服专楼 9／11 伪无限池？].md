@@ -92,3 +92,16 @@
 
 不过这本好像不消耗令咒，不够NP就直接冲
 
+
+*****
+
+####  qucqee  
+##### 47749#       发表于 2026-5-2 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69566279&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2026-5-2 12:43</a>
+
+摩根本打了两遍，玛修的攻击宝具其实只有两回合，变身那回合要去掉的，三个摩根出来准备一炮收掉的时候发现 ...</blockquote>
+也没必要一次全解决任务 
+
+我第一次摩根和妖高一起冲死的 没分身~
+
