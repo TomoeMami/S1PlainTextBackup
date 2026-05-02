@@ -291,3 +291,16 @@
 
 盾虫这玩应原本就是废物设计，加了甲其实屁用没有，真要是像岩神里的盾虫一样一边举盾一边还能往前走才有威胁。
 
+
+*****
+
+####  6x6z6w  
+##### 7459#       发表于 2026-5-2 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69565151&amp;ptid=2170852" target="_blank">xinfengj 发表于 2026-5-2 03:45</a>
+
+雷霆也还好，带雷霆就是为了防近身小虫，盾虫一挨揍就站住不动了也近不了身，不管就是了。
+
+盾虫这玩应原本 ...</blockquote>
+盾虫为啥叫虫巢守卫啊，不就是守巢的吗，出了巢穴自然屁用没有<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">它们其实只要用身体堵住虫洞就已经算很麻烦的敌人了，但箭头就是喜欢把这虫子当成小兵差使
+
