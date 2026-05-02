@@ -14394,3 +14394,19 @@ Cherry Studio和Chatbox不都有鸿蒙版本吗，啊好像只有电脑的鸿蒙
 论文撤掉了，不知道为啥    Re:Source</blockquote>
 一般这种都是因为发现有错误需要修改
 
+
+*****
+
+####  有鱼  
+##### 1319#       发表于 2026-5-2 11:13
+
+cherry studio更新了对v4系列思考强度的适配
+
+<img src="https://img.stage1st.com/forum/202605/02/111344zudjesfsh1jd1ct0.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (33.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-2 11:13 上传
+
