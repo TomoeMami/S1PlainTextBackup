@@ -2542,3 +2542,13 @@ SaveProfile0.save
 
 小狗的花牌好爽，出一堆回血牌，一下叠十几层联级
 
+
+*****
+
+####  我就再氪一单  
+##### 235#       发表于 2026-5-2 13:16
+
+打完蓝死神紫死神没奖励的吗<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
