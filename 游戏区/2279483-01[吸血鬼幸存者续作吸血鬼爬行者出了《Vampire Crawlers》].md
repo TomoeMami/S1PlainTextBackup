@@ -2521,3 +2521,16 @@ SaveProfile0.save
 
 —— 来自 HONOR BVL-AN16, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  John_Stockton  
+##### 233#         楼主| 发表于 2026-5-2 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69564391&amp;ptid=2279483" target="_blank">叉子 发表于 2026-5-1 21:54</a>
+
+加洛在哪？
+
+我都打到大教堂还没解锁加洛？</blockquote>
+去解锁项里能看到条件，我没有特别留意，记得是通天塔打死他就加入了啊
+
