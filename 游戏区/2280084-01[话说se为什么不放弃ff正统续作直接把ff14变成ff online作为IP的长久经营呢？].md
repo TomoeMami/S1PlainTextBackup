@@ -384,3 +384,15 @@ se是什么同人小作坊吗非要把宝押在一个作品上
 
 楼主在发帖机里也是比较丢人的一档
 
+
+*****
+
+####  nozomitech  
+##### 42#       发表于 2026-5-2 07:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69565290&amp;ptid=2280084" target="_blank">空气先生 发表于 2026-5-2 00:39</a>
+楼主在发帖机里也是比较丢人的一档</blockquote>
+一眼钓鱼帖的水平还有一大堆人搁那一本正经的回复是最难绷的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
