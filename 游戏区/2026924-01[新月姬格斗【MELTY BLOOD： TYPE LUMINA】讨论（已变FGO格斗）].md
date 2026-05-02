@@ -35,3 +35,18 @@ MELTY BLOOD: TYPE LUMINAがリニューアル
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
 
+
+*****
+
+####  岸浪白野  
+##### 546#       发表于 2026-5-2 12:27
+
+ 本帖最后由 岸浪白野 于 2026-5-2 12:31 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69566186&amp;ptid=2026924" target="_blank">黑上シグマ 发表于 2026-5-2 12:18</a>
+格斗都要出新作了，个逼本篇里线还没憋出来
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+27年卖这个版本你想只有黑莲一个新角色能玩还是想有别的角色能玩<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+那前提还是要有里线起码都要月姬R里线比mb早1，2个月发售
+那不就还是要等今年内宣里线的消息
+
