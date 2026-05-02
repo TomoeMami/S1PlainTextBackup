@@ -528,3 +528,78 @@ buff量蛮可观的，也能当拐，作为新时代的五星算是合格。
 
 迦勒底搞事八仙
 
+
+*****
+
+####  岸浪白野  
+##### 20759#       发表于 2026-5-2 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69566115&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-5-2 12:04</a>
+为什么今天中午开剧情明天又是晚上开剧情？</blockquote>
+大概只是为了到今天17点是隔了1星期的更新卡池罢了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno1  
+##### 20760#       发表于 2026-5-2 14:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这卡太菜了 直接梭哈了卡池 毛都没出
+
+
+*****
+
+####  岸浪白野  
+##### 20761#       发表于 2026-5-2 15:31
+
+ 本帖最后由 岸浪白野 于 2026-5-2 15:32 编辑 
+
+这次不错了，其实还以为横飞姬这套和之前农神一样剧情整个别的服装立绘出来结果等到最后都没追加灵衣，有做卡图和有灵衣特性就不同了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/4e68235043dfc2c9b609a67a44e7a1f6/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 20762#       发表于 2026-5-2 17:04
+
+ 本帖最后由 岸浪白野 于 2026-5-2 17:05 编辑 
+
+黑狮子池子来了，经典3破等灵基解放本
+
+*****
+
+####  Jamaisvu  
+##### 20763#       发表于 2026-5-2 17:06
+
+虽然大家都看过了，不过还是搬一下已经透底了的卡面和数据吧：
+
+<img src="https://img.stage1st.com/forum/202605/02/170533ign7dj6djbgdndzk.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260502_170334.jpg</strong> (238.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-5-2 17:05 上传
+
+灵基三四锁剧情，等等看有没有大的吧。
+
+<img src="https://img.stage1st.com/forum/202605/02/170533treexayazeo1xz3l.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20260502_170350.png</strong> (392 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-5-2 17:05 上传
+
+<img src="https://img.stage1st.com/forum/202605/02/170533pkoxp3rdruscxdcw.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20260502_170424.png</strong> (267.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-5-2 17:05 上传
+
+三技能这个伪神转生感觉缝了什么东西？
+
