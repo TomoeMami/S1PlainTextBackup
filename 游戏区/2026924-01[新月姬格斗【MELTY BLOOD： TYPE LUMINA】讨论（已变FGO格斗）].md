@@ -129,3 +129,14 @@ emmm，可能2D成本和3D成本不可同年而语吧，只能靠卖新作炒人
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都加黑LEN了，那白len能不能顺带一下
 
+
+*****
+
+####  ナルバレック  
+##### 555#       发表于 2026-5-2 23:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69568080&amp;ptid=2026924" target="_blank">荆棘花冠 发表于 2026-5-2 20:57</a>
+
+都加黑LEN了，那白len能不能顺带一下</blockquote>
+老版差挺远的，黑莲是歌月角色，很早就登场了，白莲是MBAC青子搓出来了，两个角色隔了七年左右吧
+
