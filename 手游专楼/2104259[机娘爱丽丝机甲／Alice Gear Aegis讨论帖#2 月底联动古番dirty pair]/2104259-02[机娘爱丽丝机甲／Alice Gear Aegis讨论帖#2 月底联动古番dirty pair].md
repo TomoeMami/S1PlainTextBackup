@@ -24,3 +24,17 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">抽卡体验屌差，黄金周这个bu池子还氪了点结果毛都没有（
 
+
+*****
+
+####  冰风血羽  
+##### 1968#       发表于 2026-5-2 17:13
+
+ 本帖最后由 冰风血羽 于 2026-5-2 17:16 编辑 
+
+<img src="https://p.sda1.dev/32/f82d40b7b7f079236d992eb1aa5ed4fe/image.jpg" referrerpolicy="no-referrer">
+BU池不是不能氪金只能用送的抽吗，这种半成品要5月正式实装认真的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+乙莉妹感觉一般般还是混池，最近也没有什么新联动消息。
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
