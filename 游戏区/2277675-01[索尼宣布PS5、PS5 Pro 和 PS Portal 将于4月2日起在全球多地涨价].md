@@ -834,3 +834,13 @@ https://x.com/xMBGx/status/2038036768755208409
 
 而且大概率会和苹果一样初期就是高低配了，也就是机能没有区别，但是标配1T，高配2T这样，光驱版和数字版也是售价分开，市场划分更为细致
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 81#       发表于 2026-5-2 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69566015&amp;ptid=2277675" target="_blank">牙晓 发表于 2026-5-2 11:35</a>
+唯一根据就是索尼在PS6初期铺开销量的话，定价不会太离谱。。。不过游戏开发周期太久，我严重怀疑PS5官方 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">只要保留m2槽，这种容量高低配就没啥意义吧
+
