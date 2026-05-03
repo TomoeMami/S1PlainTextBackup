@@ -108,3 +108,75 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Toki_Ai  
+##### 1406#       发表于 2026-5-3 10:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这才是我想看的假面骑士啊，忍住啊高桥还有16集一定要忍住啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  iceddd  
+##### 1407#       发表于 2026-5-3 10:45
+
+<img src="https://static.stage1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  龙爪  
+##### 1408#       发表于 2026-5-3 10:45
+
+梦里20年手搓腰带<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2309A, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  龙爪  
+##### 1409#       发表于 2026-5-3 10:48
+
+果然死是凉爽的夏夜，可供人无忧的安眠
+
+—— 来自 vivo V2309A, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  milky658  
+##### 1410#       发表于 2026-5-3 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69569408&amp;ptid=2250267" target="_blank">浅川雏羽 发表于 2026-5-3 09:35</a>
+日x上看到日本人说最终形态靠主角diy还是第一次见，排除掉本身是专业人士的葛城巧好像确实如此
+
+同样是高桥 ...</blockquote>
+这集英文标题是realize，杉原还玩了01的特效文字，多少有点洗稿嫌疑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  milky658  
+##### 1411#       发表于 2026-5-3 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69569607&amp;ptid=2250267" target="_blank">鲁邦三世1 发表于 2026-5-3 10:37</a>
+这集唯一的问题就是诺克斯已经挂机好几集不来推主线剧情了
+
+—— 来自 鹅球 v3.5.99-alpha ...</blockquote>
+nox一直边缘ob位，主动下场搞事情比较少。高桥谷中都说他有条完整故事线，要后面才知道他小心思。
+粉丝见面会是宁梦表层梦境，花海才是她最深层的心理。看着夫人蹲深层心理也没什么大毛病。看下集预告他把婴儿梦魇干掉了。说起来一周目空降的混沌二周目解释来源挺有意思的
+
+
+*****
+
+####  一个陆仁贾  
+##### 1412#       发表于 2026-5-3 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69569333&amp;ptid=2250267" target="_blank">milky658 发表于 2026-5-3 09:08</a>
+一整集除了肉身草怪都没有打戏，还是最终登场回，很难想象啊
+
+下集剧照里没看到现实中的莫。猜个莫的肉体真 ...</blockquote>
+对超梦的设定是不用睡觉直接来往梦境现实的，这可困不住牢莫
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
