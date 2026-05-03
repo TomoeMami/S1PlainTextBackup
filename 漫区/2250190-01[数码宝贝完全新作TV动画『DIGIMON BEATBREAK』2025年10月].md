@@ -118,3 +118,19 @@
 
 木星大人很美<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagamasa  
+##### 565#       发表于 2026-5-3 20:36
+
+这么先进的吗，还塞了现代创作作品加的新设定导致数码宝贝也跟着吸收了这些设定数据这种设定<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  杂灰  
+##### 566#       发表于 2026-5-3 20:45
+
+数码兽本来不就是网络模因拼拼乐吗
+
