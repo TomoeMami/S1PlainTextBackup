@@ -69,3 +69,11 @@
 
 —— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  阿刚  
+##### 1455#       发表于 2026-5-3 23:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">日本人的选角真是一言难尽，失地王这人史诗上用阴湿来形容都不为过……
+
