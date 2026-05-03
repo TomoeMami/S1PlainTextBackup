@@ -232,3 +232,13 @@ re引擎的生化在对敌武器应用上都非常垃圾.234789全都是.9的武
 
 —— 来自 Sony XQ-CT72, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  何然  
+##### 2331#       发表于 2026-5-3 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69570128&amp;ptid=2252759" target="_blank">满月诗篇 发表于 2026-5-3 13:20</a>
+挑战不吃药，打了一小半了手滑按错了扎了一针，马上重新开始游戏，还算没吃药吗。游戏里也查不到吃药统计吧 ...</blockquote>
+看成就记录那儿可以查
+
