@@ -206,3 +206,44 @@ nox一直边缘ob位，主动下场搞事情比较少。高桥谷中都说他有
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  恶意之刃  
+##### 1415#       发表于 2026-5-3 11:34
+
+梦里搓的现实看就是凭空变出来的吧，也算暗箱事件，一种表现方式罢。和战兔黎斗这种正儿八经开发的还是有区别的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蔺无双  
+##### 1416#       发表于 2026-5-3 11:36
+
+这集观感其实不错，虽然部分地方有点硬，但是导演编剧有想法比啥都强，直接给掩盖了
+
+另外心跳了应该就是没死，顺便肘死俩梦魇，变身特效也从黑雾变成了青色的光点，还是有点意思的
+
+
+*****
+
+####  洛克萨斯  
+##### 1417#       发表于 2026-5-3 11:43
+
+<img src="https://img.stage1st.com/forum/202605/03/114252fnr3th5ei7nrrbk1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (215.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-3 11:42 上传
+
+<img src="https://img.stage1st.com/forum/202605/03/114300dcocoxkga7r7lktt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (189.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-3 11:43 上传
+
+这集文戏看爽了
+

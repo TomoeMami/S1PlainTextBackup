@@ -14426,3 +14426,19 @@ cherry studio更新了对v4系列思考强度的适配
 
 音频我觉得豆包真的音频真的很真人，语气啊都太真了
 
+
+*****
+
+####  Rowen233  
+##### 1322#       发表于 2026-5-3 11:37
+
+对于coding agent出现的框架兼容问题在修了
+
+<img src="https://img.stage1st.com/forum/202605/03/113659q2shpfhn0iigznpw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-3 11:36 上传
+
