@@ -247,3 +247,16 @@ nox一直边缘ob位，主动下场搞事情比较少。高桥谷中都说他有
 
 这集文戏看爽了
 
+
+*****
+
+####  洛克萨斯  
+##### 1418#       发表于 2026-5-3 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69569408&amp;ptid=2250267" target="_blank">浅川雏羽 发表于 2026-5-3 09:35</a>
+
+日x上看到日本人说最终形态靠主角diy还是第一次见，排除掉本身是专业人士的葛城巧好像确实如此
+
+同样是高桥 ...</blockquote>
+自己搓最终的好像除了build就是zzz了
+
