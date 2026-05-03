@@ -584,3 +584,13 @@ Screenshot_2026-05-03-15-09-05-645_com.baidu.tieba.jpg
 
 —— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  暗黑能乐  
+##### 1450#       发表于 2026-5-4 00:31
+
+感觉这集略过了一个点，腰带坏了靠修理没问题，但是最终胶囊是怎么冒出来的
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
