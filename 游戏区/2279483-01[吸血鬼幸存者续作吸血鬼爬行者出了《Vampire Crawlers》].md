@@ -2562,3 +2562,26 @@ SaveProfile0.save
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  叉子  
+##### 237#       发表于 2026-5-3 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69565606&amp;ptid=2279483" target="_blank">tpsg 发表于 2026-5-2 09:54</a>
+小狗的花牌好爽，出一堆回血牌，一下叠十几层联级</blockquote>
+小狗牌是不是堆幸运。有时候来一大堆治疗，有时候一张也不来
+
+—— 来自 HONOR BVL-AN16, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  叉子  
+##### 238#       发表于 2026-5-3 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69565383&amp;ptid=2279483" target="_blank">John_Stockton 发表于 2026-5-2 08:35</a>
+去解锁项里能看到条件，我没有特别留意，记得是通天塔打死他就加入了啊 ...</blockquote>
+对的。没发现最后一关
+
+—— 来自 HONOR BVL-AN16, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

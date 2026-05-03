@@ -5620,3 +5620,16 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 中期开始堆怪了有点手忙脚乱的</blockquote>
 尽快解锁侵略雷弹，解锁前后俩体验，那玩意聚怪群怪群控跟其他武器不是一个次元的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 891#       发表于 2026-5-3 09:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69569114&amp;ptid=2252823" target="_blank">otakun 发表于 2026-5-3 06:51</a>
+
+我觉得就算黛西没事，博士没憎恨公司和地球，摇篮基地迟早都会因为黑丝完蛋，IDUS控制机器人也只是加快了 ...</blockquote>
+我更好奇博士女儿的病是怎么来的，看实验内容好像女儿也是染了死丝？
+
+可是月丝研究不是都在月球吗？
+
