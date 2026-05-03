@@ -651,3 +651,50 @@ buff量蛮可观的，也能当拐，作为新时代的五星算是合格。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">没想到9096年的第2张来的辣么快
 
+
+*****
+
+####  Jamaisvu  
+##### 20768#       发表于 2026-5-3 19:27
+
+<img src="https://img.stage1st.com/forum/202605/03/192104mgd6vkfdgq6fsrfv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260503_172610_com.aniplex.fategrandorder.jpg</strong> (187 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-5-3 19:21 上传
+
+约翰一世向历代暴君寻求能与区同病相怜之人，最终回应他的只有自己。
+
+*****
+
+####  qixinno1  
+##### 20769#       发表于 2026-5-3 19:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69567561&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-5-2 18:22</a>
+
+没想到9096年的第2张来的辣么快</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">欧 羡慕 我梭哈毛都没出
+
+*****
+
+####  alucardcz  
+##### 20770#       发表于 2026-5-3 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69571397&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-5-3 19:39</a>
+
+欧 羡慕 我梭哈毛都没出</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">可你都十几20了
+
+*****
+
+####  qixinno1  
+##### 20771#       发表于 2026-5-3 21:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69571672&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-5-3 21:16</a>
+
+可你都十几20了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">我哪来的那么多
+
