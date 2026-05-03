@@ -14442,3 +14442,23 @@ cherry studio更新了对v4系列思考强度的适配
 
 2026-5-3 11:36 上传
 
+
+*****
+
+####  真红之闪电  
+##### 1323#       发表于 2026-5-3 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69565939&amp;ptid=2275806" target="_blank">有鱼 发表于 2026-5-2 11:13</a>
+cherry studio更新了对v4系列思考强度的适配</blockquote>
+这个设定在哪里
+
+*****
+
+####  Lorraine_Kinney  
+##### 1324#       发表于 2026-5-3 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69570412&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-5-3 14:55</a>
+
+这个设定在哪里</blockquote>
+就是对话那的灯泡可以调思考强度，之前都是A?没法调
+

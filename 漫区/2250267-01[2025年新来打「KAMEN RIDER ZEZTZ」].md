@@ -369,3 +369,46 @@ Screenshot_2026-05-03-14-22-04-089_com.baidu.tieba.jpg
 真好啊黑化早见沙织</blockquote>
 不是说蝴蝶忍声线吗
 
+
+*****
+
+####  浅川雏羽  
+##### 1430#       发表于 2026-5-3 14:48
+
+保守来看这一话就是三条Z的上限了，最终这个时间点登场后面怎么写都是死路一条
+
+*****
+
+####  milky658  
+##### 1431#       发表于 2026-5-3 14:59
+
+哪年不是这样，习惯了。你看现在大家看大邪神官宣鼠鼠一片哀嚎，等随便找个流量编剧来个“高开”开头，自然会继续脑补XX编剧抵抗武部侵蚀的苦情戏的。3Z崩了就一边吹鼠鼠一边踩3Z和狐神，3Z没崩就踩狐神<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  milky658  
+##### 1432#       发表于 2026-5-3 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69570389&amp;ptid=2250267" target="_blank">浅川雏羽 发表于 2026-5-3 14:48</a>
+
+保守来看这一话就是三条Z的上限了，最终这个时间点登场后面怎么写都是死路一条 ...</blockquote>
+估计万代一寻思，想和去年一样把最终玩具提前到五一黄金周打商战，效果好的话以后估计都提早到这个时间点。新十年早期也都这个时间点登场，但3Z后期空降的上位战力太多，平衡不好确实难顶
+
+*****
+
+####  赤黑的假面  
+##### 1433#       发表于 2026-5-3 15:14
+
+<blockquote>挺好的 发表于 2026-5-3 14:36
+假吧每年的惯例罢了，应该习以为常才对</blockquote>
+关键这人还嘴硬，他想学Arsenal吗，80％冠军也是冠军是吧
+
+Screenshot_2026-05-03-15-09-05-645_com.baidu.tieba.jpg
+(261.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-3 15:14 上传
+
+<img src="https://img.stage1st.com/forum/202605/03/151417fmkec0cqchmnma37.jpg" referrerpolicy="no-referrer">
+

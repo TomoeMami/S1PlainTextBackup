@@ -43,3 +43,16 @@
 可以装个油猴插件弄个直链脚本用curl命令下载</blockquote>
 这个办法试过了，找了几个脚本都无法使用，完全没反应的，跟没安装一样。有脚本推荐吗？
 
+
+*****
+
+####  暗之星尘  
+##### 253#       发表于 2026-5-3 15:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69570118&amp;ptid=2263973" target="_blank">纯情小鸭鸭 发表于 2026-5-3 13:17</a>
+
+这个办法试过了，找了几个脚本都无法使用，完全没反应的，跟没安装一样。有脚本推荐吗？ ...</blockquote>
+我用这个[https://github.com/hmjz100/LinkSwift/](https://github.com/hmjz100/LinkSwift/)
+
+另外插件要用红色的测试版才可以
+
