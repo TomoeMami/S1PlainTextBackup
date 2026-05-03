@@ -332,3 +332,40 @@ nox一直边缘ob位，主动下场搞事情比较少。高桥谷中都说他有
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真好啊黑化早见沙织
 
+
+*****
+
+####  赤黑的假面  
+##### 1427#       发表于 2026-5-3 14:35
+
+三条Z这还没完结呢，假吧就开始拉踩老骑士了，整得我想看三条Z翻车了
+
+Screenshot_2026-05-03-14-22-04-089_com.baidu.tieba.jpg
+(975.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-3 14:34 上传
+
+<img src="https://img.stage1st.com/forum/202605/03/143439lu77303cdcobuy03.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  挺好的  
+##### 1428#       发表于 2026-5-3 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69570345&amp;ptid=2250267" target="_blank">赤黑的假面 发表于 2026-5-3 14:35</a>
+
+三条Z这还没完结呢，假吧就开始拉踩老骑士了，整得我想看三条Z翻车了</blockquote>
+假吧每年的惯例罢了，应该习以为常才对<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  挺好的  
+##### 1429#       发表于 2026-5-3 14:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69570122&amp;ptid=2250267" target="_blank">黄泉川此方 发表于 2026-5-3 13:19</a>
+
+真好啊黑化早见沙织</blockquote>
+不是说蝴蝶忍声线吗
+
