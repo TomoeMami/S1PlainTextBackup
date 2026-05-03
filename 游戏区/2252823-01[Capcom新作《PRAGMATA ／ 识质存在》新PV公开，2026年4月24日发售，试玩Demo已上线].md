@@ -5587,3 +5587,11 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 然 ...</blockquote>
 我觉得就算黛西没事，博士没憎恨公司和地球，摇篮基地迟早都会因为黑丝完蛋<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，IDUS控制机器人也只是加快了清扫人类。
 
+
+*****
+
+####  Yeaha123  
+##### 888#       发表于 2026-5-3 08:15
+
+打完了，不是很好玩，怪种类少，来来去去都是那几种怪，除了boss就是小怪，缺乏独立怪精英怪
+
