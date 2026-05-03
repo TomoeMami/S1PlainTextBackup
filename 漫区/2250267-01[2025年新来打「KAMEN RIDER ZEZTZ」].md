@@ -68,3 +68,43 @@
 
 怎么这集时间一下就过去了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 1402#       发表于 2026-5-3 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69569333&amp;ptid=2250267" target="_blank">milky658 发表于 2026-5-3 09:08</a>
+
+一整集除了肉身草怪都没有打戏，还是最终登场回，很难想象啊
+
+下集剧照里没看到现实中的莫。猜个莫的肉体真 ...</blockquote>
+可小鹰肉体还能走啊
+
+*****
+
+####  暗黑能乐  
+##### 1403#       发表于 2026-5-3 10:27
+
+话说超梦还是和灾厄梦魇有关啊，但是搓的时候却完全没有出场
+
+
+*****
+
+####  鲁邦三世1  
+##### 1404#       发表于 2026-5-3 10:36
+
+孩子们，九龙真有用啊
+打到后期帝王引擎直接震死梦魇
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  鲁邦三世1  
+##### 1405#       发表于 2026-5-3 10:37
+
+这集唯一的问题就是诺克斯已经挂机好几集不来推主线剧情了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
