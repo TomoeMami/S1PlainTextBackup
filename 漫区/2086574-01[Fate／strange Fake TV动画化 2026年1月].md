@@ -59,3 +59,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">狗留下，人拿下去吧
 
+
+*****
+
+####  乞力马札罗的雪  
+##### 1454#       发表于 2026-5-3 20:27
+
+狗挺可爱<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
