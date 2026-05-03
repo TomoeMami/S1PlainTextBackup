@@ -286,3 +286,18 @@ sr妹子是大奖，这ssr的妖精什么烂货，装备还要专门的，目前
 
 摆烂五月，月卡都懒得充了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 800#       发表于 2026-5-3 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69558817&amp;ptid=2249235" target="_blank">Flechette 发表于 2026-4-30 16:48</a>
+
+药师洞窟推完一周目会送一个卡米尔，大方到不像drecum会做的事
+
+治愈师技能严重偏科，没有debuff单解只有20M ...</blockquote>
+收回前言，送的卡缪各属性成长率都偏低
+
+依旧是那个神人运营drecum
+
