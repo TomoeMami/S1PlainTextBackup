@@ -156,3 +156,29 @@ emmm，可能2D成本和3D成本不可同年而语吧，只能靠卖新作炒人
 
 按腋下2的尿性，MBTL也不见得有多大变化
 
+
+*****
+
+####  红魔馆的糖  
+##### 558#       发表于 2026-5-3 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69570497&amp;ptid=2026924" target="_blank">猫坤 发表于 2026-5-3 15:26</a>
+按腋下2的尿性，MBTL也不见得有多大变化</blockquote>
+和腋下2一样的话真完蛋了<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蓮華  
+##### 559#       发表于 2026-5-3 16:41
+
+就MBTL的表现
+
+等月姬里出了后，你个逼格斗打骨折再说<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  icecry  
+##### 560#       发表于 2026-5-3 16:50
+
+不如高清重制下mbac
+
