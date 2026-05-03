@@ -607,3 +607,15 @@ Screenshot_2026-05-03-15-09-05-645_com.baidu.tieba.jpg
 —— 来自 HONOR BVL-AN00, An ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">把所有抽出来的胶囊叠盒子叠成一个了……有个镜头是他在疯狂叠胶囊
 
+
+*****
+
+####  暗黑能乐  
+##### 1452#       发表于 2026-5-4 01:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69572428&amp;ptid=2250267" target="_blank">阿刚 发表于 2026-5-4 00:41</a>
+把所有抽出来的胶囊叠盒子叠成一个了……有个镜头是他在疯狂叠胶囊</blockquote>
+合成是为了修腰带效力可能性大点，而且本来也没有非得搓出新的强力胶囊的必要性吧，双梦魇胶囊不也一样强力，而且又不是什么不可控的力量
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
