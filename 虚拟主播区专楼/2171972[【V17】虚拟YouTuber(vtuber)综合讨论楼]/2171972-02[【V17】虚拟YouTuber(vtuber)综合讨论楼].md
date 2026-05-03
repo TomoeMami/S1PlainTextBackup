@@ -610,3 +610,37 @@ beni、sumi那次1个月，noah那次2周
 
 <img src="https://p.sda1.dev/32/8b710c9bf2c6a1579c28b55a2f6c5b90/1000016573.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾特娜  
+##### 1886#       发表于 2026-5-2 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69566297&amp;ptid=2171972" target="_blank">古战场亡魂 发表于 2026-5-2 12:47</a>
+
+纪念直播周边都没了。小森那个5月30日不谈，千灯这个5月2号，很多东西早就弄好了吧。</blockquote>
+一般是现在只做了样品，然后按限时下订量生产。画之类的肯定提前一个月以上约好画师画吧。
+
+*****
+
+####  古战场亡魂  
+##### 1887#       发表于 2026-5-2 16:13
+
+😅我严重怀疑ltk原本绿队的core辅助是千灯的。
+
+*****
+
+####  noHentai  
+##### 1888#       发表于 2026-5-2 18:23
+
+<img src="https://p.sda1.dev/32/8b710c9bf2c6a1579c28b55a2f6c5b90/1000016573.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 1889#       发表于 2026-5-3 12:41
+
+这么多天没点动静，我已经在怀疑vspo在草台了
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
