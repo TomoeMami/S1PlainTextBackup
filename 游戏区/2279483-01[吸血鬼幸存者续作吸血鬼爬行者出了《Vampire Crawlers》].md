@@ -2585,3 +2585,11 @@ SaveProfile0.save
 
 —— 来自 HONOR BVL-AN16, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  妄想中毒  
+##### 239#       发表于 2026-5-3 18:22
+
+爽的快腻的也快，打通关后我就不怎么想继续玩了
+
