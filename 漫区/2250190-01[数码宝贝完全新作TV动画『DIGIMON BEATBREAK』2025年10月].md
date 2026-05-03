@@ -134,3 +134,11 @@
 
 数码兽本来不就是网络模因拼拼乐吗
 
+
+*****
+
+####  永恒的王牌  
+##### 567#       发表于 2026-5-3 22:11
+
+暂且不知道是自身被大数据污染了还是演戏太入戏导致自己把自己吓死了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
