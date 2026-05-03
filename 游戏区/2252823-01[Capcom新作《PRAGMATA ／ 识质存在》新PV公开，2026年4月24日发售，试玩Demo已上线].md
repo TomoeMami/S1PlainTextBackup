@@ -5595,3 +5595,28 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 
 打完了，不是很好玩，怪种类少，来来去去都是那几种怪，除了boss就是小怪，缺乏独立怪精英怪
 
+
+*****
+
+####  三级怪兽  
+##### 889#       发表于 2026-5-3 08:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69564191&amp;ptid=2252823" target="_blank">何然 发表于 2026-5-1 20:47</a>
+
+二周目跑客厅躺着沙发带着女儿玩
+
+进休息区就抢我手柄要玩女儿
+
+打个boss游戏里面在喊游戏外面也在喊，压力是 ...</blockquote>
+双人模式真可以，一个打人，一个破解，有mod搞出来了
+
+*****
+
+####  三级怪兽  
+##### 890#       发表于 2026-5-3 08:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69568650&amp;ptid=2252823" target="_blank">crosz1985 发表于 2026-5-2 23:54</a>
+
+中期开始堆怪了有点手忙脚乱的</blockquote>
+尽快解锁侵略雷弹，解锁前后俩体验，那玩意聚怪群怪群控跟其他武器不是一个次元的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
