@@ -865,3 +865,16 @@ TOA那边肯定是不同组做的，两边没啥冲突其实
 
 —— 来自 HUAWEI ELS-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  Xenor  
+##### 84#       发表于 2026-5-3 19:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69570539&amp;ptid=2280008" target="_blank">007.5 发表于 2026-5-3 15:45</a>
+
+哦哦哦哦永恒！
+
+但又担心就是个稍微高清的移植</blockquote>
+稍微高清的移植要能原汁原味起步也能干掉PS版了，就怕又暗暗砍了啥，例如仙乐传说，至今都是NGC版最好使虽然少内容但有60帧aaa...PC版都木
+
