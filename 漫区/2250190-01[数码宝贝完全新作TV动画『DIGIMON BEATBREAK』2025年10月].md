@@ -142,3 +142,21 @@
 
 暂且不知道是自身被大数据污染了还是演戏太入戏导致自己把自己吓死了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leonlink  
+##### 568#       发表于 2026-5-3 22:50
+
+感觉是给之前的吃瘪惯例找补一下
+
+—— 来自 Xiaomi 2312CRAD3C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  天风绯炎  
+##### 569#       发表于 2026-5-3 22:54
+
+这个吸血魔兽拉得没边了，堪比被大门大一拳放倒一群的吸血魔兽
+
