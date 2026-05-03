@@ -77,3 +77,14 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">日本人的选角真是一言难尽，失地王这人史诗上用阴湿来形容都不为过……
 
+
+*****
+
+####  AKESI  
+##### 1456#       发表于 2026-5-4 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69572094&amp;ptid=2086574" target="_blank">阿刚 发表于 2026-5-3 23:08</a>
+
+日本人的选角真是一言难尽，失地王这人史诗上用阴湿来形容都不为过……</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">逛了一圈人设就是奔着阴湿扭曲兄控去的，还把理查的人设拉低了，都不知道要怎么反转才能救，多的懒得说了，唉....
+
