@@ -412,3 +412,13 @@ Screenshot_2026-05-03-15-09-05-645_com.baidu.tieba.jpg
 
 <img src="https://img.stage1st.com/forum/202605/03/151417fmkec0cqchmnma37.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  theti  
+##### 1434#       发表于 2026-5-3 15:49
+
+<blockquote>赤黑的假面 发表于 2026-5-3 14:35
+三条Z这还没完结呢，假吧就开始拉踩老骑士了，整得我想看三条Z翻车了</blockquote>
+就是你这种恶心的人太多，骑士才越来越烂，老资历都该死光
+
