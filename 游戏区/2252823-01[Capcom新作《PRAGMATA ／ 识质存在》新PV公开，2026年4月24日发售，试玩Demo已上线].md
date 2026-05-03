@@ -5659,3 +5659,18 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 
 在4k dlss极致性能居然只用了4g
 
+
+*****
+
+####  mai6696  
+##### 894#       发表于 2026-5-3 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69569654&amp;ptid=2252823" target="_blank">renkan119 发表于 2026-5-3 10:48</a>
+
+女儿天生的病 跟死丝没关系 博士用月丝造人造器官想给女儿治病  公司急着发售直接擅自做人体实验去了 结 ...</blockquote>
+不是说7号能清除死丝，所以实验不成功吗？
+
+然后做了个8号能聚合死丝，就可以。
+
+所以病和死丝也不能说没关系吧。
+
