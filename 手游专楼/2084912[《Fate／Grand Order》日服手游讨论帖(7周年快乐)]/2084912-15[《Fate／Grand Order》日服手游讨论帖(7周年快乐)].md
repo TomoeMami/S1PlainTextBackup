@@ -712,3 +712,19 @@ buff量蛮可观的，也能当拐，作为新时代的五星算是合格。
 
 劍階理查是不是接下來要讓約翰砍他第三次
 
+
+*****
+
+####  jackyhuang  
+##### 20773#       发表于 2026-5-4 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69573768&amp;ptid=2084912" target="_blank">Niu 发表于 2026-5-4 13:22</a>
+我只覺得理查約翰這對扭曲兄弟控真是夠了
+
+一個願砍一個願挨
+
+理查還讓約翰砍他兩次</blockquote>
+不是已经刺完了嘛，当然这么写后面八成要诈尸的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
