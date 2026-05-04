@@ -5859,3 +5859,29 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 
 我不是白金党也不是成就党，但游戏只记录时长还是感觉缺了点啥
 
+
+*****
+
+####  zqqwe  
+##### 913#       发表于 2026-5-4 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69574626&amp;ptid=2252823" target="_blank">trow233 发表于 2026-5-4 18:46</a>
+话说，我刚到第二关，看了个隐藏的敌人，边跑边掉资源那个无人机似的玩意
+
+第一次打没抓住让他跑了，第二次 ...</blockquote>
+个人经验第二关第一次在车轮怪堆遇到那只逃跑后会刷在另外的地点，第二个红房附近的存档点，从红房返回的路上需要开关台阶的房间里，这次会很好抓。
+
+*****
+
+####  何然  
+##### 914#       发表于 2026-5-4 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69574626&amp;ptid=2252823" target="_blank">trow233 发表于 2026-5-4 18:46</a>
+
+话说，我刚到第二关，看了个隐藏的敌人，边跑边掉资源那个无人机似的玩意
+
+第一次打没抓住让他跑了，第二次 ...</blockquote>
+掉1000钱和初次一个成就而已
+
+死了的话再去会有
+
