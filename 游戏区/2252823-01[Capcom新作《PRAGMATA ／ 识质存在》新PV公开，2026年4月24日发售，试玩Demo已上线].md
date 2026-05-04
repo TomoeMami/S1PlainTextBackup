@@ -5790,3 +5790,14 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 本来打算扣两分，鉴于最后领先7s完成少扣点。最后 ...</blockquote>
 我狂月模式时又打了一遍全模拟王冠，30关没卡，反而因为二周目玩家过于自大，29关还卡了10来次，明明都知道怎么打的<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  viperasi  
+##### 906#       发表于 2026-5-4 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69569654&amp;ptid=2252823" target="_blank">renkan119 发表于 2026-5-3 10:48</a>
+
+女儿天生的病 跟死丝没关系 博士用月丝造人造器官想给女儿治病  公司急着发售直接擅自做人体实验去了 结 ...</blockquote>
+死丝是研究过程的副产物
+
