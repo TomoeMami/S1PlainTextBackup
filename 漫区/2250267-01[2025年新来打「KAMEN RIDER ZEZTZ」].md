@@ -684,3 +684,20 @@ Screenshot_2026-05-03-15-09-05-645_com.baidu.tieba.jpg
 我只是奶后面可能会回补这个胶囊的隐情而已，最终出场这么早，我会怀疑这道具有没有可能没法一直用 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难以重现的不屈斗志.jpg
 
+
+*****
+
+####  センコウ  
+##### 1459#       发表于 2026-5-4 13:16
+
+玩具有初期腰带配最终胶囊的特殊声音的，
+
+*****
+
+####  离心  
+##### 1460#       发表于 2026-5-4 13:19
+
+已经破亿了
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

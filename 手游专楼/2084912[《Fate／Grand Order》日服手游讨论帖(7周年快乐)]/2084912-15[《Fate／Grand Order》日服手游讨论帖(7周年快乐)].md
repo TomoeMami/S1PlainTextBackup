@@ -698,3 +698,17 @@ buff量蛮可观的，也能当拐，作为新时代的五星算是合格。
 可你都十几20了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">我哪来的那么多
 
+
+*****
+
+####  Niu  
+##### 20772#       发表于 2026-5-4 13:22
+
+我只覺得理查約翰這對扭曲兄弟控真是夠了
+
+一個願砍一個願挨
+
+理查還讓約翰砍他兩次
+
+劍階理查是不是接下來要讓約翰砍他第三次
+
