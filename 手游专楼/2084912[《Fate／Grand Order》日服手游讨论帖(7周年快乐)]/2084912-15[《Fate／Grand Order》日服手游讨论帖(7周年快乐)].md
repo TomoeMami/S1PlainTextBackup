@@ -728,3 +728,12 @@ buff量蛮可观的，也能当拐，作为新时代的五星算是合格。
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  岸浪白野  
+##### 20774#       发表于 2026-5-4 17:36
+
+狂信就算npc立绘画了2个版本也算行吧，顺便加个海神<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/af0a52458092720f18ea8a884a810bb2/image.jpg" referrerpolicy="no-referrer">
+

@@ -3883,3 +3883,11 @@ me
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  plok201  
+##### 4155#       发表于 2026-5-4 17:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">现在就是很想抽专用机限定船，毕竟这一圈主角不是专用机就是王牌机，质量比那6个成语大词条好多了
+
