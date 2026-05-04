@@ -147,3 +147,40 @@
 
        [https://x.com/okada_mei0519/status/2050217746638795259](https://x.com/okada_mei0519/status/2050217746638795259)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41872#       发表于 2026-5-4 13:27
+
+ 本帖最后由 堀内爱里衣 于 2026-5-4 13:29 编辑 
+
+       
+
+<img src="https://img.stage1st.com/forum/202605/04/132913zytympu0zetez4t3.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-05-04_13-28-20.jpg</strong> (243.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-4 13:29 上传
+
+       [https://x.com/bang_dream_info/status/2051151078545412113](https://x.com/bang_dream_info/status/2051151078545412113)
+
+       [https://www.youtube.com/watch?v=H1ThBVHCYo0](https://www.youtube.com/watch?v=H1ThBVHCYo0)
+
+       <strong>にゃむちチャンネル（Nyamuchi channel）第13回</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202605/04/132704q1c9p697lsc7fp6n.jpg" referrerpolicy="no-referrer">
+
+<strong>daa83b2bd4f0a7f3d4a31efac72458dde67a1064.jpg</strong> (265.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-4 13:27 上传
+
+祝大家假期快乐！
+
+Nyamuchi也会努力工作的~</blockquote>
+      [https://www.bilibili.com/video/BV1EWRTBpEAx](https://www.bilibili.com/video/BV1EWRTBpEAx)
+

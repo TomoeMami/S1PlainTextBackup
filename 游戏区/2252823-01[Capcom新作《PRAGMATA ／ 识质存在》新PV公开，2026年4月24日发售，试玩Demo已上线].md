@@ -5809,3 +5809,15 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 
 有个100秒内杀完才能满星的挑战，也太难了，牢住了
 
+
+*****
+
+####  wincle  
+##### 908#       发表于 2026-5-4 13:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69573601&amp;ptid=2252823" target="_blank">Vladimeow 发表于 2026-5-4 12:32</a>
+有个100秒内杀完才能满星的挑战，也太难了，牢住了</blockquote>
+该请风大师了
+
+— from Xiaomi 2304FPN6DC, Android 16, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

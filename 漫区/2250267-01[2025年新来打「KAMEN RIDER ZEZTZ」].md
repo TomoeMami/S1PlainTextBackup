@@ -701,3 +701,11 @@ Screenshot_2026-05-03-15-09-05-645_com.baidu.tieba.jpg
 
 —— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  otakun  
+##### 1461#       发表于 2026-5-4 13:25
+
+B站的这么厉害吗，我懒得看字幕组下载，蹭朋友的QQ VIP看的。
+
