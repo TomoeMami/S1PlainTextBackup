@@ -5927,3 +5927,13 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 
 黄皮步行者的模组是抄袭隔壁孢头的吧！
 
+
+*****
+
+####  otakun  
+##### 919#       发表于 2026-5-4 22:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69575116&amp;ptid=2252823" target="_blank">何然 发表于 2026-5-4 21:03</a>
+黄皮步行者的模组是抄袭隔壁孢头的吧！</blockquote>
+这么一说，难怪我觉得步行者mk  II这个左右滑步有点眼熟<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
