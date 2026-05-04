@@ -184,3 +184,59 @@
 Nyamuchi也会努力工作的~</blockquote>
       [https://www.bilibili.com/video/BV1EWRTBpEAx](https://www.bilibili.com/video/BV1EWRTBpEAx)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41873#       发表于 2026-5-5 01:53
+
+       
+
+<img src="https://img.stage1st.com/forum/202605/05/015351p3gm1wwx15wmwgxr.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-05-05_01-40-43.jpg</strong> (210.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-5 01:53 上传
+
+       [https://x.com/bang_dream_info/status/2051197540100640923](https://x.com/bang_dream_info/status/2051197540100640923)
+
+       [https://www.youtube.com/watch?v=sKAnrjRpt40](https://www.youtube.com/watch?v=sKAnrjRpt40)
+
+*****
+
+####  堀内爱里衣  
+##### 41874#       发表于 2026-5-5 01:54
+
+       
+
+<img src="https://img.stage1st.com/forum/202605/05/015415xm3pa3dpd73muqds.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-05-05_01-41-59.jpg</strong> (270.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-5 01:54 上传
+
+       [https://x.com/bang_dream_info/status/2051248900250677474](https://x.com/bang_dream_info/status/2051248900250677474)
+
+*****
+
+####  堀内爱里衣  
+##### 41875#       发表于 2026-5-5 01:54
+
+       
+
+<img src="https://img.stage1st.com/forum/202605/05/015438fq1i0ggzg3ddd5kk.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-05-05_01-44-02.jpg</strong> (230.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-5 01:54 上传
+
+       [https://x.com/diggymo04/status/2051262261000536123](https://x.com/diggymo04/status/2051262261000536123)
+
+       [https://bang-dream.com/avemujica_livetour_tokyo/](https://bang-dream.com/avemujica_livetour_tokyo/)
+
