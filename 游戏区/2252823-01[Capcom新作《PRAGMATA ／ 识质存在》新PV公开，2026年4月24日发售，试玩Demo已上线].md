@@ -5885,3 +5885,26 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 
 死了的话再去会有
 
+
+*****
+
+####  trow233  
+##### 915#       发表于 2026-5-4 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69574683&amp;ptid=2252823" target="_blank">zqqwe 发表于 2026-5-4 19:01</a>
+
+个人经验第二关第一次在车轮怪堆遇到那只逃跑后会刷在另外的地点，第二个红房附近的存档点，从红房返回的 ...</blockquote>
+原来如此，会换地方啊，懂了
+
+*****
+
+####  trow233  
+##### 916#       发表于 2026-5-4 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69574684&amp;ptid=2252823" target="_blank">何然 发表于 2026-5-4 19:01</a>
+
+掉1000钱和初次一个成就而已
+
+死了的话再去会有</blockquote>
+我再找找，居然不在同一个地方刷新
+
