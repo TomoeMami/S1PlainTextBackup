@@ -2642,3 +2642,13 @@ SaveProfile0.save
 —— 来自 HONOR BVL-AN16, Android 16, 鹅 ...</blockquote>
 应该是的，前面一二层出的少，后面幸运高了稳定出
 
+
+*****
+
+####  InfiniteGyre  
+##### 244#       发表于 2026-5-4 19:28
+
+打宝石的限制有什么规律吗，万能好像是没法打到冰冻上面，但是也没看到在哪里提到过
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
