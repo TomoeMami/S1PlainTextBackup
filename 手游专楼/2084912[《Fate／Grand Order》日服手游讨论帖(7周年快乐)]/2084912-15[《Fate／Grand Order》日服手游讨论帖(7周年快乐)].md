@@ -737,3 +737,13 @@ buff量蛮可观的，也能当拐，作为新时代的五星算是合格。
 狂信就算npc立绘画了2个版本也算行吧，顺便加个海神<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/af0a52458092720f18ea8a884a810bb2/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 20775#       发表于 2026-5-4 21:35
+
+约翰风评不好说吧，确实有一批女性读者超爱这种神人设定的
+
+能理解为什么一定要延迟联动了，除了联动比正作先出来不太好外，不敢想象打完联动的人去看TV绫香出场和理查回忆弟弟的画面有多么幽默哦<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
