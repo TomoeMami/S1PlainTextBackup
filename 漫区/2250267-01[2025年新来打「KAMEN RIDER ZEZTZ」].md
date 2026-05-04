@@ -627,3 +627,29 @@ Screenshot_2026-05-03-15-09-05-645_com.baidu.tieba.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先有玩具再有剧情辣，最终代哥总不能只卖个面板
 
+
+*****
+
+####  黑暗之眼  
+##### 1454#       发表于 2026-5-4 11:11
+
+ 本帖最后由 黑暗之眼 于 2026-5-4 11:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69570345&amp;ptid=2250267" target="_blank">赤黑的假面 发表于 2026-5-3 14:35</a>
+三条Z这还没完结呢，假吧就开始拉踩老骑士了，整得我想看三条Z翻车了</blockquote>
+无不无聊，多讨论点设定，少搞些粉圈会死？
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  黑暗之眼  
+##### 1455#       发表于 2026-5-4 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69570553&amp;ptid=2250267" target="_blank">theti 发表于 2026-5-3 15:49</a>
+就是你这种恶心的人太多，骑士才越来越烂，老资历都该死光</blockquote>
+得了吧，泥潭够老，DCD的专楼都还在的，你去看看2009年就在追看连载的“老资历”都是什么样子的
+
+那些充其量贴吧小鬼罢了。
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

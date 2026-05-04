@@ -5779,3 +5779,14 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 总算打通了，我给9分。游戏本体10分，模拟器30关扣1分。<img src="https://static.stage1st.com/image/smiley/face/45.gif" referrerpolicy="no-referrer">
 本来打算扣两分，鉴于最后领先7s完成少扣点。最后解锁4开关失误两次感觉心脏都要骤停了。<img src="https://static.stage1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 905#       发表于 2026-5-4 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69573298&amp;ptid=2252823" target="_blank">Schwarzess 发表于 2026-5-4 11:03</a>
+总算打通了，我给9分。游戏本体10分，模拟器30关扣1分。
+本来打算扣两分，鉴于最后领先7s完成少扣点。最后 ...</blockquote>
+我狂月模式时又打了一遍全模拟王冠，30关没卡，反而因为二周目玩家过于自大，29关还卡了10来次，明明都知道怎么打的<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
