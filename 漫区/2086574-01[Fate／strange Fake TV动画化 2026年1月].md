@@ -107,3 +107,16 @@
 
 根本不管治理国家，丢给失地王一堆烂摊子，也就英国没王侯将相，不然早爆炸了
 
+
+*****
+
+####  AKESI  
+##### 1459#       发表于 2026-5-4 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69574645&amp;ptid=2086574" target="_blank">gpx234mqx 发表于 2026-5-4 18:51</a>
+
+狮心王不正常的
+
+根本不管治理国家，丢给失地王一堆烂摊子，也就英国没王侯将相，不然早爆炸了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">我看到今天联动新出的金雀花兄弟版侍奉文学和乳海文学已经力竭了，不想继续谈了，小说第10卷会变得怎样啊.....
+
