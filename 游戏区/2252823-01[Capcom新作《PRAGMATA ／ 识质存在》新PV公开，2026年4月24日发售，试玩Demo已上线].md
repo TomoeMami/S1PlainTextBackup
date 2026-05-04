@@ -5757,3 +5757,25 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 
 通关了，阿舱币不够解锁全部日志。有人能告诉我日志里的记者最后怎么样了，还有那个内鬼F员工是谁<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Schwarzess  
+##### 903#       发表于 2026-5-4 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69572732&amp;ptid=2252823" target="_blank">八汰乌 发表于 2026-5-4 04:08</a>
+通关了，阿舱币不够解锁全部日志。有人能告诉我日志里的记者最后怎么样了，还有那个内鬼F员工是谁 ...</blockquote>
+剧透警告。
+
+内鬼F应该就是路人，拿着记者的票跑路了。
+记者其实是希金斯的小舅子，跑到月球来其实就是为了问姐夫为啥要抛妻弃女躲在月球搞研究。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Schwarzess  
+##### 904#       发表于 2026-5-4 11:03
+
+总算打通了，我给9分。游戏本体10分，模拟器30关扣1分。<img src="https://static.stage1st.com/image/smiley/face/45.gif" referrerpolicy="no-referrer">
+本来打算扣两分，鉴于最后领先7s完成少扣点。最后解锁4开关失误两次感觉心脏都要骤停了。<img src="https://static.stage1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
+
