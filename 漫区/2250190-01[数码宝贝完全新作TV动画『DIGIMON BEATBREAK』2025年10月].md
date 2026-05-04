@@ -176,3 +176,17 @@ DBB的设定就是野生数码兽比有辅助主的要弱一些的
 
 小熊猫那下幻视成皮卡丘钢铁尾巴<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 572#       发表于 2026-5-4 11:36
+
+<img src="https://img.stage1st.com/forum/202605/04/113615tojo8dpob8d897dz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (186.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-4 11:36 上传
+

@@ -653,3 +653,14 @@ Screenshot_2026-05-03-15-09-05-645_com.baidu.tieba.jpg
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  暗黑能乐  
+##### 1456#       发表于 2026-5-4 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69572709&amp;ptid=2250267" target="_blank">黄泉川此方 发表于 2026-5-4 03:04</a>
+
+先有玩具再有剧情辣，最终代哥总不能只卖个面板</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">我只是奶后面可能会回补这个胶囊的隐情而已，最终出场这么早，我会怀疑这道具有没有可能没法一直用
+
