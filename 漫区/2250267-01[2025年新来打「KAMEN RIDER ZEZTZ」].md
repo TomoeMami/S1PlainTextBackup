@@ -709,3 +709,21 @@ Screenshot_2026-05-03-15-09-05-645_com.baidu.tieba.jpg
 
 B站的这么厉害吗，我懒得看字幕组下载，蹭朋友的QQ VIP看的。
 
+
+*****
+
+####  TOYSTORY  
+##### 1462#       发表于 2026-5-4 13:41
+
+ 本帖最后由 TOYSTORY 于 2026-5-4 13:43 编辑 
+
+<img src="https://img.stage1st.com/forum/202605/04/134051gefbl19qvzelff2v.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (405.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-4 13:40 上传
+
+跟其他令和的最终形态比，02这待遇是真差啊，后面没打几话还因为或人黑化被换掉了（<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
