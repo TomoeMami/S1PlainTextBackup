@@ -120,3 +120,15 @@
 根本不管治理国家，丢给失地王一堆烂摊子，也就英国没王侯将相，不然早爆炸了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">我看到今天联动新出的金雀花兄弟版侍奉文学和乳海文学已经力竭了，不想继续谈了，小说第10卷会变得怎样啊.....
 
+
+*****
+
+####  gpx234mqx  
+##### 1460#       发表于 2026-5-4 20:46
+
+唉，白骑士应该是裁定者<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+骑阶这是降格了吧
+
+如果本篇出来的裁白骑士，这批不要打了
+
