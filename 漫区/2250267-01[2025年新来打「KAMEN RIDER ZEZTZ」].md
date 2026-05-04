@@ -664,3 +664,13 @@ Screenshot_2026-05-03-15-09-05-645_com.baidu.tieba.jpg
 先有玩具再有剧情辣，最终代哥总不能只卖个面板</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">我只是奶后面可能会回补这个胶囊的隐情而已，最终出场这么早，我会怀疑这道具有没有可能没法一直用
 
+
+*****
+
+####  龙爪  
+##### 1457#       发表于 2026-5-4 11:38
+
+说个题外话，B站今天大概就有一部播放破亿的来打了
+
+—— 来自 vivo V2309A, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
