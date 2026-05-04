@@ -747,3 +747,21 @@ buff量蛮可观的，也能当拐，作为新时代的五星算是合格。
 
 能理解为什么一定要延迟联动了，除了联动比正作先出来不太好外，不敢想象打完联动的人去看TV绫香出场和理查回忆弟弟的画面有多么幽默哦<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 20776#       发表于 2026-5-4 22:43
+
+ 本帖最后由 岸浪白野 于 2026-5-4 22:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69575213&amp;ptid=2084912" target="_blank">plok201 发表于 2026-5-4 21:35</a>
+
+约翰风评不好说吧，确实有一批女性读者超爱这种神人设定的
+
+能理解为什么一定要延迟联动了，除了联动比正作 ...</blockquote>
+联动始终是要说点作品的后日谈时间线故事除开只有游戏的本质都是要配合动画卖的，上个事件簿联动比动画早出来3个月已经把faker都卡着出不来了联动也尴尬
+
+还整的那3张神奇卡面的画师坂本和東冬都要吐槽，全靠动画播完了第2年马上复刻追加故事
+
+现在这联动就一个聊聊平行世界的IF线，等明年动画播完还是要马上复刻追加补原作后日谈那边的故事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
