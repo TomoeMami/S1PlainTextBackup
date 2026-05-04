@@ -674,3 +674,13 @@ Screenshot_2026-05-03-15-09-05-645_com.baidu.tieba.jpg
 
 —— 来自 vivo V2309A, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  FACS  
+##### 1458#       发表于 2026-5-4 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69573403&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-5-4 11:33</a>
+我只是奶后面可能会回补这个胶囊的隐情而已，最终出场这么早，我会怀疑这道具有没有可能没法一直用 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难以重现的不屈斗志.jpg
+

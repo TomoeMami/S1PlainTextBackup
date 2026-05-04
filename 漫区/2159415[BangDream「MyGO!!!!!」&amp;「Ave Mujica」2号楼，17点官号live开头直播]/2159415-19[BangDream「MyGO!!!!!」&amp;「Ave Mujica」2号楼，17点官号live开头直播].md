@@ -21,3 +21,20 @@
 而且作为宇宙第一大吉他厂，我是不相 ...</blockquote>
 为什么会强调乐器赞助？
 
+
+*****
+
+####  Piano-Forest  
+##### 27594#       发表于 2026-5-4 12:16
+
+TV 动画「バンドリ！ゆめ∞みた（BanG Dream! YUME∞MITA）」
+
+开播日期确定＆首播将一口气播放第1～3话！🛸🛸🛸
+
+📅开播时间
+
+2026年7月2日（周四）23:00起
+
+👇详情
+[https://anime.bang-dream.com/yumemita/](https://anime.bang-dream.com/yumemita/)
+
