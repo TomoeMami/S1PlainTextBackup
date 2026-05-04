@@ -72,3 +72,11 @@
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  人生オワタ  
+##### 696#       发表于 2026-5-4 22:08
+
+【【COTW】脱衣确定！日本播放北斗神拳动画中插播的饿狼传说群狼之城广告，拳四郎新画面出现！-哔哩哔哩】 [https://b23.tv/dUAUABs](https://b23.tv/dUAUABs)
+
