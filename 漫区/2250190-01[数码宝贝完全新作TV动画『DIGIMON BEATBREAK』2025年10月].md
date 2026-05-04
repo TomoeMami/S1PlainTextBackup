@@ -168,3 +168,11 @@
 
 DBB的设定就是野生数码兽比有辅助主的要弱一些的
 
+
+*****
+
+####  66367749  
+##### 571#       发表于 2026-5-4 08:54
+
+小熊猫那下幻视成皮卡丘钢铁尾巴<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
