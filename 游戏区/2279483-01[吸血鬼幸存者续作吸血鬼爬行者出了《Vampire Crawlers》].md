@@ -2613,3 +2613,32 @@ SaveProfile0.save
 
 有些都降到最低了，还是不好刷
 
+
+*****
+
+####  tpsg  
+##### 242#       发表于 2026-5-4 13:10
+
+全成就了，试着一局叠到110级和200w金币，靠着无限抽卡和冰冻再加金币伤害打红死神，原来打过只是加一层诅咒，打到13轮没意思就退了。
+
+20260504130119_1.jpg
+(394.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-4 13:08 上传
+
+<img src="https://img.stage1st.com/forum/202605/04/130812y3h74mid0lil007x.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  tpsg  
+##### 243#       发表于 2026-5-4 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69569380&amp;ptid=2279483" target="_blank">叉子 发表于 2026-5-3 09:27</a>
+
+小狗牌是不是堆幸运。有时候来一大堆治疗，有时候一张也不来
+
+—— 来自 HONOR BVL-AN16, Android 16, 鹅 ...</blockquote>
+应该是的，前面一二层出的少，后面幸运高了稳定出
+
