@@ -5908,3 +5908,14 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 死了的话再去会有</blockquote>
 我再找找，居然不在同一个地方刷新
 
+
+*****
+
+####  zqqwe  
+##### 917#       发表于 2026-5-4 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69574867&amp;ptid=2252823" target="_blank">trow233 发表于 2026-5-4 19:56</a>
+
+原来如此，会换地方啊，懂了</blockquote>
+反过来说，如果能打死就会反复刷在同一个地方，第三关气象模拟区那只离存档点最近，配合粘弹可以用来刷钱
+
