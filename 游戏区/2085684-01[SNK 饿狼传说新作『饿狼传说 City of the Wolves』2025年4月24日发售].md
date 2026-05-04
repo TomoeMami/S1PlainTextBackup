@@ -80,3 +80,16 @@
 
 【【COTW】脱衣确定！日本播放北斗神拳动画中插播的饿狼传说群狼之城广告，拳四郎新画面出现！-哔哩哔哩】 [https://b23.tv/dUAUABs](https://b23.tv/dUAUABs)
 
+
+*****
+
+####  ナルバレック  
+##### 697#       发表于 2026-5-5 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69568623&amp;ptid=2085684" target="_blank">7do 发表于 2026-5-2 23:43</a>
+
+新的kof还有在做吗
+
+— from S1 Next Goose v3.5.99</blockquote>
+新的龙虎倒是前年就说有在做了，还有个侍魂的ARPG在做，拳皇目前说法只是还有在推进中
+
