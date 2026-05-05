@@ -862,3 +862,25 @@ buff量蛮可观的，也能当拐，作为新时代的五星算是合格。
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Jamaisvu  
+##### 20785#       发表于 2026-5-5 18:44
+
+<blockquote>angelooo 发表于 2026-5-5 18:31
+成田算个p的理查梦男，今天的剧情看完之后我觉得这俩兄弟都是深井冰，理查都快被他写成背锅侠了 ...</blockquote>
+理查是神人，约翰是病娇，加在一起是神经病（确信）
+
+*****
+
+####  Jamaisvu  
+##### 20786#       发表于 2026-5-5 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69577904&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2026-5-5 18:43</a>
+
+不是要弓海吗，给你看弓海
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99</blockquote>
+看这射击动作，分明是弩海<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
