@@ -884,3 +884,11 @@ buff量蛮可观的，也能当拐，作为新时代的五星算是合格。
 —— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99</blockquote>
 看这射击动作，分明是弩海<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku  
+##### 20787#       发表于 2026-5-5 20:13
+
+我自从抽到冠呆之后，今天第一次用冠呆打本，这个角色是不是有点太数值怪了，以后还能出90++枪本吗？
+

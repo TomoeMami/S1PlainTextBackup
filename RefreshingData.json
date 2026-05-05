@@ -351,10 +351,10 @@
     "update": false
   },
   "2084912": {
-    "totalreply": 20786,
+    "totalreply": 20787,
     "title": "[《Fate／Grand Order》日服手游讨论帖(7周年快乐)]",
     "newtitle": "[FGO日服讨论帖]",
-    "lastedit": 1777978212,
+    "lastedit": 1777983489,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -540,10 +540,10 @@
     "update": false
   },
   "2094432": {
-    "totalreply": 13008,
+    "totalreply": 13009,
     "title": "[【Mr.Quin／秦川】真爱（？）讨论三号楼]",
     "newtitle": "[【Mr.Quin／秦川】秦智障真爱（？）讨论三号楼]",
-    "lastedit": 1777982294,
+    "lastedit": 1777983012,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -9135,10 +9135,10 @@
     "update": false
   },
   "2171097": {
-    "totalreply": 518,
+    "totalreply": 519,
     "title": "[杖与剑的魔剑谭 动画化，24年7月放送（正式宣了]",
     "newtitle": "[杖与剑的魔剑谭 动画化，24年7月放送（正式宣了]",
-    "lastedit": 1777968373,
+    "lastedit": 1777983012,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12042,10 +12042,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 64352,
+    "totalreply": 64354,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1777982409,
+    "lastedit": 1777983010,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 30158,
+    "totalreply": 30160,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1777982888,
+    "lastedit": 1777983490,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -14157,10 +14157,10 @@
     "update": false
   },
   "2185584": {
-    "totalreply": 83,
+    "totalreply": 84,
     "title": "[偶像活动新作『偶活学园』正式公开，直播+集卡【已开播】]",
     "newtitle": "[偶像活动新作『偶活学园』正式公开，直播+集卡【已开播】]",
-    "lastedit": 1777956009,
+    "lastedit": 1777983250,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16169,7 +16169,7 @@
     "newtitle": "[IOI《007 First Light》正式公开，2026年5月27日发售]",
     "lastedit": 1777723694,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2280090": {
@@ -16191,10 +16191,10 @@
     "update": false
   },
   "2280092": {
-    "totalreply": 852,
+    "totalreply": 856,
     "title": "[中东砖楼 2026年5月版]",
     "newtitle": "[中东砖楼 2026年5月版]",
-    "lastedit": 1777982540,
+    "lastedit": 1777983370,
     "category": "外野",
     "active": true,
     "update": false
@@ -16358,7 +16358,7 @@
     "newtitle": "[【2026】格斗游戏节奏楼]",
     "lastedit": 1777724050,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2280125": {
@@ -16947,10 +16947,10 @@
     "update": false
   },
   "2280270": {
-    "totalreply": 57,
+    "totalreply": 58,
     "title": "[这是啥地方1997年的菜单？感觉也不便宜]",
     "newtitle": "[这是啥地方1997年的菜单？感觉也不便宜]",
-    "lastedit": 1777973769,
+    "lastedit": 1777983371,
     "category": "外野",
     "active": true,
     "update": false
@@ -17046,10 +17046,10 @@
     "update": false
   },
   "2280319": {
-    "totalreply": 83,
+    "totalreply": 85,
     "title": "[浏阳烟花厂爆炸事故已致21死]",
     "newtitle": "[浏阳烟花厂爆炸事故已致26死]",
-    "lastedit": 1777981098,
+    "lastedit": 1777983371,
     "category": "外野",
     "active": true,
     "update": false
@@ -17123,6 +17123,15 @@
     "newtitle": "[claude的实名验证发生自己头上了]",
     "lastedit": 1777979179,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2190553": {
+    "totalreply": 55,
+    "title": "[海贼王重制版动画『THE ONE PIECE』专楼 WIT制作]",
+    "newtitle": "[海贼王重制版动画『THE ONE PIECE』专楼 WIT制作]",
+    "lastedit": 1777983253,
+    "category": "漫区",
     "active": true,
     "update": false
   }
