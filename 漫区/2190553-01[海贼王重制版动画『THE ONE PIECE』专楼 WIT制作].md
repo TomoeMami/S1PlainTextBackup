@@ -856,3 +856,14 @@ WIT STUDIO（「SPY×FAMILY」「進撃の巨人」など）制作による
 <img src="https://p.sda1.dev/32/b76d8f63493582ac183cfb69b1295829/20260505_200644.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/1611f3688be33bacbd82c05b122beb70/20260505_200719.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 56#         楼主| 发表于 2026-5-5 20:16
+
+官推：[https://x.com/theop_official](https://x.com/theop_official)
+
+第1季将覆盖原作漫画50话内容，讲述路飞等人与山治相遇之前的故事，共7集，总时长约300分钟，2027年2月一次性播出
+[https://one-piece.com/news/79329/index.html](https://one-piece.com/news/79329/index.html)
+
