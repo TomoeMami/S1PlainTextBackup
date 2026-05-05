@@ -3970,3 +3970,15 @@ me
 —— 来自 vivo V2419A, Android 16, 鹅球 v3.5.99 ...</blockquote>
 看你的船配合得上哪些对应机？这两个作品最有用的就是各种map吧，不过元祖的单位多可以战一下未来
 
+
+*****
+
+####  一个陆仁贾  
+##### 4162#       发表于 2026-5-5 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69578767&amp;ptid=2071758" target="_blank">rockroxas 发表于 2026-5-5 23:30</a>
+看你的船配合得上哪些对应机？这两个作品最有用的就是各种map吧，不过元祖的单位多可以战一下未来 ...</blockquote>
+我没有精神感应和新人类船，其他基本都有
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
