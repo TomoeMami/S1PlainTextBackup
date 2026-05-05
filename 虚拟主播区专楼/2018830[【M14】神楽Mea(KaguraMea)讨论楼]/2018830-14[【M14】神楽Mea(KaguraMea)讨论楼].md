@@ -73,3 +73,25 @@
 看到人说991在xcrossstars的公司上班但是完全没找到信源</blockquote>
 991是哪位？
 
+
+*****
+
+####  古战场亡魂  
+##### 20618#       发表于 2026-5-5 22:24
+
+<img src="https://img.stage1st.com/forum/202605/05/222450nt3jitma57o5am0m.png" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260505_222242_com.twitter.android.png</strong> (112.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-5 22:24 上传
+
+<img src="https://img.stage1st.com/forum/202605/05/222451pktjjojbstnvfonn.png" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260505_222424_com.twitter.android.png</strong> (267.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-5 22:24 上传
+
