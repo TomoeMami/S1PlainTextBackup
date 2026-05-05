@@ -944,3 +944,22 @@ toe没有周目概念<img src="https://static.stage1st.com/image/smiley/face2017
 
 toe是2周目的疯狂彗星吧，元精灵秘奥按键派生    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  eilot  
+##### 90#       发表于 2026-5-5 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69577553&amp;ptid=2280008" target="_blank">雪雨轻澜 发表于 2026-5-5 16:45</a>
+
+toe是2周目的疯狂彗星吧，元精灵秘奥按键派生    Re:Source</blockquote>
+因為沒玩PSP關係
+
+當年玩PS版，甚至用模擬器重溫PS版時都沒2周目重新再打
+
+都是讀取通關存檔後就能用到藍地球
+
+但看了一些PSP版的貼子，都說改為讀取有星符號的通關檔會變成2周目，這時才能解鎖
+
+聽聞PSP版將原本的pocket station的小任務也改了
+
