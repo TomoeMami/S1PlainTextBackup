@@ -852,3 +852,13 @@ buff量蛮可观的，也能当拐，作为新时代的五星算是合格。
 
 你月就死活不肯出新的海大力？强行让狂海拉弓啊
 
+
+*****
+
+####  jackyhuang  
+##### 20784#       发表于 2026-5-5 18:43
+
+不是要弓海吗，给你看弓海<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
