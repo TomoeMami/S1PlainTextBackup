@@ -867,3 +867,13 @@ WIT STUDIO（「SPY×FAMILY」「進撃の巨人」など）制作による
 第1季将覆盖原作漫画50话内容，讲述路飞等人与山治相遇之前的故事，共7集，总时长约300分钟，2027年2月一次性播出
 [https://one-piece.com/news/79329/index.html](https://one-piece.com/news/79329/index.html)
 
+
+*****
+
+####  dqtql  
+##### 57#       发表于 2026-5-5 20:54
+
+wit该打个翻身仗了，这几年蹉成啥样了
+
+—— 来自 Xiaomi 23054RA19C, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
