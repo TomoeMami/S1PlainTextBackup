@@ -644,3 +644,37 @@ beni、sumi那次1个月，noah那次2周
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  高等黑暗  
+##### 1890#       发表于 2026-5-4 10:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">说实话 什么消息都没有你们在这里揣测女性和fanta有染不太好吧
+
+而且fanta那个事就算这两位真有说法 怎么看女性在这个事件里也是受害者一方啊，我觉得大概只是真的时期重合罢了
+
+*****
+
+####  noHentai  
+##### 1891#       发表于 2026-5-5 17:42
+
+没消息是好事啊，说明vspo内部铁板一块没有内鬼
+
+*****
+
+####  格林卡罗尔  
+##### 1892#       发表于 2026-5-5 18:58
+
+那干嘛公开处分，是工资不够扣了吗，还凭白被造黄谣，我都不知道回来的时候怎么解释
+
+*****
+
+####  poipanchao  
+##### 1893#       发表于 2026-5-5 20:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69577942&amp;ptid=2171972" target="_blank">格林卡罗尔 发表于 2026-5-5 18:58</a>
+
+那干嘛公开处分，是工资不够扣了吗，还凭白被造黄谣，我都不知道回来的时候怎么解释 ...</blockquote>
+说明有不得不处分的理由呗，这有什么难理解的
+
