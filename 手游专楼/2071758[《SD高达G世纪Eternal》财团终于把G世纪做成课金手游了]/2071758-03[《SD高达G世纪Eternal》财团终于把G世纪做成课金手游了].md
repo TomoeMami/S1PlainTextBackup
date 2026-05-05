@@ -3982,3 +3982,11 @@ me
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ドロロ  
+##### 4163#       发表于 2026-5-5 23:52
+
+心情不好又搞了10抽，把爱马给歪出来了顺便不死鸟升力2星，现在问题是0星的UR有点多，没战斗能力<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
