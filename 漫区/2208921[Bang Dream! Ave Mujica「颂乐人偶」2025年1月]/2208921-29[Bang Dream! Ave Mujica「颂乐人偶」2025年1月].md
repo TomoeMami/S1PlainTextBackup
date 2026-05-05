@@ -330,3 +330,11 @@ Nyamuchi也会努力工作的~</blockquote>
 
        [https://x.com/sasakirico/status/2051290331258531942](https://x.com/sasakirico/status/2051290331258531942)
 
+
+*****
+
+####  哈曼的YY  
+##### 41877#       发表于 2026-5-5 10:04
+
+听说昨晚有人嘴贴到别人脸上了
+
