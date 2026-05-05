@@ -3957,3 +3957,16 @@ me
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  rockroxas  
+##### 4161#       发表于 2026-5-5 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69578502&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2026-5-5 22:06</a>
+
+主线challenge模式给的两部作品sp徽章给谁用处大点？
+
+—— 来自 vivo V2419A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+看你的船配合得上哪些对应机？这两个作品最有用的就是各种map吧，不过元祖的单位多可以战一下未来
+
