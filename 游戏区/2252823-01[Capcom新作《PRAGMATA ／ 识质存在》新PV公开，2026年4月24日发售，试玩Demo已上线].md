@@ -5946,3 +5946,14 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 开了狂月档没注意被遇到的第一个肥仔一jio踩死。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 有比较省力的通关姿势吗？强化点要优先点血么？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  zqqwe  
+##### 921#       发表于 2026-5-5 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69576757&amp;ptid=2252823" target="_blank">Schwarzess 发表于 2026-5-5 11:44</a>
+开了狂月档没注意被遇到的第一个肥仔一jio踩死。
+有比较省力的通关姿势吗？强化点要优先点血么？    Re:Sou ...</blockquote>
+先继承一周目的月丝炮，正常打注意省一下纯月矿到第三关开始刷钱吧月丝炮升到至少二蓄，然后开始用月丝炮刷钱
+
