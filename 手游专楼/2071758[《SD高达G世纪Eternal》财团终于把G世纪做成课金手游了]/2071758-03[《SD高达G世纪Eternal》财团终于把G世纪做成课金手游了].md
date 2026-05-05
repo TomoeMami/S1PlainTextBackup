@@ -3935,3 +3935,15 @@ me
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  dfdddfdd  
+##### 4159#       发表于 2026-5-5 13:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69577040&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2026-5-5 13:19</a>
+恶魔是钓鱼位吗，我自己用感觉有点手短
+
+—— 来自 vivo V2419A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+这队血最少的是ssp大白鹅 所以对面高速就舒服钓鱼 低速就把盾的位置往前调大白鹅第一个出去后续打反击
+
