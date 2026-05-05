@@ -338,3 +338,14 @@ Nyamuchi也会努力工作的~</blockquote>
 
 听说昨晚有人嘴贴到别人脸上了
 
+
+*****
+
+####  yone0000  
+##### 41878#       发表于 2026-5-5 20:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69576421&amp;ptid=2208921" target="_blank">哈曼的YY 发表于 2026-5-5 10:04</a>
+
+听说昨晚有人嘴贴到别人脸上了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不能输给隔壁
+

@@ -902,3 +902,19 @@ buff量蛮可观的，也能当拐，作为新时代的五星算是合格。
 
 抽卡的欲望越来越低......石头快攒了3000了
 
+
+*****
+
+####  qixinno1  
+##### 20789#       发表于 2026-5-5 20:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冠呆大保底后我一直石不过三
+
+
+*****
+
+####  里村紅葉  
+##### 20790#       发表于 2026-5-5 20:56
+
+原来C元帅还没改过模<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
