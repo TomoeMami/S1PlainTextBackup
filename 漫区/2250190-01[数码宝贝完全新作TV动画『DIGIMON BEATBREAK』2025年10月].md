@@ -190,3 +190,11 @@ DBB的设定就是野生数码兽比有辅助主的要弱一些的
 
 2026-5-4 11:36 上传
 
+
+*****
+
+####  粉儿alice  
+##### 573#       发表于 2026-5-5 14:17
+
+ed3完整版配信出了 这么又找了棒子来贴<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+

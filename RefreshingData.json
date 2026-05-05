@@ -774,12 +774,12 @@
     "update": false
   },
   "2043244": {
-    "totalreply": 10956,
+    "totalreply": 10957,
     "title": "[『电锯人 第二部』Jump+ 2022年7月12日晚11点连载开启！]",
     "newtitle": "[『电锯人 第二部』Jump+ 2022年7月12日晚11点连载开启！]",
-    "lastedit": 1775385988,
+    "lastedit": 1777962373,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1998862": {
@@ -11952,10 +11952,10 @@
     "update": false
   },
   "2250190": {
-    "totalreply": 572,
+    "totalreply": 573,
     "title": "[数码宝贝完全新作TV动画『DIGIMON BEATBREAK』2025年10月]",
     "newtitle": "[数码宝贝完全新作TV动画『DIGIMON BEATBREAK』2025年10月]",
-    "lastedit": 1777865893,
+    "lastedit": 1777962008,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 13449,
+    "totalreply": 13450,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼4月]",
-    "lastedit": 1777960578,
+    "lastedit": 1777962373,
     "category": "外野",
     "active": true,
     "update": false
@@ -12717,10 +12717,10 @@
     "update": false
   },
   "2252861": {
-    "totalreply": 497,
+    "totalreply": 498,
     "title": "[后宫文／修罗场文讨论楼3.0 1231年终总结]",
     "newtitle": "[后宫文／修罗场文讨论楼3.0 0324 熊少20万字而亡]",
-    "lastedit": 1777720939,
+    "lastedit": 1777962131,
     "category": "外野",
     "active": true,
     "update": false
@@ -12888,10 +12888,10 @@
     "update": false
   },
   "2191394": {
-    "totalreply": 1781,
+    "totalreply": 1782,
     "title": "[UE5+二次元GTA+都市UGC开放世界，异环讨论贴]",
     "newtitle": "[UE5+二次元GTA+都市UGC开放世界，异环讨论贴]",
-    "lastedit": 1777961289,
+    "lastedit": 1777962249,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -15755,7 +15755,7 @@
     "newtitle": "[人来到世界的唯一目的就是未来创造出AI.]",
     "lastedit": 1777702817,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2276756": {
@@ -17037,10 +17037,10 @@
     "update": false
   },
   "2269805": {
-    "totalreply": 101,
+    "totalreply": 102,
     "title": "[之前用的整合资源站寄了，坛友有无相似网站推荐]",
     "newtitle": "[之前用的整合资源站寄了，坛友有无相似网站推荐]",
-    "lastedit": 1777907538,
+    "lastedit": 1777962132,
     "category": "外野",
     "active": true,
     "update": false
@@ -17082,10 +17082,10 @@
     "update": false
   },
   "2280301": {
-    "totalreply": 150,
+    "totalreply": 152,
     "title": "[中国向联合国发出警告：东京将很快具备制造核武器的能力]",
     "newtitle": "[中国向联合国发出警告：东京将很快具备制造核武器的能力]",
-    "lastedit": 1777961542,
+    "lastedit": 1777962373,
     "category": "外野",
     "active": true,
     "update": false
@@ -17145,10 +17145,10 @@
     "update": false
   },
   "2280319": {
-    "totalreply": 49,
+    "totalreply": 51,
     "title": "[浏阳烟花厂爆炸事故已致21死]",
     "newtitle": "[浏阳烟花厂爆炸事故已致21死]",
-    "lastedit": 1777959371,
+    "lastedit": 1777962370,
     "category": "外野",
     "active": true,
     "update": false
@@ -17172,10 +17172,10 @@
     "update": false
   },
   "2280321": {
-    "totalreply": 53,
+    "totalreply": 56,
     "title": "[最近怎么那么多洛克王国骑脸宝可梦的节奏？]",
     "newtitle": "[最近怎么那么多洛克王国骑脸宝可梦的节奏？]",
-    "lastedit": 1777961542,
+    "lastedit": 1777962488,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17186,6 +17186,15 @@
     "newtitle": "[异兽魔都 动画续篇制作决定 流媒体配信]",
     "lastedit": 1777961183,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2280108": {
+    "totalreply": 41,
+    "title": "[现在常见的战棋类型模版是哪几种？]",
+    "newtitle": "[现在常见的战棋类型模版是哪几种？]",
+    "lastedit": 1777962490,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
