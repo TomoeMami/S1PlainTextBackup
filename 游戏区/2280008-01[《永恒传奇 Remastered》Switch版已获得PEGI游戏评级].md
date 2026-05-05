@@ -896,3 +896,43 @@ TOA那边肯定是不同组做的，两边没啥冲突其实
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  eilot  
+##### 87#       发表于 2026-5-5 16:29
+
+ 本帖最后由 eilot 于 2026-5-5 16:33 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69577404&amp;ptid=2280008" target="_blank">oldttt 发表于 2026-5-5 15:52</a>
+
+快来吧 久别重逢法拉姐 隐藏必杀最好一周目也能开
+
+—— 来自 S1Fun</blockquote>
+記得TOD2的移植版，一周目就解鎖那招秘奧再能衍生的秘奧
+
+不過只得這一招那麼多，還要3周目就真是太搞笑了
+
+GBA版的換裝，是直接將全套內容做出來
+
+TOE的隱藏追加，主要都是通關後讀回存檔，在兩界之中新增了隱藏迷宮
+
+其後都是有通關存檔就解鎖
+
+不用做到周目重開那麼麻煩吧...印象中是元素精靈後的派生出來的藍大地這招解鎖?
+
+忘記了PS初版時有沒grade shop?
+
+看了巴哈提到的PSP版，好像點擊有星號的存檔時，會變成2周目重新開始，這時才能去到隱藏迷宮?
+
+
+*****
+
+####  猫将军  
+##### 88#       发表于 2026-5-5 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69577404&amp;ptid=2280008" target="_blank">oldttt 发表于 2026-5-5 15:52</a>
+快来吧 久别重逢法拉姐 隐藏必杀最好一周目也能开
+
+—— 来自 S1Fun</blockquote>
+toe没有周目概念<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
