@@ -2671,3 +2671,16 @@ SaveProfile0.save
 玩了一下午 脑袋生疼
 问一下角色旁边的牛奶瓶啥意思
 
+
+*****
+
+####  yikaa  
+##### 247#       发表于 2026-5-6 21:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69577970&amp;ptid=2279483" target="_blank">努斯万克 发表于 2026-5-5 19:03</a>
+
+玩了一下午 脑袋生疼
+
+问一下角色旁边的牛奶瓶啥意思</blockquote>
+选人界面的么？感觉没啥实际用处，就是个装饰的作用
+

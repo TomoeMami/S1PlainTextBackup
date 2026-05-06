@@ -997,3 +997,42 @@ buff量蛮可观的，也能当拐，作为新时代的五星算是合格。
 就是别让成田再瞎JB自搜了
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 20799#       发表于 2026-5-6 20:40
+
+ 本帖最后由 岸浪白野 于 2026-5-6 21:15 编辑 
+
+这活动除了出人这点没办法和剧情那有点远离人类的兄弟情部分之外，起码活动用到的美术资源绝对充足，剧情也够份量还有送新衣服，做的算挺可以的用心了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+活动地图还做了解决完剧情后的版本也是主线待遇了
+
+*****
+
+####  森兰丸  
+##### 20800#       发表于 2026-5-6 20:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69580047&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-5-6 10:05</a>
+
+太欧了 就萌新没有冠呆了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是萌新去年抽到的5星数量比非洲人的1倍还多!
+
+
+*****
+
+####  森兰丸  
+##### 20801#       发表于 2026-5-6 20:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">最后兄弟吵架选择帮弟弟的话红字说是炼狱级....弟弟还说自己会被瞬杀....可用梅林和光兔拐弟弟这不是挺能打的吗
+
+当然后备还是放了个大统领压箱
+
+*****
+
+####  森兰丸  
+##### 20802#       发表于 2026-5-6 21:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">如果是这次活动接着落泪的话提丰我大概就抽了....现在只能说是无缘了
+
