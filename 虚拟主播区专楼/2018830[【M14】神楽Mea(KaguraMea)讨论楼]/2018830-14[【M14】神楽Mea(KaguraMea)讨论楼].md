@@ -119,3 +119,13 @@
 
 这卡牌国内淘宝一搜都没啥人卖，折腾
 
+
+*****
+
+####  术士q  
+##### 20622#       发表于 2026-5-6 14:39
+
+几个月过去了，咩思路这么清晰了嘛，节奏完全压制了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+yauji确实是本质高手啊
+
