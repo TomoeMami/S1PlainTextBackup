@@ -963,3 +963,17 @@ toe是2周目的疯狂彗星吧，元精灵秘奥按键派生    Re:Source</bl
 
 聽聞PSP版將原本的pocket station的小任務也改了
 
+
+*****
+
+####  雪雨轻澜  
+##### 91#       发表于 2026-5-6 08:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69577767&amp;ptid=2280008" target="_blank">eilot 发表于 2026-5-5 17:58</a>
+因為沒玩PSP關係
+
+當年玩PS版，甚至用模擬器重溫PS版時都沒2周目重新再打
+
+都是讀取通關存檔後就能用到藍地 ...</blockquote>
+我没玩过psp版，我的理解是通关后再读取存档回到boss前不叫二周目，在有星号进度的前提重开才是二周目。因为图鉴是继承的，而且永恒也没有g点商店。我记得二周目（重开）会新增最高难度吧    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
