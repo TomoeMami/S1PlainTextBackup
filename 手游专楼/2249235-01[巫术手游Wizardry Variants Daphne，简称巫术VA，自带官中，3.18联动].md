@@ -317,3 +317,15 @@ sr妹子是大奖，这ssr的妖精什么烂货，装备还要专门的，目前
 
 想尝试一下，安卓为啥进去就黑屏？
 
+
+*****
+
+####  琉歌  
+##### 803#       发表于 2026-5-7 07:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69581019&amp;ptid=2249235" target="_blank">zukunes 发表于 2026-5-6 12:24</a>
+想尝试一下，安卓为啥进去就黑屏？</blockquote>
+小作坊的渣渣技术力，换设备或者上steam试试吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX5200, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
