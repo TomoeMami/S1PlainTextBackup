@@ -849,3 +849,16 @@ NOX好不容易前几集刚刚好感度提升
 还是夫人冲上去以后，NOX才勉强跟着比 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我看有说因为演员咖位和档期的问题，所以戏份很尴尬
 
+
+*****
+
+####  浅川雏羽  
+##### 1474#       发表于 2026-5-6 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69580942&amp;ptid=2250267" target="_blank">センコウ 发表于 2026-5-6 12:11</a>
+
+我看有说因为演员咖位和档期的问题，所以戏份很尴尬</blockquote>
+这片儿时间非常充裕，上一话去年刚开播那会儿就拍了，档期问题很好协调的
+
+单纯就是牢诺本质上还没完全入队，毕竟剧场版的卖点是三条Z和nox的奇迹共斗，在那之前牢莫都得单打独斗
+

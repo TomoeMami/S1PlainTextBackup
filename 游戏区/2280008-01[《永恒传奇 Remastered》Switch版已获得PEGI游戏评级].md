@@ -985,3 +985,26 @@ toe是2周目的疯狂彗星吧，元精灵秘奥按键派生    Re:Source</bl
 
 op的demo版flying一直非常喜欢，这个已经没有机会面世了，arrange比制品版好太多。
 
+
+*****
+
+####  膛线  
+##### 93#       发表于 2026-5-6 12:28
+
+GC都解散了，主题歌怎么办
+
+
+*****
+
+####  river1981  
+##### 94#       发表于 2026-5-6 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69577767&amp;ptid=2280008" target="_blank">eilot 发表于 2026-5-5 17:58</a>
+
+因為沒玩PSP關係
+
+當年玩PS版，甚至用模擬器重溫PS版時都沒2周目重新再打
+
+都是讀取通關存檔後就能用到藍地 ...</blockquote>
+存档有星号就可以了，这时候所有东西应该都解锁了。二周目主要是为了体验疯狂难度开荒吧。疯狂难度开场那个小boss挺要命的......
+
