@@ -221,3 +221,29 @@
 
 我劝美少女小黄毛做好心理准备哦，到时候哥哥弟弟来个双狮激天去打boss自己只能哭就惨咯<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gpx234mqx  
+##### 1469#       发表于 2026-5-6 21:43
+
+我就说
+
+要啥黄毛美少女，根本用不着的
+
+<img src="https://img.stage1st.com/forum/202605/06/214307xk1ryk75muawrd2r.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6352.png</strong> (388.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-6 21:43 上传
+
+<img src="https://img.stage1st.com/forum/202605/06/214307xhm9mqt0mkyc9r31.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6353.png</strong> (400.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-6 21:43 上传
+
