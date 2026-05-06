@@ -185,3 +185,14 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">成田不会10卷了再塞个无地王回忆水字数吧
 
+
+*****
+
+####  人又如何  
+##### 1466#       发表于 2026-5-6 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69579931&amp;ptid=2086574" target="_blank">八坂真寻 发表于 2026-5-6 09:48</a>
+
+成田不会10卷了再塞个无地王回忆水字数吧</blockquote>
+万一失地王是理查的最后一个背后灵呢
+
