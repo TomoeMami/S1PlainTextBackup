@@ -3998,3 +3998,11 @@ me
 
 只有第100抽有一次保底UR，第200抽是没有的么<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dio999  
+##### 4165#       发表于 2026-5-6 11:55
+
+200抽保底可换<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
