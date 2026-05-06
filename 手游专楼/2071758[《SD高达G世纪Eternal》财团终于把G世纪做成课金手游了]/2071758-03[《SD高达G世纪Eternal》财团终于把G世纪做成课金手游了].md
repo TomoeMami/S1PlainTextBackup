@@ -4014,3 +4014,14 @@ me
 
 现在这个强敌我到10级就过不去了，是去推主线弄点开发机体还是说有什么打法我不知道的<img src="https://static.stage1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  马桶3  
+##### 4167#       发表于 2026-5-6 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69582086&amp;ptid=2071758" target="_blank">qrlfafner 发表于 2026-5-6 15:59</a>
+现在这个强敌我到10级就过不去了，是去推主线弄点开发机体还是说有什么打法我不知道的 ...</blockquote>
+如果是自动到10级过不去就手操
+如果手操过不去就是阵容问题，你攻击机是三星UR吗，援护都是ur2援吗，有先清杂给boss上debuff 吗，上的除了减防外，有根据主力输出再上光束物理或者特殊增伤吗，全都做到杀lv20都可以
+

@@ -211,3 +211,13 @@
 之後可 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">强力的格斗家之间的激烈碰撞产生的能量就能呼唤地球意志了（KOF97）
 
+
+*****
+
+####  plok201  
+##### 1468#       发表于 2026-5-6 21:24
+
+失地王写那么high，除非这些天网上和别人对线被骂怂了，要不最终卷肯定很多字吧
+
+我劝美少女小黄毛做好心理准备哦，到时候哥哥弟弟来个双狮激天去打boss自己只能哭就惨咯<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
