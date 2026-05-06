@@ -196,3 +196,18 @@
 成田不会10卷了再塞个无地王回忆水字数吧</blockquote>
 万一失地王是理查的最后一个背后灵呢
 
+
+*****
+
+####  大十字紅朔  
+##### 1467#       发表于 2026-5-6 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69426755&amp;ptid=2086574" target="_blank">eilot 发表于 2026-4-1 22:24</a>
+
+所以之前的回貼都有提到成田這套FSF大家都不打，又或者打了但長期沒死人
+
+連金閃閃都一直躺到現在
+
+之後可 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">强力的格斗家之间的激烈碰撞产生的能量就能呼唤地球意志了（KOF97）
+
