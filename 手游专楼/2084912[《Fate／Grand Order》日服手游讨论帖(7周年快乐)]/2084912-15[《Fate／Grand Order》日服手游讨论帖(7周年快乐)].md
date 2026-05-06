@@ -954,3 +954,46 @@ buff量蛮可观的，也能当拐，作为新时代的五星算是合格。
 抽卡的欲望越来越低......石头快攒了3000了 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太欧了 就萌新没有冠呆了
 
+
+*****
+
+####  岸浪白野  
+##### 20795#       发表于 2026-5-6 17:21
+
+ 本帖最后由 岸浪白野 于 2026-5-6 18:09 编辑 
+
+可以了，起码这活动到最后结束还真送了套警察礼装<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/df7e82480288a7e2a67e2c4de38c9afa/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 20796#       发表于 2026-5-6 18:36
+
+怎么的现在都流行BOSS剩一管血不让你打了吗<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 20797#       发表于 2026-5-6 19:13
+
+ 本帖最后由 壳壳牛 于 2026-5-6 19:18 编辑 
+
+你游bug越来越多了
+难道双人卡的羁绊还要分开刷<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/7b8b013e38d2ac3810a7aab187b0665f/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  exiaexa  
+##### 20798#       发表于 2026-5-6 19:17
+
+这次联动整体相当可以了
+
+剧情体量和故事逻辑都不错，TMD以后能不能多来几个这种用心写的
+
+就是别让成田再瞎JB自搜了
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
