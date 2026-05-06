@@ -2684,3 +2684,17 @@ SaveProfile0.save
 问一下角色旁边的牛奶瓶啥意思</blockquote>
 选人界面的么？感觉没啥实际用处，就是个装饰的作用
 
+
+*****
+
+####  helix  
+##### 248#       发表于 2026-5-6 22:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69574775&amp;ptid=2279483" target="_blank">InfiniteGyre 发表于 2026-5-4 19:28</a>
+打宝石的限制有什么规律吗，万能好像是没法打到冰冻上面，但是也没看到在哪里提到过
+
+全通了，还有个不损坏 ...</blockquote>
+血上限就是空心打不消耗的宝石吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
