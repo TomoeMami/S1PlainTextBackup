@@ -918,3 +918,39 @@ buff量蛮可观的，也能当拐，作为新时代的五星算是合格。
 
 原来C元帅还没改过模<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 20791#       发表于 2026-5-5 20:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">今年都快过去1半了到现在新抽的角色还只有一个冠呆
+
+抽卡的欲望越来越低......石头快攒了3000了
+
+*****
+
+####  qixinno1  
+##### 20792#       发表于 2026-5-5 20:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冠呆大保底后我一直石不过三
+
+*****
+
+####  里村紅葉  
+##### 20793#       发表于 2026-5-5 20:56
+
+原来C元帅还没改过模<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 20794#       发表于 2026-5-6 10:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69578275&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-5-5 20:45</a>
+
+今年都快过去1半了到现在新抽的角色还只有一个冠呆
+
+抽卡的欲望越来越低......石头快攒了3000了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太欧了 就萌新没有冠呆了
+
