@@ -834,3 +834,18 @@ NOX好不容易前几集刚刚好感度提升
 
 还是夫人冲上去以后，NOX才勉强跟着比划了几下，仿佛在说“好麻烦啊”
 
+
+*****
+
+####  センコウ  
+##### 1473#       发表于 2026-5-6 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69580888&amp;ptid=2250267" target="_blank">饭冢武也 发表于 2026-5-6 12:03</a>
+
+NOX好不容易前几集刚刚好感度提升
+
+这集又有点两头都不想搭把手的感觉
+
+还是夫人冲上去以后，NOX才勉强跟着比 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我看有说因为演员咖位和档期的问题，所以戏份很尴尬
+
