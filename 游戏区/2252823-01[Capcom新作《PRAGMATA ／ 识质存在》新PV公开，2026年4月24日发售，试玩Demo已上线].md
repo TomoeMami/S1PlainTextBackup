@@ -6032,3 +6032,14 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 
 看着武器和血没升满不爽，打了狂月的new game+，砍瓜切菜啊，除了最终boss都是无双过去的<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 928#       发表于 2026-5-7 02:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69573601&amp;ptid=2252823" target="_blank">Vladimeow 发表于 2026-5-4 12:32</a>
+
+有个100秒内杀完才能满星的挑战，也太难了，牢住了</blockquote>
+100秒那个好像是特定战术的教程关，具体忘了是不是黏黏弹+暴击节点，总之是固定解法的一关
+
