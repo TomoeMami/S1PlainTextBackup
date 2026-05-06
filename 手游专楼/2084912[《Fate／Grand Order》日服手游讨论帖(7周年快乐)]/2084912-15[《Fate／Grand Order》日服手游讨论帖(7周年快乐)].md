@@ -1186,3 +1186,66 @@ buff量蛮可观的，也能当拐，作为新时代的五星算是合格。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你的意思是，我们错过了一个TV开播的时候，一看到黄毛美少女满屏弹幕都在说理查约翰99的世界么，TM的太可惜了
 
+
+*****
+
+####  jackyhuang  
+##### 20807#       发表于 2026-5-6 22:20
+
+动画二期的时候能看见两路人马打破头吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Jamaisvu  
+##### 20808#       发表于 2026-5-6 22:56
+
+ 本帖最后由 Jamaisvu 于 2026-5-6 22:59 编辑 
+
+突然发现剧情中从者放宝具的话，文本里是有台词的：
+
+<img src="https://img.stage1st.com/forum/202605/06/225615bc5eie6qnkff55al.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260506_214428_com.aniplex.fategrandorder.jpg</strong> (161.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-5-6 22:56 上传
+
+<img src="https://img.stage1st.com/forum/202605/06/224740u32ndn88a3d81748.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260506_224604_com.aniplex.fategrandorder.jpg</strong> (121.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-5-6 22:47 上传
+
+起因是三破理查放宝具后，回看文本发现有台词，楼上的后记里提到蘑菇说王哈对狂信的语音是早就录好的，于是顺手翻了下上半场的剧情，果然是特殊台词。
+
+有文本对照方便多了，对我这种日语苦手非常友好...
+
+*****
+
+####  qixinno1  
+##### 20809#       发表于 2026-5-6 23:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都这么久了还是不忘辱青 今年周年能捞到强化吗
+
+<img src="https://img.stage1st.com/forum/202605/06/230012qxs4oxqopo7k7ocn.png" referrerpolicy="no-referrer">
+
+<strong>}E5JY3BV){MIB])7@BMUAST.png</strong> (193.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-6 23:00 上传
+
+*****
+
+####  Jamaisvu  
+##### 20810#       发表于 2026-5-7 00:02
+
+兄弟喧哗选了炼狱难度，6T打完，好像也没多难？不算战续理查就两条血...
+

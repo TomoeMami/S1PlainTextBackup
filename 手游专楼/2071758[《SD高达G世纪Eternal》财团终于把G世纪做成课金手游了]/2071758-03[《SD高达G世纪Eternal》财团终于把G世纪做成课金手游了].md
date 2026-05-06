@@ -4038,3 +4038,11 @@ me
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  王俊凯  
+##### 4169#       发表于 2026-5-7 00:03
+
+sp现阶段就是随便用，爱给哪个给哪个，但是注意一下永恒之路某些关卡sp化后作业会变得难抄的除非再造一个，特指w<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
