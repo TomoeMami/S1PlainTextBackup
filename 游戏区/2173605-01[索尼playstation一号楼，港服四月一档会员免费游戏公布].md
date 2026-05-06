@@ -41,3 +41,24 @@ cod官方首次明确表示，MW4不登录 PS4平台。
 
 PS第一方工作室游骑兵所带来的多人战术合作动作游戏《地平线：猎人集结》即将于5月22日开启2测，届时将放出更多新角色与新地图。本作中玩家可三人成团，从风格、武器各异的独特猎人中选择，与好友或NPC协同作战，对抗致命的机器威胁。
 
+
+*****
+
+####  ztkong  
+##### 650#       发表于 2026-5-6 09:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69518952&amp;ptid=2173605" target="_blank">闽明 发表于 2026-4-21 22:39</a>
+
+日服是日文的，这种老游戏就是这样了，港服基本没有中文就给英文</blockquote>
+五一期间白金了，真不愧是系列最短的4代，主线20小时，补全宝箱练级合成装备斗技场之类的差不多又花了16小时。。。
+
+另外如果有坛友要玩，千万少用游戏里面即时存档。。。目前非常容易报错跳出。退回功能也有一定概率跳出，不过我全程因为退回跳出的也就3次。。。索尼你下次出f和5代能多优化测试下么。另外现成的3代能不能尽快进3档顺便加个日文<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202605/06/085831k40fli923rie0fuf.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260506085615_146_76.png</strong> (16.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-6 08:58 上传
+
