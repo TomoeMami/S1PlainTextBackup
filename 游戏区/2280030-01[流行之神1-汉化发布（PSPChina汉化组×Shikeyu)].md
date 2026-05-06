@@ -422,3 +422,11 @@ eden如何加载mod?
 
 十多年前就通关过，最优秀的是BGM，可惜没有语音，广播剧里全语音那才叫享受。故事其实写得一般般，尤其是终章废弃地铁站太敷衍了。所谓灵异和科学线实际是两面不讨好，怪谈爱好者谁管你科学啊，科学线就应该删掉，只要灵异线就够了
 
+
+*****
+
+####  Yinacona  
+##### 42#       发表于 2026-5-7 01:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">感谢汉化
+
