@@ -6284,3 +6284,15 @@ https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 玩过试玩的都知道设计上没什么左右互搏的，枪械还故意做得自动缓慢上弹，给够时间你入侵不用管射击了。除了隔壁头孢僵尸换皮的步行者mk ii也没几个移动飞快让你忙不过来，还自带DBM，专心骇入分心不过来时听到戴安娜喊话了立即按个闪避就行，入侵也不会重制。戴安娜是乘算加分项，游戏本体各方面做得不错才是销量下限保证。
 我又在开狂月new game +爽去了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哎哟卧槽了  
+##### 952#       发表于 2026-5-7 19:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69588090&amp;ptid=2252823" target="_blank">otakun 发表于 2026-5-7 19:23</a>
+玩过试玩的都知道设计上没什么左右互搏的，枪械还故意做得自动缓慢上弹，给够时间你入侵不用管射击了。除了 ...</blockquote>
+入侵重置的，不重置是安裝了芯片……
+
+—— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
