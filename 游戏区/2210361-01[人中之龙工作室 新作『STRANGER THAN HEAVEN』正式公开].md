@@ -141,3 +141,13 @@ ado可以露脸了？</blockquote>
 
 我丢，还有露脸ado，不过估计p过了
 
+
+*****
+
+####  安广多惠子  
+##### 122#       发表于 2026-5-7 09:40
+
+歌不錯，找ado姐對的，這不比什麼肥婆kson強十倍<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
