@@ -175,3 +175,15 @@ gpt5.5可能比deepseek v4大一个数量级，10T。小的模型要更强的任
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  orca  
+##### 1340#       发表于 2026-5-8 07:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69589382&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-5-8 05:59</a>
+识图功能是不是已经全面铺开了？我之前没有灰度到，但现在无论是手机还是电脑上都已经刷出来了。
+
+—— 来 ...</blockquote>
+不是<img src="https://static.stage1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
