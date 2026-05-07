@@ -4087,3 +4087,16 @@ seed相对来说差很多
 
 虽然现在应该都直接送活动sp了……
 
+
+*****
+
+####  马桶3  
+##### 4171#       发表于 2026-5-7 07:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69584073&amp;ptid=2071758" target="_blank">qrlfafner 发表于 2026-5-6 23:47</a>
+
+自动的，都是0破，支援一般一队带几个？我一队主力船是王牌就带了一个绿独角支援，要加个么
+
+—— 来自 S ...</blockquote>
+都是0破我建议你先整个SSP的开发OOR当主力输出<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
