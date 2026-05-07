@@ -209,3 +209,40 @@ pv里也就最早的时代还有兄弟，后面好像只有主角一个了
 
 前面3个时代的角色露脸最多，51年只有个别镜头，65年的大东形象只漏个侧面
 
+
+*****
+
+####  GameTheory  
+##### 128#       发表于 2026-5-7 10:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69585054&amp;ptid=2210361" target="_blank">zhangruiy 发表于 2026-5-7 09:55</a>
+
+pv里也就最早的时代还有兄弟，后面好像只有主角一个了
+
+如果是反目的话东城会应该不会用兄弟名字吧，大概半 ...</blockquote>
+初代会长不是叫 东城 真 么
+
+*****
+
+####  真岛建设泥头车  
+##### 129#       发表于 2026-5-7 10:11
+
+<img src="https://img.stage1st.com/forum/202605/07/101134ckdbz6dwwdwyxpxd.jpg" referrerpolicy="no-referrer">
+
+<strong>未命名.jpg</strong> (131.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-7 10:11 上传
+
+这个战斗系统不知道能不能打顺拐<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 130#       发表于 2026-5-7 10:15
+
+铁拳 X
+黑魂 O
+
