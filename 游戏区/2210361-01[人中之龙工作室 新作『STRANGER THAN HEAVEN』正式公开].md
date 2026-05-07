@@ -532,3 +532,12 @@ pv里也就最早的时代还有兄弟，后面好像只有主角一个了
 
 看主题曲什么时候放源<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  u2deack  
+##### 163#       发表于 2026-5-7 19:21
+
+横山说这次因为原剧本就是日英文混杂所以就只会有一个配音版本，应该是没中配了
+要做中配也只能做中英混杂
+
