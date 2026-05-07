@@ -511,3 +511,16 @@ pv里也就最早的时代还有兄弟，后面好像只有主角一个了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  黑上シグマ  
+##### 161#       发表于 2026-5-7 18:33
+
+<blockquote>引用第149楼otaku21126于2026-05-07 14:37发表的  :
+
+大冢明夫这新作里的角色感觉和如龙78里足立宏一脸部建模几乎一样啊感觉十有八九是父子关系，足立宏一在如......</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你在说啥？那脸不一看就是他本人的脸吗
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
