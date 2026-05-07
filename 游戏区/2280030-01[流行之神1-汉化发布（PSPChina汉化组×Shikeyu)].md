@@ -469,3 +469,14 @@ eden如何加载mod?
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  三级怪兽  
+##### 47#       发表于 2026-5-7 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69585964&amp;ptid=2280030" target="_blank">夜_乌鸦 发表于 2026-5-7 12:21</a>
+
+刚打完第一章，大家一般都是咋玩的啊？深度搜索还是广度搜索？</blockquote>
+ns版有分支树了，所以随便怎么玩都行，不过还是建议一条线不看攻略自己玩下去
+
