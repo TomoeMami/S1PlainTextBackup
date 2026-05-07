@@ -430,3 +430,11 @@ eden如何加载mod?
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">感谢汉化
 
+
+*****
+
+####  zyqwert2  
+##### 43#       发表于 2026-5-7 11:02
+
+这真是有生之年了，支持！
+

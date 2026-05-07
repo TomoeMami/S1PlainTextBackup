@@ -353,3 +353,11 @@ sr妹子是大奖，这ssr的妖精什么烂货，装备还要专门的，目前
 晚上试试了steam ,好古老的游戏，这个人物怎么看评级？打通主线，难不难？不是又是一个肝报废吧 ...</blockquote>
 查Wiki就行，目前最强的人物大多在普池，整个王女，蝴蝶，土法，爱丽丝，加上现在复刻的狐狸，够你杀穿绝大部分关卡了，主线也就要塞有点难，不过有了配专武的狐狸，也就和塞恩游乐场差不多
 
+
+*****
+
+####  琉歌  
+##### 806#       发表于 2026-5-7 11:04
+
+wiki可以看这个，[https://wizdaphne.huijiwiki.com/wiki/%E9%A6%96%E9%A1%B5](https://wizdaphne.huijiwiki.com/wiki/%E9%A6%96%E9%A1%B5)，最近更新了不少新手入坑方面的页面，时效性的讨论可以看看巴哈的专区。至于肝报废，你游大后期基本都是在刷装，不过现在有小狐狸轮椅，没数值强迫症以及不追求打高难boss其实不怎么刷也行<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
