@@ -77,3 +77,13 @@ Token efficiency 这块好像没有比 GPT-5.5 做得更好的了（现在还出
 
 还有就是让DS/Mimo两兄弟干活, 怎么还能给我旧代码加上新bug. 最后两兄弟来回切换都完成不了任务, 切到GPT一看才发现问题. 下次碰到这问题得反查下opencode聊天记录. 看看是哪个模型干的.
 
+
+*****
+
+####  overflowal  
+##### 1332#       发表于 2026-5-7 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69586462&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-5-7 14:24</a>
+Token efficiency 这块好像没有比 GPT-5.5 做得更好的了（现在还出了 Instant 模式），贴张我的使用记录， ...</blockquote>
+gpt5.5可能比deepseek v4大一个数量级，10T。小的模型要更强的任务完成能力，那就要多加思考token    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
