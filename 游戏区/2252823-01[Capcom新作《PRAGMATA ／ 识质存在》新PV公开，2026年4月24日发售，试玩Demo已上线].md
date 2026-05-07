@@ -6247,3 +6247,11 @@ https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 
 丁真在哪发财呢啊?
 
+
+*****
+
+####  benhawk  
+##### 948#       发表于 2026-5-7 17:25
+
+是不是以后会少一点丑八怪和小男孩
+
