@@ -6318,3 +6318,22 @@ https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 
 这游戏这么快就200w，岛哥哥快哭死了感觉，好笑
 
+
+*****
+
+####  x分裂者  
+##### 955#       发表于 2026-5-7 21:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69588090&amp;ptid=2252823" target="_blank">otakun 发表于 2026-5-7 19:23</a>
+玩过试玩的都知道设计上没什么左右互搏的，枪械还故意做得自动缓慢上弹，给够时间你入侵不用管射击了。除了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开了狂月new game+就知道狂月不给继承标准的养成是对的，能继承的话比标准一周目还简单
+
+*****
+
+####  x分裂者  
+##### 956#       发表于 2026-5-7 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69588346&amp;ptid=2252823" target="_blank">moeful 发表于 2026-5-7 20:35</a>
+这游戏这么快就200w，岛哥哥快哭死了感觉，好笑</blockquote>
+甚至比鬼泣5卖的好说是，没记错的话鬼泣5一个半月才250w
+
