@@ -152,3 +152,16 @@ gpt5.5可能比deepseek v4大一个数量级，10T。小的模型要更强的任
 ####  莱茵哈鲁特  
 ##### 1337#       发表于 2026-5-7 23:57
 
+
+*****
+
+####  冤枉呐  
+##### 1338#       发表于 2026-5-8 00:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69587747&amp;ptid=2275806" target="_blank">龙骑将 发表于 2026-5-7 18:06</a>
+我也这么想的，甚至这mod本身就有ai语音输出功能，如果再加上ai语音输入，以后就可能用言语和npc交流，影 ...</blockquote>
+其实等于是大型酒馆
+无非就是对话用个接口发过去
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
