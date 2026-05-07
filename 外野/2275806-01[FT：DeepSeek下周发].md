@@ -37,3 +37,13 @@
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  holmesjerry  
+##### 1329#       发表于 2026-5-7 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69586349&amp;ptid=2275806" target="_blank">UmarIbnLaAhad 发表于 2026-5-7 13:57</a>
+廉价的1m上下文太爽了，一整本厕纸扔进去梳理剧情+给太监文续吊不是梦</blockquote>
+这几天试了 能给太监的皇叔续写十几万字不是问题
+
