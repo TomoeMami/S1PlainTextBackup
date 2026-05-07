@@ -350,3 +350,13 @@ pv里也就最早的时代还有兄弟，后面好像只有主角一个了
 
 我感觉史努比客串有点出戏，该不会他私底下喜欢玩如龙吧
 
+
+*****
+
+####  byisme001  
+##### 144#       发表于 2026-5-7 12:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69585977&amp;ptid=2210361" target="_blank">hkguty 发表于 2026-5-7 12:24</a>
+我感觉史努比客串有点出戏，该不会他私底下喜欢玩如龙吧</blockquote>
+应该是他儿子玩吧 也参演了
+
