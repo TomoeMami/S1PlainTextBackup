@@ -342,3 +342,14 @@ sr妹子是大奖，这ssr的妖精什么烂货，装备还要专门的，目前
 —— 来自 realme RMX5200, Android 16, 鹅球 v3.5.99 ...</blockquote>
 晚上试试了steam ,好古老的游戏，这个人物怎么看评级？打通主线，难不难？不是又是一个肝报废吧
 
+
+*****
+
+####  电脑死机  
+##### 805#       发表于 2026-5-7 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69584783&amp;ptid=2249235" target="_blank">zukunes 发表于 2026-5-7 09:05</a>
+
+晚上试试了steam ,好古老的游戏，这个人物怎么看评级？打通主线，难不难？不是又是一个肝报废吧 ...</blockquote>
+查Wiki就行，目前最强的人物大多在普池，整个王女，蝴蝶，土法，爱丽丝，加上现在复刻的狐狸，够你杀穿绝大部分关卡了，主线也就要塞有点难，不过有了配专武的狐狸，也就和塞恩游乐场差不多
+

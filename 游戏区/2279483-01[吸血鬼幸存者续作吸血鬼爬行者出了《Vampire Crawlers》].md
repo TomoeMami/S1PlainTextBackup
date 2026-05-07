@@ -2722,3 +2722,16 @@ SaveProfile0.save
 
 —— 来自 motorola edge 2025, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  John_Stockton  
+##### 251#         楼主| 发表于 2026-5-7 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69584235&amp;ptid=2279483" target="_blank">pointer243 发表于 2026-5-7 01:10</a>
+
+把死神打死了就会来另一只更高攻的死神，大概600多伤害。直到你复活全部用完
+
+—— 来自 motorola edge 2 ...</blockquote>
+其实就是加一个100%的诅咒，不停叠。体验反而不如上一作的白死神好
+

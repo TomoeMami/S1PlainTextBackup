@@ -6078,3 +6078,16 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 
 前中期无法清除路上的死丝是因为Diana记忆被清了啊。
 
+
+*****
+
+####  viperasi  
+##### 932#       发表于 2026-5-7 09:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69584759&amp;ptid=2252823" target="_blank">mai6696 发表于 2026-5-7 09:01</a>
+
+看博士的研究资料，之前7号不成功就是因为她有清除死丝的能力。
+
+后来做了8号，她有聚合死丝的能力，才能顺 ...</blockquote>
+啊？晚上回去确认下  <img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
