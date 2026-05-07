@@ -25,3 +25,11 @@
 
 没有联动角色，转发奖励还只有金币<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 1974#         楼主| 发表于 2026-5-7 16:52
+
+我甚至不知道隔壁是啥类型的游戏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6203,3 +6203,29 @@ https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 
 发售了一个月不到已经过2百万了，也算是相当成功的原创ip了，dlc和续作有望了
 
+
+*****
+
+####  evestart  
+##### 944#       发表于 2026-5-7 16:56
+
+发售一个月都没到已经200万销量了吗，现在新玩法+新IP能有这种成绩很强了。
+
+*****
+
+####  哎哟卧槽了  
+##### 945#       发表于 2026-5-7 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69587232&amp;ptid=2252823" target="_blank">风间坚次 发表于 2026-5-7 16:44</a>
+发售了一个月不到已经过2百万了，也算是相当成功的原创ip了，dlc和续作有望了 ...</blockquote>
+關鍵是原價200萬，那的確是很厲害了
+
+—— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  thez  
+##### 946#       发表于 2026-5-7 16:57
+
+最终能破500万吗
+
