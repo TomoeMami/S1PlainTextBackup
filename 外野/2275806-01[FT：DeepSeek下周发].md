@@ -47,3 +47,21 @@
 廉价的1m上下文太爽了，一整本厕纸扔进去梳理剧情+给太监文续吊不是梦</blockquote>
 这几天试了 能给太监的皇叔续写十几万字不是问题
 
+
+*****
+
+####  ayanamilin  
+##### 1330#       发表于 2026-5-7 14:24
+
+ 本帖最后由 ayanamilin 于 2026-5-7 14:25 编辑 
+
+Token efficiency 这块好像没有比 GPT-5.5 做得更好的了（现在还出了 Instant 模式），贴张我的使用记录，奥特曼说虽然 5.5 虽然定价更贵，但是实际上更便宜不是不无道理的
+
+<img src="https://img.stage1st.com/forum/202605/07/142346mvzvnbngftvsonoq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (80.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-7 14:23 上传
+

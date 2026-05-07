@@ -8,3 +8,12 @@
 
 对方有联动活动而你游只有联动服装没活动和角色？太不给面子了吧
 
+
+*****
+
+####  madcow  
+##### 1972#       发表于 2026-5-7 14:17
+
+又看了一下，啊确实只有衣服。
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">药丸
+
