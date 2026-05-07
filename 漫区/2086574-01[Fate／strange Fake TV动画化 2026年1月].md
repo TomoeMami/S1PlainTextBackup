@@ -427,3 +427,15 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  character  
+##### 1474#       发表于 2026-5-7 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69586767&amp;ptid=2086574" target="_blank">yangun22 发表于 2026-5-7 15:24</a>
+不如说只有黄毛女加剑阶理查才能奇迹般的搞出个稍微正常一点的理查，换其他人包括他弟弟没一个能控制住他的 ...</blockquote>
+那你倒是疯起来啊
+
+理查这个角色我很没感的一点就是一直说他是个狠人，但剧里从来只是一个有点脱线的爽朗青年，压根没啥极端行为
+

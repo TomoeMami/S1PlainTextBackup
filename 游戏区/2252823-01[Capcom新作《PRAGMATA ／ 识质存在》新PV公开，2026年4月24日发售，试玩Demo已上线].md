@@ -6296,3 +6296,17 @@ https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 
 —— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ParadiseMartyr  
+##### 953#       发表于 2026-5-7 20:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69588154&amp;ptid=2252823" target="_blank">哎哟卧槽了 发表于 2026-5-7 19:44</a>
+入侵重置的，不重置是安裝了芯片……
+
+—— 來自 Google Pixel 2, Android 11, 鵝球 v3.5.99 ...</blockquote>
+只要不被打到就不会重置
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
