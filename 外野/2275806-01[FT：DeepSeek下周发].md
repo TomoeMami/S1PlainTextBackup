@@ -107,3 +107,28 @@ gpt5.5可能比deepseek v4大一个数量级，10T。小的模型要更强的任
 
 另外看网友说，这个mod还可以做到，诈骗npc，挑拨两国交战或长久和平之类的功能，只能说未来可期啊未来可期
 
+
+*****
+
+####  冤枉呐  
+##### 1334#       发表于 2026-5-7 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69587619&amp;ptid=2275806" target="_blank">龙骑将 发表于 2026-5-7 17:42</a>
+实际效果接近于在骑马与砍杀里，进行跑团，和npc对话，直接用文字聊天，npc应该是随机生成的任务，也是以 ...</blockquote>
+不得了了！
+要是拿这玩意配合辐射，老滚这些本来就有实验室的……
+或者更开放一点的世界，配合生图
+还得了？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  冤枉呐  
+##### 1335#       发表于 2026-5-7 18:00
+
+这两天跟DeepSeek鉴证吵架吵爽了
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
