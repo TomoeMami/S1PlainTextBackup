@@ -17,3 +17,11 @@
 又看了一下，啊确实只有衣服。
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">药丸
 
+
+*****
+
+####  冰风血羽  
+##### 1973#       发表于 2026-5-7 14:30
+
+没有联动角色，转发奖励还只有金币<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

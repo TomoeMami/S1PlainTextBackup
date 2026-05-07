@@ -396,3 +396,24 @@ pv里也就最早的时代还有兄弟，后面好像只有主角一个了
 
 关于已故演员菅原文太先生出演如龙工作室新作《异于天堂》(STRANGER THAN HEAVEN) 引起了不少玩家的疑问。SEGA也给出了明确的解释，游戏中的形象是正式取得菅原先生家属的同意后，以曾制作《无仁义之战》等多部作品的东映株式会社所提供的影像、照片等资料为基础制作的CG。角色配音方面将由与菅原文太先生渊源深厚的演员宇梶刚士先生担任。
 
+
+*****
+
+####  汪达  
+##### 149#       发表于 2026-5-7 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69585892&amp;ptid=2210361" target="_blank">zqqwe 发表于 2026-5-7 12:10</a>
+
+这战斗使劲往拟真体验方向做是不抱什么期望了，剧情倒是有点看头</blockquote>
+我的感觉相反，新VR战士的各种宣传片让人不明觉厉，感觉SEGA还是有点东西，新的战斗要素值得期待一下
+
+至于剧本……得了一种看见横导就想笑的病<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  otaku21126  
+##### 150#       发表于 2026-5-7 14:37
+
+大冢明夫这新作里的角色感觉和如龙78里足立宏一脸部建模几乎一样啊<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+感觉十有八九是父子关系，足立宏一在如龙7马上要从警察工作上退休，如龙7故事时间是2019年，那么异于天堂最后一个故事时间1965年刚好是足立宏一出生的那一年
+

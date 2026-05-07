@@ -2745,3 +2745,11 @@ SaveProfile0.save
 
 我觉得要砍一下万能卡或者抽牌卡的数量
 
+
+*****
+
+####  水边井  
+##### 253#       发表于 2026-5-7 14:29
+
+把温和宝石看成万能宝石了<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
