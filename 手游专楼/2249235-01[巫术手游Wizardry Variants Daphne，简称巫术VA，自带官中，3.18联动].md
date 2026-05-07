@@ -329,3 +329,16 @@ sr妹子是大奖，这ssr的妖精什么烂货，装备还要专门的，目前
 
 —— 来自 realme RMX5200, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zukunes  
+##### 804#       发表于 2026-5-7 09:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69584454&amp;ptid=2249235" target="_blank">琉歌 发表于 2026-5-7 07:10</a>
+
+小作坊的渣渣技术力，换设备或者上steam试试吧
+
+—— 来自 realme RMX5200, Android 16, 鹅球 v3.5.99 ...</blockquote>
+晚上试试了steam ,好古老的游戏，这个人物怎么看评级？打通主线，难不难？不是又是一个肝报废吧
+
