@@ -439,3 +439,16 @@
 
 理查这个角色我很没感的一点就是一直说他是个狠人，但剧里从来只是一个有点脱线的爽朗青年，压根没啥极端行为
 
+
+*****
+
+####  Lawliet.L  
+##### 1475#       发表于 2026-5-7 20:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69588221&amp;ptid=2086574" target="_blank">character 发表于 2026-5-7 20:04</a>
+
+那你倒是疯起来啊
+
+理查这个角色我很没感的一点就是一直说他是个狠人，但剧里从来只是一个有点脱线的爽朗 ...</blockquote>
+和那些抽象暴君比较，你的感觉是对的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
