@@ -6195,3 +6195,11 @@ https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  风间坚次  
+##### 943#       发表于 2026-5-7 16:44
+
+发售了一个月不到已经过2百万了，也算是相当成功的原创ip了，dlc和续作有望了
+
