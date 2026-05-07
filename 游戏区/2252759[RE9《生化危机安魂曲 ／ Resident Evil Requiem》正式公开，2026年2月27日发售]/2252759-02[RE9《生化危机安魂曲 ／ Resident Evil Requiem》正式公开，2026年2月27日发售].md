@@ -313,3 +313,11 @@ re引擎的生化在对敌武器应用上都非常垃圾.234789全都是.9的武
 
 但看來不像GRACE是永久加最大值，因為打得太多針可能會弱化/失控
 
+
+*****
+
+####  otakun  
+##### 2337#       发表于 2026-5-7 20:52
+
+你删那么多，最好边角料也拿出来给我弄个剧情DLC <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
