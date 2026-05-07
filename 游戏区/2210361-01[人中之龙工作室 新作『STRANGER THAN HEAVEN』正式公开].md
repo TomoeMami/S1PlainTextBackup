@@ -106,3 +106,38 @@ CAST&amp;剧情PV
 
 ado可以露脸了？
 
+
+*****
+
+####  爱护动物抓根宝  
+##### 118#       发表于 2026-5-7 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69584810&amp;ptid=2210361" target="_blank">Demi.Albertini 发表于 2026-5-7 09:11</a>
+ado可以露脸了？</blockquote>
+之前mv就露脸了
+
+*****
+
+####  57042711  
+##### 119#       发表于 2026-5-7 09:30
+
+还以为主角是堂岛大吾<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  抹茶瓜  
+##### 120#       发表于 2026-5-7 09:33
+
+真就是东城真的东城会起源建立故事啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 121#       发表于 2026-5-7 09:33
+
+我丢，还有露脸ado，不过估计p过了
+
