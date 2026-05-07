@@ -559,3 +559,16 @@ pv里也就最早的时代还有兄弟，后面好像只有主角一个了
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  放大镜  
+##### 166#       发表于 2026-5-7 22:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69588049&amp;ptid=2210361" target="_blank">那由 发表于 2026-5-7 19:14</a>
+
+看主题曲什么时候放源</blockquote>
+可以先拿这个凑合下<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[https://www.bilibili.com/video/BV1NNdFBLE78](https://www.bilibili.com/video/BV1NNdFBLE78)
+
