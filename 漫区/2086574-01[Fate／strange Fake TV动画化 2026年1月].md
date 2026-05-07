@@ -398,3 +398,19 @@
 
 2026-5-6 21:54 上传
 
+
+*****
+
+####  yangun22  
+##### 1472#       发表于 2026-5-7 15:24
+
+不如说只有黄毛女加剑阶理查才能奇迹般的搞出个稍微正常一点的理查，换其他人包括他弟弟没一个能控制住他的，迦勒底招出来的剑阶在资料解锁后也发现他最终还是放飞自我了，哪怕自己的炼狱之火烧光迦勒底和御主也不怕了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202605/07/152159b4a354afa4ffpaaz.jpg" referrerpolicy="no-referrer">
+
+<strong>1 (5).jpg</strong> (49.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-7 15:21 上传
+
