@@ -6310,3 +6310,11 @@ https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  moeful  
+##### 954#       发表于 2026-5-7 20:35
+
+这游戏这么快就200w，岛哥哥快哭死了感觉，好笑
+
