@@ -446,3 +446,26 @@ eden如何加载mod?
 
 刚打完第一章，大家一般都是咋玩的啊？深度搜索还是广度搜索？
 
+
+*****
+
+####  helix  
+##### 45#       发表于 2026-5-7 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69584270&amp;ptid=2280030" target="_blank">隔壁老黄 发表于 2026-5-7 01:48</a>
+十多年前就通关过，最优秀的是BGM，可惜没有语音，广播剧里全语音那才叫享受。故事其实写得一般般，尤其是 ...</blockquote>
+感觉它这个科学线也是偏怪谈的科学吧，像是在看啥地摊科普小报<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  helix  
+##### 46#       发表于 2026-5-7 15:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69585964&amp;ptid=2280030" target="_blank">夜_乌鸦 发表于 2026-5-7 12:21</a>
+刚打完第一章，大家一般都是咋玩的啊？深度搜索还是广度搜索？</blockquote>
+一条线走到头吧，这游戏选过的选项会自动登录到系统里，回收分支的时候存档选过一条再读档选别的就行了，不用一定要走到结局
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
