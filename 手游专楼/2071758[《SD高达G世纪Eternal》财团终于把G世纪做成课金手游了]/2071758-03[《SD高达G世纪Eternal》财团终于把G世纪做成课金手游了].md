@@ -4126,3 +4126,14 @@ v高达？gqx？
 
 主线的话，应该是F91和海盗先吧，然后旧三国
 
+
+*****
+
+####  qrlfafner  
+##### 4174#       发表于 2026-5-7 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69584536&amp;ptid=2071758" target="_blank">马桶3 发表于 2026-5-7 07:56</a>
+
+都是0破我建议你先整个SSP的开发OOR当主力输出</blockquote>
+开发OOR的材料好难刷啊，我到现在才刷到2个材料，另一边的李疯子高达都可以做两台了
+
