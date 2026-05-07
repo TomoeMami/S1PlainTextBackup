@@ -244,3 +244,19 @@ EZ的水平是真的普遍很高呢，嗯。呐，有一次我被悠米附身，
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">说真的我不太明白为啥还在小法波比，不试试小法其他。是觉得比赛不会ban吗？
 
+
+*****
+
+####  术士q  
+##### 20633#       发表于 2026-5-7 23:07
+
+ 本帖最后由 术士q 于 2026-5-7 23:09 编辑 
+
+ban位宝贵啊，现在大家段位都上来了，说实话bp也开始做得都像样起来了，波比要ban，那么是前三楼得ban了，前三楼ban波比还剩下两个ban位，中路发条要ban吗，不ban那发条梦魇了，那ban发条和抢梦魇的话，也可以玩永恩兰博，如果要针对打野，那也可以ban皇子，但是这打野猴子也还是能玩，而且实在不行选个大树玩大树永恩就行了，大树也不难练<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+教练毕竟是现役，战术储备是比较好的，作为一个有价值拿出来的阵容我觉得练一练没问题，这个队中上英雄池很好<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+这两把感觉也像是教练想试验大家能选的英雄的强度，在不同的压力下能打出什么结果
+
+唉一说起这个就又想黑屁青蛙教练了，算了算了()
+

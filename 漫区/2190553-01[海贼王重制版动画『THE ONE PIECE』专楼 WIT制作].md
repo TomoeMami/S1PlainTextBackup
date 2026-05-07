@@ -931,3 +931,16 @@ WITSTUDIO霸权社董事・共同创办人中武哲也、制片人河村崚磨
 
 如果有机会，也希望能在其他地方展示更多精彩的设计方案～
 
+
+*****
+
+####  Piano-Forest  
+##### 61#         楼主| 发表于 2026-5-7 23:11
+
+今年安纳西国际动画电影节现场将展示正片片段（不知道会不会线上公开）
+[https://about.netflix.com/en/news/annecy-2026-lineup](https://about.netflix.com/en/news/annecy-2026-lineup)
+
+Next on Netflix Animation: from Ghostbusters to Brad Bird’s Ray Gunn returns to Théâtre Bonlieu on Wednesday, 24 June. 
+
+Exclusive sneak peeks for Charlie vs. the Chocolate Factory and THE ONE PIECE as part of the Next on Netflix Animation Showcase
+
