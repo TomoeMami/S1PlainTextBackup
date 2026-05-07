@@ -6229,3 +6229,21 @@ https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 
 最终能破500万吗
 
+
+*****
+
+####  泰坦失足  
+##### 947#       发表于 2026-5-7 17:14
+
+<img src="https://img.stage1st.com/forum/202605/07/171320o5jh5fumzxkhk7um.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (67.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-7 17:13 上传
+
+黛安娜的可爱形象与独特游戏玩法持续吸引大量玩家。目前卡普空大阪总部 1 楼正在展示等身大黛安娜立像。 [https://x.com/famitsu/status/2052302511336558839](https://x.com/famitsu/status/2052302511336558839)
+
+丁真在哪发财呢啊?
+

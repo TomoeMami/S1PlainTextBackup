@@ -33,3 +33,14 @@
 
 我甚至不知道隔壁是啥类型的游戏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不灭的旋律  
+##### 1975#       发表于 2026-5-7 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69587278&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2026-5-7 16:52</a>
+
+我甚至不知道隔壁是啥类型的游戏</blockquote>
+做怒首领蜂和虫姬的那家，自然是射击游戏。所以其实和你游是很配的
+
