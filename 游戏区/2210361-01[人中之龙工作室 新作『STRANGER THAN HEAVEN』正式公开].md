@@ -91,3 +91,18 @@ CAST&amp;剧情PV
 【《STRANGER THAN HEAVEN》首支宣传片】 
 [https://b23.tv/0gkmcLP](https://b23.tv/0gkmcLP)
 
+
+*****
+
+####  真岛建设泥头车  
+##### 116#       发表于 2026-5-7 09:06
+
+起猛了，看到snoop dog和ado唱歌了，我再睡会儿
+
+*****
+
+####  Demi.Albertini  
+##### 117#       发表于 2026-5-7 09:11
+
+ado可以露脸了？
+
