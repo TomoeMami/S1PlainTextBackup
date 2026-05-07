@@ -6052,3 +6052,14 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 刷到个30关逃课邪道，在过第一次战斗后面的跳跳乐过两块横向移动的板之后往回走跳到板上，一路走上面可以少打两场，直接到最后一场战斗，时间有大量富余。最后解完路上两个锁之后跑回最后一场战斗的门口，可以躲掉上面下来的激光网，可以慢慢解最后四个锁。
 惊了，太有创造力了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  viperasi  
+##### 930#       发表于 2026-5-7 08:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69581671&amp;ptid=2252823" target="_blank">哎哟卧槽了 发表于 2026-5-6 14:39</a>
+
+研究月纤器官注入病毒时的残留物，7号可以通过自身实体机的特性清除，但人类没有机器人的性能，所以博士 ...</blockquote>
+这个死丝不是8号实验的时候才发现的吗？ diana是后面被侵蚀并修复后了才发现有这个能力，游戏里表现为中期的死丝堵路你都无法清除的。
+
