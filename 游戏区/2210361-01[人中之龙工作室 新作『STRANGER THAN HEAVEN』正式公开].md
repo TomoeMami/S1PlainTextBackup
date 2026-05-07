@@ -47,3 +47,13 @@ Steam页面：[https://store.steampowered.com/app/4260840/STRANGER_THAN_HEAVEN/]
 
 PSN页面：[https://store.playstation.com/zh-hant-hk/concept/10017939/](https://store.playstation.com/zh-hant-hk/concept/10017939/)
 
+
+*****
+
+####  qiyu1234  
+##### 112#       发表于 2026-5-7 08:20
+
+看介绍还真要讲二战背景下的大阪啊（至少是如龙线背景的二战）
+
+横山胆有点肥
+
