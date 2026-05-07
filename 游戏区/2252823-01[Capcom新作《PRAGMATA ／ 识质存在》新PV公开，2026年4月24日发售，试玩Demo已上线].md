@@ -6147,3 +6147,41 @@ demo玩起来还行就没问题，主线选标准难度不会有很大压力。
 200w销量了
 <img src="https://p.sda1.dev/32/3ef1c4ee8d13f8e59abf7c5750ae4dad/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 938#       发表于 2026-5-7 16:06
+
+怎么感觉画技涨了
+
+
+*****
+
+####  otakun  
+##### 939#       发表于 2026-5-7 16:10
+
+AI作图，画技上升不是很正常吗，摇篮基地最先进的实械体
+
+*****
+
+####  泰坦失足  
+##### 940#       发表于 2026-5-7 16:14
+
+虽然把丁真换成戴安娜, 荒野剧情和主线设计也不能说优秀. 但是以后大概会多些戴安娜呆猫艾米丽, 少些丁真了吧
+
+*****
+
+####  Piano-Forest  
+##### 941#         楼主| 发表于 2026-5-7 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69512279&amp;ptid=2252823" target="_blank">Piano-Forest 发表于 2026-4-20 15:18</a>
+
+发售2日全球销量已突破100万份
+
+https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
+发售16天全球销量已突破200万份
+[https://www.capcom.co.jp/ir/english/news/html/e260507.html](https://www.capcom.co.jp/ir/english/news/html/e260507.html)
+
+<img src="https://p.sda1.dev/32/f57bb7ae0fa67dab8ebbb2d7fde51c84/1000165905.jpg" referrerpolicy="no-referrer">
+
