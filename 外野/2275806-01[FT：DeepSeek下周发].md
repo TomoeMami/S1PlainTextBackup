@@ -251,3 +251,11 @@ gpt5.5可能比deepseek v4大一个数量级，10T。小的模型要更强的任
 
 试了下没有豆包好用，豆包傻归傻，多模态这块没得说<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zerona  
+##### 1348#       发表于 2026-5-8 10:49
+
+测试了下，感觉看的还行，但是有时候是它理解不到 “逻辑服务于美观” 的这种“故意画错”的风格。
+

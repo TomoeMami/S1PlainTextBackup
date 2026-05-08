@@ -374,3 +374,43 @@ LEON MUST DIE
 
 看了那个pv看不出是啥类型啊，关卡制战斗肉鸽？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 2344#       发表于 2026-5-8 10:53
+
+ 本帖最后由 eilot 于 2026-5-8 10:56 编辑 
+
+<img src="https://img.stage1st.com/forum/202605/08/105205rgphgw93orroragc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (168.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-8 10:52 上传
+
+看了直播視頻
+
+還是不知道輸了有何獎勵
+
+類似只限LEON編的speed rush模式
+
+由LEON的街道開始，殺怪補時間
+
+打完後那一部份後，就會在地圖出現兩個光柱，選擇去那個路線
+
+<img src="https://img.stage1st.com/forum/202605/08/105434w7r8ao47d4o84k7d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (350.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-8 10:54 上传
+
+選擇被動能力
+
+類似之前廢棄的強化能力選項
+
+在地圖指定位置迎新增武器箱能拾到各種武器，奪命斧等後期武器都能在浣熊市前段就找到，不知道是否隨機
+
