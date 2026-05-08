@@ -677,3 +677,11 @@ LEON編也是這樣，收集3個配件再回到大閘即可
 
 新模式感觉是突击模式强化版，启示录1赶紧重置下<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  林檎  
+##### 2366#       发表于 2026-5-8 20:55
+
+这个汽车脑袋是正常人能设计出来的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
