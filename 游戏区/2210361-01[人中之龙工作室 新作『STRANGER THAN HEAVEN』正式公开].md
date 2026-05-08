@@ -731,3 +731,14 @@ CAST&amp;剧情PV
 
 产量这一块确实比玻尿酸脸强多了 反正系列剧情都是看个乐子 别跳票端上来就完事了
 
+
+*****
+
+####  天悬星河  
+##### 182#       发表于 2026-5-8 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69589731&amp;ptid=2210361" target="_blank">hkguty 发表于 2026-5-8 09:03</a>
+
+不跟如龙关联，也不会出现年轻角色是什么勾八意思，这不就是大家想看的吗，不关联那你搞个勾八的东城会创立 ...</blockquote>
+因为如龙整个系列就也和东城会起源史没有关系啊
+

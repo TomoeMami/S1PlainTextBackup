@@ -83,3 +83,11 @@
 
 杀阶也还差一张卡的等级量，但是后面没有赠送杀阶了.....麻烦
 
+
+*****
+
+####  失落之翼  
+##### 47758#       发表于 2026-5-8 10:44
+
+歪了小莫，净歪小莫这种了，也不歪歪太公法老之类的，这啥阿育王都4宝了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
