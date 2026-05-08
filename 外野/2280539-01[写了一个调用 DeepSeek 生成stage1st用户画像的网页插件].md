@@ -901,3 +901,31 @@ LZ看看我
 目前仅对deepseek官网的apikey做了适配，其他第三方和自 ...</blockquote>
 已破案，下午 deepseek 服务挂了笑死🤣
 
+
+*****
+
+####  当光停止  
+##### 80#       发表于 2026-5-8 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69592756&amp;ptid=2280539" target="_blank">哈利谢顿 发表于 2026-5-8 17:44</a>
+
+楼主可以做一个通过看加减鹅判断的脚本吗
+
+有不少不发言只加减鹅的，这些账号通过针对加减鹅的帖子发言，甚 ...</blockquote>
+这个脚本是靠抓个人资料的历史回复查询来拿信息。
+
+加减鹅的信息来源就太麻烦了。
+
+
+*****
+
+####  ayanamilin  
+##### 81#       发表于 2026-5-8 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69592756&amp;ptid=2280539" target="_blank">哈利谢顿 发表于 2026-5-8 17:44</a>
+
+楼主可以做一个通过看加减鹅判断的脚本吗
+
+有不少不发言只加减鹅的，这些账号通过针对加减鹅的帖子发言，甚 ...</blockquote>
+之前有坛友做过加减鹅的可视化，没记错的话用的是S1帖子 Github 存档，不是自己去爬的。
+

@@ -580,3 +580,33 @@ API 挂了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" r
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ayanamilin  
+##### 1381#       发表于 2026-5-8 18:25
+
+[做了2w次实验之后，我才知道deepseek的kv cache到底优化有多好](https://zhuanlan.zhihu.com/p/2035737726952194774)
+
+<img src="https://img.stage1st.com/forum/202605/08/182527xn2pnlp7p0pz7xpa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (66.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-8 18:25 上传
+
+ <blockquote>我们可以看到图中的deepseek的缓存请求命中率无论是在工作时间，还是非工作时间一直保持着100%命中率，且这种命中率在达到了12小时之后，依然维持着100%。
+
+第二名是minimax，它在非工作时间可以达到90%的缓存命中率，但是在工作时间段会下降到70%左右的缓存命中率。但是非常奇怪的事情就是minimax的在第一分钟的缓存丢失率甚至更高，这可能与内部的缓存读取机制有关系。
+
+接下来分别是kimi,openai和glm。
+
+表现最差的是glm，它在2分钟只有80%的命中率，3分钟只有50%的命中率，5分钟只有25%的命中率，几乎没有探测到超过15分钟的缓存存活时间。
+
+这其中的可能包含了两种原因：
+
+1.glm的infra写的过于糟糕，无法将kv cache固化到便宜的硬盘，只能保存在显存当中。这迫使glm只能缓存少量的请求，保持较高速率的汰换。
+
+2.同时glm的请求量过大，远远超过了可以缓存的容量，也会导致这种可能性。</blockquote>
+
