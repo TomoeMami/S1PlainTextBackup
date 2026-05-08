@@ -44,3 +44,11 @@
 我甚至不知道隔壁是啥类型的游戏</blockquote>
 做怒首领蜂和虫姬的那家，自然是射击游戏。所以其实和你游是很配的
 
+
+*****
+
+####  madcow  
+##### 1976#       发表于 2026-5-8 17:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">那这个联动是服袋抽吗，还是石头买喔
+
