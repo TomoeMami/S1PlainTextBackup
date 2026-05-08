@@ -215,3 +215,14 @@ gpt5.5可能比deepseek v4大一个数量级，10T。小的模型要更强的任
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  verniy  
+##### 1344#       发表于 2026-5-8 09:25
+
+为什么还灰度到我<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/d82697b49e24a2193a2ff46a1f2bb67b/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2312DRA50C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
