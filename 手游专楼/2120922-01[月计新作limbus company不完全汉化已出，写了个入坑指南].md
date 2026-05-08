@@ -203,3 +203,37 @@ PV里有红黑蜘蛛巢logo剪影，应该带父辈词条吧：
 
 如黑兽队般美好的共斗，不存在的
 
+
+*****
+
+####  Jamaisvu  
+##### 1321#       发表于 2026-5-8 21:18
+
+中指队15层打完了，人均伤害很高，伤害上限一般，也就八九千，但这点数是真的大啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">：
+
+<img src="https://img.stage1st.com/forum/202605/08/211326r6pptkbo92zzg9xz.jpg" referrerpolicy="no-referrer">
+
+<strong>20260508205434_1.jpg</strong> (455.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-8 21:13 上传
+
+第一次打出100点以上，纪念一下。
+
+<img src="https://img.stage1st.com/forum/202605/08/211350gorobrk6oqr4bkrd.jpg" referrerpolicy="no-referrer">
+
+<strong>20260508205508_1.jpg</strong> (456.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-8 21:13 上传
+
+这一脚103点的威力，你挡得住吗？！<img src="https://static.stage1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+可惜一个隐藏BOSS也没遇到，缺了老玛的专武还是差点意思...不过所有的IV级打击饰品都在为中指队服务，中指天下无敌呀！
+
+（黑哑巴单人断指的含金量大幅度提升了）
+
+...不知道二协会斩击队和五协会突刺队什么时候成型呢...
+
