@@ -620,3 +620,11 @@ LEON MUST DIE
 —— 来自 鹅球 v3.3.96-alpha ...</blockquote>
 不过这调查机制能对角色能力有帮助吗，一周目还能有新鲜感，二周目后就会变成序章酒店探索和中后段孤儿院躲猫猫那种没啥意思拖时间又不能跳过的累赘环节
 
+
+*****
+
+####  纯夏  
+##### 2361#       发表于 2026-5-8 17:57
+
+原来卡普空说的小游戏是肉鸽啊 完全没想到 草 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
