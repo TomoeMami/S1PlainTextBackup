@@ -505,3 +505,18 @@ NGA的接口有问题？提示NGA 直连没有解析到回复
 
 这么做的好处就是轻量化，一次 html 请求就能抓一页的回复，完全不用担心被限流。缺点就是消息被截断得太早、缺乏上下文信息（看不出你这条回复是在回复哪条帖子）
 
+
+*****
+
+####  claymorep  
+##### 42#       发表于 2026-5-8 15:03
+
+楼主看看我呢<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  死宅真恶心  
+##### 43#       发表于 2026-5-8 15:07
+
+看看我的<img src="https://static.stage1st.com/image/smiley/carton2017/089.gif" referrerpolicy="no-referrer">
+
