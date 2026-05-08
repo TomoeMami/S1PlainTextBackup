@@ -966,3 +966,20 @@ LZ看看我
 
 我主要是发图，也能被分析吗？
 
+
+*****
+
+####  哲人·YY月  
+##### 85#       发表于 2026-5-8 19:03
+
+想看看自己的<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2505A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  jyj256  
+##### 86#       发表于 2026-5-8 19:07
+
+看看我的
+

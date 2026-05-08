@@ -4251,3 +4251,11 @@ B站那个游戏人白夜 我看他是沉浸在自己的艺术里面了</blockqu
 吹柯西的时候就有一条是全地形，这次把NTA摆上去又不管地形了，都是满破柯西害了他 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">毕竟他200抽1柯西，刻骨铭心了
 
+
+*****
+
+####  ドロロ  
+##### 4187#       发表于 2026-5-8 18:54
+
+现在Z和ZZ是最惨的了吧，没啥开发机，后续也没活动补充
+

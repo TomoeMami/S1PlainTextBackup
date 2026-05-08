@@ -6436,3 +6436,13 @@ https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 
   等个半个月盘终于到了，拿到了一个加血量的模块要怎么装备啊？说是到主基地使用，但控制台好像就只有升级能力和打印装备这两种功能
 
+
+*****
+
+####  otakun  
+##### 966#       发表于 2026-5-8 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69593148&amp;ptid=2252823" target="_blank">相棒 发表于 2026-5-8 18:53</a>
+等个半个月盘终于到了，拿到了一个加血量的模块要怎么装备啊？说是到主基地使用，但控制台好像就只有升级 ...</blockquote>
+在车站出战前装，第一个选武器，第二个就是选模块
+

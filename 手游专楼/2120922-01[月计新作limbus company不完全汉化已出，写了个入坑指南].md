@@ -109,3 +109,14 @@ PV里有红黑蜘蛛巢logo剪影，应该带父辈词条吧：
 
 话说我还以为buff叠够了会换白无垢的模型，结果至始至终都是阿赖耶的运动服...不过这PV也没做完，连语音都没有，说不定藏了什么，静观其变吧...
 
+
+*****
+
+####  lls2388  
+##### 1318#       发表于 2026-5-8 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69592680&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2026-5-8 17:32</a>
+
+新人格蜘蛛巢之刃良秀，5.14实装：</blockquote>
+语音是良秀的CV老师生病了没档期，pv封面仔细看有小指的LOGO
+
