@@ -226,3 +226,28 @@ gpt5.5可能比deepseek v4大一个数量级，10T。小的模型要更强的任
 
 —— 来自 Xiaomi 2312DRA50C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  overflowal  
+##### 1345#       发表于 2026-5-8 09:38
+
+<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  厍无春  
+##### 1346#       发表于 2026-5-8 09:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69589939&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-5-8 09:38</a>
+怎么还没灰度到我啊    Re:Source</blockquote>
+没事，这个识图目前没有联网搜索，识别率可用性堪忧，还不如豆包好使
+
+*****
+
+####  sodasoul  
+##### 1347#       发表于 2026-5-8 09:45
+
+试了下没有豆包好用，豆包傻归傻，多模态这块没得说<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
