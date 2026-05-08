@@ -628,3 +628,21 @@ LEON MUST DIE
 
 原来卡普空说的小游戏是肉鸽啊 完全没想到 草 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Chao  
+##### 2362#       发表于 2026-5-8 18:09
+
+因为制作人说是大量参照TLOU2，所以肉鸽模式到也可能出现
+
+但是一个肉鸽模式怎么会能买无限火箭筒啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白昼梦DD  
+##### 2363#       发表于 2026-5-8 18:10
+
+这地图编排完全放弃每进一关就无头苍蝇乱逛，很难更敷衍了
+

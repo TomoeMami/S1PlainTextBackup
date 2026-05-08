@@ -562,3 +562,11 @@ API 挂了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" r
 好像好了？</blockquote>
 回了两句又不动了
 
+
+*****
+
+####  zerona  
+##### 1379#       发表于 2026-5-8 18:04
+
+试出了个bug好像。It is trained on several million anime images and about 800k non-anime artistic images.No synthetic data was used for training. The knowledge cut-off date for the anime training data is September 2025. 这样子直接翻译就会出乱翻的情况，只要“. ” 只要出现这2个字符就会翻译出乱子。
+
