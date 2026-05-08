@@ -620,3 +620,28 @@ API 挂了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" r
 做了2w次实验之后，我才知道deepseek的kv cache到底优化有多好</blockquote>
 自营机房+3fs加持的硬盘缓存就是这么厉害。infra的神不是白说的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  nxmonitor  
+##### 1383#       发表于 2026-5-8 19:08
+
+ 本帖最后由 nxmonitor 于 2026-5-8 19:10 编辑 
+
+如果DS真的把AI搞成基础设施，护城河从软件转移到硬件，再借着华为的通信专利发力，那其他AI公司真的有福了，光估值就是一个天一个地。<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  villsian  
+##### 1384#       发表于 2026-5-8 19:11
+
+<blockquote>舞以 发表于 2026-5-8 16:47
+v4系列就是个半成品，看后训练跟上来之后能改善到啥程度。
+
+我遇到过几次在正文里面输出工具调用请求，把正 ...</blockquote>
+正文输出工具调用请求上下文是不是压缩过？
+
+思维链输出正文这个问题是**病了，只会出现在最后一次回复中。你要是自己的客户端就兼容一下，其实也不影响使用。
+
+估计是思考过程把问题解决了，就不输出正文了。它这个连续对话要把最后一次思考内容传回去的。你后面接着对话就行。
+

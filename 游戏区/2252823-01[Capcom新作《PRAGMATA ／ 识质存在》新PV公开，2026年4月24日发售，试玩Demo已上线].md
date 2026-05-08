@@ -6446,3 +6446,14 @@ https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 等个半个月盘终于到了，拿到了一个加血量的模块要怎么装备啊？说是到主基地使用，但控制台好像就只有升级 ...</blockquote>
 在车站出战前装，第一个选武器，第二个就是选模块
 
+
+*****
+
+####  conanoysq  
+##### 967#       发表于 2026-5-8 19:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69592259&amp;ptid=2252823" target="_blank">Chao 发表于 2026-5-8 16:15</a>
+
+周边开始铺开啦</blockquote>
+范师傅天猫店89来着，为啥这是109
+

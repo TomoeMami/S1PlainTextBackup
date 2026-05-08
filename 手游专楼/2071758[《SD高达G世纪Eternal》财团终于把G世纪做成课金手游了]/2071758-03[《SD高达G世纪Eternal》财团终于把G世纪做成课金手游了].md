@@ -4259,3 +4259,19 @@ B站那个游戏人白夜 我看他是沉浸在自己的艺术里面了</blockqu
 
 现在Z和ZZ是最惨的了吧，没啥开发机，后续也没活动补充
 
+
+*****
+
+####  ティグル  
+##### 4188#       发表于 2026-5-8 19:04
+
+强化ZZ好歹风光过
+
+
+*****
+
+####  arthes  
+##### 4189#       发表于 2026-5-8 19:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">ZZ靠EXS缓解了一下，Z可以等AOZ，未来可期
+
