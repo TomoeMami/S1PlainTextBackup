@@ -760,3 +760,13 @@ CAST&amp;剧情PV
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是好像横导没说什么时候发售啊，别还是个大饼
 
+
+*****
+
+####  流星驱动器  
+##### 185#       发表于 2026-5-8 11:12
+
+<blockquote>flyzzhj 发表于 2026-5-8 10:59
+但是好像横导没说什么时候发售啊，别还是个大饼</blockquote>
+冬天也就是12月到2月发售
+

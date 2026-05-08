@@ -414,3 +414,31 @@ LEON MUST DIE
 
 在地圖指定位置迎新增武器箱能拾到各種武器，奪命斧等後期武器都能在浣熊市前段就找到，不知道是否隨機
 
+
+*****
+
+####  牙狼GARO  
+##### 2345#       发表于 2026-5-8 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69590331&amp;ptid=2252759" target="_blank">eilot 发表于 2026-5-8 10:53</a>
+
+看了直播視頻
+
+還是不知道輸了有何獎勵
+
+類似只限LEON編的speed rush模式</blockquote>
+斧头在内容解锁里面有，花费25000cp可以解锁，描述是解锁后可以在lmd模式中随机获得斧头，还有一个是25000cp解锁一个lmd的rpg，物品有lmd开局包里多点药啊什么的，还有永久替换lmd两个技能（一个是濒死30秒无线子弹，攻击力大up，一个是什么忘了）
+
+物品也有一些，lmd模式本身也有解锁内置成就获得cp，不然本体所有加起来都不够
+
+我就打了两把，不知道武器掉落和红门是固定的还是随机的，两次都是第二把武器捡到加尔，第二把打的好一点找到红门进了电锯疗养院，打死蓝光护士见到三连发，加尔，还开箱拿到一把静音9，好歹给我把喷或者狙啊
+
+
+*****
+
+####  cangyuyao  
+##### 2346#       发表于 2026-5-8 11:10
+
+很多人说过现有的战斗系统资源加佣兵难吧
+但竟然是肉鸽<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
