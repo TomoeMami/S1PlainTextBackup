@@ -608,3 +608,15 @@ LEON MUST DIE
 
 当然正经隔壁肯定是pragmata呀
 
+
+*****
+
+####  谁介意  
+##### 2360#       发表于 2026-5-8 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69590534&amp;ptid=2252759" target="_blank">csolfans 发表于 2026-5-8 11:29</a>
+发售前心思念念的Grace谋杀现场调查机制没想到真的有只不过被狠狠地删除了
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+不过这调查机制能对角色能力有帮助吗，一周目还能有新鲜感，二周目后就会变成序章酒店探索和中后段孤儿院躲猫猫那种没啥意思拖时间又不能跳过的累赘环节
+

@@ -6412,3 +6412,19 @@ https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 
 3分钟出算快了吧，我连换服装界面等跳舞等了10分钟都没动静
 
+
+*****
+
+####  Chao  
+##### 964#       发表于 2026-5-8 16:15
+
+<img src="https://img.stage1st.com/forum/202605/08/161504w21qiiepjnp2ei66.png" referrerpolicy="no-referrer">
+
+<strong>PR.png</strong> (55.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-8 16:15 上传
+
+周边开始铺开啦
+

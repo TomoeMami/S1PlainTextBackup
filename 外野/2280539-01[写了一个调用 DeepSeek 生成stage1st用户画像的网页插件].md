@@ -611,3 +611,24 @@ NGA的接口有问题？提示NGA 直连没有解析到回复
 
 大师请查我成分<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aimbot  
+##### 54#         楼主| 发表于 2026-5-8 16:21
+
+<blockquote>AlphardAlSheya 发表于 2026-5-8 16:05
+大师请查我成分</blockquote>
+更新了一下脚本，修复了几个大家提出的问题
+
+要查成分麻烦大伙以后自己查吧，不然我写这东西出来也没意义了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+20522.jpg
+(84.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-8 16:20 上传
+
+<img src="https://img.stage1st.com/forum/202605/08/162040wnlkvih7lljhv3tz.jpg" referrerpolicy="no-referrer">
+

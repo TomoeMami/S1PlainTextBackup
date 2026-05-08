@@ -126,3 +126,13 @@ day2还能看到真正的live叙事
 
 动画肯定搞别的了
 
+
+*****
+
+####  信长的呕吐  
+##### 7374#       发表于 2026-5-8 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69591798&amp;ptid=2130897" target="_blank">wolf1997 发表于 2026-5-8 15:12</a>
+万南和A爹世纪大和解了吗</blockquote>
+CW收钱办事这块一直没问题吧 灰灰的GO JUSE GO! 和VOY@GER都是CW做的
+
