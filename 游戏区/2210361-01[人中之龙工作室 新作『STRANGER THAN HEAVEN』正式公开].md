@@ -899,3 +899,11 @@ pv真不错，后面一切烟花的一幕还有种深深的宿命惆怅感。歌
 审判之逝不也是ado</blockquote>
 大概是说的配音吧，审判只是唱歌
 
+
+*****
+
+####  性急的蜗牛  
+##### 201#       发表于 2026-5-8 23:49
+
+这个pv有点水平的，横皮尔伯格再信你一次啊<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
