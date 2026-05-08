@@ -359,3 +359,15 @@ DeepSeek为什么这么不重视多模态，光靠逻辑推理不行吧
 DeepSeek为什么这么不重视多模态，光靠逻辑推理不行吧</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holylight2020  
+##### 1359#       发表于 2026-5-8 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69591288&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-5-8 14:01</a>
+就是单纯随机性的原因，后训练没做够任务不稳定导致一会神一会鬼。降智判断起来是要用一些任务来测的。不 ...</blockquote>
+我这两天用起来感觉完全不能用了。五一前很稳的。不知道是什么原因
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
