@@ -408,3 +408,13 @@ DeepSeek为什么这么不重视多模态，光靠逻辑推理不行吧</blockqu
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  burnwing  
+##### 1363#       发表于 2026-5-8 15:36
+
+我最近怎么觉得V4 PRO变得超级啰嗦。大概到每条消息1万TOKEN左右，就开始泄洪。
+
+明明之前还挺好用的。
+

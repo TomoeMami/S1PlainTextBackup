@@ -593,3 +593,18 @@ LEON MUST DIE
 
 就这？太失望了
 
+
+*****
+
+####  纯爱战士段正淳  
+##### 2359#       发表于 2026-5-8 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69591806&amp;ptid=2252759" target="_blank">mai6696 发表于 2026-5-8 15:13</a>
+
+说了半天隔壁，哪儿啊？</blockquote>
+提出re、mh，完成度高的也就sf和pragmata了啊
+
+这俩不都吊打半成品
+
+当然正经隔壁肯定是pragmata呀
+
