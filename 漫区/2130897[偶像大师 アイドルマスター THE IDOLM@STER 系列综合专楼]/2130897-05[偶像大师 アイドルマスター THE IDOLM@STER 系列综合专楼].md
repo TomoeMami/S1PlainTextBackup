@@ -136,3 +136,22 @@ day2还能看到真正的live叙事
 万南和A爹世纪大和解了吗</blockquote>
 CW收钱办事这块一直没问题吧 灰灰的GO JUSE GO! 和VOY@GER都是CW做的
 
+
+*****
+
+####  冰风血羽  
+##### 7375#       发表于 2026-5-8 16:40
+
+令人羡慕<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Unlight  
+##### 7376#         楼主| 发表于 2026-5-8 16:41
+
+A1（CW）的话，监督能请辣个蓝人吗<img src="https://static.stage1st.com/image/smiley/carton2017/291.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
