@@ -929,3 +929,22 @@ LZ看看我
 有不少不发言只加减鹅的，这些账号通过针对加减鹅的帖子发言，甚 ...</blockquote>
 之前有坛友做过加减鹅的可视化，没记错的话用的是S1帖子 Github 存档，不是自己去爬的。
 
+
+*****
+
+####  aimbot  
+##### 82#         楼主| 发表于 2026-5-8 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69592622&amp;ptid=2280539" target="_blank">糟糕喵 发表于 2026-5-8 17:19</a>
+
+希望能把这个界面的展开给移到菜单命令中，，占的面积有点大了，还不可移动，我自己的页面改造冲突了。 ...</blockquote>
+已更新，现在当最小化时用户画像的悬浮窗不会再占用过多的空间，移动和固定不太好做，就先不做了
+
+<img src="https://img.stage1st.com/forum/202605/08/183243u72oxiwisa812777.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-05-08 182827.png</strong> (4.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-8 18:32 上传
+
