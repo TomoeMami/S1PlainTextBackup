@@ -735,3 +735,14 @@ edit：把thinking和pro记混了，已更正。
 
 酒馆换成v4的api后每次生成的字数少了很多，换了几个预设都一样，有人知道怎么回事吗？
 
+
+*****
+
+####  tansapple  
+##### 1393#       发表于 2026-5-8 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69594093&amp;ptid=2275806" target="_blank">cy6959 发表于 2026-5-8 22:27</a>
+
+酒馆换成v4的api后每次生成的字数少了很多，换了几个预设都一样，有人知道怎么回事吗？ ...</blockquote>
+有些预设里有设置字数的选项，是不是忘记改了。
+
