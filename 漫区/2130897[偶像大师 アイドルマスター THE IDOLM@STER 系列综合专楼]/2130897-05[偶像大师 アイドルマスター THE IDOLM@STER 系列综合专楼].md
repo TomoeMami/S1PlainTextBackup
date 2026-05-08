@@ -105,3 +105,11 @@ day2还能看到真正的live叙事
 也算是a1的传承了
 梦一个ani学给cw做，希望已经上排期了
 
+
+*****
+
+####  虚无缥缈的分身  
+##### 7372#       发表于 2026-5-8 15:24
+
+后面如果动画真出了也是做初星篇吧，各种意义上都很微妙呢<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
