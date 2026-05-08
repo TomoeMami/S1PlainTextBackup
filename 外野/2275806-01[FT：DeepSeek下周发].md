@@ -187,3 +187,19 @@ gpt5.5可能比deepseek v4大一个数量级，10T。小的模型要更强的任
 —— 来 ...</blockquote>
 不是<img src="https://static.stage1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Litccc  
+##### 1341#       发表于 2026-5-8 08:36
+
+还真推了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  羊寢  
+##### 1342#       发表于 2026-5-8 08:43
+
+并没有<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
