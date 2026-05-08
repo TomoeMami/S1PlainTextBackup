@@ -888,3 +888,14 @@ pv真不错，后面一切烟花的一幕还有种深深的宿命惆怅感。歌
 
 这个PV太劲爆了
 
+
+*****
+
+####  黑上シグマ  
+##### 200#       发表于 2026-5-8 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69591189&amp;ptid=2210361" target="_blank">Kojimaru 发表于 2026-5-8 13:44</a>
+
+审判之逝不也是ado</blockquote>
+大概是说的配音吧，审判只是唱歌
+
