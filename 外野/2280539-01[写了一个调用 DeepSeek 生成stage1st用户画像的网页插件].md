@@ -739,3 +739,46 @@ can can word<img src="https://static.stage1st.com/image/smiley/face2017/050.png"
 
 LZ看看我
 
+
+*****
+
+####  squarezty  
+##### 66#       发表于 2026-5-8 17:19
+
+全体向我看齐，我也要被社工吗
+
+对<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  糟糕喵  
+##### 67#       发表于 2026-5-8 17:19
+
+希望能把这个界面的展开给移到菜单命令中，，占的面积有点大了，还不可移动，我自己的页面改造冲突了。
+
+*****
+
+####  不让用大写  
+##### 68#       发表于 2026-5-8 17:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">还要给ds充钱
+
+
+*****
+
+####  passgan  
+##### 69#       发表于 2026-5-8 17:23
+
+看看我的
+
+*****
+
+####  xing7673  
+##### 70#       发表于 2026-5-8 17:23
+
+额，bug好像挺多的
+
+我这边一直llm测试不通
+
+后面再看看吧
+
