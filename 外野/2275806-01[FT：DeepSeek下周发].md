@@ -440,3 +440,19 @@ DeepSeek为什么这么不重视多模态，光靠逻辑推理不行吧</blockqu
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  nxmonitor  
+##### 1366#       发表于 2026-5-8 16:30
+
+pro估计被龙虾蹬得太多了，到了晚上确实有点不行，现在只能发那张华为版厨子图了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绝地潜兵  
+##### 1367#       发表于 2026-5-8 16:36
+
+有没有MoE倾向于调用最小参数的原因，效率过高导致回答很不准
+
