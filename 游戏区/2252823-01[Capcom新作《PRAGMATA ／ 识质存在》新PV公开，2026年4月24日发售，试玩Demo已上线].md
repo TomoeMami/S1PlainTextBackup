@@ -6357,3 +6357,27 @@ https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 开局破步行者手枪秒， ...</blockquote>
 草，是我头太铁了，每次都直奔主题先干医疗机，结果都没见过医疗时的hackmap进而也不知道会一起爆，锤地
 
+
+*****
+
+####  纯爱战士段正淳  
+##### 959#       发表于 2026-5-8 09:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69588505&amp;ptid=2252823" target="_blank">x分裂者 发表于 2026-5-7 21:11</a>
+
+开了狂月new game+就知道狂月不给继承标准的养成是对的，能继承的话比标准一周目还简单 ...</blockquote>
+不继承影响战斗力的是对的
+
+衣服也不继承还是太搞了
+
+*****
+
+####  x分裂者  
+##### 960#       发表于 2026-5-8 09:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69589714&amp;ptid=2252823" target="_blank">纯爱战士段正淳 发表于 2026-5-8 09:00</a>
+不继承影响战斗力的是对的
+
+衣服也不继承还是太搞了</blockquote>
+投币版没有的都能继承，估计为了投币版脑抽了，反正你后期也能兑换月丝
+

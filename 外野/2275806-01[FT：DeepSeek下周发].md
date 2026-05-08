@@ -203,3 +203,15 @@ gpt5.5可能比deepseek v4大一个数量级，10T。小的模型要更强的任
 
 并没有<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杀人鲸  
+##### 1343#       发表于 2026-5-8 09:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69589479&amp;ptid=2275806" target="_blank">orca 发表于 2026-5-8 07:35</a>
+不是</blockquote>
+那看来最多只能算是新的灰度测试、二度推广。但二度测试都开始的话，一而再再而三，下一**概就该全面推广了吧？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
