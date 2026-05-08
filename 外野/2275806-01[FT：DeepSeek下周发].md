@@ -325,3 +325,27 @@ DeepSeek为什么这么不重视多模态，光靠逻辑推理不行吧
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  羊寢  
+##### 1356#       发表于 2026-5-8 13:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69591185&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-5-8 13:43</a>
+没感觉降智，但我觉得它一直生成质量很不稳定
+
+—— 来自 HUAWEI SGU-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
+我用来写文感觉现在降智还是挺明显的，很容易出现分不清谁是谁或者一个连续的场景前一段还是秋天下一段就变成冬天的情况
+今天早上也是刚跑出来一段前一句写角色a买东西找钱被人碰了一下皱了皱眉头，下一句变成角色a在心中想着角色b原来不喜欢被人触碰
+
+
+*****
+
+####  overflowal  
+##### 1357#       发表于 2026-5-8 14:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69591274&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-5-8 13:58</a>
+我用来写文感觉现在降智还是挺明显的，很容易出现分不清谁是谁或者一个连续的场景前一段还是秋天下一段就 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">就是单纯随机性的原因，后训练没做够任务不稳定导致一会神一会鬼。降智判断起来是要用一些任务来测的。不要老是叫降智。
+降智就是提供商给你把模型换了，这是很严重的事    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
