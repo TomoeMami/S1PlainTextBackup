@@ -113,3 +113,16 @@ day2还能看到真正的live叙事
 
 后面如果动画真出了也是做初星篇吧，各种意义上都很微妙呢<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kenqqex  
+##### 7373#       发表于 2026-5-8 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69591888&amp;ptid=2130897" target="_blank">虚无缥缈的分身 发表于 2026-5-8 15:24</a>
+
+后面如果动画真出了也是做初星篇吧，各种意义上都很微妙呢</blockquote>
+初星篇已经用游戏动画地上波播过一次了
+
+动画肯定搞别的了
+
