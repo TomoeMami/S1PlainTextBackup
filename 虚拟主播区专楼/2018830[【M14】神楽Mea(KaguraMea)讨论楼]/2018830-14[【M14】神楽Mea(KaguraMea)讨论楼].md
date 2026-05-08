@@ -319,3 +319,17 @@ ban位宝贵啊，现在大家段位都上来了，说实话bp也开始做得都
 
 万一输了的话慢慢练习也能练出来的，这次的赛训和教练的bp我看来是可以的
 
+
+*****
+
+####  古战场亡魂  
+##### 20638#       发表于 2026-5-8 12:49
+
+<img src="https://img.stage1st.com/forum/202605/08/124935h88icd1h6mnni1hp.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260508_124810_com.twitter.android.jpg</strong> (134.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-8 12:49 上传
+

@@ -793,3 +793,32 @@ CAST&amp;剧情PV
 
 在如龙里听到ado有种在ff16里听到望月的感觉
 
+
+*****
+
+####  zqqwe  
+##### 189#       发表于 2026-5-8 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69590337&amp;ptid=2210361" target="_blank">红豆菠萝包 发表于 2026-5-8 10:54</a>
+感觉看完PV，整个剧本的情感过度还是可以猜出来的:一开始满怀希望回到故乡，后面发现自己在这里也还是一个 ...</blockquote>
+大东看烟花的镜头莫名想起无间道2结局的韩琛
+
+*****
+
+####  Kaornao  
+##### 190#       发表于 2026-5-8 12:51
+
+感觉这作不碰敏感话题基本不会太烂的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  银域放浪者  
+##### 191#       发表于 2026-5-8 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69590757&amp;ptid=2210361" target="_blank">蔷薇下 发表于 2026-5-8 12:13</a>
+在如龙里听到ado有种在ff16里听到望月的感觉</blockquote>
+那ado跟律师比？
+
