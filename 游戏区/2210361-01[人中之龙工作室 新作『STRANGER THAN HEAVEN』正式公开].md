@@ -705,3 +705,21 @@ CAST&amp;剧情PV
 
 怎么说呢，这次的故事走向相比于前面那些作品，几乎是被写死了一样，但是，永远不要轻视横导的整活能力。。。所以先质疑再相信
 
+
+*****
+
+####  cmnewfan  
+##### 179#       发表于 2026-5-8 10:08
+
+预告片是真不错。
+
+—— 来自 vivo V2303A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Dreammask  
+##### 180#       发表于 2026-5-8 10:14
+
+我看横皮尔伯格只要别搞什么搞笑的展开，超越某个被撤资的玻尿酸脸指日可待啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
