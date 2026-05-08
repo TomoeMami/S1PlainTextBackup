@@ -165,3 +165,11 @@ A1（CW）的话，监督能请辣个蓝人吗<img src="https://static.stage1st.
 
 不如找个真爱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  信长的呕吐  
+##### 7378#       发表于 2026-5-8 19:51
+
+学居然实装Go my way了 老资历是对的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

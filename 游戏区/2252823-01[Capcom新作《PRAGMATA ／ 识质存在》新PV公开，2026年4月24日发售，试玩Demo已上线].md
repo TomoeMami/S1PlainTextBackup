@@ -6457,3 +6457,14 @@ https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 周边开始铺开啦</blockquote>
 范师傅天猫店89来着，为啥这是109
 
+
+*****
+
+####  弱逼  
+##### 968#       发表于 2026-5-8 19:55
+
+和总部等身立像相比
+amiibo版的是什么不可燃垃圾
+
+—— 来自 realme RMX5200, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
