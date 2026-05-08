@@ -442,3 +442,39 @@ LEON MUST DIE
 很多人说过现有的战斗系统资源加佣兵难吧
 但竟然是肉鸽<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  纯爱战士段正淳  
+##### 2347#       发表于 2026-5-8 11:24
+
+还是去爽玩隔壁了
+
+再等半年dlc看能不能救吧
+
+*****
+
+####  csolfans  
+##### 2348#       发表于 2026-5-8 11:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">只不过被狠狠地删除了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  eilot  
+##### 2349#       发表于 2026-5-8 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69590506&amp;ptid=2252759" target="_blank">纯爱战士段正淳 发表于 2026-5-8 11:24</a>
+
+还是去爽玩隔壁了
+
+再等半年dlc看能不能救吧</blockquote>
+這個小遊戲真是只得小遊戲規模
+
+獨立於本編也是打完後就能無視
+
+之後也是F2模式再打多次，看剩下的CP要求是甚麼
+
