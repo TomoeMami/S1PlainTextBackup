@@ -870,3 +870,13 @@ CAST&amp;剧情PV
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好性感的pv和曲子……
 
+
+*****
+
+####  Skymoon  
+##### 198#       发表于 2026-5-8 20:17
+
+pv真不错，后面一切烟花的一幕还有种深深的宿命惆怅感。歌也好听<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
