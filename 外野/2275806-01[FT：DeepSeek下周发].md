@@ -610,3 +610,13 @@ API 挂了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" r
 
 2.同时glm的请求量过大，远远超过了可以缓存的容量，也会导致这种可能性。</blockquote>
 
+
+*****
+
+####  overflowal  
+##### 1382#       发表于 2026-5-8 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69592995&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-5-8 18:25</a>
+做了2w次实验之后，我才知道deepseek的kv cache到底优化有多好</blockquote>
+自营机房+3fs加持的硬盘缓存就是这么厉害。infra的神不是白说的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

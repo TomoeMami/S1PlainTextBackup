@@ -4240,3 +4240,14 @@ B站那个游戏人白夜 我看他是沉浸在自己的艺术里面了</blockqu
 这队血最少的是ssp大白鹅 所以对面高速就舒服钓鱼 低速就把盾的位置往前调大白鹅第一个出去后续打反击 ...</blockquote>
 真高速队都是自带回避钓不到的
 
+
+*****
+
+####  AminGly  
+##### 4186#       发表于 2026-5-8 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69588854&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-5-7 22:38</a>
+
+吹柯西的时候就有一条是全地形，这次把NTA摆上去又不管地形了，都是满破柯西害了他 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">毕竟他200抽1柯西，刻骨铭心了
+
