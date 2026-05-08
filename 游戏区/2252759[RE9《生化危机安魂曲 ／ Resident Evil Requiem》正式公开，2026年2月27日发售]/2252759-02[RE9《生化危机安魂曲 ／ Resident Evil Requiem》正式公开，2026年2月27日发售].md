@@ -710,3 +710,19 @@ LEON編也是這樣，收集3個配件再回到大閘即可
 
 —— 来自 samsung SM-F9660, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  谁介意  
+##### 2370#       发表于 2026-5-9 01:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69593079&amp;ptid=2252759" target="_blank">eilot 发表于 2026-5-8 18:39</a>
+是沒幫助
+
+特別是LEON編都這樣玩就非常煩
+
+不過GRACE編她沒有戰力，而身份是FBI的資料系，這搜尋調查機制對 ...</blockquote>
+所以个人认为格蕾丝线的调查机制可以加个让角色战斗能力提升的效果，比如调查完毕会因为一定程度走出心理阴影让后续战斗时持枪的稳定度提升的效果，里昂篇可以有调查完后增加战斗点数奖励
+
+二周目可以选择跳过但会没了调查奖励加成
+
