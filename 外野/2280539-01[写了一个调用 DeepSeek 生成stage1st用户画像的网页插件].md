@@ -1539,3 +1539,56 @@ ds的api都被你们玩崩了<img src="https://static.stage1st.com/image/smiley/
 
 楼主考虑增加别的网站的api不，比如硅基流动之类的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  团结奋进碇真嗣  
+##### 116#       发表于 2026-5-8 21:58
+
+can can word
+
+*****
+
+####  阿波罗大总统  
+##### 117#       发表于 2026-5-8 22:00
+
+看看我的看看我的
+
+*****
+
+####  帕林马哲理  
+##### 118#       发表于 2026-5-8 22:02
+
+俺没ds的API，只能拜托坛友了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  aimbot  
+##### 119#         楼主| 发表于 2026-5-8 22:02
+
+ 本帖最后由 aimbot 于 2026-5-8 22:04 编辑 
+<blockquote>观者熊 发表于 2026-5-8 21:53
+楼主考虑增加别的网站的api不，比如硅基流动之类的</blockquote>
+
+看看吧，如果需要的人多就把接入其他平台的逻辑写一下
+
+其实自己写也不是很难，把代码和api接口丢给ai让ai自己写就行
+
+还有就是看了一眼deepseek官网的api一块钱起充，1块钱够你玩很久的了
+
+<img src="https://img.stage1st.com/forum/202605/08/220401fhfbtzsp7b448gpk.jpg" referrerpolicy="no-referrer">
+
+<strong>20524.jpg</strong> (136.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-8 22:04 上传
+
+
+*****
+
+####  海关  
+##### 120#       发表于 2026-5-8 22:05
+
+看看我的？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
