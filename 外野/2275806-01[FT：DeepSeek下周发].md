@@ -514,3 +514,40 @@ API 挂了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" r
 
 —— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Freewolf  
+##### 1374#       发表于 2026-5-8 17:38
+
+<img src="https://img.stage1st.com/forum/202605/08/173846gd993lkvzsv7llsg.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2026-05-08_17-38-38.png</strong> (148.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-8 17:38 上传
+
+
+*****
+
+####  tillnight  
+##### 1375#       发表于 2026-5-8 17:41
+
+不止api，网页专家模式也繁忙了。
+
+*****
+
+####  leina0602  
+##### 1376#       发表于 2026-5-8 17:42
+
+炸了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真红之闪电  
+##### 1377#       发表于 2026-5-8 17:45
+
+好像好了？
+
