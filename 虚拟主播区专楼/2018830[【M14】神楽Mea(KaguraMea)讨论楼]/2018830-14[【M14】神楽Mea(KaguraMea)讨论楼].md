@@ -408,3 +408,31 @@ lr和it
 
 咩姐真的太帅了，开扣
 
+
+*****
+
+####  古战场亡魂  
+##### 20645#       发表于 2026-5-8 23:36
+
+赢了，上路什么鬼，master打不过白金？
+
+幸好mea打的好指挥也好，大龙旁边那波团如果接就炸了。
+
+
+*****
+
+####  术士q  
+##### 20646#       发表于 2026-5-8 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69594302&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2026-5-8 23:36</a>
+赢了，上路什么鬼，master打不过白金？
+
+幸好mea打的好指挥也好，大龙旁边那波团如果接就炸了。 ...</blockquote>
+yauji太装了，应该是优势太大想越塔然后就变成这样了。正常打这把应该是更平稳和碾压的节奏的。
+
+也还好这次这个剑魔没怎么找到tp的时机来扩大影响力，剑魔在河道的时候总是心里发怵，也还好最终还是有惊无险，也有个好处是装唐骗对面
+
+这次结束以后咩说了很多zerost的好话啊。回想起来确实也是倾囊相授了，这次咩赢了以后也是很欣慰的样子，也相当辛苦了啊。
+
+好久没看到咩像这样开心了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
