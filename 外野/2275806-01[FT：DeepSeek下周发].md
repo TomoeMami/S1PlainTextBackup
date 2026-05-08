@@ -668,3 +668,15 @@ dpmpp_2m_sde_gpu: similar in style to er_sd ...</blockquote>
 开这么高你不是写文你是要烤鱼啊<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 我温度最高也就3.1那会儿开过1.5，现在1.2 1.3用着也没问题，开太高温它就会乱发癫
 
+
+*****
+
+####  羊寢  
+##### 1387#       发表于 2026-5-8 19:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69592551&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-5-8 17:06</a>
+d指导v4有时候思考中会把自己角色搞混了，说着说着它就把自己当用户了
+
+—— 来自 HUAWEI SGU-AL10, Androi ...</blockquote>
+这问题之前其实也有，不过以前确实遇上的概率比较低，最近至少我的体感是比较容易遇到
+

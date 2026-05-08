@@ -854,3 +854,11 @@ CAST&amp;剧情PV
 
 这歌配的太带感了<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zqqwe  
+##### 196#       发表于 2026-5-8 19:35
+
+循环了好几遍主题歌，“I found a place，that I can call home”这句对离家打工人特攻啊<img src="https://static.stage1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
