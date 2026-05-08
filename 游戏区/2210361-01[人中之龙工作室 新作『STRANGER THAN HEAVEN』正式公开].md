@@ -907,3 +907,13 @@ pv真不错，后面一切烟花的一幕还有种深深的宿命惆怅感。歌
 
 这个pv有点水平的，横皮尔伯格再信你一次啊<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  iamleoy  
+##### 202#       发表于 2026-5-9 00:05
+
+剧本看点一：什么时候和基友反目（不可能不反）以及基友是不是最终boss
+
+剧本看点二：有没有婴儿桐生出现
+
