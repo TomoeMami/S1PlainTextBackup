@@ -284,3 +284,23 @@ gpt5.5可能比deepseek v4大一个数量级，10T。小的模型要更强的任
 
 DS这个识图功能能分辨喂的图是不是AI图吗？
 
+
+*****
+
+####  overflowal  
+##### 1352#       发表于 2026-5-8 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69590617&amp;ptid=2275806" target="_blank">cyberalogo 发表于 2026-5-8 11:46</a>
+DS这个识图功能能分辨喂的图是不是AI图吗？</blockquote>
+不能，号称能分辨的其实也不靠谱。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  holylight2020  
+##### 1353#       发表于 2026-5-8 12:06
+
+有没有人觉得五一后的v4pro降智了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
