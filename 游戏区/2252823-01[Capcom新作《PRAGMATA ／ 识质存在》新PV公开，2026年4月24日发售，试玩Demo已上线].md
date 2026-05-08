@@ -6389,3 +6389,26 @@ https://www.capcom.co.jp/ir/news/html/260420.html</blockquote>
 
 狂月把板子奖励改成资源不就行了 这完全属于脑筋没转过弯来
 
+
+*****
+
+####  jacket  
+##### 962#       发表于 2026-5-8 14:36
+
+喷了，看官方说的试了一下，等了3分钟才出来
+
+<img src="https://img.stage1st.com/forum/202605/08/143541nfnnt36g1fnnnv3t.jpg" referrerpolicy="no-referrer">
+
+<strong>PRAGMATA_20260508143214.jpg</strong> (67.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-8 14:35 上传
+
+*****
+
+####  otakun  
+##### 963#       发表于 2026-5-8 14:37
+
+3分钟出算快了吧，我连换服装界面等跳舞等了10分钟都没动静
+
