@@ -1611,3 +1611,31 @@ can can word
 
 反串/引战嫌疑：5% 理由：观点强烈但有具体生活/学术经历支撑，回复多围绕事实讨论而非情绪宣泄，未出现刻意模仿他人或明显违背常识的伪立场发言。唯一偏高的一点是“灭日本”言论，但出现在历史典故讨论语境下，且整体风格一致。
 
+
+*****
+
+####  AEmpire  
+##### 122#       发表于 2026-5-8 22:23
+
+<img src="https://img.stage1st.com/forum/202605/08/222329tv4hruvw673s7f7k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-8 22:23 上传
+
+怎么加了个毒嘴锐评环节，太变态了 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  比企鹅八幡  
+##### 123#       发表于 2026-5-8 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69594003&amp;ptid=2280539" target="_blank">aimbot 发表于 2026-5-8 22:02</a>
+
+看看吧，如果需要的人多就把接入其他平台的逻辑写一下
+
+其实自己写也不是很难，把代码和api接口文档丢给ai ...</blockquote>
+试了下自己改已放弃，老老实实给梁文锋充钱去了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
