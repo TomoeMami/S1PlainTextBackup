@@ -693,3 +693,20 @@ LEON編也是這樣，收集3個配件再回到大閘即可
 
 这肉鸽街机真是食之无味
 
+
+*****
+
+####  otakun  
+##### 2368#       发表于 2026-5-8 22:34
+
+打了一把，玩惯了识质存在，觉得里昂好笨重<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，堆满了防御最后打维克多好肉，我伤害也不高，拿着散弹拼血，格挡手感生疏了，打了一难度就先算了
+
+*****
+
+####  渡边加奈子  
+##### 2369#       发表于 2026-5-8 22:36
+
+打到难度2，非常好玩。除去关卡偏少，内容设计极其出彩。要比近代所有无剧情附加模式都好玩。
+
+—— 来自 samsung SM-F9660, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

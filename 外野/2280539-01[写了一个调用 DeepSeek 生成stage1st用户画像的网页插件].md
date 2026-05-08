@@ -1639,3 +1639,19 @@ can can word
 其实自己写也不是很难，把代码和api接口文档丢给ai ...</blockquote>
 试了下自己改已放弃，老老实实给梁文锋充钱去了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗马还能再战  
+##### 124#       发表于 2026-5-8 22:29
+
+20条有点太少了，可不可以改成所有历史发言，并且分析下三观的变化历史
+
+
+*****
+
+####  UncleY  
+##### 125#       发表于 2026-5-8 22:35
+
+不想装插件，求看看
+
