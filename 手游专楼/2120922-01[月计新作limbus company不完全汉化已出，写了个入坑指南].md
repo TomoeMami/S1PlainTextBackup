@@ -120,3 +120,86 @@ PV里有红黑蜘蛛巢logo剪影，应该带父辈词条吧：
 新人格蜘蛛巢之刃良秀，5.14实装：</blockquote>
 语音是良秀的CV老师生病了没档期，pv封面仔细看有小指的LOGO
 
+
+*****
+
+####  Jamaisvu  
+##### 1319#       发表于 2026-5-8 19:31
+
+ 本帖最后由 Jamaisvu 于 2026-5-8 19:34 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69593175&amp;ptid=2120922" target="_blank">lls2388 发表于 2026-5-8 18:59</a>
+
+语音是良秀的CV老师生病了没档期，pv封面仔细看有小指的LOGO</blockquote>
+原来如此，但愿CV老师早日康复<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+小指logo好像是第一次出现吧，我还以为会像森罗炎象EGO背景里那样是绷带手，结果是星座与刀剑：
+
+<img src="https://img.stage1st.com/forum/202605/08/191948rikug5a3zudmxaa9.png" referrerpolicy="no-referrer">
+
+<strong>935fe9db7fcdb54b0c261965619b8d7d_85fd063c73d523881c96c6b669f2c85112526897.png</strong> (186.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-8 19:19 上传
+
+（这应该是右手吧，小指头变成了武器）
+
+其他指头设计的也不错。
+
+拇指是持枪的军徽：
+
+<img src="https://img.stage1st.com/forum/202605/08/192402gunggaoaquatfetq.png" referrerpolicy="no-referrer">
+
+<strong>8839ccd08e6d0530010561d1b0eab738_300px-The_Thumb_Logo_4f32c8.png</strong> (150.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-8 19:24 上传
+
+（红色是大拇指的话，这应该是左手）
+
+食指是循着流向斩断指令的剑刃：
+
+<img src="https://img.stage1st.com/forum/202605/08/192708tfrt1yrvcycffw17.png" referrerpolicy="no-referrer">
+
+<strong>672cf5fdbc49c2eaddee1ad4b4d97719_The_Index_Logo_c58679=&amp;format=original.png</strong> (55.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-8 19:27 上传
+
+（右手）
+
+中指是纹身锁链骷髅账簿：
+
+<img src="https://img.stage1st.com/forum/202605/08/192759aiei31bfygpb1qqg.png" referrerpolicy="no-referrer">
+
+<strong>d00d64fad543012ffcefae5e1c70df6a_The_Middle_Logo_414fef.png</strong> (17.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-8 19:27 上传
+
+（无名指在中指左边，是左手。话说目前还没哪个中指有骷髅装饰，也许最高阶层会有？）
+
+环指是套着戒指蘸颜料的单个指头，因为左右手已经各有一对，所以干脆不画手了：
+
+<img src="https://img.stage1st.com/forum/202605/08/193043e2ovecezeczzpo3o.png" referrerpolicy="no-referrer">
+
+<strong>8925acdfa38fb1064ce2b5d6fd548989_The_Ring_Logo_a067b3.png</strong> (481.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-8 19:30 上传
+
+（分支最繁杂的指头，也许最初的后巷之手就是像环指这样，道不同不相为谋，变得四分五裂吧...）
+
+*****
+
+####  kurihayn  
+##### 1320#       发表于 2026-5-8 19:33
+
+喜欢父辈的人看完pv心塞了
+
+如黑兽队般美好的共斗，不存在的
+

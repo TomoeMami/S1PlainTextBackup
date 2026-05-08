@@ -669,3 +669,11 @@ LEON MUST DIE
 
 LEON編也是這樣，收集3個配件再回到大閘即可
 
+
+*****
+
+####  godless2020  
+##### 2365#       发表于 2026-5-8 19:30
+
+新模式感觉是突击模式强化版，启示录1赶紧重置下<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

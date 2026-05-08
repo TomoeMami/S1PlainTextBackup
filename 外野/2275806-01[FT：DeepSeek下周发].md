@@ -645,3 +645,26 @@ v4系列就是个半成品，看后训练跟上来之后能改善到啥程度。
 
 估计是思考过程把问题解决了，就不输出正文了。它这个连续对话要把最后一次思考内容传回去的。你后面接着对话就行。
 
+
+*****
+
+####  serj005  
+##### 1385#       发表于 2026-5-8 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69592531&amp;ptid=2275806" target="_blank">zerona 发表于 2026-5-8 17:01</a>
+让v4翻译下上面的那段英文。结果出来这个了巨长的脑洞翻译。
+
+dpmpp_2m_sde_gpu: similar in style to er_sd ...</blockquote>
+这是温度开高了吗，我有几次测试温度开到2.0,让它写点小说，出来的就是类似的东西
+
+
+*****
+
+####  羊寢  
+##### 1386#       发表于 2026-5-8 19:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69593296&amp;ptid=2275806" target="_blank">serj005 发表于 2026-5-8 19:28</a>
+这是温度开高了吗，我有几次测试温度开到2.0,让它写点小说，出来的就是类似的东西 ...</blockquote>
+开这么高你不是写文你是要烤鱼啊<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+我温度最高也就3.1那会儿开过1.5，现在1.2 1.3用着也没问题，开太高温它就会乱发癫
+
