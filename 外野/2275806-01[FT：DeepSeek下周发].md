@@ -371,3 +371,40 @@ DeepSeek为什么这么不重视多模态，光靠逻辑推理不行吧</blockqu
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  julia黑  
+##### 1360#       发表于 2026-5-8 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69591671&amp;ptid=2275806" target="_blank">holylight2020 发表于 2026-5-8 14:55</a>
+我这两天用起来感觉完全不能用了。五一前很稳的。不知道是什么原因
+
+论坛助手,iPhone ...</blockquote>
+如果你是连续写文的话，写得越多，幻觉越严重。
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1361#       发表于 2026-5-8 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69591274&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-5-8 13:58</a>
+我用来写文感觉现在降智还是挺明显的，很容易出现分不清谁是谁或者一个连续的场景前一段还是秋天下一段就 ...</blockquote>
+我也拿它写文，我感觉上下文虽然记忆力很强但注意力差这个问题从发布到现在一直都有，一般我都roll几遍
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1362#       发表于 2026-5-8 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69591671&amp;ptid=2275806" target="_blank">holylight2020 发表于 2026-5-8 14:55</a>
+我这两天用起来感觉完全不能用了。五一前很稳的。不知道是什么原因
+
+论坛助手,iPhone ...</blockquote>
+是不是在一个对话里，上下文越来越多？虽然能记得住，但是注意力已经飘了。
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -574,3 +574,14 @@ LEON MUST DIE
 都是拿命堆出来的，甚至还特么有随机爆炸木桶。 ...</blockquote>
 木桶除了固定几个我记得都是可以看出来的，主要是难度太高了没啥容错，关键武器道具没roll出来就很难翻身
 
+
+*****
+
+####  mai6696  
+##### 2357#       发表于 2026-5-8 15:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69591434&amp;ptid=2252759" target="_blank">纯爱战士段正淳 发表于 2026-5-8 14:22</a>
+
+隔壁游戏不是吊打re、mh这些半成品？说啥最后良心呢</blockquote>
+说了半天隔壁，哪儿啊？
+
