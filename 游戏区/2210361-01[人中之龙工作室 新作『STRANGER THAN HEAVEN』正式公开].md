@@ -822,3 +822,19 @@ CAST&amp;剧情PV
 在如龙里听到ado有种在ff16里听到望月的感觉</blockquote>
 那ado跟律师比？
 
+
+*****
+
+####  医生狼多  
+##### 192#       发表于 2026-5-8 13:36
+
+歌真好听，什么时候能上架<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kojimaru  
+##### 193#       发表于 2026-5-8 13:44
+
+审判之逝不也是ado
+

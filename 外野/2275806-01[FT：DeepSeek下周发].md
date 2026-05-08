@@ -304,3 +304,24 @@ DS这个识图功能能分辨喂的图是不是AI图吗？</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  bbvcv  
+##### 1354#       发表于 2026-5-8 13:42
+
+DeepSeek为什么这么不重视多模态，光靠逻辑推理不行吧
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1355#       发表于 2026-5-8 13:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69590730&amp;ptid=2275806" target="_blank">holylight2020 发表于 2026-5-8 12:06</a>
+有没有人觉得五一后的v4pro降智了
+
+论坛助手,iPhone</blockquote>
+没感觉降智，但我觉得它一直生成质量很不稳定
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
