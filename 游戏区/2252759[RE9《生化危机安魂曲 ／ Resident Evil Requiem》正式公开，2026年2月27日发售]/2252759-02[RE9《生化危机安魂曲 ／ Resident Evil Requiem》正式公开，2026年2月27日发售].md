@@ -561,3 +561,16 @@ LEON MUST DIE
 4re可以说是卡表近十年来最大也是最后的良心了，如果这个你都不满意，这个厂的游戏都可以不用关注了 ...</blockquote>
 隔壁游戏不是吊打re、mh这些半成品？说啥最后良心呢
 
+
+*****
+
+####  牙狼GARO  
+##### 2356#       发表于 2026-5-8 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69591295&amp;ptid=2252759" target="_blank">mai6696 发表于 2026-5-8 14:02</a>
+
+伊森必须死难度太高，通了一遍就没兴趣再玩了。
+
+都是拿命堆出来的，甚至还特么有随机爆炸木桶。 ...</blockquote>
+木桶除了固定几个我记得都是可以看出来的，主要是难度太高了没啥容错，关键武器道具没roll出来就很难翻身
+
