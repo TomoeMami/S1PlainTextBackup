@@ -537,3 +537,16 @@ LEON MUST DIE
 
 都是拿命堆出来的，甚至还特么有随机爆炸木桶。
 
+
+*****
+
+####  bingo0716  
+##### 2354#       发表于 2026-5-8 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69590668&amp;ptid=2252759" target="_blank">霖岚_ 发表于 2026-5-8 11:55</a>
+
+30周年作整这么敷衍，不想做真的可以不做的
+
+吃过4re和荒野两坨之后也不再相信卡婊了，等二手价格稳定才买的 ...</blockquote>
+4re可以说是卡表近十年来最大也是最后的良心了，如果这个你都不满意，这个厂的游戏都可以不用关注了
+

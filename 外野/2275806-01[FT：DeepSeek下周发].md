@@ -349,3 +349,13 @@ DeepSeek为什么这么不重视多模态，光靠逻辑推理不行吧
 <img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">就是单纯随机性的原因，后训练没做够任务不稳定导致一会神一会鬼。降智判断起来是要用一些任务来测的。不要老是叫降智。
 降智就是提供商给你把模型换了，这是很严重的事    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  overflowal  
+##### 1358#       发表于 2026-5-8 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69591174&amp;ptid=2275806" target="_blank">bbvcv 发表于 2026-5-8 13:42</a>
+DeepSeek为什么这么不重视多模态，光靠逻辑推理不行吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
