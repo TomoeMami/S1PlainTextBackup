@@ -935,3 +935,17 @@ pv真不错，后面一切烟花的一幕还有种深深的宿命惆怅感。歌
 在冰与火之歌里面听到律师很几把怪
 再说律师的唱歌水平能比得过ado？
 
+
+*****
+
+####  伊丽虾皇VI  
+##### 205#       发表于 2026-5-9 07:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69594395&amp;ptid=2210361" target="_blank">iamleoy 发表于 2026-5-9 00:05</a>
+剧本看点一：什么时候和基友反目（不可能不反）以及基友是不是最终boss
+
+剧本看点二：有没有婴儿桐生出现 ...</blockquote>
+草，我觉得能看到年轻风间就够放料了，婴儿桐生实属是没想到的角度
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
