@@ -582,3 +582,32 @@ NGA的接口有问题？提示NGA 直连没有解析到回复
 
 大师，你看看我可明镜
 
+
+*****
+
+####  之世郎  
+##### 51#       发表于 2026-5-8 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69591536&amp;ptid=2280539" target="_blank">ayanamilin 发表于 2026-5-8 14:38</a>
+看了下代码逻辑，抓的应该是用户回复汇总页里的回复概览，每条内容都有长度限制的。
+
+比如这栋楼楼主的这条 ...</blockquote>
+楼主看看word<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  伽蓝寺  
+##### 52#       发表于 2026-5-8 16:05
+
+康康我的！
+
+*****
+
+####  AlphardAlSheya  
+##### 53#       发表于 2026-5-8 16:05
+
+大师请查我成分<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

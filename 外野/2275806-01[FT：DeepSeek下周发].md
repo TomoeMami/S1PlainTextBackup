@@ -426,3 +426,17 @@ DeepSeek为什么这么不重视多模态，光靠逻辑推理不行吧</blockqu
 
 有人把api丢到sub2api里面吗，openai的端点好像用不了，得用Anthropic
 
+
+*****
+
+####  holylight2020  
+##### 1365#       发表于 2026-5-8 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69591825&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-5-8 15:16</a>
+是不是在一个对话里，上下文越来越多？虽然能记得住，但是注意力已经飘了。
+
+—— 来自 HUAWEI SGU-AL10, ...</blockquote>
+不是的，我都是cc，git worktree，但是发现能力突然变得很差
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
