@@ -3193,3 +3193,32 @@ can can word
 
 没法部署了，能查查我的吗？感谢
 
+
+*****
+
+####  taxiom  
+##### 195#       发表于 2026-5-9 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69596999&amp;ptid=2280539" target="_blank">鸳鸳相抱 发表于 2026-5-9 15:32</a>
+
+条数直接在脚本第一页改一下25行的值就好了
+
+  const REPLY_LIMIT = 50;
+
+比如这样 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer"> 赞，准确多了
+
+*****
+
+####  fengcheng  
+##### 196#       发表于 2026-5-9 17:51
+
+帮我也看下，感谢了
+
+*****
+
+####  S_ky  
+##### 197#       发表于 2026-5-9 17:51
+
+插件装上了，没看到互动页面啊
+
