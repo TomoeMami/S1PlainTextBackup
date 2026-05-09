@@ -4331,3 +4331,15 @@ aoz出活动可以补强z系列。
 —— 来自 realme RMX6699, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
 你在说什么，机师哪来的升星
 
+
+*****
+
+####  冰风血羽  
+##### 4195#       发表于 2026-5-9 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69595478&amp;ptid=2071758" target="_blank">白猫MKII 发表于 2026-5-9 10:18</a>
+你在说什么，机师哪来的升星</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">早起胡言乱语，跟那条MA船搞混了
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
