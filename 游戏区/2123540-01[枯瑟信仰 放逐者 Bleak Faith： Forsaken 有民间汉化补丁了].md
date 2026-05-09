@@ -3590,3 +3590,15 @@ peck没有印象了，好像不集成的。
 
 【「Bleak Faith: Forsaken」个人汉化】[https://www.bilibili.com/video/B ... 16e7b965093ae1072f3](https://www.bilibili.com/video/BV163dRBfEkF?vd_source=78f09001b1ecd16e7b965093ae1072f3)  up主简介有汉化补丁下载  感谢这位民间汉化大神
 
+
+*****
+
+####  shyso  
+##### 285#       发表于 2026-5-9 20:17
+
+好
+
+有空重新玩
+
+这游戏真是太谜语人了，看英文我真是完全不懂他们在说啥
+
