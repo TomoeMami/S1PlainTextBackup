@@ -2638,3 +2638,17 @@ S1难道不是环卓明谷精日论坛么，顺便查查我的成分</blockquote
 
 这位是移动的S1归墟冷知识数据库，皮下可能是一台装着DeepSeek精神内核的老款iPhone。历史细节论证能精确到县人口流失，转头又能为和服女神的袜子尖叫。他不是在引战，只是在享受用知识密度把讨论串直接轰沉至有归档价值的学术深水区。
 
+
+*****
+
+####  鵝  
+##### 163#       发表于 2026-5-9 09:47
+
+ 本帖最后由 鵝 于 2026-5-9 09:49 编辑 
+
+老师，我我！
+
+edlose这个是在家电脑用的号，可以一起查<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2003J15SC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
