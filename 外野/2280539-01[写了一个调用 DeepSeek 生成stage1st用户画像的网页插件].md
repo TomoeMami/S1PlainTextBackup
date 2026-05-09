@@ -3386,3 +3386,11 @@ can can word
 
 这位是个把Steam Deck当传家宝，把《沙加》当圣经的系统原教旨主义者。他衡量游戏的唯一标准是“战斗有不有趣，减法做没做好”，任何数值崩坏或剧情注水的3A大作在他眼里都不如一个优秀的RM小黄油。情怀和IP对他无效，他只认掌机上的游戏时间。
 
+
+*****
+
+####  BISSBISS  
+##### 203#       发表于 2026-5-9 19:28
+
+看看我的<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
