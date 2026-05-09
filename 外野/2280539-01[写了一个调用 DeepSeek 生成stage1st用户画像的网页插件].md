@@ -2815,3 +2815,25 @@ edlose这个是在家电脑用的号，可以一起查</blockquote>
 
 我要自爆，查查我成分
 
+
+*****
+
+####  鸳鸳相抱  
+##### 172#       发表于 2026-5-9 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69596908&amp;ptid=2280539" target="_blank">taxiom 发表于 2026-5-9 15:13</a>
+
+试了下挺有意思的，但建议开放100条，区区20条上下文试了几个知名ID并不是很吻合 ...</blockquote>
+条数直接在脚本第一页改一下25行的值就好了
+
+  const REPLY_LIMIT = 50;
+
+比如这样
+
+*****
+
+####  nailuo1993  
+##### 173#       发表于 2026-5-9 15:32
+
+can can word
+
