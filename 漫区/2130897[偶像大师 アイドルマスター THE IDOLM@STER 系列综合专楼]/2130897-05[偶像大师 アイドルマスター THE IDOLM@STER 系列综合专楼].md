@@ -173,3 +173,71 @@ A1（CW）的话，监督能请辣个蓝人吗<img src="https://static.stage1st.
 
 学居然实装Go my way了 老资历是对的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 7379#       发表于 2026-5-8 16:40
+
+令人羡慕<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Unlight  
+##### 7380#         楼主| 发表于 2026-5-8 16:41
+
+A1（CW）的话，监督能请辣个蓝人吗<img src="https://static.stage1st.com/image/smiley/carton2017/291.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  RhmBWT_Wu  
+##### 7381#       发表于 2026-5-8 17:12
+
+锦织百万都不熟了，怎么可能学<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不如找个真爱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  信长的呕吐  
+##### 7382#       发表于 2026-5-8 19:51
+
+学居然实装Go my way了 老资历是对的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 7383#       发表于 2026-5-9 15:42
+
+学园偶像大师『H.I.F篇』游戏内OP动画
+[https://youtu.be/QCsb89zRVVE](https://youtu.be/QCsb89zRVVE)
+
+<img src="https://p.sda1.dev/32/eceaf68a8d0981d2f2f8266c8a11eda7/20260509_153552.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/7e82e627b4ee9235d45fd8d66c7dbd7f/20260509_153553.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/d962f73de9198922ca5fda9b99fb2326/20260509_153554.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/add126e56a72ea909c8941a48683efee/20260509_153555.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2052592139813695950](https://x.com/i/status/2052592139813695950)
+
+頂上決戦、開幕！    
+
+HIF編OP 
+
+にて原画で参加させていただきました！  
+
+学マスが本当に好きなので、数カット描かせていただいて光栄です。  
+
+ぜひご覧ください！    
+
+＊絵はファンアートです 
+<img src="https://p.sda1.dev/32/0f56d73cfda59c852c07b086505a05ee/20260509_153818.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2052718999058911309](https://x.com/i/status/2052718999058911309)
+
+H.I.F編OP、原画で参加しました。トレーナーさんたちと亜紗里先生描いてます。スタッフの皆様ご面倒おかけしましたお疲れ様でしたありがとうございました！
+<img src="https://p.sda1.dev/32/57f50fe0dcc931a773f93da7bd223c58/20260509_153825.jpg" referrerpolicy="no-referrer">
+
