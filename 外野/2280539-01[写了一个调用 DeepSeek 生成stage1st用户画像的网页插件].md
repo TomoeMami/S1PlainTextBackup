@@ -2739,3 +2739,18 @@ edlose这个是在家电脑用的号，可以一起查</blockquote>
 
 我说你们在这让别人查完贴出来的是有暴露癖么？XD
 
+
+*****
+
+####  y4cccigzhc  
+##### 167#       发表于 2026-5-9 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69596221&amp;ptid=2280539" target="_blank">acgcon 发表于 2026-5-9 12:34</a>
+
+我说你们在这让别人查完贴出来的是有暴露癖么？XD</blockquote>
+赛博算命而已<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+威灵顿他妈还觉得自家小儿子是最没出息的，也不妨碍威灵顿在拿战时期胜率最高，野战几乎全胜，当代仅此拿皇的名将，他哥反而寂寂无闻<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+父母都难以评断自家孩子的性格未来，何况一个AI拿着20条回复刻画人物，图个乐而已<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
