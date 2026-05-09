@@ -3610,3 +3610,18 @@ peck没有印象了，好像不集成的。
 
 有**改器
 
+
+*****
+
+####  qappip  
+##### 287#         楼主| 发表于 2026-5-9 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69598110&amp;ptid=2123540" target="_blank">shyso 发表于 2026-5-9 20:17</a>
+
+好
+
+有空重新玩
+
+这游戏真是太谜语人了，看英文我真是完全不懂他们在说啥</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">相信我看中文你也不知道他们在说什么，不讲人话的。
+
