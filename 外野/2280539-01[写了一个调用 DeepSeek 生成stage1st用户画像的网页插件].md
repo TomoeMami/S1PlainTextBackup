@@ -3020,3 +3020,11 @@ can can word
 [政治光谱]</blockquote>
 哈哈哈，好玩，谢谢，如果可以把马甲的发言都链上就更好了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  benjin  
+##### 185#       发表于 2026-5-9 16:56
+
+看了下也算是比较贴切最近20条发言总结出来的画像,但是我觉得还是从用户所有发言中随机抽出20条更好?比如说我今天连续发20条发颠的评论那它就只能判断我是个发颠的人了
+
