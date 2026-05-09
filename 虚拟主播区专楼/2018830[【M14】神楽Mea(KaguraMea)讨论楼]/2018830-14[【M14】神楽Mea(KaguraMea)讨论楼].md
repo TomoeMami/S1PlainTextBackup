@@ -456,3 +456,39 @@ yauji太装了，应该是优势太大想越塔然后就变成这样了。正常
 
 <img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">释迦那队看着说是好像基本就释迦在call，感觉要磨合一段时间了
 
+
+*****
+
+####  术士q  
+##### 20649#       发表于 2026-5-9 22:57
+
+参考Jimmy佬完成，感谢!
+
+5.9歌回
+
+0:05:45 - 0:09:57 ★ 01. 我最可爱的地方 / わたしの一番かわいいところ / FRUITS ZIPPER
+
+0:10:02 - 0:14:17 ★ 02. 魔镜 / かがみ / FRUITS ZIPPER
+
+0:14:31 - 0:19:01 ★ 03. NEW KAWAII / NEW KAWAII / FRUITS ZIPPER
+
+0:19:14 - 0:23:01 ★ 04. Pure in the World / ぴゅあいんざわーるど / FRUITS ZIPPER
+
+0:23:27 - 0:27:25 ★ 05. 欢脱乱闹的“哇恰”生活 / はちゃめちゃわちゃライフ！ / FRUITS ZIPPER
+
+0:28:03 - 0:32:25 ★ 06. 世界第一公主殿下 / ワールドイズマイン / ryo（supercell）feat. 初音ミク
+
+0:32:30 - 0:35:51 ★ 07. 双马尾直到20岁为止♡ / ツインテールは20歳まで♡ / きゅるりんってしてみて
+
+0:36:39 - 0:39:15 ★ 08. Identity / アイデンティティ / Kanaria feat. GUMI×初音ミク
+
+0:39:42 - 0:43:36 ★ 09. 盛放吧！我的挚爱 / 盛れ！ミ・アモーレ / Juice=Juice
+
+0:44:11 - 0:47:33 ★ 10. 十七 / セブンティーン / YOASOBI
+
+0:48:15 - 0:51:17 ★ 11. 傲娇 / ツンデレ / なえなの feat. セカンドバッカー
+
+0:51:30 - 0:55:50 ★ 12. Hello,world! / Hello,world! / BUMP OF CHICKEN
+
+0:56:05 - 1:02:22 ★ 13. 玻璃蓝调 / ガラスのブルース / BUMP OF CHICKEN
+
