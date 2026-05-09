@@ -4319,3 +4319,15 @@ aoz出活动可以补强z系列。
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  白猫MKII  
+##### 4194#       发表于 2026-5-9 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69595054&amp;ptid=2071758" target="_blank">冰风血羽 发表于 2026-5-9 09:03</a>
+送的佐尔坦居然只有本体没有升星
+
+—— 来自 realme RMX6699, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+你在说什么，机师哪来的升星
+
