@@ -4275,3 +4275,14 @@ B站那个游戏人白夜 我看他是沉浸在自己的艺术里面了</blockqu
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">ZZ靠EXS缓解了一下，Z可以等AOZ，未来可期
 
+
+*****
+
+####  电脑死机  
+##### 4190#       发表于 2026-5-9 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69593152&amp;ptid=2071758" target="_blank">ドロロ 发表于 2026-5-8 18:54</a>
+
+现在Z和ZZ是最惨的了吧，没啥开发机，后续也没活动补充</blockquote>
+ZZ可以sp化那几台ZZ，还有s高达，Z的话卡池里有AOZ，强敌有mk3，后续还可能出新的对应ur
+
