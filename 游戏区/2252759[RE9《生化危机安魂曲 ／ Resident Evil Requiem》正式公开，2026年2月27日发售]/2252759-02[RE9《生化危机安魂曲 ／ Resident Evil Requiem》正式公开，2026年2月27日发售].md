@@ -764,3 +764,13 @@ LEON編也是這樣，收集3個配件再回到大閘即可
 
 不過這招算是普通功夫來嗎???
 
+
+*****
+
+####  otakun  
+##### 2374#       发表于 2026-5-9 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69595634&amp;ptid=2252759" target="_blank">godless2020 发表于 2026-5-9 10:39</a>
+精英卫队关太难了，被打到就秒</blockquote>
+我把三个有负面影响的防御技能都拿了，就是近战减伤，然后吃射击伤害变多和另一个效果反过来的，还有-50伤害但是攻击也降低的。之后猛堆散弹和近战伤害，直接贴脸跟他们打<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，很耐操。  当时只是等级1。
+
