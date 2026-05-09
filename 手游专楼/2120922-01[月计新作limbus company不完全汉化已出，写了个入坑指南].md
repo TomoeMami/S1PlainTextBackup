@@ -245,3 +245,16 @@ PV里有红黑蜘蛛巢logo剪影，应该带父辈词条吧：
 
 刚过了贾母一次过 这比雷横默好打多了 第九章应该简单吧……？
 
+
+*****
+
+####  Jamaisvu  
+##### 1323#       发表于 2026-5-9 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69598727&amp;ptid=2120922" target="_blank">imba419 发表于 2026-5-9 23:16</a>
+
+刚过了贾母一次过 这比雷横默好打多了 第九章应该简单吧……？</blockquote>
+第九章大部分boss战都有NPC助阵，看着很难，运用好机制就能平稳通关，比如让队友帮忙拼高危技能，或者拦截一些不该队友拼的技能。
+
+不过这帮boss进了镜牢隐藏关就只能靠自己打啦<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
