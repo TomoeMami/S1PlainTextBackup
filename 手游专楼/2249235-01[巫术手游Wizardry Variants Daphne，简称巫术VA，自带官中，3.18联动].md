@@ -361,3 +361,16 @@ sr妹子是大奖，这ssr的妖精什么烂货，装备还要专门的，目前
 
 wiki可以看这个，[https://wizdaphne.huijiwiki.com/wiki/%E9%A6%96%E9%A1%B5](https://wizdaphne.huijiwiki.com/wiki/%E9%A6%96%E9%A1%B5)，最近更新了不少新手入坑方面的页面，时效性的讨论可以看看巴哈的专区。至于肝报废，你游大后期基本都是在刷装，不过现在有小狐狸轮椅，没数值强迫症以及不追求打高难boss其实不怎么刷也行<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  藤钢剑姬  
+##### 807#       发表于 2026-5-9 11:38
+
+这个贴居然没有发过吗，前天5月7号雅达利拿到了巫术1-5的所有版权，貌似还包括了使用1-5元素的巫术外传系列。
+而巫术商标/IP运营权、以及巫术678和非1-5世界观的日系外传（帝国/复兴）还保留在drecom手中。
+雅达利计划用1-5版权开展多媒体企划，但是貌似需要与drecom协商才行…
+巫术又回到了版权混乱的时期了啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
