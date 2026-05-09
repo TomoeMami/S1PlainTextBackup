@@ -740,3 +740,11 @@ LEON編也是這樣，收集3個配件再回到大閘即可
 
 只不过还没见过成就里的全射击加100技能，不知是完全随机还是某种条件（死的越多给的技能越好？
 
+
+*****
+
+####  godless2020  
+##### 2372#       发表于 2026-5-9 10:39
+
+精英卫队关太难了，被打到就秒<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

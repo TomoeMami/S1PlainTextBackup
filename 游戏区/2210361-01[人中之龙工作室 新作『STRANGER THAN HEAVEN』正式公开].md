@@ -965,3 +965,21 @@ pv真不错，后面一切烟花的一幕还有种深深的宿命惆怅感。歌
 
 怎么都传如龙0的酒神就是大东
 
+
+*****
+
+####  nagamasa  
+##### 208#       发表于 2026-5-9 10:35
+
+别给桐生也加血统论就行<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zqqwe  
+##### 209#       发表于 2026-5-9 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69595604&amp;ptid=2210361" target="_blank">nagamasa 发表于 2026-5-9 10:35</a>
+别给桐生也加血统论就行</blockquote>
+桐生父母是被风间杀的，很难连上吧
+
