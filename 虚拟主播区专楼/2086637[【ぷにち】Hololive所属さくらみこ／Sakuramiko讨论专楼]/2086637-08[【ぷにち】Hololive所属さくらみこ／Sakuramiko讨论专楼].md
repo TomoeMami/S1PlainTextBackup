@@ -19,3 +19,40 @@
 
 难不成这就是被调去做新企划的
 
+
+*****
+
+####  holofan  
+##### 11564#       发表于 2026-5-8 17:41
+
+ 本帖最后由 holofan 于 2026-5-8 17:43 编辑 
+
+sb出版方不是吗
+
+有人发现例图（第2问）的分数计算题题目和答案全部错误，正确的题应该是乘法运算而不是加法运算
+
+<img src="https://img.stage1st.com/forum/202605/08/174121pv7wcj4xbvkcftc4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (89.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-8 17:41 上传
+
+看看后面怎么圆<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 11565#       发表于 2026-5-9 09:00
+
+<img src="https://img.stage1st.com/forum/202605/09/085900v484ya932492b333.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (301.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-9 08:59 上传
+
+这次差了点没拿到书籍总榜单日第一
+
