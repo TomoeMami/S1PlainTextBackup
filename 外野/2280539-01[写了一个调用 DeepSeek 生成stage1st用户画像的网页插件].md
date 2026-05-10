@@ -4069,3 +4069,17 @@ kknd，哦不，kkwd，plz
 
 一个把互联网当素材库的行为艺术创作者。政治在他眼里是烂梗，游戏是他供奉萝卜的圣殿，而生活则是他东拉西扯的脱衣舞小说底稿。别试图和他认真，他已经在下一个帖子里用相扑年寄的包袱等你自投罗网了。
 
+
+*****
+
+####  chexk03  
+##### 240#       发表于 2026-5-10 18:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69599475&amp;ptid=2280539" target="_blank">love4aids 发表于 2026-5-10 10:00</a>
+用户：stage1st-38823 (38823)
+
+[政治光谱]</blockquote>
+明明应该是国内二次元活化石才对（不过漫区确实去的少了）
+
+体制内活化石啊，明明是上岸才没几年<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
