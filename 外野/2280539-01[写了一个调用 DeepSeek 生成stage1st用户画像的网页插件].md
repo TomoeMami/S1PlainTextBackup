@@ -3922,3 +3922,11 @@ kknd，哦不，kkwd，plz
 
 增加“在结果中包含原始回复内容”开关，关闭后将不再在用户画像结果中显示原始回复内容
 
+
+*****
+
+####  泰安巨人ex  
+##### 230#       发表于 2026-5-10 15:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">也看看我的吧～
+

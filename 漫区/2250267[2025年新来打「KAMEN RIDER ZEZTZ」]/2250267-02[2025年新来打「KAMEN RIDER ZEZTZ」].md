@@ -504,3 +504,13 @@ somonia应该就是所谓code的造神计划，直接掌控梦境成神消灭梦
 
 —— 来自 vivo V2309A, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  blue321  
+##### 1529#       发表于 2026-5-10 15:20
+
+超梦这能力比皇后杀手好用多了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
