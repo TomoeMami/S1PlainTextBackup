@@ -177,3 +177,20 @@ somonia应该就是所谓code的造神计划，直接掌控梦境成神消灭梦
 
 这集打戏爽了
 
+
+*****
+
+####  挺好的  
+##### 1497#       发表于 2026-5-10 10:23
+
+ 本帖最后由 挺好的 于 2026-5-10 10:26 编辑 
+
+橘前辈纯被机制克死，数值上可能有差距但还是单杀了超梦两次，感觉认真打随随便便单杀灾厄和秩序<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 1498#       发表于 2026-5-10 10:23
+
+齐格应该就是典型的直面黑暗太久结果搞到最后对人类失望之类的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
