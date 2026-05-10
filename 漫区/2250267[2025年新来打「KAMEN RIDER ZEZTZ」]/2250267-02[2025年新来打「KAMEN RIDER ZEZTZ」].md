@@ -271,3 +271,12 @@ somonia应该就是所谓code的造神计划，直接掌控梦境成神消灭梦
 看情报感觉索姆尼亚的权限更高，应该会被ban
 <img src="https://p.sda1.dev/32/c73e603fb884e0d502ee1d560cee9048/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RStocking  
+##### 1507#       发表于 2026-5-10 11:27
+
+西格成为特工之前就能在梦里杀人了<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+原来你才是真正的高手
+
