@@ -60,3 +60,11 @@ rc不太懂，看着感觉至少更宽松点？
 确实，以cover目前的策略来说，只要不跑就是胜利，
 那能抗住两年的确实才合理<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 1900#       发表于 2026-5-10 21:52
+
+rc还不错吧，工商后勤有保障，看起来也比较自由。虽然确实看不懂为什么不去vspo，可能vspo对她来说还是太烫了。至于holo那感觉还不如留虹
+
