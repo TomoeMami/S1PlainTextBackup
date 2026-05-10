@@ -514,3 +514,13 @@ somonia应该就是所谓code的造神计划，直接掌控梦境成神消灭梦
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  godvim  
+##### 1530#       发表于 2026-5-10 15:43
+
+最终登场前居然给了这么帅的一段肉身枪斗<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+变身后的打戏直接一个吹爆，各种瞬息转场和特效太爽了<img src="https://static.stage1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
