@@ -611,3 +611,11 @@ zzz是骑士历史第一个击杀二骑和三骑的主骑了<img src="https://st
 
 回来又看了两遍，这最终形态首秀打的真的好爽<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 1540#       发表于 2026-5-11 00:09
+
+还是齐格够强，才能打的有来有回的，其他首秀基本都是纯碾压吧。不过还得看我三哥，打不过从来不刚正面，直接隐身偷好吧
+
