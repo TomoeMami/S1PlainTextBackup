@@ -427,3 +427,13 @@ somonia应该就是所谓code的造神计划，直接掌控梦境成神消灭梦
 等推大概做不到对shadow优势，就等离子就已经被当时防御为主的shadow完爆了，破防都做不到，不过这两个没 ...</blockquote>
 同等级不代表对上相同的敌人时表现一样，灾厄的机制是一切机制转数值，相性上吃亏一些，秩序的机制是反过来克制黎明的，所以我倾向于能打出优势。
 
+
+*****
+
+####  Toki_Ai  
+##### 1521#       发表于 2026-5-10 12:48
+
+看爽了，这才是我想看的.jpg<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
