@@ -305,3 +305,21 @@ somonia应该就是所谓code的造神计划，直接掌控梦境成神消灭梦
 
 直到这一集才感觉到了所谓的国际化
 
+
+*****
+
+####  oh_my_god  
+##### 1511#       发表于 2026-5-10 11:46
+
+想到一个问题，这集莫潜入深层梦境，走的那扇门上面是zzz本人的塑像
+
+那平常上锁的那扇梦魇之门，门上面的那个雕塑会在大结局之前站起来吗？不知道门上雕塑会是怎样一个定位
+
+*****
+
+####  AP0rt_  
+##### 1512#       发表于 2026-5-10 11:51
+
+说起来这画面越看越难绷，这么放心把后背交给对方的两人一定是战友的对吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/3dfa320d043a1436de6900d8cf7b0b38/image.jpg" referrerpolicy="no-referrer">
+
