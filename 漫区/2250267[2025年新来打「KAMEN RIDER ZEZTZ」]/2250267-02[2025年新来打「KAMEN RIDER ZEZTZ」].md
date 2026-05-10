@@ -238,3 +238,15 @@ somonia应该就是所谓code的造神计划，直接掌控梦境成神消灭梦
 
 后面不搞个能力封印，反派没得玩了。
 
+
+*****
+
+####  damian-wade  
+##### 1504#       发表于 2026-5-10 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69599548&amp;ptid=2250267" target="_blank">挺好的 发表于 2026-5-10 10:23</a>
+橘前辈纯被机制克死，数值上可能有差距但还是单杀了超梦两次，感觉认真打随随便便单杀灾厄和秩序 ...</blockquote>
+不用感觉，前几天的舞台剧就已经干掉了灾厄了
+
+—— 来自 HONOR MAG-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
