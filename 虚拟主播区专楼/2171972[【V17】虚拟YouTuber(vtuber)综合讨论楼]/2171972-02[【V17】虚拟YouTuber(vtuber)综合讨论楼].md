@@ -51,3 +51,12 @@ cover也上了练习生企划，看起来类似制度几乎是大箱在面对越
 硬要说bg还在巨亏，进不了vspo的话都不能说稳，收入下限也没保障。
 rc不太懂，看着感觉至少更宽松点？
 
+
+*****
+
+####  渡鸦骑士  
+##### 1899#       发表于 2026-5-10 20:43
+
+确实，以cover目前的策略来说，只要不跑就是胜利，
+那能抗住两年的确实才合理<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
