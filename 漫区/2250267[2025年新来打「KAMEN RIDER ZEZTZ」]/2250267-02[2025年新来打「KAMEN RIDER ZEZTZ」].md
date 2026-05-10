@@ -280,3 +280,28 @@ somonia应该就是所谓code的造神计划，直接掌控梦境成神消灭梦
 西格成为特工之前就能在梦里杀人了<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 原来你才是真正的高手
 
+
+*****
+
+####  iceddd  
+##### 1508#       发表于 2026-5-10 11:33
+
+什么黄金体验镇魂曲 写这么变态的能力下一集还要吃瘪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+橘前辈强度夸张哦 超级机制还打了个64开 演员还没收花吧 虽然打的很漂亮不至于这么快退场    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  离心  
+##### 1509#       发表于 2026-5-10 11:38
+
+还行，能接受齐格的处理。超梦的机制过强的话太容易会被天意针对啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  windaria  
+##### 1510#       发表于 2026-5-10 11:39
+
+直到这一集才感觉到了所谓的国际化
+
