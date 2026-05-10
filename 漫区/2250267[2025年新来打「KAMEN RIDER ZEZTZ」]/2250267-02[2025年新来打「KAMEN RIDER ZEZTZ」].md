@@ -349,3 +349,13 @@ somonia应该就是所谓code的造神计划，直接掌控梦境成神消灭梦
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">经典枪斗术
 
+
+*****
+
+####  pokemon最爱  
+##### 1515#       发表于 2026-5-10 12:13
+
+最终初登场常有的大炮打蚊子，虽然完全没必要但就是要把能力秀一遍（然后查无此人），说实话我觉得不能完全拿来评价战力<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+灾厄秩序超梦对黎明的情况我觉得可以参考等离子等推灾厄对NoxShadow吧，劣势优势抽陀螺打死这样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
