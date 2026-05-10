@@ -1092,3 +1092,13 @@ pv质感太好了
 
 主角甚至有点像米勒<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sopp  
+##### 219#       发表于 2026-5-10 20:09
+
+我一直把这个和tga那个马东锡播片的游戏搞混……
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
