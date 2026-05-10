@@ -416,3 +416,14 @@ somonia应该就是所谓code的造神计划，直接掌控梦境成神消灭梦
 橘前辈剧情定位很高，人类和血腥梦魇融合后的产物，超梦登场前梦境顶点。灾厄血腥梦魇应该比惩戒强，但莫拒绝了和梦魇融合。因为三骑基础加上皮套素，很多人意识不到
 黎明基础也是整个来打里定位数一数二的三骑了，比他强的应该是saga，能打不带剑的魔皇.......不对，还有个钢子，懂不懂黑炎加持基础肘翻彩虹龙的含金量啊，真正的最强三骑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1520#       发表于 2026-5-10 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69599932&amp;ptid=2250267" target="_blank">挺好的 发表于 2026-5-10 12:25</a>
+
+等推大概做不到对shadow优势，就等离子就已经被当时防御为主的shadow完爆了，破防都做不到，不过这两个没 ...</blockquote>
+同等级不代表对上相同的敌人时表现一样，灾厄的机制是一切机制转数值，相性上吃亏一些，秩序的机制是反过来克制黎明的，所以我倾向于能打出优势。
+
