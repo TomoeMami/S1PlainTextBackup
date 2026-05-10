@@ -4343,3 +4343,19 @@ aoz出活动可以补强z系列。
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  无念  
+##### 4196#       发表于 2026-5-10 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69595028&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2026-5-9 08:59</a>
+aoz出活动可以补强z系列。
+
+但问题是怎么出呢？
+
+难道出个没有驾驶员，单纯造机体的活动吗？</blockquote>
+aoz1驾驶员很齐全啊，虽然我估计除了主角和队长很多人听都没听过<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
