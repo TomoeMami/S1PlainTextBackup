@@ -414,3 +414,14 @@ ds 出了开源的TUI</blockquote>
 这东西直接踩人口政策红线吧，梁圣真有那么大能量的吗</blockquote>
 你这说的就跟说游戏是电子dp一样，无稽之谈
 
+
+*****
+
+####  septem123  
+##### 42#       发表于 2026-5-10 18:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69598994&amp;ptid=2280633" target="_blank">此誓的守望 发表于 2026-5-10 01:25</a>
+
+不是DS官方的，是ai写的屎山</blockquote>
+其实现在 claude code 也全是AI生成的<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
