@@ -524,3 +524,13 @@ somonia应该就是所谓code的造神计划，直接掌控梦境成神消灭梦
 
 变身后的打戏直接一个吹爆，各种瞬息转场和特效太爽了<img src="https://static.stage1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  浅川雏羽  
+##### 1531#       发表于 2026-5-10 15:48
+
+预知梦的时候哥哥枪毙5和6让牢莫产生了枪比皮套有用的认知，所以两次主动找橘前辈的茬都试图在变身前枪毙橘前辈<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
