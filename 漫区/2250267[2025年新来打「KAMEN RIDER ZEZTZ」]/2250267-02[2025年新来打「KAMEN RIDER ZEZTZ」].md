@@ -556,3 +556,11 @@ somonia应该就是所谓code的造神计划，直接掌控梦境成神消灭梦
 
 zzz是骑士历史第一个击杀二骑和三骑的主骑了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相濡以沫  
+##### 1534#       发表于 2026-5-10 16:32
+
+友哈巴赫同款能力也太赖皮了，这种级别的现实扭曲者，后面不削要怎么拍？
+
