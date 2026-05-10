@@ -250,3 +250,24 @@ somonia应该就是所谓code的造神计划，直接掌控梦境成神消灭梦
 
 —— 来自 HONOR MAG-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  AP0rt_  
+##### 1505#       发表于 2026-5-10 11:08
+
+仔细看还有呆毛，应该还是梦里
+<img src="https://p.sda1.dev/32/3c2b8c813468d616fba13e3a2d632f4b/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  AP0rt_  
+##### 1506#       发表于 2026-5-10 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69599633&amp;ptid=2250267" target="_blank">acejoe 发表于 2026-5-10 10:55</a>
+这也太唯心了吧。
+
+后面不搞个能力封印，反派没得玩了。</blockquote>
+看情报感觉索姆尼亚的权限更高，应该会被ban
+<img src="https://p.sda1.dev/32/c73e603fb884e0d502ee1d560cee9048/image.jpg" referrerpolicy="no-referrer">
+
