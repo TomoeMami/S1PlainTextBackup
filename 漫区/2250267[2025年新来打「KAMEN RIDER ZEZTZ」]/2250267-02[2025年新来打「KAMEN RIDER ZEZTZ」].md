@@ -359,3 +359,51 @@ somonia应该就是所谓code的造神计划，直接掌控梦境成神消灭梦
 
 灾厄秩序超梦对黎明的情况我觉得可以参考等离子等推灾厄对NoxShadow吧，劣势优势抽陀螺打死这样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  挺好的  
+##### 1516#       发表于 2026-5-10 12:25
+
+ 本帖最后由 挺好的 于 2026-5-10 12:26 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69599897&amp;ptid=2250267" target="_blank">pokemon最爱 发表于 2026-5-10 12:13</a>
+
+最终初登场常有的大炮打蚊子，虽然完全没必要但就是要把能力秀一遍（然后查无此人），说实话我觉得不能完全 ...</blockquote>
+等推大概做不到对shadow优势，就等离子就已经被当时防御为主的shadow完爆了，破防都做不到，不过这两个没对打过，不能评价
+
+同样，秩序表现太少了，本身也是灾厄的另一面，可能也做不到优势西格，就灾厄本身也是打不过西格的
+
+*****
+
+####  蔺无双  
+##### 1517#       发表于 2026-5-10 12:25
+
+先不说文戏和剧情了，这打戏确实可以说国际化标准在做了，最近这几集打得实在太精彩
+
+*****
+
+####  洛克萨斯  
+##### 1518#       发表于 2026-5-10 12:25
+
+骑士片场居然能有这种枪战戏么<img src="https://static.stage1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">看爽了
+
+超梦这不就是友哈巴赫那套技能么，太变态了
+
+<img src="https://img.stage1st.com/forum/202605/10/122333kj9we8n68yt4ejo9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (66.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-10 12:23 上传
+
+<img src="https://img.stage1st.com/forum/202605/10/122407kckki2ibykj68kxx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (46.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-10 12:24 上传
+
+宇宙诞生能量，我了个超梦大王
+
