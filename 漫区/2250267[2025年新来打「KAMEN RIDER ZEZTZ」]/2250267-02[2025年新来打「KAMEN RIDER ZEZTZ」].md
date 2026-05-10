@@ -137,3 +137,17 @@ NOX好不容易前几集刚刚好感度提升
 
 鉴于剧里出现了百级胶囊，而派生胶囊有10个，即超梦应该是由10个百级派生胶囊合出来的
 
+
+*****
+
+####  挺好的  
+##### 1493#       发表于 2026-5-10 09:27
+
+<img src="https://img.stage1st.com/forum/202605/10/092734ses60we6ebgu2e58.png" referrerpolicy="no-referrer">
+
+<strong>089accf883ceeb3d86f2f2b60a6d955e.png</strong> (66.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-10 09:27 上传
+
