@@ -582,3 +582,13 @@ zzz是骑士历史第一个击杀二骑和三骑的主骑了<img src="https://st
 
 看简介是能随时随地肉身穿量子世界，并且不受影响地观测和选择跳出，完全不只是影响梦境的能力了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  恶意之刃  
+##### 1537#       发表于 2026-5-10 20:24
+
+【【中日字幕】天野浩成(西格):杉原导演拍肉身打戏太狠了 可怜我48岁的老骨头啊 梦回22年前橘前辈【假面骑士ZZZ】-哔哩哔哩】 https://b23.tv/pHS5CuZ
+
+善待老橘
+
