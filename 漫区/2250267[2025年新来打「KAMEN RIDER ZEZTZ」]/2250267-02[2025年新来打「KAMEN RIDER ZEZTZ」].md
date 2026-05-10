@@ -464,3 +464,25 @@ somonia应该就是所谓code的造神计划，直接掌控梦境成神消灭梦
 
 如果上集两个小怪和橘前辈都算击杀的话......tv里超梦击杀数已经打平去年百饱瓶了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一个陆仁贾  
+##### 1525#       发表于 2026-5-10 13:43
+
+三骑不回来也行的吧，何必洗白，现在这样就很好
+
+这集超梦沉入水底的特效加上月亮总让我想到血源诅咒
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  鲁邦三世1  
+##### 1526#       发表于 2026-5-10 13:46
+
+高桥想写梦题材估计有十多年了
+毕竟鲁邦三世第四季结尾就是进入女主角梦境打终极boss达芬奇
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
