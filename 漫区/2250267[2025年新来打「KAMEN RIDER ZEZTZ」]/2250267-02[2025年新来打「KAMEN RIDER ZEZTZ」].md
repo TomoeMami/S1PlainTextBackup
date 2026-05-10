@@ -323,3 +323,29 @@ somonia应该就是所谓code的造神计划，直接掌控梦境成神消灭梦
 说起来这画面越看越难绷，这么放心把后背交给对方的两人一定是战友的对吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/3dfa320d043a1436de6900d8cf7b0b38/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  iceddd  
+##### 1513#       发表于 2026-5-10 11:56
+
+两人真人打戏的时候满脑子都是生化危机二人转
+那个gif<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202605/10/115621ehquuyghrrurrxgv.gif" referrerpolicy="no-referrer">
+
+<strong>1000080871.gif</strong> (1.37 MB, 下载次数: 0)
+
+下载附件
+
+2026-5-10 11:56 上传
+
+    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  暗黑能乐  
+##### 1514#       发表于 2026-5-10 12:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">经典枪斗术
+
