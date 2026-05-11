@@ -72,3 +72,27 @@
 
 60级市长带一堆路人被难度4boss打爆了
 
+
+*****
+
+####  三谷歩夢  
+##### 742#       发表于 2026-5-11 11:46
+
+ 本帖最后由 三谷歩夢 于 2026-5-11 11:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69602661&amp;ptid=2256125" target="_blank">缪斯替 发表于 2026-5-11 08:50</a>
+
+出击这个模式是推荐把大部分角色都养成到60级再来吗
+
+60级市长带一堆路人被难度4boss打爆了 ...</blockquote>
+阵容和抓牌合理的话60级市长随便打难4的，不过遇到双星之影那个招血牛小怪的boss是会比较恶心
+
+*****
+
+####  缪斯替  
+##### 743#       发表于 2026-5-11 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69603717&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2026-5-11 11:46</a>
+
+阵容和抓牌合理的话60级市长随便打难4的，不过遇到双星之影那个招血牛小怪的boss是会比较恶心 ...</blockquote>
+好的，那我再试试！
+
