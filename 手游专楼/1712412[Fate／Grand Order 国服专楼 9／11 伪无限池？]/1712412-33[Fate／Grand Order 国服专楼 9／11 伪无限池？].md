@@ -201,3 +201,15 @@ wiki说职阶分数还是算原来的，我怀疑这句话是指树
 大号真就一个想给圣杯到100级的都没有，那么问题来了，不选一个冠位，能参加冠位 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">不选就不能参加
 
+
+*****
+
+####  khxooo  
+##### 47770#       发表于 2026-5-11 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69602975&amp;ptid=1712412" target="_blank">hyhaha 发表于 2026-5-11 09:54</a>
+小号有5宝冲田，应该可打
+
+大号真就一个想给圣杯到100级的都没有，那么问题来了，不选一个冠位，能参加冠位 ...</blockquote>
+不行，100级+310是门票，没有进不了门，实在没有喜欢的就选伊织吧，反正本身素质还可以。而且日服6月最新主线是2个冠位认定战打完，后续肯定是要求全部都打完的，你如果有继续玩下去的打算还是趁现在国服有热情的情况下抱大腿打完认定战，否则后续大佬们换上自己的真爱到时候找不到好打手久麻烦了。
+
