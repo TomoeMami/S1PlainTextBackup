@@ -1386,3 +1386,14 @@ RG还行，什么时候出MG
 
 谨慎悲观<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 154#       发表于 2026-5-11 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69369300&amp;ptid=2256870" target="_blank">1096beam 发表于 2026-3-21 23:53</a>
+
+问题还是高达打高达才是高达最大的卖点吧</blockquote>
+G高达续作
+
