@@ -635,3 +635,13 @@ zzz是骑士历史第一个击杀二骑和三骑的主骑了<img src="https://st
 
 有史以来看过的最好看的来打<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  丹德里恩  
+##### 1543#       发表于 2026-5-11 09:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">不光数值爆炸，机制还阴间
+
+看面板能力值低于灾厄和惩戒，但一拳就把橘前辈轰飞。这样就算了还要取消对面的出招顺便搞他心态，自己硬是一点亏都不吃，直接判你赢得了
+
