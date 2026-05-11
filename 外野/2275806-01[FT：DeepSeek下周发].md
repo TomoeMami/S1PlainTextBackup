@@ -830,3 +830,14 @@ Let me just be honest - yes, that format comes from the system's commit instruct
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  杀人鲸  
+##### 1399#       发表于 2026-5-11 19:13
+
+网页端的D老师好像增加了一个搜索的功能。这个功能其实应该早一点出来的吧。
+有些时候聊的太多了，都不确定聊过什么，想搜索一下，但是想拉回上面的这些消息，也是真的很麻烦。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
