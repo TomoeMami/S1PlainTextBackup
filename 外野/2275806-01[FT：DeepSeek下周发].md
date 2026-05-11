@@ -852,3 +852,15 @@ Let me just be honest - yes, that format comes from the system's commit instruct
 有些时候聊的太多了，都不确定 ...</blockquote>
 app也有搜索了
 
+
+*****
+
+####  杀人鲸  
+##### 1401#       发表于 2026-5-11 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69606042&amp;ptid=2275806" target="_blank">serj005 发表于 2026-5-11 20:34</a>
+app也有搜索了</blockquote>
+我还在想怎么找不到，结果你说也有的时候，我在想是不是更新了，就点进去版本号，发现还真是。只不过手机上的大概有个问题，就是搜索是广域的，一次性要搜索到太多的内容了，不像电脑上面的，那貌似更多是搜索单个对话里面的内容。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
