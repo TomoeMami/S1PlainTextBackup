@@ -671,3 +671,11 @@ yauji太装了，应该是优势太大想越塔然后就变成这样了。正常
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">醒来看到推特差点背过气，还好是梦
 
+
+*****
+
+####  TiHaru  
+##### 20656#       发表于 2026-5-11 16:35
+
+6点训练赛
+
