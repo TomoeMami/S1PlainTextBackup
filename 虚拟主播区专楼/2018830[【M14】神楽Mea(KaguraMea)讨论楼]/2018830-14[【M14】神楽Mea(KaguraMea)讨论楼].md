@@ -701,3 +701,17 @@ ban其实没啥，对面看idban，自己这边保下路对线和尽量避免对
 
 整体来说是围绕皇子的打节奏的阵容，不过反手能力和阵容立体程度是不如对面的，科研局。
 
+
+*****
+
+####  古战场亡魂  
+##### 20658#       发表于 2026-5-11 18:42
+
+<img src="https://img.stage1st.com/forum/202605/11/184204ydwwcicsgsww2ifi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (837.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-11 18:42 上传
+
