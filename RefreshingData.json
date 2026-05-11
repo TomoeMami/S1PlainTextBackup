@@ -13164,7 +13164,7 @@
     "lastedit": 1781084880,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2260146": {
     "totalreply": 194,
@@ -17285,6 +17285,24 @@
     "newtitle": "[消费领域一直存在规驯用户的问题]",
     "lastedit": 1778531769,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2252246": {
+    "totalreply": 44,
+    "title": "[SHIFT UP新作《Project Spirits》]",
+    "newtitle": "[SHIFT UP新作《Project Spirits》]",
+    "lastedit": 1778532848,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2276363": {
+    "totalreply": 54,
+    "title": "[三上真司新工作室 “Unbound Games” 原创IP完全新作制作中]",
+    "newtitle": "[三上真司新工作室 “Unbound Games” 原创IP完全新作制作中]",
+    "lastedit": 1778533088,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
