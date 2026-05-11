@@ -84,3 +84,11 @@
 
 2026-5-11 22:34 上传
 
+
+*****
+
+####  竹様  
+##### 582#       发表于 2026-5-11 23:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">森地夏美从大冒号故事都写不明白到DBB这话，这就是养成系脚本的魅力吗？
+
