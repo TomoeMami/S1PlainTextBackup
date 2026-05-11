@@ -4432,3 +4432,18 @@ AI高度关注
 
 纯好奇，没deepseek API，能看看吗谢谢
 
+
+*****
+
+####  Black寿司  
+##### 258#       发表于 2026-5-11 21:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69601039&amp;ptid=2280539" target="_blank">love4aids 发表于 2026-5-10 18:54</a>
+
+用户：stage1st-578136 (578136)
+
+[政治光谱]</blockquote>
+谢谢 还挺像那么一回事儿 
+
+总有说我爱反串 实际看起来我网上发帖还是挺性情的
+
