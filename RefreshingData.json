@@ -13164,7 +13164,7 @@
     "lastedit": 1781084880,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2260146": {
     "totalreply": 194,
@@ -16169,7 +16169,7 @@
     "newtitle": "[摆摊卖咖喱主食的可行性。]",
     "lastedit": 1778270410,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2278498": {
@@ -17190,10 +17190,10 @@
     "update": false
   },
   "2256870": {
-    "totalreply": 155,
+    "totalreply": 156,
     "title": "[Production IG 新高达？]",
     "newtitle": "[Production IG 新高达？]",
-    "lastedit": 1778506209,
+    "lastedit": 1778530687,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17208,10 +17208,10 @@
     "update": false
   },
   "2280735": {
-    "totalreply": 68,
+    "totalreply": 69,
     "title": "[大家喜欢的日本人，还有几个活着的？]",
     "newtitle": "[大家喜欢的日本人，还有几个活着的？]",
-    "lastedit": 1778526012,
+    "lastedit": 1778530568,
     "category": "外野",
     "active": true,
     "update": false

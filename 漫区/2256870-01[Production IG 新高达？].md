@@ -1405,3 +1405,14 @@ G高达续作
 
 别和一堆字母、魔女和神棍高达一样就行
 
+
+*****
+
+####  半分宅  
+##### 156#       发表于 2026-5-12 04:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69369300&amp;ptid=2256870" target="_blank">1096beam 发表于 2026-3-21 11:53</a>
+
+问题还是高达打高达才是高达最大的卖点吧</blockquote>
+高达Eight第一话就解决了这个问题，敌方也有被同化的高达。
+
