@@ -663,3 +663,11 @@ yauji太装了，应该是优势太大想越塔然后就变成这样了。正常
 
 想看麻麻穿舌钉的fanart
 
+
+*****
+
+####  受菊  
+##### 20655#       发表于 2026-5-11 14:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">醒来看到推特差点背过气，还好是梦
+
