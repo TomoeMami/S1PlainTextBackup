@@ -13164,7 +13164,7 @@
     "lastedit": 1781084880,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2260146": {
     "totalreply": 195,
@@ -16529,7 +16529,7 @@
     "newtitle": "[京瓷KYF42翻盖手机一周使用感受]",
     "lastedit": 1778280368,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2134903": {
@@ -17280,10 +17280,10 @@
     "update": false
   },
   "2280726": {
-    "totalreply": 43,
+    "totalreply": 44,
     "title": "[消费领域一直存在规驯用户的问题]",
     "newtitle": "[消费领域一直存在规驯用户的问题]",
-    "lastedit": 1778536326,
+    "lastedit": 1778539687,
     "category": "外野",
     "active": true,
     "update": false
