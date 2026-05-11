@@ -4205,3 +4205,16 @@ LZ你应该加个选项，让大家可以自己选抓取多少条，然后默认
 
 白天在归墟批判吃蛋糕的公子哥，晚上戴着fiio耳机听ASMR为原子化社会续命，这位兄台是现代版“清醒着沉沦”的赛博标本：用经济决定论解剖完时代，然后缩回二次元茧房里等海啸预警。
 
+
+*****
+
+####  花咲茜  
+##### 245#       发表于 2026-5-11 08:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69600957&amp;ptid=2280539" target="_blank">love4aids 发表于 2026-5-10 18:30</a>
+
+用户：stage1st-90791 (90791)
+
+[政治光谱]</blockquote>
+简直一塌糊涂
+

@@ -138,3 +138,13 @@
 
 有点等不及抽提丰了
 
+
+*****
+
+####  无事忙  
+##### 47764#       发表于 2026-5-11 08:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">藤蔓变成狂阶能不能贪到狂阶的1.1攻击系数啊？
+
+wiki说职阶分数还是算原来的，我怀疑这句话是指树
+

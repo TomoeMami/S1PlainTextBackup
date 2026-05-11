@@ -52,3 +52,23 @@
 
 回合制是对的，二次元是对的
 
+
+*****
+
+####  TheOccuria  
+##### 740#       发表于 2026-5-10 20:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69600675&amp;ptid=2256125" target="_blank">tvfxqalways5 发表于 2026-5-10 17:08</a>
+
+没有抽到市长还能玩吗？</blockquote>
+卡池还16天，肝一肝来得及吧
+
+*****
+
+####  缪斯替  
+##### 741#       发表于 2026-5-11 08:50
+
+出击这个模式是推荐把大部分角色都养成到60级再来吗
+
+60级市长带一堆路人被难度4boss打爆了
+
