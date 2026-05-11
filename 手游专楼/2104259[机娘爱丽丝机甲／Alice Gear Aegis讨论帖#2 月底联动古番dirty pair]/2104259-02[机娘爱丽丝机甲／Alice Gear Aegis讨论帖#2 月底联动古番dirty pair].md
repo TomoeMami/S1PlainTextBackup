@@ -63,3 +63,11 @@
 那这个联动是服袋抽吗，还是石头买喔</blockquote>
 怎么可能服袋，服袋早就贬值了，老一点的咸鱼不乱下手的都一堆用不出来，肯定直接石头买啦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wilkyway  
+##### 1978#       发表于 2026-5-11 14:39
+
+这sp看着有点说法的啊 数值给够的话感觉其他射击型都不需要了 开始集体氪金换强度的意思？
+
