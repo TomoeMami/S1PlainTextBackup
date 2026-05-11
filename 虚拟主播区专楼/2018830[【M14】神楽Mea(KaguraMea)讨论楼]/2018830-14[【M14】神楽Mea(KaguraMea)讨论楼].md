@@ -715,3 +715,15 @@ ban其实没啥，对面看idban，自己这边保下路对线和尽量避免对
 
 2026-5-11 18:42 上传
 
+
+*****
+
+####  古战场亡魂  
+##### 20659#       发表于 2026-5-11 18:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69605595&amp;ptid=2018830" target="_blank">术士q 发表于 2026-5-11 18:17</a>
+
+第一局训练赛bp
+ban其实没啥，对面看idban，自己这边保下路对线和尽量避免对面选出组合</blockquote>
+缺坦克，前排不能指望皇子吧。纯科研。
+
