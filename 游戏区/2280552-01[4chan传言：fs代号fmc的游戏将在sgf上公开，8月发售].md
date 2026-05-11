@@ -376,3 +376,11 @@ FS那套动作系统能换什么引擎能无缝切换？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  竹様  
+##### 44#       发表于 2026-5-11 11:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fs自主发行也太假了。
+
