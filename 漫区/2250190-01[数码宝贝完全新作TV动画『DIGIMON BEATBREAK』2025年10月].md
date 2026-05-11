@@ -70,3 +70,17 @@
 
 这一把战力膨胀可能和gift有相关性吧，不知道这个蛋的设定怎么圆
 
+
+*****
+
+####  TOYSTORY  
+##### 581#       发表于 2026-5-11 22:34
+
+<img src="https://img.stage1st.com/forum/202605/11/223455laa1aa5m5zuf03ih.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (863.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-11 22:34 上传
+
