@@ -841,3 +841,14 @@ Let me just be honest - yes, that format comes from the system's commit instruct
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  serj005  
+##### 1400#       发表于 2026-5-11 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69605778&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-5-11 19:13</a>
+网页端的D老师好像增加了一个搜索的功能。这个功能其实应该早一点出来的吧。
+有些时候聊的太多了，都不确定 ...</blockquote>
+app也有搜索了
+
