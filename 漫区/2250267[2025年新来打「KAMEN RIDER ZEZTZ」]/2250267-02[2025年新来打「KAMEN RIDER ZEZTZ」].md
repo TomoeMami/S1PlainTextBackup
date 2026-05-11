@@ -663,3 +663,26 @@ zzz是骑士历史第一个击杀二骑和三骑的主骑了<img src="https://st
 
 这极梦就是镜花水月啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  饭冢武也  
+##### 1546#       发表于 2026-5-11 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69600087&amp;ptid=2250267" target="_blank">milky658 发表于 2026-5-10 13:10</a>
+
+骑士内斗一般点到为止，对方是人的话主角基本只打到解体，不是黑化情况很少把人扬了。虽然橘前辈后面铁定要 ...</blockquote>
+齐格已经更接近梦魇了，毕竟本体在哪也不知道
+
+酸贺那个处理个人是不太能接受的，主要是杀人的也是（主角方唯一的）人类，加布的世界里又完全没有警察这类公职机关，也没有官方的对怪人组织，那不就是私刑吗，后面这片子主题还是不能因为私仇对砂糖人私刑
+
+*****
+
+####  饭冢武也  
+##### 1547#       发表于 2026-5-11 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69600159&amp;ptid=2250267" target="_blank">一个陆仁贾 发表于 2026-5-10 13:43</a>
+
+三骑不回来也行的吧，何必洗白，现在这样就很好</blockquote>
+曙光胸前那个洞是不是还没用过呢？
+
