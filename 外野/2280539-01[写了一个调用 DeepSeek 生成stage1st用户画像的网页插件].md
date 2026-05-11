@@ -4254,3 +4254,23 @@ LZ你应该加个选项，让大家可以自己选抓取多少条，然后默认
 [政治光谱]</blockquote>
 我草，Uid11？！<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aimbot  
+##### 250#         楼主| 发表于 2026-5-11 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69600589&amp;ptid=2280539" target="_blank">zmw_831110 发表于 2026-5-10 16:37</a>
+
+能不能增加自定义API的URL以及自动(或者手动)模型名称的设置？</blockquote>
+今天才反应过来，所有的apikey都是明文存储的，问了一下ai，这种形式的脚本没法加密，所以手动接入其他模型的功能暂时不做了，有些国外的模型是绑信用卡预付制的，如果不小心泄露的话可能导致滥用。
+请已经在使用的各位务必即使吊销用不上的key，避免泄露和被他人盗用的风险
+
+<img src="https://img.stage1st.com/forum/202605/11/170313n7wt5wjtv6me5w7t.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-05-11 170252.png</strong> (144.81 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-11 17:03 上传
+
