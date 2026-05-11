@@ -7475,7 +7475,7 @@
     "newtitle": "[【KIRARA】芳文社漫画个人读后感+综合讨论楼]",
     "lastedit": 1778266209,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2110102": {
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 13630,
+    "totalreply": 13631,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼5月]",
-    "lastedit": 1778524808,
+    "lastedit": 1778525648,
     "category": "外野",
     "active": true,
     "update": false
@@ -13820,15 +13820,6 @@
     "newtitle": "[日本的皇冠明珠产业爱情动作片遭遇经济下行重创。5000亿→550亿日元]",
     "lastedit": 1777963932,
     "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2279800": {
-    "totalreply": 61,
-    "title": "[涨涨涨！又涨啦！SIE宣布调整港版PS5主机价格！]",
-    "newtitle": "[涨涨涨！又涨啦！SIE宣布调整港版PS5主机价格！]",
-    "lastedit": 1777315928,
-    "category": "游戏区",
     "active": false,
     "update": false
   },
