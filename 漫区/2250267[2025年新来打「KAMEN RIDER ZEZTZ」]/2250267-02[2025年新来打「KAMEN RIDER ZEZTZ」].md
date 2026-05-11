@@ -627,3 +627,11 @@ zzz是骑士历史第一个击杀二骑和三骑的主骑了<img src="https://st
 
 近几年最强的最终战，数值和机制全都拉满，一眼望去可能也是往后数几年的最强最终战
 
+
+*****
+
+####  masonknight  
+##### 1542#       发表于 2026-5-11 09:09
+
+有史以来看过的最好看的来打<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
