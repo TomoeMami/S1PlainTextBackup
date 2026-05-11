@@ -1118,3 +1118,12 @@ pv质感太好了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">又看了一遍，pv搭配音乐真的好。感觉要被骗首发了。
 
+
+*****
+
+####  黑修士  
+##### 222#       发表于 2026-5-11 10:53
+
+虽然不是原曲，也算够听了
+[https://www.bilibili.com/video/BV1Et5J6dEz6](https://www.bilibili.com/video/BV1Et5J6dEz6)
+
