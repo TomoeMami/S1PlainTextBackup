@@ -4478,3 +4478,16 @@ G世纪原创这是和黄机杠上了？
 
 普池v3，可以200普池票井喜欢的
 
+
+*****
+
+####  captoon  
+##### 4209#       发表于 2026-5-12 03:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69606220&amp;ptid=2071758" target="_blank">plok201 发表于 2026-5-11 21:30</a>
+
+NTX，维基纳·罗纳和赞斯帕因，我印象里就这3台和这次的吉恩看着有资格UR原创了
+
+说起来，原创角色人气有过 ...</blockquote>
+小黑皮至今连R都没有
+
