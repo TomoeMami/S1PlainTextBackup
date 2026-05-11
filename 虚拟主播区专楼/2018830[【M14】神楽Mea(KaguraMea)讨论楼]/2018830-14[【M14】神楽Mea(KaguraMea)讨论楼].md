@@ -727,3 +727,19 @@ ban其实没啥，对面看idban，自己这边保下路对线和尽量避免对
 ban其实没啥，对面看idban，自己这边保下路对线和尽量避免对面选出组合</blockquote>
 缺坦克，前排不能指望皇子吧。纯科研。
 
+
+*****
+
+####  术士q  
+##### 20660#       发表于 2026-5-11 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69605698&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2026-5-11 18:48</a>
+缺坦克，前排不能指望皇子吧。纯科研。</blockquote>
+主要是那波大龙推进野区出事了，这个washidai复盘应该就行了，这个阵容也不支持后续节奏崩了以后的游戏方式(因为很少会那样打小规模团了)
+
+阵容上火男确实没什么用，没啥参考价值，不过应该有的画面像是塞拉斯的画面确实打出来了，我觉得队伍也仍然是有所收获的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+对面这手阵容打团确实猛的啊，而且还忘了阿狸也可以亲地形里的皇子。
+
+感觉队伍能学到的东西还是挺多的
+
