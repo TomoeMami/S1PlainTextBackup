@@ -188,3 +188,16 @@ wiki说职阶分数还是算原来的，我怀疑这句话是指树
 
 大号真就一个想给圣杯到100级的都没有，那么问题来了，不选一个冠位，能参加冠位战吗？
 
+
+*****
+
+####  qixinno1  
+##### 47769#       发表于 2026-5-11 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69602975&amp;ptid=1712412" target="_blank">hyhaha 发表于 2026-5-11 09:54</a>
+
+小号有5宝冲田，应该可打
+
+大号真就一个想给圣杯到100级的都没有，那么问题来了，不选一个冠位，能参加冠位 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">不选就不能参加
+
