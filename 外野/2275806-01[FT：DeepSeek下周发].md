@@ -901,3 +901,24 @@ app也有搜索了</blockquote>
 
 —— [https://finance.sina.com.cn/wm/2 ... hxptrf8939583.shtml](https://finance.sina.com.cn/wm/2026-05-11/doc-inhxptrf8939583.shtml)
 
+
+*****
+
+####  neptunehs  
+##### 1405#       发表于 2026-5-12 09:59
+
+v4不是preview吗 居然不是先v4正式版
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  ayanamilin  
+##### 1406#       发表于 2026-5-12 10:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69607500&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-5-12 09:59</a>
+
+v4不是preview吗 居然不是先v4正式版</blockquote>
+我估计 DeepSeek 学的 Gemini， V4.1 发布后，V4 就会成为正式版。到时候会有两个系列的模型：DeepSeek-V4 和 DeepSeek-V4.1-preview
+
