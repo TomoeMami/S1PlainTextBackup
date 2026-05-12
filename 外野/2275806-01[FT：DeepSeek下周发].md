@@ -922,3 +922,14 @@ v4不是preview吗 居然不是先v4正式版
 v4不是preview吗 居然不是先v4正式版</blockquote>
 我估计 DeepSeek 学的 Gemini， V4.1 发布后，V4 就会成为正式版。到时候会有两个系列的模型：DeepSeek-V4 和 DeepSeek-V4.1-preview
 
+
+*****
+
+####  overflowal  
+##### 1407#       发表于 2026-5-12 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69607500&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-5-12 09:59</a>
+v4不是preview吗 居然不是先v4正式版</blockquote>
+the information对deepseek发布的爆料没有准过一次，你当它放屁就行。<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+这些外媒可能知道deepseek融资相关的信息，但是对模型的信息基本都是瞎猜    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
