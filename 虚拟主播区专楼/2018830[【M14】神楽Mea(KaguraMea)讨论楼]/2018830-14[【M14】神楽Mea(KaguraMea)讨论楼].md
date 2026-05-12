@@ -837,3 +837,22 @@ core组了，加油啊
 
 赢啦!<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  受菊  
+##### 20669#       发表于 2026-5-12 22:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">连续MVP！不过泰坦估计走不出ban位了
+
+*****
+
+####  术士q  
+##### 20670#       发表于 2026-5-12 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69610807&amp;ptid=2018830" target="_blank">受菊 发表于 2026-5-12 22:06</a>
+连续MVP！不过泰坦估计走不出ban位了</blockquote>
+咩博士王朝了
+
+又要ban波比又要ban泰坦怎么ban得完啊<img src="https://static.stage1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
+
