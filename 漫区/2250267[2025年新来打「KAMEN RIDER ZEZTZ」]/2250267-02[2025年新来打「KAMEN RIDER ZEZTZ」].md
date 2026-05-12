@@ -855,3 +855,11 @@ lady当初说得对，code敢把这样的人招进来也是失心疯了，关键
 
 诸田敏都还没出来，后面乐子还大着呢
 
+
+*****
+
+####  nagamasa  
+##### 1562#       发表于 2026-5-12 19:54
+
+突发奇想其一，结合那踉跄这老莫是不是要致敬剑崎用梦魇力量太多最后变梦魇了；突发奇想其二，如果挖老莫妈那边的故事，是不是也可以叫0，然后一家子凑个007<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（可惜剧场版已经确定不是了，不然可以搞个missing zero啥的又cue一次blade）
+
