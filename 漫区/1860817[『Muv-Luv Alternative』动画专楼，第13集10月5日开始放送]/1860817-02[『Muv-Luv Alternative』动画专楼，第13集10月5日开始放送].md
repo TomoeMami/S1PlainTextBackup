@@ -14,3 +14,14 @@
 
 这个真是重头脑级吗
 
+
+*****
+
+####  鱼雷鲨  
+##### 2463#       发表于 2026-5-13 05:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69605937&amp;ptid=1860817" target="_blank">zhwpjy 发表于 2026-5-11 20:00</a>
+
+这个真是重头脑级吗</blockquote>
+发型肯定是，问题在于，这是人类复制/刷机的，还是重头脑级拟态的
+
