@@ -933,3 +933,16 @@ v4不是preview吗 居然不是先v4正式版</blockquote>
 the information对deepseek发布的爆料没有准过一次，你当它放屁就行。<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 这些外媒可能知道deepseek融资相关的信息，但是对模型的信息基本都是瞎猜    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  ayanamilin  
+##### 1408#       发表于 2026-5-12 13:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69607760&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-5-12 10:45</a>
+the information对deepseek发布的爆料没有准过一次，你当它放屁就行。
+这些外媒可能知道deepseek融资相关 ...</blockquote>
+我理解 V4.1 的爆料不属于 the information
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
