@@ -822,3 +822,13 @@ lady当初说得对，code敢把这样的人招进来也是失心疯了，关键
 
 小橘说得好啊：尽情地享受噩梦吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  damian-wade  
+##### 1559#       发表于 2026-5-12 16:20
+
+今年这个玩具真是拖后腿了，外形音效可玩性都是拉中拉，变身演出也只能闪闪发光啥都没有，全靠打戏演出救场
+
+—— 来自 HONOR MAG-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
