@@ -76,3 +76,11 @@ rc还不错吧，工商后勤有保障，看起来也比较自由。虽然确实
 
 起猛了看到花江夏树和リモーネ先生唱ハチ的歌，今年是2026年吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 1902#       发表于 2026-5-13 00:23
+
+scarz杯没有rpr，有点搞啊
+
