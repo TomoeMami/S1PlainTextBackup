@@ -68,3 +68,11 @@ rc不太懂，看着感觉至少更宽松点？
 
 rc还不错吧，工商后勤有保障，看起来也比较自由。虽然确实看不懂为什么不去vspo，可能vspo对她来说还是太烫了。至于holo那感觉还不如留虹
 
+
+*****
+
+####  ヒトニナル  
+##### 1901#       发表于 2026-5-12 21:16
+
+起猛了看到花江夏树和リモーネ先生唱ハチ的歌，今年是2026年吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
