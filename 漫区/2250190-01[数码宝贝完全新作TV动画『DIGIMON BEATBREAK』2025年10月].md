@@ -92,3 +92,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">森地夏美从大冒号故事都写不明白到DBB这话，这就是养成系脚本的魅力吗？
 
+
+*****
+
+####  leleq  
+##### 583#       发表于 2026-5-12 12:05
+
+等武装獾大人进化成大奶妹看你们谁还嘲笑武装獾大人<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
