@@ -813,3 +813,13 @@ ban其实没啥，对面看idban，自己这边保下路对线和尽量避免对
 没想到新中单还会玩男刀啊，电三轮这个版本挺厉害的
 虽然想着劫大师会不会更好，不过男刀应该是出于支援边线考虑吧
 
+
+*****
+
+####  术士q  
+##### 20667#       发表于 2026-5-12 20:42
+
+红眼镜<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+core组了，加油啊
+
