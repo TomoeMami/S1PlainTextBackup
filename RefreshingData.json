@@ -6336,10 +6336,10 @@
     "update": false
   },
   "2036500": {
-    "totalreply": 1500,
+    "totalreply": 1501,
     "title": "[《匹诺曹的谎言 ／ Lies Of P》新PV公开，9月19日发售]",
     "newtitle": "[《匹诺曹的谎言 ／ Lies Of P》新PV公开，9月19日发售]",
-    "lastedit": 1778603893,
+    "lastedit": 1778608928,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12042,10 +12042,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 65185,
+    "totalreply": 65186,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1778608687,
+    "lastedit": 1778609047,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 31404,
+    "totalreply": 31405,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1778607731,
+    "lastedit": 1778609294,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12870,10 +12870,10 @@
     "update": false
   },
   "2191394": {
-    "totalreply": 2296,
+    "totalreply": 2298,
     "title": "[UE5+二次元GTA+都市UGC开放世界，异环讨论贴]",
     "newtitle": "[UE5+二次元GTA+都市UGC开放世界，异环讨论贴]",
-    "lastedit": 1778608447,
+    "lastedit": 1778608807,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -16502,7 +16502,7 @@
     "newtitle": "[转型杉井光真爱楼，一定要好好填坑啊]",
     "lastedit": 1778349486,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2280584": {
@@ -16992,10 +16992,10 @@
     "update": false
   },
   "2280775": {
-    "totalreply": 96,
+    "totalreply": 97,
     "title": "[好多东北人完全没意识到零下二十度真的可以极寒末日]",
     "newtitle": "[好多东北人完全没意识到零下二十度真的可以极寒末日]",
-    "lastedit": 1778600177,
+    "lastedit": 1778609294,
     "category": "外野",
     "active": true,
     "update": false
@@ -17136,10 +17136,10 @@
     "update": false
   },
   "2280814": {
-    "totalreply": 84,
+    "totalreply": 85,
     "title": "[南京审计大学研究生、江苏税务局拟录取公务员在公示期间＊＊女生裙底 被曝光]",
     "newtitle": "[南京审计大学研究生、江苏税务局拟录取公务员在公示期间＊＊女生裙底 被曝光]",
-    "lastedit": 1778607367,
+    "lastedit": 1778609294,
     "category": "外野",
     "active": true,
     "update": false
@@ -17199,10 +17199,10 @@
     "update": false
   },
   "2280804": {
-    "totalreply": 43,
+    "totalreply": 44,
     "title": "[刚成立一个月的神秘公司能去吗]",
     "newtitle": "[刚成立一个月的神秘公司能去吗]",
-    "lastedit": 1778605332,
+    "lastedit": 1778609292,
     "category": "外野",
     "active": true,
     "update": false
@@ -17235,10 +17235,10 @@
     "update": false
   },
   "2280834": {
-    "totalreply": 53,
+    "totalreply": 54,
     "title": "[武大人新名言：“理下面的人干嘛，拉低自己的格调，还真当自己是百姓”]",
     "newtitle": "[武大人新名言：“理下面的人干嘛，拉低自己的格调，还真当自己是百姓”]",
-    "lastedit": 1778608333,
+    "lastedit": 1778608928,
     "category": "外野",
     "active": true,
     "update": false
@@ -17249,6 +17249,15 @@
     "newtitle": "[后知后觉，老游戏攻略问AI也太全面了]",
     "lastedit": 1778607734,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2280768": {
+    "totalreply": 41,
+    "title": "[莫迪呼吁少吃油就是爱国，别买黄金、少出国、居家办公]",
+    "newtitle": "[莫迪呼吁少吃油就是爱国，别买黄金、少出国、居家办公]",
+    "lastedit": 1778609295,
+    "category": "外野",
     "active": true,
     "update": false
   }
