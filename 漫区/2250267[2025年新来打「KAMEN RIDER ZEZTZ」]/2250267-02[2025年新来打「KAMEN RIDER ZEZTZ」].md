@@ -762,3 +762,16 @@ zzz是骑士历史第一个击杀二骑和三骑的主骑了<img src="https://st
 
 lady当初说得对，code敢把这样的人招进来也是失心疯了，关键是招进来还管不住他。
 
+
+*****
+
+####  暗黑能乐  
+##### 1555#       发表于 2026-5-12 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69608220&amp;ptid=2250267" target="_blank">kurihayn 发表于 2026-5-12 12:22</a>
+
+这三骑的过去怎么有种说了等于没说的感觉…
+
+已知齐格加入code是他杀了起码20个恶人之后的事，但他到底是什 ...</blockquote>
+按照描写，三骑应该是被招进来后融合了惩戒梦魇才有这种失心疯性格的
+
