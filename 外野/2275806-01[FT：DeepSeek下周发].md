@@ -872,3 +872,32 @@ app也有搜索了</blockquote>
 
 现在好像在说6月就会出4.1？
 
+
+*****
+
+####  ymm1030  
+##### 1403#       发表于 2026-5-12 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69591973&amp;ptid=2275806" target="_blank">burnwing 发表于 2026-5-8 15:36</a>
+
+我最近怎么觉得V4 PRO变得超级啰嗦。大概到每条消息1万TOKEN左右，就开始泄洪。
+
+明明之前还挺好用的。 ...</blockquote>
+是的。角色的输出越来越趋同，然后大量使用不是...而是...这种流口水句式。
+
+不过有的地方又发挥惊人，总之目前大概在能用和废物之间来回摇摆。不知道是不是被蹬得太猛了。
+
+
+*****
+
+####  ayanamilin  
+##### 1404#       发表于 2026-5-12 09:54
+
+据The Information报道，DeepSeek正寻求首轮融资，最高募资500亿元人民币（约合73.5亿美元），若最终落地，将创中国AI公司单轮融资最高纪录。
+
+报道称，本轮融资完成后（含募资额），DeepSeek整体估值或将突破3500亿元人民币（约515亿美元）。
+
+此外，有知情人士称，DeepSeek近期已向部分投资者表示，计划加快大模型迭代发布节奏，<strong>预计在6月推出V4模型的迭代版本V4.1</strong>。
+
+—— [https://finance.sina.com.cn/wm/2 ... hxptrf8939583.shtml](https://finance.sina.com.cn/wm/2026-05-11/doc-inhxptrf8939583.shtml)
+
