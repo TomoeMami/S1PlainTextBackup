@@ -782,3 +782,17 @@ ban其实没啥，对面看idban，自己这边保下路对线和尽量避免对
 
 活动真多啊
 
+
+*****
+
+####  古战场亡魂  
+##### 20664#       发表于 2026-5-12 12:55
+
+<img src="https://img.stage1st.com/forum/202605/12/125553ts317tsrnun3kkaa.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260512_125518_com.twitter.android.jpg</strong> (409.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-12 12:55 上传
+
