@@ -913,3 +913,17 @@ NetEase to Stop Funding Nagoshi Studio as It Cuts Back on Gaming
 我之前看有人分析龙帮steam截图可能是P的或者AI做的，比如手上拿M4结果左下角是手雷的错误，后续在去年12月 ...</blockquote>
 在死亡搁浅2里出演了也不算一点不剩吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不知道是谁联系的，名越和小岛是老朋友了，马东锡2023年7月28日去小岛工作室和8月6日名越工作室都是前后脚的
 
+
+*****
+
+####  stoiorz  
+##### 102#       发表于 2026-5-13 10:04
+
+这下彻底死了吧。名越出走后RGG能推个stranger than heaven，感觉是否是名越限制了横山的发挥？
+
+那边掏出来的还是如龙like，横山多少有点变化。
+
+算下来开发周期是3-4年左右的话，名越走后没多久就开始做了。现在只看pv，感觉还是挺好的。
+
+如果真是大卖，那就乐了。
+
