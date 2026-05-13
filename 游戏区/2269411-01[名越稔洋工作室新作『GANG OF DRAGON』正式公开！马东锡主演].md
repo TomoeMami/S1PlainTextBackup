@@ -935,3 +935,15 @@ NetEase to Stop Funding Nagoshi Studio as It Cuts Back on Gaming
 
 噫发现这个时间线，12月12日龙帮预告公开如龙正统在网易到撤资，龙组拿出异于天堂播片，5月12日名越工作室官网无法访问刚好整五个月
 
+
+*****
+
+####  stoiorz  
+##### 104#       发表于 2026-5-13 13:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">掏出毫无变化的如龙like的时候名越是否已经输了一半了呢？
+
+大家需要的不是下一个在歌舞伎町的故事，也不想看到一个出了sega之后只知道路径依赖的名越，缺少表达欲只会复制上一个自己的叫什么明星制作人。资本会为可能付费，可不会为摸得着边界的蛋糕付出成本。
+
+PV的反馈，点击，完播，评论，我寻思网易用了不到6个月就断臂了算是反应比较快了。
+
