@@ -139,3 +139,14 @@
 
 顺便修正了游戏序章内刚检查出的一些错误
 
+
+*****
+
+####  onlv星骸  
+##### 267#       发表于 2026-5-13 23:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69615387&amp;ptid=2263973" target="_blank">blueelf 发表于 2026-5-13 21:04</a>
+
+刚才在PC跟安卓手机上都测试了，这个OP没问题，是不是你用的JOIPLAY问题？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">没用模拟器就PC直接玩的， 后面动画还多吗，没有就不管了
+
