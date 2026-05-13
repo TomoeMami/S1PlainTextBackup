@@ -972,3 +972,15 @@ the information对deepseek发布的爆料没有准过一次，你当它放屁就
 多模态功能灰度了吗，希望能赶紧追到 gpt 5.4，5.5 的水准，现在感觉模型能力已经到一个可用边界了，到一定 ...</blockquote>
 感觉他们不是很想大规模灰度这个小视觉模型。想要融到主线去，我是根本没收到<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  穿越护城河  
+##### 1412#       发表于 2026-5-13 16:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69613627&amp;ptid=2275806" target="_blank">acgcon 发表于 2026-5-13 15:00</a>
+网页的专家模式不让上传文件了？快速模式分析一堆报告的质量超级低</blockquote>
+app模式也没有了
+
+—— 来自 OnePlus PKG110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
