@@ -878,3 +878,13 @@ NetEase to Stop Funding Nagoshi Studio as It Cuts Back on Gaming
 
 看到有人顶贴还以为找到新冤大头了
 
+
+*****
+
+####  伊丽虾皇VI  
+##### 99#       发表于 2026-5-13 08:16
+
+前几天隔壁异于天堂都讨论都还没完全下去，这边就凉完了啊，是不是完成度一对比道心破碎不挣扎了
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
