@@ -4569,3 +4569,11 @@ AI高度关注
 
 我也好奇，有没有坛友看看我的<img src="https://static.stage1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tr火药味  
+##### 266#       发表于 2026-5-13 14:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发了个贴问问题被评价为无知还好问
+
