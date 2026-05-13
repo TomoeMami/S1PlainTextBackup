@@ -947,3 +947,26 @@ NetEase to Stop Funding Nagoshi Studio as It Cuts Back on Gaming
 
 PV的反馈，点击，完播，评论，我寻思网易用了不到6个月就断臂了算是反应比较快了。
 
+
+*****
+
+####  byisme001  
+##### 105#       发表于 2026-5-13 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69611987&amp;ptid=2269411" target="_blank">zzy516232108 发表于 2026-5-13 09:41</a>
+我之前看有人分析龙帮steam截图可能是P的或者AI做的，比如手上拿M4结果左下角是手雷的错误，后续在去年12月 ...</blockquote>
+小岛的谍战游戏还有马东锡的
+
+
+*****
+
+####  センコウ  
+##### 106#       发表于 2026-5-13 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69613183&amp;ptid=2269411" target="_blank">stoiorz 发表于 2026-5-13 13:15</a>
+
+掏出毫无变化的如龙like的时候名越是否已经输了一半了呢？
+
+大家需要的不是下一个在歌舞伎町的故事，也不想 ...</blockquote>
+记得之前看过不确认真假的说名越几乎每天以接待的名义在他老婆开的夜店花天酒地，之前网易负责这块的人也没管，今年网易换人了查账发现问题不小
+
