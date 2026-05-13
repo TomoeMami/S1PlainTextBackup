@@ -902,3 +902,14 @@ NetEase to Stop Funding Nagoshi Studio as It Cuts Back on Gaming
 
 不知道马东锡有没有游戏梦，总之破碎了
 
+
+*****
+
+####  真岛建设泥头车  
+##### 101#       发表于 2026-5-13 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69611987&amp;ptid=2269411" target="_blank">zzy516232108 发表于 2026-5-13 09:41</a>
+
+我之前看有人分析龙帮steam截图可能是P的或者AI做的，比如手上拿M4结果左下角是手雷的错误，后续在去年12月 ...</blockquote>
+在死亡搁浅2里出演了也不算一点不剩吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不知道是谁联系的，名越和小岛是老朋友了，马东锡2023年7月28日去小岛工作室和8月6日名越工作室都是前后脚的
+
