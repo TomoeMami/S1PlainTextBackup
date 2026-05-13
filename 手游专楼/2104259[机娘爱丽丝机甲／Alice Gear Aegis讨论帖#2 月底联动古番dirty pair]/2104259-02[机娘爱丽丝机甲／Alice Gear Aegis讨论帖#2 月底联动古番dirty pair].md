@@ -144,3 +144,22 @@ BU要转正了
 
 新衣服还是蛮色的。
 
+
+*****
+
+####  不灭的旋律  
+##### 1987#       发表于 2026-5-13 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69610705&amp;ptid=2104259" target="_blank">madcow 发表于 2026-5-12 21:37</a>
+
+直播有说啥吗
+
+BU要转正了</blockquote>
+BU系统正式实装，系统大幅优化
+
+游戏的字体将会更换，虽然会选择相同的新字体但可能会出现违和感（推测之前买的商业字体到期了）
+
+游戏引擎将会更换，到时候需要下载大量数据
+
+记得的就这些，其他应该没什么了
+
