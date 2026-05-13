@@ -49,3 +49,42 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">褒贬不一不是遥姐吗，鼠鼠是？
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 7389#       发表于 2026-5-13 13:10
+
+那个铁也为什么那么恨大帅啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  natlk  
+##### 7390#       发表于 2026-5-13 13:47
+
+这不是变相承认了一起去的男人是友人了
+
+*****
+
+####  cckuku  
+##### 7391#       发表于 2026-5-13 14:24
+
+之前误入团结紫吧看了一下，目前学声优里口碑最差的是长月吗？
+
+*****
+
+####  虚无缥缈的分身  
+##### 7392#       发表于 2026-5-13 14:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69613462&amp;ptid=2130897" target="_blank">cckuku 发表于 2026-5-13 14:24</a>
+
+之前误入团结紫吧看了一下，目前学声优里口碑最差的是长月吗？</blockquote>
+脸一般就算了，主要是唱跳双废，作为主c完全拖了企划的后腿
+
+*****
+
+####  yoboc  
+##### 7393#       发表于 2026-5-13 15:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这点小事，鼠鼠只要在2nd翻个跟头我就原谅她
+
