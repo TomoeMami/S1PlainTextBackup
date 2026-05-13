@@ -126,3 +126,16 @@
 —— 来自 鹅球 v3.3.96-alpha ...</blockquote>
 刚才在PC跟安卓手机上都测试了，这个OP没问题，是不是你用的JOIPLAY问题？
 
+
+*****
+
+####  blueelf  
+##### 266#         楼主| 发表于 2026-5-13 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69612920&amp;ptid=2263973" target="_blank">huge_cat 发表于 2026-5-13 12:17</a>
+
+终于等到3.5的汉化，感谢！方便单独传一下汉化补丁吗？没有度盘会员感觉打包版会下的很痛苦... ...</blockquote>
+上传了单独的汉化补丁，解压覆盖游戏主目录下www文件夹内的同名文件夹
+
+顺便修正了游戏序章内刚检查出的一些错误
+
