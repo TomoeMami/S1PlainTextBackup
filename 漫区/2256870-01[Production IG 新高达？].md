@@ -1463,3 +1463,16 @@ G高达续作
 这几年敏感的国际环境，故事题材还写国家间的战 ...</blockquote>
 外星人肯定是人造的，参考AGE火星和铁血的MA，围绕外星人肯定能打出很多军阀来
 
+
+*****
+
+####  windaria  
+##### 162#       发表于 2026-5-13 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69366566&amp;ptid=2256870" target="_blank">wsdbyh 发表于 2026-3-21 11:27</a>
+
+打外星人也好，以前大部分的高达动画完全就是天生键政圣体
+
+这几年敏感的国际环境，故事题材还写国家间的战 ...</blockquote>
+要的就是引火自焚，我觉得应该做高达00精神续作，就写日本战胜中国，让日本人先来一次精神胜利
+
