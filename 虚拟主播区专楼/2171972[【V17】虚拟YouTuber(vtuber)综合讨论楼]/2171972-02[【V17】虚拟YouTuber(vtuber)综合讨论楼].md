@@ -84,3 +84,32 @@ rc还不错吧，工商后勤有保障，看起来也比较自由。虽然确实
 
 scarz杯没有rpr，有点搞啊
 
+
+*****
+
+####  格林卡罗尔  
+##### 1903#       发表于 2026-5-10 21:52
+
+rc还不错吧，工商后勤有保障，看起来也比较自由。虽然确实看不懂为什么不去vspo，可能vspo对她来说还是太烫了。至于holo那感觉还不如留虹
+
+*****
+
+####  ヒトニナル  
+##### 1904#       发表于 2026-5-12 21:16
+
+起猛了看到花江夏树和リモーネ先生唱ハチ的歌，今年是2026年吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 1905#       发表于 2026-5-13 00:23
+
+scarz杯没有rpr，有点搞啊
+
+*****
+
+####  渡鸦骑士  
+##### 1906#       发表于 2026-5-13 15:19
+
+哈韩的nbxx老师能分享一下那个MWMEU是什么团嘛？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
