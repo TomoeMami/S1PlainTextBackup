@@ -889,3 +889,11 @@ lady当初说得对，code敢把这样的人招进来也是失心疯了，关键
 
 黑ZZZ的胶囊是被回收了吧？按照ZZZ越强黑Z越强的设定，应该不用担心男主没敌人了，不知道超梦状态下的黑Z是不是也有那些权能
 
+
+*****
+
+####  RStocking  
+##### 1566#       发表于 2026-5-13 11:07
+
+CODE研究了那么多年ZZZ驱动器，只能靠逆向工程制造领主驱动器，莫小哥在梦里二十年就手搓了一个次元权限的超梦驱动器，CODE的科研人员都拉出去喂梦魇算了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
