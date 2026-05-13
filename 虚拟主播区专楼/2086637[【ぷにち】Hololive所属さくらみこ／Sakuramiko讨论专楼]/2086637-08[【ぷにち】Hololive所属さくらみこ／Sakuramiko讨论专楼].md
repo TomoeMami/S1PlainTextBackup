@@ -31,3 +31,40 @@ cover好好学学
 
 很难想象真有狗在房间外听的情况下对着屏幕使劲大叫是什么体验
 
+
+*****
+
+####  holofan  
+##### 11568#       发表于 2026-5-12 19:36
+
+<img src="https://img.stage1st.com/forum/202605/12/193618vpee6tle16po6fa6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.15 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-12 19:36 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rs5621| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  holofan  
+##### 11569#       发表于 2026-5-13 20:20
+
+分手厨房2这游戏发布了几万年了结果这两人到今年才第一次玩？？？
+
+不对吧那我之前印象看过直播的是谁播的
+
