@@ -95,3 +95,13 @@
 老板的存档能直接让新版读取嘛？</blockquote>
 可以，在新版里开新游戏建个新存档，再用原来的旧档覆盖它，存档名字虽然没变，但已经变成旧版的存档了，可以正常读取
 
+
+*****
+
+####  onlv星骸  
+##### 263#       发表于 2026-5-13 10:49
+
+玩到离村播的op一片白没有画面，只有一点特效和字幕<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">，不知道是什么bug
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
