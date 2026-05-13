@@ -133,3 +133,49 @@
 是改完设定变成占位符了，没有真正的该语言文本</blockquote>
 我记得好像有个bug是第一次进的时候，设置里语言是中文但是实际显示英文，解决办法是语言里调成英文再改回中文就好了，不知道是不是你遇到的这个问题
 
+
+*****
+
+####  缪斯替  
+##### 748#       发表于 2026-5-11 23:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69606462&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2026-5-11 22:56</a>
+
+我记得好像有个bug是第一次进的时候，设置里语言是中文但是实际显示英文，解决办法是语言里调成英文再改 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">按这个操作了一遍，问题依旧。算了，反正安卓端是偶尔清体力用的，凑合用英语吧……
+
+<img src="https://img.stage1st.com/forum/202605/11/230421cazdhad0njrq749r.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>29ff39f9d851c3b346c782963aa19173.jpeg</strong> (333.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-11 23:04 上传
+
+*****
+
+####  伊布桑  
+##### 749#       发表于 2026-5-13 21:00
+
+目前已知国服会有专属的先行角色，十有八九是之前解包出现的神秘打伞女<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202605/13/205836zvwihwzjiyphwhnd.jpg" referrerpolicy="no-referrer">
+
+<strong>axy8Q6-kityK1uT1kSf4-i5.jpg</strong> (69.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-13 20:58 上传
+
+<img src="https://img.stage1st.com/forum/202605/13/205836a3o9mo07dodmmq58.jpg" referrerpolicy="no-referrer">
+
+<strong>axy8Q6-dlacK23T1kShq-kl.jpg</strong> (79.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-13 20:58 上传
+
+感觉有可能是第三赛季结束后长草期的up，被笑门拿来孝敬tx用的
+
+且国服好像还会有更减负的内容（也可能是笑门做好了还没实装先给国服了）不知道是啥
+

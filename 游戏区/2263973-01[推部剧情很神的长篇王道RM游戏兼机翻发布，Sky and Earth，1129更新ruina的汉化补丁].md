@@ -113,3 +113,16 @@
 
 终于等到3.5的汉化，感谢！方便单独传一下汉化补丁吗？没有度盘会员感觉打包版会下的很痛苦...
 
+
+*****
+
+####  blueelf  
+##### 265#         楼主| 发表于 2026-5-13 21:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69612422&amp;ptid=2263973" target="_blank">onlv星骸 发表于 2026-5-13 10:49</a>
+
+玩到离村播的op一片白没有画面，只有一点特效和字幕，不知道是什么bug
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+刚才在PC跟安卓手机上都测试了，这个OP没问题，是不是你用的JOIPLAY问题？
+
