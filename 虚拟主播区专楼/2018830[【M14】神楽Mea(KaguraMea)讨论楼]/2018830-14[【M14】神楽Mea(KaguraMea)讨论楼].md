@@ -864,3 +864,15 @@ core组了，加油啊
 
 绿队阵容中期缺伤害的 塞拉斯打加里奥没啥压力 皇子盖有位移的英雄也没那么好盖 反倒是有皇子冰鸟还把奥拉夫ban了
 
+
+*****
+
+####  术士q  
+##### 20672#       发表于 2026-5-13 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69611658&amp;ptid=2018830" target="_blank">化鳥虫二 发表于 2026-5-13 08:35</a>
+绿队阵容中期缺伤害的 塞拉斯打加里奥没啥压力 皇子盖有位移的英雄也没那么好盖 反倒是有皇子冰鸟还把奥拉 ...</blockquote>
+是的，中期女警无法给出决定性的伤害，想让冰鸟皇子加里奥打出伤害是有点想当然了，配合得很好才行，而且对面这阵容中野大招被骗出来一个就会很被动，整体来说阵容确实是不如dd这队好的，累积的优势也让dd这队能在龙团优先站位。
+
+不过女警也是拖到了后期，要不是那波龙团前站位很好加上泰坦抓住了机会勾到了女警的话变数还是挺大的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
