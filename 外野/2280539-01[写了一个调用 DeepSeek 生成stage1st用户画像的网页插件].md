@@ -5812,3 +5812,13 @@ AI幻觉其实也不少，我这头像都成二次元少女了。
 
 琴：说到底，会识别出这种离奇的形式吗？
 
+
+*****
+
+####  squallx  
+##### 320#       发表于 2026-5-14 01:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">can can word
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
