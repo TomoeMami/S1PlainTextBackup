@@ -984,3 +984,11 @@ app模式也没有了
 
 —— 来自 OnePlus PKG110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  平贺才人  
+##### 1413#       发表于 2026-5-13 17:30
+
+<img src="https://p.sda1.dev/32/025e327b959e988e1508e14584335f84/image.jpg" referrerpolicy="no-referrer">
+
