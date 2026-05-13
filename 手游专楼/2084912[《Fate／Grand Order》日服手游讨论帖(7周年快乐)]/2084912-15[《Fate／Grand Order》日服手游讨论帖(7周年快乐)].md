@@ -45,3 +45,37 @@ FSF出二期都比盼FR出二期联动高很多倍可能好吗
 
 一想到联动线的狂信子和西格玛签订契约后，为了获取魔力试遍各种办法，最后不得已采用了体液补魔的手段，虽然口嫌体直正地表示只是为了保护小椿才出此下策，但事后春宵苦短气氛正浓，情不自禁又开了一局，就忍不住嘴角上扬<img src="https://static.stage1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸浪白野  
+##### 20819#       发表于 2026-5-13 17:11
+
+ 本帖最后由 岸浪白野 于 2026-5-13 17:17 编辑 
+
+哎呀，我们继续备战7章！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/f07ee1cc43757dcde67b13d6fbe843ae/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  jackyhuang  
+##### 20820#       发表于 2026-5-13 17:13
+
+这啥，难道是又漏了七棵空想树没砍啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qixinno1  
+##### 20821#       发表于 2026-5-13 17:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冠位战复刻完就砍新树是吧 黔驴技穷了
+
+*****
+
+####  char0311131  
+##### 20822#       发表于 2026-5-13 18:06
+
+新池子无敌了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
