@@ -992,3 +992,13 @@ app模式也没有了
 
 <img src="https://p.sda1.dev/32/025e327b959e988e1508e14584335f84/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杀人鲸  
+##### 1414#       发表于 2026-5-13 20:12
+
+有人用网页反代api，做中转站卖钱，所有dek就取消了专家模式的文件上传。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
