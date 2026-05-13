@@ -856,3 +856,11 @@ core组了，加油啊
 
 又要ban波比又要ban泰坦怎么ban得完啊<img src="https://static.stage1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  化鳥虫二  
+##### 20671#       发表于 2026-5-13 08:35
+
+绿队阵容中期缺伤害的 塞拉斯打加里奥没啥压力 皇子盖有位移的英雄也没那么好盖 反倒是有皇子冰鸟还把奥拉夫ban了
+
