@@ -897,3 +897,14 @@ lady当初说得对，code敢把这样的人招进来也是失心疯了，关键
 
 CODE研究了那么多年ZZZ驱动器，只能靠逆向工程制造领主驱动器，莫小哥在梦里二十年就手搓了一个次元权限的超梦驱动器，CODE的科研人员都拉出去喂梦魇算了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  godvim  
+##### 1567#       发表于 2026-5-13 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69612529&amp;ptid=2250267" target="_blank">RStocking 发表于 2026-5-13 11:07</a>
+
+CODE研究了那么多年ZZZ驱动器，只能靠逆向工程制造领主驱动器，莫小哥在梦里二十年就手搓了一个次元权限的 ...</blockquote>
+那不一样，老莫在现实是英语单词都要翻词典的无业，梦里自动获得全能BUFF，天才全能特工20年匠心精制和暗码那些领死工资的一般科研人员怎么比<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
