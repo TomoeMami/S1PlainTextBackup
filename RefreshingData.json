@@ -13155,7 +13155,7 @@
     "lastedit": 1781084880,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2260146": {
     "totalreply": 232,
@@ -13505,7 +13505,7 @@
     "newtitle": "[谏山创：希望打造一种「受害者转变为加害者」的巨大反转结构]",
     "lastedit": 1778448490,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2279700": {
@@ -14643,10 +14643,10 @@
     "update": false
   },
   "2272473": {
-    "totalreply": 88,
+    "totalreply": 89,
     "title": "[上年纪了喝不动快乐水了，改喝茉莉花茶]",
     "newtitle": "[上年纪了喝不动快乐水了，改喝茉莉花茶]",
-    "lastedit": 1778677336,
+    "lastedit": 1778708047,
     "category": "外野",
     "active": true,
     "update": false
