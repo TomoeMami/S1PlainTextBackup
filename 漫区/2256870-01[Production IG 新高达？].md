@@ -1573,3 +1573,15 @@ G高达续作
 现在00都辱华了？</blockquote>
 00造谣咱们在沙漠乱扔高浓浓缩铀，搞**，以及人体实验，只是大部分00粉丝要么太老要么没看过00没人说而已
 
+
+*****
+
+####  望江南  
+##### 173#       发表于 2026-5-14 18:14
+
+明天就公布了（也许），希望机设好看点吧<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">过了这么久胶也拼了不少，说实在的gqux已经和解了，我现在觉得gqux唯一失败的还就是那个头，始终还不是很能和解。
+
+但形体的结构设计还是足够有趣的。有种幻想工业风，现在甚至算得上是有些喜欢了。
+
+回头看楼上的爆料提了不少敌方是无机物怪兽，那不是随便出胶，age开头火星那几台不也是长成怪兽的样子了，虽然火星机压根也没什么模型<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
