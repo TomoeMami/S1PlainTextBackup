@@ -160,3 +160,16 @@
 没用模拟器就PC直接玩的， 后面动画还多吗，没有就不管了</blockquote>
 整个游戏就两段动画，还有一处在通关后的番外
 
+
+*****
+
+####  wornixxoo  
+##### 269#       发表于 2026-5-14 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69485327&amp;ptid=2263973" target="_blank">Booorunestud 发表于 2026-4-14 13:49</a>
+
+顶起来了就顺便补一句，作者给游戏更新了两篇新的后日谈，在全成就解锁内容里，内容不长，较短那篇全语音
+
+ ...</blockquote>
+在哪里看？新世界还是要再打一次马尔徳？
+
