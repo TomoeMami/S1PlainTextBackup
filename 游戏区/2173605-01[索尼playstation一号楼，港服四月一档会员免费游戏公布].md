@@ -47,3 +47,11 @@
 
 —— 来自 LENOVO TB322FC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  SergeGlenn  
+##### 658#       发表于 2026-5-14 10:09
+
+好烂的二档，大镖客2 PS4pro算是最烂的棋盘渲染适配了，出个本世代版再送还差不多
+

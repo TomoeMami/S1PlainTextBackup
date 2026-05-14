@@ -6067,3 +6067,11 @@ can can word
 [政治光谱]</blockquote>
 谢谢，下次多骂骂奥运会<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 330#       发表于 2026-5-14 10:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">d老师怎么把我正常说的话当巨魔反串了
+
