@@ -22,3 +22,14 @@ NS版给补全的音声抓马其实和主线没关系，更近似很久很久以
 ns版有分支树了，所以随便怎么玩都行，不过还是建议一条线不看攻略自己玩下去 ...</blockquote>
 分支树在哪里，昨天玩了一晚上没注意到
 
+
+*****
+
+####  iamsolowingpixy  
+##### 53#       发表于 2026-5-14 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69617091&amp;ptid=2280030" target="_blank">DEMOxN 发表于 2026-5-14 11:13</a>
+
+分支树在哪里，昨天玩了一晚上没注意到</blockquote>
+用左摇杆拨向任意方向就是快捷菜单，里面有分支树。
+
