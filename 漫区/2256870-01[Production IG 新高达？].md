@@ -1597,3 +1597,16 @@ G高达续作
 
 更别提你高的圈子整一个大型的党同伐异恨不得把自己变成精神股东而狂热不已状态的人太多了（连种的监督乳化之类的就不用说了，竟然还能把自己和声优矛盾摆在桌面上的神人）
 
+
+*****
+
+####  创始’’’天翔  
+##### 175#       发表于 2026-5-15 03:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69619889&amp;ptid=2256870" target="_blank">aptx8285144 发表于 2026-5-14 22:22</a>
+
+天天过度痴迷商业和炒作的话，那还真不如说得好听点叫结束，说得难听点还是死了为好，反正看过巴克亚罗，看 ...</blockquote>
+看你举个那些例子，感觉就是投资越少内容越好了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+把产量拉上去总有几部好看的，从这点来说还是钢弹别死比较好<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
