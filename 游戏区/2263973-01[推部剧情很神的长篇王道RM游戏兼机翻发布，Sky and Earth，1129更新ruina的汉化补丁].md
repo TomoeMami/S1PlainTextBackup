@@ -150,3 +150,13 @@
 刚才在PC跟安卓手机上都测试了，这个OP没问题，是不是你用的JOIPLAY问题？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">没用模拟器就PC直接玩的， 后面动画还多吗，没有就不管了
 
+
+*****
+
+####  blueelf  
+##### 268#         楼主| 发表于 2026-5-14 07:50
+
+<blockquote>onlv星骸 发表于 2026-5-13 23:55
+没用模拟器就PC直接玩的， 后面动画还多吗，没有就不管了</blockquote>
+整个游戏就两段动画，还有一处在通关后的番外
+
