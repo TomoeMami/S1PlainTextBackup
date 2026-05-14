@@ -55,3 +55,15 @@
 
 好烂的二档，大镖客2 PS4pro算是最烂的棋盘渲染适配了，出个本世代版再送还差不多
 
+
+*****
+
+####  clyde-wang  
+##### 659#       发表于 2026-5-14 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69616703&amp;ptid=2173605" target="_blank">SergeGlenn 发表于 2026-5-14 10:09</a>
+好烂的二档，大镖客2 PS4pro算是最烂的棋盘渲染适配了，出个本世代版再送还差不多 ...</blockquote>
+出次世代版肯定要卖啊，最多给个折扣，直接进二档那不亏了么<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+— from samsung SM-F9660, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
