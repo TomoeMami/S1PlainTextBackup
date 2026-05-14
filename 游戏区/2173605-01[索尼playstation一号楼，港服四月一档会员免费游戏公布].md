@@ -103,3 +103,15 @@ PlayStation商店公开了《#GTA6#》的解锁时间：
 
 · 美国：11月19日 13:00 ​​​
 
+
+*****
+
+####  医生狼多  
+##### 663#       发表于 2026-5-14 13:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69617552&amp;ptid=2173605" target="_blank">黑猫软 发表于 2026-5-14 12:47</a>
+PlayStation商店公开了《#GTA6#》的解锁时间：
+
+· 新西兰：11月18日 19:00</blockquote>
+旧闻了，不是最近公开的
+
