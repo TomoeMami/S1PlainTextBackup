@@ -4955,7 +4955,7 @@
     "newtitle": "[月计新作limbus company第二赛季来啦]",
     "lastedit": 1778497217,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2123311": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 38037,
+    "totalreply": 38038,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》4.30 五月绯雪]",
-    "lastedit": 1778755211,
+    "lastedit": 1778756411,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 37486,
+    "totalreply": 37489,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1778754852,
+    "lastedit": 1778756772,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9558,10 +9558,10 @@
     "update": false
   },
   "2196156": {
-    "totalreply": 1492,
+    "totalreply": 1493,
     "title": "[《魔法门之英雄无敌：上古纪元》steam商店页面公开，预计2025年第二季度发售]",
     "newtitle": "[《魔法门之英雄无敌：上古纪元》抢先体验中，首发折扣价111.75元]",
-    "lastedit": 1778751014,
+    "lastedit": 1778756535,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12042,10 +12042,10 @@
     "update": false
   },
   "2262312": {
-    "totalreply": 65473,
+    "totalreply": 65474,
     "title": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼11.0]",
-    "lastedit": 1778754732,
+    "lastedit": 1778756771,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 31619,
+    "totalreply": 31621,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1778754732,
+    "lastedit": 1778756887,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12744,10 +12744,10 @@
     "update": false
   },
   "2273722": {
-    "totalreply": 1543,
+    "totalreply": 1544,
     "title": "[《红色沙漠》15分钟实机演示，全中文配音，类上古卷轴龙信的韩国代餐]",
     "newtitle": "[《红色沙漠》PV，全中文配音，韩国西幻RPG大作，全球500万销量突破]",
-    "lastedit": 1778754374,
+    "lastedit": 1778756535,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12870,10 +12870,10 @@
     "update": false
   },
   "2191394": {
-    "totalreply": 2375,
+    "totalreply": 2376,
     "title": "[UE5+二次元GTA+都市UGC开放世界，异环讨论贴]",
     "newtitle": "[UE5+二次元GTA+都市UGC开放世界，异环讨论贴]",
-    "lastedit": 1778739499,
+    "lastedit": 1778756411,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -13146,7 +13146,7 @@
     "lastedit": 1781084880,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2260146": {
     "totalreply": 252,
@@ -17073,10 +17073,10 @@
     "update": false
   },
   "2280929": {
-    "totalreply": 91,
+    "totalreply": 92,
     "title": "[感觉对张作霖这人很难评价]",
     "newtitle": "[感觉对张作霖这人很难评价]",
-    "lastedit": 1778756170,
+    "lastedit": 1778756773,
     "category": "外野",
     "active": true,
     "update": false
@@ -17145,10 +17145,10 @@
     "update": false
   },
   "2280950": {
-    "totalreply": 64,
+    "totalreply": 65,
     "title": "[只要年轻人发起结婚行为，一切都会好起来，这就是经济]",
     "newtitle": "[只要年轻人发起结婚行为，一切都会好起来，这就是经济]",
-    "lastedit": 1778754854,
+    "lastedit": 1778756535,
     "category": "外野",
     "active": true,
     "update": false
@@ -17163,11 +17163,20 @@
     "update": false
   },
   "2280948": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[现在能零基础社招能进来的工作有哪些啊？]",
     "newtitle": "[现在能零基础社招能进来的工作有哪些啊？]",
-    "lastedit": 1778755930,
+    "lastedit": 1778756772,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2134969": {
+    "totalreply": 395,
+    "title": "[​​​『全金属狂潮』25周年完全新作次号刊行决定]",
+    "newtitle": "[​​​『全金属狂潮』25周年完全新作次号刊行决定]",
+    "lastedit": 1778756549,
+    "category": "漫区",
     "active": true,
     "update": false
   }
