@@ -184,3 +184,14 @@
 在哪里看？新世界还是要再打一次马尔徳？</blockquote>
 本体，再打一次
 
+
+*****
+
+####  Booorunestud  
+##### 271#       发表于 2026-5-14 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69617261&amp;ptid=2263973" target="_blank">wornixxoo 发表于 2026-5-14 11:45</a>
+
+在哪里看？新世界还是要再打一次马尔徳？</blockquote>
+刚才没看清你的问题<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">两篇番外直接在新世界就可以看
+
