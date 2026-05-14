@@ -1024,3 +1024,25 @@ app模式也没有了
 
 —— 来自 HUAWEI LIO-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ayanamilin  
+##### 1417#       发表于 2026-5-14 21:09
+
+一堆中转站灰产搞网页反代狠狠薅 DS 的羊毛。
+
+ds2api 的作者：由于项目近期被私人注册机与各种中转站滥用情况严峻，DeepSeek官方加强了风控，目前使用项目存在以下几种风险以及可能是风控逻辑，请悉知：
+
+官方会根据项目特征+异常使用量直接定向处理（当然，我们项目会主动提供易于识别的特征用于帮助打击滥用的账号）
+
+部分情况下可能会针对IP进行风控，尤其是尝试使用注册机批量注册虚假账户的
+
+<img src="https://img.stage1st.com/forum/202605/14/210838i8u72jo4yz2foffi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (152.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-14 21:08 上传
+
