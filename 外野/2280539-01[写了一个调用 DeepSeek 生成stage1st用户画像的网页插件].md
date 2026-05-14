@@ -6054,3 +6054,16 @@ can can word
 
 这位爷是泥潭“懂王”的标准模版：左手芯片参数，右手中医黑料，脚踩反智营销，嘴上还不忘显摆文字考据。一旦有人比他更懂，他会掏出两部手机轮番轰炸。建议别和他争华为，否则他能把光刻机原理背到你自闭。
 
+
+*****
+
+####  卡卡  
+##### 329#       发表于 2026-5-14 09:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69613975&amp;ptid=2280539" target="_blank">love4aids 发表于 2026-5-13 16:08</a>
+
+用户：stage1st-9582 (9582)
+
+[政治光谱]</blockquote>
+谢谢，下次多骂骂奥运会<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
