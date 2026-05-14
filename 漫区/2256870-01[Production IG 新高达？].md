@@ -1517,3 +1517,13 @@ G高达续作
 
 取经取出这些个设定只能说的确是没有眼光，以后还是别写近未来设定了。
 
+
+*****
+
+####  隔壁老黄  
+##### 167#       发表于 2026-5-14 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69612736&amp;ptid=2256870" target="_blank">windaria 发表于 2026-5-13 11:45</a>
+要的就是引火自焚，我觉得应该做高达00精神续作，就写日本战胜中国，让日本人先来一次精神胜利 ...</blockquote>
+你当本子傻啊，老钟是钢普拉的大市场，真这么弄老钟必定把整个系列禁了
+
