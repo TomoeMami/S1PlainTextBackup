@@ -1902,3 +1902,19 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 
 铁血系那细腰靠两根液压杆撑着那真是觉得总会断<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫兔同笼  
+##### 208#       发表于 2026-5-15 15:17
+
+<img src="https://img.stage1st.com/forum/202605/15/151708we220rzbbwof8zwn.jpg" referrerpolicy="no-referrer">
+
+<strong>1000026214.jpg</strong> (124.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-15 15:17 上传
+
+贴吧那边找到的清水荣一之前画的元祖
+
