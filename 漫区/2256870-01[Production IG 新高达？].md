@@ -2028,3 +2028,34 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">**抓内鬼来了是吧
 
+
+*****
+
+####  a85982313  
+##### 223#       发表于 2026-5-15 17:56
+
+笑了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">全是已公开的或者几年后的卫星
+
+*****
+
+####  novyDC  
+##### 224#       发表于 2026-5-15 17:56
+
+内鬼被财团背刺了
+
+
+*****
+
+####  古怪山庄士大夫  
+##### 225#       发表于 2026-5-15 18:02
+
+怕不是故意的抓内鬼，要不然我想不到比今天更有热度的一天了，除非今年不播
+
+*****
+
+####  岸浪白野  
+##### 226#       发表于 2026-5-15 18:05
+
+已经结束啦，下次发布会是冬季，神山高达基本直奔明年才播了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+今天在QQ传的内鬼藏不住的觉得99%会宣布就发出来结果是1% 毛都没有
+
