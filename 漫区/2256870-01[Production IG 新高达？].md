@@ -2249,3 +2249,28 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 真打外星人而不是age那种吗</blockquote>
 三种外星机械兽里面两种像是大扎姆/MIP系的MA，一种也是有MA的感觉
 
+
+*****
+
+####  鱼雷鲨  
+##### 245#       发表于 2026-5-16 02:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69624164&amp;ptid=2256870" target="_blank">古怪山庄士大夫 发表于 2026-5-15 19:05</a>
+
+这图真堪称蜘蛛侠3的加菲爆料，如果不是官方钓鱼炒热度，那这内鬼相对于自爆了，抓起来可太容易了 ...</blockquote>
+逼导演编剧改剧本呗
+
+*****
+
+####  鱼雷鲨  
+##### 246#       发表于 2026-5-16 03:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69624991&amp;ptid=2256870" target="_blank">dieorobey 发表于 2026-5-15 22:32</a>
+
+我在想过几天是不是就有人都能直接把成品做出来了
+
+透得那么全，AI建模+3D打印的素材完全够了
+
+然后作品距离 ...</blockquote>
+泄漏了一般是要推倒重做一定内容防止泄露信息被拿出来反向诉抄
+
