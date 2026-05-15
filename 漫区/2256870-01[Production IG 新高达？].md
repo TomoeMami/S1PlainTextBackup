@@ -1610,3 +1610,11 @@ G高达续作
 
 把产量拉上去总有几部好看的，从这点来说还是钢弹别死比较好<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 176#       发表于 2026-5-15 10:25
+
+久违又有新高达看了
+
