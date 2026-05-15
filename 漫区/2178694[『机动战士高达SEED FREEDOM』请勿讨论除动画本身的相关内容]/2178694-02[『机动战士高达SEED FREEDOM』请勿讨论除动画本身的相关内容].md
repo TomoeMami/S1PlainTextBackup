@@ -48,3 +48,13 @@
 
 下一部就是Seed Freedom SAGA了吧
 
+
+*****
+
+####  gpx234mqx  
+##### 2041#       发表于 2026-5-15 20:07
+
+<blockquote>满月诗篇 发表于 2026-5-15 20:02
+下一部就是Seed Freedom SAGA了吧</blockquote>
+该出seed justice了
+
