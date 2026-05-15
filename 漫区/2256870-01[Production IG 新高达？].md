@@ -2238,3 +2238,14 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 
 真打外星人而不是age那种吗
 
+
+*****
+
+####  鱼雷鲨  
+##### 244#       发表于 2026-5-16 02:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69625422&amp;ptid=2256870" target="_blank">sandro 发表于 2026-5-16 01:36</a>
+
+真打外星人而不是age那种吗</blockquote>
+三种外星机械兽里面两种像是大扎姆/MIP系的MA，一种也是有MA的感觉
+
