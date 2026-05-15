@@ -1815,3 +1815,20 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 
 应该是十多年来最没争议的造型
 
+
+*****
+
+####  安广多惠子  
+##### 199#       发表于 2026-5-15 13:16
+
+這背包也太像風靈那個
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  syndrome2032  
+##### 200#       发表于 2026-5-15 13:20
+
+清水那细腰病是真不太好吧。
+
