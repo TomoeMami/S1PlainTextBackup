@@ -1934,3 +1934,46 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">感觉是有点缝合的
 
+
+*****
+
+####  西人  
+##### 211#       发表于 2026-5-15 17:16
+
+这么能水哦,2026就急着50周年了
+
+*****
+
+####  萨尤克  
+##### 212#       发表于 2026-5-15 17:18
+
+这个50周年短片看的真的挺感动的<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  arthes  
+##### 213#       发表于 2026-5-15 17:20
+
+从小看到大的老登都四五十了，那个看到g高达一脸愣住的样子有点意思<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+说起来是不是没有v高达，还是我看漏了
+
+*****
+
+####  misya  
+##### 214#       发表于 2026-5-15 17:21
+
+这腰部设计感觉是动力装甲
+
+*****
+
+####  望江南  
+##### 215#       发表于 2026-5-15 17:22
+
+有v，前面和f91一起出来的，还是v2ab。
+
+看的真的泪目了，这种传承感太让人动容了<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
