@@ -2075,3 +2075,27 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 
 翔べ！ガンダム 2027
 
+
+*****
+
+####  smdzh2  
+##### 229#       发表于 2026-5-15 18:18
+
+这是在拍日剧吗？邪恶财团背刺内鬼也太搞了
+
+<img src="https://img.stage1st.com/forum/202605/15/191840v43gftqf43j7cmdu.png" referrerpolicy="no-referrer">
+
+<strong>067 (2).png</strong> (413 Bytes, 下载次数: 0)
+
+下载附件
+
+2026-5-15 18:18 上传
+
+
+*****
+
+####  猫兔同笼  
+##### 230#       发表于 2026-5-15 18:25
+
+ HG完整的图片已经看到了，内鬼已经自暴自弃了
+
