@@ -2165,3 +2165,31 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 
 2026-5-15 21:21 上传
 
+
+*****
+
+####  你妈的为什么  
+##### 238#       发表于 2026-5-15 22:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69623651&amp;ptid=2256870" target="_blank">arthes 发表于 2026-5-15 17:20</a>
+从小看到大的老登都四五十了，那个看到g高达一脸愣住的样子有点意思
+
+说起来是不是没有v高达，还是我看漏了 ...</blockquote>
+中间有几个没有严格按照播出年份来
+
+包括倒序的时候
+
+—— 来自 Xiaomi 2410DPN6CC, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  dieorobey  
+##### 239#       发表于 2026-5-15 22:32
+
+我在想过几天是不是就有人都能直接把成品做出来了
+
+透得那么全，AI建模+3D打印的素材完全够了
+
+然后作品距离正式公布还要等个大半年，真是有尴尬的
+
