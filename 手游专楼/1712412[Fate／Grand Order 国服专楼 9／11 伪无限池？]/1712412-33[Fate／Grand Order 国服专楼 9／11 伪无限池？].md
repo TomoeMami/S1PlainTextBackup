@@ -278,3 +278,11 @@ wiki说职阶分数还是算原来的，我怀疑这句话是指树
 
 美杜莎特攻秒杀
 
+
+*****
+
+####  失落之翼  
+##### 47777#       发表于 2026-5-15 17:37
+
+美杜莎我之前好像是抽加成礼装出的1宝，技能只有6106，要不要上个百级310当个副手？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
