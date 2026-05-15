@@ -1852,3 +1852,21 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 正式公布是今天晚上？</blockquote>
 17点直播
 
+
+*****
+
+####  Zendless  
+##### 203#       发表于 2026-5-15 14:18
+
+前臂甲这么大里面得藏点东西吧
+
+*****
+
+####  大十字紅朔  
+##### 204#       发表于 2026-5-15 14:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69621908&amp;ptid=2256870" target="_blank">猪突猛进R 发表于 2026-5-15 11:55</a></blockquote>
+感觉……好素
+
+反正现在也不是手绘了，都是3D做动画就不能多做点水贴和刻线细节吗<img src="https://static.stage1st.com/image/smiley/carton2017/503.png" referrerpolicy="no-referrer">
+
