@@ -171,3 +171,15 @@ BU系统正式实装，系统大幅优化
 
 变化这么大？啥时候更新
 
+
+*****
+
+####  madcow  
+##### 1989#       发表于 2026-5-15 23:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">BU发了十连啥都没有（
+
+扫了眼更新里说是定期要击第一次打完给100点
+
+看了下联机里没有啊（？？
+
