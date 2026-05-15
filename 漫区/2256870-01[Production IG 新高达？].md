@@ -2059,3 +2059,19 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 已经结束啦，下次发布会是冬季，神山高达基本直奔明年才播了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 今天在QQ传的内鬼藏不住的觉得99%会宣布就发出来结果是1% 毛都没有
 
+
+*****
+
+####  sliver1997  
+##### 227#       发表于 2026-5-15 18:07
+
+就这点事情把大伙叫出来啊
+
+
+*****
+
+####  NBGI  
+##### 228#       发表于 2026-5-15 18:12
+
+翔べ！ガンダム 2027
+
