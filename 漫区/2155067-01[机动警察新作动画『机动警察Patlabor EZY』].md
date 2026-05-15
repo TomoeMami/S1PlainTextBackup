@@ -59,3 +59,19 @@
 
 <img src="https://p.sda1.dev/32/8b9eb2d5ea9423867d0fba788018dd69/1000166512.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 146#       发表于 2026-5-15 13:30
+
+买了预售票，下午请假去看
+
+<img src="https://img.stage1st.com/forum/202605/15/133042eplawh8wttvcqcu8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (70.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-15 13:30 上传
+
