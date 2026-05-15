@@ -2151,3 +2151,17 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 谁放一个hg的图呀，到处都找不到</blockquote>
 高达吧
 
+
+*****
+
+####  创始’’’天翔  
+##### 237#       发表于 2026-5-15 21:21
+
+<img src="https://img.stage1st.com/forum/202605/15/212103tfxizfur5rxe321f.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1778851254230.jpg</strong> (53.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-15 21:21 上传
+
