@@ -100,3 +100,13 @@
 
 等武装獾大人进化成大奶妹看你们谁还嘲笑武装獾大人<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 584#       发表于 2026-5-15 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69606470&amp;ptid=2250190" target="_blank">竹様 发表于 2026-5-11 23:00</a>
+森地夏美从大冒号故事都写不明白到DBB这话，这就是养成系脚本的魅力吗？</blockquote>
+去看看她在卡邦无限的表现吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
