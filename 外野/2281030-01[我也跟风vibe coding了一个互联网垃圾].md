@@ -758,3 +758,20 @@ exaid!
 
     [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  netcat  
+##### 52#       发表于 2026-5-15 21:04
+
+试着用lz的提示词喂给豆包，用宇树那个机器人照片生成的图
+
+截屏2026-05-15 21.03.56.png
+(1.84 MB, 下载次数: 0)
+
+下载附件
+
+2026-5-15 21:04 上传
+
+<img src="https://img.stage1st.com/forum/202605/15/210411fr3s5wrv4uuvnxfn.png" referrerpolicy="no-referrer">
+
