@@ -88,3 +88,16 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ナルバレック  
+##### 2045#       发表于 2026-5-15 23:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69625079&amp;ptid=2178694" target="_blank">leleq 发表于 2026-5-15 23:02</a>
+
+这应该是最后了吧，f剧场版时福田明显不想搞了，这个两泽遗稿拍完估计就正式收官了。
+
+当然不排除万代不管 ...</blockquote>
+福田今天看着心情不错，让他继续做，很可能是情愿的，不过没两泽那股变扭劲在，只有福田的种系肯定是比较放飞的
+
