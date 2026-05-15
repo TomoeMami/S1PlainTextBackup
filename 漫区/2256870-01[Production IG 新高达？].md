@@ -1926,3 +1926,11 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 
 我去，这风格，不会新高达是按照机动奥特曼那套路去的吧
 
+
+*****
+
+####  暗黑能乐  
+##### 210#       发表于 2026-5-15 15:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">感觉是有点缝合的
+
