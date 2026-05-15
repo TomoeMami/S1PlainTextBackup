@@ -14,3 +14,16 @@
 
 太田和进士也有的，喷了
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 142#       发表于 2026-5-15 12:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69621895&amp;ptid=2155067" target="_blank">蛋头电玩 发表于 2026-5-15 11:53</a>
+
+太田和进士也有的，喷了</blockquote>
+草，老二课的人都有出场吗，还是说因为这俩留在警察内了（先按剧场版2设定
+
+我看file2的预告，好像还有榊老爷子的照片
+
