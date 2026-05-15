@@ -35,3 +35,27 @@
 
 第二部要打山猪，这味儿对了
 
+
+*****
+
+####  Piano-Forest  
+##### 144#         楼主| 发表于 2026-5-15 13:00
+
+『機動警察パトレイバー EZY』　File 1本日公開
+<img src="https://p.sda1.dev/32/bcd3f3f1ba1c488f3103d7f28e1c035a/1000166513.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 145#         楼主| 发表于 2026-5-15 13:01
+
+「機動警察パトレイバー EZY File 2」本予告：[https://youtu.be/GpIJrhmmes4](https://youtu.be/GpIJrhmmes4)
+
+「File 1」公開中：「トレンドは＃第二小隊」「閑中妄あり」「ホンモノが一番」
+
+「File 2」2026年8月14日（金）劇場公開：「ワインと銃弾」「あさき夢みし」「恋のサバイバル」
+
+「File 3」2027年3月劇場公開：「おもちゃの国・前編」「おもちゃの国・後編」
+
+<img src="https://p.sda1.dev/32/8b9eb2d5ea9423867d0fba788018dd69/1000166512.jpg" referrerpolicy="no-referrer">
+
