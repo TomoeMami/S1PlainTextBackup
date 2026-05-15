@@ -1775,3 +1775,12 @@ G高达续作
 
 HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  没取名啊  
+##### 194#       发表于 2026-5-15 12:10
+
+<img src="https://p.sda1.dev/32/25bf9c31e50254f8674298118989ba05/image.jpg" referrerpolicy="no-referrer">
+简直就像当年那个evo高达的某个废案拉出来又改了改一样，绕不出在元祖的设计语言上小修小改的圈子
+
