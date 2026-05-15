@@ -14,3 +14,13 @@
 
 機動戦士ガンダムSEED FREEDOM ZERO 劇場公開決定
 
+
+*****
+
+####  软软人  
+##### 2037#       发表于 2026-5-15 18:35
+
+又要出剧场版啦，期待下，不知道有啥整活<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

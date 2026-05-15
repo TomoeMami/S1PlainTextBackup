@@ -2099,3 +2099,20 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 
  HG完整的图片已经看到了，内鬼已经自暴自弃了
 
+
+*****
+
+####  aquakane  
+##### 231#       发表于 2026-5-15 18:32
+
+这hg泄露图看着像马上要展出了啊，怎么都不像明年才播的样子
+
+—— 来自 Xiaomi 23078RKD5C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  novyDC  
+##### 232#       发表于 2026-5-15 18:33
+
+离谱 完整模型图都有了
+
