@@ -286,3 +286,14 @@ wiki说职阶分数还是算原来的，我怀疑这句话是指树
 
 美杜莎我之前好像是抽加成礼装出的1宝，技能只有6106，要不要上个百级310当个副手？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47778#       发表于 2026-5-16 01:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69623731&amp;ptid=1712412" target="_blank">失落之翼 发表于 2026-5-15 17:37</a>
+
+美杜莎我之前好像是抽加成礼装出的1宝，技能只有6106，要不要上个百级310当个副手？ ...</blockquote>
+R姐就算1宝，带黑杯都能做主手了吧。我其实也在考虑是不是给R姐戴冠的，但是我武藏毕竟2宝，而且武藏有宝具本，就算R姐特攻应该也追不上武藏的伤害。
+
