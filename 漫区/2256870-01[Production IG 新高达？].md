@@ -2116,3 +2116,20 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 
 离谱 完整模型图都有了
 
+
+*****
+
+####  冰风血羽  
+##### 233#       发表于 2026-5-15 19:02
+
+完整图各个群都传遍了，抓内鬼啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  古怪山庄士大夫  
+##### 234#       发表于 2026-5-15 19:05
+
+这图真堪称蜘蛛侠3的加菲爆料，如果不是官方钓鱼炒热度，那这内鬼相对于自爆了，抓起来可太容易了
+
