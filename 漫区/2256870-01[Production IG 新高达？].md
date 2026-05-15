@@ -1870,3 +1870,35 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 
 反正现在也不是手绘了，都是3D做动画就不能多做点水贴和刻线细节吗<img src="https://static.stage1st.com/image/smiley/carton2017/503.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  行政裁定书  
+##### 205#       发表于 2026-5-15 14:39
+
+后继机体总会好看的。
+
+我倒是担心主角不会翻车吧。
+
+*****
+
+####  dqjsss  
+##### 206#       发表于 2026-5-15 14:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69622313&amp;ptid=2256870" target="_blank">syndrome2032 发表于 2026-5-15 13:20</a>
+
+清水那细腰病是真不太好吧。</blockquote>
+这腰还细啊，对比巴巴托斯和风灵已经是很正常了，可以说这机设完全就没体现出清水自己的特色
+
+
+*****
+
+####  syndrome2032  
+##### 207#       发表于 2026-5-15 14:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69622682&amp;ptid=2256870" target="_blank">dqjsss 发表于 2026-5-15 14:44</a>
+这腰还细啊，对比巴巴托斯和风灵已经是很正常了，可以说这机设完全就没体现出清水自己的特色 ...</blockquote>
+两侧白色的装甲片去掉就是清水味了。
+
+铁血系那细腰靠两根液压杆撑着那真是觉得总会断<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
