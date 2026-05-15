@@ -125,3 +125,29 @@ PlayStation商店公开了《#GTA6#》的解锁时间：
 旧闻了，不是最近公开的</blockquote>
 确实 看岔了。最近关于给他爱6的花边新闻太多了
 
+
+*****
+
+####  黑猫软  
+##### 665#       发表于 2026-5-15 23:04
+
+<img src="https://img.stage1st.com/forum/202605/15/230355f15r8hf1sf1q0f18.jpg" referrerpolicy="no-referrer">
+
+<strong>063f58fc7e2ad46afd64971dcc3b44a22d1bedc043e1a236f39406e6f066f12b.jpg</strong> (98.11 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-5-15 23:03 上传
+
+<img src="https://img.stage1st.com/forum/202605/15/230355nukrn0pwncz41cgg.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1778857407966_248.jpg</strong> (158.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-5-15 23:03 上传
+
+据说测试的新功能 可以看游戏在线人数了
+
