@@ -69,3 +69,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">最后一个挑战关卡我开了都没法三星通关，好痛苦，打完狂月暂时封盘了
 
+
+*****
+
+####  adw667  
+##### 978#       发表于 2026-5-16 21:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">狂月这大机器人车一下多少血啊，1000血直接被带走了还行
+
