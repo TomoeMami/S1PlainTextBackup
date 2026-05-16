@@ -857,3 +857,11 @@ exaid!
 
 随手截图试了一下，直接昏睡了。
 
+
+*****
+
+####  化物语  
+##### 57#       发表于 2026-5-16 13:55
+
+要升级下浏览器（如果版本过低，uc图片下载不下来，截图了） 一个地铁站拍的，一个抖音找的图（关注点比较特别<img src="https://p.sda1.dev/32/dde57dff2e1f65d23d75d7ee7b4c9c48/image.jpg" referrerpolicy="no-referrer">）
+
