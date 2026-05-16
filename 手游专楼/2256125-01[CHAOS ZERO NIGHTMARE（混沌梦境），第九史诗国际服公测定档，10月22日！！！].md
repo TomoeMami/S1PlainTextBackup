@@ -179,3 +179,31 @@
 
 且国服好像还会有更减负的内容（也可能是笑门做好了还没实装先给国服了）不知道是啥
 
+
+*****
+
+####  TheOccuria  
+##### 750#       发表于 2026-5-16 09:14
+
+自选选哪个
+
+<img src="https://img.stage1st.com/forum/202605/16/091440wnx1cxjsp41pc8a3.jpg" referrerpolicy="no-referrer">
+
+<strong>CA5E5D50-5030-4D4A-A78B-CD7E53C0479A.jpg</strong> (223.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-16 09:14 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  伊布桑  
+##### 751#       发表于 2026-5-16 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69625754&amp;ptid=2256125" target="_blank">TheOccuria 发表于 2026-5-16 09:14</a>
+自选选哪个</blockquote>
+个人感觉黄毛强点。
+不过如果不是急用也可以留着等歪再补图鉴
+
