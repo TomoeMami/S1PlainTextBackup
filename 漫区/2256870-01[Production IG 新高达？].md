@@ -2329,3 +2329,14 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 
 说实话，原创动画边做边播，会很容易出问题的
 
+
+*****
+
+####  鱼雷鲨  
+##### 252#       发表于 2026-5-16 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69625637&amp;ptid=2256870" target="_blank">古怪山庄士大夫 发表于 2026-5-16 07:36</a>
+
+你这想太多了，诚然我觉得可能还没没做完，但边做边播本来就是业界常态，日升负责的正传都是每周赶工的。 ...</blockquote>
+还有可能改美国电视动画那样，头尾固定，中间是单元剧不受顺序限制，做好了放两周看收视率播
+
