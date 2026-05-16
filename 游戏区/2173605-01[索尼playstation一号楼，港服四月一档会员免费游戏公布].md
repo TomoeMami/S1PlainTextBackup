@@ -176,3 +176,30 @@ PlayStation商店公开了《#GTA6#》的解锁时间：
 —— 來自 Google Pixel 2, Android 11, 鵝球 v3.5.99</blockquote>
 马拉松是Top 10吗
 
+
+*****
+
+####  黑猫软  
+##### 668#       发表于 2026-5-16 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69625486&amp;ptid=2173605" target="_blank">ultraseven 发表于 2026-5-16 02:23</a>
+
+马拉松是Top 10吗</blockquote>
+根据每周活跃玩家数量，美国地区 PlayStation 平台排名
+
+1. Fortnite – 1460 万玩家
+
+2. Grand Theft Auto V – 513 万玩家
+
+3. Minecraft – 497 万玩家
+
+4. Call of Duty – 495 万玩家
+
+5. Apex Legends – 172 万玩家
+
+6. Marvel Rivals – 158 万玩家
+
+7. Battlefield 6 – 151 万玩家
+
+8. Arc Raiders – 97.2 万玩家
+
