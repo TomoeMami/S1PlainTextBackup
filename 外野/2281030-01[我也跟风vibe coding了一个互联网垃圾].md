@@ -833,3 +833,27 @@ exaid!
 
 2026-5-16 13:12 上传
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 56#       发表于 2026-5-16 13:32
+
+<img src="https://img.stage1st.com/forum/202605/16/132903s1csmmmnwbp5m01n.png" referrerpolicy="no-referrer">
+
+<strong>确实很疲劳了.png</strong> (304.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-16 13:29 上传
+
+<img src="https://img.stage1st.com/forum/202605/16/132904ftsk077ze777twew.png" referrerpolicy="no-referrer">
+
+<strong>确实很疲劳了 dark-souls-item.png</strong> (2.81 MB, 下载次数: 0)
+
+下载附件
+
+2026-5-16 13:29 上传
+
+随手截图试了一下，直接昏睡了。
+
