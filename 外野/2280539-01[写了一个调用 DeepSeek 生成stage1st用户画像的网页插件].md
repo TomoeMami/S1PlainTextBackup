@@ -7231,3 +7231,23 @@ can can word
 
 —— 来自 samsung SM-S9260, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  日本驴友  
+##### 384#       发表于 2026-5-16 17:28
+
+看看我的
+
+*****
+
+####  日本驴友  
+##### 385#       发表于 2026-5-16 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69627018&amp;ptid=2280539" target="_blank">aimbot 发表于 2026-5-16 16:28</a>
+
+12块买了两个codex号全被封了
+
+天才少年的梦……结束了……</blockquote>
+可惜兄弟可惜
+
