@@ -1115,3 +1115,15 @@ core组了，加油啊
 赢啦!咩神无敌!</blockquote>
 这把有mea视角吗 想看
 
+
+*****
+
+####  术士q  
+##### 20680#       发表于 2026-5-16 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69625746&amp;ptid=2018830" target="_blank">thisisaspider 发表于 2026-5-16 09:07</a>
+这把有mea视角吗 想看</blockquote>
+这个在咩的t台5.8号就有留档，七个小时的那个，对着队名很快就能找到了
+
+确实是mvp级表现啊<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

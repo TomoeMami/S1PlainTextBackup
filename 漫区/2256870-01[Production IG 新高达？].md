@@ -2321,3 +2321,11 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 我当然知道有不是边做边播的，但是边做边播目前仍然是业界的常态，万策尽也是常态。以及新高达肯定是有的 ...</blockquote>
 我现在对舅舅党不太相信了………………………………<img src="https://static.stage1st.com/image/smiley/carton2017/503.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 251#       发表于 2026-5-16 11:58
+
+说实话，原创动画边做边播，会很容易出问题的
+
