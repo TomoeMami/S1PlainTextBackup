@@ -876,3 +876,14 @@ exaid!
 API额度已经耗尽，不过看到大家的作品，甚是欣喜，我鲁莽地决定挪用今日的晚餐12元，全部用于购置API额度， ...</blockquote>
 佬要不要加个自己本地塞api-key的功能
 
+
+*****
+
+####  狗剩大魔王  
+##### 59#         楼主| 发表于 2026-5-16 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69626702&amp;ptid=2281030" target="_blank">jojog 发表于 2026-5-16 14:13</a>
+
+佬要不要加个自己本地塞api-key的功能</blockquote>
+我网站的免费部署次数额度也用完了，没法更新了。。
+
