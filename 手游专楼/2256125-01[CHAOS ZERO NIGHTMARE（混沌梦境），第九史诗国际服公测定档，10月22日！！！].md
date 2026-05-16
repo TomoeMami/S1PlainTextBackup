@@ -221,3 +221,22 @@
 
 剧情改好了吗，世界观挺吸引的就是这剧情一点危机感都感受不到
 
+
+*****
+
+####  greemoore1981  
+##### 753#       发表于 2026-5-16 20:17
+
+国际服上玩过一会，就是每日刷卡组加消耗体力太耗时间弃掉了，国服的减负能减多少
+
+
+*****
+
+####  伊布桑  
+##### 754#       发表于 2026-5-16 20:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69627848&amp;ptid=2256125" target="_blank">greemoore1981 发表于 2026-5-16 20:17</a>
+国际服上玩过一会，就是每日刷卡组加消耗体力太耗时间弃掉了，国服的减负能减多少 ...</blockquote>
+其实也就是跟国际服同步了，国际服现在有类扫荡功能，卡厄思的怪直接秒杀，每天有一次免费扫荡机会，刷存档负担骤降。
+国服只能说比较抽象的是追了一堆进度但是没什么补偿给玩家<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
