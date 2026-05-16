@@ -254,3 +254,14 @@
 
 2026-5-16 20:31 上传
 
+
+*****
+
+####  三谷歩夢  
+##### 756#       发表于 2026-5-17 01:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69627848&amp;ptid=2256125" target="_blank">greemoore1981 发表于 2026-5-16 20:17</a>
+
+国际服上玩过一会，就是每日刷卡组加消耗体力太耗时间弃掉了，国服的减负能减多少 ...</blockquote>
+刷卡组方面起码减负95%吧，只有极少部分极端卡组和以前的神闪卡组差不多难刷，不过这赛季构筑比较多，不是特别依赖某个卡组就是
+
