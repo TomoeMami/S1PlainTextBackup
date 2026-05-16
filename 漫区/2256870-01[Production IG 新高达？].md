@@ -2286,3 +2286,16 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 而且这次又是社外合作出品，参 ...</blockquote>
 你这想太多了，诚然我觉得可能还没没做完，但边做边播本来就是业界常态，日升负责的正传都是每周赶工的。至于你后续说的，我只能说日本业界体系不是这么玩的，如果都能这样，你就不会看到铁血水魔和gq了
 
+
+*****
+
+####  大十字紅朔  
+##### 248#       发表于 2026-5-16 09:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69625637&amp;ptid=2256870" target="_blank">古怪山庄士大夫 发表于 2026-5-16 07:36</a>
+
+你这想太多了，诚然我觉得可能还没没做完，但边做边播本来就是业界常态，日升负责的正传都是每周赶工的。 ...</blockquote>
+这些年已经有很多不是边做边播的片子了
+
+当然我觉得仍然有可能爆料全是假的，根本没有什么新高达<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
