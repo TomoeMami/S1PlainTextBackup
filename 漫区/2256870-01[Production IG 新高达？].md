@@ -2299,3 +2299,25 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 
 当然我觉得仍然有可能爆料全是假的，根本没有什么新高达<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古怪山庄士大夫  
+##### 249#       发表于 2026-5-16 10:23
+
+<blockquote>大十字紅朔 发表于 2026-5-16 09:54
+这些年已经有很多不是边做边播的片子了
+
+当然我觉得仍然有可能爆料全是假的，根本没有什么新高达 ...</blockquote>
+我当然知道有不是边做边播的，但是边做边播目前仍然是业界的常态，万策尽也是常态。以及新高达肯定是有的，反正我知道的舅舅党都有说过不会假的
+
+*****
+
+####  大十字紅朔  
+##### 250#       发表于 2026-5-16 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69625976&amp;ptid=2256870" target="_blank">古怪山庄士大夫 发表于 2026-5-16 10:23</a>
+
+我当然知道有不是边做边播的，但是边做边播目前仍然是业界的常态，万策尽也是常态。以及新高达肯定是有的 ...</blockquote>
+我现在对舅舅党不太相信了………………………………<img src="https://static.stage1st.com/image/smiley/carton2017/503.png" referrerpolicy="no-referrer">
+
