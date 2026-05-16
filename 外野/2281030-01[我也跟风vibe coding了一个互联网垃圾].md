@@ -865,3 +865,14 @@ exaid!
 
 要升级下浏览器（如果版本过低，uc图片下载不下来，截图了） 一个地铁站拍的，一个抖音找的图（关注点比较特别<img src="https://p.sda1.dev/32/dde57dff2e1f65d23d75d7ee7b4c9c48/image.jpg" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  jojog  
+##### 58#       发表于 2026-5-16 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69624178&amp;ptid=2281030" target="_blank">狗剩大魔王 发表于 2026-5-15 19:07</a>
+
+API额度已经耗尽，不过看到大家的作品，甚是欣喜，我鲁莽地决定挪用今日的晚餐12元，全部用于购置API额度， ...</blockquote>
+佬要不要加个自己本地塞api-key的功能
+
