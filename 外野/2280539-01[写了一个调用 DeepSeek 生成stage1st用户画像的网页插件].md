@@ -7211,3 +7211,23 @@ can can word
 我好像发现一个bug。刚才开着这个插件发帖子的时候帖子的末尾自动加上了个分析内容。编辑删除也没用。关了 ...</blockquote>
 我试了一下好像没能复现这个bug，请问具体什么情况能截图给我看一下吗？
 
+
+*****
+
+####  aimbot  
+##### 382#         楼主| 发表于 2026-5-16 16:28
+
+12块买了两个codex号全被封了
+
+天才少年的梦……结束了……<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大神樱  
+##### 383#       发表于 2026-5-16 16:36
+
+把我康康，谢谢<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9260, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
