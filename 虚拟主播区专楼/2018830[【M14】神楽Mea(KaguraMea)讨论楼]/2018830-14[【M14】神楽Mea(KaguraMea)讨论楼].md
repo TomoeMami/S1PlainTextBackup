@@ -1138,3 +1138,28 @@ core组了，加油啊
 这把有mea视角吗 想看</blockquote>
 剪辑号正在慢悠悠的剪呢，这都快打第三场了，第一场的剪辑才出来。
 
+
+*****
+
+####  thisisaspider  
+##### 20682#       发表于 2026-5-16 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69626351&amp;ptid=2018830" target="_blank">术士q 发表于 2026-5-16 12:05</a>
+
+这个在咩的t台5.8号就有留档，七个小时一周前的那个，对着队名很快就能找到了
+
+确实是mvp级表现啊 ...</blockquote>
+LTK D1G4 DD CORE Vs CC CORE  这个吗？
+
+*****
+
+####  thisisaspider  
+##### 20683#       发表于 2026-5-16 18:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69593357&amp;ptid=2018830" target="_blank">术士q 发表于 2026-5-8 19:43</a>
+
+core组的bp还是挺像样的，但是还是有奇怪的地方
+
+lr和it</blockquote>
+看到阵容了
+
