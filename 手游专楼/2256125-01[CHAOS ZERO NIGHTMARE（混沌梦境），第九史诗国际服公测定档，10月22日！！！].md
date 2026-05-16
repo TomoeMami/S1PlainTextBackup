@@ -240,3 +240,17 @@
 其实也就是跟国际服同步了，国际服现在有类扫荡功能，卡厄思的怪直接秒杀，每天有一次免费扫荡机会，刷存档负担骤降。
 国服只能说比较抽象的是追了一堆进度但是没什么补偿给玩家<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 755#       发表于 2026-5-16 20:31
+
+<img src="https://img.stage1st.com/forum/202605/16/203116eeq7nzsjkejf2lgh.png" referrerpolicy="no-referrer">
+
+<strong>QF2VWD[EW5U_YIUS~).png</strong> (1018.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-16 20:31 上传
+
