@@ -159,3 +159,14 @@
 第一个故事，圣诞节，商店街搞活动用机器人扮雪人，然后两个老头抢走雪人机 ...</blockquote>
 怪不得进士和太田的声优还出席ezy的活动，原来还有戏份
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 155#       发表于 2026-5-17 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69628838&amp;ptid=2155067" target="_blank">创始’’’天翔 发表于 2026-5-17 00:08</a>
+
+这边什么时候能看啊</blockquote>
+bd是上映一周后出，file1和file2都是，file3估计也是了
+
