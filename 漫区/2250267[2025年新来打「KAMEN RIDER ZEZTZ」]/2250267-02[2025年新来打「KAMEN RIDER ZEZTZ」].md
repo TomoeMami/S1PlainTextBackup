@@ -2262,3 +2262,13 @@ WHAT CAN I SAY<img src="https://static.stage1st.com/image/smiley/face2017/035.pn
 
 —— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  damian-wade  
+##### 1687#       发表于 2026-5-18 00:51
+
+其实莫都已经被老五捉住了，直接让老五抢过来就是，这么大个变身器还能藏到哪里去<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR MAG-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
