@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 38334,
+    "totalreply": 38336,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》4.30 五月绯雪]",
-    "lastedit": 1779008055,
+    "lastedit": 1779009255,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9135,12 +9135,12 @@
     "update": false
   },
   "2171097": {
-    "totalreply": 531,
+    "totalreply": 532,
     "title": "[杖与剑的魔剑谭 动画化，24年7月放送（正式宣了]",
     "newtitle": "[杖与剑的魔剑谭 动画化，24年7月放送（正式宣了]",
-    "lastedit": 1778406012,
+    "lastedit": 1779009253,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2191381": {
@@ -12474,10 +12474,10 @@
     "update": false
   },
   "2022397": {
-    "totalreply": 677,
+    "totalreply": 678,
     "title": "[「机动战士高达 闪光的哈萨维」第二部『喀耳刻的魔女』]",
     "newtitle": "[「机动战士高达 闪光的哈萨维」第二部『喀耳刻的魔女』]",
-    "lastedit": 1779007812,
+    "lastedit": 1779009259,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13140,10 +13140,10 @@
     "update": false
   },
   "2255762": {
-    "totalreply": 99,
+    "totalreply": 100,
     "title": "[黄泉使者 TV动画化]",
     "newtitle": "[黄泉使者 TV动画化]",
-    "lastedit": 1778774653,
+    "lastedit": 1779009259,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13445,15 +13445,6 @@
     "active": false,
     "update": false
   },
-  "2279954": {
-    "totalreply": 119,
-    "title": "[藤子白月光MH手游开始二测了, 这次能直播能放实际画面]",
-    "newtitle": "[藤子白月光MH手游开始二测了(更新： 彻底恶堕了)]",
-    "lastedit": 1777799354,
-    "category": "游戏区",
-    "active": false,
-    "update": false
-  },
   "2279870": {
     "totalreply": 73,
     "title": "[steam手柄确认5／4发售，99刀]",
@@ -13689,10 +13680,10 @@
     "update": false
   },
   "2271287": {
-    "totalreply": 110,
+    "totalreply": 113,
     "title": "[【2026】格斗游戏节奏楼]",
     "newtitle": "[【2026】格斗游戏节奏楼]",
-    "lastedit": 1779007810,
+    "lastedit": 1779009259,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15246,10 +15237,10 @@
     "update": false
   },
   "2280606": {
-    "totalreply": 405,
+    "totalreply": 406,
     "title": "[电动车人行道上撞翻盲人，丢下一句“不看路啊”扬长而去]",
     "newtitle": "[(已反转)电动车人行道上撞翻盲人，丢下一句“不看路啊”扬长而去]",
-    "lastedit": 1779005777,
+    "lastedit": 1779009487,
     "category": "外野",
     "active": true,
     "update": false
@@ -17019,10 +17010,10 @@
     "update": false
   },
   "2281044": {
-    "totalreply": 72,
+    "totalreply": 73,
     "title": "[这种操作对于普通用户难度很高吗]",
     "newtitle": "[这种操作对于普通用户难度很高吗]",
-    "lastedit": 1778991732,
+    "lastedit": 1779009130,
     "category": "外野",
     "active": true,
     "update": false
@@ -17127,10 +17118,10 @@
     "update": false
   },
   "2281098": {
-    "totalreply": 108,
+    "totalreply": 109,
     "title": "[S1没人讨论分拣机器人？]",
     "newtitle": "[S1没人讨论分拣机器人？]",
-    "lastedit": 1779008296,
+    "lastedit": 1779009129,
     "category": "外野",
     "active": true,
     "update": false
@@ -17213,6 +17204,15 @@
     "newtitle": "[他国日记 动画化]",
     "lastedit": 1779004231,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2164270": {
+    "totalreply": 235,
+    "title": "[【变成VR游戏游玩日记了】购入Quest3，不当索狗]",
+    "newtitle": "[【变成VR游戏游玩日记了】购入Quest3，不当索狗]",
+    "lastedit": 1779009265,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
