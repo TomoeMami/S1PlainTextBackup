@@ -1881,3 +1881,63 @@ PS：01真的是一部伟大的烂作，不光 ...</blockquote>
 
 什么玩意儿就意见领袖了，你截个图我看看呢
 
+
+*****
+
+####  浅川雏羽  
+##### 1656#       发表于 2026-5-17 19:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69631347&amp;ptid=2250267" target="_blank">丹德里恩 发表于 2026-5-17 19:08</a>
+
+你怎么不说都在贴吧、都在nga你发的贴子底下共振呢
+
+在想当意见领袖这块你也没资格说别人 ...</blockquote>
+人呢大爷，咬了人一击脱离算怎么个事儿
+
+
+*****
+
+####  丹德里恩  
+##### 1657#       发表于 2026-5-17 19:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69631351&amp;ptid=2250267" target="_blank">浅川雏羽 发表于 2026-5-17 19:11</a>
+
+你认错人了吧大爷，我在牛国安就发了个误解向串子帖，底下的回复都是玩code外宣梗搞笑来的
+
+什么玩意儿就 ...</blockquote>
+我说的是你从上午开始在其他贷款吃屎和极速滑坡的帖子底下的回复。
+
+然后你还嫌不够乐、猴区的讨论氛围还不够粪坑，特意再发个贴去试试能不能骗到真没看片的
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">你费那么大劲，我只能理解为要么你想把其他人都赶跑在屎坑当领袖，要么就是你纯傻逼
+
+*****
+
+####  浅川雏羽  
+##### 1658#       发表于 2026-5-17 19:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69631387&amp;ptid=2250267" target="_blank">丹德里恩 发表于 2026-5-17 19:21</a>
+
+我说的是你从上午开始在其他贷款吃屎和极速滑坡的帖子底下的回复。
+
+然后你还嫌不够乐、猴区的讨论氛围还 ...</blockquote>
+我去，你不觉得逗那群人玩很好玩么
+
+他们那个区的氛围，一提幪面超人就是之前被伤害到了再也不看了谁看谁傻逼
+
+就那群用户，你觉得应该和他们正常沟通的？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  丹德里恩  
+##### 1659#       发表于 2026-5-17 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69631395&amp;ptid=2250267" target="_blank">浅川雏羽 发表于 2026-5-17 19:22</a>
+
+我去，你不觉得逗那群人玩很好玩么
+
+他们那个区的氛围，一提幪面超人就是之前被伤害到了再也不看了谁看谁 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">所以我说你想当粪坑里的屎王完全没错啊
+
+是中了索姆尼亚识别不到其他正常人类的存在了吗
+
