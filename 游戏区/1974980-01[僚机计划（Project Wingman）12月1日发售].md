@@ -2129,3 +2129,13 @@ https://www.bilibili.com/video/BV1XQ5q6AERD
 “什么叫我犯了战争罪？”第一关就用光10颗碳铀核弹的尊爵问到</blockquote>
 我看到武器库里还有一个把皇牌空战里的尤利西斯小行星碎片扔下去的对地单发武器，不知道会有多搞……
 
+
+*****
+
+####  MR骑士道MKⅦ  
+##### 205#       发表于 2026-5-18 00:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69630947&amp;ptid=1974980" target="_blank">安瓦尔阿明 发表于 2026-5-17 16:56</a>
+我看到武器库里还有一个把皇牌空战里的尤利西斯小行星碎片扔下去的对地单发武器，不知道会有多搞…… ...</blockquote>
+请务必调低特效
+

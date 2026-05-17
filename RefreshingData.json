@@ -63,9 +63,9 @@
     "update": false
   },
   "2018830": {
-    "totalreply": 20690,
+    "totalreply": 20691,
     "title": "[【M14】神楽Mea(KaguraMea)讨论楼]",
-    "lastedit": 1779036010,
+    "lastedit": 1779037571,
     "category": "虚拟主播区专楼",
     "active": true,
     "newtitle": "[【M14】神楽Mea(KaguraMea)讨论楼]",
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 38392,
+    "totalreply": 38394,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》4.30 五月绯雪]",
-    "lastedit": 1779035531,
+    "lastedit": 1779037447,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 31936,
+    "totalreply": 31937,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1779035647,
+    "lastedit": 1779037571,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2276704": {
-    "totalreply": 1090,
+    "totalreply": 1091,
     "title": "[【寂寞的车】车迷俱乐部（2026年3月汽车讨论专楼）]",
     "newtitle": "[【寂寞的车】车迷俱乐部（汽车讨论专楼）]",
-    "lastedit": 1779036371,
+    "lastedit": 1779037216,
     "category": "外野",
     "active": true,
     "update": false
@@ -13128,7 +13128,7 @@
     "lastedit": 1781084880,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2260146": {
     "totalreply": 452,
@@ -13671,10 +13671,10 @@
     "update": false
   },
   "2253062": {
-    "totalreply": 206,
+    "totalreply": 207,
     "title": "[B站键盘车神教教主鲁超纽北进7分创下华人新圈速]",
     "newtitle": "[B站键盘车神教教主鲁超纽北进7分创下华人新圈速]",
-    "lastedit": 1779032652,
+    "lastedit": 1779037213,
     "category": "外野",
     "active": true,
     "update": false
@@ -13761,10 +13761,10 @@
     "update": false
   },
   "2280192": {
-    "totalreply": 240,
+    "totalreply": 244,
     "title": "[开一个摩托专楼]",
     "newtitle": "[开一个摩托专楼]",
-    "lastedit": 1779031816,
+    "lastedit": 1779037570,
     "category": "外野",
     "active": true,
     "update": false
@@ -17046,10 +17046,10 @@
     "update": false
   },
   "1974980": {
-    "totalreply": 204,
+    "totalreply": 205,
     "title": "[僚机计划（Project Wingman）12月1日发售]",
     "newtitle": "[僚机计划（Project Wingman）12月1日发售]",
-    "lastedit": 1779008406,
+    "lastedit": 1779037216,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17199,10 +17199,10 @@
     "update": false
   },
   "2281127": {
-    "totalreply": 47,
+    "totalreply": 48,
     "title": "[一直觉得相亲是件很奇怪的事]",
     "newtitle": "[一直觉得相亲是件很奇怪的事]",
-    "lastedit": 1779028335,
+    "lastedit": 1779037216,
     "category": "外野",
     "active": true,
     "update": false
@@ -17235,10 +17235,10 @@
     "update": false
   },
   "2281149": {
-    "totalreply": 107,
+    "totalreply": 110,
     "title": "[世上不是所有事都是非黑即百，自己还是太年轻了]",
     "newtitle": "[世上不是所有事都是非黑即白的，自己还是太年轻了]",
-    "lastedit": 1779036614,
+    "lastedit": 1779037216,
     "category": "外野",
     "active": true,
     "update": false
@@ -17249,6 +17249,15 @@
     "newtitle": "[AI大概已经拉爆福利姬和文爱陪聊了]",
     "lastedit": 1779036976,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2255271": {
+    "totalreply": 41,
+    "title": "[灰原君的青春二周目 动画化]",
+    "newtitle": "[灰原君的青春二周目 动画化]",
+    "lastedit": 1779037329,
+    "category": "漫区",
     "active": true,
     "update": false
   }
