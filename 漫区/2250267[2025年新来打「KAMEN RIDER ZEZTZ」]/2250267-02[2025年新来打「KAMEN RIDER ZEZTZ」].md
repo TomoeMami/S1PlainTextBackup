@@ -1941,3 +1941,25 @@ PS：01真的是一部伟大的烂作，不光 ...</blockquote>
 
 是中了索姆尼亚识别不到其他正常人类的存在了吗
 
+
+*****
+
+####  浅川雏羽  
+##### 1660#       发表于 2026-5-17 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69631401&amp;ptid=2250267" target="_blank">丹德里恩 发表于 2026-5-17 19:25</a>
+
+所以我说你想当粪坑里的屎王完全没错啊
+
+是中了索姆尼亚识别不到其他正常人类的存在了吗 ...</blockquote>
+我是真的看完片儿被牛国安那群人搞上火了好吧，所以串了一整天
+
+你要说我破坏了他们区的讨论氛围，那确实，我这波有点子上头了，没想到波及到你，对不住对不住<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  milky658  
+##### 1661#       发表于 2026-5-17 19:30
+
+橘前辈早道出真谛了：“尽情地享受噩梦吧”，当个乐子人被抽陀螺都老爽了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
