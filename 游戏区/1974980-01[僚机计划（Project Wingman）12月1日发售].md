@@ -2099,3 +2099,15 @@ dlc有追加新机体么？</blockquote>
 
 国人爱好者推出了Project Overhual组合mod，加入了歼10、苏57、F-35等机体并整合了各种变态武备扩展，同时敌人也猛猛增强。打雇佣兵难度的第三关抢夺空军基地，空军基地前的冰湖里塞了一整支联邦舰队，铺天盖地的电磁炮、防空炮和集束导弹让战场化作空中迪厅。包爽，适合再打一遍。<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MR骑士道MKⅦ  
+##### 202#       发表于 2026-5-17 13:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69627961&amp;ptid=1974980" target="_blank">安瓦尔阿明 发表于 2026-5-16 20:36</a>
+https://www.bilibili.com/video/BV1XQ5q6AERD
+
+国人爱好者推出了Project Overhual组合mod，加入了歼10、苏 ...</blockquote>
+“什么叫我犯了战争罪？”第一关就用光10颗碳铀核弹的尊爵问到<img src="https://static.stage1st.com/image/smiley/carton2017/413.png" referrerpolicy="no-referrer">
+
