@@ -97,3 +97,30 @@ miko跟rui现在线上线下联动什么内容都正常做
 
 悲啊
 
+
+*****
+
+####  holofan  
+##### 11572#       发表于 2026-5-15 22:33
+
+这傻孩子确实没在社会上怎么混过，主动申请休息日这种常规操作竟然做v8年到现在才从星街嘴里第一次得知，而holomem其实都会这么做而且做了很久了包括后来的新人都知道的常识
+
+所以这8年理论上来说是没有一天严格意义上的休息天，只要是没有其他私人活动安排的日子全部被塞满了其他工作安排
+
+*****
+
+####  holofan  
+##### 11573#       发表于 2026-5-17 09:38
+
+<img src="https://img.stage1st.com/forum/202605/17/093141c99tvlbocoh975t5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (222.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-17 09:31 上传
+
+[https://www.youtube.com/watch?v=JB6OVWAUg9g](https://www.youtube.com/watch?v=JB6OVWAUg9g)
+
+昨天的SJ60 联动规模还不小，还配套了holo曲联动开场，中场拉拉舞，不过好像卖周边的除了点生产问题现场售卖环节取消了
+
