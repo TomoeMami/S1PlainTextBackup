@@ -1963,3 +1963,30 @@ PS：01真的是一部伟大的烂作，不光 ...</blockquote>
 
 橘前辈早道出真谛了：“尽情地享受噩梦吧”，当个乐子人被抽陀螺都老爽了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  丹德里恩  
+##### 1662#       发表于 2026-5-17 19:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69631416&amp;ptid=2250267" target="_blank">milky658 发表于 2026-5-17 19:30</a>
+
+橘前辈早道出真谛了：“尽情地享受噩梦吧”，当个乐子人被抽陀螺都老爽了 ...</blockquote>
+橘前辈自己下场，所以被制裁了也是自己挨踢，这叫代价
+
+社区里是串子下场骗傻子，把正常人都熏走开始共振，最后说对了就是我牛逼以后都得听我的，说错了就是无事发生换下个片场继续串，无本买卖说个屁。
+
+
+*****
+
+####  浅川雏羽  
+##### 1663#       发表于 2026-5-17 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69631439&amp;ptid=2250267" target="_blank">丹德里恩 发表于 2026-5-17 19:38</a>
+橘前辈自己下场，所以被制裁了也是自己挨踢，这叫代价
+
+社区里是串子下场骗傻子，把正常人都熏走开始共振 ...</blockquote>
+还在意见领袖论，看你年纪大礼貌点给你赔不是你不接还继续扣锅那没什么好说的了，你拉黑我我拉黑你，免得互相看着烦
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
