@@ -2272,3 +2272,15 @@ WHAT CAN I SAY<img src="https://static.stage1st.com/image/smiley/face2017/035.pn
 
 —— 来自 HONOR MAG-AN00, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  金星  
+##### 1688#       发表于 2026-5-18 01:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69632714&amp;ptid=2250267" target="_blank">damian-wade 发表于 2026-5-18 00:51</a>
+其实莫都已经被老五捉住了，直接让老五抢过来就是，这么大个变身器还能藏到哪里去
+
+—— 来自 HONOR MAG-AN ...</blockquote>
+参考外传，变身器应该是“变”出来的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
