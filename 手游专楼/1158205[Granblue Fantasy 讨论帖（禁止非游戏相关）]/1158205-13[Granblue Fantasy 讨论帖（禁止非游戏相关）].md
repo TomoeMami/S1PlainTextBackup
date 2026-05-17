@@ -45,3 +45,14 @@ relink附送的特典兑换码还有人需要吗？
 relink附送的特典兑换码还有人需要吗？</blockquote>
 relink那个码早过期了吧，还能兑换?
 
+
+*****
+
+####  czs13  
+##### 18302#       发表于 2026-5-17 15:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69630452&amp;ptid=1158205" target="_blank">syndrome2032 发表于 2026-5-17 14:07</a>
+
+relink那个码早过期了吧，还能兑换?</blockquote>
+长期有效，前几天还看到NGA有人交易，没那边的账号。
+
