@@ -1801,3 +1801,37 @@ PS：01真的是一部伟大的烂作，不光 ...</blockquote>
 
 —— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  丹德里恩  
+##### 1650#       发表于 2026-5-17 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69631195&amp;ptid=2250267" target="_blank">浅川雏羽 发表于 2026-5-17 18:11</a>
+
+牛子豪肯定也是想到34之后怎么写都会跌才选到昨晚发视频的，必然大爆</blockquote>
+是吗
+
+那你跑去nga发弱智帖子之前能不能先去看一眼瓶子发了句动态说他觉得这集没问题？
+
+*****
+
+####  浅川雏羽  
+##### 1651#       发表于 2026-5-17 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69631299&amp;ptid=2250267" target="_blank">丹德里恩 发表于 2026-5-17 18:50</a>
+
+是吗
+
+那你跑去nga发弱智帖子之前能不能先去看一眼瓶子发了句动态说他觉得这集没问题？ ...</blockquote>
+牛子豪的态度和我去牛国安发串子帖逗牛国安用户之间有什么联系么
+
+*****
+
+####  damenda  
+##### 1652#       发表于 2026-5-17 18:56
+
+啥笔牛子豪谁关注啊，牛子豪孝子能不能自己玩去，别污染我们普通看视频的啊<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
