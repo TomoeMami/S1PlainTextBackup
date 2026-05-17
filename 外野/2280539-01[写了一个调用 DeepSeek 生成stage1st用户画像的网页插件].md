@@ -7441,3 +7441,11 @@ can can word
 
 一个在归墟里疯狂输出“生活小妙招+行业黑话揭秘”的民间观察家，嘴上挂着“你信息不全”，顺手扔个王德福冷梗，活像张四线城市里的理中客大爷，知识面比你的裤腰带宽，但别跟他谈游戏，他会沉默。
 
+
+*****
+
+####  高分高能EPYC  
+##### 393#       发表于 2026-5-17 22:53
+
+看看我的<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
