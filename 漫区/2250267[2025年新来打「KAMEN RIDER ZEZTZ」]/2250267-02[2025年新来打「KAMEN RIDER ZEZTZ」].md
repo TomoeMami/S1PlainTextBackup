@@ -2047,3 +2047,18 @@ exaid前车之鉴，收花了又来了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  丹德里恩  
+##### 1669#       发表于 2026-5-17 20:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69631467&amp;ptid=2250267" target="_blank">milky658 发表于 2026-5-17 19:46</a>
+
+也是，毕竟现实里没法像皮套人打架一样打个结果出来，只能东风压倒西风
+
+社区管理现在也费力不讨好，去年 ...</blockquote>
+假吧管不住一是因为吧务自己以前的光辉事迹太多，不管做什么都会被指责在双标；二是百度贴吧现在纯靠流量活着，先天就注定了会变成结局
+
+社区管理确实费力不讨好，跟是哪个圈子、是不是二次元也没什么关系。只能说现在的互联网社区，要么退一步找好舒适区，要么进一步看谁嗓门大<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
