@@ -1835,3 +1835,49 @@ PS：01真的是一部伟大的烂作，不光 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  浅川雏羽  
+##### 1653#       发表于 2026-5-17 19:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69631315&amp;ptid=2250267" target="_blank">damenda 发表于 2026-5-17 18:56</a>
+
+啥笔牛子豪谁关注啊，牛子豪孝子能不能自己玩去，别污染我们普通看视频的啊
+
+—— 来自 S1Fun ...</blockquote>
+你在这儿发没用，他孝子都在批站
+
+我的建议是每周看Amazon prime的片源，他们家的三条Z是全网码率最高的，不仅有高画质，还不用看傻逼观众的评论
+
+可惜网上做种的会晚几天
+
+*****
+
+####  丹德里恩  
+##### 1654#       发表于 2026-5-17 19:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69631340&amp;ptid=2250267" target="_blank">浅川雏羽 发表于 2026-5-17 19:05</a>
+
+你在这儿发没用，他孝子都在批站
+
+我的建议是每周看Amazon prime的片源，他们家的三条Z是全网码率最高的， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你怎么不说都在贴吧、都在nga你发的贴子底下共振呢
+
+在想当意见领袖这块你也没资格说别人
+
+
+*****
+
+####  浅川雏羽  
+##### 1655#       发表于 2026-5-17 19:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69631347&amp;ptid=2250267" target="_blank">丹德里恩 发表于 2026-5-17 19:08</a>
+
+你怎么不说都在贴吧、都在nga你发的贴子底下共振呢
+
+在想当意见领袖这块你也没资格说别人 ...</blockquote>
+你认错人了吧大爷，我在牛国安就发了个误解向串子帖，底下的回复都是玩code外宣梗搞笑来的
+
+什么玩意儿就意见领袖了，你截个图我看看呢
+
