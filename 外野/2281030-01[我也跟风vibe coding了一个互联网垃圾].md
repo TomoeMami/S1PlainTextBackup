@@ -919,3 +919,23 @@ LZ和坛友们的创意脑洞都很NB
 
 这咒文写的好    楼主可以分享一下咒文怎么来的吗
 
+
+*****
+
+####  =w=  
+##### 63#       发表于 2026-5-17 13:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69628928&amp;ptid=2281030" target="_blank">الطائر 发表于 2026-5-17 00:46</a>
+
+没有额度了吗？找到一个怪生物的照片，可惜上传不上去：</blockquote>
+
+<img src="https://img.stage1st.com/forum/202605/17/130451vd6d0g429ddniswt.png" referrerpolicy="no-referrer">
+
+<strong>ChatGPT Image May 17, 2026, 01_01_31 PM.png</strong> (1.16 MB, 下载次数: 0)
+
+下载附件
+
+2026-5-17 13:04 上传
+
+通过楼主分享的提示词生成的。不知道怎么变成了繁体，然后标点符号也有点奇怪，不过整体就还好
+
