@@ -1723,3 +1723,13 @@ PS：01真的是一部伟大的烂作，不光 ...</blockquote>
 
 假吧还是太幽默了，整天说外来人多了败坏环境，事实上一直在败坏环境的其实是自己，环境都烂多久了，十多年前环境就是烂的，还整天甩锅外人<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  久井路路  
+##### 1642#       发表于 2026-5-17 17:23
+
+总而言之闻到些异味就先贷款骂，被反驳了就说迄今为止的令和假面骑士把他们伤得太深不敢相信<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这集确实是处理得很随便的庸回就是了，ZZZ牢莫之外的角色塑造一直是短板，老六这个本集开头补上的紧急死前用回忆简直笑死人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
