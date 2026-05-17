@@ -1148,7 +1148,7 @@
     "newtitle": "[这种败坏魔王军形象的部门]",
     "lastedit": 1778797328,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2064739": {
@@ -13128,7 +13128,7 @@
     "lastedit": 1781084880,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2260146": {
     "totalreply": 453,
@@ -13563,10 +13563,10 @@
     "update": false
   },
   "2280092": {
-    "totalreply": 2499,
+    "totalreply": 2501,
     "title": "[中东砖楼 2026年5月版]",
     "newtitle": "[中东砖楼 2026年5月版]",
-    "lastedit": 1779032290,
+    "lastedit": 1779057367,
     "category": "外野",
     "active": true,
     "update": false
@@ -17262,10 +17262,10 @@
     "update": false
   },
   "2281125": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[明末根本玩不下去]",
     "newtitle": "[明末根本玩不下去]",
-    "lastedit": 1779046808,
+    "lastedit": 1779057487,
     "category": "游戏区",
     "active": true,
     "update": false
