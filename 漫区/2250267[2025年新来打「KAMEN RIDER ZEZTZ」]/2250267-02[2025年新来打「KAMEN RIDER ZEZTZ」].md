@@ -2062,3 +2062,64 @@ exaid前车之鉴，收花了又来了
 
 社区管理确实费力不讨好，跟是哪个圈子、是不是二次元也没什么关系。只能说现在的互联网社区，要么退一步找好舒适区，要么进一步看谁嗓门大<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无敌钢人泰坦3  
+##### 1670#       发表于 2026-5-17 20:50
+
+<blockquote>milky658 发表于 2026-5-17 19:46
+也是，毕竟现实里没法像皮套人打架一样打个结果出来，只能东风压倒西风
+
+社区管理现在也费力不讨好，去年 ...</blockquote>
+说到武部，看到有传闻说麦斯主笔是个特摄超级老资历，感觉哪怕ZZZ平稳落地也没准要时不时拐回来清算了
+
+
+*****
+
+####  挺好的  
+##### 1671#       发表于 2026-5-17 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69631756&amp;ptid=2250267" target="_blank">无敌钢人泰坦3 发表于 2026-5-17 20:50</a>
+说到武部，看到有传闻说麦斯主笔是个特摄超级老资历，感觉哪怕ZZZ平稳落地也没准要时不时拐回来清算了 ...</blockquote>
+那荒川还是小林<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+难道还能追到昭和不成
+
+*****
+
+####  pokemon最爱  
+##### 1672#       发表于 2026-5-17 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69631756&amp;ptid=2250267" target="_blank">无敌钢人泰坦3 发表于 2026-5-17 20:50</a>
+
+说到武部，看到有传闻说麦斯主笔是个特摄超级老资历，感觉哪怕ZZZ平稳落地也没准要时不时拐回来清算了 ...</blockquote>
+以为老资历就能压住武部，我觉得想太多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 1673#       发表于 2026-5-17 20:56
+
+其实ZZZ的观感确实跟走独木桥差不多，好看肯定是好看的，但全剧到目前为止只花笔墨塑造好了牢莫，其他人不能说没塑造，只能说纯来当绿叶的，包括宁梦也是
+
+独木桥就是牢莫本身，桥断了那ZZZ的风评肯定一路直接跌落谷底，跟狐神一样
+
+所以能看到给这集挽尊的从来不会分析剧情合理性和憋屈的观感造成的原因，只会一直论述牢莫来不及救牢六和交出腰带都是合理的，牢莫没变一直是那个真英雄，然后拿着AI生成的分析文撒遍评论区，和瓶孝子幸灾乐祸的观感如出一辙的恶心
+
+反正在我看来这集就是单纯的不大好看，看看下一集咋说
+
+ZZZ一路看下来“总而言之情感烘托都到这了，你就别在意细节”的部分多的双手双脚都数不过来，谁看个假面骑士还跟看re0一样集集都去补一下设定
+
+更何况还有警察组这种永远拍不死的苍蝇持续着败坏着看客的好感，能平稳落地算烧高香了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  milky658  
+##### 1674#       发表于 2026-5-17 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69631756&amp;ptid=2250267" target="_blank">无敌钢人泰坦3 发表于 2026-5-17 20:50</a>
+
+说到武部，看到有传闻说麦斯主笔是个特摄超级老资历，感觉哪怕ZZZ平稳落地也没准要时不时拐回来清算了 ...</blockquote>
+正常，别看现在猜武部当鼠鼠主P一个个嫌弃得不行，到时候随便到哪找个编剧，来点不错的观感，会脑补出XX编剧和大邪神抗争的感人故事的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
