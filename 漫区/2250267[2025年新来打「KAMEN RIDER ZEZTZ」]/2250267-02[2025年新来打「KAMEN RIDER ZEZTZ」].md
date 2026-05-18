@@ -2292,3 +2292,22 @@ WHAT CAN I SAY<img src="https://static.stage1st.com/image/smiley/face2017/035.pn
 
 牢莫给狼姐打电话的时候在干吗，我觉得他是不是又手搓了一条简易（基础款）的腰带做备用
 
+
+*****
+
+####  恶意之刃  
+##### 1690#       发表于 2026-5-18 08:55
+
+不是我喜欢的展开，你一定是在做梦吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这话文戏都合打戏虐菜，还是虐剧外人气演员的角色，个人观感和上一话落差过大。红霸下不下线已经没所谓了，反正进不了主角团
+
+*****
+
+####  马桶3  
+##### 1691#       发表于 2026-5-18 08:57
+
+这集应该就是找个由头把最终形态ban了吧，如果老莫得到完整情报满状态进code毁索尼亚，按超梦强度，搞不好code防都防不住，只能先发制人了，给他上几个debuff支线任务再嘴炮几个code内部人员帮他把超梦拿回来
+
+之前看剧场版反派皮套有一半的超梦，估计就是code拿过去这段时间逆向开发的新胶囊咯<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+正好剧场版伏笔也埋下了
+
