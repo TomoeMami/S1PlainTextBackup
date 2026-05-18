@@ -63,9 +63,9 @@
     "update": false
   },
   "2018830": {
-    "totalreply": 20708,
+    "totalreply": 20710,
     "title": "[【M14】神楽Mea(KaguraMea)讨论楼]",
-    "lastedit": 1779103936,
+    "lastedit": 1779104894,
     "category": "虚拟主播区专楼",
     "active": true,
     "newtitle": "[【M14】神楽Mea(KaguraMea)讨论楼]",
@@ -1827,12 +1827,12 @@
     "update": false
   },
   "1957309": {
-    "totalreply": 2652,
+    "totalreply": 2653,
     "title": "[星期一的满杯讨论楼]",
     "newtitle": "[星期一的满杯讨论楼]",
-    "lastedit": 1768193895,
+    "lastedit": 1779104658,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1904473": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 38439,
+    "totalreply": 38440,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》4.30 五月绯雪]",
-    "lastedit": 1779102735,
+    "lastedit": 1779104891,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 37666,
+    "totalreply": 37667,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1779104294,
+    "lastedit": 1779104658,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -13554,10 +13554,10 @@
     "update": false
   },
   "2280092": {
-    "totalreply": 2562,
+    "totalreply": 2563,
     "title": "[中东砖楼 2026年5月版]",
     "newtitle": "[中东砖楼 2026年5月版]",
-    "lastedit": 1779103459,
+    "lastedit": 1779104653,
     "category": "外野",
     "active": true,
     "update": false
@@ -17253,10 +17253,10 @@
     "update": false
   },
   "2281091": {
-    "totalreply": 54,
+    "totalreply": 55,
     "title": "[哦牛逼杀人犯还能拍电影颠倒黑白，国内还能上映了]",
     "newtitle": "[哦牛逼杀人犯还能拍电影颠倒黑白，国内还能上映了]",
-    "lastedit": 1779100456,
+    "lastedit": 1779104894,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -17352,19 +17352,19 @@
     "update": false
   },
   "2281168": {
-    "totalreply": 60,
+    "totalreply": 61,
     "title": "[今天才知道悠悠苍天，何薄于我这一句是老三国电视剧原创的]",
     "newtitle": "[今天才知道悠悠苍天，何薄于我这一句是老三国电视剧原创的]",
-    "lastedit": 1779102256,
+    "lastedit": 1779104658,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2281194": {
-    "totalreply": 144,
+    "totalreply": 149,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
-    "lastedit": 1779104294,
+    "lastedit": 1779104894,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17379,10 +17379,10 @@
     "update": false
   },
   "2281198": {
-    "totalreply": 76,
+    "totalreply": 77,
     "title": "[“新加坡特色美食”海南鸡饭]",
     "newtitle": "[“新加坡特色美食”海南鸡饭]",
-    "lastedit": 1779103216,
+    "lastedit": 1779104408,
     "category": "外野",
     "active": true,
     "update": false
@@ -17419,6 +17419,15 @@
     "title": "[诺兰解释黑人说唱歌手出演奥德赛，因为奥德赛是口头诗歌]",
     "newtitle": "[诺兰解释黑人说唱歌手出演奥德赛，因为奥德赛是口头诗歌]",
     "lastedit": 1779103460,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2281211": {
+    "totalreply": 41,
+    "title": "[AI数据污染有点离谱了]",
+    "newtitle": "[AI数据污染有点离谱了]",
+    "lastedit": 1779104658,
     "category": "外野",
     "active": true,
     "update": false
