@@ -183,3 +183,18 @@ BU系统正式实装，系统大幅优化
 
 看了下联机里没有啊（？？
 
+
+*****
+
+####  astrayl  
+##### 1990#       发表于 2026-5-18 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69625264&amp;ptid=2104259" target="_blank">madcow 发表于 2026-5-15 23:58</a>
+
+BU发了十连啥都没有（
+
+扫了眼更新里说是定期要击第一次打完给100点
+
+看了下联机里没有啊（？？ ...</blockquote>
+新更新的联机才有，不过也确实没标出首次通关奖励<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
