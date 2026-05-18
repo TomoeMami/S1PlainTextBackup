@@ -200,3 +200,13 @@
 
 ed的神秘短发女也有可能性，以本片的风格如果真是GIFT这个的boss大概率要付出代价的没戏，但如果是被真boss利用的那反过来就大有希望了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永恒的王牌  
+##### 594#       发表于 2026-5-18 13:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69633880&amp;ptid=2250190" target="_blank">zing223 发表于 2026-5-18 10:31</a>
+我在官网上倒也没有看到性别所以有点好奇是怎么觉得是t的，但我觉得这位设定是t或者是男的都不违和... ...</blockquote>
+看到回复才发现可能有歧义，我的意思是TP那个T<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
