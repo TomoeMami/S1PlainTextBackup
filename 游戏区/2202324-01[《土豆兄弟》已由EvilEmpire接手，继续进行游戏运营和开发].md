@@ -4133,3 +4133,13 @@ https://api.xiaoheihe.cn/v3/bbs/app/api/web/share?link_id=45f07104085c
 
 难6密密麻麻的子弹，跟东方一样<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DDWarrior  
+##### 339#       发表于 2026-5-18 11:57
+
+要死要活用德鲁伊和恶魔两个职业通了难6，暂时没想法玩更多职业了，太难了…<img src="https://static.stage1st.com/image/smiley/face/134.gif" referrerpolicy="no-referrer">
+
+新职业用他自己通一次解锁的武器，打难5意外地还挺简单    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
