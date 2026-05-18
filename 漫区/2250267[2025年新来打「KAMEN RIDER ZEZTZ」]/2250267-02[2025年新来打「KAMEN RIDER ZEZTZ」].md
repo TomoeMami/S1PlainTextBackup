@@ -2284,3 +2284,11 @@ WHAT CAN I SAY<img src="https://static.stage1st.com/image/smiley/face2017/035.pn
 —— 来自 HONOR MAG-AN ...</blockquote>
 参考外传，变身器应该是“变”出来的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duo_wolf  
+##### 1689#       发表于 2026-5-18 08:12
+
+牢莫给狼姐打电话的时候在干吗，我觉得他是不是又手搓了一条简易（基础款）的腰带做备用
+
