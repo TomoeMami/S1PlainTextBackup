@@ -4904,3 +4904,29 @@ zoa的角色和剧情收录了吗？还是只有机体？
 
 创世吧，记得是dlc形式加入的，应该是只有机子
 
+
+*****
+
+####  qrlfafner  
+##### 4254#       发表于 2026-5-18 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69632642&amp;ptid=2071758" target="_blank">okey3m 发表于 2026-5-18 00:25</a>
+
+现在入坑最麻烦的是开发机三星不知道要刷到猴年马月吧，除非不做永恒的任务 ...</blockquote>
+我的马甲E素材除了过关送的3个刷到现在一个都没出，一起的黄金大便已经可以做4台了<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  行政裁定书  
+##### 4255#       发表于 2026-5-18 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69633313&amp;ptid=2071758" target="_blank">arthes 发表于 2026-5-18 09:09</a>
+
+创世吧，记得是dlc形式加入的，应该是只有机子</blockquote>
+只有机子的话是不是说明和前哨战一样，万代没有角色和剧情的版权？
+
+那永恒里要出的话，只能配胶达或其他机师了？
+
+而且这样的话，外传活动也没法出啊，拿不到开法ssr机体。
+
