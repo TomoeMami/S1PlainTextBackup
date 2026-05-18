@@ -180,3 +180,23 @@
 这短发的原来是T吗，完全当成男的了</blockquote>
 我在官网上倒也没有看到性别所以有点好奇是怎么觉得是t的，但我觉得这位设定是t或者是男的都不违和...
 
+
+*****
+
+####  hsyg  
+##### 592#       发表于 2026-5-18 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69632928&amp;ptid=2250190" target="_blank">永恒的王牌 发表于 2026-5-18 05:36</a>
+
+这短发的原来是T吗，完全当成男的了</blockquote>
+多看几眼萌萌的 全女 ed，怎么可能有男的混进去（
+
+*****
+
+####  leleq  
+##### 593#       发表于 2026-5-18 10:43
+
+瞳是最有可能的智郎cp吧，玲奈明显女哥们还有个小正太。
+
+ed的神秘短发女也有可能性，以本片的风格如果真是GIFT这个的boss大概率要付出代价的没戏，但如果是被真boss利用的那反过来就大有希望了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
