@@ -181,3 +181,13 @@ bd是上映一周后出，file1和file2都是，file3估计也是了
 这边什么时候能看啊</blockquote>
 BD1是5/22出
 
+
+*****
+
+####  57042711  
+##### 157#       发表于 2026-5-19 00:31
+
+女太田笑死，原来pv里那个发炮许可原来是这个意思啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

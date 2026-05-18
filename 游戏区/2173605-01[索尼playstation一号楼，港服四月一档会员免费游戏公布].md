@@ -211,3 +211,19 @@ PlayStation商店公开了《#GTA6#》的解锁时间：
 
 VGC记者乔丹·米德勒近日在某播客节目中再次暗示，索尼可能正在考虑重启包括《捉猴啦》在内的多个经典PlayStation系列IP。
 
+
+*****
+
+####  黑猫软  
+##### 670#       发表于 2026-5-19 00:29
+
+没理解错的话部分地区涨了一个月和三个月的会员费，年费没涨 痛击开一领三<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202605/19/002900q77rldiyl8yzydy7.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260519_002740.jpg</strong> (98.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-19 00:29 上传
+
