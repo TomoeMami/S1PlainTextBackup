@@ -4116,3 +4116,20 @@ https://api.xiaoheihe.cn/v3/bbs/app/api/web/share?link_id=45f07104085c
 
 看得出来谁是真的强度稳定了…
 
+
+*****
+
+####  恶搞之王  
+##### 337#       发表于 2026-5-18 09:57
+
+驯兽的问题是老鼠太弱，点伤收益在早期极低
+
+但又必须猛拿老鼠，不然没法过渡
+
+*****
+
+####  mashirotan  
+##### 338#       发表于 2026-5-18 10:01
+
+难6密密麻麻的子弹，跟东方一样<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
