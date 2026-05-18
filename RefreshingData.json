@@ -13128,7 +13128,7 @@
     "lastedit": 1781084880,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2260146": {
     "totalreply": 507,
@@ -17438,6 +17438,15 @@
     "newtitle": "[传颂之物系列新作《传颂之物 通往白之道标》2026年春]",
     "lastedit": 1779126257,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2281233": {
+    "totalreply": 42,
+    "title": "[爱也是一种窒息感]",
+    "newtitle": "[爱也是一种窒息感]",
+    "lastedit": 1779128289,
+    "category": "外野",
     "active": true,
     "update": false
   }
