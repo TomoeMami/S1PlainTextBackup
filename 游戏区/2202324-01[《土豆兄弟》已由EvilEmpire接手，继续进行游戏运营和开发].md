@@ -4171,3 +4171,13 @@ https://api.xiaoheihe.cn/v3/bbs/app/api/web/share?link_id=45f07104085c
 
 难6又没有成就强制你全角色通关，作为难度补充不是很好么，总不能拦住部分玩家对难度的需求吧…
 
+
+*****
+
+####  性急的蜗牛  
+##### 343#       发表于 2026-5-18 15:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来这个游戏从DLC1开始差评爆炸真的是因为“太难了”？
+
+虽然我也是各种撞子弹暴毙的眼花老年菜鸡，但人家高难度本来也没有保证你什么职业随便玩都能过的道义吧。更何况，确实有人能全职业通来着……
+
