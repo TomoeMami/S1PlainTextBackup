@@ -413,3 +413,28 @@ R姐就算1宝，带黑杯都能做主手了吧。我其实也在考虑是不是
 
 其实长江3技能也是对剑来着，主要长江已经90了可以省俩杯子咕朗台病要发作了
 
+
+*****
+
+####  khxooo  
+##### 47790#       发表于 2026-5-18 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69634250&amp;ptid=1712412" target="_blank">GALLADE 发表于 2026-5-18 11:24</a>
+都弄完了的，我只点了狂和双ex，难道有什么练人任务没完成？
+
+其实长江3技能也是对剑来着，主要长江已经9 ...</blockquote>
+那就不清楚了，你自己看看吧。
+
+如果想剑兰就剑兰吧，反正又不是不能打。
+
+*****
+
+####  khxooo  
+##### 47791#       发表于 2026-5-18 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69634250&amp;ptid=1712412" target="_blank">GALLADE 发表于 2026-5-18 11:24</a>
+都弄完了的，我只点了狂和双ex，难道有什么练人任务没完成？
+
+其实长江3技能也是对剑来着，主要长江已经9 ...</blockquote>
+查了查，还真是有任务要求，你自己查一下特殊任务哪个没有完成吧。
+
