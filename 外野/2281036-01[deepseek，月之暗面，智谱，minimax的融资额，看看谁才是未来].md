@@ -483,3 +483,19 @@ kimi agent做深度调查再输出PPT几次救我狗命了<img src="https://stat
 
 —— 来自 nubia NX721J, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  岬开斗  
+##### 45#       发表于 2026-5-18 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69634218&amp;ptid=2281036" target="_blank">一心六文 发表于 2026-5-18 11:19</a>
+蔡浩宇搞GTA没搞出来，易环反而搞出来了，是他的实力不行吗？还是他的团队不行？
+
+—— 来自 vivo V2454A ...</blockquote>
+蔡浩宇这种满脑子都是刀剑神域的大龄中二病，对原神的评价是简陋的开放世界，崩铁都差点砍了，怎么看得上异环这种都市版原神。
+当时蔡全国挖人搞PJSH，据说里边随便一个原画都是其他游戏的主美，结果挖来的人谁也不服谁，搞了几个派系天天内斗根本推进不下去，最后蔡浩宇直接解散，跑新加坡全球招人搞雨之城去了。
+雨之城去年才定了方向，应该是跟决定做LLMs基座有关，也就是全AI NPC的开放世界。
+
+—— 来自 OnePlus PJD110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
