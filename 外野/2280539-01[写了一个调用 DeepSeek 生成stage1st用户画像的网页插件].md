@@ -7513,3 +7513,20 @@ can can word
 
 这位是归墟与数码版的老坛醋，一边喷AMD postcode一边哭穷买源氏木语，怀旧病加程序员怨气齐飞。国务院青天梗玩得溜，但本质是个在电子零件里找存在感的闷骚中年，建议直接送一张AM5基板当纪念。
 
+
+*****
+
+####  aimbot  
+##### 396#         楼主| 发表于 2026-5-18 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69632527&amp;ptid=2280539" target="_blank">北原かずさ 发表于 2026-5-17 23:42</a>
+
+我描述一下吧
+
+首先我开着这个插件，里面有我的api key。是可用状态。并且对我自己用过一次。
+
+然后我发布 ...</blockquote>
+试着在数码版又发了一贴，还是没有复现你说的问题<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+如果后面有更多人反馈再说吧
+
