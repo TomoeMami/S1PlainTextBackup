@@ -11309,7 +11309,7 @@
     "newtitle": "[《哑铃能举多少公斤》作者新作女子格斗漫画《一胜千金》]",
     "lastedit": 1778867046,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2251429": {
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 16284,
+    "totalreply": 16285,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「春晓时」版本即将开放]",
-    "lastedit": 1779124449,
+    "lastedit": 1779126008,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 32071,
+    "totalreply": 32072,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1779123850,
+    "lastedit": 1779126009,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17415,10 +17415,10 @@
     "update": false
   },
   "2281224": {
-    "totalreply": 58,
+    "totalreply": 59,
     "title": "[关于姚晨女士转发电影《监狱来的妈妈》相关内容的情况说明：]",
     "newtitle": "[关于姚晨女士转发电影《监狱来的妈妈》相关内容的情况说明：]",
-    "lastedit": 1779125289,
+    "lastedit": 1779126490,
     "category": "外野",
     "active": true,
     "update": false
@@ -17429,6 +17429,15 @@
     "newtitle": "[比亚迪日本销量逆势翻番，一季度同比增幅超100%！]",
     "lastedit": 1779121809,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2184952": {
+    "totalreply": 278,
+    "title": "[传颂之物系列新作《传颂之物 通往白之道标》2026年春]",
+    "newtitle": "[传颂之物系列新作《传颂之物 通往白之道标》2026年春]",
+    "lastedit": 1779126257,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
