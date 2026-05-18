@@ -2322,3 +2322,26 @@ WHAT CAN I SAY<img src="https://static.stage1st.com/image/smiley/face2017/035.pn
 参考外传，变身器应该是“变”出来的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最合理的一次，太传统思维了没想到
 
+
+*****
+
+####  godvim  
+##### 1693#       发表于 2026-5-18 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69633540&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-5-18 09:40</a>
+
+最合理的一次，太传统思维了没想到</blockquote>
+你看劳莫被肘飞打滚都没看到这么大一坨腰带，压着地上缴械的时候往背后一淘就拿出来了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑暗之眼  
+##### 1694#       发表于 2026-5-18 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69632415&amp;ptid=2250267" target="_blank">milky658 发表于 2026-5-17 23:11</a>
+
+WHAT CAN I SAY</blockquote>
+say什么？国内观众傻逼你也跟着傻逼？讲到底还是现在的小鬼就不喜欢看正面的东西，就不喜欢当好人，就是中二期叛逆，还“愚钝的善良”，善良到底哪里有错了？
+
+很骄傲吗？还沾沾自喜
+
