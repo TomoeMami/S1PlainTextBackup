@@ -170,3 +170,14 @@
 这边什么时候能看啊</blockquote>
 bd是上映一周后出，file1和file2都是，file3估计也是了
 
+
+*****
+
+####  新HGCG  
+##### 156#       发表于 2026-5-18 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69628838&amp;ptid=2155067" target="_blank">创始’’’天翔 发表于 2026-5-17 00:08</a>
+
+这边什么时候能看啊</blockquote>
+BD1是5/22出
+

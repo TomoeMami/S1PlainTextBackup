@@ -2567,3 +2567,13 @@ CODE的黑暗没有问题， ...</blockquote>
 
 总之，现在剧情的观感问题直接原因在3号的塑造，根子问题在组织的塑造
 
+
+*****
+
+####  一个陆仁贾  
+##### 1715#       发表于 2026-5-18 18:35
+
+所以打趣说组织的黑暗在于不开灯不是没有道理的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
