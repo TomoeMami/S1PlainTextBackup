@@ -2311,3 +2311,14 @@ WHAT CAN I SAY<img src="https://static.stage1st.com/image/smiley/face2017/035.pn
 
 正好剧场版伏笔也埋下了
 
+
+*****
+
+####  暗黑能乐  
+##### 1692#       发表于 2026-5-18 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69632799&amp;ptid=2250267" target="_blank">金星 发表于 2026-5-18 01:33</a>
+
+参考外传，变身器应该是“变”出来的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最合理的一次，太传统思维了没想到
+
