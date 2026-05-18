@@ -170,3 +170,13 @@
 
 这短发的原来是T吗，完全当成男的了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zing223  
+##### 591#       发表于 2026-5-18 10:31
+
+<blockquote>永恒的王牌 发表于 2026-5-18 05:36
+这短发的原来是T吗，完全当成男的了</blockquote>
+我在官网上倒也没有看到性别所以有点好奇是怎么觉得是t的，但我觉得这位设定是t或者是男的都不违和...
+
