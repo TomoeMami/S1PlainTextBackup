@@ -1584,3 +1584,12 @@ http://36.138.103.18:30176/hls/stream.m3u8
 找了几家国内NAT机，做了直播中转的中转，因为套了两次hls， ...</blockquote>
 直接访问404
 
+
+*****
+
+####  古战场亡魂  
+##### 20718#       发表于 2026-5-19 14:28
+
+有能力看歌回直播就去看歌回直播吧，没能力看歌回直播就看歌回录播吧。
+[https://www.bilibili.com/video/BV1MrLH6UEB2/](https://www.bilibili.com/video/BV1MrLH6UEB2/)
+
