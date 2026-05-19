@@ -2865,3 +2865,11 @@ zzz大纲和之前几部一样屎。
 
 牢3这隐身偷袭干了不止一次了，一周目LADY就是被偷死的，他这设定就是不会堂堂正正跟人打<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  影伴光生  
+##### 1740#       发表于 2026-5-20 00:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是这盯着非变身锤的，上一个印象深刻的还是王蛇浅仓威的铁棍降临
+
