@@ -2857,3 +2857,11 @@ zzz大纲和之前几部一样屎。
 
 官网预告写的也是狼姐的梦，所以至少是以狼姐为主机的
 
+
+*****
+
+####  蔺无双  
+##### 1739#       发表于 2026-5-19 21:06
+
+牢3这隐身偷袭干了不止一次了，一周目LADY就是被偷死的，他这设定就是不会堂堂正正跟人打<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
