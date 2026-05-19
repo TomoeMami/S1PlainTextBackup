@@ -203,3 +203,14 @@ BD1是5/22出
 —— 来自 HUAWEI FIN-AL60a, Android 12, 鹅球 v3.5. ...</blockquote>
 是什么意思？
 
+
+*****
+
+####  补天士  
+##### 159#       发表于 2026-5-19 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69062681&amp;ptid=2155067" target="_blank">转子引擎 发表于 2026-1-21 12:30</a>
+
+昨天看了新pv，老人物目前只有斯波繁夫（千叶繁）一个人露脸啊，感觉机动警察里，CV对角色最为真爱的只有他 ...</blockquote>
+因为是结成正美本人，可以说是系列唯一主角了……
+
