@@ -105,3 +105,11 @@ pv和主题曲太强了给我一下子期待起来了，还首发xgp，不得不
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69600845&amp;ptid=2210361" target="_blank">葛葉景明 发表于 2026-5-10 17:57</a></blockquote>
 【异于「世外」天堂：《合金装备》PV还原 · 4K GMV】 [https://www.bilibili.com/video/BV1W1LJ6MEeN](https://www.bilibili.com/video/BV1W1LJ6MEeN)<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Demi.Albertini  
+##### 236#       发表于 2026-5-19 23:59
+
+中谷在推上一遍遍说自己没参与…………总让人感觉过度热情了……
+
