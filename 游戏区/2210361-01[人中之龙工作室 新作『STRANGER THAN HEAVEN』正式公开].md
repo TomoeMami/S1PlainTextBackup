@@ -72,3 +72,11 @@ pv和主题曲太强了给我一下子期待起来了，还首发xgp，不得不
 
 大东俊介 中谷一博
 
+
+*****
+
+####  wtyrambo  
+##### 232#       发表于 2026-5-19 18:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">中谷也有就别藏了，什么时候公布黑田崇矢和宇垣秀成
+
