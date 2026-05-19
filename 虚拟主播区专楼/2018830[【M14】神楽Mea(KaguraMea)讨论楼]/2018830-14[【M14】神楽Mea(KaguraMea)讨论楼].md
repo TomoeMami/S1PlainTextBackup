@@ -1572,3 +1572,15 @@ http://36.138.103.18:30176/hls/stream.m3u8
 
 如果因为没有工具的话，可以使用steam++，也就是现在的Watt Toolkit。除了方便steam使用，还能直接看twitch。
 
+
+*****
+
+####  sino__unnko3  
+##### 20717#       发表于 2026-5-19 13:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69638055&amp;ptid=2018830" target="_blank">shmilyhua 发表于 2026-5-19 02:23</a>
+http://36.138.103.18:30176/hls/stream.m3u8
+
+找了几家国内NAT机，做了直播中转的中转，因为套了两次hls， ...</blockquote>
+直接访问404
+
