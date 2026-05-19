@@ -2630,3 +2630,16 @@ zzz大纲和之前几部一样屎。
 
 如何洗白NOX？高桥：把观众变成NOX
 
+
+*****
+
+####  Rhantolk  
+##### 1721#       发表于 2026-5-19 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69636333&amp;ptid=2250267" target="_blank">UnhappyTails 发表于 2026-5-18 18:04</a>
+
+塑造就是这部来打根子上的缺陷（不是说整部不好，而是有缺陷的好）
+
+首先3号这张白脸的塑造用力不是过猛了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得假面骑士根本就不缺比3更low的角色，如果会觉得3LOW，那一定是看少了
+
