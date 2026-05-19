@@ -214,3 +214,15 @@ BD1是5/22出
 昨天看了新pv，老人物目前只有斯波繁夫（千叶繁）一个人露脸啊，感觉机动警察里，CV对角色最为真爱的只有他 ...</blockquote>
 因为是结成正美本人，可以说是系列唯一主角了……
 
+
+*****
+
+####  57042711  
+##### 160#       发表于 2026-5-19 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69638777&amp;ptid=2155067" target="_blank">达达达达葱 发表于 2026-5-19 09:33</a>
+是什么意思？</blockquote>
+太田不是动不动就掏枪的，然后又打不到人<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
