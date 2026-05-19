@@ -4181,3 +4181,16 @@ https://api.xiaoheihe.cn/v3/bbs/app/api/web/share?link_id=45f07104085c
 
 虽然我也是各种撞子弹暴毙的眼花老年菜鸡，但人家高难度本来也没有保证你什么职业随便玩都能过的道义吧。更何况，确实有人能全职业通来着……
 
+
+*****
+
+####  五块  
+##### 344#       发表于 2026-5-19 09:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69635569&amp;ptid=2202324" target="_blank">性急的蜗牛 发表于 2026-5-18 15:41</a>
+
+原来这个游戏从DLC1开始差评爆炸真的是因为“太难了”？
+
+虽然我也是各种撞子弹暴毙的眼花老年菜鸡，但人家 ...</blockquote>
+应该是诅咒太不平衡了，像前面说的前期拿不拿得到鱼钩是两个游戏。
+

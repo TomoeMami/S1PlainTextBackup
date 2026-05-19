@@ -191,3 +191,15 @@ BD1是5/22出
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  达达达达葱  
+##### 158#       发表于 2026-5-19 09:33
+
+<blockquote>57042711 发表于 2026-5-19 00:31
+女太田笑死，原来pv里那个发炮许可原来是这个意思啊
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, 鹅球 v3.5. ...</blockquote>
+是什么意思？
+
