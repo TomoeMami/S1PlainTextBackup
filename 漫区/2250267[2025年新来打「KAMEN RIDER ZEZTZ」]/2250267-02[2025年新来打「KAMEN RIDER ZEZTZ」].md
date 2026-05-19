@@ -2762,3 +2762,13 @@ zzz大纲和之前几部一样屎。
 我觉得老3这角色蛮有意思的。正面对抗梦魇是个摆子，当反派恶心主角团包括打斗都怎么效率高怎么来，一旦得 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正排除歌查德我真的完全没看，其他令和每部除了极狐我都能挑一个又low有无趣的，相反老三还是造了不少梗的，这方面来说已经大于很多了
 
+
+*****
+
+####  風卷豹  
+##### 1732#       发表于 2026-5-19 15:30
+
+3 LOW不LOW取决于最后揭秘的动机，如果是跟猜测的一样是梦魇卧底塑造得就很成功；相反如果他的人设是真心实意的认为现在的做法是有利于人类方的，那就<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有种可能，最后莫对梦魇的处理不好的话也有可能有人会出来喊“3才是对的”<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
