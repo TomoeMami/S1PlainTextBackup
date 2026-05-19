@@ -47,3 +47,18 @@ pv和主题曲太强了给我一下子期待起来了，还首发xgp，不得不
 
 脑补了一下初代目版的达咩~达咩~达咩哟<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otaku21126  
+##### 230#       发表于 2026-5-19 18:25
+
+ 本帖最后由 otaku21126 于 2026-5-19 18:28 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69601310&amp;ptid=2210361" target="_blank">asikies 发表于 2026-5-10 20:18</a>
+不能选性别这点就已经输给浪人崛起了。</blockquote>
+仁王2、3、卧龙、浪人崛起商业上爆死就是可选性别闹的
+自捏人物挤压过场动画发挥，导致这四部游戏的剧情被仁王1完爆，四作主角也进不了光荣其他作品联动
+进一步说，浪人崛起到底赢什么了，世界上真的能有游戏“输给”这个大失败作吗？商业爆死，DLC被砍，剧情一团糟，战斗系统既不如真正的忍组忍龙，也比不上白金的假忍龙
+
+虽然RGG做游戏本来就没打算让女人当主角，不过选择不跟风搞角色自定义，只能说横皮尔伯格才是真的懂游戏的director
+
