@@ -246,3 +246,14 @@ BD1是5/22出
 —— 来自 HUAWEI FIN-AL60a, Android 12, 鹅球 v3.5.99 ...</blockquote>
 是这样的意思啊
 
+
+*****
+
+####  相棒  
+##### 163#       发表于 2026-5-19 13:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69639835&amp;ptid=2155067" target="_blank">新HGCG 发表于 2026-5-19 11:49</a>
+
+太田的命中率其实还行吧</blockquote>
+  原作里有一集就演过，太田在靶场打固定靶百发百中，实战里就完全擦不着边
+
