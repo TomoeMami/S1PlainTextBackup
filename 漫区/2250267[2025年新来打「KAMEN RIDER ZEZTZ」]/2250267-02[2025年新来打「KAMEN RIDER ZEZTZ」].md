@@ -2835,3 +2835,25 @@ zzz大纲和之前几部一样屎。
 这个时候已经梦已经联通了吧
 所以应该是成华和铁叔（以及其他人）的联机梦
 
+
+*****
+
+####  上坂莲华  
+##### 1738#       发表于 2026-5-19 19:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69642334&amp;ptid=2250267" target="_blank">王留美 发表于 2026-5-19 19:19</a>
+
+这个时候已经梦已经联通了吧
+
+所以应该是成华和铁叔（以及其他人）的联机梦 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202605/19/193207a2djx2ir27im4xzx.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20260519193125.jpg</strong> (99.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-19 19:32 上传
+
+官网预告写的也是狼姐的梦，所以至少是以狼姐为主机的
+
