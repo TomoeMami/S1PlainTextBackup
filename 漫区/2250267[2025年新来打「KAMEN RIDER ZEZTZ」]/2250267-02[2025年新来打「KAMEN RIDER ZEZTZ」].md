@@ -2772,3 +2772,17 @@ zzz大纲和之前几部一样屎。
 
 还有种可能，最后莫对梦魇的处理不好的话也有可能有人会出来喊“3才是对的”<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  faxi  
+##### 1733#       发表于 2026-5-19 16:03
+
+主要是现在CODE这边的剧情其实很少，基本就是0和7的父子情，6和7那少的可怕的同窗感情，5就是臭打工的，3除了出来偷袭以外也跟个打工没什么差别，根本没给过CODE高层的情况，总不能最后还是3吧！<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+然后主线剧情剩下都是在老师身上。。。但老师偏偏一直都没展开还在谜语人状态，CODE和梦魇的关系才是这个剧情的谜底
+
+万一老师最后这个主线没写好，会连带整个CODE的设定都会出大问题，别搞到最后还是就这么一个小恶人组织啊
+
+四大梦魇也得塞剧情展开吧，一下感觉剧集份数其实很紧张<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
