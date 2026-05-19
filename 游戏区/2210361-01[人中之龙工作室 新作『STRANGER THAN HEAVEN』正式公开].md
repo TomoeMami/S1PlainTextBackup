@@ -96,3 +96,12 @@ pv和主题曲太强了给我一下子期待起来了，还首发xgp，不得不
 
 中谷那个视频里说是没出演来蹭饭的，当然实际怎么样不好说就是了
 
+
+*****
+
+####  冰风血羽  
+##### 235#       发表于 2026-5-19 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69600845&amp;ptid=2210361" target="_blank">葛葉景明 发表于 2026-5-10 17:57</a></blockquote>
+【异于「世外」天堂：《合金装备》PV还原 · 4K GMV】 [https://www.bilibili.com/video/BV1W1LJ6MEeN](https://www.bilibili.com/video/BV1W1LJ6MEeN)<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
