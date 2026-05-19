@@ -472,3 +472,11 @@ R姐就算1宝，带黑杯都能做主手了吧。我其实也在考虑是不是
 
 准备了一个百级武藏 打算冠位战激情对砍呢<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  马桶3  
+##### 47795#       发表于 2026-5-19 22:13
+
+花了230抽给兽尼补到了5宝，后面其实已经没啥好抽的了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
