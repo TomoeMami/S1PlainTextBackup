@@ -2751,3 +2751,14 @@ zzz大纲和之前几部一样屎。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Rhantolk  
+##### 1731#       发表于 2026-5-19 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69639854&amp;ptid=2250267" target="_blank">milky658 发表于 2026-5-19 11:51</a>
+
+我觉得老3这角色蛮有意思的。正面对抗梦魇是个摆子，当反派恶心主角团包括打斗都怎么效率高怎么来，一旦得 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正排除歌查德我真的完全没看，其他令和每部除了极狐我都能挑一个又low有无趣的，相反老三还是造了不少梗的，这方面来说已经大于很多了
+
