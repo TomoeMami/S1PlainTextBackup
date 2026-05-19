@@ -2741,3 +2741,13 @@ zzz大纲和之前几部一样屎。
 
 2026-5-19 13:25 上传
 
+
+*****
+
+####  封印的右手  
+##### 1730#       发表于 2026-5-19 15:12
+
+之前就说了3号这能力专盯你不变身状态发动偷袭，平成以来的骑士大部分都防不住这招，关键3号还能带一群人一起隐身<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
