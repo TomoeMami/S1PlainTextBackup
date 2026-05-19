@@ -39,3 +39,11 @@ pv和主题曲太强了给我一下子期待起来了，还首发xgp，不得不
 
 是不是还有服装和歌曲包作为dlc进行替换和补充啊。<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑修士  
+##### 229#       发表于 2026-5-19 11:07
+
+脑补了一下初代目版的达咩~达咩~达咩哟<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
