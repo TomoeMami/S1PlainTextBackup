@@ -257,3 +257,26 @@ BD1是5/22出
 太田的命中率其实还行吧</blockquote>
   原作里有一集就演过，太田在靶场打固定靶百发百中，实战里就完全擦不着边
 
+
+*****
+
+####  DARK_HGCG  
+##### 164#       发表于 2026-5-19 17:47
+
+<img src="https://img.stage1st.com/forum/202605/19/173707m56caz7sa0zeusaw.jpg" referrerpolicy="no-referrer">
+
+<strong>20260519_182647.jpg</strong> (319.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-19 17:37 上传
+
+*****
+
+####  3123  
+##### 165#       发表于 2026-5-19 17:52
+
+太田看起来很粗暴，但瞄准的的都是关节搞得现场命中率很烂，肉搏也是打击为主不下死手
+
+反而泉是会打躯干的，上头起来各种摔，对驾驶员附带伤害理论上大多了<img src="https://static.stage1st.com/image/smiley/face2017/225.png" referrerpolicy="no-referrer">
+
