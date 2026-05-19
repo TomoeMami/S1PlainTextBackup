@@ -4194,3 +4194,17 @@ https://api.xiaoheihe.cn/v3/bbs/app/api/web/share?link_id=45f07104085c
 虽然我也是各种撞子弹暴毙的眼花老年菜鸡，但人家 ...</blockquote>
 应该是诅咒太不平衡了，像前面说的前期拿不拿得到鱼钩是两个游戏。
 
+
+*****
+
+####  Tissuesea  
+##### 345#       发表于 2026-5-19 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69635569&amp;ptid=2202324" target="_blank">性急的蜗牛 发表于 2026-5-18 15:41</a>
+原来这个游戏从DLC1开始差评爆炸真的是因为“太难了”？
+
+虽然我也是各种撞子弹暴毙的眼花老年菜鸡，但人家 ...</blockquote>
+DLC1刚玩觉得没什么，驯兽师版本感觉玩的不是滋味，驯兽师试着过难五过不去，而且好像整体难度提高了，不爽了
+
+—— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
