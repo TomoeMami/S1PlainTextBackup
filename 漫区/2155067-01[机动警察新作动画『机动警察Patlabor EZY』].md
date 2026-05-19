@@ -226,3 +226,11 @@ BD1是5/22出
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  新HGCG  
+##### 161#       发表于 2026-5-19 11:49
+
+太田的命中率其实还行吧
+

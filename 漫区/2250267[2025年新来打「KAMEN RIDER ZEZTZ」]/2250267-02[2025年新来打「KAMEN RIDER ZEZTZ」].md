@@ -2643,3 +2643,16 @@ zzz大纲和之前几部一样屎。
 首先3号这张白脸的塑造用力不是过猛了 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得假面骑士根本就不缺比3更low的角色，如果会觉得3LOW，那一定是看少了
 
+
+*****
+
+####  milky658  
+##### 1722#       发表于 2026-5-19 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69639715&amp;ptid=2250267" target="_blank">Rhantolk 发表于 2026-5-19 11:33</a>
+
+我觉得假面骑士根本就不缺比3更low的角色，如果会觉得3LOW，那一定是看少了 ...</blockquote>
+我觉得老3这角色蛮有意思的。正面对抗梦魇是个摆子，当反派恶心主角团包括打斗都怎么效率高怎么来，一旦得手当集枪口就顶头上，逼宫牢0到完成索穆尼亚剧内就一两天时间。很多反派纯LOW，这逼又LOW又分奴
+
+某些反派干部有老3效率就没那么多屁事了。你说对吧，村上社长，米线高到到他死我都不明白怎么浪翻的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
