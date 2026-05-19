@@ -2795,3 +2795,32 @@ zzz大纲和之前几部一样屎。
 3号皮套演员锻治洸太郎是11月受伤的。按平川结月10月27号杀青推算，他应该就是接下来几集的动作戏出的意外
 虽然有点地狱...看来牢3真被牢师线下单杀了(×)
 
+
+*****
+
+####  上坂莲华  
+##### 1735#       发表于 2026-5-19 18:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69640204&amp;ptid=2250267" target="_blank">挺好的 发表于 2026-5-19 12:41</a>
+
+联机梦吃烤肉那明显是铁叔的梦，用来引入索穆尼亚的，宁梦一直在所有人的梦里，一直在昏迷，预知梦的灾厄 ...</blockquote>
+是狼姐的梦，专门说了
+
+<img src="https://img.stage1st.com/forum/202605/19/184830fkoa33zmm1eojqzm.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20260519184621.jpg</strong> (122.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-19 18:48 上传
+
+*****
+
+####  挺好的  
+##### 1736#       发表于 2026-5-19 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69642219&amp;ptid=2250267" target="_blank">上坂莲华 发表于 2026-5-19 18:48</a>
+
+是狼姐的梦，专门说了</blockquote>
+那应该是我记错了
+
