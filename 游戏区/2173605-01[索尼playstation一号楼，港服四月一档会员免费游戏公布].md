@@ -313,3 +313,14 @@ PlayStation Plus高级（三档）
 
 价格不变
 
+
+*****
+
+####  哎哟卧槽了  
+##### 676#       发表于 2026-5-20 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69640818&amp;ptid=2173605" target="_blank">古怪山庄士大夫 发表于 2026-5-19 14:34</a>
+
+最大的问题还是没有游戏，索尼这么多工作室，现在的3a成本原来越高，不如都去学学今年的卡普空，大ip和练手 ...</blockquote>
+但索尼是把自己的游戏定位是游戏机展示品....<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
