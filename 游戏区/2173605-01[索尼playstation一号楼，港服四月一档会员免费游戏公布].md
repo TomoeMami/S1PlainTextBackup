@@ -324,3 +324,22 @@ PlayStation Plus高级（三档）
 最大的问题还是没有游戏，索尼这么多工作室，现在的3a成本原来越高，不如都去学学今年的卡普空，大ip和练手 ...</blockquote>
 但索尼是把自己的游戏定位是游戏机展示品....<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑猫软  
+##### 677#       发表于 2026-5-20 20:15
+
+<img src="https://img.stage1st.com/forum/202605/20/201434jmsmzg7ffl59yg08.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1779279215878_209.jpg</strong> (208.42 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-5-20 20:14 上传
+
+sop，北京时间6.3日五点
+
+金刚狼演示，还有其他ps5游戏，圣莫尼卡总该有动作了吧传那么久。
+
