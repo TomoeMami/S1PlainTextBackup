@@ -158,3 +158,28 @@ miko跟rui现在线上线下联动什么内容都正常做
 
 2年限定新人，而且跟你不是一个系统的，果然练习生企划对你来说很难理解
 
+
+*****
+
+####  holofan  
+##### 11578#       发表于 2026-5-20 20:46
+
+你在一个开车游戏内做观光案内是不是直播方向有点不对
+
+难怪现在车相关的工商都不找你了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反思一下
+
+*****
+
+####  holofan  
+##### 11579#       发表于 2026-5-20 22:35
+
+<img src="https://img.stage1st.com/forum/202605/20/223440gjrpxa02xyj2ypbb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-20 22:34 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实是不可思议的事
+
