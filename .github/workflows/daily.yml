@@ -1,0 +1,28 @@
+name: Daily S1 Top Thread Reply
+
+on:
+  schedule:
+    # 北京时间 0:30 = UTC 16:30（前一天）
+    - cron: '30 16 * * *'
+  workflow_dispatch:   # 支持手动触发
+
+jobs:
+  post:
+    runs-on: ubuntu-latest
+
+    steps:
+      - name: Checkout code
+        uses: actions/checkout@v4
+
+      - name: Set up Python
+        uses: actions/setup-python@v5
+        with:
+          python-version: '3.9'
+
+      - name: Install dependencies
+        run: pip install requests
+
+      - name: Run script
+        env:
+          S1_COOKIE: ${{ secrets.S1_COOKIE }}
+        run: python TopThreadReply.py

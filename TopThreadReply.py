@@ -1,6 +1,6 @@
 # -*- coding: UTF-8 -*-
 
-import re
+import re,os
 import json
 from pathlib import Path
 from datetime import datetime,timedelta
@@ -139,13 +139,17 @@ if __name__ == '__main__':
             # 回帖字符串 = f"""{回帖字符串}[b]前10高频词汇[/b]：\n{"，".join([f"{word:<10}{count:>5}" for word, count in 词云排序[:5]])}\n{"，".join([f"{word:<10}{count:>5}" for word, count in 词云排序[5:10]])}\n"""
             回帖字符串 = f"{回帖字符串}===========\n\n"
     # print(回帖字符串)
-    with open ('/home/riko/s1cookie-1.txt','r',encoding='utf-8') as f:
-        cookie_str1 = f.read()
-    cookie_str = repr(cookie_str1)[1:-1]
+    cookie_str = os.environ.get('S1_COOKIE', '')
+    if not cookie_str:
+        raise RuntimeError("环境变量 S1_COOKIE 未设置，请检查 GitHub Secrets 配置。")
+    
     cookies = {}
     for line in cookie_str.split(';'):
-        key, value = line.split('=', 1)
-        cookies[key] = value
+        line = line.strip()
+        if '=' in line:
+            key, value = line.split('=', 1)
+            cookies[key.strip()] = value.strip()
+
     headers = {'User-agent':'Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/92.0.4515.159 Safari/537.36 Edg/92.0.902.78'}
     ''' 获取formhash'''
     RURL = 'https://stage1st.com/2b/forum.php?mod=viewthread&tid=2252916&extra=page%3D1'
