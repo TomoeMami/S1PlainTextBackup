@@ -5612,7 +5612,7 @@
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "lastedit": 1779055808,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2125110": {
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 14062,
+    "totalreply": 14089,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼5月]",
-    "lastedit": 1779291616,
+    "lastedit": 1779315491,
     "category": "外野",
     "active": true,
     "update": false
@@ -13119,7 +13119,7 @@
     "lastedit": 1781084880,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2260146": {
     "totalreply": 594,
@@ -13460,7 +13460,7 @@
     "newtitle": "[【2026】格斗游戏节奏楼]",
     "lastedit": 1779056169,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2280058": {
@@ -17406,10 +17406,10 @@
     "update": false
   },
   "2281353": {
-    "totalreply": 126,
+    "totalreply": 127,
     "title": "[谁把饺子放桌上？桌饺起源调查报告2026]",
     "newtitle": "[谁把饺子放桌上？桌饺起源调查报告2026]",
-    "lastedit": 1779314290,
+    "lastedit": 1779315491,
     "category": "外野",
     "active": true,
     "update": false
@@ -17550,10 +17550,10 @@
     "update": false
   },
   "2281379": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[红楼索隐派新考证]",
     "newtitle": "[红楼索隐派新考证]",
-    "lastedit": 1779281912,
+    "lastedit": 1779315489,
     "category": "外野",
     "active": true,
     "update": false
@@ -17599,6 +17599,15 @@
     "title": "[暗黑破坏神4和™页游一样]",
     "newtitle": "[暗黑破坏神4和™页游一样]",
     "lastedit": 1779301809,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2194055": {
+    "totalreply": 112,
+    "title": "[想要做一个缝合 hof 和 poe 的放置的摸鱼页游 希望能给大家带来笑容打卡]",
+    "newtitle": "[想要做一个缝合 hof 和 poe 的放置的摸鱼页游 希望能给大家带来笑容打卡]",
+    "lastedit": 1779315251,
     "category": "游戏区",
     "active": true,
     "update": false
