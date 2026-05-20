@@ -50,3 +50,22 @@
 
 该不会乡愁永恒刻盘对标的是冬木燃烧都市吧，给新世界观铺个路，后面还有大的？
 
+
+*****
+
+####  Jamaisvu  
+##### 20827#       发表于 2026-5-20 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69647470&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2026-5-20 18:33</a>
+
+新主线叫Past•Chaldea，参考小番茄形容现状的“PPP”，该不会后面还有什么present和prospect吧...：</blockquote>
+想了个烂活<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">：
+
+新主线第一章是Past•Chaldea，简称PC。<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+第二章就叫Present•Solomon，简称PS。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+第三章名为Neptunia•Stranger，简称NS。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（然后这游戏可以改名《命运：超维海王》了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
+
