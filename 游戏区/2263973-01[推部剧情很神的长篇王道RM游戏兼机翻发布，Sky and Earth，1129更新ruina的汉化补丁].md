@@ -48,3 +48,13 @@
 
 好在游戏里的人物也不是内置数据库能记得清所有出现过的剧情，也有一些人物互相提醒确认的对话内容。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红叶  
+##### 277#       发表于 2026-5-20 15:28
+
+有没有办法ipad上玩啊<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Lenovo L71091, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
