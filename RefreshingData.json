@@ -13119,7 +13119,7 @@
     "lastedit": 1781084880,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2260146": {
     "totalreply": 594,
@@ -14342,7 +14342,7 @@
     "newtitle": "[原来文言文难学是简体字的锅]",
     "lastedit": 1779048730,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2280539": {
@@ -15782,7 +15782,7 @@
     "newtitle": "[梅津泰臣 × SHAFT 原创动画系列《VIRGIN PUNK》]",
     "lastedit": 1779048969,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2280830": {
@@ -17082,10 +17082,10 @@
     "update": false
   },
   "2281197": {
-    "totalreply": 52,
+    "totalreply": 53,
     "title": "[看了各个厂商设计师的讨论，说未来国内网游会照抄魔兽玩法以及大改现有的玩法]",
     "newtitle": "[看了各个厂商设计师的讨论，说未来国内网游会照抄魔兽玩法以及大改现有的玩法]",
-    "lastedit": 1779306248,
+    "lastedit": 1779310087,
     "category": "游戏区",
     "active": true,
     "update": false
