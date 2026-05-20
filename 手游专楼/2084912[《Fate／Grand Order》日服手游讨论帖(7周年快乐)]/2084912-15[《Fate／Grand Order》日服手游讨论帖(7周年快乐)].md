@@ -69,3 +69,11 @@
 
 （然后这游戏可以改名《命运：超维海王》了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 20828#       发表于 2026-5-20 20:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是不是past加勒底 past彷徨海 past鹦鹉螺号…
+
