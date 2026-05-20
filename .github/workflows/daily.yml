@@ -3,7 +3,8 @@ name: Daily S1 Top Thread Reply
 on:
   schedule:
     # 北京时间 0:30 = UTC 16:30（前一天）
-    - cron: '30 16 * * *'
+    - cron: '30 0 * * *'
+      timezone: "Asia/Shanghai"
   workflow_dispatch:   # 支持手动触发
 
 jobs:
