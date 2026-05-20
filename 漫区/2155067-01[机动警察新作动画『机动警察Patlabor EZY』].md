@@ -330,3 +330,16 @@ BD1是5/22出
 File2 ではまた違ったイラストにしますというか今描いてます。
 <img src="https://p.sda1.dev/32/af8d92ae9ecc312f1f3892d22ce1cc5b/1000166664.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 170#       发表于 2026-5-20 18:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69646830&amp;ptid=2155067" target="_blank">Piano-Forest 发表于 2026-5-20 16:45</a>
+
+https://x.com/i/status/2056216283079913969
+
+公式にもありますように今回のパトレイバーEZYの冒頭、アバン ...</blockquote>
+这段的配音让我深感短笛叔叔也老了
+
