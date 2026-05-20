@@ -35,3 +35,16 @@
 
 有没有场所地图啊，年纪大记不住啊<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永远的访客  
+##### 276#       发表于 2026-5-20 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69643380&amp;ptid=2263973" target="_blank">红叶 发表于 2026-5-20 00:10</a>
+
+有没有场所地图啊，年纪大记不住啊</blockquote>
+没有这样的东西，我刚开始玩也有这个困扰，专有名词反复出现根本对不上谁是谁，等全部读完文本后慢慢就熟悉了。小游戏没有精力做这种名词图鉴也不需要它来协调内部开发，只能说自己记剧情信息的old school 醍醐灌顶味道了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+好在游戏里的人物也不是内置数据库能记得清所有出现过的剧情，也有一些人物互相提醒确认的对话内容。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
