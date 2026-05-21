@@ -2965,3 +2965,16 @@ C.投靠1，领激情猫娘
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我其实怀疑铁叔这吃草是受了梦的影响导致的，应该不至于真写的这么惨吧
 
+
+*****
+
+####  上坂莲华  
+##### 1748#       发表于 2026-5-21 10:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69648550&amp;ptid=2250267" target="_blank">王留美 发表于 2026-5-20 22:39</a>
+
+？
+
+官方这个说明不就是我提的联机梦吗？</blockquote>
+铁叔是炸弹的梦主啊，在梦里见莫的时间可比狼姐早多了，表现也符合被修改了对梦魇的认知这条
+
