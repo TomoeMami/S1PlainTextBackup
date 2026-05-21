@@ -2957,3 +2957,11 @@ C.投靠1，领激情猫娘
 
 你如果是成华的梦是无法解释为什么铁叔会记得在梦里见过莫的
 
+
+*****
+
+####  Rhantolk  
+##### 1747#       发表于 2026-5-21 09:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我其实怀疑铁叔这吃草是受了梦的影响导致的，应该不至于真写的这么惨吧
+
