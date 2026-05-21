@@ -9671,7 +9671,7 @@
     "newtitle": "[3GA文库轻小说《败犬女主太多了！》]",
     "lastedit": 1779140649,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2028858": {
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 32534,
+    "totalreply": 32558,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1779391807,
+    "lastedit": 1779400327,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13119,7 +13119,7 @@
     "lastedit": 1781084880,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2260146": {
     "totalreply": 633,
@@ -13347,10 +13347,10 @@
     "update": false
   },
   "2280092": {
-    "totalreply": 2821,
+    "totalreply": 2822,
     "title": "[中东砖楼 2026年5月版]",
     "newtitle": "[中东砖楼 2026年5月版]",
-    "lastedit": 1779399128,
+    "lastedit": 1779400687,
     "category": "外野",
     "active": true,
     "update": false
