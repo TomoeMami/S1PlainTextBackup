@@ -636,3 +636,11 @@ R姐就算1宝，带黑杯都能做主手了吧。我其实也在考虑是不是
 
 50把刷完了，有剑R果然脚打<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GALLADE  
+##### 47810#       发表于 2026-5-21 23:13
+
+想说剑R佬们能不能把绊礼装锁在50NP
+
