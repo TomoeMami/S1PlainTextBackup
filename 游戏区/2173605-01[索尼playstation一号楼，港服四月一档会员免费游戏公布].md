@@ -367,3 +367,20 @@ sop，北京时间6.3日五点
 
 纽约市
 
+
+*****
+
+####  黑猫软  
+##### 679#       发表于 2026-5-21 11:46
+
+《绝地潜兵2》国行限定版DualSense无线控制器6月12日正式发售！建议零售价639元，5月30日同步开启预售。
+
+<img src="https://img.stage1st.com/forum/202605/21/114601paozopvji4ko6agi.jpg" referrerpolicy="no-referrer">
+
+<strong>8f29d881f77127539d5fbee3ecdf1a85cffc07a20b94310140b93b364060abc4.jpg</strong> (271.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-5-21 11:46 上传
+
