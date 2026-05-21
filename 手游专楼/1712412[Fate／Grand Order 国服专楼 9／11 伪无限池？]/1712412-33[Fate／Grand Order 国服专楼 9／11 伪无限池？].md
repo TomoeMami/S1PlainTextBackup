@@ -498,3 +498,15 @@ R姐就算1宝，带黑杯都能做主手了吧。我其实也在考虑是不是
 
 麻雀 花尼 兰陵
 
+
+*****
+
+####  khxooo  
+##### 47798#       发表于 2026-5-21 09:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69645907&amp;ptid=1712412" target="_blank">collincollin 发表于 2026-5-20 14:24</a>
+已经想冠个拐直接混友情点了，哪个最好
+
+麻雀 花尼 兰陵</blockquote>
+个人觉得是兰陵王
+
