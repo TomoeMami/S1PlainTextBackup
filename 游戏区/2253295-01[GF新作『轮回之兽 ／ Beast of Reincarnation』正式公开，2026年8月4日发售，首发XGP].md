@@ -2032,3 +2032,11 @@ The game looks gorgeous, and it is using Unreal Engine 5 for development. There 
 
 GF版剑星，但是没有换装
 
+
+*****
+
+####  纱布光环  
+##### 197#       发表于 2026-5-22 18:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">拿剑星来对标肯定要失望了，我觉得剑星那种专为卖女体而设计的游戏，除了剑星2，短期是不会出现第二个的
+
