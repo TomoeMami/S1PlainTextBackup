@@ -511,3 +511,19 @@ duckstation</blockquote>
 
 也不重要了，我反正用日文版的也是一样玩
 
+
+*****
+
+####  sunkaifeng00  
+##### 47#       发表于 2026-5-23 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69656226&amp;ptid=2279196" target="_blank">瓦拉几亚之夜 发表于 2026-5-22 12:57</a>
+
+汉化版是有死机BUG？我想重温一下，发现上来开个菜单就卡死了</blockquote>
+这个是duckstation版本迭代导致的BUG，起因是2022年11月的UI大更新，之后就长期存在并时好时坏，主要表现是进入主角3d状态界面后大概率黑屏死机，进入除主角外其他角色3d状态界面不会立刻死机但反复LR切换角色会大概率导致黑屏死机（尤其是切换到主角），最严重的一段时间的duckstation版本进任何角色都会黑屏
+
+想避免可以去github上下载为2022年11月大更新保留的更新前的Legacy Build (Pre UI Update)
+[https://github.com/duckstation/old-releases/releases/tag/legacy](https://github.com/duckstation/old-releases/releases/tag/legacy)
+
+建议下载保存备份以备不时之需
+
