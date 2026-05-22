@@ -792,3 +792,13 @@ R姐就算1宝，带黑杯都能做主手了吧。我其实也在考虑是不是
 
 上班摸鱼的时间不值钱，助战随机刷个满配剑r配上我的破铜烂铁剑也随便23t了。我随缘上线玩家，后面有啥卡池需要注意的不
 
+
+*****
+
+####  溯夜  
+##### 47825#       发表于 2026-5-23 01:30
+
+直接bbc嫖3宝以上剑r猛刷<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">可惜盘子缺口太大，但是刷这个效率是真的高，等级蹭蹭的上去
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
