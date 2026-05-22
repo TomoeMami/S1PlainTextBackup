@@ -102,3 +102,21 @@ syl
 旱的旱死涝的涝死，人气liver粉丝担心自推身体抱怨个人直播减少，不人气的就只能跟着主播空悲叹，然后又 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">人气liver上得少了就会冒出说自推被穿小鞋或者抱怨自推没上进心的，反正总会冒出抱怨的人。
 
+
+*****
+
+####  宫宝兔丁  
+##### 1918#       发表于 2026-5-22 17:54
+
+给大家搞点聊天材料
+
+ps备考初live仅指有观客并且一些不熟的可能有误欢迎指出
+
+<img src="https://img.stage1st.com/forum/202605/22/174808bm0l1l0wks9rk9ql.png" referrerpolicy="no-referrer">
+
+<strong>11.png</strong> (148.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-22 17:48 上传
+
