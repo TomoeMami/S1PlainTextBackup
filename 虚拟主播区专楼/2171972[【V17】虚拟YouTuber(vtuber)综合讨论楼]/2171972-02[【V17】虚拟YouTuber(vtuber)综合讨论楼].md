@@ -140,3 +140,31 @@ ps备考初live仅指有观客并且一些不熟的可能有误欢迎指出
 
 出道几年了塞那么老些资源结果团3D还是初始那一套，讲dance unit都有点好笑<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fshzx  
+##### 1921#       发表于 2026-5-23 04:16
+
+<img src="https://img.stage1st.com/forum/202605/23/035514dp6qgxxzbb6c6vbv.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1715.jpeg</strong> (147.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-23 03:55 上传
+
+去年直拍斗虫，虹女直拍整体就是比较少人买
+
+今年策略就是虹男去开solo，虹女年尾拼盘live
+
+至于Volta去年营收赚了4亿多日元，今年还不出live的话
+
+我怀疑把资金挪给3skm开线下live 了
+
+那边运营以前也是负责volta，
+
+今年年初两个组合一起开线上live
+
+共通衣装还有很多人都没有，一个通用模型也要搞限量真是闹麻了
+
