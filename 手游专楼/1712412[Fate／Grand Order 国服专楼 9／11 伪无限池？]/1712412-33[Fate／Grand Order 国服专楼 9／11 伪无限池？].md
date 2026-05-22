@@ -661,3 +661,13 @@ R姐就算1宝，带黑杯都能做主手了吧。我其实也在考虑是不是
 
 和自己和解就行了，
 
+
+*****
+
+####  khxooo  
+##### 47812#       发表于 2026-5-22 09:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69653625&amp;ptid=1712412" target="_blank">sandro 发表于 2026-5-21 22:01</a>
+吐了，今天刚看攻略，这冠位站怎么这么复杂啊，好友里也没大腿，是不是只能打低难度躺了 ...</blockquote>
+100**和100***的羁绊相差几百而已，一个190多万，一个300多万，实在打不过建议打100**，别为难自己
+
