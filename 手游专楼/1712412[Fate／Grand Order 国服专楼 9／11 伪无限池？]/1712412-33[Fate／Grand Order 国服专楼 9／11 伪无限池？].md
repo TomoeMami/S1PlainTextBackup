@@ -644,3 +644,20 @@ R姐就算1宝，带黑杯都能做主手了吧。我其实也在考虑是不是
 
 想说剑R佬们能不能把绊礼装锁在50NP
 
+
+*****
+
+####  dawning  
+##### 47811#       发表于 2026-5-22 08:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69653625&amp;ptid=1712412" target="_blank">sandro 发表于 2026-5-21 22:01</a>
+
+吐了，今天刚看攻略，这冠位站怎么这么复杂啊，好友里也没大腿，是不是只能打低难度躺了 ...</blockquote>
+随便找个剑R带黑杯的，
+
+不追求一回合，不追求6加成之类的，
+
+一天3令咒3把，最高难度的也是脚打，
+
+和自己和解就行了，
+
