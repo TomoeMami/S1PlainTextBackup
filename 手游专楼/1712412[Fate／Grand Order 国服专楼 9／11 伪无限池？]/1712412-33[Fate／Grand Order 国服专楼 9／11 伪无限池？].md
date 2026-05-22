@@ -716,3 +716,16 @@ R姐就算1宝，带黑杯都能做主手了吧。我其实也在考虑是不是
 
 小号有个4宝剑R的，一直躺着，刚升到100带冠，但是只有6绊，戴了黑杯，需要的可以加：100,100,205,865
 
+
+*****
+
+####  plok201  
+##### 47817#       发表于 2026-5-22 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69653918&amp;ptid=1712412" target="_blank">GALLADE 发表于 2026-5-21 23:13</a>
+
+想说剑R佬们能不能把绊礼装锁在50NP</blockquote>
+不太可能，冠位树加起来给了30NP，剑R自带技能50，那么只需要自补20NP，免费小太阳都能补
+
+而且多50NP因为剑辅助充不了多少，一般也没办法到200，为了稳定1T，肯定选本来的效果<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

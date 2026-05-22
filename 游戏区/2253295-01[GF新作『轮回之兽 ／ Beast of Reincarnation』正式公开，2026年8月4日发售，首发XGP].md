@@ -2040,3 +2040,11 @@ GF版剑星，但是没有换装
 
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">拿剑星来对标肯定要失望了，我觉得剑星那种专为卖女体而设计的游戏，除了剑星2，短期是不会出现第二个的
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 198#       发表于 2026-5-22 18:49
+
+哪有那么容易有其他剑星，近期红沙和谐等事件再次让我明白，人对体面的执着是不可能被压抑的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
