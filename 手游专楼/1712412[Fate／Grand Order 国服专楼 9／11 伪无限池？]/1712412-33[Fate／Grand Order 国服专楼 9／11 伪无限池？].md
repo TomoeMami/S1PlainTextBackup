@@ -729,3 +729,16 @@ R姐就算1宝，带黑杯都能做主手了吧。我其实也在考虑是不是
 
 而且多50NP因为剑辅助充不了多少，一般也没办法到200，为了稳定1T，肯定选本来的效果<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47818#       发表于 2026-5-22 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69657776&amp;ptid=1712412" target="_blank">plok201 发表于 2026-5-22 18:46</a>
+
+不太可能，冠位树加起来给了30NP，剑R自带技能50，那么只需要自补20NP，免费小太阳都能补
+
+而且多50NP因 ...</blockquote>
+还有麻雀，剑R的2技能可以给小麻雀20攻击力，小麻雀也完美解决了剑R那剩下的20NP
+
