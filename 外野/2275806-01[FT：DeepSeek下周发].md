@@ -68,3 +68,45 @@ DeepSeek官方宣布api价格在活动结束之后正式降价到1/4<img src="ht
 没有官方harness，数据飞轮转不起来，ds的能力也不能释放，期待ds code之类的玩意儿早点出来，相信官方的技 ...</blockquote>
 你这就错了，用什么agent，和数据没有关系
 
+
+*****
+
+####  ayanamilin  
+##### 1425#       发表于 2026-5-22 21:13
+
+<img src="https://img.stage1st.com/forum/202605/22/211237zesewreigugrimer.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (121.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-22 21:12 上传
+
+DeepSeek-V4Flash 不依靠官方限免活动（可能有我不知道的活动？）登顶 OpenRouter 周榜第一
+
+*****
+
+####  舞以  
+##### 1426#       发表于 2026-5-22 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69658351&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-5-22 21:08</a>
+你这就错了，用什么agent，和数据没有关系</blockquote>
+不懂，反正gpt跟我反复强调cc和codex在数据上的重要性<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">。
+gpt放弃sora把codex放回重心算是拨乱反正，ds也招人自己做harness说明目前这种只卖api的模式还是不够。
+虽然我觉得吹编程能力纯粹是一个暂时性的叙事，但是官方搭的一套脚手架还是必须的。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  drodchang  
+##### 1427#       发表于 2026-5-22 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69658389&amp;ptid=2275806" target="_blank">舞以 发表于 2026-5-22 21:16</a>
+
+不懂，反正gpt跟我反复强调cc和codex在数据上的重要性。
+
+gpt放弃sora把codex放回重心算是拨乱反正，ds也 ...</blockquote>
+搞自己的agent只是可以更好地配合自己的模型达到最好的效果而已，而且某些畜生公司还可以给别的模型下毒。
+
