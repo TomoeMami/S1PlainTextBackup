@@ -128,3 +128,15 @@ ps备考初live仅指有观客并且一些不熟的可能有误欢迎指出
 
 有种3bk的粉丝都不上nico的感觉
 
+
+*****
+
+####  fastary  
+##### 1920#       发表于 2026-5-23 01:20
+
+说到fes上live，正好刷到四季凪直播zqsg了两句volta粉丝有点吵起来了
+
+从实力和人气考虑不上fes很正常，但是同期共通3D发了新发型有了，volta作为团的运营也没被放弃，不知道为什么不找个大拼盘live给他塞一套
+
+出道几年了塞那么老些资源结果团3D还是初始那一套，讲dance unit都有点好笑<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
