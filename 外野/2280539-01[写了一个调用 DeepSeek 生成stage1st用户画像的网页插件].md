@@ -7566,3 +7566,15 @@ can can word
 
 所以只能查归墟的发言啊<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">归墟开了以后说话很少，样本不够结论偏差太大了
 
+
+*****
+
+####  河水  
+##### 401#       发表于 2026-5-22 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69656667&amp;ptid=2280539" target="_blank">绿色森林 发表于 2026-5-22 14:46</a>
+这个功能nga哪里有？</blockquote>
+鸿蒙的app吧
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
