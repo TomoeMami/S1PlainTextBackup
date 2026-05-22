@@ -40,3 +40,31 @@ DeepSeek官方宣布api价格在活动结束之后正式降价到1/4<img src="ht
 
 <img src="https://img.stage1st.com/forum/202605/22/205437fxmbhm5mb4yb4xpv.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  敏感  
+##### 1422#       发表于 2026-5-22 20:58
+
+希望ds的飞轮能转起来，便宜好用——更多用户反馈——进一步好用
+
+
+*****
+
+####  舞以  
+##### 1423#       发表于 2026-5-22 21:05
+
+没有官方harness，数据飞轮转不起来，ds的能力也不能释放<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，期待ds code之类的玩意儿早点出来，相信官方的技术力
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  drodchang  
+##### 1424#       发表于 2026-5-22 21:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69658343&amp;ptid=2275806" target="_blank">舞以 发表于 2026-5-22 21:05</a>
+
+没有官方harness，数据飞轮转不起来，ds的能力也不能释放，期待ds code之类的玩意儿早点出来，相信官方的技 ...</blockquote>
+你这就错了，用什么agent，和数据没有关系
+
