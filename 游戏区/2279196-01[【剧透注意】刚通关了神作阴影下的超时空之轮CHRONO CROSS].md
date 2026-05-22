@@ -496,3 +496,18 @@ duckstation</blockquote>
 
 不喜欢折腾的话,直接用常见的PSP版二合一ROM,鸭子是可以识别这个的
 
+
+*****
+
+####  瓦拉几亚之夜  
+##### 46#       发表于 2026-5-22 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69658170&amp;ptid=2279196" target="_blank">Lacsiess 发表于 2026-5-22 20:27</a>
+
+刚刚测试了,完全正常,考虑换一下ROM?
+
+不喜欢折腾的话,直接用常见的PSP版二合一ROM,鸭子是可以识别这个的</blockquote>
+我用的是日文版的SQUARE记忆卡存档合集里的白元素99存档，可能有妨碍。
+
+也不重要了，我反正用日文版的也是一样玩
+
