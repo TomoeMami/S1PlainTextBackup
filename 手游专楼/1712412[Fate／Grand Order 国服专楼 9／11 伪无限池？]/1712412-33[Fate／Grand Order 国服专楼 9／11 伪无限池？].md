@@ -776,3 +776,11 @@ R姐就算1宝，带黑杯都能做主手了吧。我其实也在考虑是不是
 
 就算没黑杯，也就2t的事，满配剑R有技能也死不了，当是花时间赚羁绊咯<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47823#       发表于 2026-5-23 01:00
+
+小麻雀还剩20多W就11羁绊了，90几个茶壶灌下去果然夸张<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
