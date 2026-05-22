@@ -85,3 +85,12 @@
 
        [https://www.bilibili.com/video/BV18PLU6fE4A](https://www.bilibili.com/video/BV18PLU6fE4A) &lt;——哔哩哔哩视频搬运
 
+
+*****
+
+####  仟音一心  
+##### 41886#       发表于 2026-5-22 17:02
+
+BanG Dream! Our Notes AX2026 新视觉图 
+<img src="https://p.sda1.dev/32/a0f6254057c001376c2b08ccc5a29ff2/001xgF26ly1iddvhnmu32j60r80i5q8t02.jpg" referrerpolicy="no-referrer">
+
