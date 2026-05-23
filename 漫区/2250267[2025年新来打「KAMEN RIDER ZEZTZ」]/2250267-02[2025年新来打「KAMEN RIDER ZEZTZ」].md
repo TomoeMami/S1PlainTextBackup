@@ -3056,3 +3056,14 @@ C.投靠1，领激情猫娘
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉我看的骑士里，给我印象最好的最终还得是W
 
+
+*****
+
+####  阿刚  
+##### 1756#       发表于 2026-5-23 22:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69660411&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-5-23 12:09</a>
+
+感觉我看的骑士里，给我印象最好的最终还得是W</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">其实ex最终害怕母铁鸡也挺爽的，几乎全程没吃过憋，不过他那个皮套，滚一次估计就完蛋了
+
