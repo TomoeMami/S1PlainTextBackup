@@ -1561,3 +1561,14 @@ wiki上说5个祠堂后可以去湾岸市场隐藏商店买晶纹，这个入口
 其实这游戏最强势的是luck固伤队，从过完教程能强势到最后，不过需要跑酷拿key装。 ...</blockquote>
 刚开玩，能细说下么？
 
+
+*****
+
+####  blackll7  
+##### 116#       发表于 2026-5-23 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69661283&amp;ptid=2256342" target="_blank">11-- 发表于 2026-5-23 16:42</a>
+
+刚开玩，能细说下么？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">出了序章以后可以跑酷拿到所有伤害增加luc点的首饰，然后黄魂里有加大额luc的，都拿到以后绿毛天生高幸运+低费低伤aoe可以随意清杂鱼，多段攻击可以靠附加伤害打出爆炸伤害。
+
