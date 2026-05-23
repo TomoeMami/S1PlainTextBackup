@@ -1591,3 +1591,16 @@ wiki上说5个祠堂后可以去湾岸市场隐藏商店买晶纹，这个入口
 
 还有初期是不是就用那些计算公式里带luk的？我看这汉化版的技能就炼金术士的几个计算公式有luk。
 
+
+*****
+
+####  blackll7  
+##### 118#       发表于 2026-5-23 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69662133&amp;ptid=2256342" target="_blank">11-- 发表于 2026-5-23 21:11</a>
+
+我翻wiki，伤害+luck值的好像就一件：
+
+ラッキーチャーム        －        聖装        0        0        0        0        0        0        12        36                                ダメージ量・回復 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">初期就正常打就好，这游戏可以完全破序，不推主线地图上随便跑
+
