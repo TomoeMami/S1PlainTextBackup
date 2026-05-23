@@ -3067,3 +3067,14 @@ C.投靠1，领激情猫娘
 感觉我看的骑士里，给我印象最好的最终还得是W</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">其实ex最终害怕母铁鸡也挺爽的，几乎全程没吃过憋，不过他那个皮套，滚一次估计就完蛋了
 
+
+*****
+
+####  暗黑能乐  
+##### 1757#       发表于 2026-5-23 23:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69662350&amp;ptid=2250267" target="_blank">阿刚 发表于 2026-5-23 22:10</a>
+
+其实ex最终害怕母铁鸡也挺爽的，几乎全程没吃过憋，不过他那个皮套，滚一次估计就完蛋了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">可能是我对来回折腾同一个BOSS的套路不太感冒吧
+
