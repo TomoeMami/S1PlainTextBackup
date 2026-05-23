@@ -802,3 +802,13 @@ R姐就算1宝，带黑杯都能做主手了吧。我其实也在考虑是不是
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Von  
+##### 47826#       发表于 2026-5-23 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69659189&amp;ptid=1712412" target="_blank">doublehit 发表于 2026-5-23 01:23</a>
+上班摸鱼的时间不值钱，助战随机刷个满配剑r配上我的破铜烂铁剑也随便23t了。我随缘上线玩家，后面有啥卡池 ...</blockquote>
+今年只要抽所长就行 其他人无所谓 弓缇妈 和果子空 冠呆看需要
+
