@@ -32,3 +32,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">drecom股票绝赞下跌中
 
+
+*****
+
+####  wbtsy  
+##### 813#       发表于 2026-5-23 11:31
+
+<blockquote>藤钢剑姬 发表于 2026-5-9 11:38
+这个贴居然没有发过吗，前天5月7号雅达利拿到了巫术1-5的所有版权，貌似还包括了使用1-5元素的巫术外传系列 ...</blockquote>
+那drecom的那个哥布林杀手作者写的小说怎么处理？小说全都是用的巫术1-3的人物和梗。
+
