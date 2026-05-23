@@ -3078,3 +3078,14 @@ C.投靠1，领激情猫娘
 其实ex最终害怕母铁鸡也挺爽的，几乎全程没吃过憋，不过他那个皮套，滚一次估计就完蛋了 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">可能是我对来回折腾同一个BOSS的套路不太感冒吧
 
+
+*****
+
+####  阿刚  
+##### 1758#       发表于 2026-5-23 23:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69662584&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-5-23 23:13</a>
+
+可能是我对来回折腾同一个BOSS的套路不太感冒吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">你说节奏这个，那确实，老谭反复仰卧起坐也是让人无语了
+

@@ -527,3 +527,14 @@ duckstation</blockquote>
 
 建议下载保存备份以备不时之需
 
+
+*****
+
+####  瓦拉几亚之夜  
+##### 48#       发表于 2026-5-23 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69659071&amp;ptid=2279196" target="_blank">sunkaifeng00 发表于 2026-5-23 00:26</a>
+
+这个是duckstation版本迭代导致的BUG，起因是2022年11月的UI大更新，之后就长期存在并时好时坏，主要表现 ...</blockquote>
+谢谢。新版本的快读记忆卡功能还是很重要，不然每次读记忆卡的时候实在是慢得不能忍
+
