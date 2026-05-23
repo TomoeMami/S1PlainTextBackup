@@ -168,3 +168,56 @@ ps备考初live仅指有观客并且一些不熟的可能有误欢迎指出
 
 共通衣装还有很多人都没有，一个通用模型也要搞限量真是闹麻了
 
+
+*****
+
+####  艾特娜  
+##### 1922#       发表于 2026-5-22 18:10
+
+有种3bk的粉丝都不上nico的感觉
+
+*****
+
+####  fastary  
+##### 1923#       发表于 2026-5-23 01:20
+
+说到fes上live，正好刷到四季凪直播zqsg了两句volta粉丝有点吵起来了
+
+从实力和人气考虑不上fes很正常，但是同期共通3D发了新发型有了，volta作为团的运营也没被放弃，不知道为什么不找个大拼盘live给他塞一套
+
+出道几年了塞那么老些资源结果团3D还是初始那一套，讲dance unit都有点好笑<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fshzx  
+##### 1924#       发表于 2026-5-23 04:16
+
+<img src="https://img.stage1st.com/forum/202605/23/035514dp6qgxxzbb6c6vbv.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1715.jpeg</strong> (147.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-23 03:55 上传
+
+去年直拍斗虫，虹女直拍整体就是比较少人买
+
+今年策略就是虹男去开solo，虹女年尾拼盘live
+
+至于Volta去年营收赚了4亿多日元，今年还不出live的话
+
+我怀疑把资金挪给3skm开线下live 了
+
+那边运营以前也是负责volta，
+
+今年年初两个组合一起开线上live
+
+共通衣装还有很多人都没有，一个通用模型也要搞限量真是闹麻了
+
+*****
+
+####  艾特娜  
+##### 1925#       发表于 2026-5-23 10:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">身材都不微调只调身高的换头共通模型为啥搞得好像需要很高产能一样，
+
