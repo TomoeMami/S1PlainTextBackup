@@ -221,3 +221,48 @@ ps备考初live仅指有观客并且一些不熟的可能有误欢迎指出
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">身材都不微调只调身高的换头共通模型为啥搞得好像需要很高产能一样，
 
+
+*****
+
+####  Ferrari  
+##### 1926#       发表于 2026-5-23 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69657609&amp;ptid=2171972" target="_blank">宫宝兔丁 发表于 2026-5-22 17:54</a>
+给大家搞点聊天材料
+
+ps备考初live仅指有观客并且一些不熟的可能有误欢迎指出</blockquote>
+谁最低毫不惊讶，同为en系无论是发音和本身的有趣程度和狂兰同台还是太公开处刑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Harunoharu  
+##### 1927#       发表于 2026-5-23 12:53
+
+虽然但是，身材哪里没调了，实际上是用原本模型的素体直接套衣服
+
+你虹最神秘的是一定要坚持线下才实装而且甚至不是每场线下都给，像歌谣祭这样的直接全做了不就了事了还非得拖
+
+*****
+
+####  艾特娜  
+##### 1928#       发表于 2026-5-23 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69660566&amp;ptid=2171972" target="_blank">Harunoharu 发表于 2026-5-23 12:53</a>
+
+虽然但是，身材哪里没调了，实际上是用原本模型的素体直接套衣服
+
+你虹最神秘的是一定要坚持线下才实装而且 ...</blockquote>
+[https://www.youtube.com/shorts/DkhI3IUa97c](https://www.youtube.com/shorts/DkhI3IUa97c)
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那可能是我对三个人的身材理解有偏差吧
+
+*****
+
+####  Harunoharu  
+##### 1929#       发表于 2026-5-23 17:17
+
+<blockquote>艾特娜 发表于 2026-5-23 14:52
+https://www.youtube.com/shorts/DkhI3IUa97c
+
+那可能是我对三个人的身材理解有偏差吧</blockquote>
+这个不是共通是3bk自己周年纪念实装的3d，你去搜当时的线上live直播都能看到她们三个吐槽安洁的胸什么情况
+
