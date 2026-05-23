@@ -1604,3 +1604,17 @@ wiki上说5个祠堂后可以去湾岸市场隐藏商店买晶纹，这个入口
 ラッキーチャーム        －        聖装        0        0        0        0        0        0        12        36                                ダメージ量・回復 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">初期就正常打就好，这游戏可以完全破序，不推主线地图上随便跑
 
+
+*****
+
+####  江戸前ルナ  
+##### 119#       发表于 2026-5-23 22:57
+
+ 本帖最后由 江戸前ルナ 于 2026-5-23 23:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69662076&amp;ptid=2256342" target="_blank">blackll7 发表于 2026-5-23 20:54</a>
+
+出了序章以后可以跑酷拿到所有伤害增加luc点的首饰，然后黄魂里有加大额luc的，都拿到以后绿毛天生高幸运+ ...</blockquote>
+拿终盘装备试了下，堆到面板快600的LUK。打小怪AOE应该是用龙骑士那些龙息技能吧，效果还是不如剑BUFF攻2+枪职的AOE暴力，单体就更不如倍率6的燕返。但优点还是很明显的，AOE消耗比龙职低很多而且不依赖职业/武器属性，单体不用猴戏N保1上N个BUFF也不用担心吃攻减，简简单单一个黄三角一个LUCKUP最多再加个二动。
+
+话说多HIT技能用哪个好？一时没找到合适的。贼的三连？还是弓手的平A3连？不过多HIT物理还是有个致命的弱点，对面一上CT就是自杀<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
