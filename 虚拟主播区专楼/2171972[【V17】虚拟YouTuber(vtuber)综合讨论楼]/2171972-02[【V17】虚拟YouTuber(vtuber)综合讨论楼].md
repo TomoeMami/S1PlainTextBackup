@@ -314,3 +314,59 @@ https://www.youtube.com/shorts/DkhI3IUa97c
 
 顺带一提共通3d每套都是按照liver自己个人的建议在原模上加小物的，甚至每个模型的肤色都不一样，一键换头的前提得是你服装全都用一套只需要换色吧
 
+
+*****
+
+####  zhrs456  
+##### 1935#       发表于 2026-5-24 16:42
+
+ 本帖最后由 zhrs456 于 2026-5-24 16:44 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69664344&amp;ptid=2171972" target="_blank">fshzx 发表于 2026-5-24 14:06</a>
+
+虽然但是町田千麻初始3D和共通3D差异很大啊，身高增高了10几厘米，胸也缩水了，不是一键换头是什么 ...</blockquote>
+那你应该批判的是初始3D那么旧怎么不花钱更新，不是初始3D给你个外包的共通就也得那么烂，这两年官网换初始2D的可不少
+
+*****
+
+####  fshzx  
+##### 1936#       发表于 2026-5-24 17:28
+
+ 本帖最后由 fshzx 于 2026-5-24 19:16 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69664814&amp;ptid=2171972" target="_blank">zhrs456 发表于 2026-5-24 16:42</a>
+
+那你应该批判的是初始3D那么旧怎么不花钱更新，不是初始3D给你个外包的共通就也得那么烂，这两年官网换初 ...</blockquote>
+我可不是说初始烂的意思，我是说町田千麻共通3D不符合她身高和三围的设定，她身高大概150cm，共通高了特别多，胸部设定本来挺大的，可以看看2D每一套衣服，最新的精灵服还加码了，共通3D缩水了不少。变成一般美少女了。
+
+而且我不太满意她的共通3D头部侧面特别平面，扁平化了，和holo对唱显得特别怪。
+
+<img src="https://img.stage1st.com/forum/202605/24/180703lxsmniytsjzndxhj.jpg" referrerpolicy="no-referrer">
+
+<strong>未标题-1.jpg</strong> (140.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-24 18:07 上传
+
+还要加小物，千麻共通3D还真没有，只有头上的仓鼠，但这个设定也是2D版一模一样搬过来的，显得特别接头霸王。
+
+*****
+
+####  zhrs456  
+##### 1937#       发表于 2026-5-24 17:34
+
+ 本帖最后由 zhrs456 于 2026-5-24 17:37 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69664956&amp;ptid=2171972" target="_blank">fshzx 发表于 2026-5-24 17:28</a>
+
+我可不是说初始烂的意思，我是说町田千麻共通3D不符合她身高和三围的设定，她身高大概150cm，共通高了特 ...</blockquote>
+以防你不知道，虹人的设定想改可以随意改，而共通是主播自己挑方案去做，你觉得不符合，大概只是人家懒得去翻新2D和旧3D而已
+
+*****
+
+####  vod6241  
+##### 1938#       发表于 2026-5-24 20:01
+
+要真是共同身体把胸统一缩了就好了，龙妈的共通衣装就不会难看成那样，大胸穿起来实在太难看了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+顺便千麻的共通差分是胸口的仓鼠徽章，头上仓鼠的衣服也换过了，不过也可以简单的把仓鼠看作发型的一部分，至于身高的话加上了高跟鞋总不可能和原来一样高吧&lt;img src='https://i.lefuha.top/v2/upload/2026-05-24/6edbd3b6-cf1b-4e79-87f8-091bd6046ff2.png' /&gt;&lt;img src='https://i.lefuha.top/v2/upload/2026-05-24/f3247025-5eb1-4605-b780-580a1a5cfce9.png' /&gt;
+
+—— 来自 HUAWEI BAL-AL80, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

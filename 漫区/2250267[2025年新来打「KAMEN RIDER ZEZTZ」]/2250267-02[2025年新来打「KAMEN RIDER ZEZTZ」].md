@@ -3417,3 +3417,23 @@ nox这二周目纯垫子啊
 倒是西格这么快回归没想到，这战力有点不对等了啊code有头有脸的就剩俩了</blockquote>
 所以这集牢莫没同意西格来助拳啊，同意了西格直接把牢三跟NOX当陀螺一顿抽完就结束了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  milky658  
+##### 1793#       发表于 2026-5-24 19:59
+
+翻5CH专楼看了看，ZZZ评价果然还是两极。五月最终出来的时候吧，太君对ZZZ在B站分数奇高还有点疑惑，于是乎来了位中国老哥给他们科普国内风评，为啥狐神糖人评价低啊，三观英雄观啥的，不出意外地没啥人理他。接下来翻到这条我没绷住：
+
+<img src="https://img.stage1st.com/forum/202605/24/195740gw5zav55bs5x772v.jpg" referrerpolicy="no-referrer">
+
+<strong>9f20563905a3d62980b57c169b2536b2.jpg</strong> (56.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-24 19:57 上传
+
+在BILIBILI上，我很在意的一点是：把角色嘴巴改成黑人的图片数量奇多
+
+坏了，反驳不了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
