@@ -876,3 +876,25 @@ R姐就算1宝，带黑杯都能做主手了吧。我其实也在考虑是不是
 
 兰陵王10羁绊了，值得喂梦火吗
 
+
+*****
+
+####  khxooo  
+##### 47833#       发表于 2026-5-24 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69665017&amp;ptid=1712412" target="_blank">sandro 发表于 2026-5-24 17:41</a>
+兰陵王10羁绊了，值得喂梦火吗</blockquote>
+当然值得，不如说是最值得喂的那个。
+
+
+*****
+
+####  khxooo  
+##### 47834#       发表于 2026-5-24 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69664931&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2026-5-24 17:21</a>
+现在礼装升级还是只能搓丸子？真麻烦啊
+
+—— 来自 vivo V2419A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+直接喂吧，挫丸子是以前缺QP 的时候不得已的做法，后续QP都是溢出的状态，有搓丸子那时间不如打一次戴冠战，都够你喂礼装的QP 了。
+
