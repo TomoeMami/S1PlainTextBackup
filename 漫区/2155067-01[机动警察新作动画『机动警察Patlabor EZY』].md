@@ -73,3 +73,15 @@
 
 去睡觉前翻到这个，建议先缓存
 
+
+*****
+
+####  褪色的雪花  
+##### 179#       发表于 2026-5-25 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69666112&amp;ptid=2155067" target="_blank">aptx8285144 发表于 2026-5-24 23:17</a>
+【【中日字幕】剧场新作 机动警察EZY 第1集 热搜是#第二小队【上坂堇/户谷菊之介/小清水亚美/林原惠美】-哔 ...</blockquote>
+第二集也出了
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
