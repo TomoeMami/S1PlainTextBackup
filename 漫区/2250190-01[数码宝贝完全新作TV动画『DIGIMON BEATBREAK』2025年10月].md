@@ -120,3 +120,12 @@ gift篇最后是打梅菲斯兽新究极体还是另有隐藏boss，还是有看
 
 本集剧本几乎完美，ed一看果然是你会川
 
+
+*****
+
+####  66367749  
+##### 612#       发表于 2026-5-24 17:37
+
+这寡妇气息，真希是一直能看到冰狮子的幻象吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这一作对情感的把控很细腻，故事也扎实推进前后有呼应，非常喜欢<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
