@@ -42,3 +42,15 @@
 这个贴居然没有发过吗，前天5月7号雅达利拿到了巫术1-5的所有版权，貌似还包括了使用1-5元素的巫术外传系列 ...</blockquote>
 那drecom的那个哥布林杀手作者写的小说怎么处理？小说全都是用的巫术1-3的人物和梗。
 
+
+*****
+
+####  藤钢剑姬  
+##### 814#       发表于 2026-5-24 15:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69660250&amp;ptid=2249235" target="_blank">wbtsy 发表于 2026-5-23 11:31</a>
+那drecom的那个哥布林杀手作者写的小说怎么处理？小说全都是用的巫术1-3的人物和梗。 ...</blockquote>
+就是不知道怎么处理所以才引发了外网很多讨论。就像之前根据巫术1小说改编的漫画《魔境斩刻录》把所有名词与形象替换了一样，很多人担心蜗牛的bnb也会改设定。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
