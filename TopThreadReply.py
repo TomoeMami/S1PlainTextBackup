@@ -3,7 +3,7 @@
 import re,os
 import json
 from pathlib import Path
-from datetime import datetime,timedelta
+from datetime import datetime,timedelta,timezone
 import requests,os,time,sys
 from collections import Counter
 import signal
@@ -13,28 +13,26 @@ import signal
 # import hanlp
 
 def getdate(beforeOfDay):
-        system_type = sys.platform
-        today = datetime.today()
-        # 计算偏移量
-        offset = timedelta(days=-beforeOfDay)
-        # 获取想要的日期的时间
-        if system_type == "win32":
-            re_date = (today + offset).strftime("%Y-%#m-%#d")
-        else:
-            re_date = (today + offset).strftime("%Y-%-m-%-d")
-        return re_date
+    # UTC+8 时区
+    tz_utc8 = timezone(timedelta(hours=8))
+    # 获取当前北京时间
+    now_beijing = datetime.now(tz_utc8)
+    # 计算目标日期
+    target_date = now_beijing - timedelta(days=beforeOfDay)
+    # 直接拼出 YYYY-M-D 格式（无前导零）
+    re_date = f"{target_date.year}-{target_date.month}-{target_date.day}"
+    return re_date
 
 def getdate2(beforeOfDay):
-        system_type = sys.platform
-        today = datetime.today()
-        # 计算偏移量
-        offset = timedelta(days=-beforeOfDay)
-        # 获取想要的日期的时间
-        if system_type == "win32":
-            re_date = (today + offset).strftime("%Y年%#m月%#d日")
-        else:
-            re_date = (today + offset).strftime("%Y年%-m月%-d日")
-        return re_date
+    # UTC+8 时区
+    tz_utc8 = timezone(timedelta(hours=8))
+    # 获取当前北京时间
+    now_beijing = datetime.now(tz_utc8)
+    # 计算目标日期
+    target_date = now_beijing - timedelta(days=beforeOfDay)
+    # 直接拼出 YYYY-M-D 格式（无前导零）
+    re_date = f"{target_date.year}年{target_date.month}月{target_date.day}日"
+    return re_date
 
 def 提取回帖(text):
     # 正则表达式匹配 <blockquote> 中的引用内容
