@@ -1,181 +1,175 @@
 # -*- coding: UTF-8 -*-
-
-import re,os
+import re
 import json
+import time
 from pathlib import Path
-from datetime import datetime,timedelta,timezone
-import requests,os,time,sys
+from datetime import datetime, timedelta, timezone
 from collections import Counter
-import signal
-# from cutword import Cutter
-# from snownlp import SnowNLP
-# import jieba
-# import hanlp
 
-def getdate(beforeOfDay):
-    # UTC+8 时区
+import requests
+
+# 配置常量
+ROOT_PATH = "./"
+FORUM_URL = "https://stage1st.com/2b/forum.php"
+VIEW_THREAD_URL = f"{FORUM_URL}?mod=viewthread&tid=2252916&extra=page%3D1"
+REPLY_URL_TEMPLATE = f"{FORUM_URL}?mod=post&action=reply&fid=157&tid={{tid}}&extra=page%3D1&replysubmit=yes"
+TARGET_THREAD_ID = 2252991
+HEADERS = {
+    "User-agent": "Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/92.0.4515.159 Safari/537.36 Edg/92.0.902.78"
+}
+REQUEST_TIMEOUT = 10  # 秒
+
+
+def get_date(offset_days: int, format_type: int = 1) -> str:
+    """获取北京时间指定偏移天数的日期字符串。
+    
+    Args:
+        offset_days: 天数偏移，正数表示几天前，负数表示几天后。
+        format_type: 1 -> "YYYY-M-D", 2 -> "YYYY年M月D日"
+    """
     tz_utc8 = timezone(timedelta(hours=8))
-    # 获取当前北京时间
-    now_beijing = datetime.now(tz_utc8)
-    # 计算目标日期
-    target_date = now_beijing - timedelta(days=beforeOfDay)
-    # 直接拼出 YYYY-M-D 格式（无前导零）
-    re_date = f"{target_date.year}-{target_date.month}-{target_date.day}"
-    return re_date
+    target_date = datetime.now(tz_utc8) - timedelta(days=offset_days)
+    if format_type == 2:
+        return f"{target_date.year}年{target_date.month}月{target_date.day}日"
+    return f"{target_date.year}-{target_date.month}-{target_date.day}"
 
-def getdate2(beforeOfDay):
-    # UTC+8 时区
-    tz_utc8 = timezone(timedelta(hours=8))
-    # 获取当前北京时间
-    now_beijing = datetime.now(tz_utc8)
-    # 计算目标日期
-    target_date = now_beijing - timedelta(days=beforeOfDay)
-    # 直接拼出 YYYY-M-D 格式（无前导零）
-    re_date = f"{target_date.year}年{target_date.month}月{target_date.day}日"
-    return re_date
 
-def 提取回帖(text):
-    # 正则表达式匹配 <blockquote> 中的引用内容
-    blockquote_pattern = re.compile(r"<blockquote>.*?发表于.*?</blockquote>", re.DOTALL)
-
-    # 删除 <blockquote> 中的引用内容（如果存在）
-    cleaned_text = blockquote_pattern.sub("", text)
+def extract_reply(text: str) -> list[str]:
+    """提取回帖的纯文本行，去除引用块、小尾巴、HTML标签、日期行和####开头的行。"""
+    # 移除被引用的 blockquote 内容
+    cleaned = re.sub(r"<blockquote>.*?发表于.*?</blockquote>", "", text, flags=re.DOTALL)
+    # 移除客户端小尾巴（多种格式）
     tail_pattern = re.compile(
-    r"—— [来來]自.+[鹅鵝].+\d+[\.\d]+(-alpha)?|"
-    r"— from \[S1 Next Goose\]\(https://[^\)]+\) v\d+\.\d+\.\d+(-alpha)?|" # 英文小尾巴（无 alpha）
-    r"https://s1fun\.koalcat\.com",  
-    re.DOTALL
+        r"—— [来來]自.+[鹅鵝].+\d+[\.\d]+(-alpha)?|"
+        r"— from \[S1 Next Goose\]\(https://[^\)]+\) v\d+\.\d+\.\d+(-alpha)?|"
+        r"https://s1fun\.koalcat\.com",
+        re.DOTALL
     )
-    cleaned_text = tail_pattern.sub("", cleaned_text)   
-    # 提取回帖内容
-    # 如果存在 <blockquote>，则提取其后的内容；否则，提取整个内容
-    if "<blockquote>" in cleaned_text:
-        # 提取 <blockquote> 之后的内容
-        reply_pattern = re.compile(r"<blockquote>.*?</blockquote>(.*?)$", re.DOTALL)
-        reply_match = reply_pattern.search(cleaned_text)
-        if reply_match:
-            reply_content = reply_match.group(1).strip()
-        else:
-            reply_content = cleaned_text.strip()
+    cleaned = tail_pattern.sub("", cleaned)
+
+    # 提取<blockquote>之后的部分（若存在），否则取整个文本
+    if "<blockquote>" in cleaned:
+        match = re.search(r"<blockquote>.*?</blockquote>(.*?)$", cleaned, re.DOTALL)
+        reply_content = match.group(1).strip() if match else cleaned.strip()
     else:
-        # 如果没有 <blockquote>，直接提取整个内容
-        reply_content = cleaned_text.strip()
-    reply_content = re.sub(r"<.*?>", "", reply_content)
-    reply_content = re.sub(r"\d{4}-\d{1,2}-\d{1,2}", "",reply_content)
+        reply_content = cleaned.strip()
+
+    # 去除所有HTML标签
+    reply_content = re.sub(r"<[^>]+>", "", reply_content)
+    # 去除日期行（如 2025-5-24）
+    reply_content = re.sub(r"\d{4}-\d{1,2}-\d{1,2}", "", reply_content)
+
     # 过滤掉以 #### 开头的行
-    filtered_lines = [line for line in reply_content.splitlines() if not line.startswith("####")]
+    lines = [line for line in reply_content.splitlines() if not line.startswith("####")]
+    return lines
 
-    # # 将过滤后的行重新组合成字符串
-    # final_reply_content = "\n".join(filtered_lines).strip()
-    # final_reply_content = re.sub(r"\s+", "", final_reply_content)
-    # final_reply_content = re.sub(r"<.*?>", "", final_reply_content)
-    return filtered_lines
 
-def timeout_handler(signum, frame):
-    raise TimeoutError("Function execution has timed out.")
+def build_reply_content(today: str, today_cn: str, board_names: list[str]) -> str:
+    """根据当天数据生成完整的回帖内容（Markdown/BBcode）。"""
+    reply_str = f"[b]统计日期：[/b]{today_cn}\n[url=https://github.com/TomoeMami/S1PlainTextBackup/]数据来源[/url]\n\n"
+    
+    with open(Path(ROOT_PATH) / "RefreshingData.json", "r", encoding="utf-8-sig") as f:
+        post_data = json.load(f)
 
-if __name__ == '__main__':
-    根路径="./"
-
-    回复字典 = {
-        '外野':{},
-        '游戏区':{},
-        '漫区':{},
-        '手游战斗':{}
-    }
-    回帖字符串 = '[b]统计日期：[/b]'
-    今日日期 = str(getdate(1))
-    # 停用词表 = set(['Android','iPhone','不能','开始','最后','自己','---','次数','一个','不是','2025','来自','就是','这个','没有','还是','什么','可以','这种','因为','但是','所以','也不','知道','觉得','怎么','可能','还有','如果','然后','确实','直接','时候','出来','不会','而且','应该','已经','很多','其实','不过','那么','这么','这样','只是','需要','只有','那个','的话','当然','几个','完全','或者','一样','地方','比较','虽然','其他','感觉','一直','有点','楼主','时间','一下','还能','主要','一点','只能','以后','一般','代表','多少','结果','东西','根本','肯定','人家','现在','本来','甚至','为了','所谓','说法','认为','有人','评分','里面','本身','毕竟','那些','非常','战斗力','各种','不如','情况','起来','来说','基本','没啥','一种','看到','://','com','https','](','www','——','pgyer','v3.3','96','GcUxKd4w','xfPejhuq','alpha','……','下载次数','下载','附件','上传','KB','jpg','10','+ 1','编辑','status','真的','="','image','png','saraba1st','S1Fun','S1Fun','s1fun','koalcat','|+'])
-    回帖字符串 = f"{回帖字符串}{getdate2(1)}\n[url=https://github.com/TomoeMami/S1PlainTextBackup/]数据来源[/url]\n\n"
-    # cutter = Cutter(want_long_word=True)
-    # tok = hanlp.load(hanlp.pretrained.tok.FINE_ELECTRA_SMALL_ZH)
-    for 板块 in 回复字典.keys():
-        板块字典 = {}
-        # 词云数据 = []
-        p = Path(f"{根路径}{板块}/")
-        for file in p.rglob('*.md'):
-            print(str(file))
-            with open (file, 'r',encoding='utf-8-sig') as f:
+    for board in board_names:
+        board_dict = {}
+        board_path = Path(ROOT_PATH) / board
+        for md_file in board_path.rglob("*.md"):
+            with open(md_file, "r", encoding="utf-8-sig") as f:
                 content = f.read()
-                lines = content.splitlines()
-                a = "\n".join(line for line in lines if line.strip())
-                if 今日日期 in a:
-                    b = a.split("*****")
-                    res = []
-                    for post in b:
-                        if 今日日期 in post:
-                            # print(post)
-                            post1 = post
-                            post2 = post
-                            data={}
-                            data['id'] = re.search(r"####[^#]{2}(.+)\n#####", post).group(1)
-                            # data['level'] = str(filepath)+''.join(re.findall(r"#####\s(\d+)#", post1))
-                            data['time'] = re.search(r"发表于\s(\d{4}-\d{1,2}-\d{1,2}) \d{2}:\d{2}", post2).group(1)
-                            if data['id'] and data['time'] == 今日日期:
-                                res.append(data['time'])
-                                # if 板块 != "手游战斗":
-                                #     for 分词结果 in tok(提取回帖(post1)):
-                                #         if 分词结果 :
-                                #             for 分词 in 分词结果:
-                                #                 if len(分词) >1 and 分词 not in 停用词表:
-                                #                     词云数据.append(分词)
-                    threadid = re.findall(r"\d{5,9}", str(file))[0]
-                    if Counter(res).get(今日日期, 0) > 0:
-                        if threadid in 板块字典.keys():
-                            板块字典[threadid] = 板块字典[threadid] + Counter(res).get(今日日期, 0)
-                        else:
-                            板块字典[threadid] = Counter(res).get(今日日期, 0)
-        # 词云排序 = sorted(Counter(词云数据).items(),key=lambda x:x[1],reverse=True)
-        回帖字符串 = f"{回帖字符串}[b]{板块}（+{sum(板块字典.values())}）[/b]\n"
-        回帖排序 = sorted(板块字典.items(),key=lambda x:x[1],reverse=True)
-        回帖序号 = min(len(回帖排序),20)
-        with open(根路径+'RefreshingData.json',"r",encoding='utf-8-sig') as f:
-            帖子数据=json.load(f)
-        for i in range(回帖序号):
-            回帖字符串 = f"{回帖字符串}{i+1}. [url=https://stage1st.com/2b/thread-{回帖排序[i][0]}-1-1.html]{帖子数据[回帖排序[i][0]]['title']}[/url]（[b]+{回帖排序[i][1]}[/b]）\n"
-        if 板块 != "手游战斗":
-            # 回帖字符串 = f"""{回帖字符串}[b]前10高频词汇[/b]：\n{"，".join([f"{word:<10}{count:>5}" for word, count in 词云排序[:5]])}\n{"，".join([f"{word:<10}{count:>5}" for word, count in 词云排序[5:10]])}\n"""
-            回帖字符串 = f"{回帖字符串}===========\n\n"
-    # print(回帖字符串)
-    cookie_str = os.environ.get('S1_COOKIE', '')
+            # 提取非空行组成的文本
+            non_empty_lines = [line for line in content.splitlines() if line.strip()]
+            text = "\n".join(non_empty_lines)
+
+            if today not in text:
+                continue
+
+            # 按分隔符切分帖子
+            posts = text.split("*****")
+            res = []
+            for post in posts:
+                if today not in post:
+                    continue
+                # 提取发帖时间
+                time_match = re.search(r"发表于\s(\d{4}-\d{1,2}-\d{1,2}) \d{2}:\d{2}", post)
+                if time_match and time_match.group(1) == today:
+                    res.append(today)
+
+            if not res:
+                continue
+
+            # 从文件名中提取 thread id（连续5-9位数字）
+            thread_id_match = re.search(r"\d{5,9}", md_file.name)
+            if not thread_id_match:
+                continue
+            thread_id = thread_id_match.group(0)
+            count = Counter(res).get(today, 0)
+            board_dict[thread_id] = board_dict.get(thread_id, 0) + count
+
+        total = sum(board_dict.values())
+        reply_str += f"[b]{board}（+{total}）[/b]\n"
+        sorted_threads = sorted(board_dict.items(), key=lambda x: x[1], reverse=True)
+        top_n = min(len(sorted_threads), 20)
+        for i, (tid, cnt) in enumerate(sorted_threads[:top_n], start=1):
+            title = post_data.get(tid, {}).get("title", "未知标题")
+            reply_str += f"{i}. [url=https://stage1st.com/2b/thread-{tid}-1-1.html]{title}[/url]（[b]+{cnt}[/b]）\n"
+        reply_str += "===========\n\n"
+    return reply_str
+
+
+def get_formhash(session: requests.Session) -> str:
+    """从指定帖子获取 formhash。"""
+    resp = session.get(VIEW_THREAD_URL, headers=HEADERS, timeout=REQUEST_TIMEOUT)
+    content = resp.text  # 使用文本而非 bytes
+    match = re.search(r'<input type="hidden" name="formhash" value="([^"]+)"', content)
+    if not match:
+        raise RuntimeError("无法获取 formhash，请检查页面结构或登录状态")
+    return match.group(1)
+
+
+def post_reply(session: requests.Session, formhash: str, message: str):
+    """使用 formhash 和 session 回帖。"""
+    url = REPLY_URL_TEMPLATE.format(tid=TARGET_THREAD_ID)
+    data = {
+        "formhash": formhash,
+        "message": message,
+        "subject": "",
+        "posttime": int(time.time()),
+        "wysiwyg": 1,
+        "usesig": 1,
+    }
+    resp = session.post(url, data=data, headers=HEADERS, timeout=REQUEST_TIMEOUT)
+    print(f"回帖状态码: {resp.status_code}")
+    return resp
+
+
+def main():
+    board_names = ["外野", "游戏区", "漫区", "手游战斗"]
+    today = get_date(1)           # "2026-5-24" 格式
+    today_cn = get_date(1, 2)     # "2026年5月24日" 格式
+
+    reply_content = build_reply_content(today, today_cn, board_names)
+    print(reply_content)
+    # 从环境变量加载 Cookie
+    cookie_str = os.environ.get("S1_COOKIE", "")
     if not cookie_str:
         raise RuntimeError("环境变量 S1_COOKIE 未设置，请检查 GitHub Secrets 配置。")
-    
     cookies = {}
-    for line in cookie_str.split(';'):
-        line = line.strip()
-        if '=' in line:
-            key, value = line.split('=', 1)
+    for item in cookie_str.split(";"):
+        if "=" in item:
+            key, value = item.split("=", 1)
             cookies[key.strip()] = value.strip()
 
-    headers = {'User-agent':'Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/92.0.4515.159 Safari/537.36 Edg/92.0.902.78'}
-    ''' 获取formhash'''
-    RURL = 'https://stage1st.com/2b/forum.php?mod=viewthread&tid=2252916&extra=page%3D1'
-    s1 = requests.get(RURL, headers=headers,  cookies=cookies ,timeout=10)
-    content = s1.content
-    signal.signal(signal.SIGALRM, timeout_handler)
-    signal.alarm(60)  # 设置超时时间为60秒
-    try:
-        while True:
-            rows = re.findall(r'<input type=\"hidden\" name=\"formhash\" value=\"(.*?)\" />', str(content)) #正则匹配找到formhash值
-            if len(rows)!=0:
-                formhash = rows[0]
-                print('formhash is: ' + formhash)
-                subject = u''
-                # Aurl = 'https://raw.fastgit.org/TomoeMami/S1PlainTextBackup/master/A-Thread-id.txt'
-                # s = requests.get(Aurl)
-                # threadid = s.content.decode('utf-8')
-                '''回帖ID，手动修改'''
-                threadid = 2252991
-                '''回帖ID，手动修改'''
-                replyurl = 'https://stage1st.com/2b/forum.php?mod=post&action=reply&fid=157&tid='+str(threadid)+'&extra=page%3D1&replysubmit=yes'
-                #url为要回帖的地址
-                Data = {'formhash': formhash,'message': 回帖字符串,'subject': subject,'posttime':int(time.time()),'wysiwyg':1,'usesig':1}
-                req = requests.post(replyurl,data=Data,headers=headers,cookies=cookies,timeout=10)
-                print(req)
-                break
-            else:
-                print('none formhash!')
-                continue
-    except TimeoutError:
-        print("Function execution has timed out.")
+    # 创建带 Cookie 的会话
+    session = requests.Session()
+    session.cookies.update(cookies)
+
+    # 获取 formhash 并回帖
+    formhash = get_formhash(session)
+    print(f"formhash: {formhash}")
+    post_reply(session, formhash, reply_content)
+
+
+if __name__ == "__main__":
+    import os
+    main()
