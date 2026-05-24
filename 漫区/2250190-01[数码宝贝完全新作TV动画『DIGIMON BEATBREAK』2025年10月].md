@@ -80,3 +80,11 @@
 
 还以为是高层干部、计划核心之类的，结果直接就是老大吗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  丹德里恩  
+##### 608#       发表于 2026-5-24 15:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">这集真是不错啊，既讲了个好故事又兼顾了情怀还顺带推了主线
+
