@@ -57,3 +57,11 @@ hd2近战手感普遍不好吧，不太看好
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qwased  
+##### 7466#       发表于 2026-5-25 03:32
+
+27号上DLSS，但是感觉现在CPU瓶颈又变回去了，今年不是才修复过CPU问题吗怎么还能复发的<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
