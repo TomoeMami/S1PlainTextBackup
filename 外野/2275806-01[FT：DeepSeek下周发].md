@@ -110,3 +110,13 @@ gpt放弃sora把codex放回重心算是拨乱反正，ds也招人自己做harnes
 gpt放弃sora把codex放回重心算是拨乱反正，ds也 ...</blockquote>
 搞自己的agent只是可以更好地配合自己的模型达到最好的效果而已，而且某些畜生公司还可以给别的模型下毒。
 
+
+*****
+
+####  真红之闪电  
+##### 1428#       发表于 2026-5-24 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69658407&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-5-22 21:20</a>
+搞自己的agent只是可以更好地配合自己的模型达到最好的效果而已，而且某些畜生公司还可以给别的模型下毒 ...</blockquote>
+下毒是指…啥
+
