@@ -130,3 +130,21 @@
 
 —— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  hagiwara  
+##### 184#       发表于 2026-5-25 02:14
+
+第三集的剧中电影里的男主声优下野纮女主声优宫本侑芽正好分别是出渊裕监督的翼神传说和金属口红的主角<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这也有彩蛋吗
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 185#       发表于 2026-5-25 02:24
+
+看完了，还挺有味道啊
+
+另外cast表里阿繁的名字终于有汉字写法了啊，斯波繁男
+
