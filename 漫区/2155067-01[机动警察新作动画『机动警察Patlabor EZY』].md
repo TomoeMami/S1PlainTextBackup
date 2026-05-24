@@ -50,3 +50,16 @@
 其实剧场上映的时候就同步卖bd了，不过居然到现在都没有资源</blockquote>
 机动警察是不是比高达冷门很多了（
 
+
+*****
+
+####  新HGCG  
+##### 177#       发表于 2026-5-24 22:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69665278&amp;ptid=2155067" target="_blank">Asreed 发表于 2026-5-24 18:52</a>
+
+其实剧场上映的时候就同步卖bd了，不过居然到现在都没有资源</blockquote>
+当时忘买了
+
+今天想可以在万代网店买，结果一看没货了
+
