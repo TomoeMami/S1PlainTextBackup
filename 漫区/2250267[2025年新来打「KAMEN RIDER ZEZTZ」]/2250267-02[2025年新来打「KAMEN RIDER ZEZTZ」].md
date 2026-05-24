@@ -3362,3 +3362,25 @@ nox这二周目纯垫子啊
 倒是西格这么快回归没想到，这战力有点不对等了啊code有头有脸的就剩俩了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而老五由于皮套被老三用了，没得变身，所以等于只剩老三一个
 
+
+*****
+
+####  rockroxas  
+##### 1788#       发表于 2026-5-24 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69664208&amp;ptid=2250267" target="_blank">黑上シグマ 发表于 2026-5-24 13:19</a>
+
+而老五由于皮套被老三用了，没得变身，所以等于只剩老三一个</blockquote>
+本来腰带只有一个吧
+
+一周目56都能变是因为nox修复的那条回收了
+
+二周目代码一直都只有一条腰带，所以5一直没变
+
+*****
+
+####  蔺无双  
+##### 1789#       发表于 2026-5-24 14:30
+
+这次牢诺还是和一周目不一样的，对杂兵都是用枪托打晕了事，不像之前“code的走狗通通去死”了
+
