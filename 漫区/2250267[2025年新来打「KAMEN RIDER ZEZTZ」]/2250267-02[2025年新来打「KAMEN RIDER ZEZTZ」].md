@@ -3238,3 +3238,15 @@ C.投靠1，领激情猫娘
 
 —— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  pointer243  
+##### 1776#       发表于 2026-5-24 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69660411&amp;ptid=2250267" target="_blank">暗黑能乐 发表于 2026-5-23 12:09</a>
+感觉我看的骑士里，给我印象最好的最终还得是W</blockquote>
+w的Xtreme在设定上有着所有记忆体的数据，也就是说只要在记忆体打架的大框架内是吃不了瘪的（其实是那时候东映和666还是比较守规矩，不怎么吃书）所以terror，utopia还有old这些直接打击变身者的机制怪才能让Xtreme。E哥的新版本和core的异次元就完全跳出框架了
+
+—— 来自 motorola edge 2025, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
