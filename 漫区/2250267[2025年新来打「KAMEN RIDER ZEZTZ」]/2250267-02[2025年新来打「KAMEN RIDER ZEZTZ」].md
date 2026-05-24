@@ -3404,3 +3404,16 @@ nox这二周目纯垫子啊
 我也是看了半天才发现基地里整段都还在梦境里，上一集烤肉那段开始我就隐约感觉到制作组已经把梦境当现实 ...</blockquote>
 之前一直提过现实和梦境边界，夫人刚出场就说过现实和梦境边界迟早会被打破，现在的状况可能就印证了那些谜语
 
+
+*****
+
+####  上坂莲华  
+##### 1792#       发表于 2026-5-24 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69664145&amp;ptid=2250267" target="_blank">blue321 发表于 2026-5-24 13:01</a>
+
+nox这二周目纯垫子啊
+
+倒是西格这么快回归没想到，这战力有点不对等了啊code有头有脸的就剩俩了</blockquote>
+所以这集牢莫没同意西格来助拳啊，同意了西格直接把牢三跟NOX当陀螺一顿抽完就结束了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
