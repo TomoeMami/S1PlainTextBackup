@@ -1618,3 +1618,15 @@ wiki上说5个祠堂后可以去湾岸市场隐藏商店买晶纹，这个入口
 
 话说多HIT技能用哪个好？一时没找到合适的。贼的三连？还是弓手的平A3连？不过多HIT物理还是有个致命的弱点，对面一上CT就是自杀<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blackll7  
+##### 120#       发表于 2026-5-24 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69662528&amp;ptid=2256342" target="_blank">江戸前ルナ 发表于 2026-5-23 22:57</a>
+拿终盘装备试了下，堆到面板快600的LUK。打小怪AOE应该是用龙骑士那些龙息技能吧，效果还是不如剑BUFF攻2+ ...</blockquote>
+附加伤害无视防御减伤抗性和伤害降低，直接忍者二动
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
