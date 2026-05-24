@@ -3221,3 +3221,20 @@ C.投靠1，领激情猫娘
 
 诸田敏去年发挥蛮好的，巧克力小伙初登场让制作组惊呼好JB帅，要是太早让他拿到强化以后就看不到这么精彩的战法了（X）
 
+
+*****
+
+####  洛克萨斯  
+##### 1774#       发表于 2026-5-24 11:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肉身可以用胶囊，可惜秩序要变身才能用
+
+*****
+
+####  离心  
+##### 1775#       发表于 2026-5-24 11:34
+
+想象力太神奇了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
