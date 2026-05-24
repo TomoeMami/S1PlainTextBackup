@@ -145,3 +145,11 @@ gift篇最后是打梅菲斯兽新究极体还是另有隐藏boss，还是有看
 
 这么老派的剧情我脑子里只浮现会川升的名字好吧，，，
 
+
+*****
+
+####  水莲寺流歌  
+##### 615#       发表于 2026-5-24 19:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不如说现在这完全体遍地跑的时代五行星逼格真有点低了吧
+
