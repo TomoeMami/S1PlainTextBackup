@@ -120,3 +120,33 @@ gpt放弃sora把codex放回重心算是拨乱反正，ds也 ...</blockquote>
 搞自己的agent只是可以更好地配合自己的模型达到最好的效果而已，而且某些畜生公司还可以给别的模型下毒 ...</blockquote>
 下毒是指…啥
 
+
+*****
+
+####  s781pp  
+##### 1429#       发表于 2026-5-24 15:05
+
+ds是不是又崩了<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  发呆的龙虾  
+##### 1430#       发表于 2026-5-24 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69664511&amp;ptid=2275806" target="_blank">s781pp 发表于 2026-5-24 15:05</a>
+ds是不是又崩了
+
+—— 来自 OnePlus HD1900, Android 12, 鹅球 v3.5.99</blockquote>
+看来是的，我也不行了，还在想说是我的API问题么。
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  流浪的翅膀  
+##### 1431#       发表于 2026-5-24 15:08
+
+应该是崩了，网页端和API接口都用不了
+
