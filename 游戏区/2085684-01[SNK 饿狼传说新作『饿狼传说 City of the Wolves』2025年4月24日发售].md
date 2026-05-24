@@ -19,3 +19,13 @@
 — from S1 Next Goose v3.5.99</blockquote>
 snk看起来是经典作品轮流出新作，kof肯定有，但不知道要几年后了
 
+
+*****
+
+####  人生オワタ  
+##### 702#       发表于 2026-5-24 21:26
+
+【霸王翔吼拳！新角色空手先生评测！会是小孩新角色吗？【饿狼传说群狼之城】-哔哩哔哩】 [https://b23.tv/jb8DyNv](https://b23.tv/jb8DyNv)
+
+【「空手先生」 连招视频 - 饿狼传说 CotW 【CMV】 | 抢先体验-哔哩哔哩】 [https://b23.tv/RPZsQIu](https://b23.tv/RPZsQIu)
+
