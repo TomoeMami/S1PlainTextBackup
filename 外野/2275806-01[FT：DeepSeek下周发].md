@@ -173,3 +173,15 @@ ds服务状态那网址都打不开了<img src="https://static.stage1st.com/imag
 
 推理炸了，应该逐渐恢复了
 
+
+*****
+
+####  noword  
+##### 1435#       发表于 2026-5-24 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69664465&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-5-24 14:49</a>
+下毒是指…啥</blockquote>
+claude code 之前的版本被人发现会在发给大模型的请求开头添加一串随机数，使得本该正常命中缓存的输入无法命中缓存。而a畜自己处理了，可以正常命中缓存<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
