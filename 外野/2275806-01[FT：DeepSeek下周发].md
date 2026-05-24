@@ -150,3 +150,18 @@ ds是不是又崩了
 
 应该是崩了，网页端和API接口都用不了
 
+
+*****
+
+####  Thalassa  
+##### 1432#       发表于 2026-5-24 15:08
+
+好像是寄了，检查了一遍cc switch后去官网发现chat切到expert也挂了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名居守  
+##### 1433#       发表于 2026-5-24 15:11
+
+ds服务状态那网址都打不开了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
