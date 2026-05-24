@@ -110,3 +110,13 @@ gift篇最后是打梅菲斯兽新究极体还是另有隐藏boss，还是有看
 
 进gift篇后的几集都挺不错的，该有的悬念也在，既有梗，也有温情和爆发的场面
 
+
+*****
+
+####  leleq  
+##### 611#       发表于 2026-5-24 17:07
+
+大姐这寡妇气质真的<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+本集剧本几乎完美，ed一看果然是你会川
+
