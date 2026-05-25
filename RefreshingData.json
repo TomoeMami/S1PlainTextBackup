@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 33087,
+    "totalreply": 33089,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1779729365,
+    "lastedit": 1779729965,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17528,6 +17528,24 @@
     "newtitle": "[三国志14公布了，销量突破20万]",
     "lastedit": 1779716677,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2200027": {
+    "totalreply": 51,
+    "title": "[赛博朋克：边缘行者 第二部 制作决定！]",
+    "newtitle": "[赛博朋克：边缘行者 第二部 制作决定！]",
+    "lastedit": 1779729846,
+    "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2280160": {
+    "totalreply": 45,
+    "title": "[徐纯伟b站又更新了？]",
+    "newtitle": "[徐纯伟b站又更新了？]",
+    "lastedit": 1779730086,
+    "category": "外野",
     "active": true,
     "update": false
   }
