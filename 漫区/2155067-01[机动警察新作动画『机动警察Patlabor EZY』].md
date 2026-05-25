@@ -338,3 +338,34 @@
 
 还专门弄了波动炮音效啊
 
+
+*****
+
+####  aptx8285144  
+##### 199#       发表于 2026-5-25 13:50
+
+刚看了第一集，还可以吧，动作和气氛塑造的不错，政委、林原以及其他人物配音拿捏角色也不错，第一集犯人也不是大奸大恶的设定
+
+
+*****
+
+####  diyihaoshitu  
+##### 200#       发表于 2026-5-25 13:53
+
+不错不错，就三集吗？后面还有吗？
+
+—— 来自 vivo V2361GA, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 201#       发表于 2026-5-25 13:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69668803&amp;ptid=2155067" target="_blank">diyihaoshitu 发表于 2026-5-25 13:53</a>
+
+不错不错，就三集吗？后面还有吗？
+
+—— 来自 vivo V2361GA, Android 15, 鹅球 v3.5.99-alpha ...</blockquote>
+还有5集
+
