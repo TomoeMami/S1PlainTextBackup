@@ -62,3 +62,16 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">打完植物园，唯一的感想就是这B游戏怎么那么多玻璃墙玻璃窗，太影响观察了，打个2小时就得缓缓，要不然找路就要晕了
 
+
+*****
+
+####  纯爱战士段正淳  
+##### 983#       发表于 2026-5-25 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69628125&amp;ptid=2252823" target="_blank">adw667 发表于 2026-5-16 21:13</a>
+
+狂月这大机器人车一下多少血啊，1000血直接被带走了还行</blockquote>
+第一关那个boss吗
+
+bossrush的挑战，其他我都是一次过，就它我打了三次<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

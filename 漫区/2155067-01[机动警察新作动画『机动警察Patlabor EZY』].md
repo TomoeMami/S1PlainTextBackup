@@ -304,3 +304,13 @@
 
 —— 来自 HUAWEI ABR-AL80, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  褪色的雪花  
+##### 196#       发表于 2026-5-25 11:54
+
+第三集就是这帮人在吐槽押井守
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
