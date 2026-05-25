@@ -322,3 +322,19 @@
 
 伊藤和典当年是不是被搞得很惨阿
 
+
+*****
+
+####  nice女武神  
+##### 198#       发表于 2026-5-25 13:29
+
+<img src="https://img.stage1st.com/forum/202605/25/132940aphl4swssnnszprh.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (16.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-25 13:29 上传
+
+还专门弄了波动炮音效啊
+
