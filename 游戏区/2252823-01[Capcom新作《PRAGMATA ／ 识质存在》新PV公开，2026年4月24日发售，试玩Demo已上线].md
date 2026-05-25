@@ -75,3 +75,16 @@
 
 bossrush的挑战，其他我都是一次过，就它我打了三次<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adw667  
+##### 984#       发表于 2026-5-25 11:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69668117&amp;ptid=2252823" target="_blank">纯爱战士段正淳 发表于 2026-5-25 11:47</a>
+
+第一关那个boss吗
+
+bossrush的挑战，其他我都是一次过，就它我打了三次</blockquote>
+狂月这血条就是纸糊的，我现在打到第四章血量1400照样是一下残两下死，经常一个不小心就变成打无伤了
+
