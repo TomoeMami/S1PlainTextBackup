@@ -408,3 +408,11 @@
 
 真人版那个角色，剧情，CP，设定全是天崩的局，谁敢接啊
 
+
+*****
+
+####  aptx8285144  
+##### 206#       发表于 2026-5-25 20:21
+
+第二集写小说的想象画面真是笑喷了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，可惜第三个人开始太打明牌了，要是“神不知鬼不觉”在课长晚上来之前让观众以为这是真的就好了jpg
+
