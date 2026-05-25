@@ -54,3 +54,11 @@
 
 在我知道制作人身份之前，玩的时候看到boss 怪物的造型时脑里就闪过了不少MGRR的镜头和里面仿生机械的设计
 
+
+*****
+
+####  wthall  
+##### 982#       发表于 2026-5-25 08:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">打完植物园，唯一的感想就是这B游戏怎么那么多玻璃墙玻璃窗，太影响观察了，打个2小时就得缓缓，要不然找路就要晕了
+

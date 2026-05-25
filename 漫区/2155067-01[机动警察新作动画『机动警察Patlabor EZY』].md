@@ -240,3 +240,11 @@
 
 是不是头脑风暴开会的时候，在板子上写着大家有啥冤情可以随便说，我们这次拉投资主要是为了让大伙爽一把蛐蛐押井守的<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤黑的假面  
+##### 189#       发表于 2026-5-25 08:40
+
+看完了ezy第一章，headgear里面押井守真不是the special one啊，感觉之前造神押井守的人闹麻了
+
