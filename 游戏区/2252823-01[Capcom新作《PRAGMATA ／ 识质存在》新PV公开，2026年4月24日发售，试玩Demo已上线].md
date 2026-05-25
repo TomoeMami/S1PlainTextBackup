@@ -88,3 +88,11 @@ bossrush的挑战，其他我都是一次过，就它我打了三次<img src="ht
 bossrush的挑战，其他我都是一次过，就它我打了三次</blockquote>
 狂月这血条就是纸糊的，我现在打到第四章血量1400照样是一下残两下死，经常一个不小心就变成打无伤了
 
+
+*****
+
+####  Schwarzess  
+##### 985#       发表于 2026-5-25 13:43
+
+狂月就是这样的，后面一个红房里的空袭者一个龙车能打1500的血。那场还要处理杂兵。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
