@@ -398,3 +398,13 @@
 
 真人版等于又成平行世界了啊
 
+
+*****
+
+####  plok201  
+##### 205#       发表于 2026-5-25 18:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">讲道理，就算没有那些制作组恩怨，单从商业赚钱来说，也不可能和真人版扯上关系
+
+真人版那个角色，剧情，CP，设定全是天崩的局，谁敢接啊
+
