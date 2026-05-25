@@ -248,3 +248,13 @@
 
 看完了ezy第一章，headgear里面押井守真不是the special one啊，感觉之前造神押井守的人闹麻了
 
+
+*****
+
+####  萨尤克  
+##### 190#       发表于 2026-5-25 10:02
+
+太对味了，好评，第二第三集看的乐死<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
