@@ -276,3 +276,31 @@
 
 这队长是怎么敢盖章的
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 193#       发表于 2026-5-25 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69667748&amp;ptid=2155067" target="_blank">达达达达葱 发表于 2026-5-25 11:04</a>
+
+这队长是怎么敢盖章的</blockquote>
+其实我更好奇久我本来打算怎么销毁记录，撕掉吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poiqwe  
+##### 194#       发表于 2026-5-25 11:27
+
+本来没报啥期待，结果比预想的有意思多了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，二三集放在tv和新ova里也算是不错的集数
+
+
+*****
+
+####  解构  
+##### 195#       发表于 2026-5-25 11:32
+
+第一集有点乱，感觉像什么劣质跟风作，一度让人怀疑出渊是不是挂名。二三集就非常对劲了，人物逐个出场熟悉，外加致死量的捏他和老角色回归，主打一个安心感。
+
+—— 来自 HUAWEI ABR-AL80, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
