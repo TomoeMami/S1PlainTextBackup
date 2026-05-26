@@ -922,3 +922,30 @@ R姐就算1宝，带黑杯都能做主手了吧。我其实也在考虑是不是
 
 发现某些剑R的羁绊礼装效果改成了NP，意思就是缺了黑杯打不了1T，所以靠充能打2T是吧......
 
+
+*****
+
+####  一个陆仁贾  
+##### 47838#       发表于 2026-5-26 23:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69675678&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2026-5-26 19:12</a>
+发现某些剑R的羁绊礼装效果改成了NP，意思就是缺了黑杯打不了1T，所以靠充能打2T是吧...... ...</blockquote>
+我是2宝100级剑R，没羁绊礼装带黑杯打最后一个难度，1t是肯定没法了，看发牌，基本3t或者以内解决
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  苍蓝之枪  
+##### 47839#       发表于 2026-5-26 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69676617&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2026-5-26 23:10</a>
+
+我是2宝100级剑R，没羁绊礼装带黑杯打最后一个难度，1t是肯定没法了，看发牌，基本3t或者以内解决
+
+——  ...</blockquote>
+满树满星图满破黑杯羁绊礼装选原本效果，2宝120的话可能可以1T的，我用过这种好友
+
+但是后面几天黑杯都不带了，应该是要贪羁绊，这个配置就不够了
+
