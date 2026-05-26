@@ -72,3 +72,18 @@ SNK比天狗罗难驾驶的机体也有不少，但论人气应该他最高。
 
 真爱！
 
+
+*****
+
+####  风夏  
+##### 706#       发表于 2026-5-26 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69675201&amp;ptid=2085684" target="_blank">渺小小 发表于 2026-5-26 17:29</a>
+
+进构派生不像隔壁全勋机动性那么的好，还是要看开发。
+
+SNK比天狗罗难驾驶的机体也有不少，但论人气应该他 ...</blockquote>
+罗伯特是沙特王爷的真爱
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">妈的看来沙特真的有王爷是热爱格斗游戏或者SNK
+
