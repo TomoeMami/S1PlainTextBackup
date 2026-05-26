@@ -3474,3 +3474,16 @@ nox这二周目纯垫子啊
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  JOHNCHCHAN  
+##### 1798#       发表于 2026-5-26 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69673191&amp;ptid=2250267" target="_blank">一个陆仁贾 发表于 2026-5-26 11:33</a>
+
+贴吧有些人破防得好严重
+
+—— 来自 vivo V2419A, Android 16, 鹅球 v3.5.99</blockquote>
+任何虚构作品都经不起这样钻牛角尖，这道理其实小鬼们也懂，但是看皮套人打架哪有粉圈大战好玩
+
