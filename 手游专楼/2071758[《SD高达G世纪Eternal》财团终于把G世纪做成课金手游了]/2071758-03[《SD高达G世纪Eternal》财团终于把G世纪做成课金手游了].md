@@ -160,3 +160,11 @@ NT1直接出不来UR，到妖精高达直接出双机卡了
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qrlfafner  
+##### 4277#       发表于 2026-5-26 17:21
+
+元祖的这几个外传的机体，BD，0083，雷霆，打挑战是不是都要练的，有没有元祖系的开发优先表啊，入坑晚要补的东西有点多<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
