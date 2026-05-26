@@ -87,3 +87,11 @@ SNK比天狗罗难驾驶的机体也有不少，但论人气应该他 ...</block
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">妈的看来沙特真的有王爷是热爱格斗游戏或者SNK
 
+
+*****
+
+####  人生オワタ  
+##### 707#       发表于 2026-5-26 21:02
+
+【《饿狼传说：群狼之城》角色性能介绍 - 空手先生-哔哩哔哩】 [https://b23.tv/e4KOAat](https://b23.tv/e4KOAat)
+
