@@ -476,3 +476,13 @@
 
 cpart的制作组名字里出现一个三次元 川井宪次的真名，绷不住了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KDConan  
+##### 213#       发表于 2026-5-26 08:09
+
+写小说还暴走笑死我了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
