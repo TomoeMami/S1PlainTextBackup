@@ -108,3 +108,13 @@ PVP敲钟这个我倒无所谓，摸鱼的时候我甚至都不skip
 每赛季保底15场无 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">劲歌金曲那不是进了BGM包猛猛收米嘛，要不是SD本体还有几首是能听的，永恒这自带的BGM真是全拉完了
 
+
+*****
+
+####  blue321  
+##### 4272#       发表于 2026-5-26 14:53
+
+双人卡这就来了！太快了吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
