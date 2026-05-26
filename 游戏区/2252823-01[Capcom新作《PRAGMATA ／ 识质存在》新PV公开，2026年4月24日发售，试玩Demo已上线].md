@@ -96,3 +96,11 @@ bossrush的挑战，其他我都是一次过，就它我打了三次</blockquote
 
 狂月就是这样的，后面一个红房里的空袭者一个龙车能打1500的血。那场还要处理杂兵。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2026-03-29注册  
+##### 986#       发表于 2026-5-26 14:41
+
+狂月开荒幸好有月丝炮，不然难度很高，主要是有一把不用担心弹药的枪确实能让我缓一缓。
+
