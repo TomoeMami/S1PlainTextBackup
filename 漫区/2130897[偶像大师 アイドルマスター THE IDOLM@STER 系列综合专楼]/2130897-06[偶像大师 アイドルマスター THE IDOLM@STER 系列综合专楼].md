@@ -103,3 +103,11 @@
 
 铁也那个弱智今天刚刚有最新力作，群里看到聊天记录了，就不搬屎给漏油看了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aisakahammer  
+##### 7410#       发表于 2026-5-27 00:23
+
+搬屎可以搬到刀楼的
+
