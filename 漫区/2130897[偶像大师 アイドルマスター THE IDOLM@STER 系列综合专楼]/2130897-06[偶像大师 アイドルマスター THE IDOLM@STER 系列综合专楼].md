@@ -111,3 +111,15 @@
 
 搬屎可以搬到刀楼的
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 7411#       发表于 2026-5-27 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69676828&amp;ptid=2130897" target="_blank">aisakahammer 发表于 2026-5-27 00:23</a>
+搬屎可以搬到刀楼的</blockquote>
+既然有需求我就搬了<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PLR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
