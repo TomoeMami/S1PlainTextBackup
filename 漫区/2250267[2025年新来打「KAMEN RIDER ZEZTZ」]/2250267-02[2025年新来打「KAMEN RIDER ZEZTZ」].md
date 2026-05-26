@@ -3501,3 +3501,11 @@ nox这二周目纯垫子啊
 
 有点弄不明白妹妹外传的时间线，她的梦中学习法还是红霸教的
 
+
+*****
+
+####  haoshion  
+##### 1800#       发表于 2026-5-26 20:49
+
+最近两集感觉没活了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
