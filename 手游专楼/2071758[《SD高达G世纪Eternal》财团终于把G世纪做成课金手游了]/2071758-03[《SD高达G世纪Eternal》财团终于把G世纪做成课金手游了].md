@@ -56,3 +56,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">还有大师联盟skip了也要墨迹半天，能不能给个痛快
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4267#       发表于 2026-5-26 10:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">唉我真是服了这游戏的AI逻辑，海牛哪怕用浮游炮都把对面收了，他非要走到人脸上用小水枪给人打个丝血，然后被对面反杀
+
