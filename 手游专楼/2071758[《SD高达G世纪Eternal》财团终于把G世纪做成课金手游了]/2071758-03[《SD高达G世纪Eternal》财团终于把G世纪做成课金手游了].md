@@ -64,3 +64,24 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">唉我真是服了这游戏的AI逻辑，海牛哪怕用浮游炮都把对面收了，他非要走到人脸上用小水枪给人打个丝血，然后被对面反杀
 
+
+*****
+
+####  无念  
+##### 4268#       发表于 2026-5-26 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69672792&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-5-26 10:43</a>
+唉我真是服了这游戏的AI逻辑，海牛哪怕用浮游炮都把对面收了，他非要走到人脸上用小水枪给人打个丝血，然后 ...</blockquote>
+ai好像不会算被动减伤
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  无念  
+##### 4269#       发表于 2026-5-26 10:53
+
+PVP敲钟这个我倒无所谓，摸鱼的时候我甚至都不skip
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
