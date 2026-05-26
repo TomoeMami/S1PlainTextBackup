@@ -148,3 +148,14 @@ bossrush的挑战，其他我都是一次过，就它我打了三次</blockquote
 那个攻城锤除了教程部分还有哪个场合好用？</blockquote>
 不方便黑入的场合，比如最终boss二阶段
 
+
+*****
+
+####  jacket  
+##### 992#       发表于 2026-5-26 19:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69675723&amp;ptid=2252823" target="_blank">RαPβiT 发表于 2026-5-26 19:25</a>
+
+不方便黑入的场合，比如最终boss二阶段</blockquote>
+最终boss的近身技能确实比远程的好躲一些
+
