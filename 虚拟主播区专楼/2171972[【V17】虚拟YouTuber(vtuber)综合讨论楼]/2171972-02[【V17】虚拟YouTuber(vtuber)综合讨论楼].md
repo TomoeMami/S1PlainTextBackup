@@ -370,3 +370,35 @@ https://www.youtube.com/shorts/DkhI3IUa97c
 
 —— 来自 HUAWEI BAL-AL80, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ヒトニナル  
+##### 1939#       发表于 2026-5-26 12:31
+
+刀也退出rof-mao，然后rof-mao停了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+ピーナツくん？！
+
+*****
+
+####  渡鸦骑士  
+##### 1940#       发表于 2026-5-26 12:43
+
+你给我等一下，你虹6202年了还能玩这套啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 1941#       发表于 2026-5-26 13:35
+
+什么意思，觉得榨的差不多了准备换批人上来接班了？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  艾特娜  
+##### 1942#       发表于 2026-5-26 14:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看是加个愿意当“偶像”的进来还是彻底变成低频率活动组合吧
+
+四年半已经比不少管人公司活得都长了
+
