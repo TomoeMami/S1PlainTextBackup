@@ -906,3 +906,11 @@ R姐就算1宝，带黑杯都能做主手了吧。我其实也在考虑是不是
 
 好友基本都把黑杯下了，开始难打了......
 
+
+*****
+
+####  失落之翼  
+##### 47836#       发表于 2026-5-26 11:57
+
+现在还没开始打冠位<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
