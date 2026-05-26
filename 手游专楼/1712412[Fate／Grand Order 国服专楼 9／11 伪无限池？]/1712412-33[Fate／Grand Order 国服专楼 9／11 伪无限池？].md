@@ -914,3 +914,11 @@ R姐就算1宝，带黑杯都能做主手了吧。我其实也在考虑是不是
 
 现在还没开始打冠位<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 47837#       发表于 2026-5-26 19:12
+
+发现某些剑R的羁绊礼装效果改成了NP，意思就是缺了黑杯打不了1T，所以靠充能打2T是吧......
+
