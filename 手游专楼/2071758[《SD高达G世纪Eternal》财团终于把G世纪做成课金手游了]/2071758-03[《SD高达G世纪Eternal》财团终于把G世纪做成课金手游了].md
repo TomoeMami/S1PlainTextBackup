@@ -24,3 +24,13 @@
 
 一直在人性化方面上努力还是值得肯定的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sanada  
+##### 4264#       发表于 2026-5-26 09:05
+
+要说人性化，大师赛什么时候能把沙雕的解说打铃去掉，太浪费时间了
+
+不会真以为这样很有沉浸感吧
+
