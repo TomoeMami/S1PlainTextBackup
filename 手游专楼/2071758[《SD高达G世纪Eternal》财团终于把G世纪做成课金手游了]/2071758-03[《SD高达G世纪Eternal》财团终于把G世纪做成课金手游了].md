@@ -168,3 +168,14 @@ NT1直接出不来UR，到妖精高达直接出双机卡了
 
 元祖的这几个外传的机体，BD，0083，雷霆，打挑战是不是都要练的，有没有元祖系的开发优先表啊，入坑晚要补的东西有点多<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4278#       发表于 2026-5-26 21:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69675153&amp;ptid=2071758" target="_blank">qrlfafner 发表于 2026-5-26 17:21</a>
+
+元祖的这几个外传的机体，BD，0083，雷霆，打挑战是不是都要练的，有没有元祖系的开发优先表啊，入坑晚要补 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">100%要投入资源的就只有夏亚专用高达，超级保值，永恒之路EX 1 4 7 9 都用得上，其次BD2 3，EX4 7 15能用上，其他的就看情况来了
+
