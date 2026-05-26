@@ -34,3 +34,17 @@
 
 不会真以为这样很有沉浸感吧
 
+
+*****
+
+####  acg_gyanc  
+##### 4265#       发表于 2026-5-26 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69672150&amp;ptid=2071758" target="_blank">sanada 发表于 2026-5-26 09:05</a>
+要说人性化，大师赛什么时候能把沙雕的解说打铃去掉，太浪费时间了
+
+不会真以为这样很有沉浸感吧 ...</blockquote>
+竞技场改版之前是直接进战斗的，没卵用改动加了一堆g的要素以后就变成现在这样了，真的很无语<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
