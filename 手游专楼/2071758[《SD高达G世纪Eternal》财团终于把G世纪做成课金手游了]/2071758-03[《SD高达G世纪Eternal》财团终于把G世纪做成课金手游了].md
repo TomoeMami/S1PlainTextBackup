@@ -95,3 +95,16 @@ PVP敲钟这个我倒无所谓，摸鱼的时候我甚至都不skip
 
 每赛季保底15场无意义低段位划水战，配合一贯的拖沓演出（skip了都要给你搞点延时动画增强沉浸感是吧？）和拉胯BGM（背景音就纯听个氛围感是吧？原作那么多劲歌金曲塞战场曲包都不能拿来remix凑合一下吗？我寻思隔壁机战哪怕整备BGM都没这么闷吧），属实折磨
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4271#       发表于 2026-5-26 12:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69673488&amp;ptid=2071758" target="_blank">裂空之龙 发表于 2026-5-26 12:23</a>
+
+最该做的还是得减少pvp升段次数吧，哪怕像其他手游一样，根据上一次结算段位回滚2段呢？
+
+每赛季保底15场无 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">劲歌金曲那不是进了BGM包猛猛收米嘛，要不是SD本体还有几首是能听的，永恒这自带的BGM真是全拉完了
+
