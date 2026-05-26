@@ -118,3 +118,25 @@ PVP敲钟这个我倒无所谓，摸鱼的时候我甚至都不skip
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4273#       发表于 2026-5-26 15:36
+
+ 本帖最后由 螺旋的小夜曲 于 2026-5-26 15:37 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">之前X限定池的华沙高已经算双人卡了吧
+
+上一次看到拼好机似乎还是山东敢达
+
+
+*****
+
+####  plok201  
+##### 4274#       发表于 2026-5-26 15:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我还以为卡池双人，然后活动给个单独
+
+这下卡池有趣了，应该来2台双人机，反倒成了这个月最有看头的卡池
+
