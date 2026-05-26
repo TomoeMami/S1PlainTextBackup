@@ -543,3 +543,11 @@ CGディレクター：長嶺明音
 
 这个PV看上去很一般，没什么特别的亮点<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Crunch_ll  
+##### 44#       发表于 2026-5-26 22:07
+
+サーヤ的声线也还算合适，就是开头的破音有些出戏
+
