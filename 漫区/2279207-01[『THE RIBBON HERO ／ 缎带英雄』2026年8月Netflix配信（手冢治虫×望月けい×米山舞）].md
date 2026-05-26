@@ -562,3 +562,11 @@ CGディレクター：長嶺明音
 你和原作有一毛钱的关系吗请问？</blockquote>
 也许类似浦泽直树的《冥王》那样的改编
 
+
+*****
+
+####  偽ウサギ  
+##### 46#       发表于 2026-5-27 00:06
+
+这pv竟然给我看出了银河美少年的即视感，特别是女主战斗时还喊着口号<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
