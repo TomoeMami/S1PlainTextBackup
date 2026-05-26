@@ -551,3 +551,14 @@ CGディレクター：長嶺明音
 
 サーヤ的声线也还算合适，就是开头的破音有些出戏
 
+
+*****
+
+####  发财就收  
+##### 45#       发表于 2026-5-26 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69676303&amp;ptid=2279207" target="_blank">寂静桑 发表于 2026-5-26 21:37</a>
+
+你和原作有一毛钱的关系吗请问？</blockquote>
+也许类似浦泽直树的《冥王》那样的改编
+
