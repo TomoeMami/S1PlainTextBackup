@@ -22,3 +22,13 @@
 
 thinky games 5月28有个THINKY DIRECT
 
+
+*****
+
+####  茄碱  
+##### 322#       发表于 2026-5-27 14:03
+
+[https://steven-miller.itch.io/pull-chain](https://steven-miller.itch.io/pull-chain)
+
+一个类推箱游戏，机制挺有意思，关卡相当巧妙
+

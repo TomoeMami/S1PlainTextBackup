@@ -588,3 +588,13 @@ CGディレクター：長嶺明音
 
 pv看的好无聊啊，又在大喊守护了，为大家而战了，人设也不怎么样<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cqc1021  
+##### 49#       发表于 2026-5-27 13:59
+
+这PV完全就是个一般路过马猴烧酒动画<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
