@@ -111,3 +111,36 @@ SNK比天狗罗难驾驶的机体也有不少，但论人气应该他 ...</block
 
 【《饿狼传说：群狼之城》空手先生 长版动画宣传片-哔哩哔哩】 [https://b23.tv/LmM0K2d](https://b23.tv/LmM0K2d)
 
+
+*****
+
+####  ナルバレック  
+##### 709#       发表于 2026-5-27 23:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69675267&amp;ptid=2085684" target="_blank">风夏 发表于 2026-5-26 17:43</a>
+
+罗伯特是沙特王爷的真爱
+
+妈的看来沙特真的有王爷是热爱格斗游戏或者SNK ...</blockquote>
+SNK老板是那个沙特老大，近五六年的国家一把手
+
+
+*****
+
+####  风夏  
+##### 710#       发表于 2026-5-27 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69682703&amp;ptid=2085684" target="_blank">ナルバレック 发表于 2026-5-27 23:28</a>
+
+SNK老板是那个沙特老大，近五六年的国家一把手</blockquote>
+本萨勒曼是老板没疑问，不过他应该没心思管到这么细节的地方吧
+
+可能是王储的某个兄弟负责执行的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 711#       发表于 2026-5-27 23:34
+
+空手先生极限流的那头熊，那是去隔壁斗士历史薅的彩蛋?
+
