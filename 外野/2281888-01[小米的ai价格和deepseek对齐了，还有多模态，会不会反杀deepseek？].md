@@ -628,3 +628,13 @@ key 已经失效了，可能是检测到泄露自动失效了了吧
 https://www.huxiu.com/article/4861980.html?f=rss</blockquote>
 这种稿子发出来都不觉得寒碜吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jago2051  
+##### 56#       发表于 2026-5-28 00:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69682196&amp;ptid=2281888" target="_blank">飛霞精灵 发表于 2026-5-27 21:45</a>
+差俩字，抓着国产头部碰瓷。洋爹那是万万不敢碰的尊卑有序。</blockquote>
+当初不是靠碰苹果起家的？这种打法只能说抛开道德不谈，还是低成本且有效的。<img src="https://static.stage1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
+
