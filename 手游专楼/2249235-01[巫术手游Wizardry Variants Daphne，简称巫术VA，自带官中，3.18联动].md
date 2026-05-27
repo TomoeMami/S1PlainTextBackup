@@ -62,3 +62,11 @@
 
 练完红胡子才来运红胡子，还好没升阶
 
+
+*****
+
+####  hypermutike  
+##### 816#       发表于 2026-5-27 21:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">预告剪影发了一个SR盗贼角色何意味，这个月就这么摸了吗...我的SP火矮人什么时候来
+
