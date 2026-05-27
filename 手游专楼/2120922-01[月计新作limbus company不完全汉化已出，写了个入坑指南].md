@@ -21,3 +21,14 @@
 这次大更新必须重新下载游戏暴露出的问题竟然是我国有一部分年轻人不知道"邮箱"是什么也懒得去研究………… ...</blockquote>
 这代年轻人记事起接触到的就是移动互联网<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">电邮这种旧时代的老东西不知道很正常啦
 
+
+*****
+
+####  Hominidae  
+##### 1346#       发表于 2026-5-27 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69677249&amp;ptid=2120922" target="_blank">kurihayn 发表于 2026-5-27 08:15</a>
+
+这次大更新必须重新下载游戏暴露出的问题竟然是我国有一部分年轻人不知道"邮箱"是什么也懒得去研究………… ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
