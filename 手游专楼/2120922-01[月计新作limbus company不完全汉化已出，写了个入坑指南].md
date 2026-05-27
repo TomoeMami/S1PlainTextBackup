@@ -44,3 +44,67 @@
 
 当然弃游理由千千万我也管不了别人，就是太惊讶了吐槽一下
 
+
+*****
+
+####  Jamaisvu  
+##### 1348#       发表于 2026-5-27 23:00
+
+赶在新轨道线之前水一下伞夫伪单通：
+
+<img src="https://img.stage1st.com/forum/202605/27/224340pwzix7u429vwi6c7.jpg" referrerpolicy="no-referrer">
+
+<strong>20260525013901_1.jpg</strong> (494.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-27 22:43 上传
+
+最大伤害，虽然不高，但“开”的气势很足，不输两面宿傩！<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202605/27/224348fzokurusbru31bno.jpg" referrerpolicy="no-referrer">
+
+<strong>20260525010856_1.jpg</strong> (316.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-27 22:43 上传
+
+作为保底的束缚之王，不过后期用到的时机也不多...而且在真正需要它的句点包反而资源不够开不出来。
+
+<img src="https://img.stage1st.com/forum/202605/27/224648ai42aallioti8lat.jpg" referrerpolicy="no-referrer">
+
+<strong>20260525015154_1.jpg</strong> (364.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-27 22:46 上传
+
+<img src="https://img.stage1st.com/forum/202605/27/224647frmoor11wki8k8r1.jpg" referrerpolicy="no-referrer">
+
+<strong>20260525015208_1.jpg</strong> (367.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-27 22:46 上传
+
+观测了山茶花，八音盒，鬼鞋。
+
+因为贪时间枷锁（两个打击技能）和山眼信（123技能）的buff，技能数量是1-2-3。
+
+为什么是伪单通呢，因为合山眼信要走无作为者拿眼镜，结果赌输了，关底不是扭曲东郎而是神备东郎，一回合结束就被种进地里...只能胜之不武了。
+
+然后在体检包又不小心入手了那一日的记录，这时候都九层了，已经没法用快感和炎鳞清小怪了...于是找了几个保镖把伞神抬进了11层。
+
+<img src="https://img.stage1st.com/forum/202605/27/225015m00kdk090hvkk9v9.jpg" referrerpolicy="no-referrer">
+
+<strong>20260525015113_1.jpg</strong> (380.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-27 22:50 上传
+
+好在11-15有专属控理智buff，中途一个隐藏boss也没碰上，顺利过关。
+
+有了这段经历，感觉什么困难都能克服了，狐神伟大，相信狐神是不需要理由的！<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
