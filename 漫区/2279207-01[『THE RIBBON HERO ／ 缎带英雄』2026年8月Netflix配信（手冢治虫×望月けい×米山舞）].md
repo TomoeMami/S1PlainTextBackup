@@ -570,3 +570,13 @@ CGディレクター：長嶺明音
 
 这pv竟然给我看出了银河美少年的即视感，特别是女主战斗时还喊着口号<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xwr  
+##### 47#       发表于 2026-5-27 07:48
+
+五十岚祐贵初监督？
+
+看PV还行
+
