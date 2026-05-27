@@ -569,3 +569,62 @@ key 已经失效了，可能是检测到泄露自动失效了了吧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就是说，为什么一个多模态的不和多模态的比呢，是营销效果不好还是真的怕比不过
 
+
+*****
+
+####  Nanachi  
+##### 54#       发表于 2026-5-28 00:50
+
+小米：请叫我Token 价格屠夫-虎嗅网
+[https://www.huxiu.com/article/4861980.html?f=rss](https://www.huxiu.com/article/4861980.html?f=rss)
+
+押注2026年Token大涨价的人，短短一周迎来两次打脸。
+
+5月22日，DeepSeek宣布DeepSeek V4 Pro永久降价；今天凌晨，小米MiMo-V2.5系列跟进降价，最高降幅达到99%。
+
+与此同时，小米Token Plan计费体系同步优化，定价不变，可用量提升至原来的5至8倍。
+
+没有出乎太多意料，海外Reddit、X平台以及各大开发者论坛上关于小米MiMo模型降价的讨论热度也是迅速飙升。
+
+小米大模型永久降价99%，正面对标DeepSeek？-钛媒体官方网站
+[https://www.tmtpost.com/8004327.html](https://www.tmtpost.com/8004327.html)
+
+此前，DeepSeek宣布API降价，紧接着，小米也宣布其大模型永久降价，最高可达99%。
+
+时间线上看，5月22日，DeepSeek宣布V4-Pro模型API价格永久降价75%，缓存命中输入低至每百万Tokens 0.025元人民币。
+
+仅过了5天，5月27日，小米就祭出杀招：MiMo-V2.5系列API永久降价，最高降幅99%，Pro版缓存命中输入降到与DeepSeek相同的0.025元/百万Tokens，标准版甚至更低——0.02元/百万Tokens。
+
+同一价位、甚至更低，前后脚宣布。这不是跟风，是实实在在的“对标”。
+
+“价格屠夫”来了：小米MiMo大模型API永久降价最高达99% - 华尔街见闻
+[https://wallstreetcn.com/articles/3773246](https://wallstreetcn.com/articles/3773246)
+
+5月27日，小米宣布MiMo-V2.5系列大模型API价格体系进行永久性调价，最高降幅度达99%，且不再区分上下文长度。
+
+具体来看MiMo-V2.5-Pro：
+
+百万tokens输入（缓存命中）只需要0.025元。
+
+百万tokens输入（缓存未命中）3元。
+
+百万tokens输出6元。
+
+不仅如此，Token Plan方面，小米采取“加量不加价”策略，用户在Agent或Code场景下的可用 Token 数量将提升至原来的5-8倍，并把规则调整为“所见即所得”，简化了因换算导致的复杂计价逻辑。
+
+----
+
+价格屠夫来了！
+
+*****
+
+####  2017.05.04  
+##### 55#       发表于 2026-5-28 00:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69683003&amp;ptid=2281888" target="_blank">Nanachi 发表于 2026-5-28 00:50</a>
+
+小米：请叫我Token 价格屠夫-虎嗅网
+
+https://www.huxiu.com/article/4861980.html?f=rss</blockquote>
+这种稿子发出来都不觉得寒碜吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
