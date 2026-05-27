@@ -646,3 +646,11 @@ https://www.huxiu.com/article/4861980.html?f=rss</blockquote>
 
 小米的AI，别搞笑了好吧？<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  霸道总裁  
+##### 58#       发表于 2026-5-28 02:54
+
+想起雷军给王传福科普：海天的大压铸，这个生产线我们自研的，搞了两套。
+

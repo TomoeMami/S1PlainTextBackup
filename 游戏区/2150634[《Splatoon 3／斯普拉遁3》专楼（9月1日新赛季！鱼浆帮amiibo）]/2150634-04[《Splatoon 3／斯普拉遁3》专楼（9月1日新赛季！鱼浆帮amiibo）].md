@@ -47,3 +47,11 @@
 是枪的问题，自从玩了银喷，打了有40局，基本30多局都是涂地第一，杀人也不少。胜率确实稳定在50了 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">能找到乐趣会很容易上头的，sp有神奇的再来一局的魅力。
 
+
+*****
+
+####  藏獒·烨  
+##### 5884#       发表于 2026-5-28 02:52
+
+我觉得新人最容易找到乐趣和爽感的是北斋，就是有点累手<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
