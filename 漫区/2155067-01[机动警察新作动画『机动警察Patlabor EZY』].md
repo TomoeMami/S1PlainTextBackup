@@ -612,3 +612,14 @@ Y隐喻
 
 第一集有些无聊，第二集最有趣，也是我最喜欢的机动警察日常剧情味道，第三集所有人物都太自我有些恶心
 
+
+*****
+
+####  ティグル  
+##### 227#       发表于 2026-5-27 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69680353&amp;ptid=2155067" target="_blank">鱼雷鲨 发表于 2026-5-27 16:39</a>
+
+红眼镜/犬狼系列就始终在软重启吧</blockquote>
+票房炸完了但是鸭嘴兽自己又放不下，卡在这里了
+
