@@ -79,3 +79,11 @@
 主要是前有市长后有泰妮，很难忍住不跳吧</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">技能太平庸了 当辅助就一个加伤害的卡灵闪甚至只有一个有那效果 无论是当盾还是当抽卡过牌当输出都差一截 命座更是搞笑 想触发2命效果需要4命和6命 纯纯CJB
 
+
+*****
+
+####  windaria  
+##### 767#       发表于 2026-5-27 22:42
+
+唯一优点是萝莉
+
