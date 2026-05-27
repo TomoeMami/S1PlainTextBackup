@@ -654,3 +654,25 @@ https://www.huxiu.com/article/4861980.html?f=rss</blockquote>
 
 想起雷军给王传福科普：海天的大压铸，这个生产线我们自研的，搞了两套。
 
+
+*****
+
+####  億万千  
+##### 59#       发表于 2026-5-28 03:03
+
+还行其实，在国产token plan里属于便宜能用的水平，应该会有一些市占率出来
+
+还是祝福国产厂家能在高水平市场里有自己的位置
+
+*****
+
+####  The_Ether_  
+##### 60#       发表于 2026-5-28 03:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69683003&amp;ptid=2281888" target="_blank">Nanachi 发表于 2026-5-28 00:50</a>
+
+小米：请叫我Token 价格屠夫-虎嗅网
+
+https://www.huxiu.com/article/4861980.html?f=rss</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">小米这个企业真是让人恶心啊
+
