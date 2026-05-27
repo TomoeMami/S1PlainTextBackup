@@ -580,3 +580,11 @@ CGディレクター：長嶺明音
 
 看PV还行
 
+
+*****
+
+####  yskwyk  
+##### 48#       发表于 2026-5-27 09:01
+
+pv看的好无聊啊，又在大喊守护了，为大家而战了，人设也不怎么样<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
