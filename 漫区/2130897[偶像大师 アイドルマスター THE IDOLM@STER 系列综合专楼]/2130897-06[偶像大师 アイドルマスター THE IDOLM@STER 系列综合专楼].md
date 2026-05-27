@@ -256,3 +256,11 @@ bn：明白了，宅宅们都喜欢联动，以后加大力度
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  茄子自走炮  
+##### 7424#       发表于 2026-5-28 06:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">cyber系不管你出身的 大概能给马和学马来几首吧
+
