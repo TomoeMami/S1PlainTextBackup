@@ -144,3 +144,32 @@ SNK老板是那个沙特老大，近五六年的国家一把手</blockquote>
 
 空手先生极限流的那头熊，那是去隔壁斗士历史薅的彩蛋?
 
+
+*****
+
+####  大十字紅朔  
+##### 712#       发表于 2026-5-28 00:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69682008&amp;ptid=2085684" target="_blank">人生オワタ 发表于 2026-5-27 21:16</a>
+
+【《饿狼传说：群狼之城》空手先生 长版动画宣传片-哔哩哔哩】 https://b23.tv/LmM0K2d
+
+ ...</blockquote>
+饿狼世界线
+
+1960年12月7日出生
+
+也可能是61年或者70年
+
+*****
+
+####  大十字紅朔  
+##### 713#       发表于 2026-5-28 00:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69675267&amp;ptid=2085684" target="_blank">风夏 发表于 2026-5-26 17:43</a>
+
+罗伯特是沙特王爷的真爱
+
+妈的看来沙特真的有王爷是热爱格斗游戏或者SNK ...</blockquote>
+其实就是那个传说把美国记者肢解了的那个皇太子……
+
