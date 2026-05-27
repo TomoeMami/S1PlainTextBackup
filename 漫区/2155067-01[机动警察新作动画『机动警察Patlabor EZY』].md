@@ -623,3 +623,14 @@ Y隐喻
 红眼镜/犬狼系列就始终在软重启吧</blockquote>
 票房炸完了但是鸭嘴兽自己又放不下，卡在这里了
 
+
+*****
+
+####  Siran_China  
+##### 228#       发表于 2026-5-28 01:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69679119&amp;ptid=2155067" target="_blank">赤黑的假面 发表于 2026-5-27 13:01</a>
+
+好家伙，原来是鸭圣反对出机动警察新作啊</blockquote>
+说反了吧，这采访里不是明确说反对新作的人不是鸭子
+
