@@ -698,3 +698,19 @@ https://www.huxiu.com/article/4861980.html?f=rss</blockquote>
 
 可得瑟瑟吗？
 
+
+*****
+
+####  zxlice  
+##### 63#       发表于 2026-5-28 07:37
+
+太恶心了吧这企业
+
+
+*****
+
+####  方正电脑2  
+##### 64#       发表于 2026-5-28 07:43
+
+deepseek是人工智能界的su7u<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
