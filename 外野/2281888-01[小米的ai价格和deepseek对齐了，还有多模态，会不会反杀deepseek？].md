@@ -676,3 +676,17 @@ https://www.huxiu.com/article/4861980.html?f=rss</blockquote>
 https://www.huxiu.com/article/4861980.html?f=rss</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">小米这个企业真是让人恶心啊
 
+
+*****
+
+####  pointer243  
+##### 61#       发表于 2026-5-28 05:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69683003&amp;ptid=2281888" target="_blank">Nanachi 发表于 2026-5-28 00:50</a>
+小米：请叫我Token 价格屠夫-虎嗅网
+
+https://www.huxiu.com/article/4861980.html?f=rss</blockquote>
+小米：叫我老蹭就好了
+
+—— 来自 motorola edge 2025, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
