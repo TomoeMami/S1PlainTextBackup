@@ -42,3 +42,11 @@
 
 新的小女孩是不是不太行，本来以为是反击队，再不济是市长队，现在看起来更像打榜专拐<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 763#       发表于 2026-5-27 10:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了UG 这是第二个我打算跳过的角色 完全看不出亮点
+
