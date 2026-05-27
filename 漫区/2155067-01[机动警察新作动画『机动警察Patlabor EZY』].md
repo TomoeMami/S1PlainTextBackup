@@ -634,3 +634,14 @@ Y隐喻
 好家伙，原来是鸭圣反对出机动警察新作啊</blockquote>
 说反了吧，这采访里不是明确说反对新作的人不是鸭子
 
+
+*****
+
+####  鱼雷鲨  
+##### 229#       发表于 2026-5-28 01:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69680534&amp;ptid=2155067" target="_blank">ティグル 发表于 2026-5-27 17:02</a>
+
+票房炸完了但是鸭嘴兽自己又放不下，卡在这里了</blockquote>
+好像不亏本的只有韩国的平行世界版
+
