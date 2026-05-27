@@ -638,3 +638,11 @@ https://www.huxiu.com/article/4861980.html?f=rss</blockquote>
 差俩字，抓着国产头部碰瓷。洋爹那是万万不敢碰的尊卑有序。</blockquote>
 当初不是靠碰苹果起家的？这种打法只能说抛开道德不谈，还是低成本且有效的。<img src="https://static.stage1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红色福音  
+##### 57#       发表于 2026-5-28 01:33
+
+小米的AI，别搞笑了好吧？<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
