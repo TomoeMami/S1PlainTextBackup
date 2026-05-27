@@ -949,3 +949,13 @@ R姐就算1宝，带黑杯都能做主手了吧。我其实也在考虑是不是
 
 但是后面几天黑杯都不带了，应该是要贪羁绊，这个配置就不够了
 
+
+*****
+
+####  GALLADE  
+##### 47840#       发表于 2026-5-27 08:38
+
+就和我前面那样，切NP应该是为了用双核宝具流1T
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算牌1T太费神了，这得把BBC玩出花来才能自动啊
+
