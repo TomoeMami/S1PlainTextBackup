@@ -95,3 +95,19 @@ SNK比天狗罗难驾驶的机体也有不少，但论人气应该他 ...</block
 
 【《饿狼传说：群狼之城》角色性能介绍 - 空手先生-哔哩哔哩】 [https://b23.tv/e4KOAat](https://b23.tv/e4KOAat)
 
+
+*****
+
+####  人生オワタ  
+##### 708#       发表于 2026-5-27 21:16
+
+<img src="https://img.stage1st.com/forum/202605/27/211649n0drb2w6c20owpd0.png" referrerpolicy="no-referrer">
+
+<strong>1779887794501.png</strong> (1.26 MB, 下载次数: 0)
+
+下载附件
+
+2026-5-27 21:16 上传
+
+【《饿狼传说：群狼之城》空手先生 长版动画宣传片-哔哩哔哩】 [https://b23.tv/LmM0K2d](https://b23.tv/LmM0K2d)
+
