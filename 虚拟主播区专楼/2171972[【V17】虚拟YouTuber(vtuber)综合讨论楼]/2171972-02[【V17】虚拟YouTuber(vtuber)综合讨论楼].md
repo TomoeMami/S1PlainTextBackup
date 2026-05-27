@@ -410,3 +410,13 @@ https://www.youtube.com/shorts/DkhI3IUa97c
 
 结果刀也回应的内容真是一点都不令人意外<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 1944#       发表于 2026-5-27 18:18
+
+vspo又在删b站投稿了？
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

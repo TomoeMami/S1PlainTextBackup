@@ -154,3 +154,17 @@
 还记得当年追番只看了前两集，除了记得OP好听外直接弃番了。没想 ...</blockquote>
 神SUMMER的作曲者明天就缓刑结束了，还蛮巧的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Unlight  
+##### 7415#         楼主| 发表于 2026-5-27 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69680660&amp;ptid=2130897" target="_blank">姪乃浜kozue 发表于 2026-5-27 17:17</a>
+刚刚补完2011年的本家动画，真好啊真好啊
+
+还记得当年追番只看了前两集，除了记得OP好听外直接弃番了。没想 ...</blockquote>
+就是因为本家动画太好，所以当时泥潭都信jzgg啊<img src="https://static.stage1st.com/image/smiley/carton2017/291.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
