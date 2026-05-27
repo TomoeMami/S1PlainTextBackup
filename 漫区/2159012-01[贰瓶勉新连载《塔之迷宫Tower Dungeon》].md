@@ -1710,3 +1710,19 @@ G9E2ljabgAAmLFz.jpg
 
 （4）26话P23，卡拉修听到母亲说萨尔甘已经是大人了以后吃了一惊，这是为什么？吸收生命之火有先决条件吗？
 
+
+*****
+
+####  zzf111  
+##### 169#       发表于 2026-5-28 02:27
+
+<img src="https://img.stage1st.com/forum/202605/28/022614ea3w1fgh8rhadwch.jpg" referrerpolicy="no-referrer">
+
+<strong>Toha Chart v2.0.jpg.jpg</strong> (989.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-28 02:26 上传
+
+4chan动画版人作的新版关系图（4月版本），晚点汉化
+
