@@ -50,3 +50,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了UG 这是第二个我打算跳过的角色 完全看不出亮点
 
+
+*****
+
+####  伊布桑  
+##### 764#       发表于 2026-5-27 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69677863&amp;ptid=2256125" target="_blank">qixinno1 发表于 2026-5-27 10:05</a>
+除了UG 这是第二个我打算跳过的角色 完全看不出亮点</blockquote>
+主要是前有市长后有泰妮，很难忍住不跳吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
