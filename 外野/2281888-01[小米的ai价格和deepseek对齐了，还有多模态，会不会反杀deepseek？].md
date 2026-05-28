@@ -855,3 +855,48 @@ MIMO是引西悦<img src="https://static.stage1st.com/image/smiley/face2017/067.
 
 还是去linux.do那种地方吧
 
+
+*****
+
+####  stanzgy  
+##### 80#       发表于 2026-5-28 09:57
+
+小米这公司没有做大模型这类基础研发的基因，还是别来搅和了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  飛霞精灵  
+##### 81#       发表于 2026-5-28 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69683850&amp;ptid=2281888" target="_blank">卡普空 发表于 2026-5-28 09:24</a>
+
+碰瓷也就算了，问题是碰瓷的产品也是从友商那边挖人做出来的，然后洋人之下我第一 ...</blockquote>
+DS是否愿意把对方当友都是个问题<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+这边谈融资（难说）那边挖人<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwjhb  
+##### 82#       发表于 2026-5-28 10:01
+
+昨天试了下 1亿token要17亿credits哦<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/32/e5acad717d909f33404be1189b49b7d1/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/9b2298253e4f4a2b9ef75b8428f0dcf7/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2512BPNDAC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  舞以  
+##### 83#       发表于 2026-5-28 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69683817&amp;ptid=2281888" target="_blank">abcxiawei 发表于 2026-5-28 09:19</a>
+请问这个猫榜的地址在哪里？</blockquote>
+https://llm2014.github.io/llm_benchmark
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
