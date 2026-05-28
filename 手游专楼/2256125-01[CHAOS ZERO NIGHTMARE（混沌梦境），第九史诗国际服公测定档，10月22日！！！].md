@@ -134,3 +134,18 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">过完教程删了 实在受不了再打一遍了
 
+
+*****
+
+####  sxsdark  
+##### 773#       发表于 2026-5-28 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69684573&amp;ptid=2256125" target="_blank">伊布桑 发表于 2026-5-28 10:58</a>
+
+看你刷不刷初始之类的了
+
+https://space.bilibili.com/94281536?spm_id_from=333.1391.0.0
+
+有个讲得特别细 ...</blockquote>
+休闲玩玩，不刷初始，谢谢佬
+
