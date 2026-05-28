@@ -3573,3 +3573,15 @@ code这组织说得很大，实际上除了杂兵，偌大的组织没几个人<
 
 三号38集就要被牢诺暴揍了，后面还有一季的量呢，应该还是要把梦魇方的大BOSS弄出来
 
+
+*****
+
+####  JOHNCHCHAN  
+##### 1807#       发表于 2026-5-28 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69683936&amp;ptid=2250267" target="_blank">faxi 发表于 2026-5-28 09:38</a>
+不会到最后还是打老三吧,，后面都是和老檀一样被反复鞭尸？
+
+这集几乎就是明牌老三就是忘却了，那总不能CODE ...</blockquote>
+反复鞭尸好，现在的人就爱看反复鞭尸，加布后期被骂的其中一点就是干部BOSS杀得太快，平均两集杀一个不够看（我觉得后期确实水，但不觉得BOSS杀快点有问题）
+
