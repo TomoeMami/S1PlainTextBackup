@@ -741,3 +741,28 @@ https://github.com/TomoeMami/S1PlainTextBackup/issues/13</blockquote>
 
 ds 的 Token 就是国内厂商最好用的
 
+
+*****
+
+####  ratchetes  
+##### 68#       发表于 2026-5-28 08:08
+
+天天蹭deepseek，做营销还得是米。
+
+
+*****
+
+####  zyxsqw  
+##### 69#       发表于 2026-5-28 08:12
+
+真的对齐deepseek吗？mimo这credits看着骨折，但烧的速度也快了不知道多少倍，怕不是在玩朝三暮四的耍猴把戏。
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  关二爷  
+##### 70#       发表于 2026-5-28 08:14
+
+雷军啥时买个ai测评平台
+
