@@ -803,3 +803,45 @@ ds 的 Token 就是国内厂商最好用的
 雷布斯 - 雷斯克 - 雷文锋‌</blockquote>
 还有雷雪机车
 
+
+*****
+
+####  abcxiawei  
+##### 75#       发表于 2026-5-28 09:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69681977&amp;ptid=2281888" target="_blank">舞以 发表于 2026-5-27 21:14</a>
+
+最新的猫榜
+
+qwen3.7max还没分数
+
+但是我在知乎已经看到给雷神贷款下一代mimo直接打平opus了 ...</blockquote>
+请问这个猫榜的地址在哪里？
+
+*****
+
+####  某浩  
+##### 76#       发表于 2026-5-28 09:21
+
+只是大模型是赢家通吃的行业，小米的真的好的话根本不用碰瓷，肯定有很多人会用。
+
+
+*****
+
+####  白花蛇草水  
+##### 77#       发表于 2026-5-28 09:24
+
+DEEPSEEK是鲸震恩<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+MIMO是引西悦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡普空  
+##### 78#       发表于 2026-5-28 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69682196&amp;ptid=2281888" target="_blank">飛霞精灵 发表于 2026-5-27 21:45</a>
+
+差俩字，抓着国产头部碰瓷。洋爹那是万万不敢碰的尊卑有序。</blockquote>
+碰瓷也就算了，问题是碰瓷的产品也是从友商那边挖人做出来的，然后洋人之下我第一
+
