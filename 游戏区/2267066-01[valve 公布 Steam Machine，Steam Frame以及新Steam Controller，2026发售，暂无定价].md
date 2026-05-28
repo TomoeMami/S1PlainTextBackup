@@ -3928,3 +3928,11 @@ valve发言人接受Linus tech tip采访时透露，他们认为steam machine的
 这就是diy用户的福报，ani三家都换着花样恶心玩家，所以我打心底希望g胖能搅起点水花来。 ...</blockquote>
 还想要g胖的水花吗？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伽拉忒亚i  
+##### 378#       发表于 2026-5-28 15:32
+
+令人感叹
+
