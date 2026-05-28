@@ -3585,3 +3585,13 @@ code这组织说得很大，实际上除了杂兵，偌大的组织没几个人<
 这集几乎就是明牌老三就是忘却了，那总不能CODE ...</blockquote>
 反复鞭尸好，现在的人就爱看反复鞭尸，加布后期被骂的其中一点就是干部BOSS杀得太快，平均两集杀一个不够看（我觉得后期确实水，但不觉得BOSS杀快点有问题）
 
+
+*****
+
+####  黑上シグマ  
+##### 1808#       发表于 2026-5-28 17:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">脑哥推上发了张照片，除了他还有老千虾饺橘前辈，别是outsiders又要出新作了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
