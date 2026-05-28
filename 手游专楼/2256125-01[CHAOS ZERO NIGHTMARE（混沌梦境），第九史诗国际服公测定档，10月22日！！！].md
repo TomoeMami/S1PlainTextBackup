@@ -158,3 +158,24 @@ https://space.bilibili.com/94281536?spm_id_from=333.1391.0.0
 国际服玩了两天，半周年自选还没用，ug和娜迦哪个更值得选？初始普池我还差女主卡利佩冰狼琳也都没有，或者干脆留着等以后补缺
 另外都说奈音强，为啥我带黄毛鼠兔去打10级燃烧的生命一直翻车……扫荡经常莫名其妙过个问号死了
 
+
+*****
+
+####  qixinno1  
+##### 775#       发表于 2026-5-28 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69684903&amp;ptid=2256125" target="_blank">冰原狼 发表于 2026-5-28 11:45</a>
+
+国际服玩了两天，半周年自选还没用，ug和娜迦哪个更值得选？初始普池我还差女主卡利佩冰狼琳也都没有，或者 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 UG和娜嘉之间竟然还犹豫可还行 目前最区的三个角色就是重做后的小刀 UG和新出的LOLI 翻车你看看词条是不是有随机丢一张卡 那玩意高几率会把奈因的那张破碎丢了导致奈因挂机
+
+*****
+
+####  windaria  
+##### 776#       发表于 2026-5-28 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69684903&amp;ptid=2256125" target="_blank">冰原狼 发表于 2026-5-28 11:45</a>
+
+国际服玩了两天，半周年自选还没用，ug和娜迦哪个更值得选？初始普池我还差女主卡利佩冰狼琳也都没有，或者 ...</blockquote>
+再强没有奶也是很容易死啊，就算你奈音闪了个盾，不能坐火还是危险
+
