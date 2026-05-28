@@ -3936,3 +3936,13 @@ valve发言人接受Linus tech tip采访时透露，他们认为steam machine的
 
 令人感叹
 
+
+*****
+
+####  罐子  
+##### 379#       发表于 2026-5-28 15:54
+
+steam dick都+300刀了
+
+这个机器价格不敢想<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
