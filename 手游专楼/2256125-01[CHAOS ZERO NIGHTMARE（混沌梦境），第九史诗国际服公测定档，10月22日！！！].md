@@ -209,3 +209,20 @@ https://space.bilibili.com/94281536?spm_id_from=333.1391.0.0
 竟然是 区那没得犹豫了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以留着不着急选 外一之后重做翻身了
 
+
+*****
+
+####  greemoore1981  
+##### 780#       发表于 2026-5-28 12:56
+
+为啥要和谐兽耳，为啥要和谐兽耳<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  西瓜不甜不甜  
+##### 781#       发表于 2026-5-28 12:57
+
+ 本帖最后由 西瓜不甜不甜 于 2026-5-28 12:58 编辑 
+
+纯路人，稍微玩了半小时，这游戏缝了暗黑地牢加杀戮尖塔，能感觉到游戏性肯定还不错，但是这AI美术也太明显了，抽卡界面的美术好廉价<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，角色详情的立绘好糊
+
