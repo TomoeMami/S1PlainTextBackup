@@ -226,3 +226,17 @@ https://space.bilibili.com/94281536?spm_id_from=333.1391.0.0
 
 纯路人，稍微玩了半小时，这游戏缝了暗黑地牢加杀戮尖塔，能感觉到游戏性肯定还不错，但是这AI美术也太明显了，抽卡界面的美术好廉价<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，角色详情的立绘好糊
 
+
+*****
+
+####  qixinno1  
+##### 782#       发表于 2026-5-28 13:21
+
+<img src="https://img.stage1st.com/forum/202605/28/132129kmmq0gumnzghhu60.png" referrerpolicy="no-referrer">
+
+<strong>TWR@4~3(WM(Y$ZL~%6G3AHL_tmb.png</strong> (41.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-28 13:21 上传
+
