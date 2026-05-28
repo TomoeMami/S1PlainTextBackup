@@ -922,3 +922,35 @@ https://llm2014.github.io/llm_benchmark
 昨天试了下 1亿token要17亿credits哦</blockquote>
 改版之后Token Plan性价比不如直接按需付费
 
+
+*****
+
+####  AlterDialog  
+##### 86#       发表于 2026-5-28 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69681762&amp;ptid=2281888" target="_blank">此誓的守望 发表于 2026-5-27 20:38</a>
+
+米猴的脑回路的确正常人很难理解，就不能老老实实缩回知乎或者贴吧奶人共振？被扣鹅有瘾？
+
+一次又一次的送 ...</blockquote>
+哥，api key没错吗，怎么报错401认证失败了
+
+*****
+
+####  nokisubye01  
+##### 87#       发表于 2026-5-28 10:22
+
+DeepSeek马上就有多模态了？
+
+
+*****
+
+####  舞以  
+##### 88#       发表于 2026-5-28 10:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69684290&amp;ptid=2281888" target="_blank">nokisubye01 发表于 2026-5-28 10:22</a>
+DeepSeek马上就有多模态了？</blockquote>
+目前看只是个辅助用的小模型，感觉v4世代不会有原生多模态
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
