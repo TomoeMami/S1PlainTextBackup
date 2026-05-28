@@ -900,3 +900,25 @@ https://llm2014.github.io/llm_benchmark
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  镜湖月影  
+##### 84#       发表于 2026-5-28 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69681631&amp;ptid=2281888" target="_blank">阿尔法突袭 发表于 2026-5-27 20:06</a>
+
+雷军这种进入一个行业就抓着头部碰瓷的习惯是不是改不了了？</blockquote>
+抓虫:是抓着国内第一碰瓷,如果洋人也很强就是洋人第一我第二。洋一儿
+
+
+*****
+
+####  Rowen233  
+##### 85#       发表于 2026-5-28 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69684143&amp;ptid=2281888" target="_blank">qwjhb 发表于 2026-5-28 10:01</a>
+
+昨天试了下 1亿token要17亿credits哦</blockquote>
+改版之后Token Plan性价比不如直接按需付费
+
