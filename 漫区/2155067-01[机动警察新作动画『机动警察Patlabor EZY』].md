@@ -645,3 +645,16 @@ Y隐喻
 票房炸完了但是鸭嘴兽自己又放不下，卡在这里了</blockquote>
 好像不亏本的只有韩国的平行世界版
 
+
+*****
+
+####  ティグル  
+##### 230#       发表于 2026-5-28 08:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69683140&amp;ptid=2155067" target="_blank">鱼雷鲨 发表于 2026-5-28 01:58</a>
+
+好像不亏本的只有韩国的平行世界版</blockquote>
+那玩意和原作除了名字已经八竿子打不着了，影评圈也一直看不上
+
+说起来还是网飞早期投资的代表作，之后也确定了投资的路线
+
