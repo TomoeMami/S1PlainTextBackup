@@ -179,3 +179,33 @@ https://space.bilibili.com/94281536?spm_id_from=333.1391.0.0
 国际服玩了两天，半周年自选还没用，ug和娜迦哪个更值得选？初始普池我还差女主卡利佩冰狼琳也都没有，或者 ...</blockquote>
 再强没有奶也是很容易死啊，就算你奈音闪了个盾，不能坐火还是危险
 
+
+*****
+
+####  冰原狼  
+##### 777#       发表于 2026-5-28 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69684952&amp;ptid=2256125" target="_blank">qixinno1 发表于 2026-5-28 11:51</a>
+艹 UG和娜嘉之间竟然还犹豫可还行 目前最区的三个角色就是重做后的小刀 UG和新出的LOLI 翻车你看看词条是 ...</blockquote>
+竟然是 区<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那没得犹豫了
+
+*****
+
+####  冰原狼  
+##### 778#       发表于 2026-5-28 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69684978&amp;ptid=2256125" target="_blank">windaria 发表于 2026-5-28 11:53</a>
+再强没有奶也是很容易死啊，就算你奈音闪了个盾，不能坐火还是危险</blockquote>
+带了米卡扫荡结果不知道进了什么问号出来就濒死了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno1  
+##### 779#       发表于 2026-5-28 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69685080&amp;ptid=2256125" target="_blank">冰原狼 发表于 2026-5-28 12:07</a>
+
+竟然是 区那没得犹豫了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以留着不着急选 外一之后重做翻身了
+
