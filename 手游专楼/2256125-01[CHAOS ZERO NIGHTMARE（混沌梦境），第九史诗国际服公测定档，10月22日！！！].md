@@ -113,3 +113,24 @@
 
 准备入坑国服，佬们有国服攻略么？
 
+
+*****
+
+####  伊布桑  
+##### 771#       发表于 2026-5-28 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69684447&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-5-28 10:41</a>
+
+准备入坑国服，佬们有国服攻略么？</blockquote>
+看你刷不刷初始之类的了
+[https://space.bilibili.com/94281536?spm_id_from=333.1391.0.0](https://space.bilibili.com/94281536?spm_id_from=333.1391.0.0)
+
+有个讲得特别细的up主，你可以看他最新的三个视频
+
+*****
+
+####  qixinno1  
+##### 772#       发表于 2026-5-28 10:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">过完教程删了 实在受不了再打一遍了
+
