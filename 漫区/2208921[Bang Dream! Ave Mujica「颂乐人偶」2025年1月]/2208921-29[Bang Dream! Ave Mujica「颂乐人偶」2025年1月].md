@@ -165,3 +165,12 @@
        ・替换封面</blockquote>
       [https://www.bilibili.com/video/BV1WWGC6fEhu](https://www.bilibili.com/video/BV1WWGC6fEhu)
 
+
+*****
+
+####  木谷高明  
+##### 41891#       发表于 2026-5-28 16:58
+
+<img src="https://p.sda1.dev/32/eb17e95afb7a67ac78c5351f1fe867e9/image.jpg" referrerpolicy="no-referrer">
+宁蓬假药在剧情出来之前已经出了不少了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
