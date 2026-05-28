@@ -714,3 +714,22 @@ https://www.huxiu.com/article/4861980.html?f=rss</blockquote>
 
 deepseek是人工智能界的su7u<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朔方原的星  
+##### 65#       发表于 2026-5-28 07:51
+
+人不要脸真天下无敌吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vergilno1  
+##### 66#       发表于 2026-5-28 07:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69682631&amp;ptid=2281888" target="_blank">Nanachi 发表于 2026-5-27 23:14</a>
+https://github.com/TomoeMami/S1PlainTextBackup/issues/13</blockquote>
+泥潭在在外网中文内容领域的权重还是太权威了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR ELP-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
