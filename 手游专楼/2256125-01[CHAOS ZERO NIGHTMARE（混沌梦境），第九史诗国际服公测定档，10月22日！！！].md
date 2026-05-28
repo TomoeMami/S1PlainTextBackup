@@ -270,3 +270,21 @@ https://space.bilibili.com/94281536?spm_id_from=333.1391.0.0
 
 由于卡组运作模式是塔的，比超舟来说更像打牌吧，超舟其实比较接近数值类的rpg
 
+
+*****
+
+####  windaria  
+##### 786#       发表于 2026-5-28 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69685384&amp;ptid=2256125" target="_blank">greemoore1981 发表于 2026-5-28 12:56</a>
+
+为啥要和谐兽耳，为啥要和谐兽耳</blockquote>
+听说是因为女拳觉得物化女性
+
+*****
+
+####  orangee  
+##### 787#       发表于 2026-5-28 22:02
+
+选了和当时国际服一样的鼠兔开局……凯隆你别追我了20次筛选来了八遍！
+
