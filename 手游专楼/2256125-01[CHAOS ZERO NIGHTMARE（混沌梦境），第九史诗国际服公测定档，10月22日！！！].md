@@ -257,3 +257,16 @@ https://space.bilibili.com/94281536?spm_id_from=333.1391.0.0
 
 这游戏好像超时空方舟啊。。。。连剧情都很相似
 
+
+*****
+
+####  伊布桑  
+##### 785#       发表于 2026-5-28 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69685964&amp;ptid=2256125" target="_blank">christiny 发表于 2026-5-28 14:52</a>
+
+这游戏好像超时空方舟啊。。。。连剧情都很相似</blockquote>
+这游戏底子就是超时空方舟+杀戮尖塔，然后再缝点什么有的没的，成品玩着居然还行，算是给这sb项目捡到了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+由于卡组运作模式是塔的，比超舟来说更像打牌吧，超舟其实比较接近数值类的rpg
+

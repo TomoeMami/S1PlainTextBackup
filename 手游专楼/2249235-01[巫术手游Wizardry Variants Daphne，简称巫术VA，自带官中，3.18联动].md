@@ -70,3 +70,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">预告剪影发了一个SR盗贼角色何意味，这个月就这么摸了吗...我的SP火矮人什么时候来
 
+
+*****
+
+####  Flechette  
+##### 817#       发表于 2026-5-28 19:27
+
+卡池立绘含人量越来越低了，这张根本就AI直出
+
