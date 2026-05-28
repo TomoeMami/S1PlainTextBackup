@@ -3946,3 +3946,15 @@ steam dick都+300刀了
 
 这个机器价格不敢想<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 380#       发表于 2026-5-28 15:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1000往上是肯定的，我猜个低配1099吧
+
+确实令人感叹，一个连价格都不敢公布的机子被吹上天，然后现在卡在那里生死不明
+
+感觉乱扣分的也不会加回来了，帮楼上补一点吧
+
