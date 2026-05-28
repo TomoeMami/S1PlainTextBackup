@@ -3976,3 +3976,17 @@ steam dick都+300刀了
 
 俱往矣...
 
+
+*****
+
+####  胶布  
+##### 383#       发表于 2026-5-29 03:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69686483&amp;ptid=2267066" target="_blank">plok201 发表于 2026-5-28 15:59</a>
+1000往上是肯定的，我猜个低配1099吧
+
+确实令人感叹，一个连价格都不敢公布的机子被吹上天，然后现在卡在那 ...</blockquote>
+现在的硬件市场加上V社的议价能力，得往1500以上猜了。
+
+无论如何这东西没法大规模生产，也没法大规模发售了。
+
