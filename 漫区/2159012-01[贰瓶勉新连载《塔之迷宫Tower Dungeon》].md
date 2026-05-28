@@ -1752,3 +1752,28 @@ G9E2ljabgAAmLFz.jpg
 
 院长保镖被老头强行救活了，是不是说明贰叔打算写包寿司剧情？
 
+
+*****
+
+####  鱼雷鲨  
+##### 173#       发表于 2026-5-29 00:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69577630&amp;ptid=2159012" target="_blank">ww-tsl 发表于 2026-5-5 17:17</a>
+
+至今难以肯定塔之迷宫的世界观到底是“带有贰瓶设定风格的奇幻”还是“看起来是奇幻，实际上是科幻”。
+
+里 ...</blockquote>
+肯定是超构造体无限平行世界之一
+
+俩东亚重工标志放一起了都
+
+*****
+
+####  鱼雷鲨  
+##### 174#       发表于 2026-5-29 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69577552&amp;ptid=2159012" target="_blank">月亮上的珊瑚 发表于 2026-5-5 16:45</a>
+
+剧情变得复杂起来了，龙化人这个设定还有很多可以挖掘</blockquote>
+肯定是一种黑寄居子
+
