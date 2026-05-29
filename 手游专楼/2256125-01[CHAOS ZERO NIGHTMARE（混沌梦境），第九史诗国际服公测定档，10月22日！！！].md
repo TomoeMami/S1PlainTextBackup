@@ -352,3 +352,15 @@ https://space.bilibili.com/94281536?spm_id_from=333.1391.0.0
 怎么区分自己有没反和谐成功？好像角色都不怎么露呀</blockquote>
 b站有对比视频，找个有的角色对比下？
 
+
+*****
+
+####  伊布桑  
+##### 795#       发表于 2026-5-29 10:36
+
+ 本帖最后由 伊布桑 于 2026-5-29 10:37 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69689847&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-5-29 10:13</a>
+怎么区分自己有没反和谐成功？好像角色都不怎么露呀</blockquote>
+这个小开关很鸡贼，要重开两次才有用，第一次我弄好之后进去发现还是和谐，还以为自己弄错了，之后再进就好了<img src="https://static.stage1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+你点开预约送的艾美，她是有和谐区别的
+
