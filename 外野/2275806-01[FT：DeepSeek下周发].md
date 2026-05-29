@@ -201,3 +201,25 @@ api也限制次数吗</blockquote>
 
 吓哭了，让DeepSeek给我做医疗费用分布的蒙特卡洛模拟，居然给我像模像样的做出报告了，问题扔回给我看我敢不敢用了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真红之闪电  
+##### 1456#       发表于 2026-5-29 22:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69692593&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-5-29 19:08</a>
+肯定的，今天我试用了，不如gbt5.5</blockquote>
+对我来说是…和4.6相比如何…4.7我压根儿没用过
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  mitzvah  
+##### 1457#       发表于 2026-5-29 22:36
+
+ 本帖最后由 mitzvah 于 2026-5-29 22:37 编辑 
+
+看错了
+
