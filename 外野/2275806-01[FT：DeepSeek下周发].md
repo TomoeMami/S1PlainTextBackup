@@ -320,3 +320,17 @@ ds官方打击反代吧 api服务最近看起来没啥问题
 有没有试毒的看看到 ...</blockquote>
 试了下我之前和ds还有gpt讨论过的深度鉴证问题，直接报错了，看来我是无福消受了<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ml1642879  
+##### 1465#       发表于 2026-5-29 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69693561&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-5-29 22:55</a>
+chatbox的chatboxai搜索只要注册账号就可以用了，不用花钱
+
+—— 来自 HUAWEI SGU-AL10, Android 12, 鹅 ...</blockquote>
+免费只有1000credit，问了两个问题干没了
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
+
