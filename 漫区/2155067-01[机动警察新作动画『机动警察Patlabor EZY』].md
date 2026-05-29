@@ -706,3 +706,17 @@ Y隐喻
 
 感觉角色还是没那么印象深刻<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stoiorz  
+##### 236#       发表于 2026-5-29 13:29
+
+ 本帖最后由 stoiorz 于 2026-5-29 13:30 编辑 
+
+第二集好有趣，闲中有妄。为啥我看出有点编辑部的故事感觉啊。
+
+这种小处发力带点戏谑感还能凸显人物性格的方式真不错。
+
+如果骗久点大概meta味道也可以做出来。
+
