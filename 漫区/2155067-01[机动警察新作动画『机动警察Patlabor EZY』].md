@@ -687,3 +687,14 @@ Y隐喻
 好明显的ai镜头，有点出戏</blockquote>
 这片做的时候都没生成式AI视频<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 234#       发表于 2026-5-29 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69687297&amp;ptid=2155067" target="_blank">零食杀手 发表于 2026-5-28 18:35</a>
+
+柚木队员是男的还是女的？</blockquote>
+女的，第一集开头在幼儿园时自称是姐姐
+

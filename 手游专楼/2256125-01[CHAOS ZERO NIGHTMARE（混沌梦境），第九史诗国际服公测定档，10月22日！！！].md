@@ -341,3 +341,14 @@ https://space.bilibili.com/94281536?spm_id_from=333.1391.0.0
 
 怎么区分自己有没反和谐成功？好像角色都不怎么露呀
 
+
+*****
+
+####  Booorunestud  
+##### 794#       发表于 2026-5-29 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69689847&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-5-29 10:13</a>
+
+怎么区分自己有没反和谐成功？好像角色都不怎么露呀</blockquote>
+b站有对比视频，找个有的角色对比下？
+
