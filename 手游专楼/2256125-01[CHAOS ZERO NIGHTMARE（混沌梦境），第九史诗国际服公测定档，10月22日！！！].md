@@ -304,3 +304,24 @@ https://space.bilibili.com/94281536?spm_id_from=333.1391.0.0
 
 这游戏剧情有必要看吗……第一幕一二章看完了 就还挺经典的 感觉没啥看的必要
 
+
+*****
+
+####  三谷歩夢  
+##### 790#       发表于 2026-5-29 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69689497&amp;ptid=2256125" target="_blank">imba419 发表于 2026-5-29 09:26</a>
+
+这游戏剧情有必要看吗……第一幕一二章看完了 就还挺经典的 感觉没啥看的必要 ...</blockquote>
+改完的剧情还不如原剧情，直接跳就行
+
+*****
+
+####  三谷歩夢  
+##### 791#       发表于 2026-5-29 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69688642&amp;ptid=2256125" target="_blank">unclea 发表于 2026-5-29 00:39</a>
+
+这游戏的卡牌效果很多看不懂啊，名词解释都没有的，有什么科普的地方吗</blockquote>
+点开卡牌右边就有解释
+

@@ -676,3 +676,14 @@ Y隐喻
 
 柚木队员是男的还是女的？
 
+
+*****
+
+####  Azusayyy  
+##### 233#       发表于 2026-5-29 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69671123&amp;ptid=2155067" target="_blank">创始’’’天翔 发表于 2026-5-25 21:56</a>
+
+好明显的ai镜头，有点出戏</blockquote>
+这片做的时候都没生成式AI视频<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
