@@ -3619,3 +3619,19 @@ code这组织说得很大，实际上除了杂兵，偌大的组织没几个人<
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是在做梦吗
 
+
+*****
+
+####  大耳兽  
+##### 1812#       发表于 2026-5-29 21:45
+
+说起来，牢师变身次数是不是也挺少的，一周目能变身没多久就被封号了，二周目到蛮后面才变身。
+
+
+*****
+
+####  milky658  
+##### 1813#       发表于 2026-5-29 21:50
+
+能再表演下#令和荣光七人#吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么逆天能让CODE这窝子人统一战线的
+
