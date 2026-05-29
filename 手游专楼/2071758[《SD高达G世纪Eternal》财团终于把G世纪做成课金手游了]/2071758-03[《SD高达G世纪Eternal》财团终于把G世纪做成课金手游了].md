@@ -356,3 +356,11 @@ DFF牛动画还行，立绘也是一坨
 
 高人气的玩意给垃圾强度还是一堆人氪
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4296#       发表于 2026-5-29 22:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有点难受，想抽夜莺，但是下个月的观星者也想抽
+

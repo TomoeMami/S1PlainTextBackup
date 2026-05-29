@@ -223,3 +223,35 @@ api也限制次数吗</blockquote>
 
 看错了
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1458#       发表于 2026-5-29 22:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69690585&amp;ptid=2275806" target="_blank">ml1642879 发表于 2026-5-29 12:05</a>
+充了10块钱api发现chatbox的搜索引擎还要另外付费（bing search不知为何不可用），突然感觉快速模式也不 ...</blockquote>
+chatbox的chatboxai搜索只要注册账号就可以用了，不用花钱
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  杀人鲸  
+##### 1459#       发表于 2026-5-29 22:56
+
+算力真的那么缺的吗？专家模式附属的文件传送之类的功能基本上都没有了，现在就只有一个回答问题的能力了。所以卡在哪里呀？快点把新的算力集群供上来吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  舞以  
+##### 1460#       发表于 2026-5-29 22:57
+
+<blockquote>杀人鲸 发表于 2026-5-29 22:56
+算力真的那么缺的吗？专家模式附属的文件传送之类的功能基本上都没有了，现在就只有一个回答问题的能力了。 ...</blockquote>
+ds官方打击反代吧 api服务最近看起来没啥问题
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
