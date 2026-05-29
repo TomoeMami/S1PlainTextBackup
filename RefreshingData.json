@@ -5864,7 +5864,7 @@
     "newtitle": "[十周年纪念『吹响！上低音号』三期剧场版『最终乐章 吹响！上低音号』2026年上映]",
     "lastedit": 1779789969,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1980598": {
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 33549,
+    "totalreply": 33550,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1780048446,
+    "lastedit": 1780048808,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12555,10 +12555,10 @@
     "update": false
   },
   "2271402": {
-    "totalreply": 7876,
+    "totalreply": 7879,
     "title": "[任天堂病棟14楼，等一个春节春直]",
     "newtitle": "[任天堂病棟14楼，剑指六月]",
-    "lastedit": 1780048205,
+    "lastedit": 1780049165,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12699,10 +12699,10 @@
     "update": false
   },
   "2272604": {
-    "totalreply": 474,
+    "totalreply": 477,
     "title": "[2026年国际航天专楼]",
     "newtitle": "[2026年国际航天专楼：New Glenn炸了]",
-    "lastedit": 1780048447,
+    "lastedit": 1780049046,
     "category": "外野",
     "active": true,
     "update": false
@@ -14030,15 +14030,6 @@
     "active": false,
     "update": false
   },
-  "2281009": {
-    "totalreply": 46,
-    "title": "[原来这几天菲律宾发生了这么欢乐的事情（海兵队出动！）]",
-    "newtitle": "[原来这几天菲律宾发生了这么欢乐的事情（海兵队出动！）]",
-    "lastedit": 1778839107,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2279577": {
     "totalreply": 50,
     "title": "[黄昏公主将登陆多平台]",
@@ -14607,10 +14598,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 1907,
+    "totalreply": 1908,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1780048326,
+    "lastedit": 1780048925,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16380,10 +16371,10 @@
     "update": false
   },
   "2281678": {
-    "totalreply": 455,
+    "totalreply": 456,
     "title": "[韬（τ）定律？万物皆可叠？]",
     "newtitle": "[韬（τ）定律？万物皆可叠？]",
-    "lastedit": 1780048087,
+    "lastedit": 1780048808,
     "category": "外野",
     "active": true,
     "update": false
@@ -16952,7 +16943,7 @@
     "newtitle": "[柔光魔女股份有限公司 TV动画化 2024年秋]",
     "lastedit": 1779789730,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2281739": {
@@ -17280,10 +17271,10 @@
     "update": false
   },
   "2281872": {
-    "totalreply": 160,
+    "totalreply": 162,
     "title": "[余承东：全新一代问界 M9 是地球已上市的车里最强悍 SUV，没有之一]",
     "newtitle": "[余承东：全新一代问界 M9 是地球已上市的车里最强悍 SUV，没有之一]",
-    "lastedit": 1780048448,
+    "lastedit": 1780048809,
     "category": "外野",
     "active": true,
     "update": false
@@ -17802,10 +17793,10 @@
     "update": false
   },
   "2178544": {
-    "totalreply": 54,
+    "totalreply": 55,
     "title": "[动漫投票鉴赏区的索引第一个链接啥时候能修一下啊]",
     "newtitle": "[动漫投票鉴赏区的索引第一个链接啥时候能修一下啊]",
-    "lastedit": 1780034166,
+    "lastedit": 1780048925,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17973,10 +17964,10 @@
     "update": false
   },
   "2282051": {
-    "totalreply": 95,
+    "totalreply": 97,
     "title": "[人才辈出的武大]",
     "newtitle": "[人才辈出的武大]",
-    "lastedit": 1780048447,
+    "lastedit": 1780049045,
     "category": "外野",
     "active": true,
     "update": false
@@ -18041,6 +18032,15 @@
     "newtitle": "[双尾彗星讨论楼]",
     "lastedit": 1780046892,
     "category": "虚拟主播区专楼",
+    "active": true,
+    "update": false
+  },
+  "2281975": {
+    "totalreply": 41,
+    "title": "[（经济学）ai出租车自动驾驶如何提高社会整体福利？]",
+    "newtitle": "[（经济学）ai出租车自动驾驶如何提高社会整体福利？]",
+    "lastedit": 1780048810,
+    "category": "外野",
     "active": true,
     "update": false
   }
