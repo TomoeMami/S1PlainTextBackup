@@ -53,3 +53,25 @@ Re:Source · Xiaomi 15 ...</blockquote>
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
 
+
+*****
+
+####  nianiania  
+##### 1441#       发表于 2026-5-29 13:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69690585&amp;ptid=2275806" target="_blank">ml1642879 发表于 2026-5-29 12:05</a>
+充了10块钱api发现chatbox的搜索引擎还要另外付费（bing search不知为何不可用），突然感觉快速模式也不 ...</blockquote>
+怎么还要付费的，那还不如 cherrystudio 
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  舞以  
+##### 1442#       发表于 2026-5-29 13:51
+
+等ds官方的搜索工具吧，现在的免费搜索都挺烂的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
