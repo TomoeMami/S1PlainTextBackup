@@ -137,3 +137,23 @@ ds的api这么便宜还有搞反代的么
 ds的api这么便宜还有搞反代的么</blockquote>
 有啊，之前专家模式禁止传图也是反代搞的
 
+
+*****
+
+####  舞以  
+##### 1449#       发表于 2026-5-29 19:07
+
+真司马了
+
+*****
+
+####  drodchang  
+##### 1450#       发表于 2026-5-29 19:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69692550&amp;ptid=2275806" target="_blank">舞以 发表于 2026-5-29 18:58</a>
+
+opus4.8这中位分数，感觉拉了啊
+
+个人感觉现在御三家真sota还是gpt-5.5</blockquote>
+肯定的，今天我试用了，不如gbt5.5
+
