@@ -364,3 +364,11 @@ DFF牛动画还行，立绘也是一坨
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有点难受，想抽夜莺，但是下个月的观星者也想抽
 
+
+*****
+
+####  rockroxas  
+##### 4297#       发表于 2026-5-29 23:02
+
+以往玩的几个万南还有周年选限定抽的机会，这次什么时候才加回来啊
+

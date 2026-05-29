@@ -255,3 +255,15 @@ ds官方打击反代吧 api服务最近看起来没啥问题
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1461#       发表于 2026-5-29 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69693572&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-5-29 22:56</a>
+算力真的那么缺的吗？专家模式附属的文件传送之类的功能基本上都没有了，现在就只有一个回答问题的能力了。 ...</blockquote>
+主要是拿网页专家模式反代的畜生给逼的
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
