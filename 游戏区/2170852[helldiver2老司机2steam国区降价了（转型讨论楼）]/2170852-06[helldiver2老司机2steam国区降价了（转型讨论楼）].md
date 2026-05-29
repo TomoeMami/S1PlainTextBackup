@@ -24,3 +24,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">9070XT帧数从75涨到140了 这下amdyes了
 
+
+*****
+
+####  AEmpire  
+##### 7469#       发表于 2026-5-29 21:27
+
+DLSS也太糊了我真服了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
