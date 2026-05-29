@@ -233,3 +233,13 @@
 
        [https://www.youtube.com/watch?v=pw83qPdnAL0](https://www.youtube.com/watch?v=pw83qPdnAL0)
 
+
+*****
+
+####  木谷高明  
+##### 41896#       发表于 2026-5-29 20:54
+
+<img src="https://p.sda1.dev/32/1d2c3a8524a4b53bbbe9529aa8d6ba07/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/cb76dc27e99c02981f21b30e6165cc8d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/1b4336ff1de229ac531eeda946050755/image.jpg" referrerpolicy="no-referrer">
+
