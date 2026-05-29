@@ -32,3 +32,14 @@
 
 DLSS也太糊了我真服了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 7470#       发表于 2026-5-29 23:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69692358&amp;ptid=2170852" target="_blank">FLZB 发表于 2026-5-29 18:06</a>
+
+只能说完全是意料之中了，Nixxes和箭÷这种强强联合首发版绝比翻车。进去风扇就起飞，跟开内置锁帧同款bug ...</blockquote>
+非常明显的DLSS没做lod偏移导致的糊……
+

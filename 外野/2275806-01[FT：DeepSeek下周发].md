@@ -305,3 +305,18 @@ ds官方打击反代吧 api服务最近看起来没啥问题
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  舞以  
+##### 1464#       发表于 2026-5-29 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69693656&amp;ptid=2275806" target="_blank">舞以 发表于 2026-5-29 23:10</a>
+
+猫榜正式更新Qwen3.7max的分数了
+
+我测，真高，之前东山奈央只在知乎更新了评测文章。
+
+有没有试毒的看看到 ...</blockquote>
+试了下我之前和ds还有gpt讨论过的深度鉴证问题，直接报错了，看来我是无福消受了<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
