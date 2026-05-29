@@ -291,3 +291,17 @@ ds官方打击反代吧 api服务最近看起来没啥问题
 
 据说在使用英文cot的时候输出质量明显高一截
 
+
+*****
+
+####  杀人鲸  
+##### 1463#       发表于 2026-5-29 23:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69693624&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-5-29 23:06</a>
+主要是拿网页专家模式反代的畜生给逼的
+
+—— 来自 HUAWEI SGU-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
+唉，逆天。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
