@@ -334,3 +334,11 @@ chatbox的chatboxai搜索只要注册账号就可以用了，不用花钱
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
 
+
+*****
+
+####  love4aids  
+##### 1466#       发表于 2026-5-29 23:53
+
+qwen我看评测又是高分低能的感觉
+
