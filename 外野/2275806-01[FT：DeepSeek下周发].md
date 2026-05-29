@@ -184,3 +184,20 @@ opus4.8这中位分数，感觉拉了啊
 
 api也限制次数吗<img src="https://static.stage1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  overflowal  
+##### 1454#       发表于 2026-5-29 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69693292&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-5-29 21:50</a>
+api也限制次数吗</blockquote>
+花钱当然不限制    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  古畑任三郎2015  
+##### 1455#       发表于 2026-5-29 22:10
+
+吓哭了，让DeepSeek给我做医疗费用分布的蒙特卡洛模拟，居然给我像模像样的做出报告了，问题扔回给我看我敢不敢用了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
