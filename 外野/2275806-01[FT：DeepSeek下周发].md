@@ -342,3 +342,17 @@ chatbox的chatboxai搜索只要注册账号就可以用了，不用花钱
 
 qwen我看评测又是高分低能的感觉
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1467#       发表于 2026-5-30 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69693804&amp;ptid=2275806" target="_blank">ml1642879 发表于 2026-5-29 23:43</a>
+免费只有1000credit，问了两个问题干没了
+
+Re:Source · Xiaomi 15</blockquote>
+份额这么少啊？我还真没注意，chatbox我用的少，手机上日常需要用到搜索的时候我一般都白嫖kimi或者干脆问gemini
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
