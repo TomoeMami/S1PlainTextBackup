@@ -108,3 +108,19 @@
 
 有了这段经历，感觉什么困难都能克服了，狐神伟大，相信狐神是不需要理由的！<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sleipnirω  
+##### 1349#       发表于 2026-5-29 21:34
+
+<img src="https://img.stage1st.com/forum/202605/29/213232qynzy9dww3c49wxg.jpg" referrerpolicy="no-referrer">
+
+<strong>20260529212654_1.jpg</strong> (249.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-29 21:32 上传
+
+艰难取胜，最后这个罗生蝶打到剩大概1w血的时候就开始每回合批发超雄红币技能，拼赢了要吃伤害拼输了直接团灭，金智勋的又一个癫疯之作，中途拼输了一次死了四个人，还好后备的人够多
+

@@ -3611,3 +3611,11 @@ code这组织说得很大，实际上除了杂兵，偌大的组织没几个人<
 
 <img src="https://p.sda1.dev/32/ba5b76f59c239c925bb35ccd7bcee14d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 1811#       发表于 2026-5-29 21:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是在做梦吗
+
