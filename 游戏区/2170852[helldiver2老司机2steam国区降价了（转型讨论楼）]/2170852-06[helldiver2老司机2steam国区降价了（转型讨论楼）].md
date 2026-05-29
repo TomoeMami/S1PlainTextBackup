@@ -16,3 +16,11 @@
 
 2026-5-29 18:06 上传
 
+
+*****
+
+####  xinfengj  
+##### 7468#       发表于 2026-5-29 20:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">9070XT帧数从75涨到140了 这下amdyes了
+
