@@ -3595,3 +3595,11 @@ code这组织说得很大，实际上除了杂兵，偌大的组织没几个人<
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  milky658  
+##### 1809#       发表于 2026-5-29 11:06
+
+正片这两集套路蛮土的，爆点在场外撕开社区脸皮了，简直是大型社会实验。请高桥履行承诺写一辈子蒙面超人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

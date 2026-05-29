@@ -698,3 +698,11 @@ Y隐喻
 柚木队员是男的还是女的？</blockquote>
 女的，第一集开头在幼儿园时自称是姐姐
 
+
+*****
+
+####  mishidexieyu  
+##### 235#       发表于 2026-5-29 11:08
+
+感觉角色还是没那么印象深刻<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+
