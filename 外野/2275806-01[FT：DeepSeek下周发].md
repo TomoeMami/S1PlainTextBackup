@@ -83,3 +83,57 @@ Re:Source · Xiaomi 15 ...</blockquote>
 
 deepseek手机app怎么限制了编辑次数<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 1444#       发表于 2026-5-29 18:58
+
+<img src="https://img.stage1st.com/forum/202605/29/185743rtetptk4ufquf8vv.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (169.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-29 18:57 上传
+
+opus4.8这中位分数，感觉拉了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+个人感觉现在御三家真sota还是gpt-5.5
+
+*****
+
+####  zfy1989  
+##### 1445#       发表于 2026-5-29 19:01
+
+都是搞反代那些的手法的问题，之前他们用上传文件来保存上下文，现在是指定搜索网页链接，不知道刷新是怎么利用的。
+
+—— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  舞以  
+##### 1446#       发表于 2026-5-29 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69692562&amp;ptid=2275806" target="_blank">zfy1989 发表于 2026-5-29 19:01</a>
+
+都是搞反代那些的手法的问题，之前他们用上传文件来保存上下文，现在是指定搜索网页链接，不知道刷新是怎么 ...</blockquote>
+ds的api这么便宜还有搞反代的么
+
+
+*****
+
+####  羊寢  
+##### 1447#       发表于 2026-5-29 19:03
+
+反代是真司马了，这么便宜都要省<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  羊寢  
+##### 1448#       发表于 2026-5-29 19:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69692569&amp;ptid=2275806" target="_blank">舞以 发表于 2026-5-29 19:02</a>
+ds的api这么便宜还有搞反代的么</blockquote>
+有啊，之前专家模式禁止传图也是反代搞的
+
