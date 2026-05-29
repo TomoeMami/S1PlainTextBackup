@@ -3603,3 +3603,11 @@ code这组织说得很大，实际上除了杂兵，偌大的组织没几个人<
 
 正片这两集套路蛮土的，爆点在场外撕开社区脸皮了，简直是大型社会实验。请高桥履行承诺写一辈子蒙面超人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  故障机器人  
+##### 1810#       发表于 2026-5-29 20:48
+
+<img src="https://p.sda1.dev/32/ba5b76f59c239c925bb35ccd7bcee14d/image.jpg" referrerpolicy="no-referrer">
+
