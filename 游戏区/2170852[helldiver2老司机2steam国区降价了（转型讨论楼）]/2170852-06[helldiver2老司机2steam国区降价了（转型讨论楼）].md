@@ -43,3 +43,13 @@ DLSS也太糊了我真服了<img src="https://static.stage1st.com/image/smiley/f
 只能说完全是意料之中了，Nixxes和箭÷这种强强联合首发版绝比翻车。进去风扇就起飞，跟开内置锁帧同款bug ...</blockquote>
 非常明显的DLSS没做lod偏移导致的糊……
 
+
+*****
+
+####  briareos  
+##### 7471#       发表于 2026-5-30 07:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">麻鸡 以前能帧数稳110 120 昨天进去 就乱跳 
+
+谢你啊 修复了游戏运行流畅的问题
+
