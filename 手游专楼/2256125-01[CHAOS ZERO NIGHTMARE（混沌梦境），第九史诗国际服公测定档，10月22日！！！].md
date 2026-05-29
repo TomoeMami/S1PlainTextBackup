@@ -396,3 +396,16 @@ b站有对比视频，找个有的角色对比下？
 
 卡等级真不爽，上国际服打了一把出击，感觉挺爽的，给的卡强度太高而且还有第四人
 
+
+*****
+
+####  qixinno1  
+##### 799#       发表于 2026-5-29 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69692401&amp;ptid=2256125" target="_blank">LMBS 发表于 2026-5-29 18:19</a>
+
+国服有说过未来的卡池计划吗
+
+看了下国服就只差两个限定和国际服现在的萝莉，不会是限定连发吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">修女S2那波强化大胜利 数值可以说都翻倍了 国服我记得是6.16左右出限定的市长 强无敌
+
