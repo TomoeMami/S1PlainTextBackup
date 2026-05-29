@@ -267,3 +267,27 @@ ds官方打击反代吧 api服务最近看起来没啥问题
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  舞以  
+##### 1462#       发表于 2026-5-29 23:10
+
+ 本帖最后由 舞以 于 2026-5-29 23:13 编辑 
+
+<img src="https://img.stage1st.com/forum/202605/29/231003jxg2m0xy0wemv5g0.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (317.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-29 23:10 上传
+
+猫榜正式更新Qwen3.7max的分数了
+
+我测，真高，之前东山奈央只在知乎更新了评测文章。
+
+有没有试毒的看看到底啥水平，不会是刷了猫榜的题库吧。
+
+据说在使用英文cot的时候输出质量明显高一截
+
