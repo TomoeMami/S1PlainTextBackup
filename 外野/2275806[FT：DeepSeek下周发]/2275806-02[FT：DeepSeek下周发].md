@@ -179,3 +179,19 @@ cli是开源的，desktop版不是
 不算那些个人小站，现在最大方给白嫖api的大平台是哪个，目前我就发现一个英伟达是给deepseekv4f几乎无限用 ...</blockquote>
 opencode现在给免费的dsv4f但是是200k上下文的阉割版，大概率是，还限时给了小米mimov2.5支持多模态的1m上下文版本，具体速率限制没试出来
 
+
+*****
+
+####  阿刚  
+##### 1498#       发表于 2026-5-31 01:04
+
+<img src="https://img.stage1st.com/forum/202605/31/010405bhkfcahacac5hxxa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-31 01:04 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">狗东西还有情绪了！
+
