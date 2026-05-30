@@ -425,3 +425,11 @@ DFF牛动画还行，立绘也是一坨
 
 我也是第一时间升了300W艾比安之后发现并不如SSP艾比安好用<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，啥时候出个UR红大舅哥啊
 
+
+*****
+
+####  ティグル  
+##### 4304#       发表于 2026-5-30 17:26
+
+夜莺区中区，娜娜依不会是红色词条船吧
+
