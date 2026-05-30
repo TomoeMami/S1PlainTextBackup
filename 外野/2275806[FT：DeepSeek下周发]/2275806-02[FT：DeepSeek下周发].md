@@ -195,3 +195,12 @@ opencode现在给免费的dsv4f但是是200k上下文的阉割版，大概率是
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">狗东西还有情绪了！
 
+
+*****
+
+####  蛋黄酱Release  
+##### 1499#       发表于 2026-5-31 03:18
+
+没有过御三家的模，trae和cc接v4p也没感觉出多大差别<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+今天看到codex也能接api了，有点好奇codex最近这么火是强在gpt上还是agent能力上，要是也接v4p能跟cc拉开差距么
+
