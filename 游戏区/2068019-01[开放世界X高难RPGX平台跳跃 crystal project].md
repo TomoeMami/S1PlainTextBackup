@@ -1724,3 +1724,16 @@ steam版本有中文汉化的创意工坊。
 
 买还是要买的，但也太快了，做地图也要时间欸<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blackll7  
+##### 143#         楼主| 发表于 2026-5-30 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69696215&amp;ptid=2068019" target="_blank">慕容断月 发表于 2026-5-30 16:22</a>
+
+https://store.steampowered.com/app/3901760/Crystal_Project_2/
+
+     </blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不，其实早就在做了，discrod里这三年都在做mod支持以外都在规划新作
+
