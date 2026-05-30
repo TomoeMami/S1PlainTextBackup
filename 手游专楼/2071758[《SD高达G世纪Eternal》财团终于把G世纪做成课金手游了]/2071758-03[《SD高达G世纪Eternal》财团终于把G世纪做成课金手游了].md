@@ -476,3 +476,14 @@ DFF牛动画还行，立绘也是一坨
 
 这双翼牛机制还不错，就是PVE感觉用不上啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rockroxas  
+##### 4309#       发表于 2026-5-30 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69696448&amp;ptid=2071758" target="_blank">凤凰院天豪 发表于 2026-5-30 17:38</a>
+
+周年不是刚结束吗</blockquote>
+永恒没有选限定抽的池子啊，就是说什么时候才能跟进一下的意思
+

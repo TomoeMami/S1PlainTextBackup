@@ -122,3 +122,30 @@ trae
 为啥网页版专家模式没有联网搜索了</blockquote>
 现在很多人拿ds官网反代，最近专家模式关闭搜索和图片上传还有限制重roll次数都是为了限制反代
 
+
+*****
+
+####  ml1642879  
+##### 1492#       发表于 2026-5-30 21:03
+
+相信峰哥，峰哥一定会找到屏蔽反代的办法的
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
+
+*****
+
+####  mitzvah  
+##### 1493#       发表于 2026-5-30 21:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69696820&amp;ptid=2275806" target="_blank">serj005 发表于 2026-5-30 19:36</a>
+
+roocode有继任者zoocode和kilocode（这个的技术路线转opencode底层了）</blockquote>
+kilocode转opencode后完全废了，完全透明的优点没了，质量也不如正经的opencode现在变成屎了
+
+*****
+
+####  赤星ビスコ  
+##### 1494#       发表于 2026-5-30 21:34
+
+codex 本身就开源的吧
+

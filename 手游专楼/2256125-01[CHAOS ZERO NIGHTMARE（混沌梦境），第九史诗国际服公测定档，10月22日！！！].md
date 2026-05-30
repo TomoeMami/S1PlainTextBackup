@@ -409,3 +409,28 @@ b站有对比视频，找个有的角色对比下？
 看了下国服就只差两个限定和国际服现在的萝莉，不会是限定连发吧</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">修女S2那波强化大胜利 数值可以说都翻倍了 国服我记得是6.16左右出限定的市长 强无敌
 
+
+*****
+
+####  qixinno1  
+##### 800#       发表于 2026-5-29 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69692401&amp;ptid=2256125" target="_blank">LMBS 发表于 2026-5-29 18:19</a>
+
+国服有说过未来的卡池计划吗
+
+看了下国服就只差两个限定和国际服现在的萝莉，不会是限定连发吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">修女S2那波强化大胜利 数值可以说都翻倍了 国服我记得是6.16左右出限定的市长 强无敌
+
+
+*****
+
+####  就不的  
+##### 801#       发表于 2026-5-30 21:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有大佬说一下，我现在是新手200抽选了鼠兔，然后抽到了丽妲，麦格纳，小春
+
+有很多UP都是说应该无脑选九，但是也有一部分UP建议应该选蒂菲拉，当然大家都说一定要备战下一个市长池。
+
+主要我现在发现丽妲我是真玩不明白，小春还好点，反而是麦格纳我觉得挺好用，我现在不知道自选应该选谁，是选九这种C还是蒂菲拉这种辅助<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
