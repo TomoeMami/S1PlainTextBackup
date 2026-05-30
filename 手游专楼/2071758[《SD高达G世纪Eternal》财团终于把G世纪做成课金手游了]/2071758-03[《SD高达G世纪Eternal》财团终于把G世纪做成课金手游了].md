@@ -389,3 +389,11 @@ DFF牛动画还行，立绘也是一坨
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这次爬塔送的莉莉娜，单盾，群体回血，永恒之路常驻工具人+1
 
+
+*****
+
+####  qrlfafner  
+##### 4300#       发表于 2026-5-30 09:31
+
+93骡这是凑齐红黄蓝了啊
+
