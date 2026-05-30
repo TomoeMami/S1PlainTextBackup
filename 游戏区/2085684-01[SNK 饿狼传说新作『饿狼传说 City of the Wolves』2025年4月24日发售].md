@@ -199,3 +199,13 @@ SNK老板是那个沙特老大，近五六年的国家一把手</blockquote>
 
 何况北斗里还有独有的大力出奇迹，你防守方拼尽全力用胳膊防守都有概率被拳总或者霞总一拳洞穿，相当于ftg里你守着守着突然就被打崩防
 
+
+*****
+
+####  gofbayrf  
+##### 716#       发表于 2026-5-30 09:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">南鎮扛把子要干居委會大媽的活是吧 
+
+喂!羅拔仔 你家孩子被光頭佬欺負了 還不回家看看!
+
