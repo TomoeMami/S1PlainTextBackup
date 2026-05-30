@@ -3673,3 +3673,61 @@ code这组织说得很大，实际上除了杂兵，偌大的组织没几个人<
 
 今年肯定不会搞去年那种从一开始走向就完全不同的平行世界，无非就是外敌太强让code这群内斗高手短暂联合起来那种展开
 
+
+*****
+
+####  TOYSTORY  
+##### 1818#       发表于 2026-5-30 11:11
+
+ 本帖最后由 TOYSTORY 于 2026-5-30 11:12 编辑 
+
+<img src="https://img.stage1st.com/forum/202605/30/111036pq77n22jdvjv221n.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (508.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-30 11:10 上传
+
+<img src="https://img.stage1st.com/forum/202605/30/111037qiqgqnwwa3aqbzug.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (299.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-30 11:10 上传
+
+<img src="https://img.stage1st.com/forum/202605/30/111045pkmb35k89ktbtbm8.jpg" referrerpolicy="no-referrer">
+
+<strong>003.jpg</strong> (212.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-30 11:10 上传
+
+<img src="https://img.stage1st.com/forum/202605/30/111046io9iomkqo8iodje8.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (402.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-30 11:10 上传
+
+<img src="https://img.stage1st.com/forum/202605/30/111046bqohfahseuejesjs.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (96.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-30 11:10 上传
+
+妹妹在外传也能变特殊战士了
+
+*****
+
+####  haoshion  
+##### 1819#       发表于 2026-5-30 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69693067&amp;ptid=2250267" target="_blank">故障机器人 发表于 2026-5-29 20:48</a></blockquote>
+怎么这么好笑，一想到0号3号其乐融融地共斗就绷不住了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
