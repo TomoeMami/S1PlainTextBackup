@@ -424,3 +424,14 @@ kimi code？腾讯也有类似的
 
 查看全部评分
 
+
+*****
+
+####  serj005  
+##### 1474#       发表于 2026-5-30 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69696158&amp;ptid=2275806" target="_blank">勿徊哉 发表于 2026-5-30 16:03</a>
+国内没有大模型公司开发codex这种适合普通人用的Agent吗？</blockquote>
+国内目前易用性最好的应该就是trae了，其他感觉差点意思，不过trea本身也不能算完成度很高的东西，用的时候经常感觉很多地方欠打磨。
+但这种问题应该是现在所有agent应用都有，还在发展期，没能完全总结出这类工具的设计范式，都处在一个凑合能用的状态中。
+
