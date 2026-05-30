@@ -204,3 +204,14 @@ opencode现在给免费的dsv4f但是是200k上下文的阉割版，大概率是
 没有过御三家的模，trae和cc接v4p也没感觉出多大差别<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 今天看到codex也能接api了，有点好奇codex最近这么火是强在gpt上还是agent能力上，要是也接v4p能跟cc拉开差距么
 
+
+*****
+
+####  舞以  
+##### 1500#       发表于 2026-5-31 03:37
+
+gpt本身挺强的，加上codex最近疯狂更新，第一方harness肯定比第三方或者开源适配的玩意儿强。
+所以ds也开始招人做自己的harness嘞，coding agent这块虽然土但是在叙事里面还是很重要的，谁叫码农嗓门大呢？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
