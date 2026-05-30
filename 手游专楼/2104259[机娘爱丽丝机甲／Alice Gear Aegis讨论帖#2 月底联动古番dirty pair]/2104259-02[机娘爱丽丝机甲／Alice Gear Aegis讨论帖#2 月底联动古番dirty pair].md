@@ -26,3 +26,17 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">顺便这bu我怎么抽到现在来的四星全是主播她妹，都拉到rank4了这河狸吗
 
+
+*****
+
+####  冰风血羽  
+##### 1995#       发表于 2026-5-30 18:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69689201&amp;ptid=2104259" target="_blank">madcow 发表于 2026-5-29 08:25</a>
+还是st西塔拉的sp最好，充满了强度美（
+
+最早出的st会长和小鸟游的sp感觉就有点朴素了（</blockquote>
+贴吧有人出油漆人CD，你想要可以去看看
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

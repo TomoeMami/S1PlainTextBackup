@@ -3740,3 +3740,11 @@ code这组织说得很大，实际上除了杂兵，偌大的组织没几个人<
 怕不是后期所有人都准备爆了，希欧滴意派人来肃清了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/f4384231436c4e152aa20d13a709438b/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pointer243  
+##### 1821#       发表于 2026-5-30 18:44
+
+去年糖人剧场版都能整出个胃家全员家人侠，今年睡大觉不搞黑暗大手全员正义人的code不是比糖人那剧情更合理吗
+
