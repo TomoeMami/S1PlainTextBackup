@@ -464,3 +464,18 @@ b站有对比视频，找个有的角色对比下？
 
 又抽到个卡莉佩跟小丑<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  就不的  
+##### 805#       发表于 2026-5-31 00:56
+
+又抽到个卡莉佩跟小丑<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  碧空之歌P  
+##### 806#       发表于 2026-5-31 07:14
+
+九主要是卡组好刷，不需要任何神闪，开荒期没有改存档的道具对九没影响，屠戮割草，装甲保命，各种场景都能上场，唯一怕的是弃牌
+
