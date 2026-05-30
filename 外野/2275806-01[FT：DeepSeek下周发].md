@@ -389,3 +389,15 @@ api写刘备有影响吗？
 
 国内没有大模型公司开发codex这种适合普通人用的Agent吗？
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1472#       发表于 2026-5-30 16:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69696158&amp;ptid=2275806" target="_blank">勿徊哉 发表于 2026-5-30 16:03</a>
+国内没有大模型公司开发codex这种适合普通人用的Agent吗？</blockquote>
+kimi code？腾讯也有类似的
+
+—— 来自 HUAWEI WGRR-W19, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
