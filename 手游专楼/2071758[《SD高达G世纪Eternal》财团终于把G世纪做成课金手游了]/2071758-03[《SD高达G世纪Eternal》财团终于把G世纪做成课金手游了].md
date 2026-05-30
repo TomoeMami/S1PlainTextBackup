@@ -433,3 +433,14 @@ DFF牛动画还行，立绘也是一坨
 
 夜莺区中区，娜娜依不会是红色词条船吧
 
+
+*****
+
+####  凤凰院天豪  
+##### 4305#       发表于 2026-5-30 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69693597&amp;ptid=2071758" target="_blank">rockroxas 发表于 2026-5-29 23:02</a>
+
+以往玩的几个万南还有周年选限定抽的机会，这次什么时候才加回来啊</blockquote>
+周年不是刚结束吗
+
