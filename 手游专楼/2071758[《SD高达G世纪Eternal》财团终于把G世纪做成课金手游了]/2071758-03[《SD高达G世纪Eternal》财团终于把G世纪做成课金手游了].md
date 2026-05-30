@@ -415,3 +415,13 @@ DFF牛动画还行，立绘也是一坨
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">喜欢的G世纪老资历塞了进X的300w，只能含泪做，只可惜300w的性能就算升满也就这样了。
 
+
+*****
+
+####  arthes  
+##### 4303#       发表于 2026-5-30 10:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">ult还有升星的最后手段，只能说未来可期吧
+
+我也是第一时间升了300W艾比安之后发现并不如SSP艾比安好用<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，啥时候出个UR红大舅哥啊
+
