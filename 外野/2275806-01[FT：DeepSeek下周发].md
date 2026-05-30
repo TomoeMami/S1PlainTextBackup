@@ -446,3 +446,21 @@ kimi code？腾讯也有类似的
 国内目前易用性最好的应该就是trae了，其他感觉差点意思，不过trea本身也不能算完成度很高的东西，用的时 ...</blockquote>
 我反而觉得codex挺成熟了。只要模型好，国内大厂照着抄就行了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  astkaasa  
+##### 1476#       发表于 2026-5-30 16:58
+
+<blockquote>勿徊哉 发表于 2026-5-30 16:03
+国内没有大模型公司开发codex这种适合普通人用的Agent吗？</blockquote>
+qoder.字数补丁
+
+
+*****
+
+####  Nanachi  
+##### 1477#       发表于 2026-5-30 17:02
+
+网页版不好用就换成API呗，chatbot产品一大堆
+
