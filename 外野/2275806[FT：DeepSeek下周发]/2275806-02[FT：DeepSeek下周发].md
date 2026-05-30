@@ -168,3 +168,14 @@ codex 本身就开源的吧
 codex 本身就开源的吧</blockquote>
 cli是开源的，desktop版不是
 
+
+*****
+
+####  serj005  
+##### 1497#       发表于 2026-5-30 23:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69697605&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-5-30 22:09</a>
+
+不算那些个人小站，现在最大方给白嫖api的大平台是哪个，目前我就发现一个英伟达是给deepseekv4f几乎无限用 ...</blockquote>
+opencode现在给免费的dsv4f但是是200k上下文的阉割版，大概率是，还限时给了小米mimov2.5支持多模态的1m上下文版本，具体速率限制没试出来
+
