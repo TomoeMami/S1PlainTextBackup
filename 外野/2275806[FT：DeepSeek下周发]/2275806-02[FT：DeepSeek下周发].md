@@ -157,3 +157,14 @@ codex 本身就开源的吧
 
 不算那些个人小站，现在最大方给白嫖api的大平台是哪个，目前我就发现一个英伟达是给deepseekv4f几乎无限用的，只限制每分钟最多四十次调用，可惜速度比较慢
 
+
+*****
+
+####  schneehertz  
+##### 1496#       发表于 2026-5-30 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69697412&amp;ptid=2275806" target="_blank">赤星ビスコ 发表于 2026-5-30 21:34</a>
+
+codex 本身就开源的吧</blockquote>
+cli是开源的，desktop版不是
+
