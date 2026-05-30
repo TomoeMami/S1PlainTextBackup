@@ -401,3 +401,26 @@ kimi code？腾讯也有类似的
 
 —— 来自 HUAWEI WGRR-W19, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  雨昼斯基  
+##### 1473#       发表于 2026-5-30 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69696158&amp;ptid=2275806" target="_blank">勿徊哉 发表于 2026-5-30 16:03</a>
+国内没有大模型公司开发codex这种适合普通人用的Agent吗？</blockquote>
+字节的 trae solo。trae 就是套壳 vs code 加上一个通用 solo 界面。现在 solo 独立出来做成多平台应用，界面和 codex 桌面端几乎一模一样。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 勿徊哉 + 2
+
+查看全部评分
+
