@@ -3731,3 +3731,12 @@ code这组织说得很大，实际上除了杂兵，偌大的组织没几个人<
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69693067&amp;ptid=2250267" target="_blank">故障机器人 发表于 2026-5-29 20:48</a></blockquote>
 怎么这么好笑，一想到0号3号其乐融融地共斗就绷不住了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  milky658  
+##### 1820#       发表于 2026-5-30 12:07
+
+怕不是后期所有人都准备爆了，希欧滴意派人来肃清了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/f4384231436c4e152aa20d13a709438b/image.jpg" referrerpolicy="no-referrer">
+
