@@ -464,3 +464,23 @@ qoder.字数补丁
 
 网页版不好用就换成API呗，chatbot产品一大堆
 
+
+*****
+
+####  mitzvah  
+##### 1478#       发表于 2026-5-30 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69696158&amp;ptid=2275806" target="_blank">勿徊哉 发表于 2026-5-30 16:03</a>
+
+国内没有大模型公司开发codex这种适合普通人用的Agent吗？</blockquote>
+开源roocode，cline上手即用，比opencode还要简单，mcp，skill都能用，我是不觉得有啥迫切性
+
+*****
+
+####  千千千千鸟  
+##### 1479#       发表于 2026-5-30 17:07
+
+不写代码之前一致在用pi agent，今天装了个hermes好像更好用一点，毕竟就只是用来办公<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+感觉浪费了很多时间。
+
