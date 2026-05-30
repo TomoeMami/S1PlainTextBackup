@@ -49,3 +49,14 @@ Claude code配上Deepseek V4 API是真的好用。
 roocode任务过程完全透明对于能力还不大强的开源模型搞人在回路还是有优势的。 ...</blockquote>
 roocode不是停止更新了吗，还能用？
 
+
+*****
+
+####  mitzvah  
+##### 1486#       发表于 2026-5-30 19:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69696708&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-5-30 19:07</a>
+
+roocode不是停止更新了吗，还能用？</blockquote>
+没更新也不影响使用啊，都是本地的，openai 兼容格式啥都能跑，该有的功能也都有，完全开源，自己构建都可以，高兴了自己fork也不是不行，而且也有社区接手
+
