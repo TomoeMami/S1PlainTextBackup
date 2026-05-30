@@ -484,3 +484,13 @@ qoder.字数补丁
 
 感觉浪费了很多时间。
 
+
+*****
+
+####  很久就在那边l  
+##### 1480#       发表于 2026-5-30 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69696345&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-5-30 17:06</a>
+开源roocode，cline上手即用，比opencode还要简单，mcp，skill都能用，我是不觉得有啥迫切性 ...</blockquote>
+接自己买的api用开源agent还不如直接用codex，毕竟codex也能接三方api，国产agent的意义在于可以直接提供便于购买的套餐，像trae甚至给普通用户免费用
+
