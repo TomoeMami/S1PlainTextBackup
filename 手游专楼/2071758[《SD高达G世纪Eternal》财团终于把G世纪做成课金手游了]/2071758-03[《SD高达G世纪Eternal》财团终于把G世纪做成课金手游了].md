@@ -460,3 +460,19 @@ DFF牛动画还行，立绘也是一坨
 
 娜娜依这船有德的下位替代但是没贝嫂有用啊 这池子跳过也没问题
 
+
+*****
+
+####  blue321  
+##### 4308#       发表于 2026-5-30 20:23
+
+这双翼牛机制还不错，就是PVE感觉用不上啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  blue321  
+##### 4308#       发表于 2026-5-30 20:23
+
+这双翼牛机制还不错，就是PVE感觉用不上啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

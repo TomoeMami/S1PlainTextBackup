@@ -88,3 +88,37 @@ trae
 
 千问现在的官方api能用么？我记得上次听人说官方基本没法破甲<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  德尔惠净水器  
+##### 1490#       发表于 2026-5-30 20:09
+
+为啥网页版专家模式没有联网搜索了
+
+*****
+
+####  羊寢  
+##### 1491#       发表于 2026-5-30 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69696978&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-5-30 20:09</a>
+为啥网页版专家模式没有联网搜索了</blockquote>
+现在很多人拿ds官网反代，最近专家模式关闭搜索和图片上传还有限制重roll次数都是为了限制反代
+
+
+*****
+
+####  德尔惠净水器  
+##### 1490#       发表于 2026-5-30 20:09
+
+为啥网页版专家模式没有联网搜索了
+
+*****
+
+####  羊寢  
+##### 1491#       发表于 2026-5-30 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69696978&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-5-30 20:09</a>
+为啥网页版专家模式没有联网搜索了</blockquote>
+现在很多人拿ds官网反代，最近专家模式关闭搜索和图片上传还有限制重roll次数都是为了限制反代
+

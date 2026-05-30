@@ -1737,3 +1737,19 @@ https://store.steampowered.com/app/3901760/Crystal_Project_2/
      </blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不，其实早就在做了，discrod里这三年都在做mod支持以外都在规划新作
 
+
+*****
+
+####  kerbad  
+##### 144#       发表于 2026-5-30 20:28
+
+不知道2的地图还能搞出来什么惊艳的结构，今年的逛街额度还没有游戏给我填呢<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kerbad  
+##### 144#       发表于 2026-5-30 20:28
+
+不知道2的地图还能搞出来什么惊艳的结构，今年的逛街额度还没有游戏给我填呢<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
