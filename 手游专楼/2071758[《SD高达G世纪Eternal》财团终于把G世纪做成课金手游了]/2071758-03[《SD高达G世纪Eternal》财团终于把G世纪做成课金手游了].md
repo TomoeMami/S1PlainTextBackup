@@ -407,3 +407,11 @@ DFF牛动画还行，立绘也是一坨
 
 就是CCA MSV没啥存货了，只剩重牛和特装灵格斯了吧
 
+
+*****
+
+####  西人  
+##### 4302#       发表于 2026-5-30 10:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">喜欢的G世纪老资历塞了进X的300w，只能含泪做，只可惜300w的性能就算升满也就这样了。
+
