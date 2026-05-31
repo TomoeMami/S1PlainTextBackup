@@ -542,3 +542,13 @@ b站有对比视频，找个有的角色对比下？
 
 也不刚需什么神闪什么装备，凑合能用就有战力。
 
+
+*****
+
+####  伊布桑  
+##### 813#       发表于 2026-5-31 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69699374&amp;ptid=2256125" target="_blank">FBC档案部专员 发表于 2026-5-31 11:44</a>
+了解了</blockquote>
+对了有个事说一下，这游戏专武可以用抽卡副产物换有时候甚至可以不抽
+
