@@ -209,3 +209,11 @@ SNK老板是那个沙特老大，近五六年的国家一把手</blockquote>
 
 喂!羅拔仔 你家孩子被光頭佬欺負了 還不回家看看!
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 717#       发表于 2026-5-31 08:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这由莉多少岁了还一副少女样
+
