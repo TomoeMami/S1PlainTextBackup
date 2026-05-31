@@ -3772,3 +3772,14 @@ code这组织说得很大，实际上除了杂兵，偌大的组织没几个人<
 
 2026-5-31 08:39 上传
 
+
+*****
+
+####  发呆的龙虾  
+##### 1824#       发表于 2026-5-31 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69698743&amp;ptid=2250267" target="_blank">挺好的 发表于 2026-5-31 08:39</a></blockquote>
+0笑的好开心。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
