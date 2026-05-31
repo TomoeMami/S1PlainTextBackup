@@ -3827,3 +3827,22 @@ code这组织说得很大，实际上除了杂兵，偌大的组织没几个人<
 
 最终封号最幽默的还是时王，本来就一直被抽陀螺，煞有其事把它给封了，大结局还专门给修回来带着前辈一起被陀螺。基础腰带炸了是为了引出超梦，超梦被封又为了不让基础当四骑，高桥超绝大脑回旋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TOYSTORY  
+##### 1830#       发表于 2026-5-31 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69698743&amp;ptid=2250267" target="_blank">挺好的 发表于 2026-5-31 08:39</a></blockquote>
+
+虽然这帮人的pose摆得很帅，但里边至少有2个人是不会变身的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+零变身的形态可能会用超战斗DVD里那个摩托车人版的ZZZ皮套，然后改个色吧
+
+*****
+
+####  月夜凝雪  
+##### 1831#       发表于 2026-5-31 11:11
+
+乐子人是本话最有趣部分
+
