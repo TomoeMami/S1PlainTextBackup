@@ -252,3 +252,16 @@ SNK老板是那个沙特老大，近五六年的国家一把手</blockquote>
 虽然kof点鸳鸯谱选了king，但是龙虎外有意思的是香澄，估计会选择 ...</blockquote>
 如果按新解包的意思，机票四五本身就要出中年香澄和獠，KING估计要龙虎新作才有机会了
 
+
+*****
+
+####  adretyu67.  
+##### 721#       发表于 2026-5-31 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69699064&amp;ptid=2085684" target="_blank">ナルバレック 发表于 2026-5-31 10:26</a>
+
+如果按新解包的意思，机票四五本身就要出中年香澄和獠，KING估计要龙虎新作才有机会了 ...</blockquote>
+主要是KOF这个cp配的就很意外，或者说奇怪。
+
+不知道现在是啥想法。
+
