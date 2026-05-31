@@ -40,3 +40,16 @@
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  madcow  
+##### 1996#       发表于 2026-5-31 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69696631&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2026-5-30 18:43</a>
+
+贴吧有人出油漆人CD，你想要可以去看看
+
+—— 来自 realme RMX6699, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">冲动消费的劲过了已经（
+
