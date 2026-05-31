@@ -3817,3 +3817,13 @@ code这组织说得很大，实际上除了杂兵，偌大的组织没几个人<
 
 这话无功无过吧，同为新形态单元的前半部分，比起柴崎贵行自己上次的29要通顺很多
 
+
+*****
+
+####  milky658  
+##### 1829#       发表于 2026-5-31 10:57
+
+算剧内时间线的话，35后半段莫就入梦了，35-38都是一夜的事。索穆尼亚要一晚上就被拆了，那就令和红舞鞋了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最终封号最幽默的还是时王，本来就一直被抽陀螺，煞有其事把它给封了，大结局还专门给修回来带着前辈一起被陀螺。基础腰带炸了是为了引出超梦，超梦被封又为了不让基础当四骑，高桥超绝大脑回旋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
