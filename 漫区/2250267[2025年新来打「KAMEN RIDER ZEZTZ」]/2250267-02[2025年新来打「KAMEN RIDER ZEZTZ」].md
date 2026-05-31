@@ -3889,3 +3889,11 @@ code这组织说得很大，实际上除了杂兵，偌大的组织没几个人<
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">业界最后的良心5哥能不能活过下一集
 
+
+*****
+
+####  洛克萨斯  
+##### 1836#       发表于 2026-5-31 14:11
+
+震颤胶囊可以解除被控制的状态和恢复记忆的么，好好用
+
