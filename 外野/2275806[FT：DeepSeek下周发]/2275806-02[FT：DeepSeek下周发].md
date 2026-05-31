@@ -250,3 +250,24 @@ Codex和GPT-5.5 都很强
  ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">有可能出现幻觉共振，人得随时盯着吧
 
+
+*****
+
+####  蜇灵  
+##### 1504#       发表于 2026-5-31 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69697368&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-5-30 21:25</a>
+kilocode转opencode后完全废了，完全透明的优点没了，质量也不如正经的opencode现在变成屎了 ...</blockquote>
+还真是，他那个7.0版本用不惯
+
+*****
+
+####  蜇灵  
+##### 1505#       发表于 2026-5-31 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69698486&amp;ptid=2275806" target="_blank">舞以 发表于 2026-5-31 03:37</a>
+gpt本身挺强的，加上codex最近疯狂更新，第一方harness肯定比第三方或者开源适配的玩意儿强。
+
+所以ds也开始 ...</blockquote>
+码农那不只是嗓门大，人家真掏钱啊
+
