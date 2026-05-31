@@ -3881,3 +3881,11 @@ code这组织说得很大，实际上除了杂兵，偌大的组织没几个人<
 
 本以为铁叔会给一点以前小鹰的信息结果还是纯工具人这点比较不满
 
+
+*****
+
+####  黑上シグマ  
+##### 1835#       发表于 2026-5-31 12:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">业界最后的良心5哥能不能活过下一集
+
