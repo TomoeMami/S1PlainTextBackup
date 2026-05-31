@@ -8420,7 +8420,7 @@
     "newtitle": "[学园偶像大师]",
     "lastedit": 1779963005,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1803414": {
@@ -11178,10 +11178,10 @@
     "update": false
   },
   "2071758": {
-    "totalreply": 4316,
+    "totalreply": 4317,
     "title": "[《SD高达G世纪Eternal》财团终于把G世纪做成课金手游了]",
     "newtitle": "[《SD高达G世纪永恒》 S1游戏讨论群：9314964]",
-    "lastedit": 1780221966,
+    "lastedit": 1780222566,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 14617,
+    "totalreply": 14619,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼5月]",
-    "lastedit": 1780221726,
+    "lastedit": 1780222566,
     "category": "外野",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 34190,
+    "totalreply": 34193,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1780220165,
+    "lastedit": 1780222686,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12479,7 +12479,7 @@
     "newtitle": "[空之轨迹 the 2nd确认9.17发售！]",
     "lastedit": 1779963126,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2048174": {
@@ -12555,10 +12555,10 @@
     "update": false
   },
   "2271402": {
-    "totalreply": 7913,
+    "totalreply": 7914,
     "title": "[任天堂病棟14楼，等一个春节春直]",
     "newtitle": "[任天堂病棟14楼，剑指六月]",
-    "lastedit": 1780215726,
+    "lastedit": 1780222686,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12627,12 +12627,12 @@
     "update": false
   },
   "2175566": {
-    "totalreply": 532,
+    "totalreply": 533,
     "title": "[战双TCG现已发售——尝试建一个TCG专楼]",
     "newtitle": "[帕鲁TCG 2026.07.30 发售——尝试建一个TCG专楼]",
-    "lastedit": 1779770045,
+    "lastedit": 1780222686,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2118685": {
@@ -12843,10 +12843,10 @@
     "update": false
   },
   "2275277": {
-    "totalreply": 473,
+    "totalreply": 474,
     "title": "[Re：Source 论坛客户端]",
     "newtitle": "[Re：Source 论坛客户端]",
-    "lastedit": 1780215126,
+    "lastedit": 1780222327,
     "category": "外野",
     "active": true,
     "update": false
@@ -12924,10 +12924,10 @@
     "update": false
   },
   "2276704": {
-    "totalreply": 1243,
+    "totalreply": 1245,
     "title": "[【寂寞的车】车迷俱乐部（2026年3月汽车讨论专楼）]",
     "newtitle": "[【寂寞的车】车迷俱乐部（汽车讨论专楼）]",
-    "lastedit": 1780127286,
+    "lastedit": 1780222566,
     "category": "外野",
     "active": true,
     "update": false
@@ -16403,7 +16403,7 @@
     "newtitle": "[【更新：AI干的】一直以绅士球团自居的东京巨人队监督家暴女儿]",
     "lastedit": 1779963006,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2281656": {
@@ -17487,10 +17487,10 @@
     "update": false
   },
   "2281893": {
-    "totalreply": 169,
+    "totalreply": 173,
     "title": "[今年最高分！铲子骑士开发团队新作《挖掘者米娜》媒体评分解禁 目前MC均分93分！]",
     "newtitle": "[今年最高分！铲子骑士开发团队新作《挖掘者米娜》媒体评分解禁 目前MC均分93分！]",
-    "lastedit": 1780222085,
+    "lastedit": 1780222686,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17982,10 +17982,10 @@
     "update": false
   },
   "2282161": {
-    "totalreply": 106,
+    "totalreply": 107,
     "title": "[朝鲜UP李唐YO全网账号清空]",
     "newtitle": "[朝鲜UP李唐YO全网账号清空]",
-    "lastedit": 1780222086,
+    "lastedit": 1780222328,
     "category": "外野",
     "active": true,
     "update": false
@@ -18158,6 +18158,15 @@
     "newtitle": "[《远星物语》制作组新作《皓白初晓》现已发售抢先体验版!]",
     "lastedit": 1780214408,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2282179": {
+    "totalreply": 41,
+    "title": "[你们有听过匹克球吗]",
+    "newtitle": "[你们有听过匹克球吗]",
+    "lastedit": 1780222567,
+    "category": "外野",
     "active": true,
     "update": false
   }

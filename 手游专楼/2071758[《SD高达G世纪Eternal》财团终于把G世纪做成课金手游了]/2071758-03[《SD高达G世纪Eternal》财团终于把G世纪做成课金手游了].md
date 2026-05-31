@@ -553,3 +553,21 @@ DFF牛动画还行，立绘也是一坨
 倒是现在都没测出港爷下限比较离奇</blockquote>
 实际都是大陆玩家在港服氪金，就港服其他游戏体量，肯定是打不过的
 
+
+*****
+
+####  Abomination  
+##### 4317#       发表于 2026-5-31 18:13
+
+想抽黄马沙，110抽出齐了，而且是两人一齐到<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+总共出了5ur，20抽出哈帕斯，70抽出京宝梵，100抽保底出了地狱死神
+
+<img src="https://img.stage1st.com/forum/202605/31/180735evplfzuvpgde2c0n.png" referrerpolicy="no-referrer">
+
+<strong>MuMu-20260531-180334-740.png</strong> (1.07 MB, 下载次数: 0)
+
+下载附件
+
+2026-5-31 18:07 上传
+
