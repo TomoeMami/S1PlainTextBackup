@@ -479,3 +479,20 @@ b站有对比视频，找个有的角色对比下？
 
 九主要是卡组好刷，不需要任何神闪，开荒期没有改存档的道具对九没影响，屠戮割草，装甲保命，各种场景都能上场，唯一怕的是弃牌
 
+
+*****
+
+####  伊布桑  
+##### 807#       发表于 2026-5-31 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69697955&amp;ptid=2256125" target="_blank">FBC档案部专员 发表于 2026-5-30 23:51</a>
+辅战有什么必抽的吗？</blockquote>
+几乎完全可以不抽，等市长池子的辅专员倒是可以抽一个
+
+*****
+
+####  就不的  
+##### 808#       发表于 2026-5-31 10:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">所以还是不管选九还是选黄毛，没有另一个都很可惜，哎，难抉择
+

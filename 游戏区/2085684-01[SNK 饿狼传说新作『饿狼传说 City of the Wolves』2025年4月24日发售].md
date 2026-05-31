@@ -239,3 +239,16 @@ SNK老板是那个沙特老大，近五六年的国家一把手</blockquote>
 
 虽然kof点鸳鸯谱选了king，但是龙虎外有意思的是香澄，估计会选择性不提了。
 
+
+*****
+
+####  ナルバレック  
+##### 720#       发表于 2026-5-31 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69698842&amp;ptid=2085684" target="_blank">adretyu67. 发表于 2026-5-31 09:18</a>
+
+起码胸部涨了不亏了，倒是她哥还是单身吗
+
+虽然kof点鸳鸯谱选了king，但是龙虎外有意思的是香澄，估计会选择 ...</blockquote>
+如果按新解包的意思，机票四五本身就要出中年香澄和獠，KING估计要龙虎新作才有机会了
+
