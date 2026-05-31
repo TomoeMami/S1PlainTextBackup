@@ -541,3 +541,15 @@ DFF牛动画还行，立绘也是一坨
 
 倒是现在都没测出港爷下限比较离奇
 
+
+*****
+
+####  马桶3  
+##### 4316#       发表于 2026-5-31 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69700505&amp;ptid=2071758" target="_blank">ティグル 发表于 2026-5-31 17:12</a>
+骡鸭猫鸡这些卡池是不用想包登顶的
+
+倒是现在都没测出港爷下限比较离奇</blockquote>
+实际都是大陆玩家在港服氪金，就港服其他游戏体量，肯定是打不过的
+
