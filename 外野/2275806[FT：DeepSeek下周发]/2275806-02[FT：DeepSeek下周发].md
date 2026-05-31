@@ -237,3 +237,16 @@ Codex和GPT-5.5 都很强
 
 —— 来自 Xiaomi 24031PN0DC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  阿刚  
+##### 1503#       发表于 2026-5-31 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69699320&amp;ptid=2275806" target="_blank">zy450 发表于 2026-5-31 11:31</a>
+
+最近开了gpt plus搭配deepseek，plus额度是真的不够，打算让gpt出方案，deepseek干活，不知道会不会好点
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">有可能出现幻觉共振，人得随时盯着吧
+
