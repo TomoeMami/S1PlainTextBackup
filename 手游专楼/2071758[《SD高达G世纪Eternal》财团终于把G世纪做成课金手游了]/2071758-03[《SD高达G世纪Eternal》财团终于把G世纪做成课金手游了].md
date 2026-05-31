@@ -511,3 +511,13 @@ DFF牛动画还行，立绘也是一坨
 
 90丑没出夜莺<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安广多惠子  
+##### 4313#       发表于 2026-5-31 13:55
+
+這夏亞氣合都沒，告辭了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
