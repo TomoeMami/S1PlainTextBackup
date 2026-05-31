@@ -496,3 +496,19 @@ b站有对比视频，找个有的角色对比下？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">所以还是不管选九还是选黄毛，没有另一个都很可惜，哎，难抉择
 
+
+*****
+
+####  qixinno1  
+##### 809#       发表于 2026-5-31 13:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">好像BUG了 无法完成
+
+<img src="https://img.stage1st.com/forum/202605/31/132127ixlgxuc22x9uac99.png" referrerpolicy="no-referrer">
+
+<strong>M}351I[GK8Z~I2@0C5U1Y9S.png</strong> (28.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-5-31 13:21 上传
+
