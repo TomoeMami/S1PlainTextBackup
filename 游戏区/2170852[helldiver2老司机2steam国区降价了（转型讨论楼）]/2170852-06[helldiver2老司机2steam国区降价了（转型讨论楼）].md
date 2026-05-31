@@ -53,3 +53,13 @@ DLSS也太糊了我真服了<img src="https://static.stage1st.com/image/smiley/f
 
 谢你啊 修复了游戏运行流畅的问题
 
+
+*****
+
+####  qwased  
+##### 7472#       发表于 2026-6-1 00:12
+
+这箭头的图形技术部门到底有多菜，测试了下，如果开DLSS超级性能那离角色一米远的东西都会切到低模<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+这种低级错误这两年真的不多见了，但凡读一下老黄的dlss手册都不会搞成这样
+
