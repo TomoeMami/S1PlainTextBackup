@@ -3856,3 +3856,28 @@ code这组织说得很大，实际上除了杂兵，偌大的组织没几个人<
 
 这几集本身就是为了传统内讧环节解决CODE的问题，顺便把二骑的最终给弄出来，差不多后面应该就要到疯狂跑主线的环节了吧 
 
+
+*****
+
+####  阿刚  
+##### 1833#       发表于 2026-5-31 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69699248&amp;ptid=2250267" target="_blank">TOYSTORY 发表于 2026-5-31 11:11</a>
+
+虽然这帮人的pose摆得很帅，但里边至少有2个人是不会变身的吧
+
+零变身的形态可能会用超战斗DVD里那个摩 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">零剧照里涌上lord腰带，老五应该也能混上一条，lady虽然不能变身但能玩宝可梦啊
+
+
+*****
+
+####  丹德里恩  
+##### 1834#       发表于 2026-5-31 12:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没想到shock胶囊的call back在这里
+
+这集拿橘前辈来搞乐子的效果比上一回强，顺带捞了一下老5的塑造、贡献了一幕老父亲救子但bad cg，作为过渡回不好不差算正常水平吧
+
+本以为铁叔会给一点以前小鹰的信息结果还是纯工具人这点比较不满
+
