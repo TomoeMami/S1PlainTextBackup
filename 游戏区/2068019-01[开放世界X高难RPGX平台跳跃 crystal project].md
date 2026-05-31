@@ -1753,3 +1753,11 @@ https://store.steampowered.com/app/3901760/Crystal_Project_2/
 
 不知道2的地图还能搞出来什么惊艳的结构，今年的逛街额度还没有游戏给我填呢<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  妄想中毒  
+##### 145#       发表于 2026-5-31 11:30
+
+居然要出2了，除了地图希望2内容更丰富一点，1代全靠创意工坊加内容，本体的职业技能装备有点少了
+
