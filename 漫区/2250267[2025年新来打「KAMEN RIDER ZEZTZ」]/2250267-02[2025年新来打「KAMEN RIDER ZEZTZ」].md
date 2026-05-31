@@ -3966,3 +3966,16 @@ code这组织说得很大，实际上除了杂兵，偌大的组织没几个人<
 
 高桥悠也其实也是个隐藏的月丑，057其实是在致敬卫宫家吧
 
+
+*****
+
+####  199april  
+##### 1844#       发表于 2026-5-31 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69700969&amp;ptid=2250267" target="_blank">kurihayn 发表于 2026-5-31 19:37</a>
+
+怎么感觉nox被ntr这段剧情很多余啊，既没有深挖nox，也没有深挖富士见，36之前啥印象37后还是啥印象，这已 ...</blockquote>
+这段感觉引出午夜暗影的，然后水一水集数
+
+跟ea后面差不多，无敌都出来了直接打死老坛得了，不过集数还有要水一水
+
