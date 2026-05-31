@@ -227,3 +227,15 @@ SNK老板是那个沙特老大，近五六年的国家一把手</blockquote>
 这由莉多少岁了还一副少女样</blockquote>
 李小冉.png
 
+
+*****
+
+####  adretyu67.  
+##### 719#       发表于 2026-5-31 09:18
+
+ 本帖最后由 adretyu67. 于 2026-5-31 09:19 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+虽然kof点鸳鸯谱选了king，但是龙虎外有意思的是香澄，估计会选择性不提了。
+
