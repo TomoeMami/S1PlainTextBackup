@@ -664,3 +664,14 @@ codex并不行，对非GPT的模型支持非常差
 
 Cherry Studio里不也自带了智能体，也能用skill？只要不是太专业的程序工作，我感觉够用了啊
 
+
+*****
+
+####  阿刚  
+##### 1540#       发表于 2026-6-2 02:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69707146&amp;ptid=2275806" target="_blank">无尽的牙刷 发表于 2026-6-2 02:01</a>
+
+Cherry Studio里不也自带了智能体，也能用skill？只要不是太专业的程序工作，我感觉够用了啊 ...</blockquote>
+他直接塞了个龙虾进去
+
