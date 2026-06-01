@@ -508,3 +508,28 @@ https://github.com/worldwonderer/oh-story-claudecode
 —— 来自 HUAWEI SGU-AL10,  ...</blockquote>
 cherry studio不是也能加载skill，效果不一样吗？
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1525#       发表于 2026-6-1 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705016&amp;ptid=2275806" target="_blank">shabee001 发表于 2026-6-1 16:19</a>
+cherry studio不是也能加载skill，效果不一样吗？</blockquote>
+agent权限和能力边界更广，可以直接用自然语言下达指示让它自己去找去装并且修改skill格式适配自己，从这点来说比cherry studio用起来简单
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  qwased  
+##### 1526#       发表于 2026-6-1 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69704992&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-6-1 16:17</a>
+
+感谢感谢，注册了一个
+
+我看了一下是送100美元积分啊，200美元是怎么获取？ ...</blockquote>
+那就是今天砍的，昨天注册的还是200<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">反正一天限额只够花0.5刀的
+

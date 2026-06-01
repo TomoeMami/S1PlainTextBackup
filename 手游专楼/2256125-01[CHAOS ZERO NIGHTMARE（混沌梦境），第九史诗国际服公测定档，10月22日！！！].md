@@ -828,3 +828,65 @@ b站有对比视频，找个有的角色对比下？
 对了有个事说一下，这游戏专武可以用抽卡副产物换有时候甚至可以不抽</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我抽角色卡也会歪专武，那是不是都不用抽专武池
 
+
+*****
+
+####  sxsdark  
+##### 838#       发表于 2026-6-1 16:37
+
+出击和零号空洞有啥区别？出击一般每周要刷多少把？
+
+*****
+
+####  就不的  
+##### 839#       发表于 2026-6-1 16:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">我玩了试玩的绯我就知道这角色我绝不可能用，要疯狂出牌，多废鼠标OR手指啊
+
+*****
+
+####  三谷歩夢  
+##### 840#       发表于 2026-6-1 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705001&amp;ptid=2256125" target="_blank">御姐控之耻 发表于 2026-6-1 16:18</a>
+
+问一下这套的话是不是有必要把九的屠戮换成极强？
+
+这游戏刚需AOE的场合多还是单点更好些？</blockquote>
+看队友组合，有的构筑一回合抽牌量不够打不出这么多次破碎，反而会卡自己的输出循环，比如修女狗9的构筑就要装甲而不是极强
+
+一般是单点多一点
+
+
+*****
+
+####  三谷歩夢  
+##### 841#       发表于 2026-6-1 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705017&amp;ptid=2256125" target="_blank">FBC档案部专员 发表于 2026-6-1 16:20</a>
+
+我抽角色卡也会歪专武，那是不是都不用抽专武池</blockquote>
+角色池歪不出5星专武吧我记得
+
+
+*****
+
+####  FBC档案部专员  
+##### 842#       发表于 2026-6-1 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705136&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2026-6-1 16:39</a>
+
+角色池歪不出5星专武吧我记得</blockquote>
+这样啊，那明白了
+
+*****
+
+####  三谷歩夢  
+##### 843#       发表于 2026-6-1 16:42
+
+ 本帖最后由 三谷歩夢 于 2026-6-1 16:44 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705129&amp;ptid=2256125" target="_blank">就不的 发表于 2026-6-1 16:38</a>
+
+我玩了试玩的绯我就知道这角色我绝不可能用，要疯狂出牌，多废鼠标OR手指啊 ...</blockquote>
+这游戏上限高的卡组大部分都是要疯狂出牌的，然后你还得顶着PPT一张一张过牌，不过大部分情况都用不上这种卡组
+
