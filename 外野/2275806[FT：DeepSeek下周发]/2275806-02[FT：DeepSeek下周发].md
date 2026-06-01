@@ -328,3 +328,11 @@ deepseek也是跑在codex里吗
 
 —— 来自 Xiaomi 2512BPNDAC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  fat  
+##### 1510#       发表于 2026-6-1 14:20
+
+我的dsv4接酒馆总是会掉状态栏，遵守格式方面总是不如claude，有什么好的办法    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
