@@ -695,3 +695,20 @@ pixel钢这肩头丘比特水贴老是联想到银纹，真给骡子开上战场
 
 元祖剩下的外传能做成活动关的就鸡瘟前线和殖民地坠落之地还有闪光的尽头了，愚连队有戏吗？katana都有了不应该没前作吧？
 
+
+*****
+
+####  plok201  
+##### 4330#       发表于 2026-6-1 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69706073&amp;ptid=2071758" target="_blank">gpx234mqx 发表于 2026-6-1 19:36</a>
+
+原版，博克胜利结局</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">只有原作有的话，那制作组也是用心了，毕竟最后那段还加了语音
+
+虽然很多老素材，但是这拼出来的结局，融合了各方优点还挺好的
+
+坠落之地，吉翁前线，失落编年史，闪光尽头，ML，0081,真有愚连队也是一年后了吧
+
+希望下次直播有闪光尽头消息
+
