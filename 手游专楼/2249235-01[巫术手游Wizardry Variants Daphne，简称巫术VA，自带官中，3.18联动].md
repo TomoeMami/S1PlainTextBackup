@@ -94,3 +94,14 @@
 
 泥潭有群吗？买了个号想入坑但为啥进游戏以后没有账号密码登录界面就直接进了个地牢，显示lv30而且卡着什么操作都动不了？
 
+
+*****
+
+####  电脑死机  
+##### 820#       发表于 2026-6-1 08:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69699863&amp;ptid=2249235" target="_blank">garitaay 发表于 2026-5-31 13:48</a>
+
+泥潭有群吗？买了个号想入坑但为啥进游戏以后没有账号密码登录界面就直接进了个地牢，显示lv30而且卡着什么 ...</blockquote>
+那个是给你学习基本操作的教程，按道理随便动的不会卡
+
