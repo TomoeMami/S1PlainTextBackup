@@ -1211,3 +1211,36 @@ QQ图片20260601211240.png
 原案是啥样</blockquote>
 啥样也没意义了 原来的那波人都跑了
 
+
+*****
+
+####  就不的  
+##### 870#       发表于 2026-6-2 01:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69707104&amp;ptid=2256125" target="_blank">qixinno1 发表于 2026-6-2 01:21</a>
+
+啥样也没意义了 原来的那波人都跑了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你都提了满足一下好奇啊别话说一半啊
+
+*****
+
+####  就不的  
+##### 871#       发表于 2026-6-2 01:29
+
+说起来这个领航者同步是干嘛的，应该扔谁上去
+
+
+*****
+
+####  rockroxas  
+##### 872#       发表于 2026-6-2 01:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69707112&amp;ptid=2256125" target="_blank">就不的 发表于 2026-6-2 01:29</a>
+
+说起来这个领航者同步是干嘛的，应该扔谁上去</blockquote>
+让刚抽到的低级角色不用拉马上开打的，尤其是天赋树，我刚升40马上把左上那个要超多素材的给同步上了
+
+差不多就是满育成的80%左右战力
+
+不过3天cd还是太长了，主C还是自己拉比较好，放着不管等做完6个人看限时关上差谁再同步？
+
