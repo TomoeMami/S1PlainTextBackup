@@ -252,3 +252,35 @@
 又要重复吗？这绝望的轮回。
 <img src="https://p.sda1.dev/32/04e98cb0d7b93d9dfaefff42849bb438/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堀内爱里衣  
+##### 41898#       发表于 2026-6-1 11:55
+
+       
+
+<img src="https://img.stage1st.com/forum/202606/01/115537jew35yyurnme3nmu.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-06-01_11-53-26.jpg</strong> (246.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-1 11:55 上传
+
+       [https://x.com/bang_dream_info/status/2061281587556176363](https://x.com/bang_dream_info/status/2061281587556176363)
+
+       [https://bang-dream.com/avemujica_livetour_final/](https://bang-dream.com/avemujica_livetour_final/)
+
+       
+
+<img src="https://img.stage1st.com/forum/202606/01/115537pyuszky0sjz6rear.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-06-01_11-54-33.jpg</strong> (277.15 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-1 11:55 上传
+
+       [https://t.bilibili.com/1208794495854837768](https://t.bilibili.com/1208794495854837768)
+
