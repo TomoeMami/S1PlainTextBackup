@@ -533,3 +533,15 @@ agent权限和能力边界更广，可以直接用自然语言下达指示让它
 我看了一下是送100美元积分啊，200美元是怎么获取？ ...</blockquote>
 那就是今天砍的，昨天注册的还是200<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">反正一天限额只够花0.5刀的
 
+
+*****
+
+####  qwjhb  
+##### 1527#       发表于 2026-6-1 16:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705016&amp;ptid=2275806" target="_blank">shabee001 发表于 2026-6-1 16:19</a>
+cherry studio不是也能加载skill，效果不一样吗？</blockquote>
+你同意后 opencode的agent skill能自己改自己
+
+—— 来自 Xiaomi 2512BPNDAC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
