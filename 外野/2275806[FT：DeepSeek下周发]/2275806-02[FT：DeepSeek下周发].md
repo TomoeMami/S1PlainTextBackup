@@ -443,3 +443,26 @@ opencode是转的minimax官方的api吧，居然是免费的
 —— 来自 HUAWEI SGU-AL10,  ...</blockquote>
 我研究一下，感谢<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厍无春  
+##### 1520#       发表于 2026-6-1 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69704659&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-6-1 15:14</a>
+opencode是转的minimax官方的api吧，居然是免费的</blockquote>
+应该有小时限额吧
+
+
+*****
+
+####  zerona  
+##### 1521#       发表于 2026-6-1 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69704856&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-6-1 15:50</a>
+
+我已经从cherry studio换成opencode了，有skill加持和没skill真是截然不同
+
+—— 来自 HUAWEI SGU-AL10,  ...</blockquote>
+求问下现在什么skill 好用
+
