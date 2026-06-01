@@ -1148,3 +1148,27 @@ QQ图片20260601211240.png
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">毕竟按照原案其实游戏不是现在这样的 被后来空降的新组改成现在这样了
 
+
+*****
+
+####  就不的  
+##### 864#       发表于 2026-6-1 23:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69706854&amp;ptid=2256125" target="_blank">qixinno1 发表于 2026-6-1 23:14</a>
+
+没事 国服开赛季刷几个梦边档就能半自动打牌了
+
+【卡厄思梦境正式进入自动化时代！我说梦之边境好牌多拿， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是市长的威力吗
+
+
+*****
+
+####  qixinno1  
+##### 865#       发表于 2026-6-1 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69706927&amp;ptid=2256125" target="_blank">就不的 发表于 2026-6-1 23:37</a>
+
+这就是市长的威力吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是梦边加市长的神力
+
