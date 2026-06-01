@@ -603,3 +603,22 @@ opencode这种看着像coding专用，其实就是通用型agent
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ff2077  
+##### 1534#       发表于 2026-6-1 22:05
+
+minimax3咋样啊 之前2.7感觉菜了点
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  真红之闪电  
+##### 1535#       发表于 2026-6-1 22:05
+
+写文其实看需求。我写场景的用cherry就够用了。但是要写剧本还是上opencode。
+
+agents是我自己搭的
+
