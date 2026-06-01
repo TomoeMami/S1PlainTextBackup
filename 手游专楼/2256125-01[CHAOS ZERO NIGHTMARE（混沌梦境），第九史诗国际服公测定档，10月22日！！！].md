@@ -956,3 +956,47 @@ OK，感谢
 我看斗技场给武器上词条有提示什么无法再刷出，是什么意思？是不极品就要删，不能留着凑合用？ ...</blockquote>
 不太记得了，应该是已经获得的词条不会再出现在词条刷新列表中（但是事件里给的自带重铸的装备可以出现重复词条），不过你要是遇到更好的词条可以覆盖旧词条
 
+
+*****
+
+####  三谷歩夢  
+##### 849#       发表于 2026-6-1 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705124&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-6-1 16:37</a>
+
+出击和零号空洞有啥区别？出击一般每周要刷多少把？</blockquote>
+零号是刷非赛季存档和神之介入的，出击就是类似单机爬塔那种玩法，和存档完全无关，刷多少取决于你对改存档的需求大不大
+
+
+*****
+
+####  sxsdark  
+##### 850#       发表于 2026-6-1 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705421&amp;ptid=2256125" target="_blank">christiny 发表于 2026-6-1 17:21</a>
+
+零式不要直接硬刷，很痛苦的。
+
+这边建议是，先合成一套遗物（记忆碎片）。从左边数过来第四号位置，定向选 ...</blockquote>
+怎么看这角色是啥属性伤害？
+
+*****
+
+####  sxsdark  
+##### 851#       发表于 2026-6-1 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705530&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2026-6-1 17:38</a>
+
+零号是刷非赛季存档和神之介入的，出击就是类似单机爬塔那种玩法，和存档完全无关，刷多少取决于你对改存 ...</blockquote>
+我看攻略好像只告诉了你闪的情况下选哪一张好，没说神闪该怎么选的？
+
+*****
+
+####  三谷歩夢  
+##### 852#       发表于 2026-6-1 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705555&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-6-1 17:43</a>
+
+我看攻略好像只告诉了你闪的情况下选哪一张好，没说神闪该怎么选的？</blockquote>
+批站很多局外攻略，一般都会写需不需要哪些神闪，没写就是不刚需，现在也很少有哪个角色缺了神闪就没法玩了
+

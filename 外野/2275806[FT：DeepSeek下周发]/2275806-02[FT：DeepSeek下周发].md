@@ -563,3 +563,15 @@ cherry studio不是也能加载skill，效果不一样吗？</blockquote>
 
 装了coding agent之外还需要再装一个通用的agent么？
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1530#       发表于 2026-6-1 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705318&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-6-1 17:05</a>
+装了coding agent之外还需要再装一个通用的agent么？</blockquote>
+opencode这种看着像coding专用，其实就是通用型agent
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
