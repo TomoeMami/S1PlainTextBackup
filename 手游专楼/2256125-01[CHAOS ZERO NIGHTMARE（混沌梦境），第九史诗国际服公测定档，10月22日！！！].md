@@ -1172,3 +1172,14 @@ QQ图片20260601211240.png
 这就是市长的威力吗</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是梦边加市长的神力
 
+
+*****
+
+####  就不的  
+##### 866#       发表于 2026-6-2 00:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69706894&amp;ptid=2256125" target="_blank">qixinno1 发表于 2026-6-1 23:27</a>
+
+毕竟按照原案其实游戏不是现在这样的 被后来空降的新组改成现在这样了</blockquote>
+原案是啥样
+
