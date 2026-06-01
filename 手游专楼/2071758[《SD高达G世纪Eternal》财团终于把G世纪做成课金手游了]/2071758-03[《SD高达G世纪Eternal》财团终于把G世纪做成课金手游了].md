@@ -730,3 +730,16 @@ pixel钢这肩头丘比特水贴老是联想到银纹，真给骡子开上战场
 
 原计划3部各出一台精灵高达，最后3人打鸡瘟ma
 
+
+*****
+
+####  ティグル  
+##### 4332#       发表于 2026-6-1 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69706615&amp;ptid=2071758" target="_blank">gpx234mqx 发表于 2026-6-1 22:02</a>
+
+这次活动剧情是原设定的 树冰的魔女 三部作第二部
+
+然后1部和3部没了，搞Z高达去了</blockquote>
+永恒这么搞算好事，到时候F91/90那些被腰斩的外传也能翻出来整一整
+
