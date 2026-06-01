@@ -113,3 +113,13 @@
 
 摆烂六月，签到下线完事<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 822#       发表于 2026-6-1 19:03
+
+我刚农完雪巨人遗物就要出遗物掉率up活动吗，drecom，你这家伙
+
+连续两个月长草尽显小作坊风范。不说古城，新的皆传戒指也早该出一出了
+
