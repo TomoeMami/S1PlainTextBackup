@@ -375,3 +375,19 @@ Minimax M3发布，1M上下文多模态，价格略高于DSV4和降价后mimo，
 
 有人问 Minimax M3 模型为什么不开源，回答说是因为带宽太低，模型传输很花时间。难道 M3 是在国外的数据中心训练出来的？<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  很久就在那边l  
+##### 1514#       发表于 2026-6-1 15:14
+
+<img src="https://img.stage1st.com/forum/202606/01/151314dyoyvo809v9vz8oa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-1 15:13 上传
+
+opencode是转的minimax官方的api吧，居然是免费的
+
