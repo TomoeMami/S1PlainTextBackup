@@ -1117,3 +1117,26 @@ QQ图片20260601211240.png
 这边建议是，先合成一套遗物（记忆碎片）。从左边数过来第四号位置，定向选 ...</blockquote>
 加速软件是啥？
 
+
+*****
+
+####  qixinno1  
+##### 861#       发表于 2026-6-1 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69706820&amp;ptid=2256125" target="_blank">就不的 发表于 2026-6-1 23:02</a>
+
+那就不追求，佛系玩</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事 国服开赛季刷几个梦边档就能半自动打牌了
+
+【卡厄思梦境正式进入自动化时代！我说梦之边境好牌多拿，拿够了牌库自己会打游戏】 [https://www.bilibili.com/video/BV1J5dFBuEUk/](https://www.bilibili.com/video/BV1J5dFBuEUk/)
+
+*****
+
+####  伊布桑  
+##### 862#       发表于 2026-6-1 23:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69706813&amp;ptid=2256125" target="_blank">hagenda4 发表于 2026-6-1 22:59</a>
+那普通卡厄斯是干什么的 就拿个首刷奖励么？</blockquote>
+普通卡厄思你就当做是一个图鉴<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">估计官方当时也没想到为什么要单独开这个模块，玩家都住在零号里了。
+毕竟这游戏就是这么从一堆废案里一点点堆叠优化出来的
+
