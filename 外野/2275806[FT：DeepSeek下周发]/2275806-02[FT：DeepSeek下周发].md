@@ -545,3 +545,21 @@ cherry studio不是也能加载skill，效果不一样吗？</blockquote>
 
 —— 来自 Xiaomi 2512BPNDAC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  绝地潜兵  
+##### 1528#       发表于 2026-6-1 17:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705150&amp;ptid=2275806" target="_blank">qwased 发表于 2026-6-1 16:41</a>
+
+那就是今天砍的，昨天注册的还是200反正一天限额只够花0.5刀的</blockquote>
+老外调整的minimax和ds都完全无甲，好强的说<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛋黄酱Release  
+##### 1529#       发表于 2026-6-1 17:05
+
+装了coding agent之外还需要再装一个通用的agent么？
+
