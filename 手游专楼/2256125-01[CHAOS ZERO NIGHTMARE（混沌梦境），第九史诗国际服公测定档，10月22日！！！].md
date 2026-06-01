@@ -1068,3 +1068,14 @@ QQ图片20260601211240.png
 怎么还能问这个的，这游戏ui也没这么差吧</blockquote>
 挺不明显是真的，我玩这么久经常还搞混游侠和猎人<img src="https://static.stage1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windaria  
+##### 857#       发表于 2026-6-1 22:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69706732&amp;ptid=2256125" target="_blank">伊布桑 发表于 2026-6-1 22:36</a>
+
+挺不明显是真的，我玩这么久经常还搞混游侠和猎人</blockquote>
+你这么一说我突然也分不清了，你怎么赔我<img src="https://static.stage1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+

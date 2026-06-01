@@ -622,3 +622,15 @@ minimax3咋样啊 之前2.7感觉菜了点
 
 agents是我自己搭的
 
+
+*****
+
+####  SmterC  
+##### 1536#       发表于 2026-6-1 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69704322&amp;ptid=2275806" target="_blank">qwjhb 发表于 2026-6-1 14:10</a>
+deepseek也是跑在codex里吗
+
+—— 来自 Xiaomi 2512BPNDAC, Android 16, 鹅球 v3.5.99</blockquote>
+claude code或是opencode    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
