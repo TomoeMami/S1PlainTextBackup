@@ -418,3 +418,28 @@ opencode是转的minimax官方的api吧，居然是免费的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">求教单纯写作用的话，窗口哪个软件好使啊，现在用chatbox感觉马马虎虎凑合，想看看有没有更好用的【chatbox还是d老师自己推给我的
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1518#       发表于 2026-6-1 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69704777&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-6-1 15:34</a>
+求教单纯写作用的话，窗口哪个软件好使啊，现在用chatbox感觉马马虎虎凑合，想看看有没有更好用的【chatbox ...</blockquote>
+我已经从cherry studio换成opencode了，有skill加持和没skill真是截然不同
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  酱油拌饭s  
+##### 1519#       发表于 2026-6-1 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69704856&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-6-1 15:50</a>
+
+我已经从cherry studio换成opencode了，有skill加持和没skill真是截然不同
+
+—— 来自 HUAWEI SGU-AL10,  ...</blockquote>
+我研究一下，感谢<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
