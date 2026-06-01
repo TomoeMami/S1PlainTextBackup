@@ -17429,7 +17429,7 @@
     "newtitle": "[开源阅读已删库]",
     "lastedit": 1780093325,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2253105": {
@@ -18036,10 +18036,10 @@
     "update": false
   },
   "2282269": {
-    "totalreply": 112,
+    "totalreply": 113,
     "title": "[原子化／去责任化社会的缺点之一]",
     "newtitle": "[原子化／去责任化社会的缺点之一]",
-    "lastedit": 1780344006,
+    "lastedit": 1780352765,
     "category": "外野",
     "active": true,
     "update": false
