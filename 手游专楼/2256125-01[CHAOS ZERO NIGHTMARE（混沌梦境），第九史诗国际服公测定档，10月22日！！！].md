@@ -720,3 +720,37 @@ b站有对比视频，找个有的角色对比下？
 氪金方面基本就是标准棒游水平，有签到月卡有多档礼包，偶尔（例如周年）会有很高性价比的一次性礼包，但是通行证不如其他游戏，给的抽很少，主要是为了拿独有的5星伙伴
 无课不脸黑基本能平铺所有角色，这游戏因为XM喜欢搞定制赛季，所以命座相对来说没那么重要
 
+
+*****
+
+####  qixinno1  
+##### 828#       发表于 2026-6-1 13:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在进国际服除非你买个市长号 不然纯纯吃瘪
+
+*****
+
+####  伊布桑  
+##### 829#       发表于 2026-6-1 13:10
+
+道友来晚了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要是早点进国际服有大量福利还好，市长刚刚过去这时候进真不如进国服
+
+
+*****
+
+####  是谁的书画  
+##### 830#       发表于 2026-6-1 13:12
+
+谢谢各位，了解了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+真想玩的话我之后搞个市长号看看
+
+*****
+
+####  三谷歩夢  
+##### 831#       发表于 2026-6-1 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69704060&amp;ptid=2256125" target="_blank">伊布桑 发表于 2026-6-1 13:10</a>
+道友来晚了要是早点进国际服有大量福利还好，市长刚刚过去这时候进真不如进国服 ...</blockquote>
+买个市长号又用不了几个钱，何况哪怕只买月卡，一年下来省的钱也回本了
+
