@@ -804,3 +804,27 @@ b站有对比视频，找个有的角色对比下？
 
 2命市长局内纯轮椅，天使还要多操作几下，市长扔俩连接牌然后看动画就完事了，唯一的问题就是动画长了点
 
+
+*****
+
+####  御姐控之耻  
+##### 836#       发表于 2026-6-1 16:18
+
+<img src="https://p.sda1.dev/32/5c7f69cadc0e62b1ddd450e56baed3d0/image.jpg" referrerpolicy="no-referrer">
+
+问一下这套的话是不是有必要把九的屠戮换成极强？
+
+这游戏刚需AOE的场合多还是单点更好些？
+
+目前队友是从修女（上脆弱+软软加伤），米卡（回费），维罗妮卡（过牌），里面选两个，没有最适配的小金毛。
+
+*****
+
+####  FBC档案部专员  
+##### 837#       发表于 2026-6-1 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69700795&amp;ptid=2256125" target="_blank">伊布桑 发表于 2026-5-31 18:56</a>
+
+对了有个事说一下，这游戏专武可以用抽卡副产物换有时候甚至可以不抽</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我抽角色卡也会歪专武，那是不是都不用抽专武池
+

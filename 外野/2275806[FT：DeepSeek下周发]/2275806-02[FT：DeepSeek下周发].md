@@ -466,3 +466,45 @@ opencode是转的minimax官方的api吧，居然是免费的</blockquote>
 —— 来自 HUAWEI SGU-AL10,  ...</blockquote>
 求问下现在什么skill 好用
 
+
+*****
+
+####  绝地潜兵  
+##### 1522#       发表于 2026-6-1 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69704736&amp;ptid=2275806" target="_blank">qwased 发表于 2026-6-1 15:28</a>
+
+https://www.generalcompute.com/
+
+找个解码平台用美国手机号或者自己的+86号码都可以注册， 有200刀，每日 ...</blockquote>
+感谢感谢，注册了一个
+
+我看了一下是送100美元积分啊，200美元是怎么获取？
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1523#       发表于 2026-6-1 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69704910&amp;ptid=2275806" target="_blank">zerona 发表于 2026-6-1 16:03</a>
+求问下现在什么skill 好用</blockquote>
+https://github.com/modoojunko/awesome-novel-skill
+https://github.com/worldwonderer/oh-story-claudecode
+这两套偏向于结构化输出以及拆文解析
+
+文风skill是我输出范文让agent自己编的
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  shabee001  
+##### 1524#       发表于 2026-6-1 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69704856&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-6-1 15:50</a>
+
+我已经从cherry studio换成opencode了，有skill加持和没skill真是截然不同
+
+—— 来自 HUAWEI SGU-AL10,  ...</blockquote>
+cherry studio不是也能加载skill，效果不一样吗？
+
