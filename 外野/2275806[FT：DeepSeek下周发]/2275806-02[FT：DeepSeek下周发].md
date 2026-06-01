@@ -336,3 +336,13 @@ deepseek也是跑在codex里吗
 
 我的dsv4接酒馆总是会掉状态栏，遵守格式方面总是不如claude，有什么好的办法    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  ayanamilin  
+##### 1511#       发表于 2026-6-1 14:40
+
+推荐一个可以薅羊毛的中转（非国内二道贩子、非打广告），用 Github 注册就能薅五刀的羊毛，可用御三家的受限模型（Claude、大香蕉等）。
+
+[https://www.orcarouter.ai/](https://www.orcarouter.ai/)
+
