@@ -645,3 +645,14 @@ claude code或是opencode    [Re:Source](https://stage1st.com/2b/thread-227527
 像codex，Claude code这种其实当通用agents也完全没问题。    Re:Source</blockquote>
 codex并不行，对非GPT的模型支持非常差
 
+
+*****
+
+####  阿刚  
+##### 1538#       发表于 2026-6-2 01:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705827&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-6-1 18:38</a>
+
+没用过cherry的skill，但我觉得agent搭配skill自动实现对最新章节的剧情、角色动量、伏笔跟踪挺方便的，s ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">确实搭配skill比单纯的提示词智能体效果要好很多
+
