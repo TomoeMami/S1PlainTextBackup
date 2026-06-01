@@ -562,3 +562,13 @@ b站有对比视频，找个有的角色对比下？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  sxsdark  
+##### 815#       发表于 2026-6-1 10:00
+
+<img src="https://tiebapic.baidu.com/forum/pic/item/ecca090e4bfbfbed6327807f3ef0f736afc31f1f.jpg?tbpicau=2026-06-12-05_892441d1aa868db0dc88f10de16214a0" id="aimg_bzJMY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+大佬们，深渊配两队要怎么配呀？
+
