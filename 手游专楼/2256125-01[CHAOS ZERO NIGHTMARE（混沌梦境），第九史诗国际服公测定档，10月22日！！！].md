@@ -1140,3 +1140,11 @@ QQ图片20260601211240.png
 普通卡厄思你就当做是一个图鉴<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">估计官方当时也没想到为什么要单独开这个模块，玩家都住在零号里了。
 毕竟这游戏就是这么从一堆废案里一点点堆叠优化出来的
 
+
+*****
+
+####  qixinno1  
+##### 863#       发表于 2026-6-1 23:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">毕竟按照原案其实游戏不是现在这样的 被后来空降的新组改成现在这样了
+
