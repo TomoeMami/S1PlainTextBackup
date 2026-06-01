@@ -315,3 +315,16 @@ Minimax M3发布，1M上下文多模态，价格略高于DSV4和降价后mimo，
 话说， ...</blockquote>
 冲水之前有一个，现在没了
 
+
+*****
+
+####  qwjhb  
+##### 1509#       发表于 2026-6-1 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69699620&amp;ptid=2275806" target="_blank">SmterC 发表于 2026-5-31 12:52</a>
+关于这点我有一点浅薄的实践经验
+我现在在用一个Harness框架trellis，它提供了一整套“头脑风暴-设计任务 ...</blockquote>
+deepseek也是跑在codex里吗
+
+—— 来自 Xiaomi 2512BPNDAC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
