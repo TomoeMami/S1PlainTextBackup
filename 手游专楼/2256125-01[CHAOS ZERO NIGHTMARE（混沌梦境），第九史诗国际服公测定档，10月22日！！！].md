@@ -767,3 +767,40 @@ b站有对比视频，找个有的角色对比下？
 
 都是四星，五星戴安娜和女主只能说能搭，但是上下限都一般
 
+
+*****
+
+####  Fingest  
+##### 833#       发表于 2026-6-1 14:49
+
+那个每天一次免费的跳过战斗卡厄思为什么会中途崩溃翻车啊 我还以为可以每天自动刷满一次<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  
+
+问下市长局内带队稳吗 国服什么时候出 9以前在国际服玩过感觉除了带队都有点微妙的憋屈感 （带队遇到丢牌也难绷） 还在犹豫换不换
+
+
+*****
+
+####  qixinno1  
+##### 834#       发表于 2026-6-1 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69704521&amp;ptid=2256125" target="_blank">Fingest 发表于 2026-6-1 14:49</a>
+
+那个每天一次免费的跳过战斗卡厄思为什么会中途崩溃翻车啊 我还以为可以每天自动刷满一次  
+
+问下市长局内带 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为本质就是快速的自动战斗 词条不好打 阵容练度配置不行就是会崩 反正目前我市长下本快速没崩过
+
+*****
+
+####  三谷歩夢  
+##### 835#       发表于 2026-6-1 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69704521&amp;ptid=2256125" target="_blank">Fingest 发表于 2026-6-1 14:49</a>
+
+那个每天一次免费的跳过战斗卡厄思为什么会中途崩溃翻车啊 我还以为可以每天自动刷满一次  
+
+问下市长局内带 ...</blockquote>
+跳过战斗这玩意是看词条和你队伍数值的，数值不够自然就会翻车
+
+2命市长局内纯轮椅，天使还要多操作几下，市长扔俩连接牌然后看动画就完事了，唯一的问题就是动画长了点
+

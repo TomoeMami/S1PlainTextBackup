@@ -346,3 +346,32 @@ deepseek也是跑在codex里吗
 
 [https://www.orcarouter.ai/](https://www.orcarouter.ai/)
 
+
+*****
+
+####  overflowal  
+##### 1512#       发表于 2026-6-1 14:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69704196&amp;ptid=2275806" target="_blank">findpkq 发表于 2026-6-1 13:42</a>
+Minimax M3发布，1M上下文多模态，价格略高于DSV4和降价后mimo，能力好像说还行，至少没2.7那么拉
+
+话说， ...</blockquote>
+没看出哪里略高了。明明是远高<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+不过正常，minimax拿个deepseek3.2时代差不多思路的注意力机制，降本能力是比不上现在的deepseek的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  ayanamilin  
+##### 1513#       发表于 2026-6-1 14:56
+
+<img src="https://img.stage1st.com/forum/202606/01/145501z852nn2502l5ln57.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (209.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-1 14:55 上传
+
+有人问 Minimax M3 模型为什么不开源，回答说是因为带宽太低，模型传输很花时间。难道 M3 是在国外的数据中心训练出来的？<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
