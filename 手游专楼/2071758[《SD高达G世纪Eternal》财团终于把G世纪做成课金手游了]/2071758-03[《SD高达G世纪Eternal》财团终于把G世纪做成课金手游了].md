@@ -587,3 +587,15 @@ DFF牛动画还行，立绘也是一坨
 
 这精灵高达这么搞笑的吗，选哪个技能就是谁的动画，连个交接也没有？连隔壁NT1+扎古的十分之一的水平都不到
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 4320#       发表于 2026-6-1 08:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69701950&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-6-1 00:07</a>
+这精灵高达这么搞笑的吗，选哪个技能就是谁的动画，连个交接也没有？连隔壁NT1+扎古的十分之一的水平都不到 ...</blockquote>
+这活动其实从头到尾就两台机<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还都是之前就有的机体，真的偷懒拉完了，怪不得连个开发图都没有
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
