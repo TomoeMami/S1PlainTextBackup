@@ -591,3 +591,15 @@ opencode这种看着像coding专用，其实就是通用型agent
 
 不编程的话，写点文出点生图提示词还是chreeystudio好点
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1533#       发表于 2026-6-1 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705754&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-6-1 18:25</a>
+不编程的话，写点文出点生图提示词还是chreeystudio好点</blockquote>
+没用过cherry的skill，但我觉得agent搭配skill自动实现对最新章节的剧情、角色动量、伏笔跟踪挺方便的，skill的约束力比直接输入提示词也高一些
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

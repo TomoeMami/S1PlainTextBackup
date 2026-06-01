@@ -1000,3 +1000,14 @@ OK，感谢
 我看攻略好像只告诉了你闪的情况下选哪一张好，没说神闪该怎么选的？</blockquote>
 批站很多局外攻略，一般都会写需不需要哪些神闪，没写就是不刚需，现在也很少有哪个角色缺了神闪就没法玩了
 
+
+*****
+
+####  christiny  
+##### 853#       发表于 2026-6-1 18:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705551&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-6-1 17:42</a>
+
+怎么看这角色是啥属性伤害？</blockquote>
+看颜色图标啊。 9的话是绿色，正义属性。
+
