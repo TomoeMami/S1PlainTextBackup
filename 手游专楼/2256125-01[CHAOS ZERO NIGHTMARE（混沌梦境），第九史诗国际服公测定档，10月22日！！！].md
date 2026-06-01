@@ -572,3 +572,32 @@ b站有对比视频，找个有的角色对比下？
 
 大佬们，深渊配两队要怎么配呀？
 
+
+*****
+
+####  wthall  
+##### 816#       发表于 2026-6-1 10:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">抽了个绯感觉要快腱鞘炎了。而且塔里面怎么那么多针对无脑出牌的角色，好难受啊
+
+
+*****
+
+####  ren001  
+##### 817#       发表于 2026-6-1 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69697273&amp;ptid=2256125" target="_blank">就不的 发表于 2026-5-30 21:02</a>
+
+有没有大佬说一下，我现在是新手200抽选了鼠兔，然后抽到了丽妲，麦格纳，小春
+
+有很多UP都是说应该无脑选九 ...</blockquote>
+丽塔开荒其实挺强的，手劲大，打出击不怎么需要士气就很简单。只是要算费不像奈音无脑破碎，不过奈音本身也有白值低的问题，没记忆碎片前有点刮。
+
+<img src="https://img.stage1st.com/forum/202606/01/102414ddrlrt3y22dl4d3f.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20260601102356.png</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-1 10:24 上传
+
