@@ -583,3 +583,11 @@ opencode这种看着像coding专用，其实就是通用型agent
 
 像codex，Claude code这种其实当通用agents也完全没问题。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  阿刚  
+##### 1532#       发表于 2026-6-1 18:25
+
+不编程的话，写点文出点生图提示词还是chreeystudio好点
+
