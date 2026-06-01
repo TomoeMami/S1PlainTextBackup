@@ -1028,3 +1028,33 @@ OK，感谢
 
 零号，就是刷存档的。
 
+
+*****
+
+####  windaria  
+##### 855#       发表于 2026-6-1 21:11
+
+ 本帖最后由 windaria 于 2026-6-1 21:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705551&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-6-1 17:42</a>
+
+怎么看这角色是啥属性伤害？</blockquote>
+怎么还能问这个的，这游戏ui也没这么差吧
+
+QQ图片20260601211225.png
+(51.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-1 21:12 上传
+
+<img src="https://img.stage1st.com/forum/202606/01/211251lqqjsraags01s50q.png" referrerpolicy="no-referrer">
+
+QQ图片20260601211240.png
+(154.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-1 21:12 上传
+
+<img src="https://img.stage1st.com/forum/202606/01/211251me7ctck2a77ccse7.png" referrerpolicy="no-referrer">
+
