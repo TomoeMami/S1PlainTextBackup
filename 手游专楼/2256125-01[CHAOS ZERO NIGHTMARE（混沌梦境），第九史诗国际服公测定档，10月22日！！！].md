@@ -1079,3 +1079,41 @@ QQ图片20260601211240.png
 挺不明显是真的，我玩这么久经常还搞混游侠和猎人</blockquote>
 你这么一说我突然也分不清了，你怎么赔我<img src="https://static.stage1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hagenda4  
+##### 858#       发表于 2026-6-1 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705971&amp;ptid=2256125" target="_blank">christiny 发表于 2026-6-1 19:06</a>
+
+出击 主要产出两类东西。
+
+1，存档修改道具，局外移除、闪光、神闪、复制都可以。
+
+2，遗物定制和强化相关 ...</blockquote>
+那普通卡厄斯是干什么的 就拿个首刷奖励么？
+
+
+*****
+
+####  就不的  
+##### 859#       发表于 2026-6-1 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705153&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2026-6-1 16:42</a>
+
+这游戏上限高的卡组大部分都是要疯狂出牌的，然后你还得顶着PPT一张一张过牌，不过大部分情况都用不上这种 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那就不追求，佛系玩
+
+*****
+
+####  unclea  
+##### 860#       发表于 2026-6-1 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705421&amp;ptid=2256125" target="_blank">christiny 发表于 2026-6-1 17:21</a>
+
+零式不要直接硬刷，很痛苦的。
+
+这边建议是，先合成一套遗物（记忆碎片）。从左边数过来第四号位置，定向选 ...</blockquote>
+加速软件是啥？
+
