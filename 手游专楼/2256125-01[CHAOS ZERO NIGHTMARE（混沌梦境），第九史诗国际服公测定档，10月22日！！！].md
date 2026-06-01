@@ -601,3 +601,33 @@ b站有对比视频，找个有的角色对比下？
 
 2026-6-1 10:24 上传
 
+
+*****
+
+####  wthall  
+##### 818#       发表于 2026-6-1 10:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">话说自选票还存在的情况下面，如果要给市长选队友，应该选谁？
+
+
+*****
+
+####  伊布桑  
+##### 819#       发表于 2026-6-1 10:44
+
+ 本帖最后由 伊布桑 于 2026-6-1 10:45 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69703108&amp;ptid=2256125" target="_blank">wthall 发表于 2026-6-1 10:37</a>
+话说自选票还存在的情况下面，如果要给市长选队友，应该选谁？</blockquote>
+普池五星里只有戴安娜勉强沾点边，还有女主蕾欧娜，雨果也行因为第三赛季可以组梦边队，但是后面两个最好不要用那张20个角色的自选，因为太好获取了，选他们会亏。
+别的队友目前都在四星，吉他和小丑更重要。
+
+*****
+
+####  三谷歩夢  
+##### 820#       发表于 2026-6-1 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69703108&amp;ptid=2256125" target="_blank">wthall 发表于 2026-6-1 10:37</a>
+
+话说自选票还存在的情况下面，如果要给市长选队友，应该选谁？</blockquote>
+局外的话选个狼就行，目前最新赛季最强的梦之边境流派就需要狼打输出，其他没有什么比较需要的
+
