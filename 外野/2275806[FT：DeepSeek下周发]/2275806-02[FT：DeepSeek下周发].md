@@ -391,3 +391,30 @@ Minimax M3发布，1M上下文多模态，价格略高于DSV4和降价后mimo，
 
 opencode是转的minimax官方的api吧，居然是免费的
 
+
+*****
+
+####  qwased  
+##### 1515#       发表于 2026-6-1 15:28
+
+[https://www.generalcompute.com/](https://www.generalcompute.com/)
+
+找个解码平台用美国手机号或者自己的+86号码都可以注册， 有200刀，每日限额200w token，可以跑DS V3.2，翻译什么的够用了
+
+*****
+
+####  overflowal  
+##### 1516#       发表于 2026-6-1 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69704565&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-6-1 14:56</a>
+有人问 Minimax M3 模型为什么不开源，回答说是因为带宽太低，模型传输很花时间。难道 M3 是在国外的数据 ...</blockquote>
+开玩笑呢，这就是他们的策略，先api开个几周没热度了再开    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  酱油拌饭s  
+##### 1517#       发表于 2026-6-1 15:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">求教单纯写作用的话，窗口哪个软件好使啊，现在用chatbox感觉马马虎虎凑合，想看看有没有更好用的【chatbox还是d老师自己推给我的
+
