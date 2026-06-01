@@ -575,3 +575,11 @@ opencode这种看着像coding专用，其实就是通用型agent
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  fat  
+##### 1531#       发表于 2026-6-1 17:58
+
+像codex，Claude code这种其实当通用agents也完全没问题。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
