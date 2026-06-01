@@ -656,3 +656,11 @@ codex并不行，对非GPT的模型支持非常差
 没用过cherry的skill，但我觉得agent搭配skill自动实现对最新章节的剧情、角色动量、伏笔跟踪挺方便的，s ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">确实搭配skill比单纯的提示词智能体效果要好很多
 
+
+*****
+
+####  无尽的牙刷  
+##### 1539#       发表于 2026-6-2 02:01
+
+Cherry Studio里不也自带了智能体，也能用skill？只要不是太专业的程序工作，我感觉够用了啊
+
