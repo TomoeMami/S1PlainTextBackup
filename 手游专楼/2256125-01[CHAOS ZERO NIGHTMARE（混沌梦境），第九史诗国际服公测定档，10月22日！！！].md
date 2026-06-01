@@ -1011,3 +1011,20 @@ OK，感谢
 怎么看这角色是啥属性伤害？</blockquote>
 看颜色图标啊。 9的话是绿色，正义属性。
 
+
+*****
+
+####  christiny  
+##### 854#       发表于 2026-6-1 19:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705124&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-6-1 16:37</a>
+
+出击和零号空洞有啥区别？出击一般每周要刷多少把？</blockquote>
+出击 主要产出两类东西。
+
+1，存档修改道具，局外移除、闪光、神闪、复制都可以。
+
+2，遗物定制和强化相关的道具。
+
+零号，就是刷存档的。
+
