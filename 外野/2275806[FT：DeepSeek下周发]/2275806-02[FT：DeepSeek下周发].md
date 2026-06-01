@@ -634,3 +634,14 @@ deepseek也是跑在codex里吗
 —— 来自 Xiaomi 2512BPNDAC, Android 16, 鹅球 v3.5.99</blockquote>
 claude code或是opencode    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  Quelaan  
+##### 1537#       发表于 2026-6-2 01:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69705623&amp;ptid=2275806" target="_blank">fat 发表于 2026-6-1 17:58</a>
+
+像codex，Claude code这种其实当通用agents也完全没问题。    Re:Source</blockquote>
+codex并不行，对非GPT的模型支持非常差
+
