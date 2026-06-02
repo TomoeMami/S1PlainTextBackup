@@ -963,3 +963,18 @@ pi + ds4 flash
 
 PI写代码好用吗
 
+
+*****
+
+####  LeoDT  
+##### 1566#       发表于 2026-6-2 15:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69709327&amp;ptid=2275806" target="_blank">zy450 发表于 2026-6-2 14:36</a>
+
+PI写代码好用吗</blockquote>
+好用这个东西看个人。
+
+pi对我来说最好的点是让它自己给自己写扩展，加上d老师flash超高速写代码，每天都能获得一个新的pi扩展，专注且高效。
+
+另外，比起其它工具，pi几乎是透明的，基本上从里到外全都可以自定义，这比起其它那些黑盒一样的工具更好理解。已经对着llm这么个黑盒在祈祷了，中间再经过一个黑盒传话岂不是更令人不安了。
+
