@@ -1470,3 +1470,34 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 这个大命运，简直无敌。。。打不过都是我的问题。😂</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">四个神有一个是废物
 
+
+*****
+
+####  greemoore1981  
+##### 892#       发表于 2026-6-2 18:46
+
+今天终于舰长等级到40了，要不是过节给了一些体力，估计还得好几天，零式里面给的装备都是后面几个槽位的，前两个槽位的装备是不是还是得去刷模拟里面的记忆碎片关？
+
+*****
+
+####  伊布桑  
+##### 893#       发表于 2026-6-2 18:46
+
+ 本帖最后由 伊布桑 于 2026-6-2 18:48 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69710486&amp;ptid=2256125" target="_blank">greemoore1981 发表于 2026-6-2 18:46</a>
+今天终于舰长等级到40了，要不是过节给了一些体力，估计还得好几天，零式里面给的装备都是后面几个槽位的， ...</blockquote>
+千万别刷，直接合成
+查了下，40级好像刚刚解锁圣遗物合成系统
+
+*****
+
+####  greemoore1981  
+##### 894#       发表于 2026-6-2 18:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69710488&amp;ptid=2256125" target="_blank">伊布桑 发表于 2026-6-2 18:46</a>
+
+千万别刷，直接合成
+
+查了下，40级好像刚刚解锁圣遗物合成系统</blockquote>
+好的，我去研究一下
+
