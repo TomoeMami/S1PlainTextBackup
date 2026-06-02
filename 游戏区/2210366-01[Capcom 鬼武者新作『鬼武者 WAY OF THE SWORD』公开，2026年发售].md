@@ -3285,3 +3285,13 @@ ps版大 画面有点惨 不晓得是不是因为是demo 纸片树叶 笑死
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  葵  
+##### 353#       发表于 2026-6-3 06:57
+
+笑死了，玩了PS5版，是因为是DEMO的原因没做完么？这游戏砍人居然没震动，鬼武者砍人没震动你敢信？TMD隔壁生化RE4和RE9走在不同的地上都有不同的震动，更别说开枪换弹这些了，而且打击感做的也一般，战斗系统也没啥花头
+
+期待度**的降低了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
