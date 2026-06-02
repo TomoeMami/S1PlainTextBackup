@@ -1260,3 +1260,14 @@ QQ图片20260601211240.png
 
 我记得国际服打卡厄斯没练过的人物也会给你升到58级使用，要满级才有这个功能？
 
+
+*****
+
+####  qixinno1  
+##### 875#       发表于 2026-6-2 09:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69707623&amp;ptid=2256125" target="_blank">碧空之歌P 发表于 2026-6-2 09:16</a>
+
+我记得国际服打卡厄斯没练过的人物也会给你升到58级使用，要满级才有这个功能？ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那是赛季本的扭曲 开了后没练的会补正到58级能选择0破专武 正常卡厄思和零号没有
+

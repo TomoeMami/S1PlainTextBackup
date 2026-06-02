@@ -732,3 +732,14 @@ https://github.com/modoojunko/awesome-novel-skill
 https://github.com/worldwonderer/oh-story-claude ...</blockquote>
 让agent学习黄文的架构或者规范然后形成skill是否可行？用普通网文的架构写小黄文短片感觉还是太一板一眼了
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1547#       发表于 2026-6-2 09:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69707717&amp;ptid=2275806" target="_blank">requiem116 发表于 2026-6-2 09:31</a>
+
+让agent学习黄文的架构或者规范然后形成skill是否可行？用普通网文的架构写小黄文短片感觉还是太一板一眼 ...</blockquote>
+可以是可以，但这样一来不如直接用酒馆，有很多现成的预设
+
