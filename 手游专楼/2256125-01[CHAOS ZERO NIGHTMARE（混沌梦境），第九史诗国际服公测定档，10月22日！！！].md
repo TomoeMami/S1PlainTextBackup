@@ -1542,3 +1542,14 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 
 打深渊拿币去商店换主属性，出击跟零式换碎片，然后就可以去合暴击跟属性组件了
 
+
+*****
+
+####  就不的  
+##### 898#       发表于 2026-6-2 20:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69710524&amp;ptid=2256125" target="_blank">greemoore1981 发表于 2026-6-2 18:58</a>
+
+我记得NGA里有帖子提过，那时候的文案因为过多描写小白脸（初始男4星）和女角色们的戏份正在被炎上，然后 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">哦原来是文案跑了
+
