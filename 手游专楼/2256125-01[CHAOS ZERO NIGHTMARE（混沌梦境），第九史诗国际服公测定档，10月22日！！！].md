@@ -1685,3 +1685,15 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 
 只靠送的体力能不能在第一期深渊结束前把角色等级升到50以上
 
+
+*****
+
+####  orangee  
+##### 901#       发表于 2026-6-2 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69710486&amp;ptid=2256125" target="_blank">greemoore1981 发表于 2026-6-2 18:46</a>
+今天终于舰长等级到40了，要不是过节给了一些体力，估计还得好几天，零式里面给的装备都是后面几个槽位的， ...</blockquote>
+后面得慢慢磨到50才能把第一章剧情完事……记得国际服的时候好像磨了接近两周？现在应该快点了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
