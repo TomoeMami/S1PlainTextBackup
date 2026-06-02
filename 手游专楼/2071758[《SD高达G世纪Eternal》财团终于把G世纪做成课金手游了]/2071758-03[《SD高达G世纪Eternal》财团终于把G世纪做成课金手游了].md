@@ -779,3 +779,13 @@ pixel钢这肩头丘比特水贴老是联想到银纹，真给骡子开上战场
 
 坏了，观星者给的SSR黑强是红机，这UR黑强看来是凶多吉少
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 4337#       发表于 2026-6-2 20:43
+
+双人驾驶来了吗<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
