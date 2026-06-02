@@ -743,3 +743,16 @@ https://github.com/worldwonderer/oh-story-claude ...</blockquote>
 让agent学习黄文的架构或者规范然后形成skill是否可行？用普通网文的架构写小黄文短片感觉还是太一板一眼 ...</blockquote>
 可以是可以，但这样一来不如直接用酒馆，有很多现成的预设
 
+
+*****
+
+####  requiem116  
+##### 1548#       发表于 2026-6-2 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69707769&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-6-2 09:39</a>
+
+可以是可以，但这样一来不如直接用酒馆，有很多现成的预设</blockquote>
+类脑整那个邀请制搞得我一直蜜汁抵触<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+先自己慢慢搓吧xp这个东西也得自己打磨感觉
+
