@@ -3267,3 +3267,21 @@ Demo steam 上吗，还看不到
 Demo steam 上吗，还看不到</blockquote>
 已经上了
 
+
+*****
+
+####  conanoysq  
+##### 352#       发表于 2026-6-3 06:44
+
+<img src="https://img.stage1st.com/forum/202606/03/064314hr6xsw9wwxwmsrus.jpg" referrerpolicy="no-referrer">
+
+<strong>063304a1-1ccf-4a5c-9dc2-f1cb3a6ea779.jpg</strong> (324.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 06:43 上传
+
+ps版大 画面有点惨 不晓得是不是因为是demo 纸片树叶 笑死
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
