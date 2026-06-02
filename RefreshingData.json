@@ -8739,12 +8739,12 @@
     "update": false
   },
   "2135953": {
-    "totalreply": 1396,
+    "totalreply": 1397,
     "title": "[灵游坊开发，影之刃0公布，确认登录ps5和pc]",
-    "newtitle": "[灵游坊开发，影之刃0公布，确认登录ps5和pc／26.9.9发售！]",
-    "lastedit": 1775824109,
+    "newtitle": "[灵游坊开发，影之刃0公布，确认登录ps5和pc／延期至10／29，夏末举办sop专场]",
+    "lastedit": 1780436526,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2072996": {
@@ -13365,12 +13365,12 @@
     "update": false
   },
   "2269426": {
-    "totalreply": 240,
+    "totalreply": 242,
     "title": "[皇牌空战系列新作《皇牌空战8：希孚之翼》正式公开！2026年发售]",
     "newtitle": "[皇牌空战系列新作《皇牌空战8：希孚之翼》正式公开！2026年发售]",
-    "lastedit": 1779608887,
+    "lastedit": 1780436525,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2025366": {
@@ -17154,10 +17154,10 @@
     "update": false
   },
   "2281402": {
-    "totalreply": 65,
+    "totalreply": 73,
     "title": "[索尼新一期SOP 6月3日凌晨5点 时长约60分钟]",
     "newtitle": "[索尼新一期SOP 6月3日凌晨5点 时长约60分钟]",
-    "lastedit": 1780436165,
+    "lastedit": 1780436766,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -18243,10 +18243,19 @@
     "update": false
   },
   "2210366": {
-    "totalreply": 349,
+    "totalreply": 350,
     "title": "[Capcom 鬼武者新作『鬼武者 WAY OF THE SWORD』公开，2026年发售]",
     "newtitle": "[Capcom 鬼武者新作『鬼武者 WAY OF THE SWORD』公开，2026年发售]",
-    "lastedit": 1780436171,
+    "lastedit": 1780436526,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2104476": {
+    "totalreply": 95,
+    "title": "[Remedy 控制续作《控制： 共振 ／ CONTROL Resonant》正式公开，2026年发售]",
+    "newtitle": "[Remedy 控制续作《控制： 共振 ／ CONTROL Resonant》正式公开，2026年发售]",
+    "lastedit": 1780436766,
     "category": "游戏区",
     "active": true,
     "update": false
