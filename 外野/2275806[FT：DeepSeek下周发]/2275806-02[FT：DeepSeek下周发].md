@@ -1030,3 +1030,24 @@ pi确实好，喜欢它的极简哲学，还不要钱。
 
 这又是谁买的热搜“deepseek降价”，还以为又降价了，点进去是腾讯api平台的deepseek降价到官网一样<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zerona  
+##### 1572#       发表于 2026-6-2 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69710162&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-6-2 17:29</a>
+
+我现在大概有11个扩展，2个社区的，9个自己的，速度依然很快。选择社区扩展的标准是必要且它只做自己应该 ...</blockquote>
+pi.dev 这个吗？
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1573#       发表于 2026-6-2 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69710597&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-6-2 19:19</a>
+
+这又是谁买的热搜“deepseek降价”，还以为又降价了，点进去是腾讯api平台的deepseek降价到官网一样 ...</blockquote>
+我曹 怎么降到一半的？速度咋样？
+
