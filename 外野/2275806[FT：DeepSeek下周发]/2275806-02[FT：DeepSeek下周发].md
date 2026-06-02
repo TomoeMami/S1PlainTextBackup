@@ -895,3 +895,17 @@ NovelAgent 有没有人用过的，看介绍很适合创作流程：
 
 AI Agent 负责蒸馏资料、提出方案、生成草稿、记录错误、辅助修改；每一次剧情推进都能看到依据，也能通过分支探索不同走向
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1560#       发表于 2026-6-2 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69708991&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-6-2 13:09</a>
+Tavo还是适合聊天，复杂的创作我不认为能在文学性和设定限制间取得平衡。
+
+NovelAgent 有没有人用过的，看 ...</blockquote>
+novelagent是全自动出书的，其实我觉得不太好
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
