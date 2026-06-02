@@ -791,3 +791,30 @@ https://github.com/worldwonderer/oh-story-claude ...</blockquote>
 
 我自己测试下来实施层面copy文风的可行性比copy整个小说的写法容易，上下文无关的自动摘要分镜提取比给全小说直接建立图rag容易，而且图rag这东西要是完全没有结构化的小说原始数据，跑一遍下来那个用时对于小说长度而言是非线性的增长，最初拿末世之黑暗召唤师测试，显示500万字要跑10天，太逆天了，rag这东西召回率本身效果就很值得怀疑，这么长的gpu时间太不划算了，所谓自动分析提取伏笔功能我觉得也很奇怪，且这么搞很容易冲爆上下文，哪怕deepseekv4都不够，算来算去还是先上下文无关的提取结构化数据来的实际
 
+
+*****
+
+####  qwjhb  
+##### 1552#       发表于 2026-6-2 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69708017&amp;ptid=2275806" target="_blank">requiem116 发表于 2026-6-2 10:16</a>
+类脑整那个邀请制搞得我一直蜜汁抵触
+
+先自己慢慢搓吧xp这个东西也得自己打磨感觉 ...</blockquote>
+酒馆预设很多都是纯纯的经验产物堆砌 效率很差 最多参考下
+
+—— 来自 Xiaomi 2512BPNDAC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1553#       发表于 2026-6-2 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69708017&amp;ptid=2275806" target="_blank">requiem116 发表于 2026-6-2 10:16</a>
+类脑整那个邀请制搞得我一直蜜汁抵触
+
+先自己慢慢搓吧xp这个东西也得自己打磨感觉 ...</blockquote>
+那就先从轻量级的来，比如tavo
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

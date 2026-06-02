@@ -1290,3 +1290,34 @@ QQ图片20260601211240.png
 
 圣遗物还好吧，打一段时间碎片就多得用不完，除了主词条之外其他词条都无所谓的，存档的话看自己喜欢去刷就行了，不追求打榜很快就能刷完
 
+
+*****
+
+####  christiny  
+##### 878#       发表于 2026-6-2 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69706813&amp;ptid=2256125" target="_blank">hagenda4 发表于 2026-6-1 22:59</a>
+
+那普通卡厄斯是干什么的 就拿个首刷奖励么？</blockquote>
+普通的相当于低阶副本，低难度低回报。材料商店有一些养成道具。 高阶之后也可以用来刷存档，但是这部分收益不如零号上限高。
+
+零号高难度高回报。装备附加属性，更高的闪光几率，卡组上限更高。
+
+*****
+
+####  christiny  
+##### 879#       发表于 2026-6-2 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69706835&amp;ptid=2256125" target="_blank">unclea 发表于 2026-6-1 23:06</a>
+
+加速软件是啥？</blockquote>
+加速齿轮之类的，加快游戏速度。
+
+
+*****
+
+####  sxsdark  
+##### 880#       发表于 2026-6-2 11:06
+
+我还没搞懂那些乱七八糟的闪光效果，毕业存档的卡还要追求某一种神闪么？
+
