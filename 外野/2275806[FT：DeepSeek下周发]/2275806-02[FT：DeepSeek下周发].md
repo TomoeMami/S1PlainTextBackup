@@ -818,3 +818,15 @@ https://github.com/worldwonderer/oh-story-claude ...</blockquote>
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  →熙←  
+##### 1554#       发表于 2026-6-2 11:11
+
+opencode写文用什么skill,我自己用的写文和写代码还是不一样,写代码效果强太多了,写文件经常忘记设定
+
+100k上下文内,写的很详细,写5000字,经常出7k-8k, 200k以上, 就经常出2k的, 同样的剧情, 就只剩冰冷的对事件的描述性的话语了
+
+代码现在有superpowers,太好用了, 提需求, 强调一下tdd流程, 出来基本都能直接用
+

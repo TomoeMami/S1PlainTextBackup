@@ -1321,3 +1321,40 @@ QQ图片20260601211240.png
 
 我还没搞懂那些乱七八糟的闪光效果，毕业存档的卡还要追求某一种神闪么？
 
+
+*****
+
+####  christiny  
+##### 881#       发表于 2026-6-2 11:10
+
+ 本帖最后由 christiny 于 2026-6-2 11:12 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69707563&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-6-2 09:00</a>
+
+这游戏练一个角色成本好高哦，又要刷圣遗物又要刷存档，感觉不是特别超模的角色都懒得抽了 ...</blockquote>
+遗物其实很好搞。  刷出击第一层，花体力拿材料就退出。 材料去买遗物定制道具，还是很容易做齐一套。
+
+并且出击商店能买 存档修改工具。
+
+零号里面主要刷关键装备和闪光，刷一个基本成型的存档，然后在局外用道具改，查漏补缺。
+
+----------------------------------------------------
+
+B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+当然，这游戏也用不着进度焦虑。每天刷一把，把免费次数用了就行。体力用来刷潜能……
+
+
+*****
+
+####  christiny  
+##### 882#       发表于 2026-6-2 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69708359&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-6-2 11:06</a>
+
+我还没搞懂那些乱七八糟的闪光效果，毕业存档的卡还要追求某一种神闪么？ ...</blockquote>
+普通闪光的预览，可以在人物界面的卡组里面查看。
+
+神闪效果，这个只能查WIKI或者攻略了。
+
+是不是追求神闪，这个得看实际需要……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
