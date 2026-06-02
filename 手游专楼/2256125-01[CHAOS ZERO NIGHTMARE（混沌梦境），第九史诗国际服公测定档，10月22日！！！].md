@@ -1419,3 +1419,16 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">现在神闪无所谓的 只要大多数卡和装备对了 外面直接拿道具改神闪就行
 
+
+*****
+
+####  sxsdark  
+##### 888#       发表于 2026-6-2 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69708381&amp;ptid=2256125" target="_blank">christiny 发表于 2026-6-2 11:10</a>
+
+遗物其实很好搞。  刷出击第一层，花体力拿材料就退出。 材料去买遗物定制道具，还是很容易做齐一套。
+
+并 ...</blockquote>
+出击商店的定制账号只能买10个吧？
+
