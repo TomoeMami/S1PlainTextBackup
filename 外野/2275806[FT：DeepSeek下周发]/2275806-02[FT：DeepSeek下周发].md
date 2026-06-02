@@ -991,3 +991,18 @@ pi对我来说最好的点是让它自己给自己写扩展，加上d老师flash
 pi对我来说最好的点是让它自己给自己写扩展，加上d老师flash超高速写代码，每天都 ...</blockquote>
 艹，下载试了下，写代码还没尝试，这速度比Claude Code也快太多了
 
+
+*****
+
+####  LeoDT  
+##### 1568#       发表于 2026-6-2 17:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69709960&amp;ptid=2275806" target="_blank">zy450 发表于 2026-6-2 16:51</a>
+
+艹，下载试了下，写代码还没尝试，这速度比Claude Code也快太多了</blockquote>
+我现在大概有11个扩展，2个社区的，9个自己的，速度依然很快。选择社区扩展的标准是必要且它只做自己应该做的事，所以选了pi-permission-system和pi-mcp-adapter。
+
+其他的所有我觉得必要的功能都是让pi自己写，简单的比如索引代码库所有symbol让写prompt的时候可以有补全，write/edit tool call结束后自动format &amp; lint，工作完成给手机和桌面发通知之类，虽然社区都有实现，但是那些方案都想做大而全，跟pi聊天聊出来小而精的方案更高效，而且自己做的扩展自己也知道该改什么，怎么改，掌控工具才能用好工具。而且ds4 flash写起来也不心疼不是。
+
+换到pi后是真后悔在opencode上花的那几十块的学费，耗token不说，一堆华而不实的东西，破写代码的要什么华丽的工具，朴实的符合unix哲学的工具它不香嘛。
+
