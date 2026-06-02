@@ -92,3 +92,40 @@
 
 可以直接判定八字母民死光了
 
+
+*****
+
+####  holofan  
+##### 11594#       发表于 2026-6-2 09:48
+
+话说回来昨天凌晨待机间看到的一个孤零零的中文留言
+
+<img src="https://img.stage1st.com/forum/202606/02/094827kt9tprnxl9a9ptqk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-2 09:48 上传
+
+我姑且蒙古那个缩写什么意思
+
+*****
+
+####  holofan  
+##### 11595#       发表于 2026-6-2 13:08
+
+<img src="https://img.stage1st.com/forum/202606/02/125839ujuwaap8a9u5jupj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (68.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-2 12:58 上传
+
+昨晚有人随手做发到5ch的切片50万播放，首先整个5ch都没有50万流量，不知道链接被什么人贴到其他地方扩散开了
+
+然后到现在都没有人做M侧的切片<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接说明最在意的都是野兔
+
+昨天这个事情和以前的遭遇事件相比最大的不同是 直播内首次P主动跟M搭话（M当时画面是物品栏所以不知道画面外有谁在 并没有特地对谁说话 而众所周知以前P对M的声音一向非常敏感 如果直播内听到M的声音会马上闭嘴安静 更不用说听到声音还主动搭话），M内心也没有一点波动两边都很自然的对话（而直播开始到当时为止两人从未主动照面打过招呼也没有组到同一个队内过），可能无意间暴露了很多我们不知道的私下的情况
+

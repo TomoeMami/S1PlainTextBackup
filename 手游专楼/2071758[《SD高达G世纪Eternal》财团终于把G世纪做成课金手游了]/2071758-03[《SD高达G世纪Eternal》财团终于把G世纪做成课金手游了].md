@@ -751,3 +751,14 @@ pixel钢这肩头丘比特水贴老是联想到银纹，真给骡子开上战场
 
 真心黑，80抽0ur，打永恒之路把狗粮都打完
 
+
+*****
+
+####  马桶3  
+##### 4334#       发表于 2026-6-2 13:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69708587&amp;ptid=2071758" target="_blank">西人 发表于 2026-6-2 11:44</a>
+
+真心黑，80抽0ur，打永恒之路把狗粮都打完</blockquote>
+我是第100抽才抽到双翼牛，要是没百抽保底我估计我百抽都打水漂<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
