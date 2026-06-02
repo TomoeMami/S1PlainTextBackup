@@ -450,3 +450,11 @@ RO3不是马上都快出了吗....这时候搞个单机版是想闹啥</blockquo
 
 3D小人没内味儿
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 46#       发表于 2026-6-2 12:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重力除了外包猛猛噶韭菜已经没有活力了，树游还是发展时间太短不够人气完美复刻这环节
+
