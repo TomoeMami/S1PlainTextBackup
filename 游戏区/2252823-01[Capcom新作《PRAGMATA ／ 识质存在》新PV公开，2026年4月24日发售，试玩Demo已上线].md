@@ -94,3 +94,31 @@
 
 反正这里的硬伤对个人来说没办法忽视，即便是露个破绽当续作伏笔也编得太随便了。
 
+
+*****
+
+####  纯爱战士段正淳  
+##### 1002#       发表于 2026-6-2 16:14
+
+标准草台论啊
+
+故意这么写的加大一种黑色幽默感吧
+
+整个文档感觉都是塞的各种neta
+
+
+*****
+
+####  超极巨鲨鲨  
+##### 1003#       发表于 2026-6-2 16:22
+
+范师傅的娃娃昨天到了，真可爱啊，还正好是六一接女儿回家过节了<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202606/02/162149xyuqazlaxmlqg4gy.jpg" referrerpolicy="no-referrer">
+
+<strong>1da173ad1748d9afe7e5d0c8746c71f.jpg</strong> (673.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-2 16:21 上传
+
