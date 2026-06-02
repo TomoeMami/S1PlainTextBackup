@@ -789,3 +789,11 @@ pixel钢这肩头丘比特水贴老是联想到银纹，真给骡子开上战场
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4338#       发表于 2026-6-2 21:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">精灵高达珠玉在前，ssr驾驶员多半就是换个立绘
+
