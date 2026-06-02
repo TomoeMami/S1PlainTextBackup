@@ -1051,3 +1051,13 @@ pi.dev 这个吗？
 这又是谁买的热搜“deepseek降价”，还以为又降价了，点进去是腾讯api平台的deepseek降价到官网一样 ...</blockquote>
 我曹 怎么降到一半的？速度咋样？
 
+
+*****
+
+####  rachepatty  
+##### 1574#       发表于 2026-6-2 22:21
+
+一样不是一半<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
