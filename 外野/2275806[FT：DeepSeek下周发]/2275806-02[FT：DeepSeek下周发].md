@@ -978,3 +978,16 @@ pi对我来说最好的点是让它自己给自己写扩展，加上d老师flash
 
 另外，比起其它工具，pi几乎是透明的，基本上从里到外全都可以自定义，这比起其它那些黑盒一样的工具更好理解。已经对着llm这么个黑盒在祈祷了，中间再经过一个黑盒传话岂不是更令人不安了。
 
+
+*****
+
+####  zy450  
+##### 1567#       发表于 2026-6-2 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69709443&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-6-2 15:00</a>
+
+好用这个东西看个人。
+
+pi对我来说最好的点是让它自己给自己写扩展，加上d老师flash超高速写代码，每天都 ...</blockquote>
+艹，下载试了下，写代码还没尝试，这速度比Claude Code也快太多了
+
