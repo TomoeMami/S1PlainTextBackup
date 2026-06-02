@@ -772,3 +772,14 @@ https://github.com/worldwonderer/oh-story-claude ...</blockquote>
 
 本地模型写文 gemma4 31b较3.6的27b 优势非常明显
 
+
+*****
+
+####  requiem116  
+##### 1550#       发表于 2026-6-2 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69708084&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-6-2 10:26</a>
+
+我用本地破限的gemma4 31b试过 把范文的摘要放进去，让deepseekv4 pro 设计prompt 驱动gemma4 31b根据摘要 ...</blockquote>
+好的谢谢，我去试试看
+
