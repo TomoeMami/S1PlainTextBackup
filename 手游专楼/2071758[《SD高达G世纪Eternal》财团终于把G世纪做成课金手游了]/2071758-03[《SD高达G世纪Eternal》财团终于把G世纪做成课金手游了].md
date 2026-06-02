@@ -797,3 +797,13 @@ pixel钢这肩头丘比特水贴老是联想到银纹，真给骡子开上战场
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">精灵高达珠玉在前，ssr驾驶员多半就是换个立绘
 
+
+*****
+
+####  一个陆仁贾  
+##### 4339#       发表于 2026-6-2 23:42
+
+这回坚牢看看会拖多久<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
