@@ -65,3 +65,30 @@
 
 5期公认大姐感，别拆台啊
 
+
+*****
+
+####  holofan  
+##### 11592#       发表于 2026-6-1 20:58
+
+屎尿屁live
+
+随地大小便
+
+*****
+
+####  holofan  
+##### 11593#       发表于 2026-6-2 09:19
+
+<img src="https://img.stage1st.com/forum/202606/02/091915srqjg3jjqehhgir5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (231.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-2 09:19 上传
+
+昨晚推特几乎没有任何反应
+
+可以直接判定八字母民死光了
+
