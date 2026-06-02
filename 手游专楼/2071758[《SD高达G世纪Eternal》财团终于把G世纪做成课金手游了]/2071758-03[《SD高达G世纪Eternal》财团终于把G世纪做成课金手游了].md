@@ -762,3 +762,20 @@ pixel钢这肩头丘比特水贴老是联想到银纹，真给骡子开上战场
 真心黑，80抽0ur，打永恒之路把狗粮都打完</blockquote>
 我是第100抽才抽到双翼牛，要是没百抽保底我估计我百抽都打水漂<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猿飞佐助  
+##### 4335#       发表于 2026-6-2 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69709027&amp;ptid=2071758" target="_blank">马桶3 发表于 2026-6-2 13:17</a>
+我是第100抽才抽到双翼牛，要是没百抽保底我估计我百抽都打水漂</blockquote>
+100抽保底有个毛用，保ur不保当期，我第100抽给我来个正义，人都麻了
+
+*****
+
+####  螺旋的小夜曲  
+##### 4336#       发表于 2026-6-2 18:43
+
+坏了，观星者给的SSR黑强是红机，这UR黑强看来是凶多吉少
+
