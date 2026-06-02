@@ -3256,3 +3256,14 @@ pmm的vlog也发了，这作鬼武者线下demo目前清一色好评，而且动
 
 Demo steam 上吗，还看不到
 
+
+*****
+
+####  wwmmddqqbbpp  
+##### 351#       发表于 2026-6-3 06:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69711905&amp;ptid=2210366" target="_blank">otakun 发表于 2026-6-3 05:39</a>
+
+Demo steam 上吗，还看不到</blockquote>
+已经上了
+
