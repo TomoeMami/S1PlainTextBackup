@@ -1022,3 +1022,11 @@ Pi 的好处在于可以完全掌握 Context，你可以 100% 确定一次调用
 
 pi确实好，喜欢它的极简哲学，还不要钱。
 
+
+*****
+
+####  很久就在那边l  
+##### 1571#       发表于 2026-6-2 19:19
+
+这又是谁买的热搜“deepseek降价”，还以为又降价了，点进去是腾讯api平台的deepseek降价到官网一样<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
