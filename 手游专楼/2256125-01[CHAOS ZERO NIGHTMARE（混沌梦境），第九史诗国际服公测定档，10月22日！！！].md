@@ -1553,3 +1553,127 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 我记得NGA里有帖子提过，那时候的文案因为过多描写小白脸（初始男4星）和女角色们的戏份正在被炎上，然后 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">哦原来是文案跑了
 
+
+*****
+
+####  qixinno1  
+##### 899#       发表于 2026-6-2 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69710906&amp;ptid=2256125" target="_blank">就不的 发表于 2026-6-2 20:24</a>
+
+哦原来是文案跑了</blockquote>
+
+<img src="https://img.stage1st.com/forum/202606/02/211211r286tt6g2ttsqgmx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (344.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-2 21:12 上传
+
+<img src="https://img.stage1st.com/forum/202606/02/211231pxjzzzx877w755eo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (352.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-2 21:12 上传
+
+<img src="https://img.stage1st.com/forum/202606/02/211237m1cne9l6vnrgcen4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (361.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-2 21:12 上传
+
+<img src="https://img.stage1st.com/forum/202606/02/211247hrhlprnf4panrarb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (389.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-2 21:12 上传
+
+<img src="https://img.stage1st.com/forum/202606/02/211254ap0qsphts6usib6i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (405.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-2 21:12 上传
+
+<img src="https://img.stage1st.com/forum/202606/02/211322zza21cbbhu1m2mvv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (392.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-2 21:13 上传
+
+<img src="https://img.stage1st.com/forum/202606/02/211430oa8ltl8pf8ljom8j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (493.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-2 21:14 上传
+
+<img src="https://img.stage1st.com/forum/202606/02/211437t4j4js41je72joft.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (870.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-2 21:14 上传
+
+<img src="https://img.stage1st.com/forum/202606/02/211445ganq18p85p8akipl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.16 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-2 21:14 上传
+
+<img src="https://img.stage1st.com/forum/202606/02/211455pjhgigkfy2hv698f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (766.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-2 21:14 上传
+
+<img src="https://img.stage1st.com/forum/202606/02/211503fuuueob2uzm8ueie.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.18 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-2 21:15 上传
+
+<img src="https://img.stage1st.com/forum/202606/02/211627t4acg6an4m6mssn1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (744.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-2 21:16 上传
+
+<img src="https://img.stage1st.com/forum/202606/02/211635jbe94zesbqqbajsa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (471.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-2 21:16 上传
+
+<img src="https://img.stage1st.com/forum/202606/02/211649r39118t1o7yt55zy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (822.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-2 21:16 上传
+
+不止是文案 比如为什么是舰长 因为是开船去探索星域 下本后地图上还有城市废墟而不是现在这样的大背景就完了 普通卡厄思前两张图事件还有专门的剧情过场演出 而不是现在这样的模拟器 圣物以前应该是角色记忆的碎片 图标都是有角色头像的而不是现在这样突兀 还有非常大的天赋树系统 可能为了快速上线赚钱给砍了或阉割了
+
