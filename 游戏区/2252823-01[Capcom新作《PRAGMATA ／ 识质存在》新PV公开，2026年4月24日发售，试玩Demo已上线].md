@@ -45,3 +45,25 @@
 
 一想到这个闹麻的剧情就有点二周目动力缺缺，云了下隐藏结局也是彩蛋性质偏多，感觉可以等续作消息再说。某个岩男x8至今都在还在太空电梯没下来呢<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Chao  
+##### 998#       发表于 2026-6-2 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69707897&amp;ptid=2252823" target="_blank">jxzeroga0 发表于 2026-6-2 09:58</a>
+
+打完了，感觉核心矛盾还不如说本体出什么事故早夭呢，这被抽到测试的神奇概率真让人绷不住，正常不应该排除 ...</blockquote>
+对哦，威廉研究出G病毒用的女性实验体丽萨，竟然是伞公司老总豪宅的御用设计师的女儿，是不是太凑巧了呢<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jxzeroga0  
+##### 999#       发表于 2026-6-2 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69708110&amp;ptid=2252823" target="_blank">Chao 发表于 2026-6-2 10:30</a>
+
+对哦，威廉研究出G病毒用的女性实验体丽萨，竟然是伞公司老总豪宅的御用设计师的女儿，是不是太凑巧了呢 ...</blockquote>
+还是差太多了，丽萨的身份和病毒爆发的原因基本没半毛钱关系，同样的例子应该是斯宾塞为了做实验从研究所内部直接绑走雪莉导致威廉破罐破摔释放T病毒
+

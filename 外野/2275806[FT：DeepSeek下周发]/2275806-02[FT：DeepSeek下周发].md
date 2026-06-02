@@ -756,3 +756,19 @@ https://github.com/worldwonderer/oh-story-claude ...</blockquote>
 
 先自己慢慢搓吧xp这个东西也得自己打磨感觉
 
+
+*****
+
+####  mitzvah  
+##### 1549#       发表于 2026-6-2 10:26
+
+ 本帖最后由 mitzvah 于 2026-6-2 10:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69708017&amp;ptid=2275806" target="_blank">requiem116 发表于 2026-6-2 10:16</a>
+
+类脑整那个邀请制搞得我一直蜜汁抵触
+
+先自己慢慢搓吧xp这个东西也得自己打磨感觉 ...</blockquote>
+我用本地破限的gemma4 31b试过 把范文的摘要放进去，让deepseekv4 pro 设计prompt 驱动gemma4 31b根据摘要扩写然后与完整范文比较打分，deepseek根据评分偏差自动调整prompt 这么循环下来能让文风达到7.4/10的水平，这还是范文为日文，中文重写且用gemma4 31这本地模型实现的情况
+
+本地模型写文 gemma4 31b较3.6的27b 优势非常明显
+
