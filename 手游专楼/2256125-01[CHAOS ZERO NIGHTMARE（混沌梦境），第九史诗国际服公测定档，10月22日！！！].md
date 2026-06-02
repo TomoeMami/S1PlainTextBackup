@@ -1358,3 +1358,13 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 
 是不是追求神闪，这个得看实际需要……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊布桑  
+##### 883#       发表于 2026-6-2 14:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69708359&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-6-2 11:06</a>
+我还没搞懂那些乱七八糟的闪光效果，毕业存档的卡还要追求某一种神闪么？ ...</blockquote>
+某些卡组要，有些不要，甚至对一些存档来说神闪占了pt反而不行
+

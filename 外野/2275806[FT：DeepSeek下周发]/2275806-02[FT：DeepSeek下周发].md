@@ -925,3 +925,33 @@ novelagent是全自动出书的，其实我觉得不太好
 
 —— 来自 Xiaomi 2512BPNDAC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cube  
+##### 1562#       发表于 2026-6-2 13:54
+
+梁总什么时候把多模态搬出来，不能识图还是太不方便了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  绝地潜兵  
+##### 1563#       发表于 2026-6-2 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69709093&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-6-2 13:31</a>
+
+novelagent是全自动出书的，其实我觉得不太好
+
+—— 来自 HUAWEI SGU-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
+Tavo搭配官方通用模型，加上风格校正，同样消耗精力，本来就不是精细干这活的
+
+得问问类脑社区的老哥具体哪个微调模型比较好
+
+
+*****
+
+####  lilod  
+##### 1564#       发表于 2026-6-2 14:01
+
+pi + ds4 flash 
+
