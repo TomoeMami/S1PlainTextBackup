@@ -909,3 +909,19 @@ novelagent是全自动出书的，其实我觉得不太好
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qwjhb  
+##### 1561#       发表于 2026-6-2 13:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69708943&amp;ptid=2275806" target="_blank">serj005 发表于 2026-6-2 12:59</a>
+关于让llm学习特定文风，感觉很多时候效果非常差，不知道怎么解决。
+
+我自己经常遇到的情况是喂给llm一些语 ...</blockquote>
+思维拓展下 一个agent按照你的需求来写文，因为要剧情 所以塞了上下文、设定等等，负责输出情节文本
+另一个agent根据这个情节文本来改写，它的提示词就只有文风没有那些设定来挤占注意力。
+我现在设计的结构简化下就是这样。
+
+—— 来自 Xiaomi 2512BPNDAC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
