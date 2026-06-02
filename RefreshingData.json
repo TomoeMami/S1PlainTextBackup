@@ -12555,10 +12555,10 @@
     "update": false
   },
   "2271402": {
-    "totalreply": 8059,
+    "totalreply": 8060,
     "title": "[任天堂病棟14楼，等一个春节春直]",
     "newtitle": "[任天堂病棟14楼，剑指六月]",
-    "lastedit": 1780424885,
+    "lastedit": 1780431485,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13676,15 +13676,6 @@
     "newtitle": "[轮到我了，请推荐车]",
     "lastedit": 1779340214,
     "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2281120": {
-    "totalreply": 86,
-    "title": "[被 b 站 up 挂了，这个讲解 mii 的视频是洗稿吗]",
-    "newtitle": "[被 b 站 up 挂了，这个讲解 mii 的视频是洗稿吗]",
-    "lastedit": 1779221527,
-    "category": "游戏区",
     "active": false,
     "update": false
   },
@@ -18221,6 +18212,15 @@
     "newtitle": "[咨询下大家对＂大学高中化＂这事的了解]",
     "lastedit": 1780423085,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2280008": {
+    "totalreply": 95,
+    "title": "[《永恒传奇 Remastered》Switch版已获得PEGI游戏评级]",
+    "newtitle": "[《永恒传奇 Remastered》Switch版已获得PEGI游戏评级]",
+    "lastedit": 1780431486,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
