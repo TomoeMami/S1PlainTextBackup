@@ -3295,3 +3295,13 @@ ps版大 画面有点惨 不晓得是不是因为是demo 纸片树叶 笑死
 
 期待度**的降低了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zqqwe  
+##### 354#       发表于 2026-6-3 07:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69712013&amp;ptid=2210366" target="_blank">葵 发表于 2026-6-3 06:57</a>
+笑死了，玩了PS5版，是因为是DEMO的原因没做完么？这游戏砍人居然没震动，鬼武者砍人没震动你敢信？TMD隔壁 ...</blockquote>
+没震动那拉完了
+
