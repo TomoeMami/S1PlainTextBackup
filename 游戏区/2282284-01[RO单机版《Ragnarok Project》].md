@@ -458,3 +458,11 @@ RO3不是马上都快出了吗....这时候搞个单机版是想闹啥</blockquo
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重力除了外包猛猛噶韭菜已经没有活力了，树游还是发展时间太短不够人气完美复刻这环节
 
+
+*****
+
+####  南猫猫猫猫  
+##### 47#       发表于 2026-6-2 12:16
+
+这画质太高清了一点都不RO啊<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
