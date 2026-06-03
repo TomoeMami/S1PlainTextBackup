@@ -1262,3 +1262,15 @@ Gemini本身就绑定Google，现在又关联了Gmail、网盘、文档、YTB等
 
 这个就不是技术问题
 
+
+*****
+
+####  neptunehs  
+##### 1591#       发表于 2026-6-3 14:00
+
+我这边ds也老鬼打墙 但架不住opencode免费用ds4f 只要不是生产用有足够时间 让他慢慢打墙 差不多了我给个其他方向 也能解决问题
+
+作为玩具能力是完全足够的
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
