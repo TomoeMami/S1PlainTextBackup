@@ -3939,3 +3939,36 @@ demo的难度好温柔，优化也不错
 
 手感还可以，就是这画面26年的游戏感觉质感有点差，预购了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫沙狐  
+##### 422#       发表于 2026-6-3 17:24
+
+优化不错啊 4K极高开FSR4.1 帧数能到150 <img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asikies  
+##### 423#       发表于 2026-6-3 17:25
+
+刚开始玩，节奏是不是太慢了？
+
+*****
+
+####  时空之旅  
+##### 424#       发表于 2026-6-3 17:26
+
+总感觉打击感有点绵，不是节奏比较爽快的那种
+
+
+*****
+
+####  RinC  
+##### 425#       发表于 2026-6-3 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715282&amp;ptid=2210366" target="_blank">lbb3313725 发表于 2026-6-3 17:14</a>
+
+真连闪长啥样，不是QTE连闪的那种？</blockquote>
+没有按键提示只有一个锁定红点提示，就是第一个一闪之后刀砍完停住那下最大发光的时候按攻击会冲过去自动处决，接第三下同理。这代连闪判定相当宽松的，宁愿晚按也别早按
+
