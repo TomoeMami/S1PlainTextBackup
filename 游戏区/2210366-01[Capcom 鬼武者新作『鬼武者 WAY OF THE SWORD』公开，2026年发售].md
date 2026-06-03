@@ -3437,3 +3437,46 @@ DEMO打完了，感觉就demo而言玩点全在各种架招和相持的动作上
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69712399&amp;ptid=2210366" target="_blank">MR骑士道MKⅦ 发表于 2026-6-3 08:42</a></blockquote>
 宫本武藏:黑魂是什么……？.jpg
 
+
+*****
+
+####  MR骑士道MKⅦ  
+##### 371#       发表于 2026-6-3 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69712404&amp;ptid=2210366" target="_blank">otakun 发表于 2026-6-3 08:44</a>
+
+宫本武藏:黑魂是什么……？.jpg</blockquote>
+这次的翻译很……活泼<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月光下的静寂  
+##### 372#       发表于 2026-6-3 08:47
+
+主角性能过强，各种手段轻松砍怪，这么丰富的系统应该有更高的难度，比如小兵进攻欲望再提高几级，数量再多一些，应该会更刺激更好玩
+
+*****
+
+####  缺德猫  
+##### 373#       发表于 2026-6-3 08:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69712430&amp;ptid=2210366" target="_blank">月光下的静寂 发表于 2026-6-3 08:47</a>
+
+主角性能过强，各种手段轻松砍怪，这么丰富的系统应该有更高的难度，比如小兵进攻欲望再提高几级，数量再多 ...</blockquote>
+感觉压力大一些才好玩，试玩纯无双，没劲啊
+
+*****
+
+####  卡拉德利姆  
+##### 374#       发表于 2026-6-3 08:49
+
+卡表会不做最高难度吗 怎么可能
+
+
+*****
+
+####  若菜  
+##### 375#       发表于 2026-6-3 08:52
+
+放心，只能用一闪杀敌的一闪模式都少不了
+
