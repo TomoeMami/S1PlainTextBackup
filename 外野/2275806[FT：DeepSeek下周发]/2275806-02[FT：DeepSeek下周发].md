@@ -1098,3 +1098,16 @@ pi.dev 这个吗？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  omnitoken  
+##### 1578#       发表于 2026-6-3 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713774&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-6-3 12:00</a>
+
+唉，我操，怎么在coding能力这方面，国模还是差了这么多。
+
+今天我让DeepSeek和Glm5.1分别修复同一个TTS插件 ...</blockquote>
+实际上的确就是有3个月的差距啊一个大版本
+
