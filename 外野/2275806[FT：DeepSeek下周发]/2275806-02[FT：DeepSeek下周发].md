@@ -1665,3 +1665,15 @@ GPT现在写文的能力已经彻底拉完了
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  overflowal  
+##### 1625#       发表于 2026-6-3 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69716347&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-6-3 21:19</a>
+但我记得一开始不是说LLM AI压缩暨智能吗，怎么最后又成了拼训练量拼规模呢？
+
+—— 来自 HUAWEI SGU-AL1 ...</blockquote>
+一直都是拼训练拼规模啊，至于压缩，再大的模型相对于它的训练数据来说也是压缩过的<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
