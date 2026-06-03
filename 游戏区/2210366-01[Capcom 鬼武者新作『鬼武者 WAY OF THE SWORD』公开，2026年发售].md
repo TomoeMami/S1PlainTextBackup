@@ -3545,3 +3545,22 @@ DEMO打完了，感觉就demo而言玩点全在各种架招和相持的动作上
 
 怎么感觉画面好差<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杀仁小登  
+##### 383#       发表于 2026-6-3 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713356&amp;ptid=2210366" target="_blank">TheOccuria 发表于 2026-6-3 11:05</a>
+
+怎么感觉画面好差</blockquote>
+卡婊写给忍者组的情书
+
+
+*****
+
+####  u2deack  
+##### 384#       发表于 2026-6-3 11:22
+
+好玩确实好玩但是试玩这难度打得也一点都不爽，而且怎么不能调fov啊镜头也太近了好难受
+
