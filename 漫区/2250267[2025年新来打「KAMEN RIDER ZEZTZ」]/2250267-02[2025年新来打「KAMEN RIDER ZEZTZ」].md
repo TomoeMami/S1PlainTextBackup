@@ -4014,3 +4014,16 @@ ZZZ腰带现在感觉都成了个消耗品了，得空就搓一条
 ----发送自 STAGE1  ...</blockquote>
 现在的快闪店大部分都是时尚小垃圾吧....
 
+
+*****
+
+####  黑上シグマ  
+##### 1848#       发表于 2026-6-3 12:41
+
+<blockquote>引用第1846楼丹德里恩于2026-06-03 11:45发表的  :
+
+黑上シグマ 发表于 2026-6-3 10:17魔都要搞来打的快闪店，结果看了下广告卖的全是时尚小垃......</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">假面来打你搞时尚小垃圾到底是要卖给谁啦
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
