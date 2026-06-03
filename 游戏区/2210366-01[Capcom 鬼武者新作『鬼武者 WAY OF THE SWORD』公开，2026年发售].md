@@ -3738,3 +3738,23 @@ DEMO打完了，感觉就demo而言玩点全在各种架招和相持的动作上
 直观型喷了, 误导了我半天.</blockquote>
 繁中两种操作方式叫进攻型和防御型
 
+
+*****
+
+####  FBC档案部专员  
+##### 403#       发表于 2026-6-3 13:08
+
+demo的难度好温柔，优化也不错
+
+买了
+
+*****
+
+####  Nosgoth  
+##### 404#       发表于 2026-6-3 13:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69714135&amp;ptid=2210366" target="_blank">缺德猫 发表于 2026-6-3 13:03</a>
+
+不是那个，我就是出了真一闪的连闪</blockquote>
+看到了真连闪视频，自己在敌人堆里还是用不出来，只能一闪攻击的敌人。
+
