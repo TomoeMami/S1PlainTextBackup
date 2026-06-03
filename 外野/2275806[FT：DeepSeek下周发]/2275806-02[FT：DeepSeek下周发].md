@@ -1496,3 +1496,32 @@ gpt和claude现在的核心叙事就是 ...</blockquote>
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  overflowal  
+##### 1611#       发表于 2026-6-3 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69714940&amp;ptid=2275806" target="_blank">忧郁的杰哥 发表于 2026-6-3 16:01</a>
+感觉梁圣可能不满足于多模态仅仅是文本模型一样靠塞数据 然后靠猜来出答案。
+
+最近出了好几个世界模型   ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">想太多，deepseek还是很实际的。这些探索肯定会做。
+但是现在这代要不要融多模态，他们肯定是想要融的，论文都写了要做了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  忧郁的杰哥  
+##### 1612#       发表于 2026-6-3 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715042&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-6-3 16:22</a>
+
+想太多，deepseek还是很实际的。这些探索肯定会做。
+
+但是现在这代要不要融多模态，他们肯定是想要融的， ...</blockquote>
+论文上了又撤就是对已有路线觉得不够满意
+
+有他们自己的想法。
+
+DS目前看下来不是个循规蹈矩已有技术路线的公司   
+
