@@ -600,3 +600,11 @@ C狗、清姬、大卫、杰罗尼莫、豹人
 审就审吧，又不能改又不能删，只能让他慢慢等
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 20893#       发表于 2026-6-4 00:28
+
+新剧情到底谁写的，我不记得型月里有这么幽默的人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
