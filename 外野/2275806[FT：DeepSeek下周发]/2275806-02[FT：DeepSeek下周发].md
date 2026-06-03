@@ -1540,3 +1540,32 @@ DS目前看下来不是个循规蹈矩已有技术路线的公司   
 
 但是  按DS一贯的行事作风   他们出的多模态必然不同于目前国内几家已有的形式   拭目以待把
 
+
+*****
+
+####  zyxsqw  
+##### 1614#       发表于 2026-6-3 16:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也不用太神化谷歌，之前有个汽车故障的问题我让gemini翻来覆去排查了半天都搞不清什么问题，ds v4 pro 抬手就秒了，还是进口车，正常来讲完全是gemini舒适区，只能说美国豆包现在太弱智了。
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  →熙←  
+##### 1615#       发表于 2026-6-3 16:48
+
+试了一下pi确实很快,就是有滚动条吗, 发现里面滚不动了
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1616#       发表于 2026-6-3 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715174&amp;ptid=2275806" target="_blank">zyxsqw 发表于 2026-6-3 16:47</a>
+也不用太神化谷歌，之前有个汽车故障的问题我让gemini翻来覆去排查了半天都搞不清什么问题，ds v4 pro 抬手 ...</blockquote>
+gemini很多时候会产生自己没权限使用谷歌搜索的幻觉，跟个脑瘫一样
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
