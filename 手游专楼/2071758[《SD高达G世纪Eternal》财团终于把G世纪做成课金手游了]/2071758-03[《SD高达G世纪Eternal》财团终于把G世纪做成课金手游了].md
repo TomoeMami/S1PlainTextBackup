@@ -815,3 +815,15 @@ pixel钢这肩头丘比特水贴老是联想到银纹，真给骡子开上战场
 
 按以往经验爬塔有什么机体要开发的吗
 
+
+*****
+
+####  acg_gyanc  
+##### 4341#       发表于 2026-6-3 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713637&amp;ptid=2071758" target="_blank">qrlfafner 发表于 2026-6-3 11:40</a>
+按以往经验爬塔有什么机体要开发的吗</blockquote>
+爬塔对机体无限制，上你最强的机体和战舰就行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

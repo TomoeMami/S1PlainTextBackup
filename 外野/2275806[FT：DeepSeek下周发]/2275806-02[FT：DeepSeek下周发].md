@@ -1071,3 +1071,30 @@ pi.dev 这个吗？
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1576#       发表于 2026-6-3 12:00
+
+唉，我操，怎么在coding能力这方面，国模还是差了这么多。
+今天我让DeepSeek和Glm5.1分别修复同一个TTS插件的脚本问题。这两位分别忙了1个小时和1个半小时，什么都没解决
+我把相应的问题直接给gpt5.5thinking描述了一下，它立马给出来方案，认为是github上给这个插件贡献中文时候译者不小心搞坏了脚本格式，让我直接把英文脚本覆盖到中文人格下，然后只汉化格式以外的自然语言
+把这个方案再扔给DeepSeek，没用5分钟就解决了。
+<img src="https://static.stage1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">我不接受，怎么差距这么大
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  schneehertz  
+##### 1577#       发表于 2026-6-3 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713774&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-6-3 12:00</a>
+唉，我操，怎么在coding能力这方面，国模还是差了这么多。
+今天我让DeepSeek和Glm5.1分别修复同一个TTS插件 ...</blockquote>
+个例而已
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
