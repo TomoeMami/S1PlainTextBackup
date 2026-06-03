@@ -977,3 +977,14 @@ GC都解散了，主题歌怎么办
 官网？
 [https://bond.tales-ch.jp/](https://bond.tales-ch.jp/)
 
+
+*****
+
+####  Ares  
+##### 96#       发表于 2026-6-3 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69577553&amp;ptid=2280008" target="_blank">雪雨轻澜 发表于 2026-5-5 16:45</a>
+
+toe是2周目的疯狂彗星吧，元精灵秘奥按键派生    Re:Source</blockquote>
+你记错了，2周目疯狂彗星派生是TOD2博士的
+
