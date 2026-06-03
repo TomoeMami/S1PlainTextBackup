@@ -1690,3 +1690,11 @@ opencode 之前配合 opencode go 还挺好用的。
 现在换 pi 的话，你是只使用 ds4 吗？ 接 glm5.1 之类的方 ...</blockquote>
 我记得是能支持的吧。我加api的时候有一推能选的。
 
+
+*****
+
+####  orca  
+##### 1627#       发表于 2026-6-3 23:41
+
+糟糕，pi玩起来有点上头啊，我感觉要从opencode叛逃了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
