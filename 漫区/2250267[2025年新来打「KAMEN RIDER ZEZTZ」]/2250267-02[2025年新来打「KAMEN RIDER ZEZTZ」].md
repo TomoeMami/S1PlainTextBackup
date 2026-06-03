@@ -3991,3 +3991,13 @@ code这组织说得很大，实际上除了杂兵，偌大的组织没几个人<
 
 ZZZ腰带现在感觉都成了个消耗品了，得空就搓一条
 
+
+*****
+
+####  黑上シグマ  
+##### 1846#       发表于 2026-6-3 10:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">魔都要搞来打的快闪店，结果看了下广告卖的全是时尚小垃圾，还TM是盲盒，感觉不用去了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
