@@ -1061,3 +1061,13 @@ pi.dev 这个吗？
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  ml1642879  
+##### 1575#       发表于 2026-6-3 11:46
+
+在昨天晚上进行的 OpenAI Intelligence at Work 直播活动上，OpenAI 宣布了一项重大决定：未来几周内，将 Codex 的核心能力直接整合进 ChatGPT 应用中。
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
+

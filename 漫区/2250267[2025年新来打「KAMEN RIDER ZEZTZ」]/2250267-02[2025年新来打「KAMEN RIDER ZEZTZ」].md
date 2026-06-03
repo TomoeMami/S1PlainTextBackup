@@ -4001,3 +4001,16 @@ ZZZ腰带现在感觉都成了个消耗品了，得空就搓一条
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  丹德里恩  
+##### 1847#       发表于 2026-6-3 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713027&amp;ptid=2250267" target="_blank">黑上シグマ 发表于 2026-6-3 10:17</a>
+
+魔都要搞来打的快闪店，结果看了下广告卖的全是时尚小垃圾，还TM是盲盒，感觉不用去了
+
+----发送自 STAGE1  ...</blockquote>
+现在的快闪店大部分都是时尚小垃圾吧....
+
