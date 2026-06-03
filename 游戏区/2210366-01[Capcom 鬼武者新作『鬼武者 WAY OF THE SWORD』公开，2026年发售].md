@@ -4117,3 +4117,22 @@ demo的难度好温柔，优化也不错
 
 这一闪的效果延迟看这其实有点不舒服的…
 
+
+*****
+
+####  nage560  
+##### 442#       发表于 2026-6-3 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715811&amp;ptid=2210366" target="_blank">Leliel 发表于 2026-6-3 19:19</a>
+
+力动 就是直接照搬的日文原文的汉字</blockquote>
+照搬还行，太懒了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JOJO42  
+##### 443#       发表于 2026-6-3 20:54
+
+在佐佐木那里练了几把一闪，这作动作脚本确实多，各种情况下都给了不同的动作动画，包括攻击防御状态敌人被其弹刀的话，按键准确也可以立刻弹回去，而且佐佐木的投机也能通过一闪（或者说攻击）拆投，也有不一样的动画
+

@@ -1016,3 +1016,15 @@ Manga One上显示下周三更新……
 顺便消息链接，等人开专楼<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 [https://hobby.dengeki.com/event/3034188/#google_vignette](https://hobby.dengeki.com/event/3034188/#google_vignette)
 
+
+*****
+
+####  JuicyJuice  
+##### 94#         楼主| 发表于 2026-6-3 20:47
+
+<blockquote>王九的哥哥 发表于 2026-6-3 20:16
+喷了，今天奸笑社新萝卜企划最后公布的漫画化计划又是他，我说这女乃子怎么这么眼熟……
+
+现在就不知道小 ...</blockquote>
+这片子tt也参与了 感觉是tt拉来的 所以问题应该出在小学馆吧
+
