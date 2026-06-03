@@ -518,3 +518,45 @@ C狗、清姬、大卫、杰罗尼莫、豹人
 这就是欧皇吗 我们非萌只能落泪</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新的石头不舍得用而已
 
+
+*****
+
+####  岸浪白野  
+##### 20885#       发表于 2026-6-3 22:00
+
+主要她那卡背是过了主线才改，可以选择过了主线再去抽<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不然只是看锈迹弓阶
+<img src="https://p.sda1.dev/32/3cd00f442a522f2e0a42695679a955ca/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 20886#       发表于 2026-6-3 22:01
+
+刚看到新卡，这胸看着太难受了一点也感觉不到瑟……
+
+*****
+
+####  qixinno1  
+##### 20887#       发表于 2026-6-3 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69716513&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2026-6-3 22:00</a>
+
+主要她那卡背是过了主线才改，可以选择过了主线再去抽
+
+不然只是看锈迹弓阶
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">忘了截图 我还纳闷卡背怎么不对劲
+
+*****
+
+####  angelooo  
+##### 20888#       发表于 2026-6-3 22:03
+
+<blockquote>蓮華 发表于 2026-6-3 21:40
+像个男人长了对柰子</blockquote>
+卧槽对对对就是这感觉
+
+明明头像是美人但看到全身就萎了
+

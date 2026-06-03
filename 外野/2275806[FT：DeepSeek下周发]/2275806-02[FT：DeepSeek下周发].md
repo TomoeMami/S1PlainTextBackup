@@ -1677,3 +1677,16 @@ GPT现在写文的能力已经彻底拉完了
 —— 来自 HUAWEI SGU-AL1 ...</blockquote>
 一直都是拼训练拼规模啊，至于压缩，再大的模型相对于它的训练数据来说也是压缩过的<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zerona  
+##### 1626#       发表于 2026-6-3 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69714700&amp;ptid=2275806" target="_blank">13号 发表于 2026-6-3 15:16</a>
+
+opencode 之前配合 opencode go 还挺好用的。 
+
+现在换 pi 的话，你是只使用 ds4 吗？ 接 glm5.1 之类的方 ...</blockquote>
+我记得是能支持的吧。我加api的时候有一推能选的。
+
