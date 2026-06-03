@@ -1727,3 +1727,11 @@ opencode 之前配合 opencode go 还挺好用的。
 
 装好了Git、VS code、Python、配置好了MCP，我也准备用Cherry跑跑agent了，准备让它帮我写工作文档 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  香雨香香  
+##### 1631#       发表于 2026-6-4 06:58
+
+大佬们有个问题，之前一直在cc switch配置了ds的api后用cc桌面端vibe coding，但今天手贱更新了一下后cc桌面端里模型名字显示不带上下文1m的后缀了，effort也没法更改了，是我的问题还是说是cc桌面端程序的问题
+
