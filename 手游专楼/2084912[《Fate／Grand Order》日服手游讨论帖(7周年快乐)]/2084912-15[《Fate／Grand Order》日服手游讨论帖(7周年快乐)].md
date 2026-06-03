@@ -265,3 +265,67 @@ C狗、清姬、大卫、杰罗尼莫、豹人
 
 接下来几个月的规划，七月下旬纯长草是吗...？
 
+
+*****
+
+####  alucardcz  
+##### 20865#       发表于 2026-6-3 19:04
+
+艹 是蓝拐？50单充50蓝放20攻击？还有缓冲？？
+
+*****
+
+####  Jamaisvu  
+##### 20866#       发表于 2026-6-3 19:06
+
+艹，怎么是羊姐，我说为啥是紫发...
+
+*****
+
+####  Jamaisvu  
+##### 20867#       发表于 2026-6-3 19:08
+
+ 本帖最后由 Jamaisvu 于 2026-6-3 19:11 编辑 
+
+突破卡面：
+
+<img src="https://img.stage1st.com/forum/202606/03/190933x2djd7z66o6br847.jpg" referrerpolicy="no-referrer">
+
+<strong>1780484946610.jpg</strong> (460.1 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-3 19:09 上传
+
+竟然只锁真名不锁灵基，惊了。
+
+技能解包：
+
+<img src="https://img.stage1st.com/forum/202606/03/190729nkxiuks7sn7zmzmv.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20260603_190706.png</strong> (421.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-3 19:07 上传
+
+<img src="https://img.stage1st.com/forum/202606/03/190729hq9ujrgb4hmsexzh.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20260603_190714.png</strong> (230.98 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-3 19:07 上传
+
+果然是命运女神啊，代表过去那就是乌尔德，和小教授应该有互动语音吧。
+
+*****
+
+####  qixinno1  
+##### 20868#       发表于 2026-6-3 19:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">果然没出 滚了
+

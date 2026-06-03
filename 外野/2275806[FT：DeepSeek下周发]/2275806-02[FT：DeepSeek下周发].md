@@ -1595,3 +1595,11 @@ claude code或是opencode    Re:Source</blockquote>
 
 感觉d4flash写代码也别用claude了 用pi 或者 Reasonix 可能还能更省
 
+
+*****
+
+####  passgan  
+##### 1619#       发表于 2026-6-3 19:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉opencode go和免费的模型没啥区别，是我需求小了吗
+
