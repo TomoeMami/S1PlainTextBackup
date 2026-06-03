@@ -4052,3 +4052,30 @@ demo的难度好温柔，优化也不错
 
 师爷给我翻译翻译什么叫力动，这简中翻译又拉了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 435#       发表于 2026-6-3 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715654&amp;ptid=2210366" target="_blank">千本blur 发表于 2026-6-3 18:47</a>
+感觉就是我梦想中的游戏，把所有动作游戏的系统融合在一起，动作精细程度无与伦比。但他又把这套系统简化成 ...</blockquote>
+你这么一说就想通为什么基础按键是把四个战斗操作按键放ABXY一起了
+
+*****
+
+####  我王  
+##### 436#       发表于 2026-6-3 18:57
+
+[https://www.famitsu.com/article/202503/37453](https://www.famitsu.com/article/202503/37453)
+
+上年的采访，说是20小时通关的程度
+
+
+*****
+
+####  nage560  
+##### 437#       发表于 2026-6-3 19:03
+
+崩一闪现在的操作是LB+A键，能防御保底旧鬼武者亲民了很多，不过这不就是卧龙的化劲嘛，卡表有你的。
+
