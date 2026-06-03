@@ -406,3 +406,86 @@ C狗、清姬、大卫、杰罗尼莫、豹人
 怎么现在出新角色的抽卡动画还不让跳过的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">欧 羡慕
 
+
+*****
+
+####  岸浪白野  
+##### 20877#       发表于 2026-6-3 20:00
+
+ 本帖最后由 岸浪白野 于 2026-6-3 20:01 编辑 
+
+本质序章，一想到为了打这3姐妹还要打多2章然后就又xxxxx篇<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且过了主线也还是锁着介绍的资料6
+<img src="https://p.sda1.dev/32/193a2bec9965e099e9e63b65557b7b60/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 20878#       发表于 2026-6-3 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715935&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-6-3 19:50</a>
+
+欧 羡慕</blockquote>
+好久没听见这么说了，好怀念<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 20879#       发表于 2026-6-3 20:17
+
+<blockquote>qixinno1 发表于 2026-6-3 19:10
+果然没出 滚了</blockquote>
+
+特殊卡面
+
+生锈金卡
+
+没生锈就会歪
+
+<img src="https://img.stage1st.com/forum/202606/03/201741xulzo4iwufd59ld6.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6884.png</strong> (971.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 20:17 上传
+
+*****
+
+####  gpx234mqx  
+##### 20880#       发表于 2026-6-3 20:23
+
+ 本帖最后由 gpx234mqx 于 2026-6-3 20:25 编辑 
+<blockquote>Jamaisvu 发表于 2026-6-3 19:08
+突破卡面：
+
+竟然只锁真名不锁灵基，惊了。
+</blockquote>
+
+这次比较好猜的
+
+一看到时钟就想到了
+
+女神转生不就玩意
+
+金子一马设计还是靠谱，特征就是钟
+
+<img src="https://img.stage1st.com/forum/202606/03/202314csnu9wnhqtb9wrdb.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6886.png</strong> (784.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 20:23 上传
+
+
+*****
+
+####  qixinno1  
+##### 20881#       发表于 2026-6-3 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69716033&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2026-6-3 20:14</a>
+
+好久没听见这么说了，好怀念</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终章太烂活了 感觉少了很多人晒卡
+
