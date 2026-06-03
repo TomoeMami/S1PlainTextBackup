@@ -1628,3 +1628,40 @@ GPT现在写文的能力已经彻底拉完了
 
 —— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  13号  
+##### 1622#       发表于 2026-6-3 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715773&amp;ptid=2275806" target="_blank">passgan 发表于 2026-6-3 19:07</a>
+
+感觉opencode go和免费的模型没啥区别，是我需求小了吗</blockquote>
+opencode go 里你可以选模型啊， 选 glm5.1、deepseek V4 之类的，他就是对应的质量啊，你先确认下自己到底用的啥模型。
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1623#       发表于 2026-6-3 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69716188&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-6-3 20:46</a>
+GPT现在写文的能力已经彻底拉完了
+
+—— 来自 HUAWEI SGT-AL50, Android 12, 鹅球 v3.4.97-alpha ...</blockquote>
+5.5我觉得提供足够多的约束情况下输出的文字还行，但是给它大纲让它去编剧情那真是一坨屎，D指导3.2水平都不如
+更别说让它去自己写大纲了
+而且它搞提示词这一块也不行，我上午用它给的方案，让它出套提示词，写的那叫一个垃圾，埋了好几处粉色大象，还不如我自己写了
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1624#       发表于 2026-6-3 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69716177&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-6-3 20:44</a>
+这就是超大参数量带来的知识量优势，代价是非长尾需求也要花几十上百倍的价格，以及企业用户高峰期想送钱 ...</blockquote>
+但我记得一开始不是说LLM AI压缩暨智能吗，怎么最后又成了拼训练量拼规模呢？
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
