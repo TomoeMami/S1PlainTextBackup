@@ -4298,3 +4298,23 @@ demo的难度好温柔，优化也不错
 没玩过前作，这默认键位是前作就这么反人类的吗</blockquote>
 虽然不知道为什么默认键位这么奇葩，但是选另外一个键位就正常多了
 
+
+*****
+
+####  杀仁小登  
+##### 462#       发表于 2026-6-3 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69716718&amp;ptid=2210366" target="_blank">zqqwe 发表于 2026-6-3 23:00</a>
+
+笼手妹的马脸还能高情商说有特色（神似牙狼第一部的邪美），阿国这脸和发型甚至想起鬼佬那个中世纪dei女主 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仁王也有阿国
+
+*****
+
+####  舌怪  
+##### 463#       发表于 2026-6-3 23:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715374&amp;ptid=2210366" target="_blank">葵 发表于 2026-6-3 17:34</a>
+说是用三船的脸，但是游戏里面像甄子丹，笑起来和插科打诨的时候特别像 ...</blockquote>
+其实我听着配音一直觉得是细谷佳正本人<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
