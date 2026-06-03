@@ -108,3 +108,83 @@ https://b23.tv/HkK7U9l
 
 fgo的正统在崩铁，快点去玩啊，直接把钱充到崩铁最省事了。
 
+
+*****
+
+####  exiaexa  
+##### 20851#       发表于 2026-6-3 18:38
+
+ 本帖最后由 exiaexa 于 2026-6-3 18:40 编辑 
+
+楼上的还是不懂，二游战争得同一个属地才打得起来
+
+你一个天朝软件用户找一群11区软件用户多少得算南辕北辙了
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  克苏鲁系青骑士  
+##### 20852#       发表于 2026-6-3 18:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大卫喜提改模
+拉二今天有机会吗
+
+*****
+
+####  Jamaisvu  
+##### 20853#       发表于 2026-6-3 18:50
+
+大卫改模，这就是父凭子贵吗...
+
+*****
+
+####  jackyhuang  
+##### 20854#       发表于 2026-6-3 18:52
+
+挂树十字架<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Jamaisvu  
+##### 20855#       发表于 2026-6-3 18:52
+
+新限定五星，终末的Archer：
+
+<img src="https://img.stage1st.com/forum/202606/03/185300au9lxr3cjjkjjkjp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260603_185132.jpg</strong> (315.38 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-3 18:52 上传
+
+<img src="https://img.stage1st.com/forum/202606/03/185226u770q37zu1111uno.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260603_185155.jpg</strong> (307.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-3 18:52 上传
+
+<img src="https://img.stage1st.com/forum/202606/03/185226fnzyzhcjbjlzvjj8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260603_185207.jpg</strong> (170.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-3 18:52 上传
+
+经典升天十字架正脸宝具，这树看着像北欧神话相关的...
+
+*****
+
+####  xiongxingyu  
+##### 20856#       发表于 2026-6-3 18:53
+
+好家伙，居然藏真名，好久不见啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

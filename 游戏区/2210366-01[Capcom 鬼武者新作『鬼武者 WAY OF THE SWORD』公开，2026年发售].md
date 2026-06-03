@@ -4027,3 +4027,28 @@ demo的难度好温柔，优化也不错
 
 连一闪也太爽了吧 理解为啥上一堆怪了 根本不够砍啊<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xyq075898  
+##### 432#       发表于 2026-6-3 18:45
+
+佐佐木严流是不是松田翔太？
+
+*****
+
+####  千本blur  
+##### 433#       发表于 2026-6-3 18:47
+
+感觉就是我梦想中的游戏，把所有动作游戏的系统融合在一起，动作精细程度无与伦比。但他又把这套系统简化成了判断什么时候按abxy，打起打起来非常符合直觉。
+
+除了难绷的配音吧。
+
+
+*****
+
+####  nage560  
+##### 434#       发表于 2026-6-3 18:53
+
+师爷给我翻译翻译什么叫力动，这简中翻译又拉了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
