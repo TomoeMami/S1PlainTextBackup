@@ -3766,3 +3766,11 @@ demo的难度好温柔，优化也不错
 
 感觉佐佐木的下砸特别容易闪
 
+
+*****
+
+####  Leliel  
+##### 406#       发表于 2026-6-3 14:12
+
+还有真连锁一闪吗，我得去试试<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

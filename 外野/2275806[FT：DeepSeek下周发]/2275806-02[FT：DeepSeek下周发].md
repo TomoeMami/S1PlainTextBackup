@@ -1274,3 +1274,17 @@ Gemini本身就绑定Google，现在又关联了Gmail、网盘、文档、YTB等
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1592#       发表于 2026-6-3 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69714235&amp;ptid=2275806" target="_blank">精钢魔像 发表于 2026-6-3 13:22</a>
+就是推理方向错了，越继续越错。
+
+两年前的claude也有这种问题，只要你指出它的错误，一般都能解决。 ...</blockquote>
+美国这三家是怎么解决这个问题的？大模型在推理时候还会自我评析吗？
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
