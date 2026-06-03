@@ -1775,3 +1775,24 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 那个超时空是不是打完了前面10章才能开限时深渊？</blockquote>
 对，过了就行，而且限时深渊很简单
 
+
+*****
+
+####  sxsdark  
+##### 909#       发表于 2026-6-3 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713677&amp;ptid=2256125" target="_blank">碧空之歌P 发表于 2026-6-3 11:46</a>
+
+对，过了就行，而且限时深渊很简单</blockquote>
+凉球，没有二队打不过第十章
+
+*****
+
+####  三谷歩夢  
+##### 910#       发表于 2026-6-3 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69714705&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-6-3 15:16</a>
+
+凉球，没有二队打不过第十章</blockquote>
+可以刷个孢子百丽儿，也不需要什么神闪之类的，带两条蛆都能过深渊了
+
