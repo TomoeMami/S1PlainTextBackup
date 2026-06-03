@@ -3831,3 +3831,33 @@ demo的难度好温柔，优化也不错
 
  真连闪操作方式——真一闪成功闪白光的时候再按攻击键，不要连按。
 
+
+*****
+
+####  杀仁小登  
+##### 413#       发表于 2026-6-3 15:53
+
+<img src="https://img.stage1st.com/forum/202606/03/154951gvg61loflq6fvxvz.jpg" referrerpolicy="no-referrer">
+
+<strong>HJ2KE9wbUAAbWjI.jpg</strong> (847.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 15:49 上传
+
+<img src="https://img.stage1st.com/forum/202606/03/155209tevm1hmzm1meez7z.jpg" referrerpolicy="no-referrer">
+
+<strong>images.steamusercontent.jpg</strong> (30.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 15:52 上传
+
+<img src="https://img.stage1st.com/forum/202606/03/155323d6oo9twiu0ozngu4.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20260603155316.png</strong> (130.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 15:53 上传
+

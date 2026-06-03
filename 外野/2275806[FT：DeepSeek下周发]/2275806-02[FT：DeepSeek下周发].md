@@ -1408,3 +1408,24 @@ pi的问题是需要花时间了解和配置，我是一边做项目一边学习
 
 今天软件有一个小更新，也不知道修改了什么。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1604#       发表于 2026-6-3 15:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69714493&amp;ptid=2275806" target="_blank">舞以 发表于 2026-6-3 14:28</a>
+dsv4pro是一个1.6t的模型，gpt5.5和opus一般认为起码是大几t乃至上10t的模型
+
+长尾任务和边角料知识这块是差 ...</blockquote>
+不过话说回来，5.5这玩意写文还是稳来稳去的<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  overflowal  
+##### 1605#       发表于 2026-6-3 15:53
+
+不知道什么时候更新4.1，希望撤回多模态论文就是为了给正式版加吧<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
