@@ -3390,3 +3390,50 @@ DEMO打完了，感觉就demo而言玩点全在各种架招和相持的动作上
 
 讲道理，老卡现在的出品对攻击的震动和打击反馈普遍都很克制吧，虽然我个人是不太喜欢这个路线，但是玩下来，这个demo里对震动的克制，我觉得是挺适合的；兼顾了整体的写实风格，以及不同操作成功后反馈的区分
 
+
+*****
+
+####  thez  
+##### 365#       发表于 2026-6-3 08:34
+
+打完了还可以，会入实体盘
+
+*****
+
+####  MR骑士道MKⅦ  
+##### 366#       发表于 2026-6-3 08:36
+
+小次郎：吃我绕背斩啊！
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 367#       发表于 2026-6-3 08:38
+
+默认键位方块防御不习惯，换成第二套键位闪避又跑到O键去了，只能调回默认键位。
+
+什么叫直观适合动作游戏玩家，什么又叫便于操作利于新手，卡婊知道自己在干什么吗？
+
+*****
+
+####  MR骑士道MKⅦ  
+##### 368#       发表于 2026-6-3 08:38
+
+武藏刚健朴实的一声：滚！
+
+
+*****
+
+####  MR骑士道MKⅦ  
+##### 369#       发表于 2026-6-3 08:42
+
+<img src="https://images.steamusercontent.com/ugc/13874711272481843111/A5376A7E5C35A44A7198ECFD97FCFC12963596A9/?imw=5000&amp;imh=5000&amp;ima=fit&amp;impolicy=Letterbox&amp;imcolor=%23000000&amp;letterbox=false" id="aimg_bHJtJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+*****
+
+####  otakun  
+##### 370#       发表于 2026-6-3 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69712399&amp;ptid=2210366" target="_blank">MR骑士道MKⅦ 发表于 2026-6-3 08:42</a></blockquote>
+宫本武藏:黑魂是什么……？.jpg
+
