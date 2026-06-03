@@ -3634,3 +3634,42 @@ DEMO打完了，感觉就demo而言玩点全在各种架招和相持的动作上
 
 细节只记得小次郎叫岩流<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">弹反的判定挺宽的就吃了一下投技，不然可以无伤打过，纯度还是太低了
 
+
+*****
+
+####  otakun  
+##### 392#       发表于 2026-6-3 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713806&amp;ptid=2210366" target="_blank">Nosgoth 发表于 2026-6-3 12:04</a>
+连续闪避槽满了后那个连斩直接让我想到了十连斩。
+
+另外这个demo里好像没说，我之前看媒体试玩看到的，对飞 ...</blockquote>
+有说，四个远程兵那里会提起，RB+A会弹会箭矢
+
+
+*****
+
+####  不见不散  
+##### 393#       发表于 2026-6-3 12:21
+
+卡普空怎么还能搞出纸片树叶侧面对着人这种活来？现在二游的树叶都已经普遍是可以自动旋转始终正对镜头了。虽然在极少数情况下近景会看到树叶自动旋转有点出戏，但是在绝大多数远景下，效果是比较好的。
+
+*****
+
+####  57042711  
+##### 394#       发表于 2026-6-3 12:21
+
+试玩那肯定随便砍砍了，要难度肯定在幻魔空间吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Leliel  
+##### 395#       发表于 2026-6-3 12:23
+
+其实所谓剑戟难度其实就是标准难度吧，另一个就是纯看剧情的难度了
+
+要上强度还不简单，数值一拉，判定一减，再开个一闪模式<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

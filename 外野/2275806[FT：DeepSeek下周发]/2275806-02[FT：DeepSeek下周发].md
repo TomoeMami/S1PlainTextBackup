@@ -1111,3 +1111,27 @@ pi.dev 这个吗？
 今天我让DeepSeek和Glm5.1分别修复同一个TTS插件 ...</blockquote>
 实际上的确就是有3个月的差距啊一个大版本
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1579#       发表于 2026-6-3 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713873&amp;ptid=2275806" target="_blank">omnitoken 发表于 2026-6-3 12:14</a>
+实际上的确就是有3个月的差距啊一个大版本</blockquote>
+差距能大到一个根本没头绪解决问题，一个只要听了问题描述就能点出来根源在哪？<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  overflowal  
+##### 1580#       发表于 2026-6-3 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713904&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-6-3 12:18</a>
+差距能大到一个根本没头绪解决问题，一个只要听了问题描述就能点出来根源在哪？
+
+—— 来自 HUAWEI SGU-A ...</blockquote>
+是啊，一个比v4参数量大好几圈，训练更加完善的模型的能力就是更强啊。。这种长尾任务的能力是很难被各种benchmark体现的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
