@@ -560,3 +560,24 @@ C狗、清姬、大卫、杰罗尼莫、豹人
 
 明明头像是美人但看到全身就萎了
 
+
+*****
+
+####  alucardcz  
+##### 20889#       发表于 2026-6-3 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69716479&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-6-3 21:52</a>
+
+狗萌新的石头不舍得用而已</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">讲个笑话 萌新前几天all in了 老福  而且还没出
+
+*****
+
+####  qixinno1  
+##### 20890#       发表于 2026-6-3 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69716544&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-6-3 22:09</a>
+
+讲个笑话 萌新前几天all in了 老福  而且还没出</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正常 我也抽果子龙没出啊
+
