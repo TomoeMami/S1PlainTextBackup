@@ -1719,3 +1719,11 @@ opencode 之前配合 opencode go 还挺好用的。
 
 我这两天用v4pro用的很爽啊，都不怎么想动脑了
 
+
+*****
+
+####  绝地潜兵  
+##### 1630#       发表于 2026-6-4 02:51
+
+装好了Git、VS code、Python、配置好了MCP，我也准备用Cherry跑跑agent了，准备让它帮我写工作文档 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
