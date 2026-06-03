@@ -1288,3 +1288,22 @@ Gemini本身就绑定Google，现在又关联了Gmail、网盘、文档、YTB等
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  fsckamui  
+##### 1593#       发表于 2026-6-3 14:20
+
+国外模型就是不要脸的爬数据（gpt背后的微软、Gemini背后的谷歌等），巴不得把全世界一切电子化的内容都喂给ai。而国内ai连各大搜索引擎、社交和学术库入口都拿不全，别说外面的了。泥潭不是有问题，一个华擎主板的pcie切分问题，问国内ai就不对，问国外的就一下子指出来。这是ai能力吗...不，这单纯库里没有而已
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1594#       发表于 2026-6-3 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69714461&amp;ptid=2275806" target="_blank">fsckamui 发表于 2026-6-3 14:20</a>
+国外模型就是不要脸的爬数据（gpt背后的微软、Gemini背后的谷歌等），巴不得把全世界一切电子化的内容都喂 ...</blockquote>
+但我这个问题挺小众的，一个现在全球日活也就五六千的十多年前的网游的tts插件的中文脚本问题，国内活跃玩家（AFK两年内都算活跃了）可能就两千人，就挤在几个QQ群里，不能说都认识也差不多了，互联网上都没有人问过类似的事，这种犄角旮旯的信息现在都能被炼进去？
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
