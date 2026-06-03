@@ -1603,3 +1603,28 @@ claude code或是opencode    Re:Source</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉opencode go和免费的模型没啥区别，是我需求小了吗
 
+
+*****
+
+####  ycjiang1337  
+##### 1620#       发表于 2026-6-3 20:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713966&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-6-3 12:28</a>
+那也太夸张了，deepseek跟GLM5.1真的是束手无策，一直从那鬼打墙打了一个多小时，尤其是GLM5.1一开始连插 ...</blockquote>
+这就是超大参数量带来的知识量优势，代价是非长尾需求也要花几十上百倍的价格，以及企业用户高峰期想送钱都送不出去
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  ycjiang1337  
+##### 1621#       发表于 2026-6-3 20:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69714913&amp;ptid=2275806" target="_blank">舞以 发表于 2026-6-3 15:56</a>
+后训练有好有坏啊，我感觉中文的社科人文内容gpt和ds相比也就有胜有负。
+
+gpt和claude现在的核心叙事就是 ...</blockquote>
+GPT现在写文的能力已经彻底拉完了
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
