@@ -4419,3 +4419,11 @@ demo支持振动么，重打一遍demo用ps5的手柄也没振动，我看设置
 
 系统熟悉后打的太爽了随便录了一段，还要等3个月真的太煎熬了啊！<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pu  
+##### 472#       发表于 2026-6-4 01:46
+
+会不会有3个可控人物 武藏!小次郎!(火箭队)阿国!
+

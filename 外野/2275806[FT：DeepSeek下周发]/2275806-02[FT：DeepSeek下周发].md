@@ -1698,3 +1698,16 @@ opencode 之前配合 opencode go 还挺好用的。
 
 糟糕，pi玩起来有点上头啊，我感觉要从opencode叛逃了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hugosol  
+##### 1628#       发表于 2026-6-4 01:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69714991&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-6-3 16:11</a>
+
+上午用它解决问题提出方案真是牛逼，下午接上Agent用grill me这个skill讨论一下小说剧情发展，跟弱智一样 ...</blockquote>
+用grill-me预测连载小说的剧情吗？这想法也太有创意了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不过这类问题应该属于太空泛了很难得出什么确定的结果，除非你就是作者本人，脑子里已经有大体的走向了，只是还没想好具体要怎么写<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
