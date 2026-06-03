@@ -4229,3 +4229,20 @@ demo的难度好温柔，优化也不错
 <img src="https://p.sda1.dev/32/6896a8103300059c536f41f1d42e02cb/20260603_223813.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/57e89e3e440451736ee310f4c91739b0/20260603_223815.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  catabridge  
+##### 454#       发表于 2026-6-3 22:48
+
+这体积雾太瞎眼了，整个游戏基本上灰蒙蒙一片，仁王3的画面都显得眉清目秀了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+感觉这卖相，销量真的可能会暴死（
+
+*****
+
+####  lbb3313725  
+##### 455#       发表于 2026-6-3 22:50
+
+玩着挺爽的，就是画面有点差。正式版连锁一闪最后一下不会固定都是跳砍吧，那样就太单调了。
+
