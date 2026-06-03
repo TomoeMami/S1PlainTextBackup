@@ -4366,3 +4366,38 @@ demo的难度好温柔，优化也不错
 
 <img src="https://img.stage1st.com/forum/202606/03/234231gkccw99q1lldluhl.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新庄運切  
+##### 466#       发表于 2026-6-3 23:57
+
+demo支持振动么，重打一遍demo用ps5的手柄也没振动，我看设置里开着的啊，而且ps5好像pc也不对应按键图标，图标还是xbox的
+
+*****
+
+####  Nosgoth  
+##### 467#       发表于 2026-6-3 23:59
+
+<blockquote>新庄運切 发表于 2026-6-3 23:57
+demo支持振动么，重打一遍demo用ps5的手柄也没振动，我看设置里开着的啊，而且ps5好像pc也不对应按键图标， ...</blockquote>
+有震动，图标要在设置里选。
+
+
+*****
+
+####  Yugao  
+##### 468#       发表于 2026-6-4 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69716906&amp;ptid=2210366" target="_blank">新庄運切 发表于 2026-6-3 23:57</a>
+
+demo支持振动么，重打一遍demo用ps5的手柄也没振动，我看设置里开着的啊，而且ps5好像pc也不对应按键图标， ...</blockquote>
+给dse发声权限的话过场动画会有震动，但是游戏里其他部分无论如何都没有，并且这个demo声音偏小十分严重
+
+*****
+
+####  新庄運切  
+##### 469#       发表于 2026-6-4 00:01
+
+怪了我第一遍用xbox手柄也没啥振动，写ps5也没振动，啥情况下会有振动，我去试试
+

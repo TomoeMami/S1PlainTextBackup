@@ -40,3 +40,16 @@
 
 后知后觉 te 这角色配置怎么那么像名作之壁啊
 
+
+*****
+
+####  鱼雷鲨  
+##### 2466#       发表于 2026-6-4 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715167&amp;ptid=1860817" target="_blank">whzfjd 发表于 2026-6-3 16:45</a>
+
+上岸作下海了，为了体面还搞了个女主做春梦的由头
+
+后知后觉 te 这角色配置怎么那么像名作之壁啊 ...</blockquote>
+以前的DMM都是玩家无脸人去牛原作是吧
+
