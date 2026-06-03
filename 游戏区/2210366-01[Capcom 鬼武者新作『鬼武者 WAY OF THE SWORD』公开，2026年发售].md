@@ -3480,3 +3480,11 @@ DEMO打完了，感觉就demo而言玩点全在各种架招和相持的动作上
 
 放心，只能用一闪杀敌的一闪模式都少不了
 
+
+*****
+
+####  千秋难诉  
+##### 376#       发表于 2026-6-3 09:07
+
+卡比奥什么时候把战略版端上来<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
