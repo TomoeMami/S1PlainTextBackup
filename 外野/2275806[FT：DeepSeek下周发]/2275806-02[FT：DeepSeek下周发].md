@@ -1525,3 +1525,18 @@ gpt和claude现在的核心叙事就是 ...</blockquote>
 
 DS目前看下来不是个循规蹈矩已有技术路线的公司   
 
+
+*****
+
+####  忧郁的杰哥  
+##### 1613#       发表于 2026-6-3 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715042&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-6-3 16:22</a>
+
+想太多，deepseek还是很实际的。这些探索肯定会做。
+
+但是现在这代要不要融多模态，他们肯定是想要融的， ...</blockquote>
+梁圣的想法非我等可以揣测
+
+但是  按DS一贯的行事作风   他们出的多模态必然不同于目前国内几家已有的形式   拭目以待把
+
