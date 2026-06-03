@@ -1708,3 +1708,29 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 不止是文案 比如为什么是舰长 因为是开船去探索星域 下本后地图上还有城市废墟而不是现在这样的大背景就 ...</blockquote>
 别说这设定挺带感，但是这大天赋树更复杂了我超<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  就不的  
+##### 903#       发表于 2026-6-3 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69711127&amp;ptid=2256125" target="_blank">qixinno1 发表于 2026-6-2 21:26</a>
+
+不止是文案 比如为什么是舰长 因为是开船去探索星域 下本后地图上还有城市废墟而不是现在这样的大背景就 ...</blockquote>
+别说这设定挺带感，但是这大天赋树更复杂了我超<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno1  
+##### 904#       发表于 2026-6-3 09:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">UG太强了 一个AOE下去一定伤害爆炸吧
+
+<img src="https://img.stage1st.com/forum/202606/03/093031wqb3bz9bymfbtddf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 09:30 上传
+
