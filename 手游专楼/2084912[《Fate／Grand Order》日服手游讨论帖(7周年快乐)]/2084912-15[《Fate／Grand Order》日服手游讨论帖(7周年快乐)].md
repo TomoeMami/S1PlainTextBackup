@@ -329,3 +329,34 @@ C狗、清姬、大卫、杰罗尼莫、豹人
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">果然没出 滚了
 
+
+*****
+
+####  壳壳牛  
+##### 20869#       发表于 2026-6-3 19:16
+
+艹歪盘子了....
+
+*****
+
+####  克苏鲁系青骑士  
+##### 20870#       发表于 2026-6-3 19:17
+
+有类似龙骨的盔甲，加上终末的名号，缝了尼德霍格吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 20871#       发表于 2026-6-3 19:21
+
+妈呀，这3个技能发一个就是一流拐了，甚至自己还有可以叠层的万物特攻宝具，蓝卡终于可以龙王归位了吗（虽然有CD-1，红卡也能蹭一蹭）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 20872#       发表于 2026-6-3 19:24
+
+唐突语音<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+感觉周年医生要落地了
+
