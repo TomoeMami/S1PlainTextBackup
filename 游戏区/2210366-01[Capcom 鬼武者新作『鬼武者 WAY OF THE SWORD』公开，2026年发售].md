@@ -4409,3 +4409,13 @@ demo支持振动么，重打一遍demo用ps5的手柄也没振动，我看设置
 
 这丫头居然是阿国………………
 
+
+*****
+
+####  恋妖壶  
+##### 471#       发表于 2026-6-4 00:36
+
+【因为玩到了中意的战斗导致只能痛苦的等待3个月这件事【鬼武者DEMO】】 [https://www.bilibili.com/video/B ... 5fb3b1c96074dc5a400](https://www.bilibili.com/video/BV1vH7R6tEhR/?share_source=copy_web&amp;vd_source=8905ada96d20d5fb3b1c96074dc5a400)
+
+系统熟悉后打的太爽了随便录了一段，还要等3个月真的太煎熬了啊！<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
