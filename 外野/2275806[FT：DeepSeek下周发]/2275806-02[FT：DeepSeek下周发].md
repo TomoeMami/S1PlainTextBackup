@@ -1482,3 +1482,17 @@ gpt和claude现在的核心叙事就是写代码厉害，你不也被codex折服
 
 可能DS也想让多模态模型朝真正的理解世界运行的方向去靠拢。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1610#       发表于 2026-6-3 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69714913&amp;ptid=2275806" target="_blank">舞以 发表于 2026-6-3 15:56</a>
+后训练有好有坏啊，我感觉中文的社科人文内容gpt和ds相比也就有胜有负。
+
+gpt和claude现在的核心叙事就是 ...</blockquote>
+上午用它解决问题提出方案真是牛逼，下午接上Agent用grill me这个skill讨论一下小说剧情发展，跟弱智一样，还不如和gemini在网页端闲扯来的有用
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
