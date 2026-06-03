@@ -998,3 +998,14 @@ toe是2周目的疯狂彗星吧，元精灵秘奥按键派生    Re:Source</bl
 你记错了，2周目疯狂彗星派生是TOD2博士的</blockquote>
 没有记错，元精灵max后可以通过按键触发派生，比tod2还要早，要先开最高难度打一场战斗就可以开启了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  Ares  
+##### 98#       发表于 2026-6-3 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713069&amp;ptid=2280008" target="_blank">雪雨轻澜 发表于 2026-6-3 10:24</a>
+
+没有记错，元精灵max后可以通过按键触发派生，比tod2还要早，要先开最高难度打一场战斗就可以开启了    R ...</blockquote>
+是可以触发派生，但不叫疯狂彗星
+
