@@ -1711,3 +1711,11 @@ opencode 之前配合 opencode go 还挺好用的。
 
 不过这类问题应该属于太空泛了很难得出什么确定的结果，除非你就是作者本人，脑子里已经有大体的走向了，只是还没想好具体要怎么写<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱未来  
+##### 1629#       发表于 2026-6-4 02:09
+
+我这两天用v4pro用的很爽啊，都不怎么想动脑了
+
