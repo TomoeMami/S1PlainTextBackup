@@ -3801,3 +3801,33 @@ demo的难度好温柔，优化也不错
 
 就是杂兵战有点昏睡，不知道是不是demo的原因。打佐佐木才需要运用到各种系统
 
+
+*****
+
+####  缺德猫  
+##### 410#       发表于 2026-6-3 14:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69714468&amp;ptid=2210366" target="_blank">Cranberries 发表于 2026-6-3 14:22</a>
+
+这战斗确实有点爽，而且感觉很多动作都还不会用。
+
+除了画面黑不拉几的有点拉，优化啥的都OK。
+
+剩下的就怕卡 ...</blockquote>
+第一遍完全不爽，第二遍纯爽
+
+
+*****
+
+####  otakun  
+##### 411#       发表于 2026-6-3 14:43
+
+连闪出了一次，爽了一中午<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">。打道中一堆怪，有一只会怪翻滚转过来，贴身刚好触发了一闪，之后按攻击自动跑过去闪死了第二只，跟着跑过去第三只怪那里踩怪跳起来登龙剑，真下头，我喜欢<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kazami1004  
+##### 412#       发表于 2026-6-3 14:44
+
+ 真连闪操作方式——真一闪成功闪白光的时候再按攻击键，不要连按。
+
