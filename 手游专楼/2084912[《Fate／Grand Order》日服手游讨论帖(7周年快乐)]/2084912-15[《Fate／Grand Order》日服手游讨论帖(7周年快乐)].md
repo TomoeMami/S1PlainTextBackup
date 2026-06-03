@@ -581,3 +581,11 @@ C狗、清姬、大卫、杰罗尼莫、豹人
 讲个笑话 萌新前几天all in了 老福  而且还没出</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正常 我也抽果子龙没出啊
 
+
+*****
+
+####  sanada  
+##### 20891#       发表于 2026-6-3 22:38
+
+这乌尔德讲话有点意思的，不知不觉就会拐到过去时
+

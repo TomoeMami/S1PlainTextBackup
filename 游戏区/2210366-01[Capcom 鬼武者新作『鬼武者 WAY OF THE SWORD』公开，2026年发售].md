@@ -4208,3 +4208,24 @@ demo的难度好温柔，优化也不错
 
 这demo不支持dse的震动搞得我很烦，手头也没有其他手柄能用
 
+
+*****
+
+####  Piano-Forest  
+##### 453#         楼主| 发表于 2026-6-3 22:40
+
+グッズ同梱版『鬼武者 Way of the Sword - Art &amp; Music Collection』が登場！✨
+
+本編楽曲の中から珠玉の14曲を収録したアナログ盤「Vinyl Soundtrack」（LP/1枚）と、ビジュアルアートや貴重な設定画などを大ボリュームで収録した「Art Book」がセットに！
+
+「Art Book」の中身を一部紹介！✨
+
+登場キャラクター、幻魔、装備品ディティール、背景や浮世絵まで盛りだくさんのビッグサイズ64ページ仕上げです📖
+
+※一部ネタバレを含む内容となっております。ゲームクリア後にご覧いただくことをおすすめいたします。
+<img src="https://p.sda1.dev/32/45dc4ac0faed0a985061f524dc5e5f5b/20260603_223804.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/06895906ee842c108ea54bc6f70f56ed/20260603_223812.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/32/6896a8103300059c536f41f1d42e02cb/20260603_223813.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/57e89e3e440451736ee310f4c91739b0/20260603_223815.jpg" referrerpolicy="no-referrer">
+
