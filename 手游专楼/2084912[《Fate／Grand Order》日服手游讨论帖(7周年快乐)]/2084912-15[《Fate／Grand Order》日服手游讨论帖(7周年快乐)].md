@@ -507,3 +507,14 @@ C狗、清姬、大卫、杰罗尼莫、豹人
 打完主线和大卫强化本凑够30石竟然出了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">这就是欧皇吗 我们非萌只能落泪
 
+
+*****
+
+####  qixinno1  
+##### 20884#       发表于 2026-6-3 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69716436&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-6-3 21:41</a>
+
+这就是欧皇吗 我们非萌只能落泪</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新的石头不舍得用而已
+
