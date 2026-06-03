@@ -360,3 +360,49 @@ C狗、清姬、大卫、杰罗尼莫、豹人
 
 感觉周年医生要落地了
 
+
+*****
+
+####  里村紅葉  
+##### 20873#       发表于 2026-6-3 19:28
+
+怎么现在出新角色的抽卡动画还不让跳过的<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 20874#       发表于 2026-6-3 19:34
+
+<blockquote>里村紅葉 发表于 2026-6-3 19:28
+怎么现在出新角色的抽卡动画还不让跳过的</blockquote>
+好像新职介或者特殊演出都不能跳过吧，乌尔德是特殊卡背：
+
+<img src="https://img.stage1st.com/forum/202606/03/193304bgtg5hzc6p6a56ep.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260603_193247.jpg</strong> (306.8 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-3 19:33 上传
+
+*****
+
+####  alucardcz  
+##### 20875#       发表于 2026-6-3 19:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715840&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2026-6-3 19:28</a>
+
+怎么现在出新角色的抽卡动画还不让跳过的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">新式晒卡法！
+
+*****
+
+####  qixinno1  
+##### 20876#       发表于 2026-6-3 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715840&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2026-6-3 19:28</a>
+
+怎么现在出新角色的抽卡动画还不让跳过的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">欧 羡慕
+
