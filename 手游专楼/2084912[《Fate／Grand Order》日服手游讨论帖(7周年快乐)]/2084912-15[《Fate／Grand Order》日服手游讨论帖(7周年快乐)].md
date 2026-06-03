@@ -489,3 +489,21 @@ C狗、清姬、大卫、杰罗尼莫、豹人
 好久没听见这么说了，好怀念</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终章太烂活了 感觉少了很多人晒卡
 
+
+*****
+
+####  蓮華  
+##### 20882#       发表于 2026-6-3 21:40
+
+像个男人长了对柰子
+
+*****
+
+####  alucardcz  
+##### 20883#       发表于 2026-6-3 21:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69716353&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-6-3 21:22</a>
+
+打完主线和大卫强化本凑够30石竟然出了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">这就是欧皇吗 我们非萌只能落泪
+
