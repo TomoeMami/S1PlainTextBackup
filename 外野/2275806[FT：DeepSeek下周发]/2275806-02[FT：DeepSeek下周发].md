@@ -1135,3 +1135,34 @@ pi.dev 这个吗？
 —— 来自 HUAWEI SGU-A ...</blockquote>
 是啊，一个比v4参数量大好几圈，训练更加完善的模型的能力就是更强啊。。这种长尾任务的能力是很难被各种benchmark体现的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1581#       发表于 2026-6-3 12:28
+
+ 本帖最后由 半江瑟瑟半江红 于 2026-6-3 12:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713938&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-6-3 12:23</a>
+是啊，一个比v4参数量大好几圈，训练更加完善的模型的能力就是更强啊。。这种长尾任务的能力是很难被各种 ...</blockquote>
+那也太夸张了，deepseek跟GLM5.1真的是束手无策，一直从那鬼打墙打了一个多小时，尤其是GLM5.1一开始连插件脚本位置在哪里都不知道，都没注意到这个是安装在voiceattack下面的，得我去提醒它。GPT-5.5Thinking我还是在APP上跟它说的这个事，它直接把该怎么解决的方案都告诉我了。
+GPT这感觉真有点以前读者故事讲的画一条线一美元知道在哪画线9999美元那味儿
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  LeoDT  
+##### 1582#       发表于 2026-6-3 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713904&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-6-3 12:18</a>
+
+差距能大到一个根本没头绪解决问题，一个只要听了问题描述就能点出来根源在哪？
+
+—— 来自 HUAWEI SGU-A ...</blockquote>
+你这问题听着也不是coding能力而是知识问题吧，dsv4的发布的时候也说了自己在知识方面跟别人还有差距，再说5.5现在可是现阶段传说中最牛逼的了，你一个开源1T参数怎么跟别人顶尖至少10T的比知识。
+
+我自己用d老师的经验也是，知识问题，比如想用业界成熟方案，那就就先去问google，然后跟d老师说你看这个方案怎么样，d老师惊叹方案漂亮，之后实现的依然很不错啊。
+
+d老师这很多知识都挺落后，需要给它配上最新文档才能好好干活，有些项目文档混乱那就更难为d老师了，又不想随便给agent搜索能力，总觉得搜索是token黑洞，索性自己用工具整理一些文档给老师备着。
+
