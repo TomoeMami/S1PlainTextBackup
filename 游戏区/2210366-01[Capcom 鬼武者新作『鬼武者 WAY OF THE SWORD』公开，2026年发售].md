@@ -4318,3 +4318,51 @@ demo的难度好温柔，优化也不错
 说是用三船的脸，但是游戏里面像甄子丹，笑起来和插科打诨的时候特别像 ...</blockquote>
 其实我听着配音一直觉得是细谷佳正本人<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  57042711  
+##### 464#       发表于 2026-6-3 23:44
+
+这个对砍还挺有意思的，鬼泣那个拼刀pro版<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  杀仁小登  
+##### 465#       发表于 2026-6-3 23:46
+
+主要还是看料堆了多少。
+
+现在官网的boss有小次郎，酒吞，1代肥仔，戴面具的女幻魔，大鵺
+
+小兵除了demo里的，还有demo里没打的满身符，鸟人，分裂怪，肿包头
+
+20260603220841_1.jpg
+(377.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 23:42 上传
+
+<img src="https://img.stage1st.com/forum/202606/03/234231iv20cmlb4m32ycm4.jpg" referrerpolicy="no-referrer">
+
+20260603221118_1.jpg
+(466.23 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 23:42 上传
+
+<img src="https://img.stage1st.com/forum/202606/03/234231cix6c80xhca88i8x.jpg" referrerpolicy="no-referrer">
+
+20260603221037_1.jpg
+(286.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-3 23:42 上传
+
+<img src="https://img.stage1st.com/forum/202606/03/234231gkccw99q1lldluhl.jpg" referrerpolicy="no-referrer">
+
