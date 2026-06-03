@@ -3699,3 +3699,42 @@ DEMO打完了，感觉就demo而言玩点全在各种架招和相持的动作上
 
 这也太无聊了，手感好差
 
+
+*****
+
+####  缺德猫  
+##### 399#       发表于 2026-6-3 12:57
+
+主机版用出了好几次一闪，还出了连闪，但不知道怎么触发的，这套东西压力大的话会很爽啊
+
+*****
+
+####  Nosgoth  
+##### 400#       发表于 2026-6-3 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69714101&amp;ptid=2210366" target="_blank">缺德猫 发表于 2026-6-3 12:57</a>
+
+主机版用出了好几次一闪，还出了连闪，但不知道怎么触发的，这套东西压力大的话会很爽啊 ...</blockquote>
+连闪现在只有多个敌人在一起力动没了才能发动，比如团战那里一门板踹过去一片，真一闪我现在只能对发动攻击的单个敌人用。
+
+
+*****
+
+####  缺德猫  
+##### 401#       发表于 2026-6-3 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69714111&amp;ptid=2210366" target="_blank">Nosgoth 发表于 2026-6-3 12:59</a>
+
+连闪现在只有多个敌人在一起力动没了才能发动，比如团战那里一门板踹过去一片，真一闪我现在只能对发动攻 ...</blockquote>
+不是那个，我就是出了真一闪的连闪
+
+*****
+
+####  缺德猫  
+##### 402#       发表于 2026-6-3 13:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713274&amp;ptid=2210366" target="_blank">MRhythm 发表于 2026-6-3 10:53</a>
+
+直观型喷了, 误导了我半天.</blockquote>
+繁中两种操作方式叫进攻型和防御型
+
