@@ -677,3 +677,11 @@ C狗、清姬、大卫、杰罗尼莫、豹人
 新剧情到底谁写的，我不记得型月里有这么幽默的人</blockquote>
 大概率是yjg吧，都是她的卡
 
+
+*****
+
+####  qixinno1  
+##### 20901#       发表于 2026-6-4 09:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作为过去的女神结果只能单人CD-1也太拉了 怎么着也应该来个全队CD-2吧
+

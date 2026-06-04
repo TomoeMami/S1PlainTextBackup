@@ -916,3 +916,14 @@ DMC鬼泣
 
 上个月总监豪言壮语的说发售时间无惧gta6 结果还是避其锋芒两个月 另外一个地铁新作也这么说 看具体发售日吧
 
+
+*****
+
+####  FBC档案部专员  
+##### 97#       发表于 2026-6-4 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69715475&amp;ptid=2104476" target="_blank">byisme001 发表于 2026-6-3 17:58</a>
+
+上个月总监豪言壮语的说发售时间无惧gta6 结果还是避其锋芒两个月 另外一个地铁新作也这么说 看具体发售日 ...</blockquote>
+我还希望暑假能玩上而不是挤到9月呢
+
