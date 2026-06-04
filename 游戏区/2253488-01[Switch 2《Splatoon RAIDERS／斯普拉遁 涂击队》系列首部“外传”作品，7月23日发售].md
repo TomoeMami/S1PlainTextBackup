@@ -1196,3 +1196,16 @@ IMG_6328.jpeg
 以前买过东西就不会，新号直接去买数字商品就要被砍</blockquote>
 日亚买数字版游戏是要整个日本地址吗？我前两天试着买了一下，日亚不让我下单。
 
+
+*****
+
+####  绿冰  
+##### 121#         楼主| 发表于 2026-6-4 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69720033&amp;ptid=2253488" target="_blank">kuarwbwe 发表于 2026-6-4 15:55</a>
+日亚买数字版游戏是要整个日本地址吗？我前两天试着买了一下，日亚不让我下单。 ...</blockquote>
+是，以前随便填个地址就行
+现在就不好说了
+
+—— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
