@@ -770,3 +770,39 @@ C狗、清姬、大卫、杰罗尼莫、豹人
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这就是蓝拐up池吗
 
+
+*****
+
+####  qixinno1  
+##### 20909#       发表于 2026-6-4 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69720704&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-6-4 17:48</a>
+
+彩圈！！
+
+术.
+
+c狐</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 完全不羡慕
+
+*****
+
+####  alucardcz  
+##### 20910#       发表于 2026-6-4 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69720753&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-6-4 17:58</a>
+
+欧 完全不羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">萌新也想和大佬一样欧 为什么就萌新不欧
+
+
+*****
+
+####  qixinno1  
+##### 20911#       发表于 2026-6-4 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69720756&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-6-4 17:59</a>
+
+萌新也想和大佬一样欧 为什么就萌新不欧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你去年太欧了 估计透支了
+
