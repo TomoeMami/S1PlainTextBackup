@@ -806,3 +806,25 @@ c狐</blockquote>
 萌新也想和大佬一样欧 为什么就萌新不欧</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你去年太欧了 估计透支了
 
+
+*****
+
+####  alucardcz  
+##### 20912#       发表于 2026-6-4 18:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69720771&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-6-4 18:04</a>
+
+你去年太欧了 估计透支了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尬黑了 去年不是3000石3宝所长吗 非出极致！
+
+
+*****
+
+####  qixinno1  
+##### 20913#       发表于 2026-6-4 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69720796&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-6-4 18:08</a>
+
+尬黑了 去年不是3000石3宝所长吗 非出极致！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但你除了所长其他都是欧啊 25+个五星太强大了
+
