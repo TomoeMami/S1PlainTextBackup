@@ -1806,3 +1806,14 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 不突破的大月卡武器好用吗，打算每把换一个就停掉大月卡</blockquote>
 我看都是只推荐主动效果是抽卡的大月卡武器
 
+
+*****
+
+####  orangee  
+##### 912#       发表于 2026-6-4 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69720930&amp;ptid=2256125" target="_blank">LMBS 发表于 2026-6-4 18:41</a>
+
+不突破的大月卡武器好用吗，打算每把换一个就停掉大月卡</blockquote>
+好像当时国际服只推荐3换4多抽一张的，现在不清楚
+
