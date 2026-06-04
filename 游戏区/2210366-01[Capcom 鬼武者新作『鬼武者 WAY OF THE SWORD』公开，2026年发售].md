@@ -4585,3 +4585,16 @@ demo支持振动么，重打一遍demo用ps5的手柄也没振动，我看设置
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">半小时打完，直接买了，卡表我再信你一次，9月底好漫长啊，之前不知道怎么活
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 487#       发表于 2026-6-4 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69717927&amp;ptid=2210366" target="_blank">kuarwbwe 发表于 2026-6-4 10:14</a>
+
+说实话，现在手柄早就该把按下摇杆这个设计取消，换背键了。</blockquote>
+所以任天堂是神<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过我的理想是除了背键外，还得加上PS的触控板
+
