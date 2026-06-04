@@ -1749,3 +1749,19 @@ opencode 之前配合 opencode go 还挺好用的。
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  御坂MKII  
+##### 1633#       发表于 2026-6-4 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69713904&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-6-3 12:18</a>
+差距能大到一个根本没头绪解决问题，一个只要听了问题描述就能点出来根源在哪？
+
+—— 来自 HUAWEI SGU-A ...</blockquote>
+ds 和其他国模的后训练现在严重不足
+
+我自己上班随便抽的 task set 上还打不过 gpt5.2<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24072PX77C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -685,3 +685,19 @@ C狗、清姬、大卫、杰罗尼莫、豹人
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作为过去的女神结果只能单人CD-1也太拉了 怎么着也应该来个全队CD-2吧
 
+
+*****
+
+####  exiaexa  
+##### 20902#       发表于 2026-6-4 10:25
+
+ 本帖最后由 exiaexa 于 2026-6-4 10:27 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69717087&amp;ptid=2084912" target="_blank">cckuku 发表于 2026-6-4 01:43</a>
+
+新女人需要抽嘛？</blockquote>
+除非你C呆满绊/特别喜欢羊/喜欢恶魔姐姐/喜欢特殊卡背，不然这个时间点找不到任何理由抽
+
+肯定是优先给周年和泳装
+
+乌尔德远远到不了改变环境的水平，属于是福袋不亏的东西
+
