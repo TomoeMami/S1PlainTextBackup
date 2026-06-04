@@ -4474,3 +4474,14 @@ demo支持振动么，重打一遍demo用ps5的手柄也没振动，我看设置
 
 只会崩反和闪反，一闪好难出。
 
+
+*****
+
+####  斯托雷加  
+##### 477#       发表于 2026-6-4 09:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69717453&amp;ptid=2210366" target="_blank">赤井稻妻 发表于 2026-6-4 08:55</a>
+
+感觉敌人的攻击欲望有点低，在强调防反的游戏里会陷入被动等敌人攻击的状态，可能卡普空也不想把难度弄得太 ...</blockquote>
+鬼武者可以通过吸魂动作来提高仇恨
+
