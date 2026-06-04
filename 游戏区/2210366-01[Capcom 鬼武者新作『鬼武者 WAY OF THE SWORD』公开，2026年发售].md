@@ -5091,3 +5091,20 @@ https://www.bilibili.com/video/BV15T7d6oEF5/
 记忆力鬼武3和新鬼都是很爽快的游戏，怎么现在一股仁王味</blockquote>
 别碰瓷仁王，用卧龙、对马岛、只狼对标就差不多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Leliel  
+##### 534#       发表于 2026-6-4 22:44
+
+<blockquote>我是快乐小马甲 发表于 2026-6-4 22:36
+记忆力鬼武3和新鬼都是很爽快的游戏，怎么现在一股仁王味</blockquote>
+因为鬼武者也魂化了
+
+*****
+
+####  我是快乐小马甲  
+##### 535#       发表于 2026-6-4 22:45
+
+哦哦哦。对，是卧龙，说错了。不过仁王2也挺卧龙的
+
