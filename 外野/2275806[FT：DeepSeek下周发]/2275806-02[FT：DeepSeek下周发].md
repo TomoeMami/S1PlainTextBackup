@@ -1778,3 +1778,21 @@ ds 和其他国模的后训练现在严重不足
 我自己上班随便抽的 task set 上还打不过 gpt5.2</blockquote>
 国模还有一个大问题，就是工具调用，这方面差得更远
 
+
+*****
+
+####  Bronzecraft  
+##### 1635#       发表于 2026-6-4 20:17
+
+从cc转到pi后发现缓存命中率下降了，大家有遇到类似的情况吗？
+
+
+*****
+
+####  明钼  
+##### 1636#       发表于 2026-6-4 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69721277&amp;ptid=2275806" target="_blank">Bronzecraft 发表于 2026-6-4 20:17</a>
+从cc转到pi后发现缓存命中率下降了，大家有遇到类似的情况吗？</blockquote>
+同我一样。我在opencode的缓存命中率比pi的命中率高很多。我也想知道为什么
+
