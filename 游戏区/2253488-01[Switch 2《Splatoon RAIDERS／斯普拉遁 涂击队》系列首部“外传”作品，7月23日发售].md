@@ -1161,3 +1161,38 @@ IMG_6328.jpeg
 日亚数字版首发9折</blockquote>
 就是不知道日亚预购会不会砍单？
 
+
+*****
+
+####  墨染白泉  
+##### 118#       发表于 2026-6-4 15:49
+
+<blockquote>stoiorz 发表于 2026-6-4 14:34
+就是不知道日亚预购会不会砍单？</blockquote>
+以前买过东西就不会，新号直接去买数字商品就要被砍
+
+
+*****
+
+####  stoiorz  
+##### 119#       发表于 2026-6-4 15:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69719988&amp;ptid=2253488" target="_blank">墨染白泉 发表于 2026-6-4 15:49</a>
+
+以前买过东西就不会，新号直接去买数字商品就要被砍</blockquote>
+感谢，那在日本的时候买过不少的。
+
+长时间没有用了，刚开始下单风控了取消订单，再买一次后就成功了。
+
+看看到最后扣费时能不能成功...
+
+*****
+
+####  kuarwbwe  
+##### 120#       发表于 2026-6-4 15:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69719988&amp;ptid=2253488" target="_blank">墨染白泉 发表于 2026-6-4 15:49</a>
+
+以前买过东西就不会，新号直接去买数字商品就要被砍</blockquote>
+日亚买数字版游戏是要整个日本地址吗？我前两天试着买了一下，日亚不让我下单。
+
