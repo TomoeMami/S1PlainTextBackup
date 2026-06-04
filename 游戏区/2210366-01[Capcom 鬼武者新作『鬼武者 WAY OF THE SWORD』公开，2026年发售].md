@@ -5064,3 +5064,13 @@ https://www.bilibili.com/video/BV15T7d6oEF5/
 
 跑动吸魂动画混合还是太呆了，没调教好    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  lovepenny  
+##### 531#       发表于 2026-6-4 21:57
+
+还挺好玩的，就是还没过瘾就没了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+----发送自 [realme RMX3800,Android 15](http://stage1.5j4m.com/?1.48)
+

@@ -1812,3 +1812,11 @@ ds 和其他国模的后训练现在严重不足
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我一直想搞一个适配dsv4系列超廉价1m上下文和廉价缓存的harness
 
+
+*****
+
+####  gawain  
+##### 1639#       发表于 2026-6-4 22:01
+
+reasonix现在bug太多了，玩玩还可以。真干活还是不行
+
