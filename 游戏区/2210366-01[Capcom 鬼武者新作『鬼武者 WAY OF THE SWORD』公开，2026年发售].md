@@ -4606,3 +4606,13 @@ demo支持振动么，重打一遍demo用ps5的手柄也没振动，我看设置
 
 化劲直接中断boss动作，还能打一套是不是有点太强了，随随便便封出手或者挡一弹二感觉都无脑乱**oss。招架倒是不会中断动作，但是弹三下就清空boss体力……不知道这游戏怎么做难度设计，demo实在是太简单了
 
+
+*****
+
+####  57042711  
+##### 489#       发表于 2026-6-4 11:10
+
+这出来一大群人围住主角然后一个个上来送死真的有点源氏吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
