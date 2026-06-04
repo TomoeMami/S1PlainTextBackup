@@ -80,3 +80,19 @@
 
 看上面的讨论，原版的噩梦反而更难了？还是各有各的难点
 
+
+*****
+
+####  风流庵TypeC  
+##### 381#       发表于 2026-6-4 19:41
+
+<img src="https://img.stage1st.com/forum/202606/04/194031jcuckix41993u1uu.jpg" referrerpolicy="no-referrer">
+
+<strong>20260604193855_1.jpg</strong> (332.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-4 19:40 上传
+
+终于，闪避拉满，放弃击杀精英怪和boss，第三把就过了
+
