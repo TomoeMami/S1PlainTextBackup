@@ -1820,3 +1820,15 @@ ds 和其他国模的后训练现在严重不足
 
 reasonix现在bug太多了，玩玩还可以。真干活还是不行
 
+
+*****
+
+####  御坂MKII  
+##### 1640#       发表于 2026-6-4 23:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69718888&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-6-4 12:18</a>
+国模还有一个大问题，就是工具调用，这方面差得更远</blockquote>
+cursor 都能给 kimi 搞后训练搞个还行的结果，我觉得国模自己真下功夫肯定比 cursor 强<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24072PX77C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
