@@ -16,3 +16,14 @@
 
 求问, 我用安卓手机上用Joiyplay 模拟器打开游戏总是让我去下VX-Ace RTP, 但这个游戏我pc上能玩么i运行说明RTP是齐全的啊. 我把它叫我去下的rtp包在pc上打开, 再 把里面的资源覆盖到手机对应路径下,  还是打不开. 我插件也都装了
 
+
+*****
+
+####  blueelf  
+##### 512#         楼主| 发表于 2026-6-4 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69719785&amp;ptid=2246453" target="_blank">时之放浪者 发表于 2026-6-4 15:17</a>
+
+求问, 我用安卓手机上用Joiyplay 模拟器打开游戏总是让我去下VX-Ace RTP, 但这个游戏我pc上能玩么i运行说明 ...</blockquote>
+joiplay安装后在手机上会有个同名文件夹，在里面的RTP文件夹内放入运行包，打开joiplay后点右上设置，点最下面的导入运行时包
+
