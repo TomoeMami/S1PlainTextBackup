@@ -48,3 +48,15 @@
 
 新难6按照顺序打到和平主义者有点头大，第9波和第一个boss太看脸了
 
+
+*****
+
+####  风流庵TypeC  
+##### 378#       发表于 2026-6-4 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69717007&amp;ptid=2202324" target="_blank">下九流4 发表于 2026-6-4 00:46</a>
+徒步就是这游戏最差的职业，叠的Debuff太多：收益砍半，经验砍半，武器不出（不混装打到10轮还全是白板不 ...</blockquote>
+主要是噩梦各种弹幕超级加倍，速度高了根本控制不了疯狂撞弹幕
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
