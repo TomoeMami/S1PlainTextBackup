@@ -1804,3 +1804,11 @@ ds 和其他国模的后训练现在严重不足
 
 所以能用 ds 的 cc 就定格在 2.1.150 了么一直没敢升级<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">cc 的 ultra review 和 btw 好用呐
 
+
+*****
+
+####  有鱼  
+##### 1638#       发表于 2026-6-4 21:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我一直想搞一个适配dsv4系列超廉价1m上下文和廉价缓存的harness
+
