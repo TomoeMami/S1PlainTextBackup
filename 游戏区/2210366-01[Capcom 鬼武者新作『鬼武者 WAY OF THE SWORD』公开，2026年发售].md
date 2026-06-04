@@ -4562,3 +4562,18 @@ demo支持振动么，重打一遍demo用ps5的手柄也没振动，我看设置
 
 说实话，现在手柄早就该把按下摇杆这个设计取消，换背键了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yugao  
+##### 485#       发表于 2026-6-4 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69717878&amp;ptid=2210366" target="_blank">mai6696 发表于 2026-6-4 10:07</a>
+
+左背键映射R3，右背键映射L3。
+
+以握持姿势来看右手不用搭着摇杆，下方手指握持比较紧，背键跑步更顺手。
+
+ ...</blockquote>
+仁王实际上因为一些接近里技的进阶操作，都会选择以前长按闪避当跑步的，不过目前确实大部分游戏都会把跑步下蹲这种操作频率不高的放L3和R3，对于习惯长按而不是切换的玩家来说确实不友好
+
