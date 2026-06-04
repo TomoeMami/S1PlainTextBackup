@@ -1796,3 +1796,11 @@ ds 和其他国模的后训练现在严重不足
 从cc转到pi后发现缓存命中率下降了，大家有遇到类似的情况吗？</blockquote>
 同我一样。我在opencode的缓存命中率比pi的命中率高很多。我也想知道为什么
 
+
+*****
+
+####  奶香花卷  
+##### 1637#       发表于 2026-6-4 20:46
+
+所以能用 ds 的 cc 就定格在 2.1.150 了么一直没敢升级<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">cc 的 ultra review 和 btw 好用呐
+

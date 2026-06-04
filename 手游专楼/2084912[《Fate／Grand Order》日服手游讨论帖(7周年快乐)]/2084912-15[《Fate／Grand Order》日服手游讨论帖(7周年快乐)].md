@@ -856,3 +856,11 @@ X_536KSAJOD2{CJ{B$QV~%0.jpg
 
 <img src="https://img.stage1st.com/forum/202606/04/201506nye7y1y7acszy7ek.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARKGRAY  
+##### 20916#       发表于 2026-6-4 20:42
+
+最后一战iPad又回到了疯狂闪退的那个时候，这也是一种过去回溯<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
