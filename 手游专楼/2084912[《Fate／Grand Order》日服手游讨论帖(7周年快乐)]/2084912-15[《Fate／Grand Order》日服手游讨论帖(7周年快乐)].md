@@ -719,3 +719,16 @@ C狗、清姬、大卫、杰罗尼莫、豹人
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在还有环境强度可以聊吗？ 以前90++还能聊聊  现在大总统一个人全秒了（
 
+
+*****
+
+####  格林卡罗尔  
+##### 20905#       发表于 2026-6-4 16:59
+
+ 本帖最后由 格林卡罗尔 于 2026-6-4 17:01 编辑 
+
+大总统现在满配不换人的输出是多少啊，随机值取最低
+还是以前的双杀狐吗，还是该上冠呆了
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
