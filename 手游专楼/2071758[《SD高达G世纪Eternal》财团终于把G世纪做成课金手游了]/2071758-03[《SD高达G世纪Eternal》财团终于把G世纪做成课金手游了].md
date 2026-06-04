@@ -837,3 +837,26 @@ pixel钢这肩头丘比特水贴老是联想到银纹，真给骡子开上战场
 按以往经验爬塔有什么机体要开发的吗</blockquote>
 有些关要走捷径的需要开发尊者或者凤凰这种带位移map的
 
+
+*****
+
+####  AminGly  
+##### 4343#       发表于 2026-6-4 14:23
+
+打完收工 狠狠地肘击ai
+
+<img src="https://img.stage1st.com/forum/202606/04/142345wxz2qqvxw00bqx62.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>614.jpeg</strong> (112.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-4 14:23 上传
+
+*****
+
+####  alialex  
+##### 4344#       发表于 2026-6-4 14:29
+
+今天怎么是开塔...观星者啥时候来啊
+

@@ -1150,3 +1150,14 @@ IMG_6328.jpeg
 
 <img src="https://img.stage1st.com/forum/202606/02/110250bvvdibdx4crwzmw3.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stoiorz  
+##### 117#       发表于 2026-6-4 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69556916&amp;ptid=2253488" target="_blank">墨染白泉 发表于 2026-4-30 10:44</a>
+
+日亚数字版首发9折</blockquote>
+就是不知道日亚预购会不会砍单？
+
