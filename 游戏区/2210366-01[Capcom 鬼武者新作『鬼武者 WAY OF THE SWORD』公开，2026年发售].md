@@ -4643,3 +4643,16 @@ demo支持振动么，重打一遍demo用ps5的手柄也没振动，我看设置
 又打了一遍，目前就那个反弹远程安不出来，具体是什么按的啊？不是按住防御，然后等箭过来按攻击吗？ ...</blockquote>
 用弹开那个操作
 
+
+*****
+
+####  MRhythm  
+##### 493#       发表于 2026-6-4 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69718434&amp;ptid=2210366" target="_blank">缺德猫 发表于 2026-6-4 11:19</a>
+
+又打了一遍，目前就那个反弹远程安不出来，具体是什么按的啊？不是按住防御，然后等箭过来按攻击吗？ ...</blockquote>
+凶盒系是LB+A
+
+PS系是L1+X
+
