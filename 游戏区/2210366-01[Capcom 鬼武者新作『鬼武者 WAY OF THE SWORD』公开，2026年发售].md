@@ -5074,3 +5074,20 @@ https://www.bilibili.com/video/BV15T7d6oEF5/
 
 ----发送自 [realme RMX3800,Android 15](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  我是快乐小马甲  
+##### 532#       发表于 2026-6-4 22:36
+
+记忆力鬼武3和新鬼都是很爽快的游戏，怎么现在一股仁王味
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 533#       发表于 2026-6-4 22:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69721685&amp;ptid=2210366" target="_blank">我是快乐小马甲 发表于 2026-6-4 22:36</a>
+记忆力鬼武3和新鬼都是很爽快的游戏，怎么现在一股仁王味</blockquote>
+别碰瓷仁王，用卧龙、对马岛、只狼对标就差不多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
