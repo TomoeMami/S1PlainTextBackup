@@ -5108,3 +5108,26 @@ https://www.bilibili.com/video/BV15T7d6oEF5/
 
 哦哦哦。对，是卧龙，说错了。不过仁王2也挺卧龙的
 
+
+*****
+
+####  白河响剑  
+##### 536#       发表于 2026-6-4 23:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经不记得上次遇见这么简单的demo是什么时候了
+
+预购的心蠢蠢欲动 好爽
+
+
+*****
+
+####  汪达  
+##### 537#       发表于 2026-6-4 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69721685&amp;ptid=2210366" target="_blank">我是快乐小马甲 发表于 2026-6-4 22:36</a>
+
+记忆力鬼武3和新鬼都是很爽快的游戏，怎么现在一股仁王味</blockquote>
+以前的鬼武者招牌是一闪，防守反击的玩法，现在鬼武者的核心思路依然是防守反击，只不过不再只是各种一闪，而是用现代技术进行了拓展，什么化劲、白刃相交、角力、投技反制之类的，可以说敌人的任何动作都有一两套反制动作甚至更多，而且不同敌人攻击方式不同，反制的动画也不同，非常丰富
+
+至于仁王，除了都是战国武士砍妖怪，色调都黑咕隆咚的外，五香干
+
