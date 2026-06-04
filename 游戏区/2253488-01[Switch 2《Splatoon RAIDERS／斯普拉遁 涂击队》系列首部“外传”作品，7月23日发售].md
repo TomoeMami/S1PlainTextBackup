@@ -1209,3 +1209,16 @@ IMG_6328.jpeg
 
 —— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  kuarwbwe  
+##### 122#       发表于 2026-6-4 16:09
+
+<blockquote>绿冰 发表于 2026-6-4 16:04
+是，以前随便填个地址就行
+
+现在就不好说了
+</blockquote>
+那估计是不行了，我刚填了我的转运地址试了一次还是不行。
+
