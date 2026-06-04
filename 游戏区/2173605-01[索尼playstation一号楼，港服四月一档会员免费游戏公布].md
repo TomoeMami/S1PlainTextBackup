@@ -94,3 +94,62 @@ sop省流
 
 不稳的是顽皮狗，星际内部档期是27年中段，但之前加班赶DEMO的传言看估计要延到28
 
+
+*****
+
+####  黑猫软  
+##### 689#       发表于 2026-6-4 14:34
+
+劳菲几位主创的成分
+
+总监
+
+<img src="https://img.stage1st.com/forum/202606/04/143200mr8t69jmrm8d86x8.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1780554570358_222.jpg</strong> (220.28 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-4 14:32 上传
+
+编剧和叙事总监
+
+<img src="https://img.stage1st.com/forum/202606/04/143216l1zuqcuu45igqcg4.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1780554600639_939.jpg</strong> (152.81 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-4 14:32 上传
+
+<img src="https://img.stage1st.com/forum/202606/04/143216cwco2zw8h2hyxxq5.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1780554593082_36.jpg</strong> (169.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-4 14:32 上传
+
+主角设计师和设计总监 负责战斗这块
+
+<img src="https://img.stage1st.com/forum/202606/04/143226ugxoz4bbogf8u338.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1780554626225_669.jpg</strong> (223.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-4 14:32 上传
+
+<img src="https://img.stage1st.com/forum/202606/04/143227s46g6a3acy6y6ygb.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1780554620706_213.jpg</strong> (224.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-4 14:32 上传
+
