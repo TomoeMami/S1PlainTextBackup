@@ -1765,3 +1765,16 @@ ds 和其他国模的后训练现在严重不足
 
 —— 来自 Xiaomi 24072PX77C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  drodchang  
+##### 1634#       发表于 2026-6-4 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69718038&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-6-4 10:29</a>
+
+ds 和其他国模的后训练现在严重不足
+
+我自己上班随便抽的 task set 上还打不过 gpt5.2</blockquote>
+国模还有一个大问题，就是工具调用，这方面差得更远
+
