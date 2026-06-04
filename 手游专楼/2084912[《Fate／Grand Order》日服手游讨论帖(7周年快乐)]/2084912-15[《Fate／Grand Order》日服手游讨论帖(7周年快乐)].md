@@ -740,3 +740,21 @@ C狗、清姬、大卫、杰罗尼莫、豹人
 
 反正我是跳了，抽横飞姬连歪两个常驻，没石头了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 20907#       发表于 2026-6-4 17:32
+
+ 本帖最后由 alucardcz 于 2026-6-4 17:33 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69720427&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2026-6-4 16:59</a>
+
+大总统现在满配不换人的输出是多少啊，随机值取最低
+
+还是以前的双杀狐吗，还是该上冠呆了</blockquote>
+跟所长不是一个级别的 没有任何可比性<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所长毁了fgo（
+
+现在最大的问题是羁绊 我估计漏油所有拐全都15了吧（
+
