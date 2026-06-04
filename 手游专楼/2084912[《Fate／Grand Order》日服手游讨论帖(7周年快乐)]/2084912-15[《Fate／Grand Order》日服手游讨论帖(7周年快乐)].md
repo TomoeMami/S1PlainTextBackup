@@ -732,3 +732,11 @@ C狗、清姬、大卫、杰罗尼莫、豹人
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  khxooo  
+##### 20906#       发表于 2026-6-4 17:08
+
+反正我是跳了，抽横飞姬连歪两个常驻，没石头了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
