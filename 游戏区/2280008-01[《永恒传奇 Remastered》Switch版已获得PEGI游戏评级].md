@@ -1322,3 +1322,24 @@ toe挺完善了，最需要重制的还是toa这种早期3d类型的
 
 先做个梦，万一是像todr一样重做画面呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 130#       发表于 2026-6-5 18:48
+
+期望越大失望越大，能把PSP版完美移植到PC上，有官中，画面再HD一下就已经可以了。
+
+我的期望是比露娜1+2的复刻版好一点就行。
+
+
+*****
+
+####  alucardcz  
+##### 131#       发表于 2026-6-5 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69725959&amp;ptid=2280008" target="_blank">river1981 发表于 2026-6-5 18:20</a>
+
+先做个梦，万一是像todr一样重做画面呢</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">这可是能做出tobhd的公司 你做啥梦呢！
+

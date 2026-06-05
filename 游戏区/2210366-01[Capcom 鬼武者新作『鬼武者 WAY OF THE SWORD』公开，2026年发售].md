@@ -5569,3 +5569,11 @@ PV有试玩没有的，一个是弓箭，这个从历代经验来看偏鸡肋，
 昨天玩下来的主要感想反而是进攻端手段单一，是不是有点太依赖后手弹反/一闪了，以至于轻重攻击的最大用途疑似是随便砍一刀逼小次郎霸体反击<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只狼好歹也有蝴蝶夫人和义父这种需要花心思抉择怎么主动攻击的，不至于说鬼武者反而全是弹弹弹吧……
 然后双刀战技竟然是全程霸体无敌，有点不理解了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">买归买，这demo看不出游戏深度阿
 
+
+*****
+
+####  萌萌地镜头  
+##### 582#       发表于 2026-6-5 18:47
+
+打完demo感觉就没有x键对策不了的，手段倒是挺丰富但是别的也用不太上，看了操作说明直接打小次郎三遍过
+
