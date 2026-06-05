@@ -76,3 +76,26 @@
 
 不过这次也是被打脸了，绿毛双马尾就实打实do了，男女主这块卡得这么死吗，单纯**不至于吧
 
+
+*****
+
+####  鱼雷鲨  
+##### 2469#       发表于 2026-6-5 14:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69724211&amp;ptid=1860817" target="_blank">whzfjd 发表于 2026-6-5 13:07</a>
+
+没想到之前还有个本家页游，怎么连cg包都没人提取的
+
+不过这次也是被打脸了，绿毛双马尾就实打实do了，男 ...</blockquote>
+以前ehentai上有cg包，我记得就是玩家开后宫了
+
+*****
+
+####  鱼雷鲨  
+##### 2470#       发表于 2026-6-5 14:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69724186&amp;ptid=1860817" target="_blank">03e7 发表于 2026-6-5 13:01</a>
+
+兰斯系列的某人</blockquote>
+没玩过兰斯
+
