@@ -1852,3 +1852,13 @@ openclaw屎山代码，只有d老师能救
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  serj005  
+##### 1643#       发表于 2026-6-5 08:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69721562&amp;ptid=2275806" target="_blank">有鱼 发表于 2026-6-4 21:51</a>
+我一直想搞一个适配dsv4系列超廉价1m上下文和廉价缓存的harness</blockquote>
+reasonix就是这么个设计目标，确保固定前缀100%命中，不过现在新的go重写版缓存命中有问题，有时候降到70%多，老版本的长任务缓存命中率经常能上99%。
+
