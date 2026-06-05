@@ -1343,3 +1343,11 @@ toe挺完善了，最需要重制的还是toa这种早期3d类型的
 先做个梦，万一是像todr一样重做画面呢</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">这可是能做出tobhd的公司 你做啥梦呢！
 
+
+*****
+
+####  干将莫邪  
+##### 132#       发表于 2026-6-5 21:49
+
+这段剧情我记忆中是法拉和雷就是独处了一段，利德发现自己很在意法拉，有点吃醋发现了自己的心意吧。
+
