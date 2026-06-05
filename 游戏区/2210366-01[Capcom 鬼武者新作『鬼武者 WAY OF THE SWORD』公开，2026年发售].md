@@ -5548,3 +5548,15 @@ PV有试玩没有的，一个是弓箭，这个从历代经验来看偏鸡肋，
 难道只有我一人觉得这游戏神似阿三的那个释放阿凡达吗</blockquote>
 是的，只有你觉得，老ass都在狂喜总算有新料了
 
+
+*****
+
+####  姬茧墨  
+##### 580#       发表于 2026-6-5 16:42
+
+无所谓了，在别的地方还看到说假如不是挂了卡表名号这动作要被喷爆的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就现在这个半死不活的ACT界，横空出世一个这个水平的动作表现和流畅衔接的制作组，怕是第二天已经登上神坛世不二出了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+很多人根本理解不了在一个反击动作中体现出重心的摇晃感和攻击的重量感是多么困难的事情，上一个看到在慢速战斗中体现这方面设计的还是荣耀战魂的招架
+
