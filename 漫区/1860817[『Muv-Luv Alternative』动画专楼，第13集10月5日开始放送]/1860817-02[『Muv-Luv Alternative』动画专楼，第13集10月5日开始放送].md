@@ -53,3 +53,26 @@
 后知后觉 te 这角色配置怎么那么像名作之壁啊 ...</blockquote>
 以前的DMM都是玩家无脸人去牛原作是吧
 
+
+*****
+
+####  03e7  
+##### 2467#       发表于 2026-6-5 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69716914&amp;ptid=1860817" target="_blank">鱼雷鲨 发表于 2026-6-4 00:02</a>
+
+以前的DMM都是玩家无脸人去牛原作是吧</blockquote>
+兰斯系列的某人<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whzfjd  
+##### 2468#       发表于 2026-6-5 13:07
+
+<blockquote>鱼雷鲨 发表于 2026-6-4 00:02
+以前的DMM都是玩家无脸人去牛原作是吧</blockquote>
+没想到之前还有个本家页游，怎么连cg包都没人提取的
+
+不过这次也是被打脸了，绿毛双马尾就实打实do了，男女主这块卡得这么死吗，单纯**不至于吧
+
