@@ -1303,3 +1303,14 @@ toe挺完善了，最需要重制的还是toa这种早期3d类型的
 
 要是能把雷伊斯变成后期可操作角色就好了，也不用给剧情，就类似换装迷宫的换装，能再加几个技能更好
 
+
+*****
+
+####  widder  
+##### 128#       发表于 2026-6-5 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69556083&amp;ptid=2280008" target="_blank">空洞骑士 发表于 2026-4-30 08:01</a>
+
+2D复刻怎么提升画面啊，感觉只能大颗粒像素点了。卖相不好的话定价怕不是只能20刀了。 ...</blockquote>
+没提升，传奇系列一贯的另存为<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

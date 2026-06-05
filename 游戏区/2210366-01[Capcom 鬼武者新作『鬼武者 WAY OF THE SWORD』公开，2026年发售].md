@@ -5537,3 +5537,14 @@ PV有试玩没有的，一个是弓箭，这个从历代经验来看偏鸡肋，
 
 难道只有我一人觉得这游戏神似阿三的那个释放阿凡达吗
 
+
+*****
+
+####  wthall  
+##### 579#       发表于 2026-6-5 16:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69725283&amp;ptid=2210366" target="_blank">loveumlj 发表于 2026-6-5 16:20</a>
+
+难道只有我一人觉得这游戏神似阿三的那个释放阿凡达吗</blockquote>
+是的，只有你觉得，老ass都在狂喜总算有新料了
+

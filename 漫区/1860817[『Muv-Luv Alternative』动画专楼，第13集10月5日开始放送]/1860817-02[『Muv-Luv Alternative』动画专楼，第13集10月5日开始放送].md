@@ -99,3 +99,30 @@
 兰斯系列的某人</blockquote>
 没玩过兰斯
 
+
+*****
+
+####  windlikeman  
+##### 2471#       发表于 2026-6-5 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69724211&amp;ptid=1860817" target="_blank">whzfjd 发表于 2026-6-5 13:07</a>
+
+没想到之前还有个本家页游，怎么连cg包都没人提取的
+
+不过这次也是被打脸了，绿毛双马尾就实打实do了，男 ...</blockquote>
+可能是同母异父怂了 
+
+也有可能是下周卖有偿PTS<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 2472#       发表于 2026-6-5 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69725373&amp;ptid=1860817" target="_blank">windlikeman 发表于 2026-6-5 16:33</a>
+
+可能是同母异父怂了 
+
+也有可能是下周卖有偿PTS</blockquote>
+原作最后咋收尾的，狠狠地发兄妹卡吗
+
