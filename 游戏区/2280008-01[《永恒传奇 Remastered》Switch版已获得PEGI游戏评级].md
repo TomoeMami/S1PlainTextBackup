@@ -1280,3 +1280,18 @@ toe挺完善了，最需要重制的还是toa这种早期3d类型的
 走散是在圣 ...</blockquote>
 我只是根据前面有人说差点NTR在推测到底在说谁，推测是雷斯，利德戒心重提防着雷斯，法拉傻白甜无条件信任雷斯，就这个局面而已，得承认最后写出来有点春秋笔法了，导致之后有人在这基础上继续越走越歪，罪过罪过<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxn  
+##### 126#       发表于 2026-6-5 15:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69723757&amp;ptid=2280008" target="_blank">南戸唯 发表于 2026-6-5 11:47</a>
+
+那9个了，极光壁试炼还能主控怪物</blockquote>
+我来数一下
+
+常规6人+雷斯+蛋熊+幼年基尔+黑化前的西泽尔+幼年梅露蒂，共11个。不过最后那个是不是不受控，记不清了
+
+此外还有个晶术，可以在战斗中短暂变身TOP的阿洁
+
