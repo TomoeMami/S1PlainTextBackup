@@ -4083,3 +4083,11 @@ ZZZ腰带现在感觉都成了个消耗品了，得空就搓一条
 
 那岂不是TV这个进度，不考虑平行世界已经快到剧场版的位置了
 
+
+*****
+
+####  黄泉川此方  
+##### 1852#       发表于 2026-6-6 00:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有时王那种剧场版和TV结局冲突的，突出一个假面骑士的事情不用搞那么清楚
+
