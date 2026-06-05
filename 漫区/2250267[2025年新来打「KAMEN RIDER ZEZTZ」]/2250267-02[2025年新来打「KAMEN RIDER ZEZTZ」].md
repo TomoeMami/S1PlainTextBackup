@@ -4091,3 +4091,41 @@ ZZZ腰带现在感觉都成了个消耗品了，得空就搓一条
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有时王那种剧场版和TV结局冲突的，突出一个假面骑士的事情不用搞那么清楚
 
+
+*****
+
+####  浅川雏羽  
+##### 1853#       发表于 2026-6-6 01:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69727601&amp;ptid=2250267" target="_blank">饭冢武也 发表于 2026-6-6 00:46</a>
+想问一下每年剧场版的位置逻辑
+
+新平成以来感觉剧场版一般都是在38~40这块插入的
+
+但是公映时间一般都是七月 ...</blockquote>
+其实新十年以来的剧场版说是时间设定在上映期间的某两话之间，但几乎不会影响到TV叙事，观众也不会觉得漏了内容没看
+倒是当年电王的时候剧场版和TV联系过于紧密，不看是真的会感觉漏了剧情，电王之后几乎没有这种情况了
+高桥系蒙面超人更是全部夏季剧场版都是TV后日谈，这次三条Z从牢师在现实侧穿回西装来看估计也是后日谈
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  浅川雏羽  
+##### 1854#       发表于 2026-6-6 01:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69727633&amp;ptid=2250267" target="_blank">黄泉川此方 发表于 2026-6-6 00:57</a>
+有时王那种剧场版和TV结局冲突的，突出一个假面骑士的事情不用搞那么清楚 ...</blockquote>
+假面骑士的夏季剧场版向来都分为主世界和平行世界两条路子，旧十年平行世界居多，新十年主世界居多，时王只不过是在新十年搞了一回旧十年的操作罢了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+img_7534.png
+(456.67 KB, 下载次数: )
+
+下载附件
+
+2026-6-6 01:01 上传
+
+<img src="https://img.stage1st.com/forum/202606/06/010137oymoa7dw62y8zd6b.png" referrerpolicy="no-referrer">
+
