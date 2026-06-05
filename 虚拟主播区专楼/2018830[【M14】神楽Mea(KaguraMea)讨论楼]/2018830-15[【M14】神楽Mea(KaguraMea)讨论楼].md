@@ -54,3 +54,11 @@
 
 这几场训练赛很伤士气啊...<img src="https://static.stage1st.com/image/smiley/face2017/249.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  化鳥虫二  
+##### 20833#       发表于 2026-6-5 18:39
+
+兰博线上打奥恩也没啥太大优势 而且卡尔玛算是兰博的一个counter 打野辅助这两个英雄讲道理熟练度是不高的 薇锁头锁上去也很难秒掉人
+
