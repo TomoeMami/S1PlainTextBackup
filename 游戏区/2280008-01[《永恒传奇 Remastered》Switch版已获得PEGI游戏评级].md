@@ -1265,3 +1265,18 @@ toe挺完善了，最需要重制的还是toa这种早期3d类型的
 
 法拉并没有被迷得不要不要，雷斯对法拉也没有意思，可能还是游戏太老，剧情已经记岔了吧
 
+
+*****
+
+####  cxn  
+##### 125#       发表于 2026-6-5 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69724213&amp;ptid=2280008" target="_blank">river1981 发表于 2026-6-5 13:07</a>
+
+吓得我又去回顾了一下
+
+过夜是在风精灵洞，但那时候是里得，美鲁迪，法拉，雷斯四个人在一起露营
+
+走散是在圣 ...</blockquote>
+我只是根据前面有人说差点NTR在推测到底在说谁，推测是雷斯，利德戒心重提防着雷斯，法拉傻白甜无条件信任雷斯，就这个局面而已，得承认最后写出来有点春秋笔法了，导致之后有人在这基础上继续越走越歪，罪过罪过<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
