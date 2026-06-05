@@ -5463,3 +5463,24 @@ https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2153568</blockquote>
 
 目前的难度感觉像鬼泣普通一周目一样，纯消灭敌人难度偏低，一闪连闪也相对好按很多
 
+
+*****
+
+####  pointer243  
+##### 572#       发表于 2026-6-5 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69723283&amp;ptid=2210366" target="_blank">不见不散 发表于 2026-6-5 10:40</a>
+玩家是宫本武藏，上来就打小次郎。那这小次郎最后肯定是要复活，然后做个最终BOSS或者守关BOSS的吧？这剧情 ...</blockquote>
+这demo大概率是第二章的一节。按照demo的演出，第一章应该有小次郎的相关剧情
+
+—— 来自 motorola edge 2025, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Cranberries  
+##### 573#       发表于 2026-6-5 11:42
+
+这游戏还是动作做得太丝滑了，不说是动作慢就一定好，快就一定差。
+
+主要还是动作衔接的很舒服，和boss做的交互动作够多。
+
