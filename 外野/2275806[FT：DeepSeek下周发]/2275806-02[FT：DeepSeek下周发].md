@@ -1862,3 +1862,16 @@ openclaw屎山代码，只有d老师能救
 我一直想搞一个适配dsv4系列超廉价1m上下文和廉价缓存的harness</blockquote>
 reasonix就是这么个设计目标，确保固定前缀100%命中，不过现在新的go重写版缓存命中有问题，有时候降到70%多，老版本的长任务缓存命中率经常能上99%。
 
+
+*****
+
+####  LeoDT  
+##### 1644#       发表于 2026-6-5 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69721277&amp;ptid=2275806" target="_blank">Bronzecraft 发表于 2026-6-4 20:17</a>
+
+从cc转到pi后发现缓存命中率下降了，大家有遇到类似的情况吗？</blockquote>
+写代码吗？有装奇怪扩展吗？尤其是擅自改context的，pi本身是不动context原模原样发给模型的，该命中就会命中。另外想到的，如果用量不大，假设输出token不变，输入token少的命中率算出来确实是低的，但是总量上去后，命中率应该是差不多的。我记得用opencode的时候第一句话发出去就几十K输入了，挺可怕，现在用pi只有几K。
+
+刚才去D老师那查了下，我这命中率稳定在93-95。
+
