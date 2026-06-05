@@ -1314,3 +1314,11 @@ toe挺完善了，最需要重制的还是toa这种早期3d类型的
 2D复刻怎么提升画面啊，感觉只能大颗粒像素点了。卖相不好的话定价怕不是只能20刀了。 ...</blockquote>
 没提升，传奇系列一贯的另存为<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  river1981  
+##### 129#       发表于 2026-6-5 18:20
+
+先做个梦，万一是像todr一样重做画面呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
