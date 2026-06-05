@@ -5605,3 +5605,21 @@ PV有试玩没有的，一个是弓箭，这个从历代经验来看偏鸡肋，
 玩家是宫本武藏，上来就打小次郎。那这小次郎最后肯定是要复活，然后做个最终BOSS或者守关BOSS的吧？这剧情 ...</blockquote>
 小次郎封面二号位，说不定能操控呢<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我王  
+##### 585#       发表于 2026-6-5 21:04
+
+哎，刚上去试画面模式打小次郎使出了专属处决，太几把帅了，猛猛预购<img src="https://static.stage1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chensquare  
+##### 586#       发表于 2026-6-5 21:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69723255&amp;ptid=2210366" target="_blank">leia_rolando 发表于 2026-6-5 10:37</a>
+
+对了，白刃相交环节，轻重攻击要怎么按，昨天打小次郎，就没一次成功。</blockquote>
+如果是轻攻击白刃相交，下一刀就要换重攻击。反之亦然。
+
