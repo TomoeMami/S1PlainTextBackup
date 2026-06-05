@@ -889,3 +889,11 @@ X_536KSAJOD2{CJ{B$QV~%0.jpg
 
 给星其实挺重要，只需要一个灵衣人，启动更容易了。可惜新衣服是换人服，我不想打什么换两次人的本
 
+
+*****
+
+####  乾理央  
+##### 20920#       发表于 2026-6-5 22:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">序章好欢乐啊，谁说是樱井光写的，肯定不是他啊
+

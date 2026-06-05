@@ -5631,3 +5631,13 @@ PV有试玩没有的，一个是弓箭，这个从历代经验来看偏鸡肋，
 
 把帧数固定30帧 能大幅提升一闪判定 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 588#       发表于 2026-6-5 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69726698&amp;ptid=2210366" target="_blank">紫沙狐 发表于 2026-6-5 21:12</a>
+把帧数固定30帧 能大幅提升一闪判定</blockquote>
+想起ns怪猎崛起太刀看破比pc版长<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，祖传艺能
+
