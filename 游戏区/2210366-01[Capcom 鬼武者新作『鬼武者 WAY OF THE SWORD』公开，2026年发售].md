@@ -5445,3 +5445,21 @@ https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2153568</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zqqwe  
+##### 570#       发表于 2026-6-5 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69723597&amp;ptid=2210366" target="_blank">小修 发表于 2026-6-5 11:26</a>
+卡普空现在流程长度控的很死。有点讨厌。
+生化用佣兵模式撑长度，新鬼不知道用啥。</blockquote>
+给个100层带分叉的魔空空间完事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SergeGlenn  
+##### 571#       发表于 2026-6-5 11:31
+
+目前的难度感觉像鬼泣普通一周目一样，纯消灭敌人难度偏低，一闪连闪也相对好按很多
+
