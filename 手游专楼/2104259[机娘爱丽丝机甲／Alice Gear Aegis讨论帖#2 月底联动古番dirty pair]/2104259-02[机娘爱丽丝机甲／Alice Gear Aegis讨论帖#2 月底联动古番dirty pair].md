@@ -14,3 +14,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下战女高要来的那三个感觉没啥兴趣就把攒的40票扔ST风纪可乐池了，然后什么都没有（
 
+
+*****
+
+####  不灭的旋律  
+##### 1999#       发表于 2026-6-6 00:16
+
+写的是2026登场而不是coming soon所以不会马上有活动？但不是马上那为什么要发预告就很奇怪了。
+
