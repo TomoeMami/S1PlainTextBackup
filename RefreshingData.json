@@ -9999,12 +9999,12 @@
     "update": false
   },
   "2044818": {
-    "totalreply": 592,
+    "totalreply": 593,
     "title": "[《头文字D》续作《MF Ghost》2023年10月放送]",
     "newtitle": "[《头文字D》续作《MF Ghost》2023年10月，二期2024年10月，三期2026年1月]",
-    "lastedit": 1774707728,
+    "lastedit": 1780694646,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2191081": {
@@ -18198,10 +18198,10 @@
     "update": false
   },
   "2282557": {
-    "totalreply": 46,
+    "totalreply": 47,
     "title": "[英国版“我不能呼吸”青年被锡克教徒刺死，警 方却听信凶手给受害者戴上手铐]",
     "newtitle": "[英国版“我不能呼吸”青年被锡克教徒刺死，警 方却听信凶手给受害者戴上手铐]",
-    "lastedit": 1780692965,
+    "lastedit": 1780694885,
     "category": "外野",
     "active": true,
     "update": false
@@ -18275,6 +18275,15 @@
     "newtitle": "[b站有不少解说美剧的UP，那有哪些解说日剧的UP？大伙可否向我推荐一些自己觉得好的？]",
     "lastedit": 1780685047,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2130367": {
+    "totalreply": 75,
+    "title": "[上田文人 未命名新作正式公开]",
+    "newtitle": "[上田文人 未命名新作正式公开]",
+    "lastedit": 1780694647,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
