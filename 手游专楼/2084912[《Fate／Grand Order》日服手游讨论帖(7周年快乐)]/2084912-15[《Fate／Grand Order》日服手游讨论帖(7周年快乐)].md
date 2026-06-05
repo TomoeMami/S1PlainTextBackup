@@ -881,3 +881,11 @@ X_536KSAJOD2{CJ{B$QV~%0.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">缓冲加20三魔放可还行
 
+
+*****
+
+####  格林卡罗尔  
+##### 20919#       发表于 2026-6-5 17:50
+
+给星其实挺重要，只需要一个灵衣人，启动更容易了。可惜新衣服是换人服，我不想打什么换两次人的本
+
