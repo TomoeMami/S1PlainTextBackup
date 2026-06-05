@@ -5594,3 +5594,14 @@ PV有试玩没有的，一个是弓箭，这个从历代经验来看偏鸡肋，
 
 还有就是普攻动作的硬直期间也能发动一闪，熟练后普攻并不会和弹弹弹冲突，高手完全可以做到普攻穿插一闪，一闪穿插普攻，所以即便核心玩法是抓敌人动作时机，也不会有特别被动的感觉，一样可以实现疯狗式打法（【以防你不知道轻重连段中也能一闪】 [https://www.bilibili.com/video/BV12LEA6eEGy/](https://www.bilibili.com/video/BV12LEA6eEGy/)）
 
+
+*****
+
+####  Jabeck  
+##### 584#       发表于 2026-6-5 19:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69723283&amp;ptid=2210366" target="_blank">不见不散 发表于 2026-6-5 10:40</a>
+
+玩家是宫本武藏，上来就打小次郎。那这小次郎最后肯定是要复活，然后做个最终BOSS或者守关BOSS的吧？这剧情 ...</blockquote>
+小次郎封面二号位，说不定能操控呢<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
