@@ -982,3 +982,44 @@ a1ec08fa513d26974c7021f754fbb2fb4216d8fc.jpg
 
 而且这次的体型也正常多了，看战斗段落也没前作那为了突显身材平A都要带慢镜头的粘滞感，应该不会再有把平A速度拆出来当插件的操作吧
 
+
+*****
+
+####  今天不守尸  
+##### 104#       发表于 2026-6-6 11:26
+
+像楼上说的，高配化妆版王濛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xell2alex  
+##### 105#       发表于 2026-6-6 11:28
+
+体态动作调的太好看了，这才是金大师的绝活儿啊，脸不对胃口大不了上 MOD，体态方面可是很难靠后期改善的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Vladimeow  
+##### 106#       发表于 2026-6-6 11:32
+
+赛博重庆很有感觉
+
+*****
+
+####  superlink  
+##### 107#       发表于 2026-6-6 11:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">tomboy就该有种运动健康美的体态，盲目大不可取。
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  88is88  
+##### 108#       发表于 2026-6-6 11:35
+
+tomboy好评，身材不行，脸太圆，感觉撸不起来
+
