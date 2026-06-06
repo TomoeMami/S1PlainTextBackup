@@ -945,3 +945,19 @@ DMC鬼泣
 
 这大黑大红比仁王还瞎眼，我看头晕了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  缺德猫  
+##### 100#       发表于 2026-6-6 12:37
+
+音乐好听捏
+
+
+*****
+
+####  pwzzy  
+##### 101#       发表于 2026-6-6 12:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">他这动作游戏总不能比上代的打枪做的还无聊了吧？
+

@@ -1180,3 +1180,52 @@ tomboy好评，身材不行，脸太圆，感觉撸不起来
 
 草，怎么不是大莱假小子，有点不懂事了金桑
 
+
+*****
+
+####  alucardcz  
+##### 127#       发表于 2026-6-6 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69730000&amp;ptid=2282782" target="_blank">今天不守尸 发表于 2026-6-6 12:33</a>
+
+我记得伊芙首个概念pv时脸也很幼，精致得像个洋娃娃，后来才慢慢改成锅盖头瓜子脸的，不知道新女主后续会不 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏发型不是随便能改的吗  部分服装连身材都会变
+
+*****
+
+####  skgaminger1988  
+##### 128#       发表于 2026-6-6 12:39
+
+剑星又不能用假小子玩男泳裤、男浴池之类的小胸特供玩法，软涩情游戏弄个小奶当主角何意味啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2458A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 129#       发表于 2026-6-6 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69730000&amp;ptid=2282782" target="_blank">今天不守尸 发表于 2026-6-6 12:33</a>
+我记得伊芙首个概念pv时脸也很幼，精致得像个洋娃娃，后来才慢慢改成锅盖头瓜子脸的，不知道新女主后续会不 ...</blockquote>
+eve初版造型太fbi了，从萌萌萝莉变成油腻师姐，怕不是因为审查的原因。
+
+这作假小子更安全一点，但在欧美眼中仍属于fbi，就算体型保住了服装也有可能会变得保守。
+
+*****
+
+####  ScL9  
+##### 130#       发表于 2026-6-6 12:43
+
+这摇闪想起神之手了
+
+*****
+
+####  Lisylfn  
+##### 131#       发表于 2026-6-6 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69729979&amp;ptid=2282782" target="_blank">アヘ顔 发表于 2026-6-6 12:28</a>
+
+之前明牌说过来重庆取景的</blockquote>
+所以说蹭啊，加几块中文牌子就行了。还有各种ai生成的神秘假汉字
+
