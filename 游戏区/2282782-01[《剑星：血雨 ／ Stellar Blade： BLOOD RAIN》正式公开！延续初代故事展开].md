@@ -1727,3 +1727,38 @@ SHIFT UP 宣布推出《剑星》续作《剑星 血雨》。平台和发售 ...
 女主基本是完全就是加里+素子的人设，机甲术、短发、嘟嘟嘴、紧身衣、条子，而且她们漫画也都是苗条纤细型 ...</blockquote>
 确实，再加上不那么白的皮肤和略显油腻的画风，完全是士郎正宗XP带
 
+
+*****
+
+####  uponutopia  
+##### 180#       发表于 2026-6-6 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69730644&amp;ptid=2282782" target="_blank">jacket 发表于 2026-6-6 15:20</a>
+
+你个浓眉大眼的也盯缝
+
+https://x.com/akiman7/status/2063055939130016234</blockquote>
+能画出一代对波图的人能是什么善茬
+
+*****
+
+####  汪达  
+##### 181#       发表于 2026-6-6 15:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69730453&amp;ptid=2282782" target="_blank">时间斗篷 发表于 2026-6-6 14:24</a>
+
+讲真，原来假小子这个品类这么多人喜欢啊……
+
+我一直以为挺小众的</blockquote>
+其实也挺常见的吧
+
+假小子鼻祖叶童当年不是很火吗<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jacket  
+##### 182#       发表于 2026-6-6 15:34
+
+看人猜测女主背部的CDDP是Colony什么什么Police，这样也符合太空殖民地的猜想
+
