@@ -1828,3 +1828,38 @@ X有点热度的游戏都是文化战争战场 已经习惯了<img src="https://
 “项目处于早期开发阶段”这句是Geoff自己在SGF直播的时候说的</blockquote>
 什么意思？2代还处于早期阶段？那估计28年都不一定能发售啊
 
+
+*****
+
+####  Piano-Forest  
+##### 191#         楼主| 发表于 2026-6-6 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69730811&amp;ptid=2282782" target="_blank">Jabeck 发表于 2026-6-6 16:20</a>
+
+什么意思？2代还处于早期阶段？那估计28年都不一定能发售啊</blockquote>
+这是官方今年4月的访谈，金亨泰说是续作如果达不到令人满意的品质前是先不会公开的，这能令人乐观点看待吗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+等等官方后续的新访谈或是情报看看会不会提及制作进度的相关内容
+
+「Stellar Blade」続編や「NIKKE」，新作プロジェクトを開発中のSHIFT UP本社を訪問。ゲームは“お尻で作るもの”――キム・ヒョンテ氏とちょっとだけ雑談もしてきた
+[https://www.4gamer.net/games/594/G059407/20260209001/](https://www.4gamer.net/games/594/G059407/20260209001/)
+
+*****
+
+####  约定的明日  
+##### 192#       发表于 2026-6-6 16:46
+
+没办法，在传统二次元叙事里，长发就是比短发更能打一点，短发要能打得在其他方面有反差感
+
+比如说假小子就得配大雷大屁股，有紧身衣就该在脱掉之后有喷薄而出的波涛感
+
+*****
+
+####  Jabeck  
+##### 193#       发表于 2026-6-6 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69730876&amp;ptid=2282782" target="_blank">Piano-Forest 发表于 2026-6-6 16:45</a>
+
+这是官方今年4月的访谈，金亨泰说是续作如果达不到令人满意的品质前是先不会公开的，这能令人乐观点看待 ...</blockquote>
+就那个背景海报都被人看出AI的地方，我怀疑是不是为了拨片才做得这段PV。
+
