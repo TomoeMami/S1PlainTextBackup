@@ -1923,3 +1923,20 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 
 另外有必要急着打101层往后吗？
 
+
+*****
+
+####  christiny  
+##### 922#       发表于 2026-6-6 21:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731161&amp;ptid=2256125" target="_blank">御姐控之耻 发表于 2026-6-6 18:21</a>
+
+目前零式点满了，螺旋塔用九打到101层。
+
+出击把所有限时换购的材料换完了。</blockquote>
+可以提前做市长遗物，兔狙用什么，市长就用什么。
+
+右边爆率，攻，攻
+
+副词条，爆率爆伤额外，攻击
+
