@@ -3049,3 +3049,13 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 ·还有提到本作在服装设计和制作质量方面都将远超前作
 
+
+*****
+
+####  l⑨th_Knight  
+##### 298#       发表于 2026-6-7 03:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二代应该不会只能操作一个主角吧，我猜还有大奶可控角色
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
