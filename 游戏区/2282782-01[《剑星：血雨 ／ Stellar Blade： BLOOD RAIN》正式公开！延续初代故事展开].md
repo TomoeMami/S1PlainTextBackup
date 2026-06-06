@@ -2439,3 +2439,28 @@ nikke的美术总监是老金他老婆 ...</blockquote>
 “其中，在主题和设计方面最受启发的是日本漫画家木城雪户的漫画《铳梦》。它在2019年被拍成动作片上映，片 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么要在b站和人认真讨论，这是你的错
 
+
+*****
+
+####  nagisa123  
+##### 252#       发表于 2026-6-6 20:36
+
+有点兴趣，一代太老了
+
+*****
+
+####  缺德猫  
+##### 253#       发表于 2026-6-6 20:37
+
+确实，没必要吵，开放预购直接买就完事了，然后爽玩
+
+*****
+
+####  gudamwingzero  
+##### 254#       发表于 2026-6-6 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731635&amp;ptid=2282782" target="_blank">アヘ顔 发表于 2026-6-6 20:31</a>
+
+为什么要在b站和人认真讨论，这是你的错</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看铳梦长大的我都被看成小孩哥了，气不过
+
