@@ -1945,3 +1945,57 @@ X有点热度的游戏都是文化战争战场 已经习惯了<img src="https://
 
 看金亨泰对AI的态度，不知道以后会不会少用些或是不断完善的去使用<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千千千千鸟  
+##### 202#       发表于 2026-6-6 17:41
+
+说实话这脸挺不错的，其实是挺雌的，换个发型应该会明显点，就是这无关稍微有点东南亚人的感觉，没有说不好看。
+
+另外身材没啥好担心的，打个MOD屁股**加大一点很简单
+
+
+*****
+
+####  clyde-wang  
+##### 203#       发表于 2026-6-6 17:44
+
+这里还算平和一些，NGA已经吵了一天DEI，雀斑脸和幼瘦假小子是全面倒向西方了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+— from samsung SM-F9660, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  浅井惠  
+##### 204#       发表于 2026-6-6 17:44
+
+看到这脸第一时间想到王濛<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tewaku  
+##### 205#       发表于 2026-6-6 17:46
+
+少逛游戏区没想到你坛居然有这么多政确高雅人士，震惊
+
+这公司不会觉得一代是什么很好玩以游戏性取胜的游戏吧
+
+也好，上了一代当不会再上第二次了
+
+*****
+
+####  巨魔已被忠诚  
+##### 206#       发表于 2026-6-6 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69730985&amp;ptid=2282782" target="_blank">Piano-Forest 发表于 2026-6-6 17:23</a>
+
+之前还有说是今年年内要公开剑星续作的消息，选择6月初的SGF上亮相估计时间上还是有些紧张了
+
+看金亨泰对A ...</blockquote>
+本次封面由“周大福”倾情赞助
+
+金hentai手下设计师和原画因为抄袭和AI工具被炎上的已经不止一次两次了。
+
+这样搞下去也不知道会出什么幺蛾子搞得社区大战。一代就有粉丝跑内衣服装设计原作者下面拉屎。<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
