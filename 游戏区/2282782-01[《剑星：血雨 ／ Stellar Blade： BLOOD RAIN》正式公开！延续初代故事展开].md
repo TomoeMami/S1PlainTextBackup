@@ -2244,3 +2244,35 @@ pc比主机好就好在能打mod，钓鱼加速、跑步加速、随时传送这
 
 早上看PV时完全没想到社区是现在这个画风，毕竟没两天前的女战神楼里居然有一大半是正面反馈，甚至连不满声音措辞都很委婉。这剑星2脸和身材再怎么说也是往大众审美靠的，社区劈头盖脸就是扣帽子骂，真白皮糟粕内核的反而吵不起来，太魔幻了。
 
+
+*****
+
+####  真红眼教授  
+##### 232#       发表于 2026-6-6 19:30
+
+<blockquote>uponutopia 发表于 2026-6-6 19:27
+早上看PV时完全没想到社区是现在这个画风，毕竟没两天前的女战神楼里居然有一大半是正面反馈，甚至连不满声 ...</blockquote>
+好人就该被枪指着，没办法，唉
+
+
+*****
+
+####  寂长无星夜  
+##### 233#       发表于 2026-6-6 19:35
+
+ 本帖最后由 寂长无星夜 于 2026-6-6 19:37 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731374&amp;ptid=2282782" target="_blank">uponutopia 发表于 2026-6-6 19:27</a>
+早上看PV时完全没想到社区是现在这个画风，毕竟没两天前的女战神楼里居然有一大半是正面反馈，甚至连不满声 ...</blockquote>
+阿b的评论区已经开始把叫好的打成云子，怒骂的才是真玩家，等着用销量教金亨泰做人，太难绷了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名居守  
+##### 234#       发表于 2026-6-6 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731374&amp;ptid=2282782" target="_blank">uponutopia 发表于 2026-6-6 19:27</a>
+早上看PV时完全没想到社区是现在这个画风，毕竟没两天前的女战神楼里居然有一大半是正面反馈，甚至连不满声 ...</blockquote>
+很难理解吗
+一种是路边一条懒得理，当然战神也不是路边一条
+一种是恨铁不成钢去舔鬼佬，避免有人应激，当然我没有说剑星2的意思
+
