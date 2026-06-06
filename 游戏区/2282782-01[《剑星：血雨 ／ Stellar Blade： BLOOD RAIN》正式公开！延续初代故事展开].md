@@ -1120,3 +1120,63 @@ tomboy好评，身材不行，脸太圆，感觉撸不起来
 
 这能行么，不过也好，SHIFT UP自己发行，赖不到索尼头上了
 
+
+*****
+
+####  缺德猫  
+##### 120#       发表于 2026-6-6 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69729931&amp;ptid=2282782" target="_blank">ra2163 发表于 2026-6-6 12:19</a>
+
+这能行么，不过也好，SHIFT UP自己发行，赖不到索尼头上了</blockquote>
+还真是，这要是索尼独占，风向绝对是喷索尼
+
+
+*****
+
+####  horacio  
+##### 121#       发表于 2026-6-6 12:26
+
+战斗我是真不喜欢，打起来没就看发什么光的音游，二代还是个假小子，更是挠头了，虽然知道肯定可以换发型
+
+*****
+
+####  アヘ顔  
+##### 122#       发表于 2026-6-6 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69729927&amp;ptid=2282782" target="_blank">Lisylfn 发表于 2026-6-6 12:18</a>
+蹭重庆？反正没看出来跟重庆有啥关系，老中你就爆米吧
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">之前明牌说过来重庆取景的
+
+*****
+
+####  thisism  
+##### 123#       发表于 2026-6-6 12:28
+
+还以为是末世一下子蹦出这么多人
+
+*****
+
+####  樽——見  
+##### 124#       发表于 2026-6-6 12:29
+
+这假小子真的骚完了，腰身也比eve更slim<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  今天不守尸  
+##### 125#       发表于 2026-6-6 12:33
+
+我记得伊芙首个概念pv时脸也很幼，精致得像个洋娃娃，后来才慢慢改成锅盖头瓜子脸的，不知道新女主后续会不会也有调整
+另外短发tomboy在二次元论坛是仙品，但面向路人玩家肯定是劣势的吧，tomboy总归还是小众xp
+
+*****
+
+####  kugayama1369  
+##### 126#       发表于 2026-6-6 12:34
+
+草，怎么不是大莱假小子，有点不懂事了金桑
+

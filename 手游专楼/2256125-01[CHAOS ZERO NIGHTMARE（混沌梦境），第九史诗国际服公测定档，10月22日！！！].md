@@ -1848,3 +1848,18 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 
 出击和零式怎么没法自动战斗啊？简单看了下那些升级项，好多的样子，刷代币好感觉要刷好久。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 未来有优化的可能吗？
 
+
+*****
+
+####  qixinno1  
+##### 916#       发表于 2026-6-6 11:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么喜欢自动何必玩这游戏
+
+*****
+
+####  三谷歩夢  
+##### 917#       发表于 2026-6-6 12:32
+
+出击本来就是玩家嫌普通卡厄思太注重存档不够好玩弄出来的，你还要自动那不是本末倒置吗
+
