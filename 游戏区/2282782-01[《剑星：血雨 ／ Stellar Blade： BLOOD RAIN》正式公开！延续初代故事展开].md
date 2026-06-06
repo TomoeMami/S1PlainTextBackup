@@ -2175,3 +2175,11 @@ X有点热度的游戏都是文化战争战场 已经习惯了<img src="https://
 1现在pc版游戏性怎么样，可以考虑买一个试试
 但感觉只等2来玩也行，1的设计没兴趣    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  RainbowSealife  
+##### 225#       发表于 2026-6-6 19:14
+
+脸没啥问题，发型太tomboy，看着像饭圈割割，byd有人在批站评论区发鸡哥的对比图<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
