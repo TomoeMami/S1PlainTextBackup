@@ -1762,3 +1762,35 @@ https://x.com/akiman7/status/2063055939130016234</blockquote>
 
 看人猜测女主背部的CDDP是Colony什么什么Police，这样也符合太空殖民地的猜想
 
+
+*****
+
+####  SyjmchZ  
+##### 183#       发表于 2026-6-6 15:37
+
+我这人比较俗，我就喜欢伊芙，我还觉得伊芙比渡鸦好康<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhenlune  
+##### 184#       发表于 2026-6-6 15:39
+
+这个主角真的长在我审美点上了，快点上PC我要看3d小动画
+
+*****
+
+####  中国科学院  
+##### 185#       发表于 2026-6-6 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69730255&amp;ptid=2282782" target="_blank">寂长无星夜 发表于 2026-6-6 13:26</a>
+这衣服背面看像那种情趣束腰内衣，金大师太会了</blockquote>
+束腰在维多利亚时代算是标准内衣，不情趣的。
+
+
+*****
+
+####  泰坦失足  
+##### 186#       发表于 2026-6-6 15:44
+
+一刷X真是战场.
+
