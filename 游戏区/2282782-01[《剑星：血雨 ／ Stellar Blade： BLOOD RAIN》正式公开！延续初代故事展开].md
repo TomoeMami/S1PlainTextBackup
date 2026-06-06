@@ -1902,3 +1902,46 @@ X有点热度的游戏都是文化战争战场 已经习惯了<img src="https://
 我觉得伊芙和这个都不咋样，棒子的角色美是美但没有灵魂，还得是日厂，比如这次隔壁皇牌空战8的粉毛妹子， ...</blockquote>
 那个单纯只是发色亮眼吸引人吧，我连脸都没看清，就记住头发了，谈灵魂有点扯淡了
 
+
+*****
+
+####  nage560  
+##### 199#       发表于 2026-6-6 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69730960&amp;ptid=2282782" target="_blank">寂长无星夜 发表于 2026-6-6 17:13</a>
+
+那个单纯只是发色亮眼吸引人吧，我连脸都没看清，就记住头发了，谈灵魂有点扯淡了 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202606/06/171621qz9pyizidyocoo4i.jpg" referrerpolicy="no-referrer">
+
+<strong>origin_202606052153392415.jpg</strong> (113.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-6 17:16 上传
+
+[https://www.gamersky.com/news/202606/2152259.shtml](https://www.gamersky.com/news/202606/2152259.shtml)
+
+脸还是能看得清的吧，设定图也有，在X上火了，说实话看完预告的确赞，我这个不玩皇牌空战的都想买一份支持了（不过理性告诉我不要因为妹子去买自己完全不玩的游戏类型）
+
+
+*****
+
+####  ccow  
+##### 200#       发表于 2026-6-6 17:23
+
+血雨，雨血，这是共鸣上了吗。上次去逛了不是。老实说中国取景真是聪明。
+
+
+*****
+
+####  Piano-Forest  
+##### 201#         楼主| 发表于 2026-6-6 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69730884&amp;ptid=2282782" target="_blank">Jabeck 发表于 2026-6-6 16:46</a>
+
+就那个背景海报都被人看出AI的地方，我怀疑是不是为了拨片才做得这段PV。 ...</blockquote>
+之前还有说是今年年内要公开剑星续作的消息，选择6月初的SGF上亮相估计时间上还是有些紧张了
+
+看金亨泰对AI的态度，不知道以后会不会少用些或是不断完善的去使用<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
