@@ -2962,3 +2962,31 @@ pc上最火的mod不就是红莲换脸？各种视频都在吹，最伟大的一
 
 2026-6-7 00:49 上传
 
+
+*****
+
+####  千本blur  
+##### 291#       发表于 2026-6-7 01:01
+
+nnd，男女对立太严重，假小子这种xp都能上桌了
+
+
+*****
+
+####  ParadiseMartyr  
+##### 292#       发表于 2026-6-7 01:02
+
+脸太幼了，如果能是偶像大师圆香那样的该多好啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  jacket  
+##### 293#       发表于 2026-6-7 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69732552&amp;ptid=2282782" target="_blank">uponutopia 发表于 2026-6-7 00:49</a>
+
+我觉得在木城摆烂几十年攻壳后面搞了一堆破烂3D的今天铳梦和攻壳的老粉看这播片很难不产生好感  所以虽然 ...</blockquote>
+都忘了他画过这个
+

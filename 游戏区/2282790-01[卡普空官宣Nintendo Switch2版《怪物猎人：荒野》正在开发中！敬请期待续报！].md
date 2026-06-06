@@ -420,3 +420,21 @@ rex这狗屎引擎我看难
 官方这个说法就是表示NS2是单独开发而非移植吧？</blockquote>
 滚4re能上就表明这世代就没有不能上的游戏 不爆显存荒野比滚4re一会40一会80稳太多了 荒野就是脑子抽抽把古老之圈那种开dlss也爆显存的实验性超清贴图当默认整上来了 
 
+
+*****
+
+####  drx66  
+##### 47#       发表于 2026-6-7 00:58
+
+显存反而其次，荒野非常吃cpu，NS2这孱弱cpu真能抗住？
+
+
+*****
+
+####  57042711  
+##### 48#       发表于 2026-6-7 01:05
+
+不赖啊，这下玩家也有和怪物一样的发怒（开护腕）环节了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
