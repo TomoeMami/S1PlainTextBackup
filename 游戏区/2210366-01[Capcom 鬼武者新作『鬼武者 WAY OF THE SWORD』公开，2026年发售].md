@@ -5780,3 +5780,13 @@ hd的只有1和2
 
 不过旧鬼武者其实更像战国版生化危机？就是把坦克式操作开枪的动作部分变成了近战。
 
+
+*****
+
+####  zqqwe  
+##### 601#       发表于 2026-6-6 12:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69729831&amp;ptid=2210366" target="_blank">adretyu67. 发表于 2026-6-6 12:00</a>
+旧鬼武系列我还是推荐3，一闪的判断应该是最宽松的，不过3的一闪我记得火力好像也削了，算是平衡？但是3没 ...</blockquote>
+初代是最生化的，尤其是连通性很高的馆/城地图解谜部分，2和3的地图就拆分得很散落
+
