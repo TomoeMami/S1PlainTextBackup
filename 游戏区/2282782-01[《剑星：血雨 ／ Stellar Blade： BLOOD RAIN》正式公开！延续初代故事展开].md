@@ -2341,3 +2341,44 @@ pc比主机好就好在能打mod，钓鱼加速、跑步加速、随时传送这
 
 不过从前作来说，改发型和改衣服变体型是肯定会有的，大可不必纠结这两个方面。
 
+
+*****
+
+####  laputah  
+##### 242#       发表于 2026-6-6 19:59
+
+<blockquote>Dai-Dai-Dai-Dai 发表于 2026-6-6 15:55
+党争作品中短发体育生的人气通常是最低的，要知道她们的脸可是要女孩子气得多 ...</blockquote>
+那是恋爱轻喜剧轻小说受众的问题 其实一般人也不看 
+
+*****
+
+####  缺德猫  
+##### 243#       发表于 2026-6-6 19:59
+
+ 本帖最后由 缺德猫 于 2026-6-6 20:03 编辑 
+
+金hentai从真名法典出道，之后的剑灵、天命之子、Nikke，不都是美术主导，加上他本人XP放出的瑟瑟游戏，外界舆论能左右他？在DEI大厂索尼手下搞的剑星，不也就和谐了两个服装，之后还用换色版反和谐了。
+
+*****
+
+####  アヘ顔  
+##### 244#       发表于 2026-6-6 20:01
+
+ 本帖最后由 アヘ顔 于 2026-6-6 20:02 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731455&amp;ptid=2282782" target="_blank">drx66 发表于 2026-6-6 19:45</a>
+因为有群体在带节奏，毕竟2代脱离独占了，那叫一个恨</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这有点夸张了吧
+堂堂索尼眼馋剑星这点销量？
+
+*****
+
+####  アヘ顔  
+##### 245#       发表于 2026-6-6 20:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731498&amp;ptid=2282782" target="_blank">缺德猫 发表于 2026-6-6 19:59</a>
+金hentai从真名法典出道，之后的剑灵、天命之子、Nikke，不都是美术主导，加上他本人XP放出的瑟瑟游戏，外 ...</blockquote>
+nikke其实老金不怎么管
+只贡献了一只手数的过来的立绘
+nikke的美术总监是老金他老婆
+
