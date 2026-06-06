@@ -2753,3 +2753,39 @@ BS时代只用拳师的表示满意，要是反派那边能出一个温妮莎同
 看着像是赶鸭子上架骗投资的PV，难怪一堆AI痕迹。那张脸也不是很成熟的技术。 ...</blockquote>
 看样子感觉是把可以提前做好的战斗技能部分拉出来演示+一个重庆场景。大头的主线剧情演出关卡设计BOSS啥的具体啥的全部没有或者没多少<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永远的访客  
+##### 273#       发表于 2026-6-6 21:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731546&amp;ptid=2282782" target="_blank">落花微塵 发表于 2026-6-6 20:12</a>
+
+那他媳妇儿也有点东西。</blockquote>
+我记得他是在网上和人吵ZZZQ画风问题认识的她太太(站在他这边），其实就是同行<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  虚无连斩  
+##### 274#       发表于 2026-6-6 22:00
+
+——说实话，Eve和Evie之间是有关系的吧？
+
+金亨泰：
+
+是的，不过具体是什么关系是秘密。
+
+我知道了一定是Sora和Roxas的关系
+
+都是名字加了一个字母，序章结束Evie：我的暑假结束了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zeroboss4  
+##### 275#       发表于 2026-6-6 22:04
+
+贫乳短发不能接受
+
+反正这样子不会在ps5上买
+
