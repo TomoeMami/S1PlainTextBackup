@@ -95,3 +95,19 @@ ffe6e28a9991709efbc41ba94c182e7c_720.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">名越稔洋给横山昌义提鞋都不配
 
+
+*****
+
+####  stygian  
+##### 248#       发表于 2026-6-6 12:17
+
+卧槽2pac，我激动了
+
+
+*****
+
+####  hkguty  
+##### 249#       发表于 2026-6-6 12:21
+
+买了2pac的歌版权？但是这背景跟2pac有半毛钱关系吗，还是单纯横山自己喜欢说唱
+
