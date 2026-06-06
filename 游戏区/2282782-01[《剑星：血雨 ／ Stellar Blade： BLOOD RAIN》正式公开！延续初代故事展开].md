@@ -646,3 +646,44 @@ SHIFT UP的研发团队为了尽早给大家带来实际的游戏体验竭尽全
 
 棒游烧鸡换装最大的阻碍是无论什么风格的衣服都得踩个高跟 换个兔女郎还可以换个水手服就是土中土 
 
+
+*****
+
+####  rainsheep  
+##### 69#       发表于 2026-6-6 09:48
+
+只有拳套吗，还以为续作能做多武器系统
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  桃园张三  
+##### 70#       发表于 2026-6-6 09:52
+
+近几年里我觉得最好看的建模了，上一次这么令我惊艳的还是生化3重制版的吉尔。
+
+不过一代主角最后发售时的长相和最初pv差别很大，希望制作人这次就别修改了。
+
+*****
+
+####  simonroam  
+##### 71#       发表于 2026-6-6 09:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69728956&amp;ptid=2282782" target="_blank">uponutopia 发表于 2026-6-6 09:34</a>
+
+AI大势还用你说？我这不是向你请教pv体现在哪么？能不能来点干的别放空话 ...</blockquote>
+[https://www.reddit.com/r/Topolog ... _source=chatgpt.com](https://www.reddit.com/r/TopologyAI/comments/1tb8o2i/aigenerated_3d_assets_into_a_ue5_platformer_in_3/?utm_source=chatgpt.com)
+
+给个参考吧，场景这块提效是最大的，当然不是直接生图然后直接出整个场景
+
+
+*****
+
+####  monolithsoft  
+##### 72#       发表于 2026-6-6 09:55
+
+看起来是前传
+
+别一转人类灭绝再逛一堆屎黄色沙漠场景就好
+
