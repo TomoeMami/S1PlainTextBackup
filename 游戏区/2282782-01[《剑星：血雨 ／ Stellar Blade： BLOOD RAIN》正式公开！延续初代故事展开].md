@@ -2382,3 +2382,15 @@ nikke其实老金不怎么管
 只贡献了一只手数的过来的立绘
 nikke的美术总监是老金他老婆
 
+
+*****
+
+####  落花微塵  
+##### 246#       发表于 2026-6-6 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731511&amp;ptid=2282782" target="_blank">アヘ顔 发表于 2026-6-6 20:03</a>
+nikke其实老金不怎么管
+只贡献了一只手数的过来的立绘
+nikke的美术总监是老金他老婆 ...</blockquote>
+那他媳妇儿也有点东西。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
