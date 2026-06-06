@@ -2014,3 +2014,24 @@ X有点热度的游戏都是文化战争战场 已经习惯了<img src="https://
 
 小只身材符合我xp，而且反正可以变也没什么所谓，就是这脸和配音感觉不如百合可爱<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  碧空之歌P  
+##### 209#       发表于 2026-6-6 17:58
+
+又看了两遍pv，越看越喜欢，可爱
+
+
+*****
+
+####  土星蛋  
+##### 210#       发表于 2026-6-6 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69730916&amp;ptid=2282782" target="_blank">Dr.Web 发表于 2026-6-6 16:57</a>
+
+不是大家爱假小子, 是其实这个不是真的假小子吧, 只能说是短发, 脸还是标准美女脸, 加上紧身衣够色.  真的 ...</blockquote>
+如果这个是普通日厂作的角色，大家可能会比较称赞
+
+但是你剑星第一作吸引的玩家都是冲着什么来的........肯定不是单纯的冲着美而来的
+
