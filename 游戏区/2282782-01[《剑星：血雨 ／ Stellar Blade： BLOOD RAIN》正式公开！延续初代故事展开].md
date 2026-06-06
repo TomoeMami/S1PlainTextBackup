@@ -942,3 +942,43 @@ tomboy喜欢，相信金大师
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  内拉祖里  
+##### 101#       发表于 2026-6-6 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69729460&amp;ptid=2282782" target="_blank">螺旋的小夜曲 发表于 2026-6-6 11:01</a>
+
+就这B+还不够贫，bro还是吃点好的</blockquote>
+
+B+穿紧身战斗服基本是平的不会有这种线条的。
+
+另外不满足你的要求上nexusmods就好了嘛<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+<img src="https://img.stage1st.com/forum/202606/06/082811ue3l665y4gezkksd.png" referrerpolicy="no-referrer">
+
+a1ec08fa513d26974c7021f754fbb2fb4216d8fc.jpg
+(1.27 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-6 11:07 上传
+
+<img src="https://img.stage1st.com/forum/202606/06/110744d78b468abdbtpzub.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  tonberry  
+##### 102#       发表于 2026-6-6 11:16
+
+我还是比较遗憾的，tomboy不就应该前凸后翘的么<img src="https://static.stage1st.com/image/smiley/face/27.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  霖岚_  
+##### 103#       发表于 2026-6-6 11:19
+
+新女主的脸总算没伊芙那种伪人感了，当时就觉得伊芙的脸修得太精致，盯久了总感觉不大对
+
+而且这次的体型也正常多了，看战斗段落也没前作那为了突显身材平A都要带慢镜头的粘滞感，应该不会再有把平A速度拆出来当插件的操作吧
+

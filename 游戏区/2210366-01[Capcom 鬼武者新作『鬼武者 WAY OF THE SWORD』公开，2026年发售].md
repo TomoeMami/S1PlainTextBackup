@@ -5733,3 +5733,18 @@ hd的只有1和2
 终于有时间玩通demo，虽然动画很细腻但不喜欢这反馈。基本和旧作反着来，平a不怎么卡肉+没震动，一闪命中反而带一点滞重，连闪还强制有个慢镜启动演出<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 不过一闪判定宽松和拆投是好改进
 
+
+*****
+
+####  汪达  
+##### 597#       发表于 2026-6-6 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69727884&amp;ptid=2210366" target="_blank">crazyleeyr 发表于 2026-6-6 03:41</a>
+
+试了下demo有点想把hd化的那几作补一下，大佬推荐吗？
+
+论坛助手,iPhone</blockquote>
+除非抱着考古心态去玩，不然真不如重新玩一玩只狼、sifu<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+那时候一闪系统好新鲜好神奇，然而现在林克都有魔男时间了，类似设计早就烂大街了，时代太久远了，内容跟新游戏没得比的，随便云一下算了
+
