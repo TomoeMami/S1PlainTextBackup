@@ -937,3 +937,11 @@ DMC鬼泣
 
 【《控制：共振》- 10分钟未公开实机演示】 [https://www.bilibili.com/video/B ... 5dc821bf95f0f112e8b](https://www.bilibili.com/video/BV1ot7m6gERQ/?share_source=copy_web&amp;vd_source=402b6913c4d755dc821bf95f0f112e8b) 战斗场景黑糊糊的还有马拉松逼，战斗体验不会特别好，为了美术牺牲太多
 
+
+*****
+
+####  thez  
+##### 99#       发表于 2026-6-6 12:06
+
+这大黑大红比仁王还瞎眼，我看头晕了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

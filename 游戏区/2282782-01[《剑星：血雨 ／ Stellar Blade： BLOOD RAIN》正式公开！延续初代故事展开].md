@@ -1072,3 +1072,34 @@ tomboy好评，身材不行，脸太圆，感觉撸不起来
 
 太爽了，NGA油棕现在在疯狂指责对面是LGBT派来的特务
 
+
+*****
+
+####  社友者  
+##### 115#       发表于 2026-6-6 12:07
+
+<img src="https://img.stage1st.com/forum/202606/06/120337fc8xq0swgkvmgto2.jpg" referrerpolicy="no-referrer">
+
+<strong>1000042547.jpg</strong> (197.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-6 12:03 上传
+
+<img src="https://static.stage1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zqqwe  
+##### 116#       发表于 2026-6-6 12:07
+
+多看了几遍战斗部分，改成格斗之后可参考的现实动作明显变多了，完全没有上一作平a连招尴尬僵硬的感觉
+
+
+*****
+
+####  缺德猫  
+##### 117#       发表于 2026-6-6 12:13
+
+组里除了老金还有其他剑灵老人吧？一代就有剑灵剑士的招式，比如那个突刺，新作拳击也有剑灵的感觉。
+
