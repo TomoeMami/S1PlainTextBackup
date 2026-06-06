@@ -2183,3 +2183,64 @@ X有点热度的游戏都是文化战争战场 已经习惯了<img src="https://
 
 脸没啥问题，发型太tomboy，看着像饭圈割割，byd有人在批站评论区发鸡哥的对比图<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  serj005  
+##### 226#       发表于 2026-6-6 19:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731293&amp;ptid=2282782" target="_blank">Awanano 发表于 2026-6-6 19:06</a>
+
+挺好的，爱了
+
+1现在pc版游戏性怎么样，可以考虑买一个试试
+
+但感觉只等2来玩也行，1的设计没兴趣    Re:Sour ...</blockquote>
+1代纯靠皮肤收集撑起游玩动力，游戏性只能说有但不多。
+
+pc比主机好就好在能打mod，钓鱼加速、跑步加速、随时传送这三个mod必打，不打mod的话大地图是真要玩吐了。
+
+*****
+
+####  江戸前ルナ  
+##### 227#       发表于 2026-6-6 19:24
+
+妈蛋我已经刷遍了PV的各路reaction和多播放数，好想玩剑星2<img src="https://static.stage1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  巨馍蘸酱  
+##### 228#       发表于 2026-6-6 19:24
+
+不仅仅是假小子，主要是脸太幼，看有人用AI给她换个长发还是像小孩
+
+*****
+
+####  zeta945  
+##### 229#       发表于 2026-6-6 19:26
+
+确实比eve好看啊，不过身材输了
+
+*****
+
+####  RainbowSealife  
+##### 230#       发表于 2026-6-6 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69730515&amp;ptid=2282782" target="_blank">五块 发表于 2026-6-6 14:40</a>
+
+假小子当年可是有西军啊，只不过现在宅男文娱被污染严重，很多假小子写成了铁T才让人不喜欢的
+
+雀斑才是 ...</blockquote>
+一代伊芙脸上的皮肤也不是完全的晶莹剔透、肤如凝脂，仔细看也是接近现实的质感。百合更夸张，翻了截图发现不仅脸上有，身上也有。雀斑这东西对于欧美的鬼佬来说基本算是萌点，东方人也不是特别排斥，所以棒游有也不奇怪。（听说材质不开太高好像就看不到了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+<img src="https://images.steamusercontent.com/ugc/13731627677311019051/BB349310D0FA71CD1F0967ADFC92D074FD0D2A9F/" height="450" id="aimg_maSxz" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://images.steamusercontent.com/ugc/9510366859087142385/E87F63EFE5E40F9968A27F0C02E28731E9D29A6E/" height="450" id="aimg_TRCPy" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+*****
+
+####  uponutopia  
+##### 231#       发表于 2026-6-6 19:27
+
+早上看PV时完全没想到社区是现在这个画风，毕竟没两天前的女战神楼里居然有一大半是正面反馈，甚至连不满声音措辞都很委婉。这剑星2脸和身材再怎么说也是往大众审美靠的，社区劈头盖脸就是扣帽子骂，真白皮糟粕内核的反而吵不起来，太魔幻了。
+
