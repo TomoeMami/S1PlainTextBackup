@@ -808,3 +808,37 @@ tomboy扔子不够大呀，穿瑟瑟的衣服都不够味<img src="https://stati
 补个地址（不知道为啥是加拿大沃尔玛等其他外媒先公开的<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> ）
 [https://x.com/i/status/2063032615758614649](https://x.com/i/status/2063032615758614649)
 
+
+*****
+
+####  アヘ顔  
+##### 85#       发表于 2026-6-6 10:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正老金是被中国强大的游戏工业吓尿了，宣称不用ai无法与之抗衡
+
+
+*****
+
+####  outerish  
+##### 86#       发表于 2026-6-6 10:42
+
+用AI能增加开发效率又不突兀的话，我支持啊
+
+现在游戏开发动辄5-7年，等到花儿都谢了
+
+*****
+
+####  ads147147  
+##### 87#       发表于 2026-6-6 10:42
+
+牢金，我给妮姬充的钱确实没白费，但是打拳是什么意思，莉莉维斯体验卡吗。
+
+—— 来自 OPPO PLP110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  gaosf  
+##### 88#       发表于 2026-6-6 10:43
+
+假小子人设不是很对味，新女主这身高也略矮了。不过还是蛮期待的，这次别再整大沙漠这种傻逼地图就完事了。
+
