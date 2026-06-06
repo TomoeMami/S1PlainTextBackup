@@ -1348,3 +1348,40 @@ EVE当初也是一群人说土鳖网红脸来着
 
 这脸。。有什么问题？<img src="https://static.stage1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 144#       发表于 2026-6-6 13:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69730062&amp;ptid=2282782" target="_blank">ScL9 发表于 2026-6-6 12:43</a>
+
+这摇闪想起神之手了</blockquote>
+还有能躲敌人攻击的扫堂腿，说起来想起了三上做的这个玩意，算不算替三上圆梦了
+
+<img src="https://img.stage1st.com/forum/202606/06/131804n0yv70rhui10isbq.jpg" referrerpolicy="no-referrer">
+
+<strong>e581edf5ea1f8d7ad77256f1cc202e6dfb483d6f.jpg</strong> (359.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-6 13:18 上传
+
+
+*****
+
+####  jacket  
+##### 145#       发表于 2026-6-6 13:21
+
+五官比起百合更像迅驰家的亲戚
+
+铳梦有游戏玩啦
+
+*****
+
+####  アヘ顔  
+##### 146#       发表于 2026-6-6 13:22
+
+考虑了一下和nikke的联动周期，如果今年九十月没戏的话
+那估计就还是在明年三四月份发售吧
+
