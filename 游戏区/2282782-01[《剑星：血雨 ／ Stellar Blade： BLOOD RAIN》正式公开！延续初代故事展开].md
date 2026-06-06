@@ -1794,3 +1794,18 @@ https://x.com/akiman7/status/2063055939130016234</blockquote>
 
 一刷X真是战场.
 
+
+*****
+
+####  卡拉德利姆  
+##### 187#       发表于 2026-6-6 15:54
+
+X有点热度的游戏都是文化战争战场 已经习惯了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 188#       发表于 2026-6-6 15:55
+
+党争作品中短发体育生的人气通常是最低的，要知道她们的脸可是要女孩子气得多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
