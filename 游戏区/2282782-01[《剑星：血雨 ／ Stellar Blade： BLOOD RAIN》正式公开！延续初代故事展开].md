@@ -2276,3 +2276,32 @@ pc比主机好就好在能打mod，钓鱼加速、跑步加速、随时传送这
 一种是路边一条懒得理，当然战神也不是路边一条
 一种是恨铁不成钢去舔鬼佬，避免有人应激，当然我没有说剑星2的意思
 
+
+*****
+
+####  jokertx  
+##### 235#       发表于 2026-6-6 19:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731374&amp;ptid=2282782" target="_blank">uponutopia 发表于 2026-6-6 19:27</a>
+
+早上看PV时完全没想到社区是现在这个画风，毕竟没两天前的女战神楼里居然有一大半是正面反馈，甚至连不满声 ...</blockquote>
+这就是当坏人做一件好事，和当好人做一件坏事
+
+*****
+
+####  金星  
+##### 236#       发表于 2026-6-6 19:42
+
+热度还挺高d，b站ign夏日游戏节合集播放量第二，仅次于生化<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  drx66  
+##### 237#       发表于 2026-6-6 19:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731374&amp;ptid=2282782" target="_blank">uponutopia 发表于 2026-6-6 19:27</a>
+
+早上看PV时完全没想到社区是现在这个画风，毕竟没两天前的女战神楼里居然有一大半是正面反馈，甚至连不满声 ...</blockquote>
+因为有群体在带节奏，毕竟2代脱离独占了，那叫一个恨
+
