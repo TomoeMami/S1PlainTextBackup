@@ -1817,3 +1817,14 @@ X有点热度的游戏都是文化战争战场 已经习惯了<img src="https://
 
 白皮批判幼态审美的时候是没想过黄种人真能长这样吗，本质种族歧视畜牲
 
+
+*****
+
+####  Jabeck  
+##### 190#       发表于 2026-6-6 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69730613&amp;ptid=2282782" target="_blank">Piano-Forest 发表于 2026-6-6 15:11</a>
+
+“项目处于早期开发阶段”这句是Geoff自己在SGF直播的时候说的</blockquote>
+什么意思？2代还处于早期阶段？那估计28年都不一定能发售啊
+
