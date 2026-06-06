@@ -444,3 +444,54 @@ Please look forward to it! 💫
 
 不是，怎么老是出现角色长发改短发（不管是不是同个角色），这群制作人是有什么毛病吗
 
+
+*****
+
+####  yang1820  
+##### 48#       发表于 2026-6-6 08:57
+
+我操！居然是tomboy！Σ(っ°Д° )っ
+
+这次还是首发PS独占吗？
+
+*****
+
+####  uponutopia  
+##### 49#       发表于 2026-6-6 08:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69728793&amp;ptid=2282782" target="_blank">simonroam 发表于 2026-6-6 08:53</a>
+
+还用纠结字吗，你找出整个宣传片里没有AI的地方</blockquote>
+虽然主视觉图一眼ai，但没看出pv里ai味在哪，鉴ai大神还请赐教<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 至于中文字，是没玩过本体吗
+
+
+*****
+
+####  Piano-Forest  
+##### 50#         楼主| 发表于 2026-6-6 09:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69728812&amp;ptid=2282782" target="_blank">yang1820 发表于 2026-6-6 08:57</a>
+
+我操！居然是tomboy！Σ(っ°Д° )っ
+
+这次还是首发PS独占吗？</blockquote>
+之前已经由SHIFT UP决定自主发行，这次应该能多平台同步发售吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YukariK  
+##### 51#       发表于 2026-6-6 09:01
+
+剑星1我把各种狗牌都全收集了还没看习惯伊芙的正脸，背影是不错。渡鸦、莉莉、迅驰、情报贩子和废品站小女孩的正脸都可以。
+
+新作英配的声音太中性了真当成假小子来做了，新角色正脸目前一般般能接受，战斗系统感觉比1强，打击感挺足，1后面就那两招能量循环，1除了战斗不好玩其他的都还行。
+
+*****
+
+####  spieler  
+##### 52#       发表于 2026-6-6 09:04
+
+假小子怎么换装，剑星最大卖点不就是那堆衣服，总不能还可以换义体吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
