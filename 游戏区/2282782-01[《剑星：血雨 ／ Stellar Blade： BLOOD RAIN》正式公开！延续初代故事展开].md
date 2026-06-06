@@ -2394,3 +2394,18 @@ nikke其实老金不怎么管
 nikke的美术总监是老金他老婆 ...</blockquote>
 那他媳妇儿也有点东西。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  姐霓姐霓  
+##### 247#       发表于 2026-6-6 20:16
+
+他老婆比他出生多了，nikke能搞成现在这个样子，当然也有可能是南极出生的问题<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  laputah  
+##### 248#       发表于 2026-6-6 20:18
+
+别说什么ai，横尾太郎入主eva，他弄个ai明日香当贺图被喷到删帖道歉，他是真的爱死了ai
+
