@@ -1446,3 +1446,50 @@ EVE当初也是一群人说土鳖网红脸来着
 
 一代eve哪怕是那几个短发造型依然毫无欲望，结果大家都说真香。这个主角色疯了，结果看各个平台普遍不喜欢<img src="https://static.stage1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">绝望了，对这个人类文明绝望了
 
+
+*****
+
+####  格林达姆  
+##### 153#       发表于 2026-6-6 13:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69730255&amp;ptid=2282782" target="_blank">寂长无星夜 发表于 2026-6-6 13:26</a>
+
+这衣服背面看像那种情趣束腰内衣，金大师太会了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还有周大福植入
+
+*****
+
+####  五块  
+##### 154#       发表于 2026-6-6 13:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69730000&amp;ptid=2282782" target="_blank">今天不守尸 发表于 2026-6-6 12:33</a>
+
+我记得伊芙首个概念pv时脸也很幼，精致得像个洋娃娃，后来才慢慢改成锅盖头瓜子脸的，不知道新女主后续会不 ...</blockquote>
+tomboy讨好二次元，再来点大熊大屁股讨好路人，双赢<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寂长无星夜  
+##### 155#       发表于 2026-6-6 13:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69730319&amp;ptid=2282782" target="_blank">格林达姆 发表于 2026-6-6 13:45</a>
+一代eve哪怕是那几个短发造型依然毫无欲望，结果大家都说真香。这个主角色疯了，结果看各个平台普遍不喜欢 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伊芙刚出的时候也是一堆人说脸很奇怪来着。二代主角我觉得比伊芙好看多了
+
+*****
+
+####  umbasa  
+##### 156#       发表于 2026-6-6 13:53
+
+<blockquote>格林达姆 发表于 2026-6-6 13:45
+一代eve哪怕是那几个短发造型依然毫无欲望，结果大家都说真香。这个主角色疯了，结果看各个平台普遍不喜欢 ...</blockquote>
+二代女主角五官比例比一代伊芙那种夸张化的五官看着舒服多了。现在的差评也许是对着身材去的吧，嫌弃二代女主角身材不够爆炸。
+
+*****
+
+####  我要写个惨字  
+##### 157#       发表于 2026-6-6 13:53
+
+假小子suki
+
