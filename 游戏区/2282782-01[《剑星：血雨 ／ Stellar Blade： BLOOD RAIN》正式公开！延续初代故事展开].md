@@ -754,3 +754,29 @@ tomboy扔子不够大呀，穿瑟瑟的衣服都不够味<img src="https://stati
 没有伊芙了？！这新主角色气度不够呀</blockquote>
 上了PC就由不得你了
 
+
+*****
+
+####  哈罗  
+##### 80#       发表于 2026-6-6 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69729071&amp;ptid=2282782" target="_blank">uponutopia 发表于 2026-6-6 09:58</a>
+
+不是 都2026年了 需要你丢个网上的视频告诉我AI能做什么？ 我就是回问你的发言，你说这PV全是AI我就请教 ...</blockquote>
+不管近景远景都堆满细节，整个画面信息量爆炸，这不光是机能可不可以实现的问题，还有巨大的手工工作量，但ai可以快速搭建
+
+
+*****
+
+####  simonroam  
+##### 81#       发表于 2026-6-6 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69729071&amp;ptid=2282782" target="_blank">uponutopia 发表于 2026-6-6 09:58</a>
+
+不是 都2026年了 需要你丢个网上的视频告诉我AI能做什么？ 我就是回问你的发言，你说这PV全是AI我就请教 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">行吧，我调侃下金亨泰 all in AI的意思
+
+我怎么看出来的，不用看出来啊，现在的AI很强了，hentai自己都恨不得整个概念设计都用AI做
+
+他就怕别人看不出他用了AI，特别是现在韩国还处于AI风口上
+
