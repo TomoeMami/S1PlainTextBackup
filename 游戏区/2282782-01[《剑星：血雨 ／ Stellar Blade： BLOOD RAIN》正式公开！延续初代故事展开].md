@@ -898,3 +898,37 @@ tomboy扔子不够大呀，穿瑟瑟的衣服都不够味<img src="https://stati
 
 卧槽，这女主和初代比真是香疯了<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">这系列终于有对味的角色了
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 96#       发表于 2026-6-6 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69728983&amp;ptid=2282782" target="_blank">内拉祖里 发表于 2026-6-6 09:39</a>
+
+这还贫？那你只有去玩碧蓝航线了</blockquote>
+就这B+还不够贫，bro还是吃点好的
+
+*****
+
+####  银色天空  
+##### 97#       发表于 2026-6-6 11:03
+
+暂时没看到想看的东西，战斗的打击感有提升但一代最拉胯的是手感也看不出来。女主的脸也不喜欢，不如百合。
+
+*****
+
+####  克里斯蒂娜  
+##### 98#       发表于 2026-6-6 11:04
+
+打拳无所谓，出个莉莉维斯衣服就行
+
+*****
+
+####  虚无连斩  
+##### 99#       发表于 2026-6-6 11:04
+
+让哈基米把女主改长发试了下，更微妙了喂<img src="https://p.sda1.dev/32/a40375c8ba2d36b84749851ba5b2e066/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
