@@ -4155,3 +4155,11 @@ img_7534.png
 时王那玩意想想就好笑，一开始宣传的真结局，连TV主世界线的，成片出来一看狗屁不通，联系本篇能能出一堆B ...</blockquote>
 时王自己本篇的设定都没捋顺吧，反正看个乐就完事了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  浅川雏羽  
+##### 1857#       发表于 2026-6-7 00:44
+
+剧场版形态新规程度真高阿
+

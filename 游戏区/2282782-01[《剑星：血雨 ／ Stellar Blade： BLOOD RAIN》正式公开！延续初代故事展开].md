@@ -2923,3 +2923,23 @@ pc上最火的mod不就是红莲换脸？各种视频都在吹，最伟大的一
 
 2026-6-7 00:27 上传
 
+
+*****
+
+####  江戸前ルナ  
+##### 289#       发表于 2026-6-7 00:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69732392&amp;ptid=2282782" target="_blank">缺德猫 发表于 2026-6-6 23:53</a>
+
+关键初代独占的时候，那个脸也被人狂喷啊。
+
+pc上最火的mod不就是红莲换脸？各种视频都在吹，最伟大的一张 ...</blockquote>
+我寻思但凡刷多一点剑星1的各种跳火车视频，战斗视频，打开评论区，都不会说出这种话。
+
+红莲是游戏里最漂亮的脸很多人也这么认为，也有很多人说迅驰渡鸦比依芙好看。先不说XP问题，但依芙的脸耐看+风格很适合衣服百搭这两点还是比较公认的。
+
+你说没人吹，那么就找个给看看
+[https://www.bilibili.com/video/BV1iDAzzaEG4/](https://www.bilibili.com/video/BV1iDAzzaEG4/)
+
+点UP的视频你还会发现吹红莲，吹依芙，吹百合都是这一个UP，但可不可以不要以个人XP一叶障目呢？
+
