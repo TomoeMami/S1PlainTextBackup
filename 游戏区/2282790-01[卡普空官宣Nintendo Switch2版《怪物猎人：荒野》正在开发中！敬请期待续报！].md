@@ -438,3 +438,25 @@ rex这狗屎引擎我看难
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  P-link  
+##### 49#       发表于 2026-6-7 01:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69729184&amp;ptid=2282790" target="_blank">阿卵真是牛逼 发表于 2026-6-6 10:19</a>
+
+之前听人说MHRS至今没有60帧的原因是30帧和60帧没办法一起联机，不知道是不是真的。 ...</blockquote>
+那么问题来了，如果设30帧和60帧无法联机这一说法是真的，那一台PC30帧，另外一台PC60帧，还有一台PC是120帧乃至240帧，那PC平台肯定不能联机。
+
+
+*****
+
+####  P-link  
+##### 50#       发表于 2026-6-7 01:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731811&amp;ptid=2282790" target="_blank">三天八百万 发表于 2026-6-6 21:15</a>
+
+我操，gu打骨折只要38港币，当时还是79入手的😭</blockquote>
+氦，这算啥，我手上有3DS版的MHX,MHXX,SWITCH的日版MHXX实体（当时中文没公布），MHXX美版（下载版）。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
