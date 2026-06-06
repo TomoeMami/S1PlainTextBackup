@@ -2409,3 +2409,33 @@ nikke的美术总监是老金他老婆 ...</blockquote>
 
 别说什么ai，横尾太郎入主eva，他弄个ai明日香当贺图被喷到删帖道歉，他是真的爱死了ai
 
+
+*****
+
+####  gudamwingzero  
+##### 249#       发表于 2026-6-6 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731498&amp;ptid=2282782" target="_blank">缺德猫 发表于 2026-6-6 19:59</a>
+
+金hentai从真名法典出道，之后的剑灵、天命之子、Nikke，不都是美术主导，加上他本人XP放出的瑟瑟游戏，外 ...</blockquote>
+金hentai出道是创世纪战3啊，真名法典都是很后面的了
+
+*****
+
+####  gudamwingzero  
+##### 250#       发表于 2026-6-6 20:27
+
+“其中，在主题和设计方面最受启发的是日本漫画家木城雪户的漫画《铳梦》。它在2019年被拍成动作片上映，片名是《阿丽塔：战斗天使》。我想说，我从这部电影中汲取了很多灵感。”金亨泰表示。
+
+剑星的灵感来源就是铳梦啊，新主角像凯丽不是很正常的吗，在批站一堆人喷我<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  アヘ顔  
+##### 251#       发表于 2026-6-6 20:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731612&amp;ptid=2282782" target="_blank">gudamwingzero 发表于 2026-6-6 20:27</a>
+“其中，在主题和设计方面最受启发的是日本漫画家木城雪户的漫画《铳梦》。它在2019年被拍成动作片上映，片 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么要在b站和人认真讨论，这是你的错
+
