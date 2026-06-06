@@ -2742,3 +2742,14 @@ SHIFT UP T恤背面
 
 BS时代只用拳师的表示满意，要是反派那边能出一个温妮莎同款短发大长腿御姐拳霸就更好了<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 272#       发表于 2026-6-6 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731922&amp;ptid=2282782" target="_blank">Jabeck 发表于 2026-6-6 21:44</a>
+
+看着像是赶鸭子上架骗投资的PV，难怪一堆AI痕迹。那张脸也不是很成熟的技术。 ...</blockquote>
+看样子感觉是把可以提前做好的战斗技能部分拉出来演示+一个重庆场景。大头的主线剧情演出关卡设计BOSS啥的具体啥的全部没有或者没多少<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
