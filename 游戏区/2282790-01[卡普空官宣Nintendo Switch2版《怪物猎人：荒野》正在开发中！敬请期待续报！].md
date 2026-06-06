@@ -402,3 +402,11 @@ rex这狗屎引擎我看难
 我操，gu打骨折只要38港币，当时还是79入手的😭</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我三百八RMB买的。
 
+
+*****
+
+####  laputah  
+##### 45#       发表于 2026-6-6 23:14
+
+荒野是把ID那种实验性的超清贴图当默认整上来了所以大家都爆成多边形了 还有其他性能问题吗我没遇到
+
