@@ -1809,3 +1809,11 @@ X有点热度的游戏都是文化战争战场 已经习惯了<img src="https://
 
 党争作品中短发体育生的人气通常是最低的，要知道她们的脸可是要女孩子气得多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  姜岑  
+##### 189#       发表于 2026-6-6 15:58
+
+白皮批判幼态审美的时候是没想过黄种人真能长这样吗，本质种族歧视畜牲
+
