@@ -2878,3 +2878,14 @@ BS时代只用拳师的表示满意，要是反派那边能出一个温妮莎同
 
 所以一代的人设从少女造型改成大姐造型，是不是因为索尼的施压
 
+
+*****
+
+####  名居守  
+##### 285#       发表于 2026-6-6 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731725&amp;ptid=2282782" target="_blank">199april 发表于 2026-6-6 20:55</a>
+我觉得现在玩家真有点性压抑了，这都能吵起来。不喜欢假小子就不喜欢了，一定要个个都大奈翘臀长腿整容脸吗 ...</blockquote>
+你这话有问题
+说得好像不喜欢假小子（先不论这个2代算不算假小子）的是性压抑，喜欢假小子就不是性压抑了似的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还分贵贱吗？
+
