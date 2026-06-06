@@ -927,3 +927,13 @@ DMC鬼泣
 上个月总监豪言壮语的说发售时间无惧gta6 结果还是避其锋芒两个月 另外一个地铁新作也这么说 看具体发售日 ...</blockquote>
 我还希望暑假能玩上而不是挤到9月呢
 
+
+*****
+
+####  水边井  
+##### 98#       发表于 2026-6-6 11:42
+
+【《控制：共振》超自然曼哈顿预告片 | 夏日游戏节 2026】 [https://www.bilibili.com/video/B ... 5dc821bf95f0f112e8b](https://www.bilibili.com/video/BV1kR7m6QE3r/?share_source=copy_web&amp;vd_source=402b6913c4d755dc821bf95f0f112e8b) 主题曲超级上头
+
+【《控制：共振》- 10分钟未公开实机演示】 [https://www.bilibili.com/video/B ... 5dc821bf95f0f112e8b](https://www.bilibili.com/video/BV1ot7m6gERQ/?share_source=copy_web&amp;vd_source=402b6913c4d755dc821bf95f0f112e8b) 战斗场景黑糊糊的还有马拉松逼，战斗体验不会特别好，为了美术牺牲太多
+
