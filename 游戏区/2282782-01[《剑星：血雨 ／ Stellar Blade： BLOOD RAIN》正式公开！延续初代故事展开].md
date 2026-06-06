@@ -3059,3 +3059,50 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  雷攻姛人  
+##### 299#       发表于 2026-6-7 06:09
+
+说起来，剑灵里我之所以喜欢拳师，就是因为有个倒立旋风腿的起身技，不知道2代会有吗<img src="https://static.stage1st.com/image/smiley/face2017/189.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202606/07/060853a53fnw72uphu2nv8.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260607_060555.jpg</strong> (98.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-7 06:08 上传
+
+*****
+
+####  雷攻姛人  
+##### 300#       发表于 2026-6-7 06:12
+
+<img src="https://img.stage1st.com/forum/202606/07/060956gu8k8cszzdzh998e.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260607_060613.jpg</strong> (325.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-7 06:09 上传
+
+这名字这长相…所以2代女主其实是伊芙和百合的孩子啦<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202606/07/061122hamqlz9yzmlcwrxz.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260607_061105.jpg</strong> (213.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-7 06:11 上传
+
+*****
+
+####  雷攻姛人  
+##### 301#       发表于 2026-6-7 06:13
+
+对波 对比
+<img src="https://p.sda1.dev/32/698fc975e3dba7347069487c4c5c190b/image.jpg" referrerpolicy="no-referrer">
+
