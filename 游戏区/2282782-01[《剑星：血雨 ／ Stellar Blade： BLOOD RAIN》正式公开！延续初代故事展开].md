@@ -1555,3 +1555,55 @@ tomboy讨好二次元，再来点大熊大屁股讨好路人，双赢<img src="h
 
 要是被老外炎上了那确实挺有热度的
 
+
+*****
+
+####  zzf111  
+##### 165#       发表于 2026-6-6 14:32
+
+<img src="https://img.stage1st.com/forum/202606/06/143157zmcxcujtjeexztty.jpg" referrerpolicy="no-referrer">
+
+<strong>1780701457300422.jpg</strong> (247.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-6 14:31 上传
+
+<img src="https://img.stage1st.com/forum/202606/06/143200afczbb5ebveegmmv.jpg" referrerpolicy="no-referrer">
+
+<strong>1780701580305000.jpg</strong> (404.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-6 14:32 上传
+
+<img src="https://img.stage1st.com/forum/202606/06/143203bccbtjbeew14wbkt.jpg" referrerpolicy="no-referrer">
+
+<strong>1780701703039.jpg</strong> (280.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-6 14:32 上传
+
+<img src="https://img.stage1st.com/forum/202606/06/143205xcn7c3e9cf79ryy9.jpg" referrerpolicy="no-referrer">
+
+<strong>1780701268514985.jpg</strong> (181.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-6 14:32 上传
+
+*****
+
+####  jacket  
+##### 166#       发表于 2026-6-6 14:32
+
+PV里那个怪变身前说了句“in the name of the father”，按一代设定这就是信仰亚当上太空那批人吧，那这城市就是太空殖民地了
+
+*****
+
+####  jokertx  
+##### 167#       发表于 2026-6-6 14:35
+
+女主基本是完全就是加里+素子的人设，机甲术、短发、嘟嘟嘴、紧身衣、条子，而且她们漫画也都是苗条纤细型的身材，从人设角度我没什么好抱怨的。不过考虑到SU的游戏主打**的传统，希望金大师能继续发挥前作换衣服=换身材的传统，当然如果有强化异体能改变身材的设定就更好了<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
