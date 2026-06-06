@@ -3130,3 +3130,11 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 2026-6-7 06:51 上传
 
+
+*****
+
+####  Yugao  
+##### 304#       发表于 2026-6-7 07:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正上了pc外观都有mod，剑星的衣服纹理这块是真的很牛逼，最大的问题还是战斗的手感，一代打三个周目全成就我后期差点打不过困难模式的渡鸦，再加上人物和敌人的受击反馈以及地图探索过程中和各种地形边缘的交互，这块做好了的话起码是个85分游戏
+
