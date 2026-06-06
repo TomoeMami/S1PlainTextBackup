@@ -383,3 +383,22 @@ rex这狗屎引擎我看难
 
 希望单独开发，把动态地图去掉，固定在丰饶期
 
+
+*****
+
+####  三天八百万  
+##### 43#       发表于 2026-6-6 21:15
+
+我操，gu打骨折只要38港币，当时还是79入手的😭
+
+
+*****
+
+####  雪见  
+##### 44#       发表于 2026-6-6 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731811&amp;ptid=2282790" target="_blank">三天八百万 发表于 2026-6-6 21:15</a>
+
+我操，gu打骨折只要38港币，当时还是79入手的😭</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我三百八RMB买的。
+
