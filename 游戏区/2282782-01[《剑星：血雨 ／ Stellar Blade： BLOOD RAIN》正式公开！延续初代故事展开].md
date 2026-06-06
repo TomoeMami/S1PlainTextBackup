@@ -2990,3 +2990,21 @@ nnd，男女对立太严重，假小子这种xp都能上桌了
 我觉得在木城摆烂几十年攻壳后面搞了一堆破烂3D的今天铳梦和攻壳的老粉看这播片很难不产生好感  所以虽然 ...</blockquote>
 都忘了他画过这个
 
+
+*****
+
+####  jacket  
+##### 294#       发表于 2026-6-7 01:27
+
+都给我吹，狠狠的吹
+
+[https://x.com/SADOUKUJIRA/status/2063130140163637520](https://x.com/SADOUKUJIRA/status/2063130140163637520)
+
+<img src="https://img.stage1st.com/forum/202606/07/012724ys8olm96j9yjlpoo.jpg" referrerpolicy="no-referrer">
+
+<strong>2063130140163637520.jpg</strong> (91.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-7 01:27 上传
+
