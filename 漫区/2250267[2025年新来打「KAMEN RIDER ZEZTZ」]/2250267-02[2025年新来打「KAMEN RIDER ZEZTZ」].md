@@ -4144,3 +4144,14 @@ img_7534.png
 
 你看，又想搞清楚假面骑士的事情，大脑过载了吧<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1856#       发表于 2026-6-6 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69728681&amp;ptid=2250267" target="_blank">milky658 发表于 2026-6-6 08:27</a>
+
+时王那玩意想想就好笑，一开始宣传的真结局，连TV主世界线的，成片出来一看狗屁不通，联系本篇能能出一堆B ...</blockquote>
+时王自己本篇的设定都没捋顺吧，反正看个乐就完事了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
