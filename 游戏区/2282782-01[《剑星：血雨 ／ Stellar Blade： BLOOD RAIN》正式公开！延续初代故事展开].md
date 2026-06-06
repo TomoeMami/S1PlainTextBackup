@@ -2943,3 +2943,22 @@ pc上最火的mod不就是红莲换脸？各种视频都在吹，最伟大的一
 
 点UP的视频你还会发现吹红莲，吹依芙，吹百合都是这一个UP，但可不可以不要以个人XP一叶障目呢？
 
+
+*****
+
+####  uponutopia  
+##### 290#       发表于 2026-6-7 00:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69732141&amp;ptid=2282782" target="_blank">jacket 发表于 2026-6-6 22:43</a>
+
+这个画面的构图以前只在各种插画里见过，如今看人能用CG做出来有点感动</blockquote>
+我觉得在木城摆烂几十年攻壳后面搞了一堆破烂3D的今天铳梦和攻壳的老粉看这播片很难不产生好感  所以虽然我个人铁成女XP并对金这几年滥用AI的搞法不太满意，但我还是相信金先生是个有情怀和追求的人。
+
+<img src="https://img.stage1st.com/forum/202606/07/004914yyrmmlyh5hchmw1m.jpg" referrerpolicy="no-referrer">
+
+<strong>__alita_battle_angel_alita_drawn_by_kim_hyung_tae__sample-98bce4720ffcee6145a344.jpg</strong> (205.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-7 00:49 上传
+
