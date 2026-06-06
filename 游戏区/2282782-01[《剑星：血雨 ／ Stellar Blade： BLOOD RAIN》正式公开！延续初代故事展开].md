@@ -2464,3 +2464,43 @@ nikke的美术总监是老金他老婆 ...</blockquote>
 为什么要在b站和人认真讨论，这是你的错</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看铳梦长大的我都被看成小孩哥了，气不过
 
+
+*****
+
+####  zhouaa  
+##### 255#       发表于 2026-6-6 20:48
+
+ 本帖最后由 zhouaa 于 2026-6-6 20:50 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这两边本质不都一类人  觉得大家要顺着他们的审美要求  
+
+反DEI是反对什么，反对的不是必须要怎么做吗？
+
+
+*****
+
+####  xell2alex  
+##### 256#       发表于 2026-6-6 20:52
+
+幼一点有什么不好，伊芙是高挑的母鹿，新女主是矫健的猎豹，各有各的美味啊
+
+当然，也可能是因为年纪大了已经从找老婆过渡到找妈妈阶段了<img src="https://static.stage1st.com/image/smiley/carton2017/424.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonberry  
+##### 257#       发表于 2026-6-6 20:54
+
+ 本帖最后由 tonberry 于 2026-6-6 20:56 编辑 
+
+这事情简单，出两个xp的可控角色不就完了，比如把渡鸦打复活赛当流程的耍剑角色
+
+*****
+
+####  199april  
+##### 258#       发表于 2026-6-6 20:55
+
+我觉得现在玩家真有点性压抑了，这都能吵起来。不喜欢假小子就不喜欢了，一定要个个都大奈翘臀长腿整容脸吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
