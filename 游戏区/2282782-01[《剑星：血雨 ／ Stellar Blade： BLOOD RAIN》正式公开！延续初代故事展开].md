@@ -1999,3 +1999,18 @@ X有点热度的游戏都是文化战争战场 已经习惯了<img src="https://
 
 这样搞下去也不知道会出什么幺蛾子搞得社区大战。一代就有粉丝跑内衣服装设计原作者下面拉屎。<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雷攻姛人  
+##### 207#       发表于 2026-6-6 17:49
+
+看起来不错，话说剑灵里我最喜欢的是拳师，第二是刺客，所以什么时候再公布女二<img src="https://static.stage1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hqchan  
+##### 208#       发表于 2026-6-6 17:50
+
+小只身材符合我xp，而且反正可以变也没什么所谓，就是这脸和配音感觉不如百合可爱<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
