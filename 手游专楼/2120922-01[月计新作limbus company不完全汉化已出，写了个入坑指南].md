@@ -159,3 +159,33 @@
 
 越来越期待第十章了，希望能像第六章那样贴近原著地致敬，或者第八章那样离经叛道地整活，别涉及太多不相关的现实要素就好...
 
+
+*****
+
+####  Jamaisvu  
+##### 1352#       发表于 2026-6-6 22:24
+
+拖拖拉拉好长时间，终于打完六号线了...：
+
+<img src="https://img.stage1st.com/forum/202606/06/221837dckyanj4xjkxyn8n.jpg" referrerpolicy="no-referrer">
+
+<strong>203C09~1.JPG</strong> (390.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-6 22:18 上传
+
+原本想整个66回合，结果凹到后面没心情了...
+
+纯靠中指奥神力过的关，其实打罗生蝶最好用小指良，但是放弃动脑了...：
+
+<img src="https://img.stage1st.com/forum/202606/06/222302jrkpp7fp4k79tptc.jpg" referrerpolicy="no-referrer">
+
+<strong>201AFA~1.JPG</strong> (560.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-6 22:23 上传
+
+期待在镜牢与它再会...
+
