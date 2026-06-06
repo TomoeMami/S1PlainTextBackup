@@ -495,3 +495,48 @@ Please look forward to it! 💫
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  simonroam  
+##### 53#       发表于 2026-6-6 09:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69728819&amp;ptid=2282782" target="_blank">uponutopia 发表于 2026-6-6 08:59</a>
+
+虽然主视觉图一眼ai，但没看出pv里ai味在哪，鉴ai大神还请赐教 至于中文字，是没玩过本体吗 ...</blockquote>
+你没看出AI味是好事啊，现在AI是大势所趋，就应该多用，特别是场景地编，就算要重新拆件拓扑也比以前要快多了
+
+
+*****
+
+####  Schwarzess  
+##### 54#       发表于 2026-6-6 09:21
+
+pv的招牌上的字挺多都是一眼ai的。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  xunit  
+##### 55#       发表于 2026-6-6 09:21
+
+就金hentai这尿性，还是等完全版出了再买
+
+*****
+
+####  落花微塵  
+##### 56#       发表于 2026-6-6 09:24
+
+我要长发大姐姐。<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  outerish  
+##### 57#       发表于 2026-6-6 09:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69728833&amp;ptid=2282782" target="_blank">spieler 发表于 2026-6-6 09:04</a>
+
+假小子怎么换装，剑星最大卖点不就是那堆衣服，总不能还可以换义体吧
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+假小子怎么就不能换装了，而且发型也可以换
+
