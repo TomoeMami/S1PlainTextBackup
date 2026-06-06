@@ -4129,3 +4129,18 @@ img_7534.png
 
 <img src="https://img.stage1st.com/forum/202606/06/010137oymoa7dw62y8zd6b.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  milky658  
+##### 1855#       发表于 2026-6-6 08:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69727649&amp;ptid=2250267" target="_blank">浅川雏羽 发表于 2026-6-6 01:03</a>
+
+假面骑士的夏季剧场版向来都分为主世界和平行世界两条路子，旧十年平行世界居多，新十年主世界居多，时王 ...</blockquote>
+时王那玩意想想就好笑，一开始宣传的真结局，连TV主世界线的，成片出来一看狗屁不通，联系本篇能能出一堆BUG。在大家都当它平行世界以后，TV又回顾了剧场版剧情。超全集又是分开来说的，到小说又把TV，OQ和forever都整合到一条线上。民间只能解释为主世界线发生过剧场版类似的事件，但不完全一样，而小说tv外传剧场版已经被q吧切成四份了（X）表现形式来看就是完全对不上的一坨，整了个四不像出来
+
+白仓的设定二十多年前就不能细想，就敏叔叔还能和他对上电波。今年超能力战争也是，说的亚极陀正统续作结果给你放G4计划的画面，最后田崎龙太车轱辘话一堆，我们描绘的是亚极陀世界的未来，TV可能发生过和G4差不多事，你看就完事。
+
+你看，又想搞清楚假面骑士的事情，大脑过载了吧<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
