@@ -780,3 +780,31 @@ tomboy扔子不够大呀，穿瑟瑟的衣服都不够味<img src="https://stati
 
 他就怕别人看不出他用了AI，特别是现在韩国还处于AI风口上
 
+
+*****
+
+####  三尖酸努努  
+##### 82#       发表于 2026-6-6 10:24
+
+ 本帖最后由 三尖酸努努 于 2026-6-6 10:26 编辑 
+
+个人感觉建模风格比一代好，也能接受假小子，但这个假小子没百合好看，你要整成百合那样我一点意见没有
+
+*****
+
+####  drx66  
+##### 83#       发表于 2026-6-6 10:24
+
+比隔壁战神更吸引我
+
+*****
+
+####  Piano-Forest  
+##### 84#         楼主| 发表于 2026-6-6 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69728462&amp;ptid=2282782" target="_blank">Piano-Forest 发表于 2026-6-6 07:35</a>
+
+主视觉图</blockquote>
+补个地址（不知道为啥是加拿大沃尔玛等其他外媒先公开的<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> ）
+[https://x.com/i/status/2063032615758614649](https://x.com/i/status/2063032615758614649)
+
