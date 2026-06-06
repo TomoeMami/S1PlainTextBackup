@@ -2130,3 +2130,13 @@ X有点热度的游戏都是文化战争战场 已经习惯了<img src="https://
 
 我觉得女主挺好的，我建议是加大剂量，学学隔壁红沙
 
+
+*****
+
+####  名居守  
+##### 221#       发表于 2026-6-6 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731204&amp;ptid=2282782" target="_blank">Rary 发表于 2026-6-6 18:39</a>
+这脸不就是典型的韩式网红脸吗。而且因为看起来像14岁以下，欧美那边现在主要在争论这算不算是炼铜。这种在 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">雀斑很好的弥补了这一点
+
