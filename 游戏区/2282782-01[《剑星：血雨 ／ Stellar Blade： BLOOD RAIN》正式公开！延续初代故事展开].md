@@ -2504,3 +2504,43 @@ nikke的美术总监是老金他老婆 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  黑猫软  
+##### 259#       发表于 2026-6-6 20:56
+
+ 本帖最后由 黑猫软 于 2026-6-6 20:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731504&amp;ptid=2282782" target="_blank">アヘ顔 发表于 2026-6-6 20:01</a>
+
+这有点夸张了吧
+
+堂堂索尼眼馋剑星这点销量？</blockquote>
+
+这要是不脱离独占，他们就会说是索尼指使改建模的了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pgain2004  
+##### 260#       发表于 2026-6-6 20:59
+
+那大流量社区（B站小黑盒）一大堆连205楼这种都不如的，有什么办法（摊手）
+
+
+*****
+
+####  jacket  
+##### 261#       发表于 2026-6-6 21:01
+
+PV里这套斗篷+白色紧身衣的造型总觉得可以归入街头露出的分类
+
+*****
+
+####  suzakushi  
+##### 262#       发表于 2026-6-6 21:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731725&amp;ptid=2282782" target="_blank">199april 发表于 2026-6-6 20:55</a>
+
+我觉得现在玩家真有点性压抑了，这都能吵起来。不喜欢假小子就不喜欢了，一定要个个都大奈翘臀长腿整容脸吗 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说得好像现在能见到几个大奈翘臀长腿整容脸似的。
+
