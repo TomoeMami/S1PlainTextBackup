@@ -2820,3 +2820,18 @@ BS时代只用拳师的表示满意，要是反派那边能出一个温妮莎同
 
 散了吧，感觉还早得很，说不定跟一代一样做得差不多的时候角色形象跟早期已经不一样了
 
+
+*****
+
+####  theworld  
+##### 279#       发表于 2026-6-6 22:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">能换长发必定首发！
+
+*****
+
+####  liuguokobe  
+##### 280#       发表于 2026-6-6 22:54
+
+比一代那个齐刘海强多了，一代我最气不过的是原来日系校服小妹变成齐刘海大姐头了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
