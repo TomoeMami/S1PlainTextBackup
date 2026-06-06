@@ -1692,3 +1692,38 @@ SHIFT UP 宣布推出《剑星》续作《剑星 血雨》。平台和发售 ...
 
 买了1，最后发现自己只是喜欢瑟瑟，游戏根本玩不下去<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 177#       发表于 2026-6-6 15:20
+
+你个浓眉大眼的也盯缝
+
+[https://x.com/akiman7/status/2063055939130016234](https://x.com/akiman7/status/2063055939130016234)
+
+<img src="https://img.stage1st.com/forum/202606/06/152026e7dbzf5253r1j23r.jpg" referrerpolicy="no-referrer">
+
+<strong>2063055939130016234.jpg</strong> (78.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-6 15:20 上传
+
+*****
+
+####  食粪者  
+##### 178#       发表于 2026-6-6 15:22
+
+我tm社保，一天到晚都在想这假小子
+
+*****
+
+####  电风扇  
+##### 179#       发表于 2026-6-6 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69730494&amp;ptid=2282782" target="_blank">jokertx 发表于 2026-6-6 14:35</a>
+
+女主基本是完全就是加里+素子的人设，机甲术、短发、嘟嘟嘴、紧身衣、条子，而且她们漫画也都是苗条纤细型 ...</blockquote>
+确实，再加上不那么白的皮肤和略显油腻的画风，完全是士郎正宗XP带
+
