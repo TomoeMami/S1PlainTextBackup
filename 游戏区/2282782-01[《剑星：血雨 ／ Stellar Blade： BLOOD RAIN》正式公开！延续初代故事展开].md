@@ -3106,3 +3106,11 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 对波 对比
 <img src="https://p.sda1.dev/32/698fc975e3dba7347069487c4c5c190b/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  龙骑士尹志平  
+##### 302#       发表于 2026-6-7 06:17
+
+假小子太棒了
+
