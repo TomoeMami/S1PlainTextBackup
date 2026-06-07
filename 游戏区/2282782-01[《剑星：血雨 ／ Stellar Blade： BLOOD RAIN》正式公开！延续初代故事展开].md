@@ -3164,3 +3164,22 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 这人设也有人掀桌吗 绝望了，巴不得金哥梭哈ai工具链2027让我玩到
 
+
+*****
+
+####  再也不咬钩勒  
+##### 308#       发表于 2026-6-7 08:58
+
+不是所有人都喜欢假小子，尤其是幼态体型的假小子，要正视假小子只是小众XP
+
+—— 来自 HONOR SER-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Piano-Forest  
+##### 309#         楼主| 发表于 2026-6-7 09:03
+
+与横山昌义合照
+<img src="https://p.sda1.dev/32/cab9c0e7e9380097a6d758ed1888e4d1/1000167695.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/66cb1fa72e4dc112e73272925e7f2138/1000167696.jpg" referrerpolicy="no-referrer">
+
