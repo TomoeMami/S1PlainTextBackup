@@ -214,3 +214,38 @@ a社自己泄露kv
 
 不做的话是真出生了。感觉玩家们会大炎上
 
+
+*****
+
+####  这次是十块钱  
+##### 181#       发表于 2026-6-7 19:55
+
+鸣上哥这发福了啊
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  hkguty  
+##### 182#       发表于 2026-6-7 19:55
+
+当然是放DLC里啊，想啥呢你们<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 183#       发表于 2026-6-7 20:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69735281&amp;ptid=2253117" target="_blank">hkguty 发表于 2026-6-7 19:55</a>
+
+当然是放DLC里啊，想啥呢你们</blockquote>
+上面也都说了黄金版那些东西根本做不了DLC，全是插在主线里的，又不像P3R的アイギス章是后传
+
+*****
+
+####  u2deack  
+##### 184#       发表于 2026-6-7 20:02
+
+所以天天发问卷装模作样问玩家能不能接受加强版我真是不懂他们什么意思
+
