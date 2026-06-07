@@ -4376,3 +4376,17 @@ Secure the secret weapon.（确保夺得秘密武器）
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">柴崎是不是有点太爱他这个B对拳了。。。
 
+
+*****
+
+####  相濡以沫  
+##### 1879#       发表于 2026-6-7 12:02
+
+ 本帖最后由 相濡以沫 于 2026-6-7 12:05 编辑 
+
+code篇是真的烂成屎了，反派纯靠下三赖硬实力菜的抠脚毫无逼格，主角硬送超梦大爹现在看来真毫无意义，然后又这么简单的找回来了，跟儿戏一样<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+然后哥哥的升级也是无趣，说到底就是拿了点幻影梦魇力量的脚皮，就感觉好low啊，被这种形态打爆的老3和code就更low了
+
+—— 来自 OPPO PHY110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

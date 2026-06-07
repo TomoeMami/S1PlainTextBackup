@@ -3268,3 +3268,11 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 从卖相来说还行，起码不是一脸暴死相。
 
+
+*****
+
+####  Rainwedell  
+##### 319#       发表于 2026-6-7 11:59
+
+黑盒上有人跑了 ai 图我觉得倒是比原设好看点，没那么幼，女人味更重
+
