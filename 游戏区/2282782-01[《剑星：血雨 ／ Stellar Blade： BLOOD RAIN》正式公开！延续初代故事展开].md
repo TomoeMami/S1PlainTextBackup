@@ -3419,3 +3419,13 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 不还是成全老金？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sliver1997  
+##### 332#       发表于 2026-6-7 13:06
+
+脸比伊芙强多了，玩不下去剑星就是伊芙那脸太别扭
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
