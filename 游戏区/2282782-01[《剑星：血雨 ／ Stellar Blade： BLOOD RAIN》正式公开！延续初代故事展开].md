@@ -3666,3 +3666,11 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 —— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  jinuzuktII  
+##### 356#       发表于 2026-6-7 21:52
+
+还有跟傻逼白皮猪共振，没救了，人家根本不玩游戏，纯输出意识形态的
+
