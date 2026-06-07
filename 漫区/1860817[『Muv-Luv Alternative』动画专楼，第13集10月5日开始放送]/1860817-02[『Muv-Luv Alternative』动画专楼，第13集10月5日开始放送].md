@@ -126,3 +126,21 @@
 也有可能是下周卖有偿PTS</blockquote>
 原作最后咋收尾的，狠狠地发兄妹卡吗
 
+
+*****
+
+####  Toby_dak  
+##### 2473#       发表于 2026-6-7 21:32
+
+<img src="https://img.stage1st.com/forum/202606/07/223149alvxlkve8xnw4fig.jpg" referrerpolicy="no-referrer">
+
+<strong>f2fd5da6e2608a45a78e4af687820aaa.jpg</strong> (340.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-7 21:31 上传
+
+吉宗前几天在X上发的世界线。
+
+所以INTEGRATE什么时候出<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
