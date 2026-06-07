@@ -3204,3 +3204,11 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 纠正，贫乳带雀斑的假小子
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月光下的静寂  
+##### 312#       发表于 2026-6-7 09:57
+
+脸假小子还行，但这身材不觉得很割裂吗，就是一代女主缩胸然后套过来的。。
+
