@@ -1314,3 +1314,172 @@ b站看抗朝
 
 目前综合来看，距以前的E3水准还是有差距啊
 
+
+*****
+
+####  嘉术2015  
+##### 169#       发表于 2026-6-8 02:08
+
+北韩有这么猛吗
+
+整得这几个士兵像个rz一样
+
+*****
+
+####  karastar  
+##### 170#       发表于 2026-6-8 02:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69737096&amp;ptid=2277873" target="_blank">嘉术2015 发表于 2026-6-8 02:08</a>
+北韩有这么猛吗
+
+整得这几个士兵像个rz一样</blockquote>
+不加强一点怎么打得过玩家超人<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  姬茧墨  
+##### 171#       发表于 2026-6-8 02:10
+
+软软这发布会也太勾八烂了
+
+*****
+
+####  朋友费小号  
+##### 172#       发表于 2026-6-8 02:11
+
+虽然看见恶魔城感觉眼前一亮，但感觉整体拉了
+
+*****
+
+####  漫漫来  
+##### 173#       发表于 2026-6-8 02:11
+
+我服了，被隔壁sop吊起来打
+
+*****
+
+####  葵  
+##### 174#       发表于 2026-6-8 02:11
+
+前面节奏比索尼好，后面节奏比索尼拉胯，半斤八两吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嘉术2015  
+##### 175#       发表于 2026-6-8 02:12
+
+感觉这宣传片都是预制的
+
+一整个看下来硬是没记住几个游戏
+
+*****
+
+####  医生狼多  
+##### 176#       发表于 2026-6-8 02:12
+
+别争了，都不如sgf<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你好s1  
+##### 177#       发表于 2026-6-8 02:13
+
+    这几天的游戏发布会，第三方已经很少DEI了，只有索尼和微软还在搞DEI<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Gigax  
+##### 178#       发表于 2026-6-8 02:13
+
+cod毁了这个夜晚，感觉最大的竟然是卧龙2，别的要么公布过了要么没啥分量<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cranberries  
+##### 179#       发表于 2026-6-8 02:13
+
+真的浪费时间我说实话
+
+*****
+
+####  Piano-Forest  
+##### 180#         楼主| 发表于 2026-6-8 02:13
+
+<img src="https://p.sda1.dev/32/b10d4add80c33c81aa381129fcb2e89c/1000167722.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  zycilcy  
+##### 181#       发表于 2026-6-8 02:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69737096&amp;ptid=2277873" target="_blank">嘉术2015 发表于 2026-6-8 02:08</a>
+北韩有这么猛吗
+
+整得这几个士兵像个rz一样</blockquote>
+主体士兵可是能在库尔斯克步枪击落无人机/fpv的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  frankCC  
+##### 182#       发表于 2026-6-8 02:14
+
+险胜未来游戏展<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嘉术2015  
+##### 183#       发表于 2026-6-8 02:14
+
+等一个p6宣传片的万字解析
+
+*****
+
+####  饂飩  
+##### 184#       发表于 2026-6-8 02:15
+
+阴间游戏有点多<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ybfelix  
+##### 185#       发表于 2026-6-8 02:15
+
+话说GTA6这个暑期档期还宣发不？
+
+*****
+
+####  HATENA  
+##### 186#       发表于 2026-6-8 02:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69737118&amp;ptid=2277873" target="_blank">你好s1 发表于 2026-6-8 02:13</a>
+
+这几天的游戏发布会，第三方已经很少DEI了，只有索尼和微软还在搞DEI</blockquote>
+大公司dei已经是底层业绩，更别说娱乐创作者浸入味的多了去了
+
+*****
+
+####  nagisa123  
+##### 187#       发表于 2026-6-8 02:16
+
+前面还行，后面太拉了，微软真是扶不起的阿斗
+
+*****
+
+####  新庄運切  
+##### 188#       发表于 2026-6-8 02:17
+
+我说开始拉就是杯赛出现的时间后有没有懂的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ybfelix  
+##### 189#       发表于 2026-6-8 02:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69737094&amp;ptid=2277873" target="_blank">小学生把持不住 发表于 2026-6-8 02:08</a>
+
+目前三个超长播片会放一起看，距以前的E3（画饼）水准还是有差距，这是为什么呢 ...</blockquote>
+其实E3最后几年已经很不行了啊，我有印象，也是这种搞半天没啥大的
+
