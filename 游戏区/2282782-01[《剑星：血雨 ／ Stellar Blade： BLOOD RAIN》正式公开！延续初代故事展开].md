@@ -3250,3 +3250,13 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 首发剑星1PS5豪华版的表示当初剑星是这吊样子后面也没啥剑星了
 
+
+*****
+
+####  精英级自演乙  
+##### 317#       发表于 2026-6-7 10:45
+
+ 本帖最后由 精英级自演乙 于 2026-6-7 10:47 编辑 
+
+出必买<img src="https://static.stage1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">唯一缺点不够大，需要更大只的tomboy
+

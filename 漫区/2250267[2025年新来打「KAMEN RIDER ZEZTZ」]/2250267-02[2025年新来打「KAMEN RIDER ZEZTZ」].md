@@ -4285,3 +4285,11 @@ Secure the secret weapon.（确保夺得秘密武器）
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">之前都没意识到，现在才反应过来黑箱事件是真的能杀人的
 
+
+*****
+
+####  金星  
+##### 1869#       发表于 2026-6-7 10:45
+
+依旧幽默牢柴，跟灾厄初登场一个毛病，转折太硬了，说了两句话就直接解开心结<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
