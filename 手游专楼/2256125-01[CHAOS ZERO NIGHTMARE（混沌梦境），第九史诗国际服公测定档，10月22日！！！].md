@@ -2015,3 +2015,15 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 国服相当于直接上第三赛季，前俩赛季直接在主线里能玩到，优化和出击也基本跟上，所以备战市长没毛病<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 目前国服限行角色确定是国际服第三赛季后休赛期up，也就是提前拿来给国服引流<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LMBS  
+##### 929#       发表于 2026-6-7 18:29
+
+出击的商店限时是不是优先买前三个，为了开荒方便买了定制三个圣遗物的材料
+
+感觉一周两把不能全买完
+
+出击每场战斗后是不是不闪已有的卡牌，只能靠营地升级
+

@@ -3499,3 +3499,20 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 — from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  江戸前ルナ  
+##### 340#       发表于 2026-6-7 18:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69733935&amp;ptid=2282782" target="_blank">名居守 发表于 2026-6-7 13:25</a>
+
+看来剑星1的伤害对某些人太大了
+
+粉丝群体还在吵xp，某些人就巴不得剑星2销量暴死了
+
+这种对剑星恨之入骨又把 ...</blockquote>
+老实说，像我这种很喜欢1代对2代的主角很不对性癖的，根据1代的情况，我相信金大师到时游戏里绝对会给出长发大胸的选项给玩家的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+更何况这PV打击感进化的那个强，只会想着什么时候能玩。所以那些直接咒暴死的，是真不好说<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
