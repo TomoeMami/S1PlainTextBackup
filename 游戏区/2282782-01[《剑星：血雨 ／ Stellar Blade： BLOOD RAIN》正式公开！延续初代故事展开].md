@@ -3407,3 +3407,15 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 其实单从鼓气前表情硬起来的这帧看也不算幼吧</blockquote>
 本来就不幼，骂幼态审美99%是来圈地的。
 
+
+*****
+
+####  爱撕衣魔刃  
+##### 331#       发表于 2026-6-7 12:58
+
+狠狠暴捶DEI和白皮脑内就够了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+不爽可以不要掏钱给老金，一边骂一边买/玩，
+
+不还是成全老金？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
