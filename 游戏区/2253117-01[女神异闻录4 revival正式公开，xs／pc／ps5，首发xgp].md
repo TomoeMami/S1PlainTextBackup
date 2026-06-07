@@ -745,3 +745,18 @@ ORAS？？？
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  astrayl  
+##### 239#       发表于 2026-6-8 02:39
+
+希望还是能加点料啊
+
+*****
+
+####  crosz1985  
+##### 240#       发表于 2026-6-8 02:39
+
+首发没有ns2啊
+
