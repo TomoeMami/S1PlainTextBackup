@@ -3276,3 +3276,87 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 黑盒上有人跑了 ai 图我觉得倒是比原设好看点，没那么幼，女人味更重
 
+
+*****
+
+####  SergeGlenn  
+##### 320#       发表于 2026-6-7 12:18
+
+白左都在骂喜欢这游戏的人是pedo233
+
+主要是第一张侧脸特写太幼了，后面实机脸正常了不少
+
+
+*****
+
+####  五块  
+##### 321#       发表于 2026-6-7 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69733187&amp;ptid=2282782" target="_blank">被击坠王 发表于 2026-6-7 10:08</a>
+
+都在为角色设计争得死去活来，殊不知游戏无聊乏味才是原罪</blockquote>
+冷知识，好玩的游戏多了去，剑星这样从设计到动作都是为了服务男性看美女的大作仅此一家<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  缺德猫  
+##### 322#       发表于 2026-6-7 12:18
+
+初设好像也挺幼的
+
+<img src="https://img.stage1st.com/forum/202606/07/121825knbanj1k1aactaad.jpg" referrerpolicy="no-referrer">
+
+<strong>Stellar Blade™ (Project EVE) - Early Prototype Teaser.webm_20260607_121256.279.jpg</strong> (289.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-7 12:18 上传
+
+<img src="https://img.stage1st.com/forum/202606/07/121840ptet7vu7ui2ykvzv.jpg" referrerpolicy="no-referrer">
+
+<strong>Stellar Blade™ (Project EVE) - Early Prototype Teaser.webm_20260607_121239.528.jpg</strong> (223.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-7 12:18 上传
+
+
+*****
+
+####  maiyunfei  
+##### 323#       发表于 2026-6-7 12:21
+
+初设比现在的好，婴儿肥实在硬不出来
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  寂长无星夜  
+##### 324#       发表于 2026-6-7 12:21
+
+想起来隔壁街霸的新角色，这才叫假小子好吧<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202606/07/122121fd5epcjnjanxbxdd.png" referrerpolicy="no-referrer">
+
+<strong>4EA0ACE781EF2B052E1BFDD6A6A00D06.png</strong> (214.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-7 12:21 上传
+
+*****
+
+####  アヘ顔  
+##### 325#       发表于 2026-6-7 12:21
+
+初设那个太硅胶了
+死或生当时都不这么硅胶了...
+
+*****
+
+####  nancygreenlife  
+##### 326#       发表于 2026-6-7 12:22
+
+一点儿也不色，谁家小孩
+
