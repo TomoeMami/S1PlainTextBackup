@@ -474,3 +474,13 @@ p3重置也没有哈姆子啊
 如果真是原版重置，按A畜的尿性肯定是看P4R的反响，卖的好P4RG闪亮登场，当然无法继承存档，原价重新买，P4R玩家喜当有料试玩，卖的不好就没有然后了。<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  发呆的龙虾  
+##### 209#       发表于 2026-6-7 23:18
+
+不带g不才是a社正常操作么。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
