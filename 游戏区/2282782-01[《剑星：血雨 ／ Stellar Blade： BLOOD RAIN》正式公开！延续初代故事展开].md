@@ -3453,3 +3453,11 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 粉丝群体还在吵xp，某些人就巴不得剑星2销量暴死了
 这种对剑星恨之入骨又把自己当成剑星2声援者的扭曲味就是我想看的啊
 
+
+*****
+
+####  Vladimeow  
+##### 335#       发表于 2026-6-7 13:41
+
+很急，赶紧开放预购，直接买爆
+
