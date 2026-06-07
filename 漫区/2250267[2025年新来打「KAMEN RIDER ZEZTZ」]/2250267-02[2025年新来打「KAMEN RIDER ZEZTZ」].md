@@ -4172,3 +4172,11 @@ img_7534.png
 <img src="https://p.sda1.dev/32/a7ecdab54c7fe3c427ba1572779f1e67/image.jpg" referrerpolicy="no-referrer">
 zzz oneness（
 
+
+*****
+
+####  石狮鬼  
+##### 1859#       发表于 2026-6-7 08:22
+
+老五就这么草率地给炸死了？希望有烟无伤吧（但是所有胶囊都交了感觉没戏了）
+
