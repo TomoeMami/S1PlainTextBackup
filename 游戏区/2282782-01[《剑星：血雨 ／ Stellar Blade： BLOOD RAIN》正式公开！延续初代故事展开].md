@@ -3556,3 +3556,13 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 —— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  leonz79  
+##### 345#       发表于 2026-6-7 19:27
+
+<blockquote>gudamwingzero 发表于 2026-6-6 20:27
+“其中，在主题和设计方面最受启发的是日本漫画家木城雪户的漫画《铳梦》。它在2019年被拍成动作片上映，片 ...</blockquote>
+铳梦主角可没有一点点假小子的味道
+
