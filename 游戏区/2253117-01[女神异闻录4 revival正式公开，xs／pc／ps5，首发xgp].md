@@ -463,3 +463,14 @@ p3重置也没有哈姆子啊
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nozomitech  
+##### 208#       发表于 2026-6-7 23:10
+
+ 本帖最后由 nozomitech 于 2026-6-7 16:13 编辑 
+
+如果真是原版重置，按A畜的尿性肯定是看P4R的反响，卖的好P4RG闪亮登场，当然无法继承存档，原价重新买，P4R玩家喜当有料试玩，卖的不好就没有然后了。<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
