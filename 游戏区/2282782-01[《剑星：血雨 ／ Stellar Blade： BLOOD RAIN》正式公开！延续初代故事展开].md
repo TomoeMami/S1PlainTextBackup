@@ -3239,3 +3239,14 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 这个感觉不算假小子吧。
 
+
+*****
+
+####  lucky117  
+##### 316#       发表于 2026-6-7 10:20
+
+这脸模越看越丑<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+身材也太小只马
+
+首发剑星1PS5豪华版的表示当初剑星是这吊样子后面也没啥剑星了
+
