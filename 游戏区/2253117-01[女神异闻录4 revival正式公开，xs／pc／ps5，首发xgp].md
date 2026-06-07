@@ -110,3 +110,21 @@ P4G可是整个游戏结构性的改变</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话没任何可能  你难道没玩过p4g吗 跟p3后日谈完全不是一个性质
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如等我们伟大的啊托拉斯直接掏出p4gr
 
+
+*****
+
+####  沧兰殇  
+##### 171#       发表于 2026-6-7 17:29
+
+重制原版，然后dlc黄金版还是重制原版，再重置一个黄金版单独卖，数据不互通？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  RinC  
+##### 172#       发表于 2026-6-7 17:37
+
+说难听点一开始就做p4g不比做塞了新系统的dlc的工作量小多了，阿特拉斯这种铁公鸡真的会额外给你花功夫做dlc吗，我是不太信的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
