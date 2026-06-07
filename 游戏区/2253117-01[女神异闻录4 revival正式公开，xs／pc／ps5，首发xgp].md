@@ -136,3 +136,22 @@ P4G可是整个游戏结构性的改变</blockquote>
 
 因为是atlus，估计还真能做出来这事<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 174#       发表于 2026-6-7 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69734730&amp;ptid=2253117" target="_blank">RinC 发表于 2026-6-7 17:37</a>
+
+说难听点一开始就做p4g不比做塞了新系统的dlc的工作量小多了，阿特拉斯这种铁公鸡真的会额外给你花功夫做dl ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">g毕竟穿插再主线里的  做成dlc不太可能 但是做成全新的p4gr呢！
+
+
+*****
+
+####  泡吧泡吧泡吧  
+##### 175#       发表于 2026-6-7 17:54
+
+A➗做出这种事一点都不惊讶呢
+

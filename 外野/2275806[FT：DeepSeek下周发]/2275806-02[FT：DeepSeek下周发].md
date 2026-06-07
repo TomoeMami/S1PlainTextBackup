@@ -2021,3 +2021,15 @@ Pi真的这么爽吗，工具都要自己写会不会很麻烦
 
 不过这样造的轮子也太多了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  overflowal  
+##### 1655#       发表于 2026-6-7 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69734637&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-6-7 17:15</a>
+Pi真的这么爽吗，工具都要自己写会不会很麻烦
+
+我现在用opencode比较不爽的就是自带的移动端太烂了，试过折 ...</blockquote>
+你想有个开箱即用的体验的话你可以试试ohmypi，一个pi的强化版fork    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
