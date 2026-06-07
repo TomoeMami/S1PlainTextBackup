@@ -3375,3 +3375,35 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 <img src="https://p.sda1.dev/32/a24e6719169f750ec6a652f68ac90847/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/6d7230e14d424485d29fe96d2595fe62/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  樽——見  
+##### 328#       发表于 2026-6-7 12:35
+
+那句废话咋说的，“钱包在自己手里”<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+建议用销量惩罚金恒泰的路线错误嗷<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ParadiseMartyr  
+##### 329#       发表于 2026-6-7 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69733735&amp;ptid=2282782" target="_blank">格林达姆 发表于 2026-6-7 12:29</a>
+其实单从鼓气前表情硬起来的这帧看也不算幼吧</blockquote>
+反正说不上来那里奇怪…你这个p图也很难看
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  五块  
+##### 330#       发表于 2026-6-7 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69733735&amp;ptid=2282782" target="_blank">格林达姆 发表于 2026-6-7 12:29</a>
+
+其实单从鼓气前表情硬起来的这帧看也不算幼吧</blockquote>
+本来就不幼，骂幼态审美99%是来圈地的。
+
