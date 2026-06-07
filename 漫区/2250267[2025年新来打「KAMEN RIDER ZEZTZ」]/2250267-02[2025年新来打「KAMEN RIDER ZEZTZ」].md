@@ -4497,3 +4497,11 @@ zzz oneness（</blockquote>
 
 之前说老师会有单独的故事线，看完给我的感觉是，就这？然后这集明明是双最终出场，结果打戏也是没啥亮点。<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 1891#       发表于 2026-6-7 15:55
+
+nox这线摆明写烂了，原本以为二周目可以着重讲不再谜语人，结果基本没他什么事，要出最终了甚至超梦都强行ban了我还以为这几集会有点信息量，结果完全不知道在演什么，然后code线又这样很随便地收完了……
+
