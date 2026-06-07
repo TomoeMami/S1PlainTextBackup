@@ -430,3 +430,11 @@ Xbox卖了，和事变日无缘了
 
 有p6最多也就是个像去年p4r那样的片子，或者就公开个正在制作中
 
+
+*****
+
+####  Midnight.Coup  
+##### 53#       发表于 2026-6-7 20:31
+
+Halo Campaign Evolved 发售日什么的会有吧，也可以取消改独占<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

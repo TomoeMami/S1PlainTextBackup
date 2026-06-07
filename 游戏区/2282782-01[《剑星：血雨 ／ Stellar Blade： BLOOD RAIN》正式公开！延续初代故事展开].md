@@ -3603,3 +3603,32 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同样是假小子，性张力完全不如隔壁铁拳8的丽奈。
 
+
+*****
+
+####  缺德猫  
+##### 350#       发表于 2026-6-7 20:29
+
+<img src="https://img.stage1st.com/forum/202606/07/202907ess1th0ue3r1100s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (68.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-7 20:29 上传
+
+<img src="https://img.stage1st.com/forum/202606/07/202940yhe1zqot1qohdoo8.jpg" referrerpolicy="no-referrer">
+
+<strong>Stellar Blade： BLOOD RAIN ｜ Official Reveal Trailer.webm_20260607_120836.108.jpg</strong> (310.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-7 20:29 上传
+
+*****
+
+####  laputah  
+##### 351#       发表于 2026-6-7 20:33
+
+加强屁股是对的 
+
