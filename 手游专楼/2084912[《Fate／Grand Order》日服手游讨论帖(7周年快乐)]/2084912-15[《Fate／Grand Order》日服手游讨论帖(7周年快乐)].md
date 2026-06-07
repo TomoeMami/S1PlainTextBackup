@@ -922,3 +922,14 @@ X_536KSAJOD2{CJ{B$QV~%0.jpg
 非洲人难得抽1次卡就非成这样</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">羡慕 大佬2000 萌新0石 还什么都没出
 
+
+*****
+
+####  森兰丸  
+##### 20923#       发表于 2026-6-7 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69734446&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-6-7 16:12</a>
+
+羡慕 大佬2000 萌新0石 还什么都没出</blockquote>
+可是非洲人的5星数量还不及萌新的一半!<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
