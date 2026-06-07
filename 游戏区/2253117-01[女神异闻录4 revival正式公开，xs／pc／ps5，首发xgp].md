@@ -735,3 +735,13 @@ ORAS？？？
 
 比我想的好，我本来真担心他们会把老电视ui改掉的<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">p4的确还是要保留时代感一点好，黄色既明亮又有记忆中褪色的感觉
 
+
+*****
+
+####  失忆的香槟  
+##### 238#       发表于 2026-6-8 02:32
+
+是我期待的p3r风味重制，加上有玛丽允许阿特拉斯的马返回大气层。但看了重制的人物模型又有点怅然若失，我居然像有姨姥臭一样的觉得有些雷霆演出还是原版的老鼠干有内味儿<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
