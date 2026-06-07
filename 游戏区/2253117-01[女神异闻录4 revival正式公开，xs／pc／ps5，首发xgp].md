@@ -851,3 +851,13 @@ p系列首次启用土居恶魔
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  InfiniteGyre  
+##### 248#       发表于 2026-6-8 07:23
+
+完了，看了又想凯了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
