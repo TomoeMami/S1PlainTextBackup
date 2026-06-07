@@ -727,3 +727,11 @@ ORAS？？？
 
 不过我看这迷宫是一点没改啊，真的屎
 
+
+*****
+
+####  lihetianjian  
+##### 237#       发表于 2026-6-8 02:24
+
+比我想的好，我本来真担心他们会把老电视ui改掉的<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">p4的确还是要保留时代感一点好，黄色既明亮又有记忆中褪色的感觉
+
