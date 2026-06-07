@@ -438,3 +438,19 @@ Xbox卖了，和事变日无缘了
 
 Halo Campaign Evolved 发售日什么的会有吧，也可以取消改独占<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maomaoying  
+##### 54#       发表于 2026-6-7 20:37
+
+会有老滚6吗
+
+
+*****
+
+####  SergeGlenn  
+##### 55#       发表于 2026-6-7 20:40
+
+微软自己的好像没啥期待的，基本都公布知道了，主要看能捞到什么第三方了
+
