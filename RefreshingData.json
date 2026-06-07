@@ -1256,7 +1256,7 @@
     "newtitle": "[Fate／Grand Order FGO国服专楼 12／18 3000天已过，笑看日服运营入坟]",
     "lastedit": 1780581847,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1334731": {
@@ -11331,10 +11331,10 @@
     "update": false
   },
   "2251486": {
-    "totalreply": 7122,
+    "totalreply": 7123,
     "title": "[【纯良向】米哈游百合讨论楼2]",
     "newtitle": "[【纯良向】米哈游百合讨论楼2]",
-    "lastedit": 1780826047,
+    "lastedit": 1780841045,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 15076,
+    "totalreply": 15077,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼5月]",
-    "lastedit": 1780840567,
+    "lastedit": 1780841166,
     "category": "外野",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 35923,
+    "totalreply": 35925,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1780840566,
+    "lastedit": 1780841285,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13536,10 +13536,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 4249,
+    "totalreply": 4251,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1780840445,
+    "lastedit": 1780841285,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14697,10 +14697,10 @@
     "update": false
   },
   "2253117": {
-    "totalreply": 203,
+    "totalreply": 206,
     "title": "[女神异闻录4 revival正式公开，xs／pc／ps5，首发xgp]",
     "newtitle": "[女神异闻录4 revival正式公开，xs／pc／ps5，首发xgp]",
-    "lastedit": 1780840205,
+    "lastedit": 1780840805,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16470,10 +16470,10 @@
     "update": false
   },
   "2254292": {
-    "totalreply": 580,
+    "totalreply": 581,
     "title": "[国产单机《归唐》公开，网易雷火开发]",
     "newtitle": "[国产单机《归唐》公开，网易雷火开发]",
-    "lastedit": 1780839605,
+    "lastedit": 1780840806,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17982,10 +17982,10 @@
     "update": false
   },
   "2282782": {
-    "totalreply": 356,
+    "totalreply": 357,
     "title": "[《剑星：血雨 ／ Stellar Blade： BLOOD RAIN》正式公开！延续初代故事展开]",
     "newtitle": "[《剑星：血雨 ／ Stellar Blade： BLOOD RAIN》正式公开！延续初代故事展开]",
-    "lastedit": 1780840566,
+    "lastedit": 1780841046,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -18126,10 +18126,10 @@
     "update": false
   },
   "2282825": {
-    "totalreply": 65,
+    "totalreply": 66,
     "title": "[现在小孩的名字，为什么像是一个模板里刻出来的]",
     "newtitle": "[现在小孩的名字，为什么像是一个模板里刻出来的]",
-    "lastedit": 1780835885,
+    "lastedit": 1780841167,
     "category": "外野",
     "active": true,
     "update": false
@@ -18198,10 +18198,10 @@
     "update": false
   },
   "2282860": {
-    "totalreply": 65,
+    "totalreply": 67,
     "title": "[“中国的劳动法对劳动者过度保护”]",
     "newtitle": "[“中国的劳动法对劳动者过度保护”]",
-    "lastedit": 1780839970,
+    "lastedit": 1780841166,
     "category": "外野",
     "active": true,
     "update": false
@@ -18274,6 +18274,15 @@
     "title": "[新泽西州网红夫妇决定堕掉唐氏胎儿遭遇网暴和死亡威胁]",
     "newtitle": "[新泽西州网红夫妇决定堕掉唐氏胎儿遭遇网暴和死亡威胁]",
     "lastedit": 1780840566,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2282899": {
+    "totalreply": 41,
+    "title": "[贵港市大东码头14岁女孩落水，多部门证实已遇难，朋友惋惜……]",
+    "newtitle": "[贵港市大东码头14岁女孩落水，多部门证实已遇难，朋友惋惜……]",
+    "lastedit": 1780841167,
     "category": "外野",
     "active": true,
     "update": false

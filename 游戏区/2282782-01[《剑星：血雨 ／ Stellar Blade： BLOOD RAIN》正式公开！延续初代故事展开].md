@@ -3674,3 +3674,13 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 还有跟傻逼白皮猪共振，没救了，人家根本不玩游戏，纯输出意识形态的
 
+
+*****
+
+####  laputah  
+##### 357#       发表于 2026-6-7 22:03
+
+<blockquote>jinuzuktII 发表于 2026-6-7 21:52
+还有跟傻逼白皮猪共振，没救了，人家根本不玩游戏，纯输出意识形态的</blockquote>
+看见个jk啥的就骂pedo的西语用户不服 自认特别信上帝 但喜欢二次元 天天对着二次元喷pedo 也不看看自己祖宗娶的老婆几岁 西语游戏嘉豪也特别多 天天转发什么鬼泣嘉豪切片 游戏出现个女的就急死了 
+

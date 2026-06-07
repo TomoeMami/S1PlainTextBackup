@@ -421,3 +421,33 @@ P4G的izanami则是货真价实神话izanami的邪恶分身，神力也无限增
 
 a社思慕 or 只是海报藏了一手 虚惊一场
 
+
+*****
+
+####  TheOccuria  
+##### 204#       发表于 2026-6-7 21:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">p4g当然是半年后卖你dlc
+
+*****
+
+####  TheOccuria  
+##### 205#       发表于 2026-6-7 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69735621&amp;ptid=2253117" target="_blank">センコウ 发表于 2026-6-7 21:12</a>
+
+玛丽这个角色是直接改变P4整个主线的，有没有玛丽这个角色P4根本是两个剧情
+
+原版izanami只是个叫izanami ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小问题，p5r也不继承p5存档，半年后买了新版记得重新开一周目
+
+*****
+
+####  人畜无害沃特碧  
+##### 206#       发表于 2026-6-7 21:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我倾向于只是藏了一手，一个智力正常的公司应该做不出重制版不带玛丽这种操作
+当然atlus全员出生也不是没有可能
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
