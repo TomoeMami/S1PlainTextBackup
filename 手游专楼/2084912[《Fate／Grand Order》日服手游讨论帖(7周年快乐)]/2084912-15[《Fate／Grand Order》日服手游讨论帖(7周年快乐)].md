@@ -949,3 +949,14 @@ X_536KSAJOD2{CJ{B$QV~%0.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">周常3石是有灵魂的
 
+
+*****
+
+####  森兰丸  
+##### 20925#       发表于 2026-6-8 00:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69736374&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-6-7 23:31</a>
+
+周常3石是有灵魂的</blockquote>
+闇の炎に抱かれて消えろ<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
