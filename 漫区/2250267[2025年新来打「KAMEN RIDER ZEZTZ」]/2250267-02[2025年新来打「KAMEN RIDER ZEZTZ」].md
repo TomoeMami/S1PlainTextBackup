@@ -4277,3 +4277,11 @@ Secure the secret weapon.（确保夺得秘密武器）
 
 就这发便当的速度，后面八成要白魔法把死的人都弄活了
 
+
+*****
+
+####  阿刚  
+##### 1868#       发表于 2026-6-7 10:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">之前都没意识到，现在才反应过来黑箱事件是真的能杀人的
+
