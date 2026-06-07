@@ -249,3 +249,59 @@ a社自己泄露kv
 
 所以天天发问卷装模作样问玩家能不能接受加强版我真是不懂他们什么意思
 
+
+*****
+
+####  whzfjd  
+##### 185#       发表于 2026-6-7 20:04
+
+就不做呗，记得G新规本身评价也一般，R就当做另一个G？
+
+*****
+
+####  moeful  
+##### 186#       发表于 2026-6-7 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69735320&amp;ptid=2253117" target="_blank">u2deack 发表于 2026-6-7 20:02</a>
+
+所以天天发问卷装模作样问玩家能不能接受加强版我真是不懂他们什么意思</blockquote>
+那只能说是孝子应得的<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 187#       发表于 2026-6-7 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69735319&amp;ptid=2253117" target="_blank">黑上シグマ 发表于 2026-6-7 20:02</a>
+
+上面也都说了黄金版那些东西根本做不了DLC，全是插在主线里的，又不像P3R的アイギス章是后传 ...</blockquote>
+我觉得可能是在重制版的无印版里（瞧瞧我TM在说什么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）直接保留一些黄金版的新元素，但是玛丽的一些剧情要单独拆出来卖DLC
+
+*****
+
+####  DARKGRAY  
+##### 188#       发表于 2026-6-7 20:06
+
+那这次肯定不买了，完全版再说<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  戏言学者  
+##### 189#       发表于 2026-6-7 20:06
+
+如果首发版不是黄金版就等着死吧，p3r还没吃到教训吗<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这玩意还不是p3女主线那种工作量巨大的,这都不做<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">真贱啊
+
+*****
+
+####  抽烟的猴  
+##### 190#       发表于 2026-6-7 20:08
+
+p4g的玛丽评价很普通，加戏的动画版更是恶评如潮连芳泽霞的脚指头都摸不到，究竟为什么在国内被岁月史书成优秀女主也不知道
+
+*****
+
+####  黑上シグマ  
+##### 191#       发表于 2026-6-7 20:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我真5V，暗喻，P3R都没买，P5R让我转ATLUS黑了，这次要没玛丽也绝对不买
+

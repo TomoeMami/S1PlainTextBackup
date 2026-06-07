@@ -3574,3 +3574,14 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">可她 真的很像王濛
 
+
+*****
+
+####  今天不守尸  
+##### 347#       发表于 2026-6-7 20:10
+
+经过我对贴吧批站几个帖子的观察，稍微明白了点除了一些反dei入脑的外，为什么还是有不少人接受不了二代女主了
+很多人对假小子的好印象来源是那张经典构图：就是前几格是我和“好兄弟”一起玩闹，被欺负时“好兄弟”还站出来保护我，然后最后一格反转，多年后与“好兄弟”重逢发现她居然是大胸大屁股超性感的短发褐皮美人
+是的，虽然这几年假小子xp挺流行的，也经常有人发假小子涩图，但其中有很大一部分人他们控的严格来说其实是变身系，即丑小鸭变天鹅后带来的视觉冲击和反差感
+原教旨假小子控其实还是很小众，只会被认为是风味南桐<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
