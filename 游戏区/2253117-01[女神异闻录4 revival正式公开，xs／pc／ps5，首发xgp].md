@@ -547,3 +547,124 @@ ORAS？？？
 
 这里面评价最垃圾的其实是P3的后日谈，有很长一段时间我甚至觉得这段剧情已经被打入黑历史了，毕竟动画、P3P都没用做这段剧情，结果老A还是把这玩意掏出来重制了，P4更不可能没玛丽，只是看是怎么给你
 
+
+*****
+
+####  byisme001  
+##### 215#       发表于 2026-6-8 01:16
+
+有玛丽啊 看来是g
+
+*****
+
+####  u2deack  
+##### 216#       发表于 2026-6-8 01:17
+
+还是有玛丽的 他们还有些底线
+
+*****
+
+####  RinC  
+##### 217#       发表于 2026-6-8 01:17
+
+已原谅
+
+*****
+
+####  医生狼多  
+##### 218#         楼主| 发表于 2026-6-8 01:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以说了别急嘛，玛丽这不有吗
+
+*****
+
+####  Piano-Forest  
+##### 219#       发表于 2026-6-8 01:17
+
+27年2月18日发售，首发XGP
+
+*****
+
+####  燃烧的石头  
+##### 220#       发表于 2026-6-8 01:18
+
+已原谅，我还是阿特拉斯凯子
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Nunnallyzz  
+##### 221#       发表于 2026-6-8 01:18
+
+买<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  超极巨鲨鲨  
+##### 222#       发表于 2026-6-8 01:19
+
+这不是有玛丽吗，不过要到27年了啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  alviaze  
+##### 223#       发表于 2026-6-8 01:19
+
+看到了玛丽，已原谅<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leommoo  
+##### 224#       发表于 2026-6-8 01:21
+
+丸辣，我也要原谅了，买过2个版本，又该买了
+
+*****
+
+####  センコウ  
+##### 225#       发表于 2026-6-8 01:21
+
+<img src="https://img.stage1st.com/forum/202606/08/012153p00hcuj2niggchz0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.59 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-8 01:21 上传
+
+番长有十文字切，这玩意可是P4U后才有的东西啊
+
+*****
+
+####  黑暗之眼  
+##### 226#       发表于 2026-6-8 01:21
+
+怎么可能没有玛丽，差不多得了
+
+
+*****
+
+####  猫将军  
+##### 227#       发表于 2026-6-8 01:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看样子就是换皮而已，系统也没改良嘛
+
+*****
+
+####  我特么吹爆  
+##### 228#       发表于 2026-6-8 01:25
+
+暂时原谅
+
+*****
+
+####  crosz1985  
+##### 229#       发表于 2026-6-8 01:25
+
+明年去了
+

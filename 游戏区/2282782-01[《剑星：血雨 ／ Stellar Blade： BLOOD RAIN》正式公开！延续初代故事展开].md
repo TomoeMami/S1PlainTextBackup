@@ -3712,3 +3712,11 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 —— 来自 OnePlus PJZ110, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Ironman_mk5  
+##### 361#       发表于 2026-6-8 01:20
+
+抛开颜值不谈涩度感觉不如前作，别大卖后制作人说什么为了扩大受众有意减少性感度的问题发言就行
+
