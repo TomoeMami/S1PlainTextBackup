@@ -3585,3 +3585,21 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 是的，虽然这几年假小子xp挺流行的，也经常有人发假小子涩图，但其中有很大一部分人他们控的严格来说其实是变身系，即丑小鸭变天鹅后带来的视觉冲击和反差感
 原教旨假小子控其实还是很小众，只会被认为是风味南桐<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  精英级自演乙  
+##### 348#       发表于 2026-6-7 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69735358&amp;ptid=2282782" target="_blank">今天不守尸 发表于 2026-6-7 20:10</a>
+
+经过我对贴吧批站几个帖子的观察，稍微明白了点除了一些反dei入脑的外，为什么还是有不少人接受不了二代女 ...</blockquote>
+没品位的，天王遥都多少年了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">美战的百破本可真是太好用了
+
+*****
+
+####  vmon  
+##### 349#       发表于 2026-6-7 20:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同样是假小子，性张力完全不如隔壁铁拳8的丽奈。
+
