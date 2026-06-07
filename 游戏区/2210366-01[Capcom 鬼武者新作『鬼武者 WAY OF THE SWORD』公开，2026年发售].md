@@ -5857,3 +5857,14 @@ demo没打够，爽是挺爽，但感觉也看不出什么
 又打了十几把佐佐木，一闪是真的爽吧，而且优先级有点高，出招过程、被打硬直、甚至是被佐佐木化劲出刀时都能闪。这游戏玩起来比看起来好太多了，现在的讨论环境我看评价是好不了了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 话说30帧真能提高一闪成功率么。
 
+
+*****
+
+####  shimotsuki14  
+##### 609#       发表于 2026-6-7 18:10
+
+中午玩了一遍，体感怎么比以前玩鬼武者简单多了
+小次郎也好打，初见一遍过
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
