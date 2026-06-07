@@ -4361,3 +4361,18 @@ Secure the secret weapon.（确保夺得秘密武器）
 下集是水鬼……这几位大爷能不能快点完成任务然后走远点啊OTZ</blockquote>
 水鬼放在新章第一个单元献祭掉还挺好的，但后面老柴估计还有一个单元<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  milky658  
+##### 1877#       发表于 2026-6-7 11:19
+
+水怪在最终登场后出来背刺平成传统了，正常编排惩戒梦魇是留给齐格回的，还死不了。预告里又有超梦午夜暗影二打一，就看水怪能不能给这俩体面，不复刻去年三区战僵尸就算胜利<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 1878#       发表于 2026-6-7 11:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">柴崎是不是有点太爱他这个B对拳了。。。
+
