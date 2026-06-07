@@ -4489,3 +4489,11 @@ nox的行为动机连带着code这条线算是写砸了吧…
 zzz oneness（</blockquote>
 看着像大二和超梦酒后犯错的产物<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  发呆的龙虾  
+##### 1890#       发表于 2026-6-7 15:43
+
+之前说老师会有单独的故事线，看完给我的感觉是，就这？然后这集明明是双最终出场，结果打戏也是没啥亮点。<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

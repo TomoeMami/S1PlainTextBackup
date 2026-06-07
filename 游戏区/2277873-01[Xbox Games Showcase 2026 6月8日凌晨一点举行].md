@@ -369,3 +369,29 @@ SEGA最近所有的游戏都是站台XBOX吧，persona公布只能是这儿
 从时间点来看，感觉应该是有Blade，腐烂3，事变日，光环1CE，DoomTDA的新DLC，发条革命。然后Fable可能再放 ...</blockquote>
 辐射3重制可以播一播
 
+
+*****
+
+####  zris  
+##### 47#       发表于 2026-6-7 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69734002&amp;ptid=2277873" target="_blank">showhand2008 发表于 2026-6-7 13:43</a>
+
+有说发布会时长吗？</blockquote>
+90分钟发布会30分钟直面会
+
+这几年都是2小时
+
+
+*****
+
+####  Alect  
+##### 48#       发表于 2026-6-7 15:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69734355&amp;ptid=2277873" target="_blank">ultraseven 发表于 2026-6-7 15:41</a>
+
+辐射3重制可以播一播</blockquote>
+辐射3重制我是信有的，不过总感觉BGS会像去年湮灭重制版一样，找个不是任何发布会的日子搞突然公布，突然发售的节奏。
+
+Crytek我最近确实听说过好像他们日子好转了，原来经济不景气那会把Crysis 4停了然后全力转向维护猎杀，最近好像有把人力逐渐转回其他项目继续开发的说法，没想到是罗马之子复刻，记得当年Crytek还和微软争这个游戏的所有权来着。不过感觉现在出意义不是很大就是了，当年X1和PS4都有一个这种在发售初期秀机能的纯线电影化游戏，一个教团1886一个罗马之子。现在来说画面已经没啥优势了，感觉受众量有限。
+

@@ -3489,3 +3489,13 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 这次英配可以啊，可以考虑一周目原声二周目英配了
 
+
+*****
+
+####  martinoy  
+##### 339#       发表于 2026-6-7 15:50
+
+我也没用过伊芙的原皮，只要有好的发型和衣服还是可以玩的
+
+— from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
