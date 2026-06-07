@@ -4479,3 +4479,13 @@ nox的行为动机连带着code这条线算是写砸了吧…
 
 一整个重拿轻放，所有人都标签式地上线脸谱化地下线
 
+
+*****
+
+####  JOHNCHCHAN  
+##### 1889#       发表于 2026-6-7 15:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69732828&amp;ptid=2250267" target="_blank">挺好的 发表于 2026-6-7 07:38</a>
+zzz oneness（</blockquote>
+看着像大二和超梦酒后犯错的产物<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
