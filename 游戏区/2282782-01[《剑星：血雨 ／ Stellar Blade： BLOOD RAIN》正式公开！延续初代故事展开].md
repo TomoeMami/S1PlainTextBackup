@@ -3429,3 +3429,27 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  アヘ顔  
+##### 333#       发表于 2026-6-7 13:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69733859&amp;ptid=2282782" target="_blank">爱撕衣魔刃 发表于 2026-6-7 12:58</a>
+
+狠狠暴捶DEI和白皮脑内就够了
+
+不爽可以不要掏钱给老金，一边骂一边买/玩，
+
+不还是成全老金？ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">已严肃将1代steam评价修改为差评
+
+*****
+
+####  名居守  
+##### 334#       发表于 2026-6-7 13:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">看来剑星1的伤害对某些人太大了
+粉丝群体还在吵xp，某些人就巴不得剑星2销量暴死了
+这种对剑星恨之入骨又把自己当成剑星2声援者的扭曲味就是我想看的啊
+
