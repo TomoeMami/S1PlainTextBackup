@@ -70,3 +70,43 @@ P4G可是整个游戏结构性的改变
 P4G可是整个游戏结构性的改变</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">简单 直接卖p4gr
 
+
+*****
+
+####  moeful  
+##### 167#       发表于 2026-6-7 17:22
+
+阿特拉斯的吃相你们第一天看？
+
+*****
+
+####  燃烧的石头  
+##### 168#       发表于 2026-6-7 17:23
+
+不带玛丽也太出生了吧，难道还能p4gr再卖一遍
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  syndrome2032  
+##### 169#       发表于 2026-6-7 17:24
+
+这商法p3r还不熟吗
+
+首发xgp，dlc加g模式就行。
+
+*****
+
+####  alucardcz  
+##### 170#       发表于 2026-6-7 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69734668&amp;ptid=2253117" target="_blank">syndrome2032 发表于 2026-6-7 17:24</a>
+
+这商法p3r还不熟吗
+
+首发xgp，dlc加g模式就行。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话没任何可能  你难道没玩过p4g吗 跟p3后日谈完全不是一个性质
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如等我们伟大的啊托拉斯直接掏出p4gr
+
