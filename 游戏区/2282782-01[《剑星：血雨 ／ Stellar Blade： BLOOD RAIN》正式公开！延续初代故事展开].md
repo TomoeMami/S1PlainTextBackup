@@ -3516,3 +3516,20 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 更何况这PV打击感进化的那个强，只会想着什么时候能玩。所以那些直接咒暴死的，是真不好说<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leonz79  
+##### 341#       发表于 2026-6-7 18:53
+
+这个人设感觉就像是小男孩雌堕吧，金恒泰是不是也喜欢男娘。
+
+*****
+
+####  zqqwe  
+##### 342#       发表于 2026-6-7 18:56
+
+看到有高论说为啥战神楼没这么大争议就好笑，首先得是菜才能争论口味差异，没人会去争论一坨屎是否好吃<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外把贫乳翘臀精致脸的假小子滑坡到DEI只能说是睁眼装瞎的坏逼，甚至都不是蠢
+
