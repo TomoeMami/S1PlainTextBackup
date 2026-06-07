@@ -85,3 +85,11 @@
 
 感觉月蚀斗篷兽未必是错误进化，反正绿蜥蜴-》火龙果-》绿恐龙已经够奇怪了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天风绯炎  
+##### 635#       发表于 2026-6-7 22:44
+
+岸和田看来才是坏的，玲奈道心破碎了，该进化了
+

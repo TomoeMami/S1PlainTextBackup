@@ -3692,3 +3692,11 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 这游戏一代我至今没玩，就是那个女主的脸，塑料网红脸纯纯辣眼睛。这一代的脸型身材明显正常很多
 
+
+*****
+
+####  星夜月  
+##### 359#       发表于 2026-6-7 22:34
+
+可以 至少比欧美的好一万倍，打击感真是棒
+
