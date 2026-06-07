@@ -527,3 +527,23 @@ ORAS？？？
 
 你们资料片的东西关我本篇什么事？
 
+
+*****
+
+####  hkguty  
+##### 213#       发表于 2026-6-8 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69735621&amp;ptid=2253117" target="_blank">センコウ 发表于 2026-6-7 21:12</a>
+
+玛丽这个角色是直接改变P4整个主线的，有没有玛丽这个角色P4根本是两个剧情
+
+原版izanami只是个叫izanami ...</blockquote>
+阿特拉斯:那我问你，那我问你喔，我重制无印版就把玛丽做进去那我DLC卖什么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 214#       发表于 2026-6-8 01:00
+
+这里面评价最垃圾的其实是P3的后日谈，有很长一段时间我甚至觉得这段剧情已经被打入黑历史了，毕竟动画、P3P都没用做这段剧情，结果老A还是把这玩意掏出来重制了，P4更不可能没玛丽，只是看是怎么给你
+
