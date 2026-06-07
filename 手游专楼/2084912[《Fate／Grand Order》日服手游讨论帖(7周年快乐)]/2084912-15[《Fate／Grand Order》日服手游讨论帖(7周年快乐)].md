@@ -897,3 +897,15 @@ X_536KSAJOD2{CJ{B$QV~%0.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">序章好欢乐啊，谁说是樱井光写的，肯定不是他啊
 
+
+*****
+
+####  森兰丸  
+##### 20921#       发表于 2026-6-7 14:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">发克发克.....想了想好歹是个拐还是决定抽个1宝算了....结果接近保底才出
+
+非洲人难得抽1次卡就非成这样
+
+这下只剩2000多石头了.....周年和泳装要再吃几个保底就寄了<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
