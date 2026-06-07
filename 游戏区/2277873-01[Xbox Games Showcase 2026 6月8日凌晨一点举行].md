@@ -341,3 +341,31 @@ SEGA最近所有的游戏都是站台XBOX吧，persona公布只能是这儿
 
 地平线还能取消吗，已经公布的应该取消不了了吧，我x的时间线上终于刷出因为地平线抱xsx回家的日本人了，不容易啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Alect  
+##### 44#       发表于 2026-6-7 15:35
+
+从时间点来看，感觉应该是有Blade，腐烂3，事变日，光环1CE，DoomTDA的新DLC，发条革命。然后Fable可能再放个短片然后展示一下跳到明年的片，FH6和贼海出点什么不大不小的DLC预告之类。然后MW4。这些感觉应该是出现概率比较高的。（可能还有些什么FO76更新之类的）
+
+其他的，感觉BGS和黑曜石如果有那种成规模的RPG应该还没到能播的地步（当然非要像OW2当年一样播那种整蛊预告片也行）。Machine要做新德军或者其他的应该也还没到能展示的地步。中间应该就是一些有合作的新indie游戏首曝。然后第三方3A感觉出现概率比较高的就是EA的Jedi 3，Sega的P系列（P4R或P6）。然后Capcom最近喜欢搞端水每个发布会都来点东西，可能还藏着什么料了。
+
+
+*****
+
+####  ultraseven  
+##### 45#       发表于 2026-6-7 15:40
+
+据说罗马之子还有remaster，Crytek自己操刀，能打赢复活赛真稀奇
+
+*****
+
+####  ultraseven  
+##### 46#       发表于 2026-6-7 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69734336&amp;ptid=2277873" target="_blank">Alect 发表于 2026-6-7 15:35</a>
+
+从时间点来看，感觉应该是有Blade，腐烂3，事变日，光环1CE，DoomTDA的新DLC，发条革命。然后Fable可能再放 ...</blockquote>
+辐射3重制可以播一播
+
