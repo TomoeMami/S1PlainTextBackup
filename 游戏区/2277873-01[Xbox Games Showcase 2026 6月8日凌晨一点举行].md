@@ -479,3 +479,15 @@ Halo Campaign Evolved 发售日什么的会有吧，也可以取消改独占<img
 
 <img src="https://p.sda1.dev/32/5a4f35a07863f2cef6f61a73619b4dc1/1000167717.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 59#         楼主| 发表于 2026-6-8 00:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69703917&amp;ptid=2277873" target="_blank">Piano-Forest 发表于 2026-6-1 12:46</a>
+
+⏰️北京时间 6 月 8 日凌晨 1 点，锁定@XBOX盒子君 直播间，一起看 XBOX Games Showcase 游戏展示会以及《 ...</blockquote>
+【XBOX游戏展示会2026-哔哩哔哩直播】 
+[https://b23.tv/YmgL0N0](https://b23.tv/YmgL0N0)
+
