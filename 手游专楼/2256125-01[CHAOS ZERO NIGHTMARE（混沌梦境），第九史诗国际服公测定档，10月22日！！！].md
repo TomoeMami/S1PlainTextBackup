@@ -1966,3 +1966,26 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 
 —— 来自 OnePlus PJA110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  伊布桑  
+##### 925#       发表于 2026-6-7 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69733048&amp;ptid=2256125" target="_blank">id_catcher 发表于 2026-6-7 09:19</a>
+国服才入坑的萌新，请教一下大家，为什么有时九的3费牌，消耗后不会生成新的？
+
+—— 来自 OnePlus PJA110, ...</blockquote>
+盲猜破碎屠戮，这卡好像文本有问题，最后一段的实际效果是下一回合才会把第一段的卡生成在手牌，文本没写下一回合
+
+*****
+
+####  id_catcher  
+##### 926#       发表于 2026-6-7 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69733097&amp;ptid=2256125" target="_blank">伊布桑 发表于 2026-6-7 09:35</a>
+盲猜破碎屠戮，这卡好像文本有问题，最后一段的实际效果是下一回合才会把第一段的卡生成在手牌，文本没写 ...</blockquote>
+感谢大佬解惑。国服翻译屎一样
+
+—— 来自 OnePlus PJA110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
