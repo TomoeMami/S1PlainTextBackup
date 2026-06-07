@@ -128,3 +128,11 @@ P4G可是整个游戏结构性的改变</blockquote>
 
 说难听点一开始就做p4g不比做塞了新系统的dlc的工作量小多了，阿特拉斯这种铁公鸡真的会额外给你花功夫做dlc吗，我是不太信的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  戏言学者  
+##### 173#       发表于 2026-6-7 17:41
+
+因为是atlus，估计还真能做出来这事<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
