@@ -3461,3 +3461,23 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 很急，赶紧开放预购，直接买爆
 
+
+*****
+
+####  simonroam  
+##### 336#       发表于 2026-6-7 14:35
+
+我看楼上一堆举例假小子的，怎么没有OW猎空，这好歹也是曾经的3D区常客了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wwhaha  
+##### 337#       发表于 2026-6-7 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69728462&amp;ptid=2282782" target="_blank">Piano-Forest 发表于 2026-6-6 07:35</a>
+主视觉图</blockquote>
+这个真是给铳梦的情书吧<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
