@@ -2004,3 +2004,14 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 副词条，爆率爆伤额外，攻击 ...</blockquote>
 话说国服更新不按顺序吗，不是应该先备战局长大人然后才是市长大人
 
+
+*****
+
+####  伊布桑  
+##### 928#       发表于 2026-6-7 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69733677&amp;ptid=2256125" target="_blank">windaria 发表于 2026-6-7 12:10</a>
+话说国服更新不按顺序吗，不是应该先备战局长大人然后才是市长大人</blockquote>
+国服相当于直接上第三赛季，前俩赛季直接在主线里能玩到，优化和出击也基本跟上，所以备战市长没毛病<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+目前国服限行角色确定是国际服第三赛季后休赛期up，也就是提前拿来给国服引流<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

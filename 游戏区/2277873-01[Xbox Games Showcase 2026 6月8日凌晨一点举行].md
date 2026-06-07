@@ -322,3 +322,22 @@ SEGA最近所有的游戏都是站台XBOX吧，persona公布只能是这儿
 
 看战争机器不上ps了 新ceo果真懂行
 
+
+*****
+
+####  ultraseven  
+##### 42#       发表于 2026-6-7 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69734212&amp;ptid=2277873" target="_blank">byisme001 发表于 2026-6-7 14:45</a>
+
+看战争机器不上ps了 新ceo果真懂行</blockquote>
+没30%利润率要求了当然懂行啊
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 43#       发表于 2026-6-7 15:03
+
+地平线还能取消吗，已经公布的应该取消不了了吧，我x的时间线上终于刷出因为地平线抱xsx回家的日本人了，不容易啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
