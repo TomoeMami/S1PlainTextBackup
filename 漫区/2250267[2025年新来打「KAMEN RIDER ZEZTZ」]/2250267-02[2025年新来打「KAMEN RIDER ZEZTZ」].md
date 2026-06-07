@@ -4324,3 +4324,40 @@ Secure the secret weapon.（确保夺得秘密武器）
 
 特别是牢诺被嘴了几句就突然开始笑着说伟光正台词有种被夺舍了的违和感<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sacodina  
+##### 1873#       发表于 2026-6-7 11:10
+
+牢3这么快就下线了？
+
+
+*****
+
+####  milky658  
+##### 1874#       发表于 2026-6-7 11:13
+
+看356下线，剧场版又全员回归，剩下的几个特工估计也要死一次。不知道剧场版的特工是不是梦里的
+
+*****
+
+####  angelooo  
+##### 1875#       发表于 2026-6-7 11:15
+
+<blockquote>浅川雏羽 发表于 2026-6-7 11:07
+这话老柴的文戏拍的和29一个毛病，急着把信息灌给观众而显得异常突兀
+
+特别是牢诺被嘴了几句就突然开始笑着 ...</blockquote>
+下集是水鬼……这几位大爷能不能快点完成任务然后走远点啊OTZ
+
+*****
+
+####  浅川雏羽  
+##### 1876#       发表于 2026-6-7 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69733471&amp;ptid=2250267" target="_blank">angelooo 发表于 2026-6-7 11:15</a>
+
+下集是水鬼……这几位大爷能不能快点完成任务然后走远点啊OTZ</blockquote>
+水鬼放在新章第一个单元献祭掉还挺好的，但后面老柴估计还有一个单元<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3260,3 +3260,11 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 出必买<img src="https://static.stage1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">唯一缺点不够大，需要更大只的tomboy
 
+
+*****
+
+####  X9999  
+##### 318#       发表于 2026-6-7 11:11
+
+从卖相来说还行，起码不是一脸暴死相。
+
