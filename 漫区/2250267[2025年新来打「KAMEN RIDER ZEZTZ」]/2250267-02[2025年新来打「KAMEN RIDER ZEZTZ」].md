@@ -4505,3 +4505,11 @@ zzz oneness（</blockquote>
 
 nox这线摆明写烂了，原本以为二周目可以着重讲不再谜语人，结果基本没他什么事，要出最终了甚至超梦都强行ban了我还以为这几集会有点信息量，结果完全不知道在演什么，然后code线又这样很随便地收完了……
 
+
+*****
+
+####  暗黑能乐  
+##### 1892#       发表于 2026-6-7 16:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么时候假面骑士能从头到尾都一个导演拍呢。。。
+

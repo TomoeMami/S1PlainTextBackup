@@ -909,3 +909,16 @@ X_536KSAJOD2{CJ{B$QV~%0.jpg
 
 这下只剩2000多石头了.....周年和泳装要再吃几个保底就寄了<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 20922#       发表于 2026-6-7 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69734082&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-6-7 14:05</a>
+
+发克发克.....想了想好歹是个拐还是决定抽个1宝算了....结果接近保底才出
+
+非洲人难得抽1次卡就非成这样</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">羡慕 大佬2000 萌新0石 还什么都没出
+
