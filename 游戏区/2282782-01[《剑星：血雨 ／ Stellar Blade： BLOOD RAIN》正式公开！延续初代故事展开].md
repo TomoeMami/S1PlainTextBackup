@@ -3183,3 +3183,11 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 <img src="https://p.sda1.dev/32/cab9c0e7e9380097a6d758ed1888e4d1/1000167695.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/66cb1fa72e4dc112e73272925e7f2138/1000167696.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  simonroam  
+##### 310#       发表于 2026-6-7 09:23
+
+某些角度总感觉腰太长了
+

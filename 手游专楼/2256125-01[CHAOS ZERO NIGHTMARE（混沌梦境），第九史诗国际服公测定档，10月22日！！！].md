@@ -1940,3 +1940,29 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 
 副词条，爆率爆伤额外，攻击
 
+
+*****
+
+####  christiny  
+##### 923#       发表于 2026-6-6 21:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731161&amp;ptid=2256125" target="_blank">御姐控之耻 发表于 2026-6-6 18:21</a>
+
+目前零式点满了，螺旋塔用九打到101层。
+
+出击把所有限时换购的材料换完了。</blockquote>
+可以提前做市长遗物，兔狙用什么，市长就用什么。
+
+右边爆率，攻，攻
+
+副词条，爆率爆伤额外，攻击
+
+*****
+
+####  id_catcher  
+##### 924#       发表于 2026-6-7 09:19
+
+国服才入坑的萌新，请教一下大家，为什么有时九的3费牌，消耗后不会生成新的？
+
+—— 来自 OnePlus PJA110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
