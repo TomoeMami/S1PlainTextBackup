@@ -510,3 +510,20 @@ p3重置也没有哈姆子啊
 岂不是好评如潮（</blockquote>
 结果它姜饼人的新剧情保留但是去掉学妹
 
+
+*****
+
+####  keytomylife  
+##### 212#       发表于 2026-6-8 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69735820&amp;ptid=2253117" target="_blank">人畜无害沃特碧 发表于 2026-6-7 21:57</a>
+
+我倾向于只是藏了一手，一个智力正常的公司应该做不出重制版不带玛丽这种操作
+
+当然atlus全员出生也不是没有 ...</blockquote>
+P3R？？？
+
+ORAS？？？
+
+你们资料片的东西关我本篇什么事？
+
