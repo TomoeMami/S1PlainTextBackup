@@ -4307,3 +4307,20 @@ Secure the secret weapon.（确保夺得秘密武器）
 
 下个单元是水怪，惩戒估计露个面不会被打死。剩下的十集淳爸要来个两集，柴崎估摸着还要拍个灾厄篇，杉原来搞个惩戒篇，大结局上堀内，应该还有个宁梦和NOX最终揭秘回，上堀内不肝的话就是叶山上吧，时间挺紧的了
 
+
+*****
+
+####  海帕可乐  
+##### 1871#       发表于 2026-6-7 11:03
+
+惩戒现在看来纯是剧情搅屎棍啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浅川雏羽  
+##### 1872#       发表于 2026-6-7 11:07
+
+这话老柴的文戏拍的和29一个毛病，急着把信息灌给观众而显得异常突兀
+
+特别是牢诺被嘴了几句就突然开始笑着说伟光正台词有种被夺舍了的违和感<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
