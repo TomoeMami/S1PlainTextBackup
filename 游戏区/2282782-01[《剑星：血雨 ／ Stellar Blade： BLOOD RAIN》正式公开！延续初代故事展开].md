@@ -3648,3 +3648,21 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 胸部太小了，巨乳假小子才是王道<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Patlain  
+##### 354#       发表于 2026-6-7 21:35
+
+你们不说我都看不出来这是女的
+
+
+*****
+
+####  江口夕  
+##### 355#       发表于 2026-6-7 21:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那不是女性特征，是小女孩特征
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
