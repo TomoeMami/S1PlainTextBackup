@@ -3533,3 +3533,26 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 另外把贫乳翘臀精致脸的假小子滑坡到DEI只能说是睁眼装瞎的坏逼，甚至都不是蠢
 
+
+*****
+
+####  leonz79  
+##### 343#       发表于 2026-6-7 19:01
+
+<blockquote>zqqwe 发表于 2026-6-7 18:56
+看到有高论说为啥战神楼没这么大争议就好笑，首先得是菜才能争论口味差异，没人会去争论一坨屎是否好吃
+
+另 ...</blockquote>
+问题是这个屁股只能说一般般，少年少女平均水平吧，现实中的正常体型男性屁股也有这种翘度啊
+
+*****
+
+####  江口夕  
+##### 344#       发表于 2026-6-7 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69735062&amp;ptid=2282782" target="_blank">leonz79 发表于 2026-6-7 19:01</a>
+问题是这个屁股只能说一般般，少年少女平均水平吧，现实中的正常体型男性屁股也有这种翘度啊 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">要么你拍一张？
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
