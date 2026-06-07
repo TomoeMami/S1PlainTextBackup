@@ -3700,3 +3700,15 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 可以 至少比欧美的好一万倍，打击感真是棒
 
+
+*****
+
+####  Troywest  
+##### 360#       发表于 2026-6-7 22:59
+
+我只是觉得这一作拳击模式(暂且这么称呼？)无论是晃身闪避，还是出拳动作看起来比一代的挥剑有趣多了。一代作为一个动作游戏结果手感稀烂，最后沦落为暖暖，有一说一还是挺难绷的。虽说看大胸大屁股女主换装也算是一种乐趣，但你毕竟是个动作游戏或者动作冒险游戏。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+希望二代在动作性上有所进化。
+
+—— 来自 OnePlus PJZ110, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

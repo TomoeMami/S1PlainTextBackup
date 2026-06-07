@@ -451,3 +451,15 @@ a社思慕 or 只是海报藏了一手 虚惊一场
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lolozp  
+##### 207#       发表于 2026-6-7 22:59
+
+p3重置也没有哈姆子啊
+
+估计想留着10年后再做一次吃老本吧
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
