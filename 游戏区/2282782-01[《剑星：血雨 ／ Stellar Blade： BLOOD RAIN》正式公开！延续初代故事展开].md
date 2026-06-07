@@ -3481,3 +3481,11 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  风浦可符香(P.N)  
+##### 338#       发表于 2026-6-7 15:23
+
+这次英配可以啊，可以考虑一周目原声二周目英配了
+
