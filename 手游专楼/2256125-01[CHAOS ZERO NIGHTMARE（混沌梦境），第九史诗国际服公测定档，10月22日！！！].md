@@ -1989,3 +1989,18 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 
 —— 来自 OnePlus PJA110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  windaria  
+##### 927#       发表于 2026-6-7 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69731785&amp;ptid=2256125" target="_blank">christiny 发表于 2026-6-6 21:10</a>
+
+可以提前做市长遗物，兔狙用什么，市长就用什么。
+
+右边爆率，攻，攻
+
+副词条，爆率爆伤额外，攻击 ...</blockquote>
+话说国服更新不按顺序吗，不是应该先备战局长大人然后才是市长大人
+
