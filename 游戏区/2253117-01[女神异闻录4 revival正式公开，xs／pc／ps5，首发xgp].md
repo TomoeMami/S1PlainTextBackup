@@ -1905,3 +1905,11 @@ p4r出了之后就要去p5x客串了<img src="https://static.stage1st.com/image/
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  chivalry  
+##### 352#       发表于 2026-6-8 22:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">再玩一次吧，p4 的那个夏天真让人着迷
+
