@@ -1868,3 +1868,13 @@ https://github.com/keiyoushi/extensions-source/issues/14260
 
 其他评论发现了venera这个软件。能看拷贝，但是操作逻辑很奇怪。并且不更新了。
 
+
+*****
+
+####  tclm  
+##### 165#       发表于 2026-6-9 00:26
+
+拷贝 18 以上的漫画只有 5 页这个有办法解决吗
+
+—— 来自 HONOR MAG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
