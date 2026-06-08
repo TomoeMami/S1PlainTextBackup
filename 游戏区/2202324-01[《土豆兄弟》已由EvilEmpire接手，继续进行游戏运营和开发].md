@@ -256,3 +256,15 @@
 
 ----发送自 [realme RMX3800,Android 15](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  下九流4  
+##### 395#       发表于 2026-6-8 20:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69741205&amp;ptid=2202324" target="_blank">lovepenny 发表于 2026-6-8 19:42</a>
+都说骑士堆护甲，难5好过，我怎么过不去。。。倒在最后一关。。还有啥轮椅角色吗
+
+----发送自 realme RMX38 ...</blockquote>
+不应该啊，堆甲骑士我当初拿剑和boss贴在一起直接砍死俩BOSS，掉血还没我回得快。
+
