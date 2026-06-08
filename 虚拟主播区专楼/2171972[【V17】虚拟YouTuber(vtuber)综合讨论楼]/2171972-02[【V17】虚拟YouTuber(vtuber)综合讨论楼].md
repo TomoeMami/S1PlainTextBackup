@@ -23,3 +23,11 @@
 
 众说纷纭，不过目前从种种迹象看这两个人之间是有点不愉快的，只是不知道是因为不愉快才解散还是反过来。
 
+
+*****
+
+####  艾特娜  
+##### 1957#       发表于 2026-6-8 21:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">商业角度的话运营方没什么理由要求拆伙吧
+
