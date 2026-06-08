@@ -170,3 +170,15 @@ sop省流
 由手机上传
 2026-6-5 21:06 上传
 
+
+*****
+
+####  SergeGlenn  
+##### 691#       发表于 2026-6-8 09:48
+
+VGC的Jordan Middler说新神海已经在路上了，应该是在星际异端后面排着，失落遗产的导演Shaun Escayg前两年回顽皮狗了，应该就是搞这个的
+
+Jordan Middler saying on the VGC that a new Uncharted is on the way (22:26 mark)
+
+https://youtu.be/_LaHZtZHnME?si=eWGzxLFE8gNEfpNj
+

@@ -1049,3 +1049,13 @@ p系列首次启用土居恶魔
 
 有玛丽就谢天谢地了，迷宫肯定是p3r一样的原味。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kyonkoism  
+##### 269#       发表于 2026-6-8 09:51
+
+泪目，是P4G 阿特拉斯暂时拥有了他的妈妈<img src="https://static.stage1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
