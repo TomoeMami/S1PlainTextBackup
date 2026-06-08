@@ -1564,3 +1564,31 @@ P5R主人公のペルソナ: アルセーヌ</blockquote>
 ----发送自 STAGE1 App for Android.</blockquote>
 这是吐槽……
 
+
+*****
+
+####  寂长无星夜  
+##### 320#       发表于 2026-6-8 14:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">理世和直斗这新立绘都挺难看的，还有雪子，感觉怪怪的没有原版那种气质了
+
+
+*****
+
+####  windlikeman  
+##### 321#       发表于 2026-6-8 14:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69737869&amp;ptid=2253117" target="_blank">moeful 发表于 2026-6-8 09:06</a>
+
+可惜的就是堂岛不会有新剧情了</blockquote>
+伊戈尔换CV新录了 堂岛应该也是吧
+
+*****
+
+####  plok201  
+##### 322#       发表于 2026-6-8 14:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">立绘改的还好把，旧版立绘有时候玩久了配合那个阴影认真盯的话有种非人感
+
+他把战斗相关体验现代化改造，优化好点比改地图重要多了
+
