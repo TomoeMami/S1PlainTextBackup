@@ -2114,3 +2114,17 @@ Beast of Reincarnation developer interview - PC Gaming Show 2026
 
 本来这游戏一看就看出是借鉴的机械纪元，看见前面说借鉴剑星的实在无语，这下确定石川由依给女主配音，总算能让借鉴剑星说的闭嘴了。
 
+
+*****
+
+####  Piano-Forest  
+##### 205#         楼主| 发表于 2026-6-8 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69737970&amp;ptid=2253295" target="_blank">Piano-Forest 发表于 2026-6-8 09:21</a>
+
+Beast of Reincarnation developer interview - PC Gaming Show 2026
+
+https://youtu.be/j8alvtOCRk0</blockquote>
+【《轮回之兽》开发幕后宣传视频】 
+[https://b23.tv/UOGpzhD](https://b23.tv/UOGpzhD)
+
