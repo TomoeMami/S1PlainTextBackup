@@ -2149,3 +2149,13 @@ https://youtu.be/j8alvtOCRk0</blockquote>
 
 gf是不是怕褒姒才让微软买单
 
+
+*****
+
+####  martinoy  
+##### 208#       发表于 2026-6-9 02:10
+
+看预告确实感觉很尼尔，剑星本身也是受尼尔影响
+
+— from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
