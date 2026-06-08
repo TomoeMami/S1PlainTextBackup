@@ -4129,3 +4129,24 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 这作该百合了吧。
 
+
+*****
+
+####  アヘ顔  
+##### 401#       发表于 2026-6-8 14:00
+
+ 本帖最后由 アヘ顔 于 2026-6-8 14:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69739655&amp;ptid=2282782" target="_blank">名居守 发表于 2026-6-8 13:42</a>
+那我就不得不来句暴论了
+偏写实向的游戏里年纪弄小还加上雀斑，大概率是想讨好鬼佬那群搞真人炼铜的
+就看 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鬼老联通也是要立牌坊的，明面上的zzzq可是严禁联通
+你讨好人家不能这么明牌雷区蹦迪吧
+
+*****
+
+####  液体力学  
+##### 402#       发表于 2026-6-8 14:00
+
+张口闭口AI的也太鶸痣了
+
