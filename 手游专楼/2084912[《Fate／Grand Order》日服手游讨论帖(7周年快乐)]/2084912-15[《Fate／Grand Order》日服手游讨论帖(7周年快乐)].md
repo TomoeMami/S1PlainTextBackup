@@ -982,3 +982,14 @@ X_536KSAJOD2{CJ{B$QV~%0.jpg
 周常3石是有灵魂的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">欧 羡慕
 
+
+*****
+
+####  alucardcz  
+##### 20928#       发表于 2026-6-8 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69740815&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-6-8 17:43</a>
+
+欧 羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">你才是欧皇 欧 羡慕
+

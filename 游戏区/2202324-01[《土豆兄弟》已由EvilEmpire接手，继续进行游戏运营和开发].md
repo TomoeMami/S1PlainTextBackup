@@ -233,3 +233,16 @@
 
 ----发送自 [realme RMX3800,Android 15](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  下九流3  
+##### 393#       发表于 2026-6-8 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69740841&amp;ptid=2202324" target="_blank">lovepenny 发表于 2026-6-8 17:49</a>
+
+@下九流4
+
+被诅咒的武器是不是不能合成了？</blockquote>
+可以啊,除非你拿了那个不能出售不能升级的武器结.我这里打到无尽不靠武器伤害了全靠暴击和燃烧下血,只有攻速对我有意义.
+
