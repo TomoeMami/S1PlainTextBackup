@@ -3943,3 +3943,22 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 古代最常见的形容男子美貌的词是美须髯</blockquote>
 你给我整笑了 不了解没关系ai是免费的
 
+
+*****
+
+####  美军冲滩了吗？  
+##### 385#       发表于 2026-6-8 12:04
+
+1代那个女主太硅胶娃娃可，这个好多了。
+
+*****
+
+####  アヘ顔  
+##### 386#       发表于 2026-6-8 12:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69739078&amp;ptid=2282782" target="_blank">leonz79 发表于 2026-6-8 11:46</a>
+高达都是80后爱看的，在90后、00后眼里都土得掉渣了，反正我是不知道那些高达哪里科幻了。
+
+变形金刚电影 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以我觉得那个新高达怪猎搞不好真的能火一波重新定义高达
+
