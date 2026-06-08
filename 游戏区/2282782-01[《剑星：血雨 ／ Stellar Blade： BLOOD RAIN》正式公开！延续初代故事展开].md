@@ -3738,3 +3738,11 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 目前这个主角实在是提不起兴趣
 
+
+*****
+
+####  ceruleancard  
+##### 364#       发表于 2026-6-8 09:09
+
+都在说女主，看到赛博重庆说点别的，现在大制作国游似乎还是都在走古风，武侠，神话那一套，有没有什么科幻类型的？
+
