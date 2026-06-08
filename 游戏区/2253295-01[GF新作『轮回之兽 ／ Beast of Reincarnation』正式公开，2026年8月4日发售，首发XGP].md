@@ -2072,3 +2072,22 @@ GF版剑星，但是没有换装
 
 2026-6-7 10:39 上传
 
+
+*****
+
+####  Piano-Forest  
+##### 200#         楼主| 发表于 2026-6-8 09:21
+
+Beast of Reincarnation developer interview - PC Gaming Show 2026
+[https://youtu.be/j8alvtOCRk0](https://youtu.be/j8alvtOCRk0)
+
+
+*****
+
+####  Piano-Forest  
+##### 201#         楼主| 发表于 2026-6-8 09:21
+
+主人公エマ役は石川由依
+
+出演者：佐藤みゆ希、大塚明夫、諸星すみれ、小林ゆう、石田彰、三上哲、佐藤利奈、金尾哲夫（敬称略）
+
