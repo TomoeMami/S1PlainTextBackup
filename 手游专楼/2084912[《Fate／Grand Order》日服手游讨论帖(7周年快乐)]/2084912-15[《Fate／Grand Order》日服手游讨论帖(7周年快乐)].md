@@ -960,3 +960,14 @@ X_536KSAJOD2{CJ{B$QV~%0.jpg
 周常3石是有灵魂的</blockquote>
 闇の炎に抱かれて消えろ<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 20926#       发表于 2026-6-8 14:46
+
+单抽是对的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/27084c987dd6738c4af235f89e015889/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
