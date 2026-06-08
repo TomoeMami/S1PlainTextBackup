@@ -39,3 +39,23 @@
 
 不管是rfm还是nornis都像成员自主提出
 
+
+*****
+
+####  woui003woui  
+##### 1959#       发表于 2026-6-8 22:00
+
+解散推都没提另一个人名字<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  noHentai  
+##### 1960#       发表于 2026-6-8 22:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69741554&amp;ptid=2171972" target="_blank">艾特娜 发表于 2026-6-8 21:24</a>
+
+商业角度的话运营方没什么理由要求拆伙吧</blockquote>
+这不好说，没人知道主流出道的合同是怎么回事，也不知道你虹的大人是怎么想的。
+
+比如金银铜这个组合，人气来看不是不能做，三个人也都想做，厂牌觉得应该也能挣扎一下，但是你虹就是按头雪藏了。
+
