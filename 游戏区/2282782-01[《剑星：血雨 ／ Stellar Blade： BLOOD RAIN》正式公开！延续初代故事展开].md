@@ -4121,3 +4121,11 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 另外后面褚渊“须髯如戟”那段小故事也不是来自官方文献哦，是《云仙杂记》
 
+
+*****
+
+####  asikies  
+##### 400#       发表于 2026-6-8 13:53
+
+这作该百合了吧。
+
