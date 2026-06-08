@@ -282,3 +282,16 @@
 
 另外碰撞区域对近战及其不友好，可以先去深渊试试先。
 
+
+*****
+
+####  下九流3  
+##### 397#       发表于 2026-6-8 20:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69741205&amp;ptid=2202324" target="_blank">lovepenny 发表于 2026-6-8 19:42</a>
+
+都说骑士堆护甲，难5好过，我怎么过不去。。。倒在最后一关。。还有啥轮椅角色吗
+
+----发送自 realme RMX38 ...</blockquote>
+杰克吧,怪少70%,拿个激光枪都随便打了,还有多面手和游侠这种.
+
