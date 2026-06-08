@@ -2134,3 +2134,13 @@ ds最近提速了吗？api上周峰值能到7-80的速度，平均60多，今天
 
 —— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  hugosol  
+##### 1665#       发表于 2026-6-8 23:39
+
+这两天抽空折腾了一下pi和oh-my-pi，刚开始想着拿DeepSeekV4Flash写个plan mode，基本上需求再往下细化就会乱掉，omp里面稍微长点的讨论甚至直接忘掉前面讨论过内容，结论是flash完全没法用来写代码，感觉还是去年那种玩具模型的水平，只能一句话生成代码然后看抽卡结果<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+切回V4Pro感觉就好多了，总算找回和正常人类讨论的感觉
+
