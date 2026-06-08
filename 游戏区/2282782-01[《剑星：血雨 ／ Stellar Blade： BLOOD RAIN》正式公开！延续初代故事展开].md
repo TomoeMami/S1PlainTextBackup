@@ -4035,3 +4035,14 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 我看这戏还能继续看
 
+
+*****
+
+####  アヘ顔  
+##### 394#       发表于 2026-6-8 12:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实不应该打成麻辣仙人
+这逼游戏有没麻辣
+甚至一代是个大女主成神的剧情，男人都只能当合体挂件
+我觉得赛博嫖客的帽子更合适一些
+
