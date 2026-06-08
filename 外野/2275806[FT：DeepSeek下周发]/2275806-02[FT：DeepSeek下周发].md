@@ -2077,3 +2077,11 @@ ds最近提速了吗？api上周峰值能到7-80的速度，平均60多，今天
 —— 来自 鹅球 ...</blockquote>
 你是说flash吗，之前扩容后就提速了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  haiuhfuwah  
+##### 1660#       发表于 2026-6-8 14:38
+
+做海报的话有没有哪些agent推荐的？国内trae能做么？
+
