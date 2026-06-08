@@ -1429,3 +1429,44 @@ p4g宣传图貌似也没玛丽
 看着不错，但是我真的不想再玩一遍4了<img src="https://static.stage1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 1和2什么时候出
 
+
+*****
+
+####  那由  
+##### 309#       发表于 2026-6-8 12:26
+
+ペルソナ４ リバイバル:
+
+P5R ペルソナセット1
+
+P5R主人公のペルソナ: アルセーヌ
+
+P5R主人公のペルソナ: ラウール
+
+P5R主人公のペルソナ: サタナエル
+
+ペルソナ４ リバイバル:
+
+P5R ペルソナセット2
+
+P5R明智吾郎のペルソナ: ロビンフッド
+
+P5R明智吾郎のペルソナ: ロキ
+
+P5R明智吾郎のペルソナ: ヘリワード
+
+气笑了
+
+*****
+
+####  heseran  
+##### 310#       发表于 2026-6-8 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69739311&amp;ptid=2253117" target="_blank">那由 发表于 2026-6-8 12:26</a>
+ペルソナ４ リバイバル:
+
+P5R ペルソナセット1
+
+P5R主人公のペルソナ: アルセーヌ</blockquote>
+还是腐女太好爆金币了
+

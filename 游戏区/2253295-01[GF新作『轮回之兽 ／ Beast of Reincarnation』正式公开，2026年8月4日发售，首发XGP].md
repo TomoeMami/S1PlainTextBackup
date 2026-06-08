@@ -2128,3 +2128,16 @@ https://youtu.be/j8alvtOCRk0</blockquote>
 【《轮回之兽》开发幕后宣传视频】 
 [https://b23.tv/UOGpzhD](https://b23.tv/UOGpzhD)
 
+
+*****
+
+####  卢迪克  
+##### 206#       发表于 2026-6-8 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69737979&amp;ptid=2253295" target="_blank">Piano-Forest 发表于 2026-6-8 09:21</a>
+
+主人公エマ役は石川由依
+
+出演者：佐藤みゆ希、大塚明夫、諸星すみれ、小林ゆう、石田彰、三上哲、佐藤利奈 ...</blockquote>
+花江不在
+
