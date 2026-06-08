@@ -1921,3 +1921,14 @@ p4r出了之后就要去p5x客串了<img src="https://static.stage1st.com/image/
 
 突然看到个说法说这个pv有很多参考了4U的，有没有懂哥叮真一下的
 
+
+*****
+
+####  散装星空  
+##### 354#       发表于 2026-6-9 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69741977&amp;ptid=2253117" target="_blank">Yugao 发表于 2026-6-8 22:50</a>
+
+突然看到个说法说这个pv有很多参考了4U的，有没有懂哥叮真一下的</blockquote>
+这次的新系统（4more那个）用的是P4U里面一个连携系统的名字
+
