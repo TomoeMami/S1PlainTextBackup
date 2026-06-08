@@ -869,3 +869,24 @@ p系列首次启用土居恶魔
 
 就是没有ns2版本首发，不会要等到p4rr才上吧
 
+
+*****
+
+####  moeful  
+##### 250#       发表于 2026-6-8 08:03
+
+要求就俩，1有玛丽，这个做到了
+
+2别洗卷心菜
+
+等首发凯子战报再说
+
+*****
+
+####  哎哟卧槽了  
+##### 251#       发表于 2026-6-8 08:07
+
+想買但P4G玩了兩次了……<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
