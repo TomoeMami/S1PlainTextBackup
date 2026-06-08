@@ -1758,3 +1758,34 @@ P4R还是可以考虑买下 P6只能说是等P6R了
 迷宫怎么说呢，给个万能创可贴→全局倍速吧，唯有此可解！</blockquote>
 来投风灵月影宗就行<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三月很长  
+##### 336#       发表于 2026-6-8 19:20
+
+买<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 337#       发表于 2026-6-8 19:22
+
+相对于立绘，我更关心音乐，这次应该也有新主题曲把，我还挺喜欢P3R那首新OP的
+
+*****
+
+####  鳴上悠  
+##### 338#       发表于 2026-6-8 19:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">后辈的后辈也要准备登场了，这次应该是最后一次加班了吧
+<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">什么你说PQ3？不存在的不会有的
+
+*****
+
+####  natto  
+##### 339#       发表于 2026-6-8 19:26
+
+PV看到玛丽的时候居然有种想感谢atlus的想法，然后扇了自己一耳光<img src="https://static.stage1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
