@@ -1789,3 +1789,22 @@ P4R还是可以考虑买下 P6只能说是等P6R了
 
 PV看到玛丽的时候居然有种想感谢atlus的想法，然后扇了自己一耳光<img src="https://static.stage1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  InfiniteGyre  
+##### 340#       发表于 2026-6-8 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69740098&amp;ptid=2253117" target="_blank">卡拉德利姆 发表于 2026-6-8 15:14</a>
+是不是5的社群升级解锁被动反哺了</blockquote>
+p4g的时候就有社群等级影响队友的战斗力，不知道这次会不会像p5那样社群影响非战斗的部分
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  u2deack  
+##### 341#       发表于 2026-6-8 19:55
+
+战不战力我是无所谓的，p3p4开最低难度战斗打完我从来不觉得影响我的游玩乐趣
+
