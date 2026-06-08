@@ -3804,3 +3804,48 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 这次的新主角脸型感觉比伊芙的更万用一些，伊芙的脸发型适配太差了，游戏给的发型没几个好看的，新游戏估计换发型也会好看一些 
 
+
+*****
+
+####  uponutopia  
+##### 371#       发表于 2026-6-8 10:06
+
+但凡有点五官常识的都该知道  流量男明星本来就是走的阴柔审美路线 鸡哥脸没有棱角偏女相，女装一下可能比爱玩鸡哥梗的人喜欢的网红女更顶<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+论美貌的标准男女就是互通的， 不说evie 一代渡鸦脸也是有点男相的换个短发型应该也和男团差不多<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yxch  
+##### 372#       发表于 2026-6-8 10:08
+
+<img src="https://img.stage1st.com/forum/202606/08/100830hg23wyg3gb21bq03.jpg" referrerpolicy="no-referrer">
+
+<strong>1000167714 拷贝.jpg</strong> (311.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-8 10:08 上传
+
+是故意的还是不小心的？
+
+*****
+
+####  アヘ顔  
+##### 373#       发表于 2026-6-8 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69738319&amp;ptid=2282782" target="_blank">yxch 发表于 2026-6-8 10:08</a>
+是故意的还是不小心的？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫名想到那种丈量深度的图
+
+
+*****
+
+####  樽——見  
+##### 374#       发表于 2026-6-8 10:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69738298&amp;ptid=2282782" target="_blank">uponutopia 发表于 2026-6-8 10:06</a>
+
+但凡有点五官常识的都该知道  流量男明星本来就是走的阴柔审美路线 鸡哥脸没有棱角偏女相，女装一下可能比 ...</blockquote>
+东南亚偶像团体审美趋势是这样的，男人也要阴柔女相，最近看一个瑞萍韩团颜值的博主，“长得像女人的男人”确实很受欢迎
+

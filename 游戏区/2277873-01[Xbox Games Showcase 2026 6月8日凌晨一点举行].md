@@ -1568,3 +1568,13 @@ cod最后那段bodycam的片也太意味不明了（
 
 不过不失，符合 good enough for xgp 的感觉。《卧龙2》算是惊喜，inXile有点土了，杯赛和黑曜石没有新饼，遗憾。P6放个logo，不知何意味。
 
+
+*****
+
+####  格林卡罗尔  
+##### 200#       发表于 2026-6-8 10:05
+
+tim cain说自己在搞大项目也才半年，可能还要过段时间黑曜石才有消息吧
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

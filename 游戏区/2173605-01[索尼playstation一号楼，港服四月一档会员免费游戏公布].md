@@ -182,3 +182,14 @@ Jordan Middler saying on the VGC that a new Uncharted is on the way (22:26 mark)
 
 https://youtu.be/_LaHZtZHnME?si=eWGzxLFE8gNEfpNj
 
+
+*****
+
+####  a2042312  
+##### 692#       发表于 2026-6-8 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69738166&amp;ptid=2173605" target="_blank">SergeGlenn 发表于 2026-6-8 09:48</a>
+
+VGC的Jordan Middler说新神海已经在路上了，应该是在星际异端后面排着，失落遗产的导演Shaun Escayg前两年 ...</blockquote>
+新神海比异端先知先上顽皮狗还能挽回一点口碑，这舒适区要是再搞不定尼尔可以滚蛋了
+
