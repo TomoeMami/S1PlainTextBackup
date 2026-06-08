@@ -1841,3 +1841,11 @@ p4r出了之后就要去p5x客串了<img src="https://static.stage1st.com/image/
 这啥东西</blockquote>
 恶魔合体！
 
+
+*****
+
+####  m1grandmk1  
+##### 345#       发表于 2026-6-8 20:19
+
+看了预告片又感觉很不错啊，谁来把我玩过P4G的记忆清零吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
