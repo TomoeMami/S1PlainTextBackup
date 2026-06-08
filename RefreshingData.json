@@ -9401,7 +9401,7 @@
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "lastedit": 1780698367,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2194780": {
@@ -18220,6 +18220,15 @@
     "title": "[网信办新规出台，测评博主团灭？]",
     "newtitle": "[网信办新规出台，测评博主团灭？]",
     "lastedit": 1780942445,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2282974": {
+    "totalreply": 41,
+    "title": "[AI好啊，AI得学啊]",
+    "newtitle": "[AI好啊，AI得学啊]",
+    "lastedit": 1780957205,
     "category": "外野",
     "active": true,
     "update": false
