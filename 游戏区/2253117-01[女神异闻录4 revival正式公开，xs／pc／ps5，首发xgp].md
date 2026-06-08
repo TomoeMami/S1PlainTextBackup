@@ -1857,3 +1857,29 @@ p4r出了之后就要去p5x客串了<img src="https://static.stage1st.com/image/
 
 重置后还会有绿色成龙吗
 
+
+*****
+
+####  alucardcz  
+##### 347#       发表于 2026-6-8 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69741322&amp;ptid=2253117" target="_blank">m1grandmk1 发表于 2026-6-8 20:19</a>
+
+看了预告片又感觉很不错啊，谁来把我玩过P4G的记忆清零吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漏油记性还是太好了 我基本都忘的差不多了 社团没一个想的起来了  虽然主线几个大爆点都还记得
+
+*****
+
+####  勿徊哉  
+##### 348#       发表于 2026-6-8 21:40
+
+虚幻引擎吗？等个UEVR版用frame玩
+
+
+*****
+
+####  稲海爽輔  
+##### 349#       发表于 2026-6-8 21:45
+
+这新版直斗和完二头像也太比目鱼了
+
