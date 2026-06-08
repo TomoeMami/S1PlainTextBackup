@@ -1600,3 +1600,28 @@ P5R主人公のペルソナ: アルセーヌ</blockquote>
 
 立绘除了玛丽没一个顺眼的，副岛和副岛和平主义者还是差距太大
 
+
+*****
+
+####  defer  
+##### 324#       发表于 2026-6-8 14:26
+
+首发atlus和长期订阅xgp<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+我想了一下，还是首发atlus罢<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  黑上シグマ  
+##### 325#       发表于 2026-6-8 14:30
+
+<blockquote>引用第318楼forestlimit于2026-06-08 13:59发表的  :
+
+黑上シグマ 发表于 2026-6-8 13:45熊的伊格尔服装呗----发送自 STAGE1 App......</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你吐槽得太晚了，这个P4D就有了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
