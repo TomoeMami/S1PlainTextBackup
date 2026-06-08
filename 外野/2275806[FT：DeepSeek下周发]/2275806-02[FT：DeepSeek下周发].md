@@ -2121,3 +2121,16 @@ ds最近提速了吗？api上周峰值能到7-80的速度，平均60多，今天
 
 我用Cherrystudio挂载了api，但感觉还是怪怪的，原来的网页端对时间的把握很精准，但是用api的情况下，哪怕我开了网络搜索，只要我不说具体时间，api就默认现在是25年，对话里也有股微妙的弱智感
 
+
+*****
+
+####  qwased  
+##### 1664#       发表于 2026-6-8 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69741600&amp;ptid=2275806" target="_blank">兔灾2号 发表于 2026-6-8 21:37</a>
+我用Cherrystudio挂载了api，但感觉还是怪怪的，原来的网页端对时间的把握很精准，但是用api的情况下，哪怕 ...</blockquote>
+你要在助手的提示词那里写上日期之类的变量以及你希望他扮演什么角色，接api默认是完全没有提示词的
+网页有内置提示词
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+

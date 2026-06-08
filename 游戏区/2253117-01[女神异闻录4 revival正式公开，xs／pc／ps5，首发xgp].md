@@ -1891,3 +1891,17 @@ p4r出了之后就要去p5x客串了<img src="https://static.stage1st.com/image/
 
 619还有直播的话到时候看看具体改了啥，然后再决定买不买算了
 
+
+*****
+
+####  UnrealApartheid  
+##### 351#       发表于 2026-6-8 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69741272&amp;ptid=2253117" target="_blank">龙潜于渊 发表于 2026-6-8 20:04</a>
+花村的cv在简中网页被隐藏了，是老钟友好公司吗
+
+—— 来自 S1Fun</blockquote>
+欲盖弥彰吧我觉得，游戏内照样会公布
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
