@@ -3900,3 +3900,13 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 假小子脸和屁股都不错，比伊芙对我有吸引力。
 
+
+*****
+
+####  leonz79  
+##### 381#       发表于 2026-6-8 11:42
+
+<blockquote>ceruleancard 发表于 2026-6-8 09:09
+都在说女主，看到赛博重庆说点别的，现在大制作国游似乎还是都在走古风，武侠，神话那一套，有没有什么科幻 ...</blockquote>
+国内不吃科幻题材
+
