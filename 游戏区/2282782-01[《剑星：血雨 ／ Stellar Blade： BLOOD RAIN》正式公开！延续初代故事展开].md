@@ -4024,3 +4024,14 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 算了 回你感觉都很可笑
 
+
+*****
+
+####  名居守  
+##### 393#       发表于 2026-6-8 12:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">隔壁nga已经有人把不喜欢2主角的人打成ml仙人了
+吗的ml仙人还在追我
+
+我看这戏还能继续看
+
