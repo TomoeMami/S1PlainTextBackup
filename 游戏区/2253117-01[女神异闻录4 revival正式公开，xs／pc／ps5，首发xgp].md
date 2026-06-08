@@ -1661,3 +1661,19 @@ P5R主人公のペルソナ: アルセーヌ</blockquote>
 
 不过不打算买了，去年刚玩完P4G很满意，听说P4R会有新的剧情收入语音可以出来爽云一下，希望海老原爱能多一点语音
 
+
+*****
+
+####  卡拉德利姆  
+##### 330#       发表于 2026-6-8 15:14
+
+<img src="https://img.stage1st.com/forum/202606/08/145939yspbtav0kvbknytk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (207.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-8 14:59 上传
+
+是不是5的社群升级解锁被动反哺了
+
