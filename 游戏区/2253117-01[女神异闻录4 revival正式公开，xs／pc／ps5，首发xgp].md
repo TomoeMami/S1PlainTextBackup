@@ -932,3 +932,45 @@ p系列首次启用土居恶魔
 
 我反正不做凯子了
 
+
+*****
+
+####  Suljo  
+##### 256#       发表于 2026-6-8 08:57
+
+前倨而后恭，思之令人发笑
+
+—— 来自 vivo V2324A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  零崎不识  
+##### 257#       发表于 2026-6-8 08:58
+
+<blockquote>红魔馆的糖 发表于 2026-6-8 08:21
+看这pv我觉得很ok啊，可能是之前的预期放太低了
+
+先把阿特拉斯的马放在火箭上，看迷宫改不改再决定飞不飞 ...</blockquote>
+迷宫要改工作量就太大了，铁不改的，主要角色立绘优化了就好，当初刚玩p4时最大感受就是除了玛丽以外其他人的脸都有点儿歪
+
+
+*****
+
+####  黑夜守望者  
+##### 258#       发表于 2026-6-8 09:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69737281&amp;ptid=2253117" target="_blank">紫沙狐 发表于 2026-6-8 03:25</a></blockquote>
+侧脸没问题，为什么正脸胖了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑暗之眼  
+##### 259#       发表于 2026-6-8 09:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69737624&amp;ptid=2253117" target="_blank">红魔馆的糖 发表于 2026-6-8 08:21</a>
+
+看这pv我觉得很ok啊，可能是之前的预期放太低了
+
+先把阿特拉斯的马放在火箭上，看迷宫改不改再决定飞不飞 ...</blockquote>
+想屁吃，哪里可能改，不买就不买么叨叨那么多
+

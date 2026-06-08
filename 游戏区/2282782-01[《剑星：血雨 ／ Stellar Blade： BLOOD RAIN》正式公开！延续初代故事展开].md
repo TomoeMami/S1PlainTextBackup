@@ -3728,3 +3728,13 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 看截图以为是个丑女男人婆，视频倒还好，没那么不能接受，而且打拳的打击感比剑好多了
 
+
+*****
+
+####  nagitoY  
+##### 363#       发表于 2026-6-8 09:02
+
+不知道2代能不能多几个可操作角色，或者双主角双线并进也行。
+
+目前这个主角实在是提不起兴趣
+
