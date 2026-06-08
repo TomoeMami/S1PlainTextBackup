@@ -3884,3 +3884,11 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以谈审美还是多上图吧
 
+
+*****
+
+####  宿  
+##### 379#       发表于 2026-6-8 11:11
+
+希望女主是伊芙和百合的女儿，嘻嘻嘻
+
