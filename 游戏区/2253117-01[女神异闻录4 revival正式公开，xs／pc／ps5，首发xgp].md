@@ -1913,3 +1913,11 @@ p4r出了之后就要去p5x客串了<img src="https://static.stage1st.com/image/
 
 <img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">再玩一次吧，p4 的那个夏天真让人着迷
 
+
+*****
+
+####  Yugao  
+##### 353#       发表于 2026-6-8 22:50
+
+突然看到个说法说这个pv有很多参考了4U的，有没有懂哥叮真一下的
+
