@@ -1013,3 +1013,23 @@ p系列首次启用土居恶魔
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么会有人觉得迷宫会改？
 
+
+*****
+
+####  黑上シグマ  
+##### 265#       发表于 2026-6-8 09:24
+
+<blockquote>引用第259楼moeful于2026-06-08 09:06发表的  :
+
+可惜的就是堂岛不会有新剧情了</blockquote>
+换CV就有了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
+*****
+
+####  丹德里恩  
+##### 266#       发表于 2026-6-8 09:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">觉得阿特拉斯会改迷宫是活在哪个梦里呢
+

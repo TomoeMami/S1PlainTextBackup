@@ -3767,3 +3767,14 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 金山爆死的解限机啊，还不够科幻？</blockquote>
 解限机算服务型游戏吧？这种题材已经很丰富了，我主要想问买断制游戏<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  uponutopia  
+##### 367#       发表于 2026-6-8 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69737892&amp;ptid=2282782" target="_blank">ceruleancard 发表于 2026-6-8 09:09</a>
+
+都在说女主，看到赛博重庆说点别的，现在大制作国游似乎还是都在走古风，武侠，神话那一套，有没有什么科幻 ...</blockquote>
+戴森球啊 虽然估计和你想要的方向不一样
+
