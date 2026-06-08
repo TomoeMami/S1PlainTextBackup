@@ -3910,3 +3910,25 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 都在说女主，看到赛博重庆说点别的，现在大制作国游似乎还是都在走古风，武侠，神话那一套，有没有什么科幻 ...</blockquote>
 国内不吃科幻题材
 
+
+*****
+
+####  leonz79  
+##### 382#       发表于 2026-6-8 11:46
+
+<blockquote>夜航船 发表于 2026-6-8 09:14
+金山爆死的解限机啊，还不够科幻？</blockquote>
+高达都是80后爱看的，在90后、00后眼里都土得掉渣了，反正我是不知道那些高达哪里科幻了。
+
+变形金刚电影版要是也按照动画片里造型做也得爆死
+
+*****
+
+####  汪达  
+##### 383#       发表于 2026-6-8 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69738428&amp;ptid=2282782" target="_blank">uponutopia 发表于 2026-6-8 10:22</a>
+
+不光是东亚，这是写在人类基因里的，白皮也爱流量小生贾斯汀比伯什么的。亚洲古人爱搞面首小姓，古代白皮 ...</blockquote>
+古代最常见的形容男子美貌的词是美须髯
+

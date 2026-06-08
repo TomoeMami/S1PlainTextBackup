@@ -1388,3 +1388,27 @@ p4g宣传图貌似也没玛丽
 
 —— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Herreimu  
+##### 304#       发表于 2026-6-8 11:46
+
+怎么最眉清目秀的是完二<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Philister  
+##### 305#       发表于 2026-6-8 11:47
+
+可能会为了玛丽和花村再当回凯子，希望别像p3r一样打个开头就玩不下去<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突猛进R  
+##### 306#       发表于 2026-6-8 11:50
+
+有玛丽所以再凯一回。
+
+隔壁P6感觉画面太阴间，那个就不凯了，等完全版。
+
