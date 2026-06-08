@@ -2099,3 +2099,18 @@ Beast of Reincarnation developer interview - PC Gaming Show 2026
 
 怎么又是你！
 
+
+*****
+
+####  今天不守尸  
+##### 203#       发表于 2026-6-8 10:30
+
+毕竟是和风尼尔，肯定要用御用声优<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nage560  
+##### 204#       发表于 2026-6-8 10:31
+
+本来这游戏一看就看出是借鉴的机械纪元，看见前面说借鉴剑星的实在无语，这下确定石川由依给女主配音，总算能让借鉴剑星说的闭嘴了。
+
