@@ -3876,3 +3876,11 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 东南亚偶像团体审美趋势是这样的，男人也要阴柔女相，最近看一个瑞萍韩团颜值的博主，“长得像女人的男人 ...</blockquote>
 不光是东亚，这是写在人类基因里的，白皮也爱流量小生贾斯汀比伯什么的。亚洲古人爱搞面首小姓，古代白皮也有神父癖好 希腊一老带一小。不是现在“长得像女人的男人”很受欢迎，自古以来形容男人美貌的词都是和女人共用的，莲花六郎什么的可不是现代人
 
+
+*****
+
+####  zhouaa  
+##### 378#       发表于 2026-6-8 10:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以谈审美还是多上图吧
+

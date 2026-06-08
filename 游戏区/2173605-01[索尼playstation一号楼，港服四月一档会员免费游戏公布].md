@@ -203,3 +203,14 @@ VGC的Jordan Middler说新神海已经在路上了，应该是在星际异端后
 新神海比异端先知先上顽皮狗还能挽回一点口碑，这舒适区要是再搞不定尼尔可以滚蛋了 ...</blockquote>
 Neil不会做神海的，他主力项目是星际异端，新神海是失落遗产的导演做，星际开发完成后制作团队切到神海的全面开发，Nei应该会再转去做TLOU3的预开发
 
+
+*****
+
+####  a2042312  
+##### 694#       发表于 2026-6-8 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69738427&amp;ptid=2173605" target="_blank">SergeGlenn 发表于 2026-6-8 10:22</a>
+
+Neil不会做神海的，他主力项目是星际异端，新神海是失落遗产的导演做，星际开发完成后制作团队切到神海的 ...</blockquote>
+顽皮狗的人还不够两部游戏一起全力吗，这星际异端27年不知道出不出的来。
+
