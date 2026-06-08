@@ -890,3 +890,11 @@ p系列首次启用土居恶魔
 
 —— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  妄想中毒  
+##### 252#       发表于 2026-6-8 08:10
+
+和P3一样这作还是免了，原版流程已经够长的了，重制版再来一百多个小时我受不了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
