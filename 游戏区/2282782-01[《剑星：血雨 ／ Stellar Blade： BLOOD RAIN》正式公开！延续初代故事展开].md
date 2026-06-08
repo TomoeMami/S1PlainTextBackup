@@ -4095,3 +4095,29 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 你回我的第一句话就不是个读过书的人能说得出来的话，高中课本上就有《采莲赋》，就算不知道魏晋风流也该知道古代几大美男潘安、兰陵王高长恭、宋玉、卫玠吧，谈论性癖和男性美貌的话题你翻来一堆不是皇帝就是**的官方文献是来搞笑么，谁TM讨论性癖话题的时候拿红头文件啊。吃自媒体二手屎说的不就是你自己，但凡你还有点羞恶之心都很难想象是怎么能打出自己看史书总结这几个字的。<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  名居守  
+##### 398#       发表于 2026-6-8 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69739535&amp;ptid=2282782" target="_blank">Ironman_mk5 发表于 2026-6-8 13:15</a>
+突然想起有日本制作人说怕被欧美指控炼铜只能做大雷，所以现在低身长小雷的剑星2人设默认是萝莉控xp么 ...</blockquote>
+那我就不得不来句暴论了
+偏写实向的游戏里年纪弄小还加上雀斑，大概率是想讨好鬼佬那群搞真人炼铜的
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就看金亨泰能不能打破这个刻板印象了
+
+*****
+
+####  汪达  
+##### 399#       发表于 2026-6-8 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69739575&amp;ptid=2282782" target="_blank">uponutopia 发表于 2026-6-8 13:25</a>
+
+憋了这么久 问AI找的很幸苦吧  
+
+你回我的第一句话就不是个读过书的人能说得出来的话，高中课本上就有《采 ...</blockquote>
+能把史书当成官方文献的未免太掉价，难道AI没告诉过你，前四史纯粹是个人修的私史吗？
+
+另外后面褚渊“须髯如戟”那段小故事也不是来自官方文献哦，是《云仙杂记》
+

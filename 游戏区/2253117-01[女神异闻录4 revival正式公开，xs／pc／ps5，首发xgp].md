@@ -1502,3 +1502,26 @@ P5R主人公のペルソナ: アルセーヌ</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">心态已经变了，已经能和足立互相理解了
 
+
+*****
+
+####  superlink  
+##### 314#       发表于 2026-6-8 13:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">新立绘太平了，原版有股邪魅感
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  黑上シグマ  
+##### 315#       发表于 2026-6-8 13:45
+
+<blockquote>引用第311楼forestlimit于2026-06-08 12:41发表的  :
+
+这啥东西</blockquote>
+熊的伊格尔服装呗
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
