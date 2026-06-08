@@ -31,3 +31,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">商业角度的话运营方没什么理由要求拆伙吧
 
+
+*****
+
+####  aritaatsu222  
+##### 1958#       发表于 2026-6-8 21:34
+
+不管是rfm还是nornis都像成员自主提出
+

@@ -1849,3 +1849,11 @@ p4r出了之后就要去p5x客串了<img src="https://static.stage1st.com/image/
 
 看了预告片又感觉很不错啊，谁来把我玩过P4G的记忆清零吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yugao  
+##### 346#       发表于 2026-6-8 21:25
+
+重置后还会有绿色成龙吗
+
