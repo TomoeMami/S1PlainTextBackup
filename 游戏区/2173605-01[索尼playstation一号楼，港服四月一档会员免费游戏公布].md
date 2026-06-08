@@ -256,3 +256,13 @@ TLOU2发售后顽皮狗招了很多的producer改善项目管理，想解决crun
 
 现在充plus一档正确的姿势是什么？我只想填一填以前没玩完的会免坑，看B站统计的已经很久没出现8折以下的折扣了，再加上涨价，是不是还不如二手盘了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  clover293  
+##### 699#       发表于 2026-6-8 15:33
+
+顽皮狗新作和圣莫尼卡新作一年？
+
+而且明年年底不就ps6了，不如留到年底护航
+
