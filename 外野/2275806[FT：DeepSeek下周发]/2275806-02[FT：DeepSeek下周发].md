@@ -2095,3 +2095,21 @@ ds最近提速了吗？api上周峰值能到7-80的速度，平均60多，今天
 
 思维模式开到最大也不那么好用。
 
+
+*****
+
+####  villsian  
+##### 1662#       发表于 2026-6-8 18:21
+
+今天有掉缓存的吗？今天跑了几个任务，干出去30多块。。。肉疼
+
+不知道是自己代码改出BUG了还是D老师出BUG了呀。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202606/08/182100et3r5te805c3zalc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-8 18:21 上传
+
