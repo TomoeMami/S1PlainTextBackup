@@ -4011,3 +4011,16 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 06年的号 需要我哄你吗？</blockquote>
 哇哦，18年的号，需要我悄悄跟你说一句这种东西要自己看史书总结，AI各种吃自媒体二手屎+各种幻觉，张口闭口AI会显得自己很无知吗？
 
+
+*****
+
+####  uponutopia  
+##### 392#       发表于 2026-6-8 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69739347&amp;ptid=2282782" target="_blank">汪达 发表于 2026-6-8 12:32</a>
+
+哇哦，18年的号，需要我悄悄跟你说一句这种东西要自己看史书总结，AI各种吃自媒体二手屎+各种幻觉，张口 ...</blockquote>
+美须髯就是你看遍史书总结憋出来的三个字儿？那我挺好奇你都看了那些史书？
+
+算了 回你感觉都很可笑
+
