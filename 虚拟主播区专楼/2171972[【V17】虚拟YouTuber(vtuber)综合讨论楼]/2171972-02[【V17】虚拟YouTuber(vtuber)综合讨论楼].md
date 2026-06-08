@@ -69,3 +69,12 @@
 
 当初选她进去是真的浪费资源
 
+
+*****
+
+####  渡鸦骑士  
+##### 1962#       发表于 2026-6-9 00:37
+
+考虑到你虹历来的宣传运用团队，这种主推的团队一个时期好像只能养一个半左右？
+压着不放感觉有某种你虹的上限限制的感觉<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
