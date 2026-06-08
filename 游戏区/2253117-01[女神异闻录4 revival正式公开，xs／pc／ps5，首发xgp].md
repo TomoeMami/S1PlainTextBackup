@@ -898,3 +898,37 @@ p系列首次启用土居恶魔
 
 和P3一样这作还是免了，原版流程已经够长的了，重制版再来一百多个小时我受不了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑上シグマ  
+##### 253#       发表于 2026-6-8 08:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首发不带NS2玩，导致实体版只有PS5
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
+*****
+
+####  红魔馆的糖  
+##### 254#       发表于 2026-6-8 08:21
+
+看这pv我觉得很ok啊，可能是之前的预期放太低了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+先把阿特拉斯的马放在火箭上，看迷宫改不改再决定飞不飞
+
+
+*****
+
+####  wthall  
+##### 255#       发表于 2026-6-8 08:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69737624&amp;ptid=2253117" target="_blank">红魔馆的糖 发表于 2026-6-8 08:21</a>
+
+看这pv我觉得很ok啊，可能是之前的预期放太低了
+
+先把阿特拉斯的马放在火箭上，看迷宫改不改再决定飞不飞 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">铁不会改的，安心等答辩吧。
+
+我反正不做凯子了
+
