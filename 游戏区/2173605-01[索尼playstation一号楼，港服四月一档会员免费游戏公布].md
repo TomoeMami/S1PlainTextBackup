@@ -248,3 +248,11 @@ TLOU2发售后顽皮狗招了很多的producer改善项目管理，想解决crun
 
 我觉得唯一可能的方法就是从TLOU2的制作规格上退步下来，但是玩家的反馈也可想而知
 
+
+*****
+
+####  furui3132  
+##### 698#       发表于 2026-6-8 15:20
+
+现在充plus一档正确的姿势是什么？我只想填一填以前没玩完的会免坑，看B站统计的已经很久没出现8折以下的折扣了，再加上涨价，是不是还不如二手盘了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
