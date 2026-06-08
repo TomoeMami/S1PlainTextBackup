@@ -2091,3 +2091,11 @@ Beast of Reincarnation developer interview - PC Gaming Show 2026
 
 出演者：佐藤みゆ希、大塚明夫、諸星すみれ、小林ゆう、石田彰、三上哲、佐藤利奈、金尾哲夫（敬称略）
 
+
+*****
+
+####  hkguty  
+##### 202#       发表于 2026-6-8 09:36
+
+怎么又是你！
+

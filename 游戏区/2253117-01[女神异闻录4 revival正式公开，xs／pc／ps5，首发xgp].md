@@ -1033,3 +1033,19 @@ p系列首次启用土居恶魔
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">觉得阿特拉斯会改迷宫是活在哪个梦里呢
 
+
+*****
+
+####  x分裂者  
+##### 267#       发表于 2026-6-8 09:42
+
+重制居然有特性，番长自己也能用到有如创国之举的大神了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/23eb5b966b4d8e54634637be31c16b36/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Schwarzess  
+##### 268#       发表于 2026-6-8 09:42
+
+有玛丽就谢天谢地了，迷宫肯定是p3r一样的原味。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
