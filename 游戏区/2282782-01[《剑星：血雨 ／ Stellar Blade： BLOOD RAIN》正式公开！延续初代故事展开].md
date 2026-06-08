@@ -4074,3 +4074,24 @@ CEO Kim Hyung-tae: "I Will Strive to Make "Blood Rain" a Title We Can Be Proud O
 
 以后也别迷信AI，xxn喜欢去雄化审美，用各种小作文吹捧去雄化多么正当，AI把这些小作文吃了后再反刍给人类，就很无语知道吗，我不是来故意抬杠的，我只是想指出古代并没有某些自媒体或者AI总结的那样去雄化而已
 
+
+*****
+
+####  Ironman_mk5  
+##### 396#       发表于 2026-6-8 13:15
+
+突然想起有日本制作人说怕被欧美指控炼铜只能做大雷，所以现在低身长小雷的剑星2人设默认是萝莉控xp么
+
+
+*****
+
+####  uponutopia  
+##### 397#       发表于 2026-6-8 13:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69739496&amp;ptid=2282782" target="_blank">汪达 发表于 2026-6-8 13:05</a>
+
+那随便来点史书原文</blockquote>
+憋了这么久 问AI找的很幸苦吧<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">  
+
+你回我的第一句话就不是个读过书的人能说得出来的话，高中课本上就有《采莲赋》，就算不知道魏晋风流也该知道古代几大美男潘安、兰陵王高长恭、宋玉、卫玠吧，谈论性癖和男性美貌的话题你翻来一堆不是皇帝就是**的官方文献是来搞笑么，谁TM讨论性癖话题的时候拿红头文件啊。吃自媒体二手屎说的不就是你自己，但凡你还有点羞恶之心都很难想象是怎么能打出自己看史书总结这几个字的。<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

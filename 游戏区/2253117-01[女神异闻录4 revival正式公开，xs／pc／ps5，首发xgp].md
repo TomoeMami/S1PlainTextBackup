@@ -1494,3 +1494,11 @@ P5R主人公のペルソナ: アルセーヌ</blockquote>
 
 这啥东西
 
+
+*****
+
+####  格林达姆  
+##### 313#       发表于 2026-6-8 13:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">心态已经变了，已经能和足立互相理解了
+
