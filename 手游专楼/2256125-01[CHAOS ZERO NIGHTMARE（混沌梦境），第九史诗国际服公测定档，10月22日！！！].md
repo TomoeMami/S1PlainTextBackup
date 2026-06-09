@@ -2267,3 +2267,15 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 
 还有那个无间烬火是怎么出来的？我怎么零号系统都没那个本
 
+
+*****
+
+####  orangee  
+##### 951#       发表于 2026-6-9 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69745314&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-6-9 16:05</a>
+还有那个无间烬火是怎么出来的？我怎么零号系统都没那个本</blockquote>
+在零号系统里重做种子有概率出，还有第一研究所也是
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
