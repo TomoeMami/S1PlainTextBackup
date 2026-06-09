@@ -576,3 +576,24 @@ DS 本地部署真的便宜 ，硬件8万就能落地，但是需要有人监管
 —— 来自 HUAWEI SGT-AL50, Android 12, 鹅球 v3.4.97-alpha ...</blockquote>
 部署系统前最重要的一定要确定要干嘛的，大部分员工需求和业务后续，连完全体DS都不要，所以就非常便宜，尤其在规模一百来人 AI助理对这些公司帮助非常大，因为相当部署一个全天候的中台给每个业务员工做业务支援，不仅不需要裁员，业务员工效率提的很高，不过还是那个重点你要找人看这个AI，输入资料和后续纠错一定要干
 
+
+*****
+
+####  sellboy  
+##### 60#       发表于 2026-6-9 20:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69746717&amp;ptid=2283017" target="_blank">smiths146 发表于 2026-6-9 20:52</a>
+
+部署系统前最重要的一定要确定要干嘛的，大部分员工需求和业务后续，连完全体DS都不要，所以就非常便宜， ...</blockquote>
+那可以选qwen b27呀，这4bit量化的16GB显卡就能跑。
+
+*****
+
+####  smiths146  
+##### 61#       发表于 2026-6-9 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69746733&amp;ptid=2283017" target="_blank">sellboy 发表于 2026-6-9 20:55</a>
+
+那可以选qwen b27呀</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">这就是DS时刻的含金量了。外国小老板认识通义千问 这4个字难度太高，DS时刻一定是在新闻上看过的
+
