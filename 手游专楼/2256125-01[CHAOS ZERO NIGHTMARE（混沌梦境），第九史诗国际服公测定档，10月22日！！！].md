@@ -2248,3 +2248,14 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 圣遗物别去零式里拿，刷出击用碎片合。</blockquote>
 后期也要出击里合不能模拟刷么？出击好肝呀
 
+
+*****
+
+####  伊布桑  
+##### 949#       发表于 2026-6-9 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69745098&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-6-9 15:28</a>
+后期也要出击里合不能模拟刷么？出击好肝呀</blockquote>
+如果只要圣遗物的话，后期这两个都不刷，逮着每天一次的扫荡卡厄思就行。
+出击后期主要是换存档修改道具
+

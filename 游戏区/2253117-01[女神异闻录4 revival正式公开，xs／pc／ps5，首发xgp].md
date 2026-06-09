@@ -2051,3 +2051,32 @@ P4G的迷宫太无聊了，应该也重制了吧？</blockquote>
 其它游戏里中配的问题往往是羞耻感，感觉都是夹着配的，不敢把中二的台 ...</blockquote>
 现在去b站搜索p5x手游中配，满足你猎奇的同时说不定还能在评论区看到新声代说xx老师配的真好<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 367#       发表于 2026-6-9 15:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69745175&amp;ptid=2253117" target="_blank">红魔馆的糖 发表于 2026-6-9 15:42</a>
+
+现在去b站搜索p5x手游中配，满足你猎奇的同时说不定还能在评论区看到新声代说xx老师配的真好 ...</blockquote>
+听了下，很多都是夹子音<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  李喜睡  
+##### 368#       发表于 2026-6-9 15:51
+
+p4g之前玩了18个小时有个boss没打过就搁置了，是直接等明年重置还是捡起来继续玩呢？我主要担心继续玩的话到时候重置版就玩不动了
+
+
+*****
+
+####  人畜无害沃特碧  
+##### 369#       发表于 2026-6-9 15:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69745229&amp;ptid=2253117" target="_blank">李喜睡 发表于 2026-6-9 15:51</a>
+
+p4g之前玩了18个小时有个boss没打过就搁置了，是直接等明年重置还是捡起来继续玩呢？我主要担心继续玩的话 ...</blockquote>
+可以玩一下，战斗可以叮一下，反正重制版还要再吃一遍
+
