@@ -4494,3 +4494,11 @@ pv最后是说女主还有个大哥吗
 
 xb新作pv越看越觉得人设好看
 
+
+*****
+
+####  lost-star  
+##### 473#       发表于 2026-6-10 06:11
+
+女的不行是因为pv各个苦大仇深脸啊，笑起来温柔起来应该就好了<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
