@@ -652,3 +652,13 @@ pvpve嗎……小高搜打撒？
 
 本想着公布发售日就去下单NS2的，现在看来可以再等等了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  clyde-wang  
+##### 70#       发表于 2026-6-10 07:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749370&amp;ptid=2250995" target="_blank">woshenc 发表于 2026-6-10 00:23</a>
+小高估计是有什么把柄给任天堂给抓住了，不然想不通怎么会去做这么个独占游戏 ...</blockquote>
+开发者访谈里制作团队都说了，当初有这个想法时候，问了一圈任天堂觉得挺有意思就出资做了，别人不感兴趣呀
+

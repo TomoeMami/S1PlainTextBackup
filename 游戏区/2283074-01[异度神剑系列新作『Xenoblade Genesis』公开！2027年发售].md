@@ -4573,3 +4573,15 @@ Xenoblade Deuteronomy
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是女主只有和男主在一起才能发挥巨大的能力
 明显就是还要组cp
 
+
+*****
+
+####  asikies  
+##### 480#       发表于 2026-6-10 07:06
+
+<blockquote>アヘ顔 发表于 2026-6-10 07:03
+但是女主只有和男主在一起才能发挥巨大的能力
+
+明显就是还要组cp</blockquote>
+顶天是类似兄妹感情，不搞百合不会弄女主角。
+
