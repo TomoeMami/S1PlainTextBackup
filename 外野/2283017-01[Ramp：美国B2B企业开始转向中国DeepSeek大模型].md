@@ -402,3 +402,14 @@ agent 编程从性价比上是否还是不如传统 llm 编程
 预期中的大量agent使用的优质RL数据占比比预期的少， 反而是网页 ...</blockquote>
 xhs roll一个月有agent跑一下午token多吗，而且这种数据直接按roll的次数扔了就行，又没什么难度    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  烈焰风暴  
+##### 47#       发表于 2026-6-9 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69744571&amp;ptid=2283017" target="_blank">很久就在那边l 发表于 2026-6-9 13:29</a>
+
+另一边国内很多人顶着几十倍deepseek的价格也要用gpt和claude</blockquote>
+因为公司报销啊- -自己哪用得起。。。
+
