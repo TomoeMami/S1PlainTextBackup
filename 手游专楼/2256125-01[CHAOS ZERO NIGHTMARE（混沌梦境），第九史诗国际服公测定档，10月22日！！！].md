@@ -2162,3 +2162,16 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 
 剩下几天随缘拉拉吉他和其他角色，日常打打零式和出击，备战新角色就好了
 
+
+*****
+
+####  伊布桑  
+##### 941#       发表于 2026-6-9 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69743558&amp;ptid=2256125" target="_blank">西瓜不甜不甜 发表于 2026-6-9 10:44</a>
+
+大概玩明白了，出击 作为这游戏的真肉鸽模式，想放松玩，没时间的上班族就别照着攻略，手刷第一层要把什么 ...</blockquote>
+推荐一个比较强的出击套路，冰狗反击流<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这个版本反击强度上去了，且冰狗上修了不少，导致她在局内的保姆能力大幅上涨，反击流攻防兼具，费用利用率奇高。
+

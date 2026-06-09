@@ -1932,3 +1932,24 @@ p4r出了之后就要去p5x客串了<img src="https://static.stage1st.com/image/
 突然看到个说法说这个pv有很多参考了4U的，有没有懂哥叮真一下的</blockquote>
 这次的新系统（4more那个）用的是P4U里面一个连携系统的名字
 
+
+*****
+
+####  m1grandmk1  
+##### 355#       发表于 2026-6-9 11:20
+
+P4G的迷宫太无聊了，应该也重制了吧？
+
+
+*****
+
+####  黑上シグマ  
+##### 356#       发表于 2026-6-9 11:24
+
+<blockquote>引用第354楼m1grandmk1于2026-06-09 11:20发表的  :
+
+P4G的迷宫太无聊了，应该也重制了吧？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看P3R，怎么还有人指望迷宫重制的
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
