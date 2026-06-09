@@ -4502,3 +4502,17 @@ xb新作pv越看越觉得人设好看
 
 女的不行是因为pv各个苦大仇深脸啊，笑起来温柔起来应该就好了<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  慕容断月  
+##### 474#       发表于 2026-6-10 06:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749716&amp;ptid=2283074" target="_blank">根正苗红 发表于 2026-6-10 01:52</a>
+你坛羊到魔障了嘛？这都能拐到羊
+
+应该是强者之音石川由依。女主战斗力有保障了
+
+（话说我也是听了好几遍， ...</blockquote>
+是小松，不是石川<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
