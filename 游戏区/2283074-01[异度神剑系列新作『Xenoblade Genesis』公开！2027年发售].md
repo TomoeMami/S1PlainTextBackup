@@ -4516,3 +4516,25 @@ xb新作pv越看越觉得人设好看
 （话说我也是听了好几遍， ...</blockquote>
 是小松，不是石川<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  勿徊哉  
+##### 475#       发表于 2026-6-10 06:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749170&amp;ptid=2283074" target="_blank">topia 发表于 2026-6-9 23:58</a>
+
+正好官号放了xb12e的图，pv有类似的场景拿来对比一下
+
+近景感觉精致了不少，但远景感觉怪怪的 ...</blockquote>
+怎么感觉不如开了高清补丁的模拟器
+
+
+*****
+
+####  勿徊哉  
+##### 476#       发表于 2026-6-10 06:40
+
+女主不是挺好吗，多久没玩女主游戏了
+去年才玩过空轨1st
+
