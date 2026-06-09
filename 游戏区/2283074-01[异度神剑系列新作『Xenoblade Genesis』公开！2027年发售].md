@@ -3644,3 +3644,175 @@ XB1 2E牵绊对话补配音了
 从海面的透视来看像是从一个鱼缸底部往上看随便找的参考图</blockquote>
 最终流放是吧
 
+
+*****
+
+####  巨馍蘸酱  
+##### 389#       发表于 2026-6-10 00:36
+
+面部阴影的问题感觉很严重，跟XB3一个样
+
+*****
+
+####  ryanghj  
+##### 390#       发表于 2026-6-10 00:37
+
+小松未可子在2025年拿到一线新作女主CV的可能性是0<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ArthurDent  
+##### 391#       发表于 2026-6-10 00:38
+
+三个升级包给我干的在看储存卡了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  shilhouette  
+##### 392#       发表于 2026-6-10 00:39
+
+说xbg没有诺朋的，没准过几章就告诉你这鬼地方的智慧生物就是诺朋超进化来的，全是mo
+
+*****
+
+####  天天acgn  
+##### 393#       发表于 2026-6-10 00:39
+
+看完PV为什么感觉像在看三房<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  P-link  
+##### 394#       发表于 2026-6-10 00:39
+
+我赌五毛有个诺彭村<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  The_Fool_  
+##### 395#       发表于 2026-6-10 00:39
+
+我真觉得没必要这么早就对着人设服装滑坡辱骂，目前异度神剑系列4作，每一作都有换装要素，XBDE 2E更新后甚至还有改变发型的服装了，因此这个XBG大概率也会有换装的，到时候再看呗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  没取名啊  
+##### 396#       发表于 2026-6-10 00:40
+
+xb3那个光影风格我没觉得有啥不好的，很二次元很风格化
+
+*****
+
+####  RainbowSealife  
+##### 397#       发表于 2026-6-10 00:40
+
+今年通了XB2和XB3，尤其是XB3的资料片崭新的未来，打通后一脸懵逼，知道是本体前传也没期待能完善设定或者填坑，结果没想到还要挖新坑？<img src="https://static.stage1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pf67  
+##### 398#       发表于 2026-6-10 00:46
+
+ 本帖最后由 pf67 于 2026-6-10 00:47 编辑 
+
+像风花雪月是真的像
+
+但是我没觉得有这PV有任何不行,或者不如说XB系列怎么换画风人设我都不会觉得不行
+
+毕竟我不是某一作的粉丝,而是从异度装甲开始就喜欢着这个系列的老玩家.
+
+*****
+
+####  deathliu  
+##### 399#       发表于 2026-6-10 00:46
+
+<img src="https://img.stage1st.com/forum/202606/10/004539hvdv2mh9g9b6knk7.png" referrerpolicy="no-referrer">
+
+<strong>1506B82141C9B0ECD2220FD4C7C5DD83.png</strong> (52.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 00:45 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/004539r7z8j1142hsssb22.png" referrerpolicy="no-referrer">
+
+<strong>1ED501746C848A72CFE98FB42F2F170E.png</strong> (106.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 00:45 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/004539vow906j3b3rby9zb.png" referrerpolicy="no-referrer">
+
+<strong>880146DA5DF6CA58F1527D671EECFE4A.png</strong> (193.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 00:45 上传
+
+目前来看和XBX DLC的关系很大
+
+*****
+
+####  这是马甲  
+##### 400#       发表于 2026-6-10 00:46
+
+世界设定有点奇怪，按视频里的弯曲程度，感觉空间也没多大
+
+但是却有六个太阳，还有云和飞龙
+
+最后还出现星空了，应该是到了外面？
+
+
+*****
+
+####  Piano-Forest  
+##### 401#         楼主| 发表于 2026-6-10 00:46
+
+[https://www.nintendo.com/hk/topics/article/2ukYuSnLdg36wq7LAy2fNW](https://www.nintendo.com/hk/topics/article/2ukYuSnLdg36wq7LAy2fNW)
+
+「Xenoblade」系列迎來全新的開始。 全新作品《Xenoblade Genesis (異度神劍 創世)》預定於 2027年在Nintendo Switch 2登場。  
+
+「阿尼瑪」是世界的根源，無論是水、火、風，構成這個世界的一切全都是由流動於大地之中的阿尼瑪塑形而成。戰鬥勝敗的關鍵，始終在於阿尼瑪以及能隨心所欲驅使其力量的器士。
+
+主角將會帶著擁有神秘力量的「阿尼瑪晶石」，在學院生活裡掌握力量的使用方式，並逐漸更強大。
+
+Xenoblade系列三部作品，各將於Nintendo Switch 2登場
+
+三部作品皆對應60FPS。TV模式對應4K解析度，手提模式對應Full HD解析度。事件場景會以更細膩流暢的畫面呈現。
+
+每部作品將增加各式各樣的新要素
+
+異度神劍 終極版 Nintendo Switch 2 Edition
+
+·能高速穿越地區的新型交通工具
+
+·全新造型的裝備
+
+·牽絆對話的語音
+
+異度神劍2 Nintendo Switch 2 Edition
+
+·操作神劍進行傭兵團的動作戰鬥
+
+·新的稀有神劍和任務
+
+·焰和光的服裝新造型
+
+異度神劍3 Nintendo Switch 2 Edition
+
+·逐漸強化自身來抵禦敵軍的新模式
+
+·新的英雄和任務
+
+·部分事件場景的語音
+
+<img src="https://p.sda1.dev/32/16562927f9faf3d55ab421dfa251fb57/1000167954.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/65d97fa7aa9d8450dcc99ad2b400b5aa/1000167953.jpg" referrerpolicy="no-referrer">
+
