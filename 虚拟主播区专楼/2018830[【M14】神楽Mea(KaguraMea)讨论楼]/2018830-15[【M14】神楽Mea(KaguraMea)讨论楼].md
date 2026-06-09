@@ -686,3 +686,41 @@ takayaspecial也在对面，还是对位可能也有关吧。
 还是认为mea最近的压力是有可能 ...</blockquote>
 他学个p，都这么长时间了，拿不出来就是拿不出去，赶紧把天赋带到其他队吧。
 
+
+*****
+
+####  术士q  
+##### 20878#       发表于 2026-6-10 00:05
+
+ 本帖最后由 术士q 于 2026-6-10 00:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748964&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2026-6-9 23:41</a>
+他学个p，都这么长时间了，拿不出来就是拿不出去，赶紧把天赋带到其他队吧。 ...</blockquote>
+那觉得乌迪尔挺适合这打野的()，龟凤流当团战搅屎棍就行了，反正不需要他第一个开，判断也有问题，那这个总不需要做些啥了，跟着跑过去锤人吹风任务就完成了。
+
+不过目前队伍是希望他来起前期节奏的，乌迪尔gank全靠一双腿太笨了，而他起不了前期节奏的局打得又很一般。
+
+说这些也没用。
+
+这次ltk虽然说整体把下路段位提高，但是别的位置又比较随机，打野是在白金，而yufuna目前确实很难跟上的感觉，而一个ltk里常规赛到线下赛是没有转会的。
+
+不过应该不会和it一个半区吧?剩下的两队不说游戏内容，bp来看都挺不健康的，和那俩队打也还凑合。
+
+说起来当初mea练辅助练出来用了多久来着，好像也是季后赛开始发威的，不过打团好这个特点倒是一直都在。
+
+也不知道天月现在的段位是什么，记得天月之前还是next的选手，现在到了core了。
+
+
+*****
+
+####  古战场亡魂  
+##### 20879#       发表于 2026-6-10 00:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749241&amp;ptid=2018830" target="_blank">术士q 发表于 2026-6-10 00:05</a>
+
+那觉得乌迪尔挺适合这打野的()，龟凤流当团战搅屎棍就行了，反正不需要他第一个开，判断也有问题，那这个 ...</blockquote>
+一样白金。
+
+看数据，这个网站[https://lol.jibu.dev/](https://lol.jibu.dev/)
+
+比赛数据[https://demo-lab0110.github.io/ltk-schedule-status-site/](https://demo-lab0110.github.io/ltk-schedule-status-site/)
+

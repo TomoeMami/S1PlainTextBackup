@@ -3100,3 +3100,178 @@ XBG跟小红帽的共同点太多了：
 
 之前那个ai的PPT虽然鉴定为假，但是这女主人设也太像了，会不会是真的有泄露的图，按照那个做的。毕竟米山舞做人设也是很早就爆出来的。
 
+
+*****
+
+####  铁甲钢弹  
+##### 331#       发表于 2026-6-10 00:07
+
+又回看了一遍，粉毛、白毛脸捏得倒是挺好看，就是服装有点土。看剧情人物塑造了。更严肃的问题是，片子里好像没看到诺彭嗼。
+
+*****
+
+####  恶意之刃  
+##### 332#       发表于 2026-6-10 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749233&amp;ptid=2283074" target="_blank">江口夕 发表于 2026-6-10 00:03</a>
+受前作欢迎是哪个前作，2代开后宫，3代全配对，我寻思前两代就没啥重合点
+
+—— 来自 Xiaomi 23113RKC6C, A ...</blockquote>
+Xb2第7章标题啦当然是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Bruce33  
+##### 333#       发表于 2026-6-10 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749097&amp;ptid=2283074" target="_blank">topia 发表于 2026-6-9 23:51</a>
+ 阴阳脸应该不会缺席的</blockquote>
+现在啥jrpg还有二游脸部效果不是这样的，而且这个观感还没那么差
+
+*****
+
+####  膝盖中五箭  
+##### 334#       发表于 2026-6-10 00:08
+
+<img src="https://p.sda1.dev/32/61cbde2a1d6f1d0855c012ebd91aa96f/image.jpg" referrerpolicy="no-referrer">
+男主才像吧黑皮黑发
+
+—— 来自 HUAWEI OXF-AN10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  zhangzcl2  
+##### 335#       发表于 2026-6-10 00:08
+
+这次大地图能不能做到无缝，不要像xb3那样搞拼接了，实在做不到要不干脆各部分地图物理上不相连需要走传送门或者交通工具得了
+
+*****
+
+####  zhouaa  
+##### 336#       发表于 2026-6-10 00:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我不喜欢风格化就是这个原因，估计是想做出古典油画的感觉吧，一切包括远景的边缘都打上了油。
+
+*****
+
+####  BREEEEZE  
+##### 337#       发表于 2026-6-10 00:09
+
+如果说女主后面要瞎，那可能过两章要强制换主角而且战斗系统会大变
+
+*****
+
+####  windhawind2  
+##### 338#       发表于 2026-6-10 00:09
+
+网红插画师的人设动起来也就那样了 只能期待一个剧情反转人设变身了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ryanghj  
+##### 339#       发表于 2026-6-10 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748543&amp;ptid=2283074" target="_blank">hkguty 发表于 2026-6-9 23:13</a>
+
+看起来就完全不一样，PV里也不是剑斗士，这设定图里两人都是奴隶，女主还是个盲人，用机关棍，要么是设定 ...</blockquote>
+有一说一这泄露图反而有可能是剧透，因为PV可能只是序章部分，后面女主出事落草为寇眼瞎了也不是不可能<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nagisa123  
+##### 340#       发表于 2026-6-10 00:10
+
+看这远景肯定无缝了，再切图实在说不过去
+
+*****
+
+####  zakki  
+##### 341#       发表于 2026-6-10 00:10
+
+环形世界，太阳，是黄金树海纪行米克特兰<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  P-link  
+##### 342#       发表于 2026-6-10 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749170&amp;ptid=2283074" target="_blank">topia 发表于 2026-6-9 23:58</a>
+
+正好官号放了xb12e的图，pv有类似的场景拿来对比一下
+
+近景感觉精致了不少，但远景感觉怪怪的 ...</blockquote>
+远景像油画风模糊化了的感觉
+
+*****
+
+####  topia  
+##### 343#       发表于 2026-6-10 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749257&amp;ptid=2283074" target="_blank">Bruce33 发表于 2026-6-10 00:07</a>
+
+现在啥jrpg还有二游脸部效果不是这样的，而且这个观感还没那么差</blockquote>
+反正我从xb3开始就不喜欢这个过于强硬的明暗分界线了，至于别的游戏爱咋咋地
+
+*****
+
+####  守名居  
+##### 344#       发表于 2026-6-10 00:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">话说回来，这泄露图女主的衣服我老幻视成日本那种经典的JK服
+
+*****
+
+####  哆哆鸡  
+##### 345#       发表于 2026-6-10 00:11
+
+单论女主人设，感觉不如隔壁新的炼金工房，这是能说的吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  BREEEEZE  
+##### 346#       发表于 2026-6-10 00:12
+
+虽然可能是无缝但看这山景贴图精度，还是没有xbx那种自由度
+
+*****
+
+####  zhenlune  
+##### 347#       发表于 2026-6-10 00:12
+
+他是怎么做到这么多年过去了画面观感还是没有进步。。。
+
+*****
+
+####  ShiKi847  
+##### 348#       发表于 2026-6-10 00:14
+
+<blockquote>哆哆鸡 发表于 2026-6-10 00:11
+单论女主人设，感觉不如隔壁新的炼金工房，这是能说的吗</blockquote>
+可不敢评论日本达芬奇
+
+*****
+
+####  江口夕  
+##### 349#       发表于 2026-6-10 00:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说像我看像轨迹差不多，又是衔尾蛇，又是创世纪，又是三角恋又是大女主的，不知道的还以为在吸轨迹尾气，哦，还有黑皮，不过人轨迹都明牌美利坚了很合理，你一个中世纪欧洲哪来这么多黑皮，我寻思哪怕十字军东征去中东抓壮丁，那时候中东老乡皮肤可没那么黑
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  kivz  
+##### 350#       发表于 2026-6-10 00:15
+
+贷款吃屎这块<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海晟天锻  
+##### 351#       发表于 2026-6-10 00:15
+
+现在我最想知道的就是盲女是不是真的，就好这一口残缺美<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
