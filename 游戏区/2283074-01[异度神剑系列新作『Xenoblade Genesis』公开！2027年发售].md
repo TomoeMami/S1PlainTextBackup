@@ -4638,3 +4638,50 @@ Xenoblade Deuteronomy
 
 高桥为啥要找网红做游戏，真是无语，这次人设一眼短板，明显是这个网红没做过3d建模的锅
 
+
+*****
+
+####  Dreammask  
+##### 487#       发表于 2026-6-10 07:39
+
+这楼怎么这么快叠到十几页了<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+我觉得人物渲染有大问题啊，ns2机能巨幅提升的情况下genesis还顶着3那套阴阳脸，实在有点不够看
+
+而且明显感觉xb123的ns2e的播片比genesis要流畅，虽然隔着视频当帧数警犬很蠢就是了
+
+希望这段时间能好好修一下吧
+
+*****
+
+####  nozomitech  
+##### 488#       发表于 2026-6-10 07:40
+
+这个地面延伸到天上去的一眼让我想到光环，这不会是某个太空空间站吧我怀疑<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woaimiyabi  
+##### 489#       发表于 2026-6-10 07:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69750121&amp;ptid=2283074" target="_blank">Dreammask 发表于 2026-6-10 07:39</a>
+这楼怎么这么快叠到十几页了
+
+我觉得人物渲染有大问题啊，ns2机能巨幅提升的情况下genesis还顶着3那套阴阳脸 ...</blockquote>
+掉帧是直播问题，官方发的视频是没有掉帧的，画面进步确实有限，感觉是为了开放世界作出的拖鞋。
+
+
+*****
+
+####  欠陷制品  
+##### 490#       发表于 2026-6-10 07:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这最后山脉卷上去了一眼大桶子既视感，中间6个大灯泡呗
+
+*****
+
+####  星花  
+##### 491#       发表于 2026-6-10 07:44
+
+一看就是殖民卫星啊，最后不会掉下来了吧？
+
