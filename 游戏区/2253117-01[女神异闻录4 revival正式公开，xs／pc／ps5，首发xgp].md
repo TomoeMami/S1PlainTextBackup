@@ -1991,3 +1991,33 @@ P4G的迷宫太无聊了，应该也重制了吧？</blockquote>
 
 立绘半斤八两。。。p3r的太权威了。。。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡拉德利姆  
+##### 361#       发表于 2026-6-9 14:50
+
+<img src="https://img.stage1st.com/forum/202606/09/145038ehhdaoe5memv4d4j.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>96b9984a66c1087b67803d159f7ae01e.jpeg</strong> (148.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 14:50 上传
+
+
+*****
+
+####  FBC档案部专员  
+##### 362#       发表于 2026-6-9 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69744926&amp;ptid=2253117" target="_blank">卡拉德利姆 发表于 2026-6-9 14:50</a></blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">无中配不玩的有福了
+
+*****
+
+####  Marro  
+##### 363#       发表于 2026-6-9 14:55
+
+中配吗？算了吧，这种配音中配配的和死人一样。
+
