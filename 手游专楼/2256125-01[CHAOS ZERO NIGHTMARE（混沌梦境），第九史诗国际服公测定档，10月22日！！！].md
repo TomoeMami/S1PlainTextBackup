@@ -2279,3 +2279,23 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  christiny  
+##### 952#       发表于 2026-6-9 19:52
+
+前面就说了，优先刷出击，定制主C456遗物。再去摸零式，会好打很多。有毒攻略还教人不要刷出击，顶着蓝装去刷N9……看脸赌456<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+9和百利儿，可以刷无间，这两人武器和装备都是无间出货，同时这张图产出孢子卡。 副本词条一定要避开几个啃爹的，比如暴君，扣血量上限，篝火不回血，信用减少。 
+
+*****
+
+####  christiny  
+##### 953#       发表于 2026-6-9 19:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69745314&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-6-9 16:05</a>
+
+还有那个无间烬火是怎么出来的？我怎么零号系统都没那个本</blockquote>
+用金币刷新就行了。
+
