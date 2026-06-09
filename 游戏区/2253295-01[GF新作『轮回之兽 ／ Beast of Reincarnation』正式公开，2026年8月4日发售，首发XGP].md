@@ -2316,3 +2316,16 @@ gf是不是怕褒姒才让微软买单
 
 这画师画的小岛游戏还有闪哈的那几张人物海报确实挺不错，估计这游戏后面也会有一张类似的宣传图
 
+
+*****
+
+####  汪达  
+##### 221#       发表于 2026-6-9 12:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69742990&amp;ptid=2253295" target="_blank">Mephisto 发表于 2026-6-9 09:25</a>
+
+还剩两个月一段实机也没有吗</blockquote>
+有玩法介绍视频
+
+【【IGN】《轮回之兽》玩法概览预告】 [https://www.bilibili.com/video/BV1VczNBvEDD/](https://www.bilibili.com/video/BV1VczNBvEDD/)
+
