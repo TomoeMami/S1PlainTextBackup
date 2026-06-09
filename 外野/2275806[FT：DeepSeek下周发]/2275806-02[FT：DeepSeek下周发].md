@@ -2178,3 +2178,22 @@ Windows的话用Windows terminal就不会有这问题
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ymm1030  
+##### 1669#       发表于 2026-6-9 09:39
+
+球球你们不要蹬了，昨天半夜偶遇智商占领高地的D导，给我写出了迄今为止最好的一个档<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不让用大写  
+##### 1670#       发表于 2026-6-9 09:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69739917&amp;ptid=2275806" target="_blank">haiuhfuwah 发表于 2026-6-8 14:38</a>
+
+做海报的话有没有哪些agent推荐的？国内trae能做么？</blockquote>
+图片吗？GPT image2 或者 nano banana
+
