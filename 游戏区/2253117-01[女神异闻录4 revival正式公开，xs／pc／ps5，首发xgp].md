@@ -1983,3 +1983,11 @@ P4G的迷宫太无聊了，应该也重制了吧？</blockquote>
 
 新立绘和建模看起来正常太多了
 
+
+*****
+
+####  alucardcz  
+##### 360#       发表于 2026-6-9 14:15
+
+立绘半斤八两。。。p3r的太权威了。。。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

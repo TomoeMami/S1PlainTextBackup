@@ -2224,3 +2224,16 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Booorunestud  
+##### 947#       发表于 2026-6-9 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69744555&amp;ptid=2256125" target="_blank">orangee 发表于 2026-6-9 13:26</a>
+
+45级以后出击三的效率已经比在零式里去随机拿仨值了吗？我还以为得50都开了才刷出击
+
+—— 来自 鹅球 v3.3. ...</blockquote>
+零式只随机后三，而且后三词条随机，出货率很差。除了刚开始啥都缺的时候无脑补三张，不然一律建议出击里换
+
