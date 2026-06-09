@@ -390,3 +390,15 @@ agent 编程从性价比上是否还是不如传统 llm 编程
 另一边国内很多人顶着几十倍deepseek的价格也要用gpt和claude</blockquote>
 我忏悔，我花钱用grok，为了涩图
 
+
+*****
+
+####  Dreki  
+##### 46#       发表于 2026-6-9 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69745532&amp;ptid=2283017" target="_blank">hyde_caesar 发表于 2026-6-9 16:41</a>
+谨慎不看好dsv4.1和dsv4.2这些后续版本；
+
+预期中的大量agent使用的优质RL数据占比比预期的少， 反而是网页 ...</blockquote>
+xhs roll一个月有agent跑一下午token多吗，而且这种数据直接按roll的次数扔了就行，又没什么难度    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
