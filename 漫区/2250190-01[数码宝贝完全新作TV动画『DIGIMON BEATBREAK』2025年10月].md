@@ -131,3 +131,11 @@
 主要这个兽的形象不太匹配守宫兽的性格，不过也可能进化确实会影响性格，守宫兽每次进化后就一点儿熊孩子 ...</blockquote>
 会不会影森催熟守宫兽变成究极体。
 
+
+*****
+
+####  西人  
+##### 640#       发表于 2026-6-9 16:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">剩下10多集了吧，这章节奏感觉好慢
+
