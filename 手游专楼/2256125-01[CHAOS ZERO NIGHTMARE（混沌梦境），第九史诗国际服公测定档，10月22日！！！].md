@@ -2318,3 +2318,16 @@ BOSS名字忘了。有个机制，每回合暴动。
 
 冰盾再高的盾也扛不住。
 
+
+*****
+
+####  伊布桑  
+##### 955#       发表于 2026-6-9 21:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69746463&amp;ptid=2256125" target="_blank">christiny 发表于 2026-6-9 19:57</a>
+
+冰盾，还是要看BOSS。昨天遇到那个BOSS，没法对策。
+
+BOSS名字忘了。有个机制，每回合暴动。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">选冰狗不是让你防哈，后面别再选盾了，冰狗主要是单走能力强，不挑队友，走到第三层的时候如果你输出还没成型那确实冰狗难救
+
