@@ -1435,3 +1435,50 @@ PS：
 
 系列老粉丝表示情绪稳定，按照惯例，中间搞不好要插几个冷饭外传
 
+
+*****
+
+####  美军冲滩了吗？  
+##### 124#       发表于 2026-6-9 22:58
+
+<blockquote>虚无连斩 发表于 2022-4-10 19:26
+索拉这脸……这脸……从少年一下变成了成年啊……</blockquote>
+按照惯例应该是变成了这个世界的画风而已，离开这个世界又会变回原来的样子
+
+*****
+
+####  88is88  
+##### 125#       发表于 2026-6-9 22:58
+
+这片没意思啊，还是在涉谷打，关键的迪士尼部分是一点没有
+
+*****
+
+####  无动于衷  
+##### 126#       发表于 2026-6-9 22:59
+
+这画面，你跟我说是虚幻五？？
+
+*****
+
+####  lower  
+##### 127#       发表于 2026-6-9 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748054&amp;ptid=2063712" target="_blank">Piano-Forest 发表于 2026-6-9 22:53</a>
+
+新PV：https://youtu.be/ZHEB4tmezDk
+
+登陆NS2平台</blockquote>
+这是 duskblood 的 pv 啊
+
+
+*****
+
+####  Piano-Forest  
+##### 128#         楼主| 发表于 2026-6-9 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748276&amp;ptid=2063712" target="_blank">lower 发表于 2026-6-9 23:00</a>
+
+这是 duskblood 的 pv 啊</blockquote>
+抱歉，已编辑（可能是YouTube地址一次性复制的有些多乱了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+

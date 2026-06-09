@@ -730,3 +730,388 @@ XB标题加副标题才符合高桥GG新故事开始的想法。
 
 谁也没想到之前那个ai一样的人设是真的
 
+
+*****
+
+####  king520kyo  
+##### 89#       发表于 2026-6-9 22:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748179&amp;ptid=2283074" target="_blank">LT_Harry 发表于 2026-6-9 22:57</a>
+
+英语版预告片 logo 没有 chronicles 了，难道说</blockquote>
+123是克劳乌斯三部曲，新作就是新系列了吧
+
+*****
+
+####  keytomylife  
+##### 90#       发表于 2026-6-9 22:59
+
+恕我直言，带学院的都会拉
+
+*****
+
+####  飞侠小黑  
+##### 91#       发表于 2026-6-9 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69747573&amp;ptid=2283074" target="_blank">赤黑的假面 发表于 2026-6-9 22:33</a>
+真有异度神剑啊</blockquote>
+火纹神剑<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VDE-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  zhuzeitou  
+##### 92#       发表于 2026-6-9 22:59
+
+ns2无敌了
+
+*****
+
+####  储安平  
+##### 93#       发表于 2026-6-9 22:59
+
+感觉会烂
+
+*****
+
+####  aimbot  
+##### 94#       发表于 2026-6-9 22:59
+
+多看几遍意识到
+
+预告片里没有大机器人
+
+没有boy meets girl
+
+没有大莱莱
+
+粪作雷达，启动了<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nunotenn  
+##### 95#       发表于 2026-6-9 23:00
+
+怎么没有诺鹏<img src="https://static.stage1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">求求一定要有诺鹏
+
+*****
+
+####  topia  
+##### 96#       发表于 2026-6-9 23:00
+
+重看了一下pv，这画面是认真的吗？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+远景怎么那么糊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryanghj  
+##### 97#       发表于 2026-6-9 23:00
+
+男主是黑皮奴隶？
+
+<img src="https://img.stage1st.com/forum/202606/09/230124x03wgrvvf0ff4l47.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (866.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 23:01 上传
+
+*****
+
+####  JOJOROY  
+##### 98#       发表于 2026-6-9 23:00
+
+画面感觉不如123可以说吗
+
+*****
+
+####  黒濑黒江  
+##### 99#       发表于 2026-6-9 23:01
+
+风格变化好大，开始真以为是火纹，一股日式西幻味
+
+*****
+
+####  drx66  
+##### 100#       发表于 2026-6-9 23:01
+
+这下大女主游戏了
+
+*****
+
+####  zeta945  
+##### 101#       发表于 2026-6-9 23:01
+
+第一眼xb，然后越看越不像，标题出来之前都以为是新ip了
+
+*****
+
+####  kyonkoism  
+##### 102#       发表于 2026-6-9 23:01
+
+我反正和直播楼里的想法一样，直到结束前那个像滚筒一样的大世界出来之前，观感只能用绝望来形容
+
+比3还不如的人设，找不到的异刃要素，学园过家家，说是火焰纹章新作都不奇怪
+
+但是总不能不玩吧，还好是2027出，到时候再买机子就好<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安广多惠子  
+##### 103#       发表于 2026-6-9 23:01
+
+没想到xb系列的人设竟然能拉到这个地步。。。
+
+*****
+
+####  kinfox  
+##### 104#       发表于 2026-6-9 23:01
+
+无所谓，有xb新作就赢了！终于可以下定决心买ns2了~快乐。正好打xb合集的ns2版
+
+*****
+
+####  跑调跑掉  
+##### 105#       发表于 2026-6-9 23:02
+
+太神秘了，看最后的场景，应该到了后面还是会一转科幻的吧，不然没什么意思
+
+
+*****
+
+####  mio1943  
+##### 106#       发表于 2026-6-9 23:02
+
+感觉是xbx这种异度作品，并不是数字编号的正统续作。
+
+*****
+
+####  stair楼梯  
+##### 107#       发表于 2026-6-9 23:02
+
+画面挺拉的，不过画面这东西还有一年可以优化，先相信
+
+*****
+
+####  Unlight  
+##### 108#       发表于 2026-6-9 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69747964&amp;ptid=2283074" target="_blank">Dai-Dai-Dai-Dai 发表于 2026-6-9 22:50</a>
+脑海中冒出火纹if和男角色开茶会的画面</blockquote>
+你搞混了吧。if是摸脸，三房才是茶会
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  hkguty  
+##### 109#       发表于 2026-6-9 23:02
+
+那张人设图除了蒙对了女主是粉毛以外根本没有一丝设定跟PV是符合的，要么是大改了，要么就是纯蒙
+
+*****
+
+####  Sliurus  
+##### 110#       发表于 2026-6-9 23:03
+
+红毛单马尾在我xp上跳舞，但是感觉背景还是xb3那种风格，没什么惊喜的平庸
+
+*****
+
+####  ryanghj  
+##### 111#       发表于 2026-6-9 23:03
+
+女主男人婆，主角团另一个妹子也是NPC级别<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202606/09/230313f2dp2ebdrw3ef3hs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (133.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 23:03 上传
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 112#       发表于 2026-6-9 23:03
+
+播片水平也很差，看完留下最深的印象是：一点都不刺激拼刀画面太多了。
+
+*****
+
+####  Arisita  
+##### 113#       发表于 2026-6-9 23:03
+
+<img src="https://img.stage1st.com/forum/202606/09/230244wobzw1umoc9xrg12.png" referrerpolicy="no-referrer">
+
+<strong>未标题-1.png</strong> (148.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 23:02 上传
+
+没有bmg，还能是xb?,相信高桥gg<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  华发夜眼[CN]  
+##### 114#       发表于 2026-6-9 23:03
+
+毫无吸引力的人设，土到掉渣的学院设定<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lost-star  
+##### 115#       发表于 2026-6-9 23:03
+
+高桥应该是不咋喜欢中世纪剑与魔法的，所以都搞各种大机器人，感觉不是我高桥哥哥的作品，给新人练手的？所以选择最稳妥的校园？
+
+*****
+
+####  黑卷轴陶德传  
+##### 116#       发表于 2026-6-9 23:03
+
+有点担心闪轨化……
+
+*****
+
+####  topia  
+##### 117#       发表于 2026-6-9 23:03
+
+如果能弧形大地无缝衔接探索我就吹爆
+但看起来只是背景<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  88is88  
+##### 118#       发表于 2026-6-9 23:03
+
+除了女主感觉其它人都土，其实女主也一般，魔法学院部分最多占一半就好了，如果占一半再不转科技线感觉会烂
+
+*****
+
+####  andychen  
+##### 119#       发表于 2026-6-9 23:03
+
+我怕没记错的话，这是高桥第一次做学院题材？
+
+*****
+
+####  嘉术2015  
+##### 120#       发表于 2026-6-9 23:03
+
+这作应该是有坐骑
+
+不知道能不能有飞行坐骑
+
+
+*****
+
+####  巴尔干炮  
+##### 121#       发表于 2026-6-9 23:03
+
+地图一眼殖民地，终于不用背前3代的包袱了，好评。
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 122#       发表于 2026-6-9 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748319&amp;ptid=2283074" target="_blank">Unlight 发表于 2026-6-9 23:02</a>
+
+你搞混了吧。if是摸脸，三房才是茶会
+
+—— 来自 S1Fun</blockquote>
+那就if摸脸，那个杀伤力强太多了
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 123#       发表于 2026-6-9 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748336&amp;ptid=2283074" target="_blank">Arisita 发表于 2026-6-9 23:03</a>
+
+没有bmg，还能是xb?,相信高桥gg</blockquote>
+不是gmb吗?<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  牛奶笛  
+##### 124#       发表于 2026-6-9 23:05
+
+如果不是火纹先放了，真觉得是风花雪月续作<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙发果冻  
+##### 125#       发表于 2026-6-9 23:05
+
+第一眼以为是火纹，这次看来是女主，怎么能没有诺鹏呢
+
+*****
+
+####  nemuru_baka  
+##### 126#       发表于 2026-6-9 23:05
+
+我记得之前泄漏的是女主是盲剑士，感觉只有这一点设定还挺酷，结果并没有
+
+*****
+
+####  ShiKi847  
+##### 127#       发表于 2026-6-9 23:05
+
+前面漏油说的日本达芬奇的笑死我了，给我的感受确实跟XBX找日本贝多芬来一样，哈哈
+
+*****
+
+####  Nez  
+##### 128#       发表于 2026-6-9 23:05
+
+以为会改主标题，结果还是延续xb系列了
+
+那下一作叫什么，xbg2？
+
+*****
+
+####  elskio  
+##### 129#       发表于 2026-6-9 23:05
+
+要说不失望，那是假的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  laputah  
+##### 130#       发表于 2026-6-9 23:05
+
+剑上的珠子应该是一转科幻的关键物品了 
+
+*****
+
+####  lypylf  
+##### 131#       发表于 2026-6-9 23:05
+
+泥潭真算mo坛吗，开头10多秒那个草丛镜头的地图景难道不是100%确认xb系列？
+
+*****
+
+####  findpkq  
+##### 132#       发表于 2026-6-9 23:05
+
+好奇开发时间跟作品定位怎么算，之前公司拉技术中台，还以为要先把引擎大改完再开始做正作，目前完成度来看应该很早就进入开发了
+
+Xeno在NS上的四作角色渲染方案天差地别，这个三代阴阳脸的问题还在也是够匆忙
+
+开始逐帧找设定<img src="https://static.stage1st.com/image/smiley/device2017/017.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  maomaoying  
+##### 133#       发表于 2026-6-9 23:06
+
+只要不要像xb3那样拖节奏 一切都ok，是arpg吗
+

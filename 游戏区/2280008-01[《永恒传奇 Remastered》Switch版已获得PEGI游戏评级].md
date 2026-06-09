@@ -1459,3 +1459,46 @@ toe挺完善了，最需要重制的还是toa这种早期3d类型的
 看价格，万代要点脸国区128得了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">268！
 
+
+*****
+
+####  quanlix  
+##### 145#       发表于 2026-6-9 22:58
+
+同样是Remastered，看看隔壁的352，麻了
+
+*****
+
+####  88is88  
+##### 146#       发表于 2026-6-9 23:00
+
+原汁原味
+
+*****
+
+####  TheOccuria  
+##### 147#       发表于 2026-6-9 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748060&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-9 22:54</a>
+
+268！</blockquote>
+看了下价格3600日元，国区100出头差不多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 148#       发表于 2026-6-9 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748264&amp;ptid=2280008" target="_blank">TheOccuria 发表于 2026-6-9 23:00</a>
+
+看了下价格3600日元，国区100出头差不多了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等打折到10块！
+
+*****
+
+####  桧山修之  
+##### 149#       发表于 2026-6-9 23:04
+
+果然呢，还好没有一点的期待，不过真能直接原汁原味，也只万南能做得出来，这么看隔壁可乐妹的幻想水浒传1+2简直良心到爆了，我以后都不会再喷可乐妹了，留点口水给万南
+

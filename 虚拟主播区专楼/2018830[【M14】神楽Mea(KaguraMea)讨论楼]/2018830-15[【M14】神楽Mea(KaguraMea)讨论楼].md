@@ -613,3 +613,29 @@ takayaspecial也在对面，还是对位可能也有关吧。
 
 还有就是放了小法波比又不敢拿 就是要玩练的
 
+
+*****
+
+####  术士q  
+##### 20872#       发表于 2026-6-9 22:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69747693&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2026-6-9 22:37</a>
+从直播人的角度看，很强，边界擦得非常好，itcore采访都没人看了，dd其他人直播间流量多挺多了。
+
+这个哭泣 ...</blockquote>
+后续听声音听着还是很沙哑的，。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+只能说还是一系列连锁反应吧，要不是当初训练赛输这么多也不会变成现在这样。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  术士q  
+##### 20873#       发表于 2026-6-9 23:00
+
+ 本帖最后由 术士q 于 2026-6-9 23:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69747960&amp;ptid=2018830" target="_blank">化鳥虫二 发表于 2026-6-9 22:49</a>
+还有就是放了小法波比又不敢拿 就是要玩练的</blockquote>
+下路除了韦鲁斯泰坦以外没怎么确定下来的组合，下路从小法泰坦，烬泰坦，女警妮蔻，韦鲁斯泰坦，甚至这次差点有可能选芸阿娜泰坦，反而是最有问题的打野就硬选玩得很一般的战士，甚至连别的尝试都不去尝试。
+
+练阵容往往都是想到一套是一套，感觉是真的折腾下路。
+
