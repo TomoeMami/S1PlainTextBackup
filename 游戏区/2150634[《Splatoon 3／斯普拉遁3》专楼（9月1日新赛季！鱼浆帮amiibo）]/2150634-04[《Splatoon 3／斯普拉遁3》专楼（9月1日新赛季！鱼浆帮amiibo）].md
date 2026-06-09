@@ -55,3 +55,13 @@ splatoon最大的魅力之一就是涂地不用杀人也能赢，而且银喷正
 
 居然不顺便官宣个大更新吗
 
+
+*****
+
+####  martinoy  
+##### 5890#       发表于 2026-6-10 00:54
+
+买了ns2就为了玩这个，看起来还行，比3代的爬塔要强
+
+— from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

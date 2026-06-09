@@ -1690,3 +1690,43 @@ ND上放的肯定是NS2版画面啊，还是说觉得之前演示过的画面NS2
 
 主要这片子不像野村的手法 因为屁话不够多<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 150#         楼主| 发表于 2026-6-10 00:51
+
+[https://weibo.com/6182687946/5308034589131691](https://weibo.com/6182687946/5308034589131691)
+
+#KINGDOM HEARTS# 系列最新作品#KINGDOM HEARTS IV# 公开最新宣传影片！
+
+同时公开支持平台
+
+PlayStation®5、Xbox Series X|S、Windows、Nintendo Switch™ 2 
+
+Steam、Epic Games Store　
+
+【故事】
+
+主角索拉在陌生的世界苏醒。
+
+这个名为“方正之城”的世界与现代东京极为相似，索拉试图从这里回到原本的世界，然而……
+
+另一方面，唐老鸭与高飞为了寻找关于索拉的线索而前往冥界。
+
+【动感十足的动作战斗】
+
+通过简单操作即可施展多彩多姿的动作，展开充满速度感、动感十足的战斗。
+
+除了能根据战况灵活运用魔法，本作新加入的“构筑”系统，也让战斗方式更加丰富。
+
+【“钥刃”的专属动作】
+
+主角索拉所持的钥匙型武器“钥刃”，会根据种类拥有不同动作，并可配合战略改变战斗方式。
+
+■■“KINGDOM HEARTS”系列简介■■
+
+“KINGDOM HEARTS”系列是迪士尼与SQUARE ENIX共同打造的角色扮演游戏。自2002年3月首部作品《KINGDOM HEARTS》（支持平台：PlayStation2）上市以来，已经推出了13部作品（若将Final Mix版计算在内则为20部），全球累计出货、贩售量超过3,900万套（※1），已成为广受欢迎的系列。
+
+※1：截至2026年3月底
+
