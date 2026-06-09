@@ -1380,3 +1380,41 @@ toe挺完善了，最需要重制的还是toa这种早期3d类型的
 
 过于逆天<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿菠萝13  
+##### 136#       发表于 2026-6-9 22:27
+
+意料之中，部分素材高清了吧，目测出场坠机的那颗球高清了。对了，10/15发售
+
+*****
+
+####  river1981  
+##### 137#       发表于 2026-6-9 22:28
+
+气笑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜守望者  
+##### 138#       发表于 2026-6-9 22:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69738706&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-6-8 10:52</a></blockquote>
+瞎说，起码DQ粉大概宁可和传说粉换个位置<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫将军  
+##### 139#       发表于 2026-6-9 22:30
+
+这种还要拖到10月…
+
+*****
+
+####  TheOccuria  
+##### 140#       发表于 2026-6-9 22:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这马赛克画面..
+
