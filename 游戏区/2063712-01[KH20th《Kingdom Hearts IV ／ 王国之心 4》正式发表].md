@@ -1786,3 +1786,16 @@ Steam、Epic Games Store　
 来来来，大家猜猜野村会不会继续塞V13私货</blockquote>
 赌徒的本体就是夜空的司机啊，对应v13里我记得是不死将军来着吧？
 
+
+*****
+
+####  z692689995  
+##### 157#       发表于 2026-6-10 04:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748679&amp;ptid=2063712" target="_blank">洛克萨斯 发表于 2026-6-9 23:22</a>
+
+戴口罩那个黑发男子就是v13版诺克特吧</blockquote>
+<img src="https://kh.wiki.gallery/images/a/ab/Vali_KHDR.png" referrerpolicy="no-referrer">
+
+手游的角色<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
