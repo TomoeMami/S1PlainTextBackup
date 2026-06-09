@@ -1758,3 +1758,21 @@ Steam、Epic Games Store　
 不是云游戏。
 以前买过云游戏版的，可以继承存档。
 
+
+*****
+
+####  森兰丸  
+##### 154#       发表于 2026-6-10 01:32
+
+给索拉撑伞的是年轻的泽阿诺特?
+
+当了这么多年BOSS这就洗白了啊.......<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 155#         楼主| 发表于 2026-6-10 01:34
+
+25周年纪念特设页面
+[https://www.jp.square-enix.com/kingdom/25th/](https://www.jp.square-enix.com/kingdom/25th/)
+

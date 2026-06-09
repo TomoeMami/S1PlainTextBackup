@@ -4106,3 +4106,73 @@ xb3发售前泥潭主旋律是高桥gg经费充足必不可能崩，当时我也
 
 音乐清田和光田还在吗，如果他们都不在了感觉确实得下调预期了
 
+
+*****
+
+####  GAdoru  
+##### 434#       发表于 2026-6-10 01:27
+
+怎么是米山舞这玩意啊，她能画xb吗？
+
+*****
+
+####  lilod  
+##### 435#       发表于 2026-6-10 01:29
+
+xbg 这设定感觉在星球的环带上, 类似 halo
+
+*****
+
+####  findpkq  
+##### 436#       发表于 2026-6-10 01:30
+
+光田带徒弟和清田，人声合唱拉上之前合作的团
+
+ace转了一代2e的推没转xbg的
+可能档期冲突或者另有安排了，光田带的徒弟妹子按往年表现在他们工作室里算比较朴实无华(x  
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 437#       发表于 2026-6-10 01:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749641&amp;ptid=2283074" target="_blank">Arisita 发表于 2026-6-10 01:25</a>
+音乐清田和光田还在吗，如果他们都不在了感觉确实得下调预期了</blockquote>
+这俩是在的
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  siriii  
+##### 438#       发表于 2026-6-10 01:30
+
+我说实话近期米山舞担纲人设的几部作品没有一个让我我有感觉的角色<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+地图倒是一眼dokidoki了，我能从地面上逆转重力直接跳到星球另一侧吗？能吗？<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 439#       发表于 2026-6-10 01:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749622&amp;ptid=2283074" target="_blank">nagisa123 发表于 2026-6-10 01:19</a>
+真的假的</blockquote>
+ace没有转xbg的推，大概率是没有了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nagisa123  
+##### 440#       发表于 2026-6-10 01:32
+
+<blockquote>Kiyohara_Yasuke 发表于 2026-6-10 01:31
+ace没有转xbg的推，大概率是没有了
+
+论坛助手,iPhone</blockquote>
+这就有点搞了，最喜欢的就是平松和ace
+
