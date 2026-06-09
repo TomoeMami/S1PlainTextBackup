@@ -4371,3 +4371,12 @@ https://x.com/JyunaUndomiel/status/2064034747139895752</blockquote>
 https://x.com/JyunaUndomiel/status/2064034747139895752</blockquote>
 COS服还是廉价了
 
+
+*****
+
+####  Piano-Forest  
+##### 423#         楼主| 发表于 2026-6-9 22:11
+
+初代 2026年登陆NS2
+<img src="https://p.sda1.dev/32/b9a7e6b72d7ac6845fc8928c7c1ce5f1/1000167925.jpg" referrerpolicy="no-referrer">
+
