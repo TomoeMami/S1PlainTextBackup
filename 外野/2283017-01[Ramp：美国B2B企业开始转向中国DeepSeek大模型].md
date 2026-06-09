@@ -427,3 +427,23 @@ xhs roll一个月有agent跑一下午token多吗，而且这种数据直接按ro
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cyberalogo  
+##### 49#       发表于 2026-6-9 19:30
+
+我看另一篇类似主题的报道提到了现在美国企业使用AI成本飙升带来的压力：
+
+落到具体公司，数字则更加夸张，打车巨头Uber透露，仅2026年前四个月，公司就耗尽了全年的Token预算；Salesforce表示，今年支付给Anthropic的费用将达到约3亿美元。
+
+科技巨头同样开始捂钱包：亚马逊叫停了内部的AI使用排行榜，原因是员工为了刷排名刻意执行不必要的任务、推高Token消耗；微软则计划在6月末前，逐步停用多个关键产品部门员工的Claude Code订阅。
+
+当亚马逊都开始心疼Token的时候，成本就不再是创业公司才需要操心的问题了。
+
+同时又预判美帝会以数据安全为由阻挠美企直接使用DS：<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+对企业来说，直接接入DeepSeek存在真实的竞争与安全顾虑。"
+
+美国企业直接把数据发给一家中国公司的服务器，合规部门不可能没有意见。这层顾虑是真实的，也未必是DeepSeek短期能解决的。
+
