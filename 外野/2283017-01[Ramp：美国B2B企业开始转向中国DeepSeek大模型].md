@@ -597,3 +597,11 @@ DS 本地部署真的便宜 ，硬件8万就能落地，但是需要有人监管
 那可以选qwen b27呀</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">这就是DS时刻的含金量了。外国小老板认识通义千问 这4个字难度太高，DS时刻一定是在新闻上看过的
 
+
+*****
+
+####  不见不散  
+##### 62#       发表于 2026-6-9 21:05
+
+感觉Deepseek马上就要危害美国国家安全了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
