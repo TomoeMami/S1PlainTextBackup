@@ -2870,3 +2870,233 @@ jrpg女性主角现在已经是雷点了吗</blockquote>
 
 看了B站上1080P的视频，画面好多了
 
+
+*****
+
+####  king520kyo  
+##### 310#       发表于 2026-6-9 23:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749072&amp;ptid=2283074" target="_blank">zhangzcl2 发表于 2026-6-9 23:50</a>
+
+大女主又是哪里发明出来的词汇，主控女角色今年不才有个空轨重制吗？这有啥问题 ...</blockquote>
+最近几年国内外影视剧的关系啦，为了凸显女性力量搞了一堆强（？）女主作品。游戏的话你看隔壁索尼<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 311#       发表于 2026-6-9 23:56
+
+ 本帖最后由 heseran 于 2026-6-9 23:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749067&amp;ptid=2283074" target="_blank">Patlain 发表于 2026-6-9 23:49</a>
+
+这不是有实例么，光说3d化还是好看的，但动起来又是另外一回事了</blockquote>
+
+因为雕塑特别是手办本质上还是更注重造型的呈现，就好像现在的角色设计尤其是二次元角色人设、立绘过于讲究剪影一样，更适合抽卡卖角色的游戏，放在3D游戏里做建模确实不行。
+
+*****
+
+####  outerish  
+##### 312#       发表于 2026-6-9 23:56
+
+背景分辨率略低，希望还能再优化
+
+*****
+
+####  freedom12  
+##### 313#       发表于 2026-6-9 23:56
+
+这次角色脸上还加了伦勃朗光
+
+m设确实还是在人物面部塑造上尝试些新东西
+
+*****
+
+####  红魔馆的糖  
+##### 314#       发表于 2026-6-9 23:56
+
+不是，这人设都能洗的吗，这都啥呀我草了<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Asukalangley33  
+##### 315#       发表于 2026-6-9 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749072&amp;ptid=2283074" target="_blank">zhangzcl2 发表于 2026-6-9 23:50</a>
+
+大女主又是哪里发明出来的词汇，主控女角色今年不才有个空轨重制吗？这有啥问题 ...</blockquote>
+
+之前主要是内娱古偶和女频里面讲的
+
+前段时间那个索系游戏续作换女主的MEME图火了以后开始在游戏圈子里扩散
+
+反正我觉得很TM诡异
+
+*****
+
+####  woaimiyabi  
+##### 316#       发表于 2026-6-9 23:57
+
+这地图有点意思啊 球型滚筒地图，天上的大陆也在地上  地上的大陆也在天上，看来是开放世界无误了。
+
+*****
+
+####  topia  
+##### 317#       发表于 2026-6-9 23:58
+
+<img src="https://img.stage1st.com/forum/202606/09/235707eqfnnnaxbxcxbk8x.jpg" referrerpolicy="no-referrer">
+
+<strong>HKYbaewbMAAtRvb.jpg</strong> (778.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 23:57 上传
+
+<img src="https://img.stage1st.com/forum/202606/09/235707zk0n08kbm8sf908b.jpg" referrerpolicy="no-referrer">
+
+<strong>videoplayback-0007.jpg</strong> (662.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 23:57 上传
+
+正好官号放了xb12e的图，pv有类似的场景拿来对比一下
+
+近景感觉精致了不少，但远景感觉怪怪的
+
+*****
+
+####  orangee  
+##### 318#       发表于 2026-6-9 23:58
+
+保持关注，只看这个播片暂时处于“游戏出了大概会云一下剧情”的等级略靠上一点的感觉……
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  恶意之刃  
+##### 319#       发表于 2026-6-9 23:59
+
+主控女主也许不是问题，以女主为中心展开可能不是部分前作受众喜欢的（
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 320#       发表于 2026-6-10 00:00
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2026-6-10 00:04 编辑 
+
+服设也有很大问题，女主穿着一点都不可爱啊，也有可能是衣服的颜色和材质的问题<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  巨馍蘸酱  
+##### 321#       发表于 2026-6-10 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749064&amp;ptid=2283074" target="_blank">oniwarud 发表于 2026-6-9 23:49</a>
+
+那个招人页面还挂在官网上没撤下来，参考之前xb3公布时就把招人页面撤了来看，不排除xbg是小红帽转正的可 ...</blockquote>
+XBG跟小红帽的共同点太多了：
+
+女性主角；
+
+中世纪奇幻风格；
+
+地图场景也挺像当时小红帽那张概念图的风格
+
+*****
+
+####  whzfjd  
+##### 322#       发表于 2026-6-10 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749170&amp;ptid=2283074" target="_blank">topia 发表于 2026-6-9 23:58</a>
+
+正好官号放了xb12e的图，pv有类似的场景拿来对比一下
+
+近景感觉精致了不少，但远景感觉怪怪的 ...</blockquote>
+破晓那种油画效果的，可能是降低压力的，而且远景是海面，观感不一样
+
+*****
+
+####  桧山修之  
+##### 323#       发表于 2026-6-10 00:02
+
+希望地图能搞好一些，能做出xbx级别的地图就算成功，剧情人设过得去就可以了，我玩xb系列地图占分超一半，xb3我自已评分不高就是觉得地图是系列最差的，
+
+*****
+
+####  zhangzcl2  
+##### 324#       发表于 2026-6-10 00:02
+
+画面进步确实不如预期，看看后面能不能再优化下吧。
+
+*****
+
+####  塔奇克马  
+##### 325#       发表于 2026-6-10 00:02
+
+整个世界都建立在环带上，说不定还会有轨道电梯桥段直通环带中心
+
+—— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  topia  
+##### 326#       发表于 2026-6-10 00:02
+
+<img src="https://img.stage1st.com/forum/202606/10/000233j9mci5bomd9uoiac.jpg" referrerpolicy="no-referrer">
+
+<strong>some-amazing-concept-art-released-by-monolith-recently-if-v0-w70Rm6TgPZWJFsaXX8-.jpg</strong> (106.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 00:02 上传
+
+小红帽的图，那个骑的动物看着有点眼熟<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 327#       发表于 2026-6-10 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749097&amp;ptid=2283074" target="_blank">topia 发表于 2026-6-9 23:51</a>
+
+阴阳脸应该不会缺席的</blockquote>
+难倒还退回去用闪轨和阿特拉斯那种全局渐变脸？
+
+*****
+
+####  江口夕  
+##### 328#       发表于 2026-6-10 00:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">受前作欢迎是哪个前作，2代开后宫，3代全配对，我寻思前两代就没啥重合点
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  膝盖中五箭  
+##### 329#       发表于 2026-6-10 00:05
+
+下一作能不能换回 saitom 啊，这感觉还不如 xb3
+
+—— 来自 HUAWEI OXF-AN10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  狸狸狐  
+##### 330#       发表于 2026-6-10 00:05
+
+<img src="https://img.stage1st.com/forum/202606/10/000458mpsaja6jj59xpk5z.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260609_231530.jpg</strong> (12.83 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-10 00:04 上传
+
+之前那个ai的PPT虽然鉴定为假，但是这女主人设也太像了，会不会是真的有泄露的图，按照那个做的。毕竟米山舞做人设也是很早就爆出来的。
+

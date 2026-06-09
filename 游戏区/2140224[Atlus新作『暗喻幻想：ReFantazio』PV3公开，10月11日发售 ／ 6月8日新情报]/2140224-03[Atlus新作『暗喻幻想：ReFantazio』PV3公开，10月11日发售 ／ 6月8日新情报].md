@@ -24,3 +24,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NS2版只要4K日元
 
+
+*****
+
+####  ミズタ  
+##### 3688#       发表于 2026-6-10 00:01
+
+只记得这游戏发售没几个月就跌到不到200了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
