@@ -4461,3 +4461,28 @@ pv最后是说女主还有个大哥吗
 
 整体人设比3强，用女主有点意外
 
+
+*****
+
+####  VictorWJ  
+##### 470#       发表于 2026-6-10 04:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749290&amp;ptid=2283074" target="_blank">哆哆鸡 发表于 2026-6-10 00:11</a>
+单论女主人设，感觉不如隔壁新的炼金工房，这是能说的吗</blockquote>
+好点有限吧，隔壁感觉像是白毛远坂凛，难以相信和优米亚是同一个画师<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  VictorWJ  
+##### 471#       发表于 2026-6-10 04:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749359&amp;ptid=2283074" target="_blank">絵生voice 发表于 2026-6-10 00:22</a>
+可以搜下暗徒誓约，基本上就是米山舞梦中的自己。
+
+感觉内部应该有羊anti，正常羊姐肯定是要上的 ...</blockquote>
+这个看着确实舒服多了，人设是哪位啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
