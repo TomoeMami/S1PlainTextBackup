@@ -2258,3 +2258,13 @@ gf是不是怕褒姒才让微软买单
 
 其实后者模仿者都去掉了尼尔系列里横尾xp的弹幕元素对整体游戏性还是正面作用的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前演示里同时有空连和打铁算是集两家之长，但狗的指令qte感觉很断节奏
 
+
+*****
+
+####  医生狼多  
+##### 217#       发表于 2026-6-9 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69743537&amp;ptid=2253295" target="_blank">zqqwe 发表于 2026-6-9 10:41</a>
+其实后者模仿者都去掉了尼尔系列里横尾xp的弹幕元素对整体游戏性还是正面作用的目前演示里同时有空连和打铁 ...</blockquote>
+可以给个狗狗自动qte戒指(
+
