@@ -5922,3 +5922,14 @@ demo没打够，爽是挺爽，但感觉也看不出什么
 感觉这个招架的性能太恐怖了，起码是点了两级强化的程度，属于是我这种残疾人都能百分百化劲一把过小次郎， ...</blockquote>
 啊，这角力原来不是怪猎荒野那样随缘出的吗
 
+
+*****
+
+####  迷途lite  
+##### 615#       发表于 2026-6-9 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69743679&amp;ptid=2210366" target="_blank">otakun 发表于 2026-6-9 10:58</a>
+
+啊，这角力原来不是怪猎荒野那样随缘出的吗</blockquote>
+我说的是那个那个，X拼刀按Y Y拼刀按X的那个机制，记不清叫什么了
+
