@@ -486,3 +486,66 @@ xhs roll一个月有agent跑一下午token多吗，而且这种数据直接按ro
 预期中的大量agent使用的优质RL数据占比比预期的少， 反而是网页 ...</blockquote>
 这些玩意跟agent应用相比不值一提    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  smiths146  
+##### 53#       发表于 2026-6-9 20:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">DS 本地部署真的便宜 ，硬件8万就能落地，但是需要有人监管灌输资料，而且对于中等公司 以及传统制造和贸易公司，并不需要太聪明，稳定性和准确性 反而是第一的
+
+*****
+
+####  秦南心  
+##### 54#       发表于 2026-6-9 20:38
+
+<img src="https://img.stage1st.com/forum/202606/09/203720hd9a0m2r0wqr28dd.png" referrerpolicy="no-referrer">
+
+<strong>v2-495ba3b84208da2294e30392b16c0182_r.png</strong> (418.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 20:37 上传
+
+<img src="https://img.stage1st.com/forum/202606/09/203720g4pr4o4v9u7gsu70.png" referrerpolicy="no-referrer">
+
+<strong>v2-1564888aa918cc8c1ef7c4be7840fcce_r.png</strong> (651.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 20:37 上传
+
+中国模型超十倍调用量的话就基本定胜负，到时候国内媒体就不吹AI了
+
+
+*****
+
+####  saizeriya  
+##### 55#       发表于 2026-6-9 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69746654&amp;ptid=2283017" target="_blank">秦南心 发表于 2026-6-9 20:38</a>
+中国模型超十倍调用量的话就基本定胜负，到时候国内媒体就不吹AI了</blockquote>
+豆包的没算进去吗，我觉得超过deepseek没问题，太下沉了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  saizeriya  
+##### 56#       发表于 2026-6-9 20:42
+
+哦这个只统计openrouter
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ycjiang1337  
+##### 57#       发表于 2026-6-9 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69746653&amp;ptid=2283017" target="_blank">smiths146 发表于 2026-6-9 20:38</a>
+DS 本地部署真的便宜 ，硬件8万就能落地，但是需要有人监管灌输资料，而且对于中等公司 以及传统制造和贸易 ...</blockquote>
+你咋算的，8W美元也不够吧
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
