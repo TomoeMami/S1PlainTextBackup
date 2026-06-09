@@ -636,3 +636,11 @@ pvpve嗎……小高搜打撒？
 
 也就ns上玩玩了，真上了pc我不敢想那体验有多酸爽<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woshenc  
+##### 68#       发表于 2026-6-10 00:23
+
+小高估计是有什么把柄给任天堂给抓住了，不然想不通怎么会去做这么个独占游戏
+

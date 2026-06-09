@@ -605,3 +605,13 @@ DS 本地部署真的便宜 ，硬件8万就能落地，但是需要有人监管
 
 感觉Deepseek马上就要危害美国国家安全了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  startraveller  
+##### 63#       发表于 2026-6-10 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69744571&amp;ptid=2283017" target="_blank">很久就在那边l 发表于 2026-6-9 13:29</a>
+另一边国内很多人顶着几十倍deepseek的价格也要用gpt和claude</blockquote>
+订阅的话 20美元一个月 token 量大概相当于400美元的 API，而 ds 没订阅。其实差不多，就是五小时限周限比较麻烦
+

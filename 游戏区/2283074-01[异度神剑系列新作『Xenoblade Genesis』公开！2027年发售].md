@@ -3275,3 +3275,221 @@ Xb2第7章标题啦当然是<img src="https://static.stage1st.com/image/smiley/f
 
 —— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  黒鈴ミヲ  
+##### 352#       发表于 2026-6-10 00:16
+
+我还以为xeno会进入下个阶段，结果大标题还是xb
+
+*****
+
+####  zhouaa  
+##### 353#       发表于 2026-6-10 00:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">画面观感最好的我觉得是万代参与的X
+
+*****
+
+####  ParadiseMartyr  
+##### 354#       发表于 2026-6-10 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749290&amp;ptid=2283074" target="_blank">哆哆鸡 发表于 2026-6-10 00:11</a>
+单论女主人设，感觉不如隔壁新的炼金工房，这是能说的吗</blockquote>
+隔壁炼金新女主才是拉了吧。这个我觉得还行
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  嘉术2015  
+##### 355#       发表于 2026-6-10 00:17
+
+序章过了之后学院被攻占然后男女主变成奴隶吗
+
+那这pv1很欺诈了
+
+*****
+
+####  laputah  
+##### 356#       发表于 2026-6-10 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749307&amp;ptid=2283074" target="_blank">江口夕 发表于 2026-6-10 00:14</a>
+
+你说像我看像轨迹差不多，又是衔尾蛇，又是创世纪，又是三角恋又是大女主的，不知道的还以为在吸轨迹尾气， ...</blockquote>
+你在说什么 这是外星从头再造的文明还欧洲呢 说不定 都不用说不定 精灵肯定是什么基因改造的产物
+
+*****
+
+####  恶意之刃  
+##### 357#       发表于 2026-6-10 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749318&amp;ptid=2283074" target="_blank">黒鈴ミヲ 发表于 2026-6-10 00:16</a>
+我还以为xeno会进入下个阶段，结果大标题还是xb</blockquote>
+大概，剑是任天堂的剑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看什么时候有跨平台xeno了
+
+*****
+
+####  ds006425  
+##### 358#       发表于 2026-6-10 00:18
+
+一股子火纹味儿啊
+
+不会制作人不是高桥了吧
+
+
+*****
+
+####  laputah  
+##### 359#       发表于 2026-6-10 00:20
+
+这黑楼不对劲啊 一般的环都是窄但直径很大的一个像戒指一样的环 这环宽到屏幕装不下直径却非常小 感觉像个宇宙里的卫生纸筒
+
+*****
+
+####  Nez  
+##### 360#       发表于 2026-6-10 00:20
+
+倾向人设图是真的，但描述是编的
+
+走圣经路线的话下一部可以叫启示录
+
+
+*****
+
+####  红魔馆的糖  
+##### 361#       发表于 2026-6-10 00:20
+
+我觉得这pv显示出来的东西很灾难<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">包括且不限于人设场景和风格，上次xb3 pv给我的违和感没有这次的一半重。你们可以说贷款吃屎，但是等了这么多等来这么个片我觉得不行<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ????????  
+##### 362#       发表于 2026-6-10 00:20
+
+<blockquote>ds006425 发表于 2026-6-10 00:18
+一股子火纹味儿啊
+
+不会制作人不是高桥了吧</blockquote>
+
+官推特意强调了总监督还是高桥
+
+<img src="https://img.stage1st.com/forum/202606/10/002145u1eg9a1j111cff7j.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_33536114914288.jpg</strong> (98.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-10 00:21 上传
+
+*****
+
+####  絵生voice  
+##### 363#       发表于 2026-6-10 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748941&amp;ptid=2283074" target="_blank">kyonkoism 发表于 2026-6-9 23:39</a>
+
+为什么说米山舞吹几把很简单啊，米山舞之前可是没有做过3D游戏原画师的
+
+那他怎么懂得画出容易被3D建模，建 ...</blockquote>
+可以搜下暗徒誓约，基本上就是米山舞梦中的自己。
+
+感觉内部应该有羊anti，正常羊姐肯定是要上的
+
+*****
+
+####  江口夕  
+##### 364#       发表于 2026-6-10 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749328&amp;ptid=2283074" target="_blank">laputah 发表于 2026-6-10 00:17</a>
+你在说什么 这是外星从头再造的文明还欧洲呢 说不定 都不用说不定 精灵肯定是什么基因改造的产物 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你就算空想的欧洲也和黑皮一毛钱关系没有，隔壁黑魂法环也没黑皮怎么到你这就有了。
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  linyc0010  
+##### 365#       发表于 2026-6-10 00:23
+
+就异度的帖子人最多，看来大家还是爱高桥哥哥的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  herryk159  
+##### 366#       发表于 2026-6-10 00:23
+
+看了4K分辨率pv，观感比直播好一些，但也没高到哪里去
+
+*****
+
+####  kisaragi凛  
+##### 367#       发表于 2026-6-10 00:24
+
+爆料图包是剧透啊，一些设定也和PV都对得上，主角是女的，精灵，是个器士，从小接受剑术教育，和男主在一起会觉醒力量。估计是PV藏了
+
+<img src="https://img.stage1st.com/forum/202606/10/002250oytweayf7ew6q2ew.png" referrerpolicy="no-referrer">
+
+<strong>1dbf9f92cf2bafaffe09464b0c233444.png</strong> (169.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 00:22 上传
+
+*****
+
+####  chizuru  
+##### 368#       发表于 2026-6-10 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749243&amp;ptid=2283074" target="_blank">狸狸狐 发表于 2026-6-10 00:05</a>
+
+之前那个ai的PPT虽然鉴定为假，但是这女主人设也太像了，会不会是真的有泄露的图，按照那个做的。毕竟米 ...</blockquote>
+泄露应该是真的，女主精灵族，男主人类
+
+*****
+
+####  moeful  
+##### 369#       发表于 2026-6-10 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749307&amp;ptid=2283074" target="_blank">江口夕 发表于 2026-6-10 00:14</a>
+
+你说像我看像轨迹差不多，又是衔尾蛇，又是创世纪，又是三角恋又是大女主的，不知道的还以为在吸轨迹尾气， ...</blockquote>
+我第二页也说了，看设定这将是个致敬轨迹的作品<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  findpkq  
+##### 370#       发表于 2026-6-10 00:25
+
+XB1 2E牵绊对话补配音了
+
+顺带这次作曲阵容有些微改变，ACE和平松没约上
+
+*****
+
+####  姜岑  
+##### 371#       发表于 2026-6-10 00:25
+
+<img src="https://img.stage1st.com/forum/202606/10/002516lrx7qx3b8jz9ua93.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260610_002413.jpg</strong> (85.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-10 00:25 上传
+
+宅男文娱的一生.jpg
+
+*****
+
+####  topia  
+##### 372#       发表于 2026-6-10 00:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749340&amp;ptid=2283074" target="_blank">laputah 发表于 2026-6-10 00:20</a>
+
+这黑楼不对劲啊 一般的环都是窄但直径很大的一个像戒指一样的环 这环宽到屏幕装不下直径却非常小 感觉像个 ...</blockquote>
+如果最后的拉高镜头没加鱼眼透视的话，感觉空间结构像个花瓶内壁<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
