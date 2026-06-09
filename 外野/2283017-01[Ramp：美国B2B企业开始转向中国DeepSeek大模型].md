@@ -462,3 +462,27 @@ xhs roll一个月有agent跑一下午token多吗，而且这种数据直接按ro
 
 然而价格应该都比官方贵。
 
+
+*****
+
+####  LeoDT  
+##### 51#       发表于 2026-6-9 20:27
+
+最近看推比较多，就发现推上最大的这两家每天炒的东西一个个的都是token黑洞。最开始看到的是openai的/goal，一堆人鼓吹一个goal跑了两天但是东西最后做出来了。后来是Anthropic的吹用html而不是markdown写文档，原因竟然就是好看，是啊，真好看。前几天是所谓workflow，也许有点实用性，毕竟别人也明说了适用范围。这两天开始吹loop，他们是真的以为token不要钱。当然也有人晒几天一万刀的账单，可能他们是真的觉得钱不是钱吧。
+
+题外话还有deepSWE这种benchmark本身都没做好就跑出来吹，然后还一堆人转发，还一堆人就信了，真是没见过水军吗这些国外写代码的。
+
+可能也是真没见过水军所以这么多大公司的人才信了他们被把公司的钱不当钱吧。
+
+
+*****
+
+####  overflowal  
+##### 52#       发表于 2026-6-9 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69745532&amp;ptid=2283017" target="_blank">hyde_caesar 发表于 2026-6-9 16:41</a>
+谨慎不看好dsv4.1和dsv4.2这些后续版本；
+
+预期中的大量agent使用的优质RL数据占比比预期的少， 反而是网页 ...</blockquote>
+这些玩意跟agent应用相比不值一提    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

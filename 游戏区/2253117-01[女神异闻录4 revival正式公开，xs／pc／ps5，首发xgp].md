@@ -2130,3 +2130,16 @@ p5x那个雷霆“人格面具！”承包了我半年笑点
 不加中配就等着因为歧视中国玩家被差评吧
 “我可以不听，你不能没有”
 
+
+*****
+
+####  alucardcz  
+##### 375#       发表于 2026-6-9 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69745159&amp;ptid=2253117" target="_blank">猪突猛进R 发表于 2026-6-9 15:39</a>
+
+别说，我还真想听听中配会是什么样
+
+其它游戏里中配的问题往往是羞耻感，感觉都是夹着配的，不敢把中二的台 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">配撸锁那！
+
