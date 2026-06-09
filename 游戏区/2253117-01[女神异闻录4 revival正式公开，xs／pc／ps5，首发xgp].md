@@ -2021,3 +2021,11 @@ P4G的迷宫太无聊了，应该也重制了吧？</blockquote>
 
 中配吗？算了吧，这种配音中配配的和死人一样。
 
+
+*****
+
+####  红魔馆的糖  
+##### 364#       发表于 2026-6-9 15:01
+
+毕竟和中国也有合作中配手游，估计就靠这层关系搞了中配<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

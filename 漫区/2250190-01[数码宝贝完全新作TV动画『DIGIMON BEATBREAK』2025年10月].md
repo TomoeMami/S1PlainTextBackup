@@ -121,3 +121,13 @@
 
 看这集的我就跟守宫兽一样呆<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cmyk1234  
+##### 639#       发表于 2026-6-9 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69737846&amp;ptid=2250190" target="_blank">零崎不识 发表于 2026-6-8 09:02</a>
+主要这个兽的形象不太匹配守宫兽的性格，不过也可能进化确实会影响性格，守宫兽每次进化后就一点儿熊孩子 ...</blockquote>
+会不会影森催熟守宫兽变成究极体。
+
