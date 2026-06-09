@@ -348,3 +348,24 @@ agent 编程从性价比上是否还是不如传统 llm 编程
 
 即使不差钱的富哥不是也总结出，先用知识最丰富的gemini找方向，再用最聪明的gpt做计划，准备好了就用最吃苦耐劳的deepseek开干，最后用最训练有素的claude做审核
 
+
+*****
+
+####  小妻水亚美  
+##### 42#       发表于 2026-6-9 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69744910&amp;ptid=2283017" target="_blank">母星 发表于 2026-6-9 14:46</a>
+换句话说，这意味着现在很多企业已经离不开AI了，最次也是离不开便宜的AI，继续all in内存就行了 ...</blockquote>
+算力和存储其实就是it时代的基础资源 ，就算不搞ai,其他东西也要算力和存储
+
+—— 来自 vivo V2454DA, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ycjiang1337  
+##### 43#       发表于 2026-6-9 17:04
+
+还有另一个问题，Fireworks.AI的托管V4价格是DS官方的两到三倍
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
