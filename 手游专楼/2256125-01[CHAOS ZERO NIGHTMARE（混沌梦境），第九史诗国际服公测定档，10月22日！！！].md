@@ -2074,3 +2074,16 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 
 怎么会这么设计的
 
+
+*****
+
+####  sxsdark  
+##### 934#       发表于 2026-6-9 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69742904&amp;ptid=2256125" target="_blank">qixinno1 发表于 2026-6-9 09:15</a>
+
+因为正常都是刷赛季的 赛季本退了不重置 17号开</blockquote>
+九带两个弱鸡还是带不动，一直脸黑闪不到装甲就凉了
+
+到时候市长能无脑带两个弱鸡么？
+

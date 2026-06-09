@@ -5890,3 +5890,17 @@ demo没打够，爽是挺爽，但感觉也看不出什么
 
 那么我就拭目以待了，要是正常难度的怪还是demo里面弱智的样子，我特么喷爆<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  迷途lite  
+##### 612#       发表于 2026-6-9 09:18
+
+感觉这个招架的性能太恐怖了，起码是点了两级强化的程度，属于是我这种残疾人都能百分百化劲一把过小次郎，甚至后面试招练一闪的时候只要不被打死就能按着防御随便吊打boss
+
+一闪按早点还出角力逃课，这代简直太适合引流新玩家（比如我）了，动作也足够精致，打起来有点享受的，就是不知道这演出占了多少流程的预算<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+有预购冲动了
+
+希望影之刃能有本作7成的演出功力
+
