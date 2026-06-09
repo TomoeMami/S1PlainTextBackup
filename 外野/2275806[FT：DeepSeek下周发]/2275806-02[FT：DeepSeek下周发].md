@@ -2154,3 +2154,13 @@ ds最近提速了吗？api上周峰值能到7-80的速度，平均60多，今天
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  走来走去  
+##### 1667#       发表于 2026-6-9 08:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69734573&amp;ptid=2275806" target="_blank">svmkty 发表于 2026-6-7 16:48</a>
+龙虾这玩意儿就是坑普通人的</blockquote>
+龙虾纯废物，起码装个hermes吧， pi还没用过，今天试试
+
