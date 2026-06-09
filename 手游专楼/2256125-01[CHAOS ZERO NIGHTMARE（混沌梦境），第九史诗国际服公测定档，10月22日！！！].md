@@ -2117,3 +2117,14 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 到时候市长能无脑带两个弱鸡么？ ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你要是在怕打不过就带个吉他之类的有一点回血能力的 反正我无脑高速目前没翻过车
 
+
+*****
+
+####  sxsdark  
+##### 937#       发表于 2026-6-9 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69743211&amp;ptid=2256125" target="_blank">qixinno1 发表于 2026-6-9 09:55</a>
+
+你要是在怕打不过就带个吉他之类的有一点回血能力的 反正我无脑高速目前没翻过车 ...</blockquote>
+我是带的米卡，但是打不过
+
