@@ -2219,3 +2219,17 @@ DeepSeek官网最新上线了“IDC设计规划工程师”这个岗位。IDC设
 
 [https://zhuanlan.zhihu.com/p/2047627975131243737](https://zhuanlan.zhihu.com/p/2047627975131243737)
 
+
+*****
+
+####  hugosol  
+##### 1673#       发表于 2026-6-10 02:11
+
+oh-my-pi可玩性实在太高了，这两天正事一点没干一直在折腾extension<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+pi本体太素了，oh-my-pi虽然自带一堆有的没的（但你可以选择不用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">），也可以用pi的方式来扩展，不过要把源码下给它看，没有pi自己查自己那么丝滑
+
+Mario Zechner(Pi的作者)的哲学也挺有意思的，Pi没有plan mode没有subagent不是因为这些东西不重要，而是因为他认为现在agent还在发展中，他不知道最好的实现方式是怎样，所以他交由用户自己决定
+
+不过我觉得Pi最天才的设计还是让它能读到自己的源代码，这功能就应该是所有agent的标配才对，现在回过头来看Claude Code和openCode之流还是太封闭了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -644,3 +644,11 @@ pvpve嗎……小高搜打撒？
 
 小高估计是有什么把柄给任天堂给抓住了，不然想不通怎么会去做这么个独占游戏
 
+
+*****
+
+####  thealoneer  
+##### 69#       发表于 2026-6-10 02:08
+
+本想着公布发售日就去下单NS2的，现在看来可以再等等了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
