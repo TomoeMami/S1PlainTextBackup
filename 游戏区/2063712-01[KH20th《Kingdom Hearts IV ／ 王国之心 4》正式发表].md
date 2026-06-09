@@ -1776,3 +1776,13 @@ Steam、Epic Games Store　
 25周年纪念特设页面
 [https://www.jp.square-enix.com/kingdom/25th/](https://www.jp.square-enix.com/kingdom/25th/)
 
+
+*****
+
+####  ——裂锦——  
+##### 156#       发表于 2026-6-10 02:00
+
+<blockquote>虚无连斩 发表于 2026-6-9 23:11
+来来来，大家猜猜野村会不会继续塞V13私货</blockquote>
+赌徒的本体就是夜空的司机啊，对应v13里我记得是不死将军来着吧？
+
