@@ -83,3 +83,53 @@
 
 有点失望说实话
 
+
+*****
+
+####  巨馍蘸酱  
+##### 698#       发表于 2026-6-9 22:36
+
+ 本帖最后由 巨馍蘸酱 于 2026-6-9 22:37 编辑 
+
+<img src="https://img.stage1st.com/forum/202606/09/223602w4z2rw53mmr4rrqb.jpg" referrerpolicy="no-referrer">
+
+<strong>e68379cf3bc79f3db1c92a30fca1cd11738b29c0 .jpg</strong> (301.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 22:36 上传
+
+<img src="https://img.stage1st.com/forum/202606/09/223612ao09vo8o6zaqvxxx.jpg" referrerpolicy="no-referrer">
+
+<strong>6e8a9e0a304e251faadf2af8e186c9177e3e53c0 .jpg</strong> (110.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 22:36 上传
+
+话说这个一身白的才是主角吧，为什么一直在藏
+
+PV里只在最后苏蒂斯那里出现了一下，但封面中间是TA，而且可以看到有男女两种性别，应该就是主角无误了
+
+*****
+
+####  nagitoY  
+##### 699#       发表于 2026-6-9 22:39
+
+四个主角，除了尼哥小孩感觉都还可以
+
+
+*****
+
+####  u2deack  
+##### 700#       发表于 2026-6-9 22:42
+
+感觉确实一般，还跟九月一堆游戏凑一起去了
+
+*****
+
+####  zzf111  
+##### 701#       发表于 2026-6-9 22:42
+
+刚来，请问大便头改了没有<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
