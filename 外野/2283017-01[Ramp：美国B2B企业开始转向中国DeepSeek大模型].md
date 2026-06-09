@@ -633,3 +633,45 @@ DS 本地部署真的便宜 ，硬件8万就能落地，但是需要有人监管
 
 你说这闹钟太坏了，开源干什么，让奥特曼们不能愉快割韭菜
 
+
+*****
+
+####  边缘中心  
+##### 66#       发表于 2026-6-10 05:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69744924&amp;ptid=2283017" target="_blank">sagajytc 发表于 2026-6-9 14:50</a>
+我觉得国家应该出台相关规定，AI算力得用人民币支付，而不是美元</blockquote>
+并不好
+哪怕是离岸，目前的也仍然该维持稳定可控的金融政策
+
+*****
+
+####  億万千  
+##### 67#       发表于 2026-6-10 05:28
+
+A家实在是太贵了，GPT相对还好也不便宜
+
+其实我更好奇美国AI模型的发展路线，没有谁是奔着便宜大碗去的，这个赛道的玩家几乎都是中国模型
+
+是因为他们认为目前还在追求效果的阶段，还是各项成本就是比中国高压不下去？
+
+
+*****
+
+####  边缘中心  
+##### 68#       发表于 2026-6-10 05:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69745712&amp;ptid=2283017" target="_blank">Promeus 发表于 2026-6-9 17:09</a>
+老板又看不到员工做啥</blockquote>
+一般谁自己掏钱ai钱上班啊，不都是公司买的吗
+
+*****
+
+####  边缘中心  
+##### 69#       发表于 2026-6-10 05:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69744571&amp;ptid=2283017" target="_blank">很久就在那边l 发表于 2026-6-9 13:29</a>
+
+另一边国内很多人顶着几十倍deepseek的价格也要用gpt和claude</blockquote>
+个人和企业不一样，甚至巨头和中小型企业的成本都不能同日而语
+
