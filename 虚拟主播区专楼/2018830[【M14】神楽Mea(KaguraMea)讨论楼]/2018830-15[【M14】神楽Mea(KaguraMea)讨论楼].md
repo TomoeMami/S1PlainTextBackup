@@ -605,3 +605,11 @@ takayaspecial也在对面，还是对位可能也有关吧。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">建议直接开宫！
 
+
+*****
+
+####  化鳥虫二  
+##### 20871#       发表于 2026-6-9 22:49
+
+还有就是放了小法波比又不敢拿 就是要玩练的
+

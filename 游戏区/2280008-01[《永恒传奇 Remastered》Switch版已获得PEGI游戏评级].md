@@ -1418,3 +1418,44 @@ toe挺完善了，最需要重制的还是toa这种早期3d类型的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这马赛克画面..
 
+
+*****
+
+####  alucardcz  
+##### 141#       发表于 2026-6-9 22:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69747551&amp;ptid=2280008" target="_blank">TheOccuria 发表于 2026-6-9 22:32</a>
+
+这马赛克画面..</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你买我不买（
+
+*****
+
+####  qiyu1234  
+##### 142#         楼主| 发表于 2026-6-9 22:47
+
+[https://bond.tales-ch.jp/#](https://bond.tales-ch.jp/#)
+
+全平台，甚至包括了PS4
+
+*****
+
+####  TheOccuria  
+##### 143#       发表于 2026-6-9 22:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69747849&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-9 22:44</a>
+
+你买我不买（</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看价格，万代要点脸国区128得了
+
+
+*****
+
+####  alucardcz  
+##### 144#       发表于 2026-6-9 22:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69747941&amp;ptid=2280008" target="_blank">TheOccuria 发表于 2026-6-9 22:48</a>
+
+看价格，万代要点脸国区128得了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">268！
+

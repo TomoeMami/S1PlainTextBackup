@@ -561,3 +561,172 @@ xb现在又必走一男一女配cp
 
 物语3的画面已经够怪的了。
 
+
+*****
+
+####  topia  
+##### 69#       发表于 2026-6-9 22:46
+
+五日凌空漩涡界，应该还是有科幻底子的
+但学院背景实在是不想品鉴<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Philister  
+##### 70#       发表于 2026-6-9 22:46
+
+什么土游<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zeroboss4  
+##### 71#       发表于 2026-6-9 22:46
+
+我说实话 新异度这感觉不是xb2这种媚宅类型的 
+
+有点失望
+
+话说老任还没出ns2的限定机器吗
+
+—— 来自 OnePlus PLR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  冰风血羽  
+##### 72#       发表于 2026-6-9 22:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">不说了，先相信
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  美军冲滩了吗？  
+##### 73#       发表于 2026-6-9 22:47
+
+日本人怎么就那么喜欢高中生活？？？
+
+*****
+
+####  sslink  
+##### 74#       发表于 2026-6-9 22:48
+
+学校应该呆不久的
+
+*****
+
+####  moeful  
+##### 75#       发表于 2026-6-9 22:48
+
+学院……结晶……我知道了，是导力器，这是致敬轨迹！
+
+*****
+
+####  秋月孝三  
+##### 76#       发表于 2026-6-9 22:48
+
+技校生活(指正)
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  lost-star  
+##### 77#       发表于 2026-6-9 22:48
+
+先观望，没机甲啊，人设无所谓，毕竟当年异度1都玩下来了
+
+*****
+
+####  Arisita  
+##### 78#       发表于 2026-6-9 22:49
+
+再女主设计得赞<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">迫不及待了，哎好久没这么期待一款jrpg了，甚至单机了
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 79#       发表于 2026-6-9 22:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69747862&amp;ptid=2283074" target="_blank">NaYo丶 发表于 2026-6-9 22:45</a>
+
+操纵美少女和男的谈恋爱实在太傻逼了
+
+xb现在又必走一男一女配cp</blockquote>
+脑海中冒出火纹if和男角色开茶会的画面<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  moeful  
+##### 80#       发表于 2026-6-9 22:50
+
+感觉既视感有点严重了…………你们吹xg是不是就是因为xg的设定高桥哥哥能拆成很多份做一辈子啊？
+
+
+*****
+
+####  hkguty  
+##### 81#       发表于 2026-6-9 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69747588&amp;ptid=2283074" target="_blank">nanamishark 发表于 2026-6-9 22:33</a>
+
+怎么和之前泄露的一样</blockquote>
+只有女主有些像吧，而且这设定好像PV完全对不上
+
+
+*****
+
+####  vmon  
+##### 82#       发表于 2026-6-9 22:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还有说不是正作的，很明显克劳乌斯故事结束肯定不会沿用数字啊。
+
+XB标题加副标题才符合高桥GG新故事开始的想法。
+
+*****
+
+####  拱猪  
+##### 83#       发表于 2026-6-9 22:56
+
+人设有点过于平庸了，一个大莱都没有，主角方看了pv都没有一个记得住的人物，看起来像boss的反而还行。
+
+学院部分看起来像风花雪月啊，总之谨慎不看好。
+
+*****
+
+####  虚无连斩  
+##### 84#       发表于 2026-6-9 22:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">骑士学校设定满脑子想到弧光之源3
+
+*****
+
+####  发呆的龙虾  
+##### 85#       发表于 2026-6-9 22:56
+
+人设普通才好，方便出纸娃娃系统。
+
+—— 来自 LENOVO Lenovo YT-K606F, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  无色辉火  
+##### 86#       发表于 2026-6-9 22:57
+
+就要学院，就要学院<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LT_Harry  
+##### 87#       发表于 2026-6-9 22:57
+
+英语版预告片 logo 没有 chronicles 了，难道说
+
+*****
+
+####  嘉术2015  
+##### 88#       发表于 2026-6-9 22:58
+
+谁也没想到之前那个ai一样的人设是真的
+
