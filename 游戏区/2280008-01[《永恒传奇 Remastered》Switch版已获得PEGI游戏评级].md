@@ -1526,3 +1526,54 @@ toe挺完善了，最需要重制的还是toa这种早期3d类型的
 
 和狂战的198 6300日元等比换算大概113。背景还是有AI超分高清化的，虽然官方给出的参考图我根本看不清<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  强尼高达  
+##### 153#       发表于 2026-6-9 23:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748541&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-6-9 23:13</a>
+请支持2D Tales的玩家一定要加油
+
+不然到时候销量不如3D Tales复刻就很难看了</blockquote>
+买了也不会出2D新作的
+
+*****
+
+####  alucardcz  
+##### 154#       发表于 2026-6-9 23:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748541&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-6-9 23:13</a>
+
+请支持2D Tales的玩家一定要加油
+
+不然到时候销量不如3D Tales复刻就很难看了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明知是石也要支持吗 100块也是钱啊
+
+
+*****
+
+####  plok201  
+##### 155#       发表于 2026-6-9 23:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有种我玩模拟器的时候，找了个网友分享AI高清包，玩着玩着有一天没加载，自己没发现的美
+
+*****
+
+####  哎哟卧槽了  
+##### 156#       发表于 2026-6-9 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748550&amp;ptid=2280008" target="_blank">猫将军 发表于 2026-6-9 23:13</a>
+肯定没人买的除了老fans</blockquote>
+我寧願模擬器玩psp版……
+
+—— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  牧月萌  
+##### 157#       发表于 2026-6-9 23:24
+
+之前的几个老RPG合集我都买了，格兰蒂亚、幻水、露娜，除了幻水是有点诚意以外
+剩下基本都原味，这么一看永恒倒也不奇怪了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1615,3 +1615,21 @@ ND上放的肯定是NS2版画面啊，还是说觉得之前演示过的画面NS2
 
 一点迪士尼世界要素都没放还行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 142#       发表于 2026-6-9 23:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748506&amp;ptid=2063712" target="_blank">虚无连斩 发表于 2026-6-9 23:11</a>
+
+来来来，大家猜猜野村会不会继续塞V13私货</blockquote>
+戴口罩那个黑发男子就是v13版诺克特吧
+
+*****
+
+####  抹茶瓜  
+##### 143#       发表于 2026-6-9 23:23
+
+年轻光头真跟预测的一样来帮忙了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
