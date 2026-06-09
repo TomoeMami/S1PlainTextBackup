@@ -2250,3 +2250,11 @@ gf是不是怕褒姒才让微软买单
 
 之前看到过有摘了斗笠和外套的女主的截图，太平了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zqqwe  
+##### 216#       发表于 2026-6-9 10:41
+
+其实后者模仿者都去掉了尼尔系列里横尾xp的弹幕元素对整体游戏性还是正面作用的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前演示里同时有空连和打铁算是集两家之长，但狗的指令qte感觉很断节奏
+

@@ -2139,3 +2139,26 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 我是带的米卡，但是打不过</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">词条别选随机丢1的 奈因相对来说不好打雾都和研究所的BOSS 脸黑卡被吃了就废了 其他都随便打 你潜力点了么 圣遗物弄了么
 
+
+*****
+
+####  windaria  
+##### 939#       发表于 2026-6-9 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69742945&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-6-9 09:20</a>
+
+九带两个弱鸡还是带不动，一直脸黑闪不到装甲就凉了
+
+到时候市长能无脑带两个弱鸡么？ ...</blockquote>
+除非你是满突破市长不然无脑应该是不行的，当同时出现精英boss加攻加血和减血上限的时候还是有可能会翻车
+
+
+*****
+
+####  西瓜不甜不甜  
+##### 940#       发表于 2026-6-9 10:44
+
+大概玩明白了，出击 作为这游戏的真肉鸽模式，想放松玩，没时间的上班族就别照着攻略，手刷第一层要把什么限时道具拿完，最多换代币搞一套主 C 圣遗物就够了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+剩下几天随缘拉拉吉他和其他角色，日常打打零式和出击，备战新角色就好了
+
