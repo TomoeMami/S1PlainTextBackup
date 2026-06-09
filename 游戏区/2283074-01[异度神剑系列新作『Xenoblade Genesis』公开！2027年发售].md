@@ -3493,3 +3493,154 @@ XB1 2E牵绊对话补配音了
 这黑楼不对劲啊 一般的环都是窄但直径很大的一个像戒指一样的环 这环宽到屏幕装不下直径却非常小 感觉像个 ...</blockquote>
 如果最后的拉高镜头没加鱼眼透视的话，感觉空间结构像个花瓶内壁<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 373#       发表于 2026-6-10 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749388&amp;ptid=2283074" target="_blank">姜岑 发表于 2026-6-10 00:25</a>
+宅男文娱的一生.jpg</blockquote>
+毕竟出圈是有代价的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海晟天锻  
+##### 374#       发表于 2026-6-10 00:27
+
+这不一眼洗衣筒殖民卫星吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  PigMourne  
+##### 375#       发表于 2026-6-10 00:27
+
+女性主角、环形殖民地、学院风，我懂了，是异度之刃水星的魔女
+
+*****
+
+####  fleedot  
+##### 376#       发表于 2026-6-10 00:27
+
+<img src="https://img.stage1st.com/forum/202606/10/002644ckggbyu2bk7bsvlc.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>img_8318.jpeg</strong> (1.62 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 00:26 上传
+
+提一嘴，XBDE原本13g的，ns2版升级补丁20g……比王泪还大了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  阿卵真是牛逼  
+##### 377#       发表于 2026-6-10 00:28
+
+女主角听不出是谁但应该不是🐑，男主角听着像松岗
+
+*****
+
+####  藤宫由季  
+##### 378#       发表于 2026-6-10 00:28
+
+我靠，准备睡觉，一看泥潭异度新专楼10页了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  屈江鸟  
+##### 379#       发表于 2026-6-10 00:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">P6也是，米山舞能不能别来糟蹋游戏了，画你的化妆品广告行不行
+
+*****
+
+####  はちたや  
+##### 380#       发表于 2026-6-10 00:28
+
+学习了下奥尼尔圆柱体，那么有没有科幻大师来解释一下怎么做到在哪里都能看到6个太阳。。。
+
+*****
+
+####  膝盖中五箭  
+##### 381#       发表于 2026-6-10 00:28
+
+<img src="https://p.sda1.dev/32/ca0d7bc2a4712c4be55a991157d54e1d/image.jpg" referrerpolicy="no-referrer">感觉这妹妹还行，比女主强。
+
+—— 来自 HUAWEI OXF-AN10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  mai6696  
+##### 382#       发表于 2026-6-10 00:29
+
+异度神剑：风花雪月
+
+*****
+
+####  moeful  
+##### 383#       发表于 2026-6-10 00:29
+
+这个世界不一定是卷筒纸，可能是个甜甜圈
+
+
+*****
+
+####  ????????  
+##### 384#       发表于 2026-6-10 00:30
+
+<blockquote>阿卵真是牛逼 发表于 2026-6-10 00:28
+女主角听不出是谁但应该不是🐑，男主角听着像松岗</blockquote>
+女主角有点像小松未可子
+
+*****
+
+####  topia  
+##### 385#       发表于 2026-6-10 00:30
+
+<img src="https://img.stage1st.com/forum/202606/10/002842j6ona5sox66ns6up.png" referrerpolicy="no-referrer">
+
+<strong>截屏2026-06-10 00.28.09.png</strong> (76.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 00:28 上传
+
+从海面的透视来看像是从一个鱼缸底部往上看<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">随便找的参考图
+
+*****
+
+####  laputah  
+##### 386#       发表于 2026-6-10 00:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749361&amp;ptid=2283074" target="_blank">江口夕 发表于 2026-6-10 00:22</a>
+
+你就算空想的欧洲也和黑皮一毛钱关系没有，隔壁黑魂法环也没黑皮怎么到你这就有了。
+
+—— 来自 Xiaomi 2 ...</blockquote>
+什么玩意玩过游戏吗 女战士是绿皮?
+
+*****
+
+####  P-link  
+##### 387#       发表于 2026-6-10 00:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749420&amp;ptid=2283074" target="_blank">???????? 发表于 2026-6-10 00:30</a>
+
+女主角有点像小松未可子</blockquote>
+我也这么认为，我觉得90%是小松未可子
+
+*****
+
+####  P-link  
+##### 388#       发表于 2026-6-10 00:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749421&amp;ptid=2283074" target="_blank">topia 发表于 2026-6-10 00:30</a>
+
+从海面的透视来看像是从一个鱼缸底部往上看随便找的参考图</blockquote>
+最终流放是吧
+
