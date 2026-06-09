@@ -4585,3 +4585,22 @@ Xenoblade Deuteronomy
 明显就是还要组cp</blockquote>
 顶天是类似兄妹感情，不搞百合不会弄女主角。
 
+
+*****
+
+####  keytomylife  
+##### 481#       发表于 2026-6-10 07:18
+
+希望那个第二章学院就被破坏的泄漏是真的
+现在看到学院就厌恶
+
+
+*****
+
+####  GLYSDSB  
+##### 482#       发表于 2026-6-10 07:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">感觉是X的续作 而不是正传 
+
+而且米山舞的人设也太土了吧 虽然斋藤三代人设也拉了 还是怀念二代斋藤没束手束脚直接放飞自我的人设
+
