@@ -4290,3 +4290,15 @@ ace没有转xbg的推，大概率是没有了
 所以那个泄露的图和梗概到底是不是真的</blockquote>
 肯定是有内部人员看到图然后转述，不然人设不可能会和最终成品那么像。但是剧情上估计是早期设计，会有区别。
 
+
+*****
+
+####  VictorWJ  
+##### 453#       发表于 2026-6-10 02:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69747982&amp;ptid=2283074" target="_blank">moeful 发表于 2026-6-9 22:50</a>
+感觉既视感有点严重了…………你们吹xg是不是就是因为xg的设定高桥哥哥能拆成很多份做一辈子啊？ ...</blockquote>
+我说别带宫崎英高节奏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
