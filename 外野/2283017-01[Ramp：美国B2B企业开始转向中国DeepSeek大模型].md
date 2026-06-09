@@ -413,3 +413,17 @@ xhs roll一个月有agent跑一下午token多吗，而且这种数据直接按ro
 另一边国内很多人顶着几十倍deepseek的价格也要用gpt和claude</blockquote>
 因为公司报销啊- -自己哪用得起。。。
 
+
+*****
+
+####  ZinGer_KyoN  
+##### 48#       发表于 2026-6-9 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69745532&amp;ptid=2283017" target="_blank">hyde_caesar 发表于 2026-6-9 16:41</a>
+谨慎不看好dsv4.1和dsv4.2这些后续版本；
+
+预期中的大量agent使用的优质RL数据占比比预期的少， 反而是网页 ...</blockquote>
+你是怎么觉得人工队手动的操作产生的token数有代码区多的？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
