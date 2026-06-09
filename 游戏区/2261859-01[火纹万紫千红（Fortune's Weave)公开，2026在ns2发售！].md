@@ -380,3 +380,105 @@ d44cbb119313b07e240a9e084ad7912396dd8cbe.jpg
 
 你任最近两年含泥量越来越高，难绷<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Link213  
+##### 732#       发表于 2026-6-9 23:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748801&amp;ptid=2261859" target="_blank">巨馍蘸酱 发表于 2026-6-9 23:29</a>
+
+高清封面，可以看到白毛主角拿的是遗产武器</blockquote>
+所以这两白毛才是主角吗？
+
+*****
+
+####  monolithsoft  
+##### 733#       发表于 2026-6-9 23:48
+
+战斗动画拉玩了
+
+等地图设计评测了
+
+*****
+
+####  巨馍蘸酱  
+##### 734#       发表于 2026-6-9 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749036&amp;ptid=2261859" target="_blank">Link213 发表于 2026-6-9 23:47</a>
+
+所以这两白毛才是主角吗？</blockquote>
+应该是，那四个人应该只是火纹传统的各国家/势力的代表，就像三房的三级长一样
+
+*****
+
+####  Nez  
+##### 735#       发表于 2026-6-9 23:49
+
+枪系主角是不是挺少见的
+
+
+*****
+
+####  山口達也  
+##### 736#       发表于 2026-6-9 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749057&amp;ptid=2261859" target="_blank">Nez 发表于 2026-6-9 23:49</a>
+枪系主角是不是挺少见的</blockquote>
+不算少见  算多见的了
+
+*****
+
+####  forestlimit  
+##### 737#       发表于 2026-6-9 23:51
+
+谁说这人设不好的，这白毛太对胃口了
+
+*****
+
+####  会长辅佐  
+##### 738#       发表于 2026-6-9 23:52
+
+四个主角难评，其他配角还是可以的，主角看着也不错。
+
+*****
+
+####  巨馍蘸酱  
+##### 739#       发表于 2026-6-9 23:52
+
+新作的安娜
+
+a53cb0014a90f603fe0952477f12b31bb151edb0.jpg
+(47.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 23:52 上传
+
+<img src="https://img.stage1st.com/forum/202606/09/235241yywyjymcm1m71g8c.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  月光的道标  
+##### 740#       发表于 2026-6-9 23:52
+
+果然是四位级长，当初看官网介绍就知道黑皮小男孩不会是主角的
+
+*****
+
+####  苍蓝之枪  
+##### 741#       发表于 2026-6-9 23:52
+
+历代里只有骨哥的首选武器是枪
+
+老辛枪属于副武器吧
+
+GBA三作里甚至好像没有其他我方步行枪兵单位，默认武器是枪的都是重骑飞
+
+*****
+
+####  hkguty  
+##### 742#       发表于 2026-6-9 23:54
+
+无论X上的介绍、官网的介绍都说的四人是主角，白色的自捏应该是类似军师的角色吧
+

@@ -1690,3 +1690,88 @@ toe挺完善了，最需要重制的还是toa这种早期3d类型的
 不用太抬举，隔壁那个也就没那么多马赛克而已</blockquote>
 toe复刻有幻水1+2的诚意，我就吹爆了，toe在系列口碑算相当好的都是这种待遇，那传闻的toa复刻估计也是ps2版原汁原味了
 
+
+*****
+
+####  plusfive  
+##### 170#       发表于 2026-6-9 23:47
+
+<blockquote>qiyu1234 发表于 2026-6-9 23:38
+讲白了 旧作复刻就是填新作档期的
+
+这系列欠太多东西要补了，到现在一个活跃的JRPG老牌系列还有超过一半以上 ...</blockquote>
+就这么拉的水平，直接出一个2D传说合集都没啥争议的程度，反正都是原汁原味……
+
+万南和富泽都是$逼，太气人了
+
+*****
+
+####  伊郑z  
+##### 171#       发表于 2026-6-9 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748919&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-6-9 23:38</a>
+
+讲白了 旧作复刻就是填新作档期的
+
+这系列欠太多东西要补了，到现在一个活跃的JRPG老牌系列还有超过一半以上 ...</blockquote>
+我对填档期没意见，但是搞得比原版还差就有很大意见了，心灵和圣洁在psv的规格比永恒强多了，移植现代平台也得做好点，现在这片真是完全没有诚意
+
+
+*****
+
+####  qiyu1234  
+##### 172#         楼主| 发表于 2026-6-9 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749046&amp;ptid=2280008" target="_blank">伊郑z 发表于 2026-6-9 23:48</a>
+
+我对填档期没意见，但是搞得比原版还差就有很大意见了，心灵和圣洁在psv的规格比永恒强多了，移植现代平 ...</blockquote>
+这复刻别的不说，QOL做的还是挺多的，包括你不满意可以随时切换回原版画面，虽然也是马赛克
+
+比原版差这个算不上，唯一的问题就是移植自PSP版导致4人热座这个没有再新增回来
+
+*****
+
+####  哎哟卧槽了  
+##### 173#       发表于 2026-6-9 23:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748961&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-9 23:40</a>
+说起来我dlc还没打 也许该复习了</blockquote>
+打了更扣分<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  trow233  
+##### 174#       发表于 2026-6-9 23:52
+
+就这马赛克吗……
+
+虽然估计还是会买一片收藏……等跌爆后
+
+*****
+
+####  qiyu1234  
+##### 175#         楼主| 发表于 2026-6-9 23:52
+
+心灵和圣洁都是R版，讲白了就是重制版（只是规格偏低）
+
+但是也就是PSV能接受的程度了
+
+这个系列现在富泽的意思是如果做重制就是高规格，那这种情况下我估计也就TOP TOA这种未来有可能有机会
+
+当然现在应该还是新作为主
+
+*****
+
+####  哎哟卧槽了  
+##### 176#       发表于 2026-6-9 23:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749034&amp;ptid=2280008" target="_blank">plusfive 发表于 2026-6-9 23:47</a>
+就这么拉的水平，直接出一个2D传说合集都没啥争议的程度，反正都是原汁原味……
+
+万南和富泽都是$逼，太 ...</blockquote>
+就是廢物利用級別的玩意，買一份都是支持這種風氣。本來寄望用新引擎重制舊作品，結果端上來的全是這些玩意，連TOB都搞另存為就知道傳說組在萬代眼裡只是個回收站還沒刪除的文件<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+—— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

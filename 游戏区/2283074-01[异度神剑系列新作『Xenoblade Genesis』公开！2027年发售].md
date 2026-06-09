@@ -2680,3 +2680,193 @@ XB3 MIO铁血挽尊
 
 直播的分辨率确实有点低了，看官方发的视频画质倒确实不算差，至少不会差到123的程度
 
+
+*****
+
+####  topia  
+##### 291#       发表于 2026-6-9 23:46
+
+主要看远方背景不太像是能探索的精度，希望到时候能打我脸
+
+希望能弥补当年smt3不能探索整个东京受胎的遗憾<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D-JoeII  
+##### 292#       发表于 2026-6-9 23:47
+
+地圖分佈感覺會不會像XBX那種?
+
+*****
+
+####  你妈的为什么  
+##### 293#       发表于 2026-6-9 23:47
+
+6个太阳加滚筒外壁，最后一看是个殖民卫星是吧
+
+*****
+
+####  嘉术2015  
+##### 294#       发表于 2026-6-9 23:47
+
+求求潭友别用大女主这种词汇好不好
+
+jrpg女性主角现在已经是雷点了吗
+
+*****
+
+####  滝本日富美  
+##### 295#       发表于 2026-6-9 23:47
+
+就xb3dlc角色设计建模完这个样子，你还能让他们做xb新作的。
+
+—— 来自 vivo V2408A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  heseran  
+##### 296#       发表于 2026-6-9 23:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749035&amp;ptid=2283074" target="_blank">嘉术2015 发表于 2026-6-9 23:47</a>
+求求潭友别用大女主这种词汇好不好
+
+jrpg女性主角现在已经是雷点了吗</blockquote>
+有的人学到个新词就恨不得像标记领地一样满大街撒尿甩出来用，理解一下。
+
+*****
+
+####  oniwarud  
+##### 297#       发表于 2026-6-9 23:49
+
+<blockquote>Link213 发表于 2026-6-9 23:34
+之前高桥发文为新RPG招聘新员工的公告是哪一年？今晚XB新作根据没三四年出不来吧？会不会是另一款游戏？ ...</blockquote>
+那个招人页面还挂在官网上没撤下来，参考之前xb3公布时就把招人页面撤了来看，不排除xbg是小红帽转正的可能，之前泥潭就在猜小红帽会不会最后变成xb。
+
+*****
+
+####  Patlain  
+##### 298#       发表于 2026-6-9 23:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748627&amp;ptid=2283074" target="_blank">noHentai 发表于 2026-6-9 23:18</a>
+那我还是觉得saitom秒了，主要米山舞画风3D化想好看难度不小。</blockquote>
+
+<img src="https://img.stage1st.com/forum/202606/09/234911n33g3r0r4rrt0rrg.jpg" referrerpolicy="no-referrer">
+
+<strong>1781020147153.jpg</strong> (686.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 23:49 上传
+
+这不是有实例么，光说3d化还是好看的，但动起来又是另外一回事了
+
+
+*****
+
+####  守名居  
+##### 299#       发表于 2026-6-9 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748986&amp;ptid=2283074" target="_blank">topia 发表于 2026-6-9 23:42</a>
+
+从官方4k分辨率pv截的图，提供一些辩论材料</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这女主脸部的打光，好害怕出现XB3的阴阳脸啊
+
+*****
+
+####  ryanghj  
+##### 300#       发表于 2026-6-9 23:50
+
+切割了，但是没完全切割<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202606/09/235012tzjalmplmc2j7xl7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (114.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 23:50 上传
+
+*****
+
+####  zhangzcl2  
+##### 301#       发表于 2026-6-9 23:50
+
+大女主又是哪里发明出来的词汇，主控女角色今年不才有个空轨重制吗？这有啥问题
+
+*****
+
+####  wwhaha  
+##### 302#       发表于 2026-6-9 23:50
+
+这火纹新作的鬼样子肯定在藏（甚至也不算藏）
+
+但确实不吸引，第一眼印象很平庸普通
+
+*****
+
+####  topia  
+##### 303#       发表于 2026-6-9 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749069&amp;ptid=2283074" target="_blank">守名居 发表于 2026-6-9 23:50</a>
+
+这女主脸部的打光，好害怕出现XB3的阴阳脸啊</blockquote>
+
+<img src="https://img.stage1st.com/forum/202606/09/235136ud52f704vcdc55h5.jpg" referrerpolicy="no-referrer">
+
+<strong>videoplayback-0012.jpg</strong> (236.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 23:51 上传
+
+阴阳脸应该不会缺席的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jabeck  
+##### 304#       发表于 2026-6-9 23:52
+
+看好黄毛女二被女主**。
+
+*****
+
+####  D-JoeII  
+##### 305#       发表于 2026-6-9 23:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749072&amp;ptid=2283074" target="_blank">zhangzcl2 发表于 2026-6-9 23:50</a>
+
+大女主又是哪里发明出来的词汇，主控女角色今年不才有个空轨重制吗？这有啥问题 ...</blockquote>
+問AI的(我自己也不知這啥意思)
+
+「大女主」通常指影視、文學作品中佔據核心地位的獨立女性。她們擁有強大內心與自主意識，不依賴男性角色，展現自我成長與逆襲。此題材涵蓋豐富，如古裝權謀、職場奮鬥及復仇爽劇等，展現出女性在逆境中的韌性與魅力。
+
+*****
+
+####  赤黑的假面  
+##### 306#       发表于 2026-6-9 23:53
+
+<blockquote>你妈的为什么 发表于 2026-6-9 23:47
+6个太阳加滚筒外壁，最后一看是个殖民卫星是吧</blockquote>
+所以后期是不是会来个从剑与魔法一转机动战士钢蛋
+
+*****
+
+####  lbzlxx  
+##### 307#       发表于 2026-6-9 23:54
+
+老任是被入侵了吗，好多黑人啊，从宝可梦到火纹到异度
+
+*****
+
+####  -Vanitas-  
+##### 308#       发表于 2026-6-9 23:54
+
+米山舞最有名的还是eva插图吧，插画好看但是人设没啥吸睛印象深刻的，我只能尊重祝福了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名mahuyo  
+##### 309#       发表于 2026-6-9 23:55
+
+看了B站上1080P的视频，画面好多了
+
