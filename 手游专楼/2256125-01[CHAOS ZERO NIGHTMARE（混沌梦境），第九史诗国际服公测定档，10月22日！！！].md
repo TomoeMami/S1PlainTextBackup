@@ -2175,3 +2175,26 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 
 这个版本反击强度上去了，且冰狗上修了不少，导致她在局内的保姆能力大幅上涨，反击流攻防兼具，费用利用率奇高。
 
+
+*****
+
+####  sxsdark  
+##### 942#       发表于 2026-6-9 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69743864&amp;ptid=2256125" target="_blank">伊布桑 发表于 2026-6-9 11:23</a>
+
+推荐一个比较强的出击套路，冰狗反击流
+
+这个版本反击强度上去了，且冰狗上修了不少，导致她在局内的保姆能 ...</blockquote>
+没有这个角色！
+
+*****
+
+####  sxsdark  
+##### 943#       发表于 2026-6-9 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69743435&amp;ptid=2256125" target="_blank">qixinno1 发表于 2026-6-9 10:27</a>
+
+词条别选随机丢1的 奈因相对来说不好打雾都和研究所的BOSS 脸黑卡被吃了就废了 其他都随便打 你潜力点了 ...</blockquote>
+潜力满了，圣遗物词条不太对，40级刷金遗物掉率好低
+
