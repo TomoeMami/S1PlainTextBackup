@@ -2292,3 +2292,19 @@ gf是不是怕褒姒才让微软买单
 
 2026-6-9 11:01 上传
 
+
+*****
+
+####  卢迪克  
+##### 219#       发表于 2026-6-9 11:32
+
+有属性，boss是火，狗是草，宝可梦说是
+
+<img src="https://img.stage1st.com/forum/202606/09/113055iw05xrfvvvx2j4ei.png" referrerpolicy="no-referrer">
+
+<strong>ac2daca2c27a18934f7960d67431b422.png</strong> (95.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 11:30 上传
+
