@@ -433,3 +433,30 @@
 
 突然想到幽灵这个-100护甲的坑货脸不好在难5都有被秒风险，难6就纯看脸赌闪避……，话说还没玩幽灵不知道开局能不能选伤者解锁的那把新枪
 
+
+*****
+
+####  lovepenny  
+##### 407#       发表于 2026-6-9 09:10
+
+<blockquote>引用第405楼cs0111于2026-06-09 08:59发表的  :
+
+本帖最后由 cs0111 于 2026-6-9 09:01 编辑 lovepenny 发表于 202......</blockquote>
+@cs0111
+
+护甲刷不出的话，次优先点哪些属性？
+
+----发送自 [realme RMX3800,Android 15](http://stage1.5j4m.com/?1.48)
+
+
+*****
+
+####  风流庵TypeC  
+##### 408#       发表于 2026-6-9 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69742800&amp;ptid=2202324" target="_blank">cs0111 发表于 2026-6-9 08:59</a>
+不是前期刷是起手第一回合结束就刷，刷不到直接重开，圆锯的高攻速和高回血和骑士的高防低攻速很搭，不过 ...</blockquote>
+幽灵用新枪强的飞起
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
