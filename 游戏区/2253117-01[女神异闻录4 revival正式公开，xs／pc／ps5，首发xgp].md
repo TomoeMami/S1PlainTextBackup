@@ -2029,3 +2029,25 @@ P4G的迷宫太无聊了，应该也重制了吧？</blockquote>
 
 毕竟和中国也有合作中配手游，估计就靠这层关系搞了中配<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 365#       发表于 2026-6-9 15:39
+
+别说，我还真想听听中配会是什么样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其它游戏里中配的问题往往是羞耻感，感觉都是夹着配的，不敢把中二的台词理直气壮地吼出来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  红魔馆的糖  
+##### 366#       发表于 2026-6-9 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69745159&amp;ptid=2253117" target="_blank">猪突猛进R 发表于 2026-6-9 15:39</a>
+别说，我还真想听听中配会是什么样
+
+其它游戏里中配的问题往往是羞耻感，感觉都是夹着配的，不敢把中二的台 ...</blockquote>
+现在去b站搜索p5x手游中配，满足你猎奇的同时说不定还能在评论区看到新声代说xx老师配的真好<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
