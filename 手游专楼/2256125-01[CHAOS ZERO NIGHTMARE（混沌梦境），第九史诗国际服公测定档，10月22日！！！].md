@@ -2128,3 +2128,14 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 你要是在怕打不过就带个吉他之类的有一点回血能力的 反正我无脑高速目前没翻过车 ...</blockquote>
 我是带的米卡，但是打不过
 
+
+*****
+
+####  qixinno1  
+##### 938#       发表于 2026-6-9 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69743324&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-6-9 10:13</a>
+
+我是带的米卡，但是打不过</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">词条别选随机丢1的 奈因相对来说不好打雾都和研究所的BOSS 脸黑卡被吃了就废了 其他都随便打 你潜力点了么 圣遗物弄了么
+
