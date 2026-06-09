@@ -4562,3 +4562,14 @@ Xenoblade Deuteronomy
 
 终于女性主人公了？早就说了bg没未来，日厂终于肯低头了？腐朽的老人终于被按住了？
 
+
+*****
+
+####  アヘ顔  
+##### 479#       发表于 2026-6-10 07:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749986&amp;ptid=2283074" target="_blank">asikies 发表于 2026-6-10 06:50</a>
+终于女性主人公了？早就说了bg没未来，日厂终于肯低头了？腐朽的老人终于被按住了？ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是女主只有和男主在一起才能发挥巨大的能力
+明显就是还要组cp
+
