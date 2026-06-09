@@ -2164,3 +2164,17 @@ ds最近提速了吗？api上周峰值能到7-80的速度，平均60多，今天
 龙虾这玩意儿就是坑普通人的</blockquote>
 龙虾纯废物，起码装个hermes吧， pi还没用过，今天试试
 
+
+*****
+
+####  schneehertz  
+##### 1668#       发表于 2026-6-9 08:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69733452&amp;ptid=2275806" target="_blank">Bronzecraft 发表于 2026-6-7 11:11</a>
+对，主要是一些代码任务。
+
+我刚又重新统计了下，用claude code每个session大概输入tokens在1400万到3000 ...</blockquote>
+Windows的话用Windows terminal就不会有这问题
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
