@@ -369,3 +369,24 @@ agent 编程从性价比上是否还是不如传统 llm 编程
 
 —— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  Promeus  
+##### 44#       发表于 2026-6-9 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69745574&amp;ptid=2283017" target="_blank">weary10 发表于 2026-6-9 16:47</a>
+不是，公司敢把东西都丢给AI？真不怕泄密？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">老板又看不到员工做啥
+
+
+*****
+
+####  虚空之言  
+##### 45#       发表于 2026-6-9 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69744571&amp;ptid=2283017" target="_blank">很久就在那边l 发表于 2026-6-9 13:29</a>
+
+另一边国内很多人顶着几十倍deepseek的价格也要用gpt和claude</blockquote>
+我忏悔，我花钱用grok，为了涩图
+
