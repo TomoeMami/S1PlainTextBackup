@@ -549,3 +549,30 @@ DS 本地部署真的便宜 ，硬件8万就能落地，但是需要有人监管
 
 —— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  zncl  
+##### 58#       发表于 2026-6-9 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69745532&amp;ptid=2283017" target="_blank">hyde_caesar 发表于 2026-6-9 16:41</a>
+
+谨慎不看好dsv4.1和dsv4.2这些后续版本；
+
+预期中的大量agent使用的优质RL数据占比比预期的少， 反而是网页 ...</blockquote>
+拿来工作用的不太可能被xhs用户影响的到
+
+没那么优质的数据集本来影响也不大
+
+*****
+
+####  smiths146  
+##### 59#       发表于 2026-6-9 20:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69746669&amp;ptid=2283017" target="_blank">ycjiang1337 发表于 2026-6-9 20:42</a>
+
+你咋算的，8W美元也不够吧
+
+—— 来自 HUAWEI SGT-AL50, Android 12, 鹅球 v3.4.97-alpha ...</blockquote>
+部署系统前最重要的一定要确定要干嘛的，大部分员工需求和业务后续，连完全体DS都不要，所以就非常便宜，尤其在规模一百来人 AI助理对这些公司帮助非常大，因为相当部署一个全天候的中台给每个业务员工做业务支援，不仅不需要裁员，业务员工效率提的很高，不过还是那个重点你要找人看这个AI，输入资料和后续纠错一定要干
+
