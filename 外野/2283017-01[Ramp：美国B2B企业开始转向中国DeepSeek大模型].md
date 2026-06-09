@@ -1,0 +1,350 @@
+﻿
+*****
+
+####  德尔惠净水器  
+##### 1#       楼主       发表于 2026-6-9 12:14
+
+.cronclosethread_getbox{border: 1px dashed #FF9A9A;padding:6px 8px;line-height: 24px;margin: 10px 0;font-size: 12px;overflow:hidden;color: #CA4312;}
+
+此帖将于2026-07-09 12:13自动关闭
+
+据外媒 Bingo Finance 今天报道，美国企业正在经历一场 AI 热潮后的阵痛。随着各大公司在 AI 领域的累计投入突破 1 万亿美元（现汇率约合 6.79 万亿元人民币），模型推理成本不断飙升，而预期的降本增效却迟迟未能兑现。导致越来越多公司开始寻求低成本替代方案
+
+美国企业支出管理平台 Ramp 最新调查报告显示，中国 AI 公司 DeepSeek 首次登上该平台软件趋势榜榜首，成为增长最快的软件供应商。这一变化反映出美国企业客户对不断攀升的 AI 模型成本感到不满。
+
+近期披露的案例显示，某企业仅在一个月内就为 Claude 支付 5 亿美元（IT之家注：现汇率约合 33.96 亿元人民币）费用，网约车巨头 Uber 更是在今年四个月内耗尽了全年的 Token 预算。甚至亚马逊、微软等科技巨头，都在暂停或缩减内部 AI 工具订阅费用。
+
+就在美国企业为 AI 账单头疼之际，DeepSeek 近期宣布将 API 价格永久下调 75%，而 MiniMax 更是将模型使用成本压至行业新低。性价比正迅速成为中国大模型进军全球 B2B 市场的主要武器。
+
+Ramp 首席经济学家 Ara Kharazian 表示：“这可能是迄今为止最明确的信号，表明美国企业正在主动寻找 OpenAI、Anthropic 的低成本替代方案”。
+
+他从平台交易数据分析称，一部分企业已开始直接使用价格更便宜的中国大模型。这些企业并非自行部署 DeepSeek 开源模型，而是直接向 DeepSeek 付费并使用其托管服务。
+
+Ramp 认为，DeepSeek 再次获得企业客户关注的最直接原因之一，就是美国 AI 生态系统内部不断加剧的成本压力。该企业表示：“美国公司在 AI 支出方面正变得越来越谨慎，他们会更多尝试开源模型，或者转向比 OpenAI、Anthropic 更便宜的产品”。
+
+*****
+
+####  sellboy  
+##### 2#       发表于 2026-6-9 12:15
+
+我听说本来这些企业还研究自己部署dsv4的，现在直接买ds的api了。
+
+*****
+
+####  Nanachi  
+##### 3#       发表于 2026-6-9 12:17
+
+agent 编程从性价比上是否还是不如传统 llm 编程
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  pwzzy  
+##### 4#       发表于 2026-6-9 12:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">美国人还想自己部署吗，他们有内蒙古比空气还便宜点电吗
+
+*****
+
+####  施人诚  
+##### 5#       发表于 2026-6-9 12:18
+
+A处和OPENAI都要趁着最后的财报冲击上市了，再不上，营收和用户人数一下降，连钱都圈不到了
+
+*****
+
+####  med  
+##### 6#       发表于 2026-6-9 12:21
+
+notion喷opus4.7 4.8降智，以后真得像基础设施一样了
+
+*****
+
+####  Promeus  
+##### 7#       发表于 2026-6-9 12:25
+
+蜗牛来咯<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绝地潜兵  
+##### 8#       发表于 2026-6-9 12:27
+
+国内算力中心猛上，token年底可能是千亿的大市场，灰犀牛创死牢美
+
+*****
+
+####  天桥夜风  
+##### 9#       发表于 2026-6-9 12:27
+
+一方面感谢梁圣开源，另一方面恶意点揣摩又感觉有点巨魔味，“就你丫要上市是吧，要搞估值是吧，感受一下来自东方的铁拳”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat339  
+##### 10#       发表于 2026-6-9 12:33
+
+竟然还没立法封禁吗？分分钟妨害国家安全啊
+
+*****
+
+####  星花  
+##### 11#       发表于 2026-6-9 12:38
+
+⏰正等着服贸收税呐。
+
+*****
+
+####  赤色彗星SEXY  
+##### 12#       发表于 2026-6-9 12:42
+
+Anthropic  真不行了  4.7 要出来那会儿就开始降智, 时好时坏现在 挺弱智的 
+
+*****
+
+####  Dreki  
+##### 13#       发表于 2026-6-9 12:49
+
+虽然现在成本高，但是可以靠画饼太空算力圈更多米    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  安广多惠子  
+##### 14#       发表于 2026-6-9 12:50
+
+美國居然不完全禁止用ds嗎，這個真的影響他們國家安全吧，尤其是金融安全<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  last_regret  
+##### 15#       发表于 2026-6-9 12:52
+
+这服务器撑不撑得住啊
+
+*****
+
+####  a317216007  
+##### 16#       发表于 2026-6-9 12:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">哪怕在国内，到了一定规模的企业都会注意通知员工不要把企业资料丢公共的AI模型平台里处理，西大那么重视国家安全，连大蒜这种危害国家安全的作物都要禁止，却不墙掉DS，真的哭死
+
+*****
+
+####  thq  
+##### 17#       发表于 2026-6-9 13:21
+
+跑得快没奖励， 跑得慢有惩罚。 来自东方的斩杀线。
+
+*****
+
+####  ycjiang1337  
+##### 18#       发表于 2026-6-9 13:23
+
+他们甚至连三方托管都懒得买233333
+
+*****
+
+####  很久就在那边l  
+##### 19#       发表于 2026-6-9 13:29
+
+另一边国内很多人顶着几十倍deepseek的价格也要用gpt和claude<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猪突萌进  
+##### 20#       发表于 2026-6-9 13:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69744417&amp;ptid=2283017" target="_blank">安广多惠子 发表于 2026-6-9 12:50</a>
+
+美國居然不完全禁止用ds嗎，這個真的影響他們國家安全吧，尤其是金融安全
+
+—— 来自 S1Fun ...</blockquote>
+老米是这样的，你真的能影响的时候就没事了
+
+*****
+
+####  我被骗了五块钱  
+##### 21#       发表于 2026-6-9 13:35
+
+梁圣这价格，把所有本地部署都给爆了好吧，除非你有很高的保密需求，不然你本地部署不知道多少年才能看到回本的可能性
+
+*****
+
+####  Lds19  
+##### 22#       发表于 2026-6-9 13:39
+
+<blockquote>很久就在那边l 发表于 2026-6-9 13:29
+另一边国内很多人顶着几十倍deepseek的价格也要用gpt和claude</blockquote>
+ai就是一座围城，城外的人想进来，城里的人想出去
+
+*****
+
+####  overflowal  
+##### 23#       发表于 2026-6-9 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69744571&amp;ptid=2283017" target="_blank">很久就在那边l 发表于 2026-6-9 13:29</a>
+另一边国内很多人顶着几十倍deepseek的价格也要用gpt和claude</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  chickensoup  
+##### 24#       发表于 2026-6-9 13:42
+
+实测下来deepseek由于超高的缓存命中率以及超便宜的缓存命中价格，比claude opus便宜一百倍
+
+*****
+
+####  qwased  
+##### 25#       发表于 2026-6-9 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69744571&amp;ptid=2283017" target="_blank">很久就在那边l 发表于 2026-6-9 13:29</a>
+另一边国内很多人顶着几十倍deepseek的价格也要用gpt和claude</blockquote>
+绝大部分非官网的claude应该都是冒充的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
+*****
+
+####  Unbiquitous  
+##### 26#       发表于 2026-6-9 14:15
+
+现在还有差距，如果deepseek如果再进步一下出个产品赶上claude code和codex估计可以看到美股脚踝斩
+
+*****
+
+####  日下轮太  
+##### 27#       发表于 2026-6-9 14:16
+
+群里码农：选最贵的，反正公司报销<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yoki42  
+##### 28#       发表于 2026-6-9 14:23
+
+白天中国人用，晚上美国人用，鲸鱼娘不得闲啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  jojog  
+##### 29#       发表于 2026-6-9 14:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">换成api的话怕不是codex和claude code用户会砍8成吧
+
+本来不就是烧钱扩量么，持续不下去的
+
+*****
+
+####  prattwhitney  
+##### 30#       发表于 2026-6-9 14:41
+
+国内程序猿这个群体有极强的梵化需求，所以用gpt和claude可能有一半的理由不是因为好用，花多点钱怎么了
+
+claude也察觉到了这一点，实际上是用的不乳不用的marketing策略，对国内特攻
+
+*****
+
+####  母星  
+##### 31#       发表于 2026-6-9 14:46
+
+ 本帖最后由 母星 于 2026-6-9 14:49 编辑 
+
+换句话说，这意味着现在很多企业已经离不开AI了，最次也是离不开便宜的AI，继续all in内存就行了
+
+*****
+
+####  sagajytc  
+##### 32#       发表于 2026-6-9 14:50
+
+我觉得国家应该出台相关规定，AI算力得用人民币支付，而不是美元<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木谷高明  
+##### 33#       发表于 2026-6-9 16:09
+
+ 本帖最后由 木谷高明 于 2026-6-9 16:26 编辑 
+
+模型都是开源的，为了数据安全合规性本地部署很多国内外企业都这么干
+
+B站不少AI服务器装机视频的，企事业高校都有
+
+外部AI访问不了本地知识库，本地AI必须靠外部工具实现联网搜索，都无法互相替代
+
+*****
+
+####  zouyun147  
+##### 34#       发表于 2026-6-9 16:17
+
+真人和AI聊天过程的数据会被拿去训练吗
+
+*****
+
+####  tillnight  
+##### 35#       发表于 2026-6-9 16:17
+
+<blockquote>很久就在那边l 发表于 2026-6-9 13:29
+另一边国内很多人顶着几十倍deepseek的价格也要用gpt和claude</blockquote>
+轮子蹬满对个人用户来说目前订阅并不会是几十倍价格，甚至是相近价格更好效果。但是第一是个人用户能蹬满的也就程序猿，第二是企业用户的话就又是另一套计算逻辑了。
+
+*****
+
+####  忧郁的杰哥  
+##### 36#       发表于 2026-6-9 16:21
+
+即便是本地部署  DSV4 FLASH 才160GB的权重文件  加上压缩到上一代8分之一的KVcache缓存占用  我只能说  就是无敌....
+
+*****
+
+####  hyde_caesar  
+##### 37#       发表于 2026-6-9 16:41
+
+谨慎不看好dsv4.1和dsv4.2这些后续版本；
+
+预期中的大量agent使用的优质RL数据占比比预期的少， 反而是网页版的pro被xhs用户孜孜不倦的roll回答混入了大量的"带有人为标注倾向"的数据集， 
+
+网页版搜索被关了不知道和xhs情感陪伴需求的roll数据有没有关系<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tansapple  
+##### 38#       发表于 2026-6-9 16:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69745532&amp;ptid=2283017" target="_blank">hyde_caesar 发表于 2026-6-9 16:41</a>
+谨慎不看好dsv4.1和dsv4.2这些后续版本；
+
+预期中的大量agent使用的优质RL数据占比比预期的少， 反而是网页 ...</blockquote>
+网页版关搜索是因为有人用反代薅ds的羊毛养龙虾，给服务器造成了过重负担，xhs那群**的数据量算不上一毛的。
+
+*****
+
+####  lnliang  
+##### 39#       发表于 2026-6-9 16:46
+
+<blockquote>Nanachi 发表于 2026-6-9 12:17
+agent 编程从性价比上是否还是不如传统 llm 编程
+
+论坛助手,iPhone</blockquote>
+不是，一些疑难杂症还真是agent能够帮忙解决
+
+*****
+
+####  weary10  
+##### 40#       发表于 2026-6-9 16:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不是，公司敢把东西都丢给AI？真不怕泄密？
+
+
+*****
+
+####  罗莉控  
+##### 41#       发表于 2026-6-9 16:49
+
+即使不差钱的富哥不是也总结出，先用知识最丰富的gemini找方向，再用最聪明的gpt做计划，准备好了就用最吃苦耐劳的deepseek开干，最后用最训练有素的claude做审核
+
