@@ -2197,3 +2197,25 @@ Windows的话用Windows terminal就不会有这问题
 做海报的话有没有哪些agent推荐的？国内trae能做么？</blockquote>
 图片吗？GPT image2 或者 nano banana
 
+
+*****
+
+####  ycjiang1337  
+##### 1671#       发表于 2026-6-9 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69741600&amp;ptid=2275806" target="_blank">兔灾2号 发表于 2026-6-8 21:37</a>
+
+我用Cherrystudio挂载了api，但感觉还是怪怪的，原来的网页端对时间的把握很精准，但是用api的情况下，哪怕 ...</blockquote>
+网页版有内置System Prompt
+
+*****
+
+####  ayanamilin  
+##### 1672#       发表于 2026-6-9 11:07
+
+DeepSeek开招土木老哥：自建吉瓦级数据中心
+
+DeepSeek官网最新上线了“IDC设计规划工程师”这个岗位。IDC设计规划工程师，全称互联网数据中心设计规划工程师，属于算力基建、通信基建核心技术岗，负责数据中心从前期选址、方案、布局到施工图、落地配套的全流程规划设计，是机房建设前期核心技术负责人。
+
+[https://zhuanlan.zhihu.com/p/2047627975131243737](https://zhuanlan.zhihu.com/p/2047627975131243737)
+

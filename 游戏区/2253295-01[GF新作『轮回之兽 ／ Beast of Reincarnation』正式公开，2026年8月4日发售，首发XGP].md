@@ -2268,3 +2268,27 @@ gf是不是怕褒姒才让微软买单
 其实后者模仿者都去掉了尼尔系列里横尾xp的弹幕元素对整体游戏性还是正面作用的目前演示里同时有空连和打铁 ...</blockquote>
 可以给个狗狗自动qte戒指(
 
+
+*****
+
+####  卢迪克  
+##### 218#       发表于 2026-6-9 11:01
+
+人物设计：内田パブロ
+
+<img src="https://img.stage1st.com/forum/202606/09/110128c6o849nmoldear6h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 11:01 上传
+
+<img src="https://img.stage1st.com/forum/202606/09/110149s9ot6anzofzov0vk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 11:01 上传
+
