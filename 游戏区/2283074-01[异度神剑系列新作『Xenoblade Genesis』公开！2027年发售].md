@@ -4302,3 +4302,48 @@ ace没有转xbg的推，大概率是没有了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  riin2  
+##### 454#       发表于 2026-6-10 02:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749526&amp;ptid=2283074" target="_blank">这是马甲 发表于 2026-6-10 00:52</a>
+
+而且空间站里搞那么大片的海和山地地形又是为什么</blockquote>
+克劳乌斯搞得生态屋
+
+*****
+
+####  riin2  
+##### 455#       发表于 2026-6-10 02:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749596&amp;ptid=2283074" target="_blank">可乐肉饼 发表于 2026-6-10 01:11</a>
+
+小泉在直面会说这段预告属于作品的序章
+
+既然特意展示序章那应该坐实了后续剧情会发生重大变故
+
+如果之前泄露 ...</blockquote>
+即视感：
+
+image.png
+(19.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 02:40 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/024039jt0bbv4uxzvxtp8x.png" referrerpolicy="no-referrer">
+
+*****
+
+####  VictorWJ  
+##### 456#       发表于 2026-6-10 02:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748338&amp;ptid=2283074" target="_blank">lost-star 发表于 2026-6-9 23:03</a>
+高桥应该是不咋喜欢中世纪剑与魔法的，所以都搞各种大机器人，感觉不是我高桥哥哥的作品，给新人练手的？所 ...</blockquote>
+官号说了是高桥监督
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
