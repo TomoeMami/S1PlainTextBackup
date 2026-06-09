@@ -2220,3 +2220,16 @@ gf是不是怕褒姒才让微软买单
 
 像尼尔还是像剑星不就是像妈还是像姐姐的问题，不过几次玩法展示了很多打铁的段子，尼尔没有打铁
 
+
+*****
+
+####  ALLMIND  
+##### 213#       发表于 2026-6-9 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69737979&amp;ptid=2253295" target="_blank">Piano-Forest 发表于 2026-6-8 09:21</a>
+
+主人公エマ役は石川由依
+
+出演者：佐藤みゆ希、大塚明夫、諸星すみれ、小林ゆう、石田彰、三上哲、佐藤利奈 ...</blockquote>
+盲猜一个石头BOSS役
+
