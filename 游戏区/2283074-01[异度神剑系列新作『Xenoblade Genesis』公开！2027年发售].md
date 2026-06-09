@@ -4050,3 +4050,59 @@ xb3发售前泥潭主旋律是高桥gg经费充足必不可能崩，当时我也
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  nagisa123  
+##### 429#       发表于 2026-6-10 01:19
+
+<blockquote>Kiyohara_Yasuke 发表于 2026-6-10 01:17
+音乐没有ace+和平松建治…..
+
+论坛助手,iPhone</blockquote>
+真的假的
+
+*****
+
+####  BREEEEZE  
+##### 430#       发表于 2026-6-10 01:19
+
+没有平松建治的话，我缺的jazz这块谁来补<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nagisa123  
+##### 431#       发表于 2026-6-10 01:24
+
+看了下原文只是例举了光田清田吧，不代表没有平松和ace
+
+*****
+
+####  topia  
+##### 432#       发表于 2026-6-10 01:24
+
+<img src="https://img.stage1st.com/forum/202606/10/012331yq1fgk18ifl15gqq.png" referrerpolicy="no-referrer">
+
+<strong>截屏2026-06-10 01.02.31.png</strong> (274.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 01:23 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/012338xzz39043a9wr9r44.png" referrerpolicy="no-referrer">
+
+<strong>截屏2026-06-10 01.02.47.png</strong> (145.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 01:23 上传
+
+参考一下真女神转生3的球形世界，反正感觉透视来看世界不像是个正球
+
+*****
+
+####  Arisita  
+##### 433#       发表于 2026-6-10 01:25
+
+音乐清田和光田还在吗，如果他们都不在了感觉确实得下调预期了
+

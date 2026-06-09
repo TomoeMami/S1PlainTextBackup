@@ -1747,3 +1747,14 @@ Steam、Epic Games Store　
 
 一堆吐槽画面缩水的......这是NS2版的宣传啊，亲。
 
+
+*****
+
+####  nanonya2  
+##### 153#       发表于 2026-6-10 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748566&amp;ptid=2063712" target="_blank">plusfive 发表于 2026-6-9 23:14</a>
+1-3的NS2版还是云游戏版吗？见只有下载版……</blockquote>
+不是云游戏。
+以前买过云游戏版的，可以继承存档。
+
