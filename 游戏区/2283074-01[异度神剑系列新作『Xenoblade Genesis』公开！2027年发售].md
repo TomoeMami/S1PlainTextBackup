@@ -4604,3 +4604,37 @@ Xenoblade Deuteronomy
 
 而且米山舞的人设也太土了吧 虽然斋藤三代人设也拉了 还是怀念二代斋藤没束手束脚直接放飞自我的人设
 
+
+*****
+
+####  沙发果冻  
+##### 483#       发表于 2026-6-10 07:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">说人设比3代强你们认真的么，3代的人设明明很棒，现在这人设说句不好听就是太普通了，那个女队友简直是路人npc
+
+*****
+
+####  kzf  
+##### 484#       发表于 2026-6-10 07:29
+
+直面会一开始听到名字的时候就知道了，看到祖传石头草地贴图又确认了一次，结果后面的人设变化巨大倒是令人怀疑起来了。其他的我没意见，只是从直面会画质来看感觉画面和特效有点怪怪的，谨慎看好吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25102RK69C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  冰风血羽  
+##### 485#       发表于 2026-6-10 07:34
+
+一开始听着感觉很像压的比较低的香帅，但是接剑那一句又像不用鼻音的石川，最近动画看的少了都不太敢下判断了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  沙发果冻  
+##### 486#       发表于 2026-6-10 07:35
+
+高桥为啥要找网红做游戏，真是无语，这次人设一眼短板，明显是这个网红没做过3d建模的锅
+
