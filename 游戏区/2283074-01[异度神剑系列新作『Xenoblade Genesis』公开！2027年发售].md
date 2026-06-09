@@ -4357,3 +4357,24 @@ image.png
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  septer  
+##### 458#       发表于 2026-6-10 03:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748941&amp;ptid=2283074" target="_blank">kyonkoism 发表于 2026-6-9 23:39</a>
+为什么说米山舞吹几把很简单啊，米山舞之前可是没有做过3D游戏原画师的
+
+那他怎么懂得画出容易被3D建模，建 ...</blockquote>
+不了解施工的建筑师出的玩意，不懂加工工艺的产品外观设计出的东西就是这样，人设一定要知道怎么建模的，怎么渲染的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DANAmya  
+##### 459#       发表于 2026-6-10 03:06
+
+pv真的有种风花雪月加xb的地图的感觉，希望后面能出飞行坐骑比如那个pv里的那个飞龙
+
+女主cv感觉石川由依，小松未可子的味道都有一点
+
