@@ -447,3 +447,18 @@ xhs roll一个月有agent跑一下午token多吗，而且这种数据直接按ro
 
 美国企业直接把数据发给一家中国公司的服务器，合规部门不可能没有意见。这层顾虑是真实的，也未必是DeepSeek短期能解决的。
 
+
+*****
+
+####  sellboy  
+##### 50#       发表于 2026-6-9 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69746374&amp;ptid=2283017" target="_blank">cyberalogo 发表于 2026-6-9 19:30</a>
+
+我看另一篇类似主题的报道提到了现在美国企业使用AI成本飙升带来的压力：
+
+落到具体公司，数字则更加夸张， ...</blockquote>
+毕竟是开源权重的，部署deepseek v4的云服务商有一堆，包括境外的，所以是可以不出境使用的。
+
+然而价格应该都比官方贵。
+
