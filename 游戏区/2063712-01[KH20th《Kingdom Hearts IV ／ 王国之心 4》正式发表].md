@@ -1633,3 +1633,36 @@ ND上放的肯定是NS2版画面啊，还是说觉得之前演示过的画面NS2
 
 年轻光头真跟预测的一样来帮忙了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 144#         楼主| 发表于 2026-6-9 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69410717&amp;ptid=2063712" target="_blank">Piano-Forest 发表于 2026-3-29 19:58</a>
+
+野村哲也 王国之心24周年纪念贺图「25周年に向けて頑張り中です」
+
+“正在为系列25周年努力准备中，感谢大家 ...</blockquote>
+<img src="https://p.sda1.dev/32/ba794d661720c3269b60b571aa82cb48/1000167933.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  炯Ⅺ  
+##### 145#       发表于 2026-6-9 23:34
+
+首发全平台，SE终于是开窍了。
+希望2027年下半年能玩上吧。
+
+—— 来自 OnePlus PKX110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  黑上シグマ  
+##### 146#       发表于 2026-6-9 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748566&amp;ptid=2063712" target="_blank">plusfive 发表于 2026-6-9 23:14</a>
+
+1-3的NS2版还是云游戏版吗？见只有下载版……</blockquote>
+三部放一起有实体版的
+

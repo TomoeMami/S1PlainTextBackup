@@ -600,3 +600,24 @@ pvpve嗎……小高搜打撒？<img src="https://static.stage1st.com/image/smil
 
 —— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  usodakedo  
+##### 64#       发表于 2026-6-9 23:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748731&amp;ptid=2250995" target="_blank">哎哟卧槽了 发表于 2026-6-9 23:24</a>
+
+pvpve嗎……小高搜打撒？
+
+—— 來自 Google Pixel 2, Android 11, 鵝球 v3.5.99</blockquote>
+黑环是场内组队pve，场外鉴遗物pvp，新作pvpve很合理吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  缺德猫  
+##### 65#       发表于 2026-6-9 23:34
+
+就是有更多胜利条件的、有PVP要素的黑环啊，早就说过了吧？
+

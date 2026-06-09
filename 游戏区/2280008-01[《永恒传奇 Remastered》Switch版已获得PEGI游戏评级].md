@@ -1577,3 +1577,84 @@ toe挺完善了，最需要重制的还是toa这种早期3d类型的
 之前的几个老RPG合集我都买了，格兰蒂亚、幻水、露娜，除了幻水是有点诚意以外
 剩下基本都原味，这么一看永恒倒也不奇怪了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫将军  
+##### 158#       发表于 2026-6-9 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748726&amp;ptid=2280008" target="_blank">牧月萌 发表于 2026-6-9 23:24</a>
+之前的几个老RPG合集我都买了，格兰蒂亚、幻水、露娜，除了幻水是有点诚意以外
+剩下基本都原味，这么一看永 ...</blockquote>
+格兰蒂亚1好歹是真hd，luna好歹也是hd+景深效果toe这超绝马赛克<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑卷轴陶德传  
+##### 159#       发表于 2026-6-9 23:27
+
+2D Tales肯定没得了，灵魂人物猪股睦美都去世两年了
+
+*****
+
+####  plusfive  
+##### 160#       发表于 2026-6-9 23:28
+
+在NSL里买了一堆原味移植游戏，看来要+1了，但就这也是在里面算最拉的了……
+
+
+*****
+
+####  司马千晶  
+##### 161#       发表于 2026-6-9 23:30
+
+除了有情怀的入库看着，谁会买。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不会指望各大网站评论区的人机吧？
+
+*****
+
+####  黑暗之眼  
+##### 162#       发表于 2026-6-9 23:30
+
+ 本帖最后由 黑暗之眼 于 2026-6-9 23:31 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748373&amp;ptid=2280008" target="_blank">桧山修之 发表于 2026-6-9 23:04</a>
+
+果然呢，还好没有一点的期待，不过真能直接原汁原味，也只万南能做得出来，这么看隔壁可乐妹的幻想水浒传1+ ...</blockquote>
+不用太抬举，隔壁那个也就没那么多马赛克而已
+
+*****
+
+####  伊郑z  
+##### 163#       发表于 2026-6-9 23:32
+
+万南真是一坨啊，画面还不如ps，按隔壁星海2那规格来不行啊，当初星海2那复刻可谓是惊讶了一把，传说新作不出旧作重置又不做好点，南梦宫人手到底去干嘛了，是跟着原田一起跑路了吗？
+
+*****
+
+####  alucardcz  
+##### 164#       发表于 2026-6-9 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748849&amp;ptid=2280008" target="_blank">伊郑z 发表于 2026-6-9 23:32</a>
+
+万南真是一坨啊，画面还不如ps，按隔壁星海2那规格来不行啊，当初星海2那复刻可谓是惊讶了一把，传说新作不 ...</blockquote>
+我很怕  我很怕看到 破晓hd<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qiyu1234  
+##### 165#         楼主| 发表于 2026-6-9 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748849&amp;ptid=2280008" target="_blank">伊郑z 发表于 2026-6-9 23:32</a>
+
+万南真是一坨啊，画面还不如ps，按隔壁星海2那规格来不行啊，当初星海2那复刻可谓是惊讶了一把，传说新作不 ...</blockquote>
+星海2HD卖的不好，财报也就提一嘴口碑不错，系列销量已经十来年没有官宣过了，到现在也没新消息了
+
+*****
+
+####  法拉  
+##### 166#       发表于 2026-6-9 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748880&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-9 23:34</a>
+
+我很怕  我很怕看到 破晓hd</blockquote>
+已经有了，所谓的黎明新程版不就是么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

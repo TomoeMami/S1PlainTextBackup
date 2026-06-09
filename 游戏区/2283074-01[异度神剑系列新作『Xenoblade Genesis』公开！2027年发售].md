@@ -1888,3 +1888,384 @@ XB创世目前最大的问题不是平庸么，所有角色都像是女主的附
 
 —— 来自 realme RMX3708, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Nez  
+##### 214#       发表于 2026-6-9 23:26
+
+对主角人设没啥看法，但是感觉新福瑞不如诺朋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JOJOROY  
+##### 215#       发表于 2026-6-9 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748738&amp;ptid=2283074" target="_blank">laputah 发表于 2026-6-9 23:25</a>
+
+我觉得是直播画质太低了，看视频还不错</blockquote>
+确实，不过我不是很喜欢远景的Arise那种水彩画风格
+
+*****
+
+####  bonnwang  
+##### 216#       发表于 2026-6-9 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748556&amp;ptid=2283074" target="_blank">无色辉火 发表于 2026-6-9 23:14</a>
+推特发的</blockquote>
+阿尼玛是在致敬xg么
+
+*****
+
+####  椎名mahuyo  
+##### 217#       发表于 2026-6-9 23:26
+
+另外我看着画面大部分时候都很好看，但是进入大地图的时候草都是糊的确实绷不住并确认是MONO的
+
+*****
+
+####  woaimiyabi  
+##### 218#       发表于 2026-6-9 23:27
+
+<img src="https://img.stage1st.com/forum/202606/09/232705yps9eezphyhapfao.png" referrerpolicy="no-referrer">
+
+<strong>8080626EA786B17754F60175E3BAC5DD.png</strong> (68.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 23:27 上传
+
+这个角色好漂亮
+
+*****
+
+####  yuwe0714  
+##### 219#       发表于 2026-6-9 23:27
+
+ 本帖最后由 yuwe0714 于 2026-6-9 23:28 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748578&amp;ptid=2283074" target="_blank">check 发表于 2026-6-9 23:15</a>
+
+至少主角团人设比xb3的好看</blockquote>
+但是xb3应该是大量的精力用在mio的建模里了，尤其是眼睛的表现。说实话剧情过场里镜头经常近距离怼着mio的脸，但是基本没崩，而且除了偶尔没处理好的光照阴阳脸，完全可以说是顶级颜值<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月孝三  
+##### 220#       发表于 2026-6-9 23:28
+
+港真，校长配音高度疑似飞田展男，到时候开个Z高达出来我都不意外<img src="https://static.stage1st.com/image/smiley/bundam2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hhgjf  
+##### 221#       发表于 2026-6-9 23:28
+
+还凑合吧。虽然不是XBX2，但总算彻底结束数字系列了，总比是4好。英语标题在XB之后是genesis不是chronicles了，总算有个新的开始。
+
+人设嘛，我是无所谓的。但硬要说的话，大致跟3差不多吧，怎么都比2好。对于觉得X &gt;&gt; 1 &gt; 3 &gt;&gt;&gt; 2的咱来说，可以接受。唯一大问题就是楼里也有不少人觉得的，太三房味了。<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑酒杯  
+##### 222#       发表于 2026-6-9 23:28
+
+没人觉得女主走路那段很别扭吗？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海晟天锻  
+##### 223#       发表于 2026-6-9 23:28
+
+ 本帖最后由 海晟天锻 于 2026-6-9 23:29 编辑 
+
+那个b大地图出来就知道是mono作品了，就是不确定是小红帽还是xb而已<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  守名居  
+##### 224#       发表于 2026-6-9 23:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怪了，看完有动力买NS2了
+
+*****
+
+####  爱护动物抓根宝  
+##### 225#       发表于 2026-6-9 23:28
+
+米山舞真不如saitom吧，连带那个米山舞lite Mika做人设感觉都依托
+
+*****
+
+####  whzfjd  
+##### 226#       发表于 2026-6-9 23:28
+
+货比货得扔，法老控、GUST、阿特拉斯、海王星、火纹紫红、MONO 这几个摆一排，明眼人都能看出来 XBG 是最经得起端祥的，不过色图诱导力不行，但反正都是被 GF 色图量秒的宿命。
+
+*****
+
+####  Bruce33  
+##### 227#       发表于 2026-6-9 23:28
+
+拉在哪，这女主还是剑客一眼喜欢<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">急急急
+
+*****
+
+####  monolithsoft  
+##### 228#       发表于 2026-6-9 23:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748738&amp;ptid=2283074" target="_blank">laputah 发表于 2026-6-9 23:25</a>
+
+我觉得是直播画质太低了，看视频还不错</blockquote>
+第一张图环形结构的描边观感灾难级
+
+*****
+
+####  wakatoro  
+##### 229#       发表于 2026-6-9 23:28
+
+jrpg第一主角是(男)的人设可以普，但第一主角是(女)一定不能普
+
+魔法+学院第一个想到的还是ff8
+
+*****
+
+####  woaimiyabi  
+##### 230#       发表于 2026-6-9 23:28
+
+<img src="https://img.stage1st.com/forum/202606/09/232821h20tcu3s07oc0r32.png" referrerpolicy="no-referrer">
+
+<strong>6A12681534474589B18CC12A24950299.png</strong> (23.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 23:28 上传
+
+男主也还行 黑皮不丑 比前三作的男主说实话初登场 是最成熟的一个了。
+
+*****
+
+####  lost-star  
+##### 231#       发表于 2026-6-9 23:29
+
+但是诺鹏都不给一个？为啥要换新的吉祥物？诺鹏应该可以贴一切世界观啊？
+
+*****
+
+####  zergcs  
+##### 232#       发表于 2026-6-9 23:29
+
+XB1现在可以买50港币的升级包了， 23也是50而且都各有一个新异刃/英雄
+
+*****
+
+####  羊寢  
+##### 233#       发表于 2026-6-9 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748627&amp;ptid=2283074" target="_blank">noHentai 发表于 2026-6-9 23:18</a>
+那我还是觉得saitom秒了，主要米山舞画风3D化想好看难度不小。</blockquote>
+米山舞的画风做成动态的想要保持她原本那种味道就得做得非常繁复，不然就没那味道，她自己画展就有把很多平面的作品通过立体方式呈现出来，所以她的东西想要变成3d立体不是不行，只不过动起来肯定就很难维持她画风那种精致感
+
+
+*****
+
+####  king520kyo  
+##### 234#       发表于 2026-6-9 23:30
+
+这次这个阿尼玛会不会就是XG的阿尼玛之器啊，那个水晶球本质就是生物电脑<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">也是核心水晶的一种。
+
+*****
+
+####  風卷豹  
+##### 235#       发表于 2026-6-9 23:31
+
+后面肯定是高科技超展开的路数，先猜一个因为某种原因转移到其他星球蹦出来诺彭吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  HighTouch  
+##### 236#       发表于 2026-6-9 23:31
+
+女主我觉得很好，男主也不讨厌
+
+*****
+
+####  Link213  
+##### 237#       发表于 2026-6-9 23:31
+
+所以之前泄露的XB新作的男女主人设图是真的？
+
+*****
+
+####  whzfjd  
+##### 238#       发表于 2026-6-9 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748790&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-6-9 23:28</a>
+
+男主也还行 黑皮不丑 比前三作的男主说实话初登场 是最成熟的一个了。</blockquote>
+上次说诺亚是最成熟的那个（
+
+*****
+
+####  zoe2  
+##### 239#       发表于 2026-6-9 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69747588&amp;ptid=2283074" target="_blank">nanamishark 发表于 2026-6-9 22:33</a>
+
+怎么和之前泄露的一样</blockquote>
+原画不错，建模不行
+
+*****
+
+####  k.k  
+##### 240#       发表于 2026-6-9 23:31
+
+各位还记得xb2第一个pv出来泥潭是怎么喷的吗？还有一年时间展现角色和世界观呢，急什么，不要贷款赤石.
+
+
+*****
+
+####  Kuebiko  
+##### 241#       发表于 2026-6-9 23:31
+
+除了三房感感觉怪怪的 其他都还行 要2027呢 还早
+
+*****
+
+####  whzfjd  
+##### 242#       发表于 2026-6-9 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748787&amp;ptid=2283074" target="_blank">wakatoro 发表于 2026-6-9 23:28</a>
+
+jrpg第一主角是(男)的人设可以普，但第一主角是(女)一定不能普
+
+魔法+学院第一个想到的还是ff8 ...</blockquote>
+左右看看吧，这年头单机rpg哪个不是常识人的味，也就CV2大胆点，可惜大胆过头了
+
+*****
+
+####  嘉术2015  
+##### 243#       发表于 2026-6-9 23:33
+
+如果光比几个主要角色的话
+
+我觉得saitom和米山舞五五开吧
+
+xb3是mio的人设太加分了，如果去掉mio，好兄弟的人设挺普通的
+
+*****
+
+####  没取名啊  
+##### 244#       发表于 2026-6-9 23:34
+
+白毛女面相不太行，尖嘴猴腮看着像那种性格刻薄的人
+其他人都不讨厌
+
+*****
+
+####  faithlifer  
+##### 245#       发表于 2026-6-9 23:34
+
+算了，骂归骂，xb新作出来了也有买ns2的理由了，刚才搜了下pdd是单机3100左右，请问这价格怎么样<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海晟天锻  
+##### 246#       发表于 2026-6-9 23:34
+
+ 本帖最后由 海晟天锻 于 2026-6-9 23:35 编辑 
+
+mio的人设不也是真玩到游戏才反转的吗，刚出来的时候说普的也不少<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Asukalangley33  
+##### 247#       发表于 2026-6-9 23:34
+
+开场的弓箭手妹妹，PV最后变成拿法杖的奶妈了
+
+这个大概就是这作的核心系统？
+
+6个主角，6个太阳
+
+打败章节反派以后就会拿到碎片，之后就觉醒新职业这种
+
+然后男女主本身就自带
+
+来个主题曲之后变身啥的
+
+*****
+
+####  ArthurDent  
+##### 248#       发表于 2026-6-9 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748874&amp;ptid=2283074" target="_blank">faithlifer 发表于 2026-6-9 23:34</a>
+算了，骂归骂，xb新作出来了也有买ns2的理由了，刚才搜了下pdd是单机3100左右，请问这价格怎么样 ...</blockquote>
+昨天没会员我能刷到2999
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Link213  
+##### 249#       发表于 2026-6-9 23:34
+
+之前高桥发文为新RPG招聘新员工的公告是哪一年？今晚XB新作根据没三四年出不来吧？会不会是另一款游戏？
+
+*****
+
+####  suzakushi  
+##### 250#       发表于 2026-6-9 23:34
+
+感觉画面很难看，颜色很诡异，角色动作也有点僵硬，虽然我不喜欢XB系列，但2和3的画面起码看着是舒服的。
+
+*****
+
+####  月光的道标  
+##### 251#       发表于 2026-6-9 23:34
+
+好，就喜欢女主JRPG，希望多来点。
+
+人设也挺好的，虽然角色第一眼想到了火纹，不过一看地图背景就知道是XB。
+
+还是挺期待的~
+
+*****
+
+####  caicaistar  
+##### 252#       发表于 2026-6-9 23:35
+
+世界观还是有意思，球里面的世界吗
+
+*****
+
+####  28201  
+##### 253#       发表于 2026-6-9 23:35
+
+插画能力和设计能力真是两回事，不过现在嘛就得看流量，谁红谁上。而且米山人设至少表世界没什么人敢直球炎上吧
+
+*****
+
+####  はちたや  
+##### 254#       发表于 2026-6-9 23:35
+
+这作会是动作游戏吗
+
+*****
+
+####  hiro123  
+##### 255#       发表于 2026-6-9 23:35
+
+为什么都找米山舞？
+
+*****
+
+####  可爱的撒四大  
+##### 256#       发表于 2026-6-9 23:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">其实还是有很多前代的元素的，角甲兽，2代的篝火，3代开场战斗，最后的大平原，还有疑似衔尾蛇的特效（x
+感觉可以期待一手藏了
+

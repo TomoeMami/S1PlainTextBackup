@@ -301,3 +301,20 @@ XBG的人设给FEFW然后自己神隐是不是完美<img src="https://static.sta
 
 绿毛出来的时候以为对话头像是和engage一样的3d建模，结果就开始动了一下，后面又变成纯立绘了。为什么不直接直接做成live2d呢
 
+
+*****
+
+####  巨馍蘸酱  
+##### 723#       发表于 2026-6-9 23:29
+
+高清封面，可以看到白毛主角拿的是遗产武器
+
+d44cbb119313b07e240a9e084ad7912396dd8cbe.jpg
+(169.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 23:29 上传
+
+<img src="https://img.stage1st.com/forum/202606/09/232948os1piqj46441m6q1.jpg" referrerpolicy="no-referrer">
+
