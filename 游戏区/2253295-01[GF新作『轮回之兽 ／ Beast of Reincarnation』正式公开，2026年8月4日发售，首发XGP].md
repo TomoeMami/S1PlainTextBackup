@@ -2329,3 +2329,28 @@ gf是不是怕褒姒才让微软买单
 
 【【IGN】《轮回之兽》玩法概览预告】 [https://www.bilibili.com/video/BV1VczNBvEDD/](https://www.bilibili.com/video/BV1VczNBvEDD/)
 
+
+*****
+
+####  Piano-Forest  
+##### 222#         楼主| 发表于 2026-6-9 12:30
+
+・エマ(CV:石川由依)
+
+・クゥ
+
+・ヴァイオレット(CV:佐藤みゆ希)
+
+・ブラッド(CV:大塚明夫)
+
+・カグラ(CV:諸星すみれ)
+
+・クナイ(CV:小林ゆう)
+
+<img src="https://p.sda1.dev/32/e1a3a8cc57c27ed805fcbd69319b84bd/0064O7Xmly1idyxvauzm5j31xk3b5b2c.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/904a6a2d3e423d165601b51281920d72/0064O7Xmly1idyxvbj7m7j30mw0fz7ap.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/a18c85a7a49c9f9f77d8262235ac3c3f/0064O7Xmly1idyxvdqk49j32693ckqv8.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/53549b78df121028d73d661e479c18ed/0064O7Xmly1idyxvgf7vfj32553hi1l0.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/26377bb2bc95e97ab3d7284c1f3ed37d/0064O7Xmly1idyxvi5shgj31b83hi1ky.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/6fb5a4905734394c9e06a8e8a259b630/0064O7Xmly1idyxvkc4lyj31pn3edkjn.jpg" referrerpolicy="no-referrer">
+
