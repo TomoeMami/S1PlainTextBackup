@@ -544,3 +544,15 @@ lovepenny 发表于 2026-6-9 09:10@cs0111护甲刷不出的话，次优先点哪
 
 除了特定几个角色我从来都是攻速,伤害尽量拉满,最多加加血量,死了就死了玩得不爽有什么好玩
 
+
+*****
+
+####  风流庵TypeC  
+##### 415#       发表于 2026-6-9 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69744662&amp;ptid=2202324" target="_blank">双面人 发表于 2026-6-9 13:53</a>
+难六我觉得重要的还是输出清的了怪才有安全区域能躲</blockquote>
+怪是清了，但喷出的子弹还在啊，再加上环境弹幕
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

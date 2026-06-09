@@ -2237,3 +2237,14 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 —— 来自 鹅球 v3.3. ...</blockquote>
 零式只随机后三，而且后三词条随机，出货率很差。除了刚开始啥都缺的时候无脑补三张，不然一律建议出击里换
 
+
+*****
+
+####  sxsdark  
+##### 948#       发表于 2026-6-9 15:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69744478&amp;ptid=2256125" target="_blank">Booorunestud 发表于 2026-6-9 13:06</a>
+
+圣遗物别去零式里拿，刷出击用碎片合。</blockquote>
+后期也要出击里合不能模拟刷么？出击好肝呀
+
