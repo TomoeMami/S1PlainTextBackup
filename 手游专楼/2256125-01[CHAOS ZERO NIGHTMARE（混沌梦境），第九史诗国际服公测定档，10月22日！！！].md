@@ -2087,3 +2087,33 @@ B站上，看到一个做攻略的，进度已经爬塔100层了……<img src="
 
 到时候市长能无脑带两个弱鸡么？
 
+
+*****
+
+####  Booorunestud  
+##### 935#       发表于 2026-6-9 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69742806&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-6-9 09:00</a>
+
+存档刷不动了呀，好枯燥，每次打完还要选本，不能无脑刷
+
+灭团了还把我的10难度的存档消了，又要重新合成打 ...</blockquote>
+用蓝石合成，多刷几把10难度的神图（有xxxx的凝视之类一大串紫底buff不能带出存档的）
+
+这玩意给的蓝石多，打几局就自由了，而且针对下buff比一般图好打
+
+枯燥没办法 就是枯燥 至少二保一吧
+
+
+*****
+
+####  qixinno1  
+##### 936#       发表于 2026-6-9 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69742945&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-6-9 09:20</a>
+
+九带两个弱鸡还是带不动，一直脸黑闪不到装甲就凉了
+
+到时候市长能无脑带两个弱鸡么？ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你要是在怕打不过就带个吉他之类的有一点回血能力的 反正我无脑高速目前没翻过车
+
