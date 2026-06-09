@@ -4538,3 +4538,27 @@ xb新作pv越看越觉得人设好看
 女主不是挺好吗，多久没玩女主游戏了
 去年才玩过空轨1st
 
+
+*****
+
+####  xwr  
+##### 477#       发表于 2026-6-10 06:47
+
+后面的续作会叫这些嘛？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+Xenoblade Exodus
+
+Xenoblade Leviticus
+
+Xenoblade Numbers
+
+Xenoblade Deuteronomy
+
+
+*****
+
+####  asikies  
+##### 478#       发表于 2026-6-10 06:50
+
+终于女性主人公了？早就说了bg没未来，日厂终于肯低头了？腐朽的老人终于被按住了？
+
