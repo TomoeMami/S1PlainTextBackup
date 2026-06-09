@@ -4227,3 +4227,23 @@ ace没有转xbg的推，大概率是没有了
 
 人设是米山舞和PALOW两个
 
+
+*****
+
+####  黒鈴ミヲ  
+##### 446#       发表于 2026-6-10 01:51
+
+看b站a**论区有人发截图说女主的剑是小绿的剑，对比了下看还真是，不知道算是彩蛋还是剧情会有联系，忽然就有xb续作的实感了
+
+*****
+
+####  根正苗红  
+##### 447#       发表于 2026-6-10 01:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749404&amp;ptid=2283074" target="_blank">阿卵真是牛逼 发表于 2026-6-10 00:28</a>
+
+女主角听不出是谁但应该不是🐑，男主角听着像松岗</blockquote>
+你坛羊到魔障了嘛？这都能拐到羊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+应该是强者之音石川由依。女主战斗力有保障了<img src="https://static.stage1st.com/image/smiley/carton2017/302.png" referrerpolicy="no-referrer">
+
