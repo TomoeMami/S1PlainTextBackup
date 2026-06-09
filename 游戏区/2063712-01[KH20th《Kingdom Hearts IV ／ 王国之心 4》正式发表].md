@@ -1482,3 +1482,136 @@ PS：
 这是 duskblood 的 pv 啊</blockquote>
 抱歉，已编辑（可能是YouTube地址一次性复制的有些多乱了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  戏言学者  
+##### 129#       发表于 2026-6-9 23:06
+
+这几个模型惊呆了我了？！怎么会这么油腻？！
+
+*****
+
+####  すぴぱら  
+##### 130#       发表于 2026-6-9 23:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是 这画面和当初的pv差的有点多啊
+
+*****
+
+####  Piano-Forest  
+##### 131#         楼主| 发表于 2026-6-9 23:06
+
+ 本帖最后由 Piano-Forest 于 2026-6-9 23:10 编辑 
+
+先导PV：[https://youtu.be/_vlKStRH3Oo](https://youtu.be/_vlKStRH3Oo)
+
+「キングダム ハーツ」シリーズ最新作『キングダム ハーツIV』の最新トレーラーを公開！
+
+対応機種も同時に発表！
+
+Nintendo Switch™ 2 / PlayStation®5 / Xbox Series X|S / Microsoft Store on Windows / Steam / Epic Games Store　
+
+《ストーリー》
+
+主人公ソラは見知らぬ世界で目を覚ます。
+
+“クァッドラトゥム”という、現代の東京に似たこの世界からソラは元の世界へと戻ろうとするが─
+
+一方、ドナルドとグーフィーはソラの手掛かりを求め冥界に訪れるのだった。
+
+《ダイナミックなアクションバトル》
+
+簡単な操作で多彩なアクションを繰り出し、スピード感あふれるダイナミックなバトルが展開。
+
+状況に応じて魔法を駆使したり、本作で新たに加わった「ビルド」によって、戦い方の幅がさらに広がります。
+
+《「キーブレード」による固有のアクション》
+
+主人公ソラが持つ鍵型の武器「キーブレード」は、種類ごとに異なるアクションを持ち、戦略に応じて戦い方が変化します。
+
+■■「キングダム ハーツ」シリーズとは■■
+
+「キングダム ハーツ」シリーズは、ディズニーとスクウェア・エニックスから生まれたロールプレイングゲームです。2002年3月に第1作目「キングダム ハーツ」（対応機種：プレイステーション2）を発売して以来、これまでに13作品（ファイナルミックス版も含めると20作品）を発表し、全世界で累計3,900万本以上（※1）を出荷・販売する人気シリーズとなっています。 　※1：2026年3月末時点
+
+*****
+
+####  戏言学者  
+##### 132#       发表于 2026-6-9 23:06
+
+<img src="https://img.stage1st.com/forum/202606/09/230656ixonznnceov5ixqz.png" referrerpolicy="no-referrer">
+
+<strong>f7e9db8b7f5bcb1a9eff3d3886fb8e68.png</strong> (123.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-9 23:06 上传
+
+*****
+
+####  北野苍术  
+##### 133#       发表于 2026-6-9 23:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">大家都变得好写实啊好不习惯……
+
+*****
+
+####  iou90  
+##### 134#       发表于 2026-6-9 23:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65160954&amp;ptid=2063712" target="_blank">Piano-Forest 发表于 2024-6-8 23:51</a>
+2026年</blockquote>
+目前看不可能了 2027都悬 今天来个日子都不给 
+
+或许是要在 ff7rev 之后再给日子？最快2027秋感觉...
+
+*****
+
+####  虚无连斩  
+##### 135#       发表于 2026-6-9 23:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来来来，大家猜猜野村会不会继续塞V13私货
+
+*****
+
+####  跑调跑掉  
+##### 136#       发表于 2026-6-9 23:11
+
+应该是ns2版的画面吧，乐观估计有机会明年下半年出
+
+
+*****
+
+####  Aeroblast  
+##### 137#       发表于 2026-6-9 23:12
+
+看样子首发全平台，SE想开了啊
+
+*****
+
+####  TheOccuria  
+##### 138#       发表于 2026-6-9 23:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">依旧没发售日这一块
+
+*****
+
+####  suzakushi  
+##### 139#       发表于 2026-6-9 23:13
+
+ND上放的肯定是NS2版画面啊，还是说觉得之前演示过的画面NS2跑得动？
+
+*****
+
+####  plusfive  
+##### 140#       发表于 2026-6-9 23:14
+
+1-3的NS2版还是云游戏版吗？见只有下载版……
+
+*****
+
+####  zqqwe  
+##### 141#       发表于 2026-6-9 23:15
+
+一点迪士尼世界要素都没放还行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

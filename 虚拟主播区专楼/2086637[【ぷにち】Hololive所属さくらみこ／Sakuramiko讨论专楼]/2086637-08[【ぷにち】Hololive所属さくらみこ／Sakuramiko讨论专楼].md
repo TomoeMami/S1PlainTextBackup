@@ -31,3 +31,20 @@ miko：到底是在地上还是海上？
 
 妈的没救了
 
+
+*****
+
+####  holofan  
+##### 11613#       发表于 2026-6-9 22:00
+
+每次都在想
+
+看什么看啊反正也不播不玩
+
+*****
+
+####  holofan  
+##### 11614#       发表于 2026-6-9 23:14
+
+说到生化突然想起来说好的和sarome联机玩6，结果可能等不到那天了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
