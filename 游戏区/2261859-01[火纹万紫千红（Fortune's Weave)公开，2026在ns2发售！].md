@@ -318,3 +318,65 @@ d44cbb119313b07e240a9e084ad7912396dd8cbe.jpg
 
 <img src="https://img.stage1st.com/forum/202606/09/232948os1piqj46441m6q1.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wilkyway  
+##### 724#       发表于 2026-6-9 23:38
+
+上次那个黑毛眼镜娘没出来啊 不能是变成白色这个了吧
+
+
+*****
+
+####  ParukiaMKII  
+##### 725#       发表于 2026-6-9 23:41
+
+主角不是丁真太好了，看着是4个阵营选1个，左上走起<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别给我来个红秋裤那种就行
+
+*****
+
+####  Rainwedell  
+##### 726#       发表于 2026-6-9 23:42
+
+4 个里面 3 黑皮确实是最难绷的，这次人设谁来着
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  巴尔干炮  
+##### 727#       发表于 2026-6-9 23:42
+
+前作269年后。
+
+*****
+
+####  嘉术2015  
+##### 728#       发表于 2026-6-9 23:44
+
+人设依然是仓花千夏
+
+你怎么越做越回去了？
+
+*****
+
+####  wakatoro  
+##### 729#       发表于 2026-6-9 23:45
+
+看着像是把engage的战斗动画全丢了，is你小子好的不学，学宝可梦？
+
+*****
+
+####  28201  
+##### 730#       发表于 2026-6-9 23:45
+
+我喜欢封面这白毛妹啊，怎么是主角<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  姐霓姐霓  
+##### 731#       发表于 2026-6-9 23:45
+
+你任最近两年含泥量越来越高，难绷<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

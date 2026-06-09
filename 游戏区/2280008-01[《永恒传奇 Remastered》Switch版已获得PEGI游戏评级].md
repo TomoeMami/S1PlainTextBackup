@@ -1658,3 +1658,35 @@ toe挺完善了，最需要重制的还是toa这种早期3d类型的
 我很怕  我很怕看到 破晓hd</blockquote>
 已经有了，所谓的黎明新程版不就是么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qiyu1234  
+##### 167#         楼主| 发表于 2026-6-9 23:38
+
+讲白了 旧作复刻就是填新作档期的
+
+这系列欠太多东西要补了，到现在一个活跃的JRPG老牌系列还有超过一半以上的作品没上过现代平台的就Tales了
+
+真想有所关注的，就等它未来某天公布的新作就够了，老游戏纯粹情怀支持
+
+
+*****
+
+####  alucardcz  
+##### 168#       发表于 2026-6-9 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748898&amp;ptid=2280008" target="_blank">法拉 发表于 2026-6-9 23:36</a>
+
+已经有了，所谓的黎明新程版不就是么</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来我dlc还没打 也许该复习了
+
+*****
+
+####  桧山修之  
+##### 169#       发表于 2026-6-9 23:42
+
+<blockquote>黑暗之眼 发表于 2026-6-9 23:30
+不用太抬举，隔壁那个也就没那么多马赛克而已</blockquote>
+toe复刻有幻水1+2的诚意，我就吹爆了，toe在系列口碑算相当好的都是这种待遇，那传闻的toa复刻估计也是ps2版原汁原味了
+

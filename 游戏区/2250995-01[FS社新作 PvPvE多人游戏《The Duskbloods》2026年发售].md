@@ -621,3 +621,18 @@ pvpve嗎……小高搜打撒？
 
 就是有更多胜利条件的、有PVP要素的黑环啊，早就说过了吧？
 
+
+*****
+
+####  28201  
+##### 66#       发表于 2026-6-9 23:37
+
+竟然是多人联机吗<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  2014720  
+##### 67#       发表于 2026-6-9 23:39
+
+也就ns上玩玩了，真上了pc我不敢想那体验有多酸爽<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
