@@ -7180,3 +7180,19 @@ https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findp ...</blockquote>
 
 真女神3从医院出来有一段完整的cg表现东京受胎的球形世界的，所以那个透视还是比较可信的
 
+
+*****
+
+####  Link213  
+##### 722#       发表于 2026-6-10 13:19
+
+这代画风渲染怎么怪怪的
+
+<img src="https://img.stage1st.com/forum/202606/10/131909aryrgnr3tgclpz7r.png" referrerpolicy="no-referrer">
+
+<strong>xb.png</strong> (328.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 13:19 上传
+
