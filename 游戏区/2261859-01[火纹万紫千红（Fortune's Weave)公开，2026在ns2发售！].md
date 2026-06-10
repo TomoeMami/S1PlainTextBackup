@@ -1479,3 +1479,26 @@ is掉钱眼里了，风花雪月模式能最大程度复用素材，制造话题
 
 已经完全变大妈了，还我永远娘小萝莉<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  没取名啊  
+##### 840#       发表于 2026-6-10 13:34
+
+黑泽朋世演技太好了，就pv里那两句词都配得很有感觉，看好实际玩到时就不觉得丑了
+
+
+*****
+
+####  The_Fool_  
+##### 841#       发表于 2026-6-10 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69752940&amp;ptid=2261859" target="_blank">缪斯替 发表于 2026-6-10 12:48</a>
+
+好的一点是去掉了学院环节，服装更自由了
+
+审美上对三房比较不满的一点就是学院阶段都一套制服，辨识度太低
+
+ ...</blockquote>
+换装这事在风花雪月后期更新里已经实现了，虽说部分骑乘兵种还是只能穿通用服装，但步兵都是可以换私服，比如贝老师转暗杀者后就可以继续穿佣兵服，我搞不懂的是engage怎么倒退回去不能换了
+

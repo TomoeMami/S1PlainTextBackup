@@ -7233,3 +7233,35 @@ https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findp ...</blockquote>
 
 远处的岩石啥的黑边真的太明显啦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UIonTV  
+##### 728#       发表于 2026-6-10 13:38
+
+昨晚一直奇怪为什么角色跑步腿都过弯曲，今天想明白了，因为地面是个球，有一定弧度（游戏地图比现实尺度小很多很多），所以游戏基于路径的自动动作系统会导致膝盖过弯曲。
+
+monolith做出这种尝试蛮有意思的，期待上手体验。
+
+*****
+
+####  caicaistar  
+##### 729#       发表于 2026-6-10 13:40
+
+地球不宜居，移民计划，几波人，
+
+这个世界是其中一波，宇宙中造了球星殖民地
+
+过了很久
+
+开发出了运用阿尼玛的技术，历史断档，以为是魔法世界观，人们以为殖民地是原星球
+
+其他几波人点了其他科技树，发现门
+
+门要阿尼玛技术才能用，打过来，在天（地）上开了一个洞
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">想想就带感呢
+
+XB系列对我最大的乐趣不是啥人设，而是遐想连篇的可能
+
+不过这次音乐阵容微微不满
+
