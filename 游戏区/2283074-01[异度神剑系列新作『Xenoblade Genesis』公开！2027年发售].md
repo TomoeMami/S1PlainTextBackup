@@ -8435,3 +8435,11 @@ palow的话，越像人越难看，越不像人越好看<img src="https://static
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老实说这东西在PC上也没什么技术壁垒吧  完全是掌机拖累
 
+
+*****
+
+####  BREEEEZE  
+##### 839#       发表于 2026-6-10 22:18
+
+重看了遍结尾感觉这个地图不是球体也不是圆柱体，是花苞状，类似红酒杯🍷，太阳不像是在中央
+
