@@ -1820,3 +1820,25 @@ Steam、Epic Games Store　
 Play through the full KINGDOM HEARTS series in one comprehensive package before the release of KINGDOM HEARTS IV in 2027. 
 [https://www.khinsider.com/news/R ... S-IV-for-2027-19519](https://www.khinsider.com/news/RUMOR-Australian-Retailers-list-KINGDOM-HEARTS-IV-for-2027-19519)
 
+
+*****
+
+####  Piano-Forest  
+##### 160#         楼主| 发表于 2026-6-10 12:25
+
+<img src="https://p.sda1.dev/32/f11d1692376f10619b1b6fc3d2305946/Kingdom-Hearts-IV_2026_06-09-26_001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/cf70e8e2fbe54c592cfe15fb696dfdfc/Kingdom-Hearts-IV_2026_06-09-26_002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/947af9c179e28bd792b2de7d5a21d032/Kingdom-Hearts-IV_2026_06-09-26_003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/2a273cad90cb40aa3424cc285a9dbd52/Kingdom-Hearts-IV_2026_06-09-26_004.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/eb7e6df36f7fc2d757dfc5f10082c431/Kingdom-Hearts-IV_2026_06-09-26_005.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/6be4cc15451af6ee7ac4529254fe5537/Kingdom-Hearts-IV_2026_06-09-26_006.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/4af9c09fa615f505f85922b8f94c6e5c/Kingdom-Hearts-IV_2026_06-09-26_007.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 161#         楼主| 发表于 2026-6-10 12:26
+
+<img src="https://p.sda1.dev/32/b779aaac798018fe7c0dca490df62804/1000168038.jpg" referrerpolicy="no-referrer">
+
