@@ -806,3 +806,19 @@ yysy这真不是什么正经火纹吧 你说这是风味暗喻幻想我都信<im
 
 白色主角总觉得怪怪的。配角倒还行。
 
+
+*****
+
+####  一步成诗  
+##### 780#       发表于 2026-6-10 08:19
+
+这一眼各方面原汁原味继承三房，那个无聊的战斗系统也是，这么无聊的系统又再一次按头打四周目我真不想奉陪<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 781#       发表于 2026-6-10 08:25
+
+这四个角色我一个都不想选<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

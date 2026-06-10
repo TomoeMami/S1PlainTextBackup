@@ -4835,3 +4835,70 @@ Xenoblade Exodus</blockquote>
 
 这次发布会，火纹有身材，但是肤色比较深，XB没身材，但是肤色比较浅，如果能折中一下就好了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maomaoying  
+##### 508#       发表于 2026-6-10 08:18
+
+<blockquote>asikies 发表于 2026-6-10 08:14
+很可能是为了把bg党骗进来杀，奴隶还想娶贵族？癞蛤蟆吃天鹅肉这合理吗？明显是要跟金长弯贵族少女组cp。 ...</blockquote>
+但我这个主题是经久不衰，国内外通用的
+
+*****
+
+####  星花  
+##### 509#       发表于 2026-6-10 08:20
+
+没身材，肤色较深。
+
+
+*****
+
+####  88is88  
+##### 510#       发表于 2026-6-10 08:25
+
+我觉得三代人设是最好的，评价不行是剧情拉了
+
+*****
+
+####  woaimiyabi  
+##### 511#       发表于 2026-6-10 08:25
+
+外面有人分析了，这次地图规模也很大应该跟xbx差不多 红圈那里竟然是个城市，就是糊不仔细看看不出来，还有女主的剑跟 小绿的剑一样 也是个细节。
+
+<img src="https://img.stage1st.com/forum/202606/10/082416yd5jvpvcgjejd70x.png" referrerpolicy="no-referrer">
+
+<strong>2E34AAE3FD0162A190EF0E884F2B2BC6.png</strong> (170.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 08:24 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/082440qq7brzi2mcexxqrt.png" referrerpolicy="no-referrer">
+
+<strong>5a542956-6f17-477d-8d4b-b32079410042.png</strong> (38.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 08:24 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/082504irnna9nnxlxl3rda.png" referrerpolicy="no-referrer">
+
+<strong>354936f9-e13c-4263-83d3-4d2a56e00794.png</strong> (47.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 08:25 上传
+
+*****
+
+####  沙发果冻  
+##### 512#       发表于 2026-6-10 08:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69750262&amp;ptid=2283074" target="_blank">nozomitech 发表于 2026-6-10 08:09</a>
+这作人设和P6一样虽然和前作比是在开倒车但勉强还能接受，火纹和DQ新作的人设真的是难绷到买的欲望都没有 ...</blockquote>
+火纹的人设大概是沿用风花雪月世界观的缘故，可能是前传之类，所以才一堆黑皮
+DQ我猜是为了之前暗黑成人风格才搞成这样，后面虽然重做但鸟山明又不能复活重画
+相比之下xb这找个网红做人设，纯粹自己作的
+
