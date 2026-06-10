@@ -5476,3 +5476,69 @@ B站有异学家开始逐帧分析视频了吗？</blockquote>
 
 为什么人物一上特效画面这么脏乱差，跟xb3的片差太多了
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 574#       发表于 2026-6-10 09:44
+
+又看了几遍pv，还是很难把学院生活跟pv开始的小兵打仗联系起来<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">而且官推至今没有发官网和角色介绍，当时xb3出的时候官网和角色介绍都是同步出的，怀疑学院生活只占极小部分，后面一定有重大转折
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  xwr  
+##### 575#       发表于 2026-6-10 09:45
+
+ 本帖最后由 xwr 于 2026-6-10 09:49 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69750967&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-6-10 09:34</a>
+
+微博好像有分析地图的 有一种白色的塔遍布在 pv很多地图场景中，开头的城镇边上也有这个白色的高塔。 ...</blockquote>
+B站好像还没有，youtube上的Enel连线了Luxin，值得注意的就是PV里从天而降的角色的棍子上有类似衔尾蛇的那个无限标志。另外就是男主有个变身，放慢之后可以看出是伸出的手变成爪子。
+
+*****
+
+####  kyolanaya  
+##### 576#       发表于 2026-6-10 09:46
+
+太npc了，感觉变装都拯救不了
+
+*****
+
+####  woaimiyabi  
+##### 577#       发表于 2026-6-10 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751081&amp;ptid=2283074" target="_blank">xwr 发表于 2026-6-10 09:45</a>
+
+B站好像还没有，youtube上的Enel连线了Luxin，值得注意的就是PV里从天而降的角色的棍子上有衔尾蛇的那个无 ...</blockquote>
+男主应该就是泄露图中的 黑豹了，变身也有点像猫科动物的爪子
+
+*****
+
+####  hello0607  
+##### 578#       发表于 2026-6-10 09:49
+
+<blockquote>Kiyohara_Yasuke 发表于 2026-6-10 09:44
+又看了几遍pv，还是很难把学院生活跟pv开始的小兵打仗联系起来而且官推至今没有发官网和角色介绍，当时xb3 ...</blockquote>
+白毛战场上放大那个场景后面明显的一堆学生兵npc
+
+
+*****
+
+####  oniwarud  
+##### 579#       发表于 2026-6-10 09:55
+
+<blockquote>hello0607 发表于 2026-6-10 09:49
+白毛战场上放大那个场景后面明显的一堆学生兵npc</blockquote>
+那一幕看着跟前面打仗不是一个场景，更像是学校内部的对练
+
+*****
+
+####  アヘ顔  
+##### 580#       发表于 2026-6-10 09:55
+
+回去又看了看pv
+感觉是被校服拖累了
+只要后面学院爆炸人人穿上私服一定会好起来的<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
