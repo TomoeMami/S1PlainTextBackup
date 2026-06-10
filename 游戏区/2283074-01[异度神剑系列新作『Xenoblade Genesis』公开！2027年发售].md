@@ -7659,3 +7659,29 @@ xb1高速移动载具</blockquote>
 
 需要50-80公里，相对的xbx地图直径是20公里。
 
+
+*****
+
+####  maomaoying  
+##### 763#       发表于 2026-6-10 17:16
+
+<img src="https://img.stage1st.com/forum/202606/10/171623v3b4lnvuusodubo3.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1781082964252.jpeg</strong> (46.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-10 17:16 上传
+
+
+*****
+
+####  P-link  
+##### 764#       发表于 2026-6-10 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69754167&amp;ptid=2283074" target="_blank">Markorca 发表于 2026-6-10 16:05</a>
+
+6个太阳其实是六个殖民地，校园篇选出一组人，开大机器人打架输了被消灭</blockquote>
+不是探照灯+控制室吗？参考楚门的世界<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
