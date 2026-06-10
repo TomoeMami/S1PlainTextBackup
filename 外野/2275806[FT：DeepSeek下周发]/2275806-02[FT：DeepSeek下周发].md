@@ -2331,3 +2331,25 @@ pi本体太素了，oh-my-pi虽然自带一堆有 ...</blockquote>
 
 还是不建议直接用ohmypi，这和直接用opencode没区别
 
+
+*****
+
+####  haiuhfuwah  
+##### 1683#       发表于 2026-6-10 11:23
+
+a/的新模型有人用过了吗
+
+*****
+
+####  hugosol  
+##### 1684#       发表于 2026-6-10 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751689&amp;ptid=2275806" target="_blank">zerona 发表于 2026-6-10 10:41</a>
+
+https://github.com/can1357/oh-my-pi  是这个吗？</blockquote>
+对的，推荐用npm安装
+
+不过还是建议稍微玩一下pi再来用这个东西，pi本身的理念是最自洽的，extension弄起来也比omp快很多
+
+而且这类agent默认没有权限控制，bash什么都能跑，刚接触会被吓一跳，我还是习惯先扩展个plan模式，用开放式提问一步步讨论，等方案成型再去实施
+
