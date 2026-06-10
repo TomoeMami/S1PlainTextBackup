@@ -1502,3 +1502,29 @@ is掉钱眼里了，风花雪月模式能最大程度复用素材，制造话题
  ...</blockquote>
 换装这事在风花雪月后期更新里已经实现了，虽说部分骑乘兵种还是只能穿通用服装，但步兵都是可以换私服，比如贝老师转暗杀者后就可以继续穿佣兵服，我搞不懂的是engage怎么倒退回去不能换了
 
+
+*****
+
+####  黑上シグマ  
+##### 842#       发表于 2026-6-10 14:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">废物日亚预约还没开，乐天TMD国内卡好像没法买
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
+*****
+
+####  Nez  
+##### 843#       发表于 2026-6-10 14:31
+
+感觉至少有一条线要砍苏谛斯，拱火纹章不得不品鉴<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 844#       发表于 2026-6-10 14:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">刚说完日亚有了，但现在只有普通版……
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
