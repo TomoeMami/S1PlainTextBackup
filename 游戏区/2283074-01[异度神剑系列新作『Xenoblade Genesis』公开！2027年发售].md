@@ -5792,3 +5792,149 @@ PV
 看那画面你说是尤米娅2我都信</blockquote>
 炼金有这画面该开香槟了，都是新作pv，可以说是被暴打的水平
 
+
+*****
+
+####  xwr  
+##### 598#       发表于 2026-6-10 10:19
+
+<blockquote>继《异度神剑 决定版》《异度神剑2》《异度神剑3》之后，以“年代记（Chronicle）”为主题的系列故事已经告一段落。而本作则以“创世记（Genesis）”为题，开启一个全新的故事篇章。</blockquote>
+
+还真就编年史vs创世纪？以后就是创世纪123了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xwr  
+##### 599#       发表于 2026-6-10 10:19
+
+ 本帖最后由 xwr 于 2026-6-10 10:21 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751391&amp;ptid=2283074" target="_blank">海晟天锻 发表于 2026-6-10 10:13</a>
+
+女主要是真的盲眼，那作为一个前期角色卖点被这边曝了干净完全没有反转感了
+
+—— 来自 samsung SM-S9380,  ...</blockquote>
+开头不盲不代表以后不盲，说不定半路就瞎了，我看介绍说这个世界国家众多，纷争不断，说不定玩着玩学院所在国家的亡国了，女主瞎了又变成奴隶，这样就和偷跑信息对上了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不应  
+##### 600#       发表于 2026-6-10 10:20
+
+冷静下来还是看看后面的换装能有什么效果了，这个校服真的丑到家，把老中那性缩力拉满的校服换过去穿上估计都没这么难看
+
+
+*****
+
+####  riin2  
+##### 601#       发表于 2026-6-10 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751439&amp;ptid=2283074" target="_blank">xwr 发表于 2026-6-10 10:19</a>
+
+还真就编年史vs创世纪？以后就是创世纪123了</blockquote>
+这么说以后还有启示录，高桥gg的异度圣经宇宙
+
+*****
+
+####  king520kyo  
+##### 602#       发表于 2026-6-10 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751387&amp;ptid=2283074" target="_blank">xwr 发表于 2026-6-10 10:13</a>
+
+任天堂官方报道节选，AI翻译
+
+https://www.nintendo.com/jp/topi ... 2-8a6e-48aea029f985</blockquote>
+他这个【器士】用的也挺妙的，让人联想到阿尼玛之器。XB3DLC让我们看到了XS的内容，那么是不是XBG能让我们看到XG的内容<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  riin2  
+##### 603#       发表于 2026-6-10 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69750495&amp;ptid=2283074" target="_blank">fantasya 发表于 2026-6-10 08:48</a>
+
+这游戏讨论度挺高的。
+
+异度之刃也是从头到尾一直首发在玩的了。</blockquote>
+我觉得女主肯定变机娘<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+xb1的美纳斯，xb2的小绿，xb3的M，都是机娘风
+
+*****
+
+####  woaimiyabi  
+##### 604#       发表于 2026-6-10 10:24
+
+这次最高兴的还是 城镇终于回来了，有城镇那就说明人文方面比xb3要强，城镇风格感觉也像xb2。
+
+*****
+
+####  kyonkoism  
+##### 605#       发表于 2026-6-10 10:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69750892&amp;ptid=2283074" target="_blank">topia 发表于 2026-6-10 09:27</a>
+
+目前至少还没有肉眼可见的闹麻嘉豪世界观</blockquote>
+闹麻嘉豪世界观笑死我<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hwubh  
+##### 606#       发表于 2026-6-10 10:25
+
+人设印象点还是少了些
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  MrlOst  
+##### 607#       发表于 2026-6-10 10:26
+
+大概是引擎问题吧，人物发功时身上的特效显得有点脏乱，另外没有战斗画面不知道会不会一转arpg
+
+当然还是必冲首发
+
+*****
+
+####  不应  
+##### 608#       发表于 2026-6-10 10:26
+
+那高桥这次还会复读二手尼采闹麻吗，我看什么学院战争奴隶过家家的味道也要来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  アヘ顔  
+##### 609#       发表于 2026-6-10 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751468&amp;ptid=2283074" target="_blank">king520kyo 发表于 2026-6-10 10:22</a>
+他这个【器士】用的也挺妙的，让人联想到阿尼玛之器。XB3DLC让我们看到了XS的内容，那么是不是XBG能让我 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">xs不是也有些内容neta xg的么
+四舍五入都是xg
+
+*****
+
+####  星花  
+##### 610#       发表于 2026-6-10 10:27
+
+结果男主变终结者了。
+
+*****
+
+####  xwr  
+##### 611#       发表于 2026-6-10 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751468&amp;ptid=2283074" target="_blank">king520kyo 发表于 2026-6-10 10:22</a>
+
+他这个【器士】用的也挺妙的，让人联想到阿尼玛之器。XB3DLC让我们看到了XS的内容，那么是不是XBG能让我 ...</blockquote>
+其实我也注意到了器士英文翻译叫Vesselai，而XS的阿尼玛之器叫Vessel of Anima
+
+*****
+
+####  海晟天锻  
+##### 612#       发表于 2026-6-10 10:27
+
+那这pv说实话除了人设卖相外看着都比xb3稳健，xb3那个灰扑扑的风格真别再来了，多点人文是好的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

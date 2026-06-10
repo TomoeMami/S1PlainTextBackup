@@ -1917,3 +1917,15 @@ A.狐狸 B.橘猫 C.松鼠 D.眼镜娘
 
 等了这么多年就这，我笑了。
 
+
+*****
+
+####  猫将军  
+##### 190#       发表于 2026-6-10 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69750673&amp;ptid=2280008" target="_blank">强尼高达 发表于 2026-6-10 09:06</a>
+我问你真的买了吗，真的玩了吗，我真的在玩，任何配角变换一个表情就可能变成不可名状生物
+
+你让没玩过的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喜欢马赛克你估计是不是人脸都分不清。我就问你是不是hd吧。要是不喜欢就玩原版去。还强调自己在玩反问别人没玩过。嘉豪行为
+

@@ -2291,3 +2291,14 @@ pi本体太素了，oh-my-pi虽然自带一堆有 ...</blockquote>
 
 pi这两个维护者都是话痨，天天发表一些奇怪的意见，但是我觉得算是在agentic coding领域少有的比较务实的那一派，跟最近在搞本地部署D老师的那个redis作者一样，话多但是别人真能做出来好东西。
 
+
+*****
+
+####  hugosol  
+##### 1679#       发表于 2026-6-10 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751043&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-6-10 09:42</a>
+
+用pi最烦恼的就是这个，经常想到要有个什么功能就好了然后就跑去搞扩展，结果搞回来主线任务完全记不得了 ...</blockquote>
+Antirez开发Redis Arrays那个文章确实给我很大启发，他就是那种有了AI之后变得更强的强者，跟那些天天还在纠结程序员有哪些技能ai没法取代的人完全不一样<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

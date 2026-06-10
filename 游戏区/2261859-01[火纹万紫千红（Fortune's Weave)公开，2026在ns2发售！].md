@@ -1241,3 +1241,13 @@ is掉钱眼里了，风花雪月模式能最大程度复用素材，制造话题
 说不定是因为主角其实没有脸。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么穆圣，不可描述是吧
 
+
+*****
+
+####  wlhlz  
+##### 814#       发表于 2026-6-10 10:22
+
+不是，嗯给基那么好的战斗动画怎么变成这样了？<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
