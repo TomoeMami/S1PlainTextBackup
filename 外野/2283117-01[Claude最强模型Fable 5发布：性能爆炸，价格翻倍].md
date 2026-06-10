@@ -440,3 +440,17 @@ A÷不亏是A÷，价格翻倍可还行
 
 A畜啥时候死<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jet.Black  
+##### 43#       发表于 2026-6-10 18:48
+
+Fable本质还是Mythos缩水版吧
+
+所以A\这几个月除了研究怎么坑钱缩水之外还干了点啥？
+
+感觉很像没活了欸
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
