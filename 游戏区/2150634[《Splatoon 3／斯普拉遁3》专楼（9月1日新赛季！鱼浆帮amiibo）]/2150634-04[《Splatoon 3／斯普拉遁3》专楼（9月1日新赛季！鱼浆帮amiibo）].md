@@ -127,3 +127,13 @@ v11.2.0更新内容
 
 这次**型跑有演唱会舞台吗？好像没看到说明
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5896#       发表于 2026-6-10 20:46
+
+这波武器平衡被太君嘲疯了，说前几次平衡的又给改回去了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">研究所现在是不是不知道要怎么给现在的环境做平衡了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+

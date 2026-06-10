@@ -562,3 +562,11 @@ ffbe本身的像素我很喜欢，但是游戏的玩法遭不住
 
 如果这个收录了ffbe的人物的话对我很有吸引力 就是日期太晚了 10月份大作云集，就不能现在出吗<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  suzakushi  
+##### 57#       发表于 2026-6-10 20:53
+
+看了看直播，像素质量很高啊，比八方强多了。之前一直因为是手游没玩BE，这下终于能享受下这高质量像素了。
+
