@@ -26,3 +26,13 @@
 
 第一个娄希是900石头出的，刚刚抽第二个，600+石头才出，这下真的地狱模式了，跟这个角色八字不合啊
 
+
+*****
+
+####  khxooo  
+##### 47850#       发表于 2026-6-10 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69747331&amp;ptid=1712412" target="_blank">史艳文 发表于 2026-6-9 22:24</a>
+第一个娄希是900石头出的，刚刚抽第二个，600+石头才出，这下真的地狱模式了，跟这个角色八字不合啊 ...</blockquote>
+我之前日服也一样，每次娄西UP都抽，都抽不到，谁知道现在娄西2宝了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，真是常驻等歪
+
