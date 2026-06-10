@@ -533,3 +533,13 @@ https://www.famitsu.com/article/202606/76766
 
 倒是特地拿成品给吉田直树看了，所以这是算谁的游戏？
 
+
+*****
+
+####  纯夏  
+##### 54#       发表于 2026-6-10 20:21
+
+刚看完了SE的公开情报直播 主角阵以外的历代FF主角真就是从水晶里出来的 和这个世界观完全没关系<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+就和抽卡抽的角色一样 那这些素材干脆就别用了 直接用原本的主角阵把游戏做好就行了
+

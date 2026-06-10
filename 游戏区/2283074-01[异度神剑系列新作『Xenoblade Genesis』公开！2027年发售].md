@@ -8037,3 +8037,45 @@ s1异度3群已原地升级异度神剑Genesis群，欢迎加入发病：7595335
 
 想起女主给我的既视感是哪个的，打牌王Z4的三妹
 
+
+*****
+
+####  iuiuk2  
+##### 799#       发表于 2026-6-10 20:19
+
+信天上的区域不是远景贴图能无缝移动，不如信我是秦始皇......虽然我想这么说，但是万一呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whzfjd  
+##### 800#       发表于 2026-6-10 20:23
+
+<img src="https://img.stage1st.com/forum/202606/10/202231xstokffk6dmt6ekm.jpg" referrerpolicy="no-referrer">
+
+<strong>1000716866.jpg</strong> (189.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 20:22 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/202231jll23clum1wlpml9.jpg" referrerpolicy="no-referrer">
+
+<strong>1000716900.jpg</strong> (269.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 20:22 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/202231xxosdx4kchdb6c34.jpg" referrerpolicy="no-referrer">
+
+<strong>1000716863.jpg</strong> (177.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 20:22 上传
+
+来点兴趣图，大猩猩画窄脑袋是不是手生啊，大小头激烈地扭打在一起。
+
+mono还是太沉浸在自己的艺术里了，昨晚截图都找不到笑的
+
