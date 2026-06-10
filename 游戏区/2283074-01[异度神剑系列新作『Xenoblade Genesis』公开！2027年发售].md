@@ -7619,3 +7619,14 @@ xb1高速移动载具</blockquote>
 
 不是，这个环绕的地图场景设计可以不玩吗？玩xb系列不就期待这个吗？
 
+
+*****
+
+####  fantuanxiaoyi  
+##### 760#       发表于 2026-6-10 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69754068&amp;ptid=2283074" target="_blank">Slyvan 发表于 2026-6-10 15:53</a>
+
+我本身喜欢剑与魔法, 地图又是青山绿水阳光明媚 , 加上这个环带地图 ,还有高速移动载具,感觉太棒了  ,  就 ...</blockquote>
+没有任何不转科幻的可能性。过场里武器上的摩纳多图标都亮起了。
+
