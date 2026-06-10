@@ -2421,3 +2421,16 @@ BOSS名字忘了。有个机制，每回合暴动。</blockquote>
 
 —— 来自 OnePlus PJA110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  三谷歩夢  
+##### 964#       发表于 2026-6-10 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69754163&amp;ptid=2256125" target="_blank">id_catcher 发表于 2026-6-10 16:04</a>
+
+领取活动奖励的战术委托道具后，是不是每天自动回复的一个就没有了？
+
+—— 来自 OnePlus PJA110, Android  ...</blockquote>
+会优先使用免费的那个
+

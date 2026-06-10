@@ -7587,3 +7587,18 @@ xb1高速移动载具</blockquote>
 
 还有这游戏的技术风格好像跟3代差距有点多 ,  该不会真的那个小红帽一转XBG ,  那岂不是高桥手里还在鼓捣一个新的XB <img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Markorca  
+##### 756#       发表于 2026-6-10 16:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">6个太阳其实是六个殖民地，校园篇选出一组人，开大机器人打架输了被消灭
+
+*****
+
+####  28201  
+##### 757#       发表于 2026-6-10 16:11
+
+这阿尼玛是正式翻译吗，之后会变成梗吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
