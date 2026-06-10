@@ -612,3 +612,11 @@ ffbe也活了10年，我玩了3年，在se的手游里也算精品了<img src="h
 
 这hd-2d的表现力完爆迄今为止所有的hd-2d作品十条街，给ff的规格还是高啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  琴酒  
+##### 62#       发表于 2026-6-10 22:45
+
+看试玩 是接触水晶后问了3个问题 根据你的答案给个背后灵
+
