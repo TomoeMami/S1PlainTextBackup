@@ -1294,3 +1294,12 @@ is掉钱眼里了，风花雪月模式能最大程度复用素材，制造话题
 
 又看一遍pv发现对话界面小人头像能眨巴眼睛摇头晃脑了，加了l2d？
 
+
+*****
+
+####  lbj5454  
+##### 820#       发表于 2026-6-10 10:54
+
+已经有纹学家开始分析了
+[https://www.bilibili.com/video/B ... bf58510f14e1da721fc](https://www.bilibili.com/video/BV15kEU6CERf/?spm_id_from=333.337.search-card.all.click&amp;vd_source=440488d8e6990bf58510f14e1da721fc)
+

@@ -1951,3 +1951,39 @@ toir确实还行，tohr就是一坨浓屑，还不如原汁原味搬上来呢
 明知是石也要支持吗 100块也是钱啊</blockquote>
 看在有官中的份上，这个屎我吃了
 
+
+*****
+
+####  丹德里恩  
+##### 193#       发表于 2026-6-10 10:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哎呀，我群友已经开始怀念马场了，你说怎么回事呢富泽桑
+
+*****
+
+####  猫将军  
+##### 194#       发表于 2026-6-10 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748812&amp;ptid=2280008" target="_blank">黑暗之眼 发表于 2026-6-9 23:30</a>
+不用太抬举，隔壁那个也就没那么多马赛克而已</blockquote>
+幻水hd材质全部现代化过的，高清2d光源，尤其水面效果。可不是单纯复制psp版<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">（代价就是延期了1年）
+再拿隔壁se的开拓者2hd来对比好歹人家加了新要素新剧本…
+
+*****
+
+####  法拉  
+##### 195#       发表于 2026-6-10 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751783&amp;ptid=2280008" target="_blank">丹德里恩 发表于 2026-6-10 10:49</a>
+
+哎呀，我群友已经开始怀念马场了，你说怎么回事呢富泽桑</blockquote>
+马场也能怀念吗，那活该这ip只能捞到富泽这么个人物了
+
+
+*****
+
+####  bill910  
+##### 196#       发表于 2026-6-10 10:54
+
+有官方中文，就买，希望其它作品也有官方中文，例如TOL。
+
