@@ -7454,3 +7454,32 @@ xb1高速移动载具</blockquote>
 
 如果真是小红帽/legacy改名，不知道是不是真的能成ARPG或者动作成分增加了。
 
+
+*****
+
+####  陆久舟  
+##### 747#       发表于 2026-6-10 14:58
+
+希望这次别切菜单打断BGM了
+
+*****
+
+####  ShitOverflow  
+##### 748#       发表于 2026-6-10 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753234&amp;ptid=2283074" target="_blank">UIonTV 发表于 2026-6-10 13:38</a>
+昨晚一直奇怪为什么角色跑步腿都过弯曲，今天想明白了，因为地面是个球，有一定弧度（游戏地图比现实尺度小 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">渲染风格二分打个高光高暗，白秋裤就只有半拉子能看见了，加上女主腿细，那就更显得腿型奇怪，有些服装搞个奥利奥配色就这种效果
+
+[论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Zxian49  
+##### 749#       发表于 2026-6-10 15:02
+
+谭游建楼就是快，刷19页下来已经力竭了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

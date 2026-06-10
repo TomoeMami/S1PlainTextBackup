@@ -1884,3 +1884,14 @@ Play through the full KINGDOM HEARTS series in one com ...</blockquote>
 Play through the full KINGDOM HEARTS series in one com ...</blockquote>
 如果能按计划发售那还好，澳洲的2027年不会像日本那样持续到第二年一季度去吧
 
+
+*****
+
+####  Piano-Forest  
+##### 165#         楼主| 发表于 2026-6-10 14:54
+
+【全网首发 王国之心4任天堂PV逐帧解析】 
+[https://b23.tv/Nzf9m94](https://b23.tv/Nzf9m94)
+
+<img src="https://p.sda1.dev/32/c6e18b35da4447e9fc8be53c6be12b7e/1000168064.jpg" referrerpolicy="no-referrer">
+
