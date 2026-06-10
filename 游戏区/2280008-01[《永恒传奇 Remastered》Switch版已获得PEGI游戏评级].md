@@ -1929,3 +1929,14 @@ A.狐狸 B.橘猫 C.松鼠 D.眼镜娘
 你让没玩过的 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喜欢马赛克你估计是不是人脸都分不清。我就问你是不是hd吧。要是不喜欢就玩原版去。还强调自己在玩反问别人没玩过。嘉豪行为
 
+
+*****
+
+####  法拉  
+##### 191#       发表于 2026-6-10 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749046&amp;ptid=2280008" target="_blank">伊郑z 发表于 2026-6-9 23:48</a>
+
+我对填档期没意见，但是搞得比原版还差就有很大意见了，心灵和圣洁在psv的规格比永恒强多了，移植现代平 ...</blockquote>
+toir确实还行，tohr就是一坨浓屑，还不如原汁原味搬上来呢
+

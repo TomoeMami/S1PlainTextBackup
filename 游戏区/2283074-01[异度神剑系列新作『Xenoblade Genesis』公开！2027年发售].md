@@ -5938,3 +5938,54 @@ xb1的美纳斯，xb2的小绿，xb3的M，都是机娘风
 
 —— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  VVhaleVoice  
+##### 613#       发表于 2026-6-10 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751465&amp;ptid=2283074" target="_blank">riin2 发表于 2026-6-10 10:21</a>
+这么说以后还有启示录，高桥gg的异度圣经宇宙</blockquote>
+Chronicle也可以翻译成《历代志》，和Genesis 同样是旧约正典
+
+—— 来自 Google Pixel 8, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  小月亮李再含  
+##### 614#       发表于 2026-6-10 10:29
+
+华语第一xb真爱论坛，没有哪个游戏有这个热度
+
+*****
+
+####  羊寢  
+##### 615#       发表于 2026-6-10 10:29
+
+ 本帖最后由 羊寢 于 2026-6-10 10:31 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751277&amp;ptid=2283074" target="_blank">没取名啊 发表于 2026-6-10 10:03</a>
+dlc追加角色自然是随便设计了，xbg这种带世界观设计的，主角团不是奇幻贵族老爷就是苦逼平民，感觉穿不出 ...</blockquote>
+贵族老爷和苦逼平民衣服也能根据世界观设计出独有的元素啊，现在这个校服就真的毫无设计可言，希望这学院生活真能像狒狒石榴开篇试玩一样很快就结束吧
+
+*****
+
+####  没取名啊  
+##### 616#       发表于 2026-6-10 10:29
+
+觉得校服不好看是因为白裤袜不是丝质透肉的，改个材质就好看了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月孝三  
+##### 617#       发表于 2026-6-10 10:30
+
+gqgg又拿出阿尼玛阿尼姆斯这套说明xbg肯定又是男女cp锁死的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  a85982313  
+##### 618#       发表于 2026-6-10 10:35
+
+泄露的那个图女主名字和现在的都不一样，怎么都得是早期泄露吧，奴隶这些未必后面还会有
+
