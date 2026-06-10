@@ -2233,3 +2233,13 @@ Mario Zechner(Pi的作者)的哲学也挺有意思的，Pi没有plan mode没有s
 
 不过我觉得Pi最天才的设计还是让它能读到自己的源代码，这功能就应该是所有agent的标配才对，现在回过头来看Claude Code和openCode之流还是太封闭了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高粱河车神  
+##### 1674#       发表于 2026-6-10 08:35
+
+近日，深圳河套学院AI训练平台项目团队，联合哈尔滨工业大学(深圳)、深圳市大数据研究院、华为有关团队，协同深智城AI算力平台，面向国产算力大模型训练开展联合攻关。依托昇腾910C国产AI算力集群，完成1.6万亿参数大模型DeepSeek-V4-Pro全参数后训练。
+
+这个消息怎么看？
+
