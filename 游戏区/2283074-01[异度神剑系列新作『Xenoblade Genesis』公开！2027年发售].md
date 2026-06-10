@@ -7699,3 +7699,32 @@ xb1高速移动载具</blockquote>
 
 m社愿意做这些尝试我还是挺支持的
 
+
+*****
+
+####  巴尔干炮  
+##### 766#       发表于 2026-6-10 18:02
+
+石碑社真能做到360°环绕大地图那就是xbx后最惊艳的设计了。
+
+*****
+
+####  VictorWJ  
+##### 767#       发表于 2026-6-10 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69752984&amp;ptid=2283074" target="_blank">misya 发表于 2026-6-10 12:55</a>
+
+阿尼玛是灵魂=pneuma所以应该是绿色，pv有一帧点火就是冒绿光，相对的阿尼姆斯是理性应该是紫光
+
+ ...</blockquote>
+视频里只字不提的阿尼姆斯居然这样悄咪咪的出现么，有意思
+
+*****
+
+####  海晟天锻  
+##### 768#       发表于 2026-6-10 18:05
+
+真要是360°环世界+地图设计不拉的话，那就是jrpg史留名的级别了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
