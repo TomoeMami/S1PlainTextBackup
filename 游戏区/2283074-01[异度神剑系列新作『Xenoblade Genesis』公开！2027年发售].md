@@ -7483,3 +7483,13 @@ xb1高速移动载具</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ArthurDent  
+##### 750#       发表于 2026-6-10 15:10
+
+一直是15+吗？
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
