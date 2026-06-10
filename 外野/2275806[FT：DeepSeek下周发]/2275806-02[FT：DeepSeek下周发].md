@@ -2276,3 +2276,18 @@ Mario Zechner(Pi的作者)的哲学也挺有意思的，Pi没有plan mode没有s
 近日，深圳河套学院AI训练平台项目团队，联合哈尔滨工业大学(深圳)、深圳市大数据研究院、华为有关团队，协 ...</blockquote>
 deepseek拿的估计是950dt这种，真用到预训练估计要下一代了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  LeoDT  
+##### 1678#       发表于 2026-6-10 09:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749748&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-6-10 02:11</a>
+
+oh-my-pi可玩性实在太高了，这两天正事一点没干一直在折腾extension
+
+pi本体太素了，oh-my-pi虽然自带一堆有 ...</blockquote>
+用pi最烦恼的就是这个，经常想到要有个什么功能就好了然后就跑去搞扩展，结果搞回来主线任务完全记不得了。这也算是一种旷野之息吗？
+
+pi这两个维护者都是话痨，天天发表一些奇怪的意见，但是我觉得算是在agentic coding领域少有的比较务实的那一派，跟最近在搞本地部署D老师的那个redis作者一样，话多但是别人真能做出来好东西。
+

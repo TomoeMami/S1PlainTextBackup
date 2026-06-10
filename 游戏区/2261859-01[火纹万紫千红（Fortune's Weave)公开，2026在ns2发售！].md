@@ -1095,3 +1095,58 @@ is掉钱眼里了，风花雪月模式能最大程度复用素材，制造话题
 
 三房变四房？
 
+
+*****
+
+####  nagitoY  
+##### 798#       发表于 2026-6-10 09:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748999&amp;ptid=2261859" target="_blank">嘉术2015 发表于 2026-6-9 23:44</a>
+
+人设依然是仓花千夏
+
+你怎么越做越回去了？</blockquote>
+仓花立绘挺好看的，但是为什么游戏里cg质量参差不齐？皇女cg简直变了个人，希尔妲cg倒是非常好看
+
+*****
+
+####  飞雨啸寒  
+##### 799#       发表于 2026-6-10 09:39
+
+人设也妹感觉继承三房啊，我红秋裤呢
+
+*****
+
+####  Humpy  
+##### 800#       发表于 2026-6-10 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751007&amp;ptid=2261859" target="_blank">nagitoY 发表于 2026-6-10 09:38</a>
+仓花立绘挺好看的，但是为什么游戏里cg质量参差不齐？皇女cg简直变了个人，希尔妲cg倒是非常好看 ...</blockquote>
+又不是一个人画的
+
+三房里人物原设 游戏内头像 cg基本都是不同人绘制的……
+
+
+*****
+
+####  星花  
+##### 801#       发表于 2026-6-10 09:41
+
+角色质量还挺高的，为啥势力代表那么拉。
+
+*****
+
+####  nagitoY  
+##### 802#       发表于 2026-6-10 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749355&amp;ptid=2261859" target="_blank">医生狼多 发表于 2026-6-10 00:21</a></blockquote>
+这个纯白色系的自捏好瞎眼睛
+
+
+*****
+
+####  otakun  
+##### 803#       发表于 2026-6-10 09:44
+
+主角？像是穿了白炽龙装备一样
+
