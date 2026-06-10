@@ -7166,3 +7166,17 @@ xb2还有纯机娘怎么不说<img src="https://static.stage1st.com/image/smiley
 https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findp ...</blockquote>
 圆筒的话有六个太阳总得有个位置，对一些地方远一些地方近有点不大合理。而且这种直接写到故事概要的通常一般是谜面应该还是有个实体位置的。如果是一个开口的碗的话目前还没看到除了巫女那一幕里有星空。
 
+
+*****
+
+####  topia  
+##### 721#       发表于 2026-6-10 13:07
+
+ 本帖最后由 topia 于 2026-6-10 13:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753026&amp;ptid=2283074" target="_blank">shpdw 发表于 2026-6-10 13:04</a>
+
+圆筒的话有六个太阳总得有个位置，对一些地方远一些地方近有点不大合理。而且这种直接写到故事概要的通常 ...</blockquote>
+主要是目前从透视关系来看总之不太像球，具体什么形状只能看之后的情报了
+
+真女神3从医院出来有一段完整的cg表现东京受胎的球形世界的，所以那个透视还是比较可信的
+
