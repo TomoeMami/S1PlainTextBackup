@@ -1578,3 +1578,13 @@ XB2卡带已就位，这就开玩，等9月直接无缝衔接XB3<img src="https:
 个人关于初代所有的收集资料和攻略手计，有需要的自取。https://pan.baidu.com/s/17uOwrq6nYdj3fems8PzAbw  ...</blockquote>
 能不能补1份羁绊任务攻略，救命<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Troywest  
+##### 6063#       发表于 2026-6-11 01:09
+
+已购入最近升级包并重新开档。然后看到倒数第二楼还是我几年前的发言，一时间很是唏嘘。
+
+—— 来自 OnePlus PJZ110, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
