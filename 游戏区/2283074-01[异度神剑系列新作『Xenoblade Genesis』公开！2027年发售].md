@@ -4950,3 +4950,57 @@ DQ我猜是为了之前暗黑成人风格才搞成这样，后面虽然重做但
 
 主要之前觉得高桥哥哥终于完成三部曲，后面独立世界观可以各种天马行空大搞特搞了，最后又回归最原始的中世纪剑与魔法加校园<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，反正还是先观望，有机甲机娘我再道歉
 
+
+*****
+
+####  nozomitech  
+##### 519#       发表于 2026-6-10 08:38
+
+<blockquote>Dreammask 发表于 2026-6-10 00:39
+这楼怎么这么快叠到十几页了
+
+我觉得人物渲染有大问题啊，ns2机能巨幅提升的情况下genesis还顶着3那套阴阳脸 ...</blockquote>
+和XB3刚公布那会比这个速度已经慢了很多了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狸狸狐  
+##### 520#       发表于 2026-6-10 08:38
+
+让我们回想一下midori关于legacy的爆料
+
+Q（网友问）：Anything Monolith Soft might be doing for Switch 2?
+
+Midori 回复：I was told a few months back that Monolith Soft's next project with Nintendo is codenamed "Legacy." That's all I know. Don't know if it's their own game or they're just supporting Nintendo on it. It's Nintendo-published, so not Xenosaga (that's Bandai Namco's).
+
+
+*****
+
+####  ZyLintheMax  
+##### 521#       发表于 2026-6-10 08:43
+
+<blockquote>asikies 发表于 2026-6-10 06:50
+终于女性主人公了？早就说了bg没未来，日厂终于肯低头了？腐朽的老人终于被按住了？ ...</blockquote>
+高桥是铁血bg战士望周知
+
+*****
+
+####  woaimiyabi  
+##### 522#       发表于 2026-6-10 08:43
+
+xb3发售前水了一百多页
+
+*****
+
+####  北条早苗  
+##### 523#       发表于 2026-6-10 08:46
+
+我们诺彭怎么没了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  君往何处  
+##### 524#       发表于 2026-6-10 08:47
+
+感觉主角组单个拉出来还是能看的，就是放一起发现大家的前发都是大额头就感觉很怪<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
