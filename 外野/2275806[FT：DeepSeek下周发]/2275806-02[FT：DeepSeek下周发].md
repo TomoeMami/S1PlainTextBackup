@@ -2323,3 +2323,11 @@ oh-my-pi可玩性实在太高了，这两天正事一点没干一直在折腾ext
 pi本体太素了，oh-my-pi虽然自带一堆有 ...</blockquote>
 [https://github.com/can1357/oh-my-pi](https://github.com/can1357/oh-my-pi)  是这个吗？
 
+
+*****
+
+####  drodchang  
+##### 1682#       发表于 2026-6-10 11:12
+
+还是不建议直接用ohmypi，这和直接用opencode没区别
+

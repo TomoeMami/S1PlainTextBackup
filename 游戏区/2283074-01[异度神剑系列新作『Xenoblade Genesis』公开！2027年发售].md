@@ -6162,3 +6162,47 @@ gqgg又拿出阿尼玛阿尼姆斯这套说明xbg肯定又是男女cp锁死的</
 
 人设也算不上丑，就是没啥记忆点
 
+
+*****
+
+####  夜留歌  
+##### 638#       发表于 2026-6-10 11:10
+
+说到巨大robot，想起来当初看xb3 pv里变身，微妙的有点小时候在电视上看到超能勇士变成猛兽侠的冲击感
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  woaimiyabi  
+##### 639#       发表于 2026-6-10 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751695&amp;ptid=2283074" target="_blank">topia 发表于 2026-6-10 10:42</a>
+
+要是能无缝环世界就吹爆，要是还只是个背景，区域靠切地图那就拉完了</blockquote>
+看地图分析不太可能背景 因为天上这些地图有一些城镇跟 白色的塔，这个白色的塔在地图出现了好几次 感觉是类似开塔的设计，加上给了坐骑就代表地图至少跟xbx是一个规模的 需要坐骑来赶路， 所以大概率是无缝的，但能不能在两者之间自由飞  决定了是否超神。
+
+*****
+
+####  望江南  
+##### 640#       发表于 2026-6-10 11:14
+
+卧槽，干完活上泥潭看一眼已经16页了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">大家太爱高桥gg了
+
+不知道这次玩法会不会大改还是延续3代的玩法，其实我觉得xb3的战斗系统做的反而没有2好玩。不过换职业会换装的设计倒是挺有趣的。
+
+如果延续的话几个角色的服设倒是不成问题了，反正可以多设计几套。。。
+
+
+*****
+
+####  名居守  
+##### 641#       发表于 2026-6-10 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751810&amp;ptid=2283074" target="_blank">虚无连斩 发表于 2026-6-10 10:50</a>
+那个是日文的盲目吧，是不是形容女主性格不计后果，不一定是瞎眼的意思吧 ...</blockquote>
+不计后果的盲目女主这种事不要啊
+<img src="https://static.stage1st.com/image/smiley/carton2017/384.png" referrerpolicy="no-referrer">想想都要爆血压了
+还是真盲目吧
+
