@@ -274,3 +274,14 @@ TLOU2发售后顽皮狗招了很多的producer改善项目管理，想解决crun
 
 经《好莱坞报道》等多家外媒证实，好莱坞硬汉演员杰森・莫玛已正式退出索尼影业与 PlayStation 影视联合打造的《绝地潜兵》真人电影项目。
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 701#       发表于 2026-6-10 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69740128&amp;ptid=2173605" target="_blank">furui3132 发表于 2026-6-8 15:20</a>
+
+现在充plus一档正确的姿势是什么？我只想填一填以前没玩完的会免坑，看B站统计的已经很久没出现8折以下的折 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">港服就算了吧，日服还能靠汇率优势算下来价格还行
+

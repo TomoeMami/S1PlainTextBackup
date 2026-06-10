@@ -2353,3 +2353,17 @@ https://github.com/can1357/oh-my-pi  是这个吗？</blockquote>
 
 而且这类agent默认没有权限控制，bash什么都能跑，刚接触会被吓一跳，我还是习惯先扩展个plan模式，用开放式提问一步步讨论，等方案成型再去实施
 
+
+*****
+
+####  hugosol  
+##### 1685#       发表于 2026-6-10 11:34
+
+ 本帖最后由 hugosol 于 2026-6-10 11:35 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69752032&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-6-10 11:12</a>
+
+还是不建议直接用ohmypi，这和直接用opencode没区别</blockquote>
+区别就在可扩展性
+
+我现在在omp自己写叫AI写了个DeepSeek计费的扩展就不想回去用opencode了，当然我估计opencode应该也能用某种方式实现同样的功能吧，不过懒得去了解了<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
