@@ -8732,3 +8732,39 @@ B站评论区随机刷新<img src="https://static.stage1st.com/image/smiley/face
 
 他是真不怕被抓啊
 
+
+*****
+
+####  moeful  
+##### 868#       发表于 2026-6-11 00:31
+
+看你们吵成这样，就知道高桥哥哥是知道流量密码的
+
+*****
+
+####  VVhaleVoice  
+##### 869#       发表于 2026-6-11 00:33
+
+这爆料人还没被忍者查水表啊
+
+—— 来自 Google Pixel 8, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 870#       发表于 2026-6-11 00:35
+
+日本忍者不用b站
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  hkguty  
+##### 871#       发表于 2026-6-11 00:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69756683&amp;ptid=2283074" target="_blank">狸狸狐 发表于 2026-6-11 00:13</a>
+
+我还是倾向于，瞎眼这个最有冲击性的要素，是不可能删的。这是从剧本描写到游戏系统都需要配合的一个重要 ...</blockquote>
+假设原本的剧情是真的，我觉得现在已经改得挺远的了，毕竟从奴隶改成了学生。而且原本盲眼对于初始剧本的女主来说更像是一个元素，因为她是一开始就瞎的，她早就习惯瞎眼战斗了。如果从现在的剧本又改瞎，那就是还要描写一段很长的废人时期的剧情，除非她在瞎眼的剧情之后就立刻跳到好几年后。
+
