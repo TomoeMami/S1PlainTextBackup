@@ -7501,3 +7501,66 @@ xb1高速移动载具</blockquote>
 
 想念灭哥哥了
 
+
+*****
+
+####  laputah  
+##### 752#       发表于 2026-6-10 15:38
+
+<blockquote>woaimiyabi 发表于 2026-6-10 12:34
+确实 龙要是能骑感觉 两点之间自由穿梭是板上钉钉了</blockquote>
+高桥哥哥早没有做模拟癌游戏的心气了吧 很难想象做这么多年跟着主线走的游戏突然受不了了又捡起了xbx那时候的梦想来实现 
+
+
+*****
+
+####  狸狸狐  
+##### 753#       发表于 2026-6-10 15:46
+
+<img src="https://img.stage1st.com/forum/202606/10/154421phoaulyl4al4oaa2.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260610_153417_yylx.danmaku.bili.jpg</strong> (255.73 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-10 15:44 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/154421mpqon6swngaqoaoi.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260610_153438_yylx.danmaku.bili.jpg</strong> (152.95 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-10 15:44 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/154421upxdmapa8vmuauvp.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260610_153506_yylx.danmaku.bili.jpg</strong> (206.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-10 15:44 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/154422mnn88f8bhixmwnim.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260610_153518_yylx.danmaku.bili.jpg</strong> (166.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-10 15:44 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/154459jaq3sni3hy8xqhz8.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260610_152956.jpg</strong> (296.11 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-10 15:44 上传
+
+看起来xbg的环世界也是取巧用了类似殖民卫星的设计。六个太阳可能是在内部运作的人工能量源。真正的环世界做出来规模太可怕了。如果所见之处都能探索那就变态了，这可视距离比xbx夸张多了。
+
