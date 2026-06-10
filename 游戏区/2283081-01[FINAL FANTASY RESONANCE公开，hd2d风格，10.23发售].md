@@ -505,3 +505,15 @@ steam先预购了<img src="https://static.stage1st.com/image/smiley/face2017/037
 
 早期數值還算有點用，第3季開始數值失控就變成垃圾
 
+
+*****
+
+####  TheOccuria  
+##### 52#       发表于 2026-6-10 13:51
+
+这几天ff14出了绝妖星乱舞￼，我加的狒狒群好多人看爽了后对6代有了兴趣直接去下单像素合集
+
+这要是同步搞个ff6 hd-2d效果不敢想，可惜没有如果<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

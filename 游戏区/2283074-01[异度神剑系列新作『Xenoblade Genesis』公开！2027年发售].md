@@ -7265,3 +7265,66 @@ XB系列对我最大的乐趣不是啥人设，而是遐想连篇的可能
 
 不过这次音乐阵容微微不满
 
+
+*****
+
+####  wjbdasd  
+##### 730#       发表于 2026-6-10 13:44
+
+男主自身拥有阿尼玛之力，猜测又是个类似接触者的人，高桥又在膜XG了，这作标题也是XG
+
+*****
+
+####  Link213  
+##### 731#       发表于 2026-6-10 13:45
+
+你家高桥哥哥是不是在双开？去mono招聘官网看了下，按照之前传统快做完的游戏招聘公告都会提前删除，但24年8月的上线的全新RPG招聘页面还挂着，女剑士“小红帽”的招聘页面也是这一时间删除的
+
+<img src="https://img.stage1st.com/forum/202606/10/134458ugagv11r2y4bkh11.png" referrerpolicy="no-referrer">
+
+<strong>2026.png</strong> (44.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 13:44 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/134510hdbqbofhc77hzp5p.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (39.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 13:45 上传
+
+*****
+
+####  findpkq  
+##### 732#       发表于 2026-6-10 13:45
+
+这作分6章的就是名正言顺的xg ep6了(x
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Piano-Forest  
+##### 733#         楼主| 发表于 2026-6-10 13:46
+
+官中/4K PV：[https://youtu.be/VE_C7S-BAuI](https://youtu.be/VE_C7S-BAuI)
+
+
+*****
+
+####  Piano-Forest  
+##### 734#         楼主| 发表于 2026-6-10 13:52
+
+<img src="https://p.sda1.dev/32/d55f8b0893b2e2067c614de890254e75/1000168058.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/4a1d9228547b656854f5679e3a2dec12/1000168017.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  巴尔干炮  
+##### 735#       发表于 2026-6-10 13:54
+
+结合旁白最后说的话，我看这6个太阳（其实只有1个是真正的太阳）应该是过去大战遗留下来的“负面遗产”，但被后人遗忘了，所以才被形容为“战败众神的怨恨”，考虑到系列主角团都有明确的目的地，这6个太阳可能就是要去的地方。
+
