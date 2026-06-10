@@ -1433,3 +1433,26 @@ is掉钱眼里了，风花雪月模式能最大程度复用素材，制造话题
 
 这pv后半段开了传送门明显要搞事情那个女人也是眷属，加上苏缔丝最后的台词让人感觉这部的反派应该不是弟弟人
 
+
+*****
+
+####  血狂毘沙门  
+##### 835#       发表于 2026-6-10 12:57
+
+有个细节 脏辫仔的眼睛颜色一会是橘黄色一会是红色 可能身世不简单？
+
+*****
+
+####  kalavinka  
+##### 836#       发表于 2026-6-10 13:00
+
+不管会是拉坨大的还是系列新高还是中庸之作 总之还是预购了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202606/10/125922rqqbbagro22ag6jm.png" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-06-10_125908_034.png</strong> (95.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 12:59 上传
+

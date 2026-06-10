@@ -484,3 +484,24 @@ steam先预购了<img src="https://static.stage1st.com/image/smiley/face2017/037
 『FF レゾナンス』「ワールドマップと飛空艇で世界を冒険できる要素は必ず入れる」。古きよき王道RPGの体験で新たな驚きを届ける「あのころの『FF』」の進化系【インタビュー】
 [https://www.famitsu.com/article/202606/76766](https://www.famitsu.com/article/202606/76766)
 
+
+*****
+
+####  eilot  
+##### 51#       发表于 2026-6-10 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69750921&amp;ptid=2283081" target="_blank">アーリィ 发表于 2026-6-10 09:29</a>
+
+如果做个梦的话手游里拉比斯那些npc能不能加几个变成可用角色，主角只有6人队玩起来感觉会有点闷 ...</blockquote>
+第一部的話，能加入的角色真是不多
+
+雖然有不少NPC之後也真是會加入
+
+如王國守護神那位女角夏洛克，都會加入，而且還是非常坦
+
+在第一部時也有一條非常麻煩要在地圖走來走去，才能找到以她命名的盾牌
+
+真的要塞內容，男1男2女1都有自己專武和專防具等武器關卡，對本人(或同名角色)才有加乘，
+
+早期數值還算有點用，第3季開始數值失控就變成垃圾
+
