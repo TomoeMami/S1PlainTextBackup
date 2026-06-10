@@ -8417,3 +8417,21 @@ palow的话，越像人越难看，越不像人越好看<img src="https://static
 
 要小心这环世界要被原身下一次更新抄袭了
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 837#       发表于 2026-6-10 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69756188&amp;ptid=2283074" target="_blank">linchen0_0 发表于 2026-6-10 22:03</a>
+
+要小心这环世界要被原身下一次更新抄袭了</blockquote>
+刚才记起来其实网易已经做过一个环筒殖民卫星了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhouaa  
+##### 838#       发表于 2026-6-10 22:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老实说这东西在PC上也没什么技术壁垒吧  完全是掌机拖累
+
