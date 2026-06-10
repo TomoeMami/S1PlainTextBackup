@@ -1209,3 +1209,35 @@ is掉钱眼里了，风花雪月模式能最大程度复用素材，制造话题
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  星花  
+##### 811#       发表于 2026-6-10 10:10
+
+说不定特技是改变性别。🐶
+
+——可能是因为主角的外形是由玩家设定的。
+
+
+*****
+
+####  takayama  
+##### 812#       发表于 2026-6-10 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751300&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-6-10 10:05</a>
+
+有点合理，透魔封面阿库娅也是站c位，而且也是枪系，但是阿库娅定位的话会分男女吗
+
+论坛助手,iPhone ...</blockquote>
+没事，阿瓜姐贵跟他儿子会唱歌的团长<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  アヘ顔  
+##### 813#       发表于 2026-6-10 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751284&amp;ptid=2261859" target="_blank">星花 发表于 2026-6-10 10:04</a>
+说不定是因为主角其实没有脸。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么穆圣，不可描述是吧
+

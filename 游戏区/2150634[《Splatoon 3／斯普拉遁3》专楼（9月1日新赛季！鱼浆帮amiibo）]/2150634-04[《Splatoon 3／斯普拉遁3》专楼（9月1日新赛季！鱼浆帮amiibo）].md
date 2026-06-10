@@ -65,3 +65,13 @@ splatoon最大的魅力之一就是涂地不用杀人也能赢，而且银喷正
 
 — from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Aeroblast  
+##### 5891#       发表于 2026-6-10 10:08
+
+新平衡补丁
+
+削长爆破，强化短爆破，啥意思。（新星使应该欢喜吗，感觉范围本来就挺大了
+
