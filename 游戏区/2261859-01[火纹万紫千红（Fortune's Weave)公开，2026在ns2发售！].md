@@ -875,3 +875,23 @@ yysy这真不是什么正经火纹吧 你说这是风味暗喻幻想我都信<im
 
 三房的人设+engage系统很难做吗，取其精华去其糟粕会不会<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 787#       发表于 2026-6-10 09:05
+
+is掉钱眼里了，风花雪月模式能最大程度复用素材，制造话题与流量
+
+你让他花心思打磨四十个主线关卡？很蓝的啦
+
+*****
+
+####  罐子  
+##### 788#       发表于 2026-6-10 09:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69750526&amp;ptid=2261859" target="_blank">一步成诗 发表于 2026-6-10 08:51</a>
+
+三房的人设+engage系统很难做吗，取其精华去其糟粕会不会</blockquote>
++1<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
