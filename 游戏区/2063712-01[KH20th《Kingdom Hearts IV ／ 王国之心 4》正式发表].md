@@ -1807,3 +1807,16 @@ Steam、Epic Games Store　
 
 当初3发售时候，买了套123合集，现在又要买个大合集。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 159#         楼主| 发表于 2026-6-10 12:20
+
+ 本帖最后由 Piano-Forest 于 2026-6-10 12:21 编辑 
+
+传闻：有两家澳洲零售商页面显示将于2027年发售
+
+Play through the full KINGDOM HEARTS series in one comprehensive package before the release of KINGDOM HEARTS IV in 2027. 
+[https://www.khinsider.com/news/R ... S-IV-for-2027-19519](https://www.khinsider.com/news/RUMOR-Australian-Retailers-list-KINGDOM-HEARTS-IV-for-2027-19519)
+
