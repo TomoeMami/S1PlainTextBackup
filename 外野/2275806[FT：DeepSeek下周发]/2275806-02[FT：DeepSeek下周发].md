@@ -2367,3 +2367,11 @@ https://github.com/can1357/oh-my-pi  是这个吗？</blockquote>
 
 我现在在omp自己写叫AI写了个DeepSeek计费的扩展就不想回去用opencode了，当然我估计opencode应该也能用某种方式实现同样的功能吧，不过懒得去了解了<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  谎称  
+##### 1686#       发表于 2026-6-10 18:43
+
+什么鬼啊，历史记录怎么被清空了。。是我一个人的问题吗
+
