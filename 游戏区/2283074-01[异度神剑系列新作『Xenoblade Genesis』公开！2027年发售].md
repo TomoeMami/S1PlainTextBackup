@@ -4685,3 +4685,81 @@ Xenoblade Deuteronomy
 
 一看就是殖民卫星啊，最后不会掉下来了吧？
 
+
+*****
+
+####  JOJOROY  
+##### 492#       发表于 2026-6-10 07:46
+
+文件名确定这个游戏就是之前泄漏的Legacy代号的游戏
+
+*****
+
+####  根正苗红  
+##### 493#       发表于 2026-6-10 07:48
+
+ 本帖最后由 根正苗红 于 2026-6-10 07:50 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749953&amp;ptid=2283074" target="_blank">慕容断月 发表于 2026-6-10 06:29</a>
+
+是小松，不是石川</blockquote>
+也许你是对的，但目前我认为我是对的。这两有时候太容易弄混了。但不管是石川还是香帅，我都可以<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  膝盖中五箭  
+##### 494#       发表于 2026-6-10 07:49
+
+<img src="https://p.sda1.dev/32/ea0cd123cb6cd6ece20b6332b8a2823e/image.jpg" referrerpolicy="no-referrer"> 日本达芬奇开龟壳了哈哈
+
+—— 来自 HUAWEI OXF-AN10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  RStocking  
+##### 495#       发表于 2026-6-10 07:50
+
+既视感很足啊，感觉xb3那个时候也有很多人说mio不够色啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maomaoying  
+##### 496#       发表于 2026-6-10 07:51
+
+<blockquote>asikies 发表于 2026-6-10 06:50
+终于女性主人公了？早就说了bg没未来，日厂终于肯低头了？腐朽的老人终于被按住了？ ...</blockquote>
+难道不是贵族少女与奴隶少年在一起的故事吗
+
+*****
+
+####  汪达  
+##### 497#       发表于 2026-6-10 07:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69750121&amp;ptid=2283074" target="_blank">Dreammask 发表于 2026-6-10 07:39</a>
+
+这楼怎么这么快叠到十几页了
+
+我觉得人物渲染有大问题啊，ns2机能巨幅提升的情况下genesis还顶着3那套阴阳脸 ...</blockquote>
+本质是卡通渲染模仿的赛璐璐风格，明暗分割明显，而阴阳脸就是特定光线角度会出现的，现实傍晚时分拍照，侧对阳光就会是阴阳脸，加上赛璐璐风格就会出现这种效果，本来也不是技术问题
+
+
+*****
+
+####  D-JoeII  
+##### 498#       发表于 2026-6-10 07:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69749981&amp;ptid=2283074" target="_blank">xwr 发表于 2026-6-10 06:47</a>
+
+后面的续作会叫这些嘛？
+
+Xenoblade Exodus</blockquote>
+其他不說,先猜個美版會叫Xenoblade Megadrive吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xwr  
+##### 499#       发表于 2026-6-10 07:54
+
+ 本帖最后由 xwr 于 2026-6-10 07:57 编辑 
+
+我觉得脸其实还不错，就是衣服不太行，不显身材，那个亚麻色发精灵女侧身看起来应该胸部挺很有料的。这代细剑加上这套衣服，哪里是什么器士，分明是火枪手嘛，如果染成红色那就是赤魔嘛。
+

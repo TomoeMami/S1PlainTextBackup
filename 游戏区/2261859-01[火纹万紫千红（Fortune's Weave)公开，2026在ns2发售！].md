@@ -779,3 +779,20 @@ yysy这真不是什么正经火纹吧 你说这是风味暗喻幻想我都信<im
 由手机上传
 2026-6-10 06:47 上传
 
+
+*****
+
+####  takayama  
+##### 777#       发表于 2026-6-10 07:55
+
+四人CV:山下大辉，高山南，日野聪，伊濑茉莉也<img src="https://p.sda1.dev/32/976e27d409d07717d14abf0420773629/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT2125-4, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  karastar  
+##### 778#       发表于 2026-6-10 07:56
+
+人设还是仓花千夏啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
