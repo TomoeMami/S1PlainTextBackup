@@ -8,3 +8,11 @@
 
 单人玩法看上去挺丰富然后还有单独直面会。很想吐槽一手智慧再现一手余料建造（好吧有点牵强
 
+
+*****
+
+####  chosamy  
+##### 125#       发表于 2026-6-10 09:33
+
+感觉宣传得都差不多了结果还有直面会，不知道还能讲啥<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+

@@ -5401,3 +5401,78 @@ yysy，如果把xbg的人设当成xbx和xb23的折中感觉就能理解为什么
  ...</blockquote>
 真是绝了，怎么能搞得这么土的<img src="https://static.stage1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  herryk159  
+##### 565#       发表于 2026-6-10 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69750874&amp;ptid=2283074" target="_blank">vmon 发表于 2026-6-10 09:25</a>
+
+不苦大仇深那是不可能的，一代上来就死女主。
+
+—— 来自 realme RMX6688, Android 16, 鹅球 v3.5.99-alp ...</blockquote>
+想想也是，一代死青梅竹马，二代自己先死一次，三代大家都要死了。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  silversor  
+##### 566#       发表于 2026-6-10 09:31
+
+数了下ns1也就玩了11款游戏，感觉专门买台ns2就玩个xbg好像不太值，先云了，2030年再说了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不过那时可能更加不想玩游戏了...
+
+*****
+
+####  lbj5454  
+##### 567#       发表于 2026-6-10 09:31
+
+B站有异学家开始逐帧分析视频了吗？
+
+
+*****
+
+####  woaimiyabi  
+##### 568#       发表于 2026-6-10 09:32
+
+感觉人设不是问题，我不满意的是远景画面有点糊 不知道是为了什么妥协的。
+
+*****
+
+####  根正苗红  
+##### 569#       发表于 2026-6-10 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69750643&amp;ptid=2283074" target="_blank">阿卵真是牛逼 发表于 2026-6-10 09:04</a>
+是前面有人说都启用网红画师了不如声优用🐑我才再去听了一遍我也觉得是小松但不能确定，第一不确定小松20 ...</blockquote>
+小松石川二选一吧，绝无新人可能<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woaimiyabi  
+##### 570#       发表于 2026-6-10 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69750948&amp;ptid=2283074" target="_blank">lbj5454 发表于 2026-6-10 09:31</a>
+
+B站有异学家开始逐帧分析视频了吗？</blockquote>
+微博好像有分析地图的 有一种白色的塔遍布在 pv很多地图场景中，开头的城镇边上也有这个白色的高塔。
+
+*****
+
+####  电脑  
+##### 571#       发表于 2026-6-10 09:34
+
+目前还没大仍子角色吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  awy002  
+##### 572#       发表于 2026-6-10 09:37
+
+米山舞画过啥大奶角色吗
+
+*****
+
+####  S1阿彬  
+##### 573#       发表于 2026-6-10 09:37
+
+为什么人物一上特效画面这么脏乱差，跟xb3的片差太多了
+

@@ -930,3 +930,168 @@ is掉钱眼里了，风花雪月模式能最大程度复用素材，制造话题
 
 暗荣的战斗动画就是逊啦，engage本社做的多酷炫，节奏感多好。
 
+
+*****
+
+####  塞维利亚理发师  
+##### 793#       发表于 2026-6-10 09:29
+
+不是说万紫千红没有暗耻标吗
+
+*****
+
+####  duraa  
+##### 794#       发表于 2026-6-10 09:31
+
+这次没光荣标，做呲了别摔锅哦<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  发呆的龙虾  
+##### 795#       发表于 2026-6-10 09:33
+
+笑死，甩了光荣做成这鸟样，真有你的is，三房和engage的优点一起丢了，全挑缺点整合是吧。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhwpjy  
+##### 796#       发表于 2026-6-10 09:35
+
+部分出场角色
+
+<img src="https://img.stage1st.com/forum/202606/10/093517j494r6a6buqapsp9.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3063.jpeg</strong> (165.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 09:35 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/093517kjrgeehqevkueyp0.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3061.jpeg</strong> (119.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 09:35 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/093517pm693oqq2jjhvhvp.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3062.jpeg</strong> (122.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 09:35 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/093517cebephlz3ezcxzpu.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3056.jpeg</strong> (167.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 09:35 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/093517ocoxnmn4lhc7non7.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3057.jpeg</strong> (143.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 09:35 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/093517z08mz9ghf7fzfu9a.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3060.jpeg</strong> (225.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 09:35 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/093518i6z91sck70w16u01.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3055.jpeg</strong> (121.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 09:35 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/093518k4g84yx7448t7447.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3053.jpeg</strong> (152.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 09:35 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/093518qdm0glc0qddf2jk8.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3051.jpeg</strong> (100.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 09:35 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/093519akk2fhpovvrpv4nv.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3043.jpeg</strong> (170.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 09:35 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/093519bypqiane5qkhqbqy.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3041.jpeg</strong> (183.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 09:35 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/093519zk1isgr47nnas61g.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3064.jpeg</strong> (197.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 09:35 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/093519yjedmpj3jtzil31m.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3045.jpeg</strong> (181.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 09:35 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/093521xuxjsfp55wdjmp5m.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3066.jpeg</strong> (100.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 09:35 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/093521t9mbjrnlzg094iyn.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3065.jpeg</strong> (139.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 09:35 上传
+
+<img src="https://img.stage1st.com/forum/202606/10/093521yvd43lzrb3rlk3lm.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3067.jpeg</strong> (131.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 09:35 上传
+
+*****
+
+####  ReiFukai  
+##### 797#       发表于 2026-6-10 09:37
+
+三房变四房？
+
