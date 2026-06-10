@@ -4786,3 +4786,52 @@ Xenoblade Exodus</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Ollie  
+##### 502#       发表于 2026-6-10 08:08
+
+有清田啊，期待下音乐
+
+*****
+
+####  lost-star  
+##### 503#       发表于 2026-6-10 08:09
+
+好了，人设拉了，音乐拉了，世界观也拉了，可以哀兵了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nozomitech  
+##### 504#       发表于 2026-6-10 08:09
+
+这作人设和P6一样虽然和前作比是在开倒车但勉强还能接受，火纹和DQ新作的人设真的是难绷到买的欲望都没有
+
+
+*****
+
+####  kivz  
+##### 505#       发表于 2026-6-10 08:13
+
+<img src="https://p.sda1.dev/32/e11b7181c190a27128cc85e23dd89729/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/f3be05a52b0dc14fdcc819324ea8db33/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/abbe0ca513fe7afae9981ab151c96f46/image.jpg" referrerpolicy="no-referrer">
+是藏还是漏啊mono<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asikies  
+##### 506#       发表于 2026-6-10 08:14
+
+<blockquote>maomaoying 发表于 2026-6-10 07:51
+难道不是贵族少女与奴隶少年在一起的故事吗</blockquote>
+很可能是为了把bg党骗进来杀，奴隶还想娶贵族？癞蛤蟆吃天鹅肉这合理吗？明显是要跟金长弯贵族少女组cp。
+
+*****
+
+####  xwr  
+##### 507#       发表于 2026-6-10 08:14
+
+这次发布会，火纹有身材，但是肤色比较深，XB没身材，但是肤色比较浅，如果能折中一下就好了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
