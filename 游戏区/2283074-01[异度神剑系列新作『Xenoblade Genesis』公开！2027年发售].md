@@ -6114,3 +6114,51 @@ gqgg又拿出阿尼玛阿尼姆斯这套说明xbg肯定又是男女cp锁死的</
 —— 来自 samsung SM-S9380, Android 15, 鹅球 v ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">那个是日文的盲目吧，是不是形容女主性格不计后果，不一定是瞎眼的意思吧
 
+
+*****
+
+####  asikies  
+##### 632#       发表于 2026-6-10 10:57
+
+<blockquote>ZyLintheMax 发表于 2026-6-10 08:43
+高桥是铁血bg战士望周知</blockquote>
+难怪这系列一直不温不火。
+
+*****
+
+####  ParukiaMKII  
+##### 633#       发表于 2026-6-10 10:57
+
+这个黑色描边有点难受
+
+*****
+
+####  feizong  
+##### 634#       发表于 2026-6-10 10:59
+
+这陨石坑看着是被巨大飞船砸的，加上环形世界，中期一转科幻没毛病，希望不要翻车<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xwr  
+##### 635#       发表于 2026-6-10 11:01
+
+已知角色里似乎没有奶量担当，前途堪忧啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HATENA  
+##### 636#       发表于 2026-6-10 11:02
+
+<blockquote>riin2 发表于 2026-6-10 10:42
+现在的异度粉be like</blockquote>
+看笑了，xbx讲好了吗，xb3讲好了吗
+
+*****
+
+####  milky658  
+##### 637#       发表于 2026-6-10 11:02
+
+人设也算不上丑，就是没啥记忆点
+
