@@ -839,3 +839,39 @@ yysy这真不是什么正经火纹吧 你说这是风味暗喻幻想我都信<im
 
 没办法仓花+三房系统就是比engage好卖<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈耶克的大手发力了
 
+
+*****
+
+####  罐子  
+##### 784#       发表于 2026-6-10 08:49
+
+三房和engage是两个制作组分别独立开发的吗？
+
+怎么感觉战斗动画又退步到三房水平了
+
+*****
+
+####  kalavinka  
+##### 785#       发表于 2026-6-10 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748921&amp;ptid=2261859" target="_blank">wilkyway 发表于 2026-6-9 23:38</a>
+上次那个黑毛眼镜娘没出来啊 不能是变成白色这个了吧</blockquote>
+这呢 应该就是脏辫哥势力的
+
+<img src="https://img.stage1st.com/forum/202606/10/085059vxkulfxoz28x5fku.png" referrerpolicy="no-referrer">
+
+<strong>img_2102.png</strong> (637.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 08:50 上传
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  一步成诗  
+##### 786#       发表于 2026-6-10 08:51
+
+三房的人设+engage系统很难做吗，取其精华去其糟粕会不会<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
