@@ -903,3 +903,30 @@ is掉钱眼里了，风花雪月模式能最大程度复用素材，制造话题
 
 取其精华吗，我看都取到真东西了，人设和战斗演出都拿了拉跨的那边<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，3 黑皮主角，尤其是女王这种设计属于是脑子进水了，照着红秋裤抄一个都不会，存在选线操作的话属于是逼人不选
 
+
+*****
+
+####  wgoenitz  
+##### 790#       发表于 2026-6-10 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69750501&amp;ptid=2261859" target="_blank">罐子 发表于 2026-6-10 08:49</a>
+
+三房和engage是两个制作组分别独立开发的吗？
+
+怎么感觉战斗动画又退步到三房水平了 ...</blockquote>
+三房系列是暗荣代工的
+
+*****
+
+####  Acatv  
+##### 791#       发表于 2026-6-10 09:22
+
+借楼问一下，现想在ns2上补风花雪月，还是直接买以前的卡带吗？以后会不会出ns2增强版之类的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wgoenitz  
+##### 792#       发表于 2026-6-10 09:22
+
+暗荣的战斗动画就是逊啦，engage本社做的多酷炫，节奏感多好。
+
