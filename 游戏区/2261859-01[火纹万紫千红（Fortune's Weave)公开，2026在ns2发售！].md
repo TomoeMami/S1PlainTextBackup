@@ -1661,3 +1661,11 @@ XX者只是苏蒂斯的口癖之类的东西吧，她对贝的叫法都是能套
 
 熟女苏谛斯我可以接受，黑皮女王不大行，男人味太重只能做兄弟，而且还是柯南声线<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 858#       发表于 2026-6-10 23:24
+
+皇女我看成四只手，然后看肤色还觉得很合理
+
