@@ -8096,3 +8096,35 @@ xb3那会是第一个pv出来六人人设图就出来了，这次除了女主外
 
 —— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Gniyehz  
+##### 803#       发表于 2026-6-10 20:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69755734&amp;ptid=2283074" target="_blank">iuiuk2 发表于 2026-6-10 20:19</a>
+信天上的区域不是远景贴图能无缝移动，不如信我是秦始皇......虽然我想这么说，但是万一呢 ...</blockquote>
+天上的如果是贴图的话，看着不会这么低模，用贴图的话，远景的视觉效果可比现在好多了，比如xbx天上的三个月亮。
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  巴尔干炮  
+##### 804#       发表于 2026-6-10 20:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69755799&amp;ptid=2283074" target="_blank">海晟天锻 发表于 2026-6-10 20:35</a>
+
+xb3那会是第一个pv出来六人人设图就出来了，这次除了女主外其他几个连名都没有，绝对是藏东西了
+
+—— 来自 ...</blockquote>
+女主也藏了真正的目的，来学院可能是为了调查什么，大概率和他哥有关。
+
+*****
+
+####  misya  
+##### 805#       发表于 2026-6-10 20:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">其他人先不说，女主是越看越喜欢了
+
