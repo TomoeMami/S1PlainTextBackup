@@ -7196,3 +7196,40 @@ https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findp ...</blockquote>
 
 2026-6-10 13:19 上传
 
+
+*****
+
+####  没取名啊  
+##### 723#       发表于 2026-6-10 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753126&amp;ptid=2283074" target="_blank">Link213 发表于 2026-6-10 13:19</a>
+这代画风渲染怎么怪怪的</blockquote>
+带点水彩晕染风格的美术，用色偏亮，阴影色里用了大量的蓝
+
+*****
+
+####  woaimiyabi  
+##### 724#       发表于 2026-6-10 13:28
+
+说实话这植被对比前几作确实进步巨大。
+
+*****
+
+####  a3a4sc  
+##### 725#       发表于 2026-6-10 13:30
+
+
+*****
+
+####  shpdw  
+##### 726#       发表于 2026-6-10 13:30
+
+米山舞的插画风格的锅，又想做出插画那个kirakira用色大胆的彩度，但对游戏这种会长期看的挺刺眼的。而且建筑灰蒙蒙的又很搞笑。
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 727#       发表于 2026-6-10 13:33
+
+远处的岩石啥的黑边真的太明显啦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
