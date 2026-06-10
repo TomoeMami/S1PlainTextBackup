@@ -2203,3 +2203,75 @@ TOB据说有个原因是这游戏原版STEAM上锁日区（富泽上任后发售
 
 原汁原味这个，其实从TOV开始就这样，GF还算是开始加了QOL，只能说这系列缺课太多，FF那些系列早十来年就走完的现世代移植工作现在才开始慢慢推进
 
+
+*****
+
+####  alucardcz  
+##### 214#       发表于 2026-6-10 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753884&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-6-10 15:21</a>
+
+X和X2是同一个外包组做的
+
+TOB据说有个原因是这游戏原版STEAM上锁日区（富泽上任后发售的STEAM版TALES才解 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么日本人怎么看tos这种连日文都没有的复刻？
+
+*****
+
+####  qiyu1234  
+##### 215#         楼主| 发表于 2026-6-10 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753899&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-10 15:24</a>
+
+那么日本人怎么看tos这种连日文都没有的复刻？</blockquote>
+TOS STEAM版锁日区的呀，所以后面不是补了个主机独占的TOS Remastered吗，当然移植做的太烂被喷爆了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 216#       发表于 2026-6-10 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753906&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-6-10 15:25</a>
+
+TOS STEAM版锁日区的呀，所以后面不是补了个主机独占的TOS Remastered吗，当然移植做的太烂被喷爆了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么为什么TOS Remastered没上steam tobhd又可以了呢
+
+*****
+
+####  qiyu1234  
+##### 217#         楼主| 发表于 2026-6-10 15:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753916&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-10 15:26</a>
+
+那么为什么TOS Remastered没上steam tobhd又可以了呢</blockquote>
+TOS 复刻就不是 Remastered Project的一部分，这个企划从TOGF才开始的
+
+当年给的理由就是STEAM版已经推出过了（<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这也行吗，考虑到PC TOS是马场走之前出的，还是严重怀疑以前的TO有些奇怪的发行协议）
+
+*****
+
+####  TheOccuria  
+##### 218#       发表于 2026-6-10 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753870&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-10 15:17</a>
+我们萌新买前都没看过什么相关信息 无脑入！ 也就偶尔翻个车！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初我还在贴吧里发视频呢，本来觉得这系列挺有想法的，在那群共斗里，没想到被自己搞死了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  TheOccuria  
+##### 219#       发表于 2026-6-10 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753865&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-6-10 15:17</a>
+海外推进勤快轮不到马场，他当年接受欧美媒体采访时直接说我们本地化是从日版发售后才开始做
+
+当然也有好有 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马场我记得是海外跑的勤快，也加快了海外版本的速度吧，反正白皮那边挺喜欢他的
+
+富泽把自己带大的项目交出去过来拉一把to，这挺好的，但是产能真的不行，如果一直全力开发的话新作得卖多少才能回收成本啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
