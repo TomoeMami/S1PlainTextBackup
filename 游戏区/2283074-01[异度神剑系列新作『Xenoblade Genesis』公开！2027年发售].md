@@ -7377,3 +7377,72 @@ XB系列对我最大的乐趣不是啥人设，而是遐想连篇的可能
 
 战斗系统会改么，我想要arpg会有吗
 
+
+*****
+
+####  冰风血羽  
+##### 741#       发表于 2026-6-10 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753526&amp;ptid=2283074" target="_blank">秋月孝三 发表于 2026-6-10 14:24</a>
+
+今天的泥潭，真的很棒。</blockquote>
+
+<img src="https://img.stage1st.com/forum/202606/10/143407qrzjwjqwhjjhjhxr.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20260610143354.png</strong> (719.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 14:34 上传
+
+随便让香蕉做了一张<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狸狸狐  
+##### 742#       发表于 2026-6-10 14:34
+
+<blockquote>ParukiaMKII 发表于 2026-6-10 14:31
+战斗系统会改么，我想要arpg会有吗</blockquote>
+看xb123的更新估计能看出些意思
+
+xb1高速移动载具
+
+xb2新增的动作战斗系统
+
+xb3幸存者like游戏
+
+这些可能都是新作试水
+
+*****
+
+####  serj005  
+##### 743#       发表于 2026-6-10 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753610&amp;ptid=2283074" target="_blank">狸狸狐 发表于 2026-6-10 14:34</a>
+看xb123的更新估计能看出些意思
+
+xb1高速移动载具</blockquote>
+新作pv已经有坐骑了，载具在xb这种重跑路的游戏是刚需。
+
+*****
+
+####  海晟天锻  
+##### 744#       发表于 2026-6-10 14:39
+
+既然确定了那张图是真的，就该想想女主为什么是睁眼瞎和怎么从乡下贵族变成奴隶的了，感觉序章结尾女主就可能被自己人背刺，然后给卖了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  名居守  
+##### 745#       发表于 2026-6-10 14:42
+
+“喝吧，地狱咆哮——这是兽人的命运，你们都将为王。”
+
+“但是，古尔丹，代价是什么呢?”
+
+哦串台词了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

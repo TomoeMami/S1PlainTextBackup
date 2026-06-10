@@ -1528,3 +1528,25 @@ is掉钱眼里了，风花雪月模式能最大程度复用素材，制造话题
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  Nez  
+##### 845#       发表于 2026-6-10 14:38
+
+预告更新中文字幕了，苏谛斯最后说话的对象是“晦冥逾深渊者”
+
+xxx者都是眷属名字的格式，比如蕾雅的纯白无暇者
+
+*****
+
+####  血狂毘沙门  
+##### 846#       发表于 2026-6-10 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753582&amp;ptid=2261859" target="_blank">Nez 发表于 2026-6-10 14:31</a>
+
+感觉至少有一条线要砍苏谛斯，拱火纹章不得不品鉴</blockquote>
+这代的四个分支主角看背景应该立场不是完全对立的，搞不好最后能全收
+
+但至于砍不砍苏帝斯，我觉得自捏主角的身份更特别一点，搞不好自捏才是那个要砍苏迪丝的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
