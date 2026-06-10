@@ -7982,3 +7982,17 @@ b站ign搬了4k的源
 —— 来自 samsung SM-S9380, Android 15 ...</blockquote>
 光环无限是吧
 
+
+*****
+
+####  woaimiyabi  
+##### 794#       发表于 2026-6-10 18:57
+
+ 本帖最后由 woaimiyabi 于 2026-6-10 19:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69755172&amp;ptid=2283074" target="_blank">freedom12 发表于 2026-6-10 18:31</a>
+
+这张图看起来还有海天线的，可能是游戏的实际效果并非纯粹物理模拟，也可能朝向的是桶的两个立面
+
+另外仅以 ...</blockquote>
+我昨天看到有人提起过 这个船的帆方向不正常，我没理解有何问题。
+
