@@ -2400,3 +2400,14 @@ BOSS名字忘了。有个机制，每回合暴动。</blockquote>
 
 攻略看得太费劲了 经常好几个攻略互相冲突 而且每个人都说得头头是道<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三谷歩夢  
+##### 962#       发表于 2026-6-10 15:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69753112&amp;ptid=2256125" target="_blank">21wwwb 发表于 2026-6-10 13:17</a>
+
+攻略看得太费劲了 经常好几个攻略互相冲突 而且每个人都说得头头是道</blockquote>
+刷存档直接上批站找几个经常发局外攻略的UP主看就行了，构筑越邪门理解越深
+
