@@ -32,3 +32,14 @@
 
 只记得这游戏发售没几个月就跌到不到200了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 3689#       发表于 2026-6-10 10:43
+
+一个想法，副岛和桥野不会在行当年金子之旧事吧。
+
+新新p组做完5r做3r，做完3r做4r，做完4r做6(待定)。
+副岛和桥野整完refantasy后也不会被架空了吧。
+

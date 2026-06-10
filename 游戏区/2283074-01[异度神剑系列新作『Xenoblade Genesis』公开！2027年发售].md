@@ -5989,3 +5989,98 @@ gqgg又拿出阿尼玛阿尼姆斯这套说明xbg肯定又是男女cp锁死的<i
 
 泄露的那个图女主名字和现在的都不一样，怎么都得是早期泄露吧，奴隶这些未必后面还会有
 
+
+*****
+
+####  nozomitech  
+##### 619#       发表于 2026-6-10 10:38
+
+<blockquote>秋月孝三 发表于 2026-6-10 03:30
+gqgg又拿出阿尼玛阿尼姆斯这套说明xbg肯定又是男女cp锁死的</blockquote>
+盲猜男女主一对，贵族女和那个白发黑皮，然后剩下两个矮子一对<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SorroFrost  
+##### 620#       发表于 2026-6-10 10:40
+
+地图方面希望能多给些惊喜，没想到monolith这次在地图上有些新的改变
+
+*****
+
+####  28201  
+##### 621#       发表于 2026-6-10 10:42
+
+乍一看中世纪世界观，其实有高科技，这设定各种作品也用得挺多了。
+
+比较在意是女主奴隶还盲眼这点
+
+*****
+
+####  topia  
+##### 622#       发表于 2026-6-10 10:42
+
+要是能无缝环世界就吹爆，要是还只是个背景，区域靠切地图那就拉完了
+
+
+*****
+
+####  riin2  
+##### 623#       发表于 2026-6-10 10:42
+
+<img src="https://img.stage1st.com/forum/202606/10/104143sqqd4u3ffu39sfwf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (141.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 10:41 上传
+
+现在的异度粉be like
+
+*****
+
+####  アヘ顔  
+##### 624#       发表于 2026-6-10 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751696&amp;ptid=2283074" target="_blank">riin2 发表于 2026-6-10 10:42</a>
+现在的异度粉be like</blockquote>
+所以2代粉=二游吃？
+
+*****
+
+####  星花  
+##### 625#       发表于 2026-6-10 10:44
+
+<blockquote>topia 发表于 2026-6-10 10:42
+要是能无缝环世界就吹爆，要是还只是个背景，区域靠切地图那就拉完了</blockquote>
+无缝环世界是基础。要吹爆需要两点之间线段最短。直接飞跃。
+
+*****
+
+####  topia  
+##### 626#       发表于 2026-6-10 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751729&amp;ptid=2283074" target="_blank">星花 发表于 2026-6-10 10:44</a>
+无缝环世界是基础。要吹爆需要两点之间线段最短。直接飞跃。</blockquote>
+真的做得到吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">xbx还有前车之鉴呢
+
+*****
+
+####  海晟天锻  
+##### 627#       发表于 2026-6-10 10:47
+
+希望盲眼是真的，真的现在很少见到带着残疾属性的女主了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  血狂毘沙门  
+##### 628#       发表于 2026-6-10 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751724&amp;ptid=2283074" target="_blank">アヘ顔 发表于 2026-6-10 10:44</a>
+
+所以2代粉=二游吃？</blockquote>
+2算是国产二游的野爹了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

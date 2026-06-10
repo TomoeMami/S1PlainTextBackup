@@ -1940,3 +1940,14 @@ A.狐狸 B.橘猫 C.松鼠 D.眼镜娘
 我对填档期没意见，但是搞得比原版还差就有很大意见了，心灵和圣洁在psv的规格比永恒强多了，移植现代平 ...</blockquote>
 toir确实还行，tohr就是一坨浓屑，还不如原汁原味搬上来呢
 
+
+*****
+
+####  river1981  
+##### 192#       发表于 2026-6-10 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748612&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-6-9 23:18</a>
+
+明知是石也要支持吗 100块也是钱啊</blockquote>
+看在有官中的份上，这个屎我吃了
+
