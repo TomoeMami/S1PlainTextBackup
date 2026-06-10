@@ -895,3 +895,11 @@ is掉钱眼里了，风花雪月模式能最大程度复用素材，制造话题
 三房的人设+engage系统很难做吗，取其精华去其糟粕会不会</blockquote>
 +1<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rainwedell  
+##### 789#       发表于 2026-6-10 09:11
+
+取其精华吗，我看都取到真东西了，人设和战斗演出都拿了拉跨的那边<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，3 黑皮主角，尤其是女王这种设计属于是脑子进水了，照着红秋裤抄一个都不会，存在选线操作的话属于是逼人不选
+
