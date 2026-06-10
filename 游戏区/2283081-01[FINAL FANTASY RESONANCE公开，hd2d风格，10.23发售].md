@@ -604,3 +604,11 @@ ffbe也活了10年，我玩了3年，在se的手游里也算精品了<img src="h
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  shinra-01  
+##### 61#       发表于 2026-6-10 22:38
+
+这hd-2d的表现力完爆迄今为止所有的hd-2d作品十条街，给ff的规格还是高啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
