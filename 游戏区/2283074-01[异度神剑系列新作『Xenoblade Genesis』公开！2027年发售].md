@@ -7630,3 +7630,13 @@ xb1高速移动载具</blockquote>
 我本身喜欢剑与魔法, 地图又是青山绿水阳光明媚 , 加上这个环带地图 ,还有高速移动载具,感觉太棒了  ,  就 ...</blockquote>
 没有任何不转科幻的可能性。过场里武器上的摩纳多图标都亮起了。
 
+
+*****
+
+####  woaimiyabi  
+##### 761#       发表于 2026-6-10 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69754028&amp;ptid=2283074" target="_blank">狸狸狐 发表于 2026-6-10 15:46</a>
+看起来xbg的环世界也是取巧用了类似殖民卫星的设计。六个太阳可能是在内部运作的人工能量源。真正的 ...</blockquote>
+最后一张图右上角有类似火山的区域，这么看右边也有一片大陆没展示出来。
+
