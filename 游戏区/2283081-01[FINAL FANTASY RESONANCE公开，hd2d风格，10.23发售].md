@@ -472,3 +472,15 @@ steam先预购了<img src="https://static.stage1st.com/image/smiley/face2017/037
 克劳德是纯召唤兽还是能当队友的</blockquote>
 估计纯召唤兽，好奇这些召唤兽是怎么获得的
 
+
+*****
+
+####  Piano-Forest  
+##### 50#       发表于 2026-6-10 12:08
+
+《最终幻想 RESONANCE》开发者访谈 以HD-2D画面重新构建的新作
+[https://weibo.com/ttarticle/x/m/show#/id=2309405308198231081012](https://weibo.com/ttarticle/x/m/show#/id=2309405308198231081012)
+
+『FF レゾナンス』「ワールドマップと飛空艇で世界を冒険できる要素は必ず入れる」。古きよき王道RPGの体験で新たな驚きを届ける「あのころの『FF』」の進化系【インタビュー】
+[https://www.famitsu.com/article/202606/76766](https://www.famitsu.com/article/202606/76766)
+

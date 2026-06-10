@@ -5933,3 +5933,14 @@ demo没打够，爽是挺爽，但感觉也看不出什么
 啊，这角力原来不是怪猎荒野那样随缘出的吗</blockquote>
 我说的是那个那个，X拼刀按Y Y拼刀按X的那个机制，记不清叫什么了
 
+
+*****
+
+####  57042711  
+##### 616#       发表于 2026-6-10 12:07
+
+看演示甚至能和触手怪刀剑相击的，有点可怕啊这游戏<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+还以为只要敌人体型差距大就没法用了呢…
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
