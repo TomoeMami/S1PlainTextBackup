@@ -7108,3 +7108,41 @@ xb2还有纯机娘怎么不说<img src="https://static.stage1st.com/image/smiley
 
 这地图感觉更类似东京受胎吧。一个球的内部，中间挂着一个球（六个太阳）。
 
+
+*****
+
+####  topia  
+##### 716#       发表于 2026-6-10 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69752934&amp;ptid=2283074" target="_blank">shpdw 发表于 2026-6-10 12:48</a>
+
+这地图感觉更类似东京受胎吧。一个球的内部，中间挂着一个球（六个太阳）。 ...</blockquote>
+主要是目前放出来的画面透视来看不太像个球
+[https://stage1st.com/2b/forum.ph ... 74&amp;pid=69749636](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2283074&amp;pid=69749636)
+
+对比一下之前我发的东京受胎里的透视角度，xbg有种像是个从圆柱体底面看侧面的感觉
+
+*****
+
+####  MrlOst  
+##### 717#       发表于 2026-6-10 12:52
+
+喜欢新白毛
+
+*****
+
+####  misya  
+##### 718#       发表于 2026-6-10 12:55
+
+<blockquote>VictorWJ 发表于 2026-6-10 12:37
+紫色的应该就是阿尼玛吧</blockquote>
+阿尼玛是灵魂=pneuma所以应该是绿色，pv有一帧点火就是冒绿光，相对的阿尼姆斯是理性应该是紫光
+
+<img src="https://img.stage1st.com/forum/202606/10/125552vgq4q1z5w1lg51vk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-06-10-12-55-40-63_149003a2d400f6adb210d7e357a3a646.jpg</strong> (131.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 12:55 上传
+
