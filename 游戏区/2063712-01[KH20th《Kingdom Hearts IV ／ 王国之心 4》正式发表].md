@@ -1842,3 +1842,33 @@ Play through the full KINGDOM HEARTS series in one comprehensive package before 
 
 <img src="https://p.sda1.dev/32/b779aaac798018fe7c0dca490df62804/1000168038.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 162#         楼主| 发表于 2026-6-10 12:36
+
+<img src="https://p.sda1.dev/32/2a2952443619d9335e19df0acd60f391/1000168040.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 162#         楼主| 发表于 2026-6-10 12:36
+
+<img src="https://p.sda1.dev/32/2a2952443619d9335e19df0acd60f391/1000168040.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 163#         楼主| 发表于 2026-6-10 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69752691&amp;ptid=2063712" target="_blank">Piano-Forest 发表于 2026-6-10 12:20</a>
+
+传闻：有两家澳洲零售商页面显示将于2027年发售
+
+Play through the full KINGDOM HEARTS series in one com ...</blockquote>
+在王国之心合集[I~III]简介的描述一致
+<img src="https://p.sda1.dev/32/a1f3cd45e73389a190a7810d2c26e770/20260610_123910.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/32/33481252f9909bb88671f724e6f9eb5b/20260610_123919.jpg" referrerpolicy="no-referrer">
+

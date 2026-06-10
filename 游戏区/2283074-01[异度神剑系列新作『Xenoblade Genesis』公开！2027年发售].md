@@ -7007,3 +7007,104 @@ xb2还有纯机娘怎么不说<img src="https://static.stage1st.com/image/smiley
 还有一点，泄露图里很明显的红色飘舞物，一开始我以为是血液。现在看来应该就是改成了现在的主题紫色特 ...</blockquote>
 紫色的应该就是阿尼玛吧
 
+
+*****
+
+####  hkguty  
+##### 706#       发表于 2026-6-10 12:30
+
+<blockquote>chizuru 发表于 2026-6-10 12:23
+泄露图里女主也是穿着校服</blockquote>
+想多了，那个设定图里的介绍说了服装是那个男主的熟人那里得来的，说起来，正式版的男女主跟泄露版的男女主名字一致吗，我都没留意
+
+*****
+
+####  VictorWJ  
+##### 707#       发表于 2026-6-10 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69751906&amp;ptid=2283074" target="_blank">xwr 发表于 2026-6-10 11:01</a>
+
+已知角色里似乎没有奶量担当，前途堪忧啊</blockquote>
+赌一波银发妹或者紫发妹是隐藏巨乳<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 708#       发表于 2026-6-10 12:33
+
+官网：[https://www.nintendo.com/jp/games/switch2/ab4fa/index.html](https://www.nintendo.com/jp/games/switch2/ab4fa/index.html)
+
+整体朴素了很多，没有bgm没有人物介绍，后续等pv2吧
+
+<img src="https://img.stage1st.com/forum/202606/10/123254ullesj3jzzedx2b7.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20260610123243.png</strong> (441.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 12:32 上传
+
+说起来pv里各个角色用技能的时候身上会有彩色的光，对应了这个logo上的新元素，应该就是本作的关键要素了
+
+*****
+
+####  woaimiyabi  
+##### 709#       发表于 2026-6-10 12:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69752774&amp;ptid=2283074" target="_blank">topia 发表于 2026-6-10 12:27</a>
+
+马是可以骑，但龙只有过场动画，能不能在地图里骑也是存疑</blockquote>
+确实 龙要是能骑感觉 两点之间自由穿梭是板上钉钉了
+
+*****
+
+####  小大头菜  
+##### 710#       发表于 2026-6-10 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69752824&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-6-10 12:34</a>
+确实 龙要是能骑感觉 两点之间自由穿梭是板上钉钉了</blockquote>
+想对穿，业界有无数种方法限高把你摁下来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2408A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  VictorWJ  
+##### 711#       发表于 2026-6-10 12:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69752496&amp;ptid=2283074" target="_blank">狸狸狐 发表于 2026-6-10 11:57</a>
+
+还有一点，泄露图里很明显的红色飘舞物，一开始我以为是血液。现在看来应该就是改成了现在的主题紫色特 ...</blockquote>
+紫色的应该就是阿尼玛吧
+
+
+*****
+
+####  沙发果冻  
+##### 712#       发表于 2026-6-10 12:42
+
+早期设定不要太当真，什么奴隶盲眼设定不一定能用上
+
+*****
+
+####  没取名啊  
+##### 713#       发表于 2026-6-10 12:44
+
+女主角还有个妹系属性，不知道她哥是会成为队友，会挂掉还是会和主角反目成仇
+
+*****
+
+####  星花  
+##### 714#       发表于 2026-6-10 12:45
+
+ 本帖最后由 星花 于 2026-6-10 12:46 编辑 
+
+双足飞龙就想对穿是想多了。对穿至少要接近大结局。早早旅行能力全开放地图就不用玩了。
+
+*****
+
+####  shpdw  
+##### 715#       发表于 2026-6-10 12:48
+
+这地图感觉更类似东京受胎吧。一个球的内部，中间挂着一个球（六个太阳）。
+
