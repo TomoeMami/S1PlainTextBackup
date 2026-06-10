@@ -543,3 +543,22 @@ https://www.famitsu.com/article/202606/76766
 
 就和抽卡抽的角色一样 那这些素材干脆就别用了 直接用原本的主角阵把游戏做好就行了
 
+
+*****
+
+####  ShitOverflow  
+##### 55#       发表于 2026-6-10 20:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">ffbe偷brave frontier的，hd2d偷last cloudia的，纯凯子产品线
+
+[论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  trentswd  
+##### 56#       发表于 2026-6-10 20:36
+
+ffbe本身的像素我很喜欢，但是游戏的玩法遭不住
+
+如果这个收录了ffbe的人物的话对我很有吸引力 就是日期太晚了 10月份大作云集，就不能现在出吗<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
