@@ -75,3 +75,47 @@ splatoon最大的魅力之一就是涂地不用杀人也能赢，而且银喷正
 
 削长爆破，强化短爆破，啥意思。（新星使应该欢喜吗，感觉范围本来就挺大了
 
+
+*****
+
+####  shirolin  
+##### 5892#       发表于 2026-6-10 11:16
+
+v11.2.0更新内容
+
+<img src="https://img.stage1st.com/forum/202606/10/111601c29kk1b31yxkx3kj.png" referrerpolicy="no-referrer">
+
+<strong>Image_1781055740803.png</strong> (502.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 11:16 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  秋月孝三  
+##### 5893#       发表于 2026-6-10 11:16
+
+在🍈弟的情报操作下，52再次只加10spp。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  shirolin  
+##### 5894#       发表于 2026-6-10 11:16
+
+「6月9日直面会后 斯普拉遁新闻一图流」
+
+<img src="https://img.stage1st.com/forum/202606/10/111640albxq0h5hbe2z74w.jpg" referrerpolicy="no-referrer">
+
+<strong>d285585d-0081-4e90-ac0a-f12504a9eb29.jpg</strong> (1.85 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-10 11:16 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

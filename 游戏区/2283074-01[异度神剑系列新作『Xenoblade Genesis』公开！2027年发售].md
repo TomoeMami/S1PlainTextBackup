@@ -6206,3 +6206,45 @@ gqgg又拿出阿尼玛阿尼姆斯这套说明xbg肯定又是男女cp锁死的</
 <img src="https://static.stage1st.com/image/smiley/carton2017/384.png" referrerpolicy="no-referrer">想想都要爆血压了
 还是真盲目吧
 
+
+*****
+
+####  caps洛奇  
+##### 642#       发表于 2026-6-10 11:19
+
+大胆猜测mono是先有了想做一个环形、球内世界大地图的想法，才开始编世界观
+
+想起了星际拓荒的鹿人星，这种大胆的地图设计，探索（特别是拥有自由飞行能力之后）、加上世界动态变化 太爽了 
+
+*****
+
+####  topia  
+##### 643#       发表于 2026-6-10 11:21
+
+想起了当年xb3的pv时候我还相信铁巨神和衔尾蛇可以满地图跑呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老老实实等后续了
+
+*****
+
+####  海晟天锻  
+##### 644#       发表于 2026-6-10 11:22
+
+真能两点之间直线距离那别说人设了，光冲着地图都值得玩，但觉得mono没那个技术力<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  heseran  
+##### 645#       发表于 2026-6-10 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69750766&amp;ptid=2283074" target="_blank">沙发果冻 发表于 2026-6-10 09:15</a>
+xb2虽然是开裆裤小男孩，但你不能否认的是人设很有特色，主角你要有特色才行呀，要一眼能从NPC里认出来那 ...</blockquote>
+万万没想到当年被狂喷的莱克斯如今能有这种洗法，果然时间会冲淡一切<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没取名啊  
+##### 646#       发表于 2026-6-10 11:24
+
+希望出了学校后能来点新队友吧，pv里那个卷毛长得太没特色了，不希望他在主角队里
+
