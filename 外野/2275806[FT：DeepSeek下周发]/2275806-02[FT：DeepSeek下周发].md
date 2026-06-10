@@ -2375,3 +2375,16 @@ https://github.com/can1357/oh-my-pi  是这个吗？</blockquote>
 
 什么鬼啊，历史记录怎么被清空了。。是我一个人的问题吗
 
+
+*****
+
+####  杀人鲸  
+##### 1687#       发表于 2026-6-10 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69755243&amp;ptid=2275806" target="_blank">谎称 发表于 2026-6-10 18:43</a>
+什么鬼啊，我更新了一下app，历史记录怎么被清空了。。是我一个人的问题吗 ...</blockquote>
+用的是官方的APP吗？我也更新了，没有遇到你的这个问题呀。
+向官方反馈一下吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

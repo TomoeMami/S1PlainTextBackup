@@ -8443,3 +8443,82 @@ palow的话，越像人越难看，越不像人越好看<img src="https://static
 
 重看了遍结尾感觉这个地图不是球体也不是圆柱体，是花苞状，类似红酒杯🍷，太阳不像是在中央
 
+
+*****
+
+####  findpkq  
+##### 840#       发表于 2026-6-10 22:29
+
+舅舅能看到的内容会不会太多了<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+脚本这边目前看推竹田肯定还有参与，兵头可能没参与，
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  kisaragi凛  
+##### 841#       发表于 2026-6-10 22:29
+
+看了下舅舅说战斗的时候女主需要男主引导的，宣传视频里看不出来的
+
+*****
+
+####  Link213  
+##### 842#       发表于 2026-6-10 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69756321&amp;ptid=2283074" target="_blank">kisaragi凛 发表于 2026-6-10 22:29</a>
+
+看了下舅舅说战斗的时候女主需要男主引导的，宣传视频里看不出来的</blockquote>
+哪个舅舅？
+
+*****
+
+####  狸狸狐  
+##### 843#       发表于 2026-6-10 22:32
+
+<blockquote>kisaragi凛 发表于 2026-6-10 22:29
+看了下舅舅说战斗的时候女主需要男主引导的，宣传视频里看不出来的</blockquote>
+这个引导应该是瞎眼以后的常驻战斗系统了。现在pv是序章，估计就是教学章节，不涉及这个系统。
+
+
+*****
+
+####  kisaragi凛  
+##### 844#       发表于 2026-6-10 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69756326&amp;ptid=2283074" target="_blank">Link213 发表于 2026-6-10 22:31</a>
+
+哪个舅舅？</blockquote>
+还是那个爆料男女主设定图的
+
+*****
+
+####  HATENA  
+##### 845#       发表于 2026-6-10 22:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69755871&amp;ptid=2283074" target="_blank">巴尔干炮 发表于 2026-6-10 20:51</a>
+
+3的问题是拖家带口，发售前我就说了不要给前作人物太多戏份，结果高桥在异度传说里的**病又犯了。XBG不用 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你真信高桥吗，我一开始也以为xb2是个完全新的世界观捏
+
+*****
+
+####  Link213  
+##### 846#       发表于 2026-6-10 22:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69756331&amp;ptid=2283074" target="_blank">kisaragi凛 发表于 2026-6-10 22:32</a>
+
+还是那个爆料男女主设定图的</blockquote>
+现在还在B站爆料吗？
+
+*****
+
+####  ArthurDent  
+##### 847#       发表于 2026-6-10 22:34
+
+这个高达，是哪个高达？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
