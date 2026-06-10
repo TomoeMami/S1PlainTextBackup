@@ -7446,3 +7446,11 @@ xb1高速移动载具</blockquote>
 
 哦串台词了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hhgjf  
+##### 746#       发表于 2026-6-10 14:45
+
+如果真是小红帽/legacy改名，不知道是不是真的能成ARPG或者动作成分增加了。
+

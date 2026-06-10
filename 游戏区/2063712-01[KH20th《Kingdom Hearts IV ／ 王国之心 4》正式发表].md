@@ -1872,3 +1872,15 @@ Play through the full KINGDOM HEARTS series in one com ...</blockquote>
 <img src="https://p.sda1.dev/32/a1f3cd45e73389a190a7810d2c26e770/20260610_123910.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/32/33481252f9909bb88671f724e6f9eb5b/20260610_123919.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ——裂锦——  
+##### 164#       发表于 2026-6-10 14:49
+
+<blockquote>Piano-Forest 发表于 2026-6-10 12:20
+传闻：有两家澳洲零售商页面显示将于2027年发售
+
+Play through the full KINGDOM HEARTS series in one com ...</blockquote>
+如果能按计划发售那还好，澳洲的2027年不会像日本那样持续到第二年一季度去吧
+
