@@ -517,3 +517,19 @@ steam先预购了<img src="https://static.stage1st.com/image/smiley/face2017/037
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  mad55555  
+##### 53#       发表于 2026-6-10 14:16
+
+这部是个什么情况
+
+https://www.famitsu.com/article/202606/76766
+
+访谈说这是浅野组的作品，但是目前STAFF表浅野含量为零
+
+游戏是基于第四开发部的FFBE改编，但是看上去也没有广野启
+
+倒是特地拿成品给吉田直树看了，所以这是算谁的游戏？
+
