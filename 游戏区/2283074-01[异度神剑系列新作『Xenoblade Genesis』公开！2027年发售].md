@@ -7602,3 +7602,20 @@ xb1高速移动载具</blockquote>
 
 这阿尼玛是正式翻译吗，之后会变成梗吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kyonkoism  
+##### 758#       发表于 2026-6-10 16:15
+
+你打坏了我的阿尼玛！呀！我的阿尼玛啊！<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  eraso  
+##### 759#       发表于 2026-6-10 16:19
+
+不是，这个环绕的地图场景设计可以不玩吗？玩xb系列不就期待这个吗？
+
