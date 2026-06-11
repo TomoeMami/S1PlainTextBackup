@@ -454,3 +454,16 @@ Guro看得少，不能把小怪吸入淋逼，搞胎内回归那一套吗</block
 
 这不会被拳法家冲爆吗
 
+
+*****
+
+####  林无德  
+##### 48#       发表于 2026-6-11 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69757025&amp;ptid=2283115" target="_blank">达达达达葱 发表于 2026-6-11 06:33</a>
+
+灰色双性外星犹太人是什么</blockquote>
+俄罗斯癫佬搞出来的东西，很有意思<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[https://www.bilibili.com/video/BV13gidY3EQg/](https://www.bilibili.com/video/BV13gidY3EQg/)
+
