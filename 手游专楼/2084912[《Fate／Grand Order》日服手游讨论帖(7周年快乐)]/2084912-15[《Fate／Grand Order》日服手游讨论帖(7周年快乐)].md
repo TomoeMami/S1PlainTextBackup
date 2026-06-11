@@ -1062,3 +1062,26 @@ X_536KSAJOD2{CJ{B$QV~%0.jpg
 小玉是谁</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狐狸 毕竟上次强化的宝威就是这活动给的 红师傅能不能再教点别的
 
+
+*****
+
+####  UNISONIA  
+##### 20936#       发表于 2026-6-11 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69758404&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2026-6-11 10:44</a>
+
+为什么泳装会和这个有关系，有没有说法
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+新加的加成角色（前两次阎魔亭没有）泳装角色居多
+
+*****
+
+####  alucardcz  
+##### 20937#       发表于 2026-6-11 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69758460&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-6-11 10:51</a>
+
+狐狸 毕竟上次强化的宝威就是这活动给的 红师傅能不能再教点别的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咋回事 这不是很明显在阴阳吗
+
