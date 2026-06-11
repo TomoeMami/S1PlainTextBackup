@@ -9742,3 +9742,13 @@ SE出个IP外包给Mono，作为交换任天堂限时独占
 
 这应该没什么阻力吧
 
+
+*****
+
+####  海晟天锻  
+##### 967#       发表于 2026-6-11 21:23
+
+说起来，那个最开始的爆料图有一个地方很耐人寻味，奴隶瞎眼女得到了“白鹭的器士”的旧衣服，这里这个“白鹭的器士”是谁，结合那个舅舅的说法，感觉真有可能前几章be，然后进入下一辈子<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
