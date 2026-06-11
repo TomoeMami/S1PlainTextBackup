@@ -9658,3 +9658,23 @@ https://ngabbs.com/read.php?tid=46964523
 
 说是六个太阳，但是前一个镜头有七个花苞，这是有特别的用意吧？
 
+
+*****
+
+####  ShitOverflow  
+##### 959#       发表于 2026-6-11 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69761839&amp;ptid=2283074" target="_blank">江口夕 发表于 2026-6-11 19:35</a>
+
+xb3都互看记忆这种羞耻play了，你要往细了想那就是啥都看光，邪恶程度已经超过黄油了。
+
+很期待高桥哥哥这次 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这作如果有这类剧情的话，认为这种刀会发到白毛身上，傲被辱，弱被牛，给女主发点隐形牛，大伙都有戏份，猪肉分爽爽，就像dq11
+
+*****
+
+####  28201  
+##### 960#       发表于 2026-6-11 19:58
+
+女二看着就像恶役大小姐转生类的主人公，其实是好人那种，就差顶俩大钻头了
+
