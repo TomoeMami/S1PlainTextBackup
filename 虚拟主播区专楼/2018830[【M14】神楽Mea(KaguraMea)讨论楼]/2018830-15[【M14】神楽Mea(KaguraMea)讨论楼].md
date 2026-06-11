@@ -948,3 +948,21 @@ takayaspecial也在对面，还是对位可能也有关吧。
 
 打野这种需要专门的打野教练 至少这些比赛看下来 很少有教练会去指导怎么野区规划
 
+
+*****
+
+####  术士q  
+##### 20889#       发表于 2026-6-12 03:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69763271&amp;ptid=2018830" target="_blank">化鳥虫二 发表于 2026-6-12 03:40</a>
+你不能太指望下路线权 下路打线的组合现在都拿不出来 
+
+打野这种需要专门的打野教练 至少这些比赛看下来 很 ...</blockquote>
+下路能打线又好开团的大概也就是妮蔻这样的法辅了
+
+泰坦这样的也能制造线杀机会，萨勒芬妮又更多是反手，而卡尔玛小书包璐璐那些开团能力几乎为零，然后开团这关键的部分就可能在错误的时间错误的角色发动了
+
+不过说实话这把下路那个时候补刀是没有差距的，战力上差的不多，补刀差也是后面才拉开来的。
+
+就还是觉得有很多地方太怪了。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
