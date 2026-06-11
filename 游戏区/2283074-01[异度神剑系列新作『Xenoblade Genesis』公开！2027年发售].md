@@ -9088,3 +9088,22 @@ XG2       ☑️
 
 卧槽，请重制异度装甲吧，不要打啥擦边球了。
 
+
+*****
+
+####  lilod  
+##### 901#       发表于 2026-6-11 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69758560&amp;ptid=2283074" target="_blank">ccow 发表于 2026-6-11 11:02</a>
+
+卧槽，请重制异度装甲吧，不要打啥擦边球了。</blockquote>
+这不是 mono 能说了算的（
+
+
+*****
+
+####  星花  
+##### 902#       发表于 2026-6-11 11:34
+
+别急，到大结局高俅哥哥会告诉你，其实所有人都是诺朋。只是认知被污染了。🐶
+
