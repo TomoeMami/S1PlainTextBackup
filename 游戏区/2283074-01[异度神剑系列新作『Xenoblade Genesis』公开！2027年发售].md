@@ -9917,3 +9917,20 @@ XB3当时是2月首曝
 
 看PV，女二才是乡下贵族<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lypylf  
+##### 984#       发表于 2026-6-11 23:42
+
+会不会爆料图的名字没错<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没取名啊  
+##### 985#       发表于 2026-6-11 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69762860&amp;ptid=2283074" target="_blank">索非亚 发表于 2026-6-11 23:28</a>
+看PV，女二才是乡下贵族</blockquote>
+女主是乡下贵族，白毛女那句词的意思是让你知道乡下贵族（你）的极限（指你打不过我）
+
