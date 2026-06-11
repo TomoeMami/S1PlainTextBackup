@@ -477,3 +477,14 @@ Guro看得少，不能把小怪吸入淋逼，搞胎内回归那一套吗</block
 
 —— 来自 HONOR ANY-AN00, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  新HGCG  
+##### 50#         楼主| 发表于 2026-6-11 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69760087&amp;ptid=2283115" target="_blank">心灵的乳头 发表于 2026-6-11 14:44</a>
+
+先跟死亡搁浅联动一波？</blockquote>
+攀不上吧
+

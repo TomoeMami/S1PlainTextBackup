@@ -1403,3 +1403,15 @@ xbg的女主最精炼的关键词，很有可能就是这个瞎眼
 
 <img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ShitOverflow  
+##### 123#       发表于 2026-6-11 22:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69762511&amp;ptid=2283106" target="_blank">lbj5454 发表于 2026-6-11 22:02</a>
+晚上的问题好解决，毕竟6个太阳是灯，同时把亮度调到最低不就是晚上了啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">但旁边还有星星一样的玩意，要说是游魂，那也说的通，一直有类似这种的设定，其中一颗是奶弓妹-妹头，也是有点浪漫的别说
+
+[论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
