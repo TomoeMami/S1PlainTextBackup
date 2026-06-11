@@ -2545,3 +2545,18 @@ BOSS名字忘了。有个机制，每回合暴动。</blockquote>
 
 我自己是用的wiki
 
+
+*****
+
+####  sxsdark  
+##### 975#       发表于 2026-6-11 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69759537&amp;ptid=2256125" target="_blank">御姐控之耻 发表于 2026-6-11 13:13</a>
+
+【【卡厄思梦境】入坑攻略第八期 | 万能配队公式+全角色配队标签-哔哩哔哩】 https://b23.tv/bm2VBQA
+
+可 ...</blockquote>
+谢谢大佬
+
+还有这游戏的抽牌机制是怎样的？感觉和杀戮尖塔不一样，有时候能从弃牌堆里重新开始抽，有时候又抽完了就停了
+

@@ -1197,3 +1197,15 @@ WHL
 
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">多写点
 
+
+*****
+
+####  xwr  
+##### 105#       发表于 2026-6-11 16:15
+
+ 本帖最后由 xwr 于 2026-6-11 16:17 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69759433&amp;ptid=2283106" target="_blank">usoda 发表于 2026-6-11 12:57</a>
+
+真要XG2了？</blockquote>
+记得当年因为工期和资金，和FF7同期并行开发，以及90年代中后期史克威尔自身的种种原因XG留有遗憾，说不定这次做的是XG完全版<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
