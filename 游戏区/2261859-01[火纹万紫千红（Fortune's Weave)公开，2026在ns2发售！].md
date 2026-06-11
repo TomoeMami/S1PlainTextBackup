@@ -1730,3 +1730,18 @@ pv不是都说了封面4个人是主人公了，怎么还有人yy白毛是主角
 
 白毛一看就是贝了，怎么可能还是前传
 
+
+*****
+
+####  mai6696  
+##### 865#       发表于 2026-6-11 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69760618&amp;ptid=2261859" target="_blank">nagitoY 发表于 2026-6-11 16:06</a>
+
+如果是阿库娅的定位，那这个选性别有点意义不明啊。难道说是两个都会登场？ ...</blockquote>
+但是视频里都是直接操作脏辫小孩儿哥走地图了啊。
+
+三房子里能手操级长吗？
+
+(不排除系统有变动。目前还不好说
+
