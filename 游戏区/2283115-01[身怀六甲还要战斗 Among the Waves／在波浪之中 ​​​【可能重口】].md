@@ -408,3 +408,23 @@ Guro看得少，不能把小怪吸入淋逼，搞胎内回归那一套吗</block
 有流星锤环节吗？</blockquote>
 把小孩拿出来砸人的意思？
 
+
+*****
+
+####  4396777  
+##### 43#       发表于 2026-6-11 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69756610&amp;ptid=2283115" target="_blank">DARK_HGCG 发表于 2026-6-10 23:52</a>
+
+什么是流星锤</blockquote>
+看样子应该是用脐带把孩子甩出来，击败敌人后再塞回去的样子
+
+*****
+
+####  1a不解释  
+##### 44#       发表于 2026-6-11 10:18
+
+里莉莉丝<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKB110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
