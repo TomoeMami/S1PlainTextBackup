@@ -647,3 +647,18 @@ ffbe也活了10年，我玩了3年，在se的手游里也算精品了<img src="h
 看试玩 是接触水晶后问了3个问题 根据你的答案给个背后灵</blockquote>
 回答错了，精灵不会没了吧
 
+
+*****
+
+####  琴酒  
+##### 66#       发表于 2026-6-11 09:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69757675&amp;ptid=2283081" target="_blank">godless2020 发表于 2026-6-11 09:20</a>
+
+回答错了，精灵不会没了吧</blockquote>
+不清楚
+
+看试玩问的问题都和原版游戏剧情有点关系的
+
+试玩里面是ff10主角ティーダ父亲相关问题
+

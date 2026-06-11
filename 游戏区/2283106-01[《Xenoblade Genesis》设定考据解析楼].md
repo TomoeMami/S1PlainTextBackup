@@ -941,3 +941,14 @@ XB系列一向都是公路片，不会在一个地方一直停留，所以学校
 
 2026-6-11 09:14 上传
 
+
+*****
+
+####  freedom12  
+##### 82#       发表于 2026-6-11 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69757144&amp;ptid=2283106" target="_blank">nozomitech 发表于 2026-6-11 07:35</a>
+
+不是，你没有理解我的意思，我是说这个类似学校的建筑都没有建模完全，都能看到地面下面的蓝色天空球，所 ...</blockquote>
+应该是lod导致的小“瑕疵”，毕竟真正游戏时，不会像现在大家这样显微镜分析
+

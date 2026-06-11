@@ -8962,3 +8962,26 @@ XBG1是球内世界，XBG2是球外世界，XBG3内外融合，计划通<img src
 
 —— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  caps洛奇  
+##### 890#       发表于 2026-6-11 09:28
+
+<img src="https://img.stage1st.com/forum/202606/11/092759jzqoqtxkxscsqxkx.png" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-06-11_092720_415.png</strong> (303.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 09:27 上传
+
+球形世界的话 这里的星空又该怎么解释 空气中的anima团？
+
+*****
+
+####  hkguty  
+##### 891#       发表于 2026-6-11 09:33
+
+我觉得瞎眼这个事倒也还好，搞不好女主用力过度突然就瞎了，但是又给变回去当奴隶也太抽象了，现在的正式版设定女主应该是个类似黎恩的乡下贵族，除非序章突然犯了什么天条导致全家连坐，或者是被敌国俘虏了
+
