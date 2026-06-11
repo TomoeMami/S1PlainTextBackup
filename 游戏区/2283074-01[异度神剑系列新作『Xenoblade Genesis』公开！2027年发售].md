@@ -8997,3 +8997,36 @@ XBG1是球内世界，XBG2是球外世界，XBG3内外融合，计划通<img src
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  BREEEEZE  
+##### 893#       发表于 2026-6-11 09:49
+
+远景有低模和无缝没有相关性，1代6号殖民地还能看到巨神小腿9号殖民地的低模呢<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lbj5454  
+##### 894#       发表于 2026-6-11 09:57
+
+<img src="https://img.stage1st.com/forum/202606/11/095717a37p3kcx701qbxp0.jpg" referrerpolicy="no-referrer">
+
+<strong>2FC3AD5966C416E9AB809F66A5352AF5.jpg</strong> (284.23 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 09:57 上传
+
+<img src="https://img.stage1st.com/forum/202606/11/095717dxnawsvrr9pmvaxp.jpg" referrerpolicy="no-referrer">
+
+<strong>008F9c2uly1ie0t8ju927j30gh0g3gt4.jpg</strong> (76.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 09:57 上传
+
+XB4        X
+XG2       ☑️
+

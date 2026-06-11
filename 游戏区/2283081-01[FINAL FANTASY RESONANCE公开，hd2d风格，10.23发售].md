@@ -691,3 +691,13 @@ brave frontier是alim的，ffbe是se找alim开发的，自己偷自己是吧
 
 看着还行，等打折
 
+
+*****
+
+####  银域放浪者  
+##### 70#       发表于 2026-6-11 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69757480&amp;ptid=2283081" target="_blank">アーリィ 发表于 2026-6-11 08:56</a>
+有晕眩槽，晕眩槽打爆能break，给自己增加一次额外行动。敌方晕眩槽全部打爆就full break，给己方全员一次 ...</blockquote>
+就是照搬八方CTB而已，非常失望
+
