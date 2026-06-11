@@ -9415,3 +9415,37 @@ https://ngabbs.com/read.php?tid=46964523
 绝了mono真会找外包专找这种人品差的，一会翻译哥自爆一会洋洋洒洒文字剧透 ...</blockquote>
 忍者呢忍者呢 该出动了
 
+
+*****
+
+####  ArthurDent  
+##### 935#       发表于 2026-6-11 15:30
+
+发官号底下看看忍者实力
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  serj005  
+##### 936#       发表于 2026-6-11 15:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69760214&amp;ptid=2283074" target="_blank">ParadiseMartyr 发表于 2026-6-11 15:02</a>
+现在就在翻译岂不是游戏早都做差不多了，能不能期待个过年就玩到
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+翻译说的是xb3简中那个神人翻译的事吧
+
+*****
+
+####  ????????  
+##### 937#       发表于 2026-6-11 15:34
+
+<blockquote>孔方兄 发表于 2026-6-11 14:47
+现在的男女主和泄漏图片里面的男女主
+
+算了你自己看吧
+
+</blockquote>
+原来nga那边甚至开了专门的贴啊
+
