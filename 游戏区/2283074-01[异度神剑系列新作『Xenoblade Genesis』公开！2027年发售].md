@@ -9117,3 +9117,14 @@ XG2       ☑️
 
 —— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  伊郑z  
+##### 904#       发表于 2026-6-11 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69758915&amp;ptid=2283074" target="_blank">海晟天锻 发表于 2026-6-11 11:39</a>
+
+还有一点，当年世嘉舅舅党爆料说的是这一作是monolith和任天堂共同开发的，会不会有本部的人参与进来技术支 ...</blockquote>
+每一作都有任天堂那边人参与，任天堂一直都有提供技术支持和qa
+
