@@ -9606,3 +9606,24 @@ https://ngabbs.com/read.php?tid=46964523
 但港任翻译用了“他”</blockquote>
 玩繁中就知道现在港任不管男女一律用他
 
+
+*****
+
+####  ShitOverflow  
+##### 955#       发表于 2026-6-11 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69760954&amp;ptid=2283074" target="_blank">hkguty 发表于 2026-6-11 16:50</a>
+
+女主看起来实力不差，可能反而是女二被打败了怀恨在心，女二应该是那种显赫的大贵族或者公主之类的。男主发 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">女主设定一眼就很招哥布林喜欢
+
+照我刻板印象，女角色越优秀越独立越刀，越主角团（小队1）越刀，越素越不刀，也就2刀小点
+
+小队1先把蓝毛妹/妹头奶妈刀了，女主去救然后吃刀，素鸡男主一转变身，女主一转瞎眼+残疾，义体改造
+
+跑一会儿残疾加没奶妈受苦逃亡任务，男主也被刀了或者拉去铁窗泪，小队1没得玩
+
+中盘开始玩小队2，优秀小队2开局阶段1，本来跟小队1是霸凌/竞争/对立关系，随后各种羁绊展开，被一阶段boss撮合，合流
+
+然后拔剑环节，女主升仙心眼觉醒打通任督二脉，男主mega变身，妹/妹头复活变成公主切弓巫女
+
