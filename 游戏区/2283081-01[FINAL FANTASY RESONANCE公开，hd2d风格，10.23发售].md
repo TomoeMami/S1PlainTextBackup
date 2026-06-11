@@ -636,3 +636,14 @@ ffbe也活了10年，我玩了3年，在se的手游里也算精品了<img src="h
 
 有晕眩槽，晕眩槽打爆能break，给自己增加一次额外行动。敌方晕眩槽全部打爆就full break，给己方全员一次额外行动。感觉像什么超绝进化版的press turn
 
+
+*****
+
+####  godless2020  
+##### 65#       发表于 2026-6-11 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69756386&amp;ptid=2283081" target="_blank">琴酒 发表于 2026-6-10 22:45</a>
+
+看试玩 是接触水晶后问了3个问题 根据你的答案给个背后灵</blockquote>
+回答错了，精灵不会没了吧
+
