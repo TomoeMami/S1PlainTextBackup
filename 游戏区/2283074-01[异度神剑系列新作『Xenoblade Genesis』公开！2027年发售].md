@@ -9030,3 +9030,21 @@ XBG1是球内世界，XBG2是球外世界，XBG3内外融合，计划通<img src
 XB4        X
 XG2       ☑️
 
+
+*****
+
+####  lbj5454  
+##### 895#       发表于 2026-6-11 10:02
+
+我信高桥哥哥XBG一定会有机甲，高桥哥哥不会再翻车！
+
+*****
+
+####  woaimiyabi  
+##### 896#       发表于 2026-6-11 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69757973&amp;ptid=2283074" target="_blank">BREEEEZE 发表于 2026-6-11 09:49</a>
+
+远景有低模和无缝没有相关性，1代6号殖民地还能看到巨神小腿9号殖民地的低模呢 ...</blockquote>
+主要xbg这展示的几个大远景全是低模糊一脸，要不是无缝 那就有点过分了吧，至少前几代高模清晰远景真不少。
+
