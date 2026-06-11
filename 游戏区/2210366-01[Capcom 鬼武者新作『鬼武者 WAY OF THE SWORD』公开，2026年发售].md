@@ -5963,3 +5963,15 @@ demo没打够，爽是挺爽，但感觉也看不出什么
 fami通的新demo把笼手女真名静御前爆出来了，不是你立本人怎么净逮着这几个人名做文章的……
 还有这游戏到底开发了几年啊，看这演示应该是打的只是一个主线小boss，都跟岩流一样塞一大堆的敌我交互的动作模组，之前demo就觉得boss战打得太快少看太多动作演出有点浪费，处决都不想打头出高伤而是特地选身体，这次演示也是各种专属的拼刀拆防处决动作，看着也不像是能复用成精英怪的敌人做这么多一次性的动作模组也太奢侈了，原来把副武改成单独技能是把功夫全花在敌我交互上了么
 
+
+*****
+
+####  conanoysq  
+##### 619#       发表于 2026-6-11 07:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69757180&amp;ptid=2210366" target="_blank">汪达 发表于 2026-6-11 07:52</a>
+【【GameSpot】《鬼武者：剑之道》夏日游戏节体验版全新Boss战实机游玩展示 | 机翻中文】 https://www.bili ...</blockquote>
+看完只感觉化劲实在是太强了，一招鲜吃遍天，就没有不能打断的近战攻击<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
