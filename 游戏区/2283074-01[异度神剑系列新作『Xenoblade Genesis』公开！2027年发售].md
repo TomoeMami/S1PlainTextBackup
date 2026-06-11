@@ -9236,3 +9236,20 @@ XG2       ☑️
 我觉得人物渲染有大问题啊，ns2机能巨幅提升的情况下genesis还顶着3那套阴阳脸 ...</blockquote>
 初公开30fps成品60fps的NS2独占游戏是第几次了，起码等明年正规PV出来说也不迟
 
+
+*****
+
+####  海晟天锻  
+##### 915#       发表于 2026-6-11 13:58
+
+说实话我开始怀疑那个舅舅真实性了，最开始说男女主改名了，之后又说泄露图那个男女主和pv的男女主不是一个人<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  28201  
+##### 916#       发表于 2026-6-11 14:00
+
+图可能是真的，但这舅舅像是在看图编<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
