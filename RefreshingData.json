@@ -1575,10 +1575,10 @@
     "update": false
   },
   "1539923": {
-    "totalreply": 3338,
+    "totalreply": 3339,
     "title": "[《一人之下》漫画讨论：陆玲珑的身世]",
     "newtitle": "[《一人之下》漫画：有内鬼，继续交易！]",
-    "lastedit": 1781173688,
+    "lastedit": 1781195886,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13122,10 +13122,10 @@
     "update": false
   },
   "2280092": {
-    "totalreply": 4968,
+    "totalreply": 4972,
     "title": "[中东砖楼 2026年5月版]",
     "newtitle": "[中东砖楼 2026年6月版]",
-    "lastedit": 1781195285,
+    "lastedit": 1781195887,
     "category": "外野",
     "active": true,
     "update": false
@@ -16547,7 +16547,7 @@
     "newtitle": "[Mihon／Tachiyomi系漫画软件／插件简介及讨论专楼 （更新：官方插件仓库遭遇DMCA投诉）]",
     "lastedit": 1780936326,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2282787": {
@@ -16929,10 +16929,10 @@
     "update": false
   },
   "2282896": {
-    "totalreply": 74,
+    "totalreply": 75,
     "title": "[辛格坡可能要比脚盆先走远]",
     "newtitle": "[辛格坡可能要比脚盆先走远]",
-    "lastedit": 1781194926,
+    "lastedit": 1781195527,
     "category": "外野",
     "active": true,
     "update": false
@@ -16965,10 +16965,10 @@
     "update": false
   },
   "2282941": {
-    "totalreply": 147,
+    "totalreply": 148,
     "title": "[好奇夫妻财务关系哪种更常见]",
     "newtitle": "[好奇夫妻财务关系哪种更常见]",
-    "lastedit": 1781166010,
+    "lastedit": 1781195887,
     "category": "外野",
     "active": true,
     "update": false
@@ -17505,10 +17505,10 @@
     "update": false
   },
   "2283104": {
-    "totalreply": 526,
+    "totalreply": 529,
     "title": "[北大鹅腿阿姨卖的是16元一根的烤鸭腿]",
     "newtitle": "[北大鹅腿阿姨卖的是16元一根的烤鸭腿]",
-    "lastedit": 1781191929,
+    "lastedit": 1781195887,
     "category": "外野",
     "active": true,
     "update": false
@@ -17721,10 +17721,10 @@
     "update": false
   },
   "2283161": {
-    "totalreply": 144,
+    "totalreply": 145,
     "title": "[就战斗系统而言，哪部JRPG是十年内最强]",
     "newtitle": "[就战斗系统而言，哪部JRPG是十年内最强]",
-    "lastedit": 1781194446,
+    "lastedit": 1781195645,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17856,10 +17856,10 @@
     "update": false
   },
   "2283182": {
-    "totalreply": 51,
+    "totalreply": 53,
     "title": "[欧美某知名经济研究刊物最新雄文：如何反击我们那些迷上社会主义的年轻人]",
     "newtitle": "[欧美某知名经济研究刊物最新雄文：如何反击我们那些迷上社会主义的年轻人]",
-    "lastedit": 1781150052,
+    "lastedit": 1781195887,
     "category": "外野",
     "active": true,
     "update": false
@@ -17883,10 +17883,10 @@
     "update": false
   },
   "2283200": {
-    "totalreply": 70,
+    "totalreply": 71,
     "title": "[台州黄岩区人大首次对政府重大投资进行票决：两个项目当场被否]",
     "newtitle": "[台州黄岩区人大首次对政府重大投资进行票决：两个项目当场被否]",
-    "lastedit": 1781193726,
+    "lastedit": 1781195527,
     "category": "外野",
     "active": true,
     "update": false
@@ -17973,10 +17973,10 @@
     "update": false
   },
   "2283239": {
-    "totalreply": 63,
+    "totalreply": 64,
     "title": "[［大二］这是哪个s1er发的自己来认领一下]",
     "newtitle": "[［大二］这是哪个s1er发的自己来认领一下]",
-    "lastedit": 1781194687,
+    "lastedit": 1781195886,
     "category": "外野",
     "active": true,
     "update": false
@@ -18027,10 +18027,10 @@
     "update": false
   },
   "2283249": {
-    "totalreply": 102,
+    "totalreply": 103,
     "title": "[对于Steam环大陆好评现象背后成因的一些个人见解和分析]",
     "newtitle": "[对于Steam环大陆好评现象背后成因的一些个人见解和分析]",
-    "lastedit": 1781193486,
+    "lastedit": 1781195887,
     "category": "外野",
     "active": true,
     "update": false
@@ -18067,6 +18067,15 @@
     "title": "[感觉现在ai编程喜欢自作主张，辅助搞学术还是欠点]",
     "newtitle": "[感觉现在ai编程喜欢自作主张，辅助搞学术还是欠点]",
     "lastedit": 1781192887,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2283243": {
+    "totalreply": 41,
+    "title": "[Anthropic也可以是二游大厂]",
+    "newtitle": "[Anthropic也可以是二游大厂]",
+    "lastedit": 1781195528,
     "category": "外野",
     "active": true,
     "update": false
