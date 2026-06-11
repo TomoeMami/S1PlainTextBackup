@@ -9056,3 +9056,35 @@ XG2       ☑️
 
 我在想，如果诺彭都没了，那么草原上的大猩猩还会有吗？
 
+
+*****
+
+####  topia  
+##### 898#       发表于 2026-6-11 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69757102&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-6-11 07:17</a>
+
+昨天我玩了玩xb1 突然想到了一个一点， xbg远景不是背景版而是无缝的一个可能性，之前讨论的xb1我去看了 ...</blockquote>
+相对的周围围一圈背景加上建模，还大部分都是水要考虑反射，肯定要比单独一个机神压力要大
+
+反正我是等后续情报了，真能无缝跑肯定不可能憋着不说，真憋着不说那就真悬了
+
+
+*****
+
+####  没取名啊  
+##### 899#       发表于 2026-6-11 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69758487&amp;ptid=2283074" target="_blank">topia 发表于 2026-6-11 10:54</a>
+相对的周围围一圈背景加上建模，还大部分都是水要考虑反射，肯定要比单独一个机神压力要大
+
+反正我是等后 ...</blockquote>
+这种事应该在介绍玩法的宣传pv里才会说
+
+*****
+
+####  ccow  
+##### 900#       发表于 2026-6-11 11:02
+
+卧槽，请重制异度装甲吧，不要打啥擦边球了。
+
