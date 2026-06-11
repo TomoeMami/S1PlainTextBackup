@@ -9546,3 +9546,31 @@ https://ngabbs.com/read.php?tid=46964523
 红色卷毛有雀斑，不喜欢这种西洋风格的雀斑类角色
 还是个男的！
 
+
+*****
+
+####  冰风血羽  
+##### 949#       发表于 2026-6-11 17:29
+
+什么东西都往外发，这野生舅舅欲望太强烈了，需要忍者天诛啊<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  whzfjd  
+##### 950#       发表于 2026-6-11 17:32
+
+男的把雀斑占走了是好事，就是那巫女圣奈同款有点绷不住
+
+
+*****
+
+####  海晟天锻  
+##### 951#       发表于 2026-6-11 17:34
+
+那巫女感觉是palow设计的角色，异色花谱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
