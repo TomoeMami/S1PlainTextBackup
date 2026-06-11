@@ -5987,3 +5987,17 @@ fami通的新demo把笼手女真名静御前爆出来了，不是你立本人怎
 【新作】『鬼武者 Way of the Sword』最新プレイ映像。ボス“羅掌願”との戦いは緊張感と歯応えのある剣劇アクションは必見【SGF2026】
 [https://youtu.be/JDMQGnS9Cns](https://youtu.be/JDMQGnS9Cns)
 
+
+*****
+
+####  杀仁小登  
+##### 621#       发表于 2026-6-11 14:31
+
+<img src="https://img.stage1st.com/forum/202606/11/143136eiyyngoiz64ix8sx.jpg" referrerpolicy="no-referrer">
+
+<strong>HKgQWUZaIAAYfL5.jpg</strong> (300.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 14:31 上传
+
