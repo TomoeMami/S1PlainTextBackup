@@ -9595,3 +9595,14 @@ https://ngabbs.com/read.php?tid=46964523
 
 你打破了我的阿玛尼！我的阿玛尼！
 
+
+*****
+
+####  JOJOROY  
+##### 954#       发表于 2026-6-11 19:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69760519&amp;ptid=2283074" target="_blank">sslink 发表于 2026-6-11 15:52</a>
+
+但港任翻译用了“他”</blockquote>
+玩繁中就知道现在港任不管男女一律用他
+

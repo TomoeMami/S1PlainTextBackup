@@ -28,3 +28,11 @@
 
 漆黑则是非常有特色的机体了，可P MAP，无反上降防debuff，很不错了，人物也可以，中规中矩，且词条很不错，可以上SF
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4357#       发表于 2026-6-11 19:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">黑强怎么是黄机，该抽还得抽
+
