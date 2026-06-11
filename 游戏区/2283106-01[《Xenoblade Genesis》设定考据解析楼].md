@@ -1178,3 +1178,14 @@ pv和女主设定，隐约有一股大刀的气息，女主被打废了，瞳孔
 
 xb1-3都有XG的影子  这也不代表会真的做xg2吧  
 
+
+*****
+
+####  richardkisser  
+##### 103#       发表于 2026-6-11 15:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69759217&amp;ptid=2283106" target="_blank">狸狸狐 发表于 2026-6-11 12:22</a>
+
+我都想到后面能写的一些剧情桥段了</blockquote>
+WHL
+
