@@ -1034,3 +1034,21 @@ XS中的“阿尼玛”设定
 
 这也能解释女主眼盲，就是因为视觉模拟部分出了问题，其实反倒看穿了壳内世界“空无一物”的本质
 
+
+*****
+
+####  xwr  
+##### 89#       发表于 2026-6-11 10:32
+
+越来越离谱了
+
+&gt;They live inside a hollow planet. After they enter the spaceship mountain they come out to the other side, revealing it was actually the planet at the end of Xenoblade X, which is the one in Xenogears, which is Lost Jerusalem
+
+<img src="https://img.stage1st.com/forum/202606/11/103203hea1gjm9wc5kk3qq.jpg" referrerpolicy="no-referrer">
+
+<strong>1781127004991319.jpg</strong> (333.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 10:32 上传
+
