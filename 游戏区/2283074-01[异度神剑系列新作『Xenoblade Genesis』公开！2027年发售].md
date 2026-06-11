@@ -9994,3 +9994,42 @@ XB3当时是2月首曝
 
 能别变身么，这个世界观应该上魔装机神啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woaimiyabi  
+##### 990#       发表于 2026-6-12 07:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69763137&amp;ptid=2283074" target="_blank">whzfjd 发表于 2026-6-12 01:32</a>
+
+回头看巫女妹还是比圣奈强那么一点的，而且三拨人没有肌肉笨蛋组了，好</blockquote>
+巫女妹人设给人的感觉是呆呆的，可能是那种天然呆的性格。
+
+
+*****
+
+####  woaimiyabi  
+##### 991#       发表于 2026-6-12 07:34
+
+<img src="https://img.stage1st.com/forum/202606/12/073317bm0x4ll4j4olx9o5.jpg" referrerpolicy="no-referrer">
+
+<strong>005NIE2aly1ie1jx8vne4j31660y7q6h.jpg</strong> (137.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 07:33 上传
+
+骑龙这个队友高清大图，武器是两把燧发枪加一把折叠霰弹枪？
+
+*****
+
+####  アヘ顔  
+##### 992#       发表于 2026-6-12 07:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69762929&amp;ptid=2283074" target="_blank">若菜 发表于 2026-6-11 23:53</a>
+要不看看xs三作主角是谁呢，
+
+不知道为啥这么多人纠结主控是女性...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一说女性主角立马就是大女主呗，现在的环境就是这么敏感，杯弓蛇影啊
+你要说xs那个剧情搁现在还真的挺大女主的
+
