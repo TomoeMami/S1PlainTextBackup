@@ -9323,3 +9323,23 @@ b站有舅舅把剧情透了很多，这里不敢说
 初公开30fps成品60fps的NS2独占游戏是第几次了，起码等明年正规PV出来说也不迟 ...</blockquote>
 就当我认为pv还没展现出mono的开发实力吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  若菜  
+##### 925#       发表于 2026-6-11 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69759999&amp;ptid=2283074" target="_blank">xwr 发表于 2026-6-11 14:31</a>
+
+既然是XG2，那可以是前世嘛</blockquote>
+这样就太美味了
+
+*****
+
+####  ????????  
+##### 926#       发表于 2026-6-11 14:38
+
+<blockquote>孔方兄 发表于 2026-6-11 14:07
+b站有舅舅把剧情透了很多，这里不敢说</blockquote>
+有多少啊，是基本全部都泄露了嘛
+
