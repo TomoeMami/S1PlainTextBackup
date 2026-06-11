@@ -1677,3 +1677,17 @@ XX者只是苏蒂斯的口癖之类的东西吧，她对贝的叫法都是能套
 
 人设实在太土，都不知道如何吐槽了。。希望是把美型角色的藏起来了，登场的都太路人了，完全没有好感度可言<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  エーデルガルト  
+##### 860#       发表于 2026-6-11 12:34
+
+<img src="https://img.stage1st.com/forum/202606/11/123435ryfjn7cvz33vbkgp.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2544.jpeg</strong> (289.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 12:34 上传
+
