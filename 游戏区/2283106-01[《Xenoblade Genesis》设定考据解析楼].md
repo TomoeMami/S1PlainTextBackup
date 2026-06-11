@@ -827,3 +827,30 @@ A9AAC991613DCB8E97C058B3094F6D5D.png
 
 当然高桥哥哥必然不会想这么多，考虑到这个系列在底层物理规则上一贯的口胡式设计，我也不会擅自期待什么能让我高呼牛逼的设定，玩我的，不问那么多
 
+
+*****
+
+####  bonnwang  
+##### 73#       发表于 2026-6-11 08:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69757279&amp;ptid=2283106" target="_blank">deathliu 发表于 2026-6-11 08:23</a>
+PV里的很多怪包括坐骑目前看都是来自XG的设定</blockquote>
+艹 太细了
+
+*****
+
+####  アヘ顔  
+##### 74#       发表于 2026-6-11 08:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">所以继上次nb给xb3放版权之后
+这次se也要给xbg放版权了吗
+
+*****
+
+####  贝雷特  
+##### 75#       发表于 2026-6-11 08:43
+
+<blockquote>deathliu 发表于 2026-6-11 08:23
+PV里的很多怪包括坐骑目前看都是来自XG的设定</blockquote>
+你这个有点牛了
+
