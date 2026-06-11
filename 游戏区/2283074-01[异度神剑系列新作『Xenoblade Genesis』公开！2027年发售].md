@@ -9574,3 +9574,16 @@ https://ngabbs.com/read.php?tid=46964523
 
 —— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  kisaragi凛  
+##### 952#       发表于 2026-6-11 18:27
+
+回头看了下PV
+
+「阿尼玛晶石」它不仅能增强骑士的力量，还会记录下持有者的行为和心愿
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉这个“记录”有些说法。
+
+既然能“存档”的话，那大概率也会有“上传”
+
