@@ -8985,3 +8985,15 @@ XBG1是球内世界，XBG2是球外世界，XBG3内外融合，计划通<img src
 
 我觉得瞎眼这个事倒也还好，搞不好女主用力过度突然就瞎了，但是又给变回去当奴隶也太抽象了，现在的正式版设定女主应该是个类似黎恩的乡下贵族，除非序章突然犯了什么天条导致全家连坐，或者是被敌国俘虏了
 
+
+*****
+
+####  VictorWJ  
+##### 892#       发表于 2026-6-11 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69756155&amp;ptid=2283074" target="_blank">狸狸狐 发表于 2026-6-10 21:52</a>
+说不定就是palow</blockquote>
+妈耶，什么大兰花螳螂<img src="https://static.stage1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
