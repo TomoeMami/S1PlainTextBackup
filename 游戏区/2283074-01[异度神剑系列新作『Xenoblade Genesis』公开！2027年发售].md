@@ -10033,3 +10033,11 @@ XB3当时是2月首曝
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一说女性主角立马就是大女主呗，现在的环境就是这么敏感，杯弓蛇影啊
 你要说xs那个剧情搁现在还真的挺大女主的
 
+
+*****
+
+####  laputah  
+##### 993#       发表于 2026-6-12 07:41
+
+乙游好啊 直接切男主了 
+
