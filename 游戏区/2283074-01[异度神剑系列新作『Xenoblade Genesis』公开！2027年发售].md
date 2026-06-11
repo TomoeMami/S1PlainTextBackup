@@ -9136,3 +9136,13 @@ XG2       ☑️
 
 话说，标题字体那个有像点晶体折射的彩色粒子效果，感觉也是这作一个重要元素
 
+
+*****
+
+####  serj005  
+##### 906#       发表于 2026-6-11 12:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69759173&amp;ptid=2283074" target="_blank">eraso 发表于 2026-6-11 12:15</a>
+话说，标题字体那个有像点晶体折射的彩色粒子效果，感觉也是这作一个重要元素 ...</blockquote>
+只是这代的阿尼玛之力的代表色吧，彩色但是整体偏紫，pv里的角色释放阿尼玛力都是这个颜色
+
