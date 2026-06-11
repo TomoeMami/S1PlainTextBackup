@@ -9770,3 +9770,22 @@ xg搞hd2d一堆素材要手搓没法从素材库直接搬过来吧
 
 —— 来自 vivo V2408A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  kyonkoism  
+##### 970#       发表于 2026-6-11 21:55
+
+一想到由达芬奇画的这么花瓶感的女主可能要在序章急转直下变残疾
+
+我还真的有点想买NS2捆绑豪华版XBG了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 971#       发表于 2026-6-11 21:57
+
+9月nd会有pv2吗
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+

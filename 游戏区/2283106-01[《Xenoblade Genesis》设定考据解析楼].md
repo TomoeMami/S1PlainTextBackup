@@ -1369,3 +1369,14 @@ xbg的女主最精炼的关键词，很有可能就是这个瞎眼
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hisousihou  
+##### 120#       发表于 2026-6-11 21:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69762451&amp;ptid=2283106" target="_blank">塔奇克马 发表于 2026-6-11 21:46</a>
+
+大家造假药的盛况有国家队楼那味了~~</blockquote>
+高桥创作的一贯性挺强的，都有很明显的叙事来源。加上前作设定，多少能猜中一些。这就是乐趣
+
