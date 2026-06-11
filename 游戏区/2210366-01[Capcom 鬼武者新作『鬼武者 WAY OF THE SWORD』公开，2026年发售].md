@@ -6017,3 +6017,16 @@ fami通的新demo把笼手女真名静御前爆出来了，不是你立本人怎
 
 这个拆投也太爽了，这么看每个boss战估计都有专属交互演出
 
+
+*****
+
+####  葵  
+##### 624#       发表于 2026-6-11 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69757123&amp;ptid=2210366" target="_blank">霖岚_ 发表于 2026-6-11 07:27</a>
+
+fami通的新demo把笼手女真名静御前爆出来了，不是你立本人怎么净逮着这几个人名做文章的……
+
+还有这游戏到 ...</blockquote>
+估计是和RE2，3差不多时代的东西，我玩着demo感觉画面明显比后面用RE引擎的生8，生9，实质存在这些画面差一档，就和RE2那会一样的灰蒙蒙，脏兮兮的感觉，而且感觉有些日本建筑和竹林的素材是用的怪猎崛起的，贫穷的一逼～<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
