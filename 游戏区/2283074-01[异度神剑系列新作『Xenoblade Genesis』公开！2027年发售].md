@@ -8864,3 +8864,40 @@ pv提到使用阿尼玛晶石会刻画使用者的行动和思考。然后女主
 
 其实星环六个太阳反而是科幻烂大街的简单的剧情。
 
+
+*****
+
+####  VVhaleVoice  
+##### 881#       发表于 2026-6-11 08:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69757102&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-6-11 07:17</a>
+昨天我玩了玩xb1 突然想到了一个一点， xbg远景不是背景版而是无缝的一个可能性，之前讨论的xb1我去看了 ...</blockquote>
+123那个远景有很多是贴图，很多地点看得见到不了，XbG如果真的是无缝环形地图的话，那个远景大概率是建模
+
+—— 来自 Google Pixel 8, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  lost-star  
+##### 882#       发表于 2026-6-11 08:22
+
+幻想一下，里面是一个球内侧里世界地图，外面还有一个球外侧地图，那里是各种现代科技加机甲，就是异度装甲里索拉里斯和地上世界的那种感觉。
+
+*****
+
+####  woaimiyabi  
+##### 883#       发表于 2026-6-11 08:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69757263&amp;ptid=2283074" target="_blank">VVhaleVoice 发表于 2026-6-11 08:19</a>
+
+123那个远景有很多是贴图，很多地点看得见到不了，XbG如果真的是无缝环形地图的话，那个远景大概率是建模 ...</blockquote>
+xb2的巨神兽跟xb1的机神也是有建模的 但都没办法上去，可依然挺清晰的，这作要是无缝的话 我可以理解远景模糊，要不是无缝 远景还这么糊 那我觉得有点问题。
+
+
+*****
+
+####  七氷  
+##### 884#       发表于 2026-6-11 08:26
+
+远景有点微妙，希望是为了无缝做的妥协
+
