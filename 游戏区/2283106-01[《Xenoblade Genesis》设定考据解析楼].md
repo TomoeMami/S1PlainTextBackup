@@ -1350,3 +1350,22 @@ xbg的女主最精炼的关键词，很有可能就是这个瞎眼
 感觉太阳应该就在球体/环带的中央。在这个画面里能透过星空直接看到对面的陆地，左下角的地形就是PV里多次 ...</blockquote>
 那这就说明 一些异学家分析的没有黑夜是错误的，这个世界在有六个太阳的情况下也有 夜晚星空。
 
+
+*****
+
+####  hisousihou  
+##### 118#       发表于 2026-6-11 21:42
+
+[https://www.bilibili.com/video/B ... d_from=333.1391.0.0](https://www.bilibili.com/video/BV1ynEZ6SE3W/?spm_id_from=333.1391.0.0)
+
+从艾莉到艾蕾诺亚：高桥哲哉的诺斯替轮回——《异度神剑 创世纪》PV 1 解析
+
+把pv1文案和诺斯替主义的疑问丢给AI问了一下，感觉被剧透得差不多了。
+
+*****
+
+####  塔奇克马  
+##### 119#       发表于 2026-6-11 21:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
