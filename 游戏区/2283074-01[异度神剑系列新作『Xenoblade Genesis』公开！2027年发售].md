@@ -9789,3 +9789,36 @@ xg搞hd2d一堆素材要手搓没法从素材库直接搬过来吧
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ace8848  
+##### 972#       发表于 2026-6-11 22:00
+
+既然2d的ff能做成3d，那3d的xg做成2d倒也不是不行
+
+
+*****
+
+####  woaimiyabi  
+##### 973#       发表于 2026-6-11 22:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69762493&amp;ptid=2283074" target="_blank">Kiyohara_Yasuke 发表于 2026-6-11 21:57</a>
+
+9月nd会有pv2吗
+
+论坛助手,iPhone</blockquote>
+9月应该没有pv2  要等明年二月份春直了，然后六月份nd定档  八九月份发售，感觉大概率是这个流程。
+
+*****
+
+####  ArthurDent  
+##### 974#       发表于 2026-6-11 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69762525&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-6-11 22:05</a>
+9月应该没有pv2  要等明年二月份春直了，然后六月份nd定档  八九月份发售，感觉大概率是这个流程。 ...</blockquote>
+不要啊<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+一定是7月一个，9月一个，12月一个，过年发售吧
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -1380,3 +1380,26 @@ xbg的女主最精炼的关键词，很有可能就是这个瞎眼
 大家造假药的盛况有国家队楼那味了~~</blockquote>
 高桥创作的一贯性挺强的，都有很明显的叙事来源。加上前作设定，多少能猜中一些。这就是乐趣
 
+
+*****
+
+####  lbj5454  
+##### 121#       发表于 2026-6-11 22:02
+
+晚上的问题好解决，毕竟6个太阳是灯，同时把亮度调到最低不就是晚上了啊
+
+*****
+
+####  lbj5454  
+##### 122#       发表于 2026-6-11 22:07
+
+<img src="https://img.stage1st.com/forum/202606/11/220551fydkcny2kqq2dnuq.jpg" referrerpolicy="no-referrer">
+
+<strong>45098496aecfbcc59a480c400e2741d537866581.jpg</strong> (664.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 22:05 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
