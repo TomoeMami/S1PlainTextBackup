@@ -9650,3 +9650,11 @@ https://ngabbs.com/read.php?tid=46964523
 
 —— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  eraso  
+##### 958#       发表于 2026-6-11 19:46
+
+说是六个太阳，但是前一个镜头有七个花苞，这是有特别的用意吧？
+
