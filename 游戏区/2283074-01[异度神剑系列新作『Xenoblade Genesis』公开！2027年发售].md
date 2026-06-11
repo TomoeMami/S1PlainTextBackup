@@ -9146,3 +9146,56 @@ XG2       ☑️
 话说，标题字体那个有像点晶体折射的彩色粒子效果，感觉也是这作一个重要元素 ...</blockquote>
 只是这代的阿尼玛之力的代表色吧，彩色但是整体偏紫，pv里的角色释放阿尼玛力都是这个颜色
 
+
+*****
+
+####  エーデルガルト  
+##### 907#       发表于 2026-6-11 12:45
+
+<img src="https://img.stage1st.com/forum/202606/11/124527ltf63ouwghxww3om.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2547.jpeg</strong> (851.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 12:45 上传
+
+*****
+
+####  没取名啊  
+##### 908#       发表于 2026-6-11 12:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69759361&amp;ptid=2283074" target="_blank">エーデルガルト 发表于 2026-6-11 12:45</a></blockquote>
+粉毛的萌萌哒潜力还是非常大的，粉色就自带萌萌哒气场
+
+
+*****
+
+####  lost-star  
+##### 909#       发表于 2026-6-11 12:53
+
+女主这是学生装，头发扎起来的，后面披发转机娘潜力很大<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sslink  
+##### 910#       发表于 2026-6-11 12:54
+
+这里衣服已经不是校服了
+
+<img src="https://img.stage1st.com/forum/202606/11/125428oig2gnzgk15itink.png" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-06-11_125215_912.png</strong> (28.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 12:54 上传
+
+<img src="https://img.stage1st.com/forum/202606/11/125428vbl7sajfx65esj2l.png" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-06-11_125318_278.png</strong> (67.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 12:54 上传
+

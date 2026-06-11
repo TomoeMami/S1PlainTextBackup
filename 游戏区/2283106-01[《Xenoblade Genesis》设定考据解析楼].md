@@ -1143,3 +1143,23 @@ pv和女主设定，隐约有一股大刀的气息，女主被打废了，瞳孔
 
 这次第一主角是女主的话，那该男主被抓了，千里摸瞎寻夫
 
+
+*****
+
+####  若菜  
+##### 99#       发表于 2026-6-11 12:55
+
+【从艾莉到艾蕾诺亚：高桥哲哉的诺斯替轮回——《异度神剑 创世纪》PV 1 解析-哔哩哔哩】 [https://b23.tv/CU2TO1F](https://b23.tv/CU2TO1F)
+
+非常好
+
+*****
+
+####  usoda  
+##### 100#       发表于 2026-6-11 12:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69759420&amp;ptid=2283106" target="_blank">若菜 发表于 2026-6-11 12:55</a>
+
+【从艾莉到艾蕾诺亚：高桥哲哉的诺斯替轮回——《异度神剑 创世纪》PV 1 解析-哔哩哔哩】 https://b23.tv/C ...</blockquote>
+真要XG2了？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
