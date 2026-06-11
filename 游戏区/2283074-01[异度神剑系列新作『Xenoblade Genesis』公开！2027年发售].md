@@ -9107,3 +9107,13 @@ XG2       ☑️
 
 别急，到大结局高俅哥哥会告诉你，其实所有人都是诺朋。只是认知被污染了。🐶
 
+
+*****
+
+####  海晟天锻  
+##### 903#       发表于 2026-6-11 11:39
+
+还有一点，当年世嘉舅舅党爆料说的是这一作是monolith和任天堂共同开发的，会不会有本部的人参与进来技术支援了，要做梦的话梦一个epd那边出人了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
