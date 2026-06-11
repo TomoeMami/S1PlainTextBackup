@@ -9224,3 +9224,15 @@ XG2       ☑️
 
 仔细一看这代男队友一个比一个路人
 
+
+*****
+
+####  JOJOROY  
+##### 914#       发表于 2026-6-11 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69750121&amp;ptid=2283074" target="_blank">Dreammask 发表于 2026-6-10 07:39</a>
+这楼怎么这么快叠到十几页了
+
+我觉得人物渲染有大问题啊，ns2机能巨幅提升的情况下genesis还顶着3那套阴阳脸 ...</blockquote>
+初公开30fps成品60fps的NS2独占游戏是第几次了，起码等明年正规PV出来说也不迟
+
