@@ -6030,3 +6030,11 @@ fami通的新demo把笼手女真名静御前爆出来了，不是你立本人怎
 还有这游戏到 ...</blockquote>
 估计是和RE2，3差不多时代的东西，我玩着demo感觉画面明显比后面用RE引擎的生8，生9，实质存在这些画面差一档，就和RE2那会一样的灰蒙蒙，脏兮兮的感觉，而且感觉有些日本建筑和竹林的素材是用的怪猎崛起的，贫穷的一逼～<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杀仁小登  
+##### 625#       发表于 2026-6-11 21:31
+
+牛若丸作为主角的ONIMUSHA ORIGIN什么的也已经在做了吧
+

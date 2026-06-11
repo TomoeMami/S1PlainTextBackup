@@ -1339,3 +1339,14 @@ xbg的女主最精炼的关键词，很有可能就是这个瞎眼
 
 来个散发跪地一场空吧，高桥桑
 
+
+*****
+
+####  woaimiyabi  
+##### 117#       发表于 2026-6-11 21:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69761610&amp;ptid=2283106" target="_blank">没取名啊 发表于 2026-6-11 18:46</a>
+
+感觉太阳应该就在球体/环带的中央。在这个画面里能透过星空直接看到对面的陆地，左下角的地形就是PV里多次 ...</blockquote>
+那这就说明 一些异学家分析的没有黑夜是错误的，这个世界在有六个太阳的情况下也有 夜晚星空。
+
