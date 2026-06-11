@@ -467,3 +467,13 @@ Guro看得少，不能把小怪吸入淋逼，搞胎内回归那一套吗</block
 
 [https://www.bilibili.com/video/BV13gidY3EQg/](https://www.bilibili.com/video/BV13gidY3EQg/)
 
+
+*****
+
+####  地方就是咖啡好  
+##### 49#       发表于 2026-6-11 16:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怀仙胎……我记得某国产黄漫就是这个设定，超重口的。
+
+—— 来自 HONOR ANY-AN00, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
