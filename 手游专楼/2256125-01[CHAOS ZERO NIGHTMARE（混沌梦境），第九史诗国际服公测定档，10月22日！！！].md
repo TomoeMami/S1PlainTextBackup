@@ -2606,3 +2606,14 @@ BOSS名字忘了。有个机制，每回合暴动。</blockquote>
 
 5星的只有专门下池抽
 
+
+*****
+
+####  三谷歩夢  
+##### 980#       发表于 2026-6-11 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69761338&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-6-11 17:56</a>
+
+大佬们还有辅战员不会歪到一般都是怎么获得的？是靠专门去抽还是靠换的？ ...</blockquote>
+性价比角度的话拿抽卡副产物换比较好
+

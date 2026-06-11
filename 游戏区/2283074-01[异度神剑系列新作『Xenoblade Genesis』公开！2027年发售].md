@@ -9822,3 +9822,37 @@ xg搞hd2d一堆素材要手搓没法从素材库直接搬过来吧
 
 —— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  狸狸狐  
+##### 975#       发表于 2026-6-11 22:09
+
+基本上2-3月一个的节奏，那么xbg很大概率会是3-4月
+
+*****
+
+####  lbj5454  
+##### 976#       发表于 2026-6-11 22:09
+
+<img src="https://img.stage1st.com/forum/202606/11/220837ussgbswzgwvvstco.jpg" referrerpolicy="no-referrer">
+
+<strong>45098496aecfbcc59a480c400e2741d537866581.jpg</strong> (664.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 22:08 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">  XG2
+
+
+*****
+
+####  巴尔干炮  
+##### 977#       发表于 2026-6-11 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69762525&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-6-11 22:05</a>
+
+9月应该没有pv2  要等明年二月份春直了，然后六月份nd定档  八九月份发售，感觉大概率是这个流程。 ...</blockquote>
+xb系列在宣发上的待遇很高，大概率有专场直面会。
+
