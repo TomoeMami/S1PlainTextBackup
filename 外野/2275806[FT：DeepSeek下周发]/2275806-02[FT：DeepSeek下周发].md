@@ -2396,3 +2396,24 @@ https://github.com/can1357/oh-my-pi  是这个吗？</blockquote>
 
 v4pro什麼時候才能每秒1000詞元，mimo都做到了
 
+
+*****
+
+####  overflowal  
+##### 1689#       发表于 2026-6-11 08:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69756579&amp;ptid=2275806" target="_blank">C0s4qmLH9eF9P3w 发表于 2026-6-10 23:42</a>
+v4pro什麼時候才能每秒1000詞元，mimo都做到了</blockquote>
+那是用b300做的，Deepseek已经绑在国产卡了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  库德里尔  
+##### 1690#       发表于 2026-6-11 08:57
+
+ohmycodex好玩吗？
+我想玩玩pi omp omc 但是肯定先玩其中一个
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

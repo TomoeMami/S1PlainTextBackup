@@ -854,3 +854,42 @@ PV里的很多怪包括坐骑目前看都是来自XG的设定</blockquote>
 PV里的很多怪包括坐骑目前看都是来自XG的设定</blockquote>
 你这个有点牛了
 
+
+*****
+
+####  lost-star  
+##### 76#       发表于 2026-6-11 08:49
+
+怪都有了，那合理幻想，异度装甲重制版已经在做了，这次先用边角料出个新作交差，用啥题材呢，就用校园吧，翻车几率最小<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xwr  
+##### 77#       发表于 2026-6-11 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69756789&amp;ptid=2283106" target="_blank">66367749 发表于 2026-6-11 00:55</a>
+
+地图感觉巨大，这两张都是右边火山地带，但左边的地形却是两块地方
+
+疑似引力异常的浮空石柱</blockquote>
+
+如果以火山岛为中心的话，群岛在左侧，峡谷在右侧。第一张图下半部分以右上角火山岛为中心旋转180度，火山岛的左右就拼上了。
+
+假设PV里主角一行在飞船环形山的平面上，抬头一看分别是群岛-火山-峡谷这样的，而峡谷显然和飞船环形山的平面相连可以走上去。
+
+<img src="https://img.stage1st.com/forum/202606/11/084516muzc8eqldeivuqph.jpg" referrerpolicy="no-referrer">
+
+<strong>1781125603492660.jpg</strong> (489.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 08:45 上传
+
+<img src="https://img.stage1st.com/forum/202606/11/084518v3fggz8gtg3gset3.jpg" referrerpolicy="no-referrer">
+
+<strong>1781137493843879.jpg</strong> (480.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 08:45 上传
+
