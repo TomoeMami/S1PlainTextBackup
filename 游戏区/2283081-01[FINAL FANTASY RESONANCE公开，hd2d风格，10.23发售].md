@@ -752,3 +752,13 @@ brave frontier是alim的，ffbe是se找alim开发的，自己偷自己是吧
 
 本作には『FF』シリーズの歴代主人公たちを含めて26名のビジョンが登場しますが、全員が輝くシステムにする必要がありました。
 
+
+*****
+
+####  妄想中毒  
+##### 75#       发表于 2026-6-11 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69758122&amp;ptid=2283081" target="_blank">アーリィ 发表于 2026-6-11 10:07</a>
+浅野组也整不出什么大活了，意料之中，甚至连背后灵系统也只是把职业换一种表现方式，属于做什么游戏都要 ...</blockquote>
+可是FF5的系统就是好玩啊，都可以算JRPG里职业系统的标杆了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
