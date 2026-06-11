@@ -1209,3 +1209,11 @@ WHL
 真要XG2了？</blockquote>
 记得当年因为工期和资金，和FF7同期并行开发，以及90年代中后期史克威尔自身的种种原因XG留有遗憾，说不定这次做的是XG完全版<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usoda  
+##### 106#       发表于 2026-6-11 16:27
+
+我看高桥哥哥不把他的六部曲全弄出来是誓不罢休的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
