@@ -2417,3 +2417,15 @@ ohmycodex好玩吗？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ycjiang1337  
+##### 1691#       发表于 2026-6-11 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69756579&amp;ptid=2275806" target="_blank">C0s4qmLH9eF9P3w 发表于 2026-6-10 23:42</a>
+v4pro什麼時候才能每秒1000詞元，mimo都做到了</blockquote>
+那个高速版价格是普通版的三倍，明显是用B卡跑的
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
