@@ -5975,3 +5975,15 @@ fami通的新demo把笼手女真名静御前爆出来了，不是你立本人怎
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Piano-Forest  
+##### 620#         楼主| 发表于 2026-6-11 14:20
+
+几日前，我们受邀在夏日游戏节（SGF）期间体验了两段《鬼武者 剑之道》的全新内容，分别是小黑屋剧场“阿国歌舞伎”关卡演示以及一次大约 1 个小时的实机试玩，都和目前大家能够玩到的 DEMO 内容没有任何重叠，游戏体验也有所不同。
+[https://weibo.com/ttarticle/x/m/show#/id=2309405308597139013665](https://weibo.com/ttarticle/x/m/show#/id=2309405308597139013665)
+
+【新作】『鬼武者 Way of the Sword』最新プレイ映像。ボス“羅掌願”との戦いは緊張感と歯応えのある剣劇アクションは必見【SGF2026】
+[https://youtu.be/JDMQGnS9Cns](https://youtu.be/JDMQGnS9Cns)
+

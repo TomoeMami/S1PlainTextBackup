@@ -9269,3 +9269,29 @@ b站有舅舅把剧情透了很多，这里不敢说
 
 越看地图越性感，有感觉了，好急啊，玩不到xb感觉身上有蚂蚁在爬
 
+
+*****
+
+####  kalavinka  
+##### 919#       发表于 2026-6-11 14:15
+
+那个发人设图的又在B视频下爆料了，不知真假就不转了，BV1MFE96mEYW下面<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lqn870727  
+##### 920#       发表于 2026-6-11 14:22
+
+不知道真假那还不简单，我去视频下面直接@港任看看成色，死了就是真的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  狸狸狐  
+##### 921#       发表于 2026-6-11 14:22
+
+唯一可以确定的是当初那个PPT里面的两个人物的图片和描述确实和现在的xbg有关，其他就不用多发散了。
+
