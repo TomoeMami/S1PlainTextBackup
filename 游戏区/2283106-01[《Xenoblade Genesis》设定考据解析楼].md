@@ -893,3 +893,29 @@ PV里的很多怪包括坐骑目前看都是来自XG的设定</blockquote>
 
 2026-6-11 08:45 上传
 
+
+*****
+
+####  misya  
+##### 78#       发表于 2026-6-11 09:03
+
+是该说XG之后的时间线了，之前的都已经讲完了
+
+*****
+
+####  woaimiyabi  
+##### 79#       发表于 2026-6-11 09:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69756596&amp;ptid=2283106" target="_blank">没取名啊 发表于 2026-6-10 23:49</a>
+
+这些巨大白色建筑是什么？看比例应该相当巨大，还方方正正的</blockquote>
+我草兄弟 看你这两张图 我发现好像是一个地方，上面我圈的地方 放大看上去是个城镇 但很模糊  不出意外应该是你第二张图 pv最开始的那个城市，我就感觉从你这两张图标记的白色建筑物的周围地形有点相似，下面城市后面那里更像是近距离放大版，后来我看了一下 还真有可能是对上了。
+
+<img src="https://img.stage1st.com/forum/202606/11/085940z52zfsffssd2zsjg.png" referrerpolicy="no-referrer">
+
+<strong>4f951f22-8e8a-40d2-a406-ed606a339758.png</strong> (476.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-11 08:59 上传
+
