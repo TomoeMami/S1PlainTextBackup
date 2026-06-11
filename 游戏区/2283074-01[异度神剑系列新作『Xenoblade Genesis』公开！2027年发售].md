@@ -9986,3 +9986,11 @@ XB3当时是2月首曝
 
 别是男主变身是机神，女主变身是巨神，两个人合体是永劫吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  misya  
+##### 989#       发表于 2026-6-12 06:20
+
+能别变身么，这个世界观应该上魔装机神啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
