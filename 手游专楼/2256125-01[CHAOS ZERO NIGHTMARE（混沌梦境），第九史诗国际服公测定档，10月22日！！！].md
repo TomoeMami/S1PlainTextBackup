@@ -2529,3 +2529,19 @@ BOSS名字忘了。有个机制，每回合暴动。</blockquote>
 
 我只想练出两队收个菜领个钻
 
+
+*****
+
+####  御姐控之耻  
+##### 974#       发表于 2026-6-11 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69758149&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-6-11 10:10</a>
+出了个小春，有用么？
+
+现在苦于没有一篇可以无脑照搬的攻略，别人说的配队经常角色没有，然后换自己的人进 ...</blockquote>
+【【卡厄思梦境】入坑攻略第八期 | 万能配队公式+全角色配队标签-哔哩哔哩】 https://b23.tv/bm2VBQA
+
+可以看看这个视频能不能帮到你。
+
+我自己是用的wiki
+
