@@ -9627,3 +9627,26 @@ https://ngabbs.com/read.php?tid=46964523
 
 然后拔剑环节，女主升仙心眼觉醒打通任督二脉，男主mega变身，妹/妹头复活变成公主切弓巫女
 
+
+*****
+
+####  hkguty  
+##### 956#       发表于 2026-6-11 19:30
+
+<blockquote>ShitOverflow 发表于 2026-6-11 19:20
+女主设定一眼就很招哥布林喜欢
+
+照我刻板印象，女角色越优秀越独立越刀，越主角团（小队1）越刀，越素越不 ...</blockquote>
+女主像女版黎恩，说起来黎恩也是越虐女粉越心疼，男主有点像绯夜里的贝姐性转，对权贵的不屑以及很野性的力量。
+
+
+*****
+
+####  江口夕  
+##### 957#       发表于 2026-6-11 19:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">xb3都互看记忆这种羞耻play了，你要往细了想那就是啥都看光，邪恶程度已经超过黄油了。
+很期待高桥哥哥这次玩什么play，难道会有我最期待的盲女rape环节。没有的话，有几个小混混欺负下这种那也是可以的
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
