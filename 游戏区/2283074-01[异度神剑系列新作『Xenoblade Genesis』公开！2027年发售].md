@@ -12009,3 +12009,72 @@ xb系列战斗系统目前的一个硬伤就是和怪物没有交互，各打各
 
 另外那个疑似是飞船头的巨山，有没有可能这是一个星际移民船，撞进某个球体。船上有很多晶石，每一个是为了星际旅行保存起来的人的灵魂，单独的存储单元。
 
+
+*****
+
+####  MrlOst  
+##### 1187#       发表于 2026-6-12 17:09
+
+其实a不arpg也无所谓，xb战斗系统的最大问题还是前期太慢热，希望新作有方法解决
+
+不過xb3开始动作感越来越强了，还能滑步什么的
+
+
+*****
+
+####  lqn870727  
+##### 1188#       发表于 2026-6-12 17:10
+
+我记得为了做好指令战斗，高桥以前不还让人去玩魔兽么，我觉得他最近没这么干了，要想交互还不简单，正式服M难度副本的机制抄几个包有交互的，就怕又太难了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 1189#       发表于 2026-6-12 17:10
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2026-6-12 17:14 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69766970&amp;ptid=2283074" target="_blank">没取名啊 发表于 2026-6-12 17:02</a>
+
+指令式即时战斗挺好的，不用完全转ARPG，就改一点就行。
+
+xb系列战斗系统目前的一个硬伤就是和怪物没有交互 ...</blockquote>
+XB1还好，23大多数怪的招数缺乏威胁，可能打完只会记得对面的反射系技能了，FF12就做得很好，主要是各种debuff太折磨人了，要见招拆招。
+
+*****
+
+####  星花  
+##### 1190#       发表于 2026-6-12 17:12
+
+ 本帖最后由 星花 于 2026-6-12 17:13 编辑 
+
+其实主角已经死了，控制身体的是阿尼玛。
+
+或者。
+
+把灵魂存在阿尼玛内，肉体坏了也无所谓，人不能离开阿尼玛太远 否则会失去意识。
+
+反正阿尼玛这东西一看就有问题。
+
+*****
+
+####  江口夕  
+##### 1191#       发表于 2026-6-12 17:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">高桥哥哥:你们竟然为难我做arpg.act，我看还是做大奶吧，魔兽抄了这么多年我都没抄明白，你们是想让我暴死
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  sslink  
+##### 1192#       发表于 2026-6-12 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69767039&amp;ptid=2283074" target="_blank">江口夕 发表于 2026-6-12 17:12</a>
+
+高桥哥哥:你们竟然为难我做arpg.act，我看还是做大奶吧，魔兽抄了这么多年我都没抄明白，你们是想让我暴死
+
+ ...</blockquote>
+轨迹侠能别装xb粉在这拉屎了吗
+
