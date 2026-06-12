@@ -12078,3 +12078,36 @@ XB1还好，23大多数怪的招数缺乏威胁，可能打完只会记得对面
  ...</blockquote>
 轨迹侠能别装xb粉在这拉屎了吗
 
+
+*****
+
+####  没取名啊  
+##### 1193#       发表于 2026-6-12 17:16
+
+ 本帖最后由 没取名啊 于 2026-6-12 17:17 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69767029&amp;ptid=2283074" target="_blank">Dai-Dai-Dai-Dai 发表于 2026-6-12 17:10</a>
+XB1还好，23大多数怪的招数缺乏威胁，可能打完只会记得对面的反射系技能了，FF12就做得很好，主要是各种de ...</blockquote>
+2代反制怪物的手段是上球，什么封印恶臭封印武技之类的。但是这玩意一来需要记哪条路线封印哪个，二来能不能连出来还要看队友转没转好cd，要费好大功夫才能完成一次封印，有这功夫我都打掉怪物半管血了。不搞高难自限的话，正常通关根本用不上去打这种封印，反正我上球时都是看哪条路线比较好连出来就先上哪个
+
+*****
+
+####  lilod  
+##### 1194#       发表于 2026-6-12 17:16
+
+但是我非常不希望变成类似 FF14 在地上疯狂画圆，或者最近魂系 boss 各种飞天大草类型的交互。
+
+不过，我也完全不抱能做出啥多好东西的希望啊（摊手
+
+
+*****
+
+####  江口夕  
+##### 1195#       发表于 2026-6-12 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69767053&amp;ptid=2283074" target="_blank">sslink 发表于 2026-6-12 17:13</a>
+轨迹侠能别装xb粉在这拉屎了吗</blockquote>
+不好意思，我是xb2粉丝，自称切割xb2.xb3和xb
+Dlc的人能不能去外面聊
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
