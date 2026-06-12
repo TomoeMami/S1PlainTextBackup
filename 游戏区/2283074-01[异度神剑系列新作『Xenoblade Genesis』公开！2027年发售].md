@@ -11376,3 +11376,51 @@ g里不要再有艾塞尔级别的迷惑剧情了好吗<img src="https://static.
 
 —— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  海晟天锻  
+##### 1120#       发表于 2026-6-12 15:28
+
+我只觉得前两天专楼气氛还挺好的，想战斗可以去人设楼接着汴<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  星花  
+##### 1121#       发表于 2026-6-12 15:29
+
+我认为PV里才是DLC女主。毕竟DLC喜欢搞前传。
+
+
+*****
+
+####  高贵的  
+##### 1122#       发表于 2026-6-12 15:33
+
+整个PV都是石头里的记忆是吧，下一个PV就是一个角色把石头拿开，然后说老祖宗也不录点正事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  richardkisser  
+##### 1123#       发表于 2026-6-12 15:33
+
+反证XB2-2是永远不会再有的，而异度系列会一直继续出下去
+
+哎，你说没人买，销量低，会倒逼mono回头？
+
+那对不起了，mono背后是任天堂
+
+怎么，气不气，你不服气吗？
+
+*****
+
+####  海晟天锻  
+##### 1124#       发表于 2026-6-12 15:33
+
+那舅舅说中期女主才瞎的，指不定第一世主角团前期就打到boss面前翻车了，然后进入第二世，更没准只有男女主死了进入第二世后的男女主碰上的都是十几年乃至几十年长大后的其他主角团成员<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
