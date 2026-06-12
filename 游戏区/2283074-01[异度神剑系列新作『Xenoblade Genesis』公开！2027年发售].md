@@ -12468,3 +12468,32 @@ wiki里这段不知道出自游戏数据库还是后来的资料砖头本里<blo
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  woaimiyabi  
+##### 1229#       发表于 2026-6-12 20:48
+
+感觉xbg还是不如当年xb3公布的时候热度高，xb3第一个pv话题性拉满了 因为出现了梅里亚跟尼亚，我看国内外pv点击率也是比xb3少，ign视频国内少十万，官方视频国外少了好几十万，xb3好像首周就是九十多万点击率，xbg现在才二十多万点击率。
+
+*****
+
+####  lubo  
+##### 1230#       发表于 2026-6-12 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69768133&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-6-12 20:48</a>
+
+感觉xbg还是不如当年xb3公布的时候热度高，xb3第一个pv话题性拉满了 因为出现了梅里亚跟尼亚，我看国内外pv ...</blockquote>
+这次不是OMT，流量在时之笛那边
+
+*****
+
+####  lilod  
+##### 1231#       发表于 2026-6-12 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69768133&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-6-12 20:48</a>
+感觉xbg还是不如当年xb3公布的时候热度高，xb3第一个pv话题性拉满了 因为出现了梅里亚跟尼亚，我看国内外pv ...</blockquote>
+那还是很不一样的 之前xb3是直面会压轴 同时也临近发售
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

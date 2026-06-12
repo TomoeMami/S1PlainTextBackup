@@ -1989,3 +1989,11 @@ https://www.playasia.digital/zh-cn/fire-emblem-fortunes-weave-dagdan-collection-
 
 无所谓啦，日亚限定版已经预定，安心等发售了。
 
+
+*****
+
+####  28201  
+##### 891#       发表于 2026-6-12 20:50
+
+所以前传比后传好啊，za dlc卡露尼孩子出场不也一群人接受不了
+
