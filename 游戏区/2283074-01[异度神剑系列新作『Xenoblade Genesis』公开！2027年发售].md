@@ -10757,3 +10757,29 @@ tm光一个人设就能定性男性向还是女性向是不是脑子没褶啊(
 女主本来就是很正规漂亮的JRPG人设，现在闹得人大部分都是要光和焰这种人设。 ...</blockquote>
 2代有点出圈了，所以小鬼比较多，其实我觉得4代最好看，是4＞3＞2＞1，就人设美型上看
 
+
+*****
+
+####  SAKURAJIMAI  
+##### 1063#       发表于 2026-6-12 13:10
+
+我个人是觉得女主属于那种第一眼比较普通但是越看越好看的类型
+
+
+*****
+
+####  锦木万束  
+##### 1064#       发表于 2026-6-12 13:12
+
+这一作还有萝卜和服务器人类量子化的科幻史观吗，怎么trailer什么没有看到<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mitzvah  
+##### 1065#       发表于 2026-6-12 13:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69765230&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-6-12 12:50</a>
+
+隔壁b站看到一个虚拟主播叫什么雪绘，第一眼就说xbg女主好美 人设好好看，她从没玩过异度，但好像是玩过风 ...</blockquote>
+女玩家喜欢就坏事了。这种画风之所以被人报警就是因为这个原因
+
