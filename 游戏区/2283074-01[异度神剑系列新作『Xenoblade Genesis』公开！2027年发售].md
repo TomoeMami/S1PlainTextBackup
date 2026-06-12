@@ -12301,3 +12301,11 @@ Luxin来了
 《异度神剑：创世纪》的穷尽式拆解【Luxin授权|中英字幕】
 [https://www.bilibili.com/video/BV1vdE16TEwq](https://www.bilibili.com/video/BV1vdE16TEwq)
 
+
+*****
+
+####  whzfjd  
+##### 1214#       发表于 2026-6-12 18:27
+
+那我猜pv男女主相当于诺亚Mio，其实走完全场，ppt里的相当于MN，回忆里操作操作，刚好可以缓解残疾问题，然后 dlc 就是这两人健康状态的前传。
+
