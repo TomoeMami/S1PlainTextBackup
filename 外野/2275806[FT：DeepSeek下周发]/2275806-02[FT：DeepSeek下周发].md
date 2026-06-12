@@ -2429,3 +2429,23 @@ v4pro什麼時候才能每秒1000詞元，mimo都做到了</blockquote>
 
 —— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  アコ  
+##### 1692#       发表于 2026-6-12 16:16
+
+有没有酒馆用户使用Luker
+
+看到有个
+
+#多Agent编排
+
+记忆图后台跑三件事：自动提取、智能召回、分层压缩。
+
+我看了一下流程说明
+
+[https://luker.cups.moe/zh-CN/features/memory-graph.html](https://luker.cups.moe/zh-CN/features/memory-graph.html)
+
+这不token爆炸<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer"> 
+
