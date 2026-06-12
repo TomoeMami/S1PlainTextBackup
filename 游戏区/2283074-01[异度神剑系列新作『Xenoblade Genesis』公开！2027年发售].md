@@ -10838,3 +10838,13 @@ tm光一个人设就能定性男性向还是女性向是不是脑子没褶啊(
 
 老袋b站新发的视频倒是痛快，有点嘴替的感觉。
 
+
+*****
+
+####  superlink  
+##### 1072#       发表于 2026-6-12 13:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我猜高桥可是做着五百万大梦，然后把xg版权搞回来做重置呢
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
