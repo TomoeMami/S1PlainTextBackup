@@ -10242,3 +10242,22 @@ XB3当时是2月首曝
 
 通通送去品鉴xs脱敏一下，致力于让每一位试图代入角色感情线的玩家气到脑溢血
 
+
+*****
+
+####  贝雷特  
+##### 1016#       发表于 2026-6-12 09:38
+
+有时候话题的讨论方向，让人摸不到头脑 又大女主又黑皮的 ，这瓜你们到底还买不买？
+
+*****
+
+####  江口夕  
+##### 1017#       发表于 2026-6-12 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69763876&amp;ptid=2283074" target="_blank">Jabeck 发表于 2026-6-12 09:28</a>
+狂战传说也是大女主乙游吗？没玩过。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">狂战当然算大女主，但是女主是光棍。和乙女漫画搭不上边
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
