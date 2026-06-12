@@ -2486,3 +2486,36 @@ DSv4啥时候发正式版啊
 现在的输出水平真的神神鬼鬼，有时候能roll到很惊艳的回答，有时候完全是复读机和幻 ...</blockquote>
 据说是这个月有4.1<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千千千千鸟  
+##### 1696#       发表于 2026-6-12 17:56
+
+omp我刚开始玩pi的时候安装了一下，一瞬间一大堆新东西涌入整懵逼了直接让pi给我删了，还是原生态好点。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  杀人鲸  
+##### 1697#       发表于 2026-6-12 17:58
+
+好像APP又有一个小版本更新，更新到了216。
+只不过我有点奇怪的就是，我直接点APP的版本号，上面没有显示。
+我这还是打开了某个软件商城，才在更新列表里面发现的。
+所以这为什么反而在软件本体里面找不到更新的提示呀？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  neptunehs  
+##### 1698#       发表于 2026-6-12 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69767265&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-6-12 17:50</a>
+据说是这个月有4.1</blockquote>
+我只期待赶紧有多模态
+我现在在搞的逆向算是让我了解清楚我的语文有多差了 完全无法描述结果 换了mimo然后免费的mimo超级慢
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
