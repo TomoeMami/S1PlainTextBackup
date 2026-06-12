@@ -11165,3 +11165,114 @@ NS和PC及PS上玩家构成是完全不同的。
 
 2026-6-12 14:55 上传
 
+
+*****
+
+####  topia  
+##### 1100#       发表于 2026-6-12 14:58
+
+别再整死真是一件美事的求死之旅就行了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">求你了
+
+*****
+
+####  ArthurDent  
+##### 1101#       发表于 2026-6-12 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69765963&amp;ptid=2283074" target="_blank">篠雨 发表于 2026-6-12 14:53</a>
+为什么这张泄露图女主瞳色是灰色，记得不是绿色么？</blockquote>
+说是会瞎<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  woaimiyabi  
+##### 1102#       发表于 2026-6-12 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69765963&amp;ptid=2283074" target="_blank">篠雨 发表于 2026-6-12 14:53</a>
+
+为什么这张泄露图女主瞳色是灰色，记得不是绿色么？</blockquote>
+泄露这个图的人说， 图上两个人跟pv里面的男女主不是同一个，不知道具体是什么意思，难道男女主有类似光和焰那样的设计？
+
+*****
+
+####  狸狸狐  
+##### 1103#       发表于 2026-6-12 14:59
+
+<img src="https://img.stage1st.com/forum/202606/12/145910s6ws9h7nsn7h7uuo.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260612_145423.jpg</strong> (62.73 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-12 14:59 上传
+
+<img src="https://img.stage1st.com/forum/202606/12/145911pjmjd68cm8k8u8cd.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1232.png</strong> (184.7 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-12 14:59 上传
+
+<img src="https://img.stage1st.com/forum/202606/12/145911c4xsz4poptsbfgzx.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260611_105431_com.uc.mobile.jpg</strong> (326.4 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-12 14:59 上传
+
+可能是圆柱形。所以有时候看海平面特别垂直，有时候看又是一个往前延伸的圆弧。
+
+*****
+
+####  狸狸狐  
+##### 1104#       发表于 2026-6-12 15:01
+
+<blockquote>woaimiyabi 发表于 2026-6-12 14:59
+泄露这个图的人说， 图上两个人跟pv里面的男女主不是同一个，不知道具体是什么意思，难道男女主有类似光 ...</blockquote>
+只有图上信息可以证实确实有关联。后续说的都可能当烟雾弹。还有一种可能是序章主角团死光，正片转世二周目开启。
+
+
+*****
+
+####  篠雨  
+##### 1105#       发表于 2026-6-12 15:03
+
+<img src="https://img.stage1st.com/forum/202606/12/150051a328g3s2j79953p6.png" referrerpolicy="no-referrer">
+
+<strong>BEE24AC2122C9C6F1B25338D809068E6.png</strong> (128.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 15:00 上传
+
+我是发现泄露图与泄露图里的瞳色不一样，难道是曼德拉效应？
+
+*****
+
+####  高贵的  
+##### 1106#       发表于 2026-6-12 15:04
+
+就PV内容来看怎么感觉这个学院本质是个兵工厂
+
+*****
+
+####  星花  
+##### 1107#       发表于 2026-6-12 15:05
+
+看对话阿尼玛能记录记忆。所以真会灭团。
+
+*****
+
+####  SAKURAJIMAI  
+##### 1108#       发表于 2026-6-12 15:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69766031&amp;ptid=2283074" target="_blank">篠雨 发表于 2026-6-12 15:03</a>
+我是发现泄露图与泄露图里的瞳色不一样，难道是曼德拉效应？</blockquote>
+下面那张图我看着是灰色的
+
