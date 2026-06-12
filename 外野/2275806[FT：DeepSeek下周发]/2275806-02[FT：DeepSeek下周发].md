@@ -2533,3 +2533,11 @@ DSv4啥时候发正式版啊
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  overflowal  
+##### 1700#       发表于 2026-6-12 19:44
+
+现在所有人都不知道deepseek 在干啥。所以也别期待太多。之前外媒传的太假了，说什么加强mcp能力，神经病一样    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
