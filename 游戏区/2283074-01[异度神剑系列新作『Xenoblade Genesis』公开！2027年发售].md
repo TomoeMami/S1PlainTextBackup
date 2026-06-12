@@ -11124,3 +11124,44 @@ NS和PC及PS上玩家构成是完全不同的。
 
 六颗太阳吗，感觉流程八成有一颗一颗的小太阳熄灭<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jabeck  
+##### 1096#       发表于 2026-6-12 14:47
+
+几个SB玩意又到专楼里来打滚了。
+
+
+*****
+
+####  lly778  
+##### 1097#       发表于 2026-6-12 14:52
+
+事实上就是mono永远不会做xb2-2了，xb2唯粉能乖乖滚出么
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  篠雨  
+##### 1098#       发表于 2026-6-12 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69765751&amp;ptid=2283074" target="_blank">Dashuaibi 发表于 2026-6-12 14:20</a>
+
+现在女主人设争论这么大我怀疑是都没看几个月前的泄露图，当时一眼惊艳，盲女主角这tag也是新鲜感拉满，以 ...</blockquote>
+为什么这张泄露图女主瞳色是灰色，记得不是绿色么？
+
+*****
+
+####  woaimiyabi  
+##### 1099#       发表于 2026-6-12 14:55
+
+<img src="https://img.stage1st.com/forum/202606/12/145508whcyvmg7m9999o3v.jpg" referrerpolicy="no-referrer">
+
+<strong>2F99C9B54C9821B7FAD782D51BD4BBC3.jpg</strong> (286.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 14:55 上传
+
