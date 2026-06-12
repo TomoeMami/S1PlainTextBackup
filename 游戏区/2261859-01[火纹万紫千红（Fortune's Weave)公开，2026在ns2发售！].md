@@ -1931,3 +1931,17 @@ pv不是都说了封面4个人是主人公了，怎么还有人yy白毛是主角
 
 这代有光荣参与吗
 
+
+*****
+
+####  狩野すみれ  
+##### 885#       发表于 2026-6-12 16:55
+
+有熟悉play-asia的大佬吗？
+
+play-asia上日版Dagdan Collection显示Soon，但又写“此商品库存有限，现有配额已全部售出。”，到底是还会不会有？
+
+https://www.playasia.digital/zh-cn/fire-emblem-fortunes-weave-dagdan-collection-multi-language/13/70k1d5
+
+----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.48)
+

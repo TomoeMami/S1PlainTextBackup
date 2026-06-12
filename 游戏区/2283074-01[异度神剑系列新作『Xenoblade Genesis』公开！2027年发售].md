@@ -11930,3 +11930,40 @@ XBX DE和XB3 DLC也在默默往前作引。
 
 XB3 的格斗家职业手感已经接近 ARPG 了
 
+
+*****
+
+####  mai6696  
+##### 1179#       发表于 2026-6-12 16:46
+
+ 本帖最后由 mai6696 于 2026-6-12 16:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69766823&amp;ptid=2283074" target="_blank">lilod 发表于 2026-6-12 16:44</a>
+
+XB3 的格斗家职业手感已经接近 ARPG 了</blockquote>
+XB3我忘了是哪个骑士还是啥的，有暴击减CD还是啥的。
+
+当时配完了之后几乎就完全无CD，想怎么连怎么连，很有ACT手感了。
+
+但是伤害还是不如拔剑来着，我就当娱乐了。
+
+*****
+
+####  richardkisser  
+##### 1180#       发表于 2026-6-12 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69766702&amp;ptid=2283074" target="_blank">江口夕 发表于 2026-6-12 16:29</a>
+
+不是我小看高桥哥哥，一开始就可以自由飞行的开放地图就是巨雷。
+
+—— 来自 Xiaomi 23113RKC6C, Android 1 ...</blockquote>
+等PV2再看吧，飞行可能只是剧情CG<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+就算有飞行，也不会很快解锁的，这是设计上的大忌
+
+*****
+
+####  lilod  
+##### 1181#       发表于 2026-6-12 16:51
+
+说起来 pv 里女主躲白毛女那段翻滚看着特别魂系翻滚，笑死
+

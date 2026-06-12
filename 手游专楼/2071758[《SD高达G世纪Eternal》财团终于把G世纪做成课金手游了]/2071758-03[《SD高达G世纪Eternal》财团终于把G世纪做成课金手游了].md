@@ -52,3 +52,15 @@
 
 直播池来点UC吧，从神高达池入坑开始好像都没UC的直播限定机
 
+
+*****
+
+####  无念  
+##### 4360#       发表于 2026-6-12 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69766762&amp;ptid=2071758" target="_blank">Xekueins 发表于 2026-6-12 16:38</a>
+直播池来点UC吧，从神高达池入坑开始好像都没UC的直播限定机</blockquote>
+你等着嗷，G夸也算UC<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
