@@ -1106,3 +1106,13 @@ gxyy提前备战周年强化
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  格林卡罗尔  
+##### 20940#       发表于 2026-6-12 09:30
+
+我感觉会有水小玉强化<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

@@ -10199,3 +10199,46 @@ XB3当时是2月首曝
 
 人设楼关不住了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江口夕  
+##### 1011#       发表于 2026-6-12 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69763815&amp;ptid=2283074" target="_blank">没取名啊 发表于 2026-6-12 09:17</a>
+哪有乙游只美型一个男人的？在搞笑吗？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">乙游不知道，药屋少女真就一个男的，应该确切点说是传统乙女漫画
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Jabeck  
+##### 1012#       发表于 2026-6-12 09:28
+
+狂战传说也是大女主乙游吗？没玩过。
+
+*****
+
+####  紫菜粉丝煲  
+##### 1013#       发表于 2026-6-12 09:29
+
+能不能别来专楼拉屎，隔壁不够你们拉的么
+
+
+*****
+
+####  海晟天锻  
+##### 1014#       发表于 2026-6-12 09:31
+
+男主肤色深估计纯粹是要符合那爆料图里的奴隶角斗士设定，这种设定我就没见过非刻板印象白白嫩嫩的小白脸<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  findpkq  
+##### 1015#       发表于 2026-6-12 09:33
+
+通通送去品鉴xs脱敏一下，致力于让每一位试图代入角色感情线的玩家气到脑溢血
+
