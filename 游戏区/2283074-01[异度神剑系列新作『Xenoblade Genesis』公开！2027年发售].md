@@ -10076,3 +10076,36 @@ XB3当时是2月首曝
 
 网络这样也是受国外影响，国外要严重百倍，暂时是无法解决的。
 
+
+*****
+
+####  飞…陨  
+##### 998#       发表于 2026-6-12 08:19
+
+现在任天堂游戏都什么宣发节奏 xbg就是冲着明年初发售去的9月怎么会没有新pv 
+
+*****
+
+####  ParadiseMartyr  
+##### 999#       发表于 2026-6-12 08:21
+
+空轨是大女主么？
+现在看来空轨真是领先时代啊
+幸好最早构造我jrpg印象的就是这么领先时代的一部作品
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  古畑任三郎2015  
+##### 1000#       发表于 2026-6-12 08:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69763546&amp;ptid=2283074" target="_blank">ParadiseMartyr 发表于 2026-6-12 08:21</a>
+空轨是大女主么？
+现在看来空轨真是领先时代啊
+幸好最早构造我jrpg印象的就是这么领先时代的一部作品</blockquote>
+警惕双马尾长发男主角<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
