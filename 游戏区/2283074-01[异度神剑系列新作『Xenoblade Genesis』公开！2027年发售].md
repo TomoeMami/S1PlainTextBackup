@@ -12369,3 +12369,37 @@ xb这个系列4作都不一样没什么好参考的
 
 这里是不是个洞 还真是致敬巴别塔啊。
 
+
+*****
+
+####  findpkq  
+##### 1220#       发表于 2026-6-12 19:48
+
+器士英文是Vesselai 词元就是vessel ，同时异度传说中阿尼玛之器的英文也是Vessel  of Anima
+
+顺带xs的阿尼玛之器外观原型应该是脑干，也出现在xs2的标题logo中，xb2里T- elos武器造型也neta了阿尼玛之器
+wiki里这段不知道出自游戏数据库还是后来的资料砖头本里<blockquote>The Vessels of Anima have the ability to change shape based on the era they are in as well as the situation under which they are used. This could include as the forms of E.S.-like robots, but also weapons or something else. In the current era during which the game takes place</blockquote>
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  冰寒之月  
+##### 1221#       发表于 2026-6-12 19:54
+
+这新作人设真差点味道 太明亮了
+
+不过这个环形世界大地图是真的憧憬感拉满 很期待能整出什么世界观
+
+玩肯定还是要玩的 人设差口气就不买数字版了 换实体版 要是不喜欢还可以出二手<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰寒之月  
+##### 1222#       发表于 2026-6-12 19:55
+
+要是在指令式战斗加一个闪避可以躲过几乎所有招数 那就有点伪ARPG的味道了 
+
+具体战斗还是下达指令 攻击自动 但是可以闪避
+
