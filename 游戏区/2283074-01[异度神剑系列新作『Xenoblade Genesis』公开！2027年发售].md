@@ -10147,3 +10147,24 @@ XB3当时是2月首曝
 
 —— 来自 vivo V2408A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  海晟天锻  
+##### 1005#       发表于 2026-6-12 08:58
+
+这男主不一眼拉丁美裔人设，跟三哥黑人能扯上半点关系不，而且这pv大多都是阴暗处，真光照直射下肤色比飞还白点<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  江口夕  
+##### 1006#       发表于 2026-6-12 09:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">人空轨可是把雷点全按下去了，剧情严丝合缝喷不了主线，青梅竹马开局好感度拉满，约修亚性格人设男女都讨喜。
+至于黑不黑隔壁已经说完了不赘述，这型男人设不往乙游想是不可能的，鉴于xb3主线长那样我只能谨慎不乐观。大女主不是问题，关键你能不能写出符合大多人都认可的大女主剧情。游戏都没出，过多在这上面说意义不大。
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
