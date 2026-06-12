@@ -11327,3 +11327,52 @@ NS和PC及PS上玩家构成是完全不同的。
 兵工厂那不又和xb3差不多了...</blockquote>
 PV感觉没啥学生活动，但毕竟XB的特点是大地图PV肯定重点展示这个<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ArthurDent  
+##### 1115#       发表于 2026-6-12 15:16
+
+g里不要再有艾塞尔级别的迷惑剧情了好吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  CurryQAQ  
+##### 1116#       发表于 2026-6-12 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69766085&amp;ptid=2283074" target="_blank">江口夕 发表于 2026-6-12 15:10</a>
+喜欢xb2踢走，麻烦把3也枪毙了，3里有尼亚，3dlc有光焰女儿和莱克斯，你切割的掉么。顺带一提，3里的埃塞尔 ...</blockquote>
+有没有一种可能，喜欢二代和讨厌你这样打滚的二代粉丝并不冲突
+
+—— 来自 vivo V2458A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  whzfjd  
+##### 1117#       发表于 2026-6-12 15:21
+
+三人小队出门实习草地聊天，我第一反应是 xb3 监狱，学校，实际监狱！
+
+
+*****
+
+####  MrlOst  
+##### 1118#       发表于 2026-6-12 15:22
+
+说不定是dlc主角
+
+*****
+
+####  江口夕  
+##### 1119#       发表于 2026-6-12 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69766142&amp;ptid=2283074" target="_blank">CurryQAQ 发表于 2026-6-12 15:19</a>
+有没有一种可能，喜欢二代和讨厌你这样打滚的二代粉丝并不冲突
+
+—— 来自 vivo V2458A, Android 16, 鹅 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">讨厌巨乳的人能不能别和xb2沾边，不是把xb2粉丝切割了么，要么你们先打一架
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
