@@ -454,3 +454,15 @@ Fable本质还是Mythos缩水版吧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ayanamilin  
+##### 44#       发表于 2026-6-12 09:57
+
+ 本帖最后由 ayanamilin 于 2026-6-12 09:59 编辑 
+
+Research 能力和 token efficiency 确实很出色，限时使用意义不明。难道 A\ 还在藏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+effort 只敢开 xhigh，有无坛友告诉我 Pro 方案开 Max 划算吗？
+
