@@ -966,3 +966,19 @@ takayaspecial也在对面，还是对位可能也有关吧。
 
 就还是觉得有很多地方太怪了。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古战场亡魂  
+##### 20890#       发表于 2026-6-12 12:34
+
+我笑了……这企划往搞笑发展是吧……这位我看了下一个月前的段位是青铜三。
+
+<img src="https://img.stage1st.com/forum/202606/12/123333thonl7bqsho0dkkh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 12:33 上传
+
