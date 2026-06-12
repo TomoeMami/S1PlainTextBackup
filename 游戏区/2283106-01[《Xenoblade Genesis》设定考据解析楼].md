@@ -1415,3 +1415,14 @@ xbg的女主最精炼的关键词，很有可能就是这个瞎眼
 
 [论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  没取名啊  
+##### 124#       发表于 2026-6-12 22:42
+
+<img src="https://files.seeusercontent.com/2026/06/12/8ykA/BR_20260612223603__118_IGN-_-_bi.png" referrerpolicy="no-referrer">
+<img src="https://files.seeusercontent.com/2026/06/12/4Dwn/BR_20260612223612__119_IGN-_-_bi.png" referrerpolicy="no-referrer">
+
+看镜头摇过去时这蝴蝶一直没挪地方，还有一直维持在原地的闪光特效，这应该是新作的采集点？
+
