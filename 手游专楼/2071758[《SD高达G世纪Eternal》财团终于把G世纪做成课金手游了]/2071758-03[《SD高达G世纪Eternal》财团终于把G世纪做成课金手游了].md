@@ -64,3 +64,15 @@
 
 —— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Abomination  
+##### 4361#       发表于 2026-6-12 17:39
+
+新机无正没有老四大词条，还以为是要新开全机体平分的词条来扩充词条种类
+
+还是说老四大词条也算模，没有老四大所以非限定的能力可以强一点，但这次好像有老四大的黄机更强一点
+
+又或者纯粹是内部黑所以要削了老四大词条<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

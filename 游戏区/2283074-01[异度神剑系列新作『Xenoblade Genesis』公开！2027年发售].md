@@ -12138,3 +12138,25 @@ Dlc的人能不能去外面聊
 
 —— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  江口夕  
+##### 1199#       发表于 2026-6-12 17:36
+
+ 本帖最后由 江口夕 于 2026-6-12 17:37 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">反正不是我先的，我好好接别人的话讨论乙女女主，直接被当xb2粉丝切割了，作为喜欢光焰尼亚的那肯定是要帮帮场子的，谁叫你是xb专楼，你要是取名叫高桥哥哥winwin楼我肯定一句话不说，而且我记忆里xb3风评可没这么win
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  richardkisser  
+##### 1200#       发表于 2026-6-12 17:42
+
+ 本帖最后由 richardkisser 于 2026-6-12 17:44 编辑 
+
+我只是讨厌新作没有他喜欢的前作风格就<strong><strong>无脑</strong></strong>喷新作烂的人<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">，如果真伤到了谁，那我道歉
+
