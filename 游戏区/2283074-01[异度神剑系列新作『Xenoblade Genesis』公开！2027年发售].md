@@ -12788,3 +12788,13 @@ mono彭都没了，官推不会再cosplay了
 
 XB是工作，赚钱罢了，XG才是生活，要圆梦的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ivent  
+##### 1254#       发表于 2026-6-13 04:40
+
+ 本帖最后由 Ivent 于 2026-6-13 04:42 编辑 
+
+上一次xb3也是各种分析说成是xg2，这次xbg也要说成是xg2，明明说是新系列新开始却仿佛没有自己的内容，不少人对xb2-2的说法态度很反感，但却一点都不在乎xg2这种说法也蛮神秘的。
+
