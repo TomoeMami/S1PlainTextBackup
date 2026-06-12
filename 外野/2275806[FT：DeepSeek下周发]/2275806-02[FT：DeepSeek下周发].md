@@ -2569,3 +2569,14 @@ DSv4啥时候发正式版啊
 
 现在我就把opencode和ClaudeCode的源码放本地，做extension的时候把路径给omp让它读相关功能的源码，参考别人的提示词和思路搞个自己魔改的版本，从未有过如此自由的感受<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LeoDT  
+##### 1703#       发表于 2026-6-12 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69768415&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-6-12 21:50</a>
+
+其实我觉得最打开我思路的地方是pi没有workspace的概念，权限控制这个东西可能还有争议，但workspace是最 ...</blockquote>
+是啊还要什么websearch/webfetch，全都clone下来想怎么读怎么读。这几天搞emacs扩展，所有包都在本地，它想去看就让他去看，再也不用研究奇怪的elisp了。
+
