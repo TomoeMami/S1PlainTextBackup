@@ -10420,3 +10420,14 @@ from Fami, 关于世界尺度</blockquote>
 —— 来自 vivo V2408A, Android 16, 鹅球 v3.5.99 ...</blockquote>
 我不好说（就拿之前的提到的轨迹重置来说，整个空轨1st重置，整个游戏地图复杂度，地貌，交互，我不好说能不能超过 xb3 序章
 
+
+*****
+
+####  巴尔干炮  
+##### 1033#       发表于 2026-6-12 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69764228&amp;ptid=2283074" target="_blank">lilod 发表于 2026-6-12 10:26</a>
+
+from Fami, 关于世界尺度</blockquote>
+这个地图跑起来要是有2001太空漫游跑步那段的感觉就太棒了,不知道能不能实现.
+
