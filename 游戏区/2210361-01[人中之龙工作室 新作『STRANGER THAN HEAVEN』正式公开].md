@@ -34,3 +34,11 @@
 
 这种细碎拟真的战斗可能更贴合欧美市场需求，反正我彻底放弃购买了，听下ost完事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  clover293  
+##### 253#       发表于 2026-6-12 10:35
+
+这个战斗演示不如不放，要不横导以后别放战斗演示了，纯剪剧情，扬长避短<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
