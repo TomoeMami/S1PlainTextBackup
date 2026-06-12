@@ -12431,3 +12431,30 @@ wiki里这段不知道出自游戏数据库还是后来的资料砖头本里<blo
 
 —— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  xwr  
+##### 1225#       发表于 2026-6-12 20:06
+
+现在这个PV透露的太少了，最多也就猜猜世界观，还是得等后续PV，如果27年夏发售的话，至少得等好几个月，发售日PV可能年末才会有。
+
+
+*****
+
+####  u2deack  
+##### 1226#       发表于 2026-6-12 20:15
+
+我还以为又有什么新消息了，你们也是真能刷楼
+
+*****
+
+####  江口夕  
+##### 1227#       发表于 2026-6-12 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69767896&amp;ptid=2283074" target="_blank">findpkq 发表于 2026-6-12 20:01</a>
+预告舞蹈的粒子颜色看怎么沿用设定了，给主角团人脸特写的镜头中，蓝白色的粒子明显和同一场景下的红色的火 ...</blockquote>
+蓝毛跳舞那里的粒子是蓝和黄
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
