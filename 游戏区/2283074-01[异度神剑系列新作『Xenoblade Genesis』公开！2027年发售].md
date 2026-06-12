@@ -10168,3 +10168,11 @@ XB3当时是2月首曝
 
 —— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  沙发果冻  
+##### 1007#       发表于 2026-6-12 09:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">皮肤黑点就黑皮是吧，那XG的飞也是黑皮咯
+
