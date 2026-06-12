@@ -1426,3 +1426,19 @@ xbg的女主最精炼的关键词，很有可能就是这个瞎眼
 
 看镜头摇过去时这蝴蝶一直没挪地方，还有一直维持在原地的闪光特效，这应该是新作的采集点？
 
+
+*****
+
+####  riin2  
+##### 125#       发表于 2026-6-12 23:26
+
+懂了，jrpg尽头是轨迹。这下genesis 3估计也要发射火箭到外太空寻找真相了
+
+*****
+
+####  riin2  
+##### 126#       发表于 2026-6-12 23:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69762537&amp;ptid=2283106" target="_blank">lbj5454 发表于 2026-6-11 22:07</a></blockquote>
+好想法<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
