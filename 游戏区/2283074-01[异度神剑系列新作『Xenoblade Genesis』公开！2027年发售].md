@@ -10407,3 +10407,16 @@ from Fami, 关于世界尺度</blockquote>
 
 怎么每次异度新作能这么能盖楼 
 
+
+*****
+
+####  lilod  
+##### 1032#       发表于 2026-6-12 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69764476&amp;ptid=2283074" target="_blank">小大头菜 发表于 2026-6-12 11:06</a>
+
+地图大小已经不是当代游戏的难点了，意义不大
+
+—— 来自 vivo V2408A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+我不好说（就拿之前的提到的轨迹重置来说，整个空轨1st重置，整个游戏地图复杂度，地貌，交互，我不好说能不能超过 xb3 序章
+
