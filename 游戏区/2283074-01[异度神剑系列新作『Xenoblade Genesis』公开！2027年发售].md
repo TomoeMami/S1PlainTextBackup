@@ -10783,3 +10783,29 @@ tm光一个人设就能定性男性向还是女性向是不是脑子没褶啊(
 隔壁b站看到一个虚拟主播叫什么雪绘，第一眼就说xbg女主好美 人设好好看，她从没玩过异度，但好像是玩过风 ...</blockquote>
 女玩家喜欢就坏事了。这种画风之所以被人报警就是因为这个原因
 
+
+*****
+
+####  agllags  
+##### 1066#       发表于 2026-6-12 13:22
+
+我还巴不得多来点女玩家玩像风花雪月那样卖400万呢<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  アヘ顔  
+##### 1067#       发表于 2026-6-12 13:24
+
+坏菜了，集美入侵了
+我们异度之刃...会变成什么样子...（呜咽）<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无色辉火  
+##### 1068#       发表于 2026-6-12 13:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69765388&amp;ptid=2283074" target="_blank">mitzvah 发表于 2026-6-12 13:15</a>
+
+女玩家喜欢就坏事了。这种画风之所以被人报警就是因为这个原因</blockquote>
+割地思维不可取
+
