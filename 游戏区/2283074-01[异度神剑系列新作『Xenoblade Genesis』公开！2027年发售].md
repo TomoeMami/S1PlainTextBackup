@@ -11055,3 +11055,28 @@ NS和PC及PS上玩家构成是完全不同的。
 滚去你的人设楼接着bb去
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Arisita  
+##### 1090#       发表于 2026-6-12 14:26
+
+跟一个日式rp**商说什么集美扩圈吗，是不是二次元手游玩多了，这话术一套一套的，搞得好像高桥真会来看泥潭似得<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lilod  
+##### 1091#       发表于 2026-6-12 14:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 我现在就希望之前说 3 代之后不玩 xb 的能永远别进专楼（
+
+
+*****
+
+####  若菜  
+##### 1092#       发表于 2026-6-12 14:34
+
+反正看到这地图我已经必玩了。
+
+虽然我不喜欢米山舞。
+
