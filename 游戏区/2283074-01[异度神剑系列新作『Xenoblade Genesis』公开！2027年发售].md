@@ -10848,3 +10848,91 @@ tm光一个人设就能定性男性向还是女性向是不是脑子没褶啊(
 
 —— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  海晟天锻  
+##### 1073#       发表于 2026-6-12 13:56
+
+上回300w大梦都梦碎了还敢做500w大梦那高桥是有点逆骨在的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  高贵的  
+##### 1074#       发表于 2026-6-12 14:01
+
+反正我是不会预购了，先云云，别大哲特哲就行<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙发果冻  
+##### 1075#       发表于 2026-6-12 14:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69765111&amp;ptid=2283074" target="_blank">ace8848 发表于 2026-6-12 12:33</a>
+
+真变成大女主乙游吸引到集美那还不暴卖500w，gqgg爽歪歪？可惜以gqgg的登味，我看是没可能的。 ...</blockquote>
+集美要是这么有购买力，单机主流就应该是大女主乙游，可惜现实不是这样
+
+
+*****
+
+####  flyingover  
+##### 1076#       发表于 2026-6-12 14:02
+
+那pmm也喜欢女主人设，算什么，xyy？
+
+还是贴几张二创图吧
+
+<img src="https://img.stage1st.com/forum/202606/12/140224txxkuemkusxh74xu.jpg" referrerpolicy="no-referrer">
+
+<strong>HKa33X-asAAumxN.jpg</strong> (82.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 14:02 上传
+
+<img src="https://img.stage1st.com/forum/202606/12/140224m0ia3xs3hib8sis3.jpg" referrerpolicy="no-referrer">
+
+<strong>HKcSBFQbUAAfVFi.jpg</strong> (69.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 14:02 上传
+
+<img src="https://img.stage1st.com/forum/202606/12/140224tzf724fsos7pji25.jpg" referrerpolicy="no-referrer">
+
+<strong>HKdaSoVbEAE1o9b.jpg</strong> (59.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 14:02 上传
+
+<img src="https://img.stage1st.com/forum/202606/12/140224dsk3grrfzcbx3gsy.jpg" referrerpolicy="no-referrer">
+
+<strong>HKebf9cbMAATypc.jpg</strong> (76.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 14:02 上传
+
+<img src="https://img.stage1st.com/forum/202606/12/140225nlo6lofldbgzhe1l.jpg" referrerpolicy="no-referrer">
+
+<strong>HKis_G8a0AA9fqE.jpg</strong> (1.22 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 14:02 上传
+
+*****
+
+####  アヘ顔  
+##### 1077#       发表于 2026-6-12 14:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69765655&amp;ptid=2283074" target="_blank">沙发果冻 发表于 2026-6-12 14:02</a>
+集美要是这么有购买力，单机主流就应该是大女主乙游，可惜现实不是这样 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来，美末2是不是大女主
+还两个大女主
+一代大男主被2代女主敲死
+
