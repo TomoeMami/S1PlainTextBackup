@@ -12248,3 +12248,56 @@ ai人真是闹麻了
 
 能影响记忆和行为，估计指的是可以通过晶石变身，换动作模组，就像换职业换异刃那样。
 
+
+*****
+
+####  纪寞  
+##### 1209#       发表于 2026-6-12 18:15
+
+如果那个泄露说的没错的话，感觉会是前后两世的事。
+
+第一世是主控女主，第二世会主控男主。第二世开始只有男主保有记忆，看泄露顺位也是男主先再是女主<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，然后女主盲眼设定感觉也不适合主控
+
+*****
+
+####  linyc0010  
+##### 1210#       发表于 2026-6-12 18:15
+
+[https://www.bilibili.com/video/B ... 76e4fc82124261a45ee](https://www.bilibili.com/video/BV1vdE16TEwq/?vd_source=b996f6597d39676e4fc82124261a45ee)
+
+国外异学家的分析视频
+
+*****
+
+####  星花  
+##### 1211#       发表于 2026-6-12 18:19
+
+<blockquote>纪寞 发表于 2026-6-12 18:15
+如果那个泄露说的没错的话，感觉会是前后两世的事。
+
+第一世是主控女主，第二世会主控男主。第二世开始只有 ...</blockquote>
+其实每一世的性别可以是自由的。然后利用叙诡。👻
+
+
+*****
+
+####  纪寞  
+##### 1212#       发表于 2026-6-12 18:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69767407&amp;ptid=2283074" target="_blank">纪寞 发表于 2026-6-12 18:15</a>
+
+如果那个泄露说的没错的话，感觉会是前后两世的事。
+
+第一世是主控女主，第二世会主控男主。第二世开始只有 ...</blockquote>
+当然，也要泄露的说的没错。整合目前pv的设定我目前只能这么猜了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  xwr  
+##### 1213#       发表于 2026-6-12 18:24
+
+Luxin来了
+
+《异度神剑：创世纪》的穷尽式拆解【Luxin授权|中英字幕】
+[https://www.bilibili.com/video/BV1vdE16TEwq](https://www.bilibili.com/video/BV1vdE16TEwq)
+
