@@ -10996,3 +10996,62 @@ NS和PC及PS上玩家构成是完全不同的。
 那你说动森有没有500w女玩家？</blockquote>
 疫情的时候有，但是现在大概率是潜在目标玩家
 
+
+*****
+
+####  Dashuaibi  
+##### 1084#       发表于 2026-6-12 14:20
+
+现在女主人设争论这么大我怀疑是都没看几个月前的泄露图，当时一眼惊艳，盲女主角这tag也是新鲜感拉满，以至于现在这版预告里比较保守的女主形象都先入为主觉得还不错
+
+<img src="https://img.stage1st.com/forum/202606/12/141701pez19ddipei01j10.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1103.jpeg</strong> (289.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 14:17 上传
+
+*****
+
+####  江口夕  
+##### 1085#       发表于 2026-6-12 14:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">高桥giegie能把握纯爱乙女的少女心么，我表示严重怀疑。别人进来了教喜欢乙女漫画的妹子什么叫虚幻里找真实大谈特谈生死观，妹子捏着鼻子就出去了
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  汪达  
+##### 1086#       发表于 2026-6-12 14:20
+
+你任银河战士都多少年的老IP了，原来一直是集美神游吗，乐了
+
+我看集美的破坏力远不如满脑子烧鸡，不给烧鸡就张口闭口什么尼哥三哥大女主的脑残高啊
+
+*****
+
+####  アヘ顔  
+##### 1087#       发表于 2026-6-12 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69765705&amp;ptid=2283074" target="_blank">名居守 发表于 2026-6-12 14:10</a>
+问题来了，集美会认艾比这种一眼变性人的是大女主吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挺自然女的，我觉得集美应该喜欢
+
+*****
+
+####  高贵的  
+##### 1088#       发表于 2026-6-12 14:24
+
+我只是想玩一个主打奇观地图的王道JRPG而已，高桥哥哥可以收敛一点吗<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 1089#       发表于 2026-6-12 14:25
+
+不玩的能不能滚，在专楼一直死缠烂打有什么意思
+滚去你的人设楼接着bb去
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
