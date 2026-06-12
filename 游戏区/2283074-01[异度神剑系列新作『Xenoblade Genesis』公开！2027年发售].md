@@ -12808,3 +12808,24 @@ XB是工作，赚钱罢了，XG才是生活，要圆梦的<img src="https://stat
 
 难道说第一章还在美美校园生活，第二章就被其他种族炸学校抓走了？<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  贝雷特  
+##### 1256#       发表于 2026-6-13 07:39
+
+<blockquote>RUANHYC 发表于 2026-6-13 05:34
+那之前泄露的是废案吗，怎么看都不觉得男女主是奴隶
+
+难道说第一章还在美美校园生活，第二章就被其他种族炸 ...</blockquote>
+飞流直下三千尺，“从今天开始享受奴隶人生”
+
+*****
+
+####  woaimiyabi  
+##### 1257#       发表于 2026-6-13 07:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69769234&amp;ptid=2283074" target="_blank">Ivent 发表于 2026-6-13 04:40</a>
+上一次xb3也是各种分析说成是xg2，这次xbg也要说成是xg2，明明说是新系列新开始却仿佛没有自己的内容，不少 ...</blockquote>
+不一样当时xb3只是轮回设定推测跟xg相似 大多数只是玩家脑补，xbg这次都不装了 怪设素材直接都复制粘贴xg那边的了  游戏真实存在的东西 很多不用推测 所以更直观 ，当然也有推测的点 ，一般都是老外那边喜欢这么玩。
+
