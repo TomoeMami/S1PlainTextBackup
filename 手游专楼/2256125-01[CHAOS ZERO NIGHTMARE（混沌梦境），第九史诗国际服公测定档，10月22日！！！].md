@@ -2635,3 +2635,20 @@ BOSS名字忘了。有个机制，每回合暴动。</blockquote>
 
 这游戏战斗任务也太多了吧，仿佛无穷无尽，为了升50级挂了一天，还没清完
 
+
+*****
+
+####  西瓜不甜不甜  
+##### 983#       发表于 2026-6-12 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69767001&amp;ptid=2256125" target="_blank">sxsdark 发表于 2026-6-12 17:06</a>
+这游戏战斗任务也太多了吧，仿佛无穷无尽，为了升50级挂了一天，还没清完 ...</blockquote>
+以后有空慢慢刷得了，用点体力药，很快就五十了。
+
+*****
+
+####  伊布桑  
+##### 984#       发表于 2026-6-12 17:29
+
+我差不多把我能见到的所有剧情都过了才堪堪50<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

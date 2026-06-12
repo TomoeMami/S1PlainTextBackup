@@ -1945,3 +1945,13 @@ https://www.playasia.digital/zh-cn/fire-emblem-fortunes-weave-dagdan-collection-
 
 ----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  Humpy  
+##### 886#       发表于 2026-6-12 17:27
+
+有点好奇这代的子安武人会不会是给那个黄毛绿发尾的吟游诗人打扮的角色配音<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+眼眉和头饰太像西提斯了，如果是子安不会是西提斯披个马甲出来吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
