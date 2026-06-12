@@ -92,3 +92,27 @@
 
 说起来无正是不是开发卡池双红了
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4364#       发表于 2026-6-13 00:39
+
+<img src="https://img.stage1st.com/forum/202606/13/003847s1wwldckkcawoxlx.png" referrerpolicy="no-referrer">
+
+<strong>MuMu12-20260613-003814.png</strong> (418.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-13 00:38 上传
+
+<img src="https://img.stage1st.com/forum/202606/13/003847hmxyvxxxwvoe46ul.png" referrerpolicy="no-referrer">
+
+<strong>MuMu12-20260613-003821.png</strong> (409.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-13 00:38 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">悲报，黑强的MAP可以在同一台MA上造成两次伤害
+
