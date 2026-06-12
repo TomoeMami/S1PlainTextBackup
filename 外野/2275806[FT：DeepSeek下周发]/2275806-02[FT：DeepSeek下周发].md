@@ -2556,3 +2556,16 @@ DSv4啥时候发正式版啊
 
 当然坏处就是你得自己明确你的模型能力和让agent自己运行的危险性，没有权限控制就代表它真的有可能把电脑一键清空了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hugosol  
+##### 1702#       发表于 2026-6-12 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69768277&amp;ptid=2275806" target="_blank">serj005 发表于 2026-6-12 21:19</a>
+
+原版pi在搞一些简单批处理工作的时候效率强到逆天，因为一没代码管理需求二不折腾沙盒和权限控制，上下文 ...</blockquote>
+其实我觉得最打开我思路的地方是pi没有workspace的概念，权限控制这个东西可能还有争议，但workspace是最没有必要存在的概念，我只要权限管理得好，让agent随意读整个系统的文件也是没有任何问题的
+
+现在我就把opencode和ClaudeCode的源码放本地，做extension的时候把路径给omp让它读相关功能的源码，参考别人的提示词和思路搞个自己魔改的版本，从未有过如此自由的感受<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

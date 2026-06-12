@@ -12505,3 +12505,33 @@ wiki里这段不知道出自游戏数据库还是后来的资料砖头本里<blo
 
 翻一翻xg的维基 这次真是xg世界观吗 阿尼玛就是xg里迪乌斯复活缺的一直找不到的部分啊 那败北的神不就是迪乌斯吗 
 
+
+*****
+
+####  三度音  
+##### 1233#       发表于 2026-6-12 21:48
+
+<img src="https://img.stage1st.com/forum/202606/12/214800gsg99qg800gkj40h.png" referrerpolicy="no-referrer">
+
+<strong>a4ae70a9ef49a4cd710cbcf88c465c0c.png</strong> (144.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 21:48 上传
+
+尝试着根据LOGO落版时候的环带画了下地图，
+
+黑色是大陆，蓝色是河流湖泊水系，灰色是人造建筑物，还特意画了那些疑似水晶塔，和特别自然奇观。青色等高线也大概画的，不准。
+
+emmm感觉目前只有青龙和棍棒女的镜头可以通过黑铁大陆岛联系到一起。
+
+所以序章的那个雪山地貌和其他混剪进去镜头将来还能填补很多地方
+
+<img src="https://img.stage1st.com/forum/202606/12/214521gmfog0905zogsoz2.png" referrerpolicy="no-referrer">
+
+<strong>7d1ecb5c6a237b83a4fac38ba09dce8a.png</strong> (65 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 21:45 上传
+
