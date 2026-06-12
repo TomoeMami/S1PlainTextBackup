@@ -12327,3 +12327,12 @@ Luxin来了
 
 —— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  北条早苗  
+##### 1217#       发表于 2026-6-12 19:20
+
+xb这个系列4作都不一样没什么好参考的
+策略性xb1最强，机制最复杂xb2，不算打牌动作手感xb3最好
+
