@@ -12685,3 +12685,30 @@ xbg   艾蕾诺亚  男主？   ？           ？
 就故事的角色定位来说，以往，女主是那个奖励品，这次可能男主是奖励品。这个奖励品是广义上的，主角历经千 ...</blockquote>
 xb一直以来最大的谜题都是男主啊 修尔克是赞扎选中的肉身 雷克斯是阿德尔后裔 3最直白 我干我自己
 
+
+*****
+
+####  eraso  
+##### 1243#       发表于 2026-6-12 23:53
+
+像新作这种场景，到时候普通的平面地图菜单肯定看不明白的
+
+*****
+
+####  moshizhe  
+##### 1244#       发表于 2026-6-12 23:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69768852&amp;ptid=2283074" target="_blank">laputah 发表于 2026-6-12 23:44</a>
+
+xb一直以来最大的谜题都是男主啊 修尔克是赞扎选中的肉身 雷克斯是阿德尔后裔 3最直白 我干我自己 ...</blockquote>
+雷克斯不是阿德尔后羿吧，只是同一个民族吧
+
+*****
+
+####  没取名啊  
+##### 1245#       发表于 2026-6-12 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69768852&amp;ptid=2283074" target="_blank">laputah 发表于 2026-6-12 23:44</a>
+xb一直以来最大的谜题都是男主啊 修尔克是赞扎选中的肉身 雷克斯是阿德尔后裔 3最直白 我干我自己 ...</blockquote>
+xbx说在我们这儿艾尔玛大佐才是最神秘的
+
