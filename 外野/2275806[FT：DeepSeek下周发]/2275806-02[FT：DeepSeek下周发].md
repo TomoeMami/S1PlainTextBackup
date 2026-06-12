@@ -2519,3 +2519,17 @@ omp我刚开始玩pi的时候安装了一下，一瞬间一大堆新东西涌入
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1699#       发表于 2026-6-12 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69767235&amp;ptid=2275806" target="_blank">有鱼 发表于 2026-6-12 17:46</a>
+DSv4啥时候发正式版啊
+
+现在的输出水平真的神神鬼鬼，有时候能roll到很惊艳的回答，有时候完全是复读机和幻 ...</blockquote>
+5.5中文输出还凑合吧，好歹稳定，d指导输出结果和抽卡一样真让人顶不住
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
