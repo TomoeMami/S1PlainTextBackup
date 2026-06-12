@@ -2541,3 +2541,18 @@ DSv4啥时候发正式版啊
 
 现在所有人都不知道deepseek 在干啥。所以也别期待太多。之前外媒传的太假了，说什么加强mcp能力，神经病一样    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  serj005  
+##### 1701#       发表于 2026-6-12 21:19
+
+ 本帖最后由 serj005 于 2026-6-12 21:22 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69766910&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-6-12 16:54</a>
+对agent底层原理感兴趣的话推荐一定要玩一下pi，这玩意的很多理念太先进了，感觉跟Claude Code之流已经有 ...</blockquote>
+原版pi在搞一些简单批处理工作的时候效率强到逆天，因为一没代码管理需求二不折腾沙盒和权限控制，上下文超级干净。
+
+有的agent工具让它检查个本地目录文件是否包含某数组内名称都磨磨唧唧，先给你做个超长多步计划，中途还要反复重试脚本验证+选项选择，一个很简单的任务花了几万token。换pi做同样的事直接一个ls就秒了给我看呆了。
+
+当然坏处就是你得自己明确你的模型能力和让agent自己运行的危险性，没有权限控制就代表它真的有可能把电脑一键清空了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
