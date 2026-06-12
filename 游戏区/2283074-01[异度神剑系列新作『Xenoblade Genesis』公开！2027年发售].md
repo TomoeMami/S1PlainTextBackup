@@ -11276,3 +11276,54 @@ NS和PC及PS上玩家构成是完全不同的。
 我是发现泄露图与泄露图里的瞳色不一样，难道是曼德拉效应？</blockquote>
 下面那张图我看着是灰色的
 
+
+*****
+
+####  アヘ顔  
+##### 1109#       发表于 2026-6-12 15:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69766038&amp;ptid=2283074" target="_blank">高贵的 发表于 2026-6-12 15:04</a>
+就PV内容来看怎么感觉这个学院本质是个兵工厂</blockquote>
+兵工厂那不又和xb3差不多了...
+
+*****
+
+####  狸狸狐  
+##### 1110#       发表于 2026-6-12 15:08
+
+泄露图还提到了“继承了白鹭器士的旧服装”。有可能这个白鹭器士就是前世的女主。
+
+*****
+
+####  高贵的  
+##### 1111#       发表于 2026-6-12 15:10
+
+也可能是女主的哥哥？毕竟PV最后说了句
+
+*****
+
+####  江口夕  
+##### 1112#       发表于 2026-6-12 15:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">喜欢xb2踢走，麻烦把3也枪毙了，3里有尼亚，3dlc有光焰女儿和莱克斯，你切割的掉么。顺带一提，3里的埃塞尔乳量也不比光焰差。麻烦全切割了先
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  HighTouch  
+##### 1113#       发表于 2026-6-12 15:12
+
+我只希望不要序章过了换主角了，希望一直是女主吧
+
+*****
+
+####  高贵的  
+##### 1114#       发表于 2026-6-12 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69766067&amp;ptid=2283074" target="_blank">アヘ顔 发表于 2026-6-12 15:07</a>
+
+兵工厂那不又和xb3差不多了...</blockquote>
+PV感觉没啥学生活动，但毕竟XB的特点是大地图PV肯定重点展示这个<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
