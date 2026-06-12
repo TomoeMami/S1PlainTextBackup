@@ -10576,3 +10576,104 @@ xbg就是xbg 擅自期待一般只会有一种结局
 
 真变成大女主乙游吸引到集美那还不暴卖500w，gqgg爽歪歪？可惜以gqgg的登味，我看是没可能的。
 
+
+*****
+
+####  Arisita  
+##### 1046#       发表于 2026-6-12 12:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">女主和男主都很好看啊，也不知道在争个什么劲，我都怀疑自己审美出了问题，地图和剧情不要出问题就好，3代在这两方面问题比较大
+
+
+*****
+
+####  狸狸狐  
+##### 1047#       发表于 2026-6-12 12:40
+
+<img src="https://img.stage1st.com/forum/202606/12/124015epn8zncrnjc8eep5.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1132.jpg</strong> (243.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-12 12:40 上传
+
+<img src="https://img.stage1st.com/forum/202606/12/124019r9fqav1qvrvc2rrc.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1225.jpg</strong> (114.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-12 12:40 上传
+
+跑了一下大概样子。
+
+有点带感？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 星花 + 1
+
+查看全部评分
+
+*****
+
+####  wjbdasd  
+##### 1048#       发表于 2026-6-12 12:41
+
+<blockquote>Arisita 发表于 2026-6-12 12:35
+女主和男主都很好看啊，也不知道在争个什么劲，我都怀疑自己审美出了问题，地图和剧情不要出问题就好，3代 ...</blockquote>
+人物越看越美，面部细节比3代还好，mono的人物建模终于是站起来了。
+
+*****
+
+####  hkguty  
+##### 1049#       发表于 2026-6-12 12:41
+
+太多强行联想
+
+*****
+
+####  海晟天锻  
+##### 1050#       发表于 2026-6-12 12:42
+
+找点彩蛋就行了，别真把xbg当xg新作看<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  defer  
+##### 1051#       发表于 2026-6-12 12:42
+
+游戏可以不玩屁股不能不亮。
+
+我只希望发售后能重盖个专楼，这楼已经脏了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  wjbdasd  
+##### 1052#       发表于 2026-6-12 12:43
+
+<blockquote>沙发果冻 发表于 2026-6-12 09:10
+皮肤黑点就黑皮是吧，那XG的飞也是黑皮咯</blockquote>
+丹邦也是黑皮(
+
+*****
+
+####  星花  
+##### 1053#       发表于 2026-6-12 12:43
+
+NS本来就是女玩家聚集地，我蛮看靠集美大卖500W的乐子。
+
