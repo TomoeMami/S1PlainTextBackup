@@ -10354,3 +10354,25 @@ XB3当时是2月首曝
 from Fami, 关于世界尺度</blockquote>
 这地图尺度相当可怕了，希望丰富性不要落下
 
+
+*****
+
+####  findpkq  
+##### 1027#       发表于 2026-6-12 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69764228&amp;ptid=2283074" target="_blank">lilod 发表于 2026-6-12 10:26</a>
+
+from Fami, 关于世界尺度</blockquote>
+很难想象这尺度要怎么填内容，太颠了<img src="https://static.stage1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+这次就不用海里划水了吧（
+
+*****
+
+####  小大头菜  
+##### 1028#       发表于 2026-6-12 11:06
+
+地图大小已经不是当代游戏的难点了，意义不大
+
+—— 来自 vivo V2408A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
