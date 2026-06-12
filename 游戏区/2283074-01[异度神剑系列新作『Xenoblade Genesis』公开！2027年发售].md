@@ -11566,3 +11566,91 @@ xbx那个啥市作用上就等于是校园（据点）了
 
 又扣XB2粉帽子啦，这人设也不如XB3啊，看完PV除了女主一个人都没记住，当初XB3第一个PV的人设计就给人印象深刻，这次人设说白了就是普嘛，一个个都是NPC水平
 
+
+*****
+
+####  海晟天锻  
+##### 1139#       发表于 2026-6-12 15:57
+
+那我还记得xb3人设出来后就两大类，一个是汴京泰恩是不是黑人，另一个是抱怨人设普<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  shiko  
+##### 1140#       发表于 2026-6-12 15:59
+
+xb3当时人设被喷少了？某些人骂了xb3五年了这个时候真少沾边吧，新作再怎么样你们也没资格拿xb3当枪使。
+
+*****
+
+####  江口夕  
+##### 1141#       发表于 2026-6-12 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69766425&amp;ptid=2283074" target="_blank">海晟天锻 发表于 2026-6-12 15:57</a>
+那我还记得xb3人设出来后就两大类，一个是汴京泰恩是不是黑人，另一个是抱怨人设普
+
+—— 来自 samsung SM- ...</blockquote>
+难怪我说怎么讲话这么费劲，结果连泰恩都要辩经，没救了。这是连一点常识都没有了
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  MrlOst  
+##### 1142#       发表于 2026-6-12 16:01
+
+我说战斗系统有一转arpg的可能性吗，感觉半即时战斗系统还是太难扩圈了
+
+
+*****
+
+####  whzfjd  
+##### 1143#       发表于 2026-6-12 16:03
+
+ 本帖最后由 whzfjd 于 2026-6-12 16:05 编辑 
+
+不是人设普不普的问题，是人设硬了，xb2-&gt;xb3是普了点（大眼萌变写实小眼），但依然是具有亲和力的线条和脸型。虽然不是米山舞本舞，但 xbg 和羁绊者、灵魂骇客2 才是一系的，对着美型硬派的人设按惯性找软萌的感觉，就有一种硌骨头的感觉。
+
+如果直接就是泄露图里那种散刘海，争议能少很多。
+
+*****
+
+####  アヘ顔  
+##### 1144#       发表于 2026-6-12 16:03
+
+arpg那不是变成传说了吗
+这么多人同时在场怎么arpg
+别搞得最后变成国产二游切人打轴，那可他妈吐了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙发果冻  
+##### 1145#       发表于 2026-6-12 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69766404&amp;ptid=2283074" target="_blank">巨馍蘸酱 发表于 2026-6-12 15:53</a>
+
+又扣XB2粉帽子啦，这人设也不如XB3啊，看完PV除了女主一个人都没记住，当初XB3第一个PV的人设计就给人印象 ...</blockquote>
+去看看xb1和xbx，其实角色都挺普的，特别是队友之类，xb1的寡妇和壮壮就是npc水平，xbx那堆队友看起来像npc的就更多了
+
+*****
+
+####  江口夕  
+##### 1146#       发表于 2026-6-12 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69766358&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-6-12 15:47</a>
+你应该没仔细观察过xbg的pv  女主跟白毛的胸不小 只是衣服包裹住了，我也是在老外那边分析看到的，在一些 ...</blockquote>
+那不是更好了，有凸显胸部pi股的情节我双手赞成，然后把男主切割了就好了，我看女主和白毛蓝毛场景互动也挺多的，当百合片看了。
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  海晟天锻  
+##### 1147#       发表于 2026-6-12 16:05
+
+那怎么感觉可能性还不低呢，毕竟pv里已经显示三人同行了，如果是arpg没准是三人同屏的情况下可以切人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
