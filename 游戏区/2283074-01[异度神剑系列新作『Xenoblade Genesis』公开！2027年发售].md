@@ -10484,3 +10484,51 @@ from Fami, 关于世界尺度</blockquote>
 如果xbx那种所见即所得，能直接去到背景里看到的地方那肯定是最好的，也可能是分几块大的板块，板块内自 ...</blockquote>
 主要看这个桶状地图会不会被打破，如果被打破那就是后者了，但我觉得是前者。
 
+
+*****
+
+####  冰风血羽  
+##### 1039#       发表于 2026-6-12 12:16
+
+<img src="https://img.stage1st.com/forum/202606/12/121609hf395m39wh5nmui3.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>HKjQOpvb0AAAdAd.jpeg</strong> (612.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 12:16 上传
+
+<img src="https://img.stage1st.com/forum/202606/12/121616nj2ijyxwjjpjj2w0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-06-12-12-13-13-70_40deb401b9ffe8e1df2f1cc5ba480b12.jpg</strong> (413.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 12:16 上传
+
+zsbd
+
+
+*****
+
+####  冰风血羽  
+##### 1040#       发表于 2026-6-12 12:23
+
+<img src="https://img.stage1st.com/forum/202606/12/122303ms9unh4h5af117qa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-06-12-12-22-16-86_40deb401b9ffe8e1df2f1cc5ba480b12.jpg</strong> (604.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 12:23 上传
+
+<img src="https://img.stage1st.com/forum/202606/12/122308vwz7wwbasf2nvrvs.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>HKY3x5rWsAAX_7n.jpeg</strong> (1.79 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 12:23 上传
+
+继续搬点
+
