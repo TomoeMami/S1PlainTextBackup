@@ -1981,3 +1981,11 @@ https://www.playasia.digital/zh-cn/fire-emblem-fortunes-weave-dagdan-collection-
 
 这两点的核心思想就是自己在三房里做的选择被官方否定了
 
+
+*****
+
+####  mcq_2  
+##### 890#       发表于 2026-6-12 20:31
+
+无所谓啦，日亚限定版已经预定，安心等发售了。
+
