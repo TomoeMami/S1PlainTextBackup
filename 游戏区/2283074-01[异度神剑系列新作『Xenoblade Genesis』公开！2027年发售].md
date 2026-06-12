@@ -11474,3 +11474,95 @@ g里不要再有艾塞尔级别的迷惑剧情了好吗<img src="https://static.
 
 虽说超展开喜闻乐见，但我不认为那个泄露的情节有多少准确性，校园肯定不会老老实实待的，毕竟mono最重要的就是地图设计，不大可能把人老老实实固定在一个区域
 
+
+*****
+
+####  ace8848  
+##### 1131#       发表于 2026-6-12 15:47
+
+<blockquote>沙发果冻 发表于 2026-6-12 15:45
+虽说超展开喜闻乐见，但我不认为那个泄露的情节有多少准确性，校园肯定不会老老实实待的，毕竟mono最重要的 ...</blockquote>
+xbx那个啥市作用上就等于是校园（据点）了
+
+*****
+
+####  アヘ顔  
+##### 1132#       发表于 2026-6-12 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69766310&amp;ptid=2283074" target="_blank">shiko 发表于 2026-6-12 15:42</a>
+我就想知道当年佛佛7粉丝有指着8910骂为什么风格和7完全不一样吗
+
+反正我作为RPG启蒙是ff456的玩家，第一次 ...</blockquote>
+我记得9还是有过争议来着吧
+
+*****
+
+####  woaimiyabi  
+##### 1133#       发表于 2026-6-12 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69766173&amp;ptid=2283074" target="_blank">江口夕 发表于 2026-6-12 15:24</a>
+
+讨厌巨乳的人能不能别和xb2沾边，不是把xb2粉丝切割了么，要么你们先打一架。要不这样，xbg如果出现巨乳 ...</blockquote>
+你应该没仔细观察过xbg的pv  女主跟白毛的胸不小 只是衣服包裹住了，我也是在老外那边分析看到的，在一些动作的时候 女主的胸看上去甚至可能比光焰还大。
+
+*****
+
+####  sslink  
+##### 1134#       发表于 2026-6-12 15:48
+
+反正我觉得这种大地图探索的结构玩到一半弄轮回不太可能，如果是前世说不定是野炊那样各地找回忆的形式
+
+*****
+
+####  lelouchwang  
+##### 1135#       发表于 2026-6-12 15:49
+
+不愧是坛游，每次点进来都是排第一个<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 1136#       发表于 2026-6-12 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69766310&amp;ptid=2283074" target="_blank">shiko 发表于 2026-6-12 15:42</a>
+
+我就想知道当年佛佛7粉丝有指着8910骂为什么风格和7完全不一样吗
+
+反正我作为RPG启蒙是ff456的玩家，第一次 ...</blockquote>
+8，10，13不就是7的延长线吗，9相当于风之杖，456来了都得敬一杯
+
+12是银河战舰
+
+15那普遍意见很大了
+
+
+*****
+
+####  woaimiyabi  
+##### 1137#       发表于 2026-6-12 15:52
+
+<img src="https://img.stage1st.com/forum/202606/12/155144ssjvyczyzjzxcjje.jpg" referrerpolicy="no-referrer">
+
+<strong>{2DE427ED-9C21-F8A8-B1AE-AE21D22DAEC5}.jpg</strong> (136.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 15:51 上传
+
+<img src="https://img.stage1st.com/forum/202606/12/155153d882vd9l68fd6fdl.jpg" referrerpolicy="no-referrer">
+
+<strong>1781071897864483.jpg</strong> (126.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 15:51 上传
+
+发现了一个细节， 这两个场景这人后面背着的武器是不是不一样，能不能大胆想一下这作可能有武器纸娃娃。
+
+*****
+
+####  巨馍蘸酱  
+##### 1138#       发表于 2026-6-12 15:53
+
+又扣XB2粉帽子啦，这人设也不如XB3啊，看完PV除了女主一个人都没记住，当初XB3第一个PV的人设计就给人印象深刻，这次人设说白了就是普嘛，一个个都是NPC水平
+
