@@ -12336,3 +12336,36 @@ Luxin来了
 xb这个系列4作都不一样没什么好参考的
 策略性xb1最强，机制最复杂xb2，不算打牌动作手感xb3最好
 
+
+*****
+
+####  kisaragi凛  
+##### 1218#       发表于 2026-6-12 19:25
+
+“器士”可能源自于“容器”一词
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉这个猜想大概率是对的
+
+
+*****
+
+####  woaimiyabi  
+##### 1219#       发表于 2026-6-12 19:34
+
+<img src="https://img.stage1st.com/forum/202606/12/193103lcnpzicn97cinfpw.png" referrerpolicy="no-referrer">
+
+<strong>57FBD3781FF782B264CA685236193819.png</strong> (12.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 19:31 上传
+
+<img src="https://img.stage1st.com/forum/202606/12/193422fj14fuks9ltt1sgu.png" referrerpolicy="no-referrer">
+
+<strong>062694a4-a683-453b-98a0-14db6d8c0c97.png</strong> (33.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 19:34 上传
+
+这里是不是个洞 还真是致敬巴别塔啊。
+
