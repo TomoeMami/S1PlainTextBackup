@@ -10176,3 +10176,26 @@ XB3当时是2月首曝
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">皮肤黑点就黑皮是吧，那XG的飞也是黑皮咯
 
+
+*****
+
+####  没取名啊  
+##### 1008#       发表于 2026-6-12 09:17
+
+哪有乙游只美型一个男人的？在搞笑吗？
+
+*****
+
+####  lost-star  
+##### 1009#       发表于 2026-6-12 09:20
+
+吵黑皮的应该去那个jrpg人设帖<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  duraa  
+##### 1010#       发表于 2026-6-12 09:20
+
+人设楼关不住了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
