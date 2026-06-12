@@ -2449,3 +2449,17 @@ v4pro什麼時候才能每秒1000詞元，mimo都做到了</blockquote>
 
 这不token爆炸<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  hugosol  
+##### 1693#       发表于 2026-6-12 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69757486&amp;ptid=2275806" target="_blank">库德里尔 发表于 2026-6-11 08:57</a>
+
+ohmycodex好玩吗？
+
+我想玩玩pi omp omc 但是肯定先玩其中一个</blockquote>
+对agent底层原理感兴趣的话推荐一定要玩一下pi，这玩意的很多理念太先进了，感觉跟Claude Code之流已经有代差了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实个人对叫oh-my-xx的玩意都不太感冒，不过因为我实在太喜欢pi了很想把它作为主力agent，又不想从头搞一遍基建，oh-my-pi至少还有个团队每天在更新，体验不会太差的，就想先用着omp再说，反正在上面写的extension以后想要迁回pi应该也不会太麻烦
+
