@@ -10109,3 +10109,24 @@ XB3当时是2月首曝
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  kongxian  
+##### 1001#       发表于 2026-6-12 08:34
+
+ 本帖最后由 kongxian 于 2026-6-12 08:37 编辑 
+
+居然一转空轨来贴金，就问空轨敢不敢把小约弄成黑皮三哥
+
+*****
+
+####  ParadiseMartyr  
+##### 1002#       发表于 2026-6-12 08:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69763584&amp;ptid=2283074" target="_blank">kongxian 发表于 2026-6-12 08:34</a>
+就问空轨敢不敢把小约弄成黑皮三哥</blockquote>
+2nd里看着有点黑的，和xbg男主也差不多了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
