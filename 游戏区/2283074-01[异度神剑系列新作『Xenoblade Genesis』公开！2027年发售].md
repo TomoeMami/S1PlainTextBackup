@@ -10936,3 +10936,63 @@ tm光一个人设就能定性男性向还是女性向是不是脑子没褶啊(
 还两个大女主
 一代大男主被2代女主敲死
 
+
+*****
+
+####  ace8848  
+##### 1078#       发表于 2026-6-12 14:06
+
+<blockquote>沙发果冻 发表于 2026-6-12 14:02
+集美要是这么有购买力，单机主流就应该是大女主乙游，可惜现实不是这样 ...</blockquote>
+那你说动森有没有500w女玩家？
+
+*****
+
+####  沙发果冻  
+##### 1079#       发表于 2026-6-12 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69765674&amp;ptid=2283074" target="_blank">アヘ顔 发表于 2026-6-12 14:05</a>
+
+说起来，美末2是不是大女主
+
+还两个大女主</blockquote>
+可是美末2并没有比1更好吧，从商业角度而言，当然我觉得不是大女主的问题
+
+*****
+
+####  名居守  
+##### 1080#       发表于 2026-6-12 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69765674&amp;ptid=2283074" target="_blank">アヘ顔 发表于 2026-6-12 14:05</a>
+说起来，美末2是不是大女主
+还两个大女主
+一代大男主被2代女主敲死</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题来了，集美会认艾比这种一眼变性人的是大女主吗
+
+
+*****
+
+####  whzfjd  
+##### 1081#       发表于 2026-6-12 14:12
+
+人设第一眼是没毛病，不过xb2爱好者第一反应是又要等下一个五年
+
+*****
+
+####  星花  
+##### 1082#       发表于 2026-6-12 14:13
+
+之前朋友聚会 和宝可邦又拉了一大批女玩家  还有港服乙游跳楼价事件。
+
+NS和PC及PS上玩家构成是完全不同的。
+
+*****
+
+####  destroyworlder  
+##### 1083#       发表于 2026-6-12 14:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69765680&amp;ptid=2283074" target="_blank">ace8848 发表于 2026-6-12 14:06</a>
+
+那你说动森有没有500w女玩家？</blockquote>
+疫情的时候有，但是现在大概率是潜在目标玩家
+
