@@ -12458,3 +12458,13 @@ wiki里这段不知道出自游戏数据库还是后来的资料砖头本里<blo
 
 —— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 1228#       发表于 2026-6-12 20:42
+
+开帖还不到三天就上千楼了，别的游戏做得到吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉能破xb3专楼发售前百页的记录
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
