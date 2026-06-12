@@ -1124,3 +1124,25 @@ gxyy提前备战周年强化
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剑刷魔放+30充 
 
+
+*****
+
+####  森兰丸  
+##### 20942#       发表于 2026-6-12 13:39
+
+奇怪了我之前没抽阎魔亭的卡池啊....怎么仓库里有卡池的活动道具加成礼装
+
+难道还有什么别的卡池也出这些礼装的<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 20943#       发表于 2026-6-12 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69765499&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-6-12 13:39</a>
+
+奇怪了我之前没抽阎魔亭的卡池啊....怎么仓库里有卡池的活动道具加成礼装
+
+难道还有什么别的卡池也出这些礼 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为欧  （其实是新年礼装 
+
