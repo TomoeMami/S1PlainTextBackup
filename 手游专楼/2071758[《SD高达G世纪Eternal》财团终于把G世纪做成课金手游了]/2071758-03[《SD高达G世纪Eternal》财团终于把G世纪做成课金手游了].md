@@ -76,3 +76,11 @@
 
 又或者纯粹是内部黑所以要削了老四大词条<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  silvia  
+##### 4362#       发表于 2026-6-12 18:40
+
+万代小气了没送专用sp，不然我还挺想把观星者给sp了
+
