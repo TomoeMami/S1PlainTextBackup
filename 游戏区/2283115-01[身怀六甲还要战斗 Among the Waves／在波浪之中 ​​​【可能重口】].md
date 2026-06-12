@@ -520,3 +520,14 @@ https://www.bilibili.com/video/BV13gidY3EQg/</blockquote>
 
 —— 来自 OnePlus PHB110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  新HGCG  
+##### 54#         楼主| 发表于 2026-6-12 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69763331&amp;ptid=2283115" target="_blank">gawain 发表于 2026-6-12 05:37</a>
+
+还是毛子野啊</blockquote>
+想确认一下是不是毛子，却发现这个工作室没资料，这还是第一部作品
+

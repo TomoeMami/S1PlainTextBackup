@@ -10464,3 +10464,13 @@ from Fami, 关于世界尺度</blockquote>
 轨迹地图不大是设计和资金层面的问题了，但在同系 ...</blockquote>
 穷哥们游戏 高桥哥哥一个商会放空轨得是什么奇观 更别说古拉领了 
 
+
+*****
+
+####  66367749  
+##### 1037#       发表于 2026-6-12 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69764615&amp;ptid=2283074" target="_blank">巴尔干炮 发表于 2026-6-12 11:27</a>
+这个地图跑起来要是有2001太空漫游跑步那段的感觉就太棒了,不知道能不能实现. ...</blockquote>
+如果xbx那种所见即所得，能直接去到背景里看到的地方那肯定是最好的，也可能是分几块大的板块，板块内自由移动跨板块不行
+
