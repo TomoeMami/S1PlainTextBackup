@@ -1442,3 +1442,16 @@ xbg的女主最精炼的关键词，很有可能就是这个瞎眼
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69762537&amp;ptid=2283106" target="_blank">lbj5454 发表于 2026-6-11 22:07</a></blockquote>
 好想法<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  riin2  
+##### 127#       发表于 2026-6-12 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69758672&amp;ptid=2283106" target="_blank">ShitOverflow 发表于 2026-6-11 11:17</a>
+
+内球面怎么实现昼夜交替的
+
+画师和engage画师有点关联，配合标题的染色，pv里男主？的变身？大概会有类似结 ...</blockquote>
+mono组帮塞尔达打工做地图，说不定真的可以用到xeno系列里
+
