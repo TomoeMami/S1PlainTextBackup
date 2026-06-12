@@ -2463,3 +2463,26 @@ ohmycodex好玩吗？
 对agent底层原理感兴趣的话推荐一定要玩一下pi，这玩意的很多理念太先进了，感觉跟Claude Code之流已经有代差了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实个人对叫oh-my-xx的玩意都不太感冒，不过因为我实在太喜欢pi了很想把它作为主力agent，又不想从头搞一遍基建，oh-my-pi至少还有个团队每天在更新，体验不会太差的，就想先用着omp再说，反正在上面写的extension以后想要迁回pi应该也不会太麻烦
 
+
+*****
+
+####  有鱼  
+##### 1694#       发表于 2026-6-12 17:46
+
+DSv4啥时候发正式版啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+现在的输出水平真的神神鬼鬼，有时候能roll到很惊艳的回答，有时候完全是复读机和幻觉制造机
+
+艹了，另外的主力模型gpt在中文文学能力上也是一坨，只能寄希望于梁圣了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 1695#       发表于 2026-6-12 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69767235&amp;ptid=2275806" target="_blank">有鱼 发表于 2026-6-12 17:46</a>
+DSv4啥时候发正式版啊
+
+现在的输出水平真的神神鬼鬼，有时候能roll到很惊艳的回答，有时候完全是复读机和幻 ...</blockquote>
+据说是这个月有4.1<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

@@ -575,3 +575,35 @@ https://www.bilibili.com/video/BV13gidY3EQg/</blockquote>
 
 要是能操作一个角色把敌人都吸入琳B，消化时限时大肚，消化完获得敌人的能力，岂不神作，没错就是星之卡比
 
+
+*****
+
+####  新HGCG  
+##### 59#         楼主| 发表于 2026-6-12 17:50
+
+X上翻到一些
+
+<img src="https://img.stage1st.com/forum/202606/12/174739xx4q3byozso4nzlq.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202606/12/174739xx4q3byozso4nzlq.png">
+
+<strong>image.png</strong> (90.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 17:47 上传
+
+<img src="https://img.stage1st.com/forum/202606/12/174828t3ckfziqkp4x3klx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (431.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 17:48 上传
+
+<img src="https://img.stage1st.com/forum/202606/12/174930jll14dzvsvw0tslz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (196.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-12 17:49 上传
+

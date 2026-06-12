@@ -1955,3 +1955,11 @@ https://www.playasia.digital/zh-cn/fire-emblem-fortunes-weave-dagdan-collection-
 
 眼眉和头饰太像西提斯了，如果是子安不会是西提斯披个马甲出来吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  406  
+##### 887#       发表于 2026-6-12 17:49
+
+金绿毛男人真是西提斯马甲，就该是三房后传了，新地图历法再怎么不同于三房，西提斯这女儿控是绝不会在芙莲身体虚弱的千年间没事跑外国浪的，他一个龙人，难道还真能迷信外国同族拥有实现愿望的神力救女儿吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

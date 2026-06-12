@@ -12160,3 +12160,16 @@ Dlc的人能不能去外面聊
 
 我只是讨厌新作没有他喜欢的前作风格就<strong><strong>无脑</strong></strong>喷新作烂的人<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">，如果真伤到了谁，那我道歉
 
+
+*****
+
+####  woaimiyabi  
+##### 1201#       发表于 2026-6-12 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69767101&amp;ptid=2283074" target="_blank">江口夕 发表于 2026-6-12 17:22</a>
+
+不好意思，我是xb2粉丝，自称切割xb2.xb3和xb
+
+Dlc的人能不能去外面聊。还是说你想看我xb123游戏时长，别 ...</blockquote>
+你要是来专楼就好好讨论游戏，别拉屎 整这些乱七八糟的，
+
