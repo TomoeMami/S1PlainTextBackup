@@ -2713,3 +2713,28 @@ BOSS名字忘了。有个机制，每回合暴动。</blockquote>
 
 这游的圣遗物要求不高，主属性对了就行了
 
+
+*****
+
+####  伊布桑  
+##### 991#       发表于 2026-6-13 13:38
+
+国服这调进度思路清奇，直接把阿黛丢到常驻去了，市长池后面直接接泰妮池<img src="https://static.stage1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wcorvo  
+##### 992#       发表于 2026-6-13 14:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">大佬们微氪零氪的话是玩国际服还是国服比较好？
+
+*****
+
+####  qixinno1  
+##### 993#       发表于 2026-6-13 14:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69770901&amp;ptid=2256125" target="_blank">wcorvo 发表于 2026-6-13 14:10</a>
+
+大佬们微氪零氪的话是玩国际服还是国服比较好？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国服 几天后开市长池子直接坐轮椅 国际服只能买个市长号了
+
