@@ -494,3 +494,19 @@ effort 只敢开 xhigh， ...</blockquote>
 
 max不知道，但是ultracode没问题，除非你双开三开大型项目。
 
+
+*****
+
+####  ayanamilin  
+##### 47#       发表于 2026-6-13 09:51
+
+<img src="https://img.stage1st.com/forum/202606/13/094945lq115qruv4r11k4i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (458.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-13 09:49 上传
+
+貌似现在还能用
+
