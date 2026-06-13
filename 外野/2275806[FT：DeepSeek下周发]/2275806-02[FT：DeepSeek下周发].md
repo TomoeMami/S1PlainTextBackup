@@ -2871,3 +2871,35 @@ opencode go订阅首月5美元以后10美元一个月，能用多模态的KIMI2.
 
 第二种是后面有人发现的，dsv4对“请怎么怎么做”这类指令的遵循度差，但是对“请扮演xx”或“你是一个xx”这类的遵循度会变强，不知道是不是被酒馆角色扮演特训过的原因。我自己试过把这种提示词加到系统提示词里：“你是一个中文思维的Agent，你的语言行为内化在思考之中，使用中文进行思考。”效果就会好很多，最起码是能连续几十回工具调用没再出现英语思考了，不过有时候也还是会变回英文思考。
 
+
+*****
+
+####  zerona  
+##### 1729#       发表于 2026-6-14 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69773190&amp;ptid=2275806" target="_blank">徐老师 发表于 2026-6-13 23:54</a>
+
+deepseek太便宜了，可惜不支持多模态，坛友有什么性价比高的稳定多模态模型推荐么？
+
+—— 来自 S1Fun ...</blockquote>
+ds的页面视图模式抓个服装特征到是没问题。就是不知道该如何让它能在pi下走起来
+
+*****
+
+####  千千千千鸟  
+##### 1730#       发表于 2026-6-14 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69773260&amp;ptid=2275806" target="_blank">serj005 发表于 2026-6-14 00:24</a>
+
+中文思维链是dsv4的一个难题，已经有很多案例反馈说ds对“请用中文进行思考”这种指令的遵循度非常差。
+
+ ...</blockquote>
+居然是这样，这个扮演模式我看某脑的人说是ds的人根据小红书集美用网页的瘸腿扮演需求专项训练的，用来玩复杂的扮演一点都不好用，没想到还影响到代码的能力了吗。<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  有鱼  
+##### 1731#       发表于 2026-6-14 00:32
+
+codex的上下文就272k，不爽😡
+
