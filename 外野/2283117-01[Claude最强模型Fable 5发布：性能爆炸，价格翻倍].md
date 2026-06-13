@@ -510,3 +510,14 @@ max不知道，但是ultracode没问题，除非你双开三开大型项目。
 
 貌似现在还能用
 
+
+*****
+
+####  mahoraga  
+##### 48#       发表于 2026-6-13 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69769764&amp;ptid=2283117" target="_blank">ayanamilin 发表于 2026-6-13 09:51</a>
+
+结束了，实测 Fable 用不了了</blockquote>
+孩怕，我昨天晚上正好无聊在用a畜自己假扮成美军参谋跟他搞海峡局势兵棋推演，然后就被从fable降级到4.8了，该不会是被川皇发现了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
