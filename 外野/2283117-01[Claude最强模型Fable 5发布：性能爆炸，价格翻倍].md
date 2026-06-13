@@ -556,3 +556,17 @@ max不知道，但是ultracode没问题，除非你双开三开大型项目。
 max不知道，但 ...</blockquote>
 我200的pro开ultracode一小时就把五小时额度打满了 用不了一点
 
+
+*****
+
+####  ayanamilin  
+##### 53#       发表于 2026-6-13 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69764178&amp;ptid=2283117" target="_blank">AraTurambar 发表于 2026-6-12 10:18</a>
+200刀pro，开ultracode，每天工作10+小时全程vibe和手动平行，实际消耗大概10%左右一天。
+
+max不知道，但 ...</blockquote>
+你开的是200刀的max吧。我20刀的pro开ultra code来review代码仓，二十分钟就能给五小时额度烧完。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
