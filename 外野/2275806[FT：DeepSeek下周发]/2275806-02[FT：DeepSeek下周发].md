@@ -2936,3 +2936,16 @@ codex的上下文就272k，不爽😡
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  アコ  
+##### 1735#       发表于 2026-6-14 02:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69773325&amp;ptid=2275806" target="_blank">L-JoeW 发表于 2026-6-14 00:54</a>
+
+原来是这样怪不得在酒馆里无论我是在提示词里还是在对话里让他用中文展示思考链他永远不会听话，白天我要 ...</blockquote>
+Markdown+KEY: value格式
+
+Markdown标题和KEY用英文，描述用中文没问题的啊
+
