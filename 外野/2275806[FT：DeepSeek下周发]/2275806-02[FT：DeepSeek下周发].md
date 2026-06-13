@@ -2588,3 +2588,14 @@ DSv4啥时候发正式版啊
 
 pi的话用什么web ui好呢，想放云服务器上远程连接
 
+
+*****
+
+####  千千千千鸟  
+##### 1705#       发表于 2026-6-13 09:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69769427&amp;ptid=2275806" target="_blank">抽搐一下 发表于 2026-6-13 07:47</a>
+
+pi的话用什么web ui好呢，想放云服务器上远程连接</blockquote>
+pi-web，B站上搜索到的，貌似是最多人用的
+

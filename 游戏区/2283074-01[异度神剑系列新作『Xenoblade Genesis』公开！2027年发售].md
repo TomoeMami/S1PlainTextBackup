@@ -12994,3 +12994,32 @@ xg的内容应该还是玩致敬的多，直接关联应该不太可能。
 
 除非说这是什么前世记忆之类的
 
+
+*****
+
+####  misya  
+##### 1267#       发表于 2026-6-13 09:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69769569&amp;ptid=2283074" target="_blank">アヘ顔 发表于 2026-6-13 08:48</a>
+
+我记得以前高桥那个规划里面xg是最后一篇吧，确实算结尾了
+
+不过之前的篇章都还空着，往前接也是接 ...</blockquote>
+XG只是EP5，要接必然是往后了，或者XBG以意象的方式来告诉玩家EP6大概是什么样子的，也是版权问题下比较现实的可行案，明着关联是基本不可能的
+
+<img src="https://img.stage1st.com/forum/202606/13/094000ro80888vagos4voj.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260613093738_640_2.jpg</strong> (365.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-13 09:40 上传
+
+<img src="https://img.stage1st.com/forum/202606/13/094006p5yccqktj4kgjk35.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260613093734_639_2.jpg</strong> (474.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-13 09:40 上传
+
