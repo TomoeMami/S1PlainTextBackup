@@ -147,3 +147,36 @@ miko：到底是在地上还是海上？
 
 便宜的价格租一个专门布置的七字母主题房间几小时作为私人空间，别说唱K了在里面干什么都行
 
+
+*****
+
+####  holofan  
+##### 11621#       发表于 2026-6-13 21:27
+
+<img src="https://img.stage1st.com/forum/202606/13/212536ziypfizpafwy73ay.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-13 21:25 上传
+
+又作词了
+
+<img src="https://img.stage1st.com/forum/202606/13/212627ydfhflhhhpku3ofa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-13 21:26 上传
+
+明年的变化，这个话现在听起来就有点其他意味了，结合之前直播杂谈时无意表现出的态度，难不成明年你也要脱离
+
+*****
+
+####  holofan  
+##### 11622#       发表于 2026-6-13 21:43
+
+下周有企划
+
