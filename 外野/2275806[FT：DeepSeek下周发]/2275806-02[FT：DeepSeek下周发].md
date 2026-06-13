@@ -2924,3 +2924,15 @@ codex的上下文就272k，不爽😡
  ...</blockquote>
 原来是这样<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">怪不得在酒馆里无论我是在提示词里还是在对话里让他用中文展示思考链他永远不会听话，白天我要试下第二种方法，原来都甚至想把预设的提示词全翻新一遍弄成中文看看效果了，但自己又不会写怕失去或减弱原来的效果
 
+
+*****
+
+####  舞以  
+##### 1734#       发表于 2026-6-14 01:10
+
+梁圣感觉还是更看重预训练“创造智能”的过程，不太看重后训练“拴小孩”的过程，可能觉得这方面对于真正的agi意义不大？
+但是缺乏后训练现在真的挺影响ds的表现的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+看这轮扩张之后能不能有更充足的资源做了，既然要认真做产品的话，后训练，harness，工具库都得做好，我能接受为此额外付费啊梁圣<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
