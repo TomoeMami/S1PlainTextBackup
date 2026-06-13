@@ -13306,3 +13306,18 @@ XBG作为新系列背景设定应该是全新的，说实话我觉得想塞进XG
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  mcq_2  
+##### 1290#       发表于 2026-6-13 18:50
+
+这引擎真不行。ns时代还能看一下，但是能效也不行。ns2时代明显就落后一个时代了。
+
+*****
+
+####  阿卵真是牛逼  
+##### 1291#       发表于 2026-6-13 18:52
+
+女二一看就很能齁<img src="https://static.stage1st.com/image/smiley/carton2017/454.png" referrerpolicy="no-referrer">
+
