@@ -13207,3 +13207,13 @@ XBG作为新系列背景设定应该是全新的，说实话我觉得想塞进XG
 
 总跟塞尔达组混，终于混出来精灵族了 哈哈哈哈
 
+
+*****
+
+####  海晟天锻  
+##### 1283#       发表于 2026-6-13 16:31
+
+话说从pv顺位来看，貌似金发黑皮和银发双剑妹才是女三男三的定位，男二女二是骑龙少年和蓝发巫女吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
