@@ -122,3 +122,28 @@ miko：到底是在地上还是海上？
 
 2026-6-11 19:31 上传
 
+
+*****
+
+####  holofan  
+##### 11619#       发表于 2026-6-11 23:57
+
+明天大概率参加chiha的方向盘手柄现场玩FH6
+
+连驾照都没考过没摸过真东西的我觉得可能现场会兴奋死，然后回家就立刻下单买一个真的来玩<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 11620#       发表于 2026-6-13 12:59
+
+<img src="https://img.stage1st.com/forum/202606/13/125557vjnf98u5bb0jj8cn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (102.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-13 12:55 上传
+
+便宜的价格租一个专门布置的七字母主题房间几小时作为私人空间，别说唱K了在里面干什么都行
+
