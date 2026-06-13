@@ -13356,3 +13356,20 @@ XBG作为新系列背景设定应该是全新的，说实话我觉得想塞进XG
 
 2026-6-13 18:55 上传
 
+
+*****
+
+####  海晟天锻  
+##### 1294#       发表于 2026-6-13 19:04
+
+女主和银发双剑妹看着都不小，你高桥gg只是玩欲盖弥彰而已<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  milky658  
+##### 1295#       发表于 2026-6-13 19:06
+
+盲眼大奶精灵从奴隶主逃出来以后和男主相依为命。原本自信开朗昂首挺胸的她只能在男主怀里展现软弱的一面。有一天，敌人伪装成男主把她骗进不可描述的地方，用男主温柔的声音欺骗她，挑逗她，不知情的她把自己所有的软弱和秘密一览无余地展现出来，娇羞地向他寻求救赎。而男主被堵住嘴，绑在一旁看着好搭档一步步走向深渊，我想看到的就是这个<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
