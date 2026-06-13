@@ -13296,3 +13296,13 @@ XBG作为新系列背景设定应该是全新的，说实话我觉得想塞进XG
 
 你根本无法想象这会给我带来多大的快乐。</blockquote>
 
+
+*****
+
+####  冰风血羽  
+##### 1289#       发表于 2026-6-13 18:42
+
+比起女一我更好奇女二的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
