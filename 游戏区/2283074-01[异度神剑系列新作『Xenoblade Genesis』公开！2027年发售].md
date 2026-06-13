@@ -12829,3 +12829,26 @@ XB是工作，赚钱罢了，XG才是生活，要圆梦的<img src="https://stat
 上一次xb3也是各种分析说成是xg2，这次xbg也要说成是xg2，明明说是新系列新开始却仿佛没有自己的内容，不少 ...</blockquote>
 不一样当时xb3只是轮回设定推测跟xg相似 大多数只是玩家脑补，xbg这次都不装了 怪设素材直接都复制粘贴xg那边的了  游戏真实存在的东西 很多不用推测 所以更直观 ，当然也有推测的点 ，一般都是老外那边喜欢这么玩。
 
+
+*****
+
+####  misya  
+##### 1258#       发表于 2026-6-13 07:53
+
+XBC是偷偷摸摸接XS，XBG偷偷摸摸的接XG也没啥问题。XENO两个关键星球一个地球一个XG的星球，一个是起源一个是终结，一个阿尔法一个奥米加，所以XBG暗地里接XG也不是不可能，反正只要不明说都是玩家自己脑补的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名居守  
+##### 1259#       发表于 2026-6-13 07:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69769268&amp;ptid=2283074" target="_blank">RUANHYC 发表于 2026-6-13 05:34</a>
+那之前泄露的是废案吗，怎么看都不觉得男女主是奴隶
+
+难道说第一章还在美美校园生活，第二章就被其他种族炸 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/carton2017/415.png" referrerpolicy="no-referrer">“我的王之力啊啊啊啊……”
+串词了
+
+追查真相—＞在校园里获得诅咒（力量）—＞顶不住了眼瞎—＞自闭（没玩过所有异度系列，xb主角是不是都自闭过？）—＞被贩卖成努力
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也是成为努力的一种途径
+
