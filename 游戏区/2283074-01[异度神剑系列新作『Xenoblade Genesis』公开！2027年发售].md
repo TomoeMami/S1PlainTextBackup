@@ -13249,3 +13249,16 @@ XBG作为新系列背景设定应该是全新的，说实话我觉得想塞进XG
 
 另外kos-mos今年的配音是在2e版本里有新增语音还是有其他出场机会也还没定下来，值得期待一下
 
+
+*****
+
+####  richardkisser  
+##### 1287#       发表于 2026-6-13 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69771601&amp;ptid=2283074" target="_blank">findpkq 发表于 2026-6-13 17:21</a>
+
+其实既然PV里有藏其他种族的话，我是要怀疑下主角团实际构成的
+
+说来现在英文配音都还没上，不知道下一波宣 ...</blockquote>
+我觉着配音八成是新模式的战斗语言<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
