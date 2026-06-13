@@ -2903,3 +2903,24 @@ ds的页面视图模式抓个服装特征到是没问题。就是不知道该如
 
 codex的上下文就272k，不爽😡
 
+
+*****
+
+####  王兰花秀丽  
+##### 1732#       发表于 2026-6-14 00:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69773276&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-6-14 00:30</a>
+居然是这样，这个扮演模式我看某脑的人说是ds的人根据小红书集美用网页的瘸腿扮演需求专项训练的，用来玩 ...</blockquote>
+到不至于什么都怪集美，这个就是没做好，连基本的rp都没做好，缺乏后训练    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  L-JoeW  
+##### 1733#       发表于 2026-6-14 00:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69773260&amp;ptid=2275806" target="_blank">serj005 发表于 2026-6-14 00:24</a>
+中文思维链是dsv4的一个难题，已经有很多案例反馈说ds对“请用中文进行思考”这种指令的遵循度非常差。
+
+ ...</blockquote>
+原来是这样<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">怪不得在酒馆里无论我是在提示词里还是在对话里让他用中文展示思考链他永远不会听话，白天我要试下第二种方法，原来都甚至想把预设的提示词全翻新一遍弄成中文看看效果了，但自己又不会写怕失去或减弱原来的效果
+
