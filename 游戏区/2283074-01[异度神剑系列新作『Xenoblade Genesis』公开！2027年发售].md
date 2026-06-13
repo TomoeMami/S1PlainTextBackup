@@ -13413,3 +13413,20 @@ XBG作为新系列背景设定应该是全新的，说实话我觉得想塞进XG
 
 不过xbg渲染确实差点意思导致看起来怪是真的，不知道是不是因为Legacy项目开发早的缘故xb3那个漂亮的渲染效果没有用上，当然也可能是因为这游戏距离完成还早得很，说不定要到明年9月左右才发售，毕竟连英配都还没做。
 
+
+*****
+
+####  Jabeck  
+##### 1300#       发表于 2026-6-13 19:41
+
+XB3实际有多糊都知道吧。。。XB4效果还不知道呢。。。
+
+*****
+
+####  superlink  
+##### 1301#       发表于 2026-6-13 19:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">比一下pv的草吧，别靠记忆了
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
