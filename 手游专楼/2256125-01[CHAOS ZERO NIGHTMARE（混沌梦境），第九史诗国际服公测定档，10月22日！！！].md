@@ -2738,3 +2738,24 @@ BOSS名字忘了。有个机制，每回合暴动。</blockquote>
 大佬们微氪零氪的话是玩国际服还是国服比较好？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国服 几天后开市长池子直接坐轮椅 国际服只能买个市长号了
 
+
+*****
+
+####  LMBS  
+##### 994#       发表于 2026-6-13 14:21
+
+B站看到攻略说主C追求伤害用2+2+2/散件比较好，好刷 伤害也不比专属圣遗物差
+
+说得还挺有道理的，是真的吗
+
+*****
+
+####  伊布桑  
+##### 995#       发表于 2026-6-13 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69770958&amp;ptid=2256125" target="_blank">LMBS 发表于 2026-6-13 14:21</a>
+B站看到攻略说主C追求伤害用2+2+2/散件比较好，好刷 伤害也不比专属圣遗物差
+
+说得还挺有道理的，是真的吗 ...</blockquote>
+追大龟裂上限是真的，目前这游戏端出来的四件套都有点。。。一言难尽，反而是2+2给数值的好用
+
