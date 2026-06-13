@@ -13189,3 +13189,21 @@ XBG作为新系列背景设定应该是全新的，说实话我觉得想塞进XG
 拿枪 ...</blockquote>
 男二白毛 这图看上去是背着弓箭，但另一个镜头可以看出他背的是双手巨剑。
 
+
+*****
+
+####  richardkisser  
+##### 1281#       发表于 2026-6-13 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69771348&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-6-13 16:07</a>
+
+男二白毛 这图看上去是背着弓箭，但另一个镜头可以看出他背的是双手巨剑。 ...</blockquote>
+是的，我就是通过白毛看出来男主穿着的也是制服
+
+*****
+
+####  贝雷特  
+##### 1282#       发表于 2026-6-13 16:13
+
+总跟塞尔达组混，终于混出来精灵族了 哈哈哈哈
+
