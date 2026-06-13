@@ -521,3 +521,11 @@ max不知道，但是ultracode没问题，除非你双开三开大型项目。
 结束了，实测 Fable 用不了了</blockquote>
 孩怕，我昨天晚上正好无聊在用a畜自己假扮成美军参谋跟他搞海峡局势兵棋推演，然后就被从fable降级到4.8了，该不会是被川皇发现了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  痴货  
+##### 49#       发表于 2026-6-13 10:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> A家上市前的保护费没交够，被盯上了啊
+
