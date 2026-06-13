@@ -1455,3 +1455,14 @@ xbg的女主最精炼的关键词，很有可能就是这个瞎眼
 画师和engage画师有点关联，配合标题的染色，pv里男主？的变身？大概会有类似结 ...</blockquote>
 mono组帮塞尔达打工做地图，说不定真的可以用到xeno系列里
 
+
+*****
+
+####  VVhaleVoice  
+##### 128#         楼主| 发表于 2026-6-13 13:45
+
+有人根据PV1尝试还原了游戏大地图
+https://tieba.baidu.com/p/10788387315?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=22.1.1.0&amp;st=1781328847&amp;is_video=false&amp;unique=ECEAE93E74E0479BB8A47B89C6CE0937
+
+—— 来自 Google Pixel 8, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
