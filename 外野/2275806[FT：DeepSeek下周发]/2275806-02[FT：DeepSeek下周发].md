@@ -2751,3 +2751,28 @@ GLM多模态算不错的
 
 5V体感是gemini3.1那个水平
 
+
+*****
+
+####  千千千千鸟  
+##### 1719#       发表于 2026-6-13 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69772941&amp;ptid=2275806" target="_blank">舞以 发表于 2026-6-13 22:45</a>
+
+尝试在提示词里面直接让ds用中文思考
+
+论坛助手,iPhone</blockquote>
+那样虽然有效果但是不够强效啊。包括pi用内置的什么read，write之类的工具，还有调用一些skill或者拓展的功能的时候还是会变成英文思考的。
+
+*****
+
+####  千千千千鸟  
+##### 1720#       发表于 2026-6-13 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69773034&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-6-13 23:07</a>
+
+加个开关然后在system_prompt里加上一句要求它用中文思考和回复应该就可以了吧。。。
+
+不过其实我有点担心 ...</blockquote>
+我也是查了下说ds是国产模型用中文效率不会降低啥的，当然估计实际上还是会降低吧，所以拓展写了专有名词保持英文。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
