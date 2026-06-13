@@ -570,3 +570,16 @@ max不知道，但 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  AraTurambar  
+##### 54#       发表于 2026-6-13 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69771401&amp;ptid=2283117" target="_blank">ayanamilin 发表于 2026-6-13 16:21</a>
+
+你开的是200刀的max吧（claude和ChatGPT叫法不一样）。我20刀的pro开ultra code来review代码仓，二十分钟 ...</blockquote>
+反正也没得用了现在，回去opus4.8的话，200刀也差不多用完速度。
+
+ 主要opus token有效率还是比fable低多了。
+
