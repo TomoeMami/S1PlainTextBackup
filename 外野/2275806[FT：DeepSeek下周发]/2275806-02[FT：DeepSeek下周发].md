@@ -2949,3 +2949,15 @@ Markdown+KEY: value格式
 
 Markdown标题和KEY用英文，描述用中文没问题的啊
 
+
+*****
+
+####  hugosol  
+##### 1736#       发表于 2026-6-14 03:31
+
+吐槽一下，omp默认edit用的hashline模式简直是天坑，LLM如果喜欢连续执行edit经常会出事，因为用了旧的文件tag很容易把文件结构给改坏，然后LLM发现问题后只能把整个文件重写，到这一步就只能听天由命了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+本来想着自己折腾一下搞个读写文件锁，突然想起来多问它一句，能切换回pi传统的文本匹配模式么，果然是能配置的，而且算法看上去做得也挺完善的
+
+所以就是为了推他们独有的特性才把hashline搞成默认配置么<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+

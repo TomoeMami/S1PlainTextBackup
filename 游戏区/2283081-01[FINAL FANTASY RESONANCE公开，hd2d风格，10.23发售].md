@@ -964,3 +964,15 @@ FFBE全是這樣，因為女將軍她只是3星(能升到5星，所以是垃圾)
 
 BE幻影就是新出時用在PVP，因為能抽的角色使用的魔法都能被魔封劍吃到的
 
+
+*****
+
+####  魔法师lain  
+##### 89#       发表于 2026-6-14 03:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69756501&amp;ptid=2283081" target="_blank">ParukiaMKII 发表于 2026-6-10 23:17</a>
+先做个这个练练手吧，FF6能高规格HD2D重置就好了</blockquote>
+顺便时空之旅也复刻一下吧，有这个可能吗
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
