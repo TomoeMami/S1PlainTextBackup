@@ -1265,7 +1265,7 @@
     "newtitle": "[崩坏3rd专楼  ios安卓都可以玩啦！！！！！]",
     "lastedit": 1781131925,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1937799": {
@@ -17982,10 +17982,10 @@
     "update": false
   },
   "2283402": {
-    "totalreply": 55,
+    "totalreply": 56,
     "title": "[国产的足球梗里最经典的是不是“荷兰三棍客”]",
     "newtitle": "[国产的足球梗里最经典的是不是“荷兰三棍客”]",
-    "lastedit": 1781389925,
+    "lastedit": 1781391126,
     "category": "外野",
     "active": true,
     "update": false
@@ -18023,6 +18023,24 @@
     "newtitle": "[现在的中考是不是有点太偏向女孩子了]",
     "lastedit": 1781386926,
     "category": "手游战斗",
+    "active": true,
+    "update": false
+  },
+  "2283384": {
+    "totalreply": 41,
+    "title": "[在一些前沿模型突然变得不可用时，智谱 GLM-5.2 模型全量开放，将于下周开源]",
+    "newtitle": "[在一些前沿模型突然变得不可用时，智谱 GLM-5.2 模型全量开放，将于下周开源]",
+    "lastedit": 1781391127,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2283413": {
+    "totalreply": 41,
+    "title": "[今天去店里把市面上大部分大牌的人体工程学椅全坐了一遍]",
+    "newtitle": "[今天去店里把市面上大部分大牌的人体工程学椅全坐了一遍]",
+    "lastedit": 1781391126,
+    "category": "外野",
     "active": true,
     "update": false
   }
