@@ -2665,3 +2665,17 @@ pi-web，B站上搜索到的，貌似是最多人用的
 
 我切好了glm5.2，现在测试下
 
+
+*****
+
+####  豪福  
+##### 1711#       发表于 2026-6-13 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69771615&amp;ptid=2275806" target="_blank">zephyrus99 发表于 2026-6-13 17:24</a>
+感觉智谱不需要存在，老是刷榜但是无人使用（因为买不到）
+
+问了一下所有同事，没有用GLM的。反正买不到，直 ...</blockquote>
+某种程度上这种极度的算力饥饿也是在激励中国软硬件开发者创新<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHB110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
