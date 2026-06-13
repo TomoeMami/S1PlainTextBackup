@@ -13237,3 +13237,15 @@ XBG作为新系列背景设定应该是全新的，说实话我觉得想塞进XG
 
 —— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  findpkq  
+##### 1286#       发表于 2026-6-13 17:21
+
+其实既然PV里有藏其他种族的话，我是要怀疑下主角团实际构成的<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+说来现在英文配音都还没上，不知道下一波宣发会放什么时候，今年还有两个2e版本可以维持热度
+
+另外kos-mos今年的配音是在2e版本里有新增语音还是有其他出场机会也还没定下来，值得期待一下
+
