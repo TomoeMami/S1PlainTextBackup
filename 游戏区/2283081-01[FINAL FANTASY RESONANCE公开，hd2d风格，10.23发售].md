@@ -869,3 +869,16 @@ ign发了两场boss战视频，看着还不错，调高点期待值
 
 至少这两种情况传统回合制里是肯定没法复现的
 
+
+*****
+
+####  Markorca  
+##### 84#       发表于 2026-6-13 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69769771&amp;ptid=2283081" target="_blank">アーリィ 发表于 2026-6-13 09:53</a>
+
+可能你误会了，我说的atb里的花样和职业技能关系不大
+
+比较经典的场景是ff6的魔封剑，如果atb走到了魔封剑 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">ATB的问题还是很多细节上的东西一般流程里根本用不上，正常玩的时候最多就是特意停一下等对面的招，剩下的就是狠狠堆速度达到敌人一次行动多次攻击的效果
+
