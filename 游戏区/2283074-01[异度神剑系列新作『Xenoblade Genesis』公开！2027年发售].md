@@ -13321,3 +13321,38 @@ XBG作为新系列背景设定应该是全新的，说实话我觉得想塞进XG
 
 女二一看就很能齁<img src="https://static.stage1st.com/image/smiley/carton2017/454.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  whzfjd  
+##### 1292#       发表于 2026-6-13 18:54
+
+ 本帖最后由 whzfjd 于 2026-6-13 18:56 编辑 
+<blockquote>mcq_2 发表于 2026-6-13 18:50
+这引擎真不行。ns时代还能看一下，但是能效也不行。ns2时代明显就落后一个时代了。 ...</blockquote>
+
+我怎么觉得依然是稳踩中型厂，哪怕技术代际明显新的K社新RPG和BN艾恩葛朗特，在卖相上也没有优势，顶多引擎托举的写实地表更强些
+
+*****
+
+####  xwr  
+##### 1293#       发表于 2026-6-13 18:58
+
+ 本帖最后由 xwr 于 2026-6-13 19:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69771937&amp;ptid=2283074" target="_blank">冰风血羽 发表于 2026-6-13 18:42</a>
+
+比起女一我更好奇女二的
+
+—— 来自 realme RMX6699, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+目测白毛双剑至少比女主大了一个罩杯，就是不知道会不会有比大小的桥段，白毛双剑高傲大小姐竭尽全力无法战胜乡下贵族女主，最后在浴场扳回一城，化敌为友<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+穿个校服都已经这个效果了，如果搞个巴伐利亚啤酒娘那种紧身低胸胸衣，那就很有视觉效果了。
+
+<img src="https://img.stage1st.com/forum/202606/13/185526sqfg45511fp5s1tp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2026-06-13 035513.jpg</strong> (50.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-13 18:55 上传
+
