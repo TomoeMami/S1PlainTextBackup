@@ -12898,3 +12898,16 @@ xb数字作，无一例外的。
 
 —— 来自 OnePlus PLR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  アヘ顔  
+##### 1263#       发表于 2026-6-13 08:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69769454&amp;ptid=2283074" target="_blank">shiko 发表于 2026-6-13 08:00</a>
+xg的内容应该还是玩致敬的多，直接关联应该不太可能。
+
+而且事到如今也没有往xg的故事上狗尾续貂的意义，xg ...</blockquote>
+我记得以前高桥那个规划里面xg是最后一篇吧，确实算结尾了
+不过之前的篇章都还空着，往前接也是接
+
