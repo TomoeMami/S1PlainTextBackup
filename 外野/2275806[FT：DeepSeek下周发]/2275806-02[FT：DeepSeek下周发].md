@@ -2613,3 +2613,36 @@ pi-web，B站上搜索到的，貌似是最多人用的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  saner  
+##### 1707#       发表于 2026-6-13 17:15
+
+智谱似乎王朝了，今晚就放，有没有哪坛友去试试
+
+<img src="https://img.stage1st.com/forum/202606/13/171537f48tttap00zja16h.png" referrerpolicy="no-referrer">
+
+<strong>1000005581.png</strong> (94.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-13 17:15 上传
+
+<img src="https://img.stage1st.com/forum/202606/13/171537zavzjwppojpt30yh.png" referrerpolicy="no-referrer">
+
+<strong>1000005580.png</strong> (387.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-13 17:15 上传
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1708#       发表于 2026-6-13 17:17
+
+等啥时候上火山coding或者opencode go吧，智谱家本家的coding plan抢不到
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
