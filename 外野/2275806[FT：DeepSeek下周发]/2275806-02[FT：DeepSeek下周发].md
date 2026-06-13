@@ -2776,3 +2776,66 @@ GLM多模态算不错的
 不过其实我有点担心 ...</blockquote>
 我也是查了下说ds是国产模型用中文效率不会降低啥的，当然估计实际上还是会降低吧，所以拓展写了专有名词保持英文。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GJRstone  
+##### 1721#       发表于 2026-6-13 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69772927&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-6-13 22:43</a>
+认真请教下，因为Pi返回来的那些思考几乎全是英文的，只有正文回复是中文的看得我非常难受，我今天瞎几把尝 ...</blockquote>
+原始prompt改成中文的，思考就成中文的了。当然如果皮裤套棉裤，中间还是有层英文prompt的话，最终输出的思考还是有可能变成英文的。
+
+*****
+
+####  云寂  
+##### 1722#       发表于 2026-6-13 23:52
+
+<blockquote>Language Policy: Communicate exclusively in Chinese. All explanations, logic analysis, and responses must be in Chinese, while keeping technical terms, code snippets, and file paths in their original form.</blockquote>我在codex用的提示词，仅供参考。
+
+
+*****
+
+####  千千千千鸟  
+##### 1723#       发表于 2026-6-13 23:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69773181&amp;ptid=2275806" target="_blank">GJRstone 发表于 2026-6-13 23:51</a>
+
+原始prompt改成中文的，思考就成中文的了。当然如果皮裤套棉裤，中间还是有层英文prompt的话，最终输出的 ...</blockquote>
+是的，今天写的拓展就是干这个的，也加上了自动更新，自动检查啥的功能，不过实际执行上还是遇到各种问题，毕竟自己还是纯外行，就在想说难道就没有专业人士有这种需求嘛<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  徐老师  
+##### 1724#       发表于 2026-6-13 23:54
+
+deepseek太便宜了，可惜不支持多模态，坛友有什么性价比高的稳定多模态模型推荐么？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qwjhb  
+##### 1725#       发表于 2026-6-13 23:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69773188&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-6-13 23:54</a>
+是的，今天写的拓展就是干这个的，也加上了自动更新，自动检查啥的功能，不过实际执行上还是遇到各种问题 ...</blockquote>
+可能还真没有
+毕竟说的英文去掉专有名词估计需要的水平和懂王差不多
+
+—— 来自 Xiaomi 2512BPNDAC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qwjhb  
+##### 1726#       发表于 2026-6-13 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69773190&amp;ptid=2275806" target="_blank">徐老师 发表于 2026-6-13 23:54</a>
+deepseek太便宜了，可惜不支持多模态，坛友有什么性价比高的稳定多模态模型推荐么？
+
+—— 来自 S1Fun ...</blockquote>
+免费的智谱 或者opencode带的免费的那几个
+收费的小米MIMO 2.5  挺便宜的 
+
+—— 来自 Xiaomi 2512BPNDAC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
