@@ -529,3 +529,30 @@ max不知道，但是ultracode没问题，除非你双开三开大型项目。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> A家上市前的保护费没交够，被盯上了啊
 
+
+*****
+
+####  星花  
+##### 50#       发表于 2026-6-13 10:50
+
+还好是翻译问题。神鬼寓言比这重要。
+
+*****
+
+####  gammatau  
+##### 51#       发表于 2026-6-13 10:51
+
+跟川皇吵架了是真的，但还远远没到明牌反川的程度
+
+
+*****
+
+####  acropolis  
+##### 52#       发表于 2026-6-13 10:55
+
+<blockquote>AraTurambar 发表于 2026-6-11 19:18
+200刀pro，开ultracode，每天工作10+小时全程vibe和手动平行，实际消耗大概10%左右一天。
+
+max不知道，但 ...</blockquote>
+我200的pro开ultracode一小时就把五小时额度打满了 用不了一点
+
