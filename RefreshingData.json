@@ -2255,7 +2255,7 @@
     "newtitle": "[三浦糀 WJ新连载『蓝箱 ／ アオのハコ』]",
     "lastedit": 1781068808,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1047361": {
@@ -11817,10 +11817,10 @@
     "update": false
   },
   "1950481": {
-    "totalreply": 919,
+    "totalreply": 921,
     "title": "[《凡人修仙传》网络动画专楼]",
     "newtitle": "[《凡人修仙传》网络动画专楼]",
-    "lastedit": 1781327046,
+    "lastedit": 1781328246,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12546,10 +12546,10 @@
     "update": false
   },
   "2268175": {
-    "totalreply": 1986,
+    "totalreply": 1987,
     "title": "[2026年Q娃 ​​​​名侦探Precure]",
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
-    "lastedit": 1781320926,
+    "lastedit": 1781328005,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16596,10 +16596,10 @@
     "update": false
   },
   "2282979": {
-    "totalreply": 1573,
+    "totalreply": 1574,
     "title": "[任天堂病 栋15楼，指到了！6.9晚十点新一期nd!]",
     "newtitle": "[任天堂病 栋15楼，指到了！6.9晚十点新一期nd!]",
-    "lastedit": 1781325366,
+    "lastedit": 1781328126,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17010,10 +17010,10 @@
     "update": false
   },
   "2283081": {
-    "totalreply": 86,
+    "totalreply": 87,
     "title": "[FINAL FANTASY RESONANCE公开，hd2d风格，10.23发售]",
     "newtitle": "[FINAL FANTASY RESONANCE公开，hd2d风格，10.23发售]",
-    "lastedit": 1781318888,
+    "lastedit": 1781328126,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17766,10 +17766,10 @@
     "update": false
   },
   "2283310": {
-    "totalreply": 120,
+    "totalreply": 121,
     "title": "[余承东：在全中国、全世界都不知道大模型为何物的时候，华为就发布了盘古大模型]",
     "newtitle": "[余承东：在全中国、全世界都不知道大模型为何物的时候，华为就发布了盘古大模型]",
-    "lastedit": 1781327885,
+    "lastedit": 1781328126,
     "category": "外野",
     "active": true,
     "update": false
@@ -17847,10 +17847,10 @@
     "update": false
   },
   "2283332": {
-    "totalreply": 137,
+    "totalreply": 139,
     "title": "[8100家在华日企联手施压，要求中国政府透明稀土监管、取消水产禁令、保证日娱演出]",
     "newtitle": "[8100家在华日企联手施压，要求中国政府透明稀土监管、取消水产禁令、保证日娱演出]",
-    "lastedit": 1781326327,
+    "lastedit": 1781328366,
     "category": "外野",
     "active": true,
     "update": false
@@ -17928,10 +17928,10 @@
     "update": false
   },
   "2283348": {
-    "totalreply": 89,
+    "totalreply": 91,
     "title": "[制造对立确实不对，对不起，以后不发了]",
     "newtitle": "[制造对立确实不对，对不起，以后不发了]",
-    "lastedit": 1781327766,
+    "lastedit": 1781328366,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17968,6 +17968,15 @@
     "title": "[傻逼a➗]",
     "newtitle": "[傻逼a➗]",
     "lastedit": 1781324887,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2283155": {
+    "totalreply": 41,
+    "title": "[明年今天，能不能用上opus 4.8水平的deepseek？]",
+    "newtitle": "[明年今天，能不能用上opus 4.8水平的deepseek？]",
+    "lastedit": 1781328366,
     "category": "外野",
     "active": true,
     "update": false
