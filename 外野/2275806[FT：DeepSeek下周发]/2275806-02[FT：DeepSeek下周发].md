@@ -2694,3 +2694,17 @@ pi-web，B站上搜索到的，貌似是最多人用的
 
 GLM感觉是学a\了，搞个编程特化模型在股市能讲故事
 
+
+*****
+
+####  ycjiang1337  
+##### 1714#       发表于 2026-6-13 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69771615&amp;ptid=2275806" target="_blank">zephyrus99 发表于 2026-6-13 17:24</a>
+感觉智谱不需要存在，老是刷榜但是无人使用（因为买不到）
+
+问了一下所有同事，没有用GLM的。反正买不到，直 ...</blockquote>
+开源模型哪来的买不到
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
