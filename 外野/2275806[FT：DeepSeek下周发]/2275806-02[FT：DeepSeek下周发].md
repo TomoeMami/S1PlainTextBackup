@@ -2708,3 +2708,11 @@ GLM感觉是学a\了，搞个编程特化模型在股市能讲故事
 
 —— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  千千千千鸟  
+##### 1715#       发表于 2026-6-13 22:43
+
+认真请教下，因为Pi返回来的那些思考几乎全是英文的，只有正文回复是中文的看得我非常难受，我今天瞎几把尝试vibe了一个汉化的拓展，花了几十块钱ds的额度，然后效果虽然有一些，但自我感觉写出来还是很明显是外行人水平的一个破玩意，就很好奇，难道没有人有这样的需求吗，英语的实在费劲，想看中文的思维链啊<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
