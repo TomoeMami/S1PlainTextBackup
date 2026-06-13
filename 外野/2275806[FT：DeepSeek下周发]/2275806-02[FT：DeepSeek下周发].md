@@ -2839,3 +2839,18 @@ deepseek太便宜了，可惜不支持多模态，坛友有什么性价比高的
 
 —— 来自 Xiaomi 2512BPNDAC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1727#       发表于 2026-6-14 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69773190&amp;ptid=2275806" target="_blank">徐老师 发表于 2026-6-13 23:54</a>
+
+deepseek太便宜了，可惜不支持多模态，坛友有什么性价比高的稳定多模态模型推荐么？
+
+—— 来自 S1Fun ...</blockquote>
+opencode go订阅首月5美元以后10美元一个月，能用多模态的KIMI2.7 千问3.7 MINIMAX M3
+
+我觉得比火山coding plan划算
+
