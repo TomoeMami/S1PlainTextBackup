@@ -2728,3 +2728,26 @@ GLM感觉是学a\了，搞个编程特化模型在股市能讲故事
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  hugosol  
+##### 1717#       发表于 2026-6-13 23:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69772927&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-6-13 22:43</a>
+
+认真请教下，因为Pi返回来的那些思考几乎全是英文的，只有正文回复是中文的看得我非常难受，我今天瞎几把尝 ...</blockquote>
+加个开关然后在system_prompt里加上一句要求它用中文思考和回复应该就可以了吧。。。
+
+不过其实我有点担心这样会影响思考的质量，因为有时候一些专有名词是英文的，让它用中文思考不知道会不会有歧义
+
+
+*****
+
+####  2017.05.04  
+##### 1718#       发表于 2026-6-13 23:14
+
+GLM多模态算不错的
+
+5V体感是gemini3.1那个水平
+
