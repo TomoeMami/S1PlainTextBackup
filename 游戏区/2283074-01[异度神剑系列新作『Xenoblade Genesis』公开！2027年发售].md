@@ -13440,3 +13440,45 @@ XB3实际有多糊都知道吧。。。XB4效果还不知道呢。。。
 
 比如说女主头发到了暗处会变成大块暗色甚至全黑，紫色特效一上来校服的白丝会被染成黑丝，不过也不是什么大毛病，调整调整就行了。
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 1303#       发表于 2026-6-13 19:55
+
+建模渲染确实有种relink和gbvs间差异
+
+*****
+
+####  qappip  
+##### 1304#       发表于 2026-6-13 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748941&amp;ptid=2283074" target="_blank">kyonkoism 发表于 2026-6-9 23:39</a>
+为什么说米山舞吹几把很简单啊，米山舞之前可是没有做过3D游戏原画师的
+
+那他怎么懂得画出容易被3D建模，建 ...</blockquote>
+后藤那些图还会加高光什么的，纯逆天的而且比例都是九头身超模，对比一下丸山才是真的神
+
+—— 来自 vivo V2436A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 1303#       发表于 2026-6-13 19:55
+
+建模渲染确实有种relink和gbvs间差异
+
+*****
+
+####  qappip  
+##### 1304#       发表于 2026-6-13 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69748941&amp;ptid=2283074" target="_blank">kyonkoism 发表于 2026-6-9 23:39</a>
+为什么说米山舞吹几把很简单啊，米山舞之前可是没有做过3D游戏原画师的
+
+那他怎么懂得画出容易被3D建模，建 ...</blockquote>
+后藤那些图还会加高光什么的，纯逆天的而且比例都是九头身超模，对比一下丸山才是真的神
+
+—— 来自 vivo V2436A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
