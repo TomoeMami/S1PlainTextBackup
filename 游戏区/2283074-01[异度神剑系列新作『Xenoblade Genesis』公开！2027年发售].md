@@ -13512,3 +13512,20 @@ Ns2的123对比你眼睛3.0也看不出任何区别
 
 先让那些厂商放下虚幻引擎再来吹自己的技术水平<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ShitOverflow  
+##### 1308#       发表于 2026-6-13 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69771870&amp;ptid=2283074" target="_blank">xwr 发表于 2026-6-13 18:29</a>
+
+笑死4chan老哥为女主正名</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这种就是一类固有设定，看不出的说不出，看明白的不出来说
+
+现实中，这种妹子穿通版T会有效果，比如足球篮球服，什么足球篮球宝贝这些
+
+官能一点的就是露半拉南半球，不然飘带或者长发遮一下籁头
+
+不如说该关心泳装款式，xb最近泳装都大灾难好吧，xbx还修了
+
