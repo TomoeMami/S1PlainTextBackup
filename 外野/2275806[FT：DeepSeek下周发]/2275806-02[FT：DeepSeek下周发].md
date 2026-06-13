@@ -2599,3 +2599,17 @@ pi的话用什么web ui好呢，想放云服务器上远程连接
 pi的话用什么web ui好呢，想放云服务器上远程连接</blockquote>
 pi-web，B站上搜索到的，貌似是最多人用的
 
+
+*****
+
+####  依恋未酌宴  
+##### 1706#       发表于 2026-6-13 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69766599&amp;ptid=2275806" target="_blank">アコ 发表于 2026-6-12 16:16</a>
+有没有酒馆用户使用Luker
+
+看到有个</blockquote>
+看介绍和数据库差不多啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
