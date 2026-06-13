@@ -1997,3 +1997,27 @@ https://www.playasia.digital/zh-cn/fire-emblem-fortunes-weave-dagdan-collection-
 
 所以前传比后传好啊，za dlc卡露尼孩子出场不也一群人接受不了
 
+
+*****
+
+####  Humpy  
+##### 892#       发表于 2026-6-13 23:29
+
+肌腱炎和牙的问题解决后，该拿起好久没动的画笔涂鸦一张新作安娜了毕竟我是安娜厨，正好雷达的头像已经用很久了该换了。
+
+结果我画完泥潭的个人页面头像功能在我这个浏览器上似乎抽风了不停的闪烁，反而换不了头像……太怪了，算了图也画了发出来吧。
+
+万紫千红的安娜造型感觉异常的……华丽？希望这代的安娜成长率好点，能像ENGAGE那样就好了，最好还能结婚
+
+下边那个边框是因为我想偷懒不想去思考官方头像没露出来的袖子是什么样了
+
+很急，硬给急，快点发售吧
+
+<img src="https://img.stage1st.com/forum/202606/13/232835hhhg2kmcr8b2nlhb.png" referrerpolicy="no-referrer">
+
+<strong>annaf.png</strong> (1.55 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-13 23:28 上传
+
