@@ -13502,3 +13502,13 @@ XB3实际有多糊都知道吧。。。XB4效果还不知道呢。。。
 Ns2的123对比你眼睛3.0也看不出任何区别
 —— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  被击坠王  
+##### 1307#       发表于 2026-6-13 21:13
+
+ 本帖最后由 被击坠王 于 2026-6-13 21:15 编辑 
+
+先让那些厂商放下虚幻引擎再来吹自己的技术水平<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
