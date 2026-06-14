@@ -3188,3 +3188,41 @@ d指导自己挂的搜索很垃圾好吧，还不如kimi自己挂的搜索。再
 —— ...</blockquote>
 要是专家模式现在能付费用搜索还是问题吗？这句话交给ai都能轻松理解出意思是解决不了反代问题还不如把专家模式放到付费墙后解锁目前的限制。云哥你好云哥再见。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1756#       发表于 2026-6-14 21:44
+
+ 本帖最后由 半江瑟瑟半江红 于 2026-6-14 21:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69776902&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-6-14 21:35</a>
+要是专家模式现在能付费用搜索还是问题吗？这句话交给ai都能轻松理解出意思是解决不了反代问题还不如把专 ...</blockquote>
+申请个api充点钱，手机上用chatbox或者rikkahub，电脑上要么cherry studio或者直接上agent，要么用免费的必应搜索要么花点钱买个搜索api，不就解决了？实在想花钱，买个kimi最便宜的一档会员，一个月49，敞开用，还可以在kimi code里配置agent
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  雨昼斯基  
+##### 1757#       发表于 2026-6-14 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69776528&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-6-14 20:03</a>
+
+纯新人请教一个问题：关于DeepSeek v4，在网页端或者手机app界面下，如果选择专家模式，则无法启用搜索，只 ...</blockquote>
+下个trae work呗，有完整的agent能力，**多种模型。就是高峰期免费用户得排队。无论是免费等着用，还是低频需求冲个订阅，还是接入api不排队，就用他的agent能力，对小白用户还是很舒服的。
+
+
+*****
+
+####  tillnight  
+##### 1758#       发表于 2026-6-14 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69776943&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-6-14 21:44</a>
+
+申请个api充点钱，手机上用chatbox或者rikkahub，电脑上要么cherry studio或者直接上agent，要么用免费的 ...</blockquote>
+云哥你活在自己世界里是你的自由。但是请不要云哥云别人然后自以为是的趾高气扬。
+
+第一，原话是解决不了网页版被反代的问题，不如就给专家模式开付费墙让正常用户能用正常功能。如果你第一遍没看懂还能理解成原文有歧义，第二遍解释完还看不懂还在那里趾高气扬的“哪里有什么会员专家”，只能说语言理解能力确实需要ai辅助。
+
+第二，我当然用api，我不需要你教我用。但是我的体验就是ds网页版自带的搜索更好用，尤其是你还有脸提chatbox的免费Bing搜索，一用一个不吱声，不愧是云哥。你觉得ds自己的搜索垃圾是你的事，我不认同谢谢。
+
