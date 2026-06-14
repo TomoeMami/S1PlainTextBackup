@@ -15062,3 +15062,14 @@ pv开头那个海滨城市的圆形建筑就是舅舅说的男主所在的那个
 说句题外话，个人很讨厌xb3梅比乌斯的外形设计，几乎个个都是变身前长差不多的红色铠甲，变身之后又身上一 ...</blockquote>
 可能mono内部以为自己做的是晓组织<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  66367749  
+##### 1431#       发表于 2026-6-15 01:58
+
+大块头是战争画面其中一个阵营的，腿上的方形扣子一致
+<img src="https://p.sda1.dev/33/2857111c9f43d233008acf6d4239991d/image.jpg" referrerpolicy="no-referrer">
+女主哥哥（？）窗外似乎是一座白色的桥
+<img src="https://p.sda1.dev/33/8a6561de32927eacbbebf7e88c77ba84/image.jpg" referrerpolicy="no-referrer">
+
