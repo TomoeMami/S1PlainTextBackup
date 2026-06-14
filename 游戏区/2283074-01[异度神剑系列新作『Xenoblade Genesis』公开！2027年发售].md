@@ -14357,3 +14357,27 @@ T本来就是要被优化掉的<img src="https://static.stage1st.com/image/smile
 
 PV里出现过武器上阿尼玛晶石有红黄蓝绿四色，说不定和职业类别有关。
 
+
+*****
+
+####  巴尔干炮  
+##### 1368#       发表于 2026-6-14 17:27
+
+地图很大，不仔细看都没发现。
+
+<img src="https://img.stage1st.com/forum/202606/14/172713r66a0zbxxaw8useb.jpg" referrerpolicy="no-referrer">
+
+<strong>b6a82972c38b68070f9036f0cb0cccdc67d859547f89a43cf5c32b79d5c66984.0.JPG</strong> (495.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-14 17:27 上传
+
+<img src="https://img.stage1st.com/forum/202606/14/172713f84mzmrmmwmjjjzm.jpg" referrerpolicy="no-referrer">
+
+<strong>440dd3b0ff6eef933b4c0bd4aa44f6168f1e1a2026204a2c6fe81175cb711d34.0.JPG</strong> (81.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-14 17:27 上传
+

@@ -1154,3 +1154,11 @@ gxyy提前备战周年强化
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">后知后觉 这活动真是重量级啊 当年是不是被炎上过
 
+
+*****
+
+####  格林卡罗尔  
+##### 20945#       发表于 2026-6-14 17:35
+
+我想起来了，这个是不是打得晚了没法赶进度<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
