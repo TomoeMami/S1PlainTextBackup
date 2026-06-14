@@ -583,3 +583,17 @@ max不知道，但 ...</blockquote>
 
  主要opus token有效率还是比fable低多了。
 
+
+*****
+
+####  Wiksy  
+##### 55#       发表于 2026-6-14 15:05
+
+<img src="https://img.stage1st.com/forum/202606/14/150224qe0eqd1ibqgzvfds.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9243.jpeg</strong> (114.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-14 15:02 上传
+
