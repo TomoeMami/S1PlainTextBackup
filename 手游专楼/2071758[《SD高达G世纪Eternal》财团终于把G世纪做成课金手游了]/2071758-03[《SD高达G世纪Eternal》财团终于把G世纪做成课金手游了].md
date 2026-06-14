@@ -150,3 +150,15 @@ Z高难也要来了，会送ssr天鹅么，空中高难想想也头疼
 
 水下的怪有什么开发机推荐吗，手上的ur全是光束的打得好烦啊
 
+
+*****
+
+####  一个陆仁贾  
+##### 4369#       发表于 2026-6-14 22:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69776706&amp;ptid=2071758" target="_blank">Schw 发表于 2026-6-14 20:53</a>
+水下的怪有什么开发机推荐吗，手上的ur全是光束的打得好烦啊</blockquote>
+之前雷霆宙域不是给了台水下“自由”
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
