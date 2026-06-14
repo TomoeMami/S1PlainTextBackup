@@ -149,3 +149,13 @@
 
 佐仓的梅菲斯兽作为暂定篇章BOSS，还会变究极体吗？比如深渊兽
 
+
+*****
+
+####  zechins  
+##### 651#       发表于 2026-6-14 22:59
+
+剧情不赖，但是作画啥的好拉<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
