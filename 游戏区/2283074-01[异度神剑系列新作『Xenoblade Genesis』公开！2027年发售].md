@@ -14381,3 +14381,69 @@ PV里出现过武器上阿尼玛晶石有红黄蓝绿四色，说不定和职业
 
 2026-6-14 17:27 上传
 
+
+*****
+
+####  woaimiyabi  
+##### 1369#       发表于 2026-6-14 17:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69775924&amp;ptid=2283074" target="_blank">巴尔干炮 发表于 2026-6-14 17:27</a>
+
+地图很大，不仔细看都没发现。</blockquote>
+这是啥 房子？
+
+*****
+
+####  巴尔干炮  
+##### 1370#       发表于 2026-6-14 17:47
+
+<blockquote>woaimiyabi 发表于 2026-6-14 17:46
+这是啥 房子？</blockquote>
+看着是一个小村。
+
+*****
+
+####  狸狸狐  
+##### 1371#       发表于 2026-6-14 17:48
+
+<img src="https://img.stage1st.com/forum/202606/14/174832fye4epb4ztybe443.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260614_174753_yylx.danmaku.bili.jpg</strong> (193.64 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-14 17:48 上传
+
+可能就是新手村集合训练的村子
+
+*****
+
+####  woaimiyabi  
+##### 1372#       发表于 2026-6-14 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69774585&amp;ptid=2283074" target="_blank">海晟天锻 发表于 2026-6-14 11:36</a>
+
+这作开发时间可能和xb2发售一个时段，而高桥xb3访谈说做一半去捣鼓新作了说明这作品可能是做了一部分后中途 ...</blockquote>
+那应该是20年左右差不多  xb3这个开发一半去做别的项目说辞，确实可能是xbg。
+
+
+*****
+
+####  woaimiyabi  
+##### 1373#       发表于 2026-6-14 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69776007&amp;ptid=2283074" target="_blank">狸狸狐 发表于 2026-6-14 17:48</a>
+
+可能就是新手村集合训练的村子</blockquote>
+应该不是 这个村子边上是雪山还有瀑布，  跟上面那图周围环境不一样。
+
+*****
+
+####  海晟天锻  
+##### 1374#       发表于 2026-6-14 17:57
+
+总之，xbg和xb3有可能是前后脚的同期项目，xb3负责给老神剑结尾，xbg负责开启新神剑，那就能解释为什么不是斋藤人设以及xbg这个一看就变态工作量的地图体量，xbg到明年可能已经开发7年了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

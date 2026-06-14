@@ -74,3 +74,24 @@
 
 之前说了不会这次真只有智郎一个有究极体吧？
 
+
+*****
+
+####  恋叶梦境  
+##### 648#       发表于 2026-6-14 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69775902&amp;ptid=2250190" target="_blank">leleq 发表于 2026-6-14 17:17</a>
+
+五庄观大人进化妹子猜到了但没猜到是“黑皮福瑞假小子”这种极端xp啊
+
+之前说了不会这次真只有智郎一个有究 ...</blockquote>
+队长的究极体姑且也是已经被卡图透出来了的，当然你是指动画登场的话，感觉应该不至于不给登场
+
+<img src="https://img.stage1st.com/forum/202606/14/174916ql6c0z00cr8878lc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (267.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-14 17:49 上传
+
