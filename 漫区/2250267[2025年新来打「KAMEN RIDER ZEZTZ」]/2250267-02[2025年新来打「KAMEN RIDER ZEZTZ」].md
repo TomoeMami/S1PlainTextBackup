@@ -131,3 +131,11 @@ MK9的前置MK3
 
 水怪被清算主要是平成老被分配到最终吃瘪的戏，他拍得又简单粗暴，不咋好找补，正常发挥其实还算可以，拿得手的拍摄其实挺多的。柴崎这几年老被分配到剧情重要节点，他拍起来又容易大脑过载乱节奏，只能说东映还是相信老资历的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蔺无双  
+##### 1917#       发表于 2026-6-14 11:02
+
+没想到观感回升会是从水鬼开始，新人和柴崎前几集在搞什么飞机<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
