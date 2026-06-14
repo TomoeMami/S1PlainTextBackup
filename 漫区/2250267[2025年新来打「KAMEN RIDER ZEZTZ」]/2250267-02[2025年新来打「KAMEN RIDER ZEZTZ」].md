@@ -290,3 +290,31 @@ CODE应该还有后续的，这种重要组织的戏份一般会贯穿整剧
 
 不是水鬼<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  名居守  
+##### 1934#       发表于 2026-6-14 15:46
+
+秩序：一拳（实际是掌）打到你人格脱出
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浅川雏羽  
+##### 1935#       发表于 2026-6-14 15:48
+
+剧场版的宣传物料里，条子上层让怪事科逮捕牢莫的下一句话就是“但小鹰贤政、富士见和成华不相信牢莫会搞恐袭”，看来牢师结局后确实回去当条子了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+目前所有的物料都没有现实牢莫登场，八成TV最后牢莫会长期驻留在梦世界，剧场版牢师一换一给救回来
+
+<img src="https://img.stage1st.com/forum/202606/14/154449qk6z06uy6ry9ru9e.jpg" referrerpolicy="no-referrer">
+
+<strong>img_7596.jpg</strong> (1.51 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-14 15:44 上传
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
