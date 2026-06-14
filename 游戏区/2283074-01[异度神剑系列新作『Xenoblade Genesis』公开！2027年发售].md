@@ -14952,3 +14952,12 @@ pv开头那个海滨城市的圆形建筑就是舅舅说的男主所在的那个
 
 —— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  topia  
+##### 1421#       发表于 2026-6-14 23:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">定位算是jrpg独苗吧，如果开除宝可梦jrpg籍的话
+对扩充玩家群体肯定有作用，但你要说和本家红绿帽子打擂台，你开心就好<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
