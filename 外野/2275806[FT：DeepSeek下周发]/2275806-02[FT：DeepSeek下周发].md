@@ -3175,3 +3175,16 @@ d指导自己挂的搜索很垃圾好吧，还不如kimi自己挂的搜索。再
 
 claude code接ds就可以用
 
+
+*****
+
+####  tillnight  
+##### 1755#       发表于 2026-6-14 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69776613&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-6-14 20:28</a>
+
+d指导自己挂的搜索很垃圾好吧，还不如kimi自己挂的搜索。再说哪有什么会员专家模式？bro云呢搁这？
+
+—— ...</blockquote>
+要是专家模式现在能付费用搜索还是问题吗？这句话交给ai都能轻松理解出意思是解决不了反代问题还不如把专家模式放到付费墙后解锁目前的限制。云哥你好云哥再见。
+
