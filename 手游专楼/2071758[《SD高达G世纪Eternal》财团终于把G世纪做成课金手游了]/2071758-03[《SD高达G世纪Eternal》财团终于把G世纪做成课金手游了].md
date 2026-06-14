@@ -134,3 +134,11 @@ Z高难也要来了，会送ssr天鹅么，空中高难想想也头疼
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">终于爬完20层了，这次体感最烦还是19，颠婆疯狂回血太变态了
 
+
+*****
+
+####  ティグル  
+##### 4367#       发表于 2026-6-14 19:48
+
+观星者是种命外传啊，这个确实没办法
+
