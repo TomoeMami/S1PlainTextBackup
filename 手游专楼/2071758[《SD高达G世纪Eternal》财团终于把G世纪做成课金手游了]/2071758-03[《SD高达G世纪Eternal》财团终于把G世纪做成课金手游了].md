@@ -116,3 +116,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">悲报，黑强的MAP可以在同一台MA上造成两次伤害
 
+
+*****
+
+####  plok201  
+##### 4365#       发表于 2026-6-14 16:14
+
+黑强练完准备去打SEED高难任务，才发现因为观星者不包在SEED里，地球联合任务还是那么几台机没变<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Z高难也要来了，会送ssr天鹅么，空中高难想想也头疼
+
