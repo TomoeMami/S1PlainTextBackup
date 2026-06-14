@@ -208,3 +208,23 @@ MK9的前置MK3
 
 分离后的西格是什么中年离异南通<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 1925#       发表于 2026-6-14 12:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这集打戏还不错，水鬼还是比王八拳厉害点的
+
+*****
+
+####  暗黑能乐  
+##### 1926#       发表于 2026-6-14 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69774371&amp;ptid=2250267" target="_blank">rockroxas 发表于 2026-6-14 11:08</a>
+
+剧情到底是赶还是单纯抛弃逻辑了呢……
+
+牢莫出场打纯粹为了撇清西格的嫌疑，但把惩戒分离出来之后就这么随 ...</blockquote>
+惩戒这跑路压根不像留得住的吧
+
