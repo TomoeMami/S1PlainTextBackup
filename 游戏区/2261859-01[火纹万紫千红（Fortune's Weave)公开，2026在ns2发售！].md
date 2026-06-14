@@ -2031,3 +2031,36 @@ https://www.playasia.digital/zh-cn/fire-emblem-fortunes-weave-dagdan-collection-
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  406  
+##### 894#       发表于 2026-6-14 11:52
+
+小男孩在宣传里戏份最多，眼睛手掌都不正常，舞娘最美少女还能确保挖角人气绿发龙娘（？），黑剑士带着和前作芙朵拉有关的弑神剑，长相也明示奔驰家血缘。这么看就只有女王在两次预告里，从人设到戏份都没有特别引人注意的要素，乐观想可能女王线反而最能揭露世界观情报才藏着
+
+*****
+
+####  kalavinka  
+##### 895#       发表于 2026-6-14 11:57
+
+三房无双里有关白毛主角的身份猜测，都是兜帽翅膀
+
+<img src="https://img.stage1st.com/forum/202606/14/115553ll77ll77o7c9ljj9.png" referrerpolicy="no-referrer">
+
+<strong>img_2122.png</strong> (1.69 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-14 11:55 上传
+
+<img src="https://img.stage1st.com/forum/202606/14/115556ireaa4077leh760b.png" referrerpolicy="no-referrer">
+
+<strong>img_2123.png</strong> (461.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-14 11:55 上传
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
