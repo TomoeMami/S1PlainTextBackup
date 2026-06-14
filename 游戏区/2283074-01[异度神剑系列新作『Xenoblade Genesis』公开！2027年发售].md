@@ -15007,3 +15007,24 @@ pv开头那个海滨城市的圆形建筑就是舅舅说的男主所在的那个
 
 —— 来自 vivo V2507A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  66367749  
+##### 1426#       发表于 2026-6-15 01:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69776549&amp;ptid=2283074" target="_blank">海晟天锻 发表于 2026-6-14 20:10</a>
+仔细想一想，除了xb3三对配平外，1和2好像都是一男对两女，主角团里保底一个单身的配置
+
+—— 来自 samsung ...</blockquote>
+打枪的也可能是龙性恋<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UltramanPain  
+##### 1427#       发表于 2026-6-15 01:32
+
+这男女主我真的非常的中意，越看越喜欢<img src="https://p.sda1.dev/33/9905676141a7c1f68d69e78788dee09a/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
