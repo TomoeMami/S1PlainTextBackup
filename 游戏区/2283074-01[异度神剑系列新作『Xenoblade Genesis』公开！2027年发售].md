@@ -15036,3 +15036,29 @@ pv开头那个海滨城市的圆形建筑就是舅舅说的男主所在的那个
 
 说句题外话，个人很讨厌xb3梅比乌斯的外形设计，几乎个个都是变身前长差不多的红色铠甲，变身之后又身上一坨，区分度和新鲜感不足，希望别再搞这种捅了蟑螂窝一样的了
 
+
+*****
+
+####  狸狸狐  
+##### 1429#       发表于 2026-6-15 01:52
+
+<img src="https://img.stage1st.com/forum/202606/15/015214e479ss3zc3sy2evz.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260614_042100_yylx.danmaku.bili.jpg</strong> (193.81 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-15 01:52 上传
+
+这张截图里这俩女娃子更可爱
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 1430#       发表于 2026-6-15 01:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69777773&amp;ptid=2283074" target="_blank">66367749 发表于 2026-6-15 01:40</a>
+说句题外话，个人很讨厌xb3梅比乌斯的外形设计，几乎个个都是变身前长差不多的红色铠甲，变身之后又身上一 ...</blockquote>
+可能mono内部以为自己做的是晓组织<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
