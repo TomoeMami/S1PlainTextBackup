@@ -2072,3 +2072,14 @@ https://www.playasia.digital/zh-cn/fire-emblem-fortunes-weave-dagdan-collection-
 
 啊，看到两个女主角的两位副官（暂时这么叫吧），感觉人设好普通。
 
+
+*****
+
+####  Humpy  
+##### 897#       发表于 2026-6-15 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69777082&amp;ptid=2261859" target="_blank">bsdlxy 发表于 2026-6-14 22:08</a>
+
+啊，看到两个女主角的两位副官（暂时这么叫吧），感觉人设好普通。</blockquote>
+哪两位？放新情报了吗
+
