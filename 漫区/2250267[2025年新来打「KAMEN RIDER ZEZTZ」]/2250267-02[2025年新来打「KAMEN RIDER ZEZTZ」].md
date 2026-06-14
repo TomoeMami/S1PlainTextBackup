@@ -280,3 +280,13 @@ MK9的前置MK3
 这集还可以，但code线真的不行，还不如直接写成1，2，3和高层都被梦魇夺舍，一直想暗中夺取索姆尼亚权限和0 ...</blockquote>
 CODE应该还有后续的，这种重要组织的戏份一般会贯穿整剧
 
+
+*****
+
+####  饭冢武也  
+##### 1933#       发表于 2026-6-14 15:36
+
+这集节奏不错啊
+
+不是水鬼<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
