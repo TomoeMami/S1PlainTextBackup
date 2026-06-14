@@ -3132,3 +3132,34 @@ hashline理想很美好，模型不用重新生成旧文本能减少出错概率
 
 这肯定是个严肃问题，ds自己在网页端配置的搜索是远强于第三方外挂的搜索功能的。现在搞学术写作ds基本处于不可用状态，除非你的要求是flash就能达到的。临时性情况大家都能接受，长期解决不了那还不如开会员用专家模式了。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1751#       发表于 2026-6-14 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69776579&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-6-14 20:20</a>
+这肯定是个严肃问题，ds自己在网页端配置的搜索是远强于第三方外挂的搜索功能的。现在搞学术写作ds基本处于 ...</blockquote>
+d指导自己挂的搜索很垃圾好吧，还不如kimi自己挂的搜索。再说哪有什么会员专家模式？bro云呢搁这？
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  羊寢  
+##### 1752#       发表于 2026-6-14 20:31
+
+会员专家模式什么鬼，ds就只有个api是收费的啊<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mitzvah  
+##### 1753#       发表于 2026-6-14 20:35
+
+ 本帖最后由 mitzvah 于 2026-6-14 20:36 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69776528&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-6-14 20:03</a>
+
+纯新人请教一个问题：关于DeepSeek v4，在网页端或者手机app界面下，如果选择专家模式，则无法启用搜索，只 ...</blockquote>
+最好的的解法就是到魔塔买个30多块一个月的会员然后本地写个mcp服务接进去搜索信息，读取网页一把抓，当然glm的plan的搜索mcp也是个好东西，这个甚至不需要你自己写
+
