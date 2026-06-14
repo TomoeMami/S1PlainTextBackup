@@ -3095,3 +3095,32 @@ hashline理想很美好，模型不用重新生成旧文本能减少出错概率
 
 但是我看了一下官网的模型定价页，好像没有这么一个模型，应该是幻觉出来的
 
+
+*****
+
+####  土星魔豆  
+##### 1748#       发表于 2026-6-14 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69776528&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-6-14 20:03</a>
+纯新人请教一个问题：关于DeepSeek v4，在网页端或者手机app界面下，如果选择专家模式，则无法启用搜索，只 ...</blockquote>
+联网要配插件
+
+比如找支持 Tavily 的，有免费额度，个人用应该够了
+提示词可以明确要求使用插件 xxx 进行联网搜索
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1749#       发表于 2026-6-14 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69776528&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-6-14 20:03</a>
+纯新人请教一个问题：关于DeepSeek v4，在网页端或者手机app界面下，如果选择专家模式，则无法启用搜索，只 ...</blockquote>
+因为有人拿网页反代，幻方把网页端pro的联网搜索关了
+如果连api，只要自己配置搜索工具就可以了
+最简单的就是chatbox
+我手机上用的是rikkahub
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
