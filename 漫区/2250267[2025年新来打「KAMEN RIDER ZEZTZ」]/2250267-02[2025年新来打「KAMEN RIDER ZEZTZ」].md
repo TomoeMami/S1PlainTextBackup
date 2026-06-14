@@ -66,3 +66,34 @@
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  pointer243  
+##### 1912#       发表于 2026-6-14 09:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69744356&amp;ptid=2250267" target="_blank">TOYSTORY 发表于 2026-6-9 12:37</a></blockquote>
+狐圣那个登场一回是什么形态
+
+—— 来自 motorola edge 2025, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  挺好的  
+##### 1913#       发表于 2026-6-14 09:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69773871&amp;ptid=2250267" target="_blank">pointer243 发表于 2026-6-14 09:07</a>
+
+狐圣那个登场一回是什么形态
+
+—— 来自 motorola edge 2025, Android 16, 鹅球 v3.5.99 ...</blockquote>
+MK9的前置MK3
+
+<img src="https://img.stage1st.com/forum/202606/14/090825c50llxd6xp3p8ylq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (952.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-14 09:08 上传
+
