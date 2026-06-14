@@ -13347,10 +13347,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 5372,
+    "totalreply": 5373,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1781466726,
+    "lastedit": 1781467325,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17996,6 +17996,15 @@
     "newtitle": "[推个神经病漫画：《蔷薇园传奇》]",
     "lastedit": 1781452090,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2283469": {
+    "totalreply": 41,
+    "title": "[小米邹师傅谈某大模型重新出山]",
+    "newtitle": "[小米邹师傅谈某大模型重新出山]",
+    "lastedit": 1781467685,
+    "category": "外野",
     "active": true,
     "update": false
   }
