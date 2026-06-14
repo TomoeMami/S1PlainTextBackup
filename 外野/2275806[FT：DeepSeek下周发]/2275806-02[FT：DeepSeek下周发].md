@@ -3226,3 +3226,17 @@ d指导自己挂的搜索很垃圾好吧，还不如kimi自己挂的搜索。再
 
 第二，我当然用api，我不需要你教我用。但是我的体验就是ds网页版自带的搜索更好用，尤其是你还有脸提chatbox的免费Bing搜索，一用一个不吱声，不愧是云哥。你觉得ds自己的搜索垃圾是你的事，我不认同谢谢。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1759#       发表于 2026-6-14 22:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69776986&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-6-14 21:53</a>
+云哥你活在自己世界里是你的自由。但是请不要云哥云别人然后自以为是的趾高气扬。
+
+第一，原话是解决不了网 ...</blockquote>
+懒得花钱买个搜索api直接买个kimi会员不就得了，搜索能力不比d指导的强多了
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -14878,3 +14878,13 @@ pv开头那个海滨城市的圆形建筑就是舅舅说的男主所在的那个
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  海晟天锻  
+##### 1413#       发表于 2026-6-14 21:58
+
+我觉得不能这么看，这次xbg是作为直面会一个承上启下作为中间爆点抛出来的，也是小泉介绍的，这个待遇并不差，考虑到发售周期，前半年给9月的万紫千红让路，时之笛也不是2月就能抛出来的，现在才刚好。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
