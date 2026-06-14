@@ -48,3 +48,21 @@
 
 忘却由婴儿梦魇进化
 
+
+*****
+
+####  milky658  
+##### 1910#       发表于 2026-6-14 08:56
+
+谷中在官网小作文谜语了句，剧场版主二共斗是“奇迹”，而下集是“期待已久”的感觉。这两者之间的区别大概一个月后你就能体会到了
+不会是牢师在tv牢死了吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浅川雏羽  
+##### 1911#       发表于 2026-6-14 09:01
+
+诺克斯老师，我还记得你🎶<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
