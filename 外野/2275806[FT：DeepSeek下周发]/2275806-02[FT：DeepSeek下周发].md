@@ -3315,3 +3315,14 @@ image.png
 
 真要做成收费订阅的产品，现在的网页版/app的ds完全不够，各个模块和各种功能工具都不成熟。
 
+
+*****
+
+####  jyj256  
+##### 1766#       发表于 2026-6-14 22:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69777133&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-6-14 22:18</a>
+
+你在那里绕圈子挽尊有意义吗？讨论怎么用ds你绕到最后给自己挽尊说你直接去用kimi，那我不会直接用gpt吗 ...</blockquote>
+一般问题快速模式也够用了吧  真需要搜索什么复杂问题 还是用api吧
+
