@@ -14493,3 +14493,22 @@ PV里出现过武器上阿尼玛晶石有红黄蓝绿四色，说不定和职业
 由手机上传
 2026-6-14 18:12 上传
 
+
+*****
+
+####  海晟天锻  
+##### 1379#       发表于 2026-6-14 18:23
+
+我记得是高桥收回xb3发售前说xb3是集大成作的发言然后表示自己在xb3开发途中心思就跑新作上了，好像是设定集访谈？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  maomaoying  
+##### 1380#       发表于 2026-6-14 18:25
+
+<blockquote>海晟天锻 发表于 2026-6-14 18:23
+我记得是高桥收回xb3发售前说xb3是集大成作的发言然后表示自己在xb3开发途中心思就跑新作上了，好像是设定 ...</blockquote>
+符合人设😅
+
