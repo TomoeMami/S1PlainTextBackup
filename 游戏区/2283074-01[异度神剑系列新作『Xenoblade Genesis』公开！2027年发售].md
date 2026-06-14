@@ -14339,3 +14339,21 @@ T本来就是要被优化掉的<img src="https://static.stage1st.com/image/smile
 
 其实以前排排站时代没啥T不T的，BOSS没仇恨不就行了？
 
+
+*****
+
+####  serj005  
+##### 1366#       发表于 2026-6-14 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69775660&amp;ptid=2283074" target="_blank">MrlOst 发表于 2026-6-14 15:52</a>
+
+估计剧情大方向主角团不是重新点亮熄灭的太阳，就是反过来干掉多余的太阳，感觉后者更有xb味 ...</blockquote>
+不对吧，pv的夜晚场景就能看出来5个小太阳是月亮的定位，世界有正常的昼夜切换，主太阳应该是本来就会定时熄灭切换昼夜，晚上就剩下5个小太阳作为月光。
+
+*****
+
+####  xwr  
+##### 1367#       发表于 2026-6-14 17:20
+
+PV里出现过武器上阿尼玛晶石有红黄蓝绿四色，说不定和职业类别有关。
+
