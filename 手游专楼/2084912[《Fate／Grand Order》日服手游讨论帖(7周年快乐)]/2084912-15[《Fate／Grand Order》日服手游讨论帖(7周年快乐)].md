@@ -1173,3 +1173,11 @@ gxyy提前备战周年强化
 我想起来了，这个是不是打得晚了没法赶进度</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">是啊  传说中的日结活动
 
+
+*****
+
+####  Yugao  
+##### 20947#       发表于 2026-6-15 05:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">回坑总算把所有剧情和幕间都看完了，我复盘了一下是不是自从2.3被污染了数据库以后人理的操作就越来越芥化了
+
