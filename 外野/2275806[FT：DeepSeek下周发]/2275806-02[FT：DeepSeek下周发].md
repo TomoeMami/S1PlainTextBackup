@@ -2961,3 +2961,15 @@ Markdown标题和KEY用英文，描述用中文没问题的啊
 
 所以就是为了推他们独有的特性才把hashline搞成默认配置么<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LeoDT  
+##### 1737#       发表于 2026-6-14 08:07
+
+关于d老师写代码用中文思考这个事，我也做了很多尝试，一个原因是想尝试减少token开销，另一个原因是迷信中文推理优势，但是最终还是失败告终。最好的情况是一个session前两三个turn他还能保持中文思考，之后随着代码阅读越多，基本就回不去了。就算是改文档的session，文档大部分都是中文，半途中他也会开始英文思考，不知道跟编程领域的训练数据是否相关。
+
+hashline edit看着是很美好，实际效果确实不敢恭维，没有谁做的好。如果想彻底解决edit调用失败可能强制edit前read更有效，但是这也会导致大量浪费，其实edit失败的出现频率并不是那么高，而且总觉得只靠工具是没什么好办法解决的。antirez也说过他在DwarfStar里尝试了hashline edit，这个可能效果会更好，毕竟和调用API不一样，DwarfStar是agent和inference一体的东西，能做的事更多。
+
+个人遇到的麻烦的问题是做react或者emacs相关东西时，edit时llm会搞错缩进或者括号，然后开始在思考中数缩进和括号，数不清楚就开始写各种脚本算第几行到底有几个缩进，或者看括号到底哪里不匹配，两者都会浪费大量token。不知道AST based edit是不是能解决这问题。
+
