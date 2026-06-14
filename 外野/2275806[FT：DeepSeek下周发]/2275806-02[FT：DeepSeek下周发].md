@@ -3342,3 +3342,14 @@ image.png
 
 现在用Anthropic API 格式连接官方API的话，可以调用模型内置的搜索工具。
 
+
+*****
+
+####  革萌  
+##### 1769#       发表于 2026-6-15 02:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69777133&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-6-14 22:18</a>
+
+你在那里绕圈子挽尊有意义吗？讨论怎么用ds你绕到最后给自己挽尊说你直接去用kimi，那我不会直接用gpt吗 ...</blockquote>
+我有点不理解，反向代理这个词的定义几乎可以用在程序员面试了，API的理解门槛还是高于反代不成？
+
