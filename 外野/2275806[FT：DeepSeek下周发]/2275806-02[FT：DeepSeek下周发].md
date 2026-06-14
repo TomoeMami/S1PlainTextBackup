@@ -3066,3 +3066,14 @@ hashline理想很美好，模型不用重新生成旧文本能减少出错概率
 —— 来自 Xiaomi 24129PN74C, Android 16, 鹅球 v3 ...</blockquote>
 ios外区订阅
 
+
+*****
+
+####  御坂MKII  
+##### 1746#       发表于 2026-6-14 18:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69775527&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-6-14 15:07</a>
+
+hashline理想很美好，模型不用重新生成旧文本能减少出错概率，但是副作用太大了，模型对行号的理解和hash ...</blockquote>
+直接改文件确实不安全，像 codex 内置的也是 diff 格式的 apply attach，不是直接改
+
