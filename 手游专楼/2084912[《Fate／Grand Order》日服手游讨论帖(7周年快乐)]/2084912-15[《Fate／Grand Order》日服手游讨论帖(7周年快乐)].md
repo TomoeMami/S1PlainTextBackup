@@ -1146,3 +1146,11 @@ gxyy提前备战周年强化
 难道还有什么别的卡池也出这些礼 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为欧  （其实是新年礼装 
 
+
+*****
+
+####  alucardcz  
+##### 20944#       发表于 2026-6-14 13:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">后知后觉 这活动真是重量级啊 当年是不是被炎上过
+
