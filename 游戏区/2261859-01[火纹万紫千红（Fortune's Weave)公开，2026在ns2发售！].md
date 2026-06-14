@@ -2064,3 +2064,11 @@ https://www.playasia.digital/zh-cn/fire-emblem-fortunes-weave-dagdan-collection-
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  bsdlxy  
+##### 896#       发表于 2026-6-14 22:08
+
+啊，看到两个女主角的两位副官（暂时这么叫吧），感觉人设好普通。
+

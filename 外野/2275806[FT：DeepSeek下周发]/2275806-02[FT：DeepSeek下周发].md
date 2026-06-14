@@ -3240,3 +3240,21 @@ d指导自己挂的搜索很垃圾好吧，还不如kimi自己挂的搜索。再
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  jyj256  
+##### 1760#       发表于 2026-6-14 22:09
+
+ 本帖最后由 jyj256 于 2026-6-14 22:11 编辑 
+
+<img src="https://img.stage1st.com/forum/202606/14/220732ql15luuumt7a85qb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-14 22:07 上传
+
+网上不是有专门配大语言模型的搜索吗  还是免费的 
+
