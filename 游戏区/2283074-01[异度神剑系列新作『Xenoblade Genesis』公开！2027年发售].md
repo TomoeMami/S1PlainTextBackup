@@ -14473,3 +14473,23 @@ PV里出现过武器上阿尼玛晶石有红黄蓝绿四色，说不定和职业
 
 只知道小岛幸说没参与崭新的未来，XB3开发到一半去做别的出自哪里？
 
+
+*****
+
+####  狸狸狐  
+##### 1378#       发表于 2026-6-14 18:13
+
+<blockquote>JOJOROY 发表于 2026-6-14 18:05
+只知道小岛幸说没参与崭新的未来，XB3开发到一半去做别的出自哪里？</blockquote>
+
+开发者访谈。具体来说，不是xb3中途离开，是开发完本体之后就去了别的项目，没有参与DLC。
+
+<img src="https://img.stage1st.com/forum/202606/14/181241xn0n6jpdxyzyf0s9.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260614_181213_yylx.danmaku.bili.jpg</strong> (243.58 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-14 18:12 上传
+

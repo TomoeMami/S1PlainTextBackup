@@ -180,3 +180,28 @@ miko：到底是在地上还是海上？
 
 下周有企划
 
+
+*****
+
+####  holofan  
+##### 11623#       发表于 2026-6-13 22:59
+
+<img src="https://img.stage1st.com/forum/202606/13/225811phuqaahmziz2x22h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-13 22:58 上传
+
+职业敏感度
+
+*****
+
+####  holofan  
+##### 11624#       发表于 2026-6-14 18:13
+
+本人指示
+
+在喝七字母联名饮料前一定要喊：micomet 合体！
+
