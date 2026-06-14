@@ -326,3 +326,22 @@ CODE应该还有后续的，这种重要组织的戏份一般会贯穿整剧
 
 说起来，剧场版现在所有的宣传画面有宁梦没有啊，没啥印象了
 
+
+*****
+
+####  浅川雏羽  
+##### 1937#       发表于 2026-6-14 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69775767&amp;ptid=2250267" target="_blank">蔺无双 发表于 2026-6-14 16:27</a>
+
+说起来，剧场版现在所有的宣传画面有宁梦没有啊，没啥印象了</blockquote>
+有，骑车带牢莫
+
+<img src="https://img.stage1st.com/forum/202606/14/164347ztugmzrorb9ond7g.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-06-14 164207.jpg</strong> (213.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-14 16:43 上传
+
