@@ -15253,3 +15253,21 @@ PV2前能100页吗？我看很难<img src="https://static.stage1st.com/image/smi
 说实话如果一个游戏叫编年史，给我的印象就像是日后谈或者总结篇这种，虽然也在系列里也是正作 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你在寻找的是生化危机安布雷拉编年史跟黑暗编年史吗
 
+
+*****
+
+####  djw1984  
+##### 1449#       发表于 2026-6-15 15:52
+
+刚查了泥潭唯一指定jrpg的全球销量，三部都看了下，就这？
+
+*****
+
+####  Asimot  
+##### 1450#       发表于 2026-6-15 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69780722&amp;ptid=2283074" target="_blank">Markorca 发表于 2026-6-15 15:42</a>
+
+你在寻找的是生化危机安布雷拉编年史跟黑暗编年史吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">都没玩过，所以不知道你说的是什么意思（
+

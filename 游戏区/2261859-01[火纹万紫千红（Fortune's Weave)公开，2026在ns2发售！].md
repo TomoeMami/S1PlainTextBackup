@@ -2256,3 +2256,11 @@ https://www.playasia.digital/zh-cn/fire-emblem-fortunes-weave-dagdan-collection-
 
 当初皇女党大战十八路诸侯打的真是热闹<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  406  
+##### 915#       发表于 2026-6-15 15:45
+
+不过体感目前日推对风花雪月无双的不满倒是挺多的，可能确实有不少不想被皇女党冲刺而不直言讨厌红线，转而拿小量级无双开炮的
+
