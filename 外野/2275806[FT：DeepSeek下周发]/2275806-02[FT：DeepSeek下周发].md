@@ -3501,3 +3501,14 @@ image.png
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  杀人鲸  
+##### 1784#       发表于 2026-6-15 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69781888&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-6-15 19:24</a>
+
+什么灰度在我这都是不存在的，我甚至至今为止都没见过识图模式</blockquote>
+我勒了个去，是不是不太对呀？这东西都已经感觉测试了快一两个月了吧，怎么都还没有正式开？
+
