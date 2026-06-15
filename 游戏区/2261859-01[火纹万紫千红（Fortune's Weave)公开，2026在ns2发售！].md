@@ -2157,3 +2157,19 @@ https://www.playasia.digital/zh-cn/fire-emblem-fortunes-weave-dagdan-collection-
 
 四条都写烂才是现在火纹的水平。
 
+
+*****
+
+####  巴尔干炮  
+##### 905#       发表于 2026-6-15 14:28
+
+<img src="https://img.stage1st.com/forum/202606/15/142833sez3xou0g0nerfun.png" referrerpolicy="no-referrer">
+
+<strong>2f8dab9808503194b27cb1406fbd29d012e7402ae560583d24b990319ee7fe23.0.PNG</strong> (550.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-15 14:28 上传
+
+「白鴉の使者」
+
