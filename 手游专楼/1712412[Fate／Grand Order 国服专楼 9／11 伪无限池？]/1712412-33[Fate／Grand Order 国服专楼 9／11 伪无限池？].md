@@ -84,3 +84,13 @@
 
 平均能80抽出一个都能笑醒吧
 
+
+*****
+
+####  一个陆仁贾  
+##### 47856#       发表于 2026-6-15 21:41
+
+怎么感觉这活动即使90++能3t，点数还是涨得好慢，150w才能得第五张活动卡，这期间我又爆不出第五张<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
