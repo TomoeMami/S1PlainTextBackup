@@ -15073,3 +15073,11 @@ pv开头那个海滨城市的圆形建筑就是舅舅说的男主所在的那个
 女主哥哥（？）窗外似乎是一座白色的桥
 <img src="https://p.sda1.dev/33/8a6561de32927eacbbebf7e88c77ba84/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woaimiyabi  
+##### 1432#       发表于 2026-6-15 08:23
+
+大块头其实是范达姆
+
