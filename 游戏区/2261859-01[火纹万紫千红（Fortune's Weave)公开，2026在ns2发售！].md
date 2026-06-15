@@ -2264,3 +2264,17 @@ https://www.playasia.digital/zh-cn/fire-emblem-fortunes-weave-dagdan-collection-
 
 不过体感目前日推对风花雪月无双的不满倒是挺多的，可能确实有不少不想被皇女党冲刺而不直言讨厌红线，转而拿小量级无双开炮的
 
+
+*****
+
+####  Humpy  
+##### 916#       发表于 2026-6-15 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69780582&amp;ptid=2261859" target="_blank">zzzplht 发表于 2026-6-15 15:21</a>
+能把嘎啦game部分做好就行</blockquote>
+可能……没有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+CERO分级小图标里万紫千红比风花雪月正好少了个恋爱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（但是年龄级别从B升了C）
+
+如果这作真是前传定位而且年轻西提斯确定出场那确实不好做自由恋爱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总不能主角ntr正史奇霍尔吧
+
