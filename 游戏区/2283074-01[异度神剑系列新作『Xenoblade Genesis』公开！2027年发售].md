@@ -15477,3 +15477,21 @@ S1确实是全网最尊重XB的社区，一转眼这楼都37页了<img src="http
 
 XB为何是坛游还真是自古以来的事，我作为小登唯一知道的就是XG作为“神作”也曾经是你坛的坛游
 
+
+*****
+
+####  woaimiyabi  
+##### 1473#       发表于 2026-6-15 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69780586&amp;ptid=2283074" target="_blank">MrlOst 发表于 2026-6-15 15:21</a>
+
+风波泄露说是明年9月，那么xbg能在27年春发售吗</blockquote>
+九月太早了吧  这种销量级别的游戏应该放在年底商战更稳。
+
+*****
+
+####  星花  
+##### 1474#       发表于 2026-6-15 18:05
+
+因为年底有3D马啊。
+
