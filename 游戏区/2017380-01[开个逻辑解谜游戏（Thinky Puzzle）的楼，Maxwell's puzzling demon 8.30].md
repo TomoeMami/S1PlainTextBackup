@@ -4543,3 +4543,13 @@ thinky games 5月28有个THINKY DIRECT
 
 为啥一个推箱子要这么吃显存
 
+
+*****
+
+####  铃森冬  
+##### 326#       发表于 2026-6-16 04:08
+
+linux 系统台式机更新了半天显卡驱动还是玩不了，报错 Failed to find a gpu with D3D_feature_level_12_0 support
+
+好消息是折腾完之后 The Artisan of Glimmith 能正常运行了，气笑了
+
