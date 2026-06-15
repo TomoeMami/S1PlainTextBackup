@@ -15495,3 +15495,16 @@ XB为何是坛游还真是自古以来的事，我作为小登唯一知道的就
 
 因为年底有3D马啊。
 
+
+*****
+
+####  真马甲传说  
+##### 1475#       发表于 2026-6-15 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69780793&amp;ptid=2283074" target="_blank">lilod 发表于 2026-6-15 15:55</a>
+
+别这样，查销量的话会让你回到一个终极难题，宝可梦到底算不算 jrpg，gf是不是最好的 jrpg 公司 ...</blockquote>
+当然是，反过来说pm的竞品数码和妖怪不是jrpg吗？有类似要素的dqm和真女不是jrpg吗？
+
+不能因为pm长板超长，短板巨多，销量又高就楞说不是jrpg
+
