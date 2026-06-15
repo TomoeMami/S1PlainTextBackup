@@ -2083,3 +2083,40 @@ https://www.playasia.digital/zh-cn/fire-emblem-fortunes-weave-dagdan-collection-
 啊，看到两个女主角的两位副官（暂时这么叫吧），感觉人设好普通。</blockquote>
 哪两位？放新情报了吗
 
+
+*****
+
+####  蓮華  
+##### 898#       发表于 2026-6-15 08:24
+
+<img src="https://img.stage1st.com/forum/202606/15/082450xkzo77bctswzan77.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2669.jpeg</strong> (156.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-15 08:24 上传
+
+
+*****
+
+####  血狂毘沙门  
+##### 899#       发表于 2026-6-15 08:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69767984&amp;ptid=2261859" target="_blank">佛罗伦萨 发表于 2026-6-12 20:20</a>
+
+后传的隐忧就是两点：1、官方究竟选了三房的哪一条线作为正史延续？2、不可避免的出现三房里喜欢的角色跟不 ...</blockquote>
+大概率蓝线 小概率教会线？
+
+*****
+
+####  bad_alloc  
+##### 900#       发表于 2026-6-15 08:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69774735&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-6-14 11:57</a>
+三房无双里有关白毛主角的身份猜测，都是兜帽翅膀</blockquote>
+倒也说得通，还能跟标题的fortune’s weave呼应上
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
