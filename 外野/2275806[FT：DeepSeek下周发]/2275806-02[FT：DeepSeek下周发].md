@@ -3416,3 +3416,13 @@ image.png
 我是直接在omp里输入这个网址https://searx.space/ 让omp自己生成网络搜索功能</blockquote>
 谢谢！
 
+
+*****
+
+####  wiwiluo  
+##### 1776#       发表于 2026-6-15 18:43
+
+小红书看到有人说4.1在灰度了，有人收到了吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
