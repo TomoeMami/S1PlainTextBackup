@@ -289,3 +289,14 @@ XG   ⭕
 
 —— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  eraso  
+##### 1509#       发表于 2026-6-15 23:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69782622&amp;ptid=2283074" target="_blank">江口夕 发表于 2026-6-15 22:48</a>
+
+不要用这种八奇思路回我好不好，历史课本快变成种族歧视书了可还行。要不要你把你话输ai看看ai怎么评价你 ...</blockquote>
+不是，你为什么老是喜欢给我整个队友，这么说昨天那个是你队友吗？
+
