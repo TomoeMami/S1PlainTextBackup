@@ -3438,3 +3438,17 @@ image.png
 论坛助手,iPhone</blockquote>
 如何判断4.1？
 
+
+*****
+
+####  hugosol  
+##### 1778#       发表于 2026-6-15 18:59
+
+ 本帖最后由 hugosol 于 2026-6-15 19:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69778705&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-6-15 10:17</a>
+
+这个问题又去研究了一下，oh my pi作者甚至专门做了hashline edit的benchmark([https://blog.can.ac/2026/](https://blog.can.ac/2026/) ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实在我另外一个维护得比较好的项目里hashline好像没出过什么篓子，大概是因为编辑的地方会分散到不同文件里。但是仔细想想吧如果我把代码都打理得齐齐整整的用哪个方法其实也没差不是吗，为什么不用更保守的replace模式呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
