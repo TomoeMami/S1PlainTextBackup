@@ -276,3 +276,16 @@ XG   ⭕
 
 2026-6-15 22:21 上传
 
+
+*****
+
+####  江口夕  
+##### 1508#       发表于 2026-6-15 22:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69782447&amp;ptid=2283074" target="_blank">eraso 发表于 2026-6-15 21:55</a>
+有没有可能人家叫原住民，不叫什么印第安人，印第安人是白人殖民者对他们的称呼，你叫他们印第安人在美国 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要用这种八奇思路回我好不好，历史课本快变成种族歧视书了可还行。要不要你把你话输ai看看ai怎么评价你。
+印第安人不是你队友先提的么，要不你先评价一下他，我的观点一直是印度人，别回我。
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
