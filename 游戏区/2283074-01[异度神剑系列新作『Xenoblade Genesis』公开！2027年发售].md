@@ -15524,3 +15524,18 @@ XB为何是坛游还真是自古以来的事，我作为小登唯一知道的就
 
 —— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  汪达  
+##### 1477#       发表于 2026-6-15 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69781182&amp;ptid=2283074" target="_blank">缪斯替 发表于 2026-6-15 17:07</a>
+
+突然想到件事，因为之前一直在那印度印度的吵，都忘了这个细节了
+
+如果从泄露图出发，男主那个图里更多是有 ...</blockquote>
+高桥做个中国主角，名字就直接来个黄飞鸿，战斗的表现形式毫无疑问也在致敬功夫电影
+
+如果这作主角真是定的印度人，肯定是什么希瓦啊、毗沙门啊、悉达多啊、阿修罗啊之类的印度名字给安排上了，动作也会用各种佛教手印，会生怕你认不出的
+
