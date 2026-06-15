@@ -3534,3 +3534,11 @@ image.png
 因为ds的识图模型不太成熟 知识库太小了 我发一张斋藤飞鸟的照片给他 能认成桥本环奈 猜了十次也没认出来 ...</blockquote>
 识图这个的话有些时候用起来的确感觉性能还有待提高呀识图这个的话。
 
+
+*****
+
+####  阿刚  
+##### 1787#       发表于 2026-6-15 23:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">我要吐了装了个hermes用了几天结果这逼东西今天更新居然能把自己更新没了
+
