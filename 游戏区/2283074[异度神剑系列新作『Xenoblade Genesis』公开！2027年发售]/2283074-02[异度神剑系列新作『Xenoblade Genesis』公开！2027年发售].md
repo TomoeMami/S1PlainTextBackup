@@ -43,3 +43,32 @@
 —— 来自 Xiaomi 23113RKC6C, Android 16上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
 哦呦，哲学真可怕
 
+
+*****
+
+####  freedom12  
+##### 1485#       发表于 2026-6-15 19:15
+
+楼上某位真是没完没了的膈应人<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江口夕  
+##### 1486#       发表于 2026-6-15 19:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">膈应人的人楼友吧，男主白皮奴隶身份，还有个斗技场，竟然有人说是中国人，我都没说破。
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  VVhaleVoice  
+##### 1487#       发表于 2026-6-15 19:22
+
+<blockquote>MrlOst 发表于 2026-6-15 17:36
+每卷出3作，这下有的是xb玩了</blockquote>
+一卷书3部曲，66卷书198部曲，
+
+没事儿，高桥做不完还有小岛幸，小岛做不完还有Mono三代目
+

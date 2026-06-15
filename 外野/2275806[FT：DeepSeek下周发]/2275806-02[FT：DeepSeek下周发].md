@@ -3462,3 +3462,16 @@ image.png
 如何判断4.1？</blockquote>
 知识库到26年一月
 
+
+*****
+
+####  LeoDT  
+##### 1780#       发表于 2026-6-15 19:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69781757&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-6-15 18:59</a>
+
+我就是在omp里一直用dsV4p的，最近被hashline坑得比较惨是用omp来写它自己的extension，我本身对ts了解不 ...</blockquote>
+其实还是为了可以不让模型生成旧代码，一是费token一是会提高失败率一是避免模型生成的旧代码scope过小替换了不该替换的点。另外还看到有人实现可了更稳定的hash，编辑某行只改变其附近的行的hash而不改变更远的行的hash，也是个办法。
+
+看到讨论4.1，刚才第一次在d老师输出里看到了意大利语和比较多的中英混搭，之前从来没有遇到过，中英混搭遇到的次数也有限。不知道是不是中了灰度。
+
