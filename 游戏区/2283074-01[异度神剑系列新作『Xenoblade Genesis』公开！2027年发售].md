@@ -15118,3 +15118,35 @@ pv开头那个海滨城市的圆形建筑就是舅舅说的男主所在的那个
  大块头其实是范达姆</blockquote>
 知道是XB之后会出现在PV里面的大块头不就只能是范达姆了😂
 
+
+*****
+
+####  装甲突击者  
+##### 1437#       发表于 2026-6-15 14:52
+
+三把蓝色晶石的武器咋晶石变形还不一样呢
+
+<img src="https://img.stage1st.com/forum/202606/15/145055ginliikz4479uc7m.png" referrerpolicy="no-referrer">
+
+<strong>1781505059254.png</strong> (3.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-15 14:50 上传
+
+<img src="https://img.stage1st.com/forum/202606/15/145059ytexy17ky0mdxox9.png" referrerpolicy="no-referrer">
+
+<strong>1781505068280.png</strong> (4.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-15 14:50 上传
+
+<img src="https://img.stage1st.com/forum/202606/15/145108nzww5rabox0cobxq.png" referrerpolicy="no-referrer">
+
+<strong>1781505075926.png</strong> (2.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-15 14:51 上传
+
