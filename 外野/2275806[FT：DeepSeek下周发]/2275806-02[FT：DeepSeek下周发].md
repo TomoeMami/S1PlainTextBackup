@@ -3353,3 +3353,11 @@ image.png
 你在那里绕圈子挽尊有意义吗？讨论怎么用ds你绕到最后给自己挽尊说你直接去用kimi，那我不会直接用gpt吗 ...</blockquote>
 我有点不理解，反向代理这个词的定义几乎可以用在程序员面试了，API的理解门槛还是高于反代不成？
 
+
+*****
+
+####  MeursaulT  
+##### 1770#       发表于 2026-6-15 09:27
+
+不如用ds api外挂grok搜索，封装一个付费的搜索特化ds专家<img src="https://static.stage1st.com/image/smiley/normal/063.gif" referrerpolicy="no-referrer">
+
