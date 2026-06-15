@@ -393,3 +393,11 @@ MAN!
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  假面骑士3号  
+##### 42#       发表于 2026-6-15 17:36
+
+RIP，因为life goes on知道他的
+

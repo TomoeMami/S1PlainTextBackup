@@ -3405,3 +3405,14 @@ image.png
 这是什么实现路径？请教一下哇</blockquote>
 我是直接在omp里输入这个网址[https://searx.space/](https://searx.space/) 让omp自己生成网络搜索功能
 
+
+*****
+
+####  冤枉呐  
+##### 1775#       发表于 2026-6-15 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69781311&amp;ptid=2275806" target="_blank">jyj256 发表于 2026-6-15 17:29</a>
+
+我是直接在omp里输入这个网址https://searx.space/ 让omp自己生成网络搜索功能</blockquote>
+谢谢！
+
