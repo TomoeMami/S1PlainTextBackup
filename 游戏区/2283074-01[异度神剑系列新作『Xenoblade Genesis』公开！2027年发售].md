@@ -15508,3 +15508,19 @@ XB为何是坛游还真是自古以来的事，我作为小登唯一知道的就
 
 不能因为pm长板超长，短板巨多，销量又高就楞说不是jrpg
 
+
+*****
+
+####  江口夕  
+##### 1476#       发表于 2026-6-15 18:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69781331&amp;ptid=2283074" target="_blank">星花 发表于 2026-6-15 17:33</a>
+拉美的黑皮是西班牙人和当地人混血。甚至很多是纯血西班牙人。
+
+——其实是黄种人和白人混血。
+
+——按歧视链 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">白配黄能生出这么黑的也是长见识了，生物学奇迹
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
