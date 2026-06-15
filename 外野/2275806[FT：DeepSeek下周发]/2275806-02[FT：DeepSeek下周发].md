@@ -3383,3 +3383,14 @@ image.png
 
 优化完了，我感觉效果不错。<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">;">复制代码
 
+
+*****
+
+####  冤枉呐  
+##### 1773#       发表于 2026-6-15 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69777164&amp;ptid=2275806" target="_blank">jyj256 发表于 2026-6-14 22:23</a>
+
+这个免费版搜索也很好用 接什么api都行</blockquote>
+这是什么实现路径？请教一下哇
+
