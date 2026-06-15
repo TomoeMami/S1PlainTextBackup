@@ -4499,3 +4499,21 @@ COS服还是廉价了
 而是说，我们不是一路人
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 431#       发表于 2026-6-15 17:08
+
+想不到这位也来画
+
+[https://x.com/kaoming775/status/2066439844566589606](https://x.com/kaoming775/status/2066439844566589606)
+
+<img src="https://img.stage1st.com/forum/202606/15/170823hjeo6npijytp6zo6.jpg" referrerpolicy="no-referrer">
+
+<strong>2066439844566589606.jpg</strong> (69.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-15 17:08 上传
+
