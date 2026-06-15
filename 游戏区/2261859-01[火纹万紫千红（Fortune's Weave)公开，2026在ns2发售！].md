@@ -2142,3 +2142,18 @@ https://www.playasia.digital/zh-cn/fire-emblem-fortunes-weave-dagdan-collection-
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 这话听起来就像是“只要斯坦纳发动攻击”<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1wq1  
+##### 903#       发表于 2026-6-15 13:57
+
+能写好一条其余三条普普通通就已经上天了好吗
+
+*****
+
+####  会长辅佐  
+##### 904#       发表于 2026-6-15 13:58
+
+四条都写烂才是现在火纹的水平。
+

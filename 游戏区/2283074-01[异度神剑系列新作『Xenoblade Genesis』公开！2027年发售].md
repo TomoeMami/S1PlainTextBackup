@@ -15100,3 +15100,11 @@ pv开头那个海滨城市的圆形建筑就是舅舅说的男主所在的那个
 这张截图里这俩女娃子更可爱</blockquote>
 后面窄版学偶美玲了
 
+
+*****
+
+####  伽拉忒亚i  
+##### 1435#       发表于 2026-6-15 13:56
+
+白毛精灵是寨版星南，女主是寨版雨夜燕，PV中出现的学院是寨版初星学院<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
