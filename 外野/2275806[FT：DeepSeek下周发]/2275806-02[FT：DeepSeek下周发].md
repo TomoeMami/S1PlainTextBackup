@@ -3452,3 +3452,13 @@ image.png
 
 其实在我另外一个维护得比较好的项目里hashline好像没出过什么篓子，大概是因为编辑的地方会分散到不同文件里。但是仔细想想吧如果我把代码都打理得齐齐整整的用哪个方法其实也没差不是吗，为什么不用更保守的replace模式呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 1779#       发表于 2026-6-15 19:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69781696&amp;ptid=2275806" target="_blank">serj005 发表于 2026-6-15 18:45</a>
+如何判断4.1？</blockquote>
+知识库到26年一月
+
