@@ -401,3 +401,14 @@ MAN!
 
 RIP，因为life goes on知道他的
 
+
+*****
+
+####  yigua  
+##### 43#       发表于 2026-6-15 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69780125&amp;ptid=2283489" target="_blank">伊藤言叶 发表于 2026-6-15 13:59</a>
+
+方便呗，空域航路也好批。国内像没有机场的苏州就超爱发展低空经济，30分钟直升机到虹桥机场（开车一个多 ...</blockquote>
+1000？这个可能提前2小时挤地铁比较划算啊
+
