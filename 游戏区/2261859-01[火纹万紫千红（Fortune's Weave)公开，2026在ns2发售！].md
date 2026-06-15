@@ -2236,3 +2236,23 @@ https://www.playasia.digital/zh-cn/fire-emblem-fortunes-weave-dagdan-collection-
 
 希望能好玩一点
 
+
+*****
+
+####  406  
+##### 913#       发表于 2026-6-15 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69780656&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-6-15 15:33</a>
+
+我也是不懂三房四条线重复度极高且写的还不错的就蓝黄两条线的情况下，他们何德何能敢出4条线的
+
+而且红秋 ...</blockquote>
+皇女线受众人气高得很，哪来不敢了
+
+*****
+
+####  duraa  
+##### 914#       发表于 2026-6-15 15:40
+
+当初皇女党大战十八路诸侯打的真是热闹<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

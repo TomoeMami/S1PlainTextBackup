@@ -15210,3 +15210,46 @@ pv开头那个海滨城市的圆形建筑就是舅舅说的男主所在的那个
 
 PV2前能100页吗？我看很难<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Asimot  
+##### 1445#       发表于 2026-6-15 15:37
+
+有点想玩。
+
+说实话如果一个游戏叫编年史，给我的印象就像是日后谈或者总结篇这种，虽然也在系列里也是正作，但又差点意思。
+
+是这样吗？
+
+*****
+
+####  shiko  
+##### 1446#       发表于 2026-6-15 15:38
+
+宝可梦正作居然会不放在年底吗？
+
+—— 来自 vivo V2507A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  richardkisser  
+##### 1447#       发表于 2026-6-15 15:38
+
+我觉得是27年2月。上一代：XB3:22年9月（原定），FEE:23年2月。
+
+这次是新火纹9月，反过来感觉也有可能
+
+
+*****
+
+####  Markorca  
+##### 1448#       发表于 2026-6-15 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69780684&amp;ptid=2283074" target="_blank">Asimot 发表于 2026-6-15 15:37</a>
+
+有点想玩。
+
+说实话如果一个游戏叫编年史，给我的印象就像是日后谈或者总结篇这种，虽然也在系列里也是正作 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你在寻找的是生化危机安布雷拉编年史跟黑暗编年史吗
+
