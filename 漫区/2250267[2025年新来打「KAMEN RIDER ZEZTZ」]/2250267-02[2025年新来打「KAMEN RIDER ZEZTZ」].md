@@ -405,3 +405,16 @@ code线搞不好是丢V篇了
 
 最后一个季度除了上堀内的最后2集，然后衫原能贡献2集，剩下8集不要太拉跨，只要是黑Z到超梦4集的配合那结局篇肯定可以看爽了
 
+
+*****
+
+####  饭冢武也  
+##### 1944#       发表于 2026-6-15 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69775767&amp;ptid=2250267" target="_blank">蔺无双 发表于 2026-6-14 16:27</a>
+
+说起来，剧场版现在所有的宣传画面有宁梦没有啊，没啥印象了</blockquote>
+合理猜测，藏了个大的
+
+骑士柠檬<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
