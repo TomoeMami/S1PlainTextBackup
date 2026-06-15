@@ -3426,3 +3426,15 @@ image.png
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  serj005  
+##### 1777#       发表于 2026-6-15 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69781687&amp;ptid=2275806" target="_blank">wiwiluo 发表于 2026-6-15 18:43</a>
+小红书看到有人说4.1在灰度了，有人收到了吗
+
+论坛助手,iPhone</blockquote>
+如何判断4.1？
+
