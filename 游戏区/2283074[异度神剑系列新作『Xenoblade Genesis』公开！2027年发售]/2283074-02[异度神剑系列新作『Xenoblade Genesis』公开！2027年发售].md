@@ -93,3 +93,28 @@
 
 —— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  缪斯替  
+##### 1490#       发表于 2026-6-15 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69781916&amp;ptid=2283074" target="_blank">江口夕 发表于 2026-6-15 19:29</a>
+
+那可不，印第安人对着白皮说“解决不了就只能自裁"，那可不是太精彩了。反倒是印度人谈哲学反而不会怎么 ...</blockquote>
+看不懂，没你懂美国人，多讲讲
+
+*****
+
+####  king520kyo  
+##### 1491#       发表于 2026-6-15 19:39
+
+有些人估计现实生活太压抑，不来网上制造点SHI大概要活不下去了。
+
+*****
+
+####  woaimiyabi  
+##### 1492#       发表于 2026-6-15 19:39
+
+九月份到底会不会有新pv 好急，隔壁ff7rv也是第一次公布 2027年发售，但是给的物料太多 太丰富了，制作人出来亲自回答玩家的疑问，这宣发风格差距太大了。
+

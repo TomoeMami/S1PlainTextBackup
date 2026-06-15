@@ -3483,3 +3483,11 @@ image.png
 
 什么灰度在我这都是不存在的，我甚至至今为止都没见过识图模式<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  serj005  
+##### 1782#       发表于 2026-6-15 19:39
+
+翻了一圈小红书没有看到可靠情报啊，只有一个ai营销号单方面宣称4.1在灰度，其他啥信息都没。
+
