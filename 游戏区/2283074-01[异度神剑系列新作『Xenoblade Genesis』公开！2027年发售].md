@@ -15108,3 +15108,13 @@ pv开头那个海滨城市的圆形建筑就是舅舅说的男主所在的那个
 
 白毛精灵是寨版星南，女主是寨版雨夜燕，PV中出现的学院是寨版初星学院<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 1436#       发表于 2026-6-15 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69778134&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-6-15 08:23</a>
+ 大块头其实是范达姆</blockquote>
+知道是XB之后会出现在PV里面的大块头不就只能是范达姆了😂
+
