@@ -2470,3 +2470,16 @@ https://www.amazon.co.jp/%E3%83%95%E3%82%A1%E3%82%A4%E3%82%A2%E3%83%BC%E3%82%A8%
 
 突然发现，风花雪月的专楼没了
 
+
+*****
+
+####  mcq_2  
+##### 937#       发表于 2026-6-15 22:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69782293&amp;ptid=2261859" target="_blank">月华刹那 发表于 2026-6-15 21:09</a>
+
+显示无法配送到我留的地址
+
+估计就是不发国内的了</blockquote>
+转运吧，三年前就基本都要走转运了。
+
