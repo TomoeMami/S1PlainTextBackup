@@ -2384,3 +2384,27 @@ CERO分级小图标里万紫千红比风花雪月正好少了个恋爱<img src="
 
 搜了一下没搜到，可能我留的地址是中国的
 
+
+*****
+
+####  江口夕  
+##### 929#       发表于 2026-6-15 20:13
+
+ 本帖最后由 江口夕 于 2026-6-15 20:16 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">看来大家都是冲着红秋裤精神继承人来的，但是这人设很难gatch起来，大概率是没戏了
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  yuigahamayuki  
+##### 930#       发表于 2026-6-15 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69782023&amp;ptid=2261859" target="_blank">月华刹那 发表于 2026-6-15 20:00</a>
+
+问一下日亚的豪华版是只发日本国内还是已经卖光了？
+
+搜了一下没搜到，可能我留的地址是中国的 ...</blockquote>
+我搜了下有的。
+
