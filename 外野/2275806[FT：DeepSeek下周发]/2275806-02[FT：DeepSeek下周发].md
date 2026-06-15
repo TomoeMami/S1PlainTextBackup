@@ -3361,3 +3361,25 @@ image.png
 
 不如用ds api外挂grok搜索，封装一个付费的搜索特化ds专家<img src="https://static.stage1st.com/image/smiley/normal/063.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LeoDT  
+##### 1771#       发表于 2026-6-15 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69776172&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-6-14 18:30</a>
+
+直接改文件确实不安全，像 codex 内置的也是 diff 格式的 apply attach，不是直接改 ...</blockquote>
+这个问题又去研究了一下，oh my pi作者甚至专门做了hashline edit的benchmark([https://blog.can.ac/2026/02/12/the-harness-problem/](https://blog.can.ac/2026/02/12/the-harness-problem/))，看上去提升是有的，但是根据模型也有区别。apply patch的方法应该需要专门针对模型的调优(也可能跟模型注意力也有相关，毕竟patch生成对模型要求会比纯生成新旧文本要高一些)。
+
+上面坛友提到的连续编辑问题，感觉需要专门的说明限制llm对同一文件的连续的修改。我觉得如果你有习惯是用固定的implementor subagent做实际修改，可以只在implementor里开启hashline edit，然后专门给它说明编辑文件时的规则。
+
+之后有机会了可以再试试，上面的benchmark发布时d老师还没有v4，3.2看上去是反效果，不知道现在怎么样。
+
+*****
+
+####  千千千千鸟  
+##### 1772#       发表于 2026-6-15 10:20
+
+优化完了，我感觉效果不错。<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">;">复制代码
+
