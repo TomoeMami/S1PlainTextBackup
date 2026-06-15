@@ -2278,3 +2278,11 @@ CERO分级小图标里万紫千红比风花雪月正好少了个恋爱<img src="
 
 如果这作真是前传定位而且年轻西提斯确定出场那确实不好做自由恋爱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总不能主角ntr正史奇霍尔吧
 
+
+*****
+
+####  3D烧  
+##### 917#       发表于 2026-6-15 16:29
+
+主角不是一直说是那四个人吗，白毛应该类似摄像机角色
+

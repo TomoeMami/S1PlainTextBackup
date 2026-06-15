@@ -15308,3 +15308,11 @@ GTA销量再高，在泥潭就是路边一条。
 
 S1确实是全网最尊重XB的社区，一转眼这楼都37页了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1wq1  
+##### 1455#       发表于 2026-6-15 16:26
+
+毕竟谭游，发售前200页感觉也不是不可能啊
+
