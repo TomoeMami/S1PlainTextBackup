@@ -3394,3 +3394,14 @@ image.png
 这个免费版搜索也很好用 接什么api都行</blockquote>
 这是什么实现路径？请教一下哇
 
+
+*****
+
+####  jyj256  
+##### 1774#       发表于 2026-6-15 17:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69781164&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-6-15 17:03</a>
+
+这是什么实现路径？请教一下哇</blockquote>
+我是直接在omp里输入这个网址[https://searx.space/](https://searx.space/) 让omp自己生成网络搜索功能
+

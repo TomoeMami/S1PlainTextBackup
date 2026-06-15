@@ -15410,3 +15410,38 @@ S1确实是全网最尊重XB的社区，一转眼这楼都37页了<img src="http
 
 —— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  装甲突击者  
+##### 1466#       发表于 2026-6-15 17:30
+
+有没有stage1st Chronicles
+
+*****
+
+####  星花  
+##### 1467#       发表于 2026-6-15 17:33
+
+ 本帖最后由 星花 于 2026-6-15 17:34 编辑 
+
+拉美的黑皮是西班牙人和当地人混血。甚至很多是纯血西班牙人。
+
+——其实是黄种人和白人混血。
+
+*****
+
+####  MrlOst  
+##### 1468#       发表于 2026-6-15 17:36
+
+<img src="https://img.stage1st.com/forum/202606/15/173555fopd0dihahpfeefe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260615_173307_Chrome.jpg</strong> (212.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-15 17:35 上传
+
+每卷出3作，这下有的是xb玩了
+
