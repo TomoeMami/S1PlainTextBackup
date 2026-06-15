@@ -145,3 +145,25 @@ XB3 从PV1公布到发售，历时169天，按原定9月发售（参考Splatoon3
 
 XbG应该不会比这个时间长
 
+
+*****
+
+####  hkguty  
+##### 1496#       发表于 2026-6-15 20:38
+
+回去重温了下xb3仔细想想这游戏其实也蛮像火纹if的，一边是黑漆漆偏欧风的一代世界，一边是白茫茫的和风二代世界
+
+
+*****
+
+####  魔法师lain  
+##### 1497#       发表于 2026-6-15 20:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69782082&amp;ptid=2283074" target="_blank">VVhaleVoice 发表于 2026-6-15 20:16</a>
+XB3 从PV1公布到发售，历时169天，按原定9月发售（参考Splatoon3），211天
+
+XbG应该不会比这个时间长太多 ...</blockquote>
+记得xb1是09年6月的e3发布，发行要到10年7月
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
