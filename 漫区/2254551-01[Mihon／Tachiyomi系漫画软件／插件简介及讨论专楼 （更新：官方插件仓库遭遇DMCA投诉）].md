@@ -39,3 +39,16 @@
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  azbhg1  
+##### 168#         楼主| 发表于 2026-6-15 20:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69781846&amp;ptid=2254551" target="_blank">KDConan 发表于 2026-6-15 19:14</a>
+
+我的拷贝正常
+
+但是komiic连不上，webview有个标题行但是下面刷不出来，登录和密码确认是对的但是登不进 ...</blockquote>
+komiic听说被墙了，我一直走的代理分流，反正是正常访问
+
