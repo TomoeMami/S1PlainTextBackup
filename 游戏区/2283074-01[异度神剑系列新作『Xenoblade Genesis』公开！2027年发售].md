@@ -15150,3 +15150,23 @@ pv开头那个海滨城市的圆形建筑就是舅舅说的男主所在的那个
 
 2026-6-15 14:51 上传
 
+
+*****
+
+####  xwr  
+##### 1438#       发表于 2026-6-15 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69780431&amp;ptid=2283074" target="_blank">装甲突击者 发表于 2026-6-15 14:52</a>
+
+三把蓝色晶石的武器咋晶石变形还不一样呢</blockquote>
+阿尼玛晶石？不，是纹章石啦！<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海晟天锻  
+##### 1439#       发表于 2026-6-15 15:08
+
+所以颜色只代表属性，每个人的纹章还都是不一样的？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
