@@ -2130,3 +2130,15 @@ https://www.playasia.digital/zh-cn/fire-emblem-fortunes-weave-dagdan-collection-
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  wilkyway  
+##### 902#       发表于 2026-6-15 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69779779&amp;ptid=2261859" target="_blank">57042711 发表于 2026-6-15 12:58</a>
+如果真能把四条线四个主角视角写好对本家火纹来说那真就是宇宙神作了吧
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+这话听起来就像是“只要斯坦纳发动攻击”<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
