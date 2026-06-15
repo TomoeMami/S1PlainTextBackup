@@ -15368,3 +15368,45 @@ S1确实是全网最尊重XB的社区，一转眼这楼都37页了<img src="http
 
 —— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  装甲突击者  
+##### 1462#       发表于 2026-6-15 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69781059&amp;ptid=2283074" target="_blank">贝雷特 发表于 2026-6-15 16:43</a>
+
+这不是up主么？欢迎</blockquote>
+我只是个搬运工罢了<img src="https://static.stage1st.com/image/smiley/carton2017/384.png" referrerpolicy="no-referrer">
+
+*****
+
+####  装甲突击者  
+##### 1463#       发表于 2026-6-15 17:17
+
+我看学院的这些学员还有黑袍和蓝袍的区别，不知道什么区分标准
+
+*****
+
+####  ATRO  
+##### 1464#       发表于 2026-6-15 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69781032&amp;ptid=2283074" target="_blank">装甲突击者 发表于 2026-6-15 16:37</a>
+
+所以异度是怎么成为泥潭潭游的</blockquote>
+那得从“神作”这个词说起
+
+
+*****
+
+####  江口夕  
+##### 1465#       发表于 2026-6-15 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69781227&amp;ptid=2283074" target="_blank">海晟天锻 发表于 2026-6-15 17:14</a>
+我一直觉得是拉美人
+
+—— 来自 samsung SM-S9380, Android 15, 鹅球 v3.5.99</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你猜拉丁美洲的黑皮怎么来的，给你个提示奴隶贸易
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
