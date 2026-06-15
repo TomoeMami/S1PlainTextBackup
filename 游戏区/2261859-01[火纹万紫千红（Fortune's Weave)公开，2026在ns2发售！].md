@@ -2173,3 +2173,28 @@ https://www.playasia.digital/zh-cn/fire-emblem-fortunes-weave-dagdan-collection-
 
 「白鴉の使者」
 
+
+*****
+
+####  28201  
+##### 906#       发表于 2026-6-15 15:15
+
+主角是真不错，白毛妹<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+不过这次四房只能选舞女姐姐了，可惜骑士是男的
+
+*****
+
+####  星花  
+##### 907#       发表于 2026-6-15 15:19
+
+真能四条线写烂也是宇宙神作。
+
+更大的可能四条线都普通的无聊。
+
+*****
+
+####  zzzplht  
+##### 908#       发表于 2026-6-15 15:21
+
+能把嘎啦game部分做好就行
+
