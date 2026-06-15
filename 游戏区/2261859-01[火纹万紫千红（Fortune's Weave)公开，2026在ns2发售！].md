@@ -2449,3 +2449,16 @@ CERO分级小图标里万紫千红比风花雪月正好少了个恋爱<img src="
 我只能搜到一个下载版的商品</blockquote>
 [https://www.amazon.co.jp/%E3%83% ... ps%2C267&amp;sr=8-1](https://www.amazon.co.jp/%E3%83%95%E3%82%A1%E3%82%A4%E3%82%A2%E3%83%BC%E3%82%A8%E3%83%A0%E3%83%96%E3%83%AC%E3%83%A0-Dagdan-Collection-Switch2-%E3%80%90Amazon-co-jp%E9%99%90%E5%AE%9A%E3%80%91%E7%89%B9%E5%85%B8/dp/B0H4Q1CRLV/ref=sr_1_1?crid=1MR4YA6CFK85W&amp;dib=eyJ2IjoiMSJ9.zVrCjWq4U3n97LMNT8-j0Ci8yAnj5W2NvG9_3t-6zBh6XKZtKbxE_V187JaUDWKyO5PTw-jxPx01ZLPcGkviYEnXlZyzCGRV6OCFfITCrIn7F7tFTnHBl8OvzG3sgsTrPiQtZfEtBGpSQPYNKHfJDaYzcnV7iab_sYfWx0iJP0UBfKg4Nnb9O7FNP6x-V-WCkXRlRuGijbqm4rzAfu_3sEKIFDgzG3igBX6i9Vj6h3Q.XkPg8qlDC7_wNqx0fDowbDXYkB7R_U64xaEH6zsNQE8&amp;dib_tag=se&amp;keywords=%E3%83%95%E3%82%A1%E3%82%A4%E3%82%A2%E3%83%BC%E3%82%A8%E3%83%A0%E3%83%96%E3%83%AC%E3%83%A0+%E4%B8%87%E7%B4%AB%E5%8D%83%E7%B4%85&amp;qid=1781528046&amp;sprefix=%2Caps%2C267&amp;sr=8-1)
 
+
+*****
+
+####  月华刹那  
+##### 935#       发表于 2026-6-15 21:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69782245&amp;ptid=2261859" target="_blank">yuigahamayuki 发表于 2026-6-15 20:54</a>
+
+https://www.amazon.co.jp/%E3%83%95%E3%82%A1%E3%82%A4%E3%82%A2%E3%83%BC%E3%82%A8%E3%83%A0%E3%83%96% ...</blockquote>
+显示无法配送到我留的地址<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+估计就是不发国内的了
+
