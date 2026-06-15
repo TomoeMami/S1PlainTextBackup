@@ -371,3 +371,16 @@ CODE应该还有后续的，这种重要组织的戏份一般会贯穿整剧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我对code线持悲观态度，我觉得这条线高桥显然没想好怎么写，草草收场赶紧翻篇吧
 
+
+*****
+
+####  黑上シグマ  
+##### 1941#       发表于 2026-6-15 09:54
+
+<blockquote>引用第1938楼失落之翼于2026-06-15 09:35发表的  :
+
+所以牢三退场组织就让零回去了吗？组织的黑暗呢？</blockquote>
+这不下集预告又被一群人围起来了吗
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
