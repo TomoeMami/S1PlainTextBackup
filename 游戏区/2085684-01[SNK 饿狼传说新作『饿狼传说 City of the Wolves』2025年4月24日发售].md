@@ -22,3 +22,29 @@
 
 有没啥加帧或者压制的小套路？
 
+
+*****
+
+####  ナルバレック  
+##### 727#       发表于 2026-6-15 21:17
+
+<img src="https://img.stage1st.com/forum/202606/15/211629p3mzkmmt8xlq0ktn.png" referrerpolicy="no-referrer">
+
+<strong>6838513b-81c7-4d73-90ed-32a76042f9c4.png</strong> (2.08 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-15 21:16 上传
+
+<img src="https://img.stage1st.com/forum/202606/15/211646xzczc74aqqonna7a.png" referrerpolicy="no-referrer">
+
+<strong>5d348e67-10c2-4b55-bc5a-20fb1f811351.png</strong> (1.71 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-15 21:16 上传
+
+饿狼传说 剧场版3：不死传说的BOSS 拉奥
+
+基本确定第三季要出了
+
