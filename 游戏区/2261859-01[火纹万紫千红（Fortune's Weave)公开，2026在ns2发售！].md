@@ -2120,3 +2120,13 @@ https://www.playasia.digital/zh-cn/fire-emblem-fortunes-weave-dagdan-collection-
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  57042711  
+##### 901#       发表于 2026-6-15 12:58
+
+如果真能把四条线四个主角视角写好对本家火纹来说那真就是宇宙神作了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

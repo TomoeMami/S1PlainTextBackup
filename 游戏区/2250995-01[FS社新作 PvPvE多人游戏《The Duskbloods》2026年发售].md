@@ -16,3 +16,13 @@
 
 2026-6-15 02:55 上传
 
+
+*****
+
+####  57042711  
+##### 73#       发表于 2026-6-15 13:00
+
+这是囚服吧，捏他格里菲斯囚犯版本<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
