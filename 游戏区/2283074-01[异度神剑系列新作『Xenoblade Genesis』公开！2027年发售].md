@@ -15271,3 +15271,32 @@ PV2前能100页吗？我看很难<img src="https://static.stage1st.com/image/smi
 你在寻找的是生化危机安布雷拉编年史跟黑暗编年史吗</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">都没玩过，所以不知道你说的是什么意思（
 
+
+*****
+
+####  lilod  
+##### 1451#       发表于 2026-6-15 15:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69780767&amp;ptid=2283074" target="_blank">djw1984 发表于 2026-6-15 15:52</a>
+
+刚查了泥潭唯一指定jrpg的全球销量，三部都看了下，就这？</blockquote>
+别这样，查销量的话会让你回到一个终极难题，宝可梦到底算不算 jrpg，gf是不是最好的 jrpg 公司
+
+*****
+
+####  星花  
+##### 1452#       发表于 2026-6-15 15:56
+
+<blockquote>djw1984 发表于 2026-6-15 15:52
+刚查了泥潭唯一指定jrpg的全球销量，三部都看了下，就这？</blockquote>
+对，就这。你不服气。
+
+GTA销量再高，在泥潭就是路边一条。
+
+*****
+
+####  MrlOst  
+##### 1453#       发表于 2026-6-15 15:57
+
+确实是时候该有人进来喷shi了
+
