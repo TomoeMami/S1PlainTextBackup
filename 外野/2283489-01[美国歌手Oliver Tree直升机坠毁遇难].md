@@ -432,3 +432,15 @@ oliver tree的歌还挺好听的，没想到人一下子就没了
 
 网红和歌手在空中撞了，真是巧了
 
+
+*****
+
+####  伊藤言叶  
+##### 46#       发表于 2026-6-15 21:32
+
+ 本帖最后由 伊藤言叶 于 2026-6-15 21:33 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69781442&amp;ptid=2283489" target="_blank">yigua 发表于 2026-6-15 17:52</a>
+
+1000？这个可能提前2小时挤地铁比较划算啊</blockquote>
+苏州制造业发达但没机场，企业家的时间比钱值钱，再说了年入几百万的人花980和年入几十万的人花98差不多
+
