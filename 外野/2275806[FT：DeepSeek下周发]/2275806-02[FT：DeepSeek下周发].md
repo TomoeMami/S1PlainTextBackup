@@ -3560,3 +3560,54 @@ image.png
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  tonberry  
+##### 1790#       发表于 2026-6-16 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786404&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-6-16 17:12</a>
+其实我在想有没有比DEEPSEEK更有性价比的，从6月份我开始用agent开始已经用了150块钱ds的api额度了。 ...</blockquote>
+从差不多智力来看，再考虑使用额度，应该是没有了吧
+
+
+*****
+
+####  StarForceTi  
+##### 1791#       发表于 2026-6-16 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786404&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-6-16 17:12</a>
+
+其实我在想有没有比DEEPSEEK更有性价比的，从6月份我开始用agent开始已经用了150块钱ds的api额度了。 ...</blockquote>
+gpt本来就比ds便宜多了啊
+
+*****
+
+####  蛋黄酱Release  
+##### 1792#       发表于 2026-6-16 17:32
+
+今天怎么感觉又卡又笨的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  overflowal  
+##### 1793#       发表于 2026-6-16 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786480&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-6-16 17:24</a>
+好像现如今至少在网页的快速模式里面，有些时候思考链会显得和过去不太一样。这也算是更新的一种内容吗？
+
+ ...</blockquote>
+似乎是更新到多模态的新版本了。这种cot之前在多模态版本的内测deepseek模型里看过。4.1或者v4正式版要来了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1794#       发表于 2026-6-16 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786404&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-6-16 17:12</a>
+其实我在想有没有比DEEPSEEK更有性价比的，从6月份我开始用agent开始已经用了150块钱ds的api额度了。 ...</blockquote>
+那不如买个gpt plus订阅了，20美元一个月
+opencode go也挺合算的
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
