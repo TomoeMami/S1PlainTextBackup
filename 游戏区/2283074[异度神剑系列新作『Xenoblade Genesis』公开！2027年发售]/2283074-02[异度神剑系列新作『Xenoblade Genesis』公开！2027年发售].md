@@ -334,3 +334,22 @@ XB3 从PV1公布到发售，历时169天，按原定9月发售（参考Splatoon3
 XbG应该不会比这个时间长太多 ...</blockquote>
 这次的宣发应该对标Splatoon Raiders和隔壁火纹，都是10个月后才有续报的，如果明年2月直面会的话那就是8个月
 
+
+*****
+
+####  hkguty  
+##### 1513#       发表于 2026-6-16 12:28
+
+仔细想了下如果女主中期真的瞎了那不太可能只有女主视角吧，瞎了还怎么带队
+
+
+*****
+
+####  塔奇克马  
+##### 1514#       发表于 2026-6-16 12:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69784949&amp;ptid=2283074" target="_blank">hkguty 发表于 2026-6-16 12:28</a>
+
+仔细想了下如果女主中期真的瞎了那不太可能只有女主视角吧，瞎了还怎么带队 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">说不定瞎了会看到全世界阿尼玛的构成流动呢，比没瞎战斗力更高
+
