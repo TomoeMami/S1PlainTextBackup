@@ -3865,3 +3865,28 @@ gptplus用来编程是不够用的，但是用来干别的基本用不完
 我私心还是挺希望ds能在产品化（后训练，harness，搜索之类的工具包）上做好的，gpt订阅我觉得买token也就 ...</blockquote>
 codex做得非常好，我觉得是最好的编程工具，可惜因为兼容问题，gpt以外的模型不好用
 
+
+*****
+
+####  有鱼  
+##### 1819#       发表于 2026-6-16 19:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69787034&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-6-16 19:10</a>
+
+codex做得非常好，我觉得是最好的编程工具，可惜因为兼容问题，gpt以外的模型不好用 ...</blockquote>
+最近closeai在codex疯狂发力，gpt的训练也加强coding，一下就追上来了。
+
+ds我觉得还是受限于体量和算力，就算想转型也得过段时间。
+
+*****
+
+####  LeoDT  
+##### 1820#       发表于 2026-6-16 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69787025&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-6-16 19:09</a>
+
+是用agent,也不怎么写代码吧，主要是用来读表格，读文档，写方案啥的，另外可能帮我查资料，帮我看视频之 ...</blockquote>
+想用的又好又省需要自己研究一些agent工作的原理，可以尝试的省钱方法比如多开新session，session之间可以通过文档和handoff传递信息，skill改为主动调用而不是传给模型告诉他用什么skill，贵模型做分析便宜模型做实施，实施尽量用subagent方式之类的。
+
+如果想知道什么东西是token黑洞，又不想写代码，可以试试agentsview([https://github.com/kenn-io/agentsview](https://github.com/kenn-io/agentsview))这类可视化工具，看看哪天的哪个agent哪个session哪个tool消耗大。
+
