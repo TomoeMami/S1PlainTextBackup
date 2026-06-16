@@ -1983,3 +1983,32 @@ xb3，游戏京吹3<img src="https://static.stage1st.com/image/smiley/face2017/0
 
 m和n复刻古拉夫算打平，其他的呢，都不是烂了是直接没了 
 
+
+*****
+
+####  topia  
+##### 1666#       发表于 2026-6-17 01:10
+
+ 本帖最后由 topia 于 2026-6-17 01:11 编辑 
+
+美雅前期那么多铺垫，落地太晚最后变成女路人也就算了
+
+结果tmd设定集里总共就给了三张图，细节设定图加起来别说什么小胖娜米了，甚至还不如路人npc多，高桥你tmd怎么睡得着的？<img src="https://static.stage1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+*****
+
+####  richardkisser  
+##### 1667#       发表于 2026-6-17 01:11
+
+这张好看
+
+<img src="https://img.stage1st.com/forum/202606/17/011039yxrbclbnt4jfybyb.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1781629820422_360.jpg</strong> (276.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-17 01:10 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
