@@ -474,3 +474,16 @@ xbx才是你高桥哥哥最想做的游戏，你拿1x23g对着你高桥哥哥老
 
 异度神剑的哲学风味和eva的宗教迷思是差不多意思
 
+
+*****
+
+####  江口夕  
+##### 1525#       发表于 2026-6-16 15:08
+
+ 本帖最后由 江口夕 于 2026-6-16 15:10 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">确实，你哪怕是个云，也说不出高桥没把这些私货扔游戏里，12只能说还能接受，3那到处都是的哲学量爆表。只能说内容不够哲学来凑。
+而且能不能别把我别帖子回复扔这里，挺害怕的，不知道别人还以为你是我粉丝
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
