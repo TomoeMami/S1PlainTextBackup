@@ -3900,3 +3900,14 @@ ds我觉得还是受限于体量和算力，就算想转型也得过段时间。
 
 — from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  舞以  
+##### 1822#       发表于 2026-6-16 19:51
+
+指令循序和过度召回不知道是不是一体两面<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+gpt偶尔也会抓着你说的几个词来回讲，不过ds更明显
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

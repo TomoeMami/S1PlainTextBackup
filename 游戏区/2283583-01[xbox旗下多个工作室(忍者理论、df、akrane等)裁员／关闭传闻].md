@@ -435,3 +435,28 @@ Arka ...</blockquote>
 
 微软毁的是自己的第一方IP，另外就是3A困局，这个同时也困扰着索尼
 
+
+*****
+
+####  plok201  
+##### 48#       发表于 2026-6-16 19:52
+
+<blockquote>jf8350143 发表于 2026-6-16 18:35
+地狱之刃刚公布了新作，这就关门？</blockquote>
+估计和名越差不多，弄个假片出来想用社区声音倒逼微软吧
+
+*****
+
+####  difa  
+##### 49#       发表于 2026-6-16 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69787016&amp;ptid=2283583" target="_blank">星野航 发表于 2026-6-16 19:08</a>
+Arkane Lyon那个刀锋战士的游戏是不是胎死腹中了
+
+虽然这个游戏宣布的时候就感觉arkane lyon已经完蛋了
+
+Arka ...</blockquote>
+红霞岛又怪微软了？自己做的一坨屎，微软最大的问题是没直接把这个砍了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
