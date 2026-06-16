@@ -353,3 +353,30 @@ XbG应该不会比这个时间长太多 ...</blockquote>
 仔细想了下如果女主中期真的瞎了那不太可能只有女主视角吧，瞎了还怎么带队 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">说不定瞎了会看到全世界阿尼玛的构成流动呢，比没瞎战斗力更高
 
+
+*****
+
+####  アヘ顔  
+##### 1515#       发表于 2026-6-16 12:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">江南七怪柯镇恶就是瞎子带队
+
+
+*****
+
+####  江口夕  
+##### 1516#       发表于 2026-6-16 12:41
+
+柯镇恶那是6怪合体
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  hkguty  
+##### 1517#       发表于 2026-6-16 12:42
+
+<blockquote>塔奇克马 发表于 2026-6-16 12:33
+说不定瞎了会看到全世界阿尼玛的构成流动呢，比没瞎战斗力更高</blockquote>
+那也得有一大段瞎了之后的阵痛期剧情需要别人来给她擦会屁股，总不可能一瞎就转职阿修罗了
+

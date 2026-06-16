@@ -1199,3 +1199,13 @@ gxyy提前备战周年强化
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么 这点数要500w毕业？ 1天打满才50w 晚几天直接寄？
 
+
+*****
+
+####  khxooo  
+##### 20950#       发表于 2026-6-16 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69784941&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-6-16 12:27</a>
+什么 这点数要500w毕业？ 1天打满才50w 晚几天直接寄？</blockquote>
+就是要你每天登陆才能完美毕业，不过后续都是QP这垃圾东西，但凡终章认真砍过树基本上都不缺了。咸就咸过去了。
+
