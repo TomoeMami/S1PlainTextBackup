@@ -866,3 +866,66 @@ xb3的普通战斗曲 我觉得是系列最强的，太抓耳了。
 
 —— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  richardkisser  
+##### 1560#       发表于 2026-6-16 17:57
+
+网页端能拉黑吗？APP可以，但网页端还在那
+
+
+*****
+
+####  汪达  
+##### 1561#       发表于 2026-6-16 17:57
+
+看来有人是真正的印度人，看到黑皮男主白皮女主反应简直就像印度人看到首陀罗上了婆罗门，还有礼法吗？还有法律吗？造孽啊！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woaimiyabi  
+##### 1562#       发表于 2026-6-16 17:58
+
+ 本帖最后由 woaimiyabi 于 2026-6-16 18:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786664&amp;ptid=2283074" target="_blank">江口夕 发表于 2026-6-16 17:54</a>
+
+所以不是叫你们去建个winwin楼了，专楼连喷都不能咋好意思叫专楼的。
+
+建议你们去建个高桥哥哥🈚哲学winwi ...</blockquote>
+我说了你可以喷 但你别来我喷了后 你们反驳我 一块欺负我这套 ，因为来专楼喷这是你自找的 就要做好心理准备 别叫屈。
+
+*****
+
+####  eraso  
+##### 1563#       发表于 2026-6-16 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786499&amp;ptid=2283074" target="_blank">空集 发表于 2026-6-16 17:29</a>
+
+我作为一个非常能客观评价xb3的战斗系统 地图 及人物的人（因此我并不是觉得他没有很多很多可取之处）倒 ...</blockquote>
+不谈游戏主题理念这些，作为最基本的电子游戏，xb3的整体制作水平没什么问题，游玩体验体验也是比前作更加人性化，前作即使想通关都能劝退不少人，充满缺陷的教学、流程、指引这些gameplay方面问题，让人还要上网看攻略才能通关
+
+*****
+
+####  江口夕  
+##### 1564#       发表于 2026-6-16 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786704&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-6-16 17:58</a>
+我说了你可以喷 但你别来我喷了 你们反驳我 一块欺负我这套 ，因为来专楼喷这是你自找的 就要做好心理准备 ...</blockquote>
+所以能不能别回我，自虐狂？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  汪达  
+##### 1565#       发表于 2026-6-16 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786695&amp;ptid=2283074" target="_blank">richardkisser 发表于 2026-6-16 17:57</a>
+
+网页端能拉黑吗？APP可以，但网页端还在那</blockquote>
+网页端右上角个人ID那一行
+
+点【我的▼】-【好友】打开新页面，点【我的黑名单】那个分类，输入用户名点【添加】就行了
+

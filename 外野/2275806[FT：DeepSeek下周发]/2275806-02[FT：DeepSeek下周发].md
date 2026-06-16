@@ -3637,3 +3637,11 @@ opencode go也挺合算的
 <img src="https://p.sda1.dev/33/26fa482229531f9af93a3c658c5f762b/image.jpg" referrerpolicy="no-referrer">
 新版思维链是这样的？
 
+
+*****
+
+####  千千千千鸟  
+##### 1798#       发表于 2026-6-16 17:59
+
+GPT的20刀版本是吧，我研究下适不适合我<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
