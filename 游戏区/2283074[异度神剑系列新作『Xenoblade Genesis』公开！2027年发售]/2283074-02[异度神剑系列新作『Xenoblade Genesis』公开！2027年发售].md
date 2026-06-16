@@ -674,3 +674,15 @@ xb3我很喜欢，真的很喜欢。
 
 但是既然要玩要买，我还是希望xbg是个好游戏。
 
+
+*****
+
+####  shiko  
+##### 1543#       发表于 2026-6-16 17:09
+
+不管再多少人骂xb3，铁窗泪都是我玩游戏20年的goat瞬间<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+当然我不像某部分粉丝那样喜欢抱着旧的不放，高桥敢不敢在xbg里搞出更牛逼的瞬间让我移情别恋<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2507A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

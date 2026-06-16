@@ -3542,3 +3542,11 @@ image.png
 
 <img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">我要吐了装了个hermes用了几天结果这逼东西今天更新居然能把自己更新没了
 
+
+*****
+
+####  千千千千鸟  
+##### 1788#       发表于 2026-6-16 17:12
+
+其实我在想有没有比DEEPSEEK更有性价比的，从6月份我开始用agent开始已经用了150块钱ds的api额度了。
+
