@@ -390,3 +390,23 @@ showcase那个不是hb3<img src="https://static.stage1st.com/image/smiley/face20
 
 地狱之刃刚公布了新作，这就关门？
 
+
+*****
+
+####  星野航  
+##### 44#       发表于 2026-6-16 19:08
+
+Arkane Lyon那个刀锋战士的游戏是不是胎死腹中了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然这个游戏宣布的时候就感觉arkane lyon已经完蛋了
+
+Arkane Austin就更别说了，红霞岛之后已经结束了，微软别的不行，毁工作室是真在行
+
+
+*****
+
+####  Midnight.Coup  
+##### 45#       发表于 2026-6-16 19:14
+
+B社这一堆也裁啊🥲可惜了 arkane 和 id software
+

@@ -1015,3 +1015,20 @@ xb3的普通战斗曲 我觉得是系列最强的，太抓耳了。
 
 吵到200楼也是200楼<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  塔奇克马  
+##### 1574#       发表于 2026-6-16 19:08
+
+发售前200楼板上钉钉的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  topia  
+##### 1575#       发表于 2026-6-16 19:12
+
+xb3不就是把短板拉上来了，但长板又给砍短了，尤其是地图设计拉完了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但短板拉上来本来就是应该的，长板砍短可就是自己给自己一刀了
+

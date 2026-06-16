@@ -3833,3 +3833,35 @@ GPT的20刀版本是吧，我研究下适不适合我</blockquote>
 
 gptplus用来编程是不够用的，但是用来干别的基本用不完
 
+
+*****
+
+####  很久就在那边l  
+##### 1816#       发表于 2026-6-16 19:09
+
+想省钱的话白嫖的渠道挺多的，bat的ai IDE都有白嫖用量用各种国产模型，opencode可以白嫖v4f，英伟达nim有部署所有开源模型给免费用不过很慢，华为最近也开始给白嫖glm，如果不考虑安全用公益站还能白嫖gpt和claude
+
+*****
+
+####  千千千千鸟  
+##### 1817#       发表于 2026-6-16 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786957&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-6-16 18:53</a>
+
+你先搞清楚你的需求，这里有些人看都不看上下文就自说自话的，如果你是做coding，推荐gptplus自然可以上 ...</blockquote>
+是用agent,也不怎么写代码吧，主要是用来读表格，读文档，写方案啥的，另外可能帮我查资料，帮我看视频之类的？自己写了个读取b站字幕的skill，现在懒到视频都懒得看。
+
+我问了下GPT网页版，貌似pi agent和hermes貌似都可以接入使用codex的这个额度来着。
+
+另外我看了下DS开放平台，显示我13日用掉70多块钱，严重怀疑是因为那天我装了个powershell美化，每次打开powershell会显示一张壁纸所以每次调用工具都会有超级多的图片代码被加载进上下文<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  drodchang  
+##### 1818#       发表于 2026-6-16 19:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786968&amp;ptid=2275806" target="_blank">有鱼 发表于 2026-6-16 18:56</a>
+
+我私心还是挺希望ds能在产品化（后训练，harness，搜索之类的工具包）上做好的，gpt订阅我觉得买token也就 ...</blockquote>
+codex做得非常好，我觉得是最好的编程工具，可惜因为兼容问题，gpt以外的模型不好用
+
