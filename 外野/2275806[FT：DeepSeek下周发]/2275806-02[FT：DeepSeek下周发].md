@@ -3684,3 +3684,50 @@ plus订阅只能用5.5thinking，不过基本够用了
 
 这种模式添加一个指令马上能get到，不会自己瞎扮演跑偏
 
+
+*****
+
+####  有鱼  
+##### 1802#       发表于 2026-6-16 18:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要是用得完codex的额度，那gpt的订阅还是很划得来的。
+
+gpt唯一的问题就是后训练和对齐太狠了，很多时候只能当一个概念分析机，指望它直接端出来一个很惊艳的观点是很难的。
+
+写文章我的体验也是一坨屎。
+
+*****
+
+####  有鱼  
+##### 1803#       发表于 2026-6-16 18:30
+
+<img src="https://img.stage1st.com/forum/202606/16/183021fqf1en421anpkp91.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (89.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-16 18:30 上传
+
+这是幻觉了还是？
+
+*****
+
+####  ml1642879  
+##### 1804#       发表于 2026-6-16 18:32
+
+据知情人士透露，除国家人工智能产业投资基金外，所有外部投资方的资金需注入由创始人梁文锋管理的有限合伙企业，而非直接投向DeepSeek主体。外部投资方不享有公司投票权，仅可获取优先财务信息并拥有后续融资的优先投资权。所有投资方股权设有五年锁定期，锁定期内不得转让。
+
+fgnb，还说啥呢，只收钱不办事
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
+
+*****
+
+####  有鱼  
+##### 1805#       发表于 2026-6-16 18:33
+
+来一人说一句，fgnb<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这不是爱投不投的意思？只给姥爷一点面子
+
