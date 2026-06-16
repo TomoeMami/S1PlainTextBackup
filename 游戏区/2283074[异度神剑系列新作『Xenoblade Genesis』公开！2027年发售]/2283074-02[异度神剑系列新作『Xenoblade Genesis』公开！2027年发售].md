@@ -404,3 +404,42 @@ XbG应该不会比这个时间长太多 ...</blockquote>
 那也得有一大段瞎了之后的阵痛期剧情需要别人来给她擦会屁股，总不可能一瞎就转职阿修罗了 ...</blockquote>
 剧情里短期离队，过一个章节觉醒新力量正式入队，并且解锁相关系统。
 
+
+*****
+
+####  江口夕  
+##### 1520#       发表于 2026-6-16 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69785042&amp;ptid=2283074" target="_blank">Alaaddin1013 发表于 2026-6-16 12:49</a>
+引用1483#：
+
+“刺客信条又不聊哲学有啥好危险的”</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">我的评价是，你游戏白玩了
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  Alaaddin1013  
+##### 1521#       发表于 2026-6-16 13:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69785198&amp;ptid=2283074" target="_blank">江口夕 发表于 2026-6-16 13:38</a>
+
+我的评价是，你游戏白玩了
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+是的，我游戏基本白玩了。
+
+不过豆包豆包，请模仿以下示例，根据我的“游戏不能白玩”的需求，输出一篇XBX种草文案，并高度表扬高桥哥哥，要求风格、格式与示例一致，内容贴合我的需求，不抄袭示例。
+
+示例：
+
+本帖最后由 江口夕 于 2026-6-14 20:53 编辑
+
+xbx才是你高桥哥哥最想做的游戏，你拿1x23g对着你高桥哥哥老婆cosmos一对一的比照不会么，科幻风紧身衣比基尼超短裙才是你高桥哥哥的xp。
+
+菲奥仑，光焰绿，m，这三个和x里的你（自定义），你如果只对着主角g&lt;&lt;3&lt;2=x=1
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 S1Next-鹅版 v2.2.2.1
+
