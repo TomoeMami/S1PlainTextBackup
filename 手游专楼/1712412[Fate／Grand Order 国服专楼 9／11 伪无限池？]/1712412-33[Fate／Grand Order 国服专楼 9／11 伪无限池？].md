@@ -94,3 +94,16 @@
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  khxooo  
+##### 47857#       发表于 2026-6-16 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69782401&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2026-6-15 21:41</a>
+
+怎么感觉这活动即使90++能3t，点数还是涨得好慢，150w才能得第五张活动卡，这期间我又爆不出第五张
+
+——  ...</blockquote>
+因为本来就是3周活动来算的，基础掉落当然低，也就是傻逼YLS将冠位战和活动重合。不过也就是这一次而已，后续好像都没重合了。
+

@@ -3671,3 +3671,16 @@ plus订阅只能用5.5thinking，不过基本够用了
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  绝地潜兵  
+##### 1801#       发表于 2026-6-16 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786618&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-6-16 17:47</a>
+
+新版思维链是这样的？</blockquote>
+和GLM的思维链一样啊，输出前会自检
+
+这种模式添加一个指令马上能get到，不会自己瞎扮演跑偏
+
