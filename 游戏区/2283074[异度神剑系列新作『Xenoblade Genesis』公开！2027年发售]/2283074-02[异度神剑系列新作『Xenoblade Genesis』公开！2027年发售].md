@@ -1567,3 +1567,77 @@ xb3的字母 ...</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  freedom12  
+##### 1626#       发表于 2026-6-16 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69787355&amp;ptid=2283074" target="_blank">ace8848 发表于 2026-6-16 20:21</a>
+
+以前就讨论过了，xb3的优点是由大量网状支线推动的数个殖民地之间（而非人与人之间）的流动感和链接感，光 ...</blockquote>
+终于见到和我一样喜欢xb3羁绊图的了
+
+*****
+
+####  Asimot  
+##### 1627#       发表于 2026-6-16 21:04
+
+男主还挺帅的，其实我是有点难带入女主第一视角谈恋爱...
+
+xb3我最喜欢，那个沙漠地带那个拱门，还有一个河畔巨神兵（忘了叫啥了
+
+*****
+
+####  mai6696  
+##### 1628#       发表于 2026-6-16 21:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69787489&amp;ptid=2283074" target="_blank">lancelotezio 发表于 2026-6-16 20:55</a>
+
+何止字母人是小丑，那些殖民地领头一样是小丑，特别是那个武士男和银发，简直是小丑中的小丑，甚至把字母 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你是说癫起来命都不要，殖民地的家人们也不管，只顾着互砍战斗爽的那两位吗？
+
+*****
+
+####  richardkisser  
+##### 1629#       发表于 2026-6-16 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69787400&amp;ptid=2283074" target="_blank">UltramanPain 发表于 2026-6-16 20:35</a>
+这个要是男主的话，换服装了，剑也确实没有装晶石。这个宠物跟着男主。
+
+—— 来自 Xiaomi 23127PN0CC, And ...</blockquote>
+这我看像女的，还有黑丝？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  freedom12  
+##### 1630#       发表于 2026-6-16 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69787196&amp;ptid=2283074" target="_blank">shiko 发表于 2026-6-16 19:49</a>
+
+xbx虽然面积大但是结构还是很小巧的，xb3不知道为什么当时选择把结构都放那么大。
+
+最初看到PV的时候观察 ...</blockquote>
+我猜最初设计是有铁巨神的移动的，所以得预留出大量空地用来通行和驻扎
+
+后来整个系统砍了，但也来不及改地图了
+
+其实xb3打地图也只是尺度失衡，问题不大
+
+问题大的是山洞设计，这一点其实dlc也没救回来
+
+*****
+
+####  UltramanPain  
+##### 1631#       发表于 2026-6-16 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69787527&amp;ptid=2283074" target="_blank">richardkisser 发表于 2026-6-16 21:06</a>
+这我看像女的，还有黑丝？
+
+—— 来自 S1Fun</blockquote>
+哪有黑丝，这不是盔甲么
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
