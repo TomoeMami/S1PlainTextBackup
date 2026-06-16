@@ -732,3 +732,137 @@ xb3我很喜欢，真的很喜欢。
 
 —— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  mai6696  
+##### 1548#       发表于 2026-6-16 17:44
+
+荒野我还真就没买。
+
+不像有些人无法和解到处拉屎，人设楼要闹，专楼也要闹。
+
+转头说别人跟屁虫，也太看得起自己了。
+
+巴不得您消失呢。
+
+*****
+
+####  lancelotezio  
+##### 1549#       发表于 2026-6-16 17:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786072&amp;ptid=2283074" target="_blank">狸狸狐 发表于 2026-6-16 16:17</a>
+该回头看看高桥说了什么了。
+
+来自xb3的OST
+
+机翻注意</blockquote>
+泽野弘之那个b音乐还成功，高桥是吃了屎还是没看到全世界评价？xb3那个狗屁环境音就是xb3音乐最大的败笔，一个jrpg没有抓耳的音乐没有契合剧情的音乐没有一首循环播放且符合游戏的主题曲就是失败的，还自我感觉良好，这次音乐估计也是一坨屎了
+
+—— 来自 Xiaomi 22041211AC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  shiko  
+##### 1550#       发表于 2026-6-16 17:46
+
+真的能亲嘴怀孕吗，一言为定<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2507A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  mai6696  
+##### 1551#       发表于 2026-6-16 17:47
+
+ 本帖最后由 mai6696 于 2026-6-16 17:49 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786339&amp;ptid=2283074" target="_blank">Asimot 发表于 2026-6-16 17:05</a>
+
+xb3我很喜欢，真的很喜欢。
+
+说说感想的话。。
+
+我觉得，你可以说批评静止保守，没问题，这个是共识，但问题 ...</blockquote>
+我觉得，你不能一边给我展示“每个殖民地都有有美好的未来”，一边跟我说“炸了吧我们拥抱新世界”。
+
+在我通殖民地马桶的时候你起码也让殖民地的人出来展示一下对新世界的憧憬吧
+
+最后给我一种“大家都在搞建设，只有Noah大人站在岔路口，一个人选择了新世界”的感觉。
+
+有点割裂。
+
+*****
+
+####  紫菜粉丝煲  
+##### 1552#       发表于 2026-6-16 17:47
+
+xb3的音乐都不抓耳了么
+
+*****
+
+####  海晟天锻  
+##### 1553#       发表于 2026-6-16 17:49
+
+异度x这个总不能设定集里骂人家音乐不适配吧，这种商业吹捧真看看得了，这么成功怎么xb2xb3不找泽野弘之来配乐呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  北条早苗  
+##### 1554#       发表于 2026-6-16 17:49
+
+xb3的问题是铁窗泪之后无论是剧本，演出还是迷宫设计水平都急剧下降，最终迷宫简直就是摆烂，只能说特殊时期的产物了
+
+
+*****
+
+####  shiko  
+##### 1555#       发表于 2026-6-16 17:50
+
+<blockquote>lancelotezio 发表于 2026-6-16 17:46
+泽野弘之那个b音乐还成功，高桥是吃了屎还是没看到全世界评价？xb3那个狗屁环境音就是xb3音乐最大的败笔 ...</blockquote>
+xb3的主题旋律还不明显啊，最多说句因为狗屎的菜单和索敌老是打断听不全，
+
+而且你仔细看就会发现他说的是做xb1的时候用泽野做了参考，所以与敌对峙大受成功。
+
+*****
+
+####  lancelotezio  
+##### 1556#       发表于 2026-6-16 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786630&amp;ptid=2283074" target="_blank">海晟天锻 发表于 2026-6-16 17:49</a>
+异度x这个总不能设定集里骂人家音乐不适配吧，这种商业吹捧真看看得了，这么成功怎么xb2xb3不找泽野弘之来 ...</blockquote>
+你看他的说法不是商业互吹而是在否定xb12的那种音乐，他自己就在那阴阳怪气xb12的音乐，说不对劲
+
+—— 来自 Xiaomi 22041211AC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  江口夕  
+##### 1557#       发表于 2026-6-16 17:54
+
+ 本帖最后由 江口夕 于 2026-6-16 17:55 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786508&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-6-16 17:30</a>
+你赶紧出去 玩你的轨迹跟炼金吧，xb不适合你 毕竟你很生气 何必把自己气到，你骂别来专楼骂，你来专楼骂就 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">所以不是叫你们去建个winwin楼了，专楼连喷都不能咋好意思叫专楼的。
+建议你们去建个高桥哥哥🈚哲学winwin专楼，（xb2粉丝及xb系列有意见者勿进。）
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  woaimiyabi  
+##### 1558#       发表于 2026-6-16 17:54
+
+xb3的普通战斗曲 我觉得是系列最强的，太抓耳了。
+
+*****
+
+####  海晟天锻  
+##### 1559#       发表于 2026-6-16 17:54
+
+专楼拉屎和专楼喷还是有区别的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
