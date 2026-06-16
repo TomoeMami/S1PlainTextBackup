@@ -2045,3 +2045,14 @@ XB3得反派我已经一个都不记得了...我还是完美通关了本体和dl
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  UltramanPain  
+##### 1671#       发表于 2026-6-17 07:00
+
+<img src="https://p.sda1.dev/33/575c4f2ad92bdf1b802f6c83b56eaf6f/image.jpg" referrerpolicy="no-referrer">参考异度1决定版增加相连未来剧情，作为异度3的伏笔
+那异度x决定版增加13章，跨星际科技发达的人类祖先，精灵耳萨玛尔人，研究gate制造高达，是否也是异度创世的伏笔呢 ​​​
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
