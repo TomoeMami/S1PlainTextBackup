@@ -311,3 +311,13 @@ XG   ⭕
 不要用这种八奇思路回我好不好，历史课本快变成种族歧视书了可还行。要不要你把你话输ai看看ai怎么评价你 ...</blockquote>
 因为我看你很想给北美原住民主持公道，同时也很痛恨白人殖民者，作为一个这么有正义感的人，所以应该不会犯这种低级错误
 
+
+*****
+
+####  ShitOverflow  
+##### 1511#       发表于 2026-6-16 11:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">透视关系实在很奇怪，内球面一眼望到头的景色又给到一股压抑的基调，不像朱紫生态巨蛋还有个模拟或是透明的天空，还得到时上手玩玩看怎么一回事
+
+[论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
