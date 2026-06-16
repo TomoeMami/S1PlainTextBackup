@@ -3816,3 +3816,20 @@ gpt plus 周限额大概100-200M token.分分钟限额了. ...</blockquote>
 GPT的20刀版本是吧，我研究下适不适合我</blockquote>
 你先搞清楚你的需求，这里有些人看都不看上下文就自说自话的，如果你是做coding，推荐gptplus自然可以上位替换，但你说是在用agent，如果是openclaw这种用途的，OAI的订阅服务不提供api额度的。要薅干他家token限额基本主要是用自家codex的。
 
+
+*****
+
+####  有鱼  
+##### 1814#       发表于 2026-6-16 18:56
+
+我私信还是挺希望ds能在产品化（后训练，harness，搜索之类的工具包）上做好的，gpt订阅我觉得买token也就一方面，更多还是订阅整个产品。
+
+而且closeai也对第三方harness通过订阅调用基本是默认的，感觉奥特曼被达里奥衬托的也像个人了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  drodchang  
+##### 1815#       发表于 2026-6-16 18:57
+
+gptplus用来编程是不够用的，但是用来干别的基本用不完
+

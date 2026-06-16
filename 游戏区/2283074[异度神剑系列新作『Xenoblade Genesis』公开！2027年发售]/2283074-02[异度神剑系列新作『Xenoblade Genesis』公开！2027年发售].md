@@ -996,3 +996,22 @@ xb3的普通战斗曲 我觉得是系列最强的，太抓耳了。
 
 我也是提一嘴，之后不会参与这方面的讨论。
 
+
+*****
+
+####  king520kyo  
+##### 1572#       发表于 2026-6-16 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786695&amp;ptid=2283074" target="_blank">richardkisser 发表于 2026-6-16 17:57</a>
+
+网页端能拉黑吗？APP可以，但网页端还在那</blockquote>
+可以的，网页右上角我的-好友-我的黑名单-把SB的ID复制进去就行了
+
+
+*****
+
+####  aimujie  
+##### 1573#       发表于 2026-6-16 19:05
+
+吵到200楼也是200楼<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
