@@ -443,3 +443,16 @@ xbx才是你高桥哥哥最想做的游戏，你拿1x23g对着你高桥哥哥老
 
 —— 来自 Xiaomi 23113RKC6C, Android 16上的 S1Next-鹅版 v2.2.2.1
 
+
+*****
+
+####  lilod  
+##### 1522#       发表于 2026-6-16 13:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69785042&amp;ptid=2283074" target="_blank">Alaaddin1013 发表于 2026-6-16 12:49</a>
+
+引用1483#：
+
+“刺客信条又不聊哲学有啥好危险的”</blockquote>
+"高桥并不多么懂哲学" 我不知道高桥懂不懂，反正漏油肯定不懂
+
