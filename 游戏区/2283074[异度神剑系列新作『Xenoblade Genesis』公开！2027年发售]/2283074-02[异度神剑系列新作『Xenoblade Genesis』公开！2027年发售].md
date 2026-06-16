@@ -720,3 +720,15 @@ xb3我很喜欢，真的很喜欢。
  ...</blockquote>
 你赶紧出去 玩你的轨迹跟炼金吧，xb不适合你 毕竟你很生气 何必把自己气到，你骂别来专楼骂，你来专楼骂就别怪别人怼你，我们就圈地自萌讨论跟玩我们的xb 。
 
+
+*****
+
+####  superlink  
+##### 1547#       发表于 2026-6-16 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786499&amp;ptid=2283074" target="_blank">空集 发表于 2026-6-16 17:29</a>
+我作为一个非常能客观评价xb3的战斗系统 地图 及人物的人（因此我并不是觉得他没有很多很多可取之处）倒 ...</blockquote>
+这种属于少数，大部分人并不关心那些所谓的哲学典故或者词源，关键还是看故事好坏。分析了一大堆，叙事写烂了有啥用
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+

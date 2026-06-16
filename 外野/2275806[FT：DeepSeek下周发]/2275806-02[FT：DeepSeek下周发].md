@@ -3611,3 +3611,29 @@ opencode go也挺合算的
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ymm1030  
+##### 1795#       发表于 2026-6-16 17:37
+
+岂止是今天，昨晚也表现得智障一样，各种低级错误频发。现在d导被蹬得太狠了。
+
+*****
+
+####  neptunehs  
+##### 1796#       发表于 2026-6-16 17:38
+
+我甚至觉得今天opencode的免费版都变慢了 但也同时有种智力似乎微妙的变高了错觉
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Promeus  
+##### 1797#       发表于 2026-6-16 17:47
+
+<img src="https://p.sda1.dev/33/26fa482229531f9af93a3c658c5f762b/image.jpg" referrerpolicy="no-referrer">
+新版思维链是这样的？
+
