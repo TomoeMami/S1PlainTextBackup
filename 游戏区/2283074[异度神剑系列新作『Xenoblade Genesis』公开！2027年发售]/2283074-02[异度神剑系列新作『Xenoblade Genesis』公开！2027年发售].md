@@ -2056,3 +2056,11 @@ XB3得反派我已经一个都不记得了...我还是完美通关了本体和dl
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  xwr  
+##### 1672#       发表于 2026-6-17 07:27
+
+这次也是3男3女3CP么，但这样不就和XB3一样了。能不能6人多角恋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
