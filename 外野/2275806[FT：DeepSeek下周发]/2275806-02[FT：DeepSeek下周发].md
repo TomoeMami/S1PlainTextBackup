@@ -3986,3 +3986,19 @@ gpt偶尔也会抓着你说的几个词来回讲，不过ds更明显
 论坛助手,iPhone</blockquote>
 统计token数么，我觉得问题应该不大，你把omp源码下载下来，再把gpt的API文档页面给它，问它怎么做就行了
 
+
+*****
+
+####  daohao  
+##### 1829#       发表于 2026-6-16 20:17
+
+<img src="https://img.stage1st.com/forum/202606/16/201649odafwzq4ez0wdq31.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (116.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-16 20:16 上传
+
+ 被灰度到4.1了
+
