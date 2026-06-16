@@ -3645,3 +3645,29 @@ opencode go也挺合算的
 
 GPT的20刀版本是吧，我研究下适不适合我<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杀人鲸  
+##### 1799#       发表于 2026-6-16 18:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786618&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-6-16 17:47</a>
+新版思维链是这样的？</blockquote>
+是的，就是这样，只不过有点好奇手机上什么时候能够体验到？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1800#       发表于 2026-6-16 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786708&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-6-16 17:59</a>
+GPT的20刀版本是吧，我研究下适不适合我</blockquote>
+20刀，网页/app每周对话限额5.5thinking模式3000句输入，自动模式哪怕切换到thinking也不算限额里，基本用不完，image生图也是这个规则
+codex我记得每个月等效是5亿词元，我个人体验是一周限额足够精翻四五十万字轻小说
+plus订阅只能用5.5thinking，不过基本够用了
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

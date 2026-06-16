@@ -97,3 +97,133 @@ Ave Mujica时隔半年的新曲</blockquote>
 
        [https://x.com/Schecter_JAPAN/status/2066355011995439536](https://x.com/Schecter_JAPAN/status/2066355011995439536)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41907#       发表于 2026-6-16 18:06
+
+ 本帖最后由 堀内爱里衣 于 2026-6-16 18:09 编辑 
+
+       
+
+<img src="https://img.stage1st.com/forum/202606/16/180922alwlpeg91z95bbtp.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-06-16_18-08-00.jpg</strong> (231.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-16 18:09 上传
+
+       [https://x.com/bang_dream_info/status/2066823096972025953](https://x.com/bang_dream_info/status/2066823096972025953)
+
+       [https://www.youtube.com/watch?v=7T3qCxX6uJw](https://www.youtube.com/watch?v=7T3qCxX6uJw)
+
+       [https://t.co/aVOYpYH5rA](https://t.co/aVOYpYH5rA)
+
+       <strong>【官方live视频】Ave Mujica「Choir 'S' Choir」Ave Mujica 6th LIVE「Ulterius Procedere」东京公演</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202606/16/180631ay67s53o0sr3ksko.jpg" referrerpolicy="no-referrer">
+
+<strong>b8f70128f601418bc86c422321ae02d08123a98e.jpg</strong> (181.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-16 18:06 上传
+
+2025年12月14日（周日）于东京国际论坛 Hall A 举办的Ave Mujica 6th LIVE「Ulterius Procedere」东京公演
+
+公开「Choir ‘S’ Choir」完整LIVE影像。
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+Ave Mujica Best Album「Ave Música」
+
+2026年6月17日（周三）发售
+
+数量限定生产特装版、Blu-ray生产限定版中收录了
+
+Ave Mujica 6th LIVE「Ulterius Procedere」东京公演影像。
+
+详情：[https://bang-dream.com/discographies/4192/](https://bang-dream.com/discographies/4192/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica LIVE TOUR 2026「Exitus」-FINAL-
+
+ 2026年6月19日（周五）・20日（周六）　SGC HALL ARIAKE
+
+现场门票已全部售罄。
+
+充电直播・充电回放贩售中。
+
+・充电档位①
+
+　连续包月198元(238元档位) 
+
+　DAY1充电回放视频
+
+・充电档位②
+
+　连续包月238元(288元档位) 
+
+　DAY2充电直播+DAY1充电回放视频
+
+・充电档位③
+
+　连续包月308元(368元档位) 
+
+　DAY1充电直播+DAY2充电直播+DAY1充电回放视频
+
+详情：[https://www.bilibili.com/opus/12 ... d_from=333.1387.0.0](https://www.bilibili.com/opus/1208794495854837768?spm_id_from=333.1387.0.0)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+MyGO!!!!!×Ave Mujica 联合公演「分歧路口，前途漫漫」上海追加公演 Blu-ray
+
+现正发售中
+
+2025年10月11日・12日于梅赛德斯-奔驰文化中心举办的
+
+MyGO!!!!!×Ave Mujica 联合公演「分歧路口，前途漫漫」上海追加公演，确定影像化。
+
+除了LIVE写真册外，还收录了使用上海追加公演全新主视觉制作的2张色纸套组与亚克力面板。
+
+特典CD中还追加收录了全新制作的 CRYCHIC・sumimi 八音盒编曲乐曲完整版2首。
+
+详情： [https://bang-dream.com/discographies/4182/](https://bang-dream.com/discographies/4182/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+◇ BanG Dream!
+
+官方网站：[https://bang-dream.com/](https://bang-dream.com/)
+
+官方bilibili：@BanGDream_CN
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+#BanGDream# #AveMujica#</blockquote>
+      [https://www.bilibili.com/video/BV1Smj36oE6r/](https://www.bilibili.com/video/BV1Smj36oE6r/)
+
+*****
+
+####  堀内爱里衣  
+##### 41908#       发表于 2026-6-16 18:10
+
+       
+
+<img src="https://img.stage1st.com/forum/202606/16/181036l8oi863mvdxojm3n.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-06-16_18-10-00.jpg</strong> (308.23 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-16 18:10 上传
+
+       [https://x.com/bang_dream_info/status/2066770247198331099](https://x.com/bang_dream_info/status/2066770247198331099)
+
+       [https://t.co/JxeCVn7P1o](https://t.co/JxeCVn7P1o)
+

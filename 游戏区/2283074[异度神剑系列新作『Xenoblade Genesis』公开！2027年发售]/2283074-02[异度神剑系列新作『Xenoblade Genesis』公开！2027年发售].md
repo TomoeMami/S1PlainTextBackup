@@ -929,3 +929,56 @@ xb3的普通战斗曲 我觉得是系列最强的，太抓耳了。
 
 点【我的▼】-【好友】打开新页面，点【我的黑名单】那个分类，输入用户名点【添加】就行了
 
+
+*****
+
+####  66367749  
+##### 1566#       发表于 2026-6-16 18:10
+
+感觉天赋在搏击区不在游戏区<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woaimiyabi  
+##### 1567#       发表于 2026-6-16 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786716&amp;ptid=2283074" target="_blank">江口夕 发表于 2026-6-16 18:01</a>
+
+所以能不能别回我，自虐狂？
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+再说自己吗？ 正常人不喜欢早就不关注了，你是疯狂打滚 咬牙切齿的喷了好几天了 也被群殴好几天了  都被别人当做笑话了 何必呢？ 你这才是自虐啊  别把自己气坏。
+
+
+*****
+
+####  江口夕  
+##### 1568#       发表于 2026-6-16 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786763&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-6-16 18:10</a>
+在说自己吗？ 正常人不喜欢早就不关注了，你是疯狂打滚 咬牙切齿的喷了好几天了 也被群殴好几天了  都被别 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你们这也叫群殴吗，笑死，半点干货没有。一说一个不吱声只会原地打滚说些有的没得。
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  秋月孝三  
+##### 1569#       发表于 2026-6-16 18:14
+
+叉刀3把小胖删了就行，剧情上的其他问题我已经没意见了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  woaimiyabi  
+##### 1570#       发表于 2026-6-16 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786770&amp;ptid=2283074" target="_blank">江口夕 发表于 2026-6-16 18:13</a>
+
+你们这也叫群殴吗，笑死，半点干货没有。一说一个不吱声只会原地打滚说些有的没得。
+
+—— 来自 Xiaomi 2 ...</blockquote>
+哈哈哈 你说主角是印度阿三 就是所谓的干货，你继续说看看  我在多看几天乐子。
+
