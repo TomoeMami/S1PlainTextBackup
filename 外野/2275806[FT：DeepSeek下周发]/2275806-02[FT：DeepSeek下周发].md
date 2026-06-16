@@ -3762,3 +3762,57 @@ fgnb，还说啥呢，只收钱不办事
 这是幻觉了还是？</blockquote>
 不开思考好像就是这样，但是数据库显然还没更新，问他美伊战争结果答不出
 
+
+*****
+
+####  serj005  
+##### 1809#       发表于 2026-6-16 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786854&amp;ptid=2275806" target="_blank">有鱼 发表于 2026-6-16 18:30</a>
+这是幻觉了还是？</blockquote>
+幻觉，知识库我试出来从去年到今年5月中间的任意时间都可能出现
+
+*****
+
+####  phorcys02  
+##### 1810#       发表于 2026-6-16 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786546&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-6-16 17:35</a>
+
+那不如买个gpt plus订阅了，20美元一个月
+
+opencode go也挺合算的</blockquote>
+150块ds api,如果缓存率95%+ 那估计有1-3个B token了
+
+gpt plus 周限额大概100-200M token.分分钟限额了.
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1811#       发表于 2026-6-16 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786915&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-6-16 18:44</a>
+150块ds api,如果缓存率95%+ 那估计有1-3个B token了
+
+gpt plus 周限额大概100-200M token.分分钟限额了. ...</blockquote>
+可以让gpt出方案deepseek执行，或者重活交给gpt
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  有鱼  
+##### 1812#       发表于 2026-6-16 18:53
+
+可以用gpt做方案和审查，执行直接交给v4flash去搞<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 1813#       发表于 2026-6-16 18:53
+
+<blockquote>千千千千鸟 发表于 2026-6-16 17:59
+GPT的20刀版本是吧，我研究下适不适合我</blockquote>
+你先搞清楚你的需求，这里有些人看都不看上下文就自说自话的，如果你是做coding，推荐gptplus自然可以上位替换，但你说是在用agent，如果是openclaw这种用途的，OAI的订阅服务不提供api额度的。要薅干他家token限额基本主要是用自家codex的。
+
