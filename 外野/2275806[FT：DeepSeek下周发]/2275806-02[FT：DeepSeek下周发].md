@@ -4032,3 +4032,15 @@ gpt偶尔也会抓着你说的几个词来回讲，不过ds更明显
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  startraveller  
+##### 1833#       发表于 2026-6-17 01:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69787025&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-6-16 19:09</a>
+是用agent,也不怎么写代码吧，主要是用来读表格，读文档，写方案啥的，另外可能帮我查资料，帮我看视频之 ...</blockquote>
+GPT plus如果coding或者处理/输出大量资料还是不太够用的，个人体感是肯定没有175块的deepseek v4 pro耐用
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

@@ -2012,3 +2012,16 @@ m和n复刻古拉夫算打平，其他的呢，都不是烂了是直接没了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  whzfjd  
+##### 1668#       发表于 2026-6-17 01:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69788300&amp;ptid=2283074" target="_blank">topia 发表于 2026-6-17 01:10</a>
+
+美雅前期那么多铺垫，落地太晚最后变成女路人也就算了
+
+结果tmd设定集里总共就给了三张图，细节设定图加起来 ...</blockquote>
+美雅这点戏份都那么讨喜了，再加还得了，说到底是个死前就完成塑造的角色，英雄任务一眼没得写了，其他英雄还没这个待遇呢，充分说明小胖的问题是他不是美少女
+
