@@ -500,3 +500,37 @@ Arka ...</blockquote>
 
 浪费资源无意义的卷画质，一心扎进播片类游戏和dei方向，只能说好死
 
+
+*****
+
+####  FLZB  
+##### 53#       发表于 2026-6-16 22:20
+
+ 本帖最后由 FLZB 于 2026-6-16 22:21 编辑 
+
+以后巨硬发布会不用看固定节目癫婆跳大神太好了，但砍Arkane是何意味啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  isa2456  
+##### 54#       发表于 2026-6-16 22:22
+
+bgs还要砍人？滚6看来形式不是很好<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">don't nod我只能说好似
+
+
+*****
+
+####  acejoe  
+##### 55#       发表于 2026-6-16 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69786196&amp;ptid=2283583" target="_blank">hkguty 发表于 2026-6-16 16:40</a>
+这里面最该裁的是忍者理论吧，我都不知道神经病之刃是怎么能做到3的，也不知道这玩意的受众到底是谁，这玩 ...</blockquote>
+女主，犯病群体，政确拉满了
+
+*****
+
+####  Horusddt  
+##### 56#       发表于 2026-6-16 22:27
+
+忍者理论鬼泣之后做了一辈子塞纳是真有点搞笑了
+
