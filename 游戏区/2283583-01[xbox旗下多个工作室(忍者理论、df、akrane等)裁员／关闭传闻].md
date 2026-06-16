@@ -418,3 +418,20 @@ B社这一堆也裁啊🥲可惜了 arkane 和 id software
 
 关arkane微软就要上imsim社区的仇恨之书了
 
+
+*****
+
+####  simonroam  
+##### 47#       发表于 2026-6-16 19:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69787016&amp;ptid=2283583" target="_blank">星野航 发表于 2026-6-16 19:08</a>
+
+Arkane Lyon那个刀锋战士的游戏是不是胎死腹中了
+
+虽然这个游戏宣布的时候就感觉arkane lyon已经完蛋了
+
+Arka ...</blockquote>
+你说的哪些工作室在被微软收购之前其实就不行了，苟延残喘而已
+
+微软毁的是自己的第一方IP，另外就是3A困局，这个同时也困扰着索尼
+

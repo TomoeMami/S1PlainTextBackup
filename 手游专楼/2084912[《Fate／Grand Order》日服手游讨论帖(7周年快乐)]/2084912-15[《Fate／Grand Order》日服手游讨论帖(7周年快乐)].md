@@ -1238,3 +1238,11 @@ gxyy提前备战周年强化
 
 水伊吹：什么高难？我还以为是减速带呢。真是能直观体现数值的膨胀，更何况这次自带倍卡。
 
+
+*****
+
+####  DARKGRAY  
+##### 20954#       发表于 2026-6-16 19:32
+
+500W这么多的吗，糟了，前面全是自回体<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
