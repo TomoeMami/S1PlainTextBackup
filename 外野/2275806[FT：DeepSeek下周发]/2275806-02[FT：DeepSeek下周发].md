@@ -3890,3 +3890,13 @@ ds我觉得还是受限于体量和算力，就算想转型也得过段时间。
 
 如果想知道什么东西是token黑洞，又不想写代码，可以试试agentsview([https://github.com/kenn-io/agentsview](https://github.com/kenn-io/agentsview))这类可视化工具，看看哪天的哪个agent哪个session哪个tool消耗大。
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 1821#       发表于 2026-6-16 19:36
+
+主要ds的用下来实际智力不高 不知道是因为触发小了还是怎么回事 感觉只要prompt里有一点污染立马就往那个方向滑 A\和scam altman的确实好一点 
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
