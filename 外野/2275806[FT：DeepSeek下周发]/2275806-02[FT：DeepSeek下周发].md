@@ -3973,3 +3973,16 @@ gpt偶尔也会抓着你说的几个词来回讲，不过ds更明显
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  hugosol  
+##### 1828#       发表于 2026-6-16 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69787270&amp;ptid=2275806" target="_blank">舞以 发表于 2026-6-16 20:03</a>
+
+能在omp里面实现对gpt订阅用量的监控么
+
+论坛助手,iPhone</blockquote>
+统计token数么，我觉得问题应该不大，你把omp源码下载下来，再把gpt的API文档页面给它，问它怎么做就行了
+
