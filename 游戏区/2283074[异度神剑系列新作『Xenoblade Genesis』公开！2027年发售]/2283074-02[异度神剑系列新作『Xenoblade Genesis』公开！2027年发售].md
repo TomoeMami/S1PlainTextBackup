@@ -686,3 +686,15 @@ xb3我很喜欢，真的很喜欢。
 
 —— 来自 vivo V2507A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  江口夕  
+##### 1544#       发表于 2026-6-16 17:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">幽默，谁告诉你骂就不能玩的，二游玩多脑子玩傻了吧。荒野直接飞三太子妈了不照样该玩玩，我这才哪到哪。
+倒是你们，影响别人骂，到哪都跟跟屁虫一样，还把别的贴转过来，真丢人。
+你游又是怀孕又是亲嘴的，xbg不就是你操作女主和黑皮男亲嘴怀孕么，我膈应我还不能骂了。你家开的？
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
