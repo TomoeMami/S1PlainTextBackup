@@ -4020,3 +4020,15 @@ gpt偶尔也会抓着你说的几个词来回讲，不过ds更明显
 
 现在v4f api已经更新了，不过感觉写文比较微妙，有点被蹬多了的v4p那个味道，反倒是v4p现在貌似还行
 
+
+*****
+
+####  杀人鲸  
+##### 1832#       发表于 2026-6-16 23:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69787883&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-6-16 22:37</a>
+现在v4f api已经更新了，不过感觉写文比较微妙，有点被蹬多了的v4p那个味道，反倒是v4p现在貌似还行 ...</blockquote>
+什么？在API那边居然都已经更新了吗？测试都已经测试完了吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
