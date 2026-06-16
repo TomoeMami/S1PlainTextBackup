@@ -1922,3 +1922,13 @@ xg虽然cd2俩迷宫直接拿代号糊弄过去了，但是梅尔卡帕里还是
 xb3那始源毛坯房还是太难绷了，xy更是跟路边的野狗一样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 从铁窗泪开始整个游戏的制作水平就急转直下了，黑国主堡设计烂完了，白国主堡还不能探索是人吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ArthurDent  
+##### 1659#       发表于 2026-6-17 00:40
+
+xy真就是没资源了砍了吧，啥背景介绍没有
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
