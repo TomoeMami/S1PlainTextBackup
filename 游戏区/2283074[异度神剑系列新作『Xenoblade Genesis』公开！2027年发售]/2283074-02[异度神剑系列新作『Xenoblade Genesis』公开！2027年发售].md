@@ -2033,3 +2033,15 @@ m和n复刻古拉夫算打平，其他的呢，都不是烂了是直接没了
 
 XB3得反派我已经一个都不记得了...我还是完美通关了本体和dlc的
 
+
+*****
+
+####  UltramanPain  
+##### 1670#       发表于 2026-6-17 06:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69788431&amp;ptid=2283074" target="_blank">美军冲滩了吗？ 发表于 2026-6-17 03:56</a>
+XB3得反派我已经一个都不记得了...我还是完美通关了本体和dlc的</blockquote>
+看下现实的以色列，你就记起来了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
