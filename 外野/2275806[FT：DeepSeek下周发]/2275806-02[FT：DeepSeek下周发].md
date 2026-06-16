@@ -3911,3 +3911,65 @@ gpt偶尔也会抓着你说的几个词来回讲，不过ds更明显
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  hugosol  
+##### 1823#       发表于 2026-6-16 19:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69787025&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-6-16 19:09</a>
+
+是用agent,也不怎么写代码吧，主要是用来读表格，读文档，写方案啥的，另外可能帮我查资料，帮我看视频之 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">你都用pi了，当然是自己写个扩展统计一下I/O花费比和缓存命中这些信息自己分析，DeepSeek的API都有返回具体token值，自己算一下就很清晰了
+
+这是我自己在omp上做的效果
+
+<img src="https://img.stage1st.com/forum/202606/16/195657q9yxtprp7x9qy39c.jpg" referrerpolicy="no-referrer">
+
+<strong>cost.jpg</strong> (31.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-16 19:56 上传
+
+*****
+
+####  杀人鲸  
+##### 1824#       发表于 2026-6-16 20:01
+
+电脑上一般可以高频率的体验到比较新的那种思考模式，但是手机上的客户端却好像不怎么能够激活那种东西。
+然而看视频的时候，在评论区发现有人提出，在手机的快速交流模式里面，只要增加上SVG的指示，那么就可以激活那种思考模式，有兴趣的朋友可以体验一下。
+
+在命令的最前面或者最后面加上SVG就好了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  千千千千鸟  
+##### 1825#       发表于 2026-6-16 20:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69787235&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-6-16 19:58</a>
+
+你都用pi了，当然是自己写个扩展统计一下I/O花费比和缓存命中这些信息自己分析，DeepSeek的API都有返回具 ...</blockquote>
+确实，我也写一个试试
+
+
+*****
+
+####  舞以  
+##### 1826#       发表于 2026-6-16 20:03
+
+能在omp里面实现对gpt订阅用量的监控么<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  misuzu0723  
+##### 1827#       发表于 2026-6-16 20:05
+
+知识库应该没更新。让他列举25年重大事件只能列举到4月份
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
