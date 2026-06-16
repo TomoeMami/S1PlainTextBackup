@@ -321,3 +321,16 @@ XG   ⭕
 
 [论坛助手,iPad](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  JOJOROY  
+##### 1512#       发表于 2026-6-16 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69782082&amp;ptid=2283074" target="_blank">VVhaleVoice 发表于 2026-6-15 20:16</a>
+
+XB3 从PV1公布到发售，历时169天，按原定9月发售（参考Splatoon3），211天
+
+XbG应该不会比这个时间长太多 ...</blockquote>
+这次的宣发应该对标Splatoon Raiders和隔壁火纹，都是10个月后才有续报的，如果明年2月直面会的话那就是8个月
+

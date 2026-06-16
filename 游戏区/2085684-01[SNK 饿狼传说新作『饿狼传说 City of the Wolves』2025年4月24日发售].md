@@ -56,3 +56,11 @@
 
 如果真的解包无误，共5个赛季，2-4赛季两年更24个角色结束，只论DLC更新频率和质量应该能算活菩萨级别的良心了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">，明年出弗朗茨还会更一次主线
 
+
+*****
+
+####  蕾丝控  
+##### 729#       发表于 2026-6-16 12:19
+
+给大张正己的一封情书。
+
