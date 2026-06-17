@@ -3374,3 +3374,16 @@ PV里除了新的吉祥物(?)外也明确发现有藏其他亚人种族了
 
 二次元画风的每代的眼睛的细节
 
+
+*****
+
+####  topia  
+##### 1796#       发表于 2026-6-17 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69793885&amp;ptid=2283074" target="_blank">Asimot 发表于 2026-6-17 23:03</a>
+诺亚&amp;mio：我们要打破静止的时间，前往新的世界！
+
+殖民地人&amp;都市人：那我们呢？ ...</blockquote>
+殖民地培养人有现实锚点直接梦醒复活，如果按照xbx的补丁都市人灵魂可能有个地方保存着，排队投胎去了
+至于轮回的记忆之类的细枝末节就打哈哈过去了呗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
