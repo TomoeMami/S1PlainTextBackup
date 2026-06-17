@@ -2332,3 +2332,18 @@ PV1只有30帧，感觉不是动作游戏</blockquote>
 
 —— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  topia  
+##### 1699#       发表于 2026-6-17 11:20
+
+对xbg的地图最大的希望是不要把新巴别塔弄成xb3大剑那种电梯直达的就好<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woaimiyabi  
+##### 1700#       发表于 2026-6-17 11:20
+
+埃塞尔不对梅比乌斯动手的原因不是有吗，提前告诉你了 n用大炮对着 埃塞尔铁巨神的队友跟居民 用他们的安全威胁埃塞尔。
+
