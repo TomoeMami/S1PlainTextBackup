@@ -3025,3 +3025,30 @@ legacy最初应该是本根带着京都的人在那捣鼓
 
 话说前几个月爆出来KOS-MOS的英配也给KOS-MOS配了音，不会就只是XB2升级包佣兵团新模式的语音吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woaimiyabi  
+##### 1766#       发表于 2026-6-17 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69792273&amp;ptid=2283074" target="_blank">竹笙_澪 发表于 2026-6-17 17:03</a>
+
+话说前几个月爆出来KOS-MOS的英配也给KOS-MOS配了音，不会就只是XB2升级包佣兵团新模式的语音吧 ...</blockquote>
+基本上就是了
+
+*****
+
+####  没取名啊  
+##### 1767#       发表于 2026-6-17 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69792199&amp;ptid=2283074" target="_blank">装甲突击者 发表于 2026-6-17 16:51</a>
+说起来有没有高手听出来PV里配音声优都是谁的</blockquote>
+黄毛壮壮应该是阿座上洋平
+
+*****
+
+####  duraa  
+##### 1768#       发表于 2026-6-17 17:21
+
+xb2有个新异刃，xb3有个新英雄，感觉可以期待下<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

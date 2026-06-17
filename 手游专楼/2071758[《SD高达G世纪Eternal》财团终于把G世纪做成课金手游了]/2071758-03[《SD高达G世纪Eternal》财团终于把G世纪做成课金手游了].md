@@ -311,3 +311,11 @@ Z的挑战能给个ssr迪杰吗
 
 没红蛇玩不了一点，这下最强ult了
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4386#       发表于 2026-6-17 17:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">怎么不送凤或者罗莎米亚
+
