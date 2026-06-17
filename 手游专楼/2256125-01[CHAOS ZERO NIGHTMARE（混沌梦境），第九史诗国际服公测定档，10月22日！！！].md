@@ -3420,3 +3420,11 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 通用命座在阶段几的赛季商店 要什么时候能换</blockquote>
 一个赛季分三阶段，每阶段21天，第二阶段就有通用命座
 
+
+*****
+
+####  FBC档案部专员  
+##### 1060#       发表于 2026-6-18 02:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">20000多水晶才抽到0+1市长
+
