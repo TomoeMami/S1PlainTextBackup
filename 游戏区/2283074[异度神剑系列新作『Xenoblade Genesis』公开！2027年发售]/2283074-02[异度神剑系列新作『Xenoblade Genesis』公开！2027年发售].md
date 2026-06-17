@@ -2847,3 +2847,117 @@ xb3开发周期我不了解，但如果考虑疫 ...</blockquote>
 
 那张图就是拔剑女剑士 + 鲜红色巨龙的概念画（另一张是废墟和骑士场景）。
 
+
+*****
+
+####  装甲突击者  
+##### 1749#       发表于 2026-6-17 16:37
+
+[在17年底到18年Monolith短暂处于三开状态，要是legacy也是那个时期那有点超人了](https://stage1st.com/2b/thread-1937015-1-1.html)
+
+*****
+
+####  Asimot  
+##### 1750#       发表于 2026-6-17 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69792059&amp;ptid=2283074" target="_blank">狸狸狐 发表于 2026-6-17 16:30</a>
+
+如果“中世纪拔剑女骑士和龙”真的是xbg前身，那就是17年或者更早了了。
+
+2017年7月 —— Monolith Soft  ...</blockquote>
+啊，那个插画和招募我知道，原来真的有这样的演化吗？
+
+那这么说上面帖子本根康之的话是不是真的意有所指呢...
+
+一个游戏项目太久确实可能不是好事情...
+
+*****
+
+####  topia  
+##### 1751#       发表于 2026-6-17 16:37
+
+ 本帖最后由 topia 于 2026-6-17 16:39 编辑 
+
+看看远方的PROJECT Re FANTASY吧，那个是16年12月份的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+プロジェクトは，<strong>“真なる幻想世界（ファンタジー）への回帰”</strong>をテーマとした，<strong>“新たな王道”</strong>を描くRPGになるという。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+希望不要步a社的后尘<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狸狸狐  
+##### 1752#       发表于 2026-6-17 16:40
+
+<blockquote>topia 发表于 2026-6-17 16:37
+看看远方的PROJECT Re FANTASY吧，那个是16年12月份的
+
+プロジェクトは，“真なる幻想世界（ファンタジー） ...</blockquote>
+暗喻幻想是吧。要我说xbg女主比暗喻女主更像有那个概念图的味道。
+
+*****
+
+####  woaimiyabi  
+##### 1753#       发表于 2026-6-17 16:41
+
+这次这么多海 能否游泳跨大陆 类似xbx。
+
+
+*****
+
+####  Asimot  
+##### 1754#       发表于 2026-6-17 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69792108&amp;ptid=2283074" target="_blank">装甲突击者 发表于 2026-6-17 16:37</a>
+
+在17年底到18年Monolith短暂处于三开状态，要是legacy也是那个时期那有点超人了 ...</blockquote>
+我看那个说法应该是黄金国伊拉、1代决定版，如果是三作开发同时的话，剩下那个是3的可能性更大吧？
+
+要这么说xbg的早期开发比3还早了。
+
+或者说确实有伊拉、1决定版和legacy同时开发的时期，然后legacy搁置，转入3的开发也不是不可能。
+
+*****
+
+####  shiko  
+##### 1755#       发表于 2026-6-17 16:44
+
+18年左右小红帽立项，到22年因为各种原因没做成，已有的技术积累变成项目legecy，然后敲定为异度续作
+
+应该就这个流程吧。
+
+—— 来自 vivo V2507A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  superlink  
+##### 1756#       发表于 2026-6-17 16:45
+
+legacy最初应该是本根带着京都的人在那捣鼓
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
+*****
+
+####  topia  
+##### 1757#       发表于 2026-6-17 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69792132&amp;ptid=2283074" target="_blank">狸狸狐 发表于 2026-6-17 16:40</a>
+
+暗喻幻想是吧。要我说xbg女主比暗喻女主更像有那个概念图的味道。</blockquote>
+希望这个【異なる意欲的なプロジェクト】真的能实现吧
+
+别开发这么多年最后和a社一样推倒重来端出一个回归舒适区间的作品出来
+
+*****
+
+####  Asimot  
+##### 1758#       发表于 2026-6-17 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69792163&amp;ptid=2283074" target="_blank">topia 发表于 2026-6-17 16:45</a>
+
+希望这个【異なる意欲的なプロジェクト】真的能实现吧
+
+别开发这么多年最后和a社一样推倒重来端出一个回归 ...</blockquote>
+从pv上看不是已经很舒适了嘛（
+
