@@ -795,3 +795,14 @@ b站视频下面还有吹相当于火纹之于老任可以丰富产品线的呢
 
 要是当年粉丝们买爆掠食，奥斯丁的艺术家们还会被迫做完全不适合他们风格的惊天雷作最后暴毙解散么？奈何呀<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ybfelix  
+##### 83#       发表于 2026-6-17 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69789633&amp;ptid=2283583" target="_blank">陈八尺 发表于 2026-6-17 10:44</a>
+
+要是当年粉丝们买爆掠食，奥斯丁的艺术家们还会被迫做完全不适合他们风格的惊天雷作最后暴毙解散么？奈何呀 ...</blockquote>
+说起来Dishonored也算是十七到十九世纪风味奇幻英伦，和我楼上讲的发条革命，We Happy Few画风上也泛泛地算一大类里吧，结果也卖不动。也许奇幻英国的卖相就是不行，甚至刺客信条枭雄的人气都是系列低谷，这样玄学说来神鬼寓言的前景也有些可疑... <img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
