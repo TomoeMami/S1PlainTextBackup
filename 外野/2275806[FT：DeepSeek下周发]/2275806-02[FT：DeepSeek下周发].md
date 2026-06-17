@@ -4122,3 +4122,14 @@ flash 和 pro 写小说的差别大不大
 论坛助手,iPhone</blockquote>
 tokscale就行
 
+
+*****
+
+####  小川彩  
+##### 1841#       发表于 2026-6-17 15:47
+
+问楼友一个问题，现在公司内部要开发一个agent，前端到时候估计是网页，需要支持多用户多对话和配置一些环境变量，后端的agent需要支持mcp/tool calling/skills/subagent or multiagent，然后会接自有的openai llm api
+不想自己从头开发的话用什么比较好？我理解前段功能大体上估计是要vibe一个垃圾页面，后端agent选什么比较好？oh-my-pi吗？还是其他的？codex？cc？
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
