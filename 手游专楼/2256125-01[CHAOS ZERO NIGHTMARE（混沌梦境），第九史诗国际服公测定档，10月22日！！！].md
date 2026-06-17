@@ -3428,3 +3428,18 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 
 <img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">20000多水晶才抽到0+1市长
 
+
+*****
+
+####  鹅大人  
+##### 1061#       发表于 2026-6-18 04:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69793220&amp;ptid=2256125" target="_blank">御姐控之耻 发表于 2026-6-17 20:34</a>
+没，我只是在想抽专武然后直接400个材料换1ego，比换专武然后等两周换1ego感觉更划算一些。
+
+也就是多花 ...</blockquote>
+如果你说的楼上的坛友的话。他只有300多材料。
+70抽保底抽个专武，保底只有28个材料<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+专武池是保底四星伙伴，重复四星伙伴只给4个，重复四星战斗员给4个，抽到满命座四星给10个。
+你这个凑到400的期望太低了。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
