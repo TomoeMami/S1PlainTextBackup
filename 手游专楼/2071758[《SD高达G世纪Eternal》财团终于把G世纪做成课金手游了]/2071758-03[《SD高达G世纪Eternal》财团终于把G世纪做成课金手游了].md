@@ -319,3 +319,13 @@ Z的挑战能给个ssr迪杰吗
 
 <img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">怎么不送凤或者罗莎米亚
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 4387#       发表于 2026-6-17 18:49
+
+<blockquote>王俊凯 发表于 2026-6-17 15:30
+hard的3个关自动打不了一点，只能手操一下了，送的阿姆罗和神经病立马服役完全救济 ...</blockquote>
+可以先不打隐藏自动挂的过去
+
