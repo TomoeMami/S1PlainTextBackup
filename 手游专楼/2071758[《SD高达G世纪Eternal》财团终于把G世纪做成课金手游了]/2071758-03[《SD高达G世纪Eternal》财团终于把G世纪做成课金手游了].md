@@ -285,3 +285,14 @@ Z的挑战能给个ssr迪杰吗
 
 精神病真不行，阿姆罗倒能凑合能用一下
 
+
+*****
+
+####  马桶3  
+##### 4383#       发表于 2026-6-17 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69791439&amp;ptid=2071758" target="_blank">AminGly 发表于 2026-6-17 14:46</a>
+
+看笑了 b站那个白夜说无正比命运强</blockquote>
+做SD高达机体测评的基本无视就可以了，也就低配永恒作业有点价值
+
