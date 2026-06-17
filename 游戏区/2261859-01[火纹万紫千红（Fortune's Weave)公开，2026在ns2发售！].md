@@ -2588,3 +2588,24 @@ https://www.youtube.com/watch?v=2MUnb_q ...</blockquote>
 
 救命啊不要穿越，别的rpg我嫌王道剧情土，火纹这我真的想就要个普通王道剧情
 
+
+*****
+
+####  二十二颗牛油果  
+##### 949#       发表于 2026-6-17 21:49
+
+时间穿越要素吗，那有无可能既是前传也是后传<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  han110022  
+##### 950#       发表于 2026-6-17 21:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69793341&amp;ptid=2261859" target="_blank">duraa 发表于 2026-6-17 21:00</a>
+
+今天发的片佣兵团好像还在？计策能直接打死人了，这代map好多啊
+
+https://www.youtube.com/watch?v=2MUnb_q ...</blockquote>
+PV1就有的，只有女王能用
+
