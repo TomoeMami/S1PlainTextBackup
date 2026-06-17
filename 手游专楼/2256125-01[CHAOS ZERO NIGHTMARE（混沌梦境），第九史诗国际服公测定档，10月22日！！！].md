@@ -3317,3 +3317,25 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 
 打起来很难不笑出声
 
+
+*****
+
+####  御姐控之耻  
+##### 1051#       发表于 2026-6-17 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69792887&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2026-6-17 19:20</a>
+从性价比角度来看抽专武是肯定不如直接换的，除非你副产物不够换不了</blockquote>
+副产物不是拿去换角色的ego更好吗？
+
+*****
+
+####  三谷歩夢  
+##### 1052#       发表于 2026-6-17 19:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69792997&amp;ptid=2256125" target="_blank">御姐控之耻 发表于 2026-6-17 19:51</a>
+
+副产物不是拿去换角色的ego更好吗？</blockquote>
+目前除了限定都不建议硬冲命座，除非你认准了某个普池角色非用不可，而且这个角色又是高命战士，何况普池是可以靠普池抽歪出来的
+
+限定的话天使和市长都是2命就已经很够用了，天使已经差不多退环境了不考虑，就剩下市长了，靠通用命座就已经足够
+
