@@ -3132,3 +3132,31 @@ xb2的ns2版能和xb1一样全语音吗，那就爽了<img src="https://static.s
 
 在这个距离上还要进行lod分级加载，至少说明眼前这块大陆上的所有区域是可以无缝探索过去的。
 
+
+*****
+
+####  UltramanPain  
+##### 1777#       发表于 2026-6-17 18:42
+
+b站看到一个评论说异度神剑创世的人设之一palow从初中时期开始就是整个异度系列的粉丝了，当时给xb3设计dlc角色的时候就在直播里非常开心的提这事，这次直接参与到主线里了
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  woaimiyabi  
+##### 1778#       发表于 2026-6-17 18:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69791324&amp;ptid=2283074" target="_blank">lilod 发表于 2026-6-17 14:29</a>
+
+我只是觉得 100% 包有骑龙的</blockquote>
+这玩意上面有个缺口 一看就能进去，确实大概率是有飞行坐骑。
+
+<img src="https://img.stage1st.com/forum/202606/17/184254hc1bh2x3clo630bs.png" referrerpolicy="no-referrer">
+
+<strong>df19f6c0-635e-407d-bf99-297c92d22238.png</strong> (523.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-17 18:42 上传
+
