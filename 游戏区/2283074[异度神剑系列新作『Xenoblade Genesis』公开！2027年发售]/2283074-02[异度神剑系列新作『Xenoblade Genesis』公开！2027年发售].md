@@ -3387,3 +3387,21 @@ PV里除了新的吉祥物(?)外也明确发现有藏其他亚人种族了
 殖民地培养人有现实锚点直接梦醒复活，如果按照xbx的补丁都市人灵魂可能有个地方保存着，排队投胎去了
 至于轮回的记忆之类的细枝末节就打哈哈过去了呗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lilod  
+##### 1797#       发表于 2026-6-17 23:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69793886&amp;ptid=2283074" target="_blank">狸狸狐 发表于 2026-6-17 23:03</a>
+
+二次元画风的每代的眼睛的细节</blockquote>
+我觉得女主的眼睛更好看
+
+*****
+
+####  whzfjd  
+##### 1798#       发表于 2026-6-17 23:55
+
+大部分始源这种设定的作品都是把本体炸死拉倒，xb3真是处处朝着高阻力的方向去写，唯独反派品格被一脚踹死<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
