@@ -2563,3 +2563,28 @@ https://www.youtube.com/watch?v=2MUnb_q ...</blockquote>
 
 感觉这个斗技场只是前半，然后中途发生变故又是一条好几年。
 
+
+*****
+
+####  Nez  
+##### 946#       发表于 2026-6-17 21:37
+
+据说英文官网简介有时间穿越（time-travelling）要素
+
+*****
+
+####  lqn870727  
+##### 947#       发表于 2026-6-17 21:41
+
+不是，高山南现在一说话就柯南吗，这也太出戏了吧，今天这视频我闭着眼睛听感觉就是柯南在说话，但是前面宣传pv味道也没这么浓啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  u2deack  
+##### 948#       发表于 2026-6-17 21:43
+
+救命啊不要穿越，别的rpg我嫌王道剧情土，火纹这我真的想就要个普通王道剧情
+
