@@ -3177,3 +3177,13 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">230抽市长0+1，感觉自己在抽鸣潮，更不想氪金了擦
 
+
+*****
+
+####  TheOccuria  
+##### 1039#       发表于 2026-6-17 16:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国服不是送俩奥米加单元吗，直接给市长用了吧，反正每个赛季能兑换一个也没啥好省的
+
+国际服今天出的那个新角色强度怎么样
+
