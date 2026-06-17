@@ -606,3 +606,34 @@ XBOX已经是个loser了，你骂一个loser没多大意义
 忍者理论本来能做出新鬼泣这个还不错的游戏，不知发什么狂死磕癔症女，死吧 ...</blockquote>
 高估了游戏受众，大部分非主流游戏只适合出一次，比如地狱之刃，死亡搁浅，识质存在
 
+
+*****
+
+####  缺德猫  
+##### 64#       发表于 2026-6-17 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69789046&amp;ptid=2283583" target="_blank">哈罗 发表于 2026-6-17 09:27</a>
+
+高估了游戏受众，大部分非主流游戏只适合出一次，比如地狱之刃，死亡搁浅，识质存在 ...</blockquote>
+地狱之刃配和另外两个放一起？别笑死人
+
+*****
+
+####  卡拉德利姆  
+##### 65#       发表于 2026-6-17 09:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69789088&amp;ptid=2283583" target="_blank">缺德猫 发表于 2026-6-17 09:36</a>
+
+地狱之刃配和另外两个放一起？别笑死人</blockquote>
+你猜忍者理论的自信心怎么来的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外微软给忍者理论续命的法子是让他们公布一个褒姒ip的续集，也是非常的惊世智慧了
+
+
+*****
+
+####  Dreammask  
+##### 66#       发表于 2026-6-17 09:41
+
+asha的惊世智慧，大家就学吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
