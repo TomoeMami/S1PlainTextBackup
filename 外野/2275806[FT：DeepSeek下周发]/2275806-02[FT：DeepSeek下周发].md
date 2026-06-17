@@ -4133,3 +4133,24 @@ tokscale就行
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  真红之闪电  
+##### 1842#       发表于 2026-6-17 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69788746&amp;ptid=2275806" target="_blank">zephyrus99 发表于 2026-6-17 08:21</a>
+感觉上，厂商们又需要找方向了
+
+现在每个月都出版本，然后号称能力如何如何。但是对于我这种普通用户来说， ...</blockquote>
+跑跑深度研究就知道，确实比 之前他家的模型好。反正这两天不能用我又回 4.6 了。我没做代码，Claude 只跑决策，能用的两天基本上跑满了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  阿刚  
+##### 1843#       发表于 2026-6-17 16:19
+
+4f不行啊，对话虽然有活人感但是智力感觉不是很高的样子，理解能力反而下降了
+
