@@ -3253,3 +3253,14 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 现在抽到了1+0  还有300多个货币，100多抽，应该怎么办，用赛季商店的命座换2命？要不要抽专武还是直接换》 ...</blockquote>
 市长吗，直接通用命座升2命，专武能换就换
 
+
+*****
+
+####  christiny  
+##### 1045#       发表于 2026-6-17 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69792333&amp;ptid=2256125" target="_blank">就不的 发表于 2026-6-17 17:17</a>
+
+现在抽到了1+0  还有300多个货币，100多抽，应该怎么办，用赛季商店的命座换2命？要不要抽专武还是直接换》 ...</blockquote>
+换专武，不要抽专武。抽专武池子血亏。
+

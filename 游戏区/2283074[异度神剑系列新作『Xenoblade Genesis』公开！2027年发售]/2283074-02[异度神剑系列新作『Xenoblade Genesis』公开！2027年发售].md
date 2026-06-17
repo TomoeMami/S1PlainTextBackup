@@ -3086,3 +3086,22 @@ xb2的ns2版能和xb1一样全语音吗，那就爽了<img src="https://static.s
 
 好像没人特别提起，我觉得xb3最大泪点是N前世在儿子面前化为粒子消失那段，确实是把我给看哭了
 
+
+*****
+
+####  海晟天锻  
+##### 1773#       发表于 2026-6-17 17:51
+
+有人听出来白毛精灵女是谁了吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  shiko  
+##### 1774#       发表于 2026-6-17 17:51
+
+<blockquote>MrlOst 发表于 2026-6-17 17:46
+好像没人特别提起，我觉得xb3最大泪点是N前世在儿子面前化为粒子消失那段，确实是把我给看哭了 ...</blockquote>
+当年提过，n那个想笑又笑不出来，不想在儿子面前哭只能抱住儿子不让儿子看到哭脸的演出实在是太牛逼了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
