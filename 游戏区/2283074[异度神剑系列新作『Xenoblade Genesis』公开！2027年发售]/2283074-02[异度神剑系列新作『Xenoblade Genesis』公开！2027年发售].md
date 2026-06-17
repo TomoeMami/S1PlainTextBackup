@@ -2388,3 +2388,26 @@ PV1只有30帧，感觉不是动作游戏</blockquote>
 
 —— 来自 vivo V2507A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  装甲突击者  
+##### 1705#       发表于 2026-6-17 11:50
+
+个人觉得3代就是有的剧情头尾我能理解要表达什么意思/概念，但是中间填的剧情让我有点难评
+
+
+*****
+
+####  竹笙_澪  
+##### 1706#       发表于 2026-6-17 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69790182&amp;ptid=2283074" target="_blank">shiko 发表于 2026-6-17 11:42</a>
+
+我觉得也谈不上什么一头雾水，要表达的东西很明显，但问题就是在于说一千道一万你大敌当前为什么要在这里把 ...</blockquote>
+要表达的东西确实很明显，一头雾水就是指这个演出做得让玩家无论看几次都会觉得迷惑
+
+但考虑到剧情里不管主角还是敌人都难以理解且无法接受，只能说高桥就是想要这种效果，不然就会让主角能接受了，相对的高桥留了一手说主角（玩家）现在无法理解，但将来一定能接受，but后来noah理解了玩家还是难以接受那么问题就大了<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+还有个很割裂的地方是高桥在这段剧情后给埃塞尔的收尾剧情居然是和深南火上演重生父女之你是我的眼，搞甜蜜卿卿我我戏份，喷了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
