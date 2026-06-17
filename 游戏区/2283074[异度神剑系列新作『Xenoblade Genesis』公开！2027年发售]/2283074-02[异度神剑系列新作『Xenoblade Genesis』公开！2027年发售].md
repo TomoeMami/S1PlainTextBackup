@@ -3405,3 +3405,21 @@ PV里除了新的吉祥物(?)外也明确发现有藏其他亚人种族了
 
 大部分始源这种设定的作品都是把本体炸死拉倒，xb3真是处处朝着高阻力的方向去写，唯独反派品格被一脚踹死<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蓝雉  
+##### 1799#       发表于 2026-6-18 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69793067&amp;ptid=2283074" target="_blank">ParadiseMartyr 发表于 2026-6-17 20:08</a>
+反正最后都重置了，世界重组了。
+一直不知道最后怎么处理都市人，意思是他们心甘情愿自己消失？</blockquote>
+参考哆啦A梦第一话
+
+*****
+
+####  不再乱发炎了  
+##### 1800#       发表于 2026-6-18 00:30
+
+不知道之前有人讨论过logo没有，每代logo的小设计都涉及游戏核心，新作logo看起来是偏紫色的矿石材质再配点碎屑的感觉，是指的那些晶石是故事核心么
+
