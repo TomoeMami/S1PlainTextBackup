@@ -2517,3 +2517,13 @@ PV1只有30帧，感觉不是动作游戏</blockquote>
 你还想要跳跳乐吗？</blockquote>
 跳跳乐好歹有得玩，电梯直达还是太无聊了
 
+
+*****
+
+####  Acerola  
+##### 1717#       发表于 2026-6-17 13:49
+
+漏油也都是莫比乌斯吗，还在讨论xb3那点事。xb3就当个承上启下的过渡作就让他过去吧<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">。打完DLC之后感觉好点了，倒也不是说和解，可能是没那么在意了吧，转过头来觉得与其纠结这个结局还是期待一下新作比较好，某种意义上也算是和xb3的主题互相理解了
+
+—— 来自 OPPO PLJ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
