@@ -3455,3 +3455,15 @@ Logo和尼亚mio的核心颜色差不多，粉红天蓝，但是没有深蓝
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  sin.yugi  
+##### 1804#       发表于 2026-6-18 05:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69792199&amp;ptid=2283074" target="_blank">装甲突击者 发表于 2026-6-17 03:51</a>
+说起来有没有高手听出来PV里配音声优都是谁的</blockquote>
+男女主 松岗 / 小松未可子 比较明显
+
+— from nubia NX809J, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
