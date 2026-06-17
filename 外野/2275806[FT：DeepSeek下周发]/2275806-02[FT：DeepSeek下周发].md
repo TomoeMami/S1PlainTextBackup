@@ -4059,3 +4059,14 @@ ccusage 支持统计 pi，按理来说也支持 omp
 
 而且现在 codex app 里的统计是全局的，你直接看那个可能也行（只要是自己账号不是走中转站的话
 
+
+*****
+
+####  千千千千鸟  
+##### 1835#       发表于 2026-6-17 08:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69788329&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-6-17 01:22</a>
+
+GPT plus如果coding或者处理/输出大量资料还是不太够用的，个人体感是肯定没有175块的deepseek v4 pro耐 ...</blockquote>
+我看到个方法正在尝试：硅基流动在搞活动，邀请一个人给16元赠金卡，咸鱼买一个人邀请6.5元。先薅到硅基流动结束dsv4p的打折再考虑别的方式
+
