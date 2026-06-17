@@ -3200,3 +3200,16 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 国际服今天出的那个新 ...</blockquote>
 机制很花的角色都差不到哪去，等开发吧
 
+
+*****
+
+####  wthall  
+##### 1041#       发表于 2026-6-17 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69791956&amp;ptid=2256125" target="_blank">TheOccuria 发表于 2026-6-17 16:13</a>
+
+国服不是送俩奥米加单元吗，直接给市长用了吧，反正每个赛季能兑换一个也没啥好省的
+
+国际服今天出的那个新 ...</blockquote>
+啥时候送？
+

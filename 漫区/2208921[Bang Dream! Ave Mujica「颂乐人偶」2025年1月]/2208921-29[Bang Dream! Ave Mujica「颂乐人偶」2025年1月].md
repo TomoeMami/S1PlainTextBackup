@@ -413,3 +413,82 @@ Blu-ray生产限定版：9,900日元（含税）
 
        [https://t.co/ZTuFfkcd5C](https://t.co/ZTuFfkcd5C)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41914#       发表于 2026-6-17 16:33
+
+       <strong>[JMAX] [2026.06.17] BanG Dream! Ave Mujica ベストアルバム「Ave Música」[FLAC 96kHz/24bit]【1.3GB】</strong> <blockquote>簡介: 
+<img src="https://i.ibb.co/pB3NtTQd/Cover.jpg" referrerpolicy="no-referrer">
+<img src="https://i.ibb.co/d4Kk6VC0/Cover.jpg" referrerpolicy="no-referrer">
+
+racklist
+
+01. KiLLKiSS (TVアニメ「BanG Dream! Ave Mujica」OPテーマ)
+
+02. Symbol I：△
+
+03. The Whole Blue World
+
+04. 顔 (TVアニメ「BanG Dream! Ave Mujica」第13話挿入歌)
+
+05. Georgette Me, Georgette You (TVアニメ「BanG Dream! Ave Mujica」EDテーマ)
+
+06. Symbol II：Air
+
+07. DIVINE (ゲーム「PROGRESS ORDERS」OPテーマ)
+
+08. 碧い瞳の中に
+
+09. 黒のバースデイ
+
+10. 八芒星ダンス (TVアニメ「BanG Dream! Ave Mujica」第13話挿入歌)
+
+11. 素晴らしき世界 でも どこにもない場所
+
+12. Choir ‘S’ Choir
+
+13. 天球のMúsica (TVアニメ「BanG Dream! Ave Mujica」第13話挿入歌)
+
+14. Imprisoned XII (TVアニメ「BanG Dream! Ave Mujica」第10話挿入歌)
+
+15. Ether
+
+歌 : Ave Mujica[ドロリス(三角初華)(CV.佐々木李子)、モーティス(若葉睦)(CV.渡瀬結月)、ティモリス(八幡海鈴)(CV.岡田夢以)、アモーリス(祐天寺にゃむ)(CV.米澤茜)、オブリビオニス(豊川祥子)(CV.高尾奏音)]</blockquote>
+       [https://share.dmhy.org/topics/vi ... AC_96kHz_24bit.html](https://share.dmhy.org/topics/view/721018_JMAX_2026_06_17_BanG_Dream%21_Ave_Mujica_Ave_M_sica_FLAC_96kHz_24bit.html)
+
+       Magnet連接: magnet:?xt=urn:btih:MRZPUJOUXYNQ2WPDU7EEL5RKQLURBQUV
+
+       Magnet連接typeII: magnet:?xt=urn:btih:6472fa25d4be1b0d59e3a7c845f62a82e910c295
+
+*****
+
+####  堀内爱里衣  
+##### 41915#       发表于 2026-6-17 16:33
+
+       <strong>『BanG Dream!』Ave Mujica Best专辑「Ave Música」【无损Hi-Res】</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202606/17/163351sj55srufzd4nffqq.jpg" referrerpolicy="no-referrer">
+
+<strong>d544012db4439f6e184073e1fd2b37f2e3f031ad.jpg</strong> (126.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-17 16:33 上传
+
+天使动漫自购
+
+Ave Mujica[三角初華(CV.佐々木李子)、若葉睦(CV.渡瀬結月)、八幡海鈴(CV.岡田夢以)、祐天寺にゃむ(CV.米澤茜)、豊川祥子(CV.高尾奏音)]
+
+Ave Mujicaより、完全新曲1曲を含む、全15曲収録のベストアルバムがリリース。
+
+「KiLLKiSS」「Symbol I : △」といった代表曲をはじめ、Ave Mujicaの多彩な魅力が感じられる楽曲を厳選収録。
+
+Ave Mujicaの世界観を一枚に凝縮したベストアルバム。
+
+新曲「The Whole Blue World」が映し出す、新たなAve Mujicaの物語にも注目してほしい。
+
+【仅供试听，如何正确支持日本原版动漫音乐请看评论】</blockquote>
+       [https://www.bilibili.com/video/BV1EVLQ6JE64/](https://www.bilibili.com/video/BV1EVLQ6JE64/)
+
