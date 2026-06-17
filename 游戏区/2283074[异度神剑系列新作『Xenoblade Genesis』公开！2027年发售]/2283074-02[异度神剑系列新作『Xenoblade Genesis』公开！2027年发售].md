@@ -2999,3 +2999,29 @@ legacy最初应该是本根带着京都的人在那捣鼓
 
 在现有的战斗基础上加闪避或格挡操作，攻击部位有判定，有交互，怪的招式能躲掉，应该也能算是一种动作游戏
 
+
+*****
+
+####  没取名啊  
+##### 1763#       发表于 2026-6-17 16:58
+
+必不可能有配种，你看pv里学校不是npc脸的角色两只手就数的过来
+
+
+*****
+
+####  竹笙_澪  
+##### 1764#       发表于 2026-6-17 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69792199&amp;ptid=2283074" target="_blank">装甲突击者 发表于 2026-6-17 16:51</a>
+
+说起来有没有高手听出来PV里配音声优都是谁的</blockquote>
+男主是松岗，女主应该是小松未可子吧，另外一个男的似乎是岛崎信长
+
+*****
+
+####  竹笙_澪  
+##### 1765#       发表于 2026-6-17 17:03
+
+话说前几个月爆出来KOS-MOS的英配也给KOS-MOS配了音，不会就只是XB2升级包佣兵团新模式的语音吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

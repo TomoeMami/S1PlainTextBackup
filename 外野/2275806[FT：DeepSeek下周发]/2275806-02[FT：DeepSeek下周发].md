@@ -4154,3 +4154,13 @@ tokscale就行
 
 4f不行啊，对话虽然有活人感但是智力感觉不是很高的样子，理解能力反而下降了
 
+
+*****
+
+####  有鱼  
+##### 1844#       发表于 2026-6-17 17:04
+
+omp更新咋嫩快<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+每天第一次打开终端都得敲一次omp update
+
