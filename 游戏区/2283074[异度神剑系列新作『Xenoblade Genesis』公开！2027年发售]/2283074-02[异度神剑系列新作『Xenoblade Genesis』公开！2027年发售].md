@@ -3325,3 +3325,52 @@ PV里除了新的吉祥物(?)外也明确发现有藏其他亚人种族了
 
 —— 来自 vivo V2507A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Asimot  
+##### 1794#       发表于 2026-6-17 23:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69793067&amp;ptid=2283074" target="_blank">ParadiseMartyr 发表于 2026-6-17 20:08</a>
+
+反正最后都重置了，世界重组了。
+
+一直不知道最后怎么处理都市人，意思是他们心甘情愿自己消失？</blockquote>
+诺亚&amp;mio：我们要打破静止的时间，前往新的世界！
+
+殖民地人&amp;都市人：那我们呢？
+
+*****
+
+####  狸狸狐  
+##### 1795#       发表于 2026-6-17 23:03
+
+<img src="https://img.stage1st.com/forum/202606/17/230308hzehfbwe20p0dd4d.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260617_230021.jpg</strong> (46.34 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-17 23:03 上传
+
+<img src="https://img.stage1st.com/forum/202606/17/230308lke7peacg37c3nci.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260617_225919.jpg</strong> (27.96 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-17 23:03 上传
+
+<img src="https://img.stage1st.com/forum/202606/17/230309jn0bri73qqiwup7r.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260617_225741.jpg</strong> (13.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-17 23:03 上传
+
+二次元画风的每代的眼睛的细节
+
