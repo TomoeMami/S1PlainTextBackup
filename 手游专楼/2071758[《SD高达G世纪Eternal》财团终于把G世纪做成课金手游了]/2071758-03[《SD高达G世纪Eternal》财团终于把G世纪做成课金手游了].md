@@ -222,3 +222,14 @@ Z高难也要来了，会送ssr天鹅么，空中高难想想也头疼
 主要是wz援防很烦，不能提前杀了他</blockquote>
 3次援防消耗掉就好了
 
+
+*****
+
+####  洛克萨斯  
+##### 4376#       发表于 2026-6-17 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69788888&amp;ptid=2071758" target="_blank">卡奥斯·克斯拉 发表于 2026-6-17 08:58</a>
+
+3次援防消耗掉就好了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我把他拉到上面只有重装和神龙能吃援防，消耗不掉的，最后还是把他耗残先杀颠婆再补刀他
+
