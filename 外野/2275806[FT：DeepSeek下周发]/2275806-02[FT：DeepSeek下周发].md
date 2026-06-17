@@ -4103,3 +4103,22 @@ A畜那个F开头的模型，我听好几个程序员同事吹，说他试了一
 
 flash 和 pro 写小说的差别大不大
 
+
+*****
+
+####  →熙←  
+##### 1839#       发表于 2026-6-17 11:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4.1快来,glm5.2要杀疯了
+
+*****
+
+####  astkaasa  
+##### 1840#       发表于 2026-6-17 11:59
+
+<blockquote>舞以 发表于 2026-6-16 20:03
+能在omp里面实现对gpt订阅用量的监控么
+
+论坛助手,iPhone</blockquote>
+tokscale就行
+
