@@ -2506,3 +2506,14 @@ PV1只有30帧，感觉不是动作游戏</blockquote>
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  topia  
+##### 1716#       发表于 2026-6-17 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69790704&amp;ptid=2283074" target="_blank">ZOHAR=往世之痕 发表于 2026-6-17 12:55</a>
+
+你还想要跳跳乐吗？</blockquote>
+跳跳乐好歹有得玩，电梯直达还是太无聊了
+
