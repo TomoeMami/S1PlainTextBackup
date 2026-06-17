@@ -4198,3 +4198,26 @@ codex cc pi这些local codi ...</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  lowezack  
+##### 1847#       发表于 2026-6-17 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=69792370&amp;amp;ptid=2275806" target="_blank">小川彩 发表于 2026-6-17 17:23</a>
+简单来说是个分析agent 一些代码的执行都有远端mcp代劳 主要是一些workflow化/human in the loop/rag召回 ...</blockquote>
+接opencode，他的前端和内核交互是通过http做的，我感觉你可以直接拿来用的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 小川彩 + 1我去研究一下
+
+查看全部评分
+

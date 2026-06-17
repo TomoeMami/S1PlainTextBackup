@@ -3052,3 +3052,20 @@ legacy最初应该是本根带着京都的人在那捣鼓
 
 xb2有个新异刃，xb3有个新英雄，感觉可以期待下<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DancingAndy  
+##### 1769#       发表于 2026-6-17 17:31
+
+xb2的ns2版能和xb1一样全语音吗，那就爽了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shiko  
+##### 1770#       发表于 2026-6-17 17:31
+
+盲猜牢真/牢灭，牢玛/牢a
+
+—— 来自 vivo V2507A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
