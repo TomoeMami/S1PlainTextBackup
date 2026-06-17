@@ -826,3 +826,15 @@ prey是首发bug多到无法通关，ign编辑因为掉档怒打4分，创始人
 
 这么一看黑曜石才是xbox的中流砥柱啊，这些年兢兢业业出了这么多游戏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 86#       发表于 2026-6-17 22:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69788984&amp;ptid=2283583" target="_blank">moonblackwh 发表于 2026-6-17 09:17</a>
+
+微软真的纯废物，忍者理论是能做大众化游戏的，偏偏要放任它去做高成本小众精神病模拟器追求艺术。阿肯是能 ...</blockquote>
+不是等一下，你软买Zenimax的时候红霞岛都做差不多了，这锅真不能背吧
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最多斯宾塞背个品味屌差这玩意好意思吹内部高分的锅。
+
