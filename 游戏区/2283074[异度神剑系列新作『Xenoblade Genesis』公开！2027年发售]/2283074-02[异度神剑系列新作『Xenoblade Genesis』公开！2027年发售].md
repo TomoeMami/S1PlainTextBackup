@@ -2064,3 +2064,26 @@ XB3得反派我已经一个都不记得了...我还是完美通关了本体和dl
 
 这次也是3男3女3CP么，但这样不就和XB3一样了。能不能6人多角恋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woaimiyabi  
+##### 1673#       发表于 2026-6-17 07:51
+
+<img src="https://img.stage1st.com/forum/202606/17/075120vextrie1x4cjv4v6.png" referrerpolicy="no-referrer">
+
+<strong>588e6d8e-d4a7-4e06-bc7d-fedd30ce5512.png</strong> (40.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-17 07:51 上传
+
+这两个是什么玩意 是在海里 还是在天上，看不明白。
+
+*****
+
+####  1wq1  
+##### 1674#       发表于 2026-6-17 07:54
+
+玩多角恋还不如走火纹那种自己组cp的模式，正好泥潭不是觉得xbg很像三房吗
+
