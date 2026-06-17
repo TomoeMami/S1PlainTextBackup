@@ -2524,3 +2524,11 @@ https://www.amazon.co.jp/%E3%83%95%E3%82%A1%E3%82%A4%E3%82%A2%E3%83%BC%E3%82%A8%
 
 [https://www.youtube.com/watch?v=2MUnb_q6X3s](https://www.youtube.com/watch?v=2MUnb_q6X3s)
 
+
+*****
+
+####  u2deack  
+##### 942#       发表于 2026-6-17 21:14
+
+都能开地图炮了怕不是要给你堆怪加倍拉满，engage我都要吐了再来无限增援有点不想玩了
+

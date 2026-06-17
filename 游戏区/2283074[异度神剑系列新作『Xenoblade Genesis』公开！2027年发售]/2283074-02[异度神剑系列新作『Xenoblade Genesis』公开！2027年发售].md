@@ -3313,3 +3313,15 @@ PV里除了新的吉祥物(?)外也明确发现有藏其他亚人种族了
 
 —— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  shiko  
+##### 1793#       发表于 2026-6-17 21:13
+
+一代上来没聊几句就开始“你好像加德啊”，凑这俩的心昭然若揭了属于是
+
+不如说后面加德复活出来演一段纯粹就是为了名正言顺的把卡露娜交给莱恩（）
+
+—— 来自 vivo V2507A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

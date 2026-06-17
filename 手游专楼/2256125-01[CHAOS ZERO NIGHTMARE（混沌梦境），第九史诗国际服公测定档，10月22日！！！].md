@@ -3391,3 +3391,32 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 也就是多花 ...</blockquote>
 要第一时间爽玩那没啥好说的，至于省不省这种事，只能说每个版本都有自己的轮椅，没有啥下个版本的轮椅就比上个版本的轮椅值得的说法
 
+
+*****
+
+####  windaria  
+##### 1057#       发表于 2026-6-17 21:07
+
+我觉得商店换限定ego挺好的，毕竟限定过了就不能换了
+
+*****
+
+####  就不的  
+##### 1058#       发表于 2026-6-17 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69792375&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2026-6-17 17:24</a>
+
+市长吗，直接通用命座升2命，专武能换就换</blockquote>
+通用命座在阶段几的赛季商店 要什么时候能换
+
+
+*****
+
+####  三谷歩夢  
+##### 1059#       发表于 2026-6-17 21:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69793405&amp;ptid=2256125" target="_blank">就不的 发表于 2026-6-17 21:12</a>
+
+通用命座在阶段几的赛季商店 要什么时候能换</blockquote>
+一个赛季分三阶段，每阶段21天，第二阶段就有通用命座
+
