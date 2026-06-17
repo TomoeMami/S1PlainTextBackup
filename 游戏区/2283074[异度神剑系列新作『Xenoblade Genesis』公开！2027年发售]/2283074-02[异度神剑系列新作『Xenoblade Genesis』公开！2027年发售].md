@@ -3069,3 +3069,20 @@ xb2的ns2版能和xb1一样全语音吗，那就爽了<img src="https://static.s
 
 —— 来自 vivo V2507A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lancelotezio  
+##### 1771#       发表于 2026-6-17 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69790675&amp;ptid=2283074" target="_blank">竹笙_澪 发表于 2026-6-17 12:51</a>
+我又回去看了下，字母人吸取的时候是说的让他俩停止战斗去击杀衔尾蛇，不然就把所剩无几的生命全部吸走， ...</blockquote>
+实际上就是演出和话术编排的问题，导致没人知道他前面的悲壮，托付未来和他后面的行为有什么联系，然后音乐又燃又悲的，一头雾水。主角本身就很迷茫，然后这两人的迷惑行为主角就更懵逼了，导致整个演出拉了大胯，bgm和观众和字母人还有主角都搭不上线的，说不定配个关羽之歌更合适<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MrlOst  
+##### 1772#       发表于 2026-6-17 17:46
+
+好像没人特别提起，我觉得xb3最大泪点是N前世在儿子面前化为粒子消失那段，确实是把我给看哭了
+

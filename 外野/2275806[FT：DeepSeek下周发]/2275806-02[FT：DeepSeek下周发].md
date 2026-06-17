@@ -4221,3 +4221,54 @@ codex cc pi这些local codi ...</blockquote>
 
 查看全部评分
 
+
+*****
+
+####  Anarkia  
+##### 1848#       发表于 2026-6-17 17:40
+
+ 本帖最后由 Anarkia 于 2026-6-17 17:43 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69792370&amp;ptid=2275806" target="_blank">小川彩 发表于 2026-6-17 17:23</a>
+
+简单来说是个分析agent 一些代码的执行都有远端mcp代劳 主要是一些workflow化/human in the loop/rag召回 ...</blockquote>
+我想的是如果你需要的是一套通用能力，那起一个repo，里面塞上通用skill、mcp等设置，做到repo clone下来pi就能直接用，让大家自己装pi是不是就可以？pi甚至可以覆盖system prompt。你说要装新功能了，其实就是写一个新的skill，让大家pull一下就好
+
+实话说部署一个agent比一般人想的要麻烦很多，比如多用户情况下要不要按用户数建workspace？coding agent一般默认workspace就是它一个agent在搞，多用户情况下你不可能一套文件库几个人同时调用操作，要分沙箱，隔离，队列等等，很麻烦的
+
+不如各自一个pi，共享skill repo，各自本地跑
+
+*****
+
+####  LeoDT  
+##### 1849#       发表于 2026-6-17 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69792370&amp;ptid=2275806" target="_blank">小川彩 发表于 2026-6-17 17:23</a>
+
+简单来说是个分析agent 一些代码的执行都有远端mcp代劳 主要是一些workflow化/human in the loop/rag召回 ...</blockquote>
+看上去主要问题就是多用户，有写入功能agent还要做多用户会比较混乱，现成的东西可能不多。分发本地版是个选择，不过还是看是否真的需要处理用户自由输入的模式。
+
+今天Astro的开发团队发了个agent开发框架Flue([https://flueframework.com/](https://flueframework.com/))，看上去挺适合相对固定流程的agent开发，应该是比langchain要更high level一点，而且本身基于pi，基本的harness功能都有。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 小川彩 + 1我看看
+
+查看全部评分
+
+*****
+
+####  小川彩  
+##### 1850#       发表于 2026-6-17 17:44
+
+嗯 和ai以及同事讨论过，基本是走最多是我配置好本地agent，然后可能套个前端然后打包分发，同事本地使用的路子
+现在主要是在想agent的选择，通用能力其实是不需要的，代码执行有内部的远端mcp服务器提交执行，本地只需要编写。然后就是分析和用rag mcp召回一些参考文档了，正在看opencode/pi 或者是langgraph/langchain自己攒
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
