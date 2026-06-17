@@ -818,3 +818,11 @@ b站视频下面还有吹相当于火纹之于老任可以丰富产品线的呢
 
 prey是首发bug多到无法通关，ign编辑因为掉档怒打4分，创始人面对商业失败离开游戏业
 
+
+*****
+
+####  今天不守尸  
+##### 85#       发表于 2026-6-17 11:38
+
+这么一看黑曜石才是xbox的中流砥柱啊，这些年兢兢业业出了这么多游戏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
