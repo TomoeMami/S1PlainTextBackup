@@ -534,3 +534,34 @@ bgs还要砍人？滚6看来形式不是很好<img src="https://static.stage1st.
 
 忍者理论鬼泣之后做了一辈子塞纳是真有点搞笑了
 
+
+*****
+
+####  KOS_MO  
+##### 57#       发表于 2026-6-17 09:05
+
+以前EA收购一堆工作室然后砍，基本都是喷EA，看来EA还是没遇上好时候<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ybfelix  
+##### 58#       发表于 2026-6-17 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69787792&amp;ptid=2283583" target="_blank">chdhdhd 发表于 2026-6-16 22:09</a>
+
+忍者理论会死，说到底还是游戏质量不行
+
+而且还是逐步越来越糟糕</blockquote>
+没有微软和XGP的话，NT是不是就不会在一棵树上反复撞死了。Senua 1代还能说也许是勉强回本的cult作品赚点小众口碑，2扩大制作规格已经有点奇怪，成果看起来无论财务还是哪方面都失败的样子，感觉如果是独立工作室即使有心也无力头铁继续整这个系列
+
+*****
+
+####  simonroam  
+##### 59#       发表于 2026-6-17 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69788918&amp;ptid=2283583" target="_blank">KOS_MO 发表于 2026-6-17 09:05</a>
+
+以前EA收购一堆工作室然后砍，基本都是喷EA，看来EA还是没遇上好时候</blockquote>
+XBOX已经是个loser了，你骂一个loser没多大意义
+
