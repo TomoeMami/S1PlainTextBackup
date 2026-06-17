@@ -3423,3 +3423,35 @@ PV里除了新的吉祥物(?)外也明确发现有藏其他亚人种族了
 
 不知道之前有人讨论过logo没有，每代logo的小设计都涉及游戏核心，新作logo看起来是偏紫色的矿石材质再配点碎屑的感觉，是指的那些晶石是故事核心么
 
+
+*****
+
+####  江口夕  
+##### 1801#       发表于 2026-6-18 00:39
+
+Logo和尼亚mio的核心颜色差不多，粉红天蓝，但是没有深蓝
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  UltramanPain  
+##### 1802#       发表于 2026-6-18 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69794125&amp;ptid=2283074" target="_blank">不再乱发炎了 发表于 2026-6-18 00:30</a>
+不知道之前有人讨论过logo没有，每代logo的小设计都涉及游戏核心，新作logo看起来是偏紫色的矿石材质再配点 ...</blockquote>
+感觉一个晶石对应一系列战技，更换晶石可以变化武器属性和战技
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  UltramanPain  
+##### 1803#       发表于 2026-6-18 00:44
+
+不知道晶石有多少种
+<img src="https://p.sda1.dev/33/c69fa5df04df8671bd6822b732f23849/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
