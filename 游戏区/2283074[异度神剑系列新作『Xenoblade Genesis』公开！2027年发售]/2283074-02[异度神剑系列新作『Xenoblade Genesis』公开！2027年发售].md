@@ -3303,3 +3303,13 @@ PV里除了新的吉祥物(?)外也明确发现有藏其他亚人种族了
 
 —— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  江口夕  
+##### 1792#       发表于 2026-6-17 20:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起cp我还想起来了，1代故意把加德嘎了，让卡露娜变寡妇成全莱恩，太地狱了
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
