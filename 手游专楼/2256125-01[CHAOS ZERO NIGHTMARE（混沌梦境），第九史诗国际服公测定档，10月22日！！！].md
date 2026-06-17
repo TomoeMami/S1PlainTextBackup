@@ -3160,3 +3160,20 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 
 这游戏宣发还是花了挺多钱的，可能真的转化了不少玩家。
 
+
+*****
+
+####  orangee  
+##### 1037#       发表于 2026-6-17 16:01
+
+我现在猜一个赛季活动里有什么新功能代码把服务器干崩了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  wthall  
+##### 1038#       发表于 2026-6-17 16:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">230抽市长0+1，感觉自己在抽鸣潮，更不想氪金了擦
+
