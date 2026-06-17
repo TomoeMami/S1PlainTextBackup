@@ -2312,3 +2312,23 @@ PV1只有30帧，感觉不是动作游戏
 好好的女人是个武疯子太下头了，之前还安排了女人帮主角团展示实力装比，你以为你有了大扔子大姐，结果这扔 ...</blockquote>
 塑造得好像很有头脑，为了殖民地可以不惜一切代价，又是主角团领路人的做派，开战前还说什么未来交给你们了，不知道还以为至少都是凡达姆的定位，结果一开打前面说的都是屁话，主角团你们自己打字母人吧，我要决斗没空管你们了，自生自灭吧
 
+
+*****
+
+####  JOJOROY  
+##### 1697#       发表于 2026-6-17 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69789178&amp;ptid=2283074" target="_blank">lubo 发表于 2026-6-17 09:51</a>
+
+PV1只有30帧，感觉不是动作游戏</blockquote>
+封印战记，Pokopia的PV1都只有30帧
+
+*****
+
+####  江口夕  
+##### 1698#       发表于 2026-6-17 11:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">埃塞尔虽然一根筋，但是有大奶。我原谅了
+
+—— 来自 Xiaomi 23113RKC6C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
