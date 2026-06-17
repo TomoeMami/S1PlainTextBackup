@@ -345,3 +345,14 @@ hard的3个关自动打不了一点，只能手操一下了，送的阿姆罗和
 
 z有啥好用的开发红机吗 没有ur z给我打红温了
 
+
+*****
+
+####  王俊凯  
+##### 4390#       发表于 2026-6-17 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69793052&amp;ptid=2071758" target="_blank">dfdddfdd 发表于 2026-6-17 20:04</a>
+
+z有啥好用的开发红机吗 没有ur z给我打红温了</blockquote>
+没办法就摁打，做出300w红蛇，把mk4和tr5之流的sp掉
+
