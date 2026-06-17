@@ -4164,3 +4164,21 @@ omp更新咋嫩快<img src="https://static.stage1st.com/image/smiley/face2017/06
 
 每天第一次打开终端都得敲一次omp update
 
+
+*****
+
+####  Anarkia  
+##### 1845#       发表于 2026-6-17 17:13
+
+ 本帖最后由 Anarkia 于 2026-6-17 17:17 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69791793&amp;ptid=2275806" target="_blank">小川彩 发表于 2026-6-17 15:47</a>
+
+问楼友一个问题，现在公司内部要开发一个agent，前端到时候估计是网页，需要支持多用户多对话和配置一些环 ...</blockquote>
+你的agent是要拿来干什么的？不能光是说要支持这些功能，得弄明白为什么要支持
+
+codex cc pi这些local coding agent说到底ReAct模式不神奇，它们的强大是站在shell命令行+本地文件读写这个巨人的肩膀上，本地tool call能实现无比多的可能性
+
+鉴于你要支持网页加多用户部署，这很可能是个服务器/云端部署的agent，那这个agent为了实现你们想要的功能首先要问它的业务场景有没有准备好的tool和mcp供它调用
+
+如果后端真的只需要对服务器本地文件操作，那codex有mcp模式可能可以试试，但至少得在前面做一个task queue
+
