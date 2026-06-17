@@ -637,3 +637,11 @@ XBOX已经是个loser了，你骂一个loser没多大意义
 
 asha的惊世智慧，大家就学吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  缺德猫  
+##### 67#       发表于 2026-6-17 09:45
+
+asha就是个背锅侠吧，估计是个过度角色，一上台老大就出来撤梯子，一点面子不给哇
+

@@ -233,3 +233,11 @@ Z高难也要来了，会送ssr天鹅么，空中高难想想也头疼
 3次援防消耗掉就好了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我把他拉到上面只有重装和神龙能吃援防，消耗不掉的，最后还是把他耗残先杀颠婆再补刀他
 
+
+*****
+
+####  12481632  
+##### 4377#       发表于 2026-6-17 09:46
+
+Z的挑战能给个ssr迪杰吗
+
