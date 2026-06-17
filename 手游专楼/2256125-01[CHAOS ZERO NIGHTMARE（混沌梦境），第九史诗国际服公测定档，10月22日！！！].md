@@ -3213,3 +3213,23 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 国际服今天出的那个新 ...</blockquote>
 啥时候送？
 
+
+*****
+
+####  TheOccuria  
+##### 1042#       发表于 2026-6-17 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69792034&amp;ptid=2256125" target="_blank">wthall 发表于 2026-6-17 16:26</a>
+啥时候送？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">左下角那俩吧，原来是要等天数。。
+
+<img src="https://img.stage1st.com/forum/202606/17/164643h8wbz5klyaizywff.jpg" referrerpolicy="no-referrer">
+
+<strong>9D78BE11-88C2-4D14-A4B0-D3E6354D1890.jpg</strong> (469.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-17 16:46 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
