@@ -2541,3 +2541,50 @@ PV1只有30帧，感觉不是动作游戏</blockquote>
 
 创世纪
 
+
+*****
+
+####  lilod  
+##### 1719#       发表于 2026-6-17 14:17
+
+我觉得 mono 很务实，xbx ，xb1 2 3 ns2 版里新加入的所有东西都会被转化到新作里
+
+
+*****
+
+####  feizong  
+##### 1720#       发表于 2026-6-17 14:20
+
+XB3的结局一言难尽，把动画调整一下，先是回到融合前瞬间，然后男女主重逢相拥，那可能评价能上一档<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，整悲剧和开放式结局，太过时了，真异度仙剑。
+
+希望XBG能学学2，让玩家吃点好的
+
+
+*****
+
+####  高贵的  
+##### 1721#       发表于 2026-6-17 14:21
+
+2的最后唐突牺牲后马上唐突复活也好不到哪去吧，只感觉闹麻<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  findpkq  
+##### 1722#       发表于 2026-6-17 14:23
+
+2e那些稍微试试水就好了，总不能学习⭕⭕8/9的先进经验，每章打到中间的时候要回到学院去打防卫战吧？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+改动作方向工程量极其大，特别是调敌人受击也是海量工作，嗼社这块纯纯0经验，谨慎看待吧
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  lilod  
+##### 1723#       发表于 2026-6-17 14:24
+
+3 代解决是完美契合主题的，DLC 的结局也挺好
+
+2 代结局的处理也非常好，整个游戏就是靠结局救这么一手，不然没有 DLC 的补充整个游戏的反派跟没有写没有区别
+
