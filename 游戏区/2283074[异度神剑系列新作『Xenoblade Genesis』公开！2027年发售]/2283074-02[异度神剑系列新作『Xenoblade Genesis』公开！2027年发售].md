@@ -2115,3 +2115,31 @@ XB3得反派我已经一个都不记得了...我还是完美通关了本体和dl
 
 高桥哥哥那么喜欢人和之力，比起只能通马桶的NPC，能进菜市场打架的显然更有人和。
 
+
+*****
+
+####  塔奇克马  
+##### 1678#       发表于 2026-6-17 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69788782&amp;ptid=2283074" target="_blank">Jabeck 发表于 2026-6-17 08:30</a>
+
+不如猜猜这次还会不会有一大堆英雄同伴</blockquote>
+造个假药：
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">收集阿尼玛之器就是收集队友（ 
+
+有了这些就可以重现那些人活着时候的武艺（
+
+*****
+
+####  Jabeck  
+##### 1679#       发表于 2026-6-17 08:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69788812&amp;ptid=2283074" target="_blank">塔奇克马 发表于 2026-6-17 08:39</a>
+
+造个假药：
+
+收集阿尼玛之器就是收集队友（ 
+
+有了这些就可以重现那些人活着时候的武艺（ ...</blockquote>
+那我希望他少而精。
+
