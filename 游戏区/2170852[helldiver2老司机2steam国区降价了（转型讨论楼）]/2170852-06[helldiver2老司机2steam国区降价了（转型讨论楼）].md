@@ -27,3 +27,11 @@
 9070XT帧数从75涨到140了 这下amdyes了</blockquote>
 同显卡为什么我打开FSR4没效果帧数还低了？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 7482#       发表于 2026-6-17 11:27
+
+神盾局又变回重甲了，带个喷火斯登去南线烧烧小丧尸还挺不错的，或者用副手打火机+新的中穿冲锋枪？好像4甲甚至可以挡住棍子哥棍木打击
+
