@@ -4272,3 +4272,19 @@ codex cc pi这些local codi ...</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  hugosol  
+##### 1851#       发表于 2026-6-17 17:58
+
+学院派的做法是用LangChain/LangGraph之类的框架，但最近好像比较流行直接拿pi的core层状态机来用，理由是AI时代大家都不喜欢太重的框架了，封装得不好的话别人宁可自己重新造轮子都不会用你的东西<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  simonouozy  
+##### 1852#       发表于 2026-6-17 18:03
+
+ai时代自己造轮子的成本可能比用别人的低，实际上也就是复制了训练数据里的最佳实践，本地也有实现的上下文来用于后续维护
+

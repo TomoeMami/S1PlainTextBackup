@@ -3105,3 +3105,11 @@ xb2的ns2版能和xb1一样全语音吗，那就爽了<img src="https://static.s
 好像没人特别提起，我觉得xb3最大泪点是N前世在儿子面前化为粒子消失那段，确实是把我给看哭了 ...</blockquote>
 当年提过，n那个想笑又笑不出来，不想在儿子面前哭只能抱住儿子不让儿子看到哭脸的演出实在是太牛逼了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woaimiyabi  
+##### 1775#       发表于 2026-6-17 18:01
+
+那段回忆确实容易带入进去，尤其是有孩子的，后面还有一段让我想起了三毛从军记的结尾。
+
