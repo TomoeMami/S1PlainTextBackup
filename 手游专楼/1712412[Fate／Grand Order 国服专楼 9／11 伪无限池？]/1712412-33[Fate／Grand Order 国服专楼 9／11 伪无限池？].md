@@ -169,3 +169,18 @@
 
 退回两星本，两斧头宝具速度还是快啊
 
+
+*****
+
+####  GALLADE  
+##### 47864#       发表于 2026-6-19 01:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69799122&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2026-6-18 21:32</a>
+
+这次狂冠位自出水伊吹，借好友汇呆，但是自己没有王姐，第三个位置能出什么？
+
+—— 来自 vivo V2419A, And ...</blockquote>
+个人会找一个有拐力+蓝宝具的带NP礼装进去，假如没发两个冠位的蓝卡则可以稳定蓝三连给魔放
+
+如鬼舅和小牛的宝具还带降防
+
