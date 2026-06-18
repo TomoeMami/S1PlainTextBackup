@@ -1265,7 +1265,7 @@
     "newtitle": "[崩坏3rd专楼  ios安卓都可以玩啦！！！！！]",
     "lastedit": 1781562245,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1937799": {
@@ -18050,6 +18050,15 @@
     "newtitle": "[释永信，24年]",
     "lastedit": 1781814845,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2279870": {
+    "totalreply": 74,
+    "title": "[steam手柄确认5／4发售，99刀]",
+    "newtitle": "[steam手柄确认5／4发售，99刀]",
+    "lastedit": 1781821566,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
