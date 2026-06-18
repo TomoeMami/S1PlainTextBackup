@@ -3662,3 +3662,22 @@ pv提到了晶石可以刻画使用者性格和行为，那估计就是换晶石
 
 不过高桥本身就是个玩游戏很杂的人，经常会找市面上流行的名气大的游戏去游玩（包括社交游戏手游）找灵感做参考。难说会不会看到一些熟悉的要素。
 
+
+*****
+
+####  sakuraslly  
+##### 1822#       发表于 2026-6-18 11:41
+
+能不能换个人写台本<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">文本水平真不大行
+
+—— 来自 OnePlus PJA110, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  superlink  
+##### 1823#       发表于 2026-6-18 11:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">动作也是在原来基础上添加动作，必然是打桩，策略成分大于手操，就别指望所谓的交互了
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
