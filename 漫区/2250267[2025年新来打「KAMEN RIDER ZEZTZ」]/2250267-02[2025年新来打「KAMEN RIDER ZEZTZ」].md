@@ -418,3 +418,171 @@ code线搞不好是丢V篇了
 
 骑士柠檬<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  milky658  
+##### 1945#       发表于 2026-6-14 14:36
+
+其实一些老监督吧，他们情节转折和打戏战力的逻辑和细节向来不是特别严谨。以前拍摄条件和技术原因，以及大量的生活化片段，加上社区交流没现在方便，他们处理粗糙也不会特别放大。以前该一转攻势一转攻势，该吃瘪就吃瘪，太过细节的处理和衔接这些老监督挺大条的
+
+现在在蒙面超人风格动漫化，越来越注重主线，日常戏生活戏比重越来越少的时候，打戏也侧重能力展示而非套招和动作设计后，情节转折和打戏的落差就愈发扎眼了，田崎柴崎水怪巨匠这些人在粉丝眼中跟不上时代也正常。而新一代监督受动漫文化影响明显，最近叶山虽然背锅被婊得厉害，但他编排的打戏依旧是相当具有魄力，部分分镜有漫画一样的张力，新生代监督就更容易引起受现代动漫影响的观众共鸣了，也更适合现在的网络环境
+
+*****
+
+####  金星  
+##### 1946#       发表于 2026-6-14 15:05
+
+这集还可以，但code线真的不行，还不如直接写成1，2，3和高层都被梦魇夺舍，一直想暗中夺取索姆尼亚权限和0斗智斗勇来的有意思。现在这样展开真是浪费角色和设定
+
+*****
+
+####  JOHNCHCHAN  
+##### 1947#       发表于 2026-6-14 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69775520&amp;ptid=2250267" target="_blank">金星 发表于 2026-6-14 15:05</a>
+这集还可以，但code线真的不行，还不如直接写成1，2，3和高层都被梦魇夺舍，一直想暗中夺取索姆尼亚权限和0 ...</blockquote>
+CODE应该还有后续的，这种重要组织的戏份一般会贯穿整剧
+
+*****
+
+####  饭冢武也  
+##### 1948#       发表于 2026-6-14 15:36
+
+这集节奏不错啊
+
+不是水鬼<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名居守  
+##### 1949#       发表于 2026-6-14 15:46
+
+秩序：一拳（实际是掌）打到你人格脱出
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浅川雏羽  
+##### 1950#       发表于 2026-6-14 15:48
+
+剧场版的宣传物料里，条子上层让怪事科逮捕牢莫的下一句话就是“但小鹰贤政、富士见和成华不相信牢莫会搞恐袭”，看来牢师结局后确实回去当条子了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+目前所有的物料都没有现实牢莫登场，八成TV最后牢莫会长期驻留在梦世界，剧场版牢师一换一给救回来
+
+<img src="https://img.stage1st.com/forum/202606/14/154449qk6z06uy6ry9ru9e.jpg" referrerpolicy="no-referrer">
+
+<strong>img_7596.jpg</strong> (1.51 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-14 15:44 上传
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  蔺无双  
+##### 1951#       发表于 2026-6-14 16:27
+
+说起来，剧场版现在所有的宣传画面有宁梦没有啊，没啥印象了
+
+*****
+
+####  浅川雏羽  
+##### 1952#       发表于 2026-6-14 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69775767&amp;ptid=2250267" target="_blank">蔺无双 发表于 2026-6-14 16:27</a>
+
+说起来，剧场版现在所有的宣传画面有宁梦没有啊，没啥印象了</blockquote>
+有，骑车带牢莫
+
+<img src="https://img.stage1st.com/forum/202606/14/164347ztugmzrorb9ond7g.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-06-14 164207.jpg</strong> (213.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-14 16:43 上传
+
+*****
+
+####  丹德里恩  
+##### 1953#       发表于 2026-6-15 09:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这集还水吗
+
+我不知道有些人到底是来看什么的了，也可能我们看的不是同一部片子
+
+*****
+
+####  失落之翼  
+##### 1954#       发表于 2026-6-15 09:35
+
+所以牢三退场组织就让零回去了吗？组织的黑暗呢？
+
+*****
+
+####  Rhantolk  
+##### 1955#       发表于 2026-6-15 09:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我对code线持悲观态度，我觉得这条线高桥显然没想好怎么写，草草收场赶紧翻篇吧
+
+*****
+
+####  黑上シグマ  
+##### 1956#       发表于 2026-6-15 09:54
+
+<blockquote>引用第1938楼失落之翼于2026-06-15 09:35发表的  :
+
+所以牢三退场组织就让零回去了吗？组织的黑暗呢？</blockquote>
+这不下集预告又被一群人围起来了吗
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
+*****
+
+####  浅川雏羽  
+##### 1957#       发表于 2026-6-15 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69778437&amp;ptid=2250267" target="_blank">失落之翼 发表于 2026-6-15 09:35</a>
+
+所以牢三退场组织就让零回去了吗？组织的黑暗呢？</blockquote>
+下周剧照里又被一群黑衣人拿枪指着了
+
+*****
+
+####  kal_008  
+##### 1958#       发表于 2026-6-15 10:29
+
+code线搞不好是丢V篇了
+
+最后一个季度除了上堀内的最后2集，然后衫原能贡献2集，剩下8集不要太拉跨，只要是黑Z到超梦4集的配合那结局篇肯定可以看爽了
+
+*****
+
+####  饭冢武也  
+##### 1959#       发表于 2026-6-15 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69775767&amp;ptid=2250267" target="_blank">蔺无双 发表于 2026-6-14 16:27</a>
+
+说起来，剧场版现在所有的宣传画面有宁梦没有啊，没啥印象了</blockquote>
+合理猜测，藏了个大的
+
+骑士柠檬<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  milky658  
+##### 1960#       发表于 2026-6-18 10:26
+
+<img src="https://img.stage1st.com/forum/202606/18/102421swae300wwfzwf888.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (374.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-18 10:24 上传
+
+果然这才是正版商品该有的品质啊，今年玩具线怕不是要烂完了
+
