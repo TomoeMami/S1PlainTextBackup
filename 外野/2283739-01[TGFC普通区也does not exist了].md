@@ -402,3 +402,13 @@ S1的基本盘最恨的就是TGFC吧</blockquote>
 
 —— 来自 Xiaomi Redmi K20 Pro, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  otaku21126  
+##### 45#       发表于 2026-6-19 02:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69799634&amp;ptid=2283739" target="_blank">qilang02 发表于 2026-6-19 00:03</a>
+曾经很喜欢tgfc，因为最先上的一批论坛就是s1和tgfc，但是那时觉得tgfc的风格更适合自己，所以是只上tgfc， ...</blockquote>
+一直在当逆民就直说呗，还风格上了<img src="https://static.stage1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
