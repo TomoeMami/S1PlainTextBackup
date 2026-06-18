@@ -2798,3 +2798,11 @@ engage编剧带来的时间线穿越史诗故事！
 
 这作光荣说了没关系了，剧情还能救一下吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Asimot  
+##### 971#       发表于 2026-6-18 19:48
+
+还有3个月就快发售了，我看小红书集美们可不是很待见
+
