@@ -3691,3 +3691,16 @@ pv提到了晶石可以刻画使用者性格和行为，那估计就是换晶石
 
 —— 来自 vivo V2507A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  UltramanPain  
+##### 1825#       发表于 2026-6-18 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69796280&amp;ptid=2283074" target="_blank">shiko 发表于 2026-6-18 11:59</a>
+动作模式需要解决的问题是你游新人上手不直观和atb打小怪太过繁琐无趣，不一定就要改整体设计完全向ARPG看 ...</blockquote>
+目前游戏演示怪物密度很低，骑马跑了一大段距离背景才一个举着斧头的怪物。
+不知道是为了演示减少了怪物数量，还是正式游戏就这样。
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
