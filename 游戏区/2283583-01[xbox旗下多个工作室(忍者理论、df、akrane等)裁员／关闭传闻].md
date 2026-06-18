@@ -993,3 +993,18 @@ fanboy再团建也改变不了微软就是一个废物的事实啊。
 
 这种情况就有点像给动画片分锅，可能一部动画做烂了有许许多多的原因，但你把锅扣给监督总之大方向肯定是没错的，毕竟统筹拍板的是他
 
+
+*****
+
+####  zid99825  
+##### 99#       发表于 2026-6-18 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69795799&amp;ptid=2283583" target="_blank">姬茧墨 发表于 2026-6-18 10:46</a>
+
+红霞岛你要细究扣到微软头上其实也不是很合适，按之前那堆离职员工的话来说，可能杯赛的锅还要重一点
+
+但红 ...</blockquote>
+红霞岛其实已经是zenimax给奥斯丁的last chance了……
+
+他们不想做自己离职也比这样浪费钱摆烂好吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
