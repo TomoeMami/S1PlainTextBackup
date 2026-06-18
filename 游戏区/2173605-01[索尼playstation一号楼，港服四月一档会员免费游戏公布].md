@@ -99,3 +99,20 @@ Naughty Dog States for 2026 (January-June)
 
   目前招聘势头强劲，仍有约18至20个不同领域的职位空缺。）
 
+
+*****
+
+####  黑猫软  
+##### 711#       发表于 2026-6-18 08:31
+
+失眠组官方宣布将于 2026 年 7 月 28 日 为《漫威蜘蛛侠2》推送免费更新，新增灵感源自即将上映的《蜘蛛侠：崭新之日》的 "全新开始"战衣。
+
+<img src="https://img.stage1st.com/forum/202606/18/083144wtzd3qwirffuctf1.jpg" referrerpolicy="no-referrer">
+
+<strong>3954b8728c2ed7c6c011083b66c1e4233d976f78dfc2fb0522a4ac1cc0cb2883.jpg</strong> (122.74 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-18 08:31 上传
+

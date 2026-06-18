@@ -3500,3 +3500,40 @@ Logo和尼亚mio的核心颜色差不多，粉红天蓝，但是没有深蓝
 
 我说都在聊什么能这么多贴，怎么还在轮xb3
 
+
+*****
+
+####  UltramanPain  
+##### 1808#       发表于 2026-6-18 08:27
+
+ 本帖最后由 UltramanPain 于 2026-6-18 08:30 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69794799&amp;ptid=2283074" target="_blank">laputah 发表于 2026-6-18 08:10</a>
+刚玩了一会rb，发现re就是单纯的性能低到比不死人还笨。加上mmo的逻辑但boss在屏幕外面头上冒红字出招/bo ...</blockquote>
+但mono确实在之前招了一个se的员工，做过ff7re<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+虽然这人派去参与王国之泪开发了<img src="https://p.sda1.dev/33/1a330ba9df551988f442d8d0d40c07a6/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  UltramanPain  
+##### 1809#       发表于 2026-6-18 08:32
+
+ 本帖最后由 UltramanPain 于 2026-6-18 08:36 编辑 
+
+主要还是不知道这个晶石一个就是一组技能，还是一个晶石一个技能。
+目前游戏序章pv就出现了8种晶石
+
+目前感觉角色可以跟换武器(相当于改变职业？)，武器可以更换晶石来改变属性和技能组
+<img src="https://p.sda1.dev/33/827f0712ee6a53daa5075d44fc294273/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  mai6696  
+##### 1810#       发表于 2026-6-18 08:35
+
+莫娜德：镶什么晶石，真不如搞一块液晶屏吧？
+
