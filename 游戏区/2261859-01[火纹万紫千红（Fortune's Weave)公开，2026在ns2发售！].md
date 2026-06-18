@@ -2790,3 +2790,11 @@ engage编剧带来的时间线穿越史诗故事！
 
 悲观地往下限考虑，哪怕队友招募后都是小透明，至少反派能戏份常驻，坏女人味这块有保证吗<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  北条早苗  
+##### 970#       发表于 2026-6-18 18:56
+
+这作光荣说了没关系了，剧情还能救一下吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
