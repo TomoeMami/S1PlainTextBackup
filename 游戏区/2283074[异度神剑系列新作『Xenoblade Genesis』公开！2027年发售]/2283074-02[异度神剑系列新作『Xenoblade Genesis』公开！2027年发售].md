@@ -3725,3 +3725,23 @@ pv提到了晶石可以刻画使用者性格和行为，那估计就是换晶石
 不知道是为了演示减少了怪物 ...</blockquote>
 xb3首个pv就这样，展示下跑图，没什么怪
 
+
+*****
+
+####  高贵的  
+##### 1828#       发表于 2026-6-18 13:07
+
+正常啊，毕竟PV1的重点不是战斗自然要调一下密度和锁敌，不然坐骑跑着跑着一根红线挂头上也不好看<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  topia  
+##### 1829#       发表于 2026-6-18 13:16
+
+如果有载具骑乘能不能安排在载具上战斗啊
+
+xb3那个海上战斗直接从船上跳水里太崩不住了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就连符文工房那种垃圾游戏都能骑着怪物战斗呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
