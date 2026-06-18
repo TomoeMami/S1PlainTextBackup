@@ -3467,3 +3467,16 @@ Logo和尼亚mio的核心颜色差不多，粉红天蓝，但是没有深蓝
 
 — from nubia NX809J, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  UltramanPain  
+##### 1805#       发表于 2026-6-18 07:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69794174&amp;ptid=2283074" target="_blank">UltramanPain 发表于 2026-6-18 00:44</a>
+不知道晶石有多少种</blockquote>
+这个晶石，如果以后武器多开几个孔可以装两个三个，感觉有点像魔晶石啊<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+如果战斗再改成arpg<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
