@@ -3681,3 +3681,13 @@ pv提到了晶石可以刻画使用者性格和行为，那估计就是换晶石
 
 —— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  shiko  
+##### 1824#       发表于 2026-6-18 11:59
+
+动作模式需要解决的问题是你游新人上手不直观和atb打小怪太过繁琐无趣，不一定就要改整体设计完全向ARPG看齐
+
+—— 来自 vivo V2507A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
