@@ -933,3 +933,29 @@ arkane自己不想做就消极怠工做出垃圾是谁的问题？</blockquote>
 
 可惜我不在你的公司里上班上学，不会读空气，让你笑话了。
 
+
+*****
+
+####  difa  
+##### 94#       发表于 2026-6-18 09:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69795088&amp;ptid=2283583" target="_blank">moonblackwh 发表于 2026-6-18 09:04</a>
+对的啊，上过班上过学的你肯定知道，作为大领导，放养手下人让下面搞得一团糟自己一点问题都没有，毕竟大 ...</blockquote>
+打滚真难看
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  moonblackwh  
+##### 95#       发表于 2026-6-18 09:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69795145&amp;ptid=2283583" target="_blank">difa 发表于 2026-6-18 09:13</a>
+
+打滚真难看
+
+—— 来自 S1Fun</blockquote>
+fanboy再团建也改变不了微软就是一个废物的事实啊。
+
+客观事实就是，这个世代微软收购了杯赛动暴这种巨头，收购了一堆口碑神作工作室，然后xbox业务就得到了“必须要有自己营利能力”的评价。
+
