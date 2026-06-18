@@ -838,3 +838,28 @@ prey是首发bug多到无法通关，ign编辑因为掉档怒打4分，创始人
 不是等一下，你软买Zenimax的时候红霞岛都做差不多了，这锅真不能背吧
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最多斯宾塞背个品味屌差这玩意好意思吹内部高分的锅。
 
+
+*****
+
+####  moonblackwh  
+##### 87#       发表于 2026-6-18 08:44
+
+ 本帖最后由 moonblackwh 于 2026-6-18 08:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69793667&amp;ptid=2283583" target="_blank">madcow 发表于 2026-6-17 22:14</a>
+
+不是等一下，你软买Zenimax的时候红霞岛都做差不多了，这锅真不能背吧
+
+最多斯宾塞背个品味屌差这玩意好意 ...</blockquote>
+红霞岛是在微软下面端出来的，红霞岛之后解散了奥斯汀工作室，还让里昂工作室借着去做刀锋战士，然后现在做一半要把工作室直接解散了，微软不背锅可能吗？
+
+*****
+
+####  zid99825  
+##### 88#       发表于 2026-6-18 08:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69794980&amp;ptid=2283583" target="_blank">moonblackwh 发表于 2026-6-18 08:44</a>
+红霞岛之后还让阿肯去做刀锋战士是什么意思呢？</blockquote>
+刀锋也是zenimax和迪士尼签好的合同啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
