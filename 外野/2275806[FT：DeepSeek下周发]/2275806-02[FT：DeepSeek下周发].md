@@ -4314,3 +4314,11 @@ opencode的免费ds4f啥时候更新呢
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  novem  
+##### 1856#       发表于 2026-6-18 11:28
+
+又刷出来识别图模式了，会和之前不一样吗
+
