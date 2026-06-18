@@ -364,3 +364,14 @@ z有啥好用的开发红机吗 没有ur z给我打红温了</blockquote>
 
 Z系这次挑战难点是纯空战的那几关吧，能上陆战的部分SP几个SSP机体没啥难打的，把卡池SSR全拆了的会比较难受
 
+
+*****
+
+####  电脑死机  
+##### 4392#       发表于 2026-6-18 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69795749&amp;ptid=2071758" target="_blank">alialex 发表于 2026-6-18 10:42</a>
+
+Z系这次挑战难点是纯空战的那几关吧，能上陆战的部分SP几个SSP机体没啥难打的，把卡池SSR全拆了的会比较难 ...</blockquote>
+那些劝人拆卡池机的纯坑货，留着以备不时之需果然是对的
+
