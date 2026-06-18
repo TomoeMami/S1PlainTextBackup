@@ -4367,3 +4367,14 @@ api是不是现在还不能识图，官方文档也没提
 
 试了下识图，发现有点左右不分，给它一张左眼被头发遮住的角色图，它说角色的右眼被头发遮住<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绝地潜兵  
+##### 1862#       发表于 2026-6-18 14:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69796652&amp;ptid=2275806" target="_blank">zerona 发表于 2026-6-18 13:20</a>
+
+api 能用识图了吗？网页端还是受限了点。</blockquote>
+我用的网页版，API没有试
+
