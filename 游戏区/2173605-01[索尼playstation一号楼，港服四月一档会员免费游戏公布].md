@@ -116,3 +116,13 @@ Naughty Dog States for 2026 (January-June)
 由手机上传
 2026-6-18 08:31 上传
 
+
+*****
+
+####  葵  
+##### 712#       发表于 2026-6-18 10:41
+
+异星光头现在不管怎么做在商业上注定就是个死局<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我觉得包括现在拼命吹风神海新作回归，就是因为异星光头在内部评估就是个完蛋玩意儿，什么时候出就什么时候宣告顽皮狗的死刑<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
