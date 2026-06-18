@@ -4554,3 +4554,15 @@ api 是不是没更新多模态
 
 这种推理过程能不能用在反退推片prompt
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1882#       发表于 2026-6-19 06:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69799361&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-6-18 22:31</a>
+有没有可能是手机拍照图片属性里有定位信息。</blockquote>
+我特意把照片截屏了
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
