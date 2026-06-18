@@ -390,3 +390,15 @@ tgfc除了专注挑粪的屎壳郎还有什么人看啊？
 
 曾经很喜欢tgfc，因为最先上的一批论坛就是s1和tgfc，但是那时觉得tgfc的风格更适合自己，所以是只上tgfc，虽然我在s1的注册比tgfc早，但是自从tgfc的账号因为被盗号发广告贴被封之后就不去了，只能来s1，但是最早的s1的号因为发了一个百度搜索的词的解释也被删号了，我都不知道我发的内容是啥，因为是百度的就被删号了，所以基本也不敢留言了，然后微博的几个号也被删号了，国内的网络空间就不能讨论政治，现在安心不发言留言，最多发发自己账号这种的个人经历，个人自认为这种言论不会被管理员封号
 
+
+*****
+
+####  妖精喵喵  
+##### 44#       发表于 2026-6-19 00:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69797930&amp;ptid=2283739" target="_blank">sukewar 发表于 2026-6-18 17:16</a>
+S1的基本盘最恨的就是TGFC吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">谁会用基本盘称呼别人 or 自己啊，我感觉只有那种人用这个词，你说呢
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
