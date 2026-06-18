@@ -2764,3 +2764,21 @@ engage编剧带来的时间线穿越史诗故事！
 
 光荣股东大会说没参与这作
 
+
+*****
+
+####  duraa  
+##### 967#       发表于 2026-6-18 17:20
+
+光荣：万一烂了记得别瞎甩锅
+
+
+*****
+
+####  发呆的龙虾  
+##### 968#       发表于 2026-6-18 17:27
+
+几作下来基本能看出问题出在is身上了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
