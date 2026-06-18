@@ -2806,3 +2806,18 @@ engage编剧带来的时间线穿越史诗故事！
 
 还有3个月就快发售了，我看小红书集美们可不是很待见
 
+
+*****
+
+####  Humpy  
+##### 972#       发表于 2026-6-18 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69797410&amp;ptid=2261859" target="_blank">nagitoY 发表于 2026-6-18 15:44</a>
+
+说起来不管是前传还是后传，蕾雅应该都有足够重要的戏份吧。
+
+前传的话涉及到蕾雅建立帝国，如果是后传蕾雅 ...</blockquote>
+前传倒也不一定是蕾雅建立帝国时的事就是了……
+
+毕竟三房离蕾雅建立帝国也有了近千年的历史间隔，这个空档塞好几部游戏都没啥问题<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
