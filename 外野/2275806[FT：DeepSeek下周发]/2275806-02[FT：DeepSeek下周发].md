@@ -4467,3 +4467,16 @@ api急需识图
 
 这个识图模式，感觉基于画面捕捉的操作和功能要变天啦，不需要多大的知识储备，只需要把细节识别到位就行了。
 
+
+*****
+
+####  杀人鲸  
+##### 1873#       发表于 2026-6-18 21:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69798909&amp;ptid=2275806" target="_blank">舞以 发表于 2026-6-18 20:47</a>
+
+我试了两次，cot还是老样子，估计没灰度到我吧
+
+论坛助手,iPhone</blockquote>
+朋友，你说的是识图还是新的思考练呀？
+
