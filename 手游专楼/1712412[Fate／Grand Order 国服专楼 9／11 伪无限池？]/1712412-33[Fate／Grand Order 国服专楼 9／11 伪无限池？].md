@@ -135,3 +135,23 @@
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  khxooo  
+##### 47861#       发表于 2026-6-18 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69799122&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2026-6-18 21:32</a>
+
+这次狂冠位自出水伊吹，借好友汇呆，但是自己没有王姐，第三个位置能出什么？
+
+—— 来自 vivo V2419A, And ...</blockquote>
+清姬，CEO或者其他有加攻的从者就可以了，反正汇呆乱杀，你负责前排加BUFF就可以了。
+
+*****
+
+####  khxooo  
+##### 47862#       发表于 2026-6-18 21:37
+
+两个号都打完认定战了，简直就是汇呆的减速带，爽的一批，下次枪冠就麻烦了。狗屎因陀罗给你来个宝具特性，就是不给你速刷。
+
