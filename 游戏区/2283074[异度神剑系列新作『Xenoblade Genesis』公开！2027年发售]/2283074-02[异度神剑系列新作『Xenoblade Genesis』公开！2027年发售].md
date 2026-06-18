@@ -3545,3 +3545,35 @@ Logo和尼亚mio的核心颜色差不多，粉红天蓝，但是没有深蓝
 
 做成ARPG的问题是，流行的逐个人切出来打满流程叠BUFF太猴，不切人只操作一个角色的话深度不够<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  アヘ顔  
+##### 1812#       发表于 2026-6-18 09:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69795027&amp;ptid=2283074" target="_blank">Dai-Dai-Dai-Dai 发表于 2026-6-18 08:53</a>
+做成ARPG的问题是，流行的逐个人切出来打满流程叠BUFF太猴，不切人只操作一个角色的话深度不够 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">切人打轴这种国产二游糟粕还是算了吧
+
+
+*****
+
+####  狸狸狐  
+##### 1813#       发表于 2026-6-18 09:04
+
+<blockquote>UltramanPain 发表于 2026-6-18 08:27
+但mono确实在之前招了一个se的员工，做过ff7re
+
+虽然这人派去参与王国之泪开发了
+</blockquote>
+其实参与塞尔达的东京本社的人还是很多的。这批人在没有塞尔达全力开发阶段，就是非常好的制作xbg的人手。另外mono招了se几个系统和演出方面的人，白金招了俩战斗动作设计，不知道能不能用到xbg里。
+
+*****
+
+####  狸狸狐  
+##### 1814#       发表于 2026-6-18 09:06
+
+<blockquote>アヘ顔 发表于 2026-6-18 09:00
+切人打轴这种国产二游糟粕还是算了吧</blockquote>
+异刃连击也是一种切人打轴（）
+

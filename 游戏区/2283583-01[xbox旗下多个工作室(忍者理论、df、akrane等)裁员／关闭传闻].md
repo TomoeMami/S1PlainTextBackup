@@ -900,3 +900,36 @@ prey是首发bug多到无法通关，ign编辑因为掉档怒打4分，创始人
 论坛助手,i ...</blockquote>
 好吧，微软真是清清白白的一枚小蛋糕啊。虽然能关停工作室，但是管不了工作室做什么游戏。
 
+
+*****
+
+####  zid99825  
+##### 92#       发表于 2026-6-18 08:59
+
+ 本帖最后由 zid99825 于 2026-6-18 09:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69795033&amp;ptid=2283583" target="_blank">moonblackwh 发表于 2026-6-18 08:54</a>
+好吧，微软真是清清白白的一枚小蛋糕啊。虽然能关停工作室，但是管不了工作室做什么游戏。 ...</blockquote>
+你是没出学校还是没上过班？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+p3放养工作室是他的锅
+arkane自己不想做就消极怠工做出垃圾是谁的问题？
+况且微软收购zenimax之前就有传zenimax要关arkane了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  moonblackwh  
+##### 93#       发表于 2026-6-18 09:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69795050&amp;ptid=2283583" target="_blank">zid99825 发表于 2026-6-18 08:59</a>
+
+你是没出学校还是没上过班？
+
+p3放养工作室是他的锅
+
+arkane自己不想做就消极怠工做出垃圾是谁的问题？</blockquote>
+对的啊，上过班上过学的你肯定知道，作为大领导，放养手下人让下面搞得一团糟自己一点问题都没有，毕竟大家还是要继续在你公司里面上班的嘛，谁敢批评你这个大领导。
+
+可惜我不在你的公司里上班上学，不会读空气，让你笑话了。
+
