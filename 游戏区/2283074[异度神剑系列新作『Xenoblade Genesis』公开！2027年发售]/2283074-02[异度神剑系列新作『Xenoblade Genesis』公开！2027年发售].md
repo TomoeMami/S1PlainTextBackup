@@ -3600,3 +3600,39 @@ pv提到了晶石可以刻画使用者性格和行为，那估计就是换晶石
 
 那男主估计有晶石以外的自带的一套系统。
 
+
+*****
+
+####  UltramanPain  
+##### 1817#       发表于 2026-6-18 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69795204&amp;ptid=2283074" target="_blank">狸狸狐 发表于 2026-6-18 09:21</a>
+pv提到了晶石可以刻画使用者性格和行为，那估计就是换晶石可以换职业和招式。晶石有熟练度，换了要刷职业。 ...</blockquote>
+可能不会换职业？因为晶石是绑在武器上的，剑上的晶石按理说也可以换到弓箭或者法杖上？
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  UltramanPain  
+##### 1818#       发表于 2026-6-18 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69795499&amp;ptid=2283074" target="_blank">UltramanPain 发表于 2026-6-18 10:10</a>
+可能不会换职业？因为晶石是绑在武器上的，剑上的晶石按理说也可以换到弓箭或者法杖上？
+
+—— 来自 Xiao ...</blockquote>
+可能每个角色有固定的职业或者武器，然后晶石是属性、技能和动作模组替换
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  狸狸狐  
+##### 1819#       发表于 2026-6-18 10:15
+
+<blockquote>UltramanPain 发表于 2026-6-18 10:11
+可能每个角色有固定的职业或者武器，然后晶石是属性、技能和动作模组替换
+
+—— 来自 Xiaomi 23127PN0CC, ...</blockquote>
+可能角色自身的武器招式固定，晶石带来是是特殊招式。比如大小姐平时用双剑，发动晶石能力就是攒大火球。
+
