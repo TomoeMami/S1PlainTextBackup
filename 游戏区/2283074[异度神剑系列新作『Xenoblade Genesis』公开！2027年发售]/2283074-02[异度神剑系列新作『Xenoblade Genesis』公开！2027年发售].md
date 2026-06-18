@@ -3745,3 +3745,11 @@ xb3那个海上战斗直接从船上跳水里太崩不住了<img src="https://st
 
 就连符文工房那种垃圾游戏都能骑着怪物战斗呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泰坦失足  
+##### 1830#       发表于 2026-6-18 13:20
+
+每次看到这个标题脑子里都会想起“ Genesis～Does!Genesis～Does!When Nintendo don’t”
+

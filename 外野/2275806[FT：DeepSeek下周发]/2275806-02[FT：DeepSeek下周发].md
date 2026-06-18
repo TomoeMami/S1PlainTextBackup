@@ -4340,3 +4340,22 @@ opencode的免费ds4f啥时候更新呢
 
 开放识图模式了，思考变成了GLM的自检模式，比莫名其妙的扮演好用多了
 
+
+*****
+
+####  zerona  
+##### 1859#       发表于 2026-6-18 13:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69796376&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-6-18 12:23</a>
+
+开放识图模式了，思考变成了GLM的自检模式，比莫名其妙的扮演好用多了</blockquote>
+api 能用识图了吗？网页端还是受限了点。
+
+
+*****
+
+####  love4aids  
+##### 1860#       发表于 2026-6-18 13:25
+
+api是不是现在还不能识图，官方文档也没提
+
