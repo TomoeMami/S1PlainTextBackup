@@ -3712,3 +3712,16 @@ pv提到了晶石可以刻画使用者性格和行为，那估计就是换晶石
 
 拍个PV总不能让你走两步就被十几米外的野狗盯上然后响起战斗BGM吧。
 
+
+*****
+
+####  sslink  
+##### 1827#       发表于 2026-6-18 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69796328&amp;ptid=2283074" target="_blank">UltramanPain 发表于 2026-6-18 12:12</a>
+
+目前游戏演示怪物密度很低，骑马跑了一大段距离背景才一个举着斧头的怪物。
+
+不知道是为了演示减少了怪物 ...</blockquote>
+xb3首个pv就这样，展示下跑图，没什么怪
+
