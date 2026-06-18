@@ -959,3 +959,25 @@ fanboy再团建也改变不了微软就是一个废物的事实啊。
 
 客观事实就是，这个世代微软收购了杯赛动暴这种巨头，收购了一堆口碑神作工作室，然后xbox业务就得到了“必须要有自己营利能力”的评价。
 
+
+*****
+
+####  卡拉德利姆  
+##### 96#       发表于 2026-6-18 09:20
+
+这时候只要祝微软在自己的道路上越走越好就可以了<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  difa  
+##### 97#       发表于 2026-6-18 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69795175&amp;ptid=2283583" target="_blank">moonblackwh 发表于 2026-6-18 09:17</a>
+fanboy再团建也改变不了微软就是一个废物的事实啊。
+
+客观事实就是，这个世代微软收购了杯赛动暴这种巨头， ...</blockquote>
+钱给了，时间给了，然后工作室不能自己盈利，留着干啥？等着别人补血？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
