@@ -3537,3 +3537,11 @@ Logo和尼亚mio的核心颜色差不多，粉红天蓝，但是没有深蓝
 
 莫娜德：镶什么晶石，真不如搞一块液晶屏吧？
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 1811#       发表于 2026-6-18 08:53
+
+做成ARPG的问题是，流行的逐个人切出来打满流程叠BUFF太猴，不切人只操作一个角色的话深度不够<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

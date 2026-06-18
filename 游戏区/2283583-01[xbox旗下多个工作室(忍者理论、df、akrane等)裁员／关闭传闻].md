@@ -863,3 +863,40 @@ prey是首发bug多到无法通关，ign编辑因为掉档怒打4分，创始人
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  moonblackwh  
+##### 89#       发表于 2026-6-18 08:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69794995&amp;ptid=2283583" target="_blank">zid99825 发表于 2026-6-18 08:47</a>
+
+刀锋也是zenimax和迪士尼签好的合同啊
+
+论坛助手,iPhone</blockquote>
+你也知道是发行商签的合同，那么合同是迪士尼指名必须要阿肯来做这个游戏吗？还是说你旗下没有其他任何更适合做这个的工作室了？
+
+*****
+
+####  zid99825  
+##### 90#       发表于 2026-6-18 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69795008&amp;ptid=2283583" target="_blank">moonblackwh 发表于 2026-6-18 08:49</a>
+你也知道是发行商签的合同，那么合同是迪士尼指名必须要阿肯来做这个游戏吗？还是说你旗下没有其他任何更 ...</blockquote>
+？那个时候肯定开发商都订好了才签合同啊，谁和你签不明确合同。而且里昂那个时候已经动工了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  moonblackwh  
+##### 91#       发表于 2026-6-18 08:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69795012&amp;ptid=2283583" target="_blank">zid99825 发表于 2026-6-18 08:51</a>
+
+？那个时候肯定开发商都订好了才签合同啊，谁和你签不明确合同。而且里昂那个时候已经动工了
+
+论坛助手,i ...</blockquote>
+好吧，微软真是清清白白的一枚小蛋糕啊。虽然能关停工作室，但是管不了工作室做什么游戏。
+
