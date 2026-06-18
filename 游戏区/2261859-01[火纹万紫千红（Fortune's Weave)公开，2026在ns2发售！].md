@@ -2743,3 +2743,24 @@ engage编剧带来的时间线穿越史诗故事！
 
 打从心底强烈希望円给几的编剧消失
 
+
+*****
+
+####  takayama  
+##### 965#       发表于 2026-6-18 17:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69797324&amp;ptid=2261859" target="_blank">hkguty 发表于 2026-6-18 15:32</a>
+
+奇怪啊明明前几个pv感觉还没有那么柯南，这角色介绍一开口我就绷不住了</blockquote>
+恭喜你已经有了认知，倒回去看去年9月第一个PV<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JOJOROY  
+##### 966#       发表于 2026-6-18 17:14
+
+<img src="https://i.postimg.cc/rstdJ231/QQ-1781773726712.png" referrerpolicy="no-referrer">
+
+光荣股东大会说没参与这作
+

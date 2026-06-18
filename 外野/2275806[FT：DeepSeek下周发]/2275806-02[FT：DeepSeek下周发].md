@@ -4420,3 +4420,14 @@ api急需识图
 
 这识图模式目前看来给图让他找出处能力很弱，但是分析图片中的内容元素的能力还是可以的。
 
+
+*****
+
+####  zerona  
+##### 1868#       发表于 2026-6-18 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69797653&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-6-18 16:21</a>
+
+试了下上次灰测中比较糟糕的二次元，明显知识量还是比较少，但更离谱的是思维链里直接在穷举式搜索，最后说 ...</blockquote>
+如果给它连到一些资料站呢？
+
