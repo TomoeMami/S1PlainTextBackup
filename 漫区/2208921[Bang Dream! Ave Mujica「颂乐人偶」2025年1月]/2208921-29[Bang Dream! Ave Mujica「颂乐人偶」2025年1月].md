@@ -492,3 +492,23 @@ Ave Mujicaの世界観を一枚に凝縮したベストアルバム。
 【仅供试听，如何正确支持日本原版动漫音乐请看评论】</blockquote>
        [https://www.bilibili.com/video/BV1EVLQ6JE64/](https://www.bilibili.com/video/BV1EVLQ6JE64/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41916#       发表于 2026-6-19 00:41
+
+       
+
+<img src="https://img.stage1st.com/forum/202606/19/004154de1k66vq0x0xiisu.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-06-19_00-40-40.jpg</strong> (342.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-19 00:41 上传
+
+       [https://x.com/Alcohol_inc_/status/2067608279375925465](https://x.com/Alcohol_inc_/status/2067608279375925465)
+
+       [https://t.co/77CUYDJFNa](https://t.co/77CUYDJFNa)
+
