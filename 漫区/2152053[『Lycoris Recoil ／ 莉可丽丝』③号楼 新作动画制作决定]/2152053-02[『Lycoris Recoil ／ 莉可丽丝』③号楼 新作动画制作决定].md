@@ -84,3 +84,16 @@
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总算有一个认识的牌子了
 之前除了三丽鸥（女人和小孩一桌的）还有什么国际名牌吗
 
+
+*****
+
+####  蒜人  
+##### 2491#       发表于 2026-6-19 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69800939&amp;ptid=2152053" target="_blank">osore 发表于 2026-6-19 12:07</a>
+
+总算有一个认识的牌子了
+
+之前除了三丽鸥（女人和小孩一桌的）还有什么国际名牌吗 ...</blockquote>
+必胜客<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
