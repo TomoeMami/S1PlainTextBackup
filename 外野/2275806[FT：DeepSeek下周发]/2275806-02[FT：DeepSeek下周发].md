@@ -4566,3 +4566,17 @@ api 是不是没更新多模态
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zephyrus99  
+##### 1883#       发表于 2026-6-19 11:02
+
+求助一下
+
+用工具用出焦虑了，现在codx和claude code双开，一边数据分析，一边搞功能架构和需求讨论，输出文档啥的
+
+但是两边都需要等待。于是又想把deepseek的api用起来
+
+求一个终端工具，接deepseek api的，主要还是文档类工作。最好是有桌面端的，终端给cc用了
+
