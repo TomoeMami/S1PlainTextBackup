@@ -58,3 +58,20 @@
 
 因为是人偶（洋娃娃）造型所以故意要体现出伪人感吗
 
+
+*****
+
+####  蒜人  
+##### 2489#       发表于 2026-6-19 11:40
+
+<img src="https://img.stage1st.com/forum/202606/19/114044k5zxrmsa9mm1as9m.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1781840433101_214.jpg</strong> (296.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-19 11:40 上传
+
+最近好多啊，难道说...
+
