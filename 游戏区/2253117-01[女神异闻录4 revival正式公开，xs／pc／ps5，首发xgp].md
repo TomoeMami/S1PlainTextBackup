@@ -222,3 +222,14 @@ hard吗</blockquote>
 
 我只能说我玩p3p4的战斗我都直接最低难度毫不影响我游玩乐趣
 
+
+*****
+
+####  黑暗之眼  
+##### 401#       发表于 2026-6-19 23:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69803052&amp;ptid=2253117" target="_blank">godless2020 发表于 2026-6-19 21:50</a>
+
+这代迷宫啥类型的，还是爬塔？？？？？</blockquote>
+当然咯，只不过是若干个塔，每个塔十层八层。P5迷宫真的是系列大进化了
+
