@@ -117,3 +117,23 @@ vocal从平田换成了佐佐木诗织
 4代抽卡成长的影响还是挺大的，我试过尽量只用初始P伊邪那岐吃卡，最后数值比12身合体的伊邪那岐大神还强。 ...</blockquote>
 我咋记得P3也是这个路数？？
 
+
+*****
+
+####  199april  
+##### 390#       发表于 2026-6-19 21:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">目前来看还挺好
+
+义经我觉得不用砍啊，能用已经都是后期了， 后期我无敌点又怎么样？
+
+
+*****
+
+####  jxzeroga0  
+##### 391#       发表于 2026-6-19 21:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">系列萌新p4g就是用初始伊邪那岐打通关的，不懂研究合成不停喂卡片拉到满
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
