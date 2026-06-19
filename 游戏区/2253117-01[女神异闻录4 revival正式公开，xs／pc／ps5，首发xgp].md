@@ -63,3 +63,13 @@ vocal从平田换成了佐佐木诗织
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  shimotsuki14  
+##### 385#       发表于 2026-6-19 19:17
+
+石塚老爷子的声音谁来顶？
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
