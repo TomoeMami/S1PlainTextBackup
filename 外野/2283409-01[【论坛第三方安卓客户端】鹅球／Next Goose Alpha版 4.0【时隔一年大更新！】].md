@@ -509,3 +509,16 @@ https://stage1st.com/2b/thread-2283386-0-1.html</blockquote>
 
 —— 来自 Xiaomi M2003J15SC, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  御坂MKII  
+##### 43#       发表于 2026-6-19 22:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69803119&amp;ptid=2283409" target="_blank">鵝 发表于 2026-6-19 22:07</a>
+
+好像和旧版不是更新关系而是另装一个？
+
+另外报告一个不知道算不算bug的问题，一个帖子上次浏览的时候到39 ...</blockquote>
+这个还是 beta 版，是另一个 app 签名，等正式版就是原地覆盖了
+
