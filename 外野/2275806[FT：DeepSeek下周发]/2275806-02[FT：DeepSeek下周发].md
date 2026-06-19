@@ -4593,3 +4593,13 @@ api 是不是没更新多模态
 
 反过来当然也行
 
+
+*****
+
+####  wlhlz  
+##### 1885#       发表于 2026-6-19 14:50
+
+用前几天出去玩拍的几张特征不明显的风景图试了一下，大体位置差不太远但是最终结论老是把思考中列出来的正确答案给排除了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
