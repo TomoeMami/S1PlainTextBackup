@@ -3475,3 +3475,16 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 
 —— 来自 OnePlus PJA110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  christiny  
+##### 1065#       发表于 2026-6-19 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69802120&amp;ptid=2256125" target="_blank">id_catcher 发表于 2026-6-19 17:47</a>
+
+请教大家，刷空档哪个图好点？沼泽还是赛季图？
+
+—— 来自 OnePlus PJA110, Android 16, 鹅球 v3.5.99 ...</blockquote>
+还是要赛季图。 就算空挡，也可以拿装备刻印，提升太大了。
+
