@@ -412,3 +412,23 @@ S1的基本盘最恨的就是TGFC吧</blockquote>
 曾经很喜欢tgfc，因为最先上的一批论坛就是s1和tgfc，但是那时觉得tgfc的风格更适合自己，所以是只上tgfc， ...</blockquote>
 一直在当逆民就直说呗，还风格上了<img src="https://static.stage1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Fuero  
+##### 46#       发表于 2026-6-19 09:08
+
+零几年的时候tg还是挺有意思的，很喜欢泡水区，后面就越来越不对劲了，现在估计就剩几十号人了吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  happyliuhao  
+##### 47#       发表于 2026-6-19 09:12
+
+edfc很奇怪 好多年前kmt执政时期还没1450和青鸟 水区就满屏幕恨国党 疫情期间更是群魔乱舞 但是之后还是一样的情况 看来是小论坛没啥影响力连资金都没混上 那就真是恨国集中营了 
+
+—— 来自 HONOR MBH-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
