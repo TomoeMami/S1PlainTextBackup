@@ -522,3 +522,17 @@ https://stage1st.com/2b/thread-2283386-0-1.html</blockquote>
 另外报告一个不知道算不算bug的问题，一个帖子上次浏览的时候到39 ...</blockquote>
 这个还是 beta 版，是另一个 app 签名，等正式版就是原地覆盖了
 
+
+*****
+
+####  华山小书童  
+##### 44#       发表于 2026-6-19 23:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69803155&amp;ptid=2283409" target="_blank">鵝 发表于 2026-6-19 22:14</a>
+取消复制？随便点下屏幕就行了吧，不用左滑
+
+—— 来自 Xiaomi M2003J15SC, Android 12, 鹅球 v4.0-alpha ...</blockquote>
+要点好几下…
+
+—— 来自 HUAWEI JAD-AL80, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
