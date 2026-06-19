@@ -4687,3 +4687,15 @@ om ...</blockquote>
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  阿刚  
+##### 1893#       发表于 2026-6-20 03:34
+
+<blockquote>蛋黄酱Release 发表于 2026-6-20 00:10
+3q，下一个Hermes试试
+
+—— 来自 vivo V2405A, Android 16, 鹅球 v4.0-alpha</blockquote>
+建议装个Linux版备着。。。这玩意上次win的桌面版更新把自己更死了。。。我装了个Linux版把桌面版修回来的。。。
+
