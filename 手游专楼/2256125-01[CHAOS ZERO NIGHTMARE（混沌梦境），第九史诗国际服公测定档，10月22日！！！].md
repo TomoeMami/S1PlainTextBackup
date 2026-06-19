@@ -3488,3 +3488,11 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 —— 来自 OnePlus PJA110, Android 16, 鹅球 v3.5.99 ...</blockquote>
 还是要赛季图。 就算空挡，也可以拿装备刻印，提升太大了。
 
+
+*****
+
+####  qixinno1  
+##### 1066#       发表于 2026-6-19 18:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来以为UG强化后泰妮是顶替UG当区的 没想到竟然是市长之下的那档
+
