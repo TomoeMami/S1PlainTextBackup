@@ -53,3 +53,13 @@ vocal从平田换成了佐佐木诗织
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">认真的吗  就没人觉得很怪？
 
+
+*****
+
+####  nozomitech  
+##### 384#       发表于 2026-6-19 18:49
+
+我不喜欢中配也不会去使用，不过我觉得挺好的，修竹很多小登特别二游那块过来的基本都不会去用日配了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
