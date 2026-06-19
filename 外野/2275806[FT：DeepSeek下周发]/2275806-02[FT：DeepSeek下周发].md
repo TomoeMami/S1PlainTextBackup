@@ -4580,3 +4580,16 @@ api 是不是没更新多模态
 
 求一个终端工具，接deepseek api的，主要还是文档类工作。最好是有桌面端的，终端给cc用了
 
+
+*****
+
+####  绝地潜兵  
+##### 1884#       发表于 2026-6-19 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69800016&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-6-19 05:21</a>
+
+这种推理过程能不能用在反推图片prompt</blockquote>
+有用的，我现在是抄GLM4.7的推理过程当预设用在第三方的Deepseek V4.0 Flash上，跑起来就很稳
+
+反过来当然也行
+
