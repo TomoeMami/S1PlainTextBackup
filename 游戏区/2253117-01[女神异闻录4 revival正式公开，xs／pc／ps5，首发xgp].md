@@ -195,3 +195,22 @@ vocal从平田换成了佐佐木诗织
 
 p3r是一年后吧，所以现在给atlus上上压力有希望
 
+
+*****
+
+####  Redimercia  
+##### 398#       发表于 2026-6-19 22:07
+
+这介绍节目看得我这个从P4G开始玩狗A游戏的人眉头紧锁<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jxzeroga0  
+##### 399#       发表于 2026-6-19 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69803040&amp;ptid=2253117" target="_blank">alucardcz 发表于 2026-6-19 21:48</a>
+hard吗</blockquote>
+那当然是普通，萌新第一部p玩什么hard<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
