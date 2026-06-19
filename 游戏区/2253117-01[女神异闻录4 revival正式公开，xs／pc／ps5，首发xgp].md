@@ -137,3 +137,30 @@ vocal从平田换成了佐佐木诗织
 
 —— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  卡拉德利姆  
+##### 392#       发表于 2026-6-19 21:47
+
+还有大半年 能把原版bgm可替换骂出来吗
+
+*****
+
+####  alucardcz  
+##### 393#       发表于 2026-6-19 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69802985&amp;ptid=2253117" target="_blank">jxzeroga0 发表于 2026-6-19 21:32</a>
+
+系列萌新p4g就是用初始伊邪那岐打通关的，不懂研究合成不停喂卡片拉到满
+
+—— 来自 Xiaomi 2410DPN6CC, An ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">hard吗
+
+*****
+
+####  godless2020  
+##### 394#       发表于 2026-6-19 21:50
+
+这代迷宫啥类型的，还是爬塔？？？？？
+
