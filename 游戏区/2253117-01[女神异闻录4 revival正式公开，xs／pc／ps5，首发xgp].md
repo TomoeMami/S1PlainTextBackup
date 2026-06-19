@@ -164,3 +164,34 @@ vocal从平田换成了佐佐木诗织
 
 这代迷宫啥类型的，还是爬塔？？？？？
 
+
+*****
+
+####  黑上シグマ  
+##### 395#       发表于 2026-6-19 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69803035&amp;ptid=2253117" target="_blank">卡拉德利姆 发表于 2026-6-19 21:47</a>
+
+还有大半年 能把原版bgm可替换骂出来吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得P3R的原版BGM是发售挺久以后才有的
+
+*****
+
+####  alucardcz  
+##### 396#       发表于 2026-6-19 21:58
+
+ 本帖最后由 alucardcz 于 2026-6-19 21:59 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69803078&amp;ptid=2253117" target="_blank">黑上シグマ 发表于 2026-6-19 21:56</a>
+
+我记得P3R的原版BGM是发售挺久以后才有的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一啊托拉斯开窍了 这次直接有呢
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我倒是希望把立绘冲一冲 这立绘。。e大师看到都自愧不如
+
+
+*****
+
+####  卡拉德利姆  
+##### 397#       发表于 2026-6-19 22:03
+
+p3r是一年后吧，所以现在给atlus上上压力有希望
+
