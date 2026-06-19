@@ -4699,3 +4699,13 @@ om ...</blockquote>
 —— 来自 vivo V2405A, Android 16, 鹅球 v4.0-alpha</blockquote>
 建议装个Linux版备着。。。这玩意上次win的桌面版更新把自己更死了。。。我装了个Linux版把桌面版修回来的。。。
 
+
+*****
+
+####  squallx  
+##### 1894#       发表于 2026-6-20 03:53
+
+hermes比龙虾省token多了 搭配v4flash简直白菜
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
