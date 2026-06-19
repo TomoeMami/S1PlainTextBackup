@@ -214,3 +214,11 @@ hard吗</blockquote>
 
 —— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  u2deack  
+##### 400#       发表于 2026-6-19 22:18
+
+我只能说我玩p3p4的战斗我都直接最低难度毫不影响我游玩乐趣
+
