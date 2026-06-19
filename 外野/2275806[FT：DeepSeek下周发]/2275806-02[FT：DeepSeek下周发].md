@@ -4603,3 +4603,15 @@ api 是不是没更新多模态
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  無始無終  
+##### 1886#       发表于 2026-6-19 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69799348&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-6-18 22:28</a>
+d指导这个识图有点东西，我从我家窗户往外拍了张照片，确定没有任何招牌泄露地点情况下把照片截屏发给它， ...</blockquote>
+你用app或者网页版，发送的消息是附带你的ip信息的
+
+—— 来自 HUAWEI NOH-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
