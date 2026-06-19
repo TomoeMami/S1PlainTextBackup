@@ -2232,10 +2232,10 @@
     "update": false
   },
   "2068301": {
-    "totalreply": 23545,
+    "totalreply": 23546,
     "title": "[【绝区零】调率测试结束 咖啡馆 141718492]",
     "newtitle": "[绝区零 咖啡馆 交流群 141718492 更多情报 2024年公布]",
-    "lastedit": 1781869447,
+    "lastedit": 1781871006,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -6516,10 +6516,10 @@
     "update": false
   },
   "2156895": {
-    "totalreply": 17779,
+    "totalreply": 17780,
     "title": "[微软收购楼，ABK之后，Who's Next？P3想其他方式拓展11区业务]",
     "newtitle": "[微软楼，斯宾塞于退休之时对众工作室留下寄语：你们怎么办，只有天知道!]",
-    "lastedit": 1781864285,
+    "lastedit": 1781871007,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -9837,12 +9837,12 @@
     "update": false
   },
   "2188260": {
-    "totalreply": 904,
+    "totalreply": 908,
     "title": "[『乱马½』完全新作动画 MAPPA制作 2024年10月]",
     "newtitle": "[『乱马½』完全新作动画 MAPPA制作 2024年10月]",
-    "lastedit": 1774522571,
+    "lastedit": 1781871485,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2200312": {
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 18048,
+    "totalreply": 18049,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「寻遗散记」版本即将开放]",
-    "lastedit": 1781870285,
+    "lastedit": 1781871006,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 15836,
+    "totalreply": 15838,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼5月]",
-    "lastedit": 1781870648,
+    "lastedit": 1781871246,
     "category": "外野",
     "active": true,
     "update": false
@@ -13086,10 +13086,10 @@
     "update": false
   },
   "2280092": {
-    "totalreply": 6354,
+    "totalreply": 6356,
     "title": "[中东砖楼 2026年5月版]",
     "newtitle": "[中东砖楼 2026年6月版]",
-    "lastedit": 1781870648,
+    "lastedit": 1781871007,
     "category": "外野",
     "active": true,
     "update": false
@@ -16943,7 +16943,7 @@
     "newtitle": "[《龙战士4》今日登录steam，无中文，首发五折]",
     "lastedit": 1781611687,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2283527": {
@@ -17721,10 +17721,10 @@
     "update": false
   },
   "2283740": {
-    "totalreply": 418,
+    "totalreply": 419,
     "title": "[看到一个关于南北榜案的新说法，有无道理呢]",
     "newtitle": "[看到一个关于南北榜案的新说法，有无道理呢]",
-    "lastedit": 1781870406,
+    "lastedit": 1781871007,
     "category": "外野",
     "active": true,
     "update": false
@@ -17910,10 +17910,10 @@
     "update": false
   },
   "2283826": {
-    "totalreply": 57,
+    "totalreply": 58,
     "title": "[略带星鸭翼的问题：大家觉得女孩子说哪些方言会显得可爱？]",
     "newtitle": "[略带星鸭翼的问题：大家觉得女孩子说哪些方言会显得可爱？]",
-    "lastedit": 1781870406,
+    "lastedit": 1781871246,
     "category": "外野",
     "active": true,
     "update": false
@@ -17933,6 +17933,15 @@
     "newtitle": "[北体大我记得是惯犯了吧？]",
     "lastedit": 1781867408,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2167291": {
+    "totalreply": 88,
+    "title": "[异兽魔都 动画续篇制作决定 流媒体配信]",
+    "newtitle": "[异兽魔都 动画续篇制作决定 流媒体配信]",
+    "lastedit": 1781871126,
+    "category": "漫区",
     "active": true,
     "update": false
   }
