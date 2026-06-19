@@ -106,3 +106,14 @@ vocal从平田换成了佐佐木诗织
 
 另外4代又被戏称为“义经异闻录”，八船跳义经可以吊打一切，包括隐藏BOSS。不知道重制版会不会砍一刀。
 
+
+*****
+
+####  godless2020  
+##### 389#       发表于 2026-6-19 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69802742&amp;ptid=2253117" target="_blank">猪突猛进R 发表于 2026-6-19 20:32</a>
+
+4代抽卡成长的影响还是挺大的，我试过尽量只用初始P伊邪那岐吃卡，最后数值比12身合体的伊邪那岐大神还强。 ...</blockquote>
+我咋记得P3也是这个路数？？
+
