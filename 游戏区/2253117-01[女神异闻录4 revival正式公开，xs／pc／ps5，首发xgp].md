@@ -73,3 +73,26 @@ vocal从平田换成了佐佐木诗织
 
 —— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  InfiniteGyre  
+##### 386#       发表于 2026-6-19 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69800982&amp;ptid=2253117" target="_blank">redrum 发表于 2026-6-19 12:19</a>
+说来好像没有提战后抽卡 不知道是不是没了</blockquote>
+有的吧，我记得官方网站还是pv里面有战后抽卡的画面
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  黑暗之眼  
+##### 387#       发表于 2026-6-19 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69800982&amp;ptid=2253117" target="_blank">redrum 发表于 2026-6-19 12:19</a>
+说来好像没有提战后抽卡 不知道是不是没了</blockquote>
+官网介绍战斗时就有
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
