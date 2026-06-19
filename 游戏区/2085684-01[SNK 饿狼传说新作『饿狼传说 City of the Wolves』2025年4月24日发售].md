@@ -92,3 +92,19 @@
 
 拳四郎这做的成品效果在这赛季里算差的，做的最好的是罗伯特，感觉做的偏保守了，可能是觉得血浆四射不符合饿狼基调2333
 
+
+*****
+
+####  adretyu67.  
+##### 733#       发表于 2026-6-19 23:52
+
+ 本帖最后由 adretyu67. 于 2026-6-19 23:56 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69803130&amp;ptid=2085684" target="_blank">ナルバレック 发表于 2026-6-19 22:09</a>
+
+拳四郎这做的成品效果在这赛季里算差的，做的最好的是罗伯特，感觉做的偏保守了，可能是觉得血浆四射不符合 ...</blockquote>
+拳四郎几个打击效果做的很奇怪。漂出去了。
+
+建模其实有点崩或者说很素，感觉想还原的是原哲夫早年那个画风，而不是后来样板肌肉壮汉<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不知道是技术问题还是引擎问题
+
