@@ -4765,3 +4765,16 @@ Cherry Studio+API：agent编写轻量  ...</blockquote>
 
 Cherry每一步都要自己做，我已经在学Python了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朗姆酒hentai  
+##### 1899#       发表于 2026-6-20 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69804562&amp;ptid=2275806" target="_blank">アコ 发表于 2026-6-20 11:35</a>
+
+这么简单的吗，下载到的PY库Markitdown等，还有编写的py脚本和MCP注册，它自己会记录？
+
+Cherry每一步都要 ...</blockquote>
+自己写个skill或者用n8n的mcp，非常简单的自动化场景
+
