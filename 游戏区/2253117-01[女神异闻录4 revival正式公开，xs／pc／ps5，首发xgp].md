@@ -293,3 +293,11 @@ P3P4P5迷宫是不断进化的。
 P3很压抑，P4还好，每个迷宫一种风格一首曲子（不像P3都是同一首BGM的变调），暗 ...</blockquote>
 暗影用恶魔不是直接拿本家的来用了吗？按设定来说暗影之流不算persona，单纯为了省建模罢了
 
+
+*****
+
+####  28201  
+##### 407#       发表于 2026-6-20 11:13
+
+看看p4设定集的千枝<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真的很像鱼
+
