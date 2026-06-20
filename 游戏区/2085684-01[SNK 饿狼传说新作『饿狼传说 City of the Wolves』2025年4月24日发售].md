@@ -197,3 +197,16 @@
 天狗这个当身还是加延迟帧吧，一个当身跳都不好跳</blockquote>
 现在已经开发出更离谱的JD取消当身了。完全无责。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LG003  
+##### 742#       发表于 2026-6-20 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69807097&amp;ptid=2085684" target="_blank">蕾丝控 发表于 2026-6-20 22:59</a>
+
+现在已经开发出更离谱的JD取消当身了。完全无责。</blockquote>
+这次比赛当身只能直跳骗，或后跳骗
+
+都不敢在面前压，站着不动都不行，会吃一个投投的距离还远。
+
