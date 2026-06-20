@@ -151,3 +151,13 @@
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  人生オワタ  
+##### 738#       发表于 2026-6-20 17:29
+
+【《饿狼传说：群狼之城》「拳四郎 VS 特瑞」开发人员对战演示-哔哩哔哩】 [https://b23.tv/cpC0pWl](https://b23.tv/cpC0pWl)
+
+【《饿狼传说：群狼之城》「拳四郎 VS 不知火舞」开发人员对战演示-哔哩哔哩】 [https://b23.tv/ka8eD15](https://b23.tv/ka8eD15)
+
