@@ -1698,3 +1698,11 @@ X：[https://twitter.com/BDP_AveMujica](https://twitter.com/BDP_AveMujica)
 #AveMujica</blockquote>
        [https://www.bilibili.com/video/BV18LjB6eEYm](https://www.bilibili.com/video/BV18LjB6eEYm)
 
+
+*****
+
+####  asikies  
+##### 41929#       发表于 2026-6-20 19:32
+
+新造型太丑了。
+

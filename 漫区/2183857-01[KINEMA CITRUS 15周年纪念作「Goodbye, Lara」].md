@@ -1036,3 +1036,17 @@ PV3：[https://youtu.be/gjq7xyVdv5I](https://youtu.be/gjq7xyVdv5I)
 
 —— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  堆雪若叶  
+##### 77#       发表于 2026-6-20 19:24
+
+ 本帖最后由 堆雪若叶 于 2026-6-20 19:27 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69806227&amp;ptid=2183857" target="_blank">暗黑能乐 发表于 2026-6-20 19:19</a>
+
+应该没七姐妹，我感觉大蓝毛是妈，女儿就五个，女主最小老五
+
+—— 来自 HONOR BVL-AN00, Android 16, 鹅 ...</blockquote>
+海的女儿原作就是六姐妹啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且人鱼妈没出场感觉也是坑，原作也没有人鱼王明令禁止和人类接触的设定，这之间估计有点联系。
+
