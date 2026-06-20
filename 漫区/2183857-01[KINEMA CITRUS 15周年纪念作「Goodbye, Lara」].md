@@ -1024,3 +1024,15 @@ PV3：[https://youtu.be/gjq7xyVdv5I](https://youtu.be/gjq7xyVdv5I)
 
 海巫婆怎么本体和鱼都出场了，有点牌面。蓝毛是四姐的话轮椅红毛应该是五姐，俩鱼在拉拉出生的时候也是最小的。四姐跟班侧脸有露出裂纹缝合，和拉拉舌头上的缝合应该类似。
 
+
+*****
+
+####  暗黑能乐  
+##### 76#       发表于 2026-6-20 19:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69806170&amp;ptid=2183857" target="_blank">堆雪若叶 发表于 2026-6-20 19:03</a>
+海巫婆怎么本体和鱼都出场了，有点牌面。蓝毛是四姐的话轮椅红毛应该是五姐，俩鱼在拉拉出生的时候也是最小 ...</blockquote>
+应该没七姐妹，我感觉大蓝毛是妈，女儿就五个，女主最小老五
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
