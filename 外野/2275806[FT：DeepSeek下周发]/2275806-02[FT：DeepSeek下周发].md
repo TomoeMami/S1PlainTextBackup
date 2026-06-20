@@ -4719,3 +4719,22 @@ hermes比龙虾省token多了 搭配v4flash简直白菜
 
 等熟练掌握了ai的能力边界之后再根据自己需求转其他的pi或者hermes什么的
 
+
+*****
+
+####  アコ  
+##### 1896#       发表于 2026-6-20 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69804258&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-6-20 10:07</a>
+
+其实我觉得不写代码的话用opencode也能满足大多数需求了，还有免费模型可以用，上手门槛低又安全
+
+等熟练掌 ...</blockquote>
+请教谭友
+
+非程序员，办公自动化应用方向，写周报填表格之类的重复工作
+
+Cherry Studio+API：agent编写轻量 Python 脚本 + 本地注册MCP + Skill 触发
+
+如果换成opencode它是啥样的工作流？
+
