@@ -1562,3 +1562,44 @@ mujica今天禁棒子只能用手环灯？
 
 2026-6-20 17:57 上传
 
+
+*****
+
+####  堀内爱里衣  
+##### 41926#       发表于 2026-6-20 18:16
+
+ 本帖最后由 堀内爱里衣 于 2026-6-20 18:18 编辑 
+
+       
+
+<img src="https://img.stage1st.com/forum/202606/20/181744rjnnl1lmah2rzs7m.png" referrerpolicy="no-referrer">
+
+<strong>2026-06-20_18-17-28.png</strong> (919.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-20 18:17 上传
+
+       [https://x.com/bang_dream_info/status/2068274214621323272](https://x.com/bang_dream_info/status/2068274214621323272)
+
+       [https://bang-dream.com/events/avemujica_7th/](https://bang-dream.com/events/avemujica_7th/)
+
+*****
+
+####  堀内爱里衣  
+##### 41927#       发表于 2026-6-20 18:19
+
+       
+
+<img src="https://img.stage1st.com/forum/202606/20/181925bsfa15sb11hh85zp.png" referrerpolicy="no-referrer">
+
+<strong>2026-06-20_18-18-33.png</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-20 18:19 上传
+
+       [https://x.com/bang_dream_info/status/2068276444388872288](https://x.com/bang_dream_info/status/2068276444388872288)
+
+       [https://t.co/aVOYpYH5rA](https://t.co/aVOYpYH5rA)
+
