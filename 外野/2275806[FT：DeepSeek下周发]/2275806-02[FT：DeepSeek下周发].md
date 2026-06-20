@@ -4709,3 +4709,13 @@ hermes比龙虾省token多了 搭配v4flash简直白菜
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  hugosol  
+##### 1895#       发表于 2026-6-20 10:07
+
+其实我觉得不写代码的话用opencode也能满足大多数需求了，还有免费模型可以用，上手门槛低又安全
+
+等熟练掌握了ai的能力边界之后再根据自己需求转其他的pi或者hermes什么的
+
