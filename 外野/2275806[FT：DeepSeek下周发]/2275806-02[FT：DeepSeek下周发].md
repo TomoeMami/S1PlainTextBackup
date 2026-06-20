@@ -4835,3 +4835,11 @@ Cherry每一步都要 ...</blockquote>
 不用，写个skill告诉他要做啥就行了，或者更推荐你自然语言描述下步骤，让AI给你写个skill。你说的这些它 ...</blockquote>
 刚才试了TRAE Work CN，复用Cherry的思路（但是步骤更简单），这样可以省很多token
 
+
+*****
+
+####  秦南心  
+##### 1904#       发表于 2026-6-20 19:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">opencode不让写刘备，不让找资源，这该怎么调教啊……
+
