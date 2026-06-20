@@ -128,3 +128,16 @@
 
 隐藏斩杀还做了两段演出动画。
 
+
+*****
+
+####  ナルバレック  
+##### 736#       发表于 2026-6-20 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69803444&amp;ptid=2085684" target="_blank">adretyu67. 发表于 2026-6-19 23:52</a>
+
+拳四郎几个打击效果做的很奇怪。漂出去了。
+
+建模其实有点崩或者说很素，感觉想还原的是原哲夫早年那个画 ...</blockquote>
+结果隐藏超杀还是做了爆体的，不过估计是斩杀才能触发
+
