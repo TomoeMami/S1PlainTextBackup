@@ -4824,3 +4824,14 @@ Opencode也可以配置MCP，你可以找个skill-creator的skill把你的需求
 Cherry每一步都要 ...</blockquote>
 不用，写个skill告诉他要做啥就行了，或者更推荐你自然语言描述下步骤，让AI给你写个skill。你说的这些它会自己做的，很简单。
 
+
+*****
+
+####  アコ  
+##### 1903#       发表于 2026-6-20 13:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69804963&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-6-20 13:01</a>
+
+不用，写个skill告诉他要做啥就行了，或者更推荐你自然语言描述下步骤，让AI给你写个skill。你说的这些它 ...</blockquote>
+刚才试了TRAE Work CN，复用Cherry的思路（但是步骤更简单），这样可以省很多token
+
