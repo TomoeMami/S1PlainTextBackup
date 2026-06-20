@@ -186,3 +186,14 @@
 
 再调低都不像健次郎了
 
+
+*****
+
+####  蕾丝控  
+##### 741#       发表于 2026-6-20 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69806967&amp;ptid=2085684" target="_blank">LG003 发表于 2026-6-20 22:22</a>
+
+天狗这个当身还是加延迟帧吧，一个当身跳都不好跳</blockquote>
+现在已经开发出更离谱的JD取消当身了。完全无责。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
