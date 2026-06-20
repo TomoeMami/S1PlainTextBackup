@@ -4778,3 +4778,22 @@ Cherry每一步都要自己做，我已经在学Python了<img src="https://stati
 Cherry每一步都要 ...</blockquote>
 自己写个skill或者用n8n的mcp，非常简单的自动化场景
 
+
+*****
+
+####  hugosol  
+##### 1900#       发表于 2026-6-20 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69804421&amp;ptid=2275806" target="_blank">アコ 发表于 2026-6-20 10:54</a>
+
+请教谭友
+
+非程序员，办公自动化应用方向，写周报填表格之类的重复工作
+
+Cherry Studio+API：agent编写轻量  ...</blockquote>
+Opencode也可以配置MCP，你可以找个skill-creator的skill把你的需求告诉agent，让它帮你写个skill
+
+不过如果你的excel数据量非常大，建议还是直接做个python脚本来处理，不然每次都要把文件读进上下文然后消耗token去处理，这个才是大头
+
+当然如果只是写写周报什么的我觉得基本上是怎么方便怎么来了
+
