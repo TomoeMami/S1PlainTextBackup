@@ -1603,3 +1603,98 @@ mujica今天禁棒子只能用手环灯？
 
        [https://t.co/aVOYpYH5rA](https://t.co/aVOYpYH5rA)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41928#       发表于 2026-6-20 19:04
+
+       
+
+<img src="https://img.stage1st.com/forum/202606/20/190434gdpcu209s43ndc30.png" referrerpolicy="no-referrer">
+
+<strong>2026-06-20_19-03-25.png</strong> (1.34 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-20 19:04 上传
+
+       [https://x.com/BDP_AveMujica/status/2068287756951031968](https://x.com/BDP_AveMujica/status/2068287756951031968)
+
+       [https://www.youtube.com/watch?v=lkS9XIzWObc](https://www.youtube.com/watch?v=lkS9XIzWObc)
+
+       <strong>Ave Mujica - The Whole Blue World (Official Music Video)</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202606/20/190435mmz2i5q8w632f2dj.jpg" referrerpolicy="no-referrer">
+
+<strong>50002a9d97f6f8668983d2d4e61695880f4473f8.jpg</strong> (413.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-20 19:04 上传
+
+…ようこそ。Ave Mujicaの世界へ
+
+...欢迎来到Ave Mujica的世界
+
+Ave Mujica Best Album「Ave Música」
+
+Streaming/DL：[https://bmu.lnk.to/AveMujica_BestALid](https://bmu.lnk.to/AveMujica_BestALid)
+
+Ave Mujica “The Whole Blue World”
+
+作词：Diggy-MO’　[https://twitter.com/diggymo04](https://twitter.com/diggymo04)
+
+作曲：Diggy-MO’, 植木建象(SPAWN Inc.)
+
+编曲：Diggy-MO’, 植木建象(SPAWN Inc.)
+
+MV
+
+Director: Kosuke Tsukagawa (SIGNIF)
+
+Illustrator: Yu Kushima
+
+Animation Director: Takuto Kawakami (rhythmos)
+
+Animator: Kana Fukudome (rhythmos), Risa Watanabe
+
+Animation Previs: 4O (SIGNIF)
+
+Choreographer: Hikari Mune (SIGNIF)
+
+CG Designer: ryoma sanpei (SIGNIF)
+
+               
+
+Producer: Yoshiki Kawasaki (SIGNIF)
+
+Production Manager: Musashi Ito (SIGNIF)
+
+               
+
+Production: SIGNF Inc.
+
+ーーーーーーーーーーーー
+
+2026.6.17 Wed.
+
+Ave Mujica Best Album「Ave Música」
+[https://bang-dream.com/discographies/4192/](https://bang-dream.com/discographies/4192/)
+
+2026.10.24 Sat. - 25 Sun.
+
+Ave Mujica 7th LIVE “Virtus”
+
+at KEIO ARENA TOKYO
+[https://bang-dream.com/events/avemujica_7th/](https://bang-dream.com/events/avemujica_7th/)
+
+ーーーーーーーーーーーー
+
+HP：[https://avemujica.bang-dream.com/](https://avemujica.bang-dream.com/)
+
+X：[https://twitter.com/BDP_AveMujica](https://twitter.com/BDP_AveMujica)
+
+#AveMujica</blockquote>
+       [https://www.bilibili.com/video/BV18LjB6eEYm](https://www.bilibili.com/video/BV18LjB6eEYm)
+
