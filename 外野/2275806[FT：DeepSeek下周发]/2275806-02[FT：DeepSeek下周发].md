@@ -4843,3 +4843,13 @@ Cherry每一步都要 ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">opencode不让写刘备，不让找资源，这该怎么调教啊……
 
+
+*****
+
+####  很久就在那边l  
+##### 1905#       发表于 2026-6-20 20:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69806330&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-6-20 19:43</a>
+opencode不让写刘备，不让找资源，这该怎么调教啊……</blockquote>
+opencode不是agent吗也提供api服务但是没有外审，不让写黄那是模型拦截的，实际上用opencode提供的api搞黄色是最合适的，他不像国内平台需要个人信息
+
