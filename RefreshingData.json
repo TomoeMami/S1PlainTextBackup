@@ -11817,10 +11817,10 @@
     "update": false
   },
   "1950481": {
-    "totalreply": 1056,
+    "totalreply": 1057,
     "title": "[《凡人修仙传》网络动画专楼]",
     "newtitle": "[《凡人修仙传》网络动画专楼]",
-    "lastedit": 1781956809,
+    "lastedit": 1781968445,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 18167,
+    "totalreply": 18168,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「寻遗散记」版本即将开放]",
-    "lastedit": 1781966045,
+    "lastedit": 1781968445,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12573,10 +12573,10 @@
     "update": false
   },
   "2271276": {
-    "totalreply": 4375,
+    "totalreply": 4376,
     "title": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
     "newtitle": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
-    "lastedit": 1781966765,
+    "lastedit": 1781968566,
     "category": "外野",
     "active": true,
     "update": false
@@ -15327,10 +15327,10 @@
     "update": false
   },
   "2283161": {
-    "totalreply": 211,
+    "totalreply": 212,
     "title": "[就战斗系统而言，哪部JRPG是十年内最强]",
     "newtitle": "[就战斗系统而言，哪部JRPG是十年内最强]",
-    "lastedit": 1781967126,
+    "lastedit": 1781968566,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15386,7 +15386,7 @@
     "newtitle": "[左撇子艾伦 动画化]",
     "lastedit": 1781708887,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1856998": {
@@ -17973,10 +17973,10 @@
     "update": false
   },
   "2283897": {
-    "totalreply": 52,
+    "totalreply": 53,
     "title": "[L3／L4强标已经表明国家宣判纯视觉方案死刑了吧]",
     "newtitle": "[L3／L4强标已经表明国家宣判纯视觉方案死刑了吧]",
-    "lastedit": 1781966406,
+    "lastedit": 1781968566,
     "category": "外野",
     "active": true,
     "update": false
@@ -18009,29 +18009,38 @@
     "update": false
   },
   "2283896": {
-    "totalreply": 53,
+    "totalreply": 55,
     "title": "[刚看到一个对英语的戏谑，说“星期八”这个词你说英语怎么说？]",
     "newtitle": "[刚看到一个对英语的戏谑，说“星期八”这个词你说英语怎么说？]",
-    "lastedit": 1781967967,
+    "lastedit": 1781968566,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2283908": {
-    "totalreply": 67,
+    "totalreply": 68,
     "title": "[食贫道和魔法师应该不会有翻车的一天吧]",
     "newtitle": "[食贫道和魔法师应该不会有翻车的一天吧]",
-    "lastedit": 1781967966,
+    "lastedit": 1781968325,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2283904": {
-    "totalreply": 48,
+    "totalreply": 49,
     "title": "[喜欢假小子本质上是期望一个长了批能艹的兄弟]",
     "newtitle": "[喜欢假小子本质上是期望一个长了批能艹的兄弟]",
-    "lastedit": 1781967966,
+    "lastedit": 1781968566,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2265502": {
+    "totalreply": 57,
+    "title": "[战姬绝唱类歌曲对战动画「幽灵音乐会：失落的乐章」2026年]",
+    "newtitle": "[战姬绝唱类歌曲对战动画「幽灵音乐会：失落的乐章」2026年]",
+    "lastedit": 1781968446,
+    "category": "漫区",
     "active": true,
     "update": false
   }
