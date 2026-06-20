@@ -4797,3 +4797,30 @@ Opencode也可以配置MCP，你可以找个skill-creator的skill把你的需求
 
 当然如果只是写写周报什么的我觉得基本上是怎么方便怎么来了
 
+
+*****
+
+####  アコ  
+##### 1901#       发表于 2026-6-20 13:00
+
+感谢感谢
+
+前两天安装了TRAE Work，正好试了一下
+
+1. 配置MCP，这个json的更加简单，让trae扫描本地库生成，没有的它会根据需求自动打开内置浏览器搜索火山MCP库
+
+2. skill中说明调用哪些py库或mcp
+
+3. 编写py脚本固定到skill复用
+
+*****
+
+####  startraveller  
+##### 1902#       发表于 2026-6-20 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69804562&amp;ptid=2275806" target="_blank">アコ 发表于 2026-6-20 11:35</a>
+这么简单的吗，下载到的PY库Markitdown等，还有编写的py脚本和MCP注册，它自己会记录？
+
+Cherry每一步都要 ...</blockquote>
+不用，写个skill告诉他要做啥就行了，或者更推荐你自然语言描述下步骤，让AI给你写个skill。你说的这些它会自己做的，很简单。
+

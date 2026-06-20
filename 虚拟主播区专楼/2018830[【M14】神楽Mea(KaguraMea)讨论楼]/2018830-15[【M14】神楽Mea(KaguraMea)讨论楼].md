@@ -2386,3 +2386,39 @@ core这个bp我觉得还行。有开团控制足，有后期。</blockquote>
 
 拿下，选个好阵容就是了。
 
+
+*****
+
+####  受菊  
+##### 20927#       发表于 2026-6-20 13:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">回家路上看到打野送两次都绝望了，还好yauji和大御所给力，吊人辅助也相当献身，拿下！
+
+不过next万一翻车的话还要打第四把，这个赛制有点怪【】
+
+
+*****
+
+####  术士q  
+##### 20928#       发表于 2026-6-20 13:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69804960&amp;ptid=2018830" target="_blank">受菊 发表于 2026-6-20 13:00</a>
+回家路上看到打野送两次都绝望了，还好yauji和大御所给力，吊人辅助也相当献身，拿下！
+
+不过next万一翻车的 ...</blockquote>
+赛制出发点应该也是三个都打满，然后看情况再搞个bo4出来。
+
+至于next组，shaka其实是有点超模的，他那个补刀玩点后期大核队友保一下随便打的，next组又不怎么会针对，小火龙这种就很合适，不过毕竟是第三把了，具体还是看到时候的阵容吧。
+
+*****
+
+####  古战场亡魂  
+##### 20929#       发表于 2026-6-20 13:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69804973&amp;ptid=2018830" target="_blank">术士q 发表于 2026-6-20 13:04</a>
+
+赛制出发点应该也是三个都打满，然后看情况再搞个bo4出来。
+
+至于next组，shaka其实是有点超模的，他那个 ...</blockquote>
+主要问题其实是next辅助白娜身体不适。
+
