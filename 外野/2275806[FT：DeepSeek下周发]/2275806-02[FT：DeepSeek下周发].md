@@ -4853,3 +4853,16 @@ Cherry每一步都要 ...</blockquote>
 opencode不让写刘备，不让找资源，这该怎么调教啊……</blockquote>
 opencode不是agent吗也提供api服务但是没有外审，不让写黄那是模型拦截的，实际上用opencode提供的api搞黄色是最合适的，他不像国内平台需要个人信息
 
+
+*****
+
+####  秦南心  
+##### 1906#       发表于 2026-6-20 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69806416&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-6-20 20:03</a>
+
+opencode不是agent吗也提供api服务但是没有外审，不让写黄那是模型拦截的，实际上用opencode提供的api搞 ...</blockquote><blockquote>已找到并修复问题。
+
+问题：build-max 代理中有一个 "name": "Build MAX" 字段，它不是标准 AgentConfig 属性。根据 opencode schema，未知字段会被透传给模型提供者作为参数，可能导致代理初始化失败。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">乐，怪不得轻破甲没起效
+

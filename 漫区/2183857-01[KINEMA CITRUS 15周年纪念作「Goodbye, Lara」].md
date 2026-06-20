@@ -1075,3 +1075,14 @@ PV3：[https://youtu.be/gjq7xyVdv5I](https://youtu.be/gjq7xyVdv5I)
 —— 来自 HONOR BVL-AN00, Android 16, 鹅球 v3.4.98</blockquote>
 怎么就快进到牛了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和海贼王鱼人岛的情节差不多也可以
 
+
+*****
+
+####  Rhantolk  
+##### 80#       发表于 2026-6-20 20:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69806424&amp;ptid=2183857" target="_blank">堆雪若叶 发表于 2026-6-20 20:05</a>
+
+怎么就快进到牛了和海贼王鱼人岛的情节差不多也可以</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为你说没出场，如果人类只是危险杀死了妈的话，爹好像没理由瞒着女儿不说，那不就是答案是妈和人类跑了，所以爹很恨人类吗。。
+
