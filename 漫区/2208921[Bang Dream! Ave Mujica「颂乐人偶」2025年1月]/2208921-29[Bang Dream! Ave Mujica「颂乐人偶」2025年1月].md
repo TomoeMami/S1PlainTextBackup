@@ -1902,3 +1902,16 @@ X：[https://twitter.com/BDP_AveMujica](https://twitter.com/BDP_AveMujica)
 
 mv画最好的一次
 
+
+*****
+
+####  堀内爱里衣  
+##### 41935#       发表于 2026-6-21 22:05
+
+<blockquote>       把优兔网视频（2560×1440）和B站字幕提取出来，换字体做个了内封字幕</blockquote>
+       我用夸克网盘给你分享了「Ave Mujica - The Whole Blue World (Official Music Video)[bilibili官方字幕简体内封].mkv」，点击链接或复制整段内容，打开「夸克APP」即可获取。
+
+/~c13f3Z9Ab0~:/
+
+       链接：[https://pan.quark.cn/s/ba7f2e2efe9b](https://pan.quark.cn/s/ba7f2e2efe9b)
+
