@@ -36,3 +36,16 @@
 
 希望结局别打脸，求求
 
+
+*****
+
+####  センコウ  
+##### 1964#       发表于 2026-6-21 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69809314&amp;ptid=2250267" target="_blank">封印的右手 发表于 2026-6-21 15:14</a>
+
+我算是看明白了 超梦这机制根本不是回档，而是闪灵二人组里男主的邪眼能力，让敌人原地做梦硬控
+
+—— 来自 ...</blockquote>
+是这样的，超梦首秀打橘先辈就一股子美堂蛮的刚好一分钟，看到噩梦了吗的味
+
