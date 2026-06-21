@@ -8,3 +8,13 @@
 
 和之前猜得大差不差，宁梦深层心理是花海，那么她的梦魇要么是忘却，要么是比忘却定位更高的最终BOSS。现在看下来忘却比其他三个梦魇定位更高
 
+
+*****
+
+####  封印的右手  
+##### 1962#       发表于 2026-6-21 15:14
+
+我算是看明白了 超梦这机制根本不是回档，而是闪灵二人组里男主的邪眼能力，让敌人原地做梦硬控<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
