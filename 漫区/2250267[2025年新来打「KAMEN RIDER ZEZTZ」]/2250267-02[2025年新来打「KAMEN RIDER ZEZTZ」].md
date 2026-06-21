@@ -70,3 +70,19 @@
 
 整个设定的底子算是令和骑士的最高点了，结果这个底子利用到一半都没有。
 
+
+*****
+
+####  离心  
+##### 1967#       发表于 2026-6-21 18:06
+
+code线真的纯烂完了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+0靠当7的爹有一点塑造
+1最讨喜，除了是橘前辈以外这种灰色乐子人是高桥的优势区
+256就没多少戏份，6要不是璃塔也是个莫名其妙的角色，虽然现在也是个莫名其妙的角色，5这种典的不行忠犬角色喜提第二塑造<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+3真的纯为了搞事而搞事的定位，稀里糊涂的出来了稀里糊涂的退场了。哪怕是接了全部的锅再把锅甩到忘却头上我都当努力过了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">结果现在忘却是新生的一出，嘻嘻逗逗你的呀。一点伏笔都没有
+4……唉，我贫瘠的语言系统不想说的太离谱，就三个字‘拉完了’。闹麻
+糊弄过去就糊弄过去吧。打梦魇应该不会爆什么典了吧……应该吧？
+
+—— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
