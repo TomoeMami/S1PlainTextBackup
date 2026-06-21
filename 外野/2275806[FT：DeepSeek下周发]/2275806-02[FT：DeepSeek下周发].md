@@ -4920,3 +4920,15 @@ AI时代也太爽了，像我这种完全没有审美的开发者也能假装自
 opencode不让写刘备，不让找资源，这该怎么调教啊……</blockquote>
 我用 opencode 免费 v4f 写皇没啥问题
 
+
+*****
+
+####  serj005  
+##### 1911#       发表于 2026-6-22 07:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69807428&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-6-21 01:13</a>
+话说各位朋友，我有点好奇，最新在APP更新的那个新的思考链有注入到API里面吗？
+
+—— 来自 S1Fun ...</blockquote>
+目前没有，api没动静
+
