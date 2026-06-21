@@ -47,3 +47,11 @@
 
 下集或者下下集要把gift篇结束了吧，梅菲斯特兽好像没有绝体绝命到要守宫兽进化究极体啊
 
+
+*****
+
+####  66367749  
+##### 661#       发表于 2026-6-22 07:24
+
+如果巫师兽正好倒在路边，回家一看姐没了不是做局的话，那有点太刻晴了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
