@@ -3570,3 +3570,29 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 
 我感觉这个游戏相比其他的游戏实在是有点肝啊。能干的事太多了，这就是韩国特色吗？
 
+
+*****
+
+####  windaria  
+##### 1073#       发表于 2026-6-21 16:29
+
+<img src="https://img.stage1st.com/forum/202606/21/162849nm1izluuy01i111l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (322.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-21 16:28 上传
+
+啊？还真和e7有关系啊
+
+*****
+
+####  三谷歩夢  
+##### 1074#       发表于 2026-6-21 21:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69809502&amp;ptid=2256125" target="_blank">tigs1 发表于 2026-6-21 16:10</a>
+
+我感觉这个游戏相比其他的游戏实在是有点肝啊。能干的事太多了，这就是韩国特色吗？ ...</blockquote>
+还行吧其实，因为这游戏拿低保的话对存档的需求很低的，现在刷毕业存档的大部分人也就是高射炮打蚊子
+
