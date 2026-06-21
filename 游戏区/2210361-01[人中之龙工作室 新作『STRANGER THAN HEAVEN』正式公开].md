@@ -50,3 +50,11 @@
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  chizuru  
+##### 261#       发表于 2026-6-21 14:30
+
+世嘉国内的宣发做的还是不错的
+
