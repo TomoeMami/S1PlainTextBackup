@@ -1840,3 +1840,57 @@ X：[https://twitter.com/BDP_AveMujica](https://twitter.com/BDP_AveMujica)
 
        [https://x.com/AkaneY_banu/status/2068308586342830368](https://x.com/AkaneY_banu/status/2068308586342830368)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41933#       发表于 2026-6-21 17:58
+
+       
+
+<img src="https://img.stage1st.com/forum/202606/21/175801vzjmlnjmqswtx1or.png" referrerpolicy="no-referrer">
+
+<strong>2026-06-21_17-55-04.png</strong> (1.4 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-21 17:58 上传
+
+       [https://x.com/ISLAND__9/status/2068309517226664188](https://x.com/ISLAND__9/status/2068309517226664188)
+
+       
+
+<img src="https://img.stage1st.com/forum/202606/21/175801zycu3ggd78g3cdcy.png" referrerpolicy="no-referrer">
+
+<strong>2026-06-21_17-55-24.png</strong> (1.1 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-21 17:58 上传
+
+       [https://x.com/ISLAND__9/status/2068560031755428251](https://x.com/ISLAND__9/status/2068560031755428251)
+
+       
+
+<img src="https://img.stage1st.com/forum/202606/21/175800cd0h7pif0sh015r8.png" referrerpolicy="no-referrer">
+
+<strong>2026-06-21_17-55-37.png</strong> (1.32 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-21 17:58 上传
+
+       [https://x.com/ISLAND__9/status/2068561440148226421](https://x.com/ISLAND__9/status/2068561440148226421)
+
+       
+
+<img src="https://img.stage1st.com/forum/202606/21/175759gvc1cjcse0vxocj0.png" referrerpolicy="no-referrer">
+
+<strong>2026-06-21_17-55-49.png</strong> (1.46 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-21 17:57 上传
+
+       [https://x.com/ISLAND__9/status/2068585390412632505](https://x.com/ISLAND__9/status/2068585390412632505)
+
