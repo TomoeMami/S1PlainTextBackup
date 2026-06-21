@@ -2938,3 +2938,11 @@ engage编剧带来的时间线穿越史诗故事！
 
 都没人讨论有无可能的中文配音？
 
+
+*****
+
+####  墨染白泉  
+##### 985#       发表于 2026-6-21 20:35
+
+这类游戏只听日配<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
