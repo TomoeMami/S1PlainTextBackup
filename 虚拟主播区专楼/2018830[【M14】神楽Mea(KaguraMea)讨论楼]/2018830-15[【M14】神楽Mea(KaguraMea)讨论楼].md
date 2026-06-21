@@ -2557,3 +2557,17 @@ s1+s3双冠王
 
 不容易啊，终于赢了。难得拿个好成绩。
 
+
+*****
+
+####  古战场亡魂  
+##### 20942#       发表于 2026-6-21 20:21
+
+<img src="https://img.stage1st.com/forum/202606/21/202142f1ll558ilr7l181l.png" referrerpolicy="no-referrer">
+
+<strong>ba81d8a056418efd860bc37f3ff24929.png</strong> (103.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-21 20:21 上传
+
