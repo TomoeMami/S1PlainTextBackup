@@ -86,3 +86,11 @@ code线真的纯烂完了<img src="https://static.stage1st.com/image/smiley/face
 
 —— 来自 Xiaomi 24129RT7CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  otakun  
+##### 1968#       发表于 2026-6-21 19:05
+
+两个阶段性boss 都是打完白打，看得很没意思啊…
+
