@@ -94,3 +94,13 @@ code线真的纯烂完了<img src="https://static.stage1st.com/image/smiley/face
 
 两个阶段性boss 都是打完白打，看得很没意思啊…
 
+
+*****
+
+####  haoshion  
+##### 1969#       发表于 2026-6-21 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69809806&amp;ptid=2250267" target="_blank">阿刚 发表于 2026-6-21 17:33</a>
+夫人应该还有后手吧，总不至于这么干脆的被吃了吧</blockquote>
+夫人一周目那么装然后一枪就倒了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
