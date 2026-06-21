@@ -40,3 +40,13 @@
 
 特别是看到那个浪人被主角对着肚子狠狠捅了一刀，只掉了一丝血，有点绷不住<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  这次是十块钱  
+##### 260#       发表于 2026-6-21 13:41
+
+看了pgg的视频，一把大菜刀对着别人胸口攮一刀结果就一丝血，绷不住了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
