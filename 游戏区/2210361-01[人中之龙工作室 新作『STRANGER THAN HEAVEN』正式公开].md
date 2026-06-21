@@ -58,3 +58,13 @@
 
 世嘉国内的宣发做的还是不错的
 
+
+*****
+
+####  clover293  
+##### 262#       发表于 2026-6-21 16:14
+
+媒体对战斗都好评？
+
+这么厉害<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
