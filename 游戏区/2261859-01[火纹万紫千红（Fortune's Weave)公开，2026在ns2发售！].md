@@ -2972,3 +2972,11 @@ engage编剧带来的时间线穿越史诗故事！
 
 不过小孩看起来是四人里唯一明显有挂的角色
 
+
+*****
+
+####  二十二颗牛油果  
+##### 989#       发表于 2026-6-22 00:53
+
+本来初见打算选黑皮女王的，但听到这个配音后实在接受不了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
