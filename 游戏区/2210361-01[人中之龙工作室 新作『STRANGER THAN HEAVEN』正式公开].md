@@ -68,3 +68,15 @@
 
 这么厉害<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 263#         楼主| 发表于 2026-6-21 16:27
+
+《STRANGER THAN HEAVEN》制作人采访：在陌生的天堂寻找容身之处
+[https://weibo.com/ttarticle/x/m/show#/id=2309405312202294034713](https://weibo.com/ttarticle/x/m/show#/id=2309405312202294034713)
+
+《STRANGER THAN HEAVEN》制作人采访 战斗系统灵感来源于拳击
+[https://weibo.com/ttarticle/x/m/show#/id=2309405312200729821355](https://weibo.com/ttarticle/x/m/show#/id=2309405312200729821355)
+
