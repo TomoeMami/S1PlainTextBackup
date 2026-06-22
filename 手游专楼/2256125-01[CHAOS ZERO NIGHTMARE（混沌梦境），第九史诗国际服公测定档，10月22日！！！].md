@@ -3617,3 +3617,28 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 深渊10还是有点难度的，特别是现在摆烂的情况下面，完全不想刷卡组</blockquote>
 深渊已经是最简单的局外内容了，刷一套没神闪的构筑就能通，而且刷一次可以一直用下去，基本不用担心有什么退环境的风险
 
+
+*****
+
+####  wthall  
+##### 1077#       发表于 2026-6-22 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69814055&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2026-6-22 14:42</a>
+
+深渊已经是最简单的局外内容了，刷一套没神闪的构筑就能通，而且刷一次可以一直用下去，基本不用担心有什 ...</blockquote>
+我现在已经懒到卡组都不高兴刷了，主要是没这个时间。
+
+卡组成形全靠代理
+
+*****
+
+####  windaria  
+##### 1078#       发表于 2026-6-22 15:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69814078&amp;ptid=2256125" target="_blank">wthall 发表于 2026-6-22 14:47</a>
+
+我现在已经懒到卡组都不高兴刷了，主要是没这个时间。
+
+卡组成形全靠代理 ...</blockquote>
+代理啥意思，代刷代肝？
+
