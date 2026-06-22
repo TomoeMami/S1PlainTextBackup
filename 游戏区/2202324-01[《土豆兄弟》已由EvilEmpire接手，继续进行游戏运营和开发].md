@@ -48,3 +48,14 @@
 帮吃钱的爬虫已经是噩梦难度必拿的了</blockquote>
 建造者：不认可（虽然后面吃不完，炮塔升级完后没那么刚需留钱了）
 
+
+*****
+
+####  绯红残叶  
+##### 428#       发表于 2026-6-22 21:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69812429&amp;ptid=2202324" target="_blank">双面人 发表于 2026-6-22 09:36</a>
+
+驯兽师纯看商店发牌的角色，商店发的宠物多能清出场地就厉害，反之就弱，而且无论强弱，通关都很没有参与 ...</blockquote>
+真是纯看脸，那个小老鼠一点用没有，前期没拿到蓝宠物直接暴毙，拿到两个随便打打过第9波<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
