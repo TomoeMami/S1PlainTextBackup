@@ -2761,3 +2761,14 @@ Hitsuji-san、Na-san、诶，Saki-san、Suzana先生谢谢。Ha-san、Shinyu-cha
 
 reject那边还有一篇动画没发，说是主播去了他们办公室的
 
+
+*****
+
+####  古战场亡魂  
+##### 20947#       发表于 2026-6-22 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69813831&amp;ptid=2018830" target="_blank">TiHaru 发表于 2026-6-22 13:56</a>
+
+reject那边还有一篇动画没发，说是主播去了他们办公室的</blockquote>
+总不能是加入rc了吧。
+

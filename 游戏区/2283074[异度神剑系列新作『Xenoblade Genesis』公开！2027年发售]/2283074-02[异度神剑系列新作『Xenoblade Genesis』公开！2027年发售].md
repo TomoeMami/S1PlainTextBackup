@@ -4208,3 +4208,16 @@ pv给了马、船、龙的画面，希望是指新作交通工具包含水陆空
 当然实 ...</blockquote>
 忽然没来由的对着这个名字有种讨厌的上面总部的大人物的感觉
 
+
+*****
+
+####  Markorca  
+##### 1875#       发表于 2026-6-22 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69814581&amp;ptid=2283074" target="_blank">UltramanPain 发表于 2026-6-22 16:18</a>
+
+研究了一下异度2新加的动作战斗新模式，如果新作战斗系统改成这样如何：
+
+1、方向键左右（或者肩键）切换不 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说的这个游戏是不是最终幻想7RE
+
