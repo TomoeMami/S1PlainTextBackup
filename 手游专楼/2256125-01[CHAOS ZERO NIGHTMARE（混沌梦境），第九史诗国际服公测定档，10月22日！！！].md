@@ -3596,3 +3596,24 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 我感觉这个游戏相比其他的游戏实在是有点肝啊。能干的事太多了，这就是韩国特色吗？ ...</blockquote>
 还行吧其实，因为这游戏拿低保的话对存档的需求很低的，现在刷毕业存档的大部分人也就是高射炮打蚊子
 
+
+*****
+
+####  wthall  
+##### 1075#       发表于 2026-6-22 14:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69810612&amp;ptid=2256125" target="_blank">三谷歩夢 发表于 2026-6-21 21:04</a>
+
+还行吧其实，因为这游戏拿低保的话对存档的需求很低的，现在刷毕业存档的大部分人也就是高射炮打蚊子 ...</blockquote>
+深渊10还是有点难度的，特别是现在摆烂的情况下面，完全不想刷卡组
+
+*****
+
+####  三谷歩夢  
+##### 1076#       发表于 2026-6-22 14:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69813854&amp;ptid=2256125" target="_blank">wthall 发表于 2026-6-22 14:02</a>
+
+深渊10还是有点难度的，特别是现在摆烂的情况下面，完全不想刷卡组</blockquote>
+深渊已经是最简单的局外内容了，刷一套没神闪的构筑就能通，而且刷一次可以一直用下去，基本不用担心有什么退环境的风险
+

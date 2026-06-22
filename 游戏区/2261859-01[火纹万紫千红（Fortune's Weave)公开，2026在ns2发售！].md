@@ -3105,3 +3105,16 @@ engage编剧带来的时间线穿越史诗故事！
 
 仓花千夏崩人体手游玩家早就熟悉得不行了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/33/cb55aaae58584850dcf5bbc446977a1f/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  406  
+##### 999#       发表于 2026-6-22 14:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69813437&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-6-22 12:23</a>
+
+因为人设和游戏内画师不是一个人啊
+
+仓花千夏崩人体手游玩家早就熟悉得不行了都习惯了 ...</blockquote>
+是的，我也是这个意思<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只要游戏里摆出来的角色脸和身材没问题就可以了，刚放出来的舞娘操作画面都不错
+
