@@ -4195,3 +4195,16 @@ pv给了马、船、龙的画面，希望是指新作交通工具包含水陆空
 
 4、武器安装的晶石用于diy大招和攻击属性
 
+
+*****
+
+####  Asimot  
+##### 1874#       发表于 2026-6-22 16:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69812325&amp;ptid=2283074" target="_blank">UltramanPain 发表于 2026-6-22 09:16</a>
+
+从现实角度讲，异度2、3既卖不过学园的女神异闻录，又卖不过风花雪月。新作改风格一点毛病没有。
+
+当然实 ...</blockquote>
+忽然没来由的对着这个名字有种讨厌的上面总部的大人物的感觉
+

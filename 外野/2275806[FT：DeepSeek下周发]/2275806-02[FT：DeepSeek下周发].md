@@ -4961,3 +4961,29 @@ c++下的ffmpeg真的是ai最严厉的父亲，我还记得去年搞一个ffmpeg
 
 豆姐王朝说是
 
+
+*****
+
+####  千千千千鸟  
+##### 1915#       发表于 2026-6-22 16:25
+
+我使用Pi做办公文件，总是磕磕绊绊，出现各种各样的问题，花了几天折腾出来一个插件，貌似效果还可以，然后我AI帮我上传到GITHUB备份一下，没想到AI直接弄了个单独的仓库出来，有点难蹦，主要是死活搜不到能解决这问题的方法。就是windows系统下用powershell总是出现一大堆毛病。完全小白式vibe，gemini3.1pro，GPT网页版和deepseek来回反刍。然后这个插件用了几天了，感觉还真解决痛点了，感觉很有成就感。[https://github.com/CCCCCCCCCC333/pi-execute-python](https://github.com/CCCCCCCCCC333/pi-execute-python)
+
+
+*****
+
+####  七氷  
+##### 1916#       发表于 2026-6-22 16:30
+
+Windows在wsl下搞
+
+*****
+
+####  千千千千鸟  
+##### 1917#       发表于 2026-6-22 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69814654&amp;ptid=2275806" target="_blank">七氷 发表于 2026-6-22 16:30</a>
+
+Windows在wsl下搞</blockquote>
+公司电脑没空间装<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">C盘都红了，16G内存日常使用14G以上了。然后我问AI说不推荐我安装wsl2，说这个东西本身的问题，频繁调用系统盘上的文件啥的效率很低
+
