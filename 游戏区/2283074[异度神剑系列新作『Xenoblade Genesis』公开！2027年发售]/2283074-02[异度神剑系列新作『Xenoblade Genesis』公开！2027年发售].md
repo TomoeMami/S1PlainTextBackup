@@ -4221,3 +4221,11 @@ pv给了马、船、龙的画面，希望是指新作交通工具包含水陆空
 1、方向键左右（或者肩键）切换不 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说的这个游戏是不是最终幻想7RE
 
+
+*****
+
+####  嘉术2015  
+##### 1876#       发表于 2026-6-22 16:44
+
+pv里的马和飞龙总是让我联想到wow不知道为什么
+
