@@ -3665,3 +3665,25 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 今天看商店时脑抽了一下，以为换命座和专武是不同的代币就换了一个市长专武（原来已 ...</blockquote>
 吃了就行，现在专武是越来越专的，真有人用得上那也是那个角色的专武更好用
 
+
+*****
+
+####  windaria  
+##### 1081#       发表于 2026-6-22 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69814910&amp;ptid=2256125" target="_blank">id_catcher 发表于 2026-6-22 17:15</a>
+
+代理指的是战术委托？
+
+今天看商店时脑抽了一下，以为换命座和专武是不同的代币就换了一个市长专武（原来已 ...</blockquote>
+我宁愿留着，毕竟吃一个也没多大提升，要吃就吃满
+
+*****
+
+####  christiny  
+##### 1082#       发表于 2026-6-22 22:05
+
+我的辅助档全是速通卷刷的，要求不高：面具刻印完美，拿到拷问箱，3个装备刻印拿满，其中一个50%小队增伤就行。 卡组局内删5复制2-3，剩下的局外改一点就可以了。
+
+相当护肝<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
