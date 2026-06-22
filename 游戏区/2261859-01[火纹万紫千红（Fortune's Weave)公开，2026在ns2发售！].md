@@ -3093,3 +3093,15 @@ engage编剧带来的时间线穿越史诗故事！
 有汉字原义不用非要自己造，到底是有 ...</blockquote>
 因为一石二鸟并非正规中文典故吧，本地化的时候的确应该处理一下，换成更适合中国人理解的词语。
 
+
+*****
+
+####  Humpy  
+##### 998#       发表于 2026-6-22 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69812852&amp;ptid=2261859" target="_blank">406 发表于 2026-6-22 10:41</a>
+目前角色介绍放出来的两个女主角人公宣传立绘都画得有点怪怪的，游戏里的头像框看着比角色介绍这两张顺眼 ...</blockquote>
+因为人设和游戏内画师不是一个人啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+仓花千夏崩人体手游玩家早就熟悉得不行了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/33/cb55aaae58584850dcf5bbc446977a1f/image.jpg" referrerpolicy="no-referrer">
+
