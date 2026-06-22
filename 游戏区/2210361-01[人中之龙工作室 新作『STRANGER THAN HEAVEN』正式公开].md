@@ -80,3 +80,15 @@
 《STRANGER THAN HEAVEN》制作人采访 战斗系统灵感来源于拳击
 [https://weibo.com/ttarticle/x/m/show#/id=2309405312200729821355](https://weibo.com/ttarticle/x/m/show#/id=2309405312200729821355)
 
+
+*****
+
+####  断翼  
+##### 264#       发表于 2026-6-22 22:53
+
+<blockquote>clover293 发表于 2026-6-21 16:14
+媒体对战斗都好评？
+
+这么厉害</blockquote>
+没有吧，A**测就说动作迟钝 人物不灵活，画面发黄。而且这个试玩就只有三场固定战斗，逛街都逛不了
+
