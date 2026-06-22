@@ -4159,3 +4159,20 @@ Steam Machine 公布售价
 
 1000刀也太贵了。这东西存在的意义难道就是顺势出个手柄吗。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  勿徊哉  
+##### 395#       发表于 2026-6-23 07:36
+
+意料之中。
+
+讲真内存再这样涨下去，明年说不定大家都觉得这个价格便宜了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  勿徊哉  
+##### 396#       发表于 2026-6-23 07:39
+
+好消息是没人买的话，我的手柄能排的快一些
+
