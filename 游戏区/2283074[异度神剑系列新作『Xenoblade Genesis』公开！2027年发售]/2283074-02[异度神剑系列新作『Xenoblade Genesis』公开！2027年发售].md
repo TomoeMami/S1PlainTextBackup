@@ -4145,3 +4145,17 @@ pv给了马、船、龙的画面，希望是指新作交通工具包含水陆空
 异度X的人设跟风花雪月相似度也太大了，这回真没兴趣继续买</blockquote>
 马克。    
 
+
+*****
+
+####  UltramanPain  
+##### 1870#       发表于 2026-6-22 09:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69811521&amp;ptid=2283074" target="_blank">苏三不要哭 发表于 2026-6-22 00:43</a>
+异度X的人设跟风花雪月相似度也太大了，这回真没兴趣继续买</blockquote>
+从现实角度讲，异度2、3既卖不过学园的女神异闻录，又卖不过风花雪月。新作改风格一点毛病没有。
+
+当然实际情况不一定是这样，因为任天堂同一个监督横田弦既的另一个系列火纹，也是一两作必须换一个人设和风格。即使风花雪月卖了400万，续作也没有学园了。
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
