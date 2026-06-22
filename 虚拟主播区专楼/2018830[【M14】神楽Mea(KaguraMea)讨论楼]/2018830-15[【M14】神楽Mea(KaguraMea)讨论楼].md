@@ -2753,3 +2753,11 @@ Hitsuji-san、Na-san、诶，Saki-san、Suzana先生谢谢。Ha-san、Shinyu-cha
 
 <img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">虽然有点事到如今，但是今天她获胜采访那段发言真的是太好了，真的平时不管怎么样，但是内心真的是很纤细很温柔却又充满激情的一个孩子啊
 
+
+*****
+
+####  TiHaru  
+##### 20946#       发表于 2026-6-22 13:56
+
+reject那边还有一篇动画没发，说是主播去了他们办公室的
+
