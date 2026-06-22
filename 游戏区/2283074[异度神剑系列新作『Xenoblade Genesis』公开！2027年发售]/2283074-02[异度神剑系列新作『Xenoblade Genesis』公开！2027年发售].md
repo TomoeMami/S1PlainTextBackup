@@ -4229,3 +4229,14 @@ pv给了马、船、龙的画面，希望是指新作交通工具包含水陆空
 
 pv里的马和飞龙总是让我联想到wow不知道为什么
 
+
+*****
+
+####  woaimiyabi  
+##### 1877#       发表于 2026-6-22 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69814722&amp;ptid=2283074" target="_blank">嘉术2015 发表于 2026-6-22 16:44</a>
+
+pv里的马和飞龙总是让我联想到wow不知道为什么</blockquote>
+正常 高桥哥哥非常喜欢wow
+
