@@ -133,3 +133,18 @@
 原本一直以为如龙这种讲黑 ...</blockquote>
 那我觉得不要期待比较好 如龙系列从第一代起就不是什么很正经的作品
 
+
+*****
+
+####  缺德猫  
+##### 269#       发表于 2026-6-23 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69816279&amp;ptid=2210361" target="_blank">ShiKi847 发表于 2026-6-22 23:40</a>
+
+这作应该不会是过家家剧情了吧。
+
+如龙7和8两次都是会免玩了3小时候就删游戏了。
+
+原本一直以为如龙这种讲黑 ...</blockquote>
+最多血腥程度高一些，其他内容还是老一套
+
