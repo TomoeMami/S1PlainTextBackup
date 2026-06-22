@@ -4987,3 +4987,13 @@ Windows在wsl下搞
 Windows在wsl下搞</blockquote>
 公司电脑没空间装<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">C盘都红了，16G内存日常使用14G以上了。然后我问AI说不推荐我安装wsl2，说这个东西本身的问题，频繁调用系统盘上的文件啥的效率很低
 
+
+*****
+
+####  goranger  
+##### 1918#       发表于 2026-6-22 17:42
+
+话说open code go不就跟ds官方token plan差不多嘛，都没怎么看有人提，只用flash基本爽蹬了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
