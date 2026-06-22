@@ -903,3 +903,11 @@ Literally stylish-act
 
 —— 来自 HUAWEI SGT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  姜岑  
+##### 98#       发表于 2026-6-22 23:02
+
+最近外网阿三全面出击造谣攻击东大，这游戏还会被批小将捧吗，you are shang！
+
