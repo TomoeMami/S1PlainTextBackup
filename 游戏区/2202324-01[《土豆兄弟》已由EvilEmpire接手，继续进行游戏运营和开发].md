@@ -26,3 +26,15 @@
 
 ----发送自 [realme RMX3800,Android 15](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  风流庵TypeC  
+##### 426#       发表于 2026-6-22 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69813490&amp;ptid=2202324" target="_blank">lovepenny 发表于 2026-6-22 12:34</a>
+建造者好难用啊，我看up们打，红弹弓，堆工程，基本都能过，我怎么就是过不去难5，结果有一把拿到了斩首剑 ...</blockquote>
+前四波不要给炮台吃钱，尽快合出第一个红武器，boss要引到正中间，和炮台重叠把所有伤害灌满
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
