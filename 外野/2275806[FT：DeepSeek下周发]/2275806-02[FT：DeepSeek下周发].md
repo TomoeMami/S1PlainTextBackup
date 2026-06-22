@@ -4950,3 +4950,14 @@ c++下的ffmpeg真的是ai最严厉的父亲，我还记得去年搞一个ffmpeg
 
 放假我wsl下现有项目fmpeg仿真数据编码推流v4pro agent烧了50块都没搞定，最后反复让我承认当前版本Ubuntu啊wsl啊ffmpeg有问题。最后切v4flash 2块钱搞定了。当然最后也没明白为啥能搞定，到底卡在哪让他总结也总结不出来，反正挺幽灵的一个卡点。但是以后再也不用pro干agent了，即发散又爱甩锅，还动不动方案降级。flash又快又便宜
 
+
+*****
+
+####  绝地潜兵  
+##### 1914#       发表于 2026-6-22 09:59
+
+豆包Seed 2.1 Pro Preview出现在Arena竞技场排行榜中，与claude opus 4.6分数相当 
+[https://arena.ai/leaderboard/code/webdev](https://arena.ai/leaderboard/code/webdev)
+
+豆姐王朝说是
+
