@@ -4083,3 +4083,71 @@ Steam Machine 公布售价
 
 喜欢给别人扣索狗帽子，现在该出来给你的阀门爹洗地尽孝了
 
+
+*****
+
+####  ultraseven  
+##### 390#       发表于 2026-6-23 02:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69816554&amp;ptid=2267066" target="_blank">爱护动物抓根宝 发表于 2026-6-23 02:12</a>
+
+都不谈性能，16+8还卖这个价格竞争力也太低了，你说统一内存24g我还有点兴趣 ...</blockquote>
+统一内存要定制啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 391#       发表于 2026-6-23 02:29
+
+感觉内存给小了
+不过这价钱应该在美国应该是秒售罄
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  医生狼多  
+##### 392#       发表于 2026-6-23 02:31
+
+就steam手柄那出货量，主机北美能有个多少备货呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  liekong  
+##### 393#       发表于 2026-6-23 02:34
+
+<img src="https://img.stage1st.com/forum/202606/23/023325q92fo9axzz559lx3.png" referrerpolicy="no-referrer">
+
+<strong></strong> (616.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-23 02:33 上传
+
+<img src="https://img.stage1st.com/forum/202606/23/023346ofz1dw98eddadio9.png" referrerpolicy="no-referrer">
+
+<strong>K@UT@`UHPWFTHV(1FM~MH_K.png</strong> (2.44 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-23 02:33 上传
+
+<img src="https://img.stage1st.com/forum/202606/23/023353roro9d6rdoqotdsa.png" referrerpolicy="no-referrer">
+
+<strong>LLGF6W4R64MM4BZDK4{B.png</strong> (2.93 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-23 02:33 上传
+
+<img src="https://img.stage1st.com/forum/202606/23/023406m6q3qg4aea6ezu4y.png" referrerpolicy="no-referrer">
+
+<strong>(JPND%F[31BQVZ~HB6Q@Y2L.png</strong> (2.18 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-23 02:34 上传
+
+比PS5 Pro贵得多得价格，表现不如PS5，可能就尺寸比PS5小这一点算优点
+
