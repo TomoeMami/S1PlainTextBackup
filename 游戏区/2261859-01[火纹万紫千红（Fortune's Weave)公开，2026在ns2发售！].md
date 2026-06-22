@@ -3050,3 +3050,17 @@ engage编剧带来的时间线穿越史诗故事！
 
 听着仿佛感觉耳边一个女的在说你相信爱吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  takayama  
+##### 994#       发表于 2026-6-22 08:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69812146&amp;ptid=2261859" target="_blank">Humpy 发表于 2026-6-22 08:33</a>
+话说雷达个人战斗pv里的bgm是不是友军入队小曲的remix版
+
+听着仿佛感觉耳边一个女的在说你相信爱吗 ...</blockquote>
+手游FEH玩家:又到了检验是否毒池的时候啦啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
