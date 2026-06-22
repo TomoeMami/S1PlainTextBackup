@@ -4303,3 +4303,23 @@ pv里的马和飞龙总是让我联想到wow不知道为什么</blockquote>
 —— 来自 Xiaomi ...</blockquote>
 现在除了女主连其他人叫啥都不知道，是不是只有这几个人都未可知，但是主角团传统来说都不会太多人，再看看后续情报有没有类似三房那样的校园独特的玩法，如果没有的话应该占比确实不大，反之亦然。
 
+
+*****
+
+####  richardkisser  
+##### 1884#       发表于 2026-6-22 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69815029&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-6-22 17:35</a>
+
+有没有官网地址啊 我找不到</blockquote>
+mono官网还没有任何信息，现在还没到正式宣发的时候
+
+*****
+
+####  满满一大杯  
+##### 1885#       发表于 2026-6-22 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69815029&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-6-22 17:35</a>
+有没有官网地址啊 我找不到</blockquote>
+https://www.nintendo.com/jp/games/switch2/ab4fa/index.html
+

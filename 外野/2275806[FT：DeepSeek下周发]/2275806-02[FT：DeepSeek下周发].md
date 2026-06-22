@@ -4997,3 +4997,26 @@ Windows在wsl下搞</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  御坂MKII  
+##### 1919#       发表于 2026-6-22 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69815067&amp;ptid=2275806" target="_blank">goranger 发表于 2026-6-22 17:42</a>
+
+话说open code go不就跟ds官方token plan差不多嘛，都没怎么看有人提，只用flash基本爽蹬了
+
+论坛助手,iPho ...</blockquote>
+有人提过吧，之前应该有人说过，opencode 那个 ds 的倍率不如其他的高就是因为 ds api 本身就够便宜了
+
+*****
+
+####  御坂MKII  
+##### 1920#       发表于 2026-6-22 17:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69814664&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-6-22 16:33</a>
+
+公司电脑没空间装C盘都红了，16G内存日常使用14G以上了。然后我问AI说不推荐我安装wsl2，说这个东西本身 ...</blockquote>
+wsl2 现在就是虚拟机，读宿主机的东西很耗 io
+
