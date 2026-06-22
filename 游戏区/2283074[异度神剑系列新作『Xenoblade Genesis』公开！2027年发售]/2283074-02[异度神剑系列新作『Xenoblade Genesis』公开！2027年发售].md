@@ -4250,3 +4250,37 @@ pv里的马和飞龙总是让我联想到wow不知道为什么</blockquote>
 你说的这个游戏是不是最终幻想7RE</blockquote>
 系统设计就在mono，没毛病
 
+
+*****
+
+####  UltramanPain  
+##### 1879#       发表于 2026-6-22 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69814703&amp;ptid=2283074" target="_blank">Markorca 发表于 2026-6-22 16:40</a>
+你说的这个游戏是不是最终幻想7RE</blockquote>
+只是根据pv分析的。
+女主动画翻滚躲攻击，闪避系统。
+武器装不同颜色晶石，切换属性和大招。
+同场角色至少有三个，角色切换。
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  hkguty  
+##### 1880#       发表于 2026-6-22 17:23
+
+具体还是得看看后续情报，目前连官网都没开感觉藏了不少，是否只有女主视角，是否有学院的游玩要素也不清楚
+
+
+*****
+
+####  UltramanPain  
+##### 1881#       发表于 2026-6-22 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69814960&amp;ptid=2283074" target="_blank">hkguty 发表于 2026-6-22 17:23</a>
+具体还是得看看后续情报，目前连官网都没开感觉藏了不少，是否只有女主视角，是否有学院的游玩要素也不清楚 ...</blockquote>
+学校除了六个主要角色，基本都是大众脸，我是觉得没多少篇幅，顶多中后期回来打个BOSS
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
