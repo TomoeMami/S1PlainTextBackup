@@ -842,3 +842,14 @@ Steam上买游戏全靠玩cs<img src="https://static.stage1st.com/image/smiley/f
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  sotsu  
+##### 88#       发表于 2026-6-24 05:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69817418&amp;ptid=2284072" target="_blank">8frames 发表于 2026-6-23 10:02</a>
+
+我手里的rogally是真刷了steamos，这系统解决了不少痛点</blockquote>
+可以细说嘛，我也在考虑要不要装一个，还在考虑Bazzite OS
+
