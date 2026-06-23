@@ -5248,3 +5248,15 @@ deepseek有可能在后面静默更新?</blockquote>
 
 比起新模型其实harness的发展要快多了，因为门槛比研究模型要低得多，每天一觉睡醒发现世界各地又有人做出来新的开源工具，我立马就能用上，那感觉可太棒了<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蛋黄酱Release  
+##### 1941#       发表于 2026-6-24 01:08
+
+用了glm5.2之后再换回v4pro就感觉流口水的厉害<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+但是也不希望v4.1变成coding特化，便宜的通用能力也很重要
+只能说期待deepseek搞出引爆全场的harness+专门的code模型<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
