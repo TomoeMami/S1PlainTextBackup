@@ -663,3 +663,15 @@ linus是典型的不会用linux，我都怀疑他拿这点当卖点了。
 【【官方双语】Linux用什么显卡最好？#linus谈科技】 https://www.bilibili.com/video/BV1wn6uBwEiw/?sha ...</blockquote>
 好了知道你不用 linux 了，ltt 在 linux 相关简直视频简直是灾难级别的，ltt 在这方面甚至没我权威，其次，我没记错的话这个视频的结论是 nvidia 在 linux 上相比 windows 存在性能损失，我觉得性能损失肯定有，毕竟存在 api 的转换，但具体的数据我对 ltt 持怀疑态度，但你猜怎么着，以上内容压根不是 linux 社区常年对 nvidia 批评的原因，以前的批评包括 nvidia 分发二进制内核驱动，坚持 eglstream 拒绝 libgbm，wayland 显式同步协议，缺乏 linux 下原生的硬件解码，缺乏 hdr 支持等等，例如你发的视频说的n卡在linux上运行dx12游戏的性能损失，社区普遍认为可以通过 vulkan 扩展 heap descriptor 来解决，但事实是，nvidia 在今年已经实现了该扩展，现在需要社区和 valve 进行适配来测试效果，所以现在反倒是社区慢于 nvidia，以至于社区都不知道该批评 nvidia 什么了。在 linux 总有人拿着老黄历来说事，我记得前两年在 pc 区也辩过一次，不关心 linux 可以闭嘴，好奇可以多问，别拿自己不懂的东西出来指点。
 
+
+*****
+
+####  tsubasa9  
+##### 70#       发表于 2026-6-23 19:02
+
+ 本帖最后由 tsubasa9 于 2026-6-23 19:03 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69820058&amp;ptid=2284072" target="_blank">indtability 发表于 2026-6-23 18:09</a>
+
+好了知道你不用 linux 了，ltt 在 linux 相关简直视频简直是灾难级别的，ltt 在这方面甚至没我权威，其次 ...</blockquote>
+你说得对，但是pascal之类的老卡用不了，同期的gcn还在飞
+
