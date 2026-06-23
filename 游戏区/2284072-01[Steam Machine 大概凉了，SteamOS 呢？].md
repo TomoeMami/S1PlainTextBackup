@@ -573,3 +573,13 @@ SteamOS没办法玩任何反作弊的游戏，除了V社自家的
 
 steamos提供了用户态的反作弊, 不过国产氪金二游貌似没有用的, steam上的鸣潮好像也是自研的反作弊吧
 
+
+*****
+
+####  七氷  
+##### 60#       发表于 2026-6-23 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69819143&amp;ptid=2284072" target="_blank">风夏 发表于 2026-6-23 15:24</a>
+steamos提供了用户态的反作弊, 不过国产氪金二游貌似没有用的, steam上的鸣潮好像也是自研的反作弊吧 ...</blockquote>
+都是腾讯ACE
+
