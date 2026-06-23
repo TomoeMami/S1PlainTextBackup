@@ -813,3 +813,13 @@ steamos应用在pc的意义是？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我觉得指望steamos不如指望steam登录安卓
 
+
+*****
+
+####  黑白魔炮使  
+##### 85#       发表于 2026-6-23 23:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我说指望steamOS不如指望steaminput下个月起来走两步
+
+真能用吗steaminput，我开着BUG真多啊
+
