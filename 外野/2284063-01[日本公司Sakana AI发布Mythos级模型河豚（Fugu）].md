@@ -442,3 +442,13 @@ TTTT大模型，二台遥遥领先！
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  cyberalogo  
+##### 42#       发表于 2026-6-23 12:52
+
+这算不算是日本氪金游戏卖角色皮肤套路的成功运用？
+
+给AI套上个皮肤说是SP角色再赚一波。<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

@@ -437,3 +437,32 @@ Steam Mega
 
 Steam Meta
 
+
+*****
+
+####  ybfelix  
+##### 46#       发表于 2026-6-23 12:51
+
+我一直以为steamOS本来就是随便下随便装的。原来居然不是吗
+
+
+*****
+
+####  kkndcdr  
+##### 47#       发表于 2026-6-23 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69817031&amp;ptid=2284072" target="_blank">泰坦失足 发表于 2026-6-23 09:01</a>
+
+唯一出路大概就是上手机了吧。至少在中国会有不小的市场。但是指望一个主机/掌机都没有只有手机的用户，安 ...</blockquote>
+上手机不就是和苹果谷歌抢市场？系统都是人家的，恐怕凶多吉少。
+
+*****
+
+####  Kojimaru  
+##### 48#       发表于 2026-6-23 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69818406&amp;ptid=2284072" target="_blank">ybfelix 发表于 2026-6-23 12:51</a>
+
+我一直以为steamOS本来就是随便下随便装的。原来居然不是吗</blockquote>
+现在确实是，拿个u盘十分钟就能搞定
+
