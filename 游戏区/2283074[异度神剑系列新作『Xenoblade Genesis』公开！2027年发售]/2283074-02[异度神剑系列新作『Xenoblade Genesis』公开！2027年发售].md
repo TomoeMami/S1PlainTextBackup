@@ -4335,3 +4335,30 @@ https://www.nintendo.com/jp/games/switch2/ab4fa/index.html
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  UltramanPain  
+##### 1887#       发表于 2026-6-23 22:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69820944&amp;ptid=2283074" target="_blank">UltramanPain 发表于 2026-6-23 21:46</a>
+粉色的头发，坚毅的眼神，我想起来了给我的感觉，拉克丝克莱因。
+异度3dlc，米山舞画的英雄配音也是田中理 ...</blockquote>
+也许是高桥试了一下田中理慧不合适，就换了一个，让田中理慧配了dlc
+dlc英雄是米山舞+田中理慧组合，新作女主又是粉头发<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">很难不多想
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Asimot  
+##### 1888#       发表于 2026-6-23 22:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69821103&amp;ptid=2283074" target="_blank">UltramanPain 发表于 2026-6-23 22:33</a>
+
+也许是高桥试了一下田中理慧不合适，就换了一个，让田中理慧配了dlc
+
+dlc英雄是米山舞+田中理慧组合，新作 ...</blockquote>
+阿姨现在还能夹出拉克丝的声音吗
+
