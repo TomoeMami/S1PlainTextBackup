@@ -5220,3 +5220,13 @@ deepseek有可能在后面静默更新?</blockquote>
 没有人知道，deepseek 非常自由，没人能猜    Re:Source</blockquote>
 我猜是下个月，按去年的惯例来说是三个月左右更新一次，今年v4我觉得是外部原因导致不得不延迟
 
+
+*****
+
+####  raragon  
+##### 1938#       发表于 2026-6-23 21:28
+
+4.1快点来吧，deepseek补上coding后训练+多模态，其他家真的可以完全抛弃了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+说实话对大部分coding场景来说opus4.6-4.8的水平完全够用，未来一定是成本大战
+
