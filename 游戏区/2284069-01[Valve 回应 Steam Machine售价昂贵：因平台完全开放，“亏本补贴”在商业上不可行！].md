@@ -477,3 +477,13 @@ steam的实体商品真的能洗钱<img src="https://static.stage1st.com/image/s
 你配不出来的机器，能市价买到还想怎样？配不出的机器卖更高价都有底气 ...</blockquote>
 我跟你算个账，pdd7500f加上itx主板，1500，7600xt短卡，1477（这个甚至比你steammachine的7600m要强一些）），内存硬盘电源机箱存储在这种极低配环境下4000块钱做不到？原来是16加512g的笔电性能配置啊，不知道的还以为你要买128gddr58000加上8tx4加上rog2000w电源呢
 
+
+*****
+
+####  鹅大人  
+##### 49#       发表于 2026-6-24 06:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69821789&amp;ptid=2284069" target="_blank">贝恩德塔 发表于 2026-6-24 06:17</a>
+我跟你算个账，pdd7500f加上itx主板，1500，7600xt短卡，1477（这个甚至比你steammachine的笔电gpu7600m要 ...</blockquote>
+别说了，阀门议价能力不如国内装机小店<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
