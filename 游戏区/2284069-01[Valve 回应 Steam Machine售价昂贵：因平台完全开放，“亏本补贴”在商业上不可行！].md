@@ -455,3 +455,25 @@ steam的实体商品真的能洗钱<img src="https://static.stage1st.com/image/s
 
 一代steam主机因为只相当于同时代 750ti的显卡已经完蛋一次了，这回又要光速去世
 
+
+*****
+
+####  贝恩德塔  
+##### 47#       发表于 2026-6-24 06:12
+
+ 本帖最后由 贝恩德塔 于 2026-6-24 06:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69819404&amp;ptid=2284069" target="_blank">强尼高达 发表于 2026-6-23 16:09</a>
+
+你配不出来的机器，能市价买到还想怎样？配不出的机器卖更高价都有底气 ...</blockquote>
+怎么就配不出来了？莫名其妙，现在市面上我说的配置哪个不能买到？你根本没配过itx主机吧？弱智，况且steammachine这gpu还不如4060，
+
+*****
+
+####  贝恩德塔  
+##### 48#       发表于 2026-6-24 06:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69819404&amp;ptid=2284069" target="_blank">强尼高达 发表于 2026-6-23 16:09</a>
+
+你配不出来的机器，能市价买到还想怎样？配不出的机器卖更高价都有底气 ...</blockquote>
+我跟你算个账，pdd7500f加上itx主板，1500，7600xt短卡，1477（这个甚至比你steammachine的7600m要强一些）），内存硬盘电源机箱存储在这种极低配环境下4000块钱做不到？原来是16加512g的笔电性能配置啊，不知道的还以为你要买128gddr58000加上8tx4加上rog2000w电源呢
+
