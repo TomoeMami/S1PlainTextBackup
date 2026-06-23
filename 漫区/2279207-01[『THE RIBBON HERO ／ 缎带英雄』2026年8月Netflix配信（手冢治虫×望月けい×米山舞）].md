@@ -685,3 +685,11 @@ CGディレクター：長嶺明音
 8月8日(土)Netflix世界独占配信をお楽しみに！
 <img src="https://p.sda1.dev/33/36fa18d4c0a4ca47181882bbbef0b9ac/1000168738.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  双菜  
+##### 56#       发表于 2026-6-23 20:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原作是魔女，动画是魔王，所以折中了一下搞了个画女硬说男的反派吗
+
