@@ -553,3 +553,15 @@ SteamOS没办法玩任何反作弊的游戏，除了V社自家的
 
 况且很多游戏都不支持，本身都是PC跑PC游戏中间还要转译，有多少本身支持的功能会不支持？
 
+
+*****
+
+####  七氷  
+##### 58#       发表于 2026-6-23 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69818931&amp;ptid=2284072" target="_blank">黑白魔炮使 发表于 2026-6-23 14:49</a>
+SteamOS没办法玩任何反作弊的游戏，除了V社自家的
+
+况且很多游戏都不支持，本身都是PC跑PC游戏中间还要转译 ...</blockquote>
+不是所有反作弊玩不了，要看反作弊等级
+
