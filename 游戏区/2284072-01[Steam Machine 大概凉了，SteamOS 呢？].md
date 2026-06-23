@@ -853,3 +853,11 @@ Steam上买游戏全靠玩cs<img src="https://static.stage1st.com/image/smiley/f
 我手里的rogally是真刷了steamos，这系统解决了不少痛点</blockquote>
 可以细说嘛，我也在考虑要不要装一个，还在考虑Bazzite OS
 
+
+*****
+
+####  土星环  
+##### 89#       发表于 2026-6-24 07:23
+
+客观来说v社做硬件估计都是防御性动作，毕竟已经搞了个能无本万利抽成的平台，谁还想苦哈哈的做硬件
+
