@@ -4374,3 +4374,18 @@ dlc英雄是米山舞+田中理慧组合，新作 ...</blockquote>
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  whzfjd  
+##### 1890#       发表于 2026-6-23 23:48
+
+拉克丝一文职，pv里的气质至少也是卡嘉莉了，其实我一直幻视米米版狸猫（不会真看了水魔上头了吧）
+
+*****
+
+####  陆久舟  
+##### 1891#       发表于 2026-6-23 23:48
+
+希望xbg别再搞前传性质的DLC了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
