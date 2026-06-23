@@ -721,3 +721,26 @@ steam大屏模式算steamos吗？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  暗口崩子  
+##### 76#       发表于 2026-6-23 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69820538&amp;ptid=2284072" target="_blank">LYYL 发表于 2026-6-23 20:07</a>
+
+steam大屏模式算steamos吗？
+
+—— 来自 S1Fun</blockquote>
+当然不算，就是个启动器ui而已
+
+*****
+
+####  风夏  
+##### 77#       发表于 2026-6-23 20:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对于我来说, 创建一个wayland session的启动会话, 里面运行gamescope + steam + "-gamepadui -steamos3 -steampal -steamdeck" 启动命令, 这就是风味steamos了
+
+[https://github.com/ChimeraOS/gamescope-session](https://github.com/ChimeraOS/gamescope-session)
+[https://github.com/ChimeraOS/gamescope-session-steam](https://github.com/ChimeraOS/gamescope-session-steam)
+
