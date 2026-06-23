@@ -4362,3 +4362,15 @@ dlc英雄是米山舞+田中理慧组合，新作女主又是粉头发<img src="
 dlc英雄是米山舞+田中理慧组合，新作 ...</blockquote>
 阿姨现在还能夹出拉克丝的声音吗
 
+
+*****
+
+####  UltramanPain  
+##### 1889#       发表于 2026-6-23 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69821133&amp;ptid=2283074" target="_blank">Asimot 发表于 2026-6-23 22:42</a>
+阿姨现在还能夹出拉克丝的声音吗</blockquote>
+这不是才出了电影没多久，还有个前传电影要拍
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
