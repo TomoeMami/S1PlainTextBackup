@@ -5210,3 +5210,13 @@ deepseek有可能在后面静默更新?</blockquote>
 这个月能更新4.1吗</blockquote>
 没有人知道，deepseek 非常自由，没人能猜    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  羊寢  
+##### 1937#       发表于 2026-6-23 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69819872&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-6-23 17:33</a>
+没有人知道，deepseek 非常自由，没人能猜    Re:Source</blockquote>
+我猜是下个月，按去年的惯例来说是三个月左右更新一次，今年v4我觉得是外部原因导致不得不延迟
+
