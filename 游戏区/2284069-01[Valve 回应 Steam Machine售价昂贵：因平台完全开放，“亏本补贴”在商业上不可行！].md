@@ -1,0 +1,401 @@
+﻿
+*****
+
+####  天堂大法  
+##### 1#       楼主       发表于 2026-6-23 08:03
+
+游戏产业巨头 Valve 于昨日正式揭晓了其备受瞩目的客厅主机「Steam Machine」的官方售价，然而最低配置 1,049 美元（约合人民币 7,600+ 元）、顶配高达 1,428 美元的天价，瞬间在玩家社群与科技业界引爆了巨大争议。针对外界对其「定价过高」、「为何不像传统游戏主机进行价格补贴」的强烈质疑，Valve 官方通过知名科技媒体《The Verge》发表了正式回应，深度解析了其背后的硬件商业逻辑与平台核心理念。
+
+打破传统主机模式：硬件不锁定，补贴将导致「无效亏损」
+
+在传统游戏主机市场中，索尼（Sony）和微软（Microsoft）普遍采用「亏本贩售硬件，再通过后续独占游戏抽成与在线订阅服务（如 PS Plus）回收利益」的商业模式。然而，Valve 在接受《The Verge》采访时明确表示，这一套封闭生态的玩法完全不适用于全新的 Steam Machine。
+
+「我们不会对我们的硬件进行任何底层锁定（We don't lock our hardware down）。」Valve 官方发言人指出，Steam Machine 的本质是一台运行定制 SteamOS 的开放平台 PC。玩家将其买回家后，拥有完全的自主权——可以将其切换至桌面模式、绕过 Steam 安装任意第三方软件、甚至完全当作一台普通的微型电脑来使用。
+
+Valve 坦言，如果官方将硬件价格强行补贴、压低至 500 美元左右的「主机价」，将会引发灾难性的市场扭曲：大量非游戏用户、极客甚至是企业，会为了高性价比而疯狂抢购这款设备，将其改造成微型服务器、NAS 或是 AI 边缘计算节点，而根本不会在 Steam 商店购买任何游戏。如此一来，Valve 的巨额硬件补贴将彻底变成无法收回成本的「纯粹亏损」。
+
+供应链危机与 AI 浪潮背刺：制造成本已彻底失控
+
+除了由于平台开放性导致的商业策略调整外，2026 年席卷全球的硬件供应链危机，则是将 Steam Machine 逼上「千元美金大关」的直接导火索。
+
+Valve 承认，由于目前全球各大 AI 数据中心正在疯狂抢夺产能，导致高性能内存（RAM）与闪存芯片（NSSD）的采购成本大幅暴涨，已经完全超出了最初立项时的预期。Valve 表示，为了维持设备在客厅实现「原生 4K/60帧 3A 级游戏」的高规格硬件底子，官方无法在硬件配置上做出妥协，只能采取「硬碰硬」的成本定价策略。由于核心零部件供货极其紧张，首批 Steam Machine 的出货数量也将「远低于最初的计划」。
+
+桌面版 SteamOS 全面开放：这才是 Valve 的「另一种补贴」
+
+作为对无法提供低价硬件的「补偿」，Valve 也在本次采访中向整个 PC 硬件行业抛出了一枚震撼弹：官方将同步全面放开桌面版 SteamOS 的系统镜像下载。
+
+Valve 借此向市场传递了一个清晰的信号：如果玩家认为 1,049 美元的官方 Steam Machine 超出了预算，完全不需要购买官方硬件。玩家可以利用自己现有的旧电脑，或者自行去市场上采购高性价比的配件，组装一台微型 ITX 电脑，然后免费下载、安装官方的 SteamOS 系统，从而零系统成本地享受到完全相同的客厅大银幕游戏体验。
+
+Valve 强调，「提供自由、开源的优秀系统生态，让玩家和第三方硬体厂商自由探索」，才是 Valve 认为他们对客厅游戏生态最大的贡献与变相补贴。
+
+媒体与社群观察：高端极客的玩具，而非大众普及品
+
+《The Verge》在报道最后指出，全新 Steam Machine 的定位已经从最初传闻中的「PS5 Pro 竞争者」，彻底蜕变为了一个针对硬核发烧友的「高端极客标杆（Flagship Showcase）」。Valve 并不指望靠这款官方硬件实现海量普及，而是试图用它作为领头羊，去激活整个第三方 PC 厂商的 SteamOS 客厅主机生态。
+
+目前，Steam Machine 已在欧美等特定地区开放基于严格防黄牛门槛的「抽签预约登记」，并定于 6 月 29 日正式发货。至于亚洲地区（含港澳台）的本地化售价与具体的引入时间，则仍需等待官方授权经销商 Komodo 的进一步公告。
+
+<img src="https://img.stage1st.com/forum/202606/23/080245uattxyxu3qmumux7.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8991.jpeg</strong> (287.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-23 08:02 上传
+
+*****
+
+####  妮贝雅  
+##### 2#       发表于 2026-6-23 08:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">那我干嘛不自己买一台PC
+
+*****
+
+####  天堂大法  
+##### 3#         楼主| 发表于 2026-6-23 08:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这价格 属实是看笑了 蒸汽用户想红酒沙发大彩电怎么这么贵
+
+*****
+
+####  陛下欲反邪  
+##### 4#       发表于 2026-6-23 08:08
+
+看看现在的笔记本价位，就知道Steam machine是这个结果
+这年头7999能买到5060都是好价了，还能说啥
+总感觉G胖这硬件梦要二度出师未捷了
+
+*****
+
+####  暗口崩子  
+##### 5#       发表于 2026-6-23 09:17
+
+那我干嘛不自己买一台PC，图你steamos吗
+
+*****
+
+####  啊哈  
+##### 6#       发表于 2026-6-23 09:21
+
+等50刀清  仓
+
+*****
+
+####  五块  
+##### 7#       发表于 2026-6-23 09:21
+
+这不就是卖给信仰用户吗，真不如隔壁二手区拣点刷个steam os吧，诶，刚好有人卖3080ti全套<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KevinGraham  
+##### 8#       发表于 2026-6-23 09:23
+
+“Valve 表示，为了维持设备在客厅实现「原生 4K/60帧 3A 级游戏」的高规格硬件底子，官方无法在硬件配置上做出妥协”
+指8540u+7600m是吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 纸冰心 + 1欢乐多
+
+ 缺德猫 + 2
+
+查看全部评分
+
+*****
+
+####  Vladimeow  
+##### 9#       发表于 2026-6-23 09:25
+
+高端极客的玩具吗，人儿不是垃圾桶啊，什么电子垃圾都往极客塞
+
+*****
+
+####  Lisylfn  
+##### 10#       发表于 2026-6-23 09:29
+
+为了不让极客捡便宜，就只能割蒸批的韭菜了是吗
+
+*****
+
+####  爱护动物抓根宝  
+##### 11#       发表于 2026-6-23 09:30
+
+7000块都够寨机厂捡strix halo边角料了，v社是说他们的供应链连寨机厂都不如？
+
+*****
+
+####  阿西噶基米  
+##### 12#       发表于 2026-6-23 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69817161&amp;ptid=2284069" target="_blank">五块 发表于 2026-6-23 09:21</a>
+这不就是卖给信仰用户吗，真不如隔壁二手区拣点刷个steam os吧，诶，刚好有人卖3080ti全套 ...</blockquote>
+是的<img src="https://p.sda1.dev/33/80d7d6a9132e363003716346828bb75d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  bypass  
+##### 13#       发表于 2026-6-23 09:35
+
+官方将同步全面放开桌面版 SteamOS 的系统镜像下载。
+
+那 Steam Machine 确实无所谓了 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  强尼高达  
+##### 14#       发表于 2026-6-23 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69816843&amp;ptid=2284069" target="_blank">妮贝雅 发表于 2026-6-23 08:05</a>
+那我干嘛不自己买一台PC</blockquote>
+组不出这么小
+我用过差不多这么小的山寨机，16+512+4060Ti 16G也要一万三
+
+*****
+
+####  tureleona  
+##### 15#       发表于 2026-6-23 09:50
+
+比定价更幽默的是标准版竟然不配手柄<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  normalli  
+##### 16#       发表于 2026-6-23 10:41
+
+就是时机不对，现在硬件价格飞到天上去了，steam os短时间内没法掀起什么风浪，大部分人的pc不是纯游戏机，windows还是必要的
+
+*****
+
+####  GLYSDSB  
+##### 17#       发表于 2026-6-23 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69816843&amp;ptid=2284069" target="_blank">妮贝雅 发表于 2026-6-23 08:05</a>
+那我干嘛不自己买一台PC</blockquote>
+文章都说了，这玩意出货量很低，纯粹就是用来推广steam os的体验机，压根没大规模铺货的打算
+
+—— 来自 vivo V2464A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  不见不散  
+##### 18#       发表于 2026-6-23 11:49
+
+ 本帖最后由 不见不散 于 2026-6-23 11:53 编辑 
+
+有一说一，1000美元属于正常价格。这价格拿来配PC也配不到什么高配PC。现在的行情和两年前可不一样了。
+
+*****
+
+####  chizuru  
+##### 19#       发表于 2026-6-23 11:57
+
+因为G胖买了新的海边豪宅<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奇袭之风  
+##### 20#       发表于 2026-6-23 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69818049&amp;ptid=2284069" target="_blank">不见不散 发表于 2026-6-23 11:49</a>
+
+有一说一，1000美元属于正常价格。这价格拿来配PC也配不到什么高配PC。现在的行情和两年前可不一样了。 ...</blockquote>
+随便一个1000刀的笔记本会比SM差？
+
+*****
+
+####  lost-star  
+##### 21#       发表于 2026-6-23 12:15
+
+他又没有独占游戏，咋亏本卖啊，软件上又补不回来
+
+*****
+
+####  2026-03-29注册  
+##### 22#       发表于 2026-6-23 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69818109&amp;ptid=2284069" target="_blank">奇袭之风 发表于 2026-6-23 11:59</a>
+
+随便一个1000刀的笔记本会比SM差？</blockquote>
+不是说显卡相当于3060吗，笔记本带3060+8g显存也是要7000的吧
+
+*****
+
+####  byisme001  
+##### 23#       发表于 2026-6-23 12:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69818210&amp;ptid=2284069" target="_blank">lost-star 发表于 2026-6-23 12:15</a>
+他又没有独占游戏，咋亏本卖啊，软件上又补不回来</blockquote>
+steam不独占游戏最多的吗
+
+*****
+
+####  ybfelix  
+##### 24#       发表于 2026-6-23 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69818210&amp;ptid=2284069" target="_blank">lost-star 发表于 2026-6-23 12:15</a>
+他又没有独占游戏，咋亏本卖啊，软件上又补不回来</blockquote>
+卖非独占游戏难道是亏本在卖吗，主机不也是和steam一样卖一份有一份的抽成
+
+*****
+
+####  gofbayrf  
+##### 25#       发表于 2026-6-23 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69818226&amp;ptid=2284069" target="_blank">2026-03-29注册 发表于 2026-6-23 12:17</a>
+
+不是说显卡相当于3060吗，笔记本带3060+8g显存也是要7000的吧</blockquote>
+惠普暗影精灵11/10 2024/25款5060满血高刷240HZ电竞游戏笔记本电脑 光影10 i7-13620H RTX4060 16G+1T 正品|全国质保
+
+收藏
+
+¥6398
+
+*****
+
+####  关二爷  
+##### 26#       发表于 2026-6-23 12:33
+
+我玩pc就是因为可以轻松对游戏mod，修改，调整到我喜欢的体位
+这个折腾修改太烦了，不修改还是主机得了
+
+*****
+
+####  龙潜于渊  
+##### 27#       发表于 2026-6-23 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69818302&amp;ptid=2284069" target="_blank">gofbayrf 发表于 2026-6-23 12:30</a>
+惠普暗影精灵11/10 2024/25款5060满血高刷240HZ电竞游戏笔记本电脑 光影10 i7-13620H RTX4060 16G+1T 正 ...</blockquote>
+不是说老外笔记本没老钟卷所以游戏本贵很多吗，而且国内还有国补
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  hein  
+##### 28#       发表于 2026-6-23 12:40
+
+我觉得如果是达芬奇的模式，软件可以直接买断永久升级，然后买steam相关硬件送steam os，这样的类似以前买操作系统的模式，其实我能接受，类似买ea的游戏。
+
+*****
+
+####  2026-03-29注册  
+##### 29#       发表于 2026-6-23 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69818302&amp;ptid=2284069" target="_blank">gofbayrf 发表于 2026-6-23 12:30</a>
+
+惠普暗影精灵11/10 2024/25款5060满血高刷240HZ电竞游戏笔记本电脑 光影10 i7-13620H RTX4060 16G+1T 正 ...</blockquote>
+在美国市场，惠普暗影精灵10（英文名为 HP OMEN 16 或 OMEN Transcend 16）根据配置和促销活动，价格通常在 $1,000 到 $2,000 美元 之间波动。 [[1](https://www.bestbuy.com/product/hp-omen-16-165hz-full-hd-gaming-laptop-amd-ryzen-9-7940hs-16gb-memory-nvidia-geforce-rtx-4070-512gb-ssd-shadow-black/JJGGT6R6CP), [2](https://www.dealmoon.com/cn/1149-hp-omen-16-laptop-2k240-i7-14700hx-4070-16gb-512gb/4578904.html), [3](https://www.laptopmag.com/laptops/gaming-laptops-pcs/this-sub-usd1-000-rtx-4070-gaming-laptop-deal-beats-anything-prime-day-has-to-offer)]
+热门配置及大致价格如下：
+RTX 4060 / 4070 配置（如 i7-14700HX + 16GB RAM + 1TB SSD）：价格通常在 $1,100 至 $1,300 美元 之间。在 Best Buy 等电商的特价促销中甚至可能跌破 $1,000 美元。RTX 4080 高配版：价格通常在 $1,500 至 $1,800 美元 之间
+
+*****
+
+####  缺德猫  
+##### 30#       发表于 2026-6-23 12:44
+
+扯老外市场就更怪了，老外首选主机，谁买这东西
+
+*****
+
+####  maomaoying  
+##### 31#       发表于 2026-6-23 13:22
+
+反正美帝良心想挺划算的
+
+*****
+
+####  nianiania  
+##### 32#       发表于 2026-6-23 13:43
+
+1000 美元正常说是，祝蒸友多买吧
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  gofbayrf  
+##### 33#       发表于 2026-6-23 14:01
+
+ 本帖最后由 gofbayrf 于 2026-6-23 14:07 编辑 
+
+最離譜的就是 16G 現在是200刀 不算內存那堆破爛利潤率也是上天的   高貴的價格僅僅說成是"不補貼"真的賊雞
+
+*****
+
+####  gaiden  
+##### 34#       发表于 2026-6-23 14:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69817131&amp;ptid=2284069" target="_blank">暗口崩子 发表于 2026-6-23 09:17</a>
+
+那我干嘛不自己买一台PC，图你steamos吗</blockquote>
+自己组也可以steamos啊，甚至开始支持intel GPU了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  牛奶笛  
+##### 35#       发表于 2026-6-23 14:14
+
+说直白点Steam machine是一台天然开放（被破解）的主机，玩家可以买了机子玩盗版游戏，一分钱都不给Steam赚
+
+跟御三家的封闭系统不同，加上Steam又没有订阅制或者会员，所以无法用软件补贴硬件
+
+*****
+
+####  Photic  
+##### 36#       发表于 2026-6-23 14:30
+
+为了游戏玩家能买到，所以我们决定卖贵一点<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  贝恩德塔  
+##### 37#       发表于 2026-6-23 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69817268&amp;ptid=2284069" target="_blank">强尼高达 发表于 2026-6-23 09:36</a>
+
+组不出这么小
+
+我用过差不多这么小的山寨机，16+512+4060Ti 16G也要一万三</blockquote>
+现在涨价潮后，同性能7500f+rx7600短卡在16g+512g的同配置itx主机也就六千块钱左右，如果部分用二手能压到更低，说实话steammachine这个价格就是电脑城价格
+
+*****
+
+####  黑白魔炮使  
+##### 38#       发表于 2026-6-23 15:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">因为V社是靠PC平台抽成赚钱的，亏本卖这盒子也多抽不到一点钱，必然要以赚钱的前提下定价
+
+*****
+
+####  zhenlune  
+##### 39#       发表于 2026-6-23 15:49
+
+他硬要说4k60，我就当他是最低画质加超级性能fsr，他为什么偏要加一个原生？这配置想要玩原生4k60，那得玩什么年代的3a游戏
+
+*****
+
+####  樽——見  
+##### 40#       发表于 2026-6-23 16:00
+
+国内外的蒸司令全都洗不动这售价
+
+
+*****
+
+####  强尼高达  
+##### 41#       发表于 2026-6-23 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69818842&amp;ptid=2284069" target="_blank">贝恩德塔 发表于 2026-6-23 14:33</a>
+现在涨价潮后，同性能7500f+rx7600短卡在16g+512g的同配置itx主机也就六千块钱左右，如果部分用二手能压到 ...</blockquote>
+你配不出来的机器，能市价买到还想怎样？配不出的机器卖更高价都有底气
+
