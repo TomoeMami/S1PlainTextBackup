@@ -831,3 +831,14 @@ steamos应用在pc的意义是？
 
 同样等steamframe，machine没有任何意义，pc游戏连电视有必要吗，那些和主机通用的3a这machine也跑不利索，同样价格为什么不买ps5。
 
+
+*****
+
+####  7do  
+##### 87#       发表于 2026-6-24 00:20
+
+这些年打cs掉的饰品都能换一台了，还有剩<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+Steam上买游戏全靠玩cs<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
