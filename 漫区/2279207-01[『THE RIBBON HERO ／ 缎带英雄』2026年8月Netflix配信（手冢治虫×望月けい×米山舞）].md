@@ -670,3 +670,18 @@ CGディレクター：長嶺明音
 
 ジルコ：新谷真弓
 
+
+*****
+
+####  Piano-Forest  
+##### 55#         楼主| 发表于 2026-6-23 20:40
+
+『THE RIBBON HERO #リボンヒーロー』より、
+
+本日解禁となったベルベット（cv.内山昂輝）のイラストをお届けしますᰔᩚ
+
+イラスト：黄 捷
+
+8月8日(土)Netflix世界独占配信をお楽しみに！
+<img src="https://p.sda1.dev/33/36fa18d4c0a4ca47181882bbbef0b9ac/1000168738.jpg" referrerpolicy="no-referrer">
+

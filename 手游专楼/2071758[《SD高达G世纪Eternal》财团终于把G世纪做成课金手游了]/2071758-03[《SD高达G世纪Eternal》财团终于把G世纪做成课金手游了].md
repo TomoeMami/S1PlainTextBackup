@@ -582,3 +582,14 @@ F91能凑齐10个角色开高级永恒之路吗</blockquote>
 
 闪哈都能有逆鸭tag，海盗有F91的tag很合理嘛
 
+
+*****
+
+####  AminGly  
+##### 4415#       发表于 2026-6-23 20:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69819600&amp;ptid=2071758" target="_blank">alialex 发表于 2026-6-23 16:42</a>
+
+闪哈都能有逆鸭tag，海盗有F91的tag很合理嘛</blockquote>
+然而没有
+
