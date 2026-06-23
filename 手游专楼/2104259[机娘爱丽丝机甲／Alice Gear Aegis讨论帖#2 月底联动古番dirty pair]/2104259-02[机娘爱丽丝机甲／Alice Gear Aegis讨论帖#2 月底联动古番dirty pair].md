@@ -18,3 +18,13 @@ bba的新MMD战斗动画
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  madcow  
+##### 2006#       发表于 2026-6-23 14:12
+
+调查挖票中……
+
+所以接下来是半周年了吗
+
