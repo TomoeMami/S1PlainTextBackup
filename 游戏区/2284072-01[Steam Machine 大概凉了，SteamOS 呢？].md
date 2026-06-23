@@ -711,3 +711,13 @@ linus是典型的不会用linux，我都怀疑他拿这点当卖点了。
 
 n卡目前还是没有a卡开箱即用，a卡装个Mesa啥都不用动
 
+
+*****
+
+####  LYYL  
+##### 75#       发表于 2026-6-23 20:07
+
+steam大屏模式算steamos吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
