@@ -744,3 +744,25 @@ steam大屏模式算steamos吗？
 [https://github.com/ChimeraOS/gamescope-session](https://github.com/ChimeraOS/gamescope-session)
 [https://github.com/ChimeraOS/gamescope-session-steam](https://github.com/ChimeraOS/gamescope-session-steam)
 
+
+*****
+
+####  Midnight.Coup  
+##### 78#       发表于 2026-6-23 21:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69818703&amp;ptid=2284072" target="_blank">forgiven1210 发表于 2026-6-23 14:03</a>
+
+既然不考虑通用性，那还真不如走arm路线呢，现在这个x86的机器太弱鸡</blockquote>
+不考虑通用性的是 Steam Frame，确实是 arm，8Gen3
+
+但一台主机用 arm 有什么能用的，加上 arm 系 GPU 普遍都弱
+
+*****
+
+####  RTLordCaptain  
+##### 79#       发表于 2026-6-23 21:43
+
+<blockquote>变老的大二 发表于 2026-6-23 10:25
+只支持amd就已经宣判死刑了吧</blockquote>
+Nv能用，这是性能损失会更大一些
+
