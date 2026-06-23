@@ -795,3 +795,21 @@ Nv能用，这是性能损失会更大一些
 
 steamos应用在pc的意义是？
 
+
+*****
+
+####  Elevation  
+##### 83#       发表于 2026-6-23 22:24
+
+说实话这东西我个人从一开始就没特别关注
+
+等Frame<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wtyrambo  
+##### 84#       发表于 2026-6-23 22:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我觉得指望steamos不如指望steam登录安卓
+
