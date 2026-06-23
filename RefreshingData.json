@@ -1202,7 +1202,7 @@
     "newtitle": "[ブルーアーカイブ 综合讨论]",
     "lastedit": 1781986205,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1471785": {
@@ -14004,10 +14004,10 @@
     "update": false
   },
   "2282974": {
-    "totalreply": 309,
+    "totalreply": 310,
     "title": "[AI好啊，AI得学啊]",
     "newtitle": "[AI好啊，AI得学啊NSFW？]",
-    "lastedit": 1782232925,
+    "lastedit": 1782245886,
     "category": "外野",
     "active": true,
     "update": false
