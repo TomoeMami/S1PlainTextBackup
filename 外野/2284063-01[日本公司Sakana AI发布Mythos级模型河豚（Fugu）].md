@@ -452,3 +452,22 @@ TTTT大模型，二台遥遥领先！
 
 给AI套上个皮肤说是SP角色再赚一波。<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  carnelius  
+##### 43#       发表于 2026-6-23 13:02
+
+日本信创
+
+*****
+
+####  半江瑟瑟半江红  
+##### 44#       发表于 2026-6-23 13:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69818131&amp;ptid=2284063" target="_blank">ercai1 发表于 2026-6-23 12:03</a>
+不用预测了，最倭幻想已经开始了</blockquote>
+从头像id和内容看，真不是串子吗
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
