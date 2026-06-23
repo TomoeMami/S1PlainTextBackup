@@ -493,3 +493,15 @@ Steam Meta
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么时候能支持安卓啊，一直想用平板把老游戏补完
 
+
+*****
+
+####  哈罗  
+##### 52#       发表于 2026-6-23 13:29
+
+<blockquote>KTD2 发表于 2026-6-23 11:30
+想多了
+
+sm 大概率还是卖断货</blockquote>
+卖断货和暴死其实并不矛盾
+
