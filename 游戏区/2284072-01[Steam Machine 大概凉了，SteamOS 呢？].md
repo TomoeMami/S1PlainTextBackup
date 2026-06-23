@@ -485,3 +485,11 @@ Steam Meta
 
 遇上不能玩的就像吃了屎一样，兴冲冲地在外区买了几个黄油，用sd玩发现好几个打不开
 
+
+*****
+
+####  寂长无星夜  
+##### 51#       发表于 2026-6-23 13:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么时候能支持安卓啊，一直想用平板把老游戏补完
+
