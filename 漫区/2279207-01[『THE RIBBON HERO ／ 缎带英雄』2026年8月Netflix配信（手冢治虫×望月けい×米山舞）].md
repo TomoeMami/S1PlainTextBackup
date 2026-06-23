@@ -693,3 +693,11 @@ CGディレクター：長嶺明音
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原作是魔女，动画是魔王，所以折中了一下搞了个画女硬说男的反派吗
 
+
+*****
+
+####  a85982313  
+##### 57#       发表于 2026-6-23 21:05
+
+穿这么骚是男的吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没看过原作，但是感觉这个议题会涉及性别认同，难道这个部分归到白毛
+
