@@ -4299,3 +4299,16 @@ sm硬件刚出来的时候，按照当时硬件价格，结合硬件配置，属
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  九十九忍  
+##### 410#       发表于 2026-6-23 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69818119&amp;ptid=2267066" target="_blank">沧兰殇 发表于 2026-6-23 12:00</a>
+
+个人在事物看待上还是没有足够预见性，
+
+sm硬件刚出来的时候，按照当时硬件价格，结合硬件配置，属于捡上代 ...</blockquote>
+毎日自分に言い聞かせる：人接する時控えめになるが丸くはならない、デリカシーのない言動をしない、適度な距離感を保つ
+

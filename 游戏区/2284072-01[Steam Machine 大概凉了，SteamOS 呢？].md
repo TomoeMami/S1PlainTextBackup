@@ -407,3 +407,11 @@ sm 大概率还是卖断货
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  Midnight.Coup  
+##### 43#       发表于 2026-6-23 12:11
+
+蒸汽机主要配置不能改了，不然今年全部改做高端机的形式，干脆用 9850x3d+9070XT 拉满学 Surface 做样板机<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

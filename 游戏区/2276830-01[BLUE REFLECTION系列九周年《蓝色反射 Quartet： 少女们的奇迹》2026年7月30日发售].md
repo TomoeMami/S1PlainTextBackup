@@ -632,3 +632,20 @@ BLUE REFLECTION Quartet（2026）
 
 PV2：[https://youtu.be/KJus0JA8wkM](https://youtu.be/KJus0JA8wkM)
 
+
+*****
+
+####  wzm96816  
+##### 56#       发表于 2026-6-23 12:12
+
+新pv里能看出，即使“高清化”，也是画质太老了前几作。
+
+也就合集算便宜了，248吧好像。
+
+*****
+
+####  Leona_Akari  
+##### 57#       发表于 2026-6-23 12:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不贵，不过啥时出反和谐补丁或者mod啥时再买
+
