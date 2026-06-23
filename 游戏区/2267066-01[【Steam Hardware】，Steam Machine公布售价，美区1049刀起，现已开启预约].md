@@ -4242,3 +4242,11 @@ g畜也欠房贷了吗
 
 头一回感觉ps5有性价比
 
+
+*****
+
+####  Dreammask  
+##### 404#       发表于 2026-6-23 09:13
+
+G胖他善啊，价格压不下来索性就用高价衬托出其他掌主机的性价比，为刺激游戏市场创造了巨大历史机遇<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
