@@ -415,3 +415,25 @@ sm 大概率还是卖断货
 
 蒸汽机主要配置不能改了，不然今年全部改做高端机的形式，干脆用 9850x3d+9070XT 拉满学 Surface 做样板机<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CALPISSODA  
+##### 44#       发表于 2026-6-23 12:38
+
+如果是免费开放使用，也许一些现在的Win掌机会转投这个系统？
+
+
+*****
+
+####  whzfjd  
+##### 45#       发表于 2026-6-23 12:44
+
+Steam Cube
+
+Steam Genesis
+
+Steam Mega
+
+Steam Meta
+
