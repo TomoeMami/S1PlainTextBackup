@@ -510,3 +510,13 @@ ur机体狗粮用稀有奖章换就可以，那边只要1000个，换ur船狗粮
 
 F91 登入活动要来了
 
+
+*****
+
+####  arthes  
+##### 4407#       发表于 2026-6-23 11:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">看来是主打F91，不知道是海盗跟着喝点汤还是那个F90
+
+Z不知道会不会复刻，当初一进坑就被最强最帅吸干，导致没钻抽Z一直是个遗憾
+
