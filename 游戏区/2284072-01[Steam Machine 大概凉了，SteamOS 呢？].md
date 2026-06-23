@@ -766,3 +766,32 @@ steam大屏模式算steamos吗？
 只支持amd就已经宣判死刑了吧</blockquote>
 Nv能用，这是性能损失会更大一些
 
+
+*****
+
+####  RTLordCaptain  
+##### 80#       发表于 2026-6-23 21:50
+
+<blockquote>ybfelix 发表于 2026-6-23 12:51
+我一直以为steamOS本来就是随便下随便装的。原来居然不是吗</blockquote>
+非steam硬件应该不能直接装。但是有bazzite这样的社区版提供类似的体验
+
+
+*****
+
+####  RTLordCaptain  
+##### 81#       发表于 2026-6-23 21:52
+
+<blockquote>Midnight.Coup 发表于 2026-6-23 21:41
+不考虑通用性的是 Steam Frame，确实是 arm，8Gen3
+
+但一台主机用 arm 有什么能用的，加上 arm 系 GPU 普遍 ...</blockquote>
+手机GPU还有个问题是全是单通道内存。至于x2之类的还是太贵了吧
+
+*****
+
+####  小夜不见  
+##### 82#       发表于 2026-6-23 21:53
+
+steamos应用在pc的意义是？
+

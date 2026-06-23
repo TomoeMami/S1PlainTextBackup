@@ -4323,3 +4323,15 @@ mono官网还没有任何信息，现在还没到正式宣发的时候
 有没有官网地址啊 我找不到</blockquote>
 https://www.nintendo.com/jp/games/switch2/ab4fa/index.html
 
+
+*****
+
+####  UltramanPain  
+##### 1886#       发表于 2026-6-23 21:46
+
+粉色的头发，坚毅的眼神，我想起来了给我的感觉，拉克丝克莱因。
+异度3dlc，米山舞画的英雄配音也是田中理慧
+<img src="https://p.sda1.dev/33/8faf91e05be6206e3e14385f63ff1ea3/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
