@@ -513,3 +513,25 @@ sm 大概率还是卖断货</blockquote>
 
 既然不考虑通用性，那还真不如走arm路线呢，现在这个x86的机器太弱鸡
 
+
+*****
+
+####  NaYo丶  
+##### 54#       发表于 2026-6-23 14:25
+
+g胖孝子还能说话吗
+
+*****
+
+####  莎拉.摩根  
+##### 55#       发表于 2026-6-23 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69817955&amp;ptid=2284072" target="_blank">KTD2 发表于 2026-6-23 11:30</a>
+
+想多了
+
+sm 大概率还是卖断货</blockquote>
+想多了，并没有···komodo从早上到现在，最丐的版都能买
+
+跟当时steam controller 2直接sold out可不一样。
+
