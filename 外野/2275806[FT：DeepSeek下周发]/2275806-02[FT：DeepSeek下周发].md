@@ -5088,3 +5088,11 @@ win环境可以不用wsl，直接让pi把默认调powershell换成默认调用gi
 
 —— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  serj005  
+##### 1927#       发表于 2026-6-23 09:48
+
+网页上的新版思维链v4变成“一针见血”“阿喀琉斯之踵”复读机了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随便问个问题再说个结论，开头就是这套小连招。感觉有变成豆包定型文的趋势。
+
