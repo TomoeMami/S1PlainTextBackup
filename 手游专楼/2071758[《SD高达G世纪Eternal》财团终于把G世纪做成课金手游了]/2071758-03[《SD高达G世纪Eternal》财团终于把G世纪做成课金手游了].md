@@ -620,3 +620,20 @@ F91能凑齐10个角色开高级永恒之路吗</blockquote>
 
 应该会改的，记得开服时NT也是没UC标的独立作品，后面都加了上去。
 
+
+*****
+
+####  jackyhuang  
+##### 4419#       发表于 2026-6-24 19:35
+
+拉完了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  natlk  
+##### 4420#       发表于 2026-6-24 19:38
+
+看到是岳父船就不想抽了我的塞西莉呢
+
