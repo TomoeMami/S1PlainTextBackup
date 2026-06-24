@@ -601,3 +601,26 @@ V社要真想推广蒸汽机和steamos，就该把分成策略改成凡是游戏
 
 总之，可能是我的个人经历，我会觉得“为什么不买（便宜的组装）PC”其实不是一个很难回答的问题。对很多人来说，答案就是“你说这个谁懂啊”
 
+
+*****
+
+####  novem  
+##### 60#       发表于 2026-6-24 09:08
+
+讲市场化那你别用那么多库存元件啊，笑麻了
+
+
+*****
+
+####  karastar  
+##### 61#       发表于 2026-6-24 09:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69822174&amp;ptid=2284069" target="_blank">leystage 发表于 2026-6-24 09:05</a>
+
+小尺寸 PC 不就是 PC 嘛
+
+或者换个方向讲，Steam Machine 不就跟二十年前价格贵一大截的品牌机一个意思
+
+你 ...</blockquote>
+我能理解买品牌机，但steam machine已经是极客玩具了不存在品牌机的消费对象，品牌机用户应该买ps5和ns2
+
