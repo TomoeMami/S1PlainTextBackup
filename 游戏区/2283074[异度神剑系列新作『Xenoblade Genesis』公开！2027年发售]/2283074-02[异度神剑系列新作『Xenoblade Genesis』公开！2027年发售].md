@@ -4474,3 +4474,15 @@ xbx最好的支线攻略还是日版wiki
 
 排除这些，就是非常标准的中世纪风格奇幻。
 
+
+*****
+
+####  ParadiseMartyr  
+##### 1900#       发表于 2026-6-24 22:50
+
+感觉不如ff16更正统中世纪魔幻<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+那玩意是毫无想象力的纯无聊的垃圾
+指环王都比那坨玩意时尚
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
