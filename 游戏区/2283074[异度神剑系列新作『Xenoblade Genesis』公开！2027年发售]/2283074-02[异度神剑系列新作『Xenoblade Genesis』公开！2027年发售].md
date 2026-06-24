@@ -4440,3 +4440,11 @@ dlc英雄是米山舞+田中理慧组合，新作 ...</blockquote>
 xbx最好的支线攻略还是日版wiki
 [https://kamikouryaku.net/xenobladex/](https://kamikouryaku.net/xenobladex/)
 
+
+*****
+
+####  HighTouch  
+##### 1897#       发表于 2026-6-24 21:57
+
+问一下按照惯例角色立绘大概啥时能出来啊
+
