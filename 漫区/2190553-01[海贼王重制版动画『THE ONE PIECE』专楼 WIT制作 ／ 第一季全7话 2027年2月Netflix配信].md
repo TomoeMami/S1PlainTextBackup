@@ -1048,3 +1048,12 @@ Exclusive sneak peeks for Charlie vs. the Chocolate Factory and THE ONE PIECE as
 
 我挺喜欢东海篇的，当年和我哥一起看，他看睡着了，我看的津津有味。
 
+
+*****
+
+####  零壹贰叁  
+##### 67#       发表于 2026-6-25 03:49
+
+黑x上怎么给我推荐的欧美评价全是骂的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+看到骂的几点一个是宣传片一半都是CGI，一个是和之前概念图的风格不符
+
