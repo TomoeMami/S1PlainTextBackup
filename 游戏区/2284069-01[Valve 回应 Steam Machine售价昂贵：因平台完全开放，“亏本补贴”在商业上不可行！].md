@@ -681,3 +681,47 @@ R9-7940HX+RX 7600 XT 8GB​  16G内存+512SSD （都不是板载的，可 ...<
 
 有病吧
 
+
+*****
+
+####  keytomylife  
+##### 66#       发表于 2026-6-24 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69824045&amp;ptid=2284069" target="_blank">强尼高达 发表于 2026-6-24 14:06</a>
+
+1049 USD = 7,134.77 CNY</blockquote>
+6核 对 16核
+
+*****
+
+####  魔王候补77号  
+##### 67#       发表于 2026-6-24 14:24
+
+ 本帖最后由 魔王候补77号 于 2026-6-24 14:27 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69824045&amp;ptid=2284069" target="_blank">强尼高达 发表于 2026-6-24 14:06</a>
+
+1049 USD = 7,134.77 CNY</blockquote>
+标价贵100，换来的是——
+
+体积小（显然你觉得小是很重要的一个属性），3L对比4L直观视觉效果大概是XSS对比PS5原版的差别
+
+GPU性能略强 （7600XT对比降频砍CU的7600）
+
+CPU性能强很多（ ‌R9 7940HX对比R5 7640HS）
+
+双通道内存（数毛社认为单这一项Steam Machine就比同配置机器性能损失15%以上）
+
+*****
+
+####  VVhaleVoice  
+##### 68#       发表于 2026-6-24 14:28
+
+不懂就问，那把机器改成PS或XBOX 那种不能装其他软件的系统不就行了
+
+*****
+
+####  赤井稻妻  
+##### 69#       发表于 2026-6-24 14:29
+
+v社也根本不用补贴，反正pc90%都是steam抽成，pc市场自己在扩张，v社对此无能力为，除非自己建个内存厂
+
