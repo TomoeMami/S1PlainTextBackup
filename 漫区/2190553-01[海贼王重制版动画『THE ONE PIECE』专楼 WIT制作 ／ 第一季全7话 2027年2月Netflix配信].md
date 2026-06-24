@@ -1040,3 +1040,11 @@ Exclusive sneak peeks for Charlie vs. the Chocolate Factory and THE ONE PIECE as
 
 50话刚到娜美跑路吗，竟然不是按篇章断章
 
+
+*****
+
+####  Ollie  
+##### 66#       发表于 2026-6-25 01:08
+
+我挺喜欢东海篇的，当年和我哥一起看，他看睡着了，我看的津津有味。
+
