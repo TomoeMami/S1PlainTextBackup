@@ -3203,3 +3203,16 @@ engage编剧带来的时间线穿越史诗故事！
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  五月之雨  
+##### 1007#       发表于 2026-6-24 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69824211&amp;ptid=2261859" target="_blank">黑上シグマ 发表于 2026-6-24 14:36</a>
+
+顺带你说的取消不了的事，我也看了看，商品页面写了：
+
+この商品は、注文確定後、注文をキャンセルすること ...</blockquote>
+被日亚坑了<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
