@@ -129,3 +129,14 @@ gta6港服价
 [https://blog.playstation.com/2026/06/24/grand-theft-auto-vi-plays-best](https://blog.playstation.com/2026/06/24/grand-theft-auto-vi-plays-best) ...</blockquote>
 已删帖，这是发生了啥<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ultraseven  
+##### 725#       发表于 2026-6-25 04:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69826822&amp;ptid=2173605" target="_blank">ultraseven 发表于 2026-6-25 03:20</a>
+
+已删帖，这是发生了啥 Sony has deleted all social media posts across all PlayStation accounts that m ...</blockquote>
+原来是用了旧LOGO
+
