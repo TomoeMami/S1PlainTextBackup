@@ -116,3 +116,16 @@ gta6港服价
 有pro加强</blockquote>
 还有手柄功能的全适配之类的
 
+
+*****
+
+####  ultraseven  
+##### 724#       发表于 2026-6-25 03:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69825751&amp;ptid=2173605" target="_blank">SergeGlenn 发表于 2026-6-24 19:56</a>
+
+看来是实打实的市场宣传合作了
+
+[https://blog.playstation.com/2026/06/24/grand-theft-auto-vi-plays-best](https://blog.playstation.com/2026/06/24/grand-theft-auto-vi-plays-best) ...</blockquote>
+已删帖，这是发生了啥<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
