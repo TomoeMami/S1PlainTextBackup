@@ -4389,3 +4389,23 @@ dlc英雄是米山舞+田中理慧组合，新作 ...</blockquote>
 
 希望xbg别再搞前传性质的DLC了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lancelotezio  
+##### 1892#       发表于 2026-6-24 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69821133&amp;ptid=2283074" target="_blank">Asimot 发表于 2026-6-23 22:42</a>
+阿姨现在还能夹出拉克丝的声音吗</blockquote>
+种自不是刚出没多久吗，还有一个种自零准备上的
+
+*****
+
+####  lancelotezio  
+##### 1893#       发表于 2026-6-24 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69820944&amp;ptid=2283074" target="_blank">UltramanPain 发表于 2026-6-23 21:46</a>
+粉色的头发，坚毅的眼神，我想起来了给我的感觉，拉克丝克莱因。
+异度3dlc，米山舞画的英雄配音也是田中理 ...</blockquote>
+拉妖的声线想象了一下不太适合这个小年轻了，要是seed第一季的少女拉克丝可能还行
+
