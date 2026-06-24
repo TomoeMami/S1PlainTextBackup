@@ -708,3 +708,11 @@ if0079是干嘛的
 
 说到原创，g世纪之前卖点的交错剧情端上来也能水到天荒地老<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 4430#       发表于 2026-6-25 02:03
+
+cross系都死了好久了，不如先把独眼整出来吧
+
