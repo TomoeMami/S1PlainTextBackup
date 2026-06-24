@@ -945,3 +945,16 @@ Literally stylish-act
 
 看视频的话操作水平挺高的，好几处格挡和闪避我初见绝对躲不过，当然熟悉之后也许就可以了<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡普空  
+##### 103#       发表于 2026-6-24 13:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69821022&amp;ptid=2258867" target="_blank">199april 发表于 2026-6-23 22:11</a>
+
+感觉有点泯了
+
+说实话如果光荣卡普空拿出这种动作质量还会有人捧臭脚吗？ ...</blockquote>
+都不需要光荣卡普空，国内号称3A然后丢出这个东西绝对被喷到死
+

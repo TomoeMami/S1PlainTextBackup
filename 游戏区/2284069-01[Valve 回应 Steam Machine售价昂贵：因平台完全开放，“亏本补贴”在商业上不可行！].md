@@ -624,3 +624,23 @@ V社要真想推广蒸汽机和steamos，就该把分成策略改成凡是游戏
 你 ...</blockquote>
 我能理解买品牌机，但steam machine已经是极客玩具了不存在品牌机的消费对象，品牌机用户应该买ps5和ns2
 
+
+*****
+
+####  魔王候补77号  
+##### 62#       发表于 2026-6-24 13:36
+
+ 本帖最后由 魔王候补77号 于 2026-6-24 13:38 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69821951&amp;ptid=2284069" target="_blank">强尼高达 发表于 2026-6-24 08:17</a>
+
+弱智吧，你没配过ITX是真的，你选的显卡整出来至少8L这个级别
+
+虽然腾讯的人工智障昨天告诉我15cm立方体是 ...</blockquote>
+天钡游刃Y 小厂迷你主机，机箱只有3.1L
+
+R9-7940HX+RX 7600 XT 8GB​  16G内存+512SSD （都不是板载的，可以自行扩展）
+
+7299元
+
+京东淘宝长期有货
+
