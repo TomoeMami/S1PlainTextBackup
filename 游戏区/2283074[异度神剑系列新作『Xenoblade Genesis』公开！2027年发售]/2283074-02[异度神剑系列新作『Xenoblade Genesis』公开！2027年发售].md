@@ -4428,3 +4428,15 @@ dlc英雄是米山舞+田中理慧组合，新作 ...</blockquote>
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  topia  
+##### 1896#       发表于 2026-6-24 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69826044&amp;ptid=2283074" target="_blank">finalstar099 发表于 2026-6-24 21:08</a>
+
+最近在玩XBX，感觉主线和支线都好散，有没有推荐的攻略或者参考？</blockquote>
+xbx最好的支线攻略还是日版wiki
+[https://kamikouryaku.net/xenobladex/](https://kamikouryaku.net/xenobladex/)
+
