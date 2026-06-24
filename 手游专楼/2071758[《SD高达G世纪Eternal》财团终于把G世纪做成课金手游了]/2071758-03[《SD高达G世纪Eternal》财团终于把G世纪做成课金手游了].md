@@ -684,3 +684,11 @@ if0079是干嘛的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">main剧情总有出完的那天，if铺后路用，如果搞得花还挺有意思的
 
+
+*****
+
+####  中野梓  
+##### 4427#       发表于 2026-6-25 00:45
+
+意思是开始原创故事了？
+

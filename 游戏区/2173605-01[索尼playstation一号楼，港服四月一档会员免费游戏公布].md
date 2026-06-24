@@ -105,3 +105,14 @@ gta6港服价
 由手机上传
 2026-6-25 00:02 上传
 
+
+*****
+
+####  ナルバレック  
+##### 723#       发表于 2026-6-25 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69825851&amp;ptid=2173605" target="_blank">黑猫软 发表于 2026-6-24 20:24</a>
+
+有pro加强</blockquote>
+还有手柄功能的全适配之类的
+
