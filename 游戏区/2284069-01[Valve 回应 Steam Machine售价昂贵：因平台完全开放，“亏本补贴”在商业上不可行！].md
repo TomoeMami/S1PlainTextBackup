@@ -487,3 +487,28 @@ steam的实体商品真的能洗钱<img src="https://static.stage1st.com/image/s
 我跟你算个账，pdd7500f加上itx主板，1500，7600xt短卡，1477（这个甚至比你steammachine的笔电gpu7600m要 ...</blockquote>
 别说了，阀门议价能力不如国内装机小店<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  强尼高达  
+##### 50#       发表于 2026-6-24 08:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69821789&amp;ptid=2284069" target="_blank">贝恩德塔 发表于 2026-6-24 06:17</a>
+我跟你算个账，pdd7500f加上itx主板，1500，7600xt短卡，1477（这个甚至比你steammachine的笔电gpu7600m要 ...</blockquote>
+弱智吧，你没配过ITX是真的，你选的显卡整出来至少8L这个级别
+虽然腾讯的人工智障昨天告诉我15cm立方体是3.1L今天我人肉重新计算达到了3.7L，但是整个淘宝目前也只有一款个人工作室ITX机箱能做到3.6L，然而这个3.6L的代价就是1U电源加上半高显卡在面对200W的解热需求的时候一排4cm风扇的转速感人，严格意义上来说你依然配不出这个体积x这个散热能力的机器
+
+ps，昨天拿一个机箱电源明显有兼容性问题的配置问了好几家AI，只有Gemini和腾讯元宝完全判断正确，我依然自用并推荐腾讯元宝
+
+
+*****
+
+####  贝恩德塔  
+##### 51#       发表于 2026-6-24 08:24
+
+ 本帖最后由 贝恩德塔 于 2026-6-24 08:25 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69821803&amp;ptid=2284069" target="_blank">鹅大人 发表于 2026-6-24 06:38</a>
+
+别说了，阀门议价能力不如国内装机小店   </blockquote>
+他开始拿itx主机的大小来说事是最搞笑的，且不谈steammachine的客厅放置游戏主机的定位为啥需要那么小，这玩意大小不就和xss半斤八两，xss都多少年前的主机了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阀门的议价能力和整合能力连7600xt都整合不上去非要移动端的7600m太搞笑了
+
