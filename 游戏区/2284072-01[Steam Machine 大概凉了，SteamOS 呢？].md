@@ -951,3 +951,16 @@ bazzite和steamos和野蛮应该都比原生强，刷吧，刷啥都是提升<im
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">国内自媒体不敢喷steam本身就是怕被steam粉丝网暴，G胖是不可能给钱打点的
 
+
+*****
+
+####  赤井稻妻  
+##### 99#       发表于 2026-6-24 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69817955&amp;ptid=2284072" target="_blank">KTD2 发表于 2026-6-23 11:30</a>
+
+想多了
+
+sm 大概率还是卖断货</blockquote>
+因为sm不会有太多货
+
