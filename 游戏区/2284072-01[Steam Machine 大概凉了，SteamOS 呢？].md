@@ -964,3 +964,14 @@ bazzite和steamos和野蛮应该都比原生强，刷吧，刷啥都是提升<im
 sm 大概率还是卖断货</blockquote>
 因为sm不会有太多货
 
+
+*****
+
+####  慕容断月  
+##### 100#       发表于 2026-6-24 16:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69817212&amp;ptid=2284072" target="_blank">Hieda 发表于 2026-6-23 09:27</a>
+volvo对Linux游戏生态的贡献是实打实的，steam os和machine爱搞就搞吧
+我guix都能随便打游戏，感谢g胖 ...</blockquote>
+沃尔沃可没有<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
