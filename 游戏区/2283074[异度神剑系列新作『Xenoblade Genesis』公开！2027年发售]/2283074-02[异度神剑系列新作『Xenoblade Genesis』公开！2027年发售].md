@@ -4448,3 +4448,15 @@ xbx最好的支线攻略还是日版wiki
 
 问一下按照惯例角色立绘大概啥时能出来啊
 
+
+*****
+
+####  UltramanPain  
+##### 1898#       发表于 2026-6-24 22:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69825839&amp;ptid=2283074" target="_blank">lancelotezio 发表于 2026-6-24 20:20</a>
+拉妖的声线想象了一下不太适合这个小年轻了，要是seed第一季的少女拉克丝可能还行 ...</blockquote>
+所以我说估计是找田中理慧试了试，感觉不合适，但请她来一趟又不容易，就让她配了dlc的英雄
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
