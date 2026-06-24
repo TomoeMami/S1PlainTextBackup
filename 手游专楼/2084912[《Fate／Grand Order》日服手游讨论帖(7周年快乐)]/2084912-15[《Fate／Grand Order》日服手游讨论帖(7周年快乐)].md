@@ -120,3 +120,13 @@ ou  羡慕</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">马上7月了还在春
 
+
+*****
+
+####  khxooo  
+##### 20964#       发表于 2026-6-24 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69825068&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2026-6-24 17:15</a>
+送活动从者，7月1号生放送</blockquote>
+船长这老从者都有机会出场啊。
+
