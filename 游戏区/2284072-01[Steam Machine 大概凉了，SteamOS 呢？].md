@@ -861,3 +861,24 @@ Steam上买游戏全靠玩cs<img src="https://static.stage1st.com/image/smiley/f
 
 客观来说v社做硬件估计都是防御性动作，毕竟已经搞了个能无本万利抽成的平台，谁还想苦哈哈的做硬件
 
+
+*****
+
+####  qqq2142  
+##### 90#       发表于 2026-6-24 08:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69817382&amp;ptid=2284072" target="_blank">dududa 发表于 2026-6-23 09:56</a>
+
+steamos最大的问题是驱动吧，linux下各家显卡的驱动太差了，也就amd的显卡性能表现能做到比肩乃至超越windo ...</blockquote>
+并不是，最大的问题是是那些傻逼反作弊
+
+*****
+
+####  qqq2142  
+##### 91#       发表于 2026-6-24 08:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69818462&amp;ptid=2284072" target="_blank">食粪者 发表于 2026-6-23 13:01</a>
+
+遇上不能玩的就像吃了屎一样，兴冲冲地在外区买了几个黄油，用sd玩发现好几个打不开 ...</blockquote>
+我就想问一下，那些要专门打补丁的游戏，那个补丁甚至都是exe文件。怎么安装？
+
