@@ -512,3 +512,22 @@ ps，昨天拿一个机箱电源明显有兼容性问题的配置问了好几家
 别说了，阀门议价能力不如国内装机小店   </blockquote>
 他开始拿itx主机的大小来说事是最搞笑的，且不谈steammachine的客厅放置游戏主机的定位为啥需要那么小，这玩意大小不就和xss半斤八两，xss都多少年前的主机了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阀门的议价能力和整合能力连7600xt都整合不上去非要移动端的7600m太搞笑了
 
+
+*****
+
+####  leystage  
+##### 52#       发表于 2026-6-24 08:28
+
+那么问题来了，如果第三方小厂推出四千块的预装 SteamOS 的小尺寸客厅 PC，大家就会抢着买了吗
+
+
+*****
+
+####  karastar  
+##### 53#       发表于 2026-6-24 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69821998&amp;ptid=2284069" target="_blank">leystage 发表于 2026-6-24 08:28</a>
+
+那么问题来了，如果第三方小厂推出四千块的预装 SteamOS 的小尺寸客厅 PC，大家就会抢着买了吗 ...</blockquote>
+永远的问题为什么不买PC
+
