@@ -140,3 +140,19 @@ gta6港服价
 已删帖，这是发生了啥 Sony has deleted all social media posts across all PlayStation accounts that m ...</blockquote>
 原来是用了旧LOGO
 
+
+*****
+
+####  SergeGlenn  
+##### 726#       发表于 2026-6-25 05:48
+
+好家伙，这待遇真是头回见，PSAPP图标都变色了
+
+<img src="https://img.stage1st.com/forum/202606/25/054741apd558jcsz5v5k8d.jpg" referrerpolicy="no-referrer">
+
+<strong>1000009847.jpg</strong> (48.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-25 05:47 上传
+
