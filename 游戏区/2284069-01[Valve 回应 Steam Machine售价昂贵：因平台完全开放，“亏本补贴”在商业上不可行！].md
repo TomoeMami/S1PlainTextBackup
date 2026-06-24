@@ -531,3 +531,22 @@ ps，昨天拿一个机箱电源明显有兼容性问题的配置问了好几家
 那么问题来了，如果第三方小厂推出四千块的预装 SteamOS 的小尺寸客厅 PC，大家就会抢着买了吗 ...</blockquote>
 永远的问题为什么不买PC
 
+
+*****
+
+####  贝恩德塔  
+##### 54#       发表于 2026-6-24 08:48
+
+ 本帖最后由 贝恩德塔 于 2026-6-24 08:50 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69822030&amp;ptid=2284069" target="_blank">karastar 发表于 2026-6-24 08:35</a>
+
+永远的问题为什么不买PC</blockquote>
+别说，如果这配置在3k，那确实非常非常有性价比，所有人都可以买来刷个windows用，5k-6k才是正常的v社议价能力能达到且应当达到的价位
+
+*****
+
+####  小泉花陽  
+##### 55#       发表于 2026-6-24 08:53
+
+V社要真想推广蒸汽机和steamos，就该把分成策略改成凡是游戏在蒸汽机和steamos运行时间超过多少个小时，就把该游戏的分成降低几个百分比，我就不信开发者不会拼命优化在这两上的体验，然后当自费推广员推广sd、sm和steamos<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
