@@ -716,3 +716,14 @@ if0079是干嘛的
 
 cross系都死了好久了，不如先把独眼整出来吧
 
+
+*****
+
+####  电脑死机  
+##### 4431#       发表于 2026-6-25 08:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69826783&amp;ptid=2071758" target="_blank">ティグル 发表于 2026-6-25 02:03</a>
+
+cross系都死了好久了，不如先把独眼整出来吧</blockquote>
+cross太多能写的了，比如火星吉翁的先锋铁华团，联合维根一起出击
+
