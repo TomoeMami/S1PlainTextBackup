@@ -2413,3 +2413,46 @@ gf是不是怕褒姒才让微软买单
 
 预购了，支持gf打脸天天抱怨的宝粉。
 
+
+*****
+
+####  whzfjd  
+##### 231#       发表于 2026-6-25 19:56
+
+游戏区评测变得跟数码区一样昏睡了，PMM 对应 TESTV ？
+
+动画区才是永远的神
+
+*****
+
+####  uponutopia  
+##### 232#       发表于 2026-6-25 19:57
+
+战斗系统看上去比剑星深 剑星战斗除了满足重度打铁爱好者外乏善可陈 
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 233#       发表于 2026-6-25 20:00
+
+会有线上demo吗
+
+*****
+
+####  卢迪克  
+##### 234#       发表于 2026-6-25 20:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69829997&amp;ptid=2253295" target="_blank">moshizhe 发表于 2026-6-25 19:28</a>
+
+不同装备能换衣服吗看评测没看出来</blockquote>
+有            
+
+<img src="https://img.stage1st.com/forum/202606/25/200110gpjlphaadazf9rhh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (974.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-25 20:01 上传
+
