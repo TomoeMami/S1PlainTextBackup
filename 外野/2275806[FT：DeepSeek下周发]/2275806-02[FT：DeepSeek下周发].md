@@ -5276,3 +5276,11 @@ deepseek有可能在后面静默更新?</blockquote>
 
 开了个opencode go，gpt和glm来回蹬限额<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ymm1030  
+##### 1944#       发表于 2026-6-25 13:54
+
+昨天说是app端更新了flash百万上下文，有人测试吗
+
