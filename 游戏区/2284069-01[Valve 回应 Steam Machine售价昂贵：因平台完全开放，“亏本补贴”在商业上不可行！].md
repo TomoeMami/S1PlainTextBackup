@@ -1209,3 +1209,16 @@ PS：你自己把阀门这玩意定义程ITX而不是迷你主机我觉得多少
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  魔王候补77号  
+##### 109#       发表于 2026-6-25 13:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69828092&amp;ptid=2284069" target="_blank">强尼高达 发表于 2026-6-25 11:34</a>
+
+我定义成ITX？我什么时候下的这个定义？我第一个回复就对比了我用过的迷你主机，只有谭友不停跳脸“配没 ...</blockquote>
+不在乎啊价格啊？不在乎啊价格那问题就回去了
+
+为什么不用AI MAX395的迷你主机？
+
