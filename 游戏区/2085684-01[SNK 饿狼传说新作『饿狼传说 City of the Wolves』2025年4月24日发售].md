@@ -52,3 +52,11 @@ SNK: 什么狮鹫居然冠军?<img src="https://static.stage1st.com/image/smiley
 
 拳四郎联动貌似也有EOST之类的独立剧情，狼城的DLC更新目前两赛季都算得上量大且良心了
 
+
+*****
+
+####  人生オワタ  
+##### 748#       发表于 2026-6-25 22:24
+
+【《饿狼传说：群狼之城》角色性能介绍 - 拳四郎-哔哩哔哩】 [https://b23.tv/VvUW5SR](https://b23.tv/VvUW5SR)
+
