@@ -5284,3 +5284,22 @@ deepseek有可能在后面静默更新?</blockquote>
 
 昨天说是app端更新了flash百万上下文，有人测试吗
 
+
+*****
+
+####  杀人鲸  
+##### 1945#       发表于 2026-6-25 14:45
+
+可以升级到219了，只不过要在系统商城里面，为什么软件内部检查不出来？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Promeus  
+##### 1946#       发表于 2026-6-25 14:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69828740&amp;ptid=2275806" target="_blank">ymm1030 发表于 2026-6-25 13:54</a>
+昨天说是app端更新了flash百万上下文，有人测试吗</blockquote>
+v4都是百万上下文啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
