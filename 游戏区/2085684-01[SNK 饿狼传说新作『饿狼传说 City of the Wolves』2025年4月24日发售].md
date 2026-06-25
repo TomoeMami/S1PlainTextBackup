@@ -28,3 +28,11 @@
 
 SNK: 什么狮鹫居然冠军?<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kyo.C  
+##### 745#       发表于 2026-6-25 16:31
+
+拳四郎到底几号更新啊，这个月就剩五天了
+
