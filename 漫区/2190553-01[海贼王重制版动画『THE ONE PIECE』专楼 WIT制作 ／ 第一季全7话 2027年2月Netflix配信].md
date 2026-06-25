@@ -1057,3 +1057,11 @@ Exclusive sneak peeks for Charlie vs. the Chocolate Factory and THE ONE PIECE as
 黑x上怎么给我推荐的欧美评价全是骂的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 看到骂的几点一个是宣传片一半都是CGI，一个是和之前概念图的风格不符
 
+
+*****
+
+####  煤霉酶梅球  
+##### 68#       发表于 2026-6-25 10:06
+
+现在业界场景、载具、建筑基本全是3d建模有什么好骂的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不过和之前概念图风格差别确实挺大
+
