@@ -2592,3 +2592,13 @@ gf可能要靠这作摆脱在国内游戏厂商舆论底层的地位了
 
 我觉得挺不错啊，看起来挺扎实的
 
+
+*****
+
+####  199april  
+##### 251#       发表于 2026-6-26 00:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉典型的ig8游戏 多好说不上，但至少不会雷
+
+东西都是成熟的东西，应该不会太差
+

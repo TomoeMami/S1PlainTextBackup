@@ -657,3 +657,13 @@ PV2：[https://youtu.be/KJus0JA8wkM](https://youtu.be/KJus0JA8wkM)
 
 记成6月30号了，还要等一个月<img src="https://static.stage1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">不会跟heman一起上吧
 
+
+*****
+
+####  forgetit  
+##### 59#       发表于 2026-6-26 00:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69830860&amp;ptid=2276830" target="_blank">Xenor 发表于 2026-6-25 23:25</a>
+记成6月30号了，还要等一个月不会跟heman一起上吧</blockquote>
+heman。。。。是啥<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
