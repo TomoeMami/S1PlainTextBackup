@@ -631,3 +631,29 @@ ns版有分支树了，所以随便怎么玩都行，不过还是建议一条线
 2的psp版有人填坑汉化完了 这下三部曲的汉化传说终于完结了</blockquote>
 2代shikeyu也在汉化，我也有校对，不着急玩了可以等等我们人工翻译的
 
+
+*****
+
+####  饭冢武也  
+##### 59#       发表于 2026-6-25 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69829805&amp;ptid=2280030" target="_blank">邪恶的shah 发表于 2026-6-25 17:12</a>
+
+2代shikeyu也在汉化，我也有校对，不着急玩了可以等等我们人工翻译的</blockquote>
+等你们的，NS系统也完善一点
+
+想知道后面会出NS合集版的补丁吗，三合一玩起来方便一点
+
+
+*****
+
+####  饭冢武也  
+##### 59#       发表于 2026-6-25 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69829805&amp;ptid=2280030" target="_blank">邪恶的shah 发表于 2026-6-25 17:12</a>
+
+2代shikeyu也在汉化，我也有校对，不着急玩了可以等等我们人工翻译的</blockquote>
+等你们的，NS系统也完善一点
+
+想知道后面会出NS合集版的补丁吗，三合一玩起来方便一点
+

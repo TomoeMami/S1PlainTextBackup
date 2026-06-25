@@ -1125,3 +1125,11 @@ Exclusive sneak peeks for Charlie vs. the Chocolate Factory and THE ONE PIECE as
 
 尊敬的奈飞大人什么时候把龙珠重制一下啊？
 
+
+*****
+
+####  28201  
+##### 76#       发表于 2026-6-25 17:22
+
+倒是知道不可能真做个手绘水彩风出来，可这pv画面<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

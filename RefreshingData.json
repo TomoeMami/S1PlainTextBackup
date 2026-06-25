@@ -528,7 +528,7 @@
     "lastedit": 1782379020,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2094448": {
     "totalreply": 1544,
@@ -6171,7 +6171,7 @@
     "lastedit": 1782379080,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1755649": {
     "totalreply": 3762,
@@ -7898,7 +7898,7 @@
     "newtitle": "[东映原创动画『GIRLS BAND CRY』专楼 完全新作电影制作决定！]",
     "lastedit": 1782120845,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1867993": {
@@ -9186,7 +9186,7 @@
     "lastedit": 1782379680,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2192350": {
     "totalreply": 2109,
@@ -9402,7 +9402,7 @@
     "lastedit": 1782379680,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2194780": {
     "totalreply": 453,
@@ -11337,7 +11337,7 @@
     "lastedit": 1782379380,
     "category": "手游战斗",
     "active": true,
-    "update": true
+    "update": false
   },
   "1857542": {
     "totalreply": 989,
@@ -12030,7 +12030,7 @@
     "lastedit": 1782379140,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2034248": {
     "totalreply": 440,
@@ -12381,7 +12381,7 @@
     "lastedit": 1782379380,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2268807": {
     "totalreply": 512,
@@ -12399,7 +12399,7 @@
     "lastedit": 1782379680,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2218875": {
     "totalreply": 1417,
@@ -13200,7 +13200,7 @@
     "lastedit": 1782379620,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2095543": {
     "totalreply": 81,
@@ -13415,7 +13415,7 @@
     "newtitle": "[乌贼新书山海经武侠剑烛大荒上架啦！]",
     "lastedit": 1782120727,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2254292": {
@@ -13670,15 +13670,6 @@
     "active": false,
     "update": false
   },
-  "2282827": {
-    "totalreply": 118,
-    "title": "[现代年轻一代观众和作者是不是越来越巨婴化，对人性深度简化理解]",
-    "newtitle": "[现代年轻一代观众和作者是不是越来越巨婴化，对人性深度简化理解]",
-    "lastedit": 1781171050,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2120494": {
     "totalreply": 307,
     "title": "[神之亵渎2／渎神2／BlasphemousⅡ 8月24日发售 ​​​实机演示公开]",
@@ -13803,15 +13794,6 @@
     "lastedit": 1782377769,
     "category": "外野",
     "active": true,
-    "update": false
-  },
-  "2282988": {
-    "totalreply": 66,
-    "title": "[三国无双起源这游戏为什么这么给啊]",
-    "newtitle": "[三国无双起源这游戏为什么这么给啊]",
-    "lastedit": 1781170690,
-    "category": "游戏区",
-    "active": false,
     "update": false
   },
   "2283018": {
@@ -16458,7 +16440,7 @@
     "lastedit": 1782379500,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2283409": {
     "totalreply": 46,
@@ -17637,7 +17619,7 @@
     "lastedit": 1782379320,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2267228": {
     "totalreply": 142,
@@ -17817,7 +17799,7 @@
     "lastedit": 1782379380,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284178": {
     "totalreply": 76,
@@ -17910,13 +17892,13 @@
     "update": false
   },
   "2280030": {
-    "totalreply": 58,
+    "totalreply": 59,
     "title": "[流行之神1-汉化发布（PSPChina汉化组×Shikeyu)]",
     "newtitle": "[流行之神1-汉化发布（PSPChina汉化组×Shikeyu)]",
-    "lastedit": 1782379020,
+    "lastedit": 1782380418,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284059": {
     "totalreply": 48,
@@ -17984,11 +17966,11 @@
   "2284219": {
     "totalreply": 91,
     "title": "[不会打一点麻将，但刷到个视频，现在说麻将就是日本立直麻将了吗]",
-    "newtitle": "[不会打一点麻将，但刷到个视频，现在说麻将就是日本立直麻将了吗]",
+    "newtitle": "[]",
     "lastedit": 1782379500,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284198": {
     "totalreply": 53,
@@ -18087,7 +18069,7 @@
     "lastedit": 1782379320,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284247": {
     "totalreply": 57,
@@ -18123,7 +18105,7 @@
     "lastedit": 1782379380,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284235": {
     "totalreply": 60,
@@ -18132,6 +18114,6 @@
     "lastedit": 1782379380,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   }
 }

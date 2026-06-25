@@ -3273,3 +3273,12 @@ engage编剧带来的时间线穿越史诗故事！
 
 <img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">难道集合if回声三房fhxy缺点的神作真的出现了
 
+
+*****
+
+####  u2deack  
+##### 1015#       发表于 2026-6-25 17:19
+
+这战斗动画真的看着好蠢
+虽然我也不开动画，但是战斗外的地图动作engage也做得很流畅啊
+
