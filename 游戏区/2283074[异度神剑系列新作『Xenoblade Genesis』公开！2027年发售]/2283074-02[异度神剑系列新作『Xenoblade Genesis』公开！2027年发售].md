@@ -4558,3 +4558,23 @@ FF16 战斗高潮点都落在召唤兽上感觉还是值得肯定的，在二次
 
 —— 来自 vivo V2507A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ParadiseMartyr  
+##### 1908#       发表于 2026-6-25 22:30
+
+别把，什么时候主角变身成传统了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  UltramanPain  
+##### 1909#       发表于 2026-6-25 22:36
+
+我更想知道新作战斗系统有多大区别
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
