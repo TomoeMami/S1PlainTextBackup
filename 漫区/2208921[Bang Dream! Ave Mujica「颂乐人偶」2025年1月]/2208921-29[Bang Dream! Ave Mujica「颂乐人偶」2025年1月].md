@@ -1941,3 +1941,23 @@ mv画最好的一次
 
 mv不错可惜歌不太行，什么时候再弄首性压抑小曲？
 
+
+*****
+
+####  堀内爱里衣  
+##### 41938#       发表于 2026-6-25 13:51
+
+       
+
+<img src="https://img.stage1st.com/forum/202606/25/135133zqqfzr73c45rr3zn.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-06-25_13-50-15.jpg</strong> (310.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-25 13:51 上传
+
+       [https://x.com/bang_dream_info/status/2069963789630402623](https://x.com/bang_dream_info/status/2069963789630402623)
+
+       [https://bang-dream.com/discographies/4192/](https://bang-dream.com/discographies/4192/)
+
