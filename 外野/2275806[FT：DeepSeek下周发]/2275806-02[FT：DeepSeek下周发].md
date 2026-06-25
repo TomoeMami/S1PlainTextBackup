@@ -5268,3 +5268,11 @@ deepseek有可能在后面静默更新?</blockquote>
 
 上下文再长点吧，我现在一般对话到300k左右，询问它是否注意力开始涣散，需要新开对话时，都是肯定的答复。可能和我对对话内容精度要求比较高有关系。
 
+
+*****
+
+####  有鱼  
+##### 1943#       发表于 2026-6-25 12:09
+
+开了个opencode go，gpt和glm来回蹬限额<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
