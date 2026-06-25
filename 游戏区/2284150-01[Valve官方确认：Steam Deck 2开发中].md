@@ -456,3 +456,13 @@ steam deck其实根本不适合玩大型游戏。
 
 微软Sony的定制芯片AMD早就做好了，看V社能不能淘到边角料了
 
+
+*****
+
+####  Tissuesea  
+##### 51#       发表于 2026-6-25 15:35
+
+v 社懒狗来的，几年后出吧
+
+—— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
