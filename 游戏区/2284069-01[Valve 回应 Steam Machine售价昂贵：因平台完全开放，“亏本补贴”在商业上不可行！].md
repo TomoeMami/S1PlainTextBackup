@@ -1199,3 +1199,13 @@ PS：你自己把阀门这玩意定义程ITX而不是迷你主机我觉得多少
 
 这样不切实际幻想
 
+
+*****
+
+####  nianiania  
+##### 108#       发表于 2026-6-25 12:47
+
+如此不错的主机，如此合适的价格，蒸友不买一台用买一台收藏买一台传教就是对 g 胖的不忠不义不孝了<img src="https://static.stage1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
