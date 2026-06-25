@@ -2491,3 +2491,11 @@ gf是不是怕褒姒才让微软买单
 
 感觉普普通通，战斗系统就是纯打铁<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">但是7 8月也没啥别的想玩的，我记得有xgp？
 
+
+*****
+
+####  赤井稻妻  
+##### 239#       发表于 2026-6-25 21:40
+
+主要是看着动作有点硬，有种UE5demo感
+
