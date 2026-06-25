@@ -1033,3 +1033,16 @@ steamos应用在pc的意义是？</blockquote>
 如果没有的话 ...</blockquote>
 SteamOS 确实不是为了作为通用系统而设计的，首要目标是 Steam 游戏体验
 
+
+*****
+
+####  indtability  
+##### 106#       发表于 2026-6-25 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69827484&amp;ptid=2284072" target="_blank">Xerxes_2 发表于 2026-6-25 09:52</a>
+从来没用过 SteamOS，这玩意相对比社区发行版比如说 Bazzite 有任何易用性/兼容性上的提升吗
+
+如果没有的话 ...</blockquote>
+这个问题没有任何意义，因为 steam os 大部分组件是开源的，一方面 valve 为了让 steam os 更好用而作出的改进大部分都是先提交至对应的开源项目的，即使有提前在 steam os 上落地的改进，也会在之后推动整个 linux 生态在这方面的提升，另一方面这些社区发行版也随时可以把 steam os 里独有的组件搬回自己的发行版里。
+发行版之间的对比不是你想当然的操作系统之类的对比，大家用的都是一个来源的上游软件，所谓兼容性易用性之类的改变往往发生在上游，发行版即使想在这方面做出改进，也会优先贡献给上游，而非锁在自己的发行版里，这种想法太狭隘了。
+

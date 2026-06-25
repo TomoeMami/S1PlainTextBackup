@@ -22,3 +22,18 @@
 
 明天新消息发布会不会真要公布提前了，之前pragmata也是突然公布提前的
 
+
+*****
+
+####  手铐君  
+##### 639#       发表于 2026-6-25 12:36
+
+希望提前吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不然这几个月都没有什么新游戏想玩的
+
+*****
+
+####  Huiiii  
+##### 640#       发表于 2026-6-25 12:39
+
+demo的boss战做得好有意思，画质和动作感觉是只狼pro max，期待期待
+
