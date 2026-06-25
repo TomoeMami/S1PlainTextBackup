@@ -5346,3 +5346,20 @@ v4都是百万上下文啊<img src="https://static.stage1st.com/image/smiley/fac
 —— 来自 Xiaomi 2410DPN6CC, Android 16, 鹅球 v4.0-alpha ...</blockquote>
 我拿coding plan写文，glm表现挺不错的，不过需要强力约束。至少在v4p区出天际这几天都是我的主力模型。
 
+
+*****
+
+####  ST2002  
+##### 1951#       发表于 2026-6-25 16:14
+
+API 端是更新了识图模式了吗？今天让它改个前端页面，突然就会在修改完成后截图评估了，之前完全没调过这个工具<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杀人鲸  
+##### 1952#       发表于 2026-6-25 16:15
+
+API的接口那边，一般什么时候才会注入那些新的功能呢？类似于识图或者新的思考方式。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
