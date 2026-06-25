@@ -5406,3 +5406,14 @@ ds官方微信公众号发了招聘消息，看起来真的有一次规模扩张
 
 <img src="https://img.stage1st.com/forum/202606/25/214652iij7e355en57u3eo.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 1956#       发表于 2026-6-25 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69829472&amp;ptid=2275806" target="_blank">ST2002 发表于 2026-6-25 16:14</a>
+
+API 端是更新了识图模式了吗？今天让它改个前端页面，突然就会在修改完成后截图评估了，之前完全没调过这个 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">有可能是调用了什么联用模型？设定了备用模型吗？有一次我也是本来是让他测试试图模型，结果他说了半天没东西，然后莫名其妙的识别了
+
