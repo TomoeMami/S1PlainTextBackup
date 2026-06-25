@@ -2836,3 +2836,11 @@ reject那边还有一篇动画没发，说是主播去了他们办公室的</blo
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏锁国区，又不想NS买
 
+
+*****
+
+####  古战场亡魂  
+##### 20954#       发表于 2026-6-25 11:44
+
+晚上看犬山他们直播完呗。
+

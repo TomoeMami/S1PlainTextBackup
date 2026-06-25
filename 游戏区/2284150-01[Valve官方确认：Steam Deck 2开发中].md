@@ -429,3 +429,14 @@ steam deck其实根本不适合玩大型游戏。
 
 —— 來自 realme RMX3700, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  TheOccuria  
+##### 48#       发表于 2026-6-25 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69828085&amp;ptid=2284150" target="_blank">ppa11 发表于 2026-6-25 11:32</a>
+
+真和批发商没区别吗，有人在ebay等网站直接加购物车itx散件全套也比v社的便宜，怕不是以零售价拿的货。。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给你压缩到6英寸，非常便携，这个设计让你付费，很合理吧
+
