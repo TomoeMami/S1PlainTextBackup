@@ -2566,3 +2566,21 @@ gf可能要靠这作摆脱在国内游戏厂商舆论底层的地位了
 
 看了一下，就一个审美正常平平无奇的游戏，画面就那样，不好也不差，战斗打铁含量不低，但一出场动作就不对劲了，播片还行，自己操作时动作就生硬别扭，不是开放世界，箱庭设计，我觉得思路是对的，但目前反馈地图设计不太行
 
+
+*****
+
+####  topia  
+##### 248#       发表于 2026-6-25 23:22
+
+感觉这游戏最大的卖点是检验gf的成色<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  simonroam  
+##### 249#       发表于 2026-6-25 23:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69830749&amp;ptid=2253295" target="_blank">寂长无星夜 发表于 2026-6-25 22:54</a>
+
+这试玩看得我不想预购了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，难不成这游戏之前看预告你想预购，而且还上XGP，一般上XGP的也是先玩玩看喜欢再买吧
+
