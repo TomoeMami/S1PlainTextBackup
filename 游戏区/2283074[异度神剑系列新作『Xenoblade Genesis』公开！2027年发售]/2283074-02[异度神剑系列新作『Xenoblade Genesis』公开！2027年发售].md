@@ -4606,3 +4606,13 @@ FF16 战斗高潮点都落在召唤兽上感觉还是值得肯定的，在二次
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  shiko  
+##### 1913#       发表于 2026-6-25 22:44
+
+如果不能变身的话palow是来干啥的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2507A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
