@@ -621,3 +621,13 @@ ns版有分支树了，所以随便怎么玩都行，不过还是建议一条线
 
 2的psp貌似有人汉化完了 这下三部曲的汉化传说终于完结了<img src="https://static.stage1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  邪恶的shah  
+##### 58#         楼主| 发表于 2026-6-25 17:12
+
+<blockquote>抹茶瓜 发表于 2026-6-25 00:50
+2的psp版有人填坑汉化完了 这下三部曲的汉化传说终于完结了</blockquote>
+2代shikeyu也在汉化，我也有校对，不着急玩了可以等等我们人工翻译的
+
