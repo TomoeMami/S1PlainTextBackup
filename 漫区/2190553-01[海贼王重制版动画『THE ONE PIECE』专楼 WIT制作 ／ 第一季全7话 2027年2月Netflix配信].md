@@ -1117,3 +1117,11 @@ Exclusive sneak peeks for Charlie vs. the Chocolate Factory and THE ONE PIECE as
 
 比起we are还是更希望重制版ed是memories
 
+
+*****
+
+####  低级赛亚人  
+##### 75#       发表于 2026-6-25 17:16
+
+尊敬的奈飞大人什么时候把龙珠重制一下啊？
+
