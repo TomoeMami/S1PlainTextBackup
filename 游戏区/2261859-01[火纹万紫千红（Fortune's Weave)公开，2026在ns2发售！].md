@@ -3216,3 +3216,11 @@ engage编剧带来的时间线穿越史诗故事！
 この商品は、注文確定後、注文をキャンセルすること ...</blockquote>
 被日亚坑了<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kalavinka  
+##### 1008#       发表于 2026-6-25 15:58
+
+出了个新实机，本来对战斗动画还有一丝念想，现在彻底死心了<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

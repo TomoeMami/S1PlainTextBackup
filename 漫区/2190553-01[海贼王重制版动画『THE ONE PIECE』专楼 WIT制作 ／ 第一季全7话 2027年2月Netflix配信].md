@@ -1089,3 +1089,13 @@ Exclusive sneak peeks for Charlie vs. the Chocolate Factory and THE ONE PIECE as
 
 就不能重置阿拉巴斯坦吗
 
+
+*****
+
+####  751984871  
+##### 72#       发表于 2026-6-25 16:01
+
+如果一季只能做漫画50话，那后面很多大篇章没法在一季甚至两季里讲完。
+
+寸止是很难受的，海贼还是适合周更1集，最慢起码月更1集。
+
