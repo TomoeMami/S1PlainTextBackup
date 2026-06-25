@@ -373,3 +373,21 @@ steam deck其实根本不适合玩大型游戏。
 
 只能说v社在供应链上面和批发商没区别，所以这玩意预期定价参考下其它的win掌机就行了，哦，可能v社有什么特别的设计，别忘了给这部分溢价付费
 
+
+*****
+
+####  RAMDA  
+##### 44#       发表于 2026-6-25 11:12
+
+上个月deck喜迎涨价40%+，这两天又端出另一个价格逆天的machine来，我说等deck2出来还能带给坛友无尽的惊喜口牙<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  scg2017  
+##### 45#       发表于 2026-6-25 11:16
+
+现在出的话可以参考微星的intel掌机价格
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
