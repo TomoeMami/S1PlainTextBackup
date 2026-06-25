@@ -4486,3 +4486,16 @@ xbx最好的支线攻略还是日版wiki
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  lost_恩恩  
+##### 1901#       发表于 2026-6-25 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69814581&amp;ptid=2283074" target="_blank">UltramanPain 发表于 2026-6-22 16:18</a>
+
+研究了一下异度2新加的动作战斗新模式，如果新作战斗系统改成这样如何：
+
+1、方向键左右（或者肩键）切换不 ...</blockquote>
+想起RWBY里的white了
+
