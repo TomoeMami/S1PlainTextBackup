@@ -2378,3 +2378,20 @@ gf是不是怕褒姒才让微软买单
 
 我是先预购了，女主脸对味
 
+
+*****
+
+####  moshizhe  
+##### 227#       发表于 2026-6-25 19:28
+
+不同装备能换衣服吗看评测没看出来
+
+*****
+
+####  手铐君  
+##### 228#       发表于 2026-6-25 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69829997&amp;ptid=2253295" target="_blank">moshizhe 发表于 2026-6-25 19:28</a>
+不同装备能换衣服吗看评测没看出来</blockquote>
+据说不行
+
