@@ -20,3 +20,11 @@
 
 我一直觉得狮鹫太弱了，伤害起码要加个10%到15%，这位玩家真是让人叹为观止。
 
+
+*****
+
+####  siro1987  
+##### 744#       发表于 2026-6-25 15:19
+
+SNK: 什么狮鹫居然冠军?<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
