@@ -4530,3 +4530,11 @@ FF16 战斗高潮点都落在召唤兽上感觉还是值得肯定的，在二次
 
 有大鸡架才是日式奇幻，FF16拿召唤兽替代，你XBG不该上个正统蒸汽朋克大鸡架才够味么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woaimiyabi  
+##### 1905#       发表于 2026-6-25 20:58
+
+没啥物料了  什么时候官方给点新东西啊  现在甚至连角色名字 声优都没公布。
+
