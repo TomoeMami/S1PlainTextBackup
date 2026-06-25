@@ -1073,3 +1073,11 @@ Exclusive sneak peeks for Charlie vs. the Chocolate Factory and THE ONE PIECE as
 
 看来看去路飞还是TV最早的脸最有少年感，现在的都是啥啊，这么唐的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  少年包工头  
+##### 70#       发表于 2026-6-25 12:29
+
+感觉不出和之前东映重制的东海有多大区别        [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
