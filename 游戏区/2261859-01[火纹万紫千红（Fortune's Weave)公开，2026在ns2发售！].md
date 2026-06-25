@@ -3224,3 +3224,11 @@ engage编剧带来的时间线穿越史诗故事！
 
 出了个新实机，本来对战斗动画还有一丝念想，现在彻底死心了<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  はちたや  
+##### 1009#       发表于 2026-6-25 16:11
+
+这几个是新角色吗？有点不精致啊
+

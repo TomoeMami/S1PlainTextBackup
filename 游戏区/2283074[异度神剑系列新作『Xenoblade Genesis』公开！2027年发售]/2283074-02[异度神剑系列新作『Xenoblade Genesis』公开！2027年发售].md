@@ -4499,3 +4499,18 @@ xbx最好的支线攻略还是日版wiki
 1、方向键左右（或者肩键）切换不 ...</blockquote>
 想起RWBY里的white了
 
+
+*****
+
+####  lilod  
+##### 1902#       发表于 2026-6-25 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69826385&amp;ptid=2283074" target="_blank">ParadiseMartyr 发表于 2026-6-24 22:50</a>
+
+感觉不如ff16更正统中世纪魔幻
+
+那玩意是毫无想象力的纯无聊的垃圾
+
+指环王都比那坨玩意时尚</blockquote>
+ff16 还是太垃圾了，XBG 这个球形世界至少第一眼已经完爆16了
+

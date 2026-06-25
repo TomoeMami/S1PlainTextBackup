@@ -5323,3 +5323,26 @@ v4都是百万上下文啊<img src="https://static.stage1st.com/image/smiley/fac
 
 —— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  ymm1030  
+##### 1949#       发表于 2026-6-25 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69829091&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-6-25 15:02</a>
+
+一直都是1m上下文啊    Re:Source</blockquote>
+我怎么记得flash是128k上下文
+
+*****
+
+####  ymm1030  
+##### 1950#       发表于 2026-6-25 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69829344&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-6-25 15:48</a>
+
+有对比coding以外的场景v4p和glm5.2的吗
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, 鹅球 v4.0-alpha ...</blockquote>
+我拿coding plan写文，glm表现挺不错的，不过需要强力约束。至少在v4p区出天际这几天都是我的主力模型。
+
