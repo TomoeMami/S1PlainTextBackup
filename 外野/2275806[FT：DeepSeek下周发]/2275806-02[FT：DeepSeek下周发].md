@@ -5313,3 +5313,13 @@ v4都是百万上下文啊<img src="https://static.stage1st.com/image/smiley/fac
 昨天说是app端更新了flash百万上下文，有人测试吗</blockquote>
 一直都是1m上下文啊    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  noneoneone  
+##### 1948#       发表于 2026-6-25 15:48
+
+有对比coding以外的场景v4p和glm5.2的吗
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
