@@ -649,3 +649,11 @@ PV2：[https://youtu.be/KJus0JA8wkM](https://youtu.be/KJus0JA8wkM)
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不贵，不过啥时出反和谐补丁或者mod啥时再买
 
+
+*****
+
+####  Xenor  
+##### 58#       发表于 2026-6-25 23:25
+
+记成6月30号了，还要等一个月<img src="https://static.stage1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">不会跟heman一起上吧
+
