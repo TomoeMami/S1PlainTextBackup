@@ -2584,3 +2584,11 @@ gf可能要靠这作摆脱在国内游戏厂商舆论底层的地位了
 这试玩看得我不想预购了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，难不成这游戏之前看预告你想预购，而且还上XGP，一般上XGP的也是先玩玩看喜欢再买吧
 
+
+*****
+
+####  蓝雉  
+##### 250#       发表于 2026-6-26 00:04
+
+我觉得挺不错啊，看起来挺扎实的
+
