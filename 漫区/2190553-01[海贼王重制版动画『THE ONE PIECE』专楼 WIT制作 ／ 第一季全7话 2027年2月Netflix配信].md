@@ -1065,3 +1065,11 @@ Exclusive sneak peeks for Charlie vs. the Chocolate Factory and THE ONE PIECE as
 
 现在业界场景、载具、建筑基本全是3d建模有什么好骂的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不过和之前概念图风格差别确实挺大
 
+
+*****
+
+####  天使的日曜日  
+##### 69#       发表于 2026-6-25 10:43
+
+看来看去路飞还是TV最早的脸最有少年感，现在的都是啥啊，这么唐的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
