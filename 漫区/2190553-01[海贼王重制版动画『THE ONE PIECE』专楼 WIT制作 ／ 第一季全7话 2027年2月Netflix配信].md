@@ -1099,3 +1099,13 @@ Exclusive sneak peeks for Charlie vs. the Chocolate Factory and THE ONE PIECE as
 
 寸止是很难受的，海贼还是适合周更1集，最慢起码月更1集。
 
+
+*****
+
+####  魔法师lain  
+##### 73#       发表于 2026-6-25 16:34
+
+看pv画面还好，就是bgm比原来的差多了
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
