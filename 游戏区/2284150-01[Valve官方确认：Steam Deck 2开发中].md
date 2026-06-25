@@ -391,3 +391,41 @@ steam deck其实根本不适合玩大型游戏。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  anmdrree  
+##### 46#       发表于 2026-6-25 11:31
+
+感觉定价会很贵，699以上我肯定不考虑了
+
+*****
+
+####  ppa11  
+##### 47#       发表于 2026-6-25 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69827602&amp;ptid=2284150" target="_blank">TheOccuria 发表于 2026-6-25 10:13</a>
+只能说v社在供应链上面和批发商没区别，所以这玩意预期定价参考下其它的win掌机就行了，哦，可能v社有什么 ...</blockquote>
+真和批发商没区别吗，有人在ebay等网站直接加购物车itx散件全套也比v社的便宜，怕不是以零售价拿的货。。
+
+—— 來自 realme RMX3700, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  anmdrree  
+##### 46#       发表于 2026-6-25 11:31
+
+感觉定价会很贵，699以上我肯定不考虑了
+
+*****
+
+####  ppa11  
+##### 47#       发表于 2026-6-25 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69827602&amp;ptid=2284150" target="_blank">TheOccuria 发表于 2026-6-25 10:13</a>
+只能说v社在供应链上面和批发商没区别，所以这玩意预期定价参考下其它的win掌机就行了，哦，可能v社有什么 ...</blockquote>
+真和批发商没区别吗，有人在ebay等网站直接加购物车itx散件全套也比v社的便宜，怕不是以零售价拿的货。。
+
+—— 來自 realme RMX3700, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
