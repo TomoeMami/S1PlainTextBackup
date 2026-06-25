@@ -3256,3 +3256,20 @@ engage编剧带来的时间线穿越史诗故事！
 
 我服了，为什么生死相拼的战场周围会有一群看上去在观看宝可梦对战的群众啊，你们不怕火球术打偏了被击中？
 
+
+*****
+
+####  发呆的龙虾  
+##### 1013#       发表于 2026-6-25 16:58
+
+虽说是低级兵互砍，但是这战斗是怎么做到这么劣质且搞笑的。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  反方向的波  
+##### 1014#       发表于 2026-6-25 17:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">难道集合if回声三房fhxy缺点的神作真的出现了
+
