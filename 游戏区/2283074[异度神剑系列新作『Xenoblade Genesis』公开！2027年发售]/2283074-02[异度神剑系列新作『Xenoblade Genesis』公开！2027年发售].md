@@ -4578,3 +4578,31 @@ FF16 战斗高潮点都落在召唤兽上感觉还是值得肯定的，在二次
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Asimot  
+##### 1910#       发表于 2026-6-25 22:39
+
+你先别急，我先急
+
+*****
+
+####  狸狸狐  
+##### 1911#       发表于 2026-6-25 22:41
+
+<blockquote>ParadiseMartyr 发表于 2026-6-25 22:30
+别把，什么时候主角变身成传统了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+变身不变身不知道，女主必定有和原来形象差距很大的第二形态跑不了。
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 1912#       发表于 2026-6-25 22:43
+
+盲猜剧情就是女主变瞎失忆，然后机缘巧合拿到镶嵌了阿尼玛晶石的剑恢复了所有记忆然后和队友一起寻找世界的真相<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+

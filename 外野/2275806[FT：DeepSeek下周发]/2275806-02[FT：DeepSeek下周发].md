@@ -5417,3 +5417,14 @@ ds官方微信公众号发了招聘消息，看起来真的有一次规模扩张
 API 端是更新了识图模式了吗？今天让它改个前端页面，突然就会在修改完成后截图评估了，之前完全没调过这个 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">有可能是调用了什么联用模型？设定了备用模型吗？有一次我也是本来是让他测试试图模型，结果他说了半天没东西，然后莫名其妙的识别了
 
+
+*****
+
+####  蛋黄酱Release  
+##### 1957#       发表于 2026-6-25 22:42
+
+受不了了，今天晚上怎么了工作一直出错
+我使用v4pro一直有个毛病就是偶尔它会在思考内容里面输出正文，然后正文就是空的。今天晚上在cc里面一直这样，新开对话框也这样<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">还动不动就突然停止了工作流
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
