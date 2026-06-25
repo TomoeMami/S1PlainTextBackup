@@ -1081,3 +1081,11 @@ Exclusive sneak peeks for Charlie vs. the Chocolate Factory and THE ONE PIECE as
 
 感觉不出和之前东映重制的东海有多大区别        [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  seven777  
+##### 71#       发表于 2026-6-25 14:15
+
+就不能重置阿拉巴斯坦吗
+
