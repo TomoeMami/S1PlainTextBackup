@@ -60,3 +60,21 @@ SNK: 什么狮鹫居然冠军?<img src="https://static.stage1st.com/image/smiley
 
 【《饿狼传说：群狼之城》角色性能介绍 - 拳四郎-哔哩哔哩】 [https://b23.tv/VvUW5SR](https://b23.tv/VvUW5SR)
 
+
+*****
+
+####  人生オワタ  
+##### 749#       发表于 2026-6-27 00:37
+
+【「拳四郎」 连招视频 - 饿狼传说 CotW 【CMV】 | 抢先体验-哔哩哔哩】 [https://b23.tv/lRjTE7K](https://b23.tv/lRjTE7K)
+
+【【4K60帧】144连击！desk大佬演示《饿狼传说：群狼之城》拳四郎 Combos + Hype!! | 作者：desk-哔哩哔哩】 [https://b23.tv/WBL3227](https://b23.tv/WBL3227)
+
+【你已经死了！拳四郎是个机制怪？新DLC角色试玩报告！【狼城】-哔哩哔哩】 [https://b23.tv/RMdQ4mr](https://b23.tv/RMdQ4mr)
+
+【【饿狼传说：群狼之城】最新DLC拳四郎试玩测评-哔哩哔哩】 [https://b23.tv/3h3D2wJ](https://b23.tv/3h3D2wJ)
+
+【受到snk邀请试玩饿狼最新联动拳四郎！拳脚博弈好伤害高！-哔哩哔哩】 [https://b23.tv/p9z5g4h](https://b23.tv/p9z5g4h)
+
+【《饿狼传说：群狼之城》拳四郎试玩，看见北斗百裂拳你就已经死了-哔哩哔哩】 [https://b23.tv/AxnsARE](https://b23.tv/AxnsARE)
+
