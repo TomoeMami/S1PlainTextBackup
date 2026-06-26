@@ -1411,3 +1411,13 @@ n卡在这几年进步很大是真的，问题依然有也是真的
 
 — from Google Pixel 10 Pro XL, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  殺村凶子  
+##### 138#       发表于 2026-6-26 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69831749&amp;ptid=2284072" target="_blank">plumlis 发表于 2026-6-26 09:18</a>
+SteamMachine一开始估计是想稍微低价一点，重点是推广自己的 SteamOS 的，结果遇到内存涨价，估计现在自己 ...</blockquote>
+我正准备搞一台9700X/9070XT刷steam os放客厅，就是体积很难做小，怕散热不行    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
