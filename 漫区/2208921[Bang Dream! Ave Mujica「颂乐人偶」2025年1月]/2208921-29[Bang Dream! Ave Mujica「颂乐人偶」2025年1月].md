@@ -1992,3 +1992,21 @@ mv不错可惜歌不太行，什么时候再弄首性压抑小曲？
 Our Notes内测角色语音熟肉，由于只有祥子能拉到29级解锁全语音，所以其余人的会晚一点发在分P里</blockquote>
        [https://www.bilibili.com/video/BV16B7q6XEo7](https://www.bilibili.com/video/BV16B7q6XEo7)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41941#       发表于 2026-6-26 16:33
+
+       
+
+<img src="https://img.stage1st.com/forum/202606/26/163316louchtj6kfta2adh.png" referrerpolicy="no-referrer">
+
+<strong>2026-06-26_16-29-21.png</strong> (392.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-26 16:33 上传
+
+       [https://t.bilibili.com/1217901544496693252](https://t.bilibili.com/1217901544496693252)
+
