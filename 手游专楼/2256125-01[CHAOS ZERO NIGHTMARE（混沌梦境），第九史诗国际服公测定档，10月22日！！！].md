@@ -3715,3 +3715,11 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 
 刷了4-5个通用辅助的存档的，现在开始刷其他输出的档<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windaria  
+##### 1086#       发表于 2026-6-26 21:42
+
+这个游戏的正确玩法就应该是买优惠水晶，然后只玩出击，别的乱七八糟的内容都别碰，浪费时间，作为无氪打算下个赛季后退坑了
+
