@@ -3365,3 +3365,13 @@ engage编剧带来的时间线穿越史诗故事！
 这战斗动画路人欢呼真不是朱紫道馆战吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 这战斗倒是烂完了
 
+
+*****
+
+####  57042711  
+##### 1024#       发表于 2026-6-26 11:14
+
+优点就是打得快了吧，可惜没有出必杀的攻击动作演示。
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
