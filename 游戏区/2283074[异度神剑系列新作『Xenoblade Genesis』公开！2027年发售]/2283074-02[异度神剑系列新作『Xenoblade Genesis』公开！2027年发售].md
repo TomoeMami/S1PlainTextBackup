@@ -4624,3 +4624,13 @@ FF16 战斗高潮点都落在召唤兽上感觉还是值得肯定的，在二次
 
 变身之类的系统别和3一样一开始看着炫酷后面纯鸡肋
 
+
+*****
+
+####  UltramanPain  
+##### 1915#       发表于 2026-6-26 21:11
+
+pv里确实有很多的塔，不知道这些是干什么的<img src="https://p.sda1.dev/33/403b736dcd55bd9ef1772ed00e1f8a55/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

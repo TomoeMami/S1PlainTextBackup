@@ -1499,3 +1499,33 @@ SteamMachine一开始估计是想稍微低价一点，重点是推广自己的 S
 ——来自  HUAWEI Mate 80 OpenHarm ...</blockquote>
 那不如直接9070不带xt了
 
+
+*****
+
+####  RTLordCaptain  
+##### 146#       发表于 2026-6-26 21:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69835489&amp;ptid=2284072" target="_blank">殺村凶子 发表于 2026-6-26 20:57</a>
+
+手柄唤醒这点，我也是妥协了，和主机一样能稳定的待机，随开随玩就行了    Re:Source ...</blockquote>
+刚看到一个ytb视频讲这个，标题是“I didn't want to buy a console so I built this”
+
+唤醒其实需要把一个usb唤醒的系统设置打开（linux命令行），默认这些都是关闭的，需要找对手柄的usb口。另外看样子应该必须是带usb无线适配器的手柄，蓝牙不一定行
+
+HDMI CEC开电视需要一个40多刀的DIY 带USB的HDMI适配器，并且需要安装并且配置一个开源的服务程序，用来在机器唤醒时给电视发送信号，配置相当复杂
+
+蒸汽机最大的价值大概就是搞定了这些东西，不过讲真V社应该推出配套的硬件让玩家自己装
+
+
+*****
+
+####  孤狼arcueid  
+##### 147#       发表于 2026-6-26 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69835282&amp;ptid=2284072" target="_blank">殺村凶子 发表于 2026-6-26 20:14</a>
+
+玩了快两年SDO，对steam os非常有好感，本来想买SM放客厅的，结果价钱比心理价位高太多，刚好听朋友说PC ...</blockquote>
+像闪鳞l200，螺丝大师S102这种呗，小塔压个9600x+上短卡9060xt正好
+
+农企卡没得选，不像5060有半高卡，配上230f这种萝卜就能压的塞个1u机箱能搞得足够小
+
