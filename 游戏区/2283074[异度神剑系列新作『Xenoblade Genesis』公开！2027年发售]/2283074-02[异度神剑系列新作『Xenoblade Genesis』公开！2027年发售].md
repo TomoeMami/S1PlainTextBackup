@@ -4659,3 +4659,31 @@ pv里确实有很多的塔，不知道这些是干什么的<img src="https://p.s
 
 爬塔开塔打守塔BOSS
 
+
+*****
+
+####  狸狸狐  
+##### 1919#       发表于 2026-6-26 21:48
+
+<blockquote>maomaoying 发表于 2026-6-26 21:37
+这些塔看着好渺小</blockquote>
+实际上很高。一开场就有一个
+
+<img src="https://img.stage1st.com/forum/202606/26/214827iezjy8zy0z8jnoo6.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260615_211453_yylx.danmaku.bili.jpg</strong> (242.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-26 21:48 上传
+
+<img src="https://img.stage1st.com/forum/202606/26/214827pu48ciler1gcrc1i.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260615_212110.jpg</strong> (126.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-6-26 21:48 上传
+
