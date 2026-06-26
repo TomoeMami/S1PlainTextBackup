@@ -1476,3 +1476,26 @@ SteamMachine一开始估计是想稍微低价一点，重点是推广自己的 S
 玩了快两年SDO，对steam os非常有好感，本来想买SM放客厅的，结果价钱比心理价位高太多，刚好听朋友说PC ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">我的话对不可变系统无感，另外听说steam os无法通过手柄唤醒系统（实际上也并不是系统的问题），所以steam machine还内置了能实现这个功能的硬件，好像有通过什么诱骗设备来实现这个功能的方法
 
+
+*****
+
+####  殺村凶子  
+##### 144#       发表于 2026-6-26 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69835389&amp;ptid=2284072" target="_blank">BRS5672023 发表于 2026-6-26 20:34</a>
+我的话对不可变系统无感，另外听说steam os无法通过手柄唤醒系统（实际上也并不是系统的问题），所以stea ...</blockquote>
+手柄唤醒这点，我也是妥协了，和主机一样能稳定的待机，随开随玩就行了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  RTLordCaptain  
+##### 145#       发表于 2026-6-26 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69835098&amp;ptid=2284072" target="_blank">BRS5672023 发表于 2026-6-26 19:38</a>
+
+9070xt 300w小机箱会不会吃力，不过降到200w性能损失其实也可以接受
+
+——来自  HUAWEI Mate 80 OpenHarm ...</blockquote>
+那不如直接9070不带xt了
+
