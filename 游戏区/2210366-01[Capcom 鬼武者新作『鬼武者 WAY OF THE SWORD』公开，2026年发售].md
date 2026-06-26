@@ -37,3 +37,34 @@
 
 demo的boss战做得好有意思，画质和动作感觉是只狼pro max，期待期待
 
+
+*****
+
+####  conanoysq  
+##### 641#       发表于 2026-6-26 09:44
+
+今天的新片看了下：
+
+1、武藏躲过boss二连踢之后，武藏反击疑似被boss格挡。（这个特效和武藏的偏斜弹反不同，我只能说是疑似是boss格挡了武藏）
+
+2、boss也能一闪（贫穷一闪，特效不及武藏），他闪了之后，武藏丢失锁定，砍空气，然后武藏用一闪反一闪。
+
+交互细节拉满了，感觉是卡表游戏之最。非常期待一周目演出，但是预感一周目难度会很低，纯爽游。
+
+*****
+
+####  57042711  
+##### 642#       发表于 2026-6-26 09:49
+
+这boss还能吸魂强化自身的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  卡拉德利姆  
+##### 643#       发表于 2026-6-26 09:51
+
+结果还是25号啊<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

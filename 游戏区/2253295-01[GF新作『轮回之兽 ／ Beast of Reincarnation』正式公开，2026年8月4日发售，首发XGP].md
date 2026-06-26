@@ -2698,3 +2698,21 @@ gf可能要靠这作摆脱在国内游戏厂商舆论底层的地位了
 
 很多8分游戏到XGP这块就是挑刺的多
 
+
+*****
+
+####  kemyes  
+##### 262#       发表于 2026-6-26 09:44
+
+有个槽，打人会涨，弹刀会涨，被人打会降，放技能要用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是卧龙气势槽么
+
+
+*****
+
+####  蓝雉  
+##### 263#       发表于 2026-6-26 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69831894&amp;ptid=2253295" target="_blank">kemyes 发表于 2026-6-26 09:44</a>
+有个槽，打人会涨，弹刀会涨，被人打会降，放技能要用这不是卧龙气势槽么 ...</blockquote>
+无双起源的豆子也是啊
+
