@@ -5501,3 +5501,15 @@ gpt推理强度开到高grill提纲还是挺方便的，一般七八十个问题
 
 Gemini现在不如豆姐，怎么还能反向升级的，是海外的算力中心被炸了吗
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1964#       发表于 2026-6-26 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69833345&amp;ptid=2275806" target="_blank">アコ 发表于 2026-6-26 13:46</a>
+Gemini现在不如豆姐，怎么还能反向升级的，是海外的算力中心被炸了吗</blockquote>
+豆包不管搜索内容读没读对，好歹它真搜过，gemini现在是打死都不调用搜索功能，而且世界知识不知道为啥退化到2024年以前了
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -2817,3 +2817,11 @@ gf可能要靠这作摆脱在国内游戏厂商舆论底层的地位了
 线下试玩会人情世故太多了，可信度不比商单高多少。
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">不如开放demo让大家试玩。
 
+
+*****
+
+####  uponutopia  
+##### 275#       发表于 2026-6-26 14:48
+
+看了下试玩说实话太拉了 敷衍的世界观神必的过场狗屎样的运镜土到爆的概念美术便宜到寒酸的卖相，全方位的拉跨
+
