@@ -1398,3 +1398,16 @@ n卡在这几年进步很大是真的，问题依然有也是真的
 
 体验上肯定不能和深度耦合社区的a卡比
 
+
+*****
+
+####  Xerxes_2  
+##### 137#       发表于 2026-6-26 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69833000&amp;ptid=2284072" target="_blank">Nanachi 发表于 2026-6-26 14:34</a>
+69 楼说：
+但事实是，nvidia 在今年已经实现了该扩展，现在需要社区和 valve 进行适配来测试效果，所以现 ...</blockquote>
+只要一日不进主线，问题就是始终会存在的，树外驱动的固有缺陷
+
+— from Google Pixel 10 Pro XL, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

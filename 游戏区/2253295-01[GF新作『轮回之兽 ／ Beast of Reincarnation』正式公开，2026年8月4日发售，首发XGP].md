@@ -2761,3 +2761,12 @@ gf可能要靠这作摆脱在国内游戏厂商舆论底层的地位了
 
 感觉就一个练手项目
 
+
+*****
+
+####  NaYo丶  
+##### 269#       发表于 2026-6-26 12:58
+
+电玩疯直接放了45分钟的试玩 好像还自己删了 b站有补档<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+[https://b23.tv/aOuHGCm](https://b23.tv/aOuHGCm)
+
