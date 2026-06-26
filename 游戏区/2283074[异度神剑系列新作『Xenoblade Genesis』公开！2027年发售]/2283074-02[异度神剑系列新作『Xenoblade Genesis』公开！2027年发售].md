@@ -4721,3 +4721,12 @@ pv里确实有很多的塔，不知道这些是干什么的<img src="https://p.s
 
 奥特曼和假面骑士都致敬过了，应该说会不会有“我来组成头部”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bonnwang  
+##### 1924#       发表于 2026-6-26 23:58
+
+合体在xg里面元素部队已经玩过了
+还有一个要塞级的机体变形
+
