@@ -5478,3 +5478,18 @@ gpt推理强度开到高grill提纲还是挺方便的，一般七八十个问题
 
 但是gpt又有点太科班，太正经了
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 1962#       发表于 2026-6-26 12:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69832893&amp;ptid=2275806" target="_blank">qwased 发表于 2026-6-26 12:14</a>
+确实是这样，非常明显的智力差距
+
+但是gpt又有点太科班，太正经了</blockquote>
+我觉得主要差距还是在世界知识和agent的约束能力
+不过在Gemini已经唐到不能正常对话的当下，gpt已经是最好的选择了
+
+—— 来自 HUAWEI WGRR-W19, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
