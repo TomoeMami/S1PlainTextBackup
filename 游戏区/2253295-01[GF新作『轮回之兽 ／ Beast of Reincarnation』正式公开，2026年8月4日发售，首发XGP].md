@@ -2654,3 +2654,21 @@ gf可能要靠这作摆脱在国内游戏厂商舆论底层的地位了
 
 虚幻神力
 
+
+*****
+
+####  寻狐  
+##### 258#       发表于 2026-6-26 09:24
+
+有没有大佬知道XBOX WIN10进不去是什么情况 该做的都做了，修复，重置，重装<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  アヘ顔  
+##### 259#       发表于 2026-6-26 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69831053&amp;ptid=2253295" target="_blank">洛克萨斯 发表于 2026-6-26 00:54</a>
+要是成功的话，万万没想到傻逼se自己搞不出尼尔2的成功复制体，给su和gf弄成了，目前看起来卖相还不错的 ...</blockquote>
+女主还是太健全了
+属于是儿童版尼尔
+
