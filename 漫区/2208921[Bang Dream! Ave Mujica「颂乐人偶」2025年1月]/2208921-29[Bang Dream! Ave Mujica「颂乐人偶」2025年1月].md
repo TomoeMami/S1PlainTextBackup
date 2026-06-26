@@ -2040,3 +2040,82 @@ Our Notes内测角色语音熟肉，由于只有祥子能拉到29级解锁全语
 
        [https://x.com/sasakirico/status/2070283590899012011](https://x.com/sasakirico/status/2070283590899012011)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41943#       发表于 2026-6-26 22:40
+
+       <strong>《BanG Dream! Our Notes》动画CM：Ave Mujica</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202606/26/223944dukypcyyoixhruun.jpg" referrerpolicy="no-referrer">
+
+<strong>6aab277dafe2b80449a74dae254520a4be645253.jpg</strong> (258.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-26 22:39 上传
+
+由 BanG Dream! 企划带来的全新音游《BanG Dream! Our Notes》动画CM：Ave Mujica 正式公开！
+
+奏响吧，属于我们的乐章！
+
+《BanG Dream! Our Notes》国际服预约火热进行中！
+
+【STAFF】
+
+分镜・演出：茶山ふう
+
+角色设计・作画监督：雛田ゆいち
+
+原画：茶山ふう
+
+动画：茶山ふう／平岡真奈／無錫市淏明アニメ
+
+色彩：茶山ふう／無錫市淏明アニメ
+
+色彩设计：AOK
+
+美术监督：山本陽一朗
+
+摄影监督：片山雄太
+
+摄影：project No.9 撮影部／片山雄太／森兼梨緒／野田虎汰朗
+
+编辑：早島 苫（Raiose）
+
+动画制作：青木泰寛
+
+动画制作公司：AtoriE
+
+┈┈┈┈┈┈┈┈┈⿻*.·
+
+#BanGDream# #交织的乐章#</blockquote>
+       [https://www.bilibili.com/video/BV1UH7G6tE7R](https://www.bilibili.com/video/BV1UH7G6tE7R)
+
+*****
+
+####  堀内爱里衣  
+##### 41944#       发表于 2026-6-26 22:40
+
+       <strong>《BanG Dream! Our Notes》游戏介绍CM：Ave Mujica</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202606/26/224035kidpxp6txjm6xmmi.jpg" referrerpolicy="no-referrer">
+
+<strong>18e77103814832319e219108da6b8da4041ac5c6.jpg</strong> (304.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-26 22:40 上传
+
+由 BanG Dream! 企划带来的全新音游《BanG Dream! Our Notes》游戏介绍CM：Ave Mujica 正式公开！
+
+奏响吧，属于我们的乐章！
+
+《BanG Dream! Our Notes》国际服预约火热进行中！
+
+┈┈┈┈┈┈┈┈┈⿻*.·
+
+#BanGDream# #交织的乐章#</blockquote>
+       [https://www.bilibili.com/video/BV1dQ7561ENW](https://www.bilibili.com/video/BV1dQ7561ENW)
+
