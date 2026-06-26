@@ -2770,3 +2770,13 @@ gf可能要靠这作摆脱在国内游戏厂商舆论底层的地位了
 电玩疯直接放了45分钟的试玩 好像还自己删了 b站有补档<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 [https://b23.tv/aOuHGCm](https://b23.tv/aOuHGCm)
 
+
+*****
+
+####  mai6696  
+##### 270#       发表于 2026-6-26 13:11
+
+昨天晚上各种UP主都开始更新视频，一股商单感扑面而来，瞬间就让我期望值大跌。
+
+虽说预购了豪华版，但还是先观望口碑吧。保留退款权。
+
