@@ -3391,3 +3391,39 @@ engage编剧带来的时间线穿越史诗故事！
 
 啊？我觉得战斗动画起码比三房强吧，三房那战斗动画没一点打击感，不如3DS三作一根啊
 
+
+*****
+
+####  mai6696  
+##### 1027#       发表于 2026-6-26 13:23
+
+<img src="https://img.stage1st.com/forum/202606/26/132202kzomt8go6gvqk68z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (438.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-26 13:22 上传
+
+仗着我方回合，敌人不会攻击，直接把脸送到别人剑下。
+
+<img src="https://img.stage1st.com/forum/202606/26/132232rixaa0pgh300gkg3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (451.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-26 13:22 上传
+
+<img src="https://img.stage1st.com/forum/202606/26/132248htye6ehg225048a6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (452.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-26 13:22 上传
+
+然后靠穿模攻击给别人击退。
+
+长柄武器是这么用的吗？
+
