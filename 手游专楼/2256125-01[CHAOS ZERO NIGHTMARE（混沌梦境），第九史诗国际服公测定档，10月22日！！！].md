@@ -3705,3 +3705,13 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">有点无聊 也不想刷卡组了 每天打打出击混日子了（
 
+
+*****
+
+####  christiny  
+##### 1085#       发表于 2026-6-26 17:50
+
+现在每天一次出击，能拿8000材料，然后打4次升级或者潜能材料。然后2次速通肉鸽慢慢混存档。
+
+刷了4-5个通用辅助的存档的，现在开始刷其他输出的档<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
