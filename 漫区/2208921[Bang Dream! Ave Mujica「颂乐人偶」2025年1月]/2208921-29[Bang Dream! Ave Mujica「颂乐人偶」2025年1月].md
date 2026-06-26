@@ -1961,3 +1961,13 @@ mv不错可惜歌不太行，什么时候再弄首性压抑小曲？
 
        [https://bang-dream.com/discographies/4192/](https://bang-dream.com/discographies/4192/)
 
+
+*****
+
+####  Cortana  
+##### 41939#       发表于 2026-6-26 08:48
+
+孩子们，初祥同居剧情太好嗑了，看得我躯体化了一直在笑啊<img src="https://static.stage1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
