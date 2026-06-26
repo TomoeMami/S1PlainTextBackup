@@ -707,3 +707,14 @@ ns版有分支树了，所以随便怎么玩都行，不过还是建议一条线
 大佬3代的那个DLC会补下汉化吗</blockquote>
 应该没有了
 
+
+*****
+
+####  饭冢武也  
+##### 65#       发表于 2026-6-26 09:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69830184&amp;ptid=2280030" target="_blank">邪恶的shah 发表于 2026-6-25 20:08</a>
+
+应该不会的，你说的这个合集版我都没听说过 除了2后边精力应该都在新流行之神了 ...</blockquote>
+我看柯大之前说在移植3的文本了？
+
