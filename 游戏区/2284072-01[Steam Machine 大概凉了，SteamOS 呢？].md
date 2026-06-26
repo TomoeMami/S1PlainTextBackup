@@ -1575,3 +1575,19 @@ USB休眠唤醒研究下命令行应该还是没那么难
 
 CEC貌似是真复杂而且原up主也提到这个配置好了也不稳定
 
+
+*****
+
+####  孤狼arcueid  
+##### 152#       发表于 2026-6-26 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69835645&amp;ptid=2284072" target="_blank">RTLordCaptain 发表于 2026-6-26 21:33</a>
+也可以上node202，小乌鸦这种扁机箱吧，不过貌似选择不多价格贵……
+
+不过搜了下好像甚至都停产了？只剩下 ...</blockquote>
+这种除非特意为了个大号路由器造型，不然没啥必要
+一是要上延长线，能直插尽量直插
+二上cpu散热也很受限
+
+—— 来自 Xiaomi 2509FPN0BC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
