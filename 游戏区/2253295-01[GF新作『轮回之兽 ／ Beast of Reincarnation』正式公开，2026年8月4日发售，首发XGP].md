@@ -2672,3 +2672,29 @@ gf可能要靠这作摆脱在国内游戏厂商舆论底层的地位了
 女主还是太健全了
 属于是儿童版尼尔
 
+
+*****
+
+####  洛克萨斯  
+##### 260#       发表于 2026-6-26 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69831785&amp;ptid=2253295" target="_blank">アヘ顔 发表于 2026-6-26 09:28</a>
+
+女主还是太健全了
+
+属于是儿童版尼尔</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是要验证美少女主机动作冒险游戏的可行性，烧鸡派的剑星成功了，现在看清纯派的轮回行不行
+
+
+*****
+
+####  simonroam  
+##### 261#       发表于 2026-6-26 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69831100&amp;ptid=2253295" target="_blank">幻想风靡_ 发表于 2026-6-26 01:24</a>
+
+虽然看预告和试玩确实不错，但是首发xgp总归让人不太信任……</blockquote>
+有一说一，XGP首发和PS限时独占确实不一样，索尼品牌这块强太多了
+
+很多8分游戏到XGP这块就是挑刺的多
+
