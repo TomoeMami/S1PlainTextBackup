@@ -2010,3 +2010,33 @@ Our Notes内测角色语音熟肉，由于只有祥子能拉到29级解锁全语
 
        [https://t.bilibili.com/1217901544496693252](https://t.bilibili.com/1217901544496693252)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41942#       发表于 2026-6-26 16:36
+
+       
+
+<img src="https://img.stage1st.com/forum/202606/26/163647r6p2ws03sosanm66.png" referrerpolicy="no-referrer">
+
+<strong>2026-06-26_16-33-59.png</strong> (1.04 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-26 16:36 上传
+
+       [https://x.com/canvas2929/status/2070160335663698268](https://x.com/canvas2929/status/2070160335663698268)
+
+       
+
+<img src="https://img.stage1st.com/forum/202606/26/163647o0cy4bmu6udy0xq0.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-06-26_16-34-22.jpg</strong> (212.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-26 16:36 上传
+
+       [https://x.com/sasakirico/status/2070283590899012011](https://x.com/sasakirico/status/2070283590899012011)
+
