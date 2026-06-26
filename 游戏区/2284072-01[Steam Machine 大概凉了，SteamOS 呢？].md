@@ -1455,3 +1455,24 @@ SteamMachine一开始估计是想稍微低价一点，重点是推广自己的 S
 ——来自  HUAWEI Mate 80 OpenHarm ...</blockquote>
 玩了快两年SDO，对steam os非常有好感，本来想买SM放客厅的，结果价钱比心理价位高太多，刚好听朋友说PC也开放安装了，就让他帮忙弄一个，结果体积小不了，我还是希望有第三方厂商能做这个产品线，像ROG和联想之前也出了预装steam os的掌机一样    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  Sayuki1025  
+##### 142#       发表于 2026-6-26 20:26
+
+就现在这个存储价格 frame价格也得抽象<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX736J, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  BRS5672023  
+##### 143#       发表于 2026-6-26 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69835282&amp;ptid=2284072" target="_blank">殺村凶子 发表于 2026-6-26 20:14</a>
+
+玩了快两年SDO，对steam os非常有好感，本来想买SM放客厅的，结果价钱比心理价位高太多，刚好听朋友说PC ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">我的话对不可变系统无感，另外听说steam os无法通过手柄唤醒系统（实际上也并不是系统的问题），所以steam machine还内置了能实现这个功能的硬件，好像有通过什么诱骗设备来实现这个功能的方法
+
