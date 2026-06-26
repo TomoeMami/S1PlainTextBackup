@@ -1971,3 +1971,24 @@ mv不错可惜歌不太行，什么时候再弄首性压抑小曲？
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  堀内爱里衣  
+##### 41940#       发表于 2026-6-26 11:37
+
+       <strong>【熟】Our Notes内测Ave Mujica语音（持续更新）</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202606/26/113730cukmylea7ipipzue.jpg" referrerpolicy="no-referrer">
+
+<strong>217ffa026a1005aa2f257180f0039022be570765.jpg</strong> (222.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-26 11:37 上传
+
+游戏内录
+
+Our Notes内测角色语音熟肉，由于只有祥子能拉到29级解锁全语音，所以其余人的会晚一点发在分P里</blockquote>
+       [https://www.bilibili.com/video/BV16B7q6XEo7](https://www.bilibili.com/video/BV16B7q6XEo7)
+
