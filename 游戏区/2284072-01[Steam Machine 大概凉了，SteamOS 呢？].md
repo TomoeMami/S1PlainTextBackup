@@ -1133,3 +1133,39 @@ steamos开发又不是v社慈善给开源社区无偿做贡献，而是切实在
 
 — from Google Pixel 10 Pro XL, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  plumlis  
+##### 116#       发表于 2026-6-26 10:29
+
+ 本帖最后由 plumlis 于 2026-6-26 10:33 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69832046&amp;ptid=2284072" target="_blank">simonouozy 发表于 2026-6-26 10:11</a>
+
+steamos开发又不是v社慈善给开源社区无偿做贡献，而是切实在sd获得了收益的。sd过程中v社和开源社区和玩家 ...</blockquote>
+好多人真的对V社做了啥不了解啊。
+
+SteamOS 是 Linux 系统，在Linux系统下玩Windows游戏用的兼容层叫做 Proton。
+
+Proton 是 V 社和 CodeWeavers 两个公司牵头开发的，而这个项目是开源的，谁都可以用的。所有的Linux系统，Mac系统，甚至Android系统下玩 Windows 的游戏都得益于这个项目的推进，未来甚至类似 VR 眼镜上直接玩 PC 游戏也会收益于这个项目。
+
+而这些收益都不需要你买SteamDeck，都是免费用的。它像是一个模拟器引擎，你在B站看到各种人整活，在什么设备上玩PC游戏，没有这个项目都很难做。你可以买 SteamDeck 获得 SteamOS 的最佳体验，你也可以不买啊，随便一个 Win 掌机都可以装 Bazzite 之类的系统获得和 Steamdeck 差不多的体验，甚至性能更好，V 社也没阻止，某种程度上还鼓励。
+
+而且我也没看到 V 社出来吹自己是救世主，都是一群自媒体自己给那儿引流吹，目的也不是为了吹捧 SteamOS，主要是为了喷 Win11，毕竟喷 Win11 是流量密码。
+
+V 社做的硬件价格抽象可以不买，但是它的软件是一直开放的，甚至核心技术还是免费放出来让大家随便用的。无论如何都是利好玩家，多一个选择都不是坏事，不知道为啥非要这么幸灾乐祸。要嘲讽建议找当年那些引流自媒体们。
+
+
+*****
+
+####  Xerxes_2  
+##### 117#       发表于 2026-6-26 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69832157&amp;ptid=2284072" target="_blank">plumlis 发表于 2026-6-26 12:29</a>
+好多人真的对V社做了啥不了解啊。
+
+SteamOS 是 Linux 系统，在Linux系统下玩Windows游戏用的兼容层叫做 Pr ...</blockquote>
+Mac 并不直接得益于 Proton 吧
+
+— from Google Pixel 10 Pro XL, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
