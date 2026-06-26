@@ -3356,3 +3356,12 @@ engage编剧带来的时间线穿越史诗故事！
 
 这个演示就不是正经战场吧 初期关卡街边械斗
 
+
+*****
+
+####  北条早苗  
+##### 1023#       发表于 2026-6-26 10:46
+
+这战斗动画路人欢呼真不是朱紫道馆战吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这战斗倒是烂完了
+

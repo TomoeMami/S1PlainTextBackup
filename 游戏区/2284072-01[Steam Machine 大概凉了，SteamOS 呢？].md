@@ -1169,3 +1169,31 @@ Mac 并不直接得益于 Proton 吧
 
 — from Google Pixel 10 Pro XL, Android 17, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  simonouozy  
+##### 118#       发表于 2026-6-26 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69832157&amp;ptid=2284072" target="_blank">plumlis 发表于 2026-6-26 10:29</a>
+好多人真的对V社做了啥不了解啊。
+
+SteamOS 是 Linux 系统，在Linux系统下玩Windows游戏用的兼容层叫做 Pr ...</blockquote>
+但是v社开发的目的是卖一个没有windows的自己的掌机，而不是慈善。
+客观上是为linux系统带来了很多玩游戏的收益，但是类似的公司处于自己利益为前提开发的商业项目，客观上为开源社区带来收益的项目很多很多，只是你更直观感受到了proton给你带来的收益而已，之前吹成慈善现在被回旋镖我觉得很正常啊。
+
+*****
+
+####  indtability  
+##### 119#       发表于 2026-6-26 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69832046&amp;ptid=2284072" target="_blank">simonouozy 发表于 2026-6-26 10:11</a>
+steamos开发又不是v社慈善给开源社区无偿做贡献，而是切实在sd获得了收益的。sd过程中v社和开源社区和玩家 ...</blockquote>
+我建议别扯这个，你花钱买了产品的，可以去评论产品如何如何，可以去要求公司在这个产品上如何如何，但开源社区用爱发电，对于别人的贡献，尊重和赞扬是社区唯一能给的东西，人家用自己的产品挣了钱，你不能拿这个来绑架别人说这是应该的，开源规范里面从来都不禁止商业盈利，你不能道德绑架别人说只能无偿贡献，说只要获得了收益，对开源社区做贡献就不能说好话，开源社区不是这么玩的。
+
+sd 确实有收益，硬要说的话，linix 用户买游戏也算收益，但横向对比其他产品，使用开源软件的产品多了去了，有几个给开源社区做贡献的？苹果在自己的产品里附带了curl，给上游没有贡献不说，连用户发来的售后请求都要转给原作者，简直搞笑，苹果发布了gptk，苹果用户普天同庆，时不时在网上说mac也能玩游戏了，但它给上游的贡献呢，甚至连gptk本身都是闭源的。
+
+从时间上纵向来看，valve 早在 sd 发布前就在积极参与开源社区贡献，dxvk，proton 这种游戏相关项目不说，甚至之前看 kde 的演讲，也提到 valve 的参与，sd 没有出现的时候，这个贡献怎么算？
+
+对一个产品失望，是不应该和其他方向的贡献抵消的，要都这么玩，开源社区早玩完了，谁没几个黑点，做贡献的时候还要被说被嘲讽几句也正常，谁这么贱。
+
