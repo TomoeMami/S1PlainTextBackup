@@ -3507,3 +3507,11 @@ engage编剧带来的时间线穿越史诗故事！
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69834576&amp;ptid=2261859" target="_blank">蓮華 发表于 2026-6-26 17:44</a></blockquote>
 除了都是绿发尖耳龙娘也没啥太大共同点了
 
+
+*****
+
+####  hkguty  
+##### 1037#       发表于 2026-6-26 20:45
+
+头发都是绿的
+
