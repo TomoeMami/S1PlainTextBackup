@@ -1443,3 +1443,15 @@ SteamMachine一开始估计是想稍微低价一点，重点是推广自己的 S
 我正准备搞一台9700X/9070XT刷steam os放客厅，就是体积很难做小，怕散热不行    Re:Source ...</blockquote>
 客厅用这个过于浪费，7500f+9060xt足够了
 
+
+*****
+
+####  殺村凶子  
+##### 141#       发表于 2026-6-26 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69835098&amp;ptid=2284072" target="_blank">BRS5672023 发表于 2026-6-26 19:38</a>
+9070xt 300w小机箱会不会吃力，不过降到200w性能损失其实也可以接受
+
+——来自  HUAWEI Mate 80 OpenHarm ...</blockquote>
+玩了快两年SDO，对steam os非常有好感，本来想买SM放客厅的，结果价钱比心理价位高太多，刚好听朋友说PC也开放安装了，就让他帮忙弄一个，结果体积小不了，我还是希望有第三方厂商能做这个产品线，像ROG和联想之前也出了预装steam os的掌机一样    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
