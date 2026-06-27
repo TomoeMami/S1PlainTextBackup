@@ -4793,3 +4793,15 @@ pv里那个只出现一秒的女精灵说不定就是黄埔军校校长，大反
 
 ———其实所以有人都是诺朋，但视觉被扭曲了。
 
+
+*****
+
+####  UltramanPain  
+##### 1931#       发表于 2026-6-27 13:23
+
+其实我想异度神剑地图上偶尔放一两个支线大迷宫不知道效果如何<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+塞尔达走自由开放，传统大迷宫少了。
+也能做黄金太阳代餐<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
