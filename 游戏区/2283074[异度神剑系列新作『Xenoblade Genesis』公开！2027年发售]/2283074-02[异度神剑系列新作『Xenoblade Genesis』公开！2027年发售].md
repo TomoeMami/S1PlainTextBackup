@@ -4805,3 +4805,35 @@ pv里那个只出现一秒的女精灵说不定就是黄埔军校校长，大反
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  shiko  
+##### 1932#       发表于 2026-6-27 13:27
+
+说实话感觉那个绿毛精灵是男的，有种反派大头头的感觉
+
+—— 来自 vivo V2507A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  UltramanPain  
+##### 1933#       发表于 2026-6-27 13:29
+
+异度3的那个素材娃娃机感觉就是受了塞尔达新作的影响。说不定以后真会放两个小迷宫彩蛋
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  UltramanPain  
+##### 1934#       发表于 2026-6-27 13:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69837474&amp;ptid=2283074" target="_blank">shiko 发表于 2026-6-27 13:27</a>
+说实话感觉那个绿毛精灵是男的，有种反派大头头的感觉
+
+—— 来自 vivo V2507A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+哪个绿毛精灵，给女主教学那个？
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
