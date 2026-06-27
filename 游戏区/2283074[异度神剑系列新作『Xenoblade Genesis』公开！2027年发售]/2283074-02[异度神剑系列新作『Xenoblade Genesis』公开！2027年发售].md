@@ -4756,3 +4756,28 @@ pv里确实有很多的塔，不知道这些是干什么的<img src="https://p.s
 
 基本上序章就要交代系统玩法的主要素，很难不想象学院是不是藏着什么
 
+
+*****
+
+####  UltramanPain  
+##### 1928#       发表于 2026-6-27 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69837139&amp;ptid=2283074" target="_blank">被击坠王 发表于 2026-6-27 11:31</a>
+每部序章就要交代系统玩法的独有主要素，单纯的插件已经玩烂了也不算什么大亮点，很难不想象阿尼玛石和学院 ...</blockquote>
+pv里那个只出现一秒的女精灵说不定就是黄埔军校校长，大反派<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/33/f2343dcdca5b3e8014112189f7a9273f/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  UltramanPain  
+##### 1929#       发表于 2026-6-27 12:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69837245&amp;ptid=2283074" target="_blank">UltramanPain 发表于 2026-6-27 12:07</a>
+pv里那个只出现一秒的女精灵说不定就是黄埔军校校长，大反派
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, ...</blockquote>
+其实看着有点像盲人
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
