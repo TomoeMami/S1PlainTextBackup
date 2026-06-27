@@ -25,3 +25,13 @@
 新手教程里我怎 ...</blockquote>
 能入，普通模式挺多老ass来带人的，也有新人在玩
 
+
+*****
+
+####  jacket  
+##### 2142#       发表于 2026-6-27 20:40
+
+才艺展示然后找小壶打分
+[https://x.com/ice_planet_neko/status/2070166696489546181](https://x.com/ice_planet_neko/status/2070166696489546181)
+[https://x.com/ice_planet_neko/status/2070568847955112088](https://x.com/ice_planet_neko/status/2070568847955112088)
+
