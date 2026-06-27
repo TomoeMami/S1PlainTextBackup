@@ -4469,7 +4469,7 @@
     "newtitle": "[《碧蓝幻想 Relink》 ／ 加强版将于2026年7月9日发售]",
     "lastedit": 1782282005,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2057903": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 42579,
+    "totalreply": 42580,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》6.8 赛博朋克2076]",
-    "lastedit": 1782538206,
+    "lastedit": 1782541326,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 40633,
+    "totalreply": 40634,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1782537967,
+    "lastedit": 1782541326,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 18486,
+    "totalreply": 18487,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「寻遗散记」版本即将开放]",
-    "lastedit": 1782539405,
+    "lastedit": 1782541564,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12807,10 +12807,10 @@
     "update": false
   },
   "2179402": {
-    "totalreply": 2626,
+    "totalreply": 2627,
     "title": "[《杀戮尖塔2》公开，延期至2026年3月Steam EA发售]",
     "newtitle": "[《杀戮尖塔2》公开，2026年3月5日Steam EA发售]",
-    "lastedit": 1782463808,
+    "lastedit": 1782541326,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12969,10 +12969,10 @@
     "update": false
   },
   "2245675": {
-    "totalreply": 709,
+    "totalreply": 711,
     "title": "[上伊那牡丹，酒醉身姿似百合花般 动画化]",
     "newtitle": "[上伊那牡丹，酒醉身姿似百合花般 动画化]",
-    "lastedit": 1782539285,
+    "lastedit": 1782541446,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13194,10 +13194,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 7166,
+    "totalreply": 7168,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1782541085,
+    "lastedit": 1782541446,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13612,15 +13612,6 @@
     "title": "[年度大戏，乐高事件]",
     "newtitle": "[年度大戏，乐高事件]",
     "lastedit": 1782182886,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2282851": {
-    "totalreply": 92,
-    "title": "[问界的销量啥情况]",
-    "newtitle": "[问界的销量啥情况]",
-    "lastedit": 1781331969,
     "category": "外野",
     "active": false,
     "update": false
@@ -16781,7 +16772,7 @@
     "newtitle": "[安徽广德车祸]",
     "lastedit": 1782282128,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2284034": {
@@ -17829,10 +17820,10 @@
     "update": false
   },
   "2284315": {
-    "totalreply": 249,
+    "totalreply": 250,
     "title": "[美的，掌握核心科技]",
     "newtitle": "[美的，掌握核心科技]",
-    "lastedit": 1782540845,
+    "lastedit": 1782541446,
     "category": "外野",
     "active": true,
     "update": false
@@ -17955,10 +17946,10 @@
     "update": false
   },
   "2284363": {
-    "totalreply": 147,
+    "totalreply": 148,
     "title": "[如果中文翻译标准“信达雅”去掉“雅”会怎么样？]",
     "newtitle": "[如果中文翻译标准“信达雅”去掉“雅”会怎么样？]",
-    "lastedit": 1782536529,
+    "lastedit": 1782541685,
     "category": "外野",
     "active": true,
     "update": false
@@ -18090,10 +18081,10 @@
     "update": false
   },
   "2284382": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[国内高校恨不得把留学生当爹一样供着]",
     "newtitle": "[国内高校恨不得把留学生当爹一样供着]",
-    "lastedit": 1782540488,
+    "lastedit": 1782541446,
     "category": "外野",
     "active": true,
     "update": false
