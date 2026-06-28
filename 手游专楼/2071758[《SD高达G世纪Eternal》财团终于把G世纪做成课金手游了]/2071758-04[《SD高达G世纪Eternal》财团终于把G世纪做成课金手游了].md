@@ -65,3 +65,17 @@ f91红
 
 f90黄
 
+
+*****
+
+####  无念  
+##### 4448#       发表于 2026-6-28 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69841496&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2026-6-28 17:26</a>
+f91红
+
+f90黄</blockquote>
+等看被动和技能了
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
