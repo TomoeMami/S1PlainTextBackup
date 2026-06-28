@@ -474,3 +474,19 @@ ps5pro现在都900刀了，ps6提高一点也有可能
 
 —— 来自 vivo V2546A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  绿冰  
+##### 56#       发表于 2026-6-28 19:20
+
+ 本帖最后由 绿冰 于 2026-6-28 19:22 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69840647&amp;ptid=2284449" target="_blank">zid99825 发表于 2026-6-28 12:25</a>
+怎么可能藏起来不卖，流片的沉没成本都已经投进去了，晚个2年就全过时
+
+论坛助手,iPad ...</blockquote>和卖一台血亏一台，还不知道能卖多少比，流片成本算什么
+我是一直觉得Switch OLED就是任天堂直接把Switch Pro埋了的结果
+只要PS5的销售还没严重失速，维持现状卖PS5一定是最佳选择，又不是PC成本和性能全面碾压的时代了
+
+—— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
