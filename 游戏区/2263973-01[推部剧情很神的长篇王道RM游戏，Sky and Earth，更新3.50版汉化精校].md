@@ -3295,3 +3295,16 @@ https://skyandearth.wiki.fc2.com/m/
 
 感谢LZ和楼里译者的工作，让我好好地享受了一次95h的古典王道JRPG，真是一部顶三部曲
 
+
+*****
+
+####  blas  
+##### 281#       发表于 2026-6-28 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68704631&amp;ptid=2263973" target="_blank">Booorunestud 发表于 2025-11-10 23:04</a>
+
+终于算是彻底打完了，今年最沉迷
+
+这游戏通关并不是头，还有些不算多但挺有分量的剧情藏在全成就的途中和全 ...</blockquote>
+非常感谢，实在没有时间接着肝了，看了后日谈非常满足
+
