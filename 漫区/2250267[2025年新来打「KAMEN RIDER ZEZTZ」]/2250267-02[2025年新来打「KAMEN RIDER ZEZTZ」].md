@@ -204,3 +204,13 @@
 
 日剧传统公安阴谋论还是塞到剧场版了，这才对味嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黄泉川此方  
+##### 2002#       发表于 2026-6-28 15:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉是想拍点电影感的危机出来的
+
+但观感是所有人都发狂了
+
