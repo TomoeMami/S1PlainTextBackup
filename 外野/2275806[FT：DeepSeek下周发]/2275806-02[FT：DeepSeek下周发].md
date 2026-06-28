@@ -5563,3 +5563,16 @@ DeepSeek V4更新DSpark，推理速度提升80%
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  zerona  
+##### 1969#       发表于 2026-6-28 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69842232&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-6-28 20:50</a>
+
+更新到220了，没更新的朋友可以去更新一下。
+
+—— 来自 S1Fun</blockquote>
+api是直接更新最新吧。
+
