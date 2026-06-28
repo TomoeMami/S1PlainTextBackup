@@ -546,3 +546,31 @@ ps5pro现在都900刀了，ps6提高一点也有可能
 我现在这台电脑用了七年了，想配个新的，过的去的中上配置，目前怎么看都要上万，也就1500刀以上 ...</blockquote>
 舅舅说英特尔要把主板厂卖了自己独活下一代CPU回到lga1700接口，DIY这回真不用换全套板子内存传三代咯
 
+
+*****
+
+####  RTLordCaptain  
+##### 63#       发表于 2026-6-28 21:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69840288&amp;ptid=2284449" target="_blank">泰坦失足 发表于 2026-6-28 11:06</a>
+
+还是到28年再换代吧，27年卖1000刀主机</blockquote>
+27年存储不降的话28年也不会有什么区别
+
+*****
+
+####  RTLordCaptain  
+##### 64#       发表于 2026-6-28 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69840603&amp;ptid=2284449" target="_blank">hisousihou 发表于 2026-6-28 12:15</a>
+
+现在这成本，索尼还有余力兼顾掌机吗。</blockquote>
+掌机和SD一样只是同一个平台的附属，不是独立的平台
+
+*****
+
+####  すぴぱら  
+##### 65#       发表于 2026-6-28 21:09
+
+卖1699刀就行了，游戏可以涨价到80刀
+
