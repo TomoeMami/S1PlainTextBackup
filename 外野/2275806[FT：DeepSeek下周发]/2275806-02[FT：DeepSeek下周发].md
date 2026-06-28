@@ -5576,3 +5576,17 @@ DeepSeek V4更新DSpark，推理速度提升80%
 —— 来自 S1Fun</blockquote>
 api是直接更新最新吧。
 
+
+*****
+
+####  杀人鲸  
+##### 1970#       发表于 2026-6-28 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69842552&amp;ptid=2275806" target="_blank">zerona 发表于 2026-6-28 21:56</a>
+api是直接更新最新吧。</blockquote>
+这里说的更新当然指的就是客户端呀。
+顺便API那边的更新还真的是不太好说呀，至少我好像现在也还没有开在那边看到新的思考模式，虽然我好几天没有登陆了。
+朋友你有登录吗？如果你有登录的话，有体验到新的思考模式吗？在那边。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
