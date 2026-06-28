@@ -508,3 +508,20 @@ ps5pro现在都900刀了，ps6提高一点也有可能
 
 死 死 死
 
+
+*****
+
+####  clyde-wang  
+##### 59#       发表于 2026-6-28 20:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69841919&amp;ptid=2284449" target="_blank">nozomitech 发表于 2026-6-28 19:32</a>
+也不需要这么悲观吧，按正常时间下一代主机应当在27年10月发售，拖一年28年10月也不算晚，那时候内存厂特别 ...</blockquote>
+别的还好说，为什么会觉得国产存储增产会降价，长存已经示范做了一次勇者变恶龙还是没法让人相信么？
+
+*****
+
+####  laputah  
+##### 60#       发表于 2026-6-28 20:28
+
+主要还是a卡，n卡1200都爆杀pc了 
+
