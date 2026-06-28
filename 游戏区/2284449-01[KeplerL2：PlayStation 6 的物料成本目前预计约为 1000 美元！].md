@@ -525,3 +525,14 @@ ps5pro现在都900刀了，ps6提高一点也有可能
 
 主要还是a卡，n卡1200都爆杀pc了 
 
+
+*****
+
+####  ナルバレック  
+##### 61#       发表于 2026-6-28 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69841421&amp;ptid=2284449" target="_blank">adretyu67. 发表于 2026-6-28 17:00</a>
+
+1000美刀的ps6真不如配pc了吧，虽然显卡内存也突出一个暴涨了</blockquote>
+我现在这台电脑用了七年了，想配个新的，过的去的中上配置，目前怎么看都要上万，也就1500刀以上<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

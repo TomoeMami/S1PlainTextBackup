@@ -87,3 +87,14 @@ f90黄</blockquote>
 
 西布克这声音应该是换人了吧，不再是录音
 
+
+*****
+
+####  jackyhuang  
+##### 4450#       发表于 2026-6-28 20:36
+
+西布克F91出的时候就换了吧
+倒是萨比尼这次换不换
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
