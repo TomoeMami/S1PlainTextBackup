@@ -445,3 +445,14 @@ ps5pro现在都900刀了，ps6提高一点也有可能
 
 推迟到2028可以接受吧，一年的性能差距应该没多少<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ra2163  
+##### 53#       发表于 2026-6-28 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69841580&amp;ptid=2284449" target="_blank">clyde-wang 发表于 2026-6-28 17:56</a>
+
+现在流片的芯片成本可不低啊，而且屯一段时间性能完全跟不上了那就得要重新选型和设计了 ...</blockquote>
+没事的，大家都用的一套供应链，能差到哪去，现在卡的死死，晚一两年发说不定还用上大内存了
+
