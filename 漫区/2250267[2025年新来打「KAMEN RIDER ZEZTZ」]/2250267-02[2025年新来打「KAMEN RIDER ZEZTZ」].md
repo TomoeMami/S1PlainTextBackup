@@ -258,3 +258,11 @@
 也就是说最后便当 ...</blockquote>
 川平慈音就是这行的，估计是看要收花了就让他本性解放一下来点fan service<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wwmmddqqbbpp  
+##### 2007#       发表于 2026-6-28 18:53
+
+感觉打架还是纯为了带货和对应一周目硬掰的理由，被控制还要写怎么解控和以后怎么免控，估计感觉太麻烦了就直接误会了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -464,3 +464,13 @@ ps5pro现在都900刀了，ps6提高一点也有可能
 
 难以想象到时候一个游戏要卖多少<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zfz4869  
+##### 55#       发表于 2026-6-28 18:44
+
+去年没买ps5pro是个巨大的失误
+
+—— 来自 vivo V2546A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
