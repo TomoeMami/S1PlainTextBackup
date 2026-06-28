@@ -403,3 +403,21 @@ via Welfare on InstallBase
 
 希望明年底能按计划发布PS6
 
+
+*****
+
+####  SergeGlenn  
+##### 735#       发表于 2026-6-28 08:46
+
+Kepler_L2说PS6的BOM(物料成本)上升了200刀，3月时为760刀，现在是960刀，也就意味着实际成本已经可以达到1000到1100的范围
+
+这趋势下去明年发售的时候1300刀不是梦啊
+
+<img src="https://img.stage1st.com/forum/202606/28/084608kzis3i7etitxx54i.jpg" referrerpolicy="no-referrer">
+
+<strong>1000009859.jpg</strong> (56 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-28 08:46 上传
+
