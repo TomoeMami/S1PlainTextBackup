@@ -7475,7 +7475,7 @@
     "newtitle": "[【KIRARA】芳文社漫画个人读后感+综合讨论楼]",
     "lastedit": 1782415244,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2110102": {
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 16332,
+    "totalreply": 16333,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼5月]",
-    "lastedit": 1782669965,
+    "lastedit": 1782674406,
     "category": "外野",
     "active": true,
     "update": false
