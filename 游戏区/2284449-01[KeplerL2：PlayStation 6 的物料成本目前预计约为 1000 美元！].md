@@ -437,3 +437,11 @@ ps5pro现在都900刀了，ps6提高一点也有可能
 也许他的意思是等硬件成本降下去再出</blockquote>
 现在流片的芯片成本可不低啊，而且屯一段时间性能完全跟不上了那就得要重新选型和设计了
 
+
+*****
+
+####  karastar  
+##### 52#       发表于 2026-6-28 18:01
+
+推迟到2028可以接受吧，一年的性能差距应该没多少<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
