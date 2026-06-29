@@ -59,3 +59,20 @@
 
 还真没卡池。不过也还好吧，毕竟现在战女高这么多个池子了还出新人就太狠了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 2013#         楼主| 发表于 2026-6-29 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69846687&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2026-6-29 18:30</a>
+
+最后能肝10票出来，给0/2的AN麻驱理池子还是给1/2的咪咪池呢？
+
+联动太可爱了，麻驱理又是我冰系主力想抽个A ...</blockquote>
+俩赛艇ANSP都狠不错的。强度追下不吃亏。战女高主要是以后应该还有机会，我这次就是送的必得才出了多年抽不到的sadone<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">以后可能有自选买也说不定
+
+当然了，涉及下体问题只有自己弟弟才能回答<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+还有论坛姨妈了吗，这么卡的。
+
