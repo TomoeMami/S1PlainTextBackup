@@ -40,3 +40,14 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">st不就加个发型能要多少产能喔
 
+
+*****
+
+####  冰风血羽  
+##### 2011#       发表于 2026-6-29 18:30
+
+最后能肝10票出来，给0/2的AN麻驱理池子还是给1/2的咪咪池呢？
+联动太可爱了，麻驱理又是我冰系主力想抽个AN加强一下而且平时也不复刻，实在是纠结<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
