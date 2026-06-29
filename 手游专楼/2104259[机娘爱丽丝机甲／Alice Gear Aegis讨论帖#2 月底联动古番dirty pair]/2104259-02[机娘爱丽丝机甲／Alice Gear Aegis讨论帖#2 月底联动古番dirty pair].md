@@ -51,3 +51,11 @@
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  江戸前ルナ  
+##### 2012#         楼主| 发表于 2026-6-29 19:10
+
+还真没卡池。不过也还好吧，毕竟现在战女高这么多个池子了还出新人就太狠了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
