@@ -215,3 +215,16 @@ F90降防御才25%？太低了吧
 
 F90的强度基本全在戴夫身上了
 
+
+*****
+
+####  plok201  
+##### 4461#       发表于 2026-6-30 01:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69847316&amp;ptid=2071758" target="_blank">blue321 发表于 2026-6-29 23:23</a>
+
+F90降防御才25%？太低了吧</blockquote>
+预告的全是1级的，你谁来都是25%
+
+这次池子3个产物从强度来看各有各的优点，也不知道为啥其他社区全在看不起，又想起之前还有一群看不起王牌船的人<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

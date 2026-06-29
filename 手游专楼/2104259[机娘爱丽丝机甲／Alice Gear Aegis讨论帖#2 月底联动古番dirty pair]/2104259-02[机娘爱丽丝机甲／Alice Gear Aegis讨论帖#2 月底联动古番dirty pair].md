@@ -167,3 +167,15 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  madcow  
+##### 2015#       发表于 2026-6-30 01:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69847203&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2026-6-29 21:17</a>
+
+俩赛艇ANSP都狠不错的。强度追下不吃亏。战女高主要是以后应该还有机会，我这次就是送的必得才出了多年抽 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">两赛艇人，普通版我是有蓝的没红的。an版我是红的+3没蓝的。
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就很搞心态好吧
+
