@@ -295,3 +295,11 @@ zero的演技给这集加分太多了
 
 都41了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  godvim  
+##### 2011#       发表于 2026-6-29 09:18
+
+zero除了最后的怼脸特写外演的没毛病，就是这天意大手搞的观感很差……
+
