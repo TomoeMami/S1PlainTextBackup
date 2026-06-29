@@ -5598,3 +5598,54 @@ api是直接更新最新吧。</blockquote>
 
 api没更新吧，客户端倒是偶尔刷到新的思考过程
 
+
+*****
+
+####  wly5556  
+##### 1972#       发表于 2026-6-29 17:58
+
+<img src="https://img.stage1st.com/forum/202606/29/175754nbnvvngkvq2vi78v.jpg" referrerpolicy="no-referrer">
+
+<strong>temp_image3042335865461593496.jpg</strong> (316.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-29 17:57 上传
+
+*****
+
+####  张子虚  
+##### 1973#       发表于 2026-6-29 18:00
+
+刚收到邮件，7月中要出正式版了
+<blockquote>尊敬的 DeepSeek API 用户：
+您好！
+DeepSeek V4 正式版计划于 7 月中旬正式上线。本次版本更新将带来更多功能优化和性能提升，敬请期待！
+同时，为了更合理地配置资源、提升服务稳定性，正式版发布后将同步调整API定价策略，引入峰谷定价机制。具体调整如下：</blockquote>
+以及高峰期涨价到平时两倍
+
+
+*****
+
+####  Milarvoz  
+##### 1974#       发表于 2026-6-29 18:02
+
+那我知道我该什么时候干活了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qz66618  
+##### 1975#       发表于 2026-6-29 18:04
+
+<img src="https://img.stage1st.com/forum/202606/29/175640l8gm5gip1gmjlbl8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-29 17:56 上传
+
+DSv4正式版七月中旬上线，但是要有峰谷涨价机制，不知道是不是算力不足还是性能确实提升很大带来的自信<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
