@@ -228,3 +228,13 @@ F90降防御才25%？太低了吧</blockquote>
 
 这次池子3个产物从强度来看各有各的优点，也不知道为啥其他社区全在看不起，又想起之前还有一群看不起王牌船的人<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无念  
+##### 4462#       发表于 2026-6-30 02:43
+
+试验机的防御端基本上把坚牢最好的盾机拿完了，黄鸡又没有坚牢那么稀缺，现在只差能好用的三动五射红和二动爆破红了
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
