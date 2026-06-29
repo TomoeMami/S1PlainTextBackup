@@ -110,3 +110,11 @@ SNK: 什么狮鹫居然冠军?<img src="https://static.stage1st.com/image/smiley
 
 <img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">king和百合是不是早30年前就有废料啊？要不然怎会干如此费力不讨好的事情呢················
 
+
+*****
+
+####  ナルバレック  
+##### 754#       发表于 2026-6-29 16:57
+
+拳四郎有街机模式，只有联动EOST，没有普通EOST，刚打完，怎么说呢，剧情作为联动设计的略微强行了点，牌面还是给的非常足的
+
