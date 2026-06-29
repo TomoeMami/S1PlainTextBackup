@@ -3943,3 +3943,29 @@ ano唱歌真难听啊
 —— 来自 Xiaomi Redmi K20 Pro Premium ...</blockquote>
 没有。请当它不存在<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chdhdhd  
+##### 389#       发表于 2026-6-29 11:16
+
+<blockquote>pavelpetel 发表于 2026-6-29 02:47
+十分喜欢老板和原作，🍊的这两部看起来风格差别很大？有必要补么
+
+—— 来自 Xiaomi Redmi K20 Pro Premium ...</blockquote>
+不要看，不推荐
+
+单纯很不好看，即使第二部依然过于婆妈
+
+体验一句话总结:
+
+优点很少，毒点很多。像同人女拍出来的，单纯损害原作好印象
+
+大纲是近似原作的，但基本完全丢失灵魂
+
+如果只是看战斗场面，它也连当动作场面代餐都不合格
+
+第二季很多场面虽然更对应原作了，但基本都没有精彩到值得一看的地步
+
+只有一场对玩偶师还不错，其他都很一般。而且最重要的，和奈布斯打的战斗，全部都极其不好看
+
