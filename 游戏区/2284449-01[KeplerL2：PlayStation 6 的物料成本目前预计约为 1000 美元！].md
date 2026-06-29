@@ -745,3 +745,25 @@ PS5首发物料成本450，卖499，索尼的说法是初期小亏。
 
 现在存储太他妈贵了，我今天无意中刷到我5年前3K6买的4T 870EVO已经翻倍涨到9K RMB
 
+
+*****
+
+####  clyde-wang  
+##### 82#       发表于 2026-6-29 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69846670&amp;ptid=2284449" target="_blank">KyloRen 发表于 2026-6-29 18:27</a>
+
+现在PS5是649，PS5PRO是899，我估计会定个799这样的价格，拖到27年底或者28年初发售，初期限制下出货量，适 ...</blockquote>
+亏本卖主机卖的越多亏的越多，卖的不多没有装机量，除非AI崩盘，不然算力需求一直在。如果AI崩盘，我们不是考虑游戏机价格的时候了，是考虑别的生活成本的问题了
+
+
+*****
+
+####  clyde-wang  
+##### 82#       发表于 2026-6-29 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69846670&amp;ptid=2284449" target="_blank">KyloRen 发表于 2026-6-29 18:27</a>
+
+现在PS5是649，PS5PRO是899，我估计会定个799这样的价格，拖到27年底或者28年初发售，初期限制下出货量，适 ...</blockquote>
+亏本卖主机卖的越多亏的越多，卖的不多没有装机量，除非AI崩盘，不然算力需求一直在。如果AI崩盘，我们不是考虑游戏机价格的时候了，是考虑别的生活成本的问题了
+
