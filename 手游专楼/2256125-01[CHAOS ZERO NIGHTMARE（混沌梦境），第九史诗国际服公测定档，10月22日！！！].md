@@ -3774,3 +3774,36 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 
 —— 来自 realme RMX3800, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  windaria  
+##### 1092#       发表于 2026-6-29 16:13
+
+ 本帖最后由 windaria 于 2026-6-29 16:14 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69845826&amp;ptid=2256125" target="_blank">玉之龙 发表于 2026-6-29 15:26</a>
+
+有点想入坑，所以想求教一下漏油
+
+1.推荐入国服还是国际服，国际服的话能直连吗
+
+2.国服有立绘和谐吗，有和谐 ...</blockquote>
+你是想打牌还是玩二游，想打牌不如给杀戮尖塔打二次元mod，想玩二游的话，这个就是垃圾
+
+2.个别角色有和谐，有小开关
+
+3.角色数值养成相关的副本有自动战斗，每天的体力也不是很多，这方面花不了几分钟。刷存档的卡厄思可以开半自动，战斗是跳过的，事件手动选择，大概半小时吧
+
+*****
+
+####  玉之龙  
+##### 1093#       发表于 2026-6-29 18:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69846046&amp;ptid=2256125" target="_blank">windaria 发表于 2026-6-29 16:13</a>
+你是想打牌还是玩二游，想打牌不如给杀戮尖塔打二次元mod，想玩二游的话，这个就是垃圾
+
+2.个别角色有和谐 ...</blockquote>
+感谢解答，那我还是再观望观望8
+
+—— 来自 realme RMX3800, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
