@@ -525,10 +525,10 @@
     "totalreply": 7708,
     "title": "[《太吾绘卷》正式版讨论楼，9月21号发售，倒计时7天]",
     "newtitle": "[《太吾绘卷》正式版攻略交流讨论楼～历史削除制作组与精神时光屋武林高手们～]",
-    "lastedit": 1782724566,
+    "lastedit": 1782724860,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2094448": {
     "totalreply": 1544,
@@ -2235,10 +2235,10 @@
     "totalreply": 23959,
     "title": "[【绝区零】调率测试结束 咖啡馆 141718492]",
     "newtitle": "[绝区零 咖啡馆 交流群 141718492 更多情报 2024年公布]",
-    "lastedit": 1782722885,
+    "lastedit": 1782725160,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2043629": {
     "totalreply": 793,
@@ -5088,10 +5088,10 @@
     "totalreply": 42765,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》6.8 赛博朋克2076]",
-    "lastedit": 1782724449,
+    "lastedit": 1782725580,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1025935": {
     "totalreply": 2152,
@@ -5610,10 +5610,10 @@
     "totalreply": 18851,
     "title": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
-    "lastedit": 1782723729,
+    "lastedit": 1782725460,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2125110": {
     "totalreply": 3831,
@@ -9402,7 +9402,7 @@
     "lastedit": 1782724740,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2194780": {
     "totalreply": 453,
@@ -11181,10 +11181,10 @@
     "totalreply": 4455,
     "title": "[《SD高达G世纪Eternal》财团终于把G世纪做成课金手游了]",
     "newtitle": "[《SD高达G世纪永恒》 S1游戏讨论群：9314964]",
-    "lastedit": 1782724808,
+    "lastedit": 1782725040,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2249235": {
     "totalreply": 829,
@@ -11550,10 +11550,10 @@
     "totalreply": 754,
     "title": "[SNK 饿狼传说新作『饿狼传说 City of the Wolves』2025年4月24日发售]",
     "newtitle": "[SNK 饿狼传说新作『饿狼传说 City of the Wolves』2025年4月24日发售]",
-    "lastedit": 1782723730,
+    "lastedit": 1782724800,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2254600": {
     "totalreply": 1010,
@@ -12378,10 +12378,10 @@
     "totalreply": 16377,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼5月]",
-    "lastedit": 1782724327,
+    "lastedit": 1782724980,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2268807": {
     "totalreply": 512,
@@ -12576,10 +12576,10 @@
     "totalreply": 4751,
     "title": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
     "newtitle": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
-    "lastedit": 1782723968,
+    "lastedit": 1782725460,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2261856": {
     "totalreply": 574,
@@ -12666,10 +12666,10 @@
     "totalreply": 798,
     "title": "[2026中国火箭发射专楼]",
     "newtitle": "[2026中国航天专楼]",
-    "lastedit": 1782712808,
+    "lastedit": 1782725400,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2272652": {
     "totalreply": 500,
@@ -13197,10 +13197,10 @@
     "totalreply": 7574,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1782724566,
+    "lastedit": 1782725400,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2184952": {
     "totalreply": 322,
@@ -14359,15 +14359,6 @@
     "title": "[美国歌手Oliver Tree直升机坠毁遇难]",
     "newtitle": "[美国歌手Oliver Tree直升机坠毁遇难]",
     "lastedit": 1781534647,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2283481": {
-    "totalreply": 43,
-    "title": "[AI时代编程开发范式是不是只剩下两种了？]",
-    "newtitle": "[AI时代编程开发范式是不是只剩下两种了？]",
-    "lastedit": 1781515572,
     "category": "外野",
     "active": false,
     "update": false
@@ -17346,10 +17337,10 @@
     "totalreply": 183,
     "title": "[这惩罚也太轻了吧，岂不是下次还敢]",
     "newtitle": "[这惩罚也太轻了吧，岂不是下次还敢]",
-    "lastedit": 1782721925,
+    "lastedit": 1782725040,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2284315": {
     "totalreply": 298,
@@ -17832,10 +17823,10 @@
     "totalreply": 162,
     "title": "[我快被最近刷屏的“韩国黄金时代”模板小作文给笑坏了，究极回旋镖]",
     "newtitle": "[我快被最近刷屏的“韩国黄金时代”模板小作文给笑坏了，究极回旋镖]",
-    "lastedit": 1782722407,
+    "lastedit": 1782725100,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2276456": {
     "totalreply": 77,
@@ -17868,10 +17859,10 @@
     "totalreply": 142,
     "title": "[新京报微博“六问”点草某手游]",
     "newtitle": "[新京报微博“六问”点草某手游]",
-    "lastedit": 1782724930,
+    "lastedit": 1782725040,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2284426": {
     "totalreply": 43,
@@ -17940,10 +17931,10 @@
     "totalreply": 322,
     "title": "[《四渡》导演：不再神话领袖人物，不再矮化反面人物，此乃创作初衷]",
     "newtitle": "[《四渡》导演：不再神话领袖人物，不再矮化反面人物，此乃创作初衷]",
-    "lastedit": 1782724930,
+    "lastedit": 1782725160,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2284492": {
     "totalreply": 46,
@@ -17958,19 +17949,19 @@
     "totalreply": 78,
     "title": "[联合早报重磅评论：美国应该做一个善霸]",
     "newtitle": "[联合早报重磅评论：美国应该做一个善霸]",
-    "lastedit": 1782723368,
+    "lastedit": 1782725100,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2284464": {
     "totalreply": 74,
     "title": "[年纪大了，性好玩的早就已经不是那些按部就班的动作]",
     "newtitle": "[年纪大了，性好玩的早就已经不是那些按部就班的动作]",
-    "lastedit": 1782721689,
+    "lastedit": 1782725100,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2284499": {
     "totalreply": 54,
@@ -18030,10 +18021,10 @@
     "totalreply": 44,
     "title": "[今日的老钟，还在对日拉清单]",
     "newtitle": "[今日的老钟，还在对日拉清单]",
-    "lastedit": 1782724930,
+    "lastedit": 1782725040,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2284482": {
     "totalreply": 44,
