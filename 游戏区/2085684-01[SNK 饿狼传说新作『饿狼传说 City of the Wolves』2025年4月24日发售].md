@@ -94,3 +94,19 @@ SNK: 什么狮鹫居然冠军?<img src="https://static.stage1st.com/image/smiley
 
 龙虎3上STEAM了，加了KING和百合
 
+
+*****
+
+####  风夏  
+##### 752#       发表于 2026-6-29 13:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次直接上角色, 没有平衡调整吧? 两周时间备赛ewc, 不知道大家都会藏什么阴招
+
+
+*****
+
+####  渺小小  
+##### 753#       发表于 2026-6-29 13:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">king和百合是不是早30年前就有废料啊？要不然怎会干如此费力不讨好的事情呢················
+
