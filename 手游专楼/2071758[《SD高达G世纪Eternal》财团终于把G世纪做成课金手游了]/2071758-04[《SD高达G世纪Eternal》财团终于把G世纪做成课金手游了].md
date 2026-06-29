@@ -248,3 +248,11 @@ F90降防御才25%？太低了吧</blockquote>
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  yujie  
+##### 4464#       发表于 2026-6-30 05:36
+
+赶在结束前把塔打完了<img src="https://static.stage1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">还好大部分照抄作业就行
+
