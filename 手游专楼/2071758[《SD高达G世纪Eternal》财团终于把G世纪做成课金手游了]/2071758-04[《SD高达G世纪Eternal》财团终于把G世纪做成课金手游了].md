@@ -238,3 +238,13 @@ F90降防御才25%？太低了吧</blockquote>
 
 —— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  冰风血羽  
+##### 4463#       发表于 2026-6-30 05:09
+
+爬塔打到10层不想打了，动脑十几分钟一不小心送回家太烦人了
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
