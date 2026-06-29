@@ -3931,3 +3931,15 @@ ano唱歌真难听啊
 
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  有钱多买小人  
+##### 388#       发表于 2026-6-29 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69843175&amp;ptid=2076121" target="_blank">pavelpetel 发表于 2026-6-29 02:47</a>
+十分喜欢老板和原作，🍊的这两部看起来风格差别很大？有必要补么
+
+—— 来自 Xiaomi Redmi K20 Pro Premium ...</blockquote>
+没有。请当它不存在<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
