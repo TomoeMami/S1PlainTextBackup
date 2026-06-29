@@ -274,3 +274,24 @@
 
 突出一个何意味啊这集，确实有选几个关键点纯对应一周目的感觉了
 
+
+*****
+
+####  丹德里恩  
+##### 2009#       发表于 2026-6-29 09:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">比上次交超梦还要天意的一集，但凡nox多说一句话都不会打起来，就非要用这种蹩脚的理由复刻一周目跟灾厄打
+
+zero的演技给这集加分太多了
+
+*****
+
+####  饭冢武也  
+##### 2010#       发表于 2026-6-29 09:17
+
+这集太带货了
+
+信息量层面真就纯水
+
+都41了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
