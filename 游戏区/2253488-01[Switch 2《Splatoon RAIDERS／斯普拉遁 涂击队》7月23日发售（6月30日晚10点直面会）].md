@@ -1541,3 +1541,22 @@ epd的猛汉like，似乎没什么关卡设计，还是更偏向打工
 
 明显有英雄模式式的关卡 应该全部都融进来了
 
+
+*****
+
+####  lilod  
+##### 161#       发表于 2026-6-30 22:47
+
+联机很怪猎啊，所有人共享有限次命，死了就会消耗复活，没有互救
+
+
+*****
+
+####  Lisylfn  
+##### 162#       发表于 2026-6-30 22:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69720120&amp;ptid=2253488" target="_blank">kuarwbwe 发表于 2026-6-4 16:09</a>
+
+那估计是不行了，我刚填了我的转运地址试了一次还是不行。</blockquote>
+[https://www.bilibili.com/opus/923247011769090055](https://www.bilibili.com/opus/923247011769090055) 试试
+
