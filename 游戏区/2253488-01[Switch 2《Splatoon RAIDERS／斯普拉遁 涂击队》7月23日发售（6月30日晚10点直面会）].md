@@ -1750,3 +1750,36 @@ epd的猛汉like，似乎没什么关卡设计，还是更偏向打工
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  hl氏  
+##### 171#       发表于 2026-7-1 00:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等级越高威力越大，可能武器种类甚至没有正作这么全，就是比如隔了几级又来一把威力更大的新叶
+
+image.png
+(67.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 00:05 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/000521hp764ebc99gczyyb.png" referrerpolicy="no-referrer">
+
+image.png
+(328.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 00:06 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/000620s6fnea26zy2nzju2.png" referrerpolicy="no-referrer">
+
+*****
+
+####  墨染白泉  
+##### 172#       发表于 2026-7-1 00:11
+
+武器设计和美术还是一如既往的上分
+
