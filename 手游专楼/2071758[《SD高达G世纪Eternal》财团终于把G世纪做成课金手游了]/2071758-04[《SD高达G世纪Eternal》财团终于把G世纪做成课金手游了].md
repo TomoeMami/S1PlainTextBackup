@@ -428,3 +428,14 @@ X这作业抄起来太舒服了，简约美，每次临近死线都抄他的<img
 
 这开发F90II还能防御机换装成攻击机的，有意思
 
+
+*****
+
+####  电脑死机  
+##### 4484#       发表于 2026-6-30 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69851276&amp;ptid=2071758" target="_blank">ixtli 发表于 2026-6-30 16:11</a>
+
+这开发F90II还能防御机换装成攻击机的，有意思</blockquote>
+强袭和脉冲哭晕在厕所了
+

@@ -149,3 +149,19 @@ OLB本体终突前蛮菜的，季限也都一言难尽。这是麻辣占模吗<i
 我感觉还是可以相信新P想赚钱的强烈欲望的...泳装八成会掏一张光团超级倍卡出来 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">造一个配合欧罗巴的职业不就行了，顺便适配辉耀武器
 
+
+*****
+
+####  milky658  
+##### 18313#       发表于 2026-6-30 17:02
+
+水属性一筋入坑一眼就相中了OLB，季限立绘都太棒了，没钱补季限就整了个角色歌星花皮（虽然心中人设从第一印象的清纯美神变成肉食系抽象痴女了）。好想在RELINK玩OLB<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202606/30/170207lz0qxrnxrpmyoltk.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>a2075ef0a97b473022c92e0b9ae11299.jpeg</strong> (120.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 17:02 上传
+
