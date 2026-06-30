@@ -348,3 +348,13 @@ X这作业抄起来太舒服了，简约美，每次临近死线都抄他的<img
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  一个陆仁贾  
+##### 4475#       发表于 2026-6-30 13:06
+
+三个十连除了船都出了
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
