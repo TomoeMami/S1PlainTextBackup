@@ -3807,3 +3807,18 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 
 —— 来自 realme RMX3800, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qixinno1  
+##### 1094#       发表于 2026-6-29 18:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想玩就直接入坑玩 现在是强无敌的限定角色市长池子 观望就直接错过了不如直接不玩
+
+*****
+
+####  伊布桑  
+##### 1095#       发表于 2026-6-30 11:22
+
+相对来说这段时间确实是最好的入坑时期，有免费70普池和市长<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
