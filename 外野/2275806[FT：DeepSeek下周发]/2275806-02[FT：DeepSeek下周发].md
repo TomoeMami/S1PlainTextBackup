@@ -5791,3 +5791,13 @@ ds敢这么做应该还是有凭据的吧
 豆包不管搜索内容读没读对，好歹它真搜过，gemini现在是打死都不调用搜索功能，而且世界知识不知道为啥退 ...</blockquote>
 gemini被削过好几次了，上上周都还能直接分析GitHub源代码的，上周中开始就直接不允许了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  舞以  
+##### 1992#       发表于 2026-6-30 19:27
+
+这次涨价之后的性能表现，决定梁圣之名能不能续费😈😈😈
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
