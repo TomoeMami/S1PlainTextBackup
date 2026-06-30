@@ -5753,3 +5753,21 @@ ds敢这么做应该还是有凭据的吧
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  舞以  
+##### 1988#       发表于 2026-6-30 09:22
+
+正式版就能打平glm-5.2的话，这代的基模感觉潜力还是有的。
+
+*****
+
+####  ymm1030  
+##### 1989#       发表于 2026-6-30 09:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69848789&amp;ptid=2275806" target="_blank">舞以 发表于 2026-6-30 09:22</a>
+
+正式版就能打平glm-5.2的话，这代的基模感觉潜力还是有的。</blockquote>
+你这话说的，旮旯给木5.2用的是v3.2的基模，并且明确表示要转向v4的基模，并且说这是他们通向肥波5级别的路径。基模这块不用怀疑。
+
