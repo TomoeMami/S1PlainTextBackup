@@ -3822,3 +3822,16 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 
 相对来说这段时间确实是最好的入坑时期，有免费70普池和市长<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊布桑  
+##### 1096#       发表于 2026-6-30 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69850413&amp;ptid=2256125" target="_blank">玉之龙 发表于 2026-6-30 13:28</a>
+
+还是打算入坑了，但在入坑之前，想再求教一下：全女队能玩得舒服吗
+
+回复舒不舒服就行，攻略到时候我自己找 ...</blockquote>
+大部分情况没问题，这游戏甚至有刷空档的情况，也就是一张卡都不带就单纯来凑麻将桌的
+
