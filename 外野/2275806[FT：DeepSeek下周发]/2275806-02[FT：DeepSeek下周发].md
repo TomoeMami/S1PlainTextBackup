@@ -5781,3 +5781,13 @@ ds敢这么做应该还是有凭据的吧
 
 用平时和高峰双倍，和用平时和闲时打半折感官上有什么区别
 
+
+*****
+
+####  mp5  
+##### 1991#       发表于 2026-6-30 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69833659&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-6-26 14:54</a>
+豆包不管搜索内容读没读对，好歹它真搜过，gemini现在是打死都不调用搜索功能，而且世界知识不知道为啥退 ...</blockquote>
+gemini被削过好几次了，上上周都还能直接分析GitHub源代码的，上周中开始就直接不允许了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
