@@ -117,3 +117,31 @@
 
 等等看别的主角带来的队员们吧，这个主角的队员肯定是人设最无聊的小队。
 
+
+*****
+
+####  卢迪克  
+##### 1056#       发表于 2026-6-30 14:09
+
+不如p5x 
+
+<img src="https://img.stage1st.com/forum/202606/30/140948xgdd3iwdlgzsfwwk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 14:09 上传
+
+*****
+
+####  DarkDawn  
+##### 1057#       发表于 2026-6-30 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69850528&amp;ptid=2261859" target="_blank">天涯夹心人 发表于 2026-6-30 13:58</a>
+
+等等看别的主角带来的队员们吧，这个主角的队员肯定是人设最无聊的小队。 ...</blockquote>
+我觉得女王那边可能更……
+
+身后两个大叔（老红老绿）就不行
+
