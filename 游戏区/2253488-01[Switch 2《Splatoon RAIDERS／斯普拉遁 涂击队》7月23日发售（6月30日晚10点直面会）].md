@@ -1669,3 +1669,84 @@ epd的猛汉like，似乎没什么关卡设计，还是更偏向打工
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  carroy  
+##### 169#       发表于 2026-6-30 23:56
+
+ 本帖最后由 carroy 于 2026-6-30 23:58 编辑 
+
+<img src="https://img.stage1st.com/forum/202606/30/234701tqww9aia43tqif4z.png" referrerpolicy="no-referrer">
+
+<strong>FS}(IX_A`N$]TPVYE3VJK6G.png</strong> (76.23 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 23:47 上传
+
+<img src="https://img.stage1st.com/forum/202606/30/234701rxie9je90kdkdvp1.png" referrerpolicy="no-referrer">
+
+<strong>P277{XBYY@`HODFX8T~(RUE.png</strong> (58.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 23:47 上传
+
+<img src="https://img.stage1st.com/forum/202606/30/234701ulq02qcuvqllc2vd.png" referrerpolicy="no-referrer">
+
+<strong>`PF}PHC8UICM)GH~WC7RZLY.png</strong> (98.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 23:47 上传
+
+メガ盛りタワー/粗挽きテッパン/厚切りタンシオ
+
+好饿的取名这下真三文鱼了
+
+<img src="https://img.stage1st.com/forum/202606/30/235037zj7iibijbyjjdhjw.png" referrerpolicy="no-referrer">
+
+<strong>C93%IH(1Y1TS]~LXH`JOI79.png</strong> (45.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 23:50 上传
+
+<img src="https://img.stage1st.com/forum/202606/30/235037tfm5gpzgp5p2mshp.png" referrerpolicy="no-referrer">
+
+<strong>6GWV6I(40@`M@B8W3[NKWI1.png</strong> (47 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 23:50 上传
+
+合成的是！空腹之像
+
+<img src="https://img.stage1st.com/forum/202606/30/235037n4uf410u910rf4az.png" referrerpolicy="no-referrer">
+
+<strong>AFQLJ42EUR1OAP__J~HQX0G.png</strong> (12.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 23:50 上传
+
+<img src="https://img.stage1st.com/forum/202606/30/235037pooa99igzv7m9ap6.png" referrerpolicy="no-referrer">
+
+<strong>%HGNG7JO8HP(NR{Q6{F~89Y.png</strong> (59.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 23:50 上传
+
+辣味战斗和煮锅助手
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 170#       发表于 2026-7-1 00:00
+
+我很好奇pv里说的100种以上的武器是怎么算的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">难不成还有贴牌？但是又没有副武器和大招的设定，不知道是按照什么来分
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
