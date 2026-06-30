@@ -1597,3 +1597,75 @@ epd的猛汉like，似乎没什么关卡设计，还是更偏向打工
 
 通过这两张图 能看出来地图不算小
 
+
+*****
+
+####  ParukiaMKII  
+##### 165#       发表于 2026-6-30 23:30
+
+不知道耐玩度如何
+
+*****
+
+####  gorogoro  
+##### 166#       发表于 2026-6-30 23:30
+
+联机只有救援吗，有没有随机匹配
+
+
+*****
+
+####  shirolin  
+##### 167#       发表于 2026-6-30 23:33
+
+<img src="https://img.stage1st.com/forum/202606/30/233306jfnrin88hg32g3zh.jpg" referrerpolicy="no-referrer">
+
+<strong>20260630_225736.jpg</strong> (658.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 23:33 上传
+
+<img src="https://img.stage1st.com/forum/202606/30/233306sn1cc00su1z8cr81.jpg" referrerpolicy="no-referrer">
+
+<strong>10ba7237-ea34-41b8-98a8-36317e7ea4db.jpg</strong> (112.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 23:33 上传
+
+<img src="https://img.stage1st.com/forum/202606/30/233306v3phx499m53nty6m.png" referrerpolicy="no-referrer">
+
+<strong>Image_1782830309230.png</strong> (556.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 23:33 上传
+
+<img src="https://img.stage1st.com/forum/202606/30/233306cj93fwxj2u7j3jfr.png" referrerpolicy="no-referrer">
+
+<strong>Image_1782830312363.png</strong> (569.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 23:33 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  shirolin  
+##### 168#       发表于 2026-6-30 23:33
+
+垃圾游戏鱿
+
+<img src="https://img.stage1st.com/forum/202606/30/233332s81181t3kkumyssm.jpg" referrerpolicy="no-referrer">
+
+<strong>20260630_231301.jpg</strong> (423.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 23:33 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
