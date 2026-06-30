@@ -447,3 +447,31 @@ X这作业抄起来太舒服了，简约美，每次临近死线都抄他的<img
 
 别急，等一个红露娜脉冲
 
+
+*****
+
+####  Abomination  
+##### 4486#       发表于 2026-6-30 23:00
+
+有限定船就想抽，不过之前没有抽过什么试作机UR(只有水星红机)，想着只要抽这池不就可以有红有黄机试作机UR了嘛。
+
+结果160抽才出红F91，F90没出过，两蓝F91，还歪了3部非up的，想着搞不好要300抽换船时180抽出了ur船和红F91，最后多抽20换了F90收工<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202606/30/225406abf21z22m1yyol6u.png" referrerpolicy="no-referrer">
+
+<strong>MuMu-20260630-215618-096.png</strong> (1.07 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 22:54 上传
+
+<img src="https://img.stage1st.com/forum/202606/30/225407etzm5533qahc35bl.png" referrerpolicy="no-referrer">
+
+<strong>MuMu-20260630-215737-721.png</strong> (1.07 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 22:54 上传
+
+之后查了一下新出的SSR蓝机师是有进攻援护条件是F91系列，可以用蓝F91还行
+

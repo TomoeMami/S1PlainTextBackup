@@ -1560,3 +1560,40 @@ epd的猛汉like，似乎没什么关卡设计，还是更偏向打工
 那估计是不行了，我刚填了我的转运地址试了一次还是不行。</blockquote>
 [https://www.bilibili.com/opus/923247011769090055](https://www.bilibili.com/opus/923247011769090055) 试试
 
+
+*****
+
+####  天堂大法  
+##### 163#       发表于 2026-6-30 22:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷宝游戏是对的。这作能刷的东西真不少，能爽刷一阵了
+
+*****
+
+####  freedom12  
+##### 164#       发表于 2026-6-30 22:59
+
+地表：独特设计的关卡
+
+地底：随机生成的关卡
+
+设施：类似神庙的挑战关卡
+
+<img src="https://img.stage1st.com/forum/202606/30/225847ufjpqzzepzueuqpp.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3725.PNG</strong> (2.95 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 22:58 上传
+
+<img src="https://img.stage1st.com/forum/202606/30/225846pp70h57jz92m59ep.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3726.PNG</strong> (2.25 MB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 22:58 上传
+
+通过这两张图 能看出来地图不算小
+
