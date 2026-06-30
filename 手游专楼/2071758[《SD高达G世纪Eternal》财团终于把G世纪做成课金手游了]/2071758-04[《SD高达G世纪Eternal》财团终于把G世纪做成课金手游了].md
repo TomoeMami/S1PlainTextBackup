@@ -266,3 +266,14 @@ X这作业抄起来太舒服了，简约美，每次临近死线都抄他的<img
 
 —— 來自 realme RMX5200, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  blue321  
+##### 4466#       发表于 2026-6-30 11:31
+
+100抽2ur，还都是f91标的盾f91
+气到了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
