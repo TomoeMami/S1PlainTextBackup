@@ -368,3 +368,16 @@
 纹学家对四个主角的分析
 [https://www.bilibili.com/video/B ... bf58510f14e1da721fc](https://www.bilibili.com/video/BV1Hg7e6LErX/?spm_id_from=333.337.search-card.all.click&amp;vd_source=440488d8e6990bf58510f14e1da721fc)
 
+
+*****
+
+####  血狂毘沙门  
+##### 1085#       发表于 2026-7-1 07:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69850874&amp;ptid=2261859" target="_blank">会长辅佐 发表于 2026-6-30 15:06</a>
+
+我就想知道这群人会不会和3房一样有几年后的版本。</blockquote>
+应该不会有 至少不会那么大时间跨度
+
+三房的“几年后”对剧情没有任何正向作用
+
