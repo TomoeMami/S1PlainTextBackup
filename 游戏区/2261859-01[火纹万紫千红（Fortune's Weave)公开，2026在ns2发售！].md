@@ -241,3 +241,23 @@
 
 说实话眼镜娘这么看比第一个pv里稍微好一点点
 
+
+*****
+
+####  王元姬无惨  
+##### 1070#       发表于 2026-6-30 15:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69851118&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-6-30 15:44</a>
+所以呢？三房发售后人设评价变好了吗？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有 但是霸铠队出击
+这次柯南女王太黑了估计够呛有亲卫队
+
+*****
+
+####  milky658  
+##### 1071#       发表于 2026-6-30 15:58
+
+ 本帖最后由 milky658 于 2026-6-30 15:59 编辑 
+
+第一个PV里，眼睛妹我都以为是穿越到异世界的JK，风格格格不入的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
