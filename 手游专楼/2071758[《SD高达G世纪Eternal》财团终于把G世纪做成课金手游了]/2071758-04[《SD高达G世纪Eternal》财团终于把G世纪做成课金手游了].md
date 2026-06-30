@@ -256,3 +256,13 @@ F90降防御才25%？太低了吧</blockquote>
 
 赶在结束前把塔打完了<img src="https://static.stage1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">还好大部分照抄作业就行
 
+
+*****
+
+####  琉歌  
+##### 4465#       发表于 2026-6-30 09:53
+
+X这作业抄起来太舒服了，简约美，每次临近死线都抄他的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 來自 realme RMX5200, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
