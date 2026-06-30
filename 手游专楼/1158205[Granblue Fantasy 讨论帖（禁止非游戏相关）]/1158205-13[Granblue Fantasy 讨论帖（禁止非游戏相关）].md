@@ -80,3 +80,16 @@ OLB本体终突前蛮菜的，季限也都一言难尽。这是麻辣占模吗<i
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  DDWarrior  
+##### 18310#       发表于 2026-6-30 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69851380&amp;ptid=1158205" target="_blank">cnmyster1ous 发表于 2026-6-30 16:31</a>
+
+换个属性都原谅她了
+
+光现在是真的急需补强，在高难以外的场合已经烂得不能再烂了，而马上就是光团，这样 ...</blockquote>
+我感觉还是可以相信新P想赚钱的强烈欲望的...泳装八成会掏一张光团超级倍卡出来
+
