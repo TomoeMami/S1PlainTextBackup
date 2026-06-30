@@ -300,3 +300,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">王语嫣?
 
+
+*****
+
+####  发呆的龙虾  
+##### 1077#       发表于 2026-6-30 17:09
+
+嗯给鸡是俗，四房子是土，各有各的特点。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
