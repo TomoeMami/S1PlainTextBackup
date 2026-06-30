@@ -93,3 +93,59 @@ OLB本体终突前蛮菜的，季限也都一言难尽。这是麻辣占模吗<i
 光现在是真的急需补强，在高难以外的场合已经烂得不能再烂了，而马上就是光团，这样 ...</blockquote>
 我感觉还是可以相信新P想赚钱的强烈欲望的...泳装八成会掏一张光团超级倍卡出来
 
+
+*****
+
+####  yuuka  
+##### 18311#       发表于 2026-6-30 16:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">区就区了吧，老婆只要负责美貌就行了（虽然突破前那张我是欣赏不来），活有的是其他马仔干。
+
+<img src="https://img.stage1st.com/forum/202606/30/164737r280q60rr62x8302.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20260630164640.png</strong> (64.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 16:47 上传
+
+<img src="https://img.stage1st.com/forum/202606/30/164738g4ecnevqd0kqn0ej.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20260630113845.png</strong> (523.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 16:47 上传
+
+<img src="https://img.stage1st.com/forum/202606/30/164738eqh3av77ymuydrfu.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20260630111010.png</strong> (422.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 16:47 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 洛克萨斯 + 2太对了
+
+查看全部评分
+
+
+*****
+
+####  洛克萨斯  
+##### 18312#       发表于 2026-6-30 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69851418&amp;ptid=1158205" target="_blank">DDWarrior 发表于 2026-6-30 16:38</a>
+
+我感觉还是可以相信新P想赚钱的强烈欲望的...泳装八成会掏一张光团超级倍卡出来 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">造一个配合欧罗巴的职业不就行了，顺便适配辉耀武器
+
