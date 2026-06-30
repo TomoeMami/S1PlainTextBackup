@@ -1328,3 +1328,21 @@ IP也注意一下，这个应该不影响下单但感觉影响风控，至少日
 
 他这个末世荒岛风格感觉跟本篇衣服没什么关系了，对我来说确实是失去了最大的魅力
 
+
+*****
+
+####  绿冰  
+##### 136#         楼主| 发表于 2026-6-30 22:00
+
+直面会开始
+
+—— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  duraa  
+##### 137#       发表于 2026-6-30 22:05
+
+玩法看着好像打工，不爱玩打工模式的感觉可以走了<img src="https://static.stage1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
