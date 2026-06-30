@@ -318,3 +318,11 @@
 
 建模还是不错的吧，有一个能看就行<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  二十二颗牛油果  
+##### 1079#       发表于 2026-6-30 18:02
+
+感觉目前公布的女角色立绘里安娜最好看
+
