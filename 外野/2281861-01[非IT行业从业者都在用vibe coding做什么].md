@@ -327,3 +327,14 @@ cad插件，计算表啥的
 每天消耗1-3块的话一个月得四五十了</blockquote>
 有周末的啊，有工作不忙的时候
 
+
+*****
+
+####  相参降解社畜  
+##### 42#       发表于 2026-6-30 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69851158&amp;ptid=2281861" target="_blank">zhongjie 发表于 2026-6-30 15:51</a>
+
+拆包+封包+汉化一键完成吗，期待中</blockquote>
+一键是一键不了的......还是要人工处理很多问题
+
