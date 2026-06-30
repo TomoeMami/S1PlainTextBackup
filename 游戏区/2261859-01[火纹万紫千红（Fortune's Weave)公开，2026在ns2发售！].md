@@ -334,3 +334,13 @@
 
 初始职业是咒术师，黑白魔双修
 
+
+*****
+
+####  57042711  
+##### 1081#       发表于 2026-6-30 18:58
+
+衣服不行可以靠自由转职拯救吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
