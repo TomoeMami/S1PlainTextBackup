@@ -1860,3 +1860,13 @@ image.png
 
 打折买个玩玩，首发问了一圈以前一起打喷喷的人没人感兴趣<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，都是真格大手子
 
+
+*****
+
+####  martinoy  
+##### 180#       发表于 2026-7-1 05:57
+
+感觉玩法挺多的，变成格斗游戏了
+
+— from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
