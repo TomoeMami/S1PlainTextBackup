@@ -1457,3 +1457,79 @@ epd的猛汉like，似乎没什么关卡设计，还是更偏向打工
 
 就是个地图更大而且不限制武器装备打工模式吧
 
+
+*****
+
+####  蓝色暴鲤龙  
+##### 152#       发表于 2026-6-30 22:28
+
+要的就是刷刷刷，好比生化危机突击模式我能玩300小时，但佣兵模式最多10小时
+
+*****
+
+####  shirolin  
+##### 153#       发表于 2026-6-30 22:29
+
+感觉不够肝，目测最多99级，太小看肝帝了。
+
+<img src="https://img.stage1st.com/forum/202606/30/222922mfylnn1k2snmrrkm.png" referrerpolicy="no-referrer">
+
+<strong>Image_1782829498458.png</strong> (82.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-6-30 22:29 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  绿冰  
+##### 154#         楼主| 发表于 2026-6-30 22:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69852885&amp;ptid=2253488" target="_blank">shirolin 发表于 2026-6-30 22:29</a>
+感觉不够肝，目测最多99级，太小看肝帝了。</blockquote>
+这个可能反过来，后面变成低等级通关挑战
+
+—— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  落油Я  
+##### 155#       发表于 2026-6-30 22:31
+
+内容多的话估计能爽刷，但任天堂不会这么大方，要么就是跟DLC的内容73甚至64开
+
+—— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  墨染白泉  
+##### 156#       发表于 2026-6-30 22:33
+
+我当怪猎来玩了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lilod  
+##### 157#       发表于 2026-6-30 22:33
+
+从树屋的演示看，是有关卡设计的，不过不知道有多复杂了
+
+
+*****
+
+####  星野航  
+##### 158#       发表于 2026-6-30 22:35
+
+可以，感觉能刷刷一阵了
+
+这个美术设定集啥时候出，想要<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  满满一大杯  
+##### 159#       发表于 2026-6-30 22:35
+
+单机打工好啊，终于等到了，地图比我预期的种类多（ 还附送几关英雄模式，满足了。希望耐刷。
+
