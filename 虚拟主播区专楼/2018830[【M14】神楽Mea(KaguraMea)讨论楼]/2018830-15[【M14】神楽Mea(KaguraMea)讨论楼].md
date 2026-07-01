@@ -4640,3 +4640,11 @@ Aruki酱，谢谢。“阿宅我太幸福了，见到神乐めあ，啊，见到
 今年ltk期间吗</blockquote>
 去年吧，去年ltk2的打野是owo，感觉没啥不对劲的啊，而去年ltk结束以后也时不时一起玩，也没什么感觉到不对劲的
 
+
+*****
+
+####  thisisaspider  
+##### 20988#       发表于 2026-7-1 20:38
+
+等一个东京巨蛋<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
