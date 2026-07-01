@@ -116,3 +116,11 @@
 
 什么非卖品 , 赶紧联系任天堂弄成amiibo啊<img src="https://static.stage1st.com/image/smiley/carton2017/241.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  P-link  
+##### 1947#       发表于 2026-7-1 15:59
+
+你MONO不卖诺鹏不卖光焰公仔，十分过分了啊。
+

@@ -3973,3 +3973,15 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 怎么存成出击的点数？</blockquote>
 点那个脑子一样的理智，直接把体力换理智
 
+
+*****
+
+####  orangee  
+##### 1108#       发表于 2026-7-1 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69856023&amp;ptid=2256125" target="_blank">wthall 发表于 2026-7-1 15:14</a>
+怎么存成出击的点数？</blockquote>
+这次更新以后可以在出击里面点那个脑子图标，60体力转一个，不过别忘记每周一会回复三个，别存爆了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
