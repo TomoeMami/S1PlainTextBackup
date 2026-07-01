@@ -22,3 +22,13 @@ IP真死的时候会有人说赛人娘继承了她的技术</blockquote>
 
 【【APP终止服务通知】Tokyo 7th シスターズ 制作人来信-哔哩哔哩】 https://b23.tv/yF5MgdN
 
+
+*****
+
+####  伊布桑  
+##### 838#         楼主| 发表于 2026-7-1 22:31
+
+东京七姐妹没玩过，但是歌很好听（虽然独爱karakuri那几首）
+
+ip的歌除了sfy以外的识别度还是太低了<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
