@@ -1885,3 +1885,14 @@ image.png
 
 正作应该65种武器，double一下130种
 
+
+*****
+
+####  kuarwbwe  
+##### 182#       发表于 2026-7-1 08:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69852963&amp;ptid=2253488" target="_blank">Lisylfn 发表于 2026-6-30 22:55</a>
+
+https://www.bilibili.com/opus/923247011769090055 试试这个日亚改数字地址</blockquote>
+太感谢了，解决了。
+
