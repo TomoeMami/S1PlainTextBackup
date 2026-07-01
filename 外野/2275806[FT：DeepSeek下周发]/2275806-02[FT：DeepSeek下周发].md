@@ -6099,3 +6099,13 @@ token出海属于国家战略了，怎么可能控制，扩建吧
 
 2026-7-1 13:23 上传
 
+
+*****
+
+####  此誓的守望  
+##### 2019#       发表于 2026-7-1 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69855500&amp;ptid=2275806" target="_blank">svmkty 发表于 2026-7-1 13:23</a>
+说起来这个🐋娘形象到底是官方出的还是民间同人？</blockquote>
+某脑的ds杂谈区大手子跑的，每天都发的，还有glm哈基米小克gpt其实都有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
