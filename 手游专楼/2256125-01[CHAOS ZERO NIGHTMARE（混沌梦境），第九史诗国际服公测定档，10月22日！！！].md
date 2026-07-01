@@ -3908,3 +3908,31 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 
 真给我搞晕了。
 
+
+*****
+
+####  西瓜不甜不甜  
+##### 1103#       发表于 2026-6-30 22:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69852668&amp;ptid=2256125" target="_blank">西瓜不甜不甜 发表于 2026-6-30 21:28</a>
+吐个槽，这游戏的闪光翻译真的好难理解，玩了一个月终于搞明白了。
+
+独特闪光、普通闪光、神闪，这是三个完 ...</blockquote>
+但是游戏里独特闪光跟普通增益又是同一个特效。然后神之增益又有自己的特效？？
+
+真给我搞晕了。
+
+*****
+
+####  wthall  
+##### 1104#       发表于 2026-7-1 09:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69852755&amp;ptid=2256125" target="_blank">西瓜不甜不甜 发表于 2026-6-30 22:01</a>
+
+但是游戏里独特闪光跟普通增益又是同一个特效。然后神之增益又有自己的特效？？
+
+真给我搞晕了。 ...</blockquote>
+我的理解是普通闪光有2次，一次从现有牌闪出新牌来，当回合0费，另外一个是现有独有卡牌闪光改变效果，神神会在改变效果基础上面加上这个神的特有buff，比如减费，比如给debuff之类。
+
+因为神闪会增加pt，所以有时候不要追求神闪
+
