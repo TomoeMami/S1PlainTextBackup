@@ -5953,3 +5953,14 @@ a/表示不需要通报，我们偷偷的就已经把名单收集了<img src="ht
 就那点API费用真属于白嫖系列了……</blockquote>
 官方定价肯定不会赔钱的，不是马上要涨价了吗
 
+
+*****
+
+####  ymm1030  
+##### 2008#       发表于 2026-7-1 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69854235&amp;ptid=2275806" target="_blank">飛霞精灵 发表于 2026-7-1 10:02</a>
+
+就那点API费用真属于白嫖系列了……</blockquote>
+这个api费用中量使用下来其实蛮多的，我glm的coding plan一个月才40多，蹬ds蹬了100.
+
