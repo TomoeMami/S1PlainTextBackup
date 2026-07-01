@@ -2020,3 +2020,15 @@ fami通的试玩比树屋强，可以看看。
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  hl氏  
+##### 190#       发表于 2026-7-1 15:50
+
+[https://youtu.be/81MIqFjIIv0?si=yYxszq9thDp1S5bs](https://youtu.be/81MIqFjIIv0?si=yYxszq9thDp1S5bs)
+
+fami试玩一来就用了鱿鱼滚行，知道是熟手玩的一下舒服了
+
+画面来说我感觉少了点油腻感，舒服很多
+
