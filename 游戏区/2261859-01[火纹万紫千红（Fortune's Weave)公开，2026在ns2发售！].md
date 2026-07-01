@@ -475,3 +475,14 @@
 巴西初音嘛，第一个pv就露过头像的</blockquote>
 pv1里记得只能看到盖一层黑影的巴西初音，现在原色展现的头像没什么问题算安心了
 
+
+*****
+
+####  巴尔干炮  
+##### 1097#       发表于 2026-7-1 20:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69855729&amp;ptid=2261859" target="_blank">北条早苗 发表于 2026-7-1 14:13</a>
+
+阿鲁卡多这边的法师长得也太丑了</blockquote>
+一看就是地底人，应该是卧底，未来要搞事。
+

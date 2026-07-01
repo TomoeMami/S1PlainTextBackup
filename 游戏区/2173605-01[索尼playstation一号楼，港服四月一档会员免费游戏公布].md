@@ -522,3 +522,14 @@ psv ps3商店也要关了
 由手机上传
 2026-7-1 20:17 上传
 
+
+*****
+
+####  ナルバレック  
+##### 744#       发表于 2026-7-1 20:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69857446&amp;ptid=2173605" target="_blank">黑猫软 发表于 2026-7-1 20:17</a>
+
+psv ps3商店也要关了</blockquote>
+三年前就说要关，然后被冲了，胆子小没关
+
