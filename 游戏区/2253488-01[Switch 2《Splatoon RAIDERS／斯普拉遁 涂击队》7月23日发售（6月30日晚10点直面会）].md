@@ -1896,3 +1896,22 @@ image.png
 https://www.bilibili.com/opus/923247011769090055 试试这个日亚改数字地址</blockquote>
 太感谢了，解决了。
 
+
+*****
+
+####  shirolin  
+##### 183#       发表于 2026-7-1 08:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69853210&amp;ptid=2253488" target="_blank">墨染白泉 发表于 2026-7-1 00:21</a>
+感觉建模变魅了</blockquote>
+
+<img src="https://img.stage1st.com/forum/202607/01/085943ngy5mrn7gg7ir7yp.jpg" referrerpolicy="no-referrer">
+
+<strong>20260630_232314.jpg</strong> (56.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 08:59 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
