@@ -633,3 +633,31 @@ sony真是要把自己玩死了
 由手机上传
 2026-7-1 23:41 上传
 
+
+*****
+
+####  SergeGlenn  
+##### 755#       发表于 2026-7-2 06:58
+
+13年前，实体份额还是90%，数字还只占10%
+
+https://www.youtube.com/watch?v=kWSIFh8ICaA
+
+“这就像离婚后回顾婚礼录像”太草了
+
+<img src="https://img.stage1st.com/forum/202607/02/065557qsuskp1umbuoukk6.png" referrerpolicy="no-referrer">
+
+<strong>1000009878.png</strong> (52.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-2 06:55 上传
+
+<img src="https://img.stage1st.com/forum/202607/02/065557q917svvb9mohmxlv.jpg" referrerpolicy="no-referrer">
+
+<strong>1000009879.jpg</strong> (198.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-2 06:55 上传
+
