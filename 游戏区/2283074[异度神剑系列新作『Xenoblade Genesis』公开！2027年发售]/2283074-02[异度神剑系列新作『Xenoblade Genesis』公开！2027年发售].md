@@ -23,3 +23,39 @@
 
 怎么感觉是薯ki薯ki改的
 
+
+*****
+
+####  Zachary_hK  
+##### 1936#       发表于 2026-7-1 11:25
+
+不管是不是薯ki改的，做了不卖还晒给大家看，该罚<img src="https://static.stage1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ArthurDent  
+##### 1937#       发表于 2026-7-1 11:28
+
+我受不了了，这mono真该死吧<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  richardkisser  
+##### 1938#       发表于 2026-7-1 11:30
+
+讲真，这要做成商品就是买家秀卖家秀了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  maomaoying  
+##### 1939#       发表于 2026-7-1 11:31
+
+我就说你看光焰这待遇真是高桥亲女儿吧，高桥不做xb2-2plus的原因仅仅是想创新
+
