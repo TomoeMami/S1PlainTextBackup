@@ -494,3 +494,17 @@ X这作业抄起来太舒服了，简约美，每次临近死线都抄他的<img
 如果不空降UR的G世纪原创，感觉这个季度都能囤</blockquote>
 下个限定就给你比吉娜・罗纳的UR+原创骑士姐姐<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 4489#       发表于 2026-7-2 02:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69850479&amp;ptid=2071758" target="_blank">裂空之龙 发表于 2026-6-30 13:46</a>
+同，主要感觉塔这活动数值卡得人恶心，新入坑机不够人不齐动不动剩个血皮很让人烦躁
+
+不过看着高层那比较 ...</blockquote>
+这次就当不存在吧，下次复刻再拿了
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
