@@ -3936,3 +3936,14 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 
 因为神闪会增加pt，所以有时候不要追求神闪
 
+
+*****
+
+####  wthall  
+##### 1105#       发表于 2026-7-1 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69839166&amp;ptid=2256125" target="_blank">orangee 发表于 2026-6-27 22:45</a>
+
+每天体力没用就存成出击点数，就当一天开一把尖塔玩了</blockquote>
+怎么存成出击的点数？
+
