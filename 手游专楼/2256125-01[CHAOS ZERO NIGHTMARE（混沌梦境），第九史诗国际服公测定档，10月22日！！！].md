@@ -3985,3 +3985,18 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  西瓜不甜不甜  
+##### 1109#       发表于 2026-7-1 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69856127&amp;ptid=2256125" target="_blank">御姐控之耻 发表于 2026-7-1 15:32</a>
+
+没那么复杂吧，按国服翻译
+
+闪光特效分两种：卡牌闪光和神之闪光</blockquote>
+卧槽，不对啊这游戏....
+
+独特闪光和普通闪光是冲突的！？我点了普通闪光还把原来独特闪光的卡面效果给覆盖掉了，变成了基础卡面+增益。傻眼了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
