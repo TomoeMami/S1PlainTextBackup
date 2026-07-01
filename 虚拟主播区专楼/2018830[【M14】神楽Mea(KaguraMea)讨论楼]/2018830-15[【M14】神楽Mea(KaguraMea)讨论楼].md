@@ -4590,3 +4590,17 @@ Aruki酱，谢谢。“阿宅我太幸福了，见到神乐めあ，啊，见到
 
 一点码都没有估计是运营/马内那边的照片
 
+
+*****
+
+####  sino__unnko3  
+##### 20984#       发表于 2026-7-1 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69853067&amp;ptid=2018830" target="_blank">术士q 发表于 2026-6-30 23:30</a>
+听到会限里mea聊到live的话题时顿时感觉有些五味杂陈，然后她也仍然就在这。
+
+回想起来，mea这八年绝非风平 ...</blockquote>
+话音未落,一条暗线有了新进展:
+和owo时隔多年再次一起播
+两个人的关系有待考证和重新评估
+
