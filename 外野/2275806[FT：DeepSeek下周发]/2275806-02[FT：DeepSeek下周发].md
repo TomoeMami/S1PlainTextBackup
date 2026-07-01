@@ -5999,3 +5999,15 @@ token出海属于国家战略了，怎么可能控制，扩建吧
 
 现在偶尔roll出来的奇特思维链，到底是加了系统提示词还是灰度模型在测试？比原先的思维链快不少
 
+
+*****
+
+####  金轮法王  
+##### 2012#       发表于 2026-7-1 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69854627&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-1 10:51</a>
+现在偶尔roll出来的奇特思维链，到底是加了系统提示词还是灰度模型在测试？比原先的思维链快不少 ...</blockquote>
+现在改用dspark了，速度快了，不过体感编码能力降了点。输出稍有不同应该也是dspark的影响
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
