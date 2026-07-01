@@ -6198,3 +6198,26 @@ how,哪里看啊    Re:Source</blockquote>
 
 按照之前测试版和正式版的差距，效果肯定是有明显提升的，3.2exp和正式版差距都不小，能改掉不稳定的输出就是最好的，现在有些生产场景没法用
 
+
+*****
+
+####  居于月上伊莫库  
+##### 2029#       发表于 2026-7-1 17:36
+
+ 本帖最后由 居于月上伊莫库 于 2026-7-1 17:37 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69855365&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-7-1 12:51</a>
+按互联网的惯例不是直接一脚踢成梁÷吗</blockquote>
+梁圣
+（←现在在这里）
+梁哥
+
+梁子
+
+梁嗨
+
+梁出/苟
+
+风评随时可调<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">。
+
+—— 来自 realme RMX5010, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
