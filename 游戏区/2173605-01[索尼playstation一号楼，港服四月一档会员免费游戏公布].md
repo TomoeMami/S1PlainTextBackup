@@ -594,3 +594,14 @@ sony真是要把自己玩死了
 
 目测SIE会被冲一波
 
+
+*****
+
+####  哈罗  
+##### 752#       发表于 2026-7-1 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69857788&amp;ptid=2173605" target="_blank">SergeGlenn 发表于 2026-7-1 21:08</a>
+
+不只是国内，很多国家比如奥村巴西，你买一手实体盘的价格相比数字是能找到很明显的折扣的，所以取消实体会 ...</blockquote>
+就是看不上这少数群体的营收才全数字的，哪怕损失这20%的营收，全数字的利润至少提升30%，微软当年被喷死的drm，索尼现在就轻描淡写的发篇博客，更进一步宰客，还是过得太舒服了
+
