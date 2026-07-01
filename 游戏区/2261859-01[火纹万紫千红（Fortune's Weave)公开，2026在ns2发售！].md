@@ -420,3 +420,11 @@
 
 说不定是霍比特人。
 
+
+*****
+
+####  otakun  
+##### 1091#       发表于 2026-7-1 09:48
+
+网上有人看到眼睛妹爷爷是军事就说是不是烈火之剑主角<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，好像火纹每次出现军事描述就会有人提烈火之剑。
+
