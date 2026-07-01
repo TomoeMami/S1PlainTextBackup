@@ -6221,3 +6221,16 @@ how,哪里看啊    Re:Source</blockquote>
 
 —— 来自 realme RMX5010, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  chuchoselph  
+##### 2030#       发表于 2026-7-1 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69854188&amp;ptid=2275806" target="_blank">飛霞精灵 发表于 2026-7-1 09:55</a>
+
+要么控制一下国外IP或者收费吧。
+
+这个蹬法，别说资源了，电力费用都是让鬼佬白嫖的。 ...</blockquote>
+哥们儿，真实的使用数据比啥都值钱，美国佬喜欢蹬就让他们蹬，都是好事<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
