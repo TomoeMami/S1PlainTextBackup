@@ -1870,3 +1870,18 @@ image.png
 
 — from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  freedom12  
+##### 181#       发表于 2026-7-1 08:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69853157&amp;ptid=2253488" target="_blank">Kiyohara_Yasuke 发表于 2026-7-1 00:00</a>
+
+我很好奇pv里说的100种以上的武器是怎么算的难不成还有贴牌？但是又没有副武器和大招的设定，不知道是按照 ...</blockquote>
+看树屋应该是每把武器有两种
+
+原始武器 和 涂机队变种
+
+正作应该65种武器，double一下130种
+
