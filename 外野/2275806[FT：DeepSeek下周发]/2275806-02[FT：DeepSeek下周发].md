@@ -6248,3 +6248,299 @@ how,哪里看啊    Re:Source</blockquote>
 
 — from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  那一年的河川  
+##### 2032#       发表于 2026-7-1 20:57
+
+<img src="https://img.stage1st.com/forum/202607/01/205222e45sk7m5j5ek1zke.png" referrerpolicy="no-referrer">
+
+<strong>C7C6680D051AFC86FADA04EA61C2FB77.png</strong> (531.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205223phkekk8ehzogkhsc.png" referrerpolicy="no-referrer">
+
+<strong>ChatGPT_Image_2026427_16_09_17-1.png</strong> (1.39 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205224enymwu1p8mbd4wtr.png" referrerpolicy="no-referrer">
+
+<strong>ChatGPT_Image_2026616_17_46_15.png</strong> (1.56 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205224i32u3x79q6375q2b.png" referrerpolicy="no-referrer">
+
+<strong>ChatGPT_Image_2026616_16_00_21.png</strong> (1.55 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205226btuuy5pp3e3y6er5.png" referrerpolicy="no-referrer">
+
+<strong>ChatGPT_Image_2026616_14_59_56.png</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205227r33ala5o2seops5l.png" referrerpolicy="no-referrer">
+
+<strong>213123124.png</strong> (1.97 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205228spdop11pzqqvqcf6.png" referrerpolicy="no-referrer">
+
+<strong>ChatGPT_Image_2026615_15_13_13.png</strong> (1.57 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205229p6vuyvce8uuuyyhc.png" referrerpolicy="no-referrer">
+
+<strong>ChatGPT_Image_2026614_17_40_59.png</strong> (1.72 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205231vsvhalnln7h7x8xz.png" referrerpolicy="no-referrer">
+
+<strong>ChatGPT_Image_2026614_12_16_36.png</strong> (1.63 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205232u926tdde8hzhttz2.png" referrerpolicy="no-referrer">
+
+<strong>ChatGPT_Image_2026612_20_50_05.png</strong> (2.08 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205232n1t351rydaca3a8e.png" referrerpolicy="no-referrer">
+
+<strong>ChatGPT_Image_2026611_12_25_59.png</strong> (1.66 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205234zhx0se7nbn7nckc6.png" referrerpolicy="no-referrer">
+
+<strong>97aa9d88-306a-4d7b-b085-316f0b15f4d3.png</strong> (1.97 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205233yg7z82a7q788yan2.jpg" referrerpolicy="no-referrer">
+
+<strong>7988bdc8fd361b141f98469270b7c556.jpg</strong> (214.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205235i1wccpdw5qjhj3se.png" referrerpolicy="no-referrer">
+
+<strong>Image_1777610337951_836.png</strong> (1.88 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205234cqeqzjecimj0ki4q.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1777107650481.jpg</strong> (259.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205237s78i7s6700661vr6.png" referrerpolicy="no-referrer">
+
+<strong>Image_1777481107498_196.png</strong> (2.17 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205238hg4zxm8eprtjm3f3.png" referrerpolicy="no-referrer">
+
+<strong>3dcab588-b26d-4adf-abf2-00ed22044da2.png</strong> (1.48 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205238yrmm6pcan5kt5xmn.png" referrerpolicy="no-referrer">
+
+<strong>20a38c41-b093-4c55-94fb-d7d6ffd4f55b.png</strong> (1.72 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205239obb5hjgsh7wb7dqe.png" referrerpolicy="no-referrer">
+
+<strong>file_000000005454722fb75a57740436878f.png</strong> (1.26 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205241rldglr5l15pxixgx.png" referrerpolicy="no-referrer">
+
+<strong>file_00000000e37071fd8accb9b66e89b7de.png</strong> (1.56 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205241weyknkl9kl6redry.png" referrerpolicy="no-referrer">
+
+<strong>file_00000000b85071fb914726cb59027289.png</strong> (1.42 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205242lemkxxibf49geume.png" referrerpolicy="no-referrer">
+
+<strong>2026-05-26_22-37-1.png</strong> (1.61 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205245ius2q2yssz2jzqei.png" referrerpolicy="no-referrer">
+
+<strong>178072384847111.png</strong> (1.96 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205245i43cz5zjb45t43cf.png" referrerpolicy="no-referrer">
+
+<strong>ChatGPT_Image_2026526_23_26_44.png</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205246rv7xz515pv3eaprp.png" referrerpolicy="no-referrer">
+
+<strong>ChatGPT_Image_2026525_23_02_38.png</strong> (1.79 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205247mu0860dsvppzdmp8.png" referrerpolicy="no-referrer">
+
+<strong>c3149ec0-c2d5-4c3d-b329-f5b85aed13d5.png</strong> (1.4 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205250lmiu7jjz38cx3zv3.png" referrerpolicy="no-referrer">
+
+<strong>bYaJQPp7c5xm_ryP54w1V_1152x2048_20260620_000952_raw.png</strong> (3.2 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205247p8kaw9huivzeovm9.jpg" referrerpolicy="no-referrer">
+
+<strong>173488A7141059ADD243BEC7C265A930.jpg</strong> (91.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205251pxrzybvr4xb7oyb7.png" referrerpolicy="no-referrer">
+
+<strong>1cc81589-840b-454b-8c12-c9c997c5dc6a.png</strong> (2.01 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205251cvtmxhljkbvx3hvv.png" referrerpolicy="no-referrer">
+
+<strong>ChatGPT_Image_2026619_00_25_29.png</strong> (1.37 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205252fcyyzweb3stztyy3.png" referrerpolicy="no-referrer">
+
+<strong>1782122013494.png</strong> (1.22 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205253guphlqqwqxt3rwtq.png" referrerpolicy="no-referrer">
+
+<strong>file_0000000046dc71fbbbff6ff5bedf0315.png</strong> (1.93 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205556fvm10top0udm09po.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1779856574722.jpg</strong> (373.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:55 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205559ssfm1uyanubhu4yf.png" referrerpolicy="no-referrer">
+
+<strong>ChatGPT_Image_2026527_20_26_59.png</strong> (2.07 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:55 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205559qfzb00bw9z3ty0i0.png" referrerpolicy="no-referrer">
+
+<strong>ChatGPT_Image_2026530_23_43_13.png</strong> (2.43 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:55 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/205702bxt3uef3l1ywx3ii.jpg" referrerpolicy="no-referrer">
+
+<strong>Generated_Image_May_09_2026_-_4_14AM.jpg</strong> (665.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 20:57 上传
+
+索性把DS杂谈区跑的鲸鱼图都放出来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
