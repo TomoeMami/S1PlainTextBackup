@@ -5964,3 +5964,16 @@ a/表示不需要通报，我们偷偷的就已经把名单收集了<img src="ht
 就那点API费用真属于白嫖系列了……</blockquote>
 这个api费用中量使用下来其实蛮多的，我glm的coding plan一个月才40多，蹬ds蹬了100.
 
+
+*****
+
+####  绝地潜兵  
+##### 2009#       发表于 2026-7-1 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69854188&amp;ptid=2275806" target="_blank">飛霞精灵 发表于 2026-7-1 09:55</a>
+
+要么控制一下国外IP或者收费吧。
+
+这个蹬法，别说资源了，电力费用都是让鬼佬白嫖的。 ...</blockquote>
+token出海属于国家战略了，怎么可能控制，扩建吧
+
