@@ -4000,3 +4000,17 @@ xm是不是又发狂了，之前用的好好的uu又连不上了<img src="https:
 
 独特闪光和普通闪光是冲突的！？我点了普通闪光还把原来独特闪光的卡面效果给覆盖掉了，变成了基础卡面+增益。傻眼了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊布桑  
+##### 1110#       发表于 2026-7-2 00:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69858523&amp;ptid=2256125" target="_blank">西瓜不甜不甜 发表于 2026-7-1 23:46</a>
+卧槽，不对啊这游戏....
+
+独特闪光和普通闪光是冲突的！？我点了普通闪光还把原来独特闪光的卡面效果给覆 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实是你一开始理解错了
+你可以理解为一张卡的所有一般闪和五张独特闪全在一个混池里，灵光一闪的时候会在这个混池里抽3张让你选（估计有保底机制，至少有一个是独特的）。这俩自然是不会叠加出现的。
+神闪是在上面混池抽完后，再增加一个效果。也就是说有可能是一般闪+神闪，或者独特闪+神闪。
+
