@@ -6035,3 +6035,35 @@ token出海属于国家战略了，怎么可能控制，扩建吧
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  nxmonitor  
+##### 2015#       发表于 2026-7-1 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69854776&amp;ptid=2275806" target="_blank">金轮法王 发表于 2026-7-1 11:11</a>
+
+现在改用dspark了，速度快了，不过体感编码能力降了点。输出稍有不同应该也是dspark的影响
+
+—— 来自 Xi ...</blockquote>
+那是优化的吐字的速度，我说的是新格式思维链，比原来的简洁不少
+
+*****
+
+####  overflowal  
+##### 2016#       发表于 2026-7-1 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69854776&amp;ptid=2275806" target="_blank">金轮法王 发表于 2026-7-1 11:11</a>
+现在改用dspark了，速度快了，不过体感编码能力降了点。输出稍有不同应该也是dspark的影响
+
+—— 来自 Xi ...</blockquote>
+投机解码不会降低性能，也不会对输出有什么影响。
+而且这玩意他们5月初就上了。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  nxmonitor  
+##### 2017#       发表于 2026-7-1 13:09
+
+国模先指望梁总步子迈得小一点，别先被斩杀了才好呢，V4F已经斩得七七八八了，这还是V4P后训练很拉的情况
+
