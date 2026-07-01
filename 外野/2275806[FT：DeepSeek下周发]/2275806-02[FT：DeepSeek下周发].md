@@ -6023,3 +6023,15 @@ token出海属于国家战略了，怎么可能控制，扩建吧
 —— 来自 HUAWEI SGU-AL10,  ...</blockquote>
 按互联网的惯例不是直接一脚踢成梁÷吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  云卷花开  
+##### 2014#       发表于 2026-7-1 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69855365&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-7-1 12:51</a>
+按互联网的惯例不是直接一脚踢成梁÷吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">在国模（或者所有开源模型）全等着梁文锋喂饭这个大前提下想降成畜位是有点难
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
