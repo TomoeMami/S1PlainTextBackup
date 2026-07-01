@@ -4648,3 +4648,11 @@ Aruki酱，谢谢。“阿宅我太幸福了，见到神乐めあ，啊，见到
 
 等一个东京巨蛋<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古战场亡魂  
+##### 20989#       发表于 2026-7-2 00:15
+
+有生之年能看到mea的发条和球女，球女居然打的还行。
+
