@@ -483,3 +483,14 @@ X这作业抄起来太舒服了，简约美，每次临近死线都抄他的<img
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">如果不空降UR的G世纪原创，感觉这个季度都能囤
 
+
+*****
+
+####  Xekueins  
+##### 4488#       发表于 2026-7-1 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69854219&amp;ptid=2071758" target="_blank">西人 发表于 2026-7-1 10:00</a>
+
+如果不空降UR的G世纪原创，感觉这个季度都能囤</blockquote>
+下个限定就给你比吉娜・罗纳的UR+原创骑士姐姐<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
