@@ -616,3 +616,20 @@ sony真是要把自己玩死了
 不只是国内，很多国家比如奥村巴西，你买一手实体盘的价格相比数字是能找到很明显的折扣的，所以取消实体会 ...</blockquote>
 这些用户总不见得会去买Xbox吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就无所谓咯
 
+
+*****
+
+####  黑猫软  
+##### 754#       发表于 2026-7-1 23:41
+
+7月会面
+
+<img src="https://img.stage1st.com/forum/202607/01/234113tx6ba72c2ux7d2zb.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1782920330068_18.jpg</strong> (130.08 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-7-1 23:41 上传
+
