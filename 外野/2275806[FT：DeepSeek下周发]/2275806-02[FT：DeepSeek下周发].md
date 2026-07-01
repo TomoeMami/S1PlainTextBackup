@@ -6117,3 +6117,16 @@ token出海属于国家战略了，怎么可能控制，扩建吧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">七月中旬居然要涨价了，不知道效率能不能有提升
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2021#       发表于 2026-7-1 14:51
+
+ 本帖最后由 半江瑟瑟半江红 于 2026-7-1 14:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69855500&amp;ptid=2275806" target="_blank">svmkty 发表于 2026-7-1 13:23</a>
+说起来这个🐋娘形象到底是官方出的还是民间同人？</blockquote>
+当然是民间的，好像是image2跑出来的？另外d指导认不出来这是它自己娘化
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
