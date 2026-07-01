@@ -6544,3 +6544,17 @@ how,哪里看啊    Re:Source</blockquote>
 
 索性把DS杂谈区跑的鲸鱼图都放出来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杀人鲸  
+##### 2033#       发表于 2026-7-1 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69857722&amp;ptid=2275806" target="_blank">那一年的河川 发表于 2026-7-1 20:57</a>
+索性把DS杂谈区跑的鲸鱼图都放出来了
+
+ ...</blockquote>
+哇塞，是好文明，很可爱。顺便也看到了不少在其他地方看到的图片。所以说到底是什么地方最早生成出来的呢？虽然有一些图右下角有水印就是了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
