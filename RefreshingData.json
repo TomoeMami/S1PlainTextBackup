@@ -9240,7 +9240,7 @@
     "lastedit": 1782895440,
     "category": "手游战斗",
     "active": true,
-    "update": true
+    "update": false
   },
   "2192962": {
     "totalreply": 16028,
@@ -9402,7 +9402,7 @@
     "lastedit": 1782895260,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2194780": {
     "totalreply": 453,
@@ -9501,7 +9501,7 @@
     "lastedit": 1782894900,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2195783": {
     "totalreply": 511,
@@ -12381,7 +12381,7 @@
     "lastedit": 1782895140,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2268807": {
     "totalreply": 512,
@@ -12393,13 +12393,13 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 40128,
+    "totalreply": 40132,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1782895140,
+    "lastedit": 1782896074,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2218875": {
     "totalreply": 1458,
@@ -14017,15 +14017,6 @@
     "title": "[辛格坡继续破防哈气]",
     "newtitle": "[辛格坡继续破防哈气]",
     "lastedit": 1781975166,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2283469": {
-    "totalreply": 143,
-    "title": "[小米邹师傅谈某大模型重新出山]",
-    "newtitle": "[小米邹师傅谈某大模型重新出山]",
-    "lastedit": 1781686088,
     "category": "外野",
     "active": false,
     "update": false
@@ -17343,13 +17334,13 @@
     "update": false
   },
   "2284518": {
-    "totalreply": 518,
+    "totalreply": 519,
     "title": "[《四渡》导演：不再神话领袖人物，不再矮化反面人物，此乃创作初衷]",
     "newtitle": "[《四渡》导演：不再神话领袖人物，不再矮化反面人物，此乃创作初衷]",
-    "lastedit": 1782895020,
+    "lastedit": 1782896069,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284492": {
     "totalreply": 46,
@@ -17469,13 +17460,13 @@
     "update": false
   },
   "2284545": {
-    "totalreply": 156,
+    "totalreply": 157,
     "title": "[现在的老钟，有能力对日本四岛执行彻底的海上封锁吗？]",
     "newtitle": "[现在的老钟，有能力对日本四岛执行彻底的海上封锁吗？]",
-    "lastedit": 1782895140,
+    "lastedit": 1782896066,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284532": {
     "totalreply": 42,
@@ -17820,13 +17811,13 @@
     "update": false
   },
   "2284655": {
-    "totalreply": 157,
+    "totalreply": 158,
     "title": "[这几个小学生也太狠了，活烧狗]",
     "newtitle": "[这几个小学生也太狠了，活烧狗]",
-    "lastedit": 1782895200,
+    "lastedit": 1782896140,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284639": {
     "totalreply": 85,
@@ -17835,7 +17826,7 @@
     "lastedit": 1782895140,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2280699": {
     "totalreply": 97,
@@ -17910,10 +17901,10 @@
     "update": false
   },
   "2284682": {
-    "totalreply": 186,
+    "totalreply": 187,
     "title": "[皇汉（明粉）现在太疯狂了，动不动就给人抬旗]",
     "newtitle": "[皇汉（明粉）现在太疯狂了，动不动就给人抬旗]",
-    "lastedit": 1782894270,
+    "lastedit": 1782896065,
     "category": "外野",
     "active": true,
     "update": false
@@ -17934,7 +17925,7 @@
     "lastedit": 1782895260,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2282471": {
     "totalreply": 105,
@@ -17961,7 +17952,7 @@
     "lastedit": 1782895080,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284688": {
     "totalreply": 51,
@@ -18021,7 +18012,7 @@
     "totalreply": 65,
     "title": "[万斯：东大在AI领域既不想输米国但也不想赢..]",
     "newtitle": "[万斯：东大在AI领域既不想输米国但也不想赢..]",
-    "lastedit": 1782895097,
+    "lastedit": 1782895500,
     "category": "外野",
     "active": true,
     "update": false
@@ -18036,13 +18027,13 @@
     "update": false
   },
   "2284681": {
-    "totalreply": 52,
+    "totalreply": 54,
     "title": "[中东砖楼 2026年7月版]",
     "newtitle": "[中东砖楼 2026年7月版]",
-    "lastedit": 1782895260,
+    "lastedit": 1782896066,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284684": {
     "totalreply": 41,
