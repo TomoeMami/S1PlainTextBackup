@@ -6234,3 +6234,17 @@ how,哪里看啊    Re:Source</blockquote>
 这个蹬法，别说资源了，电力费用都是让鬼佬白嫖的。 ...</blockquote>
 哥们儿，真实的使用数据比啥都值钱，美国佬喜欢蹬就让他们蹬，都是好事<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 2031#       发表于 2026-7-1 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69856741&amp;ptid=2275806" target="_blank">居于月上伊莫库 发表于 2026-7-1 17:36</a>
+梁圣
+（←现在在这里）
+梁哥</blockquote>
+开源情况下好歹\位是不可选的吧
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
