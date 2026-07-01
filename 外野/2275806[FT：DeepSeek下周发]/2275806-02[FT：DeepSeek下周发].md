@@ -5977,3 +5977,17 @@ a/表示不需要通报，我们偷偷的就已经把名单收集了<img src="ht
 这个蹬法，别说资源了，电力费用都是让鬼佬白嫖的。 ...</blockquote>
 token出海属于国家战略了，怎么可能控制，扩建吧
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2010#       发表于 2026-7-1 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69853708&amp;ptid=2275806" target="_blank">体制 发表于 2026-7-1 08:29</a>
+输出不稳定不是因为美国人偷偷用狂消耗算力？这帮美奸助力中国ai发展，建议报A/通通枪毙。
+
+—— 来自 鹅 ...</blockquote>
+主要是缺乏后训练，降智归降智，输出不稳定归输出不稳定
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
