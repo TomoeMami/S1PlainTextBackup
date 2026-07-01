@@ -6130,3 +6130,22 @@ token出海属于国家战略了，怎么可能控制，扩建吧
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nxmonitor  
+##### 2022#       发表于 2026-7-1 16:05
+
+看到了疑似灰度的效果，在编码上Flash可能就能赶上现在的Pro
+
+
+*****
+
+####  wandeeees  
+##### 2023#       发表于 2026-7-1 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69856334&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-1 16:05</a>
+
+看到了疑似灰度的效果，在编码上Flash可能就能赶上现在的Pro</blockquote>
+flash都那么强，那pro得多强啊<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
