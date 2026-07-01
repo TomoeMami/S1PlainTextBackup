@@ -6067,3 +6067,35 @@ token出海属于国家战略了，怎么可能控制，扩建吧
 
 国模先指望梁总步子迈得小一点，别先被斩杀了才好呢，V4F已经斩得七七八八了，这还是V4P后训练很拉的情况
 
+
+*****
+
+####  svmkty  
+##### 2018#       发表于 2026-7-1 13:23
+
+说起来这个🐋娘形象到底是官方出的还是民间同人？
+
+<img src="https://img.stage1st.com/forum/202607/01/132346llcpltzalmlxlctp.jpg" referrerpolicy="no-referrer">
+
+<strong>5A10FDA86CC4AFA4A633473DADCB4C6B.jpg</strong> (376.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 13:23 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/132346rqiqqbd2zzyqjqhf.jpg" referrerpolicy="no-referrer">
+
+<strong>426720B4C04FBB3890E1A90B83D35ADD.jpg</strong> (120.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 13:23 上传
+
+<img src="https://img.stage1st.com/forum/202607/01/132346vwx4idsp2ee8dge0.jpg" referrerpolicy="no-referrer">
+
+<strong>F13A07858A86CE516B0EC18C81011060.jpg</strong> (213.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-1 13:23 上传
+
