@@ -4629,3 +4629,14 @@ Aruki酱，谢谢。“阿宅我太幸福了，见到神乐めあ，啊，见到
 感觉具体关系怎么样也不重要吧，毕竟再怎么样也只是推测而已，既不一定是事实也不产生什么影响，至少我感 ...</blockquote>
 今年ltk期间吗
 
+
+*****
+
+####  术士q  
+##### 20987#       发表于 2026-7-1 19:50
+
+ 本帖最后由 术士q 于 2026-7-1 19:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69857333&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2026-7-1 19:43</a>
+今年ltk期间吗</blockquote>
+去年吧，去年ltk2的打野是owo，感觉没啥不对劲的啊，而去年ltk结束以后也时不时一起玩，也没什么感觉到不对劲的
+
