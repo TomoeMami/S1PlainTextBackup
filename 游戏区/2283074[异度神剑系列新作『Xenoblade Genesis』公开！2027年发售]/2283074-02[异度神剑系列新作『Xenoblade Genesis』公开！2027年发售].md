@@ -124,3 +124,15 @@
 
 你MONO不卖诺鹏不卖光焰公仔，十分过分了啊。
 
+
+*****
+
+####  UltramanPain  
+##### 1948#       发表于 2026-7-1 19:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69854929&amp;ptid=2283074" target="_blank">maomaoying 发表于 2026-7-1 11:31</a>
+我就说你看光焰这待遇真是高桥亲女儿吧，高桥不做xb2-2plus的原因仅仅是想创新 ...</blockquote>
+嵯峨空哉好像说过焰是他们未出生的孩子
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
