@@ -5919,3 +5919,37 @@ a/表示不需要通报，我们偷偷的就已经把名单收集了<img src="ht
 网页端的在线搜索功能炸了，现在全都是提示联网功能无法使用。
 搜索行为似乎也有变动，现在会尝试多种不同的搜索关键词组合进行重复搜索。
 
+
+*****
+
+####  午夜钓者  
+##### 2005#       发表于 2026-7-1 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69854188&amp;ptid=2275806" target="_blank">飛霞精灵 发表于 2026-7-1 09:55</a>
+
+要么控制一下国外IP或者收费吧。
+
+这个蹬法，别说资源了，电力费用都是让鬼佬白嫖的。 ...</blockquote>
+不都用api吗，怎么还白嫖了
+
+*****
+
+####  飛霞精灵  
+##### 2006#       发表于 2026-7-1 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69854230&amp;ptid=2275806" target="_blank">午夜钓者 发表于 2026-7-1 10:01</a>
+
+不都用api吗，怎么还白嫖了</blockquote>
+就那点API费用真属于白嫖系列了……
+
+
+*****
+
+####  午夜钓者  
+##### 2007#       发表于 2026-7-1 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69854235&amp;ptid=2275806" target="_blank">飛霞精灵 发表于 2026-7-1 10:02</a>
+
+就那点API费用真属于白嫖系列了……</blockquote>
+官方定价肯定不会赔钱的，不是马上要涨价了吗
+

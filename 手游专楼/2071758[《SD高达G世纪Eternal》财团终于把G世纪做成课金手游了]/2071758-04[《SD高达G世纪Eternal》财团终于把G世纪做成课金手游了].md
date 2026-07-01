@@ -475,3 +475,11 @@ X这作业抄起来太舒服了，简约美，每次临近死线都抄他的<img
 
 之后查了一下新出的SSR蓝机师是有进攻援护条件是F91系列，可以用蓝F91还行
 
+
+*****
+
+####  西人  
+##### 4487#       发表于 2026-7-1 10:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">如果不空降UR的G世纪原创，感觉这个季度都能囤
+
