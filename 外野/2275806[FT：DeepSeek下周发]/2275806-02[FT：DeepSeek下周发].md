@@ -6149,3 +6149,52 @@ token出海属于国家战略了，怎么可能控制，扩建吧
 看到了疑似灰度的效果，在编码上Flash可能就能赶上现在的Pro</blockquote>
 flash都那么强，那pro得多强啊<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  overflowal  
+##### 2024#       发表于 2026-7-1 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69856334&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-1 16:05</a>
+看到了疑似灰度的效果，在编码上Flash可能就能赶上现在的Pro</blockquote>
+how,哪里看啊<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  overflowal  
+##### 2025#       发表于 2026-7-1 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69856382&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-7-1 16:13</a>
+flash都那么强，那pro得多强啊</blockquote>
+不如说现在pro太undertrained了，很多benchmark跟flash拉不开差距。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  ymm1030  
+##### 2026#       发表于 2026-7-1 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69856429&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-1 16:20</a>
+
+how,哪里看啊    Re:Source</blockquote>
+网页能随机到灰度。一般都是让写个前端小游戏试试水。
+
+*****
+
+####  nxmonitor  
+##### 2027#       发表于 2026-7-1 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69856429&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-1 16:20</a>
+
+how,哪里看啊    Re:Source</blockquote>
+知乎上有个叫“如何看待6月16日DeepSeek网页端/App中的“快速模式”思维链发生明显变化？”的问题，第一个疑似是抽到灰度API了。不过也说不好，本来上下限就差别大，真的是抽风了呢。
+
+
+*****
+
+####  nxmonitor  
+##### 2028#       发表于 2026-7-1 16:24
+
+ 本帖最后由 nxmonitor 于 2026-7-1 16:26 编辑 
+
+按照之前测试版和正式版的差距，效果肯定是有明显提升的，3.2exp和正式版差距都不小，能改掉不稳定的输出就是最好的，现在有些生产场景没法用
+
