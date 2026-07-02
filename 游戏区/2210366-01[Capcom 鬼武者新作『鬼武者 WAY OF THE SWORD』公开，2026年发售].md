@@ -65,3 +65,11 @@
 
 这是好事儿啊，打完鬼武者可以打火纹或控制。
 
+
+*****
+
+####  红魔馆的糖  
+##### 656#       发表于 2026-7-2 10:35
+
+今年想玩的都堆到一个九月去了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
