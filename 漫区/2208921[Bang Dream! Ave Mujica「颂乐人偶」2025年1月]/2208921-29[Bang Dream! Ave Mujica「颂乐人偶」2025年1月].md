@@ -48,3 +48,37 @@
 
        [https://x.com/miyaji_maseiya/status/2072669115853254860](https://x.com/miyaji_maseiya/status/2072669115853254860)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41947#       发表于 2026-7-2 22:18
+
+       
+
+<img src="https://img.stage1st.com/forum/202607/02/221827ve0up1rwfhxzer0r.png" referrerpolicy="no-referrer">
+
+<strong>2026-07-02_22-16-55.png</strong> (1.35 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-2 22:18 上传
+
+       [https://x.com/pupa_ludere/status/2072609517519667341](https://x.com/pupa_ludere/status/2072609517519667341)
+
+       [https://cof-xr.co.jp/avemujica/](https://cof-xr.co.jp/avemujica/)
+
+       
+
+<img src="https://img.stage1st.com/forum/202607/02/221826k8kh6p55t71cbiy7.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-07-02_22-17-49.jpg</strong> (460.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-2 22:18 上传
+
+       [https://x.com/pupa_ludere/status/2072609687565189138](https://x.com/pupa_ludere/status/2072609687565189138)
+
+       [https://cof-xr.co.jp/avemujica/](https://cof-xr.co.jp/avemujica/)
+
