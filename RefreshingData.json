@@ -11489,7 +11489,7 @@
     "newtitle": "[《瑞克和莫蒂》第9季回归！]",
     "lastedit": 1782723968,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2253702": {
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 16594,
+    "totalreply": 16595,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼7月]",
-    "lastedit": 1782982954,
+    "lastedit": 1782983670,
     "category": "外野",
     "active": true,
     "update": false
@@ -12393,13 +12393,13 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 40223,
+    "totalreply": 40225,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1782982860,
+    "lastedit": 1782983293,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2218875": {
     "totalreply": 1465,
@@ -12573,13 +12573,13 @@
     "update": false
   },
   "2271276": {
-    "totalreply": 5043,
+    "totalreply": 5044,
     "title": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
     "newtitle": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
-    "lastedit": 1782983040,
+    "lastedit": 1782983293,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2261856": {
     "totalreply": 574,
@@ -12951,10 +12951,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 2034,
+    "totalreply": 2035,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[FT：DeepSeek下周发｜已发，转为v4讨论楼]",
-    "lastedit": 1782983002,
+    "lastedit": 1782983661,
     "category": "外野",
     "active": true,
     "update": false
@@ -13194,13 +13194,13 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 8105,
+    "totalreply": 8106,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1782982800,
+    "lastedit": 1782983662,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2184952": {
     "totalreply": 322,
@@ -14094,13 +14094,13 @@
     "update": false
   },
   "2281656": {
-    "totalreply": 70,
+    "totalreply": 71,
     "title": "[再买淘汰游戏机砍手]",
     "newtitle": "[再买淘汰游戏机砍手]",
-    "lastedit": 1782983100,
+    "lastedit": 1782983663,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2269775": {
     "totalreply": 107,
@@ -16376,7 +16376,7 @@
     "newtitle": "[高考志愿求助：刚过一本线30分，喜欢农业，前景如何？有具体细分专业推荐吗？]",
     "lastedit": 1782723969,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1944434": {
@@ -17649,10 +17649,10 @@
     "update": false
   },
   "2284701": {
-    "totalreply": 121,
+    "totalreply": 122,
     "title": "[该怎么向娃说明动画片是假的这个残酷的事实？]",
     "newtitle": "[该怎么向娃说明动画片是假的这个残酷的事实？]",
-    "lastedit": 1782982457,
+    "lastedit": 1782983754,
     "category": "外野",
     "active": true,
     "update": false
@@ -17712,10 +17712,10 @@
     "update": false
   },
   "2284702": {
-    "totalreply": 153,
+    "totalreply": 154,
     "title": "[万斯：东大在AI领域既不想输米国但也不想赢..]",
     "newtitle": "[万斯：东大在AI领域既不想输米国但也不想赢..]",
-    "lastedit": 1782982671,
+    "lastedit": 1782983838,
     "category": "外野",
     "active": true,
     "update": false
@@ -17775,13 +17775,13 @@
     "update": false
   },
   "2284730": {
-    "totalreply": 358,
+    "totalreply": 359,
     "title": "[PlayStation 主机新游戏将于 2028 年 1 月起停止实体光盘生产]",
     "newtitle": "[PlayStation 主机新游戏将于 2028 年 1 月起停止实体光盘生产]",
-    "lastedit": 1782983040,
+    "lastedit": 1782983291,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284356": {
     "totalreply": 47,
@@ -17865,13 +17865,13 @@
     "update": false
   },
   "2284732": {
-    "totalreply": 69,
+    "totalreply": 70,
     "title": "[我说高考一本线大约是每科都及格]",
     "newtitle": "[我说高考一本线大约是每科都及格]",
-    "lastedit": 1782982440,
+    "lastedit": 1782983310,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284259": {
     "totalreply": 42,
@@ -17946,13 +17946,13 @@
     "update": false
   },
   "2284773": {
-    "totalreply": 52,
+    "totalreply": 53,
     "title": "[遇到这种缘分的可能性有多大？]",
     "newtitle": "[遇到这种缘分的可能性有多大？]",
-    "lastedit": 1782982920,
+    "lastedit": 1782983293,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284761": {
     "totalreply": 45,
@@ -17979,13 +17979,13 @@
     "lastedit": 1782974460,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284647": {
     "totalreply": 42,
     "title": "[AI好啊，AI得学啊SFW]",
     "newtitle": "[AI好啊，AI得学啊SFW]",
-    "lastedit": 1782979830,
+    "lastedit": 1782983340,
     "category": "外野",
     "active": true,
     "update": false

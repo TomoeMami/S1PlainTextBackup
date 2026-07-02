@@ -6574,3 +6574,33 @@ how,哪里看啊    Re:Source</blockquote>
 
 感觉Deepseek有点撑不住，API反应好慢，客户端动不动就无响应了。
 
+
+*****
+
+####  蛋黄酱Release  
+##### 2035#       发表于 2026-7-2 17:08
+
+api好像炸了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  蛋黄酱Release  
+##### 2035#       发表于 2026-7-2 17:08
+
+api好像炸了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  蛋黄酱Release  
+##### 2035#       发表于 2026-7-2 17:08
+
+api好像炸了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
