@@ -6646,3 +6646,11 @@ oepncode的deepseek也炸了。。。
 
 话说搭的hermes接到qq，好像不能拉到群里
 
+
+*****
+
+####  一般市民  
+##### 2038#       发表于 2026-7-2 20:45
+
+下午在用OPENCODE蹬GLM，输出出了个长文本后半全是乱码，切到鲸鱼也炸了。国模算力太可怜了  <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
