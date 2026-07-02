@@ -6604,3 +6604,13 @@ api好像炸了<img src="https://static.stage1st.com/image/smiley/face2017/001.p
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  neptunehs  
+##### 2036#       发表于 2026-7-2 17:22
+
+oepncode的deepseek也炸了。。。
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
