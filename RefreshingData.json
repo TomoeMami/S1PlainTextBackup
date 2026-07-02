@@ -7401,10 +7401,10 @@
     "totalreply": 7895,
     "title": "[《碧蓝航线》五号楼｜新年啦]",
     "newtitle": "[《碧蓝航线》五号楼｜7周年了]",
-    "lastedit": 1782387968,
+    "lastedit": 1782982320,
     "category": "手游专楼",
-    "active": false,
-    "update": false
+    "active": true,
+    "update": true
   },
   "2170764": {
     "totalreply": 20790,
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 40221,
+    "totalreply": 40223,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1782980693,
+    "lastedit": 1782982365,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12573,10 +12573,10 @@
     "update": false
   },
   "2271276": {
-    "totalreply": 5040,
+    "totalreply": 5041,
     "title": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
     "newtitle": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
-    "lastedit": 1782981960,
+    "lastedit": 1782982260,
     "category": "外野",
     "active": true,
     "update": true
@@ -12843,13 +12843,13 @@
     "update": false
   },
   "2191394": {
-    "totalreply": 3931,
+    "totalreply": 3933,
     "title": "[UE5+二次元GTA+都市UGC开放世界，异环讨论贴]",
     "newtitle": "[UE5+二次元GTA+都市UGC开放世界，异环讨论贴]",
-    "lastedit": 1782981989,
+    "lastedit": 1782982380,
     "category": "手游专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2261858": {
     "totalreply": 1663,
@@ -16677,13 +16677,13 @@
     "update": false
   },
   "2284368": {
-    "totalreply": 72,
+    "totalreply": 74,
     "title": "[【童年回忆】奥运前后时的北京。。。]",
     "newtitle": "[【童年回忆】奥运前后时的北京。。。]",
-    "lastedit": 1782982020,
+    "lastedit": 1782982215,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2281198": {
     "totalreply": 109,
@@ -16938,10 +16938,10 @@
     "update": false
   },
   "2284473": {
-    "totalreply": 206,
+    "totalreply": 207,
     "title": "[我快被最近刷屏的“韩国黄金时代”模板小作文给笑坏了，究极回旋镖]",
     "newtitle": "[我快被最近刷屏的“韩国黄金时代”模板小作文给笑坏了，究极回旋镖]",
-    "lastedit": 1782981042,
+    "lastedit": 1782982370,
     "category": "外野",
     "active": true,
     "update": false
@@ -17186,14 +17186,14 @@
     "newtitle": "[给大伙添乱竟然大概率0成本]",
     "lastedit": 1782723127,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2284557": {
-    "totalreply": 151,
+    "totalreply": 152,
     "title": "[突然发现“她”们已经可以随意发动媒体矩阵了]",
     "newtitle": "[突然发现“她”们已经可以随意发动媒体矩阵了]",
-    "lastedit": 1782981840,
+    "lastedit": 1782982380,
     "category": "外野",
     "active": true,
     "update": true
@@ -17649,22 +17649,22 @@
     "update": false
   },
   "2284674": {
-    "totalreply": 165,
+    "totalreply": 166,
     "title": "[俄乌7月楼]",
     "newtitle": "[俄乌7月楼]",
-    "lastedit": 1782981864,
+    "lastedit": 1782982380,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2284701": {
     "totalreply": 120,
     "title": "[该怎么向娃说明动画片是假的这个残酷的事实？]",
     "newtitle": "[该怎么向娃说明动画片是假的这个残酷的事实？]",
-    "lastedit": 1782971649,
+    "lastedit": 1782982020,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2284688": {
     "totalreply": 69,
@@ -17724,10 +17724,10 @@
     "totalreply": 152,
     "title": "[万斯：东大在AI领域既不想输米国但也不想赢..]",
     "newtitle": "[万斯：东大在AI领域既不想输米国但也不想赢..]",
-    "lastedit": 1782981634,
+    "lastedit": 1782982380,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2156444": {
     "totalreply": 107,
@@ -17820,13 +17820,13 @@
     "update": false
   },
   "2284699": {
-    "totalreply": 60,
+    "totalreply": 61,
     "title": "[时至今日，还会有人觉得加速有用么？]",
     "newtitle": "[时至今日，还会有人觉得加速有用么？]",
-    "lastedit": 1782981780,
+    "lastedit": 1782982224,
     "category": "手游战斗",
     "active": true,
-    "update": true
+    "update": false
   },
   "2283296": {
     "totalreply": 45,
@@ -17877,10 +17877,10 @@
     "totalreply": 69,
     "title": "[我说高考一本线大约是每科都及格]",
     "newtitle": "[我说高考一本线大约是每科都及格]",
-    "lastedit": 1782981052,
+    "lastedit": 1782982440,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2284259": {
     "totalreply": 42,
@@ -17922,10 +17922,10 @@
     "totalreply": 49,
     "title": "[倚天屠龙克苏鲁之郭靖（小说）]",
     "newtitle": "[倚天屠龙克苏鲁之郭靖（小说）]",
-    "lastedit": 1782979820,
+    "lastedit": 1782982200,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2254641": {
     "totalreply": 61,
@@ -17949,10 +17949,10 @@
     "totalreply": 62,
     "title": "[《繁花》里的那个90年代的上海还原度高不高？]",
     "newtitle": "[《繁花》里的那个90年代的上海还原度高不高？]",
-    "lastedit": 1782980190,
+    "lastedit": 1782982380,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2284773": {
     "totalreply": 51,
