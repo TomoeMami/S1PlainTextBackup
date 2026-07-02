@@ -29,3 +29,17 @@
 
 终于来了
 
+
+*****
+
+####  751984871  
+##### 1032#       发表于 2026-7-2 21:26
+
+ 本帖最后由 751984871 于 2026-7-2 21:30 编辑 
+
+[https://www.monogatari-series.com/](https://www.monogatari-series.com/)
+[https://www.monogatari-series.com/oms/](https://www.monogatari-series.com/oms/)
+[https://www.monogatari-series.com/oms/2024/](https://www.monogatari-series.com/oms/2024/)
+
+虽然如今没人看官网了，但是为什么要把2024藏得那么彻底啊，完全找不到2024的入口
+
