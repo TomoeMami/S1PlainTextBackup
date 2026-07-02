@@ -524,3 +524,11 @@ X这作业抄起来太舒服了，简约美，每次临近死线都抄他的<img
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这次强敌20还挺难的，我是试了几次阵容才勉强全存活，还打得蛮爽的
 
+
+*****
+
+####  ティグル  
+##### 4492#       发表于 2026-7-2 12:07
+
+打Z挑战关的记得去刷骰子高达
+
