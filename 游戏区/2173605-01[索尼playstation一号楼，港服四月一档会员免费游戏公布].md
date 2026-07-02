@@ -671,3 +671,19 @@ https://www.youtube.com/watch?v=kWSIFh8ICaA
 
 —— 来自 vivo V2303A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  黑色的js  
+##### 757#       发表于 2026-7-2 12:50
+
+<img src="https://img.stage1st.com/forum/202607/02/124936hv37mq8m3s91yv8s.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260702_124808.jpg</strong> (112.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-2 12:49 上传
+
+这种重大决定不是西野或者赫尔曼出面，估计自己也知道多傻逼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">x上冲成那样官号连个会面都不敢发，看能装死多久
+
