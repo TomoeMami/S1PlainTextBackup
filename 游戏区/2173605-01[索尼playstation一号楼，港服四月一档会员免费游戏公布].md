@@ -661,3 +661,13 @@ https://www.youtube.com/watch?v=kWSIFh8ICaA
 
 2026-7-2 06:55 上传
 
+
+*****
+
+####  cmnewfan  
+##### 756#       发表于 2026-7-2 08:48
+
+数字版价格高攀不起，高端电脑也配不起，逼死没钱的玩家是吧，穷兄弟就不是兄弟了。
+
+—— 来自 vivo V2303A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
