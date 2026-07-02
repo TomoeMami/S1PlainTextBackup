@@ -1945,3 +1945,14 @@ A卡都比不上啊，那N卡起码还得两三年，可以不用关注了。。
 【【白TV】Ryzen 9 9950X3D + RX 9070 XT：最强Linux游戏主机性能实测！和Win11差距有多大？-哔哩哔哩】  ...</blockquote>
 不是说性能有提升吗？怎么还不如win啊？
 
+
+*****
+
+####  gaiden  
+##### 180#       发表于 2026-7-2 08:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69858421&amp;ptid=2284072" target="_blank">缺德猫 发表于 2026-7-1 23:25</a>
+
+不是说性能有提升吗？怎么还不如win啊？</blockquote>
+steamos没有win后台那些软件，针对性能不高的系统是有提升，但是它性能超不过显卡性能上限啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
