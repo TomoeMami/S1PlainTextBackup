@@ -6614,3 +6614,11 @@ oepncode的deepseek也炸了。。。
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lly778  
+##### 2037#       发表于 2026-7-2 17:30
+
+话说搭的hermes接到qq，好像不能拉到群里
+
