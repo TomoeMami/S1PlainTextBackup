@@ -705,3 +705,16 @@ TNND。。。
 
 索尼集团股价正在反弹。股价较前一交易日上涨150日元（涨幅4.61%），达到3400日元。集团旗下子公司索尼互动娱乐（SIE）于1日宣布，其家用游戏主机PlayStation（PS）的新游戏将从2028年1月起仅以数字下载形式销售，并将停止光盘版销售。
 
+
+*****
+
+####  哎哟卧槽了  
+##### 760#       发表于 2026-7-2 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69861572&amp;ptid=2173605" target="_blank">SergeGlenn 发表于 2026-7-2 14:03</a>
+
+TNND。。。
+
+索尼集团股价正在反弹。股价较前一交易日上涨150日元（涨幅4.61%），达到3400日元。集团旗下子 ...</blockquote>
+看他自己抬价能抬多久，反正没盘子下世代一定转steam
+
