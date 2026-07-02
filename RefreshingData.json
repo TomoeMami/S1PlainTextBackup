@@ -11184,7 +11184,7 @@
     "lastedit": 1783013640,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2249235": {
     "totalreply": 830,
@@ -12399,7 +12399,7 @@
     "lastedit": 1783012680,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2218875": {
     "totalreply": 1466,
@@ -12579,7 +12579,7 @@
     "lastedit": 1783013760,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2261856": {
     "totalreply": 574,
@@ -12849,7 +12849,7 @@
     "lastedit": 1783012560,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2261858": {
     "totalreply": 1663,
@@ -13200,7 +13200,7 @@
     "lastedit": 1783013700,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2257973": {
     "totalreply": 155,
@@ -17880,7 +17880,7 @@
     "lastedit": 1783012200,
     "category": "外野",
     "active": true,
-    "update": false
+    "update": true
   },
   "2284769": {
     "totalreply": 41,
