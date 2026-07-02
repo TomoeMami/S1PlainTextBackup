@@ -687,3 +687,11 @@ https://www.youtube.com/watch?v=kWSIFh8ICaA
 
 这种重大决定不是西野或者赫尔曼出面，估计自己也知道多傻逼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">x上冲成那样官号连个会面都不敢发，看能装死多久
 
+
+*****
+
+####  缺德猫  
+##### 758#       发表于 2026-7-2 13:18
+
+这个时间点公布就说明下定决心了，被喷成啥样都不会改回去，现在公布总比等PS6进入宣发期公布强，如果搭配PS6宣发一起公布，那真是死定了
+
