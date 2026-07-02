@@ -1956,3 +1956,14 @@ A卡都比不上啊，那N卡起码还得两三年，可以不用关注了。。
 不是说性能有提升吗？怎么还不如win啊？</blockquote>
 steamos没有win后台那些软件，针对性能不高的系统是有提升，但是它性能超不过显卡性能上限啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Midnight.Coup  
+##### 181#       发表于 2026-7-2 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69855931&amp;ptid=2284072" target="_blank">今天生软完了吗 发表于 2026-7-1 14:56</a>
+所以在一个标准的x86硬件上同时安装kde组件+gamescope两套合成器，并用大屏幕模式下藏了systemd-logind作 ...</blockquote>
+原子系统+gamescope+arch 有什么问题
+隔壁 Bazzite 也是这样配置，换成差不多激进的 fedora
+
