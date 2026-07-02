@@ -11552,7 +11552,7 @@
     "newtitle": "[SNK 饿狼传说新作『饿狼传说 City of the Wolves』2025年4月24日发售]",
     "lastedit": 1782726971,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2254600": {
@@ -14107,15 +14107,6 @@
     "title": "[雨天高速慢点啊，别走内道，直接解体了]",
     "newtitle": "[雨天高速慢点啊，别走内道，直接解体了]",
     "lastedit": 1782356050,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2283614": {
-    "totalreply": 49,
-    "title": "[AI引发数学家集体“抗议”，人类数学家护城河在哪里？]",
-    "newtitle": "[AI引发数学家集体“抗议”，人类数学家护城河在哪里？]",
-    "lastedit": 1781776327,
     "category": "外野",
     "active": false,
     "update": false
