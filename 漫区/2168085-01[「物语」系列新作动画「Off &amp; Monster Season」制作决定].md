@@ -75,3 +75,29 @@
 　オフ&amp;モンスターシーズン</blockquote>
 应该只是火怜·食人魔，没有翼·睡眠。
 
+
+*****
+
+####  0aleph37  
+##### 1036#       发表于 2026-7-3 10:30
+
+鸟物语 9月刊出
+ <blockquote>哥哥你是觉得这全是伪物的世界毁灭掉也可以的对吧</blockquote>
+
+*****
+
+####  0aleph37  
+##### 1037#       发表于 2026-7-3 10:30
+
+鸟物语 9月刊出
+
+<img src="https://img.stage1st.com/forum/202607/03/102950x7qq6lyriig0gcvg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.58 KB, 下载次数: )
+
+下载附件
+
+2026-7-3 10:29 上传
+
+ <blockquote>哥哥你是觉得这全是伪物的世界毁灭掉也可以的对吧</blockquote>
+
