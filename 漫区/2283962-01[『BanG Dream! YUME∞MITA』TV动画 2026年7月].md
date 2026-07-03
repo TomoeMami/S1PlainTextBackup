@@ -902,3 +902,15 @@ ed倒是挺好听的 ...</blockquote>
 ed倒是挺好听的 ...</blockquote>
 八九十年代很多这么大动静吵的，比如水谷优子的角色
 
+
+*****
+
+####  rollingusagi  
+##### 62#       发表于 2026-7-4 01:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69866456&amp;ptid=2283962" target="_blank">sephal 发表于 2026-7-3 20:36</a>
+看得我一直感觉自己老了，是我不懂现在的动画了吗，表现萌需要这么用力这么吵吗
+
+ed倒是挺好听的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿拉蕾的特点就是大嗓门，真人也是，live上那嗓门更明显，梦限大那曲风没个大嗓门主唱真的会被嘈杂的电子音给盖过去的，本身曲风也是很吵的那种，kemu以前在术圈流行的那套炸厕所
+
