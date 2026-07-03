@@ -9396,10 +9396,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 41291,
+    "totalreply": 41292,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1783073292,
+    "lastedit": 1783073646,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 16649,
+    "totalreply": 16650,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼7月]",
-    "lastedit": 1783070765,
+    "lastedit": 1783073765,
     "category": "外野",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 40382,
+    "totalreply": 40387,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1783073295,
+    "lastedit": 1783073897,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13185,10 +13185,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 8427,
+    "totalreply": 8429,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1783073044,
+    "lastedit": 1783073646,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14841,12 +14841,12 @@
     "update": false
   },
   "2283782": {
-    "totalreply": 51,
+    "totalreply": 52,
     "title": "[育碧最新一轮裁员，关闭加拿大和欧洲两家工作室，血洗380人]",
     "newtitle": "[育碧最新一轮裁员，关闭加拿大和欧洲两家工作室，血洗380人]",
-    "lastedit": 1782717005,
+    "lastedit": 1783073647,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2283928": {
@@ -16398,10 +16398,10 @@
     "update": false
   },
   "2284368": {
-    "totalreply": 91,
+    "totalreply": 92,
     "title": "[【童年回忆】奥运前后时的北京。。。]",
     "newtitle": "[【童年回忆】奥运前后时的北京。。。]",
-    "lastedit": 1783073170,
+    "lastedit": 1783073411,
     "category": "外野",
     "active": true,
     "update": false
@@ -17370,10 +17370,10 @@
     "update": false
   },
   "2284674": {
-    "totalreply": 206,
+    "totalreply": 207,
     "title": "[俄乌7月楼]",
     "newtitle": "[俄乌7月楼]",
-    "lastedit": 1783073168,
+    "lastedit": 1783073765,
     "category": "外野",
     "active": true,
     "update": false
@@ -17906,6 +17906,15 @@
     "newtitle": "[【来360度转一圈】茉莉奶白因商标侵权被判赔偿路易威登1030万]",
     "lastedit": 1783065848,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2246433": {
+    "totalreply": 53,
+    "title": "[某暗部的少女共栖 动画化]",
+    "newtitle": "[某暗部的少女共栖 动画化]",
+    "lastedit": 1783073647,
+    "category": "漫区",
     "active": true,
     "update": false
   }
