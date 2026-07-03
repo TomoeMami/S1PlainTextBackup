@@ -865,3 +865,15 @@ ed倒是挺好听的
 ed倒是挺好听的 ...</blockquote>
 同感，点名批评阿拉蕾，前脚表示一句话都不会说了，后脚毫无铺垫地开始和银毛妹很没礼貌地试探队友是不是ai，图灵测试那段真给我气笑了，也是红毛脾气好愿意陪俩神人玩。感觉制作组只想着做tiktok爆款桥段引流，丝毫没有考虑到剧情衔接的合理性。
 
+
+*****
+
+####  leleq  
+##### 59#       发表于 2026-7-4 00:25
+
+看到最后突然笑了<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+这玩意最后还要洗白，加油洗的干净点啊<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
