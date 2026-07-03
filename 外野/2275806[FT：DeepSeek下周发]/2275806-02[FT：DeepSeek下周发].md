@@ -6662,3 +6662,25 @@ oepncode的deepseek也炸了。。。
 
 据说昨天mimo也跟着崩溃了，Kimi也被带着不稳定了，这么看来DeepSeek接的国内流量太多了，还能保持只是排队降智而不是截断和409，他们的部署方案简直有黑科技
 
+
+*****
+
+####  overflowal  
+##### 2040#       发表于 2026-7-3 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69863857&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-3 08:58</a>
+据说昨天mimo也跟着崩溃了，Kimi也被带着不稳定了，这么看来DeepSeek接的国内流量太多了，还能保持只是排队 ...</blockquote>
+他们的infra可以把国内其他几家加起来一块A了，甚至重视AI infra这件事就是他们带起来的<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  老司机的马甲  
+##### 2041#       发表于 2026-7-3 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69862491&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-7-2 20:45</a>
+下午在用OPENCODE蹬GLM，输出出了个长文本后半全是乱码，切到鲸鱼也炸了。国模算力太可怜了   ...</blockquote>
+毕竟全世界都在蹬
+
+—— 来自 vivo V2307A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
