@@ -138,3 +138,13 @@ demo怎么还更新的<img src="https://static.stage1st.com/image/smiley/face201
 
 怎么还反向跳票？这下我心里发毛啊，卡普空游戏本来就有烂尾传统，你再往前跳多半个月，搞不好尾巴又短一截。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  手铐君  
+##### 665#       发表于 2026-7-3 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69866860&amp;ptid=2210366" target="_blank">不见不散 发表于 2026-7-3 22:35</a>
+怎么还反向跳票？这下我心里发毛啊，卡普空游戏本来就有烂尾传统，你再往前跳多半个月，搞不好尾巴又短一截 ...</blockquote>
+可能是因为九月中下旬游戏太多，而且10月上还有自家的龙信2dlc
+
