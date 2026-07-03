@@ -25,3 +25,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">哪一版
 
+
+*****
+
+####  冰风血羽  
+##### 2019#       发表于 2026-7-4 07:06
+
+就群里一个截图，说是最新动画
+
