@@ -764,3 +764,19 @@ https://salzburg.orf.at/stories/3360879/
 
 索尼居然还要转型做实业吗，我还以为已经彻底放弃转文化产业了
 
+
+*****
+
+####  黑猫软  
+##### 764#       发表于 2026-7-3 16:43
+
+<img src="https://img.stage1st.com/forum/202607/03/164320hqmdpham1qrlrg4l.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260703_164119.jpg</strong> (125.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-3 16:43 上传
+
+索尼火了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">比夷陵之火还火啊
+
