@@ -6654,3 +6654,11 @@ oepncode的deepseek也炸了。。。
 
 下午在用OPENCODE蹬GLM，输出出了个长文本后半全是乱码，切到鲸鱼也炸了。国模算力太可怜了  <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 2039#       发表于 2026-7-3 08:58
+
+据说昨天mimo也跟着崩溃了，Kimi也被带着不稳定了，这么看来DeepSeek接的国内流量太多了，还能保持只是排队降智而不是截断和409，他们的部署方案简直有黑科技
+
