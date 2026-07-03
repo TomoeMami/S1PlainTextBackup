@@ -780,3 +780,11 @@ https://salzburg.orf.at/stories/3360879/
 
 索尼火了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">比夷陵之火还火啊
 
+
+*****
+
+####  椎名mahuyo  
+##### 765#       发表于 2026-7-3 18:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索尼股票大涨，看起来投资人根本不慌好么
+
