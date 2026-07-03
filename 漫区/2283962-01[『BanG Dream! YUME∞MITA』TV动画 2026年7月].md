@@ -852,3 +852,16 @@ ed倒是挺好听的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">邦多利出现了稀世恶女啊
 
+
+*****
+
+####  takerest  
+##### 58#       发表于 2026-7-3 23:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69866456&amp;ptid=2283962" target="_blank">sephal 发表于 2026-7-3 20:36</a>
+
+看得我一直感觉自己老了，是我不懂现在的动画了吗，表现萌需要这么用力这么吵吗
+
+ed倒是挺好听的 ...</blockquote>
+同感，点名批评阿拉蕾，前脚表示一句话都不会说了，后脚毫无铺垫地开始和银毛妹很没礼貌地试探队友是不是ai，图灵测试那段真给我气笑了，也是红毛脾气好愿意陪俩神人玩。感觉制作组只想着做tiktok爆款桥段引流，丝毫没有考虑到剧情衔接的合理性。
+
