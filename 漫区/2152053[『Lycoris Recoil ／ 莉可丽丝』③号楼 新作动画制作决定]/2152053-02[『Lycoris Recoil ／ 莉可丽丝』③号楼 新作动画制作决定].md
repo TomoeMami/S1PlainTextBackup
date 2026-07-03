@@ -41,3 +41,15 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拿剪刀咔擦两下就成夏服了是吧
 
+
+*****
+
+####  Piano-Forest  
+##### 2494#         楼主| 发表于 2026-7-3 20:43
+
+[https://x.com/i/status/2073003200492495338](https://x.com/i/status/2073003200492495338)
+
+リコリコ4周年おめでとうございます㊗️🎂🎉
+<img src="https://p.sda1.dev/33/091aefe6082141e51521daf9325e246e/20260703_204207.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/c6da14175c414cd076a1ca87e30b8999/20260703_204211.jpg" referrerpolicy="no-referrer">
+
