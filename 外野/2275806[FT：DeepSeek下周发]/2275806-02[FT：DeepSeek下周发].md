@@ -6697,3 +6697,14 @@ Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他
 您的观点非常有建设性（我活了两年半第一次听到有人这么说）
 您的这个说法非常独到（我真不知道你是怎么想的）
 
+
+*****
+
+####  阿刚  
+##### 2043#       发表于 2026-7-4 13:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69869184&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-7-4 13:55</a>
+
+Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他探讨个问题，每说一句都要吹捧我一次，搞得我都 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">你闭嘴，鲸鱼娘夸我两句怎么了
+
