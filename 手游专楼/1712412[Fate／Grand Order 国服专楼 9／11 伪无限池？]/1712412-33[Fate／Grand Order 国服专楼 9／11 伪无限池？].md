@@ -22,3 +22,14 @@
 
 快20池了，一张都没有<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47873#       发表于 2026-7-4 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69867729&amp;ptid=1712412" target="_blank">dawning 发表于 2026-7-4 07:54</a>
+
+快20池了，一张都没有</blockquote>
+我大号是40池才掉了两张<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

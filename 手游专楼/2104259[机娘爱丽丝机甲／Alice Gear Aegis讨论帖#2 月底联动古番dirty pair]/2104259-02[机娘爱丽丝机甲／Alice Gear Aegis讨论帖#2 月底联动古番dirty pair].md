@@ -44,3 +44,21 @@
 不知道哈，这可是大新闻，有详细了吗</blockquote>
 群里看到的，联动角色是奈叶，另一个好像是新动画女主
 
+
+*****
+
+####  不灭的旋律  
+##### 2021#       发表于 2026-7-4 11:37
+
+不看奈叶，票已爆仓，还有救吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰风血羽  
+##### 2022#       发表于 2026-7-4 11:40
+
+羡慕爆仓，我30号赛艇沉船以后才攒了6张
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
