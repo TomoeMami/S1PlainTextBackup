@@ -6813,3 +6813,14 @@ Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他
 
 鲸鱼网页端现在写的前端效果，还可以
 
+
+*****
+
+####  水風船  
+##### 2054#       发表于 2026-7-4 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69869248&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-7-4 14:10</a>
+
+这种ai八股要用酒馆预设压住，网页版哪里会先上预设再提问，就很恶心了</blockquote>
+什么样的预设效果比较好啊<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
