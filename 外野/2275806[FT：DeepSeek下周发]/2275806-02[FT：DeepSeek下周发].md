@@ -6837,3 +6837,14 @@ Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他
 
 那里邀请无限制的
 
+
+*****
+
+####  M乔梦  
+##### 2056#       发表于 2026-7-4 19:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69862281&amp;ptid=2275806" target="_blank">lly778 发表于 2026-7-2 17:30</a>
+
+话说搭的hermes接到qq，好像不能拉到群里</blockquote>
+qq官方机器人接口嘛？前几天不是刚开放拉群嘛？
+
