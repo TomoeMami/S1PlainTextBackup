@@ -6885,3 +6885,14 @@ DeepSeek我现在发现kelivo可以用a\格式的url，实现在api场景调用d
 
 走api的ds才是完全体，无论是审查还是系统提示词。
 
+
+*****
+
+####  lly778  
+##### 2060#       发表于 2026-7-4 21:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69870694&amp;ptid=2275806" target="_blank">M乔梦 发表于 2026-7-4 21:06</a>
+
+我拿小号试了下可以啊，at它就行了。你看看设置有没有啥问题</blockquote>
+是不是要开发完成上架？
+
