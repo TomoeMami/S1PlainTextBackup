@@ -522,10 +522,10 @@
     "update": false
   },
   "2092193": {
-    "totalreply": 7828,
+    "totalreply": 7830,
     "title": "[《太吾绘卷》正式版讨论楼，9月21号发售，倒计时7天]",
     "newtitle": "[《太吾绘卷》正式版攻略交流讨论楼～历史削除制作组与精神时光屋武林高手们～]",
-    "lastedit": 1783139048,
+    "lastedit": 1783139646,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -1260,10 +1260,10 @@
     "update": false
   },
   "1334731": {
-    "totalreply": 7206,
+    "totalreply": 7226,
     "title": "[崩坏3rd专楼  ios安卓都可以玩啦！！！！！]",
     "newtitle": "[崩坏3rd专楼  ios安卓都可以玩啦！！！！！]",
-    "lastedit": 1783076415,
+    "lastedit": 1783139765,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 42937,
+    "totalreply": 42940,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》6.8 赛博朋克2076]",
-    "lastedit": 1783137006,
+    "lastedit": 1783139765,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11331,10 +11331,10 @@
     "update": false
   },
   "2251486": {
-    "totalreply": 7624,
+    "totalreply": 7625,
     "title": "[【纯良向】米哈游百合讨论楼2]",
     "newtitle": "[【纯良向】米哈游百合讨论楼2]",
-    "lastedit": 1783118645,
+    "lastedit": 1783139885,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -11817,10 +11817,10 @@
     "update": false
   },
   "1950481": {
-    "totalreply": 1162,
+    "totalreply": 1163,
     "title": "[《凡人修仙传》网络动画专楼]",
     "newtitle": "[《凡人修仙传》网络动画专楼]",
-    "lastedit": 1783139047,
+    "lastedit": 1783139405,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 40529,
+    "totalreply": 40531,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1783138446,
+    "lastedit": 1783139765,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12659,7 +12659,7 @@
     "newtitle": "[2026年推理游戏发售清单(更新至6.30)，2026推理游戏专楼]",
     "lastedit": 1782880446,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2272409": {
@@ -17811,10 +17811,10 @@
     "update": false
   },
   "2284860": {
-    "totalreply": 75,
+    "totalreply": 77,
     "title": "[哥哥的共时性：今天乒乓球哥哥和撸啊撸哥哥同时被欧洲佬吊打]",
     "newtitle": "[哥哥的共时性：今天乒乓球哥哥和撸啊撸哥哥同时被欧洲佬吊打]",
-    "lastedit": 1783139049,
+    "lastedit": 1783139646,
     "category": "外野",
     "active": true,
     "update": false
@@ -17838,10 +17838,10 @@
     "update": false
   },
   "2284873": {
-    "totalreply": 81,
+    "totalreply": 82,
     "title": "[字节跳动登记了“咕咕嘎嘎”的作品著作权]",
     "newtitle": "[字节跳动登记了“咕咕嘎嘎”的作品著作权]",
-    "lastedit": 1783138812,
+    "lastedit": 1783139645,
     "category": "外野",
     "active": true,
     "update": false
@@ -17897,6 +17897,15 @@
     "newtitle": "[开始玩实况野球2026]",
     "lastedit": 1783130766,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2284871": {
+    "totalreply": 42,
+    "title": "[关于体育运动的归化问题]",
+    "newtitle": "[关于体育运动的归化问题]",
+    "lastedit": 1783139646,
+    "category": "外野",
     "active": true,
     "update": false
   }
