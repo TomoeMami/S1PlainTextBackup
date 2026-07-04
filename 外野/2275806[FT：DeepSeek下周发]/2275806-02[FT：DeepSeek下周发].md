@@ -6971,3 +6971,34 @@ DeepSeek我现在发现kelivo可以用a\格式的url，实现在api场景调用d
 @ 也不能回</blockquote>
 那只能让hermes修他自己了，告诉他群里没反应让他看看怎么回事，不过还是小心点，这家伙容易把自己修死……
 
+
+*****
+
+####  阿刚  
+##### 2063#       发表于 2026-7-4 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69870676&amp;ptid=2275806" target="_blank">lly778 发表于 2026-7-4 21:03</a>
+
+开放了么 我拉进群只有我能和机器人对话</blockquote>
+要@，而且我发现如果他有扮演人设，而且你设定了用户身份的话，他会把所有@他的人都当成你的身份
+
+*****
+
+####  lly778  
+##### 2064#       发表于 2026-7-4 22:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69870944&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-7-4 22:16</a>
+
+要@，而且我发现如果他有扮演人设，而且你设定了用户身份的话，他会把所有@他的人都当成你的身份 ...</blockquote>
+@ 也不能回
+
+*****
+
+####  阿刚  
+##### 2065#       发表于 2026-7-4 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69870948&amp;ptid=2275806" target="_blank">lly778 发表于 2026-7-4 22:17</a>
+
+@ 也不能回</blockquote>
+那只能让hermes修他自己了，告诉他群里没反应让他看看怎么回事，不过还是小心点，这家伙容易把自己修死……
+
