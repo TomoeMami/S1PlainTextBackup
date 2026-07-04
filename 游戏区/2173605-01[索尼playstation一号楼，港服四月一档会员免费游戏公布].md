@@ -804,3 +804,18 @@ Shawn Layden的评论
 
 “大多数不代表全部，”他澄清道，“所以会存在一个临界点——如果我有80%的市场机会，而这代表着95%的收入来源，那么为了剩下那20%的机会——实际上只占5%的业务——我还有什么动力继续维持运转呢？你明白我的意思吗？到了某个时候，事情就变得很明显：我们不可能只为这么一小块机会维持整个体系的运转。”
 
+
+*****
+
+####  ultraseven  
+##### 767#       发表于 2026-7-4 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69867801&amp;ptid=2173605" target="_blank">SergeGlenn 发表于 2026-7-4 08:08</a>
+
+Shawn Layden的评论
+
+但他表示，原因或许很简单，就是有些人看了看电子表格，觉得数据已经不支持继续维持光 ...</blockquote>
+可是你年初不是这么说的啊[前索尼总裁亲口证实：PS6不会取消光盘，原因让Xbox玩家羡慕了](https://www.bilibili.com/video/BV1x6ZYB7Ezm)
+
+Shawn Layden是这些前游戏行业高管里B话最多的
+
