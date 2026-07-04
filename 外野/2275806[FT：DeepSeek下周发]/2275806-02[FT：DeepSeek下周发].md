@@ -6738,3 +6738,14 @@ Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ROT  
+##### 2047#       发表于 2026-7-4 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69869184&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-7-4 13:55</a>
+
+Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他探讨个问题，每说一句都要吹捧我一次，搞得我都 ...</blockquote>
+豆包前一段时间砍了情绪价值，后面反响不好又调回来了部分。
+
