@@ -2404,3 +2404,29 @@ OP都高清化了 那像素小人就不能也高清化一 ...</blockquote>
 
 一眼ai啊，和b站up主一个水平，甚至还不如
 
+
+*****
+
+####  Xenor  
+##### 231#       发表于 2026-7-5 05:17
+
+清晰个鬼这劣质油画感…草是更清晰了有何用还不如之前的远景模糊效果
+
+<img src="https://img.stage1st.com/forum/202607/05/051424o2tn772ppmoi9mq9.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (72.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-5 05:14 上传
+
+什么外星人<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202607/05/051425o1iuezn72xq201n7.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (114.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-5 05:14 上传
+
