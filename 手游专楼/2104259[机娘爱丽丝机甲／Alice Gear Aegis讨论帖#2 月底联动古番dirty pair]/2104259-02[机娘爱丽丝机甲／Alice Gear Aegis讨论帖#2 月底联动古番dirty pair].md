@@ -33,3 +33,14 @@
 
 就群里一个截图，说是最新动画
 
+
+*****
+
+####  weiweiEX  
+##### 2020#       发表于 2026-7-4 08:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69866135&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2026-7-3 18:57</a>
+
+不知道哈，这可是大新闻，有详细了吗</blockquote>
+群里看到的，联动角色是奈叶，另一个好像是新动画女主
+

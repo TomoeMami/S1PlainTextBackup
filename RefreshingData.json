@@ -86,7 +86,7 @@
     "newtitle": "[转型2022小黄油砖楼+21个人GOTY]",
     "lastedit": 1782866770,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2041774": {
@@ -3537,10 +3537,10 @@
     "update": false
   },
   "2104259": {
-    "totalreply": 2019,
+    "totalreply": 2020,
     "title": "[机娘爱丽丝机甲／Alice Gear Aegis讨论帖#2 月底联动古番dirty pair]",
     "newtitle": "[机娘爱丽丝机甲／Alice Gear Aegis 叒叕战女高 联动]",
-    "lastedit": 1783120205,
+    "lastedit": 1783125605,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9099,10 +9099,10 @@
     "update": false
   },
   "2124174": {
-    "totalreply": 651,
+    "totalreply": 652,
     "title": "[少主溜得快 TV动画化 2024年7月 制作：CW]",
     "newtitle": "[少主溜得快 TV动画化 2024年7月 制作：CW]",
-    "lastedit": 1783125125,
+    "lastedit": 1783125846,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 18659,
+    "totalreply": 18665,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「寻遗散记」版本即将开放]",
-    "lastedit": 1783113725,
+    "lastedit": 1783125605,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -13185,10 +13185,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 8597,
+    "totalreply": 8604,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1783123565,
+    "lastedit": 1783126086,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17469,10 +17469,10 @@
     "update": false
   },
   "2284741": {
-    "totalreply": 116,
+    "totalreply": 117,
     "title": "[并非围任救索，对你来说钥匙卡有收藏实体的精神满足感吗]",
     "newtitle": "[并非围任救索，对你来说钥匙卡有收藏实体的精神满足感吗]",
-    "lastedit": 1783125005,
+    "lastedit": 1783125965,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17847,10 +17847,10 @@
     "update": false
   },
   "2273774": {
-    "totalreply": 48,
+    "totalreply": 49,
     "title": "[尼古喵喵 TV动画化 2026年7月]",
     "newtitle": "[尼古喵喵 TV动画化 2026年7月]",
-    "lastedit": 1783117326,
+    "lastedit": 1783125846,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17883,10 +17883,10 @@
     "update": false
   },
   "2284860": {
-    "totalreply": 46,
+    "totalreply": 48,
     "title": "[哥哥的共时性：今天乒乓球哥哥和撸啊撸哥哥同时被欧洲佬吊打]",
     "newtitle": "[哥哥的共时性：今天乒乓球哥哥和撸啊撸哥哥同时被欧洲佬吊打]",
-    "lastedit": 1783119725,
+    "lastedit": 1783125846,
     "category": "外野",
     "active": true,
     "update": false
@@ -17910,10 +17910,10 @@
     "update": false
   },
   "2284873": {
-    "totalreply": 52,
+    "totalreply": 54,
     "title": "[字节跳动登记了“咕咕嘎嘎”的作品著作权]",
     "newtitle": "[字节跳动登记了“咕咕嘎嘎”的作品著作权]",
-    "lastedit": 1783125486,
+    "lastedit": 1783126086,
     "category": "外野",
     "active": true,
     "update": false
@@ -17928,10 +17928,10 @@
     "update": false
   },
   "2284887": {
-    "totalreply": 42,
+    "totalreply": 47,
     "title": "[佛得角暂时1：1（2：2）（2：3已经结束力！）阿根廷，会不会创造奇迹]",
     "newtitle": "[佛得角暂时1：1（2：2）（2：3已经结束力！）阿根廷，会不会创造奇迹]",
-    "lastedit": 1783125486,
+    "lastedit": 1783126086,
     "category": "外野",
     "active": true,
     "update": false
@@ -17942,6 +17942,15 @@
     "newtitle": "[皇军认证著名公知蒋方舟涉嫌硕士论文造假]",
     "lastedit": 1783125486,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2261863": {
+    "totalreply": 98,
+    "title": "[弹丸论破2×2]",
+    "newtitle": "[弹丸论破2×2]",
+    "lastedit": 1783125726,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
