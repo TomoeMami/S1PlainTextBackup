@@ -6791,3 +6791,15 @@ Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他
 
 不喜欢默认人格不会自己调么
 
+
+*****
+
+####  舞以  
+##### 2052#       发表于 2026-7-4 18:12
+
+哪个ai都会默认吹捧一下用户啊，gpt看起来冷无缺，但是隐晦的迎合也不少。
+特别是网页版的轻度用户<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+用户就是更喜欢迎合和吹捧ta的模型
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
