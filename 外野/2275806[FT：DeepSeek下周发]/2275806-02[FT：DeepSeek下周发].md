@@ -6803,3 +6803,13 @@ Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  那一年的河川  
+##### 2053#       发表于 2026-7-4 18:58
+
+[https://chat.deepseek.com/share/57qxrz8h10vaurodxs](https://chat.deepseek.com/share/57qxrz8h10vaurodxs)
+
+鲸鱼网页端现在写的前端效果，还可以
+

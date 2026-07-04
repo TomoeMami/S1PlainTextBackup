@@ -179,3 +179,13 @@ demo怎么还更新的<img src="https://static.stage1st.com/image/smiley/face201
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  姬茧墨  
+##### 669#       发表于 2026-7-4 19:01
+
+为什么突然又开始没人指望他不烂尾了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">想骂卡表**方方骂好吧，非要暗搓搓叠那个甲干嘛
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
