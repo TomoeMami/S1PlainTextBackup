@@ -24,3 +24,13 @@
 
 感觉只有比利控好中距离能打一打。
 
+
+*****
+
+####  gzfantasy  
+##### 758#       发表于 2026-7-5 06:41
+
+[https://stage1st.com/2b/thread-2284945-1-1.html](https://stage1st.com/2b/thread-2284945-1-1.html)
+
+今年EWC的专楼已开~
+
