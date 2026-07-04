@@ -6759,3 +6759,15 @@ Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2049#       发表于 2026-7-4 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69869184&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-7-4 13:55</a>
+Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他探讨个问题，每说一句都要吹捧我一次，搞得我都 ...</blockquote>
+仿佛点开了gemini
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
