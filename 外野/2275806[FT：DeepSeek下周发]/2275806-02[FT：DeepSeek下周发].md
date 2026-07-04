@@ -6896,3 +6896,15 @@ DeepSeek我现在发现kelivo可以用a\格式的url，实现在api场景调用d
 我拿小号试了下可以啊，at它就行了。你看看设置有没有啥问题</blockquote>
 是不是要开发完成上架？
 
+
+*****
+
+####  M乔梦  
+##### 2061#       发表于 2026-7-4 21:51
+
+ 本帖最后由 M乔梦 于 2026-7-4 21:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69870829&amp;ptid=2275806" target="_blank">lly778 发表于 2026-7-4 21:44</a>
+
+是不是要开发完成上架？</blockquote>
+不需要吧？qqbot不是只要绑定AppID和AppSecret就行了嘛。我现在显示的还是开发中
+
