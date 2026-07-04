@@ -6848,3 +6848,24 @@ Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他
 话说搭的hermes接到qq，好像不能拉到群里</blockquote>
 qq官方机器人接口嘛？前几天不是刚开放拉群嘛？
 
+
+*****
+
+####  lly778  
+##### 2057#       发表于 2026-7-4 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69870448&amp;ptid=2275806" target="_blank">M乔梦 发表于 2026-7-4 19:59</a>
+
+qq官方机器人接口嘛？前几天不是刚开放拉群嘛？</blockquote>
+开放了么 我拉进群只有我能和机器人对话
+
+*****
+
+####  M乔梦  
+##### 2058#       发表于 2026-7-4 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69870676&amp;ptid=2275806" target="_blank">lly778 发表于 2026-7-4 21:03</a>
+
+开放了么 我拉进群只有我能和机器人对话</blockquote>
+我拿小号试了下可以啊，at它就行了。你看看设置有没有啥问题
+
