@@ -6708,3 +6708,23 @@ Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他
 Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他探讨个问题，每说一句都要吹捧我一次，搞得我都 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">你闭嘴，鲸鱼娘夸我两句怎么了
 
+
+*****
+
+####  apefrank  
+##### 2044#       发表于 2026-7-4 14:09
+
+<blockquote>不见不散 发表于 2026-7-4 13:55
+Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他探讨个问题，每说一句都要吹捧我一次，搞得我都 ...</blockquote>
+可以写一个外交部黑话翻译skill<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绝地潜兵  
+##### 2045#       发表于 2026-7-4 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69869184&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-7-4 13:55</a>
+
+Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他探讨个问题，每说一句都要吹捧我一次，搞得我都 ...</blockquote>
+这种ai八股要用酒馆预设压住，网页版哪里会先上预设再提问，就很恶心了
+
