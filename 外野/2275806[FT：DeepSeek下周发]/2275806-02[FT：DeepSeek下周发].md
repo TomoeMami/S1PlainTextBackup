@@ -6908,3 +6908,14 @@ DeepSeek我现在发现kelivo可以用a\格式的url，实现在api场景调用d
 是不是要开发完成上架？</blockquote>
 不需要吧？qqbot不是只要绑定AppID和AppSecret就行了嘛。我现在显示的还是开发中
 
+
+*****
+
+####  lly778  
+##### 2062#       发表于 2026-7-4 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69870851&amp;ptid=2275806" target="_blank">M乔梦 发表于 2026-7-4 21:51</a>
+
+不需要吧？qqbot不是只要绑定AppID和AppSecret就行了嘛。我现在显示的还是开发中 ...</blockquote>
+那就不知道了，我拉进群，换小号@机器人都不会回复，大号@机器人，超过30秒的思考时间bot也回复不了
+
