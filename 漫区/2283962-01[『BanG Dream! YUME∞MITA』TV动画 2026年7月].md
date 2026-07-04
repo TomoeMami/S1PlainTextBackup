@@ -914,3 +914,13 @@ ed倒是挺好听的 ...</blockquote>
 ed倒是挺好听的 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿拉蕾的特点就是大嗓门，真人也是，live上那嗓门更明显，梦限大那曲风没个大嗓门主唱真的会被嘈杂的电子音给盖过去的，本身曲风也是很吵的那种，kemu以前在术圈流行的那套炸厕所
 
+
+*****
+
+####  刑部姬真可爱  
+##### 63#       发表于 2026-7-4 17:12
+
+这绿毛能洗？就算那视频不是她剪和发布，光是胁迫在这种行为，哪怕在二次元也是很严重的了吧，总不能一个病娇哭哭就打发过去吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX5062, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
