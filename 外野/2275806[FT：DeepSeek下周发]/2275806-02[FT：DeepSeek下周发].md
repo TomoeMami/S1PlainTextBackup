@@ -6684,3 +6684,16 @@ oepncode的deepseek也炸了。。。
 
 —— 来自 vivo V2307A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  不见不散  
+##### 2042#       发表于 2026-7-4 13:55
+
+Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他探讨个问题，每说一句都要吹捧我一次，搞得我都怀疑他是不是在阴阳怪气，有必要用外交部黑话来翻译一下了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+您问的这个问题非常好（我就知道你要问这个）
+您的观察力非常敏锐（你可算注意到了）
+您的观点非常有建设性（我活了两年半第一次听到有人这么说）
+您的这个说法非常独到（我真不知道你是怎么想的）
+
