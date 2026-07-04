@@ -158,3 +158,24 @@ demo怎么还更新的<img src="https://static.stage1st.com/image/smiley/face201
 怎么还反向跳票？这下我心里发毛啊，卡普空游戏本来就有烂尾传统，你再往前跳多半个月，搞不好尾巴又短一截 ...</blockquote>
 今年的小萝莉刚反向跳了一波
 
+
+*****
+
+####  医生狼多  
+##### 667#       发表于 2026-7-3 23:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69866860&amp;ptid=2210366" target="_blank">不见不散 发表于 2026-7-3 22:35</a>
+怎么还反向跳票？这下我心里发毛啊，卡普空游戏本来就有烂尾传统，你再往前跳多半个月，搞不好尾巴又短一截 ...</blockquote>
+今年的小萝莉刚反向跳了一波
+
+*****
+
+####  黑暗之眼  
+##### 668#       发表于 2026-7-4 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69866860&amp;ptid=2210366" target="_blank">不见不散 发表于 2026-7-3 22:35</a>
+怎么还反向跳票？这下我心里发毛啊，卡普空游戏本来就有烂尾传统，你再往前跳多半个月，搞不好尾巴又短一截 ...</blockquote>
+你不会以为就那20天真能给你续狗尾吧？
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
