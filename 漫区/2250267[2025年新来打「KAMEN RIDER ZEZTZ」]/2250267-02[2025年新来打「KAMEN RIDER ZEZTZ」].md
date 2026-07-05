@@ -323,3 +323,11 @@ dcd的海东大树，究极混沌乐子人，无法ooc之人
 
 而且不会真就这么BAN到结局吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  joshua1990  
+##### 2062#       发表于 2026-7-5 21:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">lady那个梦魇应该还是交给nox解决的吧 毕竟是跟他的剧情强绑定的
+
