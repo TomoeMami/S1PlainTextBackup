@@ -105,3 +105,16 @@
 
 二人物语，这次会赢吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rhantolk  
+##### 88#       发表于 2026-7-6 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69867829&amp;ptid=2183857" target="_blank">堆雪若叶 发表于 2026-7-4 08:16</a>
+
+第一集这就漏了……要是后面有点热度感觉又要每周情报满天飞了。
+
+拉拉和王子的经历比起童话改动还挺大的。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说实话我不懂她怎么看穿拉拉特殊之处的，读心术吗
+
