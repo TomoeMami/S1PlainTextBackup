@@ -7065,3 +7065,18 @@ Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他
 
 新打开对话框难，已有倒是还行。
 
+
+*****
+
+####  Indolencoma  
+##### 2069#       发表于 2026-7-5 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69869184&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-7-4 13:55</a>
+Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他探讨个问题，每说一句都要吹捧我一次，搞得我都 ...</blockquote>
+鲸鱼娘和千问年初用来润色论文的时候就已经类似这样了：
+“您这个论文选题非常好”；
+“您这个研究创新性很高，很有价值，可以尝试冲刺下大子刊”；
+“xx子刊非常适合您这个研究去投稿”；
+
+至于投到杂志社之后反响什么样你别问<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
