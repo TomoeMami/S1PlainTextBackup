@@ -72,3 +72,21 @@ gift篇拉完了<img src="https://static.stage1st.com/image/smiley/face2017/067.
 
 2026-7-5 19:08 上传
 
+
+*****
+
+####  leleq  
+##### 673#       发表于 2026-7-5 19:32
+
+这gift篇好看的是单元剧，主线完全是减分章节啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+这还要演4集过去篇……这片到底多少集？至少再来个13集（54集以上）才够把
+
+
+*****
+
+####  水莲寺流歌  
+##### 674#       发表于 2026-7-5 19:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">新角色没立起来，老角色原地打转，既没新形态出场主线也没大的进展，台词上还全是爱啊家人啊大而空的白话，这一整个篇章的意义在哪？
+

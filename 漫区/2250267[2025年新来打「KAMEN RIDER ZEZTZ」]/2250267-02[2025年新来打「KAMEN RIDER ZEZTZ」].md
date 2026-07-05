@@ -301,3 +301,15 @@ dcd的海东大树，究极混沌乐子人，无法ooc之人
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牢诺这两集纯人见，比起来大二甚至人见的有理由
 
+
+*****
+
+####  rockroxas  
+##### 2060#       发表于 2026-7-5 19:35
+
+这周目nox还是牢莫一手喂出来的战力，code草草收花牢莫又刚好要在相关的部分迷茫，虽然是必要的，但编排感觉还是出了问题
+
+然后四大干部看起来真的是正经打一两场就要收花？惩戒估计就是下集的事<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+那么问题来了，nox心结先放一边，他变不变好像真没区别了……
+
