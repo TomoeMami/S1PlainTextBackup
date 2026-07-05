@@ -34,3 +34,13 @@ steam夏促现在只要60块钱，是不是现在买个黄金版更超值</block
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">买新不买旧 而且时间更值钱 毕竟流程很长
 
+
+*****
+
+####  laputah  
+##### 422#       发表于 2026-7-5 14:41
+
+<blockquote>alucardcz 发表于 2026-6-19 18:08
+认真的吗  就没人觉得很怪？</blockquote>
+画成了没下巴需要做手术的人 
+
