@@ -4097,3 +4097,21 @@ b站有动画草图泄露
 
 布料越少，实力越.....<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tigs1  
+##### 1118#       发表于 2026-7-5 22:05
+
+这游戏到底是不是全部角色都是AI画的？我之前怎么看有人说全是AI画的？
+
+*****
+
+####  TheOccuria  
+##### 1119#       发表于 2026-7-5 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69874911&amp;ptid=2256125" target="_blank">tigs1 发表于 2026-7-5 22:05</a>
+
+这游戏到底是不是全部角色都是AI画的？我之前怎么看有人说全是AI画的？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只能这么说，棒游都是有AI明用
+

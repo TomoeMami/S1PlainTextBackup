@@ -331,3 +331,11 @@ dcd的海东大树，究极混沌乐子人，无法ooc之人
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">lady那个梦魇应该还是交给nox解决的吧 毕竟是跟他的剧情强绑定的
 
+
+*****
+
+####  rockroxas  
+##### 2063#       发表于 2026-7-5 22:13
+
+这就是问题，nox需要一条线补充他个人动机到打倒幻影，但主线需不需要nox，那就不好说了……
+
