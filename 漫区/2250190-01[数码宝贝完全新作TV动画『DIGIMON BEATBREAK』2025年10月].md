@@ -26,3 +26,19 @@ gift篇拉完了<img src="https://static.stage1st.com/image/smiley/face2017/067.
 
 还有柴田山口的ds不管怎么样是数码系列第一次主角团4人全员上究极体还有全员爆裂形态的 别到时候就只有俩才能上究极体 反而开倒车了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Antidote丶  
+##### 670#       发表于 2026-7-5 18:51
+
+这一路下来和木星到底在打啥，立场是什么
+
+
+*****
+
+####  66367749  
+##### 671#       发表于 2026-7-5 18:54
+
+这一篇单元剧还行，但从整体上看也太拉了，前面狂水后面草草收尾，boss感觉也没啥牌面，当成过渡篇章集数又太多了
+
