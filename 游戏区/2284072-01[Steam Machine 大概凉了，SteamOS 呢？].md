@@ -2022,3 +2022,13 @@ Linux的音频延迟会低很多，不过主机游戏受众应该不会在意，
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  oldttt  
+##### 188#       发表于 2026-7-6 04:28
+
+骂了好几页 为什么我买不到
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
