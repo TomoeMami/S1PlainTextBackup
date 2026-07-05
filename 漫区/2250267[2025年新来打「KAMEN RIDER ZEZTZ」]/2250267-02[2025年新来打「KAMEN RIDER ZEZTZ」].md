@@ -160,3 +160,23 @@ code辣么大的组织只有七个特工<img src="https://static.stage1st.com/im
 
 目前看下来最后回归传统打怪模式了，坑选择性填几个梦魇相关的，牢师还要等到幻影收束。果然在现在晨间档年番指望搞特别精细的长线不咋可能。武部荒川跨越时间的故事能赢吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  浅川雏羽  
+##### 2048#       发表于 2026-7-5 13:32
+
+要我说橘前辈在当夜神月的时候就应该先把诺老师枪毙了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  封印的右手  
+##### 2049#       发表于 2026-7-5 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69873027&amp;ptid=2250267" target="_blank">名居守 发表于 2026-7-5 13:25</a>
+
+nox就是魔怔复仇人人设啊
+
+话说我很好奇一件事，假面系列里二骑就得是好人吗 ...</blockquote>
+上一个这么莫名其妙的二骑应该是海东吧，完全意义不明<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
