@@ -106,3 +106,11 @@
 
 不算自家动画你游是第一次和新动画同时联动吧？幼女战记二期哭晕在厕所，联动的位置被天降抢了。金字塔不是负心汉的话接下来还有幼女战记的复刻？
 
+
+*****
+
+####  madcow  
+##### 2027#       发表于 2026-7-5 15:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">欸联动魔炮的话那半周年啥时候（
+
