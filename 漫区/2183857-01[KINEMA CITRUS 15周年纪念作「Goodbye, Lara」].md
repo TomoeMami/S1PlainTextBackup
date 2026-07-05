@@ -118,3 +118,67 @@
 拉拉和王子的经历比起童话改动还挺大的。 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说实话我不懂她怎么看穿拉拉特殊之处的，读心术吗
 
+
+*****
+
+####  帝下室の年糕  
+##### 89#       发表于 2026-7-6 00:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69875624&amp;ptid=2183857" target="_blank">堆雪若叶 发表于 2026-7-6 00:23</a>
+二人物语，这次会赢吗</blockquote>
+这啥，还有同步评论的吗
+
+*****
+
+####  一切都毫无意义  
+##### 90#       发表于 2026-7-6 00:34
+
+看访谈最后这一拳的桥段很早就确定下来了，甚至女二的拳击手设定都是因为这个才加上去的
+
+看来这个动作本来就包含了某种“修正”的意味？
+
+*****
+
+####  黑夜夜夜  
+##### 91#       发表于 2026-7-6 00:39
+
+<img src="https://img.stage1st.com/forum/202607/06/003846nooozc884cie4ocx.jpg" referrerpolicy="no-referrer">
+
+<strong>1000017833.jpg</strong> (213.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-6 00:38 上传
+
+<img src="https://img.stage1st.com/forum/202607/06/003847oqcyqqrmsmwc3rfr.jpg" referrerpolicy="no-referrer">
+
+<strong>1000017834.jpg</strong> (241.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-6 00:38 上传
+
+<img src="https://img.stage1st.com/forum/202607/06/003848m90kvd30v065zucs.jpg" referrerpolicy="no-referrer">
+
+<strong>1000017835.jpg</strong> (168.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-6 00:38 上传
+
+<img src="https://img.stage1st.com/forum/202607/06/003849uyjaaya17jm3t668.jpg" referrerpolicy="no-referrer">
+
+<strong>1000017836.jpg</strong> (159.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-6 00:38 上传
+
+<img src="https://img.stage1st.com/forum/202607/06/003850fgky0u2228ykntu2.jpg" referrerpolicy="no-referrer">
+
+<strong>1000017837.jpg</strong> (175.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-6 00:38 上传
+
