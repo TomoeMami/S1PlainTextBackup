@@ -26,3 +26,11 @@ steam夏促现在只要60块钱，是不是现在买个黄金版更超值</block
 
 —— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  alucardcz  
+##### 421#       发表于 2026-7-5 11:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">买新不买旧 而且时间更值钱 毕竟流程很长
+
