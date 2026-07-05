@@ -114,3 +114,14 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">欸联动魔炮的话那半周年啥时候（
 
+
+*****
+
+####  alialex  
+##### 2028#       发表于 2026-7-5 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69872660&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2026-7-5 11:55</a>
+
+不算自家动画你游是第一次和新动画同时联动吧？幼女战记二期哭晕在厕所，联动的位置被天降抢了。金字塔不是 ...</blockquote>
+强袭魔女联动的第三季
+
