@@ -192,3 +192,23 @@ nox就是魔怔复仇人人设啊
 话说我很好奇一件事，假面系列里二骑就得是好人吗 ...</blockquote>
 感觉只是nox执着复仇没什么问题，但是各种要素搭在一起就是有一种说不出的怪味，堪比牛杂中药奶茶的感觉。
 
+
+*****
+
+####  名居守  
+##### 2051#       发表于 2026-7-5 14:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69873069&amp;ptid=2250267" target="_blank">封印的右手 发表于 2026-7-5 13:35</a>
+上一个这么莫名其妙的二骑应该是海东吧，完全意义不明</blockquote>
+别把nox当好人就好了，虽然塑造的有点抽象
+
+小鹰和nox还得分开看，小鹰警官是小鹰警官，nox就是nox
+
+nox被code抛弃后就成魔怔复仇人了，人设就是我不管世界咋样，把能抵抗梦魇的code毁灭了导致人类会咋样我也不管，我只要code死，这集不就是喜闻乐见的复仇成功陷入空虚，都跑到河边准备丢腰带了，而且有自知之明知道自己是罪犯
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后续咋样还没出不知道，这集起码挺符合那种为了复仇不顾一切，复仇成功后陷入空虚的人设的，所以把nox当好人看就会觉得别扭，比如code黑归黑好歹是抵抗梦魇用的这大难当头你咋落井下石，比如你把code毁了怎么不去帮劳莫
+
+所以我就回到上个问题，假面系列里二骑就得默认是好人吗，虽然我觉得nox最后可能会洗白，不过我更想是nox收花退场，搞出这波不死不行
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">主要假面我没看全，系列里有没有那种从一开始就是坏人，中途因为利益相关会和主骑临时联手但本质上就是个坏人的二骑
+
