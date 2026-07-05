@@ -259,3 +259,25 @@
 
 看样子很难苦大仇深得起来啊
 
+
+*****
+
+####  Rhantolk  
+##### 96#       发表于 2026-7-6 01:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69875720&amp;ptid=2183857" target="_blank">堆雪若叶 发表于 2026-7-6 01:01</a>
+
+应该说是拉拉的特殊之处让她感兴趣姨妈也就是在拉拉对外面的世界表示兴趣的时候变了神态，但应该也不是彻 ...</blockquote>
+这很难判断吧，外面的世界和人类的世界不能直接画等号，在此之前拉拉并不了解所谓人类世界的存在
+
+
+*****
+
+####  堆雪若叶  
+##### 97#       发表于 2026-7-6 01:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69875749&amp;ptid=2183857" target="_blank">Rhantolk 发表于 2026-7-6 01:16</a>
+
+这很难判断吧，外面的世界和人类的世界不能直接画等号，在此之前拉拉并不了解所谓人类世界的存在 ...</blockquote>
+所以魔女姨妈没下定论啊，后面说了两次无聊也说明她只是试探拉拉
+
