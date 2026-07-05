@@ -313,3 +313,13 @@ dcd的海东大树，究极混沌乐子人，无法ooc之人
 
 那么问题来了，nox心结先放一边，他变不变好像真没区别了……
 
+
+*****
+
+####  blue321  
+##### 2061#       发表于 2026-7-5 19:39
+
+这就是编剧吹了好久会有描写的NOX吗，感觉太水了吧……
+
+而且不会真就这么BAN到结局吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -90,3 +90,11 @@ gift篇拉完了<img src="https://static.stage1st.com/image/smiley/face2017/067.
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">新角色没立起来，老角色原地打转，既没新形态出场主线也没大的进展，台词上还全是爱啊家人啊大而空的白话，这一整个篇章的意义在哪？
 
+
+*****
+
+####  cjcjiang  
+##### 675#       发表于 2026-7-5 19:41
+
+这个gift篇结尾真难看，前面全白瞎了。
+
