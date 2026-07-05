@@ -182,3 +182,52 @@
 
 2026-7-6 00:38 上传
 
+
+*****
+
+####  堆雪若叶  
+##### 92#       发表于 2026-7-6 00:46
+
+ 本帖最后由 堆雪若叶 于 2026-7-6 00:48 编辑 
+
+『さよならララ』ができるまでを辿る、全3回のメイキング映像の公開が決定✨
+
+今回は”企画のはじまり”を辿る、企画始動編を公開。
+
+▷[https://youtube.com/watch?v=a_xMMi3bFDQ](https://youtube.com/watch?v=a_xMMi3bFDQ)
+
+大概会放三期视频讲制作幕后，这期是采访监督小出卓史和制作人上田清香聊企划初部分。放了不少初设的资料，早期乱七八糟的元素很多，什么神秘鲨卷风都来了。看起来拉拉的人设变动是最大的，茉里这个拳击少女倒是一点没变。那时候系构也没定下来，之前也有访谈提到人鱼公主的设定也是川原杏奈加入之后才敲定的。企划是21年就开始的，之前应该在一些线下见面也有过相关repo了，其实是在少歌剧场版刚上映的时候小笠原社长就找到小出问他要不要个人主导一部片子，然后在原创和改编之间小出选择了前者。后面还讲一些人鱼公主琵琶湖之类设定是如何考量的，细节看有没有烤肉man了。另外讲如何设定场景的时候小出还不忘提一嘴他师傅古川，古川最近推上聊小出也很勤，两人真的师徒情深<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">视频也透了一下总共12集
+
+<img src="https://p.sda1.dev/33/4eb978bd7a885b3b8e4b1d4ace25b2c7/videoplayback.mp4_000159.918.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/f52f5b46dae5021e908c2868ee89f02e/videoplayback.mp4_000203.110.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/ae273dc074e01e0c89e07e8e106d09ff/videoplayback.mp4_000205.548.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/062a284c0df6280e82e2dc3d1ad067bf/videoplayback.mp4_000208.114.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/6c375ea96636819c59405b6e5d2f16a3/videoplayback.mp4_000211.000.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/34e88c7d12887a7fd0a2e705321652c9/videoplayback.mp4_000213.423.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/f5b13e9381b6bdd68a82e1a5a7c33629/videoplayback.mp4_000232.101.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/396c306351fff76bc7e28fd7f6115cbe/videoplayback.mp4_000234.538.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/5cdcdd5029624056023bca3e51528ba9/videoplayback.mp4_000237.376.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/af27af2d9048dfd946e424721b409c8a/videoplayback.mp4_000247.766.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/036aea312c6c46a2ce90a17139b45349/videoplayback.mp4_000250.701.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/47f83c0f8df19318191c39d200dfbc3d/videoplayback.mp4_000253.474.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/8bb51a568a24b2f28cfa119b4c2ebe4a/videoplayback.mp4_000255.672.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/85fae4b1373469d2fcc711b4a6022173/videoplayback.mp4_000344.591.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/e3d8f6d024e2b9b4ecc1e78b80065e72/videoplayback.mp4_000347.653.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/450e8a4d9f0142b1421c61103e3fb057/videoplayback.mp4_000350.778.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/275be289484a2294efe8bf346f7f226d/videoplayback.mp4_000354.959.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/29b8073fb42a5ef5d2928f5fddcb8e59/videoplayback.mp4_000826.345.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/e1a8bcf778bf90e95b296215bf2b91ed/videoplayback.mp4_000830.206.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/4cd72fa4eac410330ce6e5bb9b799212/videoplayback.mp4_000843.044.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/8d5c6b87c7db5bf9cd3f35b90c6ed38e/videoplayback.mp4_000846.346.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/11ab13b052e67583f821fa1696cd8c19/videoplayback.mp4_000849.024.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  堆雪若叶  
+##### 93#       发表于 2026-7-6 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69875658&amp;ptid=2183857" target="_blank">帝下室の年糕 发表于 2026-7-6 00:34</a>
+
+这啥，还有同步评论的吗</blockquote>
+监督和制作人聊幕后的视频，这句是制作人说的，刚好配上动画这幕了
+
