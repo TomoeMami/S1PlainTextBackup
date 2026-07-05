@@ -4115,3 +4115,23 @@ b站有动画草图泄露
 这游戏到底是不是全部角色都是AI画的？我之前怎么看有人说全是AI画的？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只能这么说，棒游都是有AI明用
 
+
+*****
+
+####  TheOccuria  
+##### 1120#       发表于 2026-7-5 22:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回坑后市长大保底接小保底，泰妮小保底歪了，好像一个赛季也就这么多资源？
+
+
+*****
+
+####  西瓜不甜不甜  
+##### 1121#       发表于 2026-7-5 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69874911&amp;ptid=2256125" target="_blank">tigs1 发表于 2026-7-5 22:05</a>
+这游戏到底是不是全部角色都是AI画的？我之前怎么看有人说全是AI画的？</blockquote>
+后面新出的角色比如市长明显精致很多，估计是有被喷过，然后限定角色也有单独修改调整过。
+
+但前面的角色有点过于明目张胆了，我刚玩的时候都看傻了。尤其那个黑皮白毛妹
+
