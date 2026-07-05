@@ -7080,3 +7080,13 @@ Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他
 
 至于投到杂志社之后反响什么样你别问<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ww-tsl  
+##### 2070#       发表于 2026-7-5 16:45
+
+AI文案流行起来的一个副作用是一听到AI念稿“不是XX而是OO”就会抓狂。
+
+就算没有这个AI专用句式，也能很容易分辨出AI文案和活人文案了，那种特有的啰嗦感无处不在。
+
