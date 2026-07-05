@@ -98,3 +98,18 @@ gift篇拉完了<img src="https://static.stage1st.com/image/smiley/face2017/067.
 
 这个gift篇结尾真难看，前面全白瞎了。
 
+
+*****
+
+####  zechins  
+##### 676#       发表于 2026-7-5 20:22
+
+新篇竟然是京哥过去，嗜血观众期待起来了<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yeaha123  
+##### 677#       发表于 2026-7-5 20:23
+
+gift和王会长都没逼格了
+
