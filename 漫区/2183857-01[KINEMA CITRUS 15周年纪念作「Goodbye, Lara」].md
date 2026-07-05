@@ -231,3 +231,31 @@
 这啥，还有同步评论的吗</blockquote>
 监督和制作人聊幕后的视频，这句是制作人说的，刚好配上动画这幕了
 
+
+*****
+
+####  堆雪若叶  
+##### 94#       发表于 2026-7-6 01:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69875649&amp;ptid=2183857" target="_blank">Rhantolk 发表于 2026-7-6 00:29</a>
+
+说实话我不懂她怎么看穿拉拉特殊之处的，读心术吗</blockquote>
+应该说是拉拉的特殊之处让她感兴趣<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">姨妈也就是在拉拉对外面的世界表示兴趣的时候变了神态，但应该也不是彻底看穿拉拉了
+
+*****
+
+####  一切都毫无意义  
+##### 95#       发表于 2026-7-6 01:01
+
+ 本帖最后由 一切都毫无意义 于 2026-7-6 01:04 编辑 
+<blockquote>堆雪若叶 发表于 2026-7-6 00:46
+『さよならララ』ができるまでを辿る、全3回のメイキング映像の公開が決定✨
+
+今回は”企画のはじまり”を辿 ...</blockquote>
+
+原来女主还有不良大姐头版本
+
+鲨卷风都出来了，一开始是这么搞的企划吗
+
+看样子很难苦大仇深得起来啊
+
