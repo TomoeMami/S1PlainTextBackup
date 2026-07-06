@@ -463,3 +463,14 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还有我想到一个问题，人鱼吃鱼是不是相当于人类吃猴子啊？
 
+
+*****
+
+####  Rhantolk  
+##### 109#       发表于 2026-7-6 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69880833&amp;ptid=2183857" target="_blank">199april 发表于 2026-7-6 22:03</a>
+
+还有我想到一个问题，人鱼吃鱼是不是相当于人类吃猴子啊？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这人鱼看着已经超脱一般生物范畴了，除了有鱼尾巴我觉得和鱼应该八竿子打不着。。又不是进化来的
+
