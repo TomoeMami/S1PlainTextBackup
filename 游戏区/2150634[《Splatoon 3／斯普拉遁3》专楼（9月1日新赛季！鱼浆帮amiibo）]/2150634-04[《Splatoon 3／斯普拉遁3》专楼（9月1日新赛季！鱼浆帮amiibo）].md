@@ -66,3 +66,13 @@ QQ截图20260706104355.jpg
 
 现在打工的正常人已经很少了，野排的时候经常遇到各种神人
 
+
+*****
+
+####  KIRI小威  
+##### 5906#       发表于 2026-7-6 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69877521&amp;ptid=2150634" target="_blank">stoiorz 发表于 2026-7-6 10:58</a>
+S段位大概是鱼塘边缘吧。S+开始X里接受折磨。</blockquote>
+这游戏段位也太多了，原来还有X赛<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我还以为S就不赖了原来才是刚刚鱼塘
+
