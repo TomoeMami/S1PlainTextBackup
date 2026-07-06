@@ -74,3 +74,18 @@ steam夏促现在只要60块钱，是不是现在买个黄金版更超值</block
 你仔细看，千枝漏出了李小龙服饰的一个边角
 女角色的泳装被删了
 
+
+*****
+
+####  czxiang_0  
+##### 426#       发表于 2026-7-6 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69877090&amp;ptid=2253117" target="_blank">otaku21126 发表于 2026-7-6 10:17</a>
+
+错了，是把泳装选美环节改成女性自信选美桥段了
+
+你仔细看，千枝漏出了李小龙服饰的一个边角
+
+女角色的泳装 ...</blockquote>
+纳尼！！！泳装都删了！！！<img src="https://static.stage1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
