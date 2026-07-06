@@ -7106,3 +7106,21 @@ AI文案流行起来的一个副作用是一听到AI念稿“不是XX而是OO”
 
 现在code方向的agent应用过于特化，等更加泛用的前端工具出来后，活人感要好很多
 
+
+*****
+
+####  舞以  
+##### 2072#       发表于 2026-7-6 19:34
+
+草，猫老板被藤子招安了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202607/06/193358tmesumdmb20228qy.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>img_6899.jpeg</strong> (438.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-6 19:33 上传
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

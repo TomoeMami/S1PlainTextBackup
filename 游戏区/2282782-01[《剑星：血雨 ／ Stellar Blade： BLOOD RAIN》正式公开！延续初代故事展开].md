@@ -4445,3 +4445,16 @@ PV中的配乐
 
 🎶音乐制作：Youngjee Lee (SHIFT UP), Aejin Kwon
 
+
+*****
+
+####  Piano-Forest  
+##### 435#         楼主| 发表于 2026-7-6 19:30
+
+PV中的另一首
+
+【Off The Line - 《Stellar Blade: BLOOD RAIN》预告片中OST】 
+[https://b23.tv/tmyEYIY](https://b23.tv/tmyEYIY)
+
+音乐制作： Youngjee Lee (SHIFT UP) 
+
