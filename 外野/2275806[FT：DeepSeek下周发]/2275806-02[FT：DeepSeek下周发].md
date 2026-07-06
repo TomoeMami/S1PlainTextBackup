@@ -7173,3 +7173,14 @@ AI文案流行起来的一个副作用是一听到AI念稿“不是XX而是OO”
 这么搞效果可能是好，但是token耗费可能会指数级飙升哦？</blockquote>
 消耗token还是小事，主要是5分钟才能撸下一阶段实在很难绷，还是用在生产端吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 2077#       发表于 2026-7-6 23:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69881094&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-7-6 23:23</a>
+
+消耗token还是小事，主要是5分钟才能撸下一阶段实在很难绷，还是用在生产端吧 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你别说其实审稿之后再出还挺快的，篇幅短一点就行，不过可能是我审稿提示词没调好，他变成不看全篇上下文内容光抓关键词了，有的地方描写问题不大他也会硬抓出来
+
