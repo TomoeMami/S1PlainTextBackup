@@ -474,3 +474,15 @@
 还有我想到一个问题，人鱼吃鱼是不是相当于人类吃猴子啊？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这人鱼看着已经超脱一般生物范畴了，除了有鱼尾巴我觉得和鱼应该八竿子打不着。。又不是进化来的
 
+
+*****
+
+####  ParadiseMartyr  
+##### 110#       发表于 2026-7-6 23:45
+
+我还觉得挺好看的啊，<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+主要是感觉美人鱼形象都被迪士尼淹入味儿了，换个口味儿感觉还挺新鲜的
+而且确实非常想看这些有缺憾的童话故事的happy ever after
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
