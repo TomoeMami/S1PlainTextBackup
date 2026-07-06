@@ -7139,3 +7139,11 @@ AI文案流行起来的一个副作用是一听到AI念稿“不是XX而是OO”
 一个草稿</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这么搞效果可能是好，但是token耗费可能会指数级飙升哦？
 
+
+*****
+
+####  novem  
+##### 2074#       发表于 2026-7-6 21:22
+
+现在网页端flash带联网搜索变得超级弱智，我怀疑都不如豆包，这算力危机什么时候才能结束啊
+
