@@ -7147,3 +7147,18 @@ AI文案流行起来的一个副作用是一听到AI念稿“不是XX而是OO”
 
 现在网页端flash带联网搜索变得超级弱智，我怀疑都不如豆包，这算力危机什么时候才能结束啊
 
+
+*****
+
+####  阿刚  
+##### 2075#       发表于 2026-7-6 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69875596&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-7-6 00:15</a>
+
+按照酒馆的多agent方向，AI文案可能要两三个agent+skill才能有活人感
+
+一个风格大纲
+
+一个草稿</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">试了下子agent单独审查内容，可能是我的禁词过得太狠了，有点过拟合，感觉还是有点折腾了，光写小段子不值得
+
