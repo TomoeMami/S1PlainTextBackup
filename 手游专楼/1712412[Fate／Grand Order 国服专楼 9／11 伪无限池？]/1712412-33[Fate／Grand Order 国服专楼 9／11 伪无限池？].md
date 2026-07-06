@@ -33,3 +33,14 @@
 快20池了，一张都没有</blockquote>
 我大号是40池才掉了两张<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dawning  
+##### 47874#       发表于 2026-7-6 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69868688&amp;ptid=1712412" target="_blank">khxooo 发表于 2026-7-4 11:35</a>
+
+我大号是40池才掉了两张</blockquote>
+同样四十池两张，已气笑<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
