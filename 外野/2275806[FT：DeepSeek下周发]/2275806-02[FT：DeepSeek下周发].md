@@ -7210,3 +7210,19 @@ AI文案流行起来的一个副作用是一听到AI念稿“不是XX而是OO”
 
 我还没用上这么复杂的功能<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永远的访客  
+##### 2080#       发表于 2026-7-7 00:23
+
+吹捧也罢了，今天查一个问题的原因直接又把我带沟里我追问确认还嘴硬，还好和隔壁答案对比一下再自己分析一下没走得太远最后他终于恍然大悟看来还是你说的对，一次可以抵得上多少句了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ly4236  
+##### 2081#       发表于 2026-7-7 00:32
+
+不知道ai什么时候有直觉这种玩意(
+
