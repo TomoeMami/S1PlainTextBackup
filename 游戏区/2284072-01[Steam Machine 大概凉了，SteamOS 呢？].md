@@ -2051,3 +2051,17 @@ Linux的音频延迟会低很多，不过主机游戏受众应该不会在意，
 
 os要搭配手柄的 没手柄体验差一档
 
+
+*****
+
+####  喵喵叫的猫  
+##### 191#       发表于 2026-7-6 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69875886&amp;ptid=2284072" target="_blank">oldttt 发表于 2026-7-6 04:28</a>
+骂了好几页 为什么我买不到
+
+—— 来自 S1Fun</blockquote>
+不是komodo香港到现在都还有货吗
+国内手柄溢价高 8200买个512加手柄的套餐
+1600+轻松把手柄出了 相当于6000多买主机了
+

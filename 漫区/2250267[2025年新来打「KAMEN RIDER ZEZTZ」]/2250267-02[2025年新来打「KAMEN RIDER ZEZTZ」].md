@@ -339,3 +339,20 @@ dcd的海东大树，究极混沌乐子人，无法ooc之人
 
 这就是问题，nox需要一条线补充他个人动机到打倒幻影，但主线需不需要nox，那就不好说了……
 
+
+*****
+
+####  饭冢武也  
+##### 2064#       发表于 2026-7-6 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69873271&amp;ptid=2250267" target="_blank">milky658 发表于 2026-7-5 14:31</a>
+
+假面骑士二骑主要就两种模式。一种竞争对手宿敌位，一个合作伙伴队友位，两种模式随剧情慢慢变化
+
+特殊一 ...</blockquote>
+NOX橘前辈加睦月哈哈哈哈哈
+
+正经的时候说话抽象，队友根本分不清是不是队友，对应前期橘前辈
+
+到了正经当你是队友了，你开始迷茫，行为抽象，敌我不分<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
