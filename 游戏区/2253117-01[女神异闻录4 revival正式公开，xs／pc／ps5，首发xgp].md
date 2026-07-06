@@ -97,3 +97,18 @@ steam夏促现在只要60块钱，是不是现在买个黄金版更超值</block
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有点恶心了，本来立绘就画成一坨屎，还改这种地方，有点不太想买了。
 
+
+*****
+
+####  moeful  
+##### 428#       发表于 2026-7-7 01:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69877090&amp;ptid=2253117" target="_blank">otaku21126 发表于 2026-7-6 10:17</a>
+
+错了，是把泳装选美环节改成女性自信选美桥段了
+
+你仔细看，千枝漏出了李小龙服饰的一个边角
+
+女角色的泳装 ...</blockquote>
+啊？？？喷了，本来还突然有了购买欲望，你这么一说就完全没了
+
