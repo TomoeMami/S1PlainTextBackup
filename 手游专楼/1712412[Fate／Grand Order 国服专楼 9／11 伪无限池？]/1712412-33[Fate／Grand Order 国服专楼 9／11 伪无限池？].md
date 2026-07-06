@@ -44,3 +44,11 @@
 我大号是40池才掉了两张</blockquote>
 同样四十池两张，已气笑<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  atomicink  
+##### 47875#       发表于 2026-7-6 10:14
+
+满破1张礼装了，开始自回体
+
