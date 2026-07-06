@@ -7162,3 +7162,14 @@ AI文案流行起来的一个副作用是一听到AI念稿“不是XX而是OO”
 一个草稿</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">试了下子agent单独审查内容，可能是我的禁词过得太狠了，有点过拟合，感觉还是有点折腾了，光写小段子不值得
 
+
+*****
+
+####  绝地潜兵  
+##### 2076#       发表于 2026-7-6 23:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69880669&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-7-6 21:13</a>
+
+这么搞效果可能是好，但是token耗费可能会指数级飙升哦？</blockquote>
+消耗token还是小事，主要是5分钟才能撸下一阶段实在很难绷，还是用在生产端吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
