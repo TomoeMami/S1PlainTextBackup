@@ -87,3 +87,14 @@ MI系列最早就是参考狼印后续开发的，故事背景就在南镇啊。
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  玉之龙  
+##### 764#       发表于 2026-7-7 06:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69881301&amp;ptid=2085684" target="_blank">7do 发表于 2026-7-7 00:59</a>
+京和八神作为拳皇主角，感觉很少和别家联动啊，印象中就没有
+舞和Terry感觉到处都是</blockquote>
+腾讯天美那个似掉的仿大乱斗王者ip游戏联动了草薙京和八神庵<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
