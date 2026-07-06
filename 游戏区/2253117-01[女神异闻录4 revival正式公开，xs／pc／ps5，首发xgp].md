@@ -89,3 +89,11 @@ steam夏促现在只要60块钱，是不是现在买个黄金版更超值</block
 女角色的泳装 ...</blockquote>
 纳尼！！！泳装都删了！！！<img src="https://static.stage1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  suzakushi  
+##### 427#       发表于 2026-7-6 16:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有点恶心了，本来立绘就画成一坨屎，还改这种地方，有点不太想买了。
+
