@@ -384,3 +384,14 @@ NOX橘前辈加睦月哈哈哈哈哈
 
 不过这样的话有点俗套了
 
+
+*****
+
+####  失落之翼  
+##### 2068#       发表于 2026-7-6 18:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69851589&amp;ptid=2250267" target="_blank">haoshion 发表于 2026-6-30 17:12</a>
+
+code辣么大的组织只有七个特工其他都是吃白饭的</blockquote>
+看着像是原典是研究1号橘前辈的惩戒开始的，然后幻影找上了2号夫人生下了忘却，3,4,5,6工具人或者试验品，12都跑了研究7的灾厄来对抗？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
