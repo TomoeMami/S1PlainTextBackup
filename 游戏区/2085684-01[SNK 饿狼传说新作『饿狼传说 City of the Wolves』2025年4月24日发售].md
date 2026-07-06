@@ -76,3 +76,14 @@ MI系列最早就是参考狼印后续开发的，故事背景就在南镇啊。
 主要是那会SNKp自己也没想着开发饿狼新作吧。</blockquote>
 结果现在SNK大概率要重启3D格斗了，还找来了原田，饿狼出了新作，龙虎可能也要出新作2333
 
+
+*****
+
+####  7do  
+##### 763#       发表于 2026-7-7 00:59
+
+京和八神作为拳皇主角，感觉很少和别家联动啊，印象中就没有
+舞和Terry感觉到处都是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
