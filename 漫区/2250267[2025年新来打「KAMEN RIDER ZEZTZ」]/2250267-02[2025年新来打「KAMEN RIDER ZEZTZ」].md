@@ -372,3 +372,15 @@ NOX橘前辈加睦月哈哈哈哈哈
 
 感觉nox是那种会喊xx后整顿职场的人，难怪当初code不愿救他。要我说他的目的还不如是干掉zero呢
 
+
+*****
+
+####  失落之翼  
+##### 2067#       发表于 2026-7-6 18:15
+
+所以接下来是橘前辈干惩戒吗？然后母女打完幻影和忘却?
+
+感觉会是以忘却为基底吸收四大天王变成最终boss吧？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+不过这样的话有点俗套了
+
