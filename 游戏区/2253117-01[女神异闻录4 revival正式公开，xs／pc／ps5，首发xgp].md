@@ -62,3 +62,15 @@ steam夏促现在只要60块钱，是不是现在买个黄金版更超值</block
 
 说实话，新动画不错。马趴直接出动画重制多好，反正我不想再打一遍了
 
+
+*****
+
+####  otaku21126  
+##### 425#       发表于 2026-7-6 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69872003&amp;ptid=2253117" target="_blank">moeful 发表于 2026-7-5 08:30</a>
+理世的PV出来了，新增了p4d衣装，然后10/30大概是学院祭的时候新加了理世的live ...</blockquote>
+错了，是把泳装选美环节改成女性自信选美桥段了
+你仔细看，千枝漏出了李小龙服饰的一个边角
+女角色的泳装被删了
+
