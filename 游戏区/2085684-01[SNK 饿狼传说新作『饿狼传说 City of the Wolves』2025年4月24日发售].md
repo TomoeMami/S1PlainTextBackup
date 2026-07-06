@@ -63,3 +63,16 @@ MI系列最早就是参考狼印背景开发的。
 
 那会SNKp自己也没想着开发饿狼新作吧
 
+
+*****
+
+####  ナルバレック  
+##### 762#       发表于 2026-7-6 23:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69880777&amp;ptid=2085684" target="_blank">adretyu67. 发表于 2026-7-6 21:46</a>
+
+MI系列最早就是参考狼印后续开发的，故事背景就在南镇啊。
+
+主要是那会SNKp自己也没想着开发饿狼新作吧。</blockquote>
+结果现在SNK大概率要重启3D格斗了，还找来了原田，饿狼出了新作，龙虎可能也要出新作2333
+
