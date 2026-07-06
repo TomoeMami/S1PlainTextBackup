@@ -7184,3 +7184,11 @@ AI文案流行起来的一个副作用是一听到AI念稿“不是XX而是OO”
 消耗token还是小事，主要是5分钟才能撸下一阶段实在很难绷，还是用在生产端吧 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你别说其实审稿之后再出还挺快的，篇幅短一点就行，不过可能是我审稿提示词没调好，他变成不看全篇上下文内容光抓关键词了，有的地方描写问题不大他也会硬抓出来
 
+
+*****
+
+####  ymm1030  
+##### 2078#       发表于 2026-7-6 23:59
+
+突然发现，deepseek真的是下周发了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

@@ -28,3 +28,11 @@ https://github.com/MikeTheWiTness/Proseproof
 
 让AI部署了个一键打地鼠的小程序，启动以后只要有wps相关进程就自动结束进程，现在再也不弹更新框跳脸了
 
+
+*****
+
+####  zhuzhu47  
+##### 50#       发表于 2026-7-7 00:02
+
+最近在用ai蒸馏galgame，然后结合蒸馏成果玩roleplay
+
