@@ -60,3 +60,11 @@ m设确实还是在人物面部塑造上尝试些新东西
 
 哈哈哈哈哈哈
 
+
+*****
+
+####  richardkisser  
+##### 1956#       发表于 2026-7-6 11:36
+
+看了才知道，打光和阴影不是那么容易就能调出好效果的，只能取舍<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
