@@ -7124,3 +7124,18 @@ AI文案流行起来的一个副作用是一听到AI念稿“不是XX而是OO”
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  阿刚  
+##### 2073#       发表于 2026-7-6 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69875596&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-7-6 00:15</a>
+
+按照酒馆的多agent方向，AI文案可能要两三个agent+skill才能有活人感
+
+一个风格大纲
+
+一个草稿</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这么搞效果可能是好，但是token耗费可能会指数级飙升哦？
+
