@@ -2032,3 +2032,14 @@ Linux的音频延迟会低很多，不过主机游戏受众应该不会在意，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  葛雷新  
+##### 189#       发表于 2026-7-6 08:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69871913&amp;ptid=2284072" target="_blank">nice女武神 发表于 2026-7-5 07:46</a>
+
+听说这机器会三红？</blockquote>
+同问~~~~~~~~~~~~
+
