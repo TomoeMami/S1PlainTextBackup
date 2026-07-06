@@ -7192,3 +7192,21 @@ AI文案流行起来的一个副作用是一听到AI念稿“不是XX而是OO”
 
 突然发现，deepseek真的是下周发了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绝地潜兵  
+##### 2079#       发表于 2026-7-7 00:14
+
+ 本帖最后由 绝地潜兵 于 2026-7-7 00:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69881171&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-7-6 23:49</a>
+
+你别说其实审稿之后再出还挺快的，篇幅短一点就行，不过可能是我审稿提示词没调好，他变成不看全篇上下文 ...</blockquote>
+[https://github.com/Lol1p0p/narrative-agent](https://github.com/Lol1p0p/narrative-agent)
+
+可以看看这个项目：
+
+多 Agent 叙事系统（Narrative Agent）
+
+我还没用上这么复杂的功能<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
