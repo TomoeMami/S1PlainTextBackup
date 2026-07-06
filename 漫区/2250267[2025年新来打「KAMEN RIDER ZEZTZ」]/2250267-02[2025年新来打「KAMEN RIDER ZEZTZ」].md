@@ -364,3 +364,11 @@ NOX橘前辈加睦月哈哈哈哈哈
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实趴在地上想一想，nox目前干的事其实没有塌房
 
+
+*****
+
+####  風卷豹  
+##### 2066#       发表于 2026-7-6 17:47
+
+感觉nox是那种会喊xx后整顿职场的人，难怪当初code不愿救他。要我说他的目的还不如是干掉zero呢
+
