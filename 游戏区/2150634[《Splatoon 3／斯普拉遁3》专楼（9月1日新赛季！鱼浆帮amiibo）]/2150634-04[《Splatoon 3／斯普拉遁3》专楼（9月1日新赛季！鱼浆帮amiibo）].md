@@ -76,3 +76,16 @@ QQ截图20260706104355.jpg
 S段位大概是鱼塘边缘吧。S+开始X里接受折磨。</blockquote>
 这游戏段位也太多了，原来还有X赛<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我还以为S就不赖了原来才是刚刚鱼塘
 
+
+*****
+
+####  stoiorz  
+##### 5907#       发表于 2026-7-6 12:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69878047&amp;ptid=2150634" target="_blank">KIRI小威 发表于 2026-7-6 12:03</a>
+
+这游戏段位也太多了，原来还有X赛，我还以为S就不赖了原来才是刚刚鱼塘</blockquote>
+熟手都是赛季初期就进S+开始卷X，S+1-50的真格都成老登的训练场了。
+
+胜负和分数别看的太重，否则很容易内耗。在劣势时候也学会享受PVP才是关键。【说的很轻松是这样...
+

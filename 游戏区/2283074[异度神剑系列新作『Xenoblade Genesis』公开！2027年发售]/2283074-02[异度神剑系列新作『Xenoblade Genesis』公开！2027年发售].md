@@ -68,3 +68,13 @@ m设确实还是在人物面部塑造上尝试些新东西
 
 看了才知道，打光和阴影不是那么容易就能调出好效果的，只能取舍<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ArthurDent  
+##### 1957#       发表于 2026-7-6 12:10
+
+三牛老师总是能找到令人眼前一亮的角度输出高质量内容<img src="https://static.stage1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
