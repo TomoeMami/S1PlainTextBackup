@@ -496,3 +496,17 @@
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  暗黑能乐  
+##### 112#       发表于 2026-7-7 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69881242&amp;ptid=2183857" target="_blank">7do 发表于 2026-7-7 00:25</a>
+怎么不是黑妹
+
+— from S1 Next Goose v3.5.99</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这年头应该不太有能接受那么黑的。。
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

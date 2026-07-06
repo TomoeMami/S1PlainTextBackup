@@ -7226,3 +7226,26 @@ AI文案流行起来的一个副作用是一听到AI念稿“不是XX而是OO”
 
 不知道ai什么时候有直觉这种玩意(
 
+
+*****
+
+####  阿刚  
+##### 2082#       发表于 2026-7-7 00:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69881253&amp;ptid=2275806" target="_blank">ly4236 发表于 2026-7-7 00:32</a>
+
+不知道ai什么时候有直觉这种玩意(</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">这个真没有，或者说他表现出来的直觉其实是你提问的时候的直觉导向带出来的？反正亲身用下来的感觉就是无论角色扮演再怎么有像人的错觉，他就真的不是人
+
+
+*****
+
+####  hugosol  
+##### 2083#       发表于 2026-7-7 00:41
+
+我现在用LLM的经验是，你不要问开放性的问题，比如xx是怎样的？
+
+而是把概念用自己的理解跟它讲一遍，这种情况下幻觉的几率理论上会低一点
+
+它会出现几种回答，“不对，xxx”，“大体上正确，但是我要更正一个细节”“你的理解完全正确”
+
