@@ -12,3 +12,11 @@ https://github.com/MikeTheWiTness/Proseproof
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  FeteFrumoase  
+##### 48#       发表于 2026-7-6 18:46
+
+我哥是财务相关，天天研究用这个写python实现他的需求，前两天来我这吃饭，在我妈做饭的时候，先按着我到电脑前，研究如何写skill ，研究mcp和agent是什么
+
