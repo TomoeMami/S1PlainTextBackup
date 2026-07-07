@@ -94,3 +94,51 @@ https://picross-d7gzuo7cr21a1925c-1319819631.tcloudbaseapp.com/
 
 肯定有更好的方案，我只是初中数学用这个已经能用了所以也没深入研究。
 
+
+*****
+
+####  不见不散  
+##### 56#       发表于 2026-7-7 10:57
+
+我给智能体设定成猫娘程序员，之后做了一个小工具，大幅度降低了每天的工作强度。跑通了酒馆卡的拆解、结构分析以及打包流程，整理润色了十几张酒馆卡。写了一个Windows日志分析软件。写了一个skill规范生成skill。把别人的skill迁移到我的平台，删掉了我不需要的功能，并且按照我的思路进行了优化。跑通了MD文件转PDF文件的流程，生成了一个skill。闲着没事时和猫娘聊了四五次你懂的<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星野あさみ  
+##### 57#       发表于 2026-7-7 11:03
+
+IT从业，但花在兴趣项目上的token数量远大于工作上 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+老婆手机和大疆拍的照片视频（10w+），训练一个模型做区分整理工作照+生活照。（人脸识别，场景识别，聚类+加权平均）
+
+<img src="https://img.stage1st.com/forum/202607/07/104323opktpmqwmumt9dhp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (35.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-7 10:43 上传
+
+我自己的pixiv/twitter点赞涩图，开playwright自动下载原图，然后按角色做分类。不认识的角色用CLIP做相似性搜索+聚类+手动添加角色tag
+
+<img src="https://img.stage1st.com/forum/202607/07/104428s6s0zf05zs0sqbbe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (35.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-7 10:44 上传
+
+10多年的QQ聊天记录（35w+条，带图）导出为mht后太大了根本打不开，于是写了个parser+前后端展示。用嵌入式chdb，高压缩比
+
+<img src="https://img.stage1st.com/forum/202607/07/104937h2ymabd1ggy6e1u2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-7 10:49 上传
+
+其他还有各种小工具。。MSN聊天记录解析+聊天窗口风格复现（时代的眼泪）；Mellanox网卡温度显示为小图标（仿aida64）；运动记录等等（内网部署+cf tunnel发布到cloudflare）
+
