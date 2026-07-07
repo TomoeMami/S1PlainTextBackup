@@ -149,3 +149,25 @@ MI系列最早就是参考狼印后续开发的，故事背景就在南镇啊。
 
 SNK有石油爹的财力支撑, 资金方面肯定是绰绰有余的, 就看业界有没有那么多人愿意给snk/原田卖力咯(snk的微薄的3d ftg技术积累跟没有一样)<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 770#       发表于 2026-7-7 12:20
+
+ 本帖最后由 ナルバレック 于 2026-7-7 12:22 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69881805&amp;ptid=2085684" target="_blank">风夏 发表于 2026-7-7 08:41</a>
+
+不要过度拔高snk的产出能力啊</blockquote>
+一直在疯狂扩招，虽然狼城技术力上还是落后的，但是后续更新上确实还算给力的，比当初放养式更新的拳皇15更新频率快了好多倍，量也大，因为一直在大招工，沙特收购后SNK财报利润都是大亏的，完全是在沙特老大的支持下扩规模和增生产线
+
+*****
+
+####  ナルバレック  
+##### 771#       发表于 2026-7-7 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69881591&amp;ptid=2085684" target="_blank">琴酒 发表于 2026-7-7 07:22</a>
+
+侍魂差不多完了吧 会不会有月华新作</blockquote>
+侍魂有新作ARPG的企划，和龙虎之拳新作是差不多时间上马的企划，月华暂时没有任何计划，也就上作侍魂带了点DLC内容
+
