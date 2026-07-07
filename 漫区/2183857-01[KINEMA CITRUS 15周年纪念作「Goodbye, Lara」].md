@@ -667,3 +667,11 @@ Staff
 
 2026-7-7 22:21 上传
 
+
+*****
+
+####  最强惠酱  
+##### 121#       发表于 2026-7-8 00:01
+
+浓郁的怀旧精神，舌头里面有个艹字怪怪的，像是全盛时期gainax会做的动画，开头第一幕给了结局合照是没想到的，只有柏拉图式的女女关系性才算是真实的爱<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
