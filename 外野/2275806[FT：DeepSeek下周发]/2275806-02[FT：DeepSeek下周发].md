@@ -7679,3 +7679,20 @@ B站可以搜一下那个一句话生成CSGO的示例看看新版本效果
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  绝地潜兵  
+##### 2105#       发表于 2026-7-8 01:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69882973&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-7-7 11:28</a>
+
+魔法提示词应该是有的，不过来源可能是英语中一些专业词汇，中文没有精确对应含义的词语，训练语料中大量存 ...</blockquote>
+我上面那个其实是伪skill，优化成完整体是agent调用工具查阅wiki和网站交叉验证
+
+不过太累了，当做普通提示词能跑就行……
+
+design tree这个不错，扔给GLM分析评价为卓越适应性，等周末再优化一版
+
+另外其他坛友提出的纯中文语言自然简化有好处，也存在坏处——就是很容易 淹没在上下文之中
+
