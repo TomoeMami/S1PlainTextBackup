@@ -132,3 +132,11 @@ steam夏促现在只要60块钱，是不是现在买个黄金版更超值</block
 
 作为参考P3R主角们搭讪遇到人妖那段，就被改成了广告推销。
 
+
+*****
+
+####  alucardcz  
+##### 431#       发表于 2026-7-7 12:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我学乖了 这次不首发了    虽然我觉得不太可能改这种东西 等正式版了 就怕个万一
+
