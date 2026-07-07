@@ -57,3 +57,14 @@ https://picross-d7gzuo7cr21a1925c-1319819631.tcloudbaseapp.com/
 
 一年前我需要非常麻烦的去描述，还需要手动运行代码，而且经常出错。半年前出错率低了很多，可以自主直接出图了。而现在我只需要说“给例2生成gif”基本就可以
 
+
+*****
+
+####  chenyedgg  
+##### 53#       发表于 2026-7-7 08:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69850301&amp;ptid=2281861" target="_blank">相参降解社畜 发表于 2026-6-30 13:04</a>
+
+汉化游戏，拆包和封包可以靠vibe coding来干了，等我测试完了就发出来</blockquote>
+期待，找游戏里面原文本挺麻烦的
+
