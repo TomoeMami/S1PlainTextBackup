@@ -626,3 +626,12 @@ Staff
 
 高瀬丸
 
+
+*****
+
+####  堆雪若叶  
+##### 117#       发表于 2026-7-7 18:27
+
+[https://x.com/koidetakushi/status/2074432493944774737](https://x.com/koidetakushi/status/2074432493944774737)
+<img src="https://p.sda1.dev/33/25537634b0e26010951c880ba755861e/1435f5c1-1e9a-4a97-b047-83e080fee1a7.jpg" referrerpolicy="no-referrer">
+
