@@ -136,3 +136,16 @@ MI系列最早就是参考狼印后续开发的，故事背景就在南镇啊。
 
 以SNK的产能，就算是打算重启MI系列，搞真3D的拳皇，5年后能玩得到吗
 
+
+*****
+
+####  风夏  
+##### 769#       发表于 2026-7-7 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69882456&amp;ptid=2085684" target="_blank">astrayl 发表于 2026-7-7 10:14</a>
+
+以SNK的产能，就算是打算重启MI系列，搞真3D的拳皇，5年后能玩得到吗</blockquote>
+这不完全看原田胜弘拉人脉的水平了吗...
+
+SNK有石油爹的财力支撑, 资金方面肯定是绰绰有余的, 就看业界有没有那么多人愿意给snk/原田卖力咯(snk的微薄的3d ftg技术积累跟没有一样)<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
