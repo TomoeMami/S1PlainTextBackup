@@ -7696,3 +7696,13 @@ design tree这个不错，扔给GLM分析评价为卓越适应性，等周末再
 
 另外其他坛友提出的纯中文语言自然简化有好处，也存在坏处——就是很容易 淹没在上下文之中
 
+
+*****
+
+####  mitzvah  
+##### 2106#       发表于 2026-7-8 06:48
+
+ 本帖最后由 mitzvah 于 2026-7-8 06:50 编辑 
+
+已删除<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
