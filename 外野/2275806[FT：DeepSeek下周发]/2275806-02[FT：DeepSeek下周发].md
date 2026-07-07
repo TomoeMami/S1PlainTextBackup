@@ -7544,3 +7544,13 @@ Rationale: What the user says is usually the symptom, not the root cause.
 看到了一个Minecraft的demo，比现在强多了，疑似是新模型的结果，不过不能排除harness起作用了 ...</blockquote>
 从价格上来看，V4F正式版工作时间涨价一倍，至少性能也要暴涨才值这个价，不然还不如去用V4F预览版。
 
+
+*****
+
+####  Promeus  
+##### 2092#       发表于 2026-7-7 10:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69882342&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-7-7 10:01</a>
+从价格上来看，V4F正式版工作时间涨价一倍，至少性能也要暴涨才值这个价，不然还不如去用V4F预览版。 ...</blockquote>
+glm5.2和hy3都证明了后训练威力<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
