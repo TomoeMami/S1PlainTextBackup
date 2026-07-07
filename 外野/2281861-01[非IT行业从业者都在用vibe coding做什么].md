@@ -81,3 +81,16 @@ https://picross-d7gzuo7cr21a1925c-1319819631.tcloudbaseapp.com/
 一年前我需要非常麻烦的去描述，还需要手动运行代码，而且经常出 ...</blockquote>
 我也有这个需求，你用的哪家的AI？
 
+
+*****
+
+####  十点半  
+##### 55#       发表于 2026-7-7 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69882250&amp;ptid=2281861" target="_blank">abcxiawei 发表于 2026-7-7 09:53</a>
+
+我也有这个需求，你用的哪家的AI？</blockquote>
+抖音家的免费版trae work，把文档传给ai让他生图就行。
+
+肯定有更好的方案，我只是初中数学用这个已经能用了所以也没深入研究。
+

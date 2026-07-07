@@ -7533,3 +7533,14 @@ Rationale: What the user says is usually the symptom, not the root cause.
 我的经验是，尽量不要问llm“为什么情况A会导致结果B？”，这种问题一出，llm会绞劲脑汁向你解释情况A会导 ...</blockquote>
 写代码的时候, 我查问题就这么问的, 不过我会附带: 在代码里给我指出来, 然后添加合适的日志, 进一步验证你的猜测. 这个套路基本够用.
 
+
+*****
+
+####  wandeeees  
+##### 2091#       发表于 2026-7-7 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69882115&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-7 09:31</a>
+
+看到了一个Minecraft的demo，比现在强多了，疑似是新模型的结果，不过不能排除harness起作用了 ...</blockquote>
+从价格上来看，V4F正式版工作时间涨价一倍，至少性能也要暴涨才值这个价，不然还不如去用V4F预览版。
+
