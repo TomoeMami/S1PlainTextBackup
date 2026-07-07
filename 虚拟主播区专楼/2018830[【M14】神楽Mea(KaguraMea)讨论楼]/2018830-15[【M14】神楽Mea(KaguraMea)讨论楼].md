@@ -4764,3 +4764,17 @@ Aruki酱，谢谢。“阿宅我太幸福了，见到神乐めあ，啊，见到
 
 这个五辅助阵容是有点搞的(
 
+
+*****
+
+####  古战场亡魂  
+##### 20994#       发表于 2026-7-7 10:31
+
+<img src="https://img.stage1st.com/forum/202607/07/103148ghqiizii70qqi5hc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (442.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-7 10:31 上传
+

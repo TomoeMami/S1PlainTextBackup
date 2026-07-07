@@ -7566,3 +7566,16 @@ glm5.2和hy3都证明了后训练威力<img src="https://static.stage1st.com/ima
 从价格上来看，V4F正式版工作时间涨价一倍，至少性能也要暴涨才值这个价，不然还不如去用V4F预览版。 ...</blockquote>
 如果那个demo正式版里能一直复现，那基本值这个价，只有AO少数几个不降智的版本能比较，到Fable5才有明显优势。当然从过去经验看，正式版提升本来就很大，何况V4P这个基本没后训练的了。
 
+
+*****
+
+####  绝地潜兵  
+##### 2094#       发表于 2026-7-7 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69882113&amp;ptid=2275806" target="_blank">无尽的牙刷 发表于 2026-7-7 09:30</a>
+
+让5.5xhigh分析了下这个提示词，是这么说的：</blockquote>
+LLM本质概率模型，没有数据库，没有事实，都是参数向量，一切的回答都可以视为幻觉，基于这一点需要增加对抗性
+
+所以我也强调了结果不一定对，但是可以参考
+

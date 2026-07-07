@@ -2065,3 +2065,18 @@ os要搭配手柄的 没手柄体验差一档
 国内手柄溢价高 8200买个512加手柄的套餐
 1600+轻松把手柄出了 相当于6000多买主机了
 
+
+*****
+
+####  leystage  
+##### 192#         楼主| 发表于 2026-7-7 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69878564&amp;ptid=2284072" target="_blank">喵喵叫的猫 发表于 2026-7-6 13:49</a>
+
+不是komodo香港到现在都还有货吗
+
+国内手柄溢价高 8200买个512加手柄的套餐
+
+1600+轻松把手柄出了 相当于60 ...</blockquote>
+话说 komodo 有办法直购寄到境内城市吗，还是说只能找中间商被赚差价？
+
