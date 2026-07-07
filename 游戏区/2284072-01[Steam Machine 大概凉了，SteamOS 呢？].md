@@ -2145,3 +2145,14 @@ os要搭配手柄的 没手柄体验差一档
 结果固件不识别主机？那为什么不把固件更新做到前面
 然后明明接deck上手柄提示固件最新，接machine后框框又更新了2次<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鱼雷鲨  
+##### 197#       发表于 2026-7-7 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69817031&amp;ptid=2284072" target="_blank">泰坦失足 发表于 2026-6-23 09:01</a>
+
+唯一出路大概就是上手机了吧。至少在中国会有不小的市场。但是指望一个主机/掌机都没有只有手机的用户，安 ...</blockquote>
+2020年代后半的行业垃圾桶是谁？以前的话HTC或者联想可能能合作出一个
+
