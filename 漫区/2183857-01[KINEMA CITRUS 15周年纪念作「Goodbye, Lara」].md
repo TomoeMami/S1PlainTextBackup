@@ -675,3 +675,60 @@ Staff
 
 浓郁的怀旧精神，舌头里面有个艹字怪怪的，像是全盛时期gainax会做的动画，开头第一幕给了结局合照是没想到的，只有柏拉图式的女女关系性才算是真实的爱<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 122#         楼主| 发表于 2026-7-8 00:26
+
+制作幕后 第1回 企划启动篇（全三回）：[https://youtu.be/a_xMMi3bFDQ](https://youtu.be/a_xMMi3bFDQ)
+
+上下两卷共十二话
+
+【「再见菈菈」插入曲集＆迷你原声集专辑】 
+[https://b23.tv/TsLRh15](https://b23.tv/TsLRh15)
+
+#01 ED Card by 谷紫織
+
+🐚⁺‧┈　#さよならララ エンドカード　┈‧⁺ 🫧˚
+
+　　　　　　第1話「人魚姫ララ」
+
+キャラクターデザイン #谷紫織 さんによるエンドカードをお届けします✨
+
+ご視聴いただいた皆さま、ありがとうございました。
+
+200年の時を経て、琵琶湖に蘇った人魚姫ララ、そんな彼女と出会ったのは、女子高校生の大津茉里。一体これからどうなるのでしょうか？😳
+
+次回もどうぞお楽しみに！
+
+さよララ～👋
+<img src="https://p.sda1.dev/33/654c2800cf0742e590221b8f1689ca50/20260708_001905.jpg" referrerpolicy="no-referrer">
+
+深海イメージご担当のMONさんには、イメージボードを制作いただいておりました✨
+<img src="https://p.sda1.dev/33/dc183e9e2a103feeadb4fd5d9a4be510/20260708_001838.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/81a9785a816e56d79a8e7a87d2165430/20260708_001839.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/b4c177344cebe2d92a16223e0d44254f/20260708_001840.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/ec0ae5e0b4425451d0c77879c542755e/20260708_001841.jpg" referrerpolicy="no-referrer">
+
+˚⊹⁺‧┈┈┈┈┈┈┈┈┈┈‧⁺ ⊹˚
+
+　  　   #さよならララ 
+
+　　応援イラストが到着！
+
+˚⊹⁺‧┈┈┈┈┈┈┈┈┈┈‧⁺ ⊹˚
+
+「さよならララ」放送を記念して、谷田部透湖さん（@tocodot）よりイラストをお寄せいただきました❣
+
+とっても素敵なイラストをありがとうございます！
+
+「#さよならララ」本日24時半より放送・配信開始です✨
+<img src="https://p.sda1.dev/33/f12be3ee15fdedfb52c694215c08eea1/20260708_001804.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/33/a2e1463c90109b80e654d0e13105dbcf/20260708_001658.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/51be7efd6d9b11010428ecba60d3491a/20260708_001708.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/ba7da668dd7a3c7ea5e6b11b7091a7c5/20260708_001718.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/eb6321a2145a627b6339dbabe3aefcb1/20260708_001728.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/72d0cf16082d485f98d51ead5e61986a/20260708_001517.jpg" referrerpolicy="no-referrer">
+
