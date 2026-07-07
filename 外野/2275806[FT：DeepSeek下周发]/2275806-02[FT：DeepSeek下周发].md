@@ -7267,3 +7267,27 @@ AI文案流行起来的一个副作用是一听到AI念稿“不是XX而是OO”
 
 庸俗的超大号自动补全才是我们llm的未来呀！
 
+
+*****
+
+####  goranger  
+##### 2086#       发表于 2026-7-7 08:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69881257&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-7-7 00:35</a>
+这个真没有，或者说他表现出来的直觉其实是你提问的时候的直觉导向带出来的？反正亲身用下来的感觉就是无 ...</blockquote>
+A畜最新的文说有，关键词j空间？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  a4ac7  
+##### 2087#       发表于 2026-7-7 09:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69869184&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-7-4 13:55</a>
+Deepseek现在的网页和客户端，吹捧用户的语气太恶心了，和他探讨个问题，每说一句都要吹捧我一次，搞得我都 ...</blockquote>
+你的见解真是一针见血<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
