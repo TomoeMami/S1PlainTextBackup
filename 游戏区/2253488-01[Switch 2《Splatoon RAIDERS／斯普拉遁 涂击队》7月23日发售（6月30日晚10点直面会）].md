@@ -43,3 +43,21 @@
 
 感觉这作的画面和马车世界与星际火狐不在一个世代呢？感觉还是NS1水准
 
+
+*****
+
+####  Jabeck  
+##### 202#       发表于 2026-7-7 18:08
+
+这游戏实体版怎么这么贵？要300+
+
+*****
+
+####  stoiorz  
+##### 203#       发表于 2026-7-7 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69884996&amp;ptid=2253488" target="_blank">Jabeck 发表于 2026-7-7 18:08</a>
+
+这游戏实体版怎么这么贵？要300+</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">楼里信息写的日亚有售。数字版246。可能是因为NS2的游戏吧。
+
