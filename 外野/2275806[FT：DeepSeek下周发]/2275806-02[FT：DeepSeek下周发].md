@@ -7668,3 +7668,14 @@ B站可以搜一下那个一句话生成CSGO的示例看看新版本效果
 
 我直接发到这里吧
 
+
+*****
+
+####  舞以  
+##### 2104#       发表于 2026-7-8 00:40
+
+后训练之力啊，coding这个场景，训练质量感觉大于一切。
+但是离超大号自动补全越来越近了，梁圣，你的agi之梦，还在么<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
