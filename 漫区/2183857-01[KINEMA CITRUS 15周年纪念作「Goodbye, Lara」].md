@@ -732,3 +732,50 @@ Staff
 <img src="https://p.sda1.dev/33/eb6321a2145a627b6339dbabe3aefcb1/20260708_001728.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/33/72d0cf16082d485f98d51ead5e61986a/20260708_001517.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 123#         楼主| 发表于 2026-7-8 00:51
+
+キネマシトラス
+
+15周年記念作品
+
+『#さよならララ』
+
+ついに昨日より第1話が放送＆配信開始いたしました！
+
+放送直前、緊張と期待が入り混じる中、みんなで描いたホワイトボードの寄せ書きを公開します✏️
+
+ご視聴いただいた皆様、ありがとうございました。
+<img src="https://p.sda1.dev/33/d83a1fc8ff292e2dee219fc9b62f086b/20260708_004529.jpg" referrerpolicy="no-referrer">
+
+小出卓史
+[https://x.com/i/status/2074432493944774737](https://x.com/i/status/2074432493944774737)
+<img src="https://p.sda1.dev/33/87a65c16c9c3f836f3af7636f661dd70/20260708_004537.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2073803858909057378](https://x.com/i/status/2073803858909057378)
+
+1話放送おめでとうございます🐟🐟🐟
+<img src="https://p.sda1.dev/33/3aaf4d6c51d3bce9ad2086fe99a0bc11/20260708_004525.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2070499824353575352](https://x.com/i/status/2070499824353575352)
+
+テレビと配信同時なのすごいと思ったファンアート
+<img src="https://p.sda1.dev/33/c158bee3a9177248ebcecf8cb6cb7fd1/20260708_004518.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2074514528004689993](https://x.com/i/status/2074514528004689993)
+
+#さよならララ ついに始まったー🎊👏 ウォーターアーティスト、原画等で参加させて頂いております。関係者だけどファンなので出来上がっていく現場を見られて役得でした！ つづきを早く観てほしい！ 是非！！ #さよララファンアート部
+<img src="https://p.sda1.dev/33/737155e5b0e019a1d7be9fbee0eab596/20260708_004459.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2073320534436356469](https://x.com/i/status/2073320534436356469)
+
+夏アニメまとめサイトをみていたらたまたま面白そうなアニメを見つけました
+
+「さよならララ」という名前で日曜深夜放送みたいです
+
+あまり知らない作品ですが、なぜかとっても面白そうな気がします。是非...！！！
+<img src="https://p.sda1.dev/33/cf080b18b29fb2fc744b5b955888ded4/20260708_004507.jpg" referrerpolicy="no-referrer">
+
