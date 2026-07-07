@@ -992,3 +992,20 @@ op和ed意外的不错。
 
 3集看完差点耳朵聋了，女角的音高有点受不了，角色塑造有股爱普利感，堆砌了很多nico大友喜欢的元素和网络梗，动起来画面很吵热热闹闹的有点喜欢，op感觉很适合lisa唱<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 70#         楼主| 发表于 2026-7-8 01:08
+
+两卷共十三话
+
+<img src="https://p.sda1.dev/33/b8cdf39b3edaf3d7b650c0a750357721/20260708_010343.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/dd7dcbdc0c79600a9bfa205e8b7b3c88/20260708_010405.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/9c5b4ae52d94c2c2a3440cce4601877b/20260708_010416.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/9f042f508f4fd887926729416c2a4e77/20260708_010426.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/76767f9ebd00eb057b0740e60d37d0ee/20260708_010438.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/c43f9e8a19d071c9ed85f5a68e217fb6/20260708_010453.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/38aaa4bdd3b0298ce9c2d2c136306a7e/20260708_010506.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/8b0f73f95dd2ae57d1ae8d22b5badd60/1783443963024.png" referrerpolicy="no-referrer">
+
