@@ -68,3 +68,16 @@ https://picross-d7gzuo7cr21a1925c-1319819631.tcloudbaseapp.com/
 汉化游戏，拆包和封包可以靠vibe coding来干了，等我测试完了就发出来</blockquote>
 期待，找游戏里面原文本挺麻烦的
 
+
+*****
+
+####  abcxiawei  
+##### 54#       发表于 2026-7-7 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69881721&amp;ptid=2281861" target="_blank">十点半 发表于 2026-7-7 08:22</a>
+
+我是数学老师，用ai生成几何问题的动图。
+
+一年前我需要非常麻烦的去描述，还需要手动运行代码，而且经常出 ...</blockquote>
+我也有这个需求，你用的哪家的AI？
+
