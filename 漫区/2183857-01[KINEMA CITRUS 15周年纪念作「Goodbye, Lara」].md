@@ -542,3 +542,87 @@
 给我看蒙了，感觉一个无聊的春季后，这个夏季好的太夸张，别透支了生产力啊 ...</blockquote>
 看了世界在跳舞，天幕下的魔女，和这个再见拉拉，都感觉比上一季度好
 
+
+*****
+
+####  Rhantolk  
+##### 116#       发表于 2026-7-7 16:05
+
+<img src="https://img.stage1st.com/forum/202607/07/160407syyierry3iyy13g9.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (77.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-7 16:04 上传
+
+<img src="https://img.stage1st.com/forum/202607/07/160407lz7jp8zpjxaeh9p9.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (79.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-7 16:04 上传
+
+<img src="https://img.stage1st.com/forum/202607/07/160408n8wgp63papjsarjj.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (108.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-7 16:04 上传
+
+<img src="https://img.stage1st.com/forum/202607/07/160410sh300iuiumy8dzjz.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (145.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-7 16:04 上传
+
+<img src="https://img.stage1st.com/forum/202607/07/160406lxnxnzipmkiprh7l.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (146.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-7 16:04 上传
+
+<img src="https://img.stage1st.com/forum/202607/07/160410z3cdz9ca7dcyzaed.jpg" referrerpolicy="no-referrer">
+
+<strong>6.jpg</strong> (91.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-7 16:04 上传
+
+02
+
+滋賀を走る
+
+Story
+
+滋賀県琵琶湖に蘇ったララは、地上で魔女と再会する。
+
+魔女が言うには、家族を救うには人間と「本当の愛」を結ばなければならない。
+
+しかしララは初めての滋賀に翻弄されてばかりで――。
+
+Staff
+
+脚本
+
+川原杏奈
+
+絵コンテ
+
+小出卓史
+
+演出
+
+佐藤陽将
+
+作画監督
+
+高瀬丸
+
