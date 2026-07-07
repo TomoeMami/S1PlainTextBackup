@@ -7554,3 +7554,15 @@ Rationale: What the user says is usually the symptom, not the root cause.
 从价格上来看，V4F正式版工作时间涨价一倍，至少性能也要暴涨才值这个价，不然还不如去用V4F预览版。 ...</blockquote>
 glm5.2和hy3都证明了后训练威力<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 2093#       发表于 2026-7-7 10:18
+
+ 本帖最后由 nxmonitor 于 2026-7-7 10:19 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69882342&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-7-7 10:01</a>
+
+从价格上来看，V4F正式版工作时间涨价一倍，至少性能也要暴涨才值这个价，不然还不如去用V4F预览版。 ...</blockquote>
+如果那个demo正式版里能一直复现，那基本值这个价，只有AO少数几个不降智的版本能比较，到Fable5才有明显优势。当然从过去经验看，正式版提升本来就很大，何况V4P这个基本没后训练的了。
+

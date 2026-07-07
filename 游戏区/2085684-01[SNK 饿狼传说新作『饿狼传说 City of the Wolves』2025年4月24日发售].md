@@ -128,3 +128,11 @@ MI系列最早就是参考狼印后续开发的，故事背景就在南镇啊。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要过度拔高snk的产出能力啊
 
+
+*****
+
+####  astrayl  
+##### 768#       发表于 2026-7-7 10:14
+
+以SNK的产能，就算是打算重启MI系列，搞真3D的拳皇，5年后能玩得到吗
+
