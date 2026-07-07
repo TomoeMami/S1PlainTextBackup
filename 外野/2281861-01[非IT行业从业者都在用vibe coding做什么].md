@@ -142,3 +142,23 @@ IT从业，但花在兴趣项目上的token数量远大于工作上 <img src="ht
 
 其他还有各种小工具。。MSN聊天记录解析+聊天窗口风格复现（时代的眼泪）；Mellanox网卡温度显示为小图标（仿aida64）；运动记录等等（内网部署+cf tunnel发布到cloudflare）
 
+
+*****
+
+####  tonyshva  
+##### 58#       发表于 2026-7-7 11:20
+
+总觉得现在的思路很多都不对，不应该想能做什么，先想手上的事情怎么让AI做掉，然后再看AI最终能实现多大的摊子
+
+
+*****
+
+####  simonroam  
+##### 59#       发表于 2026-7-7 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69882908&amp;ptid=2281861" target="_blank">tonyshva 发表于 2026-7-7 11:20</a>
+
+总觉得现在的思路很多都不对，不应该想能做什么，先想手上的事情怎么让AI做掉，然后再看AI最终能实现多大的 ...</blockquote>
+
+不是对不对的问题，你能想到的早有人实践了，成功的分享出来大把人早跟风了
+
