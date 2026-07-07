@@ -61,3 +61,11 @@
 这游戏实体版怎么这么贵？要300+</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">楼里信息写的日亚有售。数字版246。可能是因为NS2的游戏吧。
 
+
+*****
+
+####  Aeroblast  
+##### 204#       发表于 2026-7-7 18:17
+
+因为开始实施实体版贵一截了。日版的话，实体贵1000日元，换算过来310+。
+
