@@ -96,3 +96,19 @@ m设确实还是在人物面部塑造上尝试些新东西
 
 xs3 也20周年了，xs虽然制作坎坷也问题重重，但还是有很多难以放下的浪漫和触动，不知道高桥退休前有没机会给个小小的惊喜
 
+
+*****
+
+####  ArthurDent  
+##### 1960#       发表于 2026-7-8 12:07
+
+<img src="https://img.stage1st.com/forum/202607/08/120732a8767u7gy0uqy0uu.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1783483650394_1.webp</strong> (288.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-8 12:07 上传
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
