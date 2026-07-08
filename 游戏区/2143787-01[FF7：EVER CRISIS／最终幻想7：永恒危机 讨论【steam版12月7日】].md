@@ -4287,3 +4287,24 @@ WTF<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrer
 
 目前来看，本篇，BC，CC，FS剧情都出完了，差AC和DC？
 
+
+*****
+
+####  starcraft3  
+##### 380#       发表于 2026-7-8 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69888652&amp;ptid=2143787" target="_blank">suzakushi 发表于 2026-7-8 11:47</a>
+
+目前来看，本篇，BC，CC，FS剧情都出完了，差AC和DC？</blockquote>
+AC和DC都出过活动了
+
+*****
+
+####  suzakushi  
+##### 381#       发表于 2026-7-8 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69888661&amp;ptid=2143787" target="_blank">starcraft3 发表于 2026-7-8 11:48</a>
+
+AC和DC都出过活动了</blockquote>
+原来如此，那还真全出完了。
+
