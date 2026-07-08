@@ -4395,3 +4395,22 @@ CC去到ZACK2人剛甦醒
 
 不過之後有BC的劇情，都算好了
 
+
+*****
+
+####  eilot  
+##### 390#       发表于 2026-7-8 15:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69889591&amp;ptid=2143787" target="_blank">character 发表于 2026-7-8 14:57</a>
+
+如果真用EC的画面重制整个FF7系列，章节更新，衍生作品做DLC，哪怕更得慢一点，估计也有粉丝买单
+
+但现在完 ...</blockquote>
+先看定價
+
+配合另一個貼子
+
+如果定價是500或以上的普通版，自然是作死
+
+但FINAL FANTASY RESONANCE的定價是399，還是能去到心理最大關口...
+
