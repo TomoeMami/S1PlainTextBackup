@@ -4414,3 +4414,17 @@ CC去到ZACK2人剛甦醒
 
 但FINAL FANTASY RESONANCE的定價是399，還是能去到心理最大關口...
 
+
+*****
+
+####  character  
+##### 391#       发表于 2026-7-8 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69889897&amp;ptid=2143787" target="_blank">eilot 发表于 2026-7-8 15:48</a>
+先看定價
+
+配合另一個貼子
+
+如果定價是500或以上的普通版，自然是作死</blockquote>
+如果真能将整个FF7本篇做出来，500元我还是很乐买的，毕竟这个价格对手游来说不算离谱，总比现在每天就是开了自动然后挂机磨时间的EC强
+
