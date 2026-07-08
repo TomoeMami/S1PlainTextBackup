@@ -395,3 +395,174 @@ NOX橘前辈加睦月哈哈哈哈哈
 code辣么大的组织只有七个特工其他都是吃白饭的</blockquote>
 看着像是原典是研究1号橘前辈的惩戒开始的，然后幻影找上了2号夫人生下了忘却，3,4,5,6工具人或者试验品，12都跑了研究7的灾厄来对抗？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  milky658  
+##### 2069#       发表于 2026-7-5 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69873184&amp;ptid=2250267" target="_blank">浅川雏羽 发表于 2026-7-5 14:09</a>
+海东大树就是那种从头到尾的坏逼，但因为那一部的主骑也并非好东西而显得没那么坏 ...</blockquote>
+dcd就是个怎么乐怎么来的产物，从角色到剧情编剧自己都不知道是什么玩意儿。会川升跑路了，米村写皮套大战还打算打打圆场的，后面又放弃了。会有人觉得时王小明谜语人，放怪袭击普通人ooc。但海东绝对ooc不了，因为他压根没有人设<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黄泉川此方  
+##### 2070#       发表于 2026-7-5 14:23
+
+最近几集连着看就是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+1.纯代哥任务的NOX最终
+
+2.气氛到了演出需要拍个双骑共斗
+
+3.天意谜语人搞个内战
+
+4.复仇成功摆大烂
+
+分开看都还凑合，连着来真的很迷
+
+*****
+
+####  黄泉川此方  
+##### 2071#       发表于 2026-7-5 14:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上个复仇鬼+警察人设的二骑有照井龙，这不是能写好嘛
+
+*****
+
+####  milky658  
+##### 2072#       发表于 2026-7-5 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69873173&amp;ptid=2250267" target="_blank">名居守 发表于 2026-7-5 14:04</a>
+别把nox当好人就好了，虽然塑造的有点抽象
+
+小鹰和nox还得分开看，小鹰警官是小鹰警官，nox就是nox</blockquote>
+假面骑士二骑主要就两种模式。一种竞争对手宿敌位，一个合作伙伴队友位，两种模式随剧情慢慢变化
+
+特殊一点的，三条五的草加，他和主角其实没特别大的理论冲突，和主角内斗理由大部分本质小孩子吵架，单纯互相看不顺眼。大体还是偏向队友
+dcd的海东大树，究极混沌乐子人，无法ooc之人
+再来就是nox了，他给我感觉更像前期橘前辈，动机有是有，就是干的事很抽象。而橘前辈全剧都是只有关键时刻才派得上用场的男人，平常抽象活儿一堆。我就说zzz是写给剑厨的情书<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 大耳兽 + 1欢乐多
+
+ 黄泉川此方 + 1欢乐多
+
+查看全部评分
+
+*****
+
+####  洛克萨斯  
+##### 2073#       发表于 2026-7-5 15:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超梦这是硬生生sl磨死灾厄啊，草
+
+*****
+
+####  FACS  
+##### 2074#       发表于 2026-7-5 16:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牢诺这两集纯人见，比起来大二甚至人见的有理由
+
+*****
+
+####  rockroxas  
+##### 2075#       发表于 2026-7-5 19:35
+
+这周目nox还是牢莫一手喂出来的战力，code草草收花牢莫又刚好要在相关的部分迷茫，虽然是必要的，但编排感觉还是出了问题
+
+然后四大干部看起来真的是正经打一两场就要收花？惩戒估计就是下集的事<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+那么问题来了，nox心结先放一边，他变不变好像真没区别了……
+
+*****
+
+####  blue321  
+##### 2076#       发表于 2026-7-5 19:39
+
+这就是编剧吹了好久会有描写的NOX吗，感觉太水了吧……
+
+而且不会真就这么BAN到结局吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  joshua1990  
+##### 2077#       发表于 2026-7-5 21:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">lady那个梦魇应该还是交给nox解决的吧 毕竟是跟他的剧情强绑定的
+
+*****
+
+####  rockroxas  
+##### 2078#       发表于 2026-7-5 22:13
+
+这就是问题，nox需要一条线补充他个人动机到打倒幻影，但主线需不需要nox，那就不好说了……
+
+*****
+
+####  饭冢武也  
+##### 2079#       发表于 2026-7-6 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69873271&amp;ptid=2250267" target="_blank">milky658 发表于 2026-7-5 14:31</a>
+
+假面骑士二骑主要就两种模式。一种竞争对手宿敌位，一个合作伙伴队友位，两种模式随剧情慢慢变化
+
+特殊一 ...</blockquote>
+NOX橘前辈加睦月哈哈哈哈哈
+
+正经的时候说话抽象，队友根本分不清是不是队友，对应前期橘前辈
+
+到了正经当你是队友了，你开始迷茫，行为抽象，敌我不分<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  那由  
+##### 2080#       发表于 2026-7-6 15:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实趴在地上想一想，nox目前干的事其实没有塌房
+
+
+*****
+
+####  風卷豹  
+##### 2081#       发表于 2026-7-6 17:47
+
+感觉nox是那种会喊xx后整顿职场的人，难怪当初code不愿救他。要我说他的目的还不如是干掉zero呢
+
+*****
+
+####  失落之翼  
+##### 2082#       发表于 2026-7-6 18:15
+
+所以接下来是橘前辈干惩戒吗？然后母女打完幻影和忘却?
+
+感觉会是以忘却为基底吸收四大天王变成最终boss吧？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+不过这样的话有点俗套了
+
+*****
+
+####  失落之翼  
+##### 2083#       发表于 2026-7-6 18:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69851589&amp;ptid=2250267" target="_blank">haoshion 发表于 2026-6-30 17:12</a>
+
+code辣么大的组织只有七个特工其他都是吃白饭的</blockquote>
+看着像是原典是研究1号橘前辈的惩戒开始的，然后幻影找上了2号夫人生下了忘却，3,4,5,6工具人或者试验品，12都跑了研究7的灾厄来对抗？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大耳兽  
+##### 2084#       发表于 2026-7-8 15:25
+
+今天偶然看到一个很有趣的说法，“梦魇都是遵循本能做事情的，灾厄就是满脑破坏，惩戒就是不顾一切哪怕钓鱼执法也要处刑，nox对于复仇的执念过于深刻了，所以他几乎梦魇化了。”怎么说呢，虽然给人很诡异的感觉，但是好像蛮有道理的。
+
