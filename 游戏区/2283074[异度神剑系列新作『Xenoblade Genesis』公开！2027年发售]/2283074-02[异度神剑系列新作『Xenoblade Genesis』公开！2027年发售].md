@@ -149,3 +149,17 @@ xs3 也20周年了，xs虽然制作坎坷也问题重重，但还是有很多难
 最近入坑xb1，每天高强度播10个小时，目前沉迷通马桶 ...</blockquote>
 她沉迷羁绊图对着羁绊图能说好久，可惜2就没有羁绊图了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 1965#       发表于 2026-7-8 21:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69879955&amp;ptid=2283074" target="_blank">MrlOst 发表于 2026-7-6 18:05</a>
+推荐一个YT rpg女主播 ねぇね。 
+
+最近入坑xb1，每天高强度播10个小时，目前沉迷通马桶 ...</blockquote>
+这次nd公开三部曲的ns2e确实又带动了一波日v播xb系列，目前看到的是播1和2的比较多
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
