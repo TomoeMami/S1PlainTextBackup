@@ -4316,3 +4316,14 @@ AC和DC都出过活动了</blockquote>
 
 10月7日就停止运营了？一出完就停也太快了吧
 
+
+*****
+
+####  reikami  
+##### 383#       发表于 2026-7-8 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69888661&amp;ptid=2143787" target="_blank">starcraft3 发表于 2026-7-8 11:48</a>
+
+AC和DC都出过活动了</blockquote>
+那可以期待整合出个单机版了
+
