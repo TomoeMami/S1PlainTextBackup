@@ -7729,3 +7729,14 @@ design tree这个不错，扔给GLM分析评价为卓越适应性，等周末再
 我在进行场景设定的时候，发现我无论如何组织自然语言向AI描述房间的结构，AI都无法正确理解，更不要说理解 ...</blockquote>
 没有灌过多模态数据的话，很可能就没啥空间感    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  mitzvah  
+##### 2109#       发表于 2026-7-8 09:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69887315&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-7-8 08:23</a>
+
+我在进行场景设定的时候，发现我无论如何组织自然语言向AI描述房间的结构，AI都无法正确理解，更不要说理解 ...</blockquote>
+是glm5.2吗？这玩意的空间理解能力堪称灾难
+
