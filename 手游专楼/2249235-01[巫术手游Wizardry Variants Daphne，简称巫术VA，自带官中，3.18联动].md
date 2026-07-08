@@ -138,3 +138,11 @@ FF11！！！！！！！！！！！妈的课爆
 卡大脚怪两个月了，不知怎么打，就没见过没有狐狸的攻略视频</blockquote>
 做+15银装，带治愈师和僧侣做好异常对策，还是可以打的，两个月了也该70级了
 
+
+*****
+
+####  UnknownRei  
+##### 841#       发表于 2026-7-8 19:09
+
+三连东洋人<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
