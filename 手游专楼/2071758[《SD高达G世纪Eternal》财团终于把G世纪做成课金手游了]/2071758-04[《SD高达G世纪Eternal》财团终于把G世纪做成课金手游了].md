@@ -76,3 +76,11 @@ fa78居然连超强气移动加一都没拿到，区别对待啊<img src="https:
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">所以最后吉翁号没涂红色导致骡子没法吊打<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AminGly  
+##### 4511#       发表于 2026-7-9 07:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">贴吧野狗为了吹那个破j8冰箱，居然说90%的大师环境是宇宙
+
