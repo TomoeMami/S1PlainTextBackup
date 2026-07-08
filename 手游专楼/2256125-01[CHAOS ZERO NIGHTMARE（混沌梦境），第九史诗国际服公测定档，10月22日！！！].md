@@ -4153,3 +4153,24 @@ b站有动画草图泄露
 
 昨天看直播有人说因为国服和国际服要同步了，所以以后国际服也会同步国服的和谐，省去二次加工，不知道真的假的
 
+
+*****
+
+####  greemoore1981  
+##### 1124#       发表于 2026-7-8 12:03
+
+ 本帖最后由 greemoore1981 于 2026-7-8 12:32 编辑 
+
+真要和谐那我就滚蛋了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小开关失效了，而且怎么这画面变糊了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  orangee  
+##### 1125#       发表于 2026-7-8 13:18
+
+国服更新以后我账号上直接赛季任务全重置了，代币还清空了，无敌了……
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
