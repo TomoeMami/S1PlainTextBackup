@@ -60,3 +60,19 @@ fa78居然连超强气移动加一都没拿到，区别对待啊<img src="https:
 
 —— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4509#       发表于 2026-7-8 18:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">78骡还给了个对红色特攻，致敬最好的捕鸭高手
+
+
+*****
+
+####  arthes  
+##### 4510#       发表于 2026-7-8 18:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">所以最后吉翁号没涂红色导致骡子没法吊打<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
