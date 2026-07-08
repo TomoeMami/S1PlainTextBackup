@@ -2398,3 +2398,16 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 就光一个神山健治(而且还很可能是挂名的总监督)怎么都称不上「最豪华」吧 ...</blockquote>
 神山的片一般是自己当系构吧，然后再找点熟人，佐藤大、桧垣亮之类的，说起来和他合作过机动奥的下山健人最近也很少见呢，ig再发动发动关系也许还能找到冲方丁，嗯，怎么越说越感到危险
 
+
+*****
+
+####  ティグル  
+##### 262#       发表于 2026-7-8 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69891722&amp;ptid=2256870" target="_blank">ナルバレック 发表于 2026-7-8 22:12</a>
+
+去年W短片就是圣迭戈展播的，W新作企划50周年周期立马上马也是因为圣迭戈现场、**和X反响太爆炸，但鉴于 ...</blockquote>
+以神山近期表现来看已经可以去掉谨慎二字，直接不看好了
+
+主要代表给北美市场准备的敲门砖都很奇怪，感觉这次也不会例外
+
