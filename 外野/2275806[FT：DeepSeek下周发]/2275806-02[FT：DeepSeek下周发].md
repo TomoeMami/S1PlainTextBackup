@@ -7834,3 +7834,15 @@ design tree这个不错，扔给GLM分析评价为卓越适应性，等周末再
 已经是上旬的倒数第三天了，还不更新吗</blockquote>
 谁说的上旬你找谁，公告写的是中旬。明着说的下周。
 
+
+*****
+
+####  Promeus  
+##### 2119#       发表于 2026-7-8 20:32
+
+【灰度测试：DeepSeek V4正式版一句话生成GTA5-哔哩哔哩】 https://b23.tv/EbpP9Vl
+
+up新做了个gta，对比如下
+
+【【中配】ChatGPT对比GLM 5.2对比Claude 谁做的GTA6效果更好 - tef-哔哩哔哩】 https://b23.tv/vR8HGWj
+
