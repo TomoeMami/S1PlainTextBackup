@@ -7779,3 +7779,15 @@ design tree这个不错，扔给GLM分析评价为卓越适应性，等周末再
 
 你要识别房间家具就再建一个房间布局
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2113#       发表于 2026-7-8 12:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69887620&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-7-8 09:19</a>
+不，就是D导，完全无法理解由自然语言描述的房间结构。当然也可能自然语言本身就不擅长干这个。最后使用E ...</blockquote>
+我问过gemini这个问题，它说天生没多模态能力的大模型这方面就是很弱。不知道是不是gemini在糊弄我
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
