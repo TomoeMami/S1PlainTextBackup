@@ -101,3 +101,44 @@
 
 垃圾桶还差800个金章，感觉涂击队发售之前是拿不到了
 
+
+*****
+
+####  shirolin  
+##### 208#       发表于 2026-7-8 15:21
+
+ 本帖最后由 shirolin 于 2026-7-8 15:25 编辑 
+
+感觉正式进入宣发周期了。
+
+日本那边御三家便利店都推出了预购活动。
+
+<img src="https://img.stage1st.com/forum/202607/08/151925lalf9991m7hwkyy1.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>(1)_X_上的_スプラトゥーン3グッズ情報＠スプラ3：“ファミリーマートで『スプラトゥ.webp</strong> (90.65 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-7-8 15:19 上传
+
+<img src="https://img.stage1st.com/forum/202607/08/152114x9t6i88iiytz628o.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>セブンとファミリーマートとローソンで『スプラトゥーンレイダース』ダウンロードカー.webp</strong> (518.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-7-8 15:21 上传
+
+(1)_X_上的_スプラトゥーン3グッズ情報＠スプラ3：“キャンペーン期間中に、セブンイ.webp
+(54.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-8 15:18 上传
+
+由手机上传
+
+<img src="https://img.stage1st.com/forum/202607/08/151846ovzdhf9csmmszmmf.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
