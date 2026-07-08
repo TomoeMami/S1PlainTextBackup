@@ -2328,3 +2328,11 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 
 ぜひご期待ください👀
 
+
+*****
+
+####  Piano-Forest  
+##### 255#         楼主| 发表于 2026-7-8 21:08
+
+7月24日凌晨2点 圣迭戈漫展SDCC上公开
+

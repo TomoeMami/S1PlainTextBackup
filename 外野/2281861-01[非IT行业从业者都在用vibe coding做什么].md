@@ -183,3 +183,14 @@ IT从业，但花在兴趣项目上的token数量远大于工作上
 
 梳理各种多年屯下来的资源，折腾主路由到旁路由静态路由分流，comfyui节点，各种胶水
 
+
+*****
+
+####  阿萨辛艾沃尔  
+##### 62#       发表于 2026-7-8 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69851158&amp;ptid=2281861" target="_blank">zhongjie 发表于 2026-6-30 15:51</a>
+
+拆包+封包+汉化一键完成吗，期待中</blockquote>
+已经有了：[https://keylol.com/t1036657-1-1](https://keylol.com/t1036657-1-1)
+
