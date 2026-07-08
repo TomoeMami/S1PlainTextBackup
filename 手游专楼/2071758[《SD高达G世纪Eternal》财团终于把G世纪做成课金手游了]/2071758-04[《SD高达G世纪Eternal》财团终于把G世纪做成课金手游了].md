@@ -38,3 +38,15 @@
 
 最大的问题还是不会飞
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 4507#       发表于 2026-7-8 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69889343&amp;ptid=2071758" target="_blank">ティグル 发表于 2026-7-8 13:58</a>
+最大的问题还是不会飞</blockquote>
+希望之后给个地形芯片吧
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
