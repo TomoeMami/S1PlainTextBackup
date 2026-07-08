@@ -4209,3 +4209,24 @@ Square Enix 宣布，手游 / PC 游戏《FINAL FANTASY VII EVER CRISIS》将于
 
 记得之前SE说EC要把FF7系列所有的剧情都做进去，做完了吗？
 
+
+*****
+
+####  navarra  
+##### 374#       发表于 2026-7-8 11:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69888359&amp;ptid=2143787" target="_blank">reikami 发表于 2026-7-8 11:08</a>
+
+记得之前SE说EC要把FF7系列所有的剧情都做进去，做完了吗？</blockquote>
+ff7原版主线已经做到蒂法探索克劳德内心世界找回克劳德意识那里了
+
+
+*****
+
+####  鱼肉丸子  
+##### 375#       发表于 2026-7-8 11:22
+
+这游戏我靠热情玩了半年，实在玩不动了，属于没啥乐趣又不休闲
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
