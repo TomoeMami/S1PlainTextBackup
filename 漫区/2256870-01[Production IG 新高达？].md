@@ -2352,3 +2352,14 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 
 代便？照顾北美市场？那肯定奇形怪状了
 
+
+*****
+
+####  ナルバレック  
+##### 258#       发表于 2026-7-8 22:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69891589&amp;ptid=2256870" target="_blank">ティグル 发表于 2026-7-8 21:46</a>
+
+代便？照顾北美市场？那肯定奇形怪状了</blockquote>
+去年W短片就是圣迭戈展播的，W新作企划50周年周期立马上马也是因为圣迭戈现场、**和X反响太爆炸，但鉴于这玩意五月左右刚立企划，我感觉不至于那么快有新消息，估计还是IG的打外星人高达吧
+
