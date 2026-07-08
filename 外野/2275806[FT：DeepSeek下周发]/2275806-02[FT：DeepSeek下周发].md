@@ -7799,3 +7799,11 @@ design tree这个不错，扔给GLM分析评价为卓越适应性，等周末再
 
 纯本文模型空间理解基本没有，以前用鲸鱼写小说的时候就出现过各种状况 <img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  simonouozy  
+##### 2115#       发表于 2026-7-8 13:43
+
+毕竟llm是无记忆无状态的，只靠文本让它先幻想一个二维图像乃至三维空间，用于后续生成不太现实
+
