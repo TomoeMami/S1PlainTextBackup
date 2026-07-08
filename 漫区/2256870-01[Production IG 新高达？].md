@@ -2411,3 +2411,16 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 
 主要代表给北美市场准备的敲门砖都很奇怪，感觉这次也不会例外
 
+
+*****
+
+####  ナルバレック  
+##### 263#       发表于 2026-7-9 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69891982&amp;ptid=2256870" target="_blank">ティグル 发表于 2026-7-8 23:06</a>
+
+以神山近期表现来看已经可以去掉谨慎二字，直接不看好了
+
+主要代表给北美市场准备的敲门砖都很奇怪，感觉 ...</blockquote>
+那UC后百年企划的敲门砖还是奇葩到不行的高达NT呢，至今都觉得这玩意实在是逆天的不行，只能纯当金角大仙宣传片看了，当年W大火后万代还急不可耐的立马播0079，然后就遇冷了
+
