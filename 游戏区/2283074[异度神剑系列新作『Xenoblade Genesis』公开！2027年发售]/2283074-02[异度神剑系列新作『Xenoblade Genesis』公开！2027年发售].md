@@ -136,3 +136,16 @@ xs3 也20周年了，xs虽然制作坎坷也问题重重，但还是有很多难
 
 绝对是故意的，持续好几年了 
 
+
+*****
+
+####  king520kyo  
+##### 1964#       发表于 2026-7-8 20:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69879955&amp;ptid=2283074" target="_blank">MrlOst 发表于 2026-7-6 18:05</a>
+
+推荐一个YT rpg女主播 ねぇね。 
+
+最近入坑xb1，每天高强度播10个小时，目前沉迷通马桶 ...</blockquote>
+她沉迷羁绊图对着羁绊图能说好久，可惜2就没有羁绊图了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
