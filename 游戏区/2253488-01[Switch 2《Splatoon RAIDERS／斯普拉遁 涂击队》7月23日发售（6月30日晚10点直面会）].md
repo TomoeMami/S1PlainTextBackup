@@ -159,3 +159,11 @@
 
 这个线下试玩版难道不在这两周上线eshop吗？
 
+
+*****
+
+####  葵  
+##### 210#       发表于 2026-7-8 17:19
+
+话说涂击队按发售价来说卡带大概多少是好价啊？230，40左右么？隔壁星际火狐现在百亿补贴里已经跌到165了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
