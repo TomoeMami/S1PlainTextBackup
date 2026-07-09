@@ -226,3 +226,28 @@ https://github.com/dzshzx/codexcomp
 
 整理文档做表格啊，以前搞这个纯能工智人，非常费眼费力，用工作台描述下需求很快就完工了。用什么插件它自己装。可重复工作就让它自己写一份流程下次继续。
 
+
+*****
+
+####  mailfarmer  
+##### 67#       发表于 2026-7-9 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69851582&amp;ptid=2281861" target="_blank">77BBC 发表于 2026-6-30 17:11</a>
+…我也闲着没事跑汉化，捣鼓pc98的。完全看不懂汇编，靠ai拆包。现在把文本提取完了对着干瞪眼
+
+—— 来自  ...</blockquote>
+天呐，逝去的记忆在攻击我。
+
+—— 来自 Xiaomi 24122RKC7C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  mailfarmer  
+##### 68#       发表于 2026-7-9 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69881201&amp;ptid=2281861" target="_blank">zhuzhu47 发表于 2026-7-7 00:02</a>
+最近在用ai蒸馏galgame，然后结合蒸馏成果玩roleplay</blockquote>
+能具体展开说说吗？
+
+—— 来自 Xiaomi 24122RKC7C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
