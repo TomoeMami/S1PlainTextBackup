@@ -205,3 +205,24 @@
 
 普通炸弹鱼也可以攻击身体造成伤害了
 
+
+*****
+
+####  君往何处  
+##### 215#       发表于 2026-7-9 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69896113&amp;ptid=2253488" target="_blank">Kiyohara_Yasuke 发表于 2026-7-9 17:53</a>
+
+官推这两天都在挤牙膏，估计要慢慢把极品鲑鱼全挤出来
+
+今天更新的是つゆだくバクダン，中文翻译估计是多汁 ...</blockquote>
+唾液是本篇就有的设定，包括辰龙。恶心大概主要是外传里鲑鱼墨水的颜色和炸弹的形状<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不再乱发炎了  
+##### 216#       发表于 2026-7-9 18:36
+
+怎么炸弹鱼还有碳酸版，别加到4代打工里谢谢
+
