@@ -156,3 +156,12 @@ steam夏促现在只要60块钱，是不是现在买个黄金版更超值</block
 
 bw 等我10号试玩再来评价一下，vip首发冲去应该拍的到的。
 
+
+*****
+
+####  otaku21126  
+##### 434#       发表于 2026-7-9 13:01
+
+阿特拉斯说P4R要“”修改”和“新增”游戏内容以“符合现代价值观”了
+这下稳了，稳DEI了<img src="https://static.stage1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+

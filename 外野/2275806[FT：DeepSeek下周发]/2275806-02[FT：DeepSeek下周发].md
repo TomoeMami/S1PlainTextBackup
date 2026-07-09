@@ -8056,3 +8056,16 @@ gpt5.5肯定没多大
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Promeus  
+##### 2143#       发表于 2026-7-9 13:03
+
+【疑似ds正式版-哔哩哔哩】 https://b23.tv/zTO9xtZ
+马里奥赛车
+
+【灰度测试dsv4正式版？泰拉瑞亚-以撒结合-RTS-浏览器操作系统-割绳子-星露谷全测试-哔哩哔哩】 https://b23.tv/3QORysb
+
+其他一些疑似v4正式版的成果
+
