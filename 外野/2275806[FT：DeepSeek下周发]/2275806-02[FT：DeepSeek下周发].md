@@ -8081,3 +8081,11 @@ gpt5.5肯定没多大
 —— 来自 HUAWEI SGU-AL10, Android 12, 鹅球 v3.5.99</blockquote>
 5.6差不多2T
 
+
+*****
+
+####  阿刚  
+##### 2145#       发表于 2026-7-9 13:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在的api应该没灰到，让他编了个洛克人结果非常弱智
+
