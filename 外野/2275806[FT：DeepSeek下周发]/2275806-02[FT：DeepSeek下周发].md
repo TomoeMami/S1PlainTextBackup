@@ -8212,3 +8212,15 @@ gpt5.5只有1.5T是这个方法推出来的吗？
 能推荐几个文风skill么？原生ai文确实太呆了看不下去</blockquote>
 我都是找自己喜欢的文章，直接让LLM总结它的文风
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2157#       发表于 2026-7-9 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69895907&amp;ptid=2275806" target="_blank">燕山雪 发表于 2026-7-9 17:16</a>
+能推荐几个文风skill么？原生ai文确实太呆了看不下去</blockquote>
+对了，总结文风skill的LLM和写作的LLM不要用同一个，免得过拟合
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
