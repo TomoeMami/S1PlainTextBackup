@@ -8291,3 +8291,13 @@ Skill这个东西好就好在你可以自己做，把自己喜欢的东西，比
 “灰度”到的这个人就是DS自己人吧</blockquote>
 我比较怀疑是草台导致手机填错了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 2165#       发表于 2026-7-9 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69896706&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-9 20:04</a>
+下面的评论已经开始怀疑用了Fable5，确实我也有点奇怪……但是A÷的模型不可能不联网搜索的，不叫它联网都 ...</blockquote>
+而且fable5是多模态，审美比ds强很多
+
