@@ -446,3 +446,16 @@ steam对比PSN在美区又没有价格优势。
 
 和国内喜欢神仙打架的氛围不太一样，GTA 也类似，因为无挂才会去玩，才回去氪金
 
+
+*****
+
+####  椎名mahuyo  
+##### 43#       发表于 2026-7-9 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69894598&amp;ptid=2285243" target="_blank">青色精灵の最期 发表于 2026-7-9 13:49</a>
+
+和你说恰恰相反，psn联机税是刚需，就因为没挂，欧美那边cod 7成玩家都在主机上，ps平台占4成以上，这么 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">早两年这种说法还有的说，现在COD主机全是接键鼠用鼠标宏的 你以为环境能好多少
+
+GTA更懒得说，GTAPC玩的人少是因为大部分人跑到体验更好的GTA5私服去玩了，不信你看看图奇就知道了
+

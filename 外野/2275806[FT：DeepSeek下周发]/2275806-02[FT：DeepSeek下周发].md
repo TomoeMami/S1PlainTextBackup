@@ -8099,3 +8099,29 @@ gpt5.5肯定没多大
 我现在的api应该没灰到，让他编了个洛克人结果非常弱智</blockquote>
 其实怀疑这位是草台填错手机号把内测发他了<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chenyedgg  
+##### 2147#       发表于 2026-7-9 14:13
+
+[https://www.lesswrong.com/posts/ ... le-knowledge-probes](https://www.lesswrong.com/posts/veFMEzDDyWaer2Sms/sanity-checking-incompressible-knowledge-probes)
+
+gpt5.5只有1.5T是这个方法推出来的吗？
+
+这的话最多只能推算世界知识参数量，gpt和claude很明显不会像gemini一样塞很多的世界知识
+
+*****
+
+####  JRPG  
+##### 2148#       发表于 2026-7-9 14:14
+
+<blockquote>绝地潜兵 发表于 2026-7-6 00:15
+按照酒馆的多agent方向，AI文案可能要两三个agent+skill才能有活人感
+
+一个风格大纲
+
+一个草稿
+</blockquote>
+但这么搞费用也成倍上升
+
