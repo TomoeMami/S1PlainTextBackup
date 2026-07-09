@@ -92,3 +92,13 @@ fa78居然连超强气移动加一都没拿到，区别对待啊<img src="https:
 
 指挥官和命运脉冲20终于击破了，开发机做完EX通完活动清干净，收菜神游
 
+
+*****
+
+####  一个陆仁贾  
+##### 4513#       发表于 2026-7-9 10:24
+
+冰箱和吉翁号准备好了，第二个盾本来准备上报丧，发现二破f91更加硬，就你了。到时候打上20w在把oor加进去<img src="https://static.stage1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
