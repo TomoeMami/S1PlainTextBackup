@@ -8135,3 +8135,14 @@ gpt5.5只有1.5T是这个方法推出来的吗？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">新换了cherrystudio，做了知识库，接D老师写同人，发现仿写文笔之后虽然没ai味儿，但人味儿也特别淡啊，求教诸位有什么好的提示词或者解决方法么
 
+
+*****
+
+####  舞以  
+##### 2150#       发表于 2026-7-9 15:40
+
+“超大稠密模型”更像是一个赢学概念：ds为代表的moe稀疏模型是下等模型，而claude这种（他们想象中的）dense模型才是真的智能。
+类似的还有每次claude更新版本小红书和小蓝书上都有人高呼能力又又又又飞跃啦！
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
