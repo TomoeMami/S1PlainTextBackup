@@ -67,3 +67,11 @@ MUV手游搞的大新闻到底是什么，有手游玩家能解答吗？</blockq
 
 这剧情 让我想起 有催眠app让全校美少女给我去煤窑挖矿赚钱
 
+
+*****
+
+####  madcow  
+##### 2483#       发表于 2026-7-9 21:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以男主跟一开始青梅的分歧是啥，要不要让美少女去黑煤窑挖矿吗
+
