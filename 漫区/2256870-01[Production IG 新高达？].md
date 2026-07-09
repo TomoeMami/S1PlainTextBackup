@@ -2434,3 +2434,11 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 那UC后百年企划的敲门砖还是奇葩到不行的高达NT呢，至今都觉得这玩意实在是逆天的不行，只能纯当金角大仙 ...</blockquote>
 向欧美推广UC属于是狗代的执念了
 
+
+*****
+
+####  fantuanxiaoyi  
+##### 265#       发表于 2026-7-9 08:53
+
+上一个面向欧美市场的敢达是安魂曲<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
