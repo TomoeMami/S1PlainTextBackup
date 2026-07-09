@@ -8366,3 +8366,29 @@ Skill这个东西好就好在你可以自己做，把自己喜欢的东西，比
 
 从那个马里奥赛车第38秒的的opencode页面看，怎么都像是DeepSeek，计费也只有几美分，opencode这个页面能改到什么程度？
 
+
+*****
+
+####  无尽的牙刷  
+##### 2172#       发表于 2026-7-9 21:26
+
+显然deepseek不可能掏出一个出的比glm5.2晚却还不如glm5.2的模型，这次难得早早定了发布时间，也说明性能已经达到了预期
+
+
+*****
+
+####  Promeus  
+##### 2173#       发表于 2026-7-9 21:35
+
+另一种可能就是把一个还没发布的4.1误给到up了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lorraine_Kinney  
+##### 2174#       发表于 2026-7-9 21:35
+
+单靠fable也只是堆几何图形
+
+这是我上次用fable+image2，一句话做的文字冒险小游戏
+[https://replay2023-hc8k.vercel.app/](https://replay2023-hc8k.vercel.app/)
+
