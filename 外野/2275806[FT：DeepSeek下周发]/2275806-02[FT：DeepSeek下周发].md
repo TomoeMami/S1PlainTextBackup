@@ -8146,3 +8146,37 @@ gpt5.5只有1.5T是这个方法推出来的吗？
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2151#       发表于 2026-7-9 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69895159&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-7-9 15:24</a>
+新换了cherrystudio，做了知识库，接D老师写同人，发现仿写文笔之后虽然没ai味儿，但人味儿也特别淡啊，求 ...</blockquote>
+给llm约束太多它就是会往最不会出错的方向生成，也就是人味儿淡了，反正cherrystudio自带claw，上文风skill板正它吧
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2152#       发表于 2026-7-9 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69895277&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-9 15:40</a>
+“超大稠密模型”更像是一个赢学概念：ds为代表的moe稀疏模型是下等模型，而claude这种（他们想象中的）den ...</blockquote>
+放任A畜跟个脑瘫一样炒作本身就是closeai的炒作吧，以前我觉得closeai跟个畜生一样，这辈子都不想给它掏钱，现在有a畜衬托我都订阅plus了
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  奶香花卷  
+##### 2153#       发表于 2026-7-9 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69895491&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-9 16:12</a>
+
+放任A畜跟个脑瘫一样炒作本身就是closeai的炒作吧，以前我觉得closeai跟个畜生一样，这辈子都不想给它掏 ...</blockquote>
+我也是……
+
