@@ -7887,3 +7887,32 @@ ds要发了吗？
 
 有可能7.13，顺便挂上智普和Minimax的空单……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 2125#       发表于 2026-7-9 10:56
+
+有个据说是ds员工的微信里说是713吧，另外那人好像还说梁圣在搞超巨型模型
+
+*****
+
+####  drodchang  
+##### 2126#       发表于 2026-7-9 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69893628&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-9 10:56</a>
+
+有个据说是ds员工的微信里说是713吧，另外那人好像还说梁圣在搞超巨型模型 ...</blockquote>
+国内不搞超大模型说不过去了，国外御三家个个都要10T了
+
+*****
+
+####  neptunehs  
+##### 2127#       发表于 2026-7-9 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69893628&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-9 10:56</a>
+有个据说是ds员工的微信里说是713吧，另外那人好像还说梁圣在搞超巨型模型 ...</blockquote>
+超巨型模型搞了也用不起啊 还是觉得v4f这种大小是甜点区
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
