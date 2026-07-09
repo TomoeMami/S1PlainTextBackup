@@ -889,3 +889,16 @@ PS5其实就是靠信仰卖的。
 
 分销商线下销售附带的营销索尼自己出么？
 
+
+*****
+
+####  希德尼娅  
+##### 88#       发表于 2026-7-10 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69893639&amp;ptid=2285243" target="_blank">椎名mahuyo 发表于 2026-7-9 10:58</a>
+
+索尼相信，随着时间的推移，大多数玩家最终会接受向 100% 数字生态系统的过渡。
+
+他说的没错，但是索尼是不 ...</blockquote>
+喜欢在电脑上玩游戏的早就投奔steam了，能留在ps5平台的不就是些赖在电视前不肯走的老登。老登反对ps5数字版游戏却不反steam数字版游戏，无非就是steam经常打折。索尼也只要经常打折就行了。
+

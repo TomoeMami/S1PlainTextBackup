@@ -1108,3 +1108,11 @@ op和ed意外的不错。
 致敬游戏部
 <img src="https://p.sda1.dev/33/79e9e06fadebc4504d271f2bede2dcbd/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苹果皮卡丘  
+##### 81#       发表于 2026-7-10 00:09
+
+管人之争，向来如此
+
