@@ -7916,3 +7916,32 @@ ds要发了吗？
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nxmonitor  
+##### 2128#       发表于 2026-7-9 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69893636&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-7-9 10:58</a>
+
+国内不搞超大模型说不过去了，国外御三家个个都要10T了</blockquote>
+我觉得真没这么大，如果真这么大而且这个V4正式版是真的，只能说明他们的模型架构有点落后了……
+
+
+*****
+
+####  很久就在那边l  
+##### 2129#       发表于 2026-7-9 11:10
+
+又不开源怎么知道是多大的模型，马斯克说5t，另一边Cursor的CEO说他们即将发布1.5t的模型和gpt、opus一样大
+
+*****
+
+####  pwzzy  
+##### 2130#       发表于 2026-7-9 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69893700&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-9 11:08</a>
+
+我觉得真没这么大，如果真这么大而且这个V4正式版是真的，只能说明他们的模型架构有点落后了…… ...</blockquote>
+a畜的架构就是落后，10t的稠密模型是他们现在焦头烂额的主要原因。国内上到这个量级是必然的趋势，但是是稀疏的，现在还在追赶是训练卡（b系列）真不够
+
