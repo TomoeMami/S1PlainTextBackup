@@ -102,3 +102,11 @@ fa78居然连超强气移动加一都没拿到，区别对待啊<img src="https:
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Xekueins  
+##### 4514#       发表于 2026-7-9 11:19
+
+第一个10连就出了红F91，满心欢喜抽了200抽结果还是只出了1个<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

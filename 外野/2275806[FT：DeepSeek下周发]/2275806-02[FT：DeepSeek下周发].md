@@ -7945,3 +7945,24 @@ ds要发了吗？
 我觉得真没这么大，如果真这么大而且这个V4正式版是真的，只能说明他们的模型架构有点落后了…… ...</blockquote>
 a畜的架构就是落后，10t的稠密模型是他们现在焦头烂额的主要原因。国内上到这个量级是必然的趋势，但是是稀疏的，现在还在追赶是训练卡（b系列）真不够
 
+
+*****
+
+####  drodchang  
+##### 2131#       发表于 2026-7-9 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69893700&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-9 11:08</a>
+
+我觉得真没这么大，如果真这么大而且这个V4正式版是真的，只能说明他们的模型架构有点落后了…… ...</blockquote>
+闭源模型没有透露过参数，但普遍认为越来越大，超过10T是迟早的事，大模型还是有优势，当然也越来越贵。
+
+*****
+
+####  nxmonitor  
+##### 2132#       发表于 2026-7-9 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69893731&amp;ptid=2275806" target="_blank">pwzzy 发表于 2026-7-9 11:13</a>
+
+a畜的架构就是落后，10t的稠密模型是他们现在焦头烂额的主要原因。国内上到这个量级是必然的趋势，但是是 ...</blockquote>
+真稠密现在的HBM的带宽都不够吧，但是他们确实只会堆规模是真的
+
