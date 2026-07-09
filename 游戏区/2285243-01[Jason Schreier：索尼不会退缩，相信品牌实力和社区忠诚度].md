@@ -592,3 +592,21 @@ A9的忠臣肯定没有多少在打游戏的 只是口头说忠诚
 
 —— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nancygreenlife  
+##### 59#       发表于 2026-7-9 17:29
+
+索狗，贱
+
+
+*****
+
+####  渺小小  
+##### 60#       发表于 2026-7-9 17:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">世嘉··不，哈德森死了还一堆死忠呢。
+
+这索尼要是败了，我看给他哭丧的都没有。
+

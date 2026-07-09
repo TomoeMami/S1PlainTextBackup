@@ -20,3 +20,11 @@ https://github.com/luochang212/dive-into-langgraph/tree/main/skills/dive-into-la
 
 虽然langgraph可以用大模型直接写，但是并行、子图、中间件之类写不好的时候，可以试试我这个skill
 
+
+*****
+
+####  xing7673  
+##### 44#       发表于 2026-7-9 17:27
+
+买chatgpt 5x然后用hermes去接它的api，额度够而且便宜
+
