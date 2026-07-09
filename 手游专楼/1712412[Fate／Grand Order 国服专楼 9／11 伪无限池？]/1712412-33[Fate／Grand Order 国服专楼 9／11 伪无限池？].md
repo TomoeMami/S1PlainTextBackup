@@ -84,3 +84,11 @@
 
 国服新增EX栏增加职介筛选好评啊，这样就可以不用经常刷新了
 
+
+*****
+
+####  khxooo  
+##### 47880#       发表于 2026-7-9 19:44
+
+笑死，YLS的专属宝具动画都改模了，某法老还没有改模<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
