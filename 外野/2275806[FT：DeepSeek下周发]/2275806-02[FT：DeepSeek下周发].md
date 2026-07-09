@@ -8527,3 +8527,18 @@ gpt5.5同样是多模态，前端的“审美”也一直被吐槽 ...</blockquo
 
 up的神力好像被梁圣回收了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 2189#       发表于 2026-7-9 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69897402&amp;ptid=2275806" target="_blank">keamedes 发表于 2026-7-9 22:48</a>
+
+所以别看 glm 5.2 写代码这么溜，其实非常偏科（跟它讨论哲学问题特别明显），因为基座是上一代模型，只是  ...</blockquote>
+你看我在这个楼的发言记录就知道我的看法了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+之前对llm乃至llm为基础的agi的幻想是一个智慧的哲人，现在的期望已经劣化成一个个超大号自动补全了。
+
+每次版本更新就是不服跑个分，塞进各种coding harness里面一通测试。
+
