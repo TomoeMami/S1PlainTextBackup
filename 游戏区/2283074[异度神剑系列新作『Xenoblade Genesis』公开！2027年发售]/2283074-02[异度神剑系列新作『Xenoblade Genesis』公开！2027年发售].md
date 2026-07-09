@@ -250,3 +250,16 @@ xs3 也20周年了，xs虽然制作坎坷也问题重重，但还是有很多难
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  UltramanPain  
+##### 1975#       发表于 2026-7-9 22:31
+
+坐骑不知道，新作高低差如何处理。
+带着马跳崖，马扣血不，还是说直接消失。
+骑着马，会不会很容易掉悬崖下面
+<img src="https://p.sda1.dev/33/c6be0d9d8f163bbf0fcc46ca0c283c60/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

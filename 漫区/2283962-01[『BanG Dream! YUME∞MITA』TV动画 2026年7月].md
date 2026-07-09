@@ -1009,3 +1009,33 @@ op和ed意外的不错。
 <img src="https://p.sda1.dev/33/38aaa4bdd3b0298ce9c2d2c136306a7e/20260708_010506.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/33/8b0f73f95dd2ae57d1ae8d22b5badd60/1783443963024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 71#       发表于 2026-7-9 22:29
+
+虽然婊菈很欠揍
+
+尤其是说“优等生”的口气
+
+但阿拉蕾难道一点责任都没有吗
+
+太吵了阿拉蕾
+
+*****
+
+####  渡鸦骑士  
+##### 72#       发表于 2026-7-9 22:31
+
+真就复刻游戏部是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刑部姬真可爱  
+##### 73#       发表于 2026-7-9 22:33
+
+最后一分钟拉了啊，且不说这刻意的每集一碰头，之前阿拉蕾见到律都是人机模式或者转身就跑，这集阿拉蕾在经过3集的心理按摩后，对律反而更加应激，这不纯纯为了爆点牺牲人物塑造吗。。。然后就是律，给你机会结果张嘴就是一堆莫名其妙的话，不是不能理解这样的人物性格，但只能说，很影响观感。
+
+最后就是薇欧拉，这下真得看看剧情准备怎么处理了，算是决定了这部番下限高低的一个角色<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
