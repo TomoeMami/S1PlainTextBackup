@@ -8568,3 +8568,25 @@ up的神力好像被梁圣回收了<img src="https://static.stage1st.com/image/s
 
 AGI变成了代码补全助手，LLM这条路也是快走到头了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GJRstone  
+##### 2193#       发表于 2026-7-9 23:52
+
+现在有没有蒸馏自己自然人知识形成知识库的应用，我现在工作很不开心，想把自己已有的技能和岗位的知识蒸馏成一套知识库提交给同事调用，自己再去学点东西。
+
+类似grill-me的skill可以让我不断对话定义场景打字输出，再由AI把上下文总结出来方法论也行。看看AI怎么组织这个文档，看看这些AI产出对我自己有没有启发性的影响。
+
+*****
+
+####  chenyedgg  
+##### 2194#       发表于 2026-7-9 23:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69897557&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-7-9 23:41</a>
+
+AGI变成了代码补全助手，LLM这条路也是快走到头了</blockquote>
+不管什么东西都要条件or结构足够了才能产生，LLM够不到AGI一直都有大佬在说的，
+
+只不过老马奥特曼A/一直在烂炒而已
+
