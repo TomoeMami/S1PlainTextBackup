@@ -8301,3 +8301,15 @@ Skill这个东西好就好在你可以自己做，把自己喜欢的东西，比
 下面的评论已经开始怀疑用了Fable5，确实我也有点奇怪……但是A÷的模型不可能不联网搜索的，不叫它联网都 ...</blockquote>
 而且fable5是多模态，审美比ds强很多
 
+
+*****
+
+####  nxmonitor  
+##### 2166#       发表于 2026-7-9 20:32
+
+ 本帖最后由 nxmonitor 于 2026-7-9 20:35 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69896776&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-9 20:21</a>
+
+而且fable5是多模态，审美比ds强很多</blockquote>
+对的，多模态模型能自己看一下到底好不好，这种像素风格确实表明没多模态，GLM5.2看之前的例子也差不少
+
