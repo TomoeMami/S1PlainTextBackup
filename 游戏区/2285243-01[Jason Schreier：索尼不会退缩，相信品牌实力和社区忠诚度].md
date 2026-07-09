@@ -676,3 +676,13 @@ psn日区排名前面的全是不需要会员费的免费游戏
 索 ...</blockquote>
 不是说了很清楚了么，靠忠诚度啊
 
+
+*****
+
+####  黑白魔炮使  
+##### 67#       发表于 2026-7-9 19:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就赌欧美没能力转移到PC，可以说毫无悬念的，欧美玩家不可能坚定的转向PC，这样看情况PS6可以少补贴甚至大胆点硬件也要有利润点
+
+并不是天方夜谭
+
