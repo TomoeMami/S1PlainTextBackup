@@ -8590,3 +8590,16 @@ AGI变成了代码补全助手，LLM这条路也是快走到头了</blockquote>
 
 只不过老马奥特曼A/一直在烂炒而已
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 2195#       发表于 2026-7-10 00:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+最简单的 7年前的alpha star现在还是sc2最高的山
+算力进步了7倍吧 
+drl+mml才是正道 神谕机不可能
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
