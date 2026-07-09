@@ -4300,3 +4300,14 @@ b站有动画草图泄露
 啊？还有这种NB存档？</blockquote>
 这不是空存档吗，队友的卡触发不了吧<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lokiling  
+##### 1138#       发表于 2026-7-10 03:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69897919&amp;ptid=2256125" target="_blank">Booorunestud 发表于 2026-7-10 03:41</a>
+
+这不是空存档吗，队友的卡触发不了吧</blockquote>
+槽点在S2神锤+S3刻印
+
