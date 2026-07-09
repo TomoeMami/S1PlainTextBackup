@@ -8550,3 +8550,21 @@ up的神力好像被梁圣回收了<img src="https://static.stage1st.com/image/s
 
 <img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">恶意拉高期待,正式版什么时候发布
 
+
+*****
+
+####  杀人鲸  
+##### 2191#       发表于 2026-7-9 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69897528&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-7-9 23:29</a>
+
+恶意拉高期待,正式版什么时候发布</blockquote>
+最多还有十一天，慢慢等吧！
+
+*****
+
+####  绝地潜兵  
+##### 2192#       发表于 2026-7-9 23:41
+
+AGI变成了代码补全助手，LLM这条路也是快走到头了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
