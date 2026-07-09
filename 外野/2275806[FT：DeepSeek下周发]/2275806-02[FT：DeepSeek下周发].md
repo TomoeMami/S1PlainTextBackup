@@ -8333,3 +8333,26 @@ Skill这个东西好就好在你可以自己做，把自己喜欢的东西，比
 
 结果是一句话生成游戏？我都没敢往那边想。
 
+
+*****
+
+####  Promeus  
+##### 2169#       发表于 2026-7-9 20:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69896852&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-7-9 20:45</a>
+不是，我以为群星，魔兽什么的还是在说文风呢。
+
+结果是一句话生成游戏？我都没敢往那边想。 ...</blockquote>
+因为太明显了，预览版mc直接进不去或者一片黑，疑似正式版直接整出来跟4.8掰手腕的了
+
+
+*****
+
+####  秦南心  
+##### 2170#       发表于 2026-7-9 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69896776&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-9 20:21</a>
+
+而且fable5是多模态，审美比ds强很多</blockquote>
+还好吧，我感觉后室那个移动和摄像头做的就很好
+

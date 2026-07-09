@@ -778,3 +778,19 @@ PS5其实就是靠信仰卖的。
 
 —— 来自 HONOR PNM-AN20, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  hkguty  
+##### 76#       发表于 2026-7-9 21:00
+
+听说股价是涨的？索尼更加有恃无恐
+
+
+*****
+
+####  TANA  
+##### 77#       发表于 2026-7-9 21:03
+
+不换思想就换人，接受不了无实体的已经不是索尼忠诚的贱狗了，必须出重拳<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
