@@ -7991,3 +7991,45 @@ v4还是1.6t啊<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 现在主流观点是gpt5.5和opus4.8目前来看大概率都远没达到早前猜测的5t。理论上10t就要把互联网数据吃光了，里面有多少辣鸡数据，边际效益有多糟糕，想想也知道。
 
+
+*****
+
+####  chenyedgg  
+##### 2136#       发表于 2026-7-9 12:05
+
+opus 5t、mythos 10t是老马说的，这参数目前就不可能真danse
+
+*****
+
+####  Azcarlo  
+##### 2137#       发表于 2026-7-9 12:05
+
+A畜10T的模型是dense那必不可能，只可能是moe。坊间传闻说一个非常不稀疏激活参数很高的moe。
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  overflowal  
+##### 2138#       发表于 2026-7-9 12:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">10T稠密模型也说的出来，你知道10T的dense是什么计算量吗？
+
+*****
+
+####  bixinhaner  
+##### 2139#       发表于 2026-7-9 12:15
+
+grok4.5在哪能白嫖？瑟瑟能力还是第一吗？
+
+*****
+
+####  qwased  
+##### 2140#       发表于 2026-7-9 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69893976&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-7-9 11:56</a>
+
+现在主流观点是gpt5.5和opus4.8目前来看大概率都远没达到早前猜测的5t。理论上10t就要把互联网数据吃光了， ...</blockquote>
+把写码用户产生的数据灌回去呗，反正出bug了用户自己会盯着让修，天然RL
+

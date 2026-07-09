@@ -167,3 +167,13 @@
 
 话说涂击队按发售价来说卡带大概多少是好价啊？230，40左右么？隔壁星际火狐现在百亿补贴里已经跌到165了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 211#       发表于 2026-7-9 12:07
+
+上了两则cm，看上去还是有点关卡设计的
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
