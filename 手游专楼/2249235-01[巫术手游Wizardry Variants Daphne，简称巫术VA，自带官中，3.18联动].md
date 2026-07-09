@@ -166,3 +166,13 @@ FF11！！！！！！！！！！！妈的课爆
 
 只要开锁和上毒 最简单的试炼<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 假面单刷了
 
+
+*****
+
+####  Flechette  
+##### 844#       发表于 2026-7-9 22:21
+
+短剑凛音<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，原皮凛音很强吗值得这么下毒
+
+主动技能倒是不错，感觉可以喂给阿贝，彻底淘汰掉传统的横列射击
+

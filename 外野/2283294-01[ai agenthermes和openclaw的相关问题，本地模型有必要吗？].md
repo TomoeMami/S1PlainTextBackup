@@ -39,3 +39,11 @@ https://github.com/luochang212/dive-into-langgraph/tree/main/skills/dive-into-la
 买chatgpt 5x然后用hermes去接它的api，额度够而且便宜</blockquote>
 这是什么额度，在哪里买
 
+
+*****
+
+####  logiccat  
+##### 46#       发表于 2026-7-9 22:18
+
+我个人用下来hermes比openclaw强点，编程都不如deepseek TUI，codex和CC就不说了，专精编程肯定更强
+

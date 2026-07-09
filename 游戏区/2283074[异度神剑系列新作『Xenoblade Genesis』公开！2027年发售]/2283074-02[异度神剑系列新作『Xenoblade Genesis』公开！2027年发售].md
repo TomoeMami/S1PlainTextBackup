@@ -238,3 +238,15 @@ xs3 也20周年了，xs虽然制作坎坷也问题重重，但还是有很多难
 
 包有载具的，xbx 和 xb1 里的载具实验都是给新作的准备
 
+
+*****
+
+####  UltramanPain  
+##### 1974#       发表于 2026-7-9 22:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69896541&amp;ptid=2283074" target="_blank">lilod 发表于 2026-7-9 19:27</a>
+包有载具的，xbx 和 xb1 里的载具实验都是给新作的准备</blockquote>
+仔细想了想，xb3实验了船，xbx实验了飞机(龙)，xb1 2e实验了车(马)，xb2 2e实验了战斗系统
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
