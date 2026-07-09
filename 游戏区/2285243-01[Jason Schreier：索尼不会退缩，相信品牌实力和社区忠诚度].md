@@ -610,3 +610,20 @@ A9的忠臣肯定没有多少在打游戏的 只是口头说忠诚
 
 这索尼要是败了，我看给他哭丧的都没有。
 
+
+*****
+
+####  zeroboss4  
+##### 61#       发表于 2026-7-9 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69894277&amp;ptid=2285243" target="_blank">满满一大杯 发表于 2026-7-9 12:42</a>
+steam对比PSN在美区又没有价格优势。
+我当年玩主机主要是出于攒机的话我确实不懂哪个硬件不是猴，又不想上 ...</blockquote>
+psn日区比别的区更扯淡
+
+别的区好歹有需要会员的网游和单机
+
+psn日区排名前面的全是不需要会员费的免费游戏
+
+—— 来自 OnePlus PLR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
