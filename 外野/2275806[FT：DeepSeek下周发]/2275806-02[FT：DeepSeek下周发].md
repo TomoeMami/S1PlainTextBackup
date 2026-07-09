@@ -8244,3 +8244,23 @@ gpt5.5只有1.5T是这个方法推出来的吗？
 能推荐几个文风skill么？原生ai文确实太呆了看不下去</blockquote>
 Skill这个东西好就好在你可以自己做，把自己喜欢的东西，比如文字风格、人设、流程化处理，这些都让AI一步一步提炼成skill，最后可以一键使用，是特别有成就感的事。
 
+
+*****
+
+####  nxmonitor  
+##### 2160#       发表于 2026-7-9 19:57
+
+[https://www.bilibili.com/video/BV1GyMj6dE4Q](https://www.bilibili.com/video/BV1GyMj6dE4Q)
+
+新例子，群星文明六和魔兽世界
+
+
+*****
+
+####  nxmonitor  
+##### 2161#       发表于 2026-7-9 20:03
+
+[https://www.bilibili.com/video/BV1n7MH6SEeA](https://www.bilibili.com/video/BV1n7MH6SEeA)
+
+还有个后室和恐怖游戏
+
