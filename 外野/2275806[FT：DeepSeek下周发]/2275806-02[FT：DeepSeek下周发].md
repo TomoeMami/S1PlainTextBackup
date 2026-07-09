@@ -8180,3 +8180,24 @@ gpt5.5只有1.5T是这个方法推出来的吗？
 放任A畜跟个脑瘫一样炒作本身就是closeai的炒作吧，以前我觉得closeai跟个畜生一样，这辈子都不想给它掏 ...</blockquote>
 我也是……
 
+
+*****
+
+####  燕山雪  
+##### 2154#       发表于 2026-7-9 17:16
+
+<blockquote>半江瑟瑟半江红 发表于 2026-7-9 16:10
+给llm约束太多它就是会往最不会出错的方向生成，也就是人味儿淡了，反正cherrystudio自带claw，上文风ski ...</blockquote>
+能推荐几个文风skill么？原生ai文确实太呆了看不下去
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2155#       发表于 2026-7-9 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69895907&amp;ptid=2275806" target="_blank">燕山雪 发表于 2026-7-9 17:16</a>
+能推荐几个文风skill么？原生ai文确实太呆了看不下去</blockquote>
+直接塞想要的文风的范文让llm自己总结
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
