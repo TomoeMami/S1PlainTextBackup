@@ -8392,3 +8392,18 @@ Skill这个东西好就好在你可以自己做，把自己喜欢的东西，比
 这是我上次用fable+image2，一句话做的文字冒险小游戏
 [https://replay2023-hc8k.vercel.app/](https://replay2023-hc8k.vercel.app/)
 
+
+*****
+
+####  nxmonitor  
+##### 2175#       发表于 2026-7-9 21:52
+
+试试看把pro的思考强度调整成high，或许能灰度到新模型上
+
+*****
+
+####  chenyedgg  
+##### 2176#       发表于 2026-7-9 21:55
+
+看时间qwen 3.8应该也快了，月中感觉会ds正式版 VS gemini 3.5 pro VS qwen 3.8
+
