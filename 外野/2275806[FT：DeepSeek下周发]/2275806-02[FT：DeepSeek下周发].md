@@ -8478,3 +8478,24 @@ opencode go这个月怎么这么不耐用，用D指导pro单纯接入rikkahub，
 梁圣（看起来可以维持这个称号了）啥时候正式放出原子弹，让大伙都瘫坐在椅子上？ ...</blockquote>
 坊间传闻下周一
 
+
+*****
+
+####  德尔惠净水器  
+##### 2184#       发表于 2026-7-9 22:37
+
+已经迫不急待等待正式版了
+
+
+*****
+
+####  scikirbypoke  
+##### 2185#       发表于 2026-7-9 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69897274&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-9 22:24</a>
+
+opencode go这个月怎么这么不耐用，用D指导pro单纯接入rikkahub，每次对话都得1美元额度，上个月还挺耐用的 ...</blockquote>
+我在opencode已经用不动了，thinking就是不弹出来
+
+已经断了续费用中转站去了
+

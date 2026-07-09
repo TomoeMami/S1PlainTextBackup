@@ -1039,3 +1039,13 @@ op和ed意外的不错。
 
 最后就是薇欧拉，这下真得看看剧情准备怎么处理了，算是决定了这部番下限高低的一个角色<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 74#       发表于 2026-7-9 22:43
+
+薇欧拉中之人twistzz。
+
+监督为了写梦限大看了5年的液体和faze
+
