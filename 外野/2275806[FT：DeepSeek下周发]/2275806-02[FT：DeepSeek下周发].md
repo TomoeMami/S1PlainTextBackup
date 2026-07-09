@@ -8264,3 +8264,30 @@ Skill这个东西好就好在你可以自己做，把自己喜欢的东西，比
 
 还有个后室和恐怖游戏
 
+
+*****
+
+####  nxmonitor  
+##### 2162#       发表于 2026-7-9 20:04
+
+ 本帖最后由 nxmonitor 于 2026-7-9 20:08 编辑 
+
+下面的评论已经开始怀疑用了Fable5，确实我也有点奇怪……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是A÷的模型不可能不联网搜索的，不叫它联网都偷偷联网搜索，DS的模型确实是没原生联网搜索。
+
+*****
+
+####  chenyedgg  
+##### 2163#       发表于 2026-7-9 20:09
+
+“灰度”到的这个人就是DS自己人吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 2164#       发表于 2026-7-9 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69896730&amp;ptid=2275806" target="_blank">chenyedgg 发表于 2026-7-9 20:09</a>
+
+“灰度”到的这个人就是DS自己人吧</blockquote>
+我比较怀疑是草台导致手机填错了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
