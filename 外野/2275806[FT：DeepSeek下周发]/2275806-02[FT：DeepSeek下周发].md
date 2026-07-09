@@ -8519,3 +8519,11 @@ gpt5.5同样是多模态，前端的“审美”也一直被吐槽 ...</blockquo
 
 所以别看 glm 5.2 写代码这么溜，其实非常偏科（跟它讨论哲学问题特别明显），因为基座是上一代模型，只是 rl 特化做得特别好
 
+
+*****
+
+####  Promeus  
+##### 2188#       发表于 2026-7-9 23:00
+
+up的神力好像被梁圣回收了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

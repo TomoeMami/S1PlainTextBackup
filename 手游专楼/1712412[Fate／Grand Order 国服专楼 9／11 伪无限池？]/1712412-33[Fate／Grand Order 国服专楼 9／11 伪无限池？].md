@@ -92,3 +92,13 @@
 
 笑死，YLS的专属宝具动画都改模了，某法老还没有改模<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一个陆仁贾  
+##### 47881#       发表于 2026-7-9 22:59
+
+3t4t刷了老半天，一抽池子才过去了20池。累了
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
