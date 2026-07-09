@@ -84,3 +84,11 @@ fa78居然连超强气移动加一都没拿到，区别对待啊<img src="https:
 
 <img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">贴吧野狗为了吹那个破j8冰箱，居然说90%的大师环境是宇宙
 
+
+*****
+
+####  电脑死机  
+##### 4512#       发表于 2026-7-9 08:26
+
+指挥官和命运脉冲20终于击破了，开发机做完EX通完活动清干净，收菜神游
+

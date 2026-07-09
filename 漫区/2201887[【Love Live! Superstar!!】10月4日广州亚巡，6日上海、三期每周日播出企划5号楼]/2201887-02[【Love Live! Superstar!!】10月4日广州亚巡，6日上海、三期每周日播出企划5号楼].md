@@ -83,3 +83,17 @@ Pay巡演东京场sayu和non送了花篮，nagi和花参加了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  starring  
+##### 1842#       发表于 2026-7-9 08:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69892361&amp;ptid=2201887" target="_blank">csolfans 发表于 2026-7-9 00:41</a>
+有买行李额吗
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+加行李额贵几百元就没买，轻便出行了
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
