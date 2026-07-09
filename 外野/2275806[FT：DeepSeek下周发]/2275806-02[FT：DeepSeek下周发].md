@@ -8407,3 +8407,25 @@ Skill这个东西好就好在你可以自己做，把自己喜欢的东西，比
 
 看时间qwen 3.8应该也快了，月中感觉会ds正式版 VS gemini 3.5 pro VS qwen 3.8
 
+
+*****
+
+####  舞以  
+##### 2177#       发表于 2026-7-9 21:56
+
+我现在对一切“模型特别本质带来的特别能力”都感到怀疑
+
+gpt5.5同样是多模态，前端的“审美”也一直被吐槽不如claude。
+
+我觉得更像是claude在这方面专门做了训练，然后包装成“claude更懂美”来给社区灌认知。
+
+
+*****
+
+####  nxmonitor  
+##### 2178#       发表于 2026-7-9 22:02
+
+[https://www.bilibili.com/video/BV14WMn6dE3y](https://www.bilibili.com/video/BV14WMn6dE3y)
+
+这个roll出来的后室更夸张了，比前面的例子都夸张……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
