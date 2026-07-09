@@ -29,3 +29,13 @@ MUV手游搞的大新闻到底是什么，有手游玩家能解答吗？</blockq
 
 4：伊邪那美都是岛上人类造物主了，还偷偷摸摸xi nao搞什么思维牢笼简直脱裤子放屁。就好比你训练一群狗帮你捕猎，但你从不告诉狗们你是它们主人，只是暗中诱导他们早出晚归抓猎物，然后每天从猎物里偷一点自己用。
 
+
+*****
+
+####  whzfjd  
+##### 2479#       发表于 2026-7-9 11:52
+
+凹世界观方便学生快乐挖矿？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+本来学园催眠就挺糟糕了，现在还成了异种族交流<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
