@@ -7862,3 +7862,28 @@ up新做了个gta，对比如下
 
 ds要发了吗？
 
+
+*****
+
+####  Promeus  
+##### 2122#       发表于 2026-7-9 10:43
+
+【疑似ds正式版-哔哩哔哩】 https://b23.tv/oBybgIJ
+
+马里奥，感觉下限glm5.2，上限和gpt5.5/opus4.8掰手腕
+
+*****
+
+####  酱狐狸  
+##### 2123#       发表于 2026-7-9 10:48
+
+不会要等到7.17世界人工智能大会再发吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nxmonitor  
+##### 2124#       发表于 2026-7-9 10:51
+
+有可能7.13，顺便挂上智普和Minimax的空单……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
