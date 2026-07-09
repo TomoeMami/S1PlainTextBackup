@@ -2442,3 +2442,15 @@ HGRG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referre
 
 上一个面向欧美市场的敢达是安魂曲<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  望江南  
+##### 266#       发表于 2026-7-9 09:07
+
+上一个鬼佬很喜欢的高达叫安魂曲<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+上一个制作团队很豪华的机器人动画叫国家队<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+不是我不信噢...
+
