@@ -643,3 +643,24 @@ psn日区排名前面的全是不需要会员费的免费游戏
 
 30多年前山内溥提出来的，游戏不是必需品，不好玩的话免费送人都不玩——参考现在Steam每天上线即查无此人的众多游戏。也难怪44年前美国能搞出来雅达利Shock。
 
+
+*****
+
+####  pgain2004  
+##### 64#       发表于 2026-7-9 19:33
+
+[https://www.youtube.com/watch?v=sESfDf0My84](https://www.youtube.com/watch?v=sESfDf0My84)
+
+楼主你主帖至少放个原链……
+
+顺便他最近开Youtube讲的几个视频都还算有意思，深浅不一。[https://www.youtube.com/@jason-schreier](https://www.youtube.com/@jason-schreier)
+
+*****
+
+####  laputah  
+##### 65#       发表于 2026-7-9 19:34
+
+<blockquote>青色精灵の最期 发表于 2026-7-9 13:49
+和你说恰恰相反，psn联机税是刚需，就因为没挂，欧美那边cod 7成玩家都在主机上，ps平台占4成以上，这么 ...</blockquote>
+屁吧北美啥游戏都没什么挂，就是人菜得真实，为什么cod主机多，因为这就是个手柄辅瞄游戏，键鼠fps玩得再好的也会被手柄打破防
+
