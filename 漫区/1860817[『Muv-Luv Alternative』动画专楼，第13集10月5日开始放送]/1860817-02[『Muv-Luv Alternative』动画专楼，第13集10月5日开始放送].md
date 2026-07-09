@@ -39,3 +39,13 @@ MUV手游搞的大新闻到底是什么，有手游玩家能解答吗？</blockq
 
 本来学园催眠就挺糟糕了，现在还成了异种族交流<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  iuiuk2  
+##### 2480#       发表于 2026-7-9 12:28
+
+这设定感觉有点槽多无口了，
+
+不过beta本质挖矿机器人，现在学生成了挖矿人造人，也算一种对仗吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

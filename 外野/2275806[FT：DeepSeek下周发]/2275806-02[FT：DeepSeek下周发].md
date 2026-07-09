@@ -8033,3 +8033,26 @@ grok4.5在哪能白嫖？瑟瑟能力还是第一吗？
 现在主流观点是gpt5.5和opus4.8目前来看大概率都远没达到早前猜测的5t。理论上10t就要把互联网数据吃光了， ...</blockquote>
 把写码用户产生的数据灌回去呗，反正出bug了用户自己会盯着让修，天然RL
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2141#       发表于 2026-7-9 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69894098&amp;ptid=2275806" target="_blank">bixinhaner 发表于 2026-7-9 12:15</a>
+grok4.5在哪能白嫖？瑟瑟能力还是第一吗？</blockquote>
+早完蛋了，创意写作能力一坨屎还不如minimax m3
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2142#       发表于 2026-7-9 12:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69893714&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-7-9 11:10</a>
+又不开源怎么知道是多大的模型，马斯克说5t，另一边Cursor的CEO说他们即将发布1.5t的模型和gpt、opus一样大 ...</blockquote>
+gpt5.5肯定没多大
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
