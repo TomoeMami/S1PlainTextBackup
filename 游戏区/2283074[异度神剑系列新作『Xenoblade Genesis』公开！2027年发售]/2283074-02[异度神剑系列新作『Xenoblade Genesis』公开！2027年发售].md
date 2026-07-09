@@ -163,3 +163,12 @@ xs3 也20周年了，xs虽然制作坎坷也问题重重，但还是有很多难
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Piano-Forest  
+##### 1966#         楼主| 发表于 2026-7-9 16:19
+
+<img src="https://p.sda1.dev/33/f4e06e3a70addcba7d71db71f6610a3f/1000170026.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/4dc2ccb2fa00f62a83eba21ef78d6656/1000170030.jpg" referrerpolicy="no-referrer">
+
