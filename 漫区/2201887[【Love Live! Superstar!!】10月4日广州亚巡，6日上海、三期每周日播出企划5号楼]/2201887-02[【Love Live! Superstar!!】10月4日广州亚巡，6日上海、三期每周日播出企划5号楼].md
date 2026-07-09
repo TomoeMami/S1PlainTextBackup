@@ -97,3 +97,17 @@ Pay巡演东京场sayu和non送了花篮，nagi和花参加了
 
 —— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  csolfans  
+##### 1843#       发表于 2026-7-9 08:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69892766&amp;ptid=2201887" target="_blank">starring 发表于 2026-7-9 08:18</a>
+加行李额贵几百元就没买，轻便出行了
+
+—— 来自 Sony XQ-DQ72, Android 15, 鹅球 v3.5.99 ...</blockquote>
+广东这边图便宜估计真得UO了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
