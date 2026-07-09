@@ -8089,3 +8089,13 @@ gpt5.5肯定没多大
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在的api应该没灰到，让他编了个洛克人结果非常弱智
 
+
+*****
+
+####  Promeus  
+##### 2146#       发表于 2026-7-9 14:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69894585&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-7-9 13:46</a>
+我现在的api应该没灰到，让他编了个洛克人结果非常弱智</blockquote>
+其实怀疑这位是草台填错手机号把内测发他了<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
