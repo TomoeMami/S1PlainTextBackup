@@ -8,3 +8,15 @@
 
 不用ｑｍｔ就会比较难搞。当然，也可以手工一个个买。
 
+
+*****
+
+####  星汐引力  
+##### 43#       发表于 2026-7-9 13:17
+
+<blockquote>chaoswing 发表于 2026-6-29 15:12
+我自己搭了一个投研辅助系统，可以根据实时和历史数据生成个股的深度研报，hermes手动触发/cron，编排层用 ...</blockquote>
+https://github.com/luochang212/dive-into-langgraph/tree/main/skills/dive-into-langgraph
+
+虽然langgraph可以用大模型直接写，但是并行、子图、中间件之类写不好的时候，可以试试我这个skill
+
