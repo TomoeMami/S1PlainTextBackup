@@ -4311,3 +4311,23 @@ b站有动画草图泄露
 这不是空存档吗，队友的卡触发不了吧</blockquote>
 槽点在S2神锤+S3刻印
 
+
+*****
+
+####  lokiling  
+##### 1139#       发表于 2026-7-10 03:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69897919&amp;ptid=2256125" target="_blank">Booorunestud 发表于 2026-7-10 03:41</a>
+
+这不是空存档吗，队友的卡触发不了吧</blockquote>
+槽点在S2神锤+S3刻印
+
+*****
+
+####  沙里昂  
+##### 1140#       发表于 2026-7-10 05:48
+
+连发小补丁就是为了封反和谐啊，集美运营**神了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
