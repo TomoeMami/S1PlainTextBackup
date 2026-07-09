@@ -28,3 +28,14 @@ https://github.com/luochang212/dive-into-langgraph/tree/main/skills/dive-into-la
 
 买chatgpt 5x然后用hermes去接它的api，额度够而且便宜
 
+
+*****
+
+####  自由之紫roy  
+##### 45#         楼主| 发表于 2026-7-9 22:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69895984&amp;ptid=2283294" target="_blank">xing7673 发表于 2026-7-9 17:27</a>
+
+买chatgpt 5x然后用hermes去接它的api，额度够而且便宜</blockquote>
+这是什么额度，在哪里买
+
