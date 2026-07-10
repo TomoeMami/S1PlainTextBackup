@@ -8794,3 +8794,33 @@ v4正式版如果性能真有现在流传的水平，那也是突飞猛进进进
 
 为什么国内这几个coding的模型都不加视觉能力，调页面的时候很不舒服
 
+
+*****
+
+####  nxmonitor  
+##### 2211#       发表于 2026-7-10 15:28
+
+【不知道是不是被deepseek v4正式版灰度到了，用一句话生成的，但效果确实好-哔哩哔哩】 [https://b23.tv/dyoO9PM](https://b23.tv/dyoO9PM)
+
+又一个高维空间碎片，可能是后室三个例子里最好的一个，不过我认为后面两个可能自己装了一些skill
+
+*****
+
+####  overflowal  
+##### 2212#       发表于 2026-7-10 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69900233&amp;ptid=2275806" target="_blank">zypyong 发表于 2026-7-10 15:06</a>
+
+为什么国内这几个coding的模型都不加视觉能力，调页面的时候很不舒服</blockquote>
+不是你说加就加的，视觉token没处理好会干扰模型的能力。国内这几家都是在规模比较小的模型上实验。最顶级的模型都还是纯text。
+
+目前看来kimi在这方面是scale的最成功的
+
+
+*****
+
+####  nxmonitor  
+##### 2213#       发表于 2026-7-10 15:31
+
+国内几个都深受DeepSeek-V3的影响自然就这样了，也就kimi确实有个多模态，下次普及要等V4.1或者V4.2了
+
