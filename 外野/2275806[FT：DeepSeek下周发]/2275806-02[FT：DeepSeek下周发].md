@@ -9087,3 +9087,18 @@ ok，感觉是不是更适合专业码农用啊
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  舞以  
+##### 2238#       发表于 2026-7-10 22:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69902210&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-7-10 22:04</a>
+干嘛我reasonix在windows各种碰钉子 什么wsl进不去啊 开不起沙盒啊 用不了python啊 linux限定？
+
+—— 来自 ...</blockquote>
+大概windows是二等公民吧，我今天还问了gptwindows沙箱怎么实现的，它告诉我很dirty，完全是OpenAI这种大厂才能做好<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+claude code在windows都没沙箱功能
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
