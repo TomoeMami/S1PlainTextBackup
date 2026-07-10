@@ -8992,3 +8992,16 @@ cc接ds做的？
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zy450  
+##### 2230#       发表于 2026-7-10 19:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69901523&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-7-10 19:31</a>
+
+cc接ds做的？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+他们好像都是用opencode做的
+
