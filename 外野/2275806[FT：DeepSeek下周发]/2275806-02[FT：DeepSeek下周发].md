@@ -9077,3 +9077,13 @@ ok，感觉是不是更适合专业码农用啊
 
 —— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
 
+
+*****
+
+####  neptunehs  
+##### 2237#       发表于 2026-7-10 22:04
+
+干嘛我reasonix在windows各种碰钉子 什么wsl进不去啊 开不起沙盒啊 用不了python啊 linux限定？
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
