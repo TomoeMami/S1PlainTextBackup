@@ -9102,3 +9102,17 @@ claude code在windows都没沙箱功能
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  goranger  
+##### 2239#       发表于 2026-7-10 22:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69902210&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-7-10 22:04</a>
+干嘛我reasonix在windows各种碰钉子 什么wsl进不去啊 开不起沙盒啊 用不了python啊 linux限定？
+
+—— 来自 ...</blockquote>
+所有这类软件都有这类通病，因为本质都是运行在wsl沙箱里的，而且训练的时候天生linux环境路径亲和
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
