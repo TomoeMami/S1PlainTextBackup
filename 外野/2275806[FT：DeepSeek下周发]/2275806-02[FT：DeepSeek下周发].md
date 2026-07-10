@@ -9151,3 +9151,13 @@ shell换bash了吗？默认是powershell的换成bash能解决一半以上的命
 shell换bash了吗？默认是powershell的换成bash能解决一半以上的命令行兼容问题</blockquote>
 Windows用bash也不是真正的linux啊，powershell7是最好的，问gpt也建议选powershell7
 
+
+*****
+
+####  蛋黄酱Release  
+##### 2243#       发表于 2026-7-11 00:00
+
+用了一阵子Hermes感觉有点太重了，拿来当个写小说的助手什么的感觉也一般，还有什么好用的非编程agent吗？国内的那些agent本身有甲吗？
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
