@@ -51,3 +51,11 @@ MC：金本涼輔（遠野志貴役）
 
 别问，问就是 就这的浪费15分钟时间的预告的预告<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 567#       发表于 2026-7-10 21:10
+
+抽象，虽然日本生放就喜欢干唠，但是志贵声优单口相声也是太难崩了
+
