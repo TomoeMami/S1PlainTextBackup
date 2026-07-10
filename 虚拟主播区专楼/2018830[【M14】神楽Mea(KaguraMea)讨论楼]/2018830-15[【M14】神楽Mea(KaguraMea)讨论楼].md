@@ -4860,3 +4860,17 @@ Aruki酱，谢谢。“阿宅我太幸福了，见到神乐めあ，啊，见到
 
 打得好的话确实是会在国际上被看见的啊，还剩下一场bo5了，blg加油啊。
 
+
+*****
+
+####  古战场亡魂  
+##### 20999#       发表于 2026-7-10 20:14
+
+<img src="https://img.stage1st.com/forum/202607/10/201432tde0fbh055i4g40i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (493.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-10 20:14 上传
+
