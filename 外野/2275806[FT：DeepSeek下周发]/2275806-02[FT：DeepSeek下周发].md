@@ -9055,3 +9055,15 @@ ok，感觉是不是更适合专业码农用啊
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2235#       发表于 2026-7-10 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69901950&amp;ptid=2275806" target="_blank">ST2002 发表于 2026-7-10 21:02</a>
+我一行代码都不会写，但只要能尽量准确描述自己的需求和期望，基本想要什么都能做出来，而且 AI 辅助学习 ...</blockquote>
+我感觉现在限制我使用LLM的最大阻力是自己的需求和想象力，实在想不到祈愿开发啥玩意
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
