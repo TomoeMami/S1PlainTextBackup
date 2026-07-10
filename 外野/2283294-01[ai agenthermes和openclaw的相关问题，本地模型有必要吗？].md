@@ -47,3 +47,11 @@ https://github.com/luochang212/dive-into-langgraph/tree/main/skills/dive-into-la
 
 我个人用下来hermes比openclaw强点，编程都不如deepseek TUI，codex和CC就不说了，专精编程肯定更强
 
+
+*****
+
+####  自由之紫roy  
+##### 47#         楼主| 发表于 2026-7-10 12:13
+
+一定要用ｃｏｄｅｘ，不然脚本越来越多，ｄｓ就彻底不行了
+
