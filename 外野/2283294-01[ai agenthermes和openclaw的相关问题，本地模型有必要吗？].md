@@ -69,3 +69,16 @@ ds推理又不强，他强的是上下文长度和便宜</blockquote>
 
 龙虾和赫尔墨斯之类的agent，用什么模型比较合适？
 
+
+*****
+
+####  自由之紫roy  
+##### 49#         楼主| 发表于 2026-7-10 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69899609&amp;ptid=2283294" target="_blank">dear81 发表于 2026-7-10 12:48</a>
+
+问问
+
+龙虾和赫尔墨斯之类的agent，用什么模型比较合适？</blockquote>
+ｄｓ４ｐｒｏ和ｏｐｅｎａｉ
+
