@@ -954,3 +954,15 @@ PS5这整一个时代提纯成果不错啊
 
 作为曾经的索狗和多平台玩家，在索尼作死之前，我就已经因为第一方乏力很少开机了（比较近的可能是FF7、轨迹、机器人），之后就是索尼无休止的负面新闻，我觉得应该让不少人都粉转黑了吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哎哟卧槽了  
+##### 95#       发表于 2026-7-10 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69898588&amp;ptid=2285243" target="_blank">CALPISSODA 发表于 2026-7-10 10:05</a>
+取消实体那其实应该把游戏称呼也改一下，不要叫什么数字版，更贴近现实一点叫“长租版”，以后新游戏不叫“ ...</blockquote>
+租的話，用完了可以拿回去退錢嗎<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
