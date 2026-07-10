@@ -966,3 +966,22 @@ PS5这整一个时代提纯成果不错啊
 
 —— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  tansapple  
+##### 96#       发表于 2026-7-10 11:22
+
+索尼已经断气了.JPG<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nukacolamania  
+##### 97#       发表于 2026-7-10 11:25
+
+我一个steam用户
+
+那当然是全心全力支持sony啦<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola moto g51 5G, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

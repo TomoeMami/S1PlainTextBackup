@@ -8721,3 +8721,18 @@ dsv4预览版的能力现在确实又距离gpt-5.5/5.6sol挺远。😡
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  nxmonitor  
+##### 2204#       发表于 2026-7-10 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69899060&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-10 11:14</a>
+
+5h限额这种傻逼机制到底谁带起来的
+
+要我为了5h内的更高限额买gpt的pro订阅就太划不来了，根本用不完。
+
+dsv4 ...</blockquote>
+这不就是类似健身房的操作吗？赚的就是你用不完的钱，当然目前看其实coding plan都是赔本赚吆喝的
+

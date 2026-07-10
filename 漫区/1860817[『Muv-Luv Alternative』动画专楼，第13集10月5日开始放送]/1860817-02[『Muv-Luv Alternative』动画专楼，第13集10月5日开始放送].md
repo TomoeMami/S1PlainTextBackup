@@ -75,3 +75,28 @@ MUV手游搞的大新闻到底是什么，有手游玩家能解答吗？</blockq
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以男主跟一开始青梅的分歧是啥，要不要让美少女去黑煤窑挖矿吗
 
+
+*****
+
+####  03e7  
+##### 2484#       发表于 2026-7-10 11:16
+
+ 本帖最后由 03e7 于 2026-7-10 11:17 编辑 
+
+按现在的进度，伊邪那美应该撑不过下次主线更新了，可以猜猜打完伊邪那美后是反攻破船还是beta卷土重来了。也有可能是完结撒花然后停服
+
+主角把伊邪那美收了然后把pico踢了吧
+
+
+*****
+
+####  windlikeman  
+##### 2485#       发表于 2026-7-10 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69899072&amp;ptid=1860817" target="_blank">03e7 发表于 2026-7-10 11:16</a>
+按现在的进度，伊邪那美应该撑不过下次主线更新了，可以猜猜打完伊邪那美后是反攻破船还是beta卷土重来了。 ...</blockquote>
+已经贷款了会长上机 毛妹母子双人机 尤利娅和榊野后续机了 
+伊邪那美真被推了也得排队<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-CT72, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
