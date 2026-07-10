@@ -2444,7 +2444,7 @@
     "newtitle": "[【集合啦！动物森友会】3.0免费更新以及Switch2版本2026年1月15日推出]",
     "lastedit": 1783386487,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2066258": {
@@ -9185,7 +9185,7 @@
     "newtitle": "[《尘白禁区》综合讨论楼#3.6 暖风拂境 5.8-7.16]",
     "lastedit": 1783386373,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2192350": {
@@ -16215,7 +16215,7 @@
     "lastedit": 1783644840,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284887": {
     "totalreply": 56,
@@ -16817,7 +16817,7 @@
     "newtitle": "[夏天制冰最简单粗暴的方案。]",
     "lastedit": 1783386368,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1946669": {
@@ -17051,7 +17051,7 @@
     "newtitle": "[完结2018年7月『GrandBlue 碧蓝之海 ／ ぐらんぶる』专楼]",
     "lastedit": 1783386132,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2285070": {
@@ -17718,7 +17718,7 @@
     "lastedit": 1783644840,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2285243": {
     "totalreply": 89,
@@ -17916,6 +17916,6 @@
     "lastedit": 1783645020,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   }
 }
