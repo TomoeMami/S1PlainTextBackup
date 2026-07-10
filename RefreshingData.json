@@ -545,7 +545,7 @@
     "newtitle": "[【Mr.Quin／秦川】秦智障真爱（？）讨论三号楼]",
     "lastedit": 1783438927,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2095306": {
@@ -2232,12 +2232,12 @@
     "update": false
   },
   "2068301": {
-    "totalreply": 24132,
+    "totalreply": 24133,
     "title": "[【绝区零】调率测试结束 咖啡馆 141718492]",
     "newtitle": "[绝区零 咖啡馆 交流群 141718492 更多情报 2024年公布]",
-    "lastedit": 1783383846,
+    "lastedit": 1783698366,
     "category": "手游专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2043629": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 43366,
+    "totalreply": 43369,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》6.8 赛博朋克2076]",
-    "lastedit": 1783697406,
+    "lastedit": 1783698366,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 18891,
+    "totalreply": 18893,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「寻遗散记」版本即将开放]",
-    "lastedit": 1783697766,
+    "lastedit": 1783698366,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12663,10 +12663,10 @@
     "update": false
   },
   "2272409": {
-    "totalreply": 995,
+    "totalreply": 996,
     "title": "[2026中国火箭发射专楼]",
     "newtitle": "[2026中国航天专楼]",
-    "lastedit": 1783697766,
+    "lastedit": 1783698367,
     "category": "外野",
     "active": true,
     "update": false
@@ -13131,10 +13131,10 @@
     "update": false
   },
   "2190591": {
-    "totalreply": 548,
+    "totalreply": 549,
     "title": "[魔法少女奈叶 20周年完全新作TV动画始动]",
     "newtitle": "[魔法少女奈叶 20周年完全新作TV动画始动]",
-    "lastedit": 1783697885,
+    "lastedit": 1783698484,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16425,10 +16425,10 @@
     "update": false
   },
   "2284945": {
-    "totalreply": 361,
+    "totalreply": 364,
     "title": "[【饿狼传说 群狼之城】EWC 2026 电竞世俱杯专楼（分组已出）]",
     "newtitle": "[【饿狼传说 群狼之城】EWC 2026 电竞世俱杯专楼]",
-    "lastedit": 1783697645,
+    "lastedit": 1783698005,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16578,10 +16578,10 @@
     "update": false
   },
   "2285019": {
-    "totalreply": 358,
+    "totalreply": 361,
     "title": "[台风有讨论吗，感觉奔着江浙沪来了]",
     "newtitle": "[台风有讨论吗，感觉奔着江浙沪来了]",
-    "lastedit": 1783696807,
+    "lastedit": 1783698367,
     "category": "外野",
     "active": true,
     "update": false
@@ -16862,7 +16862,7 @@
     "newtitle": "[黑皮海伦：我想质问荷马，为什么他的作品只给了女性那极少的着墨]",
     "lastedit": 1783438927,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2285107": {
@@ -17577,10 +17577,10 @@
     "update": false
   },
   "2285295": {
-    "totalreply": 80,
+    "totalreply": 81,
     "title": "[📕前员工用85万赔偿拦住了3500亿估值IPO]",
     "newtitle": "[📕前员工用85万赔偿拦住了3500亿估值IPO]",
-    "lastedit": 1783697166,
+    "lastedit": 1783698005,
     "category": "外野",
     "active": true,
     "update": false
@@ -17730,10 +17730,10 @@
     "update": false
   },
   "2283275": {
-    "totalreply": 212,
+    "totalreply": 213,
     "title": "[毛毛直播爆王师傅夫妻生活不和谐，新男友对她很好，有抑郁症]",
     "newtitle": "[毛毛直播爆王师傅夫妻生活不和谐，新男友对她很好，有抑郁症]",
-    "lastedit": 1783697165,
+    "lastedit": 1783698005,
     "category": "外野",
     "active": true,
     "update": false
@@ -17807,6 +17807,15 @@
     "newtitle": "[《汝，爱上昏君吧》获得今年2025轻厉新作单行本第一名，一部蛮有意思的作品]",
     "lastedit": 1783697885,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2285352": {
+    "totalreply": 42,
+    "title": "[聊聊生活必备好物吧]",
+    "newtitle": "[聊聊生活必备好物吧]",
+    "lastedit": 1783698367,
+    "category": "外野",
     "active": true,
     "update": false
   }
