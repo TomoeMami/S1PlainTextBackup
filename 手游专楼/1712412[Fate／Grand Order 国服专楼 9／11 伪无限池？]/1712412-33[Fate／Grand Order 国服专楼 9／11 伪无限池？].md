@@ -115,3 +115,22 @@
 —— 来自 vivo V2419A, Android 16, 鹅球 v3.5.99 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这东西不是挂后台拉倒么
 
+
+*****
+
+####  一个陆仁贾  
+##### 47883#       发表于 2026-7-11 07:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69902712&amp;ptid=1712412" target="_blank">plok201 发表于 2026-7-11 01:09</a>
+这东西不是挂后台拉倒么</blockquote>
+我没有设备条件自动刷
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  霄度天  
+##### 47884#       发表于 2026-7-11 07:43
+
+手机用fga也能自动刷啊，我都是上班的时候刷的，都没怎么挂也100池了
+
