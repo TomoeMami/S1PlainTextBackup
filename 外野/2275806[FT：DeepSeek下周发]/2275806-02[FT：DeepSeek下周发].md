@@ -9005,3 +9005,26 @@ cc接ds做的？
 —— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99</blockquote>
 他们好像都是用opencode做的
 
+
+*****
+
+####  nxmonitor  
+##### 2231#       发表于 2026-7-10 20:49
+
+看了一下GPT5.6一句话生成的结果，除了材质提升可能还不如神秘模型，这几天的几个示例有些还是很偏门的，不至于刷分吧？<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ST2002  
+##### 2232#       发表于 2026-7-10 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69901373&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-10 18:58</a>
+platform.deepseek.com的ui重做了，变“现代”了
+
+v4正式版会是鲸鱼哥再一次震惊世界的moment么
+
+反正我的期 ...</blockquote>
+reasonix 用了一个多月了，确实缓存命中率非常高，基本就没见过低于 95％的时候，配合 flash 模型很经济，经常跑一整天项目烧上亿 token 才花几块钱
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
