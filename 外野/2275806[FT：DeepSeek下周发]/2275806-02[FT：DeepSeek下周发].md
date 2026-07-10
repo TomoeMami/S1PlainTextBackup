@@ -8936,3 +8936,32 @@ Qwen3在捣鼓Gated Delta Net，没怎么受DeepSeek影响
 
 —— 来自 HUAWEI NOH-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  舞以  
+##### 2225#       发表于 2026-7-10 18:58
+
+platform.deepseek.com的ui重做了，变“现代”了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+v4正式版会是鲸鱼哥再一次震惊世界的moment么<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+反正我的期望已经被拉高很多了<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+另外问一下漏油，reasonix这个harness咋样？听说是专门给DeepSeek设计的？
+
+
+*****
+
+####  绝地潜兵  
+##### 2226#       发表于 2026-7-10 19:04
+
+多模态和具身智能、工业生产密切相关，必须搞啊
+
+*****
+
+####  舞以  
+##### 2227#       发表于 2026-7-10 19:05
+
+我觉得想要搞多模态肯定得是到下个大版本做完全原生的了，外挂小模型做图形识别还是不太行。
+
