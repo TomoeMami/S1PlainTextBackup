@@ -8965,3 +8965,30 @@ v4正式版会是鲸鱼哥再一次震惊世界的moment么<img src="https://sta
 
 我觉得想要搞多模态肯定得是到下个大版本做完全原生的了，外挂小模型做图形识别还是不太行。
 
+
+*****
+
+####  冤枉呐  
+##### 2228#       发表于 2026-7-10 19:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69896674&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-9 19:57</a>
+https://www.bilibili.com/video/BV1GyMj6dE4Q
+
+新例子，群星文明六和魔兽世界</blockquote>
+cc接ds做的？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  冤枉呐  
+##### 2229#       发表于 2026-7-10 19:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69896674&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-9 19:57</a>
+https://www.bilibili.com/video/BV1GyMj6dE4Q
+
+新例子，群星文明六和魔兽世界</blockquote>
+cc接ds做的？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

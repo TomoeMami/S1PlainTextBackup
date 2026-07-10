@@ -30,3 +30,24 @@ MC：金本涼輔（遠野志貴役）
 
 [https://youtu.be/xqyw7QzsDnE](https://youtu.be/xqyw7QzsDnE)
 
+
+*****
+
+####  蓮華  
+##### 565#       发表于 2026-7-10 19:26
+
+<img src="https://img.stage1st.com/forum/202607/10/192603r03kbrzrotvz7oii.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20260710192554.png</strong> (6.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-10 19:26 上传
+
+*****
+
+####  岸浪白野  
+##### 566#       发表于 2026-7-10 19:30
+
+别问，问就是 就这的浪费15分钟时间的预告的预告<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
