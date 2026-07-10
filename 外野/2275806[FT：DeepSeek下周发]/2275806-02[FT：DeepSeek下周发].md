@@ -8746,3 +8746,11 @@ dsv4 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Rowen233  
+##### 2206#       发表于 2026-7-10 12:22
+
+AI竞赛这块LPL啥时候能肘飞LCS<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">Grok 4.5忽然突飞猛进了
+
