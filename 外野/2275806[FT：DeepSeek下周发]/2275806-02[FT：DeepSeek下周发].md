@@ -9067,3 +9067,13 @@ ok，感觉是不是更适合专业码农用啊
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  c月光咖啡  
+##### 2236#       发表于 2026-7-10 21:54
+
+我现在需求开到手软，瓶颈在于测试和反复调试，所以期望v4正式版上线后能够减少低级错误
+
+—— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
+
