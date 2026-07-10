@@ -8765,3 +8765,16 @@ AI竞赛这块LPL啥时候能肘飞LCS<img src="https://static.stage1st.com/imag
 AI竞赛这块LPL啥时候能肘飞LCSGrok 4.5忽然突飞猛进了</blockquote>
 翻前面的内容看看例子，只要过几天真有这个水平，直接把大多数模型按住了
 
+
+*****
+
+####  舞以  
+##### 2208#       发表于 2026-7-10 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69899477&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-7-10 12:22</a>
+
+AI竞赛这块LPL啥时候能肘飞LCSGrok 4.5忽然突飞猛进了</blockquote>
+搞到高质量数据，做好后训练，就能有能力飞跃，至少在coding方面是这样的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+v4正式版如果性能真有现在流传的水平，那也是突飞猛进进进进了
+
