@@ -1140,3 +1140,13 @@ op和ed意外的不错。
 
 这不是把完整视频完整对话放出来就行了吗，什么无能公司
 
+
+*****
+
+####  dqtql  
+##### 85#       发表于 2026-7-10 08:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69898192&amp;ptid=2283962" target="_blank">himfsz 发表于 2026-7-10 06:49</a>
+这不是把完整视频完整对话放出来就行了吗，什么无能公司</blockquote>
+如果是v姐偷录的，公司应该是没有原始素材的
+
