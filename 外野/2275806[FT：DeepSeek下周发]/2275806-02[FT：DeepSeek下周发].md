@@ -8824,3 +8824,21 @@ v4正式版如果性能真有现在流传的水平，那也是突飞猛进进进
 
 国内几个都深受DeepSeek-V3的影响自然就这样了，也就kimi确实有个多模态，下次普及要等V4.1或者V4.2了
 
+
+*****
+
+####  tillnight  
+##### 2214#       发表于 2026-7-10 15:38
+
+什么玩意，qwenmax和doubao都是原生多模态超大模型，不开源就不是国模了是吧。
+
+*****
+
+####  nxmonitor  
+##### 2215#       发表于 2026-7-10 15:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69900419&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-7-10 15:38</a>
+
+什么玩意，qwenmax和doubao都是原生多模态超大模型，不开源就不是国模了是吧。 ...</blockquote>
+Max是纯文本的，Plus才是多模态，至于doubao真算了……
+
