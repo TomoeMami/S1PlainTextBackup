@@ -8661,3 +8661,15 @@ drl+mml才是正道 神谕机不可能
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  舞以  
+##### 2198#       发表于 2026-7-10 10:06
+
+试了下奥特曼仙贝最新的5.6，用codex coding最大的感觉是限额消耗更高了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+app聊天的时候进步感觉还是有的，5.6sol和5.5之间算是稳定进步。
+就看梁圣的原子弹啥时候炸了，opencode的glm和codex的限额都有点不够用的感觉
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
