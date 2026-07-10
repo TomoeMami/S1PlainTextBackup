@@ -9141,3 +9141,13 @@ claude code在windows都没沙箱功能
 —— 来自 ...</blockquote>
 shell换bash了吗？默认是powershell的换成bash能解决一半以上的命令行兼容问题
 
+
+*****
+
+####  很久就在那边l  
+##### 2242#       发表于 2026-7-10 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69902363&amp;ptid=2275806" target="_blank">serj005 发表于 2026-7-10 22:51</a>
+shell换bash了吗？默认是powershell的换成bash能解决一半以上的命令行兼容问题</blockquote>
+Windows用bash也不是真正的linux啊，powershell7是最好的，问gpt也建议选powershell7
+
