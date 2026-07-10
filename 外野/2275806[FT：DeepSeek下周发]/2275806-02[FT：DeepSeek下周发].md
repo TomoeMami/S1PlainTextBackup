@@ -8842,3 +8842,23 @@ v4正式版如果性能真有现在流传的水平，那也是突飞猛进进进
 什么玩意，qwenmax和doubao都是原生多模态超大模型，不开源就不是国模了是吧。 ...</blockquote>
 Max是纯文本的，Plus才是多模态，至于doubao真算了……
 
+
+*****
+
+####  nxmonitor  
+##### 2216#       发表于 2026-7-10 15:47
+
+有个思路应该是不去练多模态大模型，而是在Agent里自动分配不同模型，不知道DeepSeek自己的工具出了会不会这样做
+
+
+*****
+
+####  pf67  
+##### 2217#       发表于 2026-7-10 15:52
+
+ 本帖最后由 pf67 于 2026-7-10 15:53 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69900462&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-10 15:47</a>
+
+有个思路应该是不去练多模态大模型，而是在Agent里自动分配不同模型，不知道DeepSeek自己的工具出了会不会 ...</blockquote>
+低成本方案,我自己的agent就是这么干的,好处就是视觉可以高频度调用随便折腾, 代价就是要付出很多额外的后处理成本,而且效果怎么做都不如原生多模态
+
