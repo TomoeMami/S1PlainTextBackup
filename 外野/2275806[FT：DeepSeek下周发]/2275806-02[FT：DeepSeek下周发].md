@@ -8862,3 +8862,32 @@ Max是纯文本的，Plus才是多模态，至于doubao真算了……
 有个思路应该是不去练多模态大模型，而是在Agent里自动分配不同模型，不知道DeepSeek自己的工具出了会不会 ...</blockquote>
 低成本方案,我自己的agent就是这么干的,好处就是视觉可以高频度调用随便折腾, 代价就是要付出很多额外的后处理成本,而且效果怎么做都不如原生多模态
 
+
+*****
+
+####  pf67  
+##### 2218#       发表于 2026-7-10 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69900442&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-10 15:43</a>
+
+Max不是纯文本的吗？好像外挂一个小模型？Plus才是多模态的吧？至于doubao真算了…… ...</blockquote>
+千问几个开源都是原生多模态的, qwen2.6 27b已经可以算是目前最强的可消费级卡上部署的大模型了
+
+
+*****
+
+####  nxmonitor  
+##### 2219#       发表于 2026-7-10 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69900501&amp;ptid=2275806" target="_blank">pf67 发表于 2026-7-10 15:57</a>
+
+千问几个开源都是原生多模态的, qwen2.6 27b已经可以算是目前最强的可消费级卡上部署的大模型了 ...</blockquote>
+写代码总要选Max吧，然而这个就是纯文本的……
+
+*****
+
+####  wandeeees  
+##### 2220#       发表于 2026-7-10 16:00
+
+开放平台的前端UI变了，大的要来了，但是我试了下还是复现不了oneshot生成MC，生成出来一坨
+
