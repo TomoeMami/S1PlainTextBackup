@@ -226,3 +226,15 @@
 
 怎么炸弹鱼还有碳酸版，别加到4代打工里谢谢
 
+
+*****
+
+####  JOJOROY  
+##### 217#       发表于 2026-7-10 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69889724&amp;ptid=2253488" target="_blank">shirolin 发表于 2026-7-8 15:21</a>
+感觉正式进入宣发周期了。
+
+日本那边御三家便利店都推出了预购活动。</blockquote>
+线下试玩通常都在发售一两个月后会给线上的，参考耀西
+
