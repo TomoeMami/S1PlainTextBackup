@@ -189,3 +189,50 @@ bw 等我10号试玩再来评价一下，vip首发冲去应该拍的到的。
 
 先不说大谷花子，我其实觉得柏木典子挺好看的，就是性格烂了点
 
+
+*****
+
+####  变老的大二  
+##### 438#       发表于 2026-7-10 16:33
+
+试玩了在雪子迷宫探索到打绿色成龙那一段。
+
+反正是进行了现代化改造啦。攻击会和p5一样标识弱点。人物3d建模效果挺好的。探索会有补魔，探索路线会有导航。格挡确实挺IMBA的，无脑先手。
+
+<img src="https://img.stage1st.com/forum/202607/10/163024d4o4cci4jhh5i4oh.jpg" referrerpolicy="no-referrer">
+
+<strong>1000043151.jpg</strong> (1.42 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-10 16:30 上传
+
+<img src="https://img.stage1st.com/forum/202607/10/163026jhzh2b174nq7ho4m.jpg" referrerpolicy="no-referrer">
+
+<strong>1000043159.jpg</strong> (1.14 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-10 16:30 上传
+
+<img src="https://img.stage1st.com/forum/202607/10/163026fioe4u5ilqklkvbd.jpg" referrerpolicy="no-referrer">
+
+<strong>1000043152.jpg</strong> (1.64 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-10 16:30 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 黄泉川此方 + 1好评加鹅
+
+查看全部评分
+
