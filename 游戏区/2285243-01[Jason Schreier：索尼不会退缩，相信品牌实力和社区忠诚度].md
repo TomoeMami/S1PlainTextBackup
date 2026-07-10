@@ -985,3 +985,17 @@ PS5这整一个时代提纯成果不错啊
 
 —— 来自 motorola moto g51 5G, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  liekong  
+##### 98#       发表于 2026-7-10 11:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69899011&amp;ptid=2285243" target="_blank">哎哟卧槽了 发表于 2026-7-10 11:09</a>
+租的話，用完了可以拿回去退錢嗎
+
+—— 來自 Google Pixel 2, Android 11, 鵝球 v3.5.99 ...</blockquote>
+租的话，用完拿回去退的是押金，租金不退(
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
