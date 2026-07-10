@@ -8613,3 +8613,15 @@ drl+mml才是正道 神谕机不可能
 
 操作专业软件也要会写代码的，代码能力一坨这模型就废了
 
+
+*****
+
+####  小川彩  
+##### 2197#       发表于 2026-7-10 08:30
+
+【国产之光再进化！DeepSeek V4正式版简测，附带横评Gemini3.5 Pro / Grok4.5等-哔哩哔哩】 https://b23.tv/oQXMLkN
+
+真有明确的灰测资格吗….
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
