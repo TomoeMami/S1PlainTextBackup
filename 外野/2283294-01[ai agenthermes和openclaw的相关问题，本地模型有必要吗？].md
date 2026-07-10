@@ -55,3 +55,17 @@ https://github.com/luochang212/dive-into-langgraph/tree/main/skills/dive-into-la
 
 一定要用ｃｏｄｅｘ，不然脚本越来越多，ｄｓ就彻底不行了
 
+
+*****
+
+####  dear81  
+##### 48#       发表于 2026-7-10 12:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69765440&amp;ptid=2283294" target="_blank">omnitoken 发表于 2026-6-12 13:27</a>
+你这个选择非常迷惑
+
+ds推理又不强，他强的是上下文长度和便宜</blockquote>
+问问
+
+龙虾和赫尔墨斯之类的agent，用什么模型比较合适？
+

@@ -8754,3 +8754,14 @@ dsv4 ...</blockquote>
 
 AI竞赛这块LPL啥时候能肘飞LCS<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">Grok 4.5忽然突飞猛进了
 
+
+*****
+
+####  nxmonitor  
+##### 2207#       发表于 2026-7-10 12:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69899477&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-7-10 12:22</a>
+
+AI竞赛这块LPL啥时候能肘飞LCSGrok 4.5忽然突飞猛进了</blockquote>
+翻前面的内容看看例子，只要过几天真有这个水平，直接把大多数模型按住了
+
