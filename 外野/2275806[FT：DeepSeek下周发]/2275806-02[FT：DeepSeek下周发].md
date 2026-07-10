@@ -9116,3 +9116,28 @@ claude code在windows都没沙箱功能
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  舞以  
+##### 2240#       发表于 2026-7-10 22:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真就codex对windows环境最友好
+
+有桌面端和cli，在windows环境也做了沙箱的实现，还在app里面适配了远程控制桌面codex。
+
+和a\比，现在的closeai真的太像人了。
+
+
+*****
+
+####  serj005  
+##### 2241#       发表于 2026-7-10 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69902210&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-7-10 22:04</a>
+
+干嘛我reasonix在windows各种碰钉子 什么wsl进不去啊 开不起沙盒啊 用不了python啊 linux限定？
+
+—— 来自 ...</blockquote>
+shell换bash了吗？默认是powershell的换成bash能解决一半以上的命令行兼容问题
+
