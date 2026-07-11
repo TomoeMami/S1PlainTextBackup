@@ -34,3 +34,11 @@
 就看联动BU角色的升级笔记是不是常驻交换了，不是的话……</blockquote>
 就金字塔那个尿性，它能常驻？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 2033#       发表于 2026-7-11 19:16
+
+不对劲，13号开活动怎么奈叶自机还没有宣传，要是BU的话那金字塔可得好好Σ了
+

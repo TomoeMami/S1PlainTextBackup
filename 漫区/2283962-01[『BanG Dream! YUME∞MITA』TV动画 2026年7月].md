@@ -1307,3 +1307,16 @@ C！……咳咳咳，不对，是La La La La Girls！梦限大自研旧团（
 
 —— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  帆前  
+##### 92#       发表于 2026-7-11 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69903999&amp;ptid=2283962" target="_blank">novalli 发表于 2026-7-11 12:34</a>
+
+所以是V姐预知到阿拉蕾会摔她手机所以才针对她的？
+
+—— 来自 Xiaomi 25042PN24C, Android 16, 鹅球 v4. ...</blockquote>
+怎么会得出这个结论，薇姐只是想让阿拉蕾看视频，方便宫走她而己<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
