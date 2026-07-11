@@ -3070,3 +3070,13 @@ Domo！God slayer desuwa！
 
 这就是索尼独占战略的杀手锏？一定能吸引很多人买吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  C.W.Nimitz  
+##### 307#       发表于 2026-7-11 10:51
+
+往漫威靠？
+
+剧本质量能比真的漫威银河护卫队游戏强么？
+
