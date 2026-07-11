@@ -23,3 +23,14 @@
 
 就看联动BU角色的升级笔记是不是常驻交换了，不是的话……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  weiweiEX  
+##### 2032#       发表于 2026-7-11 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69903747&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2026-7-11 11:30</a>
+
+就看联动BU角色的升级笔记是不是常驻交换了，不是的话……</blockquote>
+就金字塔那个尿性，它能常驻？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
