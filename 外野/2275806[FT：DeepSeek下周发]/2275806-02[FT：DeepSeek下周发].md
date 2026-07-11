@@ -9307,3 +9307,11 @@ rikkahub害人匪浅<img src="https://static.stage1st.com/image/smiley/face2017/
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  zerona  
+##### 2258#       发表于 2026-7-12 01:26
+
+问下有人在用安卓平板上的桌面翻译软件吗？我下了几个都是要收费，不交钱连自己的api 都不让用。
+
