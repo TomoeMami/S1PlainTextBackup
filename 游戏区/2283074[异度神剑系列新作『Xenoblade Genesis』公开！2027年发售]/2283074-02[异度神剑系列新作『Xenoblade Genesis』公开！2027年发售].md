@@ -292,3 +292,23 @@ xs3 也20周年了，xs虽然制作坎坷也问题重重，但还是有很多难
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  UltramanPain  
+##### 1978#       发表于 2026-7-11 13:07
+
+用剑的红头发女一，用杖的蓝头发女二，白头发的精灵女三<img src="https://p.sda1.dev/33/06aac6e30d9a73a56ac1d68183d2afac/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  UltramanPain  
+##### 1978#       发表于 2026-7-11 13:07
+
+用剑的红头发女一，用杖的蓝头发女二，白头发的精灵女三<img src="https://p.sda1.dev/33/06aac6e30d9a73a56ac1d68183d2afac/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
