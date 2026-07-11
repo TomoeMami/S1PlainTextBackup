@@ -49,3 +49,17 @@
 
 不知所言了，尊重汉化组的考证与取舍，本国剑术那种有明确考据的校正值得钦佩，但这次只能各论各的了。
 
+
+*****
+
+####  嘿等等  
+##### 1383#       发表于 2026-7-11 19:30
+
+小指辆砍完队友之后，buff里给的沉沦和震颤效果，能触发牢内饰品的“技能附加xx之后”的效果吗
+<img src="https://p.sda1.dev/33/21fadf53b9452da96cc0463ab3be035c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/147319495f99fdad4a145c5be71eeb8b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/df482a772ff4bf9323a58e87a167a99d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/3d84b6349258775153327d840cd00eb3/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
