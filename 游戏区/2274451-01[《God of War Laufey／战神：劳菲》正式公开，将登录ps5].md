@@ -3062,3 +3062,11 @@ Domo！God slayer desuwa！
 
 有光盘版本，大概率明年发售<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  m1grandmk1  
+##### 306#       发表于 2026-7-11 10:20
+
+这就是索尼独占战略的杀手锏？一定能吸引很多人买吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
