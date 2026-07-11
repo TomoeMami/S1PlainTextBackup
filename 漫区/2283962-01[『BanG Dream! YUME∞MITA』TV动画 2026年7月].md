@@ -1270,3 +1270,11 @@ C！……咳咳咳，不对，是La La La La Girls！梦限大自研旧团（
 
 阿拉蕾这腔调让我想起田中理惠的涅普，都是声调不带降的
 
+
+*****
+
+####  雷攻姛人  
+##### 89#       发表于 2026-7-11 09:25
+
+这片这种闹闹腾腾的感觉太适合电棍音二创了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
