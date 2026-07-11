@@ -53,3 +53,15 @@
 不对劲，13号开活动怎么奈叶自机还没有宣传，要是BU的话那金字塔可得好好Σ了 ...</blockquote>
 官方说了今天晚上播的第二话会有新情报
 
+
+*****
+
+####  冰风血羽  
+##### 2035#       发表于 2026-7-12 02:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69905162&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2026-7-11 22:10</a>
+官方说了今天晚上播的第二话会有新情报</blockquote>
+确实，没想到这个<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">睡醒上游戏就看到公告了
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
