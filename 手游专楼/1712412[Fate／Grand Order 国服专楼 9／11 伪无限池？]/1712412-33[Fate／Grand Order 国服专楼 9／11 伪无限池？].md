@@ -134,3 +134,16 @@
 
 手机用fga也能自动刷啊，我都是上班的时候刷的，都没怎么挂也100池了
 
+
+*****
+
+####  plok201  
+##### 47885#       发表于 2026-7-11 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69903160&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2026-7-11 07:42</a>
+
+我没有设备条件自动刷
+
+—— 来自 vivo V2419A, Android 16, 鹅球 v3.5.99</blockquote>
+没电脑也可以像楼上说的用FGA啊，把游戏设置调到最低还可以把退役的备机用起来，手刷太精污了
+
