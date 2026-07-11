@@ -98,3 +98,20 @@
 只追求 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">没用，第一次翻译战争已经打起来了
 
+
+*****
+
+####  Jamaisvu  
+##### 1386#       发表于 2026-7-12 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69905270&amp;ptid=2120922" target="_blank">无名的刀锋 发表于 2026-7-11 22:50</a>
+
+没用，第一次翻译战争已经打起来了</blockquote>
+虽说前作的翻译确实很主观和不考究，但也正是脑叶公司和废墟图书馆的成功普及为如今的月计圈奠基。
+
+现在不考虑老粉丝的情怀，仅以准确性为第一标准，大刀阔斧的改动，莫名给我一种新三国自创成语降查重的感觉...
+
+说实话，官方都不会这么在意细节，舍吾皮肉、断汝筋骨就是官英的意译。非要把那些有记忆点的翻译改成大白话，费力不讨好...
+
+不过零协会的态度挺好的，主动回应，知错能改，比小金英雄十倍。希望能吸取这次教训，给自己和老粉都留些余地吧。
+
