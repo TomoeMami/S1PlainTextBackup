@@ -264,3 +264,11 @@ ATLUS宣布《女神异闻录4：复兴版》将支持中文配音
 ATLUS宣布《女神异闻录4：复兴版》将支持中文配音</blockquote>
 有中配太棒了
 
+
+*****
+
+####  Herreimu  
+##### 442#       发表于 2026-7-12 04:17
+
+看切片的有福了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
