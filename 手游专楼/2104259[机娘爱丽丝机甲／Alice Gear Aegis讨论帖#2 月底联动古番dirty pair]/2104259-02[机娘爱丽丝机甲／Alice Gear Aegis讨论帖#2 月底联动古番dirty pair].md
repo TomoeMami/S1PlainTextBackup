@@ -42,3 +42,14 @@
 
 不对劲，13号开活动怎么奈叶自机还没有宣传，要是BU的话那金字塔可得好好Σ了
 
+
+*****
+
+####  不灭的旋律  
+##### 2034#       发表于 2026-7-11 22:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69904629&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2026-7-11 19:16</a>
+
+不对劲，13号开活动怎么奈叶自机还没有宣传，要是BU的话那金字塔可得好好Σ了 ...</blockquote>
+官方说了今天晚上播的第二话会有新情报
+
