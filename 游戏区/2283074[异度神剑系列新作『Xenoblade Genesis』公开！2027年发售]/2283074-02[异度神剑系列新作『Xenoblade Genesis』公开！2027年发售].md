@@ -338,3 +338,14 @@ xs3 也20周年了，xs虽然制作坎坷也问题重重，但还是有很多难
 
 我越来越觉得火光就是光焰小孩合出来的了，既能不给定死形象，又避免另一个不能出场的遗憾（
 
+
+*****
+
+####  king520kyo  
+##### 1982#       发表于 2026-7-12 06:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69904631&amp;ptid=2283074" target="_blank">狸狸狐 发表于 2026-7-11 19:17</a>
+
+国内二游xb3要素扎堆啊，终末地就不说了，最近鸣潮这个版本又是送行者又是余兴的，还一播曲子就集体变光点 ...</blockquote>
+之前主要是异度神剑的剧情和玩法方面的要素，这回PV的BGM的笛子部分真的像，刚看的时候瞬间幻听还以为鹰角请光田了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
