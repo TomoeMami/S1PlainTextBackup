@@ -155,3 +155,11 @@
 
 小刷一会，20多池，绿方块还没到5000
 
+
+*****
+
+####  深渊骑士  
+##### 47887#       发表于 2026-7-11 17:59
+
+福袋池好拉<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">最近这2次都福袋都没有想抽的欲望。下毒的太显眼了。
+
