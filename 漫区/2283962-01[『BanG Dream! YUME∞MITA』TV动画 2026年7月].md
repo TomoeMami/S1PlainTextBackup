@@ -1295,3 +1295,15 @@ C！……咳咳咳，不对，是La La La La Girls！梦限大自研旧团（
 <img src="https://p.sda1.dev/33/969b7f75c5bfe78be6902c2e0c746ec4/1000077310.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/33/e0b7c9b6a8afad0dbb121239a28e6224/1000077312.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novalli  
+##### 91#       发表于 2026-7-11 12:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69903779&amp;ptid=2283962" target="_blank">帆前 发表于 2026-7-11 11:38</a>
+手机这里，我第一遍看觉得是阿拉蕾手机被打匿名电话了，后来以为是薇姐的手机，毕竟一开始就是被递手机看视 ...</blockquote>
+所以是V姐预知到阿拉蕾会摔她手机所以才针对她的？<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
