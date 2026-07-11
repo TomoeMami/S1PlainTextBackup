@@ -1278,3 +1278,20 @@ C！……咳咳咳，不对，是La La La La Girls！梦限大自研旧团（
 
 这片这种闹闹腾腾的感觉太适合电棍音二创了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帆前  
+##### 90#       发表于 2026-7-11 11:38
+
+手机这里，我第一遍看觉得是阿拉蕾手机被打匿名电话了，后来以为是薇姐的手机，毕竟一开始就是被递手机看视频了，那样的话就是薇姐故意让人打自己手机装可怜。
+
+但是后来再看不对，阿拉蕾接电话的时候有一个换手掏口袋的动作，也就是说她左手拿薇姐手机，右手拿的依然是自己的手机，所以被打匿名电话的人还是阿拉蕾。
+
+另外特写镜头对比显示两人手机镜头颜色不一样，阿拉蕾的是灰色，薇姐的是黄色，且薇姐手机壳颜色更深。
+
+（但是后面阿拉蕾松手摔的手机确实是薇姐的手机（）
+<img src="https://p.sda1.dev/33/f53a1f69daebbcc11d62a735b242f8c7/1000077311.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/969b7f75c5bfe78be6902c2e0c746ec4/1000077310.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/e0b7c9b6a8afad0dbb121239a28e6224/1000077312.jpg" referrerpolicy="no-referrer">
+
