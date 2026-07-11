@@ -9315,3 +9315,13 @@ rikkahub害人匪浅<img src="https://static.stage1st.com/image/smiley/face2017/
 
 问下有人在用安卓平板上的桌面翻译软件吗？我下了几个都是要收费，不交钱连自己的api 都不让用。
 
+
+*****
+
+####  novalli  
+##### 2259#       发表于 2026-7-12 06:27
+
+关于powershell，自己写或者让Agent总结常遇到的错误然后写个rule会很有效，对一些常用的命令强行要求替换为powershell命令。
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
