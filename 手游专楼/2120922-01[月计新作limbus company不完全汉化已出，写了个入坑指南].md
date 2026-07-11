@@ -85,3 +85,16 @@
 
 话说早期人格属性没整得这么明白，直到环指点彩派实装，制霸呼吸和充能外的五个队伍，小金这才给人格属性加了底层代码...不过现在正通过特定EGO解除限制...
 
+
+*****
+
+####  无名的刀锋  
+##### 1385#       发表于 2026-7-11 22:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69902760&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2026-7-11 02:00</a>
+
+零协会汉化组为了追求准确性把“天降拂晓”改成“黎明将至”，感觉拨乱反正的有些过了，气势全无。
+
+只追求 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">没用，第一次翻译战争已经打起来了
+
