@@ -39,3 +39,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能看懂角色心态变化，观感就不会差
 
+
+*****
+
+####  黄泉川此方  
+##### 2089#       发表于 2026-7-12 17:54
+
+🐂你是能一开始就看出来他不太正常了
+
+NOX真的一切都在谜团之中🥹
+

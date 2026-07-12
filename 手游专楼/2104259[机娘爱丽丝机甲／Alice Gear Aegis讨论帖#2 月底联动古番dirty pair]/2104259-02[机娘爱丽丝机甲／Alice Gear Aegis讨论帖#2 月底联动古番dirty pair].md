@@ -65,3 +65,11 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  alialex  
+##### 2036#       发表于 2026-7-12 17:46
+
+真就双up没菲特，等明年二期吗
+
