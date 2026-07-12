@@ -9442,3 +9442,15 @@ Windows搞的终端太恶心了，从来只用wsl2。唐杰是不是看到啥了
 
 你说的“灰测”是什么？
 
+
+*****
+
+####  Promeus  
+##### 2271#       发表于 2026-7-12 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69908231&amp;ptid=2275806" target="_blank">ww-tsl 发表于 2026-7-12 17:12</a>
+不是思维很短，而是根本没有，直接给出处理结果了。
+
+你说的“灰测”是什么？</blockquote>
+灰测是模型正式放出前分发给少部分人做测试
+
