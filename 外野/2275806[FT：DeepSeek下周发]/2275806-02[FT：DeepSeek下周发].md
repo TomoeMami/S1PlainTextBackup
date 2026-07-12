@@ -9387,3 +9387,21 @@ rikkahub害人匪浅<img src="https://static.stage1st.com/image/smiley/face2017/
 
 Windows搞的终端太恶心了，从来只用wsl2。唐杰是不是看到啥了，咋就agi了，memory的harness都没弄好，当前llm就是个通往agi的天梯而已，而且这梯子本体都还摇摇晃晃，这就冲next level啦？
 
+
+*****
+
+####  ww-tsl  
+##### 2267#       发表于 2026-7-12 16:25
+
+很久没用DS了，突然发现现在不显示思考过程了？
+
+*****
+
+####  nxmonitor  
+##### 2268#       发表于 2026-7-12 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69908086&amp;ptid=2275806" target="_blank">ww-tsl 发表于 2026-7-12 16:25</a>
+
+很久没用DS了，突然发现现在不显示思考过程了？</blockquote>
+一直有的，如果发现思维链突然变短，可能是抽中灰测了，看看结果好不好……
+
