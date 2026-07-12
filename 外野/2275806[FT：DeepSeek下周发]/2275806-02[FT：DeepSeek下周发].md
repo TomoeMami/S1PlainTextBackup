@@ -9454,3 +9454,19 @@ Windows搞的终端太恶心了，从来只用wsl2。唐杰是不是看到啥了
 你说的“灰测”是什么？</blockquote>
 灰测是模型正式放出前分发给少部分人做测试
 
+
+*****
+
+####  不见不散  
+##### 2272#       发表于 2026-7-12 19:01
+
+网上下了一个MCP用不了，一运行就报错，丢给Agent一顿分析，然后刷刷刷开始改代码，反正我也看不懂，全部批准，改完居然真的能用了。真是不敢想象，以前我遇到这种问题都是干瞪眼，这就是会超能力的感觉吗？真是太棒了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  舞以  
+##### 2273#       发表于 2026-7-12 19:04
+
+智谱不是个纯讲coding故事的公司么，咋内部信又开始讲星辰大海了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
