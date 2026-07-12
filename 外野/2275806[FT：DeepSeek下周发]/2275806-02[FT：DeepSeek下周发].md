@@ -9470,3 +9470,11 @@ Windows搞的终端太恶心了，从来只用wsl2。唐杰是不是看到啥了
 
 智谱不是个纯讲coding故事的公司么，咋内部信又开始讲星辰大海了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 2274#       发表于 2026-7-12 19:13
+
+我认为是最近可能压力过大，和最近Minimax的总裁说自己不领工资，以及更之前Kimi在GLM5.2之前被迫搞了个K2.7-coder一样……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
