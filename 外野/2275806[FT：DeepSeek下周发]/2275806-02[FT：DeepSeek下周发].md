@@ -9362,3 +9362,12 @@ rikkahub害人匪浅<img src="https://static.stage1st.com/image/smiley/face2017/
 
 智谱的这个公开信不是什么好消息啊，仔细读读味道和Minimax的有点类似了，所以说这种前沿公司还是不要上市为好，只是没人像DeepSeek后面有个幻方
 
+
+*****
+
+####  jasoncoop  
+##### 2264#       发表于 2026-7-12 12:32
+
+怎么就没早进这楼看看<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+推荐bash，bash好啊，这bash得学啊，新手小白安个数据库mcp被pwsh报错折磨了大半天
+
