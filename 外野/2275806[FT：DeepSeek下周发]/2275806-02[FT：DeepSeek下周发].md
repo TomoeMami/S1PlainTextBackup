@@ -9500,3 +9500,21 @@ v4正式版如果真能按照现在漏出来的质量放量提供，智谱故事
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  舞以  
+##### 2277#       发表于 2026-7-13 04:47
+
+<img src="https://img.stage1st.com/forum/202607/13/044649qql5seg2pegw5zmh.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (145.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-13 04:46 上传
+
+codex暂时移除了5h限额制度，我测
+
+closedAI咋越来越像人了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
