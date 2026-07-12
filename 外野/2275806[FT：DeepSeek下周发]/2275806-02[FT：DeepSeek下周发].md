@@ -9354,3 +9354,11 @@ rikkahub害人匪浅<img src="https://static.stage1st.com/image/smiley/face2017/
 话说deepseek是不是不涨价了，我看官网消息这条下架了，居然没人讨论</blockquote>
 那条是邮件发出的吧，官网也有吗？
 
+
+*****
+
+####  nxmonitor  
+##### 2263#       发表于 2026-7-12 11:14
+
+智谱的这个公开信不是什么好消息啊，仔细读读味道和Minimax的有点类似了，所以说这种前沿公司还是不要上市为好，只是没人像DeepSeek后面有个幻方
+
