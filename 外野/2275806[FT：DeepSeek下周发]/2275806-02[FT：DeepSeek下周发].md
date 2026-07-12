@@ -9371,3 +9371,11 @@ rikkahub害人匪浅<img src="https://static.stage1st.com/image/smiley/face2017/
 怎么就没早进这楼看看<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 推荐bash，bash好啊，这bash得学啊，新手小白安个数据库mcp被pwsh报错折磨了大半天
 
+
+*****
+
+####  tillnight  
+##### 2265#       发表于 2026-7-12 13:46
+
+感觉过度解读，看起来更像是在学A/喊话，又是agi又是什么伦理法律安全底层的。
+
