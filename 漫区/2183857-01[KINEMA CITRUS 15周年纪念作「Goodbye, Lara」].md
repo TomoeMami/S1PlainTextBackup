@@ -887,3 +887,24 @@ Staff
 「オオシャコガイモチーフですが、もう少し白っぽくかわいい感じです」
 <img src="https://p.sda1.dev/33/c13a03a6da5fe07bef03f5742b2db2d2/20260710_231104.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堆雪若叶  
+##### 130#       发表于 2026-7-12 17:04
+
+[https://x.com/Goodbye_Lara/status/2076230090325676517](https://x.com/Goodbye_Lara/status/2076230090325676517)
+
+˚⊹⁺‧┈┈┈┈┈┈┈┈┈┈‧⁺ ⊹˚
+
+　  　   #さよならララ 
+
+　　応援イラストが到着！
+
+˚⊹⁺‧┈┈┈┈┈┈┈┈┈┈‧⁺ ⊹˚
+
+「さよならララ」放送を記念して、陽子さん(@hrn_yc)よりイラストをお寄せいただきました🧜‍♀️
+
+とても可愛らしいイラストをありがとうございます！
+<img src="https://p.sda1.dev/33/bfa1986c31c82d4424a598973e1220ea/9_jqhreqq3f.jpg" referrerpolicy="no-referrer">
+
