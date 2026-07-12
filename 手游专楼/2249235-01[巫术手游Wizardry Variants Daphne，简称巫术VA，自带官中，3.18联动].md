@@ -176,3 +176,11 @@ FF11！！！！！！！！！！！妈的课爆
 
 主动技能倒是不错，感觉可以喂给阿贝，彻底淘汰掉传统的横列射击
 
+
+*****
+
+####  wcorvo  
+##### 845#       发表于 2026-7-12 17:39
+
+steam启动不了游戏，开加速器也不行<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
