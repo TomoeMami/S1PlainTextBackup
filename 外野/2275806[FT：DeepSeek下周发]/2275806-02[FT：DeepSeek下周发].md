@@ -9405,3 +9405,14 @@ Windows搞的终端太恶心了，从来只用wsl2。唐杰是不是看到啥了
 很久没用DS了，突然发现现在不显示思考过程了？</blockquote>
 一直有的，如果发现思维链突然变短，可能是抽中灰测了，看看结果好不好……
 
+
+*****
+
+####  nxmonitor  
+##### 2269#       发表于 2026-7-12 16:31
+
+ 本帖最后由 nxmonitor 于 2026-7-12 16:32 编辑 
+
+可以看看新视频，神秘模型的思维链变得非常短，token的效率大幅提高，现在的V4P是怎么样的左右脑互搏的一坨应该都知道
+[https://www.bilibili.com/video/BV1Q1NT6pEcY](https://www.bilibili.com/video/BV1Q1NT6pEcY)
+
