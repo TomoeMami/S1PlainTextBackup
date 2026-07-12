@@ -9518,3 +9518,15 @@ codex暂时移除了5h限额制度，我测
 
 closedAI咋越来越像人了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御坂MKII  
+##### 2278#       发表于 2026-7-13 05:11
+
+虽然 5.6 本质还是贵，但是竞争压力还是大啊。一个去了 5h limit，一个和弱智一样又续了 7 天<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+国模的后训练加油啊
+
+—— 来自 Xiaomi 24072PX77C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
