@@ -6,3 +6,11 @@
 
 第一次通关噩梦，感觉眼睛都要瞎了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  逆转纹章  
+##### 435#       发表于 2026-7-12 14:46
+
+我是觉得老图比新图噩梦难度难挺多的，刚把新图噩梦难度全角色通了，现在进碰撞区域有些坐牢角色更牢了
+
