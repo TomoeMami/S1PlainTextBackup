@@ -9344,3 +9344,13 @@ rikkahub害人匪浅<img src="https://static.stage1st.com/image/smiley/face2017/
 话说deepseek是不是不涨价了，我看官网消息这条下架了，居然没人讨论</blockquote>
 当初的邮件是正式版出了才涨
 
+
+*****
+
+####  Promeus  
+##### 2262#       发表于 2026-7-12 09:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69906508&amp;ptid=2275806" target="_blank">zhuzhu47 发表于 2026-7-12 09:22</a>
+话说deepseek是不是不涨价了，我看官网消息这条下架了，居然没人讨论</blockquote>
+那条是邮件发出的吧，官网也有吗？
+
