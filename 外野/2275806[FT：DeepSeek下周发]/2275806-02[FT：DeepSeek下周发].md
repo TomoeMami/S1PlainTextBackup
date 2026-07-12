@@ -9325,3 +9325,11 @@ rikkahub害人匪浅<img src="https://static.stage1st.com/image/smiley/face2017/
 
 —— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  zhuzhu47  
+##### 2260#       发表于 2026-7-12 09:22
+
+话说deepseek是不是不涨价了，我看官网消息这条下架了，居然没人讨论<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
