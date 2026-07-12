@@ -9379,3 +9379,11 @@ rikkahub害人匪浅<img src="https://static.stage1st.com/image/smiley/face2017/
 
 感觉过度解读，看起来更像是在学A/喊话，又是agi又是什么伦理法律安全底层的。
 
+
+*****
+
+####  星汐引力  
+##### 2266#       发表于 2026-7-12 16:03
+
+Windows搞的终端太恶心了，从来只用wsl2。唐杰是不是看到啥了，咋就agi了，memory的harness都没弄好，当前llm就是个通往agi的天梯而已，而且这梯子本体都还摇摇晃晃，这就冲next level啦？
+
