@@ -9478,3 +9478,25 @@ Windows搞的终端太恶心了，从来只用wsl2。唐杰是不是看到啥了
 
 我认为是最近可能压力过大，和最近Minimax的总裁说自己不领工资，以及更之前Kimi在GLM5.2之前被迫搞了个K2.7-coder一样……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 2275#       发表于 2026-7-12 19:23
+
+除了那些吹逼之外，感觉核心就一句话“智谱财务状况好不了”<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+v4正式版如果真能按照现在漏出来的质量放量提供，智谱故事都不好讲了啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+700b规模的底模还是不如v4pro 1.6t规模有潜力
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舞以  
+##### 2276#       发表于 2026-7-12 19:27
+
+感觉v4预览版只是个工程验证品，ds在v4这代为了可用的低成本超长上下文加上1.6t规模（尽管是moe）在技术上做了太多创新，可能也有适配ascend的关系，反正预览版端出来的时候确实能力配不上规模。
+智谱我觉得真得偷过来搞个1.xt参数的底模的glm-6了，继续雕花老底模说不定要被ds正面斩杀。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
