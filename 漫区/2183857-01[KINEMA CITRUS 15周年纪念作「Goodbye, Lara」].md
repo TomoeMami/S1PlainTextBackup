@@ -1038,3 +1038,11 @@ Staff
 二人交互的几个动作就把两个角色的性格和心理状态 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">那我说个感觉是漏洞的地方，罐子掉地上磕弯了，但是为什么会磕弯了两个口，怎么做到的
 
+
+*****
+
+####  wolf1997  
+##### 143#       发表于 2026-7-13 16:59
+
+生物股长的op真的好听，温柔中带有力量
+

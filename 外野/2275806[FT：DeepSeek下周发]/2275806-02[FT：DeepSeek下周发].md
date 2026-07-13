@@ -9642,3 +9642,11 @@ closedAI咋越来越像人了<img src="https://static.stage1st.com/image/smiley/
 
 看样子是17号了
 
+
+*****
+
+####  nxmonitor  
+##### 2292#       发表于 2026-7-13 16:59
+
+17号正好有个会开幕，顺便会上还有950
+
