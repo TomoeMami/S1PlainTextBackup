@@ -9947,3 +9947,27 @@ ds到这个地位了 有也不奇怪
 
 2026-7-13 23:25 上传
 
+
+*****
+
+####  ycjiang1337  
+##### 2323#       发表于 2026-7-14 01:31
+
+ 本帖最后由 ycjiang1337 于 2026-7-14 01:35 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69912975&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-7-13 18:54</a>
+不会背上政治包袱加上很厉害的安全对齐吧？</blockquote>
+安全对齐损害模型性能现在是业界共识，国家战略的目标是追上美国，在模型性能仍然落后的前提下不可能允许监管拖后腿。
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  ycjiang1337  
+##### 2324#       发表于 2026-7-14 01:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69913151&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-13 19:52</a>
+不知道前几天那个路透社独家说限制国外访问会不会是真的，不过这个和token出海的想法是完全不一致的吧？ ...</blockquote>
+那个新闻的源头是最高法院的一场纯司法研讨会，其它的部分都是路透社自己编的。AI领域路透社跟三流小报没区别
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
