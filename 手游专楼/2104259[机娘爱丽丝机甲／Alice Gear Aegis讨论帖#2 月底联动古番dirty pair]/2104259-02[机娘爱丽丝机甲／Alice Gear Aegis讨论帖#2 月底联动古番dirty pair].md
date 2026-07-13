@@ -83,3 +83,11 @@
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  alialex  
+##### 2038#       发表于 2026-7-13 15:00
+
+奈叶重力能理解，但怎么法杖是步枪又不是火箭筒了
+
