@@ -95,3 +95,14 @@ Case44
 
 下周没有任何一个骑士变身，确实是空前绝后了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 2094#       发表于 2026-7-13 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69910475&amp;ptid=2250267" target="_blank">milky658 发表于 2026-7-13 09:53</a>
+
+感觉ZZZ这奔着团灭一路狂奔的走向才是高桥叔叔想干的事。看前作访谈就觉得这厮杀心很重，要杀泼皮要杀帕拉 ...</blockquote>
+极狐我记得原定麻雀要死，然后有狸猫当最终boss的方案，感觉与其说是觉醒了善良人格不如说这人原本的预想里极狐活不下来几个人所以才说尽量让角色活下来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
