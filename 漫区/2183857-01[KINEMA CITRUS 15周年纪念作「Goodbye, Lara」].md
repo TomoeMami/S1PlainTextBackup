@@ -1046,3 +1046,14 @@ Staff
 
 生物股长的op真的好听，温柔中带有力量
 
+
+*****
+
+####  堆雪若叶  
+##### 144#       发表于 2026-7-13 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69910114&amp;ptid=2183857" target="_blank">暗黑能乐 发表于 2026-7-13 08:38</a>
+
+你这最后一段的联想感觉全无道理。。日本人吃这样的早餐我怎么觉得很正常，并不需要特别设定是不是外国人 ...</blockquote>
+日式早餐应该就鱼渍菜味增汤那些，香肠煎蛋本身是不搭的元素，虽然最初想到外国人是因为奶奶的发色……说名字有联想其实是感觉茉里像妈带娃<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
