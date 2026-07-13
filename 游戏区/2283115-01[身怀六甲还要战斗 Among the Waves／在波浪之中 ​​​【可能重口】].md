@@ -634,3 +634,11 @@ X上翻到一些
 
 孕妇长得挺好看<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  perfect_duck  
+##### 64#       发表于 2026-7-13 12:24
+
+奇特的 xp，好在死亡搁浅给大家先铺垫了一波
+
