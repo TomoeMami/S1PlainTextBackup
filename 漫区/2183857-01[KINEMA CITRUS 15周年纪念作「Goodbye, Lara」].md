@@ -1185,3 +1185,14 @@ oped和回忆里透露的信息颇多。
 
 这个摄影质感很赛璐珞，有种上世纪动画采用了本世纪技术的感觉，看着很舒服，小出作为演出家也绝对是很不错的。
 
+
+*****
+
+####  帆前  
+##### 149#       发表于 2026-7-13 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69913091&amp;ptid=2183857" target="_blank">帆前 发表于 2026-7-13 19:33</a>
+
+这集也可说是真正的第一集，现代篇的开始。拉拉初至滋贺县，和女二相识，进一步了解魔女与同族的现状，初次 ...</blockquote>
+（哦我忘了提那个经典的日本街道小人标识了，少歌露女士专场也取材自这个<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">致敬.jpg
+
