@@ -102,3 +102,11 @@
 就看联动BU角色的升级笔记是不是常驻交换了，不是的话……</blockquote>
 结果根本不给用票的机会<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">只有活动能换100
 
+
+*****
+
+####  regular  
+##### 2040#       发表于 2026-7-13 16:10
+
+50票全灭<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
