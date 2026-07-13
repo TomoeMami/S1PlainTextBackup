@@ -63,9 +63,9 @@
     "update": false
   },
   "2018830": {
-    "totalreply": 21015,
+    "totalreply": 21016,
     "title": "[【M14】神楽Mea(KaguraMea)讨论楼]",
-    "lastedit": 1783917130,
+    "lastedit": 1783928172,
     "category": "虚拟主播区专楼",
     "active": true,
     "newtitle": "[【M14】神楽Mea(KaguraMea)讨论楼]",
@@ -5085,13 +5085,13 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 43765,
+    "totalreply": 43767,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》7.10 玄翎飞 飞过江 水泱泱 山茫茫]",
-    "lastedit": 1783927320,
+    "lastedit": 1783928169,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1025935": {
     "totalreply": 2152,
@@ -6165,10 +6165,10 @@
     "update": false
   },
   "2148387": {
-    "totalreply": 2404,
+    "totalreply": 2406,
     "title": "[国产安卓掌机奥丁2的u公布了，居然是8g2]",
     "newtitle": "[（转掌机讨论楼）国产安卓掌机奥丁3的u公布了，居然不是8e？]",
-    "lastedit": 1783918326,
+    "lastedit": 1783928171,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -9846,10 +9846,10 @@
     "update": false
   },
   "2200312": {
-    "totalreply": 16269,
+    "totalreply": 16270,
     "title": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
     "newtitle": "[【集中讨论】【黑泥2】二游圈吃瓜／搬运／黑泥讨论楼，欢迎来综合讨论]",
-    "lastedit": 1783873446,
+    "lastedit": 1783928173,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -12024,10 +12024,10 @@
     "update": false
   },
   "2261859": {
-    "totalreply": 1282,
+    "totalreply": 1283,
     "title": "[火纹万紫千红（Fortune's Weave)公开，2026在ns2发售！]",
     "newtitle": "[火纹万紫千红（Fortune's Weave)公开，2026.9.17在ns2发售！]",
-    "lastedit": 1783926128,
+    "lastedit": 1783928169,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12393,13 +12393,13 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 41775,
+    "totalreply": 41780,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1783927500,
+    "lastedit": 1783928170,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2218875": {
     "totalreply": 1548,
@@ -13014,13 +13014,13 @@
     "update": false
   },
   "2260146": {
-    "totalreply": 1068,
+    "totalreply": 1069,
     "title": "[极限竞速地平线6 日本背景，2026／5／19发售]",
     "newtitle": "[极限竞速地平线6 日本背景，2026／5／19发售]",
-    "lastedit": 1783927440,
+    "lastedit": 1783928169,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2255762": {
     "totalreply": 161,
@@ -13158,13 +13158,13 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 10857,
+    "totalreply": 10860,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1783927260,
+    "lastedit": 1783928169,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1992785": {
     "totalreply": 444,
@@ -13824,10 +13824,10 @@
     "update": false
   },
   "2278586": {
-    "totalreply": 262,
+    "totalreply": 263,
     "title": "[《节奏天国 奇迹之星》2026年7月2日发售。]",
     "newtitle": "[《节奏天国 奇迹之星》2026年7月2日发售。]",
-    "lastedit": 1783857247,
+    "lastedit": 1783928170,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16866,13 +16866,13 @@
     "update": false
   },
   "2285229": {
-    "totalreply": 125,
+    "totalreply": 132,
     "title": "[黑曜石已取消《宣誓2》，将转向辐射系列新作开发]",
     "newtitle": "[黑曜石已取消《宣誓2》，将转向辐射系列新作开发]",
-    "lastedit": 1783927380,
+    "lastedit": 1783928169,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2285245": {
     "totalreply": 268,
@@ -17141,7 +17141,7 @@
     "newtitle": "[玩具总动员的世界，等身硅胶娃娃也会是活的吗]",
     "lastedit": 1783668848,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1913950": {
@@ -17379,10 +17379,10 @@
     "update": false
   },
   "2285374": {
-    "totalreply": 63,
+    "totalreply": 64,
     "title": "[微博大V“sven_shi”怎么评价]",
     "newtitle": "[微博大V“sven_shi”怎么评价]",
-    "lastedit": 1783920007,
+    "lastedit": 1783928170,
     "category": "外野",
     "active": true,
     "update": false
@@ -17487,10 +17487,10 @@
     "update": false
   },
   "2285387": {
-    "totalreply": 54,
+    "totalreply": 55,
     "title": "[今年国家科学技术大会一等奖：赛博养猪]",
     "newtitle": "[今年国家科学技术大会一等奖：赛博养猪]",
-    "lastedit": 1783830975,
+    "lastedit": 1783928172,
     "category": "外野",
     "active": true,
     "update": false
@@ -17631,10 +17631,10 @@
     "update": false
   },
   "2285433": {
-    "totalreply": 113,
+    "totalreply": 115,
     "title": "[赛力斯2026年半年度归母净利润预计为-18亿元到-15亿元]",
     "newtitle": "[赛力斯2026年半年度归母净利润预计为-18亿元到-15亿元]",
-    "lastedit": 1783927329,
+    "lastedit": 1783928173,
     "category": "外野",
     "active": true,
     "update": false
@@ -17712,10 +17712,10 @@
     "update": false
   },
   "2285445": {
-    "totalreply": 55,
+    "totalreply": 56,
     "title": "[应该又要对小日子上强度了]",
     "newtitle": "[应该又要对小日子上强度了]",
-    "lastedit": 1783926729,
+    "lastedit": 1783928172,
     "category": "外野",
     "active": true,
     "update": false
@@ -17766,21 +17766,21 @@
     "update": false
   },
   "2285421": {
-    "totalreply": 45,
+    "totalreply": 48,
     "title": "[终于玩上了机战64]",
     "newtitle": "[终于玩上了机战64]",
-    "lastedit": 1783927440,
+    "lastedit": 1783928172,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2285470": {
-    "totalreply": 44,
+    "totalreply": 46,
     "title": "[大妈与精神小妹如何摧毁我老家的三十年舞厅]",
     "newtitle": "[大妈与精神小妹如何摧毁我老家的三十年舞厅]",
-    "lastedit": 1783927440,
+    "lastedit": 1783928172,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   }
 }
