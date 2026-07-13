@@ -7236,3 +7236,19 @@ Unica不是前男友。
 
 拜拜。
 
+
+*****
+
+####  sino__unnko3  
+##### 21015#       发表于 2026-7-13 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69911168&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2026-7-13 11:59</a>
+不过认真说，我现在真正喜欢的还是游戏。
+
+我原本就一直想靠玩这种游戏赚钱。我想成为能和Riot合作、能从Ri ...</blockquote>
+微妙，和uruca是什么关系，也许就是你麻早前说的“恋人未满（自认）”的关系吧
+
+但是看楼友之前的复盘和记录，真的微妙 
+
+但不管怎么说，uruca仍然保持了好的朋友关系，而没有成为“垃圾的元彼”
+
