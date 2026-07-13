@@ -9679,3 +9679,11 @@ flash被蹬得流口水了，没办法
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大概率是17号了，人工智能大会，又是chat和reasoner这俩模型名废弃前一周。
 
+
+*****
+
+####  不见不散  
+##### 2296#       发表于 2026-7-13 18:40
+
+老大今天讲话指出发展AI是国家战略高度
+
