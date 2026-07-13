@@ -9650,3 +9650,32 @@ closedAI咋越来越像人了<img src="https://static.stage1st.com/image/smiley/
 
 17号正好有个会开幕，顺便会上还有950
 
+
+*****
+
+####  费雷拉  
+##### 2293#       发表于 2026-7-13 17:17
+
+我用来干活的agent最近v4flash感觉变蠢了。
+
+1块钱写出来的代码要反复调试10块钱才能解决问题。
+
+甚至切pro感觉都要划算得多。
+
+*****
+
+####  tk553521  
+##### 2294#       发表于 2026-7-13 17:18
+
+flash被蹬得流口水了，没办法
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  当光停止  
+##### 2295#       发表于 2026-7-13 17:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大概率是17号了，人工智能大会，又是chat和reasoner这俩模型名废弃前一周。
+
