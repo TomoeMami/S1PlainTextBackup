@@ -1320,3 +1320,14 @@ C！……咳咳咳，不对，是La La La La Girls！梦限大自研旧团（
 —— 来自 Xiaomi 25042PN24C, Android 16, 鹅球 v4. ...</blockquote>
 怎么会得出这个结论，薇姐只是想让阿拉蕾看视频，方便宫走她而己<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千本blur  
+##### 93#       发表于 2026-7-13 12:59
+
+你真是个好主唱
+性格上我们也很合适
+我已经准备好被推向另一个高度了
+某些成员缺乏职业道德
+
