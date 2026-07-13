@@ -9564,3 +9564,21 @@ closedAI咋越来越像人了<img src="https://static.stage1st.com/image/smiley/
 
 今天发了嘛，等不及了
 
+
+*****
+
+####  nxmonitor  
+##### 2283#       发表于 2026-7-13 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69910726&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-7-13 10:32</a>
+
+今天发了嘛，等不及了</blockquote>
+发邮件才会发，今天不发估计就周五了
+
+*****
+
+####  酱狐狸  
+##### 2284#       发表于 2026-7-13 10:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">果然是要等到人工智能大会再正式发布吗
+
