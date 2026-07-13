@@ -9706,3 +9706,24 @@ flash被蹬得流口水了，没办法
 
 不会背上政治包袱加上很厉害的安全对齐吧？ <img src="https://static.stage1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2299#       发表于 2026-7-13 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69912961&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-7-13 18:49</a>
+
+确定 codex 没有重新读文件吗，5.6 优化的也是工作场景的捞针，纯靠大上下文的捞针肯定不如 ds 才对 ...</blockquote>
+codex和opencode，工作框架是一样的，skill也是一样的，同样捞针按理说codex重读原文去捞，opencode也会去重读原文才对。但结果来说就是D指导在opencode里捞出来的幻觉非常严重
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2300#       发表于 2026-7-13 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69912961&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-7-13 18:49</a>
+
+确定 codex 没有重新读文件吗，5.6 优化的也是工作场景的捞针，纯靠大上下文的捞针肯定不如 ds 才对 ...</blockquote>
+codex和opencode，工作框架是一样的，skill也是一样的，同样捞针按理说codex重读原文去捞，opencode也会去重读原文才对。但结果来说就是D指导在opencode里捞出来的幻觉非常严重
+
