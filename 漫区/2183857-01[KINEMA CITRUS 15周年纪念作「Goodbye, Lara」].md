@@ -944,3 +944,15 @@ Staff
 
 另外茉里窗台上的小碟子装着她的十字吊坠和红色绑绳，吊坠有注释过是她很重要的东西，绑绳放在和吊坠一块应该也有重要意义，两件应该有一件是她妈的遗物。茉里家的早餐偏西式加入了香肠和煎蛋，感觉奶奶可能其实不是日本人？看到拉拉对茉里名字的反应有种感觉拉拉妈可能就叫マリ…… 
 
+
+*****
+
+####  暗黑能乐  
+##### 134#       发表于 2026-7-13 08:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69909755&amp;ptid=2183857" target="_blank">堆雪若叶 发表于 2026-7-13 01:36</a>
+茉里目前表现还是有点特别。一方面茉里处事的性格和情绪过于稳定，被拉拉砸坏玻璃丢掉音箱也没有态度过激， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这最后一段的联想感觉全无道理。。日本人吃这样的早餐我怎么觉得很正常，并不需要特别设定是不是外国人。名字一样就更不懂了
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
