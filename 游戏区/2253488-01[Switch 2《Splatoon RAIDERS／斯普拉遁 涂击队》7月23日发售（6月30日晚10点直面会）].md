@@ -238,3 +238,25 @@
 日本那边御三家便利店都推出了预购活动。</blockquote>
 线下试玩通常都在发售一两个月后会给线上的，参考耀西
 
+
+*****
+
+####  墨染白泉  
+##### 218#       发表于 2026-7-13 11:22
+
+<img src="https://img.stage1st.com/forum/202607/13/112239acmioasxem9x9hse.jpg" referrerpolicy="no-referrer">
+
+<strong>qezlpix4m28k4w9q6vpb1wu4.jpg</strong> (342.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-13 11:22 上传
+
+<img src="https://img.stage1st.com/forum/202607/13/112239ovg5lt7vo3v3io7a.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260713_112222.jpg</strong> (307.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-13 11:22 上传
+
