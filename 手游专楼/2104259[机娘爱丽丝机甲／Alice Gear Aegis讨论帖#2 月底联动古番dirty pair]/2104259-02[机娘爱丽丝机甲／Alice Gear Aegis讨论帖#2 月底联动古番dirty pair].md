@@ -128,3 +128,21 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">BU我记得出率不是比操作角色高吗，我怎么印象里四十连抽一个都没了（（
 
+
+*****
+
+####  wilkyway  
+##### 2043#       发表于 2026-7-13 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69912196&amp;ptid=2104259" target="_blank">weiweiEX 发表于 2026-7-13 15:41</a>
+结果根本不给用票的机会只有活动能换100</blockquote>
+没这回事 只要抽到还是给换的 没抽到的不显示
+
+<img src="https://img.stage1st.com/forum/202607/13/183331c8wup187r8ld1lc4.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1783938810575_2.webp</strong> (36.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-13 18:33 上传
+
