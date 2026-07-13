@@ -9624,3 +9624,13 @@ closedAI咋越来越像人了<img src="https://static.stage1st.com/image/smiley/
 
 什么时候pro可以联网啊，几个搞国产硬件的能不能247上班搓显卡内存条啊，好急啊。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2290#       发表于 2026-7-13 16:21
+
+我有个问题不太明白，我拿gpt和d指导都是放agent里写小说，同一个工作结构，一百万字不到，为什么在这样长度的内容里捞针gpt表现就远超过D指导呢？D指导经常捞出幻觉来
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
