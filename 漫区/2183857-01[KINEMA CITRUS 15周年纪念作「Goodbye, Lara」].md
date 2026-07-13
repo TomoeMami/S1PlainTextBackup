@@ -1057,3 +1057,15 @@ Staff
 你这最后一段的联想感觉全无道理。。日本人吃这样的早餐我怎么觉得很正常，并不需要特别设定是不是外国人 ...</blockquote>
 日式早餐应该就鱼渍菜味增汤那些，香肠煎蛋本身是不搭的元素，虽然最初想到外国人是因为奶奶的发色……说名字有联想其实是感觉茉里像妈带娃<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 145#       发表于 2026-7-13 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69912747&amp;ptid=2183857" target="_blank">堆雪若叶 发表于 2026-7-13 17:50</a>
+日式早餐应该就鱼渍菜味增汤那些，香肠煎蛋本身是不搭的元素，虽然最初想到外国人是因为奶奶的发色……说 ...</blockquote>
+主要日本吃西式早餐的太多了，感觉不太需要外国人元素也能写，他这日西合璧是比较神奇吧，但是茉里也有吃面包的时候，就比较标准了
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
