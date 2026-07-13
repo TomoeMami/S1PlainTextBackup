@@ -9538,3 +9538,13 @@ closedAI咋越来越像人了<img src="https://static.stage1st.com/image/smiley/
 
 今天会发吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  neptunehs  
+##### 2280#       发表于 2026-7-13 08:12
+
+上次ds停摆时opencode也停摆了 因此都怀疑opencode就是直接官方转发 希望ds发的时候opencode也能第一时间用上
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
