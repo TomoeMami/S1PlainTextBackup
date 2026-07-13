@@ -120,3 +120,11 @@
 
 不过奈叶这脸型完全跟莉涅一个饼印，阿金也太偷懒了
 
+
+*****
+
+####  madcow  
+##### 2042#       发表于 2026-7-13 18:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">BU我记得出率不是比操作角色高吗，我怎么印象里四十连抽一个都没了（（
+
