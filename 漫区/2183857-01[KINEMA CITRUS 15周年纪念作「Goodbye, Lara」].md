@@ -996,3 +996,22 @@ Staff
 
 叽里咕噜说啥呢，国内早餐吃米饭的也不少
 
+
+*****
+
+####  zing223  
+##### 139#       发表于 2026-7-13 13:16
+
+转个op表记的解说，是否可称为2020年新•国家队<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/33/43c4957ea9e46cbf0febfd9266b8f1a2/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  渡鸦骑士  
+##### 140#       发表于 2026-7-13 13:21
+
+我倒是觉得第二集为了表达菈菈的慌乱剧情写得太慌乱了。
+缺少一点，递进的感觉？
+
