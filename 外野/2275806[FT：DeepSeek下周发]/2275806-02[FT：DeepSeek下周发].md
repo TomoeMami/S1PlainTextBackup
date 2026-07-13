@@ -9687,3 +9687,22 @@ flash被蹬得流口水了，没办法
 
 老大今天讲话指出发展AI是国家战略高度
 
+
+*****
+
+####  御坂MKII  
+##### 2297#       发表于 2026-7-13 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69912395&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-13 16:21</a>
+
+我有个问题不太明白，我拿gpt和d指导都是放agent里写小说，同一个工作结构，一百万字不到，为什么在这样长 ...</blockquote>
+确定 codex 没有重新读文件吗，5.6 优化的也是工作场景的捞针，纯靠大上下文的捞针肯定不如 ds 才对
+
+
+*****
+
+####  一般市民  
+##### 2298#       发表于 2026-7-13 18:54
+
+不会背上政治包袱加上很厉害的安全对齐吧？ <img src="https://static.stage1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
