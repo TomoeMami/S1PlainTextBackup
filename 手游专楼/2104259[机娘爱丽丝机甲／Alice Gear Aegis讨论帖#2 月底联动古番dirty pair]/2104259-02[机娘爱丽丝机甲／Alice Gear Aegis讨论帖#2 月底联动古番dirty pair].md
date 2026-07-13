@@ -91,3 +91,14 @@
 
 奈叶重力能理解，但怎么法杖是步枪又不是火箭筒了
 
+
+*****
+
+####  weiweiEX  
+##### 2039#       发表于 2026-7-13 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69903747&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2026-7-11 11:30</a>
+
+就看联动BU角色的升级笔记是不是常驻交换了，不是的话……</blockquote>
+结果根本不给用票的机会<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">只有活动能换100
+
