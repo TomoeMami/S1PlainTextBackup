@@ -9919,3 +9919,31 @@ ds到这个地位了 有也不奇怪
 
 有人测了下deepswe说是只来得及做了19题，86％得分率，不知道横向对比如何
 
+
+*****
+
+####  overflowal  
+##### 2321#       发表于 2026-7-13 23:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69913655&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-13 23:15</a>
+有人测了下deepswe说是只来得及做了19题，86％得分率，不知道横向对比如何</blockquote>
+做完才有意义。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  御坂MKII  
+##### 2322#       发表于 2026-7-13 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69913655&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-13 23:15</a>
+
+有人测了下deepswe说是只来得及做了19题，86％得分率，不知道横向对比如何</blockquote>
+这个结果肯定没法用，因为现状是这样：总数 113 tasks
+
+<img src="https://img.stage1st.com/forum/202607/13/232526y95l40c600ocoi6g.png" referrerpolicy="no-referrer">
+
+<strong>下载.png</strong> (169.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-13 23:25 上传
+
