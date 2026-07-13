@@ -9582,3 +9582,11 @@ closedAI咋越来越像人了<img src="https://static.stage1st.com/image/smiley/
 
 <img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">果然是要等到人工智能大会再正式发布吗
 
+
+*****
+
+####  nxmonitor  
+##### 2285#       发表于 2026-7-13 10:45
+
+这几天测了半天都没灰到，现在的预览版已经口水流到难以接受了
+
