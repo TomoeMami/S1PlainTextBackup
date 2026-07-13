@@ -110,3 +110,13 @@
 
 50票全灭<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 2041#         楼主| 发表于 2026-7-13 17:32
+
+20抽随缘04再见，反正我对奈叶无感，备战月底<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过奈叶这脸型完全跟莉涅一个饼印，阿金也太偷懒了
+

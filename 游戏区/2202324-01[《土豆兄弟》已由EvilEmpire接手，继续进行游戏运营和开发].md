@@ -42,3 +42,17 @@
 
 刚更新后，半路就暴毙了
 
+
+*****
+
+####  风流庵TypeC  
+##### 438#       发表于 2026-7-13 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69911397&amp;ptid=2202324" target="_blank">lovepenny 发表于 2026-7-13 12:52</a>
+更新到有“伤者”（好像叫这个）版本后，潜水员怎么变弱了？是调整过了吗？
+
+原来拿飞镖，堆暴击，近身，伤 ...</blockquote>
+不确定有没有削弱，但现在潜水员至少拿两把鱼叉枪才能有一战的上buff速度
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
