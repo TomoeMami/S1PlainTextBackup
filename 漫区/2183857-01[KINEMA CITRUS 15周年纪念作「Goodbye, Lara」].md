@@ -1025,3 +1025,16 @@ Staff
 
 二人交互的几个动作就把两个角色的性格和心理状态写活了
 
+
+*****
+
+####  Rhantolk  
+##### 142#       发表于 2026-7-13 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69911968&amp;ptid=2183857" target="_blank">宅🍐eriri 发表于 2026-7-13 14:57</a>
+
+先不谈第二集节奏，单说茉里递咖啡的这段演出，确实强啊
+
+二人交互的几个动作就把两个角色的性格和心理状态 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">那我说个感觉是漏洞的地方，罐子掉地上磕弯了，但是为什么会磕弯了两个口，怎么做到的
+
