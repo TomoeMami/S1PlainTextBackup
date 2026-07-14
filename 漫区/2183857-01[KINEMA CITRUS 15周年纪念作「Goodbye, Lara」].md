@@ -1228,3 +1228,11 @@ oped和回忆里透露的信息颇多。
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ArthurDent  
+##### 153#       发表于 2026-7-14 12:46
+
+仿的和真的质感细品还是有区别的<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
