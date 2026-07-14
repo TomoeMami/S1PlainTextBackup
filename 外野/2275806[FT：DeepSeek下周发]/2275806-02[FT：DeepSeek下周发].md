@@ -10002,3 +10002,55 @@ rikkahub就是个纯聊天软件吗？我看它里面居然还有工作区、SKI
 
 另外求问大佬有什么推荐的skill嘛
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2328#       发表于 2026-7-14 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69914233&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-7-14 08:46</a>
+rikkahub就是个纯聊天软件吗？我看它里面居然还有工作区、SKILL、MCP这些设置，看上去好像是一个工作软件 ...</blockquote>
+一开始就是个纯聊天的客户端，后来越加功能越多
+不过我homo next，设置了工作区安装了rootfs也不能用<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2329#       发表于 2026-7-14 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69914834&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-7-14 10:21</a>
+大佬求问，cherrystudio的智能体跟知识库不能同时使用啊，咋才能一边用skill一边调用知识库
+
+另外求问大佬 ...</blockquote>
+cherrystudio那个知识库也就是给你跳转个知识库网站设置mcp链接，所以直接自己注册一个Dify，然后在智能体里加一个mcp就行了，Dify免费也可以用，就是每分钟请求数量和单次上传数量都受限
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2328#       发表于 2026-7-14 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69914233&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-7-14 08:46</a>
+rikkahub就是个纯聊天软件吗？我看它里面居然还有工作区、SKILL、MCP这些设置，看上去好像是一个工作软件 ...</blockquote>
+一开始就是个纯聊天的客户端，后来越加功能越多
+不过我homo next，设置了工作区安装了rootfs也不能用<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2329#       发表于 2026-7-14 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69914834&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-7-14 10:21</a>
+大佬求问，cherrystudio的智能体跟知识库不能同时使用啊，咋才能一边用skill一边调用知识库
+
+另外求问大佬 ...</blockquote>
+cherrystudio那个知识库也就是给你跳转个知识库网站设置mcp链接，所以直接自己注册一个Dify，然后在智能体里加一个mcp就行了，Dify免费也可以用，就是每分钟请求数量和单次上传数量都受限
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
