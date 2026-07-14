@@ -10101,3 +10101,23 @@ https://www.bilibili.com/video/BV1ofNy6TEkD/?share_source=copy_web&amp;vd_source
 喉结（并没有喉结）</blockquote>
 这不还是区嘛<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不见不散  
+##### 2333#       发表于 2026-7-14 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69915034&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-14 10:58</a>
+一开始就是个纯聊天的客户端，后来越加功能越多
+不过我homo next，设置了工作区安装了rootfs也不能用</blockquote>
+我大概研究了一下，可能也就能装一些纯文本的skill，可以做一些简单的文案处理。装MCP或者要调用其他程序的skill，不说做不到吧，反正是非常折腾。
+
+*****
+
+####  不见不散  
+##### 2334#       发表于 2026-7-14 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69915054&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-14 11:04</a>
+cherrystudio那个知识库也就是给你跳转个知识库网站设置mcp链接，所以直接自己注册一个Dify，然后在智能 ...</blockquote>
+Cherry应该是可以把本地的文库进行向量化的，我之前搞过。
+
