@@ -163,3 +163,13 @@
 
 福袋池好拉<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">最近这2次都福袋都没有想抽的欲望。下毒的太显眼了。
 
+
+*****
+
+####  一个陆仁贾  
+##### 47888#       发表于 2026-7-14 10:20
+
+刷了60池，发现量子和绿方块挺多，技能石这种好像也没有给很多<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

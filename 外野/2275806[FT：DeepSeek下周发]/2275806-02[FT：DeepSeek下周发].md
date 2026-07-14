@@ -9989,3 +9989,16 @@ rikkahub就是个纯聊天软件吗？我看它里面居然还有工作区、SKI
 
 多模态有说啥时候有不？现在用Hermes，识图还接的qwen3.7<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  酱油拌饭s  
+##### 2327#       发表于 2026-7-14 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69895476&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-9 16:10</a>
+
+给llm约束太多它就是会往最不会出错的方向生成，也就是人味儿淡了，反正cherrystudio自带claw，上文风ski ...</blockquote>
+大佬求问，cherrystudio的智能体跟知识库不能同时使用啊，咋才能一边用skill一边调用知识库<img src="https://static.stage1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+另外求问大佬有什么推荐的skill嘛
+
