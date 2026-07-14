@@ -10406,3 +10406,18 @@ api能多模态就谢天谢地了
 
 tibo也是北美太阳了
 
+
+*****
+
+####  tonyunreal  
+##### 2359#       发表于 2026-7-15 05:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69917520&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-15 01:52</a>
+【疑似deepseekv4正式版灰度   我的世界+无人深空（调小声音）-哔哩哔哩】 https://b23.tv/2bHrbrP
+
+如果正 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+这对吗，这不对吧
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
