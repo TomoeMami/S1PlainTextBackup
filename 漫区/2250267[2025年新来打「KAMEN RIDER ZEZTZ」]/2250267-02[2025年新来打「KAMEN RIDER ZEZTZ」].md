@@ -119,3 +119,23 @@ Case44
  ...</blockquote>
 铁叔可一直说小鹰的正义之心
 
+
+*****
+
+####  黄泉川此方  
+##### 2096#       发表于 2026-7-14 15:57
+
+噩梦会超越噩梦也是典中典意义不明但反正很帅<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你就说是不是体现了角色成长，是不是和主角的台词对位了
+
+至于噩梦超越噩梦以后要干嘛，TV本篇里别写就完事了
+
+EXAID结局里，虾饺的思路还是只要把感染者全干掉一些能把游戏病治好
+
+高桥对自己紫爹是什么素质，他的结局怎么安排其实心里有数
+
+外传安排摩托车把他弄死也是对的
+
+当然后面又复活只能说实在人气太高了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
