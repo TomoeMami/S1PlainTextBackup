@@ -310,3 +310,13 @@
 
 有点急了 打算把2下回来再玩一遍dlc
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 223#       发表于 2026-7-14 17:22
+
+到目前为止极品鲑鱼只挤了三个出来，发售前怕是挤不完了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
