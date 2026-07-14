@@ -10421,3 +10421,17 @@ tibo也是北美太阳了
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  wandeeees  
+##### 2360#       发表于 2026-7-15 05:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69917520&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-15 01:52</a>
+【疑似deepseekv4正式版灰度   我的世界+无人深空（调小声音）-哔哩哔哩】 https://b23.tv/2bHrbrP
+
+如果正 ...</blockquote>
+这个效果太变态了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这就是为什么工作时间价格翻倍吗？不行我得先充点钱进去，别到时候直接把充值停了
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
