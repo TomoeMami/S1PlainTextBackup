@@ -8,3 +8,11 @@
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 671#       发表于 2026-7-14 22:31
+
+不就是卡普空版的合金装备崛起，只要流程没长到能让人察觉到游戏的贫乏就没问题。
+
