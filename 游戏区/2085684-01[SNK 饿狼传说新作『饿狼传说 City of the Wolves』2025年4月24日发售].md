@@ -31,3 +31,20 @@
 
 所以说弗里曼(自由人)还能打赢复活赛吗<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  keytomylife  
+##### 777#       发表于 2026-7-14 22:51
+
+要那么多跆拳道干什么？？？SNK里有韩国高干吗
+
+*****
+
+####  adretyu67.  
+##### 778#       发表于 2026-7-14 22:51
+
+考虑到格兰特真死透了还能换号代打是我没想到的。
+
+自由人生死不明那就是死了，换八神顶号吧<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
