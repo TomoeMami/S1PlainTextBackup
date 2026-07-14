@@ -154,3 +154,14 @@
 
 欸这回没有通用的联动装备换了吗
 
+
+*****
+
+####  weiweiEX  
+##### 2045#       发表于 2026-7-14 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69912912&amp;ptid=2104259" target="_blank">wilkyway 发表于 2026-7-13 18:33</a>
+
+没这回事 只要抽到还是给换的 没抽到的不显示</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">原来只是我没抽到……
+
