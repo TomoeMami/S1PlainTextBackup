@@ -10121,3 +10121,33 @@ https://www.bilibili.com/video/BV1ofNy6TEkD/?share_source=copy_web&amp;vd_source
 cherrystudio那个知识库也就是给你跳转个知识库网站设置mcp链接，所以直接自己注册一个Dify，然后在智能 ...</blockquote>
 Cherry应该是可以把本地的文库进行向量化的，我之前搞过。
 
+
+*****
+
+####  绝地潜兵  
+##### 2335#       发表于 2026-7-14 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69915371&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-7-14 12:07</a>
+Cherry是可以把本地的文库进行向量化的，我之前搞过。想不花钱的话，可以申请一个硅基流动的API，专门用 ...</blockquote>
+cherry的agent不能直接调用向量知识库吧，没看到有这个选项，助手才有，我用的是白山智算的嵌入模型
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2336#       发表于 2026-7-14 12:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69915371&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-7-14 12:07</a>
+
+Cherry是可以把本地的文库进行向量化的，我之前搞过。想不花钱的话，可以申请一个硅基流动的API，专门用 ...</blockquote>
+是可以。但cherry自己搞的知识库在它自己claw里调不了
+
+*****
+
+####  风速前进mo  
+##### 2337#       发表于 2026-7-14 12:34
+
+DeepSeek现在真的是区，用pi跑实验，经常没理解我意思就去改代码，指令只听一半，上下文没到1m就注意力涣散，希望正式版能好点吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
