@@ -59,3 +59,12 @@
 
 这游戏就是这么有毒。
 
+
+*****
+
+####  KIRI小威  
+##### 5914#       发表于 2026-7-14 23:35
+
+我都10连跪了，怎么任天堂还给我塞这种队友啊<img src="https://static.stage1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+【鱿鱼护着他的章鱼小丸子-哔哩哔哩】 https://b23.tv/t94uGy2
+

@@ -73,3 +73,26 @@
 自由人本来就是杀人犯，估计是被抓住枪毙了吧……</blockquote>
 狼印的结局cg就是被一帮子警察狙了，但按照传统不应该打赢复活赛爽收热度嘛，没想到snk一副真舍得让他似的架势<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 782#       发表于 2026-7-14 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69917209&amp;ptid=2085684" target="_blank">玉之龙 发表于 2026-7-14 23:26</a>
+
+狼印的结局cg就是被一帮子警察狙了，但按照传统不应该打赢复活赛爽收热度嘛，没想到snk一副真舍得让他似 ...</blockquote>
+条子个人结局不就是抓了弗里曼嘛，结局有过他出场的，应该大概率还是会出的
+
+*****
+
+####  ナルバレック  
+##### 783#       发表于 2026-7-14 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69917078&amp;ptid=2085684" target="_blank">adretyu67. 发表于 2026-7-14 22:51</a>
+
+考虑到格兰特真死透了还能换号代打是我没想到的。
+
+自由人生死不明那就是死了，换八神顶号吧 ...</blockquote>
+格兰特后续剧情才能算死透吧，本体大部分角色结局他出于一个立马要寄的状态，但是平头纹身哥设计的太差了，人气和魅力我感觉差格兰特很多，虽然剧情里存在感很高过去故事苦大仇深的但确实不讨喜
+

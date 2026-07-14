@@ -16,3 +16,11 @@
 
 不就是卡普空版的合金装备崛起，只要流程没长到能让人察觉到游戏的贫乏就没问题。
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 672#       发表于 2026-7-14 23:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">我这性能测试直接崩溃报错是怎么回事，但是DEMO能玩
+
