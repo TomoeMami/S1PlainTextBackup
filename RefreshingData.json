@@ -4470,7 +4470,7 @@
     "lastedit": 1784024160,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2057903": {
     "totalreply": 1183,
@@ -5091,7 +5091,7 @@
     "lastedit": 1784023860,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1025935": {
     "totalreply": 2152,
@@ -11184,7 +11184,7 @@
     "lastedit": 1784022000,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2249235": {
     "totalreply": 845,
@@ -12579,7 +12579,7 @@
     "lastedit": 1784024880,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2261856": {
     "totalreply": 574,
@@ -12669,7 +12669,7 @@
     "lastedit": 1784021040,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2272652": {
     "totalreply": 500,
@@ -13155,7 +13155,7 @@
     "lastedit": 1784022900,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1992785": {
     "totalreply": 444,
@@ -14523,7 +14523,7 @@
     "lastedit": 1784023860,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284684": {
     "totalreply": 41,
@@ -15099,7 +15099,7 @@
     "lastedit": 1784020860,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2261863": {
     "totalreply": 102,
@@ -16503,7 +16503,7 @@
     "lastedit": 1784021580,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284613": {
     "totalreply": 53,
@@ -16583,7 +16583,7 @@
     "newtitle": "[双向撤离：师生权力反转下的教育沉默]",
     "lastedit": 1783766061,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2285243": {
@@ -17007,7 +17007,7 @@
     "lastedit": 1784023200,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2285366": {
     "totalreply": 66,
@@ -17087,7 +17087,7 @@
     "newtitle": "[现在的小朋友长势惊人]",
     "lastedit": 1783765327,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2285375": {
@@ -17151,7 +17151,7 @@
     "lastedit": 1784023320,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2254201": {
     "totalreply": 255,
@@ -17538,7 +17538,7 @@
     "lastedit": 1783952400,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2111068": {
     "totalreply": 252,
@@ -17781,7 +17781,7 @@
     "lastedit": 1784021820,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2285432": {
     "totalreply": 44,
@@ -17844,6 +17844,6 @@
     "lastedit": 1784023020,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   }
 }
