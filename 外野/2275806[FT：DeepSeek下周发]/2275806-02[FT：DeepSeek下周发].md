@@ -10369,3 +10369,22 @@ nuwa抓想看的作家文风
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lactone  
+##### 2355#       发表于 2026-7-15 01:52
+
+【疑似deepseekv4正式版灰度   我的世界+无人深空（调小声音）-哔哩哔哩】 https://b23.tv/2bHrbrP
+
+如果正式版有这个水平，我只能说大的要来了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Rai.Z  
+##### 2356#       发表于 2026-7-15 01:57
+
+api能多模态就谢天谢地了
+
