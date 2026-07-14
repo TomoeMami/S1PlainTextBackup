@@ -1218,3 +1218,13 @@ oped和回忆里透露的信息颇多。
 
 2026-7-14 11:35 上传
 
+
+*****
+
+####  zing223  
+##### 152#       发表于 2026-7-14 12:05
+
+本片会不会烂的一个指标是，对于真实的爱的诠释是否多义或者丰富，如果很扁平那就从根子上烂了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

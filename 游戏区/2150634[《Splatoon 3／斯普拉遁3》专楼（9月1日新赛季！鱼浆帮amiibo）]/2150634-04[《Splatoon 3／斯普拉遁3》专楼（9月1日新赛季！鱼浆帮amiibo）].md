@@ -43,3 +43,19 @@
 
 从匹配的角度来说，新发售的外传只做好友匹配也算是扬长避短了，就是不知道求助匹配功能要是有人故意回应后去捣乱还不能举报的话会不会有一波新的炎上
 
+
+*****
+
+####  stoiorz  
+##### 5913#       发表于 2026-7-14 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69914858&amp;ptid=2150634" target="_blank">KIRI小威 发表于 2026-7-14 10:25</a>
+
+这匹配有点子无语，要么就是连输，要么就是连胜，要么平推要么被平推</blockquote>
+随便在**看了个大姐主播在播sp，X段。主三角雷防护罩的新叶。输的那叫一个惨。看菜单连跪了10场+了。
+
+从占地输到塔楼。
+[https://www.youtube.com/watch?v=5x1G8nOOtM0](https://www.youtube.com/watch?v=5x1G8nOOtM0)
+
+这游戏就是这么有毒。
+
