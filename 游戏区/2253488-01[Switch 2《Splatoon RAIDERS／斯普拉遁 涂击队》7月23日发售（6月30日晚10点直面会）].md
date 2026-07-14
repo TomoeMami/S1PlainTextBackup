@@ -330,3 +330,16 @@
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  shirolin  
+##### 224#       发表于 2026-7-14 22:07
+
+「涡潮群岛垃圾桶」
+“不知道为什么，
+涡潮群岛的垫肩飞鱼驾驶舱的装甲比较薄。”
+因为胖到装甲装不下吧？
+
+<img src="https://p.sda1.dev/33/8568de8d4b2ab0b996349046eb9042f3/咚咚咚.webp" referrerpolicy="no-referrer">
+
