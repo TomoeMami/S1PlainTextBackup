@@ -1281,3 +1281,75 @@ oped和回忆里透露的信息颇多。
 
 茉里自报姓名那里结合氛围才发觉这名字是玛利亚谐音，十字架、打拳、黑色jk服、圣母玛利亚，要素有点齐全，难道小出也看过爱的曝光？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但这片看起来不会整什么大活耶
 
+
+*****
+
+####  Rhantolk  
+##### 159#       发表于 2026-7-14 16:23
+
+<img src="https://img.stage1st.com/forum/202607/14/160830f4if395ieeu8fbuz.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (152.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-14 16:08 上传
+
+<img src="https://img.stage1st.com/forum/202607/14/160837t48443n40bwrrtr3.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (111.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-14 16:08 上传
+
+<img src="https://img.stage1st.com/forum/202607/14/161048sogg2oo1fkbpfyho.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (136.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-14 16:10 上传
+
+<img src="https://img.stage1st.com/forum/202607/14/161151ktfumxpdqjisuxjx.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (121.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-14 16:11 上传
+
+<img src="https://img.stage1st.com/forum/202607/14/161228yup28kc32orzijcr.jpg" referrerpolicy="no-referrer">
+
+<strong>6.jpg</strong> (130.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-14 16:12 上传
+
+03
+
+目、そらしたら負け
+
+Story
+
+人間界で王子様を探すことを決めたララと、そんなララを思わず拾ってしまった高校生ボクサーの茉里。二人が出会ったことで、茉里の平穏な高校生活は大きく変わっていく。
+
+Staff
+
+脚本
+
+青瀬宥介
+
+絵コンテ
+
+辻 彩夏
+
+演出
+
+辻 彩夏
+
+作画監督
+
+辻 彩夏、川瀬 蛍
+
