@@ -1252,3 +1252,24 @@ oped和回忆里透露的信息颇多。
 
 滋贺宣传片，如果女主在大津，说明第一集结尾的水面不是海而是琵琶湖了？人鱼王真是越活越回去了。
 
+
+*****
+
+####  暗黑能乐  
+##### 156#       发表于 2026-7-14 13:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69915635&amp;ptid=2183857" target="_blank">千本blur 发表于 2026-7-14 13:00</a>
+滋贺宣传片，如果女主在大津，说明第一集结尾的水面不是海而是琵琶湖了？人鱼王真是越活越回去了。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">都说了是被魔女诓去的了
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  chenyedgg  
+##### 157#       发表于 2026-7-14 13:34
+
+前两集还是铺垫还不好说，
+
+但是目前来看这片演出倒是挺强的，万一剧情不行也能靠强演出糊弄过去的感觉
+
