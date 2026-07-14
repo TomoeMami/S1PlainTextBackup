@@ -9971,3 +9971,13 @@ ds到这个地位了 有也不奇怪
 
 —— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  不见不散  
+##### 2325#       发表于 2026-7-14 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69903543&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-11 10:32</a>
+因为零命中，请求才9次就生吞了十五块钱</blockquote>
+rikkahub就是个纯聊天软件吗？我看它里面居然还有工作区、SKILL、MCP这些设置，看上去好像是一个工作软件一样，但是安卓那个环境很不适合工作吧。
+
