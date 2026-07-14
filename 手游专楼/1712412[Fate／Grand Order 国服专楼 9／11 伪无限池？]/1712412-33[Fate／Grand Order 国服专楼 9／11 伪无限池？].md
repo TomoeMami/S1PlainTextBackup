@@ -181,3 +181,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在回坑冲奏4之后要干什么
 
+
+*****
+
+####  khxooo  
+##### 47890#       发表于 2026-7-14 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69916182&amp;ptid=1712412" target="_blank">zore 发表于 2026-7-14 14:58</a>
+现在回坑冲奏4之后要干什么</blockquote>
+打所长本，给梦火，然后每个职介的戴冠战发50次，接着可以摆烂了。
+
