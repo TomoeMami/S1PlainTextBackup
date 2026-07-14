@@ -1962,3 +1962,11 @@ DEEP DIVE into KINGDOM HEARTS
 
 Join us for a journey through light and darkness as we commemorate 25 years of KINGDOM HEARTS. Discover how this saga united Disney, Pixar, and Square Enix, with insights from the creative minds, character voices, and more behind the magic.
 
+
+*****
+
+####  Leon-7  
+##### 169#       发表于 2026-7-14 11:26
+
+这样看来大概率27年中，和FFVII RE3前后同步发售了
+
