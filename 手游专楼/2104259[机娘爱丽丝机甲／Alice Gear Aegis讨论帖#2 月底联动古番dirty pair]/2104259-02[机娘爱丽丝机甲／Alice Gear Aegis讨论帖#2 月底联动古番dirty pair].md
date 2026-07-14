@@ -165,3 +165,11 @@
 没这回事 只要抽到还是给换的 没抽到的不显示</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">原来只是我没抽到……
 
+
+*****
+
+####  madcow  
+##### 2046#       发表于 2026-7-14 11:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">不如说两个bu我都没抽到的话活动商店里换的那100是不是就没啥用了
+
