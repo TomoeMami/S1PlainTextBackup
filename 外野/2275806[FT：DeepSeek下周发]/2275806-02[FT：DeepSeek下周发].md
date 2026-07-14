@@ -10446,3 +10446,19 @@ tibo也是北美太阳了
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2362#       发表于 2026-7-15 06:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69916869&amp;ptid=2275806" target="_blank">水風船 发表于 2026-7-14 22:13</a>
+问问你们ai写文都用什么skill啊，正常向不是18x的，还是直接用聊天写</blockquote>
+https://github.com/worldwonderer/oh-story-claudecode用这个生成工作结构，同时也用其中的去ai审查
+文风是提供范文让agent自己制作的skill
+https://github.com/modoojunko/awesome-novel-skill
+用了这里面的角色推演和reader评审
+讨论提纲用grill me
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
