@@ -9981,3 +9981,11 @@ ds到这个地位了 有也不奇怪
 因为零命中，请求才9次就生吞了十五块钱</blockquote>
 rikkahub就是个纯聊天软件吗？我看它里面居然还有工作区、SKILL、MCP这些设置，看上去好像是一个工作软件一样，但是安卓那个环境很不适合工作吧。
 
+
+*****
+
+####  onezer0618  
+##### 2326#       发表于 2026-7-14 09:25
+
+多模态有说啥时候有不？现在用Hermes，识图还接的qwen3.7<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
