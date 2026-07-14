@@ -10356,3 +10356,16 @@ mcp服务调skill就行了
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  冤枉呐  
+##### 2354#       发表于 2026-7-15 00:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69916869&amp;ptid=2275806" target="_blank">水風船 发表于 2026-7-14 22:13</a>
+问问你们ai写文都用什么skill啊，正常向不是18x的，还是直接用聊天写</blockquote>
+nuwa抓想看的作家文风
+不过我现在就用英文写，同一个提示词英文能去味，中文版本提示词就不行了
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
