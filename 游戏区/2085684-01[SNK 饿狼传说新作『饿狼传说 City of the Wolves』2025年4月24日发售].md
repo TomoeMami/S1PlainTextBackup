@@ -63,3 +63,13 @@
 
 大胆一点，克劳萨儿子师从自由人
 
+
+*****
+
+####  玉之龙  
+##### 781#       发表于 2026-7-14 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69917153&amp;ptid=2085684" target="_blank">大十字紅朔 发表于 2026-7-14 23:11</a>
+自由人本来就是杀人犯，估计是被抓住枪毙了吧……</blockquote>
+狼印的结局cg就是被一帮子警察狙了，但按照传统不应该打赢复活赛爽收热度嘛，没想到snk一副真舍得让他似的架势<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
