@@ -55,3 +55,15 @@ os能用风灵月影吗，这对我很关键</blockquote>
 
 ——来自  HUAWEI Mate 80 OpenHarmony-6.1.1.120(24) 上的 [S1 Orange](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2244111) 1.3.3
 
+
+*****
+
+####  shpdw  
+##### 203#       发表于 2026-7-15 12:53
+
+幽默蒸友连dxvk和wine都能算阀门头上，第一次见这么孝的。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+这套生态是给本身就用gnu/linux的人打游戏，不是给打游戏的人来当游戏系统的。
+
+至于提升性能更是搞笑了，大部分帧数提高场景是老游戏的老图形api用dxvk，dx9/11 to vk才有性能提升，并且大概率在win上也有类似的东西。
+
