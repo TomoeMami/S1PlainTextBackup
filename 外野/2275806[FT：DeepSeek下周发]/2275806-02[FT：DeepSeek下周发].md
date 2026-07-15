@@ -10801,3 +10801,11 @@ DS相关信息，所有外媒都是野狗，没有高下之分
 
 —— 来自 Xiaomi 24072PX77C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Promeus  
+##### 2393#       发表于 2026-7-15 15:37
+
+顺便一提有人急了开始叫是fable做的了<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
