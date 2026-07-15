@@ -106,3 +106,17 @@ dxvk 作者受雇于 valve，专职开发 dxvk，wine的主要开发公司 codew
 
 我不关心linux还能有你这种打游戏的云子关心是吧。
 
+
+*****
+
+####  indtability  
+##### 206#       发表于 2026-7-15 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69920228&amp;ptid=2284072" target="_blank">shpdw 发表于 2026-7-15 14:51</a>
+先后关系都搞不清，doitsujin先有的dxvk才有阀门的合同，codeweaver是第二方都说出来了，十来年前卖crosso ...</blockquote>
+多说两句呗，接着说呗，引用下我的原文来反驳我哪句说错了试试，不会以为补充了两句信息就叫反驳吧。我挺怀疑你有没有在 proton 之前用过 linux。
+
+发个 fastfetch 也太经典了，arch 用户喜欢找存在都已经变成自嘲的梗的现在还能见到如此刻板印象的行为简直太复古了，你好，arch 已经不是最潮的发行版了，以及 arch 社区也和 valve 也有合作项目。
+
+你给我扣个云的帽子，也不知道是说我云游戏还是云 linux，两边都挺搞笑的，我就不给你扣帽子了，你真有自信不妨去 linux 游戏社区说这些话，r/linux_gaming，gamingonlinux 之类的，你能扭转整个社区的风向的话我自然跟在你后面摇旗。
+
