@@ -241,3 +241,45 @@ ubuntu12那会确实就可以wine打LBEX之类的了，但玩个war3掉帧掉得
 
 ubuntu12那会确实就可以wine打LBEX之类的了，但玩个war3掉帧掉得鼠标都反应偏慢
 
+
+*****
+
+####  shpdw  
+##### 210#       发表于 2026-7-15 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69921073&amp;ptid=2284072" target="_blank">indtability 发表于 2026-7-15 17:25</a>
+
+哥们，我原文也没有说 dxvk **是** valve 的项目，以及 codeweaver **就是** valve 的第二方，你这开始没 ...</blockquote>
+幽默老蒸被骂了之后知道自己主观判断瞎扯了，给你爹找画面的时候怎么不多钻钻，拿社区几十年努力给自己爹邀功不嫌害臊吗<blockquote>组成它的 wine，dxvk，vkd3d，还有 gamescope，wayland协议，vulkan api，提供 amd 驱动的 mesa，这些要么是 valve的项目，要么是 valve 主导或者起码有话语权</blockquote>
+wayland那点只有游戏上的参与度都能扯上你阀门爹，约等于华为在kernel有话语权吧。不仅如此，谁的客户端不仅没个wayland，还是个傻逼cef啊。
+
+哦对apple也是khronos promoter member呢。
+
+原来apple都还给codeweavers赞助五六年呢。原来codeweaver也“几乎”是apple第二方。不知道的wine一个30多年的项目是阀门进来才开始写的呢。
+ <blockquote>但在 valve 参与之前，linux 打游戏连个笑话都算不上，大家连跑什么桌面都没整明白呢</blockquote>揽功揽到freedesktop了，原来我是用了十来年tty，原来人民的阀门大人一来我就知道跑什么桌面了。
+
+人民的阀门爹冲进来革命的笑话要不要多讲讲，你要不要再扯点什么只有阀门爹进来了我们Linux才“几乎”在amd上用上了现代高效的桌面啊。
+
+还有我不用幽默高通打游戏。
+
+
+*****
+
+####  shpdw  
+##### 210#       发表于 2026-7-15 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69921073&amp;ptid=2284072" target="_blank">indtability 发表于 2026-7-15 17:25</a>
+
+哥们，我原文也没有说 dxvk **是** valve 的项目，以及 codeweaver **就是** valve 的第二方，你这开始没 ...</blockquote>
+幽默老蒸被骂了之后知道自己主观判断瞎扯了，给你爹找画面的时候怎么不多钻钻，拿社区几十年努力给自己爹邀功不嫌害臊吗<blockquote>组成它的 wine，dxvk，vkd3d，还有 gamescope，wayland协议，vulkan api，提供 amd 驱动的 mesa，这些要么是 valve的项目，要么是 valve 主导或者起码有话语权</blockquote>
+wayland那点只有游戏上的参与度都能扯上你阀门爹，约等于华为在kernel有话语权吧。不仅如此，谁的客户端不仅没个wayland，还是个傻逼cef啊。
+
+哦对apple也是khronos promoter member呢。
+
+原来apple都还给codeweavers赞助五六年呢。原来codeweaver也“几乎”是apple第二方。不知道的wine一个30多年的项目是阀门进来才开始写的呢。
+ <blockquote>但在 valve 参与之前，linux 打游戏连个笑话都算不上，大家连跑什么桌面都没整明白呢</blockquote>揽功揽到freedesktop了，原来我是用了十来年tty，原来人民的阀门大人一来我就知道跑什么桌面了。
+
+人民的阀门爹冲进来革命的笑话要不要多讲讲，你要不要再扯点什么只有阀门爹进来了我们Linux才“几乎”在amd上用上了现代高效的桌面啊。
+
+还有我不用幽默高通打游戏。
+
