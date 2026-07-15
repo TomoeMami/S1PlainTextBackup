@@ -85,3 +85,24 @@ linux 游戏我不算到 valve 头上难道算你头上？
 
 不关心 linux 可以不用说话，也没必要因为讨厌 valve 硬要替 linux 社区切割，问过 linux 社区真的愿意切割吗？amd显卡驱动是 valve 在写，vulkan 是valve出了大力，wine dxvk vkd3d 是 valve 在资助，proton 和 gamescope 是 valve 的项目，valve还在资助 kde fex 甚至 mac 上的 moltenvk 之类**小小的开源项目，还跟各种相关商业公司合作推动反作弊，hdr之类的技术，你把 valve 骂跑了你给我写吗？
 
+
+*****
+
+####  shpdw  
+##### 205#       发表于 2026-7-15 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69920098&amp;ptid=2284072" target="_blank">indtability 发表于 2026-7-15 14:27</a>
+
+dxvk 作者受雇于 valve，专职开发 dxvk，wine的主要开发公司 codeweaver 几乎是 valve 的第二方，长期接 ...</blockquote>
+先后关系都搞不清，doitsujin先有的dxvk才有阀门的合同，codeweaver是第二方都说出来了，十来年前卖crossover肯定是阀门给打的钱开发吧。
+
+<img src="https://img.stage1st.com/forum/202607/15/145008b6v540kkl47gp0e1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (539.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-15 14:50 上传
+
+我不关心linux还能有你这种打游戏的云子关心是吧。
+
