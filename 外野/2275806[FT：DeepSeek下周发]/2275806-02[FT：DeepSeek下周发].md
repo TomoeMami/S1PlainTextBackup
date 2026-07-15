@@ -10575,3 +10575,16 @@ gpt写前端很烂难道是真的😡
 
 正式版能有5.6的水平不？
 
+
+*****
+
+####  舞以  
+##### 2372#       发表于 2026-7-15 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69918628&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-7-15 09:34</a>
+
+彭博社小道消息说deepseek在做ipo。</blockquote>
+彭博不是纯野狗么，对梁圣来说，融资都得设一堆条件，还ipo呢
+
+我觉得对梁圣来说coding也只是agi的一个条件甚至是衍生品，他的理想真的是搞agi而非朝互联网企业卖token。
+
