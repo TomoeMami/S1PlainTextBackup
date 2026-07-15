@@ -10835,3 +10835,16 @@ DS相关信息，所有外媒都是野狗，没有高下之分
 这个灰度是只有网页版才有吗？</blockquote>
 是API，目前只有看思维链里出现大量I'm doing来确认，网页版可能也会抽到
 
+
+*****
+
+####  水風船  
+##### 2397#       发表于 2026-7-15 21:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69917418&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-7-15 00:41</a>
+
+nuwa抓想看的作家文风
+
+不过我现在就用英文写，同一个提示词英文能去味，中文版本提示词就不行了</blockquote>
+是用英文提示词但是输出中文吗，还是完全就看英文小说了
+
