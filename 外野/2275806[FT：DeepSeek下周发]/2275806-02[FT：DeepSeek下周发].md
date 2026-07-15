@@ -10962,3 +10962,41 @@ tibo这两天简直北美太阳好吧<img src="https://static.stage1st.com/image
 这个思维链，难道说？</blockquote>
 恭喜可以称帝了<img src="https://static.stage1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 2409#       发表于 2026-7-16 00:05
+
+好像在大规模灰测了，还出现了一个标志性bugAD反了
+
+*****
+
+####  Promeus  
+##### 2410#       发表于 2026-7-16 00:07
+
+【【疑似DeepSeek正式版】节奏天国，D老师太强大了我去！-哔哩哔哩】 https://b23.tv/poJQa3z
+【【疑似DeepSeek正式版】塞尔达世界-哔哩哔哩】 https://b23.tv/wjKwWiU
+
+用MC做游戏基座实属扬己之长<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SmterC  
+##### 2411#       发表于 2026-7-16 00:07
+
+成品不是我想象的样子，不过也可以说是非常精良，不是预览版能直出的水平了
+
+我本以为是MC的玩法加上小黑屋的任务要求，结果是反过来的
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/html.gif" referrerpolicy="no-referrer">
+
+index.html
+
+2026-7-16 00:07 上传
+点击文件名下载附件
+
+54.62 KB, 下载次数: 0
+
+生成的小黑屋游戏
+

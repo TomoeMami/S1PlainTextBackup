@@ -55,3 +55,19 @@
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  milky658  
+##### 49#       发表于 2026-7-15 23:59
+
+藤田那种灵动秀花招的打戏风格确实适合耗子骑士。女主好普，黑眼圈好重
+
+
+*****
+
+####  32767  
+##### 50#       发表于 2026-7-16 00:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">男主有种莫名的韩国人感，是发型的原因么
+
