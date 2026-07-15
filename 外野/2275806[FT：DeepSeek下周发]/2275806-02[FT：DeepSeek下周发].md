@@ -10482,3 +10482,15 @@ https://github.com/modoojunko/awesome-novel-skill
 
 gpt写前端很烂难道是真的😡
 
+
+*****
+
+####  Promeus  
+##### 2364#       发表于 2026-7-15 07:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69917520&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-15 01:52</a>
+【疑似deepseekv4正式版灰度   我的世界+无人深空（调小声音）-哔哩哔哩】 https://b23.tv/2bHrbrP
+
+如果正 ...</blockquote>
+布什戈门，我还以为是up重新抽了个上限版mc和无人深空呢，原来是mc+无人深空吗<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
