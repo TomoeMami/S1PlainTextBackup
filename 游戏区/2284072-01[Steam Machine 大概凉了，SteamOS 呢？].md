@@ -133,3 +133,22 @@ dxvk 作者受雇于 valve，专职开发 dxvk，wine的主要开发公司 codew
 
 我十多年前就在linux用wine打黄油了，阀门那时候在哪发财呢，debian based的steam os怎么就没有dxvk用呢。
 
+
+*****
+
+####  indtability  
+##### 208#       发表于 2026-7-15 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69920772&amp;ptid=2284072" target="_blank">shpdw 发表于 2026-7-15 16:27</a>
+兄弟，是先麻烦证明下dxvk是valve项目和codeweaver是第二方吧。
+
+我十多年前就在linux用wine打黄油了，阀 ...</blockquote>
+哥们，我原文也没有说 dxvk **是** valve 的项目，以及 codeweaver **就是** valve 的第二方，你这开始没话找话了
+
+何况要我说，dxvk 出来没多久作者就被 valve 雇佣至今，你替人家腆着脸说这是个人项目不合适吧，以前 gamescope 还在 griffais 的个人仓库底下，这要是没转到公司仓库下面，你是不是还要说这是 valve 员工个人行为和 valve 无关？
+
+codeweaver 直接受 valve 资金支持，作为 valve 的乙方给 proton 提供支持，valve 跟它合作了十年了吧，说句算是第二方有毛病吗。
+
+喜欢搬弄资历，你十年前喜欢玩黄油，怎么不玩3a呢，是不喜欢吗？十年前差不多 valve 开始开发 proton 了，想必你现在玩游戏用的一定是 valve 参与之前的纯血 wine 和 valve 雇佣之前的纯血 dxvk 吧，vkd3d怕是没有纯血版本了，arm 笔记本打游戏恐怕也不能用 proton-arm 了，wine 的 arm64ce 模式和 fex 都是 valve 推的。不是哥们你到底在用啥玩游戏。
+回了两轮了都不会反驳拿你自己编的话让我找证据，真是闹麻了。
+
