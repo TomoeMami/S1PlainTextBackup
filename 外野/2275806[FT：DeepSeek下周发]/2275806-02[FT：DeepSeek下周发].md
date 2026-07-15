@@ -10728,3 +10728,13 @@ DS相关信息，所有外媒都是野狗，没有高下之分
 
 所以说到底啥时候发，不是说会提前二十四小时发邮件吗，我邮件呢<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 2386#       发表于 2026-7-15 13:40
+
+【【deepseekv4正式版】制作我的深空（我的世界融合无人深空）-哔哩哔哩】 https://b23.tv/st5cX0F
+
+另一位up也做了一个，应该就是平均水平了
+
