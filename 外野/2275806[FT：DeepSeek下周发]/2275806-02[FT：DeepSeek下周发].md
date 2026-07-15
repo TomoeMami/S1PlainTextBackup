@@ -10494,3 +10494,13 @@ gpt写前端很烂难道是真的😡
 如果正 ...</blockquote>
 布什戈门，我还以为是up重新抽了个上限版mc和无人深空呢，原来是mc+无人深空吗<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 2365#       发表于 2026-7-15 08:26
+
+问一下漏油，用Agent搓轮子的时候，是应该一次性尽量多的找bug然后让它改好，还是一次一次小步优化？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
