@@ -84,3 +84,15 @@
 
 很久没看过储物柜了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hisousihou  
+##### 5917#       发表于 2026-7-16 01:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69921425&amp;ptid=2150634" target="_blank">KIRI小威 发表于 2026-7-15 20:21</a>
+大佬们，置物柜区其他人的置物柜怎么刷新啊，我怎么从两个月前就这几个人的置物柜，就没再变过了 ...</blockquote>
+置物柜就是联机游玩，然后就会推送最近匹配的玩家柜子
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
