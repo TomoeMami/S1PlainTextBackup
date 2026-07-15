@@ -389,3 +389,14 @@
 这么看，和sp3大小差不多了。那内容量应该不会太差吧。</blockquote>
 eshop给出的大小预估是20G，对比下来看内容量估计也就这样了
 
+
+*****
+
+####  JOJOROY  
+##### 229#       发表于 2026-7-15 19:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69919519&amp;ptid=2253488" target="_blank">Kiyohara_Yasuke 发表于 2026-7-15 12:12</a>
+
+预载大小12.7G</blockquote>
+假图，预载要等明天中午，鬼佬时差慢一天会更晚
+
