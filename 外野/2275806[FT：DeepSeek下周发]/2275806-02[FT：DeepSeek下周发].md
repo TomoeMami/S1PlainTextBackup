@@ -10918,3 +10918,13 @@ tibo这两天简直北美太阳好吧<img src="https://static.stage1st.com/image
 
 因为重置多所以看上去低，其实相比5.5在悄悄涨价，缓存命中涨了一大截，A÷也没区别从分词器上动手脚
 
+
+*****
+
+####  很久就在那边l  
+##### 2405#       发表于 2026-7-15 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69922036&amp;ptid=2275806" target="_blank">chaoliu 发表于 2026-7-15 23:02</a>
+问下现在用ai搓软件，ui这方面有什么好用的工具？我现在只会让ai自己噼里啪啦打代码，但与之匹配的ui我用的 ...</blockquote>
+接figma的mcp，不过不充钱有调用次数限制
+
