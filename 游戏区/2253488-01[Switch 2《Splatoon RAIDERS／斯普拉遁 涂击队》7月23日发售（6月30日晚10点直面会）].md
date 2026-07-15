@@ -367,3 +367,14 @@
 
 预载大小12.7G
 
+
+*****
+
+####  stoiorz  
+##### 227#       发表于 2026-7-15 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69919519&amp;ptid=2253488" target="_blank">Kiyohara_Yasuke 发表于 2026-7-15 12:12</a>
+
+预载大小12.7G</blockquote>
+这么看，和sp3大小差不多了。那内容量应该不会太差吧。
+
