@@ -79,3 +79,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这还是武部么？你选角怎么拉了，zzz这两俊男美女之后怎么麦斯的男女主有点拉啊
 
+
+*****
+
+####  古怪山庄士大夫  
+##### 52#       发表于 2026-7-16 00:58
+
+怪人还是竹谷，笑死，还差一个高桥就复刻了
+
