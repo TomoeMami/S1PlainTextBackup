@@ -67,3 +67,21 @@ os能用风灵月影吗，这对我很关键</blockquote>
 
 至于提升性能更是搞笑了，大部分帧数提高场景是老游戏的老图形api用dxvk，dx9/11 to vk才有性能提升，并且大概率在win上也有类似的东西。
 
+
+*****
+
+####  indtability  
+##### 204#       发表于 2026-7-15 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69919690&amp;ptid=2284072" target="_blank">shpdw 发表于 2026-7-15 12:53</a>
+幽默蒸友连dxvk和wine都能算阀门头上，第一次见这么孝的。
+
+这套生态是给本身就用gnu/linux的人打游戏，不 ...</blockquote>
+dxvk 作者受雇于 valve，专职开发 dxvk，wine的主要开发公司 codeweaver 几乎是 valve 的第二方，长期接受 valve 的商业委托做 proton 和 wine 的相关开发，这是应然。
+
+说这套系统本来是用来打游戏的有点搞笑，mac 打游戏一直算个笑话，但在 valve 参与之前，linux 打游戏连个笑话都算不上，大家连跑什么桌面都没整明白呢，有 sd 的加持，steam 硬件统计中 linux 才在这两年超过 mac，这是实然。
+
+linux 游戏我不算到 valve 头上难道算你头上？
+
+不关心 linux 可以不用说话，也没必要因为讨厌 valve 硬要替 linux 社区切割，问过 linux 社区真的愿意切割吗？amd显卡驱动是 valve 在写，vulkan 是valve出了大力，wine dxvk vkd3d 是 valve 在资助，proton 和 gamescope 是 valve 的项目，valve还在资助 kde fex 甚至 mac 上的 moltenvk 之类**小小的开源项目，还跟各种相关商业公司合作推动反作弊，hdr之类的技术，你把 valve 骂跑了你给我写吗？
+
