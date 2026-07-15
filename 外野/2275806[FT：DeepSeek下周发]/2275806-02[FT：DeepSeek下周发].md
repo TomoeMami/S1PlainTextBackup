@@ -10936,3 +10936,19 @@ tibo这两天简直北美太阳好吧<img src="https://static.stage1st.com/image
 
 自从发现MC训练得特别好，各种奇怪的项目都出来了，看到一个MC+坎巴拉的，还能成功登陆月球
 
+
+*****
+
+####  SmterC  
+##### 2407#       发表于 2026-7-15 23:44
+
+<img src="https://img.stage1st.com/forum/202607/15/234435xmio03zo5aaag0is.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (209.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-15 23:44 上传
+
+这个思维链，难道说？
+

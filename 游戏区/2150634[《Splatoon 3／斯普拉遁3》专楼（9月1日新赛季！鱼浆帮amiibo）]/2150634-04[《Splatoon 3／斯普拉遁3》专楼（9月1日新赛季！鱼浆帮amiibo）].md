@@ -76,3 +76,11 @@
 
 大佬们，置物柜区其他人的置物柜怎么刷新啊，我怎么从两个月前就这几个人的置物柜，就没再变过了
 
+
+*****
+
+####  墨染白泉  
+##### 5916#       发表于 2026-7-15 23:40
+
+很久没看过储物柜了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
