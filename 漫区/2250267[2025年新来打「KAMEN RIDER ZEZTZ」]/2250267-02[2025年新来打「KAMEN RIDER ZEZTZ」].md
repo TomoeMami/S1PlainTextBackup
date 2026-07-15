@@ -291,3 +291,11 @@ CODE的感觉就是除了整活其他啥也没干
 
 也没几集了，code的存在意义就是个背景板和出气筒吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 2100#       发表于 2026-7-16 00:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">其实仔细算一下，这部来打里面所有敌方都在被狠狠抽陀螺，从梦魇到暗码到算是第三方的诺克斯和黎明，除了主角所有人都要挨打。这种感觉在令和来打里面还是挺少见的
+
