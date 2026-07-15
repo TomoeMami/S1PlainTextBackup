@@ -1430,3 +1430,97 @@ yysy
 怎么看都更像女主妈，op里也是和女主妈在一起 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">可能字幕组不懂阿姨和姑姑的区别吧
 
+
+*****
+
+####  Piano-Forest  
+##### 167#         楼主| 发表于 2026-7-16 00:32
+
+OP：[https://youtu.be/GOfC_4qCa9c](https://youtu.be/GOfC_4qCa9c)
+
+分镜・演出：小出卓史
+
+作画监督：谷紫織
+
+OP的一部分镜头使用了赛璐珞画制作
+<img src="https://p.sda1.dev/33/ac03df6c89732146cf20c8e07a3a9b9a/20260716_002010.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/52a3e4b9f6c5096f67714dbf52480a34/20260716_002026.jpg" referrerpolicy="no-referrer">
+
+🐚⁺‧┈　#さよならララ エンドカード　┈‧⁺ 🫧˚
+
+　　　　　　第2話「滋賀を走る」
+
+キャラクターデザイン #谷紫織 さんによるエンドカードをお届けします✨
+
+本日もご視聴いただいた皆さま、ありがとうございました。
+
+滋賀に翻弄されるララ、これからこの地でどう過ごしていくのか…😳
+
+次回もどうぞお楽しみに！
+
+さよララ～👋
+<img src="https://p.sda1.dev/33/adcd4e1cc32a39d35b9417c57e8d84e1/20260716_002256.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2076336784259301511](https://x.com/i/status/2076336784259301511)
+
+「#さよならララ」OPに原画で参加してました🧜‍♀️
+
+自主応援イラストはOPでも描かせて頂いたこの３人（人？）で…🐠
+
+曲も映像も、とっても素敵なOP！！
+<img src="https://p.sda1.dev/33/43942436886dc5a0016bb76ba3a8be09/20260716_002045.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2076337889504542796](https://x.com/i/status/2076337889504542796)
+
+『さよならララ』2話とEDで原画、二原担当させて頂きました。スタッフのお世話になりました！！
+
+よろしくお願いします。
+<img src="https://p.sda1.dev/33/e72eb674a73ed96b4ea8352a89d452e7/20260716_002051.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2076339055386927335](https://x.com/i/status/2076339055386927335)
+
+#さよならララ EDにて原画作業させて頂きました！！！
+
+もああんさんにお誘い頂きハピෆ.*･ﾟ
+
+小出さんの作品に参加できて本当に嬉しいです！
+<img src="https://p.sda1.dev/33/df0106abea38baf9a0740ff101faadd6/1000170291.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 168#         楼主| 发表于 2026-7-16 00:37
+
+[https://x.com/i/status/2076474957090202082](https://x.com/i/status/2076474957090202082)
+
+さよならララ、1話、2話、OP・ED　原画で参加させて頂きました！
+
+お疲れ様でした！
+<img src="https://p.sda1.dev/33/e545d8538811dcdea230b6fc7a71fa2f/20260716_002131.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2076345066495541739](https://x.com/i/status/2076345066495541739)
+
+『#さよならララ』のED演出を担当しました！
+
+スタッフの皆さまのおかげで、とても美しいEDに仕上がりました。
+
+本編も、一視聴者として楽しみにしています！
+<img src="https://p.sda1.dev/33/2da6f4e2ad08b8520bebb2f7e11b57cf/20260716_002100.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/a4b05de94ed48584311ac14c363c2c06/20260716_002101.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/274c882765c8af11decc55579a0fd6a7/20260716_002102.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/611144ae73a43799e3e098619f3dde30/20260716_002104.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2076371722895589445](https://x.com/i/status/2076371722895589445)
+
+#さよならララ ED二原とエフェクトを少しお手伝いさせていただきました 
+
+もああんさんありがとうございました！
+<img src="https://p.sda1.dev/33/8900edcd78024974117b0e731cbb8f45/20260716_002118.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2076498930947473455](https://x.com/i/status/2076498930947473455)
+
+さよならララED、原画で少しだけ参加させていただきました！
+
+参加できてすごくうれしかったです😭ありがとうございました！！
+<img src="https://p.sda1.dev/33/7cf47e6aaa9433a279abf1b5c068154a/20260716_002537.jpg" referrerpolicy="no-referrer">
+

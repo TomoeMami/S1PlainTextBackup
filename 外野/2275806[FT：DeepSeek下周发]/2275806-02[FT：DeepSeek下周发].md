@@ -11000,3 +11000,16 @@ index.html
 
 生成的小黑屋游戏
 
+
+*****
+
+####  舞以  
+##### 2412#       发表于 2026-7-16 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69922225&amp;ptid=2275806" target="_blank">SmterC 发表于 2026-7-16 00:07</a>
+
+成品不是我想象的样子，不过也可以说是非常精良，不是预览版能直出的水平了
+
+我本以为是MC的玩法加上小黑屋 ...</blockquote>
+漏油也碰到了高维碎片么<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
