@@ -25,3 +25,16 @@
 
 难道都是代便出钱？
 
+
+*****
+
+####  鱼雷鲨  
+##### 274#       发表于 2026-7-16 01:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69921912&amp;ptid=2256870" target="_blank">ティグル 发表于 2026-7-15 22:25</a>
+
+机器人动画大型企划是神山高达的话，剩下那俩会是啥？
+
+难道都是代便出钱？ ...</blockquote>
+不是还有装甲骑兵和横尾Eva么
+
