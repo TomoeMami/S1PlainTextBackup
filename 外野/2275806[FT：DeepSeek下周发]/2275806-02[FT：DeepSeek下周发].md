@@ -11069,3 +11069,15 @@ coding是这样的，后训练之力啊
 
 为什么我还是let me<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">梁圣，我为大A流过血，我为DS花过钱。你们不能这样，我要用正式版！我要用正式版！！！
 
+
+*****
+
+####  tillnight  
+##### 2418#       发表于 2026-7-16 01:04
+
+ 本帖最后由 tillnight 于 2026-7-16 01:05 编辑 
+
+k3应该是换底模了，和后训练之力关系不大。第一个T级参数的开源多模态？
+
+这个月qwen的旗舰模型大概率也会更新到多模态了。
+
