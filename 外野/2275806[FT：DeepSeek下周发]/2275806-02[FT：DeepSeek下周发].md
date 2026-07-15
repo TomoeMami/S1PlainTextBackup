@@ -10588,3 +10588,32 @@ gpt写前端很烂难道是真的😡
 
 我觉得对梁圣来说coding也只是agi的一个条件甚至是衍生品，他的理想真的是搞agi而非朝互联网企业卖token。
 
+
+*****
+
+####  lowezack  
+##### 2373#       发表于 2026-7-15 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=69918774&amp;amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-15 10:01</a>
+彭博不是纯野狗么，对梁圣来说，融资都得设一堆条件，还ipo呢
+
+我觉得对梁圣来说coding也只是agi的一个条 ...</blockquote>
+他不想，但他手下的人想，ds不是梁圣一个人的，离开了底下的那些天才，ds啥也不是。
+
+大模型开发就是个人英雄主义，纯粹的靠人才。要不然也不会有开到一亿美金的薪酬了
+
+
+*****
+
+####  wandeeees  
+##### 2374#       发表于 2026-7-15 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69918803&amp;ptid=2275806" target="_blank">lowezack 发表于 2026-7-15 10:07</a>
+
+他不想，但他手下的人想，ds不是梁圣一个人的，离开了底下的那些天才，ds啥也不是。
+
+大模型开发就是个人 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">感觉也有可能，看着智谱之类的上市，拿股票拿分红，多数人都是会眼红的
+
+不过还是要看实际利益够不够。
+
