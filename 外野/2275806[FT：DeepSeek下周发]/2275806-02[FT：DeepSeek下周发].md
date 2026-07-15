@@ -10504,3 +10504,39 @@ gpt写前端很烂难道是真的😡
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Processed  
+##### 2366#       发表于 2026-7-15 08:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69918300&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-15 08:26</a>
+
+问一下漏油，用Agent搓轮子的时候，是应该一次性尽量多的找bug然后让它改好，还是一次一次小步优化？
+
+论坛 ...</blockquote>
+以功能点为单位，一个功能点改的没问题了再改下一个
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 舞以 + 2谢谢喵
+
+查看全部评分
+
+*****
+
+####  舞以  
+##### 2367#       发表于 2026-7-15 08:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69918321&amp;ptid=2275806" target="_blank">Processed 发表于 2026-7-15 08:32</a>
+
+以功能点为单位，一个功能点改的没问题了再改下一个</blockquote>
+3q
+
