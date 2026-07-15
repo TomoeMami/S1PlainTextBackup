@@ -10680,3 +10680,13 @@ A/和O/自己都还没上市呢<img src="https://static.stage1st.com/image/smile
 我想用ai仿一个https://supabase.com/的网站 是不是比较困难  感觉是个大工程 ...</blockquote>
 用deepseek识图模式反推UI生成提示词，F12获取网站前端数据，将这俩结合起来丢给AI，应该是可以做出来的，只是界面的话问题应该不大
 
+
+*****
+
+####  Promeus  
+##### 2381#       发表于 2026-7-15 13:09
+
+【第二款-哔哩哔哩】 https://b23.tv/ed8dlrS
+
+老哥担心单抽出金又测了三次，看目前上传第一个感觉就是平均抽卡水平(有点小bug需要修)<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
