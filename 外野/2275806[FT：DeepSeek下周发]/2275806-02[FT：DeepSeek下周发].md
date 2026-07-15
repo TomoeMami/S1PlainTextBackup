@@ -10690,3 +10690,41 @@ A/和O/自己都还没上市呢<img src="https://static.stage1st.com/image/smile
 
 老哥担心单抽出金又测了三次，看目前上传第一个感觉就是平均抽卡水平(有点小bug需要修)<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ycjiang1337  
+##### 2382#       发表于 2026-7-15 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69919098&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-15 10:53</a>
+
+彭博社的消息也就比那个一直造谣的什么Information好一点，还不如路透社独家消息，我个人认为是不会这么快 ...</blockquote>
+DS相关信息，所有外媒都是野狗，没有高下之分
+
+
+*****
+
+####  chenyedgg  
+##### 2383#       发表于 2026-7-15 13:32
+
+用ima里的GLM5.2改个抽字幕的小脚本，直接在思维链里瞎穷举了到截断了，不思考反而很简单
+
+*****
+
+####  ycjiang1337  
+##### 2384#       发表于 2026-7-15 13:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69919780&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-15 13:09</a>
+
+【第二款-哔哩哔哩】 https://b23.tv/ed8dlrS
+
+老哥担心单抽出金又测了三次，看目前上传第一个感觉就是平均 ...</blockquote>
+再不更新梁圣要变成牢梁了
+
+*****
+
+####  qz66618  
+##### 2385#       发表于 2026-7-15 13:33
+
+所以说到底啥时候发，不是说会提前二十四小时发邮件吗，我邮件呢<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
