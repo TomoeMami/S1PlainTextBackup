@@ -10780,3 +10780,24 @@ DS相关信息，所有外媒都是野狗，没有高下之分
 —— 来自 HUAWEI WGRR-W19, Android 12, 鹅 ...</blockquote>
 奥特曼要上市冲用户人数呢，不过今年美股应该是废了，被spacex抽干了
 
+
+*****
+
+####  nxmonitor  
+##### 2391#       发表于 2026-7-15 15:00
+
+恐怖游戏和MC的审美特别好，这也是扬长避短了不太吃多模态，上线就看后端能力怎么样了
+
+*****
+
+####  御坂MKII  
+##### 2392#       发表于 2026-7-15 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69919931&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-15 13:53</a>
+奥特曼是不是知道什么风声了，今天早上又偷偷重置了Codex额度
+
+—— 来自 HUAWEI WGRR-W19, Android 12, 鹅 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把非代码用户算进来以后 dau 飙升了
+
+—— 来自 Xiaomi 24072PX77C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
