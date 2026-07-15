@@ -15,3 +15,13 @@
 
 怎么还在怪八和yaiba<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 273#       发表于 2026-7-15 22:25
+
+机器人动画大型企划是神山高达的话，剩下那俩会是啥？
+
+难道都是代便出钱？
+
