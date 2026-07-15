@@ -10638,3 +10638,22 @@ gpt写前端很烂难道是真的😡
 
 彭博社的消息也就比那个一直造谣的什么Information好一点，还不如路透社独家消息，我个人认为是不会这么快上市的
 
+
+*****
+
+####  星野あさみ  
+##### 2377#       发表于 2026-7-15 10:54
+
+Claude Code的auto mode classifier经常超时失败，不知道前面有没有讨论过。
+
+有人发现是因为classifier一直开着thinking所以比较慢。用这个项目跑个本地代理可以把auto mode classifier的thinking关了（或者替换成flash），就不会超时了：
+[https://github.com/dashxio/deepseek-claude-proxy](https://github.com/dashxio/deepseek-claude-proxy)
+
+
+*****
+
+####  此誓的守望  
+##### 2378#       发表于 2026-7-15 11:00
+
+A/和O/自己都还没上市呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
