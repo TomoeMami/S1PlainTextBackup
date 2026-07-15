@@ -11013,3 +11013,33 @@ index.html
 我本以为是MC的玩法加上小黑屋 ...</blockquote>
 漏油也碰到了高维碎片么<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SmterC  
+##### 2413#       发表于 2026-7-16 00:36
+
+又做了一版，不知为何是2D的，不过也完成度相当高，不是预览版能直出的水平了
+
+力竭了，希望睡醒后高维碎片还在
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/zip.gif" referrerpolicy="no-referrer">
+
+归档.zip
+
+2026-7-16 00:36 上传
+点击文件名下载附件
+
+19.36 KB, 下载次数: 0
+
+*****
+
+####  Promeus  
+##### 2414#       发表于 2026-7-16 00:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69922301&amp;ptid=2275806" target="_blank">SmterC 发表于 2026-7-16 00:36</a>
+又做了一版，不知为何是2D的，不过也完成度相当高，不是预览版能直出的水平了
+
+力竭了，希望睡醒后高维碎片 ...</blockquote>
+ds会偷懒<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
