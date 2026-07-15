@@ -10874,3 +10874,32 @@ nuwa抓想看的作家文风
 —— 来自 HUAWEI WGRR-W19, Android 12, 鹅 ...</blockquote>
 oai开打价格战了
 
+
+*****
+
+####  舞以  
+##### 2400#       发表于 2026-7-15 22:55
+
+oai现在在搞价格战对冲a➗的各种炒作，还搞ChatGPT Work这种codex换皮Agent来炒作非coding的生产场景。
+tibo这两天简直北美太阳好吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  drodchang  
+##### 2401#       发表于 2026-7-15 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69918640&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-7-15 09:35</a>
+
+正式版能有5.6的水平不？</blockquote>
+能有5.5的水平就已经很炸裂了
+
+*****
+
+####  80后卢瑟  
+##### 2402#       发表于 2026-7-15 22:57
+
+期待 17 号上线
+
