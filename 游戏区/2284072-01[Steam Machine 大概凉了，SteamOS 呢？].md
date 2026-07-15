@@ -120,3 +120,16 @@ dxvk 作者受雇于 valve，专职开发 dxvk，wine的主要开发公司 codew
 
 你给我扣个云的帽子，也不知道是说我云游戏还是云 linux，两边都挺搞笑的，我就不给你扣帽子了，你真有自信不妨去 linux 游戏社区说这些话，r/linux_gaming，gamingonlinux 之类的，你能扭转整个社区的风向的话我自然跟在你后面摇旗。
 
+
+*****
+
+####  shpdw  
+##### 207#       发表于 2026-7-15 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69920719&amp;ptid=2284072" target="_blank">indtability 发表于 2026-7-15 16:18</a>
+
+多说两句呗，接着说呗，引用下我的原文来反驳我哪句说错了试试，不会以为补充了两句信息就叫反驳吧。我挺 ...</blockquote>
+兄弟，是先麻烦证明下dxvk是valve项目和codeweaver是第二方吧。
+
+我十多年前就在linux用wine打黄油了，阀门那时候在哪发财呢，debian based的steam os怎么就没有dxvk用呢。
+
