@@ -173,3 +173,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">不如说两个bu我都没抽到的话活动商店里换的那100是不是就没啥用了
 
+
+*****
+
+####  冰风血羽  
+##### 2047#       发表于 2026-7-15 20:19
+
+反正兑换素材刷多几次就爆仓，先换了也没啥吧
+

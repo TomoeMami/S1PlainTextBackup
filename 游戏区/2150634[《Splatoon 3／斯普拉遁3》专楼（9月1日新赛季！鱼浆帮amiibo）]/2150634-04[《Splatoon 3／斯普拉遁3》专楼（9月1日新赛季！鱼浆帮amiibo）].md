@@ -68,3 +68,11 @@
 我都10连跪了，怎么任天堂还给我塞这种队友啊<img src="https://static.stage1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
 【鱿鱼护着他的章鱼小丸子-哔哩哔哩】 https://b23.tv/t94uGy2
 
+
+*****
+
+####  KIRI小威  
+##### 5915#       发表于 2026-7-15 20:21
+
+大佬们，置物柜区其他人的置物柜怎么刷新啊，我怎么从两个月前就这几个人的置物柜，就没再变过了
+
