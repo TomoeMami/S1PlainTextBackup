@@ -10809,3 +10809,11 @@ DS相关信息，所有外媒都是野狗，没有高下之分
 
 顺便一提有人急了开始叫是fable做的了<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 2394#       发表于 2026-7-15 15:51
+
+第一次开始测3D的时候就基本排除自带多模态，素材都是几何体做得太拉了，Fable和GPT无论如何，哪怕也是几何体都更精细……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
