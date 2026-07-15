@@ -10848,3 +10848,16 @@ nuwa抓想看的作家文风
 不过我现在就用英文写，同一个提示词英文能去味，中文版本提示词就不行了</blockquote>
 是用英文提示词但是输出中文吗，还是完全就看英文小说了
 
+
+*****
+
+####  秦南心  
+##### 2398#       发表于 2026-7-15 22:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69919875&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-15 13:40</a>
+
+【【deepseekv4正式版】制作我的深空（我的世界融合无人深空）-哔哩哔哩】 [https://b23.tv/st5cX0F](https://b23.tv/st5cX0F)
+
+另一位 ...</blockquote>
+画面还可以，原型玩法有逻辑完备性，然后最最重要的是正式版每个控制器都做的很惊艳，3C控制方案完成度贼高<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
