@@ -42,3 +42,13 @@
 
 那大风车不是白风吗<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MR骑士道MKⅦ  
+##### 675#       发表于 2026-7-15 20:04
+
+<img src="https://images.steamusercontent.com/ugc/15346849335518373685/8F31BCD692CB12D5D471061672B41DA5BE019A6D/?imw=5000&amp;imh=5000&amp;ima=fit&amp;impolicy=Letterbox&amp;imcolor=%23000000&amp;letterbox=false" id="aimg_KoVzu" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+ps:这次本地化不会是当初做《原子之心》本地化的团队吧？嘴怎么这么脏啊？
+
