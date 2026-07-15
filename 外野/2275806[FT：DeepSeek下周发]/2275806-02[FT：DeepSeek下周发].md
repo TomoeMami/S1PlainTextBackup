@@ -10657,3 +10657,13 @@ Claude Code的auto mode classifier经常超时失败，不知道前面有没有�
 
 A/和O/自己都还没上市呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mikumiku831  
+##### 2379#       发表于 2026-7-15 11:13
+
+不太懂UI交互 
+
+我想用ai仿一个[https://supabase.com/](https://supabase.com/)的网站 是不是比较困难  感觉是个大工程
+
