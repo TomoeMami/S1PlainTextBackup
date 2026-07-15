@@ -12375,13 +12375,13 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 17249,
+    "totalreply": 17251,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼7月]",
-    "lastedit": 1784111400,
+    "lastedit": 1784112507,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2268807": {
     "totalreply": 512,
@@ -12399,7 +12399,7 @@
     "lastedit": 1784112060,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2218875": {
     "totalreply": 1556,
@@ -13146,7 +13146,7 @@
     "lastedit": 1784112180,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1992785": {
     "totalreply": 445,
@@ -13644,13 +13644,13 @@
     "update": false
   },
   "2284072": {
-    "totalreply": 208,
+    "totalreply": 209,
     "title": "[Steam Machine 大概凉了，SteamOS 呢？]",
     "newtitle": "[Steam Machine 大概凉了，SteamOS 呢？]",
-    "lastedit": 1784110980,
+    "lastedit": 1784112507,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2155525": {
     "totalreply": 194,
@@ -16745,7 +16745,7 @@
     "newtitle": "[过了几天台风有必要囤点物资在家里吗？]",
     "lastedit": 1783853285,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2274451": {
@@ -16791,7 +16791,7 @@
     "lastedit": 1784111640,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2285286": {
     "totalreply": 45,
@@ -17286,7 +17286,7 @@
     "lastedit": 1784111640,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2285483": {
     "totalreply": 58,
@@ -17619,7 +17619,7 @@
     "lastedit": 1784111400,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2285554": {
     "totalreply": 58,
@@ -17727,7 +17727,7 @@
     "lastedit": 1784111640,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2285598": {
     "totalreply": 43,
