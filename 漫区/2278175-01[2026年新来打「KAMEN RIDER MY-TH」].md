@@ -71,3 +71,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">男主有种莫名的韩国人感，是发型的原因么
 
+
+*****
+
+####  洛克萨斯  
+##### 51#       发表于 2026-7-16 00:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这还是武部么？你选角怎么拉了，zzz这两俊男美女之后怎么麦斯的男女主有点拉啊
+
