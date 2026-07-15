@@ -1404,3 +1404,14 @@ op全曲已经发布了
 
 总感觉基督教气息浓厚，不会要谈什么神之爱吧<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zing223  
+##### 165#       发表于 2026-7-15 08:56
+
+小美人鱼原文结局其实就是讲小美人鱼通过获得凡人的爱以及牺牲有限的生命得到神圣感召，获得通过善行得到永恒灵魂的机会<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+只不过本片可能基督教部分会被移到茉里的戏份里
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
