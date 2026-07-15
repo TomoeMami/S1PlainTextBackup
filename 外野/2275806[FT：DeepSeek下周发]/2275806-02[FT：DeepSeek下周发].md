@@ -10817,3 +10817,21 @@ DS相关信息，所有外媒都是野狗，没有高下之分
 
 第一次开始测3D的时候就基本排除自带多模态，素材都是几何体做得太拉了，Fable和GPT无论如何，哪怕也是几何体都更精细……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhongjie  
+##### 2395#       发表于 2026-7-15 15:59
+
+这个灰度是只有网页版才有吗？
+
+*****
+
+####  nxmonitor  
+##### 2396#       发表于 2026-7-15 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69920612&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-7-15 15:59</a>
+
+这个灰度是只有网页版才有吗？</blockquote>
+是API，目前只有看思维链里出现大量I'm doing来确认，网页版可能也会抽到
+
