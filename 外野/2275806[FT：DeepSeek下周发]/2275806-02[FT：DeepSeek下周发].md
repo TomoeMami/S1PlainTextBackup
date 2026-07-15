@@ -10667,3 +10667,16 @@ A/和O/自己都还没上市呢<img src="https://static.stage1st.com/image/smile
 
 我想用ai仿一个[https://supabase.com/](https://supabase.com/)的网站 是不是比较困难  感觉是个大工程
 
+
+*****
+
+####  wandeeees  
+##### 2380#       发表于 2026-7-15 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69919238&amp;ptid=2275806" target="_blank">Mikumiku831 发表于 2026-7-15 11:13</a>
+
+不太懂UI交互 
+
+我想用ai仿一个https://supabase.com/的网站 是不是比较困难  感觉是个大工程 ...</blockquote>
+用deepseek识图模式反推UI生成提示词，F12获取网站前端数据，将这俩结合起来丢给AI，应该是可以做出来的，只是界面的话问题应该不大
+
