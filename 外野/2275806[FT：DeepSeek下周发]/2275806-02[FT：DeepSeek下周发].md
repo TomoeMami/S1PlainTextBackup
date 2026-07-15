@@ -10630,3 +10630,11 @@ gpt写前端很烂难道是真的😡
 如果正 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">卧槽,还以为是2个分开的,结果你说是2个游戏结合在了一起
 
+
+*****
+
+####  nxmonitor  
+##### 2376#       发表于 2026-7-15 10:53
+
+彭博社的消息也就比那个一直造谣的什么Information好一点，还不如路透社独家消息，我个人认为是不会这么快上市的
+
