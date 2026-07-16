@@ -11857,3 +11857,41 @@ kimi的模型，我感觉不要有太高期望？
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  狭义文具爱好者  
+##### 2495#       发表于 2026-7-16 20:39
+
+v4ga搁着新三兵法呢，哀兵buff又叠起来了
+
+k3应该还好，就是前端sota考虑到前辈是哈基米3p，有点…
+
+*****
+
+####  overflowal  
+##### 2496#       发表于 2026-7-16 20:40
+
+只能明天发了吧，总不能周末发吧    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  zhongjie  
+##### 2497#       发表于 2026-7-16 20:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69926771&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-16 20:40</a>
+只能明天发了吧，总不能周末发吧    Re:Source</blockquote>
+也可能是下周一
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  lactone  
+##### 2498#       发表于 2026-7-16 20:47
+
+发布和上线未必是同一天
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
