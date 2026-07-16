@@ -96,3 +96,16 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  KIRI小威  
+##### 5918#       发表于 2026-7-16 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69922431&amp;ptid=2150634" target="_blank">hisousihou 发表于 2026-7-16 01:41</a>
+
+置物柜就是联机游玩，然后就会推送最近匹配的玩家柜子
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+我天天大厅打真格，置物柜咋还是两个月之前的那几个人的，都没变过<img src="https://static.stage1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
