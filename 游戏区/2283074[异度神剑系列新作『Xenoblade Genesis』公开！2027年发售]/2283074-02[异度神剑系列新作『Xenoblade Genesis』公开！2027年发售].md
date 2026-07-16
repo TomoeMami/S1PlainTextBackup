@@ -53,3 +53,19 @@ https://weibo.com/8373909941/5320969488957468
 
 https://weibo.com/8373909941/5320969488957468
 
+
+*****
+
+####  freedom12  
+##### 1985#       发表于 2026-7-16 13:23
+
+ 本帖最后由 freedom12 于 2026-7-16 13:25 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69904684&amp;ptid=2283074" target="_blank">whzfjd 发表于 2026-7-11 19:30</a>
+
+我越来越觉得火光就是光焰小孩合出来的了，既能不给定死形象，又避免另一个不能出场的遗憾（ ...</blockquote>
+还不如假设神八是光的孩子
+
+光属性+金发也挺合适的
+
+火光黑白发，特别是精灵耳不太可能和光焰有关，只是名字有点撞
+
