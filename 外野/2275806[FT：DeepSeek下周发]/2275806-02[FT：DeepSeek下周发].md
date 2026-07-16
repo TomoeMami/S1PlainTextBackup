@@ -11629,3 +11629,16 @@ GLM5.5好像还不是多模态？
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nxmonitor  
+##### 2473#       发表于 2026-7-16 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69926345&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-7-16 18:24</a>
+
+也不知道是不是错觉 我觉得今天的v4f（opencode go）好神勇 opencode go也好v4f也罢都不会加入灰度的吧？
+
+ ...</blockquote>
+看看提示词let me是不是消失了
+
