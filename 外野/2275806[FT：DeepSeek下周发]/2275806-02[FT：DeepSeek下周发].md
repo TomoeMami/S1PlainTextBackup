@@ -11715,3 +11715,30 @@ K3王朝了？
 看到某脑社区一句话生成个galgame</blockquote>
 kimi做前端一直很好。但是能力如何这个要具体测试    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  蛋黄酱Release  
+##### 2480#       发表于 2026-7-16 19:28
+
+k3真的有那么神吗？要不要提前开个会员怕到时候跟glm一样抢不到<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  zhongjie  
+##### 2481#       发表于 2026-7-16 19:33
+
+看了k3的评价，前端很好，但是逻辑有点差
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  御坂MKII  
+##### 2482#       发表于 2026-7-16 19:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真是逻辑差那就是没啥改进
+
