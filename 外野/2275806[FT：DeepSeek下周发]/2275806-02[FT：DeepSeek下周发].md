@@ -11536,3 +11536,34 @@ ds大规模推送了吧,我今天已经各种I'm了
 
 按耐不住了
 
+
+*****
+
+####  此誓的守望  
+##### 2464#       发表于 2026-7-16 15:38
+
+<img src="https://img.stage1st.com/forum/202607/16/153814v6lzqqkvene6bvml.png" referrerpolicy="no-referrer">
+
+<strong>ea7c46e9e5ab2af140ca35161c191ce7.png</strong> (293.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-16 15:38 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zy450  
+##### 2465#       发表于 2026-7-16 15:39
+
+GLM5.5好像还不是多模态？
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2466#       发表于 2026-7-16 15:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69925585&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-7-16 15:38</a></blockquote>
+把自己也超了 何意味
+
