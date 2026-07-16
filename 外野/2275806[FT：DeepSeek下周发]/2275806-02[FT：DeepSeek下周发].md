@@ -11742,3 +11742,30 @@ k3真的有那么神吗？要不要提前开个会员怕到时候跟glm一样抢
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真是逻辑差那就是没啥改进
 
+
+*****
+
+####  nxmonitor  
+##### 2483#       发表于 2026-7-16 19:41
+
+K3目前看要做个前端的测试还行，但是比如搞一个MC和无人深空的混合游戏就不行了，说明推理能力有一定问题，那这样就有很大局限性了
+
+
+*****
+
+####  nxmonitor  
+##### 2484#       发表于 2026-7-16 19:44
+
+ 本帖最后由 nxmonitor 于 2026-7-16 19:45 编辑 
+
+DS正式版推理能力这方面要强很多，前几天的那个拉弓射箭的SVG，今天我看到一个土星环上渡渡鸟和几维鸟比赛的SVG，都是以前给Fable测试用的，生成效果甚至更好。这两个偏门的东西。不太可能放进训练集专门来一下吧？
+
+*****
+
+####  舞以  
+##### 2485#       发表于 2026-7-16 19:45
+
+kimi的模型我是用不起<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
