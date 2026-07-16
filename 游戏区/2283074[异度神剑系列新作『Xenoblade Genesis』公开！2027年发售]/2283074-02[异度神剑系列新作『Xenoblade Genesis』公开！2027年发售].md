@@ -89,3 +89,14 @@ https://weibo.com/8373909941/5320969488957468
 —— 来自 Xi ...</blockquote>
 xbx的机甲本来就是车加飞机啊，比xb1de增强版那个摩托要先进
 
+
+*****
+
+####  lilod  
+##### 1988#       发表于 2026-7-16 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69925173&amp;ptid=2283074" target="_blank">serj005 发表于 2026-7-16 14:11</a>
+
+xbx的机甲本来就是车加飞机啊，比xb1de增强版那个摩托要先进</blockquote>
+xbx 新的飞机增加了180度翻转的功能，感觉也是给新作准备的
+

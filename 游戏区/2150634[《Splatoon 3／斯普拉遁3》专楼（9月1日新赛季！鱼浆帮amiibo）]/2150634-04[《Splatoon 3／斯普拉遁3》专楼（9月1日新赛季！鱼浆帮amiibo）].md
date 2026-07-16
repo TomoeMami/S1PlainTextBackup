@@ -119,3 +119,13 @@
 我天天大厅打真格，置物柜咋还是两个月之前的那几个人的，都没变过</blockquote>
 那你广场上的那些人有变化吗？广场上的人有变化，理论上置物柜也应该有变化
 
+
+*****
+
+####  KIRI小威  
+##### 5920#       发表于 2026-7-16 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69923533&amp;ptid=2150634" target="_blank">shirolin 发表于 2026-7-16 09:04</a>
+那你广场上的那些人有变化吗？广场上的人有变化，理论上置物柜也应该有变化 ...</blockquote>
+广场上的人倒是一直在变，但就是置物柜，从我第一次进去就那几个人的柜子没再变过了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
