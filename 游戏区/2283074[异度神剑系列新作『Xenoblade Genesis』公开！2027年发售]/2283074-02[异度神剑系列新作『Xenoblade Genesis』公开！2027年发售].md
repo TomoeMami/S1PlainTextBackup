@@ -77,3 +77,15 @@ https://weibo.com/8373909941/5320969488957468
 
 我懂了  火光是  修梅的孩子。
 
+
+*****
+
+####  serj005  
+##### 1987#       发表于 2026-7-16 14:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69897236&amp;ptid=2283074" target="_blank">UltramanPain 发表于 2026-7-9 22:18</a>
+仔细想了想，xb3实验了船，xbx实验了飞机(龙)，xb1 2e实验了车(马)，xb2 2e实验了战斗系统
+
+—— 来自 Xi ...</blockquote>
+xbx的机甲本来就是车加飞机啊，比xb1de增强版那个摩托要先进
+
