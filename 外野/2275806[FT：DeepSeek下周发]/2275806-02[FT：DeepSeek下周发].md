@@ -11619,3 +11619,13 @@ GLM5.5好像还不是多模态？
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  neptunehs  
+##### 2472#       发表于 2026-7-16 18:24
+
+也不知道是不是错觉 我觉得今天的v4f（opencode go）好神勇 opencode go也好v4f也罢都不会加入灰度的吧？
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
