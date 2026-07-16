@@ -11394,3 +11394,13 @@ LLM肯定不行，本质就是猜词，只要还在猜就不可能是AGI
 说来他们内部有在研究世界模型吗，感觉啥时候世界模型能和LLM结合起来才能达到AGI，纯LLM应该很难或者不可 ...</blockquote>
 世界模型这东西，都不知道具体是个啥。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  tk553521  
+##### 2450#       发表于 2026-7-16 10:44
+
+哈基米怎么就成了这个样子
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

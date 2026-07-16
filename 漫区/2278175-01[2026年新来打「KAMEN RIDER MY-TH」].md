@@ -132,3 +132,18 @@
 
 看样子男主变身解除变身都要靠女主 这也是特摄很常见的设定了 但是是现在来打棚里 别为了这个设定整出个这逆天剧情出来了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  二阶堂真琉  
+##### 58#       发表于 2026-7-16 10:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这主角棒味也太重了
+
+*****
+
+####  oh_my_god  
+##### 59#       发表于 2026-7-16 10:41
+
+男主有个剧照动作看着很像战兔，但是低配版
+
