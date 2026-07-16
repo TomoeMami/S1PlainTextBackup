@@ -11433,3 +11433,28 @@ Gemini现在还能换着花样几乎零成本薅羊毛. 但就是没人用
 <img src="https://ibb.co/zWPtG6M8" id="aimg_EsvAr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 <img src="https://ibb.co/GQvXmtn4" id="aimg_wH0re" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2454#       发表于 2026-7-16 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69924163&amp;ptid=2275806" target="_blank">tk553521 发表于 2026-7-16 10:44</a>
+
+哈基米怎么就成了这个样子
+
+—— 来自 nubia NX809J, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+我怀疑是让牢伊把中东的算力中心炸了影响了gemini的算力
+
+这玩意现在唯一可以吹牛逼的世界知识都倒退到24年以前了
+
+*****
+
+####  sellboy  
+##### 2455#       发表于 2026-7-16 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69923903&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-16 10:05</a>
+
+无内鬼，来点哈基米笑话</blockquote>
+拿A÷对比，就是比代码能力吧
+
