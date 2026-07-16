@@ -11306,3 +11306,24 @@ kimi k3在外网爆了
 
 如果豆包在训的10t级的今年也搬上来的话，ai叙事爆不爆不好说，御三家叙事是真要爆了。这a/上市不好估价了啊。
 
+
+*****
+
+####  zypyong  
+##### 2441#       发表于 2026-7-16 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69922036&amp;ptid=2275806" target="_blank">chaoliu 发表于 2026-7-15 23:02</a>
+
+问下现在用ai搓软件，ui这方面有什么好用的工具？我现在只会让ai自己噼里啪啦打代码，但与之匹配的ui我用的 ...</blockquote>
+pencil可以试试
+
+*****
+
+####  Promeus  
+##### 2442#       发表于 2026-7-16 10:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69923754&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-7-16 09:40</a>
+如果豆包在训的10t级的今年也搬上来的话，ai叙事爆不爆不好说，御三家叙事是真要爆了。这a/上市不好估价了 ...</blockquote>
+<img src="https://p.sda1.dev/33/f54f54e3fa1adda5ab7d8983b717b5d9/image.jpg" referrerpolicy="no-referrer">
+无内鬼，来点哈基米笑话
+
