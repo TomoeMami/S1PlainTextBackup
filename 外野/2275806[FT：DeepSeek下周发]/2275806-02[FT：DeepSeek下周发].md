@@ -12071,3 +12071,30 @@ Allegretto 及以上：上下文窗口最高 1M
 
 deepseek的infra真的是黑科技，导致目前第三方部署都达不到官方价格，所以才有大把的转发
 
+
+*****
+
+####  qz66618  
+##### 2518#       发表于 2026-7-16 22:07
+
+参数量决定知识库能达到的广度，现在的规律肯定是越大越好<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  宏.  
+##### 2519#       发表于 2026-7-16 22:10
+
+刚看了下，k3 agent集群已经在kimi桌面版的work可用了，我开的199会员
+
+
+*****
+
+####  舞以  
+##### 2520#       发表于 2026-7-16 22:13
+
+个人用户花高价订阅kimi 真不如订gpt吧 价格竞争是实实在在的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
