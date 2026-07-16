@@ -11769,3 +11769,31 @@ kimi的模型我是用不起<img src="https://static.stage1st.com/image/smiley/f
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Promeus  
+##### 2486#       发表于 2026-7-16 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69926621&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-16 19:44</a>
+DS正式版推理能力这方面要强很多，前几天的那个拉弓射箭的SVG，今天我看到一个土星环上渡渡鸟和几维鸟比赛 ...</blockquote>
+那个射箭是6月中一个up提出来测fable的吧，不太可能专门训练
+
+*****
+
+####  nxmonitor  
+##### 2487#       发表于 2026-7-16 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69926640&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-16 19:50</a>
+
+那个射箭是6月中一个up提出来测fable的吧，不太可能专门训练</blockquote>
+是的，绝大多数模型基本都是乱七八糟的，那个土星环也是
+
+
+*****
+
+####  nxmonitor  
+##### 2488#       发表于 2026-7-16 19:55
+
+现在还没邮件，估计到20号才能发了，要么前几天不涨价
+
