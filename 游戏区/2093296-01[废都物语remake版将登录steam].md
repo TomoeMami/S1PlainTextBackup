@@ -127,3 +127,15 @@
 但是封测呈现给我 ...</blockquote>
 还以为你说的是太拉了回去玩原版洗洗，原来是做的好吗，说话别大喘气啊哥们<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 891#       发表于 2026-7-16 22:31
+
+ 本帖最后由 Flechette 于 2026-7-16 22:32 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69927203&amp;ptid=2093296" target="_blank">wasian 发表于 2026-7-16 22:19</a>
+
+还以为你说的是太拉了回去玩原版洗洗，原来是做的好吗，说话别大喘气啊哥们 ...</blockquote>
+我都没玩过原版啊，不知道原版是什么质量怎么洗洗，要是重制版做得太差肯定就当这游戏不存在了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
