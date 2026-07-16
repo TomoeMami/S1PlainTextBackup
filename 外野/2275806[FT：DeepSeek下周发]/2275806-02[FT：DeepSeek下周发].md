@@ -11926,3 +11926,11 @@ deepseek 从来不发布后上线，都是上线了，hf上上传了，最后再
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  王兰花秀丽  
+##### 2502#       发表于 2026-7-16 21:20
+
+好急啊，听说要提前宣布改价格，感觉明天很难了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
