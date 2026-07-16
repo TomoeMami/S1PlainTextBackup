@@ -12201,3 +12201,105 @@ k3 这次可以解决目前国模里只有 glm5.2 可以查出来的一个 case 
 
 很不意外的 k3 也解不出来，暂时感觉属于预期内的提升，没有什么惊喜。长任务暂时不测了，目前大概来看就是和 glm5.2 一样真的可以干活了。至于极限 case 和 5.6 sol 以及 fable 就是有差距
 
+
+*****
+
+####  飛霞精灵  
+##### 2531#       发表于 2026-7-16 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69927413&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-16 23:02</a>
+
+我一直不太喜欢k系列，因为之前用就觉得高分低能，还又贵又慢。
+
+其实主要是贵 ...</blockquote>
+之前做过一个我自己的智障测试。
+
+那就是贴出15轮对话的15章小说，要求AI进行分析，每章大概4000-6000字左右，幻觉能有多少。
+
+也就是标准网文的日更体量。
+
+K系列会出现幻觉，分析出完全不存在的信息。
+
+GLM因为小说里可能的不适内容拒绝了（在其他AI里都没有）。
+
+豆包会遗忘前面的内容。
+
+D老师在这方面是最稳的。
+
+当然也可能是自己做这个的时间比较老了，最差也是年初时候的事情。
+
+*****
+
+####  overflowal  
+##### 2532#       发表于 2026-7-16 23:07
+
+如果还是之前那个全注意力和线性注意力混合的思路的话，k3 推理起来是要比deepseek 费劲的。deepseek v4的架构是真的能让人使用便宜又快的1m上下文模型。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  chenyedgg  
+##### 2533#       发表于 2026-7-16 23:07
+
+Kimi K3 的 API 价格已正式公布，计费单位为每 1M tokens。具体定价如下：  - 输入价格（缓存命中）：¥2.10   - 输入价格（缓存未命中）：¥21.00   - 输出价格：¥105.00   - 上下文窗口：1,048,576 tokens
+
+我就知道<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhongjie  
+##### 2534#       发表于 2026-7-16 23:07
+
+<img src="https://img.stage1st.com/forum/202607/16/230714ow45yeiw5p4e9ee4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-16 23:07 上传
+
+这价格，3美元和15美元。对标sonnet啊
+
+*****
+
+####  舞以  
+##### 2535#       发表于 2026-7-16 23:09
+
+哈哈这定价，月之暗面还是那个德性。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  御坂MKII  
+##### 2536#       发表于 2026-7-16 23:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 输出 105 吗，以现在的 token efficiency 来说，感觉有可能实际来说不如 sol 的 api cost
+
+*****
+
+####  绝地潜兵  
+##### 2537#       发表于 2026-7-16 23:10
+
+打不过GLM5.2，这是什么定价啊
+
+
+*****
+
+####  舞以  
+##### 2538#       发表于 2026-7-16 23:12
+
+要订阅的话不如订北美几兄弟的<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舞以  
+##### 2539#       发表于 2026-7-16 23:17
+
+好像说k3的思维链还是源自d指导那套很细碎的东西？
+k3没像v4正式版和glm一样做cot这方面的改进？
+可能这也是词元效率低下的原因？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
