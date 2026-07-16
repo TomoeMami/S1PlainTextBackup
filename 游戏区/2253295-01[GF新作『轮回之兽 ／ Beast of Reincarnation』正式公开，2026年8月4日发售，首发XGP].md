@@ -26,3 +26,13 @@
 
 你GF哥哥依然这么逗，配置能凭空创造一个了NVIDIA RTX 1070 Ti出来，符合一如既往的老年痴呆制作组形象
 
+
+*****
+
+####  blue321  
+##### 286#       发表于 2026-7-16 19:17
+
+看演示其实还可以，但就是一副低投入廉价游戏味
+
+先看看评价再说吧……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

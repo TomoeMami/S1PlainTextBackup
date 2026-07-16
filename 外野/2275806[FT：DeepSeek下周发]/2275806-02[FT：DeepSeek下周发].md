@@ -11703,3 +11703,15 @@ K3王朝了？
 
 看到某脑社区一句话生成个galgame
 
+
+*****
+
+####  overflowal  
+##### 2479#       发表于 2026-7-16 19:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69926443&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-7-16 18:56</a>
+K3王朝了？
+
+看到某脑社区一句话生成个galgame</blockquote>
+kimi做前端一直很好。但是能力如何这个要具体测试    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
