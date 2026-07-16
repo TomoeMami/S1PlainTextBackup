@@ -12670,3 +12670,19 @@ kimi这个射箭SVG材质确实很好，但是弓弦弓身是不是反了？ ...
 
 这定价不如ChatGPT的Plus<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御坂MKII  
+##### 2576#       发表于 2026-7-17 01:23
+
+<img src="https://img.stage1st.com/forum/202607/17/012257e0zpu3yuy4cnsjfd.png" referrerpolicy="no-referrer">
+
+<strong>A562538FA4310100CB285DEDD876875A.png</strong> (651.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-17 01:22 上传
+
+推上有人试了 erdos，这思维链只能说后训练任重道远。后训练的差距有点儿大
+

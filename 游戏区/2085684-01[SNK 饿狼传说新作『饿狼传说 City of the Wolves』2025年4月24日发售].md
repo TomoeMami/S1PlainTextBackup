@@ -149,3 +149,28 @@
 
 解包太准了，明年上半年六个弗朗茨牙王阿尔弗雷德占三个坑看来也是板上钉钉，二月弗朗茨克劳萨三月牙王四月阿尔弗雷德，七月白狼和八月鸭王连顺序都是对的
 
+
+*****
+
+####  大十字紅朔  
+##### 787#       发表于 2026-7-17 01:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69917225&amp;ptid=2085684" target="_blank">ナルバレック 发表于 2026-7-14 23:30</a>
+
+条子个人结局不就是抓了弗里曼嘛，结局有过他出场的，应该大概率还是会出的 ...</blockquote>
+我估计是这一作这种包饺子的剧情，SNK没想好要怎么洗白自由人
+
+吉斯这种可以用枭雄什么的粉饰一下（不杀无名NPC的话，洗白点数会很高），自由人这连续杀人狂要怎么洗<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ナルバレック  
+##### 788#       发表于 2026-7-17 01:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69927773&amp;ptid=2085684" target="_blank">大十字紅朔 发表于 2026-7-17 01:16</a>
+
+我估计是这一作这种包饺子的剧情，SNK没想好要怎么洗白自由人
+
+吉斯这种可以用枭雄什么的粉饰一下（不杀无 ...</blockquote>
+也就本体个人结局确实各种包饺子，第二赛季的主线剧情做的比本体好，一点都不包饺子，不知道你打了没2333，牙王还在外面浪，并没有兄妹个人结局那样回家，凯恩也重新体现了狼印那个理想主义野心家的特点
+
