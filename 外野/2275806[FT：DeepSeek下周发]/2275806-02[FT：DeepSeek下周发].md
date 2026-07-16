@@ -11364,3 +11364,33 @@ v4不是原生多模态吧，最后肯定还是要走原生多模态这条路
 
 说来他们内部有在研究世界模型吗，感觉啥时候世界模型能和LLM结合起来才能达到AGI，纯LLM应该很难或者不可能吧
 
+
+*****
+
+####  zy450  
+##### 2447#       发表于 2026-7-16 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69923948&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-7-16 10:10</a>
+
+正式版果然很聪明，我让他做了个二次元的昆特牌，让他自己调用我之前本地部署好的文生图模型，一次出结果 ...</blockquote>
+是的，强非常多。。。。我让正式版做个增量游戏，预览版经常连数字都不动，正式版可以直接玩起来
+
+*****
+
+####  zy450  
+##### 2448#       发表于 2026-7-16 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69924017&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-7-16 10:21</a>
+
+说来他们内部有在研究世界模型吗，感觉啥时候世界模型能和LLM结合起来才能达到AGI，纯LLM应该很难或者不可 ...</blockquote>
+LLM肯定不行，本质就是猜词，只要还在猜就不可能是AGI
+
+*****
+
+####  overflowal  
+##### 2449#       发表于 2026-7-16 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69924017&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-7-16 10:21</a>
+说来他们内部有在研究世界模型吗，感觉啥时候世界模型能和LLM结合起来才能达到AGI，纯LLM应该很难或者不可 ...</blockquote>
+世界模型这东西，都不知道具体是个啥。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

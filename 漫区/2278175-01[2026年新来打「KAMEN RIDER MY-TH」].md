@@ -122,3 +122,13 @@
 
 听说这次武部没得选人，那估计要在剧情里变本加厉地折磨演员了
 
+
+*****
+
+####  粉儿alice  
+##### 57#       发表于 2026-7-16 10:24
+
+武部大妈韩剧看多了吗 还是审美回到手里剑时期了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看样子男主变身解除变身都要靠女主 这也是特摄很常见的设定了 但是是现在来打棚里 别为了这个设定整出个这逆天剧情出来了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
