@@ -11298,3 +11298,11 @@ kimi k3在外网爆了
 —— 来自 HONOR AAK-AN00, Android 16, 鹅球 v3.5.99</blockquote>
 那个前端是真无敌<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tillnight  
+##### 2440#       发表于 2026-7-16 09:40
+
+如果豆包在训的10t级的今年也搬上来的话，ai叙事爆不爆不好说，御三家叙事是真要爆了。这a/上市不好估价了啊。
+
