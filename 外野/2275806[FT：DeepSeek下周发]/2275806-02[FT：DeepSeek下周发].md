@@ -11809,3 +11809,39 @@ k3真的有那么神吗？要不要提前开个会员怕到时候跟glm一样抢
 —— 来自 vivo V2405A, Android 16, 鹅球 ...</blockquote>
 不要对 kimi 期望太高
 
+
+*****
+
+####  →熙←  
+##### 2490#       发表于 2026-7-16 20:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">许愿v4f有现在glm5.2的水平就好了
+
+*****
+
+####  nxmonitor  
+##### 2491#       发表于 2026-7-16 20:14
+
+ 本帖最后由 nxmonitor 于 2026-7-16 20:17 编辑 
+
+v4f其实本身就是V4的杀手锏产品，真要有GLM5.2那都吃完了，除了Qwen更小的模型还有什么模型有活路？训练到现在V4P水平还是可以的，就是和GLM5.1差不多……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mitzvah  
+##### 2492#       发表于 2026-7-16 20:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69926625&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-16 19:45</a>
+
+kimi的模型我是用不起
+
+论坛助手,iPhone</blockquote>
+kimi最划算的是最低档套餐，几十块能拿一个顶级的搜索引擎，更高档的plan太贵太慢没有实用性
+
+*****
+
+####  mitzvah  
+##### 2493#       发表于 2026-7-16 20:17
+
+v4f正式版真有glm5.2的水平，咬咬牙是真的能本地部署的
+
