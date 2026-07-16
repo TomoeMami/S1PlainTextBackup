@@ -114,3 +114,16 @@
 
 但是封测呈现给我的内容确实做到让我急于体验后面的内容所以特意去把原版打了
 
+
+*****
+
+####  wasian  
+##### 890#       发表于 2026-7-16 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69927129&amp;ptid=2093296" target="_blank">Flechette 发表于 2026-7-16 22:03</a>
+
+我不是retro gamer，虽然能接受古早游戏的现代化复刻，但是一般不会特意去玩老游戏本身
+
+但是封测呈现给我 ...</blockquote>
+还以为你说的是太拉了回去玩原版洗洗，原来是做的好吗，说话别大喘气啊哥们<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
