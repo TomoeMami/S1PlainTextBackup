@@ -12628,3 +12628,37 @@ Kimi 的价格有点过于普信了吧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">网页版的免费kimi到底多久能发一条消息
 
+
+*****
+
+####  舞以  
+##### 2572#       发表于 2026-7-17 00:28
+
+月之暗面这家公司主要做啥生意<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+卖订阅不如北美四兄弟
+卖api这价格也太普信了吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Promeus  
+##### 2573#       发表于 2026-7-17 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69927658&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-17 00:13</a>
+https://52kvawdzjv5rk.ok.kimi.link/
+
+kimi这个射箭SVG材质确实很好，但是弓弦弓身是不是反了？ ...</blockquote>
+鉴定为水平不如ds<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nxmonitor  
+##### 2574#       发表于 2026-7-17 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69927700&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-17 00:29</a>
+
+鉴定为水平不如ds</blockquote>
+这个射箭SVG只有Fable5可以和神秘模型比一比，那个土星赛车更是最强，Fable5土星环的比例不对
+
