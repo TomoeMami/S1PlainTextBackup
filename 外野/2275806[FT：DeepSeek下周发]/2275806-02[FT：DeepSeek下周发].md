@@ -11797,3 +11797,15 @@ DS正式版推理能力这方面要强很多，前几天的那个拉弓射箭的
 
 现在还没邮件，估计到20号才能发了，要么前几天不涨价
 
+
+*****
+
+####  厍无春  
+##### 2489#       发表于 2026-7-16 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69926558&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-7-16 19:28</a>
+k3真的有那么神吗？要不要提前开个会员怕到时候跟glm一样抢不到
+
+—— 来自 vivo V2405A, Android 16, 鹅球 ...</blockquote>
+不要对 kimi 期望太高
+
