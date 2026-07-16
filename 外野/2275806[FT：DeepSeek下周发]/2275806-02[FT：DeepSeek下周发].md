@@ -12750,3 +12750,31 @@ v4灰度正式版—我的世界+无人深空+传送门_哔哩哔哩bilibili
 
 —— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  御坂MKII  
+##### 2583#       发表于 2026-7-17 06:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69927945&amp;ptid=2275806" target="_blank">发呆的龙虾 发表于 2026-7-17 06:24</a>
+看了下这些视频，是不是我自己用别的AI做图片素材，就可以很简单的用v4正式版做一个2D刷宝游戏？
+
+—— 来 ...</blockquote>
+倒是还不完全一样，生成的很多都是 three.js 的纯前端游戏 demo
+不过之后肯定是越来越简单的
+
+—— 来自 Xiaomi 25128PNA1C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  发呆的龙虾  
+##### 2584#       发表于 2026-7-17 06:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69927960&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-7-17 06:37</a>
+倒是还不完全一样，生成的很多都是 three.js 的纯前端游戏 demo
+不过之后肯定是越来越简单的</blockquote>
+哦，懂了。
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
