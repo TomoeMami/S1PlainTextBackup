@@ -11934,3 +11934,42 @@ deepseek 从来不发布后上线，都是上线了，hf上上传了，最后再
 
 好急啊，听说要提前宣布改价格，感觉明天很难了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  Tomek  
+##### 2503#       发表于 2026-7-16 21:26
+
+K3先来了
+
+—— 来自 HUAWEI VYG-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qz66618  
+##### 2504#       发表于 2026-7-16 21:26
+
+kimi k3据说2.8T参数量<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 2505#       发表于 2026-7-16 21:29
+
+参数量有用但是不是决定性的，要知道K3以前最大的国模是文心一言……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qz66618  
+##### 2506#       发表于 2026-7-16 21:31
+
+现在的一线模型厂商训练基本就是越大越好吧，百度那都是老黄历了，2.8T都快顶上两个ds了<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王兰花秀丽  
+##### 2507#       发表于 2026-7-16 21:32
+
+K3来了，等跑分榜，希望不要只是前端碰瓷    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
