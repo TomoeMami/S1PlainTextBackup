@@ -12012,3 +12012,11 @@ kimi k3据说2.8T参数量ds正式版感觉很难打过啊</blockquote>
 
 <img src="https://img.stage1st.com/forum/202607/16/214512amhhdtxaaxchctdc.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 2511#       发表于 2026-7-16 21:47
+
+10T级别的感觉已经是极限了，规模线性增加所增加的计算量可不是线性的。不过目前最重要的是，我DS正式版呢<img src="https://static.stage1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+

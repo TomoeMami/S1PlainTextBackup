@@ -123,3 +123,29 @@
 
 敬请期待后续公布！
 
+
+*****
+
+####  ナルバレック  
+##### 786#       发表于 2026-7-16 21:46
+
+ 本帖最后由 ナルバレック 于 2026-7-16 21:50 编辑 
+
+<img src="https://img.stage1st.com/forum/202607/16/214555tb3u5e6he5bou3ii.png" referrerpolicy="no-referrer">
+
+<strong>2a207151c8850312eda2e36cca485c23.png</strong> (3.46 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-16 21:45 上传
+
+<img src="https://img.stage1st.com/forum/202607/16/214558z5w80j89fnukkkhn.png" referrerpolicy="no-referrer">
+
+<strong>3087bfe3034ef404e7fe5faa50deb5b4134360489.png</strong> (3.43 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-16 21:45 上传
+
+解包太准了，明年上半年六个弗朗茨牙王阿尔弗雷德占三个坑看来也是板上钉钉，二月弗朗茨克劳萨三月牙王四月阿尔弗雷德，七月白狼和八月鸭王连顺序都是对的
+
