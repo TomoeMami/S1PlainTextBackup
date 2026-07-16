@@ -82,3 +82,11 @@
 
 质量方面笼统地说，我没打过原版，但是封测结束后我顶着古老的系统把原版打了一遍
 
+
+*****
+
+####  はちたや  
+##### 887#       发表于 2026-7-16 20:29
+
+这个线上封测是测试qol的？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
