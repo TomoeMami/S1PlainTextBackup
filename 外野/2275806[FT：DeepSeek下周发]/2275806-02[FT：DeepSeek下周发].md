@@ -12612,3 +12612,19 @@ kimi这个射箭SVG材质确实很好，但是弓弦弓身是不是反了？<img
 应该主打的是帮企业内部部署，之前ceo访谈也提到过</blockquote>
 这个路线只看DeepSeek做不做，我觉得他们的infra实力可能比华为本身还强，用昇腾的卡吞吐量更高
 
+
+*****
+
+####  valand  
+##### 2570#       发表于 2026-7-17 00:19
+
+Kimi 的价格有点过于普信了吧
+
+
+*****
+
+####  酱狐狸  
+##### 2571#       发表于 2026-7-17 00:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">网页版的免费kimi到底多久能发一条消息
+
