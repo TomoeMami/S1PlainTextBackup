@@ -11642,3 +11642,45 @@ GLM5.5好像还不是多模态？
  ...</blockquote>
 看看提示词let me是不是消失了
 
+
+*****
+
+####  zy450  
+##### 2474#       发表于 2026-7-16 18:40
+
+正式版速度慢不少，不过准确度很高
+
+—— 来自 Xiaomi 24031PN0DC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  绝地潜兵  
+##### 2475#       发表于 2026-7-16 18:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69923485&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-7-16 08:56</a>
+
+给我个邮箱，我们发一发提示词和结果讨论一下？</blockquote>
+看了看我的预设，不涉及角色和对话示例
+
+英文占比78%，中文占比22%，英文高效毋庸置疑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+中文主要是写作风格
+
+英文主要是破甲、视角、动作和约束指令
+
+上下文最后的Post-History Instructions，中英占比1比1。
+
+上个回复说的是这部分全部用英文，结果就成了英文机翻
+
+
+*****
+
+####  neptunehs  
+##### 2476#       发表于 2026-7-16 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69926359&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-16 18:29</a>
+看看提示词let me是不是消失了</blockquote>
+还在 那就是没灰度
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
