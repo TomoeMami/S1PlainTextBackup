@@ -101,3 +101,16 @@
 质量方面笼统地说，我没打过原版，但是封测结束后我顶着古老的系统把原版打了一遍 ...</blockquote>
 表达了作者什么样的情感<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 889#       发表于 2026-7-16 22:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69927033&amp;ptid=2093296" target="_blank">战斗力五鹅 发表于 2026-7-16 21:40</a>
+
+表达了作者什么样的情感</blockquote>
+我不是retro gamer，虽然能接受古早游戏的现代化复刻，但是一般不会特意去玩老游戏本身
+
+但是封测呈现给我的内容确实做到让我急于体验后面的内容所以特意去把原版打了
+

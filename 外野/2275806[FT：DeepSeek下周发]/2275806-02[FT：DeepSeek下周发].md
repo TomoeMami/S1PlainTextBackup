@@ -12020,3 +12020,54 @@ kimi k3据说2.8T参数量ds正式版感觉很难打过啊</blockquote>
 
 10T级别的感觉已经是极限了，规模线性增加所增加的计算量可不是线性的。不过目前最重要的是，我DS正式版呢<img src="https://static.stage1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  overflowal  
+##### 2512#       发表于 2026-7-16 21:59
+
+说实话，国内其他几家的infra跟deepseek 比简直是笑话。。。满血的k3竟然只能给超大杯用<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御坂MKII  
+##### 2513#       发表于 2026-7-16 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69927045&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-7-16 21:42</a>
+
+【悲报】k3写文一坨，价格还贵得批爆</blockquote>
+它文档里写的是第三档那个就有了
+Andante：暂不支持
+Moderato：上下文窗口 256k
+Allegretto 及以上：上下文窗口最高 1M
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2514#       发表于 2026-7-16 22:01
+
+说实话，比gpt plus订阅贵啊……
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Anarkia  
+##### 2515#       发表于 2026-7-16 22:01
+
+要那么多t参数干什么，互联网信息就那么多，预训练你也玩不出更多花啊，最后还是堆人力搞后训练做Alignment
+
+*****
+
+####  水風船  
+##### 2516#       发表于 2026-7-16 22:02
+
+为什么今晚我的破甲提示词突然失效了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 2517#       发表于 2026-7-16 22:03
+
+deepseek的infra真的是黑科技，导致目前第三方部署都达不到官方价格，所以才有大把的转发
+
