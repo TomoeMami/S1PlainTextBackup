@@ -11468,3 +11468,15 @@ Gemini现在还能换着花样几乎零成本薅羊毛. 但就是没人用
 
 K3没有后端测试的结果啊，看到的全都是前端，那这个结论怎么得出的呢？
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2457#       发表于 2026-7-16 12:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69924382&amp;ptid=2275806" target="_blank">sellboy 发表于 2026-7-16 11:28</a>
+拿A÷对比，就是比代码能力吧</blockquote>
+gemini现在全方面拉胯
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
