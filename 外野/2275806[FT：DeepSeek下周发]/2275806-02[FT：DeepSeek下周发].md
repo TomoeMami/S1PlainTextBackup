@@ -12729,3 +12729,14 @@ k3的deepswe打过了gpt5.5和opus4.8
 
 —— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  zhanglei1943  
+##### 2581#       发表于 2026-7-17 04:02
+
+v4灰度正式版—我的世界+无人深空+传送门_哔哩哔哩bilibili
+[https://www.bilibili.com/video/BV1zbKV6pECR/](https://www.bilibili.com/video/BV1zbKV6pECR/)
+
+吓哭了
+
