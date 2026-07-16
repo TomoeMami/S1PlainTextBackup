@@ -12303,3 +12303,49 @@ k3没像v4正式版和glm一样做cot这方面的改进？
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  overflowal  
+##### 2540#       发表于 2026-7-16 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69927429&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-7-16 23:07</a>
+这价格，3美元和15美元。对标sonnet啊</blockquote>
+这降本能力，完蛋啊    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  御坂MKII  
+##### 2541#       发表于 2026-7-16 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69927469&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-16 23:17</a>
+
+好像说k3的思维链还是源自d指导那套很细碎的东西？
+
+k3没像v4正式版和glm一样做cot这方面的改进？
+
+可能这也 ...</blockquote>
+glm 的 token efficiency 也一般吧，之前试验的时候感觉也没啥大进步
+
+*****
+
+####  wszyc0308  
+##### 2542#       发表于 2026-7-16 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69927403&amp;ptid=2275806" target="_blank">wszyc0308 发表于 2026-7-16 22:58</a>
+
+这K3还是和k2.6一样思考超级慢啊，
+
+把我4000行html的工程计算小工具丢给他让他写个readme，半个小时还没出 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 2543#       发表于 2026-7-16 23:26
+
+我宣布moonshot已经不是中国的AI公司了！
+---发自我的手机
+这API是给人用的啊<img src="https://static.stage1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
