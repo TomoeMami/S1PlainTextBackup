@@ -11413,3 +11413,23 @@ LLM肯定不行，本质就是猜词，只要还在猜就不可能是AGI
 虎鲸娘真的是被你们蹬得流口水，一粒芝麻5毫米，一粒大米15毫米都来了
 <img src="https://p.sda1.dev/33/f808c78a21fd6ed9bf759a9b1ff25045/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泰坦失足  
+##### 2452#       发表于 2026-7-16 11:01
+
+ 本帖最后由 泰坦失足 于 2026-7-16 11:02 编辑 
+
+Gemini现在还能换着花样几乎零成本薅羊毛. 但就是没人用
+
+
+*****
+
+####  cscbzcbz  
+##### 2453#       发表于 2026-7-16 11:11
+
+来两张图显示一下效果
+<img src="https://ibb.co/zWPtG6M8" id="aimg_EsvAr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://ibb.co/GQvXmtn4" id="aimg_wH0re" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
