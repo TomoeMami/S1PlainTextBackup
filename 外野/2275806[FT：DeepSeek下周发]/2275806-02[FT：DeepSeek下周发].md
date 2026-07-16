@@ -11916,3 +11916,13 @@ k3应该还好，就是前端sota考虑到前辈是哈基米3p，有点…
 —— 来自 HUAWEI HOP-AL10, Android 12, 鹅球 v4.0-alpha ...</blockquote>
 deepseek 从来不发布后上线，都是上线了，hf上上传了，最后再慢慢宣布    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  舞以  
+##### 2501#       发表于 2026-7-16 21:07
+
+估计是先上线在改价格？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

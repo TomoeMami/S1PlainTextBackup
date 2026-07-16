@@ -233,3 +233,11 @@
 
 我是大部分时间都在刷新助战，找顶配BBA，找到就肯定能1T
 
+
+*****
+
+####  doublehit  
+##### 47896#       发表于 2026-7-16 21:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">2宝妖兰秒不掉旁边两个，随缘刷了
+
