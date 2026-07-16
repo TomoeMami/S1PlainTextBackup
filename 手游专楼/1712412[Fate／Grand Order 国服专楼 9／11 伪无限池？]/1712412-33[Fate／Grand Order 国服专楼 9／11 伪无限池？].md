@@ -241,3 +241,14 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">2宝妖兰秒不掉旁边两个，随缘刷了
 
+
+*****
+
+####  qixinno1  
+##### 47897#       发表于 2026-7-16 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69926809&amp;ptid=1712412" target="_blank">史艳文 发表于 2026-7-16 20:49</a>
+
+我就是洗了剑阶的星图，点枪阶的，用人家的4包小太阳和自己的2宝布姐，刷倒数第二个图，刷得我想死。是真的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冠位树没点起来时用黑杯 主要就是红魔放和红魔放里面那个加攻的跟御主服效果增加的 点起来伤害就够了 反正我是用的2宝小太阳借的高宝BBA 点出那几个连黑杯都扔了只要能秒小怪就行了
+

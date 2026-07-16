@@ -90,3 +90,14 @@
 
 这个线上封测是测试qol的？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  战斗力五鹅  
+##### 888#       发表于 2026-7-16 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69926722&amp;ptid=2093296" target="_blank">Flechette 发表于 2026-7-16 20:24</a>
+
+质量方面笼统地说，我没打过原版，但是封测结束后我顶着古老的系统把原版打了一遍 ...</blockquote>
+表达了作者什么样的情感<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

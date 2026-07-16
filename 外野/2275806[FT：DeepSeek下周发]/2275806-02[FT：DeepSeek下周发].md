@@ -11973,3 +11973,42 @@ kimi k3据说2.8T参数量<img src="https://static.stage1st.com/image/smiley/fac
 
 K3来了，等跑分榜，希望不要只是前端碰瓷    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  chenyedgg  
+##### 2508#       发表于 2026-7-16 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69926982&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-7-16 21:26</a>
+
+kimi k3据说2.8T参数量ds正式版感觉很难打过啊</blockquote>
+参数越大成本越高，预训练和后训练也越难
+
+文心、qwen-max、gemini pro都是大参数大模型
+
+
+*****
+
+####  88316756  
+##### 2509#       发表于 2026-7-16 21:41
+
+果然如之前所说的，国模下半年都会上T级别的，明年是否能看到10T级别了？
+
+*****
+
+####  绝地潜兵  
+##### 2510#       发表于 2026-7-16 21:42
+
+ 本帖最后由 绝地潜兵 于 2026-7-16 21:45 编辑 
+
+【悲报】k3写文一坨，价格还贵得批爆
+
+1784209349573.jpg
+(291.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-16 21:45 上传
+
+<img src="https://img.stage1st.com/forum/202607/16/214512amhhdtxaaxchctdc.jpg" referrerpolicy="no-referrer">
+
