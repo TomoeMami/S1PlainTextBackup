@@ -70,3 +70,14 @@ ig什么时候能把银英5季的坑填了</blockquote>
 难道都是代便出钱？ ...</blockquote>
 荒木哲郎的新原创吧
 
+
+*****
+
+####  ibcsa  
+##### 278#       发表于 2026-7-16 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69923439&amp;ptid=2256870" target="_blank">mtxyd 发表于 2026-7-16 08:43</a>
+
+银英现在做到哪了？第五季是不是就该巴米利恩了</blockquote>
+4季结尾占领费沙，5季应该可以做到巴米利恩
+
