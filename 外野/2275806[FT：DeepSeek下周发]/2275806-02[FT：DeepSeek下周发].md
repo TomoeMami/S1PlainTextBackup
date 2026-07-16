@@ -12172,3 +12172,32 @@ k3 这次可以解决目前国模里只有 glm5.2 可以查出来的一个 case 
 
 等k3.1了，这个token效率好像有点低啊，思考又长又慢
 
+
+*****
+
+####  wszyc0308  
+##### 2528#       发表于 2026-7-16 22:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这K3还是和k2.6一样思考超级慢啊，
+
+把我4000行html的工程计算小工具丢给他让他写个readme，半个小时还没出货<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  舞以  
+##### 2529#       发表于 2026-7-16 23:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我一直不太喜欢k系列，因为之前用就觉得高分低能，还又贵又慢。
+
+其实主要是贵<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御坂MKII  
+##### 2530#       发表于 2026-7-16 23:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又跑了个 case，这个 case 目前是 gpt5.5 xhigh 会错但是 5.6 sol 可以解决的
+
+很不意外的 k3 也解不出来，暂时感觉属于预期内的提升，没有什么惊喜。长任务暂时不测了，目前大概来看就是和 glm5.2 一样真的可以干活了。至于极限 case 和 5.6 sol 以及 fable 就是有差距
+
