@@ -114,3 +114,11 @@
 
 最好履行诺言看到武部大邪神就润，这片儿妥妥要成古战场。不过没竞技要素抢第一，战斗浓度应该超不过极狐<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windaria  
+##### 56#       发表于 2026-7-16 10:07
+
+听说这次武部没得选人，那估计要在剧情里变本加厉地折磨演员了
+

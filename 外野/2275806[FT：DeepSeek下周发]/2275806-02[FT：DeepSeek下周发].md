@@ -11327,3 +11327,21 @@ pencil可以试试
 <img src="https://p.sda1.dev/33/f54f54e3fa1adda5ab7d8983b717b5d9/image.jpg" referrerpolicy="no-referrer">
 无内鬼，来点哈基米笑话
 
+
+*****
+
+####  cscbzcbz  
+##### 2443#       发表于 2026-7-16 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69923484&amp;ptid=2275806" target="_blank">zy450 发表于 2026-7-16 08:56</a>
+看了你回复，刷了几次也刷到I’m……确实感觉不一样，感觉思考长了很多</blockquote>
+正式版果然很聪明，我让他做了个二次元的昆特牌，让他自己调用我之前本地部署好的文生图模型，一次出结果，逻辑都对。之前绝对做不到这个效果
+
+
+*****
+
+####  haiuhfuwah  
+##### 2444#       发表于 2026-7-16 10:16
+
+v4不是原生多模态吧，最后肯定还是要走原生多模态这条路
+
