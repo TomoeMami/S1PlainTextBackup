@@ -11345,3 +11345,22 @@ pencil可以试试
 
 v4不是原生多模态吧，最后肯定还是要走原生多模态这条路
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2445#       发表于 2026-7-16 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69923903&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-16 10:05</a>
+无内鬼，来点哈基米笑话</blockquote>
+不知为什么我觉得哪怕前面都是假的，3.5pro这个性能预测真实度也很高
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  wandeeees  
+##### 2446#       发表于 2026-7-16 10:21
+
+说来他们内部有在研究世界模型吗，感觉啥时候世界模型能和LLM结合起来才能达到AGI，纯LLM应该很难或者不可能吧
+
