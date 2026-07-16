@@ -11480,3 +11480,43 @@ gemini现在全方面拉胯
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Promeus  
+##### 2458#       发表于 2026-7-16 12:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69924486&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-16 11:46</a>
+K3没有后端测试的结果啊，看到的全都是前端，那这个结论怎么得出的呢？</blockquote>
+根据2.6推测的呗
+
+*****
+
+####  80后卢瑟  
+##### 2459#       发表于 2026-7-16 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69924486&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-16 11:46</a>
+
+K3没有后端测试的结果啊，看到的全都是前端，那这个结论怎么得出的呢？</blockquote>
+K3 现在比较容易测前端能力，后端能力现在没 API 测试起来比较麻烦
+
+*****
+
+####  亚瑟摩根  
+##### 2460#       发表于 2026-7-16 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69923903&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-16 10:05</a>
+
+无内鬼，来点哈基米笑话</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看到minimax绷不住了
+
+如果不把minimax放进去，我估计就信了
+
+
+*****
+
+####  →熙←  
+##### 2461#       发表于 2026-7-16 13:03
+
+ds大规模推送了吧,我今天已经各种I'm了
+
