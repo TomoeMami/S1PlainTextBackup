@@ -12706,3 +12706,26 @@ windows 下有支持dspark的框架吗，试了一下lamma cpp和LM Studio都加
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  lactone  
+##### 2579#       发表于 2026-7-17 02:33
+
+k3的deepswe打过了gpt5.5和opus4.8<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  czhhws  
+##### 2580#       发表于 2026-7-17 02:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69927864&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-17 02:33</a>
+k3的deepswe打过了gpt5.5和opus4.8
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+现在有个问题是，Kimi比fable5差一点，但是便宜一点且不会封号，比GPT5.6差一点但是又贵一点。难道是为了赚国内不会翻出去的人的钱？那为啥不用GLM<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉这定价妥妥有问题，我弄了个最低价，五小时code额度一个任务都没跑出来。
+
+—— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
