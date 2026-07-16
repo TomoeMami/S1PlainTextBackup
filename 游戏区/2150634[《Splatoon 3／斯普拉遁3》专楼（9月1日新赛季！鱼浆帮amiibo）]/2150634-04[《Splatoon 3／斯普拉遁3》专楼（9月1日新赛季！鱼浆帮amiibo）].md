@@ -109,3 +109,13 @@
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 我天天大厅打真格，置物柜咋还是两个月之前的那几个人的，都没变过<img src="https://static.stage1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shirolin  
+##### 5919#       发表于 2026-7-16 09:04
+
+<blockquote>KIRI小威 发表于 2026-7-16 08:46
+我天天大厅打真格，置物柜咋还是两个月之前的那几个人的，都没变过</blockquote>
+那你广场上的那些人有变化吗？广场上的人有变化，理论上置物柜也应该有变化
+
