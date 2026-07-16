@@ -12804,3 +12804,15 @@ v4灰度正式版—我的世界+无人深空+传送门_哔哩哔哩bilibili
 
 因为外网习惯了高定价吧，国人主要反馈都是太贵了
 
+
+*****
+
+####  andychen  
+##### 2588#       发表于 2026-7-17 07:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69927999&amp;ptid=2275806" target="_blank">lowezack 发表于 2026-7-17 07:04</a>
+因为外网习惯了高定价吧，国人主要反馈都是太贵了</blockquote>
+涨价是大趋势，现在国内几家大厂除了字节跳动全停售按请求次数计费的套餐了
+
+国内厂商已经花了很大力气提升训练和推理的效率，但是算力不够是绕不过去的坎
+
