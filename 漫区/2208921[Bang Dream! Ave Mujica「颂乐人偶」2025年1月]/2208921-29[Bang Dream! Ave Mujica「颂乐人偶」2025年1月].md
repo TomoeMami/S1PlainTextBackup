@@ -37,3 +37,11 @@
 
        [https://cof-xr.co.jp/avemujica/](https://cof-xr.co.jp/avemujica/)
 
+
+*****
+
+####  yone0000  
+##### 41952#       发表于 2026-7-16 22:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这莫名奇妙的VR体验的谷子比正经live场贩还好看
+
