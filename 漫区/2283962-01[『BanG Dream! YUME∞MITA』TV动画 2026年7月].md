@@ -112,3 +112,17 @@ v姐玩/火玩得我想起一些片场的神秘魔男反派了：哇，这场面
 
 比如说女主炎上黑历史  和蓝毛是旧乐队 以及那个超绝坏女人的存在   画师的高压状态等   是动画原创还是在直播时也有表现出来的?
 
+
+*****
+
+####  哈尔路尼亚  
+##### 107#       发表于 2026-7-17 03:21
+
+ 本帖最后由 哈尔路尼亚 于 2026-7-17 03:23 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69927756&amp;ptid=2283962" target="_blank">妹控使徒 发表于 2026-7-17 01:06</a>
+应该不少人问过了  所以再问一次
+
+这个动画里的剧情 设定和同期一直在活动的邦管梦团有多少相似部分? 或者说 ...</blockquote>
+显然是原创<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真有vol这个人的话岂不是引导网暴了
+最多是有原型吧，比如画师确实是工作狂之类的
+
