@@ -12778,3 +12778,13 @@ v4灰度正式版—我的世界+无人深空+传送门_哔哩哔哩bilibili
 
 —— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  lactone  
+##### 2585#       发表于 2026-7-17 06:50
+
+外网大规模吹k3<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
