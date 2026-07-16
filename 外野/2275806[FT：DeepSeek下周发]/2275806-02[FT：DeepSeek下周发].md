@@ -11895,3 +11895,24 @@ k3应该还好，就是前端sota考虑到前辈是哈基米3p，有点…
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  发呆的龙虾  
+##### 2499#       发表于 2026-7-16 20:49
+
+17号的大会发布，下周一上线吧？
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  overflowal  
+##### 2500#       发表于 2026-7-16 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69926811&amp;ptid=2275806" target="_blank">发呆的龙虾 发表于 2026-7-16 20:49</a>
+17号的大会发布，下周一上线吧？
+
+—— 来自 HUAWEI HOP-AL10, Android 12, 鹅球 v4.0-alpha ...</blockquote>
+deepseek 从来不发布后上线，都是上线了，hf上上传了，最后再慢慢宣布    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
