@@ -288,3 +288,16 @@
 
 认定战打不过，吐了，等令咒回复
 
+
+*****
+
+####  khxooo  
+##### 47901#       发表于 2026-7-17 00:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69927161&amp;ptid=1712412" target="_blank">赤备传承 发表于 2026-7-16 22:10</a>
+
+手动刷无限池，最后也刷了100池，主要还是靠因陀罗暴击爽
+
+最后清点下这次100池居然掉了15张礼装，每次出彩 ...</blockquote>
+狗屎的116，我现在能加御主经验的礼装全部都带上了，就是想尽快升到180级。每次看到那红色的116就血压高<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
