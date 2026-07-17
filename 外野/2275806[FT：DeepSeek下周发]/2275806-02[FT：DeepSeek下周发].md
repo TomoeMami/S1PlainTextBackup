@@ -13312,3 +13312,14 @@ AI大会在点草A畜？</blockquote>
 —— 来自 realme RMX3700, Android 16, 鹅球 v3.5.99-alpha</blockquote>
 正在看，在ytb的tvb直播间
 
+
+*****
+
+####  czhhws  
+##### 2642#       发表于 2026-7-17 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69928893&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-7-17 10:26</a>
+
+正在看，在ytb的tvb直播间</blockquote>
+看到了，谢谢。
+
