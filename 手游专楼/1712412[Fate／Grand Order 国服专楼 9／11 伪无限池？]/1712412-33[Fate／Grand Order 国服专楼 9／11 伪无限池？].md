@@ -313,3 +313,15 @@
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  khxooo  
+##### 47903#       发表于 2026-7-17 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69929102&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2026-7-17 10:58</a>
+满羁绊的4宝黑枪呆和一宝未满羁绊的小太阳哪个适合给冠？(不够材料点树)
+
+—— 来自 vivo V2419A, Android  ...</blockquote>
+那当然是黒枪呆，黑枪呆上手就能用，小太阳呆在后面吃羁绊拿到羁绊礼装再说。
+
