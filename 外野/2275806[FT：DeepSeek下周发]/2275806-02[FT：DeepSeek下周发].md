@@ -13798,3 +13798,28 @@ fable5我不清楚，4.8opus也喜欢漂移
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  lactone  
+##### 2691#       发表于 2026-7-17 19:28
+
+梁子，我正式版呢？<img src="https://static.stage1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  tillnight  
+##### 2692#       发表于 2026-7-17 19:33
+
+实例看前端以外ds4正式版明显是要比k3强的，这不会是觉得就差口气要硬憋出sota吧。
+
+*****
+
+####  アコ  
+##### 2693#       发表于 2026-7-17 19:35
+
+某脑杂谈区已经变成牢梁了
+
