@@ -343,3 +343,15 @@
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  khxooo  
+##### 47906#       发表于 2026-7-17 18:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69931019&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2026-7-17 16:46</a>
+我说怎么伤害这么不得劲，原来是要三色宝具连协
+
+—— 来自 vivo V2419A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+更多的是红卡那个一刺穿城的buff，给50攻击
+
