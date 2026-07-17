@@ -122,3 +122,23 @@ Production: SIGNF Inc.
 #AveMujica#</blockquote>
        [https://www.bilibili.com/video/BV1dLKG6GETW](https://www.bilibili.com/video/BV1dLKG6GETW)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41954#       发表于 2026-7-17 17:31
+
+       
+
+<img src="https://img.stage1st.com/forum/202607/17/173148bdu56emf5krk565t.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-07-17_17-30-26.jpg</strong> (300.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-17 17:31 上传
+
+       [https://x.com/bang_dream_info/status/2078043153341550930](https://x.com/bang_dream_info/status/2078043153341550930)
+
+       [https://www.creativeman.co.jp/artist/2026/12evanescence/](https://www.creativeman.co.jp/artist/2026/12evanescence/)
+

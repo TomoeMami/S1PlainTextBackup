@@ -13701,3 +13701,11 @@ fable5我不清楚，4.8opus也喜欢漂移
 后训练真的能把左右互搏的思维链训成隐藏或总结式的思维链吗？</blockquote>
 那当然是可以的，或者说思维链这个东西本身就是后训练的产物
 
+
+*****
+
+####  overflowal  
+##### 2680#       发表于 2026-7-17 17:25
+
+快下班了，真要20号发啊，不是吧<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
