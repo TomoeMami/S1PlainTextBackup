@@ -135,3 +135,13 @@ v姐玩/火玩得我想起一些片场的神秘魔男反派了：哇，这场面
 原型来源显然很复杂，从本人的设定选择，再到过去经历的题材，再到vtb业界的传闻。
 原本以为只有游戏部，现在看来还有偶像部<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  是谁的书画  
+##### 109#       发表于 2026-7-17 12:03
+
+喜欢薇姐捏，想被微姐控制<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+但是似乎微姐只喜欢女人<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
