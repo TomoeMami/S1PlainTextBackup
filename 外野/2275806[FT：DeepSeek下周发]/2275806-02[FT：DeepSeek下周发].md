@@ -13589,3 +13589,20 @@ kimi3默认max的推理预算真的搞耍，估计月之暗面真的想在国内
 
 不是很懂还在碎碎念gpt性价比高。20x以外的订阅额度6月份偷偷砍了一次在用的人都知道，sol刚上线实际烧额度速度和fable一个尿性用过的也都知道。拿这个月的百亿补贴天天重置碎碎念他划算，那确实划算爆了，极限单位tokens都比ds的api低了能不划算嘛。就问a和o真上市了还玩的起这百亿补贴吗，上市前的常规做法就是拼命烧钱增加订阅人数，可以做高财报。上市后又是另一套逻辑了。
 
+
+*****
+
+####  小川彩  
+##### 2670#       发表于 2026-7-17 13:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69929722&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-7-17 12:24</a>
+5.6sol 已经有点残了
+
+超过10分钟的活儿一定偷懒给你挖坑
+
+敢用/goal就留给你 一堆蜂窝煤</blockquote>
+你可以先让它写完一个比较完整的step plan文档，然后让它再根据文档写一个详细的/goal，再复制执行这个/goal 
+我用下来感觉这样基本还可以
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
