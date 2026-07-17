@@ -13114,3 +13114,13 @@ closeai这企业也就偶尔烂炒，没有a\那么魔怔
 —— 来自 HONOR AAK-AN00, And ...</blockquote>
 都是在群里串着玩烂炒的，结果有人真信了传出去了
 
+
+*****
+
+####  午夜钓者  
+##### 2621#       发表于 2026-7-17 09:29
+
+中转fable或opus4.8 是在某脑传出来的，原因是一个脏 token和 opus 一样
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
