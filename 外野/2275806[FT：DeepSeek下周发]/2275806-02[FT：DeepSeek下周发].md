@@ -13675,3 +13675,11 @@ fable5我不清楚，4.8opus也喜欢漂移
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差距太大了,看见let me 我都不想继续了
 
+
+*****
+
+####  奈落的孤火花  
+##### 2677#       发表于 2026-7-17 15:40
+
+正式版应该不会大改模型参数量吧 就是基于预览版做后训练？
+
