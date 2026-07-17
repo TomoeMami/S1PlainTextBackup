@@ -13063,3 +13063,54 @@ gpt plus现在自己订也就120-130/月?
 
 现在还没邮件大概率是20号了，要么DS开头几天原价
 
+
+*****
+
+####  龙骑士尹志平  
+##### 2616#       发表于 2026-7-17 09:15
+
+ 本帖最后由 龙骑士尹志平 于 2026-7-17 09:16 编辑 
+<blockquote>startraveller 发表于 2026-7-17 08:48
+不能算大碗，用5.6半天能把周限蹬完</blockquote>
+
+gpt现在国内用走v*pn出去容易被封吗，像a÷一样严格吗
+
+*****
+
+####  zy450  
+##### 2617#       发表于 2026-7-17 09:15
+
+大规模测试了，应该是在优化负载吧
+
+*****
+
+####  nxmonitor  
+##### 2618#       发表于 2026-7-17 09:16
+
+Nao榜的推理测试是不是应该加长了？从多游戏整合就看出来K3的复杂推理其实比较一般的，也可能是上下文注意力有问题？
+
+
+*****
+
+####  舞以  
+##### 2619#       发表于 2026-7-17 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69928430&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-7-17 09:15</a>
+
+gpt现在国内用走v*pn出去容易被封吗，像a÷一样严格吗</blockquote>
+没有吧，我挂的梯子长期稳定在一个节点，然后登录直接走的Google，付款走的日区App Store订阅，玩了好久了。
+
+closeai这企业也就偶尔烂炒，没有a\那么魔怔
+
+*****
+
+####  ice菓  
+##### 2620#       发表于 2026-7-17 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69927611&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-17 00:01</a>
+
+怎么还有人说灰度的是梁子给大家官方中转的fable？为了咩鳖都不要脑子吗？
+
+—— 来自 HONOR AAK-AN00, And ...</blockquote>
+都是在群里串着玩烂炒的，结果有人真信了传出去了
+
