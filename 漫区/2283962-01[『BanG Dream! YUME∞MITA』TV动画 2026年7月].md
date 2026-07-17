@@ -262,3 +262,16 @@ mggm日本王子杰说是
 
 当然这主要也看后面怎么描写V姐的动机了
 
+
+*****
+
+####  帆前  
+##### 114#       发表于 2026-7-17 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69930650&amp;ptid=2283962" target="_blank">刑部姬真可爱 发表于 2026-7-17 15:27</a>
+
+算无遗策固然很好，随机应变又何尝不是能力的表现
+
+当然这主要也看后面怎么描写V姐的动机了 ...</blockquote>
+希望吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">目前薇姐已犯下傲慢…啊不，战略意图不清晰之罪👿.jpg（）希望后续能有点活
+
