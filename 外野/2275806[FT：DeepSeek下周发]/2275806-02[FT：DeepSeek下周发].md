@@ -14006,3 +14006,13 @@ kimi这个规模只能说被浪费了，或者主要用处就是拿来炒作。
 
 烟雾弹……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一般市民  
+##### 2712#       发表于 2026-7-18 00:16
+
+demo看了不少，不过没人说清楚这个神秘模型来历。总之现在通过deepseek的官方API执行复杂任务，有概率路由到一个牛逼的神秘模型是吧？
+
+为啥用这么古怪的测试法啊？<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
