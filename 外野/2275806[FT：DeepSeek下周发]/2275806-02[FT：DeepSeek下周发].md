@@ -13926,3 +13926,13 @@ V4前端也不是很区啊
 想看看如果有素材，不用MC风格做游戏能做到什么水平    Re:Source</blockquote>
 过一会可能会刷到，有个荒岛求生的游戏，虽然还不够完善，之前有个格斗游戏[https://www.bilibili.com/video/BV1LdK56XEoe](https://www.bilibili.com/video/BV1LdK56XEoe)
 
+
+*****
+
+####  风夏  
+##### 2705#       发表于 2026-7-17 22:09
+
+请问各位大佬， 用comfyui或者其他什么ai插件来配合gimp之类ai修图的话，用什么模型合适？d老师好像没有多模态能力。。。
+
+有推荐的方式吗？ 我现在全都交给hermes来干， 需要换一个多模态模型吗？ 
+
