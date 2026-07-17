@@ -13742,3 +13742,49 @@ fable5我不清楚，4.8opus也喜欢漂移
 
 众所周知一旬为10天，20号正好在中旬
 
+
+*****
+
+####  david5515  
+##### 2685#       发表于 2026-7-17 18:29
+
+那20号包更新么？
+
+
+*****
+
+####  overflowal  
+##### 2686#       发表于 2026-7-17 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69931560&amp;ptid=2275806" target="_blank">david5515 发表于 2026-7-17 18:29</a>
+
+那20号包更新么？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不包，只是说计划中旬上线
+
+*****
+
+####  zy450  
+##### 2687#       发表于 2026-7-17 18:32
+
+20号再不更新，就真的食言了。
+
+—— 来自 Xiaomi 24031PN0DC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ayanamilin  
+##### 2688#       发表于 2026-7-17 18:35
+
+也许 DeepSeek 学 Google 呢，V4 正式版上线，然后出 V4.1 preview 
+
+*****
+
+####  此誓的守望  
+##### 2689#       发表于 2026-7-17 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69928538&amp;ptid=2275806" target="_blank">午夜钓者 发表于 2026-7-17 09:29</a>
+中转fable或opus4.8 是在某脑传出来的，原因是一个脏 token和 opus 一样
+
+—— 来自 鹅球 v4.0-alpha ...</blockquote>
+某脑的杂谈区大部分时间其实都在发癫烂炒，人均串子10级，怕不是有人把串子发癫烂炒传着传着当真了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
