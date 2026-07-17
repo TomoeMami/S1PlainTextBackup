@@ -113,3 +113,13 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 4526#       发表于 2026-7-17 08:16
+
+恶心，3000没了，之后存钻要小心了
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

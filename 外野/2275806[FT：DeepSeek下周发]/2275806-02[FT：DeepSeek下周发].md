@@ -12870,3 +12870,14 @@ K3和Qwenmax不便宜，因为是线性注意力机制。ds和徒子徒孙们很
 
 不知道怎么回事，k3在某些问题的表现还不如k2.5，和gpt5.5的差距很大，moonshoot感觉还需努力啊， k3的底子还不错，多优化几个版本吧。
 
+
+*****
+
+####  舞以  
+##### 2595#       发表于 2026-7-17 08:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69928131&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-7-17 08:13</a>
+
+不知道怎么回事，k3在某些问题的表现还不如k2.5，和gpt5.5的差距很大，moonshoot感觉还需努力啊， k3的底子 ...</blockquote>
+不会又是高分低能吧<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
