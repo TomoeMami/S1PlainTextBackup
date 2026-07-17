@@ -13966,3 +13966,17 @@ opencode go给的k3，当许愿机试了下，think了20min之后直接截断了
 
 新鲜出炉的chatgpt 5.6锐评鲸震恩<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  午夜钓者  
+##### 2709#       发表于 2026-7-17 23:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69931592&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-7-17 18:35</a>
+某脑的杂谈区大部分时间其实都在发癫烂炒，人均串子10级，怕不是有人把串子发癫烂炒传着传着当真了
+
+ ...</blockquote>
+不过就目前 k3 的模型规模和效果来看，神秘灰测模型未必是 v4 正式版
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
