@@ -13831,3 +13831,13 @@ fable5我不清楚，4.8opus也喜欢漂移
 
 难道是为了给友商曝光度吗？牢梁，我的超人    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  qz66618  
+##### 2695#       发表于 2026-7-17 19:56
+
+难道又是部署出问题了吗，总不可能为了多训练几天才导致现在还没发吧<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">大模型也没啥突击训练就能有明显提升的道理
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
