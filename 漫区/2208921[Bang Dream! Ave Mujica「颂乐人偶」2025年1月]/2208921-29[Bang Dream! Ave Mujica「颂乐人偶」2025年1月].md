@@ -142,3 +142,11 @@ Production: SIGNF Inc.
 
        [https://www.creativeman.co.jp/artist/2026/12evanescence/](https://www.creativeman.co.jp/artist/2026/12evanescence/)
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 41955#       发表于 2026-7-17 19:50
+
+这下主流进出了
+
