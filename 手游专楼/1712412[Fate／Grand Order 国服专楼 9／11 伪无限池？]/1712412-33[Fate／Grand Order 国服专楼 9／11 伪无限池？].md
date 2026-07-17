@@ -325,3 +325,11 @@
 —— 来自 vivo V2419A, Android  ...</blockquote>
 那当然是黒枪呆，黑枪呆上手就能用，小太阳呆在后面吃羁绊拿到羁绊礼装再说。
 
+
+*****
+
+####  Urakawa  
+##### 47904#       发表于 2026-7-17 16:43
+
+居然被助战5宝bba背刺了，羁绊等级不够np卡在97%<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
