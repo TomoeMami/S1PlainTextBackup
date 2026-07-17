@@ -13154,3 +13154,53 @@ closeai没a畜那么神经质，基本不会因为你不是美国人封号，我
 
 听说ds没参会，那梁圣本人呢
 
+
+*****
+
+####  舞以  
+##### 2625#       发表于 2026-7-17 09:48
+
+很难说ds正式版逼近fable和梁圣那fable塞进自己api大规模测试哪个更咩美<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  午夜钓者  
+##### 2626#       发表于 2026-7-17 09:50
+
+说到底还是非常抽象的判断，大部分都是调侃，传着传着有些人当真了
+
+
+*****
+
+####  overflowal  
+##### 2627#       发表于 2026-7-17 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69928618&amp;ptid=2275806" target="_blank">狭义文具爱好者 发表于 2026-7-17 09:40</a>
+不是脏token和opus一样，是ds从3.2到v4pre的脏token失效了，还有些别的判断</blockquote>
+换了tokenizer的话要怀疑是加多模态了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  czhhws  
+##### 2628#       发表于 2026-7-17 09:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不会还要等吧，等到24号。
+
+—— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  zy450  
+##### 2629#       发表于 2026-7-17 09:54
+
+用opencode能刷到几次正式版，PI就没成功刷到正式版<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 2630#       发表于 2026-7-17 09:55
+
+换了也不是什么大事情，A÷从4.6到4.8每个版本换一次，token消耗一次多20%-30%呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
