@@ -13465,3 +13465,13 @@ kimi3默认max的推理预算真的搞耍，估计月之暗面真的想在国内
 
 能力超过ds4正式版再想啥高端吧，那几个许愿机测试可很多都不如的，也就是多模态有点优势但前端又不止你这家能用
 
+
+*****
+
+####  goranger  
+##### 2659#       发表于 2026-7-17 12:15
+
+我看有说open code go的ds pro已经涨价了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
