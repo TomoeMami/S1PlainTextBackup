@@ -214,3 +214,22 @@ dmm那边上了，打3000吧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">史雷格不用去和大扎姆爆了，那这样还有哈萨维吗
 
+
+*****
+
+####  plok201  
+##### 4537#       发表于 2026-7-18 06:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">其实从日服流水排名来看和平常那些常驻没差太多，主要港服那边是真不喜欢这两坨
+
+这次活动方向倒是对了，如果是周年同步更新就没那么多差评了
+
+*****
+
+####  plok201  
+##### 4538#       发表于 2026-7-18 06:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">其实从日服流水排名来看和平常那些常驻没差太多，主要港服那边是真不喜欢这两坨
+
+这次活动方向倒是对了，如果是周年同步更新就没那么多差评了
+
