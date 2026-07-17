@@ -13204,3 +13204,22 @@ closeai没a畜那么神经质，基本不会因为你不是美国人封号，我
 
 换了也不是什么大事情，A÷从4.6到4.8每个版本换一次，token消耗一次多20%-30%呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绝地潜兵  
+##### 2631#       发表于 2026-7-17 10:02
+
+重新定义中旬<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 2632#       发表于 2026-7-17 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69928675&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-17 09:48</a>
+很难说ds正式版逼近fable和梁圣那fable塞进自己api大规模测试哪个更咩美
+
+论坛助手,iPhone ...</blockquote>
+梁圣和杨圣唐圣飞去美国把A/门卫肘翻用U盘把Mythos所有数据拷回来了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
