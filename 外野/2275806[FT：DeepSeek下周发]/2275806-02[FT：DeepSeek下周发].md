@@ -13323,3 +13323,43 @@ AI大会在点草A畜？</blockquote>
 正在看，在ytb的tvb直播间</blockquote>
 看到了，谢谢。
 
+
+*****
+
+####  goranger  
+##### 2643#       发表于 2026-7-17 10:49
+
+Kimi K3 已正式上线 OpenCode Go，Go 用户现在即可体验。
+
+目前我们还没有拿到模型价格优惠，因此现阶段使用 Kimi K3 会消耗更高额度。
+
+我们正在积极推进，希望能尽快解决这个问题。     今天大鲸鱼还不发布吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cscbzcbz  
+##### 2644#       发表于 2026-7-17 10:51
+
+往好了想，还在优化，性能还能提升<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  舞以  
+##### 2645#       发表于 2026-7-17 10:54
+
+不会真中旬=20号吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qz66618  
+##### 2646#       发表于 2026-7-17 10:55
+
+那也太难评了，ds真就研究院风格，不拖到ddl不交付吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
