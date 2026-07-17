@@ -12881,3 +12881,46 @@ K3和Qwenmax不便宜，因为是线性注意力机制。ds和徒子徒孙们很
 不知道怎么回事，k3在某些问题的表现还不如k2.5，和gpt5.5的差距很大，moonshoot感觉还需努力啊， k3的底子 ...</blockquote>
 不会又是高分低能吧<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 2596#       发表于 2026-7-17 08:24
+
+我感觉k3 就是非常强，明显强于gm5.2，不是高分低能，唯一的问题是，思考太长了
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  七氷  
+##### 2597#       发表于 2026-7-17 08:32
+
+Kimi 199套餐能放开了蹬吗
+
+*****
+
+####  不见不散  
+##### 2598#       发表于 2026-7-17 08:33
+
+17号了，大的药来了吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  drodchang  
+##### 2599#       发表于 2026-7-17 08:33
+
+不知道chatgpt的超强的数学推理能力是怎么训练出来的，目前没有一个模型接近的。
+
+*****
+
+####  andychen  
+##### 2600#       发表于 2026-7-17 08:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69928131&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-7-17 08:13</a>
+不知道怎么回事，k3在某些问题的表现还不如k2.5，和gpt5.5的差距很大，moonshoot感觉还需努力啊， k3的底子 ...</blockquote>
+我使用下来初步感觉是不弱于opus，和fable比不好说，因为我也没怎么用过fable
+
+不过现在推理速度太慢了。这还是热度没起来的时候，我估计未来几天别想用这模型了
+
