@@ -13980,3 +13980,19 @@ opencode go给的k3，当许愿机试了下，think了20min之后直接截断了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  舞以  
+##### 2710#       发表于 2026-7-17 23:58
+
+ 本帖最后由 舞以 于 2026-7-17 23:59 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69932855&amp;ptid=2275806" target="_blank">午夜钓者 发表于 2026-7-17 23:55</a>
+
+不过就目前 k3 的模型规模和效果来看，神秘灰测模型未必是 v4 正式版
+
+—— 来自 鹅球 v4.0-alpha ...</blockquote>
+月之暗面的水平太烂了，v4正式版的规模和能力相比glm-5.2的提升很合理。
+
+kimi这个规模只能说被浪费了，或者主要用处就是拿来炒作。
+
