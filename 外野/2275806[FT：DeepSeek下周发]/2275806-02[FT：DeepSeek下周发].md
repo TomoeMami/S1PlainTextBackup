@@ -13475,3 +13475,32 @@ kimi3默认max的推理预算真的搞耍，估计月之暗面真的想在国内
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  奈落的孤火花  
+##### 2660#       发表于 2026-7-17 12:21
+
+可以 那我买个套餐试试kimi如何，先买一个月的
+
+*****
+
+####  drodchang  
+##### 2661#       发表于 2026-7-17 12:23
+
+国内模型都蒸馏A/，为啥不多蒸馏gpt提高一下逻辑能力
+
+*****
+
+####  phorcys02  
+##### 2662#       发表于 2026-7-17 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69929711&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-7-17 12:23</a>
+
+国内模型都蒸馏A/，为啥不多蒸馏gpt提高一下逻辑能力</blockquote>
+5.6sol 已经有点残了
+
+超过10分钟的活儿一定偷懒给你挖坑
+
+敢用/goal就留给你 一堆蜂窝煤
+
