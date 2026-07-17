@@ -13278,3 +13278,37 @@ closeai没a畜那么神经质，基本不会因为你不是美国人封号，我
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  绝地潜兵  
+##### 2639#       发表于 2026-7-17 10:20
+
+ 本帖最后由 绝地潜兵 于 2026-7-17 10:23 编辑 
+
+AI大会在点草A畜？
+
+*****
+
+####  czhhws  
+##### 2640#       发表于 2026-7-17 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69928859&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-7-17 10:20</a>
+AI大会在点草A畜？</blockquote>
+什么情况，有直播吗？
+
+—— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  绝地潜兵  
+##### 2641#       发表于 2026-7-17 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69928879&amp;ptid=2275806" target="_blank">czhhws 发表于 2026-7-17 10:24</a>
+
+什么情况，有直播吗？
+
+—— 来自 realme RMX3700, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+正在看，在ytb的tvb直播间
+
