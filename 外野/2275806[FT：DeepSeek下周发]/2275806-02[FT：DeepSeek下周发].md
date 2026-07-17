@@ -13788,3 +13788,13 @@ fable5我不清楚，4.8opus也喜欢漂移
 —— 来自 鹅球 v4.0-alpha ...</blockquote>
 某脑的杂谈区大部分时间其实都在发癫烂炒，人均串子10级，怕不是有人把串子发癫烂炒传着传着当真了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 2690#       发表于 2026-7-17 19:11
+
+估计得是20号了🤣，ds总不会加班吧，那才是人设崩坏。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

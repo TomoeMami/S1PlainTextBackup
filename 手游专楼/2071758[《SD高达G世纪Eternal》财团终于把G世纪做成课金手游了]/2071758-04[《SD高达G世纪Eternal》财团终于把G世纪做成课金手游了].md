@@ -157,3 +157,15 @@
 
 他哪怕整个UR小林+钢坦克说不定都能登顶
 
+
+*****
+
+####  无念  
+##### 4531#       发表于 2026-7-17 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69931394&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-7-17 17:56</a>
+他哪怕整个UR小林+钢坦克说不定都能登顶</blockquote>
+肯定啊，你也太看不起钢坦克的人气了
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
