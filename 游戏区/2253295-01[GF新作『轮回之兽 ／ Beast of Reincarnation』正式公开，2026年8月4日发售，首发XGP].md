@@ -46,3 +46,11 @@
 
 —— 来自 vivo V2314A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  otakun  
+##### 288#       发表于 2026-7-17 10:59
+
+Steam 上配置要求是改了么，现在没看到内存和显卡配置推荐了，只有个60G空间需求
+
