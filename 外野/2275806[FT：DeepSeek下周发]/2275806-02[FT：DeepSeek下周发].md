@@ -13936,3 +13936,15 @@ V4前端也不是很区啊
 
 有推荐的方式吗？ 我现在全都交给hermes来干， 需要换一个多模态模型吗？ 
 
+
+*****
+
+####  舞以  
+##### 2706#       发表于 2026-7-17 22:57
+
+opencode go给的k3，当许愿机试了下，think了20min之后直接截断了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+还是我熟悉的kimi的味道
+对我而言kimi真的不可用
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
