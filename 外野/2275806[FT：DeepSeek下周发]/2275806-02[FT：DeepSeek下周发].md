@@ -13124,3 +13124,33 @@ closeai这企业也就偶尔烂炒，没有a\那么魔怔
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2622#       发表于 2026-7-17 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69928430&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-7-17 09:15</a>
+
+gpt现在国内用走v*pn出去容易被封吗，像a÷一样严格吗</blockquote>
+closeai没a畜那么神经质，基本不会因为你不是美国人封号，我用了俩月了
+
+只要别头铁在它客户端上尝试破甲或者一个号给多个人用就行
+
+
+*****
+
+####  狭义文具爱好者  
+##### 2623#       发表于 2026-7-17 09:40
+
+不是脏token和opus一样，是ds从3.2到v4pre的脏token失效了，还有些别的判断
+
+*****
+
+####  舞以  
+##### 2624#       发表于 2026-7-17 09:43
+
+大会啥时候开幕啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+听说ds没参会，那梁圣本人呢
+
