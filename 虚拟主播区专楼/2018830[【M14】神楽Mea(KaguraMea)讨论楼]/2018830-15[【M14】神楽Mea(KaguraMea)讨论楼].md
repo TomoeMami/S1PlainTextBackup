@@ -11454,3 +11454,17 @@ Zero很可爱。
 
 Nori辛苦了！
 
+
+*****
+
+####  古战场亡魂  
+##### 21023#       发表于 2026-7-17 16:02
+
+<img src="https://img.stage1st.com/forum/202607/17/160225sddry7qideryi7rp.png" referrerpolicy="no-referrer">
+
+<strong>1a5f8244-9cf9-439c-a5fa-ef58a73f761b.png</strong> (124.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-17 16:02 上传
+

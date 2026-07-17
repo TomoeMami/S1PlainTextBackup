@@ -13683,3 +13683,21 @@ fable5我不清楚，4.8opus也喜欢漂移
 
 正式版应该不会大改模型参数量吧 就是基于预览版做后训练？
 
+
+*****
+
+####  nxmonitor  
+##### 2678#       发表于 2026-7-17 16:03
+
+后训练真的能把左右互搏的思维链训成隐藏或总结式的思维链吗？
+
+*****
+
+####  overflowal  
+##### 2679#       发表于 2026-7-17 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69930820&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-17 16:03</a>
+
+后训练真的能把左右互搏的思维链训成隐藏或总结式的思维链吗？</blockquote>
+那当然是可以的，或者说思维链这个东西本身就是后训练的产物
+
