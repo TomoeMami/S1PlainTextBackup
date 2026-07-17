@@ -12842,3 +12842,13 @@ K3和Qwenmax不便宜，因为是线性注意力机制。ds和徒子徒孙们很
 
 多模态看来是不是这一代没办法了 得再等等？看了几个测试的，都说没有多模态。
 
+
+*****
+
+####  overflowal  
+##### 2592#       发表于 2026-7-17 07:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69928092&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-7-17 07:54</a>
+多模态看来是不是这一代没办法了 得再等等？看了几个测试的，都说没有多模态。 ...</blockquote>
+答案是不知道，就算有，但是没有在api接口上开多模态支持的话，也是没法用的。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
