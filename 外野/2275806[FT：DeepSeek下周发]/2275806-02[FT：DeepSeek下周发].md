@@ -13552,3 +13552,32 @@ kimi3默认max的推理预算真的搞耍，估计月之暗面真的想在国内
 
 感觉确实比2.6写的好一些
 
+
+*****
+
+####  御坂MKII  
+##### 2666#       发表于 2026-7-17 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69929432&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-17 11:38</a>
+
+kimi3默认max的推理预算真的搞耍，估计月之暗面真的想在国内搞fable play，靠所谓“高端”形象，借助这波模 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实可能是 max 以下现在表现不佳，可能还是后训练的问题
+
+*****
+
+####  nxmonitor  
+##### 2667#       发表于 2026-7-17 12:47
+
+这价格别说高端了，直接让人望而却步，别到时候DS上了还和前几个版本一样降价就好玩了……
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2668#       发表于 2026-7-17 12:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69929432&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-17 11:38</a>
+kimi3默认max的推理预算真的搞耍，估计月之暗面真的想在国内搞fable play，靠所谓“高端”形象，借助这波模 ...</blockquote>
+我觉得主要还是太贵了，gpt现在实际便宜模型，k3也就打平，真的缺乏竞争力
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
