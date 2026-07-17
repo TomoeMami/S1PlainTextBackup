@@ -13878,3 +13878,40 @@ fable5我不清楚，4.8opus也喜欢漂移
 
 v4魔法师们越来越疯狂了
 
+
+*****
+
+####  舞以  
+##### 2700#       发表于 2026-7-17 21:27
+
+高维空间碎片，你在哪<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">，，，
+我的永远是let me
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  浪费喝咖啡  
+##### 2701#       发表于 2026-7-17 21:28
+
+V4前端也不是很区啊
+【dsv4灰度--（不搜素材纯自己建模）1轮出+1轮修bug的超高质量gta-哔哩哔哩】 https://b23.tv/IMdd9QF
+
+
+*****
+
+####  Promeus  
+##### 2702#       发表于 2026-7-17 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69932328&amp;ptid=2275806" target="_blank">浪费喝咖啡 发表于 2026-7-17 21:28</a>
+V4前端也不是很区啊
+【dsv4灰度--（不搜素材纯自己建模）1轮出+1轮修bug的超高质量gta-哔哩哔哩】 https:// ...</blockquote>
+这是找到窍门了，纯拿svg俺寻思<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就跟大家发现mc作为ds游戏基座牛逼一样
+
+*****
+
+####  王兰花秀丽  
+##### 2703#       发表于 2026-7-17 21:32
+
+想看看如果有素材，不用MC风格做游戏能做到什么水平    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
