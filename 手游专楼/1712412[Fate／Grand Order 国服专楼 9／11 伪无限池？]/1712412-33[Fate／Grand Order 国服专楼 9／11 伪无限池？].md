@@ -355,3 +355,24 @@
 —— 来自 vivo V2419A, Android 16, 鹅球 v3.5.99 ...</blockquote>
 更多的是红卡那个一刺穿城的buff，给50攻击
 
+
+*****
+
+####  GALLADE  
+##### 47907#       发表于 2026-7-17 18:53
+
+点够星图当然是我全都要了，三色宝具金刚杵走得安心，大佬的BBA捅得开心<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+礼装虽然多带一个NP但是少带一个黑杯，反正枪这玩意到时候捅差不多就不碰了
+
+下一个树点谁来着，弓吗（EX早都满了）
+
+*****
+
+####  盲目者  
+##### 47908#       发表于 2026-7-17 18:58
+
+国服复刻看板娘礼装了
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
