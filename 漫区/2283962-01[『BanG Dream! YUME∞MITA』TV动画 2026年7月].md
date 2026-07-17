@@ -126,3 +126,12 @@ v姐玩/火玩得我想起一些片场的神秘魔男反派了：哇，这场面
 显然是原创<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真有vol这个人的话岂不是引导网暴了
 最多是有原型吧，比如画师确实是工作狂之类的
 
+
+*****
+
+####  渡鸦骑士  
+##### 108#       发表于 2026-7-17 11:05
+
+原型来源显然很复杂，从本人的设定选择，再到过去经历的题材，再到vtb业界的传闻。
+原本以为只有游戏部，现在看来还有偶像部<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
