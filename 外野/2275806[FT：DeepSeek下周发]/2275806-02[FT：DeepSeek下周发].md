@@ -12977,3 +12977,49 @@ gpt plus现在自己订也就120-130/月?
 
 GPT plus不太够用，重置不能当常态
 
+
+*****
+
+####  startraveller  
+##### 2606#       发表于 2026-7-17 08:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69928234&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-17 08:45</a>
+gpt plus现在自己订也就120-130/月?
+
+真算便宜大碗了</blockquote>
+不能算大碗，用5.6半天能把周限蹬完
+
+*****
+
+####  舞以  
+##### 2607#       发表于 2026-7-17 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69928250&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-7-17 08:48</a>
+不能算大碗，用5.6半天能把周限蹬完</blockquote>
+跟d指导比肯定不能算大碗，但是和kimi的订阅项目比真不算贵吧
+而且我个人觉得codex作为harness也是很强的，gpt的网页聊天也算有价值。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  施人诚  
+##### 2608#       发表于 2026-7-17 08:51
+
+就在今天吗？粱圣
+
+
+*****
+
+####  nxmonitor  
+##### 2609#       发表于 2026-7-17 08:53
+
+5.6哪怕是xhigh也比5.5的xhigh消耗大，缓存命中的价格高了不少，其实都是在偷偷涨价，A÷也在那边调分词器涨价
+
+*****
+
+####  王兰花秀丽  
+##### 2610#       发表于 2026-7-17 08:56
+
+梁圣大的到底来不来    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
