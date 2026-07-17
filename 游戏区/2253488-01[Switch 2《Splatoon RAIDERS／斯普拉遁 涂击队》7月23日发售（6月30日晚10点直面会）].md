@@ -451,3 +451,16 @@ eshop给出的大小预估是20G，对比下来看内容量估计也就这样了
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  落油Я  
+##### 235#       发表于 2026-7-17 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69925074&amp;ptid=2253488" target="_blank">宫永toki 发表于 2026-7-16 13:51</a>
+
+我日服的号被盗了，邮箱也被改掉了，淘宝找能追回的商家帮我和日本那边客服联系，但是客服那边说账号是我自 ...</blockquote>
+因为在老任眼里确实是你自己操作的啊，密码被人知道也就算了，二次验证的邮箱验证码也同时录入了，不管怎么看都是账号（邮箱）拥有者自己操作的
+
+这样看来账号交易还是挺安全的，我买过的4个号至少都有两年以上的时间了，都还健在
+
