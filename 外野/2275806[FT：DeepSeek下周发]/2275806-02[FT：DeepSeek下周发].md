@@ -13623,3 +13623,19 @@ kimi3默认max的推理预算真的搞耍，估计月之暗面真的想在国内
 
 感觉是训练用的用户数据越来越不care细节(都撒手纯vibe了)&lt;-&gt;模型飘移  形成正反馈了
 
+
+*****
+
+####  zhongjie  
+##### 2672#       发表于 2026-7-17 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69930150&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-7-17 13:41</a>
+有详细设计和执行方案会好一点
+
+但还是会在你没考虑到的地方挖坑, 除非你grill 个几百轮
+
+5.4基本没这毛病, ...</blockquote>
+fable5我不清楚，4.8opus也喜欢漂移
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
