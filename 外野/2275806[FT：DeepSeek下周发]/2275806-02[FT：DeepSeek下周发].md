@@ -13915,3 +13915,14 @@ V4前端也不是很区啊
 
 想看看如果有素材，不用MC风格做游戏能做到什么水平    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  nxmonitor  
+##### 2704#       发表于 2026-7-17 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69932360&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-7-17 21:32</a>
+
+想看看如果有素材，不用MC风格做游戏能做到什么水平    Re:Source</blockquote>
+过一会可能会刷到，有个荒岛求生的游戏，虽然还不够完善，之前有个格斗游戏[https://www.bilibili.com/video/BV1LdK56XEoe](https://www.bilibili.com/video/BV1LdK56XEoe)
+
