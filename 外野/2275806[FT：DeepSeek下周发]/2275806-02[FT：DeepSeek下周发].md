@@ -13606,3 +13606,20 @@ kimi3默认max的推理预算真的搞耍，估计月之暗面真的想在国内
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  phorcys02  
+##### 2671#       发表于 2026-7-17 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69929947&amp;ptid=2275806" target="_blank">小川彩 发表于 2026-7-17 13:05</a>
+
+你可以先让它写完一个比较完整的step plan文档，然后让它再根据文档写一个详细的/goal，再复制执行这个/g ...</blockquote>
+有详细设计和执行方案会好一点
+
+但还是会在你没考虑到的地方挖坑, 除非你grill 个几百轮
+
+5.4基本没这毛病,5.5 开始有一点, 5.6 sol现在已经是明目张胆了
+
+感觉是训练用的用户数据越来越不care细节(都撒手纯vibe了)&lt;-&gt;模型飘移  形成正反馈了
+
