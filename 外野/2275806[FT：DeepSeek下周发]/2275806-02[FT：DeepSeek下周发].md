@@ -13849,3 +13849,14 @@ fable5我不清楚，4.8opus也喜欢漂移
 
 灰测视频貌似效果越来越强了，不知道什么情况，反正在调整部署是真的，今天看推理比昨天流畅不少
 
+
+*****
+
+####  ymm1030  
+##### 2697#       发表于 2026-7-17 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69931977&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-17 20:11</a>
+
+灰测视频貌似效果越来越强了，不知道什么情况，反正在调整部署是真的，今天看推理比昨天流畅不少 ...</blockquote>
+应该是950大批量供上了。模型据说上个月就炼完了，我不觉得上线之前还有什么好炼的。
+
