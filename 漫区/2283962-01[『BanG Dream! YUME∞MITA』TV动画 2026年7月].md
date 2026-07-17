@@ -275,3 +275,15 @@ mggm日本王子杰说是
 当然这主要也看后面怎么描写V姐的动机了 ...</blockquote>
 希望吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">目前薇姐已犯下傲慢…啊不，战略意图不清晰之罪👿.jpg（）希望后续能有点活
 
+
+*****
+
+####  Totokei  
+##### 115#       发表于 2026-7-18 00:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">换了世界观果然热度一下子就下来了。
+
+如果这集是彻底完结了坏女人的部分的话可以打高分，但是注定要返场所以信心存疑。最后烧照片的桥段怎么说呢，感觉就像是隔壁蒜的绿毛第一次退场的时候说着我还会回来的味道。在本集结尾已经明确结束了阿蕾拉和律之间的误会之后，之前坏女人要挟律的把柄已经消失了接下来加人各种团队发展然后凑到本季结束就看起来结构合理。
+
+但是感觉现在也要打到第七集甚至第九集<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就怕又臭又长外加人设崩塌就是
+

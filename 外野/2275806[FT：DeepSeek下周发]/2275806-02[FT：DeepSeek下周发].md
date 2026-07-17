@@ -13996,3 +13996,13 @@ opencode go给的k3，当许愿机试了下，think了20min之后直接截断了
 
 kimi这个规模只能说被浪费了，或者主要用处就是拿来炒作。
 
+
+*****
+
+####  nxmonitor  
+##### 2711#       发表于 2026-7-18 00:10
+
+ 本帖最后由 nxmonitor 于 2026-7-18 00:15 编辑 
+
+烟雾弹……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
