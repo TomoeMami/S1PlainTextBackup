@@ -13223,3 +13223,58 @@ closeai没a畜那么神经质，基本不会因为你不是美国人封号，我
 论坛助手,iPhone ...</blockquote>
 梁圣和杨圣唐圣飞去美国把A/门卫肘翻用U盘把Mythos所有数据拷回来了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 2633#       发表于 2026-7-17 10:09
+
+今天不会真不发吧，双休又没见过ds加班，今天不发真要等到下周一了，要这么极限吗<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  zy450  
+##### 2634#       发表于 2026-7-17 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69928808&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-7-17 10:09</a>
+
+今天不会真不发吧，双休又没见过ds加班，今天不发真要等到下周一了，要这么极限吗
+
+—— 来自 鹅球 v3.5.99 ...</blockquote>
+下周一还真是中旬
+
+*****
+
+####  SmterC  
+##### 2635#       发表于 2026-7-17 10:11
+
+就指望赶紧出正式版周末好好玩玩的，务必周五出啊
+
+
+*****
+
+####  AEmpire  
+##### 2636#       发表于 2026-7-17 10:13
+
+今天 api 好卡，刚才每日任务跑失败了，一查发现 api 一直超时卡住
+
+*****
+
+####  王兰花秀丽  
+##### 2637#       发表于 2026-7-17 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69928826&amp;ptid=2275806" target="_blank">AEmpire 发表于 2026-7-17 10:13</a>
+今天 api 好卡，刚才每日任务跑失败了，一查发现 api 一直超时卡住</blockquote>
+说明大的真的要来了（）    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  舞以  
+##### 2638#       发表于 2026-7-17 10:16
+
+等待大的<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
