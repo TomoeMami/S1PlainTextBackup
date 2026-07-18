@@ -15311,3 +15311,15 @@ https://b23.tv/NNhtOCZ
 我觉得ln的情况是里面几位意见领袖过于坚持自己知识和经验得出来的结论，但哪怕你认定这个结论是正确的，结 ...</blockquote>
 要这样蒸早整了，也就这一两天才有这样的“灰度”，更像是新模型慢慢rollout。反正过两天正式出来了就知道了。
 
+
+*****
+
+####  SimonOpera  
+##### 2838#       发表于 2026-7-19 02:38
+
+太牛了太牛了太牛了。
+我用 claude agent 加 deepseek API，我只跟它说了一句话，给我做一个网页能跑的类似于 Doom 的小游戏，要 3D 的。结果 27 分钟以后它真做出来了，而且真的能玩。
+<img src="https://p.sda1.dev/33/8d42f63ac653a4a71b2e897222e5c9b6/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
