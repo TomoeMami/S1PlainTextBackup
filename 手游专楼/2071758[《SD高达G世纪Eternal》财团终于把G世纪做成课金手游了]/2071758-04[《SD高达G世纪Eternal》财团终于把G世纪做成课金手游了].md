@@ -249,3 +249,11 @@ dmm那边上了，打3000吧
 
 我找了半天没找到这个“试作机”后来想想可能是试验机
 
+
+*****
+
+####  ドロロ  
+##### 4540#       发表于 2026-7-18 19:20
+
+老哥们这次不给力啊<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
