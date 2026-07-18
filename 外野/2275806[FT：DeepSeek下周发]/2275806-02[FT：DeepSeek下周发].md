@@ -15401,3 +15401,19 @@ https://b23.tv/NNhtOCZ
 
 右下角是codex的宠物头顶<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 2846#       发表于 2026-7-19 05:55
+
+ 本帖最后由 舞以 于 2026-7-19 05:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69935708&amp;ptid=2275806" target="_blank">浪费喝咖啡 发表于 2026-7-19 04:23</a>
+
+漏油能分享一下5.6 sol的双叉臂的建模截图吗？</blockquote>
+发了，我用的提示词是直接从那个up的对话记录里面复制的。
+
+用的是codex里面的5.6-Sol的ultra档位。
+
+syl，为啥我一直roll不到正式版，永远都是let me啊
+
