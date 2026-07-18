@@ -14524,3 +14524,25 @@ ds一直有读图的模型,现在的识图也是按逻辑识别
 
 今天开了个稍微大一点的项目，跑一半D老师自己开了个子代理，结果30分钟没从子代理出来，等不及了点进去一看全都是let me<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">赶紧让他停了，回到灰度版3分钟搞定，还发现了12个错误
 
+
+*****
+
+####  很久就在那边l  
+##### 2764#       发表于 2026-7-18 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69933834&amp;ptid=2275806" target="_blank">chenyedgg 发表于 2026-7-18 11:52</a>
+linux.do人应该更多，挺水的
+
+类脑的话是一堆没事做的、爱发奶龙和鬼图的大学生、禁言也一般只禁几十分钟， ...</blockquote>
+l站不是订阅gpt或者Claude就是白嫖薅羊毛的，感觉对国模不是很热情
+
+*****
+
+####  zerona  
+##### 2765#       发表于 2026-7-18 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69933565&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-7-18 10:38</a>
+
+反正原来的破甲不行了, 只能等发布后等大佬了</blockquote>
+不要上甲啊。现在就是烦甲这玩意儿。
+
