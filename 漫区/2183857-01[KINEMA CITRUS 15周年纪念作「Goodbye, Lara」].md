@@ -1578,3 +1578,13 @@ OP的一部分镜头使用了赛璐珞画制作
 
 小出： 每次我们发布先导预告或宣传片时，反响都远超预期，这对我们来说是一次全新的体验。我想我们之所以感到惊讶，是因为我们在创作这部作品时，并没有预设一个特定的目标受众。如果世界各地的粉丝都能尽情享受这部独特且纯粹的原创动画，我会非常开心。
 
+
+*****
+
+####  堆雪若叶  
+##### 171#       发表于 2026-7-18 17:44
+
+<img src="https://p.sda1.dev/33/3fb1e2b082aaef6a34123f52262f8aa3/8.png" referrerpolicy="no-referrer">
+
+分别结局嘛<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
