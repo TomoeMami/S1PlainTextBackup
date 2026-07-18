@@ -11468,3 +11468,17 @@ Nori辛苦了！
 
 2026-7-17 16:02 上传
 
+
+*****
+
+####  古战场亡魂  
+##### 21024#       发表于 2026-7-18 18:47
+
+<img src="https://img.stage1st.com/forum/202607/18/184751prd336q3ro3rp0qk.png" referrerpolicy="no-referrer">
+
+<strong>062651bd3fddd8ab701754b676b63767.png</strong> (156.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-18 18:47 上传
+
