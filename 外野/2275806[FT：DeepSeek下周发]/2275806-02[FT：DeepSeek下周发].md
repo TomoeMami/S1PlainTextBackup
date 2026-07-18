@@ -15145,3 +15145,57 @@ vr游戏生态有救了啊
 
 Opus4.6到4.8每个版本换一个分词器然后靠着涨token，也没人说啊？哪怕4.6和4.7基模不一样，4.7和4.8总一样吧？
 
+
+*****
+
+####  overflowal  
+##### 2820#       发表于 2026-7-19 01:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69935463&amp;ptid=2275806" target="_blank">tonberry 发表于 2026-7-19 01:13</a>
+我按照ln的质疑点测了一遍，很遗憾复现了，但是有个返回中转站地址的并没有复现，比较可能是串的假截图 ...</blockquote>
+复现啥啊，用fable的glitch token 复现吗？<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  tonberry  
+##### 2821#       发表于 2026-7-19 01:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69935484&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-19 01:19</a>
+复现啥啊，用fable的glitch token 复现吗？    Re:Source</blockquote>
+那这个没测，反正我也不懂，主要有些问题答案让我挺绷不住，我还是选择相信蒸馏的影响
+
+
+*****
+
+####  qz66618  
+##### 2822#       发表于 2026-7-19 01:23
+
+归根到底还是模型发晚了，早点发模型就没这么多事情了，现在眼看要拖到20号才发，灰度视频已经一大把了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  startraveller  
+##### 2823#       发表于 2026-7-19 01:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69935449&amp;ptid=2275806" target="_blank">tonberry 发表于 2026-7-19 01:10</a>
+我今晚也刷到灰度了，测了mc小游戏确认能力没问题，但问他是什么模型时思维链说自己是claude，以及问了一 ...</blockquote>
+你问claude他还会说自己是qwen/deepseek呢，互蒸整的
+
+*****
+
+####  nxmonitor  
+##### 2824#       发表于 2026-7-19 01:25
+
+Fable自己的思维链不展示，实际的样子之前A÷出了个J空间的文章，大概就是充满了Fable自己的黑话
+
+*****
+
+####  tonberry  
+##### 2825#       发表于 2026-7-19 01:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69935500&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-7-19 01:24</a>
+你问claude他还会说自己是qwen/deepseek呢，互蒸整的</blockquote>
+蒸馏我这边是默认有的，我现在怀疑是安全甲还没套上。但ln那边的观点是这就不是蒸馏，这就是opus4.8或者fable5
+
