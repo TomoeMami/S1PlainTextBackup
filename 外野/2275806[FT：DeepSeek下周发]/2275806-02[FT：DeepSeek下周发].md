@@ -14261,3 +14261,17 @@ deepseekv4pro的速度是fable能比的？
 
 正式版肯定强化对齐了，类脑那群人必然不满啊，写黄文跟coder哪个赚钱还需要选吗
 
+
+*****
+
+####  lactone  
+##### 2738#       发表于 2026-7-18 10:51
+
+拿dsv4的价格转fable咩鳖有啥意义
+
+k3都出来明确打fable了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这你怎么咩
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

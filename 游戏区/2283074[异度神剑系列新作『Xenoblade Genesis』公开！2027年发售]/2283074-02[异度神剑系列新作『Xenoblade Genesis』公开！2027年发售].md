@@ -134,3 +134,14 @@ xbx 新的飞机增加了180度翻转的功能，感觉也是给新作准备的
 
 店头杂志内页
 
+
+*****
+
+####  UltramanPain  
+##### 1992#       发表于 2026-7-18 10:54
+
+任天堂夏日游戏阵容目录册
+<img src="https://p.sda1.dev/33/da53da8e5515434a2f2e38395b599060/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
