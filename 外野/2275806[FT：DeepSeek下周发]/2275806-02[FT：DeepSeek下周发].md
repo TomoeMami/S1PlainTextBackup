@@ -15323,3 +15323,16 @@ https://b23.tv/NNhtOCZ
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  phorcys02  
+##### 2839#       发表于 2026-7-19 03:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69935506&amp;ptid=2275806" target="_blank">tonberry 发表于 2026-7-19 01:26</a>
+
+蒸馏我这边是默认有的，我现在怀疑是安全甲还没套上。但ln那边的观点是这就不是蒸馏，这就是opus4.8或者f ...</blockquote>
+我建议你和你们这些类脑用户,在自己小圈子里呆着就好了
+
+别来污染泥潭正常人的圈子了.
+
