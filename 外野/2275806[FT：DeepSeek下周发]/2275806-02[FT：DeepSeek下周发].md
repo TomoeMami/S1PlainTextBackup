@@ -14431,3 +14431,15 @@ V4P因为预览版毫无训练痕迹？？所以正式版期待才很大
 
 V4F预览版就明显的久经训练，参数不变的话这次进步应该不会太明显
 
+
+*****
+
+####  lactone  
+##### 2755#       发表于 2026-7-18 12:20
+
+我估计很快就有one-shot做游戏不能代表模型水平的说法了
+
+尽管一开始one-shot做游戏是拿来吹fable咩鳖的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
