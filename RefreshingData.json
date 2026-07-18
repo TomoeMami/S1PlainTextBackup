@@ -1994,7 +1994,7 @@
     "newtitle": "[复古打枪游戏兼沉浸式模拟器专楼 22／10／17 更新沉浸式模拟器]",
     "lastedit": 1784100485,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2034419": {
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 19336,
+    "totalreply": 19340,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「向渊行」版本即将开放]",
-    "lastedit": 1784359447,
+    "lastedit": 1784360046,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 42815,
+    "totalreply": 42817,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1784359447,
+    "lastedit": 1784360165,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12699,10 +12699,10 @@
     "update": false
   },
   "2272604": {
-    "totalreply": 619,
+    "totalreply": 620,
     "title": "[2026年国际航天专楼]",
     "newtitle": "[2026年国际航天专楼：印度skyroot公司的Vikram火箭首射成功]",
-    "lastedit": 1784358488,
+    "lastedit": 1784359925,
     "category": "外野",
     "active": true,
     "update": false
@@ -12951,10 +12951,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 2768,
+    "totalreply": 2769,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[FT：DeepSeek下周发｜已发，转为v4讨论楼]",
-    "lastedit": 1784359686,
+    "lastedit": 1784360287,
     "category": "外野",
     "active": true,
     "update": false
@@ -13473,10 +13473,10 @@
     "update": false
   },
   "2252073": {
-    "totalreply": 183,
+    "totalreply": 184,
     "title": "[2026年奥特曼系列60周年 新奥「ULTRAMAN TEO」]",
     "newtitle": "[2026年奥特曼系列60周年 新奥「ULTRAMAN TEO」]",
-    "lastedit": 1784352126,
+    "lastedit": 1784360165,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13841,15 +13841,6 @@
     "active": false,
     "update": false
   },
-  "2284640": {
-    "totalreply": 119,
-    "title": "[30年前的大学难考，还是现在的大学难考？]",
-    "newtitle": "[30年前的大学难考，还是现在的大学难考？]",
-    "lastedit": 1783150567,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
   "2284627": {
     "totalreply": 119,
     "title": "[ai短剧进化的好快]",
@@ -13950,10 +13941,10 @@
     "update": false
   },
   "2174678": {
-    "totalreply": 380,
+    "totalreply": 382,
     "title": "[Falcom东京迷城系列新作《京都幻都 -樱花幻舞-》确定7／16发售]",
     "newtitle": "[Falcom东京迷城系列新作《京都幻都 -樱花幻舞-》确定7／16发售]",
-    "lastedit": 1784341325,
+    "lastedit": 1784359806,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14121,12 +14112,12 @@
     "update": false
   },
   "2284807": {
-    "totalreply": 95,
+    "totalreply": 96,
     "title": "[倚天屠龙克苏鲁（小说）（重发）]",
     "newtitle": "[倚天屠龙克苏鲁（小说）（重发）]",
-    "lastedit": 1783699568,
+    "lastedit": 1784360288,
     "category": "外野",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2284797": {
@@ -14445,12 +14436,12 @@
     "update": false
   },
   "2284901": {
-    "totalreply": 107,
+    "totalreply": 108,
     "title": "[既然新冠又起峰，简单说说应对策略]",
     "newtitle": "[既然新冠又起峰，简单说说应对策略]",
-    "lastedit": 1784078527,
+    "lastedit": 1784360287,
     "category": "外野",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2284863": {
@@ -16830,10 +16821,10 @@
     "update": false
   },
   "2285506": {
-    "totalreply": 271,
+    "totalreply": 272,
     "title": "[菲尔兹奖前端代码泄漏 王虹邓煜获奖]",
     "newtitle": "[菲尔兹奖前端代码泄漏 王虹邓煜获奖]",
-    "lastedit": 1784346007,
+    "lastedit": 1784360286,
     "category": "外野",
     "active": true,
     "update": false
@@ -17424,10 +17415,10 @@
     "update": false
   },
   "2259381": {
-    "totalreply": 446,
+    "totalreply": 447,
     "title": "[古剑奇谭系列新作《古剑》PV公开]",
     "newtitle": "[古剑奇谭系列新作《古剑》PV公开]",
-    "lastedit": 1784356206,
+    "lastedit": 1784359806,
     "category": "游戏区",
     "active": true,
     "update": false
