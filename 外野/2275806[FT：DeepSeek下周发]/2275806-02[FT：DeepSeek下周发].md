@@ -15446,3 +15446,11 @@ syl，为啥我一直roll不到正式版，永远都是let me啊
 右下角是codex的宠物头顶</blockquote>
 好像有点问题，我记得转向拉杆一般在车轴下方的
 
+
+*****
+
+####  Promeus  
+##### 2850#       发表于 2026-7-19 07:05
+
+就算退一万步来说这次灰度真的是在中转fable，那达里奥真就眼看着梁圣一周疯狂把fable免费发放是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
