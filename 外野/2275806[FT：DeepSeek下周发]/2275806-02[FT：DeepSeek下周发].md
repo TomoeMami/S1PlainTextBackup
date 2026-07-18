@@ -14394,3 +14394,23 @@ linux.do人应该更多，挺水的
 
 不过主要问题还是这类半真半假的信息会传到其他sns里来回循环
 
+
+*****
+
+####  云卷花开  
+##### 2752#       发表于 2026-7-18 11:57
+
+<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">类脑那些人真情实感的都溢出了，哪来的串子，我只看到一群共振的野狗
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  巨魔已被忠诚  
+##### 2753#       发表于 2026-7-18 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69933826&amp;ptid=2275806" target="_blank">chaoliu 发表于 2026-7-18 11:51</a>
+
+现在 DS 和 Kimi K3 在 B 站上面生成游戏的那些视频，它的提示词就是评论区给的那么短一点？卧槽我真震惊了 ...</blockquote>
+那种VB都能做的，太经典的有很多例子和明确的需求，反复轮询是可以达标的。
+
