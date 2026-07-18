@@ -15367,3 +15367,13 @@ https://b23.tv/NNhtOCZ
 
 看了下之前漏油分享的那个双叉臂演示，感觉比我5.6sol出的强啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  浪费喝咖啡  
+##### 2843#       发表于 2026-7-19 04:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69935700&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-19 04:02</a>
+看了下之前漏油分享的那个双叉臂演示，感觉比我5.6sol出的强啊</blockquote>
+漏油能分享一下5.6 sol的双叉臂的建模截图吗？
+
