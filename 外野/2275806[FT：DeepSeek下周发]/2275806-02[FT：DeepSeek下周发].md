@@ -14294,3 +14294,65 @@ k3都出来明确打fable了<img src="https://static.stage1st.com/image/smiley/f
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  scikirbypoke  
+##### 2741#       发表于 2026-7-18 11:07
+
+有个bug用sol怎么跑都修不好，等正式版看看成色
+
+*****
+
+####  tillnight  
+##### 2742#       发表于 2026-7-18 11:07
+
+肯定不会有什么延期邮件，甚至不用自定义中旬，因为最早的公告就是写的预计。
+
+不如说这次打破惯例提前预告本来就很奇怪，本来是自由的，硬给自己上了个DDL。
+
+*****
+
+####  BAKA林  
+##### 2743#       发表于 2026-7-18 11:09
+
+某脑对灰测在airp的评价可是远高过肥波的，只是爱串而已。串着串着混着脏token这事有些人开始当真了
+
+还是lwf迟迟不出，因爱生恨
+
+
+*****
+
+####  羊寢  
+##### 2744#       发表于 2026-7-18 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69933537&amp;ptid=2275806" target="_blank">Lorraine_Kinney 发表于 2026-7-18 10:32</a>
+起源就是前天类脑有个串子在那说是用的fable，但他那贴子到头都没实锤，现在水已经搅浑了 ...</blockquote>
+今年类脑那边串子，烂炒狗，擅自期待擅自破防的人数量真的变多了，v4预览版出来前几天不是api一会儿灰测一会儿回滚，然后就有人憋不住大骂梁文锋研究怎么去告他欺诈消费者<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星花  
+##### 2745#       发表于 2026-7-18 11:10
+
+31号之前都算中旬。
+
+*****
+
+####  noneoneone  
+##### 2746#       发表于 2026-7-18 11:13
+
+现在这些正式版直出都是v4p吧，那有没有人说说v4f正式版的实力
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  千千千千鸟  
+##### 2747#       发表于 2026-7-18 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69933677&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-7-18 11:10</a>
+
+今年类脑那边串子，烂炒狗，擅自期待擅自破防的人数量真的变多了，v4预览版出来前几天不是api一会儿灰测 ...</blockquote>
+是整体人数变多了吧，毕竟门槛在越来越低，类脑这么大的社区垂类AI社区中文互联网上还有吗。
+
