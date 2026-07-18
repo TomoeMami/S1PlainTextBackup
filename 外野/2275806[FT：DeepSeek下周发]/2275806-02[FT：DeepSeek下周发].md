@@ -14414,3 +14414,20 @@ linux.do人应该更多，挺水的
 现在 DS 和 Kimi K3 在 B 站上面生成游戏的那些视频，它的提示词就是评论区给的那么短一点？卧槽我真震惊了 ...</blockquote>
 那种VB都能做的，太经典的有很多例子和明确的需求，反复轮询是可以达标的。
 
+
+*****
+
+####  chenyedgg  
+##### 2754#       发表于 2026-7-18 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69933691&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-7-18 11:13</a>
+
+现在这些正式版直出都是v4p吧，那有没有人说说v4f正式版的实力
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, ...</blockquote>
+V4F真要有变化也不太看的出来
+
+V4P因为预览版毫无训练痕迹？？所以正式版期待才很大
+
+V4F预览版就明显的久经训练，参数不变的话这次进步应该不会太明显
+
