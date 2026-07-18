@@ -14275,3 +14275,22 @@ k3都出来明确打fable了<img src="https://static.stage1st.com/image/smiley/f
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  千秋难诉  
+##### 2739#       发表于 2026-7-18 10:54
+
+中旬中旬，再怎么说周一20号也该发了
+
+看美国佬一边被方丈的AI大会发言开放互进精神感化，一边又被k3的物理感化，等v4 ga出来就应该一锤碎道心了
+
+*****
+
+####  qz66618  
+##### 2740#       发表于 2026-7-18 10:54
+
+万一20号发了个延期邮件呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
