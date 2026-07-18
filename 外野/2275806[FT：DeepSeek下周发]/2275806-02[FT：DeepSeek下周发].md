@@ -15336,3 +15336,26 @@ https://b23.tv/NNhtOCZ
 
 别来污染泥潭正常人的圈子了.
 
+
+*****
+
+####  tillnight  
+##### 2840#       发表于 2026-7-19 03:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69935385&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-7-19 00:48</a>
+
+【【疑似DeepSeek正式版】震惊瘫坐！节奏光剑都被他搞出来了！-哔哩哔哩】 https://b23.tv/MIIBQdq
+
+这是真 ...</blockquote>
+【【疑似DeepSeek正式版】D老师你开了是吧？节奏光剑自动模式+自定义歌曲】 [https://www.bilibili.com/video/B ... d9896740ca7ceb77355](https://www.bilibili.com/video/BV1i9KA6sE9P/?share_source=copy_web&amp;vd_source=37ef5b69ddf39d9896740ca7ceb77355)
+
+这个迭代款才是真正离谱，还能上传自定义曲目了。在VR游戏里这是正经能上架了。
+
+
+*****
+
+####  舞以  
+##### 2841#       发表于 2026-7-19 03:47
+
+泥潭怎么也有神人啊<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
