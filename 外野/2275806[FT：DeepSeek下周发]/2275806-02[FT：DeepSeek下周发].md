@@ -15377,3 +15377,11 @@ https://b23.tv/NNhtOCZ
 看了下之前漏油分享的那个双叉臂演示，感觉比我5.6sol出的强啊</blockquote>
 漏油能分享一下5.6 sol的双叉臂的建模截图吗？
 
+
+*****
+
+####  hhz1213  
+##### 2844#       发表于 2026-7-19 04:51
+
+请问日常工作非 coding 接 ds 用哪个 agent 好<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
