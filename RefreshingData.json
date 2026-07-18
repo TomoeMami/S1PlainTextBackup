@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 44085,
+    "totalreply": 44086,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》7.10 玄翎飞 飞过江 水泱泱 山茫茫]",
-    "lastedit": 1784350807,
+    "lastedit": 1784352245,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -7362,10 +7362,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 80836,
+    "totalreply": 80838,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1784351646,
+    "lastedit": 1784352245,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12573,10 +12573,10 @@
     "update": false
   },
   "2271276": {
-    "totalreply": 6035,
+    "totalreply": 6040,
     "title": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
     "newtitle": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
-    "lastedit": 1784351886,
+    "lastedit": 1784352365,
     "category": "外野",
     "active": true,
     "update": false
@@ -13140,10 +13140,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 12072,
+    "totalreply": 12076,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1784351765,
+    "lastedit": 1784352365,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13482,10 +13482,10 @@
     "update": false
   },
   "2252073": {
-    "totalreply": 182,
+    "totalreply": 183,
     "title": "[2026年奥特曼系列60周年 新奥「ULTRAMAN TEO」]",
     "newtitle": "[2026年奥特曼系列60周年 新奥「ULTRAMAN TEO」]",
-    "lastedit": 1784349607,
+    "lastedit": 1784352126,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17060,7 +17060,7 @@
     "newtitle": "[走不走]",
     "lastedit": 1784093167,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2136103": {
@@ -17847,20 +17847,29 @@
     "update": false
   },
   "2285802": {
-    "totalreply": 56,
+    "totalreply": 59,
     "title": "[玉镯子到底有没有投资价值？]",
     "newtitle": "[玉镯子到底有没有投资价值？]",
-    "lastedit": 1784351407,
+    "lastedit": 1784352127,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2285783": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[Bethesda ：《辐射 5》处于前期制作阶段 《辐射 3》与《辐射：新维加斯》重制中！]",
     "newtitle": "[Bethesda ：《辐射 5》处于前期制作阶段 《辐射 3》与《辐射：新维加斯》重制中！]",
-    "lastedit": 1784351886,
+    "lastedit": 1784352246,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2285778": {
+    "totalreply": 43,
+    "title": "[axios：中国刚刚抹去了美国在人工智能领域的领先优势]",
+    "newtitle": "[axios：中国刚刚抹去了美国在人工智能领域的领先优势]",
+    "lastedit": 1784352127,
+    "category": "外野",
     "active": true,
     "update": false
   }
