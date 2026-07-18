@@ -14233,3 +14233,31 @@ deepseekv4pro的速度是fable能比的？
 炒作狗闹麻了，被K3逼得</blockquote>
 要不直接贴英文吧，这个grok翻译的中文我是硬是看不懂。
 
+
+*****
+
+####  →熙←  
+##### 2735#       发表于 2026-7-18 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69933243&amp;ptid=2275806" target="_blank">夜游宫 发表于 2026-7-18 08:09</a>
+
+听灰度测试的人说DPI甲变得超级严实，真的假的？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">反正原来的破甲不行了, 只能等发布后等大佬了
+
+*****
+
+####  tillnight  
+##### 2736#       发表于 2026-7-18 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69933546&amp;ptid=2275806" target="_blank">Lorraine_Kinney 发表于 2026-7-18 10:34</a>
+
+炒作狗闹麻了，被K3逼得</blockquote>
+好奇这种我延长了但没有延长的，Polymarket上的盘口该怎么算，谁也不算赢吗<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mitzvah  
+##### 2737#       发表于 2026-7-18 10:43
+
+正式版肯定强化对齐了，类脑那群人必然不满啊，写黄文跟coder哪个赚钱还需要选吗
+
