@@ -15436,3 +15436,13 @@ syl，为啥我一直roll不到正式版，永远都是let me啊
 最搞的是ds是一个小聋瞎模型，他是怎么验证自己生成和找的素材是符合创作意图的？看光剑游戏生成的midi都挺 ...</blockquote>
 乐理是可以用数学解释的
 
+
+*****
+
+####  浪费喝咖啡  
+##### 2849#       发表于 2026-7-19 07:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69935747&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-19 05:49</a>
+右下角是codex的宠物头顶</blockquote>
+好像有点问题，我记得转向拉杆一般在车轴下方的
+
