@@ -14516,3 +14516,11 @@ ds一直有读图的模型,现在的识图也是按逻辑识别
 现在不管什么对话都混着来，完全随机了，一会神一会区的
 梁叔叔能不能不要let me了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  cscbzcbz  
+##### 2763#       发表于 2026-7-18 14:35
+
+今天开了个稍微大一点的项目，跑一半D老师自己开了个子代理，结果30分钟没从子代理出来，等不及了点进去一看全都是let me<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">赶紧让他停了，回到灰度版3分钟搞定，还发现了12个错误
+
