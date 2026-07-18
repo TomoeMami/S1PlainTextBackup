@@ -15292,3 +15292,22 @@ http ...</blockquote>
 感觉跟看到克苏鲁了一样……</blockquote>
 这个风格就是一眼看出来不一样，逻辑都对甚至更好但是材质很廉价
 
+
+*****
+
+####  nxmonitor  
+##### 2836#       发表于 2026-7-19 02:28
+
+又搞出来一个例子，这个是很接近生产的东西了，怎么看都只能说强
+https://b23.tv/NNhtOCZ
+
+
+*****
+
+####  startraveller  
+##### 2837#       发表于 2026-7-19 02:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69935518&amp;ptid=2275806" target="_blank">tonberry 发表于 2026-7-19 01:30</a>
+我觉得ln的情况是里面几位意见领袖过于坚持自己知识和经验得出来的结论，但哪怕你认定这个结论是正确的，结 ...</blockquote>
+要这样蒸早整了，也就这一两天才有这样的“灰度”，更像是新模型慢慢rollout。反正过两天正式出来了就知道了。
+
