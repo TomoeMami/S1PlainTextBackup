@@ -15385,3 +15385,19 @@ https://b23.tv/NNhtOCZ
 
 请问日常工作非 coding 接 ds 用哪个 agent 好<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 2845#       发表于 2026-7-19 05:49
+
+<img src="https://img.stage1st.com/forum/202607/19/054852oopbixtzbzqaiea9.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (239.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-19 05:48 上传
+
+右下角是codex的宠物头顶<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
