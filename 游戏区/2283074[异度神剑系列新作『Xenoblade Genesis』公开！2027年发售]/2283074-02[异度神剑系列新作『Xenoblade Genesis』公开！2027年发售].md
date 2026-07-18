@@ -124,3 +124,13 @@ xbx 新的飞机增加了180度翻转的功能，感觉也是给新作准备的
 
 高桥把自己当成雷老板了
 
+
+*****
+
+####  JOJOROY  
+##### 1991#       发表于 2026-7-18 10:32
+
+<img src="https://pbs.twimg.com/media/HNeQhA8bQAAJub2?format=jpg&amp;name=4096x4096" id="aimg_AArCk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+店头杂志内页
+
