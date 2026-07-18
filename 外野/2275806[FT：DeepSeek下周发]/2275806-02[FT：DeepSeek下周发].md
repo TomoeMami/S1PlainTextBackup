@@ -15072,3 +15072,76 @@ vr游戏生态有救了啊
 
 真有人信梁圣专门后面接了fable，破解了A/的思维链显示出来，就为了蒸B站用户做html小游戏的prompt。人类还是太蠢了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  tonberry  
+##### 2812#       发表于 2026-7-19 01:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69935442&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-19 01:05</a>
+真有人信梁圣专门后面接了fable，破解了A/的思维链显示出来，就为了蒸B站用户做html小游戏的prompt。人类还 ...</blockquote>
+我今晚也刷到灰度了，测了mc小游戏确认能力没问题，但问他是什么模型时思维链说自己是claude，以及问了一个敏感的问题，他回答超级有问题……所以应该是蒸馏后还没处理吧
+
+*****
+
+####  qz66618  
+##### 2813#       发表于 2026-7-19 01:11
+
+我看了眼类脑讨论这事的，他们测的一些灰度到的返回包信息确实和预览版的不一样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  qz66618  
+##### 2814#       发表于 2026-7-19 01:13
+
+不过要是真的，为啥要给一些API路由到肥波呢，这不是无偿给用户升级模型性能，想不出来这样做的理由<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  tonberry  
+##### 2815#       发表于 2026-7-19 01:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69935455&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-7-19 01:11</a>
+我看了眼类脑讨论这事的，他们测的一些灰度到的返回包信息确实和预览版的不一样主要是感觉分词还有脏token ...</blockquote>
+我按照ln的质疑点测了一遍，很遗憾复现了，但是有个返回中转站地址的并没有复现，比较可能是串的假截图
+
+*****
+
+####  nxmonitor  
+##### 2816#       发表于 2026-7-19 01:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69935449&amp;ptid=2275806" target="_blank">tonberry 发表于 2026-7-19 01:10</a>
+
+我今晚也刷到灰度了，测了mc小游戏确认能力没问题，但问他是什么模型时思维链说自己是claude，以及问了一 ...</blockquote>
+用的是claude code连的？
+
+*****
+
+####  qz66618  
+##### 2817#       发表于 2026-7-19 01:16
+
+其实比较能捶死的就是看分词器，这个东西一般来说不可能会大改的，尤其是正式版实在预览版的基础上后训练的情况下<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  tonberry  
+##### 2818#       发表于 2026-7-19 01:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69935473&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-19 01:15</a>
+用的是claude code连的？</blockquote>
+用的opencode
+
+*****
+
+####  nxmonitor  
+##### 2819#       发表于 2026-7-19 01:17
+
+Opus4.6到4.8每个版本换一个分词器然后靠着涨token，也没人说啊？哪怕4.6和4.7基模不一样，4.7和4.8总一样吧？
+
