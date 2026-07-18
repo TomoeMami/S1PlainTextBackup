@@ -14375,3 +14375,22 @@ k3都出来明确打fable了<img src="https://static.stage1st.com/image/smiley/f
 是整体人数变多了吧，毕竟门槛在越来越低，类脑这么大的社区垂类AI社区中文互联网上还有吗。 ...</blockquote>
 这么大体量的应该说在全球都是独一份了，不过很早之前就很串了
 
+
+*****
+
+####  chaoliu  
+##### 2750#       发表于 2026-7-18 11:51
+
+现在 DS 和 Kimi K3 在 B 站上面生成游戏的那些视频，它的提示词就是评论区给的那么短一点？<img src="https://static.stage1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  chenyedgg  
+##### 2751#       发表于 2026-7-18 11:52
+
+linux.do人应该更多，挺水的
+
+类脑的话是一堆没事做的、爱发奶龙和鬼图的大学生、禁言也一般只禁几十分钟，氛围可想而知，
+
+不过主要问题还是这类半真半假的信息会传到其他sns里来回循环
+
