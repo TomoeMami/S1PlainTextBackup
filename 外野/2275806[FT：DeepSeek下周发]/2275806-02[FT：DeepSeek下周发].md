@@ -15454,3 +15454,13 @@ syl，为啥我一直roll不到正式版，永远都是let me啊
 
 就算退一万步来说这次灰度真的是在中转fable，那达里奥真就眼看着梁圣一周疯狂把fable免费发放是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风速前进mo  
+##### 2851#       发表于 2026-7-19 07:15
+
+问就说自己是cc太正常了，我之前用open code，切新窗口分别问了ds（那时还没正式版），glm，qwen，全部说自己是cc
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
