@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 19327,
+    "totalreply": 19328,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「向渊行」版本即将开放]",
-    "lastedit": 1784356086,
+    "lastedit": 1784356328,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 42806,
+    "totalreply": 42809,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1784355486,
+    "lastedit": 1784356446,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12546,10 +12546,10 @@
     "update": false
   },
   "2268175": {
-    "totalreply": 2577,
+    "totalreply": 2578,
     "title": "[2026年Q娃 ​​​​名侦探Precure]",
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
-    "lastedit": 1784349366,
+    "lastedit": 1784356328,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12951,10 +12951,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 2760,
+    "totalreply": 2762,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[FT：DeepSeek下周发｜已发，转为v4讨论楼]",
-    "lastedit": 1784354647,
+    "lastedit": 1784356447,
     "category": "外野",
     "active": true,
     "update": false
@@ -13131,10 +13131,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 12096,
+    "totalreply": 12098,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1784355605,
+    "lastedit": 1784356331,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13950,10 +13950,10 @@
     "update": false
   },
   "2284674": {
-    "totalreply": 567,
+    "totalreply": 568,
     "title": "[俄乌7月楼]",
     "newtitle": "[俄乌7月楼]",
-    "lastedit": 1784350207,
+    "lastedit": 1784356206,
     "category": "外野",
     "active": true,
     "update": false
@@ -15237,10 +15237,10 @@
     "update": false
   },
   "2266648": {
-    "totalreply": 178,
+    "totalreply": 179,
     "title": "[ZT 漫画：盖比的资本（又译哥布林经济学读本）]",
     "newtitle": "[ZT 漫画：盖比的资本（又译哥布林经济学读本）]",
-    "lastedit": 1784355006,
+    "lastedit": 1784356206,
     "category": "外野",
     "active": true,
     "update": false
@@ -17114,7 +17114,7 @@
     "newtitle": "[蒋方舟：看着八旗姥姥的老照片，感慨也曾以为做人只要守信规矩就不会被他人污辱]",
     "lastedit": 1784097127,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2285561": {
@@ -17442,10 +17442,10 @@
     "update": false
   },
   "2259381": {
-    "totalreply": 444,
+    "totalreply": 446,
     "title": "[古剑奇谭系列新作《古剑》PV公开]",
     "newtitle": "[古剑奇谭系列新作《古剑》PV公开]",
-    "lastedit": 1784354646,
+    "lastedit": 1784356206,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17514,10 +17514,10 @@
     "update": false
   },
   "2285722": {
-    "totalreply": 83,
+    "totalreply": 84,
     "title": "[倒苦水，碰见喜欢半夜工作群发消息的领导真是折寿。。。]",
     "newtitle": "[倒苦水，碰见喜欢半夜工作群发消息的领导真是折寿。。。]",
-    "lastedit": 1784355245,
+    "lastedit": 1784356447,
     "category": "外野",
     "active": true,
     "update": false
@@ -17838,10 +17838,10 @@
     "update": false
   },
   "2285802": {
-    "totalreply": 67,
+    "totalreply": 68,
     "title": "[玉镯子到底有没有投资价值？]",
     "newtitle": "[玉镯子到底有没有投资价值？]",
-    "lastedit": 1784354407,
+    "lastedit": 1784356447,
     "category": "外野",
     "active": true,
     "update": false
@@ -17861,6 +17861,15 @@
     "newtitle": "[axios：中国刚刚抹去了美国在人工智能领域的领先优势]",
     "lastedit": 1784354407,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2170749": {
+    "totalreply": 123,
+    "title": "[科乐美公开游戏王25周年「卡图故事编年史」纪念动画]",
+    "newtitle": "[科乐美公开游戏王25周年「卡图故事编年史」纪念动画]",
+    "lastedit": 1784356567,
+    "category": "漫区",
     "active": true,
     "update": false
   }
