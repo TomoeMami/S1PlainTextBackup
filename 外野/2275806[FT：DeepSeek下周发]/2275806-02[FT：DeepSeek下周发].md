@@ -15464,3 +15464,13 @@ syl，为啥我一直roll不到正式版，永远都是let me啊
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  高粱河车神  
+##### 2852#       发表于 2026-7-19 07:32
+
+<blockquote>Promeus 发表于 2026-7-19 07:05
+就算退一万步来说这次灰度真的是在中转fable，那达里奥真就眼看着梁圣一周疯狂把fable免费发放是吧真又被李 ...</blockquote>
+为什么会有中转fable这么奇葩的说法
+
