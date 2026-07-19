@@ -16005,3 +16005,30 @@ just know how，然后去做，就能有结果。
 莫名其妙看不懂的网络用语，大脑年龄多大了</blockquote>
 你这样挺好，继续选择忽略，继续保持不懂，继续做个巨童
 
+
+*****
+
+####  tonberry  
+##### 2904#       发表于 2026-7-19 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936739&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-7-19 11:18</a>
+你这样挺好，继续选择忽略，继续保持不懂，继续做个巨童</blockquote>
+你很懂的话，你倒是帮我解答疑问啊，
+你想对我表达啥观点啥态度认为我立场是什么样直说啊，我又不是不正面回答，又没人不让你说，装神弄鬼的
+
+*****
+
+####  厍无春  
+##### 2905#       发表于 2026-7-19 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936489&amp;ptid=2275806" target="_blank">Sza 发表于 2026-7-19 10:04</a>
+我看了好几个这几天的v4正式版视频。我想知道这个模型的知识量为什么那么大？各种类型的游戏都能做出大致模 ...</blockquote>
+1.6t 是什么很小的模型吗？🤔
+
+*****
+
+####  不见不散  
+##### 2906#       发表于 2026-7-19 12:21
+
+没见扣帽子的，但是见到有人主动来领帽子戴<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
