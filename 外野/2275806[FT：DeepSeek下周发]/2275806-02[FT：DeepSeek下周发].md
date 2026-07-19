@@ -16537,3 +16537,11 @@ HTML 编程属于是大模型的脸面，展示出的效果最直观也最具冲
 
 大部分用户不需要这种能力，但是依然会被相关宣传牵着鼻子走<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  samfs  
+##### 2951#       发表于 2026-7-19 15:24
+
+路由到 Fable 是无稽之谈，这里问题太多了，而且 Anthropic 再给你投毒怎么办
+
