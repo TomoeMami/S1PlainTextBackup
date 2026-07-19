@@ -16304,3 +16304,41 @@ a\连论文都不发居然还有人谈taste？ 数据这个多一点那个少一
 因为本质上内涵的就是对本 ...</blockquote>
 拒绝蒸馏羞耻<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sza  
+##### 2932#       发表于 2026-7-19 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936790&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-7-19 12:29</a>
+
+在K3之前，V4就是参数量最大的开源模型
+
+—— 来自 HUAWEI SGT-AL50, Android 12, 鹅球 v3.4.97-alpha ...</blockquote>
+我之前看别人用冷门知识评估模型参数量，顶级闭源模型比如fable5大概在3.5T左右：
+[https://01.me/research/ikp/](https://01.me/research/ikp/)
+[https://www.zhihu.com/pin/2032769685012361774](https://www.zhihu.com/pin/2032769685012361774)
+
+以至于我看到约50%参数量的开源模型在多个领域达到同等效果有点吃惊。
+
+顺带一提，我昨天看17日B站WAIC直播中的华为海思首席科学家廖恒博士的专访部分
+
+【《bilibili x WAIC AI会客厅》AI科技视频播客系列 | 717全程回顾-哔哩哔哩】 [https://b23.tv/QDaa57W](https://b23.tv/QDaa57W)
+
+他随口提到明年的模型可能是5～10T（2小时39分22秒处），联系到他在那半句话前提到“一年就从600多B涨到1.6T”和昇腾面向的客户来看，这应该就是指从华为这个AI方案提供商角度看国产模型的发展。
+
+*****
+
+####  qwased  
+##### 2933#       发表于 2026-7-19 13:14
+
+ 本帖最后由 qwased 于 2026-7-19 13:15 编辑 
+
+5070ti显卡，玩了几天本地模型，目标是做本地翻译
+
+gemma4 12b nvfp4，飞快，输出有70tk/s，不开推理表现很垃圾，开了推理相当不错，可能是量化过头导致视觉完全报废了，传什么图片都说看不清楚
+
+qwen3.6，27b 16g显存特化版，能用，但是感觉表达能力还不如gemma4，速度也有30+tk/s；35A3b，一打开就把内存和显存都吃满了，只有20+tk/s，感觉比27b更蠢，qwen现在只能跑龙虾什么的吧？
+
+混元mt2 8b，非常快，翻译不太稳定，有时候句子显著比gemma4好，有时候又牛头不对马嘴，感觉是缺了推理能力导致对复杂句式或者缺少的知识处理不好；1.8b就比股沟机翻好一丢丢
+
