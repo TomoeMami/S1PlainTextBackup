@@ -15515,3 +15515,24 @@ syl，为啥我一直roll不到正式版，永远都是let me啊
 
 真的太蠢了。
 
+
+*****
+
+####  cscbzcbz  
+##### 2857#       发表于 2026-7-19 08:30
+
+昨天玩了一天，正式版就是强，不管是一轮出结果，还是多轮对话，真的能理解我提的需求。我现在担心只有正式版一发布，服务器繁忙
+
+
+*****
+
+####  qwased  
+##### 2858#       发表于 2026-7-19 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936189&amp;ptid=2275806" target="_blank">午夜钓者 发表于 2026-7-19 08:24</a>
+
+其实还有不少证据指神秘灰测模型不是 dsv4正式版，不过等两天正式版出来就知道了，没有必要争论
+
+—— 来自 ...</blockquote>
+那总不能是DSv5吧<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
