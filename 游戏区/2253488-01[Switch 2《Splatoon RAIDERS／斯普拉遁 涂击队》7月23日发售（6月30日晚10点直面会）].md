@@ -592,3 +592,16 @@ uu还限免了
 
 现在实体版有好价吗
 
+
+*****
+
+####  shirolin  
+##### 247#       发表于 2026-7-19 15:17
+
+<blockquote>[二十二颗牛油果](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937208&amp;ptid=2253488) 发表于 07-19 14:32
+现在实体版有好价吗</blockquote>
+
+pdd叠券能到260+
+
+——有点困 · 来自 Pixel 7a 上的 [S1er 客户端](https://github.com/Shirolin/s1er/releases/latest)
+
