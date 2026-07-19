@@ -16448,3 +16448,25 @@ API炸了，是不是在更新了
 
 —— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  王兰花秀丽  
+##### 2943#       发表于 2026-7-19 14:47
+
+相信是fable路由的人，精神得崩溃成什么样才会下意识找这么离奇的解释    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  lordquest  
+##### 2944#       发表于 2026-7-19 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936963&amp;ptid=2275806" target="_blank">qwased 发表于 2026-7-19 13:14</a>
+5070ti显卡，玩了几天本地模型，目标是做本地翻译
+
+gemma4 12b nvfp4，飞快，输出有70tk/s，不开推理表现很 ...</blockquote>
+gamme4最好用官方自己的qat量化版，5070ti能用的，12b和26b a4b都还行。qwen 3.6 27b至少要2张4090d跑q8或者q6量化版质量还比较理想。 qwen 35b a3b的话，我感觉agent a1 apex量化版还不错。
+
+—— 来自 vivo V2314A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
