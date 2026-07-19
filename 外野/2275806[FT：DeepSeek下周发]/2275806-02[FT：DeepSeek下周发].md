@@ -16216,3 +16216,57 @@ app版的都是中文思考
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ycjiang1337  
+##### 2924#       发表于 2026-7-19 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936851&amp;ptid=2275806" target="_blank">飛霞精灵 发表于 2026-7-19 12:44</a>
+
+蒸馏对DS是个很严重的指控了。尤其伴随DS诞生开始就是一种非常特殊的话术指控。
+
+因为本质上内涵的就是对本 ...</blockquote>
+实际上DS真正应该做的是更新许可证，专门拉黑A➗，禁止A➗及其关联实体以任何直接或间接的方式使用新模型的组成部分及其任何产物。因为Claude 有多个版本出现过无诱导自称DeepSeek的情况，显然这也可以证明Claude蒸馏DS
+
+*****
+
+####  cscbzcbz  
+##### 2925#       发表于 2026-7-19 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936849&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-7-19 12:44</a>
+app版的都是中文思考
+
+是不是就看不出来了？</blockquote>
+你是说网页版？没太研究，但是灰度版的思考模式是“我”要干啥要干啥，比较主动，而预览版是用户让“我”干啥干啥，比较被动。不知道能不能从这个角度看出来
+
+
+*****
+
+####  squallx  
+##### 2926#       发表于 2026-7-19 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936866&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-7-19 12:50</a>
+实际上DS真正应该做的是更新许可证，专门拉黑A➗，禁止A➗及其关联实体以任何直接或间接的方式使用新模型 ...</blockquote>
+滋磁 有路子的建议赶紧给ds联系一下
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  冤枉呐  
+##### 2927#       发表于 2026-7-19 12:52
+
+小红书韩到一张图给我笑死了<img src="https://p.sda1.dev/33/a7082550c1be6237ec3908ed0edc7ac6/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  很久就在那边l  
+##### 2928#       发表于 2026-7-19 12:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936808&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-7-19 12:32</a>
+别人都是弱智，放着技术最高最便宜的不用，赶着给A畜送钱是吧？</blockquote>
+因为现在gpt和claude的套餐是亏钱补贴的，200刀能买大几千刀的用量，拼车或者中转站完全利用的话比国模还便宜，如果停止套餐补贴按原价api收费你看还有几个人用得起<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

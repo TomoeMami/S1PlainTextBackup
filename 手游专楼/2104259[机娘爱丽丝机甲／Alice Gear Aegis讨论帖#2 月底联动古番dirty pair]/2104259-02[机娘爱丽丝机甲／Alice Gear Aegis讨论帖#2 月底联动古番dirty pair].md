@@ -207,3 +207,13 @@
 
 顺便两个sp的slb除了伤害是不是动作都一样（
 
+
+*****
+
+####  冰风血羽  
+##### 2051#       发表于 2026-7-19 12:47
+
+以炮会友是这样的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所有人的三星sp不就是四星的劣化版吗
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
