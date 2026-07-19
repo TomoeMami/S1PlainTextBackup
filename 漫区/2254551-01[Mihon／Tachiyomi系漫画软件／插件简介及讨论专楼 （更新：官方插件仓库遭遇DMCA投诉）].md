@@ -1976,3 +1976,15 @@ j2k太久没更新了
 
 看了一眼，我用的yokai直接不推送，用了1.6版本接口的插件的更新<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  redsouris  
+##### 173#       发表于 2026-7-19 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69933608&amp;ptid=2254551" target="_blank">魔法师lain 发表于 2026-7-18 10:51</a>
+现在kisslove新版插件怎么tachiyomij2k一用就崩
+
+—— 来自 HUAWEI TAH-AN00m, Android 12, 鹅球 v3.5.99 ...</blockquote>
+一开就崩，但是收藏里直接更新可以看
+

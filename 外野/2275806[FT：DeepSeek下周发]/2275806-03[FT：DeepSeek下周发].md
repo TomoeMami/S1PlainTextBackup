@@ -285,3 +285,14 @@ let me这个东西是不是V3的思维链祖传的东西？包括很长的思维
 如果真的有价值原先的负责人也不会被开掉了，他们就是为了收回投入搞的 ...</blockquote>
 小模型可以赚GPU的钱，大模型做不到第一梯队就是路边一条
 
+
+*****
+
+####  nxmonitor  
+##### 2991#       发表于 2026-7-19 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937704&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-7-19 17:03</a>
+
+小模型可以赚GPU的钱，大模型做不到第一梯队就是路边一条</blockquote>
+所以说思路混乱啊，这三个都想一起卖怎么成功呢，平头哥这东西报价相对而言还很贵
+
