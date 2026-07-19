@@ -16428,3 +16428,11 @@ API炸了，是不是在更新了
 
 争论一开始是那些up主自己悄悄用的fable api，到现在变成是官方中转了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">好恨啊
 
+
+*****
+
+####  一般市民  
+##### 2941#       发表于 2026-7-19 14:19
+
+不管是蒸馏还是路由，有人用肥鱼的价提供肥波，那都他妈是个好人啊 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
