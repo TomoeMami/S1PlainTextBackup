@@ -605,3 +605,18 @@ pdd叠券能到260+
 
 ——有点困 · 来自 Pixel 7a 上的 [S1er 客户端](https://github.com/Shirolin/s1er/releases/latest)
 
+
+*****
+
+####  shirolin  
+##### 248#       发表于 2026-7-19 17:45
+
+ 本帖最后由 shirolin 于 2026-7-19 17:46 编辑 
+
+从滚动条看这个大怪数量，极物头目应该是另外单独的图鉴？
+感觉还是得来一波G位才够刷……
+
+<img src="https://p.sda1.dev/33/ae24ab2100041757ff02ba04f849b93b/(1)_Splatoon%EF%BC%88%E3%82%B9%E3%83%97%E3%83%A9%E3%83%88%E3%82%A5%E3%83%BC%E3%83%B3%EF%BC%89_(@SplatoonJP)_X_20260717_170320_01.webp" referrerpolicy="no-referrer">
+
+——来自 Chrome 上的 [S1er 客户端](https://github.com/Shirolin/s1er/releases/latest)
+
