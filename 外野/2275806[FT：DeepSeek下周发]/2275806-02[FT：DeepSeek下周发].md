@@ -16545,3 +16545,21 @@ HTML 编程属于是大模型的脸面，展示出的效果最直观也最具冲
 
 路由到 Fable 是无稽之谈，这里问题太多了，而且 Anthropic 再给你投毒怎么办
 
+
+*****
+
+####  杀人鲸  
+##### 2952#       发表于 2026-7-19 15:39
+
+在贴吧看到的，有人出现的客户端界面，客户端这边也要跟上了吗？但是我倒没有遇到，有相同界面的朋友出来说说看，感觉怎么样？
+
+<img src="https://img.stage1st.com/forum/202607/19/154001hooiuoxopoxf9poo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-07-19-15-38-38-546_com.huanchengfly.tieba.post.jpg</strong> (475.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-19 15:40 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
