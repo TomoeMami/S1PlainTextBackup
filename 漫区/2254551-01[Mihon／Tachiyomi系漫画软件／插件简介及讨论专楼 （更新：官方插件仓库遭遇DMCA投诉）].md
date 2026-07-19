@@ -2039,3 +2039,17 @@ j2k太久没更新了
 
 —— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  azbhg1  
+##### 175#         楼主| 发表于 2026-7-20 01:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937911&amp;ptid=2254551" target="_blank">魔法师lain 发表于 2026-7-19 18:17</a>
+试了一下yokai，终于成功了，现在能双页的是只有这个吗，apkpure里也没，不太方便更新。
+
+插件改了一行 ...</blockquote>
+其他几个fork也能双页啊，罚你再看一遍主楼
+
+这种开源软件就别指望应用商店了吧
+
