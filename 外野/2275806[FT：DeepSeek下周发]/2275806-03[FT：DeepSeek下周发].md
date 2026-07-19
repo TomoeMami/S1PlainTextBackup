@@ -528,3 +528,15 @@ minimax那必须先质疑再质疑了
 
 看到一张截图，说是要和harness一起发？那基本要推迟了…
 
+
+*****
+
+####  wandeeees  
+##### 3011#       发表于 2026-7-20 07:18
+
+截图也不一定真，之前类似的截图太多了<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">主要是你要跳票也要提前说一声啊。总不至于到deadline了才说我要跳票了或者说都不说吧。
+
+他们内部应该是有保密协议的吧，相关消息好像就不怎么准
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
