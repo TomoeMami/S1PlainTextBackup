@@ -15536,3 +15536,14 @@ syl，为啥我一直roll不到正式版，永远都是let me啊
 —— 来自 ...</blockquote>
 那总不能是DSv5吧<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tonberry  
+##### 2859#       发表于 2026-7-19 08:44
+
+因为正常人且具有一定理性思维的都会觉得ln的结论荒唐到甚至有点可笑，而且某些意见领袖摁头想让人相信确实碍眼，
+但这都不重要好吧，他们理出来的证据链倒是有点意思，起码是通过实践后证实存在的东西。
+
+唉，不要老是急着把人按照群体分类<img src="https://static.stage1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
+
