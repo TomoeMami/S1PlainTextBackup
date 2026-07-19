@@ -217,3 +217,13 @@
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  madcow  
+##### 2052#       发表于 2026-7-19 17:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我怎么感觉印象里三星都是掏出一个莫名其妙的东西打一炮（（
+
+好吧看了下联动角色三星四星好像都一样
+

@@ -296,3 +296,46 @@ let me这个东西是不是V3的思维链祖传的东西？包括很长的思维
 小模型可以赚GPU的钱，大模型做不到第一梯队就是路边一条</blockquote>
 所以说思路混乱啊，这三个都想一起卖怎么成功呢，平头哥这东西报价相对而言还很贵
 
+
+*****
+
+####  ycjiang1337  
+##### 2992#       发表于 2026-7-19 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937710&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-19 17:06</a>
+
+所以说思路混乱啊，这三个都想一起卖怎么成功呢，平头哥这东西报价相对而言还很贵 ...</blockquote>
+阿里云又不是没有普通N卡。如果是卖MaaS的话Qwen闭源模型连豆包都打不过，但如果是卖GPU的话火山才是路边一条
+
+*****
+
+####  nxmonitor  
+##### 2993#       发表于 2026-7-19 17:19
+
+今天我去看了华为的超节点，确实很夸张看着就很有气势……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mitzvah  
+##### 2994#       发表于 2026-7-19 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937666&amp;ptid=2275806" target="_blank">真田源次郎信繁 发表于 2026-7-19 16:56</a>
+
+Qwen和Llama状态差不多，不过阿里好歹是比美国百度强多了
+
+开源或者不开源，放小模型和不放小模型这都是细枝 ...</blockquote>
+wan2.5开始闭源，你要说能力不行吗，新版的wan进步其实不小，但是就是没人用 哪怕作广告也没人用，人家字节视频生成的蛋糕吃得太爽了，你阿里的wan模型怎么办？
+
+
+*****
+
+####  chenyedgg  
+##### 2995#       发表于 2026-7-19 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937612&amp;ptid=2275806" target="_blank">qwased 发表于 2026-7-19 16:43</a>
+
+发现混元7b q6量化跑某本小说翻译会稳定死循环，换成q8量化就好了
+
+量化真的有这么大的影响吗 ...</blockquote>
+小模型量化影响很大
+
