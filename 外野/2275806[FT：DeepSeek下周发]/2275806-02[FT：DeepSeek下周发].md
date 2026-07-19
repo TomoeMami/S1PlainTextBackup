@@ -15994,3 +15994,14 @@ just know how，然后去做，就能有结果。
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  秦南心  
+##### 2903#       发表于 2026-7-19 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936723&amp;ptid=2275806" target="_blank">tonberry 发表于 2026-7-19 11:10</a>
+
+莫名其妙看不懂的网络用语，大脑年龄多大了</blockquote>
+你这样挺好，继续选择忽略，继续保持不懂，继续做个巨童
+
