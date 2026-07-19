@@ -1988,3 +1988,20 @@ j2k太久没更新了
 —— 来自 HUAWEI TAH-AN00m, Android 12, 鹅球 v3.5.99 ...</blockquote>
 一开就崩，但是收藏里直接更新可以看
 
+
+*****
+
+####  魔法师lain  
+##### 174#       发表于 2026-7-19 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937411&amp;ptid=2254551" target="_blank">azbhg1 发表于 2026-7-19 15:48</a>
+j2k太久没更新了
+
+旧版客户端不支持现在最新的1.6版本的插件接口</blockquote>
+<img src="https://p.sda1.dev/33/5cf122b44c2227d463a13691b325cd6b/image.jpg" referrerpolicy="no-referrer">
+试了一下yokai，终于成功了，现在能双页的是只有这个吗，apkpure里也没，不太方便更新。
+
+插件改了一行，终于能显示日文名，现在插件每次更新都要这样改真麻烦。而且这次貌似agp版本大升了，同步半天没反应，原来要升级as。
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
