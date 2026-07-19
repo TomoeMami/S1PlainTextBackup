@@ -15474,3 +15474,25 @@ syl，为啥我一直roll不到正式版，永远都是let me啊
 就算退一万步来说这次灰度真的是在中转fable，那达里奥真就眼看着梁圣一周疯狂把fable免费发放是吧真又被李 ...</blockquote>
 为什么会有中转fable这么奇葩的说法
 
+
+*****
+
+####  overflowal  
+##### 2853#       发表于 2026-7-19 08:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936046&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-7-19 07:32</a>
+为什么会有中转fable这么奇葩的说法</blockquote>
+各种原因说起来很多，归根结底其实是因为太强了，这么强怎么能是中国模型呢？<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tonberry  
+##### 2854#       发表于 2026-7-19 08:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69935675&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-7-19 03:21</a>
+我建议你和你们这些类脑用户,在自己小圈子里呆着就好了
+
+别来污染泥潭正常人的圈子了. ...</blockquote>
+我是跑过去围观的好吧，正常表述我测到的和我看到的，你哪里看到我观点是认同他们？
+
