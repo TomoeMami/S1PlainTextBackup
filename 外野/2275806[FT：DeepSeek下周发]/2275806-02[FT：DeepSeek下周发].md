@@ -16149,3 +16149,70 @@ DeepSeek＞＞月之暗面＞OpenAI＞a\
 
 开源大模型们的大砍刀要开始砍这些闭源的AI了
 
+
+*****
+
+####  cscbzcbz  
+##### 2918#       发表于 2026-7-19 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936712&amp;ptid=2275806" target="_blank">jyj256 发表于 2026-7-19 11:07</a>
+接上以后怎么测试是不是</blockquote>
+除了看有没有let me，思维链里有没有列项也是一个特征。
+昨天玩了一天，灰度版思维链里从来不会1 2 3 4的列项。
+
+*****
+
+####  ycjiang1337  
+##### 2919#       发表于 2026-7-19 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936808&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-7-19 12:32</a>
+
+别人都是弱智，放着技术最高最便宜的不用，赶着给A畜送钱是吧？</blockquote>
+那毕竟不乳不用的人多了去了，有些人就是吃乳滑营销
+
+*****
+
+####  wandeeees  
+##### 2920#       发表于 2026-7-19 12:44
+
+试了几天了，全是let me<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我已急哭😭，梁子明天不出就是牢梁了
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  高粱河车神  
+##### 2921#       发表于 2026-7-19 12:44
+
+<blockquote>cscbzcbz 发表于 2026-7-19 12:41
+除了看有没有let me，思维链里有没有列项也是一个特征。
+
+昨天玩了一天，灰度版思维链里从来不会1 2 3 4的 ...</blockquote>
+app版的都是中文思考
+
+是不是就看不出来了？
+
+*****
+
+####  飛霞精灵  
+##### 2922#       发表于 2026-7-19 12:44
+
+蒸馏对DS是个很严重的指控了。尤其伴随DS诞生开始就是一种非常特殊的话术指控。
+
+因为本质上内涵的就是对本土技术不认可、完全抄袭国外的话术。
+
+这个话在DS的R1刚出来时候还有市场，鬼佬所谓的罗宾汉叙事也是一种暗地里的“你没技术只会偷”指责。
+
+但从DS这么多年砸论文和开源包括拉着全体国模升仙的水准来看，真就和蒸馏没什么关系。
+
+*****
+
+####  舞以  
+##### 2923#       发表于 2026-7-19 12:45
+
+觉得a畜的护城河是技术的确实缺了点品味<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+时间会证明一切
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
