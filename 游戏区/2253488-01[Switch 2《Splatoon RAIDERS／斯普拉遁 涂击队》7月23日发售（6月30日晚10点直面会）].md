@@ -532,3 +532,14 @@ uu还限免了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 243#       发表于 2026-7-19 09:08
+
+昨天fami更了3个联机相关的视频，陌生人联机有点像3代的频道，只要输入同一个暗号就可以一起联
+联机的时候怪物血量会提升，难易度还是根据自己设定的
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
