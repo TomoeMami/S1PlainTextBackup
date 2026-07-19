@@ -197,3 +197,13 @@
 
 看来阿金也知道奈叶这个类光狙普攻第三下太慢了容易吃伤害，给了个第二下加5秒消弹的技能，但是你装了这个就要放弃开大+50%的技能<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 2050#       发表于 2026-7-19 09:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">暴君怎么射击/蓄力格斗/手脚技能全是炮击啊草
+
+顺便两个sp的slb除了伤害是不是动作都一样（
+
