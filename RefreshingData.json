@@ -12396,10 +12396,10 @@
     "totalreply": 42942,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1784456894,
+    "lastedit": 1784457600,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "2218875": {
     "totalreply": 1581,
@@ -12549,10 +12549,10 @@
     "totalreply": 2697,
     "title": "[2026年Q娃 ​​​​名侦探Precure]",
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
-    "lastedit": 1784457452,
+    "lastedit": 1784457720,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2271402": {
     "totalreply": 8770,
@@ -13134,10 +13134,10 @@
     "totalreply": 12276,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1784457275,
+    "lastedit": 1784458020,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "1992785": {
     "totalreply": 447,
@@ -15771,7 +15771,7 @@
     "totalreply": 62,
     "title": "[爸妈家客厅空调坏了，求推荐]",
     "newtitle": "[爸妈家客厅空调坏了，求推荐]",
-    "lastedit": 1784456070,
+    "lastedit": 1784457480,
     "category": "外野",
     "active": true,
     "update": false
@@ -17130,7 +17130,7 @@
     "totalreply": 466,
     "title": "[古剑奇谭系列新作《古剑》PV公开]",
     "newtitle": "[古剑奇谭系列新作《古剑》PV公开]",
-    "lastedit": 1784451848,
+    "lastedit": 1784457540,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17653,6 +17653,15 @@
     "title": "[所以那么多爬s1的是为了什么？]",
     "newtitle": "[所以那么多爬s1的是为了什么？]",
     "lastedit": 1784456073,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2281475": {
+    "totalreply": 0,
+    "title": "[你平时在用什么大模型？]",
+    "newtitle": "[]",
+    "lastedit": 1784457420,
     "category": "外野",
     "active": true,
     "update": false
