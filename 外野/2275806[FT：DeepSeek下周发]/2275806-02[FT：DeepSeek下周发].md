@@ -15547,3 +15547,15 @@ syl，为啥我一直roll不到正式版，永远都是let me啊
 
 唉，不要老是急着把人按照群体分类<img src="https://static.stage1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wlhlz  
+##### 2860#       发表于 2026-7-19 08:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936231&amp;ptid=2275806" target="_blank">tonberry 发表于 2026-7-19 08:44</a>
+因为正常人且具有一定理性思维的都会觉得ln的结论荒唐到甚至有点可笑，而且某些意见领袖摁头想让人相信确实 ...</blockquote>
+正常人看到一坨屎会绕道走，不会去研究这坨屎是怎么拉出来的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
