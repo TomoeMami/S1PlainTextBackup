@@ -491,3 +491,24 @@ kimi热度太高没卡了会员停售了
 这周有不少实力选手接着上场，真是血雨腥风啊</blockquote>
 minimax那必须先质疑再质疑了
 
+
+*****
+
+####  lordquest  
+##### 3007#       发表于 2026-7-20 02:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937612&amp;ptid=2275806" target="_blank">qwased 发表于 2026-7-19 16:43</a>
+发现混元7b q6量化跑某本小说翻译会稳定死循环，换成q8量化就好了
+
+量化真的有这么大的影响吗 ...</blockquote>
+对于小模型来说长上下文量化差异很大。除了这个还包括kv cache也有影响（最好也是q8，显存实在不够可以试试thetom的turboquant版本llama.cpp）
+
+—— 来自 vivo V2314A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  lactone  
+##### 3008#       发表于 2026-7-20 02:49
+
+灰度的并不一定是V4正式版，也有可能是一个更大规模的DS的模型
+
