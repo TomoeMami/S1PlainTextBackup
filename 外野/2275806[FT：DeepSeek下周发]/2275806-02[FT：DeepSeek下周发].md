@@ -16619,3 +16619,14 @@ HTML 编程属于是大模型的脸面，展示出的效果最直观也最具冲
 
 千问3.8好像都出了，ds你在干什么<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冤枉呐  
+##### 2959#       发表于 2026-7-19 16:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937111&amp;ptid=2275806" target="_blank">Azcarlo 发表于 2026-7-19 14:00</a>
+
+去争论是不是路由到fable根本没有多大意义，我X上的帖子和类脑都看过了，现在结论就是会路由到一个明显不是 ...</blockquote>
+路由到a/，这怎么可能啊，干这事图什么呢？
+
