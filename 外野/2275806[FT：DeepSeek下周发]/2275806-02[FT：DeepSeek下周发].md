@@ -15861,3 +15861,40 @@ just know how，然后去做，就能有结果。
 
 即使这个灰度模型不是正式版而是v4.1乃至v5，它的进化能力也是不可思议的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 2894#       发表于 2026-7-19 10:58
+
+我一直不觉得OA两家在技术上有什么领先，无非是更大的参数量+高质量语料的训练造就了他们的领先地位，说白了大模型搞到现在都是在一个transformer架构上来回倒腾，哪有那么多可以实现跨越式进步的技术革新<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ymm1030  
+##### 2895#       发表于 2026-7-19 10:59
+
+就算是克又怎么样，用ds的价格给你玩肥波还有啥不满的，甲都给你预先破了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秦南心  
+##### 2896#       发表于 2026-7-19 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936663&amp;ptid=2275806" target="_blank">tonberry 发表于 2026-7-19 10:55</a>
+
+又给人扣帽子，我只是在给某些敏感问题出现了国模不应该有的回答（什么叫存在争议啊）一个合理化的解释。 ...</blockquote>
+你今天的人格是客观壬
+
+
+*****
+
+####  Bronzecraft  
+##### 2897#       发表于 2026-7-19 11:04
+
+<blockquote>zy450 发表于 2026-7-19 10:39
+用oepncode接DeepSeek的API，我用PI也没roll出来过</blockquote>
+同用pi链接DS的api未roll出来过
+
