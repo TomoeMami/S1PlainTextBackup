@@ -90,3 +90,48 @@ max多半不会开源的，能开源个122ba10b就谢天谢地了
 
 3.8的小模型可以本地部署的什么时候出
 
+
+*****
+
+####  nxmonitor  
+##### 2971#       发表于 2026-7-19 16:29
+
+小模型不赚钱基本要完蛋，他们现在恨不得从平头哥到Qorder到Qwen Max一条龙卖给用户
+
+
+*****
+
+####  overflowal  
+##### 2972#       发表于 2026-7-19 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937537&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-7-19 16:24</a>
+max多半不会开源的，能开源个122ba10b就谢天谢地了
+
+不过fable级别模型蒸馏出来的122b a10b  多半也足够强 ...</blockquote>
+已经说要开了。毕竟不开实际也没啥意义了。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  Promeus  
+##### 2973#       发表于 2026-7-19 16:33
+
+仅次于fable就是踩头5.6sol了
+
+*****
+
+####  Promeus  
+##### 2974#       发表于 2026-7-19 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937570&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-19 16:33</a>
+已经说要开了。毕竟不开实际也没啥意义了。    Re:Source</blockquote>
+那说的是3.8啦，max不一定开源。千问有个问题就是分挺高使用效果很一般，不知道3.8能不能扭转局势
+
+*****
+
+####  Promeus  
+##### 2975#       发表于 2026-7-19 16:35
+
+【Qwen3.8一句话生成我的世界-哔哩哔哩】 https://b23.tv/qUREN0f
+
+反正oneshot mc纯区<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
