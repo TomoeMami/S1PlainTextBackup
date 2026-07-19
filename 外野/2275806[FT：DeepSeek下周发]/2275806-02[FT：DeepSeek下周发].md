@@ -15898,3 +15898,99 @@ just know how，然后去做，就能有结果。
 用oepncode接DeepSeek的API，我用PI也没roll出来过</blockquote>
 同用pi链接DS的api未roll出来过
 
+
+*****
+
+####  jyj256  
+##### 2898#       发表于 2026-7-19 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936619&amp;ptid=2275806" target="_blank">zy450 发表于 2026-7-19 10:39</a>
+
+用oepncode接DeepSeek的API，我用PI也没roll出来过</blockquote>
+接上以后怎么测试是不是
+
+*****
+
+####  脸宽  
+##### 2899#       发表于 2026-7-19 11:08
+
+明天总不能不来吧<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 2900#       发表于 2026-7-19 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936712&amp;ptid=2275806" target="_blank">jyj256 发表于 2026-7-19 11:07</a>
+接上以后怎么测试是不是</blockquote>
+试试一句话许愿让它做个东西，看它的思维链主要是let me做啥还是I'm doing啥
+前者就是preview，后者大概率是正式版
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  tonberry  
+##### 2901#       发表于 2026-7-19 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936682&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-7-19 11:00</a>
+你今天的人格是客观壬</blockquote>
+莫名其妙看不懂的网络用语，大脑年龄多大了
+
+*****
+
+####  qz66618  
+##### 2902#       发表于 2026-7-19 11:10
+
+明天不来也得发个延期邮件吧，他那个调价通知还在官网挂着呢<img src="https://static.stage1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  jyj256  
+##### 2898#       发表于 2026-7-19 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936619&amp;ptid=2275806" target="_blank">zy450 发表于 2026-7-19 10:39</a>
+
+用oepncode接DeepSeek的API，我用PI也没roll出来过</blockquote>
+接上以后怎么测试是不是
+
+*****
+
+####  脸宽  
+##### 2899#       发表于 2026-7-19 11:08
+
+明天总不能不来吧<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 2900#       发表于 2026-7-19 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936712&amp;ptid=2275806" target="_blank">jyj256 发表于 2026-7-19 11:07</a>
+接上以后怎么测试是不是</blockquote>
+试试一句话许愿让它做个东西，看它的思维链主要是let me做啥还是I'm doing啥
+前者就是preview，后者大概率是正式版
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  tonberry  
+##### 2901#       发表于 2026-7-19 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936682&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-7-19 11:00</a>
+你今天的人格是客观壬</blockquote>
+莫名其妙看不懂的网络用语，大脑年龄多大了
+
+*****
+
+####  qz66618  
+##### 2902#       发表于 2026-7-19 11:10
+
+明天不来也得发个延期邮件吧，他那个调价通知还在官网挂着呢<img src="https://static.stage1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
