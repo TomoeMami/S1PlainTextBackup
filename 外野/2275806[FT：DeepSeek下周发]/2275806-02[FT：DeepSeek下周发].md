@@ -16032,3 +16032,120 @@ just know how，然后去做，就能有结果。
 
 没见扣帽子的，但是见到有人主动来领帽子戴<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ycjiang1337  
+##### 2907#       发表于 2026-7-19 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936531&amp;ptid=2275806" target="_blank">lobsteru 发表于 2026-7-19 10:15</a>
+我看说k3这个2.8T参数部署起来限制挺多，现在可能只有gb300能发挥好，大模型后面可能参数量越来越大，梁圣 ...</blockquote>
+K3应该也是为950超节点准备的
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  ycjiang1337  
+##### 2908#       发表于 2026-7-19 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936606&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-7-19 10:34</a>
+Qwen的新旗舰看起来也是5.6 Sol这级的，唐杰年初的发言快要成著名战忽案例了，关键这反击第一枪还是他自己 ...</blockquote>
+2023年上半年华为新闻发布会，当时徐值军说华为必须有美国政府批准才能生产5G手机，旁边孟晚舟一脸绷不住的表情
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  phorcys02  
+##### 2909#       发表于 2026-7-19 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936139&amp;ptid=2275806" target="_blank">tonberry 发表于 2026-7-19 08:05</a>
+
+我是跑过去围观的好吧，正常表述我测到的和我看到的，你哪里看到我观点是认同他们？ ...</blockquote>
+......你没有意识到你是在搬shi么
+
+没有意识到搬shi是污染环境的行为么...
+
+*****
+
+####  zy450  
+##### 2910#       发表于 2026-7-19 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936712&amp;ptid=2275806" target="_blank">jyj256 发表于 2026-7-19 11:07</a>
+
+接上以后怎么测试是不是</blockquote>
+思考里面出现let me就是旧版
+
+出现大量的i'm就是正式版
+
+*****
+
+####  ycjiang1337  
+##### 2911#       发表于 2026-7-19 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936489&amp;ptid=2275806" target="_blank">Sza 发表于 2026-7-19 10:04</a>
+我看了好几个这几天的v4正式版视频。我想知道这个模型的知识量为什么那么大？各种类型的游戏都能做出大致模 ...</blockquote>
+在K3之前，V4就是参数量最大的开源模型
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  Promeus  
+##### 2912#       发表于 2026-7-19 12:29
+
+我在rikkahub上roll出来一次，手贱重置了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ycjiang1337  
+##### 2913#       发表于 2026-7-19 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936761&amp;ptid=2275806" target="_blank">tonberry 发表于 2026-7-19 12:17</a>
+你很懂的话，你倒是帮我解答疑问啊，
+你想对我表达啥观点啥态度认为我立场是什么样直说啊，我又不是不正 ...</blockquote>
+意思就是别再搬屎了，谭友对于品鉴精神病人的脑回路没有任何兴趣
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  tonberry  
+##### 2914#       发表于 2026-7-19 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936786&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-7-19 12:27</a>
+......你没有意识到你是在搬shi么
+
+没有意识到搬shi是污染环境的行为么...</blockquote>
+因为我想的是看到的论据经过实践后确实有可以讨论的地方，而且我前面反复强调我不认可ln的观点。
+当然你说把这事拉进来讨论是搬shi，那我明白我做错的点在哪了。
+
+
+*****
+
+####  spaceblue  
+##### 2915#       发表于 2026-7-19 12:32
+
+<blockquote>舞以 发表于 2026-7-19 10:35
+暴论一波，论技术的话
+
+DeepSeek＞＞月之暗面＞OpenAI＞a\
+
+可能是我对llm作为一个技术产品的审美被梁圣雷普 ...</blockquote>
+别人都是弱智，放着技术最高最便宜的不用，赶着给A畜送钱是吧？
+
+*****
+
+####  →熙←  
+##### 2916#       发表于 2026-7-19 12:33
+
+机械的已经有了，家人们，我需要他自动画 PCB 。我需要他帮我画天线，帮我画传输线。帮我设计地线。
+
+*****
+
+####  施人诚  
+##### 2917#       发表于 2026-7-19 12:35
+
+开源大模型们的大砍刀要开始砍这些闭源的AI了
+
