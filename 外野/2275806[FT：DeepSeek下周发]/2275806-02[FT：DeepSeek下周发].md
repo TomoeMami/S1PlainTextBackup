@@ -16270,3 +16270,37 @@ app版的都是中文思考
 别人都是弱智，放着技术最高最便宜的不用，赶着给A畜送钱是吧？</blockquote>
 因为现在gpt和claude的套餐是亏钱补贴的，200刀能买大几千刀的用量，拼车或者中转站完全利用的话比国模还便宜，如果停止套餐补贴按原价api收费你看还有几个人用得起<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冤枉呐  
+##### 2929#       发表于 2026-7-19 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936866&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-7-19 12:50</a>
+实际上DS真正应该做的是更新许可证，专门拉黑A➗，禁止A➗及其关联实体以任何直接或间接的方式使用新模型 ...</blockquote>
+我在想能不能想办法预设一个反特拉维夫的立场进去
+a/一蒸，哎，反犹模型
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  小川彩  
+##### 2930#       发表于 2026-7-19 13:00
+
+a\连论文都不发居然还有人谈taste？ 数据这个多一点那个少一点炼出来的分布不一样就是taste了？真当llm是文科啊？好用不好用的谈论谈论罢了 毕竟工程方面确实还有贡献 但是科研taste它连桌子都上不了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  chenyedgg  
+##### 2931#       发表于 2026-7-19 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936851&amp;ptid=2275806" target="_blank">飛霞精灵 发表于 2026-7-19 12:44</a>
+
+蒸馏对DS是个很严重的指控了。尤其伴随DS诞生开始就是一种非常特殊的话术指控。
+
+因为本质上内涵的就是对本 ...</blockquote>
+拒绝蒸馏羞耻<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
