@@ -219,3 +219,69 @@ max多半不会开源的，能开源个122ba10b就谢天谢地了
 
 只能说未来可期把，能达到GLM后训练的水平应该还是可以很强的
 
+
+*****
+
+####  真田源次郎信繁  
+##### 2984#       发表于 2026-7-19 16:56
+
+Qwen和Llama状态差不多，不过阿里好歹是比美国百度强多了
+
+开源或者不开源，放小模型和不放小模型这都是细枝末节的事，关键是能力行不行
+
+如果能力不行那就靠开源画饼，如果能力不行也不开源那就路边一套
+
+*****
+
+####  nxmonitor  
+##### 2985#       发表于 2026-7-19 16:57
+
+let me这个东西是不是V3的思维链祖传的东西？包括很长的思维链和左右互搏
+
+
+*****
+
+####  Alunamin  
+##### 2986#       发表于 2026-7-19 17:00
+
+所以今天还是没消息吗
+
+*****
+
+####  ycjiang1337  
+##### 2987#       发表于 2026-7-19 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937554&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-19 16:29</a>
+
+小模型不赚钱基本要完蛋，他们现在恨不得从平头哥到Qorder到Qwen Max一条龙卖给用户 ...</blockquote>
+小模型是卖卡的
+
+*****
+
+####  Promeus  
+##### 2988#       发表于 2026-7-19 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937687&amp;ptid=2275806" target="_blank">Alunamin 发表于 2026-7-19 17:00</a>
+所以今天还是没消息吗</blockquote>
+今天出现大规模坠机和客户端灰度，怎么看都是快来了
+
+*****
+
+####  ycjiang1337  
+##### 2989#       发表于 2026-7-19 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937576&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-19 16:34</a>
+
+那说的是3.8啦，max不一定开源。千问有个问题就是分挺高使用效果很一般，不知道3.8能不能扭转局势 ...</blockquote>
+3.8就是Max，2.4T大小，不然Qwen怎么可能还有更大的模型
+
+*****
+
+####  ycjiang1337  
+##### 2990#       发表于 2026-7-19 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937616&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-19 16:44</a>
+
+如果真的有价值原先的负责人也不会被开掉了，他们就是为了收回投入搞的 ...</blockquote>
+小模型可以赚GPU的钱，大模型做不到第一梯队就是路边一条
+
