@@ -16630,3 +16630,11 @@ HTML 编程属于是大模型的脸面，展示出的效果最直观也最具冲
 去争论是不是路由到fable根本没有多大意义，我X上的帖子和类脑都看过了，现在结论就是会路由到一个明显不是 ...</blockquote>
 路由到a/，这怎么可能啊，干这事图什么呢？
 
+
+*****
+
+####  Promeus  
+##### 2960#       发表于 2026-7-19 16:09
+
+2.4T的千问3.8，怎么上下文才200k<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
