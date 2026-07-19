@@ -16563,3 +16563,59 @@ HTML 编程属于是大模型的脸面，展示出的效果最直观也最具冲
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  overflowal  
+##### 2953#       发表于 2026-7-19 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937398&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-7-19 15:39</a>
+在贴吧看到的，有人出现的客户端界面，客户端这边也要跟上了吗？但是我倒没有遇到，有相同界面的朋友出来说 ...</blockquote>
+这种功能基本就是生成时要求详细点/简略点    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  杀人鲸  
+##### 2954#       发表于 2026-7-19 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937420&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-19 15:50</a>
+这种功能基本就是生成时要求详细点/简略点    Re:Source</blockquote>
+但一直也没有的。如果这个功能有的话，真的挺好的。有些回答想看更详细的版本，之前只能够重新修订回答方式，结果现在可以直接要求详细或者简略化了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  王兰花秀丽  
+##### 2955#       发表于 2026-7-19 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937398&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-7-19 15:39</a>
+在贴吧看到的，有人出现的客户端界面，客户端这边也要跟上了吗？但是我倒没有遇到，有相同界面的朋友出来说 ...</blockquote>
+这是真的，我已经有了。但是感觉约束力还不强没多大区别    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  chenyedgg  
+##### 2956#       发表于 2026-7-19 15:52
+
+又没有大规格灰测，价格推论没啥意义，而少数灰测这东西本身就无法证明了，性能啥的在正式出来前都是烂炒
+
+*****
+
+####  杀人鲸  
+##### 2957#       发表于 2026-7-19 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937426&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-7-19 15:52</a>
+这是真的，我已经有了。但是感觉约束力还不强没多大区别    Re:Source</blockquote>
+羡慕！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  qz66618  
+##### 2958#       发表于 2026-7-19 15:54
+
+千问3.8好像都出了，ds你在干什么<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

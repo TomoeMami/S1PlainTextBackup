@@ -1958,3 +1958,21 @@ komiic听说被墙了，我一直走的代理分流，反正是正常访问
 
 —— 来自 HUAWEI TAH-AN00m, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  azbhg1  
+##### 172#         楼主| 发表于 2026-7-19 15:48
+
+ 本帖最后由 azbhg1 于 2026-7-19 15:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69933608&amp;ptid=2254551" target="_blank">魔法师lain 发表于 2026-7-18 10:51</a>
+
+现在kisslove新版插件怎么tachiyomij2k一用就崩
+
+—— 来自 HUAWEI TAH-AN00m, Android 12, 鹅球 v3.5.99 ...</blockquote>
+j2k太久没更新了
+
+旧版客户端不支持现在最新的1.6版本的插件接口
+
+看了一眼，我用的yokai直接不推送，用了1.6版本接口的插件的更新<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
