@@ -6260,7 +6260,7 @@
     "newtitle": "[《Splatoon 3／斯普拉遁3》专楼（7月11～13日涂击队联动庆典）]",
     "lastedit": 1784198766,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2130296": {
@@ -9419,7 +9419,7 @@
     "newtitle": "[丸户×よむ《事到如今，喜欢上了青梅竹马》]",
     "lastedit": 1784199127,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2194917": {
@@ -12399,7 +12399,7 @@
     "lastedit": 1784457600,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2218875": {
     "totalreply": 1581,
@@ -17127,13 +17127,13 @@
     "update": false
   },
   "2259381": {
-    "totalreply": 466,
+    "totalreply": 468,
     "title": "[古剑奇谭系列新作《古剑》PV公开]",
     "newtitle": "[古剑奇谭系列新作《古剑》PV公开]",
-    "lastedit": 1784457540,
+    "lastedit": 1784458985,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2285651": {
     "totalreply": 45,
