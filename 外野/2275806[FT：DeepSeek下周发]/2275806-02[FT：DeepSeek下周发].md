@@ -15828,3 +15828,36 @@ DeepSeek＞＞月之暗面＞OpenAI＞a\
 我记得 V4 preview 发布时好像说过，正式版的参数量会乘以2？</blockquote>
 从来没说过啊<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 2891#       发表于 2026-7-19 10:53
+
+我感觉漏很多漏油为ds展示了“1.6t不该有的能力”感到，本质还是被oa两家骗了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+我感觉至少在叙事上，这两家是不能说自己的模型（特别是旗舰）多有性价比，成本有多低，怎么依靠训练达成了小容量高能力。
+哪怕搞限额重置和实质降价，也要有一种施舍的姿态，“哎，为了你们这群贱民能稍微多感受到神的恩泽，我们这群大祭司又加了两天班来优化！”
+总而言之，一定要说我们的模型多大多稠密多昂贵，来塑造一种“神性”，典型就是fable。不直接说也要纵容和诱导社区在这方面的讨论。
+glm已经证明，在此前炒作最狠，被视为claude“独特智慧”的coding，其实完全就是个训练和工程问题。
+just know how，然后去做，就能有结果。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  tonberry  
+##### 2892#       发表于 2026-7-19 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936620&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-7-19 10:39</a>
+学生模型的上限永远低于教师模型在游戏里表现好，证明它的后训练（尤其是RL对齐）做得比B好，这恰是“非蒸 ...</blockquote>
+又给人扣帽子，我只是在给某些敏感问题出现了国模不应该有的回答（什么叫存在争议啊）一个合理化的解释。
+
+有没有可能我能roll到正式版恰恰是因为我对ds从过去到现在都在大量使用。
+
+*****
+
+####  Promeus  
+##### 2893#       发表于 2026-7-19 10:56
+
+即使这个灰度模型不是正式版而是v4.1乃至v5，它的进化能力也是不可思议的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
