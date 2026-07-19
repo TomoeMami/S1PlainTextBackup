@@ -12381,7 +12381,7 @@
     "lastedit": 1784459040,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2268807": {
     "totalreply": 512,
@@ -12552,7 +12552,7 @@
     "lastedit": 1784457720,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2271402": {
     "totalreply": 8770,
@@ -12957,7 +12957,7 @@
     "lastedit": 1784458560,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2183060": {
     "totalreply": 127,
@@ -13695,7 +13695,7 @@
     "lastedit": 1784459820,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2282780": {
     "totalreply": 58,
@@ -13839,7 +13839,7 @@
     "lastedit": 1784459160,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284697": {
     "totalreply": 120,
@@ -14739,7 +14739,7 @@
     "lastedit": 1784458560,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1551942": {
     "totalreply": 368,
@@ -15765,7 +15765,7 @@
     "lastedit": 1784457480,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2283335": {
     "totalreply": 166,
@@ -16475,7 +16475,7 @@
     "newtitle": "[68万元起！比亚迪腾势 Z 电动超跑国内预售开启]",
     "lastedit": 1784204526,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2258117": {
@@ -17286,7 +17286,7 @@
     "lastedit": 1784457540,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2285704": {
     "totalreply": 51,
@@ -17574,7 +17574,7 @@
     "lastedit": 1784460900,
     "category": "手游战斗",
     "active": true,
-    "update": true
+    "update": false
   },
   "2285831": {
     "totalreply": 90,
@@ -17601,7 +17601,7 @@
     "lastedit": 1784457900,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2285750": {
     "totalreply": 48,
@@ -17655,6 +17655,6 @@
     "lastedit": 1784457480,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   }
 }
