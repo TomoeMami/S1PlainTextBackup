@@ -257,3 +257,11 @@ dmm那边上了，打3000吧
 
 老哥们这次不给力啊<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 4541#       发表于 2026-7-19 13:29
+
+虽然商店里有用的都换了，但是这个任务条件能再恶心点吗？
+

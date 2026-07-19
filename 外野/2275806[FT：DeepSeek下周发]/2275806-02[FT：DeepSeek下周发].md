@@ -16379,3 +16379,16 @@ Fable刚刚发布时小蓝书小红书上的盛景我 ...</blockquote>
 
 A÷可以炒作，但是绩效是不会说谎的
 
+
+*****
+
+####  秦南心  
+##### 2936#       发表于 2026-7-19 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936663&amp;ptid=2275806" target="_blank">tonberry 发表于 2026-7-19 10:55</a>
+
+又给人扣帽子，我只是在给某些敏感问题出现了国模不应该有的回答（什么叫存在争议啊）一个合理化的解释。 ...</blockquote>
+喜欢往预设议题自证陷阱里跳，纯纯的做题家思维
+
+用ds用的多怎么不学学幻方多做事少说废话
+
