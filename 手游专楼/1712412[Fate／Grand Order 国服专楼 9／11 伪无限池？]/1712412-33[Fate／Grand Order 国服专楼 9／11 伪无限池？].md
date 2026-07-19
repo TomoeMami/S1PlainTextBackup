@@ -384,3 +384,13 @@
 
 EX点满的人不少了，下一个要准备的戴冠战是骑，虽然更主要的问题是卡火炬
 
+
+*****
+
+####  Kon-El  
+##### 47910#       发表于 2026-7-19 10:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我不理解，宝具本强化本都不打就给戴冠的，满配师匠牵绊礼装不选NP的
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

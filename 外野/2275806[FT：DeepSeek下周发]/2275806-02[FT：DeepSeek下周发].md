@@ -15760,3 +15760,71 @@ DeepSeek＞＞月之暗面＞OpenAI＞a\
 
 可能是我对llm作为一个技术产品的审美被梁圣雷普了吧
 
+
+*****
+
+####  zy450  
+##### 2883#       发表于 2026-7-19 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936607&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-19 10:35</a>
+
+看坛友说的我心痒难耐，我怎么就没roll到过神秘劲霸D指导，梁子，我这半年可在你的网站花了300多了啊 ...</blockquote>
+用oepncode接DeepSeek的API，我用PI也没roll出来过
+
+*****
+
+####  秦南心  
+##### 2884#       发表于 2026-7-19 10:39
+
+学生模型的上限永远低于教师模型<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在游戏里表现好，证明它的后训练（尤其是RL对齐）做得比B好，这恰是“非蒸馏”的后训练技术（强化学习）在起作用
+
+只能说洋大人的伟大是某些人的思想钢印…
+
+*****
+
+####  nxmonitor  
+##### 2885#       发表于 2026-7-19 10:39
+
+这几个画工程模型，还有对GODOT的应用，更像是理想中的哈基米…
+
+*****
+
+####  ayanamilin  
+##### 2886#       发表于 2026-7-19 10:40
+
+我记得 V4 preview 发布时好像说过，正式版的参数量会乘以2？
+
+*****
+
+####  我猫呢?  
+##### 2887#       发表于 2026-7-19 10:41
+
+现在roll新模型的几率应该还挺大的，昨晚新建的apikey，新对话10次以内就能roll到
+
+
+*****
+
+####  cscbzcbz  
+##### 2888#       发表于 2026-7-19 10:43
+
+今天我彻底roll不到了<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 2889#       发表于 2026-7-19 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936619&amp;ptid=2275806" target="_blank">zy450 发表于 2026-7-19 10:39</a>
+
+用oepncode接DeepSeek的API，我用PI也没roll出来过</blockquote>
+救世啊！
+
+*****
+
+####  overflowal  
+##### 2890#       发表于 2026-7-19 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936622&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-7-19 10:40</a>
+我记得 V4 preview 发布时好像说过，正式版的参数量会乘以2？</blockquote>
+从来没说过啊<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
