@@ -16420,3 +16420,11 @@ API炸了，是不是在更新了
 
 当然正式版真的性能一坨狗屎那DS不仅跌落神坛，梁圣变梁嗨，搞不好要吃一壶大的。毕竟要是真的把用户请求发到海外一家实名繁华的公司，那事情太大条了。
 
+
+*****
+
+####  wandeeees  
+##### 2940#       发表于 2026-7-19 14:09
+
+争论一开始是那些up主自己悄悄用的fable api，到现在变成是官方中转了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">好恨啊
+
