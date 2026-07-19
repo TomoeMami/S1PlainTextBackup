@@ -135,3 +135,57 @@ max多半不会开源的，能开源个122ba10b就谢天谢地了
 
 反正oneshot mc纯区<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mitzvah  
+##### 2976#       发表于 2026-7-19 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937554&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-19 16:29</a>
+
+小模型不赚钱基本要完蛋，他们现在恨不得从平头哥到Qorder到Qwen Max一条龙卖给用户 ...</blockquote>
+小模型恰恰是阿里最有价值的东西，一大票自动驾驶机器人端侧模型都等着这玩意的更新下锅呢
+
+*****
+
+####  tillnight  
+##### 2977#       发表于 2026-7-19 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937570&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-19 16:33</a>
+
+已经说要开了。毕竟不开实际也没啥意义了。    Re:Source</blockquote>
+官号也可以是话术，毕竟和以前一样开MAX的量化版也叫开。虽然看口气好像这次好像是真要开源旗舰。
+
+*****
+
+####  qwased  
+##### 2978#       发表于 2026-7-19 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937297&amp;ptid=2275806" target="_blank">lordquest 发表于 2026-7-19 15:03</a>
+
+12b的模型还是太小了，26b a4b应该会好一些。我自己测试的笔记本的5070ti 12g显存，35b a3b，开mtp大于能 ...</blockquote>
+发现混元7b q6量化跑某本小说翻译会稳定死循环，换成q8量化就好了
+
+量化真的有这么大的影响吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 2979#       发表于 2026-7-19 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937576&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-19 16:34</a>
+
+那说的是3.8啦，max不一定开源。千问有个问题就是分挺高使用效果很一般，不知道3.8能不能扭转局势 ...</blockquote>
+刷分把语料污染了就是这个结果
+
+
+*****
+
+####  nxmonitor  
+##### 2980#       发表于 2026-7-19 16:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937596&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-7-19 16:38</a>
+
+小模型恰恰是阿里最有价值的东西，一大票自动驾驶机器人端侧模型都等着这玩意的更新下锅呢 ...</blockquote>
+如果真的有价值原先的负责人也不会被开掉了，他们就是为了收回投入搞的
+
