@@ -668,3 +668,40 @@ k3 的 genebench pro 也上去了
 
 2026-7-20 09:15 上传
 
+
+*****
+
+####  overflowal  
+##### 3026#       发表于 2026-7-20 09:28
+
+我7月中旬呢？求求了<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Azcarlo  
+##### 3027#       发表于 2026-7-20 09:30
+
+据说可能要推迟几天等harness，x上看的，不保真
+<img src="https://p.sda1.dev/33/10d81205d3d973a6abac271049b1d10e/image.jpg" referrerpolicy="no-referrer">
+另外DS员工开玩笑说路由到Fable
+<img src="https://p.sda1.dev/33/c42d7719ab56f459580b11b961fa941a/image.jpg" referrerpolicy="no-referrer">
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  qz66618  
+##### 3028#       发表于 2026-7-20 09:32
+
+推迟不发推迟邮件吗，或者说不把那个调价信息给下了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  王兰花秀丽  
+##### 3029#       发表于 2026-7-20 09:35
+
+是梁圣还是梁子我自有定夺    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
