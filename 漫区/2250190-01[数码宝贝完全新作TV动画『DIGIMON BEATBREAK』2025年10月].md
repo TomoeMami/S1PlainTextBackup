@@ -24,3 +24,13 @@
 
 蘑菇团说明后主角去找政府倒是说说看到丁香兽的事啊，好急<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  granly  
+##### 696#       发表于 2026-7-20 08:53
+
+<blockquote>失落之翼 发表于 2026-7-20 08:18
+蘑菇团说明后主角去找政府倒是说说看到丁香兽的事啊，好急</blockquote>
+蘑菇团没跟木星打过交道，可能以为丁香兽也是前水星的吧
+

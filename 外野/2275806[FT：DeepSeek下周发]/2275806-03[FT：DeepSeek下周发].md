@@ -600,3 +600,23 @@ qwen 的后训练确实一坨，空有一个大底模
 
 —— 来自 Xiaomi 25128PNA1C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  御坂MKII  
+##### 3019#       发表于 2026-7-20 08:51
+
+<img src="https://p.sda1.dev/33/dd3e785f5e4bc005fa6c4eed739d3000/image.jpg" referrerpolicy="no-referrer">
+k3 的 genebench pro 也上去了
+
+—— 来自 Xiaomi 25128PNA1C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  serj005  
+##### 3020#       发表于 2026-7-20 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937398&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-7-19 15:39</a>
+在贴吧看到的，有人出现的客户端界面，客户端这边也要跟上了吗？但是我倒没有遇到，有相同界面的朋友出来说 ...</blockquote>
+现在客户端已经有了，用了下感觉就是初始提示词里加一个输出更详细结果的区别，自己在问问题的时候手动要求效果差不多。
+

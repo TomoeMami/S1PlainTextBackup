@@ -620,3 +620,16 @@ pdd叠券能到260+
 
 ——来自 Chrome 上的 [S1er 客户端](https://github.com/Shirolin/s1er/releases/latest)
 
+
+*****
+
+####  KIRI小威  
+##### 249#       发表于 2026-7-20 08:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69937832&amp;ptid=2253488" target="_blank">shirolin 发表于 2026-7-19 17:45</a>
+
+从滚动条看这个大怪数量，极物头目应该是另外单独的图鉴？
+
+感觉还是得来一波G位才够刷……</blockquote>
+滚动条应该是怪物的描述界面，下面那一行没有滚动条的才是怪物类别，也看不出来有多少种
+

@@ -265,3 +265,14 @@ dmm那边上了，打3000吧
 
 虽然商店里有用的都换了，但是这个任务条件能再恶心点吗？
 
+
+*****
+
+####  电脑死机  
+##### 4542#       发表于 2026-7-20 08:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69933866&amp;ptid=2071758" target="_blank">螺旋的小夜曲 发表于 2026-7-18 12:01</a>
+
+我找了半天没找到这个“试作机”后来想想可能是试验机</blockquote>
+直接去选人选机界面就行了，有个按钮帮忙一键筛选的，很好办
+
