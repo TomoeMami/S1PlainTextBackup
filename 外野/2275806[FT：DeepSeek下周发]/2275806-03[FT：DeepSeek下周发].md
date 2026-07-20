@@ -1555,3 +1555,100 @@ L站现在就是黑产贩子大本营啊
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  ddr712  
+##### 3112#       发表于 2026-7-20 15:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69939754&amp;ptid=2275806" target="_blank">Azcarlo 发表于 2026-7-20 09:30</a>
+
+据说可能要推迟几天等harness，x上看的，不保真
+
+另外DS员工开玩笑说路由到Fable</blockquote>
+这个崔小天 就是崔天一吧？
+
+*****
+
+####  goranger  
+##### 3113#       发表于 2026-7-20 15:28
+
+忙着**呢，鸽你们一下怎么了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Baccano  
+##### 3114#       发表于 2026-7-20 15:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69941795&amp;ptid=2275806" target="_blank">tk553521 发表于 2026-7-20 15:06</a>
+
+留给梁木的时间不多了
+
+—— 来自 nubia NX809J, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+梁木是什么梗啊？指的粱的母亲吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zy450  
+##### 3115#       发表于 2026-7-20 15:34
+
+艹，认真看了下官网的提示，说是*预计*7月中旬调价，有没其他官方渠道说7月中旬更新？如果只有这一条的话，那今天肯定没戏了
+
+*****
+
+####  cscbzcbz  
+##### 3116#       发表于 2026-7-20 15:35
+
+ 本帖最后由 cscbzcbz 于 2026-7-20 15:36 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69941960&amp;ptid=2275806" target="_blank">zy450 发表于 2026-7-20 15:34</a>
+
+艹，认真看了下官网的提示，说是*预计*7月中旬调价，有没其他官方渠道说7月中旬更新？如果只有这一条的话， ...</blockquote>
+
+发给我的邮件说的是正式上线，不只是调价
+
+您好！
+
+DeepSeek V4 正式版计划于 7 月中旬正式上线。本次版本更新将带来更多功能优化和性能提升，敬请期待！
+
+同时，为了更合理地配置资源、提升服务稳定性，正式版发布后将同步调整API定价策略，引入峰谷定价机制。具体调整如下：
+
+*****
+
+####  zy450  
+##### 3117#       发表于 2026-7-20 15:37
+
+*计划于*
+
+*预计*
+
+艹，白期待了
+
+<img src="https://img.stage1st.com/forum/202607/20/153636uocy2iryghzdzrhc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-20 15:36 上传
+
+*****
+
+####  绕指流光  
+##### 3118#         楼主| 发表于 2026-7-20 15:38
+
+最近热度很高，把帖子名改了一下，等正式版发布再更新到主帖
+
+—— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  nianiania  
+##### 3119#       发表于 2026-7-20 15:38
+
+linuxdo 上面太多开中转和薅羊毛的了，最近刚把马斯克的 grok4.5 薅秃，我都不明白这些人闲工夫怎么这么多，不上班的吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
