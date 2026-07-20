@@ -1904,3 +1904,11 @@ OP的一部分镜头使用了赛璐珞画制作
 奶奶有外国人血统吧，回忆里就是金发</blockquote>
 感觉像是，可能兄弟染了奶奶没染<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  43453  
+##### 187#       发表于 2026-7-20 20:48
+
+第二集扔饮料拉拉没接住那里有点搞笑，茉莉还帮忙捡回来
+
