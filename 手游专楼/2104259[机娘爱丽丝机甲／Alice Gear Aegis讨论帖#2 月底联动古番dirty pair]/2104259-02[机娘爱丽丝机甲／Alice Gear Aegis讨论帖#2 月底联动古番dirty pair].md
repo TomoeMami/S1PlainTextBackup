@@ -235,3 +235,11 @@
 
 22号周年怎么23号才开复刻？基本确定ST唯未罗or晶乃。要是实装Aina那就太没面子了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 2054#       发表于 2026-7-20 16:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在是一年出一次fa了吗
+

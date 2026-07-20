@@ -1825,3 +1825,26 @@ Kimi 昨天套餐权益拆分了，现在又改回去了，我现在这边儿依
 
 梁子至少发个公告吧<img src="https://static.stage1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 3137#       发表于 2026-7-20 16:31
+
+还有最后一线希望就是晚上发布，按照以往周一发布的规律都是在晚上<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  overflowal  
+##### 3138#       发表于 2026-7-20 16:33
+
+牢梁你还不如不发公告呢<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  drodchang  
+##### 3139#       发表于 2026-7-20 16:35
+
+kimi逻辑是差点，速度是慢点，但 前端能力确实厉害，卖光了也正常。
+
