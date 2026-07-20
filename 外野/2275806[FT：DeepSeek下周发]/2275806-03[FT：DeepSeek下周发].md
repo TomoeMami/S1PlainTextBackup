@@ -650,3 +650,21 @@ k3 的 genebench pro 也上去了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">借楼问一问，想用llm定期去链家贝壳上搜租房价格信息，该咋操作啊，接无头浏览器吗
 
+
+*****
+
+####  高粱河车神  
+##### 3025#       发表于 2026-7-20 09:16
+
+究极小丑a÷能再表演一个那个吗？
+
+“我们的模型太先进了不能给你们用”
+
+<img src="https://img.stage1st.com/forum/202607/20/091528jwj3t2zx8q9zoioq.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260720_091500_com.sina.weibo.stage.jpg</strong> (405.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-20 09:15 上传
+
