@@ -1652,3 +1652,48 @@ linuxdo 上面太多开中转和薅羊毛的了，最近刚把马斯克的 grok4
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  杀人鲸  
+##### 3120#       发表于 2026-7-20 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69941985&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-7-20 15:38</a>
+最近热度很高，把帖子名改了一下，等正式版发布再更新到主帖
+
+—— 来自 vivo V2309A, Android 16, 鹅球 v3 ...</blockquote>
+我刚刚还想说帖子居然改了，不容易呀。从期待V4的发布，到期待正式版的发布，也是有点搞笑。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  goranger  
+##### 3121#       发表于 2026-7-20 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69941986&amp;ptid=2275806" target="_blank">nianiania 发表于 2026-7-20 15:38</a>
+linuxdo 上面太多开中转和薅羊毛的了，最近刚把马斯克的 grok4.5 薅秃，我都不明白这些人闲工夫怎么这么多 ...</blockquote>
+那上边一堆人连个双币信用卡都没….
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  overflowal  
+##### 3122#       发表于 2026-7-20 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69941986&amp;ptid=2275806" target="_blank">nianiania 发表于 2026-7-20 15:38</a>
+linuxdo 上面太多开中转和薅羊毛的了，最近刚把马斯克的 grok4.5 薅秃，我都不明白这些人闲工夫怎么这么多 ...</blockquote>
+这个能卖钱啊    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  onezer0618  
+##### 3123#       发表于 2026-7-20 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69941986&amp;ptid=2275806" target="_blank">nianiania 发表于 2026-7-20 15:38</a>
+
+linuxdo 上面太多开中转和薅羊毛的了，最近刚把马斯克的 grok4.5 薅秃，我都不明白这些人闲工夫怎么这么多 ...</blockquote>
+薅羊毛是否本身就算是一种上班<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
