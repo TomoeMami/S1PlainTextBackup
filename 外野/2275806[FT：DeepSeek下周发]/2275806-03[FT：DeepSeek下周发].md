@@ -575,3 +575,11 @@ Deepseek要做自己的Agent了吗？
 
 梁子今天会发吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狭义文具爱好者  
+##### 3016#       发表于 2026-7-20 08:28
+
+梁子之前说只做模型不做应用，是ds最大战略误判之一，肯定得做的
+
