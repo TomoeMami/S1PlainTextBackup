@@ -770,3 +770,13 @@ pdd叠券能到260+
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  clyde-wang  
+##### 261#       发表于 2026-7-20 13:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69940798&amp;ptid=2253488" target="_blank">conanoysq 发表于 2026-7-20 11:54</a>
+买了个寨厂的涂击队外壳，增加的JC手把确实让手感变舒服了很多，但代价就是更重了，只能放大腿上玩了</blockquote>
+骷髅家的吧，其实我推荐那个Fission的版本，那个我自己用下来更舒服一些
+

@@ -276,3 +276,11 @@ dmm那边上了，打3000吧
 我找了半天没找到这个“试作机”后来想想可能是试验机</blockquote>
 直接去选人选机界面就行了，有个按钮帮忙一键筛选的，很好办
 
+
+*****
+
+####  里村紅葉  
+##### 4543#       发表于 2026-7-20 13:33
+
+难得有一次活动给的券把两个新的都抽到了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
