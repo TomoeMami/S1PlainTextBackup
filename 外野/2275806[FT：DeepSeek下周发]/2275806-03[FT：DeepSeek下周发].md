@@ -1264,3 +1264,31 @@ svg 就类比 css，本质还是代码而不是图。如果前端口味和多模
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  chenyedgg  
+##### 3083#       发表于 2026-7-20 12:42
+
+qwen3.8偷偷把昨天的模型给换了，昨天的应该是某个老版本，今天的应该才是真qwen 3.8 预览版
+
+*****
+
+####  nxmonitor  
+##### 3084#       发表于 2026-7-20 12:42
+
+ 本帖最后由 nxmonitor 于 2026-7-20 12:44 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69940955&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-7-20 12:24</a>
+
+svg 就类比 css，本质还是代码而不是图。如果前端口味和多模态有关系那 gpt 就不会在有 gpt image2 的同 ...</blockquote>
+但是架构应该更接近现实作画，现在的生图架构本质上更黑箱的，这个神秘模型的作曲也是一样，通过生成乐谱来作曲，也许能提升智能密度。
+
+*****
+
+####  王兰花秀丽  
+##### 3085#       发表于 2026-7-20 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69941050&amp;ptid=2275806" target="_blank">chenyedgg 发表于 2026-7-20 12:42</a>
+qwen3.8偷偷把昨天的模型给换了，昨天的应该是某个老版本，今天的应该才是真qwen 3.8 预览版 ...</blockquote>
+人都说了按天进化<img src="https://static.stage1st.com/image/smiley/face/55.gif" referrerpolicy="no-referrer">
+
