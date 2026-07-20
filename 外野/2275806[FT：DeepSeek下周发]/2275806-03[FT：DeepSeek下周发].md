@@ -1292,3 +1292,14 @@ svg 就类比 css，本质还是代码而不是图。如果前端口味和多模
 qwen3.8偷偷把昨天的模型给换了，昨天的应该是某个老版本，今天的应该才是真qwen 3.8 预览版 ...</blockquote>
 人都说了按天进化<img src="https://static.stage1st.com/image/smiley/face/55.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  drodchang  
+##### 3086#       发表于 2026-7-20 12:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69941075&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-7-20 12:45</a>
+
+人都说了按天进化。现在表现很好吗    Re:Source</blockquote>
+好不好，可以看马斯克的推文，如果马斯克都没有提，证明就不够好。
+
