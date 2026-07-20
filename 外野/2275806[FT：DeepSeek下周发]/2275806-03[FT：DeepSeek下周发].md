@@ -2124,3 +2124,42 @@ kimi 就是不实惠，给的额度换成 token 很少
 论坛助手,iPhone</blockquote>
 感觉很难了，部署上线api一般都是工作时间干的。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  goranger  
+##### 3166#       发表于 2026-7-20 18:47
+
+真切换，api必然短暂的卡，目前毫无迹象
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  →熙←  
+##### 3167#       发表于 2026-7-20 18:50
+
+kimi流量起来了, 各种报道
+
+*****
+
+####  舞以  
+##### 3168#       发表于 2026-7-20 18:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69942980&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-7-20 18:50</a>
+kimi流量起来了, 各种报道</blockquote>
+炒作是对的，对llm lab来说，“有技术”的人设远比真的技术更重要<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+国模之前的问题是除了ds的人设都不太行。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  goranger  
+##### 3169#       发表于 2026-7-20 18:56
+
+deepseek github页面有动静，难道开始了？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
