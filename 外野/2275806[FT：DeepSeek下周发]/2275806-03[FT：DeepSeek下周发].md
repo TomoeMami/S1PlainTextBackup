@@ -1237,3 +1237,30 @@ Juice参数代表思考强度，有些公司会根据服务器压力调整下降
 神秘模型画SVG有着极强的世界知识迁移能力，现在这些模型没训练过的东西性能就大幅下滑，然而神秘模型碰到 ...</blockquote>
 svg 就类比 css，本质还是代码而不是图。如果前端口味和多模态有关系那 gpt 就不会在有 gpt image2 的同时自己的前端还拉胯的不行
 
+
+*****
+
+####  风速前进mo  
+##### 3080#       发表于 2026-7-20 12:30
+
+试了下用能搜索的快速模式和专家模式理解三ai的笑话，依然理解错，二审维持原判
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Alunamin  
+##### 3081#       发表于 2026-7-20 12:34
+
+问了吗<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  goranger  
+##### 3082#       发表于 2026-7-20 12:34
+
+以后改叫梁鸽了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

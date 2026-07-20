@@ -414,3 +414,11 @@ EX点满的人不少了，下一个要准备的戴冠战是骑，虽然更主要
 —— 来自 OnePlus PKR110, Android  ...</blockquote>
 估计是那种不到减半不打强化本的神人吧，直接就删了。
 
+
+*****
+
+####  khxooo  
+##### 47913#       发表于 2026-7-20 12:26
+
+两个号都180了，终于不用对着那红色的116cost 红温了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
