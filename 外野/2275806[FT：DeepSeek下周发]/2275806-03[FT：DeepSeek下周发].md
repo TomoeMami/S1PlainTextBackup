@@ -1226,3 +1226,14 @@ Juice参数代表思考强度，有些公司会根据服务器压力调整下降
 大模型现在部署的时候说的降智操作。背后一般是怎么工程实现的 ...</blockquote>
 这个有很多方法，一般就调参数，降低思考深度，降低激活参数等等
 
+
+*****
+
+####  御坂MKII  
+##### 3079#       发表于 2026-7-20 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69940880&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-20 12:10</a>
+
+神秘模型画SVG有着极强的世界知识迁移能力，现在这些模型没训练过的东西性能就大幅下滑，然而神秘模型碰到 ...</blockquote>
+svg 就类比 css，本质还是代码而不是图。如果前端口味和多模态有关系那 gpt 就不会在有 gpt image2 的同时自己的前端还拉胯的不行
+
