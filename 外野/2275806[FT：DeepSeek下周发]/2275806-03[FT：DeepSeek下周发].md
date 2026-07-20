@@ -2528,3 +2528,13 @@ qwen3.8拉了吗？</blockquote>
 
 我个人猜测V4鸽了跟美国啥的没啥太大关系，感觉是被自己人k3狙击了导致的各种问题...<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  The_Ether_  
+##### 3210#       发表于 2026-7-21 06:00
+
+<blockquote>一般市民 发表于 2026-7-20 19:53
+老美在前几天不是也弄了个多模态的开源模型吗？规模也有1T吧，好像无人关心？ ...</blockquote>
+太拉了，不过也是开源前10唯一一个美国模型了
+
