@@ -939,3 +939,43 @@ Deepseek的智商有时候真是。。一言难尽
 
 首页上漂浮的分时段计费的链接好像删了，是不是说今天就不会上线了？
 
+
+*****
+
+####  cube  
+##### 3053#       发表于 2026-7-20 11:16
+
+梁子不会真的等下午3点股市收摊才发布吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千秋难诉  
+##### 3054#       发表于 2026-7-20 11:19
+
+要不等到纳斯达克开盘前再发布算了，主打一个不针对任何组织和个人
+
+*****
+
+####  舞以  
+##### 3055#       发表于 2026-7-20 11:19
+
+官方说了正式调价之前会提前一天发邮件通知，除非梁圣上线新模型之后还暂时不调价，否则今天肯定是没了，梁鸽了
+
+*****
+
+####  Tomek  
+##### 3056#       发表于 2026-7-20 11:20
+
+怎么还不来，等死我了
+
+—— 来自 HUAWEI VYG-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  发呆的龙虾  
+##### 3057#       发表于 2026-7-20 11:21
+
+咕咕咕。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
