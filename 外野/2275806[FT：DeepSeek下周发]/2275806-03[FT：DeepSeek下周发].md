@@ -2495,3 +2495,15 @@ qwen3.8拉了吗？</blockquote>
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  四氧化三铅  
+##### 3207#       发表于 2026-7-21 05:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69943831&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-21 03:36</a>
+我看知乎那个问题下面还是不少焦虑的人
+
+认为ds如果实锤中转的话，国模声誉就完蛋了</blockquote>
+有病吧，DS是开源模型，有没有调用外部模型你本地部署下白盒验证很容易就能分辨出来.....
+
