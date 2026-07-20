@@ -2246,3 +2246,37 @@ deepseek github页面有动静，难道开始了？
 
 qwen3.8拉了吗？
 
+
+*****
+
+####  overflowal  
+##### 3179#       发表于 2026-7-20 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69943115&amp;ptid=2275806" target="_blank">squallx 发表于 2026-7-20 19:24</a>
+qwen3.8拉了吗？</blockquote>
+qwen一般都比较拉    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  M乔梦  
+##### 3180#       发表于 2026-7-20 19:29
+
+本来还能看视频解解馋，虽然我没灰度到，但至少能望梅止渴。现在貌似所有人都坠机了<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gawain  
+##### 3181#       发表于 2026-7-20 19:34
+
+要从梁圣到牢梁了嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 3182#       发表于 2026-7-20 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69943115&amp;ptid=2275806" target="_blank">squallx 发表于 2026-7-20 19:24</a>
+qwen3.8拉了吗？</blockquote>
+传说昨天上错模型了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天没见人测
+
