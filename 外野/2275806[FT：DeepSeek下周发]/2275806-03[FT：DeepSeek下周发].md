@@ -2430,3 +2430,11 @@ qwen3.8拉了吗？</blockquote>
 
 放鸽子就是得批啊，难道还要大家不许骂哥哥，哥哥很努力了不成。
 
+
+*****
+
+####  qz66618  
+##### 3200#       发表于 2026-7-20 22:05
+
+主要是一声不吭就鸽了也太离谱了，早知现在何必当初发邮件，搞的一副胸有成竹的样子<img src="https://static.stage1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
