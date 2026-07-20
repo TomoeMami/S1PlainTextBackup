@@ -2192,3 +2192,57 @@ deepseek github页面有动静，难道开始了？
 
 —— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  drodchang  
+##### 3173#       发表于 2026-7-20 19:15
+
+<blockquote>舞以 发表于 2026-7-20 18:53
+炒作是对的，对llm lab来说，“有技术”的人设远比真的技术更重要
+
+国模之前的问题是除了ds的人设都不太行 ...</blockquote>
+不能这么说，有技术没技术，大家还是心里清楚的。不然minimax不会像现在这么虚。
+
+*****
+
+####  Promeus  
+##### 3174#       发表于 2026-7-20 19:16
+
+一般来说github变动意味着一周内上线吧，预览版就这么上线的
+
+*****
+
+####  neptunehs  
+##### 3175#       发表于 2026-7-20 19:17
+
+但所谓的github变动也就是deepgemm动了一下吧 点进去还没有commit
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  overflowal  
+##### 3176#       发表于 2026-7-20 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69943085&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-20 19:16</a>
+一般来说github变动意味着一周内上线吧，预览版就这么上线的</blockquote>
+一直都有维护的，没那么有指示性    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  舞以  
+##### 3177#       发表于 2026-7-20 19:23
+
+说不定只是ds里面哪个员工逗逗你们的呀
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  squallx  
+##### 3178#       发表于 2026-7-20 19:24
+
+qwen3.8拉了吗？
+
