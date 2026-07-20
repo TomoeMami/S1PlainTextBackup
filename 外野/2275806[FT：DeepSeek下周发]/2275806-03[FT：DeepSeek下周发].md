@@ -2335,3 +2335,29 @@ https://b23.tv/SaFqDKY
 
 还是最傻批的软封，我估计有牢美要不辱不用了
 
+
+*****
+
+####  舞以  
+##### 3189#       发表于 2026-7-20 19:49
+
+o/a两家也算是某种意义的大而不能倒了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+护盘这块奶龙还是很敏感的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nxmonitor  
+##### 3190#       发表于 2026-7-20 19:51
+
+美国公司已经用不起自己的AI了，尤其是创业公司必须要用开源的东西
+
+
+*****
+
+####  一般市民  
+##### 3191#       发表于 2026-7-20 19:53
+
+老美在前几天不是也弄了个多模态的开源模型吗？规模也有1T吧，好像无人关心？
+
