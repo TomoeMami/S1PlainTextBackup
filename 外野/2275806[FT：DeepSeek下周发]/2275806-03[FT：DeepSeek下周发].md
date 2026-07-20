@@ -1697,3 +1697,19 @@ linuxdo 上面太多开中转和薅羊毛的了，最近刚把马斯克的 grok4
 linuxdo 上面太多开中转和薅羊毛的了，最近刚把马斯克的 grok4.5 薅秃，我都不明白这些人闲工夫怎么这么多 ...</blockquote>
 薅羊毛是否本身就算是一种上班<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  酱狐狸  
+##### 3124#       发表于 2026-7-20 15:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">到头来，还是计划赶不上变化
+
+
+*****
+
+####  酱狐狸  
+##### 3124#       发表于 2026-7-20 15:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">到头来，还是计划赶不上变化
+
