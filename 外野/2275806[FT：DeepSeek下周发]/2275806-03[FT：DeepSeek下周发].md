@@ -1764,3 +1764,46 @@ linuxdo从我一个月没登录的号被无预警删除开始我就懒得看了<
 —— 来 ...</blockquote>
 Kimi 昨天套餐权益拆分了，现在又改回去了，我现在这边儿依然是可以正常订阅的没有显示售罄，你可以去看看
 
+
+*****
+
+####  千千千千鸟  
+##### 3130#       发表于 2026-7-20 16:05
+
+真的鸽了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 3131#       发表于 2026-7-20 16:07
+
+现在是剑指24号？
+
+*****
+
+####  overflowal  
+##### 3132#       发表于 2026-7-20 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69942127&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-20 16:07</a>
+现在是剑指24号？</blockquote>
+24号只是deepseek要停止-chat和deepseek-reasoner这两个名字的日期。没什么特殊意义    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  love4aids  
+##### 3133#       发表于 2026-7-20 16:09
+
+都4点了，这不铁定鸽了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蛋黄酱Release  
+##### 3134#       发表于 2026-7-20 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69942109&amp;ptid=2275806" target="_blank">厍无春 发表于 2026-7-20 16:03</a>
+Kimi 昨天套餐权益拆分了，现在又改回去了，我现在这边儿依然是可以正常订阅的没有显示售罄，你可以去看 ...</blockquote>
+我这显示的是全售罄<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
