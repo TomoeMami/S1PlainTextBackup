@@ -705,3 +705,44 @@ k3 的 genebench pro 也上去了
 
 是梁圣还是梁子我自有定夺    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  千千千千鸟  
+##### 3030#       发表于 2026-7-20 09:38
+
+要跳票了吗，我都把手上事情停了等新模型做了。<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 3031#       发表于 2026-7-20 09:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果第一方harness能一起来 那我原谅梁子拖更了
+
+*****
+
+####  午夜钓者  
+##### 3032#       发表于 2026-7-20 09:40
+
+全是出口转内销的消息<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  czhhws  
+##### 3033#       发表于 2026-7-20 09:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">诶，也不外乎多等几天。
+
+—— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  nxmonitor  
+##### 3034#       发表于 2026-7-20 09:46
+
+又看到15T这个数字了，不会真有个这个规模的东西吧？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
