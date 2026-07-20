@@ -2280,3 +2280,58 @@ qwen一般都比较拉    [Re:Source](https://stage1st.com/2b/thread-2275277-1
 qwen3.8拉了吗？</blockquote>
 传说昨天上错模型了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天没见人测
 
+
+*****
+
+####  Promeus  
+##### 3183#       发表于 2026-7-20 19:38
+
+另外奶龙疑似要封k3
+
+*****
+
+####  舞以  
+##### 3184#       发表于 2026-7-20 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69943167&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-20 19:38</a>
+另外奶龙疑似要封k3</blockquote>
+奶龙真封了的话，月之暗面赚大了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  2017.05.04  
+##### 3185#       发表于 2026-7-20 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69943167&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-20 19:38</a>
+
+另外奶龙疑似要封k3</blockquote>
+封得过来吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后面还一排
+
+*****
+
+####  f77887  
+##### 3186#       发表于 2026-7-20 19:43
+
+延期发布了<img src="https://p.sda1.dev/33/0927c328226dc94abe1a04050d91ece6/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  nxmonitor  
+##### 3187#       发表于 2026-7-20 19:45
+
+然后马上是各种中转站上来了，说实话OpenAI那个未来战略官说的软封可能才是更合适的办法
+
+*****
+
+####  Promeus  
+##### 3188#       发表于 2026-7-20 19:45
+
+https://b23.tv/SaFqDKY
+
+还是最傻批的软封，我估计有牢美要不辱不用了
+
