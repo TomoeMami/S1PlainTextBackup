@@ -1927,3 +1927,20 @@ k3都还能破，ds没道理忽然重甲吧。。。
 
 这种事出来之后再说。
 
+
+*****
+
+####  czhhws  
+##### 3149#       发表于 2026-7-20 17:34
+
+无了<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  love4aids  
+##### 3150#       发表于 2026-7-20 17:35
+
+5点半了，彻底鸽了
+
