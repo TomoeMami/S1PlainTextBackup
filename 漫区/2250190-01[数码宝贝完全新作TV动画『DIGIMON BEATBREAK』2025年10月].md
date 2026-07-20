@@ -42,3 +42,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">无限蓝的情况下坚决不杀生的京哥注定就赢不了吧，都快完结了是不是该究极体了
 
+
+*****
+
+####  西人  
+##### 698#       发表于 2026-7-20 10:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">40集了，DTCG那边也没新剧透，估计只有狗和壁虎有究极体了
+
