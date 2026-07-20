@@ -2163,3 +2163,32 @@ deepseek github页面有动静，难道开始了？
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Promeus  
+##### 3170#       发表于 2026-7-20 19:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69943000&amp;ptid=2275806" target="_blank">goranger 发表于 2026-7-20 18:56</a>
+deepseek github页面有动静，难道开始了？
+
+论坛助手,iPhone</blockquote>
+难道说？<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  アコ  
+##### 3171#       发表于 2026-7-20 19:11
+
+过完今晚就成牢字辈了
+
+*****
+
+####  zhongjie  
+##### 3172#       发表于 2026-7-20 19:12
+
+我懂了。要发邮件了，7月中旬发布是骗你的，峰谷价也是骗你的，价格还要比现在再降一半
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
