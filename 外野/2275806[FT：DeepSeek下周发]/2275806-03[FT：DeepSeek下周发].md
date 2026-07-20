@@ -2046,3 +2046,53 @@ KIMI的 三重额度限制太恶心了
 一周限制一次</blockquote>
 kimi 就是不实惠，给的额度换成 token 很少
 
+
+*****
+
+####  舞以  
+##### 3159#       发表于 2026-7-20 18:26
+
+问就是sota，请严肃打钱，问性价比就是不礼貌了啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  BarricadeMKXX  
+##### 3160#       发表于 2026-7-20 18:30
+
+下一个节点是24号下线老api端口，有希望吗
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  qz66618  
+##### 3161#       发表于 2026-7-20 18:32
+
+今晚九点半之前是最后机会，不发的话就等到周五吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a504583361  
+##### 3162#       发表于 2026-7-20 18:32
+
+ 本帖最后由 a504583361 于 2026-7-20 18:35 编辑 
+
+<img src="https://img.stage1st.com/forum/202607/20/183223abky2lss7s22ksul.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-20 18:32 上传
+
+给张图吧，免得说我喷国模
+
+199套餐 昨天晚上定的
+
+参考一下，本人是驱动工程师，今天只做了2个功能，一个MCU SPI驱动，一个SOC的DMA驱动（修改驱动的调用，不是从0开始构建驱动）
+
+消耗非常恐怖
+
