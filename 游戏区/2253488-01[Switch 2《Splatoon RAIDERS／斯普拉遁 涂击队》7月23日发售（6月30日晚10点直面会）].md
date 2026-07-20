@@ -678,3 +678,32 @@ pdd叠券能到260+
 
 话说鲑鱼有没有可能像章鱼一样 在下一作转正成可操作种族？
 
+
+*****
+
+####  shirolin  
+##### 255#       发表于 2026-7-20 10:57
+
+<blockquote>[freedom12](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69940395&amp;ptid=2253488) 发表于 07-20 10:52
+话说鲑鱼有没有可能像章鱼一样 在下一作转正成可操作种族？</blockquote>
+
+那样的话鲑鱼能参加打工吗？除非改造成非对称对抗PvP<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+——来自 Pixel 7a 上的 [S1er 客户端](https://s1er.pages.dev)
+
+
+*****
+
+####  freedom12  
+##### 256#       发表于 2026-7-20 11:00
+
+ 本帖最后由 freedom12 于 2026-7-20 11:04 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69940439&amp;ptid=2253488" target="_blank">shirolin 发表于 2026-7-20 10:57</a>
+
+那样的话鲑鱼能参加打工吗？除非改造成非对称对抗PvP
+
+——来自 Pixel 7a 上的 S1er 客户端 ...</blockquote>
+章鱼主角不也照样暴打章鱼将军
+
+如果非要计较剧情和玩法上的合理性，更应该担心的是熊老板都无了，4代打工还会不会有
+

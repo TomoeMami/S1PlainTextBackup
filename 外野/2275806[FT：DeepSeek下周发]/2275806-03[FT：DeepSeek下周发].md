@@ -893,3 +893,24 @@ Deepseek的智商有时候真是。。一言难尽
 
 —— 来自 Xiaomi 24072PX77C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  →熙←  
+##### 3048#       发表于 2026-7-20 11:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">不是,真鸽了?
+
+我还有几个超复杂的真实项目, 就等着了
+
+*****
+
+####  overflowal  
+##### 3049#       发表于 2026-7-20 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69940477&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-7-20 11:02</a>
+不是,真鸽了?
+
+我还有几个超复杂的真实项目, 就等着了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
