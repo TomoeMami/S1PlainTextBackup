@@ -788,3 +788,14 @@ pdd叠券能到260+
 
 天卓日本直邮，目前有点亮券-50的话是269。
 
+
+*****
+
+####  Antidote丶  
+##### 263#       发表于 2026-7-20 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69941385&amp;ptid=2253488" target="_blank">Beaverfan01 发表于 2026-7-20 13:48</a>
+
+天卓日本直邮，目前有点亮券-50的话是269。</blockquote>
+我怎么还要464
+
