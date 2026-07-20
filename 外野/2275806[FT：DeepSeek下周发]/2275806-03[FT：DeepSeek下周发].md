@@ -2454,3 +2454,21 @@ qwen3.8拉了吗？</blockquote>
 
 鲸鱼能有自己的智能体还是很期待的，现在用的cline明显性能有点跟不上，又懒得去折腾claude和codex，等ds的智能体出来了再迁移吧
 
+
+*****
+
+####  Quelaan  
+##### 3203#       发表于 2026-7-21 03:12
+
+大的会来吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  舞以  
+##### 3204#       发表于 2026-7-21 03:17
+
+梁子难得发了个预告，却输得这么彻底<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
