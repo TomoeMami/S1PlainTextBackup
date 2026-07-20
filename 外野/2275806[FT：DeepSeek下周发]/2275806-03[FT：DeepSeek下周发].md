@@ -979,3 +979,53 @@ Deepseek的智商有时候真是。。一言难尽
 
 —— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  RGm  
+##### 3058#       发表于 2026-7-20 11:22
+
+梁子重新定义中旬
+
+*****
+
+####  overflowal  
+##### 3059#       发表于 2026-7-20 11:22
+
+梁子！我正式版呢？！    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  zy450  
+##### 3060#       发表于 2026-7-20 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69940631&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-20 11:19</a>
+
+官方说了正式调价之前会提前一天发邮件通知，除非梁圣上线新模型之后还暂时不调价，否则今天肯定是没了，梁 ...</blockquote>
+印象里官方通知都是延迟的
+
+
+*****
+
+####  RGm  
+##### 3058#       发表于 2026-7-20 11:22
+
+梁子重新定义中旬
+
+*****
+
+####  overflowal  
+##### 3059#       发表于 2026-7-20 11:22
+
+梁子！我正式版呢？！    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  zy450  
+##### 3060#       发表于 2026-7-20 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69940631&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-20 11:19</a>
+
+官方说了正式调价之前会提前一天发邮件通知，除非梁圣上线新模型之后还暂时不调价，否则今天肯定是没了，梁 ...</blockquote>
+印象里官方通知都是延迟的
+
