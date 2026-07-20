@@ -1856,3 +1856,54 @@ kimi逻辑是差点，速度是慢点，但 前端能力确实厉害，卖光了
 
 不是卖光，是服务器不行了，实际上GLM和KIMI都这样，常年高峰期429
 
+
+*****
+
+####  舞以  
+##### 3141#       发表于 2026-7-20 16:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ds的api感觉还算稳定吧，不知道是他们技术牛逼还是算力够多
+gpt偶尔都莫名其妙降速
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nxmonitor  
+##### 3142#       发表于 2026-7-20 16:50
+
+当然是技术厉害，现在都没搞懂只排队不报429是怎么做出来的，这个便宜的价格也是因为这样
+
+*****
+
+####  革萌  
+##### 3143#       发表于 2026-7-20 16:51
+
+听说正式版将不能ghs
+
+*****
+
+####  cscbzcbz  
+##### 3144#       发表于 2026-7-20 16:52
+
+今天看来没戏了<img src="https://static.stage1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tk553521  
+##### 3145#       发表于 2026-7-20 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69942381&amp;ptid=2275806" target="_blank">革萌 发表于 2026-7-20 16:51</a>
+听说正式版将不能ghs</blockquote>
+不能ghs我不信<img src="https://static.stage1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  七氷  
+##### 3146#       发表于 2026-7-20 16:54
+
+咕，暂时降级为梁子
+
