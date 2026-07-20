@@ -744,3 +744,29 @@ pdd叠券能到260+
 
 鲑鱼的问题是太丑了，就这一点基本就不会像章鱼一样转正<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  conanoysq  
+##### 260#       发表于 2026-7-20 11:54
+
+买了个寨厂的涂击队外壳，增加的JC手把确实让手感变舒服了很多，但代价就是更重了，只能放大腿上玩了
+
+<img src="https://img.stage1st.com/forum/202607/20/115129rogrpjgrrijqi1zs.jpg" referrerpolicy="no-referrer">
+
+<strong>12adb7d0-2a4a-4b3b-9aa1-3fe491619f76.jpg</strong> (189.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-20 11:51 上传
+
+<img src="https://img.stage1st.com/forum/202607/20/115129cddq8jk7yt8y8dnz.jpg" referrerpolicy="no-referrer">
+
+<strong>47d99955-099e-4759-b3eb-6fabfc22015e.jpg</strong> (272.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-20 11:51 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
