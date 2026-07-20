@@ -540,3 +540,22 @@ minimax那必须先质疑再质疑了
 
 —— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  overflowal  
+##### 3012#       发表于 2026-7-20 07:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69939203&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-20 07:10</a>
+看到一张截图，说是要和harness一起发？那基本要推迟了…</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 3013#       发表于 2026-7-20 07:51
+
+<blockquote>wandeeees 发表于 2026-7-20 07:18
+截图也不一定真，之前类似的截图太多了主要是你要跳票也要提前说一声啊。总不至于到deadline了才说我要跳票 ...</blockquote>
+就是他们负责harness开发的发的
+
