@@ -1117,3 +1117,29 @@ cf235cfe76f3b6a191375fe92f87d750.jpg
 
 Kimi今天漏出来的新套餐，这个价格简直是在抢钱，估计之前老剧情又要重新产生了
 
+
+*****
+
+####  Promeus  
+##### 3069#       发表于 2026-7-20 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69940744&amp;ptid=2275806" target="_blank">御姐贾 发表于 2026-7-20 11:45</a>
+小梁子！我的正式版v4在哪！我已经一周没干活了！</blockquote>
+这帮逼人瞅着一点也不急啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不见不散  
+##### 3070#       发表于 2026-7-20 12:03
+
+梁嗨，我正式版呢？现在这左右互搏的思维链一天也用不下去了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  overflowal  
+##### 3071#       发表于 2026-7-20 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69940835&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-20 12:03</a>
+这帮逼人瞅着一点也不急啊</blockquote>
+他们急啥，老板都不急<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
