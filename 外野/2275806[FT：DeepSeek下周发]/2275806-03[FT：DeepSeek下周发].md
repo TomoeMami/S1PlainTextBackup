@@ -754,3 +754,37 @@ k3 的 genebench pro 也上去了
 
 说起来安全甲这个，目前看Hermes应该没啥问题，试了下kimi k3只要你的agent角色深度够就能把他带歪，完全带进角色模式。。。
 
+
+*****
+
+####  十点半  
+##### 3036#       发表于 2026-7-20 09:58
+
+刚才让DS调侃自己老板，稍作了修改：
+
+牢梁又借别人口说V4要发了。
+
+梁子的V4还在灰度测试。
+
+梁文锋的V4预览版跑分曝光。
+
+梁博士的V4正式版即将上线。
+
+梁先生的V4满血版性能直追GPT和A畜。
+
+全球AI首富梁圣的DeepSeek-V4正式版于今日抵达它忠实的服务器。
+
+*****
+
+####  cube  
+##### 3037#       发表于 2026-7-20 09:58
+
+梁子我模型呐？<img src="https://static.stage1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  wandeeees  
+##### 3038#       发表于 2026-7-20 09:59
+
+要推迟的话，现在上班了总该发个消息说推迟了把<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">总不至于一直就这样，连个消息都没有吧
+
