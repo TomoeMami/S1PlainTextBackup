@@ -1713,3 +1713,54 @@ linuxdo 上面太多开中转和薅羊毛的了，最近刚把马斯克的 grok4
 
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">到头来，还是计划赶不上变化
 
+
+*****
+
+####  villsian  
+##### 3125#       发表于 2026-7-20 15:58
+
+不如猜猜哪天发吧，盲猜一个24号。
+
+<img src="https://img.stage1st.com/forum/202607/20/155810prsyisz62whzzzri.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (54.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-20 15:58 上传
+
+*****
+
+####  蛋黄酱Release  
+##### 3126#       发表于 2026-7-20 16:00
+
+忍着没买kimi的套餐，想着今天正式版出来了测评一下再买，结果现在正式版没出，kimi套餐也售罄了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  Rowen233  
+##### 3127#       发表于 2026-7-20 16:00
+
+linuxdo从我一个月没登录的号被无预警删除开始我就懒得看了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nanazu  
+##### 3128#       发表于 2026-7-20 16:02
+
+我赌一个就在明天☝️
+
+*****
+
+####  厍无春  
+##### 3129#       发表于 2026-7-20 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69942089&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-7-20 16:00</a>
+忍着没买kimi的套餐，想着今天正式版出来了测评一下再买，结果现在正式版没出，kimi套餐也售罄了
+
+—— 来 ...</blockquote>
+Kimi 昨天套餐权益拆分了，现在又改回去了，我现在这边儿依然是可以正常订阅的没有显示售罄，你可以去看看
+
