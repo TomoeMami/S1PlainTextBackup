@@ -432,3 +432,20 @@ EX点满的人不少了，下一个要准备的戴冠战是骑，虽然更主要
 
 加雷斯10绊了我只能下掉一个礼装位，反正很难凑属性，下掉一个5%加成换成三个人都能吃到秩序善感觉也不是很亏
 
+
+*****
+
+####  zore  
+##### 47915#       发表于 2026-7-20 22:26
+
+做完任务跑路了，早一个月回坑也不会欠那么多绿方块
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1K个金苹果600个蓝苹果30多个梦火完全刷不动
+
+*****
+
+####  zore  
+##### 47916#       发表于 2026-7-20 22:26
+
+做完任务跑路了，早一个月回坑也不会欠那么多绿方块
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1K个金苹果600个蓝苹果30多个梦火完全刷不动
+

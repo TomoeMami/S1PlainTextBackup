@@ -2438,3 +2438,11 @@ qwen3.8拉了吗？</blockquote>
 
 主要是一声不吭就鸽了也太离谱了，早知现在何必当初发邮件，搞的一副胸有成竹的样子<img src="https://static.stage1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SmterC  
+##### 3201#       发表于 2026-7-20 22:32
+
+不抱有希望就不会被希望背叛    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
