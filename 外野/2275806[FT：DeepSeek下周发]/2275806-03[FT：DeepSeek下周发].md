@@ -2472,3 +2472,15 @@ qwen3.8拉了吗？</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  lactone  
+##### 3205#       发表于 2026-7-21 03:36
+
+我看知乎那个问题下面还是不少焦虑的人
+
+认为ds如果实锤中转的话，国模声誉就完蛋了
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
