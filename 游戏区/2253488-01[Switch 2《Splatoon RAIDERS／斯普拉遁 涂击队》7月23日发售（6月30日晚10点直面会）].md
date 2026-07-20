@@ -827,3 +827,15 @@ pdd叠券能到260+
 
 不过4代主线有4号应该是板上钉钉，野上恒就好这口
 
+
+*****
+
+####  shirolin  
+##### 267#       发表于 2026-7-20 17:03
+
+今天没有牙膏
+
+<img src="https://p.sda1.dev/33/b2cfca44bc9d34d72d4f938f15da8b1a/01KXZC6EC8DXCZX8ZJRVETE1D5.webp" referrerpolicy="no-referrer">
+
+——来自 Pixel 7a 上的 [S1er 客户端](https://s1er.pages.dev)
+
