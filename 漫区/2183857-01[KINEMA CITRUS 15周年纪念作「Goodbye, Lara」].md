@@ -1719,3 +1719,13 @@ OP的一部分镜头使用了赛璐珞画制作
 
 <img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">菈菈很傻很可爱，茉里这话说了四次白痴，笑死
 
+
+*****
+
+####  傘木希美  
+##### 181#       发表于 2026-7-20 10:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">让姨给打电话还行
+
+—— 来自 vivo V2454A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
