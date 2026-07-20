@@ -1430,3 +1430,36 @@ linux.do
 
 为什么梁下面要p个脉动<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 3100#       发表于 2026-7-20 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69941323&amp;ptid=2275806" target="_blank">chenyedgg 发表于 2026-7-20 13:35</a>
+
+反正这次DS灰测事件大概率就这几种结局：
+
+1.正式上线后水平和灰测正式版的差不多或者更强，狠狠打脸某些人 ...</blockquote>
+能打脸啥，这节奏本身就莫名其妙
+
+*****
+
+####  小川彩  
+##### 3101#       发表于 2026-7-20 13:53
+
+linuxdo之前就是装的比较好的fanzei窝 现在比较不装了而已
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  飛霞精灵  
+##### 3102#       发表于 2026-7-20 13:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69941379&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-7-20 13:47</a>
+
+为什么梁下面要p个脉动</blockquote>
+因为之前科比的康师傅冰红茶梗（配色和湖人球衣接近），脉动可能也是因为配色和DS的鲸鱼图表接近。
+
