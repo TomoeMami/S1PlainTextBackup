@@ -402,3 +402,15 @@ EX点满的人不少了，下一个要准备的戴冠战是骑，虽然更主要
 
 尤其小心御主等级低的，就算看上去满配的bba挂出来的，进本完全可能初始np不够，因为初始np是看枪阶总牵绊，在选助战界面真的是没有任何提示，只能通过御主等级高低去猜了
 
+
+*****
+
+####  khxooo  
+##### 47912#       发表于 2026-7-20 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69936626&amp;ptid=1712412" target="_blank">Kon-El 发表于 2026-7-19 10:40</a>
+我不理解，宝具本强化本都不打就给戴冠的，满配师匠牵绊礼装不选NP的
+
+—— 来自 OnePlus PKR110, Android  ...</blockquote>
+估计是那种不到减半不打强化本的神人吧，直接就删了。
+
