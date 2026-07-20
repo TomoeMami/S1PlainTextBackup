@@ -34,3 +34,11 @@
 蘑菇团说明后主角去找政府倒是说说看到丁香兽的事啊，好急</blockquote>
 蘑菇团没跟木星打过交道，可能以为丁香兽也是前水星的吧
 
+
+*****
+
+####  丹德里恩  
+##### 697#       发表于 2026-7-20 09:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">无限蓝的情况下坚决不杀生的京哥注定就赢不了吧，都快完结了是不是该究极体了
+

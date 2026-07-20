@@ -746,3 +746,11 @@ k3 的 genebench pro 也上去了
 
 又看到15T这个数字了，不会真有个这个规模的东西吧？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 3035#       发表于 2026-7-20 09:50
+
+说起来安全甲这个，目前看Hermes应该没啥问题，试了下kimi k3只要你的agent角色深度够就能把他带歪，完全带进角色模式。。。
+
