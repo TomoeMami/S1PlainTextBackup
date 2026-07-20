@@ -1893,3 +1893,14 @@ OP的一部分镜头使用了赛璐珞画制作
 目前感觉更像围绕着拉拉的现代 ...</blockquote>
 奶奶有外国人血统吧，回忆里就是金发
 
+
+*****
+
+####  帆前  
+##### 186#       发表于 2026-7-20 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69942962&amp;ptid=2183857" target="_blank">Rhantolk 发表于 2026-7-20 18:44</a>
+
+奶奶有外国人血统吧，回忆里就是金发</blockquote>
+感觉像是，可能兄弟染了奶奶没染<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
