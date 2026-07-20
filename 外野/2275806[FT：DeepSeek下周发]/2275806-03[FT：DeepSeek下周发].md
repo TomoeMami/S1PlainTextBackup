@@ -2361,3 +2361,14 @@ o/a两家也算是某种意义的大而不能倒了<img src="https://static.stag
 
 老美在前几天不是也弄了个多模态的开源模型吗？规模也有1T吧，好像无人关心？
 
+
+*****
+
+####  chenyedgg  
+##### 3192#       发表于 2026-7-20 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69943115&amp;ptid=2275806" target="_blank">squallx 发表于 2026-7-20 19:24</a>
+
+qwen3.8拉了吗？</blockquote>
+反正写作拉完了，做题和代码这方面可能不差，不过和kimi的距离不太清楚
+
