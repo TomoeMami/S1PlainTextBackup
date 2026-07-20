@@ -633,3 +633,24 @@ pdd叠券能到260+
 感觉还是得来一波G位才够刷……</blockquote>
 滚动条应该是怪物的描述界面，下面那一行没有滚动条的才是怪物类别，也看不出来有多少种
 
+
+*****
+
+####  shirolin  
+##### 250#       发表于 2026-7-20 09:06
+
+<blockquote>[KIRI小威](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69939506&amp;ptid=2253488) 发表于 07-20 08:51
+滚动条应该是怪物的描述界面，下面那一行没有滚动条的才是怪物类别，也看不出来有多少种</blockquote>
+
+确实看不出来
+
+——来自 Windows 11 Pro 上的 [S1er 客户端](https://github.com/Shirolin/s1er/releases/latest)
+
+
+*****
+
+####  shpdw  
+##### 251#       发表于 2026-7-20 09:10
+
+有人日亚发码了吗
+
