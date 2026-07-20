@@ -1463,3 +1463,20 @@ linuxdo之前就是装的比较好的fanzei窝 现在比较不装了而已
 为什么梁下面要p个脉动</blockquote>
 因为之前科比的康师傅冰红茶梗（配色和湖人球衣接近），脉动可能也是因为配色和DS的鲸鱼图表接近。
 
+
+*****
+
+####  phorcys02  
+##### 3103#       发表于 2026-7-20 14:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69941411&amp;ptid=2275806" target="_blank">小川彩 发表于 2026-7-20 13:53</a>
+
+linuxdo之前就是装的比较好的fanzei窝 现在比较不装了而已
+
+论坛助手,iPhone</blockquote>
+L站现在就是黑产贩子大本营啊
+
+别小看token黑产. 大黑产商每天流水很可怕的
+
+堵了人财路,可不是要跟你鱼死网破
+
