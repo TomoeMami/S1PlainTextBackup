@@ -1807,3 +1807,21 @@ Kimi 昨天套餐权益拆分了，现在又改回去了，我现在这边儿依
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  wandeeees  
+##### 3135#       发表于 2026-7-20 16:19
+
+第一次预告就要鸽吗，牢梁，就算要鸽好呆也发个消息吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  王兰花秀丽  
+##### 3136#       发表于 2026-7-20 16:24
+
+梁子至少发个公告吧<img src="https://static.stage1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
+
