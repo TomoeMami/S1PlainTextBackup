@@ -1880,3 +1880,16 @@ OP的一部分镜头使用了赛璐珞画制作
 小出的电波演出含量不大，但用之于日常就很舒服。果然我们少歌的人，演出实力根本就不是只靠电波而己，正常情节讲故事的能力也是很强的。
 <img src="https://p.sda1.dev/33/06a106dcf4c2bcff65d7aaf2aade954b/1000079440.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rhantolk  
+##### 185#       发表于 2026-7-20 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69942904&amp;ptid=2183857" target="_blank">帆前 发表于 2026-7-20 18:31</a>
+
+哦哦，再见拉拉也是越来越稳了，这集作为一个角色塑造回，简单而不失利落。
+
+目前感觉更像围绕着拉拉的现代 ...</blockquote>
+奶奶有外国人血统吧，回忆里就是金发
+
