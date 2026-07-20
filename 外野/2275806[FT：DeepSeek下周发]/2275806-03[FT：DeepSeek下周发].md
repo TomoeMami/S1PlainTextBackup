@@ -788,3 +788,49 @@ k3 的 genebench pro 也上去了
 
 要推迟的话，现在上班了总该发个消息说推迟了把<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">总不至于一直就这样，连个消息都没有吧
 
+
+*****
+
+####  nxmonitor  
+##### 3039#       发表于 2026-7-20 10:09
+
+DS的员工现在正在发饮料图串自己的老板呢……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 3040#       发表于 2026-7-20 10:09
+
+<blockquote>Azcarlo 发表于 2026-7-20 09:30
+据说可能要推迟几天等harness，x上看的，不保真
+
+另外DS员工开玩笑说路由到Fable</blockquote>
+这截图里的原话也没有等harness完成的意思，特别是如果需要明显延迟的话。反而像在回答harness的进度。
+
+
+*****
+
+####  52756901  
+##### 3041#       发表于 2026-7-20 10:10
+
+战略上跟着OPENAI做就完了，牢梁想太多
+
+*****
+
+####  御坂MKII  
+##### 3042#       发表于 2026-7-20 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69939609&amp;ptid=2275806" target="_blank">swessia 发表于 2026-7-20 09:10</a>
+
+借楼问一问，想用llm定期去链家贝壳上搜租房价格信息，该咋操作啊，接无头浏览器吗 ...</blockquote>
+这就看它反爬的力度了，可以从最简单的手段开始试
+
+*****
+
+####  heemoon  
+##### 3043#       发表于 2026-7-20 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69939609&amp;ptid=2275806" target="_blank">swessia 发表于 2026-7-20 09:10</a>
+借楼问一问，想用llm定期去链家贝壳上搜租房价格信息，该咋操作啊，接无头浏览器吗 ...</blockquote>
+我是做了个定期在小红书搜对应关键字然后抓取内容的，勉强能用，不过没用无头，看不到过程不放心<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
