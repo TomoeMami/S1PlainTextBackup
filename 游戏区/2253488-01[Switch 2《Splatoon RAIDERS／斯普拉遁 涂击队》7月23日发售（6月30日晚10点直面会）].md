@@ -707,3 +707,32 @@ pdd叠券能到260+
 
 如果非要计较剧情和玩法上的合理性，更应该担心的是熊老板都无了，4代打工还会不会有
 
+
+*****
+
+####  shirolin  
+##### 257#       发表于 2026-7-20 11:10
+
+<blockquote>[freedom12](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69940461&amp;ptid=2253488) 发表于 07-20 11:00
+章鱼主角不也照样暴打章鱼将军
+
+如果非要计较剧情和玩法上的合理性，更应该担心的是熊老板都无了，4代打工还会不会有</blockquote>
+
+有道理
+
+——来自 Windows 11 Pro 上的 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  shirolin  
+##### 258#       发表于 2026-7-20 11:11
+
+<blockquote>[freedom12](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69940461&amp;ptid=2253488) 发表于 07-20 11:00
+章鱼主角不也照样暴打章鱼将军
+
+如果非要计较剧情和玩法上的合理性，更应该担心的是熊老板都无了，4代打工还会不会有</blockquote>
+
+幕后不是小裁判猫接替了熊老板的棒子吗？打工肯定还能圆下去
+
+——来自 Windows 11 Pro 上的 [S1er 客户端](https://s1er.pages.dev)
+

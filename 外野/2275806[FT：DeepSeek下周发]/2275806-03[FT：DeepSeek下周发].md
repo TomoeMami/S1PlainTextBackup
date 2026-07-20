@@ -914,3 +914,28 @@ Deepseek的智商有时候真是。。一言难尽
 我还有几个超复杂的真实项目, 就等着了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  x分裂者  
+##### 3050#       发表于 2026-7-20 11:09
+
+梁子我正式版呢<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  neptunehs  
+##### 3051#       发表于 2026-7-20 11:14
+
+我天opencode的免费v4f卡的不会动 官方api也有点卡 难道说（已经等疯了
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  龙骑士尹志平  
+##### 3052#       发表于 2026-7-20 11:15
+
+首页上漂浮的分时段计费的链接好像删了，是不是说今天就不会上线了？
+
