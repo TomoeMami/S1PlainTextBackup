@@ -913,3 +913,18 @@ pdd叠券能到260+
 
 按惯例今天应该出分的
 
+
+*****
+
+####  shirolin  
+##### 276#       发表于 2026-7-21 20:49
+
+<blockquote>[Kiyohara_Yasuke](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947471&amp;ptid=2253488) 发表于 07-21 20:22
+今晚会出评测和打分么</blockquote>
+
+mc官推预告
+
+<img src="https://p.sda1.dev/33/43cade479619f70a6888c3fd53d85d14/Image_1784638135363.jpg" referrerpolicy="no-referrer">
+
+——来自 Pixel 7a 上的 [S1er 客户端](https://s1er.pages.dev)
+

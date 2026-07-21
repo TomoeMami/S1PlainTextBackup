@@ -3792,3 +3792,32 @@ https://github.com/YangWang92/open-open-reasoning    [Re:Source](https://stage
 
 只能 Opus 4.6 和 Gemini 3 Pro 轮着凑合用，真的没有比这俩更好的了。
 
+
+*****
+
+####  此誓的守望  
+##### 3326#       发表于 2026-7-21 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947153&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-21 18:49</a>
+
+我的zcode在选文件夹当工作区的界面新建文件夹稳定卡死，不知道是zcode的问题还是windows屎山的问题
+
+看起来 ...</blockquote>
+不要用gui，会变得不幸，我一直是用cli的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3327#       发表于 2026-7-21 20:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947506&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-7-21 20:36</a>
+
+真的很缺一个擅长中英文写作的 AI（起码擅长措辞）
+
+只能 Opus 4.6 和 Gemini 3 Pro 轮着凑合用，真的没有 ...</blockquote>
+我觉得GPT5.6sol在codex里写作还可以
+
+我最近用同样的skill，同样的细纲，让GPT5.6sol和K3分别写，然后成品给glm5.2和gemini3pro盲评，试了三次不同题材，gpt都赢了
+
+至于说其他的，我觉得和这俩同台竞技的资格都没有，glm有写完后自检和失败约束的情况下还一股子ai口癖，gemini3.1pro根本没办法好好遵循指令
+
