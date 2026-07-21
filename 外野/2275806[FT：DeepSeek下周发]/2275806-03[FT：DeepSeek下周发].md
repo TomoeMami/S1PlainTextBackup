@@ -4307,3 +4307,51 @@ https://www.zhihu.com/question/2063044886430061699
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  舞以  
+##### 3370#       发表于 2026-7-22 07:37
+
+我怀疑是不是anthropic已经被杨圣梁圣唐圣联合收购了，艾达王已经被他们三个在地下室狠狠开发了😭。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3371#       发表于 2026-7-22 07:37
+
+D指导现在口水真是淌一地，在我这里完全和gemini坐一桌了
+
+刚才让它评审4份一样细纲的草稿，明明有现成的评审skill没有调用就算了，居然还拉起来4个子agent一个分析一章，我提醒了一句你这样怎么做横评不应该是子agent每个负责一个评审角度吗，这才想起来自己搞错了
+
+再追问下去，没有启动评审skill，这个skill我让gpt写的时候特意明确了只要用评审、横评这样的字眼就会主动调用的
+
+
+*****
+
+####  lactone  
+##### 3372#       发表于 2026-7-22 07:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69948283&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-22 07:32</a>
+这我咋感觉真就是认知作战了
+毕竟“o/a才是真有技术，国模全靠蒸馏”是亚空间支柱
+“聪明的白皮（可惜并非 ...</blockquote>
+这本来就是认知作战，而且味道很浓
+
+知乎那个问题下面回答还正常，回答的回复里面就有不少味大的谜语人
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  舞以  
+##### 3373#       发表于 2026-7-22 07:44
+
+虽然我看不起月之暗面的商业模式，但是这波破大防的效果说明那些鼓吹ai咩鳖的傻卵似乎并不懂AI<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+说神秘模型是路由claude的更是鉴定为没用过闭源➗的模型
+杨圣这波真搂草打兔子了，意外之喜太多了。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
