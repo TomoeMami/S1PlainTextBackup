@@ -4035,3 +4035,14 @@ https://gofile.io/d/y1YpgY    [Re:Source](https://stage1st.com/2b/thread-22752
 https://gofile.io/d/y1YpgY    Re:Source ...</blockquote>
 术语一套套的，<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 3348#       发表于 2026-7-21 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947968&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-7-21 23:11</a>
+
+话说qwen 3.8能用吗？</blockquote>
+后训练没好真不太行，最多就是暂时很便宜
+
