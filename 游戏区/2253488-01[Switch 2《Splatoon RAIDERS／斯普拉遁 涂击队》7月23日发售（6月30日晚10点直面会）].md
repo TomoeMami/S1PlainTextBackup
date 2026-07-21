@@ -1318,3 +1318,34 @@ VGC  四星（8分）
 
 我是对3代英雄模式很满意，除了boss比预期少了点，无论是关卡外的探索，关卡内的设计，以及整个内容量都挺不错的
 
+
+*****
+
+####  ascomnet  
+##### 312#       发表于 2026-7-22 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69948098&amp;ptid=2253488" target="_blank">freedom12 发表于 2026-7-21 23:59</a>
+
+当年因为没中文，章鱼篇只是草草玩通，所以印象不太深刻
+
+它比3代英雄模式强吗？
+
+我是对3代英雄模式很满意， ...</blockquote>
+那你得去看看视频。不是一个玩法，
+
+*****
+
+####  hl氏  
+##### 313#       发表于 2026-7-22 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69948098&amp;ptid=2253488" target="_blank">freedom12 发表于 2026-7-21 23:59</a>
+
+当年因为没中文，章鱼篇只是草草玩通，所以印象不太深刻
+
+它比3代英雄模式强吗？
+
+我是对3代英雄模式很满意， ...</blockquote>
+风格不同，章鱼是挑战型关卡，单机是趣味性关卡
+
+章鱼我觉得最大的优点是终局有趣，潜行玩法、故事、演出都不错，最期待新作能达到章鱼的高度
+
