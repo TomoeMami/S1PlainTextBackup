@@ -4283,3 +4283,11 @@ https://www.zhihu.com/question/2063044886430061699
 
 今天才知道，唐杰居然是杨植麟的导师，不知道当年和杨争特奖的韩衍隽是什么感想。
 
+
+*****
+
+####  sosgame67  
+##### 3368#       发表于 2026-7-22 07:22
+
+说起来grok4.5的评价现在如何？我去年基本只是拿来玩玩短视频生成和网页端直接生成手枪文<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
