@@ -3104,3 +3104,55 @@ o/a两家订阅和api卖高价，但是好歹能保证可用性和速度。
 
 现在最便宜的plan是不是小米的，我平时要求不高，但是使用量挺大，基本都是自己懒得做的文件批量重命名或者YTB下载器啥的
 
+
+*****
+
+####  drodchang  
+##### 3264#       发表于 2026-7-21 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944903&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-21 11:05</a>
+
+我反正不喜欢月之暗面这种搞法的。
+
+o/a两家订阅和api卖高价，但是好歹能保证可用性和速度。
+
+想做中国a\没 ...</blockquote>
+这事不能全怪月之暗面，国内就是拿不到卡，就是算力紧张，资金也不如美国宽裕，如果没有算力问题，智谱现在的市值还要高得多。
+
+*****
+
+####  AEmpire  
+##### 3265#       发表于 2026-7-21 11:15
+
+没人提马圣的 grok4.5 吗，速度快的同时效果也不错，cursor 上额度给的也很慷慨，还有双倍活动，已经站起来蹬了一星期了 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  goranger  
+##### 3266#       发表于 2026-7-21 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944946&amp;ptid=2275806" target="_blank">passgan 发表于 2026-7-21 11:12</a>
+现在最便宜的plan是不是小米的，我平时要求不高，但是使用量挺大，基本都是自己懒得做的文件批量重命名或者 ...</blockquote>
+虽然minimax很垃圾，但如果不需要啥智商的话，它起码量不小还占个多模态，以及一些老模型都很便宜吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  星汐引力  
+##### 3267#       发表于 2026-7-21 11:23
+
+K3 前端还是牛的，我说这个页面丑，给我改好看一点，起码它真改好看了，这个 codex 都不一定做得到
+
+
+*****
+
+####  drodchang  
+##### 3268#       发表于 2026-7-21 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69945004&amp;ptid=2275806" target="_blank">星汐引力 发表于 2026-7-21 11:23</a>
+
+K3 前端还是牛的，我说这个页面丑，给我改好看一点，起码它真改好看了，这个 codex 都不一定做得到 ...</blockquote>
+gpt的前端一直不行，gpt强的是推理
+
