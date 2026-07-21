@@ -2572,3 +2572,15 @@ https://weibo.com/2126427211/5320586007938243
 
 唐圣对于下个版本glm超fable看来非常有信心。这一轮fable级模型爆发(四到五个)基本就是国产大模型的反攻号角了，再加上传言中各家手里捏了超大模型，OA可别让逮着了嗷，那你得遭老罪了<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王兰花秀丽  
+##### 3215#       发表于 2026-7-21 08:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69943953&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-21 07:53</a>
+https://weibo.com/2126427211/5320586007938243
+
+唐圣对于下个版本glm超fable看来非常有信心。这一轮fable ...</blockquote>
+某些股民简直像附骨之蛆，搞得国内平台没有讨论技术的空间    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
