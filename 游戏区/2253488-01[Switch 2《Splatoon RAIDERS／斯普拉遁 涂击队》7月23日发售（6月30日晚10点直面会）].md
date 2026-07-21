@@ -1197,3 +1197,34 @@ VGC  四星（8分）
 
 诸位坛友，等你们三周目我再来讨论！
 
+
+*****
+
+####  freedom12  
+##### 302#       发表于 2026-7-21 22:48
+
+<img src="https://img.stage1st.com/forum/202607/21/224748vm2mhbmkkxbfx03h.png" referrerpolicy="no-referrer">
+
+<strong>截屏2026-07-21 22.47.32.png</strong> (27.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-21 22:47 上传
+
+看着像是4个副武器，但是左下角的那个不一样，是墨水罐的图标，不知道是什么用的
+
+*****
+
+####  墨染白泉  
+##### 303#       发表于 2026-7-21 22:52
+
+终局耐刷度就看这个了
+
+<img src="https://img.stage1st.com/forum/202607/21/225226tfhfm994nxziqgfg.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1784645240128_225.jpg</strong> (23.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-21 22:52 上传
+

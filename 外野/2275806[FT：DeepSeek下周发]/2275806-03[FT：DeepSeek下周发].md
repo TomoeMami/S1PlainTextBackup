@@ -3937,3 +3937,47 @@ deepseek这样每次动不动就写一大坨真的受不了<img src="https://sta
 
 只要把七月的时间定义为无限，那么七月中旬就永远不会到来，永无止境的七月，梁宫春日，堂堂登场<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 3339#       发表于 2026-7-21 22:54
+
+Qwen Image 3.0 非常不错 prompt的理解能力超级到位。感觉暴打可灵和即梦
+
+*****
+
+####  舞以  
+##### 3340#       发表于 2026-7-21 22:54
+
+那正式版会不会是一个跳票的平庸模型呢😡
+梁文锋，我正式版呢！😡😡😡
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  goranger  
+##### 3341#       发表于 2026-7-21 22:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947766&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-21 22:01</a>
+go我记得说是一个月10刀订阅费用，给60刀额度，这个5刀和60刀比的话不就是蚊子腿了么
+
+论坛助手,iPhone ...</blockquote>
+我以为这五刀=十刀订阅费的1/2
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舞以  
+##### 3342#       发表于 2026-7-21 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947927&amp;ptid=2275806" target="_blank">goranger 发表于 2026-7-21 22:55</a>
+我以为这五刀=十刀订阅费的1/2
+
+论坛助手,iPhone</blockquote>
+我一开始也是这么认为的，还想着开个小号，后来仔细看原来是额度<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
