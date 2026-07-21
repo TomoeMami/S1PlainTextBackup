@@ -3773,3 +3773,12 @@ harness 这个名词很多时候在被介绍的时候都是以负面案例引出
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  王兰花秀丽  
+##### 3324#       发表于 2026-7-21 20:02
+
+最近传说的所谓“智谱攻破了Claude思维链”
+https://github.com/YangWang92/open-open-reasoning    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

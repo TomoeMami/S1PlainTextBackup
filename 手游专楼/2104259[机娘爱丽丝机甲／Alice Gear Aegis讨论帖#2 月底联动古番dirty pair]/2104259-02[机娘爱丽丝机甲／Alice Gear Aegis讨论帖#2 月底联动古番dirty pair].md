@@ -243,3 +243,26 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在是一年出一次fa了吗
 
+
+*****
+
+####  不灭的旋律  
+##### 2055#       发表于 2026-7-21 19:59
+
+基本确定23号复刻不会有任何新卡，29号半周年直播会公布声优为内田秀的新女演员（aina or 英国跪族？），月底新活动。
+
+内田秀英语好可能是英国佬，但你游又用不上啊
+
+
+*****
+
+####  江戸前ルナ  
+##### 2056#         楼主| 发表于 2026-7-21 20:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947395&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2026-7-21 19:59</a>
+
+基本确定23号复刻不会有任何新卡，29号半周年直播会公布声优为内田秀的新女演员（aina or 英国跪族？），月 ...</blockquote>
+会不会是主线剩下的那个藤原会长啊？
+
+她是英国佬不（忘了
+
