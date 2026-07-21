@@ -3463,3 +3463,27 @@ Harness不就是开发管线么，
 
 具体实现每一个开发步骤的就是skill，Sub-Agent监工/小组长负责审核产出然后上报到资产库<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">天天发明黑话
 
+
+*****
+
+####  Processed  
+##### 3294#       发表于 2026-7-21 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69945490&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-7-21 12:45</a>
+我本来以为桌面端的应用就是Agent。但是Harness这个概念出来以后，我又迷惑了。今早找了一早上的资料，还 ...</blockquote>
+其实说白了就是AI现在的思想方式太发散，要采用人类的工程经验收束其思维
+
+至于这些黑话根本不用理解，过个一年半载就会变成AI标配
+
+*****
+
+####  Azcarlo  
+##### 3295#       发表于 2026-7-21 13:00
+
+简单的讲Agent=model+harness
+当然这是这个圈子发明的黑话，搞清楚没什么大用
+有兴趣可以看huggingface的这篇
+https://huggingface.co/blog/agent-glossary
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
