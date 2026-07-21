@@ -3225,3 +3225,13 @@ K3等27号开源吧，估计Ollama、Fireworks、Novita之类的手握一堆B300
 
 Let me 发布DeepSeek V4 正式版，but wait 自家的 harness 马上要发布了，我还是延期一下一起发布吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wiwiluo  
+##### 3276#       发表于 2026-7-21 12:07
+
+刷到有公众号说这次要和自己的harness 一起发布
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
