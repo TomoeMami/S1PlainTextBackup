@@ -886,3 +886,14 @@ pdd叠券能到260+
 
 2026-7-21 17:19 上传
 
+
+*****
+
+####  shirolin  
+##### 273#       发表于 2026-7-21 17:33
+
+漫画里鲑鱼第一次登场……
+<img src="https://p.sda1.dev/33/feedf34c62b4c8698b61df0c9e43155e/Screenshot_20260721-165238.png" referrerpolicy="no-referrer">
+
+——来自 Pixel 7a 上的 [S1er 客户端](https://s1er.pages.dev)
+
