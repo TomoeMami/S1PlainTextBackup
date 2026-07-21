@@ -449,3 +449,11 @@ EX点满的人不少了，下一个要准备的戴冠战是骑，虽然更主要
 做完任务跑路了，早一个月回坑也不会欠那么多绿方块
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1K个金苹果600个蓝苹果30多个梦火完全刷不动
 
+
+*****
+
+####  GALLADE  
+##### 47917#       发表于 2026-7-21 18:55
+
+30梦火所长一出分分钟的，现在缺的只有梦火
+

@@ -3740,3 +3740,15 @@ API 炸了，梁子在发布吗？
 我用zcode调用deepseek官方API缓存率0%，很奇怪</blockquote>
 提示词里问题吧？怎么也不可能是零啊
 
+
+*****
+
+####  舞以  
+##### 3321#       发表于 2026-7-21 18:49
+
+ 本帖最后由 舞以 于 2026-7-21 18:51 编辑 
+
+我的zcode在选文件夹当工作区的界面新建文件夹稳定卡死<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不知道是zcode的问题还是windows屎山的问题
+
+看起来虽然codex的桌面端也是卡的一比，但是好歹是能正常用的。
+
