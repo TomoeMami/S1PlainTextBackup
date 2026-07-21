@@ -78,3 +78,20 @@
 
 —— 来自 Xiaomi 2211133C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  杉田悠一  
+##### 60#       发表于 2026-7-21 08:30
+
+我去，鹅数直接显示在名字后了，就还蛮直观的厚<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，
+
+—— 来自 Xiaomi 25098PN5AC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  dybang  
+##### 61#       发表于 2026-7-21 08:32
+
+新版字太大了，又换回旧版了
+
