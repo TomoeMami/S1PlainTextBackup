@@ -4157,3 +4157,15 @@ https://gofile.io/d/y1YpgY    Re:Source ...</blockquote>
 
 这篇檄文充斥着，比肥波高就是作弊刷分刷榜、和肥波差不多就是路由到肥波、都是蒸馏（从思维链蒸馏到工具调用蒸馏一切），所有国模<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 3358#       发表于 2026-7-22 05:54
+
+昨天那个说k3蒸馏的谣言已经传开了
+
+知乎都有好几个问题了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
