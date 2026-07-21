@@ -365,3 +365,16 @@ dmm那边上了，打3000吧
 —— 来自 realme RMX6699, Android 16,  ...</blockquote>
 绿叔叔我是最后处理的，问题不大，你只要保证fa78还活着就能收掉，记得要sp化，有sp的fa78随便打
 
+
+*****
+
+####  冰风血羽  
+##### 4551#       发表于 2026-7-22 05:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947773&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2026-7-21 22:03</a>
+绿叔叔我是最后处理的，问题不大，你只要保证fa78还活着就能收掉，记得要sp化，有sp的fa78随便打 ...</blockquote>
+倾尽全力保住了FA78最后血皮1V1一个暴击收头拿下鸭子，我原来以为二队机师也要全UC所以才打得跟吃屎一样<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+另外一边有拉拉的通信难度简直不是一个等级的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
