@@ -2213,3 +2213,14 @@ Staff
 
 感觉四五六七分别是，同学回，卢卡回，茉里家庭回，面包店回，第八集茉里拳击赛，第九集开始推主线
 
+
+*****
+
+####  堆雪若叶  
+##### 200#       发表于 2026-7-21 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944878&amp;ptid=2183857" target="_blank">暗黑能乐 发表于 2026-7-21 11:02</a>
+
+还有个对比，菈菈第一次被茉里说家里没法留她的时候移开视线了，但后面夕阳下回家那里没有移开视线。再加 ...</blockquote>
+虽然拉拉对姨妈说自己做不到利用她人，但每次一哭哭都让茉里服软，真是天生红颜祸水<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
