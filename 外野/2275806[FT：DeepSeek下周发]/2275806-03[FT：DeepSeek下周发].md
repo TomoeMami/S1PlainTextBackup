@@ -2592,3 +2592,30 @@ https://weibo.com/2126427211/5320586007938243
 
 我劝你们不要对ds的智能体抱有什么太大的期望，智能体软件是个大工程，细节非常多，ds团队才组建多久
 
+
+*****
+
+####  overflowal  
+##### 3217#       发表于 2026-7-21 08:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944027&amp;ptid=2275806" target="_blank">lowezack 发表于 2026-7-21 08:26</a>
+我劝你们不要对ds的智能体抱有什么太大的期望，智能体软件是个大工程，细节非常多，ds团队才组建多久
+
+这就 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  SmterC  
+##### 3218#       发表于 2026-7-21 08:34
+
+中旬这几天每天都睡不好
+
+睡醒了看看正式版发布没，然后看到没发布心凉半截睡意全无
+
+睡不着了就爬起来尝试新会话看能不能灰度，灰度了还得担心会不会截断时不时惊醒看一眼opencode是否还在输出
+
+现在好了，中旬过了，一点动静都没有
+
+昨天睡眠深睡两个半小时，是这几天睡得最好的一次
+

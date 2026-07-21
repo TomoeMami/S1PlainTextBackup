@@ -284,3 +284,14 @@ dmm那边上了，打3000吧
 
 难得有一次活动给的券把两个新的都抽到了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电脑死机  
+##### 4544#       发表于 2026-7-21 08:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69941309&amp;ptid=2071758" target="_blank">里村紅葉 发表于 2026-7-20 13:33</a>
+
+难得有一次活动给的券把两个新的都抽到了</blockquote>
+我那边是送的券出了挑染+肥鸭，普池券出了克队+风灵，赚翻了
+
