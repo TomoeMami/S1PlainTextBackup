@@ -2741,3 +2741,36 @@ pi也就要装node和npm比较大部头，莫非要搞个nanobot那种的吗
 
 牢梁思维链 ：不按计划发布会导致股东不满。等等，我就是DeepSeek最大股东，我不会不满。好的，让我延迟发布。
 
+
+*****
+
+####  zhongjie  
+##### 3232#       发表于 2026-7-21 10:18
+
+Gemini 3.6 flash好像灰度了，谷歌这是什么打法？
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  蜗塞塞  
+##### 3233#       发表于 2026-7-21 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69943854&amp;ptid=2275806" target="_blank">四氧化三铅 发表于 2026-7-21 05:47</a>
+
+我个人猜测V4鸽了跟美国啥的没啥太大关系，感觉是被“自己人”k3狙击了导致的各种问题...毕竟从商业角度这 ...</blockquote>
+就K3和v4灰度各种oneshot的表现，再加上k3那个价格，没觉得会有被吓到的可能吧。
+
+*****
+
+####  qz66618  
+##### 3234#       发表于 2026-7-21 10:23
+
+所以说为什么延期呢，按理说提前发预告就说明训练已经基本完成了。
+（1）被k3性能吓到了，回炉提升去了。
+（2）模型部署出现问题。
+（3）harness团队说harness快开发完成了，让模型延期和他一起发。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
