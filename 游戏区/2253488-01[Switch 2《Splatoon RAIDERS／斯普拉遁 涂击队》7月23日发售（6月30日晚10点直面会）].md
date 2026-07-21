@@ -1170,3 +1170,20 @@ VGC  四星（8分）
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">草看了访谈才知道原来打工里的大鲑鱼的名字都是乌贼起的，为了能在队友间快速传达
 
+
+*****
+
+####  ubiquity  
+##### 299#       发表于 2026-7-21 22:21
+
+ 本帖最后由 ubiquity 于 2026-7-21 22:23 编辑 
+
+机动性惊人，可以一直在天上飞了 https://b23.tv/c6JNCab
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 300#       发表于 2026-7-21 22:23
+
+看完访谈现在只有一个字：急
+
