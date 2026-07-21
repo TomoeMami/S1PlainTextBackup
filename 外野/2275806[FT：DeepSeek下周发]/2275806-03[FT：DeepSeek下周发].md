@@ -4076,3 +4076,26 @@ https://gofile.io/d/y1YpgY    Re:Source ...</blockquote>
 
 2026-7-21 23:52 上传
 
+
+*****
+
+####  goranger  
+##### 3351#       发表于 2026-7-21 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947967&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-7-21 23:11</a>
+本来不想搬屎的，还是发过来给大家看看有些人有多恨
+
+https://gofile.io/d/y1YpgY    Re:Source ...</blockquote>
+隔壁群说这个是15岁小孩用llm写的八股文<img src="https://static.stage1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nianiania  
+##### 3352#       发表于 2026-7-21 23:57
+
+qoder 错峰折扣的 qwen3.8 虽然便宜，但是动不动就服务器错误把我弄麻了，时间全花在点继续上面了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
