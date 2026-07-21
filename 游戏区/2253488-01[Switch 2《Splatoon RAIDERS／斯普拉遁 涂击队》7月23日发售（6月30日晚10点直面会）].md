@@ -952,3 +952,28 @@ MC均分81分
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Beaverfan01  
+##### 280#       发表于 2026-7-21 21:10
+
+IGN90，VGC80，GameSpot80，原本82，刚才看多了一个红评变成了80。
+
+
+*****
+
+####  ubiquity  
+##### 281#       发表于 2026-7-21 21:11
+
+野上早就高升了
+
+*****
+
+####  JOJOROY  
+##### 282#       发表于 2026-7-21 21:11
+
+[https://www.nintendo.com/hk/interview/aadla/index.html](https://www.nintendo.com/hk/interview/aadla/index.html) 
+
+中文访谈
+
