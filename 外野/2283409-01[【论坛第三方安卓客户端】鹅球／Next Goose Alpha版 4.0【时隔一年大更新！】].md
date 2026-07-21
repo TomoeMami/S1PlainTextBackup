@@ -106,3 +106,38 @@
 新版字太大了，又换回旧版了</blockquote>
 不是一直能调字号吗，你是指用最小字号还太大？
 
+
+*****
+
+####  dybang  
+##### 63#       发表于 2026-7-21 13:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944885&amp;ptid=2283409" target="_blank">pgain2004 发表于 2026-7-21 11:03</a>
+不是一直能调字号吗，你是指用最小字号还太大？</blockquote>
+
+<img src="https://img.stage1st.com/forum/202607/21/135036djf59dfg59ggjuj2.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1784613034331_1.webp</strong> (132.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-21 13:50 上传
+
+<img src="https://img.stage1st.com/forum/202607/21/135036hzz03xm1xk7s8p8h.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1784613034711_2.webp</strong> (123.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-21 13:50 上传
+
+<img src="https://img.stage1st.com/forum/202607/21/135036smbcmlbbdzb8k4c6.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1784613035048_3.webp</strong> (143.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-21 13:50 上传
+
+分别是旧版普通，新版普通，新版小号
+

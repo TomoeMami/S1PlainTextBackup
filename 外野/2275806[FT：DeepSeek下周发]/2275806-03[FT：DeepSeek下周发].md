@@ -3575,3 +3575,14 @@ ollama有订阅，额度还可以。
 —— 来自 HUAWEI SGU-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
 看了一下官网感觉这个好，至少外观上是完美的codex备用啊）之前用workbuddy，开了项目还不能用自己的api，非得订阅，真是恶心人
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3304#       发表于 2026-7-21 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69945669&amp;ptid=2275806" target="_blank">江月下 发表于 2026-7-21 13:32</a>
+
+看了一下官网感觉这个好，至少外观上是完美的codex备用啊）之前用workbuddy，开了项目还不能用自己的api ...</blockquote>
+zcode添加其他模型挺方便的。而且这个已经默认配置好了飞书bot和微信bot，虽然不像codex那样可以直接通过app使用codex本体，但是通过bot远程使用也算方便了，不像其他的agent比如opencode还得自己配置一个
+
