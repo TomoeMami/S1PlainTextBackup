@@ -2726,3 +2726,18 @@ pi不适合商用，还是抄codex吧
 
 要想做非coding的computer use agent的话，多模态还是必须的，不然会很难受    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  scikirbypoke  
+##### 3230#       发表于 2026-7-21 09:55
+
+pi也就要装node和npm比较大部头，莫非要搞个nanobot那种的吗
+
+*****
+
+####  Promeus  
+##### 3231#       发表于 2026-7-21 09:57
+
+牢梁思维链 ：不按计划发布会导致股东不满。等等，我就是DeepSeek最大股东，我不会不满。好的，让我延迟发布。
+
