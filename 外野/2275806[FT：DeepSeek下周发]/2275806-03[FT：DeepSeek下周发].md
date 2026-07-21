@@ -3553,3 +3553,25 @@ harness就理解成一套针对特定场景设计和优化的脚手架就行。
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  startraveller  
+##### 3302#       发表于 2026-7-21 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69945208&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-21 11:52</a>
+这些neocloud都是对标官方定价，甚至更高的。说实话没啥用。谁特么用的起3/15刀的原价api ...</blockquote>
+ollama有订阅，额度还可以。
+
+*****
+
+####  江月下  
+##### 3303#       发表于 2026-7-21 13:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69945506&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-21 12:47</a>
+
+那不正好有一比一复刻codex的zcode
+
+—— 来自 HUAWEI SGU-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
+看了一下官网感觉这个好，至少外观上是完美的codex备用啊）之前用workbuddy，开了项目还不能用自己的api，非得订阅，真是恶心人
+
