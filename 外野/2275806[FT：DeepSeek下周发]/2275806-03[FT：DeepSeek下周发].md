@@ -3199,3 +3199,29 @@ open code go？
 
 不知道梁子本人有没有想到做ds会把他变成一个互联网符号<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  startraveller  
+##### 3273#       发表于 2026-7-21 11:49
+
+K3等27号开源吧，估计Ollama、Fireworks、Novita之类的手握一堆B300的neocloud都会上。
+
+
+*****
+
+####  overflowal  
+##### 3274#       发表于 2026-7-21 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69945189&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-7-21 11:49</a>
+
+K3等27号开源吧，估计Ollama、Fireworks、Novita之类的手握一堆B300的neocloud都会上。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这些neocloud都是对标官方定价，甚至更高的。说实话没啥用。谁特么用的起3/15刀的原价api
+
+*****
+
+####  Hattle  
+##### 3275#       发表于 2026-7-21 11:57
+
+Let me 发布DeepSeek V4 正式版，but wait 自家的 harness 马上要发布了，我还是延期一下一起发布吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
