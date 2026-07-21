@@ -2939,3 +2939,61 @@ k3真能吓到ds么，就那个可及性和价格，闹麻了。
 
 事已至此，先用k3吧，唉
 
+
+*****
+
+####  舞以  
+##### 3250#       发表于 2026-7-21 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944773&amp;ptid=2275806" target="_blank">goranger 发表于 2026-7-21 10:40</a>
+
+我总感觉潭友似乎知道点啥
+
+论坛助手,iPhone</blockquote>
+我要真知道就不会在这里嗷嗷叫了喵<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+也不知道为啥都鸽了不发个公告，要么是不会鸽多久，要么是ds有自己的七月中。
+
+*****
+
+####  我猫呢?  
+##### 3251#       发表于 2026-7-21 10:46
+
+那么现在没有订阅k3的用户怎么能用上k3呢，网页版对话都要会员也是闹麻了
+
+*****
+
+####  nxmonitor  
+##### 3252#       发表于 2026-7-21 10:47
+
+不可能炸炉，就灰测的checkpoint端出来都够了，不如说担心服务器爆炸
+
+*****
+
+####  goranger  
+##### 3253#       发表于 2026-7-21 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944801&amp;ptid=2275806" target="_blank">我猫呢? 发表于 2026-7-21 10:46</a>
+那么现在没有订阅k3的用户怎么能用上k3呢，网页版对话都要会员也是闹麻了</blockquote>
+open code go？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  overflowal  
+##### 3254#       发表于 2026-7-21 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944616&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-7-21 10:18</a>
+Gemini 3.6 flash好像灰度了，谷歌这是什么打法？
+
+—— 来自 HONOR AAP-AN00, Android 16, 鹅球 v4.0-alph ...</blockquote>
+nobody care.他们的核心成员跑了一串了<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 3255#       发表于 2026-7-21 10:49
+
+和K3关系也比较小，K3可能就前端审美更强，甚至只是“审美”而不是空间感知，价格还差这么多
+
