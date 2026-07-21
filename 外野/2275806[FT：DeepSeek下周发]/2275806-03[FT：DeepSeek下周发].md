@@ -4275,3 +4275,11 @@ https://www.zhihu.com/question/2063044886430061699
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  drodchang  
+##### 3367#       发表于 2026-7-22 06:39
+
+今天才知道，唐杰居然是杨植麟的导师，不知道当年和杨争特奖的韩衍隽是什么感想。
+
