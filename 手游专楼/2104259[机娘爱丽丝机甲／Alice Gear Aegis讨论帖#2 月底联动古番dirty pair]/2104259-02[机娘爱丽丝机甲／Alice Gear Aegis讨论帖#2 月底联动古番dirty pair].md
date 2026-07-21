@@ -289,3 +289,11 @@
 害我搜了一下是谁，我说的就是她啊。英国组最后一位，唐宁街正米字旗的老牌贵族。不过内田秀是澳大利亚出 ...</blockquote>
 殖民地腔，不就很符合现在大英的唐宁街<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 2059#       发表于 2026-7-21 21:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">说起来我记得矮唯有个长发造型的啊，难道不是出ST顺便回收了（（
+

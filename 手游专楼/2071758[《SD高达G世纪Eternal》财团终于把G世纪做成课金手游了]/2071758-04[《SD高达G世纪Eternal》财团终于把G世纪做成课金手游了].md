@@ -352,3 +352,16 @@ dmm那边上了，打3000吧
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  洛克萨斯  
+##### 4550#       发表于 2026-7-21 22:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947522&amp;ptid=2071758" target="_blank">冰风血羽 发表于 2026-7-21 20:41</a>
+
+看了思路视频发现折腾半天一炮秒不掉绿叔叔我就知道没办法打了
+
+—— 来自 realme RMX6699, Android 16,  ...</blockquote>
+绿叔叔我是最后处理的，问题不大，你只要保证fa78还活着就能收掉，记得要sp化，有sp的fa78随便打
+

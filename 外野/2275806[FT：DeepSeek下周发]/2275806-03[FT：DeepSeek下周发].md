@@ -3871,3 +3871,27 @@ https://github.com/YangWang92/open-open-reasoning    [Re:Source](https://stage
 语料训练明明中文比英文好，<img src="https://static.stage1st.com/image/smiley/nq/013.gif" referrerpolicy="no-referrer">
 早该和电力学一样定义一下了。
 
+
+*****
+
+####  舞以  
+##### 3332#       发表于 2026-7-21 22:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947711&amp;ptid=2275806" target="_blank">goranger 发表于 2026-7-21 21:46</a>
+潭友有用opencode go的话，那个邀请奖励的5美金，是只能抵扣使用额度，不能抵扣订阅费用是吗？我看了看好像 ...</blockquote>
+go我记得说是一个月10刀订阅费用，给60刀额度，这个5刀和60刀比的话不就是蚊子腿了么<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  水風船  
+##### 3333#       发表于 2026-7-21 22:04
+
+问一下坛友们有没有grok羊毛的路子，或者只是偶尔随便写点东西有除了deepseek以为的性价比选择吗
+
+我还是更喜欢gemini和grok那样先进行设定解说，创作一点点，再问你接下来要如何发展的风格。
+
+deepseek这样每次动不动就写一大坨真的受不了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
