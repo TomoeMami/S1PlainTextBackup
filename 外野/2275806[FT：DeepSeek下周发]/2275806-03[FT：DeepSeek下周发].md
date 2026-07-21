@@ -3821,3 +3821,31 @@ https://github.com/YangWang92/open-open-reasoning    [Re:Source](https://stage
 
 至于说其他的，我觉得和这俩同台竞技的资格都没有，glm有写完后自检和失败约束的情况下还一股子ai口癖，gemini3.1pro根本没办法好好遵循指令
 
+
+*****
+
+####  ayanamilin  
+##### 3328#       发表于 2026-7-21 21:15
+
+ 本帖最后由 ayanamilin 于 2026-7-21 21:16 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947555&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-21 20:54</a>
+
+我觉得GPT5.6sol在codex里写作还可以
+
+我最近用同样的skill，同样的细纲，让GPT5.6sol和K3分别写，然后成 ...</blockquote>
+你的使用场景对文字功底和组织能力要求高吗<img src="https://static.stage1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">现在大部分 AI 写个小说、论文啥的还能应付（反正读者也不会揪细节）
+
+我对 AI 写作能力的要求是，要能达到体制内文章的及格水准。
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3329#       发表于 2026-7-21 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947615&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-7-21 21:15</a>
+你的使用场景对文字功底和组织能力要求高吗现在大部分 AI 写个小说、论文啥的还能应付（反正读者也不会揪 ...</blockquote>
+确实只是写小说
+不过我觉得开放写作这一块，主要吃模型的指令遵循程度和agent的能力，gpt遵循能力强Codex本身也很不错，我觉得比用opencode约束的k3强多了，而剩下的指令遵循能力真不行
+
+—— 来自 HUAWEI WGRR-W19, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
