@@ -356,3 +356,28 @@ AI如履薄冰，能撑到年底吗？<img src="https://static.stage1st.com/imag
 
 我知道为什么要ban掉我们的AI模型，当然是我们的模型会告诉用户们鱿鱼做了什么啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YOYORA  
+##### 42#       发表于 2026-7-21 14:02
+
+欧美的大公司都快要接受不了ai的使用费用了，真能忍住不用老钟的开源产品?开公司不为了利润，难道是为了给A\和O/上供吗
+
+*****
+
+####  yoki42  
+##### 43#       发表于 2026-7-21 14:03
+
+宁要资本主义草，不要社会主义苗！
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  尼曼兔  
+##### 44#       发表于 2026-7-21 14:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">发硬件锁，只要部署中国开源模型都直接爆炸
+
