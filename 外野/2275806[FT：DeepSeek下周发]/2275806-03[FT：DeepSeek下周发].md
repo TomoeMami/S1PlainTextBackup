@@ -3628,3 +3628,25 @@ API 炸了，梁子在发布吗？
 
 我也对 DS 自家的 harness、agent 没有什么期待，这个东西不应该有 vendor lock in
 
+
+*****
+
+####  蛋黄酱Release  
+##### 3310#       发表于 2026-7-21 15:30
+
+目前我用过deepseek最好的coding agent是zcode，deepseek在这里比Claude code体感要强一点
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  zy450  
+##### 3311#       发表于 2026-7-21 15:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69946193&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-7-21 15:30</a>
+
+目前我用过deepseek最好的coding agent是zcode，deepseek在这里比Claude code体感要强一点
+
+—— 来自 vivo ...</blockquote>
+比pi好用吗
+

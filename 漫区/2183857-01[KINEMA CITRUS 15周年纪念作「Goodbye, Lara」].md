@@ -1987,3 +1987,58 @@ BD特典
 アニメイト
 <img src="https://p.sda1.dev/33/f62f432c28184a2b11d547b878cfb6b8/Gg1cLOkaMAALvuE.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 193#         楼主| 发表于 2026-7-21 15:30
+
+ED：[https://youtu.be/od3XN58Gnws](https://youtu.be/od3XN58Gnws)
+
+分镜・演出：もああん
+
+作画监督：谷紫織、もああん
+
+[https://x.com/i/status/2078847728495607844](https://x.com/i/status/2078847728495607844)
+
+『#さよならララ』のEDで背景や一部キャラのカラーラフを担当させていただきました！
+
+ぜひご覧ください！
+<img src="https://p.sda1.dev/33/4118bb317f2d2d1e57c6be26cf3c7260/HNmM_JybcAAv4wW.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/8df4dfc3e6e0c1f381e78b5e8e1b2272/HNmM_J2asAAvmTW.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/532e2122cf206f155629d0f5fbeb2e55/HNmM_JrbgAAQ4Kr.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/71c8d8fd22cd9da67bcd24214fdf4485/HNmM_JtaYAAffVR.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2078474241838895291](https://x.com/i/status/2078474241838895291)
+<img src="https://p.sda1.dev/33/7fc743c52011170c88a90e47f9b398bd/HNg5O9taoAElpvK.jpg" referrerpolicy="no-referrer">
+
+TVアニメ『さよならララ』の背景美術は
+
+アナログで描いたカットが多数あります
+
+画像は美術監督の藤野さんが描いた
+
+アナログ背景画の一部です
+
+今週の弊社ブログでは
+[https://studio-pablog.com/11847/](https://studio-pablog.com/11847/)
+
+ララの背景美術について
+
+藤野さんが記事を書いています
+
+是非ご覧ください
+<img src="https://p.sda1.dev/33/7b2f63eff5e63697f1b220dfb32ca0bf/1 _3_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/046af8308ae9c175dc95126b23c092f2/2-scaled.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/db1fb9224162eb25c98d477aee4d0f7a/3-scaled.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/33/fdad08b6e83facda23e88faccc89aa61/HNajLufaoAAsojX.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/2cee5c501f803b6d816c4b35b0079b03/HNajMrIbkAAXBZU.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/9a5b3af016f830b40c0addd687563aca/HNajNlQbIAA2OJW.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/337a2e1553654f08d12a5b4685f6d93f/HNajOVDbEAAcEqt.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/33/807f900e6779866e7b8aa165f4699675/HNajk2ubQAAfFj2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/8b66a9d0487976320d11e5ea3a84a0a8/HNajlVDbgAAHjny.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/28ae91fae5fcfb6738fb1ea7d1514bef/HNajl9xbUAAtjGJ.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/a7275d510e89d04092c36331f5abedc6/HNajmZ-bIAAGqCS.jpg" referrerpolicy="no-referrer">
+
