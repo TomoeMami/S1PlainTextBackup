@@ -4233,3 +4233,31 @@ pdf，github仓库，睿站抽象视频，知乎问题一起来</blockquote>
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  lactone  
+##### 3364#       发表于 2026-7-22 06:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69948233&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-22 06:16</a>
+
+图个啥？我现在能想到最恨K3的就是唐圣了，真的把股价打下去了</blockquote>
+现在的传闻最离谱的就是说唐杰四月份破解了FABLE，然后把漏洞分享给ds，kimi，qwen，然后大家一起蒸
+
+自己干自己的股价说是<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+这种谣言完全不是逻辑能够分析的，就是为了把所有国模拉下水
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3365#       发表于 2026-7-22 06:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69948236&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-22 06:19</a>
+
+现在的传闻最离谱的就是说唐杰四月份破解了FABLE，然后把漏洞分享给ds，kimi，qwen，然后大家一起蒸
+
+自 ...</blockquote>
+什么普罗米修斯，我都要感动了<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
