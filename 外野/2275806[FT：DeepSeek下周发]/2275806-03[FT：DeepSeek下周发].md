@@ -4169,3 +4169,27 @@ https://gofile.io/d/y1YpgY    Re:Source ...</blockquote>
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3359#       发表于 2026-7-22 05:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69948219&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-22 05:54</a>
+
+昨天那个说k3蒸馏的谣言已经传开了
+
+知乎都有好几个问题了</blockquote>
+closeai那个招笑的旋转门狗逼都说不是蒸馏，怎么还有人传蒸馏的？
+
+
+*****
+
+####  lactone  
+##### 3360#       发表于 2026-7-22 06:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69948221&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-22 05:58</a>
+
+closeai那个招笑的旋转门狗逼都说不是蒸馏，怎么还有人传蒸馏的？</blockquote>
+K3出来之后有些人是真的恨，睿站上几天前就有人做蒸馏的视频了
+
