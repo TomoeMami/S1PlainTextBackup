@@ -2042,3 +2042,51 @@ TVアニメ『さよならララ』の背景美術は
 <img src="https://p.sda1.dev/33/28ae91fae5fcfb6738fb1ea7d1514bef/HNajl9xbUAAtjGJ.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/33/a7275d510e89d04092c36331f5abedc6/HNajmZ-bIAAGqCS.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 194#         楼主| 发表于 2026-7-21 15:43
+
+🐚⁺‧┈　#さよならララ エンドカード　┈‧⁺ 🫧˚
+
+　　　　　　第3話「目、そらしたら負け」
+
+キャラクターデザイン #谷紫織 さんによるエンドカードをお届けします✨
+
+本日もご視聴いただいた皆さま、ありがとうございました。
+
+滋賀で”王子様探し”を始めたララ。これから果たしてどうなるのか…？
+
+次回もどうぞお楽しみに！
+
+さよララ～👋
+<img src="https://p.sda1.dev/33/6c272fdf93716ada35ff0031a399f2e3/HNmfv9RaQAAk9SP.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2078974191421042967](https://x.com/i/status/2078974191421042967)
+
+ホントーに少しだけですがララ3話、LO一原で参加してました
+
+ボクシング描けて楽しかったですー✨ありがとうございました！
+
+[https://x.com/i/status/2078872495944278063](https://x.com/i/status/2078872495944278063)
+
+さよならララ3話ご視聴ありがとうございました！ララと茉里の日常、目覚め…次の第4話からも物語は進み続けます！3話コンテ演出作監させていただきました！沢山の方々の素晴らしい技術力があり作られたものです、携わってくださった皆様本当にありがとうございました 
+<img src="https://p.sda1.dev/33/b3aa32d6dc925f35f072919c040c961a/1000170536.gif" referrerpolicy="no-referrer">
+
+˚🐚⁺‧┈ #さよならララ Blu-ray＆DVD情報┈‧⁺ 🧜‍♀️˚.
+
+早期予約キャンペーンのアニメ描き下ろしイラストを公開❣
+
+ララと茉里の2人が描かれた、美麗な描き下ろしイラストです✨
+
+Blu-ray＆DVD BOX 上巻を対象店舗にてご予約いただくと先着で、本イラストを使用した使用A3特殊加工ポスターを発売日にプレゼント🎁数量限定となりますので、ご予約はお早めに！
+
+詳細はこちら▼
+[https://goodbyelara.com/bddvd/vol1.html](https://goodbyelara.com/bddvd/vol1.html)
+<img src="https://p.sda1.dev/33/7daa959e41238ad8cfe23bde24938a5b/cp2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/75477ae7bf219a6ab3a5b36af45d316e/HNtteJ3b0AAXPpd.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/cbd69bc9a77cd2b898b1cdedda36a391/t_animate.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/5c70ef488dba98559f9f369daa4de530/HNttjQEaUAAjRfq.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/33/825ac4cfd8a29bd55289bbff35c2840a/t_kadokawa.jpg" referrerpolicy="no-referrer">
+
