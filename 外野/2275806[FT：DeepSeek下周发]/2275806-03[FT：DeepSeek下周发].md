@@ -4291,3 +4291,19 @@ https://www.zhihu.com/question/2063044886430061699
 
 说起来grok4.5的评价现在如何？我去年基本只是拿来玩玩短视频生成和网页端直接生成手枪文<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 3369#       发表于 2026-7-22 07:32
+
+ 本帖最后由 舞以 于 2026-7-22 07:35 编辑 
+
+这我咋感觉真就是认知作战了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+毕竟“o/a才是真有技术，国模全靠蒸馏”是亚空间支柱<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+聪明的白皮（可惜并非白皮）可以靠智慧（其实全靠堆算力）轻轻松松一键咩鳖（真能么）😡是挺多国内精神大西洋主义者这个版本的底层逻辑，全靠这个赢了。
+仔细想想，感觉也不是太平洋对岸的整蛊，更像是是这边的离岸达利特被逼疯了开始发癫了。
+先是信誓旦旦梁圣给大伙路由fable用，再是杨圣破解了a➗的cot狠狠蒸馏<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
