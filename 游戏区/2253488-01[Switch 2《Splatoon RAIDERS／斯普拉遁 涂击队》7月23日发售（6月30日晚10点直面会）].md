@@ -1260,3 +1260,26 @@ VGC  四星（8分）
 
 没玩过斯普拉顿，这个游戏的主角是固定的还是可以自己捏的，这次看起来算是PVE？新手也可以入吗？
 
+
+*****
+
+####  绿冰  
+##### 307#         楼主| 发表于 2026-7-21 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947991&amp;ptid=2253488" target="_blank">廖化 发表于 2026-7-21 23:22</a>
+没玩过斯普拉顿，这个游戏的主角是固定的还是可以自己捏的，这次看起来算是PVE？新手也可以入吗？ ...</blockquote>
+有很多种发型可以选，改瞳色什么的，但没有更详细的捏人
+入坑肯定是没问题的，主打单人的游戏，整体的模式目前来看挺像怪猎共斗
+
+—— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Aeroblast  
+##### 308#       发表于 2026-7-21 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947991&amp;ptid=2253488" target="_blank">廖化 发表于 2026-7-21 23:22</a>
+
+没玩过斯普拉顿，这个游戏的主角是固定的还是可以自己捏的，这次看起来算是PVE？新手也可以入吗？ ...</blockquote>
+至少开发者希望新人入坑，提供了难度选项，还可以摇人帮忙
+
