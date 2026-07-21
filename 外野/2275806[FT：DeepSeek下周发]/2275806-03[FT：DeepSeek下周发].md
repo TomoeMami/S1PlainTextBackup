@@ -2774,3 +2774,107 @@ Gemini 3.6 flash好像灰度了，谷歌这是什么打法？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  冤枉呐  
+##### 3235#       发表于 2026-7-21 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944661&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-7-21 10:23</a>
+所以说为什么延期呢，按理说提前发预告就说明训练已经基本完成了。
+（1）被k3性能吓到了，回炉提升去了。
+ ...</blockquote>
+美股空单没开够？
+准备杀一波充值？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  舞以  
+##### 3236#       发表于 2026-7-21 10:28
+
+k3真能吓到ds么，就那个可及性和价格，闹麻了。
+
+我感觉最有可能的是ds本身模型就有几个检查点，不只是后训练有变化。
+
+这灰测给我的感觉就是ds可能还在纠结拿哪个模型变成“正式版”。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  lactone  
+##### 3237#       发表于 2026-7-21 10:28
+
+说是网页版思维链已经变了？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  龙骑士尹志平  
+##### 3238#       发表于 2026-7-21 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944686&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-7-21 10:27</a>
+
+美股空单没开够？
+
+准备杀一波充值？</blockquote>
+现在资金都在长鑫打新吧，打新弄完才有资金去美股开空单，搞不好那时才端出来，毕竟主业炒股
+
+*****
+
+####  舞以  
+##### 3239#       发表于 2026-7-21 10:31
+
+一个项目频繁延期跳票，可能的原因不一定是坏消息，可能也是好消息<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  goranger  
+##### 3240#       发表于 2026-7-21 10:31
+
+梁鸽今天又鸽了嘛
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  phorcys02  
+##### 3241#       发表于 2026-7-21 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69943872&amp;ptid=2275806" target="_blank">经验值UP 发表于 2026-7-21 06:31</a>
+
+不是专业的，但至少从经济层面上分析中转论完全站不住角，首先是两者模型售价差距过于巨大，灰度测试也不是 ...</blockquote>
+不是,我不理解啊
+
+居然真的有人觉得这个问题是需要思考和分析的??????
+
+人类的智力有这么参差么?
+
+*****
+
+####  qz66618  
+##### 3242#       发表于 2026-7-21 10:32
+
+不然没法合理解释为啥延期，总不能说他发邮件的时候模型就没训练好，后来训练的时候一直炸炉导致延期吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  舞以  
+##### 3243#       发表于 2026-7-21 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944716&amp;ptid=2275806" target="_blank">goranger 发表于 2026-7-21 10:31</a>
+
+梁鸽今天又鸽了嘛
+
+论坛助手,iPhone</blockquote>
+鸽都鸽了，那估计就**方方延期了喵。
+
+就是鸽了不发个公告不好看真的。
+
