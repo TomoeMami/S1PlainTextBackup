@@ -151,3 +151,13 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  河水  
+##### 65#       发表于 2026-7-21 16:34
+
+看看我的鹅
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
