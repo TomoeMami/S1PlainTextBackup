@@ -171,3 +171,13 @@
 
 —— 来自 vivo V2408A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  fredomone  
+##### 67#       发表于 2026-7-21 18:05
+
+请问手机横屏后页面会自动回到顶端，这是bug吗
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
