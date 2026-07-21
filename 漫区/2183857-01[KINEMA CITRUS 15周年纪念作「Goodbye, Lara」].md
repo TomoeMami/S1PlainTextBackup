@@ -1970,3 +1970,20 @@ OP的一部分镜头使用了赛璐珞画制作
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  堆雪若叶  
+##### 192#       发表于 2026-7-21 14:51
+
+BD特典
+
+早期予約キャンペーンのアニメ描き下ろしイラストを公開
+<img src="https://p.sda1.dev/33/525d6e9fcc00d8d7fb858f4145c44f46/Gg3INGWbkAAFnWh.jpg" referrerpolicy="no-referrer">
+
+カドスト
+<img src="https://p.sda1.dev/33/47e9be0d2de53cac7c2e2f8aa60d0bdf/1435f5c1-1e9a-4a97-b047-83e080fee1a7.jpg" referrerpolicy="no-referrer">
+
+アニメイト
+<img src="https://p.sda1.dev/33/f62f432c28184a2b11d547b878cfb6b8/Gg1cLOkaMAALvuE.jpg" referrerpolicy="no-referrer">
+
