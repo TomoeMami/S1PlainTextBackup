@@ -2696,3 +2696,33 @@ coding harness要做成一个能跑的很简单，你现在让你的agent抄个p
 第一版没什么期待的，最多PI上面搓一个出来</blockquote>
 pi不适合商用，还是抄codex吧
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3227#       发表于 2026-7-21 09:27
+
+正式版迟迟不来，苦死了等的人
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cscbzcbz  
+##### 3228#       发表于 2026-7-21 09:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944053&amp;ptid=2275806" target="_blank">SmterC 发表于 2026-7-21 08:34</a>
+中旬这几天每天都睡不好
+
+睡醒了看看正式版发布没，然后看到没发布心凉半截睡意全无
+
+睡不着了就爬起来尝试新 ...</blockquote>
+我也是，昨天9点就上床了，这几天睡得最好的一天<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  overflowal  
+##### 3229#       发表于 2026-7-21 09:30
+
+要想做非coding的computer use agent的话，多模态还是必须的，不然会很难受    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
