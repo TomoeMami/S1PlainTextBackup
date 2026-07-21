@@ -2655,3 +2655,44 @@ https://weibo.com/2126427211/5320586007938243
 梁木保卫失败了吗？现在是梁鸽还是</blockquote>
 现在已经是牢梁了，饮料瓶都已经准备好了
 
+
+*****
+
+####  舞以  
+##### 3223#       发表于 2026-7-21 09:18
+
+coding harness要做成一个能跑的很简单，你现在让你的agent抄个pi的core就随便做。
+
+但是做成一个类似codex和cc的成熟的harness那还是很dirty的。
+
+然后就是看看ds的第一方harness有啥小巧思了，dsv4系列的特性还是很鲜明的。
+
+*****
+
+####  drodchang  
+##### 3224#       发表于 2026-7-21 09:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944027&amp;ptid=2275806" target="_blank">lowezack 发表于 2026-7-21 08:26</a>
+
+我劝你们不要对ds的智能体抱有什么太大的期望，智能体软件是个大工程，细节非常多，ds团队才组建多久
+
+这就 ...</blockquote>
+没那么难，很多开源项目可以参考，实在不行直接fork一个codex cli就可以了
+
+*****
+
+####  舞以  
+##### 3225#       发表于 2026-7-21 09:19
+
+我也是睡醒就看看邮箱和公众号有没有新动态<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  drodchang  
+##### 3226#       发表于 2026-7-21 09:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944161&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-21 09:04</a>
+
+第一版没什么期待的，最多PI上面搓一个出来</blockquote>
+pi不适合商用，还是抄codex吧
+
