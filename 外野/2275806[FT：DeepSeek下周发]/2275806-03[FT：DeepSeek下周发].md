@@ -4149,3 +4149,11 @@ gemini3.6flash 出了，我的3.5Pro呢，真的大豆包啊，太垃圾了   
 https://gofile.io/d/y1YpgY    Re:Source ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">一股二游痴的味道
 
+
+*****
+
+####  M乔梦  
+##### 3357#       发表于 2026-7-22 00:40
+
+这篇檄文充斥着，比肥波高就是作弊刷分刷榜、和肥波差不多就是路由到肥波、都是蒸馏（从思维链蒸馏到工具调用蒸馏一切），所有国模<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
