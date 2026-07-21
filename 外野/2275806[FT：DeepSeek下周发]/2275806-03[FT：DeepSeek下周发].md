@@ -3679,3 +3679,16 @@ API 炸了，梁子在发布吗？
 
 千问发布了新一代生图模型，哈基米不会连香蕉都要掉出前三了吧。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3315#       发表于 2026-7-21 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69946347&amp;ptid=2275806" target="_blank">akirt 发表于 2026-7-21 16:04</a>
+
+我用zcode调用deepseek官方API缓存率0%，很奇怪</blockquote>
+不应该啊
+
+不过我前阵子用rikkahub调用D指导缓存命中0
+
