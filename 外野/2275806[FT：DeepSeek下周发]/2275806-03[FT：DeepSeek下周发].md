@@ -4046,3 +4046,33 @@ https://gofile.io/d/y1YpgY    Re:Source ...</blockquote>
 话说qwen 3.8能用吗？</blockquote>
 后训练没好真不太行，最多就是暂时很便宜
 
+
+*****
+
+####  厍无春  
+##### 3349#       发表于 2026-7-21 23:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947968&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-7-21 23:11</a>
+话说qwen 3.8能用吗？</blockquote>
+还可以，反正现在便宜可以试试
+
+
+*****
+
+####  V5Style  
+##### 3350#       发表于 2026-7-21 23:52
+
+ 本帖最后由 V5Style 于 2026-7-21 23:54 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947897&amp;ptid=2275806" target="_blank">晓黑雾 发表于 2026-7-21 22:47</a>
+
+只要把七月的时间定义为无限，那么七月中旬就永远不会到来，永无止境的七月，梁宫春日，堂堂登场 ...</blockquote>
+正好看到这张图<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202607/21/235214x2azgr2ql4mll22x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (124.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-21 23:52 上传
+
