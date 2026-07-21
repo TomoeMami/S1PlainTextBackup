@@ -2997,3 +2997,69 @@ nobody care.他们的核心成员跑了一串了<img src="https://static.stage1s
 
 和K3关系也比较小，K3可能就前端审美更强，甚至只是“审美”而不是空间感知，价格还差这么多
 
+
+*****
+
+####  四氧化三铅  
+##### 3256#       发表于 2026-7-21 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944701&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-21 10:28</a>
+k3真能吓到ds么，就那个可及性和价格，闹麻了。
+
+我感觉最有可能的是ds本身模型就有几个检查点，不只是后训 ...</blockquote>
+因为美股被k3提前打下来了，除非v4憋个更大的让美股继续爆，目前来看应该觉得做不到？
+
+反正我觉得只要是这个月能发布，晚几天就晚几天吧。别太心急，宽限几天。
+
+*****
+
+####  舞以  
+##### 3257#       发表于 2026-7-21 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944811&amp;ptid=2275806" target="_blank">goranger 发表于 2026-7-21 10:48</a>
+
+open code go？
+
+论坛助手,iPhone</blockquote>
+我用的opencode go，调用k3，稳定跑20min左右就截断了哈哈
+
+不知道是k3的问题还是opencode的问题，限额是没撞上的。
+
+
+*****
+
+####  goranger  
+##### 3258#       发表于 2026-7-21 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944857&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-21 10:58</a>
+我用的opencode go，调用k3，稳定跑20min左右就截断了哈哈
+
+不知道是k3的问题还是opencode的问题，限额是 ...</blockquote>
+k3群里基本全是喷额度不够，429的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  冤枉呐  
+##### 3259#       发表于 2026-7-21 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944709&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-7-21 10:30</a>
+现在资金都在长鑫打新吧，打新弄完才有资金去美股开空单，搞不好那时才端出来，毕竟主业炒股 ...</blockquote>
+长鑫出结果了啊
+他不可能多少钱打就中多少吧
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  冤枉呐  
+##### 3260#       发表于 2026-7-21 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944709&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-7-21 10:30</a>
+现在资金都在长鑫打新吧，打新弄完才有资金去美股开空单，搞不好那时才端出来，毕竟主业炒股 ...</blockquote>
+长鑫出结果了啊
+他不可能多少钱打就中多少吧
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

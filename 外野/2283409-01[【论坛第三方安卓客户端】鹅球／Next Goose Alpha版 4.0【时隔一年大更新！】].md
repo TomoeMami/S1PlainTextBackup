@@ -95,3 +95,14 @@
 
 新版字太大了，又换回旧版了
 
+
+*****
+
+####  pgain2004  
+##### 62#         楼主| 发表于 2026-7-21 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944048&amp;ptid=2283409" target="_blank">dybang 发表于 2026-7-21 08:32</a>
+
+新版字太大了，又换回旧版了</blockquote>
+不是一直能调字号吗，你是指用最小字号还太大？
+
