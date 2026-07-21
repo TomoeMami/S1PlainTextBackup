@@ -266,3 +266,26 @@
 
 她是英国佬不（忘了
 
+
+*****
+
+####  不灭的旋律  
+##### 2057#       发表于 2026-7-21 20:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947401&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2026-7-21 20:00</a>
+
+会不会是主线剩下的那个藤原会长啊？
+
+她是英国佬不（忘了</blockquote>
+害我搜了一下是谁，我说的就是她啊。英国组最后一位，唐宁街正米字旗的老牌贵族。不过内田秀是澳大利亚出生的，这口音不正宗啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江戸前ルナ  
+##### 2058#         楼主| 发表于 2026-7-21 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947453&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2026-7-21 20:16</a>
+
+害我搜了一下是谁，我说的就是她啊。英国组最后一位，唐宁街正米字旗的老牌贵族。不过内田秀是澳大利亚出 ...</blockquote>
+殖民地腔，不就很符合现在大英的唐宁街<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
