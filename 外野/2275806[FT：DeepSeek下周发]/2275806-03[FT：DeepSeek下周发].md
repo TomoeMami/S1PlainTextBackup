@@ -3859,3 +3859,15 @@ https://github.com/YangWang92/open-open-reasoning    [Re:Source](https://stage
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 3331#       发表于 2026-7-21 21:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947226&amp;ptid=2275806" target="_blank">Awanano 发表于 2026-7-21 19:13</a>
+我现在对 harness 这个创造出的概念印象更差了
+周末 5.6 收实验推进几次没做完，想了想不对劲昨天验工，把 ...</blockquote>
+语料训练明明中文比英文好，<img src="https://static.stage1st.com/image/smiley/nq/013.gif" referrerpolicy="no-referrer">
+早该和电力学一样定义一下了。
+
