@@ -3703,3 +3703,22 @@ API 炸了，梁子在发布吗？
 我用zcode调用deepseek官方API缓存率0%，很奇怪</blockquote>
 非常简单的试了下，还是PI好用。。。
 
+
+*****
+
+####  舞以  
+##### 3317#       发表于 2026-7-21 18:09
+
+又是失望的一天，，，，
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  neptunehs  
+##### 3318#       发表于 2026-7-21 18:13
+
+本周都悬了吧看样子
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
