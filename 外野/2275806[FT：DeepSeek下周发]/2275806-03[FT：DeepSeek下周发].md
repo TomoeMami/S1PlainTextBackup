@@ -3782,3 +3782,13 @@ harness 这个名词很多时候在被介绍的时候都是以负面案例引出
 最近传说的所谓“智谱攻破了Claude思维链”
 https://github.com/YangWang92/open-open-reasoning    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  ayanamilin  
+##### 3325#       发表于 2026-7-21 20:36
+
+真的很缺一个擅长中英文写作的 AI（起码擅长措辞）
+
+只能 Opus 4.6 和 Gemini 3 Pro 轮着凑合用，真的没有比这俩更好的了。
+

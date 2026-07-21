@@ -340,3 +340,15 @@ dmm那边上了，打3000吧
 
 使命任务大部分都是auto的，就6个左右有指名具体单位要求的需要手动，有难度的也就最后打全高达白色基地，手操部分半个小时也搞定了
 
+
+*****
+
+####  冰风血羽  
+##### 4549#       发表于 2026-7-21 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69946008&amp;ptid=2071758" target="_blank">洛克萨斯 发表于 2026-7-21 14:51</a>
+其实也不难，要会用助战的npc，就是有点麻烦</blockquote>
+看了思路视频发现折腾半天一炮秒不掉绿叔叔我就知道没办法打了
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
