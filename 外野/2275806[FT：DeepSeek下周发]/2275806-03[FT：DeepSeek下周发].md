@@ -2878,3 +2878,64 @@ k3真能吓到ds么，就那个可及性和价格，闹麻了。
 
 就是鸽了不发个公告不好看真的。
 
+
+*****
+
+####  serj005  
+##### 3244#       发表于 2026-7-21 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944703&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-21 10:28</a>
+说是网页版思维链已经变了？
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+网页现在还是两种思维链混合随机抽，但思维链也看不出啥的，能被提示词直接影响，网页版提示词预设随便改，判断不出背后模型。
+
+*****
+
+####  sellboy  
+##### 3245#       发表于 2026-7-21 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944649&amp;ptid=2275806" target="_blank">蜗塞塞 发表于 2026-7-21 10:22</a>
+
+就K3和v4灰度各种oneshot的表现，再加上k3那个价格，没觉得会有被吓到的可能吧。 ...</blockquote>
+但是美股被提前打下来了。
+
+你知道的，DS不赚钱，收入主要靠幻方。
+
+*****
+
+####  nanazu  
+##### 3246#       发表于 2026-7-21 10:38
+
+今天农历六月初八，七月还没到呢<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  crow_wine  
+##### 3247#       发表于 2026-7-21 10:40
+
+正式版什么时候发布啊，我留了好多重量级任务等着他呢<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  goranger  
+##### 3248#       发表于 2026-7-21 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944727&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-21 10:33</a>
+鸽都鸽了，那估计就**方方延期了喵。
+
+就是鸽了不发个公告不好看真的。</blockquote>
+我总感觉潭友似乎知道点啥<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  david5515  
+##### 3249#       发表于 2026-7-21 10:40
+
+事已至此，先用k3吧，唉
+
