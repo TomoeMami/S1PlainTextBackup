@@ -2644,3 +2644,14 @@ https://weibo.com/2126427211/5320586007938243
 
 第一版没什么期待的，最多PI上面搓一个出来
 
+
+*****
+
+####  wandeeees  
+##### 3222#       发表于 2026-7-21 09:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944140&amp;ptid=2275806" target="_blank">GJRstone 发表于 2026-7-21 08:59</a>
+
+梁木保卫失败了吗？现在是梁鸽还是</blockquote>
+现在已经是牢梁了，饮料瓶都已经准备好了
+
