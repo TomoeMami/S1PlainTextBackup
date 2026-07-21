@@ -3722,3 +3722,21 @@ API 炸了，梁子在发布吗？
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  水風船  
+##### 3319#       发表于 2026-7-21 18:43
+
+问一下坛友们有没有grok羊毛的路子
+
+*****
+
+####  zerona  
+##### 3320#       发表于 2026-7-21 18:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69946347&amp;ptid=2275806" target="_blank">akirt 发表于 2026-7-21 16:04</a>
+
+我用zcode调用deepseek官方API缓存率0%，很奇怪</blockquote>
+提示词里问题吧？怎么也不可能是零啊
+
