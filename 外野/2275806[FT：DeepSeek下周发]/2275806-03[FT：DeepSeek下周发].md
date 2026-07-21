@@ -3692,3 +3692,14 @@ API 炸了，梁子在发布吗？
 
 不过我前阵子用rikkahub调用D指导缓存命中0
 
+
+*****
+
+####  zy450  
+##### 3316#       发表于 2026-7-21 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69946347&amp;ptid=2275806" target="_blank">akirt 发表于 2026-7-21 16:04</a>
+
+我用zcode调用deepseek官方API缓存率0%，很奇怪</blockquote>
+非常简单的试了下，还是PI好用。。。
+
