@@ -3063,3 +3063,44 @@ k3群里基本全是喷额度不够，429的
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  舞以  
+##### 3261#       发表于 2026-7-21 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944873&amp;ptid=2275806" target="_blank">goranger 发表于 2026-7-21 11:01</a>
+
+k3群里基本全是喷额度不够，429的
+
+论坛助手,iPhone</blockquote>
+我反正不喜欢月之暗面这种搞法的。
+
+o/a两家订阅和api卖高价，但是好歹能保证可用性和速度。
+
+想做中国a\没问题，你的产品本身得做好，可用性也得做好。
+
+别说算力不够，模型吃算力也是你的问题不是用户的问题。
+
+*****
+
+####  zhongjie  
+##### 3262#       发表于 2026-7-21 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944903&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-21 11:05</a>
+
+我反正不喜欢月之暗面这种搞法的。
+
+o/a两家订阅和api卖高价，但是好歹能保证可用性和速度。
+
+想做中国a\没 ...</blockquote>
+没关系，只要它开源就行。我在等它下周一开源，然后去用海外服务商部署的
+
+
+*****
+
+####  passgan  
+##### 3263#       发表于 2026-7-21 11:12
+
+现在最便宜的plan是不是小米的，我平时要求不高，但是使用量挺大，基本都是自己懒得做的文件批量重命名或者YTB下载器啥的
+
