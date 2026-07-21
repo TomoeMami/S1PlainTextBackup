@@ -3849,3 +3849,13 @@ https://github.com/YangWang92/open-open-reasoning    [Re:Source](https://stage
 
 —— 来自 HUAWEI WGRR-W19, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  goranger  
+##### 3330#       发表于 2026-7-21 21:46
+
+潭友有用opencode go的话，那个邀请奖励的5美金，是只能抵扣使用额度，不能抵扣订阅费用是吗？我看了看好像直接抵扣使用额度还蛮低的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
