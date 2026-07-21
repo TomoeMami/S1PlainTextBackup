@@ -3650,3 +3650,32 @@ API 炸了，梁子在发布吗？
 —— 来自 vivo ...</blockquote>
 比pi好用吗
 
+
+*****
+
+####  goranger  
+##### 3312#       发表于 2026-7-21 16:00
+
+又是失望的一天<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  akirt  
+##### 3313#       发表于 2026-7-21 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69946193&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-7-21 02:30</a>
+
+目前我用过deepseek最好的coding agent是zcode，deepseek在这里比Claude code体感要强一点
+
+—— 来自 vivo ...</blockquote>
+我用zcode调用deepseek官方API缓存率0%，很奇怪
+
+*****
+
+####  tillnight  
+##### 3314#       发表于 2026-7-21 16:05
+
+千问发布了新一代生图模型，哈基米不会连香蕉都要掉出前三了吧。
+
