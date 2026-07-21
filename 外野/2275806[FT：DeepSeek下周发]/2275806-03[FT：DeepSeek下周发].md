@@ -3487,3 +3487,27 @@ https://huggingface.co/blog/agent-glossary
 
 — from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  goranger  
+##### 3296#       发表于 2026-7-21 13:08
+
+扔了本60w字的小说给pro，提示超过字数80%，扔给flash没问题，估计算力确实紧张
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  hugosol  
+##### 3297#       发表于 2026-7-21 13:14
+
+harness只是个概念，这玩意与其说是黑话，不如说是以前和黑盒子里的东西正式走到大众眼前了，所以需要一个名字
+
+正因为harness是每个用户都能自己构筑的东西，所以没必要让大公司来教我怎么用，你只要定好规范，让我在上面扩展就可以了
+
+打个比方就是以前房地产公司把造房子和装修都给你做了，但现在你有追求的话可以选择自己去做装修
+
+所以我觉得DS这风格就不适合卖精装修的房子给我<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
