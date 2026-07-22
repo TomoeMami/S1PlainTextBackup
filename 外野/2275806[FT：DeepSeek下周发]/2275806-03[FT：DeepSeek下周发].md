@@ -4431,3 +4431,40 @@ coding领域突飞猛进说是，算是越过了可用线，
 
 其它的我就不知道了
 
+
+*****
+
+####  AEmpire  
+##### 3381#       发表于 2026-7-22 10:18
+
+污名化蒸馏的叙事也快讲不下去了吧，本质A/和closeai也是蒸馏了全人类的知识，现在指责别人蒸馏属实好笑<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+而且kimi k3在我这挺流口水的，解决同一个问题token消耗量肉眼可见的大，而且慢的很，动不动429，也不知道有些人到底在急什么<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千千千千鸟  
+##### 3382#       发表于 2026-7-22 10:25
+
+把中旬涨价的公告取消置顶了，估计短期内不会更新了吧。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">要等下一波能引发股票大幅度波动的节点才会更新了
+
+*****
+
+####  Promeus  
+##### 3383#       发表于 2026-7-22 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69949002&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-7-22 10:25</a>
+把中旬涨价的公告取消置顶了，估计短期内不会更新了吧。要等下一波能引发股票大幅度波动的节点才会更新了 ...</blockquote>
+取消置顶而不是删除不就是更新前兆么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少是要换公告了
+
+*****
+
+####  千千千千鸟  
+##### 3384#       发表于 2026-7-22 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69949005&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-22 10:26</a>
+
+取消置顶而不是删除不就是更新前兆么</blockquote>
+我意思是进入开放平台，顶部不再有那个涨价公告了。就是删除了吧。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
