@@ -316,3 +316,13 @@
 
 散了散了，8.5周年集合图出现的是莉莉活动时登场的vesper。一大堆女演员可以哭了，居然输给一个只登场一次的角色。
 
+
+*****
+
+####  外骨骼  
+##### 2062#       发表于 2026-7-22 19:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69947746&amp;ptid=2104259" target="_blank">madcow 发表于 2026-7-21 21:55</a>
+说起来我记得矮唯有个长发造型的啊，难道不是出ST顺便回收了（（</blockquote>
+背心短裤睡衣唯vlog
+
