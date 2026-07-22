@@ -483,3 +483,13 @@ EX点满的人不少了，下一个要准备的戴冠战是骑，虽然更主要
 
 千里眼看了下后面是杀冠低配都是打暴击，以藏、燕青都是单红配卡用那一张红卡打伤害，还有人类吗= =......,不然就去抽一定宝具的河上彦斋，当然有夹馍的可以双夹馍去打但是我没有<img src="https://static.stage1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 47921#       发表于 2026-7-22 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69949026&amp;ptid=1712412" target="_blank">霄度天 发表于 2026-7-22 10:29</a>
+千里眼看了下后面是杀冠低配都是打暴击，以藏、燕青都是单红配卡用那一张红卡打伤害，还有人类吗= =......, ...</blockquote>
+我日服一宝迦摩都能打，就是没有点树前要坐牢，点完树后，迦摩首位，女武神给迦摩上闪避就可以了。运气好中了魅惑直接一套带走。
+
