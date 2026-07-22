@@ -268,3 +268,22 @@
 
 迫不及待想听潘多拉之盒最新篇章了
 
+
+*****
+
+####  行政裁定书  
+##### 800#       发表于 2026-7-22 13:37
+
+恶狼dlc是不是出得差不多了？kof 16是否要开始了？
+
+
+*****
+
+####  蕾丝控  
+##### 801#       发表于 2026-7-22 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69949972&amp;ptid=2085684" target="_blank">行政裁定书 发表于 2026-7-22 13:37</a>
+
+恶狼dlc是不是出得差不多了？kof 16是否要开始了？</blockquote>
+早着呢，预定要出六季左右。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
