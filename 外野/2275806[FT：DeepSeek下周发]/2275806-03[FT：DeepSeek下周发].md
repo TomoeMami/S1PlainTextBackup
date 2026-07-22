@@ -4966,3 +4966,16 @@ opencode的v4f等模型最近咋各种爆炸啊
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zy450  
+##### 3428#       发表于 2026-7-22 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69950183&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-7-22 14:10</a>
+
+opencode的v4f等模型最近咋各种爆炸啊 
+
+—— 来自 OnePlus PJX110, Android 14, 鹅球 v3.5.99 ...</blockquote>
+据说opencode就是用官方的，怕不是真的部署存在问题
+
