@@ -4979,3 +4979,11 @@ opencode的v4f等模型最近咋各种爆炸啊
 —— 来自 OnePlus PJX110, Android 14, 鹅球 v3.5.99 ...</blockquote>
 据说opencode就是用官方的，怕不是真的部署存在问题
 
+
+*****
+
+####  tigaly  
+##### 3429#       发表于 2026-7-22 14:40
+
+[https://qwen.ai/home](https://qwen.ai/home) 。阿里这个国外版本的Qwen Image 3.0比国内版本的好用，我用来画架构图有GPT Image2.0的水平了，很好很强大
+
