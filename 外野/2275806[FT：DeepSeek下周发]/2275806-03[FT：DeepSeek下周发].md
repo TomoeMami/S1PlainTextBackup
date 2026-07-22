@@ -4956,3 +4956,13 @@ kim3好贵啊。
 直接从梁圣降级成小南梁了吗？ ...</blockquote>
 应该是小难梁才对吧
 
+
+*****
+
+####  neptunehs  
+##### 3427#       发表于 2026-7-22 14:10
+
+opencode的v4f等模型最近咋各种爆炸啊 
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
