@@ -42,3 +42,29 @@
 
 日本人不会贱到不喷不炎上吧，这能忍？
 
+
+*****
+
+####  yuuka  
+##### 18323#       发表于 2026-7-22 08:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">昨晚品尝了下这坨大分，只能说不是脑子正常的人能做得出的玩意。虽然后面找到路子后成功率高了不少，但还是觉得恶心。召唤技能分开不重置导致没法FA。阴怪不少。最后BOSS更是重量级。
+
+抛开游玩部分这点数给得也是小气的一笔，通一关估计也就2K附近，BOSS翻车折半。月兑换又卡素材，就是摆明要你去赤这坨。反正摆烂等修就是了，110就这样后面不敢想。
+
+<img src="https://img.stage1st.com/forum/202607/22/084532wkiagkgatz4kj4ci.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20260722001636.png</strong> (531.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-22 08:45 上传
+
+<img src="https://img.stage1st.com/forum/202607/22/084532qs1etvr6ondsutvv.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20260722001640.png</strong> (421.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-22 08:45 上传
+
