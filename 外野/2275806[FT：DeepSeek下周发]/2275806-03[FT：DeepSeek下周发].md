@@ -5052,3 +5052,32 @@ https://qwen.ai/home 。阿里这个国外版本的Qwen Image 3.0比国内版本
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fake news
 
+
+*****
+
+####  overflowal  
+##### 3436#       发表于 2026-7-22 15:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69950546&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-7-22 15:14</a>
+fake news</blockquote>
+harness这东西没必要内测，直接做得差不多出来用就行。大家都是这样的。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  SmterC  
+##### 3437#       发表于 2026-7-22 15:29
+
+没有正式版，我们吃什么    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  tigaly  
+##### 3438#       发表于 2026-7-22 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69950407&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-7-22 14:50</a>
+
+https://qwen.ai/blog?id=qwen-image-3.0
+
+他宣传的几个样图确实有image2的味道，但是实际体验下来和样图 ...</blockquote>
+其实我觉得还行，能生成架构图让我写ppt偷懒就行了，之前国内没有竞品
+
