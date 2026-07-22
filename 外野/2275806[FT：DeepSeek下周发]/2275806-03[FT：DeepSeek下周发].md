@@ -5032,3 +5032,23 @@ https://qwen.ai/home 。阿里这个国外版本的Qwen Image 3.0比国内版本
 
 怕不是这个月正式版出不来了
 
+
+*****
+
+####  当光停止  
+##### 3435#       发表于 2026-7-22 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69950416&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-7-22 14:52</a>
+
+听说agent已经开始内测了    Re:Source</blockquote>
+
+<img src="https://img.stage1st.com/forum/202607/22/151404vr4tdzcej2h54u2o.jpg" referrerpolicy="no-referrer">
+
+<strong>a4ffb8fb4462bcaa739b518a507ecd86.jpg</strong> (35.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-22 15:14 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fake news
+
