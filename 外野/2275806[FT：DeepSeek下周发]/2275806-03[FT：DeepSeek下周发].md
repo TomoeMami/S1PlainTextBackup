@@ -5154,3 +5154,18 @@ harness 只要能实现自举就可以开源了<img src="https://static.stage1st
 
 肯定今天不会发呀，想都不用想，我猜，如果真的会发，就是二十四号了吧？估计最快就二十四号了现在比起新版的Deepseek，我还更期待他们的 agent
 
+
+*****
+
+####  overflowal  
+##### 3447#       发表于 2026-7-22 19:12
+
+24号发的说法让我觉因为太绝望于是在文档上翻一个日期出来做发布日期的感觉<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  化物语  
+##### 3448#       发表于 2026-7-22 19:13
+
+看今天的消费金额比之前多了不少
+
