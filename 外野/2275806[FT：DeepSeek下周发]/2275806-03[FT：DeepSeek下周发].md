@@ -4670,3 +4670,43 @@ deepseek-chat 与 deepseek-reasoner 两个模型名将于北京时间 2026/07/24
 
 合理推测就是这个时点上线正式版。
 
+
+*****
+
+####  舞以  
+##### 3406#       发表于 2026-7-22 11:07
+
+<img src="https://img.stage1st.com/forum/202607/22/110718mamowcgdldecef0d.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (161.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-22 11:07 上传
+
+会不会只是ds官方的搜索服务拉闸了呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  overflowal  
+##### 3407#       发表于 2026-7-22 11:13
+
+任何迹象都是大的要来了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  vincevincetang  
+##### 3408#       发表于 2026-7-22 11:13
+
+大的...走了？<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 3409#       发表于 2026-7-22 11:15
+
+api自带的搜索能力也拉闸了，看是啥情况吧，说不定梁子给大伙带来了新的搜索工具包呢
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
