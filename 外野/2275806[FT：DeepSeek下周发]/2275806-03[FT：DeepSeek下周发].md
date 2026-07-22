@@ -5012,3 +5012,15 @@ https://qwen.ai/home 。阿里这个国外版本的Qwen Image 3.0比国内版本
 
 听说agent已经开始内测了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  qwased  
+##### 3433#       发表于 2026-7-22 14:54
+
+继续试用本地模型，看到UD更新了一波，下载了gemma4 26a4b QAT UD版和qwen3.6 35a3B nvfp4 mtp
+
+前者可以完全塞进16G显存里面，上下文可以开50K，调一下GPU卸载什么的可以跑到持续110tk/s，个人感觉文字质量还比gemma4 12b q6强不少，而且视觉能力相当不错，已经把12b删了
+
+后者怎么调也只有45tk/s，中文输出味大熏人，过两天试试搭agent玩吧
+
