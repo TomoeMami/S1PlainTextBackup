@@ -4589,3 +4589,84 @@ k3经常来回思考不动手开始，得手动打断他之后再重试
 
 你们碰到了类似的问题么。
 
+
+*****
+
+####  王兰花秀丽  
+##### 3398#       发表于 2026-7-22 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69949203&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-22 10:55</a>
+正好要开始搓前端，这两天就在opencode狠狠蹬k3了
+
+k3经常来回思考不动手开始，得手动打断他之后再重试
+
+你们 ...</blockquote>
+这不就是现在v4的情况，but wait /我真的要开始写代码了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  david5515  
+##### 3399#       发表于 2026-7-22 10:57
+
+期待中<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  当光停止  
+##### 3400#       发表于 2026-7-22 10:58
+
+草
+
+<img src="https://img.stage1st.com/forum/202607/22/105822uzwk88g0yr7rdder.jpg" referrerpolicy="no-referrer">
+
+<strong>55221594fd8cd2af302bc8b04c9cfb33.jpg</strong> (113.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-22 10:58 上传
+
+
+*****
+
+####  舞以  
+##### 3401#       发表于 2026-7-22 11:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用量飞逝，得等5h限额回复再继续了
+
+至少这价格，太sota了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  czhhws  
+##### 3402#       发表于 2026-7-22 11:01
+
+我去真的是，难道说，就在今天就在今天！<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  Tomek  
+##### 3403#       发表于 2026-7-22 11:03
+
+大的……来了吗
+
+—— 来自 HUAWEI VYG-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  巨魔已被忠诚  
+##### 3404#       发表于 2026-7-22 11:04
+
+联网没了，刚在做架构讨论呢，要来了吗💊
+
+*****
+
+####  chilming  
+##### 3405#       发表于 2026-7-22 11:05
+
+deepseek-chat 与 deepseek-reasoner 两个模型名将于北京时间 2026/07/24 23:59 弃用。出于兼容考虑，二者分别对应 deepseek-v4-flash 的非思考与思考模式。
+
+合理推测就是这个时点上线正式版。
+
