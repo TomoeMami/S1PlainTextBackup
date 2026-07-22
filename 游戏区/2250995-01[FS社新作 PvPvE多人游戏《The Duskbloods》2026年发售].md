@@ -150,3 +150,21 @@
 
 主要这游戏有可能日服无中文
 
+
+*****
+
+####  斯库鲁多  
+##### 96#       发表于 2026-7-22 23:03
+
+不需要会员也报上了啊<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+另外原来官号有新图
+
+<img src="https://img.stage1st.com/forum/202607/22/230058yyc64ymwaaa62rm9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (138.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-22 23:00 上传
+
