@@ -477,3 +477,19 @@ dmm那边上了，打3000吧
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  gxliv  
+##### 4559#       发表于 2026-7-22 13:12
+
+没人提这位Ｘ大师吗，攻略出得早配置也压得低，这次活动最后几个任务没要求不死人，直接上几个炮灰去打反而更容易过
+
+<img src="https://img.stage1st.com/forum/202607/22/130742wjrle309oy8o10np.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot Capture - 2026-07-22 - 01-01-36.png</strong> (286.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-22 13:07 上传
+
