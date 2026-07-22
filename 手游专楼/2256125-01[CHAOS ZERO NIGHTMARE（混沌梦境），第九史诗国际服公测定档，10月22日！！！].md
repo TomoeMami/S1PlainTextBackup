@@ -16,3 +16,30 @@
 
 —— 来自 OnePlus PJA110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  id_catcher  
+##### 1145#       发表于 2026-7-21 20:16
+
+傻逼笑门，新赛季你卖卡就搞个新机制，或者直接新卡多点数值不就行了吗，手游还有不膨胀的吗？难道还想做成传家宝运营一辈子？这样直接作废全部玩家的存档很好玩？
+
+—— 来自 OnePlus PJA110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Booorunestud  
+##### 1146#       发表于 2026-7-22 11:26
+
+这游戏自刎归天了
+
+<img src="https://img.stage1st.com/forum/202607/22/112534cjyywyezwyewrfez.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20260722112524.png</strong> (877.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-22 11:25 上传
+
+领航者为何都不玩了呀
+
