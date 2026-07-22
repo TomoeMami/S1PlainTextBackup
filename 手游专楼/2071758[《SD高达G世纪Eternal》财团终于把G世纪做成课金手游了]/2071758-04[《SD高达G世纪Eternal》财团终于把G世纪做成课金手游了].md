@@ -447,3 +447,33 @@ dmm那边上了，打3000吧
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  冰风血羽  
+##### 4558#       发表于 2026-7-22 11:33
+
+我永恒之路确实只打到hard，0083那些机子都是只够做一台本体的，机体池太浅了
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
+
+*****
+
+####  冰风血羽  
+##### 4558#       发表于 2026-7-22 11:33
+
+我永恒之路确实只打到hard，0083那些机子都是只够做一台本体的，机体池太浅了
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
+
+*****
+
+####  冰风血羽  
+##### 4558#       发表于 2026-7-22 11:33
+
+我永恒之路确实只打到hard，0083那些机子都是只够做一台本体的，机体池太浅了
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
