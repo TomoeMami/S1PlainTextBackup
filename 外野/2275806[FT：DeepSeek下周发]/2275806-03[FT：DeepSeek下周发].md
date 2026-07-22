@@ -5081,3 +5081,18 @@ https://qwen.ai/blog?id=qwen-image-3.0
 他宣传的几个样图确实有image2的味道，但是实际体验下来和样图 ...</blockquote>
 其实我觉得还行，能生成架构图让我写ppt偷懒就行了，之前国内没有竞品
 
+
+*****
+
+####  斯卡文分则能成  
+##### 3439#       发表于 2026-7-22 15:52
+
+搜索模式挂了啊，大的要来了？<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  80后卢瑟  
+##### 3440#       发表于 2026-7-22 15:52
+
+harness 只要能实现自举就可以开源了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
