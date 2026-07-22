@@ -4355,3 +4355,30 @@ D指导现在口水真是淌一地，在我这里完全和gemini坐一桌了
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  lactone  
+##### 3374#       发表于 2026-7-22 07:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69948298&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-22 07:44</a>
+虽然我看不起月之暗面的商业模式，但是这波破大防的效果说明那些鼓吹ai咩鳖的傻卵似乎并不懂AI
+说神秘模型 ...</blockquote>
+没有，这个抹黑还是威力很大的，至少给不懂ai的人搞一堆术语，很容易就被唬得一愣一愣的
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  舞以  
+##### 3375#       发表于 2026-7-22 07:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69948300&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-22 07:46</a>
+没有，这个抹黑还是威力很大的，至少给不懂ai的人搞一堆术语，很容易就被唬得一愣一愣的
+
+—— 来自 vivo ...</blockquote>
+这个话题不聊了，愿意相信这种话术的人本身就是有这种需求，就像魏建军一样。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
