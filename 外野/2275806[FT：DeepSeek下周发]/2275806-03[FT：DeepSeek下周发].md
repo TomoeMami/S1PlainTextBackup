@@ -4468,3 +4468,45 @@ coding领域突飞猛进说是，算是越过了可用线，
 取消置顶而不是删除不就是更新前兆么</blockquote>
 我意思是进入开放平台，顶部不再有那个涨价公告了。就是删除了吧。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 3385#       发表于 2026-7-22 10:32
+
+那个提示点掉就没了吧，我的早就没了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  misuzu0723  
+##### 3386#       发表于 2026-7-22 10:33
+
+充值界面的涨价公告还在
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  舞以  
+##### 3387#       发表于 2026-7-22 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69949055&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-7-22 10:33</a>
+
+充值界面的涨价公告还在
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+还真是，永远不会结束的七月中旬
+
+*****
+
+####  ymm1030  
+##### 3388#       发表于 2026-7-22 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69949010&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-7-22 10:27</a>
+我意思是进入开放平台，顶部不再有那个涨价公告了。就是删除了吧。</blockquote>
+还有啊，那个公告本来就挺奇怪的，我在公司打开有，家里打开没有
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
