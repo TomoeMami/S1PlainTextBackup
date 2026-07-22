@@ -5276,3 +5276,27 @@ harness 只要能实现自举就可以开源了<img src="https://static.stage1st
 
 贴吧魔怔人已经开始算卦了
 
+
+*****
+
+####  chenyedgg  
+##### 3459#       发表于 2026-7-22 22:32
+
+<img src="https://img.stage1st.com/forum/202607/22/222921lzit77ci5dhn3rg5.png" referrerpolicy="no-referrer">
+
+<strong>F894DFE69C53B476D85244C604383C4C.png</strong> (157.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-22 22:29 上传
+
+<img src="https://img.stage1st.com/forum/202607/22/222921l44mu3escke49us4.png" referrerpolicy="no-referrer">
+
+<strong>F9128DF04A8E4624B7E6CD13F6CC2E86.png</strong> (43.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-22 22:29 上传
+
+opencode构建者想当赛博大法官和犯罪者了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
