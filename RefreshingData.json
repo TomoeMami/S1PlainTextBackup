@@ -9186,7 +9186,7 @@
     "lastedit": 1784734260,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2192350": {
     "totalreply": 2109,
@@ -12399,7 +12399,7 @@
     "lastedit": 1784734980,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2218875": {
     "totalreply": 1594,
@@ -13749,7 +13749,7 @@
     "lastedit": 1784735220,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2284730": {
     "totalreply": 527,
@@ -14216,15 +14216,6 @@
     "newtitle": "[自来水能否作为日常饮用水]",
     "lastedit": 1783585690,
     "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2285107": {
-    "totalreply": 88,
-    "title": "[游戏公司应不应该让主播／自媒体提前解锁游戏]",
-    "newtitle": "[游戏公司应不应该让主播／自媒体提前解锁游戏]",
-    "lastedit": 1783528327,
-    "category": "游戏区",
     "active": false,
     "update": false
   },
@@ -16845,7 +16836,7 @@
     "lastedit": 1784735040,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2249764": {
     "totalreply": 149,
@@ -17106,7 +17097,7 @@
     "lastedit": 1784734140,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2285896": {
     "totalreply": 72,
@@ -17151,7 +17142,7 @@
     "lastedit": 1784734920,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2285887": {
     "totalreply": 48,
@@ -17187,7 +17178,7 @@
     "lastedit": 1784735220,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2207557": {
     "totalreply": 232,
@@ -17358,7 +17349,7 @@
     "lastedit": 1784734800,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   },
   "2286014": {
     "totalreply": 154,
@@ -17484,6 +17475,6 @@
     "lastedit": 1784734500,
     "category": "外野",
     "active": true,
-    "update": true
+    "update": false
   }
 }
