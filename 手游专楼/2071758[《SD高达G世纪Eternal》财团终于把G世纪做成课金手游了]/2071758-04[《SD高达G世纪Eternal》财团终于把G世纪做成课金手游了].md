@@ -388,3 +388,26 @@ dmm那边上了，打3000吧
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  电脑死机  
+##### 4553#       发表于 2026-7-22 08:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69948356&amp;ptid=2071758" target="_blank">一个陆仁贾 发表于 2026-7-22 08:13</a>
+
+看到使命清单那么多，然后奖励只是商店代币，完全没动力打
+
+—— 来自 vivo V2419A, Android 16, 鹅球 v3.5 ...</blockquote>
+真正奖励是ssp材料，武器强化材料，还有钱呢，一路打下来等于送你一台强力ssp机体
+
+
+*****
+
+####  acg_gyanc  
+##### 4554#       发表于 2026-7-22 08:22
+
+最终任务6个任务也能抱怨太难的么，好奇是不是根本不打永恒之路的……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
