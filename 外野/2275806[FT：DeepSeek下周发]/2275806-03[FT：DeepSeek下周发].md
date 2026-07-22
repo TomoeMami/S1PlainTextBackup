@@ -5146,3 +5146,11 @@ harness 只要能实现自举就可以开源了<img src="https://static.stage1st
 
 —— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  千千千千鸟  
+##### 3446#       发表于 2026-7-22 18:51
+
+肯定今天不会发呀，想都不用想，我猜，如果真的会发，就是二十四号了吧？估计最快就二十四号了现在比起新版的Deepseek，我还更期待他们的 agent
+
