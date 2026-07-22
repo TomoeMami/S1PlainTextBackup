@@ -4510,3 +4510,32 @@ coding领域突飞猛进说是，算是越过了可用线，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  飛霞精灵  
+##### 3389#       发表于 2026-7-22 10:39
+
+怎么V4F的联网搜索又崩了？
+
+
+*****
+
+####  overflowal  
+##### 3390#       发表于 2026-7-22 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69949067&amp;ptid=2275806" target="_blank">ymm1030 发表于 2026-7-22 10:34</a>
+
+还有啊，那个公告本来就挺奇怪的，我在公司打开有，家里打开没有
+
+—— 来自 S1Fun ...</blockquote>
+你叉掉那个公告就不会显示了
+
+
+*****
+
+####  UmarIbnLaAhad  
+##### 3391#       发表于 2026-7-22 10:44
+
+联网无了，有理由相信这是要更新了<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
