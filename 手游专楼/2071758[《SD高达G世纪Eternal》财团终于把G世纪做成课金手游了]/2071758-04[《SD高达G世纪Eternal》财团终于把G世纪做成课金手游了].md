@@ -378,3 +378,13 @@ dmm那边上了，打3000吧
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  一个陆仁贾  
+##### 4552#       发表于 2026-7-22 08:13
+
+看到使命清单那么多，然后奖励只是商店代币，完全没动力打
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
