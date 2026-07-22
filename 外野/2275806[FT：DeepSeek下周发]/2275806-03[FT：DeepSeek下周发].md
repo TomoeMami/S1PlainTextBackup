@@ -5096,3 +5096,13 @@ https://qwen.ai/blog?id=qwen-image-3.0
 
 harness 只要能实现自举就可以开源了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  overflowal  
+##### 3441#       发表于 2026-7-22 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69950786&amp;ptid=2275806" target="_blank">斯卡文分则能成 发表于 2026-7-22 15:52</a>
+搜索模式挂了啊，大的要来了？</blockquote>
+搜索挂了就是小的来了,api挂了可以勉强称之为大的来了<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
