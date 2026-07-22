@@ -4987,3 +4987,28 @@ opencode的v4f等模型最近咋各种爆炸啊
 
 [https://qwen.ai/home](https://qwen.ai/home) 。阿里这个国外版本的Qwen Image 3.0比国内版本的好用，我用来画架构图有GPT Image2.0的水平了，很好很强大
 
+
+*****
+
+####  飛霞精灵  
+##### 3430#       发表于 2026-7-22 14:48
+
+V4F的搜索模式还没好，要是不上新版本或者不能联网的话，那还是滚回去用v4p？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  很久就在那边l  
+##### 3431#       发表于 2026-7-22 14:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69950342&amp;ptid=2275806" target="_blank">tigaly 发表于 2026-7-22 14:40</a>
+https://qwen.ai/home 。阿里这个国外版本的Qwen Image 3.0比国内版本的好用，我用来画架构图有GPT Image2. ...</blockquote>
+[https://qwen.ai/blog?id=qwen-image-3.0](https://qwen.ai/blog?id=qwen-image-3.0)
+他宣传的几个样图确实有image2的味道，但是实际体验下来和样图差距太大了
+
+*****
+
+####  王兰花秀丽  
+##### 3432#       发表于 2026-7-22 14:52
+
+听说agent已经开始内测了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
