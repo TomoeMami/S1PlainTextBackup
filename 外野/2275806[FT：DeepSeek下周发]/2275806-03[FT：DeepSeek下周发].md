@@ -5835,3 +5835,64 @@ https://b23.tv/3py2tZB
 华为只给梁子拨了一万多张B950，换算下来相当于4000多张顶端NVIDIA卡，下一代训练估计还是得用N卡。 ...</blockquote>
 华子说实话这有点不识抬举了，就给这点卡
 
+
+*****
+
+####  nxmonitor  
+##### 3498#       发表于 2026-7-23 12:06
+
+激活800B就这差距好像有点拉了，这泡泡破得会比想象中还快，现在的价格已经逼着美国公司必须用中国模型了
+
+*****
+
+####  M乔梦  
+##### 3499#       发表于 2026-7-23 12:09
+
+没想到这张图还能用<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202607/23/120847fp3vpp6kevvrrekk.png" referrerpolicy="no-referrer">
+
+<strong>img_4267.png</strong> (290.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-23 12:08 上传
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cube  
+##### 3500#       发表于 2026-7-23 12:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953667&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-23 12:03</a>
+华子说实话这有点不识抬举了，就给这点卡</blockquote>
+已经算是从产能中硬挤出来的这点了。
+
+像阿里、字节这些大头，肯定会占用华为的大部分产能。
+
+*****
+
+####  nxmonitor  
+##### 3501#       发表于 2026-7-23 12:10
+
+一万多950大概是二三十亿了对DS而言开支占不少了，就看黑科技infra发力了
+
+
+*****
+
+####  overflowal  
+##### 3502#       发表于 2026-7-23 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953694&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-23 12:10</a>
+
+一万多950大概是二三十亿了对DS而言开支占不少了，就看黑科技infra发力了</blockquote>
+现在他们根本不是开支多少的问题，而是根本开不出去，买不到啊
+
+*****
+
+####  龙骑士尹志平  
+##### 3503#       发表于 2026-7-23 12:12
+
+看梁子对多模态的态度似乎是让ai按照人的思维去生成，图形就用svg生画，音乐就用公式硬算，加个识图接受输入就行了，其他都用llm来做
+
