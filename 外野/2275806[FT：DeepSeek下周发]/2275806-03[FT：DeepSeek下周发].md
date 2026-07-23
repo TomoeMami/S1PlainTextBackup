@@ -7258,3 +7258,73 @@ https://weibo.com/1560906700/5323851308470350
 我发现这波K3后，国内黑的最厉害的还不是传统大侄子，而是炒美股的</blockquote>
 据我粗略的观察，至少小蓝书的殖人大多还停留在分不清Claudecode和Claude、同时认为fable5一键灭鳖以及fable5是谷歌出品的水平上，属于是看到他们暴论LLM AI脑瓜仁疼的档次
 
+
+*****
+
+####  高粱河车神  
+##### 3628#       发表于 2026-7-23 16:14
+
+<blockquote>我稍微提醒一下，梁文锋讲了很多一些比较敏感的信息，请大家千万不要外传一些数字或一些情况，包括卡量什么的。同时也千万不要录屏对外做分享。</blockquote>
+笑死                      
+
+*****
+
+####  nxmonitor  
+##### 3629#       发表于 2026-7-23 16:16
+
+反正就是华为脑子不清楚，DS是最可能完善这个生态的，TileLang都是他们做出来的，大厂买你的卡最多去弄推理
+
+*****
+
+####  ycjiang1337  
+##### 3630#       发表于 2026-7-23 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954806&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-23 16:16</a>
+反正就是华为脑子不清楚，DS是最可能完善这个生态的，TileLang都是他们做出来的，大厂买你的卡最多去弄推理 ...</blockquote>
+脑子不清楚的是你，梁圣自己都说了他们可以用水卡，反而大厂必须硬着头皮用来训练，不然真的卡脖子卡到死
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+
+*****
+
+####  mitzvah  
+##### 3631#       发表于 2026-7-23 16:20
+
+ 本帖最后由 mitzvah 于 2026-7-23 16:22 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954806&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-23 16:16</a>
+
+反正就是华为脑子不清楚，DS是最可能完善这个生态的，TileLang都是他们做出来的，大厂买你的卡最多去弄推理 ...</blockquote>
+互联网大厂也可以出租算力的，deepseek也可以租华为的卡啊
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 3632#       发表于 2026-7-23 16:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+不是难道你楼就没有人知道美团和华为100亿升腾的故事吗
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  ycjiang1337  
+##### 3633#       发表于 2026-7-23 16:23
+
+像微信抖音这种线上业务，有大量的后训练需求，而且严格禁止用水卡，哪怕是买回来了也只能放着干瞪眼。如果用了的话会同时被中美两国混合双打。
+
+反而是基座模型训练任务，因为不涉及到线上和敏感数据，所以水卡可以随便用
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  nxmonitor  
+##### 3634#       发表于 2026-7-23 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954815&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-7-23 16:19</a>
+
+脑子不清楚的是你，梁圣自己都说了他们可以用水卡，反而大厂必须硬着头皮用来训练，不然真的卡脖子卡到死 ...</blockquote>
+没见到上一段吗？大厂能能拿到差数量级的卡，他觉得这个分配比例有问题
+
