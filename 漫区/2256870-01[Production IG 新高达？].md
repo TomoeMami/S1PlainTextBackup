@@ -279,3 +279,41 @@ Screenshot_20260724_023418_com.sina.weibo.jpg
 大型游戏预告，导演兼系列构成，大概率不会很长，估计就是类似雷霆宙域那种流媒体放送的短篇了 ...</blockquote>
 马桶机动画可是做了24集
 
+
+*****
+
+####  葛林TOP  
+##### 308#       发表于 2026-7-24 02:49
+
+这人设完全没火起来的要素吧,感觉像每季都有的无人关心的新番
+
+—— 来自 Xiaomi 25060RK16C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  岸浪白野  
+##### 309#       发表于 2026-7-24 02:53
+
+ 本帖最后由 岸浪白野 于 2026-7-24 02:54 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69957004&amp;ptid=2256870" target="_blank">ナルバレック 发表于 2026-7-24 02:39</a>
+印象里当年age也是和游戏一起搞的吧，虽然游戏类型和受众完全不同</blockquote>
+那不至于，AGE那游戏卖的时候动画都快播完了，而且本质动画改游戏有点补充作品的原创剧情<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Burabura  
+##### 310#       发表于 2026-7-24 02:53
+
+机设好丑
+
+那个游戏也是一眼粪作预定
+
+*****
+
+####  岸浪白野  
+##### 311#       发表于 2026-7-24 02:54
+
+这RG的动画和游戏联动又是某某某作品是什么时间线能让人想起万代最近这样干的作品只有奇异贤伴
+问题整个时间线相差90年，也没什么后传感觉吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
