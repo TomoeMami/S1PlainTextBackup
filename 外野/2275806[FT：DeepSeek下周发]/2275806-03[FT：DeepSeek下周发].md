@@ -7357,3 +7357,46 @@ https://weibo.com/1560906700/5323851308470350
 
 虽然我们更赞赏梁总的技术路线和思路，但是华为是不可能一条树上吊死的，而且算力卡的分配也不完全是商业行为。
 
+
+*****
+
+####  ycjiang1337  
+##### 3638#       发表于 2026-7-23 16:34
+
+2025年之后大厂国内线上业务合规使用N卡的路径已经被完全切断，别说B卡了，你就算买回来新的H20也不允许在国内使用，所以大厂不用950就意味着真的没得用。
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  蛋黄酱Release  
+##### 3639#       发表于 2026-7-23 16:34
+
+还没收到涨价邮件，明天是不是也来不了了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  cscbzcbz  
+##### 3640#       发表于 2026-7-23 16:38
+
+感觉明天有核弹，大的来吧
+
+
+*****
+
+####  七氷  
+##### 3641#       发表于 2026-7-23 16:40
+
+<img src="https://static.stage1st.com/image/smiley/carton2017/385.png" referrerpolicy="no-referrer">明天真有吗
+
+*****
+
+####  舞以  
+##### 3642#       发表于 2026-7-23 16:43
+
+刚发布不涨价，所以明天有大的<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
