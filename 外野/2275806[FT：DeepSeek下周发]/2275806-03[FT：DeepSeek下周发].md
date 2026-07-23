@@ -8228,3 +8228,25 @@ ds 从来不在乎这个好吧
 
 但是感谢睡王和懂王制裁老黄了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 3714#       发表于 2026-7-23 22:59
+
+就梁子和ds内部的价值观来看，k3这种又慢又贵的玩意儿，他们估计真看不上吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+而且单论之前one shot测试，k3相比神秘模型的优势也只有前端设计。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舞以  
+##### 3715#       发表于 2026-7-23 23:01
+
+我看月之暗面比ds纯粹多了啊，发模型的目的主要是给自己搞一个国内最强炼丹师的称号，至于实用，算力不足喵。
+不像ds还能靠api十个月收回硬件成本<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+就看第三方部署的k3啥价格了，我估计和官价是差不多的。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
