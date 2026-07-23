@@ -8001,3 +8001,46 @@ MaxForAI撤回了言论，
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  novem  
+##### 3694#       发表于 2026-7-23 19:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69955726&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-7-23 19:39</a>
+
+不会这个月发布了把</blockquote>
+感觉准备发布的版本估计是不如KIMI所以直接回炉了
+
+*****
+
+####  王兰花秀丽  
+##### 3695#       发表于 2026-7-23 19:53
+
+明天不发了吗，一点也...不难过...<img src="https://static.stage1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
+
+明天好像opus 5要上了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  wandeeees  
+##### 3696#       发表于 2026-7-23 19:55
+
+<img src="https://img.stage1st.com/forum/202607/23/195516scntx0cvtvvcfafj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (131.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-23 19:55 上传
+
+api用户belike
+
+*****
+
+####  nxmonitor  
+##### 3697#       发表于 2026-7-23 19:57
+
+api用户估计是算在toB里面的
+
