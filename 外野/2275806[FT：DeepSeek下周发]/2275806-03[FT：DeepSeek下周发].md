@@ -7635,3 +7635,42 @@ Screenshot_2026_0723_155733.png
 
 <img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">砍掉pro的联网搜索就是为了赶人么，，，，
 
+
+*****
+
+####  M乔梦  
+##### 3663#       发表于 2026-7-23 18:19
+
+api用户应该是算在B端里面的，app和网页算C端。我V4上来之后就没怎么用过网页了，后来还阉割了专家模式，而且api也不贵
+
+
+*****
+
+####  mr.qu  
+##### 3664#       发表于 2026-7-23 18:22
+
+官网专家模式功能被阉割是因为反代太猖獗了，没办法了只能一刀切
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  木谷高明  
+##### 3665#       发表于 2026-7-23 18:24
+
+<img src="https://img.stage1st.com/forum/202607/23/182407tzlxpvo7uz878ula.jpg" referrerpolicy="no-referrer">
+
+<strong>1000072969.jpg</strong> (99.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-23 18:24 上传
+
+<img src="https://img.stage1st.com/forum/202607/23/182415mt1cw49tyczcqouy.jpg" referrerpolicy="no-referrer">
+
+<strong>1000072970.jpg</strong> (173.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-23 18:24 上传
+
