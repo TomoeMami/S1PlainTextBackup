@@ -8126,3 +8126,29 @@ ds 从来不在乎这个好吧
 
 —— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3705#       发表于 2026-7-23 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69956102&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-7-23 21:39</a>
+你在说什么疯话，1.6T拿头打2.8T，而且V4pro涨价之后的价格也只有K3的十分之一
+
+—— 来自 HUAWEI SGT-AL ...</blockquote>
+光看参数不中咧，文心2.4t你看它骄傲了吗
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ycjiang1337  
+##### 3706#       发表于 2026-7-23 21:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69956134&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-23 21:50</a>
+
+光看参数不中咧，文心2.4t你看它骄傲了吗
+
+—— 来自 HUAWEI SGU-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
+显然Kimi并不是百度那样的废物，正常情况下低参数根本不可能越级打高参数，只能达到整体接近局部超越
+
