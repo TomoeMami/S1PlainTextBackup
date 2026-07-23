@@ -8152,3 +8152,15 @@ ds 从来不在乎这个好吧
 —— 来自 HUAWEI SGU-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
 显然Kimi并不是百度那样的废物，正常情况下低参数根本不可能越级打高参数，只能达到整体接近局部超越
 
+
+*****
+
+####  中国人  
+##### 3707#       发表于 2026-7-23 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69955771&amp;ptid=2275806" target="_blank">novem 发表于 2026-7-23 19:52</a>
+感觉准备发布的版本估计是不如KIMI所以直接回炉了</blockquote>
+啥呀？就这价格，比kimi差点也完全没问题啊。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
