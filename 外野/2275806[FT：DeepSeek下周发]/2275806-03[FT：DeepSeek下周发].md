@@ -7516,3 +7516,38 @@ AI以后肯定会成为基础设施，如果国家运营八成也会有个国家
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cube  
+##### 3652#       发表于 2026-7-23 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69955082&amp;ptid=2275806" target="_blank">fanisy 发表于 2026-7-23 17:12</a>
+
+哇梁圣这句话，朴素爱国主义，金融圈不爱听了吧
+
+—— 来自 vivo V2241A, Android 16, 鹅球 v4.0 ...</blockquote>
+梁子自己就是金融圈的大佬级人物，还在读书的时候就靠量化赚了九位数身家的存在，金融圈大部分臭鱼烂虾碰瓷不了一点。
+
+*****
+
+####  leina0602  
+##### 3653#       发表于 2026-7-23 17:39
+
+kimi K3卡到批爆啊
+
+
+*****
+
+####  谎称  
+##### 3654#       发表于 2026-7-23 17:40
+
+太感动了，我都想给梁圣送一台550w了<img src="https://static.stage1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cys_pitaten  
+##### 3655#       发表于 2026-7-23 17:41
+
+看完全文，我觉得这个实录会给相当多的AI从业者甚至非从业者心里种下一颗种子
+

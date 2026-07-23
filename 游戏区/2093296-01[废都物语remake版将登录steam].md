@@ -116,3 +116,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  摸鱼玩家  
+##### 918#       发表于 2026-7-23 17:41
+
+打算用AI自己做一个类似玩法的游戏了
+

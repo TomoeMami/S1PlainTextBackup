@@ -540,3 +540,13 @@ DEMO版最喜欢的
 
 主城bgm好烂啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有商会会长能操控吗？
 
+
+*****
+
+####  frankCC  
+##### 62#       发表于 2026-7-23 17:40
+
+ 本帖最后由 frankCC 于 2026-7-23 17:43 编辑 
+
+这也能热销第四，这都能吃得下嘛…前有红沙，后有龙之剑，感觉以后网游式单机已经在路上了，<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
