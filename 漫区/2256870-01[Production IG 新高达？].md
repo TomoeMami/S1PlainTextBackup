@@ -317,3 +317,37 @@ Screenshot_20260724_023418_com.sina.weibo.jpg
 这RG的动画和游戏联动又是某某某作品是什么时间线能让人想起万代最近这样干的作品只有奇异贤伴
 问题整个时间线相差90年，也没什么后传感觉吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liekong  
+##### 312#       发表于 2026-7-24 02:57
+
+<img src="https://img.stage1st.com/forum/202607/24/025649zl70fl00fnr07xfw.jpg" referrerpolicy="no-referrer">
+
+<strong>02e42322-9705-4cc5-8c3a-c704c6f55dbb.jpg</strong> (135.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 02:56 上传
+
+机动战士高达RG
+XARX-ZERO（亚历克斯零号）
+
+来自太阳系外的三样福音技术，让人类迎来空前繁荣，势力版图扩张至整个太阳系。
+它们分别是：重力操控、超光速通信、意念具象化技术「物质显现（Materialize）」。
+
+带来这三大福音的星际航行造物，却在被发现不到十年后失控暴走，催生了具备攻击性的自我增殖集群。
+人们将这片未知生态冠以「天启（Apocalypse）」之名。
+
+历经三个月攻防拉锯，战线僵持于卫星轨道。人类被迫放弃地球，
+将这一年定为 A.A.（天启后 / After Apocalypse）元年。
+
+时至A.A.45年，诞生于月面与殖民卫星的孩童，早已习惯天启威胁相伴的日常生活。
+就在月球表面，一位名叫阿兹米·雷（アズミ・レイ / Ray Azumi） 的少年，缓缓苏醒——
+
+——————
+用豆包翻译了一下，Apocalypse可能翻译成大灾变、末日之类的更准确吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
