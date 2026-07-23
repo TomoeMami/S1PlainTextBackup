@@ -8114,3 +8114,15 @@ ds 从来不在乎这个好吧
 自家平台有算力租赁业务群，其他项目铺的太开，又想统一入口，就搞出了九日凌空这玩意儿。
 一个炸了你可以连备胎。
 
+
+*****
+
+####  ycjiang1337  
+##### 3704#       发表于 2026-7-23 21:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69955771&amp;ptid=2275806" target="_blank">novem 发表于 2026-7-23 19:52</a>
+感觉准备发布的版本估计是不如KIMI所以直接回炉了</blockquote>
+你在说什么疯话，1.6T拿头打2.8T，而且V4pro涨价之后的价格也只有K3的十分之一
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
