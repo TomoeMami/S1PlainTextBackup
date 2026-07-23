@@ -595,3 +595,19 @@ DEMO版最喜欢的
 感觉就是个手游水平啊</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">因为就是手游改的，开发商和发行商闹掰了，改成单机上架，以前做龙之谷的
 
+
+*****
+
+####  znzn2012173  
+##### 68#       发表于 2026-7-23 23:58
+
+<img src="https://img.stage1st.com/forum/202607/23/235836qvmzf9eqrv8bho81.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-23 23:58 上传
+
+笑了 关了再开就变成这么点了
+
