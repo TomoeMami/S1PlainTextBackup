@@ -7421,3 +7421,39 @@ https://weibo.com/1560906700/5323851308470350
 这个 Scaling 包括数据的 Scaling、模型规模的 Scaling，然后训练成本。我们离探索这个Scaling 的上限还比较远，就是没有那么多算力。但我们也会不遗余力地去推进这个Scaling 的上限。</blockquote>
 <strong>硅谷在说 Scaling 到头的时候，那是对硅谷来说；对中国人来讲，我们离那个还很远，我们根本就没有 Scaling 到那个程度。</strong><img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 3644#       发表于 2026-7-23 17:04
+
+北美几兄弟真的是在挥霍资源，甚至我感觉是为了浪费而浪费<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  cube  
+##### 3645#       发表于 2026-7-23 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69955039&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-23 17:04</a>
+
+北美几兄弟真的是在挥霍资源，甚至我感觉是为了浪费而浪费
+
+论坛助手,iPhone ...</blockquote>
+因为北美几兄弟想的是如何通过讲故事+烧资源形成技术的绝对垄断，然后更好的割全世界的韭菜。至于AI不过是这个世代最好讲故事和做资本游戏的题材而已。
+
+这就导致他们互相之间就具有非常强的互斥性，和现在的互联网巨头没啥区别。网易和腾讯连个音乐版权库互通在有关部门的多次调解下还互坑呢。
+
+而梁子在大A和美股割完韭菜回来是真的想做AGI的。
+
+*****
+
+####  fanisy  
+##### 3646#       发表于 2026-7-23 17:12
+
+哇梁圣这句话，朴素爱国主义，金融圈不爱听了吧
+
+—— 来自 vivo V2241A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
