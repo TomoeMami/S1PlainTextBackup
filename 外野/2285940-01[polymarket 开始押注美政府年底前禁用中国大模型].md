@@ -399,3 +399,11 @@ AI如履薄冰，能撑到年底吗？<img src="https://static.stage1st.com/imag
 
 马上到
 
+
+*****
+
+####  烤鱼饼  
+##### 46#       发表于 2026-7-23 09:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">国产化信创都一堆底层用开源软件开源系统的，美国什么自信能禁掉开源软件使用
+
