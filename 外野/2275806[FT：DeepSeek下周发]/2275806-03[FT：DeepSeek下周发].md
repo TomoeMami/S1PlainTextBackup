@@ -7967,3 +7967,37 @@ MaxForAI撤回了言论，
 
 为啥会觉得这人消息靠谱，他也不是ds的啊入职的是lobehub
 
+
+*****
+
+####  wandeeees  
+##### 3691#       发表于 2026-7-23 19:39
+
+不会这个月发布了把<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ycjiang1337  
+##### 3692#       发表于 2026-7-23 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69955650&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-7-23 19:18</a>
+
+对,对~对~
+
+华为就是国内计算卡的神,其他家全部垃圾,不可能赶上华为.
+
+他们的存在就是对华为的亵渎,政府应 ...</blockquote>
+那你迷惑啥呢，迷惑华为为什么不All in DS？
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3693#       发表于 2026-7-23 19:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69955617&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-7-23 19:08</a>
+阿里那地方我觉得真的是在浪费算力，自己搞出一大堆的模型。你这么多的模型怎么可能去把它们都维护好，并且 ...</blockquote>
+千问小尺寸对个人部署和做研究都很友好啊
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
