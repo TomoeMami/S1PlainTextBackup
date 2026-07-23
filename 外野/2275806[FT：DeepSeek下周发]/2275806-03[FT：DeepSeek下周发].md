@@ -5942,3 +5942,45 @@ https://b23.tv/3py2tZB
 真可能会有失败主义的反AI魔怔人跑来刺鲨
 保持神秘主义是对的。
 
+
+*****
+
+####  2017.05.04  
+##### 3509#       发表于 2026-7-23 12:34
+
+该拿小鞭子抽菊花了
+
+现在Kimi/GLM/DS算力都不充裕
+
+*****
+
+####  harry3  
+##### 3510#       发表于 2026-7-23 12:35
+
+<blockquote>我们没有那么多卡，我们的卡的数量还是比较少的。我们现在大概是两万张H等效算力，这其中大部分是刚到，最近一两个月刚到，可能还有很多机器还没有来。
+
+我们总的算力去年比较少，今年我们在非常激进地扩充这个算力。我们现在大概是两万张H等效，接下来几个月我们还会有大批量的机器买过来，基本上都是英伟达。</blockquote>
+
+说好的不能录音卡的数量呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 3511#       发表于 2026-7-23 12:39
+
+maxforai的话靠谱吗？他在b站也说了v4很快会发布
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  overflowal  
+##### 3512#       发表于 2026-7-23 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953819&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-23 12:39</a>
+maxforai的话靠谱吗？他在b站也说了v4很快会发布
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+应该比较靠谱，是圈内人，不是纯烂炒的自媒体    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

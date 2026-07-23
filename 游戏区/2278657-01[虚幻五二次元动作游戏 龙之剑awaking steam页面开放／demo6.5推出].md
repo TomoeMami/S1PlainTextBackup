@@ -382,3 +382,11 @@ beta好像没有锁定功能 制作组发了个整改公告写了一大堆内容
 
 单机和原神比的话，要看是和白嫖原神比还是氪满原神比吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mimikami  
+##### 46#       发表于 2026-7-23 12:44
+
+喷了，进去就是狗粮圣遗物技能升级命座，战斗也就两个技能加平a跳a还有特殊技能和切人技能，大招，一眼看到头的无聊战斗，赶紧退款溜了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
