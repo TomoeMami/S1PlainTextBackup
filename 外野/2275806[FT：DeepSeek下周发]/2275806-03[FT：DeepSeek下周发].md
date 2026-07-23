@@ -6518,3 +6518,102 @@ ds可以不以资本扩张为主线，不妨碍梁叔叔的量化基 ...</blockq
 
 所以意思是不是华为只给DS一万张卡，而是DS只要一万张？
 
+
+*****
+
+####  nxmonitor  
+##### 3560#       发表于 2026-7-23 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954198&amp;ptid=2275806" target="_blank">zy450 发表于 2026-7-23 14:12</a>
+
+所以意思是不是华为只给DS一万张卡，而是DS只要一万张？</blockquote>
+显然不是，不然怎么还买其他卡……
+
+
+*****
+
+####  yoki42  
+##### 3561#       发表于 2026-7-23 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954198&amp;ptid=2275806" target="_blank">zy450 发表于 2026-7-23 14:12</a>
+所以意思是不是华为只给DS一万张卡，而是DS只要一万张？</blockquote>
+感觉就是海思产能到瓶颈现阶段只有这个量
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  秦南心  
+##### 3562#       发表于 2026-7-23 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954198&amp;ptid=2275806" target="_blank">zy450 发表于 2026-7-23 14:12</a>
+
+所以意思是不是华为只给DS一万张卡，而是DS只要一万张？</blockquote><blockquote>如果我要训练跟AI同样大的模型，应该需要五万张GB300，或者华为950，二十万卡。
+
+这只是训练，还没有考虑做研究。所以我们跟美国之间最大的差距是在资源上面。</blockquote>
+仔细想了想，应该是上头分配好的，华为这批产能就十万出头，就算ds拿到二十万的卡，把CANN走通，把超大模型训出来，其他厂商也搞不起来CANN生态，
+
+受限于计算卡无法达到把蛋糕做大的目的，
+
+但如果ds有办法把这次灰测正式版落实，以几十b的激活的“小模型”达到800b激活的总参数数T甚至10T的SOTA水平，配合华为铺开产能，这才是杀招
+
+*****
+
+####  nxmonitor  
+##### 3563#       发表于 2026-7-23 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954084&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-7-23 13:44</a>
+
+950跑推理的效费比应该挺高，不然做不到这么低成本
+
+—— 来自 HUAWEI SGT-AL50, Android 12, 鹅球 v3.4.97 ...</blockquote>
+因为DS自己的infra水平很高，你看第三方部署那些云服务商都做不到一个成本，阿里云火山云都这样
+
+*****
+
+####  goranger  
+##### 3564#       发表于 2026-7-23 14:20
+
+最后问问题那几个有的符合刻板印象，浪费了机会
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  施人诚  
+##### 3565#       发表于 2026-7-23 14:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954177&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-7-23 14:07</a>
+
+我感觉量化基金挣的钱和deepseek已经没法比了
+
+10个月回本什么概念，太夸张了 ...</blockquote>
+粱圣文中提到 比如说人类gdp的10%
+
+*****
+
+####  nxmonitor  
+##### 3566#       发表于 2026-7-23 14:21
+
+所以华为的策略很迷，DS是最有耐心帮华为构建生态的，其他的大厂可不会这么好心，尤其还有阿里这种自己卖卡的
+
+*****
+
+####  goranger  
+##### 3567#       发表于 2026-7-23 14:21
+
+另外根据opencode官方群，他们的zen flash是路由到美国的，go里边的flash是官方，所以会出现zen挂了go没事的现象
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  舞以  
+##### 3568#       发表于 2026-7-23 14:22
+
+华为也要挣钱呗，感觉半导体和国产算力虽然是一个战略意义很重的行业，但是市场化的程度可能远比想象中高。
+大厂面对的合规压力和整体的算力需求肯定是最高的，估计也愿意开更高的价格。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
