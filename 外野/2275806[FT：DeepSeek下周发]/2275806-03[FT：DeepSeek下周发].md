@@ -7596,3 +7596,42 @@ Screenshot_2026_0723_155733.png
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  chuchoselph  
+##### 3659#       发表于 2026-7-23 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69955039&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-23 17:04</a>
+
+北美几兄弟真的是在挥霍资源，甚至我感觉是为了浪费而浪费
+
+论坛助手,iPhone ...</blockquote>
+浪费就是scaling law的一切，依靠不计成本的疯狂投入吓退外部竞争，投入表演是这场资本狂欢的真正核心
+
+
+*****
+
+####  奈落的孤火花  
+##### 3660#       发表于 2026-7-23 18:14
+
+<blockquote>我觉得是说，你站在一个技术的高位上来做相对低一级别的技术，是有这样降维打击的。至少在去年的C端，我们看到确实是这样。我们没有在C端上花很多力气，甚至一度我们都不想维护那些用户了，但是用户赶都赶不走。
+
+因为真的是赶不走，所以最终都还在。但稍微……然后今年B端的这个收入，现在看起来这个增长还比较乐观。我觉得可能这个数字跟同行比的话，应该也是比较好的，我估计。但是我们并没有花很大的精力去做这事情，我们根本就没有</blockquote>
+
+赶都赶不走<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2017.05.04  
+##### 3661#       发表于 2026-7-23 18:16
+
+别赶我走<img src="https://static.stage1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 3662#       发表于 2026-7-23 18:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">砍掉pro的联网搜索就是为了赶人么，，，，
+

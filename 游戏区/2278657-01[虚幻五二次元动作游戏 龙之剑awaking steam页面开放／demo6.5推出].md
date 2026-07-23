@@ -550,3 +550,11 @@ DEMO版最喜欢的
 
 这也能热销第四，这都能吃得下嘛…前有红沙，后有龙之剑，感觉以后网游式单机已经在路上了，<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑酒杯  
+##### 63#       发表于 2026-7-23 18:07
+
+不知为何副本内帧数比大地图低不少
+
