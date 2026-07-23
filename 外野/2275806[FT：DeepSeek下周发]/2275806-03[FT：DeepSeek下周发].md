@@ -8260,3 +8260,21 @@ ds 从来不在乎这个好吧
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  crow_wine  
+##### 3717#       发表于 2026-7-23 23:32
+
+一天蹬完gpt一周额度，算上缓存读取大概也就15m，然后缓存命中都是98以上，总共最多就是1m的输出，而且5.6 sol频繁中断用不了，用的5.5，
+这gpt哪里便宜了，难不成明天我要用还得期盼他送重置额度。不稳定的送点额度就有人以为是常态了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  nxmonitor  
+##### 3718#       发表于 2026-7-23 23:37
+
+换掉CUDA生态不只是技术问题，不缺钱的研究型公司才能大胆去做
+

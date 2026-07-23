@@ -584,3 +584,14 @@ DEMO版最喜欢的
 
 异度神游论坛证道时间来了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  结发受长生  
+##### 67#       发表于 2026-7-23 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69955794&amp;ptid=2278657" target="_blank">雪地白狼 发表于 2026-7-23 19:58</a>
+
+感觉就是个手游水平啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">因为就是手游改的，开发商和发行商闹掰了，改成单机上架，以前做龙之谷的
+
