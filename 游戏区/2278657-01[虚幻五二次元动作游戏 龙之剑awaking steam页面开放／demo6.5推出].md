@@ -494,3 +494,33 @@ demo就是不充钱原神，不知道后面还是不是更新新女人
 
 单机独游也在不停更新内容，不更了还会被说停更辜负了当初花的50块钱
 
+
+*****
+
+####  白夜凛音  
+##### 58#       发表于 2026-7-23 16:13
+
+看售前直播的说法是会更新角色和时装，游戏内容的话看销售情况决定
+
+QA：暂无武器隐藏，泳装皮肤发售后两周公布，天空岛后续主线及新增配音视发售后成本回收情况继续开发（新增角色及dlc皮肤无关销量保证更新），增加了150多个探索任务点，取消每日任务但保留每日刷新的区域狩猎，适配单机化的游玩节奏，大师技能通过藏宝图任务获取材料
+
+*****
+
+####  真红眼教授  
+##### 59#       发表于 2026-7-23 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954127&amp;ptid=2278657" target="_blank">魂淡放我出去 发表于 2026-7-23 13:54</a>
+
+能否来几张图让我批判批判
+
+—— 来自 鹅球 v3.3.96</blockquote>
+DEMO版最喜欢的
+
+<img src="https://img.stage1st.com/forum/202607/23/161641hg6br6gksj6k3k55.jpg" referrerpolicy="no-referrer">
+
+<strong>Dragon-Sword-Awakening-Theresia.jpg</strong> (224.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-23 16:16 上传
+

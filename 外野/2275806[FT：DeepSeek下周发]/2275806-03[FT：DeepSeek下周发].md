@@ -7202,3 +7202,59 @@ https://weibo.com/1560906700/5323851308470350
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  saintsimpler  
+##### 3623#       发表于 2026-7-23 16:05
+
+所以整个昇腾高端产能也就20万左右？这么看光刻机还是卡了脖子的。华为的韬定律更多讲的也是性能提升，产能还是个问题。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  tillnight  
+##### 3624#       发表于 2026-7-23 16:06
+
+ 本帖最后由 tillnight 于 2026-7-23 16:09 编辑 
+<blockquote>saintsimpler 发表于 2026-7-23 16:05
+所以整个昇腾高端产能也就20万左右？这么看光刻机还是卡了脖子的。华为的韬定律更多讲的也是性能提升，产能 ...</blockquote>
+
+大厂10万，大厂有bat，b是哪家你别管，家家都买了十万级的，另外中小实验室不止ds，智谱也能分到万卡级。
+
+40-50万本来就是预期中的dt下半年的发货总量（扣除安装中的年底前实际上线大约30万）
+
+*****
+
+####  ycjiang1337  
+##### 3625#       发表于 2026-7-23 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954756&amp;ptid=2275806" target="_blank">saintsimpler 发表于 2026-7-23 16:05</a>
+所以整个昇腾高端产能也就20万左右？这么看光刻机还是卡了脖子的。华为的韬定律更多讲的也是性能提升，产能 ...</blockquote>
+卡脖子是内存，950PR上半年就先出货了，DT需要等定制HBM
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+
+*****
+
+####  高粱河车神  
+##### 3626#       发表于 2026-7-23 16:10
+
+我还没看完那个讲话，太长了实在是
+
+边摸鱼边看
+
+找到一句这个话 <blockquote>V4的后续版本会支持原生的多模态</blockquote>
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3627#       发表于 2026-7-23 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954627&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-23 15:39</a>
+
+我发现这波K3后，国内黑的最厉害的还不是传统大侄子，而是炒美股的</blockquote>
+据我粗略的观察，至少小蓝书的殖人大多还停留在分不清Claudecode和Claude、同时认为fable5一键灭鳖以及fable5是谷歌出品的水平上，属于是看到他们暴论LLM AI脑瓜仁疼的档次
+
