@@ -6937,3 +6937,108 @@ OK你不作太多商业化考量没问题，但是能不能鸿蒙客户端搞一
 
 1.15 MB, 下载次数: 0
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3600#       发表于 2026-7-23 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954446&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-23 15:00</a>
+
+数据安全问题极其严重，OpenAI那个突破沙箱的事情，前半段其实没什么问题，后半段只能用本地部署的开源模型 ...</blockquote>
+那个大抵上就是closeai在借机会吹牛逼
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3601#       发表于 2026-7-23 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954485&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-7-23 15:09</a>
+
+我现在对梁圣的意见有一条
+
+OK你不作太多商业化考量没问题，但是能不能鸿蒙客户端搞一个啊，这多简单的事啊 ...</blockquote>
+但该说不说，D指导自己客户端自打pro没有联网搜索以后基本就没啥使用价值了，虽然原本挂的联网搜索工具也不咋样就是了
+
+*****
+
+####  舞以  
+##### 3602#       发表于 2026-7-23 15:17
+
+那个入侵hf不典型的closedAI蒸馏了a➗的炒作行为么<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nxmonitor  
+##### 3603#       发表于 2026-7-23 15:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954514&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-23 15:15</a>
+
+那个大抵上就是closeai在借机会吹牛逼</blockquote>
+是丧事喜办，他们自己的通告里没写Huggieface用本地部署的GLM5.2解决了问题，然而是个正常公司的网安部门都只会看后半部分
+
+*****
+
+####  秦南心  
+##### 3604#       发表于 2026-7-23 15:19
+
+deepseek愿景往简单说是AGI，核心理念上则是一个纯度极高的团队去追逐智能的皇冠，相当于纯数、理论研究一般的上下求索，
+
+以克制的思路，只获取必要利润，低利润约束成本控制，
+
+追求实际落地可用骨子又透着实用主义色彩，
+
+成本优化不是服务于卖API，而是跟开源形成闭环逻辑，能让其他人去部署，把蛋糕做大让大家用得起，
+
+探索的成果以开源、极度克制的利润变现的方式与外部世界交互，给予了团队极高纯度的实践正反馈（轻度工作和扁平化无层级维持创新动力反而是比较常见的一种非传统管理方式）
+
+梁说的蛮清楚的了：不做视频模型、世界模型、多模态（多模态最终还是要做的）
+
+本质是因为它跟智能的上限没有什么关系
+
+*****
+
+####  高粱河车神  
+##### 3605#       发表于 2026-7-23 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954518&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-23 15:16</a>
+
+但该说不说，D指导自己客户端自打pro没有联网搜索以后基本就没啥使用价值了，虽然原本挂的联网搜索工具也 ...</blockquote>
+而且不能上传附件，从此我就没咋用切换成KIMI了
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3606#       发表于 2026-7-23 15:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954530&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-23 15:18</a>
+
+是丧事喜办，他们自己的通告里没写Huggieface用本地部署的GLM5.2解决了问题，然而是个正常公司的网安部门 ...</blockquote>
+不是，我的意思是closeai宣传说是5.6自己在应试时候突破沙箱去互联网上寻找答案攻破了hf，这一条基本上就是closeai吹牛逼的
+
+*****
+
+####  nxmonitor  
+##### 3607#       发表于 2026-7-23 15:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954544&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-23 15:21</a>
+
+不是，我的意思是closeai宣传说是5.6自己在应试时候突破沙箱去互联网上寻找答案攻破了hf，这一条基本上就 ...</blockquote>
+确实，这一段和A÷一样纯炒作，一定有刻意攻击的提示词，突破的门也是故意留的，只能骗骗白宫里那帮子人……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  harry3  
+##### 3608#       发表于 2026-7-23 15:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954084&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-7-23 13:44</a>
+
+950跑推理的效费比应该挺高，不然做不到这么低成本
+
+—— 来自 HUAWEI SGT-AL50, Android 12, 鹅球 v3.4.97 ...</blockquote>
+和950推理有啥关系，只是说今年买到了1w6的配额，现在到货了也只是极少量
+
