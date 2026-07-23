@@ -7551,3 +7551,48 @@ kimi K3卡到批爆啊
 
 看完全文，我觉得这个实录会给相当多的AI从业者甚至非从业者心里种下一颗种子
 
+
+*****
+
+####  绝地潜兵  
+##### 3656#       发表于 2026-7-23 17:48
+
+ 本帖最后由 绝地潜兵 于 2026-7-23 17:53 编辑 
+
+梁子：
+
+<img src="https://img.stage1st.com/forum/202607/23/174837yny1toynp43il8yl.png" referrerpolicy="no-referrer">
+
+<strong>content-6.png</strong> (189.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-23 17:48 上传
+
+笑嘻了，应该是说的客户端和网页版日活用户
+
+Screenshot_2026_0723_155733.png
+(128.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-23 17:50 上传
+
+<img src="https://img.stage1st.com/forum/202607/23/175055edddddw99k7id2gy.png" referrerpolicy="no-referrer">
+
+*****
+
+####  买码！注册！  
+##### 3657#       发表于 2026-7-23 17:50
+
+梁总快发新版本吧，最好是明天，不然我简直要以小人之心怀疑这会议发言传出来是为了强行挽尊
+
+*****
+
+####  Milarvoz  
+##### 3658#       发表于 2026-7-23 17:52
+
+好急好急，梁子快用我。<img src="https://static.stage1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
