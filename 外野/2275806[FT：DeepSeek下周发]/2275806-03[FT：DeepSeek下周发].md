@@ -8362,3 +8362,29 @@ gpt的20x订阅还真挺实用的，只要订的起，用得完<img src="https:/
 
 一直自费用 ds4f 的我表示 “严肃工作” 一天最多花 2 RMB
 
+
+*****
+
+####  spaceblue  
+##### 3727#       发表于 2026-7-24 07:34
+
+<img src="https://img.stage1st.com/forum/202607/24/073310aodpohnc9szz9ycn.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (93.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 07:33 上传
+
+<img src="https://img.stage1st.com/forum/202607/24/073310jokjwvkbe5dxwekp.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (195.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 07:33 上传
+
+给你创造的价值远大于订阅费用不就是好东西吗？
+
+我不是程序员，体感更新5.6后额度用得飞快，之后考虑再另外买个国产coding plan了。
+
