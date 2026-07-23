@@ -6346,3 +6346,99 @@ B200和B300应该好搞
 
 —— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  舞以  
+##### 3544#       发表于 2026-7-23 13:46
+
+梁圣说是短时间内都很难实现在国产算力上训练旗舰模型，主要的局限还是算力产量，他觉得五年后这个问题应该就解决了。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Mar_s  
+##### 3545#       发表于 2026-7-23 13:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954049&amp;ptid=2275806" target="_blank">Hyst3r1a 发表于 2026-7-23 13:39</a>
+
+5月20日的访谈今天放出来，难道说？
+
+不是说claudecode用第三方API都会投毒让你的缓存命中变0嘛，怎么还有用 ...</blockquote>
+接ds的api反正是没遇到缓存命中问题
+
+*****
+
+####  王兰花秀丽  
+##### 3546#       发表于 2026-7-23 13:48
+
+ 本帖最后由 王兰花秀丽 于 2026-7-23 13:51 编辑 
+
+&lt;blockquote&gt;互联网大厂的追求会更大，对互联网大厂来讲，它更需要。对我们来讲，我们可以买一些不合规的卡。所以我们买华为950的目的，还是希望帮华为把这个生态做好。
+
+一万六千卡的华为950，只相当于四千卡的B系列。所以说不是一个很大的量，意义不是很大。不够训一个下一代的模型，它只够训我们现在这一代模型，不够训下一代模型。但是可以让华为把这个先做好，就是关于华为950。&lt;/blockquote&gt;    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  ycjiang1337  
+##### 3547#       发表于 2026-7-23 13:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954103&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-7-23 13:48</a>
+
+互联网大厂的追求会更大，对互联网大厂来讲，它更需要。对我们来讲，我们可以买一些不合规的卡。所以我们买 ...</blockquote>
+估计现在有的950应该都在推理上，你把B卡拿来跑线上服务肯定是浪费的
+
+
+*****
+
+####  秦南心  
+##### 3548#       发表于 2026-7-23 13:52
+
+用户多反而会被维护和服务拖累，比如豆包
+
+*****
+
+####  舞以  
+##### 3549#       发表于 2026-7-23 13:52
+
+艹，直说不合规了可还行<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舞以  
+##### 3550#       发表于 2026-7-23 13:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  fat  
+##### 3551#       发表于 2026-7-23 13:53
+
+太有格局了，今天暂时维持梁圣称号。
+明天周五还不出就贬为梁鸽！    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  Promeus  
+##### 3552#       发表于 2026-7-23 13:53
+
+ 本帖最后由 Promeus 于 2026-7-23 13:55 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954116&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-23 13:53</a>
+说到豆姐，我就纳闷字节拿到的这些数据去哪了，字节我之前还以为能端出国内最强闭源模型来着
+
+论坛助手,iPh ...</blockquote>
+现在的说法是豆包在集中搞一个超大模型<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">10T+那种
+
+*****
+
+####  秦南心  
+##### 3553#       发表于 2026-7-23 13:54
+
+融资+分红保证团队稳定性，愿景+低利润开源保证团队进取心、形成驱动力上的护城河
+

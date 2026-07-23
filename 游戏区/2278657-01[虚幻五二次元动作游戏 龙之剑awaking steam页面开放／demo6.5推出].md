@@ -441,3 +441,15 @@ beta好像没有锁定功能 制作组发了个整改公告写了一大堆内容
 —— 来自 S1Fun</blockquote>
 初始角色一般，后面都是涩涩角色，还有时装DLC
 
+
+*****
+
+####  魂淡放我出去  
+##### 52#       发表于 2026-7-23 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954019&amp;ptid=2278657" target="_blank">真红眼教授 发表于 2026-7-23 13:31</a>
+初始角色一般，后面都是涩涩角色，还有时装DLC</blockquote>
+能否来几张图让我批判批判<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
