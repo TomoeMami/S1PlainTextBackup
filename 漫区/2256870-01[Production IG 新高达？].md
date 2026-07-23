@@ -426,3 +426,21 @@ PV画面养眼，人设画风正常讨好，稍微加分。
 
 机设好难看啊特别是脸
 
+
+*****
+
+####  57042711  
+##### 321#       发表于 2026-7-24 07:12
+
+这长翅膀有尾巴的机体也太age了吧…外星人就是古代地球人的可能性微存？<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  乞力马札罗的雪  
+##### 322#       发表于 2026-7-24 07:14
+
+这机设怎么这么怪
+

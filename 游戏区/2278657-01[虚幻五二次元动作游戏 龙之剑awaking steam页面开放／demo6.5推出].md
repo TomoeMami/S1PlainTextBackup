@@ -635,3 +635,11 @@ DEMO版最喜欢的
 
 这就是原神吗，我要试试<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白夜凛音  
+##### 72#       发表于 2026-7-24 07:05
+
+提醒一下，主线29需要队伍里上那个主角，不然会导致就算打过了巴尔杜克也无法结算，这里是场操控主角变身的剧情战。
+
