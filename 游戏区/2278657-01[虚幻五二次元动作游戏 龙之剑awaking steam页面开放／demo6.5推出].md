@@ -574,3 +574,13 @@ DEMO版最喜欢的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">感觉就是个手游水平啊
 
+
+*****
+
+####  TriSPD  
+##### 66#       发表于 2026-7-23 20:42
+
+这战斗系统不是泥潭最爱的异度之刃吗，破防后打倒地和浮空接连携，这游戏每人两连携，触发还不止倒地喝浮空，属性异常之类的也可以，还有计数器触发
+
+异度神游论坛证道时间来了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

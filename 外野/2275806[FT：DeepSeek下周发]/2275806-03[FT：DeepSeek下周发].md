@@ -8061,3 +8061,25 @@ api用户估计是算在toB里面的
 
 那篇稿子真正的问题就是英伟达卡的问题
 
+
+*****
+
+####  omnitoken  
+##### 3700#       发表于 2026-7-23 20:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69955650&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-7-23 19:18</a>
+对,对~对~
+
+华为就是国内计算卡的神,其他家全部垃圾,不可能赶上华为.
+
+他们的存在就是对华为的亵渎,政府应 ...</blockquote>
+ds又不是云服务商，他的愿景不是卖token
+
+阿里和百度自己芯片的万卡集群早跑起来了
+
+字节年内也快了
+
+国内现在是百花齐放的状态何必阴阳怪气
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

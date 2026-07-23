@@ -368,3 +368,11 @@
 
 右上角多了个金毛
 
+
+*****
+
+####  madcow  
+##### 2066#       发表于 2026-7-23 20:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">应该就多了个金毛和天空树她妹（
+
