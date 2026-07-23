@@ -5896,3 +5896,38 @@ https://b23.tv/3py2tZB
 
 看梁子对多模态的态度似乎是让ai按照人的思维去生成，图形就用svg生画，音乐就用公式硬算，加个识图接受输入就行了，其他都用llm来做
 
+
+*****
+
+####  舞以  
+##### 3504#       发表于 2026-7-23 12:14
+
+这是不是解释了灰度版，svg做美术素材类似是魔法提示词的效果了？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Promeus  
+##### 3505#       发表于 2026-7-23 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953704&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-7-23 12:12</a>
+看梁子对多模态的态度似乎是让ai按照人的思维去生成，图形就用svg生画，音乐就用公式硬算，加个识图接受输 ...</blockquote>
+这就是灰测版的典型特征
+
+*****
+
+####  舞以  
+##### 3506#       发表于 2026-7-23 12:17
+
+人能活成梁叔叔的样子，能有多爽我不敢想，艹了，**牛逼。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nxmonitor  
+##### 3507#       发表于 2026-7-23 12:18
+
+我觉得是那篇撤回的论文发力了，空间感知能力和生成SVG本质是一体的
+
