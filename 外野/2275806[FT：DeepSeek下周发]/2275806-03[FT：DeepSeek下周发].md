@@ -8095,3 +8095,22 @@ ds 从来不在乎这个好吧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  noneoneone  
+##### 3702#       发表于 2026-7-23 21:35
+
+明天再不发就得买opencode go，先蹬GLM了。
+
+*****
+
+####  巨魔已被忠诚  
+##### 3703#       发表于 2026-7-23 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69955617&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-7-23 19:08</a>
+阿里那地方我觉得真的是在浪费算力，自己搞出一大堆的模型。你这么多的模型怎么可能去把它们都维护好，并且 ...</blockquote>
+阿里的特化小模型比大模型好用得多
+自家平台有算力租赁业务群，其他项目铺的太开，又想统一入口，就搞出了九日凌空这玩意儿。
+一个炸了你可以连备胎。
+
