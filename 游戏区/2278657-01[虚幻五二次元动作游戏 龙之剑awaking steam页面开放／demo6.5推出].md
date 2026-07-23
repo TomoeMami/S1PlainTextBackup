@@ -428,3 +428,16 @@ beta好像没有锁定功能 制作组发了个整改公告写了一大堆内容
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  真红眼教授  
+##### 51#       发表于 2026-7-23 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953904&amp;ptid=2278657" target="_blank">龘䶛䨻䎱㸞蚮䡶 发表于 2026-7-23 13:02</a>
+
+女人多吗
+
+—— 来自 S1Fun</blockquote>
+初始角色一般，后面都是涩涩角色，还有时装DLC
+

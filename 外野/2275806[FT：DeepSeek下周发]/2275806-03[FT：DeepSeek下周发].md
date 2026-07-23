@@ -6209,3 +6209,23 @@ v4正式版是不是就是灰测那个水平
 ds整体规模还是不大，本质实验室</blockquote>
 不知道你怎么解读出来规模不大的，他们想买都买不到。openai给随便一个普通研究员就可以配几千张H卡，你想想吧    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  2017.05.04  
+##### 3534#       发表于 2026-7-23 13:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953945&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-7-23 13:12</a>
+
+比起卡数（这个后面都说了国产卡有多少他觉得可以说），这录音里比较敏感的是说买英伟达卡。懂一点的人都 ...</blockquote>
+不至于，都说了GB200想买也买不到了，灰色算力是什么也没明确说
+
+全程都是用GB300当标准比较而已
+
+*****
+
+####  爱护动物抓根宝  
+##### 3535#       发表于 2026-7-23 13:30
+
+圣嗨二象性说是，明天能发吗<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
