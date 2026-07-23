@@ -107,3 +107,101 @@ Production : maxilla
 <img src="https://p.sda1.dev/34/26dafbb03dc30eb01f1cd1b1ab03266f/HN7pl-Ra8AA9Kcg.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/34/e22fd5e71f30961bc09ad36119ec6e08/HN7ocZ6b0AApPiH.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  二阶堂真琉  
+##### 288#       发表于 2026-7-24 02:28
+
+异世界骡子和异世界总帅都有，喷了
+
+*****
+
+####  AkaiSuisei  
+##### 289#       发表于 2026-7-24 02:28
+
+女主是佐仓吧，如果我没听错
+
+长得像菲尔特的女主，玛维的舰长，像大舅子的反派，感觉是个公式大杂烩
+
+*****
+
+####  zpl123  
+##### 290#       发表于 2026-7-24 02:29
+
+草 主角声优原来是水魔的劳达啊
+
+
+*****
+
+####  lickey  
+##### 291#       发表于 2026-7-24 02:31
+
+人设像是和网管一个时期做的
+
+这脸第一眼看到还以为是什么作画失误恶搞
+
+*****
+
+####  AkaiSuisei  
+##### 292#       发表于 2026-7-24 02:31
+
+主角机这个后续造型也是个刻板印象大杂烩：异色瞳 缠绷带 大爪子 破披风 日本刀
+
+要不叫地雷高达吧
+
+*****
+
+####  神鹰黑手哥  
+##### 293#       发表于 2026-7-24 02:32
+
+大晚上给我气笑了
+
+*****
+
+####  a85982313  
+##### 294#       发表于 2026-7-24 02:32
+
+清水这机设真的好丑啊
+
+*****
+
+####  神鹰黑手哥  
+##### 295#       发表于 2026-7-24 02:32
+
+狗代是在做什么大型社会学实验吗
+
+*****
+
+####  冰风血羽  
+##### 296#       发表于 2026-7-24 02:33
+
+好丑啊怎么是个蛇精脸
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
+*****
+
+####  novyDC  
+##### 297#       发表于 2026-7-24 02:34
+
+动漫外星人跟游戏差距好大<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  zpl123  
+##### 298#       发表于 2026-7-24 02:34
+
+看起来动画是游戏的前传吗？
+
+Screenshot_20260724_023418_com.sina.weibo.jpg
+(404.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 02:34 上传
+
+<img src="https://img.stage1st.com/forum/202607/24/023429wb5ois22ef5br2u6.jpg" referrerpolicy="no-referrer">
+
