@@ -7042,3 +7042,44 @@ deepseek愿景往简单说是AGI，核心理念上则是一个纯度极高的团
 —— 来自 HUAWEI SGT-AL50, Android 12, 鹅球 v3.4.97 ...</blockquote>
 和950推理有啥关系，只是说今年买到了1w6的配额，现在到货了也只是极少量
 
+
+*****
+
+####  舞以  
+##### 3609#       发表于 2026-7-23 15:24
+
+部分漏油还是没能意识到对于oa两家，炒作是核心技术么<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+只是closedAI没a➗那么烂炒罢了（这次攻击事件除外）
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Awanano  
+##### 3610#       发表于 2026-7-23 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954485&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-7-23 15:09</a>
+我现在对梁圣的意见有一条
+
+OK你不作太多商业化考量没问题，但是能不能鸿蒙客户端搞一个啊，这多简单的事啊 ...</blockquote>
+这个事情其实应该是另一端来做的…
+这就是鸿蒙自己的问题他要维持平台应该是自己派开发把这事办了而不是让 ds 多招人去反维护这个客户端    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  nxmonitor  
+##### 3611#       发表于 2026-7-23 15:33
+
+炒作就是为了维持垄断，所以我说这件事情后续发展和中国这边无关，本质上在于下游公司和这两东西谁声音大，实际上Saas服务都有本地部署需求，为什么大模型就要垄断呢
+
+*****
+
+####  ycjiang1337  
+##### 3612#       发表于 2026-7-23 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954551&amp;ptid=2275806" target="_blank">harry3 发表于 2026-7-23 15:23</a>
+
+和950推理有啥关系，只是说今年买到了1w6的配额，现在到货了也只是极少量 ...</blockquote>
+950PR早在Q1就出货了，真用B卡跑推理可以参照小米那个高速模式，正常价格三倍
+
