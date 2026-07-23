@@ -6815,3 +6815,73 @@ ds可以不以资本扩张为主线，不妨碍梁叔叔的量化基 ...</blockq
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪怕是a畜，也有被喊小克的日子。
 
+
+*****
+
+####  nxmonitor  
+##### 3589#       发表于 2026-7-23 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954406&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-7-23 14:51</a>
+
+我还挺想看梁子这投资人会议的内容传到推上，欧洲那批开源大佬会怎么评价，他们早就跟硅谷那帮人不是同一个 ...</blockquote>
+硅谷自己屁股都不是坐一起的，大公司纷纷开始用开源模型，更别说小公司早就用上了，甚至直接API接入
+
+*****
+
+####  leia_rolando  
+##### 3590#       发表于 2026-7-23 14:57
+
+梁总认证人才不是问题的话，感觉就有把握了。硬件资源相信能中长期能突破
+
+*****
+
+####  Promeus  
+##### 3591#       发表于 2026-7-23 14:58
+
+巨硬早就想艹OA亲妈了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">uber几个月烧掉全年预算这一块
+
+*****
+
+####  杀人鲸  
+##### 3592#       发表于 2026-7-23 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954317&amp;ptid=2275806" target="_blank">needagf 发表于 2026-7-23 14:34</a>
+有没群，我要看大老们吹水。跟着看可太有意思了</blockquote>
+其实我也想说，要知道S1是少有的有一个专楼对Deepseek进行讨论和信息收集的地方。
+其他的地方可能是我本身逛的地方比较少，基本上都找不到这种信息比较密集的收集点。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  nxmonitor  
+##### 3593#       发表于 2026-7-23 15:00
+
+数据安全问题极其严重，OpenAI那个突破沙箱的事情，前半段其实没什么问题，后半段只能用本地部署的开源模型去解决，才是这些公司关注的，还有A÷蒸馏客户数据推出同类产品的事情呢
+
+*****
+
+####  舞以  
+##### 3594#       发表于 2026-7-23 15:03
+
+幻想bigtech不在乎性价比，只会用最强的模型也是一种小蓝书程序员嘉豪的幻想了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+巨硬亚马逊凭啥要供一个亲爹到头上收自己token税啊
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  杀人鲸  
+##### 3595#       发表于 2026-7-23 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954432&amp;ptid=2275806" target="_blank">leia_rolando 发表于 2026-7-23 14:57</a>
+梁总认证人才不是问题的话，感觉就有把握了。硬件资源相信能中长期能突破 ...</blockquote>
+说到底，就像是古代一县的人才都可以打天下。
+真的可以自己造平台的那种，不叫人才，是天才，大部分的人才都需要平台对自己的能力进行锻炼。
+而我国虽然也算是问题不少的教育体系，终究还是有更多的优点。
+锻炼出来的那些人才，只要在平台上进行磨练，自然就是可用的。
+只不过天才这种存在的话，那就已经很难说是锻炼出来的，只能说是天生的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
