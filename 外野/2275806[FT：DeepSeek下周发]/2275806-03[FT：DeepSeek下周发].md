@@ -6483,3 +6483,38 @@ ds可以不以资本扩张为主线，不妨碍梁叔叔的量化基金挣钱啊
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  高粱河车神  
+##### 3557#       发表于 2026-7-23 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954145&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-23 13:58</a>
+
+这个录音稿今天放出来，是不是要叠加明天新模型的发布啊
+
+ds可以不以资本扩张为主线，不妨碍梁叔叔的量化基 ...</blockquote>
+我感觉量化基金挣的钱和deepseek已经没法比了
+
+10个月回本什么概念，太夸张了
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3558#       发表于 2026-7-23 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954116&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-23 13:53</a>
+
+说到豆姐，我就纳闷字节拿到的这些数据去哪了，字节我之前还以为能端出国内最强闭源模型来着
+
+论坛助手,iPh ...</blockquote>
+论数据谁比得过谷歌，现在gemini还不如豆包
+
+
+*****
+
+####  zy450  
+##### 3559#       发表于 2026-7-23 14:12
+
+所以意思是不是华为只给DS一万张卡，而是DS只要一万张？
+
