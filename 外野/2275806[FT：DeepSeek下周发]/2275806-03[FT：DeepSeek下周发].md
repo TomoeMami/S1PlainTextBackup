@@ -7178,3 +7178,27 @@ https://weibo.com/1560906700/5323851308470350
 
 澜夕的在线文本
 
+
+*****
+
+####  豌豆者  
+##### 3621#       发表于 2026-7-23 15:55
+
+一想到老美那边手握那么多资源然后整天勾心斗角打压同行甩锅⏰，真tm一群虫豸啊<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  豌豆者  
+##### 3622#       发表于 2026-7-23 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954708&amp;ptid=2275806" target="_blank">豌豆者 发表于 2026-7-23 15:55</a>
+一想到老美那边手握那么多资源然后整天勾心斗角打压同行甩锅⏰，真tm一群虫豸啊
+
+—— 来自 S1Fun ...</blockquote>
+转念一想国内其他大厂好像也好不到哪里去，一下又有点释然了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

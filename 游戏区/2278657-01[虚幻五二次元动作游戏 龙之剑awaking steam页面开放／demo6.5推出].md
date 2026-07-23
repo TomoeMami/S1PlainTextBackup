@@ -477,3 +477,20 @@ demo就是不充钱原神，不知道后面还是不是更新新女人
 
 玩了下demo，如果后面都是这个水平，那说实话挺无聊的……
 
+
+*****
+
+####  祸猫  
+##### 56#       发表于 2026-7-23 15:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">真是单机吗，不会是要不停更新内容吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  whzfjd  
+##### 57#       发表于 2026-7-23 15:59
+
+单机独游也在不停更新内容，不更了还会被说停更辜负了当初花的50块钱
+
