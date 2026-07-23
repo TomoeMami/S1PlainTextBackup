@@ -426,3 +426,13 @@ AI如履薄冰，能撑到年底吗？<img src="https://static.stage1st.com/imag
 
 阻止美国人给梁文峰交钱很容易，真的不许⏰模型提供部署服务，啥Groq, fireworks这种本地模型提供商全得死，连带着英伟达股价跳水。
 
+
+*****
+
+####  羊寢  
+##### 49#       发表于 2026-7-23 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944508&amp;ptid=2285940" target="_blank">Israfil 发表于 2026-7-21 09:58</a>
+如果真禁了，那美国大模型蒸馏我们的模型，算不算违法？</blockquote>
+你太小瞧老美厚脸皮的程度了，他们只会说这是为了企业的正常数据收集/商业活动
+

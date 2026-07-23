@@ -360,3 +360,11 @@
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  weiweiEX  
+##### 2065#       发表于 2026-7-23 10:37
+
+右上角多了个金毛
+
