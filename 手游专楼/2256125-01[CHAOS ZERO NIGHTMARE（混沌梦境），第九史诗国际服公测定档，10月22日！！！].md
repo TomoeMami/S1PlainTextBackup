@@ -43,3 +43,18 @@
 
 领航者为何都不玩了呀
 
+
+*****
+
+####  wthall  
+##### 1147#       发表于 2026-7-23 08:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">昨天开始就没登陆了，感觉良好，等新版本上去蝗一波，把石头抽完就能卸载了
+
+*****
+
+####  greemoore1981  
+##### 1148#       发表于 2026-7-23 15:07
+
+小开关没了我就润了，听说最近还把士气层数给设上限了，又砍废不少角色？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
