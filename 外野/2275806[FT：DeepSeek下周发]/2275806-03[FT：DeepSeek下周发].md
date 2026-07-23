@@ -8317,3 +8317,23 @@ ds 从来不在乎这个好吧
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  舞以  
+##### 3723#       发表于 2026-7-24 00:38
+
+ 本帖最后由 舞以 于 2026-7-24 00:41 编辑 
+
+gpt的20x订阅还真挺实用的，只要订的起，用得完<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ycjiang1337  
+##### 3724#       发表于 2026-7-24 00:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69956395&amp;ptid=2275806" target="_blank">小妻水亚美 发表于 2026-7-23 22:47</a>
+
+一家公司未必可以每一次在llm上都有重大突破吧，特别是Scaling Law还没碰到天花板之前，工程优化能力再强也 ...</blockquote>
+没人care有没有重大突破，大家期待的只是V4正式版能正常把V4基座的潜力发挥出来。以现在这个价格打不赢K3也无所谓
+
