@@ -5709,3 +5709,21 @@ MaxforAi佬说就在明天
 
 我一直觉得比较奇怪的是，是S1没有DS的员工还是DS员工都要求保密，这个楼里从来没有员工来剧透进度的
 
+
+*****
+
+####  奈落的孤火花  
+##### 3487#       发表于 2026-7-23 11:32
+
+说实在的 我还是想看ds做个xx code....还有多模态，难道不做了吗，我好想用啊<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jumbleh  
+##### 3488#       发表于 2026-7-23 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953384&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-7-23 10:53</a>
+
+话说qoder里面的神秘模型cantus是什么    Re:Source</blockquote>
+qoder的大概率不是qwen吧
+
