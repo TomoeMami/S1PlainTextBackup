@@ -407,3 +407,14 @@ AI如履薄冰，能撑到年底吗？<img src="https://static.stage1st.com/imag
 
 <img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">国产化信创都一堆底层用开源软件开源系统的，美国什么自信能禁掉开源软件使用
 
+
+*****
+
+####  shiraikuroko  
+##### 47#       发表于 2026-7-23 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69944508&amp;ptid=2285940" target="_blank">Israfil 发表于 2026-7-21 09:58</a>
+
+如果真禁了，那美国大模型蒸馏我们的模型，算不算违法？</blockquote>
+还蒸个毛线，都是开源的，你自己装在电脑 上随便用
+
