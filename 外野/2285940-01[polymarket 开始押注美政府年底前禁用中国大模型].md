@@ -487,3 +487,13 @@ AI如履薄冰，能撑到年底吗？<img src="https://static.stage1st.com/imag
 你们说，美国会不会用长臂管辖强迫其他国家禁？</blockquote>
 其他国家会读空气自ban
 
+
+*****
+
+####  大暴死  
+##### 56#       发表于 2026-7-23 11:16
+
+移除一个没说哪一个，那为什么不可以是文心一言<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
