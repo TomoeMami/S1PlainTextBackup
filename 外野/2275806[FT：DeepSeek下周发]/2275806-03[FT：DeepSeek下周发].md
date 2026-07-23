@@ -6032,3 +6032,64 @@ v4正式版是不是就是灰测那个水平
 
 完整采访里有提到v4后续版本会是原生多模态的，所以预训练里肯定是用了多模态数据。
 
+
+*****
+
+####  近距离作战  
+##### 3517#       发表于 2026-7-23 12:56
+
+<blockquote>nxmonitor 发表于 2026-7-23 12:18
+我觉得是那篇撤回的论文发力了，空间感知能力和生成SVG本质是一体的</blockquote>
+SVG是一种以坐标系和几何关系为基础，对二维视觉场景进行声明式描述的标记语言。你胖鲸鱼当年赖以成名的特技是啥？数学，对上了都对上了
+
+*****
+
+####  飛霞精灵  
+##### 3518#       发表于 2026-7-23 12:58
+
+<img src="https://img.stage1st.com/forum/202607/23/125701uabspnj6pp9c7kxb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (120.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-23 12:57 上传
+
+国内人拼命把蒸馏fable5往DS上引，白宫一挥手直接把这大活给Kimi了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能说两边人连编都是路径依赖。
+
+*****
+
+####  nxmonitor  
+##### 3519#       发表于 2026-7-23 12:59
+
+这谈话有看了一下，确实是华为只给DS一万卡，这真的有点搞不清楚情况了，只有他们愿意搞这个生态……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蛋黄酱Release  
+##### 3520#       发表于 2026-7-23 13:03
+
+除了Claude code 还有哪些在vscode上好用的agent插件？opencode插件非常不好用，kimicode只能接kimi自己的api，kilocode好用吗？
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  tillnight  
+##### 3521#       发表于 2026-7-23 13:04
+
+<blockquote>nxmonitor 发表于 2026-7-23 12:06
+激活800B就这差距好像有点拉了，这泡泡破得会比想象中还快，现在的价格已经逼着美国公司必须用中国模型了 ...</blockquote>
+他说的应该是美国前沿模型公司的内部模型，因为还说了他们训的出来但是（用户）也用不起。
+
+*****
+
+####  2017.05.04  
+##### 3522#       发表于 2026-7-23 13:05
+
+看完了，思路太清晰，未来没啥问题<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

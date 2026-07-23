@@ -407,3 +407,24 @@ beta好像没有锁定功能 制作组发了个整改公告写了一大堆内容
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是，问题是原神不好玩啊
 你拉满六命也不好玩...
 
+
+*****
+
+####  大十字紅朔  
+##### 49#       发表于 2026-7-23 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953859&amp;ptid=2278657" target="_blank">sandro 发表于 2026-7-23 12:49</a>
+
+单机可以开修改器玩吗，能开修改器肯定完爆原神啊</blockquote>
+等风月灵影？
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 50#       发表于 2026-7-23 13:02
+
+女人多吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
