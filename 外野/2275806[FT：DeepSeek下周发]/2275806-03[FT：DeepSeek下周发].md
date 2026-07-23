@@ -7083,3 +7083,56 @@ OK你不作太多商业化考量没问题，但是能不能鸿蒙客户端搞一
 和950推理有啥关系，只是说今年买到了1w6的配额，现在到货了也只是极少量 ...</blockquote>
 950PR早在Q1就出货了，真用B卡跑推理可以参照小米那个高速模式，正常价格三倍
 
+
+*****
+
+####  ycjiang1337  
+##### 3613#       发表于 2026-7-23 15:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954232&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-23 14:20</a>
+因为DS自己的infra水平很高，你看第三方部署那些云服务商都做不到一个成本，阿里云火山云都这样 ...</blockquote>
+他们用H卡跑反量化当然贵了，另外国外托管用B卡也一样贵
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  ycjiang1337  
+##### 3614#       发表于 2026-7-23 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954242&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-23 14:21</a>
+所以华为的策略很迷，DS是最有耐心帮华为构建生态的，其他的大厂可不会这么好心，尤其还有阿里这种自己卖卡 ...</blockquote>
+大厂要承受的合规要求高得多，很多场景就算把B卡买回来也不允许使用
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  lactone  
+##### 3615#       发表于 2026-7-23 15:39
+
+我发现这波K3后，国内黑的最厉害的还不是传统大侄子，而是炒美股的
+
+
+*****
+
+####  nxmonitor  
+##### 3616#       发表于 2026-7-23 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954627&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-23 15:39</a>
+
+我发现这波K3后，国内黑的最厉害的还不是传统大侄子，而是炒美股的</blockquote>
+连储存股票早就暴跌都不敢说的吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NBNB  
+##### 3617#       发表于 2026-7-23 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954145&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-23 13:58</a>
+
+这个录音稿今天放出来，是不是要叠加明天新模型的发布啊
+
+ds可以不以资本扩张为主线，不妨碍梁叔叔的量化基 ...</blockquote>
+他量化基金也就几百亿级别的管理水平，按目前融资估值他身家随便几千亿了，他对赚钱也真的很纯粹，量化管赚钱就够了,DS哪怕再值钱也不能给别人动<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
