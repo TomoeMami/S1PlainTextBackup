@@ -6617,3 +6617,70 @@ ds可以不以资本扩张为主线，不妨碍梁叔叔的量化基 ...</blockq
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  秦南心  
+##### 3569#       发表于 2026-7-23 14:25
+
+一个是华为走to B肯定要照顾好大厂，一个是现阶段产能全顶上也撑不起来CANN生态下的10T模型训练，得等昇腾下一代下下代
+
+*****
+
+####  nxmonitor  
+##### 3570#       发表于 2026-7-23 14:27
+
+直白点说这就是错觉，大模型这事情上大厂真不算“大”，反而因为内部架构导致各种阻碍。字节还是算好的因为钱多试错空间大，像阿里这种内部互相掣肘，现在还特别着急变现的，真不好说会怎么样。
+
+*****
+
+####  goranger  
+##### 3571#       发表于 2026-7-23 14:27
+
+这楼有没有群<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Promeus  
+##### 3572#       发表于 2026-7-23 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954242&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-23 14:21</a>
+所以华为的策略很迷，DS是最有耐心帮华为构建生态的，其他的大厂可不会这么好心，尤其还有阿里这种自己卖卡 ...</blockquote>
+有传言是字节早早动手把华为产能包了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cube  
+##### 3573#       发表于 2026-7-23 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954198&amp;ptid=2275806" target="_blank">zy450 发表于 2026-7-23 14:12</a>
+
+所以意思是不是华为只给DS一万张卡，而是DS只要一万张？</blockquote>
+梁子说了，要是赚的钱都能换成卡，他们早干了。
+
+现在的问题是，外部的高端卡买不到（或者渠道有限），而华为的卡产能有限。
+
+
+*****
+
+####  cube  
+##### 3574#       发表于 2026-7-23 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954293&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-23 14:29</a>
+
+有传言是字节早早动手把华为产能包了</blockquote>
+不是传言，华为在字节那都有驻场工程师，字节给的实在是太多了。
+
+但是梁子吐槽字节搞闭源没啥用（当然他可能是从技术层面说的）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  StrangerJ  
+##### 3575#       发表于 2026-7-23 14:32
+
+华子现在不是只出货了950pr吗，pr也能用来训练？还是950dt已经出货了？
+
+—— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
