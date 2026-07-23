@@ -566,3 +566,11 @@ DEMO版最喜欢的
 
 淦觉得刮痧了去经验本和狼本刷了一堆素材，结果除了角色有突破外还有佣兵团等级卡着不让当十里坡剑神<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">最后发现这游戏最直接的提升战力的方法还是觉醒（命座）
 
+
+*****
+
+####  雪地白狼  
+##### 65#       发表于 2026-7-23 19:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">感觉就是个手游水平啊
+
