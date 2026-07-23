@@ -205,3 +205,77 @@ Screenshot_20260724_023418_com.sina.weibo.jpg
 
 <img src="https://img.stage1st.com/forum/202607/24/023429wb5ois22ef5br2u6.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Adrenaline!!!  
+##### 299#       发表于 2026-7-24 02:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">我竟然觉得矮胖版本的gu是最好看的
+
+*****
+
+####  z692689995  
+##### 300#       发表于 2026-7-24 02:37
+
+真就奇异贤伴高达版<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  瞬间少年JUMP  
+##### 301#       发表于 2026-7-24 02:37
+
+大型游戏预告，导演兼系列构成，大概率不会很长，估计就是类似雷霆宙域那种流媒体放送的短篇了
+
+*****
+
+####  神鹰黑手哥  
+##### 302#       发表于 2026-7-24 02:38
+
+<blockquote>z692689995 发表于 2026-7-24 02:37
+真就奇异贤伴高达版</blockquote>
+尬黑了，马桶机器人人设虽然是盗版货色但比这个路人男女主强太多了
+
+*****
+
+####  巨乳鑰匙  
+##### 303#       发表于 2026-7-24 02:38
+
+这pv最后一段台词一听就是佐仓吧
+
+*****
+
+####  ナルバレック  
+##### 304#       发表于 2026-7-24 02:39
+
+印象里当年age也是和游戏一起搞的吧，虽然游戏类型和受众完全不同
+
+*****
+
+####  z692689995  
+##### 305#       发表于 2026-7-24 02:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69957002&amp;ptid=2256870" target="_blank">神鹰黑手哥 发表于 2026-7-24 02:38</a>
+
+尬黑了，马桶机器人人设虽然是盗版货色但比这个路人男女主强太多了</blockquote>
+说的是动画游戏跨媒体
+
+*****
+
+####  神鹰黑手哥  
+##### 306#       发表于 2026-7-24 02:41
+
+<blockquote>z692689995 发表于 2026-7-24 02:40
+说的是动画游戏跨媒体</blockquote>
+马桶机器人男主和这部高达的男主配音都一样
+
+
+*****
+
+####  双菜  
+##### 307#       发表于 2026-7-24 02:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69957001&amp;ptid=2256870" target="_blank">瞬间少年JUMP 发表于 2026-7-24 02:37</a>
+大型游戏预告，导演兼系列构成，大概率不会很长，估计就是类似雷霆宙域那种流媒体放送的短篇了 ...</blockquote>
+马桶机动画可是做了24集
+
