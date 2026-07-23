@@ -6442,3 +6442,44 @@ B200和B300应该好搞
 
 融资+分红保证团队稳定性，愿景+低利润开源保证团队进取心、形成驱动力上的护城河
 
+
+*****
+
+####  ycjiang1337  
+##### 3554#       发表于 2026-7-23 13:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954113&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-23 13:52</a>
+
+艹，直说不合规了可还行
+
+论坛助手,iPhone</blockquote>
+DS不是美股上市公司，没有海外业务，也不是关键信息服务基础设施，确实无所谓合不合规
+
+*****
+
+####  舞以  
+##### 3555#       发表于 2026-7-23 13:58
+
+这个录音稿今天放出来，是不是要叠加明天新模型的发布啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+ds可以不以资本扩张为主线，不妨碍梁叔叔的量化基金挣钱啊
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  gp1390  
+##### 3556#       发表于 2026-7-23 14:04
+
+算力不够不单要催华为，更重要的是催smic
+
+<img src="https://img.stage1st.com/forum/202607/23/140407vfohh19k9n4jfj9k.jpg" referrerpolicy="no-referrer">
+
+<strong>1000087119.jpg</strong> (1.82 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-23 14:04 上传
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
