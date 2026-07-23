@@ -5792,3 +5792,46 @@ https://b23.tv/3py2tZB
 
 这有转发，佬自己还回复了<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">当然也可能是"某个周五"
 
+
+*****
+
+####  qz66618  
+##### 3493#       发表于 2026-7-23 12:00
+
+ 本帖最后由 qz66618 于 2026-7-23 12:02 编辑 
+
+看了全文谈话，只觉得一点最现实，那就是连梁文峰都觉得算力差距是中美最大的差距，而且这个差距目前看来依旧不小<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 3494#       发表于 2026-7-23 12:00
+
+如果变成生成SVG来走通生图也行，原理上更接近人类的画法，还能把这些合并到LLM路线里面
+
+*****
+
+####  overflowal  
+##### 3495#       发表于 2026-7-23 12:01
+
+[https://mp.weixin.qq.com/s/afpd3hu5OfX6tLmrLGJY-A](https://mp.weixin.qq.com/s/afpd3hu5OfX6tLmrLGJY-A)
+
+会议完整的转录稿子。信息量巨大。。
+
+*****
+
+####  cube  
+##### 3496#       发表于 2026-7-23 12:01
+
+华为只给梁子拨了一万多张B950，换算下来相当于4000多张顶端NVIDIA卡，下一代训练估计还是得用N卡。
+
+*****
+
+####  overflowal  
+##### 3497#       发表于 2026-7-23 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953659&amp;ptid=2275806" target="_blank">cube 发表于 2026-7-23 12:01</a>
+
+华为只给梁子拨了一万多张B950，换算下来相当于4000多张顶端NVIDIA卡，下一代训练估计还是得用N卡。 ...</blockquote>
+华子说实话这有点不识抬举了，就给这点卡
+
