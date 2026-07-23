@@ -374,3 +374,11 @@ beta好像没有锁定功能 制作组发了个整改公告写了一大堆内容
 我看也是切人打轴
 比原神好玩吗
 
+
+*****
+
+####  lost-star  
+##### 45#       发表于 2026-7-23 12:31
+
+单机和原神比的话，要看是和白嫖原神比还是氪满原神比吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
