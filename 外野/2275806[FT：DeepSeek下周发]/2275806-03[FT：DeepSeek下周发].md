@@ -6740,3 +6740,78 @@ ds可以不以资本扩张为主线，不妨碍梁叔叔的量化基 ...</blockq
 最近月之暗面杨植麟的采访也出来了。这帮科技新贵难得的没有互联网时代崛起的那批领头羊身上的腐朽老登味。 ...</blockquote>
 还没被资本异化<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tillnight  
+##### 3582#       发表于 2026-7-23 14:44
+
+<blockquote>StrangerJ 发表于 2026-7-23 14:32
+华子现在不是只出货了950pr吗，pr也能用来训练？还是950dt已经出货了？
+
+—— 来自 OPPO PKU110, Android 1 ...</blockquote>
+超节点是950dt，全文都在说超节点，大概率是实际上半年部分核心客户就拿到了样品在用。这篇讲话的时间点五月的时候华为官方口径是950dt是2026q4，按这几年海思的拖延症默认是12月，但是上个月华为官方明确950dt已经提前，8月在华为云上线。8月上华为云的话，早期用户已经拿到少部分超节点很正常。
+
+*****
+
+####  nxmonitor  
+##### 3583#       发表于 2026-7-23 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954376&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-7-23 14:43</a>
+
+还没被资本异化</blockquote>
+其他人都是创业公司，梁总自己就是资本，大厂想干什么他不懂啊？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 3584#       发表于 2026-7-23 14:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉梁子用西瓜形容agi，用芝麻形容现在的商业收入等，还是在忽悠投资人。
+
+做agi才是梁子的理想，agi的商业价值更像是工具。
+
+另外梁子对多模态和世界模型的看法还挺特别的，不少多模态党看着估计要哈气了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+
+不过现在来看多模态确实也更像是一个工具和功能，对模型智能的影响还处在玄学阶段。
+
+目前可见的好处就是可以直接发图让它读以及前端部分容许模型自己截图看一眼。
+
+*****
+
+####  舞以  
+##### 3585#       发表于 2026-7-23 14:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954376&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-7-23 14:43</a>
+
+还没被资本异化</blockquote>
+你梁叔叔目前看境界确实高，真的把资本当工具而非目的。
+
+不少人创业之初可能还有理想和愿景，做大了就成了资本的化身了。
+
+
+*****
+
+####  hugosol  
+##### 3586#       发表于 2026-7-23 14:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我还挺想看梁子这投资人会议的内容传到推上，欧洲那批开源大佬会怎么评价，他们早就跟硅谷那帮人不是同一个屁股了，天天搁那硬吹中国开源大模型，我都看得不好意思了
+
+*****
+
+####  豌豆者  
+##### 3587#       发表于 2026-7-23 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954376&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-7-23 14:43</a>
+还没被资本异化</blockquote>
+也算是赶上了好时候，ai风潮有的是大佬投钱，不用为了活命而挣扎，当然梁叔叔是实力太强把a股当提款机用了，现在他自己都算资本一员了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  当光停止  
+##### 3588#       发表于 2026-7-23 14:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪怕是a畜，也有被喊小克的日子。
+
