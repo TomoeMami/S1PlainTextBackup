@@ -8192,3 +8192,39 @@ ds 从来不在乎这个好吧
 
 中芯国际，你妨碍人类进化了你知道吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  小妻水亚美  
+##### 3711#       发表于 2026-7-23 22:47
+
+一家公司未必可以每一次在llm上都有重大突破吧，特别是Scaling Law还没碰到天花板之前，工程优化能力再强也没办法打过力大砖飞<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2454DA, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  raragon  
+##### 3712#       发表于 2026-7-23 22:52
+
+大家都等V4正式版等的望眼欲穿<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+梁子求求你做个人吧
+
+*****
+
+####  qwased  
+##### 3713#       发表于 2026-7-23 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69955651&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-7-23 19:18</a>
+
+梁圣的这一段发言里面
+
+我觉得比较惊喜的就是cuda生态远没有之前渲染的那么不可战胜
+
+感觉没什么大问题 ...</blockquote>
+如果N卡可以敞开卖那它的性价比确实如同老黄说的那样买的越多省的越多
+
+但是感谢睡王和懂王制裁老黄了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
