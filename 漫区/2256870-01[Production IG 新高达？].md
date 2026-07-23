@@ -9,3 +9,11 @@
 7月24日凌晨2点 圣迭戈漫展SDCC上公开</blockquote>
 届时直播地址：[https://youtu.be/MmjWxuViry0](https://youtu.be/MmjWxuViry0)
 
+
+*****
+
+####  ティグル  
+##### 280#       发表于 2026-7-24 01:56
+
+机设丑得批爆
+
