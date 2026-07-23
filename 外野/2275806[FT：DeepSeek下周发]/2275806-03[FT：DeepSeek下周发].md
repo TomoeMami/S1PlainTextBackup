@@ -5984,3 +5984,51 @@ maxforai的话靠谱吗？他在b站也说了v4很快会发布
 —— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
 应该比较靠谱，是圈内人，不是纯烂炒的自媒体    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  Promeus  
+##### 3513#       发表于 2026-7-23 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953819&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-23 12:39</a>
+maxforai的话靠谱吗？他在b站也说了v4很快会发布
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+他自己说，他不算信源就只有梁叔叔是信源了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 3514#       发表于 2026-7-23 12:47
+
+ 本帖最后由 lactone 于 2026-7-23 12:48 编辑 
+
+v4正式版是不是就是灰测那个水平
+
+如果有差距，肯定不少人黑当初灰测是中转
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  舞以  
+##### 3515#       发表于 2026-7-23 12:53
+
+<img src="https://img.stage1st.com/forum/202607/23/125240fx1nrwn6wnnnw0tz.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (79.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-23 12:52 上传
+
+看来我和ds的品味类似<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 3516#       发表于 2026-7-23 12:55
+
+完整采访里有提到v4后续版本会是原生多模态的，所以预训练里肯定是用了多模态数据。
+
