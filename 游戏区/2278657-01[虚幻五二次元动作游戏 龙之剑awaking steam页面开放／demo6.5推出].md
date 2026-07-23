@@ -357,3 +357,20 @@ beta好像没有锁定功能 制作组发了个整改公告写了一大堆内容
 
 是太骚了过不了审核？<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Leona_Akari  
+##### 43#       发表于 2026-7-23 11:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喷了，过了，已发售
+
+*****
+
+####  アヘ顔  
+##### 44#       发表于 2026-7-23 11:23
+
+好玩吗
+我看也是切人打轴
+比原神好玩吗
+

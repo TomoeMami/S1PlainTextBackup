@@ -497,3 +497,49 @@ AI如履薄冰，能撑到年底吗？<img src="https://static.stage1st.com/imag
 
 —— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  AshPenguin  
+##### 57#       发表于 2026-7-23 11:21
+
+本国产业落后的时候搞点保护主义还能理解。两巨头还至少维持着表面上的第一第二，白宫就坐不住了，何意味
+美国人，你要自信！
+
+*****
+
+####  jkphni  
+##### 58#       发表于 2026-7-23 11:22
+
+AI服务算服贸协议吧，这蔓延到这块搞贸易战要爆炸吧
+
+*****
+
+####  nianiania  
+##### 59#       发表于 2026-7-23 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953393&amp;ptid=2285940" target="_blank">西蜀笑笑生 发表于 2026-7-23 10:55</a>
+你们说，美国会不会用长臂管辖强迫其他国家禁？</blockquote>
+稍微训练下换个名字宣称是自己做的不就得了，我看白宫老爷们到现在都没理解什么叫开源<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  FeteFrumoase  
+##### 60#       发表于 2026-7-23 11:24
+
+<blockquote>nianiania 发表于 2026-7-23 11:22
+稍微训练下换个名字宣称是自己做的不就得了，我看白宫老爷们到现在都没理解什么叫开源
+
+—— 来自 vivo V ...</blockquote>
+我们公司最新部署的一个内网模式，就是一个基于qwen的后训练模型
+
+*****
+
+####  星花  
+##### 61#       发表于 2026-7-23 11:25
+
+可以搞ai专营权，限定只能用某几个ai。自建ai违法。
+

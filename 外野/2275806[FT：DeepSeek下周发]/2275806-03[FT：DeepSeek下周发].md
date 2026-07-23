@@ -5685,3 +5685,27 @@ ds感觉对梁叔叔确实是兴趣和愿景的载体
 
 财务自由之后就开始玩了，只是梁圣的趣味比较高级，梁圣千古
 
+
+*****
+
+####  Promeus  
+##### 3484#       发表于 2026-7-23 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953505&amp;ptid=2275806" target="_blank">claymorep 发表于 2026-7-23 11:16</a>
+财务自由之后就开始玩了，只是梁圣的趣味比较高级，梁圣千古</blockquote>
+梁圣应该是为了AGI先搞了个财富自由<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 3485#       发表于 2026-7-23 11:24
+
+MaxforAi佬说就在明天
+
+*****
+
+####  Processed  
+##### 3486#       发表于 2026-7-23 11:27
+
+我一直觉得比较奇怪的是，是S1没有DS的员工还是DS员工都要求保密，这个楼里从来没有员工来剧透进度的
+
