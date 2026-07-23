@@ -58,3 +58,52 @@
 
 这蛇精脸到底是怎么通过的？
 
+
+*****
+
+####  Piano-Forest  
+##### 286#         楼主| 发表于 2026-7-24 02:20
+
+先导PV：[https://youtu.be/Lmikfxhi8E0](https://youtu.be/Lmikfxhi8E0)
+
+神山健治が描く、リビジョンされたガンダム
+
+ガンダムシリーズ新作アニメーション『機動戦士ガンダムRG XARX-ZERO（アレックスゼロ）』2027年展開決定。
+
+企画：サンライズ
+
+原作：矢立 肇　　富野由悠季
+
+監督・シリーズ構成：神山健治
+
+SF設定監修：円城 塔
+
+ガンダムデザイン：清水栄一
+
+キャラクターデザイン原案：STATO
+
+キャラクターデザイン・総作画監督：高須美野子
+
+音楽：椎名 豪
+
+制作：SOLA ANIMATION
+
+製作：バンダイナムコフィルムワークス
+
+【ティザーPV制作】
+
+Director, Editor : Charles Chung (maxilla)
+
+Producer : Kohei Yagi (maxilla)
+
+Production : maxilla
+
+*****
+
+####  Piano-Forest  
+##### 287#         楼主| 发表于 2026-7-24 02:25
+
+<img src="https://p.sda1.dev/34/bc01fccdd3e82935e674dce3facfb5dd/HN7pGtFaAAAAs_n.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/26dafbb03dc30eb01f1cd1b1ab03266f/HN7pl-Ra8AA9Kcg.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/e22fd5e71f30961bc09ad36119ec6e08/HN7ocZ6b0AApPiH.jpg" referrerpolicy="no-referrer">
+
