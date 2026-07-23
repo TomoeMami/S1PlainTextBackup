@@ -8278,3 +8278,14 @@ ds 从来不在乎这个好吧
 
 换掉CUDA生态不只是技术问题，不缺钱的研究型公司才能大胆去做
 
+
+*****
+
+####  御坂MKII  
+##### 3719#       发表于 2026-7-23 23:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69956569&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-7-23 23:32</a>
+
+一天蹬完gpt一周额度，算上缓存读取大概也就15m，然后缓存命中都是98以上，总共最多就是1m的输出，而且5.6  ...</blockquote>
+不考虑重置，200 刀的 20x 的 plan 一个月也可以撬动至少 8000 刀 的 api，也就是至少 1/66 的折算，这个确实便宜。这是我正常使用可以用到的量
+

@@ -80,3 +80,25 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都子老师进乐队还是被经纪人拿合同坑进去的，乐队的归属感有没有自己漫画的粉丝群体高都是问题，就算有时间刷社媒也是自搜看粉丝反响。
 
+
+*****
+
+####  新HGCG  
+##### 126#       发表于 2026-7-23 23:42
+
+<img src="https://img.stage1st.com/forum/202607/23/234213nlic1j5ol1ih5euh.png" referrerpolicy="no-referrer">
+
+<strong>7b6dfac0df3a3df30feac2e6b162c5e5.png</strong> (63.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-23 23:42 上传
+
+
+*****
+
+####  是谁的书画  
+##### 127#       发表于 2026-7-23 23:44
+
+目前来看，Mewtype的团魂不如薇姐小团体吧，那个米米世界出来的蓝发小人真的有在认真看简历吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
