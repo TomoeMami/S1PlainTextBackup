@@ -381,3 +381,21 @@ AI如履薄冰，能撑到年底吗？<img src="https://static.stage1st.com/imag
 
 <img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">发硬件锁，只要部署中国开源模型都直接爆炸
 
+
+*****
+
+####  80后卢瑟  
+##### 45#         楼主| 发表于 2026-7-23 08:58
+
+客官你点的制裁
+
+<img src="https://img.stage1st.com/forum/202607/23/085844kdxrxgrggr4xfu5d.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>77032.jpeg</strong> (213.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-23 08:58 上传
+
+马上到
+
