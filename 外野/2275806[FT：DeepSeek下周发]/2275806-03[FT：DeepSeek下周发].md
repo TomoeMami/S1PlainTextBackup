@@ -5633,3 +5633,39 @@ ds感觉对梁叔叔确实是兴趣和愿景的载体<img src="https://static.st
 
 2026-7-23 10:43 上传
 
+
+*****
+
+####  舞以  
+##### 3478#       发表于 2026-7-23 10:49
+
+但是话又说回来了，梁工春日，七月中旬何时结束啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  豌豆者  
+##### 3479#       发表于 2026-7-23 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953303&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-23 10:41</a>
+ds感觉对梁叔叔确实是兴趣和愿景的载体
+为了agi，什么都可以让步，甚至ds这家公司的形象和技术声誉都是副产 ...</blockquote>
+世界上财富自由后追寻自身兴趣的富豪多得是，但大多还是俗不可耐，像牢马这种就是典型欲望过多，梁叔叔某种意义上真算得脱离低级趣味了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  王兰花秀丽  
+##### 3480#       发表于 2026-7-23 10:53
+
+话说qoder里面的神秘模型cantus是什么    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  2026-03-29注册  
+##### 3481#       发表于 2026-7-23 10:56
+
+天啊噜，怕不是要有未来反抗战士回来暗杀梁总了
+
