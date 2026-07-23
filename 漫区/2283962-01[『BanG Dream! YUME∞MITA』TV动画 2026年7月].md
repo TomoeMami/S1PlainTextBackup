@@ -72,3 +72,11 @@
 之前估计忙疯了，阿拉蕾道歉的时候藤雪峰跟快死了一样，感觉什么都没听进去。
 <img src="https://p.sda1.dev/34/205bbcc584835f70eb1287714e625cea/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  winda  
+##### 125#       发表于 2026-7-23 23:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都子老师进乐队还是被经纪人拿合同坑进去的，乐队的归属感有没有自己漫画的粉丝群体高都是问题，就算有时间刷社媒也是自搜看粉丝反响。
+
