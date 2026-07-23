@@ -61,3 +61,14 @@
 
 队友之间还是得好好沟通交流情报吧
 
+
+*****
+
+####  CyDiablo  
+##### 124#       发表于 2026-7-23 23:07
+
+ 本帖最后由 CyDiablo 于 2026-7-23 23:10 编辑 
+
+之前估计忙疯了，阿拉蕾道歉的时候藤雪峰跟快死了一样，感觉什么都没听进去。
+<img src="https://p.sda1.dev/34/205bbcc584835f70eb1287714e625cea/image.jpg" referrerpolicy="no-referrer">
+
