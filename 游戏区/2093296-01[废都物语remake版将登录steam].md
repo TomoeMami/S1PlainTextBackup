@@ -84,3 +84,27 @@
 
 我要让下一个人继续高高兴兴点进来，骂骂咧咧出贴去
 
+
+*****
+
+####  manyin1  
+##### 914#       发表于 2026-7-23 17:14
+
+坛友实在太坏了<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朔方原的星  
+##### 915#       发表于 2026-7-23 17:16
+
+我都要忘了这回事了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shimotsuki14  
+##### 916#       发表于 2026-7-23 17:18
+
+你们这几个人也太坏了
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

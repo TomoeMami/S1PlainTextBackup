@@ -7457,3 +7457,28 @@ https://weibo.com/1560906700/5323851308470350
 
 —— 来自 vivo V2241A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  舞以  
+##### 3647#       发表于 2026-7-23 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69955080&amp;ptid=2275806" target="_blank">cube 发表于 2026-7-23 17:11</a>
+因为北美几兄弟想的是如何通过讲故事+烧资源形成技术的绝对垄断，然后更好的割全世界的韭菜。至于AI不过是 ...</blockquote>
+其实我一直是这么认为的<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+oa两家的核心技术其实就是炒作，oa-ai-美股-美元其实是一条绑在一起的线了
+不炒作毋宁死，这两家已经是大而不能倒了。
+我百分百相信美国当局会试图禁用中国开源模型来在叙事上维持oa的“专营权”
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  2017.05.04  
+##### 3648#       发表于 2026-7-23 17:21
+
+菊花的卡给谁也不是自己能说了算的
+
+AI以后肯定会成为基础设施，如果国家运营八成也会有个国家电网这种水平的庞然大物
+
