@@ -7878,3 +7878,82 @@ MAX佬又说大概率发不了了，梁圣降级牢梁<img src="https://static.s
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  phorcys02  
+##### 3683#       发表于 2026-7-23 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69955599&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-7-23 19:03</a>
+
+所以你觉得迷惑在哪呢？华为对比国产其它家的优势甚至远远大于英伟达对比华为的优势
+
+ ...</blockquote>
+对,对~对~
+
+华为就是国内计算卡的神,其他家全部垃圾,不可能赶上华为.
+
+他们的存在就是对华为的亵渎,政府应该禁止他们研发计算卡
+
+(以上模仿A/)
+
+*****
+
+####  高粱河车神  
+##### 3684#       发表于 2026-7-23 19:18
+
+梁圣的这一段发言里面
+
+我觉得比较惊喜的就是cuda生态远没有之前渲染的那么不可战胜
+
+感觉没什么大问题
+
+*****
+
+####  cscbzcbz  
+##### 3685#       发表于 2026-7-23 19:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秦南心  
+##### 3686#       发表于 2026-7-23 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69955474&amp;ptid=2275806" target="_blank">novalli 发表于 2026-7-23 18:33</a>
+
+话说这个形象现在是如何生成的？看起来也不是同一个人生成/绘制的，感觉已经有相当的稳定性了。
+
+—— 来 ...</blockquote>
+拿别人的图做一个立绘图参考图，然后稳定出同一种形象
+
+*****
+
+####  overflowal  
+##### 3687#       发表于 2026-7-23 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69955651&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-7-23 19:18</a>
+梁圣的这一段发言里面
+
+我觉得比较惊喜的就是cuda生态远没有之前渲染的那么不可战胜
+
+感觉没什么大问题 ...</blockquote>
+毕竟不能一边吹AI Coding一边说软件生态无法战胜<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  蛋黄酱Release  
+##### 3688#       发表于 2026-7-23 19:24
+
+本来以为明天能发，今天把opencode go的周用量都蹬完了<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  tillnight  
+##### 3689#       发表于 2026-7-23 19:25
+
+我开始怀疑是担心双日凌空刺激太大影响不可控不让马上发的可能性了。
+
