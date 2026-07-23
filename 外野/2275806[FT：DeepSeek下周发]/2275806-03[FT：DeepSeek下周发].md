@@ -6229,3 +6229,120 @@ ds整体规模还是不大，本质实验室</blockquote>
 
 圣嗨二象性说是，明天能发吗<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Hyst3r1a  
+##### 3536#       发表于 2026-7-23 13:39
+
+5月20日的访谈今天放出来，难道说？
+
+不是说claudecode用第三方API都会投毒让你的缓存命中变0嘛，怎么还有用的
+
+*****
+
+####  舞以  
+##### 3537#       发表于 2026-7-23 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953986&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-23 13:23</a>
+不知道你怎么解读出来规模不大的，他们想买都买不到。openai给随便一个普通研究员就可以配几千张H卡，你 ...</blockquote>
+我的意思是ds作为一家公司和国内大厂比啊
+这不是讨论为啥国产算力分这么少么
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  phorcys02  
+##### 3538#       发表于 2026-7-23 13:41
+
+"我觉得是说，你站在一个技术的高位上来做相对低一级别的技术，是有这样降维打击的。至少在去年的C端，我们看到确实是这样。我们没有在C端上花很多力气，甚至一度我们都不想维护那些用户了，但是用户赶都赶不走。"
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ycjiang1337  
+##### 3539#       发表于 2026-7-23 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953997&amp;ptid=2275806" target="_blank">2017.05.04 发表于 2026-7-23 13:26</a>
+不至于，都说了GB200想买也买不到了，灰色算力是什么也没明确说
+
+全程都是用GB300当标准比较而已 ...</blockquote>
+B200和B300应该好搞
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+
+*****
+
+####  tillnight  
+##### 3540#       发表于 2026-7-23 13:42
+
+<blockquote>2017.05.04 发表于 2026-7-23 13:26
+不至于，都说了GB200想买也买不到了，灰色算力是什么也没明确说
+
+全程都是用GB300当标准比较而已 ...</blockquote>
+如果不是想莫须有式制裁，想抓点把柄再动手的话，这来源不明的转录文字也不够当证据。真拿来当证据全网删也没用。而且说到底给投行们的讲话，本来也不可能真正保密。
+
+这里微妙的地方是严格保密和成为热搜热点在今天的世界有很大区别的。海外数据中心这个点，虽然一直也有一定的炒作，美方也采取了一定封堵措施，这半年也确实越来越紧，但是新加坡马来西亚去年一年那么多卡去了哪里也没人真追查下去。现在有顾虑的是这篇稿子如果火到墙外去那势必会有政客借机做文章，这肯定不是所有人想看到的。当然你也可以说kimi这事再炒作下去结果也差不多，横竖进实体清单也就是时间问题。
+
+*****
+
+####  高粱河车神  
+##### 3541#       发表于 2026-7-23 13:42
+
+完整版太长了，中午看一半睡着了
+
+随便标记了几句梁圣语录
+
+<img src="https://img.stage1st.com/forum/202607/23/134211c5heup2ffqfzf2e5.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260723121838_49_81.jpg</strong> (113.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-23 13:42 上传
+
+<img src="https://img.stage1st.com/forum/202607/23/134211g02igzjgmad0izu2.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260723122051_50_81.jpg</strong> (139.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-23 13:42 上传
+
+<img src="https://img.stage1st.com/forum/202607/23/134211e9fxffsf4zhxj3mx.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260723122443_51_81.jpg</strong> (131.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-23 13:42 上传
+
+<img src="https://img.stage1st.com/forum/202607/23/134212xdd44532wd2f1ug3.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260723122523_52_81.jpg</strong> (128.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-23 13:42 上传
+
+*****
+
+####  Processed  
+##### 3542#       发表于 2026-7-23 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953907&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-7-23 13:03</a>
+
+除了Claude code 还有哪些在vscode上好用的agent插件？opencode插件非常不好用，kimicode只能接kimi自己的a ...</blockquote>
+可以试试看zoocode
+
+*****
+
+####  ycjiang1337  
+##### 3543#       发表于 2026-7-23 13:44
+
+950跑推理的效费比应该挺高，不然做不到这么低成本
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
