@@ -7800,3 +7800,23 @@ image2有一套固定提示词了吧
 说实在的这种想法我都 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没啥问题,因为我真的在用ds,不用其他大厂的
 
+
+*****
+
+####  舞以  
+##### 3675#       发表于 2026-7-23 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69955529&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-7-23 18:46</a>
+
+没啥问题,因为我真的在用ds,不用其他大厂的</blockquote>
+我也欢迎啊，但是这不是不可能么<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+我巴不得昇腾刚下线的卡就往ds的机房送，下个版本直接10t参数轰烂北美畜生，可惜不行，唉。
+
+*****
+
+####  Promeus  
+##### 3676#       发表于 2026-7-23 18:57
+
+MAX佬又说大概率发不了了，梁圣降级牢梁<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
