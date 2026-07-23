@@ -5727,3 +5727,68 @@ MaxforAi佬说就在明天
 话说qoder里面的神秘模型cantus是什么    Re:Source</blockquote>
 qoder的大概率不是qwen吧
 
+
+*****
+
+####  王兰花秀丽  
+##### 3489#       发表于 2026-7-23 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953549&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-23 11:24</a>
+MaxforAi佬说就在明天</blockquote>
+X上没看见嘞，有截图吗<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ymm1030  
+##### 3490#       发表于 2026-7-23 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953571&amp;ptid=2275806" target="_blank">Processed 发表于 2026-7-23 11:27</a>
+
+我一直觉得比较奇怪的是，是S1没有DS的员工还是DS员工都要求保密，这个楼里从来没有员工来剧透进度的 ...</blockquote>
+想想r1这种杀器都能捏到最后一刻就不要指望有什么泄密了。
+
+*****
+
+####  nxmonitor  
+##### 3491#       发表于 2026-7-23 11:54
+
+说的是生成视频生成图片这种模型，这类模型结构都和现在的LLM是不一样的，多模态肯定会有，而且灰测显示DS的多模态路线很奇特
+
+
+*****
+
+####  王兰花秀丽  
+##### 3489#       发表于 2026-7-23 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953549&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-23 11:24</a>
+MaxforAi佬说就在明天</blockquote>
+X上没看见嘞，有截图吗<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ymm1030  
+##### 3490#       发表于 2026-7-23 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953571&amp;ptid=2275806" target="_blank">Processed 发表于 2026-7-23 11:27</a>
+
+我一直觉得比较奇怪的是，是S1没有DS的员工还是DS员工都要求保密，这个楼里从来没有员工来剧透进度的 ...</blockquote>
+想想r1这种杀器都能捏到最后一刻就不要指望有什么泄密了。
+
+*****
+
+####  nxmonitor  
+##### 3491#       发表于 2026-7-23 11:54
+
+说的是生成视频生成图片这种模型，这类模型结构都和现在的LLM是不一样的，多模态肯定会有，而且灰测显示DS的多模态路线很奇特
+
+*****
+
+####  Promeus  
+##### 3492#       发表于 2026-7-23 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69953595&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-7-23 11:35</a>
+X上没看见嘞，有截图吗    Re:Source</blockquote>
+https://b23.tv/3py2tZB
+
+这有转发，佬自己还回复了<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">当然也可能是"某个周五"
+
