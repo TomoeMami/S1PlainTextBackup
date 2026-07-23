@@ -619,3 +619,11 @@ DEMO版最喜欢的
 
 骑怪了就是无敌，这游戏打大型boss目标应该就是全员一直轮流骑怪，爽点还是挺足的
 
+
+*****
+
+####  黑白魔炮使  
+##### 70#       发表于 2026-7-24 04:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">26年玩原的1.0，无法直视好吧
+
