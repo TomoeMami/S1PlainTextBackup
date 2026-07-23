@@ -2234,3 +2234,26 @@ Staff
 
 答应我一定要去打羽毛球好不好
 
+
+*****
+
+####  Piano-Forest  
+##### 202#         楼主| 发表于 2026-7-23 14:40
+
+小出卓史監督に聞く 「さよならララ」の深い話
+[https://febri.jp/topics/sayonara-lala-interview-1/](https://febri.jp/topics/sayonara-lala-interview-1/)
+[https://febri.jp/topics/sayonara_lala_interview_2/](https://febri.jp/topics/sayonara_lala_interview_2/)
+
+*****
+
+####  Piano-Forest  
+##### 203#         楼主| 发表于 2026-7-23 14:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69946247&amp;ptid=2183857" target="_blank">Piano-Forest 发表于 2026-7-21 15:43</a>
+
+🐚⁺‧┈　#さよならララ エンドカード　┈‧⁺ 🫧˚
+
+　　　　　　第3話「目、そらしたら負け」</blockquote>
+<img src="https://p.sda1.dev/34/18568d2226ebf42a75afe141a5d882dc/1000170742.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/1a90280294d99f7db35bc0b31bf17de7/1000170745.jpg" referrerpolicy="no-referrer">
+

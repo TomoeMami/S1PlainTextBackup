@@ -6684,3 +6684,59 @@ ds可以不以资本扩张为主线，不妨碍梁叔叔的量化基 ...</blockq
 
 —— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  needagf  
+##### 3576#       发表于 2026-7-23 14:34
+
+有没群，我要看大老们吹水。跟着看可太有意思了
+
+*****
+
+####  nxmonitor  
+##### 3577#       发表于 2026-7-23 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954314&amp;ptid=2275806" target="_blank">StrangerJ 发表于 2026-7-23 14:32</a>
+
+华子现在不是只出货了950pr吗，pr也能用来训练？还是950dt已经出货了？
+
+—— 来自 OPPO PKU110, Android 1 ...</blockquote>
+出货了，前几天的会上就拿出来了，估计八月就会有，不过只有超节点
+
+*****
+
+####  chenyedgg  
+##### 3578#       发表于 2026-7-23 14:36
+
+只搞大规模量化交易的话没准哪天就被切割了，AI这边才是梁的核心<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cube  
+##### 3579#       发表于 2026-7-23 14:40
+
+最近月之暗面杨植麟的采访也出来了。这帮科技新贵难得的没有互联网时代崛起的那批领头羊身上的腐朽老登味。
+
+梁子这次对话中比较打动人的就是他言语中传达的善意，对他自己，对研发团队，对用户，对合作伙伴，乃至对竞争对手，对整个可能被AI影响的人类社会，大概最受伤的是被梁子黑暗面收割的大A股民<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+与梁子形成几乎是完美反面对照的就是A÷这家公司，这家公司可以说积人类恶意之大成，要是AGI首先在这家公司出现，那毫无疑问他们炼出来的玩意会立马变成天网。这种司马公司现在是AI领域的领头羊简直是行业乃至人类的耻辱。
+
+*****
+
+####  秦南心  
+##### 3580#       发表于 2026-7-23 14:42
+
+威权开源AI vs 民主闭源AI吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那确实很人类恶意之大成
+
+*****
+
+####  wandeeees  
+##### 3581#       发表于 2026-7-23 14:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69954355&amp;ptid=2275806" target="_blank">cube 发表于 2026-7-23 14:40</a>
+
+最近月之暗面杨植麟的采访也出来了。这帮科技新贵难得的没有互联网时代崛起的那批领头羊身上的腐朽老登味。 ...</blockquote>
+还没被资本异化<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
