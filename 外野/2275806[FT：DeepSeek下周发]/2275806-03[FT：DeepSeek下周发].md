@@ -8337,3 +8337,20 @@ gpt的20x订阅还真挺实用的，只要订的起，用得完<img src="https:/
 一家公司未必可以每一次在llm上都有重大突破吧，特别是Scaling Law还没碰到天花板之前，工程优化能力再强也 ...</blockquote>
 没人care有没有重大突破，大家期待的只是V4正式版能正常把V4基座的潜力发挥出来。以现在这个价格打不赢K3也无所谓
 
+
+*****
+
+####  御坂MKII  
+##### 3725#       发表于 2026-7-24 00:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69956728&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-7-24 00:18</a>
+
+200刀一个月，和养一辆车一个价格了
+
+—— 来自 HUAWEI ALN-AL00, Android 12, 鹅球 v3.5.99-alpha ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我们严肃工作的一个月花这么多是很平常的事，有人甚至不止 1 个 200 刀 plan。大型项目的真实工作对于目前的 fable 和 sol 依然很容易遇到他们无法轻易掌握的任务。模型做那些比较 clean 的 imo ioi 甚至悬而未解的数学问题的成绩越来越好，但是他们在真实环境的表现确实还远远不够。
+
+现在的模型可以什么很快的出个好看的 demo 玩具，但是在真实仓库里查个 bug 可能一个多小时最后查了个错的结果，只要不人工干预它就是查不出来
+
+这个现状也是当前的路子无法达成 agi 的一个侧面引证，现在的 coding 成果一大部分很靠后训练，所以梁文峰之前说这个对 agi 没啥帮助我也同意，它现在不太可能达到一开始定义的 agi。
+
