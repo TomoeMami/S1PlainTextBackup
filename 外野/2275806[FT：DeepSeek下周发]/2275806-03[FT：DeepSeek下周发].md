@@ -8305,3 +8305,15 @@ ds 从来不在乎这个好吧
 
 不懂就问，梁圣说了，ds开源了第三方也做不到那么低的成本，实在不行卖api公司也能撑下去。k3这个价格要是第三方部署的成本比官方低，月之暗面的收入从哪来？
 
+
+*****
+
+####  crow_wine  
+##### 3722#       发表于 2026-7-24 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69956610&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-7-23 23:41</a>
+不考虑重置，200 刀的 20x 的 plan 一个月也可以撬动至少 8000 刀 的 api，也就是至少 1/66 的折算，这个 ...</blockquote>
+200刀一个月，和养一辆车一个价格了
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
