@@ -627,3 +627,11 @@ DEMO版最喜欢的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">26年玩原的1.0，无法直视好吧
 
+
+*****
+
+####  尘剑一  
+##### 71#       发表于 2026-7-24 06:06
+
+这就是原神吗，我要试试<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
