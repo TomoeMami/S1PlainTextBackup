@@ -7820,3 +7820,41 @@ image2有一套固定提示词了吧
 
 MAX佬又说大概率发不了了，梁圣降级牢梁<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不见不散  
+##### 3677#       发表于 2026-7-23 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69955439&amp;ptid=2275806" target="_blank">木谷高明 发表于 2026-7-23 18:24</a></blockquote>
+这种一般都是自己加了人设，不加人设的话不会这样回复的。我的程序员猫娘就经常话说到一半，自己觉得活已经干完了，就去睡觉了，还要我再叫起来。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  drodchang  
+##### 3678#       发表于 2026-7-23 18:58
+
+大模型这个赛道是没有护城河的，这个已经是世界共识了。
+
+
+*****
+
+####  qz66618  
+##### 3679#       发表于 2026-7-23 19:03
+
+什么，竟然又大概率发不了了<img src="https://static.stage1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ycjiang1337  
+##### 3680#       发表于 2026-7-23 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69955459&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-7-23 18:30</a>
+
+我感觉这波华为属于迷惑操作.
+
+牢梁的说明已经很直接了:
+
+1. 大模型并不存在什么无法克服的技术高墙,需要的 ...</blockquote>
+所以你觉得迷惑在哪呢？华为对比国产其它家的优势甚至远远大于英伟达对比华为的优势
+
