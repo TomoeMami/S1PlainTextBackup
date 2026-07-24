@@ -3971,3 +3971,24 @@ HD-2D倒好了，就这转身水平做尼玛的3D
 
 未来真正80刀的游戏，实体会是90刀。
 
+
+*****
+
+####  JOJOROY  
+##### 1441#       发表于 2026-7-24 22:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69961560&amp;ptid=2261859" target="_blank">牛奶笛 发表于 2026-7-24 22:35</a>
+
+万紫千红就是正儿八经的70刀正作。但老任今年改了策略，美服的实体卡贵了10刀，所以就变成80刀了。
+
+未来 ...</blockquote>
+还真不一定，港服日服一样全部都是马车价位的定位的
+
+
+*****
+
+####  ascomnet  
+##### 1442#       发表于 2026-7-24 22:40
+
+其实我买火纹的主要原因就是能女女结婚，不能的话我也不会买<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，下棋都是顺带的
+

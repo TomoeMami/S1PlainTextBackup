@@ -9349,3 +9349,18 @@ k3官方订阅额度太少了，还没有20刀的GPT多感觉
 
 k3感觉还是没有优化好，又慢又贵，着急出来的
 
+
+*****
+
+####  scikirbypoke  
+##### 3824#       发表于 2026-7-24 22:43
+
+感觉再等下去是准备针对GPT6了
+
+*****
+
+####  JuMuShan  
+##### 3825#       发表于 2026-7-24 22:45
+
+这都七月底了梁叔叔<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
