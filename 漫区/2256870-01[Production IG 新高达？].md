@@ -969,3 +969,15 @@ C(O14FQK(NGE(O$V}JE1TLD_tmb.jpg
 
 不过主角机的下巴确实挺丑，有<img src="https://static.stage1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不会起名  
+##### 374#       发表于 2026-7-24 14:54
+
+<blockquote>dieorobey 发表于 2026-5-16 01:17
+现在高达企划胶和片都是尽量同步的，既然胶早就做好了，那就是片还没搞定呗
+
+而且这次又是社外合作出品，参 ...</blockquote>
+中途换主角是哪部
+
