@@ -3163,3 +3163,15 @@ Oh no，我想勾搭打得好的野人啊，无论是涂击队，还是后面PVP
 
 —— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  u2deack  
+##### 485#       发表于 2026-7-24 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69959751&amp;ptid=2253488" target="_blank">绿冰 发表于 2026-7-24 16:07</a>
+想了好一会都没明白你说的自动追随是啥，斯普拉遁有这个？个别关卡拉远镜头那个？
+
+—— 来自 realme RMX5 ...</blockquote>
+移动左摇杆镜头会跟随移动方向转动的设置
+
