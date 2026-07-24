@@ -3278,3 +3278,60 @@ IS：为什么我做的Engage销量会差光荣三房这么多？好没面子啊
 
 不止是三小只转身啊，这大姐表情也很难绷啊，明明战斗时的动作和战后摆pose感觉还蛮流畅的，到了剧情却这么敷衍吗
 
+
+*****
+
+####  kalavinka  
+##### 1377#       发表于 2026-7-24 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69958656&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-7-24 12:29</a>
+
+什么GIF？</blockquote>
+
+<img src="https://img.stage1st.com/forum/202607/24/124200sfnmvv7okvkk415k.gif" referrerpolicy="no-referrer">
+
+<strong>微信视频2026-07-24_123946_858.gif</strong> (663.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 12:42 上传
+
+*****
+
+####  はちたや  
+##### 1378#       发表于 2026-7-24 12:43
+
+不好说和engage那个太空滑步哪个更绷不住
+
+
+*****
+
+####  mai6696  
+##### 1379#       发表于 2026-7-24 12:45
+
+本来还担心战斗动画不如engage。
+
+这下彻底不用担心了。
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 外面都能敷衍成这样。烂完了。
+
+*****
+
+####  巴尔干炮  
+##### 1380#       发表于 2026-7-24 12:45
+
+可能是兼用卡，后面还有类似场景，统一用一套方式了。
+
+*****
+
+####  Jabeck  
+##### 1381#       发表于 2026-7-24 12:46
+
+不是什么重要剧情演出不是不能接受，不过还是让我想了想正常应该怎么做动作。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  u2deack  
+##### 1382#       发表于 2026-7-24 12:47
+
+今天更新这角色还行，但是画这种脸硬上个深色皮肤也是无语
+
