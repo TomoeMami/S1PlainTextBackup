@@ -3695,3 +3695,61 @@ IS当然媚宅了，看嗯给鸡就知道了，各种宅元素堆砌。三房是
 
 —— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  零崎不识  
+##### 1414#       发表于 2026-7-24 17:38
+
+<blockquote>Jabeck 发表于 2026-7-24 17:31
+三房女角色有万紫千红这么暴露吗？女帝虽然是黑皮，但那个暴露程度真不一般。还有雷迪还特地把**画出来。真 ...</blockquote>
+这代很漏了，最典型的就是蕾达那个穿搭直接就是内衣外穿弄出了个又像泳衣又像乳袋的感觉
+
+*****
+
+####  Jabeck  
+##### 1415#       发表于 2026-7-24 17:38
+
+ 本帖最后由 Jabeck 于 2026-7-24 17:39 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69960272&amp;ptid=2261859" target="_blank">发呆的龙虾 发表于 2026-7-24 17:33</a>
+
+IS当然媚宅了，看嗯给鸡就知道了，各种宅元素堆砌。三房是光荣的，自然和IS口味不一样。
+
+—— 来自 HUAW ...</blockquote>
+什么辣妹，雌小鬼， 实际上就是元素堆砌，感觉随便糊弄的。前几天又上了结合看了看队伍，发现凑出十几个能看的不容易。。。尤其男角色没一个想让上场的。
+
+*****
+
+####  qiyu1234  
+##### 1416#       发表于 2026-7-24 17:39
+
+单纯的不同作品客群定位不一样罢了
+
+Engage怎么做不代表续作就一定要怎么做
+
+英雄、shadow这种都做得来的怎么可能不知道什么是媚宅
+
+*****
+
+####  发呆的龙虾  
+##### 1417#       发表于 2026-7-24 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69960313&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-7-24 17:38</a>
+什么辣妹，雌小鬼， 实际上就是元素堆砌，感觉随便糊弄的。前几天又上了结合看了看队伍，发现凑出十几个能 ...</blockquote>
+那我还觉得三房和四房要凑十个媚宅的都不容易呢。<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  Jabeck  
+##### 1418#       发表于 2026-7-24 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69960331&amp;ptid=2261859" target="_blank">发呆的龙虾 发表于 2026-7-24 17:41</a>
+
+那我还觉得三房和四房要凑十个媚宅的都不容易呢。
+
+—— 来自 HUAWEI TET-AN00, Android 12, 鹅球 v4.0-a ...</blockquote>
+三房好歹有些男角色讨喜，结合真是女角色还能堆点媚宅元素，男角色真是拉完了。
+

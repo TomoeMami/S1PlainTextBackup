@@ -493,3 +493,20 @@ EX点满的人不少了，下一个要准备的戴冠战是骑，虽然更主要
 千里眼看了下后面是杀冠低配都是打暴击，以藏、燕青都是单红配卡用那一张红卡打伤害，还有人类吗= =......, ...</blockquote>
 我日服一宝迦摩都能打，就是没有点树前要坐牢，点完树后，迦摩首位，女武神给迦摩上闪避就可以了。运气好中了魅惑直接一套带走。
 
+
+*****
+
+####  khxooo  
+##### 47922#       发表于 2026-7-24 17:44
+
+成功13T，抄作业就是爽<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+a72907cd918cc37948426ed315caa5a333874.png@1052w_!web-dynamic.webp
+(63.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 17:44 上传
+
+<img src="https://img.stage1st.com/forum/202607/24/174400r7j5t9xod07t5d79.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
