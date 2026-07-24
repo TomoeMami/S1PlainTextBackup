@@ -8388,3 +8388,29 @@ gpt的20x订阅还真挺实用的，只要订的起，用得完<img src="https:/
 
 我不是程序员，体感更新5.6后额度用得飞快，之后考虑再另外买个国产coding plan了。
 
+
+*****
+
+####  Ny  
+##### 3728#       发表于 2026-7-24 07:44
+
+彭博社：中国的AI模型在使用量上超过了美国模型。
+
+<img src="https://img.stage1st.com/forum/202607/24/074322eyh921r9qiw3yzdf.jpg" referrerpolicy="no-referrer">
+
+<strong>HN2W1V0XYAAAfwy.jpg</strong> (123.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 07:43 上传
+
+Grok锐评：
+
+<img src="https://img.stage1st.com/forum/202607/24/074338d40k3cxqsdbxiwaz.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (72.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 07:43 上传
+
