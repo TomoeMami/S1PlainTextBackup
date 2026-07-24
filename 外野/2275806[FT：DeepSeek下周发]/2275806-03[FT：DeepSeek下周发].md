@@ -8537,3 +8537,46 @@ zcode这个傻逼玩意儿怎么越更新越弱智了？
 
 仔细找一下就知道DS很多所谓第三方部署都是转发，甚至workbuddy这种都是，说明腾讯云级别的技术都解决不了成本问题，阿里火山也一样。还有就是其他家一直出429问题，就DS最多排队但是不会断，DS最大的护城河就在这里。
 
+
+*****
+
+####  卡普空  
+##### 3739#       发表于 2026-7-24 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69956657&amp;ptid=2275806" target="_blank">我猫呢? 发表于 2026-7-23 23:56</a>
+
+不懂就问，梁圣说了，ds开源了第三方也做不到那么低的成本，实在不行卖api公司也能撑下去。k3这个价格要是 ...</blockquote>
+我也想知道ds怎么做到这个价格的
+
+*****
+
+####  overflowal  
+##### 3740#       发表于 2026-7-24 09:27
+
+感觉今天也是发不出来，八月前能发出来吗，还是就一直是永远的7月中了<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  高粱河车神  
+##### 3741#       发表于 2026-7-24 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69957604&amp;ptid=2275806" target="_blank">卡普空 发表于 2026-7-24 09:26</a>
+
+我也想知道ds怎么做到这个价格的</blockquote>
+极致的模型效率吧
+
+而且比较超出我预期的是，这定价利润居然还不低
+
+10个月收回成本什么概念
+
+放其他行业算暴利了
+
+*****
+
+####  overflowal  
+##### 3742#       发表于 2026-7-24 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69957604&amp;ptid=2275806" target="_blank">卡普空 发表于 2026-7-24 09:26</a>
+我也想知道ds怎么做到这个价格的</blockquote>
+deepseek的infra厉害。就这样。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

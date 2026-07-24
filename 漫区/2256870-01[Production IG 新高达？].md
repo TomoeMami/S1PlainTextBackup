@@ -699,3 +699,21 @@ PV只是一般差，但想到是神山健治做就更脱力了。
 
 感觉有点像那种，播出中稍有噱头，播完后查无此人，过段时间出现在某些流量号炒作切片里的这几年比较常见的那种SF片
 
+
+*****
+
+####  十万年魂环  
+##### 350#       发表于 2026-7-24 09:27
+
+多媒体企划，🚽二代吗，暴死味有点大<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  crazyleeyr  
+##### 351#       发表于 2026-7-24 09:32
+
+只要还能卖50块 就是好高达
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
