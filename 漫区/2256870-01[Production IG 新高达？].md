@@ -1230,3 +1230,24 @@ C(O14FQK(NGE(O$V}JE1TLD_tmb.jpg
 目前这个PV出现过的人设</blockquote>
 除了男主和红毛女性凑合着看外，剩下这群人就像戴着假发一样<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鱼雷鲨  
+##### 393#       发表于 2026-7-24 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69958119&amp;ptid=2256870" target="_blank">hououmon 发表于 2026-7-24 10:48</a>
+
+不是，游戏这90年后的设定是什么鬼，你这动画开播前一年就告诉我动画结局没打赢外星人是什么回事? ...</blockquote>
+就是打的并不是外星人呗
+
+*****
+
+####  鱼雷鲨  
+##### 394#       发表于 2026-7-24 23:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69961351&amp;ptid=2256870" target="_blank">windaria 发表于 2026-7-24 21:38</a>
+
+那应该不至于，看游戏还在打怪物，那动画结尾肯定是失败结局，很可能还是死亡badend，然后利用玩家的复仇 ...</blockquote>
+估计结尾就是揭露怪物其实只是殖民卫星独立阵营
+
