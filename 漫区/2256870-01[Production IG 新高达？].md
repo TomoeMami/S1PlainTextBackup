@@ -1090,3 +1090,100 @@ C(O14FQK(NGE(O$V}JE1TLD_tmb.jpg
 这次是高达版的东之伊甸还是又来一部永远的831呢</blockquote>
 就不能是超级机器人版永远的零吗
 
+
+*****
+
+####  ナルバレック  
+##### 387#       发表于 2026-7-24 21:13
+
+<img src="https://img.stage1st.com/forum/202607/24/211321vx7xucnknnnfc049.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (1.05 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 21:13 上传
+
+<img src="https://img.stage1st.com/forum/202607/24/211321sla2gask7a1uggng.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (1.18 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 21:13 上传
+
+<img src="https://img.stage1st.com/forum/202607/24/211322zuhyg5reiawkxyrd.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (1.46 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 21:13 上传
+
+<img src="https://img.stage1st.com/forum/202607/24/211324tyclluojp9rtkj63.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 21:13 上传
+
+<img src="https://img.stage1st.com/forum/202607/24/211324w51i5abyka0kyirz.png" referrerpolicy="no-referrer">
+
+<strong>5.png</strong> (1019.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 21:13 上传
+
+<img src="https://img.stage1st.com/forum/202607/24/211325carwlqav6ddueoqj.png" referrerpolicy="no-referrer">
+
+<strong>6.png</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 21:13 上传
+
+<img src="https://img.stage1st.com/forum/202607/24/211326cc7jbrb0strm75sf.png" referrerpolicy="no-referrer">
+
+<strong>7.png</strong> (943.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 21:13 上传
+
+<img src="https://img.stage1st.com/forum/202607/24/211326uaviqzqg978qi1qz.png" referrerpolicy="no-referrer">
+
+<strong>8.png</strong> (1.22 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 21:13 上传
+
+<img src="https://img.stage1st.com/forum/202607/24/211327k2mrxlgqqy9reqcb.png" referrerpolicy="no-referrer">
+
+<strong>9.png</strong> (915.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 21:13 上传
+
+<img src="https://img.stage1st.com/forum/202607/24/211327quss5ujushy5s32s.png" referrerpolicy="no-referrer">
+
+<strong>10.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 21:13 上传
+
+目前这个PV出现过的人设
+
+*****
+
+####  199april  
+##### 388#       发表于 2026-7-24 21:16
+
+土爆了，还有清水荣一哪里来死哪里去
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
