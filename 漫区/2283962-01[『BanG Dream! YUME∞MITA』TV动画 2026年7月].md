@@ -102,3 +102,13 @@
 
 目前来看，Mewtype的团魂不如薇姐小团体吧，那个米米世界出来的蓝发小人真的有在认真看简历吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chenyedgg  
+##### 128#       发表于 2026-7-24 11:42
+
+V姐的人心掌控术是不是太强了点，
+
+要是V姐是一个同时享受美少女受苦和kirakira的乐子人这动画就要成薇欧拉传了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

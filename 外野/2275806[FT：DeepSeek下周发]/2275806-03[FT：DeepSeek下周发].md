@@ -8727,3 +8727,15 @@ DSv4的价格太低了，我看了下硅基流动上，qwen3.5-9B这种模型，
 DSv4的价格太低了，我看了下硅基流动上，qwen3.5-9B这种模型，价格都比v4flash还贵，这太夸张了 ...</blockquote>
 我玩了几天本地模型都感觉性价比被4f乱杀啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">电费都跟买api差不多了
 
+
+*****
+
+####  ycjiang1337  
+##### 3760#       发表于 2026-7-24 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69958264&amp;ptid=2275806" target="_blank">ymm1030 发表于 2026-7-24 11:12</a>
+我猜其实本来卡是够的，所以才发通知，但是临时想到新点子，把算力挪去炼丹了，这也能解释为什么大规模灰测 ...</blockquote>
+对于推理服务而言，推预览版和正式版是没区别的
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
