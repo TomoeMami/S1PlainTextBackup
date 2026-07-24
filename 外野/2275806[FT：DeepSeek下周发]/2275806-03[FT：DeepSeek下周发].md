@@ -8739,3 +8739,13 @@ DSv4的价格太低了，我看了下硅基流动上，qwen3.5-9B这种模型，
 
 —— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  Tomek  
+##### 3761#       发表于 2026-7-24 13:41
+
+今天是没有大的了吗
+
+—— 来自 HUAWEI VYG-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
