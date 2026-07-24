@@ -3440,3 +3440,28 @@ IS：为什么我做的Engage销量会差光荣三房这么多？好没面子啊
 —— 来自 HUAWEI H ...</blockquote>
 比起被迫做三房续作，不如说被迫加入DEI，RTT系作品这两年DEI的程度之高真的能把人搞麻了，明明一堆子供向作品却大力塞这些毒害小孩子的东西
 
+
+*****
+
+####  suzakushi  
+##### 1393#       发表于 2026-7-24 15:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都没有宽鼻厚唇，你怎么能说是DEI呢，地域特色懂不懂啊，和尼一点关系都没有，只有我觉得这些角色都很好看吗。
+
+就算这一部火纹的黑皮队友比历代所有火纹加起来都多，但怎么会是DEI呢。
+
+*****
+
+####  はちたや  
+##### 1394#       发表于 2026-7-24 15:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">非要扯尼才是搅混水，这作目前角色就是单纯丑好吧
+
+
+*****
+
+####  shpdw  
+##### 1395#       发表于 2026-7-24 15:35
+
+怎么又在吵尼不尼哥了，就是尼哥啊。这作地图原型就是整块非洲大陆，三房的代表的欧洲地图在地中海上面，万紫千红的地图在地中海下面啊。就这原型不如说含白量高了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

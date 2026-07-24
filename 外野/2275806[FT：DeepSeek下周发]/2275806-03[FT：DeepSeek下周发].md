@@ -8994,3 +8994,31 @@ api炸了，另外status把原本的网页和api进一步拆分成网页、flash
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁说的7/24啊,啥都没有
 
+
+*****
+
+####  zy450  
+##### 3787#       发表于 2026-7-24 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69959473&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-7-24 15:18</a>
+
+谁说的7/24啊,啥都没有</blockquote>
+这不是小崩一下吗<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  finrodelensar  
+##### 3788#       发表于 2026-7-24 15:29
+
+API崩了吗？难道？
+
+
+*****
+
+####  mr.qu  
+##### 3789#       发表于 2026-7-24 15:31
+
+大的没了，已经恢复了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
