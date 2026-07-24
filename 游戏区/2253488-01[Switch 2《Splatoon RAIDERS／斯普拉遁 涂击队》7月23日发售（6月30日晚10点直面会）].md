@@ -3275,3 +3275,14 @@ pdd已经299一张了，而我的卡带还没发货<img src="https://static.stag
 
 —— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  xmakoto  
+##### 497#       发表于 2026-7-24 20:00
+
+ 本帖最后由 xmakoto 于 2026-7-24 20:02 编辑 
+
+pdd的299团有人来拼嘛<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+[https://file-link.pinduoduo.com/mGyuzof7z3](https://file-link.pinduoduo.com/mGyuzof7z3)
+
