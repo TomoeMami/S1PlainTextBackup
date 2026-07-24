@@ -725,3 +725,23 @@ PV只是一般差，但想到是神山健治做就更脱力了。
 
 我觉得武装机甲的机设还挺帅的。到了做高达好像没啥特色。
 
+
+*****
+
+####  二阶堂真琉  
+##### 353#       发表于 2026-7-24 09:48
+
+就是马桶机器人同款企划二代目，游戏可以等死了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 354#       发表于 2026-7-24 09:53
+
+保底至少能听豪哥曲子吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PLR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
