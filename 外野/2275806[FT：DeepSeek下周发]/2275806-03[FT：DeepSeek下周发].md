@@ -8447,3 +8447,14 @@ Grok锐评：
 
 2026-7-24 08:12 上传
 
+
+*****
+
+####  spaceblue  
+##### 3731#       发表于 2026-7-24 08:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69957181&amp;ptid=2275806" target="_blank">Ny 发表于 2026-7-24 07:44</a>
+
+彭博社：中国的AI模型在使用量上超过了美国模型。</blockquote>
+因为是openrouter上的啊，那肯定选物美价廉的国产API，要用OAI或者A/直接就订阅会员了，或者B端客户买API。
+

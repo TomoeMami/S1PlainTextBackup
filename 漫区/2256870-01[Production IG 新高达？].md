@@ -480,3 +480,64 @@ PV画面养眼，人设画风正常讨好，稍微加分。
 
 有股暴死味，各个地方都太保守
 
+
+*****
+
+####  好面子的懒虫  
+##### 327#       发表于 2026-7-24 08:18
+
+我觉得要不还是炒点作整点潮的媚一下小年轻吧，这pv都没有水魔和gqux亮眼，审美和创意感觉还在10多年前，先不论故事最后如何就pv来看我感觉卖相一般，如果这也能爆火财报大涨，那我相信高达是真崛起了……
+
+*****
+
+####  一个陆仁贾  
+##### 328#       发表于 2026-7-24 08:19
+
+90年过去了世界还是这鸟样，没救了
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Piano-Forest  
+##### 329#         楼主| 发表于 2026-7-24 08:21
+
+[https://x.com/i/status/2080401744044155238](https://x.com/i/status/2080401744044155238)
+
+本日発表になりましたガンダムシリーズ最新作『機動戦士ガンダムRG XARX-ZERO』にてガンダム並びにMSデザインを担当させていただきました！詳細等は今後の情報をお待ちくださいませ。
+<img src="https://p.sda1.dev/34/50c0d2c2aca79c08852483eeef01a75e/HN8SW_4bAAA1TZQ.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2080389484588519879](https://x.com/i/status/2080389484588519879)
+<img src="https://p.sda1.dev/34/52c2821fdfea25cdde7ff809e25d177e/HN8GrvvbYAAl8lk.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/88eef4d21a7d28c4a1b18a8b01f84def/HN8GrvvbAAACrnK.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 330#         楼主| 发表于 2026-7-24 08:22
+
+<img src="https://p.sda1.dev/34/afe216322ea5e26a0b176b49a62b818c/0064O7Xmly1iferpc5eyyj30xc1n91kx.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/e37db159918c9e13ebfeecc55b070b0a/0064O7Xmly1iferpcyo72j30xc1n97wh.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/af7c26e4fe3c3195cedab065a061d88d/HN72UuhbcAAFeix.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  solora  
+##### 331#       发表于 2026-7-24 08:23
+
+高达动画=
+
+     科幻机器人动画 X
+
+1.0 钢普拉广告 O
+
+2.0 游戏广告 O new
+
+*****
+
+####  鳄鱼亮爪  
+##### 332#       发表于 2026-7-24 08:23
+
+只有我有点乐观？这个卖相是最有我以前看过的高达的感觉了。以前指w、seed、00🤔
+
