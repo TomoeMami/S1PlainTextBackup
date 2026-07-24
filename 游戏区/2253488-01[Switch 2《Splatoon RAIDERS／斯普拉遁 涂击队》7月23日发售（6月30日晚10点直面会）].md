@@ -3294,3 +3294,15 @@ pdd的299团有人来拼嘛<img src="https://static.stage1st.com/image/smiley/fa
 
 pdd有个305不用拼单的国内现货，感觉降价还挺快，要不再等几天好了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lisylfn  
+##### 499#       发表于 2026-7-24 20:59
+
+50级了，后面升级就是50+几了，武器也是满级50。没到50前不建议升级武器，资源拿去强化升级零件，到50后刷5星的50级武器就好。其他武器直接分解换钱，碎片会保留到通关后用于强化武器。
+
+技巧通关后感觉一般般，现在用力量背包配勾爪
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
