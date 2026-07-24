@@ -785,3 +785,20 @@ PV只是一般差，但想到是神山健治做就更脱力了。
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zxtree  
+##### 359#       发表于 2026-7-24 10:25
+
+像ai设计的
+
+*****
+
+####  好面子的懒虫  
+##### 360#       发表于 2026-7-24 10:25
+
+<blockquote>无动于衷 发表于 2026-7-24 08:56
+现在很流行这种遮住半边脸的发型吗，弄得跟隔壁优米亚似的</blockquote>
+那怎么不说像结城理？可能人家就想要一种忧郁b王气质<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

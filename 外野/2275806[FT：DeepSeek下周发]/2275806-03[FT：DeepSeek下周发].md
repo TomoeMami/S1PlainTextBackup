@@ -8595,3 +8595,41 @@ deepseek的infra厉害。就这样。    [Re:Source](https://stage1st.com/2b/t
 
 当年8点没来的你，今天不要再缺席<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  goranger  
+##### 3745#       发表于 2026-7-24 10:28
+
+今天又鸽了嘛=。=真是渣男啊一直画饼
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  高粱河车神  
+##### 3746#       发表于 2026-7-24 10:31
+
+我觉得梁圣抱怨华子给的卡太少
+
+最大可能性是其他几个大厂早早就把华子产能定完了
+
+毕竟很早就开始合作了，从910开始
+
+
+*****
+
+####  Lee·Adama  
+##### 3747#       发表于 2026-7-24 10:32
+
+十个月回本也太爽了吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  千千千千鸟  
+##### 3748#       发表于 2026-7-24 10:33
+
+今天不发，周1还不发，7月可能就不会发了吧，感觉可以先买一个月GPT会员顶住了，正好之前白嫖的gemini一年多网页版会员已经到期了。
+
