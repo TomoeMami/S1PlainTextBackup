@@ -8580,3 +8580,18 @@ zcode这个傻逼玩意儿怎么越更新越弱智了？
 我也想知道ds怎么做到这个价格的</blockquote>
 deepseek的infra厉害。就这样。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  秦南心  
+##### 3743#       发表于 2026-7-24 09:40
+
+大的……会来吗
+
+*****
+
+####  cscbzcbz  
+##### 3744#       发表于 2026-7-24 09:42
+
+当年8点没来的你，今天不要再缺席<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
