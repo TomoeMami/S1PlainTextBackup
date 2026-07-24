@@ -745,3 +745,19 @@ PV只是一般差，但想到是神山健治做就更脱力了。
 
 —— 来自 OnePlus PLR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  猪突猛进R  
+##### 355#       发表于 2026-7-24 09:59
+
+高达这脸一看不就是这个吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202607/24/095908zu3al1o1t3auildc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 09:59 上传
+
