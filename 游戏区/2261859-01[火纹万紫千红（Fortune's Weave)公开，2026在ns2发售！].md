@@ -3489,3 +3489,15 @@ IS：为什么我做的Engage销量会差光荣三房这么多？好没面子啊
 
 建议多玩点欧美游戏，这样看啥都是美女了。
 
+
+*****
+
+####  发呆的龙虾  
+##### 1399#       发表于 2026-7-24 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69959498&amp;ptid=2261859" target="_blank">巨馍蘸酱 发表于 2026-7-24 15:23</a>
+比起被迫做三房续作，不如说被迫加入DEI，RTT系作品这两年DEI的程度之高真的能把人搞麻了，明明一堆子供 ...</blockquote>
+真扯上DEI就不是这画风了。这作单纯就是丑和敷衍，人设、场景、动作全都是这样。
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
