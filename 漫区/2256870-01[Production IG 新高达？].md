@@ -603,3 +603,29 @@ PV只是一般差，但想到是神山健治做就更脱力了。
 
 —— 来自 HUAWEI NOH-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  赤黑的假面  
+##### 340#       发表于 2026-7-24 08:55
+
+<blockquote>发呆的龙虾 发表于 2026-7-24 08:36
+不是，万代真的觉得他们那个高达游戏很好吗？一眼看着就是大雷啊。</blockquote>
+动画游戏一起宣只能说这次Bandai野心很大
+
+*****
+
+####  Libartas  
+##### 341#       发表于 2026-7-24 08:55
+
+世界观科技这么发达，但是实际战力感觉还不如00世界观，这外星人感觉也就跟els一个水平
+
+*****
+
+####  Milarvoz  
+##### 342#       发表于 2026-7-24 08:55
+
+一开始像00，披风一出来我靠是威震天大人。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
