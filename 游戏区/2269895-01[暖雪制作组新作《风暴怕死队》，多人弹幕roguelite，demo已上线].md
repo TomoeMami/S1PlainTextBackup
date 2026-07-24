@@ -406,3 +406,16 @@ hades like可以看看灰烬之国，手感目前还是demo，可能差点，但
 
 2026-7-24 15:44 上传
 
+
+*****
+
+####  frankCC  
+##### 44#         楼主| 发表于 2026-7-24 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69958998&amp;ptid=2269895" target="_blank">机动三轮 发表于 2026-7-24 13:47</a>
+
+完成度如何？当时 demo 感觉 bd 有点贫瘠，虽然已经买了但忙着刷 relink 还没开始玩
+
+论坛助手,iPhone ...</blockquote>
+bd丰富度肯定跟那些老牌游戏没法比，但作为一个刚开始ea的游戏，我觉得还算可以了，最大的问题是启程终点那套电表倒转的bd太无敌了，游戏流程又长，你只能在流程中刻意控制自己强度。
+
