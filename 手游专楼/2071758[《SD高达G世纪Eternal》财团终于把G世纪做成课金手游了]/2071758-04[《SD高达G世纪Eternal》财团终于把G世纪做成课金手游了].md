@@ -543,3 +543,11 @@ DMM的PC版全资源下完给我干到63个G，这进度以后如果还出单机
 
 DMM只有日服吧，记得国际服也有个PC端来着？谁有链接吗
 
+
+*****
+
+####  blue321  
+##### 4566#       发表于 2026-7-24 20:16
+
+好多挑战不能自动，自动党震怒<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
