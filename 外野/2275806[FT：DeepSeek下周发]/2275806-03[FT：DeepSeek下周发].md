@@ -9201,3 +9201,62 @@ gpt的限额我给用完了，k3的api用不起，v4预览版流口水，opencod
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  overflowal  
+##### 3810#       发表于 2026-7-24 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69960005&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-24 16:52</a>
+
+看灰度up直播弹幕说猫老板群内测了，只有灰度版80％水平</blockquote>
+不是，80%是怎么算出来的。。
+
+*****
+
+####  zy450  
+##### 3811#       发表于 2026-7-24 17:16
+
+也行吧，今天不更新，不影响我明天游戏开荒
+
+*****
+
+####  mr.qu  
+##### 3812#       发表于 2026-7-24 17:16
+
+ 本帖最后由 mr.qu 于 2026-7-24 17:18 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69960005&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-24 16:52</a>
+看灰度up直播弹幕说猫老板群内测了，只有灰度版80％水平</blockquote>
+这个又是转了几手的消息？
+
+而且猫老板不是已经入职混元了吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  cscbzcbz  
+##### 3813#       发表于 2026-7-24 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69960146&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-24 17:15</a>
+不是，80%是怎么算出来的。。</blockquote>
+弹幕的话能信吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甚至连UP主都不是
+
+
+*****
+
+####  猫不理prime  
+##### 3814#       发表于 2026-7-24 17:21
+
+就
+
+<img src="https://img.stage1st.com/forum/202607/24/172129a8n63nu3mb1bmm1u.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1784884886644_1.webp</strong> (150.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 17:21 上传
+
+—— 来自 HONOR PTP-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
