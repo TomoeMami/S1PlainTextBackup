@@ -8940,3 +8940,27 @@ api炸了，另外status把原本的网页和api进一步拆分成网页、flash
 
 难道是下班前紧急发表，发完过周末<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GJRstone  
+##### 3780#       发表于 2026-7-24 14:54
+
+邮件性能下降来了，大的要来了
+
+*****
+
+####  wandeeees  
+##### 3781#       发表于 2026-7-24 14:55
+
+也许只是把那俩API下线导致的波动罢了
+
+*****
+
+####  goranger  
+##### 3782#       发表于 2026-7-24 14:57
+
+修复了，大的又走了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
