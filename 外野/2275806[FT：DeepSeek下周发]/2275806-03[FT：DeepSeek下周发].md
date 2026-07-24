@@ -9377,3 +9377,11 @@ k3感觉还是没有优化好，又慢又贵，着急出来的
 
 假设灰度版是Fable 5级别（livebench 80.8分）那么80%就只有64.6分了，而livebench V4 Flash有65.5分<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Awanano  
+##### 3827#       发表于 2026-7-24 23:08
+
+即将进入漫无止境的 7 月    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
