@@ -3866,3 +3866,13 @@ HD-2D倒好了，就这转身水平做尼玛的3D
 
 （随便说的
 
+
+*****
+
+####  蓝雉  
+##### 1430#       发表于 2026-7-24 18:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69959921&amp;ptid=2261859" target="_blank">巨馍蘸酱 发表于 2026-7-24 16:39</a>
+女王的嘴唇不就挺厚的么？脏辫角色也不止一个了。虽然不是所有角色都有这些特征，但这么多黑皮硬当正常现 ...</blockquote>
+女王那嘴唇算不上厚吧，一般涂口红的角色嘴唇差不多也就这么厚
+
