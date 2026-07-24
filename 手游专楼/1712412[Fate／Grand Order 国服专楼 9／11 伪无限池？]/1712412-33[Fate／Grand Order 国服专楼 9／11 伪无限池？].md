@@ -510,3 +510,11 @@ a72907cd918cc37948426ed315caa5a333874.png@1052w_!web-dynamic.webp
 
 <img src="https://img.stage1st.com/forum/202607/24/174400r7j5t9xod07t5d79.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  麻花疼  
+##### 47923#       发表于 2026-7-24 21:24
+
+国服把锁助战的大优化给修复了！
+

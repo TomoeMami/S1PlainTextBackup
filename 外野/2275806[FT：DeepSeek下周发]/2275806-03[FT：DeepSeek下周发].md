@@ -9308,3 +9308,13 @@ gpt的限额我给用完了，k3的api用不起，v4预览版流口水，opencod
 
 —— 来自 vivo V2454A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  舞以  
+##### 3820#       发表于 2026-7-24 21:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">订一个月gpt20x试试了
+
+希望下个月就不用给o➗上供了
+
