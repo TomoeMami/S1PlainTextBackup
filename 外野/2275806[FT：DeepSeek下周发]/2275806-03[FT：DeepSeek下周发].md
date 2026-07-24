@@ -9445,3 +9445,13 @@ k3感觉还是没有优化好，又慢又贵，着急出来的
 我靠，我买了点硅基蠕动的代金券才发现，这硅基蠕动的V4 PRO咋这么贵啊</blockquote>
 没记错的话，就在你买之前一到两周左右吧，这V4PRO的价格还是和官方持平的，当时硅基流动宣布了限时折扣。我当时充了160块钱代金券应该都是卡在这个折扣里面的。。折扣结束后这渠道就不再有价值了。
 
+
+*****
+
+####  qz66618  
+##### 3833#       发表于 2026-7-25 01:27
+
+opus5已发布<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -1259,3 +1259,14 @@ C(O14FQK(NGE(O$V}JE1TLD_tmb.jpg
 
 这脸看着像mg头套hg脸的不匹配感，而且太长了尖得有种学园handsome的美
 
+
+*****
+
+####  ナルバレック  
+##### 396#       发表于 2026-7-25 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69961804&amp;ptid=2256870" target="_blank">鱼雷鲨 发表于 2026-7-24 23:53</a>
+
+估计结尾就是揭露怪物其实只是殖民卫星独立阵营</blockquote>
+这玩意能力跟恶魔高达和ELS都有点像了，我估计真不是殖民卫星能玩出来的玩意，除非是倒X那种在外星系发展N年的人类产物的设定
+
