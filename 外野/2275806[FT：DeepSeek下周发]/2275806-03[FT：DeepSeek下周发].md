@@ -9260,3 +9260,17 @@ gpt的限额我给用完了，k3的api用不起，v4预览版流口水，opencod
 
 —— 来自 HONOR PTP-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3815#       发表于 2026-7-24 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69960094&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-24 17:08</a>
+gpt的限额我给用完了，k3的api用不起，v4预览版流口水，opencode限额也用完了
+悠悠苍天，何薄于我。</blockquote>
+我也把codex额度用完了，正考虑要不要开一个月k3
+但从我拿opencode go蹬了几次k3经验来看，k3还是距离5.6sol有点差距，指令遵循还是差点
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
