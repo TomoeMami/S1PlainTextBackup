@@ -3509,3 +3509,20 @@ IS：为什么我做的Engage销量会差光荣三房这么多？好没面子啊
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看到三小子转身顿时觉得手里的engage香了起来
 
+
+*****
+
+####  kuarwbwe  
+##### 1401#       发表于 2026-7-24 16:27
+
+ 本帖最后由 kuarwbwe 于 2026-7-24 16:28 编辑 
+
+丑就是会被舆论打成dei，望周知。我现在倒是更好奇这么个玩意是怎么混上去年的one more thing，还能按照最高档80刀去定价的（港服定价499，和马车世界一个档）。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  零崎不识  
+##### 1402#       发表于 2026-7-24 16:27
+
+主要确实挺抽象的，像有几个颜值高的女角色(粉毛和绿毛)，画风跟其他角色像是不同片场走出来的，所以我的感觉就是这些角色是用来挖角的，属于奖励角色，主线剧情里这些角色也露不了脸的
+
