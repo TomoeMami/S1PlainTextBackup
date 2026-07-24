@@ -3237,3 +3237,14 @@ Oh no，我想勾搭打得好的野人啊，无论是涂击队，还是后面PVP
 其实我一直很想知道任天堂为什么就是不肯给这个系列加一个关闭镜头自动跟随的设置，只能说还好这系列右摇杆 ...</blockquote>
 +1 还好这作不明显，虽说不晕，但我也不喜欢这个功能和运动模糊一样
 
+
+*****
+
+####  shirolin  
+##### 493#       发表于 2026-7-24 18:28
+
+我懂了……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 体感玩家感受不到自动跟随吧
+我也是现在才知道这系列左摇杆有镜头自动跟随？回去我把体感关了试试
+
+——来自 Pixel 7a 上的 [S1er 客户端](https://s1er.pages.dev)
+
