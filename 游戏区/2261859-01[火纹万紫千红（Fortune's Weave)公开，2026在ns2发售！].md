@@ -3933,3 +3933,41 @@ HD-2D倒好了，就这转身水平做尼玛的3D
 
 地中海南部乃至北非都是tm是白人的地盘好吧，能不能稍微有点地图常识<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 1438#       发表于 2026-7-24 22:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69960497&amp;ptid=2261859" target="_blank">空气先生 发表于 2026-7-24 18:11</a>
+
+现在观感之差已经是怀疑is对三房内部恨，作出这样的东西就是毁掉三房系，重拾下棋荣光。
+
+（随便说的 ...</blockquote>
+我咋觉得按你这个逻辑只会有更多白右骂IS收到了DEI的侵袭
+
+
+*****
+
+####  牛奶笛  
+##### 1439#       发表于 2026-7-24 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69960911&amp;ptid=2261859" target="_blank">bwsusaga 发表于 2026-7-24 19:44</a>
+
+火纹正统系列上PC蒸汽销量会不会更多？
+
+我看国内外仿火纹的各种独游中小型是真的多。有些销量还不错，总不 ...</blockquote>
+参考索尼第一方，一开始大家觉得稀罕，很多人买，销量短暂增加。后来不稀罕了，祛魅了，没有独占粉丝维护，面对成千上万同类型游戏的冲击，又灰溜溜的回去了。
+
+*****
+
+####  牛奶笛  
+##### 1440#       发表于 2026-7-24 22:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69959850&amp;ptid=2261859" target="_blank">kuarwbwe 发表于 2026-7-24 16:27</a>
+
+丑就是会被舆论打成dei，望周知。我现在倒是更好奇这么个玩意是怎么混上去年的one more thing，还能按照最 ...</blockquote>
+万紫千红就是正儿八经的70刀正作。但老任今年改了策略，美服的实体卡贵了10刀，所以就变成80刀了。
+
+未来真正80刀的游戏，实体会是90刀。
+
