@@ -3098,3 +3098,15 @@ Oh no，我想勾搭打得好的野人啊，无论是涂击队，还是后面PVP
 
 日亚买数字兑换码，会百分百封号？
 
+
+*****
+
+####  BN桑  
+##### 479#       发表于 2026-7-24 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69959105&amp;ptid=2253488" target="_blank">mggr 发表于 2026-7-24 14:17</a>
+日亚买数字兑换码，会百分百封号？</blockquote>
+说是新号直接买数字商品的大概率封号，我的账号几年前买过一些动画小圆盘，昨晚买了之后到现在这还没被封号<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
