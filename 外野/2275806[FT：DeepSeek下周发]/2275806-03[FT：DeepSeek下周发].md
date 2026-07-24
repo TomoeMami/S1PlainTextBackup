@@ -8503,3 +8503,29 @@ zcode这个傻逼玩意儿怎么越更新越弱智了？
 
 如果基模和优化差不了太多的，第三方API理论上完全可以比官方低价的，只不过潜规则不能这么搞
 
+
+*****
+
+####  overflowal  
+##### 3736#       发表于 2026-7-24 09:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69957460&amp;ptid=2275806" target="_blank">chenyedgg 发表于 2026-7-24 09:04</a>
+第三方默认不会低于官方的定价，
+
+除了DS外，其他官方而且还有coding plan这种换算token的话远低于API的定 ...</blockquote>
+还有就是第三方为了能运行多款模型，推理的性能其实是不能像官方那样极致优化的。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  高粱河车神  
+##### 3737#       发表于 2026-7-24 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69956657&amp;ptid=2275806" target="_blank">我猫呢? 发表于 2026-7-23 23:56</a>
+
+不懂就问，梁圣说了，ds开源了第三方也做不到那么低的成本，实在不行卖api公司也能撑下去。k3这个价格要是 ...</blockquote>
+我感觉梁圣是谦虚了，第三方部署不是做不到DS那么低成本，是远远做不到
+
+连做到K3水平的都很难
+
+所以KIMI的收入还是有保障的
+
