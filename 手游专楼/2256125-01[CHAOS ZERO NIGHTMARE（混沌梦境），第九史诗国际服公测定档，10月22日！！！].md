@@ -105,3 +105,23 @@
 
 整个事件明显就是有意这样折腾的，突出一个停权的人设。送的都是没所屌用的破东西
 
+
+*****
+
+####  id_catcher  
+##### 1153#       发表于 2026-7-24 09:58
+
+反正当盆栽每天收菜5分钟。新的贫乳紧身衣不错，抽完手头石头再卸载
+
+—— 来自 OnePlus PJA110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  三谷歩夢  
+##### 1154#       发表于 2026-7-24 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69957246&amp;ptid=2256125" target="_blank">icecry 发表于 2026-7-24 08:12</a>
+
+**笑门e7不是很会玩套娃么</blockquote>
+E7套娃和砍角色被骂得还少吗，也就是E7重PVP加上角色多，阵容是螺旋变化的，主PVE的游戏还这么搞纯找死
+
