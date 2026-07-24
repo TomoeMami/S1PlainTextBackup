@@ -989,3 +989,13 @@ C(O14FQK(NGE(O$V}JE1TLD_tmb.jpg
 
 这主角机下巴属实拉完了。一眼幻视猫咪张嘴惊叫meme图
 
+
+*****
+
+####  Sleipnirω  
+##### 376#       发表于 2026-7-24 16:41
+
+主角机太瘦了，游戏那台挺壮硕的看着不错，但是无意义的刻线堆的有点多
+
+就怕是动画的内容随便糊弄一下开个头，完了告诉大伙后续大的全在游戏剧情里，买游戏玩去吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
