@@ -950,3 +950,22 @@ C(O14FQK(NGE(O$V}JE1TLD_tmb.jpg
 
 推上反响 怎样<img src="https://static.stage1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 373#       发表于 2026-7-24 13:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69958817&amp;ptid=2256870" target="_blank">xwz 发表于 2026-7-24 13:04</a>
+
+谁能给个总结说下什么情况？</blockquote>
+动画和游戏都是明年出，同一世界观，游戏时间线在动画的90年后。
+
+也就是说这次动画不仅是卖胶的广告，也是游戏广告。
+
+（类似的事高达以前也干过一回，2000年初的高达救世主，结果暴死了）
+
+目前的评论看起来和过去一样，高达新作刚出来总是要挨骂的，所以具体还得看实际素质。
+
+不过主角机的下巴确实挺丑，有<img src="https://static.stage1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
+
