@@ -3438,3 +3438,22 @@ ok，我前期也是乱花钱升级武器<img src="https://static.stage1st.com/i
 
 绝品武器是不是就是带鱼骨的，刷出来个绝品50级的加特林和重刷，小绿是不是绝品只有40级
 
+
+*****
+
+####  stoiorz  
+##### 514#       发表于 2026-7-25 00:05
+
+39级速通了，最后演出真的挺好的。
+
+*****
+
+####  Hanzong  
+##### 515#       发表于 2026-7-25 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69960967&amp;ptid=2253488" target="_blank">xmakoto 发表于 2026-7-24 20:00</a>
+pdd的299团有人来拼嘛
+
+https://file-link.pinduoduo.com/mGyuzof7z3</blockquote>
+跟了，还差一个
+
