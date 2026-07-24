@@ -1007,3 +1007,16 @@ C(O14FQK(NGE(O$V}JE1TLD_tmb.jpg
 
 怎么看上去好像有眉毛<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 378#       发表于 2026-7-24 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69959931&amp;ptid=2256870" target="_blank">Sleipnirω 发表于 2026-7-24 16:41</a>
+
+主角机太瘦了，游戏那台挺壮硕的看着不错，但是无意义的刻线堆的有点多
+
+就怕是动画的内容随便糊弄一下开个 ...</blockquote>
+游戏这个时间线跨度比0079到V都大了，已经是半个古人了，应该不至于这样
+
