@@ -3248,3 +3248,11 @@ Oh no，我想勾搭打得好的野人啊，无论是涂击队，还是后面PVP
 
 ——来自 Pixel 7a 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  GrayishWh0  
+##### 494#       发表于 2026-7-24 19:21
+
+pdd已经299一张了，而我的卡带还没发货<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
