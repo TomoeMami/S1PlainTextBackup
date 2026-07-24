@@ -541,3 +541,38 @@ PV画面养眼，人设画风正常讨好，稍微加分。
 
 只有我有点乐观？这个卖相是最有我以前看过的高达的感觉了。以前指w、seed、00🤔
 
+
+*****
+
+####  碧蓝档案  
+##### 333#       发表于 2026-7-24 08:30
+
+机械设定是清水荣一 
+
+*****
+
+####  fantuanxiaoyi  
+##### 334#       发表于 2026-7-24 08:31
+
+PV只是一般差，但想到是神山健治做就更脱力了。
+
+*****
+
+####  Piano-Forest  
+##### 335#         楼主| 发表于 2026-7-24 08:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69956972&amp;ptid=2256870" target="_blank">Piano-Forest 发表于 2026-7-24 02:20</a>
+
+先导PV：https://youtu.be/Lmikfxhi8E0
+
+神山健治が描く、リビジョンされたガンダム</blockquote>
+官网：[https://gundam-official.com/titles/rg-project/xarx-zero/](https://gundam-official.com/titles/rg-project/xarx-zero/)
+
+*****
+
+####  Piano-Forest  
+##### 336#         楼主| 发表于 2026-7-24 08:32
+
+<img src="https://p.sda1.dev/34/4c32d7be70f97ca7b48fbc7344701c97/HN7yLiMaAAA8tKV.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/5393276ea57b25dd2b79ed3a0b02c527/HN7yLqsagAA0eFN.jpg" referrerpolicy="no-referrer">
+
