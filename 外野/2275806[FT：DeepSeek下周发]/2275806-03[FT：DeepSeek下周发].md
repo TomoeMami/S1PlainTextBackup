@@ -8466,3 +8466,14 @@ Grok锐评：
 
 完全自省的agi好像违背莱斯定律了，世界模型好歹能传递客观现实世界的约束作为外部语义
 
+
+*****
+
+####  Rowen233  
+##### 3733#       发表于 2026-7-24 08:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69957181&amp;ptid=2275806" target="_blank">Ny 发表于 2026-7-24 07:44</a>
+
+彭博社：中国的AI模型在使用量上超过了美国模型。</blockquote>
+只是openrouter超了 大企业很多都是直接和aws azure这些云服务商或者O出A出直接签协议的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要是中小企业用可能用开源模型多点
+

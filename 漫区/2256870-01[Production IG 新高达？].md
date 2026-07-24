@@ -576,3 +576,30 @@ PV只是一般差，但想到是神山健治做就更脱力了。
 <img src="https://p.sda1.dev/34/4c32d7be70f97ca7b48fbc7344701c97/HN7yLiMaAAA8tKV.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/34/5393276ea57b25dd2b79ed3a0b02c527/HN7yLqsagAA0eFN.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安广多惠子  
+##### 337#       发表于 2026-7-24 08:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">遊戲主角機的hg這小色差分色，得補多少色我不敢想，已經開始期待了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  发呆的龙虾  
+##### 338#       发表于 2026-7-24 08:36
+
+不是，万代真的觉得他们那个高达游戏很好吗？一眼看着就是大雷啊。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  leleq  
+##### 339#       发表于 2026-7-24 08:41
+
+土<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

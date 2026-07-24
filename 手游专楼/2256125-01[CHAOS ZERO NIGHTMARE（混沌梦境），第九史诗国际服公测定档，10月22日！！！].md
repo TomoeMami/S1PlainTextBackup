@@ -82,3 +82,26 @@
 
 —— 来自 OnePlus PJA110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  icecry  
+##### 1151#       发表于 2026-7-24 08:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69957205&amp;ptid=2256125" target="_blank">id_catcher 发表于 2026-7-24 07:56</a>
+
+事实证明傻逼笑门根本没有能力设计和控制游戏里得数值和机制，甚至现在还懒得设计新机制去针对性限制超模的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">**笑门e7不是很会玩套娃么
+
+*****
+
+####  wthall  
+##### 1152#       发表于 2026-7-24 08:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69957205&amp;ptid=2256125" target="_blank">id_catcher 发表于 2026-7-24 07:56</a>
+
+事实证明傻逼笑门根本没有能力设计和控制游戏里得数值和机制，甚至现在还懒得设计新机制去针对性限制超模的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">你还在玩就是策划的胜利，我从前天前瞻之后就直接卸载了。
+
+整个事件明显就是有意这样折腾的，突出一个停权的人设。送的都是没所屌用的破东西
+
