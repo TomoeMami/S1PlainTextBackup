@@ -9364,3 +9364,16 @@ k3感觉还是没有优化好，又慢又贵，着急出来的
 
 这都七月底了梁叔叔<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chenyedgg  
+##### 3826#       发表于 2026-7-24 23:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69960005&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-24 16:52</a>
+
+看灰度up直播弹幕说猫老板群内测了，只有灰度版80％水平</blockquote>
+我记得猫老板说了不搞类似灰测性能烂炒之类的事了
+
+假设灰度版是Fable 5级别（livebench 80.8分）那么80%就只有64.6分了，而livebench V4 Flash有65.5分<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
