@@ -698,3 +698,11 @@ DEMO版最喜欢的
 虽然完全不记得龙之谷什么样了，但切到射手发现手柄完全玩不了遂换键鼠后，无锁战斗的记忆一下子回来了
 当初其实玩的就是PVP，射手纯下水道，被战士撵着跑，又被法师黑洞吸来吸去的
 
+
+*****
+
+####  bwsusaga  
+##### 78#       发表于 2026-7-24 20:26
+
+可以上月影风灵的原神1.0<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
