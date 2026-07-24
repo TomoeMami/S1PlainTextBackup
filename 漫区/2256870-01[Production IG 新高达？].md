@@ -1219,3 +1219,14 @@ C(O14FQK(NGE(O$V}JE1TLD_tmb.jpg
 就怕是动画的内容随便糊弄一下开个 ...</blockquote>
 那应该不至于，看游戏还在打怪物，那动画结尾肯定是失败结局，很可能还是死亡badend，然后利用玩家的复仇心态促销游戏
 
+
+*****
+
+####  aptx8285144  
+##### 392#       发表于 2026-7-24 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69961253&amp;ptid=2256870" target="_blank">ナルバレック 发表于 2026-7-24 21:13</a>
+
+目前这个PV出现过的人设</blockquote>
+除了男主和红毛女性凑合着看外，剩下这群人就像戴着假发一样<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
