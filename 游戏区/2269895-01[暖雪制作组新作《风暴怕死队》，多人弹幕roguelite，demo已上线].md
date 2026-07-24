@@ -382,3 +382,11 @@ hades like可以看看灰烬之国，手感目前还是demo，可能差点，但
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  icelord  
+##### 42#       发表于 2026-7-24 13:51
+
+还是贫瘠 不过玩一段时间还不赖
+

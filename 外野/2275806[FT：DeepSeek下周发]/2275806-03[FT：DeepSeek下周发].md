@@ -8749,3 +8749,15 @@ DSv4的价格太低了，我看了下硅基流动上，qwen3.5-9B这种模型，
 
 —— 来自 HUAWEI VYG-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  overflowal  
+##### 3762#       发表于 2026-7-24 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69958973&amp;ptid=2275806" target="_blank">Tomek 发表于 2026-7-24 13:41</a>
+今天是没有大的了吗
+
+—— 来自 HUAWEI VYG-AL00, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+感觉上7月可能都没大的了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
