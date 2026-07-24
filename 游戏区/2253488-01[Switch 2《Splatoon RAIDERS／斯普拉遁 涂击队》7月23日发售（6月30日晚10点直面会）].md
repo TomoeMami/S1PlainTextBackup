@@ -3131,3 +3131,16 @@ Oh no，我想勾搭打得好的野人啊，无论是涂击队，还是后面PVP
 日亚买数字兑换码，会百分百封号？</blockquote>
 说的是封日亚的号，数字商品的风控很严。但封了后你可以找客服去解封
 
+
+*****
+
+####  渡辺梨加  
+##### 482#       发表于 2026-7-24 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69959105&amp;ptid=2253488" target="_blank">mggr 发表于 2026-7-24 14:17</a>
+日亚买数字兑换码，会百分百封号？</blockquote>
+新号据说100%被封，老号是概率封，但有时能自动解封。
+我日亚的号用了好多年了，实物跟kindle电子书都没少买。前天买涂击队兑换码啥事没有，买点卡却给我封号删订单了，昨天自动解封后我又买节奏天国和pokopia的DLC，又啥事没有了。
+
+—— 来自 samsung SM-N9860, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
