@@ -551,3 +551,15 @@ DMM只有日服吧，记得国际服也有个PC端来着？谁有链接吗
 
 好多挑战不能自动，自动党震怒<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  acg_gyanc  
+##### 4567#       发表于 2026-7-25 02:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69961037&amp;ptid=2071758" target="_blank">alialex 发表于 2026-7-24 20:12</a>
+DMM只有日服吧，记得国际服也有个PC端来着？谁有链接吗</blockquote>
+国际服只有谷歌pc商店那个，本质还是模拟器，而且那个商店软件做得巨烂，不推荐
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
