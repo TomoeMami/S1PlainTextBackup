@@ -3256,3 +3256,22 @@ Oh no，我想勾搭打得好的野人啊，无论是涂击队，还是后面PVP
 
 pdd已经299一张了，而我的卡带还没发货<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lilod  
+##### 495#       发表于 2026-7-24 19:45
+
+涂击队玩起来像 Doom 不知道有没有人能懂我
+
+*****
+
+####  绿冰  
+##### 496#         楼主| 发表于 2026-7-24 19:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69960191&amp;ptid=2253488" target="_blank">nancygreenlife 发表于 2026-7-24 17:22</a>
+我在想都这么明牌素材复用了，怎么不把秩序篇的那些鱼也都换皮加进来</blockquote>
+换了大家最喜欢的（？）飞泼溅鱼进来啊233
+
+—— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
