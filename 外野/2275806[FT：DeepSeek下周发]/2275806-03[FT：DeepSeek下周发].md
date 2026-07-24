@@ -9417,3 +9417,20 @@ k3感觉还是没有优化好，又慢又贵，着急出来的
 
 像智谱现在toB业务很重要的一部分就不是卖api，而是帮客户在自家企业内部部署GLM，因为你不买他的服务自己部署绝对没有他帮你部署的效果好（ceo访谈提到过）
 
+
+*****
+
+####  startraveller  
+##### 3830#       发表于 2026-7-25 00:35
+
+现在qoder国际版在狂送ultimate券外加qwen 3.8打折，根本蹬不完啊
+
+*****
+
+####  startraveller  
+##### 3831#       发表于 2026-7-25 00:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69961899&amp;ptid=2275806" target="_blank">粉色猛男 发表于 2026-7-25 00:19</a>
+我靠，我买了点硅基蠕动的代金券才发现，这硅基蠕动的V4 PRO咋这么贵啊</blockquote>
+只有官方是降价后的价格
+
