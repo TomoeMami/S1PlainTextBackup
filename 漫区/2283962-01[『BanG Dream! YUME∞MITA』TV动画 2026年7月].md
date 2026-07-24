@@ -112,3 +112,11 @@ V姐的人心掌控术是不是太强了点，
 
 要是V姐是一个同时享受美少女受苦和kirakira的乐子人这动画就要成薇欧拉传了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sword0blade  
+##### 129#       发表于 2026-7-24 17:14
+
+现在时与回忆的分隔不是很明显，观看时有点混乱
+

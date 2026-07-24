@@ -3575,3 +3575,80 @@ IS：为什么我做的Engage销量会差光荣三房这么多？好没面子啊
 
 这么看来这帖子里小黑子不少啊。
 
+
+*****
+
+####  零崎不识  
+##### 1407#       发表于 2026-7-24 17:09
+
+<img src="https://img.stage1st.com/forum/202607/24/170801ukm7zxk842txonza.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260724_170746.jpg</strong> (5.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 17:08 上传
+
+<img src="https://img.stage1st.com/forum/202607/24/170810uyowtwhcrmvwbrbc.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260724_170710.jpg</strong> (5.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 17:08 上传
+
+<img src="https://img.stage1st.com/forum/202607/24/170810ke442qxnj4m7o172.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260724_170643.jpg</strong> (5.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 17:08 上传
+
+<img src="https://img.stage1st.com/forum/202607/24/170810pv31ggbxwkehvk4l.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260724_170619.jpg</strong> (6.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 17:08 上传
+
+<img src="https://img.stage1st.com/forum/202607/24/170811qpmq5ddgn5dv444v.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260724_170600.jpg</strong> (6.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 17:08 上传
+
+<img src="https://img.stage1st.com/forum/202607/24/170811wh90gyvinn0jjynj.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260724_170526.jpg</strong> (6.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-24 17:08 上传
+
+我在想官方是不是真的在做人气管理，结合每个妹子非常平均的好看，最后人气就被稀释了，这回毫无疑问这些妹子的人设断档高出其他角色一层，官方眼睛又不瞎，不是没本事画好看的妹子，但他就是要在你的四主角的主线里塞丑的
+
+*****
+
+####  suzakushi  
+##### 1408#       发表于 2026-7-24 17:11
+
+所以你火纹历代有多少黑皮啊？那些高人气角色有几个是黑皮啊？
+
+为什么这代角色大部分都很丑，全员黑皮真的是一个可以不粘锅的因素吗？
+
+仓花本来画得就是屎，还要搞这种又土又尼的人设就是屎上加屎。
+
+
+*****
+
+####  nancygreenlife  
+##### 1409#       发表于 2026-7-24 17:16
+
+我从一开始就感觉万紫千红女角色比三房强多了，三房的女角色不知道为啥就是有种性冷淡的感觉，万紫千红则让我感到好歹有点媚宅的感觉了
+
+至于大叔，大叔长什么样都不重要
+

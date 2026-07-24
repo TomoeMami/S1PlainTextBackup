@@ -9181,3 +9181,23 @@ gpt的限额我给用完了，k3的api用不起，v4预览版流口水，opencod
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  SmterC  
+##### 3808#       发表于 2026-7-24 17:11
+
+最早中旬是按11号算的，我上个月GPT也就11号到期，想到马上能用v4正式版，也就没续
+想的再不济，20号之前总能用上吧
+现在青黄不接，没模型可用
+别再跳票了梁圣，求求了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  77BBC  
+##### 3809#       发表于 2026-7-24 17:12
+
+下个月见吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
