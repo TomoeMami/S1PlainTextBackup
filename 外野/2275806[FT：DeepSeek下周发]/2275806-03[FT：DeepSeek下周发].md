@@ -9455,3 +9455,13 @@ opus5已发布<img src="https://static.stage1st.com/image/smiley/face2017/037.pn
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lolozi  
+##### 3834#       发表于 2026-7-25 02:36
+
+打的就是opus5<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">把血条亮出来吧
+
+硬碰硬啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊（先睡了8月中旬再看看）
+
