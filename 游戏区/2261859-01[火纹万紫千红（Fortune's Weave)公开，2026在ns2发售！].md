@@ -3243,3 +3243,13 @@ IS：为什么我做的Engage销量会差光荣三房这么多？好没面子啊
 
 三小只转身gif在X上火了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 1373#       发表于 2026-7-24 12:20
+
+平移转身，评价为不如GF。
+
+人家好歹知道平移的时候原地踏步。
+
