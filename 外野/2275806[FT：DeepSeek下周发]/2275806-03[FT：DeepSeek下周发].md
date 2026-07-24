@@ -9022,3 +9022,22 @@ API崩了吗？难道？
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  一般市民  
+##### 3790#       发表于 2026-7-24 15:39
+
+L站那个新思维链帖子里面都在画鹈鹕骑车，不过这多样性是不是有点爆炸，真是搞不懂 <img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tk553521  
+##### 3791#       发表于 2026-7-24 15:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69959575&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-7-24 15:39</a>
+L站那个新思维链帖子里面都在画鹈鹕骑车，不过这多样性是不是有点爆炸，真是搞不懂  ...</blockquote>
+我画了一个挺酷炫的，感觉确实有两种风格，一种很卡通，一种很华丽
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
