@@ -3481,3 +3481,13 @@ https://file-link.pinduoduo.com/mGyuzof7z3</blockquote>
 
 关卡设计要到冰川才起来
 
+
+*****
+
+####  martinoy  
+##### 519#       发表于 2026-7-25 01:10
+
+仔细想了一下，打工本质是基于背板解题游戏，每期地图和武器的最优解法相对固定。涂击队相当于暗黑3的配装爽游，玩法就是换各种bd冲层。伤害不够，巅峰（等级）来凑。喜欢刷子游戏的玩家应该还是评分挺高的。
+
+— from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
