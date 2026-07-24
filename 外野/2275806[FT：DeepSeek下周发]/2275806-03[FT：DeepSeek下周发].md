@@ -9318,3 +9318,14 @@ gpt的限额我给用完了，k3的api用不起，v4预览版流口水，opencod
 
 希望下个月就不用给o➗上供了
 
+
+*****
+
+####  startraveller  
+##### 3821#       发表于 2026-7-24 21:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69960395&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-24 17:52</a>
+我也把codex额度用完了，正考虑要不要开一个月k3
+但从我拿opencode go蹬了几次k3经验来看，k3还是距离5.6 ...</blockquote>
+k3官方订阅额度太少了，还没有20刀的GPT多感觉
+

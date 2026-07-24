@@ -1195,3 +1195,14 @@ C(O14FQK(NGE(O$V}JE1TLD_tmb.jpg
 
 粉毛人设有点马嗑螺蛳F的味 机设太丑了 
 
+
+*****
+
+####  心灵的乳头  
+##### 390#       发表于 2026-7-24 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69961253&amp;ptid=2256870" target="_blank">ナルバレック 发表于 2026-7-24 21:13</a>
+
+目前这个PV出现过的人设</blockquote>
+行了，就叫牛郎高达吧<img src="https://static.stage1st.com/image/smiley/face/27.gif" referrerpolicy="no-referrer">
+
