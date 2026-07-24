@@ -802,3 +802,20 @@ PV只是一般差，但想到是神山健治做就更脱力了。
 现在很流行这种遮住半边脸的发型吗，弄得跟隔壁优米亚似的</blockquote>
 那怎么不说像结城理？可能人家就想要一种忧郁b王气质<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leommoo  
+##### 361#       发表于 2026-7-24 10:47
+
+这雪铁龙看笑了，仔细一看这身体怎么还有那么点像特摄皮套，人设也有点土，真的一股子机动奥的既视感
+
+神山？和鸭嘴兽一样早就拉的不行了吧<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hououmon  
+##### 362#       发表于 2026-7-24 10:48
+
+不是，游戏这90年后的设定是什么鬼，你这动画开播前一年就告诉我动画结局没打赢外星人是什么回事?
+

@@ -8650,3 +8650,47 @@ deepseek的infra厉害。就这样。    [Re:Source](https://stage1st.com/2b/t
 
 今天真的能更新吗
 
+
+*****
+
+####  wlhlz  
+##### 3751#       发表于 2026-7-24 10:47
+
+今天当然不可能更新
+
+*****
+
+####  杀人鲸  
+##### 3752#       发表于 2026-7-24 10:49
+
+其实没有说过今天更新吧？基本上都是猜测以及小道消息。而且就连传出这个小道消息的那一头，也说今天没可能了呀。所以大伙搞什么？为什么莫名其妙的开始期待起来了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  舞以  
+##### 3753#       发表于 2026-7-24 10:50
+
+api用户就是牢梁拿来十个月收回成本的韭菜啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+api基本都会算在tob了，牢梁想赶没赶走的是app和网页端的免费用户吧
+
+
+*****
+
+####  cscbzcbz  
+##### 3754#       发表于 2026-7-24 10:54
+
+当然是因为等不及了<img src="https://static.stage1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zy450  
+##### 3755#       发表于 2026-7-24 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69958127&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-7-24 10:49</a>
+
+其实没有说过今天更新吧？基本上都是猜测以及小道消息。而且就连传出这个小道消息的那一头，也说今天没可能 ...</blockquote>
+每天都在期待，周一和周五期待buff+200%
+
