@@ -1270,3 +1270,13 @@ C(O14FQK(NGE(O$V}JE1TLD_tmb.jpg
 估计结尾就是揭露怪物其实只是殖民卫星独立阵营</blockquote>
 这玩意能力跟恶魔高达和ELS都有点像了，我估计真不是殖民卫星能玩出来的玩意，除非是倒X那种在外星系发展N年的人类产物的设定
 
+
+*****
+
+####  牙狼GARO  
+##### 397#       发表于 2026-7-25 07:41
+
+懂了，高达stella blade
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+

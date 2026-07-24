@@ -9485,3 +9485,13 @@ opus5已发布梁子一步慢感觉要步步慢啊
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  绝地潜兵  
+##### 3836#       发表于 2026-7-25 07:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69961899&amp;ptid=2275806" target="_blank">粉色猛男 发表于 2026-7-25 00:19</a>
+我靠，我买了点硅基蠕动的代金券才发现，这硅基蠕动的V4 PRO咋这么贵啊</blockquote>
+贵州那边的智算中心也是这个价格，第三方做不到梁鸽那个部署成本
+
