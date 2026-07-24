@@ -3676,3 +3676,22 @@ IS：为什么我做的Engage销量会差光荣三房这么多？好没面子啊
 上下限浮动大，反正系列一直有媚宅角色，典型火纹觉醒里那个连体黑丝的萨莉亚，是个男人不可能不射爆 ...</blockquote>
 想不出三房里哪个媚宅，顶多也就那个女老师沾点
 
+
+*****
+
+####  Jabeck  
+##### 1412#       发表于 2026-7-24 17:31
+
+三房女角色有万紫千红这么暴露吗？女帝虽然是黑皮，但那个暴露程度真不一般。<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">还有雷迪还特地把**画出来。真不知道IS是喜欢媚宅还是不喜欢。
+
+*****
+
+####  发呆的龙虾  
+##### 1413#       发表于 2026-7-24 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69960257&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-7-24 17:31</a>
+三房女角色有万紫千红这么暴露吗？女帝虽然是黑皮，但那个暴露程度真不一般。还有雷迪还特地把**画出来。真 ...</blockquote>
+IS当然媚宅了，看嗯给鸡就知道了，各种宅元素堆砌。三房是光荣的，自然和IS口味不一样。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
