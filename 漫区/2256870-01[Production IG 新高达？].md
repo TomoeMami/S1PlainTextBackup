@@ -1206,3 +1206,16 @@ C(O14FQK(NGE(O$V}JE1TLD_tmb.jpg
 目前这个PV出现过的人设</blockquote>
 行了，就叫牛郎高达吧<img src="https://static.stage1st.com/image/smiley/face/27.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windaria  
+##### 391#       发表于 2026-7-24 21:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69959931&amp;ptid=2256870" target="_blank">Sleipnirω 发表于 2026-7-24 16:41</a>
+
+主角机太瘦了，游戏那台挺壮硕的看着不错，但是无意义的刻线堆的有点多
+
+就怕是动画的内容随便糊弄一下开个 ...</blockquote>
+那应该不至于，看游戏还在打怪物，那动画结尾肯定是失败结局，很可能还是死亡badend，然后利用玩家的复仇心态促销游戏
+
