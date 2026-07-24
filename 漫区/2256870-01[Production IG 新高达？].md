@@ -866,3 +866,14 @@ PV只是一般差，但想到是神山健治做就更脱力了。
 
 然后是主角机和怪物融合化后，身上的灯全都不亮了，盲猜后面还会有融合度更高的形态（卖更多的胶）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 368#       发表于 2026-7-24 12:14
+
+圆城塔，神山健治，在我看来要完蛋了
+相比之下清水的机设已经不那么重要了
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
