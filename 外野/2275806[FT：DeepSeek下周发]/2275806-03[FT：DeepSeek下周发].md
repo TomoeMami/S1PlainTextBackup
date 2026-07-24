@@ -8477,3 +8477,29 @@ Grok锐评：
 彭博社：中国的AI模型在使用量上超过了美国模型。</blockquote>
 只是openrouter超了 大企业很多都是直接和aws azure这些云服务商或者O出A出直接签协议的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要是中小企业用可能用开源模型多点
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3734#       发表于 2026-7-24 08:55
+
+zcode这个傻逼玩意儿怎么越更新越弱智了？
+工作跑错了，我纠正的时候居然不知道给子agent发送终止命令，还让子agent在继续错误的思路上跑了三十万词元，有同名文件的情况下居然直接用同名文件给我覆盖掉了，项目结构agent.MD文件中的约束也读不全，在子Agent没有返回消息的情况下就已经让主Agent去做总结的完全是他妈自己瞎编出来的，skill里面明确写着拉起4个子Agent对复数文件进行不同角度的横评结果它给转译成了每个子Agent去评价一份文件，那他妈怎么横评？
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  chenyedgg  
+##### 3735#       发表于 2026-7-24 09:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69956657&amp;ptid=2275806" target="_blank">我猫呢? 发表于 2026-7-23 23:56</a>
+
+不懂就问，梁圣说了，ds开源了第三方也做不到那么低的成本，实在不行卖api公司也能撑下去。k3这个价格要是 ...</blockquote>
+第三方默认不会低于官方的定价，
+
+除了DS外，其他官方而且还有coding plan这种换算token的话远低于API的定价
+
+如果基模和优化差不了太多的，第三方API理论上完全可以比官方低价的，只不过潜规则不能这么搞
+
