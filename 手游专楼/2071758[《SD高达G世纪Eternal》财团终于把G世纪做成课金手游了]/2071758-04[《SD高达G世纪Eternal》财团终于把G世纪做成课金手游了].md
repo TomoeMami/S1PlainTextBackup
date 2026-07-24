@@ -517,3 +517,13 @@ DMM的PC版全资源下完给我干到63个G，这进度以后如果还出单机
 
 这次不好涨分，对面有F91+F90，肯定会被拖到下回合，对面要是再来个00R，这局搞不好都会有被反杀的风险
 
+
+*****
+
+####  一个陆仁贾  
+##### 4563#       发表于 2026-7-24 12:59
+
+<img src="https://p.sda1.dev/34/91dea9298ede8c2984cecede2fa41762/image.jpg" referrerpolicy="no-referrer">目前刷到18w
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
