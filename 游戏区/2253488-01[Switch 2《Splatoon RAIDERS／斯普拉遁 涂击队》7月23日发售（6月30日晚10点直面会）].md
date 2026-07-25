@@ -3808,3 +3808,13 @@ hou，这个指南针指的任务我三个难度都通了还是指着他，是�
 
 回应求救不知不觉打掉很多加强关，现在沉迷用速度清要走路的加强关，很爽，困兽斗类型还是老实技巧，最有效率
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 550#       发表于 2026-7-25 22:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">技术我玩不来，目前比较难的关都是力量硬打的
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
