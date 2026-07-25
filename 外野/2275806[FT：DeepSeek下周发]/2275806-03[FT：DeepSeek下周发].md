@@ -9673,3 +9673,15 @@ https://status.openai.com
 
 DeepSeek 仍可能选择在日后恢复交易流程，且已开始筹备首次公开募股，该募股最早可能在今年内申报。
 
+
+*****
+
+####  谎称  
+##### 3854#       发表于 2026-7-25 23:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69965702&amp;ptid=2275806" target="_blank">linhaolin1 发表于 2026-7-25 23:12</a>
+7 月 25 日，DeepSeek 宣布暂停其第二轮融资，并口头通知部分潜在投资者，将不会按预期签署投资协议。
+
+此 ...</blockquote>
+有信源吗？
+

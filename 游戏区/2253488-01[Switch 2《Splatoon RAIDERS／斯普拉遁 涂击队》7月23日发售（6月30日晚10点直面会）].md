@@ -3826,3 +3826,38 @@ hou，这个指南针指的任务我三个难度都通了还是指着他，是�
 
 炮台把射速，距离加上效果比较好
 
+
+*****
+
+####  guanyun9078  
+##### 552#       发表于 2026-7-25 23:29
+
+请问可以局域网联机吗
+
+—— 来自 HONOR PNM-AN10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  Zeno_5  
+##### 553#       发表于 2026-7-25 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69965781&amp;ptid=2253488" target="_blank">guanyun9078 发表于 2026-7-25 23:29</a>
+
+请问可以局域网联机吗
+
+—— 来自 HONOR PNM-AN10, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+可以本地近距离联机
+
+*****
+
+####  ascomnet  
+##### 554#       发表于 2026-7-25 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69965781&amp;ptid=2253488" target="_blank">guanyun9078 发表于 2026-7-25 23:29</a>
+
+请问可以局域网联机吗
+
+—— 来自 HONOR PNM-AN10, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+可以，本地4人联机
+
