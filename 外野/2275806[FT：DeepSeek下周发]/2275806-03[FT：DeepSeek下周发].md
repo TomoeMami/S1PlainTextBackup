@@ -9752,3 +9752,15 @@ DeepSeek 仍可能选择在日后恢复交易流程，且已开始筹备首次�
 
 DeepSeek 更新了api名字后chatbox 怎么关思考模式呀
 
+
+*****
+
+####  冤枉呐  
+##### 3862#       发表于 2026-7-26 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69965856&amp;ptid=2275806" target="_blank">谎称 发表于 2026-7-25 23:47</a>
+我觉得梁圣总算有理由拒绝融资了……</blockquote>
+不能是因为这个事耽误的吧！
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
