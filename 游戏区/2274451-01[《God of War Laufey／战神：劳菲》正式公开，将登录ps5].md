@@ -101,3 +101,14 @@
 要按剧情来做的话最终boss岂不是奥丁？</blockquote>
 这个序幕看主反派应该是塞赫美特吧
 
+
+*****
+
+####  ナルバレック  
+##### 317#       发表于 2026-7-25 13:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69963337&amp;ptid=2274451" target="_blank">SergeGlenn 发表于 2026-7-25 13:05</a>
+
+这个序幕看主反派应该是塞赫美特吧</blockquote>
+暂时明面BOSS是塞赫美特和蒙古战神，不过战神一般的套路来讲，还有个更强的存在也是挺有可能的
+
