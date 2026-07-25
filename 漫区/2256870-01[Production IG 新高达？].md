@@ -1294,3 +1294,14 @@ C(O14FQK(NGE(O$V}JE1TLD_tmb.jpg
 
 最后一转打人类政府
 
+
+*****
+
+####  鱼雷鲨  
+##### 399#       发表于 2026-7-25 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69962055&amp;ptid=2256870" target="_blank">ナルバレック 发表于 2026-7-25 01:18</a>
+
+这玩意能力跟恶魔高达和ELS都有点像了，我估计真不是殖民卫星能玩出来的玩意，除非是倒X那种在外星系发展 ...</blockquote>
+外星人造出来的东西一眼吉翁MA样，绿扎古也是地球人的另一条科技树，游戏里的机械兽可能是AI自己跑了之类
+

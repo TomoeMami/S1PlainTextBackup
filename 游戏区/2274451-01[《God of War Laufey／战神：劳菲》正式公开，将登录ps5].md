@@ -29,3 +29,22 @@
 
 就让这个游戏成为电影化游戏的终止符吧
 
+
+*****
+
+####  日日日日日野  
+##### 311#       发表于 2026-7-25 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69962621&amp;ptid=2274451" target="_blank">医生狼多 发表于 2026-7-25 09:58</a>
+
+2月也是9月有没有懂的一堆往后退发售日期的挤在这里了https://x.com/i/status/2080831512820519253 ...</blockquote>
+2/12: Tomb Raider: Legacy of Atlantis
+
+2/16: God of War: Laufey
+
+2/18: Persona 4 Revival
+
+2/23: Fable
+
+唯一的感想是，这Fable躲了半天，啥都没躲开
+
