@@ -396,12 +396,12 @@
     "update": false
   },
   "2086637": {
-    "totalreply": 11654,
+    "totalreply": 11656,
     "title": "[【ぷにち】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
     "newtitle": "[【七代目】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
-    "lastedit": 1784706968,
+    "lastedit": 1784988007,
     "category": "虚拟主播区专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2086516": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 44446,
+    "totalreply": 44447,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》7.10 玄翎飞 飞过江 水泱泱 山茫茫]",
-    "lastedit": 1784985605,
+    "lastedit": 1784988126,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -6165,10 +6165,10 @@
     "update": false
   },
   "2148387": {
-    "totalreply": 2495,
+    "totalreply": 2496,
     "title": "[国产安卓掌机奥丁2的u公布了，居然是8g2]",
     "newtitle": "[（转掌机讨论楼）国产安卓掌机奥丁3的u公布了，居然不是8e？]",
-    "lastedit": 1784987888,
+    "lastedit": 1784988487,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -9495,10 +9495,10 @@
     "update": false
   },
   "2195588": {
-    "totalreply": 22844,
+    "totalreply": 22851,
     "title": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
     "newtitle": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
-    "lastedit": 1784987653,
+    "lastedit": 1784988365,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -11453,7 +11453,7 @@
     "newtitle": "[Team Ninja《仁王3》正式公布，2026年2月6日发售]",
     "lastedit": 1784729049,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2175757": {
@@ -11916,10 +11916,10 @@
     "update": false
   },
   "2260400": {
-    "totalreply": 10475,
+    "totalreply": 10476,
     "title": "[【明日方舟】国服16号楼 9.4 Ave Mujica联动SS「无忧梦呓」 (本楼含YJWL动态交流)]",
     "newtitle": "[【明日方舟】国服16号楼 7.17 集成战略「沉沦者的黑流树海」(本楼含YJWL动态交流)]",
-    "lastedit": 1784987765,
+    "lastedit": 1784988127,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 17818,
+    "totalreply": 17819,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼7月]",
-    "lastedit": 1784987889,
+    "lastedit": 1784988487,
     "category": "外野",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 43850,
+    "totalreply": 43851,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1784987405,
+    "lastedit": 1784988366,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13545,10 +13545,10 @@
     "update": false
   },
   "2253488": {
-    "totalreply": 548,
+    "totalreply": 549,
     "title": "[Switch 2《Splatoon RAIDERS／斯普拉遁 涂击队》7月23日发售（6月30日晚10点直面会）]",
     "newtitle": "[Switch 2《Splatoon RAIDERS／斯普拉遁 涂击队》7月23日发售（6月30日晚10点直面会）]",
-    "lastedit": 1784985847,
+    "lastedit": 1784988126,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13821,15 +13821,6 @@
     "lastedit": 1784805488,
     "category": "漫区",
     "active": true,
-    "update": false
-  },
-  "2284983": {
-    "totalreply": 198,
-    "title": "[Yau之震怒：清华有可能清退丘班预科学生]",
-    "newtitle": "[Yau之震怒：清华有可能清退丘班预科学生]",
-    "lastedit": 1783778768,
-    "category": "外野",
-    "active": false,
     "update": false
   },
   "2256420": {
@@ -15728,7 +15719,7 @@
     "newtitle": "[某网红博主在阿根廷半决赛现场遭遇种族歧视]",
     "lastedit": 1784729049,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2285543": {
@@ -17082,10 +17073,10 @@
     "update": false
   },
   "2262918": {
-    "totalreply": 102,
+    "totalreply": 104,
     "title": "[漫威金刚狼pv公开，确认2026／9／15发售]",
     "newtitle": "[漫威金刚狼pv公开，确认2026／9／15发售]",
-    "lastedit": 1784961367,
+    "lastedit": 1784988486,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17136,19 +17127,19 @@
     "update": false
   },
   "2286157": {
-    "totalreply": 68,
+    "totalreply": 69,
     "title": "[你这真是有点分不清大小王了 内存你不买有的是人买]",
     "newtitle": "[你这真是有点分不清大小王了 内存你不买有的是人买]",
-    "lastedit": 1784987889,
+    "lastedit": 1784988127,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2286163": {
-    "totalreply": 97,
+    "totalreply": 98,
     "title": "[雾草哎，干个鸡毛外卖]",
     "newtitle": "[雾草哎，干个鸡毛外卖]",
-    "lastedit": 1784987890,
+    "lastedit": 1784988488,
     "category": "外野",
     "active": true,
     "update": false
@@ -17190,10 +17181,10 @@
     "update": false
   },
   "2286123": {
-    "totalreply": 101,
+    "totalreply": 102,
     "title": "[【街霸6】EWC 2026 电竞世俱杯专楼（24-26号LCQ）]",
     "newtitle": "[【街霸6】EWC 2026 电竞世俱杯专楼（24-26号LCQ）]",
-    "lastedit": 1784987889,
+    "lastedit": 1784988126,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17244,10 +17235,10 @@
     "update": false
   },
   "2286179": {
-    "totalreply": 56,
+    "totalreply": 57,
     "title": "[你如果到古代做皇帝，你会建奇观么？]",
     "newtitle": "[你如果到古代做皇帝，你会建奇观么？]",
-    "lastedit": 1784987288,
+    "lastedit": 1784988488,
     "category": "外野",
     "active": true,
     "update": false
@@ -17316,10 +17307,10 @@
     "update": false
   },
   "2286223": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[世界杯结束了，我还是不理解小红书买世界杯版权是为了什么……]",
     "newtitle": "[世界杯结束了，我还是不理解小红书买世界杯版权是为了什么……]",
-    "lastedit": 1784978768,
+    "lastedit": 1784988487,
     "category": "外野",
     "active": true,
     "update": false
@@ -17330,6 +17321,15 @@
     "newtitle": "[感觉身边的高颜值男性比高颜值女性过得更好些]",
     "lastedit": 1784987890,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2079721": {
+    "totalreply": 163,
+    "title": "[【转型漫画讨论楼】聊聊最近的境界触发者]",
+    "newtitle": "[【转型漫画讨论楼】聊聊最近的境界触发者]",
+    "lastedit": 1784988490,
+    "category": "漫区",
     "active": true,
     "update": false
   }
