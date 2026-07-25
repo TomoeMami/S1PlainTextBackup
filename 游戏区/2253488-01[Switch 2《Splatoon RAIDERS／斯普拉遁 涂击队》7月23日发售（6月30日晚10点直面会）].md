@@ -3645,3 +3645,20 @@ https://www.youtube.com/watch?v=1Dxg1P5Tvt4
 
 救援意外的很容易失败……比打工团灭的概率高多了
 
+
+*****
+
+####  ubiquity  
+##### 535#       发表于 2026-7-25 15:52
+
+<blockquote>ascomnet 发表于 2026-7-25 14:16
+下一作偶像和地点都要换的</blockquote>
+没准是 4 代地区的潮流风吹到了蛮颓
+
+*****
+
+####  xgazer  
+##### 536#       发表于 2026-7-25 15:52
+
+我还是觉得打工更好玩<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
