@@ -3520,3 +3520,14 @@ https://file-link.pinduoduo.com/mGyuzof7z3</blockquote>
 
 希望能像宝可梦建造一样长期运营（到4代），来点DLC填充下游玩内容吧
 
+
+*****
+
+####  ascomnet  
+##### 523#       发表于 2026-7-25 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69962074&amp;ptid=2253488" target="_blank">hl氏 发表于 2026-7-25 01:29</a>
+
+速度型杀怪我玩不好，但是用来过关真的很爽，冰川玩速度很好玩</blockquote>
+玩蜘蛛侠，塔鱼炸的飞起
+
