@@ -9685,3 +9685,35 @@ DeepSeek 仍可能选择在日后恢复交易流程，且已开始筹备首次�
 此 ...</blockquote>
 有信源吗？
 
+
+*****
+
+####  舞以  
+##### 3855#       发表于 2026-7-25 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69965773&amp;ptid=2275806" target="_blank">谎称 发表于 2026-7-25 23:27</a>
+
+有信源吗？</blockquote>
+彭博报道的，说是第二轮融资被暂停，但是剩下的就不知道了
+
+*****
+
+####  goranger  
+##### 3856#       发表于 2026-7-25 23:42
+
+看那几个人问的问题就难绷
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  冤枉呐  
+##### 3857#       发表于 2026-7-25 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69965702&amp;ptid=2275806" target="_blank">linhaolin1 发表于 2026-7-25 23:12</a>
+
+7 月 25 日，DeepSeek 宣布暂停其第二轮融资，并口头通知部分潜在投资者，将不会按预期签署投资协议。
+
+此 ...</blockquote>
+意思是不满意这几个管不住嘴的？
+
