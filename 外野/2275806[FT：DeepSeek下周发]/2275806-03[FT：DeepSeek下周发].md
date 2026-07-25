@@ -9589,3 +9589,16 @@ oa两家的小版本迭代速度很快的<img src="https://static.stage1st.com/i
 而且也没有扩产能力
 当然做做ai卡还是可以的
 
+
+*****
+
+####  ycjiang1337  
+##### 3846#       发表于 2026-7-25 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69963156&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-25 12:10</a>
+与其说是慢于主流，不如说是ds现在很少搞小版本迭代。
+oa两家的小版本迭代速度很快的</blockquote>
+DS一直是三个月一更小版本
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
