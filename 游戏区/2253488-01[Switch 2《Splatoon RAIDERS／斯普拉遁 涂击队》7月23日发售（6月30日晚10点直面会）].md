@@ -3541,3 +3541,11 @@ https://file-link.pinduoduo.com/mGyuzof7z3</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  苍蓝之枪  
+##### 525#       发表于 2026-7-25 10:15
+
+打工是全是某些小定式的随机组合，不能说是强背板，倒不如说，强背板的团工模式，反而不好玩了
+
