@@ -9848,3 +9848,13 @@ https://www.reuters.com/world/china/deepseek-tells-prospective-investors-funding
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  goranger  
+##### 3871#       发表于 2026-7-26 02:11
+
+有人把不融资的事情又泄露出来了！
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
