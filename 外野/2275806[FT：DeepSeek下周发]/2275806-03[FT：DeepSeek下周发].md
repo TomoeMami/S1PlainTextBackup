@@ -9618,3 +9618,36 @@ DS一直是三个月一更小版本
 
 gpt是不是爆炸了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 我这边codex报503了
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3849#       发表于 2026-7-25 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69964124&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-25 17:18</a>
+gpt是不是爆炸了 我这边codex报503了</blockquote>
+我也遇到了，好像是爆了
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  舞以  
+##### 3850#       发表于 2026-7-25 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69964148&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-25 17:27</a>
+我也遇到了，好像是爆了
+
+—— 来自 HUAWEI SGU-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+我还以为是我梯子炸了<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+看能不能发张重置卡吧，直接重置感觉好亏
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  pf67  
+##### 3851#       发表于 2026-7-25 17:29
+
+我今天刚过期, 重置了岂不是亏了233
+
