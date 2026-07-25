@@ -12,3 +12,13 @@
 
 不过你说娱乐性的话，那毕竟想要的醋都在桌上了难绷一点也不是很有影响<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑上シグマ  
+##### 2107#       发表于 2026-7-25 14:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">听说剧场版突然冒出来个老8？
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+

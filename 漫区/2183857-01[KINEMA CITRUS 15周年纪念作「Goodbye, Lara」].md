@@ -2287,3 +2287,30 @@ Staff
 
 今天有机会补了，第一集这质量简直炸裂
 
+
+*****
+
+####  Piano-Forest  
+##### 207#         楼主| 发表于 2026-7-25 14:49
+
+[https://x.com/i/status/2080868210006724889](https://x.com/i/status/2080868210006724889)
+<img src="https://p.sda1.dev/34/b63f4ef7f5695d6325b6fb5dfd538e90/HOC6mGwbcAAWSER.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2080513390699827633](https://x.com/i/status/2080513390699827633)
+
+ララ3話原画で参加しました！
+
+原画のほかに雑誌の２D素材もかきました
+
+本編ではメガネの子が採用されましたが４案だしました
+
+すきにデザインできたので楽しかったです～
+
+ララの世界観に寄せようと頑張りました🧜‍♀️
+
+制作さんと辻さんからの反応がよくてうれしかったです！ありがとうございます！
+<img src="https://p.sda1.dev/34/11ab6b8df49cb8dfce3283ba66eeb4a9/HN91NUybEAA5YKP.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/575fe409885c0a4c39c42a39c30d94ac/HN91OWAaYAA3KJ_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/13941c5326bced47e3b0b6ba3adbdb83/HN91PAgbwAA2HW9.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/76f5d9c097fde1dc49abc8884e208eef/HN91PrnbIAA-uve.jpg" referrerpolicy="no-referrer">
+
