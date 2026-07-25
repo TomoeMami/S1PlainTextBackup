@@ -3787,3 +3787,16 @@ hou，这个指南针指的任务我三个难度都通了还是指着他，是�
 
 有3个关卡的激辣难度也给指南针
 
+
+*****
+
+####  星野航  
+##### 548#       发表于 2026-7-25 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69964526&amp;ptid=2253488" target="_blank">trow233 发表于 2026-7-25 20:27</a>
+
+过关用哪个背包比较好？力量？
+
+我目前是用速度</blockquote>
+我体感是技巧，炮台实在是方便，可以帮你顶线缓解压力
+
