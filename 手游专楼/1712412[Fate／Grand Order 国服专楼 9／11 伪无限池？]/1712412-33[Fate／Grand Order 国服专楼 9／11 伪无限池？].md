@@ -562,3 +562,14 @@ a72907cd918cc37948426ed315caa5a333874.png@1052w_!web-dynamic.webp
 
 2026-7-25 20:19 上传
 
+
+*****
+
+####  khxooo  
+##### 47928#       发表于 2026-7-26 00:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69964835&amp;ptid=1712412" target="_blank">qixinno1 发表于 2026-7-25 20:20</a>
+
+抽看板娘上当了 感觉少了两所长</blockquote>
+欧羡慕，还说你不是欧皇<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
