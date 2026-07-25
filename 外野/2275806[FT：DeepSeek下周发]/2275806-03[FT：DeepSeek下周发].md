@@ -9651,3 +9651,13 @@ gpt是不是爆炸了 我这边codex报503了</blockquote>
 
 我今天刚过期, 重置了岂不是亏了233
 
+
+*****
+
+####  80后卢瑟  
+##### 3852#       发表于 2026-7-25 17:59
+
+https://status.openai.com
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
