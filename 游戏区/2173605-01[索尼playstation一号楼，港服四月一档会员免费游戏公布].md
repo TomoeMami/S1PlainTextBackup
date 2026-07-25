@@ -49,3 +49,11 @@ PlayStation官方正式公开《战神：劳菲》发售日期，本作将于202
 
 —— 来自 Xiaomi 2604FRK1EC, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  古怪山庄士大夫  
+##### 774#       发表于 2026-7-25 10:56
+
+这可能是ps5时期两款大作隔得最近的一次了吧
+
