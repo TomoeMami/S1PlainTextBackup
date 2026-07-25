@@ -3549,3 +3549,11 @@ https://file-link.pinduoduo.com/mGyuzof7z3</blockquote>
 
 打工是全是某些小定式的随机组合，不能说是强背板，倒不如说，强背板的团工模式，反而不好玩了
 
+
+*****
+
+####  ascomnet  
+##### 526#       发表于 2026-7-25 10:38
+
+或许4代打工不需要搬蛋了，但还需要蛋的拾取数量，腾出来的精力估计要应对更恶心的怪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

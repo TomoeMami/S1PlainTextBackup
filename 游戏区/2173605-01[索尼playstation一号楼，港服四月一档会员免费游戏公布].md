@@ -39,3 +39,13 @@
 
 PlayStation官方正式公开《战神：劳菲》发售日期，本作将于2027年2月16日登陆PS5主机。
 
+
+*****
+
+####  citan8808  
+##### 773#       发表于 2026-7-25 10:42
+
+2月份比想象的早一点
+
+—— 来自 Xiaomi 2604FRK1EC, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
