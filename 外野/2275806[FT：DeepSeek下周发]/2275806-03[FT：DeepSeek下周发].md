@@ -9868,3 +9868,11 @@ https://www.reuters.com/world/china/deepseek-tells-prospective-investors-funding
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  億万千  
+##### 3873#       发表于 2026-7-26 04:29
+
+GPT三个版本N个档位怎么选，从产品的角度看不太合格哦
+
