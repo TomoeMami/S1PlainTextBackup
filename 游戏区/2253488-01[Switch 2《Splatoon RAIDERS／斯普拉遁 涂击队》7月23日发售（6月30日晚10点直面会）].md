@@ -3714,3 +3714,22 @@ pdd弹了个券，256买的算是好价不？
 
 世界观塑造该开始了，鲑鱼王朝<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  trow233  
+##### 541#       发表于 2026-7-25 19:27
+
+过关用哪个背包比较好？力量？
+
+我目前是用速度
+
+感觉每个背包要升级的经验都挺多的，所以想先培养一个后续比较好用的
+
+*****
+
+####  fleedot  
+##### 542#       发表于 2026-7-25 19:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">50级后技能点怎么获得，通关后越玩越觉得是巨刷的游戏
+
