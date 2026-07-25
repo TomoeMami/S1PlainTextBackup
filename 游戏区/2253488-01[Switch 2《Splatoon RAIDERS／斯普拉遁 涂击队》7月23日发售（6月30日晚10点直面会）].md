@@ -3531,3 +3531,13 @@ https://file-link.pinduoduo.com/mGyuzof7z3</blockquote>
 速度型杀怪我玩不好，但是用来过关真的很爽，冰川玩速度很好玩</blockquote>
 玩蜘蛛侠，塔鱼炸的飞起
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 524#       发表于 2026-7-25 09:12
+
+通关后的三个迷宫还是有点难度的，没配好build不好打
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
