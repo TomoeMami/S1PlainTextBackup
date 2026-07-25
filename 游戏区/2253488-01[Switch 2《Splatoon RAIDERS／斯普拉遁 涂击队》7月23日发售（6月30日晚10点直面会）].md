@@ -3733,3 +3733,14 @@ pdd弹了个券，256买的算是好价不？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">50级后技能点怎么获得，通关后越玩越觉得是巨刷的游戏
 
+
+*****
+
+####  ascomnet  
+##### 543#       发表于 2026-7-25 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69964529&amp;ptid=2253488" target="_blank">fleedot 发表于 2026-7-25 19:28</a>
+
+50级后技能点怎么获得，通关后越玩越觉得是巨刷的游戏</blockquote>
+指南针吧，把漏的补一补
+
