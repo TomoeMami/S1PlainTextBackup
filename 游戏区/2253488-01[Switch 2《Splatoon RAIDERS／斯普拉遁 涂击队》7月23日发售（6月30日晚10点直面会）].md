@@ -3557,3 +3557,13 @@ https://file-link.pinduoduo.com/mGyuzof7z3</blockquote>
 
 或许4代打工不需要搬蛋了，但还需要蛋的拾取数量，腾出来的精力估计要应对更恶心的怪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dedalus  
+##### 527#       发表于 2026-7-25 11:33
+
+技术实在太强了，本来以为风扇一般般，装了自动拾取发现这可能是全游戏最强技能，所有限时关自动保底，尤其对几个高频组队关（塔鱼）特攻
+
+不过帅还是速度派帅，喜欢这种花里胡哨 但是没伤害的感觉<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

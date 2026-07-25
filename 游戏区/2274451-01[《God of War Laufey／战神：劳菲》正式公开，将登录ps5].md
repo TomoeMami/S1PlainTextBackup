@@ -48,3 +48,35 @@
 
 唯一的感想是，这Fable躲了半天，啥都没躲开
 
+
+*****
+
+####  泰坦失足  
+##### 312#       发表于 2026-7-25 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69962623&amp;ptid=2274451" target="_blank">ShiKi847 发表于 2026-7-25 09:58</a>
+
+就让这个游戏成为电影化游戏的终止符吧</blockquote>
+不玩电影化游戏, 就要狠狠享受主流大厂出的非F2P+GAAS+全套成熟内购系统了.<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 313#         楼主| 发表于 2026-7-25 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69962980&amp;ptid=2274451" target="_blank">日日日日日野 发表于 2026-7-25 11:26</a>
+2/12: Tomb Raider: Legacy of Atlantis
+
+2/16: God of War: Laufey
+
+2/18: Persona 4 Revival</blockquote>
+还有个地铁2039
+
+
+*****
+
+####  fc874  
+##### 314#       发表于 2026-7-25 11:34
+
+要按剧情来做的话最终boss岂不是奥丁？
+
