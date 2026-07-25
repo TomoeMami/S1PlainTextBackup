@@ -2314,3 +2314,44 @@ Staff
 <img src="https://p.sda1.dev/34/13941c5326bced47e3b0b6ba3adbdb83/HN91PAgbwAA2HW9.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/34/76f5d9c097fde1dc49abc8884e208eef/HN91PrnbIAA-uve.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 208#         楼主| 发表于 2026-7-25 15:09
+
+🐚⁺‧┈#さよならララ 設定公開┈‧⁺ 🫧˚
+
+第3話「目、そらしたら負け」より
+
+茉里のボクシング部の先輩、長浜千緒の表情設定を公開✨
+
+3話コンテ／演出／作画監督
+
+辻さん「厳しく見えて、いい先輩」
+<img src="https://p.sda1.dev/34/8bde516c599924e8e022dbdccc329d31/HN_gQD2aUAATsW3.jpg" referrerpolicy="no-referrer">
+
+ボクシング部部員たちの設定を公開！
+
+3話コンテ／演出／作画監督
+
+辻さん「この1枚で個性がわかるように制作しました」
+<img src="https://p.sda1.dev/34/e032b434fb4165fa433cc7f25f6ef953/HN_fRYjawAA3v-6.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/e349f03fc5d031732c62a6e86215a056/HN_fRa0awAA8KDt.jpg" referrerpolicy="no-referrer">
+
+拳击场景 原画：澤田英彦
+[https://x.com/i/status/2080630070281109747](https://x.com/i/status/2080630070281109747)
+[https://x.com/i/status/2080630849251508301](https://x.com/i/status/2080630849251508301)
+[https://x.com/i/status/2080631025722667264](https://x.com/i/status/2080631025722667264)
+
+🐚⁺‧┈#さよならララ 原画ムービー公開┈‧⁺ 🫧˚
+
+第3話「目、そらしたら負け」より
+
+ボクシングシーンの原画ムービーを公開✨
+
+3話コンテ／演出／作画監督
+
+辻さん「原画担当の澤田英彦さんには、なんと40ものカットを担当いただいています」「茉里の軽やかなステップが表現されています」
+<img src="https://p.sda1.dev/34/fe3533146354d0948ccf355846b39bc0/1784951322927.gif" referrerpolicy="no-referrer">
+
