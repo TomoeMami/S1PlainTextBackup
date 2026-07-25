@@ -3946,3 +3946,17 @@ hou，这个指南针指的任务我三个难度都通了还是指着他，是�
 
 我听说喷喷本体暖暖功能不是做的很棒吗怎么到衍生作变得那么死板...
 
+
+*****
+
+####  martinoy  
+##### 562#       发表于 2026-7-26 06:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69965965&amp;ptid=2253488" target="_blank">hl氏 发表于 2026-7-26 00:20</a>
+斧头强还是砸地强，情感关系我老早换了砸地，不过感觉还是斧头？
+
+技术强在自动化，我用炮机和螺旋桨，炮击 ...</blockquote>
+斧头出减伤，范围加大，然后9个怪加伤害，输出爆炸，但是风险也高，需要冲怪堆，要是没打死几个怪被卡住位置就尴尬了
+
+— from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
