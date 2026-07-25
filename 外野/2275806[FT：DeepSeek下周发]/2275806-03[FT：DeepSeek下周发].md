@@ -9876,3 +9876,11 @@ https://www.reuters.com/world/china/deepseek-tells-prospective-investors-funding
 
 GPT三个版本N个档位怎么选，从产品的角度看不太合格哦
 
+
+*****
+
+####  wesdrtfg  
+##### 3874#       发表于 2026-7-26 07:27
+
+实话实说那个完整通话录音实在太敏感了，具体有多少卡都爆出来了，真不怪梁子暴怒吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
