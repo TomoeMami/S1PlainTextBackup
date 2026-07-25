@@ -9546,3 +9546,14 @@ V4P适配也不太行,我记得老黄那边的V4P上了好久都不能开思考
 华尔街日报发了个文，文里提到华为的卡卖给谁卖多少是上面决定的，算是侧面印证梁子说的话 ...</blockquote>
 因为也在统筹扩产的。华虹的“7nm”不是石头缝里蹦出来的，实际就是n+2。
 
+
+*****
+
+####  舞以  
+##### 3842#       发表于 2026-7-25 12:10
+
+与其说是慢于主流，不如说是ds现在很少搞小版本迭代。
+oa两家的小版本迭代速度很快的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
