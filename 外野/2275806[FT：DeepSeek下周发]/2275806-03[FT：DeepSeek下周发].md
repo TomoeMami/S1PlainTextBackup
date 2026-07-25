@@ -9717,3 +9717,30 @@ DeepSeek 仍可能选择在日后恢复交易流程，且已开始筹备首次�
 此 ...</blockquote>
 意思是不满意这几个管不住嘴的？
 
+
+*****
+
+####  谎称  
+##### 3858#       发表于 2026-7-25 23:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69965844&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-7-25 23:43</a>
+意思是不满意这几个管不住嘴的？</blockquote>
+我觉得梁圣总算有理由拒绝融资了……
+
+
+*****
+
+####  龙骑士尹志平  
+##### 3859#       发表于 2026-7-25 23:53
+
+梁嗨不喜欢别人，特别是把高达叫做变形金刚的人去动自己的展示柜
+
+*****
+
+####  schneehertz  
+##### 3860#       发表于 2026-7-25 23:54
+
+[https://www.reuters.com/world/ch ... reports-2026-07-25/](https://www.reuters.com/world/china/deepseek-tells-prospective-investors-funding-pause-bloomberg-news-reports-2026-07-25/)
+
+彭博社的报导，来源是“知情人士”
+
