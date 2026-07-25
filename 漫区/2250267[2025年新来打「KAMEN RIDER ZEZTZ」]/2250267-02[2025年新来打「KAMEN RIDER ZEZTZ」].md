@@ -22,3 +22,15 @@
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  王九的哥哥  
+##### 2108#       发表于 2026-7-25 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69963655&amp;ptid=2250267" target="_blank">黑上シグマ 发表于 2026-7-25 15:44</a>
+听说剧场版突然冒出来个老8？
+
+----发送自 STAGE1 App for Android.</blockquote>
+对，而且没有介绍直接老莫就认识，我是默认为TTFC限定内容了……
+
