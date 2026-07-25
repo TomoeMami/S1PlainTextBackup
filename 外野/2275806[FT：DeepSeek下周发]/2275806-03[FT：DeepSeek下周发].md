@@ -9764,3 +9764,21 @@ DeepSeek 更新了api名字后chatbox 怎么关思考模式呀
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  问题修士  
+##### 3863#       发表于 2026-7-26 00:16
+
+私募的朋友说，ds的融资不会让非国家队入场了，本来之前投上的非国家队也被要求退场
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  NBNB  
+##### 3864#       发表于 2026-7-26 00:22
+
+其实他那会议发言真有点爆，比如说可以通过不合规手段买英伟达的卡，虽然大伙都能猜到，但这被爆出本人说的还是挺尴尬的，尤其是这事估计上面都是默认的，这么搞同行搞点举报两边都难办，梁子会不满也很正常<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
