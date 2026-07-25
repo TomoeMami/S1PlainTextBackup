@@ -3626,3 +3626,14 @@ https://www.youtube.com/watch?v=1Dxg1P5Tvt4
 
 解锁的档案提到蛮颓镇的新潮流是改造服饰，是在为4代铺垫了吗
 
+
+*****
+
+####  ascomnet  
+##### 533#       发表于 2026-7-25 14:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69963529&amp;ptid=2253488" target="_blank">Nez 发表于 2026-7-25 14:08</a>
+
+解锁的档案提到蛮颓镇的新潮流是改造服饰，是在为4代铺垫了吗</blockquote>
+下一作偶像和地点都要换的
+
