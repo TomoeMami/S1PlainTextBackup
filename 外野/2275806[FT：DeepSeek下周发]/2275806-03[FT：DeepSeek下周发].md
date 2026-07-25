@@ -9782,3 +9782,23 @@ DeepSeek 更新了api名字后chatbox 怎么关思考模式呀
 
 其实他那会议发言真有点爆，比如说可以通过不合规手段买英伟达的卡，虽然大伙都能猜到，但这被爆出本人说的还是挺尴尬的，尤其是这事估计上面都是默认的，这么搞同行搞点举报两边都难办，梁子会不满也很正常<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 3865#       发表于 2026-7-26 00:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梁子估计真要封心锁爱了
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3866#       发表于 2026-7-26 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69965890&amp;ptid=2275806" target="_blank">schneehertz 发表于 2026-7-25 23:54</a>
+https://www.reuters.com/world/china/deepseek-tells-prospective-investors-funding-pause-bloomberg-new ...</blockquote>
+就是之前说d指导要闭源那个彭博社吗<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
