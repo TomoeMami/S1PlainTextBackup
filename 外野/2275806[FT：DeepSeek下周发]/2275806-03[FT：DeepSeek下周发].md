@@ -9858,3 +9858,13 @@ https://www.reuters.com/world/china/deepseek-tells-prospective-investors-funding
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3872#       发表于 2026-7-26 02:25
+
+自打下午gpt5.6爆完恢复以后怎么明显降智了啊
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
