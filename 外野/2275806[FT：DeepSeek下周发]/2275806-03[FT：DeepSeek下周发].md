@@ -9577,3 +9577,15 @@ oa两家的小版本迭代速度很快的<img src="https://static.stage1st.com/i
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  holmesjerry  
+##### 3845#       发表于 2026-7-25 14:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69962703&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-7-25 10:22</a>
+因为也在统筹扩产的。华虹的“7nm”不是石头缝里蹦出来的，实际就是n+2。等于近期新增的国产先进制程中的 ...</blockquote>
+华虹（也就是华力）的7nm产能相比中芯也就是个实验性质的水平
+而且也没有扩产能力
+当然做做ai卡还是可以的
+
