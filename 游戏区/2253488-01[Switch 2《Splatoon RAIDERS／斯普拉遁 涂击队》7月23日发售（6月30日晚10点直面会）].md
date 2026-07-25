@@ -3818,3 +3818,11 @@ hou，这个指南针指的任务我三个难度都通了还是指着他，是�
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ascomnet  
+##### 551#       发表于 2026-7-25 22:32
+
+炮台把射速，距离加上效果比较好
+

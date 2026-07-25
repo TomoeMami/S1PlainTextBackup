@@ -878,7 +878,7 @@
     "newtitle": "[【H】黑泥楼4]",
     "lastedit": 1784730610,
     "category": "虚拟主播区专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1914409": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 44451,
+    "totalreply": 44455,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》7.10 玄翎飞 飞过江 水泱泱 山茫茫]",
-    "lastedit": 1784989565,
+    "lastedit": 1784990289,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -6165,10 +6165,10 @@
     "update": false
   },
   "2148387": {
-    "totalreply": 2496,
+    "totalreply": 2497,
     "title": "[国产安卓掌机奥丁2的u公布了，居然是8g2]",
     "newtitle": "[（转掌机讨论楼）国产安卓掌机奥丁3的u公布了，居然不是8e？]",
-    "lastedit": 1784988487,
+    "lastedit": 1784990290,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -9495,10 +9495,10 @@
     "update": false
   },
   "2195588": {
-    "totalreply": 22866,
+    "totalreply": 22873,
     "title": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
     "newtitle": "[【A40】A-SOUL（枝江娱乐）综合讨论楼]",
-    "lastedit": 1784989565,
+    "lastedit": 1784990289,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -11223,12 +11223,12 @@
     "update": false
   },
   "2251014": {
-    "totalreply": 4050,
+    "totalreply": 4051,
     "title": "[超级机器人大战Y 25年内发售 NS／PS5／STEAM]",
     "newtitle": "[超级机器人大战Y 25年8月28日发售 NS／PS5／STEAM]",
-    "lastedit": 1784676125,
+    "lastedit": 1784990290,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2181098": {
@@ -11916,10 +11916,10 @@
     "update": false
   },
   "2260400": {
-    "totalreply": 10480,
+    "totalreply": 10484,
     "title": "[【明日方舟】国服16号楼 9.4 Ave Mujica联动SS「无忧梦呓」 (本楼含YJWL动态交流)]",
     "newtitle": "[【明日方舟】国服16号楼 7.17 集成战略「沉沦者的黑流树海」(本楼含YJWL动态交流)]",
-    "lastedit": 1784989328,
+    "lastedit": 1784989925,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12402,10 +12402,10 @@
     "update": false
   },
   "2218875": {
-    "totalreply": 1609,
+    "totalreply": 1610,
     "title": "[紫皮厨娘11／6日上线，大巴扎专楼，背包乱斗promax，异步联机自走棋]",
     "newtitle": "[新版本5月7日更新。大巴扎专楼，背包乱斗promax，异步联机自走棋]",
-    "lastedit": 1784988845,
+    "lastedit": 1784990046,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13545,10 +13545,10 @@
     "update": false
   },
   "2253488": {
-    "totalreply": 550,
+    "totalreply": 551,
     "title": "[Switch 2《Splatoon RAIDERS／斯普拉遁 涂击队》7月23日发售（6月30日晚10点直面会）]",
     "newtitle": "[Switch 2《Splatoon RAIDERS／斯普拉遁 涂击队》7月23日发售（6月30日晚10点直面会）]",
-    "lastedit": 1784989088,
+    "lastedit": 1784990289,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14433,15 +14433,6 @@
     "lastedit": 1784983926,
     "category": "外野",
     "active": true,
-    "update": false
-  },
-  "2285372": {
-    "totalreply": 42,
-    "title": "[轻度力量训练可以靠教程自学吗]",
-    "newtitle": "[轻度力量训练可以靠教程自学吗]",
-    "lastedit": 1783780566,
-    "category": "外野",
-    "active": false,
     "update": false
   },
   "2268171": {
@@ -17091,10 +17082,10 @@
     "update": false
   },
   "2283681": {
-    "totalreply": 83,
+    "totalreply": 84,
     "title": "[三国志14威力加强传承版]",
     "newtitle": "[三国志14威力加强传承版]",
-    "lastedit": 1784987889,
+    "lastedit": 1784990289,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17172,10 +17163,10 @@
     "update": false
   },
   "2286123": {
-    "totalreply": 120,
+    "totalreply": 123,
     "title": "[【街霸6】EWC 2026 电竞世俱杯专楼（24-26号LCQ）]",
     "newtitle": "[【街霸6】EWC 2026 电竞世俱杯专楼（24-26号LCQ）]",
-    "lastedit": 1784989686,
+    "lastedit": 1784990290,
     "category": "游戏区",
     "active": true,
     "update": false
