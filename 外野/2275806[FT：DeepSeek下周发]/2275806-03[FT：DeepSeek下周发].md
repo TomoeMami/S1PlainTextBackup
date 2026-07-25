@@ -9829,3 +9829,22 @@ https://www.reuters.com/world/china/deepseek-tells-prospective-investors-funding
 
 哈哈哈哈
 
+
+*****
+
+####  tk553521  
+##### 3869#       发表于 2026-7-26 01:51
+
+有人截图了！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  杀人鲸  
+##### 3870#       发表于 2026-7-26 01:54
+
+有人录音了！<img src="https://static.stage1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
