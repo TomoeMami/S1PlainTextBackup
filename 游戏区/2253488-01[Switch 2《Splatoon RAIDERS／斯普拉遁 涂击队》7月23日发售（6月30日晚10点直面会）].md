@@ -3662,3 +3662,15 @@ https://www.youtube.com/watch?v=1Dxg1P5Tvt4
 
 我还是觉得打工更好玩<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stoiorz  
+##### 537#       发表于 2026-7-25 16:04
+
+崩溃发现自己漏了一个技能点找不到了，浅尝迷宫只有23个，总共应该有24个吧。
+
+对比别人的地图，少了爱不释手的上瘾味觉边上的一个。
+
+但是看宝藏和冰山的罗盘应该都拿了。
+
