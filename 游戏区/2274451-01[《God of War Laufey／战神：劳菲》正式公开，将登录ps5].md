@@ -80,3 +80,14 @@
 
 要按剧情来做的话最终boss岂不是奥丁？
 
+
+*****
+
+####  ナルバレック  
+##### 315#       发表于 2026-7-25 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69963008&amp;ptid=2274451" target="_blank">泰坦失足 发表于 2026-7-25 11:32</a>
+
+不玩电影化游戏, 就要狠狠享受主流大厂出的非F2P+GAAS+全套成熟内购系统了. ...</blockquote>
+圈钱方面最牛逼的还是国内，传奇时代后就是围绕培养用户疯狂内购习惯去设计的，国外厂商在爆金币方面还没和国内厂商学到家
+

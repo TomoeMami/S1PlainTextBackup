@@ -1317,3 +1317,11 @@ UC地球人能逆向工程TX建造TA，还能自己研发月光蝶，新作还�
 
 森田设定里走出太阳系的那批人还能量产原型TX打星系战争，这个更碰不了瓷了
 
+
+*****
+
+####  PlayStation2  
+##### 401#       发表于 2026-7-25 12:48
+
+要不是带来的科技水平太高，还想着说不定是被gqx最后那个传送过来的那一坨装置呢<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

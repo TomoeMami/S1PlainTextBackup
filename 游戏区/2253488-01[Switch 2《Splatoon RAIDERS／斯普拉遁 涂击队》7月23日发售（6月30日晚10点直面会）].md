@@ -3575,3 +3575,26 @@ https://file-link.pinduoduo.com/mGyuzof7z3</blockquote>
 
 有刷碎片的教程么，真的好缺碎片
 
+
+*****
+
+####  shirolin  
+##### 529#       发表于 2026-7-25 12:54
+
+<blockquote>[Kiyohara_Yasuke](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69963070&amp;ptid=2253488) 发表于 07-25 11:50
+有刷碎片的教程么，真的好缺碎片</blockquote>
+
+有看到个挂机刷法，目前我等级太低了还用不上。
+
+https://www.youtube.com/watch?v=1Dxg1P5Tvt4
+
+<img src="https://img.stage1st.com/forum/202607/25/125428gveli0l3rwiofle9.png" referrerpolicy="no-referrer">
+
+<strong>QQ20260725-125305.png</strong> (1.76 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-25 12:54 上传
+
+——来自 Chrome 上的 [S1er 客户端](https://s1er.pages.dev)
+
