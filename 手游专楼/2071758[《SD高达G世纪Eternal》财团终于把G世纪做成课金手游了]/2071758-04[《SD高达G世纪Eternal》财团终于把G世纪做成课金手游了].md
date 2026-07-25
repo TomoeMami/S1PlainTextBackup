@@ -589,3 +589,11 @@ DMM只有日服吧，记得国际服也有个PC端来着？谁有链接吗</bloc
 
 怎么感觉DMM版的战斗画面还是好卡....特别是神高的EX同盟拳卡出屎来了....还没我用模拟器流畅<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4571#       发表于 2026-7-26 00:42
+
+地死EW第二次加强了吧，加点白值不痛不痒，又不敢直接拉到00R的程度
+

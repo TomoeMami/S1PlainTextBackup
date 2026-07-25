@@ -527,3 +527,11 @@ bd丰富度肯定跟那些老牌游戏没法比，但作为一个刚开始ea的�
 
 启程终点流确实过于强了，几乎必开刷，占卜女的强度简直是表以撒的级别<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Deco  
+##### 51#       发表于 2026-7-26 00:38
+
+真的有点上头，我打了一天一夜了
+
