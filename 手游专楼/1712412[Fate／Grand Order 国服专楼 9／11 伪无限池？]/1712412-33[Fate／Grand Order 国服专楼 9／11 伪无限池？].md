@@ -546,3 +546,19 @@ a72907cd918cc37948426ed315caa5a333874.png@1052w_!web-dynamic.webp
 
 1宝玩家真的太极限了
 
+
+*****
+
+####  qixinno1  
+##### 47927#       发表于 2026-7-25 20:20
+
+抽看板娘上当了 感觉少了两所长
+
+<img src="https://img.stage1st.com/forum/202607/25/201953gwdlwtenztd3r3lv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-07-25-20-15-00-135_com.bilibili.fatego.jpg</strong> (542.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-25 20:19 上传
+

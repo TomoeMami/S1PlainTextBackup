@@ -3744,3 +3744,15 @@ pdd弹了个券，256买的算是好价不？
 50级后技能点怎么获得，通关后越玩越觉得是巨刷的游戏</blockquote>
 指南针吧，把漏的补一补
 
+
+*****
+
+####  fleedot  
+##### 544#       发表于 2026-7-25 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69964710&amp;ptid=2253488" target="_blank">ascomnet 发表于 2026-7-25 20:04</a>
+指南针吧，把漏的补一补</blockquote>
+hou，这个指南针指的任务我三个难度都通了还是指着他，是要再打一遍么
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
