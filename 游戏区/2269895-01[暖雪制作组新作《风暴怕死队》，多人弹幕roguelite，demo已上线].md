@@ -519,3 +519,11 @@ bd丰富度肯定跟那些老牌游戏没法比，但作为一个刚开始ea的�
 
 —— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  伊布桑  
+##### 50#       发表于 2026-7-25 16:56
+
+启程终点流确实过于强了，几乎必开刷，占卜女的强度简直是表以撒的级别<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
