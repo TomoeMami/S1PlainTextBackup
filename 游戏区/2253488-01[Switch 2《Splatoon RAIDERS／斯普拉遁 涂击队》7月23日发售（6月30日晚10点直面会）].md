@@ -3766,3 +3766,16 @@ hou，这个指南针指的任务我三个难度都通了还是指着他，是�
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ascomnet  
+##### 546#       发表于 2026-7-25 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69964837&amp;ptid=2253488" target="_blank">fleedot 发表于 2026-7-25 20:20</a>
+
+hou，这个指南针指的任务我三个难度都通了还是指着他，是要再打一遍么
+
+论坛助手,iPhone ...</blockquote>
+指南针打过了的话就不用了
+

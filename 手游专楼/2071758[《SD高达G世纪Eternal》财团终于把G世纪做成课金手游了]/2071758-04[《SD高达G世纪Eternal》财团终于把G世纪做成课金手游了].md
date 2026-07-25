@@ -581,3 +581,11 @@ DMM只有日服吧，记得国际服也有个PC端来着？谁有链接吗</bloc
 
 双头龙ew（黄限定）
 
+
+*****
+
+####  森兰丸  
+##### 4570#       发表于 2026-7-25 20:44
+
+怎么感觉DMM版的战斗画面还是好卡....特别是神高的EX同盟拳卡出屎来了....还没我用模拟器流畅<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
