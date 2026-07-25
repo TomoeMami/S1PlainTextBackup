@@ -77,3 +77,20 @@
 
        [https://x.com/so_shi_gp/status/2080282514120429656](https://x.com/so_shi_gp/status/2080282514120429656)
 
+
+*****
+
+####  [皆神孝介]  
+##### 41961#       发表于 2026-7-25 21:28
+
+《电影 BanG Dream! Ave Mujica prima aurora册子》平装 日文原版 设定集
+[https://b23.tv/fka4SrW](https://b23.tv/fka4SrW)
+
+<img src="https://img.stage1st.com/forum/202607/25/212803c63nkntnt33dhgd4.png" referrerpolicy="no-referrer">
+
+<strong>8d6e1c08a702675d2dcc31052675af43.png</strong> (1.74 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-25 21:28 上传
+
