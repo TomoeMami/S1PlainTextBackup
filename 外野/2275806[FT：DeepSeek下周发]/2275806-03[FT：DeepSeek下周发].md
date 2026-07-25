@@ -9557,3 +9557,13 @@ oa两家的小版本迭代速度很快的<img src="https://static.stage1st.com/i
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  goranger  
+##### 3843#       发表于 2026-7-25 12:17
+
+我也很想发，发个新版～可是我没有那么多卡～
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
