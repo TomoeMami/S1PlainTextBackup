@@ -10253,3 +10253,15 @@ AGI 时间点未知；
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  舞以  
+##### 3891#       发表于 2026-7-26 15:26
+
+k3就是个参数翻倍带多模态的v4pro预览版<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+速度还奇慢，价格死贵
+我感觉是这样的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
