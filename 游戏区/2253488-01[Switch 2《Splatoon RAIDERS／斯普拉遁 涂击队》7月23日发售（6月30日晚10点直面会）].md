@@ -4295,3 +4295,15 @@ L摇杆质检器 真怕摇飘了
 
 现在版本答案就是冰冻流了吧，看了几个400多以上的都是砸地冰冻
 
+
+*****
+
+####  martinoy  
+##### 594#       发表于 2026-7-27 02:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967938&amp;ptid=2253488" target="_blank">Dedalus 发表于 2026-7-26 19:12</a>
+这个91 层到底要怎么打，难度比88突然难了一倍，试了b站三四个派别滚行砸地流都时间不够，已经卡一天了</blockquote>
+你需要一把高dps绝品武器然后带大招加速，前期找好位置把蛇塔之类的干扰dps的快速处理掉顺便聚怪，然后就是最后鬼蝠收尾。
+
+— from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
