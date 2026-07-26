@@ -516,3 +516,13 @@ xbox這時因為愈來愈小眾，同樣的問題反而愈來愈被無視...
 
 你索在星鸣特工这些狗屎上浪费的钱，够养几个scej了吧？反正scej解散的那一刻，ps对于我来说就已经死了
 
+
+*****
+
+####  skgaminger1988  
+##### 49#       发表于 2026-7-26 22:54
+
+索尼真多亏软软是个弱智，砸那么多钱水花都没几个，不然力大砖飞这世代都给索索砸死了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2458A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
