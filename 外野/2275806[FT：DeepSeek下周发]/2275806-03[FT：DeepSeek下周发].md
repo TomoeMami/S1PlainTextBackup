@@ -10212,3 +10212,34 @@ AGI 时间点未知；
 
 你们也太魔怔了，啥都想强行安上因果关系，梁鸽就是表达了一种克制，融资是不想融资的<img src="https://static.stage1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 3887#       发表于 2026-7-26 14:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">果然是直接重置了，我才用掉25%啊，感觉好亏喵
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舞以  
+##### 3888#       发表于 2026-7-26 14:40
+
+梁鸽我感觉就就坡下驴吧，国内这帮搞投资的确实➗，梁鸽自己也不是啥白莲花<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+既然本来就不太想融也不太缺钱，就不如不融了，只给国家队必须的尊重就行。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  crow_wine  
+##### 3889#       发表于 2026-7-26 14:45
+
+试了下opencode go的k3 max。速度比也挺慢的，用量很夸张，输入一个4000行的算法设计，重新编排一个3500行的出来，用时39分钟……然后5小时额度直接没了72%，每月没了14%，夸张哦<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+确实比v4好不少，但是依旧需要细修，但是这个用量后速度也没法真正干活修
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
