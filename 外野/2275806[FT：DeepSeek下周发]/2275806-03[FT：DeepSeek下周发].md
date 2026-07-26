@@ -10573,3 +10573,23 @@ qwen3.8 max preview现在一折的状态下感觉还不错，模型能力比v4pr
 
 这是v4后训练论文发了？[https://arxiv.org/abs/2607.20145](https://arxiv.org/abs/2607.20145)
 
+
+*****
+
+####  lactone  
+##### 3920#       发表于 2026-7-26 20:48
+
+qwen3.8max现在挺强的，比glm5.2体感还要强一些，而且便宜
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  noneoneone  
+##### 3921#       发表于 2026-7-26 20:56
+
+没搞懂qwen怎么用，qoder的套餐和token plan是什么关系
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
