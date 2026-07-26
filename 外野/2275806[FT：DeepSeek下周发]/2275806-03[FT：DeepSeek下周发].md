@@ -10601,3 +10601,13 @@ qwen3.8max现在挺强的，比glm5.2体感还要强一些，而且便宜
 
 明天大的一定会来的<img src="https://static.stage1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  crow_wine  
+##### 3923#       发表于 2026-7-26 23:51
+
+不行仔细看才发现K3生成的这个是什么吊东西，做算法的逻辑完全不行。根本就没有理解对输入给他的设计稿，浪费一天时间
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
