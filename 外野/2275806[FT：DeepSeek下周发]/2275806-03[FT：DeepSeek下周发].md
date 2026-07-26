@@ -10366,3 +10366,40 @@ k3就是个参数翻倍带多模态的v4pro预览版
 
 —— 来自 HUAWEI WGRR-W19, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  舞以  
+##### 3901#       发表于 2026-7-26 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967503&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-26 17:26</a>
+是不如5.6sol，而且价也贵
+但我觉得比Opus4.8强一截，glm5.2更是没办法与之相提并论了。像我这种20刀的订 ...</blockquote>
+订阅给的k3大概多贵🤔，我当时用api跑过，一次请求跑了15块吧（重构一个插件的前端）
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  mitzvah  
+##### 3902#       发表于 2026-7-26 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967405&amp;ptid=2275806" target="_blank">M乔梦 发表于 2026-7-26 16:59</a>
+
+用k3浅浅跑了下项目，感觉k3也是let me &amp; wait的左右脑互博啊</blockquote>
+都是r1 的祖传cot里炼的，这次v4pro正式版是重构了
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3903#       发表于 2026-7-26 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967543&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-26 17:38</a>
+订阅给的k3大概多贵🤔，我当时用api跑过，一次请求跑了15块吧（重构一个插件的前端）
+
+论坛助手,iPhone ...</blockquote>
+199块钱一个月的体感比gpt plus少一些
+
+—— 来自 HUAWEI WGRR-W19, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
