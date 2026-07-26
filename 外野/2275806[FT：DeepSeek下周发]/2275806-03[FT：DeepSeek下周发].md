@@ -10166,3 +10166,25 @@ AGI 时间点未知；
 
 是正式版跳票了 这个会议录音才爆出来了吧
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3882#       发表于 2026-7-26 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69966615&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-7-26 13:07</a>
+预览版好蛆啊，正式版什么时候出。老是喜欢什么一句话总结这种字眼
+
+—— 来自 HUAWEI ALN-AL00, Android 1 ...</blockquote>
+现在D指导已经没办法用了，各种偷懒，skill没读完就开始跑
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Lorraine_Kinney  
+##### 3883#       发表于 2026-7-26 13:35
+
+难绷，A/出问题，max20免费了
+
