@@ -4121,3 +4121,22 @@ hou，这个指南针指的任务我三个难度都通了还是指着他，是�
 
 那么，在海水的密度和乌贼体内液体密度不同，且皮肤又是半透膜的情况下，遇水就会因为渗透压而维持不了形体，化成一滩墨水（
 
+
+*****
+
+####  trow233  
+##### 578#       发表于 2026-7-26 18:08
+
+感谢楼上坛友的解答，原来还有如此设定<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  freedom12  
+##### 579#       发表于 2026-7-26 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967056&amp;ptid=2253488" target="_blank">Lisylfn 发表于 2026-7-26 15:12</a>
+
+没必要。50级五星绝品再说吧吧</blockquote>
+绝品和非绝品 是倾向性不同，还是完全的加强版
+

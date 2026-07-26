@@ -10403,3 +10403,32 @@ k3就是个参数翻倍带多模态的v4pro预览版
 
 —— 来自 HUAWEI WGRR-W19, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  拯救节操希灵宅  
+##### 3904#       发表于 2026-7-26 18:08
+
+qwen3.8 max preview现在一折的状态下感觉还不错，模型能力比v4pro强点，tps也还不错。
+
+
+*****
+
+####  goranger  
+##### 3905#       发表于 2026-7-26 18:13
+
+k3群里一堆一个对话跑一个任务没跑完触发限额的，不过现在k3出了个256k限制的上下文的，据说省一些。反正我是用不起
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舞以  
+##### 3906#       发表于 2026-7-26 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967657&amp;ptid=2275806" target="_blank">goranger 发表于 2026-7-26 18:13</a>
+k3群里一堆一个对话跑一个任务没跑完触发限额的，不过现在k3出了个256k限制的上下文的，据说省一些。反正我 ...</blockquote>
+codex 272k窗口，一次请求可能压缩两三次上下文<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">，我看着都难绷，gpt对长上下文定价死贵。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
