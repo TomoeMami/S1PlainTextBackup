@@ -4021,3 +4021,14 @@ hou，这个指南针指的任务我三个难度都通了还是指着他，是�
 
 彩色武器不是50级，是不是也没必要主力培养
 
+
+*****
+
+####  Lisylfn  
+##### 569#       发表于 2026-7-26 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967029&amp;ptid=2253488" target="_blank">freedom12 发表于 2026-7-26 15:04</a>
+
+彩色武器不是50级，是不是也没必要主力培养</blockquote>
+没必要。50级五星绝品再说吧吧
+
