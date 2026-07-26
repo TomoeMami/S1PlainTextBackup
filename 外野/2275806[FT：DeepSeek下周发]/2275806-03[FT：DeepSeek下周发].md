@@ -10196,3 +10196,11 @@ AGI 时间点未知；
 
 梁子就是借会议表态，顺势通过这次泄露暂停融资<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绝地潜兵  
+##### 3885#       发表于 2026-7-26 13:53
+
+搞金融量化的哪有这么单纯，这波是借坡下驴
+
