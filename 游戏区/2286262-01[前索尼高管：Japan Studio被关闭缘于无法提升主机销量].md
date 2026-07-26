@@ -564,3 +564,14 @@ ps4引流游戏是血源啊，只有这一个还不肯做续作不肯做重置�
 
 剩下的就跟重组后的BNS混一起了
 
+
+*****
+
+####  riin2  
+##### 54#         楼主| 发表于 2026-7-27 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967939&amp;ptid=2286262" target="_blank">clyde-wang 发表于 2026-7-26 19:12</a>
+
+其实我一直很迷惑，日本怎么也是除美国以外独立国家的最大主机游戏消费市场，要整个欧洲加起来才能超过日 ...</blockquote>
+我觉得主要是日本市场太孤岛了，虽然市场也算可观，但是不能扩展平移到其他地区。而欧美市场是相通的。
+
