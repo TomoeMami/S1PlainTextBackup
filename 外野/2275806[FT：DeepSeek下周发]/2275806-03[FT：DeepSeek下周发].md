@@ -10297,3 +10297,31 @@ kimi这个199感觉价格就正好在接受范围内 对我的专业足够了
 
 —— 来自 vivo V2454DA, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  M乔梦  
+##### 3895#       发表于 2026-7-26 16:59
+
+用k3浅浅跑了下项目，感觉k3也是let me &amp; wait的左右脑互博啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 3896#       发表于 2026-7-26 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967405&amp;ptid=2275806" target="_blank">M乔梦 发表于 2026-7-26 16:59</a>
+用k3浅浅跑了下项目，感觉k3也是let me &amp; wait的左右脑互博啊</blockquote>
+我第一次还碰到过思考20min不开工的<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  wwhaha  
+##### 3897#       发表于 2026-7-26 17:03
+
+除了几个大爆点（灰色地带用N卡、国家队计划经济分配华为卡等）确实设计敏感内容，关于人才稳定性指着大厂鼻子骂的本来也不是秘密
+
+如果说泄露的人是想给梁鸽上眼药，莫不如说这篇如此详细的访谈进一步把他的形象推上了神坛，同时他也可以借坡下驴暂缓融资
+
