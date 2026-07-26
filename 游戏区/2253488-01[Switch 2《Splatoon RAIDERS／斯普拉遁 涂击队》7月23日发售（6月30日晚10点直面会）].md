@@ -4106,3 +4106,18 @@ hou，这个指南针指的任务我三个难度都通了还是指着他，是�
 一群海鲜，碰海水就死？？ ...</blockquote>
 好像是进化成人形后如果碰到水就会因为脱水而变回原形（乌贼/章鱼），并不是死<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  满满一大杯  
+##### 577#       发表于 2026-7-26 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967328&amp;ptid=2253488" target="_blank">trow233 发表于 2026-7-26 16:30</a>
+
+话说，喷射战士这游戏，我没玩过123，不能碰水有什么说法么
+
+一群海鲜，碰海水就死？？ ...</blockquote>
+设定上，根据章鱼们的研究：乌贼是软体动物，体内是某种粘液或凝胶，没有骨骼，皮肤是某种半透膜，人形和乌贼形都是拟态，通过体内液体膨胀收缩控制。
+
+那么，在海水的密度和乌贼体内液体密度不同，且皮肤又是半透膜的情况下，遇水就会因为渗透压而维持不了形体，化成一滩墨水（
+
