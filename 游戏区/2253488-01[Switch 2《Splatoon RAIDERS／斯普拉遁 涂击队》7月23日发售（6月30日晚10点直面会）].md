@@ -4242,3 +4242,18 @@ hou，这个指南针指的任务我三个难度都通了还是指着他，是�
 
 主线到第二个岛，不论发救援还是去救援，都是只能匹配到两个路人
 
+
+*****
+
+####  freedom12  
+##### 589#       发表于 2026-7-26 23:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69968938&amp;ptid=2253488" target="_blank">月华刹那 发表于 2026-7-26 23:10</a>
+
+是不是前面的关卡联机只能三个人，后面的关才能四人？
+
+主线到第二个岛，不论发救援还是去救援，都是只能匹 ...</blockquote>
+救援最多3人
+
+组队最多4人
+
