@@ -10352,3 +10352,17 @@ k3就是个参数翻倍带多模态的v4pro预览版
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3900#       发表于 2026-7-26 17:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967454&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-26 17:14</a>
+我用下来感觉没那么强😂，哪怕是说很强的前端，在我的场景里也不如sol，可能是场景问题吧。
+结合价格和速 ...</blockquote>
+是不如5.6sol，而且价也贵
+但我觉得比Opus4.8强一截，glm5.2更是没办法与之相提并论了。像我这种20刀的订阅有点不太够用，100刀肯定用不完，那k3这199块钱的订阅就还挺划算的
+
+—— 来自 HUAWEI WGRR-W19, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
