@@ -4068,3 +4068,41 @@ hou，这个指南针指的任务我三个难度都通了还是指着他，是�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">爬了200多层全宝物齐了，感觉100层后强度变化不高，依然用的力量背包，带个速度背包秘宝，无敌三连砸地触发背包效果，斧头+跳鞋循环，3个都上冻结，除了大怪基本只靠技能就清完了，大怪就带碎冰特效的武器补刀，除非很密集的攻击蹲砸地的无敌结束瞬间，不然都不会暴毙，还能跳鞋逃跑或者靠速度背包效果直接钻出去
 
+
+*****
+
+####  hl氏  
+##### 574#       发表于 2026-7-26 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967073&amp;ptid=2253488" target="_blank">月华刹那 发表于 2026-7-26 15:16</a>
+
+怎么去救援别人发出的求救？
+
+只看到选关的时候有发求救信号的按钮。。。 ...</blockquote>
+随着剧情解锁
+
+*****
+
+####  hl氏  
+##### 575#       发表于 2026-7-26 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967328&amp;ptid=2253488" target="_blank">trow233 发表于 2026-7-26 16:30</a>
+
+话说，喷射战士这游戏，我没玩过123，不能碰水有什么说法么
+
+一群海鲜，碰海水就死？？ ...</blockquote>
+就当进化后怕水，现实来讲人类也变得无法在水里呼吸
+
+
+*****
+
+####  月华刹那  
+##### 576#       发表于 2026-7-26 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967328&amp;ptid=2253488" target="_blank">trow233 发表于 2026-7-26 16:30</a>
+
+话说，喷射战士这游戏，我没玩过123，不能碰水有什么说法么
+
+一群海鲜，碰海水就死？？ ...</blockquote>
+好像是进化成人形后如果碰到水就会因为脱水而变回原形（乌贼/章鱼），并不是死<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
