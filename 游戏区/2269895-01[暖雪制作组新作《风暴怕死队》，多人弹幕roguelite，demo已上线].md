@@ -535,3 +535,13 @@ bd丰富度肯定跟那些老牌游戏没法比，但作为一个刚开始ea的�
 
 真的有点上头，我打了一天一夜了
 
+
+*****
+
+####  机动三轮  
+##### 52#       发表于 2026-7-27 01:33
+
+小怪是不是有受伤上限啊，明明 boss 都在秒了小怪能抗好几下<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
