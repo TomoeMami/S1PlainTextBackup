@@ -10483,3 +10483,47 @@ qwen3.8 max preview现在一折的状态下感觉还不错，模型能力比v4pr
 
 之前坛里的qwen帖子不是说3.8 max拉了吗？到底咋样。
 
+
+*****
+
+####  舞以  
+##### 3912#       发表于 2026-7-26 19:04
+
+ 本帖最后由 舞以 于 2026-7-26 19:05 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967905&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-7-26 19:03</a>
+之前坛里的qwen帖子不是说3.8 max拉了吗？到底咋样。</blockquote>
+一天一个样说是<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 现在应该变强了不少？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  龙骑士尹志平  
+##### 3913#       发表于 2026-7-26 19:14
+
+牢梁了？
+
+
+*****
+
+####  舞以  
+##### 3914#       发表于 2026-7-26 19:16
+
+梁子要真被投资人气到了，也不用惩罚我们吧<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">（玩笑话）
+不过也可能是，假如梁子真的要求除了国资其他的投资方退出，那发模型只会增加他收回股份的开支<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，阴谋论一下可能确实显完成股权的整理再发模型比较好？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ycjiang1337  
+##### 3915#       发表于 2026-7-26 19:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967957&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-26 19:16</a>
+梁子要真被投资人气到了，也不用惩罚我们吧（玩笑话）
+不过也可能是，假如梁子真的要求除了国资其他的投资 ...</blockquote>
+发模型跟股份有什么关系
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
