@@ -10565,3 +10565,11 @@ qwen3.8 max preview现在一折的状态下感觉还不错，模型能力比v4pr
 
 —— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  BarricadeMKXX  
+##### 3919#       发表于 2026-7-26 20:30
+
+这是v4后训练论文发了？[https://arxiv.org/abs/2607.20145](https://arxiv.org/abs/2607.20145)
+
