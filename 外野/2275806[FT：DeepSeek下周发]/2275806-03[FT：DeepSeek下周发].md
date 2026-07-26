@@ -10325,3 +10325,30 @@ kimi这个199感觉价格就正好在接受范围内 对我的专业足够了
 
 如果说泄露的人是想给梁鸽上眼药，莫不如说这篇如此详细的访谈进一步把他的形象推上了神坛，同时他也可以借坡下驴暂缓融资
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3898#       发表于 2026-7-26 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967111&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-26 15:26</a>
+k3就是个参数翻倍带多模态的v4pro预览版
+速度还奇慢，价格死贵
+我感觉是这样的</blockquote>
+我觉得k3对需求的理解能力、指令遵循能力是我用过的里面最接近gpt5.6＋Codex组合的，我用的还是opencode驾驭它，拿D指导与它相比有点过了
+
+—— 来自 HUAWEI WGRR-W19, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  舞以  
+##### 3899#       发表于 2026-7-26 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967438&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-26 17:09</a>
+我觉得k3对需求的理解能力、指令遵循能力是我用过的里面最接近gpt5.6＋Codex组合的，我用的还是opencode ...</blockquote>
+我用下来感觉没那么强😂，哪怕是说很强的前端，在我的场景里也不如sol，可能是场景问题吧。
+结合价格和速度，真不太行。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
