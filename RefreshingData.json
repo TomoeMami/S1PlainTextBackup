@@ -7404,7 +7404,7 @@
     "lastedit": 1785025800,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2170764": {
     "totalreply": 20790,
@@ -12282,7 +12282,7 @@
     "lastedit": 1785026160,
     "category": "手游专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "2266103": {
     "totalreply": 837,
@@ -12552,7 +12552,7 @@
     "lastedit": 1785027000,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2271402": {
     "totalreply": 8770,
@@ -12839,7 +12839,7 @@
     "newtitle": "[Re：Source 论坛客户端]",
     "lastedit": 1784768767,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2191394": {
@@ -13137,7 +13137,7 @@
     "lastedit": 1785025440,
     "category": "漫区",
     "active": true,
-    "update": true
+    "update": false
   },
   "1992785": {
     "totalreply": 447,
@@ -16610,7 +16610,7 @@
     "newtitle": "[索尼亏本卖主机的故事已经耳熟能详了，那为什么不先砍掉主机，做成纯数字平台？]",
     "lastedit": 1784768527,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2285055": {
