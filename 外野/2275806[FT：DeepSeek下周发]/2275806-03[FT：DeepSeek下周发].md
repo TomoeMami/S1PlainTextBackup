@@ -10527,3 +10527,41 @@ qwen3.8 max preview现在一折的状态下感觉还不错，模型能力比v4pr
 
 —— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  nxmonitor  
+##### 3916#       发表于 2026-7-26 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967905&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-7-26 19:03</a>
+
+之前坛里的qwen帖子不是说3.8 max拉了吗？到底咋样。</blockquote>
+还是拉，就比第一天好转了……
+
+*****
+
+####  舞以  
+##### 3917#       发表于 2026-7-26 19:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967965&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-7-26 19:17</a>
+发模型跟股份有什么关系
+
+—— 来自 HUAWEI SGT-AL50, Android 12, 鹅球 v3.4.97-alpha</blockquote>
+股份交易已经完成了啊，梁子真要收回股份肯定也是要按市场价的（除非额外约定了退出机制），DeepSeek的新模型如果够劲够霸，肯定估值得上调。
+反正就是个八奇玩笑话，别太较真<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  ycjiang1337  
+##### 3918#       发表于 2026-7-26 19:22
+
+ 本帖最后由 ycjiang1337 于 2026-7-26 19:23 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967978&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-26 19:19</a>
+股份交易已经完成了啊，梁子真要收回股份肯定也是要按市场价的（除非额外约定了退出机制），DeepSeek的新 ...</blockquote>
+没有这种说法，没上市的公司根本不存在所谓的市场价，怎么可能按你空口吹一个估值定
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
