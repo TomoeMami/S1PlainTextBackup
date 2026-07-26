@@ -4203,3 +4203,16 @@ hou，这个指南针指的任务我三个难度都通了还是指着他，是�
 
 打工和涂击队的玩法有很大不同
 
+
+*****
+
+####  ascomnet  
+##### 586#       发表于 2026-7-26 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69966216&amp;ptid=2253488" target="_blank">ghostpia 发表于 2026-7-26 03:13</a>
+
+发型就初始那么几种？服装是整套的不能随意单件组合吗？
+
+我听说喷喷本体暖暖功能不是做的很棒吗怎么到衍生 ...</blockquote>
+这个确实少，虽说本体的暖暖大部分也是打季票给的
+
