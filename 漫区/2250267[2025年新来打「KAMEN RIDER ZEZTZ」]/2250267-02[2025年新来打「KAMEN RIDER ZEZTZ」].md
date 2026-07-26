@@ -77,3 +77,11 @@
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  丹德里恩  
+##### 2114#       发表于 2026-7-26 19:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">虽然超梦像个反派似的从天而降，但忘却挨揍半天似乎没吃到多少伤害啊，比起被击退更像是不想打跑路了
+
