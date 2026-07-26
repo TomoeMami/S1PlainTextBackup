@@ -10275,3 +10275,11 @@ k3就是个参数翻倍带多模态的v4pro预览版<img src="https://static.sta
 
 kimi这个199感觉价格就正好在接受范围内 对我的专业足够了
 
+
+*****
+
+####  舞以  
+##### 3893#       发表于 2026-7-26 16:02
+
+我现在还真能每天蹬掉20x的15%往上限额，手上还有一个挺大的需求没开工，感觉订阅钱就当请了个程序员干私活了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
