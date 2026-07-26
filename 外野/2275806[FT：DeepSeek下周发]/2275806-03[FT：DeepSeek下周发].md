@@ -10432,3 +10432,24 @@ codex 272k窗口，一次请求可能压缩两三次上下文<img src="https://s
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  goranger  
+##### 3907#       发表于 2026-7-26 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967667&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-26 18:17</a>
+codex 258k窗口，一次请求可能压缩两三次上下文，我看着都难绷，gpt对长上下文定价死贵。
+
+论坛助手,iPho ...</blockquote>
+昨天专门问了问ai，实际上所谓的标称1m上下文的大部分现在的模型，你输入如果大于300k，注意力就开始飘了，所以大部分agent和工具都会设定一个压缩比率，过滤掉大部分没用的工具输出压缩对话密度。真做的好的可能就一两家，但如果你设定上下文不超过256k，同样的模型不熟的时候就能省好多资源，好像叫serving架构。唯一的不同是，原来宣称256k上下文的模型，注意力可能200k不到就飘了，现在跑个1m的模型，实际能顶到300-400k。至于大家都说1m，我觉得可能跟intel学的，什么等效4nm
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3908#       发表于 2026-7-26 18:53
+
+其实只要agent本身做的够好，上下文压缩影响并不那么大，反正我觉得codex肉眼可见的优化了上下文压缩，这个月中旬开始我觉得远比上个月强，压缩上下文几乎是无损体验
+
