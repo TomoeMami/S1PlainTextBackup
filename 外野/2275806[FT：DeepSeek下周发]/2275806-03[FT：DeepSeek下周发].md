@@ -10204,3 +10204,11 @@ AGI 时间点未知；
 
 搞金融量化的哪有这么单纯，这波是借坡下驴
 
+
+*****
+
+####  hugosol  
+##### 3886#       发表于 2026-7-26 13:59
+
+你们也太魔怔了，啥都想强行安上因果关系，梁鸽就是表达了一种克制，融资是不想融资的<img src="https://static.stage1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
+
