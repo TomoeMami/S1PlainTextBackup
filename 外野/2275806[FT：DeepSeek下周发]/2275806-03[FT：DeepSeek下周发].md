@@ -10453,3 +10453,33 @@ codex 258k窗口，一次请求可能压缩两三次上下文，我看着都难�
 
 其实只要agent本身做的够好，上下文压缩影响并不那么大，反正我觉得codex肉眼可见的优化了上下文压缩，这个月中旬开始我觉得远比上个月强，压缩上下文几乎是无损体验
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3909#       发表于 2026-7-26 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967667&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-26 18:17</a>
+
+codex 258k窗口，一次请求可能压缩两三次上下文，我看着都难绷，gpt对长上下文定价死贵。
+
+论坛助手,iPho ...</blockquote>
+上下文太吃内存带宽了，在agent和客户端层面做好记忆管理效果不会差而且成本会低得多
+
+
+*****
+
+####  厍无春  
+##### 3910#       发表于 2026-7-26 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69967641&amp;ptid=2275806" target="_blank">拯救节操希灵宅 发表于 2026-7-26 18:08</a>
+qwen3.8 max preview现在一折的状态下感觉还不错，模型能力比v4pro强点，tps也还不错。 ...</blockquote>
+确实，基本就是持平 deepseek 的价格，能力还强一点，还支持多模态
+
+*****
+
+####  noneoneone  
+##### 3911#       发表于 2026-7-26 19:03
+
+之前坛里的qwen帖子不是说3.8 max拉了吗？到底咋样。
+
