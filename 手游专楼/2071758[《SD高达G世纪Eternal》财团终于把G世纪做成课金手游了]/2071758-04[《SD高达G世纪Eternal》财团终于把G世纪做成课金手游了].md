@@ -632,3 +632,14 @@ DMM只有日服吧，记得国际服也有个PC端来着？谁有链接吗</bloc
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  captoon  
+##### 4575#       发表于 2026-7-27 05:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69968303&amp;ptid=2071758" target="_blank">AminGly 发表于 2026-7-26 20:29</a>
+
+以防有人不知道伤害 注这是全开的00r</blockquote>
+这下某机体成小丑了
+
