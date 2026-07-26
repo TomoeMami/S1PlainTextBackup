@@ -10265,3 +10265,13 @@ k3就是个参数翻倍带多模态的v4pro预览版<img src="https://static.sta
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Rowen233  
+##### 3892#       发表于 2026-7-26 15:42
+
+说到底还是gpt的套餐20刀和100刀之间跨度太大了
+
+kimi这个199感觉价格就正好在接受范围内 对我的专业足够了
+
