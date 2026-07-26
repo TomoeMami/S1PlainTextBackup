@@ -2355,3 +2355,34 @@ Staff
 辻さん「原画担当の澤田英彦さんには、なんと40ものカットを担当いただいています」「茉里の軽やかなステップが表現されています」
 <img src="https://p.sda1.dev/34/fe3533146354d0948ccf355846b39bc0/1784951322927.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堆雪若叶  
+##### 209#       发表于 2026-7-27 00:01
+
+[https://x.com/Goodbye_Lara/status/2081409212018507974](https://x.com/Goodbye_Lara/status/2081409212018507974)
+
+🐚⁺‧┈　#さよならララ エンドカード　┈‧⁺ 🫧˚
+
+　　　　　　第4話「姫と王子」
+
+キャラクターデザイン #谷紫織 さんによるエンドカードをお届けします✨
+
+本日もご視聴いただいた皆さま、ありがとうございました。
+
+学校でひめかと出会い、恋路を見届けたララ。
+
+ララの地上での日々はまた動き出して……
+<img src="https://p.sda1.dev/34/c793be27dc65a65c6dfc065ad4bccae3/FiNgsALagAA_J5.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  傘木希美  
+##### 210#       发表于 2026-7-27 00:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">菈菈挑海鲜，那确实挑的都是好的了
+
+—— 来自 vivo V2454A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
