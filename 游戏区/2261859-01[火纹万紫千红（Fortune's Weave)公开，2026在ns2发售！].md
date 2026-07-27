@@ -4301,3 +4301,29 @@ mp3和西提斯都有连击枪，这两个不错
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  nagitoY  
+##### 1469#       发表于 2026-7-27 20:35
+
+这次角色人设真的太差了吧。又是尼哥又是印度人的，黑皮角色里除了舞女没一个能看的
+
+*****
+
+####  黛冬優子  
+##### 1470#       发表于 2026-7-27 20:35
+
+那能不能有什么训鬣狗的兵<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  otakun  
+##### 1471#       发表于 2026-7-27 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69972409&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-7-27 19:56</a>
+这骑士骑的还是斑马 这种细节怎么说呢 我怀疑is是确实是真的想做以非洲为原型做一部火纹了
+
+论坛助手,iPhon ...</blockquote>
+我印象第一个pv里还有鸵鸟骑士？<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
