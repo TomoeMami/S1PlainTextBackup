@@ -583,3 +583,13 @@ ps4引流游戏是血源啊，只有这一个还不肯做续作不肯做重置�
 
 Japan Studio光是外包了血源就给索尼拉了多少销量，但凡有点脑子就算要关Japan Studio也知道要收购FromSoftware吧，索尼这些高管是真没眼光
 
+
+*****
+
+####  麻豆腐拌豆汁  
+##### 56#       发表于 2026-7-27 08:23
+
+<blockquote>Unbiquitous 发表于 2026-7-27 02:43
+Japan Studio光是外包了血源就给索尼拉了多少销量，但凡有点脑子就算要关Japan Studio也知道要收购FromSoft ...</blockquote>
+收fs的条件是收整个角川集团，但是角川集团的出版业是烫手山芋。
+
