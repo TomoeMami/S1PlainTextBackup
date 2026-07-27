@@ -2479,3 +2479,13 @@ himeka也太工具人了<img src="https://static.stage1st.com/image/smiley/face2
 
 好流畅的日常推进，希望家族主线能圆得正常一点
 
+
+*****
+
+####  zing223  
+##### 219#       发表于 2026-7-27 14:13
+
+其实这集himeka和上集mari的矛盾都消解得很顺畅平淡，没什么戏剧性表现，甚至刻意在矛盾顶端掐掉剧伴，个人觉得还是有意为之的演出处理吧
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

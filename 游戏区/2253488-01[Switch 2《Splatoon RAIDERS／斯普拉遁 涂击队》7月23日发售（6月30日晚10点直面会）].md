@@ -4444,3 +4444,32 @@ L摇杆质检器 真怕摇飘了
 
 推上喷批好评居多
 
+
+*****
+
+####  mai6696  
+##### 602#       发表于 2026-7-27 14:13
+
+<img src="https://img.stage1st.com/forum/202607/27/141311hkos8rcs5io5kcsr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-27 14:13 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  freedom12  
+##### 603#       发表于 2026-7-27 14:13
+
+ 本帖最后由 freedom12 于 2026-7-27 14:14 编辑 
+
+感觉称号的加成有点幽默，即便最终的翻倍加成也是杯水车薪
+
+况且它并不影响后期主要的刷钱途径——开宝箱里的1w碎片
+
+如果改成影响爆率的话还差不多
+
