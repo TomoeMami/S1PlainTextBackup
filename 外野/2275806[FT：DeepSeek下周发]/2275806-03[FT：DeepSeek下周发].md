@@ -10908,3 +10908,13 @@ opencode建议拿来跑glm
 
 说是目的是可能的减少时间消耗和提高交付质量
 
+
+*****
+
+####  goranger  
+##### 3951#       发表于 2026-7-27 21:41
+
+你用hermes，把辅助模型全改成便宜的，主模型用贵的会体会到差别的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

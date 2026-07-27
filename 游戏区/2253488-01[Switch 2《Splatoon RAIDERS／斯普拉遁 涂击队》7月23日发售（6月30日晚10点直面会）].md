@@ -4638,3 +4638,13 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 冒险档案还差一个，但是所有地图里能拿的都拿了，有人知道最后一个在哪么 ...</blockquote>
 无限食堂100层
 
+
+*****
+
+####  fleedot  
+##### 621#       发表于 2026-7-27 21:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">草，发现同样五星武器还有绝品前缀的，绝品五星和普通五星有区别么
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
