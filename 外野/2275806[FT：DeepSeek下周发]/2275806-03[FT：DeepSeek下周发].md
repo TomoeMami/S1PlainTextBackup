@@ -11098,3 +11098,11 @@ linux do
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  scikirbypoke  
+##### 3968#       发表于 2026-7-28 00:30
+
+pi的rpiv全家桶真好用吧
+
