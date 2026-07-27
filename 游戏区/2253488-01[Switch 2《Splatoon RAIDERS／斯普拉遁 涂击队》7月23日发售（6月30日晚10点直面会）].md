@@ -4660,3 +4660,18 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 论坛助手,iPhone ...</blockquote>
 区别很大，绝品性能没法靠附魔改，只有 50 级绝品才值得升级
 
+
+*****
+
+####  stera  
+##### 623#       发表于 2026-7-27 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69972752&amp;ptid=2253488" target="_blank">fleedot 发表于 2026-7-27 21:40</a>
+
+草，发现同样五星武器还有绝品前缀的，绝品五星和普通五星有区别么
+
+论坛助手,iPhone ...</blockquote>
+不仅区别很大，而且同一种武器还有不同的绝品<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">例如鱿快捷有极度着重墨水效率的和极度着重射程和涂墨的款式。
+
+现在已经是看到不是绝品就直接分解了
+

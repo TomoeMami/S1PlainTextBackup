@@ -10971,3 +10971,27 @@ opencode建议拿来跑glm
 
 这么高的定位，总不能最后端出来个换皮reasonix罢<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 3957#       发表于 2026-7-27 22:59
+
+现在才开始内测，八月中旬能端上来就算快的了
+
+*****
+
+####  Rowen233  
+##### 3958#       发表于 2026-7-27 23:01
+
+预告的预告来了 Coming Soon
+
+我看杨哥也想要饮料瓶了
+
+*****
+
+####  王兰花秀丽  
+##### 3959#       发表于 2026-7-27 23:03
+
+内测....什么形式发资格呢，好怪，安装包一出就全网公测吧    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
