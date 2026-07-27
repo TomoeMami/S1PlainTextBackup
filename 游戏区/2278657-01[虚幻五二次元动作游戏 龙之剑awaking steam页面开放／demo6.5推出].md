@@ -746,3 +746,18 @@ B站上看到好多吹的，商单还是啥
 
 这东西那么多视频不是商单拉满的话，只能说大伙可太想玩原神了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  根正苗红  
+##### 81#       发表于 2026-7-27 22:33
+
+二游只有韩配，怎么做朋友<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67.  
+##### 82#       发表于 2026-7-27 22:37
+
+98其实也没多贵，但是只有韩配就算了
+

@@ -10941,3 +10941,33 @@ opencode建议拿来跑glm
 论坛助手,iPhone ...</blockquote>
 现在hermes这块的自动路由做得怎么样了？
 
+
+*****
+
+####  goranger  
+##### 3954#       发表于 2026-7-27 22:24
+
+在L站看到说猫老板群发了公告，本周晚些时候开启harness内测了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  goranger  
+##### 3955#       发表于 2026-7-27 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69972855&amp;ptid=2275806" target="_blank">wonderful259 发表于 2026-7-27 22:14</a>
+现在hermes这块的自动路由做得怎么样了？</blockquote>
+没看懂你问的啥，我从openclaw搬到hermes的感觉良好
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舞以  
+##### 3956#       发表于 2026-7-27 22:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">梁子都把agent当作llm走向agi的一个阶梯了
+
+这么高的定位，总不能最后端出来个换皮reasonix罢<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
