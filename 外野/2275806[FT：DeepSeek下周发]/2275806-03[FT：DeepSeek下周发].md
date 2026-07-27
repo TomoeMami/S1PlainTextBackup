@@ -10928,3 +10928,16 @@ opencode建议拿来跑glm
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  wonderful259  
+##### 3953#       发表于 2026-7-27 22:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69972756&amp;ptid=2275806" target="_blank">goranger 发表于 2026-7-27 21:41</a>
+
+你用hermes，把辅助模型全改成便宜的，主模型用贵的会体会到差别的
+
+论坛助手,iPhone ...</blockquote>
+现在hermes这块的自动路由做得怎么样了？
+
