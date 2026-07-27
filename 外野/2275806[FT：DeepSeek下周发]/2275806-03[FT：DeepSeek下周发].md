@@ -10995,3 +10995,39 @@ opencode建议拿来跑glm
 
 内测....什么形式发资格呢，好怪，安装包一出就全网公测吧    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  goranger  
+##### 3960#       发表于 2026-7-27 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69973032&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-7-27 23:03</a>
+内测....什么形式发资格呢，好怪，安装包一出就全网公测吧    Re:Source</blockquote>
+说实在他那个群里填申请
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  ycjiang1337  
+##### 3961#       发表于 2026-7-27 23:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69973027&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-7-27 23:01</a>
+
+预告的预告来了 Coming Soon
+
+我看杨哥也想要饮料瓶了</blockquote>
+已经刷出来了
+
+
+*****
+
+####  舞以  
+##### 3962#       发表于 2026-7-27 23:20
+
+harness还需要内测么，感觉挺奇怪的，扔个beta出来社区也能接受吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+除非真的第一方harness有很多巧思乃至工程创新？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
