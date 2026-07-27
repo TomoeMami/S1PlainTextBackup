@@ -10829,3 +10829,20 @@ scale the fuck up to the moon
 期待一下</blockquote>
 串爆是吧，上月球是吧
 
+
+*****
+
+####  crow_wine  
+##### 3943#       发表于 2026-7-27 16:40
+
+试了下opencode go里grok4.5也是各种一句话，是不是opencode的系统提示词里有相关字眼
+
+*****
+
+####  舞以  
+##### 3944#       发表于 2026-7-27 16:43
+
+opencode建议拿来跑glm<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
