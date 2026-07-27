@@ -4500,3 +4500,14 @@ L摇杆质检器 真怕摇飘了
 
 想入坑喷三了...现在喷三会不会很高压，很多凶残日本小学生...
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 607#       发表于 2026-7-27 14:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69970620&amp;ptid=2253488" target="_blank">ghostpia 发表于 2026-7-27 14:27</a>
+
+想入坑喷三了...现在喷三会不会很高压，很多凶残日本小学生...</blockquote>
+凶残不一定，智障是有的，现在环境太差了，很经常会遇到打的不顺心就开始捣乱的队友
+
