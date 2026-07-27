@@ -10731,3 +10731,27 @@ scale the fuck up to the moon
 
 国模会开始堆规模的潮流吗？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ymm1030  
+##### 3934#       发表于 2026-7-27 13:56
+
+国内堆不堆规模不就是受限于算力，算力真上来了，能堆出来的规模能把老美的眼球炸掉。
+
+*****
+
+####  overflowal  
+##### 3935#       发表于 2026-7-27 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69970477&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-7-27 13:53</a>
+国模会开始堆规模的潮流吗？</blockquote>
+只要硬件能支撑研究，就能堆上去    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  zypyong  
+##### 3936#       发表于 2026-7-27 13:57
+
+官方的KIMI3买不到，现在开源权重了以后有哪个比较好的第三方服务提供商吗。
+
