@@ -85,3 +85,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">虽然超梦像个反派似的从天而降，但忘却挨揍半天似乎没吃到多少伤害啊，比起被击退更像是不想打跑路了
 
+
+*****
+
+####  FACS  
+##### 2115#       发表于 2026-7-27 08:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69968049&amp;ptid=2250267" target="_blank">丹德里恩 发表于 2026-7-26 19:33</a>
+虽然超梦像个反派似的从天而降，但忘却挨揍半天似乎没吃到多少伤害啊，比起被击退更像是不想打跑路了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就是吧，都吃了两个王座了强度高点也正常
+
