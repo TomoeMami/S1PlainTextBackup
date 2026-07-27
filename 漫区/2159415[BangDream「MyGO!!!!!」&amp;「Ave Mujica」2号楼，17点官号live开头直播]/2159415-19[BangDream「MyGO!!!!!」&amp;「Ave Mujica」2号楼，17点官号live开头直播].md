@@ -34,3 +34,12 @@ hyw啊
 
 <img src="https://img.stage1st.com/forum/202607/27/092351g6fw39r944zg9zgg.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 27634#         楼主| 发表于 2026-7-27 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69970146&amp;ptid=2159415" target="_blank">CURE_HGCG 发表于 2026-7-27 09:27</a></blockquote>
+还好没让木谷知道邓的GS头像是mujica
+
