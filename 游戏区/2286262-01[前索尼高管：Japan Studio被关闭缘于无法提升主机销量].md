@@ -613,3 +613,14 @@ Japan Studio光是外包了血源就给索尼拉了多少销量，但凡有点�
 
 Japan Studio 不能引流但是DEI純虧要怎麽算
 
+
+*****
+
+####  chizuru  
+##### 59#       发表于 2026-7-27 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69969671&amp;ptid=2286262" target="_blank">Unbiquitous 发表于 2026-7-27 02:43</a>
+
+Japan Studio光是外包了血源就给索尼拉了多少销量，但凡有点脑子就算要关Japan Studio也知道要收购FromSoft ...</blockquote>
+索尼不是入股角川成最大股东了吗
+

@@ -26,3 +26,11 @@ hyw啊
 
        [https://x.com/meeeei_Gt/status/2081152475843990014](https://x.com/meeeei_Gt/status/2081152475843990014)
 
+
+*****
+
+####  CURE_HGCG  
+##### 27633#       发表于 2026-7-27 09:27
+
+<img src="https://img.stage1st.com/forum/202607/27/092351g6fw39r944zg9zgg.png" referrerpolicy="no-referrer">
+

@@ -10669,3 +10669,18 @@ d老师自己预测大概率下周<img src="https://static.stage1st.com/image/sm
 
 今天基本没戏，重点盯7月31日（周五，25%）和8月第一周（40%） 。建议关注官方渠道，别押注。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3929#       发表于 2026-7-27 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69970023&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-7-27 08:59</a>
+
+KIMI K3我用了一周，主要工作是写材料
+
+确实比之前的强很多
+
+他的理解能力较之前有巨大提升</blockquote>
+请问用的kimiwork还是接其他agent？
+
