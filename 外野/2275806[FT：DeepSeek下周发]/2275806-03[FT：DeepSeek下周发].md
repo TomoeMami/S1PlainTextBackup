@@ -10878,3 +10878,15 @@ opencode建议拿来跑glm
 论坛助手,iPhone</blockquote>
 让GLM调用子代理检索代码，子代理用ds……一下子耐用了
 
+
+*****
+
+####  蛋黄酱Release  
+##### 3948#       发表于 2026-7-27 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69971755&amp;ptid=2275806" target="_blank">zy450 发表于 2026-7-27 17:30</a>
+让GLM调用子代理检索代码，子代理用ds……一下子耐用了</blockquote>
+主智能体用glm5.2子智能体用v4f，和全用glm5.2差距能有多大？v4p呢？
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
