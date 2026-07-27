@@ -11075,3 +11075,26 @@ opencode 的 v1 至今修不好内存占用
 论坛助手,iPhone ...</blockquote>
 L站是指哪个…
 
+
+*****
+
+####  goranger  
+##### 3966#       发表于 2026-7-28 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69973092&amp;ptid=2275806" target="_blank">Sza 发表于 2026-7-27 23:26</a>
+请问是L站的哪个帖子？</blockquote>
+就是一张截图，应该是那个群的群公告，具体帖子已忘了，没啥有效信息，泥潭小画家群里也有人转。具体时间就是说了本周晚些时候，所以我觉得应该快了，没啥其他信息了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  goranger  
+##### 3967#       发表于 2026-7-28 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69973110&amp;ptid=2275806" target="_blank">7uly 发表于 2026-7-27 23:36</a>
+L站是指哪个…</blockquote>
+linux do
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
