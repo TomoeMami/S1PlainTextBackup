@@ -4724,3 +4724,15 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 技能爬到300层左右就疲软了，得靠技能buff攻击力拿武器破冰了，爬到350层左右+50泡泡已经秒不掉大怪了，换弓和狙玩速度滞空流倒还能秒，就是冻结得打准了....感觉再往上爬多半也是这些武器来打了
 
+
+*****
+
+####  martinoy  
+##### 628#       发表于 2026-7-28 02:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69973399&amp;ptid=2253488" target="_blank">mario21a 发表于 2026-7-28 02:25</a>
+某个配件的存量提升词条无法造，必须带着这个配件去寻宝才能随机刷到该词条吗？ ...</blockquote>
+不一定要带配件，但是要带对应的背包。
+
+— from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
