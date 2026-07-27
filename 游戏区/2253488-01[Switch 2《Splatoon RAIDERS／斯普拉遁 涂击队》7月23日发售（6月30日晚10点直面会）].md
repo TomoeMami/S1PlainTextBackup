@@ -4556,3 +4556,11 @@ L摇杆质检器 真怕摇飘了
 感觉endgame还是稍微有点少，做了这么多场景最后只能打食堂太单调了，还有这么多配件词缀之类的东西，做个r ...</blockquote>
 rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的
 
+
+*****
+
+####  stera  
+##### 613#       发表于 2026-7-27 16:18
+
+昨天把满地蠕动的双枪换成飞天破冰4k了，除了单刷捡蛋体验差了点以外     打个救援信号简直太完美了，超强的生存+200w大数字我以前过的是什么苦日子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
