@@ -4627,3 +4627,14 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 而且机械师这种疑似天选之子又奇奇怪怪沾点家族传承的也很诡异。以往的主角是真随机路人杀出来的，这回这明显有点命中注定。
 
+
+*****
+
+####  raii  
+##### 620#       发表于 2026-7-27 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69972029&amp;ptid=2253488" target="_blank">Kiyohara_Yasuke 发表于 2026-7-27 18:31</a>
+
+冒险档案还差一个，但是所有地图里能拿的都拿了，有人知道最后一个在哪么 ...</blockquote>
+无限食堂100层
+
