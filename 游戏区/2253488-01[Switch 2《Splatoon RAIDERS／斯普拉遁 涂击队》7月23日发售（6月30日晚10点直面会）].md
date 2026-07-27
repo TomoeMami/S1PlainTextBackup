@@ -4574,3 +4574,36 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的
 rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquote>
 那个问题不是做了随机关，而是没做传统关
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 615#       发表于 2026-7-27 17:11
+
+<img src="https://img.stage1st.com/forum/202607/27/171121y3aphy9dxhrrphzf.jpg" referrerpolicy="no-referrer">
+
+<strong>HOOHBbdboAAKkGn.jpg</strong> (311.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-27 17:11 上传
+
+日本人还是太能肝了
+
+*****
+
+####  不再乱发炎了  
+##### 616#       发表于 2026-7-27 17:14
+
+我突然好奇999或者1000层有没有啥惊喜
+
+*****
+
+####  我也很绝望啊  
+##### 617#       发表于 2026-7-27 17:14
+
+实在没时间肝，分享下自用的刷素材和碎片的宏，有飞智的坛友应该可以直接用
+
+涂击队自动刷杏棱巢穴宏
+[https://docs.qq.com/doc/DVkhFUE9uTVJSbmhp](https://docs.qq.com/doc/DVkhFUE9uTVJSbmhp)
+
