@@ -747,3 +747,11 @@ okama是当年那个做月面兔兵器米娜的okama？这位对我来说也基�
 <img src="https://p.sda1.dev/34/27c7787d2d163f536dabc16338239b1f/HOOoWKyaUAAmzUV.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/34/38272785a6c263bfaa1c7779effaa38a/1000171088.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KUMA  
+##### 64#       发表于 2026-7-28 04:36
+
+人设还不错 PV配歌也剪辑的不错，看样子预算还可以，Netflix有钱烧，突然期待起来了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
