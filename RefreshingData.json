@@ -396,10 +396,10 @@
     "update": false
   },
   "2086637": {
-    "totalreply": 11660,
+    "totalreply": 11662,
     "title": "[【ぷにち】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
     "newtitle": "[【七代目】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
-    "lastedit": 1785153366,
+    "lastedit": 1785154326,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -3042,10 +3042,10 @@
     "update": false
   },
   "1860168": {
-    "totalreply": 9162,
+    "totalreply": 9163,
     "title": "[无职转生动画楼 剧透慎入]",
     "newtitle": "[无职转生动画楼 剧透慎入]",
-    "lastedit": 1785153846,
+    "lastedit": 1785154207,
     "category": "漫区",
     "active": true,
     "update": false
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 44546,
+    "totalreply": 44547,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》7.10 玄翎飞 飞过江 水泱泱 山茫茫]",
-    "lastedit": 1785153847,
+    "lastedit": 1785154447,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 44056,
+    "totalreply": 44059,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1785154085,
+    "lastedit": 1785154686,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13131,10 +13131,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 15134,
+    "totalreply": 15141,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0-庆祝河豚获奖，置顶3天]",
-    "lastedit": 1785153846,
+    "lastedit": 1785154447,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16799,7 +16799,7 @@
     "newtitle": "[高达系列45周年 ／ 高达GWX30周年纪念企划始动]",
     "lastedit": 1784895366,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2286157": {
@@ -16857,10 +16857,10 @@
     "update": false
   },
   "2286123": {
-    "totalreply": 283,
+    "totalreply": 286,
     "title": "[【街霸6】EWC 2026 电竞世俱杯专楼（24-26号LCQ）]",
     "newtitle": "[【街霸6】EWC 2026 电竞世俱杯专楼（对阵表已出）]",
-    "lastedit": 1785153606,
+    "lastedit": 1785154566,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17046,10 +17046,10 @@
     "update": false
   },
   "2286120": {
-    "totalreply": 159,
+    "totalreply": 161,
     "title": "[6月不含在校生青年失业率环比降至14.9% 仍比去年同期高]",
     "newtitle": "[6月不含在校生青年失业率环比降至14.9% 仍比去年同期高]",
-    "lastedit": 1785150248,
+    "lastedit": 1785154567,
     "category": "外野",
     "active": true,
     "update": false
@@ -17244,28 +17244,28 @@
     "update": false
   },
   "2286342": {
-    "totalreply": 153,
+    "totalreply": 154,
     "title": "[【讣报】东野圭吾 去世 享年68岁]",
     "newtitle": "[【讣报】东野圭吾 去世 享年68岁]",
-    "lastedit": 1785153727,
+    "lastedit": 1785154327,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2286325": {
-    "totalreply": 70,
+    "totalreply": 71,
     "title": "[幽默老任出的星际火狐在PDD给干到124了]",
     "newtitle": "[幽默老任出的星际火狐在PDD给干到124了]",
-    "lastedit": 1785152647,
+    "lastedit": 1785154207,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2286337": {
-    "totalreply": 51,
+    "totalreply": 52,
     "title": "[集思广益：S1现在天天被爬虫弄卡，究竟有没有什么应对办法？]",
     "newtitle": "[集思广益：S1现在天天被爬虫弄卡，究竟有没有什么应对办法？]",
-    "lastedit": 1785151807,
+    "lastedit": 1785154566,
     "category": "外野",
     "active": true,
     "update": false
@@ -17321,6 +17321,15 @@
     "newtitle": "[买了pro 2手柄的潭友能说说比pro 1好在哪吗]",
     "lastedit": 1785152888,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2283421": {
+    "totalreply": 62,
+    "title": "[预制意大利面酱是好文明]",
+    "newtitle": "[预制意大利面酱是好文明]",
+    "lastedit": 1785154566,
+    "category": "外野",
     "active": true,
     "update": false
   }
