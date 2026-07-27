@@ -4277,3 +4277,27 @@ engage 的转身(
 
 感觉这周就会有新pv了。
 
+
+*****
+
+####  涂鸦恶魔  
+##### 1467#       发表于 2026-7-27 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69971717&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-7-27 17:26</a>
+
+时间有限的话，直奔金鹿线
+
+然后挖角不用考虑那么多，三房非级长角色里，女角色远强于男角色，把妹子全挖 ...</blockquote>
+mp3和西提斯都有连击枪，这两个不错
+
+个人觉得mp3比希尔凡还好用，高难度下mp3的个人技满血加命中比起临近女性加2点伤害好用太多
+
+*****
+
+####  kalavinka  
+##### 1468#       发表于 2026-7-27 19:56
+
+这骑士骑的还是斑马 这种细节怎么说呢 我怀疑is是确实是真的想做以非洲为原型做一部火纹了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
