@@ -10898,3 +10898,13 @@ opencode建议拿来跑glm
 
 楼上<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">终于无师自通工程学了：小模型 专家功能实现（便宜），然后用大模型做校验（全功能对齐），本来就是DS flash版本推理加速链工程实现的一条路径。
 
+
+*****
+
+####  舞以  
+##### 3950#       发表于 2026-7-27 21:28
+
+所以现在codex新搞的ultra模式多agent运作竟然会提高消耗也是搞笑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说是目的是可能的减少时间消耗和提高交付质量
+
