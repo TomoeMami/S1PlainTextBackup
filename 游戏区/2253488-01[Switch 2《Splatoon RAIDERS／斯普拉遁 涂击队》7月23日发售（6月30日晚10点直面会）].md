@@ -4538,3 +4538,21 @@ L摇杆质检器 真怕摇飘了
 想入坑喷三了...现在喷三会不会很高压，很多凶残日本小学生...</blockquote>
 喷3本体也有英雄模式这种教程关卡和打工pve，不会只在pvp坐牢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">入坑还是先用习惯陀螺仪再去打pvp，反正肉眼可见的喷4这两年出不来
 
+
+*****
+
+####  DZDZaima  
+##### 611#       发表于 2026-7-27 16:07
+
+感觉endgame还是稍微有点少，做了这么多场景最后只能打食堂太单调了，还有这么多配件词缀之类的东西，做个roguelike模式多好。
+
+
+*****
+
+####  liliguo1  
+##### 612#       发表于 2026-7-27 16:15
+
+<blockquote>DZDZaima 发表于 2026-7-27 16:07
+感觉endgame还是稍微有点少，做了这么多场景最后只能打食堂太单调了，还有这么多配件词缀之类的东西，做个r ...</blockquote>
+rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的
+

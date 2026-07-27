@@ -10776,3 +10776,41 @@ scale the fuck up to the moon
 官方的KIMI3买不到，现在开源权重了以后有哪个比较好的第三方服务提供商吗。 ...</blockquote>
 其实前几天opencode go订阅里面就已经有K3来着，不过额度算是比较低了（大概GLM5.2的1/8）
 
+
+*****
+
+####  crow_wine  
+##### 3939#       发表于 2026-7-27 16:07
+
+opencode go里哪些比较好用，他里面的K3问一句排队等了半小时都没好，大概只有GLM5.2和Grok 4.5？
+
+
+*****
+
+####  蛋黄酱Release  
+##### 3940#       发表于 2026-7-27 16:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69971208&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-7-27 16:07</a>
+opencode go里哪些比较好用，他里面的K3问一句排队等了半小时都没好，大概只有GLM5.2和Grok 4.5？
+
+ ...</blockquote>
+不考虑多模态的话就用glm5.2和v4f
+glm5.2是满额度，性价比还行
+v4f约等于无限
+k3的额度消耗太快
+别的模型性价比都不行
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3941#       发表于 2026-7-27 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69971208&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-7-27 16:07</a>
+
+opencode go里哪些比较好用，他里面的K3问一句排队等了半小时都没好，大概只有GLM5.2和Grok 4.5？
+
+ ...</blockquote>
+我主要拿它蹬GLM5.2
+
