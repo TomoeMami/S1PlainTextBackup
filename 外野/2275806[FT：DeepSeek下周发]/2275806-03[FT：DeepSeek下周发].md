@@ -10865,3 +10865,16 @@ opencode go 量太少了，不够拿来做正事，又没有更高档。 ollama�
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zy450  
+##### 3947#       发表于 2026-7-27 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69971452&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-27 16:43</a>
+
+opencode建议拿来跑glm
+
+论坛助手,iPhone</blockquote>
+让GLM调用子代理检索代码，子代理用ds……一下子耐用了
+
