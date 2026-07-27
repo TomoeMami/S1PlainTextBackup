@@ -46,3 +46,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仁井学又不是第一次画千/泷sunfes
 
+
+*****
+
+####  osore  
+##### 2508#       发表于 2026-7-27 13:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拿来做他c108本子的封面了
+
