@@ -4253,3 +4253,27 @@ engage 的转身(
 
 终于看见飞马了。
 
+
+*****
+
+####  巴尔干炮  
+##### 1466#       发表于 2026-7-27 19:20
+
+<img src="https://img.stage1st.com/forum/202607/27/191926vobix51v1s3ho023.jpg" referrerpolicy="no-referrer">
+
+<strong>144d674f7d865fd679f809fa746c3fc1ca92c9157fd21e9ee18c03b2103dbe7b.0.JPG</strong> (192.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-27 19:19 上传
+
+<img src="https://img.stage1st.com/forum/202607/27/191926tt4z0na4a5fgnns0.png" referrerpolicy="no-referrer">
+
+<strong>e934b9eaf8fe4b52b607145cb3ed20cdb2505723fcd7b1ae67d2c9a97ad13d1a.0.PNG</strong> (1.85 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-27 19:19 上传
+
+感觉这周就会有新pv了。
+
