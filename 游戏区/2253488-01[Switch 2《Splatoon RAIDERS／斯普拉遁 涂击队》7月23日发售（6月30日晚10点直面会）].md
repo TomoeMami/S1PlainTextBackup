@@ -4325,3 +4325,18 @@ L摇杆质检器 真怕摇飘了
 
 真的是比TIGER TIGER还垃圾游戏嗼。
 
+
+*****
+
+####  lilod  
+##### 597#       发表于 2026-7-27 10:45
+
+打到火车boss了，设计的真酷啊
+
+*****
+
+####  春风画雨  
+##### 598#       发表于 2026-7-27 10:45
+
+买的实体估计得明天才能到<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+
