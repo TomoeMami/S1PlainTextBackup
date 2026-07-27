@@ -10684,3 +10684,14 @@ KIMI K3我用了一周，主要工作是写材料
 他的理解能力较之前有巨大提升</blockquote>
 请问用的kimiwork还是接其他agent？
 
+
+*****
+
+####  高粱河车神  
+##### 3930#       发表于 2026-7-27 09:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69970181&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-27 09:34</a>
+
+请问用的kimiwork还是接其他agent？</blockquote>
+我用网页版
+
