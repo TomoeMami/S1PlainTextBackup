@@ -11031,3 +11031,16 @@ harness还需要内测么，感觉挺奇怪的，扔个beta出来社区也能接
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Sza  
+##### 3963#       发表于 2026-7-27 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69972891&amp;ptid=2275806" target="_blank">goranger 发表于 2026-7-27 22:24</a>
+
+在L站看到说猫老板群发了公告，本周晚些时候开启harness内测了
+
+论坛助手,iPhone ...</blockquote>
+请问是L站的哪个帖子？
+
