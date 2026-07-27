@@ -10814,3 +10814,18 @@ opencode go里哪些比较好用，他里面的K3问一句排队等了半小时�
  ...</blockquote>
 我主要拿它蹬GLM5.2
 
+
+*****
+
+####  兰德里  
+##### 3942#       发表于 2026-7-27 16:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69970438&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-7-27 11:04</a>
+
+KIMI K4打算继续猛堆规模了
+
+scale the fuck up to the moon
+
+期待一下</blockquote>
+串爆是吧，上月球是吧
+

@@ -4139,3 +4139,27 @@ engage 的转身(
 另外两个角色也有点路人，选这个路线的都是女王 ...</blockquote>
 柯南女王意味不明，官方自己应该也能意识到这个女王的线吸引力不足吧
 
+
+*****
+
+####  蓮華  
+##### 1456#       发表于 2026-7-27 16:32
+
+<img src="https://img.stage1st.com/forum/202607/27/163212jc0zsq7cui1u90d1.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3992.jpeg</strong> (282.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-7-27 16:32 上传
+
+*****
+
+####  星花  
+##### 1457#       发表于 2026-7-27 16:35
+
+<blockquote>零崎不识 发表于 2026-7-27 16:04
+柯南女王意味不明，官方自己应该也能意识到这个女王的线吸引力不足吧</blockquote>
+我坚持幻想女王线会被下药。
+
