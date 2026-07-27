@@ -643,3 +643,14 @@ DMM只有日服吧，记得国际服也有个PC端来着？谁有链接吗</bloc
 以防有人不知道伤害 注这是全开的00r</blockquote>
 这下某机体成小丑了
 
+
+*****
+
+####  AminGly  
+##### 4576#       发表于 2026-7-27 14:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69969740&amp;ptid=2071758" target="_blank">captoon 发表于 2026-7-27 05:58</a>
+
+这下某机体成小丑了</blockquote>
+顺带一提，因为暴击不稳定，所以没算死神暴击伤害，所以娱乐玩死神确实没啥问题了
+

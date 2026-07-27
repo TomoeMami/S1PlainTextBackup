@@ -10765,3 +10765,14 @@ scale the fuck up to the moon
 官方的KIMI3买不到，现在开源权重了以后有哪个比较好的第三方服务提供商吗。 ...</blockquote>
 好像说今天开源权重，第三方应该就能上
 
+
+*****
+
+####  BarricadeMKXX  
+##### 3938#       发表于 2026-7-27 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69970491&amp;ptid=2275806" target="_blank">zypyong 发表于 2026-7-27 13:57</a>
+
+官方的KIMI3买不到，现在开源权重了以后有哪个比较好的第三方服务提供商吗。 ...</blockquote>
+其实前几天opencode go订阅里面就已经有K3来着，不过额度算是比较低了（大概GLM5.2的1/8）
+
