@@ -4648,3 +4648,15 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Dedalus  
+##### 622#       发表于 2026-7-27 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69972752&amp;ptid=2253488" target="_blank">fleedot 发表于 2026-7-27 21:40</a>
+草，发现同样五星武器还有绝品前缀的，绝品五星和普通五星有区别么
+
+论坛助手,iPhone ...</blockquote>
+区别很大，绝品性能没法靠附魔改，只有 50 级绝品才值得升级
+

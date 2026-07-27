@@ -2515,3 +2515,39 @@ himeka也太工具人了<img src="https://static.stage1st.com/image/smiley/face2
 <img src="https://p.sda1.dev/34/4d70fe96cbd371a87ac3eddb17e269a7/HN_I63PboAAywv6.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/34/65ae84e88eb22795f9f58570022535bc/HN_I63daQAA2Ixy.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 223#         楼主| 发表于 2026-7-27 22:19
+
+🐚⁺‧┈　#さよならララ エンドカード　┈‧⁺ 🫧˚
+
+　　　　　　第4話「姫と王子」
+
+キャラクターデザイン #谷紫織 さんによるエンドカードをお届けします✨
+
+本日もご視聴いただいた皆さま、ありがとうございました。
+
+学校でひめかと出会い、恋路を見届けたララ。
+
+ララの地上での日々はまた動き出して……
+
+次回もどうぞお楽しみに！
+
+さよララ～👋
+<img src="https://p.sda1.dev/34/38d5f268c229edeaac417d0cd6fba240/HOKl9JaagAA0qnA.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2081413237745365225](https://x.com/i/status/2081413237745365225)
+
+さよならララ4話ご視聴ありがとうございました！
+
+今回、貴重な機会をいただき、1人原画をさせていただきました！
+
+ただ、自分の力不足で半分ほど2原撒きになってしまい、完全な1人原画とは言えないことだけが心残りですが、いい経験ができたと思います！
+
+そして今回、作監を担当して頂いた角田さん、2原を拾ってくれた方々、貴重な機会をくれた小出監督、制作の面々に感謝です。ありがとうございました！
+
+第5話からもどんどん面白くなっていくので、最後まで、さよならララをよろしくお願いします！
+<img src="https://p.sda1.dev/34/a5b94b4fef593af0a2a706e069d85c96/HOJ11p2aUAAk_fm.jpg" referrerpolicy="no-referrer">
+
