@@ -11044,3 +11044,34 @@ harness还需要内测么，感觉挺奇怪的，扔个beta出来社区也能接
 论坛助手,iPhone ...</blockquote>
 请问是L站的哪个帖子？
 
+
+*****
+
+####  御坂MKII  
+##### 3964#       发表于 2026-7-27 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69973080&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-27 23:20</a>
+
+harness还需要内测么，感觉挺奇怪的，扔个beta出来社区也能接受吧
+
+除非真的第一方harness有很多巧思乃至工 ...</blockquote>
+除了简洁和 diy 为主的 pi 之外
+
+Claude code 的 app 写的一坨💩
+
+codex 日志最近连着报出来俩吃内存的大问题，multi agent 更是一坨
+
+opencode 的 v1 至今修不好内存占用
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 真创新吗，软件工程越急着塞一堆东西就一定会是屎山的定律现在也照样是存在的
+
+*****
+
+####  7uly  
+##### 3965#       发表于 2026-7-27 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69972891&amp;ptid=2275806" target="_blank">goranger 发表于 2026-7-27 22:24</a>
+在L站看到说猫老板群发了公告，本周晚些时候开启harness内测了
+
+论坛助手,iPhone ...</blockquote>
+L站是指哪个…
+
