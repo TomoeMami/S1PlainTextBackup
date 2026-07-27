@@ -10703,3 +10703,23 @@ KIMI K3我用了一周，主要工作是写材料
 
 感觉kimi k3用起来有一点fable的聪明劲，GPT 5.6和Opus 5也很靠谱但是就少了一点这样的感觉。K3后训是不足的，训两个月说不定还确实能fable级
 
+
+*****
+
+####  高粱河车神  
+##### 3932#       发表于 2026-7-27 11:04
+
+KIMI K4打算继续猛堆规模了
+
+scale the fuck up to the moon
+
+期待一下
+
+<img src="https://img.stage1st.com/forum/202607/27/110419a2tz04pdjpmmia0i.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260727105851_68_81.jpg</strong> (248.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-27 11:04 上传
+
