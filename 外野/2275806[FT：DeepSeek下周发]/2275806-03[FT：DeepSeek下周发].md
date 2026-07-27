@@ -10846,3 +10846,22 @@ opencode建议拿来跑glm<img src="https://static.stage1st.com/image/smiley/fac
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  startraveller  
+##### 3945#       发表于 2026-7-27 16:55
+
+opencode go 量太少了，不够拿来做正事，又没有更高档。 ollama会实用一些，但是现在也关掉100刀了
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3946#       发表于 2026-7-27 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69971432&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-7-27 16:40</a>
+试了下opencode go里grok4.5也是各种一句话，是不是opencode的系统提示词里有相关字眼 ...</blockquote>
+不是，grok蒸kimi2.5蒸太多了，kimi2.5师承d指导，都是d指导口癖
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
