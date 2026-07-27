@@ -2552,7 +2552,7 @@
     "newtitle": "[【石黑正数】天国大魔境 专楼]",
     "lastedit": 1784913846,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1099480": {
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 17902,
+    "totalreply": 17903,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼7月]",
-    "lastedit": 1785172586,
+    "lastedit": 1785173166,
     "category": "外野",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 44094,
+    "totalreply": 44095,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1785171127,
+    "lastedit": 1785172806,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12627,12 +12627,12 @@
     "update": false
   },
   "2175566": {
-    "totalreply": 547,
+    "totalreply": 548,
     "title": "[战双TCG现已发售——尝试建一个TCG专楼]",
-    "newtitle": "[王者荣耀TCG已发售——尝试建一个TCG专楼]",
-    "lastedit": 1784771407,
+    "newtitle": "[各路TCG大量发生中——尝试建一个TCG专楼]",
+    "lastedit": 1785172806,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2118685": {
@@ -13131,10 +13131,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 15225,
+    "totalreply": 15226,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0-庆祝河豚获奖，置顶3天]",
-    "lastedit": 1785171966,
+    "lastedit": 1785173285,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14476,15 +14476,6 @@
     "title": "[《The Ending of Agharta -世界樹の巫女と6つの祠- 》汉化 10.27修改，感谢SCD大佬]",
     "newtitle": "[《The Ending of Agharta -世界樹の巫女と6つの祠- 》汉化 10.27修改，感谢SCD大佬]",
     "lastedit": 1784073366,
-    "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2111068": {
-    "totalreply": 252,
-    "title": "[《潜水员戴夫》这游戏有点神奇的]",
-    "newtitle": "[《潜水员戴夫》这游戏有点神奇的]",
-    "lastedit": 1783963090,
     "category": "游戏区",
     "active": false,
     "update": false
@@ -16749,10 +16740,10 @@
     "update": false
   },
   "2271830": {
-    "totalreply": 366,
+    "totalreply": 367,
     "title": "[司美格鲁肽／玛仕度肽 —— 肥宅的身体炉鼎炼金记]",
     "newtitle": "[司美格鲁肽／玛仕度肽 —— 肥宅的身体炉鼎炼金记]",
-    "lastedit": 1785172380,
+    "lastedit": 1785172806,
     "category": "外野",
     "active": true,
     "update": false
@@ -17172,10 +17163,10 @@
     "update": false
   },
   "2286301": {
-    "totalreply": 64,
+    "totalreply": 65,
     "title": "[一直误以为F杯没多大的我原来是被日杯蒙骗了]",
     "newtitle": "[一直误以为F杯没多大的我原来是被日杯蒙骗了]",
-    "lastedit": 1785171127,
+    "lastedit": 1785173166,
     "category": "外野",
     "active": true,
     "update": false
@@ -17343,10 +17334,10 @@
     "update": false
   },
   "2286347": {
-    "totalreply": 49,
+    "totalreply": 50,
     "title": "[为什么日本人那么容易得到大肠癌]",
     "newtitle": "[为什么日本人那么容易得到大肠癌]",
-    "lastedit": 1785171967,
+    "lastedit": 1785172806,
     "category": "外野",
     "active": true,
     "update": false
