@@ -304,3 +304,14 @@ Steam 上配置要求是改了么，现在没看到内存和显卡配置推荐�
 
 参加CJ2026了，还有线下试玩
 
+
+*****
+
+####  otakun  
+##### 312#       发表于 2026-7-27 19:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69961381&amp;ptid=2253295" target="_blank">卡普空 发表于 2026-7-24 21:48</a>
+你们为什么会觉得GF能整个好玩的动作游戏出来，之前有任何基础吗？</blockquote>
+顶着这ID嘲笑GF就是底气十足<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+GF:没想到吧，我几乎全找外包。
+
