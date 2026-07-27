@@ -4340,3 +4340,91 @@ L摇杆质检器 真怕摇飘了
 
 买的实体估计得明天才能到<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dedalus  
+##### 599#       发表于 2026-7-27 10:54
+
+100层通了，感觉这作底子是真好，再加点地图怪物技能当全价游戏卖，不知道为什么这么着急
+
+感觉比喷三好玩是可以说的吗，其实splatoon核心玩法没有一处强绑定pvp，像佩鲁索纳一样独立出来作为喷ip新正作线好了
+
+另外这作技术进步太强了，玩后期四人组队感觉这是第一个充分展示switch2性能的游戏，技能满天飞加鲑鱼狂潮完全不卡，联机体验也大跃进什么垃圾网都丝滑流畅，epd5吃什么神药了
+
+<img src="https://img.stage1st.com/forum/202607/27/105142pwajx3aqzy1wrii1.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_6370.JPG</strong> (303.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-27 10:51 上传
+
+通关最终金额七百亿，本来想吐槽这作金额太夸张乱打零，一去查马斯克的身价，原来在游戏里狂肝三天各种科幻价格的收藏品加起来不到他十分之一，这家伙真该挂路灯了<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dedalus  
+##### 599#       发表于 2026-7-27 10:54
+
+100层通了，感觉这作底子是真好，再加点地图怪物技能当全价游戏卖，不知道为什么这么着急
+
+感觉比喷三好玩是可以说的吗，其实splatoon核心玩法没有一处强绑定pvp，像佩鲁索纳一样独立出来作为喷ip新正作线好了
+
+另外这作技术进步太强了，玩后期四人组队感觉这是第一个充分展示switch2性能的游戏，技能满天飞加鲑鱼狂潮完全不卡，联机体验也大跃进什么垃圾网都丝滑流畅，epd5吃什么神药了
+
+<img src="https://img.stage1st.com/forum/202607/27/105142pwajx3aqzy1wrii1.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_6370.JPG</strong> (303.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-27 10:51 上传
+
+通关最终金额七百亿，本来想吐槽这作金额太夸张乱打零，一去查马斯克的身价，原来在游戏里狂肝三天各种科幻价格的收藏品加起来不到他十分之一，这家伙真该挂路灯了<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  孔方兄  
+##### 600#       发表于 2026-7-27 11:01
+
+<blockquote>春风画雨 发表于 2026-7-27 10:45
+买的实体估计得明天才能到，看了一眼推特评论，还有推上发的mc用户评分，貌似国外口碑也不错?    Re:Source ...</blockquote>
+看了下mc用户92分
+
+牛逼了
+
+
+*****
+
+####  Dedalus  
+##### 599#       发表于 2026-7-27 10:54
+
+100层通了，感觉这作底子是真好，再加点地图怪物技能当全价游戏卖，不知道为什么这么着急
+
+感觉比喷三好玩是可以说的吗，其实splatoon核心玩法没有一处强绑定pvp，像佩鲁索纳一样独立出来作为喷ip新正作线好了
+
+另外这作技术进步太强了，玩后期四人组队感觉这是第一个充分展示switch2性能的游戏，技能满天飞加鲑鱼狂潮完全不卡，联机体验也大跃进什么垃圾网都丝滑流畅，epd5吃什么神药了
+
+<img src="https://img.stage1st.com/forum/202607/27/105142pwajx3aqzy1wrii1.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_6370.JPG</strong> (303.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-27 10:51 上传
+
+通关最终金额七百亿，本来想吐槽这作金额太夸张乱打零，一去查马斯克的身价，原来在游戏里狂肝三天各种科幻价格的收藏品加起来不到他十分之一，这家伙真该挂路灯了<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  孔方兄  
+##### 600#       发表于 2026-7-27 11:01
+
+<blockquote>春风画雨 发表于 2026-7-27 10:45
+买的实体估计得明天才能到，看了一眼推特评论，还有推上发的mc用户评分，貌似国外口碑也不错?    Re:Source ...</blockquote>
+看了下mc用户92分
+
+牛逼了
+
