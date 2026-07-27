@@ -634,3 +634,17 @@ Japan Studio光是外包了血源就给索尼拉了多少销量，但凡有点�
 
 任天堂那边的rare才是真操蛋，做出了那么多神作，老任却还是不要它，去了微软后一事无成。
 
+
+*****
+
+####  liekong  
+##### 61#       发表于 2026-7-27 21:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69970357&amp;ptid=2286262" target="_blank">huahuaanying 发表于 2026-7-27 10:12</a>
+据说宇宙机器人的人员就是来自japan studio的？那也还可以啊，化作春泥更护花嘛。
+
+任天堂那边的rare才是真 ...</blockquote>
+不知道我有没有记错，好像做完宇宙机器人就解散了，这下真如泥如沙了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -10890,3 +10890,11 @@ opencode建议拿来跑glm
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 3949#       发表于 2026-7-27 21:17
+
+楼上<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">终于无师自通工程学了：小模型 专家功能实现（便宜），然后用大模型做校验（全功能对齐），本来就是DS flash版本推理加速链工程实现的一条路径。
+
