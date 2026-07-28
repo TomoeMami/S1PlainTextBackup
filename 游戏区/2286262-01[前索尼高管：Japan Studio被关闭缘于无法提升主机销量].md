@@ -747,3 +747,14 @@ rare主要是史泰博兄弟要卖公司，地狱没接手。
 
 那会ngc完蛋样子已经初显，不花钱还能赚巨硬一笔合情合理……
 
+
+*****
+
+####  强尼高达  
+##### 70#       发表于 2026-7-28 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69974827&amp;ptid=2286262" target="_blank">huahuaanying 发表于 2026-7-28 13:20</a>
+哪里来的消息？大金刚64是有点毛病，但卖的很成功啊</blockquote>
+就是你楼上说的，捆内存
+游戏发售前夕发现运行依然非常不稳定，紧急决定同捆内存销售
+
