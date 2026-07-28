@@ -11519,3 +11519,15 @@ rpiv全家桶是啥，求解</blockquote>
 
 各种实用功能，比opencode的类似物好用，还有本地化
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4006#       发表于 2026-7-28 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69975968&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-7-28 20:10</a>
+一说到这个我就恨得牙痒痒，他不给你好好读skill事后还一副无赖的样子，我就是没干你能把我怎么样 ...</blockquote>
+对，气的人牙痒痒，而且纠正以后还不读完，这要是真人我非得邦邦给他两拳
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
