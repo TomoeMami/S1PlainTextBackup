@@ -11559,3 +11559,19 @@ rpiv全家桶是啥，求解</blockquote>
 
 codex虽然天天发重置，但是感觉额度又缩了不少，简单的任务一天能把plus一周的用完
 
+
+*****
+
+####  M乔梦  
+##### 4010#       发表于 2026-7-29 00:48
+
+ 本帖最后由 M乔梦 于 2026-7-29 00:54 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69976763&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-7-28 23:47</a>
+
+虽说不大可能是正式版，但是突然发现手机商城里面，D老师的软件居然可以更新了。距离上一次的更新好像都已 ...</blockquote>
+那就说明要正式版了（bushi
+
+看了一下，V4预览版更新前一天手机客户端版本更新到了2.0。虽然实际可能没任何关联，但是要相信相信的力量<img src="https://static.stage1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+梁圣明天发涨价邮件，后天更新，8月前发出来行不行<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">别让我求你
+
