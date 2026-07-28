@@ -11575,3 +11575,17 @@ codex虽然天天发重置，但是感觉额度又缩了不少，简单的任务
 
 梁圣明天发涨价邮件，后天更新，8月前发出来行不行<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">别让我求你
 
+
+*****
+
+####  startraveller  
+##### 4011#       发表于 2026-7-29 01:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69976861&amp;ptid=2275806" target="_blank">seedees3 发表于 2026-7-29 00:34</a>
+问下现在cursor是退环境了吗，怎么几乎没人提了
+
+—— 来自 S1Fun</blockquote>
+之前第一方模型只能用composer系列（魔改kimi 2.6），第三方额度又很少。但是这个月马老板也开始卷了，第一方模型加了grok 4.5，能力和GLM5.2差不多档次，能用了，加上第一方额度永久2x，突然就香起来了。 
+
+8月7日还有grok 4.6，8月内还有4.7和composer 3，反正觉得是有性价比了。
+
