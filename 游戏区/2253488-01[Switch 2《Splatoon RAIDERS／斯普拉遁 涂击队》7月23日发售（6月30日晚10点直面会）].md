@@ -4919,3 +4919,11 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 <img src="https://img.stage1st.com/forum/202607/28/232417mz8imom9i16ai5o0.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stera  
+##### 647#       发表于 2026-7-28 23:32
+
+应该极度着重连射力的会更强，不过没有也先带吧反正我做完第二把+50，第三把的材料都快够了也没见着想要的武器
+
