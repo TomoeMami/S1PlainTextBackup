@@ -4842,3 +4842,14 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  君往何处  
+##### 640#       发表于 2026-7-28 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69976020&amp;ptid=2253488" target="_blank">Dedalus 发表于 2026-7-28 20:20</a>
+
+求证，是不是所有符文都有五星彩色？像这种提升存量也有3 个的版本吗？我为什么一个没刷出过也没见到人晒 ...</blockquote>
+可以从鬼蝠的图鉴那里看差哪些零件，没有的零件有占位符，最左边的是最好的
+
