@@ -11203,3 +11203,35 @@ ds 的性能上处于追赶者我觉得是比较合适的，这样就有理由�
 
 现在至少在刘备文领域，K3仍然没什么限制，仅仅是有概率触发API外挂审核而已
 
+
+*****
+
+####  一般市民  
+##### 3978#       发表于 2026-7-28 12:55
+
+ 本帖最后由 一般市民 于 2026-7-28 12:57 编辑 
+
+openrouter找到K3了，为啥在那么下面，为啥这么少的部署 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holmesjerry  
+##### 3979#       发表于 2026-7-28 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69974659&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-7-28 12:40</a>
+法律角度上，“分类分级管控”本身就意味着任何监管部门都无权对模型本身提出任何对齐要求，而政治角度上 ...</blockquote>
+读读玉渊潭天前两天的稿子
+
+
+*****
+
+####  ycjiang1337  
+##### 3980#       发表于 2026-7-28 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69974725&amp;ptid=2275806" target="_blank">holmesjerry 发表于 2026-7-28 12:56</a>
+
+读读玉渊潭天前两天的稿子</blockquote>
+文章明确说了支持模型开源，而开源模型天生就反对齐，因为任何模型开源之后都可以较为容易地进行反对齐后训练，这种情况下重度对齐就更政治不正确了。
+
+倒不如说，支持开源本身就等价于反对过度监管
+
