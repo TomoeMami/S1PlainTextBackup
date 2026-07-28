@@ -11313,3 +11313,29 @@ k3已经是激活100B参数的级别了，我感觉V4正式版就算出来也很
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  crow_wine  
+##### 3989#       发表于 2026-7-28 18:26
+
+下午自己的gpt的号触发手机号认证了，真的是麻烦得要死
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  80后卢瑟  
+##### 3990#       发表于 2026-7-28 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69973108&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-7-27 23:34</a>
+除了简洁和 diy 为主的 pi 之外
+
+Claude code 的 app 写的一坨💩
+
+codex 日志最近连着报出来俩吃内存的大问 ...</blockquote>
+换 v2 就好了，都是 bun 的锅
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
