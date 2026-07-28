@@ -4736,3 +4736,11 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 — from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nemuru_baka  
+##### 629#       发表于 2026-7-28 10:04
+
+通关了刷到第一个五星绝品，是刮水刀，不过刮水刀似乎没什么好配合的build。
+
