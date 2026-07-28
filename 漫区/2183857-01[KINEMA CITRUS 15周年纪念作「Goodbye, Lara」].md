@@ -2707,3 +2707,11 @@ anime expo场刊里面表述茉里不是一个假小子，看到现在有人认�
 
 这女生被拉拉这样缠着你和青梅关系好所以一定是王子和公主相爱云云而只有害羞而不是恼羞成怒，已经是很二次元的事情了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 229#       发表于 2026-7-28 14:20
+
+你们人鱼用手机也如此熟练，和人类生活上差异在哪里<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
