@@ -11541,3 +11541,13 @@ rpiv全家桶是啥，求解</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  seedees3  
+##### 4008#       发表于 2026-7-29 00:34
+
+问下现在cursor是退环境了吗，怎么几乎没人提了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
