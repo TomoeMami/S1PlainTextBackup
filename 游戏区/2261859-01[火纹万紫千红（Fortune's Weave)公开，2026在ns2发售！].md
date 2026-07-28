@@ -4390,3 +4390,28 @@ mp3最大问题是难挖。。。正常主角谁练重装啊，然后mp3的支�
 
 这部看着挖角自由度应该也不高
 
+
+*****
+
+####  mai6696  
+##### 1477#       发表于 2026-7-28 09:35
+
+ 本帖最后由 mai6696 于 2026-7-28 09:38 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69973228&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-7-28 00:25</a>
+
+我已经看穿了，美女帅哥角色都要到大地图去挖角，主线主要队友就是土/丑/尼 ...</blockquote>
+哪怕是女王那队，目前公布的也有一个能看的吧？
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉每个队伍总体颜值上可能是1个贝尔+1个佩托拉+6个休伯特的水平。
+
+老实说有些黑大叔都不如休伯特，甚至不如杜笃和锥里尔。
+
+对标的应该是序章追杀级长的那个土匪头子。
+
+<img src="https://img.stage1st.com/forum/202607/28/093804venckkgoclkzlvvo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (73.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-28 09:38 上传
+

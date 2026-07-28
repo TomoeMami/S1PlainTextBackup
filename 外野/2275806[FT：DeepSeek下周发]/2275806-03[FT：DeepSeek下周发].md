@@ -11114,3 +11114,13 @@ pi的rpiv全家桶真好用吧
 
 dpsk v4再拖下去可能glm5.5都出来了，到时候真就除了便宜点几乎没什么优势<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厍无春  
+##### 3970#       发表于 2026-7-28 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69972855&amp;ptid=2275806" target="_blank">wonderful259 发表于 2026-7-27 22:14</a>
+现在hermes这块的自动路由做得怎么样了？</blockquote>
+智能路由最新版本好像给砍了，现在就是辅助任务不指定模型默认 auto，跟随主模型
+
