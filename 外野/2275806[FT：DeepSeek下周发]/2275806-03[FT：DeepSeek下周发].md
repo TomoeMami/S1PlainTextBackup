@@ -11158,3 +11158,15 @@ dpsk v4再拖下去可能glm5.5都出来了，到时候真就除了便宜点几�
 论坛助手,iPhone ...</blockquote>
 minimax 体验怎么样？
 
+
+*****
+
+####  goranger  
+##### 3974#       发表于 2026-7-28 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69974057&amp;ptid=2275806" target="_blank">厍无春 发表于 2026-7-28 10:57</a>
+minimax 体验怎么样？</blockquote>
+便宜管饱是唯一的优点，跑个任务明确的子代理也没啥，日常对话、任务规划就算了。但是我觉得蛮好的，玩agent大部分时间消耗的token不都是很简单的事情么。目前我的minimax用来当辅助模型、跑子代理、用来当自己开发的记忆插件的llm，这些需求消耗很低，所以有些读长文档的任务也让他干，或者每次改代码前都让他去通读源代码。我是二等老用户，每周150%的消耗还没用完过，不过5h的窗口消耗使劲蹬蹬还是很快耗尽。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
