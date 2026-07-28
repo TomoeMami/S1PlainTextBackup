@@ -11339,3 +11339,23 @@ codex 日志最近连着报出来俩吃内存的大问 ...</blockquote>
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  舞以  
+##### 3991#       发表于 2026-7-28 18:51
+
+k3那个价格，用吧，一用一个不吱声<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+月之暗面最主要的产品不是k系列模型，是“国内最强炼丹”这个title。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  big9999  
+##### 3992#       发表于 2026-7-28 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69973506&amp;ptid=2275806" target="_blank">培根芝士蛋堡XD 发表于 2026-7-28 09:29</a>
+dpsk v4再拖下去可能glm5.5都出来了，到时候真就除了便宜点几乎没什么优势</blockquote>
+d师傅啥时候以性能著称了？不都是用一折钱换八折性能著称么
+
