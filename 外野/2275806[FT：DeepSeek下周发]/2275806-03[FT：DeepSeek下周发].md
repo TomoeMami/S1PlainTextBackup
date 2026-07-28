@@ -11589,3 +11589,18 @@ codex虽然天天发重置，但是感觉额度又缩了不少，简单的任务
 
 8月7日还有grok 4.6，8月内还有4.7和composer 3，反正觉得是有性价比了。
 
+
+*****
+
+####  80后卢瑟  
+##### 4012#       发表于 2026-7-29 07:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69975987&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-7-28 20:13</a>
+
+你去官网的package搜就有了
+
+https://pi.dev/packages?name=rpiv
+
+各种实用功能，比opencode的类似物好用， ...</blockquote>
+这个比较诡异的是，所有的工具其他人都有做，他重新做了一遍好处在哪...
+
