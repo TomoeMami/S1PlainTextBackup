@@ -4771,3 +4771,31 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 激辣模式和无限食堂总算开始上头了，逼迫着自己尝试每一个配件的组合，而每次即使失败也能带回怪掉下的装备或者素材或者配件，几乎无挫败感，而能过的时候大部分都是差一两秒，紧张刺激，看似混乱的局面但有时就是配置差那么一点或者操作差那么一点都会导致截然不同的局势。目前塔爬的比较慢，和大地图的激辣难度交替换着玩，那些标着80危险度的关卡暂时还不知什么时候能碰<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hl氏  
+##### 633#       发表于 2026-7-28 18:39
+
+力量大师速度大师技术大师三样都装上吗，我已经忘掉这三种背包槽升级后是什么能力了
+
+*****
+
+####  hl氏  
+##### 634#       发表于 2026-7-28 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69975554&amp;ptid=2253488" target="_blank">doraemonmilmil 发表于 2026-7-28 18:37</a>
+
+激辣模式和无限食堂总算开始上头了，逼迫着自己尝试每一个配件的组合，而每次即使失败也能带回怪掉下的装备 ...</blockquote>
+不断尝试配件真的上头，破坏我的生活作息
+
+
+*****
+
+####  Dedalus  
+##### 635#       发表于 2026-7-28 18:46
+
+这游戏带来的快乐在产生想拿到本命武器的欲望时就结束了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+五星不够还得绝品，绝品也实际只有射速是真ssr，到底要怎么刷到啊
+
