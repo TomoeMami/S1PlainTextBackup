@@ -569,3 +569,11 @@ bd丰富度肯定跟那些老牌游戏没法比，但作为一个刚开始ea的�
 
 绿是最轮椅的，谁支持谁反对<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  五块  
+##### 54#       发表于 2026-7-28 09:51
+
+就目前的难度而言，没有不轮椅的，拿到什么异常给盾什么恋人什么给几千层生长余烬不都是躺着玩，当然还有最牛逼的降抗，多叠几层什么boss都是秒<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
