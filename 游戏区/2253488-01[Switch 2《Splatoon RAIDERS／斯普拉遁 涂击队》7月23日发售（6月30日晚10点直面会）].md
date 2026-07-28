@@ -4889,3 +4889,16 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 看到淘宝有一些日服兑换码价格和卡带价格差不多都是250左右了。
 
+
+*****
+
+####  hl氏  
+##### 645#       发表于 2026-7-28 22:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69976537&amp;ptid=2253488" target="_blank">Gmlazy 发表于 2026-7-28 22:31</a>
+
+日服兑换码是可能会ban账号是吧？
+
+看到淘宝有一些日服兑换码价格和卡带价格差不多都是250左右了。 ...</blockquote>
+好像是日亚的搬运工，大概赚个10块20块？我买过两次
+
