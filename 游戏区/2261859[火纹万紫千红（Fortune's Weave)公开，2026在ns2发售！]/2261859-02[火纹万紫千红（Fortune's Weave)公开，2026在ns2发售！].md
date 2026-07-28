@@ -191,3 +191,17 @@
 女王看上去是个很和善的人，对底下的人没架子，和尚武的形象相比有些意外。 ...</blockquote>
 毕竟现在高山南的声音已经人设定型了。。选高山南做配音基本上这个角色就是正的离谱了。。再加上她副官那个国家重要的是人民的发言，柯南女王基本上就是又正义又亲和的形象了
 
+
+*****
+
+####  takayama  
+##### 1493#       发表于 2026-7-28 18:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69975363&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-7-28 15:17</a>
+毕竟现在高山南的声音已经人设定型了。。选高山南做配音基本上这个角色就是正的离谱了。。再加上她副官那 ...</blockquote>
+也不完全是，高山上周末就在某电视剧中扮演AI发声了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+嘛只要不是【近】最终BOSS级别的话就中规中矩的柯南吧【偶尔来点御姐音<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">】
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
