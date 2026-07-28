@@ -5028,3 +5028,11 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 <img src="https://img.stage1st.com/forum/202607/29/015553qryxj232r18r85ay.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  火红之眼  
+##### 653#       发表于 2026-7-29 06:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">分身就第一击发动吧，三连后两发没分身来着
+
