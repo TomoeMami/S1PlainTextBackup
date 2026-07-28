@@ -11106,3 +11106,11 @@ linux do
 
 pi的rpiv全家桶真好用吧
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 3969#       发表于 2026-7-28 09:29
+
+dpsk v4再拖下去可能glm5.5都出来了，到时候真就除了便宜点几乎没什么优势<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
