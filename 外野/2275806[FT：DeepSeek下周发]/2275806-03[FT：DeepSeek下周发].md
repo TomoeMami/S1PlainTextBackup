@@ -11290,3 +11290,16 @@ KIMI K3自从变成agent之后，我第一次把额度用完
 
 k3已经是激活100B参数的级别了，我感觉V4正式版就算出来也很难超越k3了，除非ds的架构和训练能抹平两倍的激活参数差距<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zy450  
+##### 3987#       发表于 2026-7-28 14:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69975190&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-7-28 14:32</a>
+
+k3已经是激活100B参数的级别了，我感觉V4正式版就算出来也很难超越k3了，除非ds的架构和训练能抹平两倍的激 ...</blockquote>
+我觉得有灰测的效果，加原价的半价，竞争力很猛了
+
+目前再强的大模型，都不一定有重复抽卡效果好，K3那价格没办法日常用
+

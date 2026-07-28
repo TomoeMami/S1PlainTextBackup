@@ -153,3 +153,13 @@
 
 正赛对手估计一部分打完以后可招募，一部分就是纯反派了
 
+
+*****
+
+####  57042711  
+##### 1490#       发表于 2026-7-28 14:36
+
+这天马看着好老啊，但愿是三姐妹里的大姐<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
