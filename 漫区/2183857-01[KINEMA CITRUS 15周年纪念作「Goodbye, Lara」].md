@@ -2699,3 +2699,11 @@ anime expo场刊里面表述茉里不是一个假小子，看到现在有人认�
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  aptx8285144  
+##### 228#       发表于 2026-7-28 13:56
+
+这女生被拉拉这样缠着你和青梅关系好所以一定是王子和公主相爱云云而只有害羞而不是恼羞成怒，已经是很二次元的事情了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
