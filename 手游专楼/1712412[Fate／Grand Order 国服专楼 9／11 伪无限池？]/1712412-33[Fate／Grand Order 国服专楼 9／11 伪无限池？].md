@@ -647,3 +647,13 @@ a72907cd918cc37948426ed315caa5a333874.png@1052w_!web-dynamic.webp
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69975292&amp;ptid=1712412" target="_blank">qixinno1 发表于 2026-7-28 14:50</a></blockquote>
 还有800多，配合1400，满宝所长不是分分钟的事吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 47935#       发表于 2026-7-28 18:18
+
+<blockquote>khxooo 发表于 2026-7-28 15:13
+还有800多，配合1400，满宝所长不是分分钟的事吗</blockquote>
+要看脸 吃个大保底就gg了
+
