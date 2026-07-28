@@ -2675,3 +2675,27 @@ himeka也太工具人了<img src="https://static.stage1st.com/image/smiley/face2
 <img src="https://p.sda1.dev/34/77a6f361b709278a8d2eccfc7eff5190/HOPdGzZbEAAVYTX.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/34/e15a9c8cf6ccc8b16ead20e135211b7e/HOPdPzTbMAAlHnQ.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  云梦泽岸  
+##### 226#       发表于 2026-7-28 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69931224&amp;ptid=2183857" target="_blank">一切都毫无意义 发表于 2026-7-17 17:33</a>
+——这部动画是您的初监督作，也是一部以《海的女儿》为灵感的原创故事。这个项目是如何诞生的？
+
+小出：  ...</blockquote>
+确实啊确实，看一些粗线条让人心情都好多了。
+
+
+*****
+
+####  zing223  
+##### 227#       发表于 2026-7-28 12:32
+
+ 本帖最后由 zing223 于 2026-7-28 12:35 编辑 
+
+anime expo场刊里面表述茉里不是一个假小子，看到现在有人认同这一点吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算不完全是，假小子元素还是挺多的
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
