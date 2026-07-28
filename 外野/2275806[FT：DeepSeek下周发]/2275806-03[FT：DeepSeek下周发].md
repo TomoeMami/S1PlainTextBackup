@@ -11359,3 +11359,36 @@ k3那个价格，用吧，一用一个不吱声<img src="https://static.stage1st
 dpsk v4再拖下去可能glm5.5都出来了，到时候真就除了便宜点几乎没什么优势</blockquote>
 d师傅啥时候以性能著称了？不都是用一折钱换八折性能著称么
 
+
+*****
+
+####  舞以  
+##### 3993#       发表于 2026-7-28 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69975632&amp;ptid=2275806" target="_blank">big9999 发表于 2026-7-28 18:55</a>
+d师傅啥时候以性能著称了？不都是用一折钱换八折性能著称么</blockquote>
+别尬黑，基本每代模型发出来的时候都是开源sota
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  jamboo  
+##### 3994#       发表于 2026-7-28 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69974154&amp;ptid=2275806" target="_blank">goranger 发表于 2026-7-28 11:13</a>
+
+便宜管饱是唯一的优点，跑个任务明确的子代理也没啥，日常对话、任务规划就算了。但是我觉得蛮好的，玩ag ...</blockquote>
++1，只是个便宜的多模态，用作虾粮也不错。
+
+*****
+
+####  jamboo  
+##### 3995#       发表于 2026-7-28 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69973236&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-7-28 00:30</a>
+
+pi的rpiv全家桶真好用吧</blockquote>
+rpiv全家桶是啥，求解
+

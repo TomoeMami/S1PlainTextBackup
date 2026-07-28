@@ -577,3 +577,31 @@ bd丰富度肯定跟那些老牌游戏没法比，但作为一个刚开始ea的�
 
 就目前的难度而言，没有不轮椅的，拿到什么异常给盾什么恋人什么给几千层生长余烬不都是躺着玩，当然还有最牛逼的降抗，多叠几层什么boss都是秒<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  searcher  
+##### 55#       发表于 2026-7-28 19:04
+
+ 本帖最后由 searcher 于 2026-7-28 19:05 编辑 
+
+这游戏普通难度反而是最难的，越到高难度越简单。开局给的选项看似一个buff一个debuff，但是可以刷一下，有的buff强力debuff完全没难度。而且还可能上一个debuff被下一个选项的buff抵消。
+
+这游戏还有些隐藏要素，今天有把用的默认弹夹20发那把闪电枪，强化到红色发现多了个属性，碎裂后下一关进入大秘藏。还好路上又捡了把紫色的相同枪，也强化到橙色后够用了，果断把红色的碎了，进去发现真的是宝库，里面一堆可开启的，红色橙色的武器配件秘宝都有，而且有合成禁锻和强化武器的NPC。直接搞了全红套
+
+<img src="https://img.stage1st.com/forum/202607/28/190427pegfqpsn2ef57w5p.png" referrerpolicy="no-referrer">
+
+<strong>9D899CC94FF8B6168C963BB332A10972.png</strong> (201.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-28 19:04 上传
+
+<img src="https://img.stage1st.com/forum/202607/28/190431g6t056h6898fzrtv.png" referrerpolicy="no-referrer">
+
+<strong>8C04CC55DF2239FAA284D6CBC9859337.png</strong> (609.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-28 19:04 上传
+
