@@ -482,3 +482,18 @@ Google play直接买plus会员，支付是走play的途径，国内信用卡也�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ayanamilin  
+##### 43#       发表于 2026-7-28 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69975448&amp;ptid=2286293" target="_blank">不让用大写 发表于 2026-7-28 18:10</a>
+
+豆包可以多模态的，而且能白嫖的token也不少，每个模型送50w tokens，用完一个换一个
+
+个人用户参加协作奖励 ...</blockquote>
+你要这么说的话，阿里百炼注册后每个模型送一百万token，而且出各种新模型都会给你送100w。
+
+但其实没啥用。
+
