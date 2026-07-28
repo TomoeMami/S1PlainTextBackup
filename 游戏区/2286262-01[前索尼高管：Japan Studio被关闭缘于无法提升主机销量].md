@@ -648,3 +648,17 @@ Japan Studio光是外包了血源就给索尼拉了多少销量，但凡有点�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  1981112  
+##### 62#       发表于 2026-7-28 10:34
+
+不是，日厂除了任天堂，哪家做游戏不上PS了？绝大多数日厂游戏都上PS了啊？？
+
+所以索尼压根不缺日系游戏。<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+只不过之前花钱买过第三方限时独占，现在不买了而已。
+
+那也就是主机玩家的选择从PS5变成了PS5或者NS2，毕竟XB在日本的销量聊胜于无。
+
