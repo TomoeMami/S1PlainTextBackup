@@ -11243,3 +11243,11 @@ openrouter找到K3了，为啥在那么下面，为啥这么少的部署 <img sr
 
 opencode 里的 glm速度也是非常的慢，有点尴尬啊，兜兜转转还是回到v4吗
 
+
+*****
+
+####  →熙←  
+##### 3982#       发表于 2026-7-28 14:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有消息了没
+
