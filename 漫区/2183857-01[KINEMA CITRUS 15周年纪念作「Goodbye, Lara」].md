@@ -2666,3 +2666,12 @@ himeka也太工具人了<img src="https://static.stage1st.com/image/smiley/face2
 
 如果后面继续讨论“王子”的话，感觉本作膜少革的味就更浓了（/百合还是不好说，反正就算有的话也肯定是双了()感觉更像是广泛的爱与成长故事，但是俩女主走到一起的可能性不为零（
 
+
+*****
+
+####  Piano-Forest  
+##### 225#         楼主| 发表于 2026-7-28 11:27
+
+<img src="https://p.sda1.dev/34/77a6f361b709278a8d2eccfc7eff5190/HOPdGzZbEAAVYTX.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/e15a9c8cf6ccc8b16ead20e135211b7e/HOPdPzTbMAAlHnQ.jpg" referrerpolicy="no-referrer">
+

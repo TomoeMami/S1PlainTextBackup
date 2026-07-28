@@ -11170,3 +11170,13 @@ minimax 体验怎么样？</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ymm1030  
+##### 3975#       发表于 2026-7-28 11:32
+
+ds 的性能上处于追赶者我觉得是比较合适的，这样就有理由拒绝额外的对齐要求<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
