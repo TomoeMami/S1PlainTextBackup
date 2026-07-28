@@ -11420,3 +11420,18 @@ rpiv全家桶是啥，求解
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  novem  
+##### 3999#       发表于 2026-7-28 19:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69975752&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-7-28 19:23</a>
+
+突然不知道应该怎么评价，该说这是一如既往吗？总是不会独占鳌头，但是又往往中人之上之姿，应该说一流集 ...</blockquote>
+还是搞不清楚为什么中断了V4的发布，非要和Harness一起发布
+
+这明显是计划之外的
+
+但总不能说小鲸鱼一辈子就只占了便宜这一个优点吧
+
