@@ -11494,3 +11494,28 @@ DeepSeek由于后训练策略的改变导致的性能劣化，可能的原因是
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  阿刚  
+##### 4004#       发表于 2026-7-28 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69975860&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-28 19:49</a>
+
+我让GPT5.6分析了一下DeepSeek-V4在Open Code中工作产生的各种失误的会话记录，顺便让它从网上查了一下，给 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">一说到这个我就恨得牙痒痒，他不给你好好读skill事后还一副无赖的样子，我就是没干你能把我怎么样
+
+
+*****
+
+####  scikirbypoke  
+##### 4005#       发表于 2026-7-28 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69975673&amp;ptid=2275806" target="_blank">jamboo 发表于 2026-7-28 19:04</a>
+
+rpiv全家桶是啥，求解</blockquote>
+你去官网的package搜就有了
+[https://pi.dev/packages?name=rpiv](https://pi.dev/packages?name=rpiv)
+
+各种实用功能，比opencode的类似物好用，还有本地化
+

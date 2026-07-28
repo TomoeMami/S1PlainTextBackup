@@ -613,3 +613,13 @@ bd丰富度肯定跟那些老牌游戏没法比，但作为一个刚开始ea的�
 
 话说多结局怎么打？我真实也通了几遍了。是要全收集吗？
 
+
+*****
+
+####  伊布桑  
+##### 57#       发表于 2026-7-28 20:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69975717&amp;ptid=2269895" target="_blank">benhawk 发表于 2026-7-28 19:16</a>
+话说多结局怎么打？我真实也通了几遍了。是要全收集吗？</blockquote>
+把路上纸条全收集了就能解锁真结局，挺弱智的<img src="https://static.stage1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">有时候差一两个不知道去哪找。
+
