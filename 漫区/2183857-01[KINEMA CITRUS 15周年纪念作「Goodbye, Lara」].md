@@ -2715,3 +2715,12 @@ anime expo场刊里面表述茉里不是一个假小子，看到现在有人认�
 
 你们人鱼用手机也如此熟练，和人类生活上差异在哪里<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 230#         楼主| 发表于 2026-7-28 14:29
+
+<img src="https://p.sda1.dev/34/dbec7fddffb6e6792c024d091443174a/HOQA98CasAAKjQg.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/9847f0c12aa4f8bc6895e8e7e9d95c29/HOQA2vyakAAP28g.jpg" referrerpolicy="no-referrer">
+

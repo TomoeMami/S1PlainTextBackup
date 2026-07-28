@@ -11261,3 +11261,32 @@ opencode 里的 glm速度也是非常的慢，有点尴尬啊，兜兜转转还�
 有消息了没</blockquote>
 不可能有的<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高粱河车神  
+##### 3984#       发表于 2026-7-28 14:31
+
+KIMI K3自从变成agent之后，我第一次把额度用完
+
+而且我完全没有编程，只是在写工作材料而已
+
+还要十几天就用完了，这是在逼我升级会员等级啊
+
+*****
+
+####  杀人鲸  
+##### 3985#       发表于 2026-7-28 14:31
+
+话说为什么消息保密的那么好呀？说好的信息时代呢？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  qz66618  
+##### 3986#       发表于 2026-7-28 14:32
+
+k3已经是激活100B参数的级别了，我感觉V4正式版就算出来也很难超越k3了，除非ds的架构和训练能抹平两倍的激活参数差距<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
