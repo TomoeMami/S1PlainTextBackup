@@ -11604,3 +11604,14 @@ https://pi.dev/packages?name=rpiv
 各种实用功能，比opencode的类似物好用， ...</blockquote>
 这个比较诡异的是，所有的工具其他人都有做，他重新做了一遍好处在哪...
 
+
+*****
+
+####  scikirbypoke  
+##### 4013#       发表于 2026-7-29 07:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69977038&amp;ptid=2275806" target="_blank">80后卢瑟 发表于 2026-7-29 07:19</a>
+这个比较诡异的是，所有的工具其他人都有做，他重新做了一遍好处在哪... ...</blockquote>
+pi这种就是有人喜欢自己从头搓的
+我也没用这套的webtool，用另一个，没太大差别
+
