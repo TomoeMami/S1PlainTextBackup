@@ -470,3 +470,15 @@ Google play直接买plus会员，支付是走play的途径，国内信用卡也�
 个人用户参加协作奖励 ...</blockquote>
 推荐点免费的吧，今天正好掉了一个免费模型<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不让用大写  
+##### 42#       发表于 2026-7-28 22:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69976352&amp;ptid=2286293" target="_blank">伽蓝寺 发表于 2026-7-28 21:38</a>
+推荐点免费的吧，今天正好掉了一个免费模型</blockquote>
+就豆包呗，我白嫖俩月了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
