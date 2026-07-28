@@ -11124,3 +11124,25 @@ dpsk v4再拖下去可能glm5.5都出来了，到时候真就除了便宜点几�
 现在hermes这块的自动路由做得怎么样了？</blockquote>
 智能路由最新版本好像给砍了，现在就是辅助任务不指定模型默认 auto，跟随主模型
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 3971#       发表于 2026-7-28 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69973506&amp;ptid=2275806" target="_blank">培根芝士蛋堡XD 发表于 2026-7-28 09:29</a>
+
+dpsk v4再拖下去可能glm5.5都出来了，到时候真就除了便宜点几乎没什么优势</blockquote>
+现在D指导就是除了便宜一无是处啊<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  goranger  
+##### 3972#       发表于 2026-7-28 10:44
+
+<blockquote>厍无春 发表于 2026-7-28 09:40
+智能路由最新版本好像给砍了，现在就是辅助任务不指定模型默认 auto，跟随主模型 ...</blockquote>
+你说这个，我是手动强制制定的辅助模型跑在minimax上，没用过智能路由
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
