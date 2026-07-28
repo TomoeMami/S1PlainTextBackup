@@ -11146,3 +11146,15 @@ dpsk v4再拖下去可能glm5.5都出来了，到时候真就除了便宜点几�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  厍无春  
+##### 3973#       发表于 2026-7-28 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69973981&amp;ptid=2275806" target="_blank">goranger 发表于 2026-7-28 10:44</a>
+你说这个，我是手动强制制定的辅助模型跑在minimax上，没用过智能路由
+
+论坛助手,iPhone ...</blockquote>
+minimax 体验怎么样？
+
