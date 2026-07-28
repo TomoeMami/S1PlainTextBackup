@@ -4861,3 +4861,14 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">像刻章的那个涡潮盐水晶是有限的吗，通过了的关卡就不再给了
 
+
+*****
+
+####  stera  
+##### 642#       发表于 2026-7-28 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69976341&amp;ptid=2253488" target="_blank">hl氏 发表于 2026-7-28 21:34</a>
+
+像刻章的那个涡潮盐水晶是有限的吗，通过了的关卡就不再给了</blockquote>
+有限，很缺。后期都在刷这玩意
+
