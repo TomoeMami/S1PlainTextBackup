@@ -674,3 +674,18 @@ Japan Studio光是外包了血源就给索尼拉了多少销量，但凡有点�
 任天堂那边的rare才是真 ...</blockquote>
 Rare把大金刚64做砸了，任天堂差点血本无归
 
+
+*****
+
+####  强尼高达  
+##### 64#       发表于 2026-7-28 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69973905&amp;ptid=2286262" target="_blank">1981112 发表于 2026-7-28 10:34</a>
+不是，日厂除了任天堂，哪家做游戏不上PS了？绝大多数日厂游戏都上PS了啊？？
+
+所以索尼压根不缺日系游戏。
+
+ ...</blockquote>
+Xbox不算，现在有些游戏开始在PC Switch(2) PS4/5之间玩PS独不占了
+Switch(2)独不占还能用性能解释，PS独不占就找不到理由了，更不要说Switch(2)独占的那些，毕竟PS5的第三方独占目前来看应该是0
+
