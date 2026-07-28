@@ -662,3 +662,15 @@ Japan Studio光是外包了血源就给索尼拉了多少销量，但凡有点�
 
 那也就是主机玩家的选择从PS5变成了PS5或者NS2，毕竟XB在日本的销量聊胜于无。
 
+
+*****
+
+####  强尼高达  
+##### 63#       发表于 2026-7-28 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69970357&amp;ptid=2286262" target="_blank">huahuaanying 发表于 2026-7-27 10:12</a>
+据说宇宙机器人的人员就是来自japan studio的？那也还可以啊，化作春泥更护花嘛。
+
+任天堂那边的rare才是真 ...</blockquote>
+Rare把大金刚64做砸了，任天堂差点血本无归
+
