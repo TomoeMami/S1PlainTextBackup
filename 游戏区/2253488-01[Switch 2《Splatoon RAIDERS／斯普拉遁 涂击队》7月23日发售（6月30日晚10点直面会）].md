@@ -4752,3 +4752,14 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 前面乱抄BD浪费了不少水晶，食堂多少层爆率会高点
 
+
+*****
+
+####  stoiorz  
+##### 631#       发表于 2026-7-28 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69974289&amp;ptid=2253488" target="_blank">gbjbb 发表于 2026-7-28 11:32</a>
+
+前面乱抄BD浪费了不少水晶，食堂多少层爆率会高点</blockquote>
+刷杏棱巢穴,如果想效率高就把100层打完应该称号效率增加95%。其实几百也没啥差。
+
