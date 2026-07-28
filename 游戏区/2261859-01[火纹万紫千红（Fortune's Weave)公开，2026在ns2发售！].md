@@ -4415,3 +4415,15 @@ mp3最大问题是难挖。。。正常主角谁练重装啊，然后mp3的支�
 
 2026-7-28 09:38 上传
 
+
+*****
+
+####  takayama  
+##### 1478#       发表于 2026-7-28 09:59
+
+那么这么看来IS再次证明一直在窥探改版界，除了象兵跟骆驼骑兵外，我感觉魔物骑兵也快了，比如这个地狱三头犬骑士<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/34/154413981ca114224d638301d32caf9b/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT2125-4, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
