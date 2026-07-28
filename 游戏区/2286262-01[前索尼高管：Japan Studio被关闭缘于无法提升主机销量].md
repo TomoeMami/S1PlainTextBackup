@@ -781,3 +781,30 @@ rare主要是史泰博兄弟要卖公司，地狱没接手。
 
 rare的锅主要是游戏里面塞的东西太满没工期搞双版本了，地狱不太可能就因为这事想卖掉手里49%的股份。
 
+
+*****
+
+####  ppa11  
+##### 73#       发表于 2026-7-28 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69970357&amp;ptid=2286262" target="_blank">huahuaanying 发表于 2026-7-27 10:12</a>
+据说宇宙机器人的人员就是来自japan studio的？那也还可以啊，化作春泥更护花嘛。
+
+任天堂那边的rare才是真 ...</blockquote>
+因为rare是真反骨仔啊，明着反对本部那种
+
+—— 來自 realme RMX3700, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ppa11  
+##### 74#       发表于 2026-7-28 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69968882&amp;ptid=2286262" target="_blank">skgaminger1988 发表于 2026-7-26 22:54</a>
+索尼真多亏软软是个弱智，砸那么多钱水花都没几个，不然力大砖飞这世代都给索索砸死了
+
+—— 来自 vivo V24 ...</blockquote>
+脑子正常的软软不就是上个版本的索尼嘛<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，那就变成历史轮回系列了
+
+—— 來自 realme RMX3700, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
