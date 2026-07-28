@@ -6,3 +6,13 @@
 
 之前demo可以正常玩，今天不知道为什么demo和性能测试都是显示一下窗口就闪退了，有没有人遇到过类似问题<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，win10系统
 
+
+*****
+
+####  Nosgoth  
+##### 679#       发表于 2026-7-28 12:45
+
+<blockquote>SyjmchZ 发表于 2026-7-27 21:28
+之前demo可以正常玩，今天不知道为什么demo和性能测试都是显示一下窗口就闪退了，有没有人遇到过类似问题， ...</blockquote>
+试试检查完整性，我每次隔一阵打开装甲核心6也是类似情况，每次都要再检查一次完整性。
+
