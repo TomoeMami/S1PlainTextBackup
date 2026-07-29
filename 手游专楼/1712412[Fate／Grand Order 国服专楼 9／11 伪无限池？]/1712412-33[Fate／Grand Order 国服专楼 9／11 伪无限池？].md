@@ -758,3 +758,20 @@ a72907cd918cc37948426ed315caa5a333874.png@1052w_!web-dynamic.webp
 
 上去奖励领了一半就掉线，什么垃圾啊
 
+
+*****
+
+####  Znesmoc  
+##### 47948#       发表于 2026-7-29 12:14
+
+最后一个所长井了<img src="https://static.stage1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  orangee  
+##### 47949#       发表于 2026-7-29 12:16
+
+没想过bgo还能炸服的……
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
