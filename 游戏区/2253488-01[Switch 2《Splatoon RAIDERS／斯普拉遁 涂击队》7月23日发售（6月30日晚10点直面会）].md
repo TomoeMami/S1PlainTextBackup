@@ -5052,3 +5052,11 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">40小时差不多到头了，一把绝品射速绿管，空中一枪6W+，打到150层，这往后的层数也不说加爆率，彩色武器太难刷了
 
+
+*****
+
+####  星野航  
+##### 656#       发表于 2026-7-29 09:26
+
+刷武器过于痛苦，哪怕是刷杏棱巢穴，爆率也太低了
+
