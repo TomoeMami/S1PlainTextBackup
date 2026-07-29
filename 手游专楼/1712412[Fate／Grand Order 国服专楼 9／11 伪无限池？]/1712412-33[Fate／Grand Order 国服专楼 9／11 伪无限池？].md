@@ -1075,3 +1075,22 @@ BGO的程序员是不是应该祭天了
 
 610石，5宝+1狂阿塔+1呆毛+1迪昂+1红A+1狂茨木+兰陵王
 
+
+*****
+
+####  qixinno1  
+##### 47978#       发表于 2026-7-29 14:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69979187&amp;ptid=1712412" target="_blank">hylq2100 发表于 2026-7-29 14:02</a>
+
+610石，5宝+1狂阿塔+1呆毛+1迪昂+1红A+1狂茨木+兰陵王</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">最狗的一个出现了
+
+
+*****
+
+####  Urakawa  
+##### 47979#       发表于 2026-7-29 14:12
+
+我600石才出一宝，欧吃矛<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
