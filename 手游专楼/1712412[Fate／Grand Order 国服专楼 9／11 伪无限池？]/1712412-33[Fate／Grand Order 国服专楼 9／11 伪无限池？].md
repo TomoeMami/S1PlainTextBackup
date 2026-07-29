@@ -1237,3 +1237,11 @@ BGO的程序员是不是应该祭天了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">死活不出水汇呆的运气全用在这儿了，400石满宝，还没领1000石，爽爆，可以安心去抽剑提妈跟玉兔了
 
+
+*****
+
+####  sandro  
+##### 47995#       发表于 2026-7-29 18:59
+
+福袋new王哈melt，兽蕾+1，还不错
+

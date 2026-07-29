@@ -11792,3 +11792,14 @@ vs code里的插件其实你可以当桌面版使用也没问题的。新开个�
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4031#       发表于 2026-7-29 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69980733&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-7-29 18:16</a>
+
+vs code里的插件其实你可以当桌面版使用也没问题的。新开个空文件夹。我有不是开发人员的同事都是这么用c ...</blockquote>
+我看在VS里还是得登录claude账号，傻逼A畜给我号封了
+
