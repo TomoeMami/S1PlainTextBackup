@@ -5068,3 +5068,16 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 后期地面上生存环境极差，都玩飞天流派了。飞在天上打破冰看大数字还是爽
 
+
+*****
+
+####  stoiorz  
+##### 658#       发表于 2026-7-29 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69975554&amp;ptid=2253488" target="_blank">doraemonmilmil 发表于 2026-7-28 18:37</a>
+
+激辣模式和无限食堂总算开始上头了，逼迫着自己尝试每一个配件的组合，而每次即使失败也能带回怪掉下的装备 ...</blockquote>
+完全不必担心，能过68就能过80，96层前拿build可以乱杀。
+
+拿到不错的武器强化一下过了99,100洗成飞天流，后面到200层又是乱杀。
+

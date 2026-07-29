@@ -808,3 +808,14 @@ rare的锅主要是游戏里面塞的东西太满没工期搞双版本了，地�
 
 —— 來自 realme RMX3700, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  日下轮太  
+##### 75#       发表于 2026-7-29 10:38
+
+想学G胖只靠高速收费站赚钱呗
+但是G胖做到事实垄断了
+索软竞争不说，甚至还要和g胖再斗
+相比任地狱就还是老牌的卖游戏赚钱模式，落后时代了啊<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
