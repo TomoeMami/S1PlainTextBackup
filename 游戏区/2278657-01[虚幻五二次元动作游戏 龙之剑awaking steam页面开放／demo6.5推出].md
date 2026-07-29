@@ -790,3 +790,11 @@ B站上看到好多吹的，商单还是啥
 这游戏的战斗系统是完全米那套 每个人大小2个技能+来回切换人组combo?</blockquote>
 非要说那像终末地或者鸣潮
 
+
+*****
+
+####  真红眼教授  
+##### 86#       发表于 2026-7-29 09:13
+
+这金币也太缺了，完全不够用<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
