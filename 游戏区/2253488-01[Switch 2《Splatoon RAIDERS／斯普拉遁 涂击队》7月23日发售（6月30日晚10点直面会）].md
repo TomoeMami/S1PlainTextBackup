@@ -5179,3 +5179,23 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 已经毕业的大佬们有没有什么避坑tips或者一条龙攻略推荐，感谢 ...</blockquote>
 水晶前期通关奖励给得多没察觉，后期会很缺，要谨慎升级配件，武器在5星绝品前没什么强化必要
 
+
+*****
+
+####  doraemonmilmil  
+##### 669#       发表于 2026-7-29 14:23
+
+我前期就浪费了不少水晶强化武器，不过想想那种浪费对比起后期的需求也只是小巫见大巫了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  doraemonmilmil  
+##### 670#       发表于 2026-7-29 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69977970&amp;ptid=2253488" target="_blank">stoiorz 发表于 2026-7-29 10:44</a>
+
+完全不必担心，能过68就能过80，96层前拿build可以乱杀。
+
+拿到不错的武器强化一下过了99,100洗成飞天流， ...</blockquote>
+晚上回去试试推80，目前其实爬食堂40层也吃力，基本还是要摸清怪路线和配置才好过，只有运气好时一把过三层，暂时还没有开发出乱杀的bd，还是再自己佛系刷一会再参考下网上的bd
+

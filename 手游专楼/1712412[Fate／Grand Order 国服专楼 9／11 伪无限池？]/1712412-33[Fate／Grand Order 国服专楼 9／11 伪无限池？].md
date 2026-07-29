@@ -1094,3 +1094,11 @@ BGO的程序员是不是应该祭天了
 
 我600石才出一宝，欧吃矛<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  doublehit  
+##### 47980#       发表于 2026-7-29 14:19
+
+四百多石五保所长了，有点bt<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

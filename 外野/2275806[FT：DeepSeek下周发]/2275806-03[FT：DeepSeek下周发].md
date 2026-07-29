@@ -11623,3 +11623,15 @@ pi这种就是有人喜欢自己从头搓的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我明白了，就是梁圣为了不让用户对涨价不满做的局。准时发用户肯定要bb几句涨价，但是鸽一会就会只求发布了！
 
+
+*****
+
+####  f77887  
+##### 4015#       发表于 2026-7-29 14:21
+
+Deepseek Harness开启内测了？估计V4正式版和Harness一起发布节点也不远了
+
+x上@MaxForAI 
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

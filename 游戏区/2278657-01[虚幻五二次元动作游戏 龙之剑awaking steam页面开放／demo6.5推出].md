@@ -798,3 +798,14 @@ B站上看到好多吹的，商单还是啥
 
 这金币也太缺了，完全不够用<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiongxingyu  
+##### 87#       发表于 2026-7-29 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69977386&amp;ptid=2278657" target="_blank">真红眼教授 发表于 2026-7-29 09:13</a>
+
+这金币也太缺了，完全不够用</blockquote>
+该叮就叮，不影响啥平衡性的，单机游戏没必要和自己过不去，体力系统和刷本那是手游提日活的机制<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
