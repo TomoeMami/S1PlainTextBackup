@@ -926,3 +926,80 @@ dfgdgd.jpg
 
 还出双黄蛋了，最后900石不到5宝，爽，这么多弹药后面角色抽起来就没啥压力了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  麻花疼  
+##### 47964#       发表于 2026-7-29 13:26
+
+这回太非了。
+
+2100石，100护符，，合计800抽，抽了5宝，只歪了个仇尼托。
+
+算是还债了。。。。
+
+*****
+
+####  flyzzhj  
+##### 47965#       发表于 2026-7-29 13:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所长1宝就吃了大保底，还好后面1000石凑了4宝还不错
+
+*****
+
+####  麻花疼  
+##### 47966#       发表于 2026-7-29 13:29
+
+好了这回又炸服了。
+
+BGO的程序员是不是应该祭天了
+
+
+*****
+
+####  zore  
+##### 47967#       发表于 2026-7-29 13:31
+
+这服务器是真傻逼
+
+这都2026年了还能这么炸<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno1  
+##### 47968#       发表于 2026-7-29 13:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">抽卡前
+
+<img src="https://img.stage1st.com/forum/202607/29/133438upf44uerygqa47pu.png" referrerpolicy="no-referrer">
+
+<strong>UY5ZH2O@SF]9R49[6TZ${MI.png</strong> (7.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-29 13:34 上传
+
+抽卡后
+
+<img src="https://img.stage1st.com/forum/202607/29/133455immqlqcbvybyj1lh.png" referrerpolicy="no-referrer">
+
+<strong>AOXH`G5RBG[L3IA03`8NDVX.png</strong> (469.73 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-29 13:34 上传
+
+*****
+
+####  麻花疼  
+##### 47969#       发表于 2026-7-29 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69979036&amp;ptid=1712412" target="_blank">qixinno1 发表于 2026-7-29 13:34</a>
+
+抽卡前
+
+抽卡后</blockquote>
+好歹出货了。
+
+我第一次炸服前抽的十连都不知道是啥，刚才1点多上去看才发现全是绿方块。
+
