@@ -1287,3 +1287,23 @@ BGO的程序员是不是应该祭天了
 
 总共六百石头，一宝所长一宝奥德修斯一宝钓鱼佬……溜了溜了
 
+
+*****
+
+####  麻花疼  
+##### 48001#       发表于 2026-7-29 21:19
+
+ 本帖最后由 麻花疼 于 2026-7-29 21:21 编辑 
+
+仓鼠模式再次启动，目前有5280个石头，330个护符。
+
+先囤到明年再说。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202607/29/212103xmgzjd68eqppuvqo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.29 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-29 21:21 上传
+
