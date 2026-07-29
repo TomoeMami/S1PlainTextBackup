@@ -855,3 +855,30 @@ a72907cd918cc37948426ed315caa5a333874.png@1052w_!web-dynamic.webp
 
 千石满宝所长 两个福袋都是双黄 阿姨待我不薄
 
+
+*****
+
+####  一个陆仁贾  
+##### 47959#       发表于 2026-7-29 12:56
+
+400石头下去不见所长，晚点再抽……
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  kyonkoism  
+##### 47960#       发表于 2026-7-29 13:00
+
+批里批里的答辩服务器有感觉么
+
+
+*****
+
+####  Kon-El  
+##### 47961#       发表于 2026-7-29 13:03
+
+1000石30呼符所长三宝，剩下的石头留给弓提妈了<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
