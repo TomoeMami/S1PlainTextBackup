@@ -855,3 +855,14 @@ rare的锅主要是游戏里面塞的东西太满没工期搞双版本了，地�
 
 —— 来自 HUAWEI SLG-W10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  riin2  
+##### 79#         楼主| 发表于 2026-7-30 04:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69974838&amp;ptid=2286262" target="_blank">shpdw 发表于 2026-7-28 13:22</a>
+
+我现在索尼上最想玩的还真是小机器人，但你不能只有一个小机器人。你把jp关得只剩小机器人一个组那我的ps5 ...</blockquote>
+还有gta6，这将是我今年第二次开机ps5（第一次开机给了死亡搁浅2）
+
