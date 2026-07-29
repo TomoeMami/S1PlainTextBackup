@@ -882,3 +882,47 @@ a72907cd918cc37948426ed315caa5a333874.png@1052w_!web-dynamic.webp
 
 —— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  khxooo  
+##### 47962#       发表于 2026-7-29 13:19
+
+ 本帖最后由 khxooo 于 2026-7-29 13:23 编辑 
+
+大号1200石头5宝所长，算可以吧。
+
+本想录个视频保存一下的，谁知道一直炸，不录了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+dfgdgd.jpg
+(360.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-29 13:21 上传
+
+<img src="https://img.stage1st.com/forum/202607/29/132140fzaasatnptoi3m79.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 47963#       发表于 2026-7-29 13:23
+
+<img src="https://img.stage1st.com/forum/202607/29/132301seuqpwrf5uuu2697.jpg" referrerpolicy="no-referrer">
+
+<strong>S6A)NJ(IDJW2HHW(KZ`WF0Z_tmb.jpg</strong> (165.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-29 13:23 上传
+
+<img src="https://img.stage1st.com/forum/202607/29/132300mfhyera18xxpd2vy.jpg" referrerpolicy="no-referrer">
+
+<strong>@9)1W(SJ8ROQB~3N0AVH_tmb.jpg</strong> (167.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-29 13:23 上传
+
+还出双黄蛋了，最后900石不到5宝，爽，这么多弹药后面角色抽起来就没啥压力了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
