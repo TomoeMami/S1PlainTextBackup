@@ -11921,3 +11921,14 @@ opencode明显不是大而全吧，只是tui和desktop界面在一众开源产�
 
 然后5h限额制度将会回归<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 4044#       发表于 2026-7-30 01:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69982565&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-7-30 01:27</a>
+
+有的skill会调用mcp，然后在我这边，Deepseek经常给我上演绕过skill按照自己的理解直接调用mcp的绝招。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">简直心肺停止，得随时检查思维链看他有没有什么新的小巧思
+
