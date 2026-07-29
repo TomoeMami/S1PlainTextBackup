@@ -5265,3 +5265,11 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 倒是刷到头像的一个消防栓，也还是算不错<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hl氏  
+##### 676#       发表于 2026-7-29 23:20
+
+唉刷不出水晶真恼火，影响玩家换配件的乐趣，缩减了游戏时间，完全负设计
+
