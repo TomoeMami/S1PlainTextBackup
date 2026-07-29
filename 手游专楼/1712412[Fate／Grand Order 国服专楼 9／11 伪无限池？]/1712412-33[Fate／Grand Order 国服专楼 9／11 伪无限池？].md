@@ -1261,3 +1261,11 @@ BGO的程序员是不是应该祭天了
 
 打本的时候发现好友固定应该是回来了。
 
+
+*****
+
+####  dhddhh  
+##### 47998#       发表于 2026-7-29 20:47
+
+果然不该这个时候追求7宝，最后干出去1848个石头，5宝明明才804个石头<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
