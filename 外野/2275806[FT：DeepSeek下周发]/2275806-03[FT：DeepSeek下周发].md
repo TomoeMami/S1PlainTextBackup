@@ -11911,3 +11911,13 @@ opencode明显不是大而全吧，只是tui和desktop界面在一众开源产�
 话说现在v4版本好像真的对harness适配不行，经常性的无视skill，举个例子，我让他自己构建的文件档案，他再 ...</blockquote>
 有的skill会调用mcp，然后在我这边，Deepseek经常给我上演绕过skill按照自己的理解直接调用mcp的绝招。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 4043#       发表于 2026-7-30 01:52
+
+小地瓜转的tibo消息，31号会有一次codex重置。
+
+然后5h限额制度将会回归<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

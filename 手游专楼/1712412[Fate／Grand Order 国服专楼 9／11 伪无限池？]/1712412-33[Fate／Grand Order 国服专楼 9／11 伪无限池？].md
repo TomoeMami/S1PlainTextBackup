@@ -1333,3 +1333,11 @@ BGO的程序员是不是应该祭天了
 
 两个自选和福袋都是凑数的+1 月披反到是扔了几呼符出了
 
+
+*****
+
+####  东之伊甸  
+##### 48005#       发表于 2026-7-30 01:44
+
+游戏下载回来推了一会主线，又把游戏删了，没耐心玩了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
