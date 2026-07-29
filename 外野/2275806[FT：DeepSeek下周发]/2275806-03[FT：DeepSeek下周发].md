@@ -11655,3 +11655,23 @@ x上@MaxForAI </blockquote>
 
 v4出来后就一直用codewhale(以前叫deepseek tui）社区热度还算可以的harness 来配合ds搞编程。已经习惯了。没怎么用其他的作为对比。反正我自己体验还可以。
 
+
+*****
+
+####  →熙←  
+##### 4018#       发表于 2026-7-29 16:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">快发布啊,不会真是路由到fabel5吧
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4019#       发表于 2026-7-29 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69979418&amp;ptid=2275806" target="_blank">费雷拉 发表于 2026-7-29 14:43</a>
+v4出来后就一直用codewhale(以前叫deepseek tui）社区热度还算可以的harness 来配合ds搞编程。已经习惯了。 ...</blockquote>
+我一开始也是用deepseek tui，后来我发现这个玩意拉起多个子agent必卡死，就换opencode了，这玩意局限性挺大的
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
