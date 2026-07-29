@@ -11755,3 +11755,40 @@ opencode确实不咋样，但能随便接api还有桌面版的驾驭软件里，
 
 怎么网页端联网又不能用了
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4028#       发表于 2026-7-29 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69980650&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-7-29 18:00</a>
+就写代码而言，现在也就codex的专有格式比较麻烦，其他的工具接自己的api都很方便啊，用cc switch就可以 ...</blockquote>
+我不是超能力者啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还是喜欢有图形ui的桌面版，a畜个**把我年初注册从来没用过的号封了，claudecode桌面版打不开，本身我有gpt订阅，所以能用的也就opencode和zcode这些了
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4029#       发表于 2026-7-29 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69980599&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-7-29 17:51</a>
+opencode用多模态模型上传几张大图然后界面卡的要死是怎么回事……</blockquote>
+切换它那个弱智新版ui应该就能解决
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  crow_wine  
+##### 4030#       发表于 2026-7-29 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69980706&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-29 18:11</a>
+切换它那个弱智新版ui应该就能解决
+
+—— 来自 HUAWEI SGU-AL10, Android 12, 鹅球 v4.0 ...</blockquote>
+vs code里的插件其实你可以当桌面版使用也没问题的。新开个空文件夹。我有不是开发人员的同事都是这么用cc的
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
