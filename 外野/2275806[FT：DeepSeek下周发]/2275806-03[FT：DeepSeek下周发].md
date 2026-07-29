@@ -11684,3 +11684,25 @@ v4出来后就一直用codewhale(以前叫deepseek tui）社区热度还算可�
 harness这东西，做起来容易，但是要做好需要大量的工程优化和反馈。。最操蛋的是这些工程优化还可能因为模型进展变得没用。然后如果要支持多种模型的话又会有各种corner case。
 结果是一团混沌垃圾代码，像opencode之类的大而全bug一堆。反而pi这种克制的做法我感觉是比较合适的<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  crow_wine  
+##### 4021#       发表于 2026-7-29 17:28
+
+opencode 感觉很有问题啊，用glm5.2分析一个简单的问题，快一个小时过去来，把周额度蹬了15%，屁结果都没出来，还搁那读取文件。
+
+同样的问题，用vs code 的copilot接v4,虽然分析一会5分钟左右，但是结果就出来来。公司有提供glm5.2接cc用的，感觉没那么蠢的。opencode的又慢又蠢
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4022#       发表于 2026-7-29 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69980469&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-7-29 17:28</a>
+opencode 感觉很有问题啊，用glm5.2分析一个简单的问题，快一个小时过去来，把周额度蹬了15%，屁结果都没出 ...</blockquote>
+opencode确实不咋样，但能随便接api还有桌面版的驾驭软件里，它就算不错的了，你试试zcode，连基础的安全约束和工具调用都没做好，直接给我覆盖同名文件不带吭一声的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
