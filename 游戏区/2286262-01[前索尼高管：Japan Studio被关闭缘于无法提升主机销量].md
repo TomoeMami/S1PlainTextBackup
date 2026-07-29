@@ -827,3 +827,21 @@ rare的锅主要是游戏里面塞的东西太满没工期搞双版本了，地�
 
 不然呢，还能因为是资本以外的原因吗
 
+
+*****
+
+####  君往何处  
+##### 77#       发表于 2026-7-29 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69968054&amp;ptid=2286262" target="_blank">孔方兄 发表于 2026-7-26 19:33</a>
+
+对啊，从伊苏10开始就是转变
+
+伊苏10甚至是以ns开发的
+
+贴吧里看到过一个转老外的数据，伊苏10的ns版一个月 ...</blockquote>
+按近藤的说法YS10的销量 PS5:NS:PS4 是 5:3:2
+[https://nintendoeverything.com/f ... ys-x-nordics-sales/](https://nintendoeverything.com/falcom-president-on-graphics-criticism-and-ys-x-nordics-sales/)
+
+这文章里的时间应该是YS10发售2个月之后左右，不知道后面是不是有变化
+
