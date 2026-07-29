@@ -11803,3 +11803,25 @@ vs code里的插件其实你可以当桌面版使用也没问题的。新开个�
 vs code里的插件其实你可以当桌面版使用也没问题的。新开个空文件夹。我有不是开发人员的同事都是这么用c ...</blockquote>
 我看在VS里还是得登录claude账号，傻逼A畜给我号封了
 
+
+*****
+
+####  crow_wine  
+##### 4032#       发表于 2026-7-29 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69980909&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-29 18:56</a>
+我看在VS里还是得登录claude账号，傻逼A畜给我号封了</blockquote>
+用cc switch配不同的api就可以不用登陆了，我连A÷账号都没有
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  serj005  
+##### 4033#       发表于 2026-7-29 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69980387&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-29 17:16</a>
+harness这东西，做起来容易，但是要做好需要大量的工程优化和反馈。。最操蛋的是这些工程优化还可能因为模 ...</blockquote>
+opencode明显不是大而全吧，只是tui和desktop界面在一众开源产品相对最完善，功能广度上已经很克制了，某些方面相比其他小点的开源agent都算简陋。
+真大而全一泡污的是各种魔改加组件的oh my系列，都是ai自我反刍搓出来，每天更新几十个提交疯狂改自己的bug。
+
