@@ -5166,3 +5166,16 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 已经毕业的大佬们有没有什么避坑tips或者一条龙攻略推荐，感谢
 
+
+*****
+
+####  hl氏  
+##### 668#       发表于 2026-7-29 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69978484&amp;ptid=2253488" target="_blank">二十二颗牛油果 发表于 2026-7-29 11:58</a>
+
+卡带明天终于要到了（大概
+
+已经毕业的大佬们有没有什么避坑tips或者一条龙攻略推荐，感谢 ...</blockquote>
+水晶前期通关奖励给得多没察觉，后期会很缺，要谨慎升级配件，武器在5星绝品前没什么强化必要
+

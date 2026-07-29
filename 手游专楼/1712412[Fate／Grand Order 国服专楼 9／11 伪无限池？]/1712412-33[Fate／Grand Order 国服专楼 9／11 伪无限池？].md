@@ -702,3 +702,59 @@ a72907cd918cc37948426ed315caa5a333874.png@1052w_!web-dynamic.webp
 
 小号900石头左右满宝所长<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  麻花疼  
+##### 47941#       发表于 2026-7-29 12:06
+
+我特么正抽卡呢就炸服了。。。
+
+*****
+
+####  dawning  
+##### 47942#       发表于 2026-7-29 12:07
+
+正抽卡呢，炸服了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alfredno2  
+##### 47943#       发表于 2026-7-29 12:09
+
+回收你们的满宝所长~~
+
+*****
+
+####  khxooo  
+##### 47944#       发表于 2026-7-29 12:09
+
+妈的，明知道今天是所长，没有做准备的吗？<img src="https://static.stage1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  马桶3  
+##### 47945#       发表于 2026-7-29 12:11
+
+我还在选7骑士准备new个图鉴呢就炸了
+
+*****
+
+####  shimotsuki14  
+##### 47946#       发表于 2026-7-29 12:12
+
+三十石无事发生
+十九张呼符所长来了。
+
+这两天把奏章四打完再冲了
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  sandro  
+##### 47947#       发表于 2026-7-29 12:13
+
+上去奖励领了一半就掉线，什么垃圾啊
+
