@@ -11736,3 +11736,22 @@ OpenCode我感觉就是对原生多模态的支持差点意思，别的方面还
 我一开始也是用deepseek tui，后来我发现这个玩意拉起多个子agent必卡死，就换opencode了，这玩意局限性 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">opencode用多模态模型上传几张大图然后界面卡的要死是怎么回事……
 
+
+*****
+
+####  crow_wine  
+##### 4026#       发表于 2026-7-29 18:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69980503&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-29 17:33</a>
+
+opencode确实不咋样，但能随便接api还有桌面版的驾驭软件里，它就算不错的了，你试试zcode，连基础的安全 ...</blockquote>
+就写代码而言，现在也就codex的专有格式比较麻烦，其他的工具接自己的api都很方便啊，用cc switch就可以来啊。而且写代码还是要在ide里比较方便，选中一段代码@到对话框里太重要了
+
+
+*****
+
+####  qz66618  
+##### 4027#       发表于 2026-7-29 18:03
+
+怎么网页端联网又不能用了
+
