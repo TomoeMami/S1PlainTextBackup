@@ -1203,3 +1203,21 @@ BGO的程序员是不是应该祭天了
 
 五月给剑r补宝，花了700多石头就抽出来一张，本来还指望着周年欧一点，结果所长刚吃了一个保底，马上又要第二个保底了
 
+
+*****
+
+####  星尘的记忆  
+##### 47992#       发表于 2026-7-29 17:49
+
+<img src="https://img.stage1st.com/forum/202607/29/174847ifmm4w3ocfsccu38.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-07-29-16-53-46-536_com.bilibili.fatego.jpg</strong> (563.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-29 17:48 上传
+
+第一次 3 宝
+
+——来自 23113RKC6C 上的 [S1er 客户端](https://s1er.pages.dev)
+

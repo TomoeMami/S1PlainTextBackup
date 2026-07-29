@@ -11706,3 +11706,33 @@ opencode确实不咋样，但能随便接api还有桌面版的驾驭软件里，
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  StarForceTi  
+##### 4023#       发表于 2026-7-29 17:44
+
+过几个版本再用吧
+
+ds-tui 那个纯粹是外行vibe出来的东西
+
+*****
+
+####  紧那罗  
+##### 4024#       发表于 2026-7-29 17:45
+
+OpenCode我感觉就是对原生多模态的支持差点意思，别的方面还好吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  秦南心  
+##### 4025#       发表于 2026-7-29 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69980261&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-29 16:53</a>
+
+我一开始也是用deepseek tui，后来我发现这个玩意拉起多个子agent必卡死，就换opencode了，这玩意局限性 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">opencode用多模态模型上传几张大图然后界面卡的要死是怎么回事……
+
