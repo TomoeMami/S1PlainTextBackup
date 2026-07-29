@@ -11825,3 +11825,13 @@ harness这东西，做起来容易，但是要做好需要大量的工程优化�
 opencode明显不是大而全吧，只是tui和desktop界面在一众开源产品相对最完善，功能广度上已经很克制了，某些方面相比其他小点的开源agent都算简陋。
 真大而全一泡污的是各种魔改加组件的oh my系列，都是ai自我反刍搓出来，每天更新几十个提交疯狂改自己的bug。
 
+
+*****
+
+####  goranger  
+##### 4034#       发表于 2026-7-29 19:28
+
+别学kimi做云上harness就行，上来开个agent集群逐行读代码，五分钟烧光限额
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
