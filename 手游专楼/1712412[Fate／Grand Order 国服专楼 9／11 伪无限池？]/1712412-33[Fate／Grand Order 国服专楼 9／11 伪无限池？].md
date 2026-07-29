@@ -1046,3 +1046,32 @@ BGO的程序员是不是应该祭天了
 
 700石3宝，收手了收手了，还剩630石头<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zore  
+##### 47975#       发表于 2026-7-29 13:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69979076&amp;ptid=1712412" target="_blank">qixinno1 发表于 2026-7-29 13:41</a>
+
+1740五宝只能说亚洲人水平 现在又开始疯狂断联强化都没法点了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">那个期望图也是差不多中等水平，就老久之前那个
+
+*****
+
+####  qixinno1  
+##### 47976#       发表于 2026-7-29 13:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69979148&amp;ptid=1712412" target="_blank">zore 发表于 2026-7-29 13:55</a>
+
+那个期望图也是差不多中等水平，就老久之前那个</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">三到四时太非了 三宝时1876石头 四宝就只剩766了
+
+
+*****
+
+####  hylq2100  
+##### 47977#       发表于 2026-7-29 14:02
+
+610石，5宝+1狂阿塔+1呆毛+1迪昂+1红A+1狂茨木+兰陵王
+
