@@ -809,3 +809,11 @@ B站上看到好多吹的，商单还是啥
 这金币也太缺了，完全不够用</blockquote>
 该叮就叮，不影响啥平衡性的，单机游戏没必要和自己过不去，体力系统和刷本那是手游提日活的机制<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伯利恒星  
+##### 88#       发表于 2026-7-29 17:19
+
+玩了会，说实话真还不如o了，手感有点怪，战斗也没意思，角色精致程度还不如o能免费拿的四星有没有懂的。纯就占个不抽卡罢了，问题是98也不便宜了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

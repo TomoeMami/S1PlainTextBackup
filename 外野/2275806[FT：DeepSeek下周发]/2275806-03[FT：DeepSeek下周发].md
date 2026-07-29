@@ -11675,3 +11675,12 @@ v4出来后就一直用codewhale(以前叫deepseek tui）社区热度还算可�
 
 —— 来自 HUAWEI SGU-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  overflowal  
+##### 4020#       发表于 2026-7-29 17:16
+
+harness这东西，做起来容易，但是要做好需要大量的工程优化和反馈。。最操蛋的是这些工程优化还可能因为模型进展变得没用。然后如果要支持多种模型的话又会有各种corner case。
+结果是一团混沌垃圾代码，像opencode之类的大而全bug一堆。反而pi这种克制的做法我感觉是比较合适的<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
