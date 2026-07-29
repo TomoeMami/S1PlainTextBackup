@@ -714,3 +714,16 @@ DEMO虽然和贝雅还没展开毕竟有原作在，而游戏里维吉尔也 ...
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  牧月萌  
+##### 43#       发表于 2026-7-29 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69981803&amp;ptid=2285709" target="_blank">modedd 发表于 2026-7-29 22:13</a>
+吹风效果类似虽然数值低一点但是作为诗人武器出率高一点，还挺好糊的
+
+—— 来自 鹅球 v3.5.99 ...</blockquote>
+吹风也能玩而且有击退效果安全一点，但是相比激光有个挺大的问题是吹风攻速太慢了，空档时间很长<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+激光直接打加攻击减攻速那张卡都比吹风间隔短
+
