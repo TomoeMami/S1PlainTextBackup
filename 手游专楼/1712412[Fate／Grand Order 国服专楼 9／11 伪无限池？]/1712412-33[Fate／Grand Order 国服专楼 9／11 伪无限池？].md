@@ -1307,3 +1307,11 @@ BGO的程序员是不是应该祭天了
 
 2026-7-29 21:21 上传
 
+
+*****
+
+####  khxooo  
+##### 48002#       发表于 2026-7-29 21:39
+
+小号疯了，打算给玛尔达开个图鉴，谁知道懒贞+加拉特呀，想给徐福开图鉴，抽到伯爵2宝才出<img src="https://static.stage1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+
