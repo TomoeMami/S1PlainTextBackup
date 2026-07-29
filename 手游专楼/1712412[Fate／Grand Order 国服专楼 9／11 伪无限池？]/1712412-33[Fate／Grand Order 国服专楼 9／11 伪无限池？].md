@@ -1031,3 +1031,18 @@ BGO的程序员是不是应该祭天了
 我第一次炸服前抽的十连都不知道是啥，刚才1点多上去看才发现全是绿方块。 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">1740五宝只能说亚洲人水平 现在又开始疯狂断联强化都没法点了
 
+
+*****
+
+####  BN桑  
+##### 47973#       发表于 2026-7-29 13:47
+
+800石头所长*4，太公*1，还去把老福请回了家，我已经满足了，剩下700石头备战泳装了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  izumilee  
+##### 47974#       发表于 2026-7-29 13:48
+
+700石3宝，收手了收手了，还剩630石头<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
