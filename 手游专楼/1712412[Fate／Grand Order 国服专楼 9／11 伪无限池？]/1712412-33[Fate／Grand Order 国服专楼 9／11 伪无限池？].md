@@ -1269,3 +1269,13 @@ BGO的程序员是不是应该祭天了
 
 果然不该这个时候追求7宝，最后干出去1848个石头，5宝明明才804个石头<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GALLADE  
+##### 47999#       发表于 2026-7-29 21:06
+
+900石满宝，然后一发10连批公主补宝成功
+
+真的要泪流满面了
+

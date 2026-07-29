@@ -845,3 +845,13 @@ rare的锅主要是游戏里面塞的东西太满没工期搞双版本了，地�
 
 这文章里的时间应该是YS10发售2个月之后左右，不知道后面是不是有变化
 
+
+*****
+
+####  mirrorsidee  
+##### 78#       发表于 2026-7-29 20:59
+
+我最搞不懂的就是在前几年索尼游戏全都移植到PC上时，Japan studio没几个游戏上PC，神经吧索尼移植一下PC能花几个钱。我就想玩一下六十帧的重力少女2<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SLG-W10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
