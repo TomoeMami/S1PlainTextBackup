@@ -5036,3 +5036,11 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">分身就第一击发动吧，三连后两发没分身来着
 
+
+*****
+
+####  无辄辄  
+##### 654#       发表于 2026-7-29 08:48
+
+这个游戏的游戏性质导致了绝品武器里面只有特化射速和蓄力的武器成为了独一档的存在，其他什么墨汁效率特化都很幽默。
+
