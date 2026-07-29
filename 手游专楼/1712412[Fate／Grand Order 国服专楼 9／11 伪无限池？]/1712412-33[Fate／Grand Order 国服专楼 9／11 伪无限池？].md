@@ -793,3 +793,50 @@ a72907cd918cc37948426ed315caa5a333874.png@1052w_!web-dynamic.webp
 
 尼玛350个十连三宝所长，一个五星都没，四星全是飞哥贝爷这种金方块，收工了
 
+
+*****
+
+####  zore  
+##### 47952#       发表于 2026-7-29 12:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们怎么抽的卡
+
+服务器都炸了进不去
+
+*****
+
+####  一个陆仁贾  
+##### 47953#       发表于 2026-7-29 12:36
+
+这服务器真是有够烂的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  一个陆仁贾  
+##### 47954#       发表于 2026-7-29 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69978733&amp;ptid=1712412" target="_blank">zore 发表于 2026-7-29 12:36</a>
+你们怎么抽的卡
+
+服务器都炸了进不去</blockquote>
+狂点重试
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  天灬逸  
+##### 47955#       发表于 2026-7-29 12:43
+
+短短一小时进不去游戏无限重连2次了...
+
+*****
+
+####  qixinno1  
+##### 47956#       发表于 2026-7-29 12:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">已经进不去游戏了
+
