@@ -5044,3 +5044,11 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 这个游戏的游戏性质导致了绝品武器里面只有特化射速和蓄力的武器成为了独一档的存在，其他什么墨汁效率特化都很幽默。
 
+
+*****
+
+####  ParukiaMKII  
+##### 655#       发表于 2026-7-29 09:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">40小时差不多到头了，一把绝品射速绿管，空中一枪6W+，打到150层，这往后的层数也不说加爆率，彩色武器太难刷了
+
