@@ -505,3 +505,16 @@ Google play直接买plus会员，支付是走play的途径，国内信用卡也�
 
 近期能白嫖最多的肯定是workbuddy吧？不过腾讯的软件，不少人应该嫌弃的
 
+
+*****
+
+####  不让用大写  
+##### 45#       发表于 2026-7-29 09:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69976643&amp;ptid=2286293" target="_blank">ayanamilin 发表于 2026-7-28 23:06</a>
+
+你要这么说的话，阿里百炼注册后每个模型送一百万token，而且出各种新模型都会给你送100w。
+
+但其实没啥 ...</blockquote>
+看用途吧  豆包这个每天200w完全够我4个人写文案用了
+
