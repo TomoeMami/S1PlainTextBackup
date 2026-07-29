@@ -11883,3 +11883,13 @@ opencode明显不是大而全吧，只是tui和desktop界面在一众开源产�
 
 菊花拖累国产大模型发展，真的太坏了<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">第一次这么恨菊花
 
+
+*****
+
+####  goranger  
+##### 4040#       发表于 2026-7-30 00:23
+
+目前看到两个截图：1.L站那个说，deepseek内部其实根本没deadline；2.泥潭q群一个x截图，八月第一周周五可能…..看来该干啥干啥没啥好期待的了。要是能出个官方的token套餐就好了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
