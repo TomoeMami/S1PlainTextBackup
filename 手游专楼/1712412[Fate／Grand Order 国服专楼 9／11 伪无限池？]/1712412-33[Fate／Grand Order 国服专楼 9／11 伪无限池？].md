@@ -1315,3 +1315,13 @@ BGO的程序员是不是应该祭天了
 
 小号疯了，打算给玛尔达开个图鉴，谁知道懒贞+加拉特呀，想给徐福开图鉴，抽到伯爵2宝才出<img src="https://static.stage1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zore  
+##### 48003#       发表于 2026-7-29 23:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">福袋弓凛4=1还NM能中了33.3333%几率的弓贞
+
+服了
+

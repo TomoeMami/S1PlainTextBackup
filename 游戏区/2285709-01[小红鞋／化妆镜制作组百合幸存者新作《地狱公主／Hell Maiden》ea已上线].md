@@ -727,3 +727,17 @@ DEMO虽然和贝雅还没展开毕竟有原作在，而游戏里维吉尔也 ...
 吹风也能玩而且有击退效果安全一点，但是相比激光有个挺大的问题是吹风攻速太慢了，空档时间很长<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 激光直接打加攻击减攻速那张卡都比吹风间隔短
 
+
+*****
+
+####  modedd  
+##### 44#         楼主| 发表于 2026-7-29 23:09
+
+ 本帖最后由 modedd 于 2026-7-29 23:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69981900&amp;ptid=2285709" target="_blank">牧月萌 发表于 2026-7-29 22:31</a>
+吹风也能玩而且有击退效果安全一点，但是相比激光有个挺大的问题是吹风攻速太慢了，空档时间很长
+激光直 ...</blockquote>
+那毕竟激光就是目前公认最强武器，吹风还是作为一个没抽到激光情况下的次优解
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
