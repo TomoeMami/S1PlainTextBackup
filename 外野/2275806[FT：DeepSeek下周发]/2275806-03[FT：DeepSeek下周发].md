@@ -11647,3 +11647,11 @@ Deepseek Harness开启内测了？估计V4正式版和Harness一起发布节点�
 x上@MaxForAI </blockquote>
 内测可以测几个月<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  费雷拉  
+##### 4017#       发表于 2026-7-29 14:43
+
+v4出来后就一直用codewhale(以前叫deepseek tui）社区热度还算可以的harness 来配合ds搞编程。已经习惯了。没怎么用其他的作为对比。反正我自己体验还可以。
+
