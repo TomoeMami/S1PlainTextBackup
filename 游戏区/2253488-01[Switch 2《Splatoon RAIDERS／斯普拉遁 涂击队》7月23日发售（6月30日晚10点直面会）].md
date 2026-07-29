@@ -5273,3 +5273,14 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 唉刷不出水晶真恼火，影响玩家换配件的乐趣，缩减了游戏时间，完全负设计
 
+
+*****
+
+####  mario21a  
+##### 677#       发表于 2026-7-29 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69976955&amp;ptid=2253488" target="_blank">hl氏 发表于 2026-7-29 01:56</a>
+
+三重分身三次连续发动，这样的砸地谁用谁不按摩大脑皮层 ​​​</blockquote>
+个人觉得到后期还是砸地两次就足够衔接主武器或其他配件了，足以脱困+集中冰冻敌人，不然技能发动流逝时间过长有些影响战场节奏了
+
