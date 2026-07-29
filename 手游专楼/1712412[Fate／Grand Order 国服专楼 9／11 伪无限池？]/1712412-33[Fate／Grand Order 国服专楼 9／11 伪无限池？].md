@@ -1003,3 +1003,31 @@ BGO的程序员是不是应该祭天了
 
 我第一次炸服前抽的十连都不知道是啥，刚才1点多上去看才发现全是绿方块。
 
+
+*****
+
+####  kyonkoism  
+##### 47970#       发表于 2026-7-29 13:37
+
+赌霸王花出了阿比，唉，福袋我就没有真正命中过想要的，只能说还好没出小男孩<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 47971#       发表于 2026-7-29 13:37
+
+抽个卡一次害的按十几次重试，真nm服了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno1  
+##### 47972#       发表于 2026-7-29 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69979041&amp;ptid=1712412" target="_blank">麻花疼 发表于 2026-7-29 13:35</a>
+
+好歹出货了。
+
+我第一次炸服前抽的十连都不知道是啥，刚才1点多上去看才发现全是绿方块。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">1740五宝只能说亚洲人水平 现在又开始疯狂断联强化都没法点了
+
