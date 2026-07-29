@@ -11901,3 +11901,13 @@ opencode明显不是大而全吧，只是tui和desktop界面在一众开源产�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">话说现在v4版本好像真的对harness适配不行，经常性的无视skill，举个例子，我让他自己构建的文件档案，他再找的时候就完全不按一开始的档案设定构架去找，自己瞎找然后告诉我找不到了
 
+
+*****
+
+####  不见不散  
+##### 4042#       发表于 2026-7-30 01:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69982509&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-7-30 01:02</a>
+话说现在v4版本好像真的对harness适配不行，经常性的无视skill，举个例子，我让他自己构建的文件档案，他再 ...</blockquote>
+有的skill会调用mcp，然后在我这边，Deepseek经常给我上演绕过skill按照自己的理解直接调用mcp的绝招。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
