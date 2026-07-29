@@ -245,3 +245,13 @@
 
 只能说不愧是女王队，目前队员装备都满在线的
 
+
+*****
+
+####  57042711  
+##### 1498#       发表于 2026-7-29 16:31
+
+ns2这个机能…能把人物照顾到就很不错了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
