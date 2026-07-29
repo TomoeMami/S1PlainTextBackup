@@ -11835,3 +11835,17 @@ opencode明显不是大而全吧，只是tui和desktop界面在一众开源产�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4035#       发表于 2026-7-29 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69981024&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-7-29 19:23</a>
+用cc switch配不同的api就可以不用登陆了，我连A÷账号都没有
+
+—— 来自 HUAWEI ALN-AL00, Android 12,  ...</blockquote>
+谢谢，搞定了，但还是看不懂怎么用<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
