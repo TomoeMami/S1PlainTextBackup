@@ -5255,3 +5255,13 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 我速度和力量的宝物关都是喊救援过的。
 
+
+*****
+
+####  星野航  
+##### 675#       发表于 2026-7-29 21:12
+
+刷不出任何一把绝品小绿or4k
+
+倒是刷到头像的一个消防栓，也还是算不错<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
