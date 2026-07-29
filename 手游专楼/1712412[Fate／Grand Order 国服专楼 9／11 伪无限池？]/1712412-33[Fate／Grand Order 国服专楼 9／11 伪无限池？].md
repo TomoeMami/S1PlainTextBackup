@@ -840,3 +840,18 @@ a72907cd918cc37948426ed315caa5a333874.png@1052w_!web-dynamic.webp
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">已经进不去游戏了
 
+
+*****
+
+####  Urakawa  
+##### 47957#       发表于 2026-7-29 12:53
+
+炸的这么狠吗？我还在推奏四，没啥感觉
+
+*****
+
+####  starcraft3  
+##### 47958#       发表于 2026-7-29 12:55
+
+千石满宝所长 两个福袋都是双黄 阿姨待我不薄
+
