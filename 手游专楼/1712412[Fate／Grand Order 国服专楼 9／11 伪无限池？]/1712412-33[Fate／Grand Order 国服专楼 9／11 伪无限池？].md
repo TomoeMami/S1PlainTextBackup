@@ -1102,3 +1102,20 @@ BGO的程序员是不是应该祭天了
 
 四百多石五保所长了，有点bt<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  collincollin  
+##### 47981#       发表于 2026-7-29 14:26
+
+总统陛下回到了她忠诚的迦勒底
+
+*****
+
+####  盲目者  
+##### 47982#       发表于 2026-7-29 14:31
+
+所长3宝收手，准备开福袋发现不知啥时候把屯的付费石当免费石用了，道心破碎
+
+—— 来自 Xiaomi M332BF, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

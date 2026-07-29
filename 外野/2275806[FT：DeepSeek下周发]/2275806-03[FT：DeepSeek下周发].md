@@ -11635,3 +11635,15 @@ x上@MaxForAI
 
 —— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  overflowal  
+##### 4016#       发表于 2026-7-29 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69979299&amp;ptid=2275806" target="_blank">f77887 发表于 2026-7-29 14:21</a>
+Deepseek Harness开启内测了？估计V4正式版和Harness一起发布节点也不远了
+
+x上@MaxForAI </blockquote>
+内测可以测几个月<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
