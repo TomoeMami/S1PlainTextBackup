@@ -11875,3 +11875,11 @@ opencode明显不是大而全吧，只是tui和desktop界面在一众开源产�
 
 明天或者后天应该会有……吧？如果没有一定是华子的锅，嗯<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2017.05.04  
+##### 4039#       发表于 2026-7-29 23:59
+
+菊花拖累国产大模型发展，真的太坏了<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">第一次这么恨菊花
+
