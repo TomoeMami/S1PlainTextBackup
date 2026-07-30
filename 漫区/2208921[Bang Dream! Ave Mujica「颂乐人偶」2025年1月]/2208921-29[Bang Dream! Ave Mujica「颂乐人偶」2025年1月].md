@@ -132,3 +132,33 @@
 详情：
 [https://avemujica-movie.bang-dream.com/](https://avemujica-movie.bang-dream.com/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41964#       发表于 2026-7-30 23:33
+
+       <strong>剧场版「BanG Dream! Ave Mujica prima aurora」2026年10月16日 正式公开</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202607/30/233350mzgog0gphi0rj5rs.jpg" referrerpolicy="no-referrer">
+
+<strong>6f1cce18f18da4cc5fcc22f81b29bf888bafea98.jpg</strong> (273.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-30 23:33 上传
+
+ここはムジカ、美しき調べの世界
+
+这里是Mujica, 美妙旋律的世界
+
+完全新作 剧场版「BanG Dream! Ave Mujica prima aurora」
+
+2026年10月16日(周五) ROAD SHOW。
+
+详情：
+[https://avemujica-movie.bang-dream.com/](https://avemujica-movie.bang-dream.com/)
+
+#BanGDream# #AveMujica#</blockquote>
+       [https://www.bilibili.com/video/BV1v43b6qE69](https://www.bilibili.com/video/BV1v43b6qE69)
+
