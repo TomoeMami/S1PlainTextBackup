@@ -12869,3 +12869,21 @@ grok写英文的，在Google翻译回来，效果拔群
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  五块  
+##### 4128#       发表于 2026-7-31 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69988578&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-30 23:09</a>
+
+我不知道为啥你们都要破甲，我就没感觉到有甲    Re:Source</blockquote>
+用来翻黄油的时候不加提示词就是一堆的无法翻译啊。
+
+*****
+
+####  王兰花秀丽  
+##### 4129#       发表于 2026-7-31 00:09
+
+MiniMax H3要发了，应该主打多模态    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

@@ -5720,3 +5720,22 @@ pdd价格是因为出了新的8折券，导致一堆东西新史低<img src="htt
 
 不能忍了真想一拳打爆任天堂，是什么让任天堂对已经几年没新作的千万级IP只做个小品游戏
 
+
+*****
+
+####  墨染白泉  
+##### 718#       发表于 2026-7-31 00:09
+
+<blockquote>hl氏 发表于 2026-7-31 00:04
+打到130了，没什么意思了，钻地好孤独，想组队玩，但是组队地图的等级都已经太低了
+
+这么好玩却内容不够，没 ...</blockquote>
+做成这样的话喷4得ns3了，正餐肯定得喷4<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">epd5又做动森又做喷喷，什么时候给他们扩招
+
+*****
+
+####  二十二颗牛油果  
+##### 719#       发表于 2026-7-31 00:10
+
+作为此前没玩过喷喷的纯萌新，今天拿到卡带后狂肝7小时，已上瘾<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
