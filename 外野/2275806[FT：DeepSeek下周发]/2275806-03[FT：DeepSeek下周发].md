@@ -12661,3 +12661,40 @@ cherry知识库和mcp都得自己弄吗？<img src="https://static.stage1st.com/
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  serj005  
+##### 4109#       发表于 2026-7-30 18:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986274&amp;ptid=2275806" target="_blank">ST2002 发表于 2026-7-30 17:09</a>
+为什么大家都在说最近 ds 流口水，我用 reasonix 接的 pro 模型， 感觉搞软件开发没出什么问题
+
+—— 来自  ...</blockquote>
+我一直觉得ds始终是没有过降智行为的，只是它的某些缺点在长期使用中不断被人更多的发现和察觉，比如更多遵循人设而非指令（不听命令，忘记交代做的事），部分场景工具调用积极性低等等。
+
+*****
+
+####  overflowal  
+##### 4110#       发表于 2026-7-30 18:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986677&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-30 18:10</a>
+至少它读不完skill就开工这一点，我个人遇着不是一回两回的，而是它这一周多以来每一次都读不完。
+
+——  ...</blockquote>
+你这个很难说的。比如你用的harness 更新了。tools有改动，这些都会导致模型行为变动。这些一层层嵌套的东西到最后用户就就一句降智。
+这也是为啥deepseek也想做自己的harness的原因    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  查内姆  
+##### 4111#       发表于 2026-7-30 18:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986607&amp;ptid=2275806" target="_blank">玉树临疯啊 发表于 2026-7-30 17:58</a>
+
+我就是用自由度最高的grok写文，然后后面发现不行呀，它文笔很差，很干，很套路，差不多来来去去就那几种 ...</blockquote>
+直接用AI应该就是很干，酒馆或类似的程序可以通过导入别的的设置来生成不同的文风，比如轻小说风格，网文风格、色**风格，古文小说风格等等，不过设置文法也一样会有套路重复和审美疲劳问题，期望值不要太高。
+
+另外，你可以让grok写文前对着它先说明，你接下来要写的内容，模仿xxx小说风格进行写作之类的，进行约束，也许能行，只是也许啊
+
