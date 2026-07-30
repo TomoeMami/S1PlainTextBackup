@@ -755,3 +755,74 @@ okama是当年那个做月面兔兵器米娜的okama？这位对我来说也基�
 
 人设还不错 PV配歌也剪辑的不错，看样子预算还可以，Netflix有钱烧，突然期待起来了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 65#         楼主| 发表于 2026-7-30 21:00
+
+PV3：[https://youtu.be/HRlAGIcl2n0](https://youtu.be/HRlAGIcl2n0)
+
+Netflix：2026年8月8日（土）世界独占配信
+
+スタッフ
+
+脚本協力：香村純子
+
+キャラクター原案：望月けい
+
+キャラクター原案協力：米山舞
+
+アニメーションキャラクターデザイン：新垣一成
+
+アートディレクター：セドリック・エロール
+
+ネルガルデザイン：okama
+
+美術監督：野村正信
+
+色彩設計：渡部夏美
+
+CGディレクター：長嶺明音
+
+撮影監督：福田光
+
+編集：植松淳一
+
+音楽：神前暁（MONACA）、髙田龍一（MONACA）
+
+音響監督：三好慶一郎
+
+音響制作：東北新社
+
+製作：ツインエンジン
+
+制作：OUTLINE
+
+キャスト
+
+サファイア：サーヤ（ラランド）
+
+パイン：小林星蘭
+
+ベルベット：内山昂輝
+
+ジルコ：新谷真弓
+
+教皇：壤晴彦
+
+ロック：細谷佳正
+
+ヘケート：月ノ美兎
+
+チョロギ：手塚祐介
+
+チック：ルンルン
+
+タック：でびでび・でびる
+
+<img src="https://p.sda1.dev/34/4268379d0ec7b5fe2c7cbe817d56fbbb/HOeWRU5aMAAvvd5.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/c9209f587a368139a32fc9885147b04b/HOeWx0vaQAAT7HF.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/cd29ae911ac9e0fa933a2df525382e48/HOeWt9eaEAA9Don.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/c465e0f8d5074f691827d0e432ab1fed/HOeBVllbYAA8fW2.jpg" referrerpolicy="no-referrer">
+
