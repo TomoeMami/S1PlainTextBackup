@@ -12637,3 +12637,27 @@ grok写英文的绝了，还可以上传设定文件。不过印区路堵了
 说到这个，我知道一个酒馆，简单来说就是先下一个SillyTavern（酒馆），只有要安装什么环境，支持软件之 ...</blockquote>
 我就是用自由度最高的grok写文，然后后面发现不行呀，它文笔很差，很干，很套路，差不多来来去去就那几种描写。看出来它训练的源头语言是英文，给我输出的内容其实是按英语翻译成中文输出给我。我忍不了grok的烂文笔，于是试试国内的AI来写。
 
+
+*****
+
+####  木水风铃  
+##### 4107#       发表于 2026-7-30 18:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986530&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-7-30 17:45</a>
+酒馆是扮演
+写还是得cherry，有知识库和mcp</blockquote>
+cherry知识库和mcp都得自己弄吗？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">有没有地方找弄好的？
+
+—— 来自 HUAWEI OCE-AN50, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4108#       发表于 2026-7-30 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986523&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-30 17:44</a>
+都是感觉罢了。就算是同样的模型，很多人也会说降智。随机性的玩意    Re:Source ...</blockquote>
+至少它读不完skill就开工这一点，我个人遇着不是一回两回的，而是它这一周多以来每一次都读不完。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
