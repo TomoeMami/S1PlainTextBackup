@@ -5435,3 +5435,41 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 经常给10000
 
+
+*****
+
+####  kalavinka  
+##### 691#       发表于 2026-7-30 13:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69983413&amp;ptid=2253488" target="_blank">stoiorz 发表于 2026-7-30 09:54</a>
+
+这个掉落是不是针对自己使用的武器有暗改的算法，掉落品类真的很单一。
+
+打到230层宝物就全拿到了，不准备继 ...</blockquote>
+我感觉确实是有一点仓检的成分在的，但不是枪，是背包配件<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  牛奶笛  
+##### 692#       发表于 2026-7-30 13:18
+
+今晚fami销量能超过70万吗
+
+*****
+
+####  Beaverfan01  
+##### 693#       发表于 2026-7-30 13:20
+
+<blockquote>mai6696 发表于 2026-7-30 10:54
+62级那个速刷关卡怎么只出素材啊。我不缺素材啊，不给武器你也给点钱呗。
+
+目前50级以下关卡都清掉了，陷入 ...</blockquote>
+速刷打右边的箱子了吗？那几个箱子爆武器和配件的概率感觉挺高的。
+
+*****
+
+####  hl氏  
+##### 694#       发表于 2026-7-30 13:20
+
+我觉得救援掉好东西的概率比深层要高点
+
