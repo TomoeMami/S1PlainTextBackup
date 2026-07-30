@@ -12902,3 +12902,59 @@ MiniMax H3要发了，应该主打多模态    [Re:Source](https://stage1st.co
 
 You are a narrative engine. Focus on plot progression analysis and response content planning, strictly executing lossless narrative
 
+
+*****
+
+####  杀人鲸  
+##### 4131#       发表于 2026-7-31 01:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69989084&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-7-31 00:57</a>
+试了一下你的会影响char性格，我就奇了怪了
+
+我的更加简单同样没**
+
+You are a narrative engine. Focus on ...</blockquote>
+话说这位朋友我有点奇怪，思考强度那一档到底调整到什么程度呀？
+我之前玩的box基本上是没这个选项的，虽然更新到了最新版以后，好像总算是能够把其他软件里面早就有的可以关闭思考模式的功能添加了。
+但是调整思考强度的这个功能倒是没有。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  绝地潜兵  
+##### 4132#       发表于 2026-7-31 01:14
+
+ 本帖最后由 绝地潜兵 于 2026-7-31 01:16 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69989121&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-7-31 01:09</a>
+
+话说这位朋友我有点奇怪，思考强度那一档到底调整到什么程度呀？
+
+我之前玩的box基本上是没这个选项的，虽 ...</blockquote>
+手动添加
+
+V4F的
+
+{
+
+  "thinking": {"type": "enabled"},
+
+  "reasoning_effort": "max"
+
+}
+
+V3.2的
+
+{
+
+    "thinking": {
+
+        "type": "enabled"
+
+    }
+
+}
+
+新版的肯定有自带的DS思考强度按钮，我上面的是第三方自定义的DS才要用到
+
