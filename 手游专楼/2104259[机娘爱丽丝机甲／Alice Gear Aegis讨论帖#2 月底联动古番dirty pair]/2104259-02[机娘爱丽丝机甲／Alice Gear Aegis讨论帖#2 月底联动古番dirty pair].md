@@ -72,3 +72,14 @@ FY16 YHA3 TL6W GFTK
 派生进化大剑 闭着眼睛砍就完事了 当电属性京姐用</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">感觉动作跟普通的也差不多啊，是数值特别高吗
 
+
+*****
+
+####  wilkyway  
+##### 2074#       发表于 2026-7-30 19:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986513&amp;ptid=2104259" target="_blank">madcow 发表于 2026-7-30 17:42</a>
+感觉动作跟普通的也差不多啊，是数值特别高吗</blockquote>
+正常数值吧 强在模组好 范围大发生快没有乱七八糟的机制ta之类的可以从道中就一路砍过去
+不如说京姐自己也不是数值给得特别高的机体<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
