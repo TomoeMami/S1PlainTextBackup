@@ -12376,3 +12376,54 @@ harness毕竟说到底是工具层，各家模型厂自己面向自家模型开�
 
 harness毕竟说到底是工具层，各家模型厂自己面向自家模型开发一个harness肯定有专门的优化措施。
 
+
+*****
+
+####  hugosol  
+##### 4084#       发表于 2026-7-30 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69985411&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-30 14:53</a>
+
+我是觉得ds自己做harness肯定是有考量的，如果不想完全做成一个coding模型，还要维持通用语言模型的特性 ...</blockquote>
+靠LLM厂做harness的思路很理想，但鉴于DS目前还没拿出来成品我先持中立态度<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，DS在架构优化这方面很厉害，但做开发工具的能力怎么样不好说
+
+其实LLM大厂做harness目前还真是只有A/有过实际战绩，而且有那个江湖地位能把规范推广开来，mcp和skill都是很厉害的想法
+
+另外就是有了这些东西以后格局已经变了，harness不再是大厂内部自己玩的东西了，谁都能掺上一脚。现在harness已经在全世界范围内爆发了，大厂提出的这些东西如果不够新只会被嘲笑（比如Anthropic最近烂炒的Loop Engineering
+
+不过这个行业变化很快，搞不好梁鸽真的有什么tool call这个级别的黑科技所以要憋着跟V4正式版一起发（真的会有吗？看网友灰测跟以前的LLM没啥区别嘛，而且真有这种东西估计憋不住，肯定先发出来给业界同行大家一起看看<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ymm1030  
+##### 4085#       发表于 2026-7-30 15:26
+
+5.2现在也流口水，不流口水的5.2其实还是蛮能打的。国内的算力问题随着模型能力跟上越来越突出了。
+
+
+*****
+
+####  舞以  
+##### 4086#       发表于 2026-7-30 15:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69985609&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-7-30 15:26</a>
+
+靠LLM厂做harness的思路很理想，但鉴于DS目前还没拿出来成品我先持中立态度，DS在架构优化这方面很厉害， ...</blockquote>
+只能相信梁鸽了，憋这么久端出个换皮reasonix或者opencode就太搞笑了，也不符合ds的人设<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  hugosol  
+##### 4087#       发表于 2026-7-30 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69985581&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-7-30 15:19</a>
+
+实际上harness和不同的模型配合经常能感受出来各种问题。
+
+比如说hermes这种强调长期记忆的harness上用gpt这 ...</blockquote>
+这种情况我倾向于agent本身的水平（可能提示词都是vibe出来的）而不是模型的问题
+
+实际上也有人做过测试，同样的模型同样的编码任务，pi比claude code表现得还好，实际情况可能就是提示词越简洁越好<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，提示词长了把模型上下文撑爆你就不知道agent会干出来什么
+
+所以harness最理想的模式就是开源，能看清楚底层传的到底是什么，有大量用户用各家模型帮你测试反馈，反正claude code在这个时代（2026年7月）已经是落后的模式了
+
