@@ -12966,3 +12966,19 @@ V3.2的
 
 现在32G本地能跑的视觉模型就是Qwen3-VL了吗？ 我先选个给瞎子蓝肥鱼agent做视觉外挂
 
+
+*****
+
+####  spaceblue  
+##### 4134#       发表于 2026-7-31 02:40
+
+<img src="https://img.stage1st.com/forum/202607/31/024015a0tck5kncu0m5025.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (172.81 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 02:40 上传
+
+ luna和V4PRO价格一样了
+
