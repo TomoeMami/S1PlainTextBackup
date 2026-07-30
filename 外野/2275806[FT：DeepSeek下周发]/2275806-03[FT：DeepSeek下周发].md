@@ -11942,3 +11942,13 @@ opencode明显不是大而全吧，只是tui和desktop界面在一众开源产�
 目前看到两个截图：1.L站那个说，deepseek内部其实根本没deadline；2.泥潭q群一个x截图，八月第一周周五可 ...</blockquote>
 出 token 套餐的话，本质就是打折卖 token ，目的是为了留住 c 端用户，但是看起来留不留对于梁来说无所谓，所以我感觉大概率不会出
 
+
+*****
+
+####  overflowal  
+##### 4046#       发表于 2026-7-30 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69982394&amp;ptid=2275806" target="_blank">goranger 发表于 2026-7-30 00:23</a>
+目前看到两个截图：1.L站那个说，deepseek内部其实根本没deadline；2.泥潭q群一个x截图，八月第一周周五可 ...</blockquote>
+token套餐本质就是赔钱卖限时token。他们不喜欢搞这些    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
