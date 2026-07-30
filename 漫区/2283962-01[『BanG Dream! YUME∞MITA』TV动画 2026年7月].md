@@ -161,3 +161,25 @@ v姐还是太靠天意了，但凡疼肚子老师看留言时有人贴个链接�
 v姐还是太靠天意了，但凡疼肚子老师看留言时有人贴个链接，或者手贱搜一下 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妖精花束活动抢人的事就算都子老师看了当时的录像，也只会看到假哭的纯良V姐啊
 
+
+*****
+
+####  IWS2000  
+##### 156#       发表于 2026-7-31 01:25
+
+录音最好不要当工具用了，两人在场用了也太蠢了。
+
+*****
+
+####  最强惠酱  
+##### 157#       发表于 2026-7-31 01:25
+
+明明都是些禁不起推敲的整人小把戏，在听到你薇姐癫狂恶人三段笑之后一切都变得那样合理<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 158#       发表于 2026-7-31 01:28
+
+因为之前有个本渡枫厨搞得我对本渡枫有点偏见，现在听到她配的薇欧拉真是配得太好了，听着就是一种享受<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
