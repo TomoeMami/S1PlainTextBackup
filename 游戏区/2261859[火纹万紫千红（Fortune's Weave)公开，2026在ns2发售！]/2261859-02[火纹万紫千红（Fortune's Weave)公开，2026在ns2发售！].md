@@ -447,3 +447,19 @@ ns2这个机能…能把人物照顾到就很不错了<img src="https://static.s
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  零崎不识  
+##### 1516#       发表于 2026-7-30 11:41
+
+<img src="https://img.stage1st.com/forum/202607/30/114016fi7azdolttaiqtka.jpg" referrerpolicy="no-referrer">
+
+<strong>3946A2FF1D3B0037C6AC21A332AE9E46.jpg</strong> (89.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-30 11:40 上传
+
+确实削了，必杀武器变成使用战技必杀XX了，那除非战技能反手使用，不然必杀武器的反手能力大幅削弱了，使用价值大幅降低
+
