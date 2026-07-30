@@ -471,3 +471,13 @@ ns2这个机能…能把人物照顾到就很不错了<img src="https://static.s
 
 三房子我搞必杀斧+猛击甚至能堆到百暴。
 
+
+*****
+
+####  57042711  
+##### 1518#       发表于 2026-7-30 12:56
+
+必杀武器这么强果然还是得20耐久<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
