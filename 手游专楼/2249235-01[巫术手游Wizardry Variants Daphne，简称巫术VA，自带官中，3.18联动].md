@@ -24,3 +24,15 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Flechette  
+##### 854#       发表于 2026-7-30 16:47
+
+试用了一下三个新角，普利修要暖机但是打出来的伤害很夸张，试用给的垃圾装备能打1300*6，仿佛千紫万红再临，不过2回合才能打一次
+
+赛德上完buff后lv3深渊斩能砍出未暴击的3800，被动还有会心增伤，潜力很大，唯一缺点就是丑，这技能组给基哥不就无敌了吗，基哥怎么办啊基哥
+
+五郎八是精灵武士同款的倒霉连招机制<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，一会儿单体一会儿AOE，伤害也不高，但毕竟有动静有裂地，有对恶魔特效的被动，能当超级兵用
+
