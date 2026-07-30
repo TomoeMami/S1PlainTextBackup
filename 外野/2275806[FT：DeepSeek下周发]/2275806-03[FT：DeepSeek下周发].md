@@ -12756,3 +12756,14 @@ DeepSeek在复杂任务最近开始明显的偷懒，假装实现。。。我让
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  zerona  
+##### 4118#       发表于 2026-7-30 19:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986106&amp;ptid=2275806" target="_blank">玉树临疯啊 发表于 2026-7-30 16:48</a>
+
+过往使用deepseek网页版，动不动就是“这个问题我无法回答”之类的回复，以至于我对它的尺度印象很差。有 ...</blockquote>
+你让ds自己给自己写个破甲词呗。多少有点用。
+
