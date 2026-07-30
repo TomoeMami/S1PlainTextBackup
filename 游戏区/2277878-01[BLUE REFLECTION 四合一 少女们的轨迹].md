@@ -1083,3 +1083,43 @@ NS的帝有8.5GB，剩下5.4G都给另三作…要这样还能…就谢天谢地
 
 NS和NS2一个大小的话，说明NS2也不会比NS画质好？
 
+
+*****
+
+####  新HGCG  
+##### 95#         楼主| 发表于 2026-7-31 07:41
+
+看到这潇美岐，想查查设定，结果手游官网停服后域名被赌博网站窃取了
+
+<img src="https://img.stage1st.com/forum/202607/31/074051fja188rrh8u1b188.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202607/31/074051fja188rrh8u1b188.png">
+
+<strong>image.png</strong> (208.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 07:40 上传
+
+<img src="https://img.stage1st.com/forum/202607/31/074112yd2s866e18fbckdf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 07:41 上传
+
+<img src="https://img.stage1st.com/forum/202607/31/074131qk6373kls6lzmlkf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (151.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 07:41 上传
+
+<img src="https://img.stage1st.com/forum/202607/31/074141i6yd8yery7x2d442.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (120.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 07:41 上传
+

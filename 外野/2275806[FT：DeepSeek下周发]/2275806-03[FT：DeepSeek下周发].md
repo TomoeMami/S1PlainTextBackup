@@ -13041,3 +13041,11 @@ V4F的
 
 今天会发吗<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  吴怀在  
+##### 4141#       发表于 2026-7-31 07:44
+
+GPT 降价后这可以啊，这算不算狙击 Deepseek V4 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
