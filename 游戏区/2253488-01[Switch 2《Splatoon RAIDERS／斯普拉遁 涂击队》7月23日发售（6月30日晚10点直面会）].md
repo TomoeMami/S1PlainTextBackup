@@ -5527,3 +5527,17 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 经常给10000</blockquote>
 原来还有石头以外的？我发售以来每天都是两石头<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Beaverfan01  
+##### 700#       发表于 2026-7-30 17:16
+
+<blockquote>mai6696 发表于 2026-7-30 15:09
+我嫌路远，都是直接上去的。
+
+关底宝箱感觉大概率都是素材。</blockquote>
+【15s速刷杏棱巢穴（打箱子版）-哔哩哔哩】 https://b23.tv/do63IKh
+
+我是抄了这个视频的路线和配装去刷的，能把13个箱子都打掉。路线远了点，不过用时和不打箱子的用时差不多。
+

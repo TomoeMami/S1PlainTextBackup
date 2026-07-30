@@ -12485,3 +12485,13 @@ harness毕竟说到底是工具层，各家模型厂自己面向自家模型开�
 过往使用deepseek网页版，动不动就是“这个问题我无法回答”之类的回复，以至于我对它的尺度印象很差。有 ...</blockquote>
 学习成本极低，不会的直接问deepseek，学会了直接打开新世界大门
 
+
+*****
+
+####  ST2002  
+##### 4094#       发表于 2026-7-30 17:09
+
+为什么大家都在说最近 ds 流口水，我用 reasonix 接的 pro 模型， 感觉搞软件开发没出什么问题<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
