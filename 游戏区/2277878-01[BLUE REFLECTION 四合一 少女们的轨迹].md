@@ -931,3 +931,21 @@ NS2没有实体版就算了
 
 又是和谐又是百破，光荣又暗耻了
 
+
+*****
+
+####  宛若青空  
+##### 80#       发表于 2026-7-30 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986802&amp;ptid=2277878" target="_blank">达达达达葱 发表于 2026-7-30 18:39</a>
+这和谐是为了配合任天堂还是索尼</blockquote>
+全平台都这样，怕不是是暗荣自己自作主张<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whzfjd  
+##### 81#       发表于 2026-7-30 18:49
+
+国际化.global ，KT 英推评论区都被 anti-dei 的老外给三光了，也不知道能多卖给谁
+
