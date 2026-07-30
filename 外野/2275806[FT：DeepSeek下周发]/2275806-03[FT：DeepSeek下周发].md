@@ -12316,3 +12316,63 @@ gpt订阅真要爆了或者改变策略，我就安心给月之暗面掏钱了
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  drodchang  
+##### 4081#       发表于 2026-7-30 15:14
+
+希望明天能出吧，总不能拖到8月吧
+
+*****
+
+####  Milarvoz  
+##### 4082#       发表于 2026-7-30 15:17
+
+快来吧，最近流口水严重，受不了了。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  当光停止  
+##### 4083#       发表于 2026-7-30 15:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">实际上harness和不同的模型配合经常能感受出来各种问题。
+
+比如说hermes这种强调长期记忆的harness上用gpt这种上下文小的模型就很容易爆炸，而且同样由于hermes强调记忆等等能力对上下文的压缩也不如codex适合gpt。而claude code用k3的时候会出现明显的费用起飞，之前有人做测试，同任务平均是kimi code的5倍，极端情况下能到30左右。opencode在通用性上也有问题。
+
+回到deepseek。v4的新api标准要求在思考模式的时候每次工具调用后都原样回传推理字段。这个把历史对话的推理状态原样直接传回去的设计应该是deepseek独有的，和现有几个标准兼容得挺凑合。= = 还会出现四月份时候opencode转opencode go转deepseek官方api这个链子上丢reasoning_content导致调用失败的情况。
+
+harness毕竟说到底是工具层，各家模型厂自己面向自家模型开发一个harness肯定有专门的优化措施。
+
+
+*****
+
+####  drodchang  
+##### 4081#       发表于 2026-7-30 15:14
+
+希望明天能出吧，总不能拖到8月吧
+
+*****
+
+####  Milarvoz  
+##### 4082#       发表于 2026-7-30 15:17
+
+快来吧，最近流口水严重，受不了了。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  当光停止  
+##### 4083#       发表于 2026-7-30 15:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">实际上harness和不同的模型配合经常能感受出来各种问题。
+
+比如说hermes这种强调长期记忆的harness上用gpt这种上下文小的模型就很容易爆炸，而且同样由于hermes强调记忆等等能力对上下文的压缩也不如codex适合gpt。而claude code用k3的时候会出现明显的费用起飞，之前有人做测试，同任务平均是kimi code的5倍，极端情况下能到30左右。opencode在通用性上也有问题。
+
+回到deepseek。v4的新api标准要求在思考模式的时候每次工具调用后都原样回传推理字段。这个把历史对话的推理状态原样直接传回去的设计应该是deepseek独有的，和现有几个标准兼容得挺凑合。= = 还会出现四月份时候opencode转opencode go转deepseek官方api这个链子上丢reasoning_content导致调用失败的情况。
+
+harness毕竟说到底是工具层，各家模型厂自己面向自家模型开发一个harness肯定有专门的优化措施。
+
