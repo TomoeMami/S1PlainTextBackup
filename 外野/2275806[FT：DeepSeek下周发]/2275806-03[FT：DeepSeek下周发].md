@@ -12285,3 +12285,34 @@ gpt订阅真要爆了或者改变策略，我就安心给月之暗面掏钱了
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  玉树临疯啊  
+##### 4078#       发表于 2026-7-30 15:04
+
+我对本地AI部署一窍不通。想问一下，是不是可以用deepseek的API模式写刘备文？
+
+*****
+
+####  杀人鲸  
+##### 4079#       发表于 2026-7-30 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69985471&amp;ptid=2275806" target="_blank">玉树临疯啊 发表于 2026-7-30 15:04</a>
+我对本地AI部署一窍不通。想问一下，是不是可以用deepseek的API模式写刘备文？ ...</blockquote>
+可以。应该说现如今诸多的AI里面，或多或少都加了某些道德限制的情况下，你作为大概对AI没什么了解的普通人来说的话，通过AI写小黄书最方便、最快捷的途径就只有D老师了。
+当你稍微在满足了自己的欲求以后，就可以对D老师进行询问一些深度进阶的技巧。
+只能说很有意思的就是，这年头你真的有什么问题的话，你可以不断的对人工智能进行询问，得到答案，再基于答案对AI进行继续询问的这种循环式提问，螺旋升天的得到一些你的认知无法获取的知识。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  goranger  
+##### 4080#       发表于 2026-7-30 15:12
+
+要来了吗？api又挂了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
