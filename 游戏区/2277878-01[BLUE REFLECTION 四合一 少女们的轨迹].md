@@ -1024,3 +1024,18 @@ NS2没有实体版就算了
 
 希望NS版能控制在20G以内…
 
+
+*****
+
+####  新HGCG  
+##### 89#         楼主| 发表于 2026-7-30 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69988121&amp;ptid=2277878" target="_blank">Xenor 发表于 2026-7-30 22:14</a>
+
+希望NS版能控制在20G以内…</blockquote>
+下载版的话
+
+NS和NS2都是13.9GB
+
+任天堂官网上写的
+

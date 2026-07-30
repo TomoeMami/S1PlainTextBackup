@@ -826,3 +826,11 @@ CGディレクター：長嶺明音
 <img src="https://p.sda1.dev/34/cd29ae911ac9e0fa933a2df525382e48/HOeWt9eaEAA9Don.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/34/c465e0f8d5074f691827d0e432ab1fed/HOeBVllbYAA8fW2.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡鸦骑士  
+##### 66#       发表于 2026-7-30 22:23
+
+月之美兔嘛，虽然一看是配角但是，还是彩虹包装的能力强啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
