@@ -450,3 +450,21 @@ ai要能源还禁逆变器？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差生要求放缓授课进度的原因只有一个
 
+
+*****
+
+####  desk_cross  
+##### 45#       发表于 2026-7-30 12:07
+
+这可能是美国那边AI泡沫吹不动的先兆！太多类似消息说美股撑不动要有事<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">，
+
+反正看热闹不嫌事大，看后果会成什么样吧
+
+*****
+
+####  アヘ顔  
+##### 46#       发表于 2026-7-30 12:07
+
+什么意思，这是ai已经可以自动开发下一代ai了吗？
+技术奇点已经到来？
+
