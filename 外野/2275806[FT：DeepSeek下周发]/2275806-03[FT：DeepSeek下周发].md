@@ -12495,3 +12495,41 @@ harness毕竟说到底是工具层，各家模型厂自己面向自家模型开�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  杀人鲸  
+##### 4095#       发表于 2026-7-30 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986106&amp;ptid=2275806" target="_blank">玉树临疯啊 发表于 2026-7-30 16:48</a>
+过往使用deepseek网页版，动不动就是“这个问题我无法回答”之类的回复，以至于我对它的尺度印象很差。有 ...</blockquote>
+用API说到底还是要找到一个平台来使用这个接口，看起来你作为大概对此一无所知的萌新用户的话，那你就直接搜索一下ChatBox，这个用来作为萌新的入门教程软件还是挺方便的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  查内姆  
+##### 4096#       发表于 2026-7-30 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986106&amp;ptid=2275806" target="_blank">玉树临疯啊 发表于 2026-7-30 16:48</a>
+
+过往使用deepseek网页版，动不动就是“这个问题我无法回答”之类的回复，以至于我对它的尺度印象很差。有 ...</blockquote>
+说到这个，我知道一个酒馆，简单来说就是先下一个SillyTavern（酒馆），只有要安装什么环境，支持软件之类的，在遇到问题时就问DS网页版。其实可以多问几个AI，指不定谁说的对呢
+
+等你能成功启动SillyTavern了，就在ds官网上充值10块钱的api额度，剩下的如何使用之类的问ds网页版就好。顺便再说一句，如果想玩的好，写的色，那还是得上预设上插件导入别的世界书，总之有点麻烦，还得能**，但是时间长了会发现AI写的小黄文套路化严重
+
+*****
+
+####  杀人鲸  
+##### 4097#       发表于 2026-7-30 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986395&amp;ptid=2275806" target="_blank">查内姆 发表于 2026-7-30 17:25</a>
+说到这个，我知道一个酒馆，简单来说就是先下一个SillyTavern（酒馆），只有要安装什么环境，支持软件之 ...</blockquote>
+朋友，我觉得让新人上手酒馆是不是有点太难了？这东西我第一次安装的时候都感觉挺复杂的。
+虽然现如今如果耐心去寻找的话，是可以找到不少好心人已经完成了集成的酒馆软件，下载下来就可以用。但是这位不一定能找得到呀。
+先还是用类似于Box的平台试试手吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
