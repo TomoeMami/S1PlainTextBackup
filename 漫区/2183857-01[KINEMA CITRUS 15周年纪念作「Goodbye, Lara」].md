@@ -2735,3 +2735,30 @@ anime expo场刊里面表述茉里不是一个假小子，看到现在有人认�
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Piano-Forest  
+##### 232#         楼主| 发表于 2026-7-30 16:09
+
+.˚🌸⁺‧┈
+
+　　　#さよならララ
+
+　 ララと茉里と過ごす四季
+
+　第1弾 春ビジュアルを公開
+
+　　　　　　　　　　┈‧⁺ 🌸˚.
+
+満開の桜並木と春の光にきらめく水辺を背景に、
+
+２人の朗らかな笑顔を切り取った
+
+どこか懐かしさを感じるビジュアルです。
+
+ぜひ映像と合わせてお楽しみくださいませ。
+[https://youtu.be/uLPhMfGEnmE](https://youtu.be/uLPhMfGEnmE)
+
+<img src="https://p.sda1.dev/34/98657a21bdb2c39b1025383019267935/1000171332.jpg" referrerpolicy="no-referrer">
+
