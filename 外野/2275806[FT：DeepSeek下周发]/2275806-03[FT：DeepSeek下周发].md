@@ -12453,3 +12453,35 @@ harness毕竟说到底是工具层，各家模型厂自己面向自家模型开�
 可以。应该说现如今诸多的AI里面，或多或少都加了某些道德限制的情况下，你作为大概对AI没什么了解的普通 ...</blockquote>
 过往使用deepseek网页版，动不动就是“这个问题我无法回答”之类的回复，以至于我对它的尺度印象很差。有人告诉我能用ds写刘备文，我很吃惊。但是又说是要api模式，我就不知道怎么弄了。只用过网页版，对API一点都不懂。
 
+
+*****
+
+####  蛋黄酱Release  
+##### 4091#       发表于 2026-7-30 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986106&amp;ptid=2275806" target="_blank">玉树临疯啊 发表于 2026-7-30 16:48</a>
+过往使用deepseek网页版，动不动就是“这个问题我无法回答”之类的回复，以至于我对它的尺度印象很差。有 ...</blockquote>
+你可以直接问deepseek怎么调用api
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  wlhlz  
+##### 4092#       发表于 2026-7-30 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986106&amp;ptid=2275806" target="_blank">玉树临疯啊 发表于 2026-7-30 16:48</a>
+
+过往使用deepseek网页版，动不动就是“这个问题我无法回答”之类的回复，以至于我对它的尺度印象很差。有 ...</blockquote>
+没有任何难度，两分钟就能学会了
+
+*****
+
+####  cscbzcbz  
+##### 4093#       发表于 2026-7-30 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986106&amp;ptid=2275806" target="_blank">玉树临疯啊 发表于 2026-7-30 16:48</a>
+过往使用deepseek网页版，动不动就是“这个问题我无法回答”之类的回复，以至于我对它的尺度印象很差。有 ...</blockquote>
+学习成本极低，不会的直接问deepseek，学会了直接打开新世界大门
+
