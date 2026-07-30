@@ -13015,3 +13015,21 @@ V4F的
 
 为什么这个点kimi k3炸了？？？炸了一个小时了，我无语了，这又不是中国的工作时间。kimi难道主要是外国人用？
 
+
+*****
+
+####  奈落的孤火花  
+##### 4138#       发表于 2026-7-31 03:56
+
+为什么这个点kimi k3炸了？？？炸了一个小时了，我无语了，这又不是中国的工作时间。kimi难道主要是外国人用？
+
+*****
+
+####  mitzvah  
+##### 4139#       发表于 2026-7-31 05:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69989168&amp;ptid=2275806" target="_blank">squallx 发表于 2026-7-31 01:31</a>
+
+现在32G本地能跑的视觉模型最强就是Qwen3-VL了吗？ 我先选个给瞎子蓝肥鱼agent做视觉外挂 qwen3.6多模态也 ...</blockquote>
+开啥玩笑，3.6比vl这老货强一大截
+
