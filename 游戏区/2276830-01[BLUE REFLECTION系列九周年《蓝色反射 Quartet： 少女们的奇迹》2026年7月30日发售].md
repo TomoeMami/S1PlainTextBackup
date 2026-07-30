@@ -738,3 +738,11 @@ heman。。。。是啥<img src="https://static.stage1st.com/image/smiley/face20
 <img src="https://p.sda1.dev/34/050ae66af081ac6d708e5b9c1d0755a5/HN6fa6-a8AAjr3T.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/34/82d0578d8e1f125ed71385c557aa2501/HN6fdYQasAEYh2Q.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Xenor  
+##### 65#       发表于 2026-7-30 22:09
+
+PC版压缩档就有32.7G…<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看着也没多高清，再观望观望
+
