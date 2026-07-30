@@ -12182,3 +12182,56 @@ ds系列一直是高可用的，吹k3的我都怀疑是不是常用agent了<img 
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4069#       发表于 2026-7-30 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69985183&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-30 14:08</a>
+kimi k3本质就不是一个月之暗面可用的商品啊
+ds系列一直是高可用的，吹k3的我都怀疑是不是常用agent了，感 ...</blockquote>
+D指导自打后训练策略变了以后，最近这半个多月真的和可用挂不上边吧？skill都读不完
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  goranger  
+##### 4070#       发表于 2026-7-30 14:20
+
+性能下降，性能恢复=。=
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  舞以  
+##### 4071#       发表于 2026-7-30 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69985233&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-30 14:19</a>
+D指导自打后训练策略变了以后，最近这半个多月真的和可用挂不上边吧？skill都读不完
+
+—— 来自 HUAWEI S ...</blockquote>
+我说的是使用量和价格，dsv4系列就是普遍来看最常用的模型啊，速度快，廉价，当然目前的能力不足够满足我这种许愿式需求，但是很多事情不需要所谓的fable级能力
+而且我也认为现在oa两家这种补贴c端token价格的政策不可能一直持续，以后能指望的就只有d指导了，毕竟月之暗面看起来不想服务我这种穷鬼捏。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  overflowal  
+##### 4072#       发表于 2026-7-30 14:23
+
+最近几天api都有坏掉，感觉是在更新一些东西    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  舞以  
+##### 4073#       发表于 2026-7-30 14:23
+
+哦对，还有上下文，我现在一个场景能用的只有d指导，毕竟有1m窗口，codex的5.6系列一次请求就过窗口了。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
