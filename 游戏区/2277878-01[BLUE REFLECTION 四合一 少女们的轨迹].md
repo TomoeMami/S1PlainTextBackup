@@ -905,3 +905,14 @@ NS2没有实体版就算了
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986410&amp;ptid=2277878" target="_blank">新HGCG 发表于 2026-7-30 17:28</a></blockquote>
 呃，湿身效果没了？GUST疯了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 77#         楼主| 发表于 2026-7-30 18:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986422&amp;ptid=2277878" target="_blank">宛若青空 发表于 2026-7-30 17:30</a>
+
+呃，湿身效果没了？GUST疯了吧</blockquote>
+似乎河蟹了不少……
+

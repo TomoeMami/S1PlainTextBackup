@@ -12698,3 +12698,11 @@ cherry知识库和mcp都得自己弄吗？<img src="https://static.stage1st.com/
 
 另外，你可以让grok写文前对着它先说明，你接下来要写的内容，模仿xxx小说风格进行写作之类的，进行约束，也许能行，只是也许啊
 
+
+*****
+
+####  舞以  
+##### 4112#       发表于 2026-7-30 18:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
