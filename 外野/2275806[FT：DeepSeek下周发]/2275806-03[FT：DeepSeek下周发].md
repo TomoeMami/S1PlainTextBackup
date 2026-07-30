@@ -12142,3 +12142,15 @@ DeepSeek API 服务即将采用峰谷定价策略，高峰时段价格为平时�
 我心理预期能比GLM5.2强就是梁圣</blockquote>
 强于glm5.2是肯定的，参数量在这里放着呢，做不到反而是开倒车<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">至少应该以opus4.8为目标
 
+
+*****
+
+####  neptunehs  
+##### 4065#       发表于 2026-7-30 14:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69983894&amp;ptid=2275806" target="_blank">zy450 发表于 2026-7-30 10:44</a>
+KIMI K3这速度实在没眼看。。。</blockquote>
+消耗也是。就跑了两次plan build还是让v4f跑 慢就不说了直接用掉opencode一个月的30%
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
