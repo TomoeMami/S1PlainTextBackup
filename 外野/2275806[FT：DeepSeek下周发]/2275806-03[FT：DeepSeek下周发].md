@@ -11985,3 +11985,46 @@ token套餐本质就是赔钱卖限时token。他们不喜欢搞这些    [Re:
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4050#       发表于 2026-7-30 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69983360&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-7-30 09:48</a>
+现在不应该担心的是ds发布即落后吗，以往ds发布都还能成为开源sota呢，现在只希望能打平kimi就行了
+
+——  ...</blockquote>
+真要能打平K3那就是梁神了
+我心理预期能比GLM5.2强就是梁圣
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  高粱河车神  
+##### 4051#       发表于 2026-7-30 10:29
+
+腾讯的workbuddy好像还不错？我今天试用了一下
+
+
+*****
+
+####  overflowal  
+##### 4052#       发表于 2026-7-30 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69983695&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-7-30 10:23</a>
+官网涨价公告把 7 月中旬的描述去掉了
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+永远的即将<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  我猫呢?  
+##### 4053#       发表于 2026-7-30 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69983781&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-30 10:32</a>
+永远的即将    Re:Source</blockquote>
+之前也是即将吗，还是7月中旬将，即将听起来好像很快的样子
+

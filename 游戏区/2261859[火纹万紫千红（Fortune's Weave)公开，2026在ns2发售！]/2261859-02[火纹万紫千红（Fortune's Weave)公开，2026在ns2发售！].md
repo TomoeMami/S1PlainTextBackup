@@ -302,3 +302,20 @@ ns2这个机能…能把人物照顾到就很不错了<img src="https://static.s
 
 我结合超难其实打的是轻松模式，因为其实很多时候死人都是一关打到最后为了分配经验导致运气不好一个暴击死的，这时候重开很可能浪费1-2小时，属实没必要。。。
 
+
+*****
+
+####  kalavinka  
+##### 1503#       发表于 2026-7-30 10:32
+
+我每年打一遍暗夜，好玩是好玩但有时候没悔棋真的会破防<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  巴尔干炮  
+##### 1504#       发表于 2026-7-30 10:33
+
+官推恢复更新了，风之精灵，这作有4大精灵的概念吗。
+
