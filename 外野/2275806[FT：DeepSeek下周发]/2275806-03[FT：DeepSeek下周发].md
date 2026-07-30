@@ -12256,3 +12256,32 @@ gpt订阅真要爆了或者改变策略，我就安心给月之暗面掏钱了
 
 这几天拿来跑workbuddy水平不如浑元<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hugosol  
+##### 4076#       发表于 2026-7-30 14:47
+
+就是因为基于成本这个现实因素还有LLM输出不确定这个本质的问题，harness就是绕不过去的一个环节
+
+现在A/和kimi这种卷高端路线的模式根本不现实，或者说就没法惠及一般人，而且就算这个级别的模型依然会有幻觉
+
+我认为卷下去能有实质提高的部分就是上下文长度，上下文决定的是处理单元任务的上限，不过现在harness也已经找到解决方案，不管怎么说，如果想要实现许愿式编程，可能依靠工作流的改善能更快到达这个目标，而LLM就在兼顾这个目标的同时做好作为万能对话机的本质工作就好，不要过分追求编程能力
+
+说真的现在每个大模型出来都过分关注编码能力作为benchmark 了，我认为这是一个不太好的信号<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  舞以  
+##### 4077#       发表于 2026-7-30 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69985391&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-7-30 14:47</a>
+就是因为基于成本这个现实因素还有LLM输出不确定这个本质的问题，harness就是绕不过去的一个环节
+
+现在A/和k ...</blockquote>
+我是觉得ds自己做harness肯定是有考量的，如果不想完全做成一个coding模型，还要维持通用语言模型的特性，同时又要有目前agent方向的能力表现，可能只能想办法在后训练和harness两方一起协力想办法了。
+题外话，ds老师在中文的开放问题上的“直觉”我感觉是不弱于5.6甚至更强一点的，但是回答组织和泛化能力不太行，不知道能不能改善。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
