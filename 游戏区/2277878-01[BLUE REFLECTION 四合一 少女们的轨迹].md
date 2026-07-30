@@ -1059,3 +1059,11 @@ NS和NS2都是13.9GB
 
 澪和灿说是制作，其实挺敷衍的，但是其中一个毕竟有素材所以底子还是有。
 
+
+*****
+
+####  Xenor  
+##### 92#       发表于 2026-7-31 00:22
+
+NS的帝有8.5GB，剩下5.4G都给另三作…要这样还能…就谢天谢地了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
