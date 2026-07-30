@@ -11932,3 +11932,13 @@ opencode明显不是大而全吧，只是tui和desktop界面在一众开源产�
 有的skill会调用mcp，然后在我这边，Deepseek经常给我上演绕过skill按照自己的理解直接调用mcp的绝招。 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">简直心肺停止，得随时检查思维链看他有没有什么新的小巧思
 
+
+*****
+
+####  厍无春  
+##### 4045#       发表于 2026-7-30 09:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69982394&amp;ptid=2275806" target="_blank">goranger 发表于 2026-7-30 00:23</a>
+目前看到两个截图：1.L站那个说，deepseek内部其实根本没deadline；2.泥潭q群一个x截图，八月第一周周五可 ...</blockquote>
+出 token 套餐的话，本质就是打折卖 token ，目的是为了留住 c 端用户，但是看起来留不留对于梁来说无所谓，所以我感觉大概率不会出
+
