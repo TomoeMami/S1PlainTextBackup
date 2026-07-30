@@ -468,3 +468,17 @@ ai要能源还禁逆变器？
 什么意思，这是ai已经可以自动开发下一代ai了吗？
 技术奇点已经到来？
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 47#       发表于 2026-7-30 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69984578&amp;ptid=2286442" target="_blank">アヘ顔 发表于 2026-7-30 12:07</a>
+什么意思，这是ai已经可以自动开发下一代ai了吗？
+技术奇点已经到来？</blockquote>
+Ai全面开发新ai做不到
+但你要说ai生产训练资料用于ai训练，ai自己作为生成式奖励模型标注ai训练，那早就有了，D指导就用全ai的奖励标注
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
