@@ -13033,3 +13033,11 @@ V4F的
 现在32G本地能跑的视觉模型最强就是Qwen3-VL了吗？ 我先选个给瞎子蓝肥鱼agent做视觉外挂 qwen3.6多模态也 ...</blockquote>
 开啥玩笑，3.6比vl这老货强一大截
 
+
+*****
+
+####  cscbzcbz  
+##### 4140#       发表于 2026-7-31 07:21
+
+今天会发吗<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
