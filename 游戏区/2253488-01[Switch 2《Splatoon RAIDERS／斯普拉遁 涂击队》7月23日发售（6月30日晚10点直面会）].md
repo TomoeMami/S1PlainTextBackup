@@ -5594,3 +5594,30 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 确实在本来的喷玩家之外，可能还存在着一些“对玩法/设定感兴趣但对强联机犯怵无法入坑”的人群吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeroblast  
+##### 706#       发表于 2026-7-30 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986894&amp;ptid=2253488" target="_blank">Lisylfn 发表于 2026-7-30 18:58</a>
+
+实体原价250左右，我的评价是还没到180真正pdd价呢。至于破圈，上手半小时就能判断完全不可能，这玩意没 ...</blockquote>
+哪来的250。
+
+实时换算，日版原价数字版268，实体310。日亚数字下载240。港版数字320实体370，无人在意这定价。
+
+当然前几天不是刚有人拿价格论证质量被骂，没意义的。
+
+*****
+
+####  wqmq2008  
+##### 707#       发表于 2026-7-30 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986894&amp;ptid=2253488" target="_blank">Lisylfn 发表于 2026-7-30 18:58</a>
+
+实体原价250左右，我的评价是还没到180真正pdd价呢。至于破圈，上手半小时就能判断完全不可能，这玩意没 ...</blockquote>
+刚才正好刷pdd推荐位怼我脸上了发现238的raiders，还在想是不是上泥潭问下要不要现在就买
+
+看来我还是等180的好价吧<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

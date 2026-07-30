@@ -990,3 +990,21 @@ NS2没有实体版就算了
 
 灿里面是不是有一个310？
 
+
+*****
+
+####  新HGCG  
+##### 86#         楼主| 发表于 2026-7-30 20:42
+
+<img src="https://img.stage1st.com/forum/202607/30/204213rq585gmorq6jhtgg.gif" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="78" zoomfile="https://img.stage1st.com/forum/202607/30/204213rq585gmorq6jhtgg.gif">
+
+<strong>12343.gif</strong> (1.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-30 20:42 上传
+
+不能继承单独版的存档
+
+我帝要重打了……
+
