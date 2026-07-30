@@ -573,3 +573,27 @@ IS：我其实就是致敬一下大中华文化。
 
 不然其实日文更常用“花鸟风月”和“百花缭乱”。
 
+
+*****
+
+####  发呆的龙虾  
+##### 1527#       发表于 2026-7-30 15:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69985663&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-7-30 15:38</a>
+最近感觉那个万缕千丝的名字其实可能更反应本作主旨。。就是四主角能招募的队友之间、各自主线之间有万缕 ...</blockquote>
+紫里有糸，紅里也有糸。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  零崎不识  
+##### 1528#       发表于 2026-7-30 15:54
+
+<blockquote>mai6696 发表于 2026-7-30 15:42
+IS：我其实就是致敬一下大中华文化。
+
+不然其实日文更常用“花鸟风月”和“百花缭乱”。 ...</blockquote>
+致敬大中华文化结果四大主角初始队员全是尼格hhhhh中华区玩家除了体育类项目以外，或许是全世界最反感尼的群体之一
+
