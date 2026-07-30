@@ -12235,3 +12235,16 @@ D指导自打后训练策略变了以后，最近这半个多月真的和可用�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4074#       发表于 2026-7-30 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69985247&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-30 14:22</a>
+
+我说的是使用量和价格，dsv4系列就是普遍来看最常用的模型啊，速度快，廉价，当然目前的能力不足够满足我 ...</blockquote>
+D指导现在这个样子，我连日常聊天助手这活儿都不敢让它承担了，我觉得想要能拿来用，怎么也得GLM5.2这个水平，有种眼看着老伙计变成老年痴呆的无力感<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+gpt订阅真要爆了或者改变策略，我就安心给月之暗面掏钱了
+

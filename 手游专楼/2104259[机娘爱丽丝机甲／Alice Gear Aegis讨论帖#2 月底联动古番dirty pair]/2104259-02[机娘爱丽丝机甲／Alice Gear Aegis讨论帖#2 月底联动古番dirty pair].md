@@ -20,3 +20,12 @@ FY16 YHA3 TL6W GFTK
 
 好随便
 
+
+*****
+
+####  wilkyway  
+##### 2069#       发表于 2026-7-30 14:31
+
+这新角色连击中断直接清强化条可还行
+金字塔看起来对自己做的那些整天马拉松b不给打的粘狗屎boss有点缺乏认知了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
