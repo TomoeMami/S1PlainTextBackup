@@ -5621,3 +5621,11 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 看来我还是等180的好价吧<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不再乱发炎了  
+##### 708#       发表于 2026-7-30 20:47
+
+拼多多是这两天抽风给了高价折扣券，很多游戏都是最低价
+
