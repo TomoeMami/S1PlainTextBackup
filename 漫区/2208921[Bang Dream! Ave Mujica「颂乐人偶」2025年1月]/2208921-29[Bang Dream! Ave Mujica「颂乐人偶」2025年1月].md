@@ -112,3 +112,23 @@
 
        [https://www.instagram.com/p/DbSzqIgkUSN](https://www.instagram.com/p/DbSzqIgkUSN)
 
+
+*****
+
+####  Piano-Forest  
+##### 41963#       发表于 2026-7-30 21:56
+
+【剧场版「BanG Dream! Ave Mujica prima aurora」2026年10月16日 正式公开】 
+[https://b23.tv/Txw0dqe](https://b23.tv/Txw0dqe)
+
+ここはムジカ、美しき調べの世界
+
+这里是Mujica, 美妙旋律的世界
+
+完全新作 剧场版「BanG Dream! Ave Mujica prima aurora」
+
+2026年10月16日(周五) ROAD SHOW。
+
+详情：
+[https://avemujica-movie.bang-dream.com/](https://avemujica-movie.bang-dream.com/)
+
