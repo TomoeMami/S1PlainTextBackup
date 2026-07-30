@@ -315,3 +315,11 @@ Steam 上配置要求是改了么，现在没看到内存和显卡配置推荐�
 顶着这ID嘲笑GF就是底气十足<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 GF:没想到吧，我几乎全找外包。
 
+
+*****
+
+####  Jabeck  
+##### 313#       发表于 2026-7-30 16:18
+
+明天去CJ，不知道能不能玩上试玩。
+

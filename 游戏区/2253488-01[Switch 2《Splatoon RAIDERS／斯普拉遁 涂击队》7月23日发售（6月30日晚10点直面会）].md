@@ -5514,3 +5514,16 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 小贴士：杏棱巢穴力量背包带跃升和手套一样可以刷，由于配件只掉你用的派别，如果只用速度背包永远不掉力量配件，速度刷的差不多就该换力量背包刷了
 
+
+*****
+
+####  火红之眼  
+##### 699#       发表于 2026-7-30 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69984923&amp;ptid=2253488" target="_blank">mai6696 发表于 2026-7-30 13:15</a>
+
+稳定吗？救援奖励不也是随机的？
+
+经常给10000</blockquote>
+原来还有石头以外的？我发售以来每天都是两石头<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
