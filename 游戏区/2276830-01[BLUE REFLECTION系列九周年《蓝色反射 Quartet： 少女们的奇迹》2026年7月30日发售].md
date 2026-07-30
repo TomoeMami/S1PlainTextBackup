@@ -696,3 +696,26 @@ heman。。。。是啥<img src="https://static.stage1st.com/image/smiley/face20
 <img src="https://p.sda1.dev/34/f963cb7a49b5c17921b071e624227765/HKDXRrrboAAbOzd.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/34/87dcf5c3072690778a39e313d3a1eda4/1785405126326.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 62#         楼主| 发表于 2026-7-30 19:37
+
+＼#ブルリフQ 本日発売！／  
+
+岸田メルさん描き下ろしの発売記念イラストをお届けします♪
+
+#ブルリフ 4作品の魅力がぎゅっと詰まった本作。
+
+ブルリフを遊んだことがある方も、初めての方もぜひ、彼女たちの想いや絆を一緒に体験してください！
+<img src="https://p.sda1.dev/34/c63b552df4262434bfffb7db54871102/1000171353.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 63#         楼主| 发表于 2026-7-30 19:39
+
+褒贬不一
+[https://store.steampowered.com/a ... REFLECTION_Quartet/](https://store.steampowered.com/app/3825390/BLUE_REFLECTION_Quartet/)
+
