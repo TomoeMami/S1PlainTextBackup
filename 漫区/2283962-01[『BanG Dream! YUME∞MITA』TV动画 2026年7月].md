@@ -98,3 +98,28 @@
 
 总而言之先冷静一点，或许未来还有真正温暖清新的家是本团可以看<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Totokei  
+##### 149#       发表于 2026-7-30 23:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">感觉没有为什么要演奏春日影和飞鸟山之战看着乐啊
+
+不过第七集就开爆也许有可能追得回来<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LLLLLuB  
+##### 150#       发表于 2026-7-30 23:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">和隔壁母鸡卡楼一比，这楼都不像是百合动画的楼
+
+
+*****
+
+####  LLLLLuB  
+##### 151#       发表于 2026-7-30 23:55
+
+本来母鸡卡后对邦邦动画没抱啥希望，但想看坏女人能坏到什么程度，还是追了下梦限大。梦限大最大的问题是5人团没啥有意思的点，唯一让人期待的点就是薇欧拉坏到最后会怎么吃瘪了<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
