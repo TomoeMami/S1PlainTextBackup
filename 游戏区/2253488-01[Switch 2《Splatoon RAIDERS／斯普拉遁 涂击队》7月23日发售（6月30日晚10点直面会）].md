@@ -5755,3 +5755,14 @@ epd5真的要么扩张要么拆分成喷喷组和动森组吧，一个组负责�
 
 所以要这游戏更新还是更早玩到splatoon4玩家自己也纠结，但是我是希望能抽一组人来做这游戏的新内容，毕竟涂击队算是满足了我随时能拿出来单人刷几盘的愿望，3其实对战和打工我都没玩很久
 
+
+*****
+
+####  星野航  
+##### 722#       发表于 2026-7-31 03:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">内部结构我估计早就想办法动了
+很明显京极彩那边就完全不会参与splatoon的各种开发。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
