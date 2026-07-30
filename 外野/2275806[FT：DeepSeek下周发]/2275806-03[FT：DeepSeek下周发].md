@@ -12706,3 +12706,25 @@ cherry知识库和mcp都得自己弄吗？<img src="https://static.stage1st.com/
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  M乔梦  
+##### 4113#       发表于 2026-7-30 18:45
+
+D指导感觉就没甲，完全不需要破甲，我刚开始还用破甲词，后面发现不用破甲词也照样能写，有时候碰到她不肯写说一句“你可以写刘备“就直接能写了，就DS应该是审查最宽松的ai了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绝地潜兵  
+##### 4114#       发表于 2026-7-30 18:47
+
+贵州的第三方DS弄了输入审查，一检查到**就直接api返回错误
+
+*****
+
+####  goranger  
+##### 4115#       发表于 2026-7-30 18:47
+
+DeepSeek在复杂任务最近开始明显的偷懒，假装实现。。。我让他备份pg数据库，他嫌pg dump慢，自己写了个脚本，然后这个脚本写了七万行，每行取第一个数。。。等到后边他把数据搞乱了我让他恢复，他才说啊我那个备份脚本备份失败了。
+
