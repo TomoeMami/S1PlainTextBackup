@@ -61,3 +61,14 @@ FY16 YHA3 TL6W GFTK
 
 奈叶联动抽到的放火JK用了一下感觉很一般啊，是我打开方式不对吗？
 
+
+*****
+
+####  madcow  
+##### 2073#       发表于 2026-7-30 17:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69985461&amp;ptid=2104259" target="_blank">wilkyway 发表于 2026-7-30 15:02</a>
+
+派生进化大剑 闭着眼睛砍就完事了 当电属性京姐用</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">感觉动作跟普通的也差不多啊，是数值特别高吗
+

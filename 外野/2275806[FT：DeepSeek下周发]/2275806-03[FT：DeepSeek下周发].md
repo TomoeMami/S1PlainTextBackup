@@ -12577,3 +12577,52 @@ BOX平台完全不会用啊，所以就没说</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  冤枉呐  
+##### 4102#       发表于 2026-7-30 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69985471&amp;ptid=2275806" target="_blank">玉树临疯啊 发表于 2026-7-30 15:04</a>
+我对本地AI部署一窍不通。想问一下，是不是可以用deepseek的API模式写刘备文？ ...</blockquote>
+本地部署，需要搭配提示词（给我个邮箱地址我可以分享一下）
+grok写英文的绝了，还可以上传设定文件。不过印区路堵了
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  冤枉呐  
+##### 4103#       发表于 2026-7-30 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986106&amp;ptid=2275806" target="_blank">玉树临疯啊 发表于 2026-7-30 16:48</a>
+过往使用deepseek网页版，动不动就是“这个问题我无法回答”之类的回复，以至于我对它的尺度印象很差。有 ...</blockquote>
+给我一个邮箱地址，我发个cherrystudio教程给你
+我给我爸做的，你肯定没问题
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  overflowal  
+##### 4104#       发表于 2026-7-30 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986274&amp;ptid=2275806" target="_blank">ST2002 发表于 2026-7-30 17:09</a>
+为什么大家都在说最近 ds 流口水，我用 reasonix 接的 pro 模型， 感觉搞软件开发没出什么问题
+
+—— 来自  ...</blockquote>
+都是感觉罢了。就算是同样的模型，很多人也会说降智。随机性的玩意    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  冤枉呐  
+##### 4105#       发表于 2026-7-30 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986395&amp;ptid=2275806" target="_blank">查内姆 发表于 2026-7-30 17:25</a>
+说到这个，我知道一个酒馆，简单来说就是先下一个SillyTavern（酒馆），只有要安装什么环境，支持软件之 ...</blockquote>
+酒馆是扮演
+写还是得cherry，有知识库和mcp
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
