@@ -162,3 +162,104 @@
 #BanGDream# #AveMujica#</blockquote>
        [https://www.bilibili.com/video/BV1v43b6qE69](https://www.bilibili.com/video/BV1v43b6qE69)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41965#       发表于 2026-7-30 23:38
+
+       
+
+<img src="https://img.stage1st.com/forum/202607/30/233813ba1zm3evvmq21ax1.png" referrerpolicy="no-referrer">
+
+<strong>2026-07-30_23-37-06.png</strong> (575.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-30 23:38 上传
+
+       [https://x.com/bang_dream_info/status/2082821102557188303](https://x.com/bang_dream_info/status/2082821102557188303) <blockquote>简译：
+
+       距离 Ave Mujica 再次出道已经过去半年多，季节也来到了春天。
+
+       乐队的人气进一步提升，成员们各自的活动也逐渐步入正轨。
+
+       作为下一步舞台，祥子提出的是——
+
+       「Secret Masquerade」
+
+       一个会员制的假面舞会。
+
+       发誓要成为「神明」的她，究竟怀抱着怎样的意图……</blockquote>
+
+*****
+
+####  堀内爱里衣  
+##### 41966#       发表于 2026-7-30 23:39
+
+       
+
+<img src="https://img.stage1st.com/forum/202607/30/233932qeej3wiuhwdpw3wv.png" referrerpolicy="no-referrer">
+
+<strong>2026-07-30_23-38-50.png</strong> (676.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-30 23:39 上传
+
+       [https://x.com/bang_dream_info/status/2082821394895901137](https://x.com/bang_dream_info/status/2082821394895901137)
+
+*****
+
+####  堀内爱里衣  
+##### 41967#       发表于 2026-7-30 23:40
+
+       
+
+<img src="https://img.stage1st.com/forum/202607/30/234025dvlownqnqarllorn.png" referrerpolicy="no-referrer">
+
+<strong>2026-07-30_23-39-34.png</strong> (843.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-30 23:40 上传
+
+       [https://x.com/bang_dream_info/status/2082821653407715684](https://x.com/bang_dream_info/status/2082821653407715684)
+
+*****
+
+####  堀内爱里衣  
+##### 41968#       发表于 2026-7-30 23:42
+
+       
+
+<img src="https://img.stage1st.com/forum/202607/30/234235jc6uc5315zcw501f.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-07-30_23-40-22.jpg</strong> (208.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-30 23:42 上传
+
+       [https://x.com/bang_dream_info/status/2082822350085759039](https://x.com/bang_dream_info/status/2082822350085759039)
+
+       [https://bang-dream.com/discographies/4238/](https://bang-dream.com/discographies/4238/)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41969#       发表于 2026-7-30 23:46
+
+       
+
+<img src="https://img.stage1st.com/forum/202607/30/234631af8m332fz88a8xoa.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-07-30-23-45-35-681_com.instagram.android-edit.jpg</strong> (638.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-30 23:46 上传
+
+       [https://www.instagram.com/p/DbazUF8xH3I](https://www.instagram.com/p/DbazUF8xH3I)
+
