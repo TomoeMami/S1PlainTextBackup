@@ -5739,3 +5739,11 @@ pdd价格是因为出了新的8折券，导致一堆东西新史低<img src="htt
 
 作为此前没玩过喷喷的纯萌新，今天拿到卡带后狂肝7小时，已上瘾<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tachikoma88  
+##### 720#       发表于 2026-7-31 00:37
+
+epd5真的要么扩张要么拆分成喷喷组和动森组吧，一个组负责两个需要起码更新两年的游戏真的好吗
+
