@@ -5673,3 +5673,26 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 现行定价策略下ns2的第一方游戏下载版占比会大幅提升，本土可能首周就百万了。
 
+
+*****
+
+####  墨染白泉  
+##### 714#       发表于 2026-7-30 22:48
+
+日亚数字版排了很久的第一，百万是随便过
+
+*****
+
+####  墨染白泉  
+##### 715#       发表于 2026-7-30 22:50
+
+pdd价格是因为出了新的8折券，导致一堆东西新史低<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pro2到这价格确实无敌
+
+<img src="https://img.stage1st.com/forum/202607/30/225021hro2y4oqed1kdcyx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-07-30-17-41-57-65_e41039de8eaacf222a951c16e0560c66.jpg</strong> (490.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-30 22:50 上传
+
