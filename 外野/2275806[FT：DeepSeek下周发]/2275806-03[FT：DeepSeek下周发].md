@@ -12533,3 +12533,47 @@ harness毕竟说到底是工具层，各家模型厂自己面向自家模型开�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  蛋黄酱Release  
+##### 4098#       发表于 2026-7-30 17:32
+
+ai搞颜色的主要问题是如何阻止他偷懒<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">系统提示词在长上下文之后就不管用了，还是得每次输入的时候都重申一遍要求
+要么就只能上重型agent了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  查内姆  
+##### 4099#       发表于 2026-7-30 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986407&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-7-30 17:27</a>
+
+朋友，我觉得让新人上手酒馆是不是有点太难了？这东西我第一次安装的时候都感觉挺复杂的，这都还是我有耐 ...</blockquote>
+BOX平台完全不会用啊，所以就没说
+
+*****
+
+####  冤枉呐  
+##### 4100#       发表于 2026-7-30 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69985284&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-30 14:29</a>
+D指导现在这个样子，我连日常聊天助手这活儿都不敢让它承担了，我觉得想要能拿来用，怎么也得GLM5.2这个 ...</blockquote>
+grok写刘备真是一绝啊，
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  杀人鲸  
+##### 4101#       发表于 2026-7-30 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986437&amp;ptid=2275806" target="_blank">查内姆 发表于 2026-7-30 17:33</a>
+BOX平台完全不会用啊，所以就没说</blockquote>
+这玩意实际上就相当于Deepseek的客户端一样，是最简单的那种注册了不用，哦，不对，都不用注册，应该是下载了以后，API的密钥往里面一输，就可以开始用了。
+这个对于新人来说的确是挺友好的，我也是从玩这个开始入门，然后后面慢慢过渡到酒馆的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
