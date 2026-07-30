@@ -5314,3 +5314,15 @@ rougelike还是别了，喷3秩序线烂成啥样大家有目共睹的</blockquo
 
 我主线都用的泡和刷，终局后出的五星全是狙桶绿<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stoiorz  
+##### 681#       发表于 2026-7-30 09:54
+
+这个掉落是不是针对自己使用的武器有暗改的算法，掉落品类真的很单一。
+
+打到230层宝物就全拿到了，不准备继续刷了。
+
+看看后续有没有什么dlc和one more thing
+

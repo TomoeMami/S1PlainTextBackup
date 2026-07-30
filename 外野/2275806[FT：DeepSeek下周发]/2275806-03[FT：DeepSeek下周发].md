@@ -11952,3 +11952,26 @@ opencode明显不是大而全吧，只是tui和desktop界面在一众开源产�
 目前看到两个截图：1.L站那个说，deepseek内部其实根本没deadline；2.泥潭q群一个x截图，八月第一周周五可 ...</blockquote>
 token套餐本质就是赔钱卖限时token。他们不喜欢搞这些    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  qz66618  
+##### 4047#       发表于 2026-7-30 09:48
+
+现在不应该担心的是ds发布即落后吗，以往ds发布都还能成为开源sota呢，现在只希望能打平kimi就行了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  mitzvah  
+##### 4048#       发表于 2026-7-30 09:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69983360&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-7-30 09:48</a>
+
+现在不应该担心的是ds发布即落后吗，以往ds发布都还能成为开源sota呢，现在只希望能打平kimi就行了
+
+——  ...</blockquote>
+成本十分之一，同样性能的话，全人类怕是剩不了几家模型厂了
+
