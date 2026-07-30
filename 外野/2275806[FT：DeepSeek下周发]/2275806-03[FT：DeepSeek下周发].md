@@ -12084,3 +12084,36 @@ KIMI K3这速度实在没眼看。。。
 涨价页面在哪,我怎么看不见</blockquote>
 在充值的页面
 
+
+*****
+
+####  zy450  
+##### 4060#       发表于 2026-7-30 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69983972&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-7-30 10:54</a>
+
+涨价页面在哪,我怎么看不见</blockquote>
+API后台，你是不是之前点掉了
+
+
+*****
+
+####  goranger  
+##### 4061#       发表于 2026-7-30 11:03
+
+预计-即将。然后梁圣涨价但没发布新版的话你们如何应对
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  →熙←  
+##### 4062#       发表于 2026-7-30 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69983983&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-7-30 10:55</a>
+
+在充值的页面</blockquote>
+看见了, 即将! 爱信等<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+DeepSeek API 服务即将采用峰谷定价策略，高峰时段价格为平时价格2倍，适用所有计费项，具体时间以正式通知为准。【高峰时段定义：北京时间每日9:00～12:00 和 14:00～18:00】
+

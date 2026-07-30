@@ -167,3 +167,15 @@
 但是莫把她本体在哪找到了，所以就能进去了 ...</blockquote>
 所以说忘却的机制也肘不过你超梦大王的绝对权威
 
+
+*****
+
+####  pointer243  
+##### 2121#       发表于 2026-7-30 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69983046&amp;ptid=2250267" target="_blank">失落之翼 发表于 2026-7-30 08:58</a>
+柠檬：家人们谁懂啊，睡了一大觉醒来发现床头坐着一个男人盯着自己的惊悚感 ...</blockquote>
+感觉不如op她妈那个动作惊悚
+
+—— 来自 motorola edge 2025, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
