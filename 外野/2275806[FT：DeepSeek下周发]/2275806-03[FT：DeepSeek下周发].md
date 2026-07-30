@@ -12728,3 +12728,31 @@ D指导感觉就没甲，完全不需要破甲，我刚开始还用破甲词，�
 
 DeepSeek在复杂任务最近开始明显的偷懒，假装实现。。。我让他备份pg数据库，他嫌pg dump慢，自己写了个脚本，然后这个脚本写了七万行，每行取第一个数。。。等到后边他把数据搞乱了我让他恢复，他才说啊我那个备份脚本备份失败了。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4116#       发表于 2026-7-30 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986723&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-30 18:21</a>
+你这个很难说的。比如你用的harness 更新了。tools有改动，这些都会导致模型行为变动。这些一层层嵌套的 ...</blockquote>
+但总不能glm5.2、k2.6都好好的，就D指导不行吧？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4117#       发表于 2026-7-30 19:03
+
+ 本帖最后由 半江瑟瑟半江红 于 2026-7-30 19:06 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986845&amp;ptid=2275806" target="_blank">goranger 发表于 2026-7-30 18:47</a>
+DeepSeek在复杂任务最近开始明显的偷懒，假装实现。。。我让他备份pg数据库，他嫌pg dump慢，自己写了个脚 ...</blockquote>
+这个问题倒是从D指导V4刚出来时候我就遇着了，拆书导入做成项目框架，90章，他只有前10章正常拆解，后面的全都是提取标题和开头第一行以及最后一行内容，然后直接瞎编。反反复复让它做了好几次都没成功，那也是我订阅GPT的直接原因<img src="https://static.stage1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">真给我整红温了
+
+另外我前面也说过的一个例子，DOC文件，它第一次尝试没有正常读取，第二次根本没有尝试，直接从TEMP文件夹里给我搜了一个草稿出来了
+至于说什么DOCX文档提取出来乱码之后压根儿不尝试切换UTF8，而是直接编了全部内容糊弄我什么，我都不惜的说
+甚至把它不向我询问，也不做出任何改名处理，就把同名文件直接覆盖掉这种事儿，我给它归结为Z Code的问题，我都不赖它。但我得为Z Code说句公道话，GLM5.2在Z Code里从来没犯过这种失误。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
