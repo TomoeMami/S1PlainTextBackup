@@ -12028,3 +12028,33 @@ token套餐本质就是赔钱卖限时token。他们不喜欢搞这些    [Re:
 永远的即将    Re:Source</blockquote>
 之前也是即将吗，还是7月中旬将，即将听起来好像很快的样子
 
+
+*****
+
+####  王兰花秀丽  
+##### 4054#       发表于 2026-7-30 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69983753&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-7-30 10:29</a>
+腾讯的workbuddy好像还不错？我今天试用了一下</blockquote>
+可以试试qoder ，“好用到不像阿里的产品”    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  王兰花秀丽  
+##### 4055#       发表于 2026-7-30 10:40
+
+之前的措辞没有即将吧，我要沸腾了<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zy450  
+##### 4056#       发表于 2026-7-30 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69983360&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-7-30 09:48</a>
+
+现在不应该担心的是ds发布即落后吗，以往ds发布都还能成为开源sota呢，现在只希望能打平kimi就行了
+
+——  ...</blockquote>
+KIMI K3这速度实在没眼看。。。
+
