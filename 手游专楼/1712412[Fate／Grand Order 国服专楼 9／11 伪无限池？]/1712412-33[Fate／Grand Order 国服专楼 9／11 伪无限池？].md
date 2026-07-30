@@ -1341,3 +1341,19 @@ BGO的程序员是不是应该祭天了
 
 游戏下载回来推了一会主线，又把游戏删了，没耐心玩了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 48006#       发表于 2026-7-30 08:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">免费抽真的能出货
+
+<img src="https://img.stage1st.com/forum/202607/30/085215agguzdxgccj0dupc.png" referrerpolicy="no-referrer">
+
+<strong>7B0GH`KZZ{C5O)8@)MZ6.png</strong> (128.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-30 08:52 上传
+
