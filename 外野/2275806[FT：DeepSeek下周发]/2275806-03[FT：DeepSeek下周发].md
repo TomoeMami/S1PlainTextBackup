@@ -12154,3 +12154,31 @@ KIMI K3这速度实在没眼看。。。</blockquote>
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  羊寢  
+##### 4066#       发表于 2026-7-30 14:07
+
+咕咕咕咕咕
+<img src="https://p.sda1.dev/34/0f627013ac38c237075ff221a6bef160/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 4067#       发表于 2026-7-30 14:08
+
+kimi k3本质就不是一个月之暗面可用的商品啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+ds系列一直是高可用的，吹k3的我都怀疑是不是常用agent了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，感觉更多的是跟着通稿和benchmark就开始抒情了。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  neptunehs  
+##### 4068#       发表于 2026-7-30 14:11
+
+但不得不说我让k3跑个plan 就已经解决了我在ds这边一直解决不了的一些问题 虽然代价过重 只能期待dsv4正式版也能这样了
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
