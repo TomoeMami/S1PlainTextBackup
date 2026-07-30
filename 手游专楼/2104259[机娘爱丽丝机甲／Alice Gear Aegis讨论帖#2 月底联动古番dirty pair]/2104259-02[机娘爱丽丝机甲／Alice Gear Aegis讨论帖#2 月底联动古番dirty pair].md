@@ -83,3 +83,11 @@ FY16 YHA3 TL6W GFTK
 正常数值吧 强在模组好 范围大发生快没有乱七八糟的机制ta之类的可以从道中就一路砍过去
 不如说京姐自己也不是数值给得特别高的机体<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 2075#       发表于 2026-7-30 20:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">BU奈叶出了，联动齐了一高兴去vsbr池子下了两发结果神婆喜加一
+
