@@ -12626,3 +12626,14 @@ grok写英文的绝了，还可以上传设定文件。不过印区路堵了
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  玉树临疯啊  
+##### 4106#       发表于 2026-7-30 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986395&amp;ptid=2275806" target="_blank">查内姆 发表于 2026-7-30 17:25</a>
+
+说到这个，我知道一个酒馆，简单来说就是先下一个SillyTavern（酒馆），只有要安装什么环境，支持软件之 ...</blockquote>
+我就是用自由度最高的grok写文，然后后面发现不行呀，它文笔很差，很干，很套路，差不多来来去去就那几种描写。看出来它训练的源头语言是英文，给我输出的内容其实是按英语翻译成中文输出给我。我忍不了grok的烂文笔，于是试试国内的AI来写。
+

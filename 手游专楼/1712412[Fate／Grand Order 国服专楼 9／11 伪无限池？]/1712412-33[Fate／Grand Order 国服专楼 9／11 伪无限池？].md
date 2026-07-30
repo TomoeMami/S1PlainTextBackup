@@ -1409,3 +1409,13 @@ BGO的程序员是不是应该祭天了
 
 2000石，歪4，3new（奥德修斯，小莫，伽拉忒亚，重复了剑双子），五宝所长，又非又欧，福袋3出4，new3（溶解莉莉丝，暗之高扬斯卡娅，剑r，重复了上杉谦信）
 
+
+*****
+
+####  atomicink  
+##### 48013#       发表于 2026-7-30 17:54
+
+抽 6 宝时双黄，无用的欧气<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2307A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
