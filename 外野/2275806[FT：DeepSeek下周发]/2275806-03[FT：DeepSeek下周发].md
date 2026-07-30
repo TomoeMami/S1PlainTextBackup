@@ -12058,3 +12058,29 @@ token套餐本质就是赔钱卖限时token。他们不喜欢搞这些    [Re:
 ——  ...</blockquote>
 KIMI K3这速度实在没眼看。。。
 
+
+*****
+
+####  overflowal  
+##### 4057#       发表于 2026-7-30 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69983814&amp;ptid=2275806" target="_blank">我猫呢? 发表于 2026-7-30 10:36</a>
+之前也是即将吗，还是7月中旬将，即将听起来好像很快的样子</blockquote>
+之前是预计7月中旬    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  →熙←  
+##### 4058#       发表于 2026-7-30 10:54
+
+涨价页面在哪,我怎么看不见
+
+*****
+
+####  cscbzcbz  
+##### 4059#       发表于 2026-7-30 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69983972&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-7-30 10:54</a>
+涨价页面在哪,我怎么看不见</blockquote>
+在充值的页面
+
