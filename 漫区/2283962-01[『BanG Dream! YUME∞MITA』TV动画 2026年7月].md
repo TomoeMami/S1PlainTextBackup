@@ -139,3 +139,14 @@ v姐还是太靠天意了，但凡疼肚子老师看留言时有人贴个链接�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这片为了炒作那点马桶台八点档的烂俗剧情真是把剧内剧外所有人的智商按在地上摩擦
 
+
+*****
+
+####  格鲁格斯  
+##### 154#       发表于 2026-7-31 00:43
+
+看不懂，这个团到底是vtuber团吗，是的话应该也是和现实世界不同的“二次元vtuber”，否则我很难理解一个人的皮套形象为啥会和本人形象一模一样，然后跳槽去别的公司？团？之后还用一模一样的形象，这要放现实皮套版权都是公司拿着的。更别说这跳槽说跳就跳了，不只是少人那边的粉丝，多人这边的粉丝也会觉得离谱吧。另外这帮子人明明在一块儿上学，但是关于工作的事情全放在线上聊这合理吗？线下就没凑齐过。然后就是这个线上live是什么未来科技吗，难道不应该是在线下舞台里进行收音吗<img src="https://static.stage1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+真的，相较于角色行动或者想法的强行，在世界观设定上缺少解释更影响我的观看<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
