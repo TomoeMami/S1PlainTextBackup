@@ -12129,3 +12129,16 @@ DeepSeek API 服务即将采用峰谷定价策略，高峰时段价格为平时�
 论坛助手,iPhone</blockquote>
 原来还有这一手，哈基鲸，真有你的🐳
 
+
+*****
+
+####  qz66618  
+##### 4064#       发表于 2026-7-30 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69983727&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-30 10:27</a>
+
+真要能打平K3那就是梁神了
+
+我心理预期能比GLM5.2强就是梁圣</blockquote>
+强于glm5.2是肯定的，参数量在这里放着呢，做不到反而是开倒车<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">至少应该以opus4.8为目标
+
