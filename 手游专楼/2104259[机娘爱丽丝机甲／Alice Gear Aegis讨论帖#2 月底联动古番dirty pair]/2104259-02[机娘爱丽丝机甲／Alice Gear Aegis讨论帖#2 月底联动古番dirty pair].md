@@ -29,3 +29,13 @@ FY16 YHA3 TL6W GFTK
 这新角色连击中断直接清强化条可还行
 金字塔看起来对自己做的那些整天马拉松b不给打的粘狗屎boss有点缺乏认知了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 2070#       发表于 2026-7-30 14:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">六十连就歪了个new了个莉莉和司哥+1……
+
+送的annew了尾长，记得之前说很强来着？要怎么用（
+

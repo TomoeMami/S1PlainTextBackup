@@ -12248,3 +12248,11 @@ D指导现在这个样子，我连日常聊天助手这活儿都不敢让它承�
 
 gpt订阅真要爆了或者改变策略，我就安心给月之暗面掏钱了
 
+
+*****
+
+####  Promeus  
+##### 4075#       发表于 2026-7-30 14:36
+
+这几天拿来跑workbuddy水平不如浑元<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
