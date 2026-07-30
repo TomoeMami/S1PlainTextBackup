@@ -949,3 +949,11 @@ NS2没有实体版就算了
 
 国际化.global ，KT 英推评论区都被 anti-dei 的老外给三光了，也不知道能多卖给谁
 
+
+*****
+
+####  RainbowSealife  
+##### 82#       发表于 2026-7-30 19:24
+
+问一下帝的新增角色有约会剧情吗？如果没有，只是多了几个战斗或支援角色的话，那四合一我也没必要买了，帝24年五月份开始玩的，到现在玩了30h还没通关，太无聊了<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
