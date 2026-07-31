@@ -4530,3 +4530,11 @@ AI MV……
 
 韩国人也不敢，只有金亨泰敢
 
+
+*****
+
+####  鳄鱼亮爪  
+##### 445#       发表于 2026-7-31 21:49
+
+ls没有骂ai的我都标记了，下次我喜欢的游戏/厂商/主创用ai你们敢骂我就甩出来反击<img src="https://static.stage1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
