@@ -652,3 +652,11 @@ IS：我其实就是致敬一下大中华文化。
 日版美版的实机里服装不同，不知道是保留了egg的换装还是单纯没换</blockquote>
 美版这啥造型 看着跟高级兵种似的
 
+
+*****
+
+####  Nez  
+##### 1534#       发表于 2026-7-31 12:50
+
+照现在的节奏这作怕不是要在数值地图人设剧情演出上全方位翻车<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

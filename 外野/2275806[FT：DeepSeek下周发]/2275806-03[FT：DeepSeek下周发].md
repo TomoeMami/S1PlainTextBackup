@@ -13605,3 +13605,36 @@ pdf 甚至扫描件的 pdf 或 ocr 文件只能办    Re:Source</blockquote>
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  wuuuuuud  
+##### 4196#       发表于 2026-7-31 12:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69991223&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-31 12:20</a>
+我其实有点担心，gpt这么一弄，国内缺卡的基础上降价空间还有多少
+
+—— 来自 HONOR AAK-AN00, Android 16, ...</blockquote>
+正好反过来，luna用的人多了算力空出来才有可能降价吧
+
+—— 来自 nubia NX737J, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4197#       发表于 2026-7-31 12:55
+
+为啥会有人觉得gpt Luna和Terra降价会威胁到国模？5.6除了sol有用的必要？
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4198#       发表于 2026-7-31 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69991367&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-31 12:38</a>
+
+主要影响还是ds4pro和glm5.2，尤其后者还涨价
+
+现在知乎和b站某些人都快过年了</blockquote>
+我怀疑那帮人是不是不知道5.6分三个版
+
