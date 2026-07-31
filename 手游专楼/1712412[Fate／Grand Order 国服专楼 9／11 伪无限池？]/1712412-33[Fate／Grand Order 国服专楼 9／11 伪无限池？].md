@@ -1471,3 +1471,14 @@ BGO的程序员是不是应该祭天了
 
 终章打完后应该就弃坑改云了
 
+
+*****
+
+####  朝仓和美  
+##### 48017#       发表于 2026-7-31 19:59
+
+三个福袋都打算pass了，性价比太低了……
+
+感觉礼装难选多了，杀组竞争太激烈了
+<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
