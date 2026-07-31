@@ -13553,3 +13553,55 @@ pdf 甚至扫描件的 pdf 或 ocr 文件只能办<img src="https://static.stage
 
 OpenAI的小杯模型都是路边一条，没人用所以才降价
 
+
+*****
+
+####  ycjiang1337  
+##### 4192#       发表于 2026-7-31 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69991223&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-31 12:20</a>
+
+我其实有点担心，gpt这么一弄，国内缺卡的基础上降价空间还有多少
+
+—— 来自 HONOR AAK-AN00, Android 16, ...</blockquote>
+冷知识，K3对标的是GPT-5.6 Sol，大杯模型，这次一分钱都没降
+
+*****
+
+####  lactone  
+##### 4193#       发表于 2026-7-31 12:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69991349&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-7-31 12:36</a>
+冷知识，K3对标的是GPT-5.6 Sol，大杯模型，这次一分钱都没降</blockquote>
+主要影响还是ds4pro和glm5.2，尤其后者还涨价
+
+现在知乎和b站某些人都快过年了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  ycjiang1337  
+##### 4194#       发表于 2026-7-31 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69991367&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-31 12:38</a>
+
+主要影响还是ds4pro和glm5.2，尤其后者还涨价
+
+现在知乎和b站某些人都快过年了</blockquote>
+人家梁子之前都说了有90%的利润，你瞎惦记啥，而且降完价之后还是比V4P贵，跟V4F更没法比。
+
+事实上用着B卡的国外三方托管至今都没跟上DS官方价格
+
+
+*****
+
+####  冤枉呐  
+##### 4195#       发表于 2026-7-31 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69991008&amp;ptid=2275806" target="_blank">chaoliu 发表于 2026-7-31 11:51</a>
+pdf 甚至扫描件的 pdf 或 ocr 文件只能办    Re:Source</blockquote>
+我记得是支持PDF的，还支持网页链接……
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
