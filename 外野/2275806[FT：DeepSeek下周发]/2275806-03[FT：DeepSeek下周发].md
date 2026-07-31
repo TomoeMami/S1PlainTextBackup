@@ -15544,3 +15544,108 @@ glm5 系列注意力机制都是用的 dsv3 的 dsa，四舍五入 glm5.2 也是
 —— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-al ...</blockquote>
 写代码全靠后训练，而且 glm 本身也不算大
 
+
+*****
+
+####  nianiania  
+##### 4396#       发表于 2026-7-31 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992675&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-31 15:39</a>
+V4 Pro不解决读不完skill就开工这个问题之前就根本没办法参与讨论写文能力这件事，文风skill，还有各种创 ...</blockquote>
+老哥有什么 skill 推荐吗，想拿 d4f 搞点小黄文续写
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  雨昼斯基  
+##### 4397#       发表于 2026-7-31 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993005&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-7-31 16:25</a>
+请教下除了酒馆还能怎么写文，我发现我基本不用rp，而是单纯的写文，角色卡那些能迁移吗    Re:Source ...</blockquote>
+类脑有个帖子就是能读取角色卡的 skill。
+一句话搭建写文环境说是    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  当光停止  
+##### 4398#       发表于 2026-7-31 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993028&amp;ptid=2275806" target="_blank">cube 发表于 2026-7-31 16:27</a>
+
+梁子在滑向牢梁前回归梁圣。
+
+循环重置.jpg。</blockquote>
+
+<img src="https://img.stage1st.com/forum/202607/31/162914vf5p7pl4o4frxw35.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260731161518_14942_1125.png</strong> (482.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 16:29 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  muermaru  
+##### 4399#       发表于 2026-7-31 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993005&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-7-31 16:25</a>
+
+请教下除了酒馆还能怎么写文，我发现我基本不用rp，而是单纯的写文，角色卡那些能迁移吗    Re:Source ...</blockquote>
+有个这个项目[https://github.com/syrizelink/OpenFic](https://github.com/syrizelink/OpenFic)，世界书可以迁移，角色卡目前好像不支持导入。项目刚起步，我试了下问题还挺多，但是感觉方向和思路是对的
+
+
+*****
+
+####  goranger  
+##### 4400#       发表于 2026-7-31 16:33
+
+其实角色卡和世界书就是把一堆破甲提示词分区域注入攻击，你直接把角色卡文件扔给ai让他分析就行了
+
+
+*****
+
+####  goranger  
+##### 4401#       发表于 2026-7-31 16:33
+
+创建一个 HTML，内容是 SVG 绘制一个鹈鹕骑自行车的 2D 动画。
+
+*****
+
+####  阿刚  
+##### 4402#       发表于 2026-7-31 16:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说个题外话，没甲，完全没有
+
+*****
+
+####  冤枉呐  
+##### 4403#       发表于 2026-7-31 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993005&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-7-31 16:25</a>
+
+请教下除了酒馆还能怎么写文，我发现我基本不用rp，而是单纯的写文，角色卡那些能迁移吗    Re:Source ...</blockquote>
+cherry studio
+
+提示词约束文风
+
+知识库提供背景知识---类似lorebook吧，有区别
+
+mcp读写文件跟踪角色状态。
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4404#       发表于 2026-7-31 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993037&amp;ptid=2275806" target="_blank">nianiania 发表于 2026-7-31 16:28</a>
+老哥有什么 skill 推荐吗，想拿 d4f 搞点小黄文续写
+
+—— 来自 vivo V2405A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+文风是我自己让ai总结以后再跟它工作时候一点点改的，没有什么普适性。黄文的话我一般都用手机上的tavo和rikkahub
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
