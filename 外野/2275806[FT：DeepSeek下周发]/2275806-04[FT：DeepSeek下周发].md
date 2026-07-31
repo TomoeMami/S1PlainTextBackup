@@ -1362,3 +1362,14 @@ comfy官方说的能在3060跑，至于多缓慢就不知道了。但现在sd2�
 
 2026-7-31 21:34 上传
 
+
+*****
+
+####  ycjiang1337  
+##### 4565#       发表于 2026-7-31 22:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994499&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-31 21:05</a>
+
+至于华为云，每天和昇腾机器搏斗就知道什么水平了，一开始是完全没想到这么多云厂商技术不如DS…… ...</blockquote>
+所以余大嘴才说生产出来的昇腾优先给客户，估计也是知道华为云自己用用不明白
+
