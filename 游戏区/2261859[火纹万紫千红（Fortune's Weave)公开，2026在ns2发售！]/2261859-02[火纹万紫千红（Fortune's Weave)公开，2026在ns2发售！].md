@@ -621,3 +621,34 @@ IS：我其实就是致敬一下大中华文化。
 
 没事翻了翻觉醒和if，小崎画的黑皮感觉顺眼多了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CURE_HGCG  
+##### 1531#       发表于 2026-7-31 09:59
+
+眼睛一眨还有一个多月就要发售了
+
+*****
+
+####  黑上シグマ  
+##### 1532#       发表于 2026-7-31 10:02
+
+<blockquote>引用第1529楼kalavinka于2026-07-30 16:33发表的  :
+
+没事翻了翻觉醒和if，小崎画的黑皮感觉顺眼多了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">インバース好色的
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
+
+*****
+
+####  血狂毘沙门  
+##### 1533#       发表于 2026-7-31 10:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69985943&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-7-30 16:23</a>
+
+日版美版的实机里服装不同，不知道是保留了egg的换装还是单纯没换</blockquote>
+美版这啥造型 看着跟高级兵种似的
+

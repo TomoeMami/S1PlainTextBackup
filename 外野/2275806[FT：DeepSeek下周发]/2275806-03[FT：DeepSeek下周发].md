@@ -13148,3 +13148,50 @@ IMG_0457.jpeg
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  neptunehs  
+##### 4150#       发表于 2026-7-31 09:58
+
+opencode go的dsv4突然思维变中文了，这是不是流口水的体现？
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  crow_wine  
+##### 4151#       发表于 2026-7-31 09:59
+
+感觉 千问3.8 max preview 的思维链也各种but wait，DeepSeek R1还是太权威了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wandeeees  
+##### 4152#       发表于 2026-7-31 10:00
+
+这算不算一步慢步步慢，适配国产的慢了个把月，现在又要弄harness，也要慢个把月<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+再等半个月GLM估计就要出5.5了，别还在5.5后面出就太拉胯了
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4153#       发表于 2026-7-31 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990075&amp;ptid=2275806" target="_blank">玉树临疯啊 发表于 2026-7-31 09:54</a>
+我想写的刘备文，其实是给一篇烂尾断章多年的刘备文续写后面的故事。不是自己原创，是续写。 ...</blockquote>
+那最好还是上Agent先把原本的部分变成工作框架。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  LeoDT  
+##### 4154#       发表于 2026-7-31 10:02
+
+D老师正式版不发可以，但是现在的版本能不能正常点，刚才遇到在工具调用途中开始思考的情况了，一个挺简单的几百行的plan给我写了两遍，中间夹着思考，搞得都不敢干活了。
+
