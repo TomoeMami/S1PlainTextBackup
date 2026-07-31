@@ -14214,3 +14214,167 @@ glm真是小丑啊
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992052&amp;ptid=2275806" target="_blank">lubo 发表于 2026-7-31 14:22</a></blockquote>
 真碾掉glm5.2了?
 
+
+*****
+
+####  nxmonitor  
+##### 4260#       发表于 2026-7-31 14:29
+
+早说了DS才是后训练仙人，R1就是这么搞出来的。
+
+*****
+
+####  findpkq  
+##### 4261#       发表于 2026-7-31 14:29
+
+glm你退下吧
+
+那这flash能当pro preview蹬吗
+
+隔壁视频的seedance2.5也在月底鸽出来了，费用欠拷打
+
+*****
+
+####  Milarvoz  
+##### 4262#       发表于 2026-7-31 14:29
+
+梁圣是早上起床看到glm涨价新闻立马拍板上线v4f的嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  vincevincetang  
+##### 4263#       发表于 2026-7-31 14:29
+
+flash是我平时用量最大的，这下爽了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4264#       发表于 2026-7-31 14:30
+
+跑了一点小项目，感觉比GLM5.2聪明。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  Rowen233  
+##### 4265#       发表于 2026-7-31 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992083&amp;ptid=2275806" target="_blank">zhanglei1943 发表于 2026-7-31 14:26</a>
+
+deepswe 54 ≈ gpt 5.5 high ≈ opus 4.8 xhigh
+
+ALE 25 略低于 opus 4.8 max (27) 略低于 K3 max (28)</blockquote>
+但不知道为什么有几个评分比Luna低很多<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七氷  
+##### 4266#       发表于 2026-7-31 14:31
+
+这下glm小丑了
+
+*****
+
+####  nxmonitor  
+##### 4267#       发表于 2026-7-31 14:31
+
+这个benchmark有点厉害，DS按照目前的信誉度还是不会去刷分的，别V4P真搞个对标Fable的东西来了，虽然灰测版最后几天已经有苗头了。
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4268#       发表于 2026-7-31 14:32
+
+智谱傻逼了
+加油啊，曾经是杨圣导师的大哥哥！
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  花椒  
+##### 4269#       发表于 2026-7-31 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990142&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-7-31 10:02</a>
+D老师正式版不发可以，但是现在的版本能不能正常点，刚才遇到在工具调用途中开始思考的情况了，一个挺简单 ...</blockquote>
+昨晚上我就发现代码乱写，连编码风格都变了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  蛋黄酱Release  
+##### 4270#       发表于 2026-7-31 14:33
+
+<img src="https://img.stage1st.com/forum/202607/31/143252uw7z8g7il9wcnnpc.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1785479572185_2.webp</strong> (53.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 14:32 上传
+
+这下luna白降价了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  冤枉呐  
+##### 4271#       发表于 2026-7-31 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69991996&amp;ptid=2275806" target="_blank">chaoliu 发表于 2026-7-31 14:15</a>
+
+不是，我还有很多是扫描件的 PDF，就是那种没有文字信息，都是以图片形式表存的，要通过 OCR 后转成文字 ...</blockquote>
+这个你直接调一个便宜的视觉模型，先转成文字输出，然后再保存呗
+
+*****
+
+####  →熙←  
+##### 4272#       发表于 2026-7-31 14:34
+
+要是ds的价格弄了一个fable等级的出来, 所有其他文字模型都要变小丑
+
+*****
+
+####  GJRstone  
+##### 4273#       发表于 2026-7-31 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990580&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-31 11:01</a>
+
+说中文说英语这个真别当成啥判据。。。    Re:Source</blockquote>
+应该是api级别的harness工程，我下午试了几次简单对话，思考里一直是以”我们 need answer in Chinese. Need analyze. User asks:“开头的，说实话这思考有点难崩
+
+*****
+
+####  overflowal  
+##### 4274#       发表于 2026-7-31 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992150&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-7-31 14:33</a>
+这下luna白降价了
+
+—— 来自 vivo V2405A, Android 16, 鹅球 v4.0</blockquote>
+杀杀杀杀杀<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 4275#       发表于 2026-7-31 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992134&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-7-31 14:30</a>
+
+但不知道为什么有几个评分比Luna低很多</blockquote>
+是不是max档位测的？Luna的max是多子代理硬跑的吗？
+
+*****
+
+####  Anarkia  
+##### 4276#       发表于 2026-7-31 14:35
+
+甲还是跟没有一样
+
+赞美梁圣
+

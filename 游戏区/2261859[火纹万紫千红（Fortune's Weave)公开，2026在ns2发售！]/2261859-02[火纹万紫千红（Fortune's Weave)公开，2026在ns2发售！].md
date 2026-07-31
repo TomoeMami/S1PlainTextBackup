@@ -709,3 +709,13 @@ IS：我其实就是致敬一下大中华文化。
 
 这贵安人会hohoho笑吗
 
+
+*****
+
+####  57042711  
+##### 1540#       发表于 2026-7-31 14:31
+
+终于来了个可以无缝混入前作的角色<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
