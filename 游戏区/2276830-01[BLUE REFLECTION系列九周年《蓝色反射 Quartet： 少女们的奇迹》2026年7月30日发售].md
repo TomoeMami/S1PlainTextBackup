@@ -746,3 +746,12 @@ heman。。。。是啥<img src="https://static.stage1st.com/image/smiley/face20
 
 PC版压缩档就有32.7G…<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看着也没多高清，再观望观望
 
+
+*****
+
+####  Piano-Forest  
+##### 66#         楼主| 发表于 2026-7-31 20:18
+
+ファミ通４０周年記念で寄稿させてもらったブルリフのイラストです！
+<img src="https://p.sda1.dev/34/29c35de534f0f04b283b3f3ea92363e5/HOi3BdTbUAA7w-r.jpg" referrerpolicy="no-referrer">
+

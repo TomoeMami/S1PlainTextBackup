@@ -869,3 +869,43 @@ ai算法方面都不管了
 
 别管什么小赢鲸了，MiniMax H3好像要成为涩涩界的核弹了
 
+
+*****
+
+####  wandeeees  
+##### 4521#       发表于 2026-7-31 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994164&amp;ptid=2275806" target="_blank">无尽的牙刷 发表于 2026-7-31 20:10</a>
+
+别管什么小赢鲸了，MiniMax H3好像要成为涩涩界的核弹了</blockquote>
+那你也别干聊啊，来点货看看啊
+
+*****
+
+####  千秋难诉  
+##### 4522#       发表于 2026-7-31 20:16
+
+延期半个月，“月初”的pro ga到底会是什么水平，能让川宝下决心建墙吗
+
+
+*****
+
+####  真红之闪电  
+##### 4523#       发表于 2026-7-31 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994164&amp;ptid=2275806" target="_blank">无尽的牙刷 发表于 2026-7-31 20:10</a>
+别管什么小赢鲸了，MiniMax H3好像要成为涩涩界的核弹了</blockquote>
+文？图？还是视频？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nxmonitor  
+##### 4524#       发表于 2026-7-31 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994196&amp;ptid=2275806" target="_blank">千秋难诉 发表于 2026-7-31 20:16</a>
+
+延期半个月，“月初”的pro ga到底会是什么水平，能让川宝下决心建墙吗</blockquote>
+真有灰测水平，美国公司全体自己部署了，更不能制裁了
+
