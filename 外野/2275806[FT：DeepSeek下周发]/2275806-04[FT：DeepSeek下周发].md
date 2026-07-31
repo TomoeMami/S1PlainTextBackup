@@ -145,3 +145,94 @@ syl，上面都私信了。</blockquote>
 
 —— 来自 Xiaomi M2102J2SC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  weile10000  
+##### 4455#       发表于 2026-7-31 17:27
+
+声明：本人从未在互联网上诋毁过深度求索，并没有称梁文锋为梁白开/牢梁/小难梁。本人实际上是深度求索一年老粉，经过长时间的思考，我发现Deepseek才是中国AI的希望，有时候做出决定很难，经过许多个日夜的思考，我决定加入Deepsee**丝团。至于Kimi，GLM和Minimax，祝他们的开源模型一切顺利。望周知！
+
+*****
+
+####  M乔梦  
+##### 4456#       发表于 2026-7-31 17:28
+
+<blockquote>czhhws 发表于 2026-7-31 16:59
+私了
+
+syl，上面都私信了。</blockquote>
+求破甲词
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  BarricadeMKXX  
+##### 4457#       发表于 2026-7-31 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993406&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-7-31 17:25</a>
+我看到这帖子突然加了200多楼，就冲进来了，什么情况？</blockquote>
+1. flash发正式版了，按跑分比隔壁glm5.2还强一点，有官方，codex适配
+2. 内部harness已经测过了，8月初和pro正式版一起端上来
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  zeta945  
+##### 4458#       发表于 2026-7-31 17:32
+
+DS一直是一句话破甲啊，试了试R18G完全没问题
+
+
+*****
+
+####  暗口崩子  
+##### 4459#       发表于 2026-7-31 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993403&amp;ptid=2275806" target="_blank">czhhws 发表于 2026-7-31 17:24</a>
+
+都发了
+
+给个建议，其实你们随便搜一下就有了。甲真的很薄。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我也求一个破甲词
+
+*****
+
+####  站立风景  
+##### 4460#       发表于 2026-7-31 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993406&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-7-31 17:25</a>
+
+我看到这帖子突然加了200多楼，就冲进来了，什么情况？</blockquote>
+更新了，甲厚了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 4461#       发表于 2026-7-31 17:37
+
+总感觉融资以后还是有了无形的压力。先是在没人问的情况下虚空给自己立了个七月中旬的DDL，然后今天又在公告里用pro“会尽快上线”这种并不必要的声明。
+
+*****
+
+####  王兰花秀丽  
+##### 4462#       发表于 2026-7-31 17:37
+
+不用刷楼了我上传了破甲词https://gofile.io/d/kGMmt0    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ czhhws + 2好评加鹅
+
+查看全部评分
+
