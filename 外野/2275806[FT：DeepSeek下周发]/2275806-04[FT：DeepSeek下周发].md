@@ -1534,3 +1534,31 @@ grok我感觉都不用破甲，可能因为我连接了X**账号？
 
 2026-7-31 23:02 上传
 
+
+*****
+
+####  M乔梦  
+##### 4581#       发表于 2026-7-31 23:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994977&amp;ptid=2275806" target="_blank">nnknnk 发表于 2026-7-31 22:37</a>
+
+折腾了一下提示词，后训练flash的甲还是挺好破的，不过得roll。
+
+其实可以先让preview写一段（e.g. siliconf ...</blockquote>
+靠你这方法还真把未成年角色的问题直接跳过了
+
+*****
+
+####  高粱河车神  
+##### 4582#       发表于 2026-7-31 23:18
+
+这吊图真是要笑死我
+
+<img src="https://img.stage1st.com/forum/202607/31/231827e96bk6xz6n3kqx3i.png" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260731_231812_com.huawei.hmos.photos.png</strong> (119.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 23:18 上传
+

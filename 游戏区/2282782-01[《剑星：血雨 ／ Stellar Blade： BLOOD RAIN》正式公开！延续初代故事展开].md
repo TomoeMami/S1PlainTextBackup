@@ -4546,3 +4546,13 @@ ls没有骂ai的我都标记了，下次我喜欢的游戏/厂商/主创用ai你
 
 ai是对的，劣质ai不行，但这个MV的呈现效果很好
 
+
+*****
+
+####  寂长无星夜  
+##### 447#       发表于 2026-7-31 23:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993176&amp;ptid=2282782" target="_blank">xzzfft 发表于 2026-7-31 16:52</a>
+金大师费那么大功夫打造的长马尾就这么扔了可惜了</blockquote>
+感觉游戏里效果不好，不如短马尾
+
