@@ -1601,3 +1601,11 @@ grok生图双重审核，前端突破了也没用。反正上半身裸露自摸�
 这吊图真是要笑死我</blockquote>
 这到底是什么梗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 4587#       发表于 2026-8-1 00:19
+
+测了好几个harness，结果竟然是PI效果更好，不理解这个情况怎么发生的……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
