@@ -15134,3 +15134,136 @@ V4 Pro不解决读不完skill就开工这个问题之前就根本没办法参与
 
 智谱今天又埋一批<img src="https://static.stage1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  龙骑士尹志平  
+##### 4356#       发表于 2026-7-31 15:46
+
+<img src="https://img.stage1st.com/forum/202607/31/154600ygdegrrd3t3ehzn4.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>v2-7cca871b06a923b38ee9f11d6f0cf137_r.png.webp</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 15:46 上传
+
+*****
+
+####  goranger  
+##### 4357#       发表于 2026-7-31 15:46
+
+<img src="https://img.stage1st.com/forum/202607/31/154616fzmztei6ggekiwze.jpg" referrerpolicy="no-referrer">
+
+<strong>image.jpg</strong> (171.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 15:46 上传
+
+ 恩情！就是似乎蹬的人太多了，api性能下降了，扛住啊，别涨价
+
+*****
+
+####  crow_wine  
+##### 4358#       发表于 2026-7-31 15:47
+
+差点冲了别家的会员，这下可以安心等大鲸鱼了<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lubo  
+##### 4359#       发表于 2026-7-31 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992707&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-7-31 15:44</a>
+
+这个好像还没人转？咩了一天都不到回旋镖就来了    Re:Source</blockquote>
+openrouter有luna半价，实际价格差不多
+
+*****
+
+####  七氷  
+##### 4360#       发表于 2026-7-31 15:49
+
+感觉没有性能下降，依然爽蹬
+
+
+*****
+
+####  c月光咖啡  
+##### 4361#       发表于 2026-7-31 15:49
+
+梁圣宣布DSV4 正式版即将震撼上线
+梁子承诺 DSV4 将于7月中旬发布
+牢梁正在度过史上最长的7月中旬
+梁白开已无心矗立世界模型之林
+至高无上的梁圣携 DEEPSEEK V4 正式版于今日降临<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
+
+
+*****
+
+####  夜游宫  
+##### 4362#       发表于 2026-7-31 15:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">华子给点力啊，早点把卡供应上。
+
+*****
+
+####  星野あさみ  
+##### 4363#       发表于 2026-7-31 15:51
+
+<img src="https://img.stage1st.com/forum/202607/31/155126luwszssuscyyumuw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 15:51 上传
+
+比手游好玩多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  毒品  
+##### 4364#       发表于 2026-7-31 15:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> ccswitch 在codex中切换会丢失任务，有解决方案么，切到ds之前的对话看不到，切回来可以
+
+*****
+
+####  酱狐狸  
+##### 4365#       发表于 2026-7-31 15:52
+
+<blockquote>Responses API 目前仅支持 deepseek-v4-flash 模型，暂不支持 deepseek-v4-pro 模型。我们将于 2026 年 8 月初增加对 deepseek-v4-pro 模型的支持。</blockquote>
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">8月初真的能把pro吐出来吗牢梁
+
+*****
+
+####  mitzvah  
+##### 4366#       发表于 2026-7-31 15:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992652&amp;ptid=2275806" target="_blank">squallx 发表于 2026-7-31 15:36</a>
+
+强过3vl的是27b吗 有点慢 35b速度倒是不错 我看发布时间3vl32b也不算太老吧
+
+—— 来自 OnePlus PJZ110,  ...</blockquote>
+9b轻松完爆vl的30b，我印象里4b都不比30b vl差
+
+
+*****
+
+####  狭义文具爱好者  
+##### 4367#       发表于 2026-7-31 15:56
+
+v3初版-v3 0324-v3.1-v3.2，希望v4pga至少有两个阶段的提升
+
+*****
+
+####  novem  
+##### 4368#       发表于 2026-7-31 15:57
+
+V4 flash网页版感觉超级聪明啊，可以做各种充满脑洞的工作了
+
