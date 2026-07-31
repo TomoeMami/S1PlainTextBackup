@@ -596,3 +596,57 @@ API的接口方面应该是被覆盖了，但是网页和APP上面还是原版�
 
 想问问网页版、APP端的Flash是正式版了吗？
 
+
+*****
+
+####  Promeus  
+##### 4497#       发表于 2026-7-31 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993744&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-7-31 18:43</a>
+我看各处只有API的消息
+
+想问问网页版、APP端的Flash是正式版了吗？</blockquote>
+没有<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  overflowal  
+##### 4498#       发表于 2026-7-31 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993744&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-7-31 18:43</a>
+我看各处只有API的消息
+
+想问问网页版、APP端的Flash是正式版了吗？</blockquote>
+不是，请充钱<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  费雷拉  
+##### 4499#       发表于 2026-7-31 18:47
+
+这v4flash 正式版的agent能力比预览版pro强4倍不止。按我之前干活的经验，派发了一个通过设计文档审核项目代码的工作。
+
+（审核出来十来个问题）
+
+没有任何提示的情况下，自动不同分支子agent分别设计编译过测试。然后审核合并。然后继续下一轮流水线。
+
+最关键是之前的预览版马马虎虎干完一轮工作就会向你汇报完成完成进度了。而且这种情况下如果继续，下一轮质量就会下降。
+
+现在从4点过开始跑这个任务，现在以及跑了俩轮半了（每轮并行解决三个问题），还在井井有条的继续干，没有违背。
+
+*****
+
+####  舞以  
+##### 4500#       发表于 2026-7-31 18:47
+
+梁圣要赶跑c端用户了？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  王兰花秀丽  
+##### 4501#       发表于 2026-7-31 18:51
+
+这个openfic非常好用，比酒馆好用十倍，这才是现代小黄文的打开方式  [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
