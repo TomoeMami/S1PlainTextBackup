@@ -573,3 +573,26 @@ DS这个是幻觉甲，不是专门搞的甲
 
 我用workbuddy接的pro，是不是切成flash就是今天的正式版了？
 
+
+*****
+
+####  杀人鲸  
+##### 4495#       发表于 2026-7-31 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993695&amp;ptid=2275806" target="_blank">不让用大写 发表于 2026-7-31 18:30</a>
+之前的预览版是直接下架了吗？
+
+我用workbuddy接的pro，是不是切成flash就是今天的正式版了？ ...</blockquote>
+API的接口方面应该是被覆盖了，但是网页和APP上面还是原版的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  pure_liquid  
+##### 4496#       发表于 2026-7-31 18:43
+
+我看各处只有API的消息
+
+想问问网页版、APP端的Flash是正式版了吗？
+

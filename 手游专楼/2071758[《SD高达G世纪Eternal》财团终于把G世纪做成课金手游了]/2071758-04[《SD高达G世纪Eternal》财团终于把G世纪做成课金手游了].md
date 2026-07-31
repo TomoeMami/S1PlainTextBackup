@@ -76,3 +76,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">感觉TV应该是被放弃了，全力主推KA版
 
+
+*****
+
+####  猪突猛进R  
+##### 4587#       发表于 2026-7-31 18:33
+
+重炮手帅炸，装逼指数超过希罗了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
