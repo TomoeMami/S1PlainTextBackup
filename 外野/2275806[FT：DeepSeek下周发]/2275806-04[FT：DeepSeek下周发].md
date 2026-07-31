@@ -1814,3 +1814,16 @@ opencode，体验不比glm差。中文思维链很爽。
 
 【\😭/【你从广东来】v4flash正式版，梁圣的恩情还不完】 [https://www.bilibili.com/video/B ... 982e90874d6747e4e59](https://www.bilibili.com/video/BV1XugY6rEn9/?share_source=copy_web&amp;vd_source=c07d101913fe4982e90874d6747e4e59)
 
+
+*****
+
+####  真红之闪电  
+##### 4606#       发表于 2026-8-1 06:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69995468&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-1 00:44</a>
+
+我怎么一直没遇到不能写的情况
+
+难道是破甲提示词的原因？</blockquote>
+和上个版本完全一样……毫无保留就输出了。你们以前都什么提示词在破甲啊？
+
