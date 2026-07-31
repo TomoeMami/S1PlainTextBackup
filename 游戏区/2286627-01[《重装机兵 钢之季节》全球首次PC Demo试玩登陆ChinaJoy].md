@@ -404,3 +404,16 @@ bug有原汁原味移植吗<img src="https://static.stage1st.com/image/smiley/fa
 
 奥丁炮BUG会修吗？ 斯大林战车的最终形态能不能重见天日？原版改出来几个固定武器连个建模都没真的是<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wingzerocos  
+##### 43#       发表于 2026-8-1 01:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993951&amp;ptid=2286627" target="_blank">KOS-MOS_Refrain 发表于 2026-7-31 19:28</a>
+奥丁炮BUG会修吗？ 斯大林战车的最终形态能不能重见天日？原版改出来几个固定武器连个建模都没真的是 ...</blockquote>
+就算补上建模，载重限制也造不出来，除非可以改造固定武器或者加双引擎。
+奥丁炮除了修bug还要补上缺的几个零件图纸的入手方法，还要调整炮管建模。
+
+这游戏后半缺的东西太多了，得重制解决。
+
