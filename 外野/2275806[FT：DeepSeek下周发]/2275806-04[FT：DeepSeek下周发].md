@@ -1775,3 +1775,15 @@ opencode，体验不比glm差。中文思维链很爽。
 
 写文还是没有GLM5.X好啊
 
+
+*****
+
+####  不见不散  
+##### 4603#       发表于 2026-8-1 02:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69995599&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-1 02:28</a>
+你非要干这种事干啥
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+完全是出于研究与学习破甲词的目的，我对这种题材本身没什么兴趣。
+
