@@ -405,3 +405,19 @@ fami通8/9/9/9，35
 
 试玩只有15分钟，就是打霸主🦌那段，所以系统深度什么的都不知道。
 
+
+*****
+
+####  卢迪克  
+##### 323#       发表于 2026-7-31 16:55
+
+偷跑目前28小时打了53%进度。
+
+<img src="https://img.stage1st.com/forum/202607/31/165409nsnigffrwjrjduww.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 16:54 上传
+

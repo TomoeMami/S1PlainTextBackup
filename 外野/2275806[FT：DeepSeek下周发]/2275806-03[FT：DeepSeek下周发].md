@@ -15804,3 +15804,204 @@ preview肯定可以, 今天更新了正式版,问的是这个
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  goranger  
+##### 4419#       发表于 2026-7-31 16:56
+
+<img src="https://img.stage1st.com/forum/202607/31/165043mag2hccz2szcc5c1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 16:50 上传
+
+这样就好了。。。大陆地区直连不受影响
+
+*****
+
+####  czhhws  
+##### 4420#       发表于 2026-7-31 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993185&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-7-31 16:52</a>
+preview肯定可以, 今天更新了正式版,问的是这个
+
+当初的pro灰度,我这里是普通的都完全不行
+
+ ...</blockquote>
+可以的，你用用我这个。私信发你了。
+
+—— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  舞以  
+##### 4421#       发表于 2026-7-31 16:57
+
+昨天被晃点，一天用完了codex的周限额，结果没reset。
+还好梁圣出手，还有东西玩<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  zfy1989  
+##### 4422#       发表于 2026-7-31 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993213&amp;ptid=2275806" target="_blank">czhhws 发表于 2026-7-31 16:56</a>
+
+可以的，你用用我这个。私信发你了。
+
+—— 来自 realme RMX3700, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+求私信破甲词
+
+*****
+
+####  天桥夜风  
+##### 4423#       发表于 2026-7-31 16:58
+
+意思这次更新后可以直接在codex配置写deepseek了吗？我还在用moonbridge中转
+
+*****
+
+####  夜游宫  
+##### 4424#       发表于 2026-7-31 16:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993213&amp;ptid=2275806" target="_blank">czhhws 发表于 2026-7-31 16:56</a>
+
+可以的，你用用我这个。私信发你了。
+
+—— 来自 realme RMX3700, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+求私破甲词<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  czhhws  
+##### 4425#       发表于 2026-7-31 16:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993224&amp;ptid=2275806" target="_blank">zfy1989 发表于 2026-7-31 16:58</a>
+求私信破甲词</blockquote>
+私了
+
+syl，上面都私信了。
+
+—— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  站立风景  
+##### 4426#       发表于 2026-7-31 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993234&amp;ptid=2275806" target="_blank">czhhws 发表于 2026-7-31 16:59</a>
+
+私了
+
+syl，上面都私信了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">同求
+
+*****
+
+####  ArthurDent  
+##### 4427#       发表于 2026-7-31 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993234&amp;ptid=2275806" target="_blank">czhhws 发表于 2026-7-31 16:59</a>
+私了
+
+syl，上面都私信了。</blockquote>
+🏀🏀<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  天气雨  
+##### 4428#       发表于 2026-7-31 17:01
+
+悲报，甲变厚了。
+无甲时代一去不复返。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102J2SC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  icedew  
+##### 4429#       发表于 2026-7-31 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993234&amp;ptid=2275806" target="_blank">czhhws 发表于 2026-7-31 16:59</a>
+私了
+
+syl，上面都私信了。</blockquote>
+同求私破甲词
+
+*****
+
+####  →熙←  
+##### 4430#       发表于 2026-7-31 17:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">感谢,晚上回去试
+
+*****
+
+####  JuMuShan  
+##### 4431#       发表于 2026-7-31 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993077&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-7-31 16:35</a>
+
+说个题外话，没甲，完全没有</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">居然没甲
+
+*****
+
+####  leina0602  
+##### 4432#       发表于 2026-7-31 17:04
+
+已经接入的API要改吗，还是直接切到v4-flash就好
+
+*****
+
+####  neptunehs  
+##### 4433#       发表于 2026-7-31 17:04
+
+所以到底是有甲还是无甲（虽然我没在玩酒馆
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  wlhlz  
+##### 4434#       发表于 2026-7-31 17:04
+
+试了一下完全没发现甲变厚了啊，我还是用的这大半年一直在用的破甲词还是照样百无禁忌，不过我写的破甲词本身就比较详细就是
+
+*****
+
+####  1707k  
+##### 4435#       发表于 2026-7-31 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993213&amp;ptid=2275806" target="_blank">czhhws 发表于 2026-7-31 16:56</a>
+可以的，你用用我这个。私信发你了。
+
+—— 来自 realme RMX3700, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+求私破甲词+1
+
+—— 来自 Xiaomi 22081212C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  蛋黄酱Release  
+##### 4436#       发表于 2026-7-31 17:05
+
+吓得我试了试，极端xp还是可以破甲的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是flash写文还是不行，期待正式版pro了
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  88is88  
+##### 4437#       发表于 2026-7-31 17:06
+
+求私信破甲词
+
