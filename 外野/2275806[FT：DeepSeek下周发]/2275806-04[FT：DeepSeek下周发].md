@@ -523,3 +523,21 @@ syl，上面都私信了。</blockquote>
 模型基本已经是好了，除非灰测停的这几天继续后训练</blockquote>
 现在应该石锤是等Harness了
 
+
+*****
+
+####  qz66618  
+##### 4490#       发表于 2026-7-31 18:17
+
+终于把flash的正式版憋出来了吗，首先200多B的小模型肯定不要幻想过高的能力，不过这种后训练的提升确实让人期待pro的正式版的高度。最后我感觉以后要换到codex和ds自己的harness来使用ds了。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenyedgg  
+##### 4491#       发表于 2026-7-31 18:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993634&amp;ptid=2275806" target="_blank">站立风景 发表于 2026-7-31 18:11</a>
+
+现在感觉和grok有点像，即使破甲后年龄红线也不能碰。</blockquote>
+DS这个是幻觉甲，不是专门搞的甲
+
