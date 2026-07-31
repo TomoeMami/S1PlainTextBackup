@@ -13102,3 +13102,29 @@ IMG_0457.jpeg
 
 来不了，harness在内测，稍晚大概率是今天才开始
 
+
+*****
+
+####  当光停止  
+##### 4147#       发表于 2026-7-31 09:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202607/31/094246yv111kzvxi5zff4k.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260731094115_14695_1125.png</strong> (403.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 09:42 上传
+
+<img src="https://img.stage1st.com/forum/202607/31/094246d5sxn2k6kqb2xjnb.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260731094122_14696_1125.png</strong> (375.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 09:42 上传
+
+梁子已被gpt腐乳。
+

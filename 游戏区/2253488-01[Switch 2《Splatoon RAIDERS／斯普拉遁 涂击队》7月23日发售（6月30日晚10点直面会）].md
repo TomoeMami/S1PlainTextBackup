@@ -5798,3 +5798,22 @@ epd5真的要么扩张要么拆分成喷喷组和动森组吧，一个组负责�
 这么好玩却内容不够，没 ...</blockquote>
 以喷的移动方式，地图做大了可不一定好玩
 
+
+*****
+
+####  二十二颗牛油果  
+##### 726#       发表于 2026-7-31 09:45
+
+五星零件是刷的还是造的
+
+*****
+
+####  martinoy  
+##### 727#       发表于 2026-7-31 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990013&amp;ptid=2253488" target="_blank">二十二颗牛油果 发表于 2026-7-31 09:45</a>
+五星零件是刷的还是造的</blockquote>
+都有，能刷出来的造不出来，能造出来的刷不出来
+
+— from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
