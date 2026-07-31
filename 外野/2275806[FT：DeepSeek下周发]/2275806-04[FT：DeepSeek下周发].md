@@ -1756,3 +1756,22 @@ opencode，体验不比glm差。中文思维链很爽。
 —— 来自 Xiaomi 2112123AC, Android 13, 鹅球 v ...</blockquote>
 类脑最新的梦鲸思客预设倒是都能破 我看了一下里面破甲提示词很简单 就是不知道在酒馆外用能不能生效
 
+
+*****
+
+####  冤枉呐  
+##### 4601#       发表于 2026-8-1 02:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69995519&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-8-1 01:04</a>
+据我观察，年龄限制很好破，非自愿也很好破，难的是年龄+非自愿，我目前还没找到能破的词，谁有可以私我一 ...</blockquote>
+你非要干这种事干啥
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  绝地潜兵  
+##### 4602#       发表于 2026-8-1 02:32
+
+写文还是没有GLM5.X好啊
+
