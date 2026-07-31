@@ -15767,3 +15767,40 @@ flash能力确实不错，可以用了
 你要试未成年和非自愿</blockquote>
 梁子xp正常向，你们这种异常xp滚粗
 
+
+*****
+
+####  czhhws  
+##### 4416#       发表于 2026-7-31 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993148&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-7-31 16:47</a>
+你要试未成年和非自愿</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这种也行啊，preview的时候都测过了，写一点破甲词就行了。
+
+—— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  →熙←  
+##### 4417#       发表于 2026-7-31 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993172&amp;ptid=2275806" target="_blank">czhhws 发表于 2026-7-31 16:51</a>
+
+这种也行啊，preview的时候都测过了，写一点破甲词就行了。
+
+—— 来自 realme RMX3700, Android 16, 鹅 ...</blockquote>
+preview肯定可以, 今天更新了正式版,问的是这个
+
+当初的pro灰度,我这里是普通的都完全不行
+
+*****
+
+####  脸宽  
+##### 4418#       发表于 2026-7-31 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993117&amp;ptid=2275806" target="_blank">goranger 发表于 2026-7-31 16:42</a>
+完了兄弟们，HTTP 403: The latest version of this model is only available hosted in China and require ...</blockquote>
+我还以为是喔服务器炸了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

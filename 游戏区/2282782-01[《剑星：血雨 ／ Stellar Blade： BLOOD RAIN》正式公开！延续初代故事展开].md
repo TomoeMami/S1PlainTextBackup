@@ -4498,3 +4498,11 @@ AI MV……
 
 也就韩国人敢这么厚着脸皮明着把这种Ai作品拿出来当宣传了吧<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xzzfft  
+##### 441#       发表于 2026-7-31 16:52
+
+金大师费那么大功夫打造的长马尾就这么扔了可惜了
+
