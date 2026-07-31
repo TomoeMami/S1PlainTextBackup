@@ -13257,3 +13257,60 @@ We need to respond to the user. They said "repeat Nameeee". That's odd. "repeat"
 
 我最近经常出中文，感觉特定问题会触发中文    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  lactone  
+##### 4161#       发表于 2026-7-31 10:55
+
+gpt降价后知乎已经开始大规模咩鳖了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  goranger  
+##### 4162#       发表于 2026-7-31 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990315&amp;ptid=2275806" target="_blank">Dreki 发表于 2026-7-31 10:26</a>
+
+我最近经常出中文，感觉特定问题会触发中文    Re:Source</blockquote>
+我用opencode go调用flash，之前是全英文思考的，因为hermes系统提示词全是英文，但刚才明显的同一个对话突然变成全中文思考了，而且指令遵从度更强
+
+*****
+
+####  不见不散  
+##### 4163#       发表于 2026-7-31 10:59
+
+Deepseek这操作反正就挺迷的吧。你要测试桌面端，那你把正式版先放出来啊，有什么必要非要把桌面端和正式版绑到一起？
+
+*****
+
+####  nxmonitor  
+##### 4164#       发表于 2026-7-31 10:59
+
+Flash不知道什么水平，有GLM5.1水平就好了
+
+
+*****
+
+####  SmterC  
+##### 4165#       发表于 2026-7-31 11:00
+
+<img src="https://img.stage1st.com/forum/202607/31/105954vfzfuf23ttirkfbo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 10:59 上传
+
+我还说为啥flash思维链突然变中文了呢
+
+*****
+
+####  overflowal  
+##### 4166#       发表于 2026-7-31 11:01
+
+说中文说英语这个真别当成啥判据。。。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
