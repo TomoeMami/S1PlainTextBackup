@@ -13381,3 +13381,13 @@ gpt降价后知乎已经开始大规模咩鳖了
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Dreki  
+##### 4174#       发表于 2026-7-31 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990537&amp;ptid=2275806" target="_blank">goranger 发表于 2026-7-31 10:56</a>
+我用opencode go调用flash，之前是全英文思考的，因为hermes系统提示词全是英文，但刚才明显的同一个对话 ...</blockquote>
+我用英文系统在pi/网页版用英文对话都有很一定概率出中文，而且很久了，我觉得和新版本内什么关系    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
