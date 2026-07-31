@@ -68,3 +68,11 @@
 
 那没办法，毕竟玩胶也是这样的状况<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4586#       发表于 2026-7-31 18:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">感觉TV应该是被放弃了，全力主推KA版
+
