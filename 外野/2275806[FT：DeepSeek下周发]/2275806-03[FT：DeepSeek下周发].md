@@ -15009,3 +15009,128 @@ ccswitch 切换用
 
 直接进入了PVP模式……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ayanamilin  
+##### 4344#       发表于 2026-7-31 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992607&amp;ptid=2275806" target="_blank">江月下 发表于 2026-7-31 15:32</a>
+
+应该就是用ccswitch把ds接入codex的，但是要切换回去我就不知道咋切换了（
+
+论坛助手,iPhone ...</blockquote>
+CC switch 可以在官方订阅和第三方之间随便切的
+
+*****
+
+####  我猫呢?  
+##### 4345#       发表于 2026-7-31 15:38
+
+测了一下，比之前能力强了不少，给大肥鱼充了点值表示一下
+
+*****
+
+####  →熙←  
+##### 4346#       发表于 2026-7-31 15:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">flash都顶不住, pro怎么办
+
+*****
+
+####  serj005  
+##### 4347#       发表于 2026-7-31 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992655&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-7-31 15:37</a>
+ａｐｉ要重新弄吗？
+
+还是选４ｆｌａｓｈ就可以了？
+
+直接切换到新的０７３１？ ...</blockquote>
+不用切换，现在的flash已经是0731了
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4348#       发表于 2026-7-31 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992638&amp;ptid=2275806" target="_blank">muermaru 发表于 2026-7-31 15:35</a>
+和v4 pro比呢，正式版flash写文比老v4 pro强吗</blockquote>
+V4 Pro不解决读不完skill就开工这个问题之前就根本没办法参与讨论写文能力这件事，文风skill，还有各种创作框架skill都不读完，写出来的东西根本就不是我想要的，那文笔好不好根本没有意义。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  nxmonitor  
+##### 4349#       发表于 2026-7-31 15:40
+
+应该提前充值了，这样铁定会再次停止充值……
+
+*****
+
+####  cscbzcbz  
+##### 4350#       发表于 2026-7-31 15:41
+
+之前充了500，一点不慌<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  当光停止  
+##### 4351#       发表于 2026-7-31 15:41
+
+吊图时间。
+
+<img src="https://img.stage1st.com/forum/202607/31/154112t0b31lsb1skk2gca.jpg" referrerpolicy="no-referrer">
+
+<strong>7c3d4cfd04c46725b3b5603bab4c7e5e.jpg</strong> (133.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 15:41 上传
+
+
+*****
+
+####  yitanfenggyu  
+##### 4352#       发表于 2026-7-31 15:42
+
+配合gpt和gemini还是很不错的
+
+*****
+
+####  舞以  
+##### 4353#       发表于 2026-7-31 15:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梁叔叔逗逗你们的啊，后训练仙人ds也不少
+
+*****
+
+####  王兰花秀丽  
+##### 4354#       发表于 2026-7-31 15:44
+
+<img src="https://img.stage1st.com/forum/202607/31/154436vsvffl668v8lzovx.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1000051961.webp</strong> (71.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 15:44 上传
+
+这个好像还没人转？咩了一天都不到回旋镖就来了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  绕指流光  
+##### 4355#         楼主| 发表于 2026-7-31 15:45
+
+<img src="https://img.stage1st.com/forum/202607/31/154449ktrjqtkt1zsjs2kr.jpg" referrerpolicy="no-referrer">
+
+<strong>1000036394.jpg</strong> (402.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 15:44 上传
+
+智谱今天又埋一批<img src="https://static.stage1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
