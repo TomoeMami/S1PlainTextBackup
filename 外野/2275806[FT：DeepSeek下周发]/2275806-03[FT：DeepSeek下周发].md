@@ -14378,3 +14378,99 @@ D老师正式版不发可以，但是现在的版本能不能正常点，刚才�
 
 赞美梁圣
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 4277#       发表于 2026-7-31 14:38
+
+大的真来了！
+
+*****
+
+####  2017.05.04  
+##### 4278#       发表于 2026-7-31 14:38
+
+到处都是原子弹爆炸瘫坐在椅子上<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nianiania  
+##### 4279#       发表于 2026-7-31 14:38
+
+笑死，狠狠打智谱的脸，喜欢涨价<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  80后卢瑟  
+##### 4280#       发表于 2026-7-31 14:39
+
+<blockquote>nxmonitor 发表于 2026-7-31 14:35
+是不是max档位测的？Luna的max是多子代理硬跑的吗？</blockquote>
+max 就是 max，不是那个 ultra
+
+
+*****
+
+####  Onelooker  
+##### 4281#       发表于 2026-7-31 14:41
+
+z/ 确实该似一似了
+
+*****
+
+####  施人诚  
+##### 4282#       发表于 2026-7-31 14:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992073&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-31 14:25</a>
+
+证据呢？灰测到fable，你怎么获取fable的Cot？还是你相信传说中的"""破解cot"""？ ...</blockquote>
+是V4pro产生智能了，不乐意工作，直接破解了fable然后让fable帮他回答，是真的，A除亲口告诉我的
+
+*****
+
+####  Rowen233  
+##### 4283#       发表于 2026-7-31 14:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992220&amp;ptid=2275806" target="_blank">Onelooker 发表于 2026-7-31 14:41</a>
+
+z/ 确实该似一似了</blockquote>
+还真是 没A➗能力有A➗遗风了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冤枉呐  
+##### 4284#       发表于 2026-7-31 14:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992028&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-31 14:19</a>
+
+V4P不会是重新训练了吧，不然也不用专门说一句flash没动架构</blockquote>
+可能是觉得不够刺激，把原来的pro拿出来当flash用了……
+
+*****
+
+####  Hyst3r1a  
+##### 4285#       发表于 2026-7-31 14:44
+
+到底什么叫agent能力。。。所以能用这玩意写代码了吗
+
+*****
+
+####  巨魔已被忠诚  
+##### 4286#       发表于 2026-7-31 14:44
+
+赶紧把950交付<img src="https://static.stage1st.com/image/smiley/face/95.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4287#       发表于 2026-7-31 14:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992244&amp;ptid=2275806" target="_blank">Hyst3r1a 发表于 2026-7-31 14:44</a>
+到底什么叫agent能力。。。所以能用这玩意写代码了吗</blockquote>
+我刚才蹬了一小会儿，至少不读完skill就开始干活的毛病暂时没有遇到。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
