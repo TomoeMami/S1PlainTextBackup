@@ -14584,3 +14584,77 @@ flash只是后训练了一下，一般同一个基模思维链不会突变，怀
 
 本人从未把梁文峰的头ps到脉动、凉白开上，从来没有到处散播“不要擅自期待”，从来没有诋毁过杭州深度求索公司。本人实际上是深度求索两年老粉，从deepseek v3模型刚刚推出时就开始使用deepseek模型。经过长时间的思考，我坚信deepseek才是中国AI的希望，有时候做出决定很难，经过许多个日夜的思考，我决定加入Deepsee**丝团。至于GLM，祝他们的开源模型一切顺利。本人从未诋毁过深度求索，也从未称呼梁总为牢梁，望周知！
 
+
+*****
+
+####  ST2002  
+##### 4301#       发表于 2026-7-31 15:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">爽用啊，感觉编码能力的确比 pro 还强
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  发呆的龙虾  
+##### 4302#       发表于 2026-7-31 15:08
+
+v4f和gemini3.6flash都叫flash，就很离谱。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  nxmonitor  
+##### 4303#       发表于 2026-7-31 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992405&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-7-31 15:05</a>
+
+用codex有什么好处吗？我现在用VSCode，不知道要不要切换</blockquote>
+更新公告里只是说适配了
+
+*****
+
+####  bixinhaner  
+##### 4304#       发表于 2026-7-31 15:09
+
+glm涨价急先锋，路人缘掉光了吗
+
+*****
+
+####  nxmonitor  
+##### 4305#       发表于 2026-7-31 15:10
+
+还有我怀疑幻方已经给智谱开了空单了，哪怕拿出GLM5.5还有V4PGA等着……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  goranger  
+##### 4306#       发表于 2026-7-31 15:13
+
+从我昨晚和今天的体验来看，质的提升flash本来就是我消耗最大的，性价比拉满
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  chuchoselph  
+##### 4307#       发表于 2026-7-31 15:13
+
+这个参数量干glm5.2是真实存在的吗？后训练仙人太夸张了<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zy450  
+##### 4308#       发表于 2026-7-31 15:14
+
+KIMI还是聪明，有多模态护城河，可以多撑半年
+
+*****
+
+####  mitzvah  
+##### 4309#       发表于 2026-7-31 15:15
+
+kim你花30多块网页版爽用，搜索python脚本研究都能用上，glm起码pro套餐还坐地涨价
+
