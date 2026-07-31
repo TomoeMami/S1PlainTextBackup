@@ -1010,3 +1010,87 @@ flash正式版已经完爆pro了
 
 其实网页上的那个识图模式对图片的分析理解感觉不错的，只是规模太小知识不足。弄成个工具给flash和pro调用的话，总比瞎眼强吧？
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4533#       发表于 2026-7-31 20:35
+
+我寻思现在大模型这玩意儿，学得慢就是学得快，懂得少就是懂得多，基本上只要问几**模型它自己，什么玩意儿都能搞明白。怎么还有这么多连小白都不如的就锐评大模型呢？晚上我看到好几个说V4flash比不上K3的。不是大哥，这俩参数差10倍以上好吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  tillnight  
+##### 4534#       发表于 2026-7-31 20:37
+
+一个有意思的地方是，与西方媒体鼓吹的东方也要管制前沿模型发布恰好相反，最近的趋势似乎是真正的窗口指导内容是鼓励大家更多开源。qwenmax和海螺的前代模型都是闭源的，现在都准备要开源。
+
+*****
+
+####  Promeus  
+##### 4535#       发表于 2026-7-31 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994303&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-7-31 20:32</a>
+其实网页上的那个识图模式对图片的分析理解感觉不错的，只是规模太小知识不足。弄成个工具给flash和pro调用 ...</blockquote>
+梁圣显然是如果不能适配就宁肯不用<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 4536#       发表于 2026-7-31 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994317&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-31 20:35</a>
+我寻思现在大模型这玩意儿，学得慢就是学得快，懂得少就是懂得多，基本上只要问几**模型它自己，什么玩意儿 ...</blockquote>
+V4f赶上k3那还得了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wandeeees  
+##### 4537#       发表于 2026-7-31 20:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994323&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-7-31 20:37</a>
+一个有意思的地方是，与西方媒体鼓吹的东方也要管制前沿模型发布恰好相反，最近的趋势似乎是真正的窗口指导 ...</blockquote>
+这样的话利好能源和基建相关出口？大家都要本地部署，能源和基建跟不上了怎么办，来找老中啊<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  舞以  
+##### 4538#       发表于 2026-7-31 20:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梁圣对多模态就是一个方便使用的feature罢了，他根本不觉得多模态——世界模型这条路是通向agi的路
+
+不过好像录音里面有讲到v4世代会出原生多模态的版本，看啥情况吧
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4539#       发表于 2026-7-31 20:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994323&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-7-31 20:37</a>
+一个有意思的地方是，与西方媒体鼓吹的东方也要管制前沿模型发布恰好相反，最近的趋势似乎是真正的窗口指导 ...</blockquote>
+开源带来的市场占有率和道德优势真的太大了。说不好听的，现在如果真有谁家对着Claude和GPT硬蒸以后开源，那也是普罗米修斯
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  noneoneone  
+##### 4540#       发表于 2026-7-31 20:43
+
+deepseek harness内测之后有人透露消息吗
+
+*****
+
+####  sellboy  
+##### 4541#       发表于 2026-7-31 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994323&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-7-31 20:37</a>
+
+一个有意思的地方是，与西方媒体鼓吹的东方也要管制前沿模型发布恰好相反，最近的趋势似乎是真正的窗口指导 ...</blockquote>
+我倒觉得是4月那个发言捅破了自家模型有infra小秘招，相比云服务商部署的同模型先天有成本优势，因此开源不影响赚钱。
+
