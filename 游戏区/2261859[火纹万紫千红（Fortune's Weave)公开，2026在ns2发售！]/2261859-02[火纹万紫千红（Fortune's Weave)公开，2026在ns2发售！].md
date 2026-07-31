@@ -840,3 +840,35 @@ pv又出现一个新角色，目前出场过的有脸角色已经快50个了吧�
 
 不过立绘看确实肤色有点发红，不像还在藏的绿毛蓝毛那样是一眼白。
 
+
+*****
+
+####  零崎不识  
+##### 1554#       发表于 2026-7-31 16:40
+
+有说法是，大苏提斯能力比小苏提斯强，天刻时间倒流的时间更长
+
+所以游戏一上来就是大剑斗祭乱了，然后苏提斯出来倒流时间，白发自捏穿越回来选择四大主角的队伍加入去调查幕后真相
+
+
+*****
+
+####  mai6696  
+##### 1555#       发表于 2026-7-31 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993027&amp;ptid=2261859" target="_blank">suzakushi 发表于 2026-7-31 16:27</a>
+
+竟然真的是白皮，之前PV到底是什么光影能把角色肤色变成那样，也太抽象了。
+
+不过立绘看确实肤色有点发红， ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202607/31/164717n1ok6tktkuv41kur.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (45.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 16:47 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打脸了吧？我说是打光问题
+

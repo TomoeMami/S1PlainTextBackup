@@ -4490,3 +4490,11 @@ AI MV……
 
 感觉这MV跟B站上的AI同人视频差不多
 
+
+*****
+
+####  Jabeck  
+##### 440#       发表于 2026-7-31 16:44
+
+也就韩国人敢这么厚着脸皮明着把这种Ai作品拿出来当宣传了吧<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
