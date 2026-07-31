@@ -6015,3 +6015,15 @@ epd5真的要么扩张要么拆分成喷喷组和动森组吧，一个组负责�
 
 加特林有什么不吃操作的配装吗，自己琢磨配了套风扇跃升的飞天流，感觉还是很吃力<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星野航  
+##### 747#       发表于 2026-7-31 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994014&amp;ptid=2253488" target="_blank">qwased 发表于 2026-7-31 20:42</a>
+加特林有什么不吃操作的配装吗，自己琢磨配了套风扇跃升的飞天流，感觉还是很吃力 ...</blockquote>
+技术背包，配发酵流，最好要刷一个注重蓄力速度跟连射力的绝品，可以直接兼顾清杂跟大鱼
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

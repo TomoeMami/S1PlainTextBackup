@@ -1137,3 +1137,71 @@ deepseek只能做几毛钱的效果游戏。。。看看别人fable5，GPT5.6 so
 
 （狗头）
 
+
+*****
+
+####  sellboy  
+##### 4546#       发表于 2026-7-31 20:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994376&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-31 20:46</a>
+
+没有那个发言也知道，小道消息是DS在昇腾上部署模型的吞吐和并发比华为自己部署还强 ...</blockquote>
+云服务商和模型开发者之前是不透底的吧
+
+4月发言我们最近才知道，但是业内应该很早就知道了
+
+于是构成了降价，发言盈利情况，云服务商知道了也没有跟的事件链，打破了迷雾
+
+*****
+
+####  qwased  
+##### 4547#       发表于 2026-7-31 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994406&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-7-31 20:51</a>
+
+细说核弹在什么地方，已经在椅子上瘫坐好了。
+
+—— 来自 S1Fun</blockquote>
+3060就能跑，非常接近seedance2.0
+
+不知道有没有甲
+
+*****
+
+####  nxmonitor  
+##### 4548#       发表于 2026-7-31 21:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994459&amp;ptid=2275806" target="_blank">sellboy 发表于 2026-7-31 20:59</a>
+
+云服务商和模型开发者之前是不透底的吧
+
+4月发言我们最近才知道，但是业内应该很早就知道了</blockquote>
+算成本就大概知道了，大批所谓第三方的接口，最后发现都是转发官方的，比如workbuddy里的那个，说明腾讯云解决了不了，阿里和火山价格都特别贵
+
+
+*****
+
+####  mitzvah  
+##### 4549#       发表于 2026-7-31 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994471&amp;ptid=2275806" target="_blank">qwased 发表于 2026-7-31 21:00</a>
+
+3060就能跑，非常接近seedance2.0
+
+不知道有没有甲</blockquote>
+甲，根本不是问题，只要有开源权重，总是能给破了
+
+*****
+
+####  王兰花秀丽  
+##### 4550#       发表于 2026-7-31 21:02
+
+真的好用的，在我的工作流下就是指哪打哪，现在就等4pro了，下周一整周都无心工作了呀<img src="https://static.stage1st.com/image/smiley/face/55.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 4551#       发表于 2026-7-31 21:05
+
+至于华为云，每天和昇腾机器搏斗就知道什么水平了，一开始是完全没想到这么多云厂商技术不如DS……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
