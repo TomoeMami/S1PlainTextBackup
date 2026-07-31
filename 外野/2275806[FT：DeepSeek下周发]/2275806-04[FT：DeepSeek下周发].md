@@ -650,3 +650,52 @@ API的接口方面应该是被覆盖了，但是网页和APP上面还是原版�
 
 这个openfic非常好用，比酒馆好用十倍，这才是现代小黄文的打开方式  [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  Sakaiyuki  
+##### 4502#       发表于 2026-7-31 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993774&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-31 18:47</a>
+梁圣要赶跑c端用户了？
+
+论坛助手,iPhone</blockquote>
+<img src="https://p.sda1.dev/34/9574aacb0445c13f0f7a6a75d82d4717/image.jpg" referrerpolicy="no-referrer">
+难说c端更新会不会排在很后面的位置
+
+—— 来自 Xiaomi 22127RK46C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  swessia  
+##### 4503#       发表于 2026-7-31 18:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">deepseek要有官方agent了？终于可以和我的opencode说拜拜了
+
+—— 来自 Xiaomi 24129PN74C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  goranger  
+##### 4504#       发表于 2026-7-31 18:57
+
+一堆中转站转发他c端卖钱白嫖他当然想赶走<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Rowen233  
+##### 4505#       发表于 2026-7-31 19:04
+
+<img src="https://img.stage1st.com/forum/202607/31/190200ug3htz82hsk7bt5v.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-07-31 190138.png</strong> (242.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 19:02 上传
+
+最急的好像是谷顺歌啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
