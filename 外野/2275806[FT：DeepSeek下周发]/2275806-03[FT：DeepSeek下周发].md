@@ -14658,3 +14658,66 @@ KIMI还是聪明，有多模态护城河，可以多撑半年
 
 kim你花30多块网页版爽用，搜索python脚本研究都能用上，glm起码pro套餐还坐地涨价
 
+
+*****
+
+####  mitzvah  
+##### 4310#       发表于 2026-7-31 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992471&amp;ptid=2275806" target="_blank">chuchoselph 发表于 2026-7-31 15:13</a>
+
+这个参数量干glm5.2是真实存在的吗？后训练仙人太夸张了</blockquote>
+glm祖传dsa注意力较v4的混合稀疏压缩注意力落后一代好吧
+
+*****
+
+####  UncleDracula  
+##### 4311#       发表于 2026-7-31 15:18
+
+ 本帖最后由 UncleDracula 于 2026-7-31 15:19 编辑 
+
+站起来蹬OPUS4.8的感觉真是爽，消耗单位都是分，连毛都用不上
+
+梁圣在上，受小弟一拜<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 4312#       发表于 2026-7-31 15:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992477&amp;ptid=2275806" target="_blank">zy450 发表于 2026-7-31 15:14</a>
+
+KIMI还是聪明，有多模态护城河，可以多撑半年</blockquote>
+撑不住的，Flash这个表现说明前段时间灰测V4P性能大概率是真的，按照那个表现后端能力比K3强，前端靠着超强空间感知和更好的GODOT编程能力，某些例子上可以有来有回，哪怕用的是手搓的建模……
+
+*****
+
+####  Onelooker  
+##### 4313#       发表于 2026-7-31 15:20
+
+z/ 看到男梁随手掏出的280b小阴鲸，震惊的瘫坐在椅子上，仿佛看到原子弹💥
+
+
+*****
+
+####  酱油拌饭s  
+##### 4314#       发表于 2026-7-31 15:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">有没有大佬蹬过写文了，注意力改善的咋样
+
+*****
+
+####  goranger  
+##### 4315#       发表于 2026-7-31 15:25
+
+梁圣：斩杀。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  大喵喵  
+##### 4316#       发表于 2026-7-31 15:25
+
+opencode go订阅的ds是转发到官方api吗？
+
