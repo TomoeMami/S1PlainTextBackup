@@ -1609,3 +1609,29 @@ grok生图双重审核，前端突破了也没用。反正上半身裸露自摸�
 
 测了好几个harness，结果竟然是PI效果更好，不理解这个情况怎么发生的……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  脸宽  
+##### 4588#       发表于 2026-8-1 00:26
+
+话说现在opencode go是v4正式版吗，原本搭中转站中转用的，现在也只能国内ip了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  舞以  
+##### 4589#       发表于 2026-8-1 00:33
+
+<img src="https://img.stage1st.com/forum/202608/01/003309da2cssmh2hkux92u.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (23.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 00:33 上传
+
+reasonix的这个界面看着真的解压<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
