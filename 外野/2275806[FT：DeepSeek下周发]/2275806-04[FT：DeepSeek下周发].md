@@ -1267,3 +1267,35 @@ deepseek只能做几毛钱的效果游戏。。。看看别人fable5，GPT5.6 so
 
 灰测版没有多模态也有夸张的空间感知能力，不知道怎么做到的
 
+
+*****
+
+####  lactone  
+##### 4558#       发表于 2026-7-31 21:21
+
+多模态又不是什么魔法，嫁接的多模态性能被纯文本追上也不是不可能
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  冤枉呐  
+##### 4559#       发表于 2026-7-31 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993643&amp;ptid=2275806" target="_blank">czhhws 发表于 2026-7-31 18:13</a>
+没，反正我用起来没限制。反而grok死活不可能，用了各种突破后一直会被限，用一些比较巧妙的可能会输出但 ...</blockquote>
+grok生图有招儿嘛兄弟
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  冤枉呐  
+##### 4560#       发表于 2026-7-31 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994164&amp;ptid=2275806" target="_blank">无尽的牙刷 发表于 2026-7-31 20:10</a>
+别管什么小赢鲸了，MiniMax H3好像要成为涩涩界的核弹了</blockquote>
+请详细介绍！
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
