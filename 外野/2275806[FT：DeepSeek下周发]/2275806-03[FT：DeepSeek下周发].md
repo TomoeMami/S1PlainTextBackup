@@ -13638,3 +13638,39 @@ pdf 甚至扫描件的 pdf 或 ocr 文件只能办    Re:Source</blockquote>
 现在知乎和b站某些人都快过年了</blockquote>
 我怀疑那帮人是不是不知道5.6分三个版
 
+
+*****
+
+####  Rowen233  
+##### 4199#       发表于 2026-7-31 12:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69991378&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-7-31 12:40</a>
+
+人家梁子之前都说了有90%的利润，你瞎惦记啥，而且降完价之后还是比V4P贵，跟V4F更没法比。
+
+事实上用着B ...</blockquote>
+ds的美元官方计价本来就和人民币计价不一样吧，应该跟美元计价比吧
+
+
+*****
+
+####  spaceblue  
+##### 4200#       发表于 2026-7-31 13:05
+
+luna确实便宜好用啊。能给国产模型点压力也是好吃，大家赶紧降价
+
+
+*****
+
+####  Rowen233  
+##### 4201#       发表于 2026-7-31 13:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990902&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-7-31 11:36</a>
+
+要是降价完opencode go能收录luna我就不黑closedai了。
+
+但不能吧？还是只能继续期待国产开源</blockquote>
+收录的话估计就不支持国内支付方式了
+
+OpenRouter之前就改了 国内支付方式充值不能用OA两家的模型<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

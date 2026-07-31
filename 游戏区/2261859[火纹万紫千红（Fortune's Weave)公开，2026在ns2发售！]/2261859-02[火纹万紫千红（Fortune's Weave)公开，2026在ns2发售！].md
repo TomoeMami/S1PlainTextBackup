@@ -660,3 +660,17 @@ IS：我其实就是致敬一下大中华文化。
 
 照现在的节奏这作怕不是要在数值地图人设剧情演出上全方位翻车<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 1535#       发表于 2026-7-31 13:03
+
+<img src="https://img.stage1st.com/forum/202607/31/130304p9te6996g5099b5b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (197.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 13:03 上传
+
