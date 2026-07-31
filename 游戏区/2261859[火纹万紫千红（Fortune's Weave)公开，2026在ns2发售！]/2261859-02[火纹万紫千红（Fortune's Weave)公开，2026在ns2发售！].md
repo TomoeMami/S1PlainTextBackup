@@ -674,3 +674,22 @@ IS：我其实就是致敬一下大中华文化。
 
 2026-7-31 13:03 上传
 
+
+*****
+
+####  clyde-wang  
+##### 1536#       发表于 2026-7-31 13:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69991432&amp;ptid=2261859" target="_blank">Nez 发表于 2026-7-31 12:50</a>
+照现在的节奏这作怕不是要在数值地图人设剧情演出上全方位翻车</blockquote>
+就是个plus 三房，三房卖的系列最好肯定是会往这个方向发展的，而且1好看的人设还挺多的，也不至于只盯着那几个黑皮看吧
+
+*****
+
+####  零崎不识  
+##### 1537#       发表于 2026-7-31 13:18
+
+<blockquote>mai6696 发表于 2026-7-31 13:03
+</blockquote>
+这下肯定第一条线打蕾达线了
+
