@@ -1094,3 +1094,46 @@ deepseek harness内测之后有人透露消息吗
 一个有意思的地方是，与西方媒体鼓吹的东方也要管制前沿模型发布恰好相反，最近的趋势似乎是真正的窗口指导 ...</blockquote>
 我倒觉得是4月那个发言捅破了自家模型有infra小秘招，相比云服务商部署的同模型先天有成本优势，因此开源不影响赚钱。
 
+
+*****
+
+####  ycjiang1337  
+##### 4542#       发表于 2026-7-31 20:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994361&amp;ptid=2275806" target="_blank">sellboy 发表于 2026-7-31 20:43</a>
+我倒觉得是4月那个发言捅破了自家模型有infra小秘招，相比云服务商部署的同模型先天有成本优势，因此开源 ...</blockquote>
+现在就是DS用950成本和吞吐量都能打爆国外用B卡的托管商
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  nxmonitor  
+##### 4543#       发表于 2026-7-31 20:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994361&amp;ptid=2275806" target="_blank">sellboy 发表于 2026-7-31 20:43</a>
+
+我倒觉得是4月那个发言捅破了自家模型有infra小秘招，相比云服务商部署的同模型先天有成本优势，因此开源 ...</blockquote>
+没有那个发言也知道，小道消息是DS在昇腾上部署模型的吞吐和并发比华为自己部署还强
+
+
+*****
+
+####  杀人鲸  
+##### 4544#       发表于 2026-7-31 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994164&amp;ptid=2275806" target="_blank">无尽的牙刷 发表于 2026-7-31 20:10</a>
+别管什么小赢鲸了，MiniMax H3好像要成为涩涩界的核弹了</blockquote>
+细说核弹在什么地方，已经在椅子上瘫坐好了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  秦南心  
+##### 4545#       发表于 2026-7-31 20:54
+
+deepseek只能做几毛钱的效果游戏。。。看看别人fable5，GPT5.6 soL，kimi k3，都是几十块的游戏效果，比不了
+
+（狗头）
+
