@@ -1325,3 +1325,40 @@ comfy官方说的能在3060跑，至于多缓慢就不知道了。但现在sd2�
 
 2026-7-31 21:29 上传
 
+
+*****
+
+####  飞侠小黑  
+##### 4562#       发表于 2026-7-31 21:39
+
+梁圣明明可以改名ultra割韭菜的，但是他命名为flash正式版就收我点电费<img src="https://static.stage1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VDE-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  浪费喝咖啡  
+##### 4563#       发表于 2026-7-31 21:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994669&amp;ptid=2275806" target="_blank">飞侠小黑 发表于 2026-7-31 21:39</a>
+梁圣明明可以改名ultra割韭菜的，但是他命名为flash正式版就收我点电费
+
+—— 来自 HUAWEI VDE-AL00, Andro ...</blockquote>
+开源了啊，304B
+
+
+*****
+
+####  千秋难诉  
+##### 4564#       发表于 2026-7-31 21:42
+
+梁圣这下也和那样那位大人一样，享受到正义之颚（Lantern Jaw of Justice）的欧美meme待遇了
+
+<img src="https://img.stage1st.com/forum/202607/31/213433jnpw31mxm41g3apw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (51.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 21:34 上传
+
