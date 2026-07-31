@@ -49,3 +49,15 @@ NateDrake:星际异端计划2027发售
 
 高配PC更具性价比的硬件=不如5060
 
+
+*****
+
+####  哎哟卧槽了  
+##### 778#       发表于 2026-7-31 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993488&amp;ptid=2173605" target="_blank">椎名mahuyo 发表于 2026-7-31 17:41</a>
+外媒报道，索尼CFO「陶琳」在最近举行的财报电话会议​​​上回应了“取消实体版”的决策。她表示公司理解 ...</blockquote>
+请一定要保持这份桀骜不驯的态度<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PLA110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

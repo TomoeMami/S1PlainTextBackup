@@ -4514,3 +4514,11 @@ AI MV……
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这MV纯属没用心做吧，跟海外网页黄油一个水平，别人连中英日语言都做了
 
+
+*****
+
+####  nage560  
+##### 443#       发表于 2026-7-31 18:00
+
+弄个AI味爆表的MV来宣传确定不会反效果吗？
+

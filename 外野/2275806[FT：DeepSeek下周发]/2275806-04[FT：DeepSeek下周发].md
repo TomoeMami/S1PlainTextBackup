@@ -381,3 +381,106 @@ codex，opencode今天下午试了下经常断，估计还得等一阵子才会�
 syl，上面都私信了。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">老哥，求私信
 
+
+*****
+
+####  杀人鲸  
+##### 4478#       发表于 2026-7-31 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993567&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-7-31 17:57</a>
+老哥，求私信</blockquote>
+亲爱的朋友，后面其实发了一个链接的，可能一个个发比较麻烦吧。只不过那个链接我点进去发现好像提示我错误，不确定是不是梯子出了问题。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 秦南心 + 2好评加鹅
+
+查看全部评分
+
+*****
+
+####  蜇灵  
+##### 4479#       发表于 2026-7-31 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993525&amp;ptid=2275806" target="_blank">czhhws 发表于 2026-7-31 17:50</a>
+codex，opencode今天下午试了下经常断，估计还得等一阵子才会好用。
+
+—— 来自 realme RMX3700, Android ...</blockquote>
+
+你们一般是直接用codex 桌面版还是vsc插件？
+
+*****
+
+####  lolozi  
+##### 4480#       发表于 2026-7-31 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993386&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-31 17:22</a>
+
+之前大家猜pro正式版能赶上opus就不错
+
+现在flash打opus，那说明pro真的能打fable了</blockquote>
+一直相信灰测的数据
+
+感觉现在又回到了当时r1刚发布一两天只有程序员圈子反应大但外面的世界和股市还没完全醒来的时间段
+
+两周后见孩子们
+
+
+*****
+
+####  czhhws  
+##### 4481#       发表于 2026-7-31 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993581&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-7-31 17:59</a>
+
+你们一般是直接用codex 桌面版还是vsc插件？</blockquote><blockquote>Codex 是 OpenAI 推出的 AI 编程助手，通过 Responses API 与模型交互，DeepSeek API 原生支持该格式。
+
+Codex 的各个客户端形态——Codex CLI、ChatGPT 桌面端、VS Code 的 Codex 插件（Codex IDE extension）——共用同一份配置文件，按本文配置一次，即可在所有形态使用 DeepSeek 模型。</blockquote>
+[https://api-docs.deepseek.com/zh ... _integrations/codex](https://api-docs.deepseek.com/zh-cn/quick_start/agent_integrations/codex)
+
+
+*****
+
+####  化物语  
+##### 4482#       发表于 2026-7-31 18:05
+
+现在flash正式版和pro预览版 哪个强
+
+*****
+
+####  →熙←  
+##### 4483#       发表于 2026-7-31 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993608&amp;ptid=2275806" target="_blank">化物语 发表于 2026-7-31 18:05</a>
+
+现在flash正式版和pro预览版 哪个强</blockquote>
+flash正式版
+
+*****
+
+####  Rowen233  
+##### 4484#       发表于 2026-7-31 18:06
+
+不过目前Luna有多模态这点还是稍微强点 看V4P正式版吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  squallx  
+##### 4485#       发表于 2026-7-31 18:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993234&amp;ptid=2275806" target="_blank">czhhws 发表于 2026-7-31 16:59</a>
+
+私了
+
+syl，上面都私信了。</blockquote>
+同求破甲
+
