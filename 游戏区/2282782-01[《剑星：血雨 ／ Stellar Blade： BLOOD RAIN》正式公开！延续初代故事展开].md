@@ -4538,3 +4538,11 @@ AI MV……
 
 ls没有骂ai的我都标记了，下次我喜欢的游戏/厂商/主创用ai你们敢骂我就甩出来反击<img src="https://static.stage1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  精英级自演乙  
+##### 446#       发表于 2026-7-31 22:57
+
+ai是对的，劣质ai不行，但这个MV的呈现效果很好
+
