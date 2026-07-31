@@ -13674,3 +13674,11 @@ luna确实便宜好用啊。能给国产模型点压力也是好吃，大家赶�
 
 OpenRouter之前就改了 国内支付方式充值不能用OA两家的模型<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  龙骑士尹志平  
+##### 4202#       发表于 2026-7-31 13:13
+
+出中文思考链但是仍然有但等等句式。。。。
+
