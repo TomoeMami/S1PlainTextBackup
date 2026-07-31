@@ -5817,3 +5817,13 @@ epd5真的要么扩张要么拆分成喷喷组和动森组吧，一个组负责�
 
 — from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  二十二颗牛油果  
+##### 728#       发表于 2026-7-31 10:18
+
+我草，原来罗盘有样式区别的吗，进度条我还以为是我进度不够所以不显示指针要我推主线
+
+怪不得我打完三个指针罗盘感觉怎么就突然没罗盘关卡了，太坑了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
