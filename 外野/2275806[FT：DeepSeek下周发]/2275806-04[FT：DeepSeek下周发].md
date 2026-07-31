@@ -272,3 +272,112 @@ DS一直是一句话破甲啊，试了试R18G完全没问题
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  蜇灵  
+##### 4467#       发表于 2026-7-31 17:48
+
+所以现在D4F接哪个IDE效果最好
+
+*****
+
+####  狩野すみれ  
+##### 4468#       发表于 2026-7-31 17:49
+
+问个火星问题……
+还没注册过codex应用，现在叫做chatgpt的这个，登录得绑定海外手机号的样子，不绑不给用
+如果接ds4f的话，应该怎么做？
+
+----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.48)
+
+*****
+
+####  舞以  
+##### 4469#       发表于 2026-7-31 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993514&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-7-31 17:48</a>
+所以现在D4F接哪个IDE效果最好</blockquote>
+编辑，看成harness了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  zypyong  
+##### 4470#       发表于 2026-7-31 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993517&amp;ptid=2275806" target="_blank">狩野すみれ 发表于 2026-7-31 17:49</a>
+问个火星问题……
+还没注册过codex应用，现在叫做chatgpt的这个，登录得绑定海外手机号的样子，不绑不给用
+ ...</blockquote>
+直接下载。 不用登录也能用，用api模式就行
+
+*****
+
+####  czhhws  
+##### 4471#       发表于 2026-7-31 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993514&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-7-31 17:48</a>
+所以现在D4F接哪个IDE效果最好</blockquote>
+codex，opencode今天下午试了下经常断，估计还得等一阵子才会好用。
+
+—— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  舞以  
+##### 4472#       发表于 2026-7-31 17:52
+
+问问漏油，现在codex能无缝切换自己的订阅和dsv4f么<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  当光停止  
+##### 4473#       发表于 2026-7-31 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993535&amp;ptid=2275806" target="_blank">舞以 发表于 2026-7-31 17:52</a>
+
+问问漏油，现在codex能无缝切换自己的订阅和dsv4f么
+
+论坛助手,iPhone</blockquote>
+用ccwitch
+
+*****
+
+####  jinuzuktII  
+##### 4474#       发表于 2026-7-31 17:53
+
+支持梁圣，让我跟flash再聊20的
+
+
+*****
+
+####  Processed  
+##### 4475#       发表于 2026-7-31 17:54
+
+梁历7月31号是7月中旬，那我猜8月初是8月底<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小川彩  
+##### 4476#       发表于 2026-7-31 17:55
+
+说起来 知乎不是昨天咩鳖吗 今天啥动静<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  秦南心  
+##### 4477#       发表于 2026-7-31 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993234&amp;ptid=2275806" target="_blank">czhhws 发表于 2026-7-31 16:59</a>
+
+私了
+
+syl，上面都私信了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">老哥，求私信
+
