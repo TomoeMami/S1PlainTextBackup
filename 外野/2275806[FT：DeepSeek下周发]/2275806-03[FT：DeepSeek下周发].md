@@ -13128,3 +13128,23 @@ IMG_0457.jpeg
 
 梁子已被gpt腐乳。
 
+
+*****
+
+####  玉树临疯啊  
+##### 4148#       发表于 2026-7-31 09:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69986743&amp;ptid=2275806" target="_blank">查内姆 发表于 2026-7-30 18:24</a>
+
+直接用AI应该就是很干，酒馆或类似的程序可以通过导入别的的设置来生成不同的文风，比如轻小说风格，网文 ...</blockquote>
+我想写的刘备文，其实是给一篇烂尾断章多年的刘备文续写后面的故事。不是自己原创，是续写。
+
+*****
+
+####  goranger  
+##### 4149#       发表于 2026-7-31 09:55
+
+一直拿不出来我觉得就是拉了，没别的理由，欢迎赶紧拿出来打我脸<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
