@@ -13909,3 +13909,126 @@ flash就超过现在的pro 了，还要什么自行车<img src="https://static.s
 
 依然等等
 
+
+*****
+
+####  2017.05.04  
+##### 4228#       发表于 2026-7-31 14:09
+
+<img src="https://img.stage1st.com/forum/202607/31/140926mlr30npc4rmqzcqp.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1785478111145.png</strong> (21.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 14:09 上传
+
+*****
+
+####  cscbzcbz  
+##### 4229#       发表于 2026-7-31 14:09
+
+8月初，我的理解是8月30号<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rowen233  
+##### 4230#       发表于 2026-7-31 14:10
+
+Agent's Last Exam怎么比Luna低了快50%了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  scikirbypoke  
+##### 4231#       发表于 2026-7-31 14:10
+
+部分benchmark超glm5.2，另一部分不如luna一根
+
+
+*****
+
+####  Enamel  
+##### 4232#       发表于 2026-7-31 14:12
+
+8月是梁宫春日的8月吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  杀人鲸  
+##### 4233#       发表于 2026-7-31 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69991921&amp;ptid=2275806" target="_blank">Geronimo 发表于 2026-7-31 14:05</a>
+v4flash以前能正确回答洗车店问题么？</blockquote>
+这个问题不是很早就已经能够正确回答了吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lactone  
+##### 4234#       发表于 2026-7-31 14:14
+
+从测评来看有点偏科啊
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Azcarlo  
+##### 4235#       发表于 2026-7-31 14:15
+
+DS等式：7月上旬=7月底
+那么8月初=8月底也是很合理的<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Rowen233  
+##### 4236#       发表于 2026-7-31 14:15
+
+新卡Rubin好像有点猛的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chaoliu  
+##### 4237#       发表于 2026-7-31 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69991390&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-7-31 12:43</a>
+我记得是支持PDF的，还支持网页链接……
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
+不是，我还有很多是扫描件的 PDF，就是那种没有文字信息，都是以图片形式表存的，要通过 OCR 后转成文字信息，语言模型才知道。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  杀人鲸  
+##### 4238#       发表于 2026-7-31 14:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69991990&amp;ptid=2275806" target="_blank">Azcarlo 发表于 2026-7-31 14:15</a>
+DS等式：7月上旬=7月底
+那么8月初=8月底也是很合理的</blockquote>
+不是7月中旬吗？该换成8月中才对。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  wandeeees  
+##### 4239#       发表于 2026-7-31 14:17
+
+目前仅 deepseek-v4-flash 支持接入 Codex，deepseek-v4-pro 预计 2026 年 8 月初支持接入 Codex。
+
+V4 PRO 正式版8月初来吗？别又跳票吧，说来为啥V4 FLASH正式版为啥还是一堆let me
+
+*****
+
+####  lactone  
+##### 4240#       发表于 2026-7-31 14:17
+
+如果v4f能平替glm5.2那还挺好
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
