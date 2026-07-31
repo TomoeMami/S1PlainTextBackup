@@ -1205,3 +1205,65 @@ deepseek只能做几毛钱的效果游戏。。。看看别人fable5，GPT5.6 so
 
 至于华为云，每天和昇腾机器搏斗就知道什么水平了，一开始是完全没想到这么多云厂商技术不如DS……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杀人鲸  
+##### 4552#       发表于 2026-7-31 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994471&amp;ptid=2275806" target="_blank">qwased 发表于 2026-7-31 21:00</a>
+3060就能跑，非常接近seedance2.0
+
+不知道有没有甲</blockquote>
+那是好事情呀。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  飞侠小黑  
+##### 4553#       发表于 2026-7-31 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994471&amp;ptid=2275806" target="_blank">qwased 发表于 2026-7-31 21:00</a>
+3060就能跑，非常接近seedance2.0
+
+不知道有没有甲</blockquote>
+要怎么部署呢
+
+—— 来自 HUAWEI VDE-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  厍无春  
+##### 4554#       发表于 2026-7-31 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994269&amp;ptid=2275806" target="_blank">char1st 发表于 2026-7-31 20:28</a>
+做个"ASCII 可视化"——把截图降采样成字符画，直接"看"到物体形状。 来个多模态吧，看把孩子逼得。 ...</blockquote>
+笑死，再过两年模型要是还看不到，就要急到自己搓多模态了
+
+*****
+
+####  真红之闪电  
+##### 4555#       发表于 2026-7-31 21:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994255&amp;ptid=2275806" target="_blank">无尽的牙刷 发表于 2026-7-31 20:27</a>
+视频，说是8月3号开源</blockquote>
+我就看了下，感觉做包装还行…至于涩涩是指开源本地部署吗？如果是这个那我还是宁愿用现在的绿免方便点<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Geronimo  
+##### 4556#       发表于 2026-7-31 21:12
+
+不上多模态搞不定因果判断吧？
+
+*****
+
+####  nxmonitor  
+##### 4557#       发表于 2026-7-31 21:15
+
+灰测版没有多模态也有夸张的空间感知能力，不知道怎么做到的
+
