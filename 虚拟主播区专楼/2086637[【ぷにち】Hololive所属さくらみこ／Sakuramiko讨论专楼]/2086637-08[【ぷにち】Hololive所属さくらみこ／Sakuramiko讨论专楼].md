@@ -153,3 +153,34 @@ GTA2今年要来了？？？？？？？？？？？？？？
 
 万组全员都在墙上了
 
+
+*****
+
+####  holofan  
+##### 11667#       发表于 2026-7-31 09:37
+
+<img src="https://img.stage1st.com/forum/202607/31/093647yhxowtnmnoztxn6t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (375.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 09:36 上传
+
+这还原度没有100%也有99%了，还是厉害
+
+*****
+
+####  holofan  
+##### 11668#       发表于 2026-7-31 10:29
+
+<img src="https://img.stage1st.com/forum/202607/31/102631qtv1tn9qbsggvvev.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 10:26 上传
+
+昨晚深夜突然发的，2年前似曾相识啊，你告诉我你为了明天的发表给粉丝铺垫了这么多心理准备和暗示，最后如果不是2ndlive告知那她以后也不要再搞什么3d告知企划了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
