@@ -236,3 +236,39 @@ DS一直是一句话破甲啊，试了试R18G完全没问题
 
 查看全部评分
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 4463#       发表于 2026-7-31 17:39
+
+求私破甲词+1
+
+*****
+
+####  czhhws  
+##### 4464#       发表于 2026-7-31 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993465&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-7-31 17:37</a>
+总感觉融资以后还是有了无形的压力。先是在没人问的情况下虚空给自己立了个七月中旬的DDL，然后今天又在公 ...</blockquote>
+深度求索目前算是最老实的一个，有点压力也好。
+
+—— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  Dreki  
+##### 4465#       发表于 2026-7-31 17:44
+
+还以为有啥新消息，结果几十楼破甲词    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  舞以  
+##### 4466#       发表于 2026-7-31 17:45
+
+说会尽快上单纯是给放鸽子找补吧<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
