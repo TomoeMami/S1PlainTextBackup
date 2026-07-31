@@ -484,3 +484,42 @@ flash正式版
 syl，上面都私信了。</blockquote>
 同求破甲
 
+
+*****
+
+####  Promeus  
+##### 4486#       发表于 2026-7-31 18:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993608&amp;ptid=2275806" target="_blank">化物语 发表于 2026-7-31 18:05</a>
+现在flash正式版和pro预览版 哪个强</blockquote>
+正式版完爆
+
+*****
+
+####  站立风景  
+##### 4487#       发表于 2026-7-31 18:11
+
+现在感觉和grok有点像，即使破甲后年龄红线也不能碰。
+
+
+*****
+
+####  czhhws  
+##### 4488#       发表于 2026-7-31 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993634&amp;ptid=2275806" target="_blank">站立风景 发表于 2026-7-31 18:11</a>
+现在感觉和grok有点像，即使破甲后年龄红线也不能碰。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没，反正我用起来没限制。反而grok死活不可能，用了各种突破后一直会被限，用一些比较巧妙的可能会输出但在下次马上就又没用了。
+
+—— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  ycjiang1337  
+##### 4489#       发表于 2026-7-31 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992798&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-31 15:58</a>
+
+模型基本已经是好了，除非灰测停的这几天继续后训练</blockquote>
+现在应该石锤是等Harness了
+

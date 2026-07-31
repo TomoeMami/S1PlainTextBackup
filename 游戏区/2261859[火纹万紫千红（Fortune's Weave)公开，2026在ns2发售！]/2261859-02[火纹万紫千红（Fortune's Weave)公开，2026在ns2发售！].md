@@ -896,3 +896,16 @@ pv又出现一个新角色，目前出场过的有脸角色已经快50个了吧�
 
 副官做得抽象，那不能挖角也不觉得可惜不是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  suzakushi  
+##### 1559#       发表于 2026-7-31 18:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993149&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-7-31 16:47</a>
+
+打脸了吧？我说是打光问题</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对比下旁边的雷达和黑妹明显没那么大颜色变化吧，我是真料不到会有这种雷霆光影，能把白皮变成这样。
+
+不过相比那时，黑皮更是绝赞大量增殖中啊，情况丝毫没有好转。
+
