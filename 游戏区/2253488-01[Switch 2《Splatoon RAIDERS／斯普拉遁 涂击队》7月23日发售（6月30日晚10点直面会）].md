@@ -5951,3 +5951,14 @@ epd5真的要么扩张要么拆分成喷喷组和动森组吧，一个组负责�
 
 风扇是不是？想不起关卡里有没有了。
 
+
+*****
+
+####  Antidote丶  
+##### 741#       发表于 2026-7-31 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69991314&amp;ptid=2253488" target="_blank">Dedalus 发表于 2026-7-31 12:31</a>
+
+说到怪物，头目三兄弟其实还算眉清目秀，这次这个四手怪是什么东西，第一次看到有点掉san，别的都是喷喷正 ...</blockquote>
+鲑鱼图鉴里有，四个鳍异常粗壮的鲑鱼
+

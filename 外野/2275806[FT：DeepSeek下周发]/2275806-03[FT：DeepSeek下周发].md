@@ -13721,3 +13721,81 @@ OpenRouter之前就改了 国内支付方式充值不能用OA两家的模型<img
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  王兰花秀丽  
+##### 4207#       发表于 2026-7-31 13:50
+
+发了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  Freewolf  
+##### 4208#       发表于 2026-7-31 13:50
+
+<img src="https://p.sda1.dev/34/f4d82cd9bff14ea9d09820639e782e19/image.jpg" referrerpolicy="no-referrer">动弹了
+
+*****
+
+####  V5Style  
+##### 4209#       发表于 2026-7-31 13:51
+
+Flash更新了，Pro还没更新
+
+<img src="https://img.stage1st.com/forum/202607/31/135157nb28z31d18919673.jpg" referrerpolicy="no-referrer">
+
+<strong>B60030BD-77B2-4A64-9086-914A92A88786.jpg</strong> (620.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 13:51 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  德尔惠净水器  
+##### 4210#       发表于 2026-7-31 13:54
+
+终于来了！
+
+*****
+
+####  →熙←  
+##### 4211#       发表于 2026-7-31 13:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">flash超glm5.2吗
+
+*****
+
+####  王兰花秀丽  
+##### 4212#       发表于 2026-7-31 13:54
+
+根据codex适配文档可知，八月初发pro
+
+<img src="https://img.stage1st.com/forum/202607/31/135437gz4mviv5zvvgbp0v.png" referrerpolicy="no-referrer">
+
+<strong>1000051955.png</strong> (105.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 13:54 上传
+
+    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  Promeus  
+##### 4213#       发表于 2026-7-31 13:55
+
+Flash思维链依然是let me和wait<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飛霞精灵  
+##### 4214#       发表于 2026-7-31 13:56
+
+公告上有点没看明白，网页版的V4F还是没更改状态么？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
