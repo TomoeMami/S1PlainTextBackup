@@ -13069,3 +13069,20 @@ Sol没降，没啥意思
 
 感觉可以lunamax+loop开始debug了. 全权交给Agent从零构建的问题就是数不清的bug, 程序几乎是边跑边修. 为了可扩展性设计了各种抽象化, 但是只要加新功能基本上就从修bug做起.
 
+
+*****
+
+####  Rowen233  
+##### 4144#       发表于 2026-7-31 08:14
+
+联想怎么也签了老黄那个开源倡议<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+IMG_0457.jpeg
+(312.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 08:14 上传
+
+<img src="https://img.stage1st.com/forum/202607/31/081418s92b2zb1b82n3ma2.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
