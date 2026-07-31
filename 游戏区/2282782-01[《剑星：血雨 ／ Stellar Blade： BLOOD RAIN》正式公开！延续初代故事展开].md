@@ -4459,3 +4459,18 @@ AI MV……
 【《剑星：血雨》「Wanna be in LOVE」音乐视频】 
 [https://b23.tv/X2NgawM](https://b23.tv/X2NgawM)
 
+
+*****
+
+####  牙狼GARO  
+##### 437#       发表于 2026-7-31 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990749&amp;ptid=2282782" target="_blank">Piano-Forest 发表于 2026-7-31 11:19</a>
+
+AI MV……
+
+【《剑星：血雨》「Wanna be in LOVE」音乐视频】 </blockquote>
+挺不错的，b part开始各种吃的eve可爱捏。
+
+最好笑的是结束了还有ai幕后花絮
+

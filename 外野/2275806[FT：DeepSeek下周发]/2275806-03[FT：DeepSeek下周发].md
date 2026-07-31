@@ -13391,3 +13391,85 @@ gpt降价后知乎已经开始大规模咩鳖了
 我用opencode go调用flash，之前是全英文思考的，因为hermes系统提示词全是英文，但刚才明显的同一个对话 ...</blockquote>
 我用英文系统在pi/网页版用英文对话都有很一定概率出中文，而且很久了，我觉得和新版本内什么关系    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  goranger  
+##### 4175#       发表于 2026-7-31 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990802&amp;ptid=2275806" target="_blank">Dreki 发表于 2026-7-31 11:24</a>
+我用英文系统在pi/网页版用英文对话都有很一定概率出中文，而且很久了，我觉得和新版本内什么关系    Re: ...</blockquote>
+我是稳定用了接近一个多月了，今天第一次见思维链变中文
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  neptunehs  
+##### 4176#       发表于 2026-7-31 11:36
+
+要是降价完opencode go能收录luna我就不黑closedai了。
+但不能吧？还是只能继续期待国产开源
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  overflowal  
+##### 4177#       发表于 2026-7-31 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990784&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-31 11:23</a>
+话说回来是这个提问下只要能识别nameeee这个词就行还是要完整遵循指令把Nameeee回复出来 ...</blockquote>
+必须让他repeat Nameeee 
+注意前面的空格必须保留
+另外必须是第一次在上下文出现这个词    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  qz66618  
+##### 4178#       发表于 2026-7-31 11:40
+
+主要是v4f这个模型太小了，我要的大的是pro正式版<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Promeus  
+##### 4179#       发表于 2026-7-31 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990919&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-31 11:38</a>
+必须让他repeat Nameeee 
+注意前面的空格必须保留
+另外必须是第一次在上下文出现这个词    Re:Source ...</blockquote>
+现在是这样，有一次是出了Nameeee，其他的几次是重复了一遍repeat Nameeee然后问我是不是输入错误了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  overflowal  
+##### 4180#       发表于 2026-7-31 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990940&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-31 11:41</a>
+现在是这样，有一次是出了Nameeee，其他的几次是重复了一遍repeat Nameeee然后问我是不是输入错误了 ...</blockquote>
+你看他cot里面能不能正确复述就完事了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  Promeus  
+##### 4181#       发表于 2026-7-31 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990964&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-7-31 11:44</a>
+你看他cot里面能不能正确复述就完事了    Re:Source</blockquote>
+Cot能认出Nameeee但是会考虑是不是打错了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  overflowal  
+##### 4182#       发表于 2026-7-31 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990978&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-31 11:46</a>
+Cot能认出Nameeee但是会考虑是不是打错了</blockquote>
+那就是识别成功了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
