@@ -1411,3 +1411,32 @@ workbuddy 是直接接的ds官方？居然不是腾讯云的吗？</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  heemoon  
+##### 4570#       发表于 2026-7-31 22:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994890&amp;ptid=2275806" target="_blank">wonderful259 发表于 2026-7-31 22:21</a>
+workbuddy 是直接接的ds官方？居然不是腾讯云的吗？</blockquote>
+不好说，workbuddy里用自带的v4p时是可以识别图片的。但是我自定义模型用ds的api就不能识别图片了。
+
+*****
+
+####  水風船  
+##### 4571#       发表于 2026-7-31 22:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994913&amp;ptid=2275806" target="_blank">M乔梦 发表于 2026-7-31 22:25</a>
+
+有一说一，甲确实厚了不少。以前出场角色未成年都是可以写的，现在必须声明角色满18岁才能写啊，这几个破甲 ...</blockquote>
+所以直接修仙或者长生种背景，各个都几百岁就完事了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 4572#       发表于 2026-7-31 22:31
+
+<blockquote>wonderful259 发表于 2026-7-31 22:21
+workbuddy 是直接接的ds官方？居然不是腾讯云的吗？</blockquote>
+上次deepseek服务炸了，workbuddy的同步炸了…
+
