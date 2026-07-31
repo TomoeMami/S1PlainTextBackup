@@ -14721,3 +14721,291 @@ z/ 看到男梁随手掏出的280b小阴鲸，震惊的瘫坐在椅子上，仿�
 
 opencode go订阅的ds是转发到官方api吗？
 
+
+*****
+
+####  passgan  
+##### 4317#       发表于 2026-7-31 15:26
+
+看有个人说在v4f更新千几个小时后花了一千多买了GLM套餐，正在跟客服掰头退款中，真可怜
+
+*****
+
+####  九山节度使  
+##### 4318#       发表于 2026-7-31 15:26
+
+<img src="https://img.stage1st.com/forum/202607/31/152632j8fq3863c6dzumqe.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1785482791124_1.webp</strong> (67.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 15:26 上传
+
+<img src="https://img.stage1st.com/forum/202607/31/152632vljopj3ghvgvmuvi.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1785482791306_2.webp</strong> (63.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 15:26 上传
+
+<img src="https://img.stage1st.com/forum/202607/31/152632qz6jqejgxqj64fa1.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1785482791378_3.webp</strong> (139.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 15:26 上传
+
+<img src="https://img.stage1st.com/forum/202607/31/152632ac2q6gmcn6xcn6fm.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1785482791458_4.webp</strong> (137.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 15:26 上传
+
+*****
+
+####  zy450  
+##### 4319#       发表于 2026-7-31 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992513&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-31 15:18</a>
+
+撑不住的，Flash这个表现说明前段时间灰测V4P性能大概率是真的，按照那个表现后端能力比K3强，前端靠着超 ...</blockquote>
+前端时间的灰测 我遇到好几次了，确实非常强
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4320#       发表于 2026-7-31 15:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992543&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-7-31 15:22</a>
+有没有大佬蹬过写文了，注意力改善的咋样</blockquote>
+写了点，和glm5.2同样提示词同样skill同样驾驭（opencode），伯仲之间。
+反正读不完skill就开始干活的毛病是没有了。而且V4Flash能跟GLM5.2伯仲之间，我觉着已经很厉害了。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  nxmonitor  
+##### 4321#       发表于 2026-7-31 15:28
+
+opencode好像适配没弄好，回答问题会截断，还是上codex吧
+
+*****
+
+####  drodchang  
+##### 4322#       发表于 2026-7-31 15:28
+
+我测试了一下，flash和gpt5.5 xhigh的能力还是相差很远，这并不意外，希望pro能差不多就很了不起了。
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4323#       发表于 2026-7-31 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992583&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-7-31 15:28</a>
+我测试了一下，flash和gpt5.5 xhigh的能力还是相差很远，这并不意外，希望pro能差不多就很了不起了。 ...</blockquote>
+不是，这就有点过分了吧。要是V4Flash能干过5.5XHigh的话，奥特曼真的能炸了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  江月下  
+##### 4324#       发表于 2026-7-31 15:29
+
+谭友们，如果我想把v4f接入codex，但codex上我自己又有gptplus订阅可以用，怎么实现这俩的快速切换或方便点的切换呢
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  wandeeees  
+##### 4325#       发表于 2026-7-31 15:29
+
+用codex cli接v4 flash max试了下，代码方面确实很强，再加上这个价格，无敌了，可惜工作时间会涨价两倍，不过这样性价比也很高了<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小川彩  
+##### 4326#       发表于 2026-7-31 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992590&amp;ptid=2275806" target="_blank">江月下 发表于 2026-7-31 15:29</a>
+谭友们，如果我想把v4f接入codex，但codex上我自己又有gptplus订阅可以用，怎么实现这俩的快速切换或方便点 ...</blockquote>
+我猜可以cc switch？虽然我没有用
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  江月下  
+##### 4327#       发表于 2026-7-31 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992601&amp;ptid=2275806" target="_blank">小川彩 发表于 2026-7-31 15:30</a>
+我猜可以cc switch？虽然我没有用
+
+论坛助手,iPhone</blockquote>
+应该就是用ccswitch把ds接入codex的，但是要切换回去我就不知道咋切换了（
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4328#       发表于 2026-7-31 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992592&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-7-31 15:29</a>
+用codex cli接v4 flash max试了下，代码方面确实很强，再加上这个价格，无敌了，可惜工作时间会涨价两倍， ...</blockquote>
+刚才蹬了800万词元，刚花了8毛钱，我感觉这跟白给也没什么区别了。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  neptunehs  
+##### 4329#       发表于 2026-7-31 15:33
+
+开始有点被蹬坏的趋势了，时不时busy了
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  王兰花秀丽  
+##### 4330#       发表于 2026-7-31 15:33
+
+被蹬坏了，工作日发的代价<img src="https://static.stage1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  冤枉呐  
+##### 4331#       发表于 2026-7-31 15:34
+
+知乎：鲸震恩，我们敬爱您
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cscbzcbz  
+##### 4332#       发表于 2026-7-31 15:34
+
+别啊，我还没有蹬够呢<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lilod  
+##### 4333#       发表于 2026-7-31 15:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992609&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-31 15:32</a>
+
+刚才蹬了800万词元，刚花了8毛钱，我感觉这跟白给也没什么区别了。
+
+—— 来自 HUAWEI SGU-AL10, Android ...</blockquote>
+我看了一下，目前我 1700w token 花了 1.14
+
+*****
+
+####  他们都是啥b  
+##### 4334#       发表于 2026-7-31 15:35
+
+感觉 Codex 还是有问题, 默认配置了 `"supports_search_tool": true` 导致发现不了 MCP 暴露的工具.
+
+<img src="https://img.stage1st.com/forum/202607/31/153524j56dp5387z8ziptd.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (82.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 15:35 上传
+
+*****
+
+####  muermaru  
+##### 4335#       发表于 2026-7-31 15:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992609&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-7-31 15:32</a>
+
+刚才蹬了800万词元，刚花了8毛钱，我感觉这跟白给也没什么区别了。
+
+—— 来自 HUAWEI SGU-AL10, Android ...</blockquote>
+和v4 pro比呢，正式版flash写文比老v4 pro强吗
+
+*****
+
+####  发呆的龙虾  
+##### 4336#       发表于 2026-7-31 15:35
+
+这就挂了，气死我啦。
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  love4aids  
+##### 4337#       发表于 2026-7-31 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992590&amp;ptid=2275806" target="_blank">江月下 发表于 2026-7-31 15:29</a>
+谭友们，如果我想把v4f接入codex，但codex上我自己又有gptplus订阅可以用，怎么实现这俩的快速切换或方便点 ...</blockquote>
+ccswitch 切换用
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Promeus  
+##### 4338#       发表于 2026-7-31 15:36
+
+直接给蹬炸了可还行
+
+*****
+
+####  jerryliuzy  
+##### 4339#       发表于 2026-7-31 15:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一直报繁忙，登不动了
+
+*****
+
+####  Promeus  
+##### 4340#       发表于 2026-7-31 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992638&amp;ptid=2275806" target="_blank">muermaru 发表于 2026-7-31 15:35</a>
+和v4 pro比呢，正式版flash写文比老v4 pro强吗</blockquote>
+之前测试感觉不是而是少了很多
+
+*****
+
+####  squallx  
+##### 4341#       发表于 2026-7-31 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69989323&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-7-31 05:34</a>
+开啥玩笑，3.6比vl这老货强一大截</blockquote>
+强过3vl的是27b吗 有点慢 35b速度倒是不错 我看发布时间3vl32b也不算太老吧
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  自由之紫roy  
+##### 4342#       发表于 2026-7-31 15:37
+
+ａｐｉ要重新弄吗？
+
+还是选４ｆｌａｓｈ就可以了？
+
+直接切换到新的０７３１？
+
+*****
+
+####  nxmonitor  
+##### 4343#       发表于 2026-7-31 15:37
+
+直接进入了PVP模式……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
