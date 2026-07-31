@@ -6041,3 +6041,16 @@ epd5真的要么扩张要么拆分成喷喷组和动森组吧，一个组负责�
 论坛助手,iPhon ...</blockquote>
 镭射煮锅吗，我试试
 
+
+*****
+
+####  星野航  
+##### 749#       发表于 2026-7-31 22:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994556&amp;ptid=2253488" target="_blank">qwased 发表于 2026-7-31 22:17</a>
+
+镭射煮锅吗，我试试</blockquote>
+武器挂附着发酵，连射攻击力增加，发酵爆炸
+
+基本上来说是扫图的，小怪吃不住你打，大怪两梭子的味
+

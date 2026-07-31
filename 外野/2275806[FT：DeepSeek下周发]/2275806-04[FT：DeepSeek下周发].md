@@ -1485,3 +1485,38 @@ tmux +  手机Termux
 
 另外手机上也可以Termux里 pi coding agent + dsv4 flash, 非常强大:D
 
+
+*****
+
+####  龙骑士尹志平  
+##### 4577#       发表于 2026-7-31 22:49
+
+<blockquote>eaglu 发表于 2026-7-31 22:37
+paseo吧</blockquote>
+ok 感谢 研究下
+
+
+*****
+
+####  站立风景  
+##### 4578#       发表于 2026-7-31 22:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994583&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-7-31 21:23</a>
+
+grok生图有招儿嘛兄弟
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+grok生图双重审核，前端突破了也没用。反正上半身裸露自摸啥的是能生成的。更多就没戏了。
+
+*****
+
+####  站立风景  
+##### 4579#       发表于 2026-7-31 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993643&amp;ptid=2275806" target="_blank">czhhws 发表于 2026-7-31 18:13</a>
+
+没，反正我用起来没限制。反而grok死活不可能，用了各种突破后一直会被限，用一些比较巧妙的可能会输出但 ...</blockquote>
+grok我感觉都不用破甲，可能因为我连接了X**账号？
+
+你给的提示词反正未成年死活不写，它一定要改成成年的。不过也不碍事就是了，真写起来也不搞未成年。
+
