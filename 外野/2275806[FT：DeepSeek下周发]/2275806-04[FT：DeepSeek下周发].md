@@ -763,3 +763,93 @@ v4f感觉又拉高了我对v4p正式版的期待<img src="https://static.stage1s
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  笨拙的机器人  
+##### 4512#       发表于 2026-7-31 19:16
+
+flash好评，打glm5.2毫无问题
+
+*****
+
+####  秦南心  
+##### 4513#       发表于 2026-7-31 19:17
+
+很难说梁圣这一手是不是故意整gpt luna的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 4514#       发表于 2026-7-31 19:19
+
+唐圣得搞个风味v4的底模了啊，5.2被小这么多的v4f打真的顶不住了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nxmonitor  
+##### 4515#       发表于 2026-7-31 19:21
+
+<blockquote>库德里尔 发表于 2026-7-31 19:13
+测试了一下，用/goal做一个步步为营，中间不设任何人工引导
+
+整体开发思路还算有点道理 可惜在游戏理解上面 ...</blockquote>
+这个需求要等V4P正式版出来了，灰测的性能可以满足要求
+
+
+*****
+
+####  nxmonitor  
+##### 4516#       发表于 2026-7-31 19:22
+
+<blockquote>舞以 发表于 2026-7-31 19:19
+唐圣得搞个风味v4的底模了啊，5.2被小这么多的v4f打真的顶不住了吧
+
+论坛助手,iPhone ...</blockquote>
+还有个V4P呢，GLM5.5刚出来都不一定赶得上…
+
+*****
+
+####  leystage  
+##### 4517#       发表于 2026-7-31 19:22
+
+在 Hermes 开了个新会话问老会话是不是会自动使用正式版，它就开始反复思考，没管它过了一会儿还在思考，手动停了，然后发现花了 0.6
+
+然后在一个老会话里吐槽这事，它讽刺了两次同一句话
+
+emmm...
+
+<img src="https://img.stage1st.com/forum/202607/31/192029xff7f7o888i2t8or.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>スクリーンショット 2026-07-31 19.19.45.jpeg</strong> (176.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 19:20 上传
+
+*****
+
+####  库德里尔  
+##### 4518#       发表于 2026-7-31 19:23
+
+ 本帖最后由 库德里尔 于 2026-7-31 19:24 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993920&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-31 19:21</a>
+这个需求要等V4P正式版出来了，灰测的性能可以满足要求</blockquote>
+主要是“两个墙不能重叠”的部分都没有满足 非常遗憾 感觉好像只在交叉点做了唯一性判断
+
+ai算法方面都不管了
+
+我是觉得如果显式提示它先过一遍websearch，至少游戏规则应该能正确的<img src="https://static.stage1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202607/31/192439ht3ttmc140c8wmmm.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1785497080170_1.webp</strong> (6.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 19:24 上传
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
