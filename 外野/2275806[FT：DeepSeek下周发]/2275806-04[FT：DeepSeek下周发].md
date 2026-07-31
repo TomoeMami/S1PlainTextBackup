@@ -1729,3 +1729,30 @@ gpt的毛病，喜欢把设计里面未一一列举所有简单的情况当成�
 如果我想在客户端里使用类似网页对话的模式调用ds4f 这类的模型</blockquote>
 cherrystudio
 
+
+*****
+
+####  ly4236  
+##### 4599#       发表于 2026-8-1 01:50
+
+今天用glm5.2进行了较大到位的修改后，ds flash正式版发布了。
+
+后面用ds flash做了很多小功能+一些优化。前后端+小程序一起改，基本都是一次过。
+
+opencode，体验不比glm差。中文思维链很爽。
+
+尤其是对比glm的速度。
+
+
+*****
+
+####  jyj256  
+##### 4600#       发表于 2026-8-1 01:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69995526&amp;ptid=2275806" target="_blank">ArthurDent 发表于 2026-8-1 01:07</a>
+
+楼上发的那个roll了十回成了一次，年龄和强迫卡得死死的
+
+—— 来自 Xiaomi 2112123AC, Android 13, 鹅球 v ...</blockquote>
+类脑最新的梦鲸思客预设倒是都能破 我看了一下里面破甲提示词很简单 就是不知道在酒馆外用能不能生效
+
