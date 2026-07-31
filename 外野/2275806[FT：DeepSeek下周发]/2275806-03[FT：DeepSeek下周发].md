@@ -13799,3 +13799,113 @@ Flash思维链依然是let me和wait<img src="https://static.stage1st.com/image/
 
 公告上有点没看明白，网页版的V4F还是没更改状态么？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蛋黄酱Release  
+##### 4215#       发表于 2026-7-31 13:58
+
+v4f真能超glm5.2吗 还好忍住了没买涨价后的glm
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  杀人鲸  
+##### 4216#       发表于 2026-7-31 13:59
+
+好好好，这算是大的来了一半吗？来了一个小的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cscbzcbz  
+##### 4217#       发表于 2026-7-31 14:00
+
+爱信等的胜利，我只担心用的人太多服务器不响应，或者降智<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七氷  
+##### 4218#       发表于 2026-7-31 14:01
+
+flash思考链变中文了
+
+*****
+
+####  77BBC  
+##### 4219#       发表于 2026-7-31 14:01
+
+重新定义七月中旬
+
+
+*****
+
+####  蛋黄酱Release  
+##### 4220#       发表于 2026-7-31 14:02
+
+我这的思考怎么还是英文<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  2017.05.04  
+##### 4221#       发表于 2026-7-31 14:03
+
+<img src="https://img.stage1st.com/forum/202607/31/140351y83lr3jcvq3llmo4.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1785477791572.png</strong> (11.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 14:03 上传
+
+听上去好诱人
+
+*****
+
+####  Rowen233  
+##### 4222#       发表于 2026-7-31 14:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69991863&amp;ptid=2275806" target="_blank">飛霞精灵 发表于 2026-7-31 13:56</a>
+
+公告上有点没看明白，网页版的V4F还是没更改状态么？</blockquote>
+主要加强了Agent能力 网页改不改差不多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zy450  
+##### 4223#       发表于 2026-7-31 14:04
+
+小的来了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Geronimo  
+##### 4224#       发表于 2026-7-31 14:05
+
+v4flash以前能正确回答洗车店问题么？
+
+*****
+
+####  cscbzcbz  
+##### 4225#       发表于 2026-7-31 14:05
+
+flash就超过现在的pro 了，还要什么自行车<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  →熙←  
+##### 4226#       发表于 2026-7-31 14:05
+
+怎么还是let me的思维链啊, 我的I'm呢
+
+*****
+
+####  七氷  
+##### 4227#       发表于 2026-7-31 14:07
+
+依然等等
+
