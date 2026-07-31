@@ -2770,3 +2770,15 @@ anime expo场刊里面表述茉里不是一个假小子，看到现在有人认�
 
 这片没什么老人味，看着真舒服<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 234#       发表于 2026-7-31 13:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69975119&amp;ptid=2183857" target="_blank">aptx8285144 发表于 2026-7-28 14:20</a>
+你们人鱼用手机也如此熟练，和人类生活上差异在哪里</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这都上岸不知道生活多久了还不会是什么原始人
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

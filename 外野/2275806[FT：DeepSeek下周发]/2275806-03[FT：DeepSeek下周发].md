@@ -13698,3 +13698,26 @@ OpenRouter之前就改了 国内支付方式充值不能用OA两家的模型<img
 
 还以为是 sol 大降价，结果是 luna…
 
+
+*****
+
+####  Bronzecraft  
+##### 4205#       发表于 2026-7-31 13:38
+
+还没出来吗？难道要重新定义7月中旬？
+
+“是的，我说的是7月中旬，但我可没说哪一年的7月中旬”
+
+*****
+
+####  M乔梦  
+##### 4206#       发表于 2026-7-31 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990131&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-7-31 10:00</a>
+这算不算一步慢步步慢，适配国产的慢了个把月，现在又要弄harness，也要慢个把月
+
+再等半个月GLM估计就要出 ...</blockquote>
+总得要做的，现在不做以后也得做
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
