@@ -1590,3 +1590,14 @@ grok生图双重审核，前端突破了也没用。反正上半身裸露自摸�
 突然想起来梁文锋从上次开会之后，一张照片都没流出来，真离谱    Re:Source</blockquote>
 做量化的自我修养，量化行事都很神秘的<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不见不散  
+##### 4586#       发表于 2026-8-1 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69995143&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-7-31 23:18</a>
+
+这吊图真是要笑死我</blockquote>
+这到底是什么梗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
