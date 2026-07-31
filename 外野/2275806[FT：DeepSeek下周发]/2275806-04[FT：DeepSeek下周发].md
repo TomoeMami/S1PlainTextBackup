@@ -1635,3 +1635,21 @@ grok生图双重审核，前端突破了也没用。反正上半身裸露自摸�
 
 reasonix的这个界面看着真的解压<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千千千千鸟  
+##### 4590#       发表于 2026-8-1 00:42
+
+这模型没有视觉能力也能完成视觉任务，有点爽。我运行一个鸣潮的自动化流程，中间卡住了。直接让Deepseek V4 Flash正式版帮我分析日志。它就用了各种方法，就把这情况解决了。原因是因为国服点的是开始挑战，而国际服是开启挑战。匹配不上，总之它修改一下就匹配上了
+
+*****
+
+####  蛋黄酱Release  
+##### 4591#       发表于 2026-8-1 00:44
+
+我怎么一直没遇到不能写的情况<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+难道是破甲提示词的原因？
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
