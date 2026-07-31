@@ -14032,3 +14032,185 @@ V4 PRO 正式版8月初来吗？别又跳票吧，说来为啥V4 FLASH正式版�
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Rowen233  
+##### 4241#       发表于 2026-7-31 14:18
+
+全面爆杀GLM5.2<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+智谱：现在是年轻人接管比赛的时候了，现在是我的时代了
+
+DS：GLM，我会把你打回现实<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 4242#       发表于 2026-7-31 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992011&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-7-31 14:17</a>
+目前仅 deepseek-v4-flash 支持接入 Codex，deepseek-v4-pro 预计 2026 年 8 月初支持接入 Codex。
+
+V4 PRO ...</blockquote>
+v4f不是灰测那个吧
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  wandeeees  
+##### 4243#       发表于 2026-7-31 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992019&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-31 14:18</a>
+
+v4f不是灰测那个吧
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+我知道应该不是，但是如果同样的后训练的话，COT是不是应该也很相似才对吧
+
+*****
+
+####  nxmonitor  
+##### 4244#       发表于 2026-7-31 14:19
+
+V4P不会是重新训练了吧，不然也不用专门说一句flash没动架构
+
+*****
+
+####  cscbzcbz  
+##### 4245#       发表于 2026-7-31 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992028&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-31 14:19</a>
+V4P不会是重新训练了吧，不然也不用专门说一句flash没动架构</blockquote>
+我感觉很有可能
+
+*****
+
+####  →熙←  
+##### 4246#       发表于 2026-7-31 14:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">v4pro不会有奇迹的,灰测那几天肯定是路由到了fable5
+
+*****
+
+####  UncleDracula  
+##### 4247#       发表于 2026-7-31 14:21
+
+预览版pro被正式版flash碾压？有点6，让我使劲儿蹬蹬看<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛋黄酱Release  
+##### 4248#       发表于 2026-7-31 14:22
+
+check了一下项目，内容没细看，感觉还有模有样的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等下用glm5.2再测一下对比
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  lubo  
+##### 4249#       发表于 2026-7-31 14:22
+
+<img src="https://img.stage1st.com/forum/202607/31/142148r0flfsddxrn1crjy.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9384.jpeg</strong> (530.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 14:21 上传
+
+*****
+
+####  nxmonitor  
+##### 4250#       发表于 2026-7-31 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992035&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-7-31 14:21</a>
+
+v4pro不会有奇迹的,灰测那几天肯定是路由到了fable5</blockquote>
+特征差得有点多了，路由到未来终于憋出来的Gemini还差不多
+
+*****
+
+####  overflowal  
+##### 4251#       发表于 2026-7-31 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992035&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-7-31 14:21</a>
+
+v4pro不会有奇迹的,灰测那几天肯定是路由到了fable5</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">证据呢？灰测到fable，你怎么获取fable的Cot？还是你相信传说中的"""破解cot"""？
+
+*****
+
+####  77BBC  
+##### 4252#       发表于 2026-7-31 14:25
+
+不赖，再给ds充个十块的
+
+*****
+
+####  蛋黄酱Release  
+##### 4253#       发表于 2026-7-31 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992052&amp;ptid=2275806" target="_blank">lubo 发表于 2026-7-31 14:22</a></blockquote>
+好好好，这下更期待v4p了
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  zhanglei1943  
+##### 4254#       发表于 2026-7-31 14:26
+
+deepswe 54 ≈ gpt 5.5 high ≈ opus 4.8 xhigh
+
+ALE 25 略低于 opus 4.8 max (27) 略低于 K3 max (28)
+
+<img src="https://img.stage1st.com/forum/202607/31/142636unzp48urgau48pl2.png" referrerpolicy="no-referrer">
+
+<strong>b9e1918016def14918d06b8f342382d3.png</strong> (19.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 14:26 上传
+
+terminal bench 2.1仅次于fable 5 xhigh和gpt5.5 xhigh
+
+*****
+
+####  Lorraine_Kinney  
+##### 4255#       发表于 2026-7-31 14:26
+
+glm真是小丑啊
+
+*****
+
+####  mitzvah  
+##### 4256#       发表于 2026-7-31 14:27
+
+好啊！v4flash，咬咬牙可以本地部署4位量化，
+
+*****
+
+####  cscbzcbz  
+##### 4257#       发表于 2026-7-31 14:27
+
+我超忍不住了，手里活不管了，我现在就要蹬蹬
+
+*****
+
+####  蜇灵  
+##### 4258#       发表于 2026-7-31 14:27
+
+所以有没有人测一下实际情况
+
+*****
+
+####  →熙←  
+##### 4259#       发表于 2026-7-31 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992052&amp;ptid=2275806" target="_blank">lubo 发表于 2026-7-31 14:22</a></blockquote>
+真碾掉glm5.2了?
+
