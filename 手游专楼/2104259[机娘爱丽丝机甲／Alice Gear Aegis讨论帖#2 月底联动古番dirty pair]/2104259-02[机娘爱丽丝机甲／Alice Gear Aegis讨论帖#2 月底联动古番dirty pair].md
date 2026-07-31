@@ -128,3 +128,11 @@ FY16 YHA3 TL6W GFTK
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就是被一开始两个十连连着金变彩给迷了眼了（虽然两个都是歪的
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后就是60连啥都没有，太卑鄙了阿金
 
+
+*****
+
+####  精英级自演乙  
+##### 2079#       发表于 2026-7-31 23:40
+
+这次奈叶联动就差个久濑本体了，惜败
+

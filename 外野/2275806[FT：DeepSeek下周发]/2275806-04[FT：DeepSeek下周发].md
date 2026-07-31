@@ -1562,3 +1562,31 @@ grok我感觉都不用破甲，可能因为我连接了X**账号？
 
 2026-7-31 23:18 上传
 
+
+*****
+
+####  冤枉呐  
+##### 4583#       发表于 2026-7-31 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69995048&amp;ptid=2275806" target="_blank">站立风景 发表于 2026-7-31 22:54</a>
+grok生图双重审核，前端突破了也没用。反正上半身裸露自摸啥的是能生成的。更多就没戏了。 ...</blockquote>
+我这儿一般图topless（下半身侧身），转视频能全，但是剧情动作别想了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  王兰花秀丽  
+##### 4584#       发表于 2026-7-31 23:41
+
+突然想起来梁文锋从上次开会之后，一张照片都没流出来，真离谱    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  overflowal  
+##### 4585#       发表于 2026-7-31 23:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69995271&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-7-31 23:41</a>
+突然想起来梁文锋从上次开会之后，一张照片都没流出来，真离谱    Re:Source</blockquote>
+做量化的自我修养，量化行事都很神秘的<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
