@@ -759,3 +759,33 @@ X上这几天的风向是恩给鸡乃火纹史第一战斗动画
 
 全队人设断崖式秒杀另外三个队，一周目大部分玩家估计都选蕾达了
 
+
+*****
+
+####  bad_alloc  
+##### 1545#       发表于 2026-7-31 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992343&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-7-31 14:57</a>
+
+这蕾达队不是秒了吗
+
+全队人设断崖式秒杀另外三个队，一周目大部分玩家估计都选蕾达了 ...</blockquote>
+然后发现蕾达就是红秋裤2代，把人都骗进来杀<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  零崎不识  
+##### 1546#       发表于 2026-7-31 15:05
+
+<blockquote>bad_alloc 发表于 2026-7-31 15:01
+然后发现蕾达就是红秋裤2代，把人都骗进来杀</blockquote>
+那蚌埠住了，
+
+*****
+
+####  星花  
+##### 1547#       发表于 2026-7-31 15:06
+
+再差的人设又不是没见过   我更关心三房结合的NS2版在哪里？第一方其他重要游戏基本都有了 。
+

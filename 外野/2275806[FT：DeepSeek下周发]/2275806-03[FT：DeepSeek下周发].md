@@ -14528,3 +14528,59 @@ v4f现在这个水平，又回到了那个国外大体量AI做规划，然后DS�
 
 好好好，再也不用天天和小丑似地抢glm的coding plan，还tm抢不到
 
+
+*****
+
+####  百响  
+##### 4295#       发表于 2026-7-31 15:02
+
+太哈宁了，这个参数量就能薄纱glm5.2，本来以为至少明年才能出接近5.2的flash级模型的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  龙骑士尹志平  
+##### 4296#       发表于 2026-7-31 15:02
+
+用opencode开，还是经常let me，是因为opencode用的不是官网的v4f吗
+
+*****
+
+####  cscbzcbz  
+##### 4297#       发表于 2026-7-31 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992381&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-7-31 15:02</a>
+用opencode开，还是经常let me，是因为opencode用的不是官网的v4f吗</blockquote>
+官方目前推荐codex
+
+
+*****
+
+####  nxmonitor  
+##### 4298#       发表于 2026-7-31 15:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992381&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-7-31 15:02</a>
+
+用opencode开，还是经常let me，是因为opencode用的不是官网的v4f吗</blockquote>
+flash只是后训练了一下，一般同一个基模思维链不会突变，怀疑pro是重新训练了
+
+*****
+
+####  UncleDracula  
+##### 4299#       发表于 2026-7-31 15:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992390&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-7-31 15:02</a>
+
+官方目前推荐codex</blockquote>
+用codex有什么好处吗？我现在用VSCode，不知道要不要切换
+
+*****
+
+####  当光停止  
+##### 4300#       发表于 2026-7-31 15:05
+
+郑重声明：
+
+本人从未把梁文峰的头ps到脉动、凉白开上，从来没有到处散播“不要擅自期待”，从来没有诋毁过杭州深度求索公司。本人实际上是深度求索两年老粉，从deepseek v3模型刚刚推出时就开始使用deepseek模型。经过长时间的思考，我坚信deepseek才是中国AI的希望，有时候做出决定很难，经过许多个日夜的思考，我决定加入Deepsee**丝团。至于GLM，祝他们的开源模型一切顺利。本人从未诋毁过深度求索，也从未称呼梁总为牢梁，望周知！
+

@@ -44,3 +44,11 @@
 
 话说这2台EW动画真好看啊，五飞是OP cut，特洛华是名场面cut，剩下沙漠了，少爷要摆什么姿势<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qrlfafner  
+##### 4583#       发表于 2026-7-31 15:02
+
+5人组缺个双盾，就决定是你了少爷
+
