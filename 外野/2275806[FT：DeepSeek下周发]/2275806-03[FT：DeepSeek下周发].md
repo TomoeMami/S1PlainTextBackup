@@ -15390,3 +15390,157 @@ aa测试瞎搞的，破玩意算成本用的框架连缓存命中率都搞不定
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  onezer0618  
+##### 4380#       发表于 2026-7-31 16:14
+
+咨询下，Hermes的图片分析推荐用什么模型，其他模型用的都是deepseek，目前接的glm，但是感觉很慢很慢
+
+*****
+
+####  吴怀在  
+##### 4381#       发表于 2026-7-31 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69989467&amp;ptid=2275806" target="_blank">吴怀在 发表于 2026-7-31 07:44</a>
+GPT 降价后这可以啊，这算不算狙击 Deepseek V4</blockquote>
+没想到转头 DeepSeek 就反狙击了
+
+*****
+
+####  squallx  
+##### 4382#       发表于 2026-7-31 16:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992924&amp;ptid=2275806" target="_blank">onezer0618 发表于 2026-7-31 16:14</a>
+咨询下，Hermes的图片分析推荐用什么模型，其他模型用的都是deepseek，目前接的glm，但是感觉很慢很慢 ...</blockquote>
+我之前用豆包seed 现在用哈基米flash 都只是刚够用的水平 速度价格还行
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  momodog  
+##### 4383#       发表于 2026-7-31 16:19
+
+网页版是不是崩坏了？
+
+*****
+
+####  Geronimo  
+##### 4384#       发表于 2026-7-31 16:19
+
+史家秉笔直书：梁历以三十一号为中旬。
+
+—— 来自 HUAWEI VYG-AL30, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  chilming  
+##### 4385#       发表于 2026-7-31 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992195&amp;ptid=2275806" target="_blank">nianiania 发表于 2026-7-31 14:38</a>
+笑死，狠狠打智谱的脸，喜欢涨价
+
+—— 来自 vivo V2405A, Android 16, 鹅球 v3.5.99</blockquote>
+仿佛看见椅子爆炸，瘫坐在核弹上<img src="https://static.stage1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  当光停止  
+##### 4386#       发表于 2026-7-31 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992924&amp;ptid=2275806" target="_blank">onezer0618 发表于 2026-7-31 16:14</a>
+
+咨询下，Hermes的图片分析推荐用什么模型，其他模型用的都是deepseek，目前接的glm，但是感觉很慢很慢 ...</blockquote>
+gpt，今早上lunar刚降价百分之80，目前价格和性能都是和v4flash类似的白菜价，还有个多模态优势。
+
+
+*****
+
+####  lactone  
+##### 4387#       发表于 2026-7-31 16:20
+
+后训练真的提升这么大吗，这个尺寸打glm5.2简直神了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  ddr712  
+##### 4388#       发表于 2026-7-31 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992543&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-7-31 15:22</a>
+
+有没有大佬蹬过写文了，注意力改善的咋样</blockquote>
+用rikkahub接入ds4f正式版api写文，指令遵循能力比前几天的预览版强太多了，而且无甲，基本不需要破限提示词。
+
+*****
+
+####  zhanglei1943  
+##### 4389#       发表于 2026-7-31 16:24
+
+flash思维链好像没有let me了，跑了一个大任务，跑了21分钟一直在自己测试+修复，味儿对了
+
+*****
+
+####  蜇灵  
+##### 4390#       发表于 2026-7-31 16:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992958&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-7-31 16:20</a>
+有条件就用gpt。今早上lunar刚降价百分之80，目前价格和性能都是v4flash级别的白菜价性价比优质模型，同时 ...</blockquote>
+lunar哪里买比较便宜？
+
+另外现在一般推荐接啥IDE
+
+*****
+
+####  雨昼斯基  
+##### 4391#       发表于 2026-7-31 16:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992960&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-31 16:20</a>
+后训练真的提升这么大吗，这个尺寸打glm5.2简直神了
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-al ...</blockquote>
+glm5 系列注意力机制都是用的 dsv3 的 dsa，四舍五入 glm5.2 也是 dsv3 后训练版。
+后训练，很神奇吧。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  王兰花秀丽  
+##### 4392#       发表于 2026-7-31 16:25
+
+请教下除了酒馆还能怎么写文，我发现我基本不用rp，而是单纯的写文，角色卡那些能迁移吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  onezer0618  
+##### 4393#       发表于 2026-7-31 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992958&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-7-31 16:20</a>
+
+有条件就用gpt。今早上lunar刚降价百分之80，目前价格和性能都是v4flash级别的白菜价性价比优质模型，同时 ...</blockquote>
+哦对哦，我给忘了，我有gpt的订阅。。。
+
+*****
+
+####  cube  
+##### 4394#       发表于 2026-7-31 16:27
+
+梁子在滑向牢梁前回归梁圣。
+
+循环重置.jpg。
+
+*****
+
+####  御坂MKII  
+##### 4395#       发表于 2026-7-31 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992960&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-31 16:20</a>
+
+后训练真的提升这么大吗，这个尺寸打glm5.2简直神了
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-al ...</blockquote>
+写代码全靠后训练，而且 glm 本身也不算大
+
