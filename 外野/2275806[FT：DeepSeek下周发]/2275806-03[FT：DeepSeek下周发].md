@@ -13536,3 +13536,20 @@ pdf 甚至扫描件的 pdf 或 ocr 文件只能办<img src="https://static.stage
 我喜欢deepseek的一点就是他们真的很抗压，不情绪化<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 作为有幸之前灰测的人，我非常有信心，无非早晚的问题
 
+
+*****
+
+####  Promeus  
+##### 4190#       发表于 2026-7-31 12:30
+
+稍微测试一下，思考时间长，cot里依然大量let me和wait。svg画射箭和手柄都比现在版本的pro好一点。
+
+*****
+
+####  ycjiang1337  
+##### 4191#       发表于 2026-7-31 12:32
+
+ 本帖最后由 ycjiang1337 于 2026-7-31 12:35 编辑 
+
+OpenAI的小杯模型都是路边一条，没人用所以才降价
+
