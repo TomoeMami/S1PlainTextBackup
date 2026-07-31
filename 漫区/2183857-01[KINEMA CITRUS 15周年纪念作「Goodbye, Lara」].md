@@ -2762,3 +2762,11 @@ anime expo场刊里面表述茉里不是一个假小子，看到现在有人认�
 
 <img src="https://p.sda1.dev/34/98657a21bdb2c39b1025383019267935/1000171332.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hibike!  
+##### 233#       发表于 2026-7-31 13:31
+
+这片没什么老人味，看着真舒服<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
