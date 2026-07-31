@@ -3753,10 +3753,10 @@
     "update": false
   },
   "1368000": {
-    "totalreply": 19069,
+    "totalreply": 19070,
     "title": "[异度神剑2／Xenoblade 2公布，2017／12／01全球(官方中文版)同步发…]",
     "newtitle": "[异度神剑2／Xenoblade 2公布，2017／12／01全球(官方中文版)同步发…]",
-    "lastedit": 1785526206,
+    "lastedit": 1785535445,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17199,10 +17199,10 @@
     "update": false
   },
   "2286673": {
-    "totalreply": 81,
+    "totalreply": 82,
     "title": "[江苏也算比较发达的地区，为什么夜生活这么少？]",
     "newtitle": "[江苏也算比较发达的地区，为什么夜生活这么少？]",
-    "lastedit": 1785534964,
+    "lastedit": 1785535205,
     "category": "外野",
     "active": true,
     "update": false
@@ -17231,6 +17231,15 @@
     "newtitle": "[《电锯人》舞台剧玛奇玛将由平野绫出演]",
     "lastedit": 1785531966,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2286591": {
+    "totalreply": 41,
+    "title": "[AI 本地文生图模型部署不完全指北]",
+    "newtitle": "[AI 本地文生图模型部署不完全指北]",
+    "lastedit": 1785535205,
+    "category": "外野",
     "active": true,
     "update": false
   }
