@@ -396,3 +396,11 @@ bug有原汁原味移植吗<img src="https://static.stage1st.com/image/smiley/fa
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  KOS-MOS_Refrain  
+##### 42#       发表于 2026-7-31 19:28
+
+奥丁炮BUG会修吗？ 斯大林战车的最终形态能不能重见天日？原版改出来几个固定武器连个建模都没真的是<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

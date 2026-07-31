@@ -942,3 +942,13 @@ Screenshot_20260731_184008.jpg
 
 <img src="https://img.stage1st.com/forum/202607/31/184110rujn13m111uynec3.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  零崎不识  
+##### 1563#       发表于 2026-7-31 19:28
+
+<blockquote>巴尔干炮 发表于 2026-7-31 18:31
+这演示，凯伊你们村子是什么武德充裕的地方，还能拉村民当耗材是吧。</blockquote>
+玩家主控时流程里能招募一堆有脸角色，凯伊作为非主控时就招募了一堆大众脸呗
+

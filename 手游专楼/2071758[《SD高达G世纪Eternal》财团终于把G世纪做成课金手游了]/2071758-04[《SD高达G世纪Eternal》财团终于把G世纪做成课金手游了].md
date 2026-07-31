@@ -84,3 +84,11 @@
 
 重炮手帅炸，装逼指数超过希罗了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 4588#       发表于 2026-7-31 19:29
+
+没辙，撑死有个UR ABA
+

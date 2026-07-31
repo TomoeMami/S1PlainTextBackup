@@ -853,3 +853,11 @@ ai算法方面都不管了
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  不见不散  
+##### 4519#       发表于 2026-7-31 19:31
+
+本来想这几天学一学Claude Code或者Codex的使用的，这么一看懒得学了，等Deepseek Harness出来再学吧。
+
