@@ -1299,3 +1299,29 @@ grok生图有招儿嘛兄弟
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  囧Smith  
+##### 4561#       发表于 2026-7-31 21:29
+
+前面说的h3的消息大概是这看到的吧
+
+<img src="https://img.stage1st.com/forum/202607/31/212732qrpwou96r09zrsio.png" referrerpolicy="no-referrer">
+
+<strong>0c87a0b716cffec322e2bf0d2b308112.png</strong> (220.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 21:27 上传
+
+comfy官方说的能在3060跑，至于多缓慢就不知道了。但现在sd2体验已经这么赤石了<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">很难更差了
+
+<img src="https://img.stage1st.com/forum/202607/31/212914g7zm4abwlwft5w4x.png" referrerpolicy="no-referrer">
+
+<strong>d6cf29045074cd45dced6ea93e761cef.png</strong> (117.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 21:29 上传
+
