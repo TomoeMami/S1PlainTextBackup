@@ -72,3 +72,76 @@ cherry studio
 
 现在切到flash就是最新的了么？
 
+
+*****
+
+####  8008  
+##### 4448#       发表于 2026-7-31 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993234&amp;ptid=2275806" target="_blank">czhhws 发表于 2026-7-31 16:59</a>
+
+私了
+
+syl，上面都私信了。</blockquote>
+求个破甲词
+
+*****
+
+####  CCauchy  
+##### 4449#       发表于 2026-7-31 17:18
+
+怎么没甲！骗人
+
+
+*****
+
+####  梁日浮  
+##### 4450#       发表于 2026-7-31 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993213&amp;ptid=2275806" target="_blank">czhhws 发表于 2026-7-31 16:56</a>
+
+可以的，你用用我这个。私信发你了。
+
+—— 来自 realme RMX3700, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+求私信破甲词，好人一生平安。
+
+*****
+
+####  lactone  
+##### 4451#       发表于 2026-7-31 17:22
+
+之前大家猜pro正式版能赶上opus就不错
+
+现在flash打opus，那说明pro真的能打fable了
+
+这个价格打fable<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  czhhws  
+##### 4452#       发表于 2026-7-31 17:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">都发了
+
+—— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  不见不散  
+##### 4453#       发表于 2026-7-31 17:25
+
+我看到这帖子突然加了200多楼，就冲进来了，什么情况？
+
+*****
+
+####  天气雨  
+##### 4454#       发表于 2026-7-31 17:26
+
+以前DS就没有甲，不设防，让它说啥它说啥。
+重口猎奇它都输出。
+现在空蹬是完全不行了，必须得预设破甲了，不然撬不开它的嘴。
+
+—— 来自 Xiaomi M2102J2SC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
