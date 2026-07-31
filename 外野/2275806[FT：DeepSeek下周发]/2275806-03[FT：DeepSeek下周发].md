@@ -13049,3 +13049,15 @@ V4F的
 
 GPT 降价后这可以啊，这算不算狙击 Deepseek V4 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4142#       发表于 2026-7-31 07:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69989467&amp;ptid=2275806" target="_blank">吴怀在 发表于 2026-7-31 07:44</a>
+GPT 降价后这可以啊，这算不算狙击 Deepseek V4</blockquote>
+Sol没降，没啥意思
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
