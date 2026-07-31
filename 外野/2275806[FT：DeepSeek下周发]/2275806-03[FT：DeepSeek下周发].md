@@ -14474,3 +14474,57 @@ V4P不会是重新训练了吧，不然也不用专门说一句flash没动架构
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  高粱河车神  
+##### 4288#       发表于 2026-7-31 14:46
+
+梁圣伟大！后训练仙人无敌了
+
+*****
+
+####  蛋黄酱Release  
+##### 4289#       发表于 2026-7-31 14:49
+
+这个水平真的只激活13b吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  Awanano  
+##### 4290#       发表于 2026-7-31 14:50
+
+笑了，洋人也打，假洋人（z出）也打是吧
+
+*****
+
+####  王兰花秀丽  
+##### 4291#       发表于 2026-7-31 14:51
+
+试了下很聪明，燥候Pro了，能不能给个惊喜下周就发    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  御坂MKII  
+##### 4292#       发表于 2026-7-31 14:52
+
+flash 的 token efficiency 看起来有了非常之高的提升，这样的话确实对 pro 有了一点儿期待
+
+*****
+
+####  Awanano  
+##### 4293#       发表于 2026-7-31 14:53
+
+v4f现在这个水平，又回到了那个国外大体量AI做规划，然后DS负责快速执行的时候了
+
+*****
+
+####  dizhilan  
+##### 4294#       发表于 2026-7-31 14:56
+
+好好好，再也不用天天和小丑似地抢glm的coding plan，还tm抢不到
+
