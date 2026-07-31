@@ -15368,3 +15368,25 @@ ccswitch 在codex中切换会丢失任务，有解决方案么，切到ds之前�
 
 AA的分数显示，flash通过后训练从40分训到了50分，难以置信
 
+
+*****
+
+####  mitzvah  
+##### 4378#       发表于 2026-7-31 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992857&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-7-31 16:05</a>
+
+AA的分数显示，flash通过后训练从40分训到了50分，难以置信</blockquote>
+aa测试瞎搞的，破玩意算成本用的框架连缓存命中率都搞不定，命中率0！，算出来成本高过luna完全胡搞
+
+没有任何参考价值
+
+*****
+
+####  杀人鲸  
+##### 4379#       发表于 2026-7-31 16:11
+
+客户端有了一个小更新，有兴趣的朋友可以更新一下。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

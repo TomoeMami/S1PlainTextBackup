@@ -1131,3 +1131,25 @@ NS和NS2一个大小的话，说明NS2也不会比NS画质好？
 
 tie以前的dlc都不通用吗
 
+
+*****
+
+####  CURE_HGCG  
+##### 97#       发表于 2026-7-31 16:16
+
+<img src="https://img.stage1st.com/forum/202607/31/161548q7yxwk8mvv0iiz4x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (355.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 16:15 上传
+
+<img src="https://img.stage1st.com/forum/202607/31/161603keh7wpyzhxvvt4y6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (377.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 16:16 上传
+
