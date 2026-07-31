@@ -1373,3 +1373,41 @@ comfy官方说的能在3060跑，至于多缓慢就不知道了。但现在sd2�
 至于华为云，每天和昇腾机器搏斗就知道什么水平了，一开始是完全没想到这么多云厂商技术不如DS…… ...</blockquote>
 所以余大嘴才说生产出来的昇腾优先给客户，估计也是知道华为云自己用用不明白
 
+
+*****
+
+####  wonderful259  
+##### 4566#       发表于 2026-7-31 22:21
+
+workbuddy 是直接接的ds官方？居然不是腾讯云的吗？
+
+
+*****
+
+####  hurtwind  
+##### 4567#       发表于 2026-7-31 22:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994890&amp;ptid=2275806" target="_blank">wonderful259 发表于 2026-7-31 22:21</a>
+
+workbuddy 是直接接的ds官方？居然不是腾讯云的吗？</blockquote>
+那我用workbuddy的ds
+
+不是薅了pony的羊毛给梁子干活
+
+*****
+
+####  M乔梦  
+##### 4568#       发表于 2026-7-31 22:25
+
+有一说一，甲确实厚了不少。以前出场角色未成年都是可以写的，现在必须声明角色满18岁才能写啊，这几个破甲词对这个设定都没什么用，只能动用galgame声明大法了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 4569#       发表于 2026-7-31 22:26
+
+腾讯云自己部署的价格估计比第一方转卖还贵吧<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+梁叔叔的部署魔法才是真的神秘
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
