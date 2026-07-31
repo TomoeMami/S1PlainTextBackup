@@ -13342,3 +13342,42 @@ v4f模型小先训好了吗，还是说目前这个也不是正式版<img src="h
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  飛霞精灵  
+##### 4170#       发表于 2026-7-31 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990528&amp;ptid=2275806" target="_blank">lactone 发表于 2026-7-31 10:55</a>
+
+gpt降价后知乎已经开始大规模咩鳖了
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+不是，GLM不也是国产吗…………
+
+*****
+
+####  王兰花秀丽  
+##### 4171#       发表于 2026-7-31 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990733&amp;ptid=2275806" target="_blank">飛霞精灵 发表于 2026-7-31 11:18</a>
+不是，GLM不也是国产吗…………</blockquote>
+你看错了是GPT，但是知乎不是怎么样都能咩吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  Promeus  
+##### 4172#       发表于 2026-7-31 11:23
+
+话说回来是这个提问下只要能识别nameeee这个词就行还是要完整遵循指令把Nameeee回复出来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 4173#       发表于 2026-7-31 11:23
+
+不过这波降价确实压力大，尤其是glm5.2
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
