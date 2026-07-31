@@ -699,3 +699,67 @@ API的接口方面应该是被覆盖了，但是网页和APP上面还是原版�
 
 最急的好像是谷顺歌啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蛋黄酱Release  
+##### 4506#       发表于 2026-7-31 19:06
+
+太猛了，又强又快又便宜<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">此前舍不得用的ocg额度以后全用来蹬v4f了
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  库德里尔  
+##### 4507#       发表于 2026-7-31 19:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993581&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-7-31 17:59</a>
+你们一般是直接用codex 桌面版还是vsc插件？</blockquote>
+我一直都是cli
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  库德里尔  
+##### 4508#       发表于 2026-7-31 19:13
+
+测试了一下，用/goal做一个步步为营，中间不设任何人工引导
+
+整体开发思路还算有点道理 可惜在游戏理解上面完全不对 连开发带测试总共执行了50分钟
+
+回头试一试别的场景和方法论
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  御坂MKII  
+##### 4509#       发表于 2026-7-31 19:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993880&amp;ptid=2275806" target="_blank">库德里尔 发表于 2026-7-31 19:13</a>
+
+测试了一下，用/goal做一个步步为营，中间不设任何人工引导
+
+整体开发思路还算有点道理 可惜在游戏理解上面 ...</blockquote>
+毕竟小模型，glm 也是稍微偏离主流一点的项目就会很明显的体现出来 taste 的缺点
+
+*****
+
+####  王兰花秀丽  
+##### 4510#       发表于 2026-7-31 19:15
+
+ocg现在是
+正式版了吗，那我得入一个了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  舞以  
+##### 4511#       发表于 2026-7-31 19:15
+
+v4f感觉又拉高了我对v4p正式版的期待<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
