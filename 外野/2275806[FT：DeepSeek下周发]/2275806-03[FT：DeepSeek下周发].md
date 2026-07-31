@@ -13502,3 +13502,37 @@ pdf 甚至扫描件的 pdf 或 ocr 文件只能办<img src="https://static.stage
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  lowezack  
+##### 4186#       发表于 2026-7-31 12:19
+
+国内现在模型更新速度跟不上，只能是缺卡吧
+
+*****
+
+####  lactone  
+##### 4187#       发表于 2026-7-31 12:20
+
+我其实有点担心，gpt这么一弄，国内缺卡的基础上降价空间还有多少
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  holylight2020  
+##### 4188#       发表于 2026-7-31 12:20
+
+大家有推荐的coding agent吗？cc最近老出问题。有没有人试过trae的？好像这个也不错？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cscbzcbz  
+##### 4189#       发表于 2026-7-31 12:21
+
+我喜欢deepseek的一点就是他们真的很抗压，不情绪化<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+作为有幸之前灰测的人，我非常有信心，无非早晚的问题
+
