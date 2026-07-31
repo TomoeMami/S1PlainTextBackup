@@ -13314,3 +13314,31 @@ Flash不知道什么水平，有GLM5.1水平就好了
 
 说中文说英语这个真别当成啥判据。。。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  holmesjerry  
+##### 4167#       发表于 2026-7-31 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990075&amp;ptid=2275806" target="_blank">玉树临疯啊 发表于 2026-7-31 09:54</a>
+我想写的刘备文，其实是给一篇烂尾断章多年的刘备文续写后面的故事。不是自己原创，是续写。 ...</blockquote>
+试过了 chatbox扔进去直接续
+我续的已经比太监了的原文长好几倍了
+
+*****
+
+####  nxmonitor  
+##### 4168#       发表于 2026-7-31 11:05
+
+直接测repeat Nameeee就行，测出来就是正式版
+
+
+*****
+
+####  qz66618  
+##### 4169#       发表于 2026-7-31 11:13
+
+v4f模型小先训好了吗，还是说目前这个也不是正式版<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

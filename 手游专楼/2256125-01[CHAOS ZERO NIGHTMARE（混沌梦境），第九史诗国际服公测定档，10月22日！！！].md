@@ -83,3 +83,25 @@
 夹击触发器谁比得过市长啊<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 新赛季中立卡和中立体系真的一眼没活
 
+
+*****
+
+####  windaria  
+##### 1165#       发表于 2026-7-30 23:16
+
+新的登陆界面和音乐不错啊
+
+*****
+
+####  christiny  
+##### 1166#       发表于 2026-7-31 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69984848&amp;ptid=2256125" target="_blank">伊布桑 发表于 2026-7-30 13:00</a>
+
+夹击触发器谁比得过市长啊
+
+新赛季中立卡和中立体系真的一眼没活</blockquote>
+就是带增伤辅助的小市长，每回合最大16发。
+
+另外可以复制4张抽2，当辅助玩，属于鼠鼠的上位。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
