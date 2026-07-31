@@ -5893,3 +5893,35 @@ epd5真的要么扩张要么拆分成喷喷组和动森组吧，一个组负责�
 
 现有的boss战肯定是最值得拓展的，每次更新加一两个新boss，几种小怪，每个背包多一个配件，几把新武器
 
+
+*****
+
+####  freedom12  
+##### 735#       发表于 2026-7-31 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990901&amp;ptid=2253488" target="_blank">caps洛奇 发表于 2026-7-31 11:35</a>
+
+这作卖得很不错了吧 有望成独立系列？可惜这一作底子上很难再持续运营了，现在就一个塔
+
+幻想一下如果续作 ...</blockquote>
+最该把本体大型鲑鱼跑的3个大boss加进来
+
+*****
+
+####  a3a4sc  
+##### 736#       发表于 2026-7-31 11:55
+
+分享个日本人分享暗号招募多人的专楼：
+マルチ募集・あいことば掲示板【スプラトゥーン レイダース】
+[https://game8.jp/splatoon-raiders/800280](https://game8.jp/splatoon-raiders/800280)
+
+*****
+
+####  freedom12  
+##### 737#       发表于 2026-7-31 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69990681&amp;ptid=2253488" target="_blank">Dedalus 发表于 2026-7-31 11:11</a>
+
+有人集齐了全部120把武器吗？我目前117看图鉴也没看出来缺什么</blockquote>
+武器图鉴那里 看背景颜色 同种武器6个一组（3个变体*普通/绝品），很容易查缺
+
