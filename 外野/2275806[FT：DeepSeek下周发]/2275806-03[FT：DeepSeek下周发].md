@@ -13473,3 +13473,22 @@ Cot能认出Nameeee但是会考虑是不是打错了<img src="https://static.sta
 Cot能认出Nameeee但是会考虑是不是打错了</blockquote>
 那就是识别成功了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  →熙←  
+##### 4183#       发表于 2026-7-31 11:48
+
+今天能上吗,不然又到下一周了
+
+*****
+
+####  chaoliu  
+##### 4184#       发表于 2026-7-31 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69987627&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-7-30 21:05</a>
+知识库很简单，配置硅基流动的两个免费模型--嵌入 重排序
+
+然后你问某个网页版免费的：我要设定一个****， ...</blockquote>
+pdf 甚至扫描件的 pdf 或 ocr 文件只能办<img src="https://static.stage1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
+
