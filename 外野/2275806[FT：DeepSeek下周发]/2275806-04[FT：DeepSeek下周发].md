@@ -909,3 +909,104 @@ ai算法方面都不管了
 延期半个月，“月初”的pro ga到底会是什么水平，能让川宝下决心建墙吗</blockquote>
 真有灰测水平，美国公司全体自己部署了，更不能制裁了
 
+
+*****
+
+####  冤枉呐  
+##### 4525#       发表于 2026-7-31 20:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993331&amp;ptid=2275806" target="_blank">无尽的牙刷 发表于 2026-7-31 17:13</a>
+一直不太明白，用知识库提供背景跟把背景直接写到提示词里是一样的吗</blockquote>
+知识库会把文件切片，每一次你输入模型，模型就会把你输入的话拿去搜索知识库，搜索是自然语义的，同义词，翻译之类的都算
+然后根据匹配度返回几个结果，模型一般根据一个匹配度阈值，把超过阈值的回复一起输入模型，然后再思考
+你的提示词里面是每次全量输入的。我打个比方你写个dnd小说，所有法术不能都写进去吧？
+酒馆的lorebook是严格匹配，你输入和他关键词必须100%对上。
+酒馆现在也有知识库了
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Promeus  
+##### 4526#       发表于 2026-7-31 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994196&amp;ptid=2275806" target="_blank">千秋难诉 发表于 2026-7-31 20:16</a>
+延期半个月，“月初”的pro ga到底会是什么水平，能让川宝下决心建墙吗</blockquote>
+参考灰度版本，加上harness干掉fable可能性不低
+
+*****
+
+####  无尽的牙刷  
+##### 4527#       发表于 2026-7-31 20:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994230&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-7-31 20:22</a>
+
+文？图？还是视频？
+
+—— 来自 S1Fun</blockquote>
+视频，说是8月3号开源
+
+*****
+
+####  char1st  
+##### 4528#       发表于 2026-7-31 20:28
+
+做个"ASCII 可视化"——把截图降采样成字符画，直接"看"到物体形状。 来个多模态吧，看把孩子逼得。
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4529#       发表于 2026-7-31 20:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994253&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-7-31 20:26</a>
+参考灰度版本，加上harness干掉fable可能性不低</blockquote>
+真有灰测水平，那就是椅子瘫在奥特曼身上看着达里奥凌空爆炸了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  王兰花秀丽  
+##### 4530#       发表于 2026-7-31 20:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994269&amp;ptid=2275806" target="_blank">char1st 发表于 2026-7-31 20:28</a>
+做个"ASCII 可视化"——把截图降采样成字符画，直接"看"到物体形状。 来个多模态吧，看把孩子逼得。 ...</blockquote>
+笑死我也遇到了，我怀疑这是harness相关的功能    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  不见不散  
+##### 4531#       发表于 2026-7-31 20:30
+
+跑代码不直观，就用前段时间流行的鹈鹕蹬车测试一下好了，
+
+这是v4 pro做的：
+
+<img src="https://img.stage1st.com/forum/202607/31/202938jc0ap2d08h882rm7.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260731_174711_me_rerere_rikkahub_RouteActivity.png</strong> (122.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 20:29 上传
+
+这是flash做的：
+
+<img src="https://img.stage1st.com/forum/202607/31/202938sjztlzm6nck7l8l6.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260731_175459_me_rerere_rikkahub_RouteActivity.png</strong> (84.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 20:29 上传
+
+flash正式版已经完爆pro了
+
+*****
+
+####  一般市民  
+##### 4532#       发表于 2026-7-31 20:32
+
+其实网页上的那个识图模式对图片的分析理解感觉不错的，只是规模太小知识不足。弄成个工具给flash和pro调用的话，总比瞎眼强吧？
+
