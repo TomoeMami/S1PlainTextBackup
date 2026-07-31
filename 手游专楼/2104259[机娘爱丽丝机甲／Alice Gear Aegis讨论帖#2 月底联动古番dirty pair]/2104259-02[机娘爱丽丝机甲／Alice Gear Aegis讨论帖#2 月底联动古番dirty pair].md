@@ -91,3 +91,16 @@ FY16 YHA3 TL6W GFTK
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">BU奈叶出了，联动齐了一高兴去vsbr池子下了两发结果神婆喜加一
 
+
+*****
+
+####  madcow  
+##### 2076#       发表于 2026-7-31 08:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69987080&amp;ptid=2104259" target="_blank">wilkyway 发表于 2026-7-30 19:34</a>
+
+正常数值吧 强在模组好 范围大发生快没有乱七八糟的机制ta之类的可以从道中就一路砍过去
+
+不如说京姐自己 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啊确实强，因为原来就做过一把结果拿错了
+
