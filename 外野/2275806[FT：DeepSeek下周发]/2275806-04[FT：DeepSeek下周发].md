@@ -1653,3 +1653,45 @@ reasonix的这个界面看着真的解压<img src="https://static.stage1st.com/i
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  crow_wine  
+##### 4592#       发表于 2026-8-1 00:56
+
+这个月没冲gpt，一直在用国内的模型做算法。心血来潮用免费的gpt5.6 terra xhight分一下，结果他的分析错了大半。
+都说gpt数学很强，可能terra代表不了什么，但是确实一下子去魅了，估计不会再充gpt了。
+而且之前gpt会员还在用sol的时候就发现了，你让他审查算法，他永远能给你抓字眼找一堆p0p1p2p3出来吓唬你，写错一个字就像犯了天条一样，但是实际很多并没有说得那么严重。
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  不见不散  
+##### 4593#       发表于 2026-8-1 01:04
+
+据我观察，年龄限制很好破，非自愿也很好破，难的是年龄+非自愿，我目前还没找到能破的词，谁有可以私我一下……
+
+*****
+
+####  crow_wine  
+##### 4594#       发表于 2026-8-1 01:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69995503&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-1 00:56</a>
+这个月没冲gpt，一直在用国内的模型做算法。心血来潮用免费的gpt5.6 terra xhight分一下，结果他的分析错了 ...</blockquote>
+gpt的毛病，喜欢把设计里面未一一列举所有简单的情况当成作者认为这些情况不存在然后开始大书特书东西有问题。
+简单来说，你个它说“2+2=4，4+4=8”，然后它回你一句你没说“1+1=2所以你这个东西有严重漏洞”<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+然后他还嘴硬，等你让它分析完再和它battle完让它认错了，已经花了一个小时和好多额度了。然后它下一次再犯。因为它好像一定要给你找点p0错误出来<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  ArthurDent  
+##### 4595#       发表于 2026-8-1 01:07
+
+楼上发的那个roll了十回成了一次<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，年龄和强迫卡得死死的
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
