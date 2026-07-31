@@ -1787,3 +1787,14 @@ opencode，体验不比glm差。中文思维链很爽。
 —— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99</blockquote>
 完全是出于研究与学习破甲词的目的，我对这种题材本身没什么兴趣。
 
+
+*****
+
+####  squallx  
+##### 4604#       发表于 2026-8-1 03:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69995586&amp;ptid=2275806" target="_blank">jyj256 发表于 2026-8-1 01:56</a>
+
+类脑最新的梦鲸思客预设倒是都能破 我看了一下里面破甲提示词很简单 就是不知道在酒馆外用能不能生效 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">类脑还能加吗 邀请链接显示关闭
+
