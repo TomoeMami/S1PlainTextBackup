@@ -1798,3 +1798,19 @@ opencode，体验不比glm差。中文思维链很爽。
 类脑最新的梦鲸思客预设倒是都能破 我看了一下里面破甲提示词很简单 就是不知道在酒馆外用能不能生效 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">类脑还能加吗 邀请链接显示关闭
 
+
+*****
+
+####  nekkihs2  
+##### 4605#       发表于 2026-8-1 03:24
+
+<img src="https://img.stage1st.com/forum/202607/31/152413foppqq6kxd4ddxjq.jpg" referrerpolicy="no-referrer">
+
+<strong>e58cc540323fb145e386274a12a1d1d6aea2f004.jpg</strong> (130.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 03:24 上传
+
+【\😭/【你从广东来】v4flash正式版，梁圣的恩情还不完】 [https://www.bilibili.com/video/B ... 982e90874d6747e4e59](https://www.bilibili.com/video/BV1XugY6rEn9/?share_source=copy_web&amp;vd_source=c07d101913fe4982e90874d6747e4e59)
+
