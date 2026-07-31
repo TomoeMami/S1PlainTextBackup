@@ -34,3 +34,11 @@
 试试检查完整性，我每次隔一阵打开装甲核心6也是类似情况，每次都要再检查一次完整性。 ...</blockquote>
 我后来验证了完整性、更新了驱动也不行，然后重启莫名其妙就好了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  达达葱2  
+##### 682#       发表于 2026-7-31 08:58
+
+鬼武者战略版能不能再出新的
+
