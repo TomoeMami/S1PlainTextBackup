@@ -1440,3 +1440,48 @@ workbuddy 是直接接的ds官方？居然不是腾讯云的吗？</blockquote>
 workbuddy 是直接接的ds官方？居然不是腾讯云的吗？</blockquote>
 上次deepseek服务炸了，workbuddy的同步炸了…
 
+
+*****
+
+####  龙骑士尹志平  
+##### 4573#       发表于 2026-7-31 22:34
+
+手机远程连接pc的codex opencode claudecode来vibe coding，有什么好点的方案，最好能够开一个浏览器页面来验证结果，代理吗？
+
+*****
+
+####  eaglu  
+##### 4574#       发表于 2026-7-31 22:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994958&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-7-31 22:34</a>
+ 手机远程连接pc的codex opencode claudecode来vibe coding，有什么好点的方案，最好能够开一个浏览器页面来 ...</blockquote>
+paseo吧
+
+*****
+
+####  nnknnk  
+##### 4575#       发表于 2026-7-31 22:37
+
+折腾了一下提示词，后训练flash的甲还是挺好破的，不过得roll。
+
+其实可以先让preview写一段（e.g. siliconflow的api）然后让0731接着写（虽然你当面告诉他我犯法了你知道吗0731还是会反应过来然后不给你你输出东西）
+
+总之已经快进到被0731送进去蹲赛博号子了
+<img src="https://chat.moonchan.xyz/api/local/1785508358/image.webp" referrerpolicy="no-referrer">
+[不知道能不能放，总之比preview会写那么一点点](https://chat.moonchan.xyz/api/local/1785508481/image.webp)
+
+
+*****
+
+####  phorcys02  
+##### 4576#       发表于 2026-7-31 22:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994958&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-7-31 22:34</a>
+
+手机远程连接pc的codex opencode claudecode来vibe coding，有什么好点的方案，最好能够开一个浏览器页面来 ...</blockquote>
+tmux +  手机Termux
+
+只需要打一个ssh的洞.
+
+另外手机上也可以Termux里 pi coding agent + dsv4 flash, 非常强大:D
+
