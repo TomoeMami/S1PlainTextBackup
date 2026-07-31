@@ -1695,3 +1695,13 @@ gpt的毛病，喜欢把设计里面未一一列举所有简单的情况当成�
 
 —— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  serj005  
+##### 4596#       发表于 2026-8-1 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69995390&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-1 00:19</a>
+测了好几个harness，结果竟然是PI效果更好，不理解这个情况怎么发生的……</blockquote>
+本质是其他agent提示词写得烂，或者某些提示词不适合ds，而pi的初始提示词是所有agent里最少的，没有各种上下文污染，能最大程度体现出模型自身的能力，让模型更多以一种类似直觉的形式执行任务。本身能力越强的模型用pi的效果越好。
+
