@@ -15267,3 +15267,104 @@ v3初版-v3 0324-v3.1-v3.2，希望v4pga至少有两个阶段的提升
 
 V4 flash网页版感觉超级聪明啊，可以做各种充满脑洞的工作了
 
+
+*****
+
+####  nxmonitor  
+##### 4369#       发表于 2026-7-31 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992761&amp;ptid=2275806" target="_blank">酱狐狸 发表于 2026-7-31 15:52</a>
+
+8月初真的能把pro吐出来吗牢梁</blockquote>
+模型基本已经是好了，除非灰测停的这几天继续后训练
+
+*****
+
+####  高粱河车神  
+##### 4370#       发表于 2026-7-31 15:58
+
+<blockquote>novem 发表于 2026-7-31 15:57
+V4 flash网页版感觉超级聪明啊，可以做各种充满脑洞的工作了</blockquote>
+网页版更新了吗？
+
+*****
+
+####  tillnight  
+##### 4371#       发表于 2026-7-31 15:59
+
+<blockquote>novem 发表于 2026-7-31 15:57
+V4 flash网页版感觉超级聪明啊，可以做各种充满脑洞的工作了</blockquote>
+公告说的是只更新了api
+
+*****
+
+####  奶香花卷  
+##### 4372#       发表于 2026-7-31 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992760&amp;ptid=2275806" target="_blank">毒品 发表于 2026-7-31 15:52</a>
+
+ccswitch 在codex中切换会丢失任务，有解决方案么，切到ds之前的对话看不到，切回来可以
+
+ ...</blockquote>
+官方文档教程用codex是用官方脚本，你试试用脚本不要用ccswitch
+
+*****
+
+####  onezer0618  
+##### 4373#       发表于 2026-7-31 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69992760&amp;ptid=2275806" target="_blank">毒品 发表于 2026-7-31 15:52</a>
+
+ccswitch 在codex中切换会丢失任务，有解决方案么，切到ds之前的对话看不到，切回来可以
+
+ ...</blockquote>
+官方教程用的脚本也会丢任务，而且界面变了
+
+*****
+
+####  onezer0618  
+##### 4374#       发表于 2026-7-31 16:03
+
+<img src="https://img.stage1st.com/forum/202607/31/160248d2zdb21zf3ard4ig.png" referrerpolicy="no-referrer">
+
+<strong>8ddee1e9d4cdf8dde59aa678bbad0e8e.png</strong> (59.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 16:02 上传
+
+8ddee1e9d4cdf8dde59aa678bbad0e8e.png
+(59.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-7-31 16:03 上传
+
+<img src="https://img.stage1st.com/forum/202607/31/160303k0pb00gfgd1cdnnh.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wesdrtfg  
+##### 4375#       发表于 2026-7-31 16:03
+
+官网上的口径是public beta，那感觉这次可能还不是正式版，先丢个性价比高的让大家蹬一会收集下数据？
+
+
+*****
+
+####  novem  
+##### 4376#       发表于 2026-7-31 16:05
+
+<blockquote>高粱河车神 发表于 2026-7-31 15:58
+网页版更新了吗？</blockquote>
+说自己知识库是26年5月，应该更新了吧
+
+关键是智商突飞猛进啊
+
+*****
+
+####  nxmonitor  
+##### 4377#       发表于 2026-7-31 16:05
+
+AA的分数显示，flash通过后训练从40分训到了50分，难以置信
+
