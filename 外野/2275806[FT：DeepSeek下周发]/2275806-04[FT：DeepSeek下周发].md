@@ -1827,3 +1827,22 @@ opencode，体验不比glm差。中文思维链很爽。
 难道是破甲提示词的原因？</blockquote>
 和上个版本完全一样……毫无保留就输出了。你们以前都什么提示词在破甲啊？
 
+
+*****
+
+####  zmw_831110  
+##### 4607#       发表于 2026-8-1 08:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994679&amp;ptid=2275806" target="_blank">千秋难诉 发表于 2026-7-31 21:42</a>
+梁圣这下也和那位大人一样，享受到正义之颚（Lantern Jaw of Justice）的欧美meme待遇了
+
+ ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/01/080953v6occuqo36inbcc7.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1785542991220_1.webp</strong> (392.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 08:09 上传
+
