@@ -2379,3 +2379,13 @@ oc+trellis也是 一轮接一轮check 还特别长 不过效果还行
 真正写代码也就1/4的时间, 后面大部分时间都是在审查和测试,一 ...</blockquote>
 superpowers用啥模型都浪费token
 
+
+*****
+
+####  lactone  
+##### 4655#       发表于 2026-8-1 12:36
+
+你们怎么都说写文有问题，我昨天和他对话社会科学问题，感觉比pro强得多
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
