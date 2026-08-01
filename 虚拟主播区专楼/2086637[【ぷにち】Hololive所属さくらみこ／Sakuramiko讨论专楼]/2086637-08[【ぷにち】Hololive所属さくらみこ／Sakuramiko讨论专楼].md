@@ -211,3 +211,32 @@ GTA2今年要来了？？？？？？？？？？？？？？
 
 另外这比一晚上没睡啊，凌晨3点发MV，6点发推特，这是真的忙了整整一彻夜也难怪昨晚不直播
 
+
+*****
+
+####  holofan  
+##### 11671#       发表于 2026-8-1 10:27
+
+这个手办厂跑路了吧，卖的死贵，收了上亿的定金，今年过了半年多holo的手办一个都没做出来，全部延期了
+
+<img src="https://img.stage1st.com/forum/202608/01/102731z4tphnsicmzexi6m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 10:27 上传
+
+*****
+
+####  holofan  
+##### 11672#       发表于 2026-8-1 11:11
+
+<img src="https://img.stage1st.com/forum/202608/01/111131tg0fb0fjef51vhvr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 11:11 上传
+
