@@ -2765,3 +2765,21 @@ cherrystudio</blockquote>
 
 以后的ds可能是按需要升级的模式而不是小模型只打杂的模式。
 
+
+*****
+
+####  阿刚  
+##### 4691#       发表于 2026-8-1 18:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997654&amp;ptid=2275806" target="_blank">masonknight 发表于 2026-8-1 17:41</a>
+
+有没有在Hermes上用flash正式版的大佬？说说效果如何？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">有明显提升，我主要拿来写文的，不过之前试过一句话编游戏，让pro弄个洛克人，基本上连正常流程都做不完，那天用flash做的很完整，小怪，跳跃，中boss全能正常运转
+
+*****
+
+####  StarForceTi  
+##### 4692#       发表于 2026-8-1 18:44
+
+逻辑上来说 agent能力强了，写文的逻辑能力和遗忘都会好很多
+
