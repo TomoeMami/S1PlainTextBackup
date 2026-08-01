@@ -100,3 +100,15 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">3000稳了吧，要人气有人气，要数值有数值
 
+
+*****
+
+####  无念  
+##### 4590#       发表于 2026-8-1 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69991047&amp;ptid=2071758" target="_blank">plok201 发表于 2026-7-31 11:56</a>
+活动问题不就体力卡的太奇怪么，一般手游是第一天你肯花体力就全通，但是全收集要每天上线可能要买体力，或 ...</blockquote>
+少爷当然是身后都是人pose<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -2048,3 +2048,26 @@ qwen3.8也开始大降价，90-98%的折扣，搞不好明天再来一家加入�
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nxmonitor  
+##### 4624#       发表于 2026-8-1 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996196&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-1 10:16</a>
+
+这个laguna.xs2 我试过会思维死循环 我以前只在高量化的qwen2或dsr1distillqwen见过。。。
+
+导致我现在对 ...</blockquote>
+所以我觉得就是从Pro的语料拿来后训练的Flash，更多的能力内化思考被忽略了才会这样……
+
+*****
+
+####  秦南心  
+##### 4625#       发表于 2026-8-1 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996186&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-1 10:13</a>
+
+竞技场盲测代码现在是这个位置的，至于性价比就不说了，还看到两个DGX本地部署比API强的说法，测下来实际 ...</blockquote>
+首轮问询思考链很长，后续很短
+
