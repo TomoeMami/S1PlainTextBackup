@@ -2470,3 +2470,13 @@ pro快来吧, flash反复调试消耗的token很多
 
 先把harness拿出来吧，现在flash在哪个里面都膈应，codex和opencode有时候会一团糟，PI的skill又太简单了
 
+
+*****
+
+####  lowezack  
+##### 4664#       发表于 2026-8-1 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=69995438&amp;amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-1 00:33</a>
+reasonix的这个界面看着真的解压</blockquote>
+这种缓存命中率不是正常的工作流程啊，要不然就是工具效率调用太低，不是啥好事，也未必省钱。
+

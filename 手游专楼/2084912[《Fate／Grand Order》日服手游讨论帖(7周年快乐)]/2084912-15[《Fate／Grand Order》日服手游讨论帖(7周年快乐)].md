@@ -93,3 +93,24 @@
 
 日服的活动本一点开就卡死，有坛友遇到一样的bug吗
 
+
+*****
+
+####  alucardcz  
+##### 21069#       发表于 2026-8-1 14:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997018&amp;ptid=2084912" target="_blank">日蚀之阳 发表于 2026-8-1 13:58</a>
+
+日服的活动本一点开就卡死，有坛友遇到一样的bug吗</blockquote>
+并不是卡死 是要下一张图片  等几分钟或者开梯子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  日蚀之阳  
+##### 21070#       发表于 2026-8-1 14:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997018&amp;ptid=2084912" target="_blank">日蚀之阳 发表于 2026-8-1 13:58</a>
+
+日服的活动本一点开就卡死，有坛友遇到一样的bug吗</blockquote>
+后台放置了十几分钟。加载出来了。<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
