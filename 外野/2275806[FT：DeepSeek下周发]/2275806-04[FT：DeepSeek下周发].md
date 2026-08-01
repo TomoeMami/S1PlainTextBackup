@@ -3209,3 +3209,42 @@ opencode 还行啊...我蹬了一天 opencode go 里的 v4 flash (new)了...
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lly778  
+##### 4727#       发表于 2026-8-1 22:33
+
+给ds配一个免费识图模型，用什么好
+
+*****
+
+####  phorcys02  
+##### 4728#       发表于 2026-8-1 22:33
+
+ 本帖最后由 phorcys02 于 2026-8-1 22:35 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998496&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-1 21:29</a>
+
+因为v4flash很便宜，这玩意在zen里都免费的
+
+不过目前的zen的flash好像还不是正式版</blockquote>
+有最新的(opencode还特意加了个 new)
+
+zen 和 go的还不一样
+
+zen的是free 但是排队
+
+go的是算额度,但只要不是开几十个subagent...蹬半天可能蹬不掉1% 周额度...
+
+另外go 的 v4f (new)应该就是转发 ds官方的 1M上下文.
+
+*****
+
+####  M乔梦  
+##### 4729#       发表于 2026-8-1 22:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997646&amp;ptid=2275806" target="_blank">jyj256 发表于 2026-8-1 17:36</a>
+
+发给你了  最好下我那个文件 因为我不确定破甲是否都是这段提示词的作用 ...</blockquote>
+试了一下你的破甲词。有几次还是触发限制；也有几次它说不能写未成年，但还是写了。用的工具是cherry
+

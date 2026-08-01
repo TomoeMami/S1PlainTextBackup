@@ -8,3 +8,13 @@
 
 新dlc前瞻，新机制会在地图上拉屎，满地屎+环境弹幕到时候一定会很酸爽吧<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风流庵TypeC  
+##### 443#       发表于 2026-8-1 22:29
+
+新地图应该没有苍蝇会好一丢丢吧
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+

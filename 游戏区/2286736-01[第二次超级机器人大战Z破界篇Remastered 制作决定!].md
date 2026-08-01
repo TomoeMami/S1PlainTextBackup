@@ -438,3 +438,11 @@ Remastered 跟 Remastered也有不同
 不是说是y的引擎和ui吗</blockquote>
 那只能指望代便稍微有点良心了
 
+
+*****
+
+####  naclken.  
+##### 52#       发表于 2026-8-1 22:32
+
+想要赚钱，那就上steam+多国语言，版权作尤其是Z系列还是很馋人的。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
