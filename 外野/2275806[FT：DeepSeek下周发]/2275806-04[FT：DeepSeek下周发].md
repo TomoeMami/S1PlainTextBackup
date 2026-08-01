@@ -2649,3 +2649,13 @@ cherrystudio</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  舞以  
+##### 4680#       发表于 2026-8-1 16:24
+
+还一种可能是现在pro没更新，快速模式比专家模式更聪明的话挺难绷的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
