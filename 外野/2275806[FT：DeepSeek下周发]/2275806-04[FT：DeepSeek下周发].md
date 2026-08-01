@@ -3523,3 +3523,14 @@ opencode go值得买么，还是充官方API更实惠啊。如果都用完的情
 opencode go值得买么，还是充官方API更实惠啊。如果都用完的情况下是不是go更适合，大概用百分之多少就是官 ...</blockquote>
 只用flash，opencode首月相当于5美元买官方60美元额度，这还用选吗
 
+
+*****
+
+####  squallx  
+##### 4751#       发表于 2026-8-2 04:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69999636&amp;ptid=2275806" target="_blank">M乔梦 发表于 2026-8-2 02:50</a>
+
+我用的硅基流动的，最早是因为有代金卷，结果这b代金券居然还有时限，但是也懒得移窝了 ...</blockquote>
+用的什么模型？
+

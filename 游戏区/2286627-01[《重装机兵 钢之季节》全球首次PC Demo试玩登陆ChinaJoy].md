@@ -522,3 +522,18 @@ bug有原汁原味移植吗<img src="https://static.stage1st.com/image/smiley/fa
 真就原汁原味<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 你太老了，回去吧
 
+
+*****
+
+####  syndrome2032  
+##### 52#       发表于 2026-8-2 04:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69999425&amp;ptid=2286627" target="_blank">topia 发表于 2026-8-2 01:01</a>
+真就原汁原味
+你太老了，回去吧</blockquote>
+应该是用3和2r那套战斗重置了钢季原版的战斗吧。
+
+但是看战斗里战车界面的图标，5个小绿格子应该是5个武器，三个大绿应该是底盘 引擎 c装置的耐久。感觉战车的数据还是ds原版那套耐久度代替sp的设计。
+
+原版那个设计我倒也能接受，就是能不能把电击属性直接大破底盘的概率调低点<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
