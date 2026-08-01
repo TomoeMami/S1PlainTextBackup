@@ -537,3 +537,11 @@ bug有原汁原味移植吗<img src="https://static.stage1st.com/image/smiley/fa
 
 原版那个设计我倒也能接受，就是能不能把电击属性直接大破底盘的概率调低点<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  缺德猫  
+##### 53#       发表于 2026-8-2 07:12
+
+3 2R 4那套东西玩起来真挺爽的，啥时候把这三部丢steam上啊
+
