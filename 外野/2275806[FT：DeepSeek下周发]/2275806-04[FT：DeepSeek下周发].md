@@ -2488,3 +2488,13 @@ reasonix的这个界面看着真的解压</blockquote>
 
 WebSearch是个正经agent都有的tool（好吧Pi没有要自己扩展），不要纠结网页版联不联网啦<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 4666#       发表于 2026-8-1 14:36
+
+我感觉这个最强的地方是debug能力<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
