@@ -98,3 +98,11 @@ mujica完全新作剧场版要来力
 <img src="https://p.sda1.dev/34/bd452d02d0b35a90bc714916c7ef3465/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/34/d6af4ac0991cfbe49740aafa05d55fd8/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  asikies  
+##### 27638#       发表于 2026-8-1 08:31
+
+香港会同步上映吗？
+
