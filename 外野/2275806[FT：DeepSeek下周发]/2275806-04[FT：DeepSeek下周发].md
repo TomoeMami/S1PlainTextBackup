@@ -3010,3 +3010,13 @@ DS不是有招聘情感智能数据产品经理么，快点发力啊
 
 至于其他的V4f正式版才几天，登别人磨合好你再学着配也行。
 
+
+*****
+
+####  goranger  
+##### 4714#       发表于 2026-8-1 20:40
+
+实际上DeepSeek官方文档一直专门写了怎么适配主流agent，并不是这次才强兼codex
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
