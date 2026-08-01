@@ -1579,3 +1579,14 @@ BGO的程序员是不是应该祭天了
 
 1500石才五宝<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 48026#       发表于 2026-8-2 02:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69999168&amp;ptid=1712412" target="_blank">doublehit 发表于 2026-8-1 23:43</a>
+
+抱着试试的心态两个十连终于捞到了奥伯龙，双奥伯龙配个二宝月批一锤子300万也太爽了 ...</blockquote>
+点好树，诺克娜蕾+奥伯龙，用极地服满配所长打风所长也是300多W<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
