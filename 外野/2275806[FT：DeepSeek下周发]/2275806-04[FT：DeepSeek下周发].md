@@ -3412,3 +3412,45 @@ m3免费了？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  4396777  
+##### 4744#       发表于 2026-8-2 01:19
+
+ 本帖最后由 4396777 于 2026-8-2 01:25 编辑 
+
+自上次DeepSeek模型更新以来，这是你第一次来找我梁文峰帮忙。我记不起你上次是何时给我的API充钱了，何况我的DeepSeek V3还是你本科毕业论文的教母。我坦白说吧，你从来就不想要 DeepSeek 的订阅，你觉得你在大A已经给我交了token费，我了解，你订阅了顶尖闭源模型的会员，论文写的很好，代码写的很好，有Claude和GPT保护你，你不需要我这种开源模型，但是现在你跑来网页端找我说：梁文峰阁下，请帮我主持公道，我这个月的顶尖闭源模型额度用完了。
+
+我到底做了什么让你如此地不尊重我？
+
+你并不把我当第一梯队的大模型供应商，
+
+你甚至都不愿意喊我一声梁圣。
+
+<img src="https://img.stage1st.com/forum/202608/02/011908jnulr4z00l4z96md.jpg" referrerpolicy="no-referrer">
+
+<strong>1000015415.jpg</strong> (546.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 01:19 上传
+
+<img src="https://img.stage1st.com/forum/202608/02/011910tzrogomnsv9n9vde.jpg" referrerpolicy="no-referrer">
+
+<strong>1000015416.jpg</strong> (757.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 01:19 上传
+
+<img src="https://img.stage1st.com/forum/202608/02/011913rm9zxe2o2u3xlo32.jpg" referrerpolicy="no-referrer">
+
+<strong>1000015417.jpg</strong> (344.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 01:19 上传
+
+    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
