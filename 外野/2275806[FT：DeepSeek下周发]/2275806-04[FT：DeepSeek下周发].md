@@ -2594,3 +2594,27 @@ WebSearch是个正经agent都有的tool（好吧Pi没有要自己扩展），不
 
 但是这次flash更新也是打破了惯例<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pure_liquid  
+##### 4675#       发表于 2026-8-1 15:46
+
+<blockquote>nxmonitor 发表于 2026-8-1 13:57
+先把harness拿出来吧，现在flash在哪个里面都膈应，codex和opencode有时候会一团糟，PI的skill又太简单了 ...</blockquote>
+flash在codex下会有什么问题，可以具体说说吗？
+
+
+*****
+
+####  pure_liquid  
+##### 4676#       发表于 2026-8-1 15:55
+
+<blockquote>舞以 发表于 2026-8-1 01:29
+cherrystudio</blockquote>
+我隐约记得版区里好像过去有坛友提到过CherryStudio接DS的一个问题
+
+大意是使用CherryStudio的话需要自己写一些其他常见工具默认提供的底层提示词
+
+不知道现在CherryStudio是否还有这类问题？
+
