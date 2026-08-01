@@ -6425,3 +6425,17 @@ https://gamewith.jp/splatoon-raiders/569753
 
 比起暗黑我觉得更有无双的感觉，割草的正反馈还是强
 
+
+*****
+
+####  martinoy  
+##### 788#       发表于 2026-8-2 05:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997874&amp;ptid=2253488" target="_blank">绿冰 发表于 2026-8-1 19:00</a>
+感觉同等级的极辣，比无限食堂还难
+
+—— 来自 realme RMX5060, Android 16, 鹅球 v3.5.99 ...</blockquote>
+极辣好多80级的，无限食堂要70多层往后才有这个等级
+
+— from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
