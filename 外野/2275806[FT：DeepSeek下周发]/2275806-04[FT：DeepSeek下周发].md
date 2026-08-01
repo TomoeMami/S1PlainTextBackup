@@ -2818,3 +2818,27 @@ cherrystudio</blockquote>
 
 挺期待的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 4696#       发表于 2026-8-1 19:13
+
+mimo只要能达到这个水平，不也照样斩杀一大堆<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4697#       发表于 2026-8-1 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997845&amp;ptid=2275806" target="_blank">StarForceTi 发表于 2026-8-1 18:44</a>
+逻辑上来说 agent能力强了，写文的逻辑能力和遗忘都会好很多</blockquote>
+还真不是，agent能力和写作有一定关系，但不是绝对相关的
+我用fable5写过，这弱智玩意在opencdoe约束之下写了5000字花我20美元，它在写完自检阶段把我给它准备的细纲里每一条失败模式、skill里每一条失败模式都以正文旁白的形式写进去了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+就像一个笨蛋金发双马尾大小姐一样<img src="https://static.stage1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+这个工作流程是我和gpt讨论以后建立的，在codex里gpt写完以后跑自检一旦触发失败模式就会场景重写，所以不是我的工作流有问题
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
