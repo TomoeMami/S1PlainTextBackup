@@ -396,10 +396,10 @@
     "update": false
   },
   "2086637": {
-    "totalreply": 11674,
+    "totalreply": 11677,
     "title": "[【ぷにち】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
     "newtitle": "[【七代目】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
-    "lastedit": 1785590646,
+    "lastedit": 1785591605,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -5751,10 +5751,10 @@
     "update": false
   },
   "2141164": {
-    "totalreply": 1679,
+    "totalreply": 1680,
     "title": "[棕色尘埃2讨论楼，它治好我的电子ed]",
     "newtitle": "[棕色尘埃2，10.26新角色很涩。s1有群吗]",
-    "lastedit": 1785502325,
+    "lastedit": 1785591605,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -11223,10 +11223,10 @@
     "update": false
   },
   "2251014": {
-    "totalreply": 4141,
+    "totalreply": 4143,
     "title": "[超级机器人大战Y 25年内发售 NS／PS5／STEAM]",
     "newtitle": "[超级机器人大战Y 25年8月28日发售 NS／PS5／STEAM]",
-    "lastedit": 1785591486,
+    "lastedit": 1785592086,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 44813,
+    "totalreply": 44815,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1785591246,
+    "lastedit": 1785591605,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13131,10 +13131,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 17538,
+    "totalreply": 17542,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1785591366,
+    "lastedit": 1785591965,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13473,10 +13473,10 @@
     "update": false
   },
   "2253488": {
-    "totalreply": 772,
+    "totalreply": 774,
     "title": "[Switch 2《Splatoon RAIDERS／斯普拉遁 涂击队》7月23日发售（6月30日晚10点直面会）]",
     "newtitle": "[Switch 2《Splatoon RAIDERS／斯普拉遁 涂击队》7月23日发售，系列首个外传作品]",
-    "lastedit": 1785590887,
+    "lastedit": 1785592086,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15552,10 +15552,10 @@
     "update": false
   },
   "2286123": {
-    "totalreply": 1447,
+    "totalreply": 1455,
     "title": "[【街霸6】EWC 2026 电竞世俱杯专楼（24-26号LCQ）]",
     "newtitle": "[【街霸6】EWC 2026 电竞世俱杯专楼（1号淘汰赛）]",
-    "lastedit": 1785591486,
+    "lastedit": 1785592085,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15750,10 +15750,10 @@
     "update": false
   },
   "2286225": {
-    "totalreply": 88,
+    "totalreply": 89,
     "title": "[你会因为一个游戏在新平台上画面帧数更好再从头玩一次吗？]",
     "newtitle": "[你会因为一个游戏在新平台上画面帧数更好再从头玩一次吗？]",
-    "lastedit": 1785572528,
+    "lastedit": 1785592086,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15899,7 +15899,7 @@
     "newtitle": "[合肥算是发展巨大吗]",
     "lastedit": 1785332405,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2282268": {
@@ -17154,10 +17154,10 @@
     "update": false
   },
   "2286692": {
-    "totalreply": 55,
+    "totalreply": 56,
     "title": "[移动、联通、电信全面清退互联网代理售卡渠道]",
     "newtitle": "[移动、联通、电信全面清退互联网代理售卡渠道]",
-    "lastedit": 1785588247,
+    "lastedit": 1785591966,
     "category": "外野",
     "active": true,
     "update": false
@@ -17195,6 +17195,15 @@
     "newtitle": "[FX战士久留美 TV动画化 2026年]",
     "lastedit": 1785590766,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2286736": {
+    "totalreply": 42,
+    "title": "[第二次超级机器人大战Z破界篇Remastered 制作决定!]",
+    "newtitle": "[第二次超级机器人大战Z破界篇Remastered 制作决定!]",
+    "lastedit": 1785592086,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
