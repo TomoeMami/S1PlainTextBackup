@@ -169,3 +169,11 @@ AI大概想不出大脚糊脸这种构思<img src="https://static.stage1st.com/i
 
 卧槽真是黑花的话赢麻了，无脑抽这个池子
 
+
+*****
+
+####  alucardcz  
+##### 21076#       发表于 2026-8-1 18:24
+
+这立绘。。ai都不可能这么离谱 你们别骗我<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

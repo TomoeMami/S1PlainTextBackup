@@ -429,3 +429,13 @@ fami通8/9/9/9，35
 
 找到个CJ试玩实拍[https://www.bilibili.com/video/BV1JYG36YE46/](https://www.bilibili.com/video/BV1JYG36YE46/)
 
+
+*****
+
+####  spieler  
+##### 325#       发表于 2026-8-1 18:20
+
+排队1小时试玩十五分钟，可以选打boss可以选跑图，我选了跑图感觉挺一般，等打折
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

@@ -2731,3 +2731,15 @@ cherrystudio</blockquote>
 
 但是现在官方明确说了flash-0731这个正式版检查点只上了api服务，网页端和app都是老的弱智flash<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 4688#       发表于 2026-8-1 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997718&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-1 18:04</a>
+不知道你具体指的是啥哦
+
+但是现在官方明确说了flash-0731这个正式版检查点只上了api服务，网页端和app都 ...</blockquote>
+意思是跑agent以外的用途表现应该没什么区别，我试了下接cherry studio写了点东西确实和以前一个样
+
