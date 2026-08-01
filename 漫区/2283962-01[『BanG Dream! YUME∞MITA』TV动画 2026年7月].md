@@ -286,3 +286,17 @@ yuno倒是五个人里比较像Vtb的，相对而言吧，不知道后面会不�
 
 阿拉蕾这种不吃压力+有话直说的设定导致过去那套“信息差+话都憋着不说”的矛盾制造机制没法用，那么就只能弄个纯恶役当爆点了。
 
+
+*****
+
+####  aisakahammer  
+##### 163#       发表于 2026-8-1 17:01
+
+<img src="https://img.stage1st.com/forum/202608/01/170139nqxifdn4g4q9j3gg.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>971cebb2ba10cdf0ad7dbe6b5c0e45be.jpeg</strong> (262.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 17:01 上传
+
