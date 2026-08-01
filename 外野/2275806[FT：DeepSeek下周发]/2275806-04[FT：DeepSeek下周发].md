@@ -2955,3 +2955,58 @@ DS不是有招聘情感智能数据产品经理么，快点发力啊
 
 如果强化编程和创意写作真的有冲突，那可能会分化出不同模型吧？ 理科模型和文科模型？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蜇灵  
+##### 4709#       发表于 2026-8-1 20:27
+
+所以现在推荐用什么agent/ide，我看codex和cc被吐槽配合不行，推荐用pi，这玩意好用吗
+
+
+*****
+
+####  厍无春  
+##### 4710#       发表于 2026-8-1 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998213&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-8-1 20:27</a>
+所以现在推荐用什么agent/ide，我看codex和cc被吐槽配合不行，推荐用pi，这玩意好用吗 ...</blockquote>
+感觉可以等 ds 官方的 harness ，反正没几天了，没必要折腾别的，codex 先用着
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4711#       发表于 2026-8-1 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998026&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-1 19:44</a>
+我个人感觉大模型越强化编程那创意写作就越差
+非常怀念gpt4o</blockquote>
+是的，coding能力越强，写东西就越想写出来逻辑，越想一旦有冲突就快速解决，然后整个故事就跟嚼蜡一样无聊，而且充满了类似元叙事一样的解说。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4712#       发表于 2026-8-1 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998099&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-8-1 20:02</a>
+如果强化编程和创意写作真的有冲突，那可能会分化出不同模型吧？ 理科模型和文科模型？ ...</blockquote>
+我觉得倒是不需要，就看不同任务调用哪个专家的问题。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  sellboy  
+##### 4713#       发表于 2026-8-1 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998213&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-8-1 20:27</a>
+
+所以现在推荐用什么agent/ide，我看codex和cc被吐槽配合不行，推荐用pi，这玩意好用吗 ...</blockquote>
+你不着急等deepseek自己的
+
+你现在要用那么codex，正式版是专门支持了Responses API的，并且官方给了配置说明的。
+
+至于其他的V4f正式版才几天，登别人磨合好你再学着配也行。
+
