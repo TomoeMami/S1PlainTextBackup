@@ -1571,3 +1571,11 @@ BGO的程序员是不是应该祭天了
 
 满所长，奥伯龙1带4
 
+
+*****
+
+####  Urakawa  
+##### 48025#       发表于 2026-8-2 00:44
+
+1500石才五宝<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
