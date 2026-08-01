@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 44858,
+    "totalreply": 44859,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》7.10 玄翎飞 飞过江 水泱泱 山茫茫]",
-    "lastedit": 1785568445,
+    "lastedit": 1785568806,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9099,12 +9099,12 @@
     "update": false
   },
   "2124174": {
-    "totalreply": 661,
+    "totalreply": 662,
     "title": "[少主溜得快 TV动画化 2024年7月 制作：CW]",
     "newtitle": "[少主溜得快 TV动画化 2024年7月 制作：CW]",
-    "lastedit": 1784998925,
+    "lastedit": 1785569166,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1107212": {
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 20071,
+    "totalreply": 20072,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「向渊行」版本即将开放]",
-    "lastedit": 1785568205,
+    "lastedit": 1785568806,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12951,10 +12951,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 4669,
+    "totalreply": 4673,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[正式版 v4 flash 已上线，pro 8月初｜DeepSeek v4讨论专楼]",
-    "lastedit": 1785567727,
+    "lastedit": 1785569286,
     "category": "外野",
     "active": true,
     "update": false
@@ -13131,10 +13131,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 17418,
+    "totalreply": 17420,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1785568567,
+    "lastedit": 1785569166,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13383,12 +13383,12 @@
     "update": false
   },
   "2278128": {
-    "totalreply": 63,
+    "totalreply": 64,
     "title": "[推漫，韩漫 反转练习生]",
     "newtitle": "[推漫，韩漫 反转练习生]",
-    "lastedit": 1784856967,
+    "lastedit": 1785568806,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2283930": {
@@ -16398,10 +16398,10 @@
     "update": false
   },
   "2286467": {
-    "totalreply": 192,
+    "totalreply": 193,
     "title": "[棒子股市迎来今年第九次熔断]",
     "newtitle": "[棒子股市迎来今年第九次熔断]",
-    "lastedit": 1785550568,
+    "lastedit": 1785568926,
     "category": "外野",
     "active": true,
     "update": false
@@ -16421,7 +16421,7 @@
     "newtitle": "[网红“听泉鉴宝”声称再也不炒股，教唆父母一起梭哈，把父母棺材本都赔进去了]",
     "lastedit": 1785309969,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2286474": {
@@ -17118,10 +17118,10 @@
     "update": false
   },
   "2286369": {
-    "totalreply": 48,
+    "totalreply": 49,
     "title": "[美国同等位置中国人能上吗？]",
     "newtitle": "[美国同等位置中国人能上吗？]",
-    "lastedit": 1785567727,
+    "lastedit": 1785568926,
     "category": "外野",
     "active": true,
     "update": false
@@ -17208,10 +17208,10 @@
     "update": false
   },
   "2286696": {
-    "totalreply": 41,
+    "totalreply": 42,
     "title": "[梁子deepseek的盈利很像一个骗局]",
     "newtitle": "[梁子deepseek的盈利很像一个骗局]",
-    "lastedit": 1785560527,
+    "lastedit": 1785569286,
     "category": "外野",
     "active": true,
     "update": false
@@ -17226,11 +17226,20 @@
     "update": false
   },
   "2286692": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[移动、联通、电信全面清退互联网代理售卡渠道]",
     "newtitle": "[移动、联通、电信全面清退互联网代理售卡渠道]",
-    "lastedit": 1785567726,
+    "lastedit": 1785569286,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "1952573": {
+    "totalreply": 423,
+    "title": "[推本单元剧恐怖漫画《灰色兼职：禁止逃亡》]",
+    "newtitle": "[推本单元剧恐怖漫画《灰色兼职：禁止逃亡》]",
+    "lastedit": 1785569179,
+    "category": "漫区",
     "active": true,
     "update": false
   }

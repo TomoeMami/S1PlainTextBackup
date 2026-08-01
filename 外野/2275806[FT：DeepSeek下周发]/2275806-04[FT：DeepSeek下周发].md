@@ -2534,3 +2534,49 @@ WebSearch是个正经agent都有的tool（好吧Pi没有要自己扩展），不
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  zhanglei1943  
+##### 4670#       发表于 2026-8-1 15:16
+
+<img src="https://img.stage1st.com/forum/202608/01/151616wut3l13dxua3d3em.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (378.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 15:16 上传
+
+一个任务跑了4个小时，思维链语气都暴躁了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ycjiang1337  
+##### 4671#       发表于 2026-8-1 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996984&amp;ptid=2275806" target="_blank">綺々羅々ヴィヴ 发表于 2026-8-1 13:47</a>
+
+有没有一点可能梁圣的水货N卡到位，这次pro能联网了</blockquote>
+水货N卡还要拿来训练，怎么可能给你白嫖
+
+
+*****
+
+####  舞以  
+##### 4672#       发表于 2026-8-1 15:25
+
+搞点昇腾和老n卡卖api差不多了，也合规。
+
+水货卡肯定是拿去训练了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 4673#       发表于 2026-8-1 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996984&amp;ptid=2275806" target="_blank">綺々羅々ヴィヴ 发表于 2026-8-1 13:47</a>
+
+有没有一点可能梁圣的水货N卡到位，这次pro能联网了</blockquote>
+接api不是一直可以吗
+
