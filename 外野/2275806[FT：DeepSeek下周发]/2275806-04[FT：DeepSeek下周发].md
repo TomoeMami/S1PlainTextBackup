@@ -2618,3 +2618,11 @@ cherrystudio</blockquote>
 
 不知道现在CherryStudio是否还有这类问题？
 
+
+*****
+
+####  秦南心  
+##### 4677#       发表于 2026-8-1 16:04
+
+网页端估计会更新，但是现在应该是忙的飞起，连pro具体上线时间都不敢保证<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
