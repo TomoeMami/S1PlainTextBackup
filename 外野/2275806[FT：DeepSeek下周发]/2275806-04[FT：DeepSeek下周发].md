@@ -2184,3 +2184,26 @@ qwen3.8也开始大降价，90-98%的折扣，搞不好明天再来一家加入�
 —— 来自 HUAWEI SGU-AL10, Android 16 ...</blockquote>
 世界知识吧大概
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4637#       发表于 2026-8-1 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996326&amp;ptid=2275806" target="_blank">noword 发表于 2026-8-1 10:55</a>
+世界知识吧大概</blockquote>
+Gemini3.1pro世界知识早就退化到不能看了，然后还死也不调用搜索工具，菜的一逼
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4638#       发表于 2026-8-1 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996321&amp;ptid=2275806" target="_blank">Nyaaarlathotep 发表于 2026-8-1 10:54</a>
+酒馆，会掉格式而且感觉写的一般</blockquote>
+V4Flash写作能力是很一般。我感觉这次主要进步在对于意图的理解、指令的遵循能力以及工具调用的积极性上了。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
