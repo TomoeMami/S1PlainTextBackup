@@ -406,3 +406,29 @@ Music Video 3作を収録予定。
 
 这不是命中注定
 
+
+*****
+
+####  holofan  
+##### 11680#       发表于 2026-8-1 23:17
+
+ 本帖最后由 holofan 于 2026-8-1 23:23 编辑 
+
+等一下不会是，今年发的曲子全部没有数字版可以下载
+
+啊看了一下mora有了那没事了
+
+
+*****
+
+####  holofan  
+##### 11681#       发表于 2026-8-1 23:22
+
+<img src="https://img.stage1st.com/forum/202608/01/232213geddeda6wu3uewzv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 23:22 上传
+

@@ -3308,3 +3308,26 @@ opencode的可以自己写配置文件改成1M</blockquote>
 啊？这么改有用？我还以为 api 限制？</blockquote>
 opencode这个flash就是转发的官方，至少我之前这么改完显示的上下文大小到300K为止都没啥问题
 
+
+*****
+
+####  neptunehs  
+##### 4735#       发表于 2026-8-1 23:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69999052&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-8-1 23:13</a>
+opencode这个flash就是转发的官方，至少我之前这么改完显示的上下文大小到300K为止都没啥问题 ...</blockquote>
+不是转发的吧 至少我用zen的free是看不到中文思维链的
+
+顺便今天opencode更新居然没有ds相关内容 不打算解决耗token偏高的问题吗
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  goranger  
+##### 4736#       发表于 2026-8-1 23:21
+
+zen的free是海外部署的，go里边的是转发的。我在楼里说过好多次了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
