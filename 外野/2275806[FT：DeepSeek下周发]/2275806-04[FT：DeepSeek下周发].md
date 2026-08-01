@@ -1882,3 +1882,44 @@ opencode，体验不比glm差。中文思维链很爽。
 突然想起来梁文锋从上次开会之后，一张照片都没流出来，真离谱    Re:Source</blockquote>
 梁文峰吃早饭忘记找一排人摆拍了
 
+
+*****
+
+####  jyj256  
+##### 4612#       发表于 2026-8-1 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69995631&amp;ptid=2275806" target="_blank">squallx 发表于 2026-8-1 03:14</a>
+
+类脑还能加吗 邀请链接显示关闭</blockquote>
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+梦鲸思客V4-0731.json
+(606.93 KB, 下载次数: 3)
+
+2026-8-1 09:35 上传
+
+点击文件名下载附件
+
+我直接给你这个文件吧
+
+*****
+
+####  jyj256  
+##### 4613#       发表于 2026-8-1 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69995876&amp;ptid=2275806" target="_blank">erliuer 发表于 2026-8-1 08:28</a>
+
+求分享提示词</blockquote>
+私信发给你了 万一不行 你就下载文件研究一下吧
+
+
+*****
+
+####  水風船  
+##### 4614#       发表于 2026-8-1 09:42
+
+<blockquote>不见不散 发表于 2026-8-1 02:45
+完全是出于研究与学习破甲词的目的，我对这种题材本身没什么兴趣。</blockquote>
+常识改变世界观咯
+
