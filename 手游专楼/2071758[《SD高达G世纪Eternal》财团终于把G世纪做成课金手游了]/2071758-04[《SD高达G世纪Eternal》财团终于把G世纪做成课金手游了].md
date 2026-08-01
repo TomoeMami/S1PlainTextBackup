@@ -132,3 +132,15 @@
 
 最后190抽才出重装高达，200抽换了，下次直播池不够90000钻了<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lancelotezio  
+##### 4592#       发表于 2026-8-2 02:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69999026&amp;ptid=2071758" target="_blank">Abomination 发表于 2026-8-1 23:07</a>
+在nga看到说张五飞有多补强神高达，忍不了开抽，抽到限定就停手
+
+结果四十抽就出EW动画，想着这么幸运就中了 ...</blockquote>
+200抽一大堆垃圾，就出了重装和双头龙各一只，然后出大舅子船两条
+

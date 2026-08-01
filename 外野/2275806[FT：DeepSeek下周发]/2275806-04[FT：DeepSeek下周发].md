@@ -3462,3 +3462,21 @@ m3免费了？
 
 话说看疑似猫老板测出来的那个完爆5.6luna的截图加上猫老板自己完全没法v4fga的测试结果，我猜ds的harness已经在猫老板那边测一段时间了，对于v4系列增益也很强<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">就等真上线了
 
+
+*****
+
+####  奈落的孤火花  
+##### 4746#       发表于 2026-8-2 02:11
+
+opencode go值得买么，还是充官方API更实惠啊。如果都用完的情况下是不是go更适合，大概用百分之多少就是官方API更实惠？网上有评测么
+
+这用得太快了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/02/021059j53zwzh0kt5agog4.png" referrerpolicy="no-referrer">
+
+<strong>2854.png</strong> (102.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 02:10 上传
+
