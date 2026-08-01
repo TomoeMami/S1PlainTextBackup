@@ -2782,3 +2782,15 @@ anime expo场刊里面表述茉里不是一个假小子，看到现在有人认�
 
 —— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  Piano-Forest  
+##### 235#         楼主| 发表于 2026-8-1 13:50
+
+【【再见，拉拉】原画摄 #02~04】 
+[https://b23.tv/3qiZmgx](https://b23.tv/3qiZmgx)
+
+[https://x.com/i/status/2083415194294984940](https://x.com/i/status/2083415194294984940)
+<img src="https://p.sda1.dev/34/3aeb05bc018a2e992c81a7dc5ae7c54e/1000171468.jpg" referrerpolicy="no-referrer">
+

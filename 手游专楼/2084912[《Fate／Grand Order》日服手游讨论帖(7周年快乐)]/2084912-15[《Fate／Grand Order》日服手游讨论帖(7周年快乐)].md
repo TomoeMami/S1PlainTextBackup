@@ -61,3 +61,27 @@
 
 卧槽怎么又是三个池子
 
+
+*****
+
+####  DARKGRAY  
+##### 21065#       发表于 2026-8-1 13:48
+
+剪影看着还有四个人，全是四星的话分布不平均，要么奶个7五星吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 21066#       发表于 2026-8-1 13:49
+
+问就是从7周年开始的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你只有周年从者是半个泳装活动5星才会泳装活动出2个泳装5星
+
+
+*****
+
+####  angelooo  
+##### 21067#       发表于 2026-8-1 13:53
+
+左上那个看着就很复杂的剪影是四星？？？
+

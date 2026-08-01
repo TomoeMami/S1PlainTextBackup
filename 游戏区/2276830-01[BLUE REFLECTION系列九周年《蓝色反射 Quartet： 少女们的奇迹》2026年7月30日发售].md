@@ -755,3 +755,11 @@ PC版压缩档就有32.7G…<img src="https://static.stage1st.com/image/smiley/f
 ファミ通４０周年記念で寄稿させてもらったブルリフのイラストです！
 <img src="https://p.sda1.dev/34/29c35de534f0f04b283b3f3ea92363e5/HOi3BdTbUAA7w-r.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 67#         楼主| 发表于 2026-8-1 13:46
+
+<img src="https://p.sda1.dev/34/4dc486e3b6e9ce29d18f95b0e976f07b/1000171467.jpg" referrerpolicy="no-referrer">
+
