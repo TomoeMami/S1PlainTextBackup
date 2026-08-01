@@ -417,3 +417,19 @@ bug有原汁原味移植吗<img src="https://static.stage1st.com/image/smiley/fa
 
 这游戏后半缺的东西太多了，得重制解决。
 
+
+*****
+
+####  adretyu67.  
+##### 44#       发表于 2026-8-1 16:47
+
+ 本帖最后由 adretyu67. 于 2026-8-1 16:49 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69995555&amp;ptid=2286627" target="_blank">wingzerocos 发表于 2026-8-1 01:24</a>
+
+就算补上建模，载重限制也造不出来，除非可以改造固定武器或者加双引擎。
+
+奥丁炮除了修bug还要补上缺的几 ...</blockquote>
+截图明显ds风味了，只能说整点现代化qol优化差不多了。
+
+起码2人1狗1车就不大可能改。
+
