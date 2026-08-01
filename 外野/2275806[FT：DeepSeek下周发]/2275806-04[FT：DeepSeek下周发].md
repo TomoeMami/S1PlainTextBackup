@@ -3501,3 +3501,14 @@ opencode go值得买么，还是充官方API更实惠啊。如果都用完的情
 
 —— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  M乔梦  
+##### 4749#       发表于 2026-8-2 02:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69999592&amp;ptid=2275806" target="_blank">squallx 发表于 2026-8-2 02:22</a>
+
+轻量化视觉无审核的api选谁家？有中转更好 给肥鱼做外挂视觉模块用 虽然本地能跑qwen3.6也总不能一直让AI霸 ...</blockquote>
+我用的硅基流动的，最早是因为有代金卷，结果这b代金券居然还有时限，但是也懒得移窝了
+

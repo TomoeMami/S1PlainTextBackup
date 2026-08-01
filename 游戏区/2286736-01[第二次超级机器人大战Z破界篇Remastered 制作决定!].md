@@ -767,3 +767,13 @@ Z1太完美了 根本不需要重置
 Z1太完美了 根本不需要重置</blockquote>
 有一部分人的配音BUG问题
 
+
+*****
+
+####  Sayuki1025  
+##### 84#       发表于 2026-8-2 02:48
+
+又有00系可以玩了<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX736J, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
