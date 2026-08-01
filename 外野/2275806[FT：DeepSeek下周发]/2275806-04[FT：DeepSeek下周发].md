@@ -3331,3 +3331,14 @@ zen的free是海外部署的，go里边的是转发的。我在楼里说过好�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  jyj256  
+##### 4737#       发表于 2026-8-1 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998844&amp;ptid=2275806" target="_blank">M乔梦 发表于 2026-8-1 22:34</a>
+
+试了一下你的破甲词。有几次还是触发限制；也有几次它说不能写，但还是写了，用的工具是cherry。再然后在o ...</blockquote>
+那就只能用酒馆了 可以保证稳定破甲   opencode和cc貌似都有软件审查 换pi就能破甲了 嫌麻烦直接用omp打包好的exe程序打开就能用
+

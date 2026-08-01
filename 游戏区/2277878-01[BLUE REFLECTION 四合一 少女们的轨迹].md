@@ -1303,3 +1303,15 @@ PSV版：
 总之只要核心的帝没删减，那就赚了，其他三作都当是附送的<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 <img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUslqbdyesSyBAAHl6eTANfKk45y_x54AAgokAAIexnFXybDdvtf2ptU9BA.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wzm96816  
+##### 111#       发表于 2026-8-1 23:38
+
+高清是高清了，如果民间没反和谐补丁，体验还是差点。
+
+幻舞剑纯高清。
+
+灿剧情似乎微调了点。
+
