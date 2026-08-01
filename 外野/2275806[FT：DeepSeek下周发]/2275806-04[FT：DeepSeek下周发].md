@@ -2659,3 +2659,25 @@ cherrystudio</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  qwased  
+##### 4681#       发表于 2026-8-1 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997304&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-1 15:35</a>
+网页版pro不给联网搜索估计是为了防止中转站反代奇技淫巧的吧
+
+之前都在吹梁圣虽然不重视c端，但是app和网 ...</blockquote>
+不接api跑agent应该无差别吧
+
+
+*****
+
+####  erliuer  
+##### 4682#       发表于 2026-8-1 16:42
+
+<blockquote>jyj256 发表于 2026-8-1 09:41
+私信发给你了 万一不行 你就下载文件研究一下吧</blockquote>
+谢谢！   思路很清晰，很受启发。
+
