@@ -1256,3 +1256,13 @@ tie以前的dlc都不通用吗
 
 帝里面加了澪和灿的角色
 
+
+*****
+
+####  crazyleeyr  
+##### 109#       发表于 2026-8-1 18:47
+
+只能说感谢分享和谐情报的大佬，准备买，正好刷到这个贴。
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+

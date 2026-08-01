@@ -2783,3 +2783,13 @@ cherrystudio</blockquote>
 
 逻辑上来说 agent能力强了，写文的逻辑能力和遗忘都会好很多
 
+
+*****
+
+####  厍无春  
+##### 4693#       发表于 2026-8-1 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997836&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-1 18:42</a>
+有明显提升，我主要拿来写文的，不过之前试过一句话编游戏，让pro弄个洛克人，基本上连正常流程都做不完 ...</blockquote>
+用 Hermes 编游戏吗？和其他专业编程工具比怎么样
+
