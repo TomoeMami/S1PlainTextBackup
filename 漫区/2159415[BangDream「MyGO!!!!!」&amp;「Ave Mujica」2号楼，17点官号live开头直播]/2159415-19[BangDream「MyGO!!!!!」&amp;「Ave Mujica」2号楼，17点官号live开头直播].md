@@ -106,3 +106,14 @@ mujica完全新作剧场版要来力
 
 香港会同步上映吗？
 
+
+*****
+
+####  CyDiablo  
+##### 27639#       发表于 2026-8-1 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69995885&amp;ptid=2159415" target="_blank">asikies 发表于 2026-8-1 08:31</a>
+香港会同步上映吗？</blockquote>
+香港说是10.22
+<img src="https://p.sda1.dev/34/abce40e1dd0f280f7d1319c6ca827a35/image.jpg" referrerpolicy="no-referrer">
+
