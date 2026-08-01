@@ -2580,3 +2580,17 @@ WebSearch是个正经agent都有的tool（好吧Pi没有要自己扩展），不
 有没有一点可能梁圣的水货N卡到位，这次pro能联网了</blockquote>
 接api不是一直可以吗
 
+
+*****
+
+####  舞以  
+##### 4674#       发表于 2026-8-1 15:35
+
+ 本帖最后由 舞以 于 2026-8-1 15:38 编辑 
+
+网页版pro不给联网搜索估计是为了防止中转站反代奇技淫巧的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+之前都在吹梁圣虽然不重视c端，但是app和网页版也免费给最强模型用，而且不限量。
+
+但是这次flash更新也是打破了惯例<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
