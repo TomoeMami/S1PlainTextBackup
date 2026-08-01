@@ -785,3 +785,16 @@ Z1太完美了 根本不需要重置</blockquote>
 
 感觉不会换后作素材，AI高清下就完事了
 
+
+*****
+
+####  kcalb  
+##### 86#       发表于 2026-8-2 06:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69999241&amp;ptid=2286736" target="_blank">57042711 发表于 2026-8-2 00:07</a>
+
+这要是真有新人问这个z1在哪里不就尴尬了
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, 鹅球 v3.5.99 ...</blockquote>
+没事，老家伙们不也是第二次机器人大战入坑的<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
