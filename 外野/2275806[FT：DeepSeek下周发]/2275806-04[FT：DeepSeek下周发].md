@@ -2271,3 +2271,25 @@ V4Flash写作能力是很一般。我感觉这次主要进步在对于意图的�
 只是黑丝变白丝，加上戴眼镜的设定他也做不到逐字逐句改写。。。</blockquote>
 写作还比不上GLM4.7，后者遵循指令超强，这次还是编程特别优化
 
+
+*****
+
+####  noword  
+##### 4645#       发表于 2026-8-1 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996442&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-8-1 11:23</a>
+
+写作还比不上GLM4.7，后者遵循指令超强，这次还是编程特别优化</blockquote>
+编程也需要指令遵循吧
+
+*****
+
+####  SmterC  
+##### 4646#       发表于 2026-8-1 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996250&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-1 10:36</a>
+我用的oc+trellis 换pi他明显不认我的trellis的之前的内容 怎么办比较好
+
+—— 来自 OnePlus PJX110, And ...</blockquote>
+感觉trellis对pi的支持不太好    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
