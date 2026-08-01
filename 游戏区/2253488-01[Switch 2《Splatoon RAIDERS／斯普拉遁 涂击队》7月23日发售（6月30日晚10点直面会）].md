@@ -6303,3 +6303,14 @@ https://gamewith.jp/splatoon-raiders/569753
 
 后期还是速度比较强吧，飞天生存拉满，而且机动性也与输出挂钩的。
 
+
+*****
+
+####  Dedalus  
+##### 775#       发表于 2026-8-1 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998420&amp;ptid=2253488" target="_blank">Leona_Akari 发表于 2026-8-1 21:11</a>
+主线时速度型哪两个配件比较好用啊，力量和技巧感觉都有高伤害的配件，速度全是位移啥的，没伤害呀，那个三 ...</blockquote>
+你游三种特殊效果里冰冻压倒性的强，所以有两个冰冻配件的速度背包是最强流派，强度至少是力量的三倍技术的五倍
+带跃升踢馆鞋冻就行
+

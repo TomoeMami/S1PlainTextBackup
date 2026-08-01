@@ -3185,3 +3185,13 @@ opencode 还行啊...我蹬了一天 opencode go 里的 v4 flash (new)了...
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  lactone  
+##### 4725#       发表于 2026-8-1 21:49
+
+现在是不是百度手里有不少卡？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

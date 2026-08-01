@@ -354,3 +354,42 @@ Z1是4:3的游戏，重制要把界面改成16:9，太费脑子了
 
 Z2是我买的第一份正版机战，能玩到不是2D大头的版本那我只能说无脑买了。
 
+
+*****
+
+####  plok201  
+##### 43#       发表于 2026-8-1 21:49
+
+Z1问题是太老气了，虽然Z2也不遑多样，但是起码Z2那堆参战现在还有新企划，W周年，00周年啥的，装甲骑兵也有新剧场版
+
+说起来，这重制....也要卖DLC吧，你们说会加点啥奇奇怪怪的参战进去
+
+*****
+
+####  alucardcz  
+##### 44#       发表于 2026-8-1 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998468&amp;ptid=2286736" target="_blank">ティグル 发表于 2026-8-1 21:22</a>
+
+又不是remake，百分百大头娃娃啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是说是y的引擎和ui吗
+
+*****
+
+####  qiyu1234  
+##### 45#       发表于 2026-8-1 21:53
+
+Remastered 跟 Remastered也有不同
+
+这种肯定是BNFD自己开发，跟那种外包复刻是不一样的，如果是外包复刻那基本不用指望改任何东西
+
+*****
+
+####  misya  
+##### 46#       发表于 2026-8-1 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998617&amp;ptid=2286736" target="_blank">alucardcz 发表于 2026-8-1 21:50</a>
+
+不是说是y的引擎和ui吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说明用Y引擎做不了旧版的UI
+
