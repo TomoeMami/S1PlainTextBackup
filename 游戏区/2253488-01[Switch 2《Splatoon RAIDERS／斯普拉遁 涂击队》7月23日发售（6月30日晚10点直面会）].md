@@ -6219,3 +6219,11 @@ https://gamewith.jp/splatoon-raiders/569753
 
 碎片太难刷，绝品爆率太低，想刷个bd太麻烦，除了这些我对这游戏没啥意见<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不再乱发炎了  
+##### 766#       发表于 2026-8-1 18:30
+
+这作鱼浆帮有几首新歌？我能听出来的是最终boss战、ED还有基地船如果三个角色羁绊都到三级了会把背景配乐加上人声
+

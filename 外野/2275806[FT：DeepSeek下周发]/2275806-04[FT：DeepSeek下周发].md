@@ -2743,3 +2743,25 @@ cherrystudio</blockquote>
 但是现在官方明确说了flash-0731这个正式版检查点只上了api服务，网页端和app都 ...</blockquote>
 意思是跑agent以外的用途表现应该没什么区别，我试了下接cherry studio写了点东西确实和以前一个样
 
+
+*****
+
+####  厍无春  
+##### 4689#       发表于 2026-8-1 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997753&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-1 18:17</a>
+意思是跑agent以外的用途表现应该没什么区别，我试了下接cherry studio写了点东西确实和以前一个样 ...</blockquote>
+其实也不能这么说，重新进行了后训练，思维链肯定也是有变化的，只不过可能没有编程和 agent 方面变化大吧。就看写文方面训练数据有没有大的变化
+
+*****
+
+####  舞以  
+##### 4690#       发表于 2026-8-1 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997753&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-1 18:17</a>
+
+意思是跑agent以外的用途表现应该没什么区别，我试了下接cherry studio写了点东西确实和以前一个样 ...</blockquote>
+估计是的，这个检查点感觉就是为了做一个完成绝大多数agent工作流的执行模型。
+
+以后的ds可能是按需要升级的模式而不是小模型只打杂的模式。
+
