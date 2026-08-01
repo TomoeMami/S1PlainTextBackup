@@ -6324,3 +6324,19 @@ https://gamewith.jp/splatoon-raiders/569753
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  otakun  
+##### 777#       发表于 2026-8-1 22:04
+
+现在还在清外面的任务，食堂没怎么打，只会玩力量背包拿拳套三下砸地、斧头突进减伤和踢馆鞋跑路，因为很墨迹基本没什么打大伤害，只能赖着不死<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，而且武器基本没用几下
+
+
+*****
+
+####  sunzhenfeinan  
+##### 778#       发表于 2026-8-1 22:11
+
+只玩真格还有必要入手这个游戏吗？
+

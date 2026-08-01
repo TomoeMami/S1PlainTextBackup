@@ -401,3 +401,22 @@ Remastered 跟 Remastered也有不同
 
 又双叒叕要看多次MF断空我NOVA真魔神冲击的剧情了吗，我们机战也要有我们的元和二年，，，
 
+
+*****
+
+####  卡博雷z  
+##### 48#         楼主| 发表于 2026-8-1 22:06
+
+苦劳确实是最喜欢的主角之一了，和版权方角色融入的最自然的之一，不过破界实在没什么花活，二合一都行
+
+— from vivo V2458A, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  kirito_wst  
+##### 49#       发表于 2026-8-1 22:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">明面上的理由是调查出来z2最受欢迎
+
+我个人认为应该是不想花功夫去做小队系统那些做了基本上很难复用的东西
+

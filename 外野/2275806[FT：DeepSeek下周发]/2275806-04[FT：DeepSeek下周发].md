@@ -3195,3 +3195,17 @@ opencode 还行啊...我蹬了一天 opencode go 里的 v4 flash (new)了...
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4726#       发表于 2026-8-1 22:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998515&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-1 21:33</a>
+他特意加了new 是正式版
+
+—— 来自 OnePlus PJX110, Android 14, 鹅球 v3.5.99</blockquote>
+也是1m上下文吗？我记得之前zen是256k
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

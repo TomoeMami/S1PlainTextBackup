@@ -32,3 +32,13 @@
 
 女皇的宝箱真是个危险的东西，不及时换下来就等着卡爆吧。。
 
+
+*****
+
+####  pgain2004  
+##### 62#       发表于 2026-8-1 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69995420&amp;ptid=2269895" target="_blank">水边井 发表于 2026-8-1 00:27</a>
+困难难度我就解锁真结局了，其实无非就是最后两层注意一下发光的尸体就行，比暖雪好找 ...</blockquote>
+我还差一个的时候打困难也真结局了……之后才特地找攻略确认位置补上的
+
