@@ -2939,3 +2939,19 @@ mimo 就算了，本身基模逻辑智能就不咋地，全靠做好后训练才
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  绝地潜兵  
+##### 4707#       发表于 2026-8-1 19:56
+
+DS不是有招聘情感智能数据产品经理么，快点发力啊
+
+
+*****
+
+####  一般市民  
+##### 4708#       发表于 2026-8-1 20:02
+
+如果强化编程和创意写作真的有冲突，那可能会分化出不同模型吧？ 理科模型和文科模型？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
