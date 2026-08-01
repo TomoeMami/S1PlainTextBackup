@@ -1555,3 +1555,11 @@ BGO的程序员是不是应该祭天了
 
 考虑到最近一年挺欧的，就当还债了
 
+
+*****
+
+####  doublehit  
+##### 48023#       发表于 2026-8-1 23:43
+
+抱着试试的心态两个十连终于捞到了奥伯龙，双奥伯龙配个二宝月批一锤子300万也太爽了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

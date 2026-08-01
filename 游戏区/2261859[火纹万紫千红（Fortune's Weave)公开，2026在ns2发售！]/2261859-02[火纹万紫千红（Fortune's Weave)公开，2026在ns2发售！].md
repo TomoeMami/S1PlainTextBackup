@@ -1064,3 +1064,13 @@ DLC保底给4个
 
 还有那两个像两国领导人的，感觉女方可能入队，男方可能会是后期反派(传统火纹的红蓝立场)
 
+
+*****
+
+####  57042711  
+##### 1569#       发表于 2026-8-1 23:49
+
+人这么多，难道选了路线就会和很多角色为敌吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
