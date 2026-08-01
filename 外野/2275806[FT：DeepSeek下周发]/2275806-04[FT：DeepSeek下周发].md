@@ -2718,3 +2718,16 @@ cherrystudio</blockquote>
 
 有没有在Hermes上用flash正式版的大佬？说说效果如何？
 
+
+*****
+
+####  舞以  
+##### 4687#       发表于 2026-8-1 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997486&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-1 16:37</a>
+
+不接api跑agent应该无差别吧</blockquote>
+不知道你具体指的是啥哦
+
+但是现在官方明确说了flash-0731这个正式版检查点只上了api服务，网页端和app都是老的弱智flash<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
