@@ -3480,3 +3480,24 @@ opencode go值得买么，还是充官方API更实惠啊。如果都用完的情
 
 2026-8-2 02:10 上传
 
+
+*****
+
+####  squallx  
+##### 4747#       发表于 2026-8-2 02:22
+
+ 本帖最后由 squallx 于 2026-8-2 02:24 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">轻量化视觉无审核的api选谁家？有中转更好 给肥鱼做外挂视觉模块用 虽然本地能跑qwen3.6也总不能一直让AI霸占完GPU没法干别的
+
+*****
+
+####  ycjiang1337  
+##### 4748#       发表于 2026-8-2 02:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997753&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-1 18:17</a>
+意思是跑agent以外的用途表现应该没什么区别，我试了下接cherry studio写了点东西确实和以前一个样 ...</blockquote>
+我这边测写文有明显提升，指令遵循能力飞跃，配合prompt可以彻底杜绝滥用不是…而是…的问题
+
+—— 来自 HUAWEI SGT-AL50, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
