@@ -2793,3 +2793,28 @@ cherrystudio</blockquote>
 有明显提升，我主要拿来写文的，不过之前试过一句话编游戏，让pro弄个洛克人，基本上连正常流程都做不完 ...</blockquote>
 用 Hermes 编游戏吗？和其他专业编程工具比怎么样
 
+
+*****
+
+####  spaceblue  
+##### 4694#       发表于 2026-8-1 19:03
+
+<img src="https://img.stage1st.com/forum/202608/01/190311mcr4sc8x2qxi4408.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (230.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 19:03 上传
+
+等pro出来的斩杀线估计就是这样
+
+*****
+
+####  舞以  
+##### 4695#       发表于 2026-8-1 19:06
+
+话说雷肿的mimo（非pro）还能继续对标ds的flash么
+
+挺期待的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

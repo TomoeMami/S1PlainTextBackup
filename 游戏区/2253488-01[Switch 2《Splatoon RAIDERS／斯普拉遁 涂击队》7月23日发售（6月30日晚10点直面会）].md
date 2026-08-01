@@ -6235,3 +6235,25 @@ https://gamewith.jp/splatoon-raiders/569753
 
 只有个45级绝品攻速的泼水桶，这5级差距后期一直升级会导致费用严重递增吗。
 
+
+*****
+
+####  绿冰  
+##### 768#         楼主| 发表于 2026-8-1 19:00
+
+感觉同等级的极辣，比无限食堂还难
+
+—— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  mai6696  
+##### 769#       发表于 2026-8-1 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997701&amp;ptid=2253488" target="_blank">Kiyohara_Yasuke 发表于 2026-8-1 18:00</a>
+
+碎片太难刷，绝品爆率太低，想刷个bd太麻烦，除了这些我对这游戏没啥意见 ...</blockquote>
+在砸入了十数个水晶以及十多万碎片后发现强化出来的配件没有想象中的效果好，这挫败感是极大的。
+
+因为接下来很长一段时间我都没有手段改善自己的体验。
+
