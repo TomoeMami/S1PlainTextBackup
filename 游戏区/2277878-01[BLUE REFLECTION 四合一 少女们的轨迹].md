@@ -1266,3 +1266,40 @@ tie以前的dlc都不通用吗
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Xenor  
+##### 110#       发表于 2026-8-1 20:05
+
+试了下，意外还蛮好的<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">确实有高清化，不仅幻舞剑，跟单帝比合集帝也有高清
+
+NS版幻剑：
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUq1qbdr2-GVQCdfNN2AkEtXsElM4FgAC5SMAAh7GcVf6iHzTzO286T0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUq5qbdr6Gl8is_3GJdt-R9ooZw9DjgAC5iMAAh7GcVeFA_EDpuerqz0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUq9qbdr9baLQRoNMNHsVUhLGncMSLAAC5yMAAh7GcVdlw33BWHKtmz0E.jpg" referrerpolicy="no-referrer">
+
+帝的标题动画变了感觉没之前的蓝天白云大海四少女飞好看…
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUspqbdygyStEk3-mvrPaUcau4-RsowACCyQAAh7GcVfdbdFCF0qLuD0E.jpg" referrerpolicy="no-referrer">
+
+NS版合集帝
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUstqbdykR1HX3QOXM02Vy2epBZ1R-AACDSQAAh7GcVfIKWnu0CWrPj0E.jpg" referrerpolicy="no-referrer">
+
+NS版单帝
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUs5qbdytGcGWvrVb7B5P0WJyV3iqHQACECQAAh7GcVdx2ecGyn27ED0E.jpg" referrerpolicy="no-referrer">
+
+PSV版：
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUrFqbdsDTBWouSqrbpq5b8t85bfoCgAC6SMAAh7GcVfoUtzyXM1RDz0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUrJqbdsGfVoZy9UndX73XDVjZAndpQAC6iMAAh7GcVeERWWMlcN4iT0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUrNqbdsJnSyItWdiIaoURvXUqPUi8QAC6yMAAh7GcVcldchbRjAVzD0E.jpg" referrerpolicy="no-referrer">
+
+也才发现官中竟然和PSV民汉是一样的<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+再就是NS官中用的说明图片竟是英文的，不如PSV日版
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUsxqbdyn75tOfuLa1JuA8ereiFBsRQACDiQAAh7GcVehNhk611NFKj0E.jpg" referrerpolicy="no-referrer">
+
+现在唯一不明的就是DLC，PSV版的各种DLC打全要确定3分钟，单帝的DLC也要确定半分钟，这个合集好像没有内置DLC的信息。
+
+总之只要核心的帝没删减，那就赚了，其他三作都当是附送的<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYUslqbdyesSyBAAHl6eTANfKk45y_x54AAgokAAIexnFXybDdvtf2ptU9BA.jpg" referrerpolicy="no-referrer">
+
