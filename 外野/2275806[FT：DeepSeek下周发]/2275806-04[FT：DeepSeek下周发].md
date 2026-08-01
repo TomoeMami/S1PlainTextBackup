@@ -1966,3 +1966,42 @@ qwen3.8也开始大降价，90-98%的折扣，搞不好明天再来一家加入�
 
 【梁圣的七月中旬-哔哩哔哩】 https://b23.tv/gsLgOuT
 
+
+*****
+
+####  cscbzcbz  
+##### 4618#       发表于 2026-8-1 09:56
+
+玩了一晚上，同样的要求，感觉flash0731能力不如灰测pro，花的钱居然和灰测pro差不多，甚至还略微多一些
+灰测pro还是太强了，梁历的8月初什么时候才到啊
+
+*****
+
+####  冤枉呐  
+##### 4619#       发表于 2026-8-1 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69995612&amp;ptid=2275806" target="_blank">不见不散 发表于 2026-8-1 02:45</a>
+完全是出于研究与学习破甲词的目的，我对这种题材本身没什么兴趣。</blockquote>
+这玩意都是要留手机号的哥们
+你捣鼓捣鼓反犹的提示词，或者捣鼓捣鼓日本第二个太阳之类的试试看得了
+或者你本地部署一个看看
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  neptunehs  
+##### 4620#       发表于 2026-8-1 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996126&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-1 09:56</a>
+玩了一晚上，同样的要求，感觉flash0731能力不如灰测pro，花的钱居然和灰测pro差不多，甚至还略微多一些
+灰 ...</blockquote>
+是的 新版flash强是强了 但明显更费钱 我昨晚蹬了一晚用了20
+
+虽然把之前旧版1个月都解决不了的问题一次解决了
+
+而且一晚上20那还是比k3便宜不少
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
