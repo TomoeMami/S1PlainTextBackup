@@ -2511,3 +2511,26 @@ WebSearch是个正经agent都有的tool（好吧Pi没有要自己扩展），不
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  lowezack  
+##### 4668#       发表于 2026-8-1 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=69997182&amp;amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-1 14:52</a>
+这是reasonix的正常效果
+
+论坛助手,iPhone</blockquote>
+有兴趣可以让ai自己分析下，这么高的缓存命中率是有问题的
+
+*****
+
+####  舞以  
+##### 4669#       发表于 2026-8-1 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997197&amp;ptid=2275806" target="_blank">lowezack 发表于 2026-8-1 14:58</a>
+有兴趣可以让ai自己分析下，这么高的缓存命中率是有问题的</blockquote>
+你说得对
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
