@@ -2626,3 +2626,26 @@ cherrystudio</blockquote>
 
 网页端估计会更新，但是现在应该是忙的飞起，连pro具体上线时间都不敢保证<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 4678#       发表于 2026-8-1 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997352&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-8-1 15:55</a>
+我隐约记得版区里好像过去有坛友提到过CherryStudio接DS的一个问题
+
+大意是使用CherryStudio的话需要自己 ...</blockquote>
+不知道了漏油，我好久没用过了，我的感觉是桌面端的几个壳都不太行，CherryStudio是矮子里拔高个
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  风速前进mo  
+##### 4679#       发表于 2026-8-1 16:19
+
+太爽了，之前用pro办公让它自己执行要么出错陷进死胡同出不来，要么误删代码还没备份，而且上下文一长就降智必须新开窗口，这两天换正式版flash，终于能正常完成任务，遇到问题会自己解决，最多提点几句，最后都能解决，而且上下文拉到1m都不降智。终于不用每天上班和ai吵架了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
