@@ -2389,3 +2389,16 @@ superpowers用啥模型都浪费token
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  hugosol  
+##### 4656#       发表于 2026-8-1 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996586&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-8-1 11:53</a>
+
+我感觉没有多模态的模型不适合写前端 测了也没啥意义</blockquote>
+怎么可能，写代码根本不需要多模态，前端代码的语料又不是多模态的
+
+无非是自动调试麻烦点，但也可以用playwright来解决
+
