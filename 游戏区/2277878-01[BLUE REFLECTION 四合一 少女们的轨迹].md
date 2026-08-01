@@ -1241,3 +1241,18 @@ tie以前的dlc都不通用吗
 蓝反初代？</blockquote>
 对，我steam之前买了1代，如果这版有和谐我是不是玩原版就行了
 
+
+*****
+
+####  新HGCG  
+##### 108#         楼主| 发表于 2026-8-1 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996839&amp;ptid=2277878" target="_blank">蔷薇下 发表于 2026-8-1 12:58</a>
+
+啊，连巨魔诗都没有吗
+
+追加究竟是加了啥</blockquote>
+幻舞啥都没加
+
+帝里面加了澪和灿的角色
+
