@@ -1230,3 +1230,14 @@ tie以前的dlc都不通用吗
 有人能说下和谐了什么吗，我有蓝反的原版</blockquote>
 蓝反初代？
 
+
+*****
+
+####  grox133  
+##### 107#       发表于 2026-8-1 17:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997357&amp;ptid=2277878" target="_blank">DARK_HGCG 发表于 2026-8-1 15:57</a>
+
+蓝反初代？</blockquote>
+对，我steam之前买了1代，如果这版有和谐我是不是玩原版就行了
+
