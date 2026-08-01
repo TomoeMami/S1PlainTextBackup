@@ -3248,3 +3248,27 @@ go的是算额度,但只要不是开几十个subagent...蹬半天可能蹬不掉
 发给你了  最好下我那个文件 因为我不确定破甲是否都是这段提示词的作用 ...</blockquote>
 试了一下你的破甲词。有几次还是触发限制；也有几次它说不能写未成年，但还是写了。用的工具是cherry
 
+
+*****
+
+####  BarricadeMKXX  
+##### 4730#       发表于 2026-8-1 22:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998748&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-1 22:13</a>
+
+也是1m上下文吗？我记得之前zen是256k
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0 ...</blockquote>
+opencode的可以自己写配置文件改成1M{   "$schema": "https://opencode.ai/config.json",   "shell": "pwsh",   "provider": {     "opencode": {       "models": {         "deepseek-v4-flash-free": {           "limit": {             "context": 1048576,             "output": 384000           }         }       }     }   } }复制代码
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4731#       发表于 2026-8-1 22:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998842&amp;ptid=2275806" target="_blank">lly778 发表于 2026-8-1 22:33</a>
+给ds配一个免费识图模型，用什么好</blockquote>
+我用的minimax m3
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

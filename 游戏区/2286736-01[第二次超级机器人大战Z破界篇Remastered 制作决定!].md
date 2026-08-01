@@ -446,3 +446,18 @@ Remastered 跟 Remastered也有不同
 
 想要赚钱，那就上steam+多国语言，版权作尤其是Z系列还是很馋人的。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猪突猛进R  
+##### 53#       发表于 2026-8-1 22:37
+
+次元兽警告<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  螺旋的小夜曲  
+##### 54#       发表于 2026-8-1 22:39
+
+仔细想想既然重置了，出破界+再世合集才对吧，这两又没本质差别
+
