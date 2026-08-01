@@ -2207,3 +2207,67 @@ V4Flash写作能力是很一般。我感觉这次主要进步在对于意图的�
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  omnitoken  
+##### 4639#       发表于 2026-8-1 11:16
+
+感觉写文能力很一般，丢了5万字的小说进去让他按照指定人设改写前两章大概5000字，很快就出错了（提前跳到结局）
+
+是还需要什么关键词优化吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  绝地潜兵  
+##### 4640#       发表于 2026-8-1 11:19
+
+写作没办法，参数太小了，激活不了什么丰富的语料
+
+
+*****
+
+####  御姐贾  
+##### 4641#       发表于 2026-8-1 11:22
+
+写大纲可以，我只是让D指导先给我搜集角色设定，他就主动给我加堕落设定了
+但写正文就很差，我加了知识库提示词和文风约束还是不行，可读性很差
+写正文我还是手动拆开章节，让Pro一点一点的写了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  冤枉呐  
+##### 4642#       发表于 2026-8-1 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996411&amp;ptid=2275806" target="_blank">omnitoken 发表于 2026-8-1 11:16</a>
+感觉写文能力很一般，丢了5万字的小说进去让他按照指定人设改写前两章大概5000字，很快就出错了（提前跳到 ...</blockquote>
+知识库，剧情卡，角色卡，系统提示词
+结合起来就行啦
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  omnitoken  
+##### 4643#       发表于 2026-8-1 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996421&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-8-1 11:19</a>
+写作没办法，参数太小了，激活不了什么丰富的语料</blockquote>
+只是黑丝变白丝，加上戴眼镜的设定他也做不到逐字逐句改写。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  绝地潜兵  
+##### 4644#       发表于 2026-8-1 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996436&amp;ptid=2275806" target="_blank">omnitoken 发表于 2026-8-1 11:22</a>
+
+只是黑丝变白丝，加上戴眼镜的设定他也做不到逐字逐句改写。。。</blockquote>
+写作还比不上GLM4.7，后者遵循指令超强，这次还是编程特别优化
+
