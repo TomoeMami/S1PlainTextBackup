@@ -122,3 +122,24 @@
 
 左边那一大个影子感觉两个人啊，双人卡还是人和啥动物在一起啊
 
+
+*****
+
+####  壳壳牛  
+##### 21072#       发表于 2026-8-1 14:50
+
+ 本帖最后由 壳壳牛 于 2026-8-1 14:51 编辑 
+
+时隔多年的舅舅党
+但是脸好圆...不会是ai吧
+
+<img src="https://img.stage1st.com/forum/202608/01/145004oex8f8sxw4sx41fy.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1785567003575_1.webp</strong> (172.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 14:50 上传
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

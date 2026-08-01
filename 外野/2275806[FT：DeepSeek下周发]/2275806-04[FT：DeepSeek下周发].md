@@ -2498,3 +2498,16 @@ WebSearch是个正经agent都有的tool（好吧Pi没有要自己扩展），不
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  舞以  
+##### 4667#       发表于 2026-8-1 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997040&amp;ptid=2275806" target="_blank">lowezack 发表于 2026-8-1 14:07</a>
+这种缓存命中率不是正常的工作流程啊，要不然就是工具调用效率太低，不是啥好事，也未必省钱。
+ ...</blockquote>
+这是reasonix的正常效果
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
