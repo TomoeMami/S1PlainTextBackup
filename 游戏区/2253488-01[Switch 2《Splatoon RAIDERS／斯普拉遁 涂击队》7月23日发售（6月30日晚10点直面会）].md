@@ -6406,3 +6406,14 @@ https://gamewith.jp/splatoon-raiders/569753
 
 我是2+3打工差不多两千小时真格两千小时打工吧，涂击队感觉其实是个有一点打工元素的暗黑破坏神<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Antidote丶  
+##### 786#       发表于 2026-8-2 02:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998660&amp;ptid=2253488" target="_blank">doraemonmilmil 发表于 2026-8-1 21:58</a>
+
+无限食堂100层隐藏boss，用技术背包死了5-6遍后转速度型刮痧刮过了，说起来第二形态那个全屏大招除了喷射配 ...</blockquote>
+躲在角落吃不到伤害
+
