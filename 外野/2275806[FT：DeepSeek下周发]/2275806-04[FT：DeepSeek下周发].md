@@ -2842,3 +2842,50 @@ mimo只要能达到这个水平，不也照样斩杀一大堆<img src="https://s
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  空き地卯木  
+##### 4698#       发表于 2026-8-1 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997894&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-1 19:06</a>
+话说雷肿的mimo（非pro）还能继续对标ds的flash么
+
+挺期待的</blockquote>
+别搞 上次嘲完直接进来个泼皮打滚四五页的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nxmonitor  
+##### 4699#       发表于 2026-8-1 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997887&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-8-1 19:03</a>
+
+等pro出来的斩杀线估计就是这样</blockquote>
+如果就是那个灰测版，价格可能在现在预览版的左边，算上高峰价格差不多
+
+
+*****
+
+####  goranger  
+##### 4700#       发表于 2026-8-1 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997654&amp;ptid=2275806" target="_blank">masonknight 发表于 2026-8-1 17:41</a>
+有没有在Hermes上用flash正式版的大佬？说说效果如何？</blockquote>
+很好很强供参考
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  厍无春  
+##### 4701#       发表于 2026-8-1 19:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997894&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-1 19:06</a>
+话说雷肿的mimo（非pro）还能继续对标ds的flash么
+
+挺期待的</blockquote>
+mimo 就算了，本身基模逻辑智能就不咋地，全靠做好后训练才有 ds 没做好后训练的效果。
+

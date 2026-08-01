@@ -6257,3 +6257,16 @@ https://gamewith.jp/splatoon-raiders/569753
 
 因为接下来很长一段时间我都没有手段改善自己的体验。
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 770#       发表于 2026-8-1 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997878&amp;ptid=2253488" target="_blank">mai6696 发表于 2026-8-1 19:02</a>
+
+在砸入了十数个水晶以及十多万碎片后发现强化出来的配件没有想象中的效果好，这挫败感是极大的。
+
+因为接 ...</blockquote>
+我现在就是这样的情况，想配个破冰套结果因为素材不够只能配一半，结果现在搭配不上不下的，打个无限食堂50层都累的要死
+
