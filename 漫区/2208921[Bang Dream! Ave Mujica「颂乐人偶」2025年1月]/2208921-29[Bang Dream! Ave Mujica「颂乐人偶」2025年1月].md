@@ -402,3 +402,21 @@ SSR成员附带专属动画演出！该动画也会在抽卡及节奏游戏画�
 《BanG Dream! Our Notes》目前正在火热预约中🎶</blockquote>
        [https://www.bilibili.com/video/BV1ixGA6KEZ6](https://www.bilibili.com/video/BV1ixGA6KEZ6)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41974#       发表于 2026-8-1 21:27
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/01/212707s5amrryt5yro53t2.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-08-01_21-25-43.jpg</strong> (307.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 21:27 上传
+
+       [https://x.com/bang_dream_on/status/2083485387914121498](https://x.com/bang_dream_on/status/2083485387914121498)
+

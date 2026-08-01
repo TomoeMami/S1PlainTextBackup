@@ -3148,3 +3148,40 @@ system prompt的结构写太整齐似乎会有概率让输出变成说明书文�
 
 另外flash新版能力命令行真的强了好多，用pi的话可能之后要考虑加强权限管理和加sandbox了。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4722#       发表于 2026-8-1 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998378&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-8-1 21:00</a>
+opencode 还行啊...我蹬了一天 opencode go 里的 v4 flash (new)了...
+
+周用量才5%. 根本用不完</blockquote>
+因为v4flash很便宜，这玩意在zen里都免费的
+不过目前的zen的flash好像还不是正式版
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  他们都是啥b  
+##### 4723#       发表于 2026-8-1 21:32
+
+ 本帖最后由 他们都是啥b 于 2026-8-1 21:34 编辑 
+
+未证实消息, 编辑了
+
+*****
+
+####  neptunehs  
+##### 4724#       发表于 2026-8-1 21:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998496&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-1 21:29</a>
+因为v4flash很便宜，这玩意在zen里都免费的
+不过目前的zen的flash好像还不是正式版</blockquote>
+他特意加了new 是正式版
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

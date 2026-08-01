@@ -870,3 +870,12 @@ CGディレクター：長嶺明音
 
 看实际表现吧，双引擎的片子作画有保障
 
+
+*****
+
+####  Piano-Forest  
+##### 71#         楼主| 发表于 2026-8-1 21:31
+
+変身シーン先行公開！
+[https://youtu.be/tpLQKVdwsPU](https://youtu.be/tpLQKVdwsPU)
+
