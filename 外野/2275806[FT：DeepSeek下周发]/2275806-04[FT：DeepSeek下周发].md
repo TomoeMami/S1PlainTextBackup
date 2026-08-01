@@ -2328,3 +2328,42 @@ V4Flash写作能力是很一般。我感觉这次主要进步在对于意图的�
 
 我感觉没有多模态的模型不适合写前端 测了也没啥意义
 
+
+*****
+
+####  →熙←  
+##### 4651#       发表于 2026-8-1 11:56
+
+实战了一轮复杂任务, 自动触发了superpower
+
+真正写代码也就1/4的时间, 后面大部分时间都是在审查和测试,一轮接一轮的, 看得都惊了
+
+token消耗5000w+, 2.68r, 全任务56min, 自动提交了18个comit, 结果挺好,问题确实解决了
+
+感觉有点浪费token了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenyedgg  
+##### 4652#       发表于 2026-8-1 11:59
+
+GLM4.7有32B激活呢
+
+V4F只有13B，不是一个量级的，
+
+小模型经过累积的训练后减少走错误路径的可能，增加对正确规律的掌握，但是大参数模型本身的优势不会变
+
+
+*****
+
+####  neptunehs  
+##### 4653#       发表于 2026-8-1 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996601&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-1 11:56</a>
+实战了一轮复杂任务, 自动触发了superpower
+
+真正写代码也就1/4的时间, 后面大部分时间都是在审查和测试,一 ...</blockquote>
+oc+trellis也是 一轮接一轮check 还特别长 不过效果还行
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

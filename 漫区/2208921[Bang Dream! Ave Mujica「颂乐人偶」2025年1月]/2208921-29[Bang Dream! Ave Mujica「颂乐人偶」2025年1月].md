@@ -379,3 +379,26 @@
 
        [https://www.instagram.com/p/DbcWzsukWqR](https://www.instagram.com/p/DbcWzsukWqR)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41973#       发表于 2026-8-1 11:58
+
+       <strong>SSR成员——Ave Mujica Mortis/若叶睦的卡面立绘</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/01/115837gtc5is34c4hziah3.jpg" referrerpolicy="no-referrer">
+
+<strong>ee30fd243ec39d896d8cbac0154e842924e0455c.jpg</strong> (205.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 11:58 上传
+
+🌙 现在为大家介绍的是SSR成员——Ave Mujica Mortis/若叶睦的卡面立绘✨
+
+SSR成员附带专属动画演出！该动画也会在抽卡及节奏游戏画面中显示哦！
+
+《BanG Dream! Our Notes》目前正在火热预约中🎶</blockquote>
+       [https://www.bilibili.com/video/BV1ixGA6KEZ6](https://www.bilibili.com/video/BV1ixGA6KEZ6)
+
