@@ -443,3 +443,20 @@ bug有原汁原味移植吗<img src="https://static.stage1st.com/image/smiley/fa
 
 —— 来自 vivo V2304A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  猪突猛进R  
+##### 46#       发表于 2026-8-1 18:02
+
+甩一个当年的电子书攻略，也许未来用得到<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/binary.gif" referrerpolicy="no-referrer">
+
+钢之季节.exe
+(2.64 MB, 下载次数: 0)
+
+2026-8-1 18:01 上传
+
+点击文件名下载附件
+

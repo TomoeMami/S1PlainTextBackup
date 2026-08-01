@@ -6211,3 +6211,11 @@ https://gamewith.jp/splatoon-raiders/569753
 
 有没有什么简单无脑也能打150水平的bd，我现在看到风扇和飞天就ptsd
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 765#       发表于 2026-8-1 18:00
+
+碎片太难刷，绝品爆率太低，想刷个bd太麻烦，除了这些我对这游戏没啥意见<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
