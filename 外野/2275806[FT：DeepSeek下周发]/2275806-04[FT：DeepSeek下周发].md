@@ -3297,3 +3297,14 @@ opencode的可以自己写配置文件改成1M{   "$schema": "https://opencode
 opencode的可以自己写配置文件改成1M</blockquote>
 啊？这么改有用？我还以为 api 限制？
 
+
+*****
+
+####  BarricadeMKXX  
+##### 4734#       发表于 2026-8-1 23:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998980&amp;ptid=2275806" target="_blank">厍无春 发表于 2026-8-1 22:58</a>
+
+啊？这么改有用？我还以为 api 限制？</blockquote>
+opencode这个flash就是转发的官方，至少我之前这么改完显示的上下文大小到300K为止都没啥问题
+

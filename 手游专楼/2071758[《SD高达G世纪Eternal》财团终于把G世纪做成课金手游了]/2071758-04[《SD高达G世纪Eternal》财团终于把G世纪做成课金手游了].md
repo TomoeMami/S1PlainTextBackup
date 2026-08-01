@@ -112,3 +112,23 @@
 
 —— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Abomination  
+##### 4591#       发表于 2026-8-1 23:07
+
+在nga看到说张五飞有多补强神高达，忍不了开抽，抽到限定就停手
+
+结果四十抽就出EW动画，想着这么幸运就中了，竟然是大舅子<img src="https://static.stage1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">明明没有up呀！
+
+<img src="https://img.stage1st.com/forum/202608/01/225941ev6pv036p8ps6a2a.png" referrerpolicy="no-referrer">
+
+<strong>MuMu-20260801-224455-380.png</strong> (1.07 MB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 22:59 上传
+
+最后190抽才出重装高达，200抽换了，下次直播池不够90000钻了<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

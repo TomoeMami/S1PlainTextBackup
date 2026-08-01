@@ -492,3 +492,60 @@ remaster不就是画质HD化一下而已?想想当时拿PSP打破界篇的恶心
 
 psp上刚出那会儿打了3话然后就搁置了
 
+
+*****
+
+####  MR.McGillis  
+##### 59#       发表于 2026-8-1 23:06
+
+ 本帖最后由 MR.McGillis 于 2026-8-1 23:07 编辑 
+
+这作因为是天元的初参 当年省了一两个月的伙食费买了限定版 多了个硬盒封套 
+
+在我心里的情怀价值无限高了
+
+<img src="https://img.stage1st.com/forum/202608/01/230657gd3000xn8otdox4e.jpg" referrerpolicy="no-referrer">
+
+<strong>psc.jpg</strong> (447.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 23:06 上传
+
+*****
+
+####  Onelooker  
+##### 60#       发表于 2026-8-1 23:07
+
+盲猜一手不如ai高清纹理
+
+*****
+
+####  江戸前ルナ  
+##### 61#       发表于 2026-8-1 23:09
+
+原作是全面退化的开始<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+万一这重制到时还不如3年前就已经出了的高清纹理包<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  arbilest  
+##### 62#       发表于 2026-8-1 23:09
+
+都用Y的引擎了，应该不是纯平面地图和大头贴了吧
+<img src="https://p.sda1.dev/34/5b813fb4c2c08eb823ad3acabdfbbe14/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  shilhouette  
+##### 63#       发表于 2026-8-1 23:09
+
+<blockquote>MR.McGillis 发表于 2026-8-1 23:06
+这作因为是天元的初参 当年省了一两个月的伙食费买了限定版 多了个硬盒封套 
+
+在我心里的情怀价值无限高了
+
+</blockquote>
+结果天元的剧情到再世都没跑完，放到z3时狱的最终战，够拖的
+

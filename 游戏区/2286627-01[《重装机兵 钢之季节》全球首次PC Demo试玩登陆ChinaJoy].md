@@ -460,3 +460,46 @@ bug有原汁原味移植吗<img src="https://static.stage1st.com/image/smiley/fa
 
 点击文件名下载附件
 
+
+*****
+
+####  ParukiaMKII  
+##### 47#       发表于 2026-8-1 23:07
+
+贴吧看到的战斗UI图，改完了，然后看格子，3人1狗+3车好像可能性是存在的了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过看贴吧说地图基本不会改，还是老的那种选关卡的形式了，不过感觉可以一玩了
+
+钢之季节1.jpg
+(136.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 23:06 上传
+
+<img src="https://img.stage1st.com/forum/202608/01/230600e55cms7qkk8jmb47.jpg" referrerpolicy="no-referrer">
+
+钢之季节2.jpg
+(132.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 23:06 上传
+
+<img src="https://img.stage1st.com/forum/202608/01/230600s5m1p0ehmgqpr950.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Onelooker  
+##### 48#       发表于 2026-8-1 23:08
+
+看着像揉了好几代素材的同人游戏
+
+
+*****
+
+####  adretyu67.  
+##### 49#       发表于 2026-8-1 23:10
+
+总算把那个最傻逼的2人1狗1车改成3人1狗3车了还行。
+
+然后攻击和特技那个ui套用的是mm3开始的那套。
+
