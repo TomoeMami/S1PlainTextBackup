@@ -3534,3 +3534,15 @@ opencode go值得买么，还是充官方API更实惠啊。如果都用完的情
 我用的硅基流动的，最早是因为有代金卷，结果这b代金券居然还有时限，但是也懒得移窝了 ...</blockquote>
 用的什么模型？
 
+
+*****
+
+####  gypbbmm  
+##### 4752#       发表于 2026-8-2 04:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69993792&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-7-31 18:51</a>
+这个openfic非常好用，比酒馆好用十倍，这才是现代小黄文的打开方式  Re:Source ...</blockquote>
+求解openfic怎么破甲更彻底些，有个角色涉及未成年过不去
+
+—— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
