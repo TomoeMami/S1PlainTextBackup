@@ -3350,3 +3350,14 @@ zen的free是海外部署的，go里边的是转发的。我在楼里说过好�
 
 我才发现opencode go的luna居然有地区限制，刚刚提示我地区不可用
 
+
+*****
+
+####  tewaku  
+##### 4739#       发表于 2026-8-2 00:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998971&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-1 22:57</a>
+
+开始内测，真的能八月初端上来吗    Re:Source</blockquote>
+七月中最后变成八月初（假定）那八月初当然可以变成八月尾
+

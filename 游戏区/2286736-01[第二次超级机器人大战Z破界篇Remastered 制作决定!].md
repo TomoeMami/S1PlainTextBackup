@@ -626,3 +626,30 @@ Z2参战确实很豪华, 天元+OO+MF+鲁鲁修, 正是萝卜鼎盛的一年, �
 
 z2主要处理地球圈那些破事 跟2a的进程差不多
 
+
+*****
+
+####  ace8848  
+##### 72#       发表于 2026-8-2 00:06
+
+没活可以咬打火机
+
+*****
+
+####  57042711  
+##### 73#       发表于 2026-8-2 00:07
+
+这要是真有新人问这个z1在哪里不就尴尬了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  4591  
+##### 74#       发表于 2026-8-2 00:14
+
+没有组队的机战都是好机战。
+
+—— 来自 OnePlus PKG110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
