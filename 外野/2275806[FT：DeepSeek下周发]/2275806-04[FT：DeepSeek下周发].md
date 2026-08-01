@@ -2402,3 +2402,15 @@ superpowers用啥模型都浪费token
 
 无非是自动调试麻烦点，但也可以用playwright来解决
 
+
+*****
+
+####  舞以  
+##### 4657#       发表于 2026-8-1 13:34
+
+多模态目前来看唯一显著的好处就是你可以直接截图给它<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+不用自己复制或者转文字，就这点好处，可能还有部分前端工作可以让它截图验证？
+但不是所有项目都可以。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
