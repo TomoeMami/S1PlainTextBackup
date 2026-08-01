@@ -377,3 +377,32 @@ Music Video 3作を収録予定。
 
 新专只有11曲，还差一半的曲子唱啥呢，cover？
 
+
+*****
+
+####  holofan  
+##### 11678#       发表于 2026-8-1 21:59
+
+草新专里还有一首是旧曲重编
+
+不过这么看的话确实有可能把1stEP的曲拿出来唱
+
+*****
+
+####  holofan  
+##### 11679#       发表于 2026-8-1 22:53
+
+<img src="https://img.stage1st.com/forum/202608/01/225150gnnt1ecpectdouvc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 22:51 上传
+
+所以也难怪七字母这么配
+
+一个是扮冷酷王子风，一个始终自认灰姑娘
+
+这不是命中注定
+
