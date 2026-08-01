@@ -6270,3 +6270,11 @@ https://gamewith.jp/splatoon-raiders/569753
 因为接 ...</blockquote>
 我现在就是这样的情况，想配个破冰套结果因为素材不够只能配一半，结果现在搭配不上不下的，打个无限食堂50层都累的要死
 
+
+*****
+
+####  Leona_Akari  
+##### 771#       发表于 2026-8-1 21:11
+
+主线时速度型哪两个配件比较好用啊，力量和技巧感觉都有高伤害的配件，速度全是位移啥的，没伤害呀，那个三合一的关卡每次打速度都要死好多次<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
