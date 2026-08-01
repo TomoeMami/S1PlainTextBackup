@@ -756,3 +756,14 @@ Z1太完美了 根本不需要重置
 
 破界的話，也只得少部份穿越來，本身單是W5子、00 4人，魯魯修他們(好像4劍聖他們都是能用，還是只得隊長?)都人滿為患
 
+
+*****
+
+####  大十字紅朔  
+##### 83#       发表于 2026-8-2 01:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69999475&amp;ptid=2286736" target="_blank">Vladimeow 发表于 2026-8-2 01:23</a>
+
+Z1太完美了 根本不需要重置</blockquote>
+有一部分人的配音BUG问题
+
