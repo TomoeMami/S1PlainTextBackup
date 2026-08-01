@@ -1923,3 +1923,46 @@ opencode，体验不比glm差。中文思维链很爽。
 完全是出于研究与学习破甲词的目的，我对这种题材本身没什么兴趣。</blockquote>
 常识改变世界观咯
 
+
+*****
+
+####  龙骑士尹志平  
+##### 4615#       发表于 2026-8-1 09:50
+
+https://docs.qoder.com/events/qwen-max-preview
+
+qwen3.8也开始大降价，90-98%的折扣，搞不好明天再来一家加入价格战，肉眼可见周一美股的血雨腥风了，牢唐气死了
+
+
+*****
+
+####  千秋难诉  
+##### 4616#       发表于 2026-8-1 09:53
+
+“Fight! Fight! Fight!”
+
+<img src="https://img.stage1st.com/forum/202608/01/095143mtje8kyn7ekkneb7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (81.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 09:51 上传
+
+*****
+
+####  cyberalogo  
+##### 4617#       发表于 2026-8-1 09:55
+
+笑死，梁圣也加入斗舞大赛了。
+
+<img src="https://img.stage1st.com/forum/202608/01/095512ioptz4f74jz7z44f.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260801_095340.jpg</strong> (139.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 09:55 上传
+
+【梁圣的七月中旬-哔哩哔哩】 https://b23.tv/gsLgOuT
+
