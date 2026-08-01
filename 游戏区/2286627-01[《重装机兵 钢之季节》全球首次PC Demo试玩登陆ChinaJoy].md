@@ -503,3 +503,13 @@ bug有原汁原味移植吗<img src="https://static.stage1st.com/image/smiley/fa
 
 然后攻击和特技那个ui套用的是mm3开始的那套。
 
+
+*****
+
+####  褪色的雪花  
+##### 50#       发表于 2026-8-2 00:17
+
+这是同人还是授权移植？
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

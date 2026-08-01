@@ -3361,3 +3361,39 @@ zen的free是海外部署的，go里边的是转发的。我在楼里说过好�
 开始内测，真的能八月初端上来吗    Re:Source</blockquote>
 七月中最后变成八月初（假定）那八月初当然可以变成八月尾
 
+
+*****
+
+####  果壳中的松鼠  
+##### 4740#       发表于 2026-8-2 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998971&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-1 22:57</a>
+开始内测，真的能八月初端上来吗    Re:Source</blockquote>
+怕不是农历八月<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  jyj256  
+##### 4741#       发表于 2026-8-2 00:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998842&amp;ptid=2275806" target="_blank">lly778 发表于 2026-8-1 22:33</a>
+
+给ds配一个免费识图模型，用什么好</blockquote>
+千问好像有免费的额度 自己选vl模型
+
+
+*****
+
+####  冤枉呐  
+##### 4742#       发表于 2026-8-2 00:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998875&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-1 22:39</a>
+我用的minimax m3
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0</blockquote>
+m3免费了？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

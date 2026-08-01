@@ -1563,3 +1563,11 @@ BGO的程序员是不是应该祭天了
 
 抱着试试的心态两个十连终于捞到了奥伯龙，双奥伯龙配个二宝月批一锤子300万也太爽了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  collincollin  
+##### 48024#       发表于 2026-8-2 00:18
+
+满所长，奥伯龙1带4
+
