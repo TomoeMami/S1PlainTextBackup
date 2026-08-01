@@ -3454,3 +3454,11 @@ m3免费了？
 
     [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  Promeus  
+##### 4745#       发表于 2026-8-2 01:26
+
+话说看疑似猫老板测出来的那个完爆5.6luna的截图加上猫老板自己完全没法v4fga的测试结果，我猜ds的harness已经在猫老板那边测一段时间了，对于v4系列增益也很强<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">就等真上线了
+
