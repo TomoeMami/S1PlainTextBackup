@@ -420,3 +420,21 @@ Remastered 跟 Remastered也有不同
 
 我个人认为应该是不想花功夫去做小队系统那些做了基本上很难复用的东西
 
+
+*****
+
+####  猫将军  
+##### 50#       发表于 2026-8-1 22:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概率就是ui改成y那样而已，其他还是psp为基础
+
+*****
+
+####  ティグル  
+##### 51#       发表于 2026-8-1 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998617&amp;ptid=2286736" target="_blank">alucardcz 发表于 2026-8-1 21:50</a>
+
+不是说是y的引擎和ui吗</blockquote>
+那只能指望代便稍微有点良心了
+
