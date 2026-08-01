@@ -3512,3 +3512,14 @@ opencode go值得买么，还是充官方API更实惠啊。如果都用完的情
 轻量化视觉无审核的api选谁家？有中转更好 给肥鱼做外挂视觉模块用 虽然本地能跑qwen3.6也总不能一直让AI霸 ...</blockquote>
 我用的硅基流动的，最早是因为有代金卷，结果这b代金券居然还有时限，但是也懒得移窝了
 
+
+*****
+
+####  goranger  
+##### 4750#       发表于 2026-8-2 03:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69999571&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-8-2 02:11</a>
+
+opencode go值得买么，还是充官方API更实惠啊。如果都用完的情况下是不是go更适合，大概用百分之多少就是官 ...</blockquote>
+只用flash，opencode首月相当于5美元买官方60美元额度，这还用选吗
+
