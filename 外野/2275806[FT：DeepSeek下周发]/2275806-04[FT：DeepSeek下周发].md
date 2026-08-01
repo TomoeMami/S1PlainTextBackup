@@ -2367,3 +2367,15 @@ oc+trellis也是 一轮接一轮check 还特别长 不过效果还行
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  startraveller  
+##### 4654#       发表于 2026-8-1 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996601&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-1 11:56</a>
+实战了一轮复杂任务, 自动触发了superpower
+
+真正写代码也就1/4的时间, 后面大部分时间都是在审查和测试,一 ...</blockquote>
+superpowers用啥模型都浪费token
+
