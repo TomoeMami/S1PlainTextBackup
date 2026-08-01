@@ -2071,3 +2071,46 @@ qwen3.8也开始大降价，90-98%的折扣，搞不好明天再来一家加入�
 竞技场盲测代码现在是这个位置的，至于性价比就不说了，还看到两个DGX本地部署比API强的说法，测下来实际 ...</blockquote>
 首轮问询思考链很长，后续很短
 
+
+*****
+
+####  neptunehs  
+##### 4626#       发表于 2026-8-1 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996186&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-1 10:13</a>
+竞技场盲测代码现在是这个位置的，至于性价比就不说了，还看到两个DGX本地部署比API强的说法，测下来实际 ...</blockquote>
+话说回来为啥是high 是没了max还是max已经意义不大了 毕竟我一直用的high思维链可长了
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  秦南心  
+##### 4627#       发表于 2026-8-1 10:34
+
+<blockquote>普鲸已经这么狠了，Pro版本鲸震恩会是啥样啊</blockquote><img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">转发神评
+
+*****
+
+####  zhanglei1943  
+##### 4628#       发表于 2026-8-1 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996147&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-1 10:03</a>
+
+是的 新版flash强是强了 但明显更费钱 我昨晚蹬了一晚用了20
+
+虽然把之前旧版1个月都解决不了的问题一次 ...</blockquote>
+用的什么agent？别用cc和oc
+
+*****
+
+####  neptunehs  
+##### 4629#       发表于 2026-8-1 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996246&amp;ptid=2275806" target="_blank">zhanglei1943 发表于 2026-8-1 10:34</a>
+用的什么agent？别用cc和oc</blockquote>
+我用的oc+trellis 换pi他明显不认我的trellis的之前的内容 怎么办比较好
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
