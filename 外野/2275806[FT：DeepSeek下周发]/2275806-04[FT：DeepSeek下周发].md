@@ -2692,3 +2692,29 @@ cherrystudio</blockquote>
 私信发给你了 万一不行 你就下载文件研究一下吧</blockquote>
 大佬，能发一下吗？我也想试试
 
+
+*****
+
+####  nxmonitor  
+##### 4684#       发表于 2026-8-1 17:35
+
+看到一个主播用了zcode，做出来的我的世界有上次灰测第一二天的感觉了
+
+*****
+
+####  jyj256  
+##### 4685#       发表于 2026-8-1 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997580&amp;ptid=2275806" target="_blank">M乔梦 发表于 2026-8-1 17:14</a>
+
+大佬，能发一下吗？我也想试试</blockquote>
+发给你了  最好下我那个文件 因为我不确定破甲是否都是这段提示词的作用
+
+
+*****
+
+####  masonknight  
+##### 4686#       发表于 2026-8-1 17:41
+
+有没有在Hermes上用flash正式版的大佬？说说效果如何？
+
