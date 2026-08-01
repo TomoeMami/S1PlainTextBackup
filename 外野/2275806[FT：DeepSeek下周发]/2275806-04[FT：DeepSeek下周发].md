@@ -2135,3 +2135,52 @@ qwen3.8也开始大降价，90-98%的折扣，搞不好明天再来一家加入�
 
 现在看还有一把专武没上<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">梁子还有的是牌能打呢
 
+
+*****
+
+####  Nyaaarlathotep  
+##### 4632#       发表于 2026-8-1 10:48
+
+为啥我试了下，感觉甚至没基米 3.1 好用，什么情况
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4633#       发表于 2026-8-1 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996291&amp;ptid=2275806" target="_blank">Nyaaarlathotep 发表于 2026-8-1 10:48</a>
+为啥我试了下，感觉甚至没基米 3.1 好用，什么情况</blockquote>
+用来做啥能不如gemini 3.1pro？现在这废物玩意连正常对话都很难
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  jyj256  
+##### 4634#       发表于 2026-8-1 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996291&amp;ptid=2275806" target="_blank">Nyaaarlathotep 发表于 2026-8-1 10:48</a>
+
+为啥我试了下，感觉甚至没基米 3.1 好用，什么情况</blockquote>
+你用来干啥啊 识图肯定是不如3.1的 因为根本没有多模态
+
+
+*****
+
+####  Nyaaarlathotep  
+##### 4635#       发表于 2026-8-1 10:54
+
+酒馆，会掉格式而且感觉写的一般
+
+*****
+
+####  noword  
+##### 4636#       发表于 2026-8-1 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996299&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-1 10:49</a>
+
+用来做啥能不如gemini 3.1pro？现在这废物玩意连正常对话都很难
+
+—— 来自 HUAWEI SGU-AL10, Android 16 ...</blockquote>
+世界知识吧大概
+
