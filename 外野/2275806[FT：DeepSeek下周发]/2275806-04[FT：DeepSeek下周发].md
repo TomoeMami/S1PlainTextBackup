@@ -2889,3 +2889,13 @@ mimo只要能达到这个水平，不也照样斩杀一大堆<img src="https://s
 挺期待的</blockquote>
 mimo 就算了，本身基模逻辑智能就不咋地，全靠做好后训练才有 ds 没做好后训练的效果。
 
+
+*****
+
+####  lactone  
+##### 4702#       发表于 2026-8-1 19:31
+
+等等qwen3.8max 正式版
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
