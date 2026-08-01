@@ -2414,3 +2414,27 @@ superpowers用啥模型都浪费token
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  →熙←  
+##### 4658#       发表于 2026-8-1 13:36
+
+pro快来吧, flash反复调试消耗的token很多
+
+很可能反而更贵了
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4659#       发表于 2026-8-1 13:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996755&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-1 12:36</a>
+你们怎么都说写文有问题，我昨天和他对话社会科学问题，感觉比pro强得多
+
+—— 来自 HONOR AAK-AN00, Andro ...</blockquote>
+自然对话是自然对话，写作是写作
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
