@@ -2899,3 +2899,43 @@ mimo 就算了，本身基模逻辑智能就不咋地，全靠做好后训练才
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  阿刚  
+##### 4703#       发表于 2026-8-1 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997862&amp;ptid=2275806" target="_blank">厍无春 发表于 2026-8-1 18:52</a>
+
+用 Hermes 编游戏吗？和其他专业编程工具比怎么样</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">我也不懂的啊，就是之前灰测时候流行的一句话编游戏……
+
+
+*****
+
+####  qwased  
+##### 4704#       发表于 2026-8-1 19:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997921&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-1 19:15</a>
+还真不是，agent能力和写作有一定关系，但不是绝对相关的
+我用fable5写过，这弱智玩意在opencdoe约束之下 ...</blockquote>
+我个人感觉大模型越强化编程那创意写作就越差
+非常怀念gpt4o
+
+*****
+
+####  王兰花秀丽  
+##### 4705#       发表于 2026-8-1 19:47
+
+梁子你可是要搞agi的呀，千万不要把写作丢了<img src="https://static.stage1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 4706#       发表于 2026-8-1 19:47
+
+我觉得写作是最难的（尤其是比较开放的创意写作）<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+期待ds早日训出15t大魔吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
