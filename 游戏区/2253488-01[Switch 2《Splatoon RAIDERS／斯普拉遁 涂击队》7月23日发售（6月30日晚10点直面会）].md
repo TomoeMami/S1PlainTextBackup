@@ -6191,3 +6191,13 @@ https://gamewith.jp/splatoon-raiders/569753
 
 你们挂杏棱的宏是包括砸右边箱子的吗
 
+
+*****
+
+####  Dedalus  
+##### 763#       发表于 2026-8-1 17:14
+
+别刷杏仁了来天妇罗吧，推荐这个流程 [https://www.bilibili.com/video/BV1b93x6pEna](https://www.bilibili.com/video/BV1b93x6pEna)
+
+我体感天妇罗爆率比杏仁高，并且天妇罗是技术背包，解决杏仁刷多了没有技术配件的问题
+
