@@ -798,3 +798,20 @@ Z1太完美了 根本不需要重置</blockquote>
 —— 来自 HUAWEI FIN-AL60a, Android 12, 鹅球 v3.5.99 ...</blockquote>
 没事，老家伙们不也是第二次机器人大战入坑的<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 87#       发表于 2026-8-2 07:35
+
+破界出了是不是也要出再世啊<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Leliel  
+##### 88#       发表于 2026-8-2 07:37
+
+这神奇的选择
+
