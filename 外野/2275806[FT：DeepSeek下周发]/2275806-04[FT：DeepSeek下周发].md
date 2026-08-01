@@ -2453,3 +2453,20 @@ pro快来吧, flash反复调试消耗的token很多
 
 不可能不可能，pro灰测这水平的给开联网和上传文件，全世界都要嫖死梁子<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王兰花秀丽  
+##### 4662#       发表于 2026-8-1 13:55
+
+八月初和八月上旬区别挺大的吧<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 4663#       发表于 2026-8-1 13:57
+
+ 本帖最后由 nxmonitor 于 2026-8-1 14:00 编辑 
+
+先把harness拿出来吧，现在flash在哪个里面都膈应，codex和opencode有时候会一团糟，PI的skill又太简单了
+
