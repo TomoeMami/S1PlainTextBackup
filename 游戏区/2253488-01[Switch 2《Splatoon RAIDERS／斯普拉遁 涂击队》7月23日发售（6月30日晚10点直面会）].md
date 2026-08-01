@@ -6314,3 +6314,13 @@ https://gamewith.jp/splatoon-raiders/569753
 你游三种特殊效果里冰冻压倒性的强，所以有两个冰冻配件的速度背包是最强流派，强度至少是力量的三倍技术的五倍
 带跃升踢馆鞋冻就行
 
+
+*****
+
+####  doraemonmilmil  
+##### 776#       发表于 2026-8-1 21:58
+
+无限食堂100层隐藏boss，用技术背包死了5-6遍后转速度型刮痧刮过了，说起来第二形态那个全屏大招除了喷射配件二段跳应该没其他办法避开了吧，用机甲跳不出罩子外<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随缘了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

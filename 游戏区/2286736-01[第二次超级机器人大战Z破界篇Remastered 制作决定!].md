@@ -393,3 +393,11 @@ Remastered 跟 Remastered也有不同
 不是说是y的引擎和ui吗</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说明用Y引擎做不了旧版的UI
 
+
+*****
+
+####  我王  
+##### 47#       发表于 2026-8-1 22:00
+
+又双叒叕要看多次MF断空我NOVA真魔神冲击的剧情了吗，我们机战也要有我们的元和二年，，，
+
