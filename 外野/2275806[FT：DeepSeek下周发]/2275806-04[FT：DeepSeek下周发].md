@@ -2114,3 +2114,24 @@ qwen3.8也开始大降价，90-98%的折扣，搞不好明天再来一家加入�
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nxmonitor  
+##### 4630#       发表于 2026-8-1 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996227&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-1 10:27</a>
+
+话说回来为啥是high 是没了max还是max已经意义不大了 毕竟我一直用的high思维链可长了
+
+—— 来自 OnePlu ...</blockquote>
+这是Arena就上了high仅此而已，max和high思维链差别不大，当然效果还是有区别的
+
+
+*****
+
+####  Promeus  
+##### 4631#       发表于 2026-8-1 10:46
+
+现在看还有一把专武没上<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">梁子还有的是牌能打呢
+
