@@ -240,3 +240,114 @@ GTA2今年要来了？？？？？？？？？？？？？？
 
 2026-8-1 11:11 上传
 
+
+*****
+
+####  holofan  
+##### 11673#       发表于 2026-8-1 21:02
+
+完全onemanlive也是觉悟了
+
+另外vip配信票绝对是你自己想要而开创的
+
+*****
+
+####  holofan  
+##### 11674#       发表于 2026-8-1 21:18
+
+■さくらみこ 2nd Album『Blooming Cinderella』完全生産限定盤
+
+□CD + BD
+
+品番：HOLOEC-083 / HOLOEC-084
+
+構成数：2枚 (CD &amp; Blu-ray)
+
+仕様: スペシャルボックス
+
+ジャケットイラスト：信澤 収 / もちぷよ
+
+□同梱物
+
+・『Blooming Cinderella』ジオラマアクリルスタンド (組立て時 約153mm x 118mm x 37mm)
+
+・『Blooming Cinderella』スペシャルジャケットカード (完全生産限定盤ver.)
+
+・スペシャルブックレット
+
+・みこちからの招待状風お手紙(複製)
+
+□早期予約特典
+
+Sakura Miko 2nd Live “Blooming Parade!!” 抽選シリアルコード
+
+□CD収録曲
+
+01. シンデレラ・ストーリー
+
+Lyrics, Music &amp; Arrangement：小池竜暉
+
+02. サキミダレアッパレード♪
+
+Lyrics, Music &amp; Arrangement：キノシタ
+
+03. 電脳神楽ミコビート
+
+Lyrics, Music &amp; Arrangement：まろん (IOSYS)
+
+04. 全開！満開！アイドル道！
+
+Lyrics, Music &amp; Arrangement：ぼっちぼろまる
+
+05. Sakuraful March
+
+Lyrics：TOPHAMHAT-KYO(FAKE TYPE.)
+
+Music：FAKE TYPE.
+
+Arrangement：DYES IWASAKI(FAKE TYPE.)
+
+06. 桜華絢爛歌合戦
+
+Lyrics, Music &amp; Arrangement：てにをは
+
+07. ファッションビート
+
+Lyrics &amp; Music：DECO*27 (OTOIRO)
+
+Arrangement：tepe (OTOIRO)
+
+08. PON-DERFUL!!!
+
+Lyrics &amp; Music：TAKU INOUE
+
+Arrangement：TAKU INOUE, 永山ひろなお
+
+09. あてんしょんぷりーず！ (Blooming Cinderella ver.)
+
+Lyrics：こだまさおり
+
+Music：石濱翔 (MONACA)
+
+Arrangement：石濱翔 (MONACA)
+
+10. 咲き誇れアイドル
+
+Lyrics：HoneyWorks, MARUMOCHI
+
+Music &amp; Arrangement：HoneyWorks
+
+11. your petal
+
+Lyrics：さくらみこ, ハム
+
+Music &amp; Arrangement：ハム
+
+完全生産限定盤ボーナストラック：
+
+12. ボーナスボイスメッセージ
+
+□Blu-ray収録内容
+
+Music Video 3作を収録予定。
+

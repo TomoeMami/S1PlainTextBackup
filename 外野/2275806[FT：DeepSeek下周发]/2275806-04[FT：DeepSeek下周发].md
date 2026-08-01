@@ -3133,3 +3133,18 @@ system prompt的结构写太整齐似乎会有概率让输出变成说明书文�
 
 看这个样子，v4pro还得好一阵子才端上来，这harness还在内测呢，刚才ds的开发者还在招募内侧人士
 
+
+*****
+
+####  LeoDT  
+##### 4721#       发表于 2026-8-1 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998213&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-8-1 20:27</a>
+
+所以现在推荐用什么agent/ide，我看codex和cc被吐槽配合不行，推荐用pi，这玩意好用吗 ...</blockquote>
+用pi可以完全摸透所谓harness到底是干了什么，以及可以搞出来一个适合自己的趁手的工具，缺点就是折腾。裸pi能用，而且大多数情况够用，但是在社区里看到的别人的各种在其它harness里的奇技淫巧就需要花点时间了，不过这也是学习过程不是嘛。
+
+个人认为如果D老师坚持开源路线，模型应该不会对自家harness做特殊的适配，所以摸透harness以及适应各种开源方案可能到时候就算要自己选也选的自信些。
+
+另外flash新版能力命令行真的强了好多，用pi的话可能之后要考虑加强权限管理和加sandbox了。
+

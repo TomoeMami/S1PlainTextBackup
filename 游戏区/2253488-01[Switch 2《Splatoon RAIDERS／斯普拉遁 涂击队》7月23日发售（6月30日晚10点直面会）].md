@@ -6278,3 +6278,11 @@ https://gamewith.jp/splatoon-raiders/569753
 
 主线时速度型哪两个配件比较好用啊，力量和技巧感觉都有高伤害的配件，速度全是位移啥的，没伤害呀，那个三合一的关卡每次打速度都要死好多次<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gbjbb  
+##### 772#       发表于 2026-8-1 21:24
+
+880层直播中:youtube.com/watch?v=LNGDE3oaZww
+
