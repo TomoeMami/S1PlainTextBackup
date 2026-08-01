@@ -114,3 +114,11 @@
 日服的活动本一点开就卡死，有坛友遇到一样的bug吗</blockquote>
 后台放置了十几分钟。加载出来了。<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangun22  
+##### 21071#       发表于 2026-8-1 14:29
+
+左边那一大个影子感觉两个人啊，双人卡还是人和啥动物在一起啊
+

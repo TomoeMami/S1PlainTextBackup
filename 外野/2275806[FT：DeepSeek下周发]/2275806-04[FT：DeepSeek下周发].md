@@ -2480,3 +2480,11 @@ pro快来吧, flash反复调试消耗的token很多
 reasonix的这个界面看着真的解压</blockquote>
 这种缓存命中率不是正常的工作流程啊，要不然就是工具效率调用太低，不是啥好事，也未必省钱。
 
+
+*****
+
+####  hugosol  
+##### 4665#       发表于 2026-8-1 14:35
+
+WebSearch是个正经agent都有的tool（好吧Pi没有要自己扩展），不要纠结网页版联不联网啦<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
