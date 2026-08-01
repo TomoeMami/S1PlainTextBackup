@@ -960,3 +960,39 @@ Screenshot_20260731_184008.jpg
 
 泥潭三房没有楼的吗，我怎么记得有啊，现在只能找到一个无双的楼
 
+
+*****
+
+####  血狂毘沙门  
+##### 1565#       发表于 2026-8-1 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69997105&amp;ptid=2261859" target="_blank">docklabor 发表于 2026-8-1 14:30</a>
+
+泥潭三房没有楼的吗，我怎么记得有啊，现在只能找到一个无双的楼</blockquote>
+[https://stage1st.com/2b/thread-1810654-1-1.html](https://stage1st.com/2b/thread-1810654-1-1.html)
+
+*****
+
+####  零崎不识  
+##### 1566#       发表于 2026-8-1 16:11
+
+<img src="https://img.stage1st.com/forum/202608/01/161052tdda1twdw69999w6.jpg" referrerpolicy="no-referrer">
+
+<strong>MEITU_20260801_161022740.jpg</strong> (643.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 16:10 上传
+
+已公布18个主角了
+
+这边还能凑16个
+
+安娜是1个
+
+DLC保底给4个
+
+已经39个人了
+
+肯定要完爆三房和结合的40出头的入队数量了
+
