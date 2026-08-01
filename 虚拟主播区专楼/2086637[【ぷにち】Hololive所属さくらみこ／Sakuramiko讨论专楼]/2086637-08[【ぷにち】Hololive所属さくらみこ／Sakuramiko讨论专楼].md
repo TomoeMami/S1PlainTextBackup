@@ -184,3 +184,30 @@ GTA2今年要来了？？？？？？？？？？？？？？
 
 昨晚深夜突然发的，2年前似曾相识啊，你告诉我你为了明天的发表给粉丝铺垫了这么多心理准备和暗示，最后如果不是2ndlive告知那她以后也不要再搞什么3d告知企划了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holofan  
+##### 11669#       发表于 2026-7-31 18:59
+
+8年来第一次不做周年倒计时直播，破天荒的破天荒了，到底是紧张还是怕泄露
+
+明天的东西到底有多大？
+
+*****
+
+####  holofan  
+##### 11670#       发表于 2026-8-1 10:11
+
+看是看得到，啥玩意
+
+<img src="https://img.stage1st.com/forum/202608/01/101046blinsoo1n87xil7z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (124.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 10:10 上传
+
+另外这比一晚上没睡啊，凌晨3点发MV，6点发推特，这是真的忙了整整一彻夜也难怪昨晚不直播
+

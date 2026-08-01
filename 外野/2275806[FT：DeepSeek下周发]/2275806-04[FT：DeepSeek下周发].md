@@ -2005,3 +2005,46 @@ qwen3.8也开始大降价，90-98%的折扣，搞不好明天再来一家加入�
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nxmonitor  
+##### 4621#       发表于 2026-8-1 10:13
+
+<img src="https://img.stage1st.com/forum/202608/01/101115ljlrd1e81lgvljmb.jpg" referrerpolicy="no-referrer">
+
+<strong>eb73fde00da4cbf8d6c7e61e8d02bb95_b4e08f70b73f7869686877fa678b59ea65885835.jpg</strong> (159.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 10:11 上传
+
+<img src="https://img.stage1st.com/forum/202608/01/101154i7kqbq95j1t6js5y.jpg" referrerpolicy="no-referrer">
+
+<strong>a2cbf10788876d4f72cb4685b68c9c3a_ef1e8fa6b72efcca3102a61446bcca2765885835.jpg</strong> (100.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 10:11 上传
+
+竞技场盲测代码现在是这个位置的，至于性价比就不说了，还看到两个DGX本地部署比API强的说法，测下来实际token效率相比正式版大幅提升了，但不知道API为什么还是思考长度很长
+
+*****
+
+####  nxmonitor  
+##### 4622#       发表于 2026-8-1 10:15
+
+如果这是真的，估计Flash后训练的语料其实从Pro里面来，不然不会出现PI的效果更好这种情况，一般小模型都是要加多限制提示词性能才好的
+
+*****
+
+####  neptunehs  
+##### 4623#       发表于 2026-8-1 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996186&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-1 10:13</a>
+竞技场盲测代码现在是这个位置的，至于性价比就不说了，还看到两个DGX本地部署比API强的说法，测下来实际 ...</blockquote>
+这个laguna.xs2 我试过会思维死循环 我以前只在高量化的qwen2或dsr1distillqwen见过。。。
+导致我现在对这个评分很有疑虑
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
