@@ -3546,3 +3546,21 @@ opencode go值得买么，还是充官方API更实惠啊。如果都用完的情
 
 —— 来自 HONOR PPG-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  玲娜贝尔  
+##### 4753#       发表于 2026-8-2 06:38
+
+ 基元律动注册送68元Token，可用12种国内模型
+
+https://tokenrhythm.studio/i/rf_tr_iK2qoQvnYbXev7nAEcycymf6
+
+现在有邀请注册活动，新注册送68元Token，如果用deepseek便宜模型的话，应该够用一阵了。
+
+通过邀请链接注册才有68元token，每人上限680元，加官方群没见到其他活动，
+
+手机号多的可重复刷，目前接码就能注册
+
+随便用用挺好的
+
