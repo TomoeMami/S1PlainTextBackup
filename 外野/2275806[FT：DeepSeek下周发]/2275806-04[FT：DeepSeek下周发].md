@@ -2293,3 +2293,38 @@ V4Flash写作能力是很一般。我感觉这次主要进步在对于意图的�
 —— 来自 OnePlus PJX110, And ...</blockquote>
 感觉trellis对pi的支持不太好    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  秦南心  
+##### 4647#       发表于 2026-8-1 11:47
+
+官方不是说了，要用codex吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhanglei1943  
+##### 4648#       发表于 2026-8-1 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69996186&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-1 10:13</a>
+
+竞技场盲测代码现在是这个位置的，至于性价比就不说了，还看到两个DGX本地部署比API强的说法，测下来实际 ...</blockquote>
+看神烦老狗的评测，high跟max的差距还是蛮大的
+
+
+*****
+
+####  goranger  
+##### 4649#       发表于 2026-8-1 11:52
+
+这次主要优化的是agent能力，别忘了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Rowen233  
+##### 4650#       发表于 2026-8-1 11:53
+
+我感觉没有多模态的模型不适合写前端 测了也没啥意义
+
