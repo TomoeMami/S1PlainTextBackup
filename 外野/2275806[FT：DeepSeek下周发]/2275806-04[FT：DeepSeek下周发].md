@@ -3272,3 +3272,28 @@ opencode的可以自己写配置文件改成1M{   "$schema": "https://opencode
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  王兰花秀丽  
+##### 4732#       发表于 2026-8-1 22:57
+
+<img src="https://img.stage1st.com/forum/202608/01/225725lvcvdd7qao1d1qoa.jpg" referrerpolicy="no-referrer">
+
+<strong>1000052029.jpg</strong> (143.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-1 22:57 上传
+
+开始内测，真的能八月初端上来吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  厍无春  
+##### 4733#       发表于 2026-8-1 22:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998872&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-8-1 22:39</a>
+opencode的可以自己写配置文件改成1M</blockquote>
+啊？这么改有用？我还以为 api 限制？
+
