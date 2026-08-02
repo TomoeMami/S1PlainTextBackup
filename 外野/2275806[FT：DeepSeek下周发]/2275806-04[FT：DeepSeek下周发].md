@@ -4452,3 +4452,13 @@ glm 5.2被斩杀了<img src="https://static.stage1st.com/image/smiley/face2017/0
 
 agent能力提升太大了 自己就会拆分任务创建子agent而不是瞎编幻觉流口水。家里智能化可以都给homeassistant了 再贱米猴极客版<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 4831#       发表于 2026-8-2 20:28
+
+很多人说本地部署的更聪明
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

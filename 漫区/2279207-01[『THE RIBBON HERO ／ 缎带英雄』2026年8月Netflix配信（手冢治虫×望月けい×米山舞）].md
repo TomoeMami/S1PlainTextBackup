@@ -879,3 +879,52 @@ CGディレクター：長嶺明音
 変身シーン先行公開！
 [https://youtu.be/tpLQKVdwsPU](https://youtu.be/tpLQKVdwsPU)
 
+
+*****
+
+####  按时间灵活  
+##### 72#       发表于 2026-8-2 20:29
+
+‧˚₊•┈┈┈STAFFイラスト公開┈┈┈•‧₊˚⊹
+
+　　　　　　　illustration
+
+　アニメーションキャラクターデザイン
+
+　　　　　　　 新垣一成
+
+‧˚₊•┈┈┈┈┈┈┈୨୧┈┈┈┈┈┈┈•‧₊˚⊹
+
+配信まであと7日！
+
+<img src="https://img.stage1st.com/forum/202608/02/202925n7e8cfxf4f7fbhqa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (264.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 20:29 上传
+
+*****
+
+####  按时间灵活  
+##### 73#       发表于 2026-8-2 20:30
+
+‧˚₊•┈┈┈STAFFイラスト公開┈┈┈•‧₊˚⊹
+
+　　　　　　　illustration
+
+　　　メインアニメーター：河田泉
+
+‧˚₊•┈┈┈┈┈┈┈୨୧┈┈┈┈┈┈┈•‧₊˚⊹
+
+配信まであと６日！
+
+<img src="https://img.stage1st.com/forum/202608/02/203009vi7uth07xz68hivv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (166.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 20:30 上传
+
