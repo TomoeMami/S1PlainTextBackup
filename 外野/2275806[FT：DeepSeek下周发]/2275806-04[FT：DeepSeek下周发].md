@@ -3888,3 +3888,20 @@ responses只是一种请求结构，是需要供应商自己来适配实现的�
 我看了 ds 关于 codex 的文档，客户端是不是必须先登录进去才能用 ds？单位电脑禁止挂梯子，有没有跳过的办 ...</blockquote>
 直接换一个就行，比如zcode或者PI，codex测下来并不是很好
 
+
+*****
+
+####  厍无春  
+##### 4783#       发表于 2026-8-2 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000609&amp;ptid=2275806" target="_blank">北呱南飞去 发表于 2026-8-2 11:59</a>
+我看了 ds 关于 codex 的文档，客户端是不是必须先登录进去才能用 ds？单位电脑禁止挂梯子，有没有跳过的办 ...</blockquote>
+不用，安装完 codex 启动一下，不用登录，再把它完全关了，运行官方文档给的那个指令就行
+
+*****
+
+####  wpwing  
+##### 4784#       发表于 2026-8-2 12:16
+
+opencode也不错，其他有更好的么？
+
