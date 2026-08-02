@@ -1048,3 +1048,51 @@ extra任务160
 
 石头白充了<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 21163#       发表于 2026-8-2 17:10
+
+<img src="https://img.stage1st.com/forum/202608/02/171039cmjfh7jjmm687r4n.png" referrerpolicy="no-referrer">
+
+<strong>3456.png</strong> (697.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 17:10 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 21164#       发表于 2026-8-2 17:14
+
+狗托来了
+
+*****
+
+####  森兰丸  
+##### 21165#       发表于 2026-8-2 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001510&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-2 17:10</a></blockquote>
+狗盟新还是一如既往的狗萌新!<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 21166#       发表于 2026-8-2 17:15
+
+<img src="https://img.stage1st.com/forum/202608/02/171521bq6ddzd5hrq2dqs6.jpg" referrerpolicy="no-referrer">
+
+<strong>1785661996242.jpg</strong> (361.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-2 17:15 上传
+
+卡面还可以，三破有点幻视死亡细胞男主...
+

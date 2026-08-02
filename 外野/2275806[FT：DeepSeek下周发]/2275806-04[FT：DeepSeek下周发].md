@@ -4140,3 +4140,42 @@ Qwen3.7 Max 稍好一些。它的回答、流式 reasoning、工具调用都能�
 
 看了下东山奈央的评测文章，看起来ds的第一方harness还真有说法<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4801#       发表于 2026-8-2 17:05
+
+用v4flash给娃做了个拍照片还原魔方的app，跑了一小时才花了两块钱<img src="https://static.stage1st.com/image/smiley/face2017/159.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  SimonOpera  
+##### 4802#       发表于 2026-8-2 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001450&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-2 16:50</a>
+看了下东山奈央的评测文章，看起来ds的第一方harness还真有说法</blockquote>
+求个链接<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Promeus  
+##### 4803#       发表于 2026-8-2 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001504&amp;ptid=2275806" target="_blank">SimonOpera 发表于 2026-8-2 17:09</a>
+求个链接
+
+—— 来自 vivo V2405A, Android 16, 鹅球 v3.5.99</blockquote>
+https://www.zhihu.com/question/2066524692392031246/answer/2067221073234507123?utm_psn=2067296074373637360
+
+*****
+
+####  Promeus  
+##### 4804#       发表于 2026-8-2 17:10
+
+"Harness 差异主要在 Claude Code 与 Codex 的默认设置和工具链不同。其中 Claude Code 默认的单次输出长度限制了 Flash 的发挥。Flash 和先前preview 一样，喜欢在动手前想清楚，在复杂项目的规划阶段，Flash 一次思考有可能达到 50K Token。而 Codex 则是因为自身迭代频繁，Flash 对其中的工具使用效率偏低，同样任务可能会多 30~40% 步数。不过从最终效果来看，两种 Harness 差异不大。而即将发布的自家 Harness 能同时解决默认配置和工具熟悉问题，至少不会在这方面拖后腿。"
+
