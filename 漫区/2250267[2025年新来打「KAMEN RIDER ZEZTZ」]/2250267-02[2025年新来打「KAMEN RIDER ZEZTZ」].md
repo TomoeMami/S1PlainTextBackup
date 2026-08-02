@@ -214,3 +214,11 @@ boss大概还是忘却
 
 后面两集是牢柴啊，又要做好准备了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 2126#       发表于 2026-8-2 12:38
+
+柠檬在现实一板一眼的用日式英语读recall the dream ，我以为你是当红偶像会注意一下的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -3933,3 +3933,15 @@ GPT 5.6 LUNA
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  很久就在那边l  
+##### 4788#       发表于 2026-8-2 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000725&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-2 12:36</a>
+话说国产harness和ccoc到底有多大差距
+
+—— 来自 HONOR AAK-AN00, Android 16, 鹅球 v3.5.99 ...</blockquote>
+代码不好说但是日常办公workbuddy完胜，非程序员无脑选workbuddy就行了
+

@@ -564,3 +564,17 @@ bug有原汁原味移植吗<img src="https://static.stage1st.com/image/smiley/fa
 
 这个怎么想起来移植最差的一做的，怎么想的，把钢之季节移植下也好啊，或者2R，3，4都行，甚至1R都行，哪个不比这个卖相好，这是要把这个ip往死里整啊，跟重装机兵有仇吧
 
+
+*****
+
+####  七月狼  
+##### 56#       发表于 2026-8-2 12:44
+
+ 本帖最后由 七月狼 于 2026-8-2 12:45 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69999992&amp;ptid=2286627" target="_blank">wingzerocos 发表于 2026-8-2 09:12</a>
+
+这红狼怎么看着不像梅卡瓦？
+
+但下面小图标又没错。</blockquote>
+我猜可能是国内公司的美工自己画的，然后画的时候并不知道狼车是梅卡瓦甚至不懂坦克，照着图标和淘宝小坦克素材图自行发挥<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
