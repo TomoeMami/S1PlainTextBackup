@@ -222,3 +222,24 @@ boss大概还是忘却
 
 柠檬在现实一板一眼的用日式英语读recall the dream ，我以为你是当红偶像会注意一下的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 2127#       发表于 2026-8-2 13:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">恢复胶囊还在发力。太超模了
+
+
+*****
+
+####  饭冢武也  
+##### 2128#       发表于 2026-8-2 13:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000110&amp;ptid=2250267" target="_blank">挺好的 发表于 2026-8-2 09:51</a>
+
+夫人的不死性这点只可能释怀和解，当boss不太可能了，毕竟和nox一起被关起来了，结尾还是要出来的
+
+boss大概 ...</blockquote>
+看剧场版的意思，夫人应该是活下来了
+
