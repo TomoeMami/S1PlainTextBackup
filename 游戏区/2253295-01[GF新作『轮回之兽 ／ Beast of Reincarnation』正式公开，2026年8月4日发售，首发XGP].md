@@ -681,3 +681,21 @@ pc盗版现在只能玩30g的早期版本。
 
 boss打完的演出像素级复刻旺达与巨像啊，看乐了
 
+
+*****
+
+####  fantuanxiaoyi  
+##### 353#       发表于 2026-8-2 23:51
+
+这个游戏手感是尼尔2开始这堆游戏里最烂的，感觉是怪猎OL。
+
+*****
+
+####  杀仁老登  
+##### 354#       发表于 2026-8-2 23:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70002508&amp;ptid=2253295" target="_blank">violettor 发表于 2026-8-2 22:16</a>
+
+boss打完的演出像素级复刻旺达与巨像啊，看乐了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我第一反应也是旺达，但仔细想想应该是幽灵公主
+

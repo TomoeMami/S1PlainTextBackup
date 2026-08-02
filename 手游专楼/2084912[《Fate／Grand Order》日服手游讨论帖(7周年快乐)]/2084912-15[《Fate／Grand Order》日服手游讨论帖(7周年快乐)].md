@@ -1626,3 +1626,14 @@ b0d66a4e82395f49cefe27b2970b2e0c33874.png@1052w_!web-dynamic.webp
 看了 ...</blockquote>
 我的玩法就是满了6羁绊就马上换下去，尽量找不同队伍来减少羁绊的提升<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 21217#       发表于 2026-8-2 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70002842&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-8-2 23:44</a>
+
+我的玩法就是满了6羁绊就马上换下去，尽量找不同队伍来减少羁绊的提升</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">总觉得好像哪里还是不对 因为我梦火还有30几个。。。
+
