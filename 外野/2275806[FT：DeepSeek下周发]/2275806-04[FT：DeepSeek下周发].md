@@ -4630,3 +4630,25 @@ glm 5.2被斩杀了</blockquote>
 量化性能之后还有多少</blockquote>
 按QWEN和之前R1量化的例子来看就算有损也是吊打下面同体积的小模型的
 
+
+*****
+
+####  MeursaulT  
+##### 4847#       发表于 2026-8-3 01:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001672&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-2 17:59</a>
+你们说第ds被墙这个能发一下问题链接吗？什么叫以公司的形式来墙    Re:Source ...</blockquote>
+可能墙的不止ds。我在外企，除了gpt和claude什么ai服务都访问不了，gemini grok ds qwen kimi全屏蔽。因为公司只跟oa买了企业服务，考虑到数据安全，就墙了别的。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  squallx  
+##### 4848#       发表于 2026-8-3 01:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70002642&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-2 22:54</a>
+
+周末用v4f处理了一些问题，我觉得我已经离不开AI了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">之前是便宜够用 现在是还变的好用了
+
+已经通过hermes接入homeassistand突出一个陪伴    再见了米猴家，下一步是夺舍小爱同学<img src="https://static.stage1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
