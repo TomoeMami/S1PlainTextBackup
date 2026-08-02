@@ -81,3 +81,11 @@
 
 三木掉水里，三小只发表感言，进度条还有一半，真吓人
 
+
+*****
+
+####  永恒的王牌  
+##### 716#       发表于 2026-8-2 22:18
+
+没想到新究极体带来的最大讨论是金刚武神兽功绩被偷<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

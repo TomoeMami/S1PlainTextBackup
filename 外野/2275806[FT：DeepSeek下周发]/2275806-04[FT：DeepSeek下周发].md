@@ -4475,3 +4475,26 @@ luna降价有人猜原因是rudin这代卡到位了算力没那么紧张了
 算力这方面还得追几年 ...</blockquote>
 降价的原因主要不是这个，主要还是竞争激烈和底层优化导致的
 
+
+*****
+
+####  phorcys02  
+##### 4833#       发表于 2026-8-2 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001616&amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-8-2 17:42</a>
+
+墙有啥用，就算只有三分之一官方api的效能对于中等规模企业本地部署也比买o/，A/的服务划算，毕竟这涉及到 ...</blockquote>
+这毕竟是flash,体积小, 本地部署非常友好...
+
+128g的mac 就能有二三十t/s
+
+公司用花点小钱买两块 pro6000,  直接 250 t/s pp更是突破6000t/s
+
+[https://localmaxxing.com/zh-CN/m ... i/DeepSeek-V4-Flash](https://localmaxxing.com/zh-CN/models/deepseek-ai/DeepSeek-V4-Flash)
+
+本地就有接近opus4.8和glm5.2的 llm了, 而且比官网api还快好多, 价钱说实话对于公司跟白送的一样...
+
+如果肯继续花钱上b200 或者355x 这种带hbm的,估计速度还会更快
+
+我不敢想硅谷中小型公司看到v4flash这个水平,考虑到马上要来的v4pro 是会继续掏钱给 A/还是直接花每年 5%的token费,管老黄苏妈买卡本地部署了:D
+
