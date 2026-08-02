@@ -1249,3 +1249,59 @@ extra任务160
 
 这么多福袋，除了必new的那一个，其他的我居然全是喜+1<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 21185#       发表于 2026-8-2 18:41
+
+<blockquote>alucardcz 发表于 2026-8-2 18:21
+摸尬黑 萌新今年都8月了 才几个5星 你看看你都出了多少个了 欧！</blockquote>
+
+五星new只有8个 其中还有一个是阿提拉 非的不行
+
+*****
+
+####  格林卡罗尔  
+##### 21186#       发表于 2026-8-2 18:41
+
+ 本帖最后由 格林卡罗尔 于 2026-8-2 18:43 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好存了点石头，这次福袋好像一单不够抽？
+
+山中队员乍一看是减CD，仔细看只能减自己给我干无语了
+
+*****
+
+####  alucardcz  
+##### 21187#       发表于 2026-8-2 18:42
+
+<img src="https://img.stage1st.com/forum/202608/02/184159ksw1wdhe097su1rh.png" referrerpolicy="no-referrer">
+
+<strong>1235.png</strong> (532.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 18:41 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">轻松搞定  所长+官呆+2姐 
+
+*****
+
+####  alucardcz  
+##### 21188#       发表于 2026-8-2 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001786&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-8-2 18:41</a>
+
+五星new只有8个 其中还有一个是阿提拉 非的不行</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/02/184412ak2o5lkj7w91sk57.png" referrerpolicy="no-referrer">
+
+<strong>5555.png</strong> (236.73 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 18:44 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">太欧了 萌新才5个
+

@@ -49,3 +49,11 @@
 这羽羽斩兽也太太太丑了吧，dm现在是除了人形怪之外都不会设计了吗<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 还有老早就想吐槽了，dm在手部的设计为什么老是喜欢设计这种雷霆大手
 
+
+*****
+
+####  leleq  
+##### 712#       发表于 2026-8-2 18:35
+
+49集就现在这个节奏妥妥要烂尾了吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
