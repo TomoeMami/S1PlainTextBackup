@@ -4444,3 +4444,11 @@ luna降价有人猜原因是rudin这代卡到位了算力没那么紧张了
 
 glm 5.2被斩杀了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  squallx  
+##### 4830#       发表于 2026-8-2 19:29
+
+agent能力提升太大了 自己就会拆分任务创建子agent而不是瞎编幻觉流口水。家里智能化可以都给homeassistant了 再贱米猴极客版<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
