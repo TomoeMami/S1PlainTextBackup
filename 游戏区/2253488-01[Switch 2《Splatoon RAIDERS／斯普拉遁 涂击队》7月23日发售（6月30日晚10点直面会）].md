@@ -6503,3 +6503,13 @@ https://gamewith.jp/splatoon-raiders/569753
 这个一百层boss真的有点恶心吧血也太厚刮得累死了，招式都是不小心被蹭一下黏上就要死的 ...</blockquote>
 我用忍者跃升加特林硬灌感觉就很简单了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这玩意不吃异常只能dps硬怼
 
+
+*****
+
+####  hl氏  
+##### 794#       发表于 2026-8-2 12:48
+
+100层的时候我是力量包，飞天+砸地+手枪，手枪打BOSS很有用，被逼到墙角我还能远程攻击，加上砸地期间无敌，我这套打起来很安逸
+
+100层我都是只用配件输出，但是再下去越来越讲效率，我还是转速度用回主武器了
+
