@@ -4462,3 +4462,16 @@ agent能力提升太大了 自己就会拆分任务创建子agent而不是瞎编
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  drodchang  
+##### 4832#       发表于 2026-8-2 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001908&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-8-2 19:22</a>
+
+luna降价有人猜原因是rudin这代卡到位了算力没那么紧张了
+
+算力这方面还得追几年 ...</blockquote>
+降价的原因主要不是这个，主要还是竞争激烈和底层优化导致的
+

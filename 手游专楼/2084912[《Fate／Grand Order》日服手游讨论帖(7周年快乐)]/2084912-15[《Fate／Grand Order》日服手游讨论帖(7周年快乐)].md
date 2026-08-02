@@ -1484,3 +1484,31 @@ extra任务160
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这强化本一大半已经内定了 有什么号等的
 
+
+*****
+
+####  岸浪白野  
+##### 21206#       发表于 2026-8-2 21:12
+
+ 本帖最后由 岸浪白野 于 2026-8-2 21:15 编辑 
+
+方式标高难度关卡入手和大梦火说明是特定商店交换才有是不同的
+是你3000芙芙能在3个月深渊商店总换才是额外入手方式吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我算你1个月才开1次活动送1组，1年最多就12组
+
+<img src="https://img.stage1st.com/forum/202608/02/211113y4oh5l4brenoa7ag.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1785676271876_1.webp</strong> (198.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 21:11 上传
+
+<img src="https://img.stage1st.com/forum/202608/02/211113hsib259smsbssbmr.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1785676272285_2.webp</strong> (173.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 21:11 上传
+
