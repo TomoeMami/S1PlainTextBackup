@@ -4584,3 +4584,23 @@ glm 5.2被斩杀了</blockquote>
 是说 luna 开 max 思考完成时长可能和 luma 开 high 差不多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 不是和别家的时间比    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  Promeus  
+##### 4843#       发表于 2026-8-3 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003061&amp;ptid=2275806" target="_blank">雨昼斯基 发表于 2026-8-3 00:21</a>
+是说 luna 开 max 思考完成时长可能和 luma 开 high 差不多
+不是和别家的时间比    Re:Source ...</blockquote>
+就是说high还没那么雷霆蜗牛<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 4844#       发表于 2026-8-3 00:29
+
+反正我用codex都是要么xhigh，要么ultra<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
