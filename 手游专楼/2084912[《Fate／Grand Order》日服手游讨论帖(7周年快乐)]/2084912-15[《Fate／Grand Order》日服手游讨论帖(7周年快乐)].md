@@ -389,3 +389,69 @@ AI大概想不出大脚糊脸这种构思<img src="https://static.stage1st.com/i
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  司马千晶  
+##### 21089#       发表于 2026-8-2 15:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们fgo怎么用300英雄的捏他
+
+*****
+
+####  char0311131  
+##### 21090#       发表于 2026-8-2 15:27
+
+pv最后有cv表，但是我看的pv怎么没听到人声？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 21091#       发表于 2026-8-2 15:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001214&amp;ptid=2084912" target="_blank">char0311131 发表于 2026-8-2 15:27</a>
+
+pv最后有cv表，但是我看的pv怎么没听到人声？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你点进去得时候已经放了会了把 开头有语音
+
+*****
+
+####  壳壳牛  
+##### 21092#       发表于 2026-8-2 15:29
+
+那我要奶一个咕哒上座了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吐谷浑  
+##### 21093#       发表于 2026-8-2 15:29
+
+五星巨侠？
+
+*****
+
+####  char0311131  
+##### 21094#       发表于 2026-8-2 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001215&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-2 15:28</a>
+你点进去得时候已经放了会了把 开头有语音</blockquote>
+那后面那么大段都是没语音的？还是我进的直播间有问题？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 21095#       发表于 2026-8-2 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001221&amp;ptid=2084912" target="_blank">char0311131 发表于 2026-8-2 15:29</a>
+
+那后面那么大段都是没语音的？还是我进的直播间有问题？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">红a开始就是默剧了！要用心感受！
+
+*****
+
+####  char0311131  
+##### 21096#       发表于 2026-8-2 15:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

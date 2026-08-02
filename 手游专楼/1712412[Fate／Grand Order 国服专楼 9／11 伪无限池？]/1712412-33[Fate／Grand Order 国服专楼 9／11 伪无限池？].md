@@ -1617,3 +1617,13 @@ QP真是永远痛
 
 说起啦狗粮也不够了
 
+
+*****
+
+####  Kon-El  
+##### 48029#       发表于 2026-8-2 15:32
+
+刚把学姐拉到120没打两把就15绊满了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
