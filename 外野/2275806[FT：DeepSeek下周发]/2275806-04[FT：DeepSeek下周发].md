@@ -4518,3 +4518,11 @@ luna降价有人猜原因是rudin这代卡到位了算力没那么紧张了
 降价六个小时就斩杀？而且哪怕没有这个正式版，别的国模不会降价吗？</blockquote>
 抓紧一切能赢的机会赢，先赢了再说。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cscbzcbz  
+##### 4836#       发表于 2026-8-2 22:54
+
+周末用v4f处理了一些问题，我觉得我已经离不开AI了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
