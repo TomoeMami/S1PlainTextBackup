@@ -1287,3 +1287,28 @@ Z1是最好的机战之一，没有汉化太遗憾了，现在AI这么强，居�
 z1也快20年了吧。别说完不完美，现在要玩要么模拟器，要么玩家去搞ps2。财团b想再卖一份赚钱就只能妇科了 ...</blockquote>
 主要Z除了画面我想不到有啥重置的了，毕竟小队有，然后前半部分每关设计得也不错，SR点也还算有点挑战性（特别是完蛋人的一些）。Z2倒是能加点立绘和战场机体模型，虽然我也觉得没啥必要就是了，再加个纯数值增强类的高难度真别来了。。
 
+
+*****
+
+####  岸波白野  
+##### 134#       发表于 2026-8-2 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70002083&amp;ptid=2286736" target="_blank">feizong 发表于 2026-8-2 20:12</a>
+Z1是最好的机战之一，没有汉化太遗憾了，现在AI这么强，居然也没有用爱发电的大佬整出来 ...</blockquote>
+星组在做了
+
+
+*****
+
+####  椎名mahuyo  
+##### 135#       发表于 2026-8-3 00:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真最好嘛，到后面还不是变成MAP无双了
+
+*****
+
+####  卡博雷z  
+##### 136#         楼主| 发表于 2026-8-3 00:04
+
+z1前中期全sr还有点麻烦，后面只知道用七波和月光蝶清图了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
