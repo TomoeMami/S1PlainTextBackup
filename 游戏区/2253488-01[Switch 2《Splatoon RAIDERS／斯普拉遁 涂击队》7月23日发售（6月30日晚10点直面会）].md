@@ -6702,3 +6702,11 @@ https://gamewith.jp/splatoon-raiders/569753
 读盘确实很久 splatoon这系列进游戏一直都很慢
 今晚联机打到150层感觉我的灼烧发酵地板流不配保命技能碰到那种全是炸弹的关卡真的很容易暴毙
 
+
+*****
+
+####  Leona_Akari  
+##### 814#       发表于 2026-8-3 01:12
+
+主线通关后先清了点关卡升到了50级，然后发现点数不够，再一看沟通竟然还有三个挑战，最远的那个在60多级的图里，早知道不点生命了，应该先把攻击力和配件拉满的，最后一级竟然是30%……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

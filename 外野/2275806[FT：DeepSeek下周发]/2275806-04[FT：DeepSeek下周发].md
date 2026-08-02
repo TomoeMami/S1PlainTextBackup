@@ -4619,3 +4619,14 @@ glm 5.2被斩杀了</blockquote>
 公司用花点小钱买两块 pro6000,  ...</blockquote>
 量化性能之后还有多少
 
+
+*****
+
+####  squallx  
+##### 4846#       发表于 2026-8-3 01:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003128&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-8-3 00:42</a>
+
+量化性能之后还有多少</blockquote>
+按QWEN和之前R1量化的例子来看就算有损也是吊打下面同体积的小模型的
+
