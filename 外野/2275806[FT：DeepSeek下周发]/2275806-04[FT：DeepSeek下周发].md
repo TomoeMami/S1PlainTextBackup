@@ -4506,3 +4506,15 @@ luna降价有人猜原因是rudin这代卡到位了算力没那么紧张了
 
 关键还是商业秘密，你用了a/，o/的在线服务，那是在自我蒸馏把赚钱法门倒贴钱给这两畜，有本地选项谁会这么傻
 
+
+*****
+
+####  来都来了  
+##### 4835#       发表于 2026-8-2 22:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001747&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-2 18:28</a>
+我是不知道那天这帮人为啥这么急
+
+降价六个小时就斩杀？而且哪怕没有这个正式版，别的国模不会降价吗？</blockquote>
+抓紧一切能赢的机会赢，先赢了再说。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

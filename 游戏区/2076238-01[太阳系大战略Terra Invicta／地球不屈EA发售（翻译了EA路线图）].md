@@ -1913,3 +1913,14 @@ ps：这游戏当rpg玩会更带感
 
 新dlc看评价都号称东亚部分粗制滥造，那还值得买吗
 
+
+*****
+
+####  cwbn  
+##### 187#       发表于 2026-8-2 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70002572&amp;ptid=2076238" target="_blank">sandro 发表于 2026-8-2 22:32</a>
+
+新dlc看评价都号称东亚部分粗制滥造，那还值得买吗</blockquote>
+其实所有的部分都很粗糙，还有玩梗的，美西有个势力叫卡斯卡迪亚，翅膀人狂喜
+
