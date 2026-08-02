@@ -152,3 +152,11 @@
 
 到十月差不多能送7W钻，自己算着抽就行了
 
+
+*****
+
+####  森兰丸  
+##### 4594#       发表于 2026-8-2 20:37
+
+这次的大奖不是让UR迪奥开卡池艾比安吗<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
