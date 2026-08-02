@@ -3626,3 +3626,16 @@ m3免费了？
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  奈落的孤火花  
+##### 4759#       发表于 2026-8-2 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69999738&amp;ptid=2275806" target="_blank">玲娜贝尔 发表于 2026-8-2 06:38</a>
+
+基元律动注册送68元Token，可用12种国内模型
+
+https://tokenrhythm.studio/i/rf_tr_iK2qoQvnYbXev7nAEcycym ...</blockquote>
+感谢，不过看了一下怎么dsv4f不支持response api，难道还是老款，我看官方新款已经支持了<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
