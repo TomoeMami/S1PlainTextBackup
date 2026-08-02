@@ -6477,3 +6477,11 @@ https://gamewith.jp/splatoon-raiders/569753
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  otakun  
+##### 791#       发表于 2026-8-2 11:26
+
+刷到陨石拳套的三重分身配件了，虽然高层打不动，但拳套帅啊，可惜分身好像不跟其实配件有联动<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

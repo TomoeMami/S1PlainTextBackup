@@ -3795,3 +3795,27 @@ responses只是一种请求结构，是需要供应商自己来适配实现的�
 
 拿到赶紧蹬了，免得像硅基一样赖账
 
+
+*****
+
+####  neptunehs  
+##### 4774#       发表于 2026-8-2 11:28
+
+flash的token用量确实是上涨的感觉
+以前opencode free的flash的免费额度能用到晚上才用完 现在一个上午就没了
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  nxmonitor  
+##### 4775#       发表于 2026-8-2 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000464&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-2 11:28</a>
+
+flash的token用量确实是上涨的感觉
+
+以前opencode free的flash的免费额度能用到晚上才用完 现在一个上午就没 ...</blockquote>
+换个harness，然后再配个识图的小模型，会好一点，不然现在会反复截图验证，但是没法识图额外消耗token，甚至容易左右互搏
+

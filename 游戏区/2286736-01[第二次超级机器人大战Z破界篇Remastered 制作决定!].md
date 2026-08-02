@@ -1002,3 +1002,47 @@ Z1太完美了 根本不需要重置</blockquote>
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  8604132000  
+##### 108#       发表于 2026-8-2 11:24
+
+其实我觉得还行 Z2当年还是很豪华的，破界再世卖完了还能卖Z3。Z3当年没玩到中文版一直耿耿于怀 这次可以补票了
+
+*****
+
+####  qiyu1234  
+##### 109#       发表于 2026-8-2 11:25
+
+中英文LOGO
+
+<img src="https://img.stage1st.com/forum/202608/02/112328dc66ko844t4ckpi4.jpg" referrerpolicy="no-referrer">
+
+<strong>256.jpg</strong> (296.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 11:23 上传
+
+<img src="https://img.stage1st.com/forum/202608/02/112327erk4ff7vmfms111r.jpg" referrerpolicy="no-referrer">
+
+<strong>016.jpg</strong> (357.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 11:23 上传
+
+话说英文官方名直接就叫 Z II啊（全名 Super Robot Wars Z II: Ruination Remastered），还以为会把2nd加在前面
+
+*****
+
+####  wlhlz  
+##### 110#       发表于 2026-8-2 11:27
+
+ 本帖最后由 wlhlz 于 2026-8-2 11:29 编辑 
+
+破界是我第一款玩到一半玩不下去的机战，之后除了2OG我就再也没通关过机战了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
