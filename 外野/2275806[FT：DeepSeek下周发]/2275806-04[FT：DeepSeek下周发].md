@@ -3913,3 +3913,23 @@ opencode也不错，其他有更好的么？
 
 专门用来识图的模型用哪个好呢
 
+
+*****
+
+####  spaceblue  
+##### 4786#       发表于 2026-8-2 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000696&amp;ptid=2275806" target="_blank">抽搐一下 发表于 2026-8-2 12:26</a>
+
+专门用来识图的模型用哪个好呢</blockquote>
+GPT 5.6 LUNA
+
+*****
+
+####  lactone  
+##### 4787#       发表于 2026-8-2 12:36
+
+话说国产harness和ccoc到底有多大差距
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

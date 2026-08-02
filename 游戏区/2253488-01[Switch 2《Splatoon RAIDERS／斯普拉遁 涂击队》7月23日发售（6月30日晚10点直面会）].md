@@ -6493,3 +6493,13 @@ https://gamewith.jp/splatoon-raiders/569753
 
 这个一百层boss真的有点恶心吧血也太厚刮得累死了，招式都是不小心被蹭一下黏上就要死的
 
+
+*****
+
+####  qwased  
+##### 793#       发表于 2026-8-2 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000561&amp;ptid=2253488" target="_blank">u2deack 发表于 2026-8-2 11:45</a>
+这个一百层boss真的有点恶心吧血也太厚刮得累死了，招式都是不小心被蹭一下黏上就要死的 ...</blockquote>
+我用忍者跃升加特林硬灌感觉就很简单了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这玩意不吃异常只能dps硬怼
+

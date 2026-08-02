@@ -1315,3 +1315,19 @@ PSV版：
 
 灿剧情似乎微调了点。
 
+
+*****
+
+####  DARK_HGCG  
+##### 112#       发表于 2026-8-2 12:36
+
+！！！！
+
+<img src="https://img.stage1st.com/forum/202608/02/123638cpwfolv3hffltvl4.jpg" referrerpolicy="no-referrer">
+
+<strong>27960.jpg</strong> (403.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 12:36 上传
+
