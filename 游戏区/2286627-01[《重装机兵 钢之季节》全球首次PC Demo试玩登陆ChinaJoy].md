@@ -545,3 +545,14 @@ bug有原汁原味移植吗<img src="https://static.stage1st.com/image/smiley/fa
 
 3 2R 4那套东西玩起来真挺爽的，啥时候把这三部丢steam上啊
 
+
+*****
+
+####  wingzerocos  
+##### 54#       发表于 2026-8-2 09:12
+
+ 本帖最后由 wingzerocos 于 2026-8-2 09:13 编辑 
+
+这红狼怎么看着不像梅卡瓦？
+但下面小图标又没错。
+

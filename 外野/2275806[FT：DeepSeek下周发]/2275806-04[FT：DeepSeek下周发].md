@@ -3596,3 +3596,14 @@ m3免费了？
 
 —— 来自 HUAWEI SGT-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  冤枉呐  
+##### 4756#       发表于 2026-8-2 09:12
+
+笑死，网页版是不是也更新了
+<img src="https://p.sda1.dev/34/48e27fb0dd6733e987d230c46a4d73ef/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

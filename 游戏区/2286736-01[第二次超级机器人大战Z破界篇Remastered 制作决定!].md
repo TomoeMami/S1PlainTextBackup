@@ -831,3 +831,35 @@ Z1太完美了 根本不需要重置</blockquote>
 
 等第一个视频公布后再说吧，各种排列组合能列出很多种重制逻辑，甚至都会有dlc商法。vtx30y主角机反哺加入都有可能。。。
 
+
+*****
+
+####  wety  
+##### 91#       发表于 2026-8-2 09:08
+
+为啥是第二次z，因为素材都有了吗，感觉没头没脑的重置
+
+*****
+
+####  琴酒  
+##### 92#       发表于 2026-8-2 09:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69999978&amp;ptid=2286736" target="_blank">wety 发表于 2026-8-2 09:08</a>
+
+为啥是第二次z，因为素材都有了吗，感觉没头没脑的重置</blockquote>
+有人说最便宜 素材有
+
+
+*****
+
+####  强尼高达  
+##### 93#       发表于 2026-8-2 09:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69999444&amp;ptid=2286736" target="_blank">Meltina 发表于 2026-8-2 01:08</a>
+破界（还是再世？）就是最后一关格纳库有TM快10页没得上场的单位那作吧？史上最大替补阵容的战棋
+
+这次敢加 ...</blockquote>
+是12页，去年刚把太监的记录打完
+
+<img src="https://s41.ax1x.com/2026/08/02/pm4HJmt.md.jpg" referrerpolicy="no-referrer">
+
