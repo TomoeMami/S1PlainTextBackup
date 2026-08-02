@@ -1590,3 +1590,16 @@ BGO的程序员是不是应该祭天了
 抱着试试的心态两个十连终于捞到了奥伯龙，双奥伯龙配个二宝月批一锤子300万也太爽了 ...</blockquote>
 点好树，诺克娜蕾+奥伯龙，用极地服满配所长打风所长也是300多W<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朝仓和美  
+##### 48027#       发表于 2026-8-2 09:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998751&amp;ptid=1712412" target="_blank">赤备传承 发表于 2026-8-1 22:13</a>
+所长池子前360石头只有两个四星，上次大更删了游戏，每次抽卡都走数据，惊心动魄。。。
+
+450石头才第一次灭 ...</blockquote>
+真不错，比我好多了
+我ex福袋new了若安，其他福袋我就直接放弃了
+

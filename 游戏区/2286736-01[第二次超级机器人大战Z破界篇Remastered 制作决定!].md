@@ -863,3 +863,13 @@ Z1太完美了 根本不需要重置</blockquote>
 
 <img src="https://s41.ax1x.com/2026/08/02/pm4HJmt.md.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  性急的蜗牛  
+##### 94#       发表于 2026-8-2 09:21
+
+破界还是有一些有意思的联动的，比如前期的高达歼灭作战，但架不住中期开始就是无限的次元兽次元兽次元兽。破界王也是个从头到尾莫名其妙的角色。
+
+这作好在读盘速度没有MXP那么夸张，后者我是真的好几次打一半睡着被psp砸脸上的<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

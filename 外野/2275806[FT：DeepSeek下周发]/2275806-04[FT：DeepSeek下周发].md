@@ -3607,3 +3607,22 @@ m3免费了？
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nxmonitor  
+##### 4757#       发表于 2026-8-2 09:18
+
+好像没有，repeat Nameeee还是不能出结果
+
+*****
+
+####  冤枉呐  
+##### 4758#       发表于 2026-8-2 09:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000004&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-2 09:18</a>
+好像没有，repeat Nameeee还是不能出结果</blockquote>
+但是网页版演个皮里阳秋的网友，还是能演的
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
