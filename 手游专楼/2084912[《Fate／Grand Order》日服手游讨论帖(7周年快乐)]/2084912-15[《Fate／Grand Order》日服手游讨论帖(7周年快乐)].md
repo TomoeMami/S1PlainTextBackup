@@ -807,3 +807,161 @@ emmmmm
 冠位战金棺材溢出的补偿措施.JPG
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 21139#       发表于 2026-8-2 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001384&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-8-2 16:25</a>
+
+30+30+15
+
+硬控你1单，对比同行还是便宜的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恭喜你又要多课30石（
+
+*****
+
+####  壳壳牛  
+##### 21140#       发表于 2026-8-2 16:36
+
+什么垃圾福袋？？？？
+
+*****
+
+####  exiaexa  
+##### 21141#       发表于 2026-8-2 16:36
+
+有病啊，搁那儿放2.7的bgm
+
+我还以为勇者王要落地了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超阳电子炮  
+##### 21142#       发表于 2026-8-2 16:36
+
+兽福袋可还行
+
+*****
+
+####  alucardcz  
+##### 21143#       发表于 2026-8-2 16:36
+
+哎 拿要钱的东西当压轴 何意味<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 21144#       发表于 2026-8-2 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001410&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-2 16:36</a>
+
+恭喜你又要多课30石（</blockquote>
+这个纯垃圾福袋啊
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 21145#       发表于 2026-8-2 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001417&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-8-2 16:36</a>
+
+这个纯垃圾福袋啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事 萌新被终章伤到后已经不课所有福袋了（
+
+*****
+
+####  Jamaisvu  
+##### 21146#       发表于 2026-8-2 16:38
+
+兽福袋...纯盘子福袋啊...
+
+*****
+
+####  森兰丸  
+##### 21147#       发表于 2026-8-2 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69994021&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-7-31 19:43</a>
+
+欧  萌新重复了2张 开始没注意 以为换过的不会显示</blockquote>
+欧盟新个妹妹啊....周年从者本身起码打算抽个2宝的....这下是一点抽的欲望也没了
+
+接下来只能专心备战泳装了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yangun22  
+##### 21148#       发表于 2026-8-2 16:39
+
+所有的福袋不都是盘子福袋吗<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 21149#       发表于 2026-8-2 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001424&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-8-2 16:38</a>
+
+欧盟新个妹妹啊....周年从者本身起码打算抽个2宝的....这下是一点抽的欲望也没了
+
+接下来只能专心备战泳 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5宝走起啊！ 不要怂
+
+*****
+
+####  希望之花  
+##### 21150#       发表于 2026-8-2 16:39
+
+拉小弟和蝙蝠小弟携手梦碎11周年
+
+*****
+
+####  khxooo  
+##### 21151#       发表于 2026-8-2 16:40
+
+现在统计不到400石头，王哈就不抽了，等莉莉丝
+
+
+*****
+
+####  cckuku  
+##### 21152#       发表于 2026-8-2 16:42
+
+yls是没统计这几个兽的五宝持有率多高吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 21153#       发表于 2026-8-2 16:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001426&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-2 16:39</a>
+
+5宝走起啊！ 不要怂</blockquote>
+萌新给我充石头的话.................
+
+可能我会考虑把帝王花给拉到5宝<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 21154#       发表于 2026-8-2 16:45
+
+限时登陆30
+
+extra任务160
+
+冠位任务90
+
+主线推进40+20
+
+学园祭任务10
+
+直播活动100
+
+到手能有400/450差不多了
+
+护符没算
+
