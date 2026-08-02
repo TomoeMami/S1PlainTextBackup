@@ -1658,3 +1658,25 @@ b0d66a4e82395f49cefe27b2970b2e0c33874.png@1052w_!web-dynamic.webp
 你还有30多个梦火啊，那就不奇怪了。你是集中升那几个，我这是平铺玩法，而且我还给低星喂。 ...</blockquote>
 你升6又不要梦火 所以不是更不对了。。你梦火应该比我多很多才对<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 21220#       发表于 2026-8-3 00:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003031&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-3 00:13</a>
+
+你升6又不要梦火 所以不是更不对了。。你梦火应该比我多很多才对</blockquote>
+有没有可能，我之前没有金方块换梦火，或者根本没有换梦火，直到后来才开始换，所以比你少<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 21221#       发表于 2026-8-3 00:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003039&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-8-3 00:15</a>
+
+有没有可能，我之前没有金方块换梦火，或者根本没有换梦火，直到后来才开始换，所以比你少 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">漏油居然不换梦火 从未设想过的道路
+

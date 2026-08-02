@@ -4563,3 +4563,24 @@ glm 5.2被斩杀了</blockquote>
 我是不懂为啥那么多人喷东山奈央不测luna的max档位，“害得luna输给了v4f”，gpt的max档位太jb墨迹了，ultr ...</blockquote>
 现在还能用用时说一下，开到 max 时长差不多，分数也差不多，那不更搞笑了吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  Promeus  
+##### 4841#       发表于 2026-8-3 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70002836&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-2 23:42</a>
+现在还能用用时说一下，开到 max 时长差不多，分数也差不多，那不更搞笑了吗    Re:Source ...</blockquote>
+什么时长差不多，屎山测试那个luna max干了整整仨小时还没搞定一个bug，突出一个慢工出烂活<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雨昼斯基  
+##### 4842#       发表于 2026-8-3 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003043&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-3 00:17</a>
+什么时长差不多，屎山测试那个luna max干了整整仨小时还没搞定一个bug，突出一个慢工出烂活 ...</blockquote>
+是说 luna 开 max 思考完成时长可能和 luma 开 high 差不多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不是和别家的时间比    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
