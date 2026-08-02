@@ -1389,3 +1389,27 @@ extra任务160
 
 那喂厨力的玩家难受了。
 
+
+*****
+
+####  liu461  
+##### 21196#       发表于 2026-8-2 19:40
+
+男神这是要干嘛 单刷一遍所有异闻带么<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  岸浪白野  
+##### 21197#       发表于 2026-8-2 19:42
+
+整的盐川都要出来认领下<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+自己说的全从者改模目标然后走人了还要别人这么多年才能擦完屁股
+
+<img src="https://img.stage1st.com/forum/202608/02/194114nh7ssgqagg8raluu.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1785670873123_1.webp</strong> (81.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 19:41 上传
+
