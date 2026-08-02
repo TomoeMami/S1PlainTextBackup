@@ -1890,3 +1890,18 @@ ps：这游戏当rpg玩会更带感
 
 问一下有没有推荐的入门教学呀
 
+
+*****
+
+####  cwbn  
+##### 185#       发表于 2026-8-2 21:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70002086&amp;ptid=2076238" target="_blank">水風船 发表于 2026-8-2 20:13</a>
+
+很久以前买了一直没玩，拖到dlc都出了
+
+问一下有没有推荐的入门教学呀</blockquote>
+[https://www.bilibili.com/video/BV1wQ346kE5c/](https://www.bilibili.com/video/BV1wQ346kE5c/)
+
+可以看这个，DLC剧本的教学
+

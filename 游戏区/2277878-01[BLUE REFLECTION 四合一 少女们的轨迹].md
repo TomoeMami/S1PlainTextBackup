@@ -1339,3 +1339,24 @@ PSV版：
 
 居然有没被和谐的
 
+
+*****
+
+####  Xenor  
+##### 114#       发表于 2026-8-2 21:42
+
+玩了一章半，合集版的体验明显更好很多，多了跳过和快进，调节设定起来也更顺手，细节比老版强，特别这光线的赋予，徐徐生辉
+
+什么湿身根本是多此一举，完全就没什么看头，这本是个异常纯洁的游戏，多余了
+
+但是合集版的木内是不是太大了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不仅高清化后的缝隙…战斗中还带正面俯视的，图我都不敢戴反而搞得更SEX了
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYXw1qb0ZNm_xFLMasVTRFfNfNCBbWjQACbiMAAh7GeVeKBDm5Wi44YT0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYXw9qb0ZUm151V03lgIu4IrbZfpYXjwACcCMAAh7GeVflda6KhsdWhT0E.jpg" referrerpolicy="no-referrer">
+
+原版湿身也就这样根本没啥意思，反而猥琐
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYXxBqb0ZXQTZXao2QSmRV-2XOo4qVcgACcSMAAh7GeVerlLn1niUf1D0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYXxJqb0ZeBf**9r-zcgwcaXM0eSIAACdCMAAh7GeVdcutuHulgGQD0E.jpg" referrerpolicy="no-referrer">
+
+PSV版细节少不仅不明显视角还远远的，NS版可好直接正面特写图就不截了
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYXxNqb0ZlgCp6d1DZF_GE5RZzjm5a4gACdSMAAh7GeVcYzZm_lMDRTD0E.jpg" referrerpolicy="no-referrer">
+
