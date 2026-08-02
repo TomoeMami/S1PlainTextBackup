@@ -1241,3 +1241,11 @@ extra任务160
 
 发现自己没有15羁绊的，最高也是12到13
 
+
+*****
+
+####  rooarr  
+##### 21184#       发表于 2026-8-2 18:30
+
+这么多福袋，除了必new的那一个，其他的我居然全是喜+1<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

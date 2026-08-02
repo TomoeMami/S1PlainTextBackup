@@ -4335,3 +4335,42 @@ a强多了，而且也送了不少钱，但是没想到竟然会这么哈气
 
 我唯一担心的是……能不能出个桌面版……
 
+
+*****
+
+####  lactone  
+##### 4821#       发表于 2026-8-2 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001648&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-2 17:50</a>
+感觉这次flash更新冲击最大的是之前炒作luna斩杀一切的o孝子啊
+虽然在oa两家里面我觉得o比
+a强多了，而且也 ...</blockquote>
+我是不知道那天这帮人为啥这么急
+
+降价六个小时就斩杀？而且哪怕没有这个正式版，别的国模不会降价吗？
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  厍无春  
+##### 4822#       发表于 2026-8-2 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001747&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-2 18:28</a>
+我是不知道那天这帮人为啥这么急
+
+降价六个小时就斩杀？而且哪怕没有这个正式版，别的国模不会降价吗？</blockquote>
+和马孝子一个道理，自己那种虚无的优越感突然被打破，心理有落差，那不得哈气，找回情绪价值吗
+
+
+*****
+
+####  厍无春  
+##### 4823#       发表于 2026-8-2 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001550&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-2 17:21</a>
+opencode go怎么弄到那么便宜大碗的, 真的惊了
+
+可以用在别的agent程序吗</blockquote>
+这个 go 套餐使用地方没有限制，和计价 api 可使用范围没区别，也是这个套餐的优点之一
+
