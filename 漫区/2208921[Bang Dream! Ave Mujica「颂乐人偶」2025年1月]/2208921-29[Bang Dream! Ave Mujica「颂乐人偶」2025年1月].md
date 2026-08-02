@@ -428,3 +428,26 @@ SSR成员附带专属动画演出！该动画也会在抽卡及节奏游戏画�
 
 为什么弹幕说预告里祥子没有圆脸了？原本也不圆啊
 
+
+*****
+
+####  堀内爱里衣  
+##### 41976#       发表于 2026-8-2 11:43
+
+       <strong>SSR成员——Ave Mujica Timoris/八幡海铃的卡面立绘</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/02/114317f5qrirsqqqi95qof.jpg" referrerpolicy="no-referrer">
+
+<strong>24d593a49370a24bac2932108680cb684b9b76e8.jpg</strong> (176.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 11:43 上传
+
+🌙 现在为大家介绍的是SSR成员——Ave Mujica Timoris/八幡海铃的卡面立绘✨
+
+SSR成员附带专属动画演出！该动画也会在抽卡及节奏游戏画面中显示哦！
+
+《BanG Dream! Our Notes》目前正在火热预约中🎶</blockquote>
+       [https://www.bilibili.com/video/BV1JnGA6zEHA](https://www.bilibili.com/video/BV1JnGA6zEHA)
+

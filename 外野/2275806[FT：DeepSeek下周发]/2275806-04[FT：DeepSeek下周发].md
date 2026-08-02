@@ -3819,3 +3819,33 @@ flash的token用量确实是上涨的感觉
 以前opencode free的flash的免费额度能用到晚上才用完 现在一个上午就没 ...</blockquote>
 换个harness，然后再配个识图的小模型，会好一点，不然现在会反复截图验证，但是没法识图额外消耗token，甚至容易左右互搏
 
+
+*****
+
+####  zfy1989  
+##### 4776#       发表于 2026-8-2 11:38
+
+这两天测了一下酒馆的效果，用了几个不同的预设。感觉这个和以前的思路都不一样。如果用的是激活原生思维链的预设，那么他会在思维链先打一个草稿然后检查符不符合预设的每一个要求，如果预设要求复杂，甚至可能出现在思维链里面修改7、8遍的情况，不过这个对指令的遵守又确实是特别强的。
+
+—— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  泰坦失足  
+##### 4777#       发表于 2026-8-2 11:38
+
+[https://deng.codexradar.com/](https://deng.codexradar.com/)
+
+Codex雷达多了V4flash, 和luna max差不多, 价格是1/5. 算了下20刀Plus=400刀 API可用于 luna max=等效80刀DS 4flash=10刀OpenCode GO/月给的60刀额度.
+
+*****
+
+####  neptunehs  
+##### 4778#       发表于 2026-8-2 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000507&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-2 11:36</a>
+换个harness，然后再配个识图的小模型，会好一点，不然现在会反复截图验证，但是没法识图额外消耗token， ...</blockquote>
+opencode free哪能换 又不是opencode go
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
