@@ -1637,3 +1637,24 @@ b0d66a4e82395f49cefe27b2970b2e0c33874.png@1052w_!web-dynamic.webp
 我的玩法就是满了6羁绊就马上换下去，尽量找不同队伍来减少羁绊的提升</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">总觉得好像哪里还是不对 因为我梦火还有30几个。。。
 
+
+*****
+
+####  khxooo  
+##### 21218#       发表于 2026-8-3 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70002864&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-2 23:48</a>
+
+总觉得好像哪里还是不对 因为我梦火还有30几个。。。</blockquote>
+你还有30多个梦火啊，那就不奇怪了。你是集中升那几个，我这是平铺玩法，而且我还给低星喂。
+
+*****
+
+####  alucardcz  
+##### 21219#       发表于 2026-8-3 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003023&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-8-3 00:11</a>
+
+你还有30多个梦火啊，那就不奇怪了。你是集中升那几个，我这是平铺玩法，而且我还给低星喂。 ...</blockquote>
+你升6又不要梦火 所以不是更不对了。。你梦火应该比我多很多才对<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+

@@ -6677,3 +6677,11 @@ https://gamewith.jp/splatoon-raiders/569753
 
 卡在91一直过不去，技能伤害追不上了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  downnote  
+##### 811#       发表于 2026-8-3 00:08
+
+涂击队玩到20级左右，现在进游戏的时候会在一片白云的状态读盘一段时间，这个是正常的吗？感觉一开始没这么久读盘啊，我都怀疑是不是我tf卡坏了，才买没多久啊
+
