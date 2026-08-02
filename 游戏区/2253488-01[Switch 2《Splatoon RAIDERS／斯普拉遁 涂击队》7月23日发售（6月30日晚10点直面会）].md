@@ -6550,3 +6550,11 @@ https://gamewith.jp/splatoon-raiders/569753
 
 — from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  otakun  
+##### 799#       发表于 2026-8-2 15:53
+
+在食堂60+刷到把带3级碎冰两级发酵的绝品玩具鲨鱼爆破枪，好爽<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
