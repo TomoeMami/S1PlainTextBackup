@@ -1205,3 +1205,39 @@ extra任务160
 
 200即死概率，常驻30蓝卡即死耐性下降，即死成功回50np，三技能还有50即死耐性下降和每回合100概率即死，太强了亚兹拉尔
 
+
+*****
+
+####  alucardcz  
+##### 21180#       发表于 2026-8-2 18:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001703&amp;ptid=2084912" target="_blank">日蚀之阳 发表于 2026-8-2 18:11</a>
+
+200即死概率，常驻30蓝卡即死耐性下降，即死成功回50np，三技能还有50即死耐性下降和每回合100概率即死，太 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是是单体 不存在了（
+
+
+*****
+
+####  qixinno1  
+##### 21181#       发表于 2026-8-2 18:20
+
+没死心 月神+1 md 为什么我不能像萌新那么欧
+
+*****
+
+####  alucardcz  
+##### 21182#       发表于 2026-8-2 18:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001727&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-8-2 18:20</a>
+
+没死心 月神+1 md 为什么我不能像萌新那么欧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">摸尬黑 萌新今年都8月了 才几个5星 你看看你都出了多少个了 欧！
+
+*****
+
+####  khxooo  
+##### 21183#       发表于 2026-8-2 18:21
+
+发现自己没有15羁绊的，最高也是12到13
+
