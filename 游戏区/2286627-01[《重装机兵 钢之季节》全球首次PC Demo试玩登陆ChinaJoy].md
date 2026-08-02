@@ -615,3 +615,13 @@ bug有原汁原味移植吗<img src="https://static.stage1st.com/image/smiley/fa
 访谈看着还行，确实是懂这作的优缺点和风险的。
 不过要加料就别放二周目了，从大峡谷这张地图就该丰富内容了。
 
+
+*****
+
+####  可惜是个变态  
+##### 61#       发表于 2026-8-2 22:33
+
+能把触屏改成按键操作就是成功<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

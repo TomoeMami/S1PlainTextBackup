@@ -6648,3 +6648,11 @@ https://gamewith.jp/splatoon-raiders/569753
 876了，感觉快到头了
 [https://www.youtube.com/watch?v=5_fSEHsPbx4](https://www.youtube.com/watch?v=5_fSEHsPbx4)
 
+
+*****
+
+####  Variks  
+##### 808#       发表于 2026-8-2 22:34
+
+洪都汤垣 肖磺洼 鲑狱松 这几关是有什么说法吗，去救援永远都是这几关
+
