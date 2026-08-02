@@ -18,3 +18,11 @@ ai真好用吧，有ai日配了<img src="https://static.stage1st.com/image/smile
 
 [https://bbs.3dmgame.com/thread-6689745-1-1.html](https://bbs.3dmgame.com/thread-6689745-1-1.html)
 
+
+*****
+
+####  虚无连斩  
+##### 91#       发表于 2026-8-2 23:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">试了下这mod，韩语口音的日语，不大对劲
+
