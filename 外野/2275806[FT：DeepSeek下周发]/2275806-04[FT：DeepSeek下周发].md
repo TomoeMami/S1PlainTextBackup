@@ -3564,3 +3564,17 @@ https://tokenrhythm.studio/i/rf_tr_iK2qoQvnYbXev7nAEcycymf6
 
 随便用用挺好的
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4754#       发表于 2026-8-2 08:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69999319&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-2 00:23</a>
+m3免费了？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+我用的opencode go里的m3
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
