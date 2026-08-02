@@ -1432,3 +1432,24 @@ extra任务160
 
 艹 以为能全换 结果换了新梦火和hp芙芙就没材料了
 
+
+*****
+
+####  alucardcz  
+##### 21200#       发表于 2026-8-2 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70002027&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-8-2 20:00</a>
+
+艹 以为能全换 结果换了新梦火和hp芙芙就没材料了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">3月一更 一个月能拿70   没算过 反正大头肯定能换完
+
+
+*****
+
+####  qixinno1  
+##### 21201#       发表于 2026-8-2 20:06
+
+<blockquote>alucardcz 发表于 2026-8-2 20:05
+3月一更 一个月能拿70   没算过 反正大头肯定能换完</blockquote>
+十一周年就这 拉完了
+
