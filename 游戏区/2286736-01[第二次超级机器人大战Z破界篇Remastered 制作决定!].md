@@ -1185,3 +1185,15 @@ Z2算是做足了
 
 魯路修也是這樣，Z2再世將超合眾國改為IF線才出來，人渣扇完全相信了魯路修沒有被二皇子策反，這寫法比起原作更好，原作線最搞笑就是魯路帝被你們逼走敵對，但還經常一起出場，聽00那位的遺言...
 
+
+*****
+
+####  绿冰  
+##### 124#       发表于 2026-8-2 14:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000708&amp;ptid=2286736" target="_blank">alucardcz 发表于 2026-8-2 12:30</a>
+z3只不过后面“主线”拉了  不然吊打z2毫无难度</blockquote>
+Z3新参的战斗动画大多被Z2吊起来打吧，也是从Z3开始音乐不再是机战亮点了
+
+—— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
