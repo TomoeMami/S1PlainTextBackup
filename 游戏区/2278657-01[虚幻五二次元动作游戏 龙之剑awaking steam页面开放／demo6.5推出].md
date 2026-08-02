@@ -8,3 +8,13 @@
 
 韩配真不是我的菜
 
+
+*****
+
+####  林无德  
+##### 90#       发表于 2026-8-2 22:41
+
+ai真好用吧，有ai日配了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+[https://bbs.3dmgame.com/thread-6689745-1-1.html](https://bbs.3dmgame.com/thread-6689745-1-1.html)
+
