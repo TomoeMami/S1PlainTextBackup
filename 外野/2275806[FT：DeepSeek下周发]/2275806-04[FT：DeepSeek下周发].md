@@ -4538,3 +4538,28 @@ https://www.bilibili.com/video/BV1fk3X6CEXb/
 glm 5.2被斩杀了</blockquote>
 笑死，luna这也太慢了吧，费用是V4F的3倍多，关键是最后还没搞对。
 
+
+*****
+
+####  舞以  
+##### 4838#       发表于 2026-8-2 23:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 4839#       发表于 2026-8-2 23:40
+
+邀请好友限时活动继续延长，体验OpenSquilla新功能畅享免费token
+[https://tokenrhythm.studio/i/rf_tr_Tb7wZPqfyl2F-hKYtJvOuYPL](https://tokenrhythm.studio/i/rf_tr_Tb7wZPqfyl2F-hKYtJvOuYPL)
+
+*****
+
+####  王兰花秀丽  
+##### 4840#       发表于 2026-8-2 23:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70002822&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-2 23:39</a>
+我是不懂为啥那么多人喷东山奈央不测luna的max档位，“害得luna输给了v4f”，gpt的max档位太jb墨迹了，ultr ...</blockquote>
+现在还能用用时说一下，开到 max 时长差不多，分数也差不多，那不更搞笑了吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

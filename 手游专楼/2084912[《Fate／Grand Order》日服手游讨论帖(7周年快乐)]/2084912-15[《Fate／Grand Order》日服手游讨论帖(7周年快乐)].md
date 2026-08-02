@@ -1613,3 +1613,16 @@ b0d66a4e82395f49cefe27b2970b2e0c33874.png@1052w_!web-dynamic.webp
 
 算了下山中试练一个月给70个兑换道具，换完需要150个，cd三个月。还挺友好的，虽然光是为了完成所有任务的三个金方块就很值得打
 
+
+*****
+
+####  khxooo  
+##### 21216#       发表于 2026-8-2 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70002757&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-2 23:27</a>
+
+漏油这羁绊数量是不是有点不对劲？平时无限池不是狂刷的吗 怎么比萌新这种10池跑路的羁绊还少那么多
+
+看了 ...</blockquote>
+我的玩法就是满了6羁绊就马上换下去，尽量找不同队伍来减少羁绊的提升<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
