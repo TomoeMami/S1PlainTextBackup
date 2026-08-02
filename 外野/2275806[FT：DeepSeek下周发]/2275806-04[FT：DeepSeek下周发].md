@@ -3870,3 +3870,21 @@ responses只是一种请求结构，是需要供应商自己来适配实现的�
 怎么还天天去检查知识库的日期, 模型根本不知道自己是啥时候, 全是幻觉</blockquote>
 有道理，下次应该问一问相关新闻是否知道
 
+
+*****
+
+####  北呱南飞去  
+##### 4781#       发表于 2026-8-2 11:59
+
+我看了 ds 关于 codex 的文档，客户端是不是必须先登录进去才能用 ds？单位电脑禁止挂梯子，有没有跳过的办法？
+
+*****
+
+####  nxmonitor  
+##### 4782#       发表于 2026-8-2 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000609&amp;ptid=2275806" target="_blank">北呱南飞去 发表于 2026-8-2 11:59</a>
+
+我看了 ds 关于 codex 的文档，客户端是不是必须先登录进去才能用 ds？单位电脑禁止挂梯子，有没有跳过的办 ...</blockquote>
+直接换一个就行，比如zcode或者PI，codex测下来并不是很好
+
