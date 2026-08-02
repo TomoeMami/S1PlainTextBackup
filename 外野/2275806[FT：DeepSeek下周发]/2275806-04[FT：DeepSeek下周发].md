@@ -4652,3 +4652,14 @@ glm 5.2被斩杀了</blockquote>
 
 已经通过hermes接入homeassistand突出一个陪伴    再见了米猴家，下一步是夺舍小爱同学<img src="https://static.stage1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 4849#       发表于 2026-8-3 02:08
+
+x上到处都是本地部署的测试，感觉以后各种网安嘉豪和中小组织都可能靠本地部署，微调去掉拒答的flash-0731拷打各种大小草台班子的网安实力了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+oa两家炒作沙箱逃逸对网络安全的影响可能不如梁叔叔的一键开源啊我说<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
