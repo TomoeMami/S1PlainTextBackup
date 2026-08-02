@@ -3945,3 +3945,13 @@ GPT 5.6 LUNA
 —— 来自 HONOR AAK-AN00, Android 16, 鹅球 v3.5.99 ...</blockquote>
 代码不好说但是日常办公workbuddy完胜，非程序员无脑选workbuddy就行了
 
+
+*****
+
+####  天桥夜风  
+##### 4789#       发表于 2026-8-2 13:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000609&amp;ptid=2275806" target="_blank">北呱南飞去 发表于 2026-8-2 11:59</a>
+我看了 ds 关于 codex 的文档，客户端是不是必须先登录进去才能用 ds？单位电脑禁止挂梯子，有没有跳过的办 ...</blockquote>
+我是直接让claude code搞定的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但我用的cli
+
