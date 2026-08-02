@@ -4225,3 +4225,50 @@ opencode go怎么弄到那么便宜大碗的, 真的惊了
 笑嘻了</blockquote>
 好在gpt plus在luna降价后性价比还可以
 
+
+*****
+
+####  舞以  
+##### 4810#       发表于 2026-8-2 17:35
+
+可以的，直接用OpenAI兼容格式就行，拉api和opencode的url。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舞以  
+##### 4811#       发表于 2026-8-2 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001550&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-2 17:21</a>
+
+opencode go怎么弄到那么便宜大碗的, 真的惊了
+
+可以用在别的agent程序吗</blockquote>
+可以的
+
+*****
+
+####  舞以  
+##### 4812#       发表于 2026-8-2 17:40
+
+我看知乎上说是白皮唯一墙的就是ds好像，其他国模没被墙<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+oa专营权可不能动摇
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  mitzvah  
+##### 4813#       发表于 2026-8-2 17:42
+
+墙有啥用，就算只有三分之一官方api的效能对于中等规模企业本地部署也比买o/，A/的服务划算，毕竟这涉及到商业机密泄露的问题
+
+*****
+
+####  →熙←  
+##### 4814#       发表于 2026-8-2 17:44
+
+价格和性能在这里，墙不了的，中转站只会吃饱
+

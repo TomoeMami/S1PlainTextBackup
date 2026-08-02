@@ -1127,3 +1127,49 @@ extra任务160
 </blockquote>
 狗萌新太有实力了
 
+
+*****
+
+####  里村紅葉  
+##### 21171#       发表于 2026-8-2 17:38
+
+11年了，终于有盘子了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 21172#       发表于 2026-8-2 17:39
+
+福袋拉完了...就开了一个图鉴...
+
+*****
+
+####  克苏鲁系青骑士  
+##### 21173#       发表于 2026-8-2 17:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">福袋双黄了羊弓new和莉莉丝，然后山中小将清空了免费石
+好歹没输
+
+
+*****
+
+####  alucardcz  
+##### 21174#       发表于 2026-8-2 17:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001521&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-8-2 17:14</a>
+
+狗盟新还是一如既往的狗萌新!</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又尬黑萌新  另外送了那么多梦火你又可以抽爆了
+
+*****
+
+####  exiaexa  
+##### 21175#       发表于 2026-8-2 17:46
+
+这个兑换系统
+
+还以为是金棺材回收
+
+结果是骗你上线的小巧思，每天能换什么、能用什么换全是随机的
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
