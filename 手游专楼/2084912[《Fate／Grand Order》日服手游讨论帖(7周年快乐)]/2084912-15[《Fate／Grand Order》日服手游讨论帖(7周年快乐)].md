@@ -1530,3 +1530,11 @@ extra任务160
 
 旧剑什么时候换模<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 21209#       发表于 2026-8-2 22:03
+
+最搞的还是大梦火入手条件还困难，还是说超级芙芙就这么金贵
+
