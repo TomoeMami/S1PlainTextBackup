@@ -1239,3 +1239,13 @@ Z3新参的战斗动画大多被Z2吊起来打吧，也是从Z3开始音乐不�
 
 猜猜代孙会把乳/摇河蟹了吗？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王元姬无惨  
+##### 129#       发表于 2026-8-2 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001299&amp;ptid=2286736" target="_blank">lost-star 发表于 2026-8-2 15:59</a>
+应该把og移植上steam看看效果呗，又多花不了啥钱，30都卖那么好，价格合适点我觉得og人家也会试试，毕竟口 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原因可能就摆在明面上 因为很多人真的不玩组队系统 高清另存为 为什么不选Z1？ 为什么不选不用掏版权费的og？  新时代机战一个组队系统的都没有 五作了 
+

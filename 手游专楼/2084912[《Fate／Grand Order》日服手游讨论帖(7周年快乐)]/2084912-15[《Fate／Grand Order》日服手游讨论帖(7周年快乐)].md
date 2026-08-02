@@ -1365,3 +1365,27 @@ extra任务160
 是1000吧，2000到3000，十个月。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">醒醒 这商店3个月一更
 
+
+*****
+
+####  xiongxingyu  
+##### 21194#       发表于 2026-8-2 19:08
+
+ 本帖最后由 xiongxingyu 于 2026-8-2 19:10 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001823&amp;ptid=2084912" target="_blank">岸浪白野 发表于 2026-8-2 18:52</a>
+
+给亚兹拉尔加对公主和学姐对话也太草了吧</blockquote>
+考虑到月姬里线遥遥无期，月姬联动什么的大概率不会有了，所以某鬼畜眼镜想要实名落地不怎么现实，只能借山中队员的号当代餐了，总不能真的落地只恐龙吧（好像也不是不行）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 21195#       发表于 2026-8-2 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001866&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-2 19:05</a>
+
+醒醒 这商店3个月一更</blockquote>
+草，这是生怕数量给多了啊。
+
+那喂厨力的玩家难受了。
+

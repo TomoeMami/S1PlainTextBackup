@@ -65,3 +65,11 @@
 
 还是金字塔兽更有压迫感，集数问题感觉很严重啊，别草草收尾了
 
+
+*****
+
+####  无敌のpeach  
+##### 714#       发表于 2026-8-2 19:04
+
+原来不需要大家贡献e-pulse就能到究极体，留给其他人进化的时间真不多了，别就2个究极体<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
