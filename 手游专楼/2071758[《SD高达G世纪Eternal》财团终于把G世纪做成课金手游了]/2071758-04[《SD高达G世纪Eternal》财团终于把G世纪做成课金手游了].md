@@ -160,3 +160,11 @@
 
 这次的大奖不是让UR迪奥开卡池艾比安吗<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  裂空之龙  
+##### 4595#       发表于 2026-8-2 21:19
+
+话说你们说的每月2W钻是默认月卡全勤吗？故事事件攒下来的钻好像10抽都不到吧……
+
