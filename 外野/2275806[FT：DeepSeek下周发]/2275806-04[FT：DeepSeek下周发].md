@@ -4011,3 +4011,15 @@ k3 能破，你用的什么渠道 k3
 —— 来自 鹅球 v4.0-alpha</blockquote>
 cilne的  明星 未成年和强制都不能破甲 不过我类脑有特殊办法可以白嫖k3 不扣额度
 
+
+*****
+
+####  mr.qu  
+##### 4793#       发表于 2026-8-2 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000982&amp;ptid=2275806" target="_blank">jyj256 发表于 2026-8-2 13:50</a>
+cilne的  明星 未成年和强制都不能破甲 不过我类脑有特殊办法可以白嫖k3 不扣额度 ...</blockquote>
+我也用这个渠道的， 随便写呀，你的预设问题吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
