@@ -6669,3 +6669,11 @@ https://gamewith.jp/splatoon-raiders/569753
 刚发完贴就又匹配到一把洪都汤垣，房 ...</blockquote>
 可能就是闲着没事干，我也会选个最简单的关卡开一次救援造福一下没拿到每日宝箱的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 810#       发表于 2026-8-2 23:21
+
+卡在91一直过不去，技能伤害追不上了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -1556,3 +1556,52 @@ extra任务160
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过话又说回来 只要不加难度 这些个事情也无所谓。。就怕.jpg
 
+
+*****
+
+####  khxooo  
+##### 21212#       发表于 2026-8-2 23:16
+
+ 本帖最后由 khxooo 于 2026-8-2 23:20 编辑 
+
+打完了，换了大梦火和梦火，看了看羁绊哪个最高的，最高的是杀狐的13到14，还没有用到大梦火的时。现在将所有人开了上限后还剩10个梦火<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+5a4baa34c431b916d5dd8d15f43f416b33874.png@1052w_!web-dynamic.webp
+(126.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 23:20 上传
+
+<img src="https://img.stage1st.com/forum/202608/02/232044he7hooplolgjdn2o.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+b0d66a4e82395f49cefe27b2970b2e0c33874.png@1052w_!web-dynamic.webp
+(126.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 23:20 上传
+
+<img src="https://img.stage1st.com/forum/202608/02/232045g6as73ccf6sg5oh2.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  g救世主高达  
+##### 21213#       发表于 2026-8-2 23:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70002171&amp;ptid=2084912" target="_blank">風卷豹 发表于 2026-8-2 20:34</a>
+
+这个周年pv到底何意味啊，红A if我就当你回归原点了，有1/3时间在印度大战又是在干嘛，型月被老累和影法师 ...</blockquote>
+之前八周年pv的时候不是爆出来某人老婆喜欢印度兄弟来着<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 21214#       发表于 2026-8-2 23:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70002716&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-8-2 23:16</a>
+
+打完了，换了大梦火和梦火，看了看羁绊哪个最高的，最高的是杀狐的13到14，还没有用到大梦火的时。现在将所 ...</blockquote>
+漏油这羁绊熟练是不是有点不对劲？平时无限池不是狂刷的吗 怎么比萌新这种10池跑路的羁绊还少那么多
+

@@ -326,3 +326,16 @@ yuno倒是五个人里比较像Vtb的，相对而言吧，不知道后面会不�
 
 仿佛在看什么脑瘫抖音短剧，歌也不好听
 
+
+*****
+
+####  aptx8285144  
+##### 167#       发表于 2026-8-2 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69901128&amp;ptid=2283962" target="_blank">帆前 发表于 2026-7-10 17:59</a>
+
+哇，刺激.jpg，什么叫邦邦来了个宫斗剧反派。
+
+本集爆得有点快了，初中往事写得比较糙。但是实锤了坏女人的 ...</blockquote>
+很久没在一个没有魔法或战斗对轰的片场看到这么恶毒而演都不演的少女反派了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
