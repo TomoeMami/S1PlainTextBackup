@@ -652,3 +652,85 @@ pv最后有cv表，但是我看的pv怎么没听到人声？</blockquote>
 
 woc，还有二段击<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 21120#       发表于 2026-8-2 16:16
+
+有黑狗改模 会有强化版吗<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 21121#       发表于 2026-8-2 16:16
+
+神祖、埃里克、梅菲斯特、莫扎特、狂狗
+
+笑死，还是没有拉二
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 21122#       发表于 2026-8-2 16:16
+
+草怎么是狂狗
+
+*****
+
+####  alucardcz  
+##### 21123#       发表于 2026-8-2 16:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好消息 改模有5星 坏消息 没有拉二
+
+*****
+
+####  char0311131  
+##### 21124#       发表于 2026-8-2 16:17
+
+两个最早备战12周年的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 21125#       发表于 2026-8-2 16:18
+
+神经啊友情池
+
+*****
+
+####  exiaexa  
+##### 21126#       发表于 2026-8-2 16:18
+
+看了下，强化全部对得上改模，还剩一个金狂、金尺、金枪、金剑
+
+*****
+
+####  日蚀之阳  
+##### 21127#       发表于 2026-8-2 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001332&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-2 16:08</a>
+
+那么问题来了 16羁绊给不给硬币。。。5宝能不能完全体？</blockquote>
+给俩芙芙和30石好像，不给硬币
+
+*****
+
+####  壳壳牛  
+##### 21128#       发表于 2026-8-2 16:21
+
+就这？没活了啊
+
+
+*****
+
+####  exiaexa  
+##### 21129#       发表于 2026-8-2 16:25
+
+30+30+15
+
+硬控你1单，对比同行还是便宜的
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
