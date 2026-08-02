@@ -243,3 +243,14 @@ boss大概还是忘却
 boss大概 ...</blockquote>
 看剧场版的意思，夫人应该是活下来了
 
+
+*****
+
+####  挺好的  
+##### 2129#       发表于 2026-8-2 13:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000908&amp;ptid=2250267" target="_blank">洛克萨斯 发表于 2026-8-2 13:29</a>
+
+恢复胶囊还在发力。太超模了</blockquote>
+官方小作文是只有恢复没用，最后是用幻影胶囊恢复腰带的，剧里也是用了幻影才恢复原样
+
