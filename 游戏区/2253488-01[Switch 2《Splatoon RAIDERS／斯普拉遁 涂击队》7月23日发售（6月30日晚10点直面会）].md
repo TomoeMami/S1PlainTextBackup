@@ -6439,3 +6439,15 @@ https://gamewith.jp/splatoon-raiders/569753
 
 — from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  doraemonmilmil  
+##### 789#       发表于 2026-8-2 08:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998962&amp;ptid=2253488" target="_blank">gbjbb 发表于 2026-8-1 22:56</a>
+大招跑到边缘打不到，这只怪让我想起雷神龙；平时紧贴boss头部侧后方输出，必备踢馆鞋等大位移技能，集卵 ...</blockquote>
+对头，aoe旋风、大激光、风弹，然后全屏大招那下静音那种压迫感氛围都有种雷神龙既视感。我也是贴脸，但由于主武器是红泡，它快挂时候多动症容易拉开距离，红泡面对大激光经常走位不及，太容易翻车了，换踢馆鞋马上安全
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
