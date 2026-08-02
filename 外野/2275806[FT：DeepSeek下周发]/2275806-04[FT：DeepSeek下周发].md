@@ -4284,3 +4284,54 @@ a强多了，而且也送了不少钱，但是没想到竟然会这么哈气
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  王兰花秀丽  
+##### 4816#       发表于 2026-8-2 17:59
+
+你们说第ds被墙这个能发一下问题链接吗？什么叫以公司的形式来墙    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  舞以  
+##### 4817#       发表于 2026-8-2 17:59
+
+这次的新检查点是不是大内存的mac都能跑起来了啊
+真正私有的能承担接近前沿agent工作的模型就这么有了可能<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+我昨天就想吹了，这次更新其实堪称“伟大”，影响比想象中大多了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舞以  
+##### 4818#       发表于 2026-8-2 18:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001672&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-2 17:59</a>
+你们说第ds被墙这个能发一下问题链接吗？什么叫以公司的形式来墙    Re:Source ...</blockquote>
+当时刷知乎看到评论说的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，说是他们公司还是学校只墙了ds好像
+应该是那几个主要的问题里面
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Promeus  
+##### 4819#       发表于 2026-8-2 18:02
+
+我司母公司(某500强巨头）去年就下令国内不许用ds来着<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">后来他们自己部署了一个就又用了
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4820#       发表于 2026-8-2 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001509&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-2 17:10</a>
+
+"Harness 差异主要在 Claude Code 与 Codex 的默认设置和工具链不同。其中 Claude Code 默认的单次输出长度 ...</blockquote>
+有点牛逼啊
+
+我唯一担心的是……能不能出个桌面版……
+
