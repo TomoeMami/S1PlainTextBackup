@@ -6710,3 +6710,21 @@ https://gamewith.jp/splatoon-raiders/569753
 
 主线通关后先清了点关卡升到了50级，然后发现点数不够，再一看沟通竟然还有三个挑战，最远的那个在60多级的图里，早知道不点生命了，应该先把攻击力和配件拉满的，最后一级竟然是30%……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  doraemonmilmil  
+##### 815#       发表于 2026-8-3 07:45
+
+<img src="https://img.stage1st.com/forum/202608/03/074437s6xxw09ii6f0lw1v.jpg" referrerpolicy="no-referrer">
+
+<strong>20260803074249-01KZ2CYAXJ7FCRVE94BMDNH0V7.jpg</strong> (657 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-3 07:44 上传
+
+有绝品鲨鱼枪但是把钱浪费在普通鲨鱼枪上的我<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过目前玩冰冻引擎滚筒更爽
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

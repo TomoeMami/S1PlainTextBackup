@@ -108,3 +108,11 @@
 
 武器有点难肝吧，没挂机不好刷的
 
+
+*****
+
+####  elven119  
+##### 863#       发表于 2026-8-3 07:46
+
+冬贝利迫害挂机，现在全员变绿玩手刷5f<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

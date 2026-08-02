@@ -1375,3 +1375,13 @@ z1前中期全sr还有点麻烦，后面只知道用七波和月光蝶清图了<
 
 对空对地是Z的，少给2z美化了
 
+
+*****
+
+####  lost-star  
+##### 144#       发表于 2026-8-3 07:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001883&amp;ptid=2286736" target="_blank">王元姬无惨 发表于 2026-8-2 19:12</a>
+原因可能就摆在明面上 因为很多人真的不玩组队系统 高清另存为 为什么不选Z1？ 为什么不选不用掏版权费的 ...</blockquote>
+3人4人组队确实很麻烦，而且没all没人权，og这种2人组队就正好，现在没组队的机战可太无聊咯，map武器可以少钱少pp来限制，og里map基本只用来削血。
+
