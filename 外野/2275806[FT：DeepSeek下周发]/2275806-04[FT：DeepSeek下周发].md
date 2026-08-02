@@ -3682,3 +3682,60 @@ https://tokenrhythm.studio/i/rf_tr_iK2qoQvnYbXev7nAEcycym ...</blockquote>
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  wandeeees  
+##### 4764#       发表于 2026-8-2 10:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000134&amp;ptid=2275806" target="_blank">アコ 发表于 2026-8-2 09:58</a>
+
+帮我助力，一起拿大奖！完成注册即可获得68元免费token额度
+
+https://tokenrhythm.studio/i/rf_tr_4C00s8CJf ...</blockquote>
+这个站的V4F还是preview版本<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千秋难诉  
+##### 4765#       发表于 2026-8-2 10:32
+
+漫无止境的八月初开始了<img src="https://static.stage1st.com/image/smiley/carton2017/103.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/02/103119az4mbbo64x4jzz44.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 10:31 上传
+
+*****
+
+####  jyj256  
+##### 4766#       发表于 2026-8-2 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000134&amp;ptid=2275806" target="_blank">アコ 发表于 2026-8-2 09:58</a>
+
+帮我助力，一起拿大奖！完成注册即可获得68元免费token额度
+
+https://tokenrhythm.studio/i/rf_tr_4C00s8CJf ...</blockquote>
+帮我助力，一起拿大奖！完成注册即可获得68元免费token额度
+[https://tokenrhythm.studio/i/rf_tr_Xo7qCRL2xImqZIs_bKz8J3Sx](https://tokenrhythm.studio/i/rf_tr_Xo7qCRL2xImqZIs_bKz8J3Sx)
+
+我也接一个
+
+*****
+
+####  chenyedgg  
+##### 4767#       发表于 2026-8-2 10:35
+
+1.新版V4F的写作能力也是提升的
+
+2.专门的coding模型早就有了，后面厂家还是默默换回通用大模型
+
+3.文科理科分科本来就是不科学的
+
+4.现在主要没有厂家专门去提升写作能力
+
