@@ -2812,3 +2812,13 @@ anime expo场刊里面表述茉里不是一个假小子，看到现在有人认�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  堆雪若叶  
+##### 238#       发表于 2026-8-2 09:36
+
+<img src="https://p.sda1.dev/34/49f060f7f684853cdcf11abffe14cc62/_Studio GreenTea_LoliHouse_ Sayonara Lara - 04 _WebRip 1080p HEVC-10bit AAC ASSx2_.mkv_000229.316.jpg" referrerpolicy="no-referrer">
+
+看了下茉里的笔记本，左边学个立方和差能错一半真得好好补习了吧（
+
