@@ -717,3 +717,11 @@ boss打完的演出像素级复刻旺达与巨像啊，看乐了</blockquote>
 
 唯一学到的大概是请石川由依来当主角CV
 
+
+*****
+
+####  莉可厨  
+##### 356#       发表于 2026-8-3 00:56
+
+咋全宇宙都开始玩了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
