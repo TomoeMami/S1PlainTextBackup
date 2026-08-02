@@ -4526,3 +4526,15 @@ luna降价有人猜原因是rudin这代卡到位了算力没那么紧张了
 
 周末用v4f处理了一些问题，我觉得我已经离不开AI了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  来都来了  
+##### 4837#       发表于 2026-8-2 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001918&amp;ptid=2275806" target="_blank">akirt 发表于 2026-8-2 19:26</a>
+https://www.bilibili.com/video/BV1fk3X6CEXb/
+
+glm 5.2被斩杀了</blockquote>
+笑死，luna这也太慢了吧，费用是V4F的3倍多，关键是最后还没搞对。
+

@@ -6656,3 +6656,16 @@ https://gamewith.jp/splatoon-raiders/569753
 
 洪都汤垣 肖磺洼 鲑狱松 这几关是有什么说法吗，去救援永远都是这几关
 
+
+*****
+
+####  qwased  
+##### 809#       发表于 2026-8-2 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70002581&amp;ptid=2253488" target="_blank">Variks 发表于 2026-8-2 22:34</a>
+
+洪都汤垣 肖磺洼 鲑狱松 这几关是有什么说法吗，去救援永远都是这几关
+
+刚发完贴就又匹配到一把洪都汤垣，房 ...</blockquote>
+可能就是闲着没事干，我也会选个最简单的关卡开一次救援造福一下没拿到每日宝箱的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
