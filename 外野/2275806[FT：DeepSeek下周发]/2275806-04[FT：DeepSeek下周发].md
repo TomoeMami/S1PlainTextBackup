@@ -4179,3 +4179,39 @@ https://www.zhihu.com/question/2066524692392031246/answer/2067221073234507123?ut
 
 "Harness 差异主要在 Claude Code 与 Codex 的默认设置和工具链不同。其中 Claude Code 默认的单次输出长度限制了 Flash 的发挥。Flash 和先前preview 一样，喜欢在动手前想清楚，在复杂项目的规划阶段，Flash 一次思考有可能达到 50K Token。而 Codex 则是因为自身迭代频繁，Flash 对其中的工具使用效率偏低，同样任务可能会多 30~40% 步数。不过从最终效果来看，两种 Harness 差异不大。而即将发布的自家 Harness 能同时解决默认配置和工具熟悉问题，至少不会在这方面拖后腿。"
 
+
+*****
+
+####  Rowen233  
+##### 4805#       发表于 2026-8-2 17:17
+
+好像我看知乎上说欧美一些公司开始墙了DeepSeek了
+
+*****
+
+####  施人诚  
+##### 4806#       发表于 2026-8-2 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001530&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-8-2 17:17</a>
+
+好像我看知乎上说欧美一些公司开始墙了DeepSeek了</blockquote>
+本土的公司部署完DS之后再把DS墙掉，本质就是搞垄断
+
+*****
+
+####  cscbzcbz  
+##### 4807#       发表于 2026-8-2 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001530&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-8-2 17:17</a>
+好像我看知乎上说欧美一些公司开始墙了DeepSeek了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑嘻了
+
+*****
+
+####  →熙←  
+##### 4808#       发表于 2026-8-2 17:21
+
+opencode go怎么弄到那么便宜大碗的, 真的惊了
+
+可以用在别的agent程序吗
+
