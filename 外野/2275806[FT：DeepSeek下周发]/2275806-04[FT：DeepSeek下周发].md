@@ -4374,3 +4374,17 @@ opencode go怎么弄到那么便宜大碗的, 真的惊了
 可以用在别的agent程序吗</blockquote>
 这个 go 套餐使用地方没有限制，和计价 api 可使用范围没区别，也是这个套餐的优点之一
 
+
+*****
+
+####  冤枉呐  
+##### 4824#       发表于 2026-8-2 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001542&amp;ptid=2275806" target="_blank">施人诚 发表于 2026-8-2 17:20</a>
+本土的公司部署完DS之后再把DS墙掉，本质就是搞垄断</blockquote>
+笑死
+好像ds指望这玩意赚钱一样：虽然赚但是不指望
+ds在美股赚爽了估计
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

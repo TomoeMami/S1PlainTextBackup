@@ -57,3 +57,11 @@
 
 49集就现在这个节奏妥妥要烂尾了吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  66367749  
+##### 713#       发表于 2026-8-2 18:52
+
+还是金字塔兽更有压迫感，集数问题感觉很严重啊，别草草收尾了
+
