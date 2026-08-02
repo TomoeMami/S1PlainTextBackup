@@ -1026,3 +1026,25 @@ extra任务160
 
 运营还是没打算放宽梦火的获取手段吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 21161#       发表于 2026-8-2 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001466&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-8-2 16:54</a>
+
+开16羁绊是好事.....可是非洲人只剩1个梦火了啊....还是之前的活动奖励
+
+都已经好几个月连绿方块商店的茶壶 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">看见没有 抽福袋给！
+
+*****
+
+####  希望之花  
+##### 21162#       发表于 2026-8-2 17:00
+
+福袋分组也没有啥特别想要的
+
+石头白充了<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

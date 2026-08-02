@@ -6566,3 +6566,15 @@ https://gamewith.jp/splatoon-raiders/569753
 
 挂了好几天了，热泡都没几把，更别说绝品鲨鱼泡了
 
+
+*****
+
+####  月华刹那  
+##### 801#       发表于 2026-8-2 16:56
+
+这高难度下要是单打玩家只能飞天流吧？
+
+那些boss鲑鱼除了塔和垃圾桶基本都打不到空中的
+
+这太不平衡了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
