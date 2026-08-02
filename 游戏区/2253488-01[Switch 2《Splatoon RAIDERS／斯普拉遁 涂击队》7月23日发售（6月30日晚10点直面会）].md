@@ -6485,3 +6485,11 @@ https://gamewith.jp/splatoon-raiders/569753
 
 刷到陨石拳套的三重分身配件了，虽然高层打不动，但拳套帅啊，可惜分身好像不跟其实配件有联动<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  u2deack  
+##### 792#       发表于 2026-8-2 11:45
+
+这个一百层boss真的有点恶心吧血也太厚刮得累死了，招式都是不小心被蹭一下黏上就要死的
+

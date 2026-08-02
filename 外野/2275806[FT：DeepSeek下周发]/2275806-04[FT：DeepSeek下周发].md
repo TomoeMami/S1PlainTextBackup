@@ -3849,3 +3849,24 @@ opencode free哪能换 又不是opencode go
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  noword  
+##### 4779#       发表于 2026-8-2 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000259&amp;ptid=2275806" target="_blank">serj005 发表于 2026-8-2 10:36</a>
+responses只是一种请求结构，是需要供应商自己来适配实现的，不是ds自己做了其他人就能直接拿来用，这个 ...</blockquote>
+转发的就可以吧
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  novem  
+##### 4780#       发表于 2026-8-2 11:52
+
+<blockquote>→熙← 发表于 2026-8-2 10:54
+怎么还天天去检查知识库的日期, 模型根本不知道自己是啥时候, 全是幻觉</blockquote>
+有道理，下次应该问一问相关新闻是否知道
+
