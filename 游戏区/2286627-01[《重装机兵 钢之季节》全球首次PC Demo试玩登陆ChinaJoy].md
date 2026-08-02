@@ -578,3 +578,12 @@ bug有原汁原味移植吗<img src="https://static.stage1st.com/image/smiley/fa
 但下面小图标又没错。</blockquote>
 我猜可能是国内公司的美工自己画的，然后画的时候并不知道狼车是梅卡瓦甚至不懂坦克，照着图标和淘宝小坦克素材图自行发挥<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 57#         楼主| 发表于 2026-8-2 14:56
+
+20年后重回视野《重装机兵 钢之季节》复刻版发行商巧思专访
+[https://weibo.com/ttarticle/x/m/show#/id=2309405327479404626256](https://weibo.com/ttarticle/x/m/show#/id=2309405327479404626256)
+
