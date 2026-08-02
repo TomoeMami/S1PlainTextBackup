@@ -3784,3 +3784,14 @@ responses只是一种请求结构，是需要供应商自己来适配实现的�
 2.专门的coding模型早就有了，后面厂家还是默默换回通用大模型</blockquote>
 感觉v4f还是太小了 我这几天和k3比较过  写文还是不如k3 k3的问题是甲太厚 类脑的预设也破不了 只能等v4p正式版了
 
+
+*****
+
+####  asier  
+##### 4773#       发表于 2026-8-2 11:22
+
+帮我助力，一起拿大奖！完成注册即可获得68元免费token额度
+[https://tokenrhythm.studio/i/rf_tr_M7nBXPFooQSBG-WRbq43IPAV](https://tokenrhythm.studio/i/rf_tr_M7nBXPFooQSBG-WRbq43IPAV)
+
+拿到赶紧蹬了，免得像硅基一样赖账
+

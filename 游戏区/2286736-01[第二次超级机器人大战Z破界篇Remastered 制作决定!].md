@@ -978,3 +978,27 @@ Z1太完美了 根本不需要重置</blockquote>
 
 话说如果重制的是F跟完结篇，温基遗老会不会买爆？
 
+
+*****
+
+####  bonnwang  
+##### 105#       发表于 2026-8-2 11:18
+
+素材复用，完全不期待
+
+*****
+
+####  影山银  
+##### 106#       发表于 2026-8-2 11:19
+
+不重置Z1的原因我感觉很大可能性是小队系统现在用新的引擎他们做不出来吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Toby_dak  
+##### 107#       发表于 2026-8-2 11:22
+
+重制这个是何意味<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.48)
+
