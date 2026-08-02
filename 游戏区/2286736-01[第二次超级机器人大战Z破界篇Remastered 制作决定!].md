@@ -1312,3 +1312,22 @@ Z1是最好的机战之一，没有汉化太遗憾了，现在AI这么强，居�
 
 z1前中期全sr还有点麻烦，后面只知道用七波和月光蝶清图了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王元姬无惨  
+##### 137#       发表于 2026-8-3 00:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以别问为什么是z2了 
+人气最高只是个掩饰词 
+没有组队系统来恶心人才能吸引更多受众 
+看看隔壁FE 三房和in给鸡 答案不是显而易见的吗 
+
+
+*****
+
+####  四十岁的老处男  
+##### 138#       发表于 2026-8-3 00:42
+
+有官中上steam就行，权当补票了。
+

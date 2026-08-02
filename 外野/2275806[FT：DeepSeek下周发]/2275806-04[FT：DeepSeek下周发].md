@@ -4604,3 +4604,18 @@ glm 5.2被斩杀了</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Rowen233  
+##### 4845#       发表于 2026-8-3 00:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70002505&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-8-2 22:16</a>
+
+这毕竟是flash,体积小, 本地部署非常友好...
+
+128g的mac 就能有二三十t/s
+
+公司用花点小钱买两块 pro6000,  ...</blockquote>
+量化性能之后还有多少
+
