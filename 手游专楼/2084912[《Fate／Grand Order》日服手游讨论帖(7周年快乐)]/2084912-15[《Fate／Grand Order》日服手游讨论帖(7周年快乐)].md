@@ -965,3 +965,64 @@ extra任务160
 
 护符没算
 
+
+*****
+
+####  khxooo  
+##### 21155#       发表于 2026-8-2 16:46
+
+那个地图隐藏任务只找到17个，有攻略图吗？
+
+*****
+
+####  日蚀之阳  
+##### 21156#       发表于 2026-8-2 16:46
+
+说是210抽但里面有预热活动的，也有剧情池免费30单抽
+
+*****
+
+####  Jamaisvu  
+##### 21157#       发表于 2026-8-2 16:47
+
+<blockquote>khxooo 发表于 2026-8-2 16:46
+那个地图隐藏任务只找到17个，有攻略图吗？</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/02/164804b81dtmv11cdi1xgg.png" referrerpolicy="no-referrer">
+
+<strong>1785660454652.png</strong> (442.34 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-2 16:48 上传
+
+*****
+
+####  麻花疼  
+##### 21158#       发表于 2026-8-2 16:50
+
+去年给太多了，今年感觉平平无奇，但这才是FGO啊！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能看泳装里有没有啥大活了。
+
+
+*****
+
+####  khxooo  
+##### 21159#       发表于 2026-8-2 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001446&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2026-8-2 16:47</a></blockquote>
+感谢攻略图
+
+*****
+
+####  森兰丸  
+##### 21160#       发表于 2026-8-2 16:54
+
+开16羁绊是好事.....可是非洲人只剩1个梦火了啊....还是之前的活动奖励
+
+都已经好几个月连绿方块商店的茶壶都不换了
+
+运营还是没打算放宽梦火的获取手段吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

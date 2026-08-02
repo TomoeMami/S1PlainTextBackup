@@ -4132,3 +4132,11 @@ Qwen3.7 Max 稍好一些。它的回答、流式 reasoning、工具调用都能�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">opencode go订阅蹬flash 也太爽了，用不完的感觉啊
 
+
+*****
+
+####  舞以  
+##### 4800#       发表于 2026-8-2 16:50
+
+看了下东山奈央的评测文章，看起来ds的第一方harness还真有说法<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
