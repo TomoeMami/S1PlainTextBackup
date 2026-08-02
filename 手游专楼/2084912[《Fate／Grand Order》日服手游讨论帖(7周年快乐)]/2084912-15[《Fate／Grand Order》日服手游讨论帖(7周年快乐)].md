@@ -1680,3 +1680,14 @@ b0d66a4e82395f49cefe27b2970b2e0c33874.png@1052w_!web-dynamic.webp
 有没有可能，我之前没有金方块换梦火，或者根本没有换梦火，直到后来才开始换，所以比你少 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">漏油居然不换梦火 从未设想过的道路
 
+
+*****
+
+####  khxooo  
+##### 21222#       发表于 2026-8-3 00:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003066&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-3 00:23</a>
+
+漏油居然不换梦火 从未设想过的道路</blockquote>
+之前哪有想到自己会有10羁绊的那一天，所以之前都没重视，直到10羁绊开始多起来了，才开始重视这东西<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
