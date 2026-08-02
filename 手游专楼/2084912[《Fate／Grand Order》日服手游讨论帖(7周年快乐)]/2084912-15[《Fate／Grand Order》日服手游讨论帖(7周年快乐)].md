@@ -1469,3 +1469,18 @@ extra任务160
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能本来就没有意义 纯自嗨
 
+
+*****
+
+####  格林卡罗尔  
+##### 21204#       发表于 2026-8-2 20:59
+
+抽福袋前忘记等强化本了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 21205#       发表于 2026-8-2 21:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这强化本一大半已经内定了 有什么号等的
+

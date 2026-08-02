@@ -657,3 +657,11 @@ pc盗版现在只能玩30g的早期版本。
 
 媒体评分啥时候出
 
+
+*****
+
+####  二十二颗牛油果  
+##### 350#       发表于 2026-8-2 20:58
+
+所以剑星最关键的服装驱动学到了没，不会连换装都没有吧，那很难提起什么购买欲啊<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
