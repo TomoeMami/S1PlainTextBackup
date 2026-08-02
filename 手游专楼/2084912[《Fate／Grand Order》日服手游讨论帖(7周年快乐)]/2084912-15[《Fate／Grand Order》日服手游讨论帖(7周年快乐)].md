@@ -533,3 +533,122 @@ pv最后有cv表，但是我看的pv怎么没听到人声？</blockquote>
 
 大梦火来了，16绊
 
+
+*****
+
+####  xiongxingyu  
+##### 21106#       发表于 2026-8-2 16:06
+
+16绊了，老东西们又可以出来加班了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 21107#       发表于 2026-8-2 16:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">所长可以继续打 虽然就算满羁绊了还是不妨碍我继续所长打所有本
+
+*****
+
+####  eilot  
+##### 21108#       发表于 2026-8-2 16:07
+
+攻擊血量上限再多1000，5星素材
+
+大夢火終於能上16絆...
+
+之後就是那些卡片上限都各加100
+
+不過曜日關的減半為何不能永久減半，和沒有SKIP...
+
+*****
+
+####  alucardcz  
+##### 21109#       发表于 2026-8-2 16:08
+
+那么问题来了 16羁绊给不给硬币。。。5宝能不能完全体？
+
+*****
+
+####  exiaexa  
+##### 21110#       发表于 2026-8-2 16:10
+
+<img src="https://img.stage1st.com/forum/202608/02/160959eryra55fs1osmpsr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (119.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 16:09 上传
+
+开！奶！
+
+*****
+
+####  yangun22  
+##### 21111#       发表于 2026-8-2 16:10
+
+肯定的，不然前面抽6宝的不就被背刺了
+
+*****
+
+####  壳壳牛  
+##### 21112#       发表于 2026-8-2 16:10
+
+完啦搞笑玉玉了
+
+*****
+
+####  alucardcz  
+##### 21113#       发表于 2026-8-2 16:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">好消息 强化本没有金术  坏消息 玉师傅又寄了
+
+
+*****
+
+####  千叶铁矢  
+##### 21114#       发表于 2026-8-2 16:12
+
+16绊给硬币吗？
+
+*****
+
+####  exiaexa  
+##### 21115#       发表于 2026-8-2 16:13
+
+杰基尔、列奥尼达、歌剧魅影、剑元帅、C元帅，估计一人一个强化本了
+
+14个人瞬间只剩9个
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 21116#       发表于 2026-8-2 16:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">没有拉二
+
+*****
+
+####  壳壳牛  
+##### 21117#       发表于 2026-8-2 16:13
+
+笑了
+
+玩家想要的，舍弃
+
+*****
+
+####  alucardcz  
+##### 21118#       发表于 2026-8-2 16:14
+
+什么 还有一批？ 拉二还没寄！
+
+*****
+
+####  xiongxingyu  
+##### 21119#       发表于 2026-8-2 16:15
+
+woc，还有二段击<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6558,3 +6558,11 @@ https://gamewith.jp/splatoon-raiders/569753
 
 在食堂60+刷到把带3级碎冰两级发酵的绝品玩具鲨鱼爆破枪，好爽<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Antidote丶  
+##### 800#       发表于 2026-8-2 16:10
+
+挂了好几天了，热泡都没几把，更别说绝品鲨鱼泡了
+
