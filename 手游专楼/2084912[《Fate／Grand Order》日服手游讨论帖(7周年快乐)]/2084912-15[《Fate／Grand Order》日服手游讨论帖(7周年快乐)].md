@@ -344,3 +344,48 @@ AI大概想不出大脚糊脸这种构思<img src="https://static.stage1st.com/i
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  alucardcz  
+##### 21084#       发表于 2026-8-2 15:18
+
+怎么回事 怎么感觉周年从者要是红a了？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno1  
+##### 21085#       发表于 2026-8-2 15:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001188&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-2 15:18</a>
+
+怎么回事 怎么感觉周年从者要是红a了？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">周年男神那可太神秘了
+
+*****
+
+####  日蚀之阳  
+##### 21086#       发表于 2026-8-2 15:22
+
+难道三百英雄是真的
+
+*****
+
+####  exiaexa  
+##### 21087#       发表于 2026-8-2 15:23
+
+这动画意境无敌，但是总感觉像没画完似的
+
+特种毫无过度的闪现
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 21088#       发表于 2026-8-2 15:24
+
+没看懂啥玩意儿啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

@@ -1197,3 +1197,11 @@ Z3新参的战斗动画大多被Z2吊起来打吧，也是从Z3开始音乐不�
 
 —— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ninini212  
+##### 125#       发表于 2026-8-2 15:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这玩意儿高清素材化吗？这系列不如毁灭吧
+
