@@ -1173,3 +1173,27 @@ extra任务160
 结果是骗你上线的小巧思，每天能换什么、能用什么换全是随机的
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 21176#       发表于 2026-8-2 17:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好烦啊 这新高难 居然是限制条件通关给东西
+
+*****
+
+####  alucardcz  
+##### 21177#       发表于 2026-8-2 17:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第1个16羁绊给了杀狐 果然没有硬币
+
+*****
+
+####  angelooo  
+##### 21178#       发表于 2026-8-2 17:50
+
+<blockquote>char0311131 发表于 2026-8-2 17:27
+后夜祭副本打完掉30个石头</blockquote>
+卧槽我和迦球人互相理解了，请召唤更多的虹腕过来
+

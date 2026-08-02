@@ -4272,3 +4272,15 @@ oa专营权可不能动摇
 
 价格和性能在这里，墙不了的，中转站只会吃饱
 
+
+*****
+
+####  舞以  
+##### 4815#       发表于 2026-8-2 17:50
+
+感觉这次flash更新冲击最大的是之前炒作luna斩杀一切的o孝子啊
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然在oa两家里面我觉得o比
+a强多了，而且也送了不少钱，但是没想到竟然会这么哈气
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
