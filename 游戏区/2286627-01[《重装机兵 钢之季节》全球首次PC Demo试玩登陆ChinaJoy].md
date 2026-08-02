@@ -587,3 +587,14 @@ bug有原汁原味移植吗<img src="https://static.stage1st.com/image/smiley/fa
 20年后重回视野《重装机兵 钢之季节》复刻版发行商巧思专访
 [https://weibo.com/ttarticle/x/m/show#/id=2309405327479404626256](https://weibo.com/ttarticle/x/m/show#/id=2309405327479404626256)
 
+
+*****
+
+####  locco1229  
+##### 58#       发表于 2026-8-2 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000763&amp;ptid=2286627" target="_blank">七月狼 发表于 2026-8-2 12:44</a>
+
+我猜可能是国内公司的美工自己画的，然后画的时候并不知道狼车是梅卡瓦甚至不懂坦克，照着图标和淘宝小坦 ...</blockquote>
+梅卡瓦多反动阿。。这个像俄罗斯的。。
+

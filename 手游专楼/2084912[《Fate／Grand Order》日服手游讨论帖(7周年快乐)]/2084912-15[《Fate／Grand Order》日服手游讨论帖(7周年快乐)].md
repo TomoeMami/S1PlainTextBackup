@@ -1344,3 +1344,24 @@ extra任务160
 
 2026-8-2 18:52 上传
 
+
+*****
+
+####  都谷捻柏  
+##### 21192#       发表于 2026-8-2 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001806&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-2 18:47</a>
+
+一张加100  最慢只要30个月就能3000！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是1000吧，2000到3000，十个月。
+
+*****
+
+####  alucardcz  
+##### 21193#       发表于 2026-8-2 19:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001861&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2026-8-2 19:04</a>
+
+是1000吧，2000到3000，十个月。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">醒醒 这商店3个月一更
+

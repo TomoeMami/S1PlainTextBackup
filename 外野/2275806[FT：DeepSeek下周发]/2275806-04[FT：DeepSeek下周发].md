@@ -4388,3 +4388,36 @@ ds在美股赚爽了估计
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 4825#       发表于 2026-8-2 19:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+我司也不让用ds原厂的了 主要是他们没有对公的协议 公司数据被用来训练对传统行业还有有点太刺激了 只有用其他大厂再部署的
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  zukunes  
+##### 4826#       发表于 2026-8-2 19:01
+
+我要给梁圣充钱！新版flash 提升非常明显！对我来说够用了。
+
+*****
+
+####  舞以  
+##### 4827#       发表于 2026-8-2 19:01
+
+<img src="https://img.stage1st.com/forum/202608/02/190133hhuvhjcddj96dlhb.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (32.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 19:01 上传
+
+用不完，根本用不完<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
