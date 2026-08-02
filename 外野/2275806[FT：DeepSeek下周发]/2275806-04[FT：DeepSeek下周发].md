@@ -4421,3 +4421,26 @@ ds在美股赚爽了估计
 
 用不完，根本用不完<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rowen233  
+##### 4828#       发表于 2026-8-2 19:22
+
+<blockquote>lactone 发表于 2026-8-2 18:28
+我是不知道那天这帮人为啥这么急
+
+降价六个小时就斩杀？而且哪怕没有这个正式版，别的国模不会降价吗？</blockquote>
+luna降价有人猜原因是rudin这代卡到位了算力没那么紧张了
+
+算力这方面还得追几年
+
+*****
+
+####  akirt  
+##### 4829#       发表于 2026-8-2 19:26
+
+[https://www.bilibili.com/video/BV1fk3X6CEXb/](https://www.bilibili.com/video/BV1fk3X6CEXb/)
+
+glm 5.2被斩杀了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
