@@ -4663,3 +4663,14 @@ oa两家炒作沙箱逃逸对网络安全的影响可能不如梁叔叔的一键
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  squallx  
+##### 4850#       发表于 2026-8-3 02:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003310&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-3 02:08</a>
+
+x上到处都是本地部署的测试，感觉以后各种网安嘉豪和中小组织都可能靠本地部署，微调去掉拒答的flash-0731 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我这第一时间就是检查家中网安 然后发现智能电器太多简直就是住在屎山里
+

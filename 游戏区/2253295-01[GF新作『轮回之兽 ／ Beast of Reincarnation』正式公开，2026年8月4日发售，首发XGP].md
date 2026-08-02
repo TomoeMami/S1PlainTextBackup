@@ -734,3 +734,11 @@ boss打完的演出像素级复刻旺达与巨像啊，看乐了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能是因为大家都想看看GF除了宝可梦外还能做出点啥吧
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过目前基本已经被骂的烂完了，我买的key也无所谓退不了，过两天还是会去尝尝的
 
+
+*****
+
+####  缺德猫  
+##### 358#       发表于 2026-8-3 02:18
+
+基本完犊子了
+
