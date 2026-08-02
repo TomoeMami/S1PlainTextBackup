@@ -3639,3 +3639,24 @@ m3免费了？
 https://tokenrhythm.studio/i/rf_tr_iK2qoQvnYbXev7nAEcycym ...</blockquote>
 感谢，不过看了一下怎么dsv4f不支持response api，难道还是老款，我看官方新款已经支持了<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  アコ  
+##### 4760#       发表于 2026-8-2 09:58
+
+帮我助力，一起拿大奖！完成注册即可获得68元免费token额度
+[https://tokenrhythm.studio/i/rf_tr_4C00s8CJfRN4etBEGPQ_o5Kw](https://tokenrhythm.studio/i/rf_tr_4C00s8CJfRN4etBEGPQ_o5Kw)
+
+我也接一个，DS和GLM可以爽蹬<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  novem  
+##### 4761#       发表于 2026-8-2 10:03
+
+网页版PRO的知识库是2026年4月，难道也在灰度V4吗
+
+回答和之前的V3完全不一样
+

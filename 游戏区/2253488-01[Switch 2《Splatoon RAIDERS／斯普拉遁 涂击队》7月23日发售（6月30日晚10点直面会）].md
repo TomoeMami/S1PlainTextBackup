@@ -6451,3 +6451,29 @@ https://gamewith.jp/splatoon-raiders/569753
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  doraemonmilmil  
+##### 790#       发表于 2026-8-2 10:01
+
+<img src="https://img.stage1st.com/forum/202608/02/100211zwtomkauk8qedrrr.jpg" referrerpolicy="no-referrer">
+
+<strong>20260801215019-01KYYD9RDTTSD54N1RQ69ZXFJF.jpg</strong> (331 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 10:02 上传
+
+<img src="https://img.stage1st.com/forum/202608/02/100211fwxceeuuufz6uehy.jpg" referrerpolicy="no-referrer">
+
+<strong>20260801215033-01KYYDA45HJ5BWV9ADTAA9VFZ4.jpg</strong> (502 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-2 10:02 上传
+
+虽然过了，但还是想说设计这四个小游戏的策划是想报复社会对吧，尤其是那个landing，打完感觉脾气好了不少<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
