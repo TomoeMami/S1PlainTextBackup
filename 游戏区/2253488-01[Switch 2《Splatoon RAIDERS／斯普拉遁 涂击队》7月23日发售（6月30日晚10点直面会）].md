@@ -6631,3 +6631,11 @@ https://gamewith.jp/splatoon-raiders/569753
 
 感觉是随机的，我打完100层没满回1-3层刷了，现在还差六个。
 
+
+*****
+
+####  otakun  
+##### 806#       发表于 2026-8-2 20:47
+
+出了个绝品引擎滚筒，看了下数据，横挥31562，涂墨前进78906！？真压路机吗<img src="https://static.stage1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">，之前用其他，涂墨伤害都就横挥低一点？
+
