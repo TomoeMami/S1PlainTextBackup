@@ -6578,3 +6578,18 @@ https://gamewith.jp/splatoon-raiders/569753
 
 这太不平衡了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hl氏  
+##### 802#       发表于 2026-8-2 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001473&amp;ptid=2253488" target="_blank">月华刹那 发表于 2026-8-2 16:56</a>
+
+这高难度下要是单打玩家只能飞天流吧？
+
+那些boss鲑鱼除了塔和垃圾桶基本都打不到空中的
+
+这太不平衡了 ...</blockquote>
+有管看到个X高手拿防空伞在地上打的，手艺够高就不用上天<img src="https://static.stage1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+

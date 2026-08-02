@@ -1231,3 +1231,11 @@ Z3新参的战斗动画大多被Z2吊起来打吧，也是从Z3开始音乐不�
 
 应该把og移植上steam看看效果呗，又多花不了啥钱，30都卖那么好，价格合适点我觉得og人家也会试试，毕竟口碑不差啊。我以前也不玩og，后来无聊试试就都玩了一遍。
 
+
+*****
+
+####  RainbowSealife  
+##### 128#       发表于 2026-8-2 17:28
+
+猜猜代孙会把乳/摇河蟹了吗？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

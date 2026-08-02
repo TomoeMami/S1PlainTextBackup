@@ -4215,3 +4215,13 @@ opencode go怎么弄到那么便宜大碗的, 真的惊了
 
 可以用在别的agent程序吗
 
+
+*****
+
+####  Rowen233  
+##### 4809#       发表于 2026-8-2 17:25
+
+<blockquote>cscbzcbz 发表于 2026-8-2 17:21
+笑嘻了</blockquote>
+好在gpt plus在luna降价后性价比还可以
+
