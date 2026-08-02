@@ -1205,3 +1205,21 @@ Z3新参的战斗动画大多被Z2吊起来打吧，也是从Z3开始音乐不�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这玩意儿高清素材化吗？这系列不如毁灭吧
 
+
+*****
+
+####  猪突猛进R  
+##### 126#       发表于 2026-8-2 15:40
+
+回看了下PSP版的OP，很长！
+
+不过整个OP都是在打次元兽<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后又看了DEMO战斗，一上来就是刹那在殴打2000次<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+那时候的战斗动画还是很有镜头感的，现在的似乎执着于“还原原作”。
+
+后面看到盖塔，又莫名想到DD的EVA三人组开盖塔成真了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便为什么复刻破界，可能没那么复杂，单纯是非人类敌人的次元兽当反派比较舒适。隔壁高达片场也将要打外星人。
+

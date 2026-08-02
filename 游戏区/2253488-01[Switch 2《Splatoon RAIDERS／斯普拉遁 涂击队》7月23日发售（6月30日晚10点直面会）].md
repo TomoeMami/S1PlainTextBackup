@@ -6531,3 +6531,22 @@ https://gamewith.jp/splatoon-raiders/569753
 
 自己捣鼓了下发现挂天妇罗完全不需要很高的配置，挂一天看看能出啥
 
+
+*****
+
+####  才口千  
+##### 797#       发表于 2026-8-2 15:39
+
+新手，一开始需要一些倒计时关卡，时间总是不够，求🥹正确打开方式。
+
+*****
+
+####  martinoy  
+##### 798#       发表于 2026-8-2 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70001248&amp;ptid=2253488" target="_blank">才口千 发表于 2026-8-2 15:39</a>
+新手，一开始需要一些倒计时关卡，时间总是不够，求🥹正确打开方式。</blockquote>
+除非你特别手残，一般就是dps不够，需要提升武器和等级
+
+— from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
