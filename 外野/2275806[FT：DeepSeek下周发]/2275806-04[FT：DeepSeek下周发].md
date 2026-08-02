@@ -3739,3 +3739,13 @@ https://tokenrhythm.studio/i/rf_tr_4C00s8CJf ...</blockquote>
 
 4.现在主要没有厂家专门去提升写作能力
 
+
+*****
+
+####  serj005  
+##### 4768#       发表于 2026-8-2 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000072&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-8-2 09:36</a>
+感谢，不过看了一下怎么dsv4f不支持response api，难道还是老款，我看官方新款已经支持了 ...</blockquote>
+responses只是一种请求结构，是需要供应商自己来适配实现的，不是ds自己做了其他人就能直接拿来用，这个接口本身和模型版本没有联系
+
