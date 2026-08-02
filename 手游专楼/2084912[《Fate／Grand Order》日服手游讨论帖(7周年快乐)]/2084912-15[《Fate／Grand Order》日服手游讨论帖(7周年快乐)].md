@@ -305,3 +305,14 @@ AI大概想不出大脚糊脸这种构思<img src="https://static.stage1st.com/i
 
 齐了。
 
+
+*****
+
+####  exiaexa  
+##### 21080#       发表于 2026-8-2 12:21
+
+最奇怪的是红阎魔怎么混的5星
+
+特别是最左边怎么看都是黑枪呆的前提下
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
