@@ -5053,3 +5053,11 @@ https://tokenrhythm.studio/i/rf_tr_bjxY ...</blockquote>
 
 ——来自  HUAWEI Mate 80 Pro OpenHarmony-7.0.0.32(Beta2)(26) 上的 [S1 Orange](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2244111) 1.4.1
 
+
+*****
+
+####  thq  
+##### 4885#       发表于 2026-8-3 11:32
+
+千问max是首次开源啊, 是被哪家刺激到了?
+

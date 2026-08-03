@@ -451,3 +451,26 @@ SSR成员附带专属动画演出！该动画也会在抽卡及节奏游戏画�
 《BanG Dream! Our Notes》目前正在火热预约中🎶</blockquote>
        [https://www.bilibili.com/video/BV1JnGA6zEHA](https://www.bilibili.com/video/BV1JnGA6zEHA)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41977#       发表于 2026-8-3 11:35
+
+       <strong>SSR成员——Ave Mujica Amoris/祐天寺若麦的卡面立绘</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/03/113525fl4y95srf5494e7y.jpg" referrerpolicy="no-referrer">
+
+<strong>1193d3d9b6a9e511f096f57fa67e2853fcc419e7.jpg</strong> (182.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-3 11:35 上传
+
+🌙 现在为大家介绍的是SSR成员——Ave Mujica Amoris/祐天寺若麦的卡面立绘✨
+
+SSR成员附带专属动画演出！该动画也会在抽卡及节奏游戏画面中显示哦！
+
+《BanG Dream! Our Notes》目前正在火热预约中🎶</blockquote>
+       [https://www.bilibili.com/video/BV1S7Gw6QEUb](https://www.bilibili.com/video/BV1S7Gw6QEUb)
+
