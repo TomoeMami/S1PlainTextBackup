@@ -5749,3 +5749,34 @@ qwen3.8 27b盲猜deepswe也能有四十几分，当个本地识图模型不比lu
 
 codex注册时的手机关卡怎么过？
 
+
+*****
+
+####  UncleDracula  
+##### 4952#       发表于 2026-8-3 16:39
+
+怎么临下班大家都开始上班了？卡爆了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 4953#       发表于 2026-8-3 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006406&amp;ptid=2275806" target="_blank">fanisy 发表于 2026-8-3 16:28</a>
+codex注册时的手机关卡怎么过？</blockquote>
+那就是被风控了，不过如果是用ds的话不用管
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  空き地卯木  
+##### 4954#       发表于 2026-8-3 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006406&amp;ptid=2275806" target="_blank">fanisy 发表于 2026-8-3 16:28</a>
+codex注册时的手机关卡怎么过？</blockquote>
+我是直接用Google账号注册的，Google账号绑的国内手机号倒是也不影响，不知道是老Google账号权重比较高还是codex压根不抓这部分的数据
+如果不用chatgpt只是用它的软件的话好像也没那么麻烦，直接跑deepseek官网给的脚本就能行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

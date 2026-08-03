@@ -1201,3 +1201,11 @@ pc平台拖累咱gf了？
 —— 来自 鹅球 v3.4.98 ...</blockquote>
 看到是个会魔法的BOSS都得抖一抖<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 406#       发表于 2026-8-3 16:45
+
+在B站看到个超级洗翠人MOD了，游戏还未正式发售呢<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

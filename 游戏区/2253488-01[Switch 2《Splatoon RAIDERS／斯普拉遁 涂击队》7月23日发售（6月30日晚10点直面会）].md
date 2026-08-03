@@ -7001,3 +7001,11 @@ https://gamewith.jp/splatoon-raiders/569753
 
 我能出货单纯是时间够久罢了。
 
+
+*****
+
+####  otakun  
+##### 841#       发表于 2026-8-3 16:39
+
+矿图被两条金鲑鱼跑了，心痛<img src="https://static.stage1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
