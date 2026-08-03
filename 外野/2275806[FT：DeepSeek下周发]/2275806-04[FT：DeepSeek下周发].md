@@ -4759,3 +4759,25 @@ flash全面斩杀sol
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4859#       发表于 2026-8-3 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003758&amp;ptid=2275806" target="_blank">水風船 发表于 2026-8-3 09:03</a>
+今天早上玩了一圈，感觉纯粹的不涉及现实情况的哲学辩经还是gemini厉害，一样的话题gemini两轮就能讨论出的 ...</blockquote>
+Gemini太喜欢迎合用户了，我跟它辨军事领域，每几轮就我国的歼20云云
+不是你跟谁俩呢，你哪国ai啊你就套近乎<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  serj005  
+##### 4860#       发表于 2026-8-3 09:44
+
+看ds官方文档发现新的responses api好像可以调用ds自己的服务端在线搜索功能，自己试着调用了一下发现真能搜。
+以前的Chat Completions API一直没这个功能就以为web搜索是网页端独占的。
+后面再看Anthropic API的文档发现Anthropic API也能调用搜索功能。
+

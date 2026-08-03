@@ -1691,3 +1691,61 @@ b0d66a4e82395f49cefe27b2970b2e0c33874.png@1052w_!web-dynamic.webp
 漏油居然不换梦火 从未设想过的道路</blockquote>
 之前哪有想到自己会有10羁绊的那一天，所以之前都没重视，直到10羁绊开始多起来了，才开始重视这东西<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 21223#       发表于 2026-8-3 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70002864&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-2 23:48</a>
+
+总觉得好像哪里还是不对 因为我梦火还有30几个。。。</blockquote>
+你还有30多个梦火啊，那就不奇怪了。你是集中升那几个，我这是平铺玩法，而且我还给低星喂。
+
+*****
+
+####  alucardcz  
+##### 21224#       发表于 2026-8-3 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003023&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-8-3 00:11</a>
+
+你还有30多个梦火啊，那就不奇怪了。你是集中升那几个，我这是平铺玩法，而且我还给低星喂。 ...</blockquote>
+你升6又不要梦火 所以不是更不对了。。你梦火应该比我多很多才对<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 21225#       发表于 2026-8-3 00:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003031&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-3 00:13</a>
+
+你升6又不要梦火 所以不是更不对了。。你梦火应该比我多很多才对</blockquote>
+有没有可能，我之前没有金方块换梦火，或者根本没有换梦火，直到后来才开始换，所以比你少<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 21226#       发表于 2026-8-3 00:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003039&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-8-3 00:15</a>
+
+有没有可能，我之前没有金方块换梦火，或者根本没有换梦火，直到后来才开始换，所以比你少 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">漏油居然不换梦火 从未设想过的道路
+
+*****
+
+####  khxooo  
+##### 21227#       发表于 2026-8-3 00:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003066&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-3 00:23</a>
+
+漏油居然不换梦火 从未设想过的道路</blockquote>
+之前哪有想到自己会有10羁绊的那一天，所以之前都没重视，直到10羁绊开始多起来了，才开始重视这东西<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 21228#       发表于 2026-8-3 09:37
+
+昨天直播间里看弹幕说小太阳阿周那画面那么多是给越来越多的在日印度人看的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
