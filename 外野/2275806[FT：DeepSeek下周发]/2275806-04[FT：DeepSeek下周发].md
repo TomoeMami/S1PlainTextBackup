@@ -6043,3 +6043,25 @@ pi 和 reasonix 哪个好用</blockquote>
 
 2026-8-3 19:33 上传
 
+
+*****
+
+####  nxmonitor  
+##### 4981#       发表于 2026-8-3 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007464&amp;ptid=2275806" target="_blank">fmchar 发表于 2026-8-3 19:33</a>
+
+这鲸鱼娘顶得住吗？？</blockquote>
+这是周六的数据，所以顶住了，当然其实已经有点降智了……
+
+*****
+
+####  hugosol  
+##### 4982#       发表于 2026-8-3 19:37
+
+实际上pi的核心理念不是简化，而是它把自己源码发到你电脑上了，所以你可以对它做任何事情
+
+这在agent时代完全是划时代的理念，跟以前那些硬核的极简工具完全不一样，因为你不再需要自己去看源码和文档，只要用自然语言一句话就能让它自己改自己
+
+如果想体验一下ai时代自己有多强大一定要试试<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
