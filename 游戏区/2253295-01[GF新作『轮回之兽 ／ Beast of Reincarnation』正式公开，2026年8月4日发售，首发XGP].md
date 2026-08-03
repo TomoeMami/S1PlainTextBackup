@@ -1188,3 +1188,16 @@ pc平台拖累咱gf了？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  kemyes  
+##### 405#       发表于 2026-8-3 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006286&amp;ptid=2253295" target="_blank">blue321 发表于 2026-8-3 16:07</a>
+
+好好享受这段时间，后面就是各种没持续压制成功就开始马拉松和演出的boss了
+
+—— 来自 鹅球 v3.4.98 ...</blockquote>
+看到是个会魔法的BOSS都得抖一抖<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

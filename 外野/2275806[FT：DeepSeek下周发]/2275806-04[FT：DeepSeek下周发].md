@@ -5722,3 +5722,14 @@ cli能很好的显示公式吗，现在各家gui对公式的渲染都不太好�
 cli能很好的显示公式吗，现在各家gui对公式的渲染都不太好，但是公式还蛮重要的 ...</blockquote>
 reasonix对公式显示很友好
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4949#       发表于 2026-8-3 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006194&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-3 15:49</a>
+
+本来就说这个版本不换，8月底才换</blockquote>
+啊？一杆子杵到八月底？智谱不怕股东给上压力吗
+
