@@ -198,3 +198,14 @@ FF石榴 RELINK之流从进入游戏开始，战斗系统就一眼望到 ...</bl
 
 这次有个担忧 pv演示中地图小怪太稀少了，不知道是隐藏了还是真的就这么少，感觉怪少了 生态这方面就做不好，而且会很空。
 
+
+*****
+
+####  JOJOROY  
+##### 2011#       发表于 2026-8-3 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007349&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-8-3 19:08</a>
+
+这次有个担忧 pv演示中地图小怪太稀少了，不知道是隐藏了还是真的就这么少，感觉怪少了 生态这方面就做不好 ...</blockquote>
+PV1不都是设置里把怪关掉的？XB2 XB3初次演示的时候大草原连只怪都没有
+
