@@ -1749,3 +1749,14 @@ b0d66a4e82395f49cefe27b2970b2e0c33874.png@1052w_!web-dynamic.webp
 
 昨天直播间里看弹幕说小太阳阿周那画面那么多是给越来越多的在日印度人看的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 21229#       发表于 2026-8-3 14:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003942&amp;ptid=2084912" target="_blank">希望之花 发表于 2026-8-3 09:37</a>
+
+昨天直播间里看弹幕说小太阳阿周那画面那么多是给越来越多的在日印度人看的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一眼以为进到了日本专楼
+

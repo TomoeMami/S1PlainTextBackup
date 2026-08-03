@@ -2987,3 +2987,13 @@ anime expo场刊里面表述茉里不是一个假小子，看到现在有人认�
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  aptx8285144  
+##### 249#       发表于 2026-8-3 14:11
+
+ 本帖最后由 aptx8285144 于 2026-8-3 14:13 编辑 
+
+震撼，你敢动我的新家人，我就直接召唤鱼剑砸你<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，店里的打工生活也算体验成为人类吧，BGM不错
+
