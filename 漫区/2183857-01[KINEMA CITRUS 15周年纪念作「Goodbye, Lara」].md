@@ -3081,3 +3081,11 @@ anime expo场刊里面表述茉里不是一个假小子，看到现在有人认�
 —— 来自 OnePlus PJZ110, Android 16,  ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">孩子有在学了，别骂了
 
+
+*****
+
+####  leleq  
+##### 257#       发表于 2026-8-3 18:27
+
+到现在剧情非常扎实，本集无人知晓的命运舞台了，但不能掩盖这集日常剧情的出色
+

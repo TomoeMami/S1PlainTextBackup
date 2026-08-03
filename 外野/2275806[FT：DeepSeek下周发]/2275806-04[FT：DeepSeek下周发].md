@@ -5991,3 +5991,24 @@ ds做审查自己都会建议用户有些bug没必要修，不像gpt列一大串
 
 pi 和 reasonix 哪个好用
 
+
+*****
+
+####  cscbzcbz  
+##### 4976#       发表于 2026-8-3 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007117&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-3 18:18</a>
+转：
+昨天让它做一本书的翻译工作然后开始挂机，过了许久回来检查进度，发现它翻了一遍工程文件以后就下载 ...</blockquote>
+“这种这种小活以后别烦我”<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  serj005  
+##### 4977#       发表于 2026-8-3 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007149&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-8-3 18:25</a>
+pi 和 reasonix 哪个好用</blockquote>
+定位不同，reasonix是个成品，有沙箱有子代理有权限控制等等。pi是毛坯，只有最基础提示词实现的增删改查循环，上面这些复杂功能全都要靠插件或自己实现。
+开箱即用就reasonix，pi可能要折腾，不过我自己用pi都是用的毛坯原版搞一些很轻量的简单工作，在做简单工作的时候，提示词和工具最精简的原版pi的效率更高。
+
