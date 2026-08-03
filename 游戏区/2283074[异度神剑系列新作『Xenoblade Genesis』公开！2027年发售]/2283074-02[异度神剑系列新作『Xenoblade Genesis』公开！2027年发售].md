@@ -305,3 +305,16 @@ FF7R的战斗系统设计是谁啊？叫啥？</blockquote>
 XB12怪物实质造物主都是克劳乌斯，所以虽然是两个世界但是有大量同样的种族，XB3又是两个世界的结合。XBX米 ...</blockquote>
 xbx大体型怪原创的有很多，但有大量中小体型的怪也是复用的xb1,比如火鸡人在xbx也有，只是改了个名
 
+
+*****
+
+####  laputah  
+##### 2020#       发表于 2026-8-3 23:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70005581&amp;ptid=2283074" target="_blank">无知的小鼠人 发表于 2026-8-3 14:09</a>
+
+ARPG化 对于异度神剑其实是雷点
+
+异度神剑系列虽然革新不断，但想象力丰富、充满探索价值的大地图一直是一 ...</blockquote>
+现在上电梯都是瞬移上来的，人就没在乎过看起来出不出戏随便瞬移的还怕什么掉下去
+

@@ -6358,3 +6358,16 @@ Qwen3.8果不其然拉，号称前端比Kimi强，一句话生成个我的世界
 请教下，我六月二十号花了五刀开通的opencode go，第一时间就关闭了支付宝的自动续费，之后也没再扣过钱， ...</blockquote>
 你不会一直在用zen的免费吧
 
+
+*****
+
+####  空き地卯木  
+##### 5009#       发表于 2026-8-3 23:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007117&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-3 18:18</a>
+转：
+昨天让它做一本书的翻译工作然后开始挂机，过了许久回来检查进度，发现它翻了一遍工程文件以后就下载 ...</blockquote>
+虽然更新前就遇到过拿谷歌API摸鱼的情况了，但是看到这个下7b千问代工还是太变态了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
