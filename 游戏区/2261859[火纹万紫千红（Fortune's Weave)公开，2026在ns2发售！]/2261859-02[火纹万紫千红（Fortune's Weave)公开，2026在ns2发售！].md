@@ -1263,3 +1263,11 @@ DLC保底给4个
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  反方向的波  
+##### 1590#       发表于 2026-8-3 17:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">应该是那种有几个角色无论哪条线都能用，有一些角色路线限定
+
