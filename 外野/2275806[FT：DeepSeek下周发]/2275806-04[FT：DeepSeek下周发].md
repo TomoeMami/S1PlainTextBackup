@@ -4805,3 +4805,35 @@ Gemini太喜欢迎合用户了，我跟它辨军事领域，每几轮就我国�
 不是你跟谁俩呢，你哪国ai啊你就套 ...</blockquote>
 系统提示给的，网页版的V4F也变这个样子了，先夸用户再说
 
+
+*****
+
+####  qz66618  
+##### 4863#       发表于 2026-8-3 10:11
+
+这周能把pro的正式版端出来吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  蛋黄酱Release  
+##### 4864#       发表于 2026-8-3 10:15
+
+v4f做决策还是差点劲，这周赶快把v4p和harness一起端上来吧
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  zy450  
+##### 4865#       发表于 2026-8-3 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004184&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-3 10:11</a>
+
+这周能把pro的正式版端出来吗
+
+—— 来自 鹅球 v3.5.99</blockquote>
+先把专武放出来也行啊
+

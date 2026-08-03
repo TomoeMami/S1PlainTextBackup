@@ -897,3 +897,18 @@ boss打完的演出像素级复刻旺达与巨像啊，看乐了</blockquote>
 
 那么有难度选项吗？
 
+
+*****
+
+####  wthall  
+##### 376#       发表于 2026-8-3 10:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004108&amp;ptid=2253295" target="_blank">Asukalangley33 发表于 2026-8-3 09:58</a>
+
+也许这种说法很微妙，剑星和卡赞至少你上手玩个1小时，你会认为这个游戏是“完整”的，是正常制作完成的
+
+ ...</blockquote>
+是的，全调到最高那个画面感觉还是ps3级别的。然后各种拉镜头强迫你看某个方向。
+
+打起来那奇怪的手感，瞬间觉得卡赞这游戏战斗手感太爽了。
+
