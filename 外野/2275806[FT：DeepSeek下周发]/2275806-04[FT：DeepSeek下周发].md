@@ -5623,3 +5623,45 @@ glm5.3意外泄露，现已回滚
 
     [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  nxmonitor  
+##### 4939#       发表于 2026-8-3 15:39
+
+智谱急了，问题是有Pro等着呢，这个也比GLM5.2便宜啊，还是看最后灰测会不会满血上线了……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  serj005  
+##### 4940#       发表于 2026-8-3 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006099&amp;ptid=2275806" target="_blank">nianiania 发表于 2026-8-3 15:32</a>
+我用reasonix蹬opencode go 的d4f老是有警告，不知道是为啥，官网的API就没有</blockquote>
+官网api昨天和今天也老是有工具调用警告，reasonix 1.19之后出现的，可能是reasonix本身的问题
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4941#       发表于 2026-8-3 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006123&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-3 15:37</a>
+glm5.3意外泄露，现已回滚
+    Re:Source</blockquote>
+不是5.5看都不用看，5.5才会大概率换基模
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  ayanamilin  
+##### 4942#       发表于 2026-8-3 15:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006060&amp;ptid=2275806" target="_blank">StrangerJ 发表于 2026-8-3 15:27</a>
+
+codex那个破cli感觉万年不更新，有条件还是用codex app吧，app虽然有些方便的小功能还不完善，但也比cli ...</blockquote>
+cli 最大的优点是可以和 vscode 联动，用 /ide 命令（Claude Code、Codex 都有这个命令）
+
+连接到 vscode 后就能在命令行引用你在编辑器中选中的内容、编辑前在 vscode 中显示 diff，还是很好用的。vscode 的 cc/codex 插件功能不全（尤其是 cc 插件），使用体验也不咋样。
+
