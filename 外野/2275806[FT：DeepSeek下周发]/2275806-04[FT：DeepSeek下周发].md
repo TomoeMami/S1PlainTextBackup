@@ -6274,3 +6274,22 @@ javascript不适合vibecoding
 —— 来自 HONOR AAK-AN00, Android 16, 鹅球 v3.5.99</blockquote>
 都来用rust
 
+
+*****
+
+####  drodchang  
+##### 5001#       发表于 2026-8-3 22:11
+
+deepseek的codex适配不好啊，不如pi，token还烧的快，比luna max都贵。
+
+*****
+
+####  qz66618  
+##### 5002#       发表于 2026-8-3 22:14
+
+ 本帖最后由 qz66618 于 2026-8-3 22:16 编辑 
+
+等自家harness呗，这次是直接出一个客户端还是命令行形式的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不知道能不能在harness上有大的创新
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
