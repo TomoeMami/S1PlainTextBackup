@@ -5137,3 +5137,52 @@ V4Flash在触及能力边界时候就会激动，感叹号和问号增加，跟�
 我让他写还原魔方的APP的时候就遇 ...</blockquote>
 有时候它会主动转换图片到字符画来识别，也许可以主动让它这么干来曲线实现多模态<img src="https://static.stage1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 4893#       发表于 2026-8-3 11:59
+
+这Qwen估计要跟不上了，DeepSWE分数比Flash就高了2分，Opus4.8都没刷过，大概率是会被Pro斩了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nxmonitor  
+##### 4894#       发表于 2026-8-3 12:02
+
+ 本帖最后由 nxmonitor 于 2026-8-3 12:06 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004872&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-3 11:48</a>
+
+V4Flash在触及能力边界时候就会激动，感叹号和问号增加，跟哈气了似的
+
+我让他写还原魔方的APP的时候就遇 ...</blockquote>
+这个很像是蒸馏了Pro的痕迹，感叹号是用来提高关注点的地方，当然这个是真正意义上的蒸馏，不是搞点语料
+
+*****
+
+####  王兰花秀丽  
+##### 4895#       发表于 2026-8-3 12:03
+
+我觉得v4p有多模态能力 ，不然就是harness有什么特殊视觉功能  [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  nxmonitor  
+##### 4896#       发表于 2026-8-3 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004899&amp;ptid=2275806" target="_blank">SmterC 发表于 2026-8-3 11:51</a>
+
+有时候它会主动转换图片到字符画来识别，也许可以主动让它这么干来曲线实现多模态    Re:Source ...</blockquote>
+外接一个多模态模型比如最便宜的Mimo，告诉他截图就去调用这个，转成向量以后就能懂了
+
+*****
+
+####  drodchang  
+##### 4897#       发表于 2026-8-3 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004771&amp;ptid=2275806" target="_blank">thq 发表于 2026-8-3 11:32</a>
+
+千问max是首次开源啊, 是被哪家刺激到了?</blockquote>
+那还用说，kimi呗
+
