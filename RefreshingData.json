@@ -2228,7 +2228,7 @@
     "newtitle": "[动画&原作『魔法科高校的劣等生』专楼 动画第2部制作决定]",
     "lastedit": 1785503645,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2068301": {
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 45021,
+    "totalreply": 45024,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1785762486,
+    "lastedit": 1785763086,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12816,10 +12816,10 @@
     "update": false
   },
   "2275215": {
-    "totalreply": 11640,
+    "totalreply": 11641,
     "title": "[巴哥和田姐这瓜简直是白色相簿2pro max]",
     "newtitle": "[【巴哥市区】NPD巴畜鞭笞楼兼田姐真爱楼]",
-    "lastedit": 1785761646,
+    "lastedit": 1785762605,
     "category": "外野",
     "active": true,
     "update": false
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 4992,
+    "totalreply": 4994,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[正式版 v4 flash 已上线，pro 8月初｜DeepSeek v4讨论专楼]",
-    "lastedit": 1785762248,
+    "lastedit": 1785762966,
     "category": "外野",
     "active": true,
     "update": false
@@ -13122,10 +13122,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 18573,
+    "totalreply": 18578,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1785762365,
+    "lastedit": 1785762965,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13482,10 +13482,10 @@
     "update": false
   },
   "2174678": {
-    "totalreply": 783,
+    "totalreply": 785,
     "title": "[Falcom东京迷城系列新作《京都幻都 -樱花幻舞-》确定7／16发售]",
     "newtitle": "[Falcom东京迷城系列新作《京都幻都 -樱花幻舞-》确定7／16发售]",
-    "lastedit": 1785762486,
+    "lastedit": 1785763086,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14108,15 +14108,6 @@
     "newtitle": "[《归零巡礼：亡谍镇魂曲》媒体评分：MC84／OC91，GS8]",
     "lastedit": 1784795647,
     "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2285695": {
-    "totalreply": 43,
-    "title": "[艹，少女革命这什么结局]",
-    "newtitle": "[艹，少女革命这什么结局]",
-    "lastedit": 1784553005,
-    "category": "漫区",
     "active": false,
     "update": false
   },
@@ -16731,10 +16722,10 @@
     "update": false
   },
   "2286591": {
-    "totalreply": 84,
+    "totalreply": 85,
     "title": "[AI 本地文生图模型部署不完全指北]",
     "newtitle": "[AI 本地文生图模型部署不完全指北]",
-    "lastedit": 1785761046,
+    "lastedit": 1785762605,
     "category": "外野",
     "active": true,
     "update": false
@@ -17262,10 +17253,10 @@
     "update": false
   },
   "2246006": {
-    "totalreply": 55,
+    "totalreply": 56,
     "title": "[网易暗黑仙侠单机ARPG《剑心雕龙》今日游戏画面首次曝光！]",
     "newtitle": "[网易暗黑仙侠单机ARPG《剑心雕龙》今日游戏画面首次曝光！]",
-    "lastedit": 1785762486,
+    "lastedit": 1785762725,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17280,10 +17271,19 @@
     "update": false
   },
   "2286853": {
-    "totalreply": 41,
+    "totalreply": 43,
     "title": "[线下直面培育钻石，还是被震撼了]",
     "newtitle": "[线下直面培育钻石，还是被震撼了]",
-    "lastedit": 1785761647,
+    "lastedit": 1785762965,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2286842": {
+    "totalreply": 41,
+    "title": "[今日最好笑话：“余公疑删”]",
+    "newtitle": "[今日最好笑话：“余公疑删”]",
+    "lastedit": 1785762966,
     "category": "外野",
     "active": true,
     "update": false

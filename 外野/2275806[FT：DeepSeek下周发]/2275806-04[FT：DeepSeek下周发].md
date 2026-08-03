@@ -6185,3 +6185,22 @@ opencode不用信用卡,支付宝也可以
 
 蓝色大肥鱼已急哭<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/34/86116f499a5221e75bebcd1a612fc9bb/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 4993#       发表于 2026-8-3 21:12
+
+javascript不适合vibecoding<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  舞以  
+##### 4994#       发表于 2026-8-3 21:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">傻卵sol又搁这给我造屎了，艹了
+
+同样拉屎，v4f起码便宜啊<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
