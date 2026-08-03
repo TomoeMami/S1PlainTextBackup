@@ -254,3 +254,11 @@ boss大概 ...</blockquote>
 恢复胶囊还在发力。太超模了</blockquote>
 官方小作文是只有恢复没用，最后是用幻影胶囊恢复腰带的，剧里也是用了幻影才恢复原样
 
+
+*****
+
+####  失落之翼  
+##### 2130#       发表于 2026-8-3 09:54
+
+牢诺和夫人进小黑屋贴贴，不敢想不敢想<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
