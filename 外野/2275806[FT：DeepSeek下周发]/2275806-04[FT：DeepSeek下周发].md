@@ -5824,3 +5824,42 @@ codex注册时的手机关卡怎么过？</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  →熙←  
+##### 4959#       发表于 2026-8-3 17:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要忘记v4有专门训练过角色扮演的呀
+
+*****
+
+####  neptunehs  
+##### 4960#       发表于 2026-8-3 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006226&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-3 15:56</a>
+luna感觉是个完美的识图辅助模型
+
+论坛助手,iPhone</blockquote>
+看了下luna居然只比minimaxm3略贵一点点
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  crow_wine  
+##### 4961#       发表于 2026-8-3 17:25
+
+opencode go的DeepSeek v4 flash在拉子代理的时候也是只能一个代理跑完下一个代理才能跑，速度很慢，莫名其妙断连，体感很差，想蹬完剩下40%额度应该是蹬不完了……明明是转发搞这么慢，明明直接用官网的速度飞快
+
+*****
+
+####  舞以  
+##### 4962#       发表于 2026-8-3 17:26
+
+估计opencode给ds的预付款直接被烧完了<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+就看还能不能boki了，现在是萎了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
