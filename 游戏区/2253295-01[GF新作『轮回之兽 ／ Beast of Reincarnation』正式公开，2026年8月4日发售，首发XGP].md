@@ -1209,3 +1209,13 @@ pc平台拖累咱gf了？
 
 在B站看到个超级洗翠人MOD了，游戏还未正式发售呢<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zero33333  
+##### 407#       发表于 2026-8-3 16:49
+
+不好玩
+
+—— 来自 vivo V2068A, Android 11, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

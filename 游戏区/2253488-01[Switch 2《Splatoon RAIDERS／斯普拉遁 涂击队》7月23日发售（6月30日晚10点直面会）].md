@@ -7009,3 +7009,19 @@ https://gamewith.jp/splatoon-raiders/569753
 
 矿图被两条金鲑鱼跑了，心痛<img src="https://static.stage1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zero33333  
+##### 842#       发表于 2026-8-3 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006275&amp;ptid=2253488" target="_blank">mai6696 发表于 2026-8-3 16:05</a>
+打80级矿图的理由：
+
+①刷金鲑鱼图鉴
+
+②就是缺钱</blockquote>
+低级的不出吗
+
+—— 来自 vivo V2068A, Android 11, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

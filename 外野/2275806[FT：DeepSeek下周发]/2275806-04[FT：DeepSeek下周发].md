@@ -5780,3 +5780,20 @@ codex注册时的手机关卡怎么过？</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  舞以  
+##### 4955#       发表于 2026-8-3 16:46
+
+我也是用很老的Google账号登录的，当然我gpt账号也是3.x世代，r1横空出世之前就注册了，所以一直没被风控过。
+
+估计是老用户了，没必要较真<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonberry  
+##### 4956#       发表于 2026-8-3 16:47
+
+因为dsv4f又快又强又便宜，所以现在办公直接上hermes了，辅助的视觉模型用的mimo2.5，现在高强度使用花费也就之前用v4p的一半
+

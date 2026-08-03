@@ -1709,3 +1709,23 @@ Z2，12年出的，后面还有UXBX呢，不过玩索系机战看不起3DS上那
 
 吾有一计，要不就用K那套系统吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用组队的组队系统，强者随便用可P小手枪biubiu收掉3组6个人头，后勤组队解决板凳问题（
 
+
+*****
+
+####  渡边加奈子  
+##### 176#       发表于 2026-8-3 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006377&amp;ptid=2286736" target="_blank">风夏 发表于 2026-8-3 16:21</a>
+
+索系吗，我想知道宇田步现在在哪发财呢
+
+—— 来自 OnePlus PJZ110, Android 16, 鹅球 v3.5.99 ...</blockquote>
+一直负责DD,寺田离开后30和Y他都以顾问身份给出开发指导
+
+*****
+
+####  未熟串烧  
+##### 177#       发表于 2026-8-3 16:55
+
+机战里的话我比较喜欢支援攻击系统，虽然就是很简单的让格纳库里的机体援护攻击，不过确实增加了露脸机会。
+
