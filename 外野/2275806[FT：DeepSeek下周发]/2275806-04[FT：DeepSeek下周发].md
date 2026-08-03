@@ -6219,3 +6219,16 @@ pi 和 reasonix 哪个好用</blockquote>
 
 - 否：用 Claude Code
 
+
+*****
+
+####  crow_wine  
+##### 4996#       发表于 2026-8-3 21:47
+
+用了下reasonix感觉挺好用的，配套工具更新真是日新月异。
+我记得以前都说什么cursor, windsurf，后面第一次用vscode copilot感觉很牛逼，后面又有什么claude code。
+再后面什么zcode, qoder, 小龙虾，loops，harnerss，opencode层出不穷。
+我自己觉得比较好用的有vscode copilot，qoder, 刚体验这个reasonix感觉也挺好的
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
