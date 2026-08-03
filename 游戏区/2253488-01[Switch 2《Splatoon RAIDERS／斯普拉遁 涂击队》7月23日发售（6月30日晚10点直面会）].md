@@ -6779,3 +6779,14 @@ https://gamewith.jp/splatoon-raiders/569753
 
 事到如今感觉一千层有隐藏boss的概率不大，可能最多给一张图吧，我感觉多半连图都没有，可能没考虑过有人会打到一千
 
+
+*****
+
+####  doraemonmilmil  
+##### 821#       发表于 2026-8-3 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003690&amp;ptid=2253488" target="_blank">otakun 发表于 2026-8-3 08:49</a>
+
+问一下这个带鞋子和跃升的速度背包玩冻结，是不是不带跟浮空有关的配件的？风扇主要用来上debuff 和收鱼 ...</blockquote>
+跃升我带了缓慢下落和回复墨汁，可以保证空中竖拍续航。（感觉竖拍五倍已经输出挺够了，在地面碾压虽然攻击力更高，使用的机会不多）风扇确实是收鱼卵，感觉150层后基本没空自己捡了，更重要的是加大吸力聚怪。这套玩法最怕雨伞怪，空中淋雨飘着飘着就暴毙了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

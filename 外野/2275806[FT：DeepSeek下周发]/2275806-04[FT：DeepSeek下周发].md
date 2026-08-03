@@ -4849,3 +4849,55 @@ v4f做决策还是差点劲，这周赶快把v4p和harness一起端上来吧
 
 官方貌似没说过harness和v4p会一起出来    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  phorcys02  
+##### 4867#       发表于 2026-8-3 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003128&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-8-3 00:42</a>
+
+量化性能之后还有多少</blockquote>
+小体积模型,你可以选择不量化,加点卡...也不贵多少
+
+*****
+
+####  卡普空  
+##### 4868#       发表于 2026-8-3 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004214&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-3 10:15</a>
+
+v4f做决策还是差点劲，这周赶快把v4p和harness一起端上来吧
+
+—— 来自 vivo V2405A, Android 16, 鹅球 v4. ...</blockquote>
+那这周可以封梁总为 开源普惠AI显圣真君
+
+*****
+
+####  david5515  
+##### 4869#       发表于 2026-8-3 10:39
+
+先用flash，等pro和工具，怎么着8月份也能出来
+
+
+*****
+
+####  tk553521  
+##### 4870#       发表于 2026-8-3 10:42
+
+这特么的离谱了，我用opencode接v4fnew，工作区没仔细看选错了，给了另一个项目的流程和接口要求开发。
+
+v4f雷霆大思考后发现了这一点，熟练地自己找到了另一个项目的代码开始给我干活了。
+
+我是真的服了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿刚  
+##### 4871#       发表于 2026-8-3 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003230&amp;ptid=2275806" target="_blank">MeursaulT 发表于 2026-8-3 01:20</a>
+
+可能墙的不止ds。我在外企，除了gpt和claude什么ai服务都访问不了，gemini grok ds qwen kimi全屏蔽。因 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">这数据安全考虑各种意义上都有点幽默了
+
