@@ -5443,3 +5443,11 @@ DeepSeek 网页/API 性能下降（DeepSeek Web/API Degraded Performance）
 
 今天就发有点不敢想啊<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CCauchy  
+##### 4920#       发表于 2026-8-3 14:22
+
+感觉现在免费的fast、flash之流最好的是grok，不仅可以写黄，文笔也没什么大毛病，就是输出少，而且过于按照提示词，没有自由发挥，不过其他的自由发挥一般都会在逻辑、空间问题上碰壁，没什么用
+
