@@ -6020,3 +6020,26 @@ pi 和 reasonix 哪个好用</blockquote>
 
 今天蹬了两亿，好爽
 
+
+*****
+
+####  olo12138  
+##### 4979#       发表于 2026-8-3 19:30
+
+问下大佬有没有什么好用的免费联网搜索，可以搜到外网内容的，主要做游戏mod时缺一些工具时让ai自己去查
+
+*****
+
+####  fmchar  
+##### 4980#       发表于 2026-8-3 19:33
+
+这鲸鱼娘顶得住吗？？
+
+<img src="https://img.stage1st.com/forum/202608/03/193302n8xrypehkmcnqyw8.jpg" referrerpolicy="no-referrer">
+
+<strong>8b2f2c9479a3c3f792846249288.jpg</strong> (69.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-3 19:33 上传
+
