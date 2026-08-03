@@ -5931,3 +5931,32 @@ opencode go的DeepSeek v4 flash在拉子代理的时候也是只能一个代理�
 两天使用下来感觉v4f比较舒服的一个特点，它遇到暂时卡住但不太影响主任务的小bug或者一些输出格式上错误时会自己进行简单评估，之后果断放弃解决这类细碎问题，很少被彻底绕进去。
 以前很多模型光是pwsh的字符乱码都要磨上老半天，硬是要完美解决才进入下一步，然后再被下一个小bug卡住。
 
+
+*****
+
+####  冤枉呐  
+##### 4970#       发表于 2026-8-3 18:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006481&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-8-3 16:40</a>
+我是直接用Google账号注册的，Google账号绑的国内手机号倒是也不影响，不知道是老Google账号权重比较高还 ...</blockquote>
+印区Apple，直接注册Google，过关
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  舞以  
+##### 4971#       发表于 2026-8-3 18:13
+
+ds做审查自己都会建议用户有些bug没必要修，不像gpt列一大串px问题，吓死个人<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Promeus  
+##### 4972#       发表于 2026-8-3 18:16
+
+现在用下来感觉v4f指令遵循能力强了很多不像之前没写几句就开始跑偏，连基础设定都放飞了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">短文的AI味也少了不少，不过问题在于多问几次AI味就又跑出来了
+
