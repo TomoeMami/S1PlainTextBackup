@@ -6849,3 +6849,14 @@ https://gamewith.jp/splatoon-raiders/569753
 
 感觉就武器看脸，手刷了40多小时的天埠罗和杏棱没出五星雪峰弓，后来打50-70层食堂时出了五星绝品雪峰弓和4K。配件零件的话，有100层的宝藏后能更容易出还没有的配件零件；其他宝藏在食堂随便找一个好刷的位置一直刷就行。
 
+
+*****
+
+####  stoiorz  
+##### 828#       发表于 2026-8-3 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004366&amp;ptid=2253488" target="_blank">doraemonmilmil 发表于 2026-8-3 10:37</a>
+
+跃升我带了缓慢下落和回复墨汁，可以保证空中竖拍续航。（感觉竖拍五倍已经输出挺够了，在地面碾压虽然攻 ...</blockquote>
+请把风扇上的防性点出来，在空中吹着增加防御力。给个3-5星。极大提高容错率。
+
