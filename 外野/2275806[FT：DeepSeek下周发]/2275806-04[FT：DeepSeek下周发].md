@@ -6510,3 +6510,24 @@ image.png
 问一下，你们经常说的，给Agent一个目标，让它去挂着跑几个小时回来看一眼，是如何做到的？为什么我无论用C ...</blockquote>
 用/goal就可以了
 
+
+*****
+
+####  lambl  
+##### 5022#       发表于 2026-8-4 07:19
+
+基元律动的V4F是preview版本的不说，他的流量日志那，详细记录了你的每一次提问，直接看得见。
+
+
+*****
+
+####  wandeeees  
+##### 5023#       发表于 2026-8-4 07:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008906&amp;ptid=2275806" target="_blank">lambl 发表于 2026-8-4 07:19</a>
+
+基元律动的V4F是preview版本的不说，他的流量日志那，详细记录了你的每一次提问，直接看得见。 ...</blockquote>
+前天下午还是晚上的时候就上正式版了啊，名字是这个deepseek-v4-flash-0731
+
+，我昨天蹬了一天了才蹬了十五块
+
