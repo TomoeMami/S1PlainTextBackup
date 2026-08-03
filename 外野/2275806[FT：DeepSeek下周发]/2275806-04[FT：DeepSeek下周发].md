@@ -6293,3 +6293,14 @@ deepseek的codex适配不好啊，不如pi，token还烧的快，比luna max都�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  goranger  
+##### 5003#       发表于 2026-8-3 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008113&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-3 21:56</a>
+
+哈哈哈，竟然吗？我还好奇为什么思考都变中文了，以为是我之前一直没删的system prompt生效了。不过subag ...</blockquote>
+我是提示词没变的情况下，更新那天上午突然思考链变中文，并且能力明显提升，我还来这里问了。所以我觉得正式版就是默认中文思考链了
+
