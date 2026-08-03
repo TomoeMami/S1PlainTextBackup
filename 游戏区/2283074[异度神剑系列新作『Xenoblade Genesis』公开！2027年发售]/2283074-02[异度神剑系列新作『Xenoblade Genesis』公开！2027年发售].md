@@ -221,3 +221,14 @@ ARPG化 对于异度神剑其实是雷点
 异度神剑系列虽然革新不断，但想象力丰富、充满探索价值的大地图一直是一 ...</blockquote>
 一以后没位移技能了…😁 你是否好好玩过之后的XB了，那可真太多了
 
+
+*****
+
+####  无知的小鼠人  
+##### 2013#       发表于 2026-8-3 20:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007512&amp;ptid=2283074" target="_blank">cih 发表于 2026-8-3 19:44</a>
+
+一以后没位移技能了…😁 你是否好好玩过之后的XB了，那可真太多了</blockquote>
+确实有击退，忘记了
+

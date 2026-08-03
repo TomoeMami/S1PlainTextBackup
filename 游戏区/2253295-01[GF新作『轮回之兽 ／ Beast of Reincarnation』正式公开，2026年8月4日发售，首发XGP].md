@@ -1255,3 +1255,36 @@ pc平台拖累咱gf了？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏不是还没发售吗？怎么在L网我看到都有人做出了果体MOD？？？意思是偷跑了？
 
+
+*****
+
+####  沧兰殇  
+##### 412#       发表于 2026-8-3 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007249&amp;ptid=2253295" target="_blank">纱布光环 发表于 2026-8-3 18:46</a>
+这游戏不是还没发售吗？怎么在L网我看到都有人做出了果体MOD？？？意思是偷跑了？ ...</blockquote>
+偷跑两天了，已经有人通关了，b站一堆直播和上传视频的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  纱布光环  
+##### 413#       发表于 2026-8-3 20:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007659&amp;ptid=2253295" target="_blank">沧兰殇 发表于 2026-8-3 20:13</a>
+
+偷跑两天了，已经有人通关了，b站一堆直播和上传视频的
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  spieler  
+##### 414#       发表于 2026-8-3 20:16
+
+看别人打最终boss三个阶段招式不带变的，看乐了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

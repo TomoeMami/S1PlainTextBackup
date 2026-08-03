@@ -6101,3 +6101,30 @@ pi 和 reasonix 哪个好用</blockquote>
 
 superpower对于聪明的模型还是太重量级了
 
+
+*****
+
+####  neptunehs  
+##### 4986#       发表于 2026-8-3 20:09
+
+ 本帖最后由 neptunehs 于 2026-8-3 20:11 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007564&amp;ptid=2275806" target="_blank">akirt 发表于 2026-8-3 19:54</a>
+再注册个号首月5美元</blockquote>
+同一张信用卡不是立刻穿帮吗
+
+试了下oc的免费v4f已经几乎用不了了 更难受了
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  M乔梦  
+##### 4987#       发表于 2026-8-3 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007640&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-3 20:09</a>
+
+同一张信用卡不是立刻穿帮吗
+
+试了下oc的免费v4f已经几乎用不了了 更难受了</blockquote>
+没事的，我两个账号都是同一个支付宝
+
