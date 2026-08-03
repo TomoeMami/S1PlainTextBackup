@@ -6736,3 +6736,17 @@ https://gamewith.jp/splatoon-raiders/569753
 
 挂了一晚上，一把想要的五星都没出，屋檐了<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 817#       发表于 2026-8-3 08:25
+
+无限食堂不出金鲑鱼，我想着先把图鉴刷满。
+
+打一次挖矿图怎么也要十几分钟了，还不一定出一只金鲑鱼。花的时间比100层那坨大粪还要久。
+
+结果要30只，这哪个傻缺设计的。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer"> 但是刷的过程中出了绝品鲨鱼和4K破冰狙击，我原谅鱿鱼研了。
+
