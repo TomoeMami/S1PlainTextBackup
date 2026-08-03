@@ -270,3 +270,13 @@ boss大概 ...</blockquote>
 
 夫人从头到尾都在被暴打，难绷
 
+
+*****
+
+####  丹德里恩  
+##### 2132#       发表于 2026-8-3 11:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为什么用幻影就能修复腰带....为什么nox突然想起了小鹰警官的账号....
+
+牢诺真就纯粹是哪里需要往哪填的超级工具人，还没收花的意思就是结局大概率还要和夫人一起救场
+

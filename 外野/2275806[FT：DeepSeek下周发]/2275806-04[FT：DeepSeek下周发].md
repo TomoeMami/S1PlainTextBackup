@@ -4948,3 +4948,68 @@ RT转CNBC报道
 
 美国现在对中国AI真是层层设防，防不胜防啊。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  neptunehs  
+##### 4876#       发表于 2026-8-3 11:07
+
+opencode提示insufficient balance
+这不是opencode的ds费被蹬完了吧？
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  wpwing  
+##### 4877#       发表于 2026-8-3 11:10
+
+有没有什么社区讨论插件之类的?我今天才知道superpowers
+
+*****
+
+####  phorcys02  
+##### 4878#       发表于 2026-8-3 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004584&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-3 11:07</a>
+
+opencode提示insufficient balance
+
+这不是opencode的ds费被蹬完了吧？</blockquote>
+我估计是的....我这也提示了
+
+
+*****
+
+####  →熙←  
+##### 4879#       发表于 2026-8-3 11:13
+
+opencode连不上了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 网页也上不去
+
+*****
+
+####  蛋黄酱Release  
+##### 4880#       发表于 2026-8-3 11:14
+
+<img src="https://img.stage1st.com/forum/202608/03/111337hl9v9jvmmsn9ol8p.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1785726817261_3.webp</strong> (130.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-3 11:13 上传
+
+27b打得过v4f吗？
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  那一年的河川  
+##### 4881#       发表于 2026-8-3 11:17
+
+邀请好友限时活动继续延长，体验OpenSquilla新功能畅享免费token
+https://tokenrhythm.studio/i/rf_tr_bjxYVYD8SKurWS7TARexwFaV
+
