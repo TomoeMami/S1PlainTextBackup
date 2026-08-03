@@ -5404,3 +5404,34 @@ api加我本地自己搭的简单搜索工具也能答对
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  wandeeees  
+##### 4917#       发表于 2026-8-3 13:56
+
+DeepSeek 网页/API 性能下降（DeepSeek Web/API Degraded Performance）
+
+已实施修复，正在监控结果。
+
+·
+
+影响 DeepSeek V4 Pro API服务(API Service)、专家模式(Expert Mode)
+
+只有V4 PRO出问题了，难道就在今日！？
+
+*****
+
+####  80后卢瑟  
+##### 4918#       发表于 2026-8-3 14:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70005522&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-3 13:56</a>
+DeepSeek 网页/API 性能下降（DeepSeek Web/API Degraded Performance）
+
+已实施修复，正在监控结果。
+
+·</blockquote>
+之前猜是 3 号来的，但 3 号又不可能
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
