@@ -1398,3 +1398,25 @@ PSV版细节少不仅不明显视角还远远的，NS版可好直接正面特写
 
 SD纹理中，开抗锯齿和环境光遮蔽，其他全低，系统锁30帧，整机功耗大概12W，感觉还行，过几天带出去看看续航什么水平。
 
+
+*****
+
+####  Xenor  
+##### 119#       发表于 2026-8-3 19:07
+
+果然PC版才是最终版<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">PSV版可以直接删了
+
+这细节，这才是水湿的正常光反射效果，穿的衣服又不是雨衣…面料没那么差
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYbkZqcHPu6BUO37IsCwYw7YOh5aD3fAACCy4AApvPgVcg4afZSmNFnD0E.jpg" referrerpolicy="no-referrer">
+
+半朦胧最佳
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYbkdqcHP1BtCLJazce9qEEh_3DDjDDAACDC4AApvPgVdeeZBPtuuqbz0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYbkhqcHP-1iaYkEZ_2Jvzy6pzxhjpQgACDS4AApvPgVdxeBjAPFbxQz0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYbkpqcHQETCVwhYL5JdeRWekBzyzaxwACDy4AApvPgVe-C8U7UF9qbT0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYbk1qcHQN5OfF0kT75roTJYD2CZ6-oQACEi4AApvPgVffZqaEINIO-z0E.jpg" referrerpolicy="no-referrer">
+
+过场竟然也能看到胖吃裤……太快了没截到
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYbk5qcHQSSjTEv-CiImyGXO2MB6JMzAACEy4AApvPgVftCDUvkRmmGD0E.jpg" referrerpolicy="no-referrer">
+
+什么都好就是体积太大了，50多G！虽然一寸大一寸强。。。也是玩过最大的手机游戏了，还害我现在看20G都觉得不大了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
