@@ -326,3 +326,12 @@ ARPG化 对于异度神剑其实是雷点
 
 学ff7r那完了，xb的战斗比7r那套好玩多了，学7r那真是不如继续这套
 
+
+*****
+
+####  根正苗红  
+##### 2022#       发表于 2026-8-4 06:23
+
+折腾了好久花jd的任务，最后发现是花buster<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+把我的时间还回来
+
