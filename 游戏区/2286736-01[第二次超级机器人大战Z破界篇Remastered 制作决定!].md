@@ -1678,3 +1678,13 @@ Z2，12年出的，后面还有UXBX呢，不过玩索系机战看不起3DS上那
 
 组队最烦人的还是要频繁编辑，每次入队新的角色要编队，分流合流会把我的队全拆了，甚至有的连剧情强制出击几个角色也会把队拆了
 
+
+*****
+
+####  风夏  
+##### 173#       发表于 2026-8-3 16:21
+
+索系吗，我想知道宇田步现在在哪发财呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

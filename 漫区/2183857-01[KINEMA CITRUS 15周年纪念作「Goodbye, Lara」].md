@@ -3042,3 +3042,29 @@ anime expo场刊里面表述茉里不是一个假小子，看到现在有人认�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  暗黑能乐  
+##### 254#       发表于 2026-8-3 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006261&amp;ptid=2183857" target="_blank">zing223 发表于 2026-8-3 16:03</a>
+我的描述不太恰当，是在影视的选择页面（看上去像是什么prime video）可以看懂介绍，包括这集开头还有刷 ...</blockquote>
+她不需要懂介绍，能搜索王子然后只看宣传图（
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+*****
+
+####  zing223  
+##### 255#       发表于 2026-8-3 16:24
+
+ 本帖最后由 zing223 于 2026-8-3 16:28 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006386&amp;ptid=2183857" target="_blank">暗黑能乐 发表于 2026-8-3 16:23</a>
+她不需要懂介绍，能搜索王子然后只看宣传图（
+
+—— 来自 HONOR BVL-AN00, Android 16, 鹅球 v3.4.98 ...</blockquote>
+那就纯文盲咯<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尼特标签之后再加一个title，可迫害的点也太多了
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
