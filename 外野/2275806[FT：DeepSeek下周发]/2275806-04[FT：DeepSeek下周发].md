@@ -5813,3 +5813,14 @@ codex注册时的手机关卡怎么过？</blockquote>
 
 笑了 一下
 
+
+*****
+
+####  舞以  
+##### 4958#       发表于 2026-8-3 17:20
+
+我还在知乎上看到过d指导的“最后一搏！”<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这个coding助手的后训练到底塞了啥进去
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

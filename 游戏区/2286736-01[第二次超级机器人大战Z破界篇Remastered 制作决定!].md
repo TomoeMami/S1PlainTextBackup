@@ -1729,3 +1729,14 @@ Z2，12年出的，后面还有UXBX呢，不过玩索系机战看不起3DS上那
 
 机战里的话我比较喜欢支援攻击系统，虽然就是很简单的让格纳库里的机体援护攻击，不过确实增加了露脸机会。
 
+
+*****
+
+####  eilot  
+##### 178#       发表于 2026-8-3 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004482&amp;ptid=2286736" target="_blank">dqjsss 发表于 2026-8-3 10:54</a>
+
+用 Y的引擎是为了更好适配现在的主机和电脑系统，跟作画啥没关系，所以不会改动画的 ...</blockquote>
+VTX時代就因為被說成配合NS關係，所以在進入戰鬥畫面後還要等多1~2秒才有機體進入場景，而NS版要等更長時間
+
