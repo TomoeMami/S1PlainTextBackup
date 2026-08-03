@@ -5701,3 +5701,24 @@ luna感觉是个完美的识图辅助模型<img src="https://static.stage1st.com
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  hugosol  
+##### 4947#       发表于 2026-8-3 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006191&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-3 15:49</a>
+
+cli能很好的显示公式吗，现在各家gui对公式的渲染都不太好，但是公式还蛮重要的 ...</blockquote>
+我现在都是让agent把公式输出到html文件里显示了
+
+*****
+
+####  akirt  
+##### 4948#       发表于 2026-8-3 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006191&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-3 02:49</a>
+
+cli能很好的显示公式吗，现在各家gui对公式的渲染都不太好，但是公式还蛮重要的 ...</blockquote>
+reasonix对公式显示很友好
+

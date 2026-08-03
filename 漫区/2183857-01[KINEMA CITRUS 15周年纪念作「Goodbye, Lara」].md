@@ -2997,3 +2997,48 @@ anime expo场刊里面表述茉里不是一个假小子，看到现在有人认�
 
 震撼，你敢动我的新家人，我就直接召唤鱼剑砸你<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，店里的打工生活也算体验成为人类吧，BGM不错
 
+
+*****
+
+####  风速前进mo  
+##### 250#       发表于 2026-8-3 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004994&amp;ptid=2183857" target="_blank">zing223 发表于 2026-8-3 12:06</a>
+菈菈的文化程度非常神秘，上一集好像看得懂带字的影视，这一集不会写字
+
+—— 来自 OnePlus PJZ110, Androi ...</blockquote>
+这不是很正常吗？影视剧听懂就行了，写字可是另一回事
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  zing223  
+##### 251#       发表于 2026-8-3 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006246&amp;ptid=2183857" target="_blank">风速前进mo 发表于 2026-8-3 16:00</a>
+这不是很正常吗？影视剧听懂就行了，写字可是另一回事
+
+论坛助手,iPhone</blockquote>
+我的描述不太恰当，是在影视的选择页面（看上去像是什么prime video）可以看懂介绍，包括这集开头还有刷视频网站，光看文字她就能知道里面是啥内容
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  higuchiguchi  
+##### 252#       发表于 2026-8-3 16:03
+
+会打字不会写字的现代人鱼
+
+*****
+
+####  风速前进mo  
+##### 253#       发表于 2026-8-3 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006261&amp;ptid=2183857" target="_blank">zing223 发表于 2026-8-3 16:03</a>
+我的描述不太恰当，是在影视的选择页面（看上去像是什么prime video）可以看懂介绍，包括这集开头还有刷 ...</blockquote>
+这个也正常，能读和能写之间也还是有一段距离的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

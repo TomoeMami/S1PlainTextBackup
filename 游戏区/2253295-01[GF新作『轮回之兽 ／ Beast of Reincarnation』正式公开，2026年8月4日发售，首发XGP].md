@@ -1169,3 +1169,22 @@ pc平台拖累咱gf了？
 
 一般玩家还没玩到偷跑版就已经玩完了，这也是一种NS游戏啊
 
+
+*****
+
+####  Photic  
+##### 403#       发表于 2026-8-3 16:05
+
+先不说偷跑……为啥发售会选个礼拜二这种日子
+
+*****
+
+####  blue321  
+##### 404#       发表于 2026-8-3 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70005443&amp;ptid=2253295" target="_blank">千秋难诉 发表于 2026-8-3 13:37</a>
+最近也在玩卡赞，前天鹿头人这个弹反教学怪打得了无乐趣，昨晚打到玛路卡一下就爽快起来了，仁王like就得打 ...</blockquote>
+好好享受这段时间，后面就是各种没持续压制成功就开始马拉松和演出的boss了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
