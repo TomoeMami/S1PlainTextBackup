@@ -6409,3 +6409,24 @@ qwen3.8有人试了吗
 
 v4pro啥时候端上来<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Alunamin  
+##### 5014#       发表于 2026-8-4 00:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008641&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-4 00:36</a>
+
+你打开billing看看，肯定在续费</blockquote>
+支付方式只有我自己的支付宝，确实一直都只有首月的五刀扣款
+
+*****
+
+####  M乔梦  
+##### 5015#       发表于 2026-8-4 00:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008433&amp;ptid=2275806" target="_blank">Alunamin 发表于 2026-8-3 23:19</a>
+
+请教下，我六月二十号花了五刀开通的opencode go，第一时间就关闭了支付宝的自动续费，之后也没再扣过钱， ...</blockquote>
+go的界面是不是没取消订阅啊
+
