@@ -1661,3 +1661,18 @@ QP真是永远痛
 
 1800满，中间呼符出了一个，抽卡从来没有特别欧过
 
+
+*****
+
+####  flyzzhj  
+##### 48034#       发表于 2026-8-3 07:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000114&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2026-8-2 09:52</a>
+
+各刷了50把，然后点点点QP又没了
+
+QP真是永远痛
+
+这马上泳装提妈必抽的话，大概率会有三张新卡要练，这QP还得 ...</blockquote>
+为啥不趁EX冠免费的时候多刷点，QP很多的...
+

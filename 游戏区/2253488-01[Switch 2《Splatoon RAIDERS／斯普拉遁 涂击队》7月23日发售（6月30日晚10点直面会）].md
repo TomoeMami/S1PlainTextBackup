@@ -6728,3 +6728,11 @@ https://gamewith.jp/splatoon-raiders/569753
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  二十二颗牛油果  
+##### 816#       发表于 2026-8-3 07:55
+
+挂了一晚上，一把想要的五星都没出，屋檐了<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+
