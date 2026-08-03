@@ -262,3 +262,11 @@ boss大概 ...</blockquote>
 
 牢诺和夫人进小黑屋贴贴，不敢想不敢想<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  haoshion  
+##### 2131#       发表于 2026-8-3 10:36
+
+夫人从头到尾都在被暴打，难绷
+

@@ -945,3 +945,26 @@ gf再一次证明了自己<img src="https://static.stage1st.com/image/smiley/fac
 
 单纯就是good enough for xgp
 
+
+*****
+
+####  stoiorz  
+##### 380#       发表于 2026-8-3 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004282&amp;ptid=2253295" target="_blank">wthall 发表于 2026-8-3 10:23</a>
+
+有的，怎么可能没难度选项。
+
+我倒是没觉得有没做完的感觉。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那就可以的，最低难度速通，看看美女与野兽，逛逛大地图。还是不难为自己了。
+
+*****
+
+####  wthall  
+##### 381#       发表于 2026-8-3 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004303&amp;ptid=2253295" target="_blank">stoiorz 发表于 2026-8-3 10:27</a>
+
+那就可以的，最低难度速通，看看美女与野兽，逛逛大地图。还是不难为自己了。 ...</blockquote>
+然后你就会被过场强制24帧和各种拉镜头弄晕了，哈哈
+

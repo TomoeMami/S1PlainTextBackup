@@ -1124,3 +1124,19 @@ DLC保底给4个
 
 小红还是野生的吗。
 
+
+*****
+
+####  巴尔干炮  
+##### 1575#       发表于 2026-8-3 10:31
+
+<img src="https://img.stage1st.com/forum/202608/03/103050r8llk28xdwxvvoox.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260803_102957.jpg</strong> (310.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-3 10:30 上传
+
+又有新角色了。
+
