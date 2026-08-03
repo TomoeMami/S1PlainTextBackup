@@ -1430,3 +1430,24 @@ z2的战斗动画我还是比较满意的，飞翼高达简单的一炮做得也
 
 感觉重制版重制的是地图2d-&gt;3d了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 148#       发表于 2026-8-3 09:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003694&amp;ptid=2286736" target="_blank">罐子 发表于 2026-8-3 08:50</a>
+
+我好奇的是，战斗动画是用旧素材高清化，还是重做（估计不太可能）
+
+z2的战斗动画我还是比较满意的，飞翼高 ...</blockquote>
+重做的話，素材太少
+
+UC那批還是可以用VTX30Y
+
+但飛翼和00都是一季和2季(再世)，而現在W都是華爾芝，00都是劇場版
+
+就算是用已經改了機體尺寸的Z3素材，機體數量也不多，可以填到SEED D那批
+
+但傳說，甚至各版權的敵人或同伴都是沒有
+
