@@ -5186,3 +5186,36 @@ V4Flash在触及能力边界时候就会激动，感叹号和问号增加，跟�
 千问max是首次开源啊, 是被哪家刺激到了?</blockquote>
 那还用说，kimi呗
 
+
+*****
+
+####  lactone  
+##### 4898#       发表于 2026-8-3 12:17
+
+minimax h3开源了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  CCauchy  
+##### 4899#       发表于 2026-8-3 12:19
+
+现在专家模式是什么模型
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  nxmonitor  
+##### 4900#       发表于 2026-8-3 12:20
+
+ 本帖最后由 nxmonitor 于 2026-8-3 12:25 编辑 
+<blockquote>CCauchy 发表于 2026-8-3 12:19
+现在专家模式是什么模型
+
+论坛助手,iPhone</blockquote>
+
+Pro预览版，当然比网页的快速模式还是要强的
+
