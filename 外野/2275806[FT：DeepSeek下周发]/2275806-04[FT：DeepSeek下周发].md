@@ -5301,3 +5301,43 @@ Pro预览版，当然比网页的快速模式还是要强的
 操作习惯有点像codex，但是不卡</blockquote>
 我说怎么后面没到账，原本是调用API即可，现在是使用hamess了
 
+
+*****
+
+####  平贺才人  
+##### 4908#       发表于 2026-8-3 13:12
+
+<img src="https://img.stage1st.com/forum/202608/03/131252ydcj2u8c05w0208h.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1785733970560_1.webp</strong> (114.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-3 13:12 上传
+
+<img src="https://img.stage1st.com/forum/202608/03/131252qucjfxjzvc0jcpje.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1785733970642_2.webp</strong> (121.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-3 13:12 上传
+
+*****
+
+####  Promeus  
+##### 4909#       发表于 2026-8-3 13:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70005318&amp;ptid=2275806" target="_blank">平贺才人 发表于 2026-8-3 13:12</a></blockquote>
+<img src="https://p.sda1.dev/34/e342ae26ab30e9730fb59107ef268018/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  mitzvah  
+##### 4910#       发表于 2026-8-3 13:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70005194&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-3 12:48</a>
+
+智谱的新模型大概率有k3到fable级，也就是这个月了，其实也没啥急的</blockquote>
+智谱那模型成本太高了，你看涨成现在这个价格，根本搞不下去的
+

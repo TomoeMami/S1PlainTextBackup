@@ -1100,3 +1100,29 @@ pc平台拖累咱gf了？
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  wthall  
+##### 396#       发表于 2026-8-3 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004824&amp;ptid=2253295" target="_blank">沙里昂 发表于 2026-8-3 11:39</a>
+
+卡赞的手感是这个游戏最好的部分，这有什么可比性…
+
+—— 来自 鹅球 v3.5.99-alpha ...</blockquote>
+我感觉卡赞的数值应该已经重新调整过了，相比当时发售时候我在朋友那边玩到的感觉，难度低了非常多。
+
+刚开始的时候试玩的感觉就是砍木头砍的手都酸了。所以一直觉得这游戏没啥亮点。
+
+这次在轮回的衬托下眉清目秀了起来。
+
+
+*****
+
+####  医生狼多  
+##### 397#       发表于 2026-8-3 13:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡赞后面削了好多长枪性能啊，开局是最强的
+觉得砍木头不会是一周目牢大剑玩家吧
+
