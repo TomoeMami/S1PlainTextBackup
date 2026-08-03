@@ -6860,3 +6860,38 @@ https://gamewith.jp/splatoon-raiders/569753
 跃升我带了缓慢下落和回复墨汁，可以保证空中竖拍续航。（感觉竖拍五倍已经输出挺够了，在地面碾压虽然攻 ...</blockquote>
 请把风扇上的防性点出来，在空中吹着增加防御力。给个3-5星。极大提高容错率。
 
+
+*****
+
+####  mai6696  
+##### 829#       发表于 2026-8-3 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70005025&amp;ptid=2253488" target="_blank">stoiorz 发表于 2026-8-3 12:10</a>
+
+请把风扇上的防性点出来，在空中吹着增加防御力。给个3-5星。极大提高容错率。 ...</blockquote>
+没用的，该跑还是得跑。扛不住的。
+
+不如靠踢馆鞋跳走，或者用钩锁拉一个空中怪。
+
+钩锁还能开背包技能，速度技能在地面畅通无阻。
+
+
+*****
+
+####  mai6696  
+##### 830#       发表于 2026-8-3 12:41
+
+<img src="https://img.stage1st.com/forum/202608/03/124036y4wftls6fzswvl4g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (27.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-3 12:40 上传
+
+这个是瞬间伤害最高的玩意儿了吧？
+
+大部分精英都能瞬秒。秒不掉也有冰冻。
+
+我技术背包除了风扇就爱用它了。
+
