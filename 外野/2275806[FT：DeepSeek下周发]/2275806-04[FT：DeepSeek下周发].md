@@ -4837,3 +4837,15 @@ v4f做决策还是差点劲，这周赶快把v4p和harness一起端上来吧
 —— 来自 鹅球 v3.5.99</blockquote>
 先把专武放出来也行啊
 
+
+*****
+
+####  王兰花秀丽  
+##### 4866#       发表于 2026-8-3 10:26
+
+高僧预测本周三之前就会出来
+
+对吗<img src="https://static.stage1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
+
+官方貌似没说过harness和v4p会一起出来    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

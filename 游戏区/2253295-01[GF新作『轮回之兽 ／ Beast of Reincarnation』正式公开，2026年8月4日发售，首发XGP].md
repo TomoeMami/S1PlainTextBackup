@@ -912,3 +912,36 @@ boss打完的演出像素级复刻旺达与巨像啊，看乐了</blockquote>
 
 打起来那奇怪的手感，瞬间觉得卡赞这游戏战斗手感太爽了。
 
+
+*****
+
+####  千秋难诉  
+##### 377#       发表于 2026-8-3 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70002263&amp;ptid=2253295" target="_blank">千秋难诉 发表于 2026-8-2 21:06</a>
+
+多亏了GF这一个boss就1-2个攻击动作的动作大作，这下感觉到哈迪斯的含金量和仁王3的诚意了 ...</blockquote>
+错怪GF了，一个怪最多4个技能（动作），多为玩家开发BVB考虑啊，这样的数值调教才是经营宝对战多年的GF啊
+
+*****
+
+####  freedom12  
+##### 378#       发表于 2026-8-3 10:21
+
+gf再一次证明了自己<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wthall  
+##### 379#       发表于 2026-8-3 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004126&amp;ptid=2253295" target="_blank">stoiorz 发表于 2026-8-3 10:01</a>
+
+带上首日补丁会不会好一点？8月份的xgp等着吃的就是这个，如果不是大拉特拉，难度低一点让我速通也可以的。 ...</blockquote>
+有的，怎么可能没难度选项。
+
+我倒是没觉得有没做完的感觉。
+
+单纯就是good enough for xgp
+
