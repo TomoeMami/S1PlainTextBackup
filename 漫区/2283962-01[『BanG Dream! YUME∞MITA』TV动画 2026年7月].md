@@ -339,3 +339,14 @@ yuno倒是五个人里比较像Vtb的，相对而言吧，不知道后面会不�
 本集爆得有点快了，初中往事写得比较糙。但是实锤了坏女人的 ...</blockquote>
 很久没在一个没有魔法或战斗对轰的片场看到这么恶毒而演都不演的少女反派了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帆前  
+##### 168#       发表于 2026-8-3 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70002709&amp;ptid=2283962" target="_blank">aptx8285144 发表于 2026-8-2 23:14</a>
+
+很久没在一个没有魔法或战斗对轰的片场看到这么恶毒而演都不演的少女反派了 ...</blockquote>
+最炒作.jpg<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

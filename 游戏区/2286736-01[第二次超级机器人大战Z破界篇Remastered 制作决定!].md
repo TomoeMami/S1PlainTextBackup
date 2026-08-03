@@ -1688,3 +1688,24 @@ Z2，12年出的，后面还有UXBX呢，不过玩索系机战看不起3DS上那
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  a85982313  
+##### 174#       发表于 2026-8-3 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004482&amp;ptid=2286736" target="_blank">dqjsss 发表于 2026-8-3 10:54</a>
+
+用 Y的引擎是为了更好适配现在的主机和电脑系统，跟作画啥没关系，所以不会改动画的 ...</blockquote>
+访谈里面提过，就算是30沿用到Y里面都是重绘的（反正他们自己在访谈里面是这么说的）
+
+宇田　『スパロボ30』の戦闘アニメは一部『スパロボY』にも登場していますが、ゲームエンジンを刷新した影響で、厳密には作り直しをしています。『スパロボY』が前作の発売から4年を要したのは、戦闘アニメの作り直しも影響している部分がありました。
+
+
+*****
+
+####  裂空之龙  
+##### 175#       发表于 2026-8-3 16:33
+
+吾有一计，要不就用K那套系统吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用组队的组队系统，强者随便用可P小手枪biubiu收掉3组6个人头，后勤组队解决板凳问题（
+

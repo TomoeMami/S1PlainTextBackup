@@ -6971,3 +6971,33 @@ https://gamewith.jp/splatoon-raiders/569753
 
 尤其是先把100层打了。
 
+
+*****
+
+####  ParukiaMKII  
+##### 839#       发表于 2026-8-3 16:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006275&amp;ptid=2253488" target="_blank">mai6696 发表于 2026-8-3 16:05</a>
+
+打80级矿图的理由：
+
+①刷金鲑鱼图鉴
+
+②就是缺钱</blockquote>
+已经280层了，刷不出来绝品鲨鱼炮
+
+
+*****
+
+####  mai6696  
+##### 840#       发表于 2026-8-3 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006423&amp;ptid=2253488" target="_blank">ParukiaMKII 发表于 2026-8-3 16:30</a>
+
+已经280层了，刷不出来绝品鲨鱼炮</blockquote>
+以我刷了9小时金鲑鱼的经验来看，矿图效率属实不算高。
+
+尤其是挖掉的结晶不会很快复活，一张图后期同时就两三个能打的，要花时间赶路。
+
+我能出货单纯是时间够久罢了。
+
