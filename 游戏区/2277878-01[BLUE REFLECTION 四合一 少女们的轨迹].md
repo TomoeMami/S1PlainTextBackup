@@ -1360,3 +1360,17 @@ PSV版：
 PSV版细节少不仅不明显视角还远远的，NS版可好直接正面特写图就不截了
 <img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYXxNqb0ZlgCp6d1DZF_GE5RZzjm5a4gACdSMAAh7GeVcYzZm_lMDRTD0E.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CURE_HGCG  
+##### 115#       发表于 2026-8-3 08:41
+
+其实我有一点在意
+
+就是四个作品里其他主角都是短发，就灿是长发
+
+什么你说灿的主角是林登
+
+哦那就都是短发了
+

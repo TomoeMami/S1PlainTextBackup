@@ -4710,3 +4710,22 @@ flash全面斩杀sol
 
 大多数测试比的前端不过就是个仗着视觉能力欺负瞎子模型而已
 
+
+*****
+
+####  lowezack  
+##### 4854#       发表于 2026-8-3 08:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=70003595&amp;amp;ptid=2275806" target="_blank">mitzvah 发表于 2026-8-3 08:26</a>
+最考验智力的gpu算子编写</blockquote>
+这个太牛逼了，是不是因为ds公司内部需求，特化过了啊
+
+*****
+
+####  nxmonitor  
+##### 4855#       发表于 2026-8-3 08:39
+
+<blockquote>lowezack 发表于 2026-8-3 08:37
+这个太牛逼了，是不是因为ds公司内部需求，特化过了啊</blockquote>
+应该是，现在的模型没语料的领域表现都不行…
+
