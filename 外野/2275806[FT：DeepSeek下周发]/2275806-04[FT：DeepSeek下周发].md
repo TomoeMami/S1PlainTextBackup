@@ -6452,3 +6452,27 @@ image.png
 
 <img src="https://img.stage1st.com/forum/202608/04/005530j9jogafpntjq4666.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  startraveller  
+##### 5017#       发表于 2026-8-4 01:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008676&amp;ptid=2275806" target="_blank">Alunamin 发表于 2026-8-4 00:57</a>
+还有取消的操作吗，现在go的界面就是已订阅的状态
+
+6月20号付的首月5刀，7月20号莫名给我把额度全重置了，订 ...</blockquote>
+你这肯定在扣费的，没扣费看不到usage界面的。只有订阅介绍
+
+*****
+
+####  M乔梦  
+##### 5018#       发表于 2026-8-4 01:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008676&amp;ptid=2275806" target="_blank">Alunamin 发表于 2026-8-4 00:57</a>
+
+还有取消的操作吗，现在go的界面就是已订阅的状态
+
+6月20号付的首月5刀，7月20号莫名给我把额度全重置了，订 ...</blockquote>
+管理订阅啊
+
