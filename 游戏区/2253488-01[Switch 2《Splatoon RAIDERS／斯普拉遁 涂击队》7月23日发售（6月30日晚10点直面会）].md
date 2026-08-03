@@ -7034,3 +7034,11 @@ https://gamewith.jp/splatoon-raiders/569753
 目前最高900<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 [https://www.youtube.com/watch?v=SdvZCR9u9Vo](https://www.youtube.com/watch?v=SdvZCR9u9Vo) 
 
+
+*****
+
+####  otakun  
+##### 844#       发表于 2026-8-3 21:55
+
+打完100，一口气打到150，才出2个宝藏，太低了
+

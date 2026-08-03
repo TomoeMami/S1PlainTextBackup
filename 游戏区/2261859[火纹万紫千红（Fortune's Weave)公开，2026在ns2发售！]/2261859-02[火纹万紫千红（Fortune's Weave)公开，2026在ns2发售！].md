@@ -1281,3 +1281,39 @@ DLC保底给4个
 这代看起来很可能是搞线路限定挖角了，很可能有些角色的立场和四主角的立场不完全一致，导致每个主角线路 ...</blockquote>
 本来能上场人数就少，其实可以精简。人物更集中刻画也能细致一点。比如雇佣兵类的任何路线都可以挖的人，在不同路线用心就可以给加剧情和存在感，不用心剧情就查无此人了。
 
+
+*****
+
+####  Piano-Forest  
+##### 1592#       发表于 2026-8-3 21:55
+
+专场直面会8月4日22:00举办，时长约20分钟
+
+*****
+
+####  JOJOROY  
+##### 1593#       发表于 2026-8-3 21:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004377&amp;ptid=2261859" target="_blank">JOJOROY 发表于 2026-8-3 10:38</a>
+
+今天的更新不分3个时段了井喷完了，今晚公布直面会？</blockquote>
+还真是<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  巴尔干炮  
+##### 1594#       发表于 2026-8-3 21:57
+
+大的真来了~
+
+
+*****
+
+####  医生狼多  
+##### 1595#         楼主| 发表于 2026-8-3 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008121&amp;ptid=2261859" target="_blank">JOJOROY 发表于 2026-8-3 21:57</a>
+还真是</blockquote>
+还真是!
+【《火焰纹章：万缕千丝》直面会明晚10点举行】任天堂宣布，将于8月4日北京时间22：00举行《火焰纹章：万缕千丝》专场直面会，活动时长约20分钟。 ​​​
+
