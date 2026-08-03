@@ -6430,3 +6430,25 @@ v4pro啥时候端上来<img src="https://static.stage1st.com/image/smiley/face20
 请教下，我六月二十号花了五刀开通的opencode go，第一时间就关闭了支付宝的自动续费，之后也没再扣过钱， ...</blockquote>
 go的界面是不是没取消订阅啊
 
+
+*****
+
+####  Alunamin  
+##### 5016#       发表于 2026-8-4 00:57
+
+ 本帖最后由 Alunamin 于 2026-8-4 00:58 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008664&amp;ptid=2275806" target="_blank">M乔梦 发表于 2026-8-4 00:51</a>
+
+go的界面是不是没取消订阅啊</blockquote>还有取消的操作吗，现在go的界面就是已订阅的状态
+
+6月20号付的首月5刀，7月20号莫名给我把额度全重置了，订阅还在，也没另外扣款
+
+image.png
+(46.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 00:55 上传
+
+<img src="https://img.stage1st.com/forum/202608/04/005530j9jogafpntjq4666.png" referrerpolicy="no-referrer">
+
