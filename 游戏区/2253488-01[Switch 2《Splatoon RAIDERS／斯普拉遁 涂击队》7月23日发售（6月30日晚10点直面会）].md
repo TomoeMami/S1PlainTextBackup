@@ -6911,3 +6911,18 @@ https://gamewith.jp/splatoon-raiders/569753
 
 好像100层就是Endgame的最后内容了？100层往后没有亮血条的Boss了。
 
+
+*****
+
+####  otakun  
+##### 833#       发表于 2026-8-3 14:46
+
+一直用力量包打到100了，最后几层换了绝品滚轮打，打起来什么都看不见了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  doraemonmilmil  
+##### 834#       发表于 2026-8-3 14:48
+
+应该是没有新boss了，除了继续往下爬，也可以在100层后把现有图鉴数目补全后，看看是不是100%打勾来验证？
+

@@ -5459,3 +5459,28 @@ DeepSeek 网页/API 性能下降（DeepSeek Web/API Degraded Performance）
 
 opencode是有什么使用的特殊要求吗，无论用里面什么模型，都容易断连，卡着没信息，挂**也没用
 
+
+*****
+
+####  nxmonitor  
+##### 4922#       发表于 2026-8-3 14:46
+
+pro单独性能下降了，应该离发布不远了，不过31号上午是发现有灰测
+
+*****
+
+####  nxmonitor  
+##### 4923#       发表于 2026-8-3 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70005686&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-3 14:31</a>
+
+opencode是有什么使用的特殊要求吗，无论用里面什么模型，都容易断连，卡着没信息，挂**也没用 ...</blockquote>
+自己的BUG，好像是思维链长度有限制，升级下版本试试？不行只能换个了
+
+*****
+
+####  crow_wine  
+##### 4924#       发表于 2026-8-3 14:50
+
+v4 flash的雷霆大思考好像确实需要自己的专武来适配。进行任务量比较大的算法文档评审，一口气思考到opencode截断了<img src="https://static.stage1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+

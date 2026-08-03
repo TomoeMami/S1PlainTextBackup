@@ -1242,3 +1242,13 @@ DLC保底给4个
 
 良禽择木而栖<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  han110022  
+##### 1588#       发表于 2026-8-3 14:47
+
+这代说不定己方剧情入队的那几位都不能挖，换成中立势力做了一堆角色给你选着挖
+
+避免上一代出现红线挖青狮那几位结果五年后把青梅竹马杀光的OOC情况
+
