@@ -6926,3 +6926,13 @@ https://gamewith.jp/splatoon-raiders/569753
 
 应该是没有新boss了，除了继续往下爬，也可以在100层后把现有图鉴数目补全后，看看是不是100%打勾来验证？
 
+
+*****
+
+####  a3a4sc  
+##### 835#       发表于 2026-8-3 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70005751&amp;ptid=2253488" target="_blank">a3a4sc 发表于 2026-8-3 14:40</a>
+好像100层就是Endgame的最后内容了？100层往后没有亮血条的Boss了。</blockquote>
+研究所来点免费更新Or收费DLC吧。通关后内容有点少，加个已购入配件支持回收，并返还资源（洗点）功能。
+

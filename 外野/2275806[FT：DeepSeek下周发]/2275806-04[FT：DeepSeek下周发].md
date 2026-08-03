@@ -5586,3 +5586,40 @@ ds4f现在应该是用opencode go套餐
 
 爽蹬
 
+
+*****
+
+####  nianiania  
+##### 4936#       发表于 2026-8-3 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006063&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-3 15:28</a>
+
+ds4f现在应该是用opencode go套餐
+
+爽蹬</blockquote>
+我用reasonix蹬opencode go 的d4f老是有警告，不知道是为啥<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，官网的API就没有
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4937#       发表于 2026-8-3 15:33
+
+现在火山coding的V4FLSH是正式版了吗？
+
+*****
+
+####  王兰花秀丽  
+##### 4938#       发表于 2026-8-3 15:37
+
+glm5.3意外泄露，现已回滚
+
+<img src="https://img.stage1st.com/forum/202608/03/153712nwvq4t494r44prrp.jpg" referrerpolicy="no-referrer">
+
+<strong>1000052071.jpg</strong> (213.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-3 15:37 上传
+
+    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
