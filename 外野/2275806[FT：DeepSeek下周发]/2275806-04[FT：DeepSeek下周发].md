@@ -5114,3 +5114,26 @@ https://tokenrhythm.studio/i/rf_tr_bjxY ...</blockquote>
 有点牛逼的是它没法读图的情况下，有时候会自己将图片转成ASCII字符画来尝试理解，最诡异的是这么做后它真能理解现状了。
 不得不说最终表现是远远超出我的预期的，相比起预览版真的是云泥之别，至少借助一定的工程优化这个模型是能达到相当高的可用性的。虽然还不是之前灰度测试时Pro那种指哪打哪许愿机的水平，但也相当牛逼了。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4891#       发表于 2026-8-3 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004845&amp;ptid=2275806" target="_blank">SmterC 发表于 2026-8-3 11:45</a>
+周末尝试让它实现一个hitomi la的安卓viewer。相比起Eh这个网站用AVIF编码比较多，清晰度也很不错，所以想 ...</blockquote>
+V4Flash在触及能力边界时候就会激动，感叹号和问号增加，跟哈气了似的
+我让他写还原魔方的APP的时候就遇到这个问题，他自己看不到图没办法debug哈气哈了二十分钟
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  SmterC  
+##### 4892#       发表于 2026-8-3 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004872&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-3 11:48</a>
+V4Flash在触及能力边界时候就会激动，感叹号和问号增加，跟哈气了似的
+我让他写还原魔方的APP的时候就遇 ...</blockquote>
+有时候它会主动转换图片到字符画来识别，也许可以主动让它这么干来曲线实现多模态<img src="https://static.stage1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+

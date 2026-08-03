@@ -6823,3 +6823,13 @@ https://gamewith.jp/splatoon-raiders/569753
 
 2026-8-3 11:45 上传
 
+
+*****
+
+####  Leona_Akari  
+##### 825#       发表于 2026-8-3 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004834&amp;ptid=2253488" target="_blank">gbjbb 发表于 2026-8-3 11:42</a>
+通关后先把能清的关卡清了，直接打最高难度的会自动拿全奖励。剩下的就是挂机刷了，缺碎片刷杏棱，缺武器 ...</blockquote>
+挂机就算了，我只有pro2，没有带编程的手柄，那就随便玩玩打过100层就封盘吧
+
