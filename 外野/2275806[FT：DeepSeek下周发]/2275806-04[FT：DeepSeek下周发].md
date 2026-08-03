@@ -6204,3 +6204,18 @@ javascript不适合vibecoding<img src="https://static.stage1st.com/image/smiley/
 
 同样拉屎，v4f起码便宜啊<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ayanamilin  
+##### 4995#       发表于 2026-8-3 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007149&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-8-3 18:25</a>
+
+pi 和 reasonix 哪个好用</blockquote>
+取决于你想要完成的工作能否靠自己独立完成（即使要多花很多时间）？
+
+- 是：用 Pi
+
+- 否：用 Claude Code
+

@@ -3089,3 +3089,11 @@ anime expo场刊里面表述茉里不是一个假小子，看到现在有人认�
 
 到现在剧情非常扎实，本集无人知晓的命运舞台了，但不能掩盖这集日常剧情的出色
 
+
+*****
+
+####  Mika-S  
+##### 258#       发表于 2026-8-3 21:21
+
+等下，合着那个正常人看不见的东西原来可以干涉现实世界啊？<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
