@@ -5484,3 +5484,30 @@ opencode是有什么使用的特殊要求吗，无论用里面什么模型，都
 
 v4 flash的雷霆大思考好像确实需要自己的专武来适配。进行任务量比较大的算法文档评审，一口气思考到opencode截断了<img src="https://static.stage1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  crow_wine  
+##### 4925#       发表于 2026-8-3 14:56
+
+看了下ds v4 flash 正式版的评审结果比 gpt 5.6 terra max 的要准确不少，可以继续再考察下<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  水風船  
+##### 4926#       发表于 2026-8-3 15:02
+
+<blockquote>半江瑟瑟半江红 发表于 2026-8-3 09:40
+Gemini太喜欢迎合用户了，我跟它辨军事领域，每几轮就我国的歼20云云
+
+不是你跟谁俩呢，你哪国ai啊你就套 ...</blockquote>
+没，我是觉得deepseek 特别喜欢德克萨斯神枪手
+
+*****
+
+####  那一年的河川  
+##### 4927#       发表于 2026-8-3 15:03
+
+目前跑v4f哪家harness最好用？cc？codex？opencode？pi？
+
