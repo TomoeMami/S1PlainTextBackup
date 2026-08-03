@@ -5665,3 +5665,39 @@ cli 最大的优点是可以和 vscode 联动，用 /ide 命令（Claude Code、
 
 连接到 vscode 后就能在命令行引用你在编辑器中选中的内容、编辑前在 vscode 中显示 diff，还是很好用的。vscode 的 cc/codex 插件功能不全（尤其是 cc 插件），使用体验也不咋样。
 
+
+*****
+
+####  crow_wine  
+##### 4943#       发表于 2026-8-3 15:49
+
+cli能很好的显示公式吗，现在各家gui对公式的渲染都不太好，但是公式还蛮重要的
+
+*****
+
+####  startraveller  
+##### 4944#       发表于 2026-8-3 15:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006148&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-3 15:40</a>
+不是5.5看都不用看，5.5才会大概率换基模
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0 ...</blockquote>
+本来就说这个版本不换，8月底才换
+
+
+*****
+
+####  小野賢章  
+##### 4945#       发表于 2026-8-3 15:54
+
+opencode go 套餐感觉挺不错的，主力用v4f，偶尔用多模态之类的可以切 luna这些模型，不用买订阅两家了<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 4946#       发表于 2026-8-3 15:56
+
+luna感觉是个完美的识图辅助模型<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

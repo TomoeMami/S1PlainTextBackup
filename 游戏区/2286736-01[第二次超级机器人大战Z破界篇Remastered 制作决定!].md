@@ -1654,3 +1654,19 @@ Y刚出那阵子不是哪里说过画面素材也得重绘什么的来着<img sr
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">可是已经连着五部机战没有组队系统了啊 组队遗老可以和 winky遗老坐一桌 要不就老老实实玩og去
 
+
+*****
+
+####  椎名mahuyo  
+##### 170#       发表于 2026-8-3 15:50
+
+Z2，12年出的，后面还有UXBX呢，不过玩索系机战看不起3DS上那两作的那是政治正确<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  12481632  
+##### 171#       发表于 2026-8-3 15:55
+
+30 DLC拉满以后的选人列表多少页来着？还能把勇者王拆开<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
