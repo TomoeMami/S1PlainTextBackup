@@ -262,3 +262,16 @@ FF7R的战斗系统设计是谁啊？叫啥？
 
 XB12怪物实质造物主都是克劳乌斯，所以虽然是两个世界但是有大量同样的种族，XB3又是两个世界的结合。XBX米拉生态就不一样。
 
+
+*****
+
+####  UltramanPain  
+##### 2017#       发表于 2026-8-3 22:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008119&amp;ptid=2283074" target="_blank">serj005 发表于 2026-8-3 21:57</a>
+这代在怪物设计这方面确实挺值得挺担心的，尤其是一直没出现诺彭引发的后续猜想，整个生态似乎要脱离以往 ...</blockquote>
+其实看pv1，可能怪物的部位破坏又要回来了，所以怪应该会和123很不一样。
+而且如果新作是小红帽转的异度，那原本可能就是两条线设计的，怪设不一样很正常
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
