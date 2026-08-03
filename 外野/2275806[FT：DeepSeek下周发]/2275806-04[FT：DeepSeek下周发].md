@@ -5013,3 +5013,43 @@ opencode连不上了<img src="https://static.stage1st.com/image/smiley/face2017/
 邀请好友限时活动继续延长，体验OpenSquilla新功能畅享免费token
 https://tokenrhythm.studio/i/rf_tr_bjxYVYD8SKurWS7TARexwFaV
 
+
+*****
+
+####  jojog  
+##### 4882#       发表于 2026-8-3 11:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">压力给到梁圣了
+
+赶快点！
+
+
+*****
+
+####  冤枉呐  
+##### 4883#       发表于 2026-8-3 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004666&amp;ptid=2275806" target="_blank">那一年的河川 发表于 2026-8-3 11:17</a>
+邀请好友限时活动继续延长，体验OpenSquilla新功能畅享免费token
+https://tokenrhythm.studio/i/rf_tr_bjxY ...</blockquote>
+我用我自己另外手机注册了一个，似乎不好使
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  2017.05.04  
+##### 4884#       发表于 2026-8-3 11:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/03/112245wdhzqxq42habwhw2.png" referrerpolicy="no-referrer">
+
+<strong>IMG_49665.png</strong> (277.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-3 11:22 上传
+
+——来自  HUAWEI Mate 80 Pro OpenHarmony-7.0.0.32(Beta2)(26) 上的 [S1 Orange](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2244111) 1.4.1
+

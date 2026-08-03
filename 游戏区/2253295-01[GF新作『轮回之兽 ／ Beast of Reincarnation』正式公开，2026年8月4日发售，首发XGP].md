@@ -1048,3 +1048,34 @@ GF大作轮回之兽8月4号发售，pokopia8月5号就更新 DLC 。任天堂�
 
 之前看前瞻还有说演出不错的，我草了完整版一看过场是ff14级别的站桩分镜和缓速对话
 
+
+*****
+
+####  wthall  
+##### 391#       发表于 2026-8-3 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004412&amp;ptid=2253295" target="_blank">医生狼多 发表于 2026-8-3 10:43</a>
+
+过场有高帧数吧
+
+只是锁帧的选项反而命名叫电影有点尬住</blockquote>
+ 我确实选了电影演出，不确定是不是这个问题，暂时不想打开再去试了。打完第一个boss脑袋嗡嗡的，重新打开卡赞连续砍了3个地图才缓解过来 
+
+*****
+
+####  Jabeck  
+##### 392#       发表于 2026-8-3 11:19
+
+就CJ那个试玩也不可能PS3的画面啊<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时空之旅  
+##### 393#       发表于 2026-8-3 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004388&amp;ptid=2253295" target="_blank">acropolis 发表于 2026-8-3 10:39</a>
+
+看了一下直播这处处透露着贫瘠和无所谓的成品，保底千万ip的厂出低成本试水作品给20刀/80左右还可以动员粉 ...</blockquote>
+测试忠诚度数量
+
