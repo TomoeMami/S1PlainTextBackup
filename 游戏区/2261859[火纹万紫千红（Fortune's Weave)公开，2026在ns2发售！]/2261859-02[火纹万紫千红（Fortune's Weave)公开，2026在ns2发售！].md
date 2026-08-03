@@ -1252,3 +1252,14 @@ DLC保底给4个
 
 避免上一代出现红线挖青狮那几位结果五年后把青梅竹马杀光的OOC情况
 
+
+*****
+
+####  57042711  
+##### 1589#       发表于 2026-8-3 17:03
+
+大家都是佣兵就行了，拿钱办事<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+骑士团雇佣佣兵不是挺正常的…
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

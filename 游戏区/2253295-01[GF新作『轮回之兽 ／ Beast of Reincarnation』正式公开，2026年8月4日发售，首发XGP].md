@@ -1219,3 +1219,23 @@ pc平台拖累咱gf了？
 
 —— 来自 vivo V2068A, Android 11, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  tmmd  
+##### 408#       发表于 2026-8-3 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70005934&amp;ptid=2253295" target="_blank">朔洵千夜 发表于 2026-8-3 15:07</a>
+
+长按跳跃脚底下能升起来很高的一段树枝，然后贴墙用只要有一点点突出的立足点就能继续再长按上升，试试这 ...</blockquote>
+我是开局就往后跑的，还没看到这个说明就卡住了<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer"> 后来重开了才看到教学
+
+*****
+
+####  空洞骑士  
+##### 409#       发表于 2026-8-3 17:02
+
+<blockquote>otakun 发表于 2026-8-3 16:45
+在B站看到个超级洗翠人MOD了，游戏还未正式发售呢</blockquote>
+虚幻引擎就这点好，做mod贼方便。
+

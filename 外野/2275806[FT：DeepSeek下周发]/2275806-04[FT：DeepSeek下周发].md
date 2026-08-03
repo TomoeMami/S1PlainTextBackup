@@ -5797,3 +5797,19 @@ codex注册时的手机关卡怎么过？</blockquote>
 
 因为dsv4f又快又强又便宜，所以现在办公直接上hermes了，辅助的视觉模型用的mimo2.5，现在高强度使用花费也就之前用v4p的一半
 
+
+*****
+
+####  ly4236  
+##### 4957#       发表于 2026-8-3 16:57
+
+<img src="https://img.stage1st.com/forum/202608/03/165732yn03v04101d3jbn1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (22.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-3 16:57 上传
+
+笑了 一下
+
