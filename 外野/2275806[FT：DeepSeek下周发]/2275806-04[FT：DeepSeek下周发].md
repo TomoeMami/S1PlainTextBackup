@@ -5863,3 +5863,34 @@ opencode go的DeepSeek v4 flash在拉子代理的时候也是只能一个代理�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  真红之闪电  
+##### 4963#       发表于 2026-8-3 17:38
+
+那么转pi需要哪些扩展呢？
+
+*****
+
+####  冤枉呐  
+##### 4964#       发表于 2026-8-3 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70005650&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-3 14:22</a>
+感觉现在免费的fast、flash之流最好的是grok，不仅可以写黄，文笔也没什么大毛病，就是输出少，而且过于按 ...</blockquote>
+印区太香了，写出来东西我都不好意思看
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4965#       发表于 2026-8-3 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006785&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-3 17:25</a>
+opencode go的DeepSeek v4 flash在拉子代理的时候也是只能一个代理跑完下一个代理才能跑，速度很慢，莫名其 ...</blockquote>
+昨晚和今天上午官方api也断联了几回
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
