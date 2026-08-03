@@ -6128,3 +6128,52 @@ superpower对于聪明的模型还是太重量级了
 试了下oc的免费v4f已经几乎用不了了 更难受了</blockquote>
 没事的，我两个账号都是同一个支付宝
 
+
+*****
+
+####  akirt  
+##### 4988#       发表于 2026-8-3 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007640&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-3 07:09</a>
+
+同一张信用卡不是立刻穿帮吗
+
+试了下oc的免费v4f已经几乎用不了了 更难受了</blockquote>
+至少我第二个号还没出问题
+
+话说回来就算出问题了被封号也才5美元的事情嘛 不心疼<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LeoDT  
+##### 4989#       发表于 2026-8-3 20:18
+
+没想到前几天刚说完D老师不稳定就发了正式版，这几天用下来真是好爽。而且之前试验的让D老师用中文思考的prompt也生效了，以前的英文思考实在是一眼都懒得看，现在看着有意思多了。刚才还发现，subagent在跟主agent报告的时候会用“您”，笑了半天，严格的上下级关系。
+
+看到有人问pi装什么扩展，建议是最基础的权限系统和任意合适的subagent，有严重的mcp依赖的话再加上一个mcp adapter就够了，其他的任何扩展或者你意识到的可能需要的功能都让pi给你做就好了。比如说你想要在输入框里实现symbol补全，与其找别人做好的大而全的，不如直接让pi做一个小而精的。
+
+另外关于扩展，如果你的代码库比较大，而且关系错综复杂，又有比较多的重构任务，可以看看codegraph，它有个mcp可以用，用下来体验还不错。
+
+*****
+
+####  →熙←  
+##### 4990#       发表于 2026-8-3 20:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007464&amp;ptid=2275806" target="_blank">fmchar 发表于 2026-8-3 19:33</a>
+
+这鲸鱼娘顶得住吗？？</blockquote>
+感觉也不多啊, 我都蹬了几亿了,结果才万亿级别<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  此誓的守望  
+##### 4991#       发表于 2026-8-3 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007640&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-3 20:09</a>
+
+同一张信用卡不是立刻穿帮吗
+
+试了下oc的免费v4f已经几乎用不了了 更难受了</blockquote>
+opencode不用信用卡,支付宝也可以
+

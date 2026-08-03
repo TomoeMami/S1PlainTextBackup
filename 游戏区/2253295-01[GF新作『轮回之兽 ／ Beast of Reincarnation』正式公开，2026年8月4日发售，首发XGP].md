@@ -1288,3 +1288,16 @@ pc平台拖累咱gf了？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  纯夏  
+##### 415#       发表于 2026-8-3 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006727&amp;ptid=2253295" target="_blank">膛线 发表于 2026-8-3 17:17</a>
+
+没人吐槽人物设定吗，主角配角全员i人啊，台词全是一个字一个字往外蹦的，还没啥BGM，一到剧情就开始长镜头 ...</blockquote>
+没想到吧 从试玩版开始就是这个德性了 
+
+剧情过场动画配音一团糟 正式版还是如此 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
