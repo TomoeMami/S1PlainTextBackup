@@ -275,3 +275,23 @@ XB12怪物实质造物主都是克劳乌斯，所以虽然是两个世界但是�
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  狸狸狐  
+##### 2018#       发表于 2026-8-3 22:49
+
+<blockquote>ネコカイザー 发表于 2026-8-3 21:49
+FF7R的战斗系统设计是谁啊？叫啥？</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/03/224540na5mmjqlna2d5paa.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_4955.jpg</strong> (171.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-3 22:45 上传
+
+这位。不过我又仔细看了一下，他感觉更多是关卡设计这块。另外之前做了很久的fable，在那里确实是做战斗系统的。来mono先做了王泪。
+
