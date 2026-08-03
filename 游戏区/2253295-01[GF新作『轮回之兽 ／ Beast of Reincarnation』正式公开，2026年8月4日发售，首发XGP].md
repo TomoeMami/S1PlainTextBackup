@@ -1079,3 +1079,24 @@ GF大作轮回之兽8月4号发售，pokopia8月5号就更新 DLC 。任天堂�
 看了一下直播这处处透露着贫瘠和无所谓的成品，保底千万ip的厂出低成本试水作品给20刀/80左右还可以动员粉 ...</blockquote>
 测试忠诚度数量
 
+
+*****
+
+####  紫菜粉丝煲  
+##### 394#       发表于 2026-8-3 11:35
+
+pc平台拖累咱gf了？
+
+*****
+
+####  沙里昂  
+##### 395#       发表于 2026-8-3 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004147&amp;ptid=2253295" target="_blank">wthall 发表于 2026-8-3 10:05</a>
+是的，全调到最高那个画面感觉还是ps3级别的。然后各种拉镜头强迫你看某个方向。
+
+打起来那奇怪的手感， ...</blockquote>
+卡赞的手感是这个游戏最好的部分，这有什么可比性…
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

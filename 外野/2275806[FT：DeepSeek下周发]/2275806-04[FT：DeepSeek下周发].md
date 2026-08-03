@@ -5061,3 +5061,56 @@ https://tokenrhythm.studio/i/rf_tr_bjxY ...</blockquote>
 
 千问max是首次开源啊, 是被哪家刺激到了?
 
+
+*****
+
+####  冤枉呐  
+##### 4886#       发表于 2026-8-3 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004666&amp;ptid=2275806" target="_blank">那一年的河川 发表于 2026-8-3 11:17</a>
+
+邀请好友限时活动继续延长，体验OpenSquilla新功能畅享免费token
+
+https://tokenrhythm.studio/i/rf_tr_bjxY ...</blockquote>
+邀请必须双方都用他那个harness调用一次才行
+
+操作习惯有点像codex，但是不卡
+
+*****
+
+####  wandeeees  
+##### 4887#       发表于 2026-8-3 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004771&amp;ptid=2275806" target="_blank">thq 发表于 2026-8-3 11:32</a>
+
+千问max是首次开源啊, 是被哪家刺激到了?</blockquote>
+他自己搞炸了，感觉都不一定打得过现在的V4F
+
+
+*****
+
+####  lactone  
+##### 4888#       发表于 2026-8-3 11:40
+
+我一直认为3.8MAX就是一个没有编程特化的K3，除了编程之外的工作都能打fable5
+
+*****
+
+####  阿刚  
+##### 4889#       发表于 2026-8-3 11:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为啥都说写作能力下降了，我觉的是提升啊，原来需要检查返工两遍的东西现在一遍就出了，终于不用肘那些尾椎骨锁骨窝，不是xx是oo了
+
+
+*****
+
+####  SmterC  
+##### 4890#       发表于 2026-8-3 11:45
+
+周末尝试让它实现一个hitomi la的安卓viewer。相比起Eh这个网站用AVIF编码比较多，清晰度也很不错，所以想的实现一下试试。
+使用matt skills，基于issue跟踪的开发。初始的wayfinder会规划地图，将这个复杂任务拆分成调查、技术原型验证、正式功能开发等好几个不同的issue，估计这样处理也在它这样短平快的AI的舒适区。
+一路都非常顺利，中间有过一点cdn解析出链接不可达的问题，它会越尝试越暴躁，思维链和表达都加入大量感叹号。换新会话就反应过来修好了。
+最终成品有点小问题，不过让其借助android-cli辅助查看布局调试后都能修好。
+有点牛逼的是它没法读图的情况下，有时候会自己将图片转成ASCII字符画来尝试理解，最诡异的是这么做后它真能理解现状了。
+不得不说最终表现是远远超出我的预期的，相比起预览版真的是云泥之别，至少借助一定的工程优化这个模型是能达到相当高的可用性的。虽然还不是之前灰度测试时Pro那种指哪打哪许愿机的水平，但也相当牛逼了。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
