@@ -4781,3 +4781,27 @@ Gemini太喜欢迎合用户了，我跟它辨军事领域，每几轮就我国�
 以前的Chat Completions API一直没这个功能就以为web搜索是网页端独占的。
 后面再看Anthropic API的文档发现Anthropic API也能调用搜索功能。
 
+
+*****
+
+####  Rowen233  
+##### 4861#       发表于 2026-8-3 10:01
+
+<blockquote>半江瑟瑟半江红 发表于 2026-8-3 09:40
+Gemini太喜欢迎合用户了，我跟它辨军事领域，每几轮就我国的歼20云云
+
+不是你跟谁俩呢，你哪国ai啊你就套 ...</blockquote>
+提示词要求的吧
+
+*****
+
+####  nxmonitor  
+##### 4862#       发表于 2026-8-3 10:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003975&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-3 09:40</a>
+
+Gemini太喜欢迎合用户了，我跟它辨军事领域，每几轮就我国的歼20云云
+
+不是你跟谁俩呢，你哪国ai啊你就套 ...</blockquote>
+系统提示给的，网页版的V4F也变这个样子了，先夸用户再说
+

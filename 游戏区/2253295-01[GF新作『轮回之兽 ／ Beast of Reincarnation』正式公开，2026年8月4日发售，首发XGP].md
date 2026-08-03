@@ -874,3 +874,26 @@ boss打完的演出像素级复刻旺达与巨像啊，看乐了</blockquote>
 
 剑星不太喜欢，除了软色情外玩起来很无聊，地图设计差劲收集还恶心
 
+
+*****
+
+####  Asukalangley33  
+##### 374#       发表于 2026-8-3 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003843&amp;ptid=2253295" target="_blank">hkguty 发表于 2026-8-3 09:19</a>
+什么叫比卡赞还烂，卡赞很好玩好不好，一搜有好几个说不如剑星的，但是我感觉剑星的战斗也很拉 ...</blockquote>
+也许这种说法很微妙，剑星和卡赞至少你上手玩个1小时，你会认为这个游戏是“完整”的，是正常制作完成的
+
+轮回之兽你进游戏5分钟就让你觉得这很像一个EA阶段的游戏
+
+—— 来自 Xiaomi 24031PN0DC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  stoiorz  
+##### 375#       发表于 2026-8-3 10:01
+
+带上首日补丁会不会好一点？8月份的xgp等着吃的就是这个，如果不是大拉特拉，难度低一点让我速通也可以的。
+
+那么有难度选项吗？
+
