@@ -6371,3 +6371,23 @@ Qwen3.8果不其然拉，号称前端比Kimi强，一句话生成个我的世界
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  我要你三更死  
+##### 5010#       发表于 2026-8-3 23:55
+
+qwen3.8有人试了吗
+
+—— 来自 motorola XT2437-4, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Alunamin  
+##### 5011#       发表于 2026-8-3 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008510&amp;ptid=2275806" target="_blank">jumbleh 发表于 2026-8-3 23:43</a>
+
+你不会一直在用zen的免费吧</blockquote>
+之前主力是在蹬dsv4p和glm5.2，这几天都不敢用了，有点哈人
+
