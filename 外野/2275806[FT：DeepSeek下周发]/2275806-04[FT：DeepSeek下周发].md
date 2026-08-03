@@ -6391,3 +6391,21 @@ qwen3.8有人试了吗
 你不会一直在用zen的免费吧</blockquote>
 之前主力是在蹬dsv4p和glm5.2，这几天都不敢用了，有点哈人
 
+
+*****
+
+####  startraveller  
+##### 5012#       发表于 2026-8-4 00:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008551&amp;ptid=2275806" target="_blank">Alunamin 发表于 2026-8-3 23:57</a>
+之前主力是在蹬dsv4p和glm5.2，这几天都不敢用了，有点哈人</blockquote>
+你打开billing看看，肯定在续费
+
+
+*****
+
+####  gawain  
+##### 5013#       发表于 2026-8-4 00:44
+
+v4pro啥时候端上来<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
