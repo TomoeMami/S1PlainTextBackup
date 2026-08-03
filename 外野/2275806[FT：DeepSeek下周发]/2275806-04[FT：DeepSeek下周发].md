@@ -4932,3 +4932,19 @@ v4f ...</blockquote>
 可能墙的不止ds。我在外企，除了gpt和claude什么ai服务都访问不了，gemini grok ds qwen kimi全屏蔽。因 ...</blockquote>
 openai也就算了，A÷有获取客户数据，然后推出和客户一样的功能的前科的……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cyberalogo  
+##### 4875#       发表于 2026-8-3 11:02
+
+RT转CNBC报道
+
+【#美外卖巨头测试中国AI模型#被要求配合安全调查】当地时间8月2日，据美国消费者新闻与商业频道（CNBC）报道，美国知名外卖平台DoorDash因在内部系统测试中国人工智能（AI）模型Kimi K2.6，被美国众议院两大委员会发函，要求提供更多相关信息以配合安全调查。
+
+据报道，美国联邦众议院负责“美中战略竞争”的特别委员会**穆勒纳尔与国土安全委员会**加巴里诺7月31日联名致函DoorDash联合创始人兼首席执行官徐迅，要求公司详细说明是否整合了中国开发的开放权重AI模型，以及相关的安全防护措施。为此，委员会要求DoorDash须于8月14日前提交详尽的信息，包括：使用的中国AI模型清单、安全测试结果、风险评估、内部决策文件、使用成本及替代方案等，并说明在模型训练、微调与部署过程中，是否向开发者提供了美国用户信息、商业信息或其他敏感信息。此外，相关高管须于8月21日前赴国会进行现场说明。
+
+此前，DoorDash联合创始人方安迪曾在社交媒体发文透露，公司已将部分较低级别的AI任务交给由中国月之暗面公司开发的Kimi K2.6模型处理。 
+
+美国现在对中国AI真是层层设防，防不胜防啊。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

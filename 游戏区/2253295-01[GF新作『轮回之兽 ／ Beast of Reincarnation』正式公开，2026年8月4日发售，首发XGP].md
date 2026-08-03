@@ -1017,3 +1017,34 @@ gf再一次证明了自己<img src="https://static.stage1st.com/image/smiley/fac
 
 GF在让人失望上这点从来不让人失望啊。
 
+
+*****
+
+####  fantuanxiaoyi  
+##### 388#       发表于 2026-8-3 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004126&amp;ptid=2253295" target="_blank">stoiorz 发表于 2026-8-3 10:01</a>
+
+带上首日补丁会不会好一点？8月份的xgp等着吃的就是这个，如果不是大拉特拉，难度低一点让我速通也可以的。 ...</blockquote>
+day1 patch可能把这个游戏战斗手感，敌方招数，画面水平全部改善吗？
+
+我想等这个游戏打一折你也等不到这些。
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 389#       发表于 2026-8-3 11:06
+
+任天堂跟GF是彻底撕破脸了
+GF大作轮回之兽8月4号发售，pokopia8月5号就更新 DLC 。任天堂一点都不给GF面子。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acropolis  
+##### 390#       发表于 2026-8-3 11:08
+
+之前看前瞻还有说演出不错的，我草了完整版一看过场是ff14级别的站桩分镜和缓速对话
+

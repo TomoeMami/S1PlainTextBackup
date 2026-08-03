@@ -1564,3 +1564,22 @@ Z2战斗动画是可以的，但是Z2两部连起来实在太长了，多年前�
 不是说是y的引擎和ui吗</blockquote>
 用 Y的引擎是为了更好适配现在的主机和电脑系统，跟作画啥没关系，所以不会改动画的
 
+
+*****
+
+####  lbzlxx  
+##### 160#       发表于 2026-8-3 11:03
+
+参战作品多了，肯定是要搞组队系统的，不然一部作品分不到一个出场名额，一大堆板凳，不做机体做成召唤兽吧就被喷偷懒，做出来吧又说弱鸡没用浪费资源
+
+
+*****
+
+####  DARKGRAY  
+##### 161#       发表于 2026-8-3 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004482&amp;ptid=2286736" target="_blank">dqjsss 发表于 2026-8-3 10:54</a>
+
+用 Y的引擎是为了更好适配现在的主机和电脑系统，跟作画啥没关系，所以不会改动画的 ...</blockquote>
+Y刚出那阵子不是哪里说过画面素材也得重绘什么的来着<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
