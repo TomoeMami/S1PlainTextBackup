@@ -4901,3 +4901,34 @@ v4f雷霆大思考后发现了这一点，熟练地自己找到了另一个项�
 可能墙的不止ds。我在外企，除了gpt和claude什么ai服务都访问不了，gemini grok ds qwen kimi全屏蔽。因 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">这数据安全考虑各种意义上都有点幽默了
 
+
+*****
+
+####  passgan  
+##### 4872#       发表于 2026-8-3 10:50
+
+那个hermes的客户端有没有人用，和codex有没有啥区别
+
+*****
+
+####  nxmonitor  
+##### 4873#       发表于 2026-8-3 10:52
+
+ 本帖最后由 nxmonitor 于 2026-8-3 10:55 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004406&amp;ptid=2275806" target="_blank">tk553521 发表于 2026-8-3 10:42</a>
+
+这特么的离谱了，我用opencode接v4fnew，工作区没仔细看选错了，给了另一个项目的流程和接口要求开发。
+
+v4f ...</blockquote>
+还有搞测试的时候跑到其他模型的文件去把结果改改上交的，甚至听说让V4F做翻译工作，然后自己下载了Qwen-6B部署好以后，又写了个harness开干的……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 4874#       发表于 2026-8-3 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003230&amp;ptid=2275806" target="_blank">MeursaulT 发表于 2026-8-3 01:20</a>
+
+可能墙的不止ds。我在外企，除了gpt和claude什么ai服务都访问不了，gemini grok ds qwen kimi全屏蔽。因 ...</blockquote>
+openai也就算了，A÷有获取客户数据，然后推出和客户一样的功能的前科的……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

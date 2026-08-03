@@ -1553,3 +1553,14 @@ Z2战斗动画是可以的，但是Z2两部连起来实在太长了，多年前�
 
 为什么PS2时期是机器人大战最好的时代，不是说单一作完美无缺，其实就是Z本身也有缺憾。而是款款作品都想做出创新，玩家接触每一部游戏，都能在走格子的规则上体验到新感觉
 
+
+*****
+
+####  dqjsss  
+##### 159#       发表于 2026-8-3 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69998617&amp;ptid=2286736" target="_blank">alucardcz 发表于 2026-8-1 21:50</a>
+
+不是说是y的引擎和ui吗</blockquote>
+用 Y的引擎是为了更好适配现在的主机和电脑系统，跟作画啥没关系，所以不会改动画的
+

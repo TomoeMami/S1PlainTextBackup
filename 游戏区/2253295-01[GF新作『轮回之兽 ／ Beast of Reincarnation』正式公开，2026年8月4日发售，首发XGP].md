@@ -999,3 +999,21 @@ gf再一次证明了自己<img src="https://static.stage1st.com/image/smiley/fac
 
 体验了ZA的暴走MEGA战以后，我就一直想看这群小逼崽子在这种动作游戏BOSS设计能出怎样的绝活
 
+
+*****
+
+####  nianiania  
+##### 386#       发表于 2026-8-3 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003658&amp;ptid=2253295" target="_blank">来都来了 发表于 2026-8-3 08:43</a>
+
+什么？比卡赞还烂吗？比卡赞还烂，到底要烂到什么程度</blockquote>
+卡赞不烂吧，手感还可以啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  monikaca  
+##### 387#       发表于 2026-8-3 10:50
+
+GF在让人失望上这点从来不让人失望啊。
+

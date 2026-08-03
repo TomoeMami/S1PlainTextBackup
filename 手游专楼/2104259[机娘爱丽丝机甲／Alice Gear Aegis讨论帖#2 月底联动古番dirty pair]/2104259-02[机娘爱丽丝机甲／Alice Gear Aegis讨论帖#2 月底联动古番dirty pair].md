@@ -136,3 +136,11 @@ FY16 YHA3 TL6W GFTK
 
 这次奈叶联动就差个久濑本体了，惜败
 
+
+*****
+
+####  イクイノックス  
+##### 2080#       发表于 2026-8-3 10:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">这段时间抽啥啥不出
+
