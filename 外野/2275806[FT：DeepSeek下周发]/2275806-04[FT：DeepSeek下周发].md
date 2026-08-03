@@ -5370,3 +5370,37 @@ api加我本地自己搭的简单搜索工具也能答对
 官方的搜索（虽然我只在网页版用过）其实效果不是很好，v4f还没正式版的时候我遇到过不开搜索能答对但开了 ...</blockquote>
 之前是外挂的，现在有了原生的搜索
 
+
+*****
+
+####  孙吧星人  
+##### 4914#       发表于 2026-8-3 13:50
+
+这新V4的甲有点厚啊，未成年这一块死不松口。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  冤枉呐  
+##### 4915#       发表于 2026-8-3 13:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70005232&amp;ptid=2275806" target="_blank">那一年的河川 发表于 2026-8-3 12:57</a>
+其实我也不知道拿来干啥，看到别人薅我就也先薅着硅基的 ds流口水的厉害，这个当个备用的吧
+
+ ...</blockquote>
+68按照ds的价格能蹬好久了
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  冤枉呐  
+##### 4916#       发表于 2026-8-3 13:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70005276&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-8-3 13:03</a>
+我说怎么后面没到账，原本是调用API即可，现在是使用hamess了
+
+使用了一下，不太行，让它查询我本地安装了 ...</blockquote>
+直接测一下连通性就算成了
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
