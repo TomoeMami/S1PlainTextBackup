@@ -5219,3 +5219,49 @@ minimax h3开源了<img src="https://static.stage1st.com/image/smiley/face2017/0
 
 Pro预览版，当然比网页的快速模式还是要强的
 
+
+*****
+
+####  tillnight  
+##### 4901#       发表于 2026-8-3 12:45
+
+阿里这种大公司怎么可能在k3发布两天内就作出下一代旗舰开源的决策，你说豆包开源了他被逼紧急开源那可能性还大点。正常这种决策起码是7月中上旬就定好的事情。
+
+更何况目前最该着急的不是智谱吗，是人是鬼都踩前国模一哥一脚。而且看Qwen3.8max的各项跑分只有DeepSWE拉了但也没避讳，反倒是感觉千问想好了方向就是不往已经非常拥挤的vibe coding赛道拥挤。硬要说的话，Agent的需求肯定远比狭义编程工具广阔的多。归根到底千问其实应该要去打豆包的，普通人也能在日常工作上用起来的智能体很可能是下一个爆发点，OAI拿work模式替代codex站到C位是一个道理。
+
+*****
+
+####  Promeus  
+##### 4902#       发表于 2026-8-3 12:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70005183&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-3 12:45</a>
+阿里这种大公司怎么可能在k3发布两天内就作出下一代旗舰开源的决策，你说豆包开源了他被逼紧急开源那可能性 ...</blockquote>
+智谱的新模型大概率有k3到fable级，也就是这个月了，其实也没啥急的<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sellboy  
+##### 4903#       发表于 2026-8-3 12:51
+
+<blockquote>tillnight 发表于 2026-8-3 12:45
+阿里这种大公司怎么可能在k3发布两天内就作出下一代旗舰开源的决策，你说豆包开源了他被逼紧急开源那可能性 ...</blockquote>
+去年重点是思考模式
+
+今年重点是agent
+
+明年重点是持续记忆
+
+跟不上重点那不就和gemini一桌了么。
+
+*****
+
+####  半江瑟瑟半江红  
+##### 4904#       发表于 2026-8-3 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004899&amp;ptid=2275806" target="_blank">SmterC 发表于 2026-8-3 11:51</a>
+有时候它会主动转换图片到字符画来识别，也许可以主动让它这么干来曲线实现多模态    Re:Source ...</blockquote>
+不中，魔方还原动画涉及到建模和颜色，转字符画它也debug不了，最后靠我用文字描述模拟器上的建模bug给它读，它才完成
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
