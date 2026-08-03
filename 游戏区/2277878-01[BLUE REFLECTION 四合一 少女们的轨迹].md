@@ -1420,3 +1420,11 @@ SD纹理中，开抗锯齿和环境光遮蔽，其他全低，系统锁30帧，�
 
 什么都好就是体积太大了，50多G！虽然一寸大一寸强。。。也是玩过最大的手机游戏了，还害我现在看20G都觉得不大了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  crosz1985  
+##### 120#       发表于 2026-8-3 20:04
+
+ns1版在switch2上体验如何啊
+

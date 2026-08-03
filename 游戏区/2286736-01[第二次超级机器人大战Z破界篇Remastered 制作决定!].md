@@ -1780,3 +1780,16 @@ VTX時代就因為被說成配合NS關係，所以在進入戰鬥畫面後還要
 
 最近xs的版权问题到让我意识到一件事，财团b可能只有og的ip和角色使用权，开发权很大可能得看东星脸色，东星会不会坐地起价可能才是og会不会出新作的壁垒
 
+
+*****
+
+####  gpx234mqx  
+##### 182#       发表于 2026-8-3 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004611&amp;ptid=2286736" target="_blank">ティグル 发表于 2026-8-3 11:09</a>
+
+不管自家别家OG的胶就没停过，但是就是连拉伸分辨率上PC这么简单的事代便都不乐意做
+
+那确实没得说了 ...</blockquote>
+就是在特意排除寺胖的影响<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

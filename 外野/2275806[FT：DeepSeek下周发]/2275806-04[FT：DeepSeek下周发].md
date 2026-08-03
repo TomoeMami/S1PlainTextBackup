@@ -6077,3 +6077,27 @@ pi 和 reasonix 哪个好用</blockquote>
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  akirt  
+##### 4984#       发表于 2026-8-3 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007526&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-3 06:48</a>
+
+我一天蹬了go的周用量20% 月用量10%。。。月用量用完了咋办呢。。。
+
+—— 来自 OnePlus PJX110, Android ...</blockquote>
+再注册个号首月5美元
+
+*****
+
+####  →熙←  
+##### 4985#       发表于 2026-8-3 19:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天用opencode蹬了月度的10%
+
+今天换了zcode,只蹬了1%
+
+superpower对于聪明的模型还是太重量级了
+
