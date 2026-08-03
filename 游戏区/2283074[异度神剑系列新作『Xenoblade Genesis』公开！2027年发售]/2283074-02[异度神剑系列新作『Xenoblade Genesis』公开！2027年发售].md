@@ -295,3 +295,13 @@ FF7R的战斗系统设计是谁啊？叫啥？</blockquote>
 
 这位。不过我又仔细看了一下，他感觉更多是关卡设计这块。另外之前做了很久的fable，在那里确实是做战斗系统的。来mono先做了王泪。
 
+
+*****
+
+####  serj005  
+##### 2019#       发表于 2026-8-3 23:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008189&amp;ptid=2283074" target="_blank">kos_mos 发表于 2026-8-3 22:13</a>
+XB12怪物实质造物主都是克劳乌斯，所以虽然是两个世界但是有大量同样的种族，XB3又是两个世界的结合。XBX米 ...</blockquote>
+xbx大体型怪原创的有很多，但有大量中小体型的怪也是复用的xb1,比如火鸡人在xbx也有，只是改了个名
+

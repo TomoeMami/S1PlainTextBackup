@@ -1333,3 +1333,32 @@ pc平台拖累咱gf了？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是要把人骗进来杀啊
 
+
+*****
+
+####  千秋难诉  
+##### 420#       发表于 2026-8-3 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004223&amp;ptid=2253295" target="_blank">千秋难诉 发表于 2026-8-3 10:16</a>
+
+错怪GF了，一个怪最多4个技能（动作），多为玩家开发BVB考虑啊，这样的数值调教才是经营宝对战多年的GF啊 ...</blockquote>
+摇头晃脑是轮回之兽引入的普通属性招式。
+
+攻击目标造成伤害，一回合内连续攻击2次，每一击击中要害的概率都相等，并通过画面晃动对玩家造成精神伤害
+
+摇头晃脑有10%的几率使玩家陷入混乱状态。
+
+属性          普通
+
+分类          物理
+
+ＰＰ         15 （最大 24）
+
+威力         40*2
+
+命中         85
+
+是接触类招式
+
+可以被打铁
+

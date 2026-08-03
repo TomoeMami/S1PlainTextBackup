@@ -6330,3 +6330,31 @@ deepseek的codex适配不好啊，不如pi，token还烧的快，比luna max都�
 
     [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  nxmonitor  
+##### 5006#       发表于 2026-8-3 23:35
+
+Qwen3.8果不其然拉，号称前端比Kimi强，一句话生成个我的世界都满地BUG，不如V4F放进zcode来一句的效果
+
+
+*****
+
+####  nxmonitor  
+##### 5007#       发表于 2026-8-3 23:42
+
+ 本帖最后由 nxmonitor 于 2026-8-3 23:46 编辑 
+
+我就说其他benchmark高但是DeepSWE分数就比V4F高两分是有鬼的，这么大参数的模型啊……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jumbleh  
+##### 5008#       发表于 2026-8-3 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008433&amp;ptid=2275806" target="_blank">Alunamin 发表于 2026-8-3 23:19</a>
+
+请教下，我六月二十号花了五刀开通的opencode go，第一时间就关闭了支付宝的自动续费，之后也没再扣过钱， ...</blockquote>
+你不会一直在用zen的免费吧
+
