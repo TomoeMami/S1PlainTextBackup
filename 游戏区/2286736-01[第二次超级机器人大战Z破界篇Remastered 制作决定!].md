@@ -1793,3 +1793,13 @@ VTX時代就因為被說成配合NS關係，所以在進入戰鬥畫面後還要
 那确实没得说了 ...</blockquote>
 就是在特意排除寺胖的影响<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  アヘ顔  
+##### 183#       发表于 2026-8-3 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007224&amp;ptid=2286736" target="_blank">misya 发表于 2026-8-3 18:41</a>
+最近xs的版权问题到让我意识到一件事，财团b可能只有og的ip和角色使用权，开发权很大可能得看东星脸色，东 ...</blockquote>
+东星现在还活着吗原来
+
