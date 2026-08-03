@@ -798,3 +798,13 @@ boss打完的演出像素级复刻旺达与巨像啊，看乐了</blockquote>
 
 做个这样的宝可梦就得了。<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wthall  
+##### 365#       发表于 2026-8-3 08:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">打完第一个boss，再捡起之前弃坑了一个礼拜的卡赞，瞬间感觉卡赞的战斗手感报表爽。
+
+这游戏神了
+
