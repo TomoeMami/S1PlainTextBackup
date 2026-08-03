@@ -1646,3 +1646,11 @@ Y刚出那阵子不是哪里说过画面素材也得重绘什么的来着<img sr
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  王元姬无惨  
+##### 169#       发表于 2026-8-3 15:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">可是已经连着五部机战没有组队系统了啊 组队遗老可以和 winky遗老坐一桌 要不就老老实实玩og去
+

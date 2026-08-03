@@ -5539,3 +5539,50 @@ ds毕竟开源,过几天opencode可能就会修复了
 
 opencode越来越烂了，我怀疑是vibe产生矢山的典型结果，等Pro出来查一遍可能都比现在的好……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ayanamilin  
+##### 4931#       发表于 2026-8-3 15:18
+
+我直到今天才明白 codex cli 的路径补全功能该怎么用。其实是很好用的，但是我之前一直习惯 claude 的 tab 补全/先选择一个候选然后在后面补全路径。
+
+比方说你要在命令行里索引当前目录下 aefds\bbasdfe\ccasdf\dasfe 这个文件，那么只需要输入 @a\b\c\d 就行了。有点像 fish shell 的路径缩写。
+
+不过总体来说 codex cli 使用体验完全不如 claude code。
+
+*****
+
+####  lilod  
+##### 4932#       发表于 2026-8-3 15:19
+
+ds4f 这里不要纠结订阅了，直接 pi + api key 就完事了
+
+
+*****
+
+####  spaceblue  
+##### 4933#       发表于 2026-8-3 15:22
+
+用了几天感觉5.6LUNAMAX和DSV4F从能力上来差不多，但是LUNAMAX有多模态而且有订阅更便宜，而DSV4F速度的速度要快很多很多，各有优势吧。
+
+*****
+
+####  StrangerJ  
+##### 4934#       发表于 2026-8-3 15:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70005993&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-8-3 15:18</a>
+我直到今天才明白 codex cli 的路径补全功能该怎么用。其实是很好用的，但是我之前一直习惯 claude 的 tab  ...</blockquote>
+codex那个破cli感觉万年不更新，有条件还是用codex app吧，app虽然有些方便的小功能还不完善，但也比cli要好用很多，app是可以连到服务器上的cli的
+
+—— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  →熙←  
+##### 4935#       发表于 2026-8-3 15:28
+
+ds4f现在应该是用opencode go套餐
+
+爽蹬
+
