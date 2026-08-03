@@ -1762,3 +1762,13 @@ VTX時代就因為被說成配合NS關係，所以在進入戰鬥畫面後還要
 
 看對面空軌都是這樣，當時都是只公佈了FC，但大家都會知道一定會出SC，半年後法老空就說會用現在新的技術來重新打造SC更多新系統
 
+
+*****
+
+####  nightraven  
+##### 180#       发表于 2026-8-3 17:52
+
+我记得老的掌机机战有换人系统的，和足球一样换下的不能再上，增加了人物出场率和战略性，但后续好像没有再实装这个系统了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
