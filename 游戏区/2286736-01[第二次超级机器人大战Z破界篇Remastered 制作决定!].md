@@ -1461,3 +1461,14 @@ Z2战斗动画是可以的，但是Z2两部连起来实在太长了，多年前�
 
 以至于Z3两部汉化出了以后，看着同样体量的关卡数量，昏倒在地
 
+
+*****
+
+####  pu  
+##### 150#       发表于 2026-8-3 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003484&amp;ptid=2286736" target="_blank">wingzerocos 发表于 2026-8-3 07:33</a>
+
+对空对地是Z的，少给2z美化了</blockquote>
+不是 你TM随便B站搜个战斗视频也说不出这B话 
+
