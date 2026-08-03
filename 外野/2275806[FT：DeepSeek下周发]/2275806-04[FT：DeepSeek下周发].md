@@ -6531,3 +6531,16 @@ image.png
 
 ，我昨天蹬了一天了才蹬了十五块
 
+
+*****
+
+####  lambl  
+##### 5024#       发表于 2026-8-4 07:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008907&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-4 07:21</a>
+
+前天下午还是晚上的时候就上正式版了啊，名字是这个deepseek-v4-flash-0731
+
+，我昨天蹬了一天了才蹬了十 ...</blockquote>
+还真是，不过日志那有详细记录还是不爽。
+
