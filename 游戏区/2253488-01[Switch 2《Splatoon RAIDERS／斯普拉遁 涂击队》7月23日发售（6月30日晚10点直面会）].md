@@ -6750,3 +6750,24 @@ https://gamewith.jp/splatoon-raiders/569753
 
 <img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer"> 但是刷的过程中出了绝品鲨鱼和4K破冰狙击，我原谅鱿鱼研了。
 
+
+*****
+
+####  doraemonmilmil  
+##### 818#       发表于 2026-8-3 08:47
+
+感觉刷鲑鱼和武器图鉴都会变的不幸，尤其鲑鱼图鉴，太……育碧了，更别说楼上提到的金鲑鱼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武器已经90+倒是还有有个盼头，但出啥看脸也是麻烦
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  otakun  
+##### 819#       发表于 2026-8-3 08:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003500&amp;ptid=2253488" target="_blank">doraemonmilmil 发表于 2026-8-3 07:45</a>
+有绝品鲨鱼枪但是把钱浪费在普通鲨鱼枪上的我不过目前玩冰冻引擎滚筒更爽
+
+—— 来自 S1Fun ...</blockquote>
+问一下这个带鞋子和跃升的速度背包玩冻结，是不是不带跟浮空有关的配件的？风扇主要用来上debuff 和收鱼卵？
+
