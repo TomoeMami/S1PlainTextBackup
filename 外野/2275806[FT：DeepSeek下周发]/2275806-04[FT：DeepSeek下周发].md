@@ -4737,3 +4737,13 @@ flash全面斩杀sol
 
 今天早上玩了一圈，感觉纯粹的不涉及现实情况的哲学辩经还是gemini厉害，一样的话题gemini两轮就能讨论出的东西deepseek要讨论四五轮
 
+
+*****
+
+####  neptunehs  
+##### 4857#       发表于 2026-8-3 09:08
+
+你们怎么都说opencode go用不完 我就三开了而已半小时就周用量1%了（拖
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

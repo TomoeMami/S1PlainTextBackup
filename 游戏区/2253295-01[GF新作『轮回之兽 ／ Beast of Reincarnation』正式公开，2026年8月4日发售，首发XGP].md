@@ -825,3 +825,18 @@ boss打完的演出像素级复刻旺达与巨像啊，看乐了</blockquote>
 
 但看口碑我感觉要不然先退款算了。
 
+
+*****
+
+####  汪达  
+##### 368#       发表于 2026-8-3 09:10
+
+口碑这么拉吗？那等粉碎性骨折了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空洞骑士  
+##### 369#       发表于 2026-8-3 09:16
+
+感觉可以安心打pokopiaDLC了，不过音乐到底是不是MONACA？不想去搜通关视频怕被剧透。
+
