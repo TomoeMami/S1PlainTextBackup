@@ -1882,3 +1882,24 @@ og也是月之民都多久了，跟ps3时代的2og玩起来没啥区别
 
 —— 来自 nubia NX712J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  qiyu1234  
+##### 189#       发表于 2026-8-3 23:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008294&amp;ptid=2286736" target="_blank">mad55555 发表于 2026-8-3 22:39</a>
+
+比起这个，有没有人能说说
+
+万南新搞出来的SOL-AVES是只用在南梦宫系的内部开发游戏
+
+(传说一直没有新作的 ...</blockquote>
+SOL-AVES第一个上的是卡比飞车
+
+后面用在什么上面不知道，但根据招人情况来看，除非是更换方便或者处于较早开发阶段，不然Tales这种大概率还是UE，毕竟连明年的那个高达异轨征途都用的UE
+
+CEDEC26的情况来看，未来可能会在BNS内部大幅度推广使用，但感觉这个引擎目前还是以调试和入社适配学习为主，商用项目目前可能更多会用在社外合作项目上吧——如果还有的话
+
+万南工作室以外的工作室目前没看出有使用这个引擎的可能性，包括BNFD也没有
+
