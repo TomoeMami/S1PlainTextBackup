@@ -6232,3 +6232,33 @@ pi 和 reasonix 哪个好用</blockquote>
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  goranger  
+##### 4997#       发表于 2026-8-3 21:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007686&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-3 20:18</a>
+
+没想到前几天刚说完D老师不稳定就发了正式版，这几天用下来真是好爽。而且之前试验的让D老师用中文思考的pr ...</blockquote>
+有没有可能，现在默认就是中文思考，不用额外配提示词
+
+*****
+
+####  orca  
+##### 4998#       发表于 2026-8-3 21:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008082&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-3 21:51</a>
+有没有可能，现在默认就是中文思考，不用额外配提示词</blockquote>
+pi里还是要自己折腾下的，不然还是经常大篇幅的用英文思考
+
+*****
+
+####  LeoDT  
+##### 4999#       发表于 2026-8-3 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008082&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-3 21:51</a>
+
+有没有可能，现在默认就是中文思考，不用额外配提示词</blockquote>
+哈哈哈，竟然吗？我还好奇为什么思考都变中文了，以为是我之前一直没删的system prompt生效了。不过subagent里还是能看到英文输出，可能还是有什么没搞清的。
+

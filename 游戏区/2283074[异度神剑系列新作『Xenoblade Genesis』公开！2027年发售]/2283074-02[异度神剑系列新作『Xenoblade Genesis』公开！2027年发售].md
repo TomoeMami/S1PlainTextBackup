@@ -232,3 +232,14 @@ ARPG化 对于异度神剑其实是雷点
 一以后没位移技能了…😁 你是否好好玩过之后的XB了，那可真太多了</blockquote>
 确实有击退，忘记了
 
+
+*****
+
+####  ネコカイザー  
+##### 2014#       发表于 2026-8-3 21:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007054&amp;ptid=2283074" target="_blank">狸狸狐 发表于 2026-8-3 18:06</a>
+
+主要还有一点就是ff7r的战斗系统设计现在就在mono，应该也有一些参考意义</blockquote>
+FF7R的战斗系统设计是谁啊？叫啥？
+
