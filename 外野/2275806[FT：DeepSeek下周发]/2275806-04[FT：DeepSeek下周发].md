@@ -6304,3 +6304,29 @@ deepseek的codex适配不好啊，不如pi，token还烧的快，比luna max都�
 哈哈哈，竟然吗？我还好奇为什么思考都变中文了，以为是我之前一直没删的system prompt生效了。不过subag ...</blockquote>
 我是提示词没变的情况下，更新那天上午突然思考链变中文，并且能力明显提升，我还来这里问了。所以我觉得正式版就是默认中文思考链了
 
+
+*****
+
+####  Alunamin  
+##### 5004#       发表于 2026-8-3 23:19
+
+请教下，我六月二十号花了五刀开通的opencode go，第一时间就关闭了支付宝的自动续费，之后也没再扣过钱，现在过去四十几天了显示还是已订阅还能用是咋回事啊<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TKD53  
+##### 5005#       发表于 2026-8-3 23:21
+
+泥潭的权重可以啊，deepseek搜索的好久条都是s1的帖子
+
+<img src="https://img.stage1st.com/forum/202608/03/232119wys6bdpysazd9sys.jpg" referrerpolicy="no-referrer">
+
+<strong>1000013892.jpg</strong> (424.34 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-3 23:21 上传
+
+    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

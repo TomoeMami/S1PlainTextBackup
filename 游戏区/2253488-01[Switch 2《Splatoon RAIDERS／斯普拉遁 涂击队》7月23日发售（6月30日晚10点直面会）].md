@@ -7042,3 +7042,31 @@ https://gamewith.jp/splatoon-raiders/569753
 
 打完100，一口气打到150，才出2个宝藏，太低了
 
+
+*****
+
+####  Leona_Akari  
+##### 845#       发表于 2026-8-3 23:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚把塔爬到了50层，然后把除了80大矿图以外的所有常规图都打了，只出了几把4星的绝品，5星一把没有，我觉得4星也有绝品就是来搞你心态的
+
+
+*****
+
+####  otakun  
+##### 846#       发表于 2026-8-3 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008426&amp;ptid=2253488" target="_blank">Leona_Akari 发表于 2026-8-3 23:17</a>
+今晚把塔爬到了50层，然后把除了80大矿图以外的所有常规图都打了，只出了几把4星的绝品，5星一把没有，我觉 ...</blockquote>
+那么厉害，76还是72级那个金勺子小鲑鱼卡了我挺久…
+
+*****
+
+####  Leona_Akari  
+##### 847#       发表于 2026-8-3 23:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008440&amp;ptid=2253488" target="_blank">otakun 发表于 2026-8-3 23:21</a>
+
+那么厉害，76还是72级那个金勺子小鲑鱼卡了我挺久…</blockquote>
+哦，不够严谨，是前面那堆常规图，就是要跑路跳来跳去的那堆主线图
+
