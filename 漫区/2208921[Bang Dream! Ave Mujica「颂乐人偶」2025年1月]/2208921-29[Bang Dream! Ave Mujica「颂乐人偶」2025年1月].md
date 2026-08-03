@@ -474,3 +474,11 @@ SSR成员附带专属动画演出！该动画也会在抽卡及节奏游戏画�
 《BanG Dream! Our Notes》目前正在火热预约中🎶</blockquote>
        [https://www.bilibili.com/video/BV1S7Gw6QEUb](https://www.bilibili.com/video/BV1S7Gw6QEUb)
 
+
+*****
+
+####  凉良  
+##### 41978#       发表于 2026-8-3 18:03
+
+大喵为何越来越像自研灯了
+
