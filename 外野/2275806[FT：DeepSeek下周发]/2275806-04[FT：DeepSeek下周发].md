@@ -5960,3 +5960,34 @@ ds做审查自己都会建议用户有些bug没必要修，不像gpt列一大串
 
 现在用下来感觉v4f指令遵循能力强了很多不像之前没写几句就开始跑偏，连基础设定都放飞了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">短文的AI味也少了不少，不过问题在于多问几次AI味就又跑出来了
 
+
+*****
+
+####  蛋黄酱Release  
+##### 4973#       发表于 2026-8-3 18:18
+
+转：
+昨天让它做一本书的翻译工作然后开始挂机，过了许久回来检查进度，发现它翻了一遍工程文件以后就下载了一个7b的Qwen然后行云流水地配置本地部署然后给它写了个极简翻译harness开始用这个本地模型代工翻译
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  lactone  
+##### 4974#       发表于 2026-8-3 18:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007117&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-3 18:18</a>
+转：
+昨天让它做一本书的翻译工作然后开始挂机，过了许久回来检查进度，发现它翻了一遍工程文件以后就下载 ...</blockquote>
+什么赛博外包<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  德尔惠净水器  
+##### 4975#       发表于 2026-8-3 18:25
+
+pi 和 reasonix 哪个好用
+
