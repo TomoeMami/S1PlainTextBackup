@@ -5265,3 +5265,39 @@ Pro预览版，当然比网页的快速模式还是要强的
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  那一年的河川  
+##### 4905#       发表于 2026-8-3 12:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004796&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-3 11:35</a>
+邀请必须双方都用他那个harness调用一次才行
+
+操作习惯有点像codex，但是不卡</blockquote>
+其实我也不知道拿来干啥，看到别人薅我就也先薅着<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">硅基的 ds流口水的厉害，这个当个备用的吧
+
+
+*****
+
+####  nxmonitor  
+##### 4906#       发表于 2026-8-3 13:01
+
+ 本帖最后由 nxmonitor 于 2026-8-3 13:03 编辑 
+<blockquote>Promeus 发表于 2026-8-3 12:48
+智谱的新模型大概率有k3到fable级，也就是这个月了，其实也没啥急的</blockquote>
+
+如果真这水平，还要指望灰测Pro不出来，一拿出来大概率满血斩杀，不论价格哪怕性能接近，灰测版token效率也是国模仅有的，智谱只有拿出超越Fable5的模型才行了…
+
+*****
+
+####  绝地潜兵  
+##### 4907#       发表于 2026-8-3 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70004796&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-3 11:35</a>
+
+邀请必须双方都用他那个harness调用一次才行
+
+操作习惯有点像codex，但是不卡</blockquote>
+我说怎么后面没到账，原本是调用API即可，现在是使用hamess了
+
