@@ -1872,3 +1872,25 @@ PV印度人镜头多是因为蘑菇老婆喜欢印度，这个国服做8周年PV
 上头了管你这那的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">该课了  反正也不是第1次了！
 
+
+*****
+
+####  qixinno1  
+##### 21241#       发表于 2026-8-3 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007745&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-3 20:35</a>
+
+该课了  反正也不是第1次了！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">不氪 已经感觉到是大保底的节奏了 连歪俩五星然后四星大点名 年初的冠呆就这德行最后生吃大保底恶心死了
+
+
+*****
+
+####  alucardcz  
+##### 21242#       发表于 2026-8-3 20:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007754&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-8-3 20:37</a>
+
+不氪 已经感觉到是大保底的节奏了 连歪俩五星然后四星大点名 年初的冠呆就这德行最后生吃大保底恶心死了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">你看萌新甚至没有管呆
+
