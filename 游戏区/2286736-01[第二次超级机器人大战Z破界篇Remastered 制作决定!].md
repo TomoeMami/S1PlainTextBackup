@@ -1914,3 +1914,16 @@ CEDEC26的情况来看，未来可能会在BNS内部大幅度推广使用，但�
 我记得老的掌机机战有换人系统的，和足球一样换下的不能再上，增加了人物出场率和战略性，但后续好像没有再 ...</blockquote>
 你说的是W和J吧，后面Wii的NEO也有。
 
+
+*****
+
+####  猪突猛进R  
+##### 191#       发表于 2026-8-4 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008567&amp;ptid=2286736" target="_blank">不灭的旋律 发表于 2026-8-4 00:04</a>
+
+你说的是W和J吧，后面Wii的NEO也有。</blockquote>
+NEO不是，NEO是机战真正意义上的全军出动。
+
+NEO进母舰不降气力，敌人数量多且血多皮厚，EN根本不够用，大招打光EN进母舰补给同时换别人出来车轮战是常规战法。
+
