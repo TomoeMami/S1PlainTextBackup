@@ -782,3 +782,19 @@ boss打完的演出像素级复刻旺达与巨像啊，看乐了</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 直接把 ZP 干的上了七天粉丝评论还行
 
+
+*****
+
+####  缺德猫  
+##### 363#       发表于 2026-8-3 08:10
+
+也是个好事儿，这下不用吵宝可梦不行到底怪谁了
+
+
+*****
+
+####  落花微塵  
+##### 364#       发表于 2026-8-3 08:15
+
+做个这样的宝可梦就得了。<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

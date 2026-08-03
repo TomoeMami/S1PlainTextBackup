@@ -2946,3 +2946,14 @@ anime expo场刊里面表述茉里不是一个假小子，看到现在有人认�
 
 反而姐姐线谜语过多有点格格不入了，唯一一朵悬在佳作上面的乌云。
 
+
+*****
+
+####  zing223  
+##### 246#       发表于 2026-8-3 08:11
+
+怎么第五集就超展开了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这鱼剑原来是许愿机啊
+这集菈菈打工的刻画真的很好
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
