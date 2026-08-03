@@ -1903,3 +1903,14 @@ CEDEC26的情况来看，未来可能会在BNS内部大幅度推广使用，但�
 
 万南工作室以外的工作室目前没看出有使用这个引擎的可能性，包括BNFD也没有
 
+
+*****
+
+####  不灭的旋律  
+##### 190#       发表于 2026-8-4 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70006977&amp;ptid=2286736" target="_blank">nightraven 发表于 2026-8-3 17:52</a>
+
+我记得老的掌机机战有换人系统的，和足球一样换下的不能再上，增加了人物出场率和战略性，但后续好像没有再 ...</blockquote>
+你说的是W和J吧，后面Wii的NEO也有。
+
