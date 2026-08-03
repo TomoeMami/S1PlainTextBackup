@@ -6484,3 +6484,19 @@ image.png
 
 问一下，你们经常说的，给Agent一个目标，让它去挂着跑几个小时回来看一眼，是如何做到的？为什么我无论用Codex还是claude，大事小事都要让我确定？根本就做不到无人值守工作。
 
+
+*****
+
+####  phorcys02  
+##### 5020#       发表于 2026-8-4 02:29
+
+8T? 18T!
+
+<img src="https://img.stage1st.com/forum/202608/04/022923cppyzhihhhj666z4.png" referrerpolicy="no-referrer">
+
+<strong>d0bbd60d15f31e3221d95932152d387d.png</strong> (219.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 02:29 上传
+
