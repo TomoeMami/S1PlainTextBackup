@@ -5511,3 +5511,31 @@ Gemini太喜欢迎合用户了，我跟它辨军事领域，每几轮就我国�
 
 目前跑v4f哪家harness最好用？cc？codex？opencode？pi？
 
+
+*****
+
+####  →熙←  
+##### 4928#       发表于 2026-8-3 15:07
+
+现在应该是zcode, 专武出来前先用着
+
+ds毕竟开源,过几天opencode可能就会修复了
+
+
+*****
+
+####  Awanano  
+##### 4929#       发表于 2026-8-3 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70005183&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-3 12:45</a>
+
+阿里这种大公司怎么可能在k3发布两天内就作出下一代旗舰开源的决策，你说豆包开源了他被逼紧急开源那可能性 ...</blockquote>
+与此同时，mimo和F罗在哪发财呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 4930#       发表于 2026-8-3 15:16
+
+opencode越来越烂了，我怀疑是vibe产生矢山的典型结果，等Pro出来查一遍可能都比现在的好……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
