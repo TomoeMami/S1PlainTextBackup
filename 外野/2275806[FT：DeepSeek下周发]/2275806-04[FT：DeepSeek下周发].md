@@ -6177,3 +6177,11 @@ superpower对于聪明的模型还是太重量级了
 试了下oc的免费v4f已经几乎用不了了 更难受了</blockquote>
 opencode不用信用卡,支付宝也可以
 
+
+*****
+
+####  AzuEdit  
+##### 4992#       发表于 2026-8-3 21:01
+
+蓝色大肥鱼已急哭<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/34/86116f499a5221e75bebcd1a612fc9bb/image.jpg" referrerpolicy="no-referrer">
+

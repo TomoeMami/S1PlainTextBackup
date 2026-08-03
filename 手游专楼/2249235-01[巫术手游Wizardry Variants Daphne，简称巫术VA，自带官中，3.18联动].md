@@ -116,3 +116,11 @@
 
 冬贝利迫害挂机，现在全员变绿玩手刷5f<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  茄子自走炮  
+##### 864#       发表于 2026-8-3 21:01
+
+这活动派遣每个人都带两把以上铁锹，回来补一个不够，还得手动补要不然再派遣不够。
+
