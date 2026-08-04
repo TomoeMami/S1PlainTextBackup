@@ -1465,3 +1465,21 @@ M站74分（好像还在掉分），已经不如gf做的千兆破坏者（75分�
 
 说真的 gf 真想提升实力更好招人，不如去接点任天堂的外包，去顶尖项目打工历练，齿轮计划这十几年下来活脱脱就是在闭门造车了
 
+
+*****
+
+####  JOJOROY  
+##### 431#       发表于 2026-8-4 08:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70009019&amp;ptid=2253295" target="_blank">lbzlxx 发表于 2026-8-4 08:27</a>
+
+再次证明齿轮计划，再次证明gf</blockquote>
+大森滋：Pokopia也是齿轮计划
+
+*****
+
+####  Jabeck  
+##### 432#       发表于 2026-8-4 08:52
+
+为了小姐姐预购，CJ试玩其实还行，硬着头皮打吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
