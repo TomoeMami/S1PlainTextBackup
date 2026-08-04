@@ -6702,3 +6702,48 @@ deepseek的codex适配不好啊，不如pi，token还烧的快，比luna max都�
 刚才断了好几次<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 是在测试还是蹬的人太多了
 
+
+*****
+
+####  Promeus  
+##### 5041#       发表于 2026-8-4 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70009770&amp;ptid=2275806" target="_blank">AutoFisherMan 发表于 2026-8-4 10:19</a>
+是的 本来就不合适 不知道为什么那么多只管教你怎么接deepseek 的 “教程”视频 但是不合适就是不合适
+
+ ...</blockquote>
+因为更新文档说了有适配codex吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实只是适配了一个key
+
+*****
+
+####  Milarvoz  
+##### 5042#       发表于 2026-8-4 10:28
+
+大的要来了吗
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  木水风铃  
+##### 5043#       发表于 2026-8-4 10:28
+
+大的要来了大的要来了
+
+—— 来自 HUAWEI OCE-AN50, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  奈落的孤火花  
+##### 5044#       发表于 2026-8-4 10:34
+
+opencode go的地址国内还访问不了啊<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 5045#       发表于 2026-8-4 10:35
+
+目前还是一直断断续续的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我怀疑是蹬的人太多了
+
