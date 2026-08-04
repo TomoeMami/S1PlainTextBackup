@@ -8133,3 +8133,71 @@ reasonix主打的用deepseek这种非多模态的做主模型，为什么做不�
 
 ——来自 PJZ110 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  德尔惠净水器  
+##### 5177#       发表于 2026-8-4 18:56
+
+zcode 上用 DeepSeek  有啥优势吗
+
+*****
+
+####  nxmonitor  
+##### 5178#       发表于 2026-8-4 18:57
+
+<blockquote>半江瑟瑟半江红 发表于 2026-8-4 18:54
+我超 拓展性好不会是意味着没有桌面版吧能不能给非超能力者🤏活路
+
+—— 来自 HUAWEI SGU-AL10, Android  ...</blockquote>
+接上V4P现场让它做一个…
+
+*****
+
+####  nxmonitor  
+##### 5179#       发表于 2026-8-4 18:57
+
+<blockquote>德尔惠净水器 发表于 2026-8-4 18:56
+zcode 上用 DeepSeek  有啥优势吗</blockquote>
+其他的不怎么样，矮子里挑高个，还有就是用PI
+
+
+*****
+
+####  Promeus  
+##### 5180#       发表于 2026-8-4 19:03
+
+现在看就等正式版就好了<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王兰花秀丽  
+##### 5181#       发表于 2026-8-4 19:04
+
+这种内测应该只要不出现恶性bug就会很快端上来吧？明天能出吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  pf67  
+##### 5182#       发表于 2026-8-4 19:04
+
+ 本帖最后由 pf67 于 2026-8-4 19:05 编辑 
+
+在内网把ds v4 flash 换成正式版了，明显看到智商能力高了一大截，后训练蒸馏真牛逼，明天爽蹬
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  LeoDT  
+##### 5183#       发表于 2026-8-4 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70012782&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-4 18:54</a>
+
+我超 拓展性好不会是意味着没有桌面版吧能不能给非超能力者🤏活路
+
+—— 来自 HUAWEI SGU-AL10, Android  ...</blockquote>
+写代码harness是通用harness的基础，通用harness提供框架给写代码harness扩展，然后左脚踩右脚就能做出根据每个人的需求个性定制的万能harness了。
+
+之前在推上看到的一个人正在试验这种类似的概念，那条推下面收到了D老师的工作邀请。
+

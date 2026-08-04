@@ -2068,3 +2068,36 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 那人家还有1T是50星，补刀稳定性也比你强啊，大家都看不起蓝暴，但是仍一张出去十来万还是有的
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 21257#       发表于 2026-8-4 18:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/04/185606ud88kff418888gjn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (127.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 18:56 上传
+
+*****
+
+####  angelooo  
+##### 21258#       发表于 2026-8-4 19:01
+
+每年的狐狸笑话.jpg
+
+
+*****
+
+####  都谷捻柏  
+##### 21259#       发表于 2026-8-4 19:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按照我对日本人的了解，目前你游两个霸凌对象，一个是武藏，一个是玉藻前。
+
+什么你说青子？青子连被霸凌都不配。
+
