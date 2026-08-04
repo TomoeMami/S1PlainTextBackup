@@ -7239,3 +7239,81 @@ v4flash不就是MiniMax想象中的自己么<img src="https://static.stage1st.co
 DS也有内蒙古的那个啊，智谱真正的问题是技术能力不怎么够，这才是要命的 ...</blockquote>
 梁子毕竟还没建完，有的时候利用好这个时间点的一点优势就有机会自救<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 5096#       发表于 2026-8-4 12:56
+
+我认同梁子的判断，视频生成对于ai能力来说太边角了。
+不如说MiniMax突然去炒作这个开源视频模型就很怪的，你可以说这是换个路线也可以说本质就是退出竞争了。
+closedai都明白sora该砍就砍，我是觉得现在的主线还是文本模型的能力推进，多模态都只能算个feature而非最重要的维度。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  startraveller  
+##### 5097#       发表于 2026-8-4 12:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010683&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-4 12:39</a>
+5.3基本是包被pro斩杀的，直接忽略去看5.5了，参数不到1T以上很难竞争</blockquote>
+唐教授说是“史诗级plus”哦
+
+*****
+
+####  舞以  
+##### 5098#       发表于 2026-8-4 12:59
+
+看glm5.3换不换底模了，换的话估计有戏，不换的话很难，这v3精神传人底模还是老了点。
+ds在v4上的冒险目前看是值得的，底模的肥沃程度值得深耕。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  tillnight  
+##### 5099#       发表于 2026-8-4 12:59
+
+智谱的问题是底模训练感觉和其他家甚至不在一个级别上。V4Pro的1.6T虽然在今天不算大，但也是首批开源Sota级过T参数的，Minimax的下一代明确在9月左右发布，3T左右，和kimi差不多。而目前所知智谱的下一代模型底模可能将将过T，是否多模态也不确定，是几家里底模最保守的并且是进度最慢的。唯一的差异化可能方向是用相对较小的模型做编程特化占住程序员市场，但是现在这涨价的幅度明显也没有这个可能了，就是掏出一个Fable，卖现在的价，也没有什么价格竞争力，主打编程特化市场得token价格特别有优势才行。
+
+
+*****
+
+####  wandeeees  
+##### 5100#       发表于 2026-8-4 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010811&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-4 12:58</a>
+唐教授说是“史诗级plus”哦</blockquote>
+最好能超过v4 pro ga，不然他就算和前者性能差不多或者稍微超过一些，也是要被狠狠拷打的，毕竟价格一向都很高
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  绝地潜兵  
+##### 5101#       发表于 2026-8-4 13:03
+
+第三方部署基本上都换上flash正式版了
+
+*****
+
+####  tillnight  
+##### 5102#       发表于 2026-8-4 13:03
+
+视频生成对AGI没帮助，这任何人都认可，实际上梁那段录音里大多数就是common sense，都对，大家都认可。
+
+但是视频生成对商业公司很有意义，字节的火山上半年营收主力就是Seedance。梁从来没说过视频不赚钱，对他或者说DS的目标来说视频生成甚至图片生成都没有意义，但不代表AI应用推广中没意义。
+
+*****
+
+####  舞以  
+##### 5103#       发表于 2026-8-4 13:05
+
+1.6t我觉得真不算小了<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+k3和v4pro preview都是浪费规模的感觉，后训练跟上能力还能飞跃。
+事实上就算kimi搞了个k3，v4pro这个一个季度前发出来的“老东西”还是参数量第二大的开源模型。
+其他家还处在放卫星和炒作阶段呢，别到时候新模型大规模出来被v4pro的正式版一脚踢死就好
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
