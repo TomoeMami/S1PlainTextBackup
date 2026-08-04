@@ -3307,3 +3307,106 @@ https://www.nintendo.com/jp/games/switch2/aacsa/
 
 格纳库角色多又有培养时长限制，最后能带去跟魔神PK的大概也就十几人，而且还要考虑挖角角色的问题，对哦，想起来这个了，如果存在同时通四线的话，那挖角角色是基于什么队伍的设定也存在分歧点吧，感觉还是以某一条路线为主
 
+
+*****
+
+####  septer  
+##### 1822#       发表于 2026-8-5 00:28
+
+不是很懂它这个多线并行是怎么个并行法，在某一条线的关键剧情事件和状态会影响其他线的状态吗？能做到灵视异闻录那种状态推进吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  57042711  
+##### 1823#       发表于 2026-8-5 00:28
+
+能招募的角色有限那岂不是要考虑分队了，然后时间还有限，这次感觉还是有说法吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+梦回泪指传说双线并进…
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  nagitoY  
+##### 1824#       发表于 2026-8-5 00:29
+
+另外看到西提司了，怎么是黄毛？
+
+我记得龙族应该都是绿毛吧？
+
+现在有说万紫千红和风花雪月时间顺序关系吗？
+
+*****
+
+####  春风画雨  
+##### 1825#       发表于 2026-8-5 00:30
+
+然后如果四线同时推进的话，感觉重复战斗应该会少非常多吧，而且假设每个队挖的人不一样的话，也不会有挖同一个角色的重复操作了
+
+*****
+
+####  嘉术2015  
+##### 1826#       发表于 2026-8-5 00:30
+
+感觉是有存在五年后的独占队友的，主角一个人单刷完五年后关卡这也太屠夫了
+
+*****
+
+####  kalavinka  
+##### 1827#       发表于 2026-8-5 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014151&amp;ptid=2261859" target="_blank">qiyu1234 发表于 2026-8-5 00:16</a>
+官网主人公介绍视频里的包包头总该能用吧，不至于这种时候进不了队伍</blockquote>
+单人挑战感觉可能是egg dlc那样？等于是塞你几个队友限制等级职业，如果是带队友的话就是有练度的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  han110022  
+##### 1828#       发表于 2026-8-5 00:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014217&amp;ptid=2261859" target="_blank">nagitoY 发表于 2026-8-5 00:29</a>
+
+另外看到西提司了，怎么是黄毛？
+
+我记得龙族应该都是绿毛吧？
+
+现在有说万紫千红和风花雪月时间顺序关系吗？ ...</blockquote>
+无双里的设定，西提斯在解放王那时候就是黄毛然后随着时间衰退变绿
+
+所以之前PV里已经有这个人是西提斯的说法，只不过这次直面会才坐实了
+
+*****
+
+####  nagitoY  
+##### 1829#       发表于 2026-8-5 00:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014229&amp;ptid=2261859" target="_blank">han110022 发表于 2026-8-5 00:34</a>
+
+无双里的设定，西提斯在解放王那时候就是黄毛然后随着时间衰退变绿
+
+所以之前PV里已经有这个人是西提斯的 ...</blockquote>
+无双我就打了红线，没看到这个设定。
+
+可能是金鹿线里提到的？
+
+*****
+
+####  暗口崩子  
+##### 1830#       发表于 2026-8-5 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014217&amp;ptid=2261859" target="_blank">nagitoY 发表于 2026-8-5 00:29</a>
+
+另外看到西提司了，怎么是黄毛？
+
+我记得龙族应该都是绿毛吧？
+
+现在有说万紫千红和风花雪月时间顺序关系吗？ ...</blockquote>
+一直没明说，但是我看大部分人已经默认是前传了，大苏不管和三房哪个结局都接不上，黄毛西提司出来应该更不太可能是后传了
+
+不过要是前传时间点和三房也隔很远了，这会的黄毛西提司怎么看都是单身状态，那离封圣人还早，和三房得差了几百年了
+
+虽然也有藏的可能，不过还是倾向于前传来会回避三房哪个结局才是官方结局这个问题
+

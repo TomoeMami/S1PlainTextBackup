@@ -8694,3 +8694,13 @@ k3现在还能买coding plan 吗，大家都去蹬鲸鱼娘了，k3应该放开�
 
 grok fast免费版好慷慨，竟然给了比较完整的云端运行环境，我上传一个恶意apk给它分析，跑了两轮分别跑了几分钟，结果与chatgpt跑了不知道次“继续”“继续分析”的结果还好，而claude已经累昏过去了
 
+
+*****
+
+####  crow_wine  
+##### 5235#       发表于 2026-8-5 00:26
+
+flash 输出的 token 还是多了点，关键是会占用大量的时间，还是得等 pro
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
