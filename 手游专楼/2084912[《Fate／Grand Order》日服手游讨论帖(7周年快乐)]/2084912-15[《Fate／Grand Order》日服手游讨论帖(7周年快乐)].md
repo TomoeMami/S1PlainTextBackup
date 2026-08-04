@@ -2101,3 +2101,11 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 什么你说青子？青子连被霸凌都不配。
 
+
+*****
+
+####  qixinno1  
+##### 21260#       发表于 2026-8-4 19:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">青子可是坐拥出星 缓充 三色魔放 对肃正防御 自身100充 50群充减2CD 还有高贵的白魔放和AOE红卡跟EX卡 宝具甚至万物特攻自带无敌贯通无视防御的超级数值怪
+
