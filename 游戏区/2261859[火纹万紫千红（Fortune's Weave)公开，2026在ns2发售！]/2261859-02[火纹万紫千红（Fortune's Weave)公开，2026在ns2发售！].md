@@ -3456,3 +3456,36 @@ https://www.nintendo.com/jp/games/switch2/aacsa/
 
 但是这么一看，游戏时间线就很微妙了啊，复苏大地后她一直在睡觉，睡了几千年直到三房千年前肉身被灭的时候依然是没有一丁点自保能力的，之前状态应该更差，所以她上次还能自主行动应该是地底人焦土化世界之前，那是多久，接近一万年了？西提斯那个造型应该不太可能是未来吧，但是他有活那么久吗？而且那个时间女神都能回退五年了，当时真有必要用那种极端方法复苏大地吗
 
+
+*****
+
+####  蓮華  
+##### 1835#       发表于 2026-8-5 00:55
+
+咋那么像觉醒呢，自捏不就是露琪娜<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+还有个很像手感姐的男的，就叫手感哥吧
+这立绘真的只有头发长短不一样吧
+
+
+*****
+
+####  蓮華  
+##### 1835#       发表于 2026-8-5 00:55
+
+ 本帖最后由 蓮華 于 2026-8-5 01:01 编辑 
+
+咋那么像觉醒呢，自捏不就是露琪娜<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+还有个很像手感姐的男的，就叫手感哥吧
+
+这立绘真的只有头发长短不一样吧
+
+<img src="https://img.stage1st.com/forum/202608/05/010151j4rnrld39uu2rdyd.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4263.jpeg</strong> (206.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-5 01:01 上传
+
