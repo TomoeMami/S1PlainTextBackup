@@ -1746,3 +1746,11 @@ QP真是永远痛
 
 就这几天
 
+
+*****
+
+####  khxooo  
+##### 48041#       发表于 2026-8-4 11:47
+
+看到有一井，手痒抽第二宝果子龙，600多才出，只剩300多给提妈了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

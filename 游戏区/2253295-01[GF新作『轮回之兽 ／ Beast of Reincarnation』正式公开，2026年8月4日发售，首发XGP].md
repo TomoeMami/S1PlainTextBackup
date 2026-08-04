@@ -1730,3 +1730,29 @@ MC
 
 跟地雷社日本一和 furyu 比，好歹有点现代卖相不是
 
+
+*****
+
+####  ascomnet  
+##### 458#       发表于 2026-8-4 11:48
+
+地雷社和 furyu 还卖卖百合吸引我，还是愿意买单的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纱布光环  
+##### 459#       发表于 2026-8-4 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70009966&amp;ptid=2253295" target="_blank">千秋难诉 发表于 2026-8-4 10:49</a>
+
+隔壁马克思神选38佬今天趁着GF大作发售，连续端出阿凡达和红沙，轮回之兽本就惨淡的前景再遭重创 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">啥啊，红沙和阿凡达不是早就发售了吗，和这游戏有啥关系？
+
+*****
+
+####  u2deack  
+##### 460#       发表于 2026-8-4 11:53
+
+怎么这游戏又有配音了，怎么就不怕剥夺玩家想象权给角色既定印象了？难道是任天堂或者tpc让你不能给宝可梦游戏加配置么，还是说不用做八国配音就工期来得及了？
+

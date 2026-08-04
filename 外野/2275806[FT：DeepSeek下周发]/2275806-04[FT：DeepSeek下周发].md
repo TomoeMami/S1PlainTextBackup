@@ -6957,3 +6957,40 @@ flash被蹬爆了？
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  GJRstone  
+##### 5068#       发表于 2026-8-4 11:47
+
+十一点半了该吃饭了就好了，这tm是且只可能是纯粹的蹬爆了啊
+
+不许你们蹬小鲸鱼<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nxmonitor  
+##### 5069#       发表于 2026-8-4 11:53
+
+我还是前面几十页的观点，国内的算力不应该这么分散…
+
+*****
+
+####  qz66618  
+##### 5070#       发表于 2026-8-4 11:54
+
+没办法，梁子自己也说了留3-5个AI公司就够了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  2017.05.04  
+##### 5071#       发表于 2026-8-4 11:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010429&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-4 11:53</a>
+
+我还是前面几十页的观点，国内的算力不应该这么分散…</blockquote>
+会有国家算网的，但还得过几年，起码半导体产能爬坡过去再说
+
