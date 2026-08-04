@@ -1999,3 +1999,11 @@ GF证明了自己他真的不行
 
 GF音乐最豪华的一次<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高贵的  
+##### 485#       发表于 2026-8-4 16:33
+
+我是觉得对一个首发XGP的游戏有啥可期待的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

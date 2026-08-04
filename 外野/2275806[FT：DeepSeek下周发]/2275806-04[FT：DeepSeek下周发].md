@@ -7990,3 +7990,32 @@ V4F现在是真喜欢感叹号，感觉鲸鱼娘一直在激情澎湃的干活�
 V4F现在是真喜欢感叹号，感觉鲸鱼娘一直在激情澎湃的干活呢</blockquote>
 好像是蒸馏pro的结果
 
+
+*****
+
+####  奈落的孤火花  
+##### 5162#       发表于 2026-8-4 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011799&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-4 16:18</a>
+
+V4F现在是真喜欢感叹号，感觉鲸鱼娘一直在激情澎湃的干活呢</blockquote>
+kimi也有很多感叹号
+
+*****
+
+####  neptunehs  
+##### 5163#       发表于 2026-8-4 16:34
+
+之前帖子里不是有人说感叹号多证明到达智力边界在哈气吗
+昨天v4f流口水的时候触发了一个死循环
+然后我眼看着他感叹号越来越多
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  nxmonitor  
+##### 5164#       发表于 2026-8-4 16:35
+
+这语料确实有点类似啊，qwen也有i’m doing思维链，只不过质量差不多，没有灰测pro那般神奇
+
