@@ -8429,3 +8429,34 @@ opencode go 和 deepseek 官方的 flash 首 token 延迟非常大，我还以�
 
 我觉得DS里infra组是最苦逼的了，别人都下班了就他们还在修服务，好吧运维都是这样的……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 5207#       发表于 2026-8-4 20:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70013173&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-4 20:29</a>
+
+现在这明显是被蹬坏的样子 确实有可能会提前搬pro救场？毕竟pro据说token效率更高？
+
+—— 来自 OnePlus PJ ...</blockquote>
+完成同一个任务，先不管最后结果怎么样，灰测版消耗的token数量比预览版少很多，按照比例计算谷峰涨价都是持平的价格……
+
+
+*****
+
+####  xmmc1800  
+##### 5208#       发表于 2026-8-4 20:44
+
+同样的v4f模型，在codex里改一个bug反复迭代了好几轮都在瞎改，换成claude code直接一把解决。也不知道是因为agent能力差异还是新开对话干扰少，或者就是单纯的roll到了水平波动？总之对ds自己的harness更期待了
+
+*****
+
+####  drodchang  
+##### 5209#       发表于 2026-8-4 20:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70013223&amp;ptid=2275806" target="_blank">xmmc1800 发表于 2026-8-4 20:44</a>
+
+同样的v4f模型，在codex里改一个bug反复迭代了好几轮都在瞎改，换成claude code直接一把解决。也不知道是因 ...</blockquote>
+是deepseek没有对codex优化，很正常，openai的接口是新加的
+
