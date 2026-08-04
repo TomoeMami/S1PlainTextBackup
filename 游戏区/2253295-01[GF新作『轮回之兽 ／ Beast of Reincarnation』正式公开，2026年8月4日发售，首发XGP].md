@@ -2325,3 +2325,14 @@ UE5的出品要轮落到跟暗荣祖传引擎比画面了？
 
 就这全员面瘫对话、突兀的剧情转场和谜之战斗视角，还是云一下得了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  M乔梦  
+##### 512#       发表于 2026-8-4 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70013195&amp;ptid=2253295" target="_blank">nagitoY 发表于 2026-8-4 20:36</a>
+
+这游戏商单是真多。b站关注的两个主要做仁王相关的小up都接了商单，这游戏又不是光荣的怎么找上这么小的up ...</blockquote>
+ag说没商单，基本上就是邀请他们去线下提早体验，然后做视频<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

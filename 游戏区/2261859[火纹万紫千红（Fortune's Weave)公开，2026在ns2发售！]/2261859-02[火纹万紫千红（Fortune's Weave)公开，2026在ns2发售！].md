@@ -2985,3 +2985,38 @@ https://www.nintendo.com/jp/games/switch2/aacsa/
 我发现了，抛开 engage 不谈，这作缺少三房里的天才魔法少女、龙女儿、家里蹲这样的萝莉，阿布，少女角色啊 ...</blockquote>
 你说的这几个类型为什么会来参加大剑斗祭这种活动...
 
+
+*****
+
+####  kalavinka  
+##### 1788#       发表于 2026-8-4 23:38
+
+官网有图自带成长率了 好文明啊
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qiyu1234  
+##### 1789#       发表于 2026-8-4 23:41
+
+有点好奇5年后存活的角色有没有本来就是5年前的队员（主人公登场时救援的包包头妹子可能就是），按理讲不至于5年前的角色全灭
+
+
+*****
+
+####  kalavinka  
+##### 1790#       发表于 2026-8-4 23:43
+
+大地图玩法4级长还不一样
+
+<img src="https://img.stage1st.com/forum/202608/04/234307og7y9yavsv9kgaww.png" referrerpolicy="no-referrer">
+
+<strong>img_2410.png</strong> (127.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 23:43 上传
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
