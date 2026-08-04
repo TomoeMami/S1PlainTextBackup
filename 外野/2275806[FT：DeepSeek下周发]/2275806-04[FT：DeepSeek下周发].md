@@ -6557,3 +6557,13 @@ cc；bypass
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  neptunehs  
+##### 5026#       发表于 2026-8-4 08:44
+
+新旧版ds的大小跟底子是一样的吧 不会有厂商用旧不用新吧
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
