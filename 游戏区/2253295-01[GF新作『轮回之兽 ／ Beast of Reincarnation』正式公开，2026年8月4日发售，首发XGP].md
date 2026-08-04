@@ -2212,3 +2212,16 @@ UE5的出品要轮落到跟暗荣祖传引擎比画面了？
 
 —— 来自 OPPO PLA110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  无限未来  
+##### 501#       发表于 2026-8-4 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70012523&amp;ptid=2253295" target="_blank">哎哟卧槽了 发表于 2026-8-4 17:58</a>
+
+UE5的出品要轮落到跟暗荣祖传引擎比画面了？
+
+—— 来自 OPPO PLA110, Android 16, 鹅球 v3.5.99 ...</blockquote>
+毕竟这是gf，还是领着一堆看履历基本都是做手游的小公司一起搞的，真要搞个正经ue5画面估计优化要爆炸了
+

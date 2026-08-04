@@ -2078,3 +2078,28 @@ y这种长按跳过纯shit
 
 —— 来自 vivo V2454A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  アヘ顔  
+##### 205#       发表于 2026-8-4 18:07
+
+ 本帖最后由 アヘ顔 于 2026-8-4 18:08 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011992&amp;ptid=2286736" target="_blank">lbzlxx 发表于 2026-8-4 16:44</a>
+
+月之民说明了机战本家制作组是有能力做出优秀而且风格统一的战斗动画的，拜亚兰大师是真大师 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说起来现在机器人动画式微，机战文化也陷入低潮
+
+以后的机战游戏的战斗动画制作会不会陷入人才断层......
+
+想起几年前那个同人制作的闪光高达战斗动画就比当期的机战效果好不少...
+
+*****
+
+####  ティグル  
+##### 206#       发表于 2026-8-4 18:11
+
+MD的素材复用也很严重
+
+关键还是投入产出比太难看，不赚钱的项目代便砍起来是毫不留情的
+

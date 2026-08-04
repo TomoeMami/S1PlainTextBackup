@@ -8054,3 +8054,11 @@ kimi也有很多感叹号
 推理瓶颈是算力还差不多，但是模型能力本身还是要 ...</blockquote>
 也不一定吧，不然现在模型最强的应该是藤子<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GJRstone  
+##### 5169#       发表于 2026-8-4 18:12
+
+上午蹬掉了一个客户端软件VMPROTECT和加密狗<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">虽然蹬掉的狗是2010年左右的，以后想再通过加密狗卖软件真得打个问号吧
+
