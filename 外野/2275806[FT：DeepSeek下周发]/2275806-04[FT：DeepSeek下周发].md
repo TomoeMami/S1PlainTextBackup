@@ -8704,3 +8704,11 @@ flash 输出的 token 还是多了点，关键是会占用大量的时间，还�
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  奈落的孤火花  
+##### 5236#       发表于 2026-8-5 07:46
+
+有没有啥免费的 Web Search 的工具，求推荐，搜了一圈，都是付费的，有免费额度
+

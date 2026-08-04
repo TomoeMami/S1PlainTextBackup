@@ -3712,3 +3712,15 @@ IMG_0970.jpeg
 
 支持鼠标。
 
+
+*****
+
+####  The_Fool_  
+##### 1850#       发表于 2026-8-5 07:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014438&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-8-5 02:06</a>
+终于跟上时代了，成长率公开化，再也不用动不动一边玩游戏一边查资料了 ...</blockquote>
+这真是好事，接下来的关键就是能否直接看到职业成长率了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
