@@ -8509,3 +8509,69 @@ v4f就被蹬成这样了，V4P GA出来了那还得了<img src="https://static.s
 
 晚上都是洋鬼子在蹬吧，鲸鱼娘无惨
 
+
+*****
+
+####  奈落的孤火花  
+##### 5215#       发表于 2026-8-4 21:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">用了一天 晚上不行了，梁圣以后把峰谷定价时间换一下吧，这明明老外用得多
+
+*****
+
+####  真红之闪电  
+##### 5216#       发表于 2026-8-4 21:58
+
+不是说Claude code埋毒吗？现在还能用？上次新闻出来以后我就没用过了……
+
+*****
+
+####  飞侠小黑  
+##### 5217#       发表于 2026-8-4 21:59
+
+c端被open code 蹬坏了吧，据说单日就是8万亿token
+
+—— 来自 HUAWEI VDE-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  飞侠小黑  
+##### 5218#       发表于 2026-8-4 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70013463&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-8-4 21:57</a>
+用了一天 晚上不行了，梁圣以后把峰谷定价时间换一下吧，这明明老外用得多 ...</blockquote>
+国内轻度用户用豆包的多
+
+—— 来自 HUAWEI VDE-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  王兰花秀丽  
+##### 5219#       发表于 2026-8-4 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70013476&amp;ptid=2275806" target="_blank">飞侠小黑 发表于 2026-8-4 21:59</a>
+c端被open code 蹬坏了吧，据说单日就是8万亿token
+
+—— 来自 HUAWEI VDE-AL00, Android 16, 鹅球 v3.5.99 ...</blockquote>
+那是周六，这周一有18万亿    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  M乔梦  
+##### 5220#       发表于 2026-8-4 22:05
+
+可以看的，昨天一天蹬了4.9T
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYhq1qcfGKqz-mSFOHEBVR8RZFq8fvSgACGigAAniTkFd1NXNvg651fz0E.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飞侠小黑  
+##### 5221#       发表于 2026-8-4 22:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70013497&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-4 22:02</a>
+那是周六，这周一有18万亿    Re:Source</blockquote>
+梁总的服务器能坚持住吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> DS刚出的时候都没法用
+
+—— 来自 HUAWEI VDE-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
