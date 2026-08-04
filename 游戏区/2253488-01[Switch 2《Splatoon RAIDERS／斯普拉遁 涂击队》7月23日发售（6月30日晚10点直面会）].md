@@ -7199,3 +7199,37 @@ COST 6就是+12%。
 
 没啥兴趣继续玩了
 
+
+*****
+
+####  doraemonmilmil  
+##### 860#       发表于 2026-8-4 23:54
+
+先这样吧，鲑鱼和武器图鉴不强求，全关卡难度打完和宝藏也收全，小游戏也a了，暂时封盘，之后就是打个日常救援，和看看身边还有没有人联机了
+
+<img src="https://img.stage1st.com/forum/202608/04/235157oddx0xvdhb5z55kx.jpg" referrerpolicy="no-referrer">
+
+<strong>20260804234811-01KZ6Q9ETTTEVTVB6P72J325EE.jpg</strong> (851.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 23:51 上传
+
+<img src="https://img.stage1st.com/forum/202608/04/235159gn24ctnh9ku2e9ht.jpg" referrerpolicy="no-referrer">
+
+<strong>20260804234814-01KZ6Q9M4MNB52RWFK8BWRFZ96.jpg</strong> (519.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 23:51 上传
+
+<img src="https://img.stage1st.com/forum/202608/04/235200nrhllxq59plpwoel.jpg" referrerpolicy="no-referrer">
+
+<strong>20260804234829-01KZ6QANF6A2A519XAXDMN76BN.jpg</strong> (1011 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 23:52 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
