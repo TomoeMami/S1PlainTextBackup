@@ -2099,3 +2099,27 @@ pokopia也是武士刀引擎
 
 4分 不能再多了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无限未来  
+##### 492#       发表于 2026-8-4 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70012172&amp;ptid=2253295" target="_blank">病態極端 发表于 2026-8-4 17:09</a>
+無言投下
+
+發完才想起來，上面輪迴之獸甚至是最高畫質。虛幻5真是糊得離譜。
+
+仁王3都沒開最高。</blockquote>
+除了上面的看起来比较糊外怎么看都是上面的观感更好些吧？而且轮回之兽自带的dlss版本还是dlss3本来就糊，调低后处理之类的特效换成新的dlss模型后清晰度会好很多
+
+*****
+
+####  病態極端  
+##### 493#       发表于 2026-8-4 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70012332&amp;ptid=2253295" target="_blank">无限未来 发表于 2026-8-4 17:30</a>
+
+除了上面的看起来比较糊外怎么看都是上面的观感更好些吧？而且轮回之兽自带的dlss版本还是dlss3本来就糊 ...</blockquote>
+沒開超分。
+

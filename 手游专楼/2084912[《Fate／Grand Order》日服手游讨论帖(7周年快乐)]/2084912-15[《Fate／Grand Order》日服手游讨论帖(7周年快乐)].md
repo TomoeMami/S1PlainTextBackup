@@ -1990,3 +1990,13 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 莫扎特完爆
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 21250#       发表于 2026-8-4 17:31
+
+莫扎特真是货真价实的神之宠儿啊，全体44蓝卡up（算上二技能还有单面20蓝up）、20群充、50出星，作为蓝拐已经是第一梯队了。
+
+相比之下小玉也就赢一手羁绊多户口了（术阶、兽科、中立、星/恶）。
+
