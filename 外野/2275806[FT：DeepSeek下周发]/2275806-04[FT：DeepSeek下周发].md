@@ -6567,3 +6567,22 @@ cc；bypass
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nxmonitor  
+##### 5027#       发表于 2026-8-4 08:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008770&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-8-4 02:29</a>
+
+8T? 18T!</blockquote>
+现在明显有两个高峰期，一个在下午，一个在晚上，服务还没崩真的厉害
+
+
+*****
+
+####  serj005  
+##### 5028#       发表于 2026-8-4 09:03
+
+昨天刚提到没有开源agent调ds的api网页搜索服务，今天reasonix更新日志就把Anthropic API的搜索功能给加上了，应该可以在reasonix里面用ds的服务端web搜索了。
+
