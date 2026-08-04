@@ -1450,3 +1450,12 @@ ns1版在switch2上体验如何啊
 这细节，这才是水湿的正常光反射效果，穿的衣服又不是雨衣…面料没那 ...</blockquote>
 Pc版那么大吗
 
+
+*****
+
+####  新HGCG  
+##### 123#         楼主| 发表于 2026-8-4 11:26
+
+啊哦！
+<img src="https://p.sda1.dev/34/290de90e0fa940c02a70ccf7dd9dd579/image.png" referrerpolicy="no-referrer">
+

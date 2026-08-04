@@ -1457,3 +1457,19 @@ myriad colors / countless colors
 
 又要按头说丑了
 
+
+*****
+
+####  nancygreenlife  
+##### 1611#       发表于 2026-8-4 11:27
+
+女角色不丑，男角色咋样也无所谓，反正自捏男看起来还行
+
+
+*****
+
+####  蓝雉  
+##### 1612#       发表于 2026-8-4 11:33
+
+除了那几个明摆着粗犷路线的大汉，目前角色里我觉得称得上丑的没几个吧<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

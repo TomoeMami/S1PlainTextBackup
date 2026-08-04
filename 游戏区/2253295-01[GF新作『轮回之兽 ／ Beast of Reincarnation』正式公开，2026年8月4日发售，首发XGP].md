@@ -1714,3 +1714,11 @@ MC
 
 不过好消息是宝批可以放心GF忠心还是宝可梦。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SyjmchZ  
+##### 456#       发表于 2026-8-4 11:33
+
+这种线下游玩加商单up的宣传模式还要持续多久？
+

@@ -6891,3 +6891,21 @@ opencode 和官方一直在同时蹬
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010034&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-4 10:59</a></blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">自己打开浏览器玩了起来
 
+
+*****
+
+####  nxmonitor  
+##### 5060#       发表于 2026-8-4 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010206&amp;ptid=2275806" target="_blank">dalarmar 发表于 2026-8-4 11:23</a>
+
+自己打开浏览器玩了起来</blockquote>
+昨天看到有号称让v4f做翻译，然后自己下载了一个Qwen小模型把工作外包了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 5061#       发表于 2026-8-4 11:32
+
+修好了应该<img src="https://static.stage1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
