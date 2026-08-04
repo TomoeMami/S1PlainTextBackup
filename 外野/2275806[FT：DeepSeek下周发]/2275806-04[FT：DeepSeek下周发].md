@@ -6621,3 +6621,33 @@ opencode go的性能好像不如DS官方的，如果用量不大的话还是用�
 
 Service is too busy. We advise users to temporarily switch to alternative LLM API service providers. (Model Provider Error Code: service_unavailable_error, HTTP Status: 503)
 
+
+*****
+
+####  不让用大写  
+##### 5032#       发表于 2026-8-4 10:11
+
+今天用workbuddy开始频繁报错了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+自定义模型 DeepSeek-V4 Flash:deepseek-v4-flash 错误，请切换模型或重试。503
+
+*****
+
+####  nxmonitor  
+##### 5033#       发表于 2026-8-4 10:13
+
+就是刚才服务崩了…
+
+*****
+
+####  villsian  
+##### 5034#       发表于 2026-8-4 10:13
+
+<img src="https://img.stage1st.com/forum/202608/04/101320kuujut7vbqxncb7t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (71.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 10:13 上传
+

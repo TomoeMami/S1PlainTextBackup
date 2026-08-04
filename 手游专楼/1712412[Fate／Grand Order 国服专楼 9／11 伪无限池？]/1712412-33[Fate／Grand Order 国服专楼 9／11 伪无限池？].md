@@ -1703,3 +1703,17 @@ QP真是永远痛
 
 所长是最快10绊120级的了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">29号到迦，2号晚上10绊，3号晚上120级达成
 
+
+*****
+
+####  失落之翼  
+##### 48038#       发表于 2026-8-4 10:09
+
+大约800石所长3宝不抽了<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+为了抽水小艾丢了3发十连给小王子池，结果出了小王子和米缸，这次终于出了，为了抽水小矮外星人5星基本抽齐了<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+趁热打铁丢2发十连给奶龙池，水妖崔+2但没啥用啊<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+不行得留点石头给水提妈<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

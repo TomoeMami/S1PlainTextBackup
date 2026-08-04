@@ -1374,3 +1374,11 @@ myriad colors / countless colors
 
 看来日版确实是想体现万紫千红的汉字本意。而港任的译名是采纳了美版的含义，又在万和千的词语形式上做了对应日版的处理
 
+
+*****
+
+####  蓮華  
+##### 1601#       发表于 2026-8-4 10:09
+
+新pv女王实力强劲啊，一打二小红小绿，用手拍飞小绿武器+人<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
