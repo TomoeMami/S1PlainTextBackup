@@ -2135,3 +2135,11 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这两个对象符合火之意志吗
 
+
+*****
+
+####  格林卡罗尔  
+##### 21263#       发表于 2026-8-5 01:09
+
+其实小玉只是强化被fer卡住了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计早就填好怎么强化了
+
