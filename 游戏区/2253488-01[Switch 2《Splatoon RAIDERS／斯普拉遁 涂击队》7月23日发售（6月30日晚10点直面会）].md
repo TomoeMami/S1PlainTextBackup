@@ -7081,3 +7081,14 @@ https://gamewith.jp/splatoon-raiders/569753
 那么厉害，76还是72级那个金勺子小鲑鱼卡了我挺久…</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">试了下，直接过了啊，不难呀。。。
 
+
+*****
+
+####  mai6696  
+##### 849#       发表于 2026-8-4 08:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008440&amp;ptid=2253488" target="_blank">otakun 发表于 2026-8-3 23:21</a>
+
+那么厉害，76还是72级那个金勺子小鲑鱼卡了我挺久…</blockquote>
+那东西不就是个DPS check吗？
+
