@@ -7067,3 +7067,32 @@ deepseek跟我说不行</blockquote>
 
 根据传闻，昇腾卡的份额是分配的，只能说部分人还在迷信大厂的能力，实际上AI厂商有创新的就字节阿里DS和kimi，正好两大两小
 
+
+*****
+
+####  蜇灵  
+##### 5079#       发表于 2026-8-4 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010450&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-4 11:57</a>
+其实之前有传闻ds和kimi合并来着</blockquote>
+那智谱还咋玩<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 5080#       发表于 2026-8-4 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010494&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-4 12:04</a>
+根据传闻，昇腾卡的份额是分配的，只能说部分人还在迷信大厂的能力，实际上AI厂商有创新的就字节阿里DS和ki ...</blockquote>
+其实是字节阿里动手早，早早包了产能<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tillnight  
+##### 5081#       发表于 2026-8-4 12:09
+
+被逗笑了，不分配就是都被字节包圆了。
+
+什么，你说我不是不分配，是说分配要给天才厂们。不好意思，要大手分配就是只能按蛋糕来切，不然大手也摆不平利益分配，这里没有过错方，谁也没道理被按头。不分配就是大厂全吃。
+
