@@ -8084,3 +8084,23 @@ kimi也有很多感叹号
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  舞以  
+##### 5172#       发表于 2026-8-4 18:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人人都是独立开发者的好时代来了
+
+
+*****
+
+####  sellboy  
+##### 5173#       发表于 2026-8-4 18:42
+
+ 本帖最后由 sellboy 于 2026-8-4 18:43 编辑 
+
+现在数据最好的是openrouter、opencode这种吧
+
+提供多个平台的路由服务
+
