@@ -3509,3 +3509,15 @@ https://www.nintendo.com/jp/games/switch2/aacsa/
 
 这代感觉往太阁立志传发展了
 
+
+*****
+
+####  lancelotezio  
+##### 1838#       发表于 2026-8-5 01:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014136&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-8-5 00:14</a>
+又看了遍中文直面会
+
+“他被赋予了两个选项，一是以自己的力量对抗魔神的军队”</blockquote>
+没错就是一个人，和旷野之息有，你不打神兽那直接捅穿难度大而已
+
