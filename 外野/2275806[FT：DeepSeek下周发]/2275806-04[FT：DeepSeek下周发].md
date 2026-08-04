@@ -8201,3 +8201,26 @@ zcode 上用 DeepSeek  有啥优势吗</blockquote>
 
 之前在推上看到的一个人正在试验这种类似的概念，那条推下面收到了D老师的工作邀请。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5184#       发表于 2026-8-4 19:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70012793&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-8-4 18:56</a>
+
+zcode 上用 DeepSeek  有啥优势吗</blockquote>
+没有……zcode是我用过驾驭软件里最菜的
+
+但是它特别方便手机端控制，不需要搞内网穿透，所以我最近一直在用
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5185#       发表于 2026-8-4 19:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70012796&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-4 18:57</a>
+
+接上V4P现场让它做一个…</blockquote>
+没多模态做这种UI还是太难了
+
