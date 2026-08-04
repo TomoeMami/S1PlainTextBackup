@@ -7688,3 +7688,14 @@ codex上用上dsv4f，是不是就是多模态了？我刚试了下，可以识�
 
 一等公民可还行，我文档里可是正儿八经的论文写作没有这种字眼的<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 5138#       发表于 2026-8-4 14:48
+
+一等公民感觉是ai最喜欢用的术语之一<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+我问gpt如何看待ds引入response适配，他说不能说明ds将response视为“一等公民”
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -169,3 +169,13 @@
 
 天呐这选角是在搞什么<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  龙爪  
+##### 75#       发表于 2026-8-4 14:49
+
+灾难性的选角<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2309A, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
