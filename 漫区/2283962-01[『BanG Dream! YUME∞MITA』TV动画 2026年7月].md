@@ -394,3 +394,19 @@ yuno倒是五个人里比较像Vtb的，相对而言吧，不知道后面会不�
 就喜欢这种有行动力的坏人</blockquote>
 一般ntr文里主角做苦主的黄毛、宫斗剧里的女反派、天使与龙里的恩布利欧或少革的风晓声里“偶尔正经”或蛊惑人心，薇奥拉灵活切换好几个身份<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雷攻姛人  
+##### 173#       发表于 2026-8-5 06:03
+
+[@GGnn0529](https://x.com/GGnn0529/status/2084686348758470808)
+
+<img src="https://img.stage1st.com/forum/202608/05/060338nh1jpyjji7h00o03.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1785881017807_1.webp</strong> (76.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 06:03 上传
+
