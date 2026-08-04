@@ -1782,3 +1782,45 @@ MC
 
 2026-8-4 12:11 上传
 
+
+*****
+
+####  yyf1940  
+##### 462#       发表于 2026-8-4 12:44
+
+所以zp那视频也恰饭的厉害了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKB110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
+*****
+
+####  灰色的狐狸  
+##### 463#       发表于 2026-8-4 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010421&amp;ptid=2253295" target="_blank">纱布光环 发表于 2026-8-3 21:52</a>
+啥啊，红沙和阿凡达不是早就发售了吗，和这游戏有啥关系？</blockquote>
+破解了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  ubiquity  
+##### 464#       发表于 2026-8-4 12:48
+
+<blockquote>空洞骑士 发表于 2026-8-4 12:13
+你说到这个我去看了一眼，gf在轮回之兽做的语言种类和宝可梦完全一致。（宝可梦风波预定加入巴西葡萄牙语 ...</blockquote>
+如果只有两种配音反而不会有什么节奏的，而且是 ns2 独占。任天堂第一方都有很多要么全配音了，要么就日英配音，也没掀起什么节奏
+
+
+*****
+
+####  zqqwe  
+##### 465#       发表于 2026-8-4 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010723&amp;ptid=2253295" target="_blank">yyf1940 发表于 2026-8-4 12:44</a>
+所以zp那视频也恰饭的厉害了吧
+
+—— 来自 OPPO PKB110, Android 16, 鹅球 v4.0.100-alpha ...</blockquote>
+那个视频文案恰饭但人家演示里把镜头问题直观甩出来了，我就是看完之后彻底死心的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

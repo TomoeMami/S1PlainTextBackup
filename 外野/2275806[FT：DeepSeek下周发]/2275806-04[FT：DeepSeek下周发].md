@@ -7190,3 +7190,52 @@ https://pi.dev/packages/pi-deepseek-search
 
 —— 来自 Google Pixel 7 Pro, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  tillnight  
+##### 5091#       发表于 2026-8-4 12:47
+
+ 本帖最后由 tillnight 于 2026-8-4 12:49 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">上个月的时候明明主流意见还是Minimax要第一个被缩圈了。、
+
+另外Minimax也是自建数据中心的。这个不会成为护城河，之前不搞是搞不了，950之前实际上没有真正堪用的国产算力卡。以后都会搞的，包括Kimi，上市募资的钱只能是拿来投数据中心。
+
+*****
+
+####  舞以  
+##### 5092#       发表于 2026-8-4 12:48
+
+v4flash不就是MiniMax想象中的自己么<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+目前不是已经被斩杀了么，论多模态有更廉价的选择，论能力被flash-0731正面创飞。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  舞以  
+##### 5093#       发表于 2026-8-4 12:51
+
+至于kimi，我不认为他们在竞争。
+智谱确实面临的问题确实比较严重，事实证明玩后训练梁圣也不虚的，谁家没有后训练仙人呢<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  tillnight  
+##### 5094#       发表于 2026-8-4 12:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">但人现在做上开源视频一哥了。开源不赚钱目前看来是伪命题，能把名气吵起来对卖本家的api服务还是很有积极意义的。
+
+*****
+
+####  Promeus  
+##### 5095#       发表于 2026-8-4 12:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010720&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-4 12:44</a>
+DS也有内蒙古的那个啊，智谱真正的问题是技术能力不怎么够，这才是要命的 ...</blockquote>
+梁子毕竟还没建完，有的时候利用好这个时间点的一点优势就有机会自救<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
