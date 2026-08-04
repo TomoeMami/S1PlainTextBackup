@@ -1853,3 +1853,21 @@ MC
 这种线下游玩加商单up的宣传模式还要持续多久？</blockquote>
 卧龙这游戏都能靠这招大卖，也别怪别的游戏学。
 
+
+*****
+
+####  病態極端  
+##### 469#       发表于 2026-8-4 13:54
+
+爲什麼不多花點錢做Boss呢？比起一個BOSS打5次，不如流程時長砍一半。
+
+*****
+
+####  病態極端  
+##### 470#       发表于 2026-8-4 13:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010998&amp;ptid=2253295" target="_blank">大喇叭花田 发表于 2026-8-4 13:36</a>
+
+卧龙这游戏都能靠这招大卖，也别怪别的游戏学。</blockquote>
+尬黑都不會。臥龍有線上Demo。
+

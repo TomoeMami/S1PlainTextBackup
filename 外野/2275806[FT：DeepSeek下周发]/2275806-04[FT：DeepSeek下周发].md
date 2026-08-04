@@ -7483,3 +7483,50 @@ Nope。
 
 [https://kexue.fm/archives/11848](https://kexue.fm/archives/11848)  简单谈谈K3的MoE和Attention By 苏剑林 
 
+
+*****
+
+####  关二爷  
+##### 5120#       发表于 2026-8-4 13:44
+
+前两年六小虎另外三家快死了吗？
+某家上海养着啥都没有整天放暴论烦死人
+
+
+*****
+
+####  当光停止  
+##### 5121#       发表于 2026-8-4 13:45
+
+ 本帖最后由 当光停止 于 2026-8-4 13:48 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011022&amp;ptid=2275806" target="_blank">关二爷 发表于 2026-8-4 13:44</a>
+
+前两年六小虎另外三家快死了吗？
+
+某家上海养着啥都没有整天放暴论烦死人</blockquote>
+百川、阶跃、零一？
+
+百川转医疗模型了，零一转应用，阶跃在ipo。
+
+“2026年7月7日，零一万物在北京宣布推出三款"一号位决策AI"产品——<strong>老板AI、销冠AI和投资官AI</strong>，分别面向经营一号位、销售一号位和投资者一号位。” = = 你看这画风，
+
+
+*****
+
+####  QShen  
+##### 5122#       发表于 2026-8-4 13:50
+
+阶跃星辰现在说主攻端侧了，我认为就是放弃竞争了
+
+*****
+
+####  高粱河车神  
+##### 5123#       发表于 2026-8-4 13:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010975&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-4 13:32</a>
+
+实际上我觉得国内模型能力最大的瓶颈还是数据而不是算力
+
+推理瓶颈是算力还差不多，但是模型能力本身还是要 ...</blockquote>
+已经在搞这个事了
+
