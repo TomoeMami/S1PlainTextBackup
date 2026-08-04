@@ -7580,3 +7580,38 @@ Nope。
 
 pro 什么时候来呀，好急呀<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  omnitoken  
+##### 5129#       发表于 2026-8-4 14:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 去讨论其他家的商业作品和商业模式不好吧
+
+minimax很长一段时间靠出海文爱搞钱养训练团队
+
+泥潭那么多求破甲的好意思说文爱不是好路线吗?
+
+*****
+
+####  木水风铃  
+##### 5130#       发表于 2026-8-4 14:15
+
+国内早晚也得洗牌的，都知道烧钱不可持续，之前也是对标oag给的估值而已
+最后谁能剩下只能各凭本事了
+
+—— 来自 HUAWEI OCE-AN50, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  findpkq  
+##### 5131#       发表于 2026-8-4 14:18
+
+minimax一直都有单独的海螺在布局音视频啊...只是做的不算大，不是什么最近才想出来要另辟蹊径
+
+出的比seedance之前的seeweed还更早，seedance2.0之前字节的视频生成没啥突出的不存在包圆，国内老大交椅基本都在可灵那边，海螺在部分场景还有一些可替代性
+
+ds的路线别家又学不来，总得允许别人先找个吃饭的途径<img src="https://static.stage1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

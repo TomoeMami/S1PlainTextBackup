@@ -1500,3 +1500,11 @@ myriad colors / countless colors
 
 我管你什么设计不设计 我只管好看难看啊<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kalavinka  
+##### 1616#       发表于 2026-8-4 14:22
+
+不好看，丑也不至于，有几个黑皮还蛮戳我的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

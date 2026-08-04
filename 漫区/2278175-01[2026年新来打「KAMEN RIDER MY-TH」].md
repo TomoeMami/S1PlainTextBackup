@@ -161,3 +161,11 @@
 
 记得只有越南的十二生肖才有猫吧，难不成连假面骑士棚也要讲究zzzq去老中化了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  L-JoeW  
+##### 74#       发表于 2026-8-4 14:18
+
+天呐这选角是在搞什么<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
