@@ -8472,3 +8472,14 @@ Agent能力对结果影响非常大
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  来都来了  
+##### 5211#       发表于 2026-8-4 21:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70013223&amp;ptid=2275806" target="_blank">xmmc1800 发表于 2026-8-4 20:44</a>
+
+同样的v4f模型，在codex里改一个bug反复迭代了好几轮都在瞎改，换成claude code直接一把解决。也不知道是因 ...</blockquote>
+codex我看别人反馈是长考容易被截断，不适合干大活
+

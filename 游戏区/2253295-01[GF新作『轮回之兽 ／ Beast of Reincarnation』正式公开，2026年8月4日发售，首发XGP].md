@@ -2263,3 +2263,31 @@ UE5的出品要轮落到跟暗荣祖传引擎比画面了？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">好变态的宣发，秦川那半小时这游戏已经像只狼卧龙仁王恶名昭著了，搁这报菜名呢
 
+
+*****
+
+####  smdzh2  
+##### 505#       发表于 2026-8-4 20:57
+
+有兴趣入坑，但是受不了那个斗笠，有没有玩过的说一下后面斗笠能摘掉吗？
+
+*****
+
+####  chizuru  
+##### 506#       发表于 2026-8-4 20:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70013195&amp;ptid=2253295" target="_blank">nagitoY 发表于 2026-8-4 20:36</a>
+
+这游戏商单是真多。b站关注的两个主要做仁王相关的小up都接了商单，这游戏又不是光荣的怎么找上这么小的up ...</blockquote>
+国内的宣发公司直接对接的各个mcn公司吧
+
+*****
+
+####  FBC档案部专员  
+##### 507#       发表于 2026-8-4 21:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70013267&amp;ptid=2253295" target="_blank">smdzh2 发表于 2026-8-4 20:57</a>
+
+有兴趣入坑，但是受不了那个斗笠，有没有玩过的说一下后面斗笠能摘掉吗？ ...</blockquote>
+能在房车里选择啥也不戴
+
