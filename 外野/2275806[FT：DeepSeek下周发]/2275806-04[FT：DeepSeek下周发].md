@@ -7530,3 +7530,29 @@ Nope。
 推理瓶颈是算力还差不多，但是模型能力本身还是要 ...</blockquote>
 已经在搞这个事了
 
+
+*****
+
+####  舞以  
+##### 5124#       发表于 2026-8-4 13:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">该放弃就放弃，模型厂早晚得洗牌，目前看国内ds的生态位几乎没有竞争者，kimi的炼丹x炒作复合能力也是独一档
+
+智谱我觉得还是得看下一代基模更新之后的表现，如果能够顺利迭代甚至放卫星，那很可能和ds形成错位竞争。
+
+大厂们我觉得赖着不死是很可能的，自身内部能稳定进步就不错。
+
+*****
+
+####  pf67  
+##### 5125#       发表于 2026-8-4 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010796&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-4 12:56</a>
+
+我认同梁子的判断，视频生成对于ai能力来说太边角了。
+
+不如说MiniMax突然去炒作这个开源视频模型就很怪的， ...</blockquote>
+你这说法真nm离谱, 边角都来了
+
+视频生成是最火的AI应用,只是之前因为能力差被字节包圆了
+
