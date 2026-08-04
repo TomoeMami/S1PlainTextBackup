@@ -7868,3 +7868,26 @@ minimax在H股贬值厉害的原因也有海外收入靠文爱APP, 上不得台�
 兄弟们，最近用api写刘备，发现deepseek甲变厚了怎么办？</blockquote>
 喂她本刘备再写
 
+
+*****
+
+####  jamboo  
+##### 5154#       发表于 2026-8-4 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70007483&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-3 19:37</a>
+
+实际上pi的核心理念不是简化，而是它把自己源码发到你电脑上了，所以你可以对它做任何事情
+
+这在agent时代完 ...</blockquote>
+确实如此！刚开始接触的时候觉得这啥玩意，那么简陋……然后，摸着摸着就“我艹”“起飞了”
+
+
+*****
+
+####  neptunehs  
+##### 5155#       发表于 2026-8-4 15:57
+
+pi有什么好使的git管理？
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
