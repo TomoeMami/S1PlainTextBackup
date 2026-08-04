@@ -8265,3 +8265,26 @@ zcode 上用 DeepSeek  有啥优势吗</blockquote>
 
 现在国外主流agent桌面端都很烂只是因为不重视而已
 
+
+*****
+
+####  M乔梦  
+##### 5190#       发表于 2026-8-4 19:55
+
+今天看到说6号出，不知道真假，来源是qq聊天记录转发<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小野賢章  
+##### 5191#       发表于 2026-8-4 19:56
+
+6号是我生日，建议6号出<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akirt  
+##### 5192#       发表于 2026-8-4 20:03
+
+你们是不是蹬太猛了把opencode go蹬烂了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
