@@ -8394,3 +8394,38 @@ seedance这种好归好，但太贵了，实际上不做复杂场景，单纯人
 
 PRO炸几次了，感觉明天大的就要来了
 
+
+*****
+
+####  舞以  
+##### 5203#       发表于 2026-8-4 20:28
+
+status页面只写了pro炸了？
+不会大的要来了吧<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  neptunehs  
+##### 5204#       发表于 2026-8-4 20:29
+
+现在这明显是被蹬坏的样子 确实有可能会提前搬pro救场？毕竟pro据说token效率更高？
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  小野賢章  
+##### 5205#       发表于 2026-8-4 20:31
+
+opencode go 和 deepseek 官方的 flash 首 token 延迟非常大，我还以为挂了，其实没有完全挂<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来就是蹬坏了
+
+
+*****
+
+####  nxmonitor  
+##### 5206#       发表于 2026-8-4 20:33
+
+我觉得DS里infra组是最苦逼的了，别人都下班了就他们还在修服务，好吧运维都是这样的……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
