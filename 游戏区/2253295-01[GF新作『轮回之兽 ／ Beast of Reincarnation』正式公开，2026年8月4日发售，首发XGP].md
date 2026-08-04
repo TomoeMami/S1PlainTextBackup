@@ -2184,3 +2184,31 @@ GF音乐最豪华的一次</blockquote>
 
 国内具体不知道是谁
 
+
+*****
+
+####  病態極端  
+##### 499#       发表于 2026-8-4 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70012451&amp;ptid=2253295" target="_blank">无限未来 发表于 2026-8-4 17:49</a>
+
+不开超分那taa不是比dlss3更糊</blockquote>
+<img src="https://p.sda1.dev/34/8e07ef97de3d34874b42338436984f10/bor-fsr4.jpg" referrerpolicy="no-referrer">
+
+強開FSR4拍了一張。加上你的DLSS3，看來中景只能糊了。
+
+*****
+
+####  哎哟卧槽了  
+##### 500#       发表于 2026-8-4 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70012172&amp;ptid=2253295" target="_blank">病態極端 发表于 2026-8-4 17:09</a>
+無言投下
+
+發完才想起來，上面輪迴之獸甚至是最高畫質。虛幻5真是糊得離譜。
+
+仁王3都沒開最高。</blockquote>
+UE5的出品要轮落到跟暗荣祖传引擎比画面了？
+
+—— 来自 OPPO PLA110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
