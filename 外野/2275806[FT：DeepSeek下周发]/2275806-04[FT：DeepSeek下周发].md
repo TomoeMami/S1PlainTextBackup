@@ -7699,3 +7699,36 @@ codex上用上dsv4f，是不是就是多模态了？我刚试了下，可以识�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  jinyu19922011  
+##### 5139#       发表于 2026-8-4 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011331&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-4 14:48</a>
+
+一等公民感觉是ai最喜欢用的术语之一
+
+我问gpt如何看待ds引入response适配，他说不能说明ds将response视为“ ...</blockquote>
+的确，各家coding agent会对OA家的api深度优化，但是对于其他都是要求适配成openai格式，像是ds4的缓存机制就就不会单独适配
+
+*****
+
+####  tillnight  
+##### 5140#       发表于 2026-8-4 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011307&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-8-4 14:44</a>
+
+1MW大概对应 1000张卡 大概.
+
+1GW可是100w张卡....</blockquote>
+报道的就是1gw，1mw又什么好报道的，那都不算数据中心。但是可以肯定1GW是规划算力，而不是已经完成的。
+
+*****
+
+####  Promeus  
+##### 5141#       发表于 2026-8-4 15:04
+
+<img src="https://p.sda1.dev/34/1e76b1b9227aabffaa5d5b921d3b70ee/image.jpg" referrerpolicy="no-referrer">
+差点神秘园的梁子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
