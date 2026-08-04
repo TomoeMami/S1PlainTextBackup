@@ -8575,3 +8575,21 @@ c端被open code 蹬坏了吧，据说单日就是8万亿token
 
 —— 来自 HUAWEI VDE-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  crow_wine  
+##### 5222#       发表于 2026-8-4 22:15
+
+v4f做算法还是不太行，得等pro的正式版了
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  小野賢章  
+##### 5223#       发表于 2026-8-4 22:24
+
+今天试了一下pi，也太丝滑了吧，速度飞快<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
