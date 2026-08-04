@@ -1473,3 +1473,22 @@ myriad colors / countless colors
 
 除了那几个明摆着粗犷路线的大汉，目前角色里我觉得称得上丑的没几个吧<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 1613#       发表于 2026-8-4 11:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70009691&amp;ptid=2261859" target="_blank">蓮華 发表于 2026-8-4 10:09</a>
+
+新pv女王实力强劲啊，一打二小红小绿，用手拍飞小绿武器+人</blockquote>
+什么二打一，其实是小红带了个副官（确信）
+
+
+*****
+
+####  28201  
+##### 1614#       发表于 2026-8-4 12:03
+
+不能光看立绘嘛，建模其实还可以，中规中矩吧
+

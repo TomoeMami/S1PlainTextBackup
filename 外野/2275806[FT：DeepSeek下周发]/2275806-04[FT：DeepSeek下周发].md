@@ -6994,3 +6994,76 @@ flash被蹬爆了？
 我还是前面几十页的观点，国内的算力不应该这么分散…</blockquote>
 会有国家算网的，但还得过几年，起码半导体产能爬坡过去再说
 
+
+*****
+
+####  Promeus  
+##### 5072#       发表于 2026-8-4 11:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010429&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-4 11:53</a>
+我还是前面几十页的观点，国内的算力不应该这么分散…</blockquote>
+其实之前有传闻ds和kimi合并来着<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  直刺苍穹的光  
+##### 5073#       发表于 2026-8-4 11:58
+
+刚修好又爆了，你们少蹬一点啊
+
+*****
+
+####  nxmonitor  
+##### 5074#       发表于 2026-8-4 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010450&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-4 11:57</a>
+
+其实之前有传闻ds和kimi合并来着</blockquote>
+两家关系还不错，不然灰测版拿出来Kimi连前几天的融资都过不了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  neptunehs  
+##### 5075#       发表于 2026-8-4 11:59
+
+所以大的来了吗<img src="https://p.sda1.dev/34/15e3249318506f4958523865f02407c6/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  蜇灵  
+##### 5076#       发表于 2026-8-4 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010018&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-8-4 10:56</a>
+deepseek跟我说不行</blockquote>
+我都用上了还能不知道吗，除非你所在省份有省墙或者运营商自己屏蔽了，但这就不是gfw的问题了
+
+
+*****
+
+####  龙骑士尹志平  
+##### 5077#       发表于 2026-8-4 12:00
+
+鲸鱼娘太惨了，被码农死命蹬，活生生蹬晕又被蹬醒再被蹬晕，一幅r18g的地狱图，等鲸鱼娘进化成天网的时候你们这些码农都要吊路灯
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 秦南心 + 1欢乐多
+
+查看全部评分
+
+*****
+
+####  nxmonitor  
+##### 5078#       发表于 2026-8-4 12:04
+
+根据传闻，昇腾卡的份额是分配的，只能说部分人还在迷信大厂的能力，实际上AI厂商有创新的就字节阿里DS和kimi，正好两大两小
+
