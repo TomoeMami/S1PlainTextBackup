@@ -7788,3 +7788,51 @@ https://pi.dev/packages/pi-deepseek-search</blockquote>
 
 —— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  crow_wine  
+##### 5147#       发表于 2026-8-4 15:26
+
+今天 7000W 词元消耗 3.4 元，又快又好，爽蹬<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5148#       发表于 2026-8-4 15:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011475&amp;ptid=2275806" target="_blank">omnitoken 发表于 2026-8-4 15:16</a>
+
+你搜下talkie
+
+上市之前很长一段时间minimax的现金流来自它的广告收入</blockquote>
+感觉和……TAVO差不多？这玩意还能赚钱的？不都免费的自己接api吗
+
+*****
+
+####  tillnight  
+##### 5149#       发表于 2026-8-4 15:29
+
+<blockquote>舞以 发表于 2026-8-4 15:11
+950一个超节点能到8196卡，估计给ds的就是两个超节点吧，估计就拿去做推理卖api了。
+
+老黄的水卡梁子估计还 ...</blockquote>
+华为说了第一批客户定的都是千卡版本的（就是上个月上海展出的那版），8196没人要。拿来做推理集群也没必要上满配的。
+
+
+*****
+
+####  绝地潜兵  
+##### 5150#       发表于 2026-8-4 15:32
+
+草了，minimax才是文爱大师啊
+
+MX.jpeg
+(234.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 15:31 上传
+
+<img src="https://img.stage1st.com/forum/202608/04/153130dwq4wq6vwviw22wk.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
