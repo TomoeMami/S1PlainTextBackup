@@ -7317,3 +7317,68 @@ k3和v4pro preview都是浪费规模的感觉，后训练跟上能力还能飞�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  tillnight  
+##### 5104#       发表于 2026-8-4 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010785&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-4 12:54</a>
+
+梁子毕竟还没建完，有的时候利用好这个时间点的一点优势就有机会自救</blockquote>
+智谱也没有建完，怎么可能现在有1GW级别的国产算力卡给他用。整个一个都是外媒报道真假混杂再加上传话手故意没有突出原报道里说的“部分已经上线”的部分。这里的部分很可能实际上线的都没到规划1GW的1/10。
+
+*****
+
+####  舞以  
+##### 5105#       发表于 2026-8-4 13:09
+
+那看MiniMax怎么定位自己了呗，他们毕竟不是字节，目前看既活不成ds的样子，又活不成kimi的样子。
+作为开源实验室，我觉得在主线上找到自己的位置是最重要的，不然大浪淘沙，盛宴总会结束。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  nxmonitor  
+##### 5106#       发表于 2026-8-4 13:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010811&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-4 12:58</a>
+
+唐教授说是“史诗级plus”哦</blockquote>
+问题是他自己的判断是今年年底出fable5级别模型，按照时间来看应该是5.5再后训练一两轮，然而灰测pro最后几天的性能有点夸张，能完整落地的话提前四个月就实现了。智谱现在要指望这个是内部版本，实际性能只有opus4.8或者5水平，才能把故事讲下去。
+
+*****
+
+####  Promeus  
+##### 5107#       发表于 2026-8-4 13:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010877&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-4 13:10</a>
+问题是他自己的判断是今年年底出fable5级别模型，按照时间来看应该是5.5再后训练一两轮，然而灰测pro最后 ...</blockquote>
+主要是灰测肉眼可见的按天提升<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">从灰测到现在又是半个月了，鬼知道能力会不会继续增长
+
+*****
+
+####  一般市民  
+##### 5108#       发表于 2026-8-4 13:15
+
+年初国内跟风Agent掀起螃蟹热的时候，国模还没有迈过洋模那条“能干活”的红线，那时候比较尴尬。现在陆陆续续都开始迈过红线了，全都发现后训练的配方了？ <img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hugosol  
+##### 5109#       发表于 2026-8-4 13:15
+
+其实今年年初的时候国产御三家（GKM）还是落后国外顶级模型半年到一年的说法，最近这几个新模型才有超英赶美的势头，已经很不错了
+
+*****
+
+####  nxmonitor  
+##### 5110#       发表于 2026-8-4 13:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010880&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-4 13:12</a>
+
+主要是灰测肉眼可见的按天提升从灰测到现在又是半个月了，鬼知道能力会不会继续增长 ...</blockquote>
+还是很难相信1.6T能搞成这样子，token效率还有了极大的提升，拿出来看如果是真的只能说DS技术领先一个身位，5%-10%算力到美国水平不是吹的。
+
