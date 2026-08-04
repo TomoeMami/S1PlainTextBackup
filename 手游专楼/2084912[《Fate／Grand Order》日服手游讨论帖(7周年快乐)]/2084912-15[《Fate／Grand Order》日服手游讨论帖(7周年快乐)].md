@@ -2127,3 +2127,11 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  zore  
+##### 21262#       发表于 2026-8-4 20:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这两个对象符合火之意志吗
+

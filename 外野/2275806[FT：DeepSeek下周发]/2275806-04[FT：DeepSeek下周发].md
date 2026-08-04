@@ -8372,3 +8372,25 @@ minimax的音频模型和视频模型其实用的人很多
 
 seedance这种好归好，但太贵了，实际上不做复杂场景，单纯人物替换之类的，便宜模型就好
 
+
+*****
+
+####  舞以  
+##### 5201#       发表于 2026-8-4 20:18
+
+ 本帖最后由 舞以 于 2026-8-4 20:19 编辑 
+
+我和gpt讨论很多的结果，v4f能有这么强agent的能力，大概率是ds内部在agent执行上有个很强的教师模型，蒸馏了大量高质量轨迹数据。
+这个教师模型就有可能是v4pro的某个内部检查点，当然也不排除ds专门训了个教师模型给商业模型上课。
+此外v4f在写gpu算子上有这么好的表现，估计也是他们内部拿ai写算子产出的一些轨迹作为高质量数据蒸进去了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  wandeeees  
+##### 5202#       发表于 2026-8-4 20:24
+
+PRO炸几次了，感觉明天大的就要来了
+
