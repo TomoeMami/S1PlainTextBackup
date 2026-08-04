@@ -1603,3 +1603,14 @@ myriad colors / countless colors
 
 直面会应该是子安配吧，刚好顺带把8月独立游戏发布会一起给配的，看了一下17年的火纹直面会也是子安
 
+
+*****
+
+####  woaimiyabi  
+##### 1626#       发表于 2026-8-4 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70009896&amp;ptid=2261859" target="_blank">suzakushi 发表于 2026-8-4 10:38</a>
+
+对对对，出了30多年的烂大街的中世纪风+私货和风毫无灵魂，埃及+希腊+罗马风才是优秀设计。 ...</blockquote>
+不能说优秀设计 但确实新鲜 少见。
+

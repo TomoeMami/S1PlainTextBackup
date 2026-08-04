@@ -8062,3 +8062,13 @@ kimi也有很多感叹号
 
 上午蹬掉了一个客户端软件VMPROTECT和加密狗<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">虽然蹬掉的狗是2010年左右的，以后想再通过加密狗卖软件真得打个问号吧
 
+
+*****
+
+####  脸宽  
+##### 5170#       发表于 2026-8-4 18:21
+
+试用了下reasonix，配合opencode写了个番茄钟软件，全程只提需求。
+
+算是理解为什么现在那么多番茄钟软件了，感觉我写的这个也还不错。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
