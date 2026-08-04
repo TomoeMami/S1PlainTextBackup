@@ -3080,3 +3080,123 @@ https://www.nintendo.com/jp/games/switch2/aacsa/
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  苏西踩我了  
+##### 1799#       发表于 2026-8-5 00:08
+
+推测
+
+1，四主角自带三个家臣，其他角色会从一个大的公共池子里挖角
+
+2，飞鸵兵的鸟能换，参考ffta2的陆行鸟骑士。
+
+应该不是小男孩的专属，是每个主角都能探测大地图某种资源，男孩是鸟，剑士是怪，舞女是矿石宝箱，女王是骑士团。
+
+3，流程推进我怀疑是网状任务结构，通过一个个选择进一个个不同路线，决定剑斗祭谁赢哪些人活下来，组团去打五年后。
+
+可能某条路线四主角都能活下来，群殴最终boss。
+
+要是这样的话，打一个周目就能体验大部分剧情，不必像三房那样得四个周目麻烦得要死
+
+*****
+
+####  u2deack  
+##### 1800#       发表于 2026-8-5 00:11
+
+与其说是挖角不如说是给各队分配角色，其实想想也有点麻烦，不知道到时候后半段又是个什么选人机制
+
+
+*****
+
+####  春风画雨  
+##### 1801#       发表于 2026-8-5 00:13
+
+任天堂不是还给了一个选择吗，四个臭弟弟一个都不救，真主角自己撸过去，我感觉不少人得奔着这个方向去
+
+*****
+
+####  ascomnet  
+##### 1802#       发表于 2026-8-5 00:14
+
+我看官网时间一开始就是5年后（现在）冥王复活，主角降临，穿越回去拉人，当然一个不拉也行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kalavinka  
+##### 1803#       发表于 2026-8-5 00:14
+
+又看了遍中文直面会
+
+“他被赋予了两个选项，一是以自己的力量对抗魔神的军队”
+
+如果真的可以直接白毛开局不穿越，没有5年前环节，那队友哪里来，总不可能一个人吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ascomnet  
+##### 1804#       发表于 2026-8-5 00:15
+
+ 本帖最后由 ascomnet 于 2026-8-5 00:17 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014136&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-8-5 00:14</a>
+
+又看了遍中文直面会
+
+“他被赋予了两个选项，一是以自己的力量对抗魔神的军队”</blockquote>
+就是1个人，你看这图站位
+
+<img src="https://img.stage1st.com/forum/202608/05/001636ggd6ggjd61qfgqqz.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-08-05 001619.jpg</strong> (141.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 00:16 上传
+
+*****
+
+####  qiyu1234  
+##### 1805#       发表于 2026-8-5 00:15
+
+我觉得栖木机制可能只是作为随时切换不同主角故事路线的选择，玩家最终在5年后选择的角色只能是某一条路线里存活的角色（可能不仅包括挖角角色还有可能带上某些主角）
+
+也许4个角色路线都走通会有个完全HE路线，也不好说
+
+*****
+
+####  qiyu1234  
+##### 1806#       发表于 2026-8-5 00:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014136&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-8-5 00:14</a>
+
+又看了遍中文直面会
+
+“他被赋予了两个选项，一是以自己的力量对抗魔神的军队”</blockquote>
+官网主人公介绍视频里的包包头总该能用吧，不至于这种时候进不了队伍
+
+*****
+
+####  嘉术2015  
+##### 1807#       发表于 2026-8-5 00:17
+
+这个动态立绘动起来的感觉真不错，
+
+公共卡池也不缺少让人很想拉拢的角色，
+
+就是这个主角团的人设，看了几个月了还是不顺眼，几个主角的初始队友也很没亮点
+
+只想选舞女姐姐，其他三个角色都不想管了
+
+*****
+
+####  qiyu1234  
+##### 1808#       发表于 2026-8-5 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014140&amp;ptid=2261859" target="_blank">ascomnet 发表于 2026-8-5 00:15</a>
+
+就是1个人，你看这图站位</blockquote>
+介绍这里特指的 战士，就是五年前这四位
+

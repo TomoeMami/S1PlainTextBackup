@@ -8676,3 +8676,21 @@ k3现在还能买coding plan 吗，大家都去蹬鲸鱼娘了，k3应该放开�
 
 opencode go太慢了, 还限制并发, 不可能蹬完啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  startraveller  
+##### 5233#       发表于 2026-8-5 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70013739&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-4 22:43</a>
+k3现在还能买coding plan 吗，大家都去蹬鲸鱼娘了，k3应该放开了吧</blockquote>
+还是会429，感觉k3该蹬还是蹬，还是强不少的，得等pro 出来
+
+
+*****
+
+####  CCauchy  
+##### 5234#       发表于 2026-8-5 00:15
+
+grok fast免费版好慷慨，竟然给了比较完整的云端运行环境，我上传一个恶意apk给它分析，跑了两轮分别跑了几分钟，结果与chatgpt跑了不知道次“继续”“继续分析”的结果还好，而claude已经累昏过去了
+
