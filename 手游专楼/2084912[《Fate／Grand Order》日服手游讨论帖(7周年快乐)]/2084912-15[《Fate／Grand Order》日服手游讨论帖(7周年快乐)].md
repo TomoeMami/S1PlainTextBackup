@@ -1965,3 +1965,28 @@ PV印度人镜头多是因为蘑菇老婆喜欢印度，这个国服做8周年PV
 
 2026-8-4 17:07 上传
 
+
+*****
+
+####  jackyhuang  
+##### 21248#       发表于 2026-8-4 17:16
+
+FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  exiaexa  
+##### 21249#       发表于 2026-8-4 17:22
+
+ 本帖最后由 exiaexa 于 2026-8-4 17:24 编辑 
+
+笑死，这下狐狸可真的是一口气喘不上来了，被爆的干干净净
+
+就多2500hp了
+
+莫扎特完爆
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

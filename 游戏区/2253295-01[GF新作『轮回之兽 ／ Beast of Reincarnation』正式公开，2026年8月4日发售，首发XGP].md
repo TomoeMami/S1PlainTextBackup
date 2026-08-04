@@ -2072,3 +2072,30 @@ Screenshot_2026-08-04-16-50-17-402_com.miui.gallery.jpg
 
 無言投下
 
+
+*****
+
+####  Gniyehz  
+##### 489#       发表于 2026-8-4 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011510&amp;ptid=2253295" target="_blank">无限未来 发表于 2026-8-4 15:23</a>
+帧数和画面比仁王3强，画面也比起源强，而且什么叫还不如起源，起源明明是垃圾武士刀引擎里唯一优化不错 ...</blockquote>
+pokopia也是武士刀引擎
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  蓮華  
+##### 490#       发表于 2026-8-4 17:22
+
+现在看到全力gf这几个字就想笑
+
+*****
+
+####  eternity0079  
+##### 491#       发表于 2026-8-4 17:25
+
+4分 不能再多了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
