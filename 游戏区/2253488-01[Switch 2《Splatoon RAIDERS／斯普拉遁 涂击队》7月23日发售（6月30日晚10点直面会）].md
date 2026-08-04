@@ -7102,3 +7102,29 @@ https://gamewith.jp/splatoon-raiders/569753
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  二十二颗牛油果  
+##### 851#       发表于 2026-8-4 09:52
+
+挂机已经超过48小时，别说绝品射速双枪绝品弓箭了，连普通五星都没有
+
+*****
+
+####  mai6696  
+##### 852#       发表于 2026-8-4 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70009428&amp;ptid=2253488" target="_blank">doraemonmilmil 发表于 2026-8-4 09:29</a>
+
+想问一下零件改良中，有一些非伤害类型的零件改良后也提示该配件攻击力提升，这是会加成到配件的整体伤害里 ...</blockquote>
+改良的是配件整体伤害。
+
+其实效果就是COST*2%。
+
+例如你零件改良后是COST 5，就会附带配件攻击+10%。
+
+COST 6就是+12%。
+
+所以如果你最后把COST塞满了就是配件伤害+80%。
+

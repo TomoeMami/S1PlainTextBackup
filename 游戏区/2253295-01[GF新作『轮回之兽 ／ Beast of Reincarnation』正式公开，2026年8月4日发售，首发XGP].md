@@ -1526,3 +1526,11 @@ GF招新的能力要求在日厂里算非常高的了吧，然后招进来除了
 那不是说明能玩吗？毕竟剑星也就是ign7分水平<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 感谢g胖，尽管预购了，但可以看看风评是不是要退款<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  burgerWang  
+##### 437#       发表于 2026-8-4 09:56
+
+我是一直不懂为什么有人看完之前的预告片和演示还能有期待的，预告片都是一股子虚幻免费素材游戏而且毫无亮点的德行，能指望正品好到哪里去？难道都忘了预告片本身就是为了宣传美化过的吗？
+
