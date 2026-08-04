@@ -7763,3 +7763,28 @@ codex上用上dsv4f，是不是就是多模态了？我刚试了下，可以识�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  omnitoken  
+##### 5145#       发表于 2026-8-4 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011237&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-4 14:32</a>
+
+啊？minimax那个水平还能有人肯花钱搞文爱？</blockquote>
+你搜下talkie
+
+上市之前很长一段时间minimax的现金流来自它的广告收入
+
+*****
+
+####  kitano  
+##### 5146#       发表于 2026-8-4 15:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010727&amp;ptid=2275806" target="_blank">DLAN 发表于 2026-8-4 12:45</a>
+pi可以用这个插件：
+https://pi.dev/packages/pi-deepseek-search</blockquote>
+感谢，pi真是要不停折腾的毛坯房，但给毛坯房做设计又很上头，光顾着定制配置都没怎么干正经活
+
+—— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

@@ -1943,3 +1943,34 @@ GF最不会的就是播片欺诈了，你在播片看到是怎么屎的，进游
 之前最让人担心的优化反而没啥问题，只能说虚幻5还是牛逼，虽然画面没有虚幻5的正常水平但也能让没啥技术积 ...</blockquote>
 別雲了，這遊戲畫面幀數還不如真三國無雙起源
 
+
+*****
+
+####  无限未来  
+##### 479#       发表于 2026-8-4 15:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011453&amp;ptid=2253295" target="_blank">病態極端 发表于 2026-8-4 15:11</a>
+
+別雲了，這遊戲畫面幀數還不如真三國無雙起源</blockquote>
+帧数和画面比仁王3强，画面也比起源强，而且什么叫还不如起源，起源明明是垃圾武士刀引擎里唯一优化不错的游戏
+
+*****
+
+####  sslink  
+##### 480#       发表于 2026-8-4 15:27
+
+之前媒体怎么吹来着，GF也有自己的奇迹2<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  病態極端  
+##### 481#       发表于 2026-8-4 15:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011510&amp;ptid=2253295" target="_blank">无限未来 发表于 2026-8-4 15:23</a>
+
+帧数和画面比仁王3强，画面也比起源强，而且什么叫还不如起源，起源明明是垃圾武士刀引擎里唯一优化不错 ...</blockquote>
+因爲起源畫質比仁三、浪人低，所以挑了簡單難度的來說。
+
+跟你這種純尬黑的沒必要文字交流。看是要你截一張仁三的圖，我截一張輪迴之獸的圖，還是反過來。直接發出來比。
+
