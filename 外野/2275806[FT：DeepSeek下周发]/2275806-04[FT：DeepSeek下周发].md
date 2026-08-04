@@ -7475,3 +7475,11 @@ Nope。
 
 —— 来自 OnePlus CPH2581, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  当光停止  
+##### 5119#       发表于 2026-8-4 13:38
+
+[https://kexue.fm/archives/11848](https://kexue.fm/archives/11848)  简单谈谈K3的MoE和Attention By 苏剑林 
+

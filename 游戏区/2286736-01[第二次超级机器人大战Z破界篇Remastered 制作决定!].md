@@ -1979,3 +1979,16 @@ NEO雖然都有出擊名單，但和歷代機戰不同，所有機體都可以�
 
 Y的这套UI可算是史上最丑，连这都好意思拿来吹嘘？？
 
+
+*****
+
+####  猪突猛进R  
+##### 195#       发表于 2026-8-4 13:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010955&amp;ptid=2286736" target="_blank">czxiang_0 发表于 2026-8-4 13:28</a>
+
+Y的这套UI可算是史上最丑，连这都好意思拿来吹嘘？？</blockquote>
+有的兄弟，有的。
+
+你去打开本区机战Y那个帖子，在发售几天里就有人说“虽然上手需要一定时间，但是习惯以后非常便利”。
+
