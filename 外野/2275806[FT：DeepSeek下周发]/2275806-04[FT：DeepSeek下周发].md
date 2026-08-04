@@ -8027,3 +8027,11 @@ kimi也有很多感叹号
 
 蹬了两三天，完全不会编程的人也能做个简单游戏了，不过DS视觉能力还是短板，虽然它会用转ASCII之类的方法来分析，但还是菜了点
 
+
+*****
+
+####  crow_wine  
+##### 5166#       发表于 2026-8-4 16:57
+
+两个半小时蹬里 1.7 亿。高速低费强指令遵循就是好<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
