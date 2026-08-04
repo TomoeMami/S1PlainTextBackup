@@ -335,3 +335,14 @@ ARPG化 对于异度神剑其实是雷点
 折腾了好久花jd的任务，最后发现是花buster<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 把我的时间还回来
 
+
+*****
+
+####  woaimiyabi  
+##### 2023#       发表于 2026-8-4 08:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008119&amp;ptid=2283074" target="_blank">serj005 发表于 2026-8-3 21:57</a>
+
+这代在怪物设计这方面确实挺值得挺担心的，尤其是一直没出现诺彭引发的后续猜想，整个生态似乎要脱离以往 ...</blockquote>
+这次pv出现了三种小怪 都是新的，不知道能有多少新的原创怪。
+

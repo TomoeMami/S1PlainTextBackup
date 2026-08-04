@@ -1413,3 +1413,11 @@ M站74分（好像还在掉分），已经不如gf做的千兆破坏者（75分�
 
 顺带一提：IGN 6
 
+
+*****
+
+####  milky658  
+##### 425#       发表于 2026-8-4 08:18
+
+能被GF的非宝可梦游戏骗进来杀吗？那该反思了（骗你的，买宝可梦都是自愿被骗）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
