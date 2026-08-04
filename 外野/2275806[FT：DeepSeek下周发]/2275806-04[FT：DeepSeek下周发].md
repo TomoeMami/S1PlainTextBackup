@@ -7382,3 +7382,54 @@ k3和v4pro preview都是浪费规模的感觉，后训练跟上能力还能飞�
 主要是灰测肉眼可见的按天提升从灰测到现在又是半个月了，鬼知道能力会不会继续增长 ...</blockquote>
 还是很难相信1.6T能搞成这样子，token效率还有了极大的提升，拿出来看如果是真的只能说DS技术领先一个身位，5%-10%算力到美国水平不是吹的。
 
+
+*****
+
+####  nxmonitor  
+##### 5111#       发表于 2026-8-4 13:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010890&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-8-4 13:15</a>
+
+年初国内跟风Agent掀起螃蟹热的时候，国模还没有迈过洋模那条“能干活”的红线，那时候比较尴尬。现在陆陆 ...</blockquote>
+还是DS老祖更夸张，这几天测下来300B模型的性能过于超标了，搞得周围都寸草不生了。当然还有个更方便的方法，就是有个极强的pro来蒸馏，不过也说明了水平因为pro也才1.6T。
+
+*****
+
+####  Promeus  
+##### 5112#       发表于 2026-8-4 13:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010893&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-4 13:15</a>
+还是很难相信1.6T能搞成这样子，token效率还有了极大的提升，拿出来看如果是真的只能说DS技术领先一个身 ...</blockquote>
+主要有几个特征和fga是一致的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tillnight  
+##### 5113#       发表于 2026-8-4 13:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010877&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-4 13:10</a>
+
+问题是他自己的判断是今年年底出fable5级别模型，按照时间来看应该是5.5再后训练一两轮，然而灰测pro最后 ...</blockquote>
+Nope。
+
+不知道你们在说什么。时间线是：
+
+1、马斯克在6月外网还是炒作时任国模一哥glm5.2时，在X上回答别人问觉得东大模型什么时候会有fable级，马斯克觉得是明年初（显然你记忆混淆了，这个时间是马斯克说的），本来这事不大，但是这事火了是因为唐杰直接在马斯克后面回复了“won't be that long”。
+
+2、实际上在7月kimi k3发布以后，外网一般舆论是默认k3就差不多已经是所谓fable级（当然我们知道实际有差距，特别是对公众开放的fable其实有很严重的能力自限问题，但在舆论中这不重要），一般外网用户的认知就是马斯克等于不到一个月被打脸，这事情现在已经没人提了。
+
+3、因为k3爆了有人去在内网微博问唐杰是不是很快也有大，会不会到史诗级（暗示fable，因为史诗级明显和fable和mythos是对应的，提问人无意识唐杰也必然清楚），唐杰直接回复了史诗级plus。
+
+从头到尾唐杰都没说过智谱年底才到fable，一般观点都是默认他指的是8月底或9月发布的下一代基模。
+
+*****
+
+####  舞以  
+##### 5114#       发表于 2026-8-4 13:26
+
+最为梁孝子，我一直认为ds的技术在国内至少领先一个身位啊。
+廉价可用的能力的实现难度远比卖昂贵订阅来得高。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

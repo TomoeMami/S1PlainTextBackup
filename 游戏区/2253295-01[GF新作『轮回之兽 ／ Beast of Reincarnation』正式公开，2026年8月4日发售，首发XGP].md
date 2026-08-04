@@ -1832,3 +1832,14 @@ MC
 
 玩过A-Z那个稀烂的boss战手感，还敢碰gf的动作游戏吗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jabeck  
+##### 467#       发表于 2026-8-4 13:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010820&amp;ptid=2253295" target="_blank">wgoenitz 发表于 2026-8-4 12:59</a>
+
+玩过A-Z那个稀烂的boss战手感，还敢碰gf的动作游戏吗</blockquote>
+别说，这游戏的优点之一就是弹反手感。
+
