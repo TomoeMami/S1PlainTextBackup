@@ -8104,3 +8104,32 @@ kimi也有很多感叹号
 
 提供多个平台的路由服务
 
+
+*****
+
+####  浪费喝咖啡  
+##### 5174#       发表于 2026-8-4 18:52
+
+据说是蒋炎岩老师对ds harness的评价，图是从b站偷的<img src="https://p.sda1.dev/34/6f9015a56ab92021ecd72bff49a2ecdf/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5175#       发表于 2026-8-4 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70012773&amp;ptid=2275806" target="_blank">浪费喝咖啡 发表于 2026-8-4 18:52</a>
+据说是蒋炎岩老师对ds harness的评价，图是从b站偷的</blockquote>
+我超 拓展性好不会是意味着没有桌面版吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">能不能给非超能力者🤏活路
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  ctkghost  
+##### 5176#       发表于 2026-8-4 18:55
+
+reasonix主打的用deepseek这种非多模态的做主模型，为什么做不好子代理用多模态的呢。
+折腾了一下午，默认的read file没办法读图片，写了MCP让子代理读图片，子代理还没法直接执行MCP，间接执行就没法正确看图片，服了天<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+——来自 PJZ110 上的 [S1er 客户端](https://s1er.pages.dev)
+
