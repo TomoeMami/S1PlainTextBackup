@@ -7891,3 +7891,14 @@ pi有什么好使的git管理？
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  vincevincetang  
+##### 5156#       发表于 2026-8-4 15:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011532&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-4 15:27</a>
+
+感觉和……TAVO差不多？这玩意还能赚钱的？不都免费的自己接api吗</blockquote>
+赚的是C端小白的钱，talkie国内版叫星野。以前minimax还整了个角色扮演特化的模型M2-her
+
