@@ -1925,3 +1925,11 @@ PV印度人镜头多是因为蘑菇老婆喜欢印度，这个国服做8周年PV
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  qixinno1  
+##### 21246#       发表于 2026-8-4 14:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">出十个五星狗萌新那种也能各种单抽出货十连二宝 我这种霉B最后也是艰难出一个或者毛都没有
+

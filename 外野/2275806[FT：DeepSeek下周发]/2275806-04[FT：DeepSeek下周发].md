@@ -7615,3 +7615,35 @@ ds的路线别家又学不来，总得允许别人先找个吃饭的途径<img s
 
 —— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  ycjiang1337  
+##### 5132#       发表于 2026-8-4 14:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010494&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-4 12:04</a>
+根据传闻，昇腾卡的份额是分配的，只能说部分人还在迷信大厂的能力，实际上AI厂商有创新的就字节阿里DS和ki ...</blockquote>
+梁圣说的是不够训练下一代模型，一万张950跑推理服务是足够的
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5133#       发表于 2026-8-4 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011150&amp;ptid=2275806" target="_blank">omnitoken 发表于 2026-8-4 14:14</a>
+
+去讨论其他家的商业作品和商业模式不好吧
+
+minimax很长一段时间靠出海文爱搞钱养训练团队</blockquote>
+啊？minimax那个水平还能有人肯花钱搞文爱？
+
+*****
+
+####  love4aids  
+##### 5134#       发表于 2026-8-4 14:32
+
+codex上用上dsv4f，是不是就是多模态了？我刚试了下，可以识图了
+
