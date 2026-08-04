@@ -2058,3 +2058,17 @@ Screenshot_2026-08-04-16-50-17-402_com.miui.gallery.jpg
 
 <img src="https://img.stage1st.com/forum/202608/04/165026bj3401f00nm7fvm1.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  病態極端  
+##### 488#       发表于 2026-8-4 17:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011950&amp;ptid=2253295" target="_blank">无限未来 发表于 2026-8-4 16:36</a>
+
+那就直接上图吧，还有红蝶我觉得画面优化都不行，我玩着有几家的房间low帧不稳，开射影机掉帧，主机版甚 ...</blockquote>
+<img src="https://p.sda1.dev/34/fb8e695bdc48b34a9217c85ca0ece587/bor.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/1bc18fbccb3001eb23f33ed258428078/n3.jpeg" referrerpolicy="no-referrer">
+
+無言投下
+
