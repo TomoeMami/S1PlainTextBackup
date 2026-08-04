@@ -3696,3 +3696,19 @@ IMG_0970.jpeg
 
 <img src="https://img.stage1st.com/forum/202608/05/051720ttmoizaxgouo4x1r.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴尔干炮  
+##### 1849#       发表于 2026-8-5 06:57
+
+<img src="https://img.stage1st.com/forum/202608/05/065712yjv1oxpanrv0g19v.png" referrerpolicy="no-referrer">
+
+<strong>f190b59b39e30acfb78d37f3a99f4bccfe8b6e5f0609b50797fd3734034983e4.0.PNG</strong> (649.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 06:57 上传
+
+支持鼠标。
+
