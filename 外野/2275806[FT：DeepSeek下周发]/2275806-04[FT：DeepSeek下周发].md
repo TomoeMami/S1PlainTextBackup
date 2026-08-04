@@ -7902,3 +7902,19 @@ pi有什么好使的git管理？
 感觉和……TAVO差不多？这玩意还能赚钱的？不都免费的自己接api吗</blockquote>
 赚的是C端小白的钱，talkie国内版叫星野。以前minimax还整了个角色扮演特化的模型M2-her
 
+
+*****
+
+####  小野賢章  
+##### 5157#       发表于 2026-8-4 16:10
+
+不知道v4pro正式版在哪里<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/04/161005rz4ncpz18oohb8q9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (241.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 16:10 上传
+
