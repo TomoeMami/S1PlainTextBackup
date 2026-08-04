@@ -3546,3 +3546,11 @@ https://www.nintendo.com/jp/games/switch2/aacsa/
 
 简易向总结，保底51人可招募了，肯定要往60+冲刺了
 
+
+*****
+
+####  哲学向黑子  
+##### 1841#       发表于 2026-8-5 01:39
+
+没看发布会，这作有说包含恋爱和战后配种要素吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
