@@ -6544,3 +6544,16 @@ image.png
 ，我昨天蹬了一天了才蹬了十 ...</blockquote>
 还真是，不过日志那有详细记录还是不爽。
 
+
+*****
+
+####  冤枉呐  
+##### 5025#       发表于 2026-8-4 08:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008764&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-4 02:22</a>
+问一下，你们经常说的，给Agent一个目标，让它去挂着跑几个小时回来看一眼，是如何做到的？为什么我无论用C ...</blockquote>
+codex：替我审批+配置里面有个沙盒的
+cc；bypass
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
