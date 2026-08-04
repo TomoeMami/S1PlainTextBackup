@@ -1684,3 +1684,14 @@ QP真是永远痛
 
 怎么这么多所长120的了，狗粮储备这么充足的吗
 
+
+*****
+
+####  flyzzhj  
+##### 48036#       发表于 2026-8-4 09:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70009150&amp;ptid=1712412" target="_blank">GALLADE 发表于 2026-8-4 08:52</a>
+
+怎么这么多所长120的了，狗粮储备这么充足的吗</blockquote>
+双倍经验+4倍概率大成功，打狗粮本从1级肝到120也很快的
+

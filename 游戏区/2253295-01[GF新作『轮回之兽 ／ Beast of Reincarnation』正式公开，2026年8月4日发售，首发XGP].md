@@ -1483,3 +1483,13 @@ M站74分（好像还在掉分），已经不如gf做的千兆破坏者（75分�
 
 为了小姐姐预购，CJ试玩其实还行，硬着头皮打吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lisylfn  
+##### 433#       发表于 2026-8-4 09:14
+
+我还是喜欢前几个月那种欢快的气氛<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">“gf可能要靠这作摆脱在国内游戏厂商舆论底层的地位了”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
