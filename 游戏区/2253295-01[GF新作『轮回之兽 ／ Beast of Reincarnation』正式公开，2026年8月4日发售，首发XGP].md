@@ -1534,3 +1534,26 @@ GF招新的能力要求在日厂里算非常高的了吧，然后招进来除了
 
 我是一直不懂为什么有人看完之前的预告片和演示还能有期待的，预告片都是一股子虚幻免费素材游戏而且毫无亮点的德行，能指望正品好到哪里去？难道都忘了预告片本身就是为了宣传美化过的吗？
 
+
+*****
+
+####  topia  
+##### 438#       发表于 2026-8-4 10:01
+
+之前线下试玩还好评如潮呢<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TANA  
+##### 439#       发表于 2026-8-4 10:01
+
+<img src="https://img.stage1st.com/forum/202608/04/100122otu11m16u1c4octt.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4230.jpeg</strong> (137.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 10:01 上传
+
+卖哥高见啊<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

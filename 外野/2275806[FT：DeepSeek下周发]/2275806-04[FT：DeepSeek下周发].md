@@ -6609,3 +6609,15 @@ Qwen3.8在AA榜的code部分得分没超过V4F，是不是测得有问题？和N
 
 opencode go的性能好像不如DS官方的，如果用量不大的话还是用官方的更好
 
+
+*****
+
+####  GJRstone  
+##### 5031#       发表于 2026-8-4 10:03
+
+现在用trae长任务d指导开始主动踹人了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+模型服务商错误信息：
+
+Service is too busy. We advise users to temporarily switch to alternative LLM API service providers. (Model Provider Error Code: service_unavailable_error, HTTP Status: 503)
+
