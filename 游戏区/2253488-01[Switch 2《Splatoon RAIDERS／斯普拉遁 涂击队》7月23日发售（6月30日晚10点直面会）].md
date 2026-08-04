@@ -7163,3 +7163,11 @@ COST 6就是+12%。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">pdd香港直邮233，是不是得等半个月
 
+
+*****
+
+####  doraemonmilmil  
+##### 856#       发表于 2026-8-4 11:21
+
+100层内爬塔关卡固定还好，之后就是随机了，但地形来来去去就那几种，感觉主要看运气，刷到初期就两个精英boss就比较难，后期刷出boss至少鱼卵快满加上大招也差不多，还算能周旋。有时刷到开局两个四手，地形是s楼梯那张图我基本就重开了，除非在第三层刷到没办法才认真打，主要暂时还没什么破冰4k实在干不动这玩意<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个s楼梯，打上面那个的话，地形窄不好打，打下面那只，又被上面那只四手疯狂干扰，无法短期内干掉其中一只就容易恶性循环。
+

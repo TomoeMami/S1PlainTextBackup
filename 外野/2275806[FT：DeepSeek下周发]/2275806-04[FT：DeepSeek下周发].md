@@ -6882,3 +6882,12 @@ down了一个多小时了，究竟是大的，还是你们把鲸鱼蹬坏了<img
 
 opencode 和官方一直在同时蹬
 
+
+*****
+
+####  dalarmar  
+##### 5059#       发表于 2026-8-4 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010034&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-4 10:59</a></blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">自己打开浏览器玩了起来
+
