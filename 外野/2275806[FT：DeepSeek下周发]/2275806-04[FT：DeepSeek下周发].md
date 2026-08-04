@@ -7732,3 +7732,34 @@ codex上用上dsv4f，是不是就是多模态了？我刚试了下，可以识�
 <img src="https://p.sda1.dev/34/1e76b1b9227aabffaa5d5b921d3b70ee/image.jpg" referrerpolicy="no-referrer">
 差点神秘园的梁子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5142#       发表于 2026-8-4 15:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011412&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-4 15:04</a>
+
+差点神秘园的梁子</blockquote>
+我记得当年还上过微博热搜来着，怎么确定是梁圣的？
+
+*****
+
+####  Promeus  
+##### 5143#       发表于 2026-8-4 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011431&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-4 15:07</a>
+我记得当年还上过微博热搜来着，怎么确定是梁圣的？</blockquote>
+和他微博老互动的女人是徐进前妻，稍微对比下就出来了吧<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  舞以  
+##### 5144#       发表于 2026-8-4 15:11
+
+950一个超节点能到8196卡，估计给ds的就是两个超节点吧，估计就拿去做推理卖api了。
+老黄的水卡梁子估计还是拿去做研究和搞训练。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
