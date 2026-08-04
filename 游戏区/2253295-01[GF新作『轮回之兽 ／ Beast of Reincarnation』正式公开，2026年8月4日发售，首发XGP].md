@@ -2007,3 +2007,28 @@ GF音乐最豪华的一次<img src="https://static.stage1st.com/image/smiley/fac
 
 我是觉得对一个首发XGP的游戏有啥可期待的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无限未来  
+##### 486#       发表于 2026-8-4 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011528&amp;ptid=2253295" target="_blank">病態極端 发表于 2026-8-4 15:27</a>
+
+因爲起源畫質比仁三、浪人低，所以挑了簡單難度的來說。不然直接搬出零紅蝶Remake就全勝了。
+
+跟你這種純尬 ...</blockquote>
+那就直接上图吧，还有红蝶我觉得画面优化都不行，我玩着有几家的房间low帧不稳，开射影机掉帧，主机版甚至这种画面都要锁30帧
+
+仁王3我觉得观感最好的场景，当然游戏里有大量观感比这差很多的劣质场景
+<img src="https://s3.bmp.ovh/2026/08/04/R8nsLLS0.jpg" referrerpolicy="no-referrer">
+
+比如这种看起来让我怀疑到底在玩什么年代游戏的场景
+<img src="https://s3.bmp.ovh/2026/08/04/pMBohdhu.jpg" referrerpolicy="no-referrer">
+
+浪人，虽然整体色彩没啥问题了但画面层次感还是有时候看起来一坨看不清细节
+<img src="https://s3.bmp.ovh/2026/08/04/PIItbrkT.jpg" referrerpolicy="no-referrer">
+
+轮回之兽，虽然草地植被之类的细看也比较劣质但整体观感还是比仁王3好很多
+<img src="https://s3.bmp.ovh/2026/08/04/kWRNPqdf.jpg" referrerpolicy="no-referrer">
+
