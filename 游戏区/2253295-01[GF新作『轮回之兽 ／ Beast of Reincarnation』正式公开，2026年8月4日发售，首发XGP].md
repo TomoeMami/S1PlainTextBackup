@@ -1671,3 +1671,11 @@ GF招新的能力要求在日厂里算非常高的了吧，然后招进来除了
 
 GF证明了自己没<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红魔馆的糖  
+##### 452#       发表于 2026-8-4 10:59
+
+看起来是没有烧鸡女角色也没有好玩内容的样子，那就完全不用考虑了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

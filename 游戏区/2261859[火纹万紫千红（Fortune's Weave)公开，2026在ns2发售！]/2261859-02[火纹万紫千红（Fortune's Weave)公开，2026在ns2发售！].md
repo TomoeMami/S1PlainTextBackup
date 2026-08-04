@@ -1423,3 +1423,29 @@ myriad colors / countless colors
 
 好不好不知道,大部分看图放以前就知道是炮灰角色,占位置的.所以大家都是炮灰就无所谓了,一起上场
 
+
+*****
+
+####  发呆的龙虾  
+##### 1607#       发表于 2026-8-4 10:56
+
+什么风不重要，重点不是丑么。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 1608#       发表于 2026-8-4 10:56
+
+小红小绿果然是每条线必打的炮灰吧，感觉第一条线要不就选柯南得了
+
+
+*****
+
+####  suzakushi  
+##### 1609#       发表于 2026-8-4 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010007&amp;ptid=2261859" target="_blank">发呆的龙虾 发表于 2026-8-4 10:56</a>
+
+什么风不重要，重点不是丑么。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就因为实在没法昧良心说这坨玩意好看，才说有意思不是吗。
+

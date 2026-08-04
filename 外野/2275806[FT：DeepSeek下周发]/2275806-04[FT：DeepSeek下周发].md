@@ -6809,3 +6809,47 @@ opencode go的地址国内还访问不了啊</blockquote>
 
 —— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  奈落的孤火花  
+##### 5052#       发表于 2026-8-4 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70009985&amp;ptid=2275806" target="_blank">蒜苗 发表于 2026-8-4 10:52</a>
+
+可以，没墙</blockquote>
+deepseek跟我说不行<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/04/105718jqmpyiawdiomry8i.png" referrerpolicy="no-referrer">
+
+<strong>83716.png</strong> (31.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 10:57 上传
+
+*****
+
+####  Promeus  
+##### 5053#       发表于 2026-8-4 10:59
+
+<img src="https://p.sda1.dev/34/519bdb7b201bbbbb3215dca8c3412eb5/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  startraveller  
+##### 5054#       发表于 2026-8-4 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010018&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-8-4 10:56</a>
+deepseek跟我说不行</blockquote>
+ds瞎说，openai都出来了。 可以直连，连不上ds要去设置里面打开那个允许连接部署在中国的模型，Opencode自己默认关闭免得美国佬bb的
+
+*****
+
+####  龙骑士尹志平  
+##### 5055#       发表于 2026-8-4 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010034&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-4 10:59</a></blockquote>
+闲逼无聊瞎找活干很有agi的潜质啊
+
