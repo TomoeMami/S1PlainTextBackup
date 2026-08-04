@@ -3674,3 +3674,25 @@ https://www.nintendo.com/jp/games/switch2/aacsa/
 
 感觉剧情重心是在五年前，有点担心五年后部分的剧情会很水
 
+
+*****
+
+####  woaimiyabi  
+##### 1848#       发表于 2026-8-5 05:15
+
+ 本帖最后由 woaimiyabi 于 2026-8-5 05:21 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014381&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-8-5 01:28</a>
+
+简易向总结，保底51人可招募了，肯定要往60+冲刺了</blockquote>
+
+官网还有个中年黑皮白毛男角色，应该也是队友 。
+
+IMG_0970.jpeg
+(148.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 05:17 上传
+
+<img src="https://img.stage1st.com/forum/202608/05/051720ttmoizaxgouo4x1r.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
