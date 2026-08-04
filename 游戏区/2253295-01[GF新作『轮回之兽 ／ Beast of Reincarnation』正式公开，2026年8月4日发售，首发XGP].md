@@ -2123,3 +2123,11 @@ pokopia也是武士刀引擎
 除了上面的看起来比较糊外怎么看都是上面的观感更好些吧？而且轮回之兽自带的dlss版本还是dlss3本来就糊 ...</blockquote>
 沒開超分。
 
+
+*****
+
+####  Niko_83c  
+##### 494#       发表于 2026-8-4 17:36
+
+都怪风波拖累gf，rtt鸭霸gf不给轮回之兽资源<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

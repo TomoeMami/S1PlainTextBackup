@@ -2000,3 +2000,30 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 相比之下小玉也就赢一手羁绊多户口了（术阶、兽科、中立、星/恶）。
 
+
+*****
+
+####  qixinno1  
+##### 21251#       发表于 2026-8-4 17:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玉藻前还有一手宝威 不算输
+
+*****
+
+####  alucardcz  
+##### 21252#       发表于 2026-8-4 17:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不如说我玉至少有仍子
+
+
+*****
+
+####  Jamaisvu  
+##### 21253#       发表于 2026-8-4 17:44
+
+<blockquote>qixinno1 发表于 2026-8-4 17:40
+玉藻前还有一手宝威 不算输</blockquote>
+只考虑单C的话，还是小玉强点。毕竟蓝卡队不是很缺NP，伤害buff越高越好。
+
+双C的话就该被一星从者优化掉了...
+
