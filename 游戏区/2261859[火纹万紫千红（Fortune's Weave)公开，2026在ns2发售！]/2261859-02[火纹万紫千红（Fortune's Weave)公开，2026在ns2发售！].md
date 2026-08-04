@@ -1492,3 +1492,11 @@ myriad colors / countless colors
 
 不能光看立绘嘛，建模其实还可以，中规中矩吧
 
+
+*****
+
+####  king520kyo  
+##### 1615#       发表于 2026-8-4 14:09
+
+我管你什么设计不设计 我只管好看难看啊<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

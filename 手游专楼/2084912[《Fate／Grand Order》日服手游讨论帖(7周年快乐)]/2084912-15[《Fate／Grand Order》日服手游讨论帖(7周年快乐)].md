@@ -1915,3 +1915,13 @@ PV印度人镜头多是因为蘑菇老婆喜欢印度，这个国服做8周年PV
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  格林卡罗尔  
+##### 21245#       发表于 2026-8-4 14:14
+
+以前的泳装活动加上周年从者三五星，现在是保底三五星<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
