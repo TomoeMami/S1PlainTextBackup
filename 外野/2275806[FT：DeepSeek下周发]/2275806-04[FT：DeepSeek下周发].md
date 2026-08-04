@@ -6909,3 +6909,51 @@ opencode 和官方一直在同时蹬
 
 修好了应该<img src="https://static.stage1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王兰花秀丽  
+##### 5062#       发表于 2026-8-4 11:37
+
+虽然说修好了但是我这里还是会busy    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  飛霞精灵  
+##### 5063#       发表于 2026-8-4 11:41
+
+话说回来，网页版的V4F更新了么？还是之前的版本？
+
+
+*****
+
+####  cscbzcbz  
+##### 5064#       发表于 2026-8-4 11:42
+
+还是在断断续续，好了一点，没完全好
+
+*****
+
+####  Promeus  
+##### 5065#       发表于 2026-8-4 11:42
+
+又寄了<img src="https://static.stage1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飞天荷兰人  
+##### 5066#       发表于 2026-8-4 11:45
+
+<blockquote>Promeus 发表于 2026-8-4 10:59
+</blockquote>
+请教下这个微信bot是怎么搞出来的？本地配置的么？
+
+*****
+
+####  舞以  
+##### 5067#       发表于 2026-8-4 11:45
+
+flash被蹬爆了？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

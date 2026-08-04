@@ -112,3 +112,13 @@
 
 圣彰人真来了啊
 
+
+*****
+
+####  Piano-Forest  
+##### 69#         楼主| 发表于 2026-8-4 11:41
+
+官网：[https://www.kamen-rider-official.com/my-th/](https://www.kamen-rider-official.com/my-th/)
+
+<img src="https://p.sda1.dev/34/38be8b23754bd3f4e4c0cc528621702b/1000171637.jpg" referrerpolicy="no-referrer">
+
