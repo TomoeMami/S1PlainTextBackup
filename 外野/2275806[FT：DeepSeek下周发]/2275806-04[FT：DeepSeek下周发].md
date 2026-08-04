@@ -7108,3 +7108,42 @@ minimax至少在视频生成上还咬着第一
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  R.I.P  
+##### 5083#       发表于 2026-8-4 12:26
+
+我发现v4flash非常喜欢在简中输出里穿插"needs"这个词，这就是拆腻子模型吗<img src="https://static.stage1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 5084#       发表于 2026-8-4 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010590&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-4 12:23</a>
+
+minimax至少在视频生成上还咬着第一
+
+智谱现在反而不知道出啥问题了</blockquote>
+智谱的创新上很一般的，他们现在其实要担心V4P到底有多少强，GLM5.5能不能接得住
+
+
+*****
+
+####  nxmonitor  
+##### 5085#       发表于 2026-8-4 12:30
+
+AA上3.8的分数都消失了，这也塞钱了？是被KPI逼到什么程度了？<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ymm1030  
+##### 5086#       发表于 2026-8-4 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010613&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-4 12:27</a>
+智谱的创新上很一般的，他们现在其实要担心V4P到底有多少强，GLM5.5能不能接得住 ...</blockquote>
+马上放的是 5.3，5.5 都还没谱
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
