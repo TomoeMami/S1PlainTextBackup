@@ -8651,3 +8651,13 @@ v4f做算法还是不太行，得等pro的正式版了
 
 k3现在还能买coding plan 吗，大家都去蹬鲸鱼娘了，k3应该放开了吧
 
+
+*****
+
+####  neptunehs  
+##### 5230#       发表于 2026-8-4 23:01
+
+被蹬坏的只有opencode go的话 能不能补偿清空额度啊（做梦
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
