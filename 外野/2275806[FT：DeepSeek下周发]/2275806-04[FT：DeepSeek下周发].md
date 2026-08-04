@@ -6651,3 +6651,54 @@ Service is too busy. We advise users to temporarily switch to alternative LLM AP
 
 2026-8-4 10:13 上传
 
+
+*****
+
+####  crow_wine  
+##### 5035#       发表于 2026-8-4 10:16
+
+啊刚没感受到，爽蹬。6m消耗只用了6毛，比电费都便宜<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  AutoFisherMan  
+##### 5036#       发表于 2026-8-4 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008182&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-8-3 22:11</a>
+
+deepseek的codex适配不好啊，不如pi，token还烧的快，比luna max都贵。</blockquote>
+是的 本来就不合适 不知道为什么那么多只管教你怎么接deepseek 的 “教程”视频 但是不合适就是不合适
+
+*****
+
+####  wandeeees  
+##### 5037#       发表于 2026-8-4 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70009733&amp;ptid=2275806" target="_blank">villsian 发表于 2026-8-4 10:13</a></blockquote>
+看样子后台已经在开始测试了，连续两天，大的肯定就在这周了！！！<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Promeus  
+##### 5038#       发表于 2026-8-4 10:21
+
+按以前规律应该是最晚周五了
+
+*****
+
+####  我猫呢?  
+##### 5039#       发表于 2026-8-4 10:22
+
+今天怎么感觉v4f降智严重，一个小问题改了好几遍，总是顾此失彼
+
+*****
+
+####  cscbzcbz  
+##### 5040#       发表于 2026-8-4 10:24
+
+刚才断了好几次<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+是在测试还是蹬的人太多了
+
