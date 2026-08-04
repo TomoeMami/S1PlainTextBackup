@@ -8483,3 +8483,11 @@ Agent能力对结果影响非常大
 同样的v4f模型，在codex里改一个bug反复迭代了好几轮都在瞎改，换成claude code直接一把解决。也不知道是因 ...</blockquote>
 codex我看别人反馈是长考容易被截断，不适合干大活
 
+
+*****
+
+####  chenyedgg  
+##### 5212#       发表于 2026-8-4 21:18
+
+v4f就被蹬成这样了，V4P GA出来了那还得了<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

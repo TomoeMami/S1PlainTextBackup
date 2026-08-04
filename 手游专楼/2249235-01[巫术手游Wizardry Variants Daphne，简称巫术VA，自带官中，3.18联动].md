@@ -134,3 +134,11 @@
 
 忍刀凛小妹你崛起吧<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  茄子自走炮  
+##### 866#       发表于 2026-8-4 21:15
+
+三重霞蛮强的 我450攻击300闪避面板的忍刀能暴击1800把道中恶魔都秒掉<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还只要10sp
+
