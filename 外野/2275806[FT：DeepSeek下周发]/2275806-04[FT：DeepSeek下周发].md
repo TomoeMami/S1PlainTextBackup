@@ -8072,3 +8072,15 @@ kimi也有很多感叹号
 
 算是理解为什么现在那么多番茄钟软件了，感觉我写的这个也还不错。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 5171#       发表于 2026-8-4 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70012431&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-8-4 17:45</a>
+也不一定吧，不然现在模型最强的应该是藤子</blockquote>
+藤子有啥数据<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是要高质量标记的数据，微信对话记录不算吧
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

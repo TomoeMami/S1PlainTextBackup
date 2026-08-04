@@ -2115,3 +2115,14 @@ MD的素材复用也很严重
 关键还是投入产出比太难看，不赚钱的项目代便砍起来是毫不留情的 ...</blockquote>
 2og那个质量你复用也没人说什么，你机战y还在复用z的动画就很有问题了
 
+
+*****
+
+####  ティグル  
+##### 208#       发表于 2026-8-4 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70012654&amp;ptid=2286736" target="_blank">HATENA 发表于 2026-8-4 18:24</a>
+
+2og那个质量你复用也没人说什么，你机战y还在复用z的动画就很有问题了</blockquote>
+一套素材能用八九作确实很变态了
+
