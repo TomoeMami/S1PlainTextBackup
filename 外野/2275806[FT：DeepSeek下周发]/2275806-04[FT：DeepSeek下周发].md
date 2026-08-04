@@ -6853,3 +6853,32 @@ ds瞎说，openai都出来了。 可以直连，连不上ds要去设置里面打
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010034&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-4 10:59</a></blockquote>
 闲逼无聊瞎找活干很有agi的潜质啊
 
+
+*****
+
+####  王兰花秀丽  
+##### 5056#       发表于 2026-8-4 11:12
+
+down了一个多小时了，究竟是大的，还是你们把鲸鱼蹬坏了<img src="https://static.stage1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  库德里尔  
+##### 5057#       发表于 2026-8-4 11:14
+
+我倒是想做一个能自由发挥 根据时间推移自己找事情干的agent来着
+本来是想做按现实时间模拟的角色扮演，而且有agent操作权限来着
+
+擦 擦 都不需要自己设计状态机和权限控制了吗 有点意思
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  →熙←  
+##### 5058#       发表于 2026-8-4 11:14
+
+我一直在用, 没问题啊, 地区性的?
+
+opencode 和官方一直在同时蹬
+

@@ -1679,3 +1679,28 @@ GF证明了自己没<img src="https://static.stage1st.com/image/smiley/face2017/
 
 看起来是没有烧鸡女角色也没有好玩内容的样子，那就完全不用考虑了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  spieler  
+##### 453#       发表于 2026-8-4 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70009614&amp;ptid=2253295" target="_blank">burgerWang 发表于 2026-8-4 09:56</a>
+我是一直不懂为什么有人看完之前的预告片和演示还能有期待的，预告片都是一股子虚幻免费素材游戏而且毫无亮 ...</blockquote>
+钱塞的多，各路大佬交口称赞
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Piano-Forest  
+##### 454#         楼主| 发表于 2026-8-4 11:12
+
+IGN / GS 6
+[https://www.ign.com/articles/beast-of-reincarnation-review](https://www.ign.com/articles/beast-of-reincarnation-review)
+[https://www.gamespot.com/reviews ... as-it-thinks-it-is/](https://www.gamespot.com/reviews/beast-of-reincarnation-isnt-as-cinematic-as-it-thinks-it-is/)
+
+MC
+[https://www.metacritic.com/game/beast-of-reincarnation/](https://www.metacritic.com/game/beast-of-reincarnation/)
+

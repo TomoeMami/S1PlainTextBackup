@@ -1727,3 +1727,22 @@ QP真是永远痛
 
 —— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  collincollin  
+##### 48040#       发表于 2026-8-4 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70000114&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2026-8-2 09:52</a>
+
+各刷了50把，然后点点点QP又没了
+
+QP真是永远痛
+
+这马上泳装提妈必抽的话，大概率会有三张新卡要练，这QP还得 ...</blockquote>
+冠位也掉QP，无脑刷，牵绊礼装吃不满了甚至可以上QP礼装
+
+然后这几天同步打种火，减半2倍4倍，下几个戴冠的等级直接刷到位
+
+就这几天
+
