@@ -6774,3 +6774,38 @@ image.png
 
 pro都恢复了，肯定是flash被蹬的太狠了。上B站和小红书看看有没有什么新的大火教程吧
 
+
+*****
+
+####  蒜苗  
+##### 5048#       发表于 2026-8-4 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70009871&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-8-4 10:34</a>
+opencode go的地址国内还访问不了啊</blockquote>
+可以，没墙
+
+*****
+
+####  cscbzcbz  
+##### 5049#       发表于 2026-8-4 10:52
+
+你们别蹬了<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">鲸鱼娘已经受不了了
+
+*****
+
+####  蒜苗  
+##### 5050#       发表于 2026-8-4 10:53
+
+还没恢复吗<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kitano  
+##### 5051#       发表于 2026-8-4 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70009226&amp;ptid=2275806" target="_blank">serj005 发表于 2026-8-4 09:03</a>
+昨天刚提到没有开源agent调ds的api网页搜索服务，今天reasonix更新日志就把Anthropic API的搜索功能给加上 ...</blockquote>
+用pi问一开始还说不支持，再逼问它才发现有网页搜索api，可惜只能response模式下使用，它还是用不了得等更新，等会试一下reasonix。reasonix之前用会串上下文把旧的不相关内容夹杂到新问题的回复里，遇过几次就弃用了，要是最新版有修复倒是可以用来干活
+
+—— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
