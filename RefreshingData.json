@@ -6827,7 +6827,7 @@
     "newtitle": "[《战锤40K：行商浪人》发售日确定！2023年12月7日！]",
     "lastedit": 1785542285,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2162351": {
@@ -17010,10 +17010,10 @@
     "update": false
   },
   "2286768": {
-    "totalreply": 165,
+    "totalreply": 166,
     "title": "[2岁男孩“肠梗阻”死亡，医方被判一级甲等事故赔146万后，首诊医生被批捕]",
     "newtitle": "[2岁男孩“肠梗阻”死亡，医方被判一级甲等事故赔146万后，首诊医生被批捕]",
-    "lastedit": 1785796925,
+    "lastedit": 1785801726,
     "category": "外野",
     "active": true,
     "update": false
@@ -17145,10 +17145,10 @@
     "update": false
   },
   "2286836": {
-    "totalreply": 59,
+    "totalreply": 60,
     "title": "[claude翻译成克劳德是由什么讲究吗？]",
     "newtitle": "[claude翻译成克劳德是由什么讲究吗？]",
-    "lastedit": 1785801125,
+    "lastedit": 1785801726,
     "category": "外野",
     "active": true,
     "update": false
@@ -17321,6 +17321,15 @@
     "newtitle": "[泥潭没有血界战线漫画专楼吗？]",
     "lastedit": 1785798006,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2286887": {
+    "totalreply": 41,
+    "title": "[“他们给我们的土地留下了永久伤痕”，美国乡村歌手集体反对科技巨头建设数据中心]",
+    "newtitle": "[“他们给我们的土地留下了永久伤痕”，美国乡村歌手集体反对科技巨头建设数据中心]",
+    "lastedit": 1785801726,
+    "category": "外野",
     "active": true,
     "update": false
   }
