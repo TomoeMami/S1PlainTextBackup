@@ -2032,3 +2032,29 @@ GF音乐最豪华的一次<img src="https://static.stage1st.com/image/smiley/fac
 轮回之兽，虽然草地植被之类的细看也比较劣质但整体观感还是比仁王3好很多
 <img src="https://s3.bmp.ovh/2026/08/04/kWRNPqdf.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杀仁老登  
+##### 487#       发表于 2026-8-4 16:50
+
+光影这一块确实像是忍者组直传
+
+Screenshot_2026-08-04-16-50-19-196_com.miui.gallery.jpg
+(346.73 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 16:50 上传
+
+<img src="https://img.stage1st.com/forum/202608/04/165026cmmam2mm37bfx32m.jpg" referrerpolicy="no-referrer">
+
+Screenshot_2026-08-04-16-50-17-402_com.miui.gallery.jpg
+(547.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 16:50 上传
+
+<img src="https://img.stage1st.com/forum/202608/04/165026bj3401f00nm7fvm1.jpg" referrerpolicy="no-referrer">
+

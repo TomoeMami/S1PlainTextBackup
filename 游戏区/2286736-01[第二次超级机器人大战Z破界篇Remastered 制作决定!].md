@@ -2045,3 +2045,23 @@ y这种长按跳过纯shit
 
 效果能有那些民间高清化的一半好吗？
 
+
+*****
+
+####  杉田悠一  
+##### 202#       发表于 2026-8-4 16:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我要og
+
+—— 来自 Xiaomi 25098PN5AC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  suzakushi  
+##### 203#       发表于 2026-8-4 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011992&amp;ptid=2286736" target="_blank">lbzlxx 发表于 2026-8-4 16:44</a>
+
+月之民说明了机战本家制作组是有能力做出优秀而且风格统一的战斗动画的，拜亚兰大师是真大师 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">月之民和本家版权作压根不是同一组人做的，一个人名都对不上，不存在月之民能证明本家能做好动画的逻辑。
+
