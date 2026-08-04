@@ -151,3 +151,13 @@
 
 圣彰人当不了奥特曼就去隔壁棚改行吗
 
+
+*****
+
+####  乾理央  
+##### 73#       发表于 2026-8-4 12:38
+
+十二生肖里的猫......?
+
+记得只有越南的十二生肖才有猫吧，难不成连假面骑士棚也要讲究zzzq去老中化了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

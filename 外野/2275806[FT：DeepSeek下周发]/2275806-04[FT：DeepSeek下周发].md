@@ -7147,3 +7147,46 @@ AA上3.8的分数都消失了，这也塞钱了？是被KPI逼到什么程度了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  nxmonitor  
+##### 5087#       发表于 2026-8-4 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010659&amp;ptid=2275806" target="_blank">ymm1030 发表于 2026-8-4 12:35</a>
+
+马上放的是 5.3，5.5 都还没谱
+
+—— 来自 S1Fun</blockquote>
+5.3基本是包被pro斩杀的，直接忽略去看5.5了，参数不到1T以上很难竞争
+
+
+*****
+
+####  Promeus  
+##### 5088#       发表于 2026-8-4 12:43
+
+智谱最大的问题还是全面被梁子覆盖了，没法像kimi和minimax那样做差异化竞争<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不知道唐子未来有什么高招没，能不能利用好自有数据中心的优势
+
+*****
+
+####  nxmonitor  
+##### 5089#       发表于 2026-8-4 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010709&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-4 12:43</a>
+
+智谱最大的问题还是全面被梁子覆盖了，没法像kimi和minimax那样做差异化竞争不知道唐子未来有什么高招没， ...</blockquote>
+DS也有内蒙古的那个啊，智谱真正的问题是技术能力不怎么够，这才是要命的
+
+*****
+
+####  DLAN  
+##### 5090#       发表于 2026-8-4 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70009991&amp;ptid=2275806" target="_blank">kitano 发表于 2026-8-4 10:53</a>
+用pi问一开始还说不支持，再逼问它才发现有网页搜索api，可惜只能response模式下使用，它还是用不了得等 ...</blockquote>
+pi可以用这个插件：
+https://pi.dev/packages/pi-deepseek-search
+
+—— 来自 Google Pixel 7 Pro, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
