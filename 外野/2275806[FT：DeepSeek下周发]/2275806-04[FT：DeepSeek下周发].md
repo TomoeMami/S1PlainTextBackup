@@ -7836,3 +7836,35 @@ MX.jpeg
 
 <img src="https://img.stage1st.com/forum/202608/04/153130dwq4wq6vwviw22wk.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  omnitoken  
+##### 5151#       发表于 2026-8-4 15:40
+
+ 本帖最后由 omnitoken 于 2026-8-4 15:41 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011532&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-4 15:27</a>
+
+感觉和……TAVO差不多？这玩意还能赚钱的？不都免费的自己接api吗</blockquote>
+总有小白用户不想折腾啊
+
+minimax在H股贬值厉害的原因也有海外收入靠文爱APP, 上不得台面而且天花板低
+
+总之这公司历史上就靠C端活着, 做视频模型还是说得通的, 只不过能不能靠它 翻身很难讲
+
+*****
+
+####  miraclefans  
+##### 5152#       发表于 2026-8-4 15:41
+
+兄弟们，最近用api写刘备，发现deepseek甲变厚了怎么办？
+
+*****
+
+####  Promeus  
+##### 5153#       发表于 2026-8-4 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011593&amp;ptid=2275806" target="_blank">miraclefans 发表于 2026-8-4 15:41</a>
+兄弟们，最近用api写刘备，发现deepseek甲变厚了怎么办？</blockquote>
+喂她本刘备再写
+
