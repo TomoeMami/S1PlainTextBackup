@@ -6747,3 +6747,30 @@ opencode go的地址国内还访问不了啊<img src="https://static.stage1st.co
 
 目前还是一直断断续续的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我怀疑是蹬的人太多了
 
+
+*****
+
+####  Alunamin  
+##### 5046#       发表于 2026-8-4 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008738&amp;ptid=2275806" target="_blank">M乔梦 发表于 2026-8-4 01:44</a>
+
+管理订阅啊，里面有一个手动关订阅的，你关了没？</blockquote>
+里面白白净净什么都没有
+
+image.png
+(37.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 10:38 上传
+
+<img src="https://img.stage1st.com/forum/202608/04/103823rw7ak1hzvvbba71z.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GJRstone  
+##### 5047#       发表于 2026-8-4 10:39
+
+pro都恢复了，肯定是flash被蹬的太狠了。上B站和小红书看看有没有什么新的大火教程吧
+

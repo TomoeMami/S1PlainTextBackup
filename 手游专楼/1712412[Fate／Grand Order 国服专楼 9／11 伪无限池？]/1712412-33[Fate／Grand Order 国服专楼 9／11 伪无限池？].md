@@ -1717,3 +1717,13 @@ QP真是永远痛
 
 不行得留点石头给水提妈<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kon-El  
+##### 48039#       发表于 2026-8-4 10:38
+
+手欠先把所长被动点了两个，然后拉120缺硬币<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，没办法又抽了下，总计1400石40呼符五宝所长
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -7155,3 +7155,11 @@ COST 6就是+12%。
 
 更别说还有全绝品武器这个图鉴坑。
 
+
+*****
+
+####  纯白花火  
+##### 855#       发表于 2026-8-4 10:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">pdd香港直邮233，是不是得等半个月
+
