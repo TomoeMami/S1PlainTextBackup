@@ -2065,3 +2065,16 @@ y这种长按跳过纯shit
 月之民说明了机战本家制作组是有能力做出优秀而且风格统一的战斗动画的，拜亚兰大师是真大师 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">月之民和本家版权作压根不是同一组人做的，一个人名都对不上，不存在月之民能证明本家能做好动画的逻辑。
 
+
+*****
+
+####  罐子  
+##### 204#       发表于 2026-8-4 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011992&amp;ptid=2286736" target="_blank">lbzlxx 发表于 2026-8-4 16:44</a>
+月之民说明了机战本家制作组是有能力做出优秀而且风格统一的战斗动画的，拜亚兰大师是真大师 ...</blockquote>
+2d动画这个东西，一分钱一分货
+给足资源当然能做好
+
+—— 来自 vivo V2454A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

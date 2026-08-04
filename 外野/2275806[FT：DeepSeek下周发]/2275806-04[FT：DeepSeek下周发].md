@@ -8035,3 +8035,22 @@ kimi也有很多感叹号
 
 两个半小时蹬里 1.7 亿。高速低费强指令遵循就是好<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奈落的孤火花  
+##### 5167#       发表于 2026-8-4 17:45
+
+有评测分析过kimi的上下文缓存时长吗？我搜着没有一个确切的答案，就说好像顶多半个小时。
+
+*****
+
+####  蜇灵  
+##### 5168#       发表于 2026-8-4 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010975&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-4 13:32</a>
+实际上我觉得国内模型能力最大的瓶颈还是数据而不是算力
+
+推理瓶颈是算力还差不多，但是模型能力本身还是要 ...</blockquote>
+也不一定吧，不然现在模型最强的应该是藤子<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

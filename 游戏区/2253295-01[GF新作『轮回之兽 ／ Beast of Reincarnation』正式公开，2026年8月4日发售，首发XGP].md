@@ -2131,3 +2131,56 @@ pokopia也是武士刀引擎
 
 都怪风波拖累gf，rtt鸭霸gf不给轮回之兽资源<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嘉术2015  
+##### 495#       发表于 2026-8-4 17:45
+
+这轮回之兽的发行方是gf自己吗
+
+怎么还会在国内发商单的，宝可梦都没见他们发过
+
+*****
+
+####  jacket  
+##### 496#       发表于 2026-8-4 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011781&amp;ptid=2253295" target="_blank">xiaohao123 发表于 2026-8-4 16:14</a>
+
+https://vgmdb.net/product/25759
+
+GF音乐最豪华的一次</blockquote>
+音乐是看到巨像boss就找大谷幸吗
+
+*****
+
+####  无限未来  
+##### 497#       发表于 2026-8-4 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70012337&amp;ptid=2253295" target="_blank">病態極端 发表于 2026-8-4 17:31</a>
+
+沒開超分。艾瑪腳下的石頭，廢屋中的水體，左側坡神祕高光、樹的種類數量和枝葉茂密程度、LoD距離。 ...</blockquote>
+不开超分那taa不是比dlss3更糊
+
+<img src="https://p.sda1.dev/34/bba4777812edc7e9990574b615c6f2ac/2026.08.04.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  h122h  
+##### 498#       发表于 2026-8-4 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70012424&amp;ptid=2253295" target="_blank">嘉术2015 发表于 2026-8-4 17:45</a>
+
+这轮回之兽的发行方是gf自己吗
+
+怎么还会在国内发商单的，宝可梦都没见他们发过 ...</blockquote>
+不是GF自己，发行商是Fictions，
+
+日本PS5实体发行商是happinet-games.
+
+香港好像是杰仕登
+
+国内具体不知道是谁
+

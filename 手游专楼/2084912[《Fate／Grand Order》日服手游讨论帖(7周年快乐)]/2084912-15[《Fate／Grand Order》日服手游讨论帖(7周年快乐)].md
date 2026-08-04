@@ -2027,3 +2027,44 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 双C的话就该被一星从者优化掉了...
 
+
+*****
+
+####  壳壳牛  
+##### 21254#       发表于 2026-8-4 17:50
+
+考虑到地狱任务还有cost限制，低星战神今后出场率恐大幅提升
+我玉要牢底坐穿了<img src="https://static.stage1st.com/image/smiley/face2017/159.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  Jamaisvu  
+##### 21255#       发表于 2026-8-4 17:50
+
+莫扎特可能有些内部爱或者现实名气加成吧，还挺受重视的。
+
+周年纪念礼装，小玉只有一个旅装，莫扎特有正装、旅装、祭装、巡游、祝装五身衣服。
+
+不过礼装这事可能跟画师档期有关，PFALZ就三个角色，而WADA要顾及FE一众人等，能给C玉画两张卡面已经受宠若惊了...
+
+*****
+
+####  exiaexa  
+##### 21256#       发表于 2026-8-4 17:50
+
+ 本帖最后由 exiaexa 于 2026-8-4 17:51 编辑 
+
+那点宝具威力其实影响真的不大
+
+因为蓝卡现在的问题就是伤害怎么都不够只能带黑杯
+
+你都带黑杯了你还缺那30宝威嘛
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+退一步来说，你不用黑杯
+
+那人家还有1T是50星，补刀稳定性也比你强啊，大家都看不起蓝暴，但是仍一张出去十来万还是有的
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
