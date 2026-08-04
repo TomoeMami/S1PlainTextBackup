@@ -6586,3 +6586,26 @@ cc；bypass
 
 昨天刚提到没有开源agent调ds的api网页搜索服务，今天reasonix更新日志就把Anthropic API的搜索功能给加上了，应该可以在reasonix里面用ds的服务端web搜索了。
 
+
+*****
+
+####  nxmonitor  
+##### 5029#       发表于 2026-8-4 09:39
+
+Qwen3.8在AA榜的code部分得分没超过V4F，是不是测得有问题？和Nao榜单差距有点大……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 5030#       发表于 2026-8-4 09:43
+
+<img src="https://img.stage1st.com/forum/202608/04/094247iycfyt80048kv4nk.png" referrerpolicy="no-referrer">
+
+<strong>1785807733034.png</strong> (432.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 09:42 上传
+
+opencode go的性能好像不如DS官方的，如果用量不大的话还是用官方的更好
+

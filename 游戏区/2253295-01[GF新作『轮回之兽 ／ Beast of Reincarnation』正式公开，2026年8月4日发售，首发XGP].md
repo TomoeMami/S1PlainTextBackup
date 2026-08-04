@@ -1515,3 +1515,14 @@ GF招新的能力要求在日厂里算非常高的了吧，然后招进来除了
 剧情过场动画配音一团糟 正式版还是如此  ...</blockquote>
 感觉就是……导演和编剧可能是庵野痞子的拥趸，喜欢大量的空镜，留白，还有长时间非静止画面让玩家自己解读。人物表情是完全没有的（人均凌波丽），配音是AI完成的（谷歌翻译棒读都更有感情），角色互动是无用的（主要是吃、养鸡和种地），前两章玩完主角团性格最开朗的角色竟然不会说人话（狗子）。然后各种突兀的剧情倒序，混乱的游戏机制引导，看得出动作系统里制作组非常卖力地在推被动+霸主技+发丝的那套立体机动，但实际打怪永远是打铁+狗子技+闪避红光来的收益更实在。这种无时无刻不在左右脑互博的感觉玩得人一头雾水。
 
+
+*****
+
+####  根正苗红  
+##### 436#       发表于 2026-8-4 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008966&amp;ptid=2253295" target="_blank">我特么吹爆 发表于 2026-8-4 08:06</a>
+顺带一提：IGN 6</blockquote>
+那不是说明能玩吗？毕竟剑星也就是ign7分水平<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+感谢g胖，尽管预购了，但可以看看风评是不是要退款<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
