@@ -2109,3 +2109,21 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">青子可是坐拥出星 缓充 三色魔放 对肃正防御 自身100充 50群充减2CD 还有高贵的白魔放和AOE红卡跟EX卡 宝具甚至万物特攻自带无敌贯通无视防御的超级数值怪
 
+
+*****
+
+####  壳壳牛  
+##### 21261#       发表于 2026-8-4 20:04
+
+直达南极的献血车说是<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/04/200234m9ouz7wd9udkfkdz.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1785844953945_1.webp</strong> (85.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 20:02 上传
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

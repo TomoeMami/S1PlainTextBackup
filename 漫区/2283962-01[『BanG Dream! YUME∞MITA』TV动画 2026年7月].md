@@ -369,3 +369,28 @@ yuno倒是五个人里比较像Vtb的，相对而言吧，不知道后面会不�
 刚来，几点制裁坏女人</blockquote>
 这么多扭曲的颜艺，应该叫恶毒女人了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">，话说回来总感觉忘了哪里好像，恶毒女人某个表情是不是真心流露了一下？
 
+
+*****
+
+####  aptx8285144  
+##### 171#       发表于 2026-8-4 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69961249&amp;ptid=2283962" target="_blank">帆前 发表于 2026-7-24 21:11</a>
+
+怎么感觉进度忒快啊，没什么时间适应了
+
+经纪人居然有建模，失算了</blockquote>
+这人身上有很多集反派元素于一体的感觉，最初似乎是“主角是苦主里的黄毛担当”<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">，但是手段又像宫斗剧里的女反派，有时面对她自己那个团时又稍微正经一点，又像天使与龙的欧布利欧或少革里的风晓声，但是颜艺和快速撕下面具的程度或者说官方不让其伪装的意图比之当年的两位要明显很多，估计还是季番原因和邦邦题材的限制
+
+*****
+
+####  aptx8285144  
+##### 172#       发表于 2026-8-4 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69956322&amp;ptid=2283962" target="_blank">新HGCG 发表于 2026-7-23 22:30</a>
+
+看完这集对薇奥拉作为反派的好感度提高
+
+就喜欢这种有行动力的坏人</blockquote>
+一般ntr文里主角做苦主的黄毛、宫斗剧里的女反派、天使与龙里的恩布利欧或少革的风晓声里“偶尔正经”或蛊惑人心，薇奥拉灵活切换好几个身份<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

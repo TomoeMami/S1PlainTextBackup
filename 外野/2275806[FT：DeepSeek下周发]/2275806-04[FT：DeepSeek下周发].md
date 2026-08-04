@@ -8288,3 +8288,87 @@ zcode 上用 DeepSeek  有啥优势吗</blockquote>
 
 你们是不是蹬太猛了把opencode go蹬烂了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  脸宽  
+##### 5193#       发表于 2026-8-4 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70013058&amp;ptid=2275806" target="_blank">akirt 发表于 2026-8-4 20:03</a>
+
+你们是不是蹬太猛了把opencode go蹬烂了</blockquote>
+我说怎么不行了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小野賢章  
+##### 5194#       发表于 2026-8-4 20:08
+
+opencode go本来就是转发的吧，官方的API也蹬烂了
+
+<img src="https://img.stage1st.com/forum/202608/04/200747izmmddjjjmzptzju.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 20:07 上传
+
+*****
+
+####  nxmonitor  
+##### 5195#       发表于 2026-8-4 20:10
+
+这不是pro的接口吗？
+
+
+*****
+
+####  来都来了  
+##### 5196#       发表于 2026-8-4 20:13
+
+api好慢啊，求你们别蹬小鲸鱼了，让我一个人蹬<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  龙骑士尹志平  
+##### 5197#       发表于 2026-8-4 20:14
+
+k3真可怕，大肥鱼个瞎子，ui怎么都改不好，我就让k3改，几分钟就改了好几刀改出5小时限额了
+
+*****
+
+####  奈落的孤火花  
+##### 5198#       发表于 2026-8-4 20:14
+
+又挂了啊 梁圣给点力 急着用<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  来都来了  
+##### 5199#       发表于 2026-8-4 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70012983&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-4 19:43</a>
+
+扩展性好和有没有桌面端是两个完全没关系的问题吧。。。
+
+现在国外主流agent桌面端都很烂只是因为不重视而 ...</blockquote>
+我昨晚学claude cli，学了3个小时把我学破防了，没见过这么难用的界面<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤星ビスコ  
+##### 5200#       发表于 2026-8-4 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010873&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-4 13:09</a>
+
+那看MiniMax怎么定位自己了呗，他们毕竟不是字节，目前看既活不成ds的样子，又活不成kimi的样子。
+
+作为开源 ...</blockquote>
+minimax的音频模型和视频模型其实用的人很多
+
+我认识在做一些看上去很土的AI项目的公司，AI配音/AI直播带货/AI播片之类的，minimax的音频视频API价格和性能考虑来看蛮有竞争力。特别海外市场，minimax目前也是排前面的。
+
+seedance这种好归好，但太贵了，实际上不做复杂场景，单纯人物替换之类的，便宜模型就好
+
