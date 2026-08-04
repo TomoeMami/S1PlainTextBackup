@@ -2189,3 +2189,19 @@ MD的素材复用也很严重
 
 我上次在b站刷到个金属滤镜的og，那画面绝了，可惜是收费的，我就没关注，还真想在steam上玩og，至少画面不能比民间的差
 
+
+*****
+
+####  闽明  
+##### 215#       发表于 2026-8-4 20:49
+
+<img src="https://img.stage1st.com/forum/202608/04/204806gkjt2oyoppspboo5.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260804_120737(1).jpg</strong> (114.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 20:48 上传
+
+破界是我第一部买的机战正版，还是买了带这个特典盒子的版本<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
