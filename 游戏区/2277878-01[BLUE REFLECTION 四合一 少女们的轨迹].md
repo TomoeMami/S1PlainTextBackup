@@ -1467,3 +1467,14 @@ Pc版那么大吗
 
 <img src="https://p.sda1.dev/34/8c8fce0f89de61a3cef3cf8951cb68d6/27980.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Xenor  
+##### 125#       发表于 2026-8-4 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70009413&amp;ptid=2277878" target="_blank">达达葱2 发表于 2026-8-4 09:27</a>
+
+Pc版那么大吗</blockquote>
+又大又值<img src="https://static.stage1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">安装档32G相当于中日英三版合集
+

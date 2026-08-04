@@ -8250,3 +8250,18 @@ zcode 上用 DeepSeek  有啥优势吗</blockquote>
 
 之前还弄了个glm5.2, 上下文只够跑60k 残废,明天把那个干了也换成dsv4 flash
 
+
+*****
+
+####  hugosol  
+##### 5189#       发表于 2026-8-4 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70012782&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-4 18:54</a>
+
+我超 拓展性好不会是意味着没有桌面版吧能不能给非超能力者🤏活路
+
+—— 来自 HUAWEI SGU-AL10, Android  ...</blockquote>
+扩展性好和有没有桌面端是两个完全没关系的问题吧。。。
+
+现在国外主流agent桌面端都很烂只是因为不重视而已
+
