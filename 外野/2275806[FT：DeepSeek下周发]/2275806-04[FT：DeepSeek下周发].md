@@ -7433,3 +7433,45 @@ Nope。
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  startraveller  
+##### 5115#       发表于 2026-8-4 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010877&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-4 13:10</a>
+问题是他自己的判断是今年年底出fable5级别模型，按照时间来看应该是5.5再后训练一两轮，然而灰测pro最后 ...</blockquote>
+5.3没换底模，大家都是后训仙人。能打DSV4 Pro GA的可能性不大，5.5最快得月底了，和fable 5.1、GPT6，kimi 3.1说去吧。
+
+*****
+
+####  startraveller  
+##### 5116#       发表于 2026-8-4 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010893&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-4 13:15</a>
+还是很难相信1.6T能搞成这样子，token效率还有了极大的提升，拿出来看如果是真的只能说DS技术领先一个身 ...</blockquote>
+你看Ds4 flash才284B……
+
+*****
+
+####  lactone  
+##### 5117#       发表于 2026-8-4 13:32
+
+实际上我觉得国内模型能力最大的瓶颈还是数据而不是算力
+
+推理瓶颈是算力还差不多，但是模型能力本身还是要高质量数据来训练，尤其是现在后训练优势这么大
+
+国内这几个基模的水平都是顶级的，之前就是后训练没跟上
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  李少卿  
+##### 5118#       发表于 2026-8-4 13:37
+
+地方政府和部委一直在有意识的收集以及开发数据集。受制于政策和变现难度没有肉眼可见进展罢了。
+
+—— 来自 OnePlus CPH2581, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
