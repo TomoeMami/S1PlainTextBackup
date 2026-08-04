@@ -8661,3 +8661,18 @@ k3现在还能买coding plan 吗，大家都去蹬鲸鱼娘了，k3应该放开�
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  奈落的孤火花  
+##### 5231#       发表于 2026-8-5 00:02
+
+你们deepseek默认就用effort max吗，是说会根据情况用high或者max
+
+*****
+
+####  →熙←  
+##### 5232#       发表于 2026-8-5 00:04
+
+opencode go太慢了, 还限制并发, 不可能蹬完啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
