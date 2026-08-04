@@ -7918,3 +7918,75 @@ pi有什么好使的git管理？
 
 2026-8-4 16:10 上传
 
+
+*****
+
+####  gregor  
+##### 5158#       发表于 2026-8-4 16:17
+
+deepseek v4 flash 又有点问题了
+
+*****
+
+####  wandeeees  
+##### 5159#       发表于 2026-8-4 16:18
+
+V4F现在是真喜欢感叹号，感觉鲸鱼娘一直在激情澎湃的干活呢
+
+<img src="https://img.stage1st.com/forum/202608/04/161814ngw1s6eiwfgxpzsh.png" referrerpolicy="no-referrer">
+
+<strong>10b8f6ad-dcc5-4981-ad71-e806e440f1ce.png</strong> (1.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 16:18 上传
+
+<img src="https://img.stage1st.com/forum/202608/04/161814u07f4iv0xte7505e.png" referrerpolicy="no-referrer">
+
+<strong>0b81b13a-98cb-4980-89c0-b2949f080f01.png</strong> (3.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 16:18 上传
+
+<img src="https://img.stage1st.com/forum/202608/04/161814k2frz47410wt48t0.png" referrerpolicy="no-referrer">
+
+<strong>d5317fde-9a19-49ad-b145-49447009a4f1.png</strong> (2.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 16:18 上传
+
+<img src="https://img.stage1st.com/forum/202608/04/161815w08wnp09nuulrrk9.png" referrerpolicy="no-referrer">
+
+<strong>70a084e0-fd46-4682-92f0-82441a06cf8a.png</strong> (1.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 16:18 上传
+
+<img src="https://img.stage1st.com/forum/202608/04/161815c9g9292y3h3wy4iw.png" referrerpolicy="no-referrer">
+
+<strong>1343748a-04a4-4bf8-972f-153b05c5e910.png</strong> (3.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 16:18 上传
+
+*****
+
+####  当光停止  
+##### 5160#       发表于 2026-8-4 16:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鲸鱼之前发的论文还是得好好看啊。
+
+
+*****
+
+####  Promeus  
+##### 5161#       发表于 2026-8-4 16:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011799&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-4 16:18</a>
+V4F现在是真喜欢感叹号，感觉鲸鱼娘一直在激情澎湃的干活呢</blockquote>
+好像是蒸馏pro的结果
+
