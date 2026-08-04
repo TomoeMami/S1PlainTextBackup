@@ -2521,3 +2521,177 @@ https://www.nintendo.com/jp/games/switch2/aacsa/
 
 给直面会的游戏应该水准在线，否则就该像银河战士那样直接冷处理。
 
+
+*****
+
+####  会长辅佐  
+##### 1739#       发表于 2026-8-4 22:46
+
+这次迈的步子有丶大了，希望不会扯到蛋
+
+*****
+
+####  zzzplht  
+##### 1740#       发表于 2026-8-4 22:48
+
+想用自捏把凯的青梅竹马牛走。我的愿望能实现吗。
+
+*****
+
+####  Nez  
+##### 1741#       发表于 2026-8-4 22:49
+
+纵观整个系列可操作角色五六十个才是常态吧，虽然能用的也就那么几个，三房和engage才是走的人员精简化路线
+
+*****
+
+####  暗口崩子  
+##### 1742#       发表于 2026-8-4 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70013747&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-8-4 22:45</a>
+
+揉的可不止，基本上自家过去的和现在各类知名jrpg的特色全揉进去了
+
+自家的回声、觉醒、系谱、三房</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">IS能把并行写好？你怎么会做这种梦
+
+我现在对本作的预期就是gameplay比三房好玩，剧情比engage强
+
+*****
+
+####  Jabeck  
+##### 1743#       发表于 2026-8-4 22:49
+
+就四个主角的特殊技能全收后又不一起上的可能吗？
+
+*****
+
+####  苍蓝之枪  
+##### 1744#       发表于 2026-8-4 22:49
+
+这剧本结构可比风花雪月强太多了，多线并进的话本质就是单线，也避免了重复问题
+
+只要没有哪个角色又整逆天大活就行
+
+*****
+
+####  fmban  
+##### 1745#       发表于 2026-8-4 22:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70013719&amp;ptid=2261859" target="_blank">龘䶛䨻䎱㸞蚮䡶 发表于 2026-8-4 22:37</a>
+四线并行不就肯定角色一大堆吗，角色多反而更能上全女队吧，总不可能每次都强制让你锁定五个主角吧
+
+—— ...</blockquote>
+假设五年前四条线都玩且角色不互通，萌萌哒就这么多，看起来不够分
+
+*****
+
+####  caicaistar  
+##### 1746#       发表于 2026-8-4 22:50
+
+不是
+
+前期一个时间线 我切换4个人物 一个时间段打4遍
+
+到真主角 我再回到那个时间线 再过一遍这个时间段
+
+情绪调动不起来啊，只觉得麻烦
+
+*****
+
+####  陆久舟  
+##### 1747#       发表于 2026-8-4 22:50
+
+男自捏cv是松冈，女CV是井上麻里奈
+
+*****
+
+####  bingo0716  
+##### 1748#       发表于 2026-8-4 22:50
+
+不是，风花雪月是1180年，这作是1449年，怎么还有人说是前传啊？
+
+*****
+
+####  takayama  
+##### 1749#       发表于 2026-8-4 22:51
+
+这些差不多算是IS窥视改版界的成果是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+打手枪，枪兵+魔法，安娜桑骑大象，还有战车<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/04/225114vxwhnxn31tlpyezh.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ20260804-223856.jpg</strong> (325.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 22:51 上传
+
+<img src="https://img.stage1st.com/forum/202608/04/225110pk2b5zhb5tbh5hut.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ20260804-224039.jpg</strong> (328.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 22:51 上传
+
+<img src="https://img.stage1st.com/forum/202608/04/225109z3c85vr9pr3fshnv.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ20260804-224107.jpg</strong> (298.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 22:51 上传
+
+<img src="https://img.stage1st.com/forum/202608/04/225110qboapqhg0jjjzv0u.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ20260804-224234.jpg</strong> (363.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 22:51 上传
+
+
+*****
+
+####  hkguty  
+##### 1750#       发表于 2026-8-4 22:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70013771&amp;ptid=2261859" target="_blank">bingo0716 发表于 2026-8-4 22:50</a>
+
+不是，风花雪月是1180年，这作是1449年，怎么还有人说是前传啊？</blockquote>
+风花雪月是帝国历，这作用的是达古撒历
+
+*****
+
+####  takayama  
+##### 1751#       发表于 2026-8-4 22:54
+
+顺便肯定是不会缺子安桑，只不过这次赛迪斯是金发<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/04/225351e6vt6m96hwih7mvt.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ20260804-224447.jpg</strong> (312.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 22:53 上传
+
+差不多这个就是黑皮女性队伍了
+
+<img src="https://img.stage1st.com/forum/202608/04/225348ikxmmjmn0gqc0tmg.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ20260804-224732.jpg</strong> (370.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 22:53 上传
+
+*****
+
+####  苍蓝之枪  
+##### 1752#       发表于 2026-8-4 22:55
+
+能并行推进就意味着四线关卡必然是不同的
+
