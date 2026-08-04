@@ -3582,3 +3582,31 @@ https://www.nintendo.com/jp/games/switch2/aacsa/
 看楼上的讨论，真主角在剧情里纯纯工具人，大部分时间都在 ...</blockquote>
 至少确认有正经的牵绊对话，不是Engage那种敷衍的
 
+
+*****
+
+####  零崎不识  
+##### 1842#       发表于 2026-8-5 02:06
+
+<img src="https://img.stage1st.com/forum/202608/05/020622ckblinz8vgy3uil8.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1785866499697.jpg</strong> (29.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 02:06 上传
+
+终于跟上时代了，成长率公开化，再也不用动不动一边玩游戏一边查资料了
+
+*****
+
+####  巨馍蘸酱  
+##### 1843#       发表于 2026-8-5 02:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014410&amp;ptid=2261859" target="_blank">哲学向黑子 发表于 2026-8-5 01:39</a>
+
+没看发布会，这作有说包含恋爱和战后配种要素吗
+
+看楼上的讨论，真主角在剧情里纯纯工具人，大部分时间都在 ...</blockquote>
+至少确认有正经的牵绊对话，不是Engage那种敷衍的
+
