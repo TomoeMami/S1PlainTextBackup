@@ -7647,3 +7647,44 @@ minimax很长一段时间靠出海文爱搞钱养训练团队</blockquote>
 
 codex上用上dsv4f，是不是就是多模态了？我刚试了下，可以识图了
 
+
+*****
+
+####  pf67  
+##### 5135#       发表于 2026-8-4 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010966&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-4 13:31</a>
+
+你看Ds4 flash才284B……</blockquote>
+你们也许是都没用过qwen3.6 27b模型
+
+这27b模型能力可以和非正式版的 284b 的ds4 flash打的有来有回
+
+
+*****
+
+####  phorcys02  
+##### 5136#       发表于 2026-8-4 14:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70010869&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-4 13:08</a>
+
+智谱也没有建完，怎么可能现在有1GW级别的国产算力卡给他用。整个一个都是外媒报道真假混杂再加上传话手 ...</blockquote>
+1MW大概对应 1000张卡 大概.
+
+1GW可是100w张卡....
+
+*****
+
+####  crow_wine  
+##### 5137#       发表于 2026-8-4 14:47
+
+<img src="https://img.stage1st.com/forum/202608/04/144613x3n8olln8ssjoofb.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (5.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 14:46 上传
+
+一等公民可还行，我文档里可是正儿八经的论文写作没有这种字眼的<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
