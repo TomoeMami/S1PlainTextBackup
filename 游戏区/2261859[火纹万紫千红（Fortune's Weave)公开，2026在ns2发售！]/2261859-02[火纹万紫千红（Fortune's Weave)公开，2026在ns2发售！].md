@@ -2155,3 +2155,234 @@ Dante妹子真不错，可以收编的吧
 
 除了人设感觉都还可以啊，预定一个试试水<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴尔干炮  
+##### 1699#       发表于 2026-8-4 22:26
+
+野心十足的一作。
+
+*****
+
+####  1wq1  
+##### 1700#       发表于 2026-8-4 22:26
+
+既然有5年后是不是几个小屁孩会有5年后的新立绘了，还是穿越之后直接5年前就把boss干翻了
+
+*****
+
+####  没取名啊  
+##### 1701#       发表于 2026-8-4 22:26
+
+穿越回去打4遍五年前，然后来到五年后复仇者集结打魔人布欧，重复性少的话就能一周目玩通全部内容了
+
+*****
+
+####  bad_alloc  
+##### 1702#       发表于 2026-8-4 22:26
+
+挺好的，别再互相杀了，大家和谐一点一起打怪兽
+
+这样写剧本应该不会太捞吧（
+
+*****
+
+####  clyde-wang  
+##### 1703#       发表于 2026-8-4 22:26
+
+ 本帖最后由 clyde-wang 于 2026-8-4 22:30 编辑 
+
+我看油 管说风花雪月的赛老师出现了，虽然黄头发，但是发梢有绿色
+
+<img src="https://img.stage1st.com/forum/202608/04/222948qnn5v208yass148c.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-08-04 22 29 31.jpg</strong> (379.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 22:29 上传
+
+*****
+
+####  会长辅佐  
+##### 1704#       发表于 2026-8-4 22:26
+
+藏了好几个好看的女角色，不清楚到底咋宣发的，自捏也藏的严严实实
+
+*****
+
+####  蓝色暴鲤龙  
+##### 1705#       发表于 2026-8-4 22:26
+
+感觉这次有大型dlc，无双衍生作应该也有，阵仗搞挺大
+
+*****
+
+####  yt5wt2c  
+##### 1706#       发表于 2026-8-4 22:27
+
+四个势力都能收，怎么感觉要变成透魔饮水机大军了
+
+*****
+
+####  大阪  
+##### 1707#       发表于 2026-8-4 22:27
+
+还是觉得战场外的内容太多了。
+
+前半看得我头皮发麻。
+
+*****
+
+####  はちたや  
+##### 1708#       发表于 2026-8-4 22:27
+
+不知道这个魔神会塑造吗，过去5年应该有草蛇灰线吧
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不过过了5年四个人就变成雕像了还是很难崩
+
+*****
+
+####  暗口崩子  
+##### 1709#       发表于 2026-8-4 22:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我有点好奇，主视角是从白色嘉豪展开还是从自选四主角展开
+
+如果是从四主角展开挖角的队友算临时队友还是切换线路时一起带去
+
+这个机制下感觉会做成主角+挖角队友，然后切换视角的时候切换几个固定小弟
+
+*****
+
+####  duraa  
+##### 1710#       发表于 2026-8-4 22:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最后打最终boss会变成轨迹打团么
+
+*****
+
+####  Isshihnk  
+##### 1711#       发表于 2026-8-4 22:29
+
+缝这么多要素感觉不是神就是粪
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  会长辅佐  
+##### 1712#       发表于 2026-8-4 22:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">到后面能变成三四十个人围殴最终boss吗
+
+*****
+
+####  光之阶梯  
+##### 1713#       发表于 2026-8-4 22:30
+
+然后打最终boss一人来一句？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2548A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  纯夏  
+##### 1714#       发表于 2026-8-4 22:30
+
+不是 你都把JRPG的标准回合制战斗加进去了 还要战棋模式干嘛啊 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hl氏  
+##### 1715#       发表于 2026-8-4 22:31
+
+这作看来成本不低，希望不会滑铁卢吧，下本了所以要搭上销冠的世界壮胆，对IS的剧本完全没信心，别得罪销冠的玩家被埋葬
+
+*****
+
+####  thecatnie  
+##### 1716#       发表于 2026-8-4 22:31
+
+反向版的英灵神殿？
+
+*****
+
+####  fmban  
+##### 1717#       发表于 2026-8-4 22:31
+
+四线并行有个大问题就是可能不得不用尼哥了，本来打算只上好看的女角色<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Nez  
+##### 1718#       发表于 2026-8-4 22:32
+
+时间线基本确认是前传了吧，西提司黄毛时期的故事，不知道有没有芙莲她妈
+
+*****
+
+####  hkguty  
+##### 1719#       发表于 2026-8-4 22:32
+
+女神之歌出来真有点小激动
+
+*****
+
+####  hl氏  
+##### 1720#       发表于 2026-8-4 22:33
+
+马上品鉴，这首真喜欢
+
+image.png
+(195.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 22:33 上传
+
+<img src="https://img.stage1st.com/forum/202608/04/223313ti1jgvg3dvbgit3f.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  u2deack  
+##### 1721#       发表于 2026-8-4 22:33
+
+几个主角看着强度不低 想不用不好看的角色应该可以不用
+
+*****
+
+####  tachikoma27  
+##### 1722#       发表于 2026-8-4 22:33
+
+又要起飞咯母们火纹<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  xiaohao123  
+##### 1723#       发表于 2026-8-4 22:35
+
+2026.08.04 - Special Release Fire Emblem Fortune's Weave
+[https://pixeldrain.com/u/u8r19onU](https://pixeldrain.com/u/u8r19onU)
+
+先行的10首音乐
+
+*****
+
+####  会长辅佐  
+##### 1724#       发表于 2026-8-4 22:35
+
+所以会有五年后立绘吗还是单纯直接就五年前穿越过去了
+
+*****
+
+####  没取名啊  
+##### 1725#       发表于 2026-8-4 22:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70013659&amp;ptid=2261859" target="_blank">暗口崩子 发表于 2026-8-4 22:29</a>
+我有点好奇，主视角是从白色嘉豪展开还是从自选四主角展开
+
+如果是从四主角展开挖角的队友算临时队友还是切 ...</blockquote>
+直面会里提到了，游戏开场就是五年后魔人来袭，世界面临末日。应该一上来就是白毛受女神指引穿越回5年前
+

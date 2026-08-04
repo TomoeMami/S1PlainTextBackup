@@ -8593,3 +8593,36 @@ v4f做算法还是不太行，得等pro的正式版了
 
 今天试了一下pi，也太丝滑了吧，速度飞快<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奈落的孤火花  
+##### 5224#       发表于 2026-8-4 22:28
+
+啊啊啊啊这官网还是一切正常我靠，今晚上看来是没法用了
+
+<img src="https://img.stage1st.com/forum/202608/04/222836on69ozu659n6b676.png" referrerpolicy="no-referrer">
+
+<strong>1635.png</strong> (128.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 22:28 上传
+
+
+*****
+
+####  cscbzcbz  
+##### 5225#       发表于 2026-8-4 22:34
+
+我为啥晚上用起来感觉还好<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  crow_wine  
+##### 5226#       发表于 2026-8-4 22:36
+
+我今晚也跑了 2.7 亿，感觉还好
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
