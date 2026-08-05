@@ -3736,3 +3736,25 @@ IMG_0970.jpeg
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  The_Fool_  
+##### 1852#       发表于 2026-8-5 08:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014603&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-8-5 07:47</a>
+该给个固定成长选项吧，不想凹点了
+
+论坛助手,iPhone</blockquote>
+你别说，万紫千红要是真有EGG那种固定成长模式，那我立马忽视含尼量太高的问题转而决定购买本作<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  聊nsy专用号  
+##### 1853#       发表于 2026-8-5 08:05
+
+这宣发视频怎么直接给五年后的剧情透光了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
