@@ -7369,3 +7369,11 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  doraemonmilmil  
+##### 875#       发表于 2026-8-5 18:50
+
+就算打到200多层回去再刷一只100层boss依旧刮痧，不吃冰冻拿他没办法，需要一把极度重视连射的双枪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
