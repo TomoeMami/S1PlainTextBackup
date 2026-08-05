@@ -10048,3 +10048,41 @@ codex雷达上一直在坡底…
 
 官方的其实比opencode go里的性能强一点，长上下文的时候很明显
 
+
+*****
+
+####  王兰花秀丽  
+##### 5363#       发表于 2026-8-5 19:48
+
+梁子啊，5号过去还能叫月初吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  scikirbypoke  
+##### 5364#       发表于 2026-8-5 19:49
+
+继续发pi插件
+[https://pi.dev/packages/@firstpick/pi-extension-safety-guard](https://pi.dev/packages/@firstpick/pi-extension-safety-guard)
+
+唯一能用的防误删，之前试过N个沙盒和权限插件，要么太烦、要么规则一堆但对复合指令无能为力、要么沙盒默认防联网防gpg把git和gradle炸掉还不防误删当前目录
+[https://pi.dev/packages/@alexanderfortin/pi-deepseek-usage](https://pi.dev/packages/@alexanderfortin/pi-deepseek-usage)
+
+实时DeepSeek官网余额
+[https://pi.dev/packages/pi-cache-optimizer](https://pi.dev/packages/pi-cache-optimizer)
+
+缓存率优化，有待测试
+
+
+*****
+
+####  R.I.P  
+##### 5365#       发表于 2026-8-5 19:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018917&amp;ptid=2275806" target="_blank">lly778 发表于 2026-8-5 17:48</a>
+codex最离谱的是新版本不能调用luna作为子代理，这个bug好几天了也不修。
+
+—— 来自 Xiaomi 2211133C, And ...</blockquote>
+可以套一层paseo
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
