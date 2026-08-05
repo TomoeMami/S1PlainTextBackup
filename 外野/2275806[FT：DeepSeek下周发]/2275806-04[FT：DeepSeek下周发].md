@@ -9247,3 +9247,31 @@ Hermes可以配置辅助模型把网页信息压缩
 opencode go这大客户被deepseek 限流了。我的天，pro上线咋整啊这个蹬法    Re:Source ...</blockquote>
 草，我才买的套餐<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蜇灵  
+##### 5287#       发表于 2026-8-5 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016045&amp;ptid=2275806" target="_blank">zzxzz1019 发表于 2026-8-5 11:36</a>
+OpenCode go在叫苦了</blockquote>
+限流就限流吧，别崩溃就行<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tsubasa9  
+##### 5288#       发表于 2026-8-5 12:31
+
+workbuddy正常使用中，还是薅羊毛舒服
+
+*****
+
+####  neptunehs  
+##### 5289#       发表于 2026-8-5 12:31
+
+结果就是v4f这么便宜了 还是不够世界用的
+也不知道未来能不能有够的一天
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
