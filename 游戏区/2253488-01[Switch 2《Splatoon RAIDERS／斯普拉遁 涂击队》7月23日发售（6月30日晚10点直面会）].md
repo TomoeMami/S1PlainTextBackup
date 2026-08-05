@@ -7386,3 +7386,16 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 打到210多层，全宝藏了。拿着多升级了很多次的重刷打100层，时间从19分钟变成了9分钟<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">。
 看到通关后陆续数宝藏的画面，想起以前用GAME BOY玩瓦力奥大陆1，最后结局画面也会跟着获得宝藏数改变，真怀念<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leyenda  
+##### 877#       发表于 2026-8-5 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70019095&amp;ptid=2253488" target="_blank">Kiyohara_Yasuke 发表于 2026-8-5 18:23</a>
+
+100层好难啊，拿个引擎重刷清小怪都累得要死没空躲boss，好想要丙烷爆破枪
+
+论坛助手,iPhone ...</blockquote>
+带个钩锁boss出招就锁他头，随便无敌躲的
+
