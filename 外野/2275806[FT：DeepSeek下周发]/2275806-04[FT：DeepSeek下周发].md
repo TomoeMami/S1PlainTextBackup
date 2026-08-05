@@ -10566,3 +10566,13 @@ pro有效上下文能达到500k吗
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  crow_wine  
+##### 5375#       发表于 2026-8-5 22:48
+
+已经用到flash的极限性能了，解几何算法bug还是为难它了
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
