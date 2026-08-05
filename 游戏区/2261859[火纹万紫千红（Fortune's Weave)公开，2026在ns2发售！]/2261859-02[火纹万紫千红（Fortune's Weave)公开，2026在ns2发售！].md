@@ -6016,3 +6016,32 @@ https://www.bilibili.com/video/BV16sMq6FEnc ...</blockquote>
 
 名声则是靠做任务获取
 
+
+*****
+
+####  零崎不识  
+##### 2067#       发表于 2026-8-5 17:16
+
+看下来，大剑斗祭虽然是主线，但想抵达全员存活的真结局，舔大地图是必须的
+
+这个大地图做的非常大，这么大的地图如果和主线无关，纯浪费资源，所以很可能这一作的反派并不是只在首都活动，而是在全国各地都在推动某种邪恶计划，四主角要一边参加大剑斗祭，一边在大地图舔图，去解决反派在各地搞事，这其实是另一部分的主线
+
+想直达无人存活的be，其实就是一路不舔地图，直接干大剑斗祭，这样全国的反派搞事就没人去解决，一切就会往最坏的方向发展
+
+
+*****
+
+####  蓮華  
+##### 2068#       发表于 2026-8-5 17:23
+
+<img src="https://img.stage1st.com/forum/202608/05/172343mffg9gsdg7x6af2d.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4271.jpeg</strong> (224.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-5 17:23 上传
+
+这个meme好好玩
+

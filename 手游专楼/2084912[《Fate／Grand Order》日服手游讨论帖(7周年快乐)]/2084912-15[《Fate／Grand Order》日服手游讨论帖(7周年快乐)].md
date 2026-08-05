@@ -2198,3 +2198,16 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 米缸明年不中的还会有你吗？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 21270#       发表于 2026-8-5 17:18
+
+我们枪冠战终于有新的拐了
+
+炎头现在群体20攻、30爆伤、20星、25红
+
+还不错
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

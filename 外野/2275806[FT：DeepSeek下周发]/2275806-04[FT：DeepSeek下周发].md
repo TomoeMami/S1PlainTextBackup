@@ -9832,3 +9832,47 @@ kimi这也太慢了，受不了了
 前面有一层推荐的openfic这两天玩了玩还挺可以的。比酒馆轻量，而且效果不错。 ...</blockquote>
 这个怎么破甲，把前面楼推荐的破解加入角色提示词最前面，也破不动
 
+
+*****
+
+####  Awanano  
+##### 5341#       发表于 2026-8-5 17:17
+
+感觉5.6+v4f这两天有点区了，本来V4F提的速度很高，因为这两个混在一起很喜欢搞有的没的harness繁文缛节，不准繁文缛节的约束因为分层了所以传递不顺畅，V4F狂瞎搞反而更慢了
+
+*****
+
+####  R.I.P  
+##### 5342#       发表于 2026-8-5 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018025&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-5 15:52</a>
+
+昨晚一个群友蹬了10亿，花了48元，我算了一下缓存命中率97%，如果全部换成pro，就是100元左右，根据多渠道 ...</blockquote>
+opencode go还能再便宜些
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5343#       发表于 2026-8-5 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018727&amp;ptid=2275806" target="_blank">Awanano 发表于 2026-8-5 17:17</a>
+感觉5.6+v4f这两天有点区了，本来V4F提的速度很高，因为这两个混在一起很喜欢搞有的没的harness繁文缛节， ...</blockquote>
+最近这几天5.6有些降智
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  Awanano  
+##### 5344#       发表于 2026-8-5 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018739&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-5 17:18</a>
+
+最近这几天5.6有些降智
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0</blockquote>
+我觉得两个都降了
+
+传递下去V4F的工作正确率不高，本身5.6也有问题，很喜欢搞什么冻结合同哈希balabala，传递下去一次做不对，就疯狂倒脚，然后开始出现遗忘偏移
+

@@ -7342,3 +7342,13 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 
 5级的武器怎么卖不了
 
+
+*****
+
+####  otakun  
+##### 872#       发表于 2026-8-5 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018699&amp;ptid=2253488" target="_blank">才口千 发表于 2026-8-5 17:13</a>
+5级的武器怎么卖不了</blockquote>
+解锁，5星入手默认锁了的
+
