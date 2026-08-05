@@ -2430,3 +2430,11 @@ ag说没商单，基本上就是邀请他们去线下提早体验，然后做视
 
 —— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  mjzs07  
+##### 522#       发表于 2026-8-5 08:41
+
+豆包说ps5pro三十帧 是真的吗
+
