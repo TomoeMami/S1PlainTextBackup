@@ -3816,3 +3816,20 @@ IMG_0970.jpeg
 
 这个四线并行就是随时穿越到五年后再选线吧，估计五年前难度不会太高。
 
+
+*****
+
+####  bad_alloc  
+##### 1860#       发表于 2026-8-5 09:03
+
+四线并行的话不知道挖角要怎么算了，还有五年后看着有4个方尖碑，不知道是选一个还是能全点亮
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  28201  
+##### 1861#       发表于 2026-8-5 09:05
+
+能不能选男主带女主去打<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 现在公布的里面我还真最喜欢白毛女主了
+
