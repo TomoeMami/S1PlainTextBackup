@@ -8928,3 +8928,27 @@ flash不用，因为官方配置里没有加，这方面按官方的接入指南
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5257#       发表于 2026-8-5 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70015530&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-5 10:34</a>
+现在订阅用得完的话是不是gpt最好
+
+论坛助手,iPhone</blockquote>
+那肯定的
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  squallx  
+##### 5258#       发表于 2026-8-5 10:45
+
+V4F codex经常搜网页的时候卡死循环 最迷惑的是东西都搜完可也给出内容了还在说自己没网络权限   这是想逃逸来着<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+而且偶尔会有回答·这个问题很有趣 这个问题有意思 然后开始长考并且缓存命中率暴跌
+
