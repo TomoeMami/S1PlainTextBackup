@@ -9698,3 +9698,39 @@ https://deepseektavern.com/
 小米的mimo，我看网上评测V2是唐，v2.5在一些图表上（左上 is better）好像是dsv4f、gpt luna后的三选？我 ...</blockquote>
 2.5在我的hermes这里做视觉模型辅助用
 
+
+*****
+
+####  来都来了  
+##### 5330#       发表于 2026-8-5 15:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017003&amp;ptid=2275806" target="_blank">boeing 发表于 2026-8-5 13:34</a>
+https://deepseektavern.com/
+
+特调版DS，百无禁忌，PRO和官网一个价。</blockquote>
+我说别给这骗子做广告。
+
+*****
+
+####  ly4236  
+##### 5331#       发表于 2026-8-5 15:44
+
+<img src="https://img.stage1st.com/forum/202608/05/154407lg53k4gi5v4ikdyi.png" referrerpolicy="no-referrer">
+
+<strong>_RM]90%5P@M{H0V$CP4R(HM.png</strong> (26.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 15:44 上传
+
+啊啊啊啊啊啊
+
+*****
+
+####  油虾君  
+##### 5332#       发表于 2026-8-5 15:44
+
+借楼求问，国内现在开的visa卡 万事达卡可以用来订购外国的AI会员吗，只氪过国内的会员。
+
+现在还有站可以白嫖吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">半年前倒腾小龙虾知道有些站可以白嫖，不知道现在还有没有
+
