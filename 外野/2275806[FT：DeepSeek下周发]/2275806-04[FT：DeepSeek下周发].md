@@ -10086,3 +10086,19 @@ codex最离谱的是新版本不能调用luna作为子代理，这个bug好几�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  無始無終  
+##### 5366#       发表于 2026-8-5 19:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70019456&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-8-5 19:49</a>
+继续发pi插件
+
+https://pi.dev/packages/@firstpick/pi-extension-safety-guard
+
+唯一能用的防误删，之前试过 ...</blockquote>
+哥要不要单开一楼，最近刚从OpenCode转到Pi
+
+—— 来自 HUAWEI NOH-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
