@@ -5973,3 +5973,46 @@ https://www.bilibili.com/video/BV16sMq6FEnc ...</blockquote>
 要是和三房一样挖过去跟着年级长似的</blockquote>
 估计是一条路线挖了另外的路线就不能拉了，不然4线全打5年后大集结一群复制人。当然你可以不走某条路线的，走一条路线然后把能挖的全挖了去打最终boss也是可行的就是养成会非常麻烦
 
+
+*****
+
+####  零崎不识  
+##### 2063#       发表于 2026-8-5 17:06
+
+<img src="https://img.stage1st.com/forum/202608/05/170527t69m00kx0x1qkrn3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260805_170439_tv_danmaku_bili_UnitedBizDetailsActivity.jpg</strong> (461.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 17:05 上传
+
+大地图是要慢慢解锁活动范围的，这个图里大地图的探索范围比pv2小了不少
+
+*****
+
+####  kiokio  
+##### 2064#       发表于 2026-8-5 17:08
+
+不是吧，变回随机成长了？另外四线应该是皇骑那种分歧路线但可以随时穿越吧
+
+
+*****
+
+####  bbluekid  
+##### 2065#       发表于 2026-8-5 17:14
+
+固定成长是高难度限定吧。看DLC怎么搞了
+
+*****
+
+####  han110022  
+##### 2066#       发表于 2026-8-5 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018654&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-8-5 17:06</a>
+
+大地图是要慢慢解锁活动范围的，这个图里大地图的探索范围比pv2小了不少 ...</blockquote>
+官网写了大地图活动范围随着名声等级提升扩大
+
+名声则是靠做任务获取
+
