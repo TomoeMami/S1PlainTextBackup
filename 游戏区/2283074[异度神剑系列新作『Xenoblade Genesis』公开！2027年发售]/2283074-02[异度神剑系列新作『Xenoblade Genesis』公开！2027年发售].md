@@ -405,3 +405,13 @@ https://store-jp.nintendo.com/item/software/D70010000130288
 
 <img src="https://img.stage1st.com/forum/202608/05/141210v0j3ie0vdn4jlplj.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 2027#       发表于 2026-8-5 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017252&amp;ptid=2283074" target="_blank">JOJOROY 发表于 2026-8-5 14:12</a>
+看到日推有人发了，你直接用古歌搜也能从外面看到，XB3的NS2E是C相当，我猜是临时工搞错了PV1开头已经写 ...</blockquote>
+是啊吓我一跳想着怎么会是A呢<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

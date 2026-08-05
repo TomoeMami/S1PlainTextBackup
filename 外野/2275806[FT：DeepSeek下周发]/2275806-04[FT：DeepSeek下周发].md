@@ -9502,3 +9502,74 @@ flash 真的太喜感了，思考感觉也太有感情。各种难道，莫非�
 
 —— 来自 OnePlus PLR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  CCauchy  
+##### 5313#       发表于 2026-8-5 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017139&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-5 13:54</a>
+说甲厚的最好都特么反省下自己的性癖，肥鲸鱼已经是最性压抑的模型没有之一了 ...</blockquote>
+话说网页版经常输出完了才被咔嚓，API流式输出的岂不是已经接收完了，那还咔嚓啥
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  阿刚  
+##### 5314#       发表于 2026-8-5 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017358&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-5 14:24</a>
+
+话说网页版经常输出完了才被咔嚓，API流式输出的岂不是已经接收完了，那还咔嚓啥
+
+论坛助手,iPhone ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">网页版就不要玩nsfw了啊，他肯定截断的，我说的那个甲是他拒绝的内容，现在胖鲸鱼基本上来者不拒，只要不是刑法里管的那些他都可以直接写
+
+*****
+
+####  CCauchy  
+##### 5315#       发表于 2026-8-5 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017368&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-5 14:25</a>
+网页版就不要玩nsfw了啊，他肯定截断的，我说的那个甲是他拒绝的内容，现在胖鲸鱼基本上来者不拒，只要不 ...</blockquote>
+没遇到过直接拒绝的，我基本上最露骨的就是直接叫它写床戏，都是输出至少一半了才被删掉，那也就是说这些提示词给API的话就直接成了吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5316#       发表于 2026-8-5 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017397&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-5 14:29</a>
+没遇到过直接拒绝的，我基本上最露骨的就是直接叫它写床戏，都是输出至少一半了才被删掉，那也就是说这些 ...</blockquote>
+是的，只是在网页端会有一个后审查。所以说DeepSeek甲是最薄的，因为它只能在网页端用后审查的方式咔嚓掉，如果是甲后的话根本就不会走到输出这一步。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  CCauchy  
+##### 5317#       发表于 2026-8-5 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017409&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-5 14:31</a>
+是的，只是在网页端会有一个后审查。所以说DeepSeek甲是最薄的，因为它只能在网页端用后审查的方式咔嚓掉 ...</blockquote>
+API没有后审查吗？还是只能留下被截断前的内容
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  站立风景  
+##### 5318#       发表于 2026-8-5 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017416&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-5 14:31</a>
+
+API没有后审查吗？还是只能留下被截断前的内容
+
+论坛助手,iPhone</blockquote>
+完全没有
+

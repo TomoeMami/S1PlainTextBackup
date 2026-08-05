@@ -5294,3 +5294,58 @@ image.png
 
 直面会，全程视频快进着看完了，最后几分钟的内容有点劲爆。这玩法和剧情的系统就是风花雪月的优化改进+加强版，一看就知道是好玩、内容丰富的。等下个月准备首发电子版了
 
+
+*****
+
+####  巴尔干炮  
+##### 2003#       发表于 2026-8-5 14:27
+
+7个神有几个会入队呢？这作的设定挺有意思，几个神就这么堂而皇之的生活在凡人身边，一般来说都是看不到影的背景板。
+
+*****
+
+####  bbluekid  
+##### 2004#       发表于 2026-8-5 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017374&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-8-5 14:27</a>
+
+7个神有几个会入队呢？这作的设定挺有意思，几个神就这么堂而皇之的生活在凡人身边，一般来说都是看不到影 ...</blockquote>
+没有生活在凡人身边吧，5年前都是神像，5年后也只出现在自捏主角视角里
+
+
+*****
+
+####  suzakushi  
+##### 2005#       发表于 2026-8-5 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017281&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-5 14:15</a>
+
+所以抵制索尼取消实体的活动被COD重置的销量狠狠打脸了啊。</blockquote>
+你说的对，就该不买不玩才能大 大方方骂啊，那我不买万紫千红，可以随便骂了吗。
+
+*****
+
+####  mai6696  
+##### 2006#       发表于 2026-8-5 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017413&amp;ptid=2261859" target="_blank">bbluekid 发表于 2026-8-5 14:31</a>
+
+没有生活在凡人身边吧，5年前都是神像，5年后也只出现在自捏主角视角里</blockquote>
+何意味？神威法王不是都出来发任务了吗？
+
+那个额头有太阳的黑皮女也出现过吧。
+
+*****
+
+####  freedom12  
+##### 2007#       发表于 2026-8-5 14:34
+
+怎么又进来俊福了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kalavinka  
+##### 2008#       发表于 2026-8-5 14:35
+
+命运女神和苏蒂斯cv都是黑泽朋世，会有什么联系吗<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
