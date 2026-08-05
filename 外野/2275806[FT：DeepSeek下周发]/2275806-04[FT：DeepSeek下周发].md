@@ -8843,3 +8843,37 @@ cherry studio吗？
 话说现在用pro模型的1m上下文还需要写成deepseek-v4-pro[1m]后面跟个[1m]的形式吗</blockquote>
 一直都不用，以前加上1m后缀是写给claudecode看的，接口本身不需要这个
 
+
+*****
+
+####  zfy1989  
+##### 5250#       发表于 2026-8-5 09:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70015145&amp;ptid=2275806" target="_blank">朋友费小号 发表于 2026-8-5 09:37</a>
+我是个低俗且普通的小白用户，感觉酒馆太麻烦了，有没有什么更简单好使的api调动方法？
+
+cherry studio吗？ ...</blockquote>
+https://sta1n156.github.io/RP-Hub/网页酒馆，虽然有一些不好的风评，且功能不全但是作为入门体验还是没问题
+
+—— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  0WHan0  
+##### 5251#       发表于 2026-8-5 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70015210&amp;ptid=2275806" target="_blank">serj005 发表于 2026-8-5 09:46</a>
+
+一直都不用，以前加上1m后缀是写给claudecode看的，接口本身不需要这个</blockquote>
+那在claudecode里用flash模型也要加[1m]吗
+
+
+*****
+
+####  serj005  
+##### 5252#       发表于 2026-8-5 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70015243&amp;ptid=2275806" target="_blank">0WHan0 发表于 2026-8-5 09:49</a>
+那在claudecode里用flash模型也要加[1m]吗</blockquote>
+flash不用，因为官方配置里没有加，这方面按官方的接入指南来就行了
+
