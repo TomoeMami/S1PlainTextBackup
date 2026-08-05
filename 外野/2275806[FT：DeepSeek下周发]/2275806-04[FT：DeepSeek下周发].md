@@ -10576,3 +10576,26 @@ pro有效上下文能达到500k吗
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  舞以  
+##### 5376#       发表于 2026-8-5 23:55
+
+话说flash现在在cot里好像不会写伪代码了，之前会不会？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+反正k3是会写的，不知道flash正式版的cot是不是已经进化过了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  厍无春  
+##### 5377#       发表于 2026-8-6 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70020118&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-5 22:21</a>
+pro有效上下文能达到500k吗
+
+论坛助手,iPhone</blockquote>
+flash 都到 40k 了，pro50k 应该可以
+
