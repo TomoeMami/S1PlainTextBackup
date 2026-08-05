@@ -9994,3 +9994,25 @@ codex雷达上一直在坡底…
 
 今天没异常，难道这周大的来不了了？
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5357#       发表于 2026-8-5 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018946&amp;ptid=2275806" target="_blank">中国人 发表于 2026-8-5 17:55</a>
+不行，今天下午严重流口水，不应该啊，指令依从能力和理解能力不应该这么差啊，跑得多了上下文被占据多了导 ...</blockquote>
+严重吗？下午我让v4flash给我做个个游戏的修改器，表现还行
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  ysubm  
+##### 5358#       发表于 2026-8-5 18:10
+
+前两天都有异常，今天没异常：说明大的要来了！
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
