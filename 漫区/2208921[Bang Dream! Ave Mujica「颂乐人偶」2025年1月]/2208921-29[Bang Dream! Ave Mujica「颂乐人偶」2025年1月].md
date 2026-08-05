@@ -536,3 +536,21 @@ SSR成员附带专属动画演出！该动画也会在抽卡及节奏游戏画�
 
        [https://x.com/seganewsnavi/status/2084855705371365653](https://x.com/seganewsnavi/status/2084855705371365653)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41982#       发表于 2026-8-5 15:36
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/05/153618mn56no7159p5d7d3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-08-05-15-30-55-504_com.instagram.android-edit.jpg</strong> (667.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 15:36 上传
+
+       [https://www.instagram.com/museacg/p/Dbng6tkD0mw](https://www.instagram.com/museacg/p/Dbng6tkD0mw)
+

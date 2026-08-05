@@ -1478,3 +1478,13 @@ Pc版那么大吗
 Pc版那么大吗</blockquote>
 又大又值<img src="https://static.stage1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">安装档32G相当于中日英三版合集
 
+
+*****
+
+####  wzm96816  
+##### 126#       发表于 2026-8-5 15:31
+
+额，如果是玩过的，可以把幻舞剑 和帝开头打了，等几天吧。
+
+贴吧正在尝试制作mod，包括视角解锁，雨滴穿衣效果等，毕竟现在是四合一没法直接移植。
+

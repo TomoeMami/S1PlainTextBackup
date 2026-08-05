@@ -225,3 +225,14 @@
 
 刚看预告 主角也太韩系了吧 粉底液将军那类型的
 
+
+*****
+
+####  挺好的  
+##### 80#       发表于 2026-8-5 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017669&amp;ptid=2278175" target="_blank">阿刚 发表于 2026-8-5 15:03</a>
+
+话说其他骑士怎么都明显不是这个时代的人啊，集体冬眠了？</blockquote>
+十二支同盟里除了黑猫都是百年前大正时期的人
+
