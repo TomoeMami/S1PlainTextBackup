@@ -5690,3 +5690,91 @@ image.png
 
 当年封印我记得还因为斧男稀少几乎不得不用冈萨雷斯呢
 
+
+*****
+
+####  蓮華  
+##### 2038#       发表于 2026-8-5 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017666&amp;ptid=2261859" target="_blank">bbluekid 发表于 2026-8-5 15:03</a>
+蕾达登场这个舞直接把我整迷糊了，第一条线就选蕾达吧
+
+https://www.bilibili.com/video/BV16sMq6FEnc ...</blockquote>
+不得不说比阿瓜当年跳得好看，但是阿瓜歌喉还是更胜一筹
+
+*****
+
+####  血狂毘沙门  
+##### 2039#       发表于 2026-8-5 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017758&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-8-5 15:14</a>
+
+老问题，本质上宣发问题，历代火纹丑壮汉不少，只是宣发不放，然后玩家自觉把丑壮汉放板凳，回忆美化后就 ...</blockquote>
+我其实挺喜欢壮汉角色的 像重骑勇者之类的猛男角色就得让壮汉来
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ mai6696 + 1符合头像
+
+查看全部评分
+
+*****
+
+####  苍蓝之枪  
+##### 2040#       发表于 2026-8-5 15:59
+
+壮汉之间亦有差异，勇者通常比重甲顺眼
+
+
+*****
+
+####  mai6696  
+##### 2041#       发表于 2026-8-5 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017963&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-8-5 15:44</a>
+
+像这样的角色，确实从xp角度来说，我也会把他按板凳
+
+但真想着这是在打仗的话，这种人站身边才行安全感好 ...</blockquote>
+山猪和嘴臭都比杜笃力量高，很神奇吧？
+
+*****
+
+####  蓮華  
+##### 2042#       发表于 2026-8-5 16:04
+
+山猪天生神力啊
+
+*****
+
+####  零崎不识  
+##### 2043#       发表于 2026-8-5 16:05
+
+<blockquote>mai6696 发表于 2026-8-5 16:01
+山猪和嘴臭都比杜笃力量高，很神奇吧？</blockquote>
+山猪属于打了补丁的角色，嘴臭确实没招了，但毕竟名门出身，天赋好可以接受，而且也是男人
+
+
+*****
+
+####  otakun  
+##### 2044#       发表于 2026-8-5 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018052&amp;ptid=2261859" target="_blank">苍蓝之枪 发表于 2026-8-5 15:55</a>
+当年封印我记得还因为斧男稀少几乎不得不用冈萨雷斯呢</blockquote>
+是那个用女主来说得，友方唯一可以转狂战士的海盗吗<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">，当时还真练了，丑萌又强大
+
+*****
+
+####  蕾丝控  
+##### 2045#       发表于 2026-8-5 16:07
+
+这作看起来要火啊。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
