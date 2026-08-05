@@ -9573,3 +9573,21 @@ API没有后审查吗？还是只能留下被截断前的内容
 论坛助手,iPhone</blockquote>
 完全没有
 
+
+*****
+
+####  zfy1989  
+##### 5319#       发表于 2026-8-5 14:39
+
+我一直有个问题很好奇，一直都说幻方缺卡。然后前两天有一个数据就是opencodego说8.3单日就用了8万亿token（套餐内3万亿），我是官网和opencodego都有用的，感觉opencodego开始卡的时候官网还是又快又稳定的。虽然不知道opencodego的用量占官方多少比例，但是显然不可能太高。所以幻方的优化到底有多逆天。
+
+*****
+
+####  nxmonitor  
+##### 5320#       发表于 2026-8-5 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017485&amp;ptid=2275806" target="_blank">zfy1989 发表于 2026-8-5 14:39</a>
+
+我一直有个问题很好奇，一直都说幻方缺卡。然后前两天有一个数据就是opencodego说8.3单日就用了8万亿token ...</blockquote>
+模型架构也省，V4光一个上下文，开销就是KIMI的几十分之一，所以吞吐量极大
+

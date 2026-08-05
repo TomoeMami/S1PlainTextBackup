@@ -5349,3 +5349,94 @@ image.png
 
 命运女神和苏蒂斯cv都是黑泽朋世，会有什么联系吗<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bbluekid  
+##### 2009#       发表于 2026-8-5 14:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017438&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-8-5 14:34</a>
+
+何意味？神威法王不是都出来发任务了吗？
+
+那个额头有太阳的黑皮女也出现过吧。 ...</blockquote>
+忘了神威法王也是神了
+
+我一直都以为是王是个统治者
+
+*****
+
+####  巴尔干炮  
+##### 2010#       发表于 2026-8-5 14:40
+
+<blockquote>mai6696 发表于 2026-8-5 14:34
+何意味？神威法王不是都出来发任务了吗？
+
+那个额头有太阳的黑皮女也出现过吧。 ...</blockquote>
+卡拉也出现过了，虽然只有一瞬间。
+
+*****
+
+####  freedom12  
+##### 2011#       发表于 2026-8-5 14:40
+
+<img src="https://img.stage1st.com/forum/202608/05/143933s4m9smo79ho7mvaa.jpg" referrerpolicy="no-referrer">
+
+<strong>d3bd9b45d688d43f46f935f13b1ed21b0ff43b9b.jpg</strong> (72.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 14:39 上传
+
+每个神对应一个纹章，有人研究过吗？
+
+感觉另外四个主角都会和真主角一样觉醒某种神力
+
+
+*****
+
+####  零崎不识  
+##### 2012#       发表于 2026-8-5 14:42
+
+我个人现在完全能接受人设，说白了萌萌哒和贴合故事背景的角色都是必要的，玩游戏我同时需要满足代入感和XP，结合说白了丑角色占比最少，但是真的没有半点儿战争的代入感，正常来说战争严肃感的打分是1-10分，你可以说三房的战争严肃感不高，但他始终在1-10分的打分体系内，而结合的战争严肃感是负分
+
+四房主线角色塞一些有当地风情的尼格、异域风角色，但是仍然有相当大比例的萌萌哒角色，这个其实就足够了
+
+*****
+
+####  被击坠王  
+##### 2013#       发表于 2026-8-5 14:42
+
+ 本帖最后由 被击坠王 于 2026-8-5 14:44 编辑 
+
+两个游戏卖你80美元，任天堂又亏了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mai6696  
+##### 2014#       发表于 2026-8-5 14:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017487&amp;ptid=2261859" target="_blank">bbluekid 发表于 2026-8-5 14:39</a>
+
+忘了神威法王也是神了
+
+我一直都以为是王是个统治者</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/05/144345n3lb3e8331el38eb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (462.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 14:43 上传
+
+<img src="https://img.stage1st.com/forum/202608/05/144430r3owdeadcrgued7i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (313.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 14:44 上传
+
+这个黑皮很早就出现过。当初以为是队友呢，昨天才知道是神。
+
