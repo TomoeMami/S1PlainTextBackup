@@ -5065,3 +5065,51 @@ image.png
 
 黑皮白皮一般玩家不在意吧，在意的是脸好不好看身材好不好。毕竟游戏都是虚拟角色，脸丑就肯定是设计师故意的。日本游戏还是很会设计黑皮的，比如生化5的谢娃，arms的双马尾，剑盾的露璃娜。索尼以前也很会做黑皮，比如重力异想世界的女主就是标准黑皮。
 
+
+*****
+
+####  suzakushi  
+##### 1983#       发表于 2026-8-5 13:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016808&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-5 13:06</a>
+
+我就问你在仁王3里反DEI了吗？我搜了下你在仁王3专楼里的发言，好像没提到过DEI。
+
+我搜了下你在羊蹄山之 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">忍组游戏从卧龙就开始用类型12了，不管你信不信，反正我早就骂过了。
+
+羊蹄山女主丑我在各个平台都说过，你信不信就是你的事了。
+
+说到底为什么火纹我会怨念这么深，因为一是丑尼哥出奇的多，二是我对这系列的喜欢程度远超你提的上面那两个，懂吗。
+
+也别想往平台上拐，我首发NS2，喜欢的任系IP比索系多，从来只玩游戏不玩平台。
+
+
+*****
+
+####  月光下的静寂  
+##### 1984#       发表于 2026-8-5 13:30
+
+风花雪月没啥兴趣，但昨晚这直面会给我看入迷了，感觉内容好丰富，到时应该会买个来试试
+
+*****
+
+####  qiyu1234  
+##### 1985#       发表于 2026-8-5 13:31
+
+什么时候 英雄 影 停服了再“终极一搏”吧
+
+现在难道不是如日中天吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jabeck  
+##### 1986#       发表于 2026-8-5 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016957&amp;ptid=2261859" target="_blank">suzakushi 发表于 2026-8-5 13:27</a>
+
+忍组游戏从卧龙就开始用类型12了，不管你信不信，反正我早就骂过了。
+
+羊蹄山女主丑我在各个平台都说过，你 ...</blockquote>
+骂过还买？？？那你也好意思说反对多元平等？？？？你反对个啥？？？？
+

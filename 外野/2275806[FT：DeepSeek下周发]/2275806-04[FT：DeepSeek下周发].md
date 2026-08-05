@@ -9335,3 +9335,53 @@ ai现在最最适合编写安卓app的语言是什么，ai和我说是React Nati
 
 快点吧dax<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  来都来了  
+##### 5296#       发表于 2026-8-5 13:28
+
+ 本帖最后由 来都来了 于 2026-8-5 13:30 编辑 
+
+但是国家的战略就是要让全世界来蹬中国的AI的，这个可以说是阳谋了，就像Windows当年放开盗版占领全世界桌面生态一样。
+（所以说倒是他娘的给Deepseek多批点卡呀。）
+
+*****
+
+####  mitzvah  
+##### 5297#       发表于 2026-8-5 13:29
+
+官方api没问题
+
+
+*****
+
+####  boeing  
+##### 5298#       发表于 2026-8-5 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70011593&amp;ptid=2275806" target="_blank">miraclefans 发表于 2026-8-4 15:41</a>
+
+兄弟们，最近用api写刘备，发现deepseek甲变厚了怎么办？</blockquote>
+[https://deepseektavern.com/](https://deepseektavern.com/)
+
+特调版DS，百无禁忌，PRO和官网一个价。
+
+*****
+
+####  2017.05.04  
+##### 5299#       发表于 2026-8-5 13:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016962&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-5 13:28</a>
+
+但是国家的战略就是要让全世界来蹬中国的AI的，这个可以说是阳谋了，就像Windows当年放开盗版占领全世界桌 ...</blockquote>
+这是产能问题，一时半会解决不了
+
+现在谁家的卡不冒烟，中芯的人都四脚朝天了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GJRstone  
+##### 5300#       发表于 2026-8-5 13:38
+
+毕竟一个养牛场可以输入阳光输出牛肉，算力中心也可以输入电力输出token嘛，和光伏电厂结合起来不就是输入阳光输出token了吗<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
