@@ -5210,3 +5210,27 @@ image.png
 你都不买还骂，谁鸟你啊。</blockquote>
 自称反DEI，但还是会买DEI游戏，那也别怪人不把反DEI的当回事了。<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kalavinka  
+##### 1995#       发表于 2026-8-5 13:55
+
+白毛职业不是专属，不知道是不是和if一样可以选还是藏了
+
+<img src="https://img.stage1st.com/forum/202608/05/135319c9m51mghcmtppd49.png" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-08-05_135306_694.png</strong> (254.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 13:53 上传
+
+
+*****
+
+####  山口達也  
+##### 1996#       发表于 2026-8-5 14:04
+
+说真的含尼量真的高吗?小男孩那种肤色这次游戏里特别多，但是建模里看着挺白的啊，特别黑的在建模上肤色明显有区分度的有几个，但是也不算多吧。说白了还是设定需要，这作增加了小麦色皮肤的比例，怎么就应激上了。
+

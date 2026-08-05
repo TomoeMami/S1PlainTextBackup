@@ -9430,3 +9430,19 @@ https://deepseektavern.com/
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说甲厚的最好都特么反省下自己的性癖，肥鲸鱼已经是最性压抑的模型没有之一了
 
+
+*****
+
+####  neptunehs  
+##### 5306#       发表于 2026-8-5 13:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016934&amp;ptid=2275806" target="_blank">chenyedgg 发表于 2026-8-5 13:24</a>
+快点吧dax</blockquote>
+换别家肯定会很可惜最大客户没了
+但蓝色大肥鱼：
+<img src="https://p.sda1.dev/34/23eb99288609ae749bdb06ec00fc25a4/image.jpg" referrerpolicy="no-referrer">
+
+顺便opencode有赚到可以自己搭吗
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -355,3 +355,15 @@ ARPG化 对于异度神剑其实是雷点
 [https://store-jp.nintendo.com/item/software/D70010000130288](https://store-jp.nintendo.com/item/software/D70010000130288)
 日任商品页上了，然而估计临时工了语言只写了日语然后评级目标是（A相当）
 
+
+*****
+
+####  宛若青空  
+##### 2025#       发表于 2026-8-5 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016498&amp;ptid=2283074" target="_blank">JOJOROY 发表于 2026-8-5 12:27</a>
+https://store-jp.nintendo.com/item/software/D70010000130288
+
+日任商品页上了，然而估计临时工了语言只写 ...</blockquote>
+评级目标是（A相当）是哪里看的
+
