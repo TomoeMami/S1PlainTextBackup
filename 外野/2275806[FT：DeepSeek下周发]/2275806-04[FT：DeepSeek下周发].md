@@ -10102,3 +10102,26 @@ https://pi.dev/packages/@firstpick/pi-extension-safety-guard
 
 —— 来自 HUAWEI NOH-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  hugosol  
+##### 5367#       发表于 2026-8-5 20:11
+
+DSV4pro预览版的smart zone大概是200K
+
+flash预览版比pro要小得多，长上下文基本没法用
+
+现在体感flash正式版的smart zone已经反超pro预览版了，完全没预料到后训练会有这方面的提升
+
+*****
+
+####  scikirbypoke  
+##### 5368#       发表于 2026-8-5 20:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70019493&amp;ptid=2275806" target="_blank">無始無終 发表于 2026-8-5 19:58</a>
+哥要不要单开一楼，最近刚从OpenCode转到Pi
+
+—— 来自 HUAWEI NOH-AN00, Android 12, 鹅球 v4.0 ...</blockquote>
+那样的话AI专楼就有点太多了
+
