@@ -8997,3 +8997,49 @@ reasonix今天加了ds官方的Anthropic API和responses API服务端搜索功�
 
 我看harness还在招人内测，现在扩大招人范围为了更快提供的接入支持，感觉这周有点悬啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cscbzcbz  
+##### 5264#       发表于 2026-8-5 11:29
+
+不发pro，那只能继续苦一苦flash了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  此誓的守望  
+##### 5265#       发表于 2026-8-5 11:29
+
+我有个问题，如果在第三方harness上使用v4f，三种api有能力上的区别吗？oai的c api和r api，还有a/的端口
+
+
+*****
+
+####  nxmonitor  
+##### 5266#       发表于 2026-8-5 11:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70015981&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-8-5 11:29</a>
+
+我有个问题，如果在第三方harness上使用v4f，三种api有能力上的区别吗？oai的c api和r api，还有a/的端口
+
+ ...</blockquote>
+有的，官方的API里后两种自带原生搜索，opencode go好像没区别……
+
+*****
+
+####  wandeeees  
+##### 5267#       发表于 2026-8-5 11:31
+
+看样子pro ga应该是准备好了，就看harness了，能不能搞快点啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  →熙←  
+##### 5268#       发表于 2026-8-5 11:32
+
+要一鸣惊人吗,必须打爆fable5才行
+
+不然别搓专武了,直接发吧
+
+我急啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
