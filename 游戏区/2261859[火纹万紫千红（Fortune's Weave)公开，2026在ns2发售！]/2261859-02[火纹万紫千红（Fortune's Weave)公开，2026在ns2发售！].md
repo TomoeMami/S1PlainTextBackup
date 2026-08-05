@@ -3758,3 +3758,32 @@ IMG_0970.jpeg
 
 这宣发视频怎么直接给五年后的剧情透光了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虚无缥缈的分身  
+##### 1854#       发表于 2026-8-5 08:19
+
+ 本帖最后由 虚无缥缈的分身 于 2026-8-5 08:21 编辑 
+
+这作的神是不是有点多了，扫了一眼好像除了神祖之外还有三四个<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+后续要是这部再火了，什么时候出个同世界观的火焰纹章：诸神黄昏
+
+*****
+
+####  空气先生  
+##### 1855#       发表于 2026-8-5 08:23
+
+<blockquote>聊nsy专用号 发表于 2026-8-5 08:05
+这宣发视频怎么直接给五年后的剧情透光了</blockquote>
+五年后是开局剧情
+
+
+*****
+
+####  Rainwedell  
+##### 1856#       发表于 2026-8-5 08:24
+
+还是挺有活的，主要 4 合 1 看怎么做吧，白毛看上去不是作为 5 年前的可操作角色，挖角都是 4 线主角在挖，真主角本质摄像头，搞成 5 年后穿越了把剧情关键节点的老关卡掏出来让白毛跳出来打一遍进 if 就属于没活硬整，但体量上很合理。搞得更牛逼一点把穿回去本身的内容量做到 30% 又感觉不像 is 能做出来的东西<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

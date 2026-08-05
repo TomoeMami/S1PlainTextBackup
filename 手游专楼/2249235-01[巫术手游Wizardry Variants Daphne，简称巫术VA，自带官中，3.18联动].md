@@ -164,3 +164,14 @@
 那drecom的那个哥布林杀手作者写的小说怎么处理？小说全都是用的巫术1-3的人物和梗。 ...</blockquote>
 其实不只是游戏1-3，游戏1-8，还有番外游戏衍生小说衍生漫画改编ova以及一堆已经不是巫术的游戏梗……甚至能找到世界树迷宫的梗
 
+
+*****
+
+####  电脑死机  
+##### 869#       发表于 2026-8-5 08:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70003503&amp;ptid=2249235" target="_blank">elven119 发表于 2026-8-3 07:46</a>
+
+冬贝利迫害挂机，现在全员变绿玩手刷5f</blockquote>
+这货有什么效率杀法，一发过来我主角就躺了
+
