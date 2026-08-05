@@ -9159,3 +9159,34 @@ opencode v4f最近每天下午5点左右开始持续崩溃<img src="https://stat
 
 —— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
 
+
+*****
+
+####  来都来了  
+##### 5278#       发表于 2026-8-5 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70015145&amp;ptid=2275806" target="_blank">朋友费小号 发表于 2026-8-5 09:37</a>
+我是个低俗且普通的小白用户，之前一直用酒馆，但是现在感觉酒馆太麻烦了，有没有什么更简单好使的api调动 ...</blockquote>
+rikkahub，安卓上的
+
+*****
+
+####  阿刚  
+##### 5279#       发表于 2026-8-5 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70015145&amp;ptid=2275806" target="_blank">朋友费小号 发表于 2026-8-5 09:37</a>
+
+我是个低俗且普通的小白用户，之前一直用酒馆，但是现在感觉酒馆太麻烦了，有没有什么更简单好使的api调动 ...</blockquote>
+可以试试hermes，本质上是个agent，上手之后他可以帮你实现大部分酒馆功能
+
+*****
+
+####  serj005  
+##### 5280#       发表于 2026-8-5 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70015981&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-8-5 11:29</a>
+我有个问题，如果在第三方harness上使用v4f，三种api有能力上的区别吗？oai的c api和r api，还有a/的端口
+
+ ...</blockquote>
+纯性能上没区别，只是Anthropic API和responses API会多个网页搜索功能，但是大部分工具都没适配后后两者的搜索，原生调用应该就只有cc和reasonix支持，其他要用搜索得加插件
+

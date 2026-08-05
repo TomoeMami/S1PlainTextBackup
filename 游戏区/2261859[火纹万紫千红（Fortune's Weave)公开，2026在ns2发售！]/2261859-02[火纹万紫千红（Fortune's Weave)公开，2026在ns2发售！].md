@@ -4662,3 +4662,41 @@ Type A、Type B最多算是规避风险吧。
 
 接受了帮助的英雄决定被召唤到真主角所在的5年后（平行世界）帮助对抗魔神
 
+
+*****
+
+####  su37mkk  
+##### 1946#       发表于 2026-8-5 12:04
+
+自捏造型希望多点
+
+*****
+
+####  bad_alloc  
+##### 1947#       发表于 2026-8-5 12:06
+
+来个全员集合60+人一起送元气弹，通关再拍个大合照，这剧本不就成了吗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  はちたや  
+##### 1948#       发表于 2026-8-5 12:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">全员收齐才能真结局还是有点离谱了
+
+*****
+
+####  灼眼的蔬菜达人  
+##### 1949#       发表于 2026-8-5 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014136&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-8-5 00:14</a>
+又看了遍中文直面会
+
+“他被赋予了两个选项，一是以自己的力量对抗魔神的军队”</blockquote>
+参考野炊，可以不打四神兽不获得英杰技能，直接带着希卡石板的能力和锅盖去干加农<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24090RA29C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
