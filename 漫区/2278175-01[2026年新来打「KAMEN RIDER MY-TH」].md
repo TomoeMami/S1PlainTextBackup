@@ -209,3 +209,11 @@
 
 这几年（本来是为了这边过审）都提前大半年拍完了，脚本估计这会儿都写得差不多了
 
+
+*****
+
+####  阿刚  
+##### 78#       发表于 2026-8-5 15:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">话说其他骑士怎么都明显不是这个时代的人啊，集体冬眠了？
+

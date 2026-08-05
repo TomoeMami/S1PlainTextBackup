@@ -9673,3 +9673,28 @@ https://deepseektavern.com/
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5328#       发表于 2026-8-5 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017614&amp;ptid=2275806" target="_blank">M乔梦 发表于 2026-8-5 14:55</a>
+等pro ga出了，你这个方法大概率就用不了了，现在肯定要找以后也能用的方法嘛
+
+论坛助手,iPhone ...</blockquote>
+不用想，随着后训练的越发完善，甲肯定是越来越厚的。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  zhanglei1943  
+##### 5329#       发表于 2026-8-5 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017259&amp;ptid=2275806" target="_blank">GJRstone 发表于 2026-8-5 14:13</a>
+
+小米的mimo，我看网上评测V2是唐，v2.5在一些图表上（左上 is better）好像是dsv4f、gpt luna后的三选？我 ...</blockquote>
+2.5在我的hermes这里做视觉模型辅助用
+
