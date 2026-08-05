@@ -5853,3 +5853,34 @@ https://www.bilibili.com/video/BV16sMq6FEnc ...</blockquote>
 系统方面神的加护算是比较好的创新 ...</blockquote>
 普通攻击不消耗耐久，使用战技消耗耐久，且强力战技一次消耗的耐久相当高
 
+
+*****
+
+####  巴尔干炮  
+##### 2053#       发表于 2026-8-5 16:21
+
+这作故事会走悬疑剧的风格吗？毕竟玩家都知道后面的发展了，4条线又能随时切换，肯定会在意各种蛛丝马迹吧。
+
+*****
+
+####  takayama  
+##### 2054#       发表于 2026-8-5 16:25
+
+奥尔加：听说有人需要肌肉，我一天至少5打鸡蛋，来跟我比比<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/05/162532c7j5lppptpj5tcod.jpg" referrerpolicy="no-referrer">
+
+<strong>008jgqbzgy1ift13h29tzj31y00u0npf.jpg</strong> (535.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 16:25 上传
+
+<img src="https://img.stage1st.com/forum/202608/05/162532d1tlpoo9v96596nv.jpg" referrerpolicy="no-referrer">
+
+<strong>008jgqbzgy1ift13ji0g9j31y00u01l0.jpg</strong> (681.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 16:25 上传
+
