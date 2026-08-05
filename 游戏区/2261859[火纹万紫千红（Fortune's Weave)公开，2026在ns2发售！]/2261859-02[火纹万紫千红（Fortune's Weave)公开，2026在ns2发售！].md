@@ -6355,3 +6355,33 @@ is就按照这个立绘出个手办吧
 
 —— 来自 Xiaomi 24090RA29C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  凉良  
+##### 2099#       发表于 2026-8-5 21:25
+
+草 火纹作为喋喋不休小基佬的发源地 想要俊男靓女还能被扣二游帽子啊
+
+而且别的不说火纹人物不都会变二游人物
+
+*****
+
+####  qiyu1234  
+##### 2100#       发表于 2026-8-5 21:26
+
+我意思贷款 5年后肯定有5年前整个团队加入这个真不好说，官网目前的介绍没有这种表达的意思
+
+我觉得这块还是稍微放低期待，不然容易擅自期待擅自失望
+
+*****
+
+####  UltramanPain  
+##### 2101#       发表于 2026-8-5 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70019817&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-5 21:16</a>
+五年后还有五年后的同伴，不给养成的机会怎么可能。大概率五年后是一点点收复失地，满足“王子复仇记”的 ...</blockquote>
+五年后不救四主角，就和结合dlc一样给一定等级的固定队伍通关
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
