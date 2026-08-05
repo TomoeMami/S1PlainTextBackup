@@ -4080,3 +4080,27 @@ IMG_0970.jpeg
 
 2026-8-5 10:05 上传
 
+
+*****
+
+####  bad_alloc  
+##### 1885#       发表于 2026-8-5 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70015174&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-8-5 09:42</a>
+直面会后安纳托利亚的人气就起飞了，手枪还是太超模了。</blockquote>
+黑长直萌萌哒，手枪应该还跟世界观有深层联系，人气高应该的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  xbhuang  
+##### 1886#       发表于 2026-8-5 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70015246&amp;ptid=2261859" target="_blank">qiyu1234 发表于 2026-8-5 09:50</a>
+
+牵绊剧情还有个人结局这些影响挺大的
+
+我觉得招募队员单独作为前半部的队员也不是不行，火纹也干过类似的 ...</blockquote>
+招募过程不就是涉及到剧情了吗？只是能力数值不用再重新培养罢了，该能看到的剧情都能看到
+
