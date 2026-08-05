@@ -8772,3 +8772,13 @@ websearch-deepseek，是一个mcp，直接调用Deepseek的API进行搜索，因
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  CCauchy  
+##### 5243#       发表于 2026-8-5 09:13
+
+gpt20x一周能用多少亿啊
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
