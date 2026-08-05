@@ -9446,3 +9446,59 @@ https://deepseektavern.com/
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  donmlar  
+##### 5307#       发表于 2026-8-5 14:06
+
+咨询下坛友们，现在ds用api本地执行一些涉及环境检查部署，网页验证的功能，用什么软件接比较合适？还是codex+ccswitch吗？
+
+*****
+
+####  crow_wine  
+##### 5308#       发表于 2026-8-5 14:07
+
+flash 真的太喜感了，思考感觉也太有感情。各种难道，莫非，该不会，天哪<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenyedgg  
+##### 5309#       发表于 2026-8-5 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017168&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-5 13:58</a>
+
+换别家肯定会很可惜最大客户没了
+
+但蓝色大肥鱼：</blockquote>
+有人觉得opencode是吹比的，OR这么多家供应商在FP8 V4F上价格都比DS高
+
+他自家部署的V4F也没人见过
+
+
+*****
+
+####  GJRstone  
+##### 5310#       发表于 2026-8-5 14:13
+
+小米的mimo，我看网上评测V2是唐，v2.5在一些图表上（左上 is better）好像是dsv4f、gpt luna后的三选？我先充了50，感觉思考输出一顿一顿卡卡的，是模型提供的token/s速度不够吗
+
+*****
+
+####  关二爷  
+##### 5311#       发表于 2026-8-5 14:14
+
+现在大家不用claude code的
+用啥比较主流啊？picode还是opencode？
+
+*****
+
+####  zeroboss4  
+##### 5312#       发表于 2026-8-5 14:17
+
+<img src="https://p.sda1.dev/34/5096f9be6e4b1eb0e717eb1c2112be3f/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/34/94f89f5e80fe5935991232d2963f1ab1/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PLR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

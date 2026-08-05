@@ -5234,3 +5234,55 @@ image.png
 
 说真的含尼量真的高吗?小男孩那种肤色这次游戏里特别多，但是建模里看着挺白的啊，特别黑的在建模上肤色明显有区分度的有几个，但是也不算多吧。说白了还是设定需要，这作增加了小麦色皮肤的比例，怎么就应激上了。
 
+
+*****
+
+####  EdSheeran  
+##### 1997#       发表于 2026-8-5 14:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017202&amp;ptid=2261859" target="_blank">山口達也 发表于 2026-8-5 14:04</a>
+说真的含尼量真的高吗?小男孩那种肤色这次游戏里特别多，但是建模里看着挺白的啊，特别黑的在建模上肤色明 ...</blockquote>
+估计是被欧美dei搞ptsd了吧
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  suzakushi  
+##### 1998#       发表于 2026-8-5 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017128&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-5 13:51</a>
+
+自称反DEI，但还是会买DEI游戏，那也别怪人不把反DEI的当回事了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自称实体玩家，但还是会买数字版游戏，那也别怪索尼不把实体盘玩家当人了。
+
+你猜猜这么说话会不会出门被打？
+
+*****
+
+####  伽拉忒亚i  
+##### 1999#       发表于 2026-8-5 14:11
+
+之前外边不是有肤色贴吗，介意的各位继续在那边聊行不
+
+
+*****
+
+####  1wq1  
+##### 2000#       发表于 2026-8-5 14:13
+
+其他论坛都在讨论系统玩法，泥潭在砖楼讨论dei就很那个，好吗
+
+
+*****
+
+####  Jabeck  
+##### 2001#       发表于 2026-8-5 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017222&amp;ptid=2261859" target="_blank">suzakushi 发表于 2026-8-5 14:08</a>
+
+自称实体玩家，但还是会买数字版游戏，那也别怪索尼不把实体盘玩家当人了。
+
+你猜猜这么说话会不会出门被 ...</blockquote>
+所以抵制索尼取消实体的活动被COD重置的销量狠狠打脸了啊。
+

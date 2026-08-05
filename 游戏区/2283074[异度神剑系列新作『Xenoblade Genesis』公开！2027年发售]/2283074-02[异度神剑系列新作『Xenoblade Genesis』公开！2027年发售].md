@@ -367,3 +367,41 @@ https://store-jp.nintendo.com/item/software/D70010000130288
 日任商品页上了，然而估计临时工了语言只写 ...</blockquote>
 评级目标是（A相当）是哪里看的
 
+
+*****
+
+####  JOJOROY  
+##### 2026#       发表于 2026-8-5 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017174&amp;ptid=2283074" target="_blank">宛若青空 发表于 2026-8-5 13:59</a>
+
+评级目标是（A相当）是哪里看的</blockquote>
+看到日推有人发了，你直接用古歌搜也能从外面看到，XB3的NS2E是C相当，我猜是临时工搞错了PV1开头已经写了15岁以上了
+
+1785907204046.png
+(92.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 14:12 上传
+
+<img src="https://img.stage1st.com/forum/202608/05/141207prxi6ra12fryif06.png" referrerpolicy="no-referrer">
+
+1785907316478.png
+(170.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 14:12 上传
+
+<img src="https://img.stage1st.com/forum/202608/05/141209lbi33mku773ihkki.png" referrerpolicy="no-referrer">
+
+785907814527.png
+(376.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 14:12 上传
+
+<img src="https://img.stage1st.com/forum/202608/05/141210v0j3ie0vdn4jlplj.png" referrerpolicy="no-referrer">
+
