@@ -4832,3 +4832,88 @@ L难度都没有，难说后面有没有更新。
 玩尘白禁区的是这样的，见到两坨肉就什么都忘了，连那种土鳖设计的游戏都吃得下去不怪你在这审丑了好吧。 ...</blockquote>
 我看仁王3捏人好像也是两种底子，是类型1和2跟这次火纹一样吗？有人去反DEI了吗？你去反DEI了吗？
 
+
+*****
+
+####  suzakushi  
+##### 1964#       发表于 2026-8-5 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016553&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-5 12:34</a>
+
+这话术好dinner啊 我就不说审美各不相同，你这玩意你隔三岔五来这放P，不想鸟你还天天来逼着人认同你个人 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说得好像只有我一个人觉得丑似的，我自始至终都是表达自己的观点，好看就说好看，丑就骂丑，逼谁认同了？不想看负面言论建议改成万紫千红夸夸楼。
+
+至于其他游戏，你说的这些我一个都不玩，而火纹我是真一代代玩过来的。
+
+*****
+
+####  Kuebiko  
+##### 1965#       发表于 2026-8-5 12:56
+
+序章是五年后 然后回到五年前 感觉就是这样<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jabeck  
+##### 1966#       发表于 2026-8-5 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016708&amp;ptid=2261859" target="_blank">suzakushi 发表于 2026-8-5 12:55</a>
+
+说得好像只有我一个人觉得丑似的，我自始至终都是表达自己的观点，好看就说好看，丑就骂丑，逼谁认同了？ ...</blockquote>
+你都玩羊蹄山之鬼了，还在乎DEI不DEI，丑不丑？那丑女还不够DEI？
+
+*****
+
+####  meltingwhite  
+##### 1967#       发表于 2026-8-5 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016720&amp;ptid=2261859" target="_blank">Kuebiko 发表于 2026-8-5 12:56</a>
+
+序章是五年后 然后回到五年前 感觉就是这样</blockquote>
+应该是的，开场肯定是要让你选是男自捏还是女自捏的
+
+*****
+
+####  suzakushi  
+##### 1968#       发表于 2026-8-5 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016684&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-5 12:52</a>
+
+我看仁王3捏人好像也是两种底子，是类型1和2跟这次火纹一样吗？有人去反DEI了吗？你去反DEI了吗？ ...</blockquote>
+你说的没错，谁都可以大 大方方骂仁王3，我可以帮忙加鹅。
+
+*****
+
+####  hl氏  
+##### 1969#       发表于 2026-8-5 13:02
+
+中国元素这里又是一处
+
+image.png
+(186.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 13:02 上传
+
+<img src="https://img.stage1st.com/forum/202608/05/130216qcfrzm5tfezafct7.png" referrerpolicy="no-referrer">
+
+*****
+
+####  suzakushi  
+##### 1970#       发表于 2026-8-5 13:03
+
+ 本帖最后由 suzakushi 于 2026-8-5 13:05 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016750&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-5 13:00</a>
+
+你都玩羊蹄山之鬼了，还在乎DEI不DEI，丑不丑？那丑女还不够DEI？</blockquote>
+怕你不知道，玩游戏是可以骂的。你都翻记录了，难道没看到我早就骂过了？
+
+*****
+
+####  空气先生  
+##### 1971#       发表于 2026-8-5 13:05
+
+我骂仁王3可以给我加鹅吗，什么逼滤镜，打个涂佛黑的里面还有一坨黑的我玩你吗
+

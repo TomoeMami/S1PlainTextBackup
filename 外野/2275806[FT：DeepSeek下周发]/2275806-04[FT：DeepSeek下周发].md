@@ -9300,3 +9300,22 @@ v4p就算出了估计也是被全世界蹬流口水的下场
 
 ai现在最最适合编写安卓app的语言是什么，ai和我说是React Native (Expo) + TypeScript
 
+
+*****
+
+####  SmterC  
+##### 5293#       发表于 2026-8-5 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016729&amp;ptid=2275806" target="_blank">脸宽 发表于 2026-8-5 12:57</a>
+ai现在最最适合编写安卓app的语言是什么，ai和我说是React Native (Expo) + TypeScript ...</blockquote>
+给Agent读取技能android-cli，它会根据需求查询文档用最适合的方案
+一般来说是，jetpack compose    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  →熙←  
+##### 5294#       发表于 2026-8-5 13:03
+
+不能全蹬 ds 啊，全球其他算力要空闲了
+
