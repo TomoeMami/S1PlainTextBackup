@@ -2472,3 +2472,11 @@ AG老师那边就很和平。
 
 因为没人会和一个回合制玩家较真。何况他本来也是跟着GF吃饭的。
 
+
+*****
+
+####  Piano-Forest  
+##### 526#         楼主| 发表于 2026-8-5 13:10
+
+<img src="https://p.sda1.dev/34/593817d42f842b1b5be13d3a9eb200dd/1000171728.jpg" referrerpolicy="no-referrer">
+

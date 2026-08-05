@@ -4917,3 +4917,78 @@ image.png
 
 我骂仁王3可以给我加鹅吗，什么逼滤镜，打个涂佛黑的里面还有一坨黑的我玩你吗
 
+
+*****
+
+####  Jabeck  
+##### 1972#       发表于 2026-8-5 13:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016755&amp;ptid=2261859" target="_blank">suzakushi 发表于 2026-8-5 13:01</a>
+
+你说的没错，你可以**方方骂仁王3，我可以帮你加鹅。</blockquote>
+我就问你在仁王3里反DEI了吗？我搜了下你在仁王3专楼里的发言，好像没提到过DEI。
+
+我搜了下你在羊蹄山之鬼专楼里发言，也没提到过丑和DEI。你都是默默玩的。
+
+这么说这两游戏你都是完全为了游戏性去玩的吗？
+
+游戏确实可以骂，但双标的骂确实很难看，或者是因为任天堂游戏都好欺负吧。<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MiumiuPT  
+##### 1973#       发表于 2026-8-5 13:08
+
+万紫千红看着体量很大，IS也要证明自己终极一搏？
+
+*****
+
+####  Jabeck  
+##### 1974#       发表于 2026-8-5 13:09
+
+配种都没端上来，博什么<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 1975#       发表于 2026-8-5 13:10
+
+ 本帖最后由 Piano-Forest 于 2026-8-5 13:15 编辑 
+
+【《火焰之纹章 万缕千丝》（万紫千红）专场直面会【中字】】 
+[https://b23.tv/8vwnyXk](https://b23.tv/8vwnyXk)
+
+[https://x.com/i/status/2084836831041135020](https://x.com/i/status/2084836831041135020)
+
+【主人公】イシュマール（CV：松岡禎丞／井上麻里奈）
+
+神祖ソティスの命を受け、滅びゆくダグザの地に降臨した救世主。
+
+その姿は、遥か昔の詩篇に登場する「白鴉の御使い」を想起させる。
+
+●好きなもの：名も無き小さな花、志の高いもの、自分の予想を超えるもの 
+
+主人公の見た目や名前は、自分好みにカスタマイズすることができます。
+
+ちなみにデフォルトネームは「イシュマール」です。
+
+公式からのお知らせではイシュマール、もしくは「救世主」と呼ぶことが多いため、以後お見知りおきください。
+<img src="https://p.sda1.dev/34/08cc2106f3b7be5086e4495c092ca23b/1000171726.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  hl氏  
+##### 1976#       发表于 2026-8-5 13:13
+
+这女的本来好像是雷达的
+
+image.png
+(200.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 13:13 上传
+
+<img src="https://img.stage1st.com/forum/202608/05/131315sm3uyz33mtwdzqc9.png" referrerpolicy="no-referrer">
+
