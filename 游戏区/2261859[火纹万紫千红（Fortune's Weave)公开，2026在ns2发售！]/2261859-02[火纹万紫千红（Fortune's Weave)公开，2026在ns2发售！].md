@@ -6082,3 +6082,17 @@ https://www.bilibili.com/video/BV16sMq6FEnc ...</blockquote>
 
 现在他宣传出来的角色全是游戏上半程可招募的角色，后半程角色还在藏呢
 
+
+*****
+
+####  bad_alloc  
+##### 2072#       发表于 2026-8-5 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018889&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-8-5 17:43</a>
+然后再谈角色担忧
+
+我觉得真不用担心</blockquote>
+但是一般后加入的人培养空间都太小了，一般都是前期固定养好10多个人后期也不会怎么换了吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
