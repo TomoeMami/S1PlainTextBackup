@@ -6187,3 +6187,13 @@ https://www.bilibili.com/video/BV16sMq6FEnc ...</blockquote>
 
 人物总归能有一队顺眼的人用的，直面会视频里有不少新人物，更不用担心了
 
+
+*****
+
+####  66367749  
+##### 2081#       发表于 2026-8-5 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70019257&amp;ptid=2261859" target="_blank">没取名啊 发表于 2026-8-5 19:04</a>
+5年后流程如果真的有10章往上，那么为了适应玩家4年前的路线选择，剧情和过场动画会变得非常难搞，很难准备 ...</blockquote>
+比如四人每人负责一个固定区域的大地图据点或者清扫，哪块没救人就独自作战，最后在boss处汇合
+
