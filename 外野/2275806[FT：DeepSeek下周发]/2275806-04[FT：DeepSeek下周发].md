@@ -10508,3 +10508,16 @@ LongAlign 强调：
 
 [4]: [https://arxiv.org/abs/2410.02660](https://arxiv.org/abs/2410.02660) "[2410.02660] How to Train Long-Context Language Models (Effectively)"</blockquote>
 
+
+*****
+
+####  hugosol  
+##### 5370#       发表于 2026-8-5 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70019582&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-5 20:19</a>
+
+gpt指导说后训练还挺重要的</blockquote>
+对的对的
+
+不过flash还是偶尔会漏信息，还是期待pro快点端出来
+
