@@ -4055,3 +4055,28 @@ IMG_0970.jpeg
 依然很烦各种RPG要素，虽然第一次玩我肯定玩全， ...</blockquote>
 5年后就直接进打最终boss的主线了估计，
 
+
+*****
+
+####  ascomnet  
+##### 1883#       发表于 2026-8-5 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70015242&amp;ptid=2261859" target="_blank">Beaverfan01 发表于 2026-8-5 09:49</a></blockquote>
+那可以啊，终于可以捏人了
+
+
+*****
+
+####  qiyu1234  
+##### 1884#       发表于 2026-8-5 10:05
+
+衣服也能改吗，不会只是换色吧
+
+<img src="https://img.stage1st.com/forum/202608/05/100546oat3ttyyek1u1yyy.jpg" referrerpolicy="no-referrer">
+
+<strong>23770482f13746cd8c2b83bd5eafe363.jpg</strong> (120.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 10:05 上传
+

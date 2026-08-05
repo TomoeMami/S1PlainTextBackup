@@ -8877,3 +8877,15 @@ https://sta1n156.github.io/RP-Hub/网页酒馆，虽然有一些不好的风评�
 那在claudecode里用flash模型也要加[1m]吗</blockquote>
 flash不用，因为官方配置里没有加，这方面按官方的接入指南来就行了
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5253#       发表于 2026-8-5 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70015145&amp;ptid=2275806" target="_blank">朋友费小号 发表于 2026-8-5 09:37</a>
+我是个低俗且普通的小白用户，之前一直用酒馆，但是现在感觉酒馆太麻烦了，有没有什么更简单好使的api调动 ...</blockquote>
+手机上可以用tavo rikkahub chatbox
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
