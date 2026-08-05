@@ -9385,3 +9385,31 @@ ai现在最最适合编写安卓app的语言是什么，ai和我说是React Nati
 
 毕竟一个养牛场可以输入阳光输出牛肉，算力中心也可以输入电力输出token嘛，和光伏电厂结合起来不就是输入阳光输出token了吗<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  葛雷新  
+##### 5301#       发表于 2026-8-5 13:38
+
+小白问一下，RP-Hub主要是用来干嘛的？跟WORKBUDDY有啥区别嘛？
+
+*****
+
+####  王兰花秀丽  
+##### 5302#       发表于 2026-8-5 13:41
+
+RolePlay吗，用来文爱的<img src="https://static.stage1st.com/image/smiley/face/18.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenyedgg  
+##### 5303#       发表于 2026-8-5 13:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017003&amp;ptid=2275806" target="_blank">boeing 发表于 2026-8-5 13:34</a>
+
+https://deepseektavern.com/
+
+特调版DS，百无禁忌，PRO和官网一个价。</blockquote>
+宣传原版V4P高甲，然后自己在公告里又说租了国内算力平台要求“大家口味稍微正常点，别碰极限话题”<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

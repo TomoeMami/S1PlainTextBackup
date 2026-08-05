@@ -5113,3 +5113,78 @@ image.png
 羊蹄山女主丑我在各个平台都说过，你 ...</blockquote>
 骂过还买？？？那你也好意思说反对多元平等？？？？你反对个啥？？？？
 
+
+*****
+
+####  bbluekid  
+##### 1987#       发表于 2026-8-5 13:37
+
+<img src="https://img.stage1st.com/forum/202608/05/133655phhhsdqypuy93hyn.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260805133524_1_222.png</strong> (326.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 13:36 上传
+
+这个安娜托利亚看着真会算卦啊
+
+*****
+
+####  会长辅佐  
+##### 1988#       发表于 2026-8-5 13:37
+
+这次还会有羁绊系统吗，这自捏看着也太工具人定位了。怕不是打死邪神就直接归天了
+
+
+*****
+
+####  suzakushi  
+##### 1989#       发表于 2026-8-5 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017001&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-5 13:34</a>
+
+骂过还买？？？那你也好意思说反对多元平等？？？？你反对个啥？？？？
+
+我也首发NS2，手里任系掌机甚至WI ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太典了有点。
+
+你都骂了还买，贱不贱啊。
+
+你都不买还骂，谁鸟你啊。
+
+两句话建立立体防御。
+
+*****
+
+####  Jabeck  
+##### 1990#       发表于 2026-8-5 13:42
+
+这次还藏着很多东西，很多角色PV都没介绍。
+
+这次直面会有点早，感觉还要再开一次直面会。
+
+*****
+
+####  bbluekid  
+##### 1991#       发表于 2026-8-5 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017014&amp;ptid=2261859" target="_blank">会长辅佐 发表于 2026-8-5 13:37</a>
+
+这次还会有羁绊系统吗，这自捏看着也太工具人定位了。怕不是打死邪神就直接归天了 ...</blockquote>
+自捏怎么参与影响过去四条线的方法还在藏
+
+*****
+
+####  EdSheeran  
+##### 1992#       发表于 2026-8-5 13:43
+
+ 本帖最后由 EdSheeran 于 2026-8-5 13:44 编辑 
+
+这次的ost太秀了吧，刚在B站10首听下来没一首难听的，感觉有潜力成为历代bgm最抓耳朵的，卖相真不错。
+
+【【火纹 万缕千丝BGM】大剑斗祭：The Blaze – Cycle of the Sun-哔哩哔哩】 https://b23.tv/vf4c0bc
+
+记得当年发布会就觉得这首特别炸裂，果然是主题曲。
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
