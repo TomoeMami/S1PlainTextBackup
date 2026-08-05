@@ -9591,3 +9591,85 @@ API没有后审查吗？还是只能留下被截断前的内容
 我一直有个问题很好奇，一直都说幻方缺卡。然后前两天有一个数据就是opencodego说8.3单日就用了8万亿token ...</blockquote>
 模型架构也省，V4光一个上下文，开销就是KIMI的几十分之一，所以吞吐量极大
 
+
+*****
+
+####  Izunu_3  
+##### 5321#       发表于 2026-8-5 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017087&amp;ptid=2275806" target="_blank">chenyedgg 发表于 2026-8-5 13:46</a>
+
+宣传原版V4P高甲，然后自己在公告里又说租了国内算力平台要求“大家口味稍微正常点，别碰极限话题” ...</blockquote>
+就一自带破限预设的二手贩子
+
+*****
+
+####  noneoneone  
+##### 5322#       发表于 2026-8-5 14:48
+
+我是轻度用户，flash已经挺够用了，现在就比较期待harness。
+
+DSH!DSH!DSH!
+
+*****
+
+####  squallx  
+##### 5323#       发表于 2026-8-5 14:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017216&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-5 14:07</a>
+
+flash 真的太喜感了，思考感觉也太有感情。各种难道，莫非，该不会，天哪</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">重大突破！ 关键性发现！ 惊人创举！
+
+UC震惊部语料投喂过多了吧
+
+*****
+
+####  M乔梦  
+##### 5324#       发表于 2026-8-5 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017139&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-5 13:54</a>
+说甲厚的最好都特么反省下自己的性癖，肥鲸鱼已经是最性压抑的模型没有之一了 ...</blockquote>
+它对“未成年”太严格了，我用它写日本动漫同人，二次元哪有那么多设定上满18的角色啊。
+我研究过一下，开思考把破甲词发给它，就算破甲词里完全没提，它都会主动去思考这事情，最后输出的内容大概率就是“不能写未成年内容”。
+如果刚开始把角色信息发给它，它只要识别到未成年，就算思维链里已经写一半了都会强制截断掉。
+如果把思考完全关掉，它大概率会忽略掉这事情。所以对于正式版破甲最好的方式其实是关闭思考+破甲词，等它非思考写了一点，生米煮成熟饭，再打开思考。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  站立风景  
+##### 5325#       发表于 2026-8-5 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017572&amp;ptid=2275806" target="_blank">M乔梦 发表于 2026-8-5 14:49</a>
+
+它对“未成年”太严格了，我用它写日本动漫同人，二次元哪有那么多设定上满18的角色啊。
+
+我研究过一下， ...</blockquote>
+你可以先切pro写，然后再用flash接，命中缓存的话pro也很便宜的。而且我感觉同样的设定，pro写的还是比新flash会更丰富一些。
+
+
+*****
+
+####  overflowal  
+##### 5326#       发表于 2026-8-5 14:54
+
+ 本帖最后由 overflowal 于 2026-8-5 14:55 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017003&amp;ptid=2275806" target="_blank">boeing 发表于 2026-8-5 13:34</a>
+https://deepseektavern.com/
+
+特调版DS，百无禁忌，PRO和官网一个价。</blockquote>
+这不一看就是骗人的。你信它fine-tune了v4 pro？至于下面说v4审查严重，已经是口不择言胡说八道了 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  M乔梦  
+##### 5327#       发表于 2026-8-5 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017581&amp;ptid=2275806" target="_blank">站立风景 发表于 2026-8-5 14:51</a>
+你可以先切pro写，然后再用flash接，命中缓存的话pro也很便宜的。而且我感觉同样的设定，pro写的还是比新 ...</blockquote>
+等pro ga出了，你这个方法大概率就用不了了，现在肯定要找以后也能用的方法嘛
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
