@@ -8712,3 +8712,21 @@ flash 输出的 token 还是多了点，关键是会占用大量的时间，还�
 
 有没有啥免费的 Web Search 的工具，求推荐，搜了一圈，都是付费的，有免费额度
 
+
+*****
+
+####  overflowal  
+##### 5237#       发表于 2026-8-5 07:49
+
+opencode go这大客户被deepseek 限流了。我的天，pro上线咋整啊这个蹬法<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  来都来了  
+##### 5238#       发表于 2026-8-5 07:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014601&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-8-5 07:46</a>
+有没有啥免费的 Web Search 的工具，求推荐，搜了一圈，都是付费的，有免费额度 ...</blockquote>
+websearch-deepseek，是一个mcp，直接调用Deepseek的API进行搜索，因此约等于是免费的。
+

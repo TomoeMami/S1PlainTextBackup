@@ -3724,3 +3724,15 @@ IMG_0970.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  bad_alloc  
+##### 1851#       发表于 2026-8-5 07:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014438&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-8-5 02:06</a>
+终于跟上时代了，成长率公开化，再也不用动不动一边玩游戏一边查资料了 ...</blockquote>
+该给个固定成长选项吧，不想凹点了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
