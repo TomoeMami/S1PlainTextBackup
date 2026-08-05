@@ -482,3 +482,57 @@ SSR成员附带专属动画演出！该动画也会在抽卡及节奏游戏画�
 
 大喵为何越来越像自研灯了
 
+
+*****
+
+####  堀内爱里衣  
+##### 41979#       发表于 2026-8-5 15:26
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/05/152602icj1bulh8cuhtxww.png" referrerpolicy="no-referrer">
+
+<strong>2026-08-05_15-21-44.png</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 15:26 上传
+
+       [https://x.com/Schecter_JAPAN/status/2084836800128847935](https://x.com/Schecter_JAPAN/status/2084836800128847935)
+
+*****
+
+####  堀内爱里衣  
+##### 41980#       发表于 2026-8-5 15:26
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/05/152625ptvgv6m6o0vbvga6.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-08-05_15-24-15.jpg</strong> (436.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 15:26 上传
+
+       [https://x.com/bang_dream_info/status/2084837445305254287](https://x.com/bang_dream_info/status/2084837445305254287)
+
+       [https://www.summersonic.com/news/2026-08-05-44944](https://www.summersonic.com/news/2026-08-05-44944)
+
+*****
+
+####  堀内爱里衣  
+##### 41981#       发表于 2026-8-5 15:26
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/05/152650r7ll74yy4elyle48.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-08-05_15-25-13.jpg</strong> (181.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 15:26 上传
+
+       [https://x.com/seganewsnavi/status/2084855705371365653](https://x.com/seganewsnavi/status/2084855705371365653)
+
