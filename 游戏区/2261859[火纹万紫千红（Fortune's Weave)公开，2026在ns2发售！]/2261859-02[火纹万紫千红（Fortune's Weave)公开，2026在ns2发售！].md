@@ -6617,3 +6617,17 @@ is就按照这个立绘出个手办吧
 
 5年前这是量大管饱了，之前算过一天等于4回合，3-11月等于9个月跨度，9*30=270，270*4=1080，1080*4=4320，四个主角4320个回合可供玩家挥霍，真是把量拉满了。。。
 
+
+*****
+
+####  ppa11  
+##### 2123#       发表于 2026-8-6 02:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70013670&amp;ptid=2261859" target="_blank">光之阶梯 发表于 2026-8-4 22:30</a>
+然后打最终boss一人来一句？
+
+—— 来自 vivo V2548A, Android 16, 鹅球 v3.5.99-alpha</blockquote>
+回声不就干过了？效果还挺棒
+
+—— 來自 realme RMX3700, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
