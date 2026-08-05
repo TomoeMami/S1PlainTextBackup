@@ -10521,3 +10521,13 @@ gpt指导说后训练还挺重要的</blockquote>
 
 不过flash还是偶尔会漏信息，还是期待pro快点端出来
 
+
+*****
+
+####  风速前进mo  
+##### 5371#       发表于 2026-8-5 21:56
+
+想请教一下，pi有什么做上下文压缩的方案，现在dsv4f，做个任务很容易就突破1m限制
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
