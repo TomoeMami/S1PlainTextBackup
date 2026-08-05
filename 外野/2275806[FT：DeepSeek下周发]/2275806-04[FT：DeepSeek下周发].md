@@ -10610,3 +10610,11 @@ flash 都到 40k 了，pro50k 应该可以
 反正k3是会写的，不知道flash正式版的cot是不是已 ...</blockquote>
 应该是pro下放的
 
+
+*****
+
+####  cscbzcbz  
+##### 5379#       发表于 2026-8-6 07:34
+
+昨天试了下用来汉化游戏，也不错，dsv4f去提取文字，让dsv4f主动外包给本地部署的qwen8b，再把汉化后的文字替换回去<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">一轮下来花不了几个钱
+
