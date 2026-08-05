@@ -2511,3 +2511,16 @@ zp和文轩的商单我直接没看，太明显的商单了。他们两个做光
 
 发更新预告了,反应比宝可梦那边快起码10倍吧,话说总觉得老任这边游戏无论什么更新总喜欢憋好久,不知道为啥<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kemyes  
+##### 530#       发表于 2026-8-5 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017690&amp;ptid=2253295" target="_blank">nagitoY 发表于 2026-8-5 15:05</a>
+
+是，偷跑的那两天b站很多劝退视频，我看了一两个。正式发售后就搜不到了，点进历史后发现全下架了。
+
+zp和 ...</blockquote>
+zp我默认只有做忍组游戏时他是自来水XD
+

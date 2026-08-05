@@ -5884,3 +5884,34 @@ https://www.bilibili.com/video/BV16sMq6FEnc ...</blockquote>
 
 2026-8-5 16:25 上传
 
+
+*****
+
+####  Slyvan  
+##### 2055#       发表于 2026-8-5 16:32
+
+系统很丰富啊, 不过是打卡搬砖折磨还是甘之如饴地刷刷刷 还得你们先尝尝咸淡...
+
+*****
+
+####  hl氏  
+##### 2056#       发表于 2026-8-5 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018225&amp;ptid=2261859" target="_blank">lelouchwang 发表于 2026-8-5 16:15</a>
+
+目前没看到像英谷莉特、莉丝缇亚、菲利克斯那种一眼就要挖过来的角色</blockquote>
+这次PV新出的粉毛天马很亮眼
+
+*****
+
+####  bbluekid  
+##### 2057#       发表于 2026-8-5 16:36
+
+现在最期待的是四条线是否能够互相影响了，影响的程度如何。
+
+已知的是可以和其他线的主角临时一起上阵
+
+可以观察其他线的主角打JJC来获得经验
+
+那野外是否会互相影响呢
+
