@@ -9060,3 +9060,43 @@ IMG_9110(20260805-113535).PNG
 
 <img src="https://img.stage1st.com/forum/202608/05/113605d4hwpo8b88iosnpu.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  overflowal  
+##### 5270#       发表于 2026-8-5 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016045&amp;ptid=2275806" target="_blank">zzxzz1019 发表于 2026-8-5 11:36</a>
+OpenCode go在叫苦了</blockquote>
+真没卡了呀<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  冤枉呐  
+##### 5271#       发表于 2026-8-5 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70015145&amp;ptid=2275806" target="_blank">朋友费小号 发表于 2026-8-5 09:37</a>
+我是个低俗且普通的小白用户，之前一直用酒馆，但是现在感觉酒馆太麻烦了，有没有什么更简单好使的api调动 ...</blockquote>
+cherry
+可以部分实现酒馆功能
+并且还可以写写材料
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  矮矮人  
+##### 5272#       发表于 2026-8-5 11:47
+
+4F玩酒馆思考的好慢啊，感觉每次出文要花个五六分钟。用了几个预设都一样，官API
+
+
+*****
+
+####  goranger  
+##### 5273#       发表于 2026-8-5 11:50
+
+有个爬虫插件不用注册1000次次数每月，不是t开头的挺好用的f开头的人
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
