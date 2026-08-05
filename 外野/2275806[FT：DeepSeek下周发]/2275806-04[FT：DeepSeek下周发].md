@@ -9190,3 +9190,60 @@ rikkahub，安卓上的
  ...</blockquote>
 纯性能上没区别，只是Anthropic API和responses API会多个网页搜索功能，但是大部分工具都没适配后后两者的搜索，原生调用应该就只有cc和reasonix支持，其他要用搜索得加插件
 
+
+*****
+
+####  chenyedgg  
+##### 5281#       发表于 2026-8-5 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016045&amp;ptid=2275806" target="_blank">zzxzz1019 发表于 2026-8-5 11:36</a>
+
+OpenCode go在叫苦了</blockquote>
+都开源了，dax你不能自己租服务器部署吗，不要PVP了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  goranger  
+##### 5282#       发表于 2026-8-5 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70015825&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-5 11:15</a>
+我在 Kelivo 里面配置了搜索，然后 v4f 会疯狂搜索，有时候搜索一两百个页面，然后这些网页会全部进入上下 ...</blockquote>
+Hermes可以配置辅助模型把网页信息压缩
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  neptunehs  
+##### 5283#       发表于 2026-8-5 12:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016413&amp;ptid=2275806" target="_blank">chenyedgg 发表于 2026-8-5 12:16</a>
+都开源了，dax你不能自己租服务器部署吗，不要PVP了</blockquote>
+不可能顶得住吧（
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  来都来了  
+##### 5284#       发表于 2026-8-5 12:20
+
+这么看Pro是要和专武一起发，然后到业界里放旋风斩了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  萧观澜  
+##### 5285#       发表于 2026-8-5 12:21
+
+前面有一层推荐的openfic这两天玩了玩还挺可以的。比酒馆轻量，而且效果不错。
+
+*****
+
+####  蜇灵  
+##### 5286#       发表于 2026-8-5 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014606&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-8-5 07:49</a>
+opencode go这大客户被deepseek 限流了。我的天，pro上线咋整啊这个蹬法    Re:Source ...</blockquote>
+草，我才买的套餐<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

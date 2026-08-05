@@ -4700,3 +4700,11 @@ Type A、Type B最多算是规避风险吧。
 
 —— 来自 Xiaomi 24090RA29C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  黑卷轴陶德传  
+##### 1950#       发表于 2026-8-5 12:21
+
+这个鞋好丑有点受不了，像广东佬
+

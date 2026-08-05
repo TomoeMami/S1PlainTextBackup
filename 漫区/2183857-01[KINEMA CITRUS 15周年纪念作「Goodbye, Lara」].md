@@ -3248,3 +3248,18 @@ anime expo场刊里面表述茉里不是一个假小子，看到现在有人认�
 <img src="https://p.sda1.dev/34/1182d67028aac4af90a82031885e79de/HOuydDhbYAAybJw.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/34/51c8af93257eebd96c4f4fdb081073e2/HOuurwDbkAAZx9m.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 264#         楼主| 发表于 2026-8-5 12:24
+
+[https://x.com/i/status/2084710205351477629](https://x.com/i/status/2084710205351477629)
+
+ララ5話作監すこしだけお手伝いしました。
+
+ララが仕事を通じて人と触れ合うことで成長していくのをコメディをはさみつつバラエティに富んだ面白い話数で参加できてよかったです。
+
+ありがとうございました！！📷🍰🐟🚘
+<img src="https://p.sda1.dev/34/462a5990598fa8938359c75e8eee09d1/1000171724.jpg" referrerpolicy="no-referrer">
+
