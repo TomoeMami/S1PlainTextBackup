@@ -10556,3 +10556,13 @@ gpt指导说后训练还挺重要的</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  CCauchy  
+##### 5374#       发表于 2026-8-5 22:21
+
+pro有效上下文能达到500k吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
