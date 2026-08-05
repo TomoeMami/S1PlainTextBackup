@@ -7377,3 +7377,12 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 
 就算打到200多层回去再刷一只100层boss依旧刮痧，不吃冰冻拿他没办法，需要一把极度重视连射的双枪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 876#       发表于 2026-8-5 22:07
+
+打到210多层，全宝藏了。拿着多升级了很多次的重刷打100层，时间从19分钟变成了9分钟<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">。
+看到通关后陆续数宝藏的画面，想起以前用GAME BOY玩瓦力奥大陆1，最后结局画面也会跟着获得宝藏数改变，真怀念<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

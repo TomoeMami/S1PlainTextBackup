@@ -10531,3 +10531,28 @@ gpt指导说后训练还挺重要的</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  scikirbypoke  
+##### 5372#       发表于 2026-8-5 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70019999&amp;ptid=2275806" target="_blank">风速前进mo 发表于 2026-8-5 21:56</a>
+想请教一下，pi有什么做上下文压缩的方案，现在dsv4f，做个任务很容易就突破1m限制
+
+论坛助手,iPhone ...</blockquote>
+/compat
+觉得不满意应该能调提示词或者找到其他插件的压缩
+
+*****
+
+####  风速前进mo  
+##### 5373#       发表于 2026-8-5 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70020062&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-8-5 22:11</a>
+/compat
+觉得不满意应该能调提示词或者找到其他插件的压缩</blockquote>
+谢谢，明天试试
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
