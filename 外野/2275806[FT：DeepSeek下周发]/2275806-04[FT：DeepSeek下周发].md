@@ -8825,3 +8825,21 @@ anysearch，每天可以搜1000次。效果我不太确定，我搜索用的不�
 
 cherry studio吗？
 
+
+*****
+
+####  0WHan0  
+##### 5248#       发表于 2026-8-5 09:40
+
+话说现在用pro模型的1m上下文还需要写成deepseek-v4-pro[1m]后面跟个[1m]的形式吗
+
+
+*****
+
+####  serj005  
+##### 5249#       发表于 2026-8-5 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70015161&amp;ptid=2275806" target="_blank">0WHan0 发表于 2026-8-5 09:40</a>
+话说现在用pro模型的1m上下文还需要写成deepseek-v4-pro[1m]后面跟个[1m]的形式吗</blockquote>
+一直都不用，以前加上1m后缀是写给claudecode看的，接口本身不需要这个
+
