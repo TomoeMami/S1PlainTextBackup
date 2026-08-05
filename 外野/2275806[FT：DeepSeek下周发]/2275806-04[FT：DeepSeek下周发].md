@@ -9876,3 +9876,49 @@ opencode go还能再便宜些
 
 传递下去V4F的工作正确率不高，本身5.6也有问题，很喜欢搞什么冻结合同哈希balabala，传递下去一次做不对，就疯狂倒脚，然后开始出现遗忘偏移
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5345#       发表于 2026-8-5 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018759&amp;ptid=2275806" target="_blank">Awanano 发表于 2026-8-5 17:22</a>
+我觉得两个都降了
+
+传递下去V4F的工作正确率不高，本身5.6也有问题，很喜欢搞什么冻结合同哈希balabala， ...</blockquote>
+V4flash我还没有啥感觉，5.6昨天搞一个做过很多次的工作流，做的一塌糊，最后我提醒它去看看项目里以前它自己做的成果照着格式反推才搞明白<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  UncleDracula  
+##### 5346#       发表于 2026-8-5 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018165&amp;ptid=2275806" target="_blank">2017.05.04 发表于 2026-8-5 16:09</a>
+
+我今天蹬了2亿花了6块钱
+
+基本完成了一个小项目，这个费效比换其他家应该没有一个能实现的 ...</blockquote>
+怎么做到的大佬，我蹬了8KW就6块了，查个BUG一轮要一块多
+
+
+*****
+
+####  2017.05.04  
+##### 5347#       发表于 2026-8-5 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018819&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-8-5 17:32</a>
+
+怎么做到的大佬，我蹬了8KW就6块了，查个BUG一轮要一块多</blockquote>
+我接agent命中率99，当然我这个是小项目，不好横向比较
+
+*****
+
+####  来都来了  
+##### 5348#       发表于 2026-8-5 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018819&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-8-5 17:32</a>
+怎么做到的大佬，我蹬了8KW就6块了，查个BUG一轮要一块多</blockquote>
+平均100万一毛钱，8000万八块钱，你六块属于正常价格。
+

@@ -415,3 +415,19 @@ https://store-jp.nintendo.com/item/software/D70010000130288
 看到日推有人发了，你直接用古歌搜也能从外面看到，XB3的NS2E是C相当，我猜是临时工搞错了PV1开头已经写 ...</blockquote>
 是啊吓我一跳想着怎么会是A呢<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eraso  
+##### 2028#       发表于 2026-8-5 17:28
+
+<img src="https://img.stage1st.com/forum/202608/05/172645a5z7jd67a2w2g2f6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (158.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 17:26 上传
+
+新作应该会加重动作要素的比例吧，甚至可能会变成aprg？
+
