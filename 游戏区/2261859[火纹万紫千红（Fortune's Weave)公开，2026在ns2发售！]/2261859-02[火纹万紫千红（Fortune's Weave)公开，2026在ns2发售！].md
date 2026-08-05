@@ -4243,3 +4243,25 @@ TODAY更新了自捏的战斗，开头40级带着包子头打，应该就是序�
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  qiyu1234  
+##### 1902#       发表于 2026-8-5 11:00
+
+<img src="https://img.stage1st.com/forum/202608/05/110045n9c0mh3a776pcsot.jpg" referrerpolicy="no-referrer">
+
+<strong>021.jpg</strong> (321.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 11:00 上传
+
+<img src="https://img.stage1st.com/forum/202608/05/110045x242zxjxdwok2t3q.jpg" referrerpolicy="no-referrer">
+
+<strong>953.jpg</strong> (293.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 11:00 上传
+

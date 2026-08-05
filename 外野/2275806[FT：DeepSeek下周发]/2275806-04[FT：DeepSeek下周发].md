@@ -8960,3 +8960,25 @@ V4F codex经常搜网页的时候卡死循环 最迷惑的是东西都搜完可�
 
 deekseek没有给codex做过适配，还是在claude code里用吧
 
+
+*****
+
+####  serj005  
+##### 5260#       发表于 2026-8-5 11:02
+
+ 本帖最后由 serj005 于 2026-8-5 11:04 编辑 
+
+reasonix今天加了ds官方的Anthropic API和responses API服务端搜索功能，不用额外加第三方搜索插件了。不过官方搜索对上下文消耗挺大的，搜了个新闻就用了7%上下文长度
+
+*****
+
+####  spaceblue  
+##### 5261#       发表于 2026-8-5 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70015422&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-5 10:18</a>
+
+用到100%了吗？
+
+论坛助手,iPhone</blockquote>
+这两个月重置太多，肯定没用满。但是20X的量真的很大，lunamax相当于不要钱除了慢了点，还可以用网页版的Pro，这个思考模式是最久的。
+
