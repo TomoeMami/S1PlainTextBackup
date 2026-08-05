@@ -191,3 +191,13 @@
 
 —— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  茄子自走炮  
+##### 871#       发表于 2026-8-5 17:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我是全忍者队丢飞镖 除了rinne打三重霞 带个牧师自动放技能
+
+那脚本选对象是NEXT图标中心往下150~180像素 改了90~180随机多点几下就能选中冬贝利了
+

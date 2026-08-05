@@ -9922,3 +9922,20 @@ V4flash我还没有啥感觉，5.6昨天搞一个做过很多次的工作流，�
 怎么做到的大佬，我蹬了8KW就6块了，查个BUG一轮要一块多</blockquote>
 平均100万一毛钱，8000万八块钱，你六块属于正常价格。
 
+
+*****
+
+####  厍无春  
+##### 5349#       发表于 2026-8-5 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018279&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-8-5 16:20</a>
+刚查了下，基元律动就是王云鹤创业的公司</blockquote>
+就是那个盘古之殇？
+
+*****
+
+####  crow_wine  
+##### 5350#       发表于 2026-8-5 17:40
+
+不太对吧，我reasonix里3亿也才12块啊
+
