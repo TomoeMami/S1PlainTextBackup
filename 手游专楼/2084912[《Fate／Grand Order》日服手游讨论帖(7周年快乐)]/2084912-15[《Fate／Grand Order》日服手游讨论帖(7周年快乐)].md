@@ -2143,3 +2143,58 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 其实小玉只是强化被fer卡住了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计早就填好怎么强化了
 
+
+*****
+
+####  都谷捻柏  
+##### 21264#       发表于 2026-8-4 19:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按照我对日本人的了解，目前你游两个霸凌对象，一个是武藏，一个是玉藻前。
+
+什么你说青子？青子连被霸凌都不配。
+
+*****
+
+####  qixinno1  
+##### 21265#       发表于 2026-8-4 19:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">青子可是坐拥出星 缓充 三色魔放 对肃正防御 自身100充 50群充减2CD 还有高贵的白魔放和AOE红卡跟EX卡 宝具甚至万物特攻自带无敌贯通无视防御的超级数值怪
+
+*****
+
+####  壳壳牛  
+##### 21266#       发表于 2026-8-4 20:04
+
+直达南极的献血车说是<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/04/200234m9ouz7wd9udkfkdz.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1785844953945_1.webp</strong> (85.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-4 20:02 上传
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  zore  
+##### 21267#       发表于 2026-8-4 20:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这两个对象符合火之意志吗
+
+*****
+
+####  格林卡罗尔  
+##### 21268#       发表于 2026-8-5 01:09
+
+其实小玉只是强化被fer卡住了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计早就填好怎么强化了
+
+*****
+
+####  绷带绷得住  
+##### 21269#       发表于 2026-8-5 08:07
+
+米缸明年不中的还会有你吗？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
