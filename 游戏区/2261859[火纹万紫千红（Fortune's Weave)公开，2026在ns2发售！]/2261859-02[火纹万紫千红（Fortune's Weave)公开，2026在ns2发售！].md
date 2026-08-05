@@ -6332,3 +6332,26 @@ is就按照这个立绘出个手办吧
 能谁也不救就去打大BOSS，五年后占比不可能低吧。</blockquote>
 和野炊差不多呗，魔王在首都，随时可以去挑战，但是直接去挑战难度极大，最好是先去多个地点把中boss干了削弱boss的加护
 
+
+*****
+
+####  Jabeck  
+##### 2097#       发表于 2026-8-5 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70019806&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-8-5 21:13</a>
+
+和野炊差不多呗，魔王在首都，随时可以去挑战，但是直接去挑战难度极大，最好是先去多个地点把中boss干了 ...</blockquote>
+五年后还有五年后的同伴，不给养成的机会怎么可能。大概率五年后是一点点收复失地，满足“王子复仇记”的要求。
+
+
+*****
+
+####  灼眼的蔬菜达人  
+##### 2098#       发表于 2026-8-5 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016105&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-5 11:43</a>
+五年后四个人都有雕像，肯定是发生了什么让四个人都夺冠什么的。</blockquote>
+很可能四人成为四强，还没诞生冠军就出了意外，真反派现身把四人在内的主角团和好人全干了，四个雕像可能只是预热决赛圈<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24090RA29C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
