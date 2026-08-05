@@ -7321,3 +7321,16 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 
 昨天看完火纹直播看到UP用雨伞玩破冰也挺厉害啊，下个目标就搞个来玩，现在玩引擎重刷，R2都没松开过
 
+
+*****
+
+####  战略核水饺  
+##### 870#       发表于 2026-8-5 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014886&amp;ptid=2253488" target="_blank">真岛建设泥头车 发表于 2026-8-5 09:04</a>
+
+玩到后面大家要注意机器的散热，我在爬塔50层左右的时候ns2风扇发出巨响的轰鸣声，摘下来发现插在电视座上 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">说起来如果是90上下的电量的话那可能是那个不充满保护电池的设置打开了，
+
+然后Switch2底座模式下要温度比较高才开始全力散热来着
+
