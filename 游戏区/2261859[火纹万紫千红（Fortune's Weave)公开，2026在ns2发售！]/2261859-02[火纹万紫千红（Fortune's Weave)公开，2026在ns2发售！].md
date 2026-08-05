@@ -3866,3 +3866,40 @@ IMG_0970.jpeg
 
 三房那时其实pv就**方方地展示过五年后的造型了，这部要是五年后有新造型没必要藏，我感觉就是没有，8、9成剧情应该都在五年前
 
+
+*****
+
+####  Jabeck  
+##### 1865#       发表于 2026-8-5 09:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014929&amp;ptid=2261859" target="_blank">qiyu1234 发表于 2026-8-5 09:11</a>
+
+感觉看演示视频里的意思是四线都可以点亮的
+
+问题就在于不同路线的不同招募角色如果有冲突怎么办</blockquote>
+那五年前的其他角色练了不是白练？
+
+*****
+
+####  Dreammask  
+##### 1866#       发表于 2026-8-5 09:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014470&amp;ptid=2261859" target="_blank">苏西踩我了 发表于 2026-8-5 03:17</a>
+
+我感觉，三房卖太好了，老任很有可能会围绕这作世界观做ip，万紫千红是古代的达古扎地区，未来会在不同地区 ...</blockquote>
+看会不会出第三部作品吧，目前还属于火纹的惯例
+
+我个人还是希望别搞了，一想到仓花千夏还能再画一部无双我都有点头疼<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  406  
+##### 1867#       发表于 2026-8-5 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014282&amp;ptid=2261859" target="_blank">han110022 发表于 2026-8-5 00:48</a>
+
+是那个BOSS白毛的外传里，包括本篇里开场跟解放王打的蕾雅也是黄毛带绿的
+
+基本可以认为那一批眷属在解放 ...</blockquote>
+黄毛单纯是为了躲解放王时期对龙人追杀之类的事情染的，地底人对龙人哈气的其中一个标准就是绿发绿瞳
+

@@ -8782,3 +8782,16 @@ gpt20x一周能用多少亿啊
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  spaceblue  
+##### 5244#       发表于 2026-8-5 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014943&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-5 09:13</a>
+
+gpt20x一周能用多少亿啊
+
+论坛助手,iPhone</blockquote>
+我3个月烧了400多亿
+
