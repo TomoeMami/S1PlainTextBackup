@@ -2211,3 +2211,18 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 还不错
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 21271#       发表于 2026-8-5 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018677&amp;ptid=2084912" target="_blank">zore 发表于 2026-8-5 17:09</a>
+
+有的卡一辈子就是别人的一个技能</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一辈子就是别人的一个技能     x
+
+一辈子不如别人的一个技能     o
+
