@@ -8889,3 +8889,32 @@ flash不用，因为官方配置里没有加，这方面按官方的接入指南
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  王兰花秀丽  
+##### 5254#       发表于 2026-8-5 10:15
+
+又发了一次harness招募，这次明确要MCP 等生态建设的，且提到了“发布”，那么应该是有进展了吧
+
+<img src="https://img.stage1st.com/forum/202608/05/101212ktf25zc0of52j209.png" referrerpolicy="no-referrer">
+
+<strong>1000052125.png</strong> (267.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 10:12 上传
+
+    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  CCauchy  
+##### 5255#       发表于 2026-8-5 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70015010&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-8-5 09:21</a>
+我3个月烧了400多亿</blockquote>
+用到100%了吗？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

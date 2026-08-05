@@ -7274,3 +7274,13 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 
 拿在空调出风口前紧急降温后来就恢复了，但还是心有余悸，可能是特效太多和地图上鲑鱼太多了，人没崩溃ns2先崩溃了<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天堂大法  
+##### 865#       发表于 2026-8-5 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014886&amp;ptid=2253488" target="_blank">真岛建设泥头车 发表于 2026-8-5 09:04</a>
+玩到后面大家要注意机器的散热，我在爬塔50层左右的时候ns2风扇发出巨响的轰鸣声，摘下来发现插在电视座上 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事的，我之前一口气打了9个小时 也没一点问题
+
