@@ -2570,3 +2570,16 @@ zp我默认只有做忍组游戏时他是自来水XD
 
 怎么就能差这么多呢？！
 
+
+*****
+
+####  pf67  
+##### 535#       发表于 2026-8-6 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70009768&amp;ptid=2253295" target="_blank">我特么吹爆 发表于 2026-8-4 10:19</a>
+
+前两天的评论，复制过来吧，之所以当初没发S1是因为这里没有盲目乐观的：
+
+我都不知道各位对gf哪来的信心， ...</blockquote>
+这些人不是乐观相信GF , 而是想要一个任天堂不行的叙事
+

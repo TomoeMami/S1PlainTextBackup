@@ -10599,3 +10599,14 @@ pro有效上下文能达到500k吗
 论坛助手,iPhone</blockquote>
 flash 都到 40k 了，pro50k 应该可以
 
+
+*****
+
+####  Promeus  
+##### 5378#       发表于 2026-8-6 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70020468&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-5 23:55</a>
+话说flash现在在cot里好像不会写伪代码了，之前会不会？
+反正k3是会写的，不知道flash正式版的cot是不是已 ...</blockquote>
+应该是pro下放的
+
