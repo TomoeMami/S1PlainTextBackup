@@ -9413,3 +9413,20 @@ https://deepseektavern.com/
 特调版DS，百无禁忌，PRO和官网一个价。</blockquote>
 宣传原版V4P高甲，然后自己在公告里又说租了国内算力平台要求“大家口味稍微正常点，别碰极限话题”<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  此誓的守望  
+##### 5304#       发表于 2026-8-5 13:48
+
+最支持奶龙的一集
+奶龙没吃饭吗？上星期不是说要ban掉邪恶闹钟的开源模型吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快用你无敌的ice和长臂管辖想想办法别让羊人跟我们抢鲸鱼了呗
+
+
+*****
+
+####  阿刚  
+##### 5305#       发表于 2026-8-5 13:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说甲厚的最好都特么反省下自己的性癖，肥鲸鱼已经是最性压抑的模型没有之一了
+

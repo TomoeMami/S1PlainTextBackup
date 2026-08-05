@@ -5188,3 +5188,25 @@ image.png
 记得当年发布会就觉得这首特别炸裂，果然是主题曲。
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  反方向的波  
+##### 1993#       发表于 2026-8-5 13:48
+
+一天里连着出来井上麻里奈小笠原亚里莎三木真一郎的角色，我来到吊带袜天使片场了吗
+
+*****
+
+####  Jabeck  
+##### 1994#       发表于 2026-8-5 13:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017050&amp;ptid=2261859" target="_blank">suzakushi 发表于 2026-8-5 13:41</a>
+
+太典了有点。
+
+你都骂了还买，贱不贱啊。
+
+你都不买还骂，谁鸟你啊。</blockquote>
+自称反DEI，但还是会买DEI游戏，那也别怪人不把反DEI的当回事了。<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
