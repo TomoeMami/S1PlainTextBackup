@@ -410,3 +410,22 @@ yuno倒是五个人里比较像Vtb的，相对而言吧，不知道后面会不�
 
 2026-8-5 06:03 上传
 
+
+*****
+
+####  帆前  
+##### 174#       发表于 2026-8-5 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70013063&amp;ptid=2283962" target="_blank">aptx8285144 发表于 2026-8-4 20:04</a>
+
+这人身上有很多集反派元素于一体的感觉，最初似乎是“主角是苦主里的黄毛担当”，但是手段又像宫斗剧里的 ...</blockquote>
+哦，我在上集的时候还真也提过凤晓声<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是我现在觉得牢薇比牢凤更油腻，更像是短剧或者网文里的反派了（
+
+
+*****
+
+####  whzfjd  
+##### 175#       发表于 2026-8-5 11:42
+
+随便放走律还能开新矿，薇欧拉已经不是胚胎这种低配大N老师能望其项背的存在了，我现在觉得V姐接近银河美少年的男魅魔大反派。
+

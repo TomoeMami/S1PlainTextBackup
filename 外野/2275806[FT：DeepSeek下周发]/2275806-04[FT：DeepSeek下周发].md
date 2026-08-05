@@ -9043,3 +9043,20 @@ reasonix今天加了ds官方的Anthropic API和responses API服务端搜索功�
 
 我急啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzxzz1019  
+##### 5269#       发表于 2026-8-5 11:36
+
+OpenCode go在叫苦了
+
+IMG_9110(20260805-113535).PNG
+(411.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 11:36 上传
+
+<img src="https://img.stage1st.com/forum/202608/05/113605d4hwpo8b88iosnpu.png" referrerpolicy="no-referrer">
+

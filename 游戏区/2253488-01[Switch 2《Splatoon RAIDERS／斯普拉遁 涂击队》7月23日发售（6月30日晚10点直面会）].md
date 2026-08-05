@@ -7295,3 +7295,21 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 玩到后面大家要注意机器的散热，我在爬塔50层左右的时候ns2风扇发出巨响的轰鸣声，摘下来发现插在电视座上 ...</blockquote>
 没事的，家用机在设计的时候就考虑到了各种极端情况，大把的人锁电视柜里玩都没事，电子元器件比你想象的要更耐高温，没那么容易坏的。相对来说最容易坏的其实是电池，会鼓包<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Antidote丶  
+##### 867#       发表于 2026-8-5 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014886&amp;ptid=2253488" target="_blank">真岛建设泥头车 发表于 2026-8-5 09:04</a>
+
+玩到后面大家要注意机器的散热，我在爬塔50层左右的时候ns2风扇发出巨响的轰鸣声，摘下来发现插在电视座上 ...</blockquote>
+没事的，我宏挂了24个小时都好好的
+
+*****
+
+####  Antidote丶  
+##### 868#       发表于 2026-8-5 11:37
+
+早上起来发现出了绝品鲨鱼泡了，可以不用再挂机了
+

@@ -4413,3 +4413,98 @@ TODAY更新了自捏的战斗，开头40级带着包子头打，应该就是序�
 
 如果真是4线并行，这边挖了队友另外一条线挖不了就牛逼了，但估计is驾驭不了。看宣传片那意思应该是随时切换，4线进度可以不一样，那感觉更像是4个存档完全平行世界了，就是不知道最终两条线都挖走的人5年后按哪条线算能力。
 
+
+*****
+
+####  紫菜粉丝煲  
+##### 1920#       发表于 2026-8-5 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016006&amp;ptid=2261859" target="_blank">suzakushi 发表于 2026-8-5 11:32</a>
+满屏尼哥的游戏出了个中国风角色赶紧拿来反击，无脑护们的脑子也就到这了。 ...</blockquote>
+毕竟去性别化都是dei了，不敢承认自己反对多元平等，搞得好像第一次玩任天堂第一方游戏一样
+
+
+*****
+
+####  ascomnet  
+##### 1921#       发表于 2026-8-5 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016017&amp;ptid=2261859" target="_blank">野生的那个啥 发表于 2026-8-5 11:33</a>
+
+如果真是4线并行，这边挖了队友另外一条线挖不了就牛逼了，但估计is驾驭不了。看宣传片那意思应该是随时切 ...</blockquote>
+或者是，每家能挖的人选不一样
+
+*****
+
+####  ling1234567890  
+##### 1922#       发表于 2026-8-5 11:37
+
+不是，看到个type A、type B就要扯DEI。既然那么想反DEI要不先把法环批倒批臭吧。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jabeck  
+##### 1923#       发表于 2026-8-5 11:39
+
+跟个苍蝇似的隔三岔五都来叫一叫。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  suzakushi  
+##### 1924#       发表于 2026-8-5 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016039&amp;ptid=2261859" target="_blank">紫菜粉丝煲 发表于 2026-8-5 11:36</a>
+
+毕竟去性别化都是dei了，不敢承认自己反对多元平等，搞得好像第一次玩任天堂第一方游戏一样 ...</blockquote>
+去性别化都不叫dei那什么是dei你能教教我吗，我就是反对多元平等啊，难道支持很光彩？
+
+*****
+
+####  whzfjd  
+##### 1925#       发表于 2026-8-5 11:39
+
+本来就不应该去性别化，承认有人染色体不是 XY 或 XX 或者雌雄激素不表达或心理不认同不等于世界上没有男性和女性而是 type a type b 了。
+
+
+*****
+
+####  Jabeck  
+##### 1926#       发表于 2026-8-5 11:41
+
+ type a type b  日厂都用了多久了现在才来叫。<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 1927#       发表于 2026-8-5 11:41
+
+四线应该是平行世界，毕竟几个主角总要对上，你总不能是在用A队击败了B队之后又用B队击败A队，而且冠军只有一个，不过这其实也挺捞的，完成四个角色的路线可能意味着要分别帮四个主角夺冠
+
+*****
+
+####  紫菜粉丝煲  
+##### 1928#       发表于 2026-8-5 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016073&amp;ptid=2261859" target="_blank">suzakushi 发表于 2026-8-5 11:39</a>
+去性别化都不叫dei那什么是dei你能教教我吗，我就是反对多元平等啊，难道支持很光彩？ ...</blockquote>
+承认就好啊，以后被歧视不要叫就行
+
+*****
+
+####  Jabeck  
+##### 1929#       发表于 2026-8-5 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016085&amp;ptid=2261859" target="_blank">hkguty 发表于 2026-8-5 11:41</a>
+
+四线应该是平行世界，毕竟几个主角总要对上，你总不能是在用A队击败了B队之后又用B队击败A队，而且冠军只有 ...</blockquote>
+五年后四个人都有雕像，肯定是发生了什么让四个人都夺冠什么的。
+
+*****
+
+####  紫菜粉丝煲  
+##### 1930#       发表于 2026-8-5 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016083&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-5 11:41</a>
+type a type b  日厂都用了多久了现在才来叫。</blockquote>
+迎合市场也要叫，这帮叫嚷着反dei还没意识到自己才是小众
+
