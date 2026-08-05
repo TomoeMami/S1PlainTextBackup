@@ -5498,3 +5498,38 @@ image.png
 蕾达登场这个舞直接把我整迷糊了，第一条线就选蕾达吧
 [https://www.bilibili.com/video/BV16sMq6FEnc](https://www.bilibili.com/video/BV16sMq6FEnc)
 
+
+*****
+
+####  nagitoY  
+##### 2021#       发表于 2026-8-5 15:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017202&amp;ptid=2261859" target="_blank">山口達也 发表于 2026-8-5 14:04</a>
+
+说真的含尼量真的高吗?小男孩那种肤色这次游戏里特别多，但是建模里看着挺白的啊，特别黑的在建模上肤色明 ...</blockquote>
+皮肤黑点也就算了，厚嘴唇、脏辫、塌鼻子等一系列要素全加进来，我是觉得很难看。
+
+
+*****
+
+####  零崎不识  
+##### 2022#       发表于 2026-8-5 15:14
+
+<blockquote>nagitoY 发表于 2026-8-5 15:07
+皮肤黑点也就算了，厚嘴唇、脏辫、塌鼻子等一系列要素全加进来，我是觉得很难看。 ...</blockquote>
+老问题，本质上宣发问题，历代火纹丑壮汉不少，只是宣发不放，然后玩家自觉把丑壮汉放板凳，回忆美化后就成了前作全是萌萌哒没有丑的
+
+他现在宣发放丑的感觉是在堵dei的嘴，在说“你们看好了我们不是媚宅游戏哈”
+
+然后其实各种大扔子、萝莉、萌萌哒一个不少，丑的依旧被玩家自觉放板凳
+
+*****
+
+####  蓝雉  
+##### 2023#       发表于 2026-8-5 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017703&amp;ptid=2261859" target="_blank">nagitoY 发表于 2026-8-5 15:07</a>
+
+皮肤黑点也就算了，厚嘴唇、脏辫、塌鼻子等一系列要素全加进来，我是觉得很难看。 ...</blockquote>
+同时具备这些特征的不就那几个中年壮汉吗,这种角色哪怕换成白人也不会往颜值担当的方向设计啊
+

@@ -217,3 +217,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">话说其他骑士怎么都明显不是这个时代的人啊，集体冬眠了？
 
+
+*****
+
+####  byisme001  
+##### 79#       发表于 2026-8-5 15:17
+
+刚看预告 主角也太韩系了吧 粉底液将军那类型的
+

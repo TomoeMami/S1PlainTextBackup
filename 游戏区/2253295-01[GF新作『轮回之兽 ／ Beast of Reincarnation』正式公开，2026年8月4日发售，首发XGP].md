@@ -2480,3 +2480,18 @@ AG老师那边就很和平。
 
 <img src="https://p.sda1.dev/34/593817d42f842b1b5be13d3a9eb200dd/1000171728.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 527#       发表于 2026-8-5 15:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016764&amp;ptid=2253295" target="_blank">千秋难诉 发表于 2026-8-5 13:02</a>
+
+zp和文轩房塌得彻底，本来吃点商单也不是什么大不了，可是一个比一个嘴硬
+
+发行商能量挺大的，直接下架了B ...</blockquote>
+是，偷跑的那两天b站很多劝退视频，我看了一两个。正式发售后就搜不到了，点进历史后发现全下架了。
+
+zp和文轩的商单我直接没看，太明显的商单了。他们两个做光荣游戏的攻略非常详细，其他的就要自己辨别下了。
+
