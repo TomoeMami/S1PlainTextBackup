@@ -524,3 +524,40 @@ Music Video 3作を収録予定。
 
 不过我看粉丝也没着急就是
 
+
+*****
+
+####  holofan  
+##### 11691#       发表于 2026-8-5 16:04
+
+<img src="https://img.stage1st.com/forum/202608/05/160436zxb91zxi8pil2x2s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (106.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 16:04 上传
+
+*****
+
+####  holofan  
+##### 11692#       发表于 2026-8-6 02:48
+
+<img src="https://img.stage1st.com/forum/202608/06/024639sqb1h7v7pfbh0q37.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (45.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 02:46 上传
+
+<img src="https://img.stage1st.com/forum/202608/06/024701ocdzhsyultlcd7p9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (80.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 02:47 上传
+
+推特还是很严格<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
