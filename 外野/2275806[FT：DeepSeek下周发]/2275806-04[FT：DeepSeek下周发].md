@@ -10016,3 +10016,35 @@ codex雷达上一直在坡底…
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  舞以  
+##### 5359#       发表于 2026-8-5 18:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">复杂任务还是建议300多k上下文就压缩一次比较好
+
+*****
+
+####  nxmonitor  
+##### 5360#       发表于 2026-8-5 18:22
+
+今天早上刚又招了一波内测，没这么快的，至少周五或者下周一…
+
+
+*****
+
+####  serj005  
+##### 5361#       发表于 2026-8-5 18:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018946&amp;ptid=2275806" target="_blank">中国人 发表于 2026-8-5 17:55</a>
+不行，今天下午严重流口水，不应该啊，指令依从能力和理解能力不应该这么差啊，跑得多了上下文被占据多了导 ...</blockquote>
+正常情况上下文别超过1/4智力就是正常的，50%上下文之后可用性就大幅下降了
+
+*****
+
+####  nxmonitor  
+##### 5362#       发表于 2026-8-5 18:25
+
+官方的其实比opencode go里的性能强一点，长上下文的时候很明显
+

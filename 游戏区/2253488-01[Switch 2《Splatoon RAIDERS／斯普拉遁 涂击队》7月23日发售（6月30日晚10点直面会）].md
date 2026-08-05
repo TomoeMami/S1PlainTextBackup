@@ -7352,3 +7352,20 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 5级的武器怎么卖不了</blockquote>
 解锁，5星入手默认锁了的
 
+
+*****
+
+####  二十二颗牛油果  
+##### 873#       发表于 2026-8-5 18:21
+
+原来蓝水晶上限只有9999999这么低吗
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 874#       发表于 2026-8-5 18:23
+
+100层好难啊，拿个引擎重刷清小怪都累得要死没空躲boss，好想要丙烷爆破枪<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+

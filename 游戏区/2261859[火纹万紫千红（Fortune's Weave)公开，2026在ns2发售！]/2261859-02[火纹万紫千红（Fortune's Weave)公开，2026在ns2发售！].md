@@ -6131,3 +6131,14 @@ https://www.bilibili.com/video/BV16sMq6FEnc ...</blockquote>
 
 真要分几队同步过剧情还是有点怪的，这几年我已经习惯单线剧情然后男的全踢走只用妹子角色了……难道真的要久违地常态化用男人了吗
 
+
+*****
+
+####  whzfjd  
+##### 2077#       发表于 2026-8-5 18:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018965&amp;ptid=2261859" target="_blank">oniwarud 发表于 2026-8-5 17:58</a>
+
+突然发现这作好像就没几个小雷角色，那个戴猫耳面具的看着像小雷结果立绘也是大雷 ...</blockquote>
+大雷过审说，也算是借力打力了
+
