@@ -8795,3 +8795,33 @@ gpt20x一周能用多少亿啊
 论坛助手,iPhone</blockquote>
 我3个月烧了400多亿
 
+
+*****
+
+####  sellboy  
+##### 5245#       发表于 2026-8-5 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014801&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-5 08:45</a>
+
+昨天打听到一个MCP叫做vision-bridge，可以单独配多模态的模型进去，从而让Deepseek具备一些视觉功能。测试 ...</blockquote>
+现在网页端的视觉模式是用DeepSeek-ViT这个内部模型对Deepseek V4f翻译来实现的，而且其视觉理解能力还可以。
+
+所以……也许伴随官方harness发布，DeepSeek-ViT作为其MCP就对外开放了呢~~
+
+
+*****
+
+####  orca  
+##### 5246#       发表于 2026-8-5 09:35
+
+anysearch，每天可以搜1000次。效果我不太确定，我搜索用的不多。
+
+*****
+
+####  朋友费小号  
+##### 5247#       发表于 2026-8-5 09:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我是个低俗且普通的小白用户，感觉酒馆太麻烦了，有没有什么更简单好使的api调动方法？
+
+cherry studio吗？
+
