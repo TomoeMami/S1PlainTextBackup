@@ -6530,3 +6530,37 @@ is就按照这个立绘出个手办吧
 
 说起来一个好笑的，合着白鸦介入哪方，哪方就能有天刻悔棋开挂，五年后四主角得抓着白鸦对峙“哦原来那场战斗对面突然感觉开挂了是你在操作啊”hhhhh
 
+
+*****
+
+####  406  
+##### 2118#       发表于 2026-8-5 23:00
+
+前作五年变化都说得挺清楚了，难道指望五年日常都演出来不成。这作估计也就关键节点来个大头贴PPT战况播报一下就完了
+
+
+*****
+
+####  零崎不识  
+##### 2119#       发表于 2026-8-5 23:04
+
+<img src="https://img.stage1st.com/forum/202608/05/230036cglgdmz3bhgaak0g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260805_230023_tv_danmaku_bili_UnitedBizDetailsActivity.jpg</strong> (297.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 23:00 上传
+
+<img src="https://img.stage1st.com/forum/202608/05/230309tq8ee73a8334czch.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260805_230236_tv_danmaku_bili_UnitedBizDetailsActivity.jpg</strong> (347.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 23:03 上传
+
+果然有预选，预选起码3轮，本战也起码3轮，本战决胜战是11月20号，预选第二轮4月10号，第三轮居然要到7月9号，预选赛要打的时间真的超级长，也就是预选赛每一轮隔三个月，那特么预选第一轮很有可能是1月。。。这大剑斗祭要打11个月。。。
+
+大剑斗祭的时间跨度非常长，
+
