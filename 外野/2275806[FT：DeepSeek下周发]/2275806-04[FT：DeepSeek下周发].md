@@ -9979,3 +9979,18 @@ codex最离谱的是新版本不能调用luna作为子代理，这个bug好几�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  nxmonitor  
+##### 5355#       发表于 2026-8-5 17:58
+
+codex雷达上一直在坡底…
+
+*****
+
+####  wandeeees  
+##### 5356#       发表于 2026-8-5 17:59
+
+今天没异常，难道这周大的来不了了？
+
