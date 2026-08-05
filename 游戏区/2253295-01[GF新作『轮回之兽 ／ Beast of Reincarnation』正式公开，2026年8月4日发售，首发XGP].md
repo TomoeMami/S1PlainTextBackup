@@ -2583,3 +2583,11 @@ zp我默认只有做忍组游戏时他是自来水XD
 我都不知道各位对gf哪来的信心， ...</blockquote>
 这些人不是乐观相信GF , 而是想要一个任天堂不行的叙事
 
+
+*****
+
+####  m98626  
+##### 536#       发表于 2026-8-6 06:04
+
+这云被GF做的跟大便一样，真给我玩哭了😭<img src="https://p.sda1.dev/34/ac1289f05ea01953ad5a5ef36fcdfba1/image.jpg" referrerpolicy="no-referrer">
+
