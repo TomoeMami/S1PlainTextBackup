@@ -9773,3 +9773,36 @@ https://deepseektavern.com/
 
 可以说除非是保证自己能用完gpt，包括一直开着网页挂两个会话，idea多得数不清的人，都应该选择deepseek
 
+
+*****
+
+####  厍无春  
+##### 5336#       发表于 2026-8-5 16:05
+
+我刚测试了一下 v4f 正式版可以用，还是转发的官方的，api 定价和官方一样，送的 68 元可以爽蹬。也支持原生Responses API，把这家和 ds 官方的 的配置文档全发给 ai 分析让 ai 配置就行了。
+
+贴一下自己的链接
+
+https://tokenrhythm.studio/i/rf_tr_bkuV2Fp0qZMTgllgVNRCvf_P
+
+7693.png
+(418.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 16:05 上传
+
+<img src="https://img.stage1st.com/forum/202608/05/160547ix1gj8pdvasvzr71.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2017.05.04  
+##### 5337#       发表于 2026-8-5 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018025&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-5 15:52</a>
+
+昨晚一个群友蹬了10亿，花了48元，我算了一下缓存命中率97%，如果全部换成pro，就是100元左右，根据多渠道 ...</blockquote>
+我今天蹬了2亿花了6块钱
+
+基本完成了一个小项目，这个费效比换其他家应该没有一个能实现的
+

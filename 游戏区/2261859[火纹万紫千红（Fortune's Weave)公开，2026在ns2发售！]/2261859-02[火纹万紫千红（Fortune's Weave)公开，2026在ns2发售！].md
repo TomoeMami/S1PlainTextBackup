@@ -5778,3 +5778,78 @@ https://www.bilibili.com/video/BV16sMq6FEnc ...</blockquote>
 
 这作看起来要火啊。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LMBS  
+##### 2046#       发表于 2026-8-5 16:13
+
+三房五年前最后两个月就开始腻，感觉本作再加强探索部分更不适合自己了
+
+系统方面神的加护算是比较好的创新，看着像之前的料理功能，变成更强力的1回合效果，感觉可以对战棋有比较大的影响特别是一些极限或者逃课
+
+这次最高只有上级，看了下数值没有三房那么离谱，起码关卡打起来会比三房好
+
+武器的耐久好低，会不会是打完一个大战役回满
+
+*****
+
+####  苍蓝之枪  
+##### 2047#       发表于 2026-8-5 16:14
+
+<blockquote>otakun 发表于 2026-8-5 16:06
+是那个用女主来说得，友方唯一可以转狂战士的海盗吗，当时还真练了，丑萌又强大 ...</blockquote>
+后面好像还有个长得帅很多的人能转狂战，但是毕竟冈萨雷斯先到了，就顺着用下来了
+
+这种效应还是挺明显的，剑圣也是优先用的鲁道加而不是菲尔
+
+*****
+
+####  yangchunsiyue  
+##### 2048#       发表于 2026-8-5 16:14
+
+我印象里风花雪月发之前还有人一直在楼里说仓花千夏只会画基佬男，是BL画师，风花雪月的男的都是牛郎之类的。结果这次又变丑尼专业户了，还真是神奇<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  蕾丝控  
+##### 2049#       发表于 2026-8-5 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014136&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-8-5 00:14</a>
+
+又看了遍中文直面会
+
+“他被赋予了两个选项，一是以自己的力量对抗魔神的军队”</blockquote>
+相信乱数的力量。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lelouchwang  
+##### 2050#       发表于 2026-8-5 16:15
+
+目前没看到像英谷莉特、莉丝缇亚、菲利克斯那种一眼就要挖过来的角色
+
+*****
+
+####  mai6696  
+##### 2051#       发表于 2026-8-5 16:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018134&amp;ptid=2261859" target="_blank">otakun 发表于 2026-8-5 16:06</a>
+
+是那个用女主来说得，友方唯一可以转狂战士的海盗吗，当时还真练了，丑萌又强大 ...</blockquote>
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 谁还记得“你个牢骚不休的小基佬.jpg”吗？
+
+*****
+
+####  零崎不识  
+##### 2052#       发表于 2026-8-5 16:17
+
+<blockquote>LMBS 发表于 2026-8-5 16:13
+三房五年前最后两个月就开始腻，感觉本作再加强探索部分更不适合自己了
+
+系统方面神的加护算是比较好的创新 ...</blockquote>
+普通攻击不消耗耐久，使用战技消耗耐久，且强力战技一次消耗的耐久相当高
+
