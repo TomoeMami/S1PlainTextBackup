@@ -4302,3 +4302,52 @@ TODAY更新了自捏的战斗，开头40级带着包子头打，应该就是序�
 
 万缕千丝的港服定价来了数字版499港币 实体版549港币 是跟马车世界一个价位的游戏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这定价 老任这次非常自信 直接定了个任天堂第一方最高档位
 
+
+*****
+
+####  ascomnet  
+##### 1908#       发表于 2026-8-5 11:18
+
+那肯定是比不了你索的黑胖子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  freedom12  
+##### 1909#       发表于 2026-8-5 11:18
+
+看着入队人数蹭蹭上涨，像三房那样多半角色5年后换立绘也不太现实了
+
+不过四个队长都有特殊能力，感觉还是会有能力解放的第二形态
+
+*****
+
+####  ybfelix  
+##### 1910#       发表于 2026-8-5 11:23
+
+中国元素算不算DEI？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 1911#       发表于 2026-8-5 11:24
+
+基本实锤存在5年后的养成内容
+
+<img src="https://img.stage1st.com/forum/202608/05/112358tevl7kkulfclvea6.jpg" referrerpolicy="no-referrer">
+
+<strong>32.jpg</strong> (11.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 11:23 上传
+
+*****
+
+####  紫菜粉丝煲  
+##### 1912#       发表于 2026-8-5 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70015912&amp;ptid=2261859" target="_blank">ybfelix 发表于 2026-8-5 11:23</a>
+中国元素算不算DEI？</blockquote>
+骑士黑人的高贵黄皮坛友肯定觉得不算
+

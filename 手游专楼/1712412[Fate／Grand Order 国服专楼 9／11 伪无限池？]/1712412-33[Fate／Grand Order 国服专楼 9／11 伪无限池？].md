@@ -1813,3 +1813,17 @@ QP真是永远痛
 然后今天 ...</blockquote>
 轻轻松松的事情，为啥不办，不过下次还有次EX冠位好像，不过4倍大成功应该没了
 
+
+*****
+
+####  marxel  
+##### 48047#       发表于 2026-8-5 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70013603&amp;ptid=1712412" target="_blank">赤备传承 发表于 2026-8-4 22:22</a>
+900石头抽的三宝所长拉到百级，因为没打完所长本，只能冠了奥宝，结果每天时不时还有几千友情收入
+
+然后今天 ...</blockquote>
+ex双倍经验+四倍大成功，要喂抓紧，我是把压箱底的大火都拿出来了
+
+—— 来自 OnePlus PKX110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

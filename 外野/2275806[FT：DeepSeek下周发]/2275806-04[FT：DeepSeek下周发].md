@@ -8982,3 +8982,18 @@ reasonix今天加了ds官方的Anthropic API和responses API服务端搜索功�
 论坛助手,iPhone</blockquote>
 这两个月重置太多，肯定没用满。但是20X的量真的很大，lunamax相当于不要钱除了慢了点，还可以用网页版的Pro，这个思考模式是最久的。
 
+
+*****
+
+####  小野賢章  
+##### 5262#       发表于 2026-8-5 11:15
+
+我在 Kelivo 里面配置了搜索，然后 v4f 会疯狂搜索，有时候搜索一两百个页面，然后这些网页会全部进入上下文，发第二个消息的时候，就提示我1M上下文用完了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 5263#       发表于 2026-8-5 11:18
+
+我看harness还在招人内测，现在扩大招人范围为了更快提供的接入支持，感觉这周有点悬啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
