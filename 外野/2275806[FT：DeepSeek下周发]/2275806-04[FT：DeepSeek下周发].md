@@ -8918,3 +8918,13 @@ flash不用，因为官方配置里没有加，这方面按官方的接入指南
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  CCauchy  
+##### 5256#       发表于 2026-8-5 10:34
+
+现在订阅用得完的话是不是gpt最好
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
