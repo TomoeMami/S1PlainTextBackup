@@ -9821,3 +9821,14 @@ kimi这也太慢了，受不了了
 
 刚查了下，基元律动就是王云鹤创业的公司<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  矮矮人  
+##### 5340#       发表于 2026-8-5 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016447&amp;ptid=2275806" target="_blank">萧观澜 发表于 2026-8-5 12:21</a>
+
+前面有一层推荐的openfic这两天玩了玩还挺可以的。比酒馆轻量，而且效果不错。 ...</blockquote>
+这个怎么破甲，把前面楼推荐的破解加入角色提示词最前面，也破不动
+
