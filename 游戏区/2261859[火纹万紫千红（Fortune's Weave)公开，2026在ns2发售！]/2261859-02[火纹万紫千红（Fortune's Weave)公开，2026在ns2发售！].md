@@ -4201,3 +4201,45 @@ IMG_0970.jpeg
 
 <img src="https://p.sda1.dev/34/88faaf7139dda9e7aa30812a5ad22de0/2026-08-05_104430.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴尔干炮  
+##### 1899#       发表于 2026-8-5 10:56
+
+TODAY更新了自捏的战斗，开头40级带着包子头打，应该就是序章教学关。
+
+*****
+
+####  freedom12  
+##### 1900#       发表于 2026-8-5 10:57
+
+<img src="https://img.stage1st.com/forum/202608/05/105624ykzvrbwjrb07ejtj.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260805105531_56_2.jpg</strong> (103.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 10:56 上传
+
+<img src="https://img.stage1st.com/forum/202608/05/105624yckhjhwrnd8f0e3r.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260805105532_57_2.jpg</strong> (81.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-5 10:56 上传
+
+有哪吒
+
+这次还真是不少“三方”势力，而且文化原型也很广
+
+*****
+
+####  アーリィ  
+##### 1901#       发表于 2026-8-5 10:57
+
+能自捏那我要转生贝老师了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
