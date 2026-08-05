@@ -8730,3 +8730,25 @@ opencode go这大客户被deepseek 限流了。我的天，pro上线咋整啊这
 有没有啥免费的 Web Search 的工具，求推荐，搜了一圈，都是付费的，有免费额度 ...</blockquote>
 websearch-deepseek，是一个mcp，直接调用Deepseek的API进行搜索，因此约等于是免费的。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5239#       发表于 2026-8-5 08:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014601&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-8-5 07:46</a>
+有没有啥免费的 Web Search 的工具，求推荐，搜了一圈，都是付费的，有免费额度 ...</blockquote>
+必应
+其实tavily每个月1000额度用不完的用，如果感觉不够可以开几个小号，而且就算额度用完了，每次搜索费用也挺低的，我直接绑了张信用卡，但是到现在也没有扣过费。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  ymm1030  
+##### 5240#       发表于 2026-8-5 08:33
+
+昨天一个雷霆大思考，在思考链里把我设定的 32000 token 耗光了，离谱。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
