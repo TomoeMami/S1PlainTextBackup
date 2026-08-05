@@ -8760,3 +8760,15 @@ websearch-deepseek，是一个mcp，直接调用Deepseek的API进行搜索，因
 
 昨天打听到一个MCP叫做vision-bridge，可以单独配多模态的模型进去，从而让Deepseek具备一些视觉功能。测试了一下，实际的效果相当于正常人用语言给瞎子描述图片，细节丢失的很厉害，很难说是有用。
 
+
+*****
+
+####  真红之闪电  
+##### 5242#       发表于 2026-8-5 08:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70014801&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-5 08:45</a>
+昨天打听到一个MCP叫做vision-bridge，可以单独配多模态的模型进去，从而让Deepseek具备一些视觉功能。测试 ...</blockquote>
+一直都是这样…我最后放弃了是因为这样信息损失其实也挺严重
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
