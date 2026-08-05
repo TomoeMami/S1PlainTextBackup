@@ -2215,3 +2215,14 @@ MD的素材复用也很严重
 
 别的不说，反复去刷突破等级的次元兽，那种事情想想就够崩溃了
 
+
+*****
+
+####  萨尤克  
+##### 217#       发表于 2026-8-5 11:53
+
+B站至少有三版OGS和OGG的高清素材包了，现在又有个重绘花三和OGG素材的UP，重绘质量还挺好的，不过还没做完
+至于OG复刻？从不指望你BN，反正玩具照买游戏随你便，跟这个系列的缘分早在30就尽了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

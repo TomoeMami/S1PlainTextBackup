@@ -9100,3 +9100,62 @@ cherry
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  zfy1989  
+##### 5274#       发表于 2026-8-5 11:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016142&amp;ptid=2275806" target="_blank">矮矮人 发表于 2026-8-5 11:47</a>
+
+4F玩酒馆思考的好慢啊，感觉每次出文要花个五六分钟。用了几个预设都一样，官API ...</blockquote>
+因为现在4fga的雷霆大思考会把你预设的每一个要求都检查一遍啊，并且是现在思维链里面先打一个草稿检查一遍然后再在思维链里面修改稿然后再检测一遍，所以如果你的预设比较复杂，它就会不停的检查，特别是字数，建议设置成自适应字数。不过优点是特别遵循预设要求。
+
+*****
+
+####  SmterC  
+##### 5275#       发表于 2026-8-5 11:57
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/av.gif" referrerpolicy="no-referrer">
+
+finally.mid
+(48.94 KB, 下载次数: 0)
+
+2026-8-5 11:56 上传
+
+点击文件名下载附件
+
+flash生成的midi音乐，出乎意料的不错
+
+提示词如下 <blockquote>实现一个Artcore曲目，名字叫FINALLY，时长3分钟，用于游戏的BOSS战斗
+
+前期含有悲伤的起调，像是回忆起旅途中的悲欢离合，然后渐入佳境，所有的回忆都化为力量，高潮部分将情绪烘托到行云流水的战斗高潮和快意恩仇的感觉，结尾回味悠长
+
+乐器需要使用音色表中标注的高级乐器
+
+强调弦乐+吉他+贝斯+澎湃的鼓配合
+
+旋律扣人心弦
+
+调式全使用中国五声调式</blockquote>
+
+
+*****
+
+####  fat  
+##### 5276#       发表于 2026-8-5 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016142&amp;ptid=2275806" target="_blank">矮矮人 发表于 2026-8-5 11:47</a>
+4F玩酒馆思考的好慢啊，感觉每次出文要花个五六分钟。用了几个预设都一样，官API ...</blockquote>
+不至于吧，我顶多思考30s，梦鲸思客那个预设。同样官方api。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  c月光咖啡  
+##### 5277#       发表于 2026-8-5 12:03
+
+opencode v4f最近每天下午5点左右开始持续崩溃<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
+

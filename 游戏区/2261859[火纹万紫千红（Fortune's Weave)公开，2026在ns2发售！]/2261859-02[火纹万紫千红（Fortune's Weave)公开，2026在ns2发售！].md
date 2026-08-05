@@ -4585,3 +4585,80 @@ type a type b  日厂都用了多久了现在才来叫。</blockquote>
 
 要是前半段培养的队友不能带到最后那是真的很蠢，除非五年前有个完整的故事收尾
 
+
+*****
+
+####  Jabeck  
+##### 1938#       发表于 2026-8-5 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016158&amp;ptid=2261859" target="_blank">whzfjd 发表于 2026-8-5 11:49</a>
+
+暗喻幻想那个 type a 不 type a, type b 不 type b 的精灵才是去性别化，nm type b 自捏还有一堆 type b  ...</blockquote>
+type b 也不影响她胸大，一眼女性。
+
+*****
+
+####  karastar  
+##### 1939#       发表于 2026-8-5 11:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">应该是培养的队员活到五年后吧，没入对的就是死了，如果四条线全拯救，所有人都招募应该五年后全都活着
+
+*****
+
+####  佛罗伦萨  
+##### 1940#       发表于 2026-8-5 11:58
+
+是不是确定了还是30帧？
+
+*****
+
+####  mai6696  
+##### 1941#       发表于 2026-8-5 11:59
+
+Type A、Type B最多算是规避风险吧。
+
+迎合市场都来了，怎么这还是个卖点吗？有男不玩？
+
+
+*****
+
+####  巴尔干炮  
+##### 1942#       发表于 2026-8-5 12:00
+
+我猜真结局的条件就是全员集合。
+
+*****
+
+####  ascomnet  
+##### 1943#       发表于 2026-8-5 12:01
+
+还真没注意帧数，话说这游戏30,60应该区别不大，还不如把分辨率拉高些
+
+*****
+
+####  ascomnet  
+##### 1944#       发表于 2026-8-5 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016246&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-8-5 12:00</a>
+
+我猜真结局的条件就是全员集合。</blockquote>
+多人演出肯定热闹
+
+*****
+
+####  qiyu1234  
+##### 1945#       发表于 2026-8-5 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70016166&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-8-5 11:50</a>
+
+要是前半段培养的队友不能带到最后那是真的很蠢，除非五年前有个完整的故事收尾 ...</blockquote>
+我更倾向于是5个平行世界（分别的GE）
+
+真主角在4英雄面前现真身的时候已经是前半部接近完结的状态
+
+大剑斗祭按照安纳托利亚角色介绍影片的暗示来看后半应该还是会出现大事件导致事情转向恶化
+
+但是在真主人公的干涉下，四条线分别走向了GE，也就是说他们的线路不会发生五年后的事情
+
+接受了帮助的英雄决定被召唤到真主角所在的5年后（平行世界）帮助对抗魔神
+
