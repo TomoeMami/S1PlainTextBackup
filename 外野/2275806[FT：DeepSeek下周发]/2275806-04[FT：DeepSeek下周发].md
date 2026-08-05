@@ -9734,3 +9734,42 @@ https://deepseektavern.com/
 
 现在还有站可以白嫖吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">半年前倒腾小龙虾知道有些站可以白嫖，不知道现在还有没有
 
+
+*****
+
+####  Rowen233  
+##### 5333#       发表于 2026-8-5 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017967&amp;ptid=2275806" target="_blank">油虾君 发表于 2026-8-5 15:44</a>
+
+借楼求问，国内现在开的visa卡 万事达卡可以用来订购外国的AI会员吗，只氪过国内的会员。
+
+现在还有站可以 ...</blockquote>
+只能走App Store或者Google Play支付
+
+并且注意苹果新id进行大额支付可能有被苹果风控
+
+*****
+
+####  アヘ顔  
+##### 5334#       发表于 2026-8-5 15:50
+
+ 本帖最后由 アヘ顔 于 2026-8-5 15:52 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017368&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-5 14:25</a>
+网页版就不要玩nsfw了啊，他肯定截断的，我说的那个甲是他拒绝的内容，现在胖鲸鱼基本上来者不拒，只要不 ...</blockquote>
+反正我写吸毒乱交也能过
+极其少数时间会拒绝一次，这时候只要重刷一次也就过去了
+
+*****
+
+####  CCauchy  
+##### 5335#       发表于 2026-8-5 15:52
+
+昨晚一个群友蹬了10亿，花了48元，我算了一下缓存命中率97%，如果全部换成pro，就是100元左右，根据多渠道了解到gpt20x一周最强模型大概提供30到50亿，最近重置略多，整体偏高，我就按30亿算，每周46刀大约300元，刚好差不多，一个即用即付的能跟订阅用完额度的比，确实不得了
+
+不过gpt还有几乎用不完的网页端，可以搞点研究、小项目，还有生图，但是codex速度慢，应该要开2.5倍速才能拿来比
+
+而大肥鱼速度快，并发多，不过高峰期2倍价，但没有完善的云端环境，没有多模态，比较专注coding
+
+可以说除非是保证自己能用完gpt，包括一直开着网页挂两个会话，idea多得数不清的人，都应该选择deepseek
+
