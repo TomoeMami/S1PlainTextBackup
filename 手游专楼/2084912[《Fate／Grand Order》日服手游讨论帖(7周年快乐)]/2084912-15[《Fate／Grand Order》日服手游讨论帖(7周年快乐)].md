@@ -2418,3 +2418,11 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 —— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zore  
+##### 21288#       发表于 2026-8-6 20:40
+
+傻逼蘑菇老人味啊，你骂绝对不会有人拦你<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

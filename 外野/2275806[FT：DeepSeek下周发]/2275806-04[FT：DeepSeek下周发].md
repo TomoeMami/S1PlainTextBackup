@@ -13042,3 +13042,25 @@ DeepSeek V4 真的要来了，这回应该 DeepSeek V4 Pro 应该明天上 API</
 
 谁解释专武是啥？传说中针对deepseek特调的deepseek code app吗？
 
+
+*****
+
+####  王兰花秀丽  
+##### 5622#       发表于 2026-8-6 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025487&amp;ptid=2275806" target="_blank">specialized01 发表于 2026-8-6 20:37</a>
+谁解释专武是啥？传说中针对deepseek特调的deepseek code app吗？</blockquote>
+就是DS harness ，并不是传说，板上钉钉的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  Awanano  
+##### 5623#       发表于 2026-8-6 20:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025159&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-6 19:26</a>
+我好奇open code go套餐走代理是不是能享受波谷价
+
+论坛助手,iPhone</blockquote>
+我意思是统一 gmt8 时区算的，不看用户时间，看北京时间    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
