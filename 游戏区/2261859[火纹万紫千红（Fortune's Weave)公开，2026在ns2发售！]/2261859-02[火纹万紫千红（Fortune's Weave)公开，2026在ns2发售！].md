@@ -6715,3 +6715,76 @@ MD什么叫像枪的手甲，这不就是枪么</blockquote>
 
 另外还首次出现了中华风角色？好像还不止一个。
 
+
+*****
+
+####  巴尔干炮  
+##### 2131#       发表于 2026-8-6 10:15
+
+<img src="https://img.stage1st.com/forum/202608/06/101316oazoprepoo0cpphr.jpg" referrerpolicy="no-referrer">
+
+<strong>c664a3e1a9bfbf1853ebc3fbac1d85b2eb556ee90b5331f4b144db332c10183d.0.JPG</strong> (239.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 10:13 上传
+
+<img src="https://img.stage1st.com/forum/202608/06/101317hszbbr2kelans8uu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260806_101229.jpg</strong> (179.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 10:13 上传
+
+<img src="https://img.stage1st.com/forum/202608/06/101317x6t88a111tzwbze6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260806_101118.jpg</strong> (150.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 10:13 上传
+
+5年后的另一同伴，之前就有头像的那位。反派看上去是那个商人，这里是活尸化了吗？
+
+*****
+
+####  蓝雉  
+##### 2132#       发表于 2026-8-6 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70021619&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-8-6 10:15</a>
+
+5年后的另一同伴，之前就有头像的那位。反派看上去是那个商人，这里是活尸化了吗？ ...</blockquote>
+女神游戏里的立绘和模型比仓花画的年长一些啊,仓花画的很萝莉<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  horacio  
+##### 2133#       发表于 2026-8-6 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70021402&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-8-6 09:45</a>
+
+怎么说hhhhh
+
+这代显微镜抠下来，感觉野心上是想把四房做成火纹的P5，三房相当于是火纹的p3和p4，无论是 ...</blockquote>
+我对dei无所谓了,丑了就骂几句就是了,别耽误我下棋就是了.我说的是玩法,战兰就是选择几个势力加入,然后特殊时间耗回合制,一定回合后魔王军登入,本来敌对的势力统一对付魔王军.里面攻略女角好感度,下洞slg转rpg.整个游戏流程实在是太像了.
+
+*****
+
+####  零崎不识  
+##### 2134#       发表于 2026-8-6 10:21
+
+<blockquote>巴尔干炮 发表于 2026-8-6 10:15
+5年后的另一同伴，之前就有头像的那位。反派看上去是那个商人，这里是活尸化了吗？ ...</blockquote>
+全是好腿
+
+命运神这个说话调调太像苏缇斯了也。。。
+
+
+*****
+
+####  zzzplht  
+##### 2135#       发表于 2026-8-6 10:23
+
+五年前没安排好的，五年后都会变成丧尸。这下每个角色五年后都有两套立绘了。
+

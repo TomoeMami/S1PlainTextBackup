@@ -561,3 +561,20 @@ Music Video 3作を収録予定。
 
 推特还是很严格<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holofan  
+##### 11693#       发表于 2026-8-6 10:15
+
+七字母的粉丝又要准备钱参加线下live又要买各种周边
+
+现在又要准备短时期内的水着手游抽卡，简直雪上加霜
+
+*****
+
+####  holofan  
+##### 11694#       发表于 2026-8-6 10:24
+
+个人曲也追加了啊，运营还是很快
+

@@ -11092,3 +11092,86 @@ glm：什么，鲸鱼娘也涨价？那我就不是小丑了……
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5434#       发表于 2026-8-6 10:18
+
+<img src="https://img.stage1st.com/forum/202608/06/101748rbubw1a0sbb1qmqd.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1785982668244_1.webp</strong> (93.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 10:17 上传
+
+不……不能再找你了吗，D指导<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  黑夜中的冥想  
+##### 5435#       发表于 2026-8-6 10:19
+
+<img src="https://img.stage1st.com/forum/202608/06/101816fgrjjkzhb6jmsf4r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 10:18 上传
+
+，涨价称不上÷，就叫他梁仔吧
+
+
+*****
+
+####  chenyedgg  
+##### 5436#       发表于 2026-8-6 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70021465&amp;ptid=2275806" target="_blank">库德里尔 发表于 2026-8-6 09:55</a>
+
+前两天摘抄的国内模型价格表
+
+列：名称，输输入，输出</blockquote>
+缓存价格也需要加上
+
+DS这么划算还有缓存价格特别低的原因，官方缓存价格是0.02，而第三方的缓存价格只能做到0.2，差了10倍
+
+*****
+
+####  当光停止  
+##### 5437#       发表于 2026-8-6 10:23
+
+<img src="https://img.stage1st.com/forum/202608/06/102053q1i7p3tzia8tj9iv.jpg" referrerpolicy="no-referrer">
+
+<strong>fcaedc224a1c75cacb9464eaad352ece.jpg</strong> (97.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 10:20 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当大家还在议论deepseek即将涨价的时候。火鸡学家已经注意到7月30号deepseek发公告说api即将采用谷峰定价策略，第二天就上了v4f正式版。
+
+*****
+
+####  serj005  
+##### 5438#       发表于 2026-8-6 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70021310&amp;ptid=2275806" target="_blank">2017.05.04 发表于 2026-8-6 09:35</a>
+官方推荐codex
+
+在deepseek自己的harness出来之前</blockquote>
+官方从来没推荐过codex和caludecode，都只是适配接口而已，因为这两个用户基数最大。
+
+*****
+
+####  misuzu0723  
+##### 5439#       发表于 2026-8-6 10:23
+
+DS 官方 api 的缓存价格独一份，目前好像没有哪个第三方部署的做到了同价
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
