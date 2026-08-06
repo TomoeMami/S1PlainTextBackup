@@ -12725,3 +12725,37 @@ DS现在这套高峰制对海外过于好了，都是按GMT8算北美15点能享
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  mitzvah  
+##### 5591#       发表于 2026-8-6 19:30
+
+pro最多也就是规划debug难题的时候用用，真干活flash绰绰有余
+
+我刚才在m5max上用ssd流式跑了mxfp4的flash，60k长上下文预填充40，生成13每秒，只占40g内存
+
+
+*****
+
+####  舞以  
+##### 5592#       发表于 2026-8-6 19:32
+
+我觉得峰谷价肯定不会上了，现在ds是全球范围内的基础设施<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+只希望小扎的muse Spark给点力，让鬼佬都滚去用😡
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  龙骑士尹志平  
+##### 5593#       发表于 2026-8-6 19:34
+
+<img src="https://img.stage1st.com/forum/202608/06/193423m0ttl6kkg5vvvs7s.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>Image_2814753834101925.jpg.webp</strong> (90.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 19:34 上传
+
