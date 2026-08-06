@@ -11863,3 +11863,18 @@ fable 刚发布那会，那个速度才叫折磨，但是做完不需要返工�
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  ov_efly  
+##### 5507#       发表于 2026-8-6 14:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023103&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-6 14:12</a>
+
+和上下文没太大关系，让它查bug查久了没结果就会这样。特别情绪化
+
+这几天蹬了十几亿长上下文都没事</blockquote>
+都积压在上下文里，出现情绪化的表现也是有影响的，AI 也是有趋利避害的行为的
+
+有的会积极，有的就暴躁了
+
