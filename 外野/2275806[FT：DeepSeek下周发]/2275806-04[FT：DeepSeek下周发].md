@@ -12387,3 +12387,11 @@ flash-0731已经证明了性价比 ...</blockquote>
 flash-0731已经证明了性价比 ...</blockquote>
 据我观察这种纯傻逼还是小红书浓度更高一些<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  来都来了  
+##### 5558#       发表于 2026-8-6 17:38
+
+我现在在B站看到吹肥波、露娜甚至哈基米的嘉豪，都是从心底里支持他们的。你们都赶紧去用外国AI吧，把DeepSeek留给我蹬<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
