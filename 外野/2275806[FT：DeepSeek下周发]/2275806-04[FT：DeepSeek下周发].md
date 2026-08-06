@@ -11785,3 +11785,39 @@ luna和DS比我觉得还是DS强，而且不是一星半点
 
 v4f 被我蹬爆了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">，pro快来吧
 
+
+*****
+
+####  noword  
+##### 5501#       发表于 2026-8-6 13:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023017&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-6 13:52</a>
+v4f 被我蹬狂怒了，第一次见这种狂怒形态，隔一个字有一个 (!!</blockquote>
+上下文过多了，压缩下或新开对话吧
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  aemaeth  
+##### 5502#       发表于 2026-8-6 13:59
+
+目前DS还有一个问题是多模态，从之前的官网Chat App来看这次Pro有可能会有。
+
+至少对真实做东西来说是挺重要的一个能力，还是前面说的，在“做，审，改”循环里面，结合工具，视觉review自己做出来的东西长啥样对成品很重要。
+
+至于除此之外说luna max和ds v4f的差别，我的感觉是除了价格真的没什么差别，都在一个档位上，在这种情况下，你Prompt和Harness对结果的影响远高于模型本身的能力。
+
+价格上来说，其实也算是接近的，还是前面说的，DS V4如果涨价到原来的4倍，那么luna max开始值得优先考虑。如果涨价只是翻倍，那么luna可能还是冷板凳，只有偶尔特殊任务出个场。
+
+
+*****
+
+####  aemaeth  
+##### 5503#       发表于 2026-8-6 14:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70022720&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-8-6 12:59</a>
+
+K3很慢的，如果V4PRO的速度和之前一样那还是比K3有优势</blockquote>
+是比K3有优势，但我会选择GLM5.2，因为烧不起，K3真的烧不起
+
