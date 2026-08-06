@@ -7060,3 +7060,14 @@ MD什么叫像枪的手甲，这不就是枪么</blockquote>
 
 也是个枪兵<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jabeck  
+##### 2163#       发表于 2026-8-6 14:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023187&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-8-6 14:28</a>
+
+法王确认可用。</blockquote>
+绿色好像GUEST角色，不一定能入伙啊
+

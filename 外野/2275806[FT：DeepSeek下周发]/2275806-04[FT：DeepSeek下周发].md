@@ -11939,3 +11939,32 @@ fable 刚发布那会，那个速度才叫折磨，但是做完不需要返工�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  aemaeth  
+##### 5513#       发表于 2026-8-6 14:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023169&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-8-6 14:25</a>
+
+坊间传闻Flash在逼近模型能力极限的时候就会开始哈气，看来挺真的？</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/06/144121mhfcfoxx53x9xqoz.png" referrerpolicy="no-referrer">
+
+<strong>Image 2026-8-2 at 16.00.PNG</strong> (283.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 14:41 上传
+
+怎么说呢，我当时看到图里面那句"ОНННН"的时候是真的菊花一紧。
+
+*****
+
+####  风萧飒  
+##### 5514#       发表于 2026-8-6 14:46
+
+正式版发布都跳票了，涨价能跳一下吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
