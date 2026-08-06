@@ -12587,3 +12587,34 @@ v4f涨一倍我还是能接受的，v4p要是真有sol的级别，那不涨价�
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  アヘ顔  
+##### 5577#       发表于 2026-8-6 18:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">安心波谷，只在晚上撸管时用，
+
+*****
+
+####  wandeeees  
+##### 5578#       发表于 2026-8-6 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70024937&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-6 18:41</a>
+
+v4f涨一倍我还是能接受的，v4p要是真有sol的级别，那不涨价估计一天就让全球蹬瘫痪了
+
+—— 来自 vivo V240 ...</blockquote>
+涨了也要瘫痪<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冤枉呐  
+##### 5579#       发表于 2026-8-6 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023815&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-6 16:02</a>
+调节温度这一点挺真的，那个跑分下就强调了温度，说不定通过温度可以让d4f不那么容易泪崩    Re:Source ...</blockquote>
+请教，有没有什么温度调节指南，什么活儿多少温度之类的
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

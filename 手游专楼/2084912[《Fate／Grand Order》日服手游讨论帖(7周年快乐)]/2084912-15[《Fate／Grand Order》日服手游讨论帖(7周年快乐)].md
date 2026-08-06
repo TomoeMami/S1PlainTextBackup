@@ -2339,3 +2339,14 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 因为你玩的是氪金手游</blockquote>
 所以说理解不了嘛，别说氪金手游，普通联机我都只稍微玩过一下高达无双联机刷图纸<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 21281#       发表于 2026-8-6 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70024959&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2026-8-6 18:45</a>
+
+所以说理解不了嘛，别说氪金手游，普通联机我都只稍微玩过一下高达无双联机刷图纸 ...</blockquote>
+最简单的 你去健身房办卡健身 然后突然跟你说健身房关了   就算他是开玩笑 其实只是去装修 你会觉得这玩笑很有趣吗？
+
