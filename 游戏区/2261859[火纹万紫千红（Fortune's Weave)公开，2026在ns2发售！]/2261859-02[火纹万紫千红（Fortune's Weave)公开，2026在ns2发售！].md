@@ -6631,3 +6631,14 @@ is就按照这个立绘出个手办吧
 
 —— 來自 realme RMX3700, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nagitoY  
+##### 2124#       发表于 2026-8-6 08:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70019573&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-8-5 20:16</a>
+
+大苏的图，开场和风花雪月如出一辙。</blockquote>
+这画风有点眼熟啊，人设又是苍花？
+
