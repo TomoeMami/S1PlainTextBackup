@@ -13875,3 +13875,20 @@ v4f在不同agent下的任务成功率、消耗时间、使用成本对比，包
 
 2026-8-7 00:05 上传
 
+
+*****
+
+####  wesdrtfg  
+##### 5705#       发表于 2026-8-7 00:08
+
+感觉坛友太焦虑了，v4f再怎么说也就是个不到300b的开源模型，部署成本高不了哪里去。这么大的需求，等第三方云厂商都铺开部署了就问题不大了。梁子涨价感觉也是把人逼去第三方，不要耽误叔叔训练agi。而且官方涨价了第三方才有动力部署，毕竟梁叔叔的infra一般厂商卷不过
+
+*****
+
+####  crow_wine  
+##### 5706#       发表于 2026-8-7 00:13
+
+格局这么高？手把手指导<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/34/a4bcfcdc049db9b44412c30d5090a73f/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

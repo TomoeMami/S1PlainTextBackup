@@ -1497,3 +1497,18 @@ Pc版那么大吗</blockquote>
 好像没人提，大妈已经有佬捣鼓出了补丁。
 不过我新玩家，不知道内容全不全，老玩可以去鉴定下
 
+
+*****
+
+####  Xenor  
+##### 128#       发表于 2026-8-7 00:11
+
+又转战NS版了PC版实在是HOLD不住删掉立省38G<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+合集帝优化得真好，比起单帝不仅细节更好更清晰速度也更快了玩了2小时全程满帧稳得一地，这放以前单帝想都不敢想，而且各种光影简直美哭了……还是得官方出马<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">单帝可以删了
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYswpqdK-1B9fjSp1EfCy6s319rjWjOwAC4x8AAtsbqFeDy-4qAwzLnj0E.jpg" referrerpolicy="no-referrer">
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYswtqdK-4xbpsnsjrAjZo9hjFYZR5-gAC5B8AAtsbqFegBQritKLCFD0E.jpg" referrerpolicy="no-referrer">
+
+总算又解锁衣服了，大差不差主要少了配件，可能得后面才会解锁吧，NS有没有MOD也无所谓了
+<img src="https://img.remit.ee/api/file/BQACAgUAAyEGAASHRsPbAAEYswxqdK-7FvaHTdRawJbi0I0K2ILj_wAC5R8AAtsbqFc1VUR_Snd5dT0E.jpg" referrerpolicy="no-referrer">
+
