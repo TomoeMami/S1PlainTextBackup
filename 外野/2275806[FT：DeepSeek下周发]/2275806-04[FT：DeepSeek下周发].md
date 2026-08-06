@@ -12443,3 +12443,21 @@ deepseekflash真的是用起来有fable的感觉。 主动性很强，不依赖�
 
 预览版交出来就是个阶段性成果，正式版补上后训练工程，后面的小版本估计会把初版为了成功率引入的复杂结构做点精简，提高效率。
 
+
+*****
+
+####  奈落的孤火花  
+##### 5564#       发表于 2026-8-6 18:11
+
+让deepseek给我算了一下cc里的缓存命中率，第三方低一些我有心理预期，虽然有些心痛。但是opencodego的这个缓存命中率，什么鬼<img src="https://static.stage1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+到底哪出问题了
+
+<img src="https://img.stage1st.com/forum/202608/06/181030cyz2ktky20lylpyu.png" referrerpolicy="no-referrer">
+
+<strong>64302.png</strong> (261.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 18:10 上传
+
