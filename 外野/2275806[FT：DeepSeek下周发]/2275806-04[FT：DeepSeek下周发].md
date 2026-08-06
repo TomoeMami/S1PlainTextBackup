@@ -13238,3 +13238,73 @@ zdjd
 论坛助手,iPhone ...</blockquote>
 0.3%的落后就是鲸鱼的谦虚<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wjxforever  
+##### 5641#       发表于 2026-8-6 21:26
+
+融资介绍书会讲还没正式发布的版本么，总感觉不严谨。。
+
+*****
+
+####  舞以  
+##### 5642#       发表于 2026-8-6 21:26
+
+ds老祖是不是突破v4境界的时候受了点内伤，这么久终于疗伤完毕，重回当年v3/r1的巅峰境界了？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nxmonitor  
+##### 5643#       发表于 2026-8-6 21:27
+
+如果这个性能属实，那原价也是要被蹬爆的啊，真要按照IP来定价了，然后再杀杀中转站
+
+*****
+
+####  →熙←  
+##### 5644#       发表于 2026-8-6 21:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">0.3%
+
+<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">梁圣不要1/10价格,要1/100价格
+
+
+*****
+
+####  Promeus  
+##### 5645#       发表于 2026-8-6 21:30
+
+主要ds向来不喜欢说大话，预览版也是明确不如opus4.6，除非说这里玩个文字游戏这0.3%差距是指和opus4.6关闭思考版本比的，那没话说<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 5646#       发表于 2026-8-6 21:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025693&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-6 21:24</a>
+输入1美元输出5美元，基本是原来的定价了</blockquote>
+那还行，好像还能接受<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  findpkq  
+##### 5647#       发表于 2026-8-6 21:31
+
+顶着上限算1/10的话，没法说很便宜
+但这性价比也一定会被全球蹬爆，这就很尴尬了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以后感觉会有口粮模型这一说。我现在偶尔用v4 flash整理收藏进obsidian 库，涨幅大的话，又得去找一些便宜又不太聪明的替代了
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  80后卢瑟  
+##### 5648#       发表于 2026-8-6 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025627&amp;ptid=2275806" target="_blank">綺々羅々ヴィヴ 发表于 2026-8-6 21:10</a></blockquote>
+补一下其他的图吧
+
