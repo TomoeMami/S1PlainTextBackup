@@ -10803,3 +10803,95 @@ jeff dean带骨干跑路，哈基米估计彻底完蛋了。
 
 都怪美帝和菊花（
 
+
+*****
+
+####  木水风铃  
+##### 5401#       发表于 2026-8-6 09:28
+
+降级为梁子了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  villsian  
+##### 5402#       发表于 2026-8-6 09:29
+
+Deepseek到时候如果再解释下涨价幅度过大，已经达到了原价的1%，就乐了。
+
+
+*****
+
+####  nxmonitor  
+##### 5403#       发表于 2026-8-6 09:32
+
+现在就看V4P的能力了，按照灰测的效果计算，同样的任务价格翻倍都和原价差不多
+
+*****
+
+####  zhanglei1943  
+##### 5404#       发表于 2026-8-6 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69941203&amp;ptid=2275806" target="_blank">zhanglei1943 发表于 2026-7-20 13:13</a>
+
+估计模型没问题，但是预计正式上线的话服务器肯定爆，在优化负载。</blockquote>
+我预测基本是对的，算力不够，提高费用也是一种优化负载
+
+*****
+
+####  wandeeees  
+##### 5405#       发表于 2026-8-6 09:33
+
+应该只是V4 PRO涨价大吧，V4F架构又没改，估计还是之前峰谷策略，可能是V4 PRO GA太强了，不大幅上调肯定要被蹬坏？又或者说需要把推理的算力移出来部分拿来训练？
+
+*****
+
+####  zypyong  
+##### 5406#       发表于 2026-8-6 09:33
+
+现在用哪个agent配合deepseek比较好一点，有最佳方案吗
+
+*****
+
+####  sellboy  
+##### 5407#       发表于 2026-8-6 09:33
+
+添加flash-cloud、pro-cloud两个新的模型入口吧
+
+官方当路由。
+
+*****
+
+####  wjxforever  
+##### 5408#       发表于 2026-8-6 09:33
+
+这个涨价和峰谷定价是两回事么，我记得那个也没实装吧
+
+*****
+
+####  Promeus  
+##### 5409#       发表于 2026-8-6 09:34
+
+其实感觉又是v4预览发布那一套<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">过半个月再降价
+
+*****
+
+####  2017.05.04  
+##### 5410#       发表于 2026-8-6 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70021297&amp;ptid=2275806" target="_blank">zypyong 发表于 2026-8-6 09:33</a>
+
+现在用哪个agent配合deepseek比较好一点，有最佳方案吗</blockquote>
+官方推荐codex
+
+在deepseek自己的harness出来之前
+
+
+*****
+
+####  ly4236  
+##### 5411#       发表于 2026-8-6 09:36
+
+感觉还是不要过于期待比较好，等他公布就行了
+
