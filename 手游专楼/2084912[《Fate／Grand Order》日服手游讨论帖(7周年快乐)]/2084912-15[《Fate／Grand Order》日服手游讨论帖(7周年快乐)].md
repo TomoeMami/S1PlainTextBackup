@@ -2350,3 +2350,49 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 所以说理解不了嘛，别说氪金手游，普通联机我都只稍微玩过一下高达无双联机刷图纸 ...</blockquote>
 最简单的 你去健身房办卡健身 然后突然跟你说健身房关了   就算他是开玩笑 其实只是去装修 你会觉得这玩笑很有趣吗？
 
+
+*****
+
+####  exiaexa  
+##### 21282#       发表于 2026-8-6 18:54
+
+打过多少轮预防针了
+
+阿菌就是个只要我爽了就行的自嗨点子型作家
+
+无奈新生代厨子不信邪啊，越不信越破防
+
+纯给老登看笑话
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARKGRAY  
+##### 21283#       发表于 2026-8-6 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70024994&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-6 18:52</a>
+
+最简单的 你去健身房办卡健身 然后突然跟你说健身房关了   就算他是开玩笑 其实只是去装修 你会觉得这玩 ...</blockquote>
+健身房不是必然关闭的，但游戏（至少我概念中的）是必须完结啊，况且这玩意连月卡都没有，也从来没有说过后面继续做到几几年，那终章后真步入逐渐关服的阶段有什么好奇怪的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 21284#       发表于 2026-8-6 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025020&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2026-8-6 18:55</a>
+
+健身房不是必然关闭的，但游戏（至少我概念中的）是必须完结啊，况且这玩意连月卡都没有，也从来没有说过 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么不说人一定会死？
+
+
+*****
+
+####  DARKGRAY  
+##### 21285#       发表于 2026-8-6 19:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025023&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-6 18:56</a>
+
+你怎么不说人一定会死？</blockquote>
+又或者这么说，健身房办的卡代入到这个游戏顶多等于故事迎来大结局，这个确实给了，卡的服务期结束了谁管它健身房还开不开，喷这个结局不行=健身卡服务不好那倒是能理解，但现在的看上去不是<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
