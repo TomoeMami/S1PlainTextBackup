@@ -11726,3 +11726,62 @@ luna 的上下文会比想象中的少，我用自己的框架使用时发现它
 推上也有人对比过 lunamax 和 solmid 比，solmid 明显幻觉更少
 吹 luna 的先看看做的工作是什么    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  qwased  
+##### 5496#       发表于 2026-8-6 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70022795&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-8-6 13:12</a>
+考虑到长远目标各家的竞争重心其实还是放在前沿模型，国内算力紧缺的现阶段烧算力供养Flash这样的模型确实 ...</blockquote>
+没有便宜的flash吸引大量用户当agent用，怎么收集数据训练下一代模型？现在各家都没放弃轻量模型已经能说明问题了
+
+*****
+
+####  nxmonitor  
+##### 5497#       发表于 2026-8-6 13:47
+
+ 本帖最后由 nxmonitor 于 2026-8-6 13:48 编辑 
+<blockquote>jojog 发表于 2026-8-6 13:36
+luna和DS比我觉得还是DS强，而且不是一星半点
+
+感觉可能是语言问题
+</blockquote>
+
+更多的是因为不稳定，输出结果的质量差距很大，还有就是上下文压缩…
+
+*****
+
+####  卡普空  
+##### 5498#       发表于 2026-8-6 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70022756&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-6 13:06</a>
+
+我感觉梁子本来搞dsv4f就是为了推自有部署，现在都在薅羊毛，自己部署没几个，所以就涨价了
+
+—— 来自 HON ...</blockquote>
+也就是大公司会自己部署吧，其他感觉也没这个必要，还不如薅梁子羊毛
+
+
+*****
+
+####  tsubasa9  
+##### 5499#       发表于 2026-8-6 13:52
+
+藤子赶紧自己部署v4f吧，workbuddy天天崩不怕用户投诉吗
+
+*****
+
+####  crow_wine  
+##### 5500#       发表于 2026-8-6 13:52
+
+<img src="https://img.stage1st.com/forum/202608/06/135155huz6kdu5496u59rs.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (39.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 13:51 上传
+
+v4f 被我蹬爆了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">，pro快来吧
+
