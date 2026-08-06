@@ -11394,3 +11394,35 @@ qwen3.8这是塞钱了？</blockquote>
 不融资了，多赚点给员工发福利？</blockquote>
 融资的资本方更重视盈利能力吧
 
+
+*****
+
+####  rachepatty  
+##### 5462#       发表于 2026-8-6 11:30
+
+原本不是说九月DT卡才开始部署吗？应该涨不了一个月就要降了，主要是这段过度期卡不够被蹬的太厉害了，上面👆该协调协调<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  nxmonitor  
+##### 5463#       发表于 2026-8-6 11:31
+
+可以指望还有哪家大厂训不出东西……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  当光停止  
+##### 5464#       发表于 2026-8-6 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70021169&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-6 09:10</a>
+
+不是？Jeff Dean他不都在谷歌干了快三十年吗？他都能跑路卧槽
+
+—— 来自 HUAWEI SGU-AL10, Android 16,  ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不光jeff，sanjay也跑了。谷歌我记得就这俩L11。一块走的还有俩deepmind的vp，Quoc Le是L10，Oriol是gemini的负责人之一。
+
+google今年怕是发不出来好东西了。
+
