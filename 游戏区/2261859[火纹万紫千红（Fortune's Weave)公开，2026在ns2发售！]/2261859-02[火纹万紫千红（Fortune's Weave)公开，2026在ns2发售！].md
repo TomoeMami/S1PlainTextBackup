@@ -6676,3 +6676,42 @@ is就按照这个立绘出个手办吧
 
 但是人设确实在拖后腿，要是卖相和三房一样一群白皮，真可能给他做成了，倒不是说现在dei到不可忍受，只是前期宣发天天猛猛宣传丑的真非常抽象
 
+
+*****
+
+####  bwsusaga  
+##### 2128#       发表于 2026-8-6 09:48
+
+<img src="https://img.stage1st.com/forum/202608/06/094817rjlu51pzx5zfj4mb.jpg" referrerpolicy="no-referrer">
+
+<strong>d0ffbd54c194cda7c9fff38ef4a1ca252672369.jpg</strong> (342.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 09:48 上传
+
+MD什么叫像枪的手甲，这不就是枪么<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mai6696  
+##### 2129#       发表于 2026-8-6 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70021425&amp;ptid=2261859" target="_blank">bwsusaga 发表于 2026-8-6 09:48</a>
+
+MD什么叫像枪的手甲，这不就是枪么</blockquote>
+地底科技，小子！
+
+话说这人还会算卦来着，神秘的东方力量。
+
+*****
+
+####  bwsusaga  
+##### 2130#       发表于 2026-8-6 09:51
+
+看到现在其实这作人设已经完全能接受了，
+
+过场也出现了多次角色实机表情演出（虽然有点崩坏，但我很喜欢）
+
+另外还首次出现了中华风角色？好像还不止一个。
+

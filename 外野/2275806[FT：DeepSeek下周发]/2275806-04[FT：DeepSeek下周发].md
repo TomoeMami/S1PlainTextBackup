@@ -10961,3 +10961,54 @@ Deepseek到时候如果再解释下涨价幅度过大，已经达到了原价的
 
 但是上调之前至少把V4ProGA端出来吧
 
+
+*****
+
+####  xmmc1800  
+##### 5419#       发表于 2026-8-6 09:47
+
+虽然看到这几天的token用量和服务器频繁响应慢时就有涨价的心理预期了，但“预计涨幅较大”什么的不要啊<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+总之趁涨价之前多用点吧，用到就是赚到
+
+*****
+
+####  crow_wine  
+##### 5420#       发表于 2026-8-6 09:47
+
+蹬得确实有点狠，我2天蹬了 50 多块。但是你把正式版端上来啊
+
+*****
+
+####  novalli  
+##### 5421#       发表于 2026-8-6 09:52
+
+不会是蹬太狠，卡不小心烧坏了吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  来都来了  
+##### 5422#       发表于 2026-8-6 09:54
+
+Deepseek的手机客户端已经完全彻底流口水，没法用了，让它分别介绍一下Hermes、 reasonix、 Workbaddy、 Pi这4款AI产品，他给我东拉西扯完全介绍不到地方。我现在没办法，只能用Rikkahub当Deepseek的客户端用。
+
+*****
+
+####  库德里尔  
+##### 5423#       发表于 2026-8-6 09:55
+
+前两天摘抄的国内模型价格表
+列：名称，输输入，输出
+
+deepseek-v4-flash, 1, 2
+deepseek-v4-pro, 3, 6
+hy3, 1, 4
+minimax-m3, 2.1, 8.4（上下文大于512K时翻倍）
+glm-5.2, 8, 28
+kimi-k3, 20, 100
+doubao-seed-evolving 6, 30
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
