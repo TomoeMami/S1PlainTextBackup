@@ -11636,3 +11636,43 @@ Facebook的muse 1.2来了, 同意共享数据给Meta训练的话, 比DS 4Flash�
 
 考虑到长远目标各家的竞争重心其实还是放在前沿模型，国内算力紧缺的现阶段烧算力供养Flash这样的模型确实是不划算的。确实可以官方不提供Flash只提供Pro，Flash自己部署玩去。
 
+
+*****
+
+####  nxmonitor  
+##### 5487#       发表于 2026-8-6 13:19
+
+ 本帖最后由 nxmonitor 于 2026-8-6 13:20 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70022756&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-6 13:06</a>
+
+我感觉梁子本来搞dsv4f就是为了推自有部署，现在都在薅羊毛，自己部署没几个，所以就涨价了
+
+—— 来自 HON ...</blockquote>
+从之前的谈话记录里，显然他搞错了其他公司的infra能力，第三方缓存价格普遍10倍以上，就算官方涨100%都不一定能便宜，所以自然都是转发
+
+*****
+
+####  nxmonitor  
+##### 5488#       发表于 2026-8-6 13:22
+
+当然这个能力已经占据了公司私有化部署的市场了，之前很多地方都是部署GLM5.2的，哪怕不能直接赚到钱对其他模型厂商都是打击
+
+*****
+
+####  wandeeees  
+##### 5489#       发表于 2026-8-6 13:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70022836&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-6 13:19</a>
+
+从之前的谈话记录里，显然他搞错了其他公司的infra能力，第三方缓存价格普遍10倍以上，就算官方涨100%都不 ...</blockquote>
+不是说可以帮忙优化部署吗？
+
+*****
+
+####  lactone  
+##### 5490#       发表于 2026-8-6 13:23
+
+我觉得性价比只要能打掉不重置的luna就好
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
