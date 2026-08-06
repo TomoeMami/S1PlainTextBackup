@@ -13955,3 +13955,30 @@ ds对比其他家明显优势的就是缓存命中价格，其他家缓存价格
 
 能换智商也是划算的买卖
 
+
+*****
+
+####  kykawaiii  
+##### 5713#       发表于 2026-8-7 00:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70026602&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-7 00:23</a>
+ds员工辟谣那个泄露的文件了
+
+—— 来自 鹅球 v3.5.99</blockquote>
+什么文件
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  goranger  
+##### 5714#       发表于 2026-8-7 00:57
+
+<img src="https://img.stage1st.com/forum/202608/07/005726yy1c9ppsppa1py3s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (36.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 00:57 上传
+

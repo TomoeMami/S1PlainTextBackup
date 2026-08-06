@@ -659,3 +659,13 @@ yuno倒是五个人里比较像Vtb的，相对而言吧，不知道后面会不�
 
 是我最喜欢的女人吵架
 
+
+*****
+
+####  拉普拉斯  
+##### 197#       发表于 2026-8-7 01:02
+
+烂炒都抄不明白！叫柿本来！叫柿本来！！！梅津和后藤两位厨师是炒不好少女乐队这盘菜的！<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23078RKD5C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
