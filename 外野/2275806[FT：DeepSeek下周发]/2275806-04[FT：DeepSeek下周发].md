@@ -13382,3 +13382,114 @@ Fable性能这个价格绝对绝对是便宜的，这个就是luna的原价水�
 
 宇树的配售给梁子90万股<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 5657#       发表于 2026-8-6 21:45
+
+要是真的，0.3%绝对是在恶心美国人，这个多roll几次都可能过啊，不是纯纯星球大战计划……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杀人鲸  
+##### 5658#       发表于 2026-8-6 21:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025779&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-6 21:41</a>
+我倒觉得再怎么样也不会涨太贵，反正现在模型权重也是公布的，要真的太贵了第三方部署就能盈利了（ ...</blockquote>
+其实就怎么说呢？如果是一种基于成本的考量，所以涨价的这种情况的话，那么第三方部署只可能更贵。
+因为各家的开源的模型都基本上存在这种情况，那就是第三方部署因为欠缺本家的某些部署技巧的情况下，其实运行成本是更高的。这甚至诞生了某种特殊的营业服务，就是本家的公司派遣专业的部署师去进行部署的一些优化之类的行为。
+而我记得在财报里面提到的一个事情，就是深度求索这家公司也说过，在相同的部署之中，本家公司的成本是最低的。
+然而如果是为了涨价赚钱才提高的价格的话，那就不太好说了。
+但问题是，这里有一点就在于，Deepseek本身其实已经算是很多模型价格的一种基准线。
+当基准线提高以后的话，那么其他的公司自然也就有相同提高价格的理由。
+如果说本公司的价格都那么高的话，第三方部署只可能更高呀。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  御坂MKII  
+##### 5659#       发表于 2026-8-6 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025702&amp;ptid=2275806" target="_blank">wjxforever 发表于 2026-8-6 21:26</a>
+
+融资介绍书会讲还没正式发布的版本么，总感觉不严谨。。</blockquote>
+这个格式基本上是第三方（也就是券商）的吹票文
+
+*****
+
+####  jojog  
+##### 5660#       发表于 2026-8-6 21:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">赶快拿出来吧 
+
+
+*****
+
+####  zeta945  
+##### 5661#       发表于 2026-8-6 21:51
+
+真只差fable0.3%的话，现在可以准备开空单了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 5662#       发表于 2026-8-6 21:52
+
+从水印追到微博上看，转发的好像完全不知道意味着什么……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 5663#       发表于 2026-8-6 21:52
+
+吹也得有个数据吧，正常逻辑是吹持平，或者吹超过
+
+吹0.3%有点神了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  knnknn  
+##### 5664#       发表于 2026-8-6 21:52
+
+20块钱的token让ds写了个手机控制的light saber
+
+https://beatrift.moonchan.xyz/  名字你鲸自己想的
+
+车完感想是卧槽这也能写和卧槽这也听不懂<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+思考经常超64k,128k输出是正确的.
+
+而且中途几个bug甚有手机屏幕朝外打电话那种视频模型感, 是个模型都分不清.
+
+依旧怀疑是training data带类似的东西才能做出来. 不过用agent搜lib真的是一绝, 
+
+*****
+
+####  tillnight  
+##### 5665#       发表于 2026-8-6 21:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我怎么感觉潜在投资人里有人存心要捣乱啊，虽然这次这个敏感度低的多，但也不是对外的资料。
+
+*****
+
+####  nxmonitor  
+##### 5666#       发表于 2026-8-6 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025843&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-6 21:52</a>
+
+吹也得有个数据吧，正常逻辑是吹持平，或者吹超过
+
+吹0.3%有点神了</blockquote>
+星球大战计划，1.6T打5T以上，当然要吹0.3%……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  当光停止  
+##### 5667#       发表于 2026-8-6 21:53
+
+看了原图来源，反而不太好说真实性。
+
