@@ -13308,3 +13308,77 @@ ds老祖是不是突破v4境界的时候受了点内伤，这么久终于疗伤�
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025627&amp;ptid=2275806" target="_blank">綺々羅々ヴィヴ 发表于 2026-8-6 21:10</a></blockquote>
 补一下其他的图吧
 
+
+*****
+
+####  nxmonitor  
+##### 5649#       发表于 2026-8-6 21:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025732&amp;ptid=2275806" target="_blank">findpkq 发表于 2026-8-6 21:31</a>
+
+顶着上限算1/10的话，没法说很便宜
+
+但这性价比也一定会被全球蹬爆，这就很尴尬了</blockquote>
+Fable性能这个价格绝对绝对是便宜的，这个就是luna的原价水平……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  当光停止  
+##### 5650#       发表于 2026-8-6 21:34
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原价的输出是fable的七分之一或者十五分之一。
+
+但是要是这个性能是真的我不好说。
+
+*****
+
+####  nxmonitor  
+##### 5651#       发表于 2026-8-6 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025747&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-8-6 21:34</a>
+
+原价的输出是fable的七分之一或者十五分之一。
+
+但是要是这个性能是真的我不好说。 ...</blockquote>
+缓存价格差很多的，实际价格还要低……
+
+
+*****
+
+####  hugosol  
+##### 5652#       发表于 2026-8-6 21:41
+
+我倒觉得再怎么样也不会涨太贵，反正现在模型权重也是公布的，要真的太贵了第三方部署就能盈利了（
+
+*****
+
+####  lactone  
+##### 5653#       发表于 2026-8-6 21:41
+
+还是放低预期，万一和opus4.8差0.3%呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  王兰花秀丽  
+##### 5654#       发表于 2026-8-6 21:42
+
+首先放低预期，其次今晚睡不着了<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 5655#       发表于 2026-8-6 21:43
+
+完了，今天睡不着了，明天到底发不发<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+算了，再蹬一会现在还是廉价的鲸鱼娘吧
+
+*****
+
+####  Promeus  
+##### 5656#       发表于 2026-8-6 21:44
+
+宇树的配售给梁子90万股<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
