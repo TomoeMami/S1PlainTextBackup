@@ -12101,3 +12101,52 @@ api-docs.deepseek.com/zh-cn/prompt-library/
 官方提示词样例</blockquote>
 感觉用处不大，这个更像是教完全不会用ai的人怎么和ai进行最基本的交互用的，只是个大致的参考样例，不是官方提供的最佳实践方式。
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 5529#       发表于 2026-8-6 15:44
+
+路边社消息，今明两天发布，有感觉吗
+
+
+*****
+
+####  @weakb0y  
+##### 5530#       发表于 2026-8-6 15:50
+
+一切线索都指向明天辣<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 5531#       发表于 2026-8-6 15:50
+
+我一直都是想到啥写啥的，甚至还有错别字，感觉影响不大<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奈落的孤火花  
+##### 5532#       发表于 2026-8-6 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023466&amp;ptid=2275806" target="_blank">R.I.P 发表于 2026-8-6 15:15</a>
+
+可以装个paseo，把各路provider都配置好。paseo可以给主流harness提供相比各家harness自带的发射subagent ...</blockquote>
+cc完全可以调用第三方模型当子代理啊，我这几天彻底用爽了，不需要其他功能
+
+*****
+
+####  wandeeees  
+##### 5533#       发表于 2026-8-6 15:52
+
+八月初也就剩下两三天了，不至于上次鸽了一次这次还鸽吧
+
+*****
+
+####  Promeus  
+##### 5534#       发表于 2026-8-6 15:53
+
+我有点dsh的消息，不保证真，dsh侧重简约模式，激发模型的潜力，不是用条条框框把模型束缚住。它不像OpenCode这类，怕模型犯错就层层约束，而是希望模型自己变得更聪明、少犯错，甚至能自己发现自己犯的错。据说里面用到了不少量化金融的思维。而且似乎可以调节模型温度。
+
+阿b一个视频下面的舅舅<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
