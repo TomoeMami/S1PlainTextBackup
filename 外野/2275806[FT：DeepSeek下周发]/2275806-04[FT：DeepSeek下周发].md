@@ -11198,3 +11198,51 @@ DS 官方 api 的缓存价格独一份，目前好像没有哪个第三方部署
 
 梁➗太粗暴，就叫梁嗨吧
 
+
+*****
+
+####  cube  
+##### 5443#       发表于 2026-8-6 10:37
+
+梁子再怎么滑动变阻也到不了÷这个级别，那是A\独享的称呼，之前哪怕我最讨厌的小札都没A÷这么让人反胃。
+
+*****
+
+####  龙骑士尹志平  
+##### 5444#       发表于 2026-8-6 10:39
+
+建议分时段，晚上涨价，给还在加班的内卷奋斗逼和鬼佬涨
+
+
+*****
+
+####  ArthurDent  
+##### 5445#       发表于 2026-8-6 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70021822&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-6 10:39</a>
+建议分时段，晚上涨价，给还在加班的内卷奋斗逼和鬼佬涨</blockquote>
+想白天比晚上便宜那得去大西北建数据中心吧
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  库德里尔  
+##### 5446#       发表于 2026-8-6 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70021685&amp;ptid=2275806" target="_blank">chenyedgg 发表于 2026-8-6 10:22</a>
+缓存价格也需要加上
+
+DS这么划算还有缓存价格特别低的原因，官方缓存价格是0.02，而第三方的缓存价格只能 ...</blockquote>
+之前抄表的时候记了 但是我把缓存存储和命中缓存的数据记混了
+为了避免误解删了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  小野賢章  
+##### 5447#       发表于 2026-8-6 10:44
+
+正在开会给公司采购的AI供应商评标，第三方厂商因为价格打不过DeepSeek官方，都不愿意自己部署提供服务<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
