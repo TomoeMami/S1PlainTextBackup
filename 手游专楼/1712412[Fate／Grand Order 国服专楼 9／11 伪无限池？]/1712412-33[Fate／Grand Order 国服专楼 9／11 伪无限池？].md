@@ -1876,3 +1876,17 @@ ex双倍经验+四倍大成功，要喂抓紧，我是把压箱底的大火都�
 
 终于有第一个120了，原来这么耗资源
 
+
+*****
+
+####  shimotsuki14  
+##### 48053#       发表于 2026-8-6 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70022455&amp;ptid=1712412" target="_blank">sandro 发表于 2026-8-6 12:15</a>
+终于有第一个120了，原来这么耗资源</blockquote>
+最近一年基本没玩过
+中午把所长拉到116级qp见底了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+现在正在补qp
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

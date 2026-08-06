@@ -6905,3 +6905,16 @@ MD什么叫像枪的手甲，这不就是枪么</blockquote>
 
 主角本体怎么看都是凤头肥鸡
 
+
+*****
+
+####  狩野すみれ  
+##### 2148#       发表于 2026-8-6 12:25
+
+<blockquote>引用第2145楼bwsusaga于2026-08-06 12:05发表的  :
+
+这作能直接看到成长率了</blockquote>
+柯南竟然是个重坦，比基尼铠甲遮挡越少防御越高是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.48)
+
