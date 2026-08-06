@@ -13892,3 +13892,35 @@ v4f在不同agent下的任务成功率、消耗时间、使用成本对比，包
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  hugosol  
+##### 5707#       发表于 2026-8-7 00:19
+
+本来梁子就说不靠API赚钱，这也不奇怪
+
+一切都说得通了<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 5708#       发表于 2026-8-7 00:23
+
+ds员工辟谣那个泄露的文件了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  hugosol  
+##### 5709#       发表于 2026-8-7 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70026579&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-7 00:13</a>
+
+格局这么高？手把手指导
+
+—— 来自 HUAWEI ALN-AL00, Android 12, 鹅球 v3.5.99-alpha</blockquote>
+我看了一下他说是和opencode合作的一个team复制的，总之只算成本应该真的贵不到哪里去
+
