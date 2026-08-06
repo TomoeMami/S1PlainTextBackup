@@ -11465,3 +11465,68 @@ google今年怕是发不出来好东西了。
 
 这几天测过luna以后，我认为降价不是因为推理成本低，而是根本没人用显卡在闲置导致的，太不稳定了
 
+
+*****
+
+####  一般市民  
+##### 5469#       发表于 2026-8-6 11:56
+
+我倒是没那么多杂活要蹬Flash，重点还是是Pro的上限能到哪里 <img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  med  
+##### 5470#       发表于 2026-8-6 11:56
+
+预计降级为梁子 
+
+*****
+
+####  Freewolf  
+##### 5471#       发表于 2026-8-6 12:01
+
+计划近期整体下调梁文峰的互联网评级，预计降幅较大，请合理安排您的运营。具体方案以正式饮料瓶为准。【知道了】
+
+
+*****
+
+####  Rowen233  
+##### 5472#       发表于 2026-8-6 12:02
+
+DSV4 也并非万能
+
+我让他帮我写个气象数据处理 他给我闰年判定能写错的<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 5473#       发表于 2026-8-6 12:03
+
+我当时和gpt指导聊天的结论是，ds可能官方理想的工作形态是pro只负责规划，架构设计，开放问题选择之类的高难度任务，执行全都交给flash负责，出了毛病再升级成pro。
+所以flash的agent能力才被后训练加强了这么多，如果dsh能做好难度路由和任务分级，子代理管理之类的，那我也能接受啊梁圣。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  nxmonitor  
+##### 5474#       发表于 2026-8-6 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70022385&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-8-6 12:02</a>
+
+DSV4 也并非万能
+
+我让他帮我写个气象数据处理 他给我闰年判定能写错的</blockquote>
+300B就这样，能把agent和coding训成这样已经出人意料了，过几天蹬V4P去吧
+
+*****
+
+####  nxmonitor  
+##### 5475#       发表于 2026-8-6 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70022396&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-6 12:03</a>
+
+我当时和gpt指导聊天的结论是，ds可能官方理想的工作形态是pro只负责规划，架构设计，开放问题选择之类的高 ...</blockquote>
+我怀疑这个性能就是从pro里蒸出来的，稳定性不像一个单独训的300B模型
+

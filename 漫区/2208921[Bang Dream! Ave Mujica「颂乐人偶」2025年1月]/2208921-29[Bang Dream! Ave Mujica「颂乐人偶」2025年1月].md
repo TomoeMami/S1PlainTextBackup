@@ -554,3 +554,23 @@ SSR成员附带专属动画演出！该动画也会在抽卡及节奏游戏画�
 
        [https://www.instagram.com/museacg/p/Dbng6tkD0mw](https://www.instagram.com/museacg/p/Dbng6tkD0mw)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41983#       发表于 2026-8-6 11:56
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/06/115647ba38yeafy0j75eww.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-08-06_11-54-14.jpg</strong> (256.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 11:56 上传
+
+       [https://x.com/bang_dream_info/status/2085199184181813443](https://x.com/bang_dream_info/status/2085199184181813443)
+
+       [https://www.youtube.com/@bang_dream_avemujica?si=JBsvcZdHxhrT-gAI](https://www.youtube.com/@bang_dream_avemujica?si=JBsvcZdHxhrT-gAI)
+
