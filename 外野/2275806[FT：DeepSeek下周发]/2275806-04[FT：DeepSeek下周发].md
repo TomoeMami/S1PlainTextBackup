@@ -12150,3 +12150,75 @@ cc完全可以调用第三方模型当子代理啊，我这几天彻底用爽了
 
 阿b一个视频下面的舅舅<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tillnight  
+##### 5535#       发表于 2026-8-6 15:55
+
+<blockquote>wandeeees 发表于 2026-8-6 15:52
+八月初也就剩下两三天了，不至于上次鸽了一次这次还鸽吧</blockquote>
+那啥，这次的八月初都不是官方自己说的。是从文档里推测的。官方只说了尽快上线。
+
+*****
+
+####  nxmonitor  
+##### 5536#       发表于 2026-8-6 15:56
+
+这话听上去像PI搞出来的……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wandeeees  
+##### 5537#       发表于 2026-8-6 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023763&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-6 15:55</a>
+
+那啥，这次的八月初都不是官方自己说的。是从文档里推测的。官方只说了尽快上线。 ...</blockquote>
+只写了个8月初支持Responses API 目前仅支持 deepseek-v4-flash 模型，暂不支持 deepseek-v4-pro 模型。我们将于 2026 年 8 月初增加对 deepseek-v4-pro 模型的支持。
+
+但是合理推测，这就是正式版的日期
+
+*****
+
+####  cube  
+##### 5538#       发表于 2026-8-6 15:58
+
+[@绕指流光](https://stage1st.com/2b/home.php?mod=space&amp;uid=183042) ，感觉本楼可以改成AI 大模型应用讨论专楼。
+
+
+*****
+
+####  crow_wine  
+##### 5539#       发表于 2026-8-6 16:01
+
+<img src="https://img.stage1st.com/forum/202608/06/155739so7v9na8zqf7w8kk.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (30.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 15:57 上传
+
+这几天蹬冒烟了，第一次在DS上蹬这么多，里面大概有10亿的 token，是复杂程度超出了 flash 的能力边界，硬生生堆出来的。
+
+期待 pro 正式版，翻倍涨价也无所谓，充GPT 20x 给close ai和二道贩子送钱还不如把钱花在国内<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王兰花秀丽  
+##### 5540#       发表于 2026-8-6 16:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023754&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-6 15:53</a>
+我有点dsh的消息，不保证真，dsh侧重简约模式，激发模型的潜力，不是用条条框框把模型束缚住。它不像OpenCo ...</blockquote>
+调节温度这一点挺真的，那个跑分下就强调了温度，说不定通过温度可以让d4f不那么容易泪崩<img src="https://static.stage1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  serj005  
+##### 5541#       发表于 2026-8-6 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023754&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-6 15:53</a>
+我有点dsh的消息，不保证真，dsh侧重简约模式，激发模型的潜力，不是用条条框框把模型束缚住。它不像OpenCo ...</blockquote>
+强调扩展性还有少提示词的应该是真的，这个是有其他信源认证的，但是提到量化感觉就很假了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
