@@ -10679,3 +10679,63 @@ flash比之前慢了很多
 
 我用的之前楼里推的羊毛第三方，速度很快，也没降智，但是我想用pro ga和harness啊，这周不出的话再次从梁圣降格到牢梁<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5386#       发表于 2026-8-6 09:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70021038&amp;ptid=2275806" target="_blank">sellboy 发表于 2026-8-6 08:54</a>
+这个没准的，也许是差点进神秘园，也许就是生死边缘悟道了才能去干deepseek呢 ...</blockquote>
+也许已经被掉包了，出来的这个梁圣是未来的ASI用时间机器送过来促成AGI实现的机器人
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5387#       发表于 2026-8-6 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70020855&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-8-6 08:11</a>
+jeff dean带骨干跑路，哈基米估计彻底完蛋了。
+不愧是谷歌，连跑路的人都一个比一个重量级。这就是大公司的 ...</blockquote>
+不是？Jeff Dean他不都在谷歌干了快三十年吗？他都能跑路卧槽<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  david5515  
+##### 5388#       发表于 2026-8-6 09:10
+
+计划近期整体上调 DeepSeek API 服务的定价，预计涨幅较大，请合理安排您的使用。具体方案以正式通知为准。
+
+*****
+
+####  david5515  
+##### 5389#       发表于 2026-8-6 09:11
+
+计费页面上方显示的，大的要来了？
+
+*****
+
+####  bushfu  
+##### 5390#       发表于 2026-8-6 09:12
+
+卧槽要涨价了
+
+*****
+
+####  lowezack  
+##### 5391#       发表于 2026-8-6 09:15
+
+这下变牢梁了<img src="https://static.stage1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 5392#       发表于 2026-8-6 09:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">，是按之前峰谷定价吗，还是再进一步涨
+
