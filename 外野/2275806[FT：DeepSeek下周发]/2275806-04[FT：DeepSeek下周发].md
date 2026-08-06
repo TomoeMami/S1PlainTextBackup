@@ -12036,3 +12036,33 @@ Token涨价能不能像阶梯电费一样，比如说一天用1亿以上是一�
 
 用了一天。deepseekflash真蛮好用的，日常开发用基本没问题了，而且速度快好多。 就是下次版本更新增加进来多模态就好了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 对于我这种喜欢截图丢进去发问题的人来说，现在太难受了。
 
+
+*****
+
+####  来都来了  
+##### 5523#       发表于 2026-8-6 15:18
+
+ 本帖最后由 来都来了 于 2026-8-6 15:19 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023424&amp;ptid=2275806" target="_blank">zypyong 发表于 2026-8-6 15:10</a>
+有什么插件可以让deepseekflash 在codex上使用增加视觉功能吗，我看别人有能用gptluna或者其他带视觉功能的 ...</blockquote>
+vision-bridge-mcp
+
+*****
+
+####  crow_wine  
+##### 5524#       发表于 2026-8-6 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023437&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-6 15:11</a>
+
+Token涨价能不能像阶梯电费一样，比如说一天用1亿以上是一个价，5亿以上是一个价，给轻度用户留一点优惠。 ...</blockquote>
+电费不能换地址换号，互联网服务换号太简单了。现在实体买票都很难治黄牛
+
+*****
+
+####  tillnight  
+##### 5525#       发表于 2026-8-6 15:20
+
+<blockquote>来都来了 发表于 2026-8-6 15:11
+Token涨价能不能像阶梯电费一样，比如说一天用1亿以上是一个价，5亿以上是一个价，给轻度用户留一点优惠。 ...</blockquote>
+不知道你是不是认真的，如果是认真的那啥有点堪忧。水电煤可以阶梯是因为一户一表。网络账户你可以开一百个。订阅类服务都是n倍价格提供多于n倍的用量，不然傻子定高档位。
+

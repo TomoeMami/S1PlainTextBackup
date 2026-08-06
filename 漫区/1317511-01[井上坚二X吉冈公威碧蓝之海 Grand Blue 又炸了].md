@@ -88,3 +88,11 @@
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  长日留痕  
+##### 1390#       发表于 2026-8-6 15:17
+
+这男主的寸头我还以为跟哪个黄毛表白了呢<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
