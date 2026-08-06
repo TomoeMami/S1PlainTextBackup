@@ -7616,3 +7616,15 @@ A少的披风
 
 5年后不知道是线性关卡决战，还是整个五年后的大地图，玩一遍地域压制模式
 
+
+*****
+
+####  Troywest  
+##### 2205#       发表于 2026-8-6 21:06
+
+到时候小室女士带着她宏大的多线叙事，巧妙的起承转合把擅自期待的玩家们全都创飞<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+有感觉了吗？
+
+—— 来自 OnePlus PJZ110, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

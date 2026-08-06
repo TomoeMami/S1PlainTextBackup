@@ -13080,3 +13080,59 @@ DeepSeek V4 真的要来了，这回应该 DeepSeek V4 Pro 应该明天上 API</
 
 这图真成真了
 
+
+*****
+
+####  nxmonitor  
+##### 5625#       发表于 2026-8-6 21:06
+
+ 本帖最后由 nxmonitor 于 2026-8-6 21:11 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025436&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-6 20:23</a>
+
+我感觉价格还是会比luna有优势，何况现在muse spark价格更低
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3 ...</blockquote>
+meta祖传刷分，1.1出来分数也不差的，后面怎么没声音了？Grok4.5都比这个模型有声音多了，真好用不会有人不用的……
+
+*****
+
+####  nxmonitor  
+##### 5626#       发表于 2026-8-6 21:09
+
+还有luna这个模型，真觉得好用就去用，一用一个不吱声，一群中转站贩子在里面浑水摸鱼……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 5627#       发表于 2026-8-6 21:10
+
+<img src="https://img.stage1st.com/forum/202608/06/211033tdzttwcnl114c1l5.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (352.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 21:10 上传
+
+
+*****
+
+####  杀人鲸  
+##### 5628#       发表于 2026-8-6 21:13
+
+说起来倒是有一个很搞笑的事情，就是大家讨论的峰谷和波谷的价格，本质上却其实一直都没有上线过呀。
+而这一次更新的价格提醒指不定就是全球性质的，外国佬不一定能够占到便宜。
+只不过还是要看具体的涨价策略是什么。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  舞以  
+##### 5629#       发表于 2026-8-6 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025627&amp;ptid=2275806" target="_blank">綺々羅々ヴィヴ 发表于 2026-8-6 21:10</a></blockquote>
+这啥啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
