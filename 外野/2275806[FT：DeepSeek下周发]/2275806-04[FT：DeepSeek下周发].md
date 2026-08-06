@@ -12666,3 +12666,62 @@ DS现在这套高峰制对海外过于好了，都是按GMT8算北美15点能享
 
 涨10倍没有coding plan真的蹬不起了.
 
+
+*****
+
+####  舞以  
+##### 5585#       发表于 2026-8-6 19:22
+
+估计之前缓解蹬爆的解决方案就是挪一些算力从训练和研究到推理服务去了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这下气晕梁叔叔了，“去别的地方玩，别影响agi训练！”
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qz66618  
+##### 5586#       发表于 2026-8-6 19:23
+
+我感觉最多回到出厂时定价，即使那样pro的价格也不便宜了，前提是它真有fable的实力<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aemaeth  
+##### 5587#       发表于 2026-8-6 19:25
+
+<blockquote>如您在计费调整后继续选择使用我们的服务，则代表您已同意调整后的计费方式；如不同意接受则可选择退出使用并申请退费。如有任何疑问或需进一步了解相关信息，请随时联系我们。</blockquote>
+
+邮件里面这句看得我心慌，V4 Pro如果涨价高到K3那样就太可惜了，好多之前感觉可行的想法都得重新考虑了
+
+*****
+
+####  goranger  
+##### 5588#       发表于 2026-8-6 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025105&amp;ptid=2275806" target="_blank">Awanano 发表于 2026-8-6 19:12</a>
+DS现在这套高峰制对海外过于好了，都是按GMT8算北美15点能享受波谷价格，国内就得和人抢算力
+
+我前几个月用 ...</blockquote>
+我好奇open code go套餐走代理是不是能享受波谷价
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cscbzcbz  
+##### 5589#       发表于 2026-8-6 19:27
+
+最多回原价吧<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杀人鲸  
+##### 5590#       发表于 2026-8-6 19:27
+
+只能说在物质的世界里，最后还是要看实力说话。中国虽然穷人多，但是有钱的哥们从来也没少到哪里去。
+这也是我没事的时候，把自己挂到一些网站上，搞什么收费代写评论的时候的感受。是真有哥们愿意花个几千块，要求让我对某些作品写点评论之类的东西。真的是让我有点震撼，我国有钱人也是真的不少呀。
+只要模型的质量够好，怕不是这些有钱的哥们还觉得价涨对了。他妈的，哪来的那么多穷鬼和自己抢算力？
+毕竟连国外的那种高价都能够维系一个公司运转下去的话，那么国内的就不能有高价了吗？无非就是穷哥们不太能继续爽登了而已。这也的确是可惜，但商业竞争就是这样的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
