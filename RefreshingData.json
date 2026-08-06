@@ -2498,7 +2498,7 @@
     "newtitle": "[【请勿剧透】无职转生2期无剧透讨论楼]",
     "lastedit": 1785799565,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2084553": {
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 46563,
+    "totalreply": 46565,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1786058045,
+    "lastedit": 1786058765,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13122,10 +13122,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 21157,
+    "totalreply": 21158,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1786057805,
+    "lastedit": 1786058405,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17271,10 +17271,10 @@
     "update": false
   },
   "2287136": {
-    "totalreply": 114,
+    "totalreply": 115,
     "title": "[人民锐评： 用Token还是词元事关科技话语权]",
     "newtitle": "[人民锐评： 用Token还是词元事关科技话语权]",
-    "lastedit": 1786057085,
+    "lastedit": 1786058406,
     "category": "外野",
     "active": true,
     "update": false
@@ -17307,10 +17307,10 @@
     "update": false
   },
   "2287150": {
-    "totalreply": 81,
+    "totalreply": 82,
     "title": "[我国的神话人物还有哪个有挖掘成ip的潜力的？]",
     "newtitle": "[我国的神话人物还有哪个有挖掘成ip的潜力的？]",
-    "lastedit": 1786055645,
+    "lastedit": 1786058405,
     "category": "外野",
     "active": true,
     "update": false
@@ -17348,6 +17348,15 @@
     "newtitle": "[2025DLsite同人年度游戏评选：恭喜SiNiSistar2荣获GOTY！]",
     "lastedit": 1786036809,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2287144": {
+    "totalreply": 41,
+    "title": "[我宣布python是世界上最好的语言]",
+    "newtitle": "[我宣布python是世界上最好的语言]",
+    "lastedit": 1786058766,
+    "category": "外野",
     "active": true,
     "update": false
   }
