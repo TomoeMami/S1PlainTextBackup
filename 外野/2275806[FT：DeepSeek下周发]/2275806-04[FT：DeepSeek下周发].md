@@ -11444,3 +11444,24 @@ google今年怕是发不出来好东西了。
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  2017.05.04  
+##### 5467#       发表于 2026-8-6 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70022294&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-6 11:46</a>
+
+目前看盲猜还是4pga实力真的非常强，甚至可能超出了预期</blockquote>
+现在应该搞舰炮外交抢卡给亚非拉老乡亲低价使用了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+以后援建清单上除了基础设施以外，还得有个数据中心
+
+
+*****
+
+####  nxmonitor  
+##### 5468#       发表于 2026-8-6 11:53
+
+这几天测过luna以后，我认为降价不是因为推理成本低，而是根本没人用显卡在闲置导致的，太不稳定了
+

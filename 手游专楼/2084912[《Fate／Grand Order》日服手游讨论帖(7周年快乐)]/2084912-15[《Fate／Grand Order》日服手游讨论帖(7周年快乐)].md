@@ -2234,3 +2234,14 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 艹 第二张黑杯满破了 狗屎
 
+
+*****
+
+####  alucardcz  
+##### 21273#       发表于 2026-8-6 11:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70019535&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-8-5 20:09</a>
+
+艹 第二张黑杯满破了 狗屎</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 欧  至今没有第2张满破黑杯
+
