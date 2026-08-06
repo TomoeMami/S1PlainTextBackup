@@ -12222,3 +12222,33 @@ cc完全可以调用第三方模型当子代理啊，我这几天彻底用爽了
 我有点dsh的消息，不保证真，dsh侧重简约模式，激发模型的潜力，不是用条条框框把模型束缚住。它不像OpenCo ...</blockquote>
 强调扩展性还有少提示词的应该是真的，这个是有其他信源认证的，但是提到量化感觉就很假了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 5542#       发表于 2026-8-6 16:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023754&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-6 15:53</a>
+
+我有点dsh的消息，不保证真，dsh侧重简约模式，激发模型的潜力，不是用条条框框把模型束缚住。它不像OpenCo ...</blockquote>
+这些都是目前能根据已有消息能推理出来的吧，ds官方发的测试基准也备注了自己使用了相关参数
+
+*****
+
+####  绕指流光  
+##### 5543#         楼主| 发表于 2026-8-6 16:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023791&amp;ptid=2275806" target="_blank">cube 发表于 2026-8-6 15:58</a>
+@绕指流光 ，感觉本楼可以改成AI 大模型应用讨论专楼。</blockquote>
+收到，考虑 pro 发布在即，到时候再一块儿改了吧<img src="https://static.stage1st.com/image/smiley/face/143.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  卡普空  
+##### 5544#       发表于 2026-8-6 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023437&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-6 15:11</a>
+
+Token涨价能不能像阶梯电费一样，比如说一天用1亿以上是一个价，5亿以上是一个价，给轻度用户留一点优惠。 ...</blockquote>
+你搞反了，轻度用户连数据都没什么价值 <img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 
+
