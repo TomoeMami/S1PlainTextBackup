@@ -6895,3 +6895,13 @@ MD什么叫像枪的手甲，这不就是枪么</blockquote>
 
 2026-8-6 12:04 上传
 
+
+*****
+
+####  septer  
+##### 2147#       发表于 2026-8-6 12:18
+
+命运女神应该是阿罗拉苏蒂斯，人设大概参考了某些色彩很多的非洲大鹦鹉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+主角本体怎么看都是凤头肥鸡
+

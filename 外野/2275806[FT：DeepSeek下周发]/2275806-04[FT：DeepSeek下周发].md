@@ -11538,3 +11538,33 @@ DSV4 也并非万能
 
 赶快把harness和pro端上来吧
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5477#       发表于 2026-8-6 12:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70022205&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-8-6 11:35</a>
+
+不光jeff，sanjay也跑了。谷歌我记得就这俩L11。一块走的还有俩deepmind的vp，Quoc Le是L10，Oriol是gemi ...</blockquote>
+牛逼的，谷歌恐怕得一蹶不振了
+
+
+*****
+
+####  中国人  
+##### 5478#       发表于 2026-8-6 12:21
+
+感觉速度变慢了，看了下之前有用过火山方舟，坛友有用火山方舟的吗，火山方舟的dsv4flash用起来咋样啊
+
+*****
+
+####  cscbzcbz  
+##### 5479#       发表于 2026-8-6 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70022385&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-8-6 12:02</a>
+DSV4 也并非万能
+
+我让他帮我写个气象数据处理 他给我闰年判定能写错的</blockquote>
+这个让他注意关键信息的事实核查就好了，他直接会去尝试网上找数据。之前我让他对于关键信息指标，一定要给出网页链接和页面截图，他一通操作，应用各种爬虫技巧，熟练的绕过各种反爬机制，最绝的是直接操作浏览器打开网页，模拟人的操作，给我都看呆了
+
