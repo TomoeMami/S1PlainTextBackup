@@ -12837,3 +12837,57 @@ pro最多也就是规划debug难题的时候用用，真干活flash绰绰有余
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  →熙←  
+##### 5602#       发表于 2026-8-6 19:59
+
+卡爆了,现在是晚上比白天卡多了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2017.05.04  
+##### 5603#       发表于 2026-8-6 20:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025310&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-6 19:59</a>
+卡爆了,现在是晚上比白天卡多了</blockquote>
+已经属于出口创汇了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGT-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  舞以  
+##### 5604#       发表于 2026-8-6 20:04
+
+梁子能不能来个美元歧视价格啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+之前定完价，美元跌了，结果现在白皮定价比国内还便宜了。
+
+*****
+
+####  qz66618  
+##### 5605#       发表于 2026-8-6 20:04
+
+不会都在趁着涨价前猛蹬吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  一般市民  
+##### 5606#       发表于 2026-8-6 20:05
+
+今晚一定要给梁子蹬爆~！<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  partier  
+##### 5607#       发表于 2026-8-6 20:06
+
+梁子应该也没想到外围蹬的那么狠，波谷比波峰还卡，干脆换一下波峰波谷得了
+
+—— 来自 Xiaomi 23113RKC6C, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
