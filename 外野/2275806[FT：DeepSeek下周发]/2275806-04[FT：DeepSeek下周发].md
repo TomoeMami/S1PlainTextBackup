@@ -13596,3 +13596,70 @@ Flash已经能到Opus4.8的脚了，5倍参数至少猜个K3或者Sol吧……<i
 
 —— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  龙骑士尹志平  
+##### 5679#       发表于 2026-8-6 22:07
+
+如果是真的，以后中转都用v4pro代替肥波了吧
+
+*****
+
+####  舞以  
+##### 5680#       发表于 2026-8-6 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025919&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-6 22:05</a>
+从灰测表现来看不是差不多吗
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+毕竟是灰测，就连泥潭都有暗搓搓表示梁圣给大伙用廉价Fable的呢<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Promeus  
+##### 5681#       发表于 2026-8-6 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025912&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-6 22:03</a>
+可信度不高</blockquote>
+这人是个财经记者，料有但是别的地方不太行。东西应该是真的，但是也有草台基金管理人把预览版写上去的可能性
+
+*****
+
+####  tillnight  
+##### 5682#       发表于 2026-8-6 22:09
+
+灰测来说是大概率大于fable，不知道为什么都不敢说。当然前端不如，但fable前端还不如k3呢。但还是那句话，现在给人用的fable到底是真实能力的几成也没人说的好，各有各的赢法<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tillnight  
+##### 5683#       发表于 2026-8-6 22:14
+
+其实就我个人观点，憋着不发pro只有以下可能性：
+
+1、能力太强，目前定价太低预计服务器要down，一边先筹备借算力一边想其他办法（比如大幅涨价分流）。目前看有这个迹象。
+
+2、差一点sota，想憋了真核弹发，这半个月还在继续后训练。
+
+3、犹豫要不要放多模态，可能性很低。
+
+1和2实际不矛盾。至于什么等专用agent工具这种，我是不信的，这flash不也是没等就发了吗。
+
+*****
+
+####  舞以  
+##### 5684#       发表于 2026-8-6 22:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025984&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-6 22:14</a>
+其实就我个人观点，憋着不发pro只有以下可能性：
+
+1、能力太强，目前定价太低预计服务器要down，一边先筹备 ...</blockquote>
+同意，k3的指标估计不是梁圣在乎的，但是“DeepSeek回到sota竞争”对ds这个实验室意义重大。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

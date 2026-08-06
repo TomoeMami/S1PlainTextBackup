@@ -2434,3 +2434,11 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 大家不觉得很诡异吗，青子从队友那里借了100宝具值，染发之后再技能全开把100宝具值还给队友，相当于什么事都没有发生，但是全部人技能都CD了。
 
+
+*****
+
+####  森兰丸  
+##### 21290#       发表于 2026-8-6 22:11
+
+我是觉得当初这游戏终章结束后还是就这样关服了好...现在就这样一口气吊着真是有种狗尾续貂的感觉<img src="https://static.stage1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
