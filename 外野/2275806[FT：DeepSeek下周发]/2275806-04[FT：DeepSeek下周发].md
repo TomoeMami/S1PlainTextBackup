@@ -13136,3 +13136,105 @@ meta祖传刷分，1.1出来分数也不差的，后面怎么没声音了？Grok
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Promeus  
+##### 5630#       发表于 2026-8-6 21:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025650&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-6 21:14</a>
+这啥啊
+
+论坛助手,iPhone</blockquote>
+新一轮融资介绍书，这里应该就是v4proga了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这下都得死了
+
+*****
+
+####  王兰花秀丽  
+##### 5631#       发表于 2026-8-6 21:17
+
+那就是跑分仅次于fable/opus5 0.3%咯<img src="https://static.stage1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 5632#       发表于 2026-8-6 21:19
+
+8月7号确认出资主体认缴金额，就在明天！
+
+*****
+
+####  Promeus  
+##### 5633#       发表于 2026-8-6 21:19
+
+定价这意思是不是按fable的十分之一算
+
+*****
+
+####  cscbzcbz  
+##### 5634#       发表于 2026-8-6 21:20
+
+ 本帖最后由 cscbzcbz 于 2026-8-6 21:21 编辑 
+
+0.3%<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+肥波十分之一是个什么价格
+
+*****
+
+####  舞以  
+##### 5635#       发表于 2026-8-6 21:20
+
+真的假的啊<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+这也太炸裂了吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Znesmoc  
+##### 5636#       发表于 2026-8-6 21:20
+
+？！强强？！
+
+
+*****
+
+####  舞以  
+##### 5637#       发表于 2026-8-6 21:23
+
+主要这图的行文方式，感觉很不ds啊，当然我对投资相关完全不懂喵<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  kykawaiii  
+##### 5638#       发表于 2026-8-6 21:23
+
+zdjd
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Promeus  
+##### 5639#       发表于 2026-8-6 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025677&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-6 21:20</a>
+0.3%
+
+肥波十分之一是个什么价格</blockquote>
+输入1美元输出5美元，基本是原来的定价了
+
+*****
+
+####  王兰花秀丽  
+##### 5640#       发表于 2026-8-6 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025686&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-6 21:23</a>
+主要这图的行文方式，感觉很不ds啊，当然我对投资相关完全不懂喵
+
+论坛助手,iPhone ...</blockquote>
+0.3%的落后就是鲸鱼的谦虚<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
