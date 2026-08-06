@@ -12310,3 +12310,23 @@ Token涨价能不能像阶梯电费一样，比如说一天用1亿以上是一�
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  jinyu19922011  
+##### 5551#       发表于 2026-8-6 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70024038&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-6 16:31</a>
+
+有没有人建一个ai群
+
+—— 来自 vivo V2405A, Android 16, 鹅球 v4.0</blockquote>
+之前好像有，但是不太活跃，叫S1赛博飞升
+
+*****
+
+####  德尔惠净水器  
+##### 5552#       发表于 2026-8-6 16:52
+
+有没有人用过 Resource2Skill，可以把说明书转换成可用的 skill
+
