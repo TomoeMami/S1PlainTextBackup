@@ -71,3 +71,20 @@
 
 阿珍是真的来真的了<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿卡拉兰斯  
+##### 1388#       发表于 2026-8-6 13:01
+
+感觉要完结了啊，不过也是好事<img src="https://static.stage1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KDConan  
+##### 1389#       发表于 2026-8-6 13:08
+
+充满了完结的气氛<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

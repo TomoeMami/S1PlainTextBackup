@@ -11580,3 +11580,34 @@ Pro要看到时候的能力，预期是K3一档。现在的情况是K3的性价�
 
 如果Pro出来价格也打到K3这个档位，那我觉得就废了，如果还能在GLM5.2的档位，那值得好好考虑，如果能比GLM5.2低一个档位，那么会成为新的首选。
 
+
+*****
+
+####  spaceblue  
+##### 5481#       发表于 2026-8-6 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70022537&amp;ptid=2275806" target="_blank">aemaeth 发表于 2026-8-6 12:28</a>
+
+Flash涨价在两倍以内基本不影响，到4倍会开始认真考虑现在的任务给Flash是否还靠谱。
+
+Pro要看到时候的能力 ...</blockquote>
+K3很慢的，如果V4PRO的速度和之前一样那还是比K3有优势
+
+*****
+
+####  lactone  
+##### 5482#       发表于 2026-8-6 13:02
+
+知乎为了咩鳖，在ds涨价消息下都开始吹muse spark了，这还能说啥<img src="https://static.stage1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  justwul  
+##### 5483#       发表于 2026-8-6 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=70022498&amp;amp;ptid=2275806" target="_blank">中国人 发表于 2026-8-6 12:21</a>
+感觉速度变慢了，看了下之前有用过火山方舟，坛友有用火山方舟的吗，火山方舟的dsv4flash用起来咋样啊 ...</blockquote>
+还行吧，但是偶尔会触发速率限制，给的额度也不多，不打算续了。
+
