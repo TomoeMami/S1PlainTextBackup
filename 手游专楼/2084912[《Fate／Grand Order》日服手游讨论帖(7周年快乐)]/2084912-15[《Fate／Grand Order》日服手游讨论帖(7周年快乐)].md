@@ -2277,3 +2277,16 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 2026-8-6 17:05 上传
 
+
+*****
+
+####  exiaexa  
+##### 21275#       发表于 2026-8-6 17:27
+
+ 本帖最后由 exiaexa 于 2026-8-6 17:28 编辑 
+
+元帅技能组还差个宝具本和强化本，把效果群体化就起飞了
+
+现在就突出一个莫名其妙，给的跟慷慨但不知道有什么用
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
