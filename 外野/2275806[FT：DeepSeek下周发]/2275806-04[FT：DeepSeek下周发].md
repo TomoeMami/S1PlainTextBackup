@@ -11034,3 +11034,61 @@ doubao-seed-evolving 6, 30
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">开开玩笑叫人梁圣 梁子我觉得都没啥 叫梁/是不是就过分了。
 
+
+*****
+
+####  UncleDracula  
+##### 5427#       发表于 2026-8-6 10:09
+
+既然如此，一周的工作量排到三天了！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  损友阿德  
+##### 5428#       发表于 2026-8-6 10:09
+
+8月6日，DeepSeek公告：“计划近期整体上调DeepSeek API服务的定价，预计涨幅较大，请合理安排您的使用。具体方案以正式通知为准。”
+
+要涨价了！coding plan快出来了吧
+
+*****
+
+####  qz66618  
+##### 5429#       发表于 2026-8-6 10:11
+
+ds不搞coding plan的，要是回到一开始的原价pro还是有点贵啊<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  谎称  
+##### 5430#       发表于 2026-8-6 10:12
+
+glm：什么，鲸鱼娘也涨价？那我就不是小丑了……
+
+*****
+
+####  nxmonitor  
+##### 5431#       发表于 2026-8-6 10:12
+
+昨天openroute的flash已经被蹬到25T了，这服务器确实扛不住了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡修_Kasio  
+##### 5432#       发表于 2026-8-6 10:13
+
+变阻器往梁子方面滑动一格！
+
+我目前是用opencode，感觉日常工作够用了，chatbox也有工作模式更新，那个还没用过
+
+*****
+
+####  Milarvoz  
+##### 5433#       发表于 2026-8-6 10:13
+
+赶紧上线再蹬几块钱的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
