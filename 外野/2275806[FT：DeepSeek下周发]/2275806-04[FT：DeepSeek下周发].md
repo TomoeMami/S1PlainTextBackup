@@ -13841,3 +13841,13 @@ ds之前说的利润是毛利吧
 
 我觉得真是是肥波级，少一手多模态<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  果壳中的松鼠  
+##### 5703#       发表于 2026-8-6 23:40
+
+opencode的人说可以在租来的GPU上复现deepseek的价格<img src="https://p.sda1.dev/34/523f7a7c8a9e443aad060913b317ba36/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
