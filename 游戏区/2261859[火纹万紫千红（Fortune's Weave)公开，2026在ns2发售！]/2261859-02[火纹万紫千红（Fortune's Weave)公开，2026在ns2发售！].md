@@ -6933,3 +6933,11 @@ MD什么叫像枪的手甲，这不就是枪么</blockquote>
 
 看到有猜测主角的灵魂就是神威法王，如果真的是神威法王的转世，那确实可以理解为什么被称为救世主了，本来就是神。
 
+
+*****
+
+####  Jabeck  
+##### 2151#       发表于 2026-8-6 12:52
+
+神威法王就不能是反派？终于等来机会转世成魔神？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
