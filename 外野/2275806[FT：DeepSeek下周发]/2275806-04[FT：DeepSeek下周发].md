@@ -12891,3 +12891,23 @@ pro最多也就是规划debug难题的时候用用，真干活flash绰绰有余
 
 —— 来自 Xiaomi 23113RKC6C, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  cscbzcbz  
+##### 5608#       发表于 2026-8-6 20:09
+
+趁没涨价赶紧蹬
+
+
+*****
+
+####  lactone  
+##### 5609#       发表于 2026-8-6 20:12
+
+其实我很怀疑涨价的效果
+
+如果还是性价比最高的，还是会被猛蹬
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
