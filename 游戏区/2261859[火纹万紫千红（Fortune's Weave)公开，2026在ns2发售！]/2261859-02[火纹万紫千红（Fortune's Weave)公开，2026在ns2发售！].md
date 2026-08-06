@@ -6952,3 +6952,33 @@ MD什么叫像枪的手甲，这不就是枪么</blockquote>
 神威法王就不能是反派？终于等来机会转世成魔神？</blockquote>
 反派咋包饺子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小学生把持不住  
+##### 2153#       发表于 2026-8-6 13:37
+
+昨天你们刚定论5年后流程很短，今天就出来个5年后造型的冥化商人
+
+*****
+
+####  蓮華  
+##### 2154#       发表于 2026-8-6 13:40
+
+<img src="https://img.stage1st.com/forum/202608/06/134055bcswk5uzuti5ik5z.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4304.jpeg</strong> (176.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-6 13:40 上传
+
+
+*****
+
+####  Jabeck  
+##### 2155#       发表于 2026-8-6 13:44
+
+确定是冥化商人？那说明这角色不能作为同伴。 要不就是招募的同伴全部被冥化要一个个去净化。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

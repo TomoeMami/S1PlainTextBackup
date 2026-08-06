@@ -11695,3 +11695,34 @@ Facebook的muse 1.2来了, 同意共享数据给Meta训练的话, 比DS 4Flash�
 
 哎，感觉今天也没有了，看明天吧    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  jojog  
+##### 5493#       发表于 2026-8-6 13:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">luna和DS比我觉得还是DS强，而且不是一星半点
+
+感觉可能是语言问题
+
+同一个需求luna老听不懂我在说啥得换到sol，ds就能听懂
+
+
+*****
+
+####  舞以  
+##### 5494#       发表于 2026-8-6 13:40
+
+luna那个max性能纯烂炒，官方都建议直接low档位当杂活模型。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Awanano  
+##### 5495#       发表于 2026-8-6 13:42
+
+luna 的上下文会比想象中的少，我用自己的框架使用时发现它一直在压缩画布上下文这些
+推上也有人对比过 lunamax 和 solmid 比，solmid 明显幻觉更少
+吹 luna 的先看看做的工作是什么    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
