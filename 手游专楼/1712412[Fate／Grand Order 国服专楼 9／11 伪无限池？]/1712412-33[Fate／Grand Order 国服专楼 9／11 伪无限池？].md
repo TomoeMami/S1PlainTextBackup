@@ -1827,3 +1827,20 @@ ex双倍经验+四倍大成功，要喂抓紧，我是把压箱底的大火都�
 
 —— 来自 OnePlus PKX110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  朝仓和美  
+##### 48048#       发表于 2026-8-6 11:00
+
+请问优先喂所长还是学姐？
+
+*****
+
+####  khxooo  
+##### 48049#       发表于 2026-8-6 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70021981&amp;ptid=1712412" target="_blank">朝仓和美 发表于 2026-8-6 11:00</a>
+请问优先喂所长还是学姐？</blockquote>
+那当然是所长，后续一整年都是所长高光
+

@@ -11345,3 +11345,52 @@ qwen3.8这是塞钱了？<img src="https://static.stage1st.com/image/smiley/face
 —— 来自 Xiaomi 2112123AC, Android 13, 鹅球 v4.0-alpha ...</blockquote>
 xhs看见传言要在乌兰察布建厂
 
+
+*****
+
+####  squallx  
+##### 5457#       发表于 2026-8-6 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70021949&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-6 10:55</a>
+
+qwen3.8这是塞钱了？</blockquote>
+一直都是跑分王者实际青铜 过拟了   砍成小模型才是实际水平
+
+*****
+
+####  nxmonitor  
+##### 5458#       发表于 2026-8-6 10:58
+
+ 本帖最后由 nxmonitor 于 2026-8-6 10:59 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70021949&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-6 10:55</a>
+
+qwen3.8这是塞钱了？</blockquote>
+大概率把预览版某天的API拿出来了，预览版实际上能力上就好了几天，正式版很明确是缩水了，比V4F好得有限……
+
+
+*****
+
+####  zy450  
+##### 5459#       发表于 2026-8-6 11:01
+
+不融资了，多赚点给员工发福利？
+
+*****
+
+####  CCauchy  
+##### 5460#       发表于 2026-8-6 11:01
+
+昨天刚算完账就涨价，不过估计性价比也就从100%额度gpt20x掉到80%
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  KylianMbappe  
+##### 5461#       发表于 2026-8-6 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70021991&amp;ptid=2275806" target="_blank">zy450 发表于 2026-8-6 11:01</a>
+
+不融资了，多赚点给员工发福利？</blockquote>
+融资的资本方更重视盈利能力吧
+

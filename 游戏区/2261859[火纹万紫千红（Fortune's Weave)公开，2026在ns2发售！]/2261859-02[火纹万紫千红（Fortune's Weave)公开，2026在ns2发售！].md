@@ -6846,3 +6846,11 @@ MD什么叫像枪的手甲，这不就是枪么</blockquote>
 
 2026-8-6 10:56 上传
 
+
+*****
+
+####  meltingwhite  
+##### 2142#       发表于 2026-8-6 11:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自捏先单通了一次，然后发现这四级长在对面太难搞，魂焰技太imba了，找福图娜跑五年前把他们都给ban掉了
+
