@@ -7082,3 +7082,19 @@ MD什么叫像枪的手甲，这不就是枪么</blockquote>
 法王确认可用。</blockquote>
 你忘了外传不共戴天,蕾雅大人也作为需要保护的NPC单位登场过
 
+
+*****
+
+####  deathliu  
+##### 2165#       发表于 2026-8-6 15:30
+
+<img src="https://img.stage1st.com/forum/202608/06/153002cdcdzbb15505e5b1.png" referrerpolicy="no-referrer">
+
+<strong>62A5171EB6865F16EA1612860B3389DF.png</strong> (52.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 15:30 上传
+
+看起来增加了天气对战斗的影响，火系法术被雨天降低了威力，不知道其他的影响还有没有
+
