@@ -2290,3 +2290,11 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 现在就突出一个莫名其妙，给的跟慷慨但不知道有什么用
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 21276#       发表于 2026-8-6 17:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听说蘑菇昨天晚上又发表了惊天言论还重新定义了何谓巨婴？
+

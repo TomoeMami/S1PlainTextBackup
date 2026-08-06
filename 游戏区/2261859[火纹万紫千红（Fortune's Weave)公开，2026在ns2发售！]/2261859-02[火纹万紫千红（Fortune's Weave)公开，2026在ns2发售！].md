@@ -7309,3 +7309,130 @@ A少的披风
 
 2026-8-6 17:45 上传
 
+
+*****
+
+####  qiyu1234  
+##### 2183#       发表于 2026-8-6 17:54
+
+<img src="https://img.stage1st.com/forum/202608/06/175425xsixg1gg896e9g3x.jpg" referrerpolicy="no-referrer">
+
+<strong>m2-res_700p.mp4_20260806_175312.617.jpg</strong> (216.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 17:54 上传
+
+<img src="https://img.stage1st.com/forum/202608/06/175425juqajbz1duumla63.jpg" referrerpolicy="no-referrer">
+
+<strong>m2-res_700p.mp4_20260806_175315.388.jpg</strong> (164.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 17:54 上传
+
+<img src="https://img.stage1st.com/forum/202608/06/175426ow3qgg2sngb3ptpb.jpg" referrerpolicy="no-referrer">
+
+<strong>m2-res_700p.mp4_20260806_175317.224.jpg</strong> (182.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 17:54 上传
+
+<img src="https://img.stage1st.com/forum/202608/06/175426kuzdx63ygyo2yold.jpg" referrerpolicy="no-referrer">
+
+<strong>m2-res_700p.mp4_20260806_175322.834.jpg</strong> (98.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 17:54 上传
+
+<img src="https://img.stage1st.com/forum/202608/06/175427zclyuhnyxycvnpl8.jpg" referrerpolicy="no-referrer">
+
+<strong>m2-res_700p.mp4_20260806_175324.927.jpg</strong> (113.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 17:54 上传
+
+<img src="https://img.stage1st.com/forum/202608/06/175427je87ekw7bkk7wpp7.jpg" referrerpolicy="no-referrer">
+
+<strong>m2-res_700p.mp4_20260806_175330.539.jpg</strong> (161.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 17:54 上传
+
+<img src="https://img.stage1st.com/forum/202608/06/175428hx47vaueuj4jieea.jpg" referrerpolicy="no-referrer">
+
+<strong>m2-res_700p.mp4_20260806_175332.903.jpg</strong> (165.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 17:54 上传
+
+<img src="https://img.stage1st.com/forum/202608/06/175428n0gm1004uzumlygl.jpg" referrerpolicy="no-referrer">
+
+<strong>m2-res_700p.mp4_20260806_175334.265.jpg</strong> (167.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 17:54 上传
+
+<img src="https://img.stage1st.com/forum/202608/06/175429raqvv4v0nnaw1kwl.jpg" referrerpolicy="no-referrer">
+
+<strong>m2-res_700p.mp4_20260806_175335.554.jpg</strong> (164.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 17:54 上传
+
+<img src="https://img.stage1st.com/forum/202608/06/175429z3k88kkmkaikq6qj.jpg" referrerpolicy="no-referrer">
+
+<strong>m2-res_700p.mp4_20260806_175337.368.jpg</strong> (173.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 17:54 上传
+
+
+*****
+
+####  qiyu1234  
+##### 2184#       发表于 2026-8-6 18:00
+
+按Troy的意思，现在的达古扎大陆上应该全是复活的丧尸（包括前面那个黑皮绿脏辫）
+
+所以有熟人（？）也不奇怪
+
+*****
+
+####  ggiol  
+##### 2185#       发表于 2026-8-6 18:03
+
+现在有说切换四个主角是同一世界线还是平行世界吗？感觉同一世界线切换哪怕BUG多一点的也比平行世界强啊
+
+
+*****
+
+####  budong  
+##### 2186#       发表于 2026-8-6 18:04
+
+<blockquote>zzf111 发表于 2026-8-6 17:49
+</blockquote>
+脑洞很大，能给个链接吗，想看看4ch巨魔是怎么讨论的
+
+*****
+
+####  被击坠王  
+##### 2187#       发表于 2026-8-6 18:06
+
+所以现实世界、地底人科技、手甲拳铳、偏现实风的穿搭全是IS对高级战争的追忆<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lbzlxx  
+##### 2188#       发表于 2026-8-6 18:06
+
+这作的人设太过强调异域风情了，我不太喜欢，看完视频没一个特别亮眼和喜欢的
+

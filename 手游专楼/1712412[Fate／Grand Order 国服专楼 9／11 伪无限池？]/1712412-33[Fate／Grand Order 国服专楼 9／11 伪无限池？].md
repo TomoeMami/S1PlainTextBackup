@@ -1905,3 +1905,16 @@ ex双倍经验+四倍大成功，要喂抓紧，我是把压箱底的大火都�
 现在正在补qp</blockquote>
 暴打冠位不就有QP了么，比你去打QP本还快
 
+
+*****
+
+####  shimotsuki14  
+##### 48055#       发表于 2026-8-6 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023273&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2026-8-6 14:46</a>
+暴打冠位不就有QP了么，比你去打QP本还快</blockquote>
+只打了剑冠位，狂枪都摸了，眼瞅着ex也摸了<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+晚上冲刺一下
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
