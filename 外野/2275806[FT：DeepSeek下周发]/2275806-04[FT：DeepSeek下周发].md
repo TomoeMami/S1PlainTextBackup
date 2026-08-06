@@ -13924,3 +13924,15 @@ ds员工辟谣那个泄露的文件了<img src="https://static.stage1st.com/imag
 —— 来自 HUAWEI ALN-AL00, Android 12, 鹅球 v3.5.99-alpha</blockquote>
 我看了一下他说是和opencode合作的一个team复制的，总之只算成本应该真的贵不到哪里去
 
+
+*****
+
+####  脸宽  
+##### 5710#       发表于 2026-8-7 00:39
+
+ 本帖最后由 脸宽 于 2026-8-7 00:40 编辑 
+
+opencode真给我蹬爽了，按照自己的想法设计了一个文字挂机游戏，蹬了两个亿<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+在这个过程中发现数值分析对于一个游戏太重要了。这个过程我不断的让ai帮我调整。
+
