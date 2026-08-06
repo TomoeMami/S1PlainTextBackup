@@ -2298,3 +2298,15 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听说蘑菇昨天晚上又发表了惊天言论还重新定义了何谓巨婴？
 
+
+*****
+
+####  angelooo  
+##### 21277#       发表于 2026-8-6 18:18
+
+<blockquote>alucardcz 发表于 2026-8-6 17:55
+听说蘑菇昨天晚上又发表了惊天言论还重新定义了何谓巨婴？</blockquote>
+就是实锤了终章到元旦那几天他遛全服的人玩，甚至还想过31号停服或者让所有人登录不了游戏这样的深井冰点子
+
+总之lxg和yls的风评再次因为这样的逆天作者大幅提升23333
+

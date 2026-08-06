@@ -12461,3 +12461,37 @@ deepseekflash真的是用起来有fable的感觉。 主动性很强，不依赖�
 
 2026-8-6 18:10 上传
 
+
+*****
+
+####  88316756  
+##### 5565#       发表于 2026-8-6 18:15
+
+DS发涨价邮件了，正式版马上就要出了吧，难道就是明天？
+
+*****
+
+####  舞以  
+##### 5566#       发表于 2026-8-6 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70024760&amp;ptid=2275806" target="_blank">88316756 发表于 2026-8-6 18:15</a>
+
+DS发涨价邮件了，正式版马上就要出了吧，难道就是明天？</blockquote>
+发了吗？我这还没收到<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王兰花秀丽  
+##### 5567#       发表于 2026-8-6 18:17
+
+看看邮件<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  88316756  
+##### 5568#       发表于 2026-8-6 18:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70024772&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-6 18:17</a>
+发了吗？我这还没收到</blockquote>
+社区看到已经有人收到邮件了。
+

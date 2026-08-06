@@ -578,3 +578,34 @@ Music Video 3作を収録予定。
 
 个人曲也追加了啊，运营还是很快
 
+
+*****
+
+####  holofan  
+##### 11695#       发表于 2026-8-6 11:37
+
+<img src="https://img.stage1st.com/forum/202608/06/113703nixuto0x6f06uuky.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (56.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 11:37 上传
+
+外衣上的樱花图案都给你漏出来了竟然还fwmc
+
+<img src="https://img.stage1st.com/forum/202608/06/113500tie7tvhbu3zwyhwv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (65.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 11:35 上传
+
+*****
+
+####  holofan  
+##### 11696#       发表于 2026-8-6 18:18
+
+查一眼发现小黄人上映一个月了附近电影院全部下线了草
+
