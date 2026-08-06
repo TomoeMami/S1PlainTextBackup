@@ -12966,3 +12966,79 @@ pro最多也就是规划debug难题的时候用用，真干活flash绰绰有余
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  wandeeees  
+##### 5615#       发表于 2026-8-6 20:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025447&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-8-6 20:26</a>
+只能说真的是很期待携带着专武神器平台的Pro到底性能有多夸张。说起来对性能这一点的话，大家其实都还挺有 ...</blockquote>
+看灰测最后几天的效果<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  舞以  
+##### 5616#       发表于 2026-8-6 20:30
+
+灰测还是用的opencode，估计专武上了还有buff吧
+
+*****
+
+####  80后卢瑟  
+##### 5617#       发表于 2026-8-6 20:31
+
+DeepSeek V4 真的要来了，这回应该 DeepSeek V4 Pro 应该明天上 API<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/06/203010yn9u540yzz55gy00.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2026-08-06 at 20.29.23.png</strong> (57.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 20:30 上传
+
+*****
+
+####  黑夜中的冥想  
+##### 5618#       发表于 2026-8-6 20:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025453&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-6 20:29</a>
+
+看灰测最后几天的效果
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+如果专属的约束器能够在灰测基础上有很大的加成，那真是sota了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  crow_wine  
+##### 5619#       发表于 2026-8-6 20:35
+
+其实我觉得千问 3.8 Max 还凑合的，但是没有 0.1 折以后，感觉贵得飞起，20刀一个月 3000 积分，一个讨论文档就花 20 积分。用来开发不用 3 天就烧光
+
+*****
+
+####  杀人鲸  
+##### 5620#       发表于 2026-8-6 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025463&amp;ptid=2275806" target="_blank">80后卢瑟 发表于 2026-8-6 20:31</a>
+DeepSeek V4 真的要来了，这回应该 DeepSeek V4 Pro 应该明天上 API</blockquote>
+还真是，我也收到了。
+原本我都在奇怪，其他人都收到了这个邮件，我怎么没收到？总不能是我没有订阅邮件吧？
+但不对呀，之前都有发一些通知的。
+结果刚才才看到，别人早就有的邮件，现在才发过来。
+难道是人数太多的缘故，分批次发的吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  specialized01  
+##### 5621#       发表于 2026-8-6 20:37
+
+谁解释专武是啥？传说中针对deepseek特调的deepseek code app吗？
+
