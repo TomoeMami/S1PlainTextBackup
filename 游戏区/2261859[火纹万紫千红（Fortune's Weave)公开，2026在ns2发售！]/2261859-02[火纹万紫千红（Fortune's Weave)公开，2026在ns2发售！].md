@@ -7638,3 +7638,19 @@ A少的披风
 已经有几个人分别出现在不同队里了</blockquote>
 我猜测大概有些人是公共池谁都可以招募 但是你招募了就不会出现其他线
 
+
+*****
+
+####  巴尔干炮  
+##### 2207#       发表于 2026-8-6 22:59
+
+<img src="https://img.stage1st.com/forum/202608/06/225806jac6jcjxkjxluzja.png" referrerpolicy="no-referrer">
+
+<strong>1786027717444061.png</strong> (241.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 22:58 上传
+
+真就沙僧啊。
+

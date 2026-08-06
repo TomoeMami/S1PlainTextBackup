@@ -13782,3 +13782,30 @@ ds之前说的利润是毛利吧
 
 有没有可能，明天只是涨价，不放模型，邮件里一个字都没提模型。是不是全世界穷鬼蹬梁子服务器梁子受不了了，要用哈耶克的大手来惩罚穷鬼。
 
+
+*****
+
+####  lactone  
+##### 5696#       发表于 2026-8-6 23:01
+
+都不一定是明天<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只涨价不发pro怕不是降级为梁%
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  jojog  
+##### 5697#       发表于 2026-8-6 23:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">别说fable了 哪怕只比sol差0.3这价格也能揍死openai了
+
+虽然A/更恶心但是反正都得死先揍死scam altman我没意见
+
+
+*****
+
+####  scikirbypoke  
+##### 5698#       发表于 2026-8-6 23:04
+
+肥波级还行，真是0.3%那也斩杀了吧
+
