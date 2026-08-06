@@ -10671,3 +10671,11 @@ flash比之前慢了很多
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70020982&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-8-6 08:41</a></blockquote>
 这个没准的，也许是差点进神秘园，也许就是生死边缘悟道了才能去干deepseek呢
 
+
+*****
+
+####  wandeeees  
+##### 5385#       发表于 2026-8-6 09:03
+
+我用的之前楼里推的羊毛第三方，速度很快，也没降智，但是我想用pro ga和harness啊，这周不出的话再次从梁圣降格到牢梁<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
