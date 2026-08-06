@@ -10662,3 +10662,12 @@ flash比之前慢了很多
 
 2026-8-6 08:41 上传
 
+
+*****
+
+####  sellboy  
+##### 5384#       发表于 2026-8-6 08:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70020982&amp;ptid=2275806" target="_blank">高粱河车神 发表于 2026-8-6 08:41</a></blockquote>
+这个没准的，也许是差点进神秘园，也许就是生死边缘悟道了才能去干deepseek呢
+
