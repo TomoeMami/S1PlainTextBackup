@@ -11426,3 +11426,21 @@ qwen3.8这是塞钱了？</blockquote>
 
 google今年怕是发不出来好东西了。
 
+
+*****
+
+####  Promeus  
+##### 5465#       发表于 2026-8-6 11:46
+
+目前看盲猜还是4pga实力真的非常强，甚至可能超出了预期<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 5466#       发表于 2026-8-6 11:48
+
+小鲸鱼重回sota境界？
+所以涨价控制用量？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
