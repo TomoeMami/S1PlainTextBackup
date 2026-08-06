@@ -7680,3 +7680,31 @@ A少的披风
 
 要么A路线招募了 B路线无法招募<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">但是 四个主角要争第一的 故事你得咋圆
 
+
+*****
+
+####  qiyu1234  
+##### 2211#       发表于 2026-8-6 23:53
+
+这游戏可以直接去挑战魔神
+
+所以应该还是存在5年后的流程的
+
+不过5年后流程应该偏线性了，打完一场回方尖塔休整这样，也应该还是有独自的队伍，不然作为真主人公没几个牵绊对象确实说不过去
+
+*****
+
+####  57042711  
+##### 2212#       发表于 2026-8-6 23:54
+
+之前宣传视频里不是有打到一半乱入了黑影敌人吗，这个剑斗祭应该是打不完的啦<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  洛亚替身  
+##### 2213#       发表于 2026-8-6 23:55
+
+确定前传了？有点提不起劲啊<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
