@@ -12794,3 +12794,46 @@ pro最多也就是规划debug难题的时候用用，真干活flash绰绰有余
 
 我是穷鬼, 快给国外访问限流, 别涨太多了, 不够用啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杀人鲸  
+##### 5598#       发表于 2026-8-6 19:49
+
+说起来，我倒是更好奇，后来的网页端和APP到底如何处理？会更新到最新的模型吗？专家模式的搜索和文件上传功能到现在都还无影无踪呢。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  mitzvah  
+##### 5599#       发表于 2026-8-6 19:52
+
+试了两台mac组集群，尽然跑出了642每秒的预填充！还是gguf完全没有最新的m5max加速的情况下获得的！
+
+这个太吊了，比27b还要快！实际上v4flash对于大型部署而言成本是远远低于27b的
+
+*****
+
+####  龙骑士尹志平  
+##### 5600#       发表于 2026-8-6 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025273&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-8-6 19:49</a>
+
+说起来，我倒是更好奇，后来的网页端和APP到底如何处理？会更新到最新的模型吗？专家模式的搜索和文件上传 ...</blockquote>
+梁子无视c端用户，认为c端用户是累赘，搞不好负责维护的人比维护星际争霸的人都少。
+
+
+*****
+
+####  舞以  
+##### 5601#       发表于 2026-8-6 19:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025273&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-8-6 19:49</a>
+说起来，我倒是更好奇，后来的网页端和APP到底如何处理？会更新到最新的模型吗？专家模式的搜索和文件上传 ...</blockquote>
+专家模式的限制估计是为了限制别人搞反代白嫖网页端买中转
+至于更新模型，我估计等pro正式版出了会一起更新吧，现在更新的话专业模式不如快速模式就太难绷了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
