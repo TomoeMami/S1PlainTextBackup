@@ -936,3 +936,73 @@ CGディレクター：長嶺明音
 
 感觉女主还有伪娘的声音和角色形象不搭......
 
+
+*****
+
+####  按时间灵活  
+##### 75#       发表于 2026-8-6 22:23
+
+˚₊•┈┈┈STAFFイラスト公開┈┈┈•‧₊˚⊹
+
+　　　　　　　illustration
+
+アートディレクター：セドリック・エロール
+
+‧˚₊•┈┈┈┈┈┈┈୨୧┈┈┈┈┈┈┈•‧₊˚⊹
+
+配信まで、あと４日！
+
+<img src="https://img.stage1st.com/forum/202608/06/222313bnf9kkykf0ynify0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (139.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 22:23 上传
+
+*****
+
+####  按时间灵活  
+##### 76#       发表于 2026-8-6 22:23
+
+‧˚₊•┈┈┈STAFFイラスト公開┈┈┈•‧₊˚⊹
+
+　　　　　　　illustration
+
+　　　メインアニメーター：黄捷
+
+‧˚₊•┈┈┈┈┈┈┈୨୧┈┈┈┈┈┈┈•‧₊˚⊹
+
+配信まであと３日！
+
+<img src="https://img.stage1st.com/forum/202608/06/222356ggluwq4z6l71ou6e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (68.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 22:23 上传
+
+*****
+
+####  按时间灵活  
+##### 77#       发表于 2026-8-6 22:25
+
+ 本帖最后由 按时间灵活 于 2026-8-6 22:27 编辑 
+
+˚₊•┈┈┈STAFFイラスト公開┈┈┈•‧₊˚⊹
+
+　　　　　　　illustration
+
+  　　　総作画監督：古賀美裕紀
+
+‧˚₊•┈┈┈┈┈┈┈୨୧┈┈┈┈┈┈┈•‧₊˚⊹
+
+<img src="https://img.stage1st.com/forum/202608/06/222711ktum1j439k76aq01.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (749.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 22:27 上传
+

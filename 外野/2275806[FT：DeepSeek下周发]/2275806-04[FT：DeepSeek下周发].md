@@ -13663,3 +13663,20 @@ Flash已经能到Opus4.8的脚了，5倍参数至少猜个K3或者Sol吧……<i
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  qz66618  
+##### 5685#       发表于 2026-8-6 22:22
+
+最有可能的是明天其实没发，harness还在内测<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  魔神赵日天  
+##### 5686#       发表于 2026-8-6 22:23
+
+fp8量化不是ds创新的吧，应该早就有了？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
