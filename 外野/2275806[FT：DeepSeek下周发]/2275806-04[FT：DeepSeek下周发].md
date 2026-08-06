@@ -13851,3 +13851,27 @@ opencode的人说可以在租来的GPU上复现deepseek的价格<img src="https:
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  serj005  
+##### 5704#       发表于 2026-8-7 00:06
+
+v4f在不同agent下的任务成功率、消耗时间、使用成本对比，包括claudecode,codex,opencode,oh my pi
+
+<img src="https://img.stage1st.com/forum/202608/07/000528tryd8dqy5ig8jeqg.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1786032327924_2.webp</strong> (45.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 00:05 上传
+
+<img src="https://img.stage1st.com/forum/202608/07/000528el6ggwcfuglnlgrl.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1786032328132_3.webp</strong> (59.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 00:05 上传
+

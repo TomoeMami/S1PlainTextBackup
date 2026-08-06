@@ -612,3 +612,42 @@ yuno倒是五个人里比较像Vtb的，相对而言吧，不知道后面会不�
 
 他吗的，我究竟是，究竟是，看了个啥啊
 
+
+*****
+
+####  铃森冬  
+##### 193#       发表于 2026-8-6 23:59
+
+<img src="https://img.stage1st.com/forum/202608/06/235852sl0zwd567597u1w9.png" referrerpolicy="no-referrer">
+
+<strong>yuno.png</strong> (60.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 23:58 上传
+
+*****
+
+####  仟音一心  
+##### 194#       发表于 2026-8-6 23:59
+
+公式化复刻
+
+<img src="https://img.stage1st.com/forum/202608/06/235951ymqym8knwla63si5.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1786031991898_1.webp</strong> (81.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 23:59 上传
+
+
+*****
+
+####  天风绯炎  
+##### 195#       发表于 2026-8-7 00:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先期待，再期待吧，反正wsd就是抱着烂炒的决心来的，也看的出故事叙述有意在复刻mygo的节奏，不管结局咋说，活应该不少
+
+我大阴角就是受不了你这个大阳角<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
