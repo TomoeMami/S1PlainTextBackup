@@ -7628,3 +7628,13 @@ A少的披风
 
 —— 来自 OnePlus PJZ110, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  zhwpjy  
+##### 2206#       发表于 2026-8-6 22:32
+
+<blockquote>零崎不识 发表于 2026-8-6 20:59
+已经有几个人分别出现在不同队里了</blockquote>
+我猜测大概有些人是公共池谁都可以招募 但是你招募了就不会出现其他线
+
