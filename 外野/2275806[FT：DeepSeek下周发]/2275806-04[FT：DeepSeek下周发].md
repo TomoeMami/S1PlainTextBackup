@@ -13995,3 +13995,112 @@ ds员工辟谣那个泄露的文件了
 
 按某个中转站站长的:"跑40b+ token的 luna,就收入200多块, 做慈善哪"
 
+
+*****
+
+####  qz66618  
+##### 5716#       发表于 2026-8-7 00:23
+
+ds员工辟谣那个泄露的文件了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  hugosol  
+##### 5717#       发表于 2026-8-7 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70026579&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-7 00:13</a>
+
+格局这么高？手把手指导
+
+—— 来自 HUAWEI ALN-AL00, Android 12, 鹅球 v3.5.99-alpha</blockquote>
+我看了一下他说是和opencode合作的一个team复制的，总之只算成本应该真的贵不到哪里去
+
+*****
+
+####  脸宽  
+##### 5718#       发表于 2026-8-7 00:39
+
+ 本帖最后由 脸宽 于 2026-8-7 00:40 编辑 
+
+opencode真给我蹬爽了，按照自己的想法设计了一个文字挂机游戏，蹬了两个亿<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+在这个过程中发现数值分析对于一个游戏太重要了。这个过程我不断的让ai帮我调整。
+
+*****
+
+####  chuchoselph  
+##### 5719#       发表于 2026-8-7 00:45
+
+ds对比其他家明显优势的就是缓存命中价格，其他家缓存价格能控制在官方api的三倍以内，一样不会影响他模型的推广
+
+所以这次涨价明显就是单纯的算力不足，哪儿来那么多奇奇怪怪的阴谋论，他妈的一到晚上就被西半球穷鬼们蹬得流口水涨涨价怎么了？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CCauchy  
+##### 5720#       发表于 2026-8-7 00:48
+
+再不涨以后旗舰模型跟不上了吧
+
+能换智商也是划算的买卖
+
+
+*****
+
+####  kykawaiii  
+##### 5721#       发表于 2026-8-7 00:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70026602&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-7 00:23</a>
+ds员工辟谣那个泄露的文件了
+
+—— 来自 鹅球 v3.5.99</blockquote>
+什么文件
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  goranger  
+##### 5722#       发表于 2026-8-7 00:57
+
+ 本帖最后由 goranger 于 2026-8-7 01:02 编辑 
+
+<img src="https://cdn3.ldstatic.com/optimized/4X/5/4/f/54f514aa5117028f7013a47df1c091c79a9d6bcf_2_605x500.png" referrerpolicy="no-referrer">
+
+image.png
+(36.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 00:57 上传
+
+<img src="https://img.stage1st.com/forum/202608/07/005726yy1c9ppsppa1py3s.png" referrerpolicy="no-referrer">
+
+*****
+
+####  phorcys02  
+##### 5723#       发表于 2026-8-7 02:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025623&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-6 21:09</a>
+
+还有luna这个模型，真觉得好用就去用，一用一个不吱声，一群中转站贩子在里面浑水摸鱼…… ...</blockquote>
+中转站大部分都把luna屏蔽了.
+
+按某个中转站站长的:"跑40b+ token的 luna,就收入200多块, 做慈善哪"
+
+*****
+
+####  80后卢瑟  
+##### 5724#       发表于 2026-8-7 05:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70026800&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-8-7 02:50</a>
+
+中转站大部分都把luna屏蔽了.
+
+按某个中转站站长的:"跑40b+ token的 luna,就收入200多块, 做慈善哪"
+
+ ...</blockquote>
+实际上是，把 luna 当成其他模型卖更赚钱 23333
+
