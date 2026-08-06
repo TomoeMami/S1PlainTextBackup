@@ -7205,3 +7205,41 @@ A少→美影鬼
 
 哪吒和鲁智深都引入进来了。正好肤色三原色全齐，还行
 
+
+*****
+
+####  黑卷轴陶德传  
+##### 2175#       发表于 2026-8-6 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70024351&amp;ptid=2261859" target="_blank">空气先生 发表于 2026-8-6 17:14</a>
+
+这三房如果有3应该就是东方世界了。
+
+哪吒和鲁智深都引入进来了。正好肤色三原色全齐，还行 ...</blockquote>
+摩尔菲斯大战帕迈拉（中东**世界大战蒙古帝国……）
+
+*****
+
+####  巴尔干炮  
+##### 2176#       发表于 2026-8-6 17:19
+
+凯伊掌心的石头
+
+A少的披风
+
+女王的假肢
+
+蕾达的乐器
+
+这4个物品都有问题。
+
+*****
+
+####  Jabeck  
+##### 2177#       发表于 2026-8-6 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70024269&amp;ptid=2261859" target="_blank">JunkoPureFuries 发表于 2026-8-6 17:01</a>
+
+我去鲁智深穿越到火纹了</blockquote>
+这个就是跟黑皮女王打得难解难分的面具人？还有个面积女，估计都是东方来的？
+

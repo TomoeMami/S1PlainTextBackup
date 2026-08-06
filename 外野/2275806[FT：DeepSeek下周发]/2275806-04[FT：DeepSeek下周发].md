@@ -12363,3 +12363,27 @@ flash-0731已经证明了性价比不是只有国内穷哥们在乎，三句话�
 Token涨价能不能像阶梯电费一样，比如说一天用1亿以上是一个价，5亿以上是一个价，给轻度用户留一点优惠。 ...</blockquote>
 可以输入tokens阶梯~
 
+
+*****
+
+####  nxmonitor  
+##### 5556#       发表于 2026-8-6 17:19
+
+<blockquote>舞以 发表于 2026-8-6 17:05
+往好了想，v4pro会是一个真sota模型，所以梁子**方方涨价，涨完了照样杀杀杀。
+
+flash-0731已经证明了性价比 ...</blockquote>
+这个性价比太夸张了，现在没harness也是个GLM5.2的水平，这个水平的模型哪有这个价格…
+
+*****
+
+####  UmarIbnLaAhad  
+##### 5557#       发表于 2026-8-6 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70024300&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-6 17:05</a>
+
+往好了想，v4pro会是一个真sota模型，所以梁子**方方涨价，涨完了照样杀杀杀。
+
+flash-0731已经证明了性价比 ...</blockquote>
+据我观察这种纯傻逼还是小红书浓度更高一些<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
