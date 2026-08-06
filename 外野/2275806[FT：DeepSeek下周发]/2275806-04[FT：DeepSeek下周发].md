@@ -11246,3 +11246,102 @@ DS这么划算还有缓存价格特别低的原因，官方缓存价格是0.02�
 
 正在开会给公司采购的AI供应商评标，第三方厂商因为价格打不过DeepSeek官方，都不愿意自己部署提供服务<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  squallx  
+##### 5448#       发表于 2026-8-6 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70021458&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-6 09:54</a>
+
+Deepseek的手机客户端已经完全彻底流口水，没法用了，让它分别介绍一下Hermes、 reasonix、 Workbaddy、 Pi ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">7月就是流口水的了 还要什么现在才没法用。我要查QWEN3.6问版本号做视觉，他直接跟我说qwen3不是多模态模型，最难蹦的是哈基米 grok的回复一模一样 网页端只有GPT答对了
+
+*****
+
+####  KylianMbappe  
+##### 5449#       发表于 2026-8-6 10:50
+
+如果涨得多，那简单需求就用免费模型了
+
+
+*****
+
+####  nxmonitor  
+##### 5450#       发表于 2026-8-6 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70021860&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-6 10:44</a>
+
+正在开会给公司采购的AI供应商评标，第三方厂商因为价格打不过DeepSeek官方，都不愿意自己部署提供服务 ...</blockquote>
+涨100%应该都打不过，还有缓存更是没人比得上，基本都是10倍起步
+
+*****
+
+####  nxmonitor  
+##### 5451#       发表于 2026-8-6 10:51
+
+但是公司用还是DeepSeek强，因为参数小能力强，其他模型并发吞吐都比不过，Pro出来以后更明显……
+
+*****
+
+####  绝地潜兵  
+##### 5452#       发表于 2026-8-6 10:53
+
+各地的智算中心不是建立起来了么，没有移动电信的第三方部署么
+
+*****
+
+####  Buke  
+##### 5453#       发表于 2026-8-6 10:53
+
+这个月这几天蹬了46M花了2.59块，还不到一瓶快乐水钱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在是真梁圣，看看调价后滑动变阻器从梁圣往梁总滑动多少格
+
+<img src="https://files.seeusercontent.com/2026/08/06/mH9n/photo-20260806-104927.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ov_efly  
+##### 5454#       发表于 2026-8-6 10:54
+
+得优化一下缓存命中了，目前 50 多点，太低了
+
+subagent 太浪费了
+
+*****
+
+####  蛋黄酱Release  
+##### 5455#       发表于 2026-8-6 10:55
+
+qwen3.8这是塞钱了？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/06/105521ybv7v4smez49b3bq.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1785984920759_5.webp</strong> (54.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 10:55 上传
+
+<img src="https://img.stage1st.com/forum/202608/06/105521vn7pcednfyayhz0d.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1785984920860_6.webp</strong> (57.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 10:55 上传
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  酱油拌饭s  
+##### 5456#       发表于 2026-8-6 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70021837&amp;ptid=2275806" target="_blank">ArthurDent 发表于 2026-8-6 10:42</a>
+
+想白天比晚上便宜那得去大西北建数据中心吧
+
+—— 来自 Xiaomi 2112123AC, Android 13, 鹅球 v4.0-alpha ...</blockquote>
+xhs看见传言要在乌兰察布建厂
+

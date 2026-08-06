@@ -6823,3 +6823,26 @@ MD什么叫像枪的手甲，这不就是枪么</blockquote>
 
 芙托娜声音跟小苏谛斯一模一样
 
+
+*****
+
+####  kalavinka  
+##### 2140#       发表于 2026-8-6 10:53
+
+俩人cv一样都是黑泽朋世，不知道是省钱还是有什么关联<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  蓝雉  
+##### 2141#       发表于 2026-8-6 10:56
+
+<img src="https://img.stage1st.com/forum/202608/06/105617x1i5kgnqk1gvrrzn.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20260806105610.png</strong> (553.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 10:56 上传
+
