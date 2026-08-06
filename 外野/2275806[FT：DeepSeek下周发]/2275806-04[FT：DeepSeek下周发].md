@@ -12274,3 +12274,39 @@ Token涨价能不能像阶梯电费一样，比如说一天用1亿以上是一�
 我不太信，从DeepSeek V4之前拉胯的后训练来看，就是放宽对模型的约束，然后准备用驾驭软件去约束它。如 ...</blockquote>
 预览版出来的时候，harness团队才组建一个月
 
+
+*****
+
+####  小野賢章  
+##### 5547#       发表于 2026-8-6 16:24
+
+因为崔添翼是简街出来的吧，所以说有量化金融的思维，估计就是自己猜的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 5548#       发表于 2026-8-6 16:25
+
+现在v4f接入codex会出现无法派发子agent的问题，我看这个目前官方还没修复
+
+*****
+
+####  杀人鲸  
+##### 5549#       发表于 2026-8-6 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023791&amp;ptid=2275806" target="_blank">cube 发表于 2026-8-6 15:58</a>
+@绕指流光 ，感觉本楼可以改成AI 大模型应用讨论专楼。</blockquote>
+很难不支持，其实其他的AI也可以讨论一下。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  蛋黄酱Release  
+##### 5550#       发表于 2026-8-6 16:31
+
+有没有人建一个ai群<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
