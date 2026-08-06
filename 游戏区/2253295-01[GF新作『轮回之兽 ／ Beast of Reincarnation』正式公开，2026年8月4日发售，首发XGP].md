@@ -2615,3 +2615,11 @@ NPC说话期间，玩家无法和设施进行互动，太反人类了。
 
 kol的信誉从来都是待价而沽的 我说的是所有的kol
 
+
+*****
+
+####  Yidam  
+##### 539#       发表于 2026-8-6 21:58
+
+看公告怎么还有预购豪华版奖励出错，夏思源作品还在发力吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -13493,3 +13493,106 @@ https://beatrift.moonchan.xyz/  名字你鲸自己想的
 
 看了原图来源，反而不太好说真实性。
 
+
+*****
+
+####  lactone  
+##### 5668#       发表于 2026-8-6 21:54
+
+我倒是觉得如果没有flash，你说pro正式版离4.8差0.3%我真信
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  nxmonitor  
+##### 5669#       发表于 2026-8-6 21:54
+
+放低期待，先定在有K3水平……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hugosol  
+##### 5670#       发表于 2026-8-6 21:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025807&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-8-6 21:45</a>
+
+其实就怎么说呢？如果是一种基于成本的考量，所以涨价的这种情况的话，那么第三方部署只可能更贵。
+
+因为 ...</blockquote>
+我的意思是预期不用太悲观，第三方部署的成本就是涨价的上限，只要继续保持开源大家就不用太担心没有便宜好用的ai
+
+而且搞不好DS的想法也是这样的，毕竟KVCache和DSpark这些优化技术都有发论文出来，这些优化技术相信都会像稀疏门禁MOE一样逐渐成为行业标准
+
+*****
+
+####  舞以  
+##### 5671#       发表于 2026-8-6 21:56
+
+这0.3%真挺神的，我真想说服自己是真的<img src="https://static.stage1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nxmonitor  
+##### 5672#       发表于 2026-8-6 21:58
+
+Flash已经能到Opus4.8的脚了，5倍参数至少猜个K3或者Sol吧……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 5673#       发表于 2026-8-6 21:58
+
+哦，还是泼个冷水<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  当光停止  
+##### 5674#       发表于 2026-8-6 21:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梁子把大火都逼疯了
+
+
+*****
+
+####  tillnight  
+##### 5675#       发表于 2026-8-6 22:01
+
+其实这个定价大概率是指的1/100的fable，因为海外竞品的1/10-1/100，最贵也就是fable了，5.6sol估计在1/10这档。但是这不重要，1：1的fable价也是炸裂的，别忘了这是个1.6T的开源模型，有大把二道贩子数据中心如果可以卖1/4价的fable那都起飞了。<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 5676#       发表于 2026-8-6 22:02
+
+杨圣这波k3大炒作，结果不会是戏剧性的被v4proga正面碾了吧。
+不过就算没这个真假不明的ppt，我内心的期待一直是ds重回sota行列，而非之前的“性价比实验室”，毕竟r1是我的白月光，当时让我退订了gpt会员<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qz66618  
+##### 5677#       发表于 2026-8-6 22:03
+
+<img src="https://img.stage1st.com/forum/202608/06/220330jz5ter00z0we993z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (266.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 22:03 上传
+
+可信度不高
+
+*****
+
+####  wandeeees  
+##### 5678#       发表于 2026-8-6 22:05
+
+从灰测表现来看不是差不多吗<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -2426,3 +2426,11 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 傻逼蘑菇老人味啊，你骂绝对不会有人拦你<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 21289#       发表于 2026-8-6 22:03
+
+大家不觉得很诡异吗，青子从队友那里借了100宝具值，染发之后再技能全开把100宝具值还给队友，相当于什么事都没有发生，但是全部人技能都CD了。
+
