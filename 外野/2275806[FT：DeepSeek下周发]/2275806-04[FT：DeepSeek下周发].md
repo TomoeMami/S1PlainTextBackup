@@ -11878,3 +11878,64 @@ fable 刚发布那会，那个速度才叫折磨，但是做完不需要返工�
 
 有的会积极，有的就暴躁了
 
+
+*****
+
+####  aemaeth  
+##### 5508#       发表于 2026-8-6 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023103&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-6 14:12</a>
+
+和上下文没太大关系，让它查bug查久了没结果就会这样。特别情绪化
+
+这几天蹬了十几亿长上下文都没事</blockquote>
+正常，这说明你在让它做不适合它的任务，用v4f查bug不一定是个好主意，除非是那种你本身能一眼看出bug大概在什么地方，只需要简单改一改那种。但如果本身涉及屎山问题，竞态，你得小心v4f的幻觉水平是偏高的。你可能该换GLM5.2，或者干脆上Kimi或者Sol。
+
+*****
+
+####  一般市民  
+##### 5509#       发表于 2026-8-6 14:25
+
+坊间传闻Flash在逼近模型能力极限的时候就会开始哈气，看来挺真的？<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5510#       发表于 2026-8-6 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023169&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-8-6 14:25</a>
+坊间传闻Flash在逼近模型能力极限的时候就会开始哈气，看来挺真的？</blockquote>
+这一点挺容易复现的，让他自己从零写个手机APP，到debug阶段就可以看见这种哈气反应了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  serj005  
+##### 5511#       发表于 2026-8-6 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023032&amp;ptid=2275806" target="_blank">noword 发表于 2026-8-6 13:55</a>
+上下文过多了，压缩下或新开对话吧
+
+—— 来自 Xiaomi 22041211AC, Android 12, 鹅球 v4.0-alpha ...</blockquote>
+不是上下文的问题，这是正式版v4f的特色，只要是疑难bug排查很多方向无结果之后就会开始激动，之前写个安卓项目，专门新开了一次对话来查一个bug，上下文还没到15%就已经很急躁了。
+还有别人给v4f干哭了的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/06/142819ferdl8klx1fd8llv.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1785997698068_1.webp</strong> (239.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 14:28 上传
+
+
+*****
+
+####  舞以  
+##### 5512#       发表于 2026-8-6 14:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">一次完成不返工是啥美好的愿望
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

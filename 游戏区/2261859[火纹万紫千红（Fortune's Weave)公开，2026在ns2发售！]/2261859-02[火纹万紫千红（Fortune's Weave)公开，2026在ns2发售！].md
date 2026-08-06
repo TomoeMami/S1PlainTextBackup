@@ -7037,3 +7037,26 @@ MD什么叫像枪的手甲，这不就是枪么</blockquote>
 
 另外出现大苏蒂斯也很奇怪，既然确定本作是风花雪月前传，那苏蒂斯应该还是失忆萝莉才对
 
+
+*****
+
+####  巴尔干炮  
+##### 2161#       发表于 2026-8-6 14:28
+
+<img src="https://img.stage1st.com/forum/202608/06/142758og9vxsg6m1f719gu.png" referrerpolicy="no-referrer">
+
+<strong>1785991700593618.png</strong> (16.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 14:27 上传
+
+法王确认可用。
+
+*****
+
+####  kalavinka  
+##### 2162#       发表于 2026-8-6 14:29
+
+也是个枪兵<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
