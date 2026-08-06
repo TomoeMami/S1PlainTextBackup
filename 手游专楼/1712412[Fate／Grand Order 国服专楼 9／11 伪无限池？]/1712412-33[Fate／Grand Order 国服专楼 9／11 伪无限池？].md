@@ -1890,3 +1890,18 @@ ex双倍经验+四倍大成功，要喂抓紧，我是把压箱底的大火都�
 
 —— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  flyzzhj  
+##### 48054#       发表于 2026-8-6 14:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70022522&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2026-8-6 12:26</a>
+
+最近一年基本没玩过
+
+中午把所长拉到116级qp见底了
+
+现在正在补qp</blockquote>
+暴打冠位不就有QP了么，比你去打QP本还快
+

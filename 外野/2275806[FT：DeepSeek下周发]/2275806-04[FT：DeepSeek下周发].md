@@ -11968,3 +11968,14 @@ fable 刚发布那会，那个速度才叫折磨，但是做完不需要返工�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  舞以  
+##### 5515#       发表于 2026-8-6 14:52
+
+估计opencode和ds签的大单也挤占了官方的api容量<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+opencode go变相成了一种ds的订阅了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

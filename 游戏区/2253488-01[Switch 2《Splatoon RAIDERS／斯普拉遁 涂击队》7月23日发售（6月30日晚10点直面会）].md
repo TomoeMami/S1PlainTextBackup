@@ -7430,3 +7430,17 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 
 可以，我是打完100层后回去打1-3层刷满的。
 
+
+*****
+
+####  clyde-wang  
+##### 881#       发表于 2026-8-6 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023076&amp;ptid=2253488" target="_blank">Kiyohara_Yasuke 发表于 2026-8-6 14:05</a>
+100层打完了，问下不想继续爬塔的话可以通过打已经打过的关卡获得没出的宝物吗
+
+论坛助手,iPhone ...</blockquote>
+我没打完到100层就刷的差不多了<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+我就挑无限食堂第一关无脑刷，宝石，古代遗物，绝品武器反正都能掉。
+
