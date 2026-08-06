@@ -12577,3 +12577,13 @@ flash涨一倍？pro长三倍？
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  蛋黄酱Release  
+##### 5576#       发表于 2026-8-6 18:41
+
+v4f涨一倍我还是能接受的，v4p要是真有sol的级别，那不涨价估计一天就让全球蹬瘫痪了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

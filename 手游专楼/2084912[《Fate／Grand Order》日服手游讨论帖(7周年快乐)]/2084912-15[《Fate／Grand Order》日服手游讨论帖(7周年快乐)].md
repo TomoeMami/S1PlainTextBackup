@@ -2318,3 +2318,24 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 基本不玩联网游戏的我压根理解不了做一个要完结的假象有什么好骂的，尤其是现在知道还没真完结的前提下<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 21279#       发表于 2026-8-6 18:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70024870&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2026-8-6 18:29</a>
+
+基本不玩联网游戏的我压根理解不了做一个要完结的假象有什么好骂的，尤其是现在知道还没真完结的前提下 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为你玩的是氪金手游
+
+*****
+
+####  DARKGRAY  
+##### 21280#       发表于 2026-8-6 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70024952&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-6 18:43</a>
+
+因为你玩的是氪金手游</blockquote>
+所以说理解不了嘛，别说氪金手游，普通联机我都只稍微玩过一下高达无双联机刷图纸<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
