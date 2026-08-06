@@ -12759,3 +12759,38 @@ pro最多也就是规划debug难题的时候用用，真干活flash绰绰有余
 
 2026-8-6 19:34 上传
 
+
+*****
+
+####  Promeus  
+##### 5594#       发表于 2026-8-6 19:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025155&amp;ptid=2275806" target="_blank">aemaeth 发表于 2026-8-6 19:25</a>
+邮件里面这句看得我心慌，V4 Pro如果涨价高到K3那样就太可惜了，好多之前感觉可行的想法都得重新考虑了 ...</blockquote>
+前面有漏油发邮件，波峰涨价通知时也有这句话<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 5595#       发表于 2026-8-6 19:44
+
+这条声明除了说明ds在商业上还是负责的，没有其他的意思。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Milarvoz  
+##### 5596#       发表于 2026-8-6 19:44
+
+能不能峰谷反向涨价啊，真得卡洋人脖子吧。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  →熙←  
+##### 5597#       发表于 2026-8-6 19:46
+
+我是穷鬼, 快给国外访问限流, 别涨太多了, 不够用啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
