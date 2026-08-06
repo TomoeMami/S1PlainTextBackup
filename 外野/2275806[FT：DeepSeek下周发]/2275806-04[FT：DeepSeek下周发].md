@@ -13064,3 +13064,19 @@ DeepSeek V4 真的要来了，这回应该 DeepSeek V4 Pro 应该明天上 API</
 论坛助手,iPhone</blockquote>
 我意思是统一 gmt8 时区算的，不看用户时间，看北京时间    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  舞以  
+##### 5624#       发表于 2026-8-6 20:51
+
+<img src="https://img.stage1st.com/forum/202608/06/205136zeur7nerncci04v6.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (54.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 20:51 上传
+
+这图真成真了
+
