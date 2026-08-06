@@ -10895,3 +10895,69 @@ Deepseek到时候如果再解释下涨价幅度过大，已经达到了原价的
 
 感觉还是不要过于期待比较好，等他公布就行了
 
+
+*****
+
+####  奈落的孤火花  
+##### 5412#       发表于 2026-8-6 09:39
+
+猜一个涨100%<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 5413#       发表于 2026-8-6 09:39
+
+估计至少是取消峰谷，至少都要翻倍到峰价。
+
+*****
+
+####  noword  
+##### 5414#       发表于 2026-8-6 09:41
+
+涨价确实是缓解压力的方式<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  goranger  
+##### 5415#       发表于 2026-8-6 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70021310&amp;ptid=2275806" target="_blank">2017.05.04 发表于 2026-8-6 09:35</a>
+官方推荐codex
+
+在deepseek自己的harness出来之前</blockquote>
+别误导他了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  2017.05.04  
+##### 5416#       发表于 2026-8-6 09:41
+
+现在老外来蹬的太多了，南美非洲美洲欧洲都一群人来登
+
+搞得峰谷意义都不大
+
+感觉说不定直接翻一倍到两倍
+
+*****
+
+####  goranger  
+##### 5417#       发表于 2026-8-6 09:42
+
+涨100%还是可以接受的…
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  酱狐狸  
+##### 5418#       发表于 2026-8-6 09:43
+
+整体上调啊
+
+但是上调之前至少把V4ProGA端出来吧
+
