@@ -12077,3 +12077,27 @@ Token涨价能不能像阶梯电费一样，比如说一天用1亿以上是一�
 不知道你是不是认真的，如果是认真的那啥有点堪忧。水电煤可以阶梯是因为一户一表。网络账户你可以开一百 ...</blockquote>
 是的，低量优惠=给中转站送钱
 
+
+*****
+
+####  zhanglei1943  
+##### 5527#       发表于 2026-8-6 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023387&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-8-6 15:04</a>
+
+api-docs.deepseek.com/zh-cn/prompt-library/
+
+官方提示词样例</blockquote>
+难绷没有适配暗黑模式
+
+*****
+
+####  serj005  
+##### 5528#       发表于 2026-8-6 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023387&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-8-6 15:04</a>
+api-docs.deepseek.com/zh-cn/prompt-library/
+
+官方提示词样例</blockquote>
+感觉用处不大，这个更像是教完全不会用ai的人怎么和ai进行最基本的交互用的，只是个大致的参考样例，不是官方提供的最佳实践方式。
+
