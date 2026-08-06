@@ -6941,3 +6941,14 @@ MD什么叫像枪的手甲，这不就是枪么</blockquote>
 
 神威法王就不能是反派？终于等来机会转世成魔神？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ascomnet  
+##### 2152#       发表于 2026-8-6 13:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70022678&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-6 12:52</a>
+
+神威法王就不能是反派？终于等来机会转世成魔神？</blockquote>
+反派咋包饺子<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

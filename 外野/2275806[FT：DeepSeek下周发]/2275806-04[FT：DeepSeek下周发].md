@@ -11676,3 +11676,22 @@ Facebook的muse 1.2来了, 同意共享数据给Meta训练的话, 比DS 4Flash�
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nxmonitor  
+##### 5491#       发表于 2026-8-6 13:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70022853&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-6 13:22</a>
+
+不是说可以帮忙优化部署吗？</blockquote>
+只有第三方来优化部署，DeepSeek自己又不做的，所以永远达不到这个水平
+
+
+*****
+
+####  王兰花秀丽  
+##### 5492#       发表于 2026-8-6 13:31
+
+哎，感觉今天也没有了，看明天吧    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
