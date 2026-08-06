@@ -2407,3 +2407,14 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 又或者这么说，健身房办的卡代入到这个游戏顶多等于故事迎来大结局，这个确实给了，卡的服务期结束了谁管 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不好意思 已经看不懂你在说什么了。 还是不聊了
 
+
+*****
+
+####  jackyhuang  
+##### 21287#       发表于 2026-8-6 20:18
+
+每隔一段时间就会出现的“又要蘑菇死，又要给蘑菇送钱”现象<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+好像至今还没有哪个手游是因为故事讲完了寿终正寝的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
