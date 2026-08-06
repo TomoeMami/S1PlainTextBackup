@@ -11821,3 +11821,45 @@ v4f 被我蹬狂怒了，第一次见这种狂怒形态，隔一个字有一个 
 K3很慢的，如果V4PRO的速度和之前一样那还是比K3有优势</blockquote>
 是比K3有优势，但我会选择GLM5.2，因为烧不起，K3真的烧不起
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5504#       发表于 2026-8-6 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70022498&amp;ptid=2275806" target="_blank">中国人 发表于 2026-8-6 12:21</a>
+
+感觉速度变慢了，看了下之前有用过火山方舟，坛友有用火山方舟的吗，火山方舟的dsv4flash用起来咋样啊 ...</blockquote>
+不知道火山换没换正式版，不过我火山到期了没续所以没办法测了
+
+*****
+
+####  zris  
+##### 5505#       发表于 2026-8-6 14:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> 目前几个项目重构效果来说
+
+K3max glm 5.2都不错
+
+如果说在fable没用的情况下，基本就让k3和sol抓来干活了
+
+glm 5.2 debug
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有慢无所谓的，只要精准处理问题就行
+
+fable 刚发布那会，那个速度才叫折磨，但是做完不需要返工，这才没毛病
+
+*****
+
+####  crow_wine  
+##### 5506#       发表于 2026-8-6 14:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023032&amp;ptid=2275806" target="_blank">noword 发表于 2026-8-6 13:55</a>
+上下文过多了，压缩下或新开对话吧
+
+—— 来自 Xiaomi 22041211AC, Android 12, 鹅球 v4.0-alpha ...</blockquote>
+和上下文没太大关系，让它查bug查久了没结果就会这样。特别情绪化
+这几天蹬了十几亿长上下文都没事
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
