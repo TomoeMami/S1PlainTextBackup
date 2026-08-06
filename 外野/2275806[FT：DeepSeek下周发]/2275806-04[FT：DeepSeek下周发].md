@@ -12352,3 +12352,14 @@ flash-0731已经证明了性价比不是只有国内穷哥们在乎，三句话�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  bsdlxy  
+##### 5555#       发表于 2026-8-6 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023437&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-6 15:11</a>
+
+Token涨价能不能像阶梯电费一样，比如说一天用1亿以上是一个价，5亿以上是一个价，给轻度用户留一点优惠。 ...</blockquote>
+可以输入tokens阶梯~
+
