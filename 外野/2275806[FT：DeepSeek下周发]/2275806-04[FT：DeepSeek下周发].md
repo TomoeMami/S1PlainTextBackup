@@ -13982,3 +13982,16 @@ ds员工辟谣那个泄露的文件了
 
 2026-8-7 00:57 上传
 
+
+*****
+
+####  phorcys02  
+##### 5715#       发表于 2026-8-7 02:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025623&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-6 21:09</a>
+
+还有luna这个模型，真觉得好用就去用，一用一个不吱声，一群中转站贩子在里面浑水摸鱼…… ...</blockquote>
+中转站大部分都把luna屏蔽了.
+
+按某个中转站站长的:"跑40b+ token的 luna,就收入200多块, 做慈善哪"
+
