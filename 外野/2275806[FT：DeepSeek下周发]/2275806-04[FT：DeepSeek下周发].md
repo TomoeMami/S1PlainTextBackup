@@ -10739,3 +10739,67 @@ jeff dean带骨干跑路，哈基米估计彻底完蛋了。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">，是按之前峰谷定价吗，还是再进一步涨
 
+
+*****
+
+####  overflowal  
+##### 5393#       发表于 2026-8-6 09:17
+
+感觉是推理量大到他们的研究工作用的资源都要拿来跑了<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  tk553521  
+##### 5394#       发表于 2026-8-6 09:18
+
+不要啊牢梁<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2017.05.04  
+##### 5395#       发表于 2026-8-6 09:21
+
+蹬太狠了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+用户赶都赶不走.jpg
+
+*****
+
+####  子虚乌有  
+##### 5396#       发表于 2026-8-6 09:21
+
+8月初还剩两天了。
+
+*****
+
+####  王兰花秀丽  
+##### 5397#       发表于 2026-8-6 09:22
+
+涨价也好，倒是端上来啊！    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  绝地潜兵  
+##### 5398#       发表于 2026-8-6 09:22
+
+还是算力卡资源不够，不然这个价格也能回本<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  czhhws  
+##### 5399#       发表于 2026-8-6 09:22
+
+不！<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  2017.05.04  
+##### 5400#       发表于 2026-8-6 09:23
+
+赚肯定是赚，但是算力没冗余了吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+都怪美帝和菊花（
+
