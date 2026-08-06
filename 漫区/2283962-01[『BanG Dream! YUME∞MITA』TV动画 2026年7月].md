@@ -489,3 +489,41 @@ yuno倒是五个人里比较像Vtb的，相对而言吧，不知道后面会不�
 
 爆得太弱智，不过下集又有薇藤看了。
 
+
+*****
+
+####  6030sylar  
+##### 183#       发表于 2026-8-6 22:41
+
+<img src="https://img.stage1st.com/forum/202608/06/224113dpcpp8bgci5grkkc.png" referrerpolicy="no-referrer">
+
+<strong>afffbfb41cf7bf56a58b4f12b60ff148.png</strong> (35.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 22:41 上传
+
+<img src="https://img.stage1st.com/forum/202608/06/224129amsbcmimzcuufzvu.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>37e0965467da4c505fae6ed5f02c4808.jpeg</strong> (34.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 22:41 上传
+
+*****
+
+####  経緯  
+##### 184#       发表于 2026-8-6 22:41
+
+爆爆更健康啊，不爆的木柜子乐队不是好乐队
+
+这都第8集了，梦限大得先解决大伙互相不熟的问题再解决薇欧拉的问题，篇幅够用吗
+
+*****
+
+####  lucasxp  
+##### 185#       发表于 2026-8-6 22:44
+
+主人的任务都来了，还特意安排律来一句“这是我自己的选择”，编剧多少沾点变态来着
+
