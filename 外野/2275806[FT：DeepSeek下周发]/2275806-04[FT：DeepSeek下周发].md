@@ -10618,3 +10618,14 @@ flash 都到 40k 了，pro50k 应该可以
 
 昨天试了下用来汉化游戏，也不错，dsv4f去提取文字，让dsv4f主动外包给本地部署的qwen8b，再把汉化后的文字替换回去<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">一轮下来花不了几个钱
 
+
+*****
+
+####  流缨  
+##### 5380#       发表于 2026-8-6 08:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70017962&amp;ptid=2275806" target="_blank">ly4236 发表于 2026-8-5 15:44</a>
+
+啊啊啊啊啊啊</blockquote>
+硅基世界也有左转的红灯<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
