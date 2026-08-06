@@ -13809,3 +13809,19 @@ ds之前说的利润是毛利吧
 
 肥波级还行，真是0.3%那也斩杀了吧
 
+
+*****
+
+####  fat  
+##### 5699#       发表于 2026-8-6 23:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不能真打爆fable吧，规模差太远了。不能过分乐观
+
+
+*****
+
+####  UncleDracula  
+##### 5700#       发表于 2026-8-6 23:14
+
+我用flash已经够了，就这一个月估计也要两三百了，不要涨价好不好，梁仔<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
