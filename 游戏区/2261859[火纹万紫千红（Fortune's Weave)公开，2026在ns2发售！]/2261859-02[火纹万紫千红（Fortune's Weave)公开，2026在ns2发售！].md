@@ -7270,3 +7270,42 @@ A少的披风
 
 说起来，风花雪月主角莫名昏迷5年，有解释的吗？没印象了
 
+
+*****
+
+####  qiyu1234  
+##### 2181#       发表于 2026-8-6 17:48
+
+ 本帖最后由 qiyu1234 于 2026-8-6 17:51 编辑 
+
+所以包包头叫 コウカ ，黑皮大妈叫 トロイア啊
+
+<img src="https://img.stage1st.com/forum/202608/06/174812f199t3ur4zejul6u.jpg" referrerpolicy="no-referrer">
+
+<strong>9.jpg</strong> (248.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 17:48 上传
+
+<img src="https://img.stage1st.com/forum/202608/06/175109prby1ozfzn7vfbbi.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>f3872lyxwnhh1.jpeg</strong> (284.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 17:51 上传
+
+*****
+
+####  zzf111  
+##### 2182#       发表于 2026-8-6 17:49
+
+<img src="https://img.stage1st.com/forum/202608/06/174539d7pxtpq7wcxyrxlt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (488.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 17:45 上传
+

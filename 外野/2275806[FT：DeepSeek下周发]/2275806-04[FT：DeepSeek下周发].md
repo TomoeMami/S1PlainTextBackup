@@ -12395,3 +12395,24 @@ flash-0731已经证明了性价比 ...</blockquote>
 
 我现在在B站看到吹肥波、露娜甚至哈基米的嘉豪，都是从心底里支持他们的。你们都赶紧去用外国AI吧，把DeepSeek留给我蹬<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5559#       发表于 2026-8-6 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023970&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-6 16:23</a>
+预览版出来的时候，harness团队才组建一个月</blockquote>
+但是预览版很明显在后期换了后训练方式，导致能力表现的一落千丈，刚出来的时候不会出现连skill都读不完的情况。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5560#       发表于 2026-8-6 17:53
+
+我觉得再怎么涨，pro最多也就是glm那个收费水平（超过这个水平评价降低为梁子），而考虑到flash的能力，pro保底和gpt5.6平起平坐，这价格是绝对可以接受的，到时候多开几个opencode go就行了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
