@@ -12495,3 +12495,85 @@ DS发涨价邮件了，正式版马上就要出了吧，难道就是明天？</b
 发了吗？我这还没收到</blockquote>
 社区看到已经有人收到邮件了。
 
+
+*****
+
+####  Promeus  
+##### 5569#       发表于 2026-8-6 18:24
+
+<img src="https://p.sda1.dev/34/98bf299ec802f4e055838cac591cb888/image.jpg" referrerpolicy="no-referrer">
+
+好像是发了邮件，说可以退款
+
+*****
+
+####  小野賢章  
+##### 5570#       发表于 2026-8-6 18:28
+
+这个调整价格的邮件是6月29号收到的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/06/182752tdaqbdqc0mti9q9l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (193.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 18:27 上传
+
+*****
+
+####  蛋黄酱Release  
+##### 5571#       发表于 2026-8-6 18:29
+
+不会真要翻十倍吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+能不能v4f不涨价，只给v4p涨
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  88316756  
+##### 5572#       发表于 2026-8-6 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70024866&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-6 18:29</a>
+不会真要翻十倍吧
+能不能v4f不涨价，只给v4p涨</blockquote>
+那还不如说给老外涨呢，补贴国内用户得了。
+
+
+*****
+
+####  江月下  
+##### 5573#       发表于 2026-8-6 18:33
+
+v4pro涨价之后，比之前原价贵了多少呀，和kimik3、glm5.2比会更贵吗？
+
+
+*****
+
+####  舞以  
+##### 5574#       发表于 2026-8-6 18:34
+
+ 本帖最后由 舞以 于 2026-8-6 18:36 编辑 
+
+<img src="https://img.stage1st.com/forum/202608/06/183417bqr6i3vofchhctqn.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (169.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-6 18:34 上传
+
+刚刚收到了邮件，看了下，只是复读了平台的提示诶。
+
+没有明确的涨幅和涨价时间点，属于是预告的预告了。
+
+*****
+
+####  lactone  
+##### 5575#       发表于 2026-8-6 18:36
+
+flash涨一倍？pro长三倍？
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

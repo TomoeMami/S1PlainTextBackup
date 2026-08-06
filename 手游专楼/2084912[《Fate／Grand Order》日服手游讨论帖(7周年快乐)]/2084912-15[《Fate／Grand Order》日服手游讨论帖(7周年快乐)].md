@@ -2310,3 +2310,11 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 总之lxg和yls的风评再次因为这样的逆天作者大幅提升23333
 
+
+*****
+
+####  DARKGRAY  
+##### 21278#       发表于 2026-8-6 18:29
+
+基本不玩联网游戏的我压根理解不了做一个要完结的假象有什么好骂的，尤其是现在知道还没真完结的前提下<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
