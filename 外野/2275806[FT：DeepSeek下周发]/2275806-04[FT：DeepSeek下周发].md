@@ -11979,3 +11979,20 @@ opencode go变相成了一种ds的订阅了
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  不让用大写  
+##### 5516#       发表于 2026-8-6 15:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">workbuddy越来越难用了，接了中转的gpt5.6，一直卡思考中，我还以为中转的问题，点了一下停止，结果全部出来了
+
+*****
+
+####  秦南心  
+##### 5517#       发表于 2026-8-6 15:04
+
+api-docs.deepseek.com/zh-cn/prompt-library/
+
+官方提示词样例
+
