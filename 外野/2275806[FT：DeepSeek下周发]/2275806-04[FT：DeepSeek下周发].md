@@ -11996,3 +11996,43 @@ api-docs.deepseek.com/zh-cn/prompt-library/
 
 官方提示词样例
 
+
+*****
+
+####  jasoncoop  
+##### 5518#       发表于 2026-8-6 15:07
+
+workbuddy除了蹭免费混元处理点简单杂务文档文件之外简直一无是处，占资源多占体积大速度不快崩得倒是很快
+
+*****
+
+####  zypyong  
+##### 5519#       发表于 2026-8-6 15:10
+
+有什么插件可以让deepseekflash 在codex上使用增加视觉功能吗，我看别人有能用gptluna或者其他带视觉功能的模型给它当眼睛的，不知道怎么操作。
+
+*****
+
+####  来都来了  
+##### 5520#       发表于 2026-8-6 15:11
+
+Token涨价能不能像阶梯电费一样，比如说一天用1亿以上是一个价，5亿以上是一个价，给轻度用户留一点优惠。
+
+
+*****
+
+####  R.I.P  
+##### 5521#       发表于 2026-8-6 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70023424&amp;ptid=2275806" target="_blank">zypyong 发表于 2026-8-6 15:10</a>
+
+有什么插件可以让deepseekflash 在codex上使用增加视觉功能吗，我看别人有能用gptluna或者其他带视觉功能的 ...</blockquote>
+可以装个paseo，把各路provider都配置好。paseo可以给主流harness提供相比各家harness自带的发射subagent任务宽松得多的mcp（比如cc默认只能用自家的model，用paseo就能调dsv4这样的第三方模型）。你的需求就是让ds能发射带多模态的第三方模型的subagent call
+
+*****
+
+####  zypyong  
+##### 5522#       发表于 2026-8-6 15:16
+
+用了一天。deepseekflash真蛮好用的，日常开发用基本没问题了，而且速度快好多。 就是下次版本更新增加进来多模态就好了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 对于我这种喜欢截图丢进去发问题的人来说，现在太难受了。
+
