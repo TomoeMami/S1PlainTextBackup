@@ -2396,3 +2396,14 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 你怎么不说人一定会死？</blockquote>
 又或者这么说，健身房办的卡代入到这个游戏顶多等于故事迎来大结局，这个确实给了，卡的服务期结束了谁管它健身房还开不开，喷这个结局不行=健身卡服务不好那倒是能理解，但现在的看上去不是<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 21286#       发表于 2026-8-6 19:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025049&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2026-8-6 19:02</a>
+
+又或者这么说，健身房办的卡代入到这个游戏顶多等于故事迎来大结局，这个确实给了，卡的服务期结束了谁管 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不好意思 已经看不懂你在说什么了。 还是不聊了
+

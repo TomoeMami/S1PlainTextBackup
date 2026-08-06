@@ -7544,3 +7544,15 @@ A少的披风
 
 真的吗？既然官方吹成这样，那我就信你is一次吧。
 
+
+*****
+
+####  ascomnet  
+##### 2199#       发表于 2026-8-6 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70024983&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-8-6 18:50</a>
+
+真的吗？既然官方吹成这样，那我就信你is一次吧。</blockquote><blockquote>系列特有的深度战略和有魅力角色间编织的宏大故事</blockquote>
+
+吹倒算不上，看起来有自信
+

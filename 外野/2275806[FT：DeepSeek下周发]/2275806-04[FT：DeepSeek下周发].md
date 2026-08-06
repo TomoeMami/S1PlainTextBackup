@@ -12629,3 +12629,40 @@ v4f涨一倍我还是能接受的，v4p要是真有sol的级别，那不涨价�
 安心波谷，只在晚上撸管时用，</blockquote>
 美国人也在蹬，已经没有峰谷力<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 5581#       发表于 2026-8-6 19:06
+
+发邮件说明就是明天发模型了，说的是价格变动24小时前会发邮件告知，没想到这个承诺梁子还记得<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  muermaru  
+##### 5582#       发表于 2026-8-6 19:09
+
+大概率是涨10倍起了，不然不会说大幅
+
+
+*****
+
+####  Awanano  
+##### 5583#       发表于 2026-8-6 19:12
+
+DS现在这套高峰制对海外过于好了，都是按GMT8算北美15点能享受波谷价格，国内就得和人抢算力
+
+我前几个月用反重力很明显感觉北美半夜三点是智力降得最严重的时候
+
+*****
+
+####  phorcys02  
+##### 5584#       发表于 2026-8-6 19:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025088&amp;ptid=2275806" target="_blank">muermaru 发表于 2026-8-6 19:09</a>
+
+大概率是涨10倍起了，不然不会说大幅</blockquote>
+现在的flash价格,官网价格 猛猛蹬一个月最多五百到一千块. 用opencode go 两个 5美元应该是够了,不行就三个
+
+涨10倍没有coding plan真的蹬不起了.
+
