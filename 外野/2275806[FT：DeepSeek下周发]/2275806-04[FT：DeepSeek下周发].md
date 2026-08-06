@@ -12330,3 +12330,25 @@ Token涨价能不能像阶梯电费一样，比如说一天用1亿以上是一�
 
 有没有人用过 Resource2Skill，可以把说明书转换成可用的 skill
 
+
+*****
+
+####  舞以  
+##### 5553#       发表于 2026-8-6 16:58
+
+【基于梁历与世界线理论继续预测DS发布时间-哔哩哔哩】 https://b23.tv/DHlzWv8
+高僧预测<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  舞以  
+##### 5554#       发表于 2026-8-6 17:05
+
+往好了想，v4pro会是一个真sota模型，所以梁子**方方涨价，涨完了照样杀杀杀。<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+flash-0731已经证明了性价比不是只有国内穷哥们在乎，三句话不离Fable的嘉豪估计也就知乎遍地都是。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
