@@ -15727,3 +15727,68 @@ opencode这个infra团队真不好说是哪里来的，他们自己要小心点�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  tillnight  
+##### 5894#       发表于 2026-8-7 18:47
+
+挽尊倒还好，这个事情暴露的是张一鸣的殖人本色。老板不懂技术不要紧，但是跟上人家的话术了，CN模型=蒸馏=偷，说他完全不懂蒸馏大概也不太可能，那不是蠢就是坏了。<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  →熙←  
+##### 5895#       发表于 2026-8-7 18:47
+
+最有效的不找个老师教吗
+
+你要自学吗, 你知道怎么学吗
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhongjie  
+##### 5896#       发表于 2026-8-7 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70031132&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-8-7 18:40</a>
+8月6日，澎湃新闻记者从字节跳动内部人士处获悉，今年国内竞争对手开源模型的快速发展给字节跳动带来更大的 ...</blockquote>
+听起来要变成大Gemini了（）
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  秦南心  
+##### 5897#       发表于 2026-8-7 18:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">seed也就是多懂一些爽文网文概念，其他方面属实一坨
+
+
+*****
+
+####  qz66618  
+##### 5898#       发表于 2026-8-7 18:52
+
+肯定下周了啊，能中旬出来就不错了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过ds的harness好像没有gui，目前只提供cli形式
+
+*****
+
+####  cscbzcbz  
+##### 5899#       发表于 2026-8-7 18:54
+
+又要开始每周五等发新模型的循环了<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 5900#       发表于 2026-8-7 18:54
+
+现在只堆规模的做法绝对是错的，提高智能密度和堆规模完全可以一起的，信不信字节那个5T模型照样是一坨，同样的事情在百度和阿里身上都发生过…
+
+*****
+
+####  →熙←  
+##### 5901#       发表于 2026-8-7 18:54
+
+凉了,下周5见
+

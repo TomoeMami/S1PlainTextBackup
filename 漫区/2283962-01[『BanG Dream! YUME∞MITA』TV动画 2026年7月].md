@@ -928,3 +928,22 @@ yuno这么可靠怎么先退队 是不是v姐盗号了
 
 这话最牛逼的是，以前的bang大家都是玩梗，而这话让角色明牌对着初中生发情，有心人发散一下可以在现实里炎上的程度
 
+
+*****
+
+####  是谁的书画  
+##### 224#       发表于 2026-8-7 18:47
+
+不..不是高二吗…这剧里有jc吗等下<img src="https://static.stage1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">
+但是话说回来阿花蕾三人的精神状态更像小学生就是了<img src="https://static.stage1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rollingusagi  
+##### 225#       发表于 2026-8-7 18:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030947&amp;ptid=2283962" target="_blank">aptx8285144 发表于 2026-8-7 18:01</a>
+
+其实非要较真的话，薇妖这么健谈而情绪外露“也可以算阳角”，只不过我们有上帝视角知道这人很恐怖是个妖 ...</blockquote>
+nonoka那不是阳角问题啊，那就是标准的ぷりっ子，而且第二集就已经有过一次因为她糊弄观众的关系连累了藤都子，这两人的问题是相性上的矛盾，是涉及到人物底层逻辑所以水火不容的，我本来还以为这片不会展开这点讲的因为这种矛盾可不是简单就能搞定的，现在既然展开了那就看接下来的了，也没几集了，处理不好的话那观感会很糟糕的
+
