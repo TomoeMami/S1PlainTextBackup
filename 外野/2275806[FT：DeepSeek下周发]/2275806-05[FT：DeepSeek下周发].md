@@ -245,3 +245,13 @@ my-pi-package skills install mattpocock/skills
 
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 现在急需小白鼠来测试一下
 
+
+*****
+
+####  neptunehs  
+##### 5943#       发表于 2026-8-7 22:38
+
+opencode的free v4f没有2x 备胎机用来干一些小活光速用完（
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
