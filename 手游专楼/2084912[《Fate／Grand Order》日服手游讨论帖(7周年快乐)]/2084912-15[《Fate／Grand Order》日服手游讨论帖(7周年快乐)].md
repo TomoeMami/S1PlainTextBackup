@@ -2442,3 +2442,11 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 我是觉得当初这游戏终章结束后还是就这样关服了好...现在就这样一口气吊着真是有种狗尾续貂的感觉<img src="https://static.stage1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usoda  
+##### 21291#       发表于 2026-8-7 12:44
+
+菌类想关服是真的，索尼拿枪指着他头说继续写应该也是真的
+
