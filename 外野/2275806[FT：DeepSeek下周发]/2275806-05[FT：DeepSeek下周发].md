@@ -440,3 +440,15 @@ ds 在华为这供货话语权不大那在上游的芯片厂话语权肯定也�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  蛋黄酱Release  
+##### 5960#       发表于 2026-8-8 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033825&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-8-8 00:32</a>
+问题是qwen不做小尺寸了啊，3.6plus-27B最后的波纹了</blockquote>
+说是3.8要出27b，有可能还有别的尺寸
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
