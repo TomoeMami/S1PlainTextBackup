@@ -2495,3 +2495,14 @@ X1最近几年在海外有翻案倾向（剧情+系统），不过这跟我们�
 
 认真玩的话基本TOB 一择，综合来说也是TO在本世代平台上目前已经登陆的作品里相对短板少的，而且Remastered解决了原版的一些用户体验上的问题
 
+
+*****
+
+####  X9999  
+##### 239#       发表于 2026-8-7 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033545&amp;ptid=2280008" target="_blank">不灭的旋律 发表于 2026-8-7 23:29</a>
+
+既然顶上来了借帖一问，TOB REMASTER和TOX REMOSTER二选一买哪一个？作为游戏哪一个好玩？剧情上有什么雷点 ...</blockquote>
+闭着眼睛当然选TOB，TOX本身就是个半成品玩着玩着会发现。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咦？怎么就这样结束了。。
+
