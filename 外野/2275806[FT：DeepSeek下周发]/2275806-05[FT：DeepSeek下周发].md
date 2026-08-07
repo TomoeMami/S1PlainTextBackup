@@ -452,3 +452,40 @@ ds 在华为这供货话语权不大那在上游的芯片厂话语权肯定也�
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  nxmonitor  
+##### 5961#       发表于 2026-8-8 00:57
+
+怎么还吹字节了，还敢国外代工不就是擦边吗还怎么样？你看同样造芯片的平头哥还去不去代工了？前几页漏油分析是没问题啊，就这风格……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绝地潜兵  
+##### 5962#       发表于 2026-8-8 01:01
+
+唉，我草，我从字节的TRAE迁移到了OpenCode，配合0731好用得很呐，原本用的是啥玩意哦<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  脸宽  
+##### 5963#       发表于 2026-8-8 01:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70031150&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-8-7 18:44</a>
+还是夏瑾啊，前几天有更新的</blockquote>
+不知道是不是用的open code，还是什么原因感觉有点不如之前好用
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nxmonitor  
+##### 5964#       发表于 2026-8-8 01:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033895&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-8-8 01:01</a>
+
+唉，我草，我从字节的TRAE迁移到了OpenCode，配合V4F正式版好用得很呐，原本用的是啥玩意哦 ...</blockquote>
+这东西比qoder还拉，根本没法用的程度，也不知道前几个月强制员工用后面怎么了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
