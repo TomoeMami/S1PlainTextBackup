@@ -15330,3 +15330,29 @@ v4f有 glm5.2 和 opus4.8的能力
 
 按opus4.8价格计费, 一天收入能买好几套nvl72
 
+
+*****
+
+####  startraveller  
+##### 5857#       发表于 2026-8-7 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030424&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-8-7 16:28</a>
+command code 的套餐咋样</blockquote>
+好像只能在command code里面用来着
+
+*****
+
+####  小野賢章  
+##### 5858#       发表于 2026-8-7 16:41
+
+GB300 NVL72 可以部署100个实例，FP8精度整机架吞吐量27.7M tokens/s<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 5859#       发表于 2026-8-7 16:42
+
+ 本帖最后由 nxmonitor 于 2026-8-7 16:43 编辑 
+
+所以说Flash的影响力极大，对其他模型厂商都是暴击，还能毁掉一大部分B端需求，美国中小公司咬咬牙买套机器就行了，Openai急速降价可能是知道了什么，接下来就是看Pro的能力了，DS有限的算力都去部署Pro好了。
+

@@ -589,3 +589,14 @@ DL上的游戏不大了解，就玩了SIN2，请问下有没有又色口味又�
 DL上的游戏不大了解，就玩了SIN2，请问下有没有又色口味又比较轻的推荐？举例来说就是只有SIN2女主和村民的 ...</blockquote>
 300G老师的精灵勇者1和2吧，可惜2至今只有机翻
 
+
+*****
+
+####  pf67  
+##### 50#       发表于 2026-8-7 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69614041&amp;ptid=2274800" target="_blank">爱吃冻鳗的猫 发表于 2026-5-13 16:19</a>
+
+300G老师的精灵勇者1和2吧，可惜2至今只有机翻</blockquote>
+怎么现在还有纠结翻译问题的,AI已经解决一切了
+
