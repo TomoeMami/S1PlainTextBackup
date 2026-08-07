@@ -348,3 +348,12 @@ opencode使用它的客户端DeepSeek flash 额度翻倍</blockquote>
 草，必须要它的客户端吗，有没有办法在其他客户端里面用</blockquote>
 可以go套餐给api，可以随便接入，不限制平台
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 5953#       发表于 2026-8-8 00:03
+
+pro被登炸了么<img src="https://static.stage1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
+正常对话都卡了
+
