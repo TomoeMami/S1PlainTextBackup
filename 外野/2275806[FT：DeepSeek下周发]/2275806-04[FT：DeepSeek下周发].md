@@ -14176,3 +14176,30 @@ image.png
 影响要不要下手opencode go。 ...</blockquote>
 看见视频说 opencode go 说支持Response&amp;Anthropic了, 支持第三方就肯定能行
 
+
+*****
+
+####  sellboy  
+##### 5733#       发表于 2026-8-7 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70028093&amp;ptid=2275806" target="_blank">lowezack 发表于 2026-8-7 10:32</a>
+
+我现在觉得，要是会涨价就别发布了挺好，目前可没有替代flash的，但替代v4, pro的可有，想用高级模型的去用 ...</blockquote>
+思考强度会影响输出的词元量，而上一次输出是未来的输入，成本是累加的，更强的模型如果能用相对低的思考强度来干活，实现同样任务的成本并不一定会更贵。
+
+而且V4f的技能瓶颈是比较明显的，比如说V4f自己原地打转甚至发现自己在原地打转开始哭出来的情况，其实更大模型说不定就用更少的钱轻松搞定了。
+
+*****
+
+####  cscbzcbz  
+##### 5734#       发表于 2026-8-7 10:50
+
+感觉今天没戏了<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  sellboy  
+##### 5735#       发表于 2026-8-7 10:52
+
+比如说可以flash作为主模型，然后pro作为“史瓦罗先生，帮帮我”，做MCP让模型懂得开始原地打转时叫人，能叫Qwen7b干杂活，自然也能叫pro干重活。
+
