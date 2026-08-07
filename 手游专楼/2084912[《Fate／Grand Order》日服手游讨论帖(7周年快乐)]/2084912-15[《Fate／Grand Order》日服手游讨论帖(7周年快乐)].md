@@ -2450,3 +2450,16 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 菌类想关服是真的，索尼拿枪指着他头说继续写应该也是真的
 
+
+*****
+
+####  alucardcz  
+##### 21292#       发表于 2026-8-7 13:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70025958&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-8-6 22:11</a>
+
+我是觉得当初这游戏终章结束后还是直接关服了好...现在就这样一口气吊着真是有种狗尾续貂的感觉
+
+这半年多 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可太热情了 我不知道多少年都没搬空过活动商店了 不愧是欧。。皇！
+

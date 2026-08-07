@@ -493,3 +493,15 @@ m2的功耗就不适合掌上设备
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  强尼高达  
+##### 47#       发表于 2026-8-7 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70027432&amp;ptid=2287116" target="_blank">ayumizxj 发表于 2026-8-7 09:20</a>
+喷了，普通人谁会用几十张sd卡的</blockquote>
+你这说得我在家干什么非法勾当一样，什么叫普通人，什么叫不普通，买多几台游戏机算普通人吗，你在一游戏论坛说这个
+
+两台模拟器掌机，PS3 PSP PSVita DS 3DS Switch Switch 2各一台，三个家庭摄像头，三个树莓派两个国产派，联想Y700，LG G7，一台照相机，两个当U盘用的读卡器，上述每台设备里面都有插一张卡
+

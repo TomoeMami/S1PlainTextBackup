@@ -806,3 +806,16 @@ yuno这么可靠怎么先退队 是不是v姐盗号了
 
 不知道还以为这是第四集而不是剩下4集呢<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  是谁的书画  
+##### 213#       发表于 2026-8-7 13:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70029187&amp;ptid=2283962" target="_blank">plok201 发表于 2026-8-7 12:51</a>
+
+现在大伙都开始不记得这乐队5个人叫啥名字了，全靠薇姐在支撑这个破碎的家
+
+不知道还以为这是第四集而不是 ...</blockquote>
+总感觉这句话在mujica的时候也听过呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
