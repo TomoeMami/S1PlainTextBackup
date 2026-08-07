@@ -2452,3 +2452,11 @@ TOGF的限时支线的话，我的建议是
 
 圣恩怎么突然40块了？ 我也赶紧去收藏了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Xenor  
+##### 235#       发表于 2026-8-7 20:06
+
+这被子玩过最后悔的游戏就是圣恩<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">直接耗了我220+个小时，而且还没刷出个结果来，手柄按键的硅胶垫都按烂了……后悔死了，我有这时间我玩什么不好<img src="https://static.stage1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+

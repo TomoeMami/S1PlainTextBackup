@@ -15885,3 +15885,41 @@ d指导甲低是有两面性的，说白了好骗，容易骗，上官方harness
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  FACS  
+##### 5911#       发表于 2026-8-7 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70031162&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-8-7 18:47</a>
+
+听起来要变成大Gemini了（）
+
+—— 来自 HONOR AAP-AN00, Android 16, 鹅球 v4.0</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">gemini又称美国豆包
+
+*****
+
+####  Promeus  
+##### 5912#       发表于 2026-8-7 20:11
+
+字节要是真能训出来一个超级gemini也行了，总有人得承担百科全书的作用不是
+
+
+*****
+
+####  lactone  
+##### 5913#       发表于 2026-8-7 20:14
+
+字节卡最多吧？而且sd的商业模型应该跑起来了，感觉豆包这边就摆烂了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  Promeus  
+##### 5914#       发表于 2026-8-7 20:17
+
+豆包现在的说法都是在整一个5-10t的超巨型模型，就是没整明白<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
