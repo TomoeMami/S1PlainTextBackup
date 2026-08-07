@@ -2604,3 +2604,11 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 虽然但是 每天上限清体力并搬不空商店！</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说的每天上线清空体力只是指长草期啊....要搬空商店当然还要吃苹果
 
+
+*****
+
+####  qixinno1  
+##### 21304#       发表于 2026-8-7 17:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟然不是贞德
+

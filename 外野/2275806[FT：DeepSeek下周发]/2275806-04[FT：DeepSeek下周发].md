@@ -15477,3 +15477,32 @@ dsv4f 妙就妙在够小, 激活也小到只有13B.
 @龙骑士尹志平  看图片</blockquote>
 前几天Zcode上用V4F的已经比用GLM多了
 
+
+*****
+
+####  nxmonitor  
+##### 5869#       发表于 2026-8-7 17:17
+
+<blockquote>蛋黄酱Release 发表于 2026-8-7 17:14
+虽然zcode有各种bug和不完善的地方，但确实是我一直以来体感蹬deepseek最顺的agent了感觉智谱应该是做了什 ...</blockquote>
+就是GLM的架构和V3.2一样，同时都没有多模态，当然是最接近的harness
+
+*****
+
+####  小野賢章  
+##### 5870#       发表于 2026-8-7 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030720&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-7 17:15</a>
+
+前几天Zcode上用V4F的已经比用GLM多了</blockquote>
+应该是ZCode使用OpenCode Go的用户里面吧，不然OpenCode他们怎么有ZCode的数据呢
+
+*****
+
+####  noneoneone  
+##### 5871#       发表于 2026-8-7 17:21
+
+我现在在用opencode，但我有点不懂，这类不集成IDE的code agent用起来是还要配个vs code吗？
+
+没有zcode，qoder方便啊。
+
