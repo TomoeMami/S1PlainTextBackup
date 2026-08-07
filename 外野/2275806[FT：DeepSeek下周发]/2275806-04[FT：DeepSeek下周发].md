@@ -14432,3 +14432,40 @@ flash修好了
 
 不行了，剩下复杂的工作flash做不了，看它自己打转把自己都急哭了<img src="https://static.stage1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蛋黄酱Release  
+##### 5762#       发表于 2026-8-7 11:57
+
+之前说的提前24h发邮件，说明最早发布也得是今天下午六点半
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  akirt  
+##### 5763#       发表于 2026-8-7 11:58
+
+我现在拿glm做coordinator和reviewer，d4f做Coder，基本能满足我的开发需求了
+
+根本不敢想要是几年后能平价本地部署的话该有多香
+
+*****
+
+####  SmterC  
+##### 5764#       发表于 2026-8-7 11:58
+
+周末就指望PRO+Harness爽玩了，梁叔叔快动啊    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  Promeus  
+##### 5765#       发表于 2026-8-7 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70028852&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-7 11:57</a>
+之前说的提前24h发邮件，说明最早发布也得是今天下午六点半
+
+—— 来自 vivo V2405A, Android 16, 鹅球 v4. ...</blockquote>
+24小时邮件那条已经作废了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
