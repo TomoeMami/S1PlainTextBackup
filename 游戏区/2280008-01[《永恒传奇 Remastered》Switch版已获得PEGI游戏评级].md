@@ -2525,3 +2525,14 @@ X1最近几年在海外有翻案倾向（剧情+系统），不过这跟我们�
 圣恩怎么突然40块了？ 我也赶紧去收藏了</blockquote>
 请问哪个平台打折到40了？
 
+
+*****
+
+####  alucardcz  
+##### 242#       发表于 2026-8-8 01:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033965&amp;ptid=2280008" target="_blank">chaosp 发表于 2026-8-8 01:18</a>
+
+请问哪个平台打折到40了？</blockquote>
+小黑盒。。。。。。。。
+
