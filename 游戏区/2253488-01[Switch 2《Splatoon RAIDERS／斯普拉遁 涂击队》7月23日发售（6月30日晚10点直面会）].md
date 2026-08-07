@@ -7535,3 +7535,11 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 论坛助手,iPhone ...</blockquote>
 好嘞谢谢，已经在刷了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RioBone  
+##### 891#       发表于 2026-8-7 18:12
+
+零件里的强化吹飞有用吗？对大鲑鱼没效果？
+

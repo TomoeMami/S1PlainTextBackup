@@ -15603,3 +15603,18 @@ opencode go套餐应该不管你是什么agent的，不过client请求发过来�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  →熙←  
+##### 5881#       发表于 2026-8-7 18:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">快来吧, 让他移植一个项目, 各种感叹号无能狂怒
+
+*****
+
+####  nxmonitor  
+##### 5882#       发表于 2026-8-7 18:09
+
+opencode这个infra团队真不好说是哪里来的，他们自己要小心点才是毕竟在美国…
+
