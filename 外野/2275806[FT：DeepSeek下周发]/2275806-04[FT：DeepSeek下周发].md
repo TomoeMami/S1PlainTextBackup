@@ -14858,3 +14858,48 @@ opencode自己部署，那官方的是不是能不崩了</blockquote>
 据说opencode整了GB300 NVL72超节点跑DSV4F
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一般市民  
+##### 5808#       发表于 2026-8-7 15:33
+
+opencode想干啥？这是有的赚还是趁机拉客？<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aemaeth  
+##### 5809#       发表于 2026-8-7 15:33
+
+不懂就问，为什么都在关注opencode？不是还有fireworks，open router之类的吗？
+
+*****
+
+####  nxmonitor  
+##### 5810#       发表于 2026-8-7 15:34
+
+Flash这个性能会比Pro影响力还大，一个GLM5.2水平参数才300B的模型，中等公司都有能力本地部署一个并发吞吐不错的服务，会摧毁大量其他AI的市场的
+
+*****
+
+####  goranger  
+##### 5811#       发表于 2026-8-7 15:35
+
+opencode使用它的客户端DeepSeek flash 额度翻倍
+
+*****
+
+####  bixinhaner  
+##### 5812#       发表于 2026-8-7 15:36
+
+大的来了。跑分持平5.6 sol
+
+*****
+
+####  德尔惠净水器  
+##### 5813#       发表于 2026-8-7 15:37
+
+<blockquote>bixinhaner 发表于 2026-8-7 15:36
+大的来了。跑分持平5.6 sol</blockquote>
+？？？？？      
+
