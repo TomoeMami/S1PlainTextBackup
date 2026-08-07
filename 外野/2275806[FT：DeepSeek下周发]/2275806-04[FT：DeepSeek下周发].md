@@ -14546,3 +14546,32 @@ pi加dsv4f跑得飞快，想看一眼在干啥都来不及，然后基本还能�
 
 这个deepseek v4 flash太主动了。。。。。我还没和他讨论完呢，它先开始干了，每次都得我主动阻拦他
 
+
+*****
+
+####  lowezack  
+##### 5774#       发表于 2026-8-7 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=70029049&amp;amp;ptid=2275806" target="_blank">overflowal 发表于 2026-8-7 12:30</a>
+没啥意义，这玩意又不是啥核心技术。
+而且之前的大部分工具已经支持了先发的几个协议格式。，迁移很成熟  ...</blockquote>
+Harness也不是啥核心技术，为什么要搞？harness那点提升在大模型能力提升前根本不够看。<img src="https://static.stage1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
+
+Openai协议一堆乱七八糟的字段，它想加就加，自己搞个适合自己的干净协议也没什么，提供sdk给第三方集成也没不会阻碍大家用，反而更容易集成。
+
+*****
+
+####  qz66618  
+##### 5775#       发表于 2026-8-7 12:49
+
+感觉没戏了，harness还在内测呢，看见推上有人发消息了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  来都来了  
+##### 5776#       发表于 2026-8-7 12:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70029159&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-8-7 12:47</a>
+这个deepseek v4 flash太主动了。。。。。我还没和他讨论完呢，它先开始干了，每次都得我主动阻拦他 ...</blockquote>
+我连在全局提示词里都拦不住，只能强制切Plan模式
+
