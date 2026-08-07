@@ -68,3 +68,25 @@
 
 怀疑梁子和opencode的那哥们有py交易，能得到梁子手把手指导，搞不好那哥们会帮梁子搞几套rubin
 
+
+*****
+
+####  里奥哟西  
+##### 5929#       发表于 2026-8-7 21:29
+
+峰谷简直恶心，专门恶心中国人是吧？让外国人爽蹬
+
+*****
+
+####  chenyedgg  
+##### 5930#       发表于 2026-8-7 21:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70032754&amp;ptid=2275806" target="_blank">logiccat 发表于 2026-8-7 21:22</a>
+
+怎么可能，它甚至连服务用户都懒得做，会去分心做芯片吗？这种传言就是跟前段时间“华为跟长鑫闹翻”的传 ...</blockquote>
+硬件才是AI的基础，
+
+谷歌、老马、meta别看被别人嫌弃模型落后了，有这么多硬件设备的重资产优势比OAI、A/稳多了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+“花O跟长鑫闹翻”的说法我看了下和ds要做芯片的说法时间点差太久了
+

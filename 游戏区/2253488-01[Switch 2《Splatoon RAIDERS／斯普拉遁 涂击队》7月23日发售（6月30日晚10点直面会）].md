@@ -7567,3 +7567,13 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 
 背包三个都要练的
 
+
+*****
+
+####  qwased  
+##### 895#       发表于 2026-8-7 21:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70031003&amp;ptid=2253488" target="_blank">RioBone 发表于 2026-8-7 18:12</a>
+零件里的强化吹飞有用吗？对大鲑鱼没效果？</blockquote>
+只有卫星带吹飞有用，能把大鲑鱼挤下水，其他配件不需要
+
