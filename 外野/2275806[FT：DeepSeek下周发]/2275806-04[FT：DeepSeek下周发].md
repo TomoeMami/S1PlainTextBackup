@@ -14644,3 +14644,35 @@ ds也没说过自己的harness就是用的responses api啊？等发布没准出�
 
 2026-8-7 13:04 上传
 
+
+*****
+
+####  qz66618  
+##### 5783#       发表于 2026-8-7 13:10
+
+ds就这点不好，总是给一个很模糊的消息或者公告，什么七月中旬，八月初，涨价幅度较大，近期，即将什么的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  来都来了  
+##### 5784#       发表于 2026-8-7 13:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70029280&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-7 13:10</a>
+ds就这点不好，总是给一个很模糊的消息或者公告，什么七月中旬，八月初，涨价幅度较大，近期，即将什么的
+
+ ...</blockquote>
+这叫 vibe 公告<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cyberalogo  
+##### 5785#       发表于 2026-8-7 13:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70029280&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-7 13:10</a>
+ds就这点不好，总是给一个很模糊的消息或者公告，什么七月中旬，八月初，涨价幅度较大，近期，即将什么的
+
+ ...</blockquote>
+日期定得太确定，被你们约好了一起使劲蹬，一上线就给蹬爆了岂不是更难看？<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
