@@ -2700,3 +2700,11 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 明天五星枪感觉会是枪狐<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 21314#       发表于 2026-8-7 23:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">出个我有的吧 当送我俩石头了
+
