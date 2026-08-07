@@ -1944,3 +1944,16 @@ ex双倍经验+四倍大成功，要喂抓紧，我是把压箱底的大火都�
 
 这次泳装强度上是不是抽提妈池就可以了
 
+
+*****
+
+####  flyzzhj  
+##### 48059#       发表于 2026-8-7 08:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70024643&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2026-8-6 17:57</a>
+
+只打了剑冠位，狂枪都摸了，眼瞅着ex也摸了
+
+晚上冲刺一下</blockquote>
+没事没事，还有一次EX免费，问题不大
+
