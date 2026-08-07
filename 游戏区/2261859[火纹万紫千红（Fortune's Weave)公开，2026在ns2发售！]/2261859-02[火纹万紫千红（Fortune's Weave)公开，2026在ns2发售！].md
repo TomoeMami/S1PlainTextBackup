@@ -7997,3 +7997,13 @@ A少的披风
 
 发现演示的大剑斗祭花嫁女被击败也是败北条件，感觉这角色戏份不会低。
 
+
+*****
+
+####  蓝雉  
+##### 2242#       发表于 2026-8-7 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030857&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-7 17:41</a>
+发现演示的大剑斗祭花嫁女被击败也是败北条件，感觉这角色戏份不会低。</blockquote>
+能上漫画封面的肯定都是重要角色
+
