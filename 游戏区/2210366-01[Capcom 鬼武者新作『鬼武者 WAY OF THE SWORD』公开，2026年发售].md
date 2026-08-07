@@ -44,3 +44,11 @@
 
 没有更高难度么
 
+
+*****
+
+####  汪达  
+##### 688#       发表于 2026-8-7 09:53
+
+看到很多媒体评测都说简单，不会真是休闲游戏吧，来个高难度选项啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
