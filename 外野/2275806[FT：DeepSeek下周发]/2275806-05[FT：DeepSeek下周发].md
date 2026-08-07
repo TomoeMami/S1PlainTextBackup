@@ -489,3 +489,30 @@ ds 在华为这供货话语权不大那在上游的芯片厂话语权肯定也�
 唉，我草，我从字节的TRAE迁移到了OpenCode，配合V4F正式版好用得很呐，原本用的是啥玩意哦 ...</blockquote>
 这东西比qoder还拉，根本没法用的程度，也不知道前几个月强制员工用后面怎么了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Evspeed  
+##### 5965#       发表于 2026-8-8 01:10
+
+当年中美都批准了老黄收购Mellanox现在想想也是神奇，没这个的话老黄NVL72/144那些大节点内部的通信能力完全比不了华为，现在老黄优势会少一些。
+
+*****
+
+####  蛋黄酱Release  
+##### 5966#       发表于 2026-8-8 01:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033895&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-8-8 01:01</a>
+唉，我草，我从字节的TRAE迁移到了OpenCode，配合V4F正式版好用得很呐，原本用的是啥玩意哦 ...</blockquote>
+不如再试试zcode<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  舞以  
+##### 5967#       发表于 2026-8-8 01:11
+
+字节之前都吹是未来的中国谷歌，这下llm领域真是卧龙凤雏了。
+张一鸣说的批话和谷歌人员流失不好说哪个更让人难绷。
+
