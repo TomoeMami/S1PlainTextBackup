@@ -14517,3 +14517,24 @@ pi加dsv4f跑得飞快，想看一眼在干啥都来不及，然后基本还能�
 
 我一直觉得ds既然搞自己的专武了，为啥还要用openai的response协议，自己定义一套协议不香吗？提供一个sdk让第三方集成就可以了
 
+
+*****
+
+####  overflowal  
+##### 5771#       发表于 2026-8-7 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70028992&amp;ptid=2275806" target="_blank">lowezack 发表于 2026-8-7 12:22</a>
+我一直觉得ds既然搞自己的专武了，为啥还要用openai的response协议，自己定义一套协议不香吗？提供一个sdk ...</blockquote>
+没啥意义，这玩意又不是啥核心技术。
+而且之前的大部分工具已经支持了先发的几个协议格式。，迁移很成熟    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  来都来了  
+##### 5772#       发表于 2026-8-7 12:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70028992&amp;ptid=2275806" target="_blank">lowezack 发表于 2026-8-7 12:22</a>
+我一直觉得ds既然搞自己的专武了，为啥还要用openai的response协议，自己定义一套协议不香吗？提供一个sdk ...</blockquote>
+我专门问过DS，他说这是为了不设门槛，让全世界来蹬我们的AI。这个和我之前提到的国家要让全世界来用我们的AI，思路是一致的。AI这个东西可是能输出意识形态的，比以往的意识形态武器要厉害多了。
+
