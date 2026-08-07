@@ -966,3 +966,11 @@ nonoka那不是阳角问题啊，那就是标准的ぷりっ子，而且第二�
 
 第2集是都子状态不好粉丝在nnk直播间弹幕刷她，nnk才在回复后被炎上的吧，连剧里都子自己都说是她连累nnk的<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">仿佛看的不是1个第2集
 
+
+*****
+
+####  是谁的书画  
+##### 228#       发表于 2026-8-7 19:32
+
+有件事情我也整不明白，薇姐的老团也是个糊咖团，整的一帮网络暴民对着jc炎上什么的，邦邦的世界观真是闹麻了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
