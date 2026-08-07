@@ -455,3 +455,23 @@ SanDisk低端的红灰卡十年保，高端的终身保
 
 现在这玩意的价格拿给不少sbc用也挺好的，哪怕走不了nvme颗粒质量也好不少。
 
+
+*****
+
+####  Slyvan  
+##### 43#       发表于 2026-8-7 10:28
+
+这不是一开始被人说成老任为了赚黑心钱鼓捣出来的东西吗,怎么就成业界良心了 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ascomnet  
+##### 44#       发表于 2026-8-7 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70028016&amp;ptid=2287116" target="_blank">shpdw 发表于 2026-8-7 10:22</a>
+
+已经非ns2专用了，已经有oem的pc掌机也用上了。
+
+现在这玩意的价格拿给不少sbc用也挺好的，哪怕走不了nvme ...</blockquote>
+高端笔记本也开始支持了，支持的越多价格就会降下来
+

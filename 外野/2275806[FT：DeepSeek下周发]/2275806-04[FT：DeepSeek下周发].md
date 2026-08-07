@@ -14156,3 +14156,23 @@ image.png
 
 影响要不要下手opencode go。
 
+
+*****
+
+####  lowezack  
+##### 5731#       发表于 2026-8-7 10:32
+
+我现在觉得，要是会涨价就别发布了挺好，目前可没有替代flash的，但替代v4, pro的可有，想用高级模型的去用gpt sol
+
+*****
+
+####  →熙←  
+##### 5732#       发表于 2026-8-7 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70028030&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-8-7 10:25</a>
+
+现在比较想早点知道专武会不会对官方和第三方的接口有区别待遇。
+
+影响要不要下手opencode go。 ...</blockquote>
+看见视频说 opencode go 说支持Response&amp;Anthropic了, 支持第三方就肯定能行
+
