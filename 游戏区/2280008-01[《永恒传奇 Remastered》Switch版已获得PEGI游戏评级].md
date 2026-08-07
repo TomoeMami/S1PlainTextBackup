@@ -2536,3 +2536,14 @@ X1最近几年在海外有翻案倾向（剧情+系统），不过这跟我们�
 请问哪个平台打折到40了？</blockquote>
 小黑盒。。。。。。。。
 
+
+*****
+
+####  chaosp  
+##### 243#       发表于 2026-8-8 01:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033998&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-8-8 01:33</a>
+
+小黑盒。。。。。。。。</blockquote>
+谢谢，叠了盒币32拿下，买完发现忘了领极赏星球的支付券
+
