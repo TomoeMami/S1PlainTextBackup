@@ -516,3 +516,19 @@ ds 在华为这供货话语权不大那在上游的芯片厂话语权肯定也�
 字节之前都吹是未来的中国谷歌，这下llm领域真是卧龙凤雏了。
 张一鸣说的批话和谷歌人员流失不好说哪个更让人难绷。
 
+
+*****
+
+####  绝地潜兵  
+##### 5968#       发表于 2026-8-8 01:16
+
+还有更垃圾的cherry agent，联网搜索都要你消费它家的API才肯干活，绝绝子<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 5969#       发表于 2026-8-8 01:18
+
+codex让我觉得好用的还是那个桌面端，但是桌面端有严重的长时间运行之后卡爆整个电脑，必须重启的问题<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+希望dsh出来之后有好用的第三方桌面端
+

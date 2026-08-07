@@ -2514,3 +2514,14 @@ X1最近几年在海外有翻案倾向（剧情+系统），不过这跟我们�
 
 好的，趁打折还没结束就买TOB了
 
+
+*****
+
+####  chaosp  
+##### 241#       发表于 2026-8-8 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70031421&amp;ptid=2280008" target="_blank">alucardcz 发表于 2026-8-7 19:25</a>
+
+圣恩怎么突然40块了？ 我也赶紧去收藏了</blockquote>
+请问哪个平台打折到40了？
+
