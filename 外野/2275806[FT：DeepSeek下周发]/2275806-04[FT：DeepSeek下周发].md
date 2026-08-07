@@ -14387,3 +14387,48 @@ flash修好了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">我要大的我要大的
 
+
+*****
+
+####  来都来了  
+##### 5757#       发表于 2026-8-7 11:45
+
+感觉你楼群众都已经有戒断反应了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zyjzhzyh  
+##### 5758#       发表于 2026-8-7 11:47
+
+实测，大模型配合什么 agent， 也就是说配合 Codex 还是 Claude Code 还是 trae 还是 pi 还是 harmes 等）确实对 ai 的实际表现有影响
+
+比如说，Deepseek 官方文档中，提到对 Codex 最近才适配了 Response API，以前还要依赖第三方工具转换，损失就更多了，而官方文档写对 agent 的某些命令和工具也是无法响应且不会报错的
+
+比如说，我用 Codex 配合 Deepseek v4flash，大模型根据系统提示词，不知道自己是 ds，默认按照 Codex 官方工具进行调用时，可能会导致某些命令或工具调用失败但大模型自己找不到原因    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  qz66618  
+##### 5759#       发表于 2026-8-7 11:49
+
+梁子的八月初你就看吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zyjzhzyh  
+##### 5760#       发表于 2026-8-7 11:49
+
+比如说 Codex 下载 OC 点 MCP 工具去调用这个笔记软件时，有些值是无法调用的，但大模型默认按照 Codex 官方的数据，以为能调用，就会出现各种奇怪的这种错误。
+
+这样不但会浪费 token 浪费时间，大模型还不得不找其他方法，甚至可能会增加幻觉率。 
+
+这是因为在对话中，之前的错误记录总会保存下来。尤其因为 loss in middle 原理，上下文开头的错误更有可能影响到后面的步骤。所以如果一开始向量就走偏了，可能会对后期会产生巨大影响。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  crow_wine  
+##### 5761#       发表于 2026-8-7 11:49
+
+不行了，剩下复杂的工作flash做不了，看它自己打转把自己都急哭了<img src="https://static.stage1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
