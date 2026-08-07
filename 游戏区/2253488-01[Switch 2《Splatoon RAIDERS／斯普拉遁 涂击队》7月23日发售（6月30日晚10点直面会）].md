@@ -7522,3 +7522,16 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  John_Stockton  
+##### 890#       发表于 2026-8-7 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70028819&amp;ptid=2253488" target="_blank">Kiyohara_Yasuke 发表于 2026-8-7 11:52</a>
+
+我参考了楼上坛友的意见一直刷无限食堂1-3层，昨晚把宝藏刷齐了还出了不少五星绝品
+
+论坛助手,iPhone ...</blockquote>
+好嘞谢谢，已经在刷了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -14800,3 +14800,29 @@ Pro炸才叫大的要来了，除非要在两边调整资源
 
 只要不是无尽的8月就是胜利。
 
+
+*****
+
+####  zfy1989  
+##### 5801#       发表于 2026-8-7 15:08
+
+大的没有了，邮件24小时定理失效
+
+*****
+
+####  lubo  
+##### 5802#       发表于 2026-8-7 15:09
+
+opencode go限时提供V4F双倍额度，蹬不完了
+
+*****
+
+####  neptunehs  
+##### 5803#       发表于 2026-8-7 15:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70029913&amp;ptid=2275806" target="_blank">lubo 发表于 2026-8-7 15:09</a>
+opencode go限时提供V4F双倍额度，蹬不完了</blockquote>
+所以刚刚坏了一下是切换到他们自己的卡了？
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

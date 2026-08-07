@@ -837,3 +837,13 @@ yuno这么可靠怎么先退队 是不是v姐盗号了
 
 存在藤都子比大薇还癫还重的可能性吗<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 216#       发表于 2026-8-7 15:09
+
+<blockquote>暗黑能乐 发表于 2026-8-7 13:59
+别跟我扯什么大小头理论，觉得内疚的原因是开演唱会被炎上了，那不就是薇让你开的吗，结果又在那看照片流口 ...</blockquote>
+其实就是被妖精的美色脑控了，情不自禁双标了
+

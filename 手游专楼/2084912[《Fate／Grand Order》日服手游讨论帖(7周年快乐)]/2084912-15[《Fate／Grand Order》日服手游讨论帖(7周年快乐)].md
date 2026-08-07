@@ -2506,3 +2506,16 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 叶：确实做了资料并进行了说明。不过，还没到实际动手（去写代码）的阶段……照这个趋势下去，估计最后又得是我来干了。
 去看叶良树最新访谈就能看出今年计划只会比以往更乱，干脆不发剪影更好<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 21297#       发表于 2026-8-7 15:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70029414&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-7 13:36</a>
+
+可太热情了 我不知道多少年都没搬空过活动商店了 不愧是欧。。皇！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">才刚双黄的狗萌新又在说笑话了
+
+玩这游戏每天上线清体力活动搬空商店已经是和吃饭睡觉一样的惯性了....和热情不热情的真没关系
+
