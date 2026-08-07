@@ -15560,3 +15560,46 @@ opencode go套餐应该不管你是什么agent的，不过client请求发过来�
 
 真影响AGI训练了.jpg
 
+
+*****
+
+####  lactone  
+##### 5876#       发表于 2026-8-7 17:58
+
+只要opencodego的价格不变，那么最有性价比的还是这个吧，毕竟ocg真是一站式，各种价格级别的模型都有，干啥都够了
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  舞以  
+##### 5877#       发表于 2026-8-7 18:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">看起来opencode go活了，那就可以用订阅蹬了
+
+梁子的赶人计划大成功力
+
+
+*****
+
+####  Promeus  
+##### 5878#       发表于 2026-8-7 18:03
+
+话说我去看了一下，ds好像是会在晚上发新版本<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cowji  
+##### 5879#       发表于 2026-8-7 18:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">快来吧，让我周末爽爽蹬一蹬
+
+*****
+
+####  杀人鲸  
+##### 5880#       发表于 2026-8-7 18:05
+
+客户端又有一次新的更新，只不过是小版本更新的那种，并不是会强制推广的，得自己去系统商城里面更新。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
