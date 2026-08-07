@@ -69,3 +69,16 @@
 法米通的演示里还开了辅助提示，敌人身上会有按键图标<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">生怕你打不过
 大概率像pragmata一样通关后给个高难模式
 
+
+*****
+
+####  Nosgoth  
+##### 691#       发表于 2026-8-7 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70028043&amp;ptid=2210366" target="_blank">zqqwe 发表于 2026-8-7 10:27</a>
+
+法米通的演示里还开了辅助提示，敌人身上会有按键图标生怕你打不过
+
+大概率像pragmata一样通关后给个高难模 ...</blockquote>
+演示视频都是卡普空给的，这次试玩日本欧美都请了不少媒体和自媒体，就是不准录像，发视频用卡普空发的b-roll，视频里都有那个按键提示。就是不知道卡普空怎么想的，全都在说难度低到了敌人弱智的程度，自己发的视频还开着这种辅助。
+

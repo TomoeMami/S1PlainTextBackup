@@ -734,3 +734,23 @@ yuno倒是五个人里比较像Vtb的，相对而言吧，不知道后面会不�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">真几把烂啊..
 
+
+*****
+
+####  Victorino  
+##### 205#       发表于 2026-8-7 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70026039&amp;ptid=2283962" target="_blank">uji 发表于 2026-8-6 22:22</a>
+
+爆！好典型的ESFJ把INFP逼疯</blockquote>
+我感觉更像是ENFP对INFJ……
+
+中之人mbti不代表动画角色
+
+*****
+
+####  Victorino  
+##### 206#       发表于 2026-8-7 10:39
+
+本坛阴湿人比例应该不低吧，应该都能共情都子老师的心态吧，我活的开心不开心是我自己的事情不需要别人指手划脚
+
