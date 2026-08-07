@@ -15816,3 +15816,31 @@ opencode这个infra团队真不好说是哪里来的，他们自己要小心点�
 
 之前都没刷到过收到资格的，这次才有，可能这次是终测吧<img src="https://static.stage1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  passgan  
+##### 5904#       发表于 2026-8-7 19:08
+
+为啥一个harness都要藏着掖着
+
+
+*****
+
+####  舞以  
+##### 5905#       发表于 2026-8-7 19:14
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">刚刚在小红书上搜了下相关信息，我测，这里才是嘉豪嘉欣最多的地方。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  GJRstone  
+##### 5906#       发表于 2026-8-7 19:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70031293&amp;ptid=2275806" target="_blank">passgan 发表于 2026-8-7 19:08</a>
+为啥一个harness都要藏着掖着</blockquote>
+因为很容易蹬出来不该蹬的东西<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+d指导甲低是有两面性的，说白了好骗，容易骗，上官方harness后甲一定是要变厚的。以后就可能出现同一个api，官方harness接入甲厚，功能更强接口更多，手工harness有一些便利性工具不开放，需要移植但不保证效果。
+
