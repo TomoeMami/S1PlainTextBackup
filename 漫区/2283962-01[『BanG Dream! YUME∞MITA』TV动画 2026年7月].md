@@ -1008,3 +1008,16 @@ nonoka那不是阳角问题啊，那就是标准的ぷりっ子，而且第二�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  novalli  
+##### 231#       发表于 2026-8-8 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70032385&amp;ptid=2283962" target="_blank">仟音一心 发表于 2026-8-7 20:51</a>
+疯了。</blockquote>
+第一眼感觉哪里不对，看了半天发现绳子是从后背绕过来的。。。
+这都不能叫play了，这是真的狗啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

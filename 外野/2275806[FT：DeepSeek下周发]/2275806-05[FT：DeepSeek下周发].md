@@ -357,3 +357,20 @@ opencode使用它的客户端DeepSeek flash 额度翻倍</blockquote>
 pro被登炸了么<img src="https://static.stage1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 正常对话都卡了
 
+
+*****
+
+####  omnitoken  
+##### 5954#       发表于 2026-8-8 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033122&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-7 22:18</a>
+我其实不能理解，为啥不能接受国内算力就是绕不开华为这码事呢，这和菊花这个企业啥风评都没关系。
+hbm现在 ...</blockquote>
+没谁不能接受啊，泥潭消息只会嘲讽其他家说不好用
+
+但是商业采购没哪家公司会单一来源
+
+今天采购昇腾淡化nv，明年自研芯片淡化昇腾很难理解吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
