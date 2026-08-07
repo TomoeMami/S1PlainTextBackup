@@ -14903,3 +14903,101 @@ opencode使用它的客户端DeepSeek flash 额度翻倍
 大的来了。跑分持平5.6 sol</blockquote>
 ？？？？？      
 
+
+*****
+
+####  bixinhaner  
+##### 5814#       发表于 2026-8-7 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030079&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-8-7 15:37</a>
+
+？？？？？</blockquote>
+群里看到个图，但是搜了下没看到官方，可能是假的<img src="https://static.stage1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 5815#       发表于 2026-8-7 15:41
+
+把分抹了看一下格式？不知道是不是猫老板的
+
+
+*****
+
+####  nxmonitor  
+##### 5816#       发表于 2026-8-7 15:43
+
+转一下呗，这楼里也要藏着吗？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  noword  
+##### 5817#       发表于 2026-8-7 15:43
+
+15号也能算 八月初<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  秦南心  
+##### 5818#       发表于 2026-8-7 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70029985&amp;ptid=2275806" target="_blank">88316756 发表于 2026-8-7 15:24</a>
+
+应该可以缓解了吧，提价也是为了逼这些大客户自己去部署，不然都去中转官方的，那开源了个寂寞。 ...</blockquote>
+opencode是中转官网api还是跟ds官方有签算力协议啊？
+
+*****
+
+####  木谷高明  
+##### 5819#       发表于 2026-8-7 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030135&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-8-7 15:45</a>
+opencode是中转官网api还是跟ds官方有签算力协议啊？</blockquote>
+开源模型有硬件就能部署咯
+
+*****
+
+####  nxmonitor  
+##### 5820#       发表于 2026-8-7 15:46
+
+今天这个号称能斩杀flash的meta模型，各种地方都反馈很拉，遵循命令的能力太弱，说实话Flash才不像300B的模型
+
+*****
+
+####  舞以  
+##### 5821#       发表于 2026-8-7 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030135&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-8-7 15:45</a>
+
+opencode是中转官网api还是跟ds官方有签算力协议啊？</blockquote>
+opencode自称是ds的第一大客户，估计是签了批量采购协议的
+
+*****
+
+####  bixinhaner  
+##### 5822#       发表于 2026-8-7 15:47
+
+<img src="https://img.stage1st.com/forum/202608/07/154617pmq2vvryvyaxuoxx.jpg" referrerpolicy="no-referrer">
+
+<strong>Weixin Image_20260807153529_4918_8.jpg</strong> (463.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 15:46 上传
+
+实锤是假图了
+
+不过感觉这个级别应该和期望差不多
+
+*****
+
+####  zhanglei1943  
+##### 5823#       发表于 2026-8-7 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030091&amp;ptid=2275806" target="_blank">bixinhaner 发表于 2026-8-7 15:38</a>
+
+群里看到个图，但是搜了下没看到官方，可能是假的</blockquote>
+大概率就是前面那张图的二手消息
+

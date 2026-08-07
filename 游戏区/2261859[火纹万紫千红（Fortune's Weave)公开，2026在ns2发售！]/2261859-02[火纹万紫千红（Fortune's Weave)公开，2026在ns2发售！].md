@@ -7895,3 +7895,13 @@ A少的披风
 
 总感觉这作既不是前传也不是后转而是平行世界。
 
+
+*****
+
+####  shpdw  
+##### 2234#       发表于 2026-8-7 15:38
+
+给三房开了个新档回头看大头立绘还行。is的模型比阿特拉斯p5都难绷，后面不知道是谁来糊弄的结婚cg也很难绷。
+
+把我的萝莉bba苏谛斯还给我<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
