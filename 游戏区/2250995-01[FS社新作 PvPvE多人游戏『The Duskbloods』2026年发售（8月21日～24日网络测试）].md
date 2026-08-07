@@ -950,3 +950,21 @@ pvpve嗎……小高搜打撒？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">落选了，岂可休!
 
+
+*****
+
+####  myron_cloud  
+##### 103#       发表于 2026-8-7 22:19
+
+中了！
+
+<img src="https://img.stage1st.com/forum/202608/07/221947s00xs3svv9v343x8.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1786112387059_1.webp</strong> (90.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 22:19 上传
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

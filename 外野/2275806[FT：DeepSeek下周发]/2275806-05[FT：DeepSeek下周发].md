@@ -197,3 +197,27 @@ DS V4发布的时候，昇腾就直播几天了，讲解配合DS做了哪些优�
 
 其他厂商离好用真的差得远，昇腾唯一的毛病是显存小单机并发不行，其他的参数都是符合目前大模型趋势的，其他厂商集群规模上去还要绕华为专利墙
 
+
+*****
+
+####  舞以  
+##### 5940#       发表于 2026-8-7 22:18
+
+ 本帖最后由 舞以 于 2026-8-7 22:19 编辑 
+
+我其实不能理解，为啥不能接受国内算力就是绕不开华为这码事呢，这和菊花这个企业啥风评都没关系。
+hbm现在也禁运，你哪怕愿意自己设计逻辑部分，也拿到了代工产能，内存部分不还是得采购菊花的？
+
+**，论坛助手怎么瞎逼附带图片啊，好恶心
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+img_7055.jpeg
+(593.9 KB, 下载次数: )
+
+下载附件
+
+2026-8-7 21:46 上传
+
+<img src="https://img.stage1st.com/forum/202608/07/214605utdytvpwnnq6p93d.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
