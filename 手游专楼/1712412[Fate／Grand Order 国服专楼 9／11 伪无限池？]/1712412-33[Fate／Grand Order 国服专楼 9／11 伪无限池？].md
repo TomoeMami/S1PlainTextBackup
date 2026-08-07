@@ -1957,3 +1957,13 @@ ex双倍经验+四倍大成功，要喂抓紧，我是把压箱底的大火都�
 晚上冲刺一下</blockquote>
 没事没事，还有一次EX免费，问题不大
 
+
+*****
+
+####  khxooo  
+##### 48060#       发表于 2026-8-7 09:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70026482&amp;ptid=1712412" target="_blank">sandro 发表于 2026-8-6 23:46</a>
+这次泳装强度上是不是抽提妈池就可以了</blockquote>
+如果骑介戴冠战没什么打手，可以考虑抽高宝飞嫂
+
