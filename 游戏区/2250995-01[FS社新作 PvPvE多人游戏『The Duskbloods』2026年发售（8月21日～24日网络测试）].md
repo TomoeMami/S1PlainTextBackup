@@ -912,3 +912,18 @@ pvpve嗎……小高搜打撒？
 
 确定资格了，自己上去看看吧[https://campaign.theduskbloods.jp/p/event/networktest/mypage](https://campaign.theduskbloods.jp/p/event/networktest/mypage)
 
+
+*****
+
+####  陆久舟  
+##### 98#       发表于 2026-8-7 21:06
+
+好耶，中了
+
+*****
+
+####  u2deack  
+##### 99#       发表于 2026-8-7 21:09
+
+中倒是中了 到时候先玩玩看吧
+
