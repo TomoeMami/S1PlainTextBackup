@@ -920,3 +920,11 @@ yuno这么可靠怎么先退队 是不是v姐盗号了
 <img src="https://iili.io/CrjHjBS.jpg" referrerpolicy="no-referrer">
 <img src="https://iili.io/CrhEM4p.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lucasxp  
+##### 223#       发表于 2026-8-7 18:40
+
+这话最牛逼的是，以前的bang大家都是玩梗，而这话让角色明牌对着初中生发情，有心人发散一下可以在现实里炎上的程度
+
