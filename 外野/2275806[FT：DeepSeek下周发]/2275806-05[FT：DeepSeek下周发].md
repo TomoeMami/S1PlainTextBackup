@@ -290,3 +290,11 @@ opencode的free v4f没有2x 备胎机用来干一些小活光速用完（
 
 dsv4在scaling这么激进的推稀疏，和更多家的线性注意力确实不一样
 
+
+*****
+
+####  舞以  
+##### 5947#       发表于 2026-8-7 23:16
+
+我艹了，gpt给免费用户开放对话限额，搞得我这种订阅用户的5.6sol xhigh感觉明显降智了，之前都用极高的，现在必须更多用pro了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

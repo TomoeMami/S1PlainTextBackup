@@ -2692,3 +2692,11 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 90*肯定不行就是
 
+
+*****
+
+####  khxooo  
+##### 21313#       发表于 2026-8-7 23:15
+
+明天五星枪感觉会是枪狐<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
