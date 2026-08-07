@@ -15931,3 +15931,45 @@ d指导甲低是有两面性的，说白了好骗，容易骗，上官方harness
 
 字节跳动内部对开源模型严禁蒸馏 的题眼原来不是“开源”吗，开源国模充耳不闻，闭源模型应抄尽抄。我以为豆包只要做到最下沉的产品就好了，模型性能也不需要最强，就好像微信也不是最好用的IM一样
 
+
+*****
+
+####  squallx  
+##### 5916#       发表于 2026-8-7 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70031132&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-8-7 18:40</a>
+
+8月6日，澎湃新闻记者从字节跳动内部人士处获悉，今年国内竞争对手开源模型的快速发展给字节跳动带来更大的 ...</blockquote>
+不愧是豆包 这么容易就被A/注入式攻击语义污染了 当初还好上面给这殖人打了个膝盖锁
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5917#       发表于 2026-8-7 20:55
+
+<img src="https://img.stage1st.com/forum/202608/07/205534illjlqjvkjfaqnf9.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1786107333604_2.webp</strong> (108.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 20:55 上传
+
+傻逼豆包，你生成你妈呢<img src="https://static.stage1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  aemaeth  
+##### 5918#       发表于 2026-8-7 20:56
+
+<img src="https://img.stage1st.com/forum/202608/07/205636a6tril6yd9eeb66t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 20:56 上传
+
