@@ -7512,3 +7512,13 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 
 感觉改成绝品速度武器加射速，绝品力量类武器加dps，绝品技术武器减配件冷却时间还差不多
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 889#       发表于 2026-8-7 14:10
+
+这金鲑鱼图鉴要30只是认真的吗，本来还想着宝藏刷完了顺带把图鉴也做一下<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+

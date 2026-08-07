@@ -2471,3 +2471,11 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 <img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">忍不住就是想抽卡 结果抽了二宝山中小登 话说今年是不是没剪影啊因为月球春晚是纯播片来着
 
+
+*****
+
+####  qixinno1  
+##### 21294#       发表于 2026-8-7 14:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">欧狗的烦恼 只有我连一宝都没抽到了是吧
+
