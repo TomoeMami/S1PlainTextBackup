@@ -14262,3 +14262,77 @@ ds炸了？正好我主机也炸了https://stage1st.com/2b/thread-2287208-0-1.ht
 
 2026-8-7 11:02 上传
 
+
+*****
+
+####  rachepatty  
+##### 5742#       发表于 2026-8-7 11:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+还不如富哥们儿们集资些卡给 DS 作为同价值词元的充值和优先权呢，但通常富哥们儿们自己直接自用了不是<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  龙骑士尹志平  
+##### 5743#       发表于 2026-8-7 11:07
+
+大的真的药来了吗？
+
+*****
+
+####  czhhws  
+##### 5744#       发表于 2026-8-7 11:09
+
+flash修好了
+就Pro的API和APP/网页还没好。那估计真是大的来了<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  nxmonitor  
+##### 5745#       发表于 2026-8-7 11:10
+
+大的又没了，说不定就是被蹬爆了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  madnesshare  
+##### 5746#       发表于 2026-8-7 11:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">你们要不要这么自己吓自己
+
+*****
+
+####  Milarvoz  
+##### 5747#       发表于 2026-8-7 11:11
+
+全恢复了，大的又走了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  cscbzcbz  
+##### 5748#       发表于 2026-8-7 11:12
+
+全部恢复了<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  平贺才人  
+##### 5749#       发表于 2026-8-7 11:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每天就看一堆人在这哀嚎大的来了又走了
+手游区有个专楼标题用在这楼感觉超合适
+
+*****
+
+####  cyberalogo  
+##### 5750#       发表于 2026-8-7 11:13
+
+大的就这！.jpg<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
