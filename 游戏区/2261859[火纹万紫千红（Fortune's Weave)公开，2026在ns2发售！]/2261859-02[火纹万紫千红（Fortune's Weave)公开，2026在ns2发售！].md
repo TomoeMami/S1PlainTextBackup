@@ -7905,3 +7905,11 @@ A少的披风
 
 把我的萝莉bba苏谛斯还给我<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 2235#       发表于 2026-8-7 15:51
+
+我觉得是平行世界前传，实际上这系列从来就没在同一条线上过，先不提贝老师没上班的无双if，就连狼班dlc的剧情也不是同一条世界线，当时我感觉狼班dlc的剧情接着写下去的话搞不好可以三班和谐大团圆
+

@@ -15001,3 +15001,95 @@ opencode自称是ds的第一大客户，估计是签了批量采购协议的
 群里看到个图，但是搜了下没看到官方，可能是假的</blockquote>
 大概率就是前面那张图的二手消息
 
+
+*****
+
+####  Promeus  
+##### 5824#       发表于 2026-8-7 15:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030168&amp;ptid=2275806" target="_blank">zhanglei1943 发表于 2026-8-7 15:47</a>
+大概率就是前面那张图的二手消息</blockquote>
+纯gpt跑的假图<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绝地潜兵  
+##### 5825#       发表于 2026-8-7 15:48
+
+有个第三方部署V4P是输入12，输出24，缓存1元
+
+和GLM5.2差不多价格，看看梁仔会不会接近这个价格了
+
+*****
+
+####  舞以  
+##### 5826#       发表于 2026-8-7 15:49
+
+哇，还有造假药环节么<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛋黄酱Release  
+##### 5827#       发表于 2026-8-7 15:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我还以为更新了
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  nxmonitor  
+##### 5828#       发表于 2026-8-7 15:50
+
+这个一眼假图，Qwen的真实性能根本不应该出现，这个位置放K3才对
+
+*****
+
+####  nxmonitor  
+##### 5829#       发表于 2026-8-7 15:51
+
+还有下面直接出现了Pro和Fash-Preview参数一致的说法……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  david5515  
+##### 5830#       发表于 2026-8-7 15:52
+
+有预感这个假图马上会出现在各个群里了
+
+*****
+
+####  nxmonitor  
+##### 5831#       发表于 2026-8-7 15:54
+
+我觉得真正的图里这个位置应该写着Pro经过了重新训练才对，不然也不用在Flash里说一句只做了后训练了……
+
+*****
+
+####  cscbzcbz  
+##### 5832#       发表于 2026-8-7 15:54
+
+大家都要被逼疯了<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  果壳中的松鼠  
+##### 5833#       发表于 2026-8-7 15:56
+
+跟玩上手游一样，什么时候开始有内鬼爆料和内测削弱环节<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  nxmonitor  
+##### 5834#       发表于 2026-8-7 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030231&amp;ptid=2275806" target="_blank">果壳中的松鼠 发表于 2026-8-7 15:56</a>
+
+跟玩上手游一样，什么时候开始有内鬼爆料和内测削弱环节
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+不是早就有了，国外模型各种提前“泄露”，国内也有说什么时候上的
+
