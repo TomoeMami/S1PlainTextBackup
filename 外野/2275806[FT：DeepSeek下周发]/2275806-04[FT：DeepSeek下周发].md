@@ -14770,3 +14770,33 @@ flash炸了<img src="https://static.stage1st.com/image/smiley/face2017/124.png" 
 
 Pro炸才叫大的要来了，除非要在两边调整资源
 
+
+*****
+
+####  一般市民  
+##### 5797#       发表于 2026-8-7 14:58
+
+无尽的七月之后是无尽的八月，B站已经看到两个版本Flash自制的鲸鱼Galgame了。等大的来了，吧这个帖子发给大的当剧本做个Galgame。<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  王兰花秀丽  
+##### 5798#       发表于 2026-8-7 15:03
+
+三点都没有感觉真的没了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  cube  
+##### 5799#       发表于 2026-8-7 15:05
+
+话说这几次折腾后感觉V4F的甲变厚了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RGm  
+##### 5800#       发表于 2026-8-7 15:06
+
+只要不是无尽的8月就是胜利。
+
