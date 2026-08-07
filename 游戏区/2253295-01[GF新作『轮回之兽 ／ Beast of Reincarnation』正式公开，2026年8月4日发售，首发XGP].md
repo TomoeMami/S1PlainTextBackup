@@ -2711,3 +2711,16 @@ ikgn说的那个战斗系统后期变成即时放技能动画的回合制还挺�
 
 金牛到底是哪个傻逼设计出来的，操他全家
 
+
+*****
+
+####  杀仁老登  
+##### 548#       发表于 2026-8-8 00:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033674&amp;ptid=2253295" target="_blank">螺旋的小夜曲 发表于 2026-8-8 00:00</a>
+
+金牛到底是哪个傻逼设计出来的，操他全家。
+
+多动症就不说了，见得多了；把他束缚到地上，贴脸四刀竟然还能 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打娃娃鱼的时候就经常时停打空了
+

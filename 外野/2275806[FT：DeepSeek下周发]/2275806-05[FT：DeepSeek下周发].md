@@ -412,3 +412,31 @@ ds 在华为这供货话语权不大那在上游的芯片厂话语权肯定也�
 
 哪个真想异构等着瞧好了，过去云搞个异构等彻底搞好两三年过去了，现在这些厂商甚至交换机都隔离了，反正麻烦都在运维这边，不是业务的事情是吧？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  此誓的守望  
+##### 5958#       发表于 2026-8-8 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033363&amp;ptid=2275806" target="_blank">med 发表于 2026-8-7 22:58</a>
+
+每家都有自己独到的技术，qwen小尺寸多模态仅此一家，基本成本YOLO这一类网络的上位替代，感谢qwen团队赏饭 ...</blockquote>
+问题是qwen不做小尺寸了啊，3.6plus-27B最后的波纹了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  omnitoken  
+##### 5959#       发表于 2026-8-8 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033789&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-8-8 00:22</a>
+你自研芯片也得有 fab 给你产啊
+
+ds 在华为这供货话语权不大那在上游的芯片厂话语权肯定也不大 产线估计都 ...</blockquote>
+字节的推理芯片目标是今年Q4量产10W片级别
+
+三棒代工
+
+至于为啥能找三棒大家都默契不提
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
