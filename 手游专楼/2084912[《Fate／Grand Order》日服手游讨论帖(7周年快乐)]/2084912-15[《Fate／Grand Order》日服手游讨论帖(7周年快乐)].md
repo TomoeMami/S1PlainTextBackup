@@ -2479,3 +2479,12 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">欧狗的烦恼 只有我连一宝都没抽到了是吧
 
+
+*****
+
+####  岸浪白野  
+##### 21295#       发表于 2026-8-7 14:41
+
+还没习惯流汗就完事了看蘑菇每年经典爆典环节吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+明面说想关服是8年前2018年的想法，之前也不可否认也给自己带来了财富和很多人的饭碗在这，骂他就行不用真被气到<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
