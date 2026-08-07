@@ -14676,3 +14676,29 @@ ds就这点不好，总是给一个很模糊的消息或者公告，什么七月
  ...</blockquote>
 日期定得太确定，被你们约好了一起使劲蹬，一上线就给蹬爆了岂不是更难看？<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 5786#       发表于 2026-8-7 13:17
+
+要我说真不用死等harness，先把模型拿出来也可以，flash正式版没专属harness大伙也没觉得差很多啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  hugosol  
+##### 5787#       发表于 2026-8-7 13:19
+
+肯定是统一api协议比较好，工具调用之类的训练语料不知道会不会有影响
+
+不然就走向苹果那种弱智封闭路线了，从文件系统到充电线都要搞自己的规范，大家都怨声载道
+
+*****
+
+####  GJRstone  
+##### 5788#       发表于 2026-8-7 13:19
+
+开源就是倾销，倾销产品和倾销标准是一回事吗，倾销再多光栅显卡光追加速也比不上cuda标准一根毛啊
+
