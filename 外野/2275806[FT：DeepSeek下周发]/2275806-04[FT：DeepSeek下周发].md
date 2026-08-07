@@ -15844,3 +15844,44 @@ opencode这个infra团队真不好说是哪里来的，他们自己要小心点�
 因为很容易蹬出来不该蹬的东西<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 d指导甲低是有两面性的，说白了好骗，容易骗，上官方harness后甲一定是要变厚的。以后就可能出现同一个api，官方harness接入甲厚，功能更强接口更多，手工harness有一些便利性工具不开放，需要移植但不保证效果。
 
+
+*****
+
+####  novalli  
+##### 5907#       发表于 2026-8-7 19:39
+
+增加时区切换大概是因为国外用的太多了，不好一个个自己换算时区吧。不过我看也只有两个选项啊。
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  lowezack  
+##### 5908#       发表于 2026-8-7 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=70031293&amp;amp;ptid=2275806" target="_blank">passgan 发表于 2026-8-7 19:08</a>
+为啥一个harness都要藏着掖着</blockquote>
+因为目前做的不成熟，需要低调内侧，找bug完善。如果放出来万一是一坨屎，舆论影响太不好了。
+
+参考下华为的仓颉语言，刚开始也是要签保密协议，小范围内侧
+
+*****
+
+####  小野賢章  
+##### 5909#       发表于 2026-8-7 19:41
+
+不是传闻扩展性非常强吗，可能是要调整调整默认设置之类的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，如果是pi那种风格的，总不能只有4个工具就发布吧
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5910#       发表于 2026-8-7 19:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70031563&amp;ptid=2275806" target="_blank">lowezack 发表于 2026-8-7 19:40</a>
+因为目前做的不成熟，需要低调内侧，找bug完善。如果放出来万一是一坨屎，舆论影响太不好了。
+
+参考下华 ...</blockquote>
+驾驭软件bug找不完的
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
