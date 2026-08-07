@@ -255,3 +255,26 @@ opencode的free v4f没有2x 备胎机用来干一些小活光速用完（
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  noneoneone  
+##### 5944#       发表于 2026-8-7 22:47
+
+如果梁子和opencode真的有勾当，帮opencode优化，是不是可以反过来把官方分流到opencode的服务器上。
+
+反正他也不稀罕那点用户，opencode又不会被卡。
+
+*****
+
+####  ml1642879  
+##### 5945#       发表于 2026-8-7 22:52
+
+我让大肥鱼生成一个他自己名字的ASCII艺术字，他跑了五分钟写了个Claude。
+
+我让豆包生成，他给我一段乱码。
+
+你们还是二进制吗，真不是东西😭
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
+

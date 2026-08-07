@@ -2682,3 +2682,13 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 哪怕强化后也一样
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  乾理央  
+##### 21312#       发表于 2026-8-7 22:51
+
+水提+卑弥呼基本能做到带条狗都能脚打90++了吧，而且还是无视发牌那种，
+
+90*肯定不行就是
+
