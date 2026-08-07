@@ -15506,3 +15506,41 @@ dsv4f 妙就妙在够小, 激活也小到只有13B.
 
 没有zcode，qoder方便啊。
 
+
+*****
+
+####  舞以  
+##### 5872#       发表于 2026-8-7 17:26
+
+我们都是纯vibe的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+我的VSCode都是拿来改json用的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  蛋黄酱Release  
+##### 5873#       发表于 2026-8-7 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030731&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-7 17:17</a>
+就是GLM的架构和V3.2一样，同时都没有多模态，当然是最接近的harness</blockquote>
+还在预览版的时候我就发现v4在zcode里面指令遵循更好一点，而且缓存命中明明白白显示在下面看着很爽<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+虽然我很喜欢ide agent那种随时可以修改和运行文件的设计，现在市面上这种仿codex设计的agent总是不能随手修改和一键运行程序就很烦，还得再开一个vscode
+原本trae这种用得就很舒服，但是trae现在的agent能力实在是太拉了
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  hugosol  
+##### 5874#       发表于 2026-8-7 17:33
+
+ 本帖最后由 hugosol 于 2026-8-7 17:36 编辑 
+
+dax发的应该是opencode go从LLM API返回拿到的统计数据，缓存命中什么的都可以返回来自己算的
+
+opencode go套餐应该不管你是什么agent的，不过client请求发过来的时候有标记agent类型就能统计出来，不知道zcode也很正常
+
+老实说上面98%以上的应该都差距不大，不过ClaudeCode这个89%也差得太多了，我估计是每轮对话的user_message前都要塞一堆乱七八糟的提示词才会有这种明显的差距<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
