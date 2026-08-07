@@ -2463,3 +2463,11 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 这半年多 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可太热情了 我不知道多少年都没搬空过活动商店了 不愧是欧。。皇！
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 21293#       发表于 2026-8-7 14:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">忍不住就是想抽卡 结果抽了二宝山中小登 话说今年是不是没剪影啊因为月球春晚是纯播片来着
+

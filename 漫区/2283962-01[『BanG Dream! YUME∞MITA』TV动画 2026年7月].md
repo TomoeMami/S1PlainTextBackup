@@ -819,3 +819,13 @@ yuno这么可靠怎么先退队 是不是v姐盗号了
 不知道还以为这是第四集而不是 ...</blockquote>
 总感觉这句话在mujica的时候也听过呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 214#       发表于 2026-8-7 13:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别跟我扯什么大小头理论，觉得内疚的原因是开演唱会被炎上了，那不就是薇让你开的吗，结果又在那看照片流口水，自我矛盾还能共情我是不太理解
+
+—— 来自 HONOR BVL-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

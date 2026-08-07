@@ -14719,3 +14719,20 @@ flash 用 OpenCode 实力仍然强悍，完全不需特殊 Harness；也许 pro 
 
 当然这个事情之前只有A和O两家有做过，就看DeepSeek有没有这个能力了
 
+
+*****
+
+####  cscbzcbz  
+##### 5791#       发表于 2026-8-7 14:05
+
+没有动静了，得下周了吧<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  goranger  
+##### 5792#       发表于 2026-8-7 14:06
+
+大的来了？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
