@@ -374,3 +374,41 @@ hbm现在 ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  13号  
+##### 5955#       发表于 2026-8-8 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033223&amp;ptid=2275806" target="_blank">80后卢瑟 发表于 2026-8-7 22:34</a>
+
+https://github.com/ipfans/my-pi-package
+
+做了一个 pi 的一键安装工具，可以帮助你安装一些最佳实践的扩 ...</blockquote>
+没有恶意。 但是我都用pi了， 啥我不会自己搞定啊， 搞不定我直接打开pi让他自己给我推荐工具自己装上了。
+
+*****
+
+####  Rowen233  
+##### 5956#       发表于 2026-8-8 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033730&amp;ptid=2275806" target="_blank">omnitoken 发表于 2026-8-8 00:10</a>
+
+没谁不能接受啊，泥潭消息只会嘲讽其他家说不好用
+
+但是商业采购没哪家公司会单一来源</blockquote>
+你自研芯片也得有 fab 给你产啊
+
+ds 在华为这供货话语权不大那在上游的芯片厂话语权肯定也不大 产线估计都被其他家芯片包了
+
+为了供应链稳定也没法大量下海外代工产能
+
+这不是自研芯片能解决的问题<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">只能等国产供应链啥时候成熟
+
+*****
+
+####  nxmonitor  
+##### 5957#       发表于 2026-8-8 00:24
+
+哪个真想异构等着瞧好了，过去云搞个异构等彻底搞好两三年过去了，现在这些厂商甚至交换机都隔离了，反正麻烦都在运维这边，不是业务的事情是吧？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
