@@ -14736,3 +14736,21 @@ flash 用 OpenCode 实力仍然强悍，完全不需特殊 Harness；也许 pro 
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  neptunehs  
+##### 5793#       发表于 2026-8-7 14:18
+
+怎么opencode go又不稳定了？<img src="https://p.sda1.dev/34/f7f08a8ab084927bdeb0202cd700b9c2/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  王兰花秀丽  
+##### 5794#       发表于 2026-8-7 14:23
+
+oc go炸了，但是和大的没什么关系吧    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

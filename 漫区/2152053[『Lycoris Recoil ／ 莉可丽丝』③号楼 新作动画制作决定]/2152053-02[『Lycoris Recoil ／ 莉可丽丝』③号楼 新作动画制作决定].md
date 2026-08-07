@@ -83,3 +83,21 @@
 
 <img src="https://p.sda1.dev/34/03b84e9a8ef7df84802c14b9d55c36ff/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 2518#       发表于 2026-8-7 14:23
+
+[https://x.com/kadokawastore/stat ... 5cyrbO-qaW-wIj392nQ](https://x.com/kadokawastore/status/2085562124529742259?s=46&amp;t=9dD5cyrbO-qaW-wIj392nQ)
+
+<img src="https://img.stage1st.com/forum/202608/07/142120ya83eleb1byb2q28.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2460.jpeg</strong> (333.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 14:21 上传
+
+大正浪漫？4K的文件太大<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
