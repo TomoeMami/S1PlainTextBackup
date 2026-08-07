@@ -99,3 +99,15 @@
 《鬼武者 剑之道》跟开发团队在京都巡礼 连清水寺地板数量都完美还原
 [https://weibo.com/ttarticle/x/m/show#/id=2309405329227296931926](https://weibo.com/ttarticle/x/m/show#/id=2309405329227296931926)
 
+
+*****
+
+####  zqqwe  
+##### 694#       发表于 2026-8-7 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70028160&amp;ptid=2210366" target="_blank">Nosgoth 发表于 2026-8-7 10:40</a>
+演示视频都是卡普空给的，这次试玩日本欧美都请了不少媒体和自媒体，就是不准录像，发视频用卡普空发的b- ...</blockquote>
+主要还是目前演示里杂兵又蠢又脆，给人感觉就是跑图期间强行拖时间用的，单发一闪只有单体判定也放大了问题。
+另外这次首发多平台要考虑到帧数不稳定的设备，各种反击判定不太可能像旧作一样极限几帧了，在我看来是好事。
+之前担心主动攻击的系统比较单调，新演示里手部觉醒能融入战斗比较惊喜，看技能树还有变身专用的一页，还是等发售后看了完整系统再决定买不买<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

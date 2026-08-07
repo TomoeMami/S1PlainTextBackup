@@ -483,3 +483,13 @@ SanDisk低端的红灰卡十年保，高端的终身保
 
 这玩意儿功耗比m2低太多了，天然适合便携设备
 
+
+*****
+
+####  snarc1  
+##### 46#       发表于 2026-8-7 10:57
+
+m2的功耗就不适合掌上设备
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

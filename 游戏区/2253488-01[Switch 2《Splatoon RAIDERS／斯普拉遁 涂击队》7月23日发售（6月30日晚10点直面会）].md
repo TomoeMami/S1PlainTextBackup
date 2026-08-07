@@ -7479,3 +7479,14 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 看了前面几楼的讨论，我也想问一下：通关后只要一直打食堂就可以攒齐所有宝藏是吗？不管是打多少层都可以， ...</blockquote>
 是看运气，一只打下去或者回去打低层都会出
 
+
+*****
+
+####  John_Stockton  
+##### 886#       发表于 2026-8-7 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70028283&amp;ptid=2253488" target="_blank">otakun 发表于 2026-8-7 10:55</a>
+
+是看运气，一只打下去或者回去打低层都会出</blockquote>
+明白了多谢！
+

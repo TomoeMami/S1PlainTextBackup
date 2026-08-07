@@ -14203,3 +14203,62 @@ image.png
 
 比如说可以flash作为主模型，然后pro作为“史瓦罗先生，帮帮我”，做MCP让模型懂得开始原地打转时叫人，能叫Qwen7b干杂活，自然也能叫pro干重活。
 
+
+*****
+
+####  nxmonitor  
+##### 5736#       发表于 2026-8-7 10:54
+
+APP的专家模式似乎在繁忙了？
+
+*****
+
+####  czhhws  
+##### 5737#       发表于 2026-8-7 10:55
+
+ 本帖最后由 czhhws 于 2026-8-7 10:59 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">API炸了，还是两个，要来了吗
+专家模式也炸了
+
+—— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  cscbzcbz  
+##### 5738#       发表于 2026-8-7 10:55
+
+刚说没戏了，结果性能下降了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  王兰花秀丽  
+##### 5739#       发表于 2026-8-7 10:56
+
+性能下降，大的，来了！<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  squallx  
+##### 5740#       发表于 2026-8-7 11:02
+
+ds炸了？正好我主机也炸了https://stage1st.com/2b/thread-2287208-0-1.html <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  小野賢章  
+##### 5741#       发表于 2026-8-7 11:02
+
+全部中断
+
+<img src="https://img.stage1st.com/forum/202608/07/110216sz58aa3xa03bobvo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (107.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 11:02 上传
+
