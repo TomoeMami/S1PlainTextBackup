@@ -532,3 +532,16 @@ ds 在华为这供货话语权不大那在上游的芯片厂话语权肯定也�
 codex让我觉得好用的还是那个桌面端，但是桌面端有严重的长时间运行之后卡爆整个电脑，必须重启的问题<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 希望dsh出来之后有好用的第三方桌面端
 
+
+*****
+
+####  蜇灵  
+##### 5970#       发表于 2026-8-8 01:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033596&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-7 23:42</a>
+
+我那个回复应该有误，应该是主要是通过go套餐调用就行后边我发了图
+
+论坛助手,iPhone ...</blockquote>
+哦，那就好，我在用reasonix，差点想换opencode了
+
