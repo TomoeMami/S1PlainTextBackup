@@ -221,3 +221,27 @@ img_7055.jpeg
 
 <img src="https://img.stage1st.com/forum/202608/07/214605utdytvpwnnq6p93d.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  龙骑士尹志平  
+##### 5941#       发表于 2026-8-7 22:30
+
+梁子自己都说了，大厂要合规，大肥鱼这种找第三方搞水卡不难，菊厂当然给的越多越好，给的少他们也理解。
+
+
+*****
+
+####  80后卢瑟  
+##### 5942#       发表于 2026-8-7 22:34
+
+[https://github.com/ipfans/my-pi-package](https://github.com/ipfans/my-pi-package)
+
+做了一个 pi 的一键安装工具，可以帮助你安装一些最佳实践的扩展工具，也可以快速安装 Skills，比如：
+
+my-pi-package skills install mattpocock/skills
+
+就可以快速给 pi 安装上备受好评的 skills，比如 grill-me
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 现在急需小白鼠来测试一下
+
