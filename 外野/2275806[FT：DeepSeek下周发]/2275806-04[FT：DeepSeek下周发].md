@@ -15184,3 +15184,89 @@ Flash这条路线的结果应该是直接固件化，加一个通用硬件接口
 
 —— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  舞以  
+##### 5844#       发表于 2026-8-7 16:19
+
+高僧预测，8月10号发pro正式版😡！
+
+*****
+
+####  phorcys02  
+##### 5845#       发表于 2026-8-7 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030004&amp;ptid=2275806" target="_blank">2017.05.04 发表于 2026-8-7 15:28</a>
+
+据说opencode整了GB300 NVL72超节点跑DSV4F</blockquote>
+dsv4f说 这一套能跑 2-4T token每天
+
+97%命中率下按dsv4官网价格 每天收入大概 2-3w美金...
+
+那看起来是真的和官网差不多...
+
+opencode还不赶紧多租几个...
+
+*****
+
+####  @weakb0y  
+##### 5846#       发表于 2026-8-7 16:21
+
+假图别这么搞啊，把期望拉得太高，这是先手戴赛博高帽啊<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  龙骑士尹志平  
+##### 5847#       发表于 2026-8-7 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030062&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-7 15:35</a>
+
+opencode使用它的客户端DeepSeek flash 额度翻倍</blockquote>
+是免费的ds4f还是go里的ds4f
+
+
+*****
+
+####  →熙←  
+##### 5848#       发表于 2026-8-7 16:25
+
+<blockquote>OpenCode Go限时活动, DeepSeek Flash提供双倍使用额度</blockquote>
+
+OpenCode Go是目前唯一的ds4f套餐吧, 根本蹬不完<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 5849#       发表于 2026-8-7 16:25
+
+Opencode开分流了说不定ds不涨价了。反正也不是第一次鸽涨价了。
+
+*****
+
+####  neptunehs  
+##### 5850#       发表于 2026-8-7 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030386&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-8-7 16:21</a>
+dsv4f说 这一套能跑 2-4T token每天
+
+97%命中率下按dsv4官网价格 每天收入大概 2-3w美金...
+
+那看起来是真 ...</blockquote>
+感觉还真是小本生意赚头也不大啊
+难怪官方有点爱理不理 虽然一波大的也顶住了
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  neptunehs  
+##### 5851#       发表于 2026-8-7 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030403&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-7 16:25</a>
+OpenCode Go是目前唯一的ds4f套餐吧, 根本蹬不完</blockquote>
+我因为顺便用了点k3 这个月其实很紧急
+这简直是及时雨
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
