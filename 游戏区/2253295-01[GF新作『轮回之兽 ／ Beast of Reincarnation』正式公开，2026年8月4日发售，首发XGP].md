@@ -2687,3 +2687,11 @@ gf就是拿着一两千刀的预算做了个需要四千 ...</blockquote>
 
 <img src="https://p.sda1.dev/34/5547eb9763db88a858662fef712437bd/1.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Leona_Akari  
+##### 545#       发表于 2026-8-7 22:54
+
+感觉敌方太刀哥的伤害好高啊，玩到现在基本上死都是死在太刀哥手里
+

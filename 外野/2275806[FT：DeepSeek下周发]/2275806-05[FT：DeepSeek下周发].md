@@ -278,3 +278,15 @@ opencode的free v4f没有2x 备胎机用来干一些小活光速用完（
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
 
+
+*****
+
+####  med  
+##### 5946#       发表于 2026-8-7 22:58
+
+每家都有自己独到的技术，qwen小尺寸多模态仅此一家，基本成本YOLO这一类网络的上位替代，感谢qwen团队赏饭吃 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+正因为如此，qwen一直有种从上一波深度学习浪潮活到这一波大模型的感觉，其他几家就是原生大模型的感觉。
+
+dsv4在scaling这么激进的推稀疏，和更多家的线性注意力确实不一样
+
