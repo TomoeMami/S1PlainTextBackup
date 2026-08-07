@@ -15374,3 +15374,106 @@ GB300 NVL72 可以部署100个实例，FP8精度整机架吞吐量27.7M tokens/s
 
 —— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  goranger  
+##### 5862#       发表于 2026-8-7 17:09
+
+[@龙骑士尹志平](https://stage1st.com/2b/home.php?mod=space&amp;uid=276186)  看图片
+
+a2ddb19a6508d2aa6c780d08614003af.jpg
+(42.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 17:08 上传
+
+<img src="https://img.stage1st.com/forum/202608/07/170801vpm3vv446xpzjm48.jpg" referrerpolicy="no-referrer">
+
+03f128822c8096006e971b618b6c1604.jpg
+(97.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 17:08 上传
+
+<img src="https://img.stage1st.com/forum/202608/07/170810kihk8drmi8ii48gy.jpg" referrerpolicy="no-referrer">
+
+14bdb2b7a6e6731df7f48df3cafee0bf.jpg
+(95.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 17:08 上传
+
+<img src="https://img.stage1st.com/forum/202608/07/170816oc5vtpd989da9v8f.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  akirt  
+##### 5863#       发表于 2026-8-7 17:09
+
+我opencode go月额度还有9天刷新
+
+但是这个月蹬mimo2.5和d4flash已经快用完了
+
+准备再开一个号
+
+*****
+
+####  tonberry  
+##### 5864#       发表于 2026-8-7 17:11
+
+关于偏文字的一般办公，我装了一个开箱即用的piagent的桌面版[https://pi-desktop.app/](https://pi-desktop.app/)，依然很轻量，速度很快，输出质量体感变高了。而且很适合根据不同工作内容随时切换工作文件夹以及文件树能确保及时更新和很方便地引用文件。
+
+skill就把平时常用的迁移过来（那堆office还有个人工作流相关的），在插件方面，我接了pi-deepseek-search，可以在涉及时效性问题上llm自动选择去使用ds的网络搜索；还有pi-visionizer，可以在对话框直接粘贴剪贴板的图片，自动转到配置好的mimov2.5的api进行识图。
+
+就这些了，够轻便够好用了
+
+
+*****
+
+####  phorcys02  
+##### 5865#       发表于 2026-8-7 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030494&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-7 16:41</a>
+
+GB300 NVL72 可以部署100个实例，FP8精度整机架吞吐量27.7M tokens/s</blockquote>
+应该找苏妈, Helios, mx455 显存带宽23.3TB/s, 是gb300的 4倍
+
+dsv4f 妙就妙在够小, 激活也小到只有13B.
+
+在b300/mx455这种卡上,完全可以单卡单节点部署,从而避免支付张量并行代价(那你要nvl72有个p用!!)
+
+成本比起要付张量并行代价的llm来说,要低太多了...
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5866#       发表于 2026-8-7 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030670&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-7 17:09</a>
+@龙骑士尹志平  看图片</blockquote>
+我最近就一直在用zcode<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过他装傻吧，怎么可能不知道zcode是什么？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  蛋黄酱Release  
+##### 5867#       发表于 2026-8-7 17:14
+
+虽然zcode有各种bug和不完善的地方，但确实是我一直以来体感蹬deepseek最顺的agent了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">感觉智谱应该是做了什么针对性的优化
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  nxmonitor  
+##### 5868#       发表于 2026-8-7 17:15
+
+<blockquote>goranger 发表于 2026-8-7 17:09
+@龙骑士尹志平  看图片</blockquote>
+前几天Zcode上用V4F的已经比用GLM多了
+

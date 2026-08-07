@@ -2532,3 +2532,75 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 玩这游戏每天上线清体力活动搬空商店已经是和吃饭睡觉一样的惯性了....和 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是 每天上限清体力并搬不空商店！
 
+
+*****
+
+####  岸浪白野  
+##### 21299#       发表于 2026-8-7 17:07
+
+卑弥呼30群充<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/07/170658hifipm1ldmf0m00b.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1786093617373_1.webp</strong> (33.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 17:06 上传
+
+<img src="https://img.stage1st.com/forum/202608/07/170658t99t2zgfff55jftv.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1786093617448_2.webp</strong> (73.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 17:06 上传
+
+<img src="https://img.stage1st.com/forum/202608/07/170658isjct5cttcjcc1bc.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1786093617596_3.webp</strong> (78.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 17:06 上传
+
+*****
+
+####  岸浪白野  
+##### 21300#       发表于 2026-8-7 17:08
+
+顺便12号生放送
+
+<img src="https://img.stage1st.com/forum/202608/07/170804scxuus9x840006bh.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1786093683691_4.webp</strong> (155.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 17:08 上传
+
+*****
+
+####  zore  
+##### 21301#       发表于 2026-8-7 17:10
+
+一回合B卡开宝具180%暴击伤害吗，这是要打什么？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 21302#       发表于 2026-8-7 17:14
+
+卑梅呆体系又被强化了，这回三个人都能30群充，长线战大加强啊。
+
+*****
+
+####  森兰丸  
+##### 21303#       发表于 2026-8-7 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030456&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-7 16:33</a>
+
+虽然但是 每天上限清体力并搬不空商店！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说的每天上线清空体力只是指长草期啊....要搬空商店当然还要吃苹果
+
