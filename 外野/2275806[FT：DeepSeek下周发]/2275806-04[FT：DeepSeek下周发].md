@@ -14138,3 +14138,21 @@ image.png
 
 我觉得现在的flash用着挺爽的，pro发不发吧，能不涨价让我继续用现在的flash别发了，我没那么复杂的项目得用超神级模型，真有那需求的早花钱自己去用了。回头等卡到位了pro成本降低到flash再发即可
 
+
+*****
+
+####  小野賢章  
+##### 5729#       发表于 2026-8-7 10:17
+
+看之前灰度版本的pro本来就和opus5差不多，至少前端表现差不多，fable现在会自动降级实际表现还没有opus5稳定呢<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  noneoneone  
+##### 5730#       发表于 2026-8-7 10:25
+
+现在比较想早点知道专武会不会对官方和第三方的接口有区别待遇。
+
+影响要不要下手opencode go。
+
