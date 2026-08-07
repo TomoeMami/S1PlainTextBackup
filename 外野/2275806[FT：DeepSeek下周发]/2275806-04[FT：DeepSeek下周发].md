@@ -14754,3 +14754,11 @@ flash 用 OpenCode 实力仍然强悍，完全不需特殊 Harness；也许 pro 
 
 oc go炸了，但是和大的没什么关系吧    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  wandeeees  
+##### 5795#       发表于 2026-8-7 14:34
+
+flash炸了<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">官方的也炸了，但是监测平台没反应是咋回事儿
+
