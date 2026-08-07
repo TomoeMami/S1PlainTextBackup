@@ -1531,3 +1531,19 @@ Pc版那么大吗</blockquote>
 想玩蓝反1 之前帝玩到那个澪反派jk的内心世界卡关了，12感觉有了合集也不会打折了，看了一眼1上次打折还是2 ...</blockquote>
 如果你能接受内容阉割和谐的话那可以买，然而这合集更过分的是连DLC都不全收录，不纯割凯子吗？要我说就不能纵容暗耻这种辣鸡操作<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  whzfjd  
+##### 131#       发表于 2026-8-7 19:24
+
+<img src="https://img.stage1st.com/forum/202608/07/192315xluyxtcyk9ayh0ya.jpg" referrerpolicy="no-referrer">
+
+<strong>1000788182.jpg</strong> (197.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 19:23 上传
+
+给光荣的一封道歉信
+

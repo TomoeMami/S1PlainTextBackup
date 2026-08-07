@@ -2629,3 +2629,23 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 卑弥呼这个强化和水提配合有什么说法吗
 
+
+*****
+
+####  DARKGRAY  
+##### 21307#       发表于 2026-8-7 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030823&amp;ptid=2084912" target="_blank">angelooo 发表于 2026-8-7 17:35</a>
+
+卑弥呼这个强化和水提配合有什么说法吗</blockquote>
+各上一个的话三色和暴击的强化幅度也算不上很高嘛，样样通样样松<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 21308#       发表于 2026-8-7 19:16
+
+80自充30群充，是玉藻前一辈子达不到的终点。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
