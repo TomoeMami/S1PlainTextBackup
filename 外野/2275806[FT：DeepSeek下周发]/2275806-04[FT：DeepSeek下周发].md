@@ -14826,3 +14826,35 @@ opencode go限时提供V4F双倍额度，蹬不完了</blockquote>
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  舞以  
+##### 5804#       发表于 2026-8-7 15:22
+
+24h指的是明确提供调价情况的邮件吧，目前来说就没发<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tsubasa9  
+##### 5805#       发表于 2026-8-7 15:23
+
+opencode自己部署，那官方的是不是能不崩了
+
+*****
+
+####  88316756  
+##### 5806#       发表于 2026-8-7 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70029981&amp;ptid=2275806" target="_blank">tsubasa9 发表于 2026-8-7 15:23</a>
+opencode自己部署，那官方的是不是能不崩了</blockquote>
+应该可以缓解了吧，提价也是为了逼这些大客户自己去部署，不然都去中转官方的，那开源了个寂寞。
+
+*****
+
+####  2017.05.04  
+##### 5807#       发表于 2026-8-7 15:28
+
+据说opencode整了GB300 NVL72超节点跑DSV4F
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
