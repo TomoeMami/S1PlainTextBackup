@@ -14575,3 +14575,72 @@ Openai协议一堆乱七八糟的字段，它想加就加，自己搞个适合�
 这个deepseek v4 flash太主动了。。。。。我还没和他讨论完呢，它先开始干了，每次都得我主动阻拦他 ...</blockquote>
 我连在全局提示词里都拦不住，只能强制切Plan模式
 
+
+*****
+
+####  andychen  
+##### 5777#       发表于 2026-8-7 12:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70028777&amp;ptid=2275806" target="_blank">zyjzhzyh 发表于 2026-8-7 11:47</a>
+
+实测，大模型配合什么 agent， 也就是说配合 Codex 还是 Claude Code 还是 trae 还是 pi 还是 harmes 等） ...</blockquote>
+理论上可以针对特定提示词进行模型训练，dsv4目前的RP模式就是这种
+
+针对自家harness的提示进行训练自然也是可以的，我觉得OA两家已经在这么搞了
+
+*****
+
+####  真红之闪电  
+##### 5778#       发表于 2026-8-7 12:58
+
+我都是描述意图之前先说一句别动手，描绘出一点阶段以后继续别动手…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  御坂MKII  
+##### 5779#       发表于 2026-8-7 13:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70029173&amp;ptid=2275806" target="_blank">lowezack 发表于 2026-8-7 12:49</a>
+
+Harness也不是啥核心技术，为什么要搞？harness那点提升在大模型能力提升前根本不够看。
+
+Openai协议一堆 ...</blockquote>
+用户基数低的兼容基数高的是常态，迁移工具总是有阻力的。让没用过的人少一些尝试使用的压力很正常
+
+而且现在有 gui 的都没几个，codex 作为里面少数还能用的，兼容了就有助于推广
+
+*****
+
+####  serj005  
+##### 5780#       发表于 2026-8-7 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70028992&amp;ptid=2275806" target="_blank">lowezack 发表于 2026-8-7 12:22</a>
+我一直觉得ds既然搞自己的专武了，为啥还要用openai的response协议，自己定义一套协议不香吗？提供一个sdk ...</blockquote>
+ds也没说过自己的harness就是用的responses api啊？等发布没准出个自有协议呢
+
+
+*****
+
+####  wandeeees  
+##### 5781#       发表于 2026-8-7 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70029175&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-7 12:49</a>
+
+感觉没戏了，harness还在内测呢，看见推上有人发消息了预计最快也得下周了</blockquote>
+继重新定义七月中旬后再次重新定义八月初<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小野賢章  
+##### 5782#       发表于 2026-8-7 13:05
+
+<img src="https://img.stage1st.com/forum/202608/07/130458radjaxaa77o8xeht.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (285.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 13:04 上传
+
