@@ -15792,3 +15792,27 @@ opencode这个infra团队真不好说是哪里来的，他们自己要小心点�
 
 凉了,下周5见
 
+
+*****
+
+####  雨昼斯基  
+##### 5902#       发表于 2026-8-7 19:04
+
+字节纯搞笑的，他搞出了今日头条、抖音、AI 短剧这些国内互联网第一及时娱乐的东西。现在告诉你我们的模型有点差是因为我们要“延迟满足”。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+太搞笑了兄弟    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  王兰花秀丽  
+##### 5903#       发表于 2026-8-7 19:04
+
+<img src="https://img.stage1st.com/forum/202608/07/190309nfqpewxfcf8x8yni.png" referrerpolicy="no-referrer">
+
+<strong>1000052162.png</strong> (483.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 19:03 上传
+
+之前都没刷到过收到资格的，这次才有，可能这次是终测吧<img src="https://static.stage1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
+
