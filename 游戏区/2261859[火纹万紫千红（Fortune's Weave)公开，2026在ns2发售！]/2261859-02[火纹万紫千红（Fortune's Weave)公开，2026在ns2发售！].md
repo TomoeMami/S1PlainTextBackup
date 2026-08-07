@@ -7816,3 +7816,16 @@ A少的披风
 那个好感度是一定要刷嘛</blockquote>
 好感度一起战斗就增加 只是日常吃饭送礼 更方便。这作入坑看上去应该没问题，也可以上一作结合入坑。
 
+
+*****
+
+####  Rainwedell  
+##### 2226#       发表于 2026-8-7 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70028537&amp;ptid=2261859" target="_blank">張世賢 发表于 2026-8-7 11:21</a>
+
+纯新人想要入坑的话推荐这一作吗？
+
+那个好感度是一定要刷嘛</blockquote>
+纯新人不应该等等看首发评价吗？当然直面会片做这么好，感兴趣就直接掏钱，没啥门槛<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
