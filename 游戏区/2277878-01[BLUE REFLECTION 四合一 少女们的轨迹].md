@@ -1547,3 +1547,13 @@ Pc版那么大吗</blockquote>
 
 给光荣的一封道歉信
 
+
+*****
+
+####  Xenor  
+##### 132#       发表于 2026-8-7 19:45
+
+有和谐？木油DLC？都是假象，面包总是有的<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+https://bbs.3dmgame.com/thread-6689385-1-1.html
+https://bbs.3dmgame.com/thread-6690564-1-1.html
+
