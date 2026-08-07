@@ -15270,3 +15270,63 @@ OpenCode Go是目前唯一的ds4f套餐吧, 根本蹬不完</blockquote>
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  德尔惠净水器  
+##### 5852#       发表于 2026-8-7 16:28
+
+command code 的套餐咋样
+
+
+*****
+
+####  nxmonitor  
+##### 5853#       发表于 2026-8-7 16:30
+
+opencode自己的接口其实质量比官方的差，还有不知道他们的缓存机制有没有复现，一般第三方部署都是输入输出能做到一个价格但是缓存是官方十倍
+
+*****
+
+####  →熙←  
+##### 5854#       发表于 2026-8-7 16:30
+
+<img src="https://img.stage1st.com/forum/202608/07/163044b085y8y5y90wc622.png" referrerpolicy="no-referrer">
+
+<strong>62cyzj1nlwhh1.png</strong> (496.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 16:30 上传
+
+*****
+
+####  龙骑士尹志平  
+##### 5855#       发表于 2026-8-7 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030409&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-7 16:26</a>
+
+感觉还真是小本生意赚头也不大啊
+
+难怪官方有点爱理不理 虽然一波大的也顶住了</blockquote>
+一套400w刀，一天收入2w刀，除去电费机房租金人工真的差不多10个月回本啊，v4pro也不用出了，按照v4f的性能，在牢美大规模部署上，a➗o➗真的不要想卖多少了
+
+
+*****
+
+####  phorcys02  
+##### 5856#       发表于 2026-8-7 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030409&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-7 16:26</a>
+
+感觉还真是小本生意赚头也不大啊
+
+难怪官方有点爱理不理 虽然一波大的也顶住了</blockquote>
+这是因为dsv4flash太便宜了啊...
+
+v4f有 glm5.2 和 opus4.8的能力
+
+如果你按glm5.2 api价格计费 那就是一天一百多万美元, 一周不到nvl72买回家了
+
+按opus4.8价格计费, 一天收入能买好几套nvl72
+

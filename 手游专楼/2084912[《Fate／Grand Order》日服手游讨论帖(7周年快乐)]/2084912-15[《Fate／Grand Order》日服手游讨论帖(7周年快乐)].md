@@ -2519,3 +2519,16 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 玩这游戏每天上线清体力活动搬空商店已经是和吃饭睡觉一样的惯性了....和热情不热情的真没关系
 
+
+*****
+
+####  alucardcz  
+##### 21298#       发表于 2026-8-7 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70029929&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-8-7 15:13</a>
+
+才刚双黄的狗萌新又在说笑话了
+
+玩这游戏每天上线清体力活动搬空商店已经是和吃饭睡觉一样的惯性了....和 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是 每天上限清体力并搬不空商店！
+
