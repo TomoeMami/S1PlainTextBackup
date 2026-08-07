@@ -2612,3 +2612,20 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟然不是贞德
 
+
+*****
+
+####  格林卡罗尔  
+##### 21305#       发表于 2026-8-7 17:33
+
+暗狐沦为新的玉藻笑话，和小动物玩不如诺亚，和红卡玩不如卑弥呼
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  angelooo  
+##### 21306#       发表于 2026-8-7 17:35
+
+卑弥呼这个强化和水提配合有什么说法吗
+
