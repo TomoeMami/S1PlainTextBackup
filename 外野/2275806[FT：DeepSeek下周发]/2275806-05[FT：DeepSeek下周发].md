@@ -327,3 +327,24 @@ pro模式也是神神鬼鬼，建议o➗没那个金刚钻就别揽瓷器活
 opencode使用它的客户端DeepSeek flash 额度翻倍</blockquote>
 草，必须要它的客户端吗，有没有办法在其他客户端里面用
 
+
+*****
+
+####  goranger  
+##### 5951#       发表于 2026-8-7 23:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033570&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-8-7 23:34</a>
+草，必须要它的客户端吗，有没有办法在其他客户端里面用</blockquote>
+我那个回复应该有误，应该是主要是通过go套餐调用就行后边我发了图
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  厍无春  
+##### 5952#       发表于 2026-8-7 23:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033570&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-8-7 23:34</a>
+草，必须要它的客户端吗，有没有办法在其他客户端里面用</blockquote>
+可以go套餐给api，可以随便接入，不限制平台
+
