@@ -2460,3 +2460,23 @@ TOGF的限时支线的话，我的建议是
 
 这被子玩过最后悔的游戏就是圣恩<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">直接耗了我220+个小时，而且还没刷出个结果来，手柄按键的硅胶垫都按烂了……后悔死了，我有这时间我玩什么不好<img src="https://static.stage1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不灭的旋律  
+##### 236#       发表于 2026-8-7 23:29
+
+既然顶上来了借帖一问，TOB REMASTER和TOX REMOSTER二选一买哪一个？作为游戏哪一个好玩？剧情上有什么雷点或缺陷？
+
+*****
+
+####  alucardcz  
+##### 237#       发表于 2026-8-7 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033545&amp;ptid=2280008" target="_blank">不灭的旋律 发表于 2026-8-7 23:29</a>
+
+既然顶上来了借帖一问，TOB REMASTER和TOX REMOSTER二选一买哪一个？作为游戏哪一个好玩？剧情上有什么雷点 ...</blockquote>
+根本不用选 b全方面完爆x
+
+tox本身还有2代。。他没出
+

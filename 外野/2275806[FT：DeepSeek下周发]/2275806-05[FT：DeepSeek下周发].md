@@ -308,3 +308,22 @@ dsv4在scaling这么激进的推稀疏，和更多家的线性注意力确实不
  我艹了，gpt给免费用户开放对话限额，搞得我这种订阅用户的5.6sol xhigh感觉明显降智了，之前都用极高的， ...</blockquote>
 pro模式也是神神鬼鬼，建议o➗没那个金刚钻就别揽瓷器活
 
+
+*****
+
+####  蜇灵  
+##### 5949#       发表于 2026-8-7 23:32
+
+草，opencode的官网是不是炸了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蜇灵  
+##### 5950#       发表于 2026-8-7 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030062&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-7 15:35</a>
+
+opencode使用它的客户端DeepSeek flash 额度翻倍</blockquote>
+草，必须要它的客户端吗，有没有办法在其他客户端里面用
+
