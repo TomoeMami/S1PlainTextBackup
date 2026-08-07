@@ -15364,3 +15364,13 @@ GB300 NVL72 可以部署100个实例，FP8精度整机架吞吐量27.7M tokens/s
 
 看来今天没了？
 
+
+*****
+
+####  czhhws  
+##### 5861#       发表于 2026-8-7 17:04
+
+没了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3700, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
