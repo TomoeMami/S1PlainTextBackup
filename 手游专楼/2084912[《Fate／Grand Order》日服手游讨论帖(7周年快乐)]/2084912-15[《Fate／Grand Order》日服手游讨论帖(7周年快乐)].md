@@ -2649,3 +2649,19 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qixinno1  
+##### 21309#       发表于 2026-8-7 20:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你玉人气太高了 动不动就被拿出了比较 这点就赢了
+
+
+*****
+
+####  希望之花  
+##### 21310#       发表于 2026-8-7 21:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卑弥乎的生态对位是政哥哥吧，已经查无此人了
+
