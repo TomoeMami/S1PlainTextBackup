@@ -14488,3 +14488,32 @@ pi加dsv4f跑得飞快，想看一眼在干啥都来不及，然后基本还能�
 
 实际用下来模型也够聪明,不需要那么强的约束
 
+
+*****
+
+####  舞以  
+##### 5768#       发表于 2026-8-7 12:19
+
+与其加一堆条条框框，不如找个更聪明的大模型做规划和工作计划，还有后面的审查，比如v4pro正式版。
+你说对吧，梁子<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  lowezack  
+##### 5769#       发表于 2026-8-7 12:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=70028777&amp;amp;ptid=2275806" target="_blank">zyjzhzyh 发表于 2026-8-7 11:47</a>
+实测，大模型配合什么 agent， 也就是说配合 Codex 还是 Claude Code 还是 trae 还是 pi 还是 harmes 等） ...</blockquote>
+这个肯定的，工具调用就是harness的核心，大模型在训练的时候也会专门训练针对某些工具调用做特化。
+
+比如gpt系列，他们家的patch格式就是自己搞的，不是unify patch。
+
+*****
+
+####  lowezack  
+##### 5770#       发表于 2026-8-7 12:22
+
+我一直觉得ds既然搞自己的专武了，为啥还要用openai的response协议，自己定义一套协议不香吗？提供一个sdk让第三方集成就可以了
+
