@@ -2732,3 +2732,11 @@ ikgn说的那个战斗系统后期变成即时放技能动画的回合制还挺�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等见到尾王所有人都会发出最诚挚的问候，太他妈屎了
 
+
+*****
+
+####  laosai13  
+##### 550#       发表于 2026-8-8 07:47
+
+ps5pro体验如何，电脑一直有用想用ps玩
+
