@@ -15618,3 +15618,44 @@ opencode go套餐应该不管你是什么agent的，不过client请求发过来�
 
 opencode这个infra团队真不好说是哪里来的，他们自己要小心点才是毕竟在美国…
 
+
+*****
+
+####  vincevincetang  
+##### 5883#       发表于 2026-8-7 18:18
+
+既然7月31日也是7月中旬，8月21日也是8月初也很合理吧
+
+*****
+
+####  王兰花秀丽  
+##### 5884#       发表于 2026-8-7 18:20
+
+这周应该不可能了，harness都还没开始内测<img src="https://static.stage1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  脸宽  
+##### 5885#       发表于 2026-8-7 18:22
+
+话说现在酒馆预设推荐哪个，我之前用的个夏瑾
+
+*****
+
+####  nxmonitor  
+##### 5886#       发表于 2026-8-7 18:22
+
+<blockquote>王兰花秀丽 发表于 2026-8-7 18:20
+这周应该不可能了，harness都还没开始内测    Re:Source</blockquote>
+早内测了，前几天看上去是最后一次，说法是适配开源项目…
+
+*****
+
+####  zzfzz  
+##### 5887#       发表于 2026-8-7 18:22
+
+后台是不是加了个换时区查看token用量的功能
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
