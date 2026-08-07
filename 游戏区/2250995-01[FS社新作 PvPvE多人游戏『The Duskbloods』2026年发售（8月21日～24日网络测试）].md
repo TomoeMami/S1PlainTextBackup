@@ -942,3 +942,11 @@ pvpve嗎……小高搜打撒？
 
 好奇怪啊，是根据ip地址判断吗，为啥我电脑登录这网页直接就落选了，但是我没用电脑登过我Nintendo online账号啊😢
 
+
+*****
+
+####  woodey  
+##### 102#       发表于 2026-8-7 21:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">落选了，岂可休!
+

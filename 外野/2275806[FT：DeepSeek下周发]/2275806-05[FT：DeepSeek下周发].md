@@ -122,3 +122,13 @@ img_7055.jpeg
 
 <img src="https://img.stage1st.com/forum/202608/07/214605utdytvpwnnq6p93d.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  来都来了  
+##### 5933#       发表于 2026-8-7 21:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70032823&amp;ptid=2275806" target="_blank">里奥哟西 发表于 2026-8-7 21:29</a>
+峰谷简直恶心，专门恶心中国人是吧？让外国人爽蹬</blockquote>
+我再次强调一下，让外国人爽蹬中国AI，这是国家战略。
+
