@@ -14469,3 +14469,22 @@ flash修好了
 —— 来自 vivo V2405A, Android 16, 鹅球 v4. ...</blockquote>
 24小时邮件那条已经作废了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novalli  
+##### 5766#       发表于 2026-8-7 12:10
+
+pi加dsv4f跑得飞快，想看一眼在干啥都来不及，然后基本还能干完活。
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  →熙←  
+##### 5767#       发表于 2026-8-7 12:16
+
+我拿掉superpower了,现在做得飞快, 之前做一个东西反反复复的校验, 这玩意给ds用太慢了
+
+实际用下来模型也够聪明,不需要那么强的约束
+
