@@ -545,3 +545,14 @@ codex让我觉得好用的还是那个桌面端，但是桌面端有严重的长
 论坛助手,iPhone ...</blockquote>
 哦，那就好，我在用reasonix，差点想换opencode了
 
+
+*****
+
+####  80后卢瑟  
+##### 5971#       发表于 2026-8-8 06:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033786&amp;ptid=2275806" target="_blank">13号 发表于 2026-8-8 00:21</a>
+
+没有恶意。 但是我都用pi了， 啥我不会自己搞定啊， 搞不定我直接打开pi让他自己给我推荐工具自己装上了 ...</blockquote>
+单纯图省事的东西，会比较方便
+
