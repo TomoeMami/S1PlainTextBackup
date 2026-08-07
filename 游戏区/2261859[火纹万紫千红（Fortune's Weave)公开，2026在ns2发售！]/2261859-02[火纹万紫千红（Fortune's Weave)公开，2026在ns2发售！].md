@@ -7745,3 +7745,11 @@ A少的披风
 
 希望5年后都是固定等级配招队友，配上有设针对性的关卡设计，不好打就走五年前引入级长养成流超人，这样两边都照顾到
 
+
+*****
+
+####  bad_alloc  
+##### 2218#       发表于 2026-8-7 10:02
+
+手枪妹的势力是白鸦花嫁团，主角就是白鸦，这算是钦定老婆吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
