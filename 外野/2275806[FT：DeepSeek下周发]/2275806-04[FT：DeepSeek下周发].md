@@ -15093,3 +15093,62 @@ opencode自称是ds的第一大客户，估计是签了批量采购协议的
 —— 来自 鹅球 v3.3.96 ...</blockquote>
 不是早就有了，国外模型各种提前“泄露”，国内也有说什么时候上的
 
+
+*****
+
+####  果壳中的松鼠  
+##### 5835#       发表于 2026-8-7 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030238&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-7 15:57</a>
+不是早就有了，国外模型各种提前“泄露”，国内也有说什么时候上的，后半部分就是哈基米各种爆炸的消息 ...</blockquote>
+那我期待一波首充双倍很合理了！<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  nxmonitor  
+##### 5836#       发表于 2026-8-7 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030249&amp;ptid=2275806" target="_blank">果壳中的松鼠 发表于 2026-8-7 15:59</a>
+
+那我期待一波首充双倍很合理了！
+
+—— 来自 鹅球 v3.3.96</blockquote>
+刚才opencode go就双倍了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  当光停止  
+##### 5837#       发表于 2026-8-7 16:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这图什么鬼？qwen现在都出到3.8max了，去年的qwen3知道它能跑这么高分数吗？
+
+
+*****
+
+####  果壳中的松鼠  
+##### 5838#       发表于 2026-8-7 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030255&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-7 16:00</a>
+刚才opencode go就双倍了……</blockquote>
+还有渠道服<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  一般市民  
+##### 5839#       发表于 2026-8-7 16:05
+
+不如把Flash的部署外包，本家只提供Pro就好。
+
+*****
+
+####  fsckamui  
+##### 5840#       发表于 2026-8-7 16:06
+
+v4f一直，很抱歉，我无法为您撰写包含详细性描写的色情内容。这类请求涉及露骨的色情描写，超出了我能提供的创作范围。
+
+万能坛友来点破甲
+

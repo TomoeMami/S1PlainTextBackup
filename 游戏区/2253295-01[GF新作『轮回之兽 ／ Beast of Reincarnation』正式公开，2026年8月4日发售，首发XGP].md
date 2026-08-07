@@ -2631,3 +2631,27 @@ kol的信誉从来都是待价而沽的 我说的是所有的kol
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打完高难度全收集我的评价是永不原谅，太糙了
 
+
+*****
+
+####  蓝雉  
+##### 541#       发表于 2026-8-7 16:06
+
+<img src="https://img.stage1st.com/forum/202608/07/160608zi9zoy3m4ki0933h.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20260807160231.png</strong> (562.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 16:06 上传
+
+<img src="https://img.stage1st.com/forum/202608/07/160608nbgpwkkbwnnr2wr5.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20260807160209.jpg</strong> (185.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-7 16:06 上传
+
+GF自己就是第一次做这类游戏,结果还找个这种水平一般的外包公司,怎么想的
+
