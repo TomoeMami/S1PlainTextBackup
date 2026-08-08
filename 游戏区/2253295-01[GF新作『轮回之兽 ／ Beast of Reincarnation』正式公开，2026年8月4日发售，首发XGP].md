@@ -2748,3 +2748,28 @@ ps5pro体验如何，电脑一直有用想用ps玩
 
 每次到过场动画就如同看一部闷片，让人昏昏欲睡
 
+
+*****
+
+####  Horusddt  
+##### 552#       发表于 2026-8-8 11:36
+
+这游戏还是流程太长了，不如学卡普空那样压到20小时左右
+
+*****
+
+####  tyauto  
+##### 553#       发表于 2026-8-8 11:39
+
+GF还是老老实实抱宝可梦大腿吧
+
+*****
+
+####  Jabeck  
+##### 554#       发表于 2026-8-8 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70034209&amp;ptid=2253295" target="_blank">laosai13 发表于 2026-8-8 07:47</a>
+
+ps5pro体验如何，电脑一直有用想用ps玩</blockquote>
+拉就一个字
+

@@ -2019,3 +2019,11 @@ JQTKEGUGWCRS
 
 拉到110，因为点过技能，数下硬币不够直达120了。。。要继续打本拿硬币，只能停下来了
 
+
+*****
+
+####  Urakawa  
+##### 48066#       发表于 2026-8-8 11:41
+
+光打了ex1的冠位，等月底再打ex2的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

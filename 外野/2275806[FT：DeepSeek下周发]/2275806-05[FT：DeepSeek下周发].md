@@ -612,3 +612,16 @@ flash正式版确实甲变厚了不少
 
 codex 之前我用得少的时候天天重置，这周我把月额度蹬完了，然后一直没有重置<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tk553521  
+##### 5977#       发表于 2026-8-8 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70034834&amp;ptid=2275806" target="_blank">焚尘 发表于 2026-8-8 10:48</a>
+
+现在还在用Claude Code，想试试新的agent，什么比较靠谱的agent能力比较排行吗？
+
+或者单纯使用体验上，想要 ...</blockquote>
+如果用的v4f可以用reasonix先过渡一下等专武，其它模型其实codex也可以，不是非得用cc的
+

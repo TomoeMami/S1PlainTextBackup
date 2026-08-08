@@ -8188,3 +8188,22 @@ ag怎么就开始对战旗关卡设计贷款吃屎了
 
 最后肯定可以合流并且给你用自己培养的角色啊，自己养的角色没法在最难关用是什么辣鸡设计
 
+
+*****
+
+####  空气先生  
+##### 2260#       发表于 2026-8-8 11:37
+
+<blockquote>1wq1 发表于 2026-8-8 10:46
+最后肯定可以合流并且给你用自己培养的角色啊，自己养的角色没法在最难关用是什么辣鸡设计 ...</blockquote>
+别带邪龙之章节奏
+
+
+*****
+
+####  会长辅佐  
+##### 2261#       发表于 2026-8-8 11:44
+
+<img src="https://p.sda1.dev/34/7955de5ecbd1214813449d6eb521f609/IMG_CDBB935869DAD615A0E73B584D75876C.jpeg" referrerpolicy="no-referrer">
+<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">穿越题材必备问题：为啥不早穿一点.jpg
+
