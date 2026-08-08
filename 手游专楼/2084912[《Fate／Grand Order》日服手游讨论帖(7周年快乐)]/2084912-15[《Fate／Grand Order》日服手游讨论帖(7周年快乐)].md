@@ -2708,3 +2708,57 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">出个我有的吧 当送我俩石头了
 
+
+*****
+
+####  希望之花  
+##### 21315#       发表于 2026-8-7 21:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卑弥乎的生态对位是政哥哥吧，已经查无此人了
+
+*****
+
+####  exiaexa  
+##### 21316#       发表于 2026-8-7 22:29
+
+ 本帖最后由 exiaexa 于 2026-8-7 22:32 编辑 
+
+卑弥呼一开始是给电池队加输出的
+
+并且靠着OC直接拉爆对肃正层数
+
+然而后来被摩根直接按死，更别提汇呆了
+
+哪怕强化后也一样
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  乾理央  
+##### 21317#       发表于 2026-8-7 22:51
+
+水提+卑弥呼基本能做到带条狗都能脚打90++了吧，而且还是无视发牌那种，
+
+90*肯定不行就是
+
+*****
+
+####  khxooo  
+##### 21318#       发表于 2026-8-7 23:15
+
+明天五星枪感觉会是枪狐<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno1  
+##### 21319#       发表于 2026-8-7 23:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">出个我有的吧 当送我俩石头了
+
+*****
+
+####  v22325  
+##### 21320#       发表于 2026-8-8 07:56
+
+我经常懒得动脑子还是卑弥呼c呆c狐耐久队的，狐狸一个宝具全体np50％还回血减技能CD，但其他队真没上班位置。
+
