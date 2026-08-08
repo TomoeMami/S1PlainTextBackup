@@ -7646,3 +7646,18 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  qwased  
+##### 903#       发表于 2026-8-8 18:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70035015&amp;ptid=2253488" target="_blank">moonmagian 发表于 2026-8-8 11:25</a>
+
+真boss之前build和终盘内容的单调还能归结于鱿研所水平问题
+
+真boss感觉就是极致敷衍，打得想骂人
+
+高攻血牛 ...</blockquote>
+后期刷刷刷动力也不足，这一作感觉很可惜，要有个dlc把机制多样性和数值成长补起来让人刷个200小时都很爽那就无敌了
+
