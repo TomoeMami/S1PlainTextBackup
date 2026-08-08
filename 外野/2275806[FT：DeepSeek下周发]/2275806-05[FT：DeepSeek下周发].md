@@ -1153,3 +1153,14 @@ Closeai是5.6luna快速，不如flash，区</blockquote>
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  med  
+##### 6026#       发表于 2026-8-8 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70038001&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-8 20:53</a>
+
+国行Apple智能将搭载千问    Re:Source</blockquote>
+没啥问题，小尺寸多模态的生态位几乎只有qwen，虽然scaling不如其他家
+

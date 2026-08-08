@@ -8494,3 +8494,19 @@ TB怎么日版港版价格差那么多</blockquote>
 
 这样翻译好处是搜二创完全不会搜到无关信息，我挺喜欢的<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴尔干炮  
+##### 2291#       发表于 2026-8-8 23:27
+
+<img src="https://img.stage1st.com/forum/202608/08/232653nfrbk7krfjhbfdkh.jpg" referrerpolicy="no-referrer">
+
+<strong>f853295b5fb497e85e45be2c2085f68ef4d94d29aa04663d9f4c2f08bf052b86.0.JPG</strong> (223.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-8 23:26 上传
+
+女王的全名。
+
