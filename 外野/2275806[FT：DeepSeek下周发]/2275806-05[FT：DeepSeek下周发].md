@@ -763,3 +763,15 @@ codex 之前我用得少的时候天天重置，这周我把月额度蹬完了�
 为什么现在才说张一鸣是汉奸,前两年抖音收购第一时间给美国跪下不就已经定性了吗 ...</blockquote>
 火星公民张一鸣，没错，这次是双重验证
 
+
+*****
+
+####  akirt  
+##### 5990#       发表于 2026-8-8 14:24
+
+张一鸣自家的seed没少拿他家coding plan付费用户的数据炼
+
+还好意思提不让蒸馏的事
+
+是怕被别人看穿就算蒸也是一坨翔吧<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
