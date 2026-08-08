@@ -8318,3 +8318,18 @@ if那会只要和自己和解玩不死人模式有即时存档想悔棋多少次
 
 这主剧情不会真就野炊但是可以穿越救四英杰加上老婆可选吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 2273#       发表于 2026-8-8 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70036470&amp;ptid=2261859" target="_blank">wilkyway 发表于 2026-8-8 15:31</a>
+
+真的喜欢的是挑战而不是装杯的话为什么会嫌难呢？
+
+我看柜子理所当然的玩死人模式的时候都是享受这种不允 ...</blockquote>
+聊悔棋的先进性的同时感慨一下过去的难度而已。
+
+为什么有你这种阴湿小人非要跳出来恶心人呢。
+
