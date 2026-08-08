@@ -30,3 +30,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">怎么感觉最近给30点的调查次数比前阵子高了一点点
 
+
+*****
+
+####  冰风血羽  
+##### 2084#       发表于 2026-8-8 18:39
+
+我自从上次活动后就没见过30了，最多给个10
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
