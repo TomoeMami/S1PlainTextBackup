@@ -8227,3 +8227,13 @@ ag怎么就开始对战旗关卡设计贷款吃屎了
 穿越题材必备问题：为啥不早穿一点.jpg</blockquote>
 你也是被选中的打工人，你的老爸必须死<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小学生把持不住  
+##### 2264#       发表于 2026-8-8 12:18
+
+ 本帖最后由 小学生把持不住 于 2026-8-8 12:21 编辑 
+
+明明介绍视频里的5年前斗技场关卡就已经一堆让人头皮发麻的机关陷阱，老火纹有即时存档都变得简单了，能悔棋更是给了很多人网络自信膨胀<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

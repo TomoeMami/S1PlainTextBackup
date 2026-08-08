@@ -654,3 +654,26 @@ codex 之前我用得少的时候天天重置，这周我把月额度蹬完了�
 持续学习/自我改进怎么搞啊？每个用户一个差分模型吗，以后没有缓存的事了？还是说某种新型压缩上下文缓存 ...</blockquote>
 不知道怎么搞，都说是探索中了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  sellboy  
+##### 5981#       发表于 2026-8-8 12:19
+
+<blockquote>CCauchy 发表于 2026-8-8 12:07
+持续学习/自我改进怎么搞啊？每个用户一个差分模型吗，以后没有缓存的事了？还是说某种新型压缩上下文缓存 ...</blockquote>
+这是明年的核心技术，现在有人能拿出来话堪比V4f正式版去年年中问世。
+
+*****
+
+####  無始無終  
+##### 5982#       发表于 2026-8-8 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70034834&amp;ptid=2275806" target="_blank">焚尘 发表于 2026-8-8 10:48</a>
+现在还在用Claude Code，想试试新的agent，什么比较靠谱的agent能力比较排行吗？
+
+或者单纯使用体验上，想要 ...</blockquote>
+那只有Pi了，但很多东西要自己配
+
+—— 来自 HUAWEI NOH-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
