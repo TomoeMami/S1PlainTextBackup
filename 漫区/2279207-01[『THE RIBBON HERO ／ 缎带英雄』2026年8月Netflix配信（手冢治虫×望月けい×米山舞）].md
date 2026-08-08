@@ -1025,3 +1025,19 @@ magnet:?xt=urn:btih:14d30084bca22779dc6a017654a526e6033ac63f
 
 怎么能有这么难看的动画
 
+
+*****
+
+####  Lawliet.L  
+##### 80#       发表于 2026-8-8 17:17
+
+网飞动画的正常水平<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ヒトニナル  
+##### 81#       发表于 2026-8-8 17:23
+
+为啥网飞今年两部长篇动画的女主角都这么聒噪，辉夜和蓝宝石，这两部我都看到30分钟左右就承受不住了
+

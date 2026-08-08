@@ -1013,3 +1013,25 @@ claude就不说了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我真的不行了，这个逼ai老是弄一些匪夷所思的弱智操作，让他确定一个档案的位置，明明相关skill里面都标注了整个文件构架，他不看skill直接开始全盘乱搜。有时候知道可能是我指令下达的不够精准，但是他这种让人上头的弱智操作你们都是怎么排解这种情绪的……
 
+
+*****
+
+####  拯救节操希灵宅  
+##### 6014#       发表于 2026-8-8 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70037077&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-8 17:17</a>
+
+我真的不行了，这个逼ai老是弄一些匪夷所思的弱智操作，让他确定一个档案的位置，明明相关skill里面都标注 ...</blockquote>
+碳基人的指令遵从也就那样，习惯了
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6015#       发表于 2026-8-8 17:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70037077&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-8 17:17</a>
+我真的不行了，这个逼ai老是弄一些匪夷所思的弱智操作，让他确定一个档案的位置，明明相关skill里面都标注 ...</blockquote>
+以flash的指令遵循能力不可能这样啊，这几天大肥鱼被蹬傻了？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
