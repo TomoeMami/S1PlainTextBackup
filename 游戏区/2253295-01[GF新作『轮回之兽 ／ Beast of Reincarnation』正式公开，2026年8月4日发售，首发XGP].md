@@ -2773,3 +2773,15 @@ GF还是老老实实抱宝可梦大腿吧
 ps5pro体验如何，电脑一直有用想用ps玩</blockquote>
 拉就一个字
 
+
+*****
+
+####  卢迪克  
+##### 555#       发表于 2026-8-8 11:54
+
+ 本帖最后由 卢迪克 于 2026-8-8 11:55 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70035084&amp;ptid=2253295" target="_blank">tyauto 发表于 2026-8-8 11:39</a>
+
+GF还是老老实实抱宝可梦大腿吧</blockquote>
+本质单纯做宝可梦是留不住人，小镇英雄的美术总监和za的总监今年已经单飞去外面做独立游戏了。剑盾艺术总监几年前也单飞去做独立游戏了，他们公司不是每个人都愿意做一辈子宝可梦的，gf也很无奈啊
+
