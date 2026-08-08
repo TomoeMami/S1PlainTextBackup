@@ -1174,3 +1174,66 @@ qwen3.8在aa站上排名怎么跳来跳去的<img src="https://static.stage1st.c
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  aemaeth  
+##### 6028#       发表于 2026-8-8 23:56
+
+ 本帖最后由 aemaeth 于 2026-8-8 23:58 编辑 
+
+QWen系列那点儿可怜的抗注入能力……之前还敢上淘宝闪购的通道，我也只能说是可怕的勇气了
+
+<img src="https://img.stage1st.com/forum/202608/08/235819d2c5eltxiiglxxnn.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2026-08-08 at 23.56.49.png</strong> (120.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-8 23:58 上传
+
+<img src="https://img.stage1st.com/forum/202608/08/235347xsqzh64ddusgpiqh.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2026-08-08 at 23.53.06.png</strong> (226.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-8 23:53 上传
+
+截图是之前3.7max的，官方QWen studio的chat界面，3.8实测在间接注入上没有任何提升，扔进任何harness一注一个准。
+
+同时佩服苹果与阿里的勇气
+
+*****
+
+####  Rowen233  
+##### 6029#       发表于 2026-8-9 00:00
+
+<blockquote>aemaeth 发表于 2026-8-8 23:56
+QWen系列那点儿可怜的抗注入能力……之前还敢上淘宝闪购的通道，我也只能说是可怕的勇气了
+
+</blockquote>
+大概率在qwen基础上后对齐了吧
+
+
+*****
+
+####  巨魔已被忠诚  
+##### 6030#       发表于 2026-8-9 00:02
+
+今天晚上用的弱智化了，这思维链什么玩意儿，才十来轮，输出结果和我前面定的语义偏移了。以前没这么快。
+
+傻逼老外用的，现在要严格限定用中文思维链了嘛……<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aemaeth  
+##### 6031#       发表于 2026-8-9 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70039513&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-8-9 00:00</a>
+
+大概率在qwen基础上后对齐了吧</blockquote>
+DS v4f 至少0731是能明显感觉对注入清醒不少，不用高级点儿的技巧没那么容易成功，而且明显不全是来自安全护栏的条目式防范，而是模型智商上去之后能有正确的判断了。
+
+而Qwen3.8没有任何变化，一样地傻傻掉陷阱，一样地缺乏判断力和品味。
+
