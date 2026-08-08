@@ -702,3 +702,16 @@ codex 之前我用得少的时候天天重置，这周我把月额度蹬完了�
 
 查看全部评分
 
+
+*****
+
+####  neptunehs  
+##### 5984#       发表于 2026-8-8 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70035216&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-8 12:07</a>
+持续学习/自我改进怎么搞啊？每个用户一个差分模型吗，以后没有缓存的事了？还是说某种新型压缩上下文缓存 ...</blockquote>
+我是觉得只要一天还要缓存上下文 而不是自由高速存储 那就一天没有agi
+可能是我啥都不懂的错觉就是了
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -8237,3 +8237,22 @@ ag怎么就开始对战旗关卡设计贷款吃屎了
 
 明明介绍视频里的5年前斗技场关卡就已经一堆让人头皮发麻的机关陷阱，老火纹有即时存档都变得简单了，能悔棋更是给了很多人网络自信膨胀<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ascomnet  
+##### 2265#       发表于 2026-8-8 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70035311&amp;ptid=2261859" target="_blank">小学生把持不住 发表于 2026-8-8 12:18</a>
+
+明明介绍视频里的5年前斗技场关卡就已经一堆让人头皮发麻的机关陷阱，老火纹有即时存档都变得简单了，能悔 ...</blockquote>
+减少烦躁时间，现代游戏的必经路
+
+
+*****
+
+####  oniwarud  
+##### 2266#       发表于 2026-8-8 12:41
+
+暗夜三星如果能悔棋的话难度就不至于那么高了，一关卡几个小时或者半天都不奇怪
+
