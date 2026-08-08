@@ -2558,3 +2558,18 @@ X1最近几年在海外有翻案倾向（剧情+系统），不过这跟我们�
 谢谢，叠了盒币32拿下，买完发现忘了领极赏星球的支付券</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要慌 反正也是几毛
 
+
+*****
+
+####  LMBS  
+##### 245#       发表于 2026-8-8 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70030573&amp;ptid=2280008" target="_blank">qiyu1234 发表于 2026-8-7 16:53</a>
+
+TOGF的限时支线的话，我的建议是
+
+少年篇，一定要看攻略，首先这个进度比较短，而且二周目可以主动跳过这个 ...</blockquote>
+我就玩了一点，回到村里提示有谢丽亚的限时对话，就是不知这种提示完不完整，还是只有当前地图的提示，如果其他地图的限时也能有个界面能看到，那么勤点查看感觉不靠攻略也能顺利玩下去
+
+以前玩PS3版时对着攻略wiki玩实在太痛苦了，尤其TOV事件还特别多
+

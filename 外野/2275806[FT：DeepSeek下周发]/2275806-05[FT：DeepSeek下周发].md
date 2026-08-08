@@ -819,3 +819,27 @@ codex 之前我用得少的时候天天重置，这周我把月额度蹬完了�
 
 感觉挺难的，和llm架构本身都有冲突，能搞出来说明ds牛逼呗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蛋黄酱Release  
+##### 5995#       发表于 2026-8-8 15:11
+
+现在deepseek的网页端和app基本没法用了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">现在搜索资料和简单对话用哪个app好一点，千问？
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  neptunehs  
+##### 5996#       发表于 2026-8-8 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70036013&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-8-8 14:02</a>
+英伟达免费API更新flash0731了，现在没多少人发现速度还挺快</blockquote>
+顺便据说amd也有了 也是一天多少免费额度来着
+
+不过我不知道怎么搞
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
