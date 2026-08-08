@@ -570,3 +570,16 @@ codex让我觉得好用的还是那个桌面端，但是桌面端有严重的长
 
 可以说如果没有先进的技术底座，模型就算很大也只是很贵罢了。
 
+
+*****
+
+####  eno_emos  
+##### 5973#       发表于 2026-8-8 08:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70033909&amp;ptid=2275806" target="_blank">脸宽 发表于 2026-8-8 01:04</a>
+不知道是不是用的open code，还是什么原因感觉有点不如之前好用
+
+论坛助手,iPhone ...</blockquote>
+flash正式版确实甲变厚了不少
+可能是这个原因导致的
+
