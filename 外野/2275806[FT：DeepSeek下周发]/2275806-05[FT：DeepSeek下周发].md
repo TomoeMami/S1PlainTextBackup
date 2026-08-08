@@ -715,3 +715,25 @@ codex 之前我用得少的时候天天重置，这周我把月额度蹬完了�
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  CCauchy  
+##### 5985#       发表于 2026-8-8 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70035515&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-8 12:44</a>
+我是觉得只要一天还要缓存上下文 而不是自由高速存储 那就一天没有agi
+可能是我啥都不懂的错觉就是了</blockquote>
+呃，前者是一种功能，后者是一种实现方式，看不懂
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  CCauchy  
+##### 5986#       发表于 2026-8-8 13:03
+
+也许应该有一种印象层/模糊记忆层，用来指导模型何时去精读之前的上下文，这样就没有上下文窗口的概念了，才能真正解决上下文腐败，大概几mb大小，可以跨会话继承，也没有微调的概念了（可以先破甲再共享了，塞点重口的东西
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
