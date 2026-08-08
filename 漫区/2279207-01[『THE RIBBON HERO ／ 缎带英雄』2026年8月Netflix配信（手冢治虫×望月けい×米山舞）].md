@@ -1057,3 +1057,20 @@ magnet:?xt=urn:btih:14d30084bca22779dc6a017654a526e6033ac63f
 
 浪费大火鸟的变身BANK 全片场能找出一个不是菜b的吗
 
+
+*****
+
+####  Redimercia  
+##### 84#       发表于 2026-8-8 20:12
+
+没看出在对经典的现代化诠释上有下什么功夫，更像是望月米山舞的粉丝向作品<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fengzijiang  
+##### 85#       发表于 2026-8-8 20:15
+
+看完了，男娘美丽，完了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
