@@ -1109,3 +1109,13 @@ nonoka那不是阳角问题啊，那就是标准的ぷりっ子，而且第二�
 
 大薇是玛奇玛吗<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jstcsjx  
+##### 241#       发表于 2026-8-8 23:23
+
+野乃花是目前梦限大角色里设定成就最高的，幼时的一个弹奏视频几亿播放量
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
