@@ -968,3 +968,20 @@ gpt只不过开放网页对话额度而已<img src="https://static.stage1st.com/
 别家也不是没有免费可用的网页版呀，价差更悬殊的那几家不去蹬，非要蹬没贵几毛钱的就很离谱。 ...</blockquote>
 有钱可赚，如此而已
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6010#       发表于 2026-8-8 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70036886&amp;ptid=2275806" target="_blank">sellboy 发表于 2026-8-8 16:40</a>
+别家也不是没有免费可用的网页版呀，价差更悬殊的那几家不去蹬，非要蹬没贵几毛钱的就很离谱。 ...</blockquote>
+免费网页对话里
+智谱最好的是5.2，不如flash，区
+Closeai是5.6luna快速，不如flash，区
+豆包、gemini俩傻逼加起来也不如flash，区×2
+千问还停留在3.7，不如flash，区
+混元和minimax<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

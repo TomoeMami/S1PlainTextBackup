@@ -1045,3 +1045,23 @@ nonoka那不是阳角问题啊，那就是标准的ぷりっ子，而且第二�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">最不对劲的地方应该是arl对vol哈气而且疼肚子老师意识到不对劲（大概）开始翻旧片的时候唐突对vol发情
 
+
+*****
+
+####  綺々羅々ヴィヴ  
+##### 235#       发表于 2026-8-8 16:51
+
+我唯一的愿望是能让我们薇薇在其他乐队里也露个脸
+
+*****
+
+####  aptx8285144  
+##### 236#       发表于 2026-8-8 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70036562&amp;ptid=2283962" target="_blank">Totokei 发表于 2026-8-8 15:47</a>
+
+最不对劲的地方应该是arl对vol哈气而且疼肚子老师意识到不对劲（大概）开始翻旧片的时候唐突对vol发情
+
+ ...</blockquote>
+所以我最近称呼她为妖薇<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
