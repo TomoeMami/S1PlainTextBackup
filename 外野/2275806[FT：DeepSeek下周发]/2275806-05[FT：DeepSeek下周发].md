@@ -1142,3 +1142,14 @@ Closeai是5.6luna快速，不如flash，区</blockquote>
 
 发新模型，适配codex，harness，涨价，这四个事官方一直没有说过是同步一起落地的，都是大家自己在猜测或者小道消息，也是没谁了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  neptunehs  
+##### 6025#       发表于 2026-8-8 22:37
+
+今天似乎看到fable6快了
+是不是ds在等fable6或者gpt6 好让自己别拿第一省的出啥问题（做梦
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
