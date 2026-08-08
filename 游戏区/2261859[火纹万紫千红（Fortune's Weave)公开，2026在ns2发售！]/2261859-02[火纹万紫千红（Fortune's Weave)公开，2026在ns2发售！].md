@@ -8486,3 +8486,11 @@ TB怎么日版港版价格差那么多</blockquote>
 难道不是好事吗？一大堆本来叫大众西洋名字的角色现在放眼全二次元都没有重名的人，唯一性拉爆了 ...</blockquote>
 翻译乱加戏，我受不了
 
+
+*****
+
+####  蓝雉  
+##### 2290#       发表于 2026-8-8 23:01
+
+这样翻译好处是搜二创完全不会搜到无关信息，我挺喜欢的<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
