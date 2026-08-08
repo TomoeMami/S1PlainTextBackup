@@ -902,3 +902,38 @@ gpt只不过开放网页对话额度而已<img src="https://static.stage1st.com/
  gpt只不过开放网页对话额度而已  智谱清言也开放啊</blockquote>
 那位漏油不就是要网页端和app的替代品么
 
+
+*****
+
+####  FLZB  
+##### 6003#       发表于 2026-8-8 16:23
+
+网页版是不是比API蠢？还是说现在DS写代码的能力相对别家更弱？昨天心血来潮让DS给我写了个简单的gmod小插件（我完全是零基础编程小白），来来回回调了一晚上主功能总是有bug修不好不说设置界面也稀碎。最后整理需求换哈基米结果一发入魂，从主功能到设置界面都几乎完美，之后又让它给我加了一堆功能，全程只出现了两次脚本报错和两个小bug<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 6004#       发表于 2026-8-8 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70036790&amp;ptid=2275806" target="_blank">FLZB 发表于 2026-8-8 16:23</a>
+
+网页版是不是比API蠢？还是说现在DS写代码的能力相对别家更弱？昨天心血来潮让DS给我写了个简单的gmod小插 ...</blockquote>
+网页版没更新，还是老的模型……
+
+*****
+
+####  糊状物  
+##### 6005#       发表于 2026-8-8 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70036790&amp;ptid=2275806" target="_blank">FLZB 发表于 2026-8-8 16:23</a>
+
+网页版是不是比API蠢？还是说现在DS写代码的能力相对别家更弱？昨天心血来潮让DS给我写了个简单的gmod小插 ...</blockquote>
+网页和app还是旧flash , 没更新最新模型的,乖乖上api
+
+*****
+
+####  wandeeees  
+##### 6006#       发表于 2026-8-8 16:27
+
+网页版要是上了铁定和之前的pro被反代一样也会被反代把
+
