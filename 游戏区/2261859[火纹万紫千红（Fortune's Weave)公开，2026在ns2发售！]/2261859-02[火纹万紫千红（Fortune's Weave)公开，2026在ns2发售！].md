@@ -8416,3 +8416,14 @@ if那会只要和自己和解玩不死人模式有即时存档想悔棋多少次
 
 TB怎么日版港版价格差那么多
 
+
+*****
+
+####  ascomnet  
+##### 2283#       发表于 2026-8-8 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70037582&amp;ptid=2261859" target="_blank">gbjbb 发表于 2026-8-8 19:20</a>
+
+TB怎么日版港版价格差那么多</blockquote>
+日版定价本身就比港版便宜
+
