@@ -8299,3 +8299,22 @@ if那会只要和自己和解玩不死人模式有即时存档想悔棋多少次
 
 别人在聊游戏，你是个什么东西搁这儿锐评别人怎么玩。
 
+
+*****
+
+####  wilkyway  
+##### 2271#       发表于 2026-8-8 15:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70036382&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-8-8 15:16</a>
+和自己和解了之后，觉醒了自卑属性，看挑战传统模式的人就觉得是在装杯。</blockquote>
+真的喜欢的是挑战而不是装杯的话为什么会嫌难呢？
+我看柜子理所当然的玩死人模式的时候都是享受这种不允许出错的紧张感来着啊<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  28201  
+##### 2272#       发表于 2026-8-8 15:35
+
+这主剧情不会真就野炊但是可以穿越救四英杰加上老婆可选吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

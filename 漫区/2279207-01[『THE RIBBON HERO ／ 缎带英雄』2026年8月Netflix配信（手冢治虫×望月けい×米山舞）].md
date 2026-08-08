@@ -1006,3 +1006,14 @@ CGディレクター：長嶺明音
 
 2026-8-6 22:27 上传
 
+
+*****
+
+####  千恋万花  
+##### 78#       发表于 2026-8-8 15:26
+
+[ToonsHub] THE RIBBON HERO (2026) 1080p NF WEB-DL DUAL DDP5.1 H.264 (Dual-Audio, Multi-Subs)
+[https://nyaa.si/view/2143339](https://nyaa.si/view/2143339)
+
+magnet:?xt=urn:btih:14d30084bca22779dc6a017654a526e6033ac63f
+
