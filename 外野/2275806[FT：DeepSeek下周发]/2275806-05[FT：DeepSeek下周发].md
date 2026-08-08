@@ -851,3 +851,24 @@ codex 之前我用得少的时候天天重置，这周我把月额度蹬完了�
 
 Flash被蹬智障了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让他写个冒险加人的故事坚持要把人直接加进来
 
+
+*****
+
+####  此誓的守望  
+##### 5998#       发表于 2026-8-8 15:54
+
+你还说别，你要说Zcode是DS的伪专武还真没问题，毕竟5.2的底模是ds3.2，你就说是不是ds系列的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5999#       发表于 2026-8-8 15:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70036354&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-8 15:11</a>
+现在deepseek的网页端和app基本没法用了现在搜索资料和简单对话用哪个app好一点，千问？
+
+—— 来自 vivo V ...</blockquote>
+Rikkahub或者chatbox接个tavily的api
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

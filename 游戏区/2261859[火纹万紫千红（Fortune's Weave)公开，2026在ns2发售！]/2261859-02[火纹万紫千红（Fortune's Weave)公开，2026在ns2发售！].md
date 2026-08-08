@@ -8333,3 +8333,35 @@ if那会只要和自己和解玩不死人模式有即时存档想悔棋多少次
 
 为什么有你这种阴湿小人非要跳出来恶心人呢。
 
+
+*****
+
+####  Linkwjj  
+##### 2274#       发表于 2026-8-8 15:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70034801&amp;ptid=2261859" target="_blank">佛罗伦萨 发表于 2026-8-8 10:41</a>
+
+在我的幻想里，总觉得本作的结局会出现三房很多角色小时候的立绘。
+
+这是作为前作蹭热度的应该有的方式吧， ...</blockquote>
+不如幻想结尾苏提斯拿出一张照片上面是贝老师和n个抱着娃的女学生合照<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wilkyway  
+##### 2275#       发表于 2026-8-8 15:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70036525&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-8-8 15:41</a>
+聊悔棋的先进性的同时感慨一下过去的难度而已。
+
+为什么有你这种阴湿小人非要跳出来恶心人呢。 ...</blockquote>
+原来如此 重复发明轮子再阉割一部分体现的是先进性啊 受教了
+
+*****
+
+####  はちたや  
+##### 2276#       发表于 2026-8-8 15:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">泥潭的风向真是看不懂
+
