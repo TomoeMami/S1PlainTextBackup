@@ -872,3 +872,33 @@ Rikkahub或者chatbox接个tavily的api
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  舞以  
+##### 6000#       发表于 2026-8-8 16:07
+
+gpt也能试试？现在说是开放对面用户的额度了？
+但是如果只是低级模型加上限制推理预算的话效果不知道满不满意。
+
+
+*****
+
+####  lactone  
+##### 6001#       发表于 2026-8-8 16:08
+
+gpt只不过开放网页对话额度而已<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+智谱清言也开放啊
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  舞以  
+##### 6002#       发表于 2026-8-8 16:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70036703&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-8 16:08</a>
+ gpt只不过开放网页对话额度而已  智谱清言也开放啊</blockquote>
+那位漏油不就是要网页端和app的替代品么
+
