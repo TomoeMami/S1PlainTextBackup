@@ -1291,3 +1291,14 @@ DS v4f 至少0731是能明显感觉对注入清醒不少，不用高级点儿的
 网页版是不是比API蠢？还是说现在DS写代码的能力相对别家更弱？昨天心血来潮让DS给我写了个简单的gmod小插 ...</blockquote>
 哈基米是啥
 
+
+*****
+
+####  FLZB  
+##### 6037#       发表于 2026-8-9 02:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70039878&amp;ptid=2275806" target="_blank">游公子 发表于 2026-8-9 01:51</a>
+
+哈基米是啥</blockquote>
+gemini<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
