@@ -985,3 +985,12 @@ Closeai是5.6luna快速，不如flash，区
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  舞以  
+##### 6011#       发表于 2026-8-8 17:07
+
+反代ds是因为梁圣之前在网页端给的模型和api是一样的啊<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+其他家基本都是限额或者只给垃圾模型
+
