@@ -1113,3 +1113,15 @@ magnet:?xt=urn:btih:14d30084bca22779dc6a017654a526e6033ac63f
 
 后半段直接整段垮掉，监督脚本演出可以一起枪毙了
 
+
+*****
+
+####  UnrealApartheid  
+##### 91#       发表于 2026-8-8 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70038819&amp;ptid=2279207" target="_blank">starring 发表于 2026-8-8 22:29</a>
+看了30分钟顶不住关掉，主角的CV棒读程度已经严重影响观感</blockquote>
+Saaya本质就是搞笑艺人，这是她第一次担任声优，棒读是必然的结果
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

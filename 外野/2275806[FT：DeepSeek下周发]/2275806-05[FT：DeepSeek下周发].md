@@ -1164,3 +1164,13 @@ Closeai是5.6luna快速，不如flash，区</blockquote>
 国行Apple智能将搭载千问    Re:Source</blockquote>
 没啥问题，小尺寸多模态的生态位几乎只有qwen，虽然scaling不如其他家
 
+
+*****
+
+####  蛋黄酱Release  
+##### 6027#       发表于 2026-8-8 23:40
+
+qwen3.8在aa站上排名怎么跳来跳去的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
