@@ -625,3 +625,32 @@ codex 之前我用得少的时候天天重置，这周我把月额度蹬完了�
 或者单纯使用体验上，想要 ...</blockquote>
 如果用的v4f可以用reasonix先过渡一下等专武，其它模型其实codex也可以，不是非得用cc的
 
+
+*****
+
+####  CCauchy  
+##### 5978#       发表于 2026-8-8 12:07
+
+持续学习/自我改进怎么搞啊？每个用户一个差分模型吗，以后没有缓存的事了？还是说某种新型压缩上下文缓存？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  来都来了  
+##### 5979#       发表于 2026-8-8 12:12
+
+ 本帖最后由 来都来了 于 2026-8-8 12:13 编辑 
+
+想多了，持续学习八成就是类似Claude，给你本地整一个MD文档，平时的错题本都记到里面。
+
+*****
+
+####  overflowal  
+##### 5980#       发表于 2026-8-8 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70035216&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-8 12:07</a>
+持续学习/自我改进怎么搞啊？每个用户一个差分模型吗，以后没有缓存的事了？还是说某种新型压缩上下文缓存 ...</blockquote>
+不知道怎么搞，都说是探索中了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
