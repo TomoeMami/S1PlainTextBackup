@@ -2547,3 +2547,14 @@ X1最近几年在海外有翻案倾向（剧情+系统），不过这跟我们�
 小黑盒。。。。。。。。</blockquote>
 谢谢，叠了盒币32拿下，买完发现忘了领极赏星球的支付券
 
+
+*****
+
+####  alucardcz  
+##### 244#       发表于 2026-8-8 11:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70034045&amp;ptid=2280008" target="_blank">chaosp 发表于 2026-8-8 01:50</a>
+
+谢谢，叠了盒币32拿下，买完发现忘了领极赏星球的支付券</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要慌 反正也是几毛
+

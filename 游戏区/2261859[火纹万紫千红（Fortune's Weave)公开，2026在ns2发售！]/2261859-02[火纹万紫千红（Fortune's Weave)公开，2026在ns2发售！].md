@@ -8207,3 +8207,23 @@ ag怎么就开始对战旗关卡设计贷款吃屎了
 <img src="https://p.sda1.dev/34/7955de5ecbd1214813449d6eb521f609/IMG_CDBB935869DAD615A0E73B584D75876C.jpeg" referrerpolicy="no-referrer">
 <img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">穿越题材必备问题：为啥不早穿一点.jpg
 
+
+*****
+
+####  bbluekid  
+##### 2262#       发表于 2026-8-8 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70035106&amp;ptid=2261859" target="_blank">会长辅佐 发表于 2026-8-8 11:44</a>
+穿越题材必备问题：为啥不早穿一点.jpg</blockquote>
+去问神祖啊，我就一打工的
+
+*****
+
+####  karastar  
+##### 2263#       发表于 2026-8-8 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70035106&amp;ptid=2261859" target="_blank">会长辅佐 发表于 2026-8-8 11:44</a>
+
+穿越题材必备问题：为啥不早穿一点.jpg</blockquote>
+你也是被选中的打工人，你的老爸必须死<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
