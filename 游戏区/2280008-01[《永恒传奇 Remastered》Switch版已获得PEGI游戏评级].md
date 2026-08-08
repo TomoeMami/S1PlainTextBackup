@@ -2638,3 +2638,11 @@ TOX也是垃…玩了半小时就觉得不对劲了，怎么会有这么无聊�
 
 别像个自我意识过剩的老登似的在论坛发癫
 
+
+*****
+
+####  Xenor  
+##### 250#       发表于 2026-8-9 07:43
+
+确实很菜，特别是还浪费了几个小时时间，所以我很佩服能坚持把它们玩完还说好的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
