@@ -1094,3 +1094,18 @@ hermes算是有，他知道之前在干什么，但是我没想到他只是知�
 
 涉及文件转换、数据获取、数据分析、文档读取或格式处理时，必须先检查是否有功能匹配的Skill。如有则按Skill规范执行。Skill中如已指明MCP调用，按Skill流程调用。无可用Skill时，再检查MCP是否有对应工具。均无可用工具时告知用户，获得确认后再编写代码。
 
+
+*****
+
+####  scikirbypoke  
+##### 6021#       发表于 2026-8-8 19:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70036947&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-8 16:53</a>
+
+免费网页对话里
+
+智谱最好的是5.2，不如flash，区
+
+Closeai是5.6luna快速，不如flash，区</blockquote>
+千问网页现在有3.8，还不像glm和kimi那样卡/要求开套餐
+
