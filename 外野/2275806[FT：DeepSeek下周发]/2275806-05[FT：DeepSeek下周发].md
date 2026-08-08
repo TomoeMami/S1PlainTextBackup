@@ -1109,3 +1109,11 @@ hermes算是有，他知道之前在干什么，但是我没想到他只是知�
 Closeai是5.6luna快速，不如flash，区</blockquote>
 千问网页现在有3.8，还不像glm和kimi那样卡/要求开套餐
 
+
+*****
+
+####  王兰花秀丽  
+##### 6022#       发表于 2026-8-8 20:53
+
+国行Apple智能将搭载千问    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
