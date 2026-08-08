@@ -7632,3 +7632,17 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 
 在意蛋数可以带卫星或风扇，自从用了卫星，联机数据好看多了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moonmagian  
+##### 902#       发表于 2026-8-8 11:25
+
+真boss之前build和终盘内容的单调还能归结于鱿研所水平问题
+真boss感觉就是极致敷衍，打得想骂人
+高攻血牛，没有演出和有意思的机制，bgm也难听
+但凡打到残血来个转场放首处刑bgm都当他努力了，可惜并没有<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+打完只觉得终于出狱了，没有一点爽感
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

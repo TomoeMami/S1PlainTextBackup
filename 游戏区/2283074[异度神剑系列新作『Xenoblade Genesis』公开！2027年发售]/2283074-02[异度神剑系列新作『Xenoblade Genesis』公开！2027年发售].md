@@ -431,3 +431,38 @@ https://store-jp.nintendo.com/item/software/D70010000130288
 
 新作应该会加重动作要素的比例吧，甚至可能会变成aprg？
 
+
+*****
+
+####  woaimiyabi  
+##### 2029#       发表于 2026-8-8 11:17
+
+之前x上有人绘制的 学院周边地图。
+
+e351acb1cb13495423da8e66104e9258d0094a7e.jpg
+(107.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-8 11:16 上传
+
+<img src="https://img.stage1st.com/forum/202608/08/111655f084678l8nw7oxos.jpg" referrerpolicy="no-referrer">
+
+210cf058ccbf6c81b4f34aeafa3eb13532fa407e.jpg
+(120.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-8 11:16 上传
+
+<img src="https://img.stage1st.com/forum/202608/08/111659b8o2xv5qq6x7r51e.jpg" referrerpolicy="no-referrer">
+
+8e74a38ba61ea8d3c1e61206d10a304e241f587e.jpg
+(101.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-8 11:17 上传
+
+<img src="https://img.stage1st.com/forum/202608/08/111702usshcpz8f83i802f.jpg" referrerpolicy="no-referrer">
+
