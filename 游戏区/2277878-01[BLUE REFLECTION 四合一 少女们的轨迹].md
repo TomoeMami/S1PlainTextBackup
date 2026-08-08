@@ -1557,3 +1557,14 @@ Pc版那么大吗</blockquote>
 https://bbs.3dmgame.com/thread-6689385-1-1.html
 https://bbs.3dmgame.com/thread-6690564-1-1.html
 
+
+*****
+
+####  新HGCG  
+##### 133#         楼主| 发表于 2026-8-8 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70031411&amp;ptid=2277878" target="_blank">whzfjd 发表于 2026-8-7 19:24</a>
+
+给光荣的一封道歉信</blockquote>
+居然有这种BUG
+

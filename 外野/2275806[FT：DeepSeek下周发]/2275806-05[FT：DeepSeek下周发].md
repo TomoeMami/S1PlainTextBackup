@@ -1069,3 +1069,16 @@ claude就不说了
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  阿刚  
+##### 6019#       发表于 2026-8-8 18:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70037180&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-8 17:37</a>
+
+如果用有全局记忆的agent倒是可以避免这个问题
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0 ...</blockquote>
+hermes算是有，他知道之前在干什么，但是我没想到他只是知道自己在干嘛实际上不知道是怎么干的……
+

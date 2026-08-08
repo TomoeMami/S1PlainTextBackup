@@ -2762,3 +2762,18 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 我经常懒得动脑子还是卑弥呼c呆c狐耐久队的，狐狸一个宝具全体np50％还回血减技能CD，但其他队真没上班位置。
 
+
+*****
+
+####  angelooo  
+##### 21321#       发表于 2026-8-8 18:13
+
+陀螺：你他吗几个意思
+
+*****
+
+####  alucardcz  
+##### 21322#       发表于 2026-8-8 18:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漏油还是太欧了 萌新今天只有一个强化本能打
+
