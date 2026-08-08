@@ -3289,3 +3289,12 @@ anime expo场刊里面表述茉里不是一个假小子，看到现在有人认�
 
 菈菈在努力的融入人类社会（至少知道钱不容易赚了），这一集把她的人物成长弧光刻画得十分到位，最后的超展开感觉又把紧张感拉起来了，很期待下一集
 
+
+*****
+
+####  ArthurDent  
+##### 267#       发表于 2026-8-9 01:00
+
+<img src="https://img.dancihu.com/pic/2024-10-19/94c3200e-c8f3-3435-45ea-f0d31e279f8f.jpg" referrerpolicy="no-referrer">
+<img src="https://nagato15498.oss-cn-hangzhou.aliyuncs.com/2026-08-09-00-45-52.png" referrerpolicy="no-referrer">
+
