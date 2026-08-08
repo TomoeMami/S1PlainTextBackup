@@ -8365,3 +8365,11 @@ if那会只要和自己和解玩不死人模式有即时存档想悔棋多少次
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">泥潭的风向真是看不懂
 
+
+*****
+
+####  ace8848  
+##### 2277#       发表于 2026-8-8 16:39
+
+讲道理不死人和悔棋确实是不同的体验，悔棋是低成本寻找最优解，不死人是不需要最优解。
+

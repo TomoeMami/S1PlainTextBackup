@@ -937,3 +937,34 @@ gpt只不过开放网页对话额度而已<img src="https://static.stage1st.com/
 
 网页版要是上了铁定和之前的pro被反代一样也会被反代把
 
+
+*****
+
+####  FLZB  
+##### 6007#       发表于 2026-8-8 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70036797&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-8 16:23</a>
+
+网页版没更新，还是老的模型……</blockquote>
+草，难怪<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sellboy  
+##### 6008#       发表于 2026-8-8 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70036818&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-8 16:27</a>
+
+网页版要是上了铁定和之前的pro被反代一样也会被反代把</blockquote>
+别家也不是没有免费可用的网页版呀，价差更悬殊的那几家不去蹬，非要蹬没贵几毛钱的就很离谱。
+
+*****
+
+####  wandeeees  
+##### 6009#       发表于 2026-8-8 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70036886&amp;ptid=2275806" target="_blank">sellboy 发表于 2026-8-8 16:40</a>
+
+别家也不是没有免费可用的网页版呀，价差更悬殊的那几家不去蹬，非要蹬没贵几毛钱的就很离谱。 ...</blockquote>
+有钱可赚，如此而已
+
