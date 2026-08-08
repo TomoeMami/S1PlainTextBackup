@@ -2777,3 +2777,13 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漏油还是太欧了 萌新今天只有一个强化本能打
 
+
+*****
+
+####  森兰丸  
+##### 21323#       发表于 2026-8-8 18:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么？这几天每天新开的强化本不是一直都只有1个吗...哪里来的2个
+
+你们不要骗非洲人啊
+
