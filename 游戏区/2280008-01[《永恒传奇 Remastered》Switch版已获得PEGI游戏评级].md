@@ -2601,3 +2601,28 @@ GF的整体规模比V小，限时支线相对也要少一点
 R3切大地图界面有限时任务的城镇会增加标记，复刻加了这个 ...</blockquote>
 谢谢，限时任务不漏就行，小对话太难全收集，只能随缘了
 
+
+*****
+
+####  Xenor  
+##### 248#       发表于 2026-8-9 07:13
+
+TOB原来是TALES OF BERSERIA REMASTERED<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">很多年前电脑上玩了半小时就永久消失了，试了下NS版重置照样玩不动，出了屋就狂晕3D，而且这人设也太丑了，一副苦大仇深的，战斗简直是垃中之极…宁肯去玩RPG了没撑过20分钟图都懒得截了
+
+TOX也是垃…玩了半小时就觉得不对劲了，怎么会有这么无聊的传说游戏，剧情对话还有逻辑根本没法看，尴尬之极，不过TOX的几个女主人设还是挺好的，像鸵鸟一样跑的女主，还有后面遇到一个拿咬人人偶的LOLI以及在OP里看到头上有花的短发妹子。。冲着莫名其妙的女主人设接着玩了4小时，现在也快撑不下去了，满地图爬上跳下开宝箱各种没意思，战斗系统僵硬死板，毫无爽感，唯一爽点是看女主那像鸡窝一样的头发<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">男主也是个怪人，一开始就像鼻涕一样跟着女主，甩都甩不掉救命啊，还动不动就柯南模式显得很机智的样子，另一个佣兵同伴也是强行塞入，仿佛智障一样还跟男主一块尴聊666
+
+问题这竟然还是MAXWELL，老头啥时候变美少女了…还有TOP里魔科学的影子
+<img src="https://p.sda1.dev/34/8489461ecdab093ab5de28259c7991d6/d.jpg" referrerpolicy="no-referrer">
+
+这头发…我要是鸟绝对会选择在里面做窝
+<img src="https://p.sda1.dev/34/73ef280946cd7556f15397343cf1c241/e.jpg" referrerpolicy="no-referrer">
+
+惊奇的是地位还挺高的，传说里能操作大佬主角还是头一回见到
+<img src="https://p.sda1.dev/34/2f9dfab89d188324c19e4574f8614e91/a.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/243624ae41ae35fe4e80fd5f284469bb/b.jpg" referrerpolicy="no-referrer">
+
+前面还觉得男主像鼻涕甩不掉，后面女主竟然真的掉鼻涕了<img src="https://static.stage1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">槽点神多
+<img src="https://p.sda1.dev/34/bbd7c21902802e68193dc03bae5a65b1/c.jpg" referrerpolicy="no-referrer">
+
+堂堂难梦公百代怎么混成这个样子，对比之下法老控简直天使
+
