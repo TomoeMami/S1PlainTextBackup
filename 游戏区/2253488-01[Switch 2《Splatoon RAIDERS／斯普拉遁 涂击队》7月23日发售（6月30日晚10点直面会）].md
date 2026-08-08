@@ -7624,3 +7624,11 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  otakun  
+##### 901#       发表于 2026-8-8 10:50
+
+在意蛋数可以带卫星或风扇，自从用了卫星，联机数据好看多了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

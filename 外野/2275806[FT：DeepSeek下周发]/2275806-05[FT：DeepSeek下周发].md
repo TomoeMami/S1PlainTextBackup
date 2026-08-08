@@ -583,3 +583,32 @@ codex让我觉得好用的还是那个桌面端，但是桌面端有严重的长
 flash正式版确实甲变厚了不少
 可能是这个原因导致的
 
+
+*****
+
+####  焚尘  
+##### 5974#       发表于 2026-8-8 10:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">现在还在用Claude Code，想试试新的agent，什么比较靠谱的agent能力比较排行吗？
+
+或者单纯使用体验上，想要比较好的生态以及扩展能力，然后又要保证至少比肩Claude Code的工作能力的agent？
+
+*****
+
+####  半江瑟瑟半江红  
+##### 5975#       发表于 2026-8-8 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70034834&amp;ptid=2275806" target="_blank">焚尘 发表于 2026-8-8 10:48</a>
+现在还在用Claude Code，想试试新的agent，什么比较靠谱的agent能力比较排行吗？或者单纯使用体验上，想要 ...</blockquote>
+那你一句比肩claudecode就杀死比赛了
+本来我还想推荐一下zcode的，但这玩意其实还不如opencode
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  小野賢章  
+##### 5976#       发表于 2026-8-8 10:50
+
+codex 之前我用得少的时候天天重置，这周我把月额度蹬完了，然后一直没有重置<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
