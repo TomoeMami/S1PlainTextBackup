@@ -994,3 +994,22 @@ Closeai是5.6luna快速，不如flash，区
 反代ds是因为梁圣之前在网页端给的模型和api是一样的啊<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 其他家基本都是限额或者只给垃圾模型
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 6012#       发表于 2026-8-8 17:14
+
+国外模型，GEMINI之前对web反代是管得最松的，2.5pro和3时期还有反代价值，现在哈哈
+
+gpt是反代会给你路由到mini模型
+
+claude就不说了
+
+*****
+
+####  阿刚  
+##### 6013#       发表于 2026-8-8 17:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我真的不行了，这个逼ai老是弄一些匪夷所思的弱智操作，让他确定一个档案的位置，明明相关skill里面都标注了整个文件构架，他不看skill直接开始全盘乱搜。有时候知道可能是我指令下达的不够精准，但是他这种让人上头的弱智操作你们都是怎么排解这种情绪的……
+
