@@ -992,3 +992,11 @@ pvpve嗎……小高搜打撒？
 
 落选！<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  laosai13  
+##### 107#       发表于 2026-8-8 07:48
+
+日服这么多落选的吗，美服这里没看到落选的
+
