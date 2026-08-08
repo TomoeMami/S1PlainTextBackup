@@ -1127,3 +1127,18 @@ Closeai是5.6luna快速，不如flash，区</blockquote>
 
 梁子又要失约了
 
+
+*****
+
+####  cscbzcbz  
+##### 6024#       发表于 2026-8-8 22:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70038062&amp;ptid=2275806" target="_blank">hencechen 发表于 2026-8-8 21:05</a>
+还有差不多26个小时，八月初就结束了。
+
+梁子又要失约了</blockquote>
+官方从来没说8月初发模型吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+文档里写的是8月初pro适配codex，同步发新模型是推测的
+
+发新模型，适配codex，harness，涨价，这四个事官方一直没有说过是同步一起落地的，都是大家自己在猜测或者小道消息，也是没谁了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
