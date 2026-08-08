@@ -8373,3 +8373,13 @@ if那会只要和自己和解玩不死人模式有即时存档想悔棋多少次
 
 讲道理不死人和悔棋确实是不同的体验，悔棋是低成本寻找最优解，不死人是不需要最优解。
 
+
+*****
+
+####  otakun  
+##### 2278#       发表于 2026-8-8 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70036629&amp;ptid=2261859" target="_blank">はちたや 发表于 2026-8-8 15:56</a>
+泥潭的风向真是看不懂</blockquote>
+倒也不只是泥潭风向，是现在网络上的风向--谁弱谁有理。游戏有点难度就国骂，你玩标准难度/困难难度能打过就是装逼，然后金句“是我玩游戏，不是被游戏玩”挂在嘴边，老金/外挂走起。本来就是自由选择，非要寻求并不需要的正当性来维护自己，自卑得可怕，又没人在乎他们怎么玩或者玩不玩<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

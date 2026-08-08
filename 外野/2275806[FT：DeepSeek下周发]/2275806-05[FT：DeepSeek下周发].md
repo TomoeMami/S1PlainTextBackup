@@ -1035,3 +1035,37 @@ claude就不说了
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  舞以  
+##### 6016#       发表于 2026-8-8 17:31
+
+别纠结过程，只验收结果<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+领导就是在vibe work
+
+
+*****
+
+####  阿刚  
+##### 6017#       发表于 2026-8-8 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70037136&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-8 17:26</a>
+
+以flash的指令遵循能力不可能这样啊，这几天大肥鱼被蹬傻了？
+
+—— 来自 HUAWEI SGU-AL10, Android 16,  ...</blockquote>
+找到症结了，那是个新开的会话，我习惯性直接让他翻skill的档案，上一个会话他是读过skill的，这次等于没读skill但是我要档案了，他就开始疯狂的一顿乱搜……我以为他读过日志就该知道档案存储布局了，所以事情就变成了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我不管，我就是要发泄情绪
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6018#       发表于 2026-8-8 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70037161&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-8 17:34</a>
+找到症结了，那是个新开的会话，我习惯性直接让他翻skill的档案，上一个会话他是读过skill的，这次等于没 ...</blockquote>
+如果用有全局记忆的agent倒是可以避免这个问题
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
