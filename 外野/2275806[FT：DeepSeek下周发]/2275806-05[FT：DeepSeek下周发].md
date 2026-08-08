@@ -753,3 +753,13 @@ codex 之前我用得少的时候天天重置，这周我把月额度蹬完了�
 
 英伟达免费API更新flash0731了，现在没多少人发现速度还挺快
 
+
+*****
+
+####  jasoncoop  
+##### 5989#       发表于 2026-8-8 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70035986&amp;ptid=2275806" target="_blank">Luminous脑壳痛 发表于 2026-8-8 13:57</a>
+为什么现在才说张一鸣是汉奸,前两年抖音收购第一时间给美国跪下不就已经定性了吗 ...</blockquote>
+火星公民张一鸣，没错，这次是双重验证
+
