@@ -1361,3 +1361,13 @@ Codex 终于重置额度了。
 
 这个逆向 的open-kimi-ppt-skill 因为版权原因下架了<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  80后卢瑟  
+##### 6043#       发表于 2026-8-9 11:25
+
+明天 DeepSeek 的大的应该要来了吧
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
