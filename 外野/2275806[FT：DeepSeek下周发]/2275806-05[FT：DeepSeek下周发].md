@@ -1883,3 +1883,22 @@ Composer 3 的一些爆料已经有了
 除非量化这块出了什么奇迹 让q4逼近q8的效果</blockquote>
 我之前试过那个三元版bonsai 27b，其实能力挺惊喜的，速度也凑合，但是运行起来太麻烦了
 
+
+*****
+
+####  zhongjie  
+##### 6091#       发表于 2026-8-9 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70042548&amp;ptid=2275806" target="_blank">cxj649 发表于 2026-8-9 18:30</a>
+于是明天是8月中旬了</blockquote>
+已知七月中旬为7.31。所以8月初为8.1-8.30不是很正常吗（
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  wiwiluo  
+##### 6092#       发表于 2026-8-9 19:04
+
+想问一下opencode go订阅的DeepSeek V4 Pro和flash和官方的比有什么区别吗？现在是opencode自部署的V4Flash吗？Go订阅的性价比怎么样
+
