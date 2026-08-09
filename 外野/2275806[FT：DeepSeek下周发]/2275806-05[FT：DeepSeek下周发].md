@@ -2067,3 +2067,38 @@ kimi、glm、现在更新了的deepseek都可以。
 
 里边性价比最高是deepseek，前端最强是kimi（也最贵最慢），glm在等更新周期估计这两周就发。
 
+
+*****
+
+####  舞以  
+##### 6108#       发表于 2026-8-9 21:26
+
+最爆笑的是那种拿中转站价格吹oa的模型有性价比的<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+你要是一个月花了200刀我还能理解
+
+*****
+
+####  goranger  
+##### 6109#       发表于 2026-8-9 21:29
+
+市场会用脚投票的，好不好用用了就知道
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  一般市民  
+##### 6110#       发表于 2026-8-9 21:30
+
+openrouter上的GLM最近一直在打折，现在最高95% off，也是不错 <img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  舞以  
+##### 6111#       发表于 2026-8-9 21:30
+
+tibo说是周一还会重置一次？
+感觉该狠蹬了，我还有一张13号过期的重置卡<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+希望v4pro能让我不续gpt pro20x
+

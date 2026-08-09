@@ -1650,3 +1650,13 @@ SD纹理中，开抗锯齿和环境光遮蔽，其他全低，系统锁30帧，�
 帝放到最后玩，现在玩幻
 <img src="https://p.sda1.dev/34/5673cdc12ce89fb28aee5313044d6166/image.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  达达葱2  
+##### 140#       发表于 2026-8-9 21:30
+
+<blockquote>WGTCorp 发表于 2026-8-9 16:52
+这个画质设置似乎可以撑三个小时出头，之后试一下把画质调高点续航有多久。 ...</blockquote>
+NS2 吗？
+
