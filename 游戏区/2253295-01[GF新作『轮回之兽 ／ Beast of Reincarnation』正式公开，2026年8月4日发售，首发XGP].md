@@ -2836,3 +2836,14 @@ GF还是老老实实抱宝可梦大腿吧</blockquote>
 
 小库要打两次吗？打完绯红那个没跳成就
 
+
+*****
+
+####  m98626  
+##### 562#       发表于 2026-8-10 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70043756&amp;ptid=2253295" target="_blank">螺旋的小夜曲 发表于 2026-8-9 22:43</a>
+
+小库要打两次吗？打完绯红那个没跳成就</blockquote>
+打完霸主形态就解锁了，没跳就是成就同步出bug了，隔壁CE重制版也有这种情况
+
