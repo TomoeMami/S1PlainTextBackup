@@ -50,3 +50,15 @@
 
 从45集开始觉得无聊了，和看没什么营养的网文时的感觉差不多，又或者说像玩流水账RPG游戏的感觉
 
+
+*****
+
+####  一个陆仁贾  
+##### 2139#       发表于 2026-8-9 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70040667&amp;ptid=2250267" target="_blank">阿刚 发表于 2026-8-9 11:03</a>
+这集结果最后也没解释为啥不上来就用超梦啊</blockquote>
+说是骗忘却新手保护期，最好是真的能骗到
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
