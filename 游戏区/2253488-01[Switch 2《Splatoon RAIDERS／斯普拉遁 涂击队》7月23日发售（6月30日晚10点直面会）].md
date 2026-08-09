@@ -7687,3 +7687,18 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 
 刷又遥遥无期，爬塔或联机又是千篇一律的关卡模式
 
+
+*****
+
+####  三级怪兽  
+##### 906#       发表于 2026-8-9 15:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70035015&amp;ptid=2253488" target="_blank">moonmagian 发表于 2026-8-8 11:25</a>
+
+真boss之前build和终盘内容的单调还能归结于鱿研所水平问题
+
+真boss感觉就是极致敷衍，打得想骂人
+
+高攻血牛 ...</blockquote>
+上一个咚奇刚也是，终局除了真最终boss都很敷衍
+
