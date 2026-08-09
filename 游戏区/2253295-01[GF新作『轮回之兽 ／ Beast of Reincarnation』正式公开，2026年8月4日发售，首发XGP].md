@@ -2855,3 +2855,14 @@ GF还是老老实实抱宝可梦大腿吧</blockquote>
 
 打完后看了下成就，ng+，人狗全技能，等级100级……算了，不玩了<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Farlight  
+##### 564#       发表于 2026-8-10 01:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70043654&amp;ptid=2253295" target="_blank">食粪者 发表于 2026-8-9 22:23</a>
+打完第三章的双boss，觉得还不错。
+打完金牛，我想把gf全公司的人剁成臊子</blockquote>
+我也是，食到大粪了，马拉松B
+
