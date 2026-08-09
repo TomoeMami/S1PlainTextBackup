@@ -1192,3 +1192,17 @@ tdz虽然也是阴角但是漫画乐队双开，怎么说行动力也是拉满�
 
 全靠肚子疼老师和V姐搞暧昧，软色情（？）拉观众了，真的是没V姐谁认识你梦限大啊，我都怀疑开卡池是5张常驻，一个限定vol了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Licheus  
+##### 250#       发表于 2026-8-10 03:31
+
+ 本帖最后由 Licheus 于 2026-8-10 03:33 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70040620&amp;ptid=2283962" target="_blank">rynchee 发表于 2026-8-9 10:53</a>
+
+看了泛式切片才意识到，这片还真是整体剧本构思其实挺完整的，各种伏笔都其实有铺垫，但是演出和vol的存在 ...</blockquote>
+创意阶段就路径依赖了，为了继续折腾这一套不惜写一尊大V神出来。再怎么围绕这个前提打补丁，还是养殖感拉满。
+
+顺便你现在再看放送前的视觉图，有一丁丁丁点关系吗……
+
