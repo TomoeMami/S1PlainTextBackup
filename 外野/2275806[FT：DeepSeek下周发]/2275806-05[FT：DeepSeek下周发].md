@@ -1922,3 +1922,11 @@ Composer 3 的一些爆料已经有了
 
 看了眼X，目前harness还在招人内测，明天没啥可能了，感觉大概率下周五<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 6095#       发表于 2026-8-9 19:56
+
+向DS许愿做了一个小工具，花了两块钱，其中一块钱花在他没有多模态，处理UI缩放的bug只能不停截图给多模态的模型让他描述细节再处理<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
