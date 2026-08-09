@@ -2168,3 +2168,14 @@ syl 怎么职介关卡就关掉了，几乎没打啊<img src="https://static.sta
 
 所长本跟ort比起来如何，看了下流程感觉又臭又长啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 48080#       发表于 2026-8-9 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70042003&amp;ptid=1712412" target="_blank">doublehit 发表于 2026-8-9 16:24</a>
+
+所长本跟ort比起来如何，看了下流程感觉又臭又长啊</blockquote>
+其实还可以吧，很多人没有注意到左下角可以选用回上一次的编队，不断的重复编队导致非常的烦躁。你找好攻略，对着里面的配队照抄或者用自己的上位替代，基本上一轮救过了。不过土所长的最高难度有点难，你先打完最低难度的那个，做完任务开好树再用所长打高难度就是了。
+

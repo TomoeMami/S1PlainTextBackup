@@ -1703,3 +1703,15 @@ muse spark不是测下来根本不遵循指令吗？而且上下限差距极大�
 s1 是不是之前有几次酒馆讨论都被锁帖了
 想试一下破甲刘备，有什么推荐吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  lactone  
+##### 6075#       发表于 2026-8-9 17:08
+
+关键还是看pro的能力
+
+如果超过opus4.8且价格在降价前的原价，我都觉得很强了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
