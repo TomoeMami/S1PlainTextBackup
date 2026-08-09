@@ -3350,3 +3350,47 @@ OP制作幕后：[https://youtu.be/zjEIP030QOc](https://youtu.be/zjEIP030QOc)
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  Eiyuu  
+##### 272#       发表于 2026-8-10 00:45
+
+难道说菈菈，真的不是拉拉是bg?
+
+*****
+
+####  Piano-Forest  
+##### 273#         楼主| 发表于 2026-8-10 00:48
+
+🐚⁺‧┈　#さよならララ エンドカード　┈‧⁺ 🫧˚
+
+　   　　　第6話「わたしを照らす光」
+
+　　
+
+キャラクターデザイン #谷紫織 さんによるエンドカードをお届けします✨
+
+ご視聴いただいた皆さま、ありがとうございました。
+
+明かされたララの姉・リサの悲しき過去。
+
+そして最後にララと茉里の前に現れた人物は…？
+
+来週もお楽しみに！
+
+さよララ～👋
+<img src="https://p.sda1.dev/34/851207874bc726d9397a51c68e974b62/HPRfGzRaYAAjI_q.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/i/status/2086484554714656965](https://x.com/i/status/2086484554714656965)
+
+第1話から登場していた魔女の薬のデザインをお手伝いさせていただいてます！
+<img src="https://p.sda1.dev/34/dd32763f893ed222a6c43ca8a46f704c/HPSupNHbsAA7rmB.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  堆雪若叶  
+##### 274#       发表于 2026-8-10 00:48
+
+把四姐写这么惨感觉走偏了。四姐对人和人鱼的矛盾认知变成了自己的悲惨遭遇，具体而个人的理由完全没有拉拉理解的余地，甚至不一定能和人鱼王念叨的人类丑陋挂钩。另一方面四姐现在混入人类社会还能说忍辱负重，最后要是大和解不会还要带上她吧<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">或者直接和𩽾𩾌鱼殉情了
+

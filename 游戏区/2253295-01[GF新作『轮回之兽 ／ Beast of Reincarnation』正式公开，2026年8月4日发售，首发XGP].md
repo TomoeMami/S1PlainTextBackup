@@ -2847,3 +2847,11 @@ GF还是老老实实抱宝可梦大腿吧</blockquote>
 小库要打两次吗？打完绯红那个没跳成就</blockquote>
 打完霸主形态就解锁了，没跳就是成就同步出bug了，隔壁CE重制版也有这种情况
 
+
+*****
+
+####  Leona_Akari  
+##### 563#       发表于 2026-8-10 00:49
+
+打完后看了下成就，ng+，人狗全技能，等级100级……算了，不玩了<img src="https://static.stage1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
