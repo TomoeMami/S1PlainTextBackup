@@ -1793,3 +1793,11 @@ v4flash不就是个大惊喜么<img src="https://static.stage1st.com/image/smile
 我看白皮玩dgx很爽啊
 qwen要真能27b模型做出v4f的水平，那qwen旗舰还会这么垃圾么<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 6083#       发表于 2026-8-9 17:56
+
+个人部署领域的大惊喜我只能想到一个16G/24G显存的卡真正能跑可用级别的模型了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
