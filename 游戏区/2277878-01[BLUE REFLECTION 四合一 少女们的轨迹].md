@@ -1702,3 +1702,11 @@ NS2 吗？
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Xenor  
+##### 142#       发表于 2026-8-10 07:19
+
+EDCG真蓝，不过合集后反射系列是不是就此终结了…(不-要-啊)<img src="https://static.stage1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
