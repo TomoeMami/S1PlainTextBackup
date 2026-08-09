@@ -1809,3 +1809,23 @@ qwen要真能27b模型做出v4f的水平，那qwen旗舰还会这么垃圾么<im
 
 希望是输入法专用模型和推理程序，而且开源跨平台，可用SIMD指令集加速，使用socket跟Wayland im协议直接通信<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  squallx  
+##### 6085#       发表于 2026-8-9 18:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70042252&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-9 17:34</a>
+x上qwen的社区大使说很快个人部署领域会有大惊喜。如果27b模型能力能打opus4.6，那么个人部署的春天就真的 ...</blockquote>
+27b:我打opus46？真的假的<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  cxj649  
+##### 6086#       发表于 2026-8-9 18:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">于是明天是8月中旬了
+
