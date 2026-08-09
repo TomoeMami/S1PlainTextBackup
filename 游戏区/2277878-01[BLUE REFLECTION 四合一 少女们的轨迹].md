@@ -1660,3 +1660,45 @@ SD纹理中，开抗锯齿和环境光遮蔽，其他全低，系统锁30帧，�
 这个画质设置似乎可以撑三个小时出头，之后试一下把画质调高点续航有多久。 ...</blockquote>
 NS2 吗？
 
+
+*****
+
+####  moonmagian  
+##### 141#       发表于 2026-8-10 01:01
+
+中等价位的スペシャルコレクションボックス到了，还买了CD合集，东西不少，总共差不多40000日元，现在的汇率下还蛮划算的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/10/005800ql1yilld3c5z56ug.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1786294678666_1.webp</strong> (254.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 00:58 上传
+
+<img src="https://img.stage1st.com/forum/202608/10/005800cv0k60yi6tvvdg0g.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1786294679091_2.webp</strong> (161.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 00:58 上传
+
+<img src="https://img.stage1st.com/forum/202608/10/005800nc6ptsv6ksdtca21.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1786294679588_3.webp</strong> (347.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 00:58 上传
+
+<img src="https://img.stage1st.com/forum/202608/10/005800vgzggzsnnbxvgm4u.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1786294680101_4.webp</strong> (137.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 00:58 上传
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
