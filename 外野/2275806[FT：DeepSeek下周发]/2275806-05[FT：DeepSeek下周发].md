@@ -2224,3 +2224,14 @@ DeepSeek的版权甲怎么破 我让它帮我下个游戏Rom它都不帮我<img 
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  hugosol  
+##### 6123#       发表于 2026-8-9 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70043431&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-8-9 21:38</a>
+
+Pathfounders 从行业消息人士处获悉，Hassabis 原本希望与 Dean 同时离职，但谷歌管理层认为这一消息将导致 ...</blockquote>
+我就说Hassabis居然没有跟着一起跑路，明明他看上去应该是最受不了大公司文化那种人
+
