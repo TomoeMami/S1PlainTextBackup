@@ -7720,3 +7720,14 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 
 —— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  第四人称  
+##### 909#       发表于 2026-8-10 01:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70040792&amp;ptid=2253488" target="_blank">Dedalus 发表于 2026-8-9 11:32</a>
+
+再见了这个全是柴油4k的游戏，越玩越感觉掉落物是种子列表不是随机，有些武器没完没了有些无论你怎么刷都不 ...</blockquote>
+和你使用的武器有关的，用狙刷就会出很多狙
+

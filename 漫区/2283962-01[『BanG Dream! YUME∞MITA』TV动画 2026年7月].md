@@ -1171,3 +1171,14 @@ nonoka那不是阳角问题啊，那就是标准的ぷりっ子，而且第二�
 
 看了泛式切片才意识到，这片还真是整体剧本构思其实挺完整的，各种伏笔都其实有铺垫，但是演出和vol的存在导致观众要不是察觉不到伏笔，察觉到的也觉得伏笔不够。
 
+
+*****
+
+####  有钱多买小人  
+##### 248#       发表于 2026-8-10 02:01
+
+ 本帖最后由 有钱多买小人 于 2026-8-10 02:02 编辑 
+
+能不能看到大薇神被tdz捅啊<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">捅什么不重要，能见红就行。
+tdz虽然也是阴角但是漫画乐队双开，怎么说行动力也是拉满的，比起arl和律战斗力要高吧。而且还压抑<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
