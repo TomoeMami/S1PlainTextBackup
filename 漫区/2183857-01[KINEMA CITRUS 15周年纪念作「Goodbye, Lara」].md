@@ -3298,3 +3298,27 @@ anime expo场刊里面表述茉里不是一个假小子，看到现在有人认�
 <img src="https://img.dancihu.com/pic/2024-10-19/94c3200e-c8f3-3435-45ea-f0d31e279f8f.jpg" referrerpolicy="no-referrer">
 <img src="https://nagato15498.oss-cn-hangzhou.aliyuncs.com/2026-08-09-00-45-52.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 268#         楼主| 发表于 2026-8-9 13:08
+
+OP制作幕后：[https://youtu.be/zjEIP030QOc](https://youtu.be/zjEIP030QOc)
+
+さよならララ：クリエーティブプロデューサー　森山菜月インタビュー　いろいろな「人生の要素」が詰まっている
+[https://mantan-web.jp/article/20260807dog00m200060000a.html](https://mantan-web.jp/article/20260807dog00m200060000a.html)
+
+[https://x.com/i/status/2086300080643178967](https://x.com/i/status/2086300080643178967)
+<img src="https://p.sda1.dev/34/483fa185f89c59e83f16c265b95b7faa/HPQG3Fda4AIJEOB.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/34/f92a49b6b62ec95747d05ab2edc4a2e9/HPIP2mpaAAEdLI0.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/442897c00d2eb0b8e838e18de788021d/HPIP2mmbEAA0www.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/349580f69595c47953c5123a22a6c456/HPIP2mzbIAAorsl.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/c0d2bc7ac0d3d9bc7ee176d66c943a7e/HPIP2m4bwAA1IVy.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/34/b150a539ef2f9e3007ad0ea1f4cf19ca/HPHdb1rb0AAmSMw.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/877909cf61b0790f7987319663271779/HPHhspqbgAExt2H.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/f341124bf47c60488d849570d9d83147/HPHgBKiacAEjt61.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/6588e6c4692a51d08a9b0593f6c756f6/HPHdvGTbgAE9iW8.jpg" referrerpolicy="no-referrer">
+

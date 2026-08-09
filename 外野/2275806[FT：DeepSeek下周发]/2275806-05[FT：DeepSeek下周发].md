@@ -1442,3 +1442,20 @@ Codex 终于重置额度了。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qz66618  
+##### 6051#       发表于 2026-8-9 13:14
+
+明天真能来吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  泰坦失足  
+##### 6052#       发表于 2026-8-9 13:15
+
+Agents.md里强调了不要轮子套测试套回退套自检, 还是大概6小时时间就能发现Gpt 5.6 sol在试图让简单任务复杂化. 时不时就要停下来让另一个agent code review降低复杂度. 复杂度太高了, 只会出现Sol max都没法检查出所有坑的怪物.
+
