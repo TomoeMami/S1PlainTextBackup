@@ -80,3 +80,45 @@
 
 这集纯粹是拖时间吧<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TOYSTORY  
+##### 2142#       发表于 2026-8-9 22:48
+
+ 本帖最后由 TOYSTORY 于 2026-8-9 22:51 编辑 
+
+<img src="https://img.stage1st.com/forum/202608/09/224904qogyfvgfrhnhr1gg.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (504.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-9 22:49 上传
+
+<img src="https://img.stage1st.com/forum/202608/09/224905n7gflft8frt8o6ll.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (267.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-9 22:49 上传
+
+<img src="https://img.stage1st.com/forum/202608/09/224910x1k1l29nt9ci9twn.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (544.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-9 22:49 上传
+
+<img src="https://img.stage1st.com/forum/202608/09/224911slyp9pppwl9afj53.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (203.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-9 22:49 上传
+
+这下大伙知道CODE黑暗在哪了，原来是有伽古拉在啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
