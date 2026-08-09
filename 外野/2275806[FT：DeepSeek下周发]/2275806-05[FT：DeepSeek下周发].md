@@ -2235,3 +2235,32 @@ DeepSeek的版权甲怎么破 我让它帮我下个游戏Rom它都不帮我<img 
 Pathfounders 从行业消息人士处获悉，Hassabis 原本希望与 Dean 同时离职，但谷歌管理层认为这一消息将导致 ...</blockquote>
 我就说Hassabis居然没有跟着一起跑路，明明他看上去应该是最受不了大公司文化那种人
 
+
+*****
+
+####  我被骗了五块钱  
+##### 6124#       发表于 2026-8-10 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70043431&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-8-9 21:38</a>
+
+Pathfounders 从行业消息人士处获悉，Hassabis 原本希望与 Dean 同时离职，但谷歌管理层认为这一消息将导致 ...</blockquote>
+gemini至今是我用的最多的模型，不管是CLI搞AIRP还是网页日常对话···感觉gemini不知道什么时候就完全掉队了，这么大的公司，真的莫名其妙
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6125#       发表于 2026-8-10 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70044206&amp;ptid=2275806" target="_blank">我被骗了五块钱 发表于 2026-8-10 00:02</a>
+
+gemini至今是我用的最多的模型，不管是CLI搞AIRP还是网页日常对话···感觉gemini不知道什么时候就完全 ...</blockquote>
+从4月底上下文退化到64k都没有开始就完了
+
+*****
+
+####  lubo  
+##### 6126#       发表于 2026-8-10 00:06
+
+发现一个移动端的Agent，OpenMinis，有Linux沙盒、终端，感觉不错啊
+[https://github.com/OpenMinis/OpenMinis](https://github.com/OpenMinis/OpenMinis)
+
