@@ -2264,3 +2264,11 @@ gemini至今是我用的最多的模型，不管是CLI搞AIRP还是网页日常�
 发现一个移动端的Agent，OpenMinis，有Linux沙盒、终端，感觉不错啊
 [https://github.com/OpenMinis/OpenMinis](https://github.com/OpenMinis/OpenMinis)
 
+
+*****
+
+####  scikirbypoke  
+##### 6127#       发表于 2026-8-10 00:15
+
+我发现flash思考链还是用英语好，复杂问题、大量工具调用、长上下文的情况下中文思考的标点符号很容易充斥整个思考链，出现无限感叹号、无限右括号、无限破折号等等
+
