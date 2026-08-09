@@ -2280,3 +2280,11 @@ gemini至今是我用的最多的模型，不管是CLI搞AIRP还是网页日常�
 
 台风大概率出不了…
 
+
+*****
+
+####  cscbzcbz  
+##### 6129#       发表于 2026-8-10 07:42
+
+不出就不出吧，flash能不能不降智了，周末是感觉笨了一些<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
