@@ -62,3 +62,13 @@
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  渡辺梨加  
+##### 2140#       发表于 2026-8-9 15:50
+
+草，虽然上周大家就根据泪痣和手型猜出来是伽古拉了，但没想到造型跟欧布时期的伽古拉一模一样<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
