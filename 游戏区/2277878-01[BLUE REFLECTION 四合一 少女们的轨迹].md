@@ -1588,3 +1588,13 @@ https://bbs.3dmgame.com/thread-6690564-1-1.html
 
 还有其它JK画的好的游戏推荐吗？制服女友画风也不错，但是纯gal有点玩不下去<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wzm96816  
+##### 136#       发表于 2026-8-9 15:02
+
+测试了一下3dm的补丁，单纯加dlc服装和反和协的话，目前对正版steam上得没问题。
+
+效果不错，可惜也只能对 幻和帝处理。
+
