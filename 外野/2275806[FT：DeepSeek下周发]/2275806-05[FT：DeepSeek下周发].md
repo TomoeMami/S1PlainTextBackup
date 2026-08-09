@@ -1645,3 +1645,29 @@ gpt也是很早就会开始动手，必须得你明确要求不做任何工作�
 pi这个东西有点意思。听说是毛坯房，昨天下了一个想试一试，下下来一看这什么毛坯房，这不是连地基都没打吗 ...</blockquote>
 其实这些功能都有一堆插件，但自己装修才是最对胃口的
 
+
+*****
+
+####  lactone  
+##### 6070#       发表于 2026-8-9 16:50
+
+我觉得还是pro，harness和涨价一起来吧
+
+不然现在这帮吹luna和musespark的要过年了
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6071#       发表于 2026-8-9 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70042097&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-9 16:50</a>
+我觉得还是pro，harness和涨价一起来吧
+
+不然现在这帮吹luna和musespark的要过年了</blockquote>
+说实话我没看到有啥吹的，opencodego订阅给二倍flash额度，怎么蹬进度条都不带走的
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

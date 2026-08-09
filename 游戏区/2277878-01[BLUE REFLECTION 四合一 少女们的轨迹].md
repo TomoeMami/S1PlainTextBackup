@@ -1606,3 +1606,13 @@ https://bbs.3dmgame.com/thread-6690564-1-1.html
 
 <img src="https://p.sda1.dev/34/7ad901c41fc728a274e89e19755b1946/image.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  WGTCorp  
+##### 138#       发表于 2026-8-9 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70005201&amp;ptid=2277878" target="_blank">WGTCorp 发表于 2026-8-3 12:49</a>
+SD纹理中，开抗锯齿和环境光遮蔽，其他全低，系统锁30帧，整机功耗大概12W，感觉还行，过几天带出去看看续 ...</blockquote>
+这个画质设置似乎可以撑三个小时出头，之后试一下把画质调高点续航有多久。
+
