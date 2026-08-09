@@ -2125,3 +2125,22 @@ Pathfounders 从行业消息人士处获悉，Hassabis 原本希望与 Dean 同�
 Pathfounders 从行业消息人士处获悉，Hassabis 原本希望与 Dean 同时离职，但谷歌管理层认为这一消息将导致 ...</blockquote>
 谷歌的模型很大程度上是作为自己旧应用的附加功能，这一点确实是字节路线，那豆包化也不奇怪。
 
+
+*****
+
+####  舞以  
+##### 6114#       发表于 2026-8-9 21:54
+
+字节的巅峰能摸到哈基米2.5pro/3.0pro的好时光么<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+那时哈基米是sota是默认事实来着
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6115#       发表于 2026-8-9 22:00
+
+我谷歌pro订阅还有将近一年<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">什么时候把那个风趣幽默二刺螈知识渊博活人感十足的gemini还回来
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

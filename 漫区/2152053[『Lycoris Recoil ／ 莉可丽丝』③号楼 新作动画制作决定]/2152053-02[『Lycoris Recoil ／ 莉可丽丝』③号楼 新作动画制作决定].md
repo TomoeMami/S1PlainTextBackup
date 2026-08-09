@@ -125,3 +125,11 @@
 
 说明爆的米还不够<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 2522#       发表于 2026-8-9 21:56
+
+蒜二出来热度有蒜一三分之二吗？表示怀疑
+
