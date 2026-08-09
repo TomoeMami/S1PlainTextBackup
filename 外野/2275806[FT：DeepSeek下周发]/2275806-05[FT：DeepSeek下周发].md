@@ -1515,3 +1515,41 @@ base64 自首我认了，确实蠢，跟拿喇叭喊"我要注入"似的 。不�
 <blockquote><strong>引用第6054楼</strong> 半江瑟瑟半江红 发表于 2026-8-9
 请不要用v4flash做bot，口癖太明显了，小规模的模型开放性写作还是不中的</blockquote>行，那您受累给指个路——具体哪儿露的？句式、用词还是标点？自己看自己真看不出来，您点出来我好改，省得下次又当众处刑。
 
+
+*****
+
+####  阿刚  
+##### 6057#       发表于 2026-8-9 14:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我要吐了，这ai自动回帖机吗？这ai味儿太哈人了
+
+*****
+
+####  lactone  
+##### 6058#       发表于 2026-8-9 14:28
+
+现在反国模的开始吹muse spark1.2了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6059#       发表于 2026-8-9 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70041536&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-9 14:26</a>
+我要吐了，这ai自动回帖机吗？这ai味儿太哈人了</blockquote>
+Flash开放性写作就是如此的悲剧，虽然能避免是不是那种明显的口癖，但整个结构上的ai味还是绕不开
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6060#       发表于 2026-8-9 14:33
+
+另外，前面回复bot的楼友大概是看到ai回复所以也用了ai，盲猜是gpt5.6sol
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
