@@ -1930,3 +1930,34 @@ Composer 3 的一些爆料已经有了
 
 向DS许愿做了一个小工具，花了两块钱，其中一块钱花在他没有多模态，处理UI缩放的bug只能不停截图给多模态的模型让他描述细节再处理<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nianiania  
+##### 6096#       发表于 2026-8-9 20:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70042824&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-8-9 19:29</a>
+
+除非有隐私或涩涩的需求，否则部署在消费级显卡上的意义已经不大了。
+
+一个是v4f太便宜了。全价订阅一个open ...</blockquote>
+未来内存下去再加上国内厂商发力的话，类似DGX Spark这种专门用来跑AI的小型主机可能会比自己拿显卡跑要受欢迎吧，只不过现在还是太贵了
+
+*****
+
+####  流浪的翅膀  
+##### 6097#       发表于 2026-8-9 20:03
+
+明天台风天，更新可能很小
+
+
+*****
+
+####  蜇灵  
+##### 6098#       发表于 2026-8-9 20:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70042721&amp;ptid=2275806" target="_blank">wiwiluo 发表于 2026-8-9 19:04</a>
+
+想问一下opencode go订阅的DeepSeek V4 Pro和flash和官方的比有什么区别吗？现在是opencode自部署的V4Flash ...</blockquote>
+目前应该还不是，还是转发到官方API吧，基本上区别不大，哦可能就是没有resonse API，只能用chat API，一些搜索之类的工具不能直接调用
+

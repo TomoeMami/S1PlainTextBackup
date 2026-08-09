@@ -2992,3 +2992,38 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 强化是自由的，唯一神对强度控制的刀法十年如一日还是精准的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 都冠呆还是最数值了，给呆毛什么强化还是尽量控制在冠呆之下的，现在能够主手可能有些场合比冠呆舒服已经很好了
 
+
+*****
+
+####  khxooo  
+##### 21343#       发表于 2026-8-9 19:57
+
+这就是吃井的福利吗，不要啊<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">，上七骑忘记截图了，给了个君11
+
+MuMu-20260809-195046-617.jpg
+(470.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-9 19:56 上传
+
+<img src="https://img.stage1st.com/forum/202608/09/195615k3ose6x6o96cusn9.jpg" referrerpolicy="no-referrer">
+
+MuMu-20260809-195125-941.jpg
+(472.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-9 19:56 上传
+
+<img src="https://img.stage1st.com/forum/202608/09/195615bdflzaxedc22ava2.jpg" referrerpolicy="no-referrer">
+
+MuMu-20260809-195214-862.jpg
+(466.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-9 19:56 上传
+
+<img src="https://img.stage1st.com/forum/202608/09/195616qyh4gam6yy4t4v5k.jpg" referrerpolicy="no-referrer">
+

@@ -1616,3 +1616,37 @@ https://bbs.3dmgame.com/thread-6690564-1-1.html
 SD纹理中，开抗锯齿和环境光遮蔽，其他全低，系统锁30帧，整机功耗大概12W，感觉还行，过几天带出去看看续 ...</blockquote>
 这个画质设置似乎可以撑三个小时出头，之后试一下把画质调高点续航有多久。
 
+
+*****
+
+####  新HGCG  
+##### 139#         楼主| 发表于 2026-8-9 20:01
+
+原来灿就是百合破坏男为了女生牺牲自己把妹子都送给女海王的剧情吗
+<img src="https://p.sda1.dev/34/9518df43aa953ef3c175c97071e67777/28148.jpg" referrerpolicy="no-referrer">">
+<img src="https://p.sda1.dev/34/c05507e246bc613a0f16ea2c3f95798d/28149.jpg" referrerpolicy="no-referrer">
+
+这310姛怎么泡上动画版的妹子了
+<img src="https://p.sda1.dev/34/8ae5c6cd16f31743365cff1cbade74a3/28150.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/7dff33aff803a4f491a1d6c289608cc4/28151.jpg" referrerpolicy="no-referrer">
+
+澪就是直接动画截图拿来用啊包括人物立绘
+<img src="https://p.sda1.dev/34/acdf72f2c05216c3f4042c43044bd8de/28152.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/d0ac95f3e3232eebdbfa0148c084d9e3/28153.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/2ce88997db336d1f39c0a4002d77f9d5/28154.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/627ada18f6dd845829252e939068dbbd/28155.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/6e637b4f086cef5a442ffb419874a599/28156.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/ec6d626c33d0cb314ab8b476237d706a/28161.jpg" referrerpolicy="no-referrer">
+
+不过加了ED的CG
+<img src="https://p.sda1.dev/34/5bff7f79e85e27606d59cbe3c4ea3d5a/28157.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/06511b11f29dc1f135c7e75d25cbf102/28158.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/08266f73ce99b026b691d150724f2ea9/28159.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/a8ceda7e1d2468fd0db56e3497d194f1/28160.jpg" referrerpolicy="no-referrer">
+
+爱央：“阳樱莉听说你姐在你那里超勇的，但在我这里完全不一样哦”
+<img src="https://p.sda1.dev/34/5f1faaa77595b120fe13b19454c219fb/image.png" referrerpolicy="no-referrer">
+
+帝放到最后玩，现在玩幻
+<img src="https://p.sda1.dev/34/5673cdc12ce89fb28aee5313044d6166/image.png" referrerpolicy="no-referrer">
+
