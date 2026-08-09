@@ -42,3 +42,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">飞翼还有出场机会啊
 
+
+*****
+
+####  windaria  
+##### 2138#       发表于 2026-8-9 13:25
+
+从45集开始觉得无聊了，和看没什么营养的网文时的感觉差不多，又或者说像玩流水账RPG游戏的感觉
+
