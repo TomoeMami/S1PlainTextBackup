@@ -34,3 +34,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这集结果最后也没解释为啥不上来就用超梦啊
 
+
+*****
+
+####  洛克萨斯  
+##### 2137#       发表于 2026-8-9 13:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">飞翼还有出场机会啊
+

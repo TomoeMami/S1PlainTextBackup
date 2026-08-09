@@ -1153,3 +1153,37 @@ Saaya本质就是搞笑艺人，这是她第一次担任声优，棒读是必然
 
 还有女主的声优为什么选一个好像没有配任何动画经验的搞笑艺人，另外几个也是选的管人，演技好一些的内山还是个男娘<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 95#         楼主| 发表于 2026-8-9 13:19
+
+<img src="https://p.sda1.dev/34/0094879160a1b43556fb6e7f36cc3b54/HPLAH0zaAAE1z9M.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/f5369ca726851c2b150921a00165afeb/HPGA9ZkasAAWGtc.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/6d8fdf668e9bd6de0ebe4cc72d001a9b/HPBiC2xaAAAH4hf.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/c5434393ab3b6787c681b14734ad9833/HOsXQoWbIAATNSh.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/56690cd940e2df27a1f31a3d2e05305b/HO7pfWFbMAAvmoB.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/c5e036a1e728e15cc5b3d729e516df83/HO3oI9xa4AEa29x.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/e4324**35f62021e8174d95ae0daaf/HOxyepObIAARfnA.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/b8208139785489b9a7b59ea1fce8c590/HOm3vtFbEAAOiAu.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 96#         楼主| 发表于 2026-8-9 13:23
+
+<img src="https://p.sda1.dev/34/57163a71e6a5ee35b93673d14f085874/HOja4rNbIAAWyZm.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/4d8c1d00bee7cb618a19e30b8e549983/HOjgIZ4aQAAoxH1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/091ce87559da20d952c6283abae90131/HOjiPUMagAAwRnn.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/3b45becfd59ef362d0e7292ae9996aa4/HOy64h5a0AAw80_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/1f443d27b0963094e2b2694297308eda/HO8wjprboAEJLF2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/0513c729f234f0dc17f56b5da6113d19/HPCIY7naIAA2Rg0.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/8e19d17092def30135e75f95ea219cec/HPHVlJTaIAA42KM.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/34/9ba37e8b2c0559119066a0959ad14912/HPIDSyUbwAA_WbW.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/e54fe6c7410394cd51d70cf65c2c27f0/HOy6ZtgbsAA8odk.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/fab993aca6e9724789600852e9bbaf1d/HPBhkvaaEAAWwSP.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/d72fcd00fe9bf3bdc29a4aa02d0e6ca8/HO8XqpeaMAAWznV.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/ef78e98b6518c02a81d5a3619e4b149d/HPMJbF_bAAATEwT.jpg" referrerpolicy="no-referrer">
+
