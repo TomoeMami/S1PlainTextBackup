@@ -40,3 +40,11 @@
 
 金星该不会是一点城府都没有忠心耿耿的左右手吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  水莲寺流歌  
+##### 725#       发表于 2026-8-9 22:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来王会长和岸和田也是刚认识，原来老金真的没有搞小动作对王会长忠心耿耿，原来主角团一边也才刚知道飞鸟和京的关系。如果不是刷新出一个岸和田献宝强行推动剧情这两边人真就黏住了
+
