@@ -2971,3 +2971,13 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 呆毛这强化始终是算在冠呆出了后的还能强化的有意思的惊喜和补偿，数值综合起来已经是冠呆之下第二人还是呆毛，旧剑第三<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 红A那3技能会强化第二次也只是本来就还残疾不要想太多
 
+
+*****
+
+####  qixinno1  
+##### 21341#       发表于 2026-8-9 18:36
+
+<blockquote>岸浪白野 发表于 2026-8-9 18:21
+呆毛这强化始终是算在冠呆出了后的还能强化的有意思的惊喜和补偿，数值综合起来已经是冠呆之下第二人还是呆 ...</blockquote>
+礼装go的强化是自由的
+

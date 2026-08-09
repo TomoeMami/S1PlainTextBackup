@@ -1829,3 +1829,33 @@ x上qwen的社区大使说很快个人部署领域会有大惊喜。如果27b模
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">于是明天是8月中旬了
 
+
+*****
+
+####  startraveller  
+##### 6087#       发表于 2026-8-9 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70042331&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-9 17:51</a>
+v4flash不就是个大惊喜么
+我看白皮玩dgx很爽啊
+qwen要真能27b模型做出v4f的水平，那qwen旗舰还会这么垃圾么 ...</blockquote>
+DGX Spark性能还是太拉了。 Qwen 3.8 27b能追上上一版v4f就烧香了
+
+*****
+
+####  neptunehs  
+##### 6088#       发表于 2026-8-9 18:36
+
+ 本帖最后由 neptunehs 于 2026-8-9 18:38 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70042363&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-9 17:56</a>
+个人部署领域的大惊喜我只能想到一个16G/24G显存的卡真正能跑可用级别的模型了 ...</blockquote>
+27b本质上不是16g/24g能跑的模型
+除非量化这块出了什么奇迹 让q4逼近q8的效果
+
+35a3b因为3b的限制在很多任务不会比9b好太多
+除非是qwencoder有续作了
+
+不过我倒是挺期待会不会在9b这搞出一个奇迹来
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
