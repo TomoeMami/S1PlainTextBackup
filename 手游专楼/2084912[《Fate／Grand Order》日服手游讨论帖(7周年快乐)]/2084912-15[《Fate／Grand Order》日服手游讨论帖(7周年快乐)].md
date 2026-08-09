@@ -2889,3 +2889,14 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 笑死，武藏你这都能输的吗
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 21333#       发表于 2026-8-9 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70042188&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-8-9 17:14</a>
+
+笑死，武藏你这都能输的吗</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">早说了，你游一个武藏，一个玉藻前，就是不配。
+

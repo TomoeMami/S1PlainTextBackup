@@ -3322,3 +3322,13 @@ OP制作幕后：[https://youtu.be/zjEIP030QOc](https://youtu.be/zjEIP030QOc)
 <img src="https://p.sda1.dev/34/f341124bf47c60488d849570d9d83147/HPHgBKiacAEjt61.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/34/6588e6c4692a51d08a9b0593f6c756f6/HPHdvGTbgAE9iW8.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  myarms  
+##### 269#       发表于 2026-8-9 17:20
+
+ 本帖最后由 myarms 于 2026-8-9 17:21 编辑 
+
+虽然故事还不好说，但制作质量好的令人惊讶，女主有种看以前的旧动画的女主的感觉，OP真是能打
+

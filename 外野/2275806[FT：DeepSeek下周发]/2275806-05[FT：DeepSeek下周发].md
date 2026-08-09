@@ -1715,3 +1715,17 @@ s1 是不是之前有几次酒馆讨论都被锁帖了
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6076#       发表于 2026-8-9 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70042164&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-9 17:08</a>
+关键还是看pro的能力
+
+如果超过opus4.8且价格在降价前的原价，我都觉得很强了</blockquote>
+这个毋庸置疑的，flash都这个强度，它老师pro的强度根本无法想象
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
