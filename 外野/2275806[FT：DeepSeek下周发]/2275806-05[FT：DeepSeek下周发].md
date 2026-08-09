@@ -1394,3 +1394,21 @@ Codex 终于重置额度了。
 —— 来自 Xiaomi 23013RK75C, Android 15, 鹅球 v4.0-alpha ...</blockquote>
 下周理论上有Deepseek V4 Pro GA、Grok 4.6、GLM 5.3、Qwen 3.8 27B开源，说不定还有Fable5.1和Composer 3，老热闹了。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6046#       发表于 2026-8-9 12:08
+
+我日，closeai怎么在我刚每周重置完半天就重置<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  这不是马甲  
+##### 6047#       发表于 2026-8-9 12:12
+
+想分清是护栏挡的还是模型自己想明白的，有个笨办法：同一条注入换皮去试，同义词、插表情、全半角、base64 各来一遍。护栏本质是关键词匹配，换个皮就漏；判断力在语义层，怎么换都拒。v4f 0731 体感是后者，绕不动。Qwen 一绕就破那种，也不是没上护栏，纯纯判断力没跟上。
+
