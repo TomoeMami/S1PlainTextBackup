@@ -2900,3 +2900,36 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 笑死，武藏你这都能输的吗</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">早说了，你游一个武藏，一个玉藻前，就是不配。
 
+
+*****
+
+####  khxooo  
+##### 21334#       发表于 2026-8-9 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70042188&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-8-9 17:14</a>
+
+笑死，武藏你这都能输的吗</blockquote>
+还能这样互拐的，左脚踩右脚了。
+
+*****
+
+####  Jamaisvu  
+##### 21335#       发表于 2026-8-9 17:33
+
+恭喜看板娘了，周年庆迎来大强化。
+
+拖得久确实有好处，放前几年强化领导力，顶多变成个“圆桌的领导力”然后只给个额外加攻（参考老教授，自己甚至可能吃不到），这次直接大圆满了。
+
+红卡攻击增加NP甚至持续三回合，黑呆还只有三次呢。
+
+话说同为圣剑使，剑小灰未来也会有这方面的强化吧，被动的红卡NP率总不能真是摆设...
+
+可惜二技能的一回合洗牌和宝威绑一起了，三连对单和光炮对群只能选一个，不然还能更强。要是二度强化把魔放宝威都加到三回合就好了（吃桃）
+
+*****
+
+####  zore  
+##### 21336#       发表于 2026-8-9 17:34
+
+绿卡：孩子们
+
