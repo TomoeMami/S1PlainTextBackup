@@ -1598,3 +1598,11 @@ https://bbs.3dmgame.com/thread-6690564-1-1.html
 
 效果不错，可惜也只能对 幻和帝处理。
 
+
+*****
+
+####  新HGCG  
+##### 137#         楼主| 发表于 2026-8-9 16:09
+
+<img src="https://p.sda1.dev/34/7ad901c41fc728a274e89e19755b1946/image.png" referrerpolicy="no-referrer">
+
