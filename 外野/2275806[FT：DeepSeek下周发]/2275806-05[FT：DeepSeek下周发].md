@@ -1859,3 +1859,27 @@ DGX Spark性能还是太拉了。 Qwen 3.8 27b能追上上一版v4f就烧香了
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  80后卢瑟  
+##### 6089#       发表于 2026-8-9 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70040857&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-9 11:49</a>
+
+下周理论上有Deepseek V4 Pro GA、Grok 4.6、GLM 5.3、Qwen 3.8 27B开源，说不定还有Fable5.1和Composer  ...</blockquote>
+Composer 3 的一些爆料已经有了
+
+
+*****
+
+####  qwased  
+##### 6090#       发表于 2026-8-9 19:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70042575&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-9 18:36</a>
+
+27b本质上不是16g/24g能跑的模型
+
+除非量化这块出了什么奇迹 让q4逼近q8的效果</blockquote>
+我之前试过那个三元版bonsai 27b，其实能力挺惊喜的，速度也凑合，但是运行起来太麻烦了
+

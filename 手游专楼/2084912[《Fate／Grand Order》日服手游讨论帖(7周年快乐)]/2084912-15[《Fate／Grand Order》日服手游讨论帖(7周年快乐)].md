@@ -2981,3 +2981,14 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 呆毛这强化始终是算在冠呆出了后的还能强化的有意思的惊喜和补偿，数值综合起来已经是冠呆之下第二人还是呆 ...</blockquote>
 礼装go的强化是自由的
 
+
+*****
+
+####  岸浪白野  
+##### 21342#       发表于 2026-8-9 18:55
+
+ 本帖最后由 岸浪白野 于 2026-8-9 19:00 编辑 
+
+强化是自由的，唯一神对强度控制的刀法十年如一日还是精准的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+都冠呆还是最数值了，给呆毛什么强化还是尽量控制在冠呆之下的，现在能够主手可能有些场合比冠呆舒服已经很好了
+
