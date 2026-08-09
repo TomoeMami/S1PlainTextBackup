@@ -2054,3 +2054,16 @@ Composer 3 的一些爆料已经有了
 
 请问 现在国产大模型里面直接写代码的能力强的有哪些？
 
+
+*****
+
+####  当光停止  
+##### 6107#       发表于 2026-8-9 21:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70043333&amp;ptid=2275806" target="_blank">ryj 发表于 2026-8-9 21:15</a>
+
+请问 现在国产大模型里面直接写代码的能力强的有哪些？</blockquote>
+kimi、glm、现在更新了的deepseek都可以。
+
+里边性价比最高是deepseek，前端最强是kimi（也最贵最慢），glm在等更新周期估计这两周就发。
+
