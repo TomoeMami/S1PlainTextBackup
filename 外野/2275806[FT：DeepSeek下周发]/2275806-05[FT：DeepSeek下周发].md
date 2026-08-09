@@ -1801,3 +1801,11 @@ qwen要真能27b模型做出v4f的水平，那qwen旗舰还会这么垃圾么<im
 
 个人部署领域的大惊喜我只能想到一个16G/24G显存的卡真正能跑可用级别的模型了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CCauchy  
+##### 6084#       发表于 2026-8-9 18:11
+
+希望是输入法专用模型和推理程序，而且开源跨平台，可用SIMD指令集加速，使用socket跟Wayland im协议直接通信<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
