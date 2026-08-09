@@ -1133,3 +1133,11 @@ Saaya本质就是搞笑艺人，这是她第一次担任声优，棒读是必然
 
 米山舞离贞本义行还差一个庵野秀明
 
+
+*****
+
+####  ヒトニナル  
+##### 93#       发表于 2026-8-9 10:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了点切片庆幸自己30分钟就撤退了，啥B玩意儿（直球）
+
