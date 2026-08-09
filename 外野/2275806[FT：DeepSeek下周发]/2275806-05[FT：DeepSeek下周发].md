@@ -1985,3 +1985,14 @@ Composer 3 的一些爆料已经有了
 从luna降价到ds涨价到musespark1.2，这几个问题下就这几个人后槽牙都咬断了黑
 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leia_rolando  
+##### 6101#       发表于 2026-8-9 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70043115&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-9 20:30</a>
+
+知乎反DS帮已经成派了，从luna降价到ds涨价到musespark1.2，这几个问题下几个相同的ID后槽牙都咬断了黑</blockquote>
+这话术<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
+
