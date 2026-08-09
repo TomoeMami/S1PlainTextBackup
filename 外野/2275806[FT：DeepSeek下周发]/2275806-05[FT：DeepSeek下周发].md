@@ -1783,3 +1783,13 @@ a处现在自己都端不出来实际体验上比4.6好的opus。指望qwen端�
 
 ——来自 NX789J 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  舞以  
+##### 6082#       发表于 2026-8-9 17:51
+
+v4flash不就是个大惊喜么<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+我看白皮玩dgx很爽啊
+qwen要真能27b模型做出v4f的水平，那qwen旗舰还会这么垃圾么<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

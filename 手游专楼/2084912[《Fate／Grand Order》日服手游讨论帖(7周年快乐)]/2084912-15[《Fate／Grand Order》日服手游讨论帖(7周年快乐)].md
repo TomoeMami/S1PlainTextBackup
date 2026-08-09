@@ -2933,3 +2933,20 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 绿卡：孩子们
 
+
+*****
+
+####  angelooo  
+##### 21337#       发表于 2026-8-9 17:54
+
+还得是看板娘，武藏是谁.jpg
+
+*****
+
+####  都谷捻柏  
+##### 21338#       发表于 2026-8-9 17:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的5宝青子，白魔放才50，有的人出身就是个笑话。
+
+论等级森严，还得看本子啊。
+
