@@ -1608,3 +1608,18 @@ Flash开放性写作就是如此的悲剧，虽然能避免是不是那种明显
 —— 来自 Xiaomi 23013RK75C, Android 15, 鹅球 v4.0-alpha ...</blockquote>
 大的是指涨价四倍么？
 
+
+*****
+
+####  城北无尘  
+##### 6066#       发表于 2026-8-9 16:17
+
+自从用了V4f ga之后我是肉眼可见的暴躁，它好喜欢发挥主观能动性啊，总是自顾自就开始做了<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  来都来了  
+##### 6067#       发表于 2026-8-9 16:18
+
+pi这个东西有点意思。听说是毛坯房，昨天下了一个想试一试，下下来一看这什么毛坯房，这不是连地基都没打吗？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
