@@ -2144,3 +2144,63 @@ Pathfounders 从行业消息人士处获悉，Hassabis 原本希望与 Dean 同�
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  fat  
+##### 6116#       发表于 2026-8-9 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70043526&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-9 21:54</a>
+
+字节的巅峰能摸到哈基米2.5pro/3.0pro的好时光么
+
+那时哈基米是sota是默认事实来着 ...</blockquote>
+Gemini掉落至美国豆包只用了半年时间。为什么会突然拉跨得这么快的……
+
+*****
+
+####  spaceblue  
+##### 6117#       发表于 2026-8-9 22:25
+
+ 本帖最后由 spaceblue 于 2026-8-9 22:28 编辑 
+
+<img src="https://img.stage1st.com/forum/202608/09/222535gu0u7znzdxptutdn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (269.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-9 22:25 上传
+
+这两天DSV4F降智挺明显的，用的人还是太多了？
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6118#       发表于 2026-8-9 22:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70043670&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-8-9 22:25</a>
+这两天DSV4F和5.6Luna降智都挺明显的，还是老老实实用sol吧</blockquote>
+5.6sol从上周三开始也有些降智，甚至出现了我让它归纳项目结构时候蹦出来幻觉写入.md文档的情况
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  猫鱼狗带  
+##### 6119#       发表于 2026-8-9 22:31
+
+DeepSeek的版权甲怎么破 我让它帮我下个游戏Rom它都不帮我<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王兰花秀丽  
+##### 6120#       发表于 2026-8-9 22:32
+
+ 本帖最后由 王兰花秀丽 于 2026-8-9 22:33 编辑 
+
+我说10号还不出真的有点牢吧<img src="https://static.stage1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
+
+10号出的话，11号朱雀三回收，12号影之刃零开预购，多圆满<img src="https://static.stage1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
+
