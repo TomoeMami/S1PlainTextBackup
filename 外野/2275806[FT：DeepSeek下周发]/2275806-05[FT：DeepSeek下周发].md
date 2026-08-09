@@ -1671,3 +1671,35 @@ pi这个东西有点意思。听说是毛坯房，昨天下了一个想试一试
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lactone  
+##### 6072#       发表于 2026-8-9 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70042106&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-9 16:52</a>
+说实话我没看到有啥吹的，opencodego订阅给二倍flash额度，怎么蹬进度条都不带走的
+
+—— 来自 HUAWEI SG ...</blockquote>
+现在是国外模型看中转站的价格，看musespark只有美国能用的contributor价格
+
+中国模型看官方api不中缓存的单价<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  nxmonitor  
+##### 6073#       发表于 2026-8-9 17:03
+
+muse spark不是测下来根本不遵循指令吗？而且上下限差距极大，现在光看跑分没用，更何况meta也是个刷分惯犯……
+
+
+*****
+
+####  Awanano  
+##### 6074#       发表于 2026-8-9 17:04
+
+s1 是不是之前有几次酒馆讨论都被锁帖了
+想试一下破甲刘备，有什么推荐吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
