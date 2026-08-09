@@ -2114,3 +2114,14 @@ Pathfounders 从行业消息人士处获悉，Hassabis 原本希望与 Dean 同�
 
 谷歌啊谷歌。2.5和3是我去年用的最喜欢的模型。3.1就开始拉了，我过年时候还觉得只是个技术性调整。
 
+
+*****
+
+####  sellboy  
+##### 6113#       发表于 2026-8-9 21:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70043431&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-8-9 21:38</a>
+
+Pathfounders 从行业消息人士处获悉，Hassabis 原本希望与 Dean 同时离职，但谷歌管理层认为这一消息将导致 ...</blockquote>
+谷歌的模型很大程度上是作为自己旧应用的附加功能，这一点确实是字节路线，那豆包化也不奇怪。
+
