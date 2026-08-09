@@ -1996,3 +1996,61 @@ Composer 3 的一些爆料已经有了
 知乎反DS帮已经成派了，从luna降价到ds涨价到musespark1.2，这几个问题下几个相同的ID后槽牙都咬断了黑</blockquote>
 这话术<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  phorcys02  
+##### 6102#       发表于 2026-8-9 21:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70043115&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-9 20:30</a>
+
+知乎反DS帮已经成派了，从luna降价到ds涨价到musespark1.2，这几个问题下几个相同的ID后槽牙都咬断了黑</blockquote>
+就好像殖畜都收敛成马教徒一样
+
+殖畜也会收敛到反DS
+
+*****
+
+####  goranger  
+##### 6103#       发表于 2026-8-9 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70043004&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-8-9 20:07</a>
+目前应该还不是，还是转发到官方API吧，基本上区别不大，哦可能就是没有resonse API，只能用chat API，一 ...</blockquote>
+现在好像已经有了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qwased  
+##### 6104#       发表于 2026-8-9 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70043273&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-8-9 21:04</a>
+就好像殖畜都收敛成马教徒一样
+
+殖畜也会收敛到反DS</blockquote>
+重仓美股的还能说利益相关，xhs那些拿ai文爱的也排斥ds有点搞笑，偶然刷到过报团说o/a文爱上等ds劣等的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lactone  
+##### 6105#       发表于 2026-8-9 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70043238&amp;ptid=2275806" target="_blank">leia_rolando 发表于 2026-8-9 20:57</a>
+这话术难不成B站叫图灵坐标的也是其中一员？一个只有2万关注，做一下模型评分的小up。我平时就看一下新模 ...</blockquote>
+批评ds的其实不少，正常批评也合理
+
+有的明显是带情绪的，经典话术是哪个benchmark把0731排前十，就会拉入黑名单。还有musespark1.2出来之后，直接嘲讽ds连meta都打不过，路边一条之类的
+
+这种不带点血海深仇不至于
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  ryj  
+##### 6106#       发表于 2026-8-9 21:15
+
+请问 现在国产大模型里面直接写代码的能力强的有哪些？
+
