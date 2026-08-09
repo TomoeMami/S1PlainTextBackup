@@ -2882,3 +2882,14 @@ GF还是老老实实抱宝可梦大腿吧</blockquote>
 
 除了字幕变大感觉没更新别的东西啊
 
+
+*****
+
+####  小修  
+##### 567#       发表于 2026-8-10 02:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70044607&amp;ptid=2253295" target="_blank">Farlight 发表于 2026-8-10 01:18</a>
+
+收集成就做完了，刷陨石坑枯萎之兽刷到一百多级，但是感觉技能点和琥珀的缺口还是很大，有比枯萎之兽的珠子 ...</blockquote>
+跟我一样在哪里猛猛刷，但是效率还是不行，主要还是贪图刷极品饰品
+

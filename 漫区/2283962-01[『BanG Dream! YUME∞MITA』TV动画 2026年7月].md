@@ -1182,3 +1182,13 @@ nonoka那不是阳角问题啊，那就是标准的ぷりっ子，而且第二�
 能不能看到大薇神被tdz捅啊<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">捅什么不重要，能见红就行。
 tdz虽然也是阴角但是漫画乐队双开，怎么说行动力也是拉满的，比起arl和律战斗力要高吧。而且还压抑<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 249#       发表于 2026-8-10 02:36
+
+现在这堆矛盾算是第一集连播就埋好的，所以那些能理解的人多也合理，但是最大问题还是5个人的魅力完全没有
+
+全靠肚子疼老师和V姐搞暧昧，软色情（？）拉观众了，真的是没V姐谁认识你梦限大啊，我都怀疑开卡池是5张常驻，一个限定vol了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
