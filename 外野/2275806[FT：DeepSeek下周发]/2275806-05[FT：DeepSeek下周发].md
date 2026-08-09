@@ -1623,3 +1623,15 @@ Flash开放性写作就是如此的悲剧，虽然能避免是不是那种明显
 
 pi这个东西有点意思。听说是毛坯房，昨天下了一个想试一试，下下来一看这什么毛坯房，这不是连地基都没打吗？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 6068#       发表于 2026-8-9 16:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不同模型风格不一样，我一直用gpt订阅的codex
+
+gpt也是很早就会开始动手，必须得你明确要求不做任何工作，只是讨论和形成文档，它才会老老实实和你讨论。
+
+不会主动跟你确认细节之类的，基本就是它按照你的提示词捣鼓一套看起来可行的方案就开始写代码了。
+
