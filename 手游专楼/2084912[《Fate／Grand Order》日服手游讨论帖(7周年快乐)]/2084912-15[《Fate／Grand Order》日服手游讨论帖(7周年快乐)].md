@@ -2795,3 +2795,56 @@ FGO太保值了<img src="https://static.stage1st.com/image/smiley/face2017/067.p
 
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">这种基本都是歪卡的非洲人才有吧 不会歪卡的欧狗是不会懂的
 
+
+*****
+
+####  壳壳牛  
+##### 21325#       发表于 2026-8-8 17:55
+
+枪冠有说法啊
+
+*****
+
+####  angelooo  
+##### 21326#       发表于 2026-8-8 18:13
+
+陀螺：你他吗几个意思
+
+*****
+
+####  alucardcz  
+##### 21327#       发表于 2026-8-8 18:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漏油还是太欧了 萌新今天只有一个强化本能打
+
+*****
+
+####  森兰丸  
+##### 21328#       发表于 2026-8-8 18:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么？这几天每天新开的强化本不是一直都只有1个吗...哪里来的2个
+
+你们不要骗非洲人啊
+
+*****
+
+####  qixinno1  
+##### 21329#       发表于 2026-8-8 19:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">这种基本都是歪卡的非洲人才有吧 不会歪卡的欧狗是不会懂的
+
+*****
+
+####  khxooo  
+##### 21330#       发表于 2026-8-9 09:47
+
+气笑了<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/09/094735l5qnbz87oiz8ebxl.png" referrerpolicy="no-referrer">
+
+<strong>MuMu-20260809-094758-015.png</strong> (319.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-9 09:47 上传
+

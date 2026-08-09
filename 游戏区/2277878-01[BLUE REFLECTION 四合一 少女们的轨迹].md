@@ -1568,3 +1568,13 @@ https://bbs.3dmgame.com/thread-6690564-1-1.html
 给光荣的一封道歉信</blockquote>
 居然有这种BUG
 
+
+*****
+
+####  达达葱2  
+##### 134#       发表于 2026-8-9 09:49
+
+<blockquote>whzfjd 发表于 2026-8-7 19:24
+给光荣的一封道歉信</blockquote>
+不会连细节都有吧
+
