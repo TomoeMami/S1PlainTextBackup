@@ -1322,3 +1322,42 @@ Codex 终于重置额度了。
 
 我觉得网页免费版还不如就用Gemini，就当个搜索用。
 
+
+*****
+
+####  serj005  
+##### 6040#       发表于 2026-8-9 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70039842&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-8-9 01:29</a>
+原来如此，谢谢谢谢，只不过有什么地方可以看到更新的功能之类的吗？我这边更新只能看到修复了xx问题，还 ...</blockquote>
+小米应用商店的更新日志有写识图功能优化，可能不同渠道的日志有点不一样
+
+
+*****
+
+####  平贺才人  
+##### 6041#       发表于 2026-8-9 10:07
+
+ 本帖最后由 平贺才人 于 2026-8-9 10:09 编辑 
+
+[NCDX]deepseek:你愿意和我发生❤Deep insertion❤的关系吗？ [AI Generated]
+
+<img src="https://img.stage1st.com/forum/202608/09/100857fbfbwwmcqkprpl3q.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20260809100844.jpg</strong> (73.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-9 10:08 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小野賢章  
+##### 6042#       发表于 2026-8-9 10:08
+
+[https://github.com/WangEn/open-kimi-ppt-skill](https://github.com/WangEn/open-kimi-ppt-skill)
+
+这个逆向 的open-kimi-ppt-skill 因为版权原因下架了<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
