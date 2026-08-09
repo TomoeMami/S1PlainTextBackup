@@ -1312,3 +1312,13 @@ gemini<img src="https://static.stage1st.com/image/smiley/face2017/067.png" refer
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  小野賢章  
+##### 6039#       发表于 2026-8-9 10:00
+
+Codex 终于重置额度了。
+
+我觉得网页免费版还不如就用Gemini，就当个搜索用。
+
