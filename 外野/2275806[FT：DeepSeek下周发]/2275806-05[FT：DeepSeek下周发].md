@@ -1371,3 +1371,26 @@ Codex 终于重置额度了。
 
 —— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  startraveller  
+##### 6044#       发表于 2026-8-9 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70040409&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-9 10:00</a>
+Codex 终于重置额度了。
+
+我觉得网页免费版还不如就用Gemini，就当个搜索用。 ...</blockquote>
+现在codex鬼的很，昨天中午才正常重置了，一般人都没用多少才重置，13号还有一个banked reset要过期，盲猜下次reset 12或者14号
+
+*****
+
+####  startraveller  
+##### 6045#       发表于 2026-8-9 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70040761&amp;ptid=2275806" target="_blank">80后卢瑟 发表于 2026-8-9 11:25</a>
+明天 DeepSeek 的大的应该要来了吧
+
+—— 来自 Xiaomi 23013RK75C, Android 15, 鹅球 v4.0-alpha ...</blockquote>
+下周理论上有Deepseek V4 Pro GA、Grok 4.6、GLM 5.3、Qwen 3.8 27B开源，说不定还有Fable5.1和Composer 3，老热闹了。
+

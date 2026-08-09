@@ -1141,3 +1141,15 @@ Saaya本质就是搞笑艺人，这是她第一次担任声优，棒读是必然
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了点切片庆幸自己30分钟就撤退了，啥B玩意儿（直球）
 
+
+*****
+
+####  MONSTERS  
+##### 94#       发表于 2026-8-9 11:50
+
+ 本帖最后由 MONSTERS 于 2026-8-9 11:53 编辑 
+
+虽然今年还没结束，但年度最烂动画的候选人已经出现了，对比之下细田守近几年拍的那些动画电影都还算能看了
+
+还有女主的声优为什么选一个好像没有配任何动画经验的搞笑艺人，另外几个也是选的管人，演技好一些的内山还是个男娘<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
