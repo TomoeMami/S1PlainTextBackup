@@ -2212,3 +2212,15 @@ DeepSeek的版权甲怎么破 我让它帮我下个游戏Rom它都不帮我<img 
 
 现在越发期待 pro 的性能了，不知道 harness 发布的时候，ds 会不会上 plan 计划。
 
+
+*****
+
+####  lactone  
+##### 6122#       发表于 2026-8-9 23:31
+
+如果真要和harness一起发，搞不好梁子也会搞tokenplan了
+
+控制流量，搞分级定价，甚至搞价格歧视，都比现在纯卖api靠调价容易
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
