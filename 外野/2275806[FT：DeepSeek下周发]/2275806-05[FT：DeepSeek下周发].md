@@ -1302,3 +1302,13 @@ DS v4f 至少0731是能明显感觉对注入清醒不少，不用高级点儿的
 哈基米是啥</blockquote>
 gemini<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hairen  
+##### 6038#       发表于 2026-8-9 09:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">字节这是什么意思？不然蒸馏开源，一般不都是蒸馏北美哪几个闭源的嘛。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
