@@ -1961,3 +1961,13 @@ Composer 3 的一些爆料已经有了
 想问一下opencode go订阅的DeepSeek V4 Pro和flash和官方的比有什么区别吗？现在是opencode自部署的V4Flash ...</blockquote>
 目前应该还不是，还是转发到官方API吧，基本上区别不大，哦可能就是没有resonse API，只能用chat API，一些搜索之类的工具不能直接调用
 
+
+*****
+
+####  cscbzcbz  
+##### 6099#       发表于 2026-8-9 20:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70042721&amp;ptid=2275806" target="_blank">wiwiluo 发表于 2026-8-9 19:04</a>
+想问一下opencode go订阅的DeepSeek V4 Pro和flash和官方的比有什么区别吗？现在是opencode自部署的V4Flash ...</blockquote>
+速度似乎比官方慢一点
+
