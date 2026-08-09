@@ -1914,3 +1914,11 @@ Composer 3 的一些爆料已经有了
 
 ——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  qz66618  
+##### 6094#       发表于 2026-8-9 19:36
+
+看了眼X，目前harness还在招人内测，明天没啥可能了，感觉大概率下周五<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
