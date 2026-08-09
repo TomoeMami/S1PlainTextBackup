@@ -1751,3 +1751,35 @@ x上qwen的社区大使说很快个人部署领域会有大惊喜。如果27b模
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  c月光咖啡  
+##### 6079#       发表于 2026-8-9 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70042252&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-9 17:34</a>
+x上qwen的社区大使说很快个人部署领域会有大惊喜。如果27b模型能力能打opus4.6，那么个人部署的春天就真的 ...</blockquote>
+那么显卡价格再翻倍<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
+
+
+*****
+
+####  CCauchy  
+##### 6080#       发表于 2026-8-9 17:43
+
+怎么还没来，明天就开盘了
+
+
+*****
+
+####  当光停止  
+##### 6081#       发表于 2026-8-9 17:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">坛友在瞎想什么.....
+27b的qwen打claude opus 4.6?
+a处现在自己都端不出来实际体验上比4.6好的opus。指望qwen端出来个小模型打opus 4.6，还不如期待梁子把v4f优化优化，4.1 4.2之类的版本能打opus4.6有点可能性。
+
+——来自 NX789J 上的 [S1er 客户端](https://s1er.pages.dev)
+
