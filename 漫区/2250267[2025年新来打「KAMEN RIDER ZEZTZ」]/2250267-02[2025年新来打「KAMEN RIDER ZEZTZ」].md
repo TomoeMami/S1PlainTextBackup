@@ -138,3 +138,13 @@
 
 U咩啊，希望啊，未来啊喊太多了，女主跟个傻白甜愣愣的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  封印的右手  
+##### 2145#       发表于 2026-8-10 10:36
+
+这年头奥特曼集数太短，主线展开匆匆了事，来打集数太长，最终形态早来了，但不能尽快解决敌人只能水时长，永远是越到结局感官越差，只能说两边要是匀一下就好了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

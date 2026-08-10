@@ -2433,3 +2433,59 @@ https://www.zhihu.com/question/2068108635620774765/answer/2069542921674692433
 我试过o ...</blockquote>
 35b用来干活比27b差非常多
 
+
+*****
+
+####  startraveller  
+##### 6145#       发表于 2026-8-10 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70045898&amp;ptid=2275806" target="_blank">c月光咖啡 发表于 2026-8-10 10:21</a>
+python写个脚本连不就行了，用全参数的模型分分钟自己能够搞定。再说了蠢就算了，我都还能教它怎么做，就是 ...</blockquote>
+本地小尺寸模型现在也就3.6 27B勉强能做点小活，但是16G显存还是没戏了。 别折腾自己了，花1块钱给dsv4f就能搞定的事情。
+
+*****
+
+####  noneoneone  
+##### 6146#       发表于 2026-8-10 10:28
+
+<blockquote>[c月光咖啡](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70045801&amp;ptid=2275806) 发表于 08-10 10:10
+问个问题，本地小参数模型（显存＜16GB）做一些开发部署调试的工作，哪个好用？有没有好用agent？
+
+我试过opencode+ Qwen2.7-coder 7B/3.5 8B/3.6-35b-a3b，蠢我都还能接受，MYSQL客户端都装好了还不懂怎么怎么连数据库，90%概率死循环</blockquote>
+
+我的意见见6093楼，就是没必要自己部署。用的少就直接DeepSeek api，用的多就opencode  go。
+如果一定要本地部署，那我觉得27b相对好一些。
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  qz66618  
+##### 6147#       发表于 2026-8-10 10:29
+
+昨天还有人被邀请内测harness<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">感觉剑指这周五了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  cscbzcbz  
+##### 6148#       发表于 2026-8-10 10:33
+
+直觉告诉我今天应该没有，快进到周五
+
+*****
+
+####  龙骑士尹志平  
+##### 6149#       发表于 2026-8-10 10:33
+
+翻车是不可能翻车的，我永远相信文峰giegie
+
+*****
+
+####  c月光咖啡  
+##### 6150#       发表于 2026-8-10 10:34
+
+我主要是要在内网机部署一个方便调试内网系统，没办法用cloud api的，看来还是自己攒点钱自费补贴工作吧<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
