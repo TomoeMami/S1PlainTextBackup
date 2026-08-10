@@ -3219,3 +3219,23 @@ opencode go现在好卡，半天才回复
 
 2026-8-10 23:39 上传
 
+
+*****
+
+####  来都来了  
+##### 6226#       发表于 2026-8-11 01:00
+
+Pi这东西有毒吧？我自从接触到这玩意，已经连续三天沉迷于装修毛坯房了，天天装到凌晨3点钟，蹬了我十几块钱了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+就像楼上说的，Deepseek在Pi里面实在是过于活跃了，经常刚说一句话就开始刷刷狂干，不得不多打几个字约束一下它。至于安全问题，我让它自己写了个审批插件，危险命令和工作区外写入都需要人工进行审批。我比较比较得意的成果是，由于它的很多PowerShell复合命令都非常的复杂，我给这个插件还接入了大模型，由大模型实时对命令的内容进行解释，并且报告危险程度，还加上了红黄绿灯。这样我只要看绿灯就可以无脑放行了，如果是黄灯就稍微多看几眼命令解释。不需要自己去盯着命令去解析内容。另外由于安全区外写入比较频繁，所以不需要用大模型进行解释，而是用内置的列表分析关键词实时进行解释，0延时0 token消耗。这毛坯房真是越用越香。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hugosol  
+##### 6227#       发表于 2026-8-11 01:06
+
+一开始我也在omp折腾安全性方面的东西，搞了个plan mode，对tools做了详细的白名单，然后又加了个debug mode，想要在不改代码的情况下调用各种debug工具，后面还弄了audit列表看改过哪些文件
+
+后面开始用mcp之后又给我注册了一堆tools，发现太麻烦了最后还是裸奔模式用得多<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
