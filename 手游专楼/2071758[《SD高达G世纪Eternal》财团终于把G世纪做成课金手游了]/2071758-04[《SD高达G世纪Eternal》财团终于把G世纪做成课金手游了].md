@@ -76,3 +76,14 @@ BNAJT</blockquote>
 然而无法正常登录商店和优惠码那边很久了，明明账号港区，梯子也是选港区，但是永远都提示区域不对 ...</blockquote>
 游戏内的语言是哪个？
 
+
+*****
+
+####  电脑死机  
+##### 4605#       发表于 2026-8-10 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70047428&amp;ptid=2071758" target="_blank">shinjiwy 发表于 2026-8-10 14:26</a>
+
+游戏内的语言是哪个？</blockquote>
+简体中文，打不开游戏内商店
+
