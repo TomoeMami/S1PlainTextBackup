@@ -3459,3 +3459,11 @@ OP制作幕后：[https://youtu.be/zjEIP030QOc](https://youtu.be/zjEIP030QOc)
 
 然后这最后一段感觉“王子”是近视眼根本没看清拉拉的尾巴，至于茉里把拉拉打昏带走嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ulir  
+##### 281#       发表于 2026-8-10 13:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">安康鱼本质就是女二的对位，长得像男，配音也是男，你是我的光芒，然后和女二一样搞个外貌特征说没有啊这不是女孩子吗，要是个烂片可能要被嘲既要又要了
+

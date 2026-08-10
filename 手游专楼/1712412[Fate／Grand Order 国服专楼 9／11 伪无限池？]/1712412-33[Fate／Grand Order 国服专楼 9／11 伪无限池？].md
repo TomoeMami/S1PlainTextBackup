@@ -2189,3 +2189,16 @@ syl 怎么职介关卡就关掉了，几乎没打啊<img src="https://static.sta
 
 —— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qixinno1  
+##### 48082#       发表于 2026-8-10 13:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70046999&amp;ptid=1712412" target="_blank">Kon-El 发表于 2026-8-10 13:11</a>
+
+水提妈抽一宝够用吗
+
+—— 来自 OnePlus PKR110, Android 16, 鹅球 v3.5.99</blockquote>
+够了 只要升到6绊开了被动2就行了
+

@@ -8798,3 +8798,18 @@ None
 
 看推上猜测，如果不拯救，4个人可能会成为类似天启四骑士
 
+
+*****
+
+####  flyingover  
+##### 2310#       发表于 2026-8-10 13:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70046225&amp;ptid=2261859" target="_blank">qiyu1234 发表于 2026-8-10 11:05</a>
+
+Hong Hua (VO: Jennifer Sun Bell)
+
+A powerful mage who fights alongside you to defeat Balor.
+
+Her magic ...</blockquote>
+大概率是当年对四英雄的黑化有做过什么
+
