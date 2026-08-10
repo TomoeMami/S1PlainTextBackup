@@ -2631,3 +2631,21 @@ python写个脚本连不就行了，用全参数的模型分分钟自己能够�
 最近做个chrome插件 用ds花了15没做好，用qw3.7plus花了20推进了两步，开了opedcodego继续用3.7plus，一句 ...</blockquote>
 让它有问题上网搜
 
+
+*****
+
+####  →熙←  
+##### 6166#       发表于 2026-8-10 14:36
+
+opencode go的v4f又新高了
+
+少蹬点, 现在的flash好慢啊
+
+<img src="https://img.stage1st.com/forum/202608/10/143213slili2kllkty8zl8.png" referrerpolicy="no-referrer">
+
+<strong>QQ20260810-143135.png</strong> (108.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 14:32 上传
+
