@@ -3157,3 +3157,23 @@ opencode go用v4f编程感觉用量很难用完啊</blockquote>
 我周末在一个512G内存加RTX 5880 的服务器上成功部署了unlosh的deepseek v4 flash 8bit 满血版本。就是太慢 ...</blockquote>
 接个agent让他给你调优，应该能到60
 
+
+*****
+
+####  sellboy  
+##### 6220#       发表于 2026-8-10 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70046133&amp;ptid=2275806" target="_blank">大喵喵 发表于 2026-8-10 10:54</a>
+
+我周末在一个512G内存加RTX 5880 的服务器上成功部署了unlosh的deepseek v4 flash 8bit 满血版本。就是太慢 ...</blockquote>
+我觉得纯CPU都能跑20token
+
+*****
+
+####  chenyedgg  
+##### 6221#       发表于 2026-8-10 19:19
+
+梁子我的V4P GA呢！
+
+dax你是不是还在大量转官方api？下午又开始卡了！
+
