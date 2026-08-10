@@ -252,3 +252,19 @@
 
 —— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Flechette  
+##### 877#       发表于 2026-8-10 20:18
+
+<img src="https://img.stage1st.com/forum/202608/10/201736avmjj3p0q4mrceea.png" referrerpolicy="no-referrer">
+
+<strong>01706.png</strong> (8.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 20:17 上传
+
+也许真正的全改石其实是我们这一路上交到的朋友
+
