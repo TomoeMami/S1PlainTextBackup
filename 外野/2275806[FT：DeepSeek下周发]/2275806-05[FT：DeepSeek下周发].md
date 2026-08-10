@@ -2902,3 +2902,13 @@ codex寄了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" 
 
 那个图标感觉是蓝鲸、露脊鲸和虎鲸的混合<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 6193#       发表于 2026-8-10 17:14
+
+<blockquote>sellboy 发表于 2026-8-10 16:36
+logo那么明显的眼斑，当然是虎鲸呀</blockquote>
+当然说的是二次元形象，身上的符号就是蓝鲸…
+

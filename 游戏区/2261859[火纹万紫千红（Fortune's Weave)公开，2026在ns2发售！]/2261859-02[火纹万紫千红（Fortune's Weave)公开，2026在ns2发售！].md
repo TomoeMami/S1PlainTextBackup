@@ -8902,3 +8902,14 @@ Her magic ...</blockquote>
 刚开始我也觉得加戏，但是几年过去你要搜这些人的东西，不会出来其他同名的，就意识到在中文环境下独特的 ...</blockquote>
 我宁愿搜索的时候多费些事，也不想在打游戏的时候碰见加戏的翻译
 
+
+*****
+
+####  ascomnet  
+##### 2320#       发表于 2026-8-10 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70048135&amp;ptid=2261859" target="_blank">罐子 发表于 2026-8-10 16:22</a>
+
+想要发售两三天内玩到的话，是不是只能数字版了？ 吃现货卡带会不会很贵</blockquote>
+因为数字版随时可以买，反而卡带你可以多等等。pdd有日本直邮的卡带的话很快。
+
