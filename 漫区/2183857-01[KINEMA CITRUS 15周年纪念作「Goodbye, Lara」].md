@@ -3524,3 +3524,11 @@ OP制作幕后：[https://youtu.be/zjEIP030QOc](https://youtu.be/zjEIP030QOc)
 
 闪耀公主真是传火吧
 
+
+*****
+
+####  Mika-S  
+##### 287#       发表于 2026-8-10 21:16
+
+没想到竟然花了一整集来讲姐姐过去几百年的事<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">但是姐姐从上集不愿意跨过那一线感觉就已经跟拉拉不是一个世界的人（鱼）了啊<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">不然你问一下拉拉不早知道魔女在哪了
+
