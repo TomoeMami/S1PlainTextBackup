@@ -3146,3 +3146,14 @@ opencode go用v4f编程感觉用量很难用完啊</blockquote>
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  qwased  
+##### 6219#       发表于 2026-8-10 19:13
+
+ 本帖最后由 qwased 于 2026-8-10 19:14 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70046133&amp;ptid=2275806" target="_blank">大喵喵 发表于 2026-8-10 10:54</a>
+我周末在一个512G内存加RTX 5880 的服务器上成功部署了unlosh的deepseek v4 flash 8bit 满血版本。就是太慢 ...</blockquote>
+接个agent让他给你调优，应该能到60
+
