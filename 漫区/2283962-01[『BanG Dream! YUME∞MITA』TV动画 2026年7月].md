@@ -1250,3 +1250,31 @@ tdz虽然也是阴角但是漫画乐队双开，怎么说行动力也是拉满�
 
 2026-8-10 13:58 上传
 
+
+*****
+
+####  novalli  
+##### 254#       发表于 2026-8-10 23:54
+
+藤都子发了gif，是薇欧拉逗小紫狗，配文是摩斯电码的“喜欢”<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+藤都子老师真是乐在其中啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  novalli  
+##### 255#       发表于 2026-8-10 23:56
+
+话说这个宣传图第一眼以为是握着把匕首
+
+<img src="https://img.stage1st.com/forum/202608/10/235613v8mktt4ot6u1k1mt.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1786377372306_1.webp</strong> (191.23 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 23:56 上传
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
