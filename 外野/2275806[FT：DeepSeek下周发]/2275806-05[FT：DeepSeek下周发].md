@@ -2765,3 +2765,31 @@ opencode这哥们是不是已经疯了<img src="https://static.stage1st.com/imag
 这都10号了，pro还不出吗</blockquote>
 现在还是梁历七月下旬
 
+
+*****
+
+####  claymorep  
+##### 6179#       发表于 2026-8-10 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70047816&amp;ptid=2275806" target="_blank">江月下 发表于 2026-8-10 15:31</a>
+
+这都10号了，pro还不出吗</blockquote>
+8月初=8月31日
+
+*****
+
+####  squallx  
+##### 6180#       发表于 2026-8-10 15:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70047562&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-10 14:50</a>
+
+我算了一笔账之后有人跟我辩ds性价比高在哪里，然后他说出了gpt2.5倍速消耗2倍额度相当于性价比提高了25% ...</blockquote>
+跟这种2B小模型有啥好辩的 浪费TOKEN
+
+*****
+
+####  2017.05.04  
+##### 6181#       发表于 2026-8-10 15:48
+
+今天是7月41日
+
