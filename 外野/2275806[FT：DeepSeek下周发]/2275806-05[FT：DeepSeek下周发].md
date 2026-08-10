@@ -2596,3 +2596,17 @@ python写个脚本连不就行了，用全参数的模型分分钟自己能够�
 最近做个chrome插件 用ds花了15没做好，用qw3.7plus花了20推进了两步，开了opedcodego继续用3.7plus，一句 ...</blockquote>
 用下k3试试？opencode go我记得有的
 
+
+*****
+
+####  neptunehs  
+##### 6163#       发表于 2026-8-10 13:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70047091&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-10 13:28</a>
+最近做个chrome插件 用ds花了15没做好，用qw3.7plus花了20推进了两步，开了opedcodego继续用3.7plus，一句 ...</blockquote>
+很怀念flash第一天出来 把我之前旧flash卡了一个多月的问题立刻解决了
+
+这两天又感觉回到了旧ds的时候 虽然其实还是比之前强
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
