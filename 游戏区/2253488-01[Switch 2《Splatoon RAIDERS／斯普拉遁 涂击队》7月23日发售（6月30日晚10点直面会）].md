@@ -7817,3 +7817,11 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">涡潮盐水晶不够用，求助哪里方便刷，后期更新老任加上兑换吧？
 
+
+*****
+
+####  Beaverfan01  
+##### 917#       发表于 2026-8-10 11:57
+
+x上推荐比较多的是反复刷无尽食堂97-99层。手柄带宏可以考虑慢慢挂天埠罗。
+

@@ -240,3 +240,15 @@
 
 活动武器做了三个了，有没有楼友讲一下这些东西怎么变造
 
+
+*****
+
+####  orz100  
+##### 876#       发表于 2026-8-10 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70044111&amp;ptid=2249235" target="_blank">茄子自走炮 发表于 2026-8-9 23:49</a>
+活动武器做了三个了，有没有楼友讲一下这些东西怎么变造</blockquote>
+参考职业试炼给的戒指。升级到20后重铸回0强化甚至还能保留升级前但改造后的状态。这次活动就是让你疯狂肝来的。
+
+—— 来自 OnePlus KB2000, Android 11, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
