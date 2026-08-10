@@ -3673,3 +3673,11 @@ OP制作幕后：[https://youtu.be/zjEIP030QOc](https://youtu.be/zjEIP030QOc)
 
 再发散一下，若望就一定是男人鱼吗？他作为唯一的男人鱼还挺怪的，说不定人鱼是那种会变性的种族，一个群体中会变出一只雄性……最后菈菈不会变性吧？
 
+
+*****
+
+####  pzk  
+##### 290#       发表于 2026-8-10 23:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">当然也有可能只是想做一个非二元性别的角色
+
