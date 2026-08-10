@@ -3252,3 +3252,23 @@ Pi这东西有毒吧？我自从接触到这玩意，已经连续三天沉迷于
 
 现在等于人手一台3D打印机，什么都能自己做了
 
+
+*****
+
+####  来都来了  
+##### 6229#       发表于 2026-8-11 01:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70051188&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-11 01:09</a>
+以前的超能力者也没有这么爽，因为自己开发这些扩展非常麻烦，一般都是直接装别人做好的成品
+
+现在等于人 ...</blockquote>
+我问AI，它说这东西如果让资深工程师来开发，需要大约15个工作日，甚至更长。而我花了一个来小时，加一块来钱就搓出来了。爽是真的爽<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  舞以  
+##### 6230#       发表于 2026-8-11 01:44
+
+有没有人测试一下，如果都是用pi毛坯房当harness，市面上的这些模型哪个鬼点子最多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
