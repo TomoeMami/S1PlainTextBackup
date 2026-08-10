@@ -7743,3 +7743,14 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 
 —— 来自 realme RMX5200, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Dedalus  
+##### 911#       发表于 2026-8-10 09:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70044712&amp;ptid=2253488" target="_blank">第四人称 发表于 2026-8-10 01:57</a>
+和你使用的武器有关的，用狙刷就会出很多狙</blockquote>
+如果真这么设计还挺贴心但大概率根本没想到
+我体感纯玄学，刷天妇罗只用加特林，掉率没变化
+

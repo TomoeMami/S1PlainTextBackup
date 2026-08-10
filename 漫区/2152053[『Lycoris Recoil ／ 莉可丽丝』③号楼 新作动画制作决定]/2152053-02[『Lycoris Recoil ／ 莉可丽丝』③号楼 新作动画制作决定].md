@@ -133,3 +133,11 @@
 
 蒜二出来热度有蒜一三分之二吗？表示怀疑
 
+
+*****
+
+####  osore  
+##### 2523#       发表于 2026-8-10 08:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">孩子还没怀上就想着将来上清华还是北大了
+
