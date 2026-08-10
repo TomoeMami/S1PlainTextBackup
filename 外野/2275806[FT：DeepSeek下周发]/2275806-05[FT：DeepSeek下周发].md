@@ -2793,3 +2793,16 @@ opencode这哥们是不是已经疯了<img src="https://static.stage1st.com/imag
 
 今天是7月41日
 
+
+*****
+
+####  流缨  
+##### 6182#       发表于 2026-8-10 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70047714&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-10 15:15</a>
+
+opencode这哥们是不是已经疯了
+
+全球第一v4f吹</blockquote>
+理论上这已经相当奇迹了，比起前几年chatbot时代，opencode现在的吞吐量感觉可能跟自来水厂差不多<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
