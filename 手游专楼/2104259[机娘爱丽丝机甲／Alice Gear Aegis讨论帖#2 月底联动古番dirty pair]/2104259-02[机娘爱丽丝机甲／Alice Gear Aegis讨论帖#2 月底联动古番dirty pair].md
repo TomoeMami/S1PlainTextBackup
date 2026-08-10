@@ -60,3 +60,11 @@
 
 而且新分支好用多了，原版揍两轮蓄力才能一发重拳槽还掉得飞快，但伤害不如一发剑炮太搞笑了
 
+
+*****
+
+####  madcow  
+##### 2087#       发表于 2026-8-10 14:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">st主播的衣服也是换色，好偷懒啊阿金
+
