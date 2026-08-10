@@ -8733,3 +8733,33 @@ TB怎么日版港版价格差那么多</blockquote>
 
 这作真往里塞了不少东方元素啊
 
+
+*****
+
+####  qiyu1234  
+##### 2304#       发表于 2026-8-10 11:05
+
+Hong Hua (VO: Jennifer Sun Bell)
+
+A powerful mage who fights alongside you to defeat Balor.
+
+Her magical strikes are swift and precise.
+
+Likes
+
+Memories of happier times
+
+Interests
+
+None
+
+英文介绍完全没有涉及角色的过去啊，不知道为什么日文官推特意提了一下
+
+
+*****
+
+####  hkguty  
+##### 2305#       发表于 2026-8-10 11:11
+
+该不会是皇女祖先吧，又是红花又是罪的，有那味了
+
