@@ -3004,3 +3004,44 @@ logo那么明显的眼斑，当然是虎鲸呀</blockquote>
 
 下个窗口瞄准8.12吧，依旧18手小道消息<img src="https://static.stage1st.com/image/smiley/face/178.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 6205#       发表于 2026-8-10 17:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前半仙算的就是8.10-8.12之间
+
+我今天午睡都做梦梦到发了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿刚  
+##### 6206#       发表于 2026-8-10 17:59
+
+八月初的定义正式调整到八月三十一号
+
+
+*****
+
+####  真红之闪电  
+##### 6207#       发表于 2026-8-10 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70048721&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-10 17:42</a>
+还涨价么，感觉这个公告一发都把人吓走了，负载一低就不用涨了啊</blockquote>
+不涨价还会回来啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Dreki  
+##### 6208#       发表于 2026-8-10 18:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70048864&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-8-10 18:02</a>
+不涨价还会回来啊
+
+—— 来自 S1Fun</blockquote>
+之前中转站都是走官方api，涨价消息出来后都自己搭了肯定能分担很大压力的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
