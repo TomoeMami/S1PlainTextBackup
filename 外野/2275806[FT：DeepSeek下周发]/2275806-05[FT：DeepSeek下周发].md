@@ -3045,3 +3045,25 @@ logo那么明显的眼斑，当然是虎鲸呀</blockquote>
 —— 来自 S1Fun</blockquote>
 之前中转站都是走官方api，涨价消息出来后都自己搭了肯定能分担很大压力的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  Nanachi  
+##### 6209#       发表于 2026-8-10 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70045922&amp;ptid=2275806" target="_blank">燕山雪 发表于 2026-8-10 10:24</a>
+之前ds4f干完活自己写了个填字游戏玩的事，苦主把原始记录发到GitHub和知乎了：https://github.com/Guanyu- ...</blockquote>
+我米👍
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  雨昼斯基  
+##### 6210#       发表于 2026-8-10 18:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70048126&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-10 16:20</a>
+鲸鱼娘这个女仆形象确实是一大特点，相比其他国内外知名的模型形象少且不统一，ds的各种娘化形象尤其是这个 ...</blockquote>
+毕竟 ds 的 logo 就是个鲸鱼，娘化形象有个准确的锚点，别家 logo 都是各种几何形状的皮燕子，只能从颜色来建构。
+至于豆包……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
