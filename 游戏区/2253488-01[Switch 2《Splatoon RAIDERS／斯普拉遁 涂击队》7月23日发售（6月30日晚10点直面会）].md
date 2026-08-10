@@ -7863,3 +7863,23 @@ x上推荐比较多的是反复刷无尽食堂97-99层。手柄带宏可以考�
 
 1-3层刷我自己感觉最效率，地上的大鲑鱼卵不要吃，等倒数了再去吃，多杀一点精英怪，速度又快又安全，
 
+
+*****
+
+####  Dedalus  
+##### 922#       发表于 2026-8-10 21:30
+
+分享一套全游戏最爽bd，不打超高层食堂不要带电扇，自己和队友都舒服
+
+电扇换冲刺后游戏体验指数提升，三个位移技互相配合机动性拉满，全场乱飞指谁谁死爽当人头狗<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+开房挖矿更是好玩，队友进房就跟随飞天房主一整场酣畅淋漓的超级跳直达战场<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/10/211314otpzi9ee7vvmi7tt.jpg" referrerpolicy="no-referrer">
+
+<strong>img_6745.jpg</strong> (473.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 21:13 上传
+
