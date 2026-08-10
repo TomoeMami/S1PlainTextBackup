@@ -2649,3 +2649,47 @@ opencode go的v4f又新高了
 
 2026-8-10 14:32 上传
 
+
+*****
+
+####  小野賢章  
+##### 6167#       发表于 2026-8-10 14:49
+
+kimi的网页对话，默认会记忆最近其他对话里面的内容，还不能关闭，有点烦人啊
+
+*****
+
+####  CCauchy  
+##### 6168#       发表于 2026-8-10 14:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70043326&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-9 21:14</a>
+
+批评ds的其实不少，正常批评也合理
+
+有的明显是带情绪的，经典话术是哪个benchmark把0731排前十，就会拉 ...</blockquote>
+我算了一笔账之后有人跟我辩ds性价比高在哪里，然后他说出了gpt2.5倍速消耗2倍额度相当于性价比提高了25%的话，我特么<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 6169#       发表于 2026-8-10 14:53
+
+现在稳定性一定要作为重要指标了，预览版的问题就是上下限差距太大，一旦运气不好抽出下限整个都跑偏，几个所谓比Flash性价比高的模型都有这个毛病。
+
+*****
+
+####  CCauchy  
+##### 6170#       发表于 2026-8-10 14:53
+
+感觉这个涨价和峰谷价是不是就是吓吓人啊
+
+*****
+
+####  drodchang  
+##### 6171#       发表于 2026-8-10 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70047549&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-10 14:49</a>
+
+kimi的网页对话，默认会记忆最近其他对话里面的内容，还不能关闭，有点烦人啊 ...</blockquote>
+chatgpt也是这的
+

@@ -8829,3 +8829,13 @@ Her magic ...</blockquote>
 
 哪个手枪修女所属的白鸦花嫁团，是类似40K战斗修女的组织吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  57042711  
+##### 2313#       发表于 2026-8-10 14:49
+
+看来后篇是有固定队友的吗，原来不是光杆司令啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
