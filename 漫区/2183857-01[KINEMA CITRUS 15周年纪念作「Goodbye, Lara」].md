@@ -3495,3 +3495,11 @@ OP制作幕后：[https://youtu.be/zjEIP030QOc](https://youtu.be/zjEIP030QOc)
 
 拉拉她姐和她身边的人这种关系其实和公主王子差不多了吧<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，CPART爆的有点厉害，这是拉拉看到现实人类像自己心目中的王子而产生退化吧jpg
 
+
+*****
+
+####  一切都毫无意义  
+##### 284#       发表于 2026-8-10 18:41
+
+所以第一集变泡沫只是单纯的药过期了（）
+
