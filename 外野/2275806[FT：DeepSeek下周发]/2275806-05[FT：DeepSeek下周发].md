@@ -3201,3 +3201,21 @@ opencode go现在好卡，半天才回复
 
 这V4F是不是开始降智了，今天跑一个功能测试，前几次通不过，结果它直接给我把功能的核心需求给砍了，这下测试是通过了不报错了，我这项目也没啥用了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  serj005  
+##### 6225#       发表于 2026-8-10 23:44
+
+ 本帖最后由 serj005 于 2026-8-10 23:47 编辑 
+
+毛坯状态的pi可能比很多人直觉上认为的强得多，尤其是在模型能力本身足够情况下，v4f这种借用外部工具特别积极的模型（不是指普通的agent工具调用，是灵活获取或制作达成目的新工具的能力）在pi里发挥很好，pi的用例通过率高的同时token消耗也最少。当然代价是安全和稳定性的约束太少了，可能做出很多预期外的操作。
+
+<img src="https://img.stage1st.com/forum/202608/10/233917bztme0gntg17y0es.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1786376357589_1.webp</strong> (46.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 23:39 上传
+
