@@ -2297,3 +2297,14 @@ MuMu-20260810-204759-749.jpg
 
 我靠，为什么月兔立绘没一个和宝具动画对得上的，我就是冲着宝具动画的衣服去抽的啊
 
+
+*****
+
+####  khxooo  
+##### 48092#       发表于 2026-8-10 22:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70050261&amp;ptid=1712412" target="_blank">qixinno1 发表于 2026-8-10 21:59</a>
+
+喜欢我132抽只有一宝水飞嫂连五星活动礼装都没有么</blockquote>
+那的确有点惨。
+
