@@ -1275,3 +1275,14 @@ Saaya本质就是搞笑艺人，这是她第一次担任声优，棒读是必然
 
 跳着看了下，感觉给作豚能剪的地方都没多少<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Junglemgs  
+##### 106#       发表于 2026-8-10 12:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70046008&amp;ptid=2279207" target="_blank">蓝川澈 发表于 2026-8-10 10:37</a>
+
+音乐是神前晓和monaco，这个没得黑。纸片那个有点像小圆里面那个，魔女设定的团队，叫啥来着？ ...</blockquote>
+叫剧团狗咖喱，的确有参与
+
