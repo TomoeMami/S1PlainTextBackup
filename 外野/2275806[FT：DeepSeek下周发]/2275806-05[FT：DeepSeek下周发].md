@@ -2912,3 +2912,26 @@ codex寄了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" 
 logo那么明显的眼斑，当然是虎鲸呀</blockquote>
 当然说的是二次元形象，身上的符号就是蓝鲸…
 
+
+*****
+
+####  claymorep  
+##### 6194#       发表于 2026-8-10 17:19
+
+ 本帖最后由 claymorep 于 2026-8-10 17:21 编辑 
+
+试了下阿里云的qwen3.7flash和小米的mimo2.5都有内容审核，请问有什么平台上什么模型可以看图的+没有甲？
+
+只要能看图就行，不用生成
+
+
+*****
+
+####  zhanglei1943  
+##### 6195#       发表于 2026-8-10 17:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70048126&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-10 16:20</a>
+
+鲸鱼娘这个女仆形象确实是一大特点，相比其他国内外知名的模型形象少且不统一，ds的各种娘化形象尤其是这个 ...</blockquote>
+豆包：明明是我先来的。。。
+
