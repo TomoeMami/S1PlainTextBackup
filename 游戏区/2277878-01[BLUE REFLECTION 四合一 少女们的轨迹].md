@@ -1721,3 +1721,14 @@ NS2 吗？</blockquote>
 是steamdeck，我tdp锁了8w，开头半小时大概掉了15%多一点的电，不过中间大多时间是剧情和过场动画，性能压力不大。之后又用pc玩了一段，某个场景帧数直接掉了快一半，不知道后面这个tdp能不能稳住30帧。
 另外这游戏画质就算开到全高了，在sd的屏幕上也看不出什么区别，反而会导致帧数下降，感觉也没必要再调了。
 
+
+*****
+
+####  新HGCG  
+##### 144#         楼主| 发表于 2026-8-10 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70044943&amp;ptid=2277878" target="_blank">Xenor 发表于 2026-8-10 07:19</a>
+
+EDCG真蓝，不过合集后反射系列是不是就此终结了…(不-要-啊)</blockquote>
+这作4合1卖得好没准会有新作吧
+
