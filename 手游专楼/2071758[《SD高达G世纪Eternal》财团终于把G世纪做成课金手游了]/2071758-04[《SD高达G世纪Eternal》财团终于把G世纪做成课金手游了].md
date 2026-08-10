@@ -87,3 +87,13 @@ BNAJT</blockquote>
 游戏内的语言是哪个？</blockquote>
 简体中文，打不开游戏内商店
 
+
+*****
+
+####  shinjiwy  
+##### 4606#       发表于 2026-8-11 07:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70048375&amp;ptid=2071758" target="_blank">电脑死机 发表于 2026-8-10 16:57</a>
+简体中文，打不开游戏内商店</blockquote>
+改成香港那个语言包
+
