@@ -8880,3 +8880,14 @@ Her magic ...</blockquote>
 
 现货半个月这样就可能进百亿补贴，之后就是一路降价了。
 
+
+*****
+
+####  宿  
+##### 2318#       发表于 2026-8-10 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70037949&amp;ptid=2261859" target="_blank">缪斯替 发表于 2026-8-8 20:43</a>
+
+至少这作目前看来角色译名似乎挺正常的……我是真受不了三房和结合那个角色译名，帝弥托利 帝亚曼德这种乱 ...</blockquote>
+刚开始我也觉得加戏，但是几年过去你要搜这些人的东西，不会出来其他同名的，就意识到在中文环境下独特的优势了
+
