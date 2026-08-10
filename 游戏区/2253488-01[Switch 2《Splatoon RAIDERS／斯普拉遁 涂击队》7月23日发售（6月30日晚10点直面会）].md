@@ -7766,3 +7766,19 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 
 确实该找到意见窗口说一说武器掉落的随机性。最简单的改法，从纯随机改成种类乱序轮换。
 
+
+*****
+
+####  Beaverfan01  
+##### 913#       发表于 2026-8-10 09:48
+
+大概率因为这个。
+
+<img src="https://img.stage1st.com/forum/202608/10/094831vzdsqzqpcprg9exz.jpg" referrerpolicy="no-referrer">
+
+<strong>5861.jpg</strong> (222.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 09:48 上传
+
