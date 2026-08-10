@@ -80,3 +80,11 @@
 
 感觉王会长看着掌握一切实际除了当年那些事情外啥都不知道。外强中干，说不定不知不觉就没了。
 
+
+*****
+
+####  失落之翼  
+##### 729#       发表于 2026-8-10 09:35
+
+金星那么孝，王会长别到时候掏出个三藏兽吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

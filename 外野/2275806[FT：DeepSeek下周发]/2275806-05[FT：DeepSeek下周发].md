@@ -2366,3 +2366,16 @@ opencode go 的 v4f 已经支持 reponse API了？我试试看
 我发现flash思考链还是用英语好，复杂问题、大量工具调用、长上下文的情况下中文思考的标点符号很容易充斥 ...</blockquote>
 这种感觉就是上下文坏了，我昨天就是，有个对话，每次开始思考超过一定字数就变成复读感叹号和破折号，而且动不动触发上下文压缩，明明我UI界面显示上下文才一百k不到，最后没办法让他写了个交接文档开新对话去了
 
+
+*****
+
+####  specialized01  
+##### 6138#       发表于 2026-8-10 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70043326&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-9 21:14</a>
+
+批评ds的其实不少，正常批评也合理
+
+有的明显是带情绪的，经典话术是哪个benchmark把0731排前十，就会拉 ...</blockquote>
+v4f0731已经变成检验成色的试金石了
+
