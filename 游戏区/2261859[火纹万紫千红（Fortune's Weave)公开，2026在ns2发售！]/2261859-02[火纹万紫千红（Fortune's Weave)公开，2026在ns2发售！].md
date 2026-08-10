@@ -8923,3 +8923,11 @@ Her magic ...</blockquote>
 
 卡带版直邮预期玩到的时间都是2周起步
 
+
+*****
+
+####  墨染白泉  
+##### 2322#       发表于 2026-8-10 20:58
+
+等个日本直邮卡带，现在淘宝日版卡带都跟日服数字版差不多价，日元跌的爽<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
