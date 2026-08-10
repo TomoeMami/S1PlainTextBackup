@@ -2215,3 +2215,15 @@ syl 怎么职介关卡就关掉了，几乎没打啊<img src="https://static.sta
 
 —— 来自 OnePlus PLK110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Kon-El  
+##### 48084#       发表于 2026-8-10 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70047044&amp;ptid=1712412" target="_blank">qixinno1 发表于 2026-8-10 13:20</a>
+够了 只要升到6绊开了被动2就行了</blockquote>
+好的
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
