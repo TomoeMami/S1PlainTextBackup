@@ -2610,3 +2610,24 @@ python写个脚本连不就行了，用全参数的模型分分钟自己能够�
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  phorcys02  
+##### 6164#       发表于 2026-8-10 13:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70047091&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-10 13:28</a>
+
+最近做个chrome插件 用ds花了15没做好，用qw3.7plus花了20推进了两步，开了opedcodego继续用3.7plus，一句 ...</blockquote>
+知识量不够了,用dsv4 pro试试看
+
+
+*****
+
+####  scikirbypoke  
+##### 6165#       发表于 2026-8-10 14:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70047091&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-10 13:28</a>
+最近做个chrome插件 用ds花了15没做好，用qw3.7plus花了20推进了两步，开了opedcodego继续用3.7plus，一句 ...</blockquote>
+让它有问题上网搜
+
