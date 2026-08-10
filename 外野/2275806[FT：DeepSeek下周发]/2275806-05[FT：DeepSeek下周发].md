@@ -2315,3 +2315,54 @@ gemini至今是我用的最多的模型，不管是CLI搞AIRP还是网页日常�
 
 新的一周新的等待
 
+
+*****
+
+####  卡普空  
+##### 6133#       发表于 2026-8-10 09:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70043990&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-9 23:31</a>
+
+如果真要和harness一起发，搞不好梁子也会搞tokenplan了
+
+控制流量，搞分级定价，甚至搞价格歧视，都比现在 ...</blockquote>
+搞code plan那不是更便宜了，支持
+
+*****
+
+####  来都来了  
+##### 6134#       发表于 2026-8-10 09:17
+
+群友就像是没有游戏可玩整天眼巴巴等官方发消息的■■■玩家<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  买码！注册！  
+##### 6135#       发表于 2026-8-10 09:18
+
+八月初最后一天，再不发可就不礼貌了对吧，梁宫春日
+
+
+*****
+
+####  蜇灵  
+##### 6136#       发表于 2026-8-10 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70043283&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-9 21:06</a>
+
+现在好像已经有了
+
+论坛助手,iPhone</blockquote>
+opencode go 的 v4f 已经支持 reponse API了？我试试看
+
+
+*****
+
+####  蜇灵  
+##### 6137#       发表于 2026-8-10 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70044302&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-8-10 00:15</a>
+
+我发现flash思考链还是用英语好，复杂问题、大量工具调用、长上下文的情况下中文思考的标点符号很容易充斥 ...</blockquote>
+这种感觉就是上下文坏了，我昨天就是，有个对话，每次开始思考超过一定字数就变成复读感叹号和破折号，而且动不动触发上下文压缩，明明我UI界面显示上下文才一百k不到，最后没办法让他写了个交接文档开新对话去了
+
