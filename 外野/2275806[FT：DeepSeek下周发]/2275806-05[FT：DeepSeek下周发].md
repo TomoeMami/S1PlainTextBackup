@@ -3193,3 +3193,11 @@ opencode go现在好卡，半天才回复
 
 反复犯错，问题不复杂，就是简单的流程出错几次，弱智啊。<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蜇灵  
+##### 6224#       发表于 2026-8-10 23:23
+
+这V4F是不是开始降智了，今天跑一个功能测试，前几次通不过，结果它直接给我把功能的核心需求给砍了，这下测试是通过了不报错了，我这项目也没啥用了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
