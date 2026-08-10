@@ -65,3 +65,14 @@ BNAJT
 BNAJT</blockquote>
 然而无法正常登录商店和优惠码那边很久了，明明账号港区，梯子也是选港区，但是永远都提示区域不对
 
+
+*****
+
+####  shinjiwy  
+##### 4604#       发表于 2026-8-10 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70045147&amp;ptid=2071758" target="_blank">电脑死机 发表于 2026-8-10 08:35</a>
+
+然而无法正常登录商店和优惠码那边很久了，明明账号港区，梯子也是选港区，但是永远都提示区域不对 ...</blockquote>
+游戏内的语言是哪个？
+

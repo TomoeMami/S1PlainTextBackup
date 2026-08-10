@@ -7833,3 +7833,14 @@ x上推荐比较多的是反复刷无尽食堂97-99层。手柄带宏可以考�
 
 刷97-99和刷1-3有什么区别没？
 
+
+*****
+
+####  三级怪兽  
+##### 919#       发表于 2026-8-10 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70046349&amp;ptid=2253488" target="_blank">RioBone 发表于 2026-8-10 11:26</a>
+
+涡潮盐水晶不够用，求助哪里方便刷，后期更新老任加上兑换吧？</blockquote>
+搞个单片机或者宏手柄刷天埠罗呗，也就这么搞省点力气，自己手刷就只有爬塔了
+

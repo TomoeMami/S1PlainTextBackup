@@ -8821,3 +8821,11 @@ Her magic ...</blockquote>
 
 所以女王国家世代流传并崇拜的那个古画里的死之女神就是大苏这边吧（复活亡者），画的另一边是献祭人的冥界眷属，然后帝国住民产生误解了所以才打烂女王的雕像
 
+
+*****
+
+####  xwr  
+##### 2312#       发表于 2026-8-10 14:24
+
+哪个手枪修女所属的白鸦花嫁团，是类似40K战斗修女的组织吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
