@@ -3239,3 +3239,16 @@ Pi这东西有毒吧？我自从接触到这玩意，已经连续三天沉迷于
 
 后面开始用mcp之后又给我注册了一堆tools，发现太麻烦了最后还是裸奔模式用得多<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hugosol  
+##### 6228#       发表于 2026-8-11 01:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70051166&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-11 01:00</a>
+
+Pi这东西有毒吧？我自从接触到这玩意，已经连续三天沉迷于装修毛坯房了，天天装到凌晨3点钟，蹬了我十几块 ...</blockquote>
+以前的超能力者也没有这么爽，因为自己开发这些扩展非常麻烦，一般都是直接装别人做好的成品
+
+现在等于人手一台3D打印机，什么都能自己做了
+
