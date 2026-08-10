@@ -3122,3 +3122,27 @@ opencode go用v4f编程感觉用量很难用完啊
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以峰谷价还有戏？
 利好撸管啊
 
+
+*****
+
+####  neptunehs  
+##### 6217#       发表于 2026-8-10 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70049096&amp;ptid=2275806" target="_blank">拯救节操希灵宅 发表于 2026-8-10 18:42</a>
+opencode go用v4f编程感觉用量很难用完啊</blockquote>
+我就只剩不到20%了 在flash出来前用了k3真是亏了
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6218#       发表于 2026-8-10 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70049096&amp;ptid=2275806" target="_blank">拯救节操希灵宅 发表于 2026-8-10 18:42</a>
+opencode go用v4f编程感觉用量很难用完啊</blockquote>
+可以切k3浪一下
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
