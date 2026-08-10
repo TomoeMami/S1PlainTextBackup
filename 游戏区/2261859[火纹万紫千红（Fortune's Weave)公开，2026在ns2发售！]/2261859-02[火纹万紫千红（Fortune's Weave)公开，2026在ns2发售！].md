@@ -8931,3 +8931,11 @@ Her magic ...</blockquote>
 
 等个日本直邮卡带，现在淘宝日版卡带都跟日服数字版差不多价，日元跌的爽<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KUMA  
+##### 2323#       发表于 2026-8-11 05:22
+
+这次音乐也很是强大，特别喜欢凯那首。这几年的火纹音乐制作的都很用心，3房不说，engage中的那几首trial of， 真是官方逼死同人级别的remix和 medley, 特别是 Trial of Awakening 恨不得loop个100遍！！
+
