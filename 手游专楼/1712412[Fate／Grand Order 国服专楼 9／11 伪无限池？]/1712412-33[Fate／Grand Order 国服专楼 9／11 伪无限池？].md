@@ -2202,3 +2202,16 @@ syl 怎么职介关卡就关掉了，几乎没打啊<img src="https://static.sta
 —— 来自 OnePlus PKR110, Android 16, 鹅球 v3.5.99</blockquote>
 够了 只要升到6绊开了被动2就行了
 
+
+*****
+
+####  guojiaoqi  
+##### 48083#       发表于 2026-8-10 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70042003&amp;ptid=1712412" target="_blank">doublehit 发表于 2026-8-9 16:24</a>
+所长本跟ort比起来如何，看了下流程感觉又臭又长啊</blockquote>
+最后这个怒分体如果卡跟礼装全的话直接抄棉被那个速推队伍，我差了一点做了微调也过了
+唯一需要注意的是棉被攻略没写的是所长上来时候你队伍别直接换，要放全部技能，放技能加星，99星后破防
+
+—— 来自 OnePlus PLK110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
