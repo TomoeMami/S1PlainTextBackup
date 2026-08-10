@@ -2693,3 +2693,22 @@ kimi的网页对话，默认会记忆最近其他对话里面的内容，还不�
 kimi的网页对话，默认会记忆最近其他对话里面的内容，还不能关闭，有点烦人啊 ...</blockquote>
 chatgpt也是这的
 
+
+*****
+
+####  nxmonitor  
+##### 6172#       发表于 2026-8-10 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70047582&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-10 14:53</a>
+
+感觉这个涨价和峰谷价是不是就是吓吓人啊</blockquote>
+现在正在学美联储做预期管理呢，说涨价但是一直不落地，第三方纷纷部署自己的模型，这几天不就不崩了吗？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  唠叨  
+##### 6173#       发表于 2026-8-10 15:05
+
+opencodego的ds比官网慢好多 不过蹬了一个小时了 用量真的是一动不动
+

@@ -8839,3 +8839,11 @@ Her magic ...</blockquote>
 
 —— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  otakun  
+##### 2314#       发表于 2026-8-10 15:03
+
+觉得5年后的固定队友是自捏的粉丝团/应援团/信徒
+
