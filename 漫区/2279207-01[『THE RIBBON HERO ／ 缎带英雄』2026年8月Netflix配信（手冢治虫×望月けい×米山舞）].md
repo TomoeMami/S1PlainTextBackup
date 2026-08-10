@@ -1267,3 +1267,11 @@ Saaya本质就是搞笑艺人，这是她第一次担任声优，棒读是必然
 音乐是神前晓和monaco，这个没得黑。纸片那个有点像小圆里面那个，魔女设定的团队，叫啥来着？ ...</blockquote>
 是说剧团狗咖喱吗
 
+
+*****
+
+####  chenyedgg  
+##### 105#       发表于 2026-8-10 12:22
+
+跳着看了下，感觉给作豚能剪的地方都没多少<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
