@@ -8763,3 +8763,14 @@ None
 
 该不会是皇女祖先吧，又是红花又是罪的，有那味了
 
+
+*****
+
+####  mull132  
+##### 2306#       发表于 2026-8-10 11:17
+
+这个魔法职业的熟练度加成还有剑和拳套
+魔法手枪要来了吗<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
