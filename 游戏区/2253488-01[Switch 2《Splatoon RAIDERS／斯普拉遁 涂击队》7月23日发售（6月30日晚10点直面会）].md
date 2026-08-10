@@ -7809,3 +7809,11 @@ x上看到所有配件零件集齐后，图鉴会有第二个对号。
 和你使用的武器有关的，用狙刷就会出很多狙</blockquote>
 毫无关系，我一直用炮的，出的最多的是刷子
 
+
+*****
+
+####  RioBone  
+##### 916#       发表于 2026-8-10 11:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">涡潮盐水晶不够用，求助哪里方便刷，后期更新老任加上兑换吧？
+
