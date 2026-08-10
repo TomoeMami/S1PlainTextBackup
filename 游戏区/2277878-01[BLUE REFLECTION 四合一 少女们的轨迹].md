@@ -1710,3 +1710,14 @@ NS2 吗？
 
 EDCG真蓝，不过合集后反射系列是不是就此终结了…(不-要-啊)<img src="https://static.stage1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  WGTCorp  
+##### 143#       发表于 2026-8-10 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70043399&amp;ptid=2277878" target="_blank">达达葱2 发表于 2026-8-9 21:30</a>
+NS2 吗？</blockquote>
+是steamdeck，我tdp锁了8w，开头半小时大概掉了15%多一点的电，不过中间大多时间是剧情和过场动画，性能压力不大。之后又用pc玩了一段，某个场景帧数直接掉了快一半，不知道后面这个tdp能不能稳住30帧。
+另外这游戏画质就算开到全高了，在sd的屏幕上也看不出什么区别，反而会导致帧数下降，感觉也没必要再调了。
+

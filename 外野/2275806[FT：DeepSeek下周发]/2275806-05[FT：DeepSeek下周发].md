@@ -2712,3 +2712,22 @@ chatgpt也是这的
 
 opencodego的ds比官网慢好多 不过蹬了一个小时了 用量真的是一动不动
 
+
+*****
+
+####  蛋黄酱Release  
+##### 6174#       发表于 2026-8-10 15:15
+
+opencode这哥们是不是已经疯了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+全球第一v4f吹
+
+<img src="https://img.stage1st.com/forum/202608/10/151304v5bb4422wxy52w2u.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1786345984217_1.webp</strong> (44.15 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 15:13 上传
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
