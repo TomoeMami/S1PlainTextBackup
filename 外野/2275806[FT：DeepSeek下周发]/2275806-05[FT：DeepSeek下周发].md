@@ -2806,3 +2806,13 @@ opencode这哥们是不是已经疯了
 全球第一v4f吹</blockquote>
 理论上这已经相当奇迹了，比起前几年chatbot时代，opencode现在的吞吐量感觉可能跟自来水厂差不多<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ml1642879  
+##### 6183#       发表于 2026-8-10 16:13
+
+什么时候官宣大肥鱼女仆为正式吉祥物
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
+
