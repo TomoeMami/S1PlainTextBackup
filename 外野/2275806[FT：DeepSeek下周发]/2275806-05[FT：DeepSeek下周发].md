@@ -2577,3 +2577,22 @@ python写个脚本连不就行了，用全参数的模型分分钟自己能够�
 
 只有git这种明显训练资料很多的场景才表现得好一点
 
+
+*****
+
+####  唠叨  
+##### 6161#       发表于 2026-8-10 13:28
+
+最近做个chrome插件 用ds花了15没做好，用qw3.7plus花了20推进了两步，开了opedcodego继续用3.7plus，一句话一个小迭代就花了10%的5小时用量，又换成go的ds了，ds疯狂思考但是进度和用量都不往前走了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhongjie  
+##### 6162#       发表于 2026-8-10 13:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70047091&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-10 13:28</a>
+
+最近做个chrome插件 用ds花了15没做好，用qw3.7plus花了20推进了两步，开了opedcodego继续用3.7plus，一句 ...</blockquote>
+用下k3试试？opencode go我记得有的
+
