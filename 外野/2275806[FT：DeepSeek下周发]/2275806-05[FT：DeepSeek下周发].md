@@ -3067,3 +3067,33 @@ logo那么明显的眼斑，当然是虎鲸呀</blockquote>
 毕竟 ds 的 logo 就是个鲸鱼，娘化形象有个准确的锚点，别家 logo 都是各种几何形状的皮燕子，只能从颜色来建构。
 至于豆包……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 6211#       发表于 2026-8-10 18:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">glm和kimi是字母，goa三家和grok都是皮燕子
+
+只有ds是明确的鲸鱼形象<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2017.05.04  
+##### 6212#       发表于 2026-8-10 18:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70048721&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-10 17:42</a>
+
+还涨价么，感觉这个公告一发都把人吓走了，负载一低就不用涨了啊</blockquote>
+本来就是想把老外都赶走啊
+
+这不是opencode已经high到不行了，泼天的富贵<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  舞以  
+##### 6213#       发表于 2026-8-10 18:25
+
+来个反向峰谷价吧，狠狠歧视白皮<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
