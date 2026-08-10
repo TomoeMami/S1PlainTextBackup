@@ -52,3 +52,16 @@
 
 BNAJT
 
+
+*****
+
+####  电脑死机  
+##### 4603#       发表于 2026-8-10 08:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70032838&amp;ptid=2071758" target="_blank">captoon 发表于 2026-8-7 21:31</a>
+
+国际服新增一张蓝票优惠券
+
+BNAJT</blockquote>
+然而无法正常登录商店和优惠码那边很久了，明明账号港区，梯子也是选港区，但是永远都提示区域不对
+

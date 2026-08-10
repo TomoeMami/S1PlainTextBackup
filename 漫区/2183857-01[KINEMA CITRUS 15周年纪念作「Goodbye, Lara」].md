@@ -3426,3 +3426,22 @@ OP制作幕后：[https://youtu.be/zjEIP030QOc](https://youtu.be/zjEIP030QOc)
 茉里：傻子鱼你抬脚那头，家里有个地下室，藏在那里肯定没有人知道
 菈菈：（发呆中）
 
+
+*****
+
+####  zing223  
+##### 278#       发表于 2026-8-10 08:29
+
+洛望和人鱼这种永恒生命感觉难逃一死<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+我也觉得深挖四姐经历好像真的有点走偏了，感觉给人物一套完整的文本背景好像不是这部动画的玩法啊
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Lawliet.L  
+##### 279#       发表于 2026-8-10 08:33
+
+有点像自我实现的预言<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

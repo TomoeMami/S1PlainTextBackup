@@ -2288,3 +2288,22 @@ gemini至今是我用的最多的模型，不管是CLI搞AIRP还是网页日常�
 
 不出就不出吧，flash能不能不降智了，周末是感觉笨了一些<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  当光停止  
+##### 6130#       发表于 2026-8-10 08:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">剑指今天下午1点半！
+
+*****
+
+####  diohanmilton  
+##### 6131#       发表于 2026-8-10 08:35
+
+这两天用kimi k3做决策，ds v4f做实施，把一个别人的Python代码迁移到c#/avalonia，基本没有问题，除了细节要打磨。
+
+但是v4f没有多模态，导致gui还是不太行。然后改gui用的kimi 2.7 code，k3消耗的分太多了。
+
+—— 来自 HONOR PGT-AN10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
