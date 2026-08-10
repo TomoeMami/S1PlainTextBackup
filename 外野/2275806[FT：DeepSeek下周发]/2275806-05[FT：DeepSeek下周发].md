@@ -2860,3 +2860,18 @@ opencode这哥们是不是已经疯了
 全球第一v4f吹</blockquote>
 人家也没提DS吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wandeeees  
+##### 6188#       发表于 2026-8-10 16:26
+
+现在V4F这价格和性能，我觉得我司这种中型公司已经可以自己部署，然后优化人员了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，因为这边开发都是在局域网，不好用到AI，现在本地部署了感觉可以大幅提高工作效率了。当然没部署的原因可能是领导们根本意识不到这一点，因为看着都是一些老登了，也不怎么懂技术的样子
+
+*****
+
+####  nxmonitor  
+##### 6189#       发表于 2026-8-10 16:28
+
+唯一的问题在于动物是蓝鲸而不是虎鲸，我觉得虎鲸更有趣……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
