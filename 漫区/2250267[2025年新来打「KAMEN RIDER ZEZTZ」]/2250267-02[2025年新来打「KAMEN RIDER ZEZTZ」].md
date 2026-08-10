@@ -166,3 +166,11 @@ U咩啊，希望啊，未来啊喊太多了，女主跟个傻白甜愣愣的<img
 
 当然我也是不看好能解释得很精彩<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  法拉  
+##### 2147#       发表于 2026-8-10 17:49
+
+有什么好解释的，有新形态不变硬要用老形态送人头不是常见桥段么，哪部没有啦
+
