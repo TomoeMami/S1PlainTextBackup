@@ -2816,3 +2816,47 @@ opencode这哥们是不是已经疯了
 
 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
 
+
+*****
+
+####  sellboy  
+##### 6184#       发表于 2026-8-10 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70047714&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-10 15:15</a>
+
+opencode这哥们是不是已经疯了
+
+全球第一v4f吹</blockquote>
+畅想AI作为基础设施时的美好未来而已，并不特指V4f。
+
+你看这些任务，后两个都是V4f无法完成的。
+
+*****
+
+####  qz66618  
+##### 6185#       发表于 2026-8-10 16:20
+
+鲸鱼娘这个女仆形象确实是一大特点，相比其他国内外知名的模型形象少且不统一，ds的各种娘化形象尤其是这个女仆形象确实出圈并且风格较为统一<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rowen233  
+##### 6186#       发表于 2026-8-10 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70047549&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-10 14:49</a>
+
+kimi的网页对话，默认会记忆最近其他对话里面的内容，还不能关闭，有点烦人啊 ...</blockquote>
+Gemini和GPT都会<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">默认你的对话内容都是工作相关
+
+*****
+
+####  Rowen233  
+##### 6187#       发表于 2026-8-10 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70047714&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-10 15:15</a>
+
+opencode这哥们是不是已经疯了
+
+全球第一v4f吹</blockquote>
+人家也没提DS吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
