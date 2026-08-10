@@ -8609,3 +8609,109 @@ TB怎么日版港版价格差那么多</blockquote>
 
 比较惊讶的是她竟然是有重要过去的角色，这长相还以为只是外乡来的遭遇尸潮的冒险者
 
+
+*****
+
+####  qiyu1234  
+##### 2301#       发表于 2026-8-10 10:40
+
+40级，应该一样是5年后专属的角色
+
+看好感度的增长幅度，显然，5年后的流程不会很短
+
+<img src="https://img.stage1st.com/forum/202608/10/103937q3830u4btc3ups4a.jpg" referrerpolicy="no-referrer">
+
+<strong>oiyGBL7_9MgjUs0Q.mp4_20260810_103735.823.jpg</strong> (101.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 10:39 上传
+
+<img src="https://img.stage1st.com/forum/202608/10/103938d4vqrnv3t5jzfspj.jpg" referrerpolicy="no-referrer">
+
+<strong>oiyGBL7_9MgjUs0Q.mp4_20260810_103739.375.jpg</strong> (123.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 10:39 上传
+
+<img src="https://img.stage1st.com/forum/202608/10/103938f9yniz9347tow6tt.jpg" referrerpolicy="no-referrer">
+
+<strong>oiyGBL7_9MgjUs0Q.mp4_20260810_103740.748.jpg</strong> (122.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 10:39 上传
+
+<img src="https://img.stage1st.com/forum/202608/10/103939r5l4uipp4s5e9qhz.jpg" referrerpolicy="no-referrer">
+
+<strong>oiyGBL7_9MgjUs0Q.mp4_20260810_103746.907.jpg</strong> (99.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 10:39 上传
+
+<img src="https://img.stage1st.com/forum/202608/10/103939brt0dgv1m15kdmir.jpg" referrerpolicy="no-referrer">
+
+<strong>oiyGBL7_9MgjUs0Q.mp4_20260810_103750.114.jpg</strong> (125.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 10:39 上传
+
+<img src="https://img.stage1st.com/forum/202608/10/103940gflfbbfe8vv9euzv.jpg" referrerpolicy="no-referrer">
+
+<strong>oiyGBL7_9MgjUs0Q.mp4_20260810_103755.194.jpg</strong> (85.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 10:39 上传
+
+<img src="https://img.stage1st.com/forum/202608/10/103952huv7vyv65aazkd3b.jpg" referrerpolicy="no-referrer">
+
+<strong>xdKI5-bp_4Vpa8-4.mp4_20260810_103816.148.jpg</strong> (109.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 10:39 上传
+
+<img src="https://img.stage1st.com/forum/202608/10/103952npgcewzzggew4mgb.jpg" referrerpolicy="no-referrer">
+
+<strong>xdKI5-bp_4Vpa8-4.mp4_20260810_103818.620.jpg</strong> (98.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 10:39 上传
+
+<img src="https://img.stage1st.com/forum/202608/10/103953a9i0hik0zx3ix7iv.jpg" referrerpolicy="no-referrer">
+
+<strong>xdKI5-bp_4Vpa8-4.mp4_20260810_103821.700.jpg</strong> (106.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 10:39 上传
+
+<img src="https://img.stage1st.com/forum/202608/10/103953md64k7s2kn600ek7.jpg" referrerpolicy="no-referrer">
+
+<strong>xdKI5-bp_4Vpa8-4.mp4_20260810_103824.626.jpg</strong> (131.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 10:39 上传
+
+<img src="https://img.stage1st.com/forum/202608/10/103954jho7ezpjlo2qqiip.jpg" referrerpolicy="no-referrer">
+
+<strong>xdKI5-bp_4Vpa8-4.mp4_20260810_103827.122.jpg</strong> (127.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 10:39 上传
+
+<img src="https://img.stage1st.com/forum/202608/10/103954pcmtiiciptguxlw2.jpg" referrerpolicy="no-referrer">
+
+<strong>xdKI5-bp_4Vpa8-4.mp4_20260810_103829.178.jpg</strong> (123.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-10 10:39 上传
+

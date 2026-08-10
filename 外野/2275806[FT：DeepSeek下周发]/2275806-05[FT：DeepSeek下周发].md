@@ -2489,3 +2489,37 @@ python写个脚本连不就行了，用全参数的模型分分钟自己能够�
 
 我主要是要在内网机部署一个方便调试内网系统，没办法用cloud api的，看来还是自己攒点钱自费补贴工作吧<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  →熙←  
+##### 6151#       发表于 2026-8-10 10:39
+
+重新定义8月初
+
+*****
+
+####  小野賢章  
+##### 6152#       发表于 2026-8-10 10:40
+
+感觉现在已经不需要IDE了，把jetbrains全家桶取消了，现在就用vscode review一下修改<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿刚  
+##### 6153#       发表于 2026-8-10 10:43
+
+又到周一啦，来看坛友发癫！
+
+*****
+
+####  c月光咖啡  
+##### 6154#       发表于 2026-8-10 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70046028&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-10 10:40</a>
+感觉现在已经不需要IDE了，把jetbrains全家桶取消了，现在就用vscode review一下修改 ...</blockquote>
+不用感觉，我已经完全脱离IDE做了几个项目了，这个图太符合我的感受了
+<img src="https://p.sda1.dev/34/6a506f5d7133156badcdad7951f1f581/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
+
