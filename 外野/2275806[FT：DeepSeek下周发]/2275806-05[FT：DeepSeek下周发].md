@@ -2523,3 +2523,42 @@ python写个脚本连不就行了，用全参数的模型分分钟自己能够�
 
 —— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
 
+
+*****
+
+####  tk553521  
+##### 6155#       发表于 2026-8-10 10:47
+
+我已经彻底放弃不看代码了，让大模型查大模型，多查几轮拉倒<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  neptunehs  
+##### 6156#       发表于 2026-8-10 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70045922&amp;ptid=2275806" target="_blank">燕山雪 发表于 2026-8-10 10:24</a>
+之前ds4f干完活自己写了个填字游戏玩的事，苦主把原始记录发到GitHub和知乎了：https://github.com/Guanyu- ...</blockquote>
+点进去就发现模型是mimo
+问题出在hermes
+
+躺枪的吃白饭蓝色大肥鱼
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  med  
+##### 6157#       发表于 2026-8-10 10:50
+
+感觉读长文本、长代码能力下降了 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大喵喵  
+##### 6158#       发表于 2026-8-10 10:54
+
+我周末在一个512G内存加RTX 5880 的服务器上成功部署了unlosh的deepseek v4 flash 8bit 满血版本。就是太慢了点，生成只有6token/s
+

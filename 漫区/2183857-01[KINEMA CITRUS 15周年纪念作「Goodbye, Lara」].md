@@ -3445,3 +3445,17 @@ OP制作幕后：[https://youtu.be/zjEIP030QOc](https://youtu.be/zjEIP030QOc)
 
 有点像自我实现的预言<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 280#       发表于 2026-8-10 10:47
+
+“真实之爱”这个这个主题更像几原一点，如果是几原最后大概率找到的是“大爱”拉拉牺牲自己换来所有人的未来。小出应该不至于
+
+本集来看“真实之爱”前的各种“爱”没拉拉一个人全体验一遍，而是分了一部分给其他人除姐姐之外看op魔女也有一部分“爱”的戏份
+
+拉拉应该只有和王子，茉里，家族的“爱”了
+
+然后这最后一段感觉“王子”是近视眼根本没看清拉拉的尾巴，至于茉里把拉拉打昏带走嘛<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
