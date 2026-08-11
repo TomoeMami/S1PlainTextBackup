@@ -8001,3 +8001,20 @@ x上推荐比较多的是反复刷无尽食堂97-99层。手柄带宏可以考�
 
 再加一把雪峰弓，感觉比4K上限高，可以带集中攻击，我就猜测
 
+
+*****
+
+####  a3a4sc  
+##### 934#       发表于 2026-8-11 15:17
+
+网上看到的爬塔实绩记录
+
+DD73192A-A571-45BB-ACEC-B5EECCC05636.webp
+(58.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-11 15:16 上传
+
+<img src="https://img.stage1st.com/forum/202608/11/151646jz37t07t8ad77ntz.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
