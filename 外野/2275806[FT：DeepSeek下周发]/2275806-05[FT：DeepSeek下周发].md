@@ -3688,3 +3688,65 @@ pi+deepseekv4f最近做的一些奇奇妙妙的组合，完全一点究极没有
 
 —— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  蛋黄酱Release  
+##### 6270#       发表于 2026-8-11 18:38
+
+有人测ocg的v4f比官方的api要差一点，速度慢这个大家应该都有体会就不转了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/11/183713tq79b77udk7g9ap9.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1786444632886_2.webp</strong> (19.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-11 18:37 上传
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  冤枉呐  
+##### 6271#       发表于 2026-8-11 18:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70055418&amp;ptid=2275806" target="_blank">MeursaulT 发表于 2026-8-11 17:54</a>
+今天找到一个好看的小黄片，但没法下载，就把url给pi里的v4f，挂上破限，几分钟就做了个脚本，破解了网站的 ...</blockquote>
+牛逼
+破限是他本来不愿意干？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  舞以  
+##### 6272#       发表于 2026-8-11 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70055715&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-11 18:39</a>
+
+牛逼
+
+破限是他本来不愿意干？</blockquote>
+一般现在模型在网安方面都有点基本的拒答对齐吧
+
+*****
+
+####  MeursaulT  
+##### 6273#       发表于 2026-8-11 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70055715&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-11 18:39</a>
+牛逼
+破限是他本来不愿意干？</blockquote>
+破限是因为 URL 里面有类似睡觉的关键词，实际上没什么（毕竟是片商拍的），但是他很敏感，不破限就拒绝抓取。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  MeursaulT  
+##### 6274#       发表于 2026-8-11 18:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70055735&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-11 18:44</a>
+一般现在模型在网安方面都有点基本的拒答对齐吧</blockquote>
+Deepseek 网安不需要破限，我只见过政治甲和色情甲。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
