@@ -3724,3 +3724,14 @@ OP制作幕后：[https://youtu.be/zjEIP030QOc](https://youtu.be/zjEIP030QOc)
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  asukaasu  
+##### 295#       发表于 2026-8-11 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70054683&amp;ptid=2183857" target="_blank">zing223 发表于 2026-8-11 16:11</a>
+这预告仔细一想磕哪对cp都可以往对其有利的方向解释
+syl 卢卡的自称是俺，和人设印象不太一样</blockquote>
+预告里就用过俺吧
+
