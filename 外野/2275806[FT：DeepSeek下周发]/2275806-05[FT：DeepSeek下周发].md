@@ -3582,3 +3582,24 @@ musespark也要开源，会不会威胁ds
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zfy1989  
+##### 6260#       发表于 2026-8-11 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70054863&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-11 16:37</a>
+
+musespark也要开源，会不会威胁ds
+
+—— 来自 HONOR AAK-AN00, Android 16, 鹅球 v3.5.99</blockquote>
+额，开源本来就是我们国家的战略，dsflash这种小型性能不弱的可以让其他国家的企业可以本地部署而不是被迫接受美国的ai霸权。至于musespark，我只能说你看有人用吗
+
+
+*****
+
+####  小野賢章  
+##### 6261#       发表于 2026-8-11 16:53
+
+公司订阅的codex从每月重置变成每周重置了，不知道咋回事
+
