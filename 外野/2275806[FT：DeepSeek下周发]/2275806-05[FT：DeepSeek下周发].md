@@ -3962,3 +3962,21 @@ pi+deepseekv4f最近做的一些奇奇妙妙的组合，完全一点究极没有
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  王兰花秀丽  
+##### 6292#       发表于 2026-8-12 00:28
+
+大的真的要来辣
+
+<img src="https://img.stage1st.com/forum/202608/12/002808hctszenrk5rykk0e.jpg" referrerpolicy="no-referrer">
+
+<strong>1000052287.jpg</strong> (348.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 00:28 上传
+
+    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
