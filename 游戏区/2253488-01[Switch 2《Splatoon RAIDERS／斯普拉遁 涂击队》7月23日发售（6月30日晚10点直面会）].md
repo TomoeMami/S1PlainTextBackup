@@ -7957,3 +7957,26 @@ x上推荐比较多的是反复刷无尽食堂97-99层。手柄带宏可以考�
 问一下范丸巢穴这关怎么过。就是一堆柱子，然后有一堆那个金属大嘴鱼的关卡。你只能攻击后面操控的鲑鱼。 ...</blockquote>
 基本思路就是用风扇飞天，直接瞄着尾部打
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 930#       发表于 2026-8-11 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70052464&amp;ptid=2253488" target="_blank">才口千 发表于 2026-8-11 10:46</a>
+这把武器值得升级吗？哪些武器算是版本答案</blockquote>
+引擎滚筒、汽油4k、丙烷爆破、鲨鱼爆破，通关后送的pet也可以
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 931#       发表于 2026-8-11 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70052492&amp;ptid=2253488" target="_blank">razielzyc 发表于 2026-8-11 10:49</a>
+问一下范丸巢穴这关怎么过。就是一堆柱子，然后有一堆那个金属大嘴鱼的关卡。你只能攻击后面操控的鲑鱼。 ...</blockquote>
+柱子可以配卫星的上方攻击，蛇多用风扇和机甲跳跃
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
