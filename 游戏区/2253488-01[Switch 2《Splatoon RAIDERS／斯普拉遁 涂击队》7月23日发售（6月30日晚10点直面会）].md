@@ -8073,3 +8073,13 @@ DD73192A-A571-45BB-ACEC-B5EECCC05636.webp
 
 他哪怕出个持久战机制的我都愿意用各种流派多玩玩哪怕多打一会，搞这个时间限制和数值无限增长后面真的无聊
 
+
+*****
+
+####  martinoy  
+##### 941#       发表于 2026-8-11 23:16
+
+100层之后本来就不是普通内容了，完全可以试各种配置打97
+
+— from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
