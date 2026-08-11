@@ -3513,3 +3513,15 @@ reasonix越更新问题越多。感觉 vibe 时代很多项目都这样，人人
 
 话说chatbox到现在没法用V4F的联网搜索情况，要怎么处理？还是换成cherry studio算了？
 
+
+*****
+
+####  杀人鲸  
+##### 6254#       发表于 2026-8-11 14:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70053584&amp;ptid=2275806" target="_blank">飛霞精灵 发表于 2026-8-11 13:43</a>
+话说chatbox到现在没法用V4F的联网搜索情况，要怎么处理？还是换成cherry studio算了？ ...</blockquote>
+这个的适配速度还是一般吧，估计得等到下个版本了。这一家经常出现这种更新了什么功能的话，这个版本是用不了的，得下个版本进行一些适配才行。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
