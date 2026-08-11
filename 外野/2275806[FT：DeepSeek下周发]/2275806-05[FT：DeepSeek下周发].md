@@ -3453,3 +3453,14 @@ reasonix越更新问题越多。感觉 vibe 时代很多项目都这样，人人
 
 我看reasonix代码仓库里的 bug 用例太少了，这样一天一更新的频率只会越来越难用<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  serj005  
+##### 6249#       发表于 2026-8-11 12:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70052965&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-11 11:59</a>
+reasonix越更新问题越多。感觉 vibe 时代很多项目都这样，人人有一个好点子让 ai 实现，但是缺乏足够的工程 ...</blockquote>
+往好点想，reasonix刚用go重写那段时间bug更多<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">从桌面端到cli都完全没有可用性的那种，后面还加了莫名其妙的记忆功能，一段时间之后发现由记忆插件引发的bug太多而且记忆对最终vibe效果基本没有提升才把这个功能给砍了。
+现在好歹桌面端界面上的显示bug是越来越少了。
+
