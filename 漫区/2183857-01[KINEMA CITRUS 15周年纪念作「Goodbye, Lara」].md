@@ -3714,3 +3714,13 @@ OP制作幕后：[https://youtu.be/zjEIP030QOc](https://youtu.be/zjEIP030QOc)
 
 话说ep1要接吻时菈菈才变回鱼，ep6看到就变回鱼了，这是什么机制。以及四姐和𩽾𩾌怎么就没有这个变回鱼的机制（
 
+
+*****
+
+####  zing223  
+##### 294#       发表于 2026-8-11 16:11
+
+这预告仔细一想磕哪对cp都可以往对其有利的方向解释<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
