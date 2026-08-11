@@ -86,3 +86,20 @@
 破界和再世注册了商标，看来再世是打算作为dlc更新</blockquote>
 不过11年注册的再世篇商标有第9类，这次也有可能只是补个第41类
 
+
+*****
+
+####  高达age  
+##### 225#       发表于 2026-8-11 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70012583&amp;ptid=2286736" target="_blank">アヘ顔 发表于 2026-8-4 18:07</a>
+
+说起来现在机器人动画式微，机战文化也陷入低潮
+
+以后的机战游戏的战斗动画制作会不会陷入人才断层......
+
+ ...</blockquote>
+是的，本季甚至没有萝卜片，
+
+这个趋势从五年前就开始了： [https://stage1st.com/2b/thread-1984324-1-1.html](https://stage1st.com/2b/thread-1984324-1-1.html)
+
