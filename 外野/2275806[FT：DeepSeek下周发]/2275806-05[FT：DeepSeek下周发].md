@@ -3821,3 +3821,14 @@ Deepseek 网安不需要破限，我只见过政治甲和色情甲。    Re:So
 
 deepseek v4 flash 是不是即使档位设置成effort max，think也是自适应（adaptive）的？我在opencode里试了试（用的ds官方的apikey），问它1+1=几它根本没有思考块，我实在是不知道我是配错了，还是它本来就是遇到简单问题不思考。
 
+
+*****
+
+####  一般市民  
+##### 6282#       发表于 2026-8-11 21:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70056504&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-8-11 21:24</a>
+
+deepseek v4 flash 是不是即使档位设置成effort max，think也是自适应（adaptive）的？我在opencode里试了 ...</blockquote>
+没有自适应的，开了思考肯定会有思维链。
+
