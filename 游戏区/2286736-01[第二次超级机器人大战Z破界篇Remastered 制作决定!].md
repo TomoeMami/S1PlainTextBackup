@@ -75,3 +75,14 @@
 
 前两天看了个把z2的w系高达随便剪一起冒充合体技，就这都比机战y强百倍
 
+
+*****
+
+####  misya  
+##### 224#       发表于 2026-8-11 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70053815&amp;ptid=2286736" target="_blank">misya 发表于 2026-8-11 14:33</a>
+
+破界和再世注册了商标，看来再世是打算作为dlc更新</blockquote>
+不过11年注册的再世篇商标有第9类，这次也有可能只是补个第41类
+
