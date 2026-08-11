@@ -3334,3 +3334,13 @@ harness的图标可能是黑色虎鲸
 其实我不希望这个harness和DS本体过度绑定的，我别的模型也想用它    Re:Source</blockquote>
 好用了以后 其他模型也会后训练来靠的
 
+
+*****
+
+####  LeoDT  
+##### 6237#       发表于 2026-8-11 09:06
+
+D老师的命令行能力成长过于厉害，而且经常自己写js/py脚本做工作验证，导致黑白名单拦截bash工具已经完全不够了。好在还是能比较严格的遵守指令，出大事的概率比较小，不过保险起见还是早早把沙盒环境搞好，Linux环境工作所以让pi用bubblewrap做一个就足够用了，其它环境前两天还看到docker出的方案 ([https://www.docker.com/products/docker-sandboxes/](https://www.docker.com/products/docker-sandboxes/))，看上去也还不错。
+
+另外pi最近支持了LaTex和Mermaid，让D老师直接输出架构图什么的很好用。
+
