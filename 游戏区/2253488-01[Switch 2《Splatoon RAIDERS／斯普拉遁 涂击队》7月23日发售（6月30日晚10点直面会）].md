@@ -8018,3 +8018,23 @@ DD73192A-A571-45BB-ACEC-B5EECCC05636.webp
 
 <img src="https://img.stage1st.com/forum/202608/11/151646jz37t07t8ad77ntz.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无辄辄  
+##### 935#       发表于 2026-8-11 15:29
+
+<blockquote>zero33333 发表于 2026-8-11 14:26
+再加一把雪峰弓，感觉比4K上限高，可以带集中攻击，我就猜测</blockquote>
+实际上弓没有4K好用，4K的射程比它好，而且4K还有高贵的穿透。
+
+*****
+
+####  三级怪兽  
+##### 936#       发表于 2026-8-11 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70054164&amp;ptid=2253488" target="_blank">a3a4sc 发表于 2026-8-11 15:17</a>
+
+网上看到的爬塔实绩记录，4K和一众单发大伤害远程+速度冰冻飞天流是统治级的强度（太不平衡了，没新鲜感） ...</blockquote>
+主要是他这关卡设计只有一个时间限制，完全没机制，到最后就肯定只能是dps检测器，过不了dps门槛就不行
+

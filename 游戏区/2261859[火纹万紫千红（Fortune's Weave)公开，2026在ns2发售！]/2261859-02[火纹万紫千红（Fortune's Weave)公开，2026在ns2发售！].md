@@ -8939,3 +8939,22 @@ Her magic ...</blockquote>
 
 这次音乐也很是强大，特别喜欢凯那首。这几年的火纹音乐制作的都很用心，3房不说，engage中的那几首trial of， 真是官方逼死同人级别的remix和 medley, 特别是 Trial of Awakening 恨不得loop个100遍！！
 
+
+*****
+
+####  BILIBILIJ  
+##### 2324#       发表于 2026-8-11 15:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70049765&amp;ptid=2261859" target="_blank">风使塞缇 发表于 2026-8-10 20:55</a>
+
+想第一时间玩到建议就数字版吧
+
+卡带版直邮预期玩到的时间都是2周起步</blockquote>
+......你买的都是港邮洋包裹吧；
+
+日邮最快，但量少，一般首发3-4天就能拿到，我涂击队就是日邮，日本发出游戏发售第三天到货
+
+港邮分情况，发香港顺丰的，最慢5天也到了，清关最快
+
+其次是中通国际，清关正常的话差不多一周半也能到
+

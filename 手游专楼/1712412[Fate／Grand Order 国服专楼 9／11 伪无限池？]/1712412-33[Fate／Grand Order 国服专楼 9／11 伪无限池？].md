@@ -2351,3 +2351,23 @@ MuMu-20260810-204759-749.jpg
 
 挺过2.7的屎后面就舒服了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实也挺快
 
+
+*****
+
+####  khxooo  
+##### 48096#       发表于 2026-8-11 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70053531&amp;ptid=1712412" target="_blank">zore 发表于 2026-8-11 13:32</a>
+这得花不少时间，先生
+
+挺过2.7的屎后面就舒服了其实也挺快</blockquote>
+奏3可不舒服，忘记了各种锁马修了吗<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  doublehit  
+##### 48097#       发表于 2026-8-11 15:33
+
+抽了快300石没抽到飞嫂，不敢抽了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
