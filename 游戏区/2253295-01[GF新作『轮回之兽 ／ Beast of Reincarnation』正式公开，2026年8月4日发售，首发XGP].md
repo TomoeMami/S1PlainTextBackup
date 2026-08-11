@@ -2917,3 +2917,11 @@ GF还是老老实实抱宝可梦大腿吧</blockquote>
 
 玩了个开头感觉挺不错的呀，手感也可以，gf居然这么厉害
 
+
+*****
+
+####  Yidam  
+##### 571#       发表于 2026-8-11 20:11
+
+手感只能说一般，能玩，不过我感觉木遁跑图战斗还是有点意思的，怪和演出哪做的差后面玩一会就知道了，是真的很难绷<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
