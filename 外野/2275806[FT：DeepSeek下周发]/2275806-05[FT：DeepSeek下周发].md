@@ -4118,3 +4118,15 @@ pi真好玩啊，今天用pi整了个语音助手，在电脑上直接和它对�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  果壳中的松鼠  
+##### 6304#       发表于 2026-8-12 02:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70057515&amp;ptid=2275806" target="_blank">Fuuki 发表于 2026-8-12 01:48</a>
+隐藏推理过程是什么，只存在A\服务器里的推理？</blockquote>
+就是思维链，就像deepseek的思考过程。闭源模型的思维链都是加密的，用户看不到实际内容
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
