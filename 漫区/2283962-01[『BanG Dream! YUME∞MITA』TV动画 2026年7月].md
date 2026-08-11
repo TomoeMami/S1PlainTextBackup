@@ -1316,3 +1316,15 @@ tdz虽然也是阴角但是漫画乐队双开，怎么说行动力也是拉满�
 
 藤都子：汝非狗焉知狗之乐<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LLLLLuB  
+##### 259#       发表于 2026-8-11 08:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70039738&amp;ptid=2283962" target="_blank">第贰个十年 发表于 2026-8-9 00:55</a>
+认真说的话，为什么都是爆，mygo春日影、飞鸟山我想反复品鉴，梦限大我只觉得“何意味？”呢？
+
+—— 来自  ...</blockquote>
+因为梦现大的情绪叙事和情节叙事就是很割裂的，情节都有做很多铺陈，但引爆剧情矛盾时的情绪氛围却是不足的，或者说就是和一大半欢快氛围是割裂的。mygo第七集起码是花了大半集营造了压抑沉闷的氛围，再舒缓了下情绪后就把矛盾引爆，做到了氛围和情节演绎相辅相成，观感自然很不一样。
+
