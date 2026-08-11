@@ -3443,3 +3443,13 @@ A➗要钱不要🐎了
 
 ds的api界面不是本来就是这个黑鲸鱼图标吗，既然harness需要接入API，那沿用图标也很正常。
 
+
+*****
+
+####  crow_wine  
+##### 6248#       发表于 2026-8-11 11:59
+
+reasonix越更新问题越多。感觉 vibe 时代很多项目都这样，人人有一个好点子让 ai 实现，但是缺乏足够的工程经验去保证可用和稳定性<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+我看reasonix代码仓库里的 bug 用例太少了，这样一天一更新的频率只会越来越难用<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
