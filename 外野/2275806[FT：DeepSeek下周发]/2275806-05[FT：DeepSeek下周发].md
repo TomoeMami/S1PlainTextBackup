@@ -3832,3 +3832,14 @@ deepseek v4 flash 是不是即使档位设置成effort max，think也是自适�
 deepseek v4 flash 是不是即使档位设置成effort max，think也是自适应（adaptive）的？我在opencode里试了 ...</blockquote>
 没有自适应的，开了思考肯定会有思维链。
 
+
+*****
+
+####  奶香花卷  
+##### 6283#       发表于 2026-8-11 22:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70056504&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-8-11 21:24</a>
+
+deepseek v4 flash 是不是即使档位设置成effort max，think也是自适应（adaptive）的？我在opencode里试了 ...</blockquote>
+opencode默认隐藏思考块的吧
+

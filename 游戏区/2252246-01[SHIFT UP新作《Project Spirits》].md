@@ -441,3 +441,13 @@ PC、コンソール、モバイルのクロスプラットフォーム展開を
 <img src="https://p.sda1.dev/34/7bf87a0fbdb8d2eece9f7620013d231d/1000172046.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/34/09103224d36aa229805b998cf6ed101c/1000172049.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 47#         楼主| 发表于 2026-8-11 22:00
+
+•Project Spirits 26年下半年公开（新情报）
+
+•Shift Up 仍有尚未公开的新项目
+
