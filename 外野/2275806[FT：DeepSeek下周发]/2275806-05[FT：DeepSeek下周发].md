@@ -3641,3 +3641,16 @@ meta也有刷分前科的，好的自然有人用，中转站上的流量也能�
 
 今天找到一个好看的小黄片，但没法下载，就把url给pi里的v4f，挂上破限，几分钟就做了个脚本，破解了网站的加密，把视频下载下来了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  有土  
+##### 6266#       发表于 2026-8-11 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70053786&amp;ptid=2275806" target="_blank">库德里尔 发表于 2026-8-11 14:26</a>
+
+pi+deepseekv4f最近做的一些奇奇妙妙的组合，完全一点究极没有考虑写代码工程性：
+
+0. fork一个纯净的绿色 ...</blockquote>
+你的 websearch 有的哪个服务？
+
