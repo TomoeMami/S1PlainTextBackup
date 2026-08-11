@@ -9047,3 +9047,13 @@ Her magic ...</blockquote>
 
 今天假日，后天开始盆休，就明天能更新情报了。
 
+
+*****
+
+####  bbluekid  
+##### 2336#       发表于 2026-8-11 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70054596&amp;ptid=2261859" target="_blank">会长辅佐 发表于 2026-8-11 16:03</a>
+设定上不是说了死了吗</blockquote>
+冥界全是被拉起来的死人
+
