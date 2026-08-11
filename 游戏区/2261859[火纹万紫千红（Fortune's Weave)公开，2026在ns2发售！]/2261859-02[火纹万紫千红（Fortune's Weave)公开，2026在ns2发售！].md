@@ -8958,3 +8958,21 @@ Her magic ...</blockquote>
 
 其次是中通国际，清关正常的话差不多一周半也能到
 
+
+*****
+
+####  黑上シグマ  
+##### 2325#       发表于 2026-8-11 15:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早已订好实体限定版，到时候EMS发回来，反正我不急
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
+
+*****
+
+####  hu794  
+##### 2326#       发表于 2026-8-11 15:56
+
+如果不救，四个级长就会变成敌对方吧。
+

@@ -3564,3 +3564,11 @@ pi+deepseekv4f最近做的一些奇奇妙妙的组合，完全一点究极没有
 
 自从我们发出机构报告以来，谷歌已经悄悄取消了 Gemini 3.5 Pro，现在正通过炒作 Gemini 4 来应对。作为过渡模型，他们发布了 Gemini 3.6 Flash，但它总体上不如 Muse Spark 1.2、Grok 4.5 以及中国一线开源模型。具体怎么算取决于你的计数方式，Gemini 目前排在第八或第九位，而且我们不认为 Gemini 4 能扭转他们的颓势。</blockquote>
 
+
+*****
+
+####  舞以  
+##### 6258#       发表于 2026-8-11 15:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">codex重置了
+
