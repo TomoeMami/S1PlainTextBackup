@@ -3307,3 +3307,30 @@ Pi这东西有毒吧？我自从接触到这玩意，已经连续三天沉迷于
 
 harness的图标可能是黑色虎鲸
 
+
+*****
+
+####  王兰花秀丽  
+##### 6234#       发表于 2026-8-11 09:01
+
+其实我不希望这个harness和DS本体过度绑定的，我别的模型也想用它    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  startraveller  
+##### 6235#       发表于 2026-8-11 09:04
+
+好像说GROK 4.6在roll out了
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  haiuhfuwah  
+##### 6236#       发表于 2026-8-11 09:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70051809&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-11 09:01</a>
+其实我不希望这个harness和DS本体过度绑定的，我别的模型也想用它    Re:Source</blockquote>
+好用了以后 其他模型也会后训练来靠的
+
