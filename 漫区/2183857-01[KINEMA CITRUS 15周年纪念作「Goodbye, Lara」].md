@@ -3840,3 +3840,38 @@ syl 卢卡的自称是俺，和人设印象不太一样</blockquote>
 
 看这集最后拉拉的鱼尾巴特写，人鱼是肉鳍鱼？
 
+
+*****
+
+####  Piano-Forest  
+##### 302#         楼主| 发表于 2026-8-11 22:17
+
+˚🐚⁺‧┈ #さよならララ Blu-ray＆DVD情報┈‧⁺ 🧜‍♀️˚.
+
+キャラクターデザイン #谷紫織 さん描き下ろしBlu-ray&amp;DVD BOX 上巻のパッケージデザインを公開❣
+
+手触り感のあるデザインを、ぜひお手元に置いていただけると嬉しいです✨
+
+<img src="https://p.sda1.dev/34/e5e07a3b96bdbc0a254fcb6807cf6252/HPXiD2JboAI38Nn.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/87c56faa00890d16e2f244f8ad3d04e5/HPXiG0YbwAAEqgT.jpg" referrerpolicy="no-referrer">
+
+.˚🎵⁺‧┈┈┈┈┈┈┈┈┈┈┈‧⁺ ⊹˚.
+
+　　　　　#さよならララ 
+
+　　ORIGINAL SOUNDTRACK
+
+　ジャケ写＆トラックリストを公開
+
+.˚⊹⁺‧┈┈┈┈┈┈┈┈┈┈┈┈‧⁺ 🫧˚.
+
+9月30日(水)発売予定
+
+TVアニメーション「さよならララ」ORIGINAL SOUNDTRACK
+
+小出卓史監督描き下ろしのジャケット画像と全42曲のトラックリストを公開しました。
+
+トラックリストは公式HPをご確認くださいませ✨
+[https://goodbyelara.com/music/st.html](https://goodbyelara.com/music/st.html)
+<img src="https://p.sda1.dev/34/175532070f3cac3f44b461191f838508/HPMtGWEbUAAtksR.jpg" referrerpolicy="no-referrer">
+
