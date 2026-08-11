@@ -2398,3 +2398,13 @@ MuMu-20260810-204759-749.jpg
 奏3可不舒服，忘记了各种锁马修了吗</blockquote>
 奏3还行，让我选年度最拉我还是选2.7<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 48101#       发表于 2026-8-11 22:35
+
+想抽个美游，结果三十抽出了玉兔。又抽了三十抽才出美游……
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

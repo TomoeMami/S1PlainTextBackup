@@ -3875,3 +3875,13 @@ TVアニメーション「さよならララ」ORIGINAL SOUNDTRACK
 [https://goodbyelara.com/music/st.html](https://goodbyelara.com/music/st.html)
 <img src="https://p.sda1.dev/34/175532070f3cac3f44b461191f838508/HPMtGWEbUAAtksR.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  齐择氪  
+##### 303#       发表于 2026-8-11 22:29
+
+这动画这么短的篇幅真能塑造这么多角色吗？企鹅罐都用了24集哦。
+
+—— 来自 OnePlus PJZ110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
