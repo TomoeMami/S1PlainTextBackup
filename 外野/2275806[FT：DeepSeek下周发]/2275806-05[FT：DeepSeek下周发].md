@@ -3874,3 +3874,51 @@ web_search要配置好多东西，不会弄
 
 zcode升级后和deepseek配合的更好了，特别是多开子代理的情况下
 
+
+*****
+
+####  奈落的孤火花  
+##### 6287#       发表于 2026-8-11 23:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70056573&amp;ptid=2275806" target="_blank">一般市民 发表于 2026-8-11 21:42</a>
+
+没有自适应的，开了思考肯定会有思维链。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哎，我是真的搞不明白了
+
+这只是简单的例子，对于复杂一些的东西，有的时候它也不think。
+
+<img src="https://img.stage1st.com/forum/202608/11/232359pfkdkcrmi4nfqdeq.png" referrerpolicy="no-referrer">
+
+<strong>43004.png</strong> (4.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-11 23:23 上传
+
+<img src="https://img.stage1st.com/forum/202608/11/232416oz1e2ww3k7wr8sww.png" referrerpolicy="no-referrer">
+
+<strong>58579.png</strong> (20.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-11 23:24 上传
+
+*****
+
+####  奈落的孤火花  
+##### 6288#       发表于 2026-8-11 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70056662&amp;ptid=2275806" target="_blank">奶香花卷 发表于 2026-8-11 22:01</a>
+
+opencode默认隐藏思考块的吧</blockquote>
+
+是隐藏的，但是我是能看到它有没有think。但是有的块它就根本没有think这个东西。
+
+<img src="https://img.stage1st.com/forum/202608/11/232455wcx0cdt0iobidy0t.png" referrerpolicy="no-referrer">
+
+<strong>69990.png</strong> (16.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-11 23:24 上传
+
