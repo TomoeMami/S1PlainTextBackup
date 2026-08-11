@@ -3372,3 +3372,14 @@ D老师的命令行能力成长过于厉害，而且经常自己写js/py脚本�
 —— 来自 HUAWEI HOP-AL10, Android 12, 鹅球 v3.5.99-alpha</blockquote>
 能不能重置一下，马上用完了
 
+
+*****
+
+####  sellboy  
+##### 6240#       发表于 2026-8-11 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70051166&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-11 01:00</a>
+
+Pi这东西有毒吧？我自从接触到这玩意，已经连续三天沉迷于装修毛坯房了，天天装到凌晨3点钟，蹬了我十几块 ...</blockquote>
+耐瑟奥术师看不起现代这批只会用魔网的
+
