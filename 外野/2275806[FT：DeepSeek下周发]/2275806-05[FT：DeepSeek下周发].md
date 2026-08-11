@@ -3603,3 +3603,33 @@ musespark也要开源，会不会威胁ds
 
 公司订阅的codex从每月重置变成每周重置了，不知道咋回事
 
+
+*****
+
+####  2017.05.04  
+##### 6262#       发表于 2026-8-11 16:54
+
+有竞争才有市场活力<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛拉斯  
+##### 6263#       发表于 2026-8-11 16:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70052657&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-8-11 11:15</a>
+
+我用Opus 5审阅个代码一半直接跑掉10美元
+
+A➗要钱不要🐎了</blockquote>
+他不要妈你也用，那为什么还要妈？
+
+你不用，我不用，明天还能降500这定理是资本主义基本原理
+
+
+*****
+
+####  nxmonitor  
+##### 6264#       发表于 2026-8-11 17:00
+
+meta也有刷分前科的，好的自然有人用，中转站上的流量也能看出来
+
