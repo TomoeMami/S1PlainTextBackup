@@ -7922,3 +7922,19 @@ x上推荐比较多的是反复刷无尽食堂97-99层。手柄带宏可以考�
 然后零件改造减成本是输出成型的必备。
 玩多了有点打击动力。
 
+
+*****
+
+####  才口千  
+##### 927#       发表于 2026-8-11 10:46
+
+<img src="https://img.stage1st.com/forum/202608/11/104535vsb0m3c8fbgy2o0u.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0501.jpeg</strong> (1019.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-11 10:45 上传
+
+这把武器值得升级吗？哪些武器算是版本答案
+
