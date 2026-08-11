@@ -3735,3 +3735,17 @@ OP制作幕后：[https://youtu.be/zjEIP030QOc](https://youtu.be/zjEIP030QOc)
 syl 卢卡的自称是俺，和人设印象不太一样</blockquote>
 预告里就用过俺吧
 
+
+*****
+
+####  堆雪若叶  
+##### 296#       发表于 2026-8-11 17:41
+
+[https://x.com/Goodbye_Lara/status/2087087875116409319](https://x.com/Goodbye_Lara/status/2087087875116409319)
+
+˚🐚⁺‧┈ #さよならララ Blu-ray＆DVD情報┈‧⁺ 🧜‍♀️˚.
+
+キャラクターデザイン #谷紫織 さん描き下ろしBlu-ray&amp;DVD BOX 上巻のパッケージデザインを公開❣
+<img src="https://p.sda1.dev/34/88905702ff78a44369d30814f359e9d0/Gg3INGWbkAAFnWh.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/b19e5ba41f1dd1ff438adf153704e4c7/Gg3IT8YbYAAKov_.jpg" referrerpolicy="no-referrer">
+
