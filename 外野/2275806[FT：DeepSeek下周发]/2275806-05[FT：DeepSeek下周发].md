@@ -3938,3 +3938,15 @@ pi+deepseekv4f最近做的一些奇奇妙妙的组合，完全一点究极没有
 
 很想让他自己套个刘备看看，配了知识库，但是每一节都要指导，就很烦
 
+
+*****
+
+####  serj005  
+##### 6290#       发表于 2026-8-11 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70057066&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-8-11 23:24</a>
+哎，我是真的搞不明白了
+
+这只是简单的例子，对于复杂一些的东西，有的时候它也不think。</blockquote>
+遇到过无思考直接开始进行工具调用的情况，不知道是opencode的问题还是ds的问题
+
