@@ -3843,3 +3843,14 @@ deepseek v4 flash 是不是即使档位设置成effort max，think也是自适�
 deepseek v4 flash 是不是即使档位设置成effort max，think也是自适应（adaptive）的？我在opencode里试了 ...</blockquote>
 opencode默认隐藏思考块的吧
 
+
+*****
+
+####  蜇灵  
+##### 6284#       发表于 2026-8-11 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70052965&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-11 11:59</a>
+
+reasonix越更新问题越多。感觉 vibe 时代很多项目都这样，人人有一个好点子让 ai 实现，但是缺乏足够的工程 ...</blockquote>
+今天更新这版本要不是加上了web_search我都不想更，模型输出的时候强制滚动，看得我眼睛都花了
+
