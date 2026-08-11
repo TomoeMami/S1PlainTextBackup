@@ -2341,3 +2341,13 @@ MuMu-20260810-204759-749.jpg
 
 最近地铁上又看到有人玩bgo，仿佛回到了2016年<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zore  
+##### 48095#       发表于 2026-8-11 13:32
+
+这得花不少时间，先生
+
+挺过2.7的屎后面就舒服了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实也挺快
+
