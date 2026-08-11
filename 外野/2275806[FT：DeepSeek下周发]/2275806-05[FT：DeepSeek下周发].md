@@ -3474,3 +3474,34 @@ reasonix越更新问题越多。感觉 vibe 时代很多项目都这样，人人
 reasonix越更新问题越多。感觉 vibe 时代很多项目都这样，人人有一个好点子让 ai 实现，但是缺乏足够的工程 ...</blockquote>
 之前有个小版本更新后出现session conflict，修复后没过几个版本又出现了，干脆放弃不用了。
 
+
+*****
+
+####  王兰花秀丽  
+##### 6251#       发表于 2026-8-11 13:19
+
+智谱首席重置官<img src="https://static.stage1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/11/131940fnp97coz3gp999hf.jpg" referrerpolicy="no-referrer">
+
+<strong>1000052279.jpg</strong> (358.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-11 13:19 上传
+
+    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  phorcys02  
+##### 6252#       发表于 2026-8-11 13:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70053438&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-11 13:19</a>
+
+智谱首席重置官
+
+    Re:Source</blockquote>
+....没活儿了可以去咬打火机
+
