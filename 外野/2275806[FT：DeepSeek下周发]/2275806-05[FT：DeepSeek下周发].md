@@ -3785,3 +3785,13 @@ Deepseek 网安不需要破限，我只见过政治甲和色情甲。    Re:So
 有人测ocg的v4f比官方的api要差一点，速度慢这个大家应该都有体会就不转了</blockquote>
 这点差别基本等同于测试误差了，不同情况跑出10%以内的差值都是有的，参考价值很低，包括很多人体感降的降智也是没roll到好的随机结果导致<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 6279#       发表于 2026-8-11 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70055798&amp;ptid=2275806" target="_blank">何边杨 发表于 2026-8-11 18:56</a>
+8月初是指？</blockquote>
+8月31日上午<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
