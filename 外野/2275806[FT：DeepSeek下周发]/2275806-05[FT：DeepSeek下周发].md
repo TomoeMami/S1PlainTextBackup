@@ -3813,3 +3813,11 @@ Deepseek 网安不需要破限，我只见过政治甲和色情甲。    Re:So
 
 ——来自 NX789J 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  奈落的孤火花  
+##### 6281#       发表于 2026-8-11 21:24
+
+deepseek v4 flash 是不是即使档位设置成effort max，think也是自适应（adaptive）的？我在opencode里试了试（用的ds官方的apikey），问它1+1=几它根本没有思考块，我实在是不知道我是配错了，还是它本来就是遇到简单问题不思考。
+
