@@ -3654,3 +3654,25 @@ pi+deepseekv4f最近做的一些奇奇妙妙的组合，完全一点究极没有
 0. fork一个纯净的绿色 ...</blockquote>
 你的 websearch 有的哪个服务？
 
+
+*****
+
+####  雨昼斯基  
+##### 6267#       发表于 2026-8-11 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70055477&amp;ptid=2275806" target="_blank">有土 发表于 2026-8-11 18:03</a>
+你的 websearch 有的哪个服务？</blockquote>
+如果是 d4f，可以用 DeepSeek search 扩展，直接调用 ds api 支持的搜索。虽然梁子的搜索质量感觉一般，不如 tavily 的免费额度，但这个扩展免配置。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  有土  
+##### 6268#       发表于 2026-8-11 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70055546&amp;ptid=2275806" target="_blank">雨昼斯基 发表于 2026-8-11 18:13</a>
+
+如果是 d4f，可以用 DeepSeek search 扩展，直接调用 ds api 支持的搜索。虽然梁子的搜索质量感觉一般， ...</blockquote>
+多谢。
+
+我刚发现，可以把 opencode 的 repo 给 pi, 让它根据里面 websearch 构建个扩展，然后就可以用 Exa 了。太神奇了。
+

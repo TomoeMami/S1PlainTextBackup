@@ -2371,3 +2371,11 @@ MuMu-20260810-204759-749.jpg
 
 抽了快300石没抽到飞嫂，不敢抽了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 48098#       发表于 2026-8-11 18:04
+
+一宝飞嫂代价如此之高，抽出来还没啥用，太可恶了
+
