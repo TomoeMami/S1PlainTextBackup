@@ -4072,3 +4072,24 @@ dsh，陨落，，，
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  果壳中的松鼠  
+##### 6299#       发表于 2026-8-12 01:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70057438&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-12 01:09</a>
+梁圣反代fable石锤了😡！</blockquote>
+只有fable不行<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，a畜单独给fable搞了一个不同的加密，所以fable的思维链没法解出来
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  qz66618  
+##### 6300#       发表于 2026-8-12 01:21
+
+没这么快，我在类脑看到dsh负责人还在更新harness内测版本呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
