@@ -8046,3 +8046,14 @@ DD73192A-A571-45BB-ACEC-B5EECCC05636.webp
 
 狙目前是970，丙烷爆破看到过900的，滚筒看到过850的，弓b站有一个800的视频。
 
+
+*****
+
+####  zero33333  
+##### 938#       发表于 2026-8-11 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70054280&amp;ptid=2253488" target="_blank">无辄辄 发表于 2026-8-11 15:29</a>
+
+实际上弓没有4K好用，4K的射程比它好，而且4K还有高贵的穿透。</blockquote>
+穿透是啥，穿透敌人打一串？
+

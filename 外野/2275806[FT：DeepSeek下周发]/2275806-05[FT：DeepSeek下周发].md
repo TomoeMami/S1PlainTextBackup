@@ -3795,3 +3795,21 @@ Deepseek 网安不需要破限，我只见过政治甲和色情甲。    Re:So
 8月初是指？</blockquote>
 8月31日上午<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  当光停止  
+##### 6280#       发表于 2026-8-11 21:00
+
+<img src="https://img.stage1st.com/forum/202608/11/205908i776nhlyy58jff88.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1786452972123_887.jpg</strong> (150.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-11 20:59 上传
+
+梁子再不发pro正式版，他的表情包能上百了了。
+
+——来自 NX789J 上的 [S1er 客户端](https://s1er.pages.dev)
+
