@@ -1294,3 +1294,13 @@ Saaya本质就是搞笑艺人，这是她第一次担任声优，棒读是必然
 
 对这部作品最大的看法就是，没事不要瞎寄吧吹原作粉碎机式改法，这种爆改的方式上下限太大了，哪怕以原作粉碎机出名的京都动画／押井守，都没少做垃圾动画。
 
+
+*****
+
+####  kltsgjy  
+##### 108#       发表于 2026-8-11 09:34
+
+沾米山舞和望月けい这种网红噱头拉满的东西能出啥正经好作品<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

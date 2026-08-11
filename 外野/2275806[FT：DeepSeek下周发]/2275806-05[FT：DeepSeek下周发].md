@@ -3344,3 +3344,31 @@ D老师的命令行能力成长过于厉害，而且经常自己写js/py脚本�
 
 另外pi最近支持了LaTex和Mermaid，让D老师直接输出架构图什么的很好用。
 
+
+*****
+
+####  80后卢瑟  
+##### 6238#       发表于 2026-8-11 09:27
+
+大的来了
+
+<img src="https://img.stage1st.com/forum/202608/11/092723x73mu6lwbciuo5fc.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2026-08-11 at 09.26.28.png</strong> (15.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-11 09:27 上传
+
+*****
+
+####  80后卢瑟  
+##### 6239#       发表于 2026-8-11 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70051826&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-11 09:04</a>
+
+好像说GROK 4.6在roll out了
+
+—— 来自 HUAWEI HOP-AL10, Android 12, 鹅球 v3.5.99-alpha</blockquote>
+能不能重置一下，马上用完了
+
