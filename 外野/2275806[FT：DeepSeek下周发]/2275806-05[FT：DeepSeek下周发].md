@@ -3922,3 +3922,19 @@ opencode默认隐藏思考块的吧</blockquote>
 
 2026-8-11 23:24 上传
 
+
+*****
+
+####  冤枉呐  
+##### 6289#       发表于 2026-8-11 23:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70053786&amp;ptid=2275806" target="_blank">库德里尔 发表于 2026-8-11 14:26</a>
+
+pi+deepseekv4f最近做的一些奇奇妙妙的组合，完全一点究极没有考虑写代码工程性：
+
+0. fork一个纯净的绿色 ...</blockquote>
+请教一下，角色卡是模型本身的，不是创作内容的，对吧？
+ <blockquote>pixiv投稿小说的插件，补了一个写小说的skill套组</blockquote>哪些插件啊，skill自己写的吗？
+
+很想让他自己套个刘备看看，配了知识库，但是每一节都要指导，就很烦
+
