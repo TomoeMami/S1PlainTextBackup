@@ -3551,3 +3551,16 @@ pi+deepseekv4f最近做的一些奇奇妙妙的组合，完全一点究极没有
 
 让大肥鱼给我改v3的文，改一半变成概述了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  当光停止  
+##### 6257#       发表于 2026-8-11 14:50
+
+看见发哈基米4+3.7flash的消息，我就猜哈吉米3.5pro估计是死了，谷歌拿点消息来烂炒，假装自己还在ai第一梯队。<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+ <blockquote>根据 SemiAnalysis 的最新文章，Gemini 3.5 Pro 已被悄悄取消。
+
+另外，SemiAnalysis 把 Spark 1.2 和 Grok 4.5 拿来与 3.5 Flash 比较，这有点让人困惑；这就像拿 Tera 模型来比较……
+
+自从我们发出机构报告以来，谷歌已经悄悄取消了 Gemini 3.5 Pro，现在正通过炒作 Gemini 4 来应对。作为过渡模型，他们发布了 Gemini 3.6 Flash，但它总体上不如 Muse Spark 1.2、Grok 4.5 以及中国一线开源模型。具体怎么算取决于你的计数方式，Gemini 目前排在第八或第九位，而且我们不认为 Gemini 4 能扭转他们的颓势。</blockquote>
+
