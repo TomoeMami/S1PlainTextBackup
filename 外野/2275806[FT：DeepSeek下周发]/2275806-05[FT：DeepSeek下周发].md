@@ -3272,3 +3272,11 @@ Pi这东西有毒吧？我自从接触到这玩意，已经连续三天沉迷于
 
 有没有人测试一下，如果都是用pi毛坯房当harness，市面上的这些模型哪个鬼点子最多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 6231#       发表于 2026-8-11 07:51
+
+大部分性能都会下降，V4是最反常的一个…
+
