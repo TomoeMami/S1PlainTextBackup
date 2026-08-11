@@ -3950,3 +3950,15 @@ pi+deepseekv4f最近做的一些奇奇妙妙的组合，完全一点究极没有
 这只是简单的例子，对于复杂一些的东西，有的时候它也不think。</blockquote>
 遇到过无思考直接开始进行工具调用的情况，不知道是opencode的问题还是ds的问题
 
+
+*****
+
+####  Tinkling4617  
+##### 6291#       发表于 2026-8-12 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70055418&amp;ptid=2275806" target="_blank">MeursaulT 发表于 2026-8-11 17:54</a>
+今天找到一个好看的小黄片，但没法下载，就把url给pi里的v4f，挂上破限，几分钟就做了个脚本，破解了网站的 ...</blockquote>
+什么片 关键词交出来<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
