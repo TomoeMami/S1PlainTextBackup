@@ -4101,3 +4101,20 @@ dsh，陨落，，，
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">起码周5吧,我是不相信明天的
 
+
+*****
+
+####  Fuuki  
+##### 6302#       发表于 2026-8-12 01:48
+
+隐藏推理过程是什么，只存在A\服务器里的推理？
+
+*****
+
+####  Dunphy  
+##### 6303#       发表于 2026-8-12 01:49
+
+pi真好玩啊，今天用pi整了个语音助手，在电脑上直接和它对话，让它调用之前用pi做的调用minimaxh3去生成视频的工具来生成视频，调用生图模型去生成图片，这个折腾的过程太好玩了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
