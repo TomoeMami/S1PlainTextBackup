@@ -3280,3 +3280,22 @@ Pi这东西有毒吧？我自从接触到这玩意，已经连续三天沉迷于
 
 大部分性能都会下降，V4是最反常的一个…
 
+
+*****
+
+####  80后卢瑟  
+##### 6232#       发表于 2026-8-11 08:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70051260&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-11 01:44</a>
+
+有没有人测试一下，如果都是用pi毛坯房当harness，市面上的这些模型哪个鬼点子最多 ...</blockquote>
+你点的可能是这个？
+
+<img src="https://img.stage1st.com/forum/202608/11/082232ptac3qqx4ahcbc4m.png" referrerpolicy="no-referrer">
+
+<strong>clustering-3.png</strong> (84.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-11 08:22 上传
+
