@@ -3994,3 +3994,47 @@ pi+deepseekv4f最近做的一些奇奇妙妙的组合，完全一点究极没有
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  来都来了  
+##### 6294#       发表于 2026-8-12 00:51
+
+我最近的歪卜靠丁成果：我把pi装修好后，搓了一个B站下载器，将视频链接丢到窗口里即可下载，也可建立*.txt文件，将多个视频地址逐行写入txt文件，然后让下载器读取txt即可批量下载。需要的依赖详见readme。
+
+<img src="https://img.stage1st.com/forum/202608/12/005059j3wqiqydqwqddwhy.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-08-12 004841.png</strong> (195.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 00:50 上传
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/binary.gif" referrerpolicy="no-referrer">
+
+bili-download-v2.bat
+(3.87 KB, 下载次数: 0)
+
+2026-8-12 00:41 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+bili-readme.md
+(4.19 KB, 下载次数: 0)
+
+2026-8-12 00:46 上传
+
+点击文件名下载附件
+
+*****
+
+####  果壳中的松鼠  
+##### 6295#       发表于 2026-8-12 00:53
+
+艹，a畜和close ai的思维链真的被破解了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，cot使用完全相同的方式加密/解密的，所以可以把Opus的加密cot注入到haiku的对话里，然后让haiku复读思维链的内容。这个消息发到a畜服务器之后就能直接被解密，送到haiku处理，haiku因为太弱智会直接照做，把cot的内容全都写到最终输出
+<img src="https://p.sda1.dev/34/de285c9cf2437d7badffd759f058f227/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
