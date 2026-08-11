@@ -3399,3 +3399,13 @@ Pi这东西有毒吧？我自从接触到这玩意，已经连续三天沉迷于
 
 那今天能来吗<img src="https://static.stage1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CCauchy  
+##### 6243#       发表于 2026-8-11 10:57
+
+安全这块从来没想过让任何AI可以在虚拟机之外运行命令，哪怕只读
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
