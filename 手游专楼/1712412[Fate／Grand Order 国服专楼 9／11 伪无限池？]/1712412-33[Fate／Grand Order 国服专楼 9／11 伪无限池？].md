@@ -2333,3 +2333,11 @@ MuMu-20260810-204759-749.jpg
 
 <img src="https://img.stage1st.com/forum/202608/11/102952t2g5yly1yylz5y5c.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  妄想系同盟  
+##### 48094#       发表于 2026-8-11 13:04
+
+最近地铁上又看到有人玩bgo，仿佛回到了2016年<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
