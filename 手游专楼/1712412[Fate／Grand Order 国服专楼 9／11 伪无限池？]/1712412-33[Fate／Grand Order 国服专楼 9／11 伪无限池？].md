@@ -2308,3 +2308,28 @@ MuMu-20260810-204759-749.jpg
 喜欢我132抽只有一宝水飞嫂连五星活动礼装都没有么</blockquote>
 那的确有点惨。
 
+
+*****
+
+####  JOHNCHCHAN  
+##### 48093#       发表于 2026-8-11 10:30
+
+冲所长5宝准备要吃保底了，却在最后一个十连出了双黄，太黑色幽默<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/11/102952v9chhipxi3zj9p33.png" referrerpolicy="no-referrer">
+
+<strong>cbbb928d72d74ac07ae596122a5d6a79.png</strong> (441.23 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-11 10:29 上传
+
+33a795f174a162f105d0b8504f2c98fe.jpg
+(518.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-11 10:29 上传
+
+<img src="https://img.stage1st.com/forum/202608/11/102952t2g5yly1yylz5y5c.jpg" referrerpolicy="no-referrer">
+
