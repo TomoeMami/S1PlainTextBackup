@@ -4038,3 +4038,37 @@ bili-readme.md
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  舞以  
+##### 6296#       发表于 2026-8-12 01:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梁圣反代fable石锤了😡！
+
+*****
+
+####  舞以  
+##### 6297#       发表于 2026-8-12 01:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70057297&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-12 00:28</a>
+
+大的真的要来辣
+
+    Re:Source</blockquote>
+dsh，陨落，，，
+
+看起来是真的准备发布了，看看高僧预测的12号有没有了
+
+
+*****
+
+####  果壳中的松鼠  
+##### 6298#       发表于 2026-8-12 01:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70057397&amp;ptid=2275806" target="_blank">果壳中的松鼠 发表于 2026-8-12 00:53</a>
+艹，a畜和close ai的思维链真的被破解了，cot使用完全相同的方式加密/解密的，所以可以把Opus的加密cot注入 ...</blockquote>
+这个论文附录b还检查了一下开源模型，把Opus的cot作为开头注入，然后看开源模型的回答风格是否会变得像Opus，没有什么明确结论，但kimi k3和glm 5.2都不同寻常地擅长按Opus风格继续回答，deepseek却不会<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
