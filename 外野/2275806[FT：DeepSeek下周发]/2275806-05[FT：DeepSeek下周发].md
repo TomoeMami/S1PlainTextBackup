@@ -3750,3 +3750,38 @@ pi+deepseekv4f最近做的一些奇奇妙妙的组合，完全一点究极没有
 一般现在模型在网安方面都有点基本的拒答对齐吧</blockquote>
 Deepseek 网安不需要破限，我只见过政治甲和色情甲。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  王兰花秀丽  
+##### 6275#       发表于 2026-8-11 18:50
+
+ds没有网安甲，我都是零帧起手的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  舞以  
+##### 6276#       发表于 2026-8-11 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70055755&amp;ptid=2275806" target="_blank">MeursaulT 发表于 2026-8-11 18:48</a>
+
+Deepseek 网安不需要破限，我只见过政治甲和色情甲。    Re:Source</blockquote>
+好吧，其实我用api的时候没碰到过拒答<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  何边杨  
+##### 6277#       发表于 2026-8-11 18:56
+
+8月初是指？
+
+*****
+
+####  serj005  
+##### 6278#       发表于 2026-8-11 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70055709&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-11 18:38</a>
+有人测ocg的v4f比官方的api要差一点，速度慢这个大家应该都有体会就不转了</blockquote>
+这点差别基本等同于测试误差了，不同情况跑出10%以内的差值都是有的，参考价值很低，包括很多人体感降的降智也是没roll到好的随机结果导致<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
