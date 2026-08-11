@@ -3676,3 +3676,15 @@ pi+deepseekv4f最近做的一些奇奇妙妙的组合，完全一点究极没有
 
 我刚发现，可以把 opencode 的 repo 给 pi, 让它根据里面 websearch 构建个扩展，然后就可以用 Exa 了。太神奇了。
 
+
+*****
+
+####  noword  
+##### 6269#       发表于 2026-8-11 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70055418&amp;ptid=2275806" target="_blank">MeursaulT 发表于 2026-8-11 17:54</a>
+今天找到一个好看的小黄片，但没法下载，就把url给pi里的v4f，挂上破限，几分钟就做了个脚本，破解了网站的 ...</blockquote>
+交给外媒又能发一篇dsv4f入侵破坏网站毁灭人类的文了<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

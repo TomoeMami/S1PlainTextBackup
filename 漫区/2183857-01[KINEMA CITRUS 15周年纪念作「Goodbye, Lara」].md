@@ -3749,3 +3749,32 @@ syl 卢卡的自称是俺，和人设印象不太一样</blockquote>
 <img src="https://p.sda1.dev/34/88905702ff78a44369d30814f359e9d0/Gg3INGWbkAAFnWh.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/34/b19e5ba41f1dd1ff438adf153704e4c7/Gg3IT8YbYAAKov_.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堆雪若叶  
+##### 297#       发表于 2026-8-11 18:29
+
+<img src="https://p.sda1.dev/34/c20c022cf346bc93e115a60511ea7121/Gg1cZcuaMAEUSIr.jpg" referrerpolicy="no-referrer">
+
+为了蛋糕能去死还是因为最初那罐可可啊。”虽然现在总是蛋糕环绕，和那个女孩一起吃的那块却是最甜的。这种感觉——和真正的爱相连吗？”
+
+
+*****
+
+####  Huiiii  
+##### 298#       发表于 2026-8-11 18:30
+
+预告里又回到了轻松明快的日常，真好呀。
+
+看完第六集我还有点担心，
+
+该不会之后的主线都用这个悲情基调来讲故事吧……
+
+菈菈遇到王子后也要继承那份前世爱而不得的忧郁。
+
+两人组这边需要的是阳光、活泼与坚定前进的视线。
+
+还是苦一苦姐姐，把故事里阴郁的色调都全留给这位蓝色公主吧。
+她和鮟鱇互相救赎的情节是可以承载这样的压抑的氛围。
+
