@@ -4821,3 +4821,27 @@ opencode 快加小霸王啊,白天都蹬不动了啊
 
 opencode go的v4f首字比官方api慢好多，梁子的infra还是有点东西
 
+
+*****
+
+####  月神夜  
+##### 6371#       发表于 2026-8-12 13:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70058737&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-12 10:39</a>
+彻底疯狂</blockquote>
+啊？这么牛批？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  neptunehs  
+##### 6372#       发表于 2026-8-12 14:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70060365&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-12 13:50</a>
+opencode 快加小霸王啊,白天都蹬不动了啊</blockquote>
+说是一天10t了
+也不知道租的什么服务器那么猛
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
