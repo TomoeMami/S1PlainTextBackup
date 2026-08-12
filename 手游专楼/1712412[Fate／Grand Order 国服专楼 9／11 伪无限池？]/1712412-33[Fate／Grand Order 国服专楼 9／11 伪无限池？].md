@@ -2468,3 +2468,54 @@ yls疯了吧，4SSR，明年泳装怎么抽啊<img src="https://static.stage1st.
 
 1宝够用，去肝羁绊6了。
 
+
+*****
+
+####  深渊骑士  
+##### 48108#       发表于 2026-8-12 19:38
+
+好欧<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">开服以来第一次，6百石不到居然3个池子全部毕业了，甚至为了抽2宝飞嫂导致出了2宝的lip。可以存石等冠呆了。
+
+*****
+
+####  khxooo  
+##### 48109#       发表于 2026-8-12 19:42
+
+150石头提妈拿到手，然后180石头鹤1宝，看到石头有多就打算抽个水美游，谁知道式姐1个10连就来了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+MuMu-20260812-190445-862.jpg
+(455.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 19:40 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/194007tofouwm1zwema918.jpg" referrerpolicy="no-referrer">
+
+MuMu-20260812-190620-864.jpg
+(327.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 19:40 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/194007hwecy6ohu1aeq31h.jpg" referrerpolicy="no-referrer">
+
+MuMu-20260812-190613-518.jpg
+(465.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 19:40 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/194007z729qs5ezqd68ee3.jpg" referrerpolicy="no-referrer">
+
+MuMu-20260812-190700-122.jpg
+(460.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 19:40 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/194008hbinwdqbb9o9921y.jpg" referrerpolicy="no-referrer">
+
