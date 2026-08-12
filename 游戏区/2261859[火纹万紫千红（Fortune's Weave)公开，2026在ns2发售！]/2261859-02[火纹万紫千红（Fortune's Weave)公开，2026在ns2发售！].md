@@ -9057,3 +9057,19 @@ Her magic ...</blockquote>
 设定上不是说了死了吗</blockquote>
 冥界全是被拉起来的死人
 
+
+*****
+
+####  巴尔干炮  
+##### 2337#       发表于 2026-8-12 10:07
+
+<img src="https://img.stage1st.com/forum/202608/12/100413komucy8meo8lyqky.jpg" referrerpolicy="no-referrer">
+
+<strong>cfc4a5a12ccf85ff6370d5033896725ebd769f78fb683692d204a2e0c6180e52.0.JPG</strong> (98.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 10:04 上传
+
+主角还是受肉来到现世的，会是谁的灵魂呢？老太婆和历代的萨拉米斯王都有交情，地位还挺高。
+
