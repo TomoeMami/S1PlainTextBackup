@@ -7537,3 +7537,15 @@ dsv4 api有这么便宜么？
 
 但是所以我就想着整理的部分用本地ai，实际生成新内容用整理出来的关键字来让api生成
 
+
+*****
+
+####  qwased  
+##### 6630#       发表于 2026-8-13 03:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064752&amp;ptid=2275806" target="_blank">lain2008 发表于 2026-8-13 02:59</a>
+dsv4 api有这么便宜么？
+
+还有，我的设定可能动不动几十万字，我不用ai整理成rcm索引我自己都可能总结不 ...</blockquote>
+你再想想电费和弱智模型导致的返工问题就不觉得贵了，而且几十万字跑一轮撑死了两毛钱吧
+
