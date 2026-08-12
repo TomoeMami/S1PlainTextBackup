@@ -5254,3 +5254,85 @@ v4f发布前两天29号也是周三更新了手机客户端，感觉就是这周
 
 现在是梁历7月43日，刚刚下旬<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  来都来了  
+##### 6411#       发表于 2026-8-12 20:16
+
+ 本帖最后由 来都来了 于 2026-8-12 20:19 编辑 
+
+最近在测试各款AI编程工具，刚才测到VS Code的Continu插件把我整笑了。一进去让它写了个Hello World，它给我写坏了，想了半天写了两遍才写好。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shqingda_  
+##### 6412#       发表于 2026-8-12 20:22
+
+今晚十点<img src="https://static.stage1st.com/image/smiley/carton2017/385.png" referrerpolicy="no-referrer">
+
+*****
+
+####  80后卢瑟  
+##### 6413#       发表于 2026-8-12 20:22
+
+<img src="https://img.stage1st.com/forum/202608/12/202229mx800f1zxgbbg8xm.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260812193201_49716_37.jpg</strong> (253.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 20:22 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/202235b4gniqrnzjxkmix6.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260812193210_49717_37.jpg</strong> (266.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 20:22 上传
+
+*****
+
+####  王兰花秀丽  
+##### 6414#       发表于 2026-8-12 20:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70062687&amp;ptid=2275806" target="_blank">shqingda_ 发表于 2026-8-12 20:22</a>
+今晚十点</blockquote>
+别吓我呀，有什么信源吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  王兰花秀丽  
+##### 6415#       发表于 2026-8-12 20:23
+
+风怒编辑
+
+*****
+
+####  shqingda_  
+##### 6416#       发表于 2026-8-12 20:23
+
+话说不弄个大肥鱼麻将脸吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sellboy  
+##### 6417#       发表于 2026-8-12 20:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70062693&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-12 20:23</a>
+
+别吓我呀，有什么信源吗    Re:Source</blockquote>
+都<img src="https://static.stage1st.com/image/smiley/carton2017/385.png" referrerpolicy="no-referrer">了，当然是直面会梗。
+
+*****
+
+####  shqingda_  
+##### 6418#       发表于 2026-8-12 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70062693&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-12 20:23</a>
+
+别吓我呀，有什么信源吗    Re:Source</blockquote>
+隔壁游戏区任天堂直面会的梗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

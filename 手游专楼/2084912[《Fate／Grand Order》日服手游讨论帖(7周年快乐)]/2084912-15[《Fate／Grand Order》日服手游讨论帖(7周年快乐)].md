@@ -3560,3 +3560,11 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 麻雀不会能顶了水伊吹吧</blockquote>
 宝具队的可以顶，所长队的顶不了。
 
+
+*****
+
+####  森兰丸  
+##### 21384#       发表于 2026-8-12 20:23
+
+黑霸王花这种纯天降的角色还真就能脱离白霸王花单独作为一个角色出5星啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
