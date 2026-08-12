@@ -4788,3 +4788,20 @@ Windows下的gbk和路径就是问题太多。我之前搞一个公司里的小�
 
 —— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  小野賢章  
+##### 6367#       发表于 2026-8-12 13:35
+
+[https://github.com/deepseek-ai/dsh](https://github.com/deepseek-ai/dsh)
+
+这个地址不知道真假，还是么有公开<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道就叫DSH吗
+
+*****
+
+####  Dreki  
+##### 6368#       发表于 2026-8-12 13:37
+
+应该就叫这个吧，泄露的私有repo里面的链接全叫dsh    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

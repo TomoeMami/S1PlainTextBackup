@@ -130,3 +130,18 @@
 啥时候会有三维模型，在大地图上直接有攻击动画的机战啊（做梦中）</blockquote>
 有啊,当年的机战NEO就是，可惜偏偏出在Wii上导致销量大暴死。
 
+
+*****
+
+####  猪突猛进R  
+##### 229#       发表于 2026-8-12 13:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70060258&amp;ptid=2286736" target="_blank">dqjsss 发表于 2026-8-12 13:32</a>
+
+有啊,当年的机战NEO就是，可惜偏偏出在Wii上导致销量大暴死。</blockquote>
+和Wii关系不大，后来PSP上的OE不也是这种系统么，也没见大卖。
+
+而且他想要的显然不是那种粗糙的大地图演示，而是G世纪永恒那种的。
+
+比如之前永恒才出的重炮手高达（EW），不论是战斗动画还是大地图动画都帅爆了，比希罗还会装逼。
+
