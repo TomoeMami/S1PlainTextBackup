@@ -9114,3 +9114,28 @@ Her magic ...</blockquote>
 
 这作保姆是老奶奶<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴尔干炮  
+##### 2343#       发表于 2026-8-12 11:17
+
+<img src="https://img.stage1st.com/forum/202608/12/111716l4l4hhka4kw8kddx.jpg" referrerpolicy="no-referrer">
+
+<strong>1786503342648487m.jpg</strong> (68.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 11:17 上传
+
+小米加步枪
+
+*****
+
+####  巴尔干炮  
+##### 2344#       发表于 2026-8-12 11:19
+
+ 本帖最后由 巴尔干炮 于 2026-8-12 11:22 编辑 
+
+另外老太婆还提到了一个叫泽农的人，看来5年后还有别的队友。
+

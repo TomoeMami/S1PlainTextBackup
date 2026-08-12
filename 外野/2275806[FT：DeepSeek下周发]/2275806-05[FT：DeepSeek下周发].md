@@ -4431,3 +4431,72 @@ wsl不用转义，linux直接可以跑exe，还有显卡直连
 
 选择的余地很少啊，那么多的agent只能选哪些有网页的，然后还要排除公式渲染不好的。到最后还不如VSCode ssh进去<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 6332#       发表于 2026-8-12 11:16
+
+灰测的版本放在opencode里都很强啊，现在这opencode完全就是过度依赖vide的结果，简直就是一坨
+
+*****
+
+####  schneehertz  
+##### 6333#       发表于 2026-8-12 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70058847&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-12 10:49</a>
+没想到的window的傻逼转义字符问题和系统底层编码格式在ai编程时代编程很实际很严重的问题了，这下mac的优 ...</blockquote>
+用Windows terminal，bash用装了git后自带的git bash
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  真田源次郎信繁  
+##### 6334#       发表于 2026-8-12 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70059152&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-12 11:14</a>
+
+选择的余地很少啊，那么多的agent只能选哪些有网页的，然后还要排除公式渲染不好的。到最后还不如VSCode ss ...</blockquote>
+agent要是都学vs code那样能ssh就好了，vs code的各种插件感觉还是比直接用难受一点
+
+*****
+
+####  crow_wine  
+##### 6335#       发表于 2026-8-12 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70059112&amp;ptid=2275806" target="_blank">serj005 发表于 2026-8-12 11:11</a>
+
+如果用的是powershell，把shell换成git bash可解大部分问题</blockquote>
+不仅是powershell的问题，python中也有转义字符问题。然后中文window 默认gbk，控制台输出，日志，各种gbk，utf-8混编。claude code就有一个经典的提示词是中文，但是它给你回复日文，就是把gbk的东西解释成日文。
+
+最好的解决办法，就是不要在window里面去用，解决不完的<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  小野賢章  
+##### 6336#       发表于 2026-8-12 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70059180&amp;ptid=2275806" target="_blank">真田源次郎信繁 发表于 2026-8-12 11:17</a>
+
+agent要是都学vs code那样能ssh就好了，vs code的各种插件感觉还是比直接用难受一点 ...</blockquote>
+codex 是可以的
+
+
+*****
+
+####  小野賢章  
+##### 6337#       发表于 2026-8-12 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70058737&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-12 10:39</a>
+
+彻底疯狂</blockquote>
+看之间灰度的 V4 Pro GA 的能力，这也不奇怪<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sellboy  
+##### 6338#       发表于 2026-8-12 11:23
+
+不知道deepseek harness的AI之间能不能实现原语化传递，而不依赖自然语言。
+
