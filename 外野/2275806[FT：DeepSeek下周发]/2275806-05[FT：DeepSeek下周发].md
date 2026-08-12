@@ -7661,3 +7661,11 @@ ds的微信群怎么加来着
 
 唉继续睡了年底再醒醒看
 
+
+*****
+
+####  小野賢章  
+##### 6642#       发表于 2026-8-13 07:16
+
+睡不着了，起来去上班<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
