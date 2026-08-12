@@ -7581,3 +7581,13 @@ dsv4 api有这么便宜么？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  wandeeees  
+##### 6635#       发表于 2026-8-13 04:52
+
+难道灰测的是v4.1？或者是新架构的v5？而且i'm这个思考特点qwen3.8就有，目前来看现在的这个还是会过度思考左右脑互博，不如灰测时候的省token
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
