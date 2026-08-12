@@ -4577,3 +4577,28 @@ windows环境把utf8打开基本能解决蛮多, 默认gbk的软件,用Locale.Em
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  那一年的河川  
+##### 6347#       发表于 2026-8-12 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70059165&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-12 11:16</a>
+灰测的版本放在opencode里都很强啊，现在这opencode完全就是过度依赖vide的结果，简直就是一坨 ...</blockquote>
+Opencode现在在鼓捣opencode v2，你可以试试
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  crow_wine  
+##### 6348#       发表于 2026-8-12 11:46
+
+没用我和你们说，作为window下资深C++，我告诉你们没用的。linux和mac还真没有这种问题因为内核固定utf-8, 开发人员不会无故自己写gbk的。然后换git bash，现在你要用 vs 环境，他那个环境注入脚本只能在cmd 用，你得写一个bat脚本调用，结果还是 gbk 的，而且转义字符问题依旧存在，甚至更严重，因为你要先转到 cmd 能用的，然后再转到 bash 能用的。
+
+然后切全局 utf-8 的，蛋疼的来了，有些工具专门做了 gbk 适配，你切了全局 utf-8 它识别不到，反而没问题的变有问题，有问题的部分变没问题。
+
+在手写代码的时代这些都能解决，因为内容是固定的，但是vibe coding就是不行。
+
+建议你们不要在这上面浪费生命，宁可用 cli 也别去碰这些东西。解决不完的
+
