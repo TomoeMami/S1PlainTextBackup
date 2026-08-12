@@ -7411,3 +7411,53 @@ A卡+16G就别想了，乖乖接API吧
 
 怎么看x上好多人说不如sonnet还有甲的
 
+
+*****
+
+####  千千千千鸟  
+##### 6617#       发表于 2026-8-13 01:43
+
+看了下评价说是不如预期提升的多，然后肯定没有达到之前灰度的水平。总之看明天用上harness后啥情况吧，还有就是涨价情况，如果涨价太多那可能还真是要用grok或者gpt了了
+
+*****
+
+####  中国人  
+##### 6618#       发表于 2026-8-13 01:43
+
+连上了，比flash聪明是没问题的
+
+*****
+
+####  kykawaiii  
+##### 6619#       发表于 2026-8-13 01:48
+
+所以到底发没发？
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  lactone  
+##### 6620#       发表于 2026-8-13 01:48
+
+现在都在吵不如灰测
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  →熙←  
+##### 6621#       发表于 2026-8-13 01:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">明天再看,现在感觉不太行
+
+*****
+
+####  akabari  
+##### 6622#       发表于 2026-8-13 01:53
+
+<blockquote>qz66618 发表于 2026-8-13 01:10
+有些地方的评论区简直看不懂，grok4.6跑的benchmark和ds跑的几乎都不一样，是怎么得出grok4.6强于ds这个结 ...</blockquote>
+因为deepSWE比grok低，但模型规模又比grok大吧
+
