@@ -9478,3 +9478,26 @@ AG作为一个大UP连这个宣发惯例都不知道就开喷，把节奏带的�
 
 可以等各种高血压贴脸空枪的梗图了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 2379#       发表于 2026-8-12 23:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70063835&amp;ptid=2261859" target="_blank">小学生把持不住 发表于 2026-8-12 22:54</a>
+
+别一联想到女的承受沉重打击可能要发飙发疯黑化再迎来蜕变或者死亡就喊雷（什么异域风情版修罗雪姬），目前 ...</blockquote>
+JRPG，舞女复仇。
+
+我第一个想到的是八方旅人1里的那个。
+
+黑化倒是没黑化，但是处女厨玩家可能不太能接受。
+
+<img src="https://img.stage1st.com/forum/202608/12/235630hdpg2g5avdkaodkv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (467.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 23:56 上传
+
