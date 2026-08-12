@@ -7669,3 +7669,46 @@ ds的微信群怎么加来着
 
 睡不着了，起来去上班<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Bronzecraft  
+##### 6643#       发表于 2026-8-13 07:19
+
+试了下，怎么感觉还不如flash，是我设置有问题？agent用的pi
+
+
+*****
+
+####  舞以  
+##### 6644#       发表于 2026-8-13 07:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064899&amp;ptid=2275806" target="_blank">Bronzecraft 发表于 2026-8-13 07:19</a>
+
+试了下，怎么感觉还不如flash，是我设置有问题？agent用的pi</blockquote>
+我感觉api就还没完全端上来<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 6645#       发表于 2026-8-13 07:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064881&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-13 07:00</a>
+感觉挺草台的，更新了但是又完全没更新，跑分图是微信群发的，文档里的更新日志没更新说好的不加班，又大 ...</blockquote>
+对，更新日志里白字黑字说的目前是0731，pro正式版还没上，模型和价格页面又说pro已经上了，要更新为啥不一起更新，官方自己的说明文档自相矛盾<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+只能说必定有草台，我怀疑有人下班前设置了定时任务，但是把时间搞错了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比如把utc和北京时间弄混了啥的，纯瞎猜
+
+*****
+
+####  wandeeees  
+##### 6646#       发表于 2026-8-13 07:26
+
+试了下，感觉比V4 PRO PREVIEW强，但是感觉没现在的V4F正式版强啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 6647#       发表于 2026-8-13 07:27
+
+我感觉也是完全草台，甚至新模型都没上，指纹和文档先改了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
