@@ -6826,3 +6826,186 @@ opencode go 套餐给v4 pro加了一个new<img src="https://static.stage1st.com/
 估计还在部署吧<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 还没全量上线
 
+
+*****
+
+####  chronicle  
+##### 6556#       发表于 2026-8-13 00:18
+
+是多模态吗
+
+*****
+
+####  startraveller  
+##### 6557#       发表于 2026-8-13 00:18
+
+估计还在rollout吧，明天公众号发了再蹬比较稳，现在先去看看隔壁grok好了
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  CCauchy  
+##### 6558#       发表于 2026-8-13 00:19
+
+<img src="https://img.stage1st.com/forum/202608/13/001929qw53byx7byj5rrqd.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (26.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 00:19 上传
+
+*****
+
+####  crow_wine  
+##### 6559#       发表于 2026-8-13 00:20
+
+ 本帖最后由 crow_wine 于 2026-8-13 00:22 编辑 
+
+nameeee可以Nameeee就不行了，真的睡了等明天了
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  王兰花秀丽  
+##### 6560#       发表于 2026-8-13 00:20
+
+<img src="https://img.stage1st.com/forum/202608/13/002026uf31kpzk11j0ffs4.jpg" referrerpolicy="no-referrer">
+
+<strong>1000052317.jpg</strong> (111.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 00:20 上传
+
+    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  wjxforever  
+##### 6561#       发表于 2026-8-13 00:20
+
+正式更新肯定要等官方发消息之后
+
+*****
+
+####  CCauchy  
+##### 6562#       发表于 2026-8-13 00:20
+
+感觉应该是了吧，之前写作都是10秒思考就开始瞎编，现在能注意到我文学材料里的逻辑陷阱
+
+*****
+
+####  真田源次郎信繁  
+##### 6563#       发表于 2026-8-13 00:22
+
+趁还没涨价半夜多跑着
+
+希望早上起来还没涨价<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  脸宽  
+##### 6564#       发表于 2026-8-13 00:22
+
+那就灯明天早上
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  杀人鲸  
+##### 6565#       发表于 2026-8-13 00:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064401&amp;ptid=2275806" target="_blank">chronicle 发表于 2026-8-13 00:18</a>
+是多模态吗</blockquote>
+不是，这个估计得等等。
+虽然市面上很多说D老师不做这个，但不对，不是不做，而是认为多模态并不是通往AGI的必然之路，但也认可这个的必要性，所以以后有时间的时候会做，但不会作为必须做的任务。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  CCauchy  
+##### 6566#       发表于 2026-8-13 00:23
+
+明天股市翻天吗<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CCauchy  
+##### 6567#       发表于 2026-8-13 00:24
+
+<img src="https://img.stage1st.com/forum/202608/13/002438uwk909nxqrhawlrw.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (44.98 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 00:24 上传
+
+*****
+
+####  羊寢  
+##### 6568#       发表于 2026-8-13 00:24
+
+试了一下nsfw文好像还不错<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 6569#       发表于 2026-8-13 00:25
+
+能赢么，大鲸鱼<img src="https://static.stage1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿刚  
+##### 6570#       发表于 2026-8-13 00:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">应该是布置了，试了下写文，他本来只会装个样子走的禁词审查这次认真的在每一条都过
+
+*****
+
+####  冤枉呐  
+##### 6571#       发表于 2026-8-13 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064441&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-13 00:25</a>
+应该是布置了，试了下写文，他本来只会装个样子走的禁词审查这次认真的在每一条都过 ...</blockquote>
+这个禁词是你的设置还是甲……
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  蛋黄酱Release  
+##### 6572#       发表于 2026-8-13 00:27
+
+api的思维链变了，不会再代入角色思考了，让它写极端小h文也没有拒绝<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+但是它好像更不愿意直球写颜色内容了
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  nxmonitor  
+##### 6573#       发表于 2026-8-13 00:27
+
+我觉得是你们幻觉了，要么正在分批上线……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿刚  
+##### 6574#       发表于 2026-8-13 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064444&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-13 00:26</a>
+
+这个禁词是你的设置还是甲……
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
+就是针对各种尾椎骨肩胛骨还有各种不是a是b的句式的检查模式，之前他假装过一下但实际上不真的检查
+

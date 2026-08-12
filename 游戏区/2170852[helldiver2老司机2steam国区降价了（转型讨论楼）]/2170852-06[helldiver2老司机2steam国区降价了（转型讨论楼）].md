@@ -470,3 +470,11 @@ MD-17 反坦克地雷
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  保科智子  
+##### 7503#       发表于 2026-8-13 00:23
+
+进游戏看到驱逐舰就闪退。重装都不行。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
