@@ -478,3 +478,13 @@ MD-17 反坦克地雷
 
 进游戏看到驱逐舰就闪退。重装都不行。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Koyishi  
+##### 7504#       发表于 2026-8-13 00:28
+
+闪退的验证下完整性试试
+
+—— 来自 Xiaomi 23054RA19C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

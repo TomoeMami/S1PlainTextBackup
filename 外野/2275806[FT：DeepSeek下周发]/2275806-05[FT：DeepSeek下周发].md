@@ -7009,3 +7009,89 @@ api的思维链变了，不会再代入角色思考了，让它写极端小h文�
 —— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
 就是针对各种尾椎骨肩胛骨还有各种不是a是b的句式的检查模式，之前他假装过一下但实际上不真的检查
 
+
+*****
+
+####  CCauchy  
+##### 6575#       发表于 2026-8-13 00:28
+
+我怀疑它是不是从我之前的问题里学到了什么
+
+*****
+
+####  tillnight  
+##### 6576#       发表于 2026-8-13 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064444&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-13 00:26</a>
+
+这个禁词是你的设置还是甲……
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
+甲比flash0731还要厚一点。不过想破还是能破，只是和以前完全无甲不同了。
+
+*****
+
+####  novem  
+##### 6577#       发表于 2026-8-13 00:29
+
+感觉网页端没更新
+
+*****
+
+####  冤枉呐  
+##### 6578#       发表于 2026-8-13 00:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064453&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-13 00:27</a>
+就是针对各种尾椎骨肩胛骨还有各种不是a是b的句式的检查模式，之前他假装过一下但实际上不真的检查 ...</blockquote>
+那相当可以啊！
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  杀人鲸  
+##### 6579#       发表于 2026-8-13 00:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064463&amp;ptid=2275806" target="_blank">novem 发表于 2026-8-13 00:29</a>
+感觉网页端没更新</blockquote>
+看了应该是分批次的吧？事实上说到底也不清楚到底具体应该表现成为什么才算更新了。
+只能说有一部分人的那种思考模式已经变了，变得和快速模式那样，很规整的逐步思考，而不是好的，现在我是叉叉，这种代入性的思考方式。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  @weakb0y  
+##### 6580#       发表于 2026-8-13 00:34
+
+刚才在zcode里面试，不确定是不是上新了，但是kelivo实测同一个上下文的角色扮演，以前的破甲无效了。。<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  masakaha  
+##### 6581#       发表于 2026-8-13 00:36
+
+快点把harness端出来，最近看性能问题看的头痛，让我感受一下宇宙最强吧
+
+*****
+
+####  城北无尘  
+##### 6582#       发表于 2026-8-13 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064319&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-13 00:04</a>
+
+这么看来当初的灰度搞不好真的是
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+问题是doing的思维链不是说只有哈基米嘛？总不能是路由到gemini 4pro了嘛<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 6583#       发表于 2026-8-13 00:37
+
+光看官方跑分比fable没弱多少和k3互有胜负，这个图也不知道是不是在自己harness上跑出来的，还是等官方的harness发布了再看实际使用感受吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
