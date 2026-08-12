@@ -5137,3 +5137,22 @@ discord太难用了，为什么会有这么难用的东西
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  余晖  
+##### 6399#       发表于 2026-8-12 16:47
+
+中午午睡梦见一个文峰史塔克世界线：贸易战的其次咔嚓中，国资收购了谷歌，然后开始安排谷歌深度嵌入ds，chrome、安卓都开始原生自带ds。拿手机玩着玩着，ds突然弹消息说发现你早上逛s1的时候看到逆天帖子很讨厌，要不要帮你骂他一顿
+
+*****
+
+####  ST2002  
+##### 6400#       发表于 2026-8-12 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70061308&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-12 16:08</a>
+我司的模版基本就是白板，我用pptmaster一生成好，复制粘贴进去，顺便看一遍检查措辞就行了。就需要指定 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">羡慕，我司不仅有复杂的模板规定，还因为做了太多年连措辞和颗粒度都形成套路了，哪些话放哪个文本框都有讲究，还要和其他材料保持同步更新，麻烦哦。。。。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
