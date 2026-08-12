@@ -4922,3 +4922,37 @@ opencode 快加小霸王啊,白天都蹬不动了啊</blockquote>
 那只能说挺无奈的了。所以说，在系统商城可以更新的朋友，到时候也说一下这一次有更新什么内容吧。我在第 ...</blockquote>
 请求新增x-hif-dliq和x-hif-leim两个字段，还有加了腾讯的Dns解析服务，应该只是风控的更新，当然也可以理解为大的要来了要做好防护<img src="https://static.stage1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Litccc  
+##### 6379#       发表于 2026-8-12 15:23
+
+本楼居然已经发展为国内比较专业的ds讨论楼了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  杀人鲸  
+##### 6380#       发表于 2026-8-12 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70060985&amp;ptid=2275806" target="_blank">Litccc 发表于 2026-8-12 15:23</a>
+本楼居然已经发展为国内比较专业的ds讨论楼了
+
+论坛助手,iPhone</blockquote>
+还真是这样的。我逛的论坛虽然不多，但是真的很难找到一个能够集中讨论，而且大家也尽可能把找到的信息汇总起来的这种专门的楼层。莫名其妙感觉有点搞笑，还是说这就是S1的排面吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  杀人鲸  
+##### 6381#       发表于 2026-8-12 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70060809&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-12 14:59</a>
+请求新增x-hif-dliq和x-hif-leim两个字段，还有加了腾讯的Dns解析服务，应该只是风控的更新，当然也可以 ...</blockquote>
+原来如此，非常感谢。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
