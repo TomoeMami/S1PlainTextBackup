@@ -9243,3 +9243,20 @@ Her magic ...</blockquote>
 
 攻速38主角才26<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星花  
+##### 2356#       发表于 2026-8-12 13:45
+
+战技是跳一段舞，然后对着自己脑袋开枪。
+
+*****
+
+####  最浅的语言  
+##### 2357#       发表于 2026-8-12 13:46
+
+敌人中弹身亡了（X）
+
+敌人被拳风刮死了（√）
+

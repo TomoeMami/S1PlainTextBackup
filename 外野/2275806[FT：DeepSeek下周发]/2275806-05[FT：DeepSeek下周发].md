@@ -4805,3 +4805,19 @@ Windows下的gbk和路径就是问题太多。我之前搞一个公司里的小�
 
 应该就叫这个吧，泄露的私有repo里面的链接全叫dsh    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  →熙←  
+##### 6369#       发表于 2026-8-12 13:50
+
+opencode 快加小霸王啊,白天都蹬不动了啊
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  拯救节操希灵宅  
+##### 6370#       发表于 2026-8-12 13:53
+
+opencode go的v4f首字比官方api慢好多，梁子的infra还是有点东西
+
