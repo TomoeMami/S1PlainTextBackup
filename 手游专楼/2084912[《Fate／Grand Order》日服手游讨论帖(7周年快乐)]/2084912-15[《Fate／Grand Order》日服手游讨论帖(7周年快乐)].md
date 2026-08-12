@@ -3485,3 +3485,56 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 
 太复杂了，看不懂，但感觉是这期卡池大奖...
 
+
+*****
+
+####  cckuku  
+##### 21377#       发表于 2026-8-12 19:44
+
+麻雀不会能顶了水伊吹吧<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 21378#       发表于 2026-8-12 19:46
+
+<img src="https://img.stage1st.com/forum/202608/12/194630b0dpl0lfc3lfxpf1.gif" referrerpolicy="no-referrer">
+
+<strong>PB](D%OO_%KE_6D_C5}D$SV.gif</strong> (1.38 MB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 19:46 上传
+
+宝宝你是一条蛆.gif 
+
+*****
+
+####  alucardcz  
+##### 21379#       发表于 2026-8-12 19:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2026漏油居然还在水伊吹吗
+
+
+*****
+
+####  cckuku  
+##### 21380#       发表于 2026-8-12 19:50
+
+我甚至还在用摩根<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 21381#       发表于 2026-8-12 19:50
+
+ 本帖最后由 Jamaisvu 于 2026-8-12 19:53 编辑 
+<blockquote>cckuku 发表于 2026-8-12 19:44
+麻雀不会能顶了水伊吹吧</blockquote>
+
+水伊吹的地之力特攻更泛用些吧，二技能拐队友也好用。而且ATK白值比麻雀高1000。
+
+不过麻雀的上限高，这三体人小作文看着太吓人了...
+
+点了减CD被动，一技能3T能用四次，1T加20攻，2T充20能，30T加20宝威...如果触发极稀效果更是IMBA...
+

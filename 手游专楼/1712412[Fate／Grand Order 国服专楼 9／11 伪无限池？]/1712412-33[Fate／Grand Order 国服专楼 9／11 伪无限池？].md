@@ -2519,3 +2519,21 @@ MuMu-20260812-190700-122.jpg
 
 <img src="https://img.stage1st.com/forum/202608/12/194008hbinwdqbb9o9921y.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Akakaka  
+##### 48110#       发表于 2026-8-12 19:46
+
+水提妈池500石0个四星0个五星，第一次这么黑
+
+所长我吃保底最后只抽了三宝留点石头，结果这还不如不留
+
+
+*****
+
+####  doublehit  
+##### 48111#       发表于 2026-8-12 19:50
+
+三个十连染色出了水提妈，抽个一宝就够了嘛<img src="https://static.stage1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
