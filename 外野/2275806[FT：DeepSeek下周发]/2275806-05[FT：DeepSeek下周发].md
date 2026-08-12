@@ -7478,3 +7478,24 @@ A卡+16G就别想了，乖乖接API吧
 
 感觉确实文笔比flash好，但这个雷霆大思考看着是真折磨啊，一直翻来覆去纠结同一个事（对的对的，哦不对，哦对的对的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wonderful259  
+##### 6625#       发表于 2026-8-13 02:35
+
+看起来还是会有些过度思考啊。等大家评测看一看。
+
+
+*****
+
+####  lain2008  
+##### 6626#       发表于 2026-8-13 02:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064626&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-13 01:32</a>
+
+写作能力稍微靠点谱的模型都是本地跑不动的</blockquote>
+我倒不是为了一键生成内容啥的，我有足够的设定，我只是需要本地有ai整理出各种分类的设定和主线文件夹啥的而已，用rag来总结出我需要的关键字和prompt，然后给收费ai这用法我也可以考虑
+
+那么我的rx9070在本地够用么？
+
