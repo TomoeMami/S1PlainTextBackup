@@ -5336,3 +5336,42 @@ v4f发布前两天29号也是周三更新了手机客户端，感觉就是这周
 别吓我呀，有什么信源吗    Re:Source</blockquote>
 隔壁游戏区任天堂直面会的梗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  库德里尔  
+##### 6419#       发表于 2026-8-12 21:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70057145&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-11 23:42</a>
+
+请教一下，角色卡是模型本身的，不是创作内容的，对吧？
+
+哪些插件啊，skill自己写的吗？</blockquote>
+1. 角色卡是pi自己的，不是作品的。
+
+2. 基于hound插件，让它自己研究了pixiv novel的阅读、查询、series等页面的解析（没有处理请求响应）
+
+3. 写小说的skill是让pi自己调研了一些，然后融合起来自己开发了一套，据pi自己所说看了这些，可以参考下？
+
+skills
+
+danjdewhurst/story-skills
+
+forjd/better-writing
+
+SantaClaus9527/novelskill
+
+wenmaosheng/ai-writing-long-noval
+
+lingfengQAQ/webnovel-writer
+
+桌面工作台
+
+EthanYoQ/AI-Novel-Writer
+
+Ddhjx-code/novel-studio
+
+91zgaoge/StoryForge
+
+yuanbw2025/storyforge
+
