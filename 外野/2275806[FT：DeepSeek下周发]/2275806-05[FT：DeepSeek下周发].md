@@ -5193,3 +5193,18 @@ v4flash 没有多模态，写 scad 搞 3d 建模还是有困难，发现不了�
 
 梁宫春日永无止境的八月<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  此誓的守望  
+##### 6405#       发表于 2026-8-12 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70061706&amp;ptid=2275806" target="_blank">Litccc 发表于 2026-8-12 17:11</a>
+
+早就加了，类脑无效信息太多了
+
+大部分时间都是男大xp露出和烂炒新模型时间，现在建了sfw楼还好一点
+
+论坛 ...</blockquote>
+不过不能否认类脑的ds sfw版可能是目前全网最大的鲸鱼讨论社区了，这楼里哪些鲸鱼AI图的初始形象其实就是混类脑的人用GPT炼出来的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
