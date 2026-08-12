@@ -5004,3 +5004,36 @@ opencode 快加小霸王啊,白天都蹬不动了啊</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  jinyu19922011  
+##### 6386#       发表于 2026-8-12 16:02
+
+集成了泄露，二次元爱好者，码农评论，爱好者，产品，围观者，大家积极发言。对了，还有红色基因的爱国底色
+
+*****
+
+####  cscbzcbz  
+##### 6387#       发表于 2026-8-12 16:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70060714&amp;ptid=2275806" target="_blank">明天不再有牛奶 发表于 2026-8-12 14:45</a>
+现在做ppt用什么skill比较强？
+
+—— 来自 S1Fun</blockquote>
+我用的也不多，github上有个ppt-master还行
+
+*****
+
+####  ST2002  
+##### 6388#       发表于 2026-8-12 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70060714&amp;ptid=2275806" target="_blank">明天不再有牛奶 发表于 2026-8-12 14:45</a>
+现在做ppt用什么skill比较强？
+
+—— 来自 S1Fun</blockquote>
+可以试试 ppt -master ，星数比较高
+但如果要用公司模板进行套路化生产，目前还没有很好的方案
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
