@@ -4178,3 +4178,11 @@ pi真好玩啊，今天用pi整了个语音助手，在电脑上直接和它对�
 
 这个COT的研究真正用意不好说，DeepSeek用的竟然是V3.1这个莫名其妙的版本……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FACS  
+##### 6311#       发表于 2026-8-12 10:35
+
+pi+deepseek要加pdf相关的插件吗，想弄个pdf总结知识库之类的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
