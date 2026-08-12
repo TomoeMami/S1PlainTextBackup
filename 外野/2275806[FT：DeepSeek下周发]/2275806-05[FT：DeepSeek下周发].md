@@ -7236,3 +7236,59 @@ api的思维链变了，不会再代入角色思考了，让它写极端小h文�
 
 用的opencode的桌面版 是这么试的吗
 
+
+*****
+
+####  酱油拌饭s  
+##### 6598#       发表于 2026-8-13 00:59
+
+看别的地方一片哀嚎说写过于黄的东西api带破甲词也不好使了啊，诸君有实验了的么
+
+*****
+
+####  ycjiang1337  
+##### 6599#       发表于 2026-8-13 00:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064559&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-8-13 00:59</a>
+
+看别的地方一片哀嚎说写过于黄的东西api带破甲词也不好使了啊，诸君有实验了的么 ...</blockquote>
+一般向的SM之类的都能写，可能是涉及到非自愿会卡？
+
+*****
+
+####  蛋黄酱Release  
+##### 6600#       发表于 2026-8-13 01:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064559&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-8-13 00:59</a>
+看别的地方一片哀嚎说写过于黄的东西api带破甲词也不好使了啊，诸君有实验了的么 ...</blockquote>
+试了，还行，一些比较超限的东西也能写，反复测了几次感觉文笔也好一些了
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  Promeus  
+##### 6601#       发表于 2026-8-13 01:03
+
+年龄不行，但是很诡异的是我给了它两个大纲他输出都很短，感觉不出来和flash有太大区别<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蛋黄酱Release  
+##### 6602#       发表于 2026-8-13 01:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064567&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-13 01:03</a>
+年龄不行，但是很诡异的是我给了它两个大纲他输出都很短，感觉不出来和flash有太大区别 ...</blockquote>
+年龄得专门破甲
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  舞以  
+##### 6603#       发表于 2026-8-13 01:07
+
+估计部署还没完成，还得roll
+
