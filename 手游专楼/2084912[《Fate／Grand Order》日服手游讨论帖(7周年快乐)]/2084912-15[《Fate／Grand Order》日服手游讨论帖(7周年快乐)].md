@@ -3261,3 +3261,148 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 萌新也是有帝王花的萌新了</blockquote>
 狗萌新还是欧
 
+
+*****
+
+####  Jamaisvu  
+##### 21369#       发表于 2026-8-12 19:21
+
+搬一下卡面：
+
+麻雀：
+
+<img src="https://img.stage1st.com/forum/202608/12/192041jn2ngro9w2b2n46b.png" referrerpolicy="no-referrer">
+
+<strong>1786533595784.png</strong> (74.52 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-12 19:20 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/192041titl5uz58klkqlls.png" referrerpolicy="no-referrer">
+
+<strong>1786533598257.png</strong> (96.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-12 19:20 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/192041ho9az57i9997t7uo.png" referrerpolicy="no-referrer">
+
+<strong>1786533600599.png</strong> (95.7 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-12 19:20 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/192042bbttxufuefizeb1c.png" referrerpolicy="no-referrer">
+
+<strong>1786533602839.png</strong> (82.72 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-12 19:20 上传
+
+白花：
+
+<img src="https://img.stage1st.com/forum/202608/12/192058e99yau6faf498a69.png" referrerpolicy="no-referrer">
+
+<strong>1786533575168.png</strong> (129.58 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-12 19:20 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/192058y63jka7ewgtjebkw.png" referrerpolicy="no-referrer">
+
+<strong>1786533577857.png</strong> (106.08 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-12 19:20 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/192058wr7uu876jpv9qfv6.png" referrerpolicy="no-referrer">
+
+<strong>1786533580364.png</strong> (107.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-12 19:20 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/192059y5c4vqvymqlqcugv.png" referrerpolicy="no-referrer">
+
+<strong>1786533582739.png</strong> (131.89 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-12 19:20 上传
+
+奶龙：
+
+<img src="https://img.stage1st.com/forum/202608/12/192120fc81cx8jfx0j0r01.png" referrerpolicy="no-referrer">
+
+<strong>1786533586572.png</strong> (107.11 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-12 19:21 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/192120kpce0rugcupddcuq.png" referrerpolicy="no-referrer">
+
+<strong>1786533589012.png</strong> (118.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-12 19:21 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/192120sa8la4qzqucatjcp.png" referrerpolicy="no-referrer">
+
+<strong>1786533591122.png</strong> (114.45 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-12 19:21 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/192121buhhe955w9zwehe5.png" referrerpolicy="no-referrer">
+
+<strong>1786533525056.png</strong> (102.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-12 19:21 上传
+
+
+*****
+
+####  12481632  
+##### 21370#       发表于 2026-8-12 19:24
+
+帝王花榨干了，但是没奶龙，有感觉吗
+<img src="https://p.sda1.dev/34/19f82bd9f8623e660af382ad111cbb07/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 21371#       发表于 2026-8-12 19:25
+
+都啥强度啊，我看看要不要试试水<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yangun22  
+##### 21372#       发表于 2026-8-12 19:26
+
+4张五星有点狠了，我要上盘子换了，抽不起<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
