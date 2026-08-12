@@ -8114,3 +8114,13 @@ DD73192A-A571-45BB-ACEC-B5EECCC05636.webp
 
 另外那个连续命中增伤会因为风扇之类的持续AOE不断刷新攻击计数导致完全无效，别带
 
+
+*****
+
+####  绿冰  
+##### 945#         楼主| 发表于 2026-8-12 19:03
+
+<img src="https://p.sda1.dev/34/4bf2deda25661d812038e03b56d78654/image.jpg" referrerpolicy="no-referrer">S评价得多少分
+
+—— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
