@@ -4956,3 +4956,37 @@ opencode 快加小霸王啊,白天都蹬不动了啊</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  魔神赵日天  
+##### 6382#       发表于 2026-8-12 15:37
+
+漫无止境的8月初，pro正式版什么时候出来呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  杀人鲸  
+##### 6383#       发表于 2026-8-12 15:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70061109&amp;ptid=2275806" target="_blank">魔神赵日天 发表于 2026-8-12 15:37</a>
+漫无止境的8月初，pro正式版什么时候出来呢
+
+—— 来自 鹅球 v3.3.96</blockquote>
+信梁、爱梁、等梁！
+
+按照梁历来计算的话，本月之前吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  杀人鲸  
+##### 6384#       发表于 2026-8-12 15:38
+
+只不过说起来，我倒也是有点好奇，在更新结束以后，新的模型会上客户端吗？按照过去的惯例应该会的吧？只不过这一次都已经到要涨价的程度了，那么客户端会发生什么变化吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
