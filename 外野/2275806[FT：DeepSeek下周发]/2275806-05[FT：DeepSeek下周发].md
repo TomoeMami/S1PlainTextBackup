@@ -7564,3 +7564,20 @@ dsv4 api有这么便宜么？
 
 求个好心坛友dm我个v4p破甲<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  孤灯蓝影  
+##### 6633#       发表于 2026-8-13 03:24
+
+还有别用cc测，现在A÷给国内llm下毒，缓存率给你搞低爆降，cc测不准
+
+*****
+
+####  果壳中的松鼠  
+##### 6634#       发表于 2026-8-13 03:29
+
+我这边api似乎还是preview版本，x上看到有人说不如glm5.1的，估计还没全量，等官宣再测吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
