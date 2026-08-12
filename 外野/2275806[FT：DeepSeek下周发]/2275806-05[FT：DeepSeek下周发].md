@@ -6077,3 +6077,92 @@ opencode不给免费蹬了？几天没用，今天一上还没怎么蹬就给我
 
 2026-8-12 23:37 上传
 
+
+*****
+
+####  CCauchy  
+##### 6490#       发表于 2026-8-12 23:39
+
+网页版跟了吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qz66618  
+##### 6491#       发表于 2026-8-12 23:41
+
+什么，居然大半夜更新？大的来了<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  crow_wine  
+##### 6492#       发表于 2026-8-12 23:41
+
+感觉只是更新了文档，没有发布。api 没有性能下降，能力也没看到有不同
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  cscbzcbz  
+##### 6493#       发表于 2026-8-12 23:41
+
+还好没睡，核弹来了
+
+*****
+
+####  samfs  
+##### 6494#       发表于 2026-8-12 23:42
+
+API 还是不能返回 Nameeee，可能还没有全都部署上去
+
+*****
+
+####  杀人鲸  
+##### 6495#       发表于 2026-8-12 23:42
+
+所以说，今天难道是什么特别的日子吗？为什么会在今天更新？
+顺便，网页和客户端上的Pro专家已经变成雷霆大思考，而不是好的，现在我已经是xxx那种思考方式了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Promeus  
+##### 6496#       发表于 2026-8-12 23:42
+
+还是大量的let me<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小野賢章  
+##### 6497#       发表于 2026-8-12 23:45
+
+<img src="https://img.stage1st.com/forum/202608/12/234454jvbpvrdx9wzre0bc.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0608.jpeg</strong> (187.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 23:44 上传
+
+*****
+
+####  qz66618  
+##### 6498#       发表于 2026-8-12 23:45
+
+这下真和那个游戏一起更新了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  →熙←  
+##### 6499#       发表于 2026-8-12 23:47
+
+opencode go 的v4f突然超快,算力释放了?
+
