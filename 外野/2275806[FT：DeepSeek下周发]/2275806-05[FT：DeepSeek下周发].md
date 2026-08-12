@@ -7095,3 +7095,61 @@ api的思维链变了，不会再代入角色思考了，让它写极端小h文�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  舞以  
+##### 6584#       发表于 2026-8-13 00:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064500&amp;ptid=2275806" target="_blank">城北无尘 发表于 2026-8-13 00:37</a>
+ 问题是doing的思维链不是说只有哈基米嘛？总不能是路由到gemini 4pro了嘛</blockquote>
+梁圣的因果律武器懂么<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+你楼都能刷出这种迫不及待开输的傻逼也是奇怪
+
+*****
+
+####  →熙←  
+##### 6585#       发表于 2026-8-13 00:40
+
+所以真的上正式版了吗,当初的i'm doing呢 <img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 6586#       发表于 2026-8-13 00:40
+
+那个是典型的小模型转写了思维链，准确说是哈基米加了一个东西才是现在的思维链
+
+*****
+
+####  tillnight  
+##### 6587#       发表于 2026-8-13 00:40
+
+最傻逼的是路由党们当年的“最大证据”是灰测没有nameeee的脏token。现在已经被反证了就是特意修了。<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 6588#       发表于 2026-8-13 00:40
+
+我之前就觉得加上harness能打平fable已经是奇迹了，参数量差距在这里摆着呢，说实话差这么多参数量如果真的还能打个有来有回已经是够厉害了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  L-JoeW  
+##### 6589#       发表于 2026-8-13 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064453&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-13 00:27</a>
+就是针对各种尾椎骨肩胛骨还有各种不是a是b的句式的检查模式，之前他假装过一下但实际上不真的检查 ...</blockquote>
+老哥，这个检查的提示词或者词库可以分享下吗，我让他写r18文也经常整出这些词太破坏气氛了
+
+
+*****
+
+####  CCauchy  
+##### 6590#       发表于 2026-8-13 00:45
+
+出乎意料的结果，文学逻辑能力比sol最高好
+
