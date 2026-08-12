@@ -4170,3 +4170,11 @@ pi真好玩啊，今天用pi整了个语音助手，在电脑上直接和它对�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我昨天晚上做梦，梦中凌晨1:47左右，deepseek harness发布了
 
+
+*****
+
+####  nxmonitor  
+##### 6310#       发表于 2026-8-12 09:05
+
+这个COT的研究真正用意不好说，DeepSeek用的竟然是V3.1这个莫名其妙的版本……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
