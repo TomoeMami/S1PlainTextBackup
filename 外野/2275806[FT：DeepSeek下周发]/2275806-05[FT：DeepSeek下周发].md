@@ -7461,3 +7461,20 @@ A卡+16G就别想了，乖乖接API吧
 有些地方的评论区简直看不懂，grok4.6跑的benchmark和ds跑的几乎都不一样，是怎么得出grok4.6强于ds这个结 ...</blockquote>
 因为deepSWE比grok低，但模型规模又比grok大吧
 
+
+*****
+
+####  蛋黄酱Release  
+##### 6623#       发表于 2026-8-13 02:14
+
+感觉v4p没达到预期，如果再涨价的话性价比就一般了，v4f才是真斩杀线
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  不想当咸鱼  
+##### 6624#       发表于 2026-8-13 02:17
+
+感觉确实文笔比flash好，但这个雷霆大思考看着是真折磨啊，一直翻来覆去纠结同一个事（对的对的，哦不对，哦对的对的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
