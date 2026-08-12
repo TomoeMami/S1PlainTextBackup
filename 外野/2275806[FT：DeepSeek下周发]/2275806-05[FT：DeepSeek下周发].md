@@ -4990,3 +4990,17 @@ opencode 快加小霸王啊,白天都蹬不动了啊</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  那一年的河川  
+##### 6385#       发表于 2026-8-12 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70060985&amp;ptid=2275806" target="_blank">Litccc 发表于 2026-8-12 15:23</a>
+本楼居然已经发展为国内比较专业的ds讨论楼了
+
+论坛助手,iPhone</blockquote>
+加个类脑ds区？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
