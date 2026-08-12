@@ -5156,3 +5156,18 @@ discord太难用了，为什么会有这么难用的东西
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  小野賢章  
+##### 6401#       发表于 2026-8-12 16:59
+
+v4flash 没有多模态，写 scad 搞 3d 建模还是有困难，发现不了自己的错误，写了一个 python 脚本在那数值模拟验算，算了 900 秒都没算出来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 6402#       发表于 2026-8-12 17:03
+
+今天没大的了<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
