@@ -7522,3 +7522,18 @@ A卡+16G就别想了，乖乖接API吧</blockquote>
 
 连个qwen 14b都跑不起来么？
 
+
+*****
+
+####  lain2008  
+##### 6629#       发表于 2026-8-13 02:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064743&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-13 02:49</a>
+
+不太行，我是5070ti，用来提取小说术语表给其他ai翻译，测试了gemma4 26a4b/bonsai 27b/qwen3.6 27b iq4x ...</blockquote>
+dsv4 api有这么便宜么？
+
+还有，我的设定可能动不动几十万字，我不用ai整理成rcm索引我自己都可能总结不出来啊，而且这么大的文字量，token烧不起啊
+
+但是所以我就想着整理的部分用本地ai，实际生成新内容用整理出来的关键字来让api生成
+
