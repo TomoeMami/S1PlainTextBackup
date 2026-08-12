@@ -9306,3 +9306,21 @@ Her magic ...</blockquote>
 攻速38主角才26，奶奶的枪耐久只有5，战技应该恐怖如斯吧</blockquote>
 有时候我都怀疑过手甲用技能才是枪械
 
+
+*****
+
+####  mai6696  
+##### 2362#       发表于 2026-8-12 14:53
+
+<img src="https://img.stage1st.com/forum/202608/12/145256o455gd5ldnq4vvxn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (384.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 14:52 上传
+
+正如我们火纹迷AG老师所说的，你这视频里必杀都是十几的，怎么把把暴击啊。
+
+宣传欺诈是吧？
+

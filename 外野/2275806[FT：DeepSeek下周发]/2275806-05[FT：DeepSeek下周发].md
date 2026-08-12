@@ -4902,3 +4902,13 @@ opencode 快加小霸王啊,白天都蹬不动了啊</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  明天不再有牛奶  
+##### 6377#       发表于 2026-8-12 14:45
+
+现在做ppt用什么skill比较强？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
