@@ -6699,3 +6699,130 @@ cherry测试了一下，不行
 
 这两个分别是快速模式和专家模式的回答，这样是正式版吗？
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 6541#       发表于 2026-8-13 00:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+似乎文字创作能力也有大进步？而且看cot顺畅了超级多
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  nxmonitor  
+##### 6542#       发表于 2026-8-13 00:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064341&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-13 00:07</a>
+
+这两个分别是快速模式和专家模式的回答，这样是正式版吗？</blockquote>
+第二个不是，第一个看思维链里有没有
+
+*****
+
+####  舞以  
+##### 6543#       发表于 2026-8-13 00:12
+
+opencode都开始宣布pro上线了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 6544#       发表于 2026-8-13 00:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以灰度的那个到底是啥玩意，中转OA那也看不见思维链啊
+
+难道是整了个DSV4 ultra吗
+
+
+*****
+
+####  villsian  
+##### 6545#       发表于 2026-8-13 00:14
+
+刚才测试了一下，感觉PRO 的API思维链似乎确实变了，变得很简单直接。很多次的工具调用都没有思考过程了。
+
+但是现在好卡。。。。
+
+*****
+
+####  cscbzcbz  
+##### 6546#       发表于 2026-8-13 00:15
+
+opencode go 套餐给v4 pro加了一个new<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+但是测试了一下，目前还是识别不了Nameeee，思维链也还是let me，I should，I'll，I can也有，但是标志性的 I‘m doing还没出现
+
+*****
+
+####  舞以  
+##### 6547#       发表于 2026-8-13 00:15
+
+等测试呗<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CCauchy  
+##### 6548#       发表于 2026-8-13 00:15
+
+卧槽，怎么直接在思考里写作了
+
+*****
+
+####  77BBC  
+##### 6549#       发表于 2026-8-13 00:16
+
+能不能白天发，我请问了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  阿刚  
+##### 6550#       发表于 2026-8-13 00:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064341&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-13 00:07</a>
+
+这两个分别是快速模式和专家模式的回答，这样是正式版吗？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">本质上两兄弟都没识别出nameeee这个文本本身，所以不是，刚才我在网页版直接把这个文本识别出来了所以应该是灰到了
+
+*****
+
+####  nxmonitor  
+##### 6551#       发表于 2026-8-13 00:17
+
+目前API还是有问题，网页版是灰测的，有的对话行有的不行，思维链里有Nameeee以后，let me都消失了
+
+*****
+
+####  crow_wine  
+##### 6552#       发表于 2026-8-13 00:17
+
+这会真的睡觉去了，等白天了。正好有几个大活可以测试
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  蜇灵  
+##### 6553#       发表于 2026-8-13 00:17
+
+这么突然？我reasonix还没修好呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wesdrtfg  
+##### 6554#       发表于 2026-8-13 00:17
+
+感觉光看跑分有点拉，依我看是时候进行下一步，等鲸鱼的2.4T大模型了<img src="https://p.sda1.dev/34/785ebe7669e08e0f97235b89a76fb23c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 6555#       发表于 2026-8-13 00:18
+
+估计还在部署吧<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+还没全量上线
+
