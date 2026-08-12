@@ -3227,3 +3227,37 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 
 吐了...300石歪了个拿破仑
 
+
+*****
+
+####  blue321  
+##### 21366#       发表于 2026-8-12 19:09
+
+4个5星这么狠？捞一笔捞一笔！
+
+
+*****
+
+####  alucardcz  
+##### 21367#       发表于 2026-8-12 19:12
+
+<img src="https://img.stage1st.com/forum/202608/12/191204l0zbfj70bbt0qkbb.png" referrerpolicy="no-referrer">
+
+<strong>123.png</strong> (704.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 19:12 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">萌新也是有帝王花的萌新了
+
+*****
+
+####  qixinno1  
+##### 21368#       发表于 2026-8-12 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70062347&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-12 19:12</a>
+
+萌新也是有帝王花的萌新了</blockquote>
+狗萌新还是欧
+

@@ -2416,3 +2416,36 @@ MuMu-20260810-204759-749.jpg
 
 yls疯了吧，4SSR，明年泳装怎么抽啊<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  marxel  
+##### 48103#       发表于 2026-8-12 19:07
+
+收工了
+
+剑lip池子丢呼符结果6发出了，追4发出了骑飞嫂（？
+
+月兔池子120发出，外加3宝水美游，你别说这小东西拿来打前面几天的free挺好用的
+
+弓提40发出，外加5宝雏鹤（第一个十连来了3个）
+
+疑似所长千石一宝之后来挽留我的
+
+*****
+
+####  苍蓝之枪  
+##### 48104#       发表于 2026-8-12 19:10
+
+十发十连没出鹤，麻了都
+
+出了五星就不该贪四星的
+
+
+*****
+
+####  qixinno1  
+##### 48105#       发表于 2026-8-12 19:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">150才出提妈 彻底回归解放前
+
