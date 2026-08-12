@@ -7356,3 +7356,41 @@ api的思维链变了，不会再代入角色思考了，让它写极端小h文�
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lain2008  
+##### 6611#       发表于 2026-8-13 01:27
+
+有没有本地部署Ai的？rx9070的16g 部署ai可以用来写小说么？
+
+*****
+
+####  startraveller  
+##### 6612#       发表于 2026-8-13 01:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064619&amp;ptid=2275806" target="_blank">lain2008 发表于 2026-8-13 01:27</a>
+有没有本地部署Ai的？rx9070的16g 部署ai可以用来写小说么？</blockquote>
+A卡+16G就别想了，乖乖接API吧
+
+
+*****
+
+####  冤枉呐  
+##### 6613#       发表于 2026-8-13 01:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064551&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-13 00:56</a>
+私信给你了</blockquote>
+求分享！求分享！
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qwased  
+##### 6614#       发表于 2026-8-13 01:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064619&amp;ptid=2275806" target="_blank">lain2008 发表于 2026-8-13 01:27</a>
+有没有本地部署Ai的？rx9070的16g 部署ai可以用来写小说么？</blockquote>
+写作能力稍微靠点谱的模型都是本地跑不动的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
