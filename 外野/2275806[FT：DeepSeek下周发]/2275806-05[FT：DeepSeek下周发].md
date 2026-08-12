@@ -7499,3 +7499,26 @@ A卡+16G就别想了，乖乖接API吧
 
 那么我的rx9070在本地够用么？
 
+
+*****
+
+####  qwased  
+##### 6627#       发表于 2026-8-13 02:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064728&amp;ptid=2275806" target="_blank">lain2008 发表于 2026-8-13 02:41</a>
+我倒不是为了一键生成内容啥的，我有足够的设定，我只是需要本地有ai整理出各种分类的设定和主线文件夹啥 ...</blockquote>
+不太行，我是5070ti，用来提取小说术语表给其他ai翻译，测试了gemma4 26a4b/bonsai 27b/qwen3.6 27b iq4xxs/35a3b，全部都只到勉强能用这一档，考虑速度、电费、折旧之后都是被dsv4 flash乱杀的
+你的使用场景还比我复杂，大概率表现更糟糕
+
+*****
+
+####  lain2008  
+##### 6628#       发表于 2026-8-13 02:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064621&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-13 01:29</a>
+
+A卡+16G就别想了，乖乖接API吧</blockquote>
+我看rocm好像不是跟上来了么？还是这么差？
+
+连个qwen 14b都跑不起来么？
+
