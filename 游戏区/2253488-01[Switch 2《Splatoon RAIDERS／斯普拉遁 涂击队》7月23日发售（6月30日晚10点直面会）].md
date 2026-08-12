@@ -8104,3 +8104,13 @@ DD73192A-A571-45BB-ACEC-B5EECCC05636.webp
 
 前面开荒拿力量挺好的，当前的成型build里以后不怎么会用它刷的会把速度和技巧用到吐。
 
+
+*****
+
+####  qwased  
+##### 944#       发表于 2026-8-12 09:53
+
+发酵爆炸LN2打到350层感觉数值已经有点不够看了，能用的增伤buff只有远距离和满血，LN2的极限射程又刚好卡在远距离增伤阈值上<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+另外那个连续命中增伤会因为风扇之类的持续AOE不断刷新攻击计数导致完全无效，别带
+
