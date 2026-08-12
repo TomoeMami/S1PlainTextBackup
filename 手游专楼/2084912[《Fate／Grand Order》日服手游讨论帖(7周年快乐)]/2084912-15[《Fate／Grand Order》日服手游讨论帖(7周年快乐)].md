@@ -3681,3 +3681,40 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 比没卵用的还是好多了
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 21396#       发表于 2026-8-12 22:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每回合30星，第一回合60星。全体50爆伤，自己有100爆伤，感觉强度还是可以的，就是没有搭载-CD和指令卡操作机制，又算不上新时代的强卡。
+
+*****
+
+####  希望之花  
+##### 21397#       发表于 2026-8-12 22:08
+
+艾蕾王虽然没有户口但是出场现在可以有两个状态条<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+开局饿肚子低好感<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  日蚀之阳  
+##### 21398#       发表于 2026-8-12 22:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70062409&amp;ptid=2084912" target="_blank">cckuku 发表于 2026-8-12 19:25</a>
+
+都啥强度啊，我看看要不要试试水</blockquote>
+红阎魔脑测了一下是没有减cdnp更充足的水伊吹
+
+*****
+
+####  少女人形  
+##### 21399#       发表于 2026-8-12 22:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70062901&amp;ptid=2084912" target="_blank">rooarr 发表于 2026-8-12 20:54</a>
+
+有没有哪个实测强的，怎么感觉都是马马虎虎</blockquote>
+也就小麻雀厉害一些，强的有限，远没有上一个泳装5星狂落地那会来得震撼
+

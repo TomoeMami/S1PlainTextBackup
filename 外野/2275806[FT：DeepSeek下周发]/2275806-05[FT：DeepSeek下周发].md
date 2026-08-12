@@ -5441,3 +5441,32 @@ WeLM-617B
 
 养蛊❌每个山头都有自己的计划✅
 
+
+*****
+
+####  ternayark  
+##### 6425#       发表于 2026-8-12 22:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70063203&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-8-12 21:29</a>
+猜猜deepseek harness 叫啥名吧，现在这个公众号名字是不是还会换啊</blockquote>
+Deep♂Dark♂Harness<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  很久就在那边l  
+##### 6426#       发表于 2026-8-12 22:04
+
+opencode zen free今天开始严重限流，薅不动了
+
+
+*****
+
+####  overflowal  
+##### 6427#       发表于 2026-8-12 22:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70063429&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-8-12 21:52</a>
+微信官宣了自己的模型
+
+目前其微信里的小微助手就是由该模型驱动的</blockquote>
+微信是腾讯里的独立王国,很正常    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
