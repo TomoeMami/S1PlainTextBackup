@@ -5098,3 +5098,24 @@ opencode 快加小霸王啊,白天都蹬不动了啊</blockquote>
 
 office-cli也可以试试，我觉得重要的是接更好的模型，最好是有识图能力的原生多模态模型，Kimi和closeai都是比较不错的
 
+
+*****
+
+####  lactone  
+##### 6395#       发表于 2026-8-12 16:30
+
+kimi网页版的ppt生成是我觉得审美最好的
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  那一年的河川  
+##### 6396#       发表于 2026-8-12 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70061373&amp;ptid=2275806" target="_blank">YOYORA 发表于 2026-8-12 16:17</a>
+是那个笃定deepseek把fable接给opencode用的类脑吗？另外discord也很难算国内</blockquote>
+又寸<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
