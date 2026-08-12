@@ -2537,3 +2537,11 @@ MuMu-20260812-190700-122.jpg
 
 三个十连染色出了水提妈，抽个一宝就够了嘛<img src="https://static.stage1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 48112#       发表于 2026-8-12 19:54
+
+冠呆理论上最好二宝，看这个样子可能到时候只能抽一宝了，两个被动都得开，11绊啊
+

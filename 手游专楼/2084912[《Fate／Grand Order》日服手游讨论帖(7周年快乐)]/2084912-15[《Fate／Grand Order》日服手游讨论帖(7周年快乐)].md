@@ -3538,3 +3538,25 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 
 点了减CD被动，一技能3T能用四次，1T加20攻，2T充20能，30T加20宝威...如果触发极稀效果更是IMBA...
 
+
+*****
+
+####  khxooo  
+##### 21382#       发表于 2026-8-12 19:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70062523&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-12 19:47</a>
+
+2026漏油居然还在水伊吹吗</blockquote>
+为什么不用，看到各种混合职介，直接水伊吹碾过去就是了，难得想了<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  都谷捻柏  
+##### 21383#       发表于 2026-8-12 20:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70062510&amp;ptid=2084912" target="_blank">cckuku 发表于 2026-8-12 19:44</a>
+
+麻雀不会能顶了水伊吹吧</blockquote>
+宝具队的可以顶，所长队的顶不了。
+
