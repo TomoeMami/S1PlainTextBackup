@@ -130,3 +130,24 @@ ACTION页面最后时光机快照的时间是24年5月，而midori泄露legacy�
 
 也有可能是做完离职了给下个项目补充弹药包
 
+
+*****
+
+####  woaimiyabi  
+##### 2042#       发表于 2026-8-12 18:01
+
+ 本帖最后由 woaimiyabi 于 2026-8-12 18:03 编辑 
+
+半年以上没消息很正常， 隔壁万紫千红去年九月份公布 到今年六月份才有第二个pv，  公布后整整九个月没任何新消息，任天堂现在宣发策略就这样，现在万紫千红比最初公布视频的游戏画面优化了不少 ui也变了，估计到时候xbg也会有一些变化。
+
+*****
+
+####  richardkisser  
+##### 2043#       发表于 2026-8-12 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70061967&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-8-12 18:01</a>
+半年以上没消息很正常， 隔壁万紫千红去年九月份公布 到今年六月份才有第二个pv，  公布后整整九个月没任何 ...</blockquote>
+因为去年9月到今年6月之间没开一场综合ND啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

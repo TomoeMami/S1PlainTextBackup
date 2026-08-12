@@ -5208,3 +5208,31 @@ v4flash 没有多模态，写 scad 搞 3d 建模还是有困难，发现不了�
 论坛 ...</blockquote>
 不过不能否认类脑的ds sfw版可能是目前全网最大的鲸鱼讨论社区了，这楼里哪些鲸鱼AI图的初始形象其实就是混类脑的人用GPT炼出来的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  城北无尘  
+##### 6406#       发表于 2026-8-12 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70060471&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-8-12 14:11</a>
+
+客户端可以更新了，235版本。
+
+只不过这一次有点奇怪，前面有朋友说在正规的系统商城里面可以看到更新的内容 ...</blockquote>
+v4f发布前两天29号也是周三更新了手机客户端，感觉就是这周五了<img src="https://static.stage1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  舞以  
+##### 6407#       发表于 2026-8-12 18:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漏油都是火鸡科学家了
+
+*****
+
+####  萧雨若轩  
+##### 6408#       发表于 2026-8-12 18:05
+
+说好的8月初呢<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
