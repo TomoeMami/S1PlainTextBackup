@@ -7153,3 +7153,86 @@ api的思维链变了，不会再代入角色思考了，让它写极端小h文�
 
 出乎意料的结果，文学逻辑能力比sol最高好
 
+
+*****
+
+####  来都来了  
+##### 6591#       发表于 2026-8-13 00:48
+
+那这个呢？这个意思就是正式版了吗？
+
+<img src="https://img.stage1st.com/forum/202608/13/004806rq38osh8226q3sq8.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1786553285320_4.webp</strong> (47.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 00:48 上传
+
+*****
+
+####  nxmonitor  
+##### 6592#       发表于 2026-8-13 00:50
+
+我看见复合弓测试了，比之前灰测的差一些，但是至少是正常的结构
+
+*****
+
+####  阿刚  
+##### 6593#       发表于 2026-8-13 00:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064531&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-13 00:48</a>
+
+那这个呢？这个意思就是正式版了吗？</blockquote>
+出来了，应该就是了
+
+*****
+
+####  goranger  
+##### 6594#       发表于 2026-8-13 00:52
+
+<img src="https://img.stage1st.com/forum/202608/13/005210tkhkwzb22i2hyw1u.png" referrerpolicy="no-referrer">
+
+<strong>img_6308.png</strong> (543.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 00:52 上传
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  超极巨鲨鲨  
+##### 6595#       发表于 2026-8-13 00:55
+
+睡醒等评测了
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  阿刚  
+##### 6596#       发表于 2026-8-13 00:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064514&amp;ptid=2275806" target="_blank">L-JoeW 发表于 2026-8-13 00:40</a>
+
+老哥，这个检查的提示词或者词库可以分享下吗，我让他写r18文也经常整出这些词太破坏气氛了 ...</blockquote>
+私信给你了
+
+*****
+
+####  ダンボール戦車  
+##### 6597#       发表于 2026-8-13 00:57
+
+<img src="https://img.stage1st.com/forum/202608/13/005713boslolkv2lkob1nd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 00:57 上传
+
+用的opencode的桌面版 是这么试的吗
+
