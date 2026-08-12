@@ -125,3 +125,14 @@ BNAJT</blockquote>
 
 不过顽太无UR终于来了，虽然不熟，但是逛模型店的时候经常看到，那些豪华封绘真的让人心动啊，不知道永恒能出几台
 
+
+*****
+
+####  电脑死机  
+##### 4610#       发表于 2026-8-12 08:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70051487&amp;ptid=2071758" target="_blank">shinjiwy 发表于 2026-8-11 07:18</a>
+
+改成香港那个语言包</blockquote>
+改了，商店那边也是显示港币单位，然而还是进不去页面
+
