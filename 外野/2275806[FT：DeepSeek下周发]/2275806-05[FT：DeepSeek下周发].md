@@ -4522,3 +4522,58 @@ codex 是可以的
 
 npm install -g --ignore-scripts @earendil-works/pi-coding-agent
 
+
+*****
+
+####  来都来了  
+##### 6341#       发表于 2026-8-12 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70059224&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-12 11:21</a>
+不仅是powershell的问题，python中也有转义字符问题。然后中文window 默认gbk，控制台输出，日志，各种gb ...</blockquote>
+这个感觉只能等大模型后训练了。我现在看着AI每天被转义词和GBK UTF-8编码折磨，也很心疼，那都是我的钱啊，动不动一段代码要写三遍。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  serj005  
+##### 6342#       发表于 2026-8-12 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70059224&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-12 11:21</a>
+不仅是powershell的问题，python中也有转义字符问题。然后中文window 默认gbk，控制台输出，日志，各种gb ...</blockquote>
+pwsh换bash已经是把终端层面的默认乱码都解决完了，剩下的都是应用层自己的配置问题或者基于中文编码的历史遗留，这种换了mac或者linux也少不了多少<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">尤其gbk日志这种不是换个系统就能解决的，还是要具体到各个工具软件的配置里找答案。
+
+*****
+
+####  cscbzcbz  
+##### 6343#       发表于 2026-8-12 11:37
+
+坛友有没有靠谱的给pi装修的教程，梁圣一直不发新模型和harness，准备鼓捣鼓捣
+
+*****
+
+####  →熙←  
+##### 6344#       发表于 2026-8-12 11:38
+
+windows环境把utf8打开基本能解决蛮多, 默认gbk的软件,用Locale.Emulator解决剩下的
+
+
+*****
+
+####  来都来了  
+##### 6345#       发表于 2026-8-12 11:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70059410&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-12 11:38</a>
+windows环境把utf8打开基本能解决蛮多, 默认gbk的软件,用Locale.Emulator解决剩下的 ...</blockquote>
+没什么经验可讲，你想要什么功能，让它自己给自己写就行了。我连一行代码都不会写，让它自己写了危险命令审核、工具列表与开关、MCP接入、界面汉化都写出来了。相信我你能行的。<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小川彩  
+##### 6346#       发表于 2026-8-12 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70058941&amp;ptid=2275806" target="_blank">cyberalogo 发表于 2026-8-12 10:57</a>
+8月11日，中国人工智能企业Manus在官网发布“致用户的一封信”，正式宣布即将恢复以独立公司形式运营，并将 ...</blockquote>
+1 有自己的独特技术和壁垒
+2 但是其实哪怕现在天天玩agent的人里 99.9%也用不太到他的功能
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
