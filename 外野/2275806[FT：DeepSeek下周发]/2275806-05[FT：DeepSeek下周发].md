@@ -5078,3 +5078,23 @@ opencode 快加小霸王啊,白天都蹬不动了啊</blockquote>
 但如果要用公司模板进行套路化生产，目前还没有很好的方案</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我司的模版基本就是白板，我用pptmaster一生成好，复制粘贴进去，顺便看一遍检查措辞就行了。就需要指定好底色一定要是白色
 
+
+*****
+
+####  YOYORA  
+##### 6393#       发表于 2026-8-12 16:17
+
+<blockquote>那一年的河川 发表于 2026-8-12 15:51
+加个类脑ds区？
+
+论坛助手,iPhone</blockquote>
+是那个笃定deepseek把fable接给opencode用的类脑吗？另外discord也很难算国内
+
+
+*****
+
+####  YOYORA  
+##### 6394#       发表于 2026-8-12 16:24
+
+office-cli也可以试试，我觉得重要的是接更好的模型，最好是有识图能力的原生多模态模型，Kimi和closeai都是比较不错的
+
