@@ -7394,3 +7394,20 @@ A卡+16G就别想了，乖乖接API吧
 有没有本地部署Ai的？rx9070的16g 部署ai可以用来写小说么？</blockquote>
 写作能力稍微靠点谱的模型都是本地跑不动的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 6615#       发表于 2026-8-13 01:34
+
+突然又认不出repeat Nameeee了，真上错了？<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jojog  
+##### 6616#       发表于 2026-8-13 01:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">DS明天再看  有人测了grok么
+
+怎么看x上好多人说不如sonnet还有甲的
+

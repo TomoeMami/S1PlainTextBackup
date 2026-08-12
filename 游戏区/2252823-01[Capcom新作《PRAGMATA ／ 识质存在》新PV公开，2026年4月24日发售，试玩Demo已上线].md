@@ -15,3 +15,20 @@
 还有，弹药给的也太抠了，掉落真的靠不住。
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Chao  
+##### 1015#       发表于 2026-8-13 01:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064194&amp;ptid=2252823" target="_blank">naclken. 发表于 2026-8-12 23:43</a>
+
+这游戏真不怎么好玩，要么粪坑打架，要么厕所群殴，要么粪坑+厕所。
+
+就不能给个好点的场地吗？
+
+破解玩法最 ...</blockquote>
+只要没被打中，破解就不会断，你可以破解到一半专心闪避到安全地方继续破解，再进攻中闪一下破一下也是一个爽点
+
+而且破解也有伤害，最好的节奏使破解和设计交叉进行
+
