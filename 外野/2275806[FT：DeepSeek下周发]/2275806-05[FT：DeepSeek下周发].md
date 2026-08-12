@@ -5532,3 +5532,152 @@ opencode zen free今天开始严重限流，薅不动了
 
 2026-8-12 23:05 上传
 
+
+*****
+
+####  Izunu_3  
+##### 6433#       发表于 2026-8-12 23:08
+
+试了试思维链已经变成雷霆大思考，好像是真的来了
+
+*****
+
+####  crow_wine  
+##### 6434#       发表于 2026-8-12 23:08
+
+没roll到，思考链依旧是let me
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  舞以  
+##### 6435#       发表于 2026-8-12 23:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大晚上上新模型？
+
+*****
+
+####  蛋黄酱Release  
+##### 6436#       发表于 2026-8-12 23:09
+
+OpenAI风格问题。我是 DeepSeek，知识库截止日期通常为2025年5月。不过我不确定，可能 DeepSeek-V3知识截止到2024年7月，R1也类似。但系统说 Current model: deepseek-v4-pro, current date2026-08-12。这可能虚构未来模型，知识截止日期未知。作为 AI应回答：我的知识库截止日期是2025年5月（或根据模型版本）。用户中文问，可以简洁回答。需要不加多余。
+
+这样就是正式版了？还是说只是看到了本地时间？
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  绝地潜兵  
+##### 6437#       发表于 2026-8-12 23:10
+
+是灰度，部分人才有
+
+
+*****
+
+####  tk553521  
+##### 6438#       发表于 2026-8-12 23:10
+
+啥玩意儿，大的要来了？
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  crow_wine  
+##### 6439#       发表于 2026-8-12 23:11
+
+我为大鲸鱼冲过钱，我要灰度<img src="https://static.stage1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  tonyunreal  
+##### 6440#       发表于 2026-8-12 23:11
+
+Qwen 3.8 max 2.4T 10分钟前刚开放权重
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  →熙←  
+##### 6441#       发表于 2026-8-12 23:11
+
+试了下,没有的事情,又是灰度吗
+
+*****
+
+####  舞以  
+##### 6442#       发表于 2026-8-12 23:11
+
+<img src="https://img.stage1st.com/forum/202608/12/231134ins17sennwwne1mq.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (263.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 23:11 上传
+
+卧槽，ds官x取消了之前的置顶推，大的真的要来了
+
+*****
+
+####  RGm  
+##### 6443#       发表于 2026-8-12 23:12
+
+就是这周了。8/15之前都算上旬。
+
+
+*****
+
+####  王兰花秀丽  
+##### 6444#       发表于 2026-8-12 23:14
+
+报告总部，请求总部，今晚要不要睡太死    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  羊寢  
+##### 6445#       发表于 2026-8-12 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70061944&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-8-12 17:54</a>
+不过不能否认类脑的ds sfw版可能是目前全网最大的鲸鱼讨论社区了，这楼里哪些鲸鱼AI图的初始形象其实就是 ...</blockquote>
+sfw那个串平时nsfw内容太多了，我还是更喜欢待在haruki那个频道里，虽然现在因为haruki很少出现那边人也变少了，但至少讨论氛围会比sfw要好，sfw那边反串烂炒也挺多的<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 6446#       发表于 2026-8-12 23:14
+
+不要睡太死，大的💊来了，😡
+
+*****
+
+####  crow_wine  
+##### 6447#       发表于 2026-8-12 23:14
+
+我api和opencode的都是雷霆大思考，但是还是let me
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  →熙←  
+##### 6448#       发表于 2026-8-12 23:15
+
+我还是let me, 没刷到I'm
+
+*****
+
+####  杀人鲸  
+##### 6449#       发表于 2026-8-12 23:16
+
+看来这个星期是有希望吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
