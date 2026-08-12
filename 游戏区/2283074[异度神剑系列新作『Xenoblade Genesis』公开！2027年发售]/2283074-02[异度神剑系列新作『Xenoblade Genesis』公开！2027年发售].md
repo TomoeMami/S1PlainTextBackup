@@ -151,3 +151,14 @@ ACTION页面最后时光机快照的时间是24年5月，而midori泄露legacy�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  没取名啊  
+##### 2044#       发表于 2026-8-12 18:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70061967&amp;ptid=2283074" target="_blank">woaimiyabi 发表于 2026-8-12 18:01</a>
+半年以上没消息很正常， 隔壁万紫千红去年九月份公布 到今年六月份才有第二个pv，  公布后整整九个月没任何 ...</blockquote>
+火纹新作，两个pv之间有挤牙膏图文小介绍和一些小视频
+xbg目前除了pv1和几篇介绍图文以外还啥也没有
+
