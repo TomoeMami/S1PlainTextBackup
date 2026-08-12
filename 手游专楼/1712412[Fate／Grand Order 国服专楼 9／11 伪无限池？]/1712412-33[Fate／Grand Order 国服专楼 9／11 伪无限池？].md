@@ -2545,3 +2545,23 @@ MuMu-20260812-190700-122.jpg
 
 冠呆理论上最好二宝，看这个样子可能到时候只能抽一宝了，两个被动都得开，11绊啊
 
+
+*****
+
+####  Kon-El  
+##### 48113#       发表于 2026-8-12 20:28
+
+水提妈吃丼<img src="https://static.stage1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  sandro  
+##### 48114#       发表于 2026-8-12 20:32
+
+70抽1提4鹤，还挺欧的感觉
+
+手头还有3井，可以考虑抽拔刀斋了
+

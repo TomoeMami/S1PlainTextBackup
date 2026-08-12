@@ -3568,3 +3568,52 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 
 黑霸王花这种纯天降的角色还真就能脱离白霸王花单独作为一个角色出5星啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dhddhh  
+##### 21385#       发表于 2026-8-12 20:26
+
+<img src="https://img.stage1st.com/forum/202608/12/202533ea2wp3828p2w24bb.png" referrerpolicy="no-referrer">
+
+<strong>test.png</strong> (156.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 20:25 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">好久没豹跳了，两个池子都是第二轮就出货，赶紧收手
+
+*****
+
+####  v22325  
+##### 21386#       发表于 2026-8-12 20:27
+
+<img src="https://img.stage1st.com/forum/202608/12/202717vrht1hbas7kborzp.jpg" referrerpolicy="no-referrer">
+
+<strong>1000033995.jpg</strong> (319.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 20:27 上传
+
+两个龙一个红阎魔，没石了幸好出了
+
+
+*****
+
+####  exiaexa  
+##### 21387#       发表于 2026-8-12 20:34
+
+忙着炼lora都没发现更新了
+
+一看解包，好的下一个池子
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yangun22  
+##### 21388#       发表于 2026-8-12 20:35
+
+麻雀一般队友两下1技能就饱了，必须开麻雀宝具才能吃到3和4此的np和宝威，除非队友有巨大属性
+
