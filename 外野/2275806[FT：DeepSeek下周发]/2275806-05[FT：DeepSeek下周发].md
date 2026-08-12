@@ -7634,3 +7634,30 @@ ds的微信群怎么加来着
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  wandeeees  
+##### 6640#       发表于 2026-8-13 07:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064843&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-13 06:02</a>
+早上起来看了一圈，我觉得真的正式版还没上，或者只有部分更新。
+
+理由：ds官网上更新日志还没更新，昨天晚 ...</blockquote>
+感觉挺草台的，更新了但是又完全没更新，跑分图是微信群发的，文档里的更新日志没更新<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">说好的不加班，又大半夜更新
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  lolozi  
+##### 6641#       发表于 2026-8-13 07:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064818&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-13 04:52</a>
+
+难道灰测的是v4.1？或者是新架构的v5？而且i'm这个思考特点qwen3.8就有，目前来看现在的这个还是会过度思考 ...</blockquote>
+我觉得可能了，总之这版就应该不是了。
+
+唉继续睡了年底再醒醒看
+
