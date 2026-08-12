@@ -8083,3 +8083,24 @@ DD73192A-A571-45BB-ACEC-B5EECCC05636.webp
 
 — from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  razielzyc  
+##### 942#       发表于 2026-8-12 09:36
+
+问一下是不是所有得背包都要练才行。练到每个背包能装备3个技能就算满级了？
+
+
+*****
+
+####  stoiorz  
+##### 943#       发表于 2026-8-12 09:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70058212&amp;ptid=2253488" target="_blank">razielzyc 发表于 2026-8-12 09:36</a>
+
+问一下是不是所有得背包都要练才行。练到每个背包能装备3个技能就算满级了？ ...</blockquote>
+是的，练到可以安装一个其他背包的技能就完成了。
+
+前面开荒拿力量挺好的，当前的成型build里以后不怎么会用它刷的会把速度和技巧用到吐。
+
