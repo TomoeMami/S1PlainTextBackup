@@ -92,3 +92,11 @@ Production单单是指专注于某部分的组别也是有可能的因为新开�
 
 本身高桥组一直招聘也没什么问题，不是说xbg做完了就不招聘了。比较明显的证据还是女剑士的页面网址变动和下线，和高桥组招聘能接上。
 
+
+*****
+
+####  misya  
+##### 2038#       发表于 2026-8-12 11:27
+
+ACTION页面最后时光机快照的时间是24年5月，而midori泄露legacy的时间也是24年5月，就很有意思了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

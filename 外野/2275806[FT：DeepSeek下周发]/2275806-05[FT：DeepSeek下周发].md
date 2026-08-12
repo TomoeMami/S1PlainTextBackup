@@ -4500,3 +4500,25 @@ codex 是可以的
 
 不知道deepseek harness的AI之间能不能实现原语化传递，而不依赖自然语言。
 
+
+*****
+
+####  2017.05.04  
+##### 6339#       发表于 2026-8-12 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70058737&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-12 10:39</a>
+
+彻底疯狂</blockquote>
+一定是假的<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">不然怎么还不给我用
+
+*****
+
+####  来都来了  
+##### 6340#       发表于 2026-8-12 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70058770&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-12 10:43</a>
+昨天捣鼓一晚上pi没装上，梁子你特么给我快点</blockquote>
+安装pi不就一行字吗？
+
+npm install -g --ignore-scripts @earendil-works/pi-coding-agent
+
