@@ -5119,3 +5119,21 @@ kimi网页版的ppt生成是我觉得审美最好的
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  龙骑士尹志平  
+##### 6397#       发表于 2026-8-12 16:38
+
+类脑ds是大中专院校在校生xp爆发贴，和这个贴专业性收敛性完全没法比
+
+
+*****
+
+####  矮矮人  
+##### 6398#       发表于 2026-8-12 16:42
+
+discord太难用了，为什么会有这么难用的东西
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
