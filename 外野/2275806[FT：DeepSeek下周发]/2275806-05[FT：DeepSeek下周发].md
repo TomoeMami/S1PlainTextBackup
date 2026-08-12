@@ -7344,3 +7344,15 @@ api的思维链变了，不会再代入角色思考了，让它写极端小h文�
 —— 来自 vivo V2405A, Andro ...</blockquote>
 求教用的哪个软件接的
 
+
+*****
+
+####  蛋黄酱Release  
+##### 6610#       发表于 2026-8-13 01:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064596&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-8-13 01:16</a>
+求教用的哪个软件接的</blockquote>
+就chatbox
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
