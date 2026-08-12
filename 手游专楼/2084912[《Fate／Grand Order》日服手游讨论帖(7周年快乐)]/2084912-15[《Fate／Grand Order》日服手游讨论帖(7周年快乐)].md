@@ -3406,3 +3406,62 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 
 4张五星有点狠了，我要上盘子换了，抽不起<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 21373#       发表于 2026-8-12 19:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/12/193240thsb9hboy88k8t0y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (239.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 19:32 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/193246ojc78dvseozjoe4e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (181.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 19:32 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/193251c0yr0by3fkkypb0k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (231.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 19:32 上传
+
+*****
+
+####  壳壳牛  
+##### 21374#       发表于 2026-8-12 19:35
+
+气笑了<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/12/193554ys6qvhzzpi00l5h5.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1786534553468_1.webp</strong> (286.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 19:35 上传
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  qixinno1  
+##### 21375#       发表于 2026-8-12 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70062468&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2026-8-12 19:35</a>
+
+气笑了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我抽山中小登时歪了一个
+
