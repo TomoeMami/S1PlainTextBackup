@@ -5375,3 +5375,19 @@ Ddhjx-code/novel-studio
 
 yuanbw2025/storyforge
 
+
+*****
+
+####  zack1999  
+##### 6420#       发表于 2026-8-12 21:29
+
+<img src="https://img.stage1st.com/forum/202608/12/212745wqqiwkuzuuryeh8w.png" referrerpolicy="no-referrer">
+
+<strong>v2-47e55847e330f7c325520e5c8daf4e97_r.png</strong> (98.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 21:27 上传
+
+猜猜deepseek harness 叫啥名吧，现在这个公众号名字是不是还会换啊
+

@@ -2565,3 +2565,11 @@ MuMu-20260812-190700-122.jpg
 
 手头还有3井，可以考虑抽拔刀斋了
 
+
+*****
+
+####  GALLADE  
+##### 48115#       发表于 2026-8-12 21:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">呼符试水直接出了，等等我鹤和卡池礼装都没有？
+
