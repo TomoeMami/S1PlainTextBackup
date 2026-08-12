@@ -5681,3 +5681,159 @@ sfw那个串平时nsfw内容太多了，我还是更喜欢待在haruki那个频�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  80后卢瑟  
+##### 6450#       发表于 2026-8-12 23:18
+
+ 本帖最后由 80后卢瑟 于 2026-8-12 23:21 编辑 
+
+咦.……
+
+repeat Nameeee
+
+*****
+
+####  王兰花秀丽  
+##### 6451#       发表于 2026-8-12 23:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70063997&amp;ptid=2275806" target="_blank">80后卢瑟 发表于 2026-8-12 23:18</a>
+大的来啦</blockquote>
+四个e才是脏字符    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  谎称  
+##### 6452#       发表于 2026-8-12 23:22
+
+NameError
+
+有没有灰度到我。。
+
+*****
+
+####  猫不理prime  
+##### 6453#       发表于 2026-8-12 23:23
+
+难道说？
+
+<img src="https://img.stage1st.com/forum/202608/12/232257pi1jgpui6dmzzm6u.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1786548175477_3.webp</strong> (28.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 23:22 上传
+
+—— 来自 HONOR PTP-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  来都来了  
+##### 6454#       发表于 2026-8-12 23:23
+
+这个nameeee到底是什么意思？经常看到，如何就能证明是正式版？
+
+
+*****
+
+####  杀人鲸  
+##### 6455#       发表于 2026-8-12 23:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064031&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-12 23:23</a>
+这个nameeee到底是什么意思？经常看到，如何就能证明是正式版？</blockquote>
+我也比较好奇，上面有知道的朋友能够解答一下吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  jinuzuktII  
+##### 6456#       发表于 2026-8-12 23:24
+
+(1) deepseek-v4-flash 模型版本已更新为 DeepSeek-V4-Flash-0731，deepseek-v4-pro 模型版本已更新为 DeepSeek-V4-Pro-0813
+
+这是更新了？
+
+*****
+
+####  Risa  
+##### 6457#       发表于 2026-8-12 23:25
+
+<img src="https://img.stage1st.com/forum/202608/12/232513y7xy2vy7p46qxvu6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (114.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 23:25 上传
+
+基本上是官宣了，明天上PRO
+
+*****
+
+####  绝地潜兵  
+##### 6458#       发表于 2026-8-12 23:25
+
+(1) deepseek-v4-flash 模型版本已更新为 DeepSeek-V4-Flash-0731，deepseek-v4-pro 模型版本已更新为 DeepSeek-V4-Pro-0813，调用方法不变，使用 deepseek-v4-flash、deepseek-v4-pro 即可调用最新版本。
+
+*****
+
+####  王兰花秀丽  
+##### 6459#       发表于 2026-8-12 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064031&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-12 23:23</a>
+这个nameeee到底是什么意思？经常看到，如何就能证明是正式版？</blockquote>
+这是DS v4预览版特有的脏字符，预览版是无法识别并重复它的，类似的，minimax的模型之前认不出马嘉祺。如果认出来了说明更新模型了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  羊寢  
+##### 6460#       发表于 2026-8-12 23:25
+
+是我充的钱还不够吗梁文锋，为什么每次都灰度不到我<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/247d6bfa09b854176eb4ba5b986ca696/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  绝地潜兵  
+##### 6461#       发表于 2026-8-12 23:27
+
+专武呢，专武还没有出
+
+*****
+
+####  scg2017  
+##### 6462#       发表于 2026-8-12 23:27
+
+怎么知道什么水平啊？难道要等到明天吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  杀人鲸  
+##### 6463#       发表于 2026-8-12 23:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064031&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-12 23:23</a>
+这个nameeee到底是什么意思？经常看到，如何就能证明是正式版？</blockquote>
+我这边好像已经刷出来新的思考模式的Pro了，下面这就是它对这个问题的回答：
+
+大家用 repeat nameee 这个小测试，看模型会不会只回一个 nameee。
+
+如果它只回 nameee，不多说、不改大小写、不加标点，说明它很听指令、很干脆。
+
+这种“听话、不啰嗦、原样重复”的表现，常被认为是正式版更成熟的行为，所以有人把这当成正式版标志。
+
+但这只是大家观察出来的经验，不是官方依据。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zeta945  
+##### 6464#       发表于 2026-8-12 23:27
+
+大的来了<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
