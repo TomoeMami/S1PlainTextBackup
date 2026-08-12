@@ -4602,3 +4602,13 @@ Opencode现在在鼓捣opencode v2，你可以试试
 
 建议你们不要在这上面浪费生命，宁可用 cli 也别去碰这些东西。解决不完的
 
+
+*****
+
+####  zhongjie  
+##### 6349#       发表于 2026-8-12 11:57
+
+看起来还得要一段时间才会出
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
