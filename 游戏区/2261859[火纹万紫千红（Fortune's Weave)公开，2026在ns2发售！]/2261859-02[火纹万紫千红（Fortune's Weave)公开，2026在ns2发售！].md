@@ -9089,3 +9089,28 @@ Her magic ...</blockquote>
 
 这已经是远程了吧，不装了是吧
 
+
+*****
+
+####  bad_alloc  
+##### 2340#       发表于 2026-8-12 10:56
+
+魔法拳套说是
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  otakun  
+##### 2341#       发表于 2026-8-12 11:00
+
+这是这作的保姆骑士吗？这手甲真棒
+
+
+*****
+
+####  北条早苗  
+##### 2342#       发表于 2026-8-12 11:03
+
+这作保姆是老奶奶<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

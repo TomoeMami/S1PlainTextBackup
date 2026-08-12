@@ -4298,3 +4298,63 @@ Manus给出的数据备份窗口截至新加坡时间8月23日7时59分。8月23
 
 这玩意儿还在炒作，天天吹自己牛叉得被美国AI大厂抢着收购，究竟有没有狠活。
 
+
+*****
+
+####  crow_wine  
+##### 6321#       发表于 2026-8-12 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70058872&amp;ptid=2275806" target="_blank">真田源次郎信繁 发表于 2026-8-12 10:52</a>
+
+有wsl……
+
+wsl下直接能用shell跑exe，比linux能用的资源都多</blockquote>
+没啥用，现在没啥东西是单exe的，一堆依赖，跑起来各种各样的bug，环境变量，字符串处理，各种各样全是bug<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真田源次郎信繁  
+##### 6322#       发表于 2026-8-12 11:02
+
+ 本帖最后由 真田源次郎信繁 于 2026-8-12 11:03 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70058956&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-12 10:58</a>
+
+没啥用，现在没啥东西是单exe的，一堆依赖，跑起来各种各样的bug，环境变量，字符串处理，各种各样全是bu ...</blockquote>
+windows又没glibc那些，有什么依赖……
+
+能让agent调用的，无非是浏览器，matlab，ida，人都跑不起来的exe为啥要agent调用
+
+wsl下agent用cdb调试Windows程序，跑的飞起
+
+*****
+
+####  phorcys02  
+##### 6323#       发表于 2026-8-12 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70058994&amp;ptid=2275806" target="_blank">真田源次郎信繁 发表于 2026-8-12 11:02</a>
+
+windows又没glibc那些，有什么依赖……
+
+能让agent调用的，无非是浏览器，matlab，ida，人都跑不起来的exe ...</blockquote>
+为了\ ,大概每次toolcall都要比linux下多花一些token
+
+转义写错了再多花点,
+
+power shell的怪语法再吃掉一点...
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+为啥要在傻逼win下用 agent呢....
+
+*****
+
+####  crow_wine  
+##### 6324#       发表于 2026-8-12 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70058994&amp;ptid=2275806" target="_blank">真田源次郎信繁 发表于 2026-8-12 11:02</a>
+
+windows又没glibc那些，有什么依赖……
+
+能让agent调用的，无非是浏览器，matlab，ida，人都跑不起来的exe ...</blockquote>
+我是想要一个图形界面的agent，在wsl里起一个图形化的东西依赖不少吧，webview, opengl/dx等等一大串，然后exe里按照window方式处理的地址在wsl里能用吗，path注册。有现成的例子吗，在wsl里跑一个图形界面的agent
+
