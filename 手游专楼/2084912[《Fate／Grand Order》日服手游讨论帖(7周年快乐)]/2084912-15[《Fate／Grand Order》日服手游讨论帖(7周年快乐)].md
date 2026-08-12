@@ -3108,3 +3108,29 @@ MuMu-20260809-195214-862.jpg
 漏油都在欧 萌新也想一起欧</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">随便十连二宝的狗萌新装什么
 
+
+*****
+
+####  Jamaisvu  
+##### 21352#       发表于 2026-8-12 18:42
+
+<img src="https://img.stage1st.com/forum/202608/12/184125zlyavy0oarmvoovy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260812_184110.jpg</strong> (253.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-12 18:41 上传
+
+圣马修大人有灵衣了，真好呀。
+
+跟着宿敌果然能吃香喝辣（不是）
+
+*****
+
+####  Jamaisvu  
+##### 21353#       发表于 2026-8-12 18:45
+
+这个活动是巨型怪兽战斗做主题的，该不会轮到那些巨大化特攻从者上班了吧？
+
