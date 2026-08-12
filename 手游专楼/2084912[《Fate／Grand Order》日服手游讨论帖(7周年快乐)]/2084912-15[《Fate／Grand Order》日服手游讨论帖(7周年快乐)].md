@@ -3665,3 +3665,19 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 
 红阎魔这不管buff每回合一堆暴击星就很牛逼了吧，不用打星的
 
+
+*****
+
+####  exiaexa  
+##### 21395#       发表于 2026-8-12 21:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70062901&amp;ptid=2084912" target="_blank">rooarr 发表于 2026-8-12 20:54</a>
+
+有没有哪个实测强的，怎么感觉都是马马虎虎</blockquote>
+我愿称为杂技大师
+
+一套猴拳打完，多少是有点用的
+
+比没卵用的还是好多了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
