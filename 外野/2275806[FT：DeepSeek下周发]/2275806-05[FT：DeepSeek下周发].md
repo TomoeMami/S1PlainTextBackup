@@ -6166,3 +6166,187 @@ API 还是不能返回 Nameeee，可能还没有全都部署上去
 
 opencode go 的v4f突然超快,算力释放了?
 
+
+*****
+
+####  Hattle  
+##### 6500#       发表于 2026-8-12 23:49
+
+Responses API 已经可以调用 Pro 了，看来是部署完成了
+
+*****
+
+####  蛋黄酱Release  
+##### 6501#       发表于 2026-8-12 23:49
+
+竟然只有小输fable5 我还以为能有个5%-10%的领先呢
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  nxmonitor  
+##### 6502#       发表于 2026-8-12 23:49
+
+好像没有“Let me”了，这是APP上灰测到的结果，不过输出会卡住
+
+*****
+
+####  小野賢章  
+##### 6503#       发表于 2026-8-12 23:49
+
+deepseek-ai/dsh的仓库还是不能访问
+
+*****
+
+####  绕指流光  
+##### 6504#         楼主| 发表于 2026-8-12 23:49
+
+真的更了？已经没有动力从床上爬起来了<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+还是明早看各种推送吧
+等会儿改下贴名    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  cscbzcbz  
+##### 6505#       发表于 2026-8-12 23:50
+
+这不还是一堆let me吗，还没更新吧<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  samfs  
+##### 6506#       发表于 2026-8-12 23:51
+
+App 上一个 Let me 都没有，看起来 App 先更新上去的
+
+*****
+
+####  startraveller  
+##### 6507#       发表于 2026-8-12 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064227&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-12 23:49</a>
+竟然只有小输fable5 我还以为能有个5%-10%的领先呢
+
+—— 来自 vivo V2405A, Android 16, 鹅球 v4.0 ...</blockquote>
+1.6T的模型，真超fable那就是物理学不存在了。而且这些bench最后每一分都很难。
+
+*****
+
+####  小野賢章  
+##### 6508#       发表于 2026-8-12 23:51
+
+CyberGym这么强，而且基本没有网安甲，这下要成网安神器了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  crow_wine  
+##### 6509#       发表于 2026-8-12 23:53
+
+没有，api, 网页，app的思考链全是 let me，是没灰度到我？
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  nxmonitor  
+##### 6510#       发表于 2026-8-12 23:53
+
+网页版也更新了
+
+*****
+
+####  狭义文具爱好者  
+##### 6511#       发表于 2026-8-12 23:54
+
+目前来看不及过高预期，等专武和进一步评测吧。
+
+没能跨尺寸肘击k3，又被gork4.6狙击了一下，暂时叠哀兵buff。
+
+灰度肥波这个说法算掉裤裆了。
+
+
+*****
+
+####  来都来了  
+##### 6512#       发表于 2026-8-12 23:54
+
+网页版和APP也更新了吗？梁圣这么大方让人白嫖？
+
+*****
+
+####  天气雨  
+##### 6513#       发表于 2026-8-12 23:54
+
+国产模型在算力严重不足的情况下，
+与美国顶级模型也只有二到三个月左右的性能差距，已经很不容易了。
+
+—— 来自 Xiaomi M2102J2SC, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  御坂MKII  
+##### 6514#       发表于 2026-8-12 23:55
+
+ 本帖最后由 御坂MKII 于 2026-8-12 23:56 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064227&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-12 23:49</a>
+
+竟然只有小输fable5 我还以为能有个5%-10%的领先呢
+
+—— 来自 vivo V2405A, Android 16, 鹅球 v4.0 ...</blockquote>
+奥特曼重新发力后训练也花了半年追，这边人少卡少，实战有 benchmark 的实力的话现在已经是超级后训练仙人了
+
+*****
+
+####  startraveller  
+##### 6515#       发表于 2026-8-12 23:55
+
+Grok 4.6也发了，好像跑分差不多
+
+*****
+
+####  杀人鲸  
+##### 6516#       发表于 2026-8-12 23:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064171&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-12 23:39</a>
+网页版跟了吗
+
+论坛助手,iPhone</blockquote>
+我这边至少是看到了，思考模式也发生了变化。但不确定是不是直接全部都开始推送了，可能有些人没有。随便去专家模式问个问题，看看还有没有那种，好的，我现在是叉叉了，这种思考方式吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  杀人鲸  
+##### 6517#       发表于 2026-8-12 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064262&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-12 23:54</a>
+网页版和APP也更新了吗？梁圣这么大方让人白嫖？</blockquote>
+更新了更新了。就是不能确定是不是全部的推送，可能是一部分人，一部分慢慢来的那种。至少我这边思考方式已经变了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  冤枉呐  
+##### 6518#       发表于 2026-8-12 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70062980&amp;ptid=2275806" target="_blank">库德里尔 发表于 2026-8-12 21:02</a>
+
+1. 角色卡是pi自己的，不是作品的。
+
+2. 基于hound插件，让它自己研究了pixiv novel的阅读、查询、series ...</blockquote>
+感谢
+
+*****
+
+####  杀人鲸  
+##### 6519#       发表于 2026-8-12 23:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064055&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-8-12 23:25</a>
+是我充的钱还不够吗梁文锋，为什么每次都灰度不到我</blockquote>
+你这好像是已经成功更新的那种回答吧？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

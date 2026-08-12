@@ -9470,3 +9470,11 @@ AG作为一个大UP连这个宣发惯例都不知道就开喷，把节奏带的�
 
 也有可能是蕾达搞错了，真凶另有其人
 
+
+*****
+
+####  septer  
+##### 2378#       发表于 2026-8-12 23:47
+
+可以等各种高血压贴脸空枪的梗图了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
