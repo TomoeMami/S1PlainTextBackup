@@ -5500,3 +5500,35 @@ opencode zen free今天开始严重限流，薅不动了
 
 这617b的模型感觉有点风味v3的感觉<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千千千千鸟  
+##### 6431#       发表于 2026-8-12 22:56
+
+啥情况，discord某脑社区突然弹提示说大的要来了
+
+
+*****
+
+####  王兰花秀丽  
+##### 6432#       发表于 2026-8-12 23:01
+
+ 本帖最后由 王兰花秀丽 于 2026-8-12 23:05 编辑 
+
+<img src="https://img.stage1st.com/forum/202608/12/230009x0iref1ci11akzir.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1000052311.webp</strong> (26.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 23:00 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/230536irlvnafxill7i4fx.png" referrerpolicy="no-referrer">
+
+<strong>1000052312.png</strong> (69.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 23:05 上传
+

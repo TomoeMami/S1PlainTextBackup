@@ -9428,3 +9428,29 @@ AG作为一个大UP连这个宣发惯例都不知道就开喷，把节奏带的�
 
 别一想到女的承受过重打击可能要发飙发疯黑化就喊雷<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴尔干炮  
+##### 2373#       发表于 2026-8-12 23:00
+
+ 本帖最后由 巴尔干炮 于 2026-8-12 23:04 编辑 
+
+从石碑上的简介看，蕾达手上有一份恩师留给她的名单，她一直对着名单上的人在杀，听到白发鬼还活着兴奋的脸都红了，那表情不知道还以为是恋爱中的少女呢，精神状态已经快坏掉了，难怪旁边的黑叔叔一直在担心。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jabeck  
+##### 2374#       发表于 2026-8-12 23:01
+
+真黑化反倒不是雷，我说雷的意思是日本人写复仇剧情，尤其据说仇人还能入队。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ryj  
+##### 2375#       发表于 2026-8-12 23:01
+
+嗯？都确定是雕像吗？我还以为是被反派石化了放广场上当战利品的
+
+毕竟第一次出现的pv里面 背后就是插在矛上示众的尸体
+
