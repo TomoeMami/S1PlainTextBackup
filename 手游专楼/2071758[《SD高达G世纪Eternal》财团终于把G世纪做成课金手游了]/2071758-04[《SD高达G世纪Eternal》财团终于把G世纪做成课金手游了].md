@@ -136,3 +136,16 @@ BNAJT</blockquote>
 改成香港那个语言包</blockquote>
 改了，商店那边也是显示港币单位，然而还是进不去页面
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4611#       发表于 2026-8-12 12:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70057913&amp;ptid=2071758" target="_blank">电脑死机 发表于 2026-8-12 08:47</a>
+
+改了，商店那边也是显示港币单位，然而还是进不去页面</blockquote>
+谷歌商店更新了吗，版本号太低也是进不去的
+
+现在最新的是52.2.25，因为这样那样的原因，即便安装了三件套也没法正常更新，点更新永远显示已是最新版本，需要自己手动下载安装包
+
