@@ -5837,3 +5837,243 @@ NameError
 
 大的来了<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  唠叨  
+##### 6465#       发表于 2026-8-12 23:28
+
+专武呢 很急 我是急急国王
+
+*****
+
+####  谎称  
+##### 6466#       发表于 2026-8-12 23:29
+
+明天更新？
+
+*****
+
+####  CCauchy  
+##### 6467#       发表于 2026-8-12 23:29
+
+我的老天爷，我手里电脑涨了100%了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  当光停止  
+##### 6468#       发表于 2026-8-12 23:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">https://api-docs.deepseek.com/zh-cn/quick_start/pricing
+
+模型        deepseek-v4-flash        deepseek-v4-pro
+
+BASE URL (OpenAI 格式)        [https://api.deepseek.com](https://api.deepseek.com)
+
+BASE URL (Anthropic 格式)        [https://api.deepseek.com/anthropic](https://api.deepseek.com/anthropic)
+
+模型版本        DeepSeek-V4-Flash-0731        DeepSeek-V4-Pro-0813
+
+大的来了，我先玩会。
+
+*****
+
+####  阿刚  
+##### 6469#       发表于 2026-8-12 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064070&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-8-12 23:27</a>
+
+我这边好像已经刷出来新的思考模式的Pro了，下面这就是它对这个问题的回答：
+
+大家用 repeat nameee 这个 ...</blockquote>
+要nameeee才是脏字符，你输入之后他识别不了nameeee出来的都是别的东西
+
+*****
+
+####  唠叨  
+##### 6470#       发表于 2026-8-12 23:30
+
+<img src="https://p.sda1.dev/34/9361de6fcf08e08734219044bea3e879/image.jpg" referrerpolicy="no-referrer">按字面意思理解，现在已经可以用了。
+
+*****
+
+####  羊寢  
+##### 6471#       发表于 2026-8-12 23:30
+
+好像看类脑的截图说是价格也会涨？
+
+*****
+
+####  crow_wine  
+##### 6472#       发表于 2026-8-12 23:30
+
+我pro的api现在没法正常回复这个repeat nameee 
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  安静困难  
+##### 6473#       发表于 2026-8-12 23:31
+
+大的来啦
+
+*****
+
+####  舞以  
+##### 6474#       发表于 2026-8-12 23:31
+
+回我一个Nee是啥情况
+
+*****
+
+####  zack1999  
+##### 6475#       发表于 2026-8-12 23:32
+
+PS C:\Users\m&gt; irm [https://cdn.deepseek.com/api-docs/codex-deepseek-setup-en.ps1](https://cdn.deepseek.com/api-docs/codex-deepseek-setup-en.ps1) | iex
+
+Codex DeepSeek Setup  v1.1.0
+
+Codex directory: C:\Users\m\.codex
+
+Choose an action:
+
+  1. Configure Codex to use the deepseek-v4-flash model
+
+  2. Configure Codex to use the deepseek-v4-pro model
+
+  3. Restore the default Codex configuration (remove deepseek settings)
+
+API更新了，之前不能选择codex第2个选项的，之前是什么什么later
+
+*****
+
+####  nxmonitor  
+##### 6476#       发表于 2026-8-12 23:33
+
+看思维链别看结果，之前连Nameeee都无法显示，只要能显示就是了
+
+*****
+
+####  ST2002  
+##### 6477#       发表于 2026-8-12 23:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">不是，就这么一声不吭的发了？性能比对呢？Harness 呢？？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  刘不害  
+##### 6478#       发表于 2026-8-12 23:34
+
+opencode不给免费蹬了？几天没用，今天一上还没怎么蹬就给我说免费额度用光了
+
+*****
+
+####  舞以  
+##### 6479#       发表于 2026-8-12 23:34
+
+不是，啥情况，有没有核弹爆炸环节啊<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王兰花秀丽  
+##### 6480#       发表于 2026-8-12 23:34
+
+不知真假    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+1000052315.jpg
+(158.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 23:34 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/233447qudeeusfud16tuae.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  羊寢  
+##### 6481#       发表于 2026-8-12 23:34
+
+我比较好奇的是为什么大半夜发，不是说好了深度求索不加班吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ternayark  
+##### 6482#       发表于 2026-8-12 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064138&amp;ptid=2275806" target="_blank">羊寢 发表于 2026-8-12 23:34</a>
+我比较好奇的是为什么大半夜发，不是说好了深度求索不加班吗</blockquote>
+定时发送.jpg（
+
+*****
+
+####  Dunphy  
+##### 6483#       发表于 2026-8-12 23:35
+
+？大的来了吗
+
+——来自 Windows 11 Pro 上的 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  绝地潜兵  
+##### 6484#       发表于 2026-8-12 23:35
+
+没和V4F拉开什么距离么
+
+*****
+
+####  小野賢章  
+##### 6485#       发表于 2026-8-12 23:36
+
+说好了不加班的呢，这还怎么睡觉<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 6486#       发表于 2026-8-12 23:36
+
+公众号没动，官x也没动，就动了文档<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ymm1030  
+##### 6487#       发表于 2026-8-12 23:37
+
+<img src="https://img.stage1st.com/forum/202608/12/233708g91nkwsb89ebusw9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 23:37 上传
+
+更新了
+
+*****
+
+####  舞以  
+##### 6488#       发表于 2026-8-12 23:37
+
+等十二点正式发公告？现在陆陆续续在服务器上部署？
+
+*****
+
+####  绝地潜兵  
+##### 6489#       发表于 2026-8-12 23:37
+
+<img src="https://img.stage1st.com/forum/202608/12/233752mffiw4gp4yp11pvr.png" referrerpolicy="no-referrer">
+
+<strong>111.png</strong> (173.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 23:37 上传
+
