@@ -3134,3 +3134,57 @@ MuMu-20260809-195214-862.jpg
 
 这个活动是巨型怪兽战斗做主题的，该不会轮到那些巨大化特攻从者上班了吧？
 
+
+*****
+
+####  qixinno1  
+##### 21354#       发表于 2026-8-12 18:54
+
+四个五星 脸都不要了
+
+*****
+
+####  壳壳牛  
+##### 21355#       发表于 2026-8-12 18:54
+
+妈耶四个五星<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  Jamaisvu  
+##### 21356#       发表于 2026-8-12 18:54
+
+woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉丝。
+
+*****
+
+####  xiongxingyu  
+##### 21357#       发表于 2026-8-12 18:57
+
+果然霸王花黑白都有啊，然而两个都是五星！！一次泳装4个五星，这吃相也是没谁了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 21358#       发表于 2026-8-12 18:57
+
+感觉有一点点省钱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jackyhuang  
+##### 21359#       发表于 2026-8-12 18:57
+
+收摊前抓紧捞一把<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Jamaisvu  
+##### 21360#       发表于 2026-8-12 18:57
+
+想起我玩的一款韩游了，一开始每期SSR和SR各出一个，结果现在就只出SSR...
+
