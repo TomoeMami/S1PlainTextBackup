@@ -4146,3 +4146,11 @@ pi真好玩啊，今天用pi整了个语音助手，在电脑上直接和它对�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">今天会有大的么
 
+
+*****
+
+####  nxmonitor  
+##### 6307#       发表于 2026-8-12 07:58
+
+看这描述也不叫破解啊？最多是检查训练语料来源…
+

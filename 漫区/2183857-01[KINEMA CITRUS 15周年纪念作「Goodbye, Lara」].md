@@ -3903,3 +3903,19 @@ TVアニメーション「さよならララ」ORIGINAL SOUNDTRACK
 
 菈菈的妈妈也许不是没了 是变成爹了………
 
+
+*****
+
+####  ParadiseMartyr  
+##### 305#       发表于 2026-8-12 07:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70057593&amp;ptid=2183857" target="_blank">思信菌 发表于 2026-8-12 04:01</a>
+光太能从灯笼鱼变成人（这里不扯性别）
+
+是不是人鱼也会遵循一定鱼类特性
+
+比如辐鳍鱼纲 一群母鱼配一条公鱼</blockquote>
+妈是蓝头发…
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
