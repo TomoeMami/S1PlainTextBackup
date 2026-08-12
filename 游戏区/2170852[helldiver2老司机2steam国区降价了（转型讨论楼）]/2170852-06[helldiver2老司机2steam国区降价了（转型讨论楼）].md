@@ -442,3 +442,13 @@ MD-17 反坦克地雷
 
 电流弹依然新怪严父，三角头成为新一代子弹海绵
 
+
+*****
+
+####  KOBI  
+##### 7500#       发表于 2026-8-12 21:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">SWAP在新图算是起飞了？
+
+大锤哥3发一个
+
