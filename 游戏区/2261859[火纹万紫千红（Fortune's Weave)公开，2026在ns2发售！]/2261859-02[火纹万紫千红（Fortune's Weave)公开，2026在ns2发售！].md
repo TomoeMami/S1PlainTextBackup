@@ -9501,3 +9501,14 @@ JRPG，舞女复仇。
 
 2026-8-12 23:56 上传
 
+
+*****
+
+####  血狂毘沙门  
+##### 2380#       发表于 2026-8-13 02:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064215&amp;ptid=2261859" target="_blank">septer 发表于 2026-8-12 23:47</a>
+
+可以等各种高血压贴脸空枪的梗图了</blockquote>
+武器类型是手甲的话 命中不会低吧
+
