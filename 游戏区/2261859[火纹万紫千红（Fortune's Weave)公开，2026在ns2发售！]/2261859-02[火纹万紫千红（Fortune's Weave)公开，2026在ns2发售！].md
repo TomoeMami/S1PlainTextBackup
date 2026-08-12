@@ -9283,3 +9283,26 @@ Her magic ...</blockquote>
 
 北美亚马逊，发售前一个月豪华版售罄了。。。
 
+
+*****
+
+####  黑上シグマ  
+##### 2360#       发表于 2026-8-12 14:26
+
+<blockquote>引用第2358楼零崎不识于2026-08-12 14:13发表的  :
+
+北美亚马逊，发售前一个月豪华版售罄了。。。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这算啥，当年if的限定版日亚预约开启首日售罄，各种实体店也是，我在网上找了好久还有哪里的店能订，好不容易找到一家后联系在日熟人我出路费让人帮忙跑过去订的
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
+
+*****
+
+####  otakun  
+##### 2361#       发表于 2026-8-12 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70060183&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-8-12 13:18</a>
+攻速38主角才26，奶奶的枪耐久只有5，战技应该恐怖如斯吧</blockquote>
+有时候我都怀疑过手甲用技能才是枪械
+

@@ -4890,3 +4890,15 @@ opencode 快加小霸王啊,白天都蹬不动了啊</blockquote>
 只不过这一次有点奇怪，前面有朋友说在正规的系统商城里面可以看到更新的内容 ...</blockquote>
 大厂的apk审核速度有区别
 
+
+*****
+
+####  杀人鲸  
+##### 6376#       发表于 2026-8-12 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70060498&amp;ptid=2275806" target="_blank">serj005 发表于 2026-8-12 14:15</a>
+大厂的apk审核速度有区别</blockquote>
+那只能说挺无奈的了。所以说，在系统商城可以更新的朋友，到时候也说一下这一次有更新什么内容吧。我在第三方平台更新的是套话，修复了某些问题。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
