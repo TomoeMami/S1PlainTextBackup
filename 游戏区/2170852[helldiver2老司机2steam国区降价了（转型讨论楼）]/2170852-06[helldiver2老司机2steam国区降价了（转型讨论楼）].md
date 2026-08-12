@@ -488,3 +488,11 @@ MD-17 反坦克地雷
 
 —— 来自 Xiaomi 23054RA19C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  FLZB  
+##### 7505#       发表于 2026-8-13 03:38
+
+尸变体飞扑直接待机动画平移，带的火雷一整局没被这东西碰到过一下，大棒哥依然爆炸婆罗门的腐乳。这新变种除了多一无是处，打法就是跑，非防守任务谁打谁是老吃家<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
