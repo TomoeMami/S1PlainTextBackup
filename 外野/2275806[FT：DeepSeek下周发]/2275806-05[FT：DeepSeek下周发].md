@@ -5171,3 +5171,17 @@ v4flash 没有多模态，写 scad 搞 3d 建模还是有困难，发现不了�
 
 今天没大的了<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Litccc  
+##### 6403#       发表于 2026-8-12 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70061202&amp;ptid=2275806" target="_blank">那一年的河川 发表于 2026-8-12 15:51</a>
+加个类脑ds区？
+
+论坛助手,iPhone</blockquote>
+早就加了，类脑无效信息太多了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
