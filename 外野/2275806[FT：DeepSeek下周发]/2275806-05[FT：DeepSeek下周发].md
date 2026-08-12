@@ -4845,3 +4845,48 @@ opencode 快加小霸王啊,白天都蹬不动了啊</blockquote>
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  chenyedgg  
+##### 6373#       发表于 2026-8-12 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70060414&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-12 14:00</a>
+
+说是一天10t了
+
+也不知道租的什么服务器那么猛</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/12/140704dsepsmsfpoetsfps.png" referrerpolicy="no-referrer">
+
+<strong>chrome_x0WqdirvHW.png</strong> (80.23 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 14:07 上传
+
+还赖在DS官渠呢<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  杀人鲸  
+##### 6374#       发表于 2026-8-12 14:11
+
+客户端可以更新了，235版本。
+只不过这一次有点奇怪，前面有朋友说在正规的系统商城里面可以看到更新的内容。
+结果在一家第三方的商城里面，社区里面看到可以更新了，结果发现类似于小米商城这些地方居然都还没有更新的提醒。
+所以这是为什么呀？正规的软件商城怎么一天了都还没有把新版端上来？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  serj005  
+##### 6375#       发表于 2026-8-12 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70060471&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-8-12 14:11</a>
+客户端可以更新了，235版本。
+只不过这一次有点奇怪，前面有朋友说在正规的系统商城里面可以看到更新的内容 ...</blockquote>
+大厂的apk审核速度有区别
+
