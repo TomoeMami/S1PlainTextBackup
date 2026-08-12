@@ -4738,3 +4738,42 @@ Opencode现在在鼓捣opencode v2，你可以试试
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  sellboy  
+##### 6362#       发表于 2026-8-12 13:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70060107&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-12 13:07</a>
+
+不过至少有图形界面，不是只端上来个cli
+
+—— 来自 鹅球 v3.5.99</blockquote>
+这不是web前端么，这种有需要都可以叫模型自己写一个。
+
+*****
+
+####  蜇灵  
+##### 6363#       发表于 2026-8-12 13:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70058847&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-12 10:49</a>
+没想到的window的傻逼转义字符问题和系统底层编码格式在ai编程时代编程很实际很严重的问题了，这下mac的优 ...</blockquote>
+试试看写个自动转义插件装上，代替bash
+
+*****
+
+####  王兰花秀丽  
+##### 6364#       发表于 2026-8-12 13:18
+
+看起来只是泄露的内部测试版，并没有正式发版的信息    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  蜇灵  
+##### 6365#       发表于 2026-8-12 13:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70059504&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-12 11:46</a>
+没用我和你们说，作为window下资深C++，我告诉你们没用的。linux和mac还真没有这种问题因为内核固定utf-8,  ...</blockquote>
+你不会是路径里面有中文吧，那确实难治，我所有编程相关的目录全部都是英文，系统用户名也是英文，甚至连空格都改成下划线了，就是为了避免乱七八糟的路径解析问题
+
