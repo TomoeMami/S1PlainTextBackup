@@ -4912,3 +4912,13 @@ opencode 快加小霸王啊,白天都蹬不动了啊</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  王兰花秀丽  
+##### 6378#       发表于 2026-8-12 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70060576&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-8-12 14:26</a>
+那只能说挺无奈的了。所以说，在系统商城可以更新的朋友，到时候也说一下这一次有更新什么内容吧。我在第 ...</blockquote>
+请求新增x-hif-dliq和x-hif-leim两个字段，还有加了腾讯的Dns解析服务，应该只是风控的更新，当然也可以理解为大的要来了要做好防护<img src="https://static.stage1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
+
