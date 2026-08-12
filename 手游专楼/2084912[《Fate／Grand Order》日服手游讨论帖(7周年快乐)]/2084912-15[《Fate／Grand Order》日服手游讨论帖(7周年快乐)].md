@@ -3633,3 +3633,19 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 
 这水比小内有点大号齐格的感觉
 
+
+*****
+
+####  plok201  
+##### 21391#       发表于 2026-8-12 20:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">小麻雀看着像大奖，但是最后应该会泯然众人，不说要点多少次技能了，这吃buff也太麻烦了
+
+
+*****
+
+####  rooarr  
+##### 21392#       发表于 2026-8-12 20:54
+
+有没有哪个实测强的，怎么感觉都是马马虎虎<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
