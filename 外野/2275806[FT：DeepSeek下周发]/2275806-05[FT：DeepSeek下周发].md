@@ -5037,3 +5037,44 @@ opencode 快加小霸王啊,白天都蹬不动了啊</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  小野賢章  
+##### 6389#       发表于 2026-8-12 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70060714&amp;ptid=2275806" target="_blank">明天不再有牛奶 发表于 2026-8-12 14:45</a>
+
+现在做ppt用什么skill比较强？
+
+—— 来自 S1Fun</blockquote>
+[https://github.com/WangEn/open-kimi-ppt-skill](https://github.com/WangEn/open-kimi-ppt-skill)
+
+*****
+
+####  Dreki  
+##### 6390#       发表于 2026-8-12 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70060714&amp;ptid=2275806" target="_blank">明天不再有牛奶 发表于 2026-8-12 14:45</a>
+现在做ppt用什么skill比较强？
+
+—— 来自 S1Fun</blockquote>
+我曾经试图用各种skill，最后发现还是让ai自己想办法符合我的需求    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  80后卢瑟  
+##### 6391#       发表于 2026-8-12 16:08
+
+其实 dsh 的界面就是跟现在 DeepSeek 的 Web 页面风格一样的，没什么漏不漏的...<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 6392#       发表于 2026-8-12 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70061274&amp;ptid=2275806" target="_blank">ST2002 发表于 2026-8-12 16:03</a>
+可以试试 ppt -master ，星数比较高
+但如果要用公司模板进行套路化生产，目前还没有很好的方案</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我司的模版基本就是白板，我用pptmaster一生成好，复制粘贴进去，顺便看一遍检查措辞就行了。就需要指定好底色一定要是白色
+

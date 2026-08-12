@@ -1977,3 +1977,11 @@ Join us for a journey through light and darkness as we commemorate 25 years of K
 《王国之心》系列将在北京时间8月16日早7点半播出「DEEP DIVE」特别节目，来自SE的Tai Yasue以及部分角色的英语版声优将会出席。据介绍节目将会带来游戏开发幕后的内容
 [https://www.youtube.com/live/wJV343OqrRk](https://www.youtube.com/live/wJV343OqrRk)
 
+
+*****
+
+####  Piano-Forest  
+##### 171#         楼主| 发表于 2026-8-12 16:06
+
+<img src="https://p.sda1.dev/34/baa57f0179496ca839142027b4d96f78/1000172190.jpg" referrerpolicy="no-referrer">
+
