@@ -7292,3 +7292,55 @@ api的思维链变了，不会再代入角色思考了，让它写极端小h文�
 
 估计部署还没完成，还得roll
 
+
+*****
+
+####  舞以  
+##### 6604#       发表于 2026-8-13 01:09
+
+等明早部署完，发公告和harness吧<img src="https://static.stage1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 6605#       发表于 2026-8-13 01:10
+
+有些地方的评论区简直看不懂，grok4.6跑的benchmark和ds跑的几乎都不一样，是怎么得出grok4.6强于ds这个结论的<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Promeus  
+##### 6606#       发表于 2026-8-13 01:11
+
+不行，完全跟flash没啥区别啊<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 6607#       发表于 2026-8-13 01:11
+
+确实还要roll
+
+
+*****
+
+####  酱油拌饭s  
+##### 6608#       发表于 2026-8-13 01:16
+
+<blockquote>ycjiang1337 发表于 2026-8-13 00:59
+一般向的SM之类的都能写，可能是涉及到非自愿会卡？</blockquote>
+求教用的哪个软件接的
+
+*****
+
+####  酱油拌饭s  
+##### 6609#       发表于 2026-8-13 01:16
+
+<blockquote>蛋黄酱Release 发表于 2026-8-13 01:00
+试了，还行，一些比较超限的东西也能写，反复测了几次感觉文笔也好一些了
+
+—— 来自 vivo V2405A, Andro ...</blockquote>
+求教用的哪个软件接的
+
