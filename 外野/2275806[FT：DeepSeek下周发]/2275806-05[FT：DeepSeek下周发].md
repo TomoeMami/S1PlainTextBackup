@@ -4637,3 +4637,31 @@ Opencode现在在鼓捣opencode v2，你可以试试
 
 —— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  qz66618  
+##### 6352#       发表于 2026-8-12 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70059913&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-12 12:35</a>
+
+尊的假嘟，这不是泄密了吗？要被起诉的把
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 S1Next-鹅版 v2 ...</blockquote>
+就露了个web界面吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 6353#       发表于 2026-8-12 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70059861&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-12 12:28</a></blockquote>
+我去，哪来的
+
+*****
+
+####  qz66618  
+##### 6354#       发表于 2026-8-12 12:43
+
+有些ds内测人员好像把一些做好的插件上传到github了，不知道这周五能不能发布<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
