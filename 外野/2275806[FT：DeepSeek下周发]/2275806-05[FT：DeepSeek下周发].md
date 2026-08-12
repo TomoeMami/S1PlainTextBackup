@@ -4716,3 +4716,25 @@ Opencode现在在鼓捣opencode v2，你可以试试
 这就是漏了个界面吧，让Deepseek识图现在就能，我用的叫vision-bridge的MCP，接的是白嫖的千问3.7 Flash ...</blockquote>
 开始上传插件大概率就是要来了，好让用户第一时间用上插件
 
+
+*****
+
+####  qz66618  
+##### 6360#       发表于 2026-8-12 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70060040&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-12 12:57</a>
+开始上传插件大概率就是要来了，好让用户第一时间用上插件</blockquote>
+也有可能就是单纯不小心上传泄漏了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  qz66618  
+##### 6361#       发表于 2026-8-12 13:07
+
+不过至少有图形界面，不是只端上来个cli<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

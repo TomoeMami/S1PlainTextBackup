@@ -9187,3 +9187,44 @@ Her magic ...</blockquote>
 
 讲真，XB3在nd上的第一个pv，开头两边拿光剑和火器对冲的时候我就以为是火纹：未来战争什么的<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 2351#       发表于 2026-8-12 13:07
+
+当初红秋裤控诉塞洛斯教封锁科技，原来就体现在热武器上吗。
+
+不过激光武器确实有点先进。
+
+
+*****
+
+####  小学生把持不住  
+##### 2352#       发表于 2026-8-12 13:12
+
+是历代萨拉米斯王都死得早还是这老太又是个亡者
+
+*****
+
+####  蓮華  
+##### 2353#       发表于 2026-8-12 13:13
+
+<img src="https://img.stage1st.com/forum/202608/12/131319dd9ez8q66pmwuhic.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4424.png</strong> (141.65 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-12 13:13 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/131319luwdjwmnk9eky75m.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4425.png</strong> (355.41 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-12 13:13 上传
+
