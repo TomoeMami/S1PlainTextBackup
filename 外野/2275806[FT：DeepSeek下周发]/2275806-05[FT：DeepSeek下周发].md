@@ -4706,3 +4706,13 @@ Opencode现在在鼓捣opencode v2，你可以试试
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70059861&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-12 12:28</a></blockquote>
 这不是现在就能做的事情吗？我的Pi和VS Code都是用这个办法来让Deepseek认识图片的，用的是一个叫vision-bridge的MCP，接的是白嫖的千问3.7 Flash。
 
+
+*****
+
+####  Promeus  
+##### 6359#       发表于 2026-8-12 12:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70060015&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-12 12:52</a>
+这就是漏了个界面吧，让Deepseek识图现在就能，我用的叫vision-bridge的MCP，接的是白嫖的千问3.7 Flash ...</blockquote>
+开始上传插件大概率就是要来了，好让用户第一时间用上插件
+

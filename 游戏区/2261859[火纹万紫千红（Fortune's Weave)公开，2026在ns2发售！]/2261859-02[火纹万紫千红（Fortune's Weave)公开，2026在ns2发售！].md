@@ -9171,3 +9171,19 @@ Her magic ...</blockquote>
 
 火焰纹章：XCOM，请端上来吧
 
+
+*****
+
+####  星花  
+##### 2349#       发表于 2026-8-12 12:58
+
+以前出过一个代号蒸汽  但是人设是美漫风。
+
+
+*****
+
+####  蓮華  
+##### 2350#       发表于 2026-8-12 13:03
+
+讲真，XB3在nd上的第一个pv，开头两边拿光剑和火器对冲的时候我就以为是火纹：未来战争什么的<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
