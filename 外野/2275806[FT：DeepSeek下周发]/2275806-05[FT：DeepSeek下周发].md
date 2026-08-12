@@ -4358,3 +4358,76 @@ windows又没glibc那些，有什么依赖……
 能让agent调用的，无非是浏览器，matlab，ida，人都跑不起来的exe ...</blockquote>
 我是想要一个图形界面的agent，在wsl里起一个图形化的东西依赖不少吧，webview, opengl/dx等等一大串，然后exe里按照window方式处理的地址在wsl里能用吗，path注册。有现成的例子吗，在wsl里跑一个图形界面的agent
 
+
+*****
+
+####  真田源次郎信繁  
+##### 6325#       发表于 2026-8-12 11:08
+
+ 本帖最后由 真田源次郎信繁 于 2026-8-12 11:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70059038&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-12 11:06</a>
+
+我是想要一个图形界面的agent，在wsl里起一个图形化的东西依赖不少吧，webview, opengl/dx等等一大串，然 ...</blockquote>
+你要跑agent控制linux的图形化软件很麻烦，没毛病，只是图形化agent直接网页吧……openclaw不都这样吗……
+
+*****
+
+####  →熙←  
+##### 6326#       发表于 2026-8-12 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70058737&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-12 10:39</a>
+
+彻底疯狂</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">不要恶意拉高期待,万一牛皮吹破了怎么办
+
+*****
+
+####  zy450  
+##### 6327#       发表于 2026-8-12 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70058737&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-12 10:39</a>
+
+彻底疯狂</blockquote>
+我算DS的忠实狂热粉丝了，还是不敢相信什么产品都能做到最顶尖……
+
+*****
+
+####  serj005  
+##### 6328#       发表于 2026-8-12 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70058847&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-12 10:49</a>
+没想到的window的傻逼转义字符问题和系统底层编码格式在ai编程时代编程很实际很严重的问题了，这下mac的优 ...</blockquote>
+如果用的是powershell，把shell换成git bash可解大部分问题
+
+
+*****
+
+####  tk553521  
+##### 6329#       发表于 2026-8-12 11:12
+
+这么屌的吗dsh？不要把我预期拉太高啊<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  真田源次郎信繁  
+##### 6330#       发表于 2026-8-12 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70059035&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-8-12 11:06</a>
+
+为了\ ,大概每次toolcall都要比linux下多花一些token
+
+转义写错了再多花点,
+
+power shell的怪语法再吃掉一 ...</blockquote>
+wsl不用转义，linux直接可以跑exe，还有显卡直连
+
+*****
+
+####  crow_wine  
+##### 6331#       发表于 2026-8-12 11:14
+
+选择的余地很少啊，那么多的agent只能选哪些有网页的，然后还要排除公式渲染不好的。到最后还不如VSCode ssh进去<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
