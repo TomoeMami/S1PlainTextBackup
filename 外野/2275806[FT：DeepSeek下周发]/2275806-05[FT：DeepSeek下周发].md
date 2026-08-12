@@ -5470,3 +5470,17 @@ opencode zen free今天开始严重限流，薅不动了
 目前其微信里的小微助手就是由该模型驱动的</blockquote>
 微信是腾讯里的独立王国,很正常    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  startraveller  
+##### 6428#       发表于 2026-8-12 22:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70063429&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-8-12 21:52</a>
+微信官宣了自己的模型
+
+目前其微信里的小微助手就是由该模型驱动的</blockquote>
+你CSIG的混元和我WXG有什么关系？
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
