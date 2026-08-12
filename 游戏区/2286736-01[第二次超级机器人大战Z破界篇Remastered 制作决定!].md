@@ -119,3 +119,14 @@
 
 现在机战还会有什么创新吗？
 
+
+*****
+
+####  dqjsss  
+##### 228#       发表于 2026-8-12 13:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70057660&amp;ptid=2286736" target="_blank">warerest 发表于 2026-8-12 06:32</a>
+
+啥时候会有三维模型，在大地图上直接有攻击动画的机战啊（做梦中）</blockquote>
+有啊,当年的机战NEO就是，可惜偏偏出在Wii上导致销量大暴死。
+
