@@ -100,3 +100,11 @@ Production单单是指专注于某部分的组别也是有可能的因为新开�
 
 ACTION页面最后时光机快照的时间是24年5月，而midori泄露legacy的时间也是24年5月，就很有意思了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woaimiyabi  
+##### 2039#       发表于 2026-8-12 17:32
+
+看你们聊这么多 总感觉九月份没新播片的概率很大，前几天还在招聘动作师，游戏可能不少东西没做完，明年有新播片概率更大一些，然后下半年才会发售，类似万紫千红的周期。
+
