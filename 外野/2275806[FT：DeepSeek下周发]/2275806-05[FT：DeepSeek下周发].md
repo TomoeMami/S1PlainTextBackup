@@ -4612,3 +4612,28 @@ Opencode现在在鼓捣opencode v2，你可以试试
 
 —— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  qz66618  
+##### 6350#       发表于 2026-8-12 12:28
+
+<img src="https://img.stage1st.com/forum/202608/12/122841k3thit1t0vo1d26c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (275.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 12:28 上传
+
+
+*****
+
+####  wandeeees  
+##### 6351#       发表于 2026-8-12 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70059861&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-12 12:28</a></blockquote>
+尊的假嘟，这不是泄密了吗？要被起诉的把
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
