@@ -7624,3 +7624,13 @@ v4p在codex里有一个明显的bug，自动批准用不了, 等修复吧。
 
 —— 来自 Xiaomi 24031PN0DC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  库德里尔  
+##### 6639#       发表于 2026-8-13 06:40
+
+ds的微信群怎么加来着
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
