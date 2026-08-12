@@ -49,3 +49,25 @@
 
 但要说高桥新作RPG等于以上两者，我认为才确实没有充分证据支持，而且现在只剩下高桥新作RPG的招聘页面仍然存在
 
+
+*****
+
+####  JOJOROY  
+##### 2034#       发表于 2026-8-12 08:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70057854&amp;ptid=2283074" target="_blank">宛若青空 发表于 2026-8-12 08:32</a>
+
+你要说玩家没实质证据那确实没有，但从域名链接来看，我可以强烈的认为这确实是两个项目
+
+女剑士动作游戏 ...</blockquote>
+Production单单是指专注于某部分的组别也是有可能的因为新开的R&amp;D组也是production/r&amp;d, 而且高桥RPG对于production/action的招聘可是完全替代掉了，没有理由一个游戏还有3年才发售就已经完全不需要招人了, 按照Legacy的代号我认为是action组当初开发的遗产已经被高桥新作RPG全盘接受了
+
+*****
+
+####  宛若青空  
+##### 2035#       发表于 2026-8-12 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70057888&amp;ptid=2283074" target="_blank">JOJOROY 发表于 2026-8-12 08:42</a>
+Production单单是指专注于某部分的组别也是有可能的因为新开的R&amp;D组也是production/r&amp;d, 而且高桥RPG对于 ...</blockquote>
+不是没有可能就是
+
