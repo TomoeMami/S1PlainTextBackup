@@ -71,3 +71,16 @@ Production单单是指专注于某部分的组别也是有可能的因为新开�
 Production单单是指专注于某部分的组别也是有可能的因为新开的R&amp;D组也是production/r&amp;d, 而且高桥RPG对于 ...</blockquote>
 不是没有可能就是
 
+
+*****
+
+####  misya  
+##### 2036#       发表于 2026-8-12 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70057854&amp;ptid=2283074" target="_blank">宛若青空 发表于 2026-8-12 08:32</a>
+
+你要说玩家没实质证据那确实没有，但从域名链接来看，我可以强烈的认为这确实是两个项目
+
+女剑士动作游戏 ...</blockquote>
+然而实际女骑士招聘页面下线和新作RPG页面的上线就是在24年8月5日同一天进行的，现在官网没下线只能说明XBG还没完成开发，本来也没有规定游戏公布了招聘页面就一定得下线
+

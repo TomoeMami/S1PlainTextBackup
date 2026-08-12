@@ -4233,3 +4233,68 @@ read write edit bash
 
 昨天捣鼓一晚上pi没装上，梁子你特么给我快点<img src="https://static.stage1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  crow_wine  
+##### 6315#       发表于 2026-8-12 10:49
+
+ 本帖最后由 crow_wine 于 2026-8-12 10:51 编辑 
+
+没想到的window的傻逼转义字符问题和系统底层编码格式在ai编程时代编程很实际很严重的问题了，这下mac的优势真的出来了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+真的有点想放弃window了，现在好痛苦。cli很难用，但是有图像界面的agent的ssh功能基本都很烂，基本用不了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  真田源次郎信繁  
+##### 6316#       发表于 2026-8-12 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70058847&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-12 10:49</a>
+
+没想到的window的傻逼转义字符问题和系统底层编码格式在ai编程时代编程很实际很严重的问题了，这下mac的优 ...</blockquote>
+有wsl……
+
+wsl下直接能用shell跑exe，比linux能用的资源都多
+
+*****
+
+####  qz66618  
+##### 6317#       发表于 2026-8-12 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70058737&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-12 10:39</a>
+彻底疯狂</blockquote>
+这个我也看到了，目前好像是删帖了，这个人前面确实发过参加内测的信息，可信度较高<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  cscbzcbz  
+##### 6318#       发表于 2026-8-12 10:55
+
+别在吊胃口了<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 6319#       发表于 2026-8-12 10:55
+
+难道梁子真能做到harness+ds pro打过fable5？那估计以后至少国内模型厂商将会把对harness的重要性提升一个台阶<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cyberalogo  
+##### 6320#       发表于 2026-8-12 10:57
+
+8月11日，中国人工智能企业Manus在官网发布“致用户的一封信”，正式宣布即将恢复以独立公司形式运营，并将继续为全球数百万用户提供服务 。‌‌‌
+
+Manus表示，作为恢复独立运营的一部分，同时为“遵守特定司法辖区的监管要求”，部分用户在Meta收购Manus当天或之后产生的数据需要被删除。声明指出，此为“Manus与Meta分拆的一部分”，Manus将由此向“独立运营过渡”。
+
+Manus给出的数据备份窗口截至新加坡时间8月23日7时59分。8月23日8时至8月24日为数据删除期，此后备份窗口将关闭，受影响地区和用户将暂时无法访问Manus；8月25日8时起，恢复入口开放。
+
+这玩意儿还在炒作，天天吹自己牛叉得被美国AI大厂抢着收购，究竟有没有狠活。
+
