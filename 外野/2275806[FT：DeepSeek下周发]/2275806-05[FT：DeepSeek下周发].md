@@ -4186,3 +4186,50 @@ pi真好玩啊，今天用pi整了个语音助手，在电脑上直接和它对�
 
 pi+deepseek要加pdf相关的插件吗，想弄个pdf总结知识库之类的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王兰花秀丽  
+##### 6312#       发表于 2026-8-12 10:39
+
+彻底疯狂<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/12/103929cl9qm9mqx6denp50.jpg" referrerpolicy="no-referrer">
+
+<strong>1000052297.jpg</strong> (251 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 10:39 上传
+
+<img src="https://img.stage1st.com/forum/202608/12/103929sy5858ctbz9hupc6.jpg" referrerpolicy="no-referrer">
+
+<strong>1000052298.jpg</strong> (159.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 10:39 上传
+
+    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  库德里尔  
+##### 6313#       发表于 2026-8-12 10:41
+
+ 本帖最后由 库德里尔 于 2026-8-12 10:42 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70058695&amp;ptid=2275806" target="_blank">FACS 发表于 2026-8-12 10:35</a>
+pi+deepseek要加pdf相关的插件吗，想弄个pdf总结知识库之类的</blockquote>
+pi的默认功能只有
+read write edit bash
+任何特定文件格式的读写提取之类的 推荐弄个extension或者skill来教它 虽然本质上大多是python大战一切
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Promeus  
+##### 6314#       发表于 2026-8-12 10:43
+
+昨天捣鼓一晚上pi没装上，梁子你特么给我快点<img src="https://static.stage1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+
