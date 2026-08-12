@@ -4665,3 +4665,44 @@ Opencode现在在鼓捣opencode v2，你可以试试
 
 有些ds内测人员好像把一些做好的插件上传到github了，不知道这周五能不能发布<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  serj005  
+##### 6355#       发表于 2026-8-12 12:44
+
+这dsh看起来是上下文全透明风格的，用户首句对话后还把系统提示词注入的流程标出来了
+
+*****
+
+####  qz66618  
+##### 6356#       发表于 2026-8-12 12:47
+
+<img src="https://img.stage1st.com/forum/202608/12/124453ezlyx85mxgll5xkw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (229.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 12:44 上传
+
+还有换肤插件
+
+
+*****
+
+####  kykawaiii  
+##### 6357#       发表于 2026-8-12 12:52
+
+这都有插件了，dsh什么时候出啊
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  来都来了  
+##### 6358#       发表于 2026-8-12 12:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70059861&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-12 12:28</a></blockquote>
+这不是现在就能做的事情吗？我的Pi和VS Code都是用这个办法来让Deepseek认识图片的，用的是一个叫vision-bridge的MCP，接的是白嫖的千问3.7 Flash。
+
