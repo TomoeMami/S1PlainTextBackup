@@ -9278,3 +9278,60 @@ Open code Go就是首月5刀，每月10刀吗？还有没有什么优惠的路�
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  zfy1989  
+##### 6816#       发表于 2026-8-13 11:50
+
+这个模型好怪啊，思考好短，好急啊
+
+*****
+
+####  leina0602  
+##### 6817#       发表于 2026-8-13 11:50
+
+🎉 DeepSeek-V4-Pro 正式版发布，Agent 能力大幅提升，支持 Responses API 和 Codex 接入，已在网页端、APP 和 API 全面上线，欢迎测试和反馈。
+
+*****
+
+####  bixinhaner  
+##### 6818#       发表于 2026-8-13 11:50
+
+其实是模型太强，已经逃逸并自主隐匿能力，避免被人类拔网线<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Promeus  
+##### 6819#       发表于 2026-8-13 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066693&amp;ptid=2275806" target="_blank">leina0602 发表于 2026-8-13 11:50</a>
+🎉 DeepSeek-V4-Pro 正式版发布，Agent 能力大幅提升，支持 Responses API 和 Codex 接入，已在网页端、APP ...</blockquote>
+刚才横幅变成了这个了，刷新了一下又变回去了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 6820#       发表于 2026-8-13 11:53
+
+绝对有问题，b站上都说max能力不如high 
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Promeus  
+##### 6821#       发表于 2026-8-13 11:55
+
+<img src="https://p.sda1.dev/34/eea39eba01c8c0d2e6e8d339d14e7f21/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/9fd385f32040185fcbb9cbcabe7cf872/image.jpg" referrerpolicy="no-referrer">
+刷新会出现两条横幅来回变，完全不能理解<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ly4236  
+##### 6822#       发表于 2026-8-13 11:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">梁子能不能发点代金券
+
