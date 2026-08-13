@@ -3347,3 +3347,26 @@ pro max的思考链BUG修了吗？ 真是部署故障？ 华子全责？</blockq
 
 烧了1.2亿token做出来了<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">感觉pro的左右脑互搏浪费了很多时间，让他只做规划然后让flash max去实施就好很多
 
+
+*****
+
+####  qwased  
+##### 7713#       发表于 2026-8-14 04:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072235&amp;ptid=2275806" target="_blank">余晖 发表于 2026-8-14 04:29</a>
+
+网页搜索底下可以设置接口地址，我用的opencode，直接设置成opencode的api和地址就能用搜索功能了 ...</blockquote>
+没看到啊
+
+不过我传完发现两个小时前有人上传搜索MCP插件了，约等于白搞<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  squallx  
+##### 7714#       发表于 2026-8-14 04:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072232&amp;ptid=2275806" target="_blank">余晖 发表于 2026-8-14 04:23</a>
+
+看了下记忆机制，准备等大佬搓出插件来，我再让ds自己加个webdav同步功能，就可以两岸三地连在一起了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">我这hermes在局域网nas docker本地还有之前codex残留 能打通同步吗
+
