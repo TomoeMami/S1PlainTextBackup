@@ -2419,3 +2419,48 @@ DSH太快了，要是铺开估计真能蹬爆计算资源
 
 我现在就不想让他闲着
 
+
+*****
+
+####  卡普空  
+##### 7628#       发表于 2026-8-14 00:34
+
+35块钱的go，拼命登起来<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  squallx  
+##### 7629#       发表于 2026-8-14 00:38
+
+max的思维问题修了吗？ 看雷达站上还是区啊 但是HIGH的分蹭蹭涨
+
+
+*****
+
+####  scikirbypoke  
+##### 7630#       发表于 2026-8-14 00:42
+
+pi装缓存优化插件其实本来就能99%缓存，感觉楼里怎么这么激动
+
+*****
+
+####  Sacross  
+##### 7631#       发表于 2026-8-14 00:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071807&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-14 00:15</a>
+
+我想想，这东西能搞个知识库不
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
+能肯定能啊，这玩意儿本质就是个更加适合ds的框架，带了文件管理扩大了使用范围，唯一感觉不太好就是目前对话记录全在本地
+
+*****
+
+####  ayanamilin  
+##### 7632#       发表于 2026-8-14 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071928&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-8-14 00:42</a>
+
+pi装缓存优化插件其实本来就能99%缓存，感觉楼里怎么这么激动</blockquote>
+minimal agent 高缓存复用不是很正常的。
+
