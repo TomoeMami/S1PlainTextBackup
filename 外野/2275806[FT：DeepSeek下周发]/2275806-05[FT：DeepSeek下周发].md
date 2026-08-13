@@ -7720,3 +7720,36 @@ ds的微信群怎么加来着
 
 哪有大晚上更新的
 
+
+*****
+
+####  飞侠小黑  
+##### 6649#       发表于 2026-8-13 07:58
+
+更了，但是没完全更<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VDE-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qwased  
+##### 6650#       发表于 2026-8-13 07:59
+
+<img src="https://img.stage1st.com/forum/202608/13/075856uuv77pjikttjpvkn.jpg" referrerpolicy="no-referrer">
+
+<strong>B351F7E80D9AF754EF5DD9AC31EEEC79.jpg</strong> (25.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 07:58 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">也太草台了吧
+
+
+*****
+
+####  Rowen233  
+##### 6651#       发表于 2026-8-13 08:04
+
+提前把文档更新submit了这是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
