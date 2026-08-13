@@ -8963,3 +8963,87 @@ Open code Go就是首月5刀，每月10刀吗？还有没有什么优惠的路�
 
 可能。。。。Pro强在别的地方，我弄了个素材库让他出灵感电子，这家伙感觉真的。。。。有灵感。。。。很神秘。。。
 
+
+*****
+
+####  来都来了  
+##### 6782#       发表于 2026-8-13 10:55
+
+V4 Pro正式版这种万众瞩目的东西，更新怎么搞成这个样子，这也太草台了吧。从昨天晚上到现在，差不多12个小时了，我都不知道我的API是预览版的还是正式版的。梁子再这样搞，要降级为牢梁了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 6783#       发表于 2026-8-13 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066201&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-13 10:55</a>
+V4 Pro正式版这种万众瞩目的东西，更新怎么搞成这个样子，这也太草台了吧。从昨天晚上到现在，差不多12个小 ...</blockquote>
+牢梁？梁÷！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浪费喝咖啡  
+##### 6784#       发表于 2026-8-13 10:57
+
+梁子啊，这水平真敢涨价吗？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿刚  
+##### 6785#       发表于 2026-8-13 10:58
+
+话说你们觉得性能不够除了编程和思维链，还有哪里？我光拿来写东西角色扮演感觉提升很强啊，属于思路不一样了的那种
+
+*****
+
+####  nxmonitor  
+##### 6786#       发表于 2026-8-13 10:58
+
+low86分，medium87分，max89分，这个数据是不正常的
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6787#       发表于 2026-8-13 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066238&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-13 10:58</a>
+话说你们觉得性能不够除了编程和思维链，还有哪里？我光拿来写东西角色扮演感觉提升很强啊，属于思路不一样 ...</blockquote>
+开放性写作不行，比不过5.6sol
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  cscbzcbz  
+##### 6788#       发表于 2026-8-13 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066241&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-13 10:58</a>
+low86分，medium87分，max89分，这个数据是不正常的</blockquote>
+随便一提，flash max也是86分
+按这个分 pro没有存在的价值<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rowen233  
+##### 6789#       发表于 2026-8-13 11:02
+
+听见你说😭国模看蓝鲸
+
+路边一坨😭被老马抽陀螺
+
+*****
+
+####  神必迷你龙  
+##### 6790#       发表于 2026-8-13 11:03
+
+<img src="https://img.stage1st.com/forum/202608/13/110330jdvuz6dfsnixqn16.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (56.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 11:03 上传
+
+安安心心等更新日志吧
+
