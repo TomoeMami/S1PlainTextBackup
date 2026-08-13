@@ -9114,3 +9114,110 @@ Flash正式版思维链是中文还是英文？
 
 这次太怪了，你说草台吧，这都快12小时了没什么动静；你说就这个水平吧，哪哪都对不上
 
+
+*****
+
+####  noword  
+##### 6798#       发表于 2026-8-13 11:15
+
+大家不要怕，是技术性调整！是技术性调整！
+牢梁在叠骄兵必败buff
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  千秋难诉  
+##### 6799#       发表于 2026-8-13 11:16
+
+先耍耍你们，到时候端出来水平超fable5一个kimi3惊艳全世界
+
+*****
+
+####  囧Smith  
+##### 6800#       发表于 2026-8-13 11:18
+
+<img src="https://img.stage1st.com/forum/202608/13/111843bfbkdoddrgcdogdt.jpg" referrerpolicy="no-referrer">
+
+<strong>3ee5270a-e4a0-4028-a075-a7df4bc41e1d.jpg</strong> (386.09 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 11:18 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  novem  
+##### 6801#       发表于 2026-8-13 11:19
+
+<blockquote>zy450 发表于 2026-8-13 11:13
+这次太怪了，你说草台吧，这都快12小时了没什么动静；你说就这个水平吧，哪哪都对不上 ...</blockquote>
+主要还是灰度给人带来的期待太高了，这次如果翻车绝对有人又开始复读灰度是路由的fable
+
+*****
+
+####  crow_wine  
+##### 6802#       发表于 2026-8-13 11:19
+
+还得等到权重发布，DeepSeek每次发布时，权重都会一起同时发布的
+
+爱，信，等
+
+*****
+
+####  真田源次郎信繁  
+##### 6803#       发表于 2026-8-13 11:20
+
+大概是已经拉了，所以先把pro正式版和原版混着用，让你以为特别拉
+
+等正式版完全上线就会感觉没那么拉了
+
+
+*****
+
+####  crow_wine  
+##### 6804#       发表于 2026-8-13 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066430&amp;ptid=2275806" target="_blank">novem 发表于 2026-8-13 11:19</a>
+
+主要还是灰度给人带来的期待太高了，这次如果翻车绝对有人又开始复读灰度是路由的fable ...</blockquote>
+fable的思考链加密的，灰度的思考链全世界可看。掘了达里奥ass都拿不到fable
+
+*****
+
+####  hugosol  
+##### 6805#       发表于 2026-8-13 11:22
+
+都叫0813了，权重肯定是今天发的吧
+
+如果是思维链截断的原因，应该就不是模型本身的问题……吧？
+
+
+*****
+
+####  阿刚  
+##### 6806#       发表于 2026-8-13 11:24
+
+思维链特别短是真的
+
+
+*****
+
+####  wandeeees  
+##### 6807#       发表于 2026-8-13 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066455&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-13 11:21</a>
+
+fable的思考链加密的，灰度的思考链全世界可看。掘了达里奥ass都拿不到fable ...</blockquote>
+看完哪些灰测的视频就知道这俩完全不一样，表现完全不一样，有些地方还比fable强，还有经典的左右还是前后的键位反转bug来着
+
+*****
+
+####  nxmonitor  
+##### 6808#       发表于 2026-8-13 11:27
+
+high刷出了97分的分数，成功反超max……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
