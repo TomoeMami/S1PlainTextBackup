@@ -11185,3 +11185,89 @@ https://tieba.baidu.com/p/10940698624?share=9105&amp;fr=sharewise
 
 现在明显是部署问题吧？三个思考强度没有区别…
 
+
+*****
+
+####  leia_rolando  
+##### 7026#       发表于 2026-8-13 17:19
+
+梦回二游大版本更新前的情况，各种内部聊天截图，太搞笑了
+
+*****
+
+####  chuchoselph  
+##### 7027#       发表于 2026-8-13 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069099&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-13 17:17</a>
+
+现在明显是部署问题吧？三个思考强度没有区别…</blockquote>
+有的，越高越蠢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  overflowal  
+##### 7028#       发表于 2026-8-13 17:20
+
+这情况只能说他们内部测试用的推理stack和对外服务的不一样了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  御坂MKII  
+##### 7029#       发表于 2026-8-13 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069010&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-13 17:04</a>
+
+#(呵呵)rt 可以看楼主上个帖子的内容。
+
+首先回答几个问题：1.灰测是否路由到f5？纯假，这种时刻关注大模型 ...</blockquote>
+这味儿也太足了 <blockquote>确实是pro正式版的成绩。但是0813这一版是完全跑不到这个成绩</blockquote>
+
+完全不该是 lab 的人可以说出来的
+
+
+*****
+
+####  novem  
+##### 7030#       发表于 2026-8-13 17:23
+
+大公司出这么严重的问题还是装死其实不是个好习惯，舅舅满天飞给人的既视感太严重了
+
+*****
+
+####  drodchang  
+##### 7031#       发表于 2026-8-13 17:23
+
+不是deepseek是怎么发模型的，o/a两家内部都有多个模型，同时测试，最后挑一个发布。
+
+*****
+
+####  nianiania  
+##### 7032#       发表于 2026-8-13 17:24
+
+好急，今天的 5.6sol 感觉有点弱智，好想蹬聪明的大鲸鱼<img src="https://static.stage1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  misuzu0723  
+##### 7033#       发表于 2026-8-13 17:25
+
+贴吧那人的爆料也不对吧，按照官方评测分数是低于 k3 的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  秦南心  
+##### 7034#       发表于 2026-8-13 17:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">唯有忠诚与相信
+
+*****
+
+####  狭义文具爱好者  
+##### 7035#       发表于 2026-8-13 17:27
+
+目前就没有靠谱内鬼，真有内鬼不至于从猫老板这再中转一道。dsh真有内测也真有保密协议的。
+
