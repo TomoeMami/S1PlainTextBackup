@@ -10373,3 +10373,36 @@ https://www.metacritic.com/game/fire-emblem-fortunes-weave/critic-reviews/?platf
 
 虽然我之前也猜过也存在最后部分只能用少数队员的可能
 
+
+*****
+
+####  ascomnet  
+##### 2465#       发表于 2026-8-13 23:57
+
+居然有人叫 包子 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/13/235718vstqppsrv1k4p15z.jpg" referrerpolicy="no-referrer">
+
+<strong>fda507f41bd5ad6e85ee50eec7cb39dbb7fd3cd8.jpg</strong> (42.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 23:57 上传
+
+
+*****
+
+####  风使塞缇  
+##### 2466#       发表于 2026-8-14 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071678&amp;ptid=2261859" target="_blank">qiyu1234 发表于 2026-8-13 23:55</a>
+
+能挖人啊，按理讲挖过来的人应该是有重复的，这块怎么算确实也是个问题
+
+虽然我之前也猜过也存在最后部分只 ...</blockquote>
+算上能挖人这块，那铁定会有重复的人出现。
+
+那必然还是会有冲突。
+
+这个矛盾看看官方想怎么解决吧
+

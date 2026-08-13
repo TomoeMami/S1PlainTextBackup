@@ -1810,3 +1810,157 @@ DSH这个缓存命中率真心无敌
 至少比我之前传的那个差一档，甚至还有 ...</blockquote>
 冷知识：从来没有人证实过灰测的模型是v4 pro
 
+
+*****
+
+####  tonyunreal  
+##### 7575#       发表于 2026-8-13 23:54
+
+hugging face恢复了
+
+*****
+
+####  冤枉呐  
+##### 7576#       发表于 2026-8-13 23:54
+
+等等，是个网页版？！
+
+*****
+
+####  UncleDracula  
+##### 7577#       发表于 2026-8-13 23:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071639&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-13 23:51</a>
+
+npm warn deprecated : Use your platform's native DOMException instead
+
+dsh web: http://127.0.0.1:30 ...</blockquote>
+安装成功了，浏览器打开[http://127.0.0.1:3080](http://127.0.0.1:3080)就能嗨了
+
+*****
+
+####  c月光咖啡  
+##### 7578#       发表于 2026-8-13 23:55
+
+有什么好用的dsh插件推荐吗<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
+
+*****
+
+####  冤枉呐  
+##### 7579#       发表于 2026-8-13 23:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071677&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-8-13 23:54</a>
+
+安装成功了，浏览器打开http://127.0.0.1:3080就能嗨了</blockquote>
+没有独立的软件吗？这么轻轻轻轻量级！
+
+我第一次打开给我蹦一个无连接，刷新好了
+
+*****
+
+####  孤灯蓝影  
+##### 7580#       发表于 2026-8-13 23:56
+
+<blockquote>c月光咖啡 发表于 2026-8-13 23:55
+有什么好用的dsh插件推荐吗
+
+—— 来自 HONOR MAA-AN10, Android 16, 鹅球 v3.5.99-debug</blockquote>
+刚出两个小时怎么给你推荐
+
+*****
+
+####  龙骑士尹志平  
+##### 7581#       发表于 2026-8-13 23:57
+
+opencodego的ds4pro正式版上线了吗
+
+*****
+
+####  苇原雪道  
+##### 7582#       发表于 2026-8-13 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071608&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-8-13 23:47</a>
+
+读了论文的 intro，手敲了一点理解。是一篇很硬核的用形式化方法分析软件工程的论文，只能看得懂 intro：
+
+ ...</blockquote>
+恋恋可还行。东方人怎么无处不在（
+
+*****
+
+####  城北无尘  
+##### 7583#       发表于 2026-8-13 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071689&amp;ptid=2275806" target="_blank">孤灯蓝影 发表于 2026-8-13 23:56</a>
+
+刚出两个小时怎么给你推荐</blockquote>
+不应该内测大佬们写完几十上百个了嘛？没有地方整合的嘛
+
+*****
+
+####  nxmonitor  
+##### 7584#       发表于 2026-8-13 23:59
+
+max真有问题啊，怎么尝试high的质量竟然都更高……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hugosol  
+##### 7585#       发表于 2026-8-14 00:00
+
+ 本帖最后由 hugosol 于 2026-8-14 00:01 编辑 
+
+云了一下这个harness，这个创造模式看起来有点说法
+
+之前用pi和omp的痛点是每次调试extension都要关掉重新打开让它重新加载，会有个问题是缓存可能会丢失导致token花费变多（我自己写的缓存命中扩展看到的现象），现在dsh能热加载插件应该就是往这个方向思考得到的特性，我估计调试插件会比pi流畅很多，这个过程中能保证缓存一直命中的话也能省很多token，这个方向我感觉是对的
+
+*****
+
+####  ダンボール戦車  
+##### 7586#       发表于 2026-8-14 00:00
+
+装上harness了 有几个小问题
+
+不能直接上传文件给他吗 我之前用cc和opencode都是直接把项目文档和skill.md直接传进去确保调用的 现在只能打完整路径给他吗
+
+还有就是ui下不显示git所在的分支 虽然基本都是在main下但还是有点在意
+
+最后是没看到联网搜索的选项 
+
+还是说这些都是插件解决的范畴
+
+*****
+
+####  haiuhfuwah  
+##### 7587#       发表于 2026-8-14 00:02
+
+AI界最抽象的24小时即将过去
+
+*****
+
+####  ayanamilin  
+##### 7588#       发表于 2026-8-14 00:03
+
+再敲一点对 dsh 代码的理解
+
+一句话概括：<strong>一切皆插件</strong>
+
+我们以 llm 插件为例，这个插件负责把 dsh 接入到各个服务提供商的 LLM：[https://github.com/deepseek-ai/d ... master/packages/llm](https://github.com/deepseek-ai/deepseek-harness/tree/master/packages/llm)
+
+这其中，llm-deepseek 负责接入 DeepSeek 官方 API，llm-pi-ai 复用 Pi 的模型配置，token-meter 负责计费，等等。
+
+像这样的插件还有上百个，比如 subagent、session、skill、terminal 等等，顾名思义就能知道这些插件的作用。dsh 把自己的基本功能统统解耦成了插件，并且光是普通版本的 dsh 就包含几十上百个插件之间的互相协同。这种设计理念是对“无限扩展”这一口号的很好体现。
+
+*****
+
+####  needagf  
+##### 7589#       发表于 2026-8-14 00:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071621&amp;ptid=2275806" target="_blank">serj005 发表于 2026-8-13 23:48</a>
+
+非码农主要的问题可能是不知道node和npx咋用以及webui的运行，官方没做正常exe安装启动的桌面端对普通用 ...</blockquote>
+我花了5毛，让dsh自己写了个dmg的客户端，可正常安装使用，还有图标。功能和网页版一模一样。。。
+
