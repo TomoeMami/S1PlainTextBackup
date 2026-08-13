@@ -1964,3 +1964,229 @@ AI界最抽象的24小时即将过去
 非码农主要的问题可能是不知道node和npx咋用以及webui的运行，官方没做正常exe安装启动的桌面端对普通用 ...</blockquote>
 我花了5毛，让dsh自己写了个dmg的客户端，可正常安装使用，还有图标。功能和网页版一模一样。。。
 
+
+*****
+
+####  wesdrtfg  
+##### 7590#       发表于 2026-8-14 00:04
+
+原来harness走的是创意工坊路线吗...期待之后在harness里做一切事情（
+
+*****
+
+####  crow_wine  
+##### 7591#       发表于 2026-8-14 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071595&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-13 23:45</a>
+
+那个双叉臂测试，用opencode和reasonix我都跑了次，产物都不太行
+
+至少比我之前传的那个差一档，甚至还有 ...</blockquote>
+你发的那个 html 看着确实挺唬人的，不过我不懂汽车工程技术看不出到底对不对
+
+*****
+
+####  杀人鲸  
+##### 7592#       发表于 2026-8-14 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071283&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-13 22:55</a>
+感觉用DSH驾驭deepseek pro确实比用其他agent厉害一些 是错觉吗</blockquote>
+这是肯定的呀，都说了是专武，各家公司搞出来的这种平台，最优先的肯定都是适配自己家的AI，其他的那就随缘了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  spaceblue  
+##### 7593#       发表于 2026-8-14 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071644&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-13 23:51</a>
+
+grok会封我不……</blockquote>
+我Pi和CC这么用很久了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 冤枉呐 + 2好评加鹅
+
+查看全部评分
+
+*****
+
+####  舞以  
+##### 7594#       发表于 2026-8-14 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071736&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-14 00:04</a>
+
+你发的那个 html 看着确实挺唬人的，不过我不懂汽车工程技术看不出到底对不对 ...</blockquote>
+你可以拿去给其他模型看看<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+*****
+
+####  果壳中的松鼠  
+##### 7595#       发表于 2026-8-14 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071716&amp;ptid=2275806" target="_blank">ダンボール戦車 发表于 2026-8-14 00:00</a>
+装上harness了 有几个小问题
+
+不能直接上传文件给他吗 我之前用cc和opencode都是直接把项目文档和skill.md直 ...</blockquote>
+搜索通过api进行，服务器端调用ds的搜索工具，然后把结果传回来，要搜什么只要告诉ai就行
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  冤枉呐  
+##### 7596#       发表于 2026-8-14 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071728&amp;ptid=2275806" target="_blank">needagf 发表于 2026-8-14 00:03</a>
+
+我花了5毛，让dsh自己写了个dmg的客户端，可正常安装使用，还有图标。功能和网页版一模一样。。。 ...</blockquote>
+我总觉得自己摆弄弄不好，说不定过几天就有大佬发布了
+
+比如谭友大佬你<img src="https://static.stage1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 7597#       发表于 2026-8-14 00:06
+
+这个DSH越用越喜欢怎么办<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UncleDracula  
+##### 7598#       发表于 2026-8-14 00:06
+
+6毛钱，解决了一个flash花了30块也没搞定的问题，而且是一次过，涨价好像变得合理了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2017.05.04  
+##### 7599#       发表于 2026-8-14 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071692&amp;ptid=2275806" target="_blank">苇原雪道 发表于 2026-8-13 23:57</a>
+
+恋恋可还行。东方人怎么无处不在（</blockquote>
+致敬车万里的鲸鱼角色
+
+<img src="https://img.stage1st.com/forum/202608/14/000630mxgxxzf125h3xx5k.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>34d75232ab36de859f549167f33691443349f8af.jpg@1192w.webp</strong> (96.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 00:06 上传
+
+甚至还是开酒馆的
+
+*****
+
+####  蛋黄酱Release  
+##### 7600#       发表于 2026-8-14 00:07
+
+折腾半天终于连上了，这怎么设计的为什么速度这么快？我还接的是ocg的v4p<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+让它check了一下小项目，它好努力啊我哭死<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+之前用zcode的时候它就随便查个几分钟就输出一大篇报告。结果换成dsh直接查了20分钟，只花了3%周额度，给我查出来78个问题。这要是不涨价就爽飞了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  冤枉呐  
+##### 7601#       发表于 2026-8-14 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071740&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-8-14 00:05</a>
+
+我Pi和CC这么用很久了</blockquote>
+请教
+
+就在这个ds的harness里面问 flash，他说：
+
+方案 A（推荐，零/极少代码）：OAuth device flow 取 token → 喂给 DSH 的 xai 路由
+
+方案 B：本地 OpenAI 兼容代理（grok.com 逆向 session，cookie 型）
+
+方案 C（工程量最大）：给 DSH 原生加 OAuth 登录支持
+
+老哥你是哪个方案，或者其他方案
+
+*****
+
+####  CCauchy  
+##### 7602#       发表于 2026-8-14 00:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70018025&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-5 15:52</a>
+
+昨晚一个群友蹬了10亿，花了48元，我算了一下缓存命中率97%，如果全部换成pro，就是100元左右，根据多渠道 ...</blockquote>
+重新算了一下成本，同一个案例，将30%用量划分给pro，结果是150元（谷价），而gpt5x刚好每周成本是150元，而5x的用量刚好是20x的七分之二，如果20x依旧每周给30亿，那么这次涨价后谷价刚好跟gpt5x打平。
+
+ds优势依然是速度快和并发，gpt想要相同体验至少要常开2.5倍速，那么能用的额度减半，性价比相当于高峰期的ds
+
+而现在dsh的价值不知道能不能对比gpt pro的其他优势（网页、云端沙箱、多模态）
+
+*****
+
+####  Sacross  
+##### 7603#       发表于 2026-8-14 00:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071716&amp;ptid=2275806" target="_blank">ダンボール戦車 发表于 2026-8-14 00:00</a>
+
+装上harness了 有几个小问题
+
+不能直接上传文件给他吗 我之前用cc和opencode都是直接把项目文档和skill.md直 ...</blockquote>
+你使用的时候可以直接当codex类似的用啊，项目文件夹设置进去应该就能读取里面所有文件了，本身做了不错的沙箱限制
+
+联网搜索感觉是默认开的，自带就有了，已经不是开关了
+
+*****
+
+####  小野賢章  
+##### 7604#       发表于 2026-8-14 00:09
+
+https://github.com/omdsh-dev
+
+*****
+
+####  库德里尔  
+##### 7605#       发表于 2026-8-14 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071716&amp;ptid=2275806" target="_blank">ダンボール戦車 发表于 2026-8-14 00:00</a>
+
+装上harness了 有几个小问题
+
+不能直接上传文件给他吗 我之前用cc和opencode都是直接把项目文档和skill.md直 ...</blockquote>
+你确定那个webui的原理难道不是把你的文档丢到了一个临时workspace文件夹下面，然后把ref输进去？然后tui则是解析了拖入文件时候的路径？亦或者对于plain text，它到底是给了路径还是引入了全文？rich text就更没法在你视野里“粘贴文件”的时候就解析了。
+
+比如workbuddy，如果不显式指定workspace，就会在自己的文件夹里面创建一亿个时间戳命名的小文件夹来着。
+
+
+*****
+
+####  Totokei  
+##### 7606#       发表于 2026-8-14 00:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以想问一下今晚harness上线对我们这种臭写文章的有影响吗，还是说除了甲厚了其他还没区别
+
+*****
+
+####  2017.05.04  
+##### 7607#       发表于 2026-8-14 00:12
+
+测试了一下，哪怕是涨价我肯定也接着用下去了，目前体验独一档
+
+*****
+
+####  苇原雪道  
+##### 7608#       发表于 2026-8-14 00:14
+
+harness真好用，比CC好用多了。。。
+

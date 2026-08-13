@@ -10406,3 +10406,50 @@ https://www.metacritic.com/game/fire-emblem-fortunes-weave/critic-reviews/?platf
 
 这个矛盾看看官方想怎么解决吧
 
+
+*****
+
+####  没取名啊  
+##### 2467#       发表于 2026-8-14 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071695&amp;ptid=2261859" target="_blank">ascomnet 发表于 2026-8-13 23:57</a>
+居然有人叫 包子</blockquote>
+就不能是豹子嘛<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  墨染白泉  
+##### 2468#       发表于 2026-8-14 00:08
+
+<img src="https://img.stage1st.com/forum/202608/14/000713fvc0nug2ao0j3ooc.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260814_000701.jpg</strong> (660.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 00:07 上传
+
+一个网站上说seems to run at 30，甚至不是媒体说的，到国内自媒体那里就是跑30帧了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蓮華  
+##### 2469#       发表于 2026-8-14 00:10
+
+<img src="https://img.stage1st.com/forum/202608/14/001030kqbqtyc0k1qg0tqq.png" referrerpolicy="no-referrer">
+
+<strong>D0E1143D-89DB-4A0D-8E1B-E3698367FF8E.png</strong> (50.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-14 00:10 上传
+
+*****
+
+####  JOJOROY  
+##### 2470#       发表于 2026-8-14 00:11
+
+目前官方所有的物料包括这个月的直面会画面全部都是30帧，是不是30帧还需要媒体说吗
+
