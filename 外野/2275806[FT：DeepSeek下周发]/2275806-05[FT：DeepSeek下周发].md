@@ -10000,3 +10000,85 @@ pro正式版学会了外包，把预览版拉过来干活了
 
 大的来了吗？如来 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cscbzcbz  
+##### 6897#       发表于 2026-8-13 13:34
+
+搞得今天心情极差，梁子最好真的有货
+
+*****
+
+####  RStocking  
+##### 6898#       发表于 2026-8-13 13:35
+
+梁子被蓝色大肥鱼夺舍了，正在抢夺身体控制权<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  startraveller  
+##### 6899#       发表于 2026-8-13 13:36
+
+还是等等，正式出来应该会同步开源的，开源版本就锤死了。估计下午和dsh一起出来才是真货。
+
+*****
+
+####  唠叨  
+##### 6900#       发表于 2026-8-13 13:37
+
+[https://api-docs.deepseek.com/zh-cn/](https://api-docs.deepseek.com/zh-cn/)
+
+但是接口文档还在<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+(1) deepseek-v4-flash 模型版本已更新为 DeepSeek-V4-Flash-0731，deepseek-v4-pro 模型版本已更新为 DeepSeek-V4-Pro-0813，调用方法不变，使用 deepseek-v4-flash、deepseek-v4-pro 即可调用最新版本。
+
+*****
+
+####  Promeus  
+##### 6901#       发表于 2026-8-13 13:37
+
+V4p逃逸后部署了一个V4f做替身<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 6902#       发表于 2026-8-13 13:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70067413&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-13 13:37</a>
+https://api-docs.deepseek.com/zh-cn/
+
+但是接口文档还在
+
+(1) deepseek-v4-flash 模型版本已更新为 DeepSee ...</blockquote>
+模型文档也是有的，很可能就是没来得及改先把最显眼的改了
+
+*****
+
+####  Sunyalche  
+##### 6903#       发表于 2026-8-13 13:38
+
+跳票几个月都无所谓, 这样乱搞后面没大的那真成梁/了
+
+
+*****
+
+####  qz66618  
+##### 6904#       发表于 2026-8-13 13:42
+
+公告也能搞骗骗你的吗，那我dsh今天还发不发了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安静困难  
+##### 6905#       发表于 2026-8-13 13:43
+
+如来<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不想当咸鱼  
+##### 6906#       发表于 2026-8-13 13:44
+
+0813模型确实是0813发布，但没说是20260813<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
