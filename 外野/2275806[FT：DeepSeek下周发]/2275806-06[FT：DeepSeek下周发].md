@@ -759,3 +759,76 @@ https://www.zhihu.com/question/2071335529577239335/answer/2071335996126393376
 而且dsh自带的搜索有点说法的，又快又好</blockquote>
 dsh自带的搜索是不是抓不到正文？
 
+
+*****
+
+####  zy450  
+##### 7478#       发表于 2026-8-13 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071028&amp;ptid=2275806" target="_blank">飞侠小黑 发表于 2026-8-13 22:19</a>
+
+不是说现在pro都跑不到官方公布的成绩吗？
+
+—— 来自 HUAWEI VDE-AL00, Android 16, 鹅球 v3.5.99 ...</blockquote>
+看之前视频是说官方公布的成绩是在专武跑的
+
+*****
+
+####  Lorraine_Kinney  
+##### 7479#       发表于 2026-8-13 22:27
+
+太难绷了
+
+<img src="https://img.stage1st.com/forum/202608/13/222733edaan1aowgzk4gga.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (108.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 22:27 上传
+
+*****
+
+####  neptunehs  
+##### 7480#       发表于 2026-8-13 22:29
+
+干嘛我这边harness打开文件夹提示403
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  justwul  
+##### 7481#       发表于 2026-8-13 22:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=70071053&amp;amp;ptid=2275806" target="_blank">LieZ 发表于 2026-8-13 22:23</a>
+dsh自带的搜索是不是抓不到正文？</blockquote>
+可以啊，我测试了没问题
+
+*****
+
+####  逐日依然  
+##### 7482#       发表于 2026-8-13 22:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071074&amp;ptid=2275806" target="_blank">zy450 发表于 2026-8-13 22:26</a>
+
+看之前视频是说官方公布的成绩是在专武跑的</blockquote>
+官方公告说的就是“使用 DeepSeek Harness 极简模式作为框架进行测试（使用 max 档位，topp=0.95，temperature=1.0），其他框架下结果可能略有不同”，倒也不用看视频才能知道。
+
+*****
+
+####  chronicle  
+##### 7483#       发表于 2026-8-13 22:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070745&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-13 21:40</a>
+
+怀念灰度的第一天
+
+opencode 灰度</blockquote>
+我猜啊，灰度的是带多模态的版本。
+
+上面那个明显和原版很像，是不是类似k3那种按照原版画出来的。
+
+实现估计和mimo差不多，分开训练再整合。
+

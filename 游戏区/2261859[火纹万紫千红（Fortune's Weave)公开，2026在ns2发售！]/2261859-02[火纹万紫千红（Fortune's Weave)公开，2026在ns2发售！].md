@@ -9882,3 +9882,32 @@ fami的看了一下，5年后一样有大地图，那5年后估计也有自由�
 
 武器耐久不用战技就不会消耗
 
+
+*****
+
+####  蓮華  
+##### 2419#       发表于 2026-8-13 22:28
+
+<img src="https://img.stage1st.com/forum/202608/13/222805fd92y1z1g89ey9g9.png" referrerpolicy="no-referrer">
+
+<strong>40254ACFBD568BFDA8E4518421BAEC97.png</strong> (97.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 22:28 上传
+
+*****
+
+####  巴尔干炮  
+##### 2420#       发表于 2026-8-13 22:28
+
+我已经看到好几个没公布过的角色了，你们这些媒体玩到兴头上就憋不住是吧？<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jabeck  
+##### 2421#       发表于 2026-8-13 22:30
+
+还有一个多月才发售，终归会公布的
+
