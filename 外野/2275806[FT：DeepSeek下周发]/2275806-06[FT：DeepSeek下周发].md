@@ -2491,3 +2491,79 @@ minimal agent 高缓存复用不是很正常的。
 
 — from Xiaomi 23049PCD8G, Android 13, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  库德里尔  
+##### 7635#       发表于 2026-8-14 00:56
+
+真好玩啊
+
+干脆利用这套可插拔框架 做一个测试环境-实操环境的隔离系统 然后开始捣鼓吧
+
+*****
+
+####  阿刚  
+##### 7636#       发表于 2026-8-14 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071785&amp;ptid=2275806" target="_blank">Totokei 发表于 2026-8-14 00:11</a>
+
+所以想问一下今晚harness上线对我们这种臭写文章的有影响吗，还是说除了甲厚了其他还没区别 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">我现在正在肘，很奇怪，放在hermes里写文感觉和flash区别不是特别大，但是移到了dhs里面那个ai味儿直接把我掀翻了要，我不知道是不是思维链max还有问题，还是对与skill的理解有问题，反正正在搞，但是甲还是那样
+
+*****
+
+####  杀人鲸  
+##### 7637#       发表于 2026-8-14 00:59
+
+话说回来，我是真的有点奇怪。就怎么说呢？那个在快一个多月之前，在贴吧看到的刷新按钮更新，可以简练或者扩充的那个按钮，我朋友也随机挥度到体验了一下。
+但是这个功能怎么到现在还没有全面推开呢？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ayanamilin  
+##### 7638#       发表于 2026-8-14 00:59
+
+用完之后还是很激动。
+
+cordis 虽然不是新框架（而且偏实验性），但是被用于 coding agent 后产生了意外的化学反应。
+
+想象一下一个高达模型可以生产自己的零件、不借助外力来流畅地拆卸/拼装自己（有点像编译器的自举）
+
+
+*****
+
+####  阿刚  
+##### 7639#       发表于 2026-8-14 01:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">他这个感觉真的很神奇，就是hermes那种随时更新skill给人感觉已经很动态了，但是他就感觉更灵活，随时改，而且动作很快
+
+*****
+
+####  舞以  
+##### 7640#       发表于 2026-8-14 01:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071985&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-8-14 00:59</a>
+用完之后还是很激动。
+
+cordis 虽然不是新框架（而且偏实验性），但是被用于 coding agent 后产生了意外的 ...</blockquote>
+这个harness还能让我继续孝，要是个换皮cc或者codex估计我就脱坑回踩了<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  ayanamilin  
+##### 7641#       发表于 2026-8-14 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071973&amp;ptid=2275806" target="_blank">IIIIIlllllIIIII 发表于 2026-8-14 00:55</a>
+那个harness的论文看起来很有意思啊 虽然没有仔细看是让ai扫的 但是提炼出来的感觉是 
+
+我们tmd有一个超级 ...</blockquote>
+形式化方法（就是那些很复杂的数学符号）算是cs一些领域的学术八股，不必太当真。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
