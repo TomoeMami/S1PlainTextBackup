@@ -11036,3 +11036,32 @@ ds权重一般多久公布？今天应该出harness了吧
 ds权重一般多久公布？今天应该出harness了吧</blockquote>
 一般来说正式发布的时候就有权重。鬼知道他们内部又有啥幺蛾子。
 
+
+*****
+
+####  Promeus  
+##### 7011#       发表于 2026-8-13 16:48
+
+<img src="https://p.sda1.dev/34/bc88d93c235d4e999d0b0193dde1bf0c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 7012#       发表于 2026-8-13 16:50
+
+<blockquote>zhongjie 发表于 2026-8-13 16:45
+ds权重一般多久公布？今天应该出harness了吧</blockquote>
+一般权重是和官网模型同步上线的。所以现在肯定是异常情况。第三方怎么说现在不重要。
+
+*****
+
+####  crow_wine  
+##### 7013#       发表于 2026-8-13 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70068840&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-13 16:43</a>
+
+知乎的一个大模型评测答主，目前最靠谱的第三方私评之一</blockquote>
+我知道这个人，什么叫如果灰测的模型如果真实存在过，蠢得不行。
+
+有啥定论等开源权重吧
+
