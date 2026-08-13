@@ -10548,3 +10548,14 @@ Avengers Assemble！
 不会能回前作地图吧</blockquote>
 时间线差太多 即便能回地形也会变化
 
+
+*****
+
+####  血狂毘沙门  
+##### 2480#       发表于 2026-8-14 07:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071695&amp;ptid=2261859" target="_blank">ascomnet 发表于 2026-8-13 23:57</a>
+
+居然有人叫 包子</blockquote>
+也可能是 豹子 谁会叫包子啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

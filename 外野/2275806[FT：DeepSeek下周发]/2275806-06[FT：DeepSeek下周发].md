@@ -3605,3 +3605,32 @@ Pi做不到热插拔，dsh现在看来特点就是Cordis这个插件框架，这
 
 按用户指令滚动节点竟然也需要找个插件，而不是默认功能，内测DSH测了个啥
 
+
+*****
+
+####  Indolencoma  
+##### 7733#       发表于 2026-8-14 07:43
+
+你楼这一天大起大落的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  来都来了  
+##### 7734#       发表于 2026-8-14 07:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072330&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-8-14 07:08</a>
+为啥你们都不喜欢webui，我最喜欢webui了，远程开发就这个最方便，内网穿透一下就和本机一样，还可以手机 ...</blockquote>
+学到了，我也试试这个用法。
+
+*****
+
+####  passgan  
+##### 7735#       发表于 2026-8-14 07:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072200&amp;ptid=2275806" target="_blank">奈姆乐斯美都莎 发表于 2026-8-14 03:12</a>
+
+再……再来一回合（天黑抬头过了”亿会“天怎么又黑了.jpg）
+
+先推一下非代码环境下简单好用的插件（楼上有 ...</blockquote>
+DSH-better-sidebar不知道为什么装不上去 说我nodejs版本太高
+
