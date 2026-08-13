@@ -2631,3 +2631,67 @@ dsh plugin --profile web add @0rch1d/dsh-client-ui-opencode-go@1.0.2    [Re:So
 
 用v4pvibe了一个tauri的桌面端，启动的界面漂亮得惊到我了，谁说我大赢鲸是区的<img src="https://static.stage1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  startraveller  
+##### 7648#       发表于 2026-8-14 01:16
+
+好像专武出来后评价在急速好转了
+
+*****
+
+####  qwased  
+##### 7649#       发表于 2026-8-14 01:16
+
+这个DSH跑的很快，但是怎么感觉这么烧token，接的基元律动的api跑v4f 0731，思考强度max，让他接入duckduckgo的搜索，还没干完就显示烧掉2块钱了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  来都来了  
+##### 7650#       发表于 2026-8-14 01:17
+
+草，见到一个项目，可以自动收集近五日网上梁文锋的评价，根据评价，其称号可以从梁神梁圣一直滑落到梁子牢梁，随着称号的变化，头像还会变化。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 7651#       发表于 2026-8-14 01:19
+
+好用 好玩 我完全不困！DSH!DSH!DSH!
+
+*****
+
+####  ashVision  
+##### 7652#       发表于 2026-8-14 01:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072028&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-14 01:17</a>
+草，见到一个项目，可以自动收集近五日网上梁文锋的评价，根据评价，其称号可以从梁神梁圣一直滑落到梁子牢 ...</blockquote>
+发来！漏油有项目地址吗
+我之前想vibe一个的，没想到已经有人做出来了
+
+
+*****
+
+####  →熙←  
+##### 7653#       发表于 2026-8-14 01:20
+
+现在的子代理模式很适合角色扮演吧, 一个代理一个角色, 可以完全上下文隔离掉, 然后主线程调度
+
+*****
+
+####  苇原雪道  
+##### 7654#       发表于 2026-8-14 01:23
+
+佬们他这个网页端口和网址不能改么？只能是默认的自回环地址:3080？我想在我虚拟机上部署，然后通过主力机访问。虚拟机有个192.168的内网IP，我又不可能只在虚拟机内部打开网页。试了试豆包的建议改yaml文件不好使。。。别让我再折腾反代，太麻烦了吧= =
+
+*****
+
+####  →熙←  
+##### 7655#       发表于 2026-8-14 01:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072042&amp;ptid=2275806" target="_blank">苇原雪道 发表于 2026-8-14 01:23</a>
+
+佬们他这个网页端口和网址不能改么？只能是默认的自回环地址:3080？我想在我虚拟机上部署，然后通过主力机 ...</blockquote>
+启动参数 --port 8080
+

@@ -10505,3 +10505,11 @@ https://www.metacritic.com/game/fire-emblem-fortunes-weave/critic-reviews/?platf
 
 Avengers Assemble！
 
+
+*****
+
+####  bbluekid  
+##### 2475#       发表于 2026-8-14 01:18
+
+这藏的人也太多了吧。光东方人可以组一个小队了
+
