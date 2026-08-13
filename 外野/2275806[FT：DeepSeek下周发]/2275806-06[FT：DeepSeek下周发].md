@@ -2915,3 +2915,27 @@ dsh plugin --profile web add @0rch1d/dsh-client-ui-opencode-go@1.0.2    [Re:So
 我就用127访问的啊，难道说ds自己部署的时候帮我把这个也设置好了？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">localhost经过域名解析后是指向127.0.0.1，这看起来更像是caddy的问题
 
+
+*****
+
+####  qwased  
+##### 7678#       发表于 2026-8-14 02:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072096&amp;ptid=2275806" target="_blank">真田源次郎信繁 发表于 2026-8-14 01:47</a>
+等涨完价flash都和现在的pro一个价了
+
+此时不用pro等于亏了一个亿啊</blockquote>
+但是我用pro high强度感觉好像和flash max区别真的不大啊，基元的pro显示原生response支持应该就是转发的官方api没错
+
+*****
+
+####  真田源次郎信繁  
+##### 7679#       发表于 2026-8-14 02:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072119&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-14 02:00</a>
+
+但是我用pro high强度感觉好像和flash max区别真的不大啊，基元的pro显示原生response支持应该就是转发的 ...</blockquote>
+昨天不用harness确实不行
+
+今天pro跑了一个小时，高危高影响力0day漏洞+1，还是有点水平的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
