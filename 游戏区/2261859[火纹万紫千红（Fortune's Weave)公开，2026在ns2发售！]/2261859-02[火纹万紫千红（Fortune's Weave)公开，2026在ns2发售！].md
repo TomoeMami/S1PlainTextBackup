@@ -10016,3 +10016,64 @@ gamesrader好像暗示这作不同角色是同一时间线（但看到有的媒�
 
 SWITCH2首个第一方30帧游戏?
 
+
+*****
+
+####  kalavinka  
+##### 2435#       发表于 2026-8-13 23:10
+
+<img src="https://img.stage1st.com/forum/202608/13/230925lnzip4z4isypn0ie.png" referrerpolicy="no-referrer">
+
+<strong>3234.png</strong> (83.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 23:09 上传
+
+2个新萌萌哒，1个眯眯眼，黑叔叔不知道是npc还是可入队，还有僵尸女王<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  hl氏  
+##### 2436#       发表于 2026-8-13 23:12
+
+四线互不干涉有点失望了，就是纯玩四次大剑斗祭
+
+5年后的角色怎么处理都没提到，不过我觉得无法用自己培养的角色肯定会有人喷，目前没看到应该还不用担心
+
+
+*****
+
+####  mcq_2  
+##### 2437#       发表于 2026-8-13 23:14
+
+吹的有点过了。吓死要死
+
+*****
+
+####  血狂毘沙门  
+##### 2438#       发表于 2026-8-13 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070812&amp;ptid=2261859" target="_blank">Link213 发表于 2026-8-13 21:51</a>
+
+有个媒体说每条线的内容重复度很高</blockquote>
+主要看关卡重复度吧 养成那不可避免的重复
+
+*****
+
+####  1wq1  
+##### 2439#       发表于 2026-8-13 23:15
+
+5年后肯定能用自己的角色的，不然主角去救他们干嘛。我最在意的就是是不是公共角色每条线都能挖，都能挖5年后主角打完4线带着300个角色围攻boss，这画面也太美了
+
+boss：这tm我是boss还是你是boss
+
+*****
+
+####  qiyu1234  
+##### 2440#       发表于 2026-8-13 23:16
+
+IGN说方尖塔里选择重玩之前章节会清除掉选择章节之后的所有数据（也就是真正的重打）
+

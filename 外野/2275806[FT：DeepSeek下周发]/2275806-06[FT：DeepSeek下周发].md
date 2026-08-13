@@ -1077,3 +1077,111 @@ harness怎么破甲，他拒绝了我的破甲提示词
 
 这harness虽然简单，但不用说性能，用户体验还真挺好的，比别的都舒服
 
+
+*****
+
+####  小野賢章  
+##### 7505#       发表于 2026-8-13 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071274&amp;ptid=2275806" target="_blank">城北无尘 发表于 2026-8-13 22:54</a>
+ 很奇怪，dsh中自带的opencode go配置不能GPT 5.6 Luna选，去yaml里面自己输入luna模型后，不兼容，直接所有 ...</blockquote>
+opencode go上luna是response的api，估计dsh没有区分，可以单独创建一个openai的供应商配置luna，另外minimax和qwen是anthropic的api
+
+*****
+
+####  Nanachi  
+##### 7506#       发表于 2026-8-13 23:07
+
+不支持多模态的话，是不是就没办法和GUI软件交互了？在Windows上直接跑还是弄到Linux服务器上好点呢
+
+*****
+
+####  crow_wine  
+##### 7507#       发表于 2026-8-13 23:08
+
+也就是说这个agent可以动态的更新自己的能力，那确实可以作为长任务框架
+
+*****
+
+####  LeoDT  
+##### 7508#       发表于 2026-8-13 23:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071332&amp;ptid=2275806" target="_blank">孤灯蓝影 发表于 2026-8-13 23:03</a>
+长任务agent，这个意义真是重大，之前就有这个概念说是要有那种能跑几个小时的agent。没想到deepseek搞定 ...</blockquote>
+主要还是短期内看不到收益，想象力限制根本想不出什么需要长期运行并且目的不是写代码的使用场景，全自动量化分析之类的么。
+
+而且要长期运行的话，怎么能涨价呢？？？
+
+*****
+
+####  crow_wine  
+##### 7509#       发表于 2026-8-13 23:09
+
+我用了下，公式渲染差点，但是比想象中要完整。公式就等别人做插件了，我懒得动手了
+
+
+*****
+
+####  crow_wine  
+##### 7510#       发表于 2026-8-13 23:11
+
+不过我挺喜欢这个web端的，在wsl里面用很方便。
+
+说明架构是分离的，可以很轻松支持虚拟机
+
+*****
+
+####  bartholo4  
+##### 7511#       发表于 2026-8-13 23:12
+
+还真是要长期运行的 Agent 才能够真的有用。一个随时能够接受你所有信息的 Agent，它就能够在沉默的情况下，先帮你把很多东西想好，适时的给出建议
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  孤灯蓝影  
+##### 7512#       发表于 2026-8-13 23:12
+
+ 本帖最后由 孤灯蓝影 于 2026-8-13 23:15 编辑 
+<blockquote>LeoDT 发表于 2026-8-13 23:09
+主要还是短期内看不到收益，想象力限制根本想不出什么需要长期运行并且目的不是写代码的使用场景，全自动 ...</blockquote>
+
+我猜首先是梁子用来长时间实现量化交易的。然后其他的场景可能有监控天气，水文现象之类的，需要长时间监听的项目。所以很多楼友还是没意识到这个agent的伟大，还沉浸在什么一句话搞游戏的情景中。对于我来说这个agent真是震撼，真正意义上AI领域的巨大进步
+
+*****
+
+####  绕指流光  
+##### 7513#         楼主| 发表于 2026-8-13 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071369&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-13 23:09</a>
+主要还是短期内看不到收益，想象力限制根本想不出什么需要长期运行并且目的不是写代码的使用场景，全自动 ...</blockquote>
+有什么想不出来的，运维啊。能力真的够强实时监控报告并带第一时间分析，个人项目流量不大的话交给他管理都行<img src="https://static.stage1st.com/image/smiley/face/15.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  绕指流光  
+##### 7514#         楼主| 发表于 2026-8-13 23:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071391&amp;ptid=2275806" target="_blank">孤灯蓝影 发表于 2026-8-13 23:12</a>
+我猜首先是梁子用来长时间实现量化交易的。然后其他的场景可能有监控天气，水文现象之类的，需要长时间监 ...</blockquote>
+所有需要运维的项目理论上都能尝试搞一下，这块想象空间还是挺大的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  →熙←  
+##### 7515#       发表于 2026-8-13 23:15
+
+子代理异步的,不堵主线程, 派子代理后, 可以继续让主线程做别的事情,子代理完成自己注入上下文, 子代理里面也可以自己发消息
+
+主线程也能继续注入完成工作的子代理让他继续干
+
+*****
+
+####  真田源次郎信繁  
+##### 7516#       发表于 2026-8-13 23:15
+
+长任务agent各方面都有用啊
+
+甚至可以做数学证明的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
