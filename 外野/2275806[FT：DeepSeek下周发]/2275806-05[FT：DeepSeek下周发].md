@@ -12452,3 +12452,190 @@ reasonix用不起了，这缓存价格大幅度上升。你涨价了倒是端上
 
 这下拉完了，奥特曼该笑嘻了
 
+
+*****
+
+####  cyberalogo  
+##### 7163#       发表于 2026-8-13 19:26
+
+DS涨价会不会是因为AI病友们之前低价时夏季坝乱蹬把大肥鱼蹬坏了不得已采取的保护措施。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  →熙←  
+##### 7164#       发表于 2026-8-13 19:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">梁➗!
+
+*****
+
+####  蜇灵  
+##### 7165#       发表于 2026-8-13 19:26
+
+所以现在输出正常了吗？我看前面怎么还有说low比max分高的
+
+*****
+
+####  cscbzcbz  
+##### 7166#       发表于 2026-8-13 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069967&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-8-13 19:26</a>
+所以现在输出正常了吗？我看前面怎么还有说low比max分高的</blockquote>
+测试中，感觉正常了
+
+*****
+
+####  jinyu19922011  
+##### 7167#       发表于 2026-8-13 19:27
+
+涨价之后怕是oa的重置也会减少吧
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  bixinhaner  
+##### 7168#       发表于 2026-8-13 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069948&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-13 19:23</a>
+行吧，这个性价比……我还是续gpt的订阅吧
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0 ...</blockquote>
+gpt估计也爽蹬不了多久了，deepseek都投降大涨价了，其他家下一代模型会疯涨到什么程度
+
+*****
+
+####  半江瑟瑟半江红  
+##### 7169#       发表于 2026-8-13 19:27
+
+让pro写了1000字，区一样
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  拘翼  
+##### 7170#       发表于 2026-8-13 19:28
+
+deepseek的pro和flash在基本性能上不是一直区别不大么，消息面上又没有说这次pro会加大区别度，自顾自的期待pro然后又自顾自的失望的人也不知道咋回事。
+
+*****
+
+####  半江瑟瑟半江红  
+##### 7171#       发表于 2026-8-13 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069977&amp;ptid=2275806" target="_blank">拘翼 发表于 2026-8-13 19:28</a>
+deepseek的pro和flash在基本性能上不是一直区别不大么，消息面上又没有说这次pro会加大区别度，自顾自的期 ...</blockquote>
+正常来说，作为Flash的蒸馏对象以及Flash的教师模型，不应该跟Flash只有这点差距。参考fable5和opus5的差距
+最重要的是，作为一个大参数模型，在开放性写作方面没有跟flash拉开差别。这真的让人完全无法理解，大参数模型更多的直觉和更多的世界知识应该带来更好的写作能力
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  蜇灵  
+##### 7172#       发表于 2026-8-13 19:29
+
+另外今天因为reasonix爆炸了切到了opencode，他这GUI是不是纯就一个脚手架，什么配置都要去json里面写
+
+*****
+
+####  舞以  
+##### 7173#       发表于 2026-8-13 19:29
+
+官方的benchmark其实不错的，但是跑得出来么，官方harness也没看出来
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  tk553521  
+##### 7174#       发表于 2026-8-13 19:30
+
+如果出了专武搭配codingplan，我就原谅梁子
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  秦南心  
+##### 7175#       发表于 2026-8-13 19:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">等超节点部署看看降价多少
+
+*****
+
+####  wesdrtfg  
+##### 7176#       发表于 2026-8-13 19:31
+
+从万众期待到拉完了，一直追本楼有种当年国家队的感觉<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风萧飒  
+##### 7177#       发表于 2026-8-13 19:32
+
+后悔之前充了几十块钱了，一直没用。感觉还能继续留着
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 7178#       发表于 2026-8-13 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070000&amp;ptid=2275806" target="_blank">wesdrtfg 发表于 2026-8-13 19:31</a>
+从万众期待到拉完了，一直追本楼有种当年国家队的感觉</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+还缺一个台长破防 
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  tonberry  
+##### 7179#       发表于 2026-8-13 19:32
+
+🐳娘该怀孕了
+
+*****
+
+####  奥柏伦亲王  
+##### 7180#       发表于 2026-8-13 19:32
+
+所以真是训炸了？
+
+*****
+
+####  crow_wine  
+##### 7181#       发表于 2026-8-13 19:33
+
+蛆完了呀，真的发布了吗
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  vincevincetang  
+##### 7182#       发表于 2026-8-13 19:33
+
+新价格比其他模如何？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  小野賢章  
+##### 7183#       发表于 2026-8-13 19:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070011&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-8-13 19:32</a>
+
+所以真是训炸了？</blockquote>
+现在API看起来是正常的，至少比上午强多了，感觉比v4flash也要强
+
+*****
+
+####  duanrenduanren  
+##### 7184#       发表于 2026-8-13 19:34
+
+V4F，这价格涨了接近5倍啊。<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这价格真用不起了......
+
