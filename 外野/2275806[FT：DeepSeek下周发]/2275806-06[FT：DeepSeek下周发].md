@@ -2342,3 +2342,80 @@ A 的实现 + C 的薄壳（用插件而非改内核）
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  squallx  
+##### 7622#       发表于 2026-8-14 00:24
+
+写文的话能让harness接入NeuroBook的吧
+
+*****
+
+####  库德里尔  
+##### 7623#       发表于 2026-8-14 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071833&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-14 00:20</a>
+
+我感觉可以抽象成一个和现在的标准/ptc模式并列的模式？将来想写文了就切换成这个模式拉起对话？ ...</blockquote>
+我还没细看Agent 预设，但感觉这套底座很适合这么搞。我主要是想把插件也做一套强隔离，毕竟我现在这套带持久化记忆和人设迭代（？）的/persona 破坏性有点大，而且问题有点多。
+
+
+*****
+
+####  库德里尔  
+##### 7624#       发表于 2026-8-14 00:30
+
+想要在每一个接触到的ai agent里面制作/btw 是不是一种中毒的体现<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我感觉有点离不开了
+
+*****
+
+####  小野賢章  
+##### 7625#       发表于 2026-8-14 00:31
+
+dsh自己给自己写扩展会不会就是小梁的持续学习实现方式之一<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ayanamilin  
+##### 7626#       发表于 2026-8-14 00:33
+
+我觉得 dsh 最大的亮点是这个，你可以让它给自己开发一个插件（比如“在这个workspace里创建一个package，让你每进行一次输出就同时输出token统计”），dsh 完成开发后就会给你审批，审批通过后<strong>在同一个对话结束后（！）</strong>就会生成token统计信息：
+
+<img src="https://img.stage1st.com/forum/202608/14/002820wfetm8eseh0h5s3q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (256.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 00:28 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/002843j9zl6snabs93pono.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (162.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 00:28 上传
+
+然后你可以让它移除这个插件，也是立刻生效的：
+
+<img src="https://img.stage1st.com/forum/202608/14/003330tkp01tltfkrq30nl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (119.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 00:33 上传
+
+*****
+
+####  2017.05.04  
+##### 7627#       发表于 2026-8-14 00:33
+
+DSH太快了，要是铺开估计真能蹬爆计算资源
+
+我现在就不想让他闲着
+

@@ -10453,3 +10453,41 @@ https://www.metacritic.com/game/fire-emblem-fortunes-weave/critic-reviews/?platf
 
 目前官方所有的物料包括这个月的直面会画面全部都是30帧，是不是30帧还需要媒体说吗
 
+
+*****
+
+####  ascomnet  
+##### 2471#       发表于 2026-8-14 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071757&amp;ptid=2261859" target="_blank">没取名啊 发表于 2026-8-14 00:07</a>
+
+就不能是豹子嘛</blockquote>
+我觉得挺好，给那几个中华打扮的，包子，混沌，油条啥的也挺接地气的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1wq1  
+##### 2472#       发表于 2026-8-14 00:26
+
+原来真主角开场就砍了除了蕾达以外3任的黑化兵，那大概后面真有5年前的部分角色没招的话就会当敌人，救了的话就用杂兵替代了
+
+还有凯伊的爹居然开场能用，不过按照定律也是估计要便当的
+
+
+*****
+
+####  qiyu1234  
+##### 2473#       发表于 2026-8-14 00:31
+
+奇霍尔游记
+
+坐实前传了？
+
+<img src="https://img.stage1st.com/forum/202608/14/003128gmplffpqfqennnbg.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>o5uu8s6mv5jh1.jpeg</strong> (96.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 00:31 上传
+
