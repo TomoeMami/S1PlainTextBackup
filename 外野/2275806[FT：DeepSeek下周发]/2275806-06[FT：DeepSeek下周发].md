@@ -2829,3 +2829,61 @@ dsh plugin --profile web add @0rch1d/dsh-client-ui-opencode-go@1.0.2    [Re:So
 
 —— 来自 HUAWEI SGT-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  Nanachi  
+##### 7670#       发表于 2026-8-14 01:37
+
+用 caddy 端口转发的记得改一下 host 和 origin：
+
+    reverse_proxy localhost:3080 {
+        header_up Host "localhost:3080"
+        header_up Origin "http://localhost:3080"
+        transport http {
+            response_header_timeout 0
+        }
+    }
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Nanachi  
+##### 7671#       发表于 2026-8-14 01:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072056&amp;ptid=2275806" target="_blank">苇原雪道 发表于 2026-8-14 01:30</a>
+不好使。以我浅薄的计网知识，应该是要改它监听地址，让外部访问也能访问到，只改port是不是没用。还是说 ...</blockquote>
+要用localhost 访问，不能用 127.0.0.1 访问
+
+<img src="https://prayhand13013.top/phone/202608/14013936.PNG" id="aimg_Zb3XU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  死神只爱吃苹果  
+##### 7672#       发表于 2026-8-14 01:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072083&amp;ptid=2275806" target="_blank">Nanachi 发表于 2026-8-14 01:39</a>
+
+要用localhost 访问，不能用 127.0.0.1 访问</blockquote>
+???            
+
+*****
+
+####  qwased  
+##### 7673#       发表于 2026-8-14 01:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072083&amp;ptid=2275806" target="_blank">Nanachi 发表于 2026-8-14 01:39</a>
+要用localhost 访问，不能用 127.0.0.1 访问</blockquote>
+我就用127访问的啊，难道说ds自己部署的时候帮我把这个也设置好了？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绝地潜兵  
+##### 7674#       发表于 2026-8-14 01:45
+
+准备用第三方的0731V4F试试快不快<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
