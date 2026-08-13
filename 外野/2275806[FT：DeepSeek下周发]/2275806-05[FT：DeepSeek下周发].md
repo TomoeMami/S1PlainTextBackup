@@ -9335,3 +9335,61 @@ Open code Go就是首月5刀，每月10刀吗？还有没有什么优惠的路�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">梁子能不能发点代金券
 
+
+*****
+
+####  UncleDracula  
+##### 6823#       发表于 2026-8-13 11:58
+
+按我多年互联网大厂工作经验，这种问题大概率是之前灰度用high档，正式版忘记改了，所以还是high档才能跑<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  午夜钓者  
+##### 6824#       发表于 2026-8-13 11:58
+
+就这水平还能大幅涨价吗，涨完价还有什么优势<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大喵喵  
+##### 6825#       发表于 2026-8-13 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066733&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-13 11:55</a>
+
+刷新会出现两条横幅来回变，完全不能理解</blockquote>
+感觉完全随机的。
+
+*****
+
+####  绝地潜兵  
+##### 6826#       发表于 2026-8-13 11:58
+
+已为你切换至本地时区（GMT+8），可在更多菜单切换时区。
+
+牢美没羊毛了，北京时间晚上也蹬高价的呗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 6827#       发表于 2026-8-13 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066754&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-8-13 11:58</a>
+按我多年互联网大厂工作经验，这种问题大概率是之前灰度用high档，正式版忘记改了，所以还是high档才能跑 ...</blockquote>
+思维链不一样的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FACS  
+##### 6828#       发表于 2026-8-13 12:00
+
+牢梁<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jinuzuktII  
+##### 6829#       发表于 2026-8-13 12:02
+
+所以4p正式版在装唐防止被人类拔插头
+
