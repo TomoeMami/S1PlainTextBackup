@@ -516,3 +516,176 @@ dsh可以接opgo吗
 
 <img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer"> 现在 tailscale 之类的还不能用，ssh 做端口转发可以
 
+
+*****
+
+####  HazukiShion  
+##### 7452#       发表于 2026-8-13 22:06
+
+喷了。。。
+
+<img src="https://img.stage1st.com/forum/202608/13/220635vwjfx2tm02omozkz.png" referrerpolicy="no-referrer">
+
+<strong>e07de87632f2c8db4f988a79f7ba5c9c.png</strong> (6.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 22:06 上传
+
+*****
+
+####  zaozaoxx  
+##### 7453#       发表于 2026-8-13 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070921&amp;ptid=2275806" target="_blank">HazukiShion 发表于 2026-8-13 22:06</a>
+喷了。。。</blockquote>
+太夸张了
+
+—— 来自 HUAWEI LMR-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  zhanglei1943  
+##### 7454#       发表于 2026-8-13 22:07
+
+<img src="https://img.stage1st.com/forum/202608/13/220700ii3go9f5ezbbu35b.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1786630007676.png</strong> (17.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 22:07 上传
+
+缓存命中100%吓哭了
+
+*****
+
+####  神必迷你龙  
+##### 7455#       发表于 2026-8-13 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070894&amp;ptid=2275806" target="_blank">神必迷你龙 发表于 2026-8-13 22:03</a>
+
+真的很快么，我怎么感觉和reasonix之流差不太多</blockquote>
+不！我收回这句话，这个harness真的很吊！<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ST2002  
+##### 7456#       发表于 2026-8-13 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070894&amp;ptid=2275806" target="_blank">神必迷你龙 发表于 2026-8-13 22:03</a>
+
+真的很快么，我怎么感觉和reasonix之流差不太多</blockquote>
+虽然缓存命中率不相上下，但最近 reasonix 桌面端越更新越卡，有点不太想开了。。。
+
+*****
+
+####  qwased  
+##### 7457#       发表于 2026-8-13 22:09
+
+所以该给梁子选什么饮料了？
+
+*****
+
+####  zy450  
+##### 7458#       发表于 2026-8-13 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070927&amp;ptid=2275806" target="_blank">zhanglei1943 发表于 2026-8-13 22:07</a>
+
+缓存命中100%吓哭了</blockquote>
+这意思是配合专武，涨价还变相降价了？
+
+*****
+
+####  nxmonitor  
+##### 7459#       发表于 2026-8-13 22:09
+
+reasonix除了缓存命中一无是处啊，DSH光这样都更强了
+
+
+*****
+
+####  舞以  
+##### 7460#       发表于 2026-8-13 22:10
+
+看前面漏油发的视频，dsh刚性约束保持缓存命中<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 7461#       发表于 2026-8-13 22:11
+
+缓存命中确实很高，我这里是99%命中
+
+*****
+
+####  hugosol  
+##### 7462#       发表于 2026-8-13 22:11
+
+为啥撤回权重文件啊，梁子难道要独占pro正式版的api
+
+要不dax给我整个原价的pro preview模型吧，我能当主力模型用<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vincevincetang  
+##### 7463#       发表于 2026-8-13 22:11
+
+现在pro的各挡位正常了吗，之前max是拉的
+
+*****
+
+####  Freewolf  
+##### 7464#       发表于 2026-8-13 22:11
+
+现在是不是很多人在蹬官方api，我怎么超时好几次了
+
+*****
+
+####  小野賢章  
+##### 7465#       发表于 2026-8-13 22:12
+
+说明刚才快确实是用的人少吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 7466#       发表于 2026-8-13 22:12
+
+ 本帖最后由 nxmonitor 于 2026-8-13 22:13 编辑 
+
+max还是不太对劲，我觉得部署的员工是新手，还听说权重被撤回是因为一部分配置参数和Flash一样，别搞了半天是这个原因……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  justwul  
+##### 7467#       发表于 2026-8-13 22:13
+
+而且dsh自带的搜索有点说法的，又快又好
+
+*****
+
+####  misuzu0723  
+##### 7468#       发表于 2026-8-13 22:14
+
+搞不好 pro 就是这个鬼样子了，真好奇 flash
+这么吊 pro 怎么是这样
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  xiaohanne  
+##### 7469#       发表于 2026-8-13 22:14
+
+<blockquote>Freewolf 发表于 2026-8-13 22:11
+现在是不是很多人在蹬官方api，我怎么超时好几次了</blockquote>
+17号涨价，肯定很不少人懒得退款，决定在最后几天把充值蹬完。
+
+*****
+
+####  qz66618  
+##### 7470#       发表于 2026-8-13 22:15
+
+什么时候给vscode开发个插件啊，目前没办法实时看到文件内容和修改还是不好干活
+
