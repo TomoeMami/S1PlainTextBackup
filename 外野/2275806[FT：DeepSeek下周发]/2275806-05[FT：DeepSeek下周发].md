@@ -8832,3 +8832,58 @@ dsv4proga不可能翻车，我要吹爆梁文锋<img src="https://static.stage1s
 
 ——来自 Windows 11 Pro 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  zhongjie  
+##### 6767#       发表于 2026-8-13 10:34
+
+正式版何时开源，我要看看实测
+
+*****
+
+####  orca  
+##### 6768#       发表于 2026-8-13 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065390&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-13 09:22</a>
+好吧，是我记错了</blockquote>
+应该是v4f预览版只有high和max两档，v4f正式版多了一个low档。
+
+*****
+
+####  crow_wine  
+##### 6769#       发表于 2026-8-13 10:39
+
+在开源权重出来前我都不相信，梁子还我鲸鱼娘命来<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  novem  
+##### 6770#       发表于 2026-8-13 10:41
+
+flash不会把自家的pro也斩杀了吧
+
+*****
+
+####  cscbzcbz  
+##### 6771#       发表于 2026-8-13 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066032&amp;ptid=2275806" target="_blank">orca 发表于 2026-8-13 10:36</a>
+应该是v4f预览版只有high和max两档，v4f正式版多了一个low档。</blockquote>
+应该是的，以前没太关注，今天翻了文档一下确实有个low的思考档位
+
+*****
+
+####  绝地潜兵  
+##### 6772#       发表于 2026-8-13 10:42
+
+flash太强了，斩杀一切
+
+*****
+
+####  希望之花  
+##### 6773#       发表于 2026-8-13 10:43
+
+所以现在国内vibe coding买哪家<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
