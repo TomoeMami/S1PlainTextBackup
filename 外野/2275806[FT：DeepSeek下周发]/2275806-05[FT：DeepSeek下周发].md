@@ -11087,3 +11087,101 @@ dsh会在修复好后一同推出～
 
 还有二游内鬼<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Litccc  
+##### 7016#       发表于 2026-8-13 17:09
+
+大的要来了😅
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  你谁  
+##### 7017#       发表于 2026-8-13 17:10
+
+练炸完全有可能吧 谷歌也不是练炸了吗 grok中间也唐完了 结果从4.5又追上来了 无非ds卡更少 下一次再有明显竞争力可能到年底了
+
+*****
+
+####  zy450  
+##### 7018#       发表于 2026-8-13 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069047&amp;ptid=2275806" target="_blank">Litccc 发表于 2026-8-13 17:09</a>
+
+大的要来了😅
+
+论坛助手,iPhone</blockquote>
+真来了，还是狼来了
+
+
+*****
+
+####  卡普空  
+##### 7019#       发表于 2026-8-13 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069010&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-13 17:04</a>
+
+#(呵呵)rt 可以看楼主上个帖子的内容。
+
+首先回答几个问题：1.灰测是否路由到f5？纯假，这种时刻关注大模型 ...</blockquote>
+那再给梁子一天时间，梁子，你剩下的时间不多了
+
+*****
+
+####  城北无尘  
+##### 7020#       发表于 2026-8-13 17:13
+
+<img src="https://tiebapic.baidu.com/forum/pic/item/2c2339eff01f3a29135f26cddf25bc315d607c93.jpg?tbpicau=2026-08-24-05_cf452eb25e61cecc05872e0709f40eec" id="aimg_ynZli" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+*****
+
+####  lactone  
+##### 7021#       发表于 2026-8-13 17:13
+
+练炸也就是浪费时间，之前的节点又不是不能拿出来用
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Promeus  
+##### 7022#       发表于 2026-8-13 17:14
+
+略高于k3，微微落后f5，但在coding领域搭配ds harness水平相当。
+价格取消峰谷定价，统一全天价格。flash倾向不变或少涨一点。 pro价格会翻番，几倍不确定
+发布时间会拖到中旬，模型准备好了，但内部想和harness一块发布，目前正在和开源项目适配，harness类似pi，提供极简形式你来自定义能力。
+#(吐舌)#(吐舌)#(吐舌)#(吐舌)再等等吧
+
+ 顺便内鬼上次发言<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhongjie  
+##### 7023#       发表于 2026-8-13 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069010&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-13 17:04</a>
+
+#(呵呵)rt 可以看楼主上个帖子的内容。
+
+首先回答几个问题：1.灰测是否路由到f5？纯假，这种时刻关注大模型 ...</blockquote>
+哪里发的，我去找找？
+
+*****
+
+####  Promeus  
+##### 7024#       发表于 2026-8-13 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069085&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-8-13 17:16</a>
+哪里发的，我去找找？</blockquote>
+https://tieba.baidu.com/p/10940698624?share=9105&amp;fr=sharewise
+
+*****
+
+####  nxmonitor  
+##### 7025#       发表于 2026-8-13 17:17
+
+现在明显是部署问题吧？三个思考强度没有区别…
+
