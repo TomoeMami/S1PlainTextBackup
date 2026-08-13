@@ -10752,3 +10752,56 @@ deepseek v4的架构又没改，就多了dspark，推理infra早就优化好对�
 好像Grok也有Qwen同样的问题，表现比不上AA的分数，马斯克有刷分的前科吗？难道是过去Grok太区了所以刷了也 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老马一直是自己榜单无敌，4.5表现不错挽回了不少口碑
 
+
+*****
+
+####  nxmonitor  
+##### 6980#       发表于 2026-8-13 15:49
+
+<blockquote>Lorraine_Kinney 发表于 2026-8-13 15:47
+老马一直是自己榜单无敌，4.5表现不错挽回了不少口碑</blockquote>
+
+但是4.6明显强度不行，看来是旧病复发了…
+
+*****
+
+####  Promeus  
+##### 6981#       发表于 2026-8-13 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70068290&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-13 15:36</a>
+不管如何我还是觉得融资之后的ds最近不是很正常，连续莫名其妙提前给自己划DDL又没法兑现。昨天又莫名其妙 ...</blockquote>
+其实r1之前他们也喜欢八九点钟发模型<img src="https://static.stage1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+*****
+
+####  phorcys02  
+##### 6982#       发表于 2026-8-13 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70068255&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-8-13 15:30</a>
+
+已转发
+
+🚨 DS Fingerprint 变化！
+
+deepseek-v4-flash</blockquote>
+v4 pro的指纹也变了
+
+15:00左右是 fp_v4pro_20260812_prod0820_fp8_kvcache_20260402
+
+现在是: a307abda487cd1b463329ccb945ce396
+
+
+*****
+
+####  ly4236  
+##### 6983#       发表于 2026-8-13 15:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我去登下试试
+
+*****
+
+####  qz66618  
+##### 6984#       发表于 2026-8-13 15:54
+
+这个字符串有点像新模型了
+
