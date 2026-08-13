@@ -3192,3 +3192,54 @@ README.md
 
 还没有开GitHub的缘故就S1首发了，可自由转载，带个本楼出处就行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 7701#       发表于 2026-8-14 03:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072198&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-8-14 03:08</a>
+
+我让它去搬运本地做好的搜索MCP，不用依赖ds 官方api搜索，然后再去git偷OpenCode的技能 ...</blockquote>
+有搜索的轮子吗，我让他接个duck duck go折腾了5块钱了还没弄好<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sacross  
+##### 7702#       发表于 2026-8-14 03:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072201&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-14 03:17</a>
+有搜索的轮子吗，我让他接个duck duck go折腾了5块钱了还没弄好</blockquote>
+新版不是本身就有搜索么，有的DS自家搜索的样子，测试下来倒是感觉一般般，可能得用Sear做辅助验证了
+
+—— 来自 OnePlus IN2020, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  squallx  
+##### 7703#       发表于 2026-8-14 03:23
+
+让她做一个一键启动DSH带图标 然后这肥鱼自拍把瘦脸拉满了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+whale.ico
+
+2026-8-14 03:22 上传
+点击文件名下载附件
+
+6.92 KB, 下载次数: 0
+
+*****
+
+####  qwased  
+##### 7704#       发表于 2026-8-14 03:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072202&amp;ptid=2275806" target="_blank">Sacross 发表于 2026-8-14 03:20</a>
+
+新版不是本身就有搜索么，有的DS自家搜索的样子，测试下来倒是感觉一般般，可能得用Sear做辅助验证了
+
+— ...</blockquote>
+我接基元的DS，用官方api搜索就要另外扣钱了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
