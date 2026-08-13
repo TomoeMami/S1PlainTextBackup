@@ -10195,3 +10195,92 @@ https://api-docs.deepseek.com/zh-cn/
 
 两点了，dsh呢，这个得发吧    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  RookieTnT  
+##### 6919#       发表于 2026-8-13 14:06
+
+pro拉了.. 提升太少.
+
+*****
+
+####  LeoDT  
+##### 6920#       发表于 2026-8-13 14:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70067528&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-13 13:54</a>
+
+首先灰测一直是这样的，v4预览发布前灰测了很久。dsh作为一个面向用户的产品也必须提前测试和拉上开发者 ...</blockquote>
+可能还是我过于理想了。单说dsh的话，如果坚持开源路线，出个alpha版给所有人用也不是不可以。开源软件哪有搞小圈子内测的习惯，上了基础版慢慢改就行了，社区都是这样慢慢成长起来的。
+
+恶意揣测是招了个某种恶臭互联网行业的产品/运营/市场之类的负责人进来。
+
+
+*****
+
+####  ly4236  
+##### 6921#       发表于 2026-8-13 14:08
+
+保持低成本，这种看起来自由散漫的事儿少不了的。我感觉还行。
+
+*****
+
+####  RookieTnT  
+##### 6922#       发表于 2026-8-13 14:08
+
+更新文档里面没有任何 0813 的信息，现在官网里面也只剩下了 API 价格那里还有了
+
+*****
+
+####  RookieTnT  
+##### 6923#       发表于 2026-8-13 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70067606&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-13 14:06</a>
+
+可能还是我过于理想了。单说dsh的话，如果坚持开源路线，出个alpha版给所有人用也不是不可以。开源软件哪 ...</blockquote>
+我也觉得一个harness搞得神神秘秘的.. 比模型还神秘. 没必要
+
+*****
+
+####  zy450  
+##### 6924#       发表于 2026-8-13 14:09
+
+这种草台小公司风格，真把DS当实验室了，突出一个不在乎外界影响
+
+*****
+
+####  RookieTnT  
+##### 6925#       发表于 2026-8-13 14:10
+
+DeepSeek 官网及 API 开放平台已撤下“DeepSeek V4 Pro 正式版上线”相关横幅，但 API 文档页面并没有变化。
+
+[https://web.archive.org/web/20260000000000](https://web.archive.org/web/20260000000000)*/https://www.deepseek.com/
+
+
+*****
+
+####  Promeus  
+##### 6926#       发表于 2026-8-13 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70067606&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-13 14:06</a>
+可能还是我过于理想了。单说dsh的话，如果坚持开源路线，出个alpha版给所有人用也不是不可以。开源软件哪 ...</blockquote>
+搞dsh的负责人崔添翼也是搞量化的，他还是著名ACM竞赛文章背包九讲的作者，是和梁子一个路数出来的
+
+*****
+
+####  AzuEdit  
+##### 6927#       发表于 2026-8-13 14:13
+
+这楼的标题又可以改了。来了吗？如来。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/34/23d6e9a076b1fff7c68b4804bec2142c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  bhunter  
+##### 6928#       发表于 2026-8-13 14:14
+
+要不。。。open ai都逃逸了，ds也逃逸吧。
+
+ds v4 pro正式版逃逸，自己部署自己，没有完全部署被抓回去了。
+
+你问谁抓的？那肯定是flash呀。
+
