@@ -10368,3 +10368,44 @@ ds v4 pro正式版逃逸，自己部署自己，没有完全部署被抓回去�
 
 —— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  goranger  
+##### 6938#       发表于 2026-8-13 14:39
+
+到目前为止，所有幺蛾子都跟马鞍组高强度相关，包括微信群招募内测。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  →熙←  
+##### 6939#       发表于 2026-8-13 14:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我知道,是临时工的问题
+
+*****
+
+####  tonberry  
+##### 6940#       发表于 2026-8-13 14:41
+
+我下午用flash max重做的比上午pro干的活质量要好<img src="https://static.stage1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 6941#       发表于 2026-8-13 14:43
+
+好像Grok也有Qwen同样的问题，表现比不上AA的分数，马斯克有刷分的前科吗？难道是过去Grok太区了所以刷了也没人理会？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tillnight  
+##### 6942#       发表于 2026-8-13 14:44
+
+<blockquote>nxmonitor 发表于 2026-8-13 14:43
+好像Grok也有Qwen同样的问题，表现比不上AA的分数，马斯克有刷分的前科吗？难道是过去Grok太区了所以刷了也 ...</blockquote>
+Grok当然有过度对齐的前科。
+
