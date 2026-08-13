@@ -7799,3 +7799,52 @@ Responses API支持web_search ，pro升没升级看这个不就行了
 
 不会真的拉了吧，梁子<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6658#       发表于 2026-8-13 08:16
+
+感觉很一般啊……梁子，你莫不是消遣大伙吧
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  wandeeees  
+##### 6659#       发表于 2026-8-13 08:18
+
+而且我用pi+V4 PRO GA high，连个调用subagent都调用不好<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真说不好是不是他们草台班子，按理说要更新就应该全部一起更新，文档，评分，公众号，感觉应该是今天工作时间连着DSH一起更新的，但是不知道为啥弄成部分更新了
+
+*****
+
+####  舞以  
+##### 6660#       发表于 2026-8-13 08:20
+
+我现在真的很想说服自己，等到九十点钟会api爆炸，然后出现的是那个7月初的模型<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 6661#       发表于 2026-8-13 08:21
+
+真正确定更新了的就文档和指纹吧<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+不好说是哪位员工是不是草台了🤔
+
+哦，还有官方的codex配置脚本
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6662#       发表于 2026-8-13 08:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065036&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-13 08:21</a>
+真正确定更新了的就文档和指纹吧
+不好说是哪位员工是不是草台了🤔</blockquote>
+但现在pro指令遵循能力确实提高了，也能读完skill了，所以就很怪……
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
