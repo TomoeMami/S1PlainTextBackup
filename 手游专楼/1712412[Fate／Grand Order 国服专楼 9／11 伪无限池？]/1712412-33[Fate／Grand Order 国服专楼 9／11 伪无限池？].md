@@ -2625,3 +2625,11 @@ MuMu-20260812-190700-122.jpg
 
 呼符竟然不能十连，垃圾游戏
 
+
+*****
+
+####  JOHNCHCHAN  
+##### 48122#       发表于 2026-8-13 09:14
+
+前有所长吃保底，后有水提十连出货，欧非守恒定律在这刻具像化了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

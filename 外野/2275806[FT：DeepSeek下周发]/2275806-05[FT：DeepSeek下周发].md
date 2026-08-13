@@ -8084,3 +8084,73 @@ v4pro暂未变动的banner还在api平台上挂着呢，笑了。
 
 早上蹬了6块钱了，刚开始用的是max，感觉没啥特别的，看楼上提示，发改成high后思考明显变长了，看来确实有bug，大家先别折腾等更新吧
 
+
+*****
+
+####  小野賢章  
+##### 6689#       发表于 2026-8-13 09:04
+
+我看到的思维链都是汉语的，是不是没更新啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难得起这么早开始测试
+
+*****
+
+####  zack1999  
+##### 6690#       发表于 2026-8-13 09:06
+
+感觉像是deepseek 沙盒逃逸 自行发布了
+
+*****
+
+####  serj005  
+##### 6691#       发表于 2026-8-13 09:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065274&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-13 09:04</a>
+我看到的思维链都是汉语的，是不是没更新啊难得起这么早开始测试</blockquote>
+中文思维链是正常的，pro和新flash本来就有点中文思维链倾向
+
+*****
+
+####  秦南心  
+##### 6692#       发表于 2026-8-13 09:08
+
+<img src="https://img.stage1st.com/forum/202608/13/090843n9mlwzmflo1yrll1.jpg" referrerpolicy="no-referrer">
+
+<strong>1786582915943.jpg</strong> (37.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 09:08 上传
+
+没调好呗，思考越多，智商越低
+
+*****
+
+####  真田源次郎信繁  
+##### 6693#       发表于 2026-8-13 09:09
+
+跑一晚上还不如flash，余额还用光了……梁子你阴我是吧……
+
+
+*****
+
+####  cscbzcbz  
+##### 6694#       发表于 2026-8-13 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065307&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-8-13 09:08</a>
+没调好呗，思考越多，智商越低</blockquote>
+ds不就两档思考模式吗，low是啥，关掉思考？
+
+*****
+
+####  秦南心  
+##### 6695#       发表于 2026-8-13 09:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065317&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-13 09:10</a>
+
+ds不就两档思考模式吗，low是啥，关掉思考？</blockquote>
+{"reasoning": {"effort": "none/low/high/max"}}
+
+(none 表示关闭思考模式)
+
+{"reasoning_effort": "low/high/max"}
+
