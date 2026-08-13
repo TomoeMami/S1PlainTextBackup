@@ -7753,3 +7753,49 @@ ds的微信群怎么加来着
 
 提前把文档更新submit了这是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奥柏伦亲王  
+##### 6652#       发表于 2026-8-13 08:07
+
+普普通通吧，等harness看看做的如何
+
+*****
+
+####  神必迷你龙  
+##### 6653#       发表于 2026-8-13 08:07
+
+直接打成梁仔！
+
+*****
+
+####  舞以  
+##### 6654#       发表于 2026-8-13 08:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">等ds官方的公告吧，到时候再审判梁子也不迟
+
+*****
+
+####  hollowd  
+##### 6655#       发表于 2026-8-13 08:11
+
+Responses API支持web_search ，pro升没升级看这个不就行了
+
+*****
+
+####  黑夜中的冥想  
+##### 6656#       发表于 2026-8-13 08:11
+
+怎么感觉根本没更新啊。。。。
+
+
+*****
+
+####  舞以  
+##### 6657#       发表于 2026-8-13 08:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">试了下之前那个双叉臂悬挂测试，生成的效果还行，但也只是还行啊。
+
+不会真的拉了吧，梁子<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
