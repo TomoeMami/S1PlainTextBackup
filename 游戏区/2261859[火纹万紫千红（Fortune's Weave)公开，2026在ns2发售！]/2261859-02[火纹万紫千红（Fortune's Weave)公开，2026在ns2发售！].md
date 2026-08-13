@@ -9698,3 +9698,11 @@ XCOM2 新DLC实装<img src="https://static.stage1st.com/image/smiley/face2017/04
 
 难道真要搞个三房大宇宙？？
 
+
+*****
+
+####  hkguty  
+##### 2402#       发表于 2026-8-13 20:24
+
+真要做三房后传随便糖塞一句平行世界就行了
+

@@ -13656,3 +13656,136 @@ opencode go的v4f都敢给双倍的活动
 
 梁子涨价说明他们卡真的不够 普通用户这段时间猛蹬已经影响到他们工作了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Milarvoz  
+##### 7295#       发表于 2026-8-13 20:28
+
+已严肃适应美国作息，后半夜站起来蹬梁子。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  cscbzcbz  
+##### 7296#       发表于 2026-8-13 20:29
+
+跑完了，用了18%的4小时用量
+结论：还是不行<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chronicle  
+##### 7297#       发表于 2026-8-13 20:29
+
+便宜 ✖️
+
+花钱买你的上下文 ☑️
+
+现在数据收集完了，要开训了。
+
+*****
+
+####  cscbzcbz  
+##### 7298#       发表于 2026-8-13 20:31
+
+后面就靠go套餐续命吧，跌落神坛了
+
+DSH还发不发了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  spaceblue  
+##### 7299#       发表于 2026-8-13 20:33
+
+<img src="https://img.stage1st.com/forum/202608/13/203315m91c8n6ycfbftz66.png" referrerpolicy="no-referrer">
+
+<strong>5910202d3b51f223be347437984dfa0a.png</strong> (76.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 20:33 上传
+
+<img src="https://img.stage1st.com/forum/202608/13/203322h659toto96zgob7d.png" referrerpolicy="no-referrer">
+
+<strong>93cfae5d760080041d3671c134e17e14.png</strong> (89.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 20:33 上传
+
+*****
+
+####  ly4236  
+##### 7300#       发表于 2026-8-13 20:33
+
+战中战之最后一站。
+
+下周一才涨价，这几天得狂蹬了。
+
+*****
+
+####  jojog  
+##### 7301#       发表于 2026-8-13 20:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">DS都要涨价，是否可以正面closeai在贴钱，grok随时可能降智就是一坨
+
+*****
+
+####  CCauchy  
+##### 7302#       发表于 2026-8-13 20:33
+
+go能蹬多少亿，感觉涨价前也是go最便宜
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  狭义文具爱好者  
+##### 7303#       发表于 2026-8-13 20:34
+
+权重也开了，没有奇迹了
+
+*****
+
+####  crow_wine  
+##### 7304#       发表于 2026-8-13 20:35
+
+没有奇迹了
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  justwul  
+##### 7305#       发表于 2026-8-13 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=70070351&amp;amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-8-13 20:33</a></blockquote>
+发了吗？
+
+*****
+
+####  spaceblue  
+##### 7306#       发表于 2026-8-13 20:37
+
+[https://www.npmjs.com/package/@deepseek-ai/dsh](https://www.npmjs.com/package/@deepseek-ai/dsh) 来了
+
+*****
+
+####  masonknight  
+##### 7307#       发表于 2026-8-13 20:38
+
+我觉得之前的预览版也够我用了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梁子不如重新发一下预览版吧，当然价格也和之前的一样就行
+
+*****
+
+####  zhanglei1943  
+##### 7308#       发表于 2026-8-13 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070373&amp;ptid=2275806" target="_blank">justwul 发表于 2026-8-13 20:36</a>
+
+发了吗？</blockquote>
+只是解禁了吧
+
