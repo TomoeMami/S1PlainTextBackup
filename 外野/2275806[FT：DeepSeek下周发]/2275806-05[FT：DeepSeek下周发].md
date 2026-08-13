@@ -9616,3 +9616,71 @@ cli 用 esc 吧
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  绝地潜兵  
+##### 6852#       发表于 2026-8-13 12:37
+
+那看来flash和PO只有参数量的不同，能力是一样的
+
+*****
+
+####  风速前进mo  
+##### 6853#       发表于 2026-8-13 12:39
+
+感觉完全没有用pro的必要啊，能力差不多为什么不用便宜的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  午夜钓者  
+##### 6854#       发表于 2026-8-13 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70067024&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-13 12:35</a>
+
+这不是灰测拉高的期待值，我就从没看那些视频，也没roll到灰测
+
+我是根据flash能力倒推的</blockquote>
+跟flash比还是略有提升
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6855#       发表于 2026-8-13 12:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70067043&amp;ptid=2275806" target="_blank">午夜钓者 发表于 2026-8-13 12:39</a>
+跟flash比还是略有提升</blockquote>
+我个人感觉就和flash与glm5.2的差距差不多，有，但不多，说实话某些情况下体感都不体感不出来
+最重要的是，我本来以为1.6t大参数能大幅度提高开放性写作能力，结果这什么玩意<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  nianiania  
+##### 6856#       发表于 2026-8-13 12:44
+
+等下午有没有奇迹发生，昨晚好失望，本来想着终于可以停掉两个codex账号了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狭义文具爱好者  
+##### 6857#       发表于 2026-8-13 12:45
+
+现在不说对不上灰测和flash后训练预期了，先对不上的是自己的跑分。Terminal Bench 2.1，v4fga官方跑分82，第三方79算是正常误差和工具差异。v4pga官方87.9，第三方79和v4fga一样，还不只一个跑分这样。
+
+*****
+
+####  午夜钓者  
+##### 6858#       发表于 2026-8-13 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70067061&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-13 12:42</a>
+
+我个人感觉就和flash与glm5.2的差距差不多，有，但不多，说实话某些情况下体感都不体感不出来
+
+最重要的是 ...</blockquote>
+大参数后训练出问题了，flash因为体量小，后训练的比较好
+
