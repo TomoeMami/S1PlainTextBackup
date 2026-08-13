@@ -10537,3 +10537,14 @@ Avengers Assemble！
 
 真主角确定也在五年前主线有戏份加从0级开始培养了，试玩媒体选的初始弓兵职业。
 
+
+*****
+
+####  纯夏  
+##### 2479#       发表于 2026-8-14 02:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072155&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-8-14 02:19</a>
+
+不会能回前作地图吧</blockquote>
+时间线差太多 即便能回地形也会变化
+

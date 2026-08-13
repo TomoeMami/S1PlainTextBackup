@@ -3073,3 +3073,29 @@ dsh plugin --profile web add @0rch1d/dsh-client-ui-opencode-go@1.0.2    [Re:So
 第三方的Deepseek V4 Flash+DSH速度也快到飞起，这是啥原理</blockquote>
 其实只是单行显示看上去快，下面显示的80多tps的速度其实和接omp/opencode没啥区别。
 
+
+*****
+
+####  舞以  
+##### 7694#       发表于 2026-8-14 02:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我直接让它给我写个codex订阅适配，商量了两轮，结果直接就挂上了草
+
+这个harness太好玩了
+
+*****
+
+####  苇原雪道  
+##### 7695#       发表于 2026-8-14 02:52
+
+还是不行，DSH内部一堆权限管理禁止局域网操作。还是走反代吧。。。
+
+然后，DSH这咋没个权限管理啊？感觉在全世界改我的文件。。。好怕他把我环境搞炸。。。
+
+*****
+
+####  舞以  
+##### 7696#       发表于 2026-8-14 02:53
+
+权限感觉等插件了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
