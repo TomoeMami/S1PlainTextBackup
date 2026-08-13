@@ -3022,3 +3022,24 @@ dsh plugin --profile web add @0rch1d/dsh-client-ui-opencode-go@1.0.2    [Re:So
 
 让它帮我手写个酒馆和chatbox
 
+
+*****
+
+####  qwased  
+##### 7689#       发表于 2026-8-14 02:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072156&amp;ptid=2275806" target="_blank">四氧化三铅 发表于 2026-8-14 02:19</a>
+
+不是码农我就想知道经过了一天现在梁文峰评价是有定论了吗</blockquote>
+感觉还是梁仔，DSPRO这个let me but wait的左右脑互搏思维链纯纯浪费token来的，还不如flash干得好
+
+*****
+
+####  苇原雪道  
+##### 7690#       发表于 2026-8-14 02:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072151&amp;ptid=2275806" target="_blank">苇原雪道 发表于 2026-8-14 02:14</a>
+
+问了半天我另一个部署好的DSH，它看了半天自己的源码，最后告诉我只能是走SSH中继或者反向代理，吐了。。。 ...</blockquote>
+压力了一下DS老师，他竟然找到解决方法了。。。果然还是得不停压力他！！！<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
