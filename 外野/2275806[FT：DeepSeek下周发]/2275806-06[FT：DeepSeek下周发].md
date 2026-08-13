@@ -3254,3 +3254,45 @@ whale.ico
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  舞以  
+##### 7706#       发表于 2026-8-14 04:13
+
+对比了一下v4pro x dsh，sol-max x dsh和sol-ultra x codex在双叉臂上的产物，我感觉我想给pro翻案了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/html.gif" referrerpolicy="no-referrer">
+
+sol dsh.html
+(29.76 KB, 下载次数: 0)
+
+2026-8-14 04:12 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/html.gif" referrerpolicy="no-referrer">
+
+v4pro dsh.html
+(50.76 KB, 下载次数: 0)
+
+2026-8-14 04:12 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/html.gif" referrerpolicy="no-referrer">
+
+gpt codex.html
+(60.36 KB, 下载次数: 0)
+
+2026-8-14 04:13 上传
+
+点击文件名下载附件
+
+*****
+
+####  Wiksy  
+##### 7707#       发表于 2026-8-14 04:13
+
+DSH随便试了一条，回复太长的话web端会卡，估计到时候得优化一下，毕竟写点啥代码就很容易思考巨长无比<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
