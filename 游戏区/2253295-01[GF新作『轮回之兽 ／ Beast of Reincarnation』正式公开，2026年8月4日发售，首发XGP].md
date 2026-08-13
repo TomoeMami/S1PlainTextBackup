@@ -2945,3 +2945,11 @@ GF还是老老实实抱宝可梦大腿吧</blockquote>
 
 远程强化一个箭矢大约五万左右，这数值缺口太大了，打出来的满级石头我卖了40万都没够<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KOS_MO  
+##### 574#       发表于 2026-8-13 15:17
+
+各种地方都透着一股半成品的感觉，当2A的话有的想法能算是惊喜，但是你又卖3A的价格<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

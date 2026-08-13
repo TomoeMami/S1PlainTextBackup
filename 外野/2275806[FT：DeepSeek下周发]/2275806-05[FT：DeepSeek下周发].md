@@ -10603,3 +10603,48 @@ Grok 之前刷分刷的比较猛，一上手就是蛆。但是 Grok 4.5 是真�
 
 不让哭诉的你们才是二游社区吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hugosol  
+##### 6964#       发表于 2026-8-13 15:16
+
+这楼已经是目前互联网上情绪比较稳定的社区了
+
+B站各种提前开吹的，评论区破防的，linxudo也有人开始信誓旦旦地表示灰测转发肥波5的节奏我是看不下去了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wlhlz  
+##### 6965#       发表于 2026-8-13 15:16
+
+花了真金白银的抱怨一下不是很正常，我今天也花了一毛四呢<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  crow_wine  
+##### 6966#       发表于 2026-8-13 15:18
+
+花了1块多测试的<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+我bug都处理好3个了还没好<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+好久没有手写代码了，分析功力不减当年<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  当光停止  
+##### 6967#       发表于 2026-8-13 15:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马丹，坛友别那么入戏啊。内鬼、滑坡、捂嘴、贷款、社区豆蒸都来了。
+
+梁子全责。
+
+*****
+
+####  Promeus  
+##### 6968#       发表于 2026-8-13 15:18
+
+<img src="https://p.sda1.dev/34/3ffbf4853542e0da43c4574771ef5448/image.jpg" referrerpolicy="no-referrer">
+Fable思维链好像也被偷出来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
