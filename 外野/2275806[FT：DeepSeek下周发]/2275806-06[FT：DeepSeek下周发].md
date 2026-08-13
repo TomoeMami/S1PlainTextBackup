@@ -3107,3 +3107,88 @@ dsh plugin --profile web add @0rch1d/dsh-client-ui-opencode-go@1.0.2    [Re:So
 
 感觉还是得回归老路，让pro做好计划之后让flash执行，然后pro调用子代理好像不怎么积极，让他写个插件试试<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PurplePeppers  
+##### 7698#       发表于 2026-8-14 03:05
+
+这个插件系统挺有意思，本来想基于Pi写一个自用的desktop app，现在可以换成dsh了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绝地潜兵  
+##### 7699#       发表于 2026-8-14 03:08
+
+我让它去搬运本地做好的搜索MCP，不用依赖ds 官方api搜索，然后再去git偷OpenCode的技能<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  奈姆乐斯美都莎  
+##### 7700#       发表于 2026-8-14 03:12
+
+ 本帖最后由 奈姆乐斯美都莎 于 2026-8-14 03:14 编辑 
+
+再……再来一回合（天黑抬头过了”亿会“天怎么又黑了.jpg）
+
+先推一下非代码环境下简单好用的插件（楼上有问）
+
+首先这部分插件的来源都是 [https://github.com/omdsh-dev/](https://github.com/omdsh-dev/) 
+
+dsh-plugin-check
+
+插件拉取前的体检，用 DSH 自部署前可以扫一遍确认安全
+
+dsh-notification
+
+状态通知（跑完/卡了/坏了弹窗），但触发挺迷的，时好时不好，记得在浏览器允许通知（命令行环境未知效果）
+
+dsh-open-in-vscode
+
+可以用 vs code 打开你的 DSH 会话组，还可以通过”传纸条“的方式让 DSH 使用 vs code（因为我有Ren'Py的vs code开发环境所以姑且提一嘴了ww）
+
+dsh-web-archive
+
+把工具卡片/Think 推理块折叠成 "Deep Sleeping..." 小卡片
+
+DSH-better-sidebar
+
+完整侧边栏工作台（文件编辑/终端/Git/子代理），让 DSH 的界面”熟悉“一点同时更”丰富“一点
+
+dsh-at-file
+
+使用”@“命令直接读本地文件，不用大段大段的给路径和文件名了（但似乎有一个默认的对话前注入，可以让 DSH 把它关掉，省 token 和注意力）
+
+————————————
+
+然后我用 DSH 搓了个小轮子，特意问了D指导发现没人做，我就献丑了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+简单来说就是可以自检本地“归档”的文件，拉出列表，并可以选择性恢复成对话的插件（听说已经有删除的但是没有恢复的，这是为什么233）
+
+使用方法：
+
+左下角“齿轮”设置页「归档检查及恢复」 → 勾选列表中要恢复的对话 → 恢复选中
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+dsh-archive-restore-0.2.0.tgz
+(12.93 KB, 下载次数: 0)
+
+2026-8-14 03:02 上传
+
+点击文件名下载附件
+
+（MD5：DF9D252A8A39F0823741E78F3F2E377D）
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+README.md
+(6.19 KB, 下载次数: 0)
+
+2026-8-14 03:03 上传
+
+点击文件名下载附件
+
+还没有开GitHub的缘故就S1首发了，可自由转载，带个本楼出处就行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
