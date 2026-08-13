@@ -14465,3 +14465,157 @@ web端不好用, tui啥时候出
 
 web/gui用不来，他这个tui说要install plugin怎么搞，感觉没看到文档啊    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  c月光咖啡  
+##### 7383#       发表于 2026-8-13 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070552&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-13 21:04</a>
+这个仓库居然有12293次提交</blockquote>
+估计是ai改的，我把我做好并本地测试好的应用部署到内网，反复调试和修改就有200+次
+
+—— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
+
+*****
+
+####  库德里尔  
+##### 7384#       发表于 2026-8-13 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070637&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-13 21:21</a>
+
+目前这个harness没办法直接查看和修改文件内容，改代码什么的感觉有点麻烦</blockquote>
+写文件早就测试过了呀。
+
+连读文件都不行就很奇怪了，读写和websearch我都基本地跑过了，权限配的是workspace write吗？给的四个默认模式应该都支持读写的
+
+*****
+
+####  Promeus  
+##### 7385#       发表于 2026-8-13 21:28
+
+这速度飞一样啊<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 7386#       发表于 2026-8-13 21:29
+
+不知道做了什么优化，速度有点惊人，也许是现在用的人少了？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 7387#       发表于 2026-8-13 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070681&amp;ptid=2275806" target="_blank">库德里尔 发表于 2026-8-13 21:28</a>
+
+写文件早就测试过了呀。
+
+连读文件都不行就很奇怪了，读写和websearch我都基本地跑过了，权限配的是worksp ...</blockquote>
+我的意思是打开直接在界面里打开文件，就像现有的codex桌面端那样<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浅夏晴雨  
+##### 7388#       发表于 2026-8-13 21:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070681&amp;ptid=2275806" target="_blank">库德里尔 发表于 2026-8-13 21:28</a>
+
+写文件早就测试过了呀。
+
+连读文件都不行就很奇怪了，读写和websearch我都基本地跑过了，权限配的是worksp ...</blockquote>
+我猜说的是没有内置的 文件树 + editor 吧
+
+*****
+
+####  阿刚  
+##### 7389#       发表于 2026-8-13 21:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070676&amp;ptid=2275806" target="_blank">Dreki 发表于 2026-8-13 21:27</a>
+
+web/gui用不来，他这个tui说要install plugin怎么搞，感觉没看到文档啊    Re:Source</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">我全程让hermes帮我装的
+
+*****
+
+####  小野賢章  
+##### 7390#       发表于 2026-8-13 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070676&amp;ptid=2275806" target="_blank">Dreki 发表于 2026-8-13 21:27</a>
+
+web/gui用不来，他这个tui说要install plugin怎么搞，感觉没看到文档啊    Re:Source</blockquote>
+那个tui就是个名字，实际上不支持tui
+
+*****
+
+####  kozalak  
+##### 7391#       发表于 2026-8-13 21:31
+
+只能说灰度版和flash把我的期待度拉太高了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  →熙←  
+##### 7392#       发表于 2026-8-13 21:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">万物都插件,等大佬做破甲插件了
+
+
+*****
+
+####  小野賢章  
+##### 7393#       发表于 2026-8-13 21:34
+
+我来试一试用dsh跑k3是什么效果<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 7394#       发表于 2026-8-13 21:35
+
+等插件呗，估计桌面端和tui插件要不了多久就会出来了
+
+*****
+
+####  Dreki  
+##### 7395#       发表于 2026-8-13 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070703&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-13 21:31</a>
+那个tui就是个名字，实际上不支持tui</blockquote>
+草，原来是在等别人写tui插件吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  王兰花秀丽  
+##### 7396#       发表于 2026-8-13 21:35
+
+初体验，无论如何dsh作为玩具还挺好玩的，我再玩玩    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  赤星ビスコ  
+##### 7397#       发表于 2026-8-13 21:35
+
+这个harness还是蛮有意思的，code mode把长轨迹的tool call变成了代码调用tool，然后再一次性给大模型
+
+可以看看 [https://github.com/deepseek-ai/d ... -15-code-mode.zh.md](https://github.com/deepseek-ai/deepseek-harness/blob/master/.agents/notes/implemented/feature/2026-06-15-code-mode.zh.md)
+
+大模型见过高质量的代码，但是相比而言高质量的tool call轨迹少很多
+
+*****
+
+####  ST2002  
+##### 7398#       发表于 2026-8-13 21:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为啥你们全都用上了，我却还在吭哧吭哧几十kb龟速下载，试了一圈节点了。。。。。。。
+
+*****
+
+####  果壳中的松鼠  
+##### 7399#       发表于 2026-8-13 21:36
+
+艹，deepseek网页前端显示效果更新了，难道真没别的活了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
