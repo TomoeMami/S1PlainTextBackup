@@ -3099,3 +3099,11 @@ dsh plugin --profile web add @0rch1d/dsh-client-ui-opencode-go@1.0.2    [Re:So
 
 权限感觉等插件了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 7697#       发表于 2026-8-14 02:59
+
+感觉还是得回归老路，让pro做好计划之后让flash执行，然后pro调用子代理好像不怎么积极，让他写个插件试试<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
