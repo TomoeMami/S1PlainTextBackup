@@ -1290,3 +1290,142 @@ Reverse KL在生成模型里天然具有mode-seeking性质：它倾向于找到�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  蛋黄酱Release  
+##### 7526#       发表于 2026-8-13 23:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么Windows连得上 mac就一直提示api request failed
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  zhanglei1943  
+##### 7527#       发表于 2026-8-13 23:26
+
+【v4 pro+ harness】超越fable5，四冲程柴油机 3D 交互仿真 ·_哔哩哔哩_bilibili
+[https://www.bilibili.com/video/BV1kLgs6vETz/](https://www.bilibili.com/video/BV1kLgs6vETz/)
+
+有七月初内味儿了
+
+*****
+
+####  ikonon  
+##### 7528#       发表于 2026-8-13 23:27
+
+harness可玩性太高了
+
+—— 来自 Xiaomi 2311DRK48C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  死神只爱吃苹果  
+##### 7529#       发表于 2026-8-13 23:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071403&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-8-13 23:14</a>
+
+有什么想不出来的，运维啊。能力真的够强实时监控报告并带第一时间分析，个人项目流量不大的话交给他管理 ...</blockquote>
+肯定设置人为阈值好啊，为啥会认为ai全自动接管好呢
+
+人为设置触发阈值，量化也好，这种运维监控也好
+
+最快，最廉价（几乎免费），可控性max
+
+还是说懒到制定一套 运维/量化交易的触发阈值都难？
+
+运维这种如果你连什么时候需要 人工（这里指ai）介入都不知道，那你完全无法负责任。
+
+量化交易就不说了。当然不是你提出的量化，是楼上说的。
+
+如果一个人需要用ai全权“模糊判定“ai，24小时运行然后帮他交易，他大概对量化交易这个领域一无所知。
+
+*****
+
+####  qwased  
+##### 7530#       发表于 2026-8-13 23:28
+
+<img src="https://img.stage1st.com/forum/202608/13/232744wkk9rl93v6uul77a.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>ea711cc46205ab431c9c37f8ee1ce420.webp</strong> (159.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 23:27 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">赠币玩了一星期，玩AI真有点爽啊，加上DS这个逆天的价格就更爽了
+
+*****
+
+####  王兰花秀丽  
+##### 7531#       发表于 2026-8-13 23:29
+
+对subagent的处理确实特殊的，还支持反复对话，不像大多数都是one shot    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  crow_wine  
+##### 7532#       发表于 2026-8-13 23:29
+
+小试 5 块钱的 pro 看看。模型能力感觉没很强，但是这个 harness 我觉得可以当主力 agent 了。在 pro 和 flash 差不多的能力下，flash 分析了半天的bug，pro 在这个 harness 上很快有的重大进展
+
+*****
+
+####  不知  
+##### 7533#       发表于 2026-8-13 23:29
+
+虽然不及预期，不过得说deepseek允许退款还是很有良心的，希望早日恢复正常水平。
+
+
+*****
+
+####  chronicle  
+##### 7534#       发表于 2026-8-13 23:30
+
+<img src="https://img.stage1st.com/forum/202608/13/232942yhbah32oho208qq0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (193.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 23:29 上传
+
+v4 pro max，macmini 3d 结构图
+
+只能说至少能跑出来。。。
+
+*****
+
+####  冤枉呐  
+##### 7535#       发表于 2026-8-13 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071281&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-8-13 22:54</a>
+和Pi太像了啥都能自己装</blockquote>
+supergrok拉到这里面auth登录可行不
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  哥伦布蛋  
+##### 7536#       发表于 2026-8-13 23:32
+
+harness太丝滑了。。<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 7537#       发表于 2026-8-13 23:32
+
+试了下 DSH+pro ， 真有点灰度那个味道
+
+大晚上不知道让他干嘛，尝试了一句话生成minecraft，基本没啥问题了，上下和左右颠倒的祖传bug也复现了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  startraveller  
+##### 7538#       发表于 2026-8-13 23:33
+
+看这会B站和贴吧的反馈，好像又好起来了？
+
