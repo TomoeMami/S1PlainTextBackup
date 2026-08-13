@@ -11614,3 +11614,83 @@ https://github.com/c0de3/dsh-skins
 
 等一下，看雷达分现在pro的low档是不是赢过gpt所有high档了？
 
+
+*****
+
+####  舞以  
+##### 7072#       发表于 2026-8-13 18:38
+
+你觉得ds是大厂，ds不觉得自己是啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+就是个lab，附带一个有魔法的第一方托管服务平台而已。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  半江瑟瑟半江红  
+##### 7073#       发表于 2026-8-13 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069592&amp;ptid=2275806" target="_blank">雷猴雷猴 发表于 2026-8-13 18:24</a>
+这个知乎回答挺有意思。对于DS v4 pro 0813的一个有趣的小巧思。 - 爆裂熊猫的文章 - 知乎
+
+https://zhuanla ...</blockquote>
+这回答一眼gpt5.6写的……
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  谎称  
+##### 7074#       发表于 2026-8-13 18:38
+
+永远相信梁圣
+
+*****
+
+####  zy450  
+##### 7075#       发表于 2026-8-13 18:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069613&amp;ptid=2275806" target="_blank">nianiania 发表于 2026-8-13 18:29</a>
+
+我不太理解官方一言不发是什么鬼，总不能一个运营人员都没有吧？</blockquote>
+他们哪来的运营，我记得除了官网和公众号，其他社媒就没说过话
+
+*****
+
+####  love4aids  
+##### 7076#       发表于 2026-8-13 18:40
+
+low档最高，这越思考越弱智，怎么做到的<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tonberry  
+##### 7077#       发表于 2026-8-13 18:44
+
+上次灰测那么成熟为什么不早发，为什么不和flash一起发，就算你要跟harness一起发，为啥突然在昨晚零点发，都说ds的人不加班，那我假设你是定时任务那我能不能理解成你就没打算正经发，那你为啥不打算正经发，把路由这种离谱答案去掉最终正常版本如果不如灰测，我能不能推断你是故意降低模型能力的，那你为什么这么故意
+
+这么多问题我除了炒股想不出什么合理解释
+
+*****
+
+####  舞以  
+##### 7078#       发表于 2026-8-13 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069666&amp;ptid=2275806" target="_blank">zy450 发表于 2026-8-13 18:39</a>
+他们哪来的运营，我记得除了官网和公众号，其他社媒就没说过话</blockquote>
+还有小红书喵<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  StrangerJ  
+##### 7079#       发表于 2026-8-13 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069688&amp;ptid=2275806" target="_blank">tonberry 发表于 2026-8-13 18:44</a>
+上次灰测那么成熟为什么不早发，为什么不和flash一起发，就算你要跟harness一起发，为啥突然在昨晚零点发， ...</blockquote>
+感觉你像在谈恋爱而不是在用模型<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
