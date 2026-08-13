@@ -9632,3 +9632,19 @@ XCOM2 新DLC实装<img src="https://static.stage1st.com/image/smiley/face2017/04
 
 我看这三房真要出第三部了
 
+
+*****
+
+####  xwr  
+##### 2394#       发表于 2026-8-13 15:32
+
+这部如果也大卖，那三房世界观出第三部也不奇怪。神话时代XCOM<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whzfjd  
+##### 2395#       发表于 2026-8-13 15:36
+
+这作的世界观扩展手法感觉很有机会成为下一个轨迹？
+
