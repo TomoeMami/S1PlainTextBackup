@@ -14196,3 +14196,118 @@ ocgo说了自己要提供部署，并且复现了V4F的原价
 
 —— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  舞以  
+##### 7353#       发表于 2026-8-13 20:58
+
+<img src="https://img.stage1st.com/forum/202608/13/205806wao83rzc1sjqrslu.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (185.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 20:58 上传
+
+测试再次启航😡
+
+*****
+
+####  Buke  
+##### 7354#       发表于 2026-8-13 20:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070494&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-13 20:54</a>
+DSH是只有GUI吗，有没有TUI？我最近发现TUI用上瘾了，GUI不太爱用了。</blockquote>
+有tui吧，看npmjs页面上写了
+
+*****
+
+####  小野賢章  
+##### 7355#       发表于 2026-8-13 20:59
+
+<img src="https://img.stage1st.com/forum/202608/13/205904jbrcrtj11wl8jer8.png" referrerpolicy="no-referrer">
+
+<strong>pelican-bicycle.png</strong> (38.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 20:59 上传
+
+*****
+
+####  来都来了  
+##### 7356#       发表于 2026-8-13 21:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070520&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-13 20:59</a></blockquote>
+我之前用Flash 0731画的。
+
+<img src="https://img.stage1st.com/forum/202608/13/210100x98dkhhky9hkkjjy.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1786626060122_2.webp</strong> (34.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 21:01 上传
+
+*****
+
+####  crow_wine  
+##### 7357#       发表于 2026-8-13 21:01
+
+大梦一场
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  squallx  
+##### 7358#       发表于 2026-8-13 21:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">专武合成完全体是吧 真就二游了
+
+*****
+
+####  noneoneone  
+##### 7359#       发表于 2026-8-13 21:03
+
+标题可以加上【大的就这！】了吗
+
+不过我其实无所谓，我就想试试dsh咸淡
+
+*****
+
+####  孤灯蓝影  
+##### 7360#       发表于 2026-8-13 21:03
+
+你别说这DSH有点强
+
+
+*****
+
+####  小野賢章  
+##### 7361#       发表于 2026-8-13 21:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070506&amp;ptid=2275806" target="_blank">zhanglei1943 发表于 2026-8-13 20:57</a>
+
+https://github.com/deepseek-ai/deepseek-harness</blockquote>
+这个仓库居然有12293次提交
+
+*****
+
+####  王兰花秀丽  
+##### 7362#       发表于 2026-8-13 21:04
+
+为什么主推web ui呢，感觉怪怪的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  ST2002  
+##### 7363#       发表于 2026-8-13 21:04
+
+https://b23.tv/qyizbqZ
+openhanako 的作者也参加 dsh 内测了，还发了视频
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
