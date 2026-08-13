@@ -883,3 +883,150 @@ opencode 灰度</blockquote>
 
 怎么感觉一股鲸鱼娘臭屁样
 
+
+*****
+
+####  →熙←  
+##### 7488#       发表于 2026-8-13 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071169&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-13 22:39</a>
+
+这个传说中的极简模式是不是还不支持windows，因为这个模式要调用工具bash，但是dsh设置禁止在windos上使用 ...</blockquote>
+装一个pwsh 7看看,我这里他是用pwsh的
+
+*****
+
+####  半江瑟瑟半江红  
+##### 7489#       发表于 2026-8-13 22:47
+
+Dsh有桌面版吗？我让flash接zcode里给我下一个怎么只有浏览器插件的tui版
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  小野賢章  
+##### 7490#       发表于 2026-8-13 22:48
+
+知乎上一个内侧dsh的开发者说他们开发插件的时候用的是v4flash，也是今天才用上pro的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  孤灯蓝影  
+##### 7491#       发表于 2026-8-13 22:49
+
+<blockquote>半江瑟瑟半江红 发表于 2026-8-13 22:47
+Dsh有桌面版吗？我让flash接zcode里给我下一个怎么只有浏览器插件的tui版
+
+—— 来自 HUAWEI SGU-AL10, And ...</blockquote>
+没有，问过harness了，只能浏览器内安装页面
+
+*****
+
+####  舞以  
+##### 7492#       发表于 2026-8-13 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071231&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-13 22:47</a>
+Dsh有桌面版吗？我让flash接zcode里给我下一个怎么只有浏览器插件的tui版
+
+—— 来自 HUAWEI SGU-AL10, And ...</blockquote>
+只有webui和headless，tui和gui等插件实现吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  vincevincetang  
+##### 7493#       发表于 2026-8-13 22:49
+
+蹬了一会，这harness的缓存命中是有点说法
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 7494#       发表于 2026-8-13 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071244&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-13 22:49</a>
+只有webui和headless，tui和gui等插件实现吧
+
+论坛助手,iPhone</blockquote>
+我问gpt，它誓言旦旦跟我说它可以写一个桌面版
+先让它在codex跑着了，写不好明天pua它
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  gooyoy  
+##### 7495#       发表于 2026-8-13 22:51
+
+所以还有没有反转？<img src="https://p.sda1.dev/34/e2a555a607c5c5a258e6d678423729a0/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PLA-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 秦南心 + 1对，对吗？不对不太对
+
+查看全部评分
+
+*****
+
+####  城北无尘  
+##### 7496#       发表于 2026-8-13 22:54
+
+很奇怪，dsh中自带的opencode go配置不能GPT 5.6 Luna选，去yaml里面自己输入luna模型后，不兼容，直接所有opencode go的模型都不让用了。是不是luna用专门的单独的兼容站点啊
+
+*****
+
+####  小野賢章  
+##### 7497#       发表于 2026-8-13 22:54
+
+是不是可以用cloudflared把网页暴露到公网啊，但是没有鉴权挺危险的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  spaceblue  
+##### 7498#       发表于 2026-8-13 22:54
+
+<img src="https://img.stage1st.com/forum/202608/13/224757xe3qqc3ruuq7skve.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 22:47 上传
+
+<img src="https://img.stage1st.com/forum/202608/13/224818nrz30nitnobobgzo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 22:48 上传
+
+<img src="https://img.stage1st.com/forum/202608/13/225445bggsl1tatlldtsrq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 22:54 上传
+
+和Pi太像了啥都能自己装
+
+*****
+
+####  cscbzcbz  
+##### 7499#       发表于 2026-8-13 22:55
+
+感觉用DSH驾驭deepseek pro确实比用其他agent厉害一些 是错觉吗
+
