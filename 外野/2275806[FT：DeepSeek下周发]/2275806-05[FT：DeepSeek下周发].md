@@ -9530,3 +9530,89 @@ FIM补全 API现在支持temperature了，但不建议和top_p同时开启
 我在Windows系统里让Agent开WSL运行命令一直碰到PowerShell的转义问题
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  serj005  
+##### 6843#       发表于 2026-8-13 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066941&amp;ptid=2275806" target="_blank">Rowen233 发表于 2026-8-13 12:23</a>
+我在Windows系统里让Agent开WSL运行命令一直碰到PowerShell的转义问题</blockquote>
+修改agent配置，让它自己的shell执行器默认换成bash
+
+*****
+
+####  CCauchy  
+##### 6844#       发表于 2026-8-13 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066895&amp;ptid=2275806" target="_blank">valand 发表于 2026-8-13 12:16</a>
+当然可以</blockquote>
+怎么弄啊
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  zy450  
+##### 6845#       发表于 2026-8-13 12:28
+
+横幅换了，还差更新记录！还有希望！
+
+
+*****
+
+####  valand  
+##### 6846#       发表于 2026-8-13 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066963&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-13 12:26</a>
+怎么弄啊
+
+论坛助手,iPhone</blockquote>
+cli 用 esc 吧
+
+*****
+
+####  小野賢章  
+##### 6847#       发表于 2026-8-13 12:31
+
+梁文峰老师～我还记得你～
+
+*****
+
+####  四氧化三铅  
+##### 6848#       发表于 2026-8-13 12:34
+
+不太懂，是在说pro能力跟flash 55开吗？ 这不太符合逻辑吧？那为何不把flash直接成为pro,把flash能力一开始就弱一点呢。
+
+
+*****
+
+####  Promeus  
+##### 6849#       发表于 2026-8-13 12:34
+
+有人看看上网冲浪的ds员工吗<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  午夜钓者  
+##### 6850#       发表于 2026-8-13 12:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066930&amp;ptid=2275806" target="_blank">燕山雪 发表于 2026-8-13 12:20</a>
+
+感觉这楼口碑要直奔2077去了……
+
+“没人会记得那些按时发布的垃圾模型”.webp ...</blockquote>
+无非是b站发视频吹牛逼说灰测的就是正式版把大家期望值拉高了，官方可从来没说过什么灰测
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6851#       发表于 2026-8-13 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70067016&amp;ptid=2275806" target="_blank">午夜钓者 发表于 2026-8-13 12:34</a>
+无非是b站发视频吹牛逼说灰测的就是正式版把大家期望值拉高了，官方可从来没说过什么灰测 ...</blockquote>
+这不是灰测拉高的期待值，我就从没看那些视频，也没roll到灰测
+我是根据flash能力倒推的
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
