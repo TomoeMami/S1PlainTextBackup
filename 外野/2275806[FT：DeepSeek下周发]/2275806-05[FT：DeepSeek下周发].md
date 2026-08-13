@@ -9047,3 +9047,70 @@ low86分，medium87分，max89分，这个数据是不正常的</blockquote>
 
 安安心心等更新日志吧
 
+
+*****
+
+####  myron_cloud  
+##### 6791#       发表于 2026-8-13 11:04
+
+Flash正式版思维链是中文还是英文？
+
+为啥我昨天下午之前是中文，开了个新窗口就变成了英文。。。
+
+*****
+
+####  nxmonitor  
+##### 6792#       发表于 2026-8-13 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066248&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-13 10:59</a>
+
+随便一提，flash max也是86分
+
+按这个分 pro没有存在的价值</blockquote>
+应该反过来说，Pro low就到了Flash max的水平，是不是听上去好多了？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 6793#       发表于 2026-8-13 11:05
+
+梁子别跟我们开玩笑了，赶紧把正式版拿出来吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rowen233  
+##### 6794#       发表于 2026-8-13 11:07
+
+ 本帖最后由 Rowen233 于 2026-8-13 11:08 编辑 
+
+主要感觉第三方跑分和他这个官方评分差距有点太大了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+哪怕刷分也没那么蠢的
+
+*****
+
+####  tillnight  
+##### 6795#       发表于 2026-8-13 11:09
+
+然而官方也没发跑分。说明肯定有问题的。
+
+*****
+
+####  冤枉呐  
+##### 6796#       发表于 2026-8-13 11:10
+
+我很怀疑现在根本没更
+定时任务把网页改了
+或者哪个熊人投产时候把版本打错了
+现在测评都还是灰度……
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  zy450  
+##### 6797#       发表于 2026-8-13 11:13
+
+这次太怪了，你说草台吧，这都快12小时了没什么动静；你说就这个水平吧，哪哪都对不上
+
