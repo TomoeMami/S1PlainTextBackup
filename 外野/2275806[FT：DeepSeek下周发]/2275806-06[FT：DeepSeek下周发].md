@@ -2887,3 +2887,31 @@ dsh plugin --profile web add @0rch1d/dsh-client-ui-opencode-go@1.0.2    [Re:So
 
 准备用第三方的0731V4F试试快不快<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 7675#       发表于 2026-8-14 01:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">不是，现在这个思考链是不是有问题啊，我操了一个问题他能反复思考三四次左右脑互搏看的人着急死了
+
+*****
+
+####  真田源次郎信繁  
+##### 7676#       发表于 2026-8-14 01:47
+
+等涨完价flash都和现在的pro一个价了
+
+此时不用pro等于亏了一个亿啊
+
+
+*****
+
+####  鸳鸳相抱  
+##### 7677#       发表于 2026-8-14 01:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072088&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-14 01:43</a>
+
+我就用127访问的啊，难道说ds自己部署的时候帮我把这个也设置好了？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">localhost经过域名解析后是指向127.0.0.1，这看起来更像是caddy的问题
+
