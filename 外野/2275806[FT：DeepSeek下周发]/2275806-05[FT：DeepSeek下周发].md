@@ -13569,3 +13569,90 @@ pro的性能呢, 有变化吗,  灰测到底怎么回事!
 
 等会试试harness，有一点可能是codex适配问题，雷达站用codex测的
 
+
+*****
+
+####  德尔惠净水器  
+##### 7286#       发表于 2026-8-13 20:18
+
+还有什么便宜的套餐可用吗
+
+*****
+
+####  chilming  
+##### 7287#       发表于 2026-8-13 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070132&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-13 19:52</a>
+所以说大伙都先别用，让梁子感受下哈耶克大手
+
+—— 来自 鹅球 v3.5.99</blockquote>
+大伙都先别用（让我用
+
+*****
+
+####  孤灯蓝影  
+##### 7288#       发表于 2026-8-13 20:23
+
+<blockquote>德尔惠净水器 发表于 2026-8-13 20:18
+还有什么便宜的套餐可用吗</blockquote>
+下个ollama本地部署
+
+*****
+
+####  lactone  
+##### 7289#       发表于 2026-8-13 20:23
+
+opencode go还没涨
+
+我估计第三方不会涨
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  tillnight  
+##### 7290#       发表于 2026-8-13 20:24
+
+<blockquote>lactone 发表于 2026-8-13 20:23
+opencode go还没涨
+
+我估计第三方不会涨</blockquote>
+Ds也不是现在涨啊。
+
+*****
+
+####  zhanglei1943  
+##### 7291#       发表于 2026-8-13 20:25
+
+8点25了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 7292#       发表于 2026-8-13 20:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">最后一战还有么
+
+*****
+
+####  小野賢章  
+##### 7293#       发表于 2026-8-13 20:27
+
+[https://github.com/deepseek-ai/dsh](https://github.com/deepseek-ai/dsh)
+
+还是404
+
+*****
+
+####  akirt  
+##### 7294#       发表于 2026-8-13 20:27
+
+大家乐观点
+
+opencode go的v4f都敢给双倍的活动
+
+证明这玩意部署起来成本真的很低
+
+梁子涨价说明他们卡真的不够 普通用户这段时间猛蹬已经影响到他们工作了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

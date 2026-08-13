@@ -2702,3 +2702,25 @@ MuMu-20260812-190700-122.jpg
 
 准备换手机了 不知道鸿蒙系统能玩 FGO 吗？ 
 
+
+*****
+
+####  taiyangyou  
+##### 48130#       发表于 2026-8-13 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069885&amp;ptid=1712412" target="_blank">soop 发表于 2026-8-13 19:15</a>
+准备换手机了 不知道鸿蒙系统能玩 FGO 吗？</blockquote>
+需要卓易通来运行吧。
+卓易通又是鸿蒙系统自带的软件（大概）。
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  溯夜  
+##### 48131#       发表于 2026-8-13 20:22
+
+210石头2宝水提1宝水鹤1宝美游2宝小粉逼1宝飞嫂，吓飞了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
