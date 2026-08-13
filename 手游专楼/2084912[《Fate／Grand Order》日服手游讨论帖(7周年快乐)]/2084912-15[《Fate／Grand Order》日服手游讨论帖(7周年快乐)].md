@@ -3849,3 +3849,14 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 
 水麻雀适合完全新人，水花花是给老东西抽着收藏的
 
+
+*****
+
+####  khxooo  
+##### 21412#       发表于 2026-8-13 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065721&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-13 10:00</a>
+
+？ 不是所长全秒了吗 连对面是什么都不用看</blockquote>
+那么我不喜欢用所长，你又如何应对？<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+

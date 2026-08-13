@@ -11271,3 +11271,78 @@ https://tieba.baidu.com/p/10940698624?share=9105&amp;fr=sharewise
 
 目前就没有靠谱内鬼，真有内鬼不至于从猫老板这再中转一道。dsh真有内测也真有保密协议的。
 
+
+*****
+
+####  小野賢章  
+##### 7036#       发表于 2026-8-13 17:28
+
+内部用部署个位数实例就够了
+
+*****
+
+####  tonberry  
+##### 7037#       发表于 2026-8-13 17:29
+
+我是说万一，万一是因为ds在每周可能的发布时间比较有预测性，不利于梁叔叔收割，所以这波在grok面前先装唐了
+
+*****
+
+####  真田源次郎信繁  
+##### 7038#       发表于 2026-8-13 17:29
+
+真假内鬼也来了，下一步该是deepseek内鬼吧，deepseek内鬼爆料吧了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  phorcys02  
+##### 7039#       发表于 2026-8-13 17:30
+
+把运维的人吊起来抽罢...
+
+另外可以考虑找点靠谱的运维...
+
+*****
+
+####  燕山雪  
+##### 7040#       发表于 2026-8-13 17:31
+
+继3.8max无人在意之后，qwen3.8 27b搞了个倒计时页面，看得出来很着急想要人关注了……
+
+
+*****
+
+####  qz66618  
+##### 7041#       发表于 2026-8-13 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069197&amp;ptid=2275806" target="_blank">真田源次郎信繁 发表于 2026-8-13 17:29</a>
+
+真假内鬼也来了，下一步该是deepseek内鬼吧，deepseek内鬼爆料吧了</blockquote>
+这俩吧早都有了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wjxforever  
+##### 7042#       发表于 2026-8-13 17:33
+
+现在唯一能确定的就是放出的模型效果没有达到deepseek的预期，但具体什么原因只有内部的人知道了
+
+*****
+
+####  qz66618  
+##### 7043#       发表于 2026-8-13 17:33
+
+不过目前确实有可能是部署出了问题，可能pro和flash的部署难度不一样吧
+
+*****
+
+####  Promeus  
+##### 7044#       发表于 2026-8-13 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069165&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-13 17:25</a>
+贴吧那人的爆料也不对吧，按照官方评测分数是低于 k3 的
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+跑分和实操两码事，昨天发的另一个哥们也区炸了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
