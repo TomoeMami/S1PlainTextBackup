@@ -12138,3 +12138,317 @@ DSBench-FullStack 和 DSBench-Hard 是 DeepSeek 内部测试吗，为什么 Opus
 
 谢谢你，让我做了一个人人用的起顶级模型的美梦
 
+
+*****
+
+####  akirt  
+##### 7130#       发表于 2026-8-13 19:16
+
+这下国内其他几家能喘口气了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+特别是主打性价比的minimax
+
+*****
+
+####  舞以  
+##### 7131#       发表于 2026-8-13 19:17
+
+用不用得起另说，这性能真是顶级么<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  wesdrtfg  
+##### 7132#       发表于 2026-8-13 19:18
+
+是时候进入偷偷孝环节了（）
+
+*****
+
+####  Nanachi  
+##### 7133#       发表于 2026-8-13 19:18
+
+是先前部署的问题吗，pro 性能怎么差放风这么多
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cscbzcbz  
+##### 7134#       发表于 2026-8-13 19:18
+
+max思考长度好像正常了
+
+*****
+
+####  noword  
+##### 7135#       发表于 2026-8-13 19:18
+
+梁/退钱
+哦真能退
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  passgan  
+##### 7136#       发表于 2026-8-13 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069900&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-13 19:17</a>
+
+用不用得起另说，这性能真是顶级么
+
+论坛助手,iPhone</blockquote>
+所以说pro出来之前是美梦，pro出来之后就破碎了
+
+*****
+
+####  战术核辣条  
+##### 7137#       发表于 2026-8-13 19:18
+
+盒饭果然是只有一起涨价没有一起降价的，黄金时代终于还是来了
+
+*****
+
+####  qz66618  
+##### 7138#       发表于 2026-8-13 19:19
+
+pro感觉也就是回到刚出的价格了吧，主要是这pro的性能到底行不行的问题，要是真和k3差不多那我感觉还是有人用的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛋黄酱Release  
+##### 7139#       发表于 2026-8-13 19:19
+
+按照最近用ocg的v4f的情况来看，v4f的涨价还是用得起的，v4p的就得看最终智商能不能涨回来了，按照测评那个数据来看拿来决策也不是不行
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  a504583361  
+##### 7140#       发表于 2026-8-13 19:19
+
+12倍的价格也太离谱了吧？
+
+
+*****
+
+####  cscbzcbz  
+##### 7141#       发表于 2026-8-13 19:20
+
+现在测测看，给梁子一个机会，达不到预期我就退钱了
+
+*****
+
+####  tonberry  
+##### 7142#       发表于 2026-8-13 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069889&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-13 19:15</a>
+目前还是go套餐，flash基本随便蹬，一个月10刀也就70元
+希望go套餐别一起涨价 ...</blockquote>
+不懂就问，go套餐能在其他agent上使用吗
+
+*****
+
+####  广告位  
+##### 7143#       发表于 2026-8-13 19:20
+
+我去，涨了这么多！还有高峰期
+
+智谱唐老师睡觉都笑出声了
+
+*****
+
+####  龙骑士尹志平  
+##### 7144#       发表于 2026-8-13 19:20
+
+拉到底了，还是蹭opencodego吧
+
+*****
+
+####  小野賢章  
+##### 7145#       发表于 2026-8-13 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069917&amp;ptid=2275806" target="_blank">tonberry 发表于 2026-8-13 19:20</a>
+
+不懂就问，go套餐能在其他agent上使用吗</blockquote>
+可以的，可以用api key，而且里面的模型都可以直接切
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ tonberry + 2好评加鹅
+
+查看全部评分
+
+*****
+
+####  iam_hcl  
+##### 7146#       发表于 2026-8-13 19:21
+
+都在说价格，性能呢
+
+*****
+
+####  王兰花秀丽  
+##### 7147#       发表于 2026-8-13 19:21
+
+给楼友五分钟时间，来个复合弓看看效果    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  crow_wine  
+##### 7148#       发表于 2026-8-13 19:21
+
+reasonix用不起了，这缓存价格大幅度上升。你涨价了倒是端上来呀
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  FACS  
+##### 7149#       发表于 2026-8-13 19:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069889&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-13 19:15</a>
+
+目前还是go套餐，flash基本随便蹬，一个月10刀也就70元
+
+希望go套餐别一起涨价 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">他家不是说可以自己部署差不多价格吗，希望别大涨
+
+*****
+
+####  akirt  
+##### 7150#       发表于 2026-8-13 19:21
+
+不过按照opencode的说法，v4f他们靠租服务器都能做到成本在原价以下
+
+未来肯定会有一些第三方的低价token plan的
+
+*****
+
+####  绝地潜兵  
+##### 7151#       发表于 2026-8-13 19:22
+
+斩杀线没有了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+你们不要妨碍AGI训练.jpg
+
+*****
+
+####  小野賢章  
+##### 7152#       发表于 2026-8-13 19:22
+
+<img src="https://img.stage1st.com/forum/202608/13/192210ruhk61bz3af2g2gv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (55.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 19:22 上传
+
+上午用pro画的scad齿轮完全渲染不出来，现在看起来基本正常了
+
+*****
+
+####  脸宽  
+##### 7153#       发表于 2026-8-13 19:22
+
+再见了梁小弟<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  crow_wine  
+##### 7154#       发表于 2026-8-13 19:22
+
+之前不是说预计在昇腾950超节点到货后，价格能大幅度降低吗
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  ly4236  
+##### 7155#       发表于 2026-8-13 19:22
+
+峰谷主要是电费吧。不知道有没有建设光伏的意思。
+
+<img src="https://img.stage1st.com/forum/202608/13/192053huqay0lldbly60yu.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260813_192036_com.deepseek.chat.jpg</strong> (375.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 19:20 上传
+
+*****
+
+####  半江瑟瑟半江红  
+##### 7156#       发表于 2026-8-13 19:23
+
+行吧，这个性价比……我还是续gpt的订阅吧<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  guyfawkes  
+##### 7157#       发表于 2026-8-13 19:23
+
+2025年1月6日充了50元，到今天还剩13.01元。作为轻量用户，涨价之后应该也还用得起。
+
+*****
+
+####  cscbzcbz  
+##### 7158#       发表于 2026-8-13 19:23
+
+中文思考链看不出来，感觉让我出现的少了，思考长度也正常了，还没跑完，等跑完看看
+
+*****
+
+####  小野賢章  
+##### 7159#       发表于 2026-8-13 19:23
+
+估计很多人又要开始用网页反代了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  misuzu0723  
+##### 7160#       发表于 2026-8-13 19:24
+
+就怕第三方服务商也会跟进
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  goranger  
+##### 7161#       发表于 2026-8-13 19:25
+
+<img src="https://img.stage1st.com/forum/202608/13/192515mv6kn6n03625nmnk.png" referrerpolicy="no-referrer">
+
+<strong>img_6565.png</strong> (485.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 19:25 上传
+
+官宣了，就这
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  蜇灵  
+##### 7162#       发表于 2026-8-13 19:25
+
+这下拉完了，奥特曼该笑嘻了
+
