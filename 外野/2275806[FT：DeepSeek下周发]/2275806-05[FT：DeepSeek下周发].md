@@ -14311,3 +14311,65 @@ openhanako 的作者也参加 dsh 内测了，还发了视频
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  nxmonitor  
+##### 7364#       发表于 2026-8-13 21:10
+
+这个速度比其他的快，PI一条路出来的吗？
+
+*****
+
+####  秦南心  
+##### 7365#       发表于 2026-8-13 21:12
+
+没那么复杂，就是flash表现太好，蹬坏了，碍着梁子训练AGI所以劝退一波<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  serj005  
+##### 7366#       发表于 2026-8-13 21:12
+
+全透明上下文真牛逼吧，pi的超级gui增强版
+
+<img src="https://img.stage1st.com/forum/202608/13/211210dkgrfchhff6fpycp.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1786626729555_1.webp</strong> (152.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 21:12 上传
+
+*****
+
+####  cscbzcbz  
+##### 7367#       发表于 2026-8-13 21:12
+
+再用dsh试试，有没有奇迹
+
+*****
+
+####  舞以  
+##### 7368#       发表于 2026-8-13 21:14
+
+dsh我觉得思想是很牛逼的，但是模型拉了也没法啊梁子<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cscbzcbz  
+##### 7369#       发表于 2026-8-13 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070591&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-8-13 21:12</a>
+没那么复杂，就是flash表现太好，蹬坏了，碍着梁子训练AGI所以劝退一波</blockquote>
+是的，所以现在支持梁子的最好办法就是去退款，改用第三方，给梁子省算力
+
+*****
+
+####  obulis  
+##### 7370#       发表于 2026-8-13 21:15
+
+有没有黄金时代文
+

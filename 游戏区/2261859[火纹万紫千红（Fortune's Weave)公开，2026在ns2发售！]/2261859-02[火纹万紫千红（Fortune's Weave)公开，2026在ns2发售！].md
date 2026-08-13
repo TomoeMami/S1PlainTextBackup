@@ -9706,3 +9706,32 @@ XCOM2 新DLC实装<img src="https://static.stage1st.com/image/smiley/face2017/04
 
 真要做三房后传随便糖塞一句平行世界就行了
 
+
+*****
+
+####  涂鸦恶魔  
+##### 2403#       发表于 2026-8-13 21:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066747&amp;ptid=2261859" target="_blank">出言不迅 发表于 2026-8-13 11:56</a>
+
+我还在补前作，之前学园养成太无聊弃了，还在学院部分，并没看到导弹，这tm属于超展开了 ...</blockquote>
+也就是个过场动画，不用太期待
+
+实际到地底人科技城的关卡也是用刀剑干架，只能说三房后半段缩水太严重
+
+这次既然把手枪都做出来了，希望打地底人相关的关卡真的做点差异化出来
+
+*****
+
+####  ascomnet  
+##### 2404#       发表于 2026-8-13 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070554&amp;ptid=2261859" target="_blank">涂鸦恶魔 发表于 2026-8-13 21:04</a>
+
+也就是个过场动画，不用太期待
+
+实际到地底人科技城的关卡也是用刀剑干架，只能说三房后半段缩水太严重
+
+这 ...</blockquote>
+除非把热兵器单独分出来，才能做差异化，但并没有还是套用已有的种类
+
