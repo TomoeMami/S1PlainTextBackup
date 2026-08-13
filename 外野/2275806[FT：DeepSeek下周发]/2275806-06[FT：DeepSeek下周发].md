@@ -2939,3 +2939,68 @@ dsh plugin --profile web add @0rch1d/dsh-client-ui-opencode-go@1.0.2    [Re:So
 
 今天pro跑了一个小时，高危高影响力0day漏洞+1，还是有点水平的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王兰花秀丽  
+##### 7680#       发表于 2026-8-14 02:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072125&amp;ptid=2275806" target="_blank">真田源次郎信繁 发表于 2026-8-14 02:03</a>
+昨天不用harness确实不行
+
+今天pro跑了一个小时，高危高影响力0day漏洞+1，还是有点水平的 ...</blockquote>
+来点挖洞教学<img src="https://static.stage1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cscbzcbz  
+##### 7681#       发表于 2026-8-14 02:08
+
+雷达站专门给DSH做了个分区<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  LANGWANG  
+##### 7682#       发表于 2026-8-14 02:09
+
+差点忘了，现在还没涨价，我说怎么这么爽
+
+
+*****
+
+####  真田源次郎信繁  
+##### 7683#       发表于 2026-8-14 02:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072139&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-14 02:08</a>
+
+来点挖洞教学    Re:Source</blockquote>
+直接给ida地址让它写插件，给ssh靶机，自己就搞出来了，压根没操作<img src="https://static.stage1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  80后卢瑟  
+##### 7684#       发表于 2026-8-14 02:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072083&amp;ptid=2275806" target="_blank">Nanachi 发表于 2026-8-14 01:39</a>
+
+要用localhost 访问，不能用 127.0.0.1 访问</blockquote>
+这个不一定是神人开发，只是默认配置没改...
+
+*****
+
+####  煙雲靉靆  
+##### 7685#       发表于 2026-8-14 02:12
+
+之前就用过opencode改过点简单代码，没怎么深度用过agent，skills都没装，试了下感觉跑在dsh上确实比跑在opencode上出来的结果好
+
+*****
+
+####  苇原雪道  
+##### 7686#       发表于 2026-8-14 02:14
+
+问了半天我另一个部署好的DSH，它看了半天自己的源码，最后告诉我只能是走SSH中继或者反向代理，吐了。。。行吧，DSH还需要打磨，我想24h NAS里使用是不太行了。。。
+
+回楼上诸位漏油，我是想在NAS的虚拟机里部署DSH，然后用主力机访问。主力机里WSL里装DSH这路我已经走通了
+ 这个报错把真相完全揭开了——DSH 的 host 字段在配置校验层只允许两个值：127.0.0.1 或 0.0.0.0，而 0.0.0.0 又被启动层主动禁用。也就是说:  DSH 目前只能监听 127.0.0.1，官方刻意不开放直接局域网监听（因为它等于把远程代码执行暴露到网络）。  所以"改 host 绑定"这条路彻底走不通。局域网访问必须靠外部转发——让 DSH 继续绑 127.0.0.1，用一个中间层把流量从局域网转发进去。我读透了它的信任机制，给你两个可靠方案:  方案一：SSH 隧道（零安装，最快验证） 如果只是主力机访问，什么都不用装，在主力机 Windows 上执行:  powershell 复制 ssh -N -L 3080:127.0.0.1:3080 gxx@192.168.1.15 然后主力机浏览器访问 **http://localhost:3080**。原理：流量走 SSH 隧道，DSH 收到的 Host 是 localhost（回环），自动信任，无需任何额外配置。  缺点：要一直开着这个 SSH 窗口；每台访问机器都要建隧道。  方案二：nginx 反向代理（标准、多机、持久）✅ 推荐 在 LXC 容器里装 nginx，它监听局域网、转发给 DSH，同时保留原始 Host（配合信任白名单）:复制代码
+

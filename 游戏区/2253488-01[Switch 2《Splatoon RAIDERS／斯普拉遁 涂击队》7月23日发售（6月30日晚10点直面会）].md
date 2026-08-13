@@ -8148,3 +8148,13 @@ DD73192A-A571-45BB-ACEC-B5EECCC05636.webp
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+
+*****
+
+####  qwased  
+##### 948#       发表于 2026-8-14 02:10
+
+https://github.com/Orangeeeeeeeeeeeeeeeeee/switch-controller-macro
+
+电脑蓝牙模拟pro手柄，适合没有宏手柄又想挂机刷武器的
+
