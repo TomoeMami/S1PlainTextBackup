@@ -9457,3 +9457,76 @@ API可以做到像网页版一样可以暂停和继续吗
 
 只能说访谈里不在乎什么用户是真的，本质实验室，太草台了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  valand  
+##### 6835#       发表于 2026-8-13 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066817&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-13 12:06</a>
+API可以做到像网页版一样可以暂停和继续吗
+
+论坛助手,iPhone</blockquote>
+当然可以
+
+*****
+
+####  绝地潜兵  
+##### 6836#       发表于 2026-8-13 12:16
+
+FIM补全 API现在支持temperature了，但不建议和top_p同时开启
+
+*****
+
+####  大暴死  
+##### 6837#       发表于 2026-8-13 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065154&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-13 08:46</a>
+5070ti 35A3B上下文拉满跑个unsloth动态量化的倒是能跑个50tk/s，但是智力不咋地，说话还一股味，我宁愿 ...</blockquote>
+5070ti原来能跑35a3b吗，昨天我想试试本地的ppt生成项目，哈基米一开始推荐我用qwen2.5 14b，我说都3.6了就让我用qwen3.6 27b q4 m的量化模型...ollama部署后试了一下不到20tk/s，只能告诉自己是ddr4和pcie3.0拖后腿了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  nxmonitor  
+##### 6838#       发表于 2026-8-13 12:20
+
+现在情况很奇怪，有人说复制之前灰测的思维链能复现结果…
+
+*****
+
+####  zhanglei1943  
+##### 6839#       发表于 2026-8-13 12:20
+
+这里也有“不调好不发布”笑话看的哦
+
+*****
+
+####  燕山雪  
+##### 6840#       发表于 2026-8-13 12:20
+
+感觉这楼口碑要直奔2077去了……
+
+“没人会记得那些按时发布的垃圾模型”.webp
+
+
+*****
+
+####  qwased  
+##### 6841#       发表于 2026-8-13 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066906&amp;ptid=2275806" target="_blank">大暴死 发表于 2026-8-13 12:17</a>
+5070ti原来能跑35a3b吗，昨天我想试试本地的ppt生成项目，哈基米一开始推荐我用qwen2.5 14b，我说都3.6了 ...</blockquote>
+27b要跑那个16g显存特化版的iq4xxs，上下文开不了很多，倒是能跑个六七十tk/s
+或者可以尝鲜跑bonsai27b
+
+*****
+
+####  Rowen233  
+##### 6842#       发表于 2026-8-13 12:23
+
+我在Windows系统里让Agent开WSL运行命令一直碰到PowerShell的转义问题
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
