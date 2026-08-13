@@ -9539,3 +9539,32 @@ XCOM2 新DLC实装<img src="https://static.stage1st.com/image/smiley/face2017/04
 
 大剑斗祭这种万能的许愿机如果没有经典的猴爪环节那就没意思了
 
+
+*****
+
+####  出言不迅  
+##### 2384#       发表于 2026-8-13 10:45
+
+我看贴吧还有带着步枪的角色，之前来个手枪拳套就笑笑就算了，这未免太出戏了吧。要是真搞奇幻变科幻的剧本，有这个能力写好吗？或者应该藏一点做爆点啊
+
+
+*****
+
+####  bad_alloc  
+##### 2385#       发表于 2026-8-13 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066110&amp;ptid=2261859" target="_blank">出言不迅 发表于 2026-8-13 10:45</a>
+
+我看贴吧还有带着步枪的角色，之前来个手枪拳套就笑笑就算了，这未免太出戏了吧。要是真搞奇幻变科幻的剧本 ...</blockquote>
+藏不了一点好吧，风花雪月的时候地底人连弹道导弹都弄出来了，**方方放<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  巴尔干炮  
+##### 2386#       发表于 2026-8-13 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066110&amp;ptid=2261859" target="_blank">出言不迅 发表于 2026-8-13 10:45</a>
+
+我看贴吧还有带着步枪的角色，之前来个手枪拳套就笑笑就算了，这未免太出戏了吧。要是真搞奇幻变科幻的剧本 ...</blockquote>
+没什么，前作已经有弹道导弹和机器人了，枪没什么大不了的。
+

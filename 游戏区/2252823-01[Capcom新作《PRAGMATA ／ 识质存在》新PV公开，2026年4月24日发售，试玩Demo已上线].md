@@ -50,3 +50,16 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  Chao  
+##### 1018#       发表于 2026-8-13 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065272&amp;ptid=2252823" target="_blank">沧兰殇 发表于 2026-8-13 09:04</a>
+
+一周目，模拟训练不打三星，兑换板能全开不？有的操作手柄真不方便
+
+—— 来自 鹅球 v3.3.96-alpha ...</blockquote>
+能，还有富余
+

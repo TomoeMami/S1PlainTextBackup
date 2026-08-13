@@ -8887,3 +8887,79 @@ flash太强了，斩杀一切
 
 所以现在国内vibe coding买哪家<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  →熙←  
+##### 6774#       发表于 2026-8-13 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066078&amp;ptid=2275806" target="_blank">希望之花 发表于 2026-8-13 10:43</a>
+
+所以现在国内vibe coding买哪家</blockquote>
+opencode go flash无限蹬
+
+昨天又新高了 13T了
+
+*****
+
+####  80后卢瑟  
+##### 6775#       发表于 2026-8-13 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066078&amp;ptid=2275806" target="_blank">希望之花 发表于 2026-8-13 10:43</a>
+
+所以现在国内vibe coding买哪家</blockquote>
+opencode 这种套餐封顶消费很合适，除非你用的不多这种买 API 就行，一个月 10 块钱都可以
+
+但是有一个问题是只有 DeepSeek 能蹬，其他模型蹬两下就没了
+
+*****
+
+####  nxmonitor  
+##### 6776#       发表于 2026-8-13 10:50
+
+看codex雷达的数据，现在的问题是思考强度像是不存在一样，三个档位就差一分
+
+
+*****
+
+####  crow_wine  
+##### 6777#       发表于 2026-8-13 10:50
+
+opencode go 不是其他模型蹬两下就没了，而是蹬其他模型总会莫名其妙的断开，基本不可用
+
+*****
+
+####  来都来了  
+##### 6778#       发表于 2026-8-13 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066140&amp;ptid=2275806" target="_blank">80后卢瑟 发表于 2026-8-13 10:49</a>
+opencode 这种套餐封顶消费很合适，除非你用的不多这种买 API 就行，一个月 10 块钱都可以
+
+但是有一个问 ...</blockquote>
+Open code Go就是首月5刀，每月10刀吗？还有没有什么优惠的路子？
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6779#       发表于 2026-8-13 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066166&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-13 10:51</a>
+Open code Go就是首月5刀，每月10刀吗？还有没有什么优惠的路子？</blockquote>
+不怕麻烦可以每个月注册新号花5刀
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  wandeeees  
+##### 6780#       发表于 2026-8-13 10:52
+
+这更新真是如更，更了但是没完全更，接口文档更新一部分，微信群更新跑分，公众号不更新，等下午看DSH发不发吧，怎么搞的这么草台<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿刚  
+##### 6781#       发表于 2026-8-13 10:53
+
+可能。。。。Pro强在别的地方，我弄了个素材库让他出灵感电子，这家伙感觉真的。。。。有灵感。。。。很神秘。。。
+
