@@ -13381,3 +13381,191 @@ max一句话跑了50分钟还没跑完，登了我10%的go套餐4小时用量
 
 我也觉得涨价还好，性能一坨真的不太能接受    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  Hyst3r1a  
+##### 7263#       发表于 2026-8-13 20:08
+
+这下都成难民了，有什么地方又便宜又能蹬k3和v4f吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  qz66618  
+##### 7264#       发表于 2026-8-13 20:08
+
+我也是关注性能问题，这个才是最关键的吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  舞以  
+##### 7265#       发表于 2026-8-13 20:09
+
+黄金时代定型文更加贴切了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+转瞬即逝啊我说
+
+*****
+
+####  小野賢章  
+##### 7266#       发表于 2026-8-13 20:09
+
+v4f 好解决，就用opencode go就行了，k3就别想了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 7267#       发表于 2026-8-13 20:10
+
+涨价么，真的还好，要是性能到位也无所谓了，还能省订阅钱，问题是这个性能目前测出来不太行就绷不住了
+
+*****
+
+####  ycjiang1337  
+##### 7268#       发表于 2026-8-13 20:11
+
+所以现在到底有没有人测过重新更新的V4Pro，之前更新更炸了已经基本可以石锤了吧
+
+*****
+
+####  半江瑟瑟半江红  
+##### 7269#       发表于 2026-8-13 20:11
+
+唐圣现在应该放鞭炮了
+重铸国模荣光，glm5.3不辱使命
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  lowezack  
+##### 7270#       发表于 2026-8-13 20:11
+
+还能人期待专武吗？价钱用不起专武有个屁用<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  飛霞精灵  
+##### 7271#       发表于 2026-8-13 20:11
+
+留个v4f能用还行，pro版暂时不用吧。
+
+*****
+
+####  valand  
+##### 7272#       发表于 2026-8-13 20:12
+
+别逼我去用小米啊，雷总什么的不要啊
+
+*****
+
+####  nxmonitor  
+##### 7273#       发表于 2026-8-13 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070236&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-13 20:11</a>
+
+唐圣现在应该放鞭炮了
+
+重铸国模荣光，glm5.3不辱使命</blockquote>
+GLM刚涨了三倍的价格……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 7274#       发表于 2026-8-13 20:12
+
+那雷肿的模型性能都不过关，算不上可用吧，最多mimo外挂一下识图
+
+*****
+
+####  xmmc1800  
+##### 7275#       发表于 2026-8-13 20:12
+
+这个涨价幅度有点难绷，还好我趁这两周猛蹬v4f把手头几个一直想做的编程任务都搞得差不多了，后续靠ocg的订阅续命吧，原价api我是用不起了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rowen233  
+##### 7276#       发表于 2026-8-13 20:12
+
+话说 Mimo 会跟着涨价吗
+
+*****
+
+####  →熙←  
+##### 7277#       发表于 2026-8-13 20:13
+
+pro的性能呢, 有变化吗,  灰测到底怎么回事!
+
+*****
+
+####  startraveller  
+##### 7278#       发表于 2026-8-13 20:13
+
+会不会是梁子买了很多智谱，先把GLM5.3大招骗出来，拉高出个货。然后817埋一手，不涨了然后把灰测放出来，反手做空。暗黑兵法恐怖如斯！
+
+
+*****
+
+####  午夜钓者  
+##### 7279#       发表于 2026-8-13 20:14
+
+我早就说灰测不是正式版了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  yudms1  
+##### 7280#       发表于 2026-8-13 20:14
+
+造假药是破看番破防的第几步来着
+
+
+*****
+
+####  果壳中的松鼠  
+##### 7281#       发表于 2026-8-13 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070251&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-13 20:13</a>
+会不会是梁子买了很多智谱，先把GLM5.3大招骗出来，拉高出个货。然后817埋一手，不涨了然后把灰测放出来， ...</blockquote>
+这算操纵市场还是内幕交易<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  舞以  
+##### 7282#       发表于 2026-8-13 20:15
+
+倒数第三步吧，自我欺骗
+
+下一步是破大防爆炸
+
+最后一步是和解
+
+*****
+
+####  scikirbypoke  
+##### 7283#       发表于 2026-8-13 20:16
+
+好像还是思考等级越低IQ越高
+
+*****
+
+####  舞以  
+##### 7284#       发表于 2026-8-13 20:17
+
+【[TV2] 看动漫破防了怎么办？二次元精神内耗的自救方法】 [https://www.bilibili.com/video/B ... ca7a2c629d706a21986](https://www.bilibili.com/video/BV1SN4y1P77f/?share_source=copy_web&amp;vd_source=1b09b5c60b900ca7a2c629d706a21986)
+
+分享给漏油，道理是相通的啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 7285#       发表于 2026-8-13 20:17
+
+等会试试harness，有一点可能是codex适配问题，雷达站用codex测的
+
