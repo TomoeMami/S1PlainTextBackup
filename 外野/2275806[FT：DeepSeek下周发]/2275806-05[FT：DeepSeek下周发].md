@@ -8674,3 +8674,87 @@ api更新日志还没变，还有机会反杀<img src="https://static.stage1st.c
 
 怎么看都像是把flash当pro部署了<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zfy1989  
+##### 6753#       发表于 2026-8-13 10:16
+
+他妈的怎么有一种手游开服，维护10个小时的既视感。
+
+*****
+
+####  Anarkia  
+##### 6754#       发表于 2026-8-13 10:17
+
+肉戏文笔比flash好了点
+
+*****
+
+####  BarricadeMKXX  
+##### 6755#       发表于 2026-8-13 10:17
+
+ 本帖最后由 BarricadeMKXX 于 2026-8-13 10:18 编辑 
+
+<img src="https://img.stage1st.com/forum/202608/13/101505c1hez6y5si70xbad.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (142.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 10:15 上传
+
+<img src="https://img.stage1st.com/forum/202608/13/101530lzgjgnj23qmnmszp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (126.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 10:15 上传
+
+<img src="https://img.stage1st.com/forum/202608/13/101644wh2hh2rtyzhh9jkj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (165.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 10:16 上传
+
+<img src="https://img.stage1st.com/forum/202608/13/101708x3t0qa353z8agqtb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (343.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 10:17 上传
+
+“有点强，但是要多抽几次卡”
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  80后卢瑟  
+##### 6756#       发表于 2026-8-13 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065868&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-8-13 10:17</a>
+
+“有点强，但是要多抽几次卡”</blockquote>
+白宫紧急召开安全会议<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Promeus  
+##### 6757#       发表于 2026-8-13 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065868&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-8-13 10:17</a>
+“有点强，但是要多抽几次卡”</blockquote>
+如果截断是真的，那单次效果差可能有关系？
+
+*****
+
+####  darktide  
+##### 6758#       发表于 2026-8-13 10:23
+
+我的API的知识库还是25年初的啊
+
