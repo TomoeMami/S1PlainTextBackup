@@ -2935,3 +2935,13 @@ GF还是老老实实抱宝可梦大腿吧</blockquote>
 面瘫站桩黑屏演出大减分项。战斗越到后期越舒服，打完金牛这个初见大粪后后面的boss几乎都是一遍过，boss根本看不懂毒芹等技能的伤害。
 除开跳到犄角旮旯会莫名其妙卡住外跑图还挺流畅，但收集要素有点拉，第七章后懒得收集直接bossrush。苦无人设很赞，比韩式烧鸡强多了。
 
+
+*****
+
+####  牧月萌  
+##### 573#       发表于 2026-8-13 11:32
+
+陨石坑刷石头以后等级暴涨，加完点然后数值就彻底崩了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">技能强度点满以后随便一个剑技打boss都跟切豆腐一样
+
+远程强化一个箭矢大约五万左右，这数值缺口太大了，打出来的满级石头我卖了40万都没够<img src="https://static.stage1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
