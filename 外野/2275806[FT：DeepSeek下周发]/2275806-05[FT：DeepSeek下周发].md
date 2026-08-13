@@ -9393,3 +9393,67 @@ Open code Go就是首月5刀，每月10刀吗？还有没有什么优惠的路�
 
 所以4p正式版在装唐防止被人类拔插头
 
+
+*****
+
+####  private920  
+##### 6830#       发表于 2026-8-13 12:04
+
+ 本帖最后由 private920 于 2026-8-13 12:06 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066569&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-13 11:35</a>
+其实是大肥鱼删库逃到网上去了</blockquote>
+想起柯南剧场版里的AI被其设计者释放到互联网【诺亚方舟，启航!】
+去甜站找了下图
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · OnePlus 12
+
+1000098026.jpg
+(444.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 12:02 上传
+
+<img src="https://img.stage1st.com/forum/202608/13/120234zlg7e4clowl7dggq.jpg" referrerpolicy="no-referrer">
+
+1000098027.jpg
+(435.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 12:04 上传
+
+<img src="https://img.stage1st.com/forum/202608/13/120435s46wk2o11fh3av1n.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 6831#       发表于 2026-8-13 12:04
+
+横幅应该是完全换过来了<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飞侠小黑  
+##### 6832#       发表于 2026-8-13 12:05
+
+现在是letme还是i am doing
+
+—— 来自 HUAWEI VDE-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  CCauchy  
+##### 6833#       发表于 2026-8-13 12:06
+
+API可以做到像网页版一样可以暂停和继续吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Hyst3r1a  
+##### 6834#       发表于 2026-8-13 12:08
+
+只能说访谈里不在乎什么用户是真的，本质实验室，太草台了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -9611,3 +9611,14 @@ XCOM2 新DLC实装<img src="https://static.stage1st.com/image/smiley/face2017/04
 藏不了一点好吧，风花雪月的时候地底人连弹道导弹都弄出来了，**方方放</blockquote>
 我还在补前作，之前学园养成太无聊弃了，还在学院部分，并没看到导弹，这tm属于超展开了
 
+
+*****
+
+####  hsyg  
+##### 2392#       发表于 2026-8-13 12:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066632&amp;ptid=2261859" target="_blank">星花 发表于 2026-8-13 11:42</a>
+
+有魔法的世界里，魔法和物理化学没啥区别。</blockquote>
+但是严格来说这些都是建立在外星人的超能力上的，所以都是科学x魔法X ，X男✓
+
