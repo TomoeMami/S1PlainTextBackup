@@ -11768,3 +11768,226 @@ https://deng.codexradar.com/</blockquote>
 
 官宣涨价<img src="https://p.sda1.dev/34/70e7fc43c5df44e9e3f37d99288002fa/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cscbzcbz  
+##### 7087#       发表于 2026-8-13 18:56
+
+我去，涨价了，涨这么多
+
+*****
+
+####  当光停止  
+##### 7088#       发表于 2026-8-13 18:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来去之间
+
+——来自 NX789J 上的 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  zhanglei1943  
+##### 7089#       发表于 2026-8-13 18:58
+
+这涨价拉完了
+
+*****
+
+####  bixinhaner  
+##### 7090#       发表于 2026-8-13 18:59
+
+一、deepseek-v4-flash
+
+计费项        原价        新价（闲时）        新价（忙时）        闲时涨幅        忙时涨幅
+
+输入（缓存命中）        0.02 元        0.05 元        0.10 元        2.5 倍        5.0 倍
+
+输入（缓存未命中）        1.00 元        1.50 元        3.00 元        1.5 倍        3.0 倍
+
+输出        2.00 元        4.50 元        9.00 元        2.25 倍        4.5 倍
+
+二、deepseek-v4-pro
+
+计费项        原价        新价（闲时）        新价（忙时）        闲时涨幅        忙时涨幅
+
+输入（缓存命中）        0.025 元        0.15 元        0.30 元        6.0 倍        12.0 倍
+
+输入（缓存未命中）        3.00 元        4.50 元        9.00 元        1.5 倍        3.0 倍
+
+输出        6.00 元        13.50 元        27.00 元        2.25 倍        4.5 倍
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是牢梁预定了
+
+*****
+
+####  lactone  
+##### 7091#       发表于 2026-8-13 18:59
+
+不是，这pro没搞好一片骂，同时涨成这样，这是真不打算做c端生意了？
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  孤灯蓝影  
+##### 7092#       发表于 2026-8-13 18:59
+
+<blockquote>bixinhaner 发表于 2026-8-13 18:59
+一、deepseek-v4-flash
+
+计费项        原价        新价（闲时）        新价（忙时）        闲时涨幅        忙时涨幅
+</blockquote>
+吓死了，我先充500为敬
+
+
+*****
+
+####  L-JoeW  
+##### 7093#       发表于 2026-8-13 19:00
+
+好贵<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhanglei1943  
+##### 7094#       发表于 2026-8-13 19:00
+
+<img src="https://img.stage1st.com/forum/202608/13/190025c5roro5jmy7z55uj.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1786618808899.png</strong> (183.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 19:00 上传
+
+*****
+
+####  cscbzcbz  
+##### 7095#       发表于 2026-8-13 19:01
+
+要是pro真有这分数的能力，这个涨价我就认了，现在明显不行啊，说好的只赚合理利润呢<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  城北无尘  
+##### 7096#       发表于 2026-8-13 19:01
+
+dsh还发吗？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  wandeeees  
+##### 7097#       发表于 2026-8-13 19:01
+
+这涨价了pro性价比完全不如v4f啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">除非是灰测的那个性能，不然想不到用pro的理由
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  ly4236  
+##### 7098#       发表于 2026-8-13 19:01
+
+高峰有点多了
+
+*****
+
+####  舞以  
+##### 7099#       发表于 2026-8-13 19:02
+
+拉完了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  王兰花秀丽  
+##### 7100#       发表于 2026-8-13 19:03
+
+太牢了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  RStocking  
+##### 7101#       发表于 2026-8-13 19:03
+
+彻底跌下神坛了，牢梁啊牢梁
+
+*****
+
+####  当光停止  
+##### 7102#       发表于 2026-8-13 19:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">切kimi的假腿了。
+
+——来自 NX789J 上的 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  pointer243  
+##### 7103#       发表于 2026-8-13 19:04
+
+pro这价格闹麻了，这品质对得起这价钱？
+
+—— 来自 motorola edge 2025, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  舞以  
+##### 7104#       发表于 2026-8-13 19:04
+
+再见了👋，深度求索
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  蛋黄酱Release  
+##### 7105#       发表于 2026-8-13 19:04
+
+不知道opencode go的flash能不能扛得住，v4p现在这确实拉完了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  二岩枫  
+##### 7106#       发表于 2026-8-13 19:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正式晋级为梁÷了么
+
+*****
+
+####  舞以  
+##### 7107#       发表于 2026-8-13 19:04
+
+ds最拉的一个时代来了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  lactone  
+##### 7108#       发表于 2026-8-13 19:05
+
+flash的新价格还能理解，pro这个水平完全不值得这个价
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cscbzcbz  
+##### 7109#       发表于 2026-8-13 19:05
+
+算了算了，别耽搁别人搞agi
+
+*****
+
+####  德尔惠净水器  
+##### 7110#       发表于 2026-8-13 19:05
+
+这波拉完了
+

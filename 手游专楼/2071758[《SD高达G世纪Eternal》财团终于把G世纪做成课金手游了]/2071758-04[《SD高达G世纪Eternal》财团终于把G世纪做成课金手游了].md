@@ -202,3 +202,11 @@ SD卡池只要别太离谱本来就是港区随便登顶的
 
 这次好像三点就登顶了，都不用等晚上
 
+
+*****
+
+####  岸波白野  
+##### 4618#       发表于 2026-8-13 18:58
+
+不怎么再版的元祖sd破烂在中古市场地位是很恐怖的，这方面就不用质疑sd老登的消费力了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
