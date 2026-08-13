@@ -2695,3 +2695,137 @@ dsh plugin --profile web add @0rch1d/dsh-client-ui-opencode-go@1.0.2    [Re:So
 佬们他这个网页端口和网址不能改么？只能是默认的自回环地址:3080？我想在我虚拟机上部署，然后通过主力机 ...</blockquote>
 启动参数 --port 8080
 
+
+*****
+
+####  红炉灰  
+##### 7656#       发表于 2026-8-14 01:26
+
+有没有桌面gui啊，之前用reasonix如何无缝过渡<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">我想继续修一下之前的半成品小软件
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 7657#       发表于 2026-8-14 01:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072000&amp;ptid=2275806" target="_blank">ayanamilin 发表于 2026-8-14 01:06</a>
+形式化方法（就是那些很复杂的数学符号）算是cs一些领域的学术八股，不必太当真。
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+不是形态化方法 是类似原来那篇first return then explore的逻辑 假如能够在explore之后无损回退 那其实是巨大的飞跃相当于一定程度上解决了curse of dimensionality 
+
+— from Xiaomi 23049PCD8G, Android 13, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  王兰花秀丽  
+##### 7658#       发表于 2026-8-14 01:27
+
+我好喜欢dsh，好好玩。。。明天还要上班。。。<img src="https://static.stage1st.com/image/smiley/face/178.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  来都来了  
+##### 7659#       发表于 2026-8-14 01:27
+
+你们用DSH接的都是Pro模型吗？有没有人试一下Flash的效果如何？
+
+*****
+
+####  HazukiShion  
+##### 7660#       发表于 2026-8-14 01:30
+
+<img src="https://img.stage1st.com/forum/202608/14/012955bvqariarnvrn7gan.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (104.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 01:29 上传
+
+
+*****
+
+####  qwased  
+##### 7661#       发表于 2026-8-14 01:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072051&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-14 01:27</a>
+你们用DSH接的都是Pro模型吗？有没有人试一下Flash的效果如何？</blockquote>
+感觉flash变得巨特么能干，简直超乎想象<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  苇原雪道  
+##### 7662#       发表于 2026-8-14 01:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072043&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-14 01:26</a>
+
+启动参数 --port 8080</blockquote>
+不好使。以我浅薄的计网知识，应该是要改它监听地址，让外部访问也能访问到，只改port是不是没用。还是说我得在虚拟机里做点啥设置能让外部访问接进来= =
+
+*****
+
+####  Thalassa  
+##### 7663#       发表于 2026-8-14 01:31
+
+在nas上装了dsh后反代出来局域网内访问发现访问不了workspace，都用webui还不放开方便我<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 7664#       发表于 2026-8-14 01:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072056&amp;ptid=2275806" target="_blank">苇原雪道 发表于 2026-8-14 01:30</a>
+不好使。以我浅薄的计网知识，应该是要改它监听地址，让外部访问也能访问到，只改port是不是没用。还是说 ...</blockquote>
+你跑在wsl里面的话应该wsl的网络设置成镜像模式然后防火墙开一下端口就好了
+
+*****
+
+####  鸳鸳相抱  
+##### 7665#       发表于 2026-8-14 01:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072042&amp;ptid=2275806" target="_blank">苇原雪道 发表于 2026-8-14 01:23</a>
+佬们他这个网页端口和网址不能改么？只能是默认的自回环地址:3080？我想在我虚拟机上部署，然后通过主力机 ...</blockquote>
+现在的安装包只在127.0.0.1:3080做了监听，最简单的办法是开启DSH本机ssh sever，然后另一台机器用ssh forward做个端口转发，然后浏览器访问即可，不会的话让AI教你具体步骤
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 7666#       发表于 2026-8-14 01:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072004&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-14 01:07</a>
+
+对了，这个本来是做了完整的TUI的，8.4全删了
+
+我写插件的时候发现一个很生草的事情，如果写错了直接启动不 ...</blockquote>
+有人知道为啥删了TUI么？看不懂这个操作
+
+*****
+
+####  qwased  
+##### 7667#       发表于 2026-8-14 01:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072058&amp;ptid=2275806" target="_blank">Thalassa 发表于 2026-8-14 01:31</a>
+在nas上装了dsh后反代出来局域网内访问发现访问不了workspace，都用webui还不放开方便我 ...</blockquote>
+提需求叫dsh改造自己吧，就是真的好烧token啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 7668#       发表于 2026-8-14 01:34
+
+不复杂的用flash上呗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  2017.05.04  
+##### 7669#       发表于 2026-8-14 01:35
+
+我就是接flash，没感觉有什么瓶颈
+实在是太快了
+
+—— 来自 HUAWEI SGT-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
