@@ -3547,3 +3547,29 @@ pro max的思考链BUG修了吗？ 真是部署故障？ 华子全责？</blockq
 
 所以 pi，reasonix 之类的现在都可以卸载了？
 
+
+*****
+
+####  yyut  
+##### 7729#       发表于 2026-8-14 07:19
+
+我算是轻度用户，没有写代码的需求，codeX成本太高，workbuddy太杂乱，等大佬们调教好dsh应该就能爽用了
+
+
+*****
+
+####  ayanamilin  
+##### 7730#       发表于 2026-8-14 07:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072286&amp;ptid=2275806" target="_blank">pure_liquid 发表于 2026-8-14 06:30</a>
+可以请坛友总结一下，DSH有什么独特的优势吗？
+
+高缓存命中率的话，前几页有坛友说pi也能做到99%
+
+热插拔“自 ...</blockquote>
+dsh 可以进行很复杂的插件依赖关系定义，同时保证运行状态良好。pi 虽然插件生态很丰富，但大家制作的插件之间很少具有依赖关系（我从论文来看，dsh 是希望不同用户写的插件之间能产生联系的）
+
+这块我还没找到一个很有说服力的 usecase。不过可以看dsh默认插件之间的依赖关系，已经够复杂的了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
