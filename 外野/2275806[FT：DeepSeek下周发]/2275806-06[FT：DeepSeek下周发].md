@@ -2464,3 +2464,30 @@ pi装缓存优化插件其实本来就能99%缓存，感觉楼里怎么这么激
 pi装缓存优化插件其实本来就能99%缓存，感觉楼里怎么这么激动</blockquote>
 minimal agent 高缓存复用不是很正常的。
 
+
+*****
+
+####  冤枉呐  
+##### 7633#       发表于 2026-8-14 00:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071936&amp;ptid=2275806" target="_blank">Sacross 发表于 2026-8-14 00:44</a>
+能肯定能啊，这玩意儿本质就是个更加适合ds的框架，带了文件管理扩大了使用范围，唯一感觉不太好就是目前 ...</blockquote>
+本地好啊
+知识库应该要再写个插件啥的
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 7634#       发表于 2026-8-14 00:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+那个harness的论文看起来很有意思啊 虽然没有仔细看是让ai扫的 但是提炼出来的感觉是 
+
+我们tmd有一个超级状态机了
+
+在整个已知的token space里所有的状态变化可以通过确定的变化函数抵达的话 那岂不是有一个对下一个状态的优化问题解 可能这也是为什么v4p其他测评这么拉的原因？ 因为你梁哥好像是真的依赖某些特定的token排布模式来做的生成 给我一种evolution strategy的感觉 但是假如真的把问题空间拉到这么大 或许确实是有说法的
+
+— from Xiaomi 23049PCD8G, Android 13, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

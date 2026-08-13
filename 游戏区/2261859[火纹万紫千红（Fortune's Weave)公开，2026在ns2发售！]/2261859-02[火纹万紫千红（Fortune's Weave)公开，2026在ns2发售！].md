@@ -10491,3 +10491,17 @@ https://www.metacritic.com/game/fire-emblem-fortunes-weave/critic-reviews/?platf
 
 2026-8-14 00:31 上传
 
+
+*****
+
+####  零崎不识  
+##### 2474#       发表于 2026-8-14 00:47
+
+这下可操作人物直奔70+去了
+
+五年后就是复仇者联盟
+
+芙朵拉世界观已经有了宇宙人，平行世界，穿越时间，五年后就是白鸦站在乌泱泱的人群前大喊
+
+Avengers Assemble！
+
