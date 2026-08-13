@@ -37,3 +37,11 @@
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  艾特娜  
+##### 2030#       发表于 2026-8-13 20:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">金鱼坂之后感觉虹偏向找性格老实些的，也就某妖怪乐队有些过去seeds的影子，yata的粉毛说是gbr再世但吼归吼显然没那么满嘴粗口
+

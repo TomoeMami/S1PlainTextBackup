@@ -13789,3 +13789,176 @@ go能蹬多少亿，感觉涨价前也是go最便宜
 发了吗？</blockquote>
 只是解禁了吧
 
+
+*****
+
+####  小野賢章  
+##### 7309#       发表于 2026-8-13 20:38
+
+[https://huggingface.co/deepseek-ai/DeepSeek-V4-Pro-0813](https://huggingface.co/deepseek-ai/DeepSeek-V4-Pro-0813)
+
+*****
+
+####  CCauchy  
+##### 7310#       发表于 2026-8-13 20:38
+
+现在应该要把算力向训练倾斜了，不然一直落后，还要降价才有人用，后训练涨这么多既有可能是训练厉害也有可能是根本没怎么训练，参数量也跟不上
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  中国人  
+##### 7311#       发表于 2026-8-13 20:40
+
+只能趁涨价之前猛蹬3天了……
+
+*****
+
+####  发呆的龙虾  
+##### 7312#       发表于 2026-8-13 20:40
+
+蹬不起了。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  来都来了  
+##### 7313#       发表于 2026-8-13 20:41
+
+感谢0731让我以白菜价体验了10多天的顶级大模型，再见了牢梁<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 7314#       发表于 2026-8-13 20:41
+
+涨价前尝尝dsh咸淡吧<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小野賢章  
+##### 7315#       发表于 2026-8-13 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070379&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-8-13 20:37</a>
+
+https://www.npmjs.com/package/@deepseek-ai/dsh 来了</blockquote>
+里面的依赖还没有发布，现在安装不了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  →熙←  
+##### 7316#       发表于 2026-8-13 20:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要还是看opencode go涨价吗, 再涨就完啦
+
+*****
+
+####  Luminous脑壳痛  
+##### 7317#       发表于 2026-8-13 20:42
+
+没卡真的一切都赶不上,华为还不给卡,没办法了只能接受现实了
+
+*****
+
+####  舞以  
+##### 7318#       发表于 2026-8-13 20:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">opencode go蹬flash的时候，眼前会出现梁圣的脸庞么，，，，
+
+*****
+
+####  tonberry  
+##### 7319#       发表于 2026-8-13 20:43
+
+所以之前灰测到底咋回事
+
+
+*****
+
+####  Chenlh  
+##### 7320#       发表于 2026-8-13 20:44
+
+最好你的harness有什么天顶星科技，不然我甚至开始期待harness也区化了，牢梁又一次发现没人用，又一次调个四分之一价
+
+
+*****
+
+####  qz66618  
+##### 7321#       发表于 2026-8-13 20:44
+
+dsh还没上传完吗
+
+*****
+
+####  小野賢章  
+##### 7322#       发表于 2026-8-13 20:44
+
+[https://github.com/deepseek-ai/deepseek-harness](https://github.com/deepseek-ai/deepseek-harness)
+
+npm 上引用的是这个，还没公开
+
+*****
+
+####  来都来了  
+##### 7323#       发表于 2026-8-13 20:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070325&amp;ptid=2275806" target="_blank">akirt 发表于 2026-8-13 20:27</a>
+大家乐观点
+
+opencode go的v4f都敢给双倍的活动
+
+证明这玩意部署起来成本真的很低</blockquote>
+他们转发的是官方API当然便宜了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 7324#       发表于 2026-8-13 20:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲道理ds官方给的benchmark还是挺靠谱的，最好加上dsh之后pro能化区为人
+
+*****
+
+####  HazukiShion  
+##### 7325#       发表于 2026-8-13 20:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070435&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-13 20:45</a>
+
+他们转发的是官方API当然便宜了</blockquote>
+已经换自己部署的了吧？
+
+*****
+
+####  秦南心  
+##### 7326#       发表于 2026-8-13 20:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来dsh的8.25指的是8月25发布啊
+
+*****
+
+####  舞以  
+##### 7327#       发表于 2026-8-13 20:47
+
+无人在意的角落，codex在今天凌晨一批充值卡到期不久后，搞了次重置<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我只能说不像给reset可以不给喵
+
+*****
+
+####  来都来了  
+##### 7328#       发表于 2026-8-13 20:47
+
+Harness是不会有奇迹的，哪怕命中率100%，照样大幅度涨价。
+
+*****
+
+####  小野賢章  
+##### 7329#       发表于 2026-8-13 20:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070442&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-8-13 20:46</a>
+
+原来dsh的8.25指的是8月25发布啊</blockquote>
+看起来是正在发，npm 这玩意太区了
+
