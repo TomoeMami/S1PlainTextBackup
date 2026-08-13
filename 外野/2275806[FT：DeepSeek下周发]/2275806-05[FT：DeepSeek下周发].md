@@ -8604,3 +8604,73 @@ max思考等级都有问题，等他们修完再说吧，牢梁说的对，加�
 
 不是，怎么更新还能挤牙膏式更新的，不能一起上吗<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cscbzcbz  
+##### 6744#       发表于 2026-8-13 10:06
+
+给梁梁再找补一下，max和high思考要配合dsh才能发挥出来，所以现在思考越深智商越低<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 6745#       发表于 2026-8-13 10:07
+
+max思考中断大概率就是juice参数没调整好
+
+*****
+
+####  zy450  
+##### 6746#       发表于 2026-8-13 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065731&amp;ptid=2275806" target="_blank">狭义文具爱好者 发表于 2026-8-13 10:00</a>
+
+哀兵buff大量叠加中，还有奇迹吗？</blockquote>
+艹，这首页看着好眼熟，是不是就flash改成了pro
+
+*****
+
+####  →熙←  
+##### 6747#       发表于 2026-8-13 10:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天开始是牢梁了
+
+*****
+
+####  crow_wine  
+##### 6748#       发表于 2026-8-13 10:08
+
+不对啊灰测版本的水平呢，梁子你还我鲸鱼娘命来<img src="https://static.stage1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  囧Smith  
+##### 6749#       发表于 2026-8-13 10:08
+
+别慌，梁子在炒股<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等今天闭市了就把真家伙拿出来
+
+
+*****
+
+####  蛋黄酱Release  
+##### 6750#       发表于 2026-8-13 10:12
+
+api更新日志还没变，还有机会反杀<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  startraveller  
+##### 6751#       发表于 2026-8-13 10:13
+
+看了一圈X，说现在思维链有问题，会断，思考强度越强断得越快，估计没调好参数。
+
+*****
+
+####  Promeus  
+##### 6752#       发表于 2026-8-13 10:14
+
+怎么看都像是把flash当pro部署了<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
