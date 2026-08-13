@@ -9771,3 +9771,178 @@ cli 用 esc 吧
 
 我刚还让它干活了
 
+
+*****
+
+####  很久就在那边l  
+##### 6868#       发表于 2026-8-13 13:08
+
+toyama nao榜也更新了，比flash高一点
+
+*****
+
+####  zy450  
+##### 6869#       发表于 2026-8-13 13:10
+
+如果表现是这样的话，那可以理解为什么一定要等DSH出来了
+
+*****
+
+####  cscbzcbz  
+##### 6870#       发表于 2026-8-13 13:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70067200&amp;ptid=2275806" target="_blank">zy450 发表于 2026-8-13 13:10</a>
+如果表现是这样的话，那可以理解为什么一定要等DSH出来了</blockquote>
+但是dsh也没出啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ly4236  
+##### 6871#       发表于 2026-8-13 13:11
+
+这个如来的感觉太有意思了
+
+*****
+
+####  狭义文具爱好者  
+##### 6872#       发表于 2026-8-13 13:11
+
+横幅已撤回，闹麻了
+
+
+*****
+
+####  Lorraine_Kinney  
+##### 6873#       发表于 2026-8-13 13:12
+
+绷，官网的消息撤了，真是上错了？
+
+*****
+
+####  アレクト  
+##### 6874#       发表于 2026-8-13 13:12
+
+答案是pro还没训练好就逃逸了，自己把自己发布了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wandeeees  
+##### 6875#       发表于 2026-8-13 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70067207&amp;ptid=2275806" target="_blank">狭义文具爱好者 发表于 2026-8-13 13:11</a>
+
+横幅已撤回，闹麻了</blockquote>
+由于表现不如预期，撤回了此次发布<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  德尔惠净水器  
+##### 6876#       发表于 2026-8-13 13:13
+
+官网更新消息已经撤回了
+
+
+*****
+
+####  王兰花秀丽  
+##### 6877#       发表于 2026-8-13 13:14
+
+这也太搞了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  cscbzcbz  
+##### 6878#       发表于 2026-8-13 13:14
+
+今天能修好吗，版本号为0813的模型没在0813发布？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArthurDent  
+##### 6879#       发表于 2026-8-13 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70067216&amp;ptid=2275806" target="_blank">アレクト 发表于 2026-8-13 13:12</a>
+答案是pro还没训练好就逃逸了，自己把自己发布了</blockquote>
+还把公司电子锁锁了，花了一上午翘了锁才进去<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  chuchoselph  
+##### 6880#       发表于 2026-8-13 13:15
+
+不是，这在干嘛呢？不能真是逃逸烂活儿吧，每个AI lab的必修课？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  tillnight  
+##### 6881#       发表于 2026-8-13 13:15
+
+<blockquote>很久就在那边l 发表于 2026-8-13 13:08
+toyama nao榜也更新了，比flash高一点</blockquote>
+因为入职混元已经申明为了避嫌不参加其他厂商内测了。跑分也是现跑的，用的就是大家现在用的api，这跑分和其他人体感一样，如果真有问题他的跑分现在也说明不了什么。
+
+*****
+
+####  秦南心  
+##### 6882#       发表于 2026-8-13 13:15
+
+哈哈哈哈，deepseek完蛋了！（哀兵必胜ver
+
+*****
+
+####  蜇灵  
+##### 6883#       发表于 2026-8-13 13:16
+
+梁子是不是被人下克上了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  午夜钓者  
+##### 6884#       发表于 2026-8-13 13:16
+
+还能撤回，太搞了
+
+*****
+
+####  tillnight  
+##### 6885#       发表于 2026-8-13 13:16
+
+说实话官网那个横幅才是最可能定时发布的。。
+
+*****
+
+####  蜇灵  
+##### 6886#       发表于 2026-8-13 13:16
+
+感觉他们办公室里是不是在大乱斗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  来都来了  
+##### 6887#       发表于 2026-8-13 13:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70067128&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-13 12:53</a>
+如果训练出问题了的话，为啥要说大幅提升价格，现在这性能没必要这么说吧
+
+—— 来自 Xiaomi 2602BRT18C, A ...</blockquote>
+用户赶都赶不走.jpg<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 6888#       发表于 2026-8-13 13:17
+
+什么大乱斗，在玩LOL大乱斗吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ly4236  
+##### 6889#       发表于 2026-8-13 13:17
+
+pro正式版学会了外包，把预览版拉过来干活了
+
