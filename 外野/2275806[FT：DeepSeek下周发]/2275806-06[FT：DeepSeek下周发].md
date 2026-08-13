@@ -3004,3 +3004,21 @@ dsh plugin --profile web add @0rch1d/dsh-client-ui-opencode-go@1.0.2    [Re:So
 回楼上诸位漏油，我是想在NAS的虚拟机里部署DSH，然后用主力机访问。主力机里WSL里装DSH这路我已经走通了
  这个报错把真相完全揭开了——DSH 的 host 字段在配置校验层只允许两个值：127.0.0.1 或 0.0.0.0，而 0.0.0.0 又被启动层主动禁用。也就是说:  DSH 目前只能监听 127.0.0.1，官方刻意不开放直接局域网监听（因为它等于把远程代码执行暴露到网络）。  所以"改 host 绑定"这条路彻底走不通。局域网访问必须靠外部转发——让 DSH 继续绑 127.0.0.1，用一个中间层把流量从局域网转发进去。我读透了它的信任机制，给你两个可靠方案:  方案一：SSH 隧道（零安装，最快验证） 如果只是主力机访问，什么都不用装，在主力机 Windows 上执行:  powershell 复制 ssh -N -L 3080:127.0.0.1:3080 gxx@192.168.1.15 然后主力机浏览器访问 **http://localhost:3080**。原理：流量走 SSH 隧道，DSH 收到的 Host 是 localhost（回环），自动信任，无需任何额外配置。  缺点：要一直开着这个 SSH 窗口；每台访问机器都要建隧道。  方案二：nginx 反向代理（标准、多机、持久）✅ 推荐 在 LXC 容器里装 nginx，它监听局域网、转发给 DSH，同时保留原始 Host（配合信任白名单）:复制代码
 
+
+*****
+
+####  四氧化三铅  
+##### 7687#       发表于 2026-8-14 02:19
+
+不是码农我就想知道经过了一天现在梁文峰评价是有定论了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绝地潜兵  
+##### 7688#       发表于 2026-8-14 02:20
+
+第三方的V4F缓存命中率也相当惊人<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+让它帮我手写个酒馆和chatbox
+
