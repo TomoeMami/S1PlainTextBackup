@@ -10718,3 +10718,37 @@ deepseek-v4-flash
 
 已发布！
 
+
+*****
+
+####  tillnight  
+##### 6976#       发表于 2026-8-13 15:36
+
+不管如何我还是觉得融资之后的ds最近不是很正常，连续莫名其妙提前给自己划DDL又没法兑现。昨天又莫名其妙在半夜发模型，但是又发不明白。
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 6977#       发表于 2026-8-13 15:42
+
+deepseek v4的架构又没改，就多了dspark，推理infra早就优化好对好精度了，华子可不背这个锅<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  startraveller  
+##### 6978#       发表于 2026-8-13 15:44
+
+先去蹬别的吧，啥时候抱脸上传模型了再说
+
+*****
+
+####  Lorraine_Kinney  
+##### 6979#       发表于 2026-8-13 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70067878&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-13 14:43</a>
+
+好像Grok也有Qwen同样的问题，表现比不上AA的分数，马斯克有刷分的前科吗？难道是过去Grok太区了所以刷了也 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老马一直是自己榜单无敌，4.5表现不错挽回了不少口碑
+
