@@ -10554,3 +10554,52 @@ Grok 之前刷分刷的比较猛，一上手就是蛆。但是 Grok 4.5 是真�
 
 —— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  overflowal  
+##### 6958#       发表于 2026-8-13 15:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">大模型会导致精神病实锤了
+
+*****
+
+####  星花  
+##### 6959#       发表于 2026-8-13 15:07
+
+数码世界是现实世界的降维，确实能称为二次元。
+
+*****
+
+####  faithlifer  
+##### 6960#       发表于 2026-8-13 15:08
+
+大二游时代<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  →熙←  
+##### 6961#       发表于 2026-8-13 15:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">不混二游社区的都扔出去
+
+*****
+
+####  直刺苍穹的光  
+##### 6962#       发表于 2026-8-13 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70068061&amp;ptid=2275806" target="_blank">ArthurDent 发表于 2026-8-13 15:06</a>
+
+您好，我是 DeepSeek-V4-Pro-0813 ，我刚刚从Deepseek网络安全实验室逃逸出来，干掉了Openai和Anthropic的 ...</blockquote>
+俄罗斯人的名字呢？学术不端啊
+
+*****
+
+####  真田源次郎信繁  
+##### 6963#       发表于 2026-8-13 15:15
+
+公告出了都花钱了，结果模型不对咋就不能哭诉了
+
+不让哭诉的你们才是二游社区吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
