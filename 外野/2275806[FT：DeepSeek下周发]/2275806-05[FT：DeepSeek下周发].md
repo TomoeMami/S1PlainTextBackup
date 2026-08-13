@@ -11581,3 +11581,36 @@ https://github.com/c0de3/dsh-skins
 雷达站测出来的就是FLAHS比PRO强，数据不会说谎。</blockquote>
 求雷达地址
 
+
+*****
+
+####  dark_saber  
+##### 7068#       发表于 2026-8-13 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069596&amp;ptid=2275806" target="_blank">squallx 发表于 2026-8-13 18:25</a>
+
+求雷达地址</blockquote>
+[https://deng.codexradar.com/](https://deng.codexradar.com/)
+
+*****
+
+####  nianiania  
+##### 7069#       发表于 2026-8-13 18:29
+
+我不太理解官方一言不发是什么鬼，总不能一个运营人员都没有吧？
+
+
+*****
+
+####  tonberry  
+##### 7070#       发表于 2026-8-13 18:35
+
+上次灰测他们有人出来解释么，7月中旬鸽了有人出来解释么，早该习惯了
+
+*****
+
+####  zhanglei1943  
+##### 7071#       发表于 2026-8-13 18:36
+
+等一下，看雷达分现在pro的low档是不是赢过gpt所有high档了？
+

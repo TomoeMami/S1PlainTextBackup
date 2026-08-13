@@ -175,3 +175,15 @@ BNAJT</blockquote>
 
 这次也登顶了，到底挑染是有多惹人厌啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安广多惠子  
+##### 4615#       发表于 2026-8-13 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069566&amp;ptid=2071758" target="_blank">blue321 发表于 2026-8-13 18:21</a>
+这次也登顶了，到底挑染是有多惹人厌啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">這次好歹是限定
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
