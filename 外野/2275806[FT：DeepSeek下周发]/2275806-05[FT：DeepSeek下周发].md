@@ -9733,3 +9733,41 @@ cli 用 esc 吧
 
 太怪了，low 最好
 
+
+*****
+
+####  午夜钓者  
+##### 6865#       发表于 2026-8-13 12:57
+
+确实，楼主发的跑分图也不是官方发的
+
+
+*****
+
+####  蜗塞塞  
+##### 6866#       发表于 2026-8-13 13:04
+
+ 本帖最后由 蜗塞塞 于 2026-8-13 13:06 编辑 
+
+<img src="https://img.stage1st.com/forum/202608/13/130642cvmjzjqv1q114v1q.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0472.jpeg</strong> (164.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 13:06 上传
+
+<blockquote>tillnight 发表于 2026-8-13 12:53
+我一直不懂你们说的官方跑分是什么。至今也只有一张据说是harness群里发的图。Deepseek发模型一般确实都 ...</blockquote>
+
+肯定是官方的，官方微信群小助手发的
+
+*****
+
+####  自由之紫roy  
+##### 6867#       发表于 2026-8-13 13:05
+
+现在连ａｐｉ到底是ｐｒｏ了吗？
+
+我刚还让它干活了
+
