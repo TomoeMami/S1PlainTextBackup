@@ -10830,3 +10830,74 @@ v4 pro的指纹也变了
 
 已正式降级至梁白开
 
+
+*****
+
+####  千千千千鸟  
+##### 6988#       发表于 2026-8-13 16:05
+
+所以harness也没出是吧，那就是没出，反正flash不涨价我就继续用。干活还够
+
+*****
+
+####  AzuEdit  
+##### 6989#       发表于 2026-8-13 16:08
+
+flash原来的指纹"fp_a18b46594c_prod0820_fp8_kvcache_20260402_fp"
+
+拿md5加密后就是
+
+"A26A7955944DC5C60445BFF77FAC9C8E"
+
+同理 pro也只是md5加密<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 6990#       发表于 2026-8-13 16:11
+
+看来今天不会再发模型了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  德尔惠净水器  
+##### 6991#       发表于 2026-8-13 16:13
+
+<blockquote>cscbzcbz 发表于 2026-8-13 16:11
+看来今天不会再发模型了</blockquote>
+万一今晚又继续安排…
+
+*****
+
+####  hugosol  
+##### 6992#       发表于 2026-8-13 16:13
+
+一些代码之外的探索性任务我还是更倾向用pro的，preview版也会比flash用起来顺手，梁子不要乱搞啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zy450  
+##### 6993#       发表于 2026-8-13 16:13
+
+大家flash用max还是high
+
+*****
+
+####  cscbzcbz  
+##### 6994#       发表于 2026-8-13 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70068575&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-8-13 16:13</a>
+万一今晚又继续安排…</blockquote>
+别吧，昨天的教训还不够吗？
+
+*****
+
+####  jumbleh  
+##### 6995#       发表于 2026-8-13 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70068578&amp;ptid=2275806" target="_blank">zy450 发表于 2026-8-13 16:13</a>
+
+大家flash用max还是high</blockquote>
+flash都是开max的
+
