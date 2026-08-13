@@ -3043,3 +3043,33 @@ dsh plugin --profile web add @0rch1d/dsh-client-ui-opencode-go@1.0.2    [Re:So
 问了半天我另一个部署好的DSH，它看了半天自己的源码，最后告诉我只能是走SSH中继或者反向代理，吐了。。。 ...</blockquote>
 压力了一下DS老师，他竟然找到解决方法了。。。果然还是得不停压力他！！！<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddr712  
+##### 7691#       发表于 2026-8-14 02:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072004&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-14 01:07</a>
+
+对了，这个本来是做了完整的TUI的，8.4全删了
+
+我写插件的时候发现一个很生草的事情，如果写错了直接启动不 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">俺也一样，今天我脑抽让接入D4F的zcode自己改自己的前端，加一些自定义名字头像的功能，改完重启卡logo进不去了。。重装之后，D老师接着又跑了轮搞了个虚拟环境多开zcode倒是搞成功了。
+
+
+*****
+
+####  绝地潜兵  
+##### 7692#       发表于 2026-8-14 02:42
+
+第三方的Deepseek V4 Flash+DSH速度也快到飞起，这是啥原理<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  startraveller  
+##### 7693#       发表于 2026-8-14 02:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072179&amp;ptid=2275806" target="_blank">绝地潜兵 发表于 2026-8-14 02:42</a>
+第三方的Deepseek V4 Flash+DSH速度也快到飞起，这是啥原理</blockquote>
+其实只是单行显示看上去快，下面显示的80多tps的速度其实和接omp/opencode没啥区别。
+
