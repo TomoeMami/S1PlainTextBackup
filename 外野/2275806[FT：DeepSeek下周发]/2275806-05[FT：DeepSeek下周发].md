@@ -10082,3 +10082,92 @@ https://api-docs.deepseek.com/zh-cn/
 
 0813模型确实是0813发布，但没说是20260813<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ice菓  
+##### 6907#       发表于 2026-8-13 13:47
+
+梁历0813是哪天
+
+*****
+
+####  novem  
+##### 6908#       发表于 2026-8-13 13:48
+
+大公司就要有大公司病。jpeg
+
+梁子估计已经要气死了
+
+*****
+
+####  LeoDT  
+##### 6909#       发表于 2026-8-13 13:49
+
+现在看来之前推上老外对D老师的描述是真的理想，突然出现放炸弹 -&gt; 消失 -&gt; 其他家开始吹我家多牛逼 -&gt; 又突然出现放炸弹 -&gt; 再消失。
+
+感觉从前阵子开始，传灰测/放发布和涨价时间/harness消息到处传，这些操作有点反常的高调还失去冷静的感觉。
+
+*****
+
+####  wandeeees  
+##### 6910#       发表于 2026-8-13 13:49
+
+招人太多管理没跟上出问题了？
+
+
+*****
+
+####  小野賢章  
+##### 6911#       发表于 2026-8-13 13:51
+
+这明明是小公司才有的问题，发布都不是整体发的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 6912#       发表于 2026-8-13 13:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70067496&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-13 13:49</a>
+招人太多管理没跟上出问题了？harness组说要绑定pro正式版一起出，pro组的说凭什么，你什么资历我什么资历 ...</blockquote>
+有测试群的消息说本来就是今天发dsh<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2017.05.04  
+##### 6913#       发表于 2026-8-13 13:52
+
+我机器都装好了，怎么还不开饭
+
+*****
+
+####  Promeus  
+##### 6914#       发表于 2026-8-13 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70067495&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-13 13:49</a>
+现在看来之前推上老外对D老师的描述是真的理想，突然出现放炸弹 -&gt; 消失 -&gt; 其他家开始吹我家多牛逼 -&gt; 又 ...</blockquote>
+首先灰测一直是这样的，v4预览发布前灰测了很久。dsh作为一个面向用户的产品也必须提前测试和拉上开发者做插件，这很正常<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">真正奇妙的还是完全不声不响的两次跳票
+
+*****
+
+####  gotter  
+##### 6915#       发表于 2026-8-13 13:54
+
+<img src="https://img.stage1st.com/forum/202608/13/135412nna9vbobypp4v2d2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260813_134029.jpg</strong> (195 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 13:54 上传
+
+笑死，dsp这什么雷霆思维链
+
+
+*****
+
+####  valand  
+##### 6916#       发表于 2026-8-13 13:56
+
+还行，还没到：卧槽，用户彻底怒了
+
