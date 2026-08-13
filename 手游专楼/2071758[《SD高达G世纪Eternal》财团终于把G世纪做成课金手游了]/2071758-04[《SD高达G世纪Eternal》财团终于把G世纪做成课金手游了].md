@@ -218,3 +218,15 @@ SD卡池只要别太离谱本来就是港区随便登顶的
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">但是这回出的一红一黄真的有点废，不应该做强一点骗氪吗
 
+
+*****
+
+####  gpx234mqx  
+##### 4620#       发表于 2026-8-13 21:59
+
+<blockquote>行政裁定书 发表于 2026-8-11 14:44
+将来如果上steam后，是不是外挂、修改就多了？
+
+各种科技号？</blockquote>
+手游修改想多了
+

@@ -302,3 +302,217 @@ flash在这问题上超垃圾，可能是世界知识不够
 
 这缓存命中率干啥都吓哭了啊<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BarricadeMKXX  
+##### 7431#       发表于 2026-8-13 21:56
+
+ 本帖最后由 BarricadeMKXX 于 2026-8-13 21:59 编辑 
+
+好像有点问题编辑了
+
+*****
+
+####  needagf  
+##### 7432#       发表于 2026-8-13 21:56
+
+不说别的，为什么 dsh速度能这么快，是加了什么科技与狠活么
+
+*****
+
+####  vincevincetang  
+##### 7433#       发表于 2026-8-13 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070781&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-13 21:46</a>
+
+dsh+v4pro正式版的双叉臂悬挂模拟
+
+我感觉效果还是很不错的</blockquote>
+乍一看不逊于灰度神秘模型啊
+
+*****
+
+####  小野賢章  
+##### 7434#       发表于 2026-8-13 21:56
+
+说不定是识别到了 dsh 的 UA 就优先调度，做了QoS之类的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  来都来了  
+##### 7435#       发表于 2026-8-13 21:57
+
+git源码：
+
+git clone [https://github.com/deepseek-ai/deepseek-harness.git](https://github.com/deepseek-ai/deepseek-harness.git)
+
+cd deepseek-harness
+
+pnpm install
+
+pnpm run build
+
+pnpm dsh web
+
+--------------------------------------
+
+npx：
+
+npx @deepseek-ai/dsh web
+
+-------------------------------------
+
+按我的理解，不管是git还是npx，最后都是启动的web ui，没有tui也没有gui，是这样的吗？用过的麻烦说一下
+
+*****
+
+####  HazukiShion  
+##### 7436#       发表于 2026-8-13 21:58
+
+说不定检测到 dsh 加算力。<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王兰花秀丽  
+##### 7437#       发表于 2026-8-13 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070852&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-13 21:57</a>
+git源码：
+
+从源码运行</blockquote>
+对，我让它自己读完自己源码了，只有web UI<img src="https://static.stage1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  小野賢章  
+##### 7438#       发表于 2026-8-13 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070852&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-13 21:57</a>
+
+git源码：
+
+从源码运行</blockquote>
+只有两种模式，要么运行 web，要么无头模式，就是直接命令行根据提示词返回结果，不会进入 tui
+
+*****
+
+####  tillnight  
+##### 7439#       发表于 2026-8-13 21:58
+
+不是，抱脸虫下架又是在搞什么，这也不常见啊。
+
+*****
+
+####  dear81  
+##### 7440#       发表于 2026-8-13 21:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070212&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-13 20:06</a>
+这涨价很明显就是让用户去用第三方的，要是 opencode 的 flash 依然能做到以前的价格或者略涨一点都能接受 ...</blockquote>
+ds有第三方么？求推荐
+
+
+*****
+
+####  小野賢章  
+##### 7441#       发表于 2026-8-13 21:59
+
+估计有网速超快的外国人已经把0813的权重下载下来了
+
+
+*****
+
+####  neptunehs  
+##### 7442#       发表于 2026-8-13 22:01
+
+dsh可以接opgo吗
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ST2002  
+##### 7443#       发表于 2026-8-13 22:01
+
+发现DSH启动默认端口3800，如果已经被监听了是打不开的，记得换个空闲的比如4000
+
+npx @deepseek-ai/dsh web --port 4000
+
+*****
+
+####  findpkq  
+##### 7444#       发表于 2026-8-13 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070877&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-13 22:01</a>
+
+dsh可以接opgo吗
+
+—— 来自 OnePlus PJX110, Android 14, 鹅球 v3.5.99</blockquote>
+应该是可以的，设置-模型里的提供方里面直接就有OpenCod-Go
+
+*****
+
+####  →熙←  
+##### 7445#       发表于 2026-8-13 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070877&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-13 22:01</a>
+
+dsh可以接opgo吗
+
+—— 来自 OnePlus PJX110, Android 14, 鹅球 v3.5.99</blockquote>
+可以,支持任意供应商
+
+*****
+
+####  神必迷你龙  
+##### 7446#       发表于 2026-8-13 22:03
+
+真的很快么，我怎么感觉和reasonix之流差不太多<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  noneoneone  
+##### 7447#       发表于 2026-8-13 22:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070877&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-13 22:01</a>
+
+dsh可以接opgo吗
+
+—— 来自 OnePlus PJX110, Android 14, 鹅球 v3.5.99</blockquote>
+可以，我已经在跑opencode go的dsv4f了
+
+*****
+
+####  neptunehs  
+##### 7448#       发表于 2026-8-13 22:03
+
+那我之前用着trellis的工程转过去能认吗。。。
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  needagf  
+##### 7449#       发表于 2026-8-13 22:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070877&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-13 22:01</a>
+
+dsh可以接opgo吗
+
+—— 来自 OnePlus PJX110, Android 14, 鹅球 v3.5.99</blockquote>
+可以，甚至openai也行。
+
+*****
+
+####  UncleDracula  
+##### 7450#       发表于 2026-8-13 22:04
+
+用VSCODE随便让pro查了个BUG，跑了300万TOKEN，命中只有200万，花了5块钱，赶紧终止了。。。这是只有专武才能驾驭PRO的意思吗。。。
+
+*****
+
+####  御坂MKII  
+##### 7451#       发表于 2026-8-13 22:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer"> 现在 tailscale 之类的还不能用，ssh 做端口转发可以
+
