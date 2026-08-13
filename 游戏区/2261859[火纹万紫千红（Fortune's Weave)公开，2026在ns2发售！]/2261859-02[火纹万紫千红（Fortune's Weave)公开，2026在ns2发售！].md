@@ -9735,3 +9735,18 @@ XCOM2 新DLC实装<img src="https://static.stage1st.com/image/smiley/face2017/04
 这 ...</blockquote>
 除非把热兵器单独分出来，才能做差异化，但并没有还是套用已有的种类
 
+
+*****
+
+####  Beaverfan01  
+##### 2405#       发表于 2026-8-13 21:15
+
+有媒体发了preview。
+
+*****
+
+####  ascomnet  
+##### 2406#       发表于 2026-8-13 21:18
+
+提前一个月发啊，哪家
+

@@ -210,3 +210,11 @@ SD卡池只要别太离谱本来就是港区随便登顶的
 
 不怎么再版的元祖sd破烂在中古市场地位是很恐怖的，这方面就不用质疑sd老登的消费力了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4619#       发表于 2026-8-13 21:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">但是这回出的一红一黄真的有点废，不应该做强一点骗氪吗
+

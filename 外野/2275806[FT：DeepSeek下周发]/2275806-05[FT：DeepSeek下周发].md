@@ -14373,3 +14373,95 @@ dsh我觉得思想是很牛逼的，但是模型拉了也没法啊梁子<img src
 
 有没有黄金时代文
 
+
+*****
+
+####  serj005  
+##### 7371#       发表于 2026-8-13 21:18
+
+另外flash官方测评跑的极简模式确实约等于毛坯pi，真就是给两最基础的shell执行和文件编辑能力，纯测模型本身的agent循环能力，一点额外辅助和约束都没给
+
+*****
+
+####  风萧飒  
+##### 7372#       发表于 2026-8-13 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070088&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-8-13 19:46</a>
+充的钱能退的啊</blockquote>
+先观望两天，实在不行就去退了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  秦南心  
+##### 7373#       发表于 2026-8-13 21:20
+
+看了dsh介绍，是不是可以期待一个超高缓存命中的写文插件
+
+*****
+
+####  qz66618  
+##### 7374#       发表于 2026-8-13 21:21
+
+目前这个harness没办法直接查看和修改文件内容，改代码什么的感觉有点麻烦
+
+*****
+
+####  拯救节操希灵宅  
+##### 7375#       发表于 2026-8-13 21:21
+
+我就用用v4f，有没有第三方的供应商推荐，千问应该是自己部署的，价格是0.2/1/2，opencode go现在应该还没切换到自托管
+
+
+*****
+
+####  小野賢章  
+##### 7376#       发表于 2026-8-13 21:22
+
+效果还可以，给我后端屎山 review，发现的问题和 pi+k3 结论差不多的。而且速度飞快（主要是k3本身很慢）
+
+*****
+
+####  舞以  
+##### 7377#       发表于 2026-8-13 21:24
+
+用dsh可以挺严肃地和她聊怎么改造她<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  →熙←  
+##### 7378#       发表于 2026-8-13 21:25
+
+web端不好用, tui啥时候出
+
+*****
+
+####  qz66618  
+##### 7379#       发表于 2026-8-13 21:26
+
+速度确实是真的快，这pro感觉和我之前用flash一样，不知道是不是现在用的人少<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  来都来了  
+##### 7380#       发表于 2026-8-13 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070637&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-13 21:21</a>
+目前这个harness没办法直接查看和修改文件内容，改代码什么的感觉有点麻烦</blockquote>
+现在歪卜烤腚的思路就是，不需要用户看代码，只要看着Agent在那烧Token就可以了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想看代码的话，只能用VS Code的插件了。
+
+*****
+
+####  阿刚  
+##### 7381#       发表于 2026-8-13 21:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">我是不是模式没选对，用我的已经nsfw的助手，他说不能黄……
+
+*****
+
+####  Dreki  
+##### 7382#       发表于 2026-8-13 21:27
+
+web/gui用不来，他这个tui说要install plugin怎么搞，感觉没看到文档啊    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
