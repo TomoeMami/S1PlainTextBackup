@@ -14619,3 +14619,11 @@ web/gui用不来，他这个tui说要install plugin怎么搞，感觉没看到�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  舞以  
+##### 7400#       发表于 2026-8-13 21:38
+
+我让它自己写一个oauth订阅适配插件，到时候试试用这玩意儿跑gpt-5.6-sol试试<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
