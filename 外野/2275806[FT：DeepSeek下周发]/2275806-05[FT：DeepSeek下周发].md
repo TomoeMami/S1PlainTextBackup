@@ -11562,3 +11562,22 @@ https://github.com/c0de3/dsh-skins
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  雷猴雷猴  
+##### 7066#       发表于 2026-8-13 18:24
+
+这个知乎回答挺有意思。对于DS v4 pro 0813的一个有趣的小巧思。 - 爆裂熊猫的文章 - 知乎
+[https://zhuanlan.zhihu.com/p/2071136101763396778](https://zhuanlan.zhihu.com/p/2071136101763396778)
+
+*****
+
+####  squallx  
+##### 7067#       发表于 2026-8-13 18:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069290&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-8-13 17:41</a>
+
+雷达站测出来的就是FLAHS比PRO强，数据不会说谎。</blockquote>
+求雷达地址
+
