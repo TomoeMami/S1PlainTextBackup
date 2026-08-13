@@ -3243,3 +3243,14 @@ whale.ico
 — ...</blockquote>
 我接基元的DS，用官方api搜索就要另外扣钱了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 7705#       发表于 2026-8-14 03:26
+
+我测了下dsh里面sol-max的效果，感觉不如v4pro<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+轮子都横着了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
