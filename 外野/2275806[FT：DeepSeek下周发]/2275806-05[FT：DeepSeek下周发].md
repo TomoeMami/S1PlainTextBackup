@@ -8758,3 +8758,77 @@ api更新日志还没变，还有机会反杀<img src="https://static.stage1st.c
 
 我的API的知识库还是25年初的啊
 
+
+*****
+
+####  Promeus  
+##### 6759#       发表于 2026-8-13 10:27
+
+Api又开始无法识别repeat Nameeee了
+
+*****
+
+####  →熙←  
+##### 6760#       发表于 2026-8-13 10:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">不是i'm doing我不认
+
+
+*****
+
+####  noword  
+##### 6761#       发表于 2026-8-13 10:29
+
+最强infra
+
+但草台班子？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  cscbzcbz  
+##### 6762#       发表于 2026-8-13 10:29
+
+dsv4proga不可能翻车，我要吹爆梁文锋<img src="https://static.stage1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer"><img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  serj005  
+##### 6763#       发表于 2026-8-13 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065925&amp;ptid=2275806" target="_blank">darktide 发表于 2026-8-13 10:23</a>
+我的API的知识库还是25年初的啊</blockquote>
+现在llm自身回答的知识库时间统一当做幻觉就行了，都不准
+
+*****
+
+####  卡普空  
+##### 6764#       发表于 2026-8-13 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065862&amp;ptid=2275806" target="_blank">zfy1989 发表于 2026-8-13 10:16</a>
+
+他妈的怎么有一种手游开服，维护10个小时的既视感。</blockquote>
+所以没有官宣，梁子正在手搓bug <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ternayark  
+##### 6765#       发表于 2026-8-13 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065868&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-8-13 10:17</a>
+“有点强，但是要多抽几次卡”</blockquote>
+不会是用pro+flash+harness肘击K3集群吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+真大招在「harness调用谁」这样<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dunphy  
+##### 6766#       发表于 2026-8-13 10:32
+
+在更新日志更新前，我都不信<img src="https://static.stage1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+——来自 Windows 11 Pro 上的 [S1er 客户端](https://s1er.pages.dev)
+
