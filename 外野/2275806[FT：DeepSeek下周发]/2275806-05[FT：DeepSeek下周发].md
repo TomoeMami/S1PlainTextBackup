@@ -9946,3 +9946,49 @@ toyama nao榜也更新了，比flash高一点</blockquote>
 
 pro正式版学会了外包，把预览版拉过来干活了
 
+
+*****
+
+####  Promeus  
+##### 6890#       发表于 2026-8-13 13:18
+
+首页横幅也没了，确实出事了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  某穆克拉  
+##### 6891#       发表于 2026-8-13 13:22
+
+你这（不好好训练偷跑还）吃白饭的大肥鱼！<img src="https://p.sda1.dev/34/24aaa618b73b1c086d906a86357e1da0/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  jojog  
+##### 6892#       发表于 2026-8-13 13:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊这
+
+*****
+
+####  绝地潜兵  
+##### 6893#       发表于 2026-8-13 13:27
+
+用户赶都赶不走.jpg
+
+*****
+
+####  Promeus  
+##### 6894#       发表于 2026-8-13 13:27
+
+据有关消息报道，深度求索公司近日因为三名俄籍临时工的疏忽，导致发布了不正确的模型，三名临时工现已被开除。据悉，三名临时工分别是维亚切斯拉夫·巴兰尼科夫，安东·尤丁采夫 ，尼基塔·布亚诺夫。
+
+*****
+
+####  星花  
+##### 6895#       发表于 2026-8-13 13:27
+
+这比别家的出逃厉害多了。
+
