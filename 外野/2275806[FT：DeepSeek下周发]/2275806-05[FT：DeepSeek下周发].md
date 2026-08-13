@@ -13208,3 +13208,176 @@ DeepSeek不是多模态的吧，这个是给代码 拿到cad软件里跑吗</blo
 还有最后一战，等等harness我看看究竟怎么个事如果harness真的好用也算是ds做了个好事 ...</blockquote>
 今晚还是明天<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Luminous脑壳痛  
+##### 7244#       发表于 2026-8-13 19:59
+
+再见了,我的白月光灰测和0731<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">,只是炼丹炉炸了吧......
+
+*****
+
+####  凤凰堂御前真章  
+##### 7245#       发表于 2026-8-13 19:59
+
+还能见到灰测的模型吗，梁子？
+
+*****
+
+####  谎称  
+##### 7246#       发表于 2026-8-13 19:59
+
+当初刚出来的时候价格就挺贵吧，后来因为不知名原因降价到现在……
+
+不知名原因当初好像传的是服务器负载没有想象中的高，所以降价了，现在v4f全世界都在用，服务器负载高了，所以就涨价吧……
+
+*****
+
+####  tillnight  
+##### 7247#       发表于 2026-8-13 20:01
+
+<blockquote>dear81 发表于 2026-8-13 19:56
+个人用户不如狗啊
+
+人家都是走大企业订阅的</blockquote>
+V4预览版也是先大幅涨价没人用了又大幅降价的。并不是那么简单的什么企业订阅问题。
+
+*****
+
+####  akirt  
+##### 7248#       发表于 2026-8-13 20:01
+
+这个峰谷价很明显不是电费决定的
+
+是他们员工上班也需要大量计算资源所以才做的价格调控机制
+
+国内计算资源还是太缺了
+
+*****
+
+####  此誓的守望  
+##### 7249#       发表于 2026-8-13 20:02
+
+我只能说这发展太典了，这个世界就是一个巨大的米哈游，后面是不要要到梁文峰开会哽咽流泪，尖锐的声音，越看越红，入夜狂飙，你知道吗j鲸鱼的原型是C罗啥的？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  overflowal  
+##### 7250#       发表于 2026-8-13 20:02
+
+国内上班时间双倍完全是因为他们自己上班要用资源吧<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Rowen233  
+##### 7251#       发表于 2026-8-13 20:03
+
+已经测完的会不会重测 不然搜出来的大概率都是第一版模型的测试结果<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超极巨鲨鲨  
+##### 7252#       发表于 2026-8-13 20:03
+
+滑动变祖器直接往梁÷方向拉到底吧<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qz66618  
+##### 7253#       发表于 2026-8-13 20:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070166&amp;ptid=2275806" target="_blank">onezer0618 发表于 2026-8-13 19:57</a>
+今晚还是明天</blockquote>
+还有二十多分钟，说是8：25发布<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  ycjiang1337  
+##### 7254#       发表于 2026-8-13 20:04
+
+比订阅不是应该用OpenCode GO比么？
+
+*****
+
+####  Rowen233  
+##### 7255#       发表于 2026-8-13 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070160&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-8-13 19:56</a>
+
+完美结局：0817宣布上线昇腾超节点，取消涨价，改为降价到一半，操盘大手✋ ...</blockquote>
+不大可能了 华子产能早被抢完了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  crow_wine  
+##### 7256#       发表于 2026-8-13 20:05
+
+那开源权重呢，也拉出来吧。哪怕是大粪也拉出来看看呀<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  真红之闪电  
+##### 7257#       发表于 2026-8-13 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070198&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-13 20:03</a>
+还有二十多分钟，说是8：25发布
+
+—— 来自 鹅球 v3.5.99</blockquote>
+就是这个 8:25 才会有疑问…它但凡是 20:25 呢<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lordquest  
+##### 7258#       发表于 2026-8-13 20:05
+
+靠，这个收费我自己退款了
+
+—— 来自 vivo V2314A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  cscbzcbz  
+##### 7259#       发表于 2026-8-13 20:05
+
+max一句话跑了50分钟还没跑完，登了我10%的go套餐4小时用量
+我到要看看最后会跑出来个啥玩意
+
+*****
+
+####  qz66618  
+##### 7260#       发表于 2026-8-13 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070206&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-8-13 20:05</a>
+就是这个 8:25 才会有疑问…它但凡是 20:25 呢
+
+—— 来自 S1Fun</blockquote>
+就是今晚八点啊<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  misuzu0723  
+##### 7261#       发表于 2026-8-13 20:06
+
+这涨价很明显就是让用户去用第三方的，要是 opencode 的 flash 依然能做到以前的价格或者略涨一点都能接受，现在比起涨价最大的问题还是 pro 的性能不及预期
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  王兰花秀丽  
+##### 7262#       发表于 2026-8-13 20:07
+
+我也觉得涨价还好，性能一坨真的不太能接受    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
