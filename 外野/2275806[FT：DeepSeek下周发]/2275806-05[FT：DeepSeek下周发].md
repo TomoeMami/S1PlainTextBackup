@@ -8255,3 +8255,29 @@ AA榜出来了，这真的不是模型部署出问题了吗，就比flash高两�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  80后卢瑟  
+##### 6707#       发表于 2026-8-13 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065394&amp;ptid=2275806" target="_blank">燕山雪 发表于 2026-8-13 09:22</a>
+
+阿里不愧是模型界汪峰，昨晚发布的max，这么多楼愣是一个字都没有……</blockquote>
+因为Qwen日常很蛆，除非口碑扭转，否则大家印象就是一个跑分冠军
+
+
+*****
+
+####  小野賢章  
+##### 6708#       发表于 2026-8-13 09:35
+
+我感觉还不如v4flash，说实话我好久没有用过v4pro了
+
+*****
+
+####  crow_wine  
+##### 6709#       发表于 2026-8-13 09:35
+
+response api 是 infra 的活吧
+
