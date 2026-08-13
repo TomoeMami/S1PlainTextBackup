@@ -10077,3 +10077,100 @@ boss：这tm我是boss还是你是boss
 
 IGN说方尖塔里选择重玩之前章节会清除掉选择章节之后的所有数据（也就是真正的重打）
 
+
+*****
+
+####  零崎不识  
+##### 2441#       发表于 2026-8-13 23:18
+
+<blockquote>hl氏 发表于 2026-8-13 23:12
+四线互不干涉有点失望了，就是纯玩四次大剑斗祭
+
+5年后的角色怎么处理都没提到，不过我觉得无法用自己培养的 ...</blockquote>
+不是，我之前梳理过，四大主角大剑斗祭的日子不一样，所以大剑斗祭里四个主角每轮打的对手、场地都不一样，是不一样的流程，而且媒体的意思是，大剑斗祭只是主线最基础的部分，核心主线在大地图上
+
+*****
+
+####  微尘众  
+##### 2442#       发表于 2026-8-13 23:20
+
+30帧和一个存档位置是搞什么<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qiyu1234  
+##### 2443#       发表于 2026-8-13 23:21
+
+序章设定科幻味挺浓的
+
+You awaken in an incubation vat and are informed you had previously died, everything but your heart destroyed, and are now being placed into the body of a Mediator, a genetically engineered servant to the gods (you can name and customize this avatar to a limited degree). You're then informed that you're going to be teaming with the time-traveling goddess Fortuna to jump back five years into the past so you can ensure that four key heroes, The Flame Lords of Dagda, survive so they can help you take down Balor in the present.
+
+<img src="https://img.stage1st.com/forum/202608/13/232044cyeh2l9kjz8zq8l2.jpg" referrerpolicy="no-referrer">
+
+<strong>WCCFfireemblemfortunesweave3.jpg</strong> (346.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 23:20 上传
+
+*****
+
+####  1wq1  
+##### 2444#       发表于 2026-8-13 23:23
+
+咋星际旅行都出来了，实锤苏蒂斯是外星人了吗
+
+
+*****
+
+####  Piano-Forest  
+##### 2445#       发表于 2026-8-13 23:25
+
+[https://weibo.com/6048193311/5331580079838642](https://weibo.com/6048193311/5331580079838642)
+
+多家外媒在玩过《火焰之纹章 万缕千丝》的部分内容后，发布了前瞻评价
+
+【VGC】
+
+这可能是系列体量最大的一作。游戏不是「长」，而是「广」——仅故事第一部分就有四条独立路线，每条要打 20 多个小时，而这还只是进入第二部分之前的内容。
+
+四位可扮演角色个个都像真正的主角，跟任意一条线都能认识完整阵容。
+
+故事聚焦首都鞑古席翁的「大剑斗祭」。等待下一场战斗的日子里，你能像《女神异闻录》那样自由分配时间：探索鞑古扎帝国、搜集素材、闯迷宫。迷宫是本作最有趣的新要素，致敬了《火焰之纹章回声：另一位英雄王》，并为此引入大幅简化策略的战斗系统，让节奏快上许多。
+
+【IGN】
+
+本作与《风花雪月》最大的不同，是把每条英雄的个人故事前置。
+
+玩家扮演的「救世主」穿越回过去，协助四位被神选中的战士之一。评测者尤其喜欢「个人故事压过未来威胁」的设定，让每条路线都有独特节奏——男孩凯伊要救身陷囹圄的父亲，复仇的比维拉琴奏者蕾达则追查杀父仇人。
+
+新系统「圣焰战技」是最大亮点：释放会扣血，却会积攒量表，用够次数能获得大幅增益；可一旦过量就会「爆发」，整场战斗扣减最大 HP。
+
+“这是一套真正有趣的「风险/回报」系统。”
+
+玩家还能在路线间自由切换，颇有《塞尔达传说》近作的风范。
+
+【RPG Site】
+
+试玩了四条路线各五章，认为本作是系列核心设计的集大成：
+
+大地图回归、迷宫致敬《回声》、承袭《风花雪月》的路线结构、自《if》以来首次回归的自定义主角、还有《Engage》式的华丽演出。
+
+四条路线开场截然不同：蕾达追凶、赛奥朵拉讨好神威法王、迪托利希只为刺激、凯伊要救父亲。
+
+更关键的是，这四条「路线」并非同一时间线并进，而是四个不同版本的大剑斗祭事件——救世主借命运女神芙托娜之力改写各条现实的因果。
+
+机制上最大的改动是大地图：自由时间里要横跨整片大陆，天数有限，需要权衡练级、探迷宫、逛商店的优先级。
+
+【Eurogamer】
+
+被本作的规模与野心震撼，这不是《Engage》，不止一条路。这是一个迷宫般、层次丰富到你需要挂墙图、拉满线才能跟上的故事，让《风花雪月》的剧情相比之下都显得慵懒了。
+
+战斗表面还是老一套，但战车单位能横扫整排敌人，高级职业能把长矛与白魔法结合，主角更有专属能力。
+
+这些能力要耗 HP，主将阵亡即败北，风险与回报被放到最大。敌人 AI 也更狡诈，专挑你最弱的单位下手。
+
+“我觉得《火焰之纹章》从未如此好看，也从未如此好玩过。”
+

@@ -1185,3 +1185,108 @@ opencode go上luna是response的api，估计dsh没有区分，可以单独创建
 
 甚至可以做数学证明的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  来都来了  
+##### 7517#       发表于 2026-8-13 23:16
+
+所以这个也是毛坯房吗？我刚把pi装的称心如意，不想再装一次毛坯房了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  库德里尔  
+##### 7518#       发表于 2026-8-13 23:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071422&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-13 23:16</a>
+
+所以这个也是毛坯房吗？我刚把pi装的称心如意，不想再装一次毛坯房了</blockquote>
+从pi里面吸取了很多营养 有一部分和pi是一脉相承的 包括万物插件化的设计
+
+但我觉得目前按裸npx启动来说 可以开箱即用了
+
+我感觉甚至可以试着把pi做好的套组迁过去 就是dsh的插件还没研究过
+
+*****
+
+####  LANGWANG  
+##### 7519#       发表于 2026-8-13 23:18
+
+这个缓存命中率好舒服啊
+
+*****
+
+####  HazukiShion  
+##### 7520#       发表于 2026-8-13 23:19
+
+<img src="https://img.stage1st.com/forum/202608/13/231907y7z9ja3aa2rvrnp5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (43.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 23:19 上传
+
+？
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 7521#       发表于 2026-8-13 23:19
+
+看到个很有趣的说法
+Reverse KL在生成模型里天然具有mode-seeking性质：它倾向于找到教师认为最可靠的几个高概率模式，而不是尽量保留教师分布中所有可能的表达方式。最近专门研究OPD的论文甚至直接发现，reverse-KL OPD可能降低生成多样性，尤其是在教师本来就具有较高不确定性的token位置。
+也就是说D指导现在是往强化agent能力而不是创造力和灵感的方向训练
+应试教育抹杀创造力这一块<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+拿ai写文的人真就被时代抛弃了吗
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  chuchoselph  
+##### 7522#       发表于 2026-8-13 23:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071260&amp;ptid=2275806" target="_blank">gooyoy 发表于 2026-8-13 22:51</a>
+
+所以还有没有反转？
+
+—— 来自 HUAWEI PLA-AL10, Android 16, 鹅球 v3.5.99</blockquote>
+有的兄弟，早上那个才是对的，现在这个还是给你们吃太好了，要rollback<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  孤灯蓝影  
+##### 7523#       发表于 2026-8-13 23:21
+
+我宣布DSH先今已经完爆其他agent了，长程agent真是巨大无比的飞跃进步
+
+*****
+
+####  Orianna  
+##### 7524#       发表于 2026-8-13 23:22
+
+感觉不能瞎蹬了
+
+<img src="https://img.stage1st.com/forum/202608/13/232020ffenbzpk83kpeezn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (66.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 23:20 上传
+
+工作时间价格是原来的4.5倍。
+
+*****
+
+####  舞以  
+##### 7525#       发表于 2026-8-13 23:23
+
+插件热插拔是个很有潜力的特定，它能扩展harness，也能扩展模型，算是修改了harness和模型之间的边界了。
+说不定以后模型的后训练内容之一就是拿到工作区之后先给自己搓一套合适的工作流程和环境呢<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
