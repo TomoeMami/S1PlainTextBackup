@@ -7914,3 +7914,80 @@ Flash确实太惊艳了 ...</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  goranger  
+##### 6670#       发表于 2026-8-13 08:36
+
+太拉了只能偷偷更新了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  startraveller  
+##### 6671#       发表于 2026-8-13 08:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064746&amp;ptid=2275806" target="_blank">lain2008 发表于 2026-8-13 02:52</a>
+我看rocm好像不是跟上来了么？还是这么差？
+
+连个qwen 14b都跑不起来么？</blockquote>
+已经很久没出过14B的规格了。 主要是16G也就跑个35A3B Q4量化的，而且上下文开不高。
+
+*****
+
+####  千千千千鸟  
+##### 6672#       发表于 2026-8-13 08:37
+
+v4f很强但是v4p拉了，现在的结论是这个吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 6673#       发表于 2026-8-13 08:38
+
+今天下午5点准时开庭<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+就现在pro水平，梁子还是别涨价了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kykawaiii  
+##### 6674#       发表于 2026-8-13 08:40
+
+所以v4p真的拉了，才在晚上发？
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  startraveller  
+##### 6675#       发表于 2026-8-13 08:40
+
+看都说还没搞好，凌晨还退回过preview一次，要等公告。
+
+
+*****
+
+####  darktide  
+##### 6676#       发表于 2026-8-13 08:42
+
+目前用作对话的情景下，没感觉出太大区别。场景：项目开发组织管理
+
+*****
+
+####  qwased  
+##### 6677#       发表于 2026-8-13 08:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我靠，折腾一晚上才发现因为flash不读项目说明自己乱寻思部署出错了，重新强调必须读说明之后自己修好了
+
+*****
+
+####  Milarvoz  
+##### 6678#       发表于 2026-8-13 08:45
+
+v4pro暂未变动的banner还在api平台上挂着呢，笑了。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

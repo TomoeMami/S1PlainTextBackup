@@ -496,3 +496,52 @@ MD-17 反坦克地雷
 
 尸变体飞扑直接待机动画平移，带的火雷一整局没被这东西碰到过一下，大棒哥依然爆炸婆罗门的腐乳。这新变种除了多一无是处，打法就是跑，非防守任务谁打谁是老吃家<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑酒杯  
+##### 7506#       发表于 2026-8-12 23:18
+
+好无聊的变种，十几个粉碎者往你面前挤的时候有种我为什么会玩这游戏的感想
+
+*****
+
+####  风萧飒  
+##### 7507#       发表于 2026-8-12 23:34
+
+这个大锤有点变态
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  保科智子  
+##### 7508#       发表于 2026-8-13 00:23
+
+进游戏看到驱逐舰就闪退。重装都不行。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Koyishi  
+##### 7509#       发表于 2026-8-13 00:28
+
+闪退的验证下完整性试试
+
+—— 来自 Xiaomi 23054RA19C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  FLZB  
+##### 7510#       发表于 2026-8-13 03:38
+
+尸变体飞扑直接待机动画平移，带的火雷一整局没被这东西碰到过一下，大棒哥依然爆炸婆罗门的腐乳。这新变种除了多一无是处，打法就是跑，非防守任务谁打谁是老吃家<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gnleez  
+##### 7511#       发表于 2026-8-13 08:42
+
+新地图都是近战单位所以整体难度不高，新盔甲配电榴弹完克尸变体，棍哥用热熔地雷也好杀
+
+等后续混合部队出来就是地狱绘图了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

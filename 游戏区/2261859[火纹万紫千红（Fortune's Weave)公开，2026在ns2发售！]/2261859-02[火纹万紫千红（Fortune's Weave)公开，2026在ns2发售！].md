@@ -9512,3 +9512,14 @@ JRPG，舞女复仇。
 可以等各种高血压贴脸空枪的梗图了</blockquote>
 武器类型是手甲的话 命中不会低吧
 
+
+*****
+
+####  流缨  
+##### 2381#       发表于 2026-8-13 08:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70064215&amp;ptid=2261859" target="_blank">septer 发表于 2026-8-12 23:47</a>
+
+可以等各种高血压贴脸空枪的梗图了</blockquote>
+XCOM2 新DLC实装<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
