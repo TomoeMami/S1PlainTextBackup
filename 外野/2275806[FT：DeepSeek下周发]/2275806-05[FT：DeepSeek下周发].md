@@ -8367,3 +8367,90 @@ V4Pro不可能翻车！我要吹爆梁文峰
 
 梁仔别是在装糖，把用户都骗走把
 
+
+*****
+
+####  samfs  
+##### 6720#       发表于 2026-8-13 09:46
+
+主页改成「V4-Pro 正式版发布」，但没有任何新闻和别的文档。就这么随意吗
+
+
+*****
+
+####  果壳中的松鼠  
+##### 6721#       发表于 2026-8-13 09:47
+
+评级下调，给到梁子<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  crow_wine  
+##### 6722#       发表于 2026-8-13 09:47
+
+装糖骗我<img src="https://static.stage1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  狭义文具爱好者  
+##### 6723#       发表于 2026-8-13 09:49
+
+目前的版本 bench和官方的bench差10分都有，专武也不可能这么强加成吧，真可能上错检查点了
+
+
+*****
+
+####  Litccc  
+##### 6724#       发表于 2026-8-13 09:52
+
+不可能是时间搞错了，官方微信群里都发了，那张跑分图也是群里发的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Lorraine_Kinney  
+##### 6725#       发表于 2026-8-13 09:53
+
+max思考等级都有问题，等他们修完再说吧，牢梁说的对，加班是错的
+
+*****
+
+####  80后卢瑟  
+##### 6726#       发表于 2026-8-13 09:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 现在高思考强度的时候会提前结束，非常诡异，这是导致分上不去的原因
+
+*****
+
+####  蜇灵  
+##### 6727#       发表于 2026-8-13 09:54
+
+现在有定论了吗？
+
+*****
+
+####  kykawaiii  
+##### 6728#       发表于 2026-8-13 09:54
+
+这正式版公告也出了，盖棺定论了吗
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  serj005  
+##### 6729#       发表于 2026-8-13 09:54
+
+说个题外的，opencode之前把中文i18n更新了一下，补上了部分中文翻译，token译为词元，然后今天的新版本又给改回token了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/13/095428e5bd2qdq5q8r7drh.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1786586068277_2.webp</strong> (26.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 09:54 上传
+
