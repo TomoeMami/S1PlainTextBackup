@@ -157,3 +157,13 @@ BNAJT</blockquote>
 
 全能骑士这个被动太爆笑了，纯占格子的
 
+
+*****
+
+####  jackyhuang  
+##### 4613#       发表于 2026-8-13 17:02
+
+你游第一个人身单位竟然是夏亚<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
