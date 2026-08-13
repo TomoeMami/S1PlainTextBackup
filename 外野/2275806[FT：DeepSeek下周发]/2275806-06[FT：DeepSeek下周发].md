@@ -3326,3 +3326,24 @@ pro max的思考链BUG修了吗？ 真是部署故障？ 华子全责？
 pro max的思考链BUG修了吗？ 真是部署故障？ 华子全责？</blockquote>
 不知道啊，这个html我当时是max跑的
 
+
+*****
+
+####  余晖  
+##### 7711#       发表于 2026-8-14 04:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072205&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-14 03:25</a>
+
+我接基元的DS，用官方api搜索就要另外扣钱了</blockquote>
+网页搜索底下可以设置接口地址，我用的opencode，直接设置成opencode的api和地址就能用搜索功能了
+
+
+*****
+
+####  qwased  
+##### 7712#       发表于 2026-8-14 04:34
+
+[https://github.com/qwased/dsh-web-search-duckduckgo/](https://github.com/qwased/dsh-web-search-duckduckgo/)
+
+烧了1.2亿token做出来了<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">感觉pro的左右脑互搏浪费了很多时间，让他只做规划然后让flash max去实施就好很多
+
