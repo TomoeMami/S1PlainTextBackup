@@ -7848,3 +7848,69 @@ Responses API支持web_search ，pro升没升级看这个不就行了
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  nxmonitor  
+##### 6663#       发表于 2026-8-13 08:26
+
+早上质量好起来了，不过max还是有点问题…
+
+*****
+
+####  lowezack  
+##### 6664#       发表于 2026-8-13 08:27
+
+搞了半天，不会是pro能力没达标才不发的，而不是在等harness一起发
+
+Flash确实太惊艳了
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6665#       发表于 2026-8-13 08:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065053&amp;ptid=2275806" target="_blank">lowezack 发表于 2026-8-13 08:27</a>
+搞了半天，不会是pro能力没达标才不发的，而不是在等harness一起发
+
+Flash确实太惊艳了 ...</blockquote>
+但flash这个水平，按理说作为它蒸馏对象的pro不可能拉了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  舞以  
+##### 6666#       发表于 2026-8-13 08:29
+
+这个检查点真的不对劲<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+梁子真要陨落了么，哭哭
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  zy450  
+##### 6667#       发表于 2026-8-13 08:31
+
+感觉草台的概率更大，太不合常理
+
+充值页面没动、DS不加班、从来没有凌晨发过模型
+
+
+*****
+
+####  长征5号  
+##### 6668#       发表于 2026-8-13 08:32
+
+[https://live.bilibili.com/11737509](https://live.bilibili.com/11737509)
+
+*****
+
+####  小川彩  
+##### 6669#       发表于 2026-8-13 08:35
+
+还没试 比sol-medium如何？
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
