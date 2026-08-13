@@ -3296,3 +3296,33 @@ gpt codex.html
 
 DSH随便试了一条，回复太长的话web端会卡，估计到时候得优化一下，毕竟写点啥代码就很容易思考巨长无比<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  squallx  
+##### 7708#       发表于 2026-8-14 04:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072221&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-14 04:13</a>
+
+对比了一下v4pro x dsh，sol-max x dsh和sol-ultra x codex在双叉臂上的产物，我感觉我想给pro翻案了
+
+ ...</blockquote>
+pro max的思考链BUG修了吗？ 真是部署故障？ 华子全责？
+
+*****
+
+####  余晖  
+##### 7709#       发表于 2026-8-14 04:23
+
+看了下记忆机制，准备等大佬搓出插件来，我再让ds自己加个webdav同步功能，就可以两岸三地连在一起了
+
+*****
+
+####  舞以  
+##### 7710#       发表于 2026-8-14 04:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072231&amp;ptid=2275806" target="_blank">squallx 发表于 2026-8-14 04:23</a>
+
+pro max的思考链BUG修了吗？ 真是部署故障？ 华子全责？</blockquote>
+不知道啊，这个html我当时是max跑的
+
