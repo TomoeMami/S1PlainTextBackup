@@ -4022,3 +4022,20 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 
 乌鲁德是皇后杀手第三能力的话，贝露丹迪算是世界？那斯库尔特是绯红之王了
 
+
+*****
+
+####  exiaexa  
+##### 21425#       发表于 2026-8-13 22:43
+
+ 本帖最后由 exiaexa 于 2026-8-13 22:45 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070820&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2026-8-13 21:52</a>
+
+不出泳装谁记得</blockquote>
+确实，我数了下，好几个大X角色都没泳装
+
+乌尔德、黑玛丽、俩兔子、杜尔伽、黑枪呆、蛇女房、德墨忒尔、芝诺比娅、r姐、南丁、爱丽丝菲尔
+
+这么一看明年未来可期，起码不用担心阿菌又塞樱系列来充数
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
