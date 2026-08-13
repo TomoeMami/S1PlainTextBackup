@@ -9244,3 +9244,37 @@ high刷出了97分的分数，成功反超max……<img src="https://static.stag
 
 其实是大肥鱼删库逃到网上去了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蜇灵  
+##### 6812#       发表于 2026-8-13 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70066166&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-13 10:51</a>
+
+Open code Go就是首月5刀，每月10刀吗？还有没有什么优惠的路子？</blockquote>
+邀请注册可以让双方各多5刀额度
+
+*****
+
+####  蜇灵  
+##### 6813#       发表于 2026-8-13 11:45
+
+不管怎么说，这个0813既然写上去了，那肯定本来就是今天要发布的吧，只不过应该不是半夜
+
+*****
+
+####  秦南心  
+##### 6814#       发表于 2026-8-13 11:47
+
+这不明显是技术调整？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">调整后估计稳定性会大幅提升，思维链的问题也会解决
+
+*****
+
+####  蛋黄酱Release  
+##### 6815#       发表于 2026-8-13 11:47
+
+下午四点前我要看到满血版和专武，不能再晚了<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
