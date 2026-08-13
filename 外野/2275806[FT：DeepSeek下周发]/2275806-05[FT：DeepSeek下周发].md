@@ -10975,3 +10975,64 @@ V4P就这样了。C端爱用不用，不要妨碍搓AGI的进度。
 
 PRO的定位是涨价用的，主力模型其实就是Flash！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  crow_wine  
+##### 7004#       发表于 2026-8-13 16:38
+
+太假了，图随便能做一万个出来。这又是推什么意见领袖吗
+
+*****
+
+####  crow_wine  
+##### 7005#       发表于 2026-8-13 16:39
+
+生要见人，死要见尸
+
+等到开源权重发布再说吧
+
+
+*****
+
+####  当光停止  
+##### 7006#       发表于 2026-8-13 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70068795&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-8-13 16:38</a>
+
+PRO的定位是涨价用的，主力模型其实就是Flash！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去谷歌，抱歉之前没认出来你。
+
+*****
+
+####  Promeus  
+##### 7007#       发表于 2026-8-13 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70068799&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-13 16:38</a>
+太假了，图随便能做一万个出来。这又是推什么意见领袖吗</blockquote>
+知乎的一个大模型评测答主，目前最靠谱的第三方私评之一
+
+*****
+
+####  zhongjie  
+##### 7008#       发表于 2026-8-13 16:45
+
+ds权重一般多久公布？今天应该出harness了吧
+
+*****
+
+####  scikirbypoke  
+##### 7009#       发表于 2026-8-13 16:46
+
+🤔也就是说灰测和harness内测的其实不是pro，还有大的吗
+
+*****
+
+####  当光停止  
+##### 7010#       发表于 2026-8-13 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70068862&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-8-13 16:45</a>
+
+ds权重一般多久公布？今天应该出harness了吧</blockquote>
+一般来说正式发布的时候就有权重。鬼知道他们内部又有啥幺蛾子。
+
