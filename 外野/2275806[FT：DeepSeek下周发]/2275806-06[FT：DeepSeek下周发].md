@@ -1429,3 +1429,170 @@ harness太丝滑了。。<img src="https://static.stage1st.com/image/smiley/face
 
 看这会B站和贴吧的反馈，好像又好起来了？
 
+
+*****
+
+####  舞以  
+##### 7539#       发表于 2026-8-13 23:34
+
+有点饭圈地说，这个harness真的是我心中的ds产物<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+模型何时才能崛起啊梁子
+
+现在只能一边装死一边偷偷尽孝了
+
+*****
+
+####  王兰花秀丽  
+##### 7540#       发表于 2026-8-13 23:35
+
+虽然不如灰测但是我蛮喜欢这个harness的，这个搜索工具也是非常好用啊   
+模型不行我偷偷孝 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  孤灯蓝影  
+##### 7541#       发表于 2026-8-13 23:35
+
+<blockquote>死神只爱吃苹果 发表于 2026-8-13 23:28
+肯定设置人为阈值好啊，为啥会认为ai全自动接管好呢
+
+人为设置触发阈值，量化也好，这种运维监控也好
+
+最快 ...</blockquote>
+能实现，想想一个agent可以任务中处理突发情况，这个真的划时代
+
+*****
+
+####  crow_wine  
+##### 7542#       发表于 2026-8-13 23:35
+
+现在大伙用的什么思考档位，我用的还是 max，目前雷霆大思考没遇到中断问题。至于能力会不会比 high 甚至 low 还差就不知道了
+
+*****
+
+####  neptunehs  
+##### 7543#       发表于 2026-8-13 23:36
+
+所以HTTP 403有办法解决吗
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  舞以  
+##### 7544#       发表于 2026-8-13 23:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071538&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-13 23:35</a>
+
+现在大伙用的什么思考档位，我用的还是 max，目前雷霆大思考没遇到中断问题。至于能力会不会比 high 甚至 l ...</blockquote>
+我之前的那个双叉臂模拟就是max档位出的，绝对是sota级别的产物，就是钱花了不少好像。
+
+*****
+
+####  冤枉呐  
+##### 7545#       发表于 2026-8-13 23:37
+
+安装，卡住了，啥情况
+
+*****
+
+####  cscbzcbz  
+##### 7546#       发表于 2026-8-13 23:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071538&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-13 23:35</a>
+
+现在大伙用的什么思考档位，我用的还是 max，目前雷霆大思考没遇到中断问题。至于能力会不会比 high 甚至 l ...</blockquote>
+用的max 没啥问题
+
+*****
+
+####  UncleDracula  
+##### 7547#       发表于 2026-8-13 23:39
+
+切到其他页签不通知的问题有解吗？用的火狐浏览器
+
+*****
+
+####  舞以  
+##### 7548#       发表于 2026-8-13 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071557&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-8-13 23:39</a>
+
+切到其他页签不通知的问题有解吗？用的火狐浏览器</blockquote>
+好像有个插件
+
+*****
+
+####  cscbzcbz  
+##### 7549#       发表于 2026-8-13 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071546&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-13 23:37</a>
+
+安装，卡住了，啥情况</blockquote>
+打开资源监视器，看网络里有没有下载流量，有就挂着等他下完
+
+
+*****
+
+####  冤枉呐  
+##### 7550#       发表于 2026-8-13 23:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071561&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-13 23:39</a>
+打开资源监视器，看网络里有没有下载流量，有就挂着等他下完</blockquote>
+又开始转了，我这儿github拉东西时好时坏，他这个好像不是github的？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  舞以  
+##### 7551#       发表于 2026-8-13 23:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071568&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-13 23:41</a>
+
+又开始转了，我这儿github拉东西时好时坏，他这个好像不是github的？
+
+—— 来自 HUAWEI ALN-AL10, Andro ...</blockquote>
+好像是直接从GitHub拉的
+
+*****
+
+####  UncleDracula  
+##### 7552#       发表于 2026-8-13 23:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071559&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-13 23:39</a>
+
+好像有个插件</blockquote>
+我就是装了那个通知插件，但一次没见弹出过。。
+
+*****
+
+####  BarricadeMKXX  
+##### 7553#       发表于 2026-8-13 23:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071568&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-13 23:41</a>
+
+又开始转了，我这儿github拉东西时好时坏，他这个好像不是github的？
+
+—— 来自 HUAWEI ALN-AL10, Andro ...</blockquote>
+npm的话实在不行加个镜像
+
+*****
+
+####  矮矮人  
+##### 7554#       发表于 2026-8-13 23:43
+
+harness这个对非码农好用吗？还是不能多模态？
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  hugosol  
+##### 7555#       发表于 2026-8-13 23:43
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">其实灰测时根本没有dhs就能跑出这个效果的话，说明跟harness根本没关系
+
+现在这个就是正版0813模型吧，梁鸽故意等dhs发布再把模型修好让你们产生了harness很屌的错觉<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
