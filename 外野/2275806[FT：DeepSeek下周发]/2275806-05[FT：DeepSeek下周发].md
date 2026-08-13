@@ -8154,3 +8154,104 @@ ds不就两档思考模式吗，low是啥，关掉思考？</blockquote>
 
 {"reasoning_effort": "low/high/max"}
 
+
+*****
+
+####  love4aids  
+##### 6696#       发表于 2026-8-13 09:19
+
+越思考越弱智，没调好就发布吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  斯卡文分则能成  
+##### 6697#       发表于 2026-8-13 09:21
+
+目前在用企鹅的沃克巴蒂，积分用完了所以连了ds，但是ds没法识图怎么办<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 6698#       发表于 2026-8-13 09:21
+
+定时发布搞错时间了……
+
+
+*****
+
+####  cscbzcbz  
+##### 6699#       发表于 2026-8-13 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065333&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-8-13 09:13</a>
+{"reasoning": {"effort": "none/low/high/max"}}
+
+(none 表示关闭思考模式)</blockquote>
+好吧，是我记错了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  燕山雪  
+##### 6700#       发表于 2026-8-13 09:22
+
+阿里不愧是模型界汪峰，昨晚发布的max，这么多楼愣是一个字都没有……
+
+*****
+
+####  chuchoselph  
+##### 6701#       发表于 2026-8-13 09:23
+
+不是，这么草台的吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  孟沁瑶  
+##### 6702#       发表于 2026-8-13 09:24
+
+<img src="https://img.stage1st.com/forum/202608/13/092358eovuuborsroksaot.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (188.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 09:23 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 6703#       发表于 2026-8-13 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065394&amp;ptid=2275806" target="_blank">燕山雪 发表于 2026-8-13 09:22</a>
+
+阿里不愧是模型界汪峰，昨晚发布的max，这么多楼愣是一个字都没有……</blockquote>
+这模型试过了就知道了，很难想象AA上目前的分数是怎么跑出来的，我觉得第一次才是真实水平
+
+*****
+
+####  wandeeees  
+##### 6704#       发表于 2026-8-13 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065407&amp;ptid=2275806" target="_blank">孟沁瑶 发表于 2026-8-13 09:24</a></blockquote>
+我绷不住了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  noword  
+##### 6705#       发表于 2026-8-13 09:25
+
+所以是上错了模型？还是真拉了？
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  qz66618  
+##### 6706#       发表于 2026-8-13 09:25
+
+AA榜出来了，这真的不是模型部署出问题了吗，就比flash高两分怎么也不可能吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
