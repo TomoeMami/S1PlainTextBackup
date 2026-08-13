@@ -12639,3 +12639,334 @@ deepseek的pro和flash在基本性能上不是一直区别不大么，消息面�
 
 V4F，这价格涨了接近5倍啊。<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这价格真用不起了......
 
+
+*****
+
+####  HazukiShion  
+##### 7185#       发表于 2026-8-13 19:34
+
+ 本帖最后由 HazukiShion 于 2026-8-13 19:36 编辑 
+
+话说是不是算上 Coding Plan 甚至成本高于 A/？
+
+*****
+
+####  crow_wine  
+##### 7186#       发表于 2026-8-13 19:35
+
+真的发布了吗，雷霆思考40秒回复这个<img src="https://p.sda1.dev/34/b7a9d816e04c6d168a79077e28d3ebb8/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  cscbzcbz  
+##### 7187#       发表于 2026-8-13 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070025&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-13 19:35</a>
+真的发布了吗，雷霆思考40秒回复这个
+
+—— 来自 HUAWEI ALN-AL00, Android 12, 鹅球 v3.5.99-alpha ...</blockquote>
+打开思考链看nameeee能不能正常显示，能就是。预览版思考链中是显示不了的
+
+*****
+
+####  muermaru  
+##### 7188#       发表于 2026-8-13 19:38
+
+哎，我就说涨价10倍起，这个在预料之中。只是这个高峰时间不改就有点不讲道理了，真是拿国人的钱补贴老外啊
+
+*****
+
+####  ly4236  
+##### 7189#       发表于 2026-8-13 19:39
+
+<blockquote>cscbzcbz 发表于 2026-8-13 19:15
+目前还是go套餐，flash基本随便蹬，一个月10刀也就70元
+
+希望go套餐别一起涨价 ...</blockquote>
+go**麻烦了点(
+
+烦
+
+*****
+
+####  UncleDracula  
+##### 7190#       发表于 2026-8-13 19:39
+
+现在的价格，这个月已经蹬了100块了，估计到月底要250了。涨价后波谷价每月500块打不住了，怎么办<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  love4aids  
+##### 7191#       发表于 2026-8-13 19:39
+
+这个价格不如gpt了
+
+*****
+
+####  HazukiShion  
+##### 7192#       发表于 2026-8-13 19:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070017&amp;ptid=2275806" target="_blank">vincevincetang 发表于 2026-8-13 19:33</a>
+
+新价格比其他模如何？    Re:Source</blockquote>
+都算 API 其实还行吧，但是其他家都有订阅。。。。
+
+<img src="https://img.stage1st.com/forum/202608/13/193920qpkcc1f4chuzezk0.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1786621094835.png</strong> (42.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 19:39 上传
+
+（Claude 做的）
+
+
+*****
+
+####  神必迷你龙  
+##### 7193#       发表于 2026-8-13 19:40
+
+这水平也好意思涨价<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tewaku  
+##### 7194#       发表于 2026-8-13 19:40
+
+要贬为梁畜了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nanachi  
+##### 7195#       发表于 2026-8-13 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070046&amp;ptid=2275806" target="_blank">HazukiShion 发表于 2026-8-13 19:39</a>
+都算 API 其实还行吧，但是其他家都有订阅。。。。
+
+（Claude 做的）</blockquote>
+等一手订阅
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  dear81  
+##### 7196#       发表于 2026-8-13 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069965&amp;ptid=2275806" target="_blank">cyberalogo 发表于 2026-8-13 19:26</a>
+DS涨价会不会是因为AI病友们之前低价时夏季坝乱蹬把大肥鱼蹬坏了不得已采取的保护措施。 ...</blockquote>
+还能找到这个理由？？
+离谱
+
+*****
+
+####  dear81  
+##### 7197#       发表于 2026-8-13 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070020&amp;ptid=2275806" target="_blank">duanrenduanren 发表于 2026-8-13 19:34</a>
+V4F，这价格涨了接近5倍啊。这价格真用不起了......</blockquote>
+不止，你看看输出，直接6.7倍
+
+*****
+
+####  spaceblue  
+##### 7198#       发表于 2026-8-13 19:41
+
+DSH等8点25分
+
+*****
+
+####  novem  
+##### 7199#       发表于 2026-8-13 19:41
+
+我看梁子已经无法正确评估自己模型的水平了，团队扩大后离一线太远了吗
+
+*****
+
+####  dear81  
+##### 7200#       发表于 2026-8-13 19:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070062&amp;ptid=2275806" target="_blank">novem 发表于 2026-8-13 19:41</a>
+我看梁子已经无法正确评估自己模型的水平了，团队扩大后离一线太远了吗</blockquote>
+该叫梁畜了
+
+
+*****
+
+####  lactone  
+##### 7201#       发表于 2026-8-13 19:42
+
+ds最大的特点就是不解释
+
+啥也不解释
+
+昨晚上pro性能不行不解释，现在到底改没改过来也不解释
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ly4236  
+##### 7202#       发表于 2026-8-13 19:43
+
+<blockquote>dear81 发表于 2026-8-13 19:41
+不止，你看看输出，直接6.7倍</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/13/194254yetlhdyw86hm9a3h.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_2769.jpg</strong> (51.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 19:42 上传
+
+应该没错
+
+*****
+
+####  77BBC  
+##### 7203#       发表于 2026-8-13 19:43
+
+再见了，任我乱蹬的大肥鱼
+
+*****
+
+####  crow_wine  
+##### 7204#       发表于 2026-8-13 19:43
+
+api 跑一句话生成游戏测出来还是很蛆啊，真的更新了吗。思考链各种let me, i'll, wait, maybe。
+只是比昨晚好一点点
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  wandeeees  
+##### 7205#       发表于 2026-8-13 19:43
+
+所以之前泄露的融资谈话说只赚合理利润是假的吗，牢梁<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御坂MKII  
+##### 7206#       发表于 2026-8-13 19:43
+
+能发 sys card 和 tech report 了吗
+
+—— 来自 Xiaomi 24072PX77C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  神必迷你龙  
+##### 7207#       发表于 2026-8-13 19:44
+
+对死守deepseek的人来说，可能会永远记得0813这一天<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 7208#       发表于 2026-8-13 19:44
+
+time will tell了只能说<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+这下7月初的那个模型到底是啥情况谁也说不清楚了<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  findpkq  
+##### 7209#       发表于 2026-8-13 19:44
+
+我便宜的干杂活口粮模型结果要滚回gpt Luna和Minimax里面选吗？不要啊牢梁<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  不想当咸鱼  
+##### 7210#       发表于 2026-8-13 19:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">夏季把乱蹬的日子过去了吗
+
+0731到0817这半个月的短暂时间<img src="https://static.stage1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holmesjerry  
+##### 7211#       发表于 2026-8-13 19:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070072&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-13 19:43</a>
+所以之前泄露的融资谈话说只赚合理利润是假的吗，牢梁</blockquote>
+有可能就是成本高了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+毕竟一组国外400万的b300国内能叫到1300万
+
+950的机器考虑性价比有可能更贵
+
+*****
+
+####  酱油拌饭s  
+##### 7212#       发表于 2026-8-13 19:46
+
+<blockquote>风萧飒 发表于 2026-8-13 19:32
+后悔之前充了几十块钱了，一直没用。感觉还能继续留着
+
+—— 来自 S1Fun</blockquote>
+充的钱能退的啊
+
+*****
+
+####  qz66618  
+##### 7213#       发表于 2026-8-13 19:46
+
+<img src="https://img.stage1st.com/forum/202608/13/194517by6om4ydkkuidypr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (90.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 19:45 上传
+
+还有最后一战，等等harness我看看究竟怎么个事<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 7214#       发表于 2026-8-13 19:46
+
+还有最后一战之战了又战<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  squallx  
+##### 7215#       发表于 2026-8-13 19:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069942&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-13 19:22</a>
+
+之前不是说预计在昇腾950超节点到货后，价格能大幅度降低吗
+
+—— 来自 HUAWEI ALN-AL00, Android 12, 鹅球 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">那就是华子全责咯
+
+*****
+
+####  noword  
+##### 7216#       发表于 2026-8-13 19:46
+
+反正我已申请退款<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  羊寢  
+##### 7217#       发表于 2026-8-13 19:47
+
+这峰谷定价感觉怎么利好老美，而且pro高峰期间定价也有点太高了吧，梁/预订？<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
