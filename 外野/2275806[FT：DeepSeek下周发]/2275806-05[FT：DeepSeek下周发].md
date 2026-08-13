@@ -9992,3 +9992,11 @@ pro正式版学会了外包，把预览版拉过来干活了
 
 这比别家的出逃厉害多了。
 
+
+*****
+
+####  卡普空  
+##### 6896#       发表于 2026-8-13 13:29
+
+大的来了吗？如来 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
