@@ -12970,3 +12970,241 @@ time will tell了只能说<img src="https://static.stage1st.com/image/smiley/fac
 
 这峰谷定价感觉怎么利好老美，而且pro高峰期间定价也有点太高了吧，梁/预订？<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  アヘ顔  
+##### 7218#       发表于 2026-8-13 19:48
+
+还是北京时间？外国不按当地时间吗？
+
+*****
+
+####  tillnight  
+##### 7219#       发表于 2026-8-13 19:48
+
+这价格都去用其他家订阅了，回头还是要降价，不知道为什么玩这出。
+
+*****
+
+####  qz66618  
+##### 7220#       发表于 2026-8-13 19:49
+
+ds也不搞plan订阅，说不定大伙都不用了就把价格降回来了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  果壳中的松鼠  
+##### 7221#       发表于 2026-8-13 19:49
+
+官方跑分全面胜过opus 4.8，但是端出来的是啥啊。叠加涨价，评级下调至梁白开<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  med  
+##### 7222#       发表于 2026-8-13 19:49
+
+评价低于良子
+
+*****
+
+####  Lostedge  
+##### 7223#       发表于 2026-8-13 19:49
+
+能不能搞阶梯定价<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御坂MKII  
+##### 7224#       发表于 2026-8-13 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070113&amp;ptid=2275806" target="_blank">Lostedge 发表于 2026-8-13 19:49</a>
+能不能搞阶梯定价会很容易被绕过吗？我这种一个月也就用2、30块，还基本都是高峰时段的亏麻了 ...</blockquote>
+开账户不要钱（
+
+—— 来自 Xiaomi 24072PX77C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  舞以  
+##### 7225#       发表于 2026-8-13 19:50
+
+约化一下，高峰期大概原来4倍，低谷期原来两倍<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  果壳中的松鼠  
+##### 7226#       发表于 2026-8-13 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070113&amp;ptid=2275806" target="_blank">Lostedge 发表于 2026-8-13 19:49</a>
+能不能搞阶梯定价会很容易被绕过吗？我这种一个月也就用2、30块，还基本都是高峰时段的亏麻了 ...</blockquote>
+阶梯定价只要开一堆账号就行了，国外用户也没法绑定实名身份<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  舞以  
+##### 7227#       发表于 2026-8-13 19:52
+
+梁➗！😡
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  化物语  
+##### 7228#       发表于 2026-8-13 19:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069940&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-13 19:22</a>
+上午用pro画的scad齿轮完全渲染不出来，现在看起来基本正常了</blockquote>
+DeepSeek不是多模态的吧，这个是给代码 拿到cad软件里跑吗
+
+*****
+
+####  qz66618  
+##### 7229#       发表于 2026-8-13 19:52
+
+所以说大伙都先别用，让梁子感受下哈耶克大手<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  里奥哟西  
+##### 7230#       发表于 2026-8-13 19:53
+
+呵呵，涨价这么多加上峰谷<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Nanachi  
+##### 7231#       发表于 2026-8-13 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070089&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-13 19:46</a>
+还有最后一战，等等harness我看看究竟怎么个事如果harness真的好用也算是ds做了个好事 ...</blockquote>
+还要配专武的吗
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  小野賢章  
+##### 7232#       发表于 2026-8-13 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070130&amp;ptid=2275806" target="_blank">化物语 发表于 2026-8-13 19:52</a>
+
+DeepSeek不是多模态的吧，这个是给代码 拿到cad软件里跑吗</blockquote>
+直接写代码然后渲染出来的
+
+*****
+
+####  神必迷你龙  
+##### 7233#       发表于 2026-8-13 19:55
+
+我有三问：1、国内工作高峰，狠狠补贴老外是干嘛，2、现在给出的分数实际到的了吗，3、我没有灰测过，之前灰测爆出来的是骗人的？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HazukiShion  
+##### 7234#       发表于 2026-8-13 19:56
+
+总不能灰测的是 5.3 吧。。。。。<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lostedge  
+##### 7235#       发表于 2026-8-13 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070120&amp;ptid=2275806" target="_blank">果壳中的松鼠 发表于 2026-8-13 19:50</a>
+
+阶梯定价只要开一堆账号就行了，国外用户也没法绑定实名身份
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+最支持绑定ip绑定机器码的一集<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过如果是虚拟机也随便绕吧...
+
+*****
+
+####  zhanglei1943  
+##### 7236#       发表于 2026-8-13 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070145&amp;ptid=2275806" target="_blank">神必迷你龙 发表于 2026-8-13 19:55</a>
+
+我有三问：1、国内工作高峰，狠狠补贴老外是干嘛，2、现在给出的分数实际到的了吗，3、我没有灰测过，之前 ...</blockquote>
+第一问很好回答，因为峰谷定价是跟着服务器所在地峰谷电价走的
+
+*****
+
+####  dear81  
+##### 7237#       发表于 2026-8-13 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070106&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-13 19:48</a>
+这价格都去用其他家订阅了，回头还是要降价，不知道为什么玩这出。</blockquote>
+个人用户不如狗啊
+人家都是走大企业订阅的
+
+*****
+
+####  wandeeees  
+##### 7238#       发表于 2026-8-13 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070132&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-13 19:52</a>
+
+所以说大伙都先别用，让梁子感受下哈耶克大手
+
+—— 来自 鹅球 v3.5.99</blockquote>
+巴不得你不用呢，别来打扰梁叔叔训练agi.jpg
+
+*****
+
+####  dear81  
+##### 7239#       发表于 2026-8-13 19:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070119&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-13 19:50</a>
+约化一下，高峰期大概原来4倍，低谷期原来两倍</blockquote>
+不止，大概4-6倍
+
+*****
+
+####  秦南心  
+##### 7240#       发表于 2026-8-13 19:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">完美结局：0817宣布上线昇腾超节点，取消涨价，改为降价到一半，操盘大手✋
+
+
+*****
+
+####  xiaohanne  
+##### 7241#       发表于 2026-8-13 19:57
+
+<blockquote>holmesjerry 发表于 2026-8-13 19:45
+有可能就是成本高了
+
+</blockquote>
+国产替代不是做慈善
+
+*****
+
+####  zy450  
+##### 7242#       发表于 2026-8-13 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070145&amp;ptid=2275806" target="_blank">神必迷你龙 发表于 2026-8-13 19:55</a>
+
+我有三问：1、国内工作高峰，狠狠补贴老外是干嘛，2、现在给出的分数实际到的了吗，3、我没有灰测过，之前 ...</blockquote>
+灰测我抽到好几次，确实效果很好，现在这什么情况确实看不懂
+
+*****
+
+####  onezer0618  
+##### 7243#       发表于 2026-8-13 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070089&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-13 19:46</a>
+
+还有最后一战，等等harness我看看究竟怎么个事如果harness真的好用也算是ds做了个好事 ...</blockquote>
+今晚还是明天<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
