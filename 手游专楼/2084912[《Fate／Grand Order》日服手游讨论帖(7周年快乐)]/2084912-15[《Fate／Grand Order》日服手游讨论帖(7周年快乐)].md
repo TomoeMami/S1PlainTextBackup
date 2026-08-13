@@ -3775,3 +3775,67 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 
 冷知识：兽蕾和小麻雀同时上场时，好感度和饱食度标志会高速来回切换
 
+
+*****
+
+####  quanlix  
+##### 21405#       发表于 2026-8-12 22:20
+
+干，这个月要照着40单课了
+
+*****
+
+####  gpx234mqx  
+##### 21406#       发表于 2026-8-12 22:20
+
+50抽全出了
+
+还剩100抽石头
+
+红阎魔这次要抽
+
+普通人满腹最大4，超巨大满腹8，每吃一个1技能满腹加2，攻击一次满腹减1
+
+理论上普通人吃3个没啥问题
+
+黑花也是宝宝
+
+<img src="https://img.stage1st.com/forum/202608/12/222035g279z822tg1y94at.png" referrerpolicy="no-referrer">
+
+<strong>137154.png</strong> (177.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-12 22:20 上传
+
+*****
+
+####  qixinno1  
+##### 21407#       发表于 2026-8-12 22:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没石头抽好难受啊
+
+*****
+
+####  格林卡罗尔  
+##### 21408#       发表于 2026-8-13 00:31
+
+我说我注意力全到玛修身上了，对这几个泳装毫无兴趣<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  الطائر  
+##### 21409#       发表于 2026-8-13 00:34
+
+冷知识：兽蕾和小麻雀同时上场时，好感度和饱食度标志会高速来回切换
+
+*****
+
+####  alucardcz  
+##### 21410#       发表于 2026-8-13 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70062561&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-8-12 19:55</a>
+
+为什么不用，看到各种混合职介，直接水伊吹碾过去就是了，难得想了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？ 不是所长全秒了吗 连对面是什么都不用看
+
