@@ -1596,3 +1596,217 @@ harness这个对非码农好用吗？还是不能多模态？
 
 现在这个就是正版0813模型吧，梁鸽故意等dhs发布再把模型修好让你们产生了harness很屌的错觉<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nianiania  
+##### 7556#       发表于 2026-8-13 23:44
+
+用dsh+pro max跑起来感觉还挺不错的，好他娘的快，让他审计项目代码出文档十二分钟，fable5花了四十几分钟，出来的文档质量看着大差不差耶，周末写下游戏框架试试
+
+*****
+
+####  spaceblue  
+##### 7557#       发表于 2026-8-13 23:44
+
+<blockquote>冤枉呐 发表于 2026-8-13 23:32
+supergrok拉到这里面auth登录可行不
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
+可行，我就是这么干的
+
+*****
+
+####  UncleDracula  
+##### 7558#       发表于 2026-8-13 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071568&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-13 23:41</a>
+
+又开始转了，我这儿github拉东西时好时坏，他这个好像不是github的？
+
+—— 来自 HUAWEI ALN-AL10, Andro ...</blockquote>
+丢给gemini，让他给方案，他会给**内加速版的安装命令。我就是这样安装成功的，还装了一堆插件，很快
+
+*****
+
+####  舞以  
+##### 7559#       发表于 2026-8-13 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071585&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-13 23:43</a>
+
+其实灰测时根本没有dhs就能跑出这个效果的话，说明跟harness根本没关系
+
+现在这个就是正版0813模型吧，梁鸽 ...</blockquote>
+那个双叉臂测试，用opencode和reasonix我都跑了次，产物都不太行<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+至少比我之前传的那个差一档，甚至还有坏的。
+
+灰测模型究竟是啥情况估计是都市传说了。
+
+*****
+
+####  zy450  
+##### 7560#       发表于 2026-8-13 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071585&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-13 23:43</a>
+其实灰测时根本没有dhs就能跑出这个效果的话，说明跟harness根本没关系
+
+现在这个就是正版0813模型吧，梁鸽 ...</blockquote>
+灰测只有 opencode 能触发，我换成 pi 就没出现过，可能有点说法
+
+—— 来自 Xiaomi 24031PN0DC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Promeus  
+##### 7561#       发表于 2026-8-13 23:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071585&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-13 23:43</a>
+其实灰测时根本没有dhs就能跑出这个效果的话，说明跟harness根本没关系
+
+现在这个就是正版0813模型吧，梁鸽 ...</blockquote>
+俩思维链完全不一样
+
+*****
+
+####  ayanamilin  
+##### 7562#       发表于 2026-8-13 23:47
+
+ 本帖最后由 ayanamilin 于 2026-8-13 23:50 编辑 
+
+读了论文的 intro，手敲了一点理解。是一篇很硬核的用形式化方法分析软件工程的论文，只能看得懂 intro：
+
+<strong>1. dsh 追求的是插件在时间和空间上的可组合性</strong>
+
+时间可组合性：插件在运行过程中能够动态加载卸载，并且不对其余部分产生影响
+
+空间可组合性：用户创作的插件之间可以进行自由组合、依赖（即让用户创作的插件之间发生化学反应），而不是大家都只能以官方提供的 API 来开发各自的插件
+
+<strong>2. 现有的主流软件并不具备这两种可组合性</strong>
+
+以 VSCode 为例：
+
+1. 时间维度，插件代码统一由一个 host 执行，包含运行时代码的插件无法进行动态卸载（比如你 disable 一个插件之后，仍然需要 reload window 才能让 disable 生效）
+
+2. 空间维度，大部分 VSCode 插件仅依赖于官方插件，非官方插件之间很少产生依赖关系
+
+<strong>3. 为什么智能体harness需要这两种可组合性？</strong>
+
+Agent Harness 由多种功能组合而成（记忆、沙盒、子agent、视觉系统等等），并且呈现出自主演进的态势（例如 Pi 已经可以通过修改自身的代码来实现进化）。这种自主演进的速度和范围已经远远超过了过去由人类开发者主导的软件开发（例如 VSCode 的插件生态）。因此，新一代 agent harness 首先需要打破的就是过去这套僵化的软件架构模式。
+
+论文其实还给出了一个采用类似设计理念的 app：[https://github.com/koishijs/koishi](https://github.com/koishijs/koishi)
+
+*****
+
+####  cscbzcbz  
+##### 7563#       发表于 2026-8-13 23:47
+
+看来是对DSH做了专门的适配？
+
+灰度不会是针对Opencode专门做了适配吧，单纯验证技术
+
+*****
+
+####  2017.05.04  
+##### 7564#       发表于 2026-8-13 23:48
+
+dsh有点猛<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">孝了
+
+*****
+
+####  serj005  
+##### 7565#       发表于 2026-8-13 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071583&amp;ptid=2275806" target="_blank">矮矮人 发表于 2026-8-13 23:43</a>
+harness这个对非码农好用吗？还是不能多模态？
+
+—— 来自 vivo V2405A, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+非码农主要的问题可能是不知道node和npx咋用以及webui的运行，官方没做正常exe安装启动的桌面端对普通用户是个痛点
+
+*****
+
+####  crow_wine  
+##### 7566#       发表于 2026-8-13 23:49
+
+好用的话，不怕没人做小白安装包
+
+
+*****
+
+####  akirt  
+##### 7567#       发表于 2026-8-13 23:50
+
+这dsh和最新这几个版本的zcode有很多相同的新特性，看来harness发展的大趋势是一致的
+
+*****
+
+####  孤灯蓝影  
+##### 7568#       发表于 2026-8-13 23:50
+
+<blockquote>serj005 发表于 2026-8-13 23:48
+非码农主要的问题可能是不知道node和npx咋用以及webui的运行，官方没做正常exe安装启动的桌面端对普通用 ...</blockquote>
+我其实也不会，是叫codex帮忙装的
+
+*****
+
+####  冤枉呐  
+##### 7569#       发表于 2026-8-13 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071593&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-8-13 23:44</a>
+
+丢给gemini，让他给方案，他会给**内加速版的安装命令。我就是这样安装成功的，还装了一堆插件，很快 ...</blockquote>
+npm warn deprecated node-domexception@1.0.0: Use your platform's native DOMException instead
+
+dsh web: [http://127.0.0.1:3080](http://127.0.0.1:3080)
+
+这是啥意味
+
+*****
+
+####  LieZ  
+##### 7570#       发表于 2026-8-13 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071107&amp;ptid=2275806" target="_blank">justwul 发表于 2026-8-13 22:30</a>
+
+可以啊，我测试了没问题</blockquote>
+我测试的是websearch只能返回来源链接列表(标题+URL)，要抓正文得结合websearch和curl，当然，像小红书这种完全抓不了正文
+
+*****
+
+####  冤枉呐  
+##### 7571#       发表于 2026-8-13 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071591&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-8-13 23:44</a>
+
+可行，我就是这么干的</blockquote>
+grok会封我不……
+
+*****
+
+####  里奥哟西  
+##### 7572#       发表于 2026-8-13 23:52
+
+node+web就不能用electron打个桌面安装包嘛
+
+*****
+
+####  UncleDracula  
+##### 7573#       发表于 2026-8-13 23:52
+
+跑了几个任务，只能说这个涨价后的波谷价格，很有可能和现在的PRO价格持平
+
+DSH这个缓存命中率真心无敌
+
+*****
+
+####  zhanglei1943  
+##### 7574#       发表于 2026-8-13 23:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071595&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-13 23:45</a>
+
+那个双叉臂测试，用opencode和reasonix我都跑了次，产物都不太行
+
+至少比我之前传的那个差一档，甚至还有 ...</blockquote>
+冷知识：从来没有人证实过灰测的模型是v4 pro
+
