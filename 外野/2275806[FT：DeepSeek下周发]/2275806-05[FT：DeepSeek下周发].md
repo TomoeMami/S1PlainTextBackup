@@ -10901,3 +10901,46 @@ flash原来的指纹"fp_a18b46594c_prod0820_fp8_kvcache_20260402_fp"
 大家flash用max还是high</blockquote>
 flash都是开max的
 
+
+*****
+
+####  mr.qu  
+##### 6996#       发表于 2026-8-13 16:17
+
+公告没了 但是模型没撤？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  ternayark  
+##### 6997#       发表于 2026-8-13 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70068577&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-13 16:13</a>
+一些代码之外的探索性任务我还是更倾向用pro的，preview版也会比flash用起来顺手，梁子不要乱搞啊 ...</blockquote>
+这么搞还不如像New bing Sydney那样，把pro命名为「探索」，flash命名为「稳健」呢<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+然后用harness绑个集群<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中国人  
+##### 6998#       发表于 2026-8-13 16:24
+
+flash 完全卡了？
+
+*****
+
+####  Promeus  
+##### 6999#       发表于 2026-8-13 16:26
+
+<img src="https://p.sda1.dev/34/11d875ffa0b85abdfdaddb485d9cde0d/image.jpg" referrerpolicy="no-referrer">这也过于神秘了
+
+*****
+
+####  RGm  
+##### 7000#       发表于 2026-8-13 16:26
+
+V4P就这样了。C端爱用不用，不要妨碍搓AGI的进度。
+

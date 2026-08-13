@@ -3839,3 +3839,13 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 为什么不用，看到各种混合职介，直接水伊吹碾过去就是了，难得想了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？ 不是所长全秒了吗 连对面是什么都不用看
 
+
+*****
+
+####  乾理央  
+##### 21411#       发表于 2026-8-13 16:26
+
+强度来看水麻雀是水伊吹上面，功能性来看水伊吹能减cd，用心度来看水花花比水麻雀高多了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+水麻雀适合完全新人，水花花是给老东西抽着收藏的
+
