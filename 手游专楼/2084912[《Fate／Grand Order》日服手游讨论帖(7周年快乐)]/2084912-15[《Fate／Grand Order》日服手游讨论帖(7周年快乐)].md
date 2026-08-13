@@ -3877,3 +3877,31 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 而且你16c啊，这下真不如做成四星了
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 21414#       发表于 2026-8-13 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069254&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-8-13 17:36</a>
+
+这自爆莉莉丝很难评
+
+绿色的大号哈贝喵</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3技能改成选择后立即死亡会不会强度翻倍
+
+
+*****
+
+####  exiaexa  
+##### 21415#       发表于 2026-8-13 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069331&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-13 17:47</a>
+
+3技能改成选择后立即死亡会不会强度翻倍</blockquote>
+这是鹤小姐做梦都想要的强化
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过我真觉得应该给个直接退场，不然16cost真的难评
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
