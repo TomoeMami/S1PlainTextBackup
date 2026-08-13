@@ -8281,3 +8281,89 @@ AA榜出来了，这真的不是模型部署出问题了吗，就比flash高两�
 
 response api 是 infra 的活吧
 
+
+*****
+
+####  nxmonitor  
+##### 6710#       发表于 2026-8-13 09:36
+
+这个搜索本质也是外挂的啊，所以和模型没关系
+
+*****
+
+####  舞以  
+##### 6711#       发表于 2026-8-13 09:37
+
+我刚刚测出来的感觉是你告诉我没换模型我都觉得正常<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+反正要么是草台了，要么是拉了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  来都来了  
+##### 6712#       发表于 2026-8-13 09:37
+
+现在什么情况？到底是梁子还是梁圣？<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  世界制服  
+##### 6713#       发表于 2026-8-13 09:38
+
+看来是梁子了
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6714#       发表于 2026-8-13 09:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065501&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-13 09:37</a>
+我刚刚测出来的感觉是你告诉我没换模型我都觉得正常
+反正要么是草台了，要么是拉了</blockquote>
+肯定换了，指令遵循能力比预览版强太多，但有一种参数不到200b的清澈的愚蠢感
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  zy450  
+##### 6715#       发表于 2026-8-13 09:39
+
+" DeepSeek-V4-Flash 正式版 API 已上线公测，Agent 能力大幅增强；V4-Pro 暂未变动。点击查看详情。"
+
+"计划近期整体上调 DeepSeek API 服务的定价，预计涨幅较大，请合理安排您的使用。具体方案以正式通知为准。"
+
+还在充值页放着
+
+*****
+
+####  王兰花秀丽  
+##### 6716#       发表于 2026-8-13 09:39
+
+<img src="https://static.stage1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qz66618  
+##### 6717#       发表于 2026-8-13 09:41
+
+主要是目前第三方跑分和ds官方的跑分差别有点太大了，我感觉ds应该不会刷分的，flash也证明了这一点，不会真是上了个pro的中间检查点先试部署吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  小野賢章  
+##### 6718#       发表于 2026-8-13 09:43
+
+V4Pro不可能翻车！我要吹爆梁文峰
+
+*****
+
+####  Hyst3r1a  
+##### 6719#       发表于 2026-8-13 09:44
+
+梁仔别是在装糖，把用户都骗走把
+

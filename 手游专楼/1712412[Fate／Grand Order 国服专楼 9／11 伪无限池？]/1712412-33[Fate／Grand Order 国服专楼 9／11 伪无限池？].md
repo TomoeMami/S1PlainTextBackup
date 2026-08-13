@@ -2633,3 +2633,13 @@ MuMu-20260812-190700-122.jpg
 
 前有所长吃保底，后有水提十连出货，欧非守恒定律在这刻具像化了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 48123#       发表于 2026-8-13 09:40
+
+还债了，半夜想抽个弓提妈，石头基本抽光了出了俩鹤小姐，用呼符结果歪了个带盘子来的孔明老师……
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

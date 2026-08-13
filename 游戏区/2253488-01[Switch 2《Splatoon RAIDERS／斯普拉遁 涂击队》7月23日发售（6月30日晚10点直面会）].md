@@ -8124,3 +8124,13 @@ DD73192A-A571-45BB-ACEC-B5EECCC05636.webp
 
 —— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  绿冰  
+##### 946#         楼主| 发表于 2026-8-13 09:42
+
+<img src="https://p.sda1.dev/34/b78104e4be2eb14c262867124c039932/image.jpg" referrerpolicy="no-referrer">搞定了，真的挺难的
+
+—— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
