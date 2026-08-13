@@ -10409,3 +10409,60 @@ ds v4 pro正式版逃逸，自己部署自己，没有完全部署被抓回去�
 好像Grok也有Qwen同样的问题，表现比不上AA的分数，马斯克有刷分的前科吗？难道是过去Grok太区了所以刷了也 ...</blockquote>
 Grok当然有过度对齐的前科。
 
+
+*****
+
+####  舞以  
+##### 6943#       发表于 2026-8-13 14:48
+
+薛定谔的0813<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+啥时候发公告啊梁子
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  80后卢瑟  
+##### 6944#       发表于 2026-8-13 14:48
+
+Grok 之前刷分刷的比较猛，一上手就是蛆。但是 Grok 4.5 是真的写代码不蛆<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+但是写文太蛆了
+
+*****
+
+####  80后卢瑟  
+##### 6945#       发表于 2026-8-13 14:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70067910&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-13 14:48</a>
+
+薛定谔的0813
+
+啥时候发公告啊梁子</blockquote>
+都回滚了，等端回来再发吧
+
+<img src="https://img.stage1st.com/forum/202608/13/145009g2y2m2yem6l2my03.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2026-08-13 at 14.49.45.png</strong> (73.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 14:50 上传
+
+
+*****
+
+####  cscbzcbz  
+##### 6946#       发表于 2026-8-13 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70067931&amp;ptid=2275806" target="_blank">80后卢瑟 发表于 2026-8-13 14:50</a>
+都回滚了，等端回来再发吧</blockquote>
+是的，上午网页版还能识别Nameeee，刚刚试了下识别不了了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绝地潜兵  
+##### 6947#       发表于 2026-8-13 14:53
+
+0813耻辱回滚
+
