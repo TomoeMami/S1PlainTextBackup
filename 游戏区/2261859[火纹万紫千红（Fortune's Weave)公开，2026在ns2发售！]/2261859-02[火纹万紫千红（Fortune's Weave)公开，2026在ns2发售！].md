@@ -9998,3 +9998,21 @@ gamesrader好像暗示这作不同角色是同一时间线（但看到有的媒�
 
 史上规模最庞大、最具野心的FE，这点可以确认了。
 
+
+*****
+
+####  57042711  
+##### 2433#       发表于 2026-8-13 23:04
+
+同一条线四个不同视角也不错吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+看来这次rpg部分占比很大啊居然还有扫荡…
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  crosz1985  
+##### 2434#       发表于 2026-8-13 23:05
+
+SWITCH2首个第一方30帧游戏?
+
