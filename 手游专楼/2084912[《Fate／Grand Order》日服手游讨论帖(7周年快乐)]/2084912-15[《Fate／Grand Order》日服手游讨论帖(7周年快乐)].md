@@ -3954,3 +3954,29 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 其他的有哪个活过1年的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能lga吹的人实际上根本不玩 所以也不会嫌麻烦
 
+
+*****
+
+####  exiaexa  
+##### 21420#       发表于 2026-8-13 18:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069467&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-13 18:03</a>
+
+有没有可能lga吹的人实际上根本不玩 所以也不会嫌麻烦</blockquote>
+最搞的是我已经看到有人在做梦双莉莉丝点满2、5额外技能
+
+然后三面全覆盖魅惑了
+
+我们日服到现在都还有人没点提妈的2技能（我刚点到一个，然后又看到这个思路，给我气笑了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  blue321  
+##### 21421#       发表于 2026-8-13 18:13
+
+等等看明天两张卡的卡图如何再抽
+
+这次的红阎魔满破图怪怪的……
+

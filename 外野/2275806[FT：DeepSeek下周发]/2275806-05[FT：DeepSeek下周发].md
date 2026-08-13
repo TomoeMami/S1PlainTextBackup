@@ -11524,3 +11524,41 @@ https://tieba.baidu.com/p/10940698624?share=9105&amp;fr=sharewise
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  cscbzcbz  
+##### 7062#       发表于 2026-8-13 18:05
+
+算了，dsh不发就不发，今天继续装修pi，我发现这个是真有意思
+
+*****
+
+####  kykawaiii  
+##### 7063#       发表于 2026-8-13 18:05
+
+https://github.com/c0de3/dsh-skins
+怎么dsh的插件都有了，虽然是私有库
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Promeus  
+##### 7064#       发表于 2026-8-13 18:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069478&amp;ptid=2275806" target="_blank">kykawaiii 发表于 2026-8-13 18:05</a>
+https://github.com/c0de3/dsh-skins
+怎么dsh的插件都有了，虽然是私有库</blockquote>
+最后一次内测就找了很多开发插件的来做
+
+
+*****
+
+####  舞以  
+##### 7065#       发表于 2026-8-13 18:11
+
+只要官方装死，那现在这个pro就只是加了response支持的一个检查点吧罢了，官方没说是正式版就不是<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
