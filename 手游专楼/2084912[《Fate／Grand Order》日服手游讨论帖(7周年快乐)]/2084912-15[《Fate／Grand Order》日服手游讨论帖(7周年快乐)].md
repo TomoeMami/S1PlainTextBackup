@@ -3860,3 +3860,20 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 ？ 不是所长全秒了吗 连对面是什么都不用看</blockquote>
 那么我不喜欢用所长，你又如何应对？<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 21413#       发表于 2026-8-13 17:36
+
+ 本帖最后由 exiaexa 于 2026-8-13 17:38 编辑 
+
+这自爆莉莉丝很难评
+
+绿色的大号哈贝喵
+
+问题是谁给你30np启动呢，改行去蓝卡队是吧
+
+而且你16c啊，这下真不如做成四星了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -11346,3 +11346,54 @@ https://tieba.baidu.com/p/10940698624?share=9105&amp;fr=sharewise
 —— 来自 鹅球 v3.3.96-alpha ...</blockquote>
 跑分和实操两码事，昨天发的另一个哥们也区炸了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蜇灵  
+##### 7045#       发表于 2026-8-13 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70068840&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-13 16:43</a>
+知乎的一个大模型评测答主，目前最靠谱的第三方私评之一</blockquote>
+他这不能解释官网改来改去发神经
+
+*****
+
+####  Promeus  
+##### 7046#       发表于 2026-8-13 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069256&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-8-13 17:36</a>
+他这不能解释官网改来改去发神经</blockquote>
+他这连官网为什么不正式发跑分和新闻都解释不了
+
+*****
+
+####  tonberry  
+##### 7047#       发表于 2026-8-13 17:38
+
+确实区炸了，今天就分别用pro和flash使用ppt-master制作一份我明天要讲的报告ppt，一个花了4块钱，一个花了2块钱。最终结果是pro差的没法看，flash好太多了
+
+
+*****
+
+####  四氧化三铅  
+##### 7048#       发表于 2026-8-13 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069267&amp;ptid=2275806" target="_blank">tonberry 发表于 2026-8-13 17:38</a>
+确实区炸了，今天就分别用pro和flash使用ppt-master制作一份我明天要讲的报告ppt，一个花了4块钱，一个花了 ...</blockquote>
+所以“pro就这个水平”在逻辑上解释不清。
+
+*****
+
+####  spaceblue  
+##### 7049#       发表于 2026-8-13 17:41
+
+<img src="https://img.stage1st.com/forum/202608/13/174038kpsappowpaa6ypul.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (270.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 17:40 上传
+
+雷达站测出来的就是FLAHS比PRO强，数据不会说谎。
+
