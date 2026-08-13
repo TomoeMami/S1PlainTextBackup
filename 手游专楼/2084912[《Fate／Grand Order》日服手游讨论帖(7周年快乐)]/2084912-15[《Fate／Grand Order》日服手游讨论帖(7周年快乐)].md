@@ -3905,3 +3905,52 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 不过我真觉得应该给个直接退场，不然16cost真的难评
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 21416#       发表于 2026-8-13 17:56
+
+草
+
+怎么还有刑部姬alter的
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 21417#       发表于 2026-8-13 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069381&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-8-13 17:53</a>
+
+这是鹤小姐做梦都想要的强化</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是  去lga看了下  已经天下无敌了  开始幻想各种无敌的场景了  甚至已经成为强度必抽卡了（
+
+*****
+
+####  exiaexa  
+##### 21418#       发表于 2026-8-13 18:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069421&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-13 17:57</a>
+
+虽然但是  去lga看了下  已经天下无敌了  开始幻想各种无敌的场景了  甚至已经成为强度必抽卡了（ ...</blockquote>
+这堆换人卡，除了送的妈龙娘实在是太猛了（其实是红卡太猛了
+
+其他的有哪个活过1年的
+
+不都是玩久了就嫌麻烦，连阿拉什这种不浪费你时间的都用的少了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 21419#       发表于 2026-8-13 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069448&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-8-13 18:00</a>
+
+这堆换人卡，除了送的妈龙娘实在是太猛了（其实是红卡太猛了
+
+其他的有哪个活过1年的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能lga吹的人实际上根本不玩 所以也不会嫌麻烦
+

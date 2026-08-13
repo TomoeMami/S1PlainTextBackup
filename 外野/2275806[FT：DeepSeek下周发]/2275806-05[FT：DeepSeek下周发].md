@@ -11439,3 +11439,88 @@ https://tieba.baidu.com/p/10940698624?share=9105&amp;fr=sharewise
 
 这个赛季有flash已经算小赢了，梁子别涨价就行<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ymm1030  
+##### 7053#       发表于 2026-8-13 17:54
+
+真拉了就拉了吧，也不是不能接受，等下个版本就是了。要是没有灰测，在0731端上来之前，说实话这个强度也就是一份标准答卷吧。 
+
+*****
+
+####  cscbzcbz  
+##### 7054#       发表于 2026-8-13 17:55
+
+意难平，灰测版是真实存在的，因为我真的确实刷到过，为啥这次拿不出来。不知道，搞不懂梁子怎么想的
+
+*****
+
+####  wandeeees  
+##### 7055#       发表于 2026-8-13 17:58
+
+这也不是拉不拉的问题啊，大半夜说是更新0813版本了，微信群也说今天更新DSH，然后白天了文档没有更新，还出现了主页提示全部上线的横幅，然后又取消了，但是api那里文档又没弄掉<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+跑分图又是单独在微信群发的，这真的只能说很草台。
+
+这算是第三次跳票了，继重新定义七月中旬，八月初后现在又要重新定义0813了
+
+*****
+
+####  →熙←  
+##### 7056#       发表于 2026-8-13 17:58
+
+万一灰测那么好,还想更好结果练炸了没备份
+
+相信草台<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhanglei1943  
+##### 7057#       发表于 2026-8-13 18:00
+
+<img src="https://img.stage1st.com/forum/202608/13/180015xz29a1p292pt228f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (84.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 18:00 上传
+
+自我分析.jpg
+
+*****
+
+####  当光停止  
+##### 7058#       发表于 2026-8-13 18:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">剑指ds传统模型发布时间:周五下午1点到2点!
+
+——来自 NX789J 上的 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  serj005  
+##### 7059#       发表于 2026-8-13 18:03
+
+等正式公告，反正在正式广告之前的都可以不做数
+
+*****
+
+####  舞以  
+##### 7060#       发表于 2026-8-13 18:03
+
+炸炉了，就连公告和官x都不发了？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舞以  
+##### 7061#       发表于 2026-8-13 18:03
+
+还有harness也一直不发么
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
