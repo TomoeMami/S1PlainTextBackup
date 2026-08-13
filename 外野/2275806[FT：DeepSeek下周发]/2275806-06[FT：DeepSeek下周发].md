@@ -2567,3 +2567,67 @@ cordis 虽然不是新框架（而且偏实验性），但是被用于 coding ag
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  王兰花秀丽  
+##### 7642#       发表于 2026-8-14 01:07
+
+对了，这个本来是做了完整的TUI的，8.4全删了<img src="https://static.stage1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
+我写插件的时候发现一个很生草的事情，如果写错了直接启动不了，那我岂不是没办法修，这不合理吧？是我的用法不对吗，动态插件是不是不能持久化
+
+写了个显示opencode go用量的小插件，感兴趣的可以试试，apikey不会进浏览器应该没有安全问题：
+dsh plugin --profile web add @0rch1d/dsh-client-ui-opencode-go@1.0.2    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  Sacross  
+##### 7643#       发表于 2026-8-14 01:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071955&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-14 00:51</a>
+本地好啊
+知识库应该要再写个插件啥的</blockquote>
+我觉得你要想弄，知识文件放进去让他自己帮你整理成知识库可能更快一点？
+
+—— 来自 OnePlus IN2020, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  julia黑  
+##### 7644#       发表于 2026-8-14 01:10
+
+帮我写小说的项目丢给他了，感觉真的好强， review 出一大堆原来 codex 集成 flash 写出来的 bug。用起来也非常流畅。现在用的是默认的预设，它还可以自定义预设，这点也很好。拿它 review 一套代码仓库，也 review 出一堆问题来。
+
+*****
+
+####  kylezy123  
+##### 7645#       发表于 2026-8-14 01:10
+
+<img src="https://img.stage1st.com/forum/202608/14/010926f5nvp2n4z4q86dd5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (110.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 01:09 上传
+
+速度太快了   感觉v4f就够用了
+
+*****
+
+####  蛋黄酱Release  
+##### 7646#       发表于 2026-8-14 01:10
+
+不管扩展性，单论现在这个agent本身就挺强的了，有一种当年第一次打开Claude code的震撼感<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  tk553521  
+##### 7647#       发表于 2026-8-14 01:13
+
+用v4pvibe了一个tauri的桌面端，启动的界面漂亮得惊到我了，谁说我大赢鲸是区的<img src="https://static.stage1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
