@@ -7991,3 +7991,35 @@ v4pro暂未变动的banner还在api平台上挂着呢，笑了。
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  qwased  
+##### 6679#       发表于 2026-8-13 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065095&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-13 08:36</a>
+
+已经很久没出过14B的规格了。 主要是16G也就跑个35A3B Q4量化的，而且上下文开不高。 ...</blockquote>
+5070ti 35A3B上下文拉满跑个unsloth动态量化的倒是能跑个50tk/s，但是智力不咋地，说话还一股味，我宁愿用gemma4 26A4B<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 6680#       发表于 2026-8-13 08:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065086&amp;ptid=2275806" target="_blank">小川彩 发表于 2026-8-13 08:35</a>
+还没试 比sol-medium如何？
+
+论坛助手,iPhone</blockquote>
+没可比性
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  Rowen233  
+##### 6681#       发表于 2026-8-13 08:54
+
+等一下中午十一点吧 我感觉是UTC晚上设成早上了
+
