@@ -11694,3 +11694,77 @@ low档最高，这越思考越弱智，怎么做到的<img src="https://static.s
 
 —— 来自 OPPO PKU110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  舞以  
+##### 7080#       发表于 2026-8-13 18:46
+
+我现在的结论是，估计正式版就是没弄好，拿了个能部署的检查点端上来，顺便兑现一下pro支持response的承诺。
+有可能是炼丹炸炉，有可能是提升不达预期，总之就先这样吧，模型更新了，不搞宣传，不给“正式版”的名分。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  fat  
+##### 7081#       发表于 2026-8-13 18:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069607&amp;ptid=2275806" target="_blank">dark_saber 发表于 2026-8-13 18:27</a>
+
+https://deng.codexradar.com/</blockquote>
+还有这种的众测项目，感觉真不错。领了5题跑跑看。
+
+*****
+
+####  tonberry  
+##### 7082#       发表于 2026-8-13 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069696&amp;ptid=2275806" target="_blank">StrangerJ 发表于 2026-8-13 18:45</a>
+感觉你像在谈恋爱而不是在用模型
+
+—— 来自 OPPO PKU110, Android 16, 鹅球 v3.5.99 ...</blockquote>
+那我确实会用模型来谈恋爱
+
+
+*****
+
+####  qz66618  
+##### 7083#       发表于 2026-8-13 18:52
+
+<img src="https://img.stage1st.com/forum/202608/13/185205avvwl18k9vl089kr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (240.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 18:52 上传
+
+日志更新了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是官方的跑分，所以说到底是怎么回事呢
+
+*****
+
+####  lactone  
+##### 7084#       发表于 2026-8-13 18:53
+
+再怎么练炸也不会是low不如high不如max吧？
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cscbzcbz  
+##### 7085#       发表于 2026-8-13 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069730&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-13 18:52</a>
+日志更新了还是官方的跑分，所以说到底是怎么回事呢</blockquote>
+啥，现在的pro有这个分数？还是新的模型已经推上去了
+
+*****
+
+####  AzuEdit  
+##### 7086#       发表于 2026-8-13 18:55
+
+官宣涨价<img src="https://p.sda1.dev/34/70e7fc43c5df44e9e3f37d99288002fa/image.jpg" referrerpolicy="no-referrer">
+
