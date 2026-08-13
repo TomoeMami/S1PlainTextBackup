@@ -1482,3 +1482,20 @@ mygo 第8集惊世一跪之后，第9集一上来就把 soyo 过去的故事线�
 
 说明就吃这一套 那不狠狠折腾特供<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  my707776310  
+##### 275#       发表于 2026-8-14 00:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不还是柿柿角角请回来吧,你们这套新班子太几把菜了,拍的明白动画么
+
+*****
+
+####  天风绯炎  
+##### 276#       发表于 2026-8-14 00:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">藤都子老师的风评肉眼可见的没救了，阿拉蕾和野乃花好像还有戏
+
+下集v姐该把藤都子老师引爆了吧，名台词已经收集了这么多了
+

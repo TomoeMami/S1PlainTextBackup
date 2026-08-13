@@ -2190,3 +2190,155 @@ https://github.com/omdsh-dev
 
 harness真好用，比CC好用多了。。。
 
+
+*****
+
+####  Sacross  
+##### 7609#       发表于 2026-8-14 00:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071785&amp;ptid=2275806" target="_blank">Totokei 发表于 2026-8-14 00:11</a>
+
+所以想问一下今晚harness上线对我们这种臭写文章的有影响吗，还是说除了甲厚了其他还没区别 ...</blockquote>
+看你习惯，这玩意儿的好处是你不用把内容全部贴进对话框里，可以进行文件夹管理了，但是你之前要是用pi啥的，核心就是感觉速度有点哈人
+
+*****
+
+####  库德里尔  
+##### 7610#       发表于 2026-8-14 00:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071785&amp;ptid=2275806" target="_blank">Totokei 发表于 2026-8-14 00:11</a>
+
+所以想问一下今晚harness上线对我们这种臭写文章的有影响吗，还是说除了甲厚了其他还没区别 ...</blockquote>
+模型归模型 应用归应用
+
+如果模型训练的时候就往应用上面靠 那么dsv4pro可能会有些变化 不过在我看来 基座模型该用还是用
+
+我之前不是分享我用pi做了个带角色扮演的小说助手吗，我打算试着遵循同样的设计思路让dsh自己做一个玩玩 反正两边的基模都是dsv4f
+
+*****
+
+####  冤枉呐  
+##### 7611#       发表于 2026-8-14 00:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071797&amp;ptid=2275806" target="_blank">Sacross 发表于 2026-8-14 00:14</a>
+看你习惯，这玩意儿的好处是你不用把内容全部贴进对话框里，可以进行文件夹管理了，但是你之前要是用pi啥 ...</blockquote>
+我想想，这东西能搞个知识库不
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  冤枉呐  
+##### 7612#       发表于 2026-8-14 00:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071804&amp;ptid=2275806" target="_blank">库德里尔 发表于 2026-8-14 00:14</a>
+模型归模型 应用归应用
+
+如果模型训练的时候就往应用上面靠 那么dsv4pro可能会有些变化 不过在我看来 基座 ...</blockquote>
+请佬做出来以后分享啊
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  舞以  
+##### 7613#       发表于 2026-8-14 00:16
+
+这个harness估计也可以改造成适合写文的模式吧
+
+*****
+
+####  banjia0815  
+##### 7614#       发表于 2026-8-14 00:16
+
+我靠这dsh也太快了吧，之前vscode+cc插件做的压缩过几轮上下文的godot项目，让它读取完并列出todolist，总共才花了40s。同样之前更新vs4f出来那会测试，cc30天自动清空对话后让它重新分析这个项目时间我记得花了小10分钟<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 7615#       发表于 2026-8-14 00:17
+
+我看到有vscode里打开dsh的插件了，可以去看一下
+
+*****
+
+####  库德里尔  
+##### 7616#       发表于 2026-8-14 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071811&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-14 00:16</a>
+
+这个harness估计也可以改造成适合写文的模式吧</blockquote>
+我的设计上，文件读写、网络搜索、skill注入、做拓展啥的该有还是有，省不了。
+
+基本上应该还是搞覆写系统提示词那一套，然后加写文相关的拓展设计和类工程化的推进思路。或许裁剪掉一些和coding强相关的东西。
+
+不过总之dsh才刚公开几个小时，我打算慢慢试试看。
+
+*****
+
+####  ダンボール戦車  
+##### 7617#       发表于 2026-8-14 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071773&amp;ptid=2275806" target="_blank">库德里尔 发表于 2026-8-14 00:10</a>
+
+你确定那个webui的原理难道不是把你的文档丢到了一个临时workspace文件夹下面，然后把ref输进去？然后tui ...</blockquote>
+老实说我不知道，每个session第一句对话给他的文档和skill也都在项目路径里面，只是我习惯会手动塞到他脸上确保他一定会读完而已 
+
+*****
+
+####  CCauchy  
+##### 7618#       发表于 2026-8-14 00:19
+
+写文不奢求，最多就是文学评论，一个会话5000字都写得不算好
+
+
+*****
+
+####  舞以  
+##### 7619#       发表于 2026-8-14 00:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071825&amp;ptid=2275806" target="_blank">库德里尔 发表于 2026-8-14 00:19</a>
+
+我的设计上，文件读写、网络搜索、skill注入、做拓展啥的该有还是有，省不了。
+
+基本上应该还是搞覆写系统 ...</blockquote>
+我感觉可以抽象成一个和现在的标准/ptc模式并列的模式？将来想写文了就切换成这个模式拉起对话？
+
+*****
+
+####  spaceblue  
+##### 7620#       发表于 2026-8-14 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071755&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-14 00:07</a>
+
+请教
+
+就在这个ds的harness里面问 flash，他说：
+
+方案 A（推荐，零/极少代码）：OAuth device flow 取 tok ...</blockquote>
+方案A
+
+"OAuth device flow 取 token" → grok-oauth 插件调用 pi-ai 内置的 xaiOAuth（auth.x.ai/oauth2/device + 设备码轮询），这是 xAI 官方 OAuth，与 Grok CLI 完全同款，不是逆向。
+
+"喂给 DSH 的 xai 路由" → 取到的 access token 通过 ctx.credentials.set("GROK_OAUTH_ACCESS", token) 写入 DSH 凭据服务；llm-pi-ai 适配器上配置的 xai 提供商路由（apiKeyEnv: GROK_OAUTH_ACCESS）每请求自动从凭据服务解析该 token 作为 apiKey 打到 api.x.ai/v1。这正好就是 A 说的"喂给路由"，只是 DSH 的"喂"是走它自己的凭据/适配器机制，不需要代理。
+
+方案 C 的边界：那个 flash 说 C 是"工程量最大、改 DSH 原生"。我们没有改 DSH 主程序——OAuth 的交互 UI（设置页"Grok 账号"）、令牌生命周期（持久化/刷新/请求前校验）、登录流程控制全部放在 profile 级插件 @dsh-local/grok-oauth 里，挂在 cordis.patch.yml。这是 A 的交付形态，不是 C。
+
+A 的实现 + C 的薄壳（用插件而非改内核）
+
+我装过Pi所以DSH直接用了Pi的配置了
+
+*****
+
+####  冤枉呐  
+##### 7621#       发表于 2026-8-14 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071836&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-8-14 00:21</a>
+方案A
+
+"OAuth device flow 取 token" → grok-oauth 插件调用 pi-ai 内置的 xaiOAuth（auth.x.ai/oauth2/d ...</blockquote>
+感谢！
+不过目前看好像还得再写个知识库的样子（写刘备需求）
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
