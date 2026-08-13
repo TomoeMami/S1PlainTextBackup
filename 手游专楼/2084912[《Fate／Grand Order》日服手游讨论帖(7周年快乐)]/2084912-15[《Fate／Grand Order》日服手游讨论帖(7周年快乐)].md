@@ -3980,3 +3980,45 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 
 这次的红阎魔满破图怪怪的……
 
+
+*****
+
+####  gpx234mqx  
+##### 21422#       发表于 2026-8-13 21:48
+
+ 本帖最后由 gpx234mqx 于 2026-8-13 21:50 编辑 
+
+<img src="https://img.stage1st.com/forum/202608/13/214943jnnoj6o1vri1slls.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>16DAE287-640E-45C3-8E4B-3ADB24894143.jpeg</strong> (240.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 21:49 上传
+
+这次的新大奶奶是贝露丹迪吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+一看就不是琉球妖怪毛怪，想想就怪，骗谁啊
+
+固定时间=现在
+
+*****
+
+####  gpx234mqx  
+##### 21423#       发表于 2026-8-13 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069448&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-8-13 18:00</a>
+
+这堆换人卡，除了送的妈龙娘实在是太猛了（其实是红卡太猛了
+
+其他的有哪个活过1年的</blockquote>
+不出泳装谁记得<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gpx234mqx  
+##### 21424#       发表于 2026-8-13 21:57
+
+乌鲁德是皇后杀手第三能力的话，贝露丹迪算是世界？那斯库尔特是绯红之王了
+

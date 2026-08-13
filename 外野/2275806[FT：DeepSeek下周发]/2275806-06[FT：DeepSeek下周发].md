@@ -164,3 +164,141 @@ dsh+v4pro正式版的双叉臂悬挂模拟
 
 我感觉效果还是很不错的
 
+
+*****
+
+####  阿刚  
+##### 7417#       发表于 2026-8-13 21:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这个hsn不一样啊，真的感觉不一样……为什么会这么快
+
+*****
+
+####  小野賢章  
+##### 7418#       发表于 2026-8-13 21:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070781&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-13 21:46</a>
+
+dsh+v4pro正式版的双叉臂悬挂模拟
+
+我感觉效果还是很不错的</blockquote>
+[https://www.bilibili.com/video/BV1xFKN6gEcw](https://www.bilibili.com/video/BV1xFKN6gEcw)
+
+这个不会就是漏油吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 7419#       发表于 2026-8-13 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070799&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-13 21:49</a>
+
+https://www.bilibili.com/video/BV1xFKN6gEcw
+
+这个不会就是漏油吧</blockquote>
+不是喵，我就是看这个up才试着用双叉臂测试。
+
+flash在这问题上超垃圾，可能是世界知识不够
+
+*****
+
+####  孤灯蓝影  
+##### 7420#       发表于 2026-8-13 21:51
+
+<blockquote>阿刚 发表于 2026-8-13 21:48
+这个hsn不一样啊，真的感觉不一样……为什么会这么快</blockquote>
+缓存命中率极高
+
+*****
+
+####  →熙←  
+##### 7421#       发表于 2026-8-13 21:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070772&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-13 21:44</a>
+
+这玩意不带甲，直接提示词注入就行了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">还有文风选择,纠正什么的
+
+*****
+
+####  zy450  
+##### 7422#       发表于 2026-8-13 21:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070794&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-13 21:48</a>
+
+这个hsn不一样啊，真的感觉不一样……为什么会这么快</blockquote>
+我开标准模式，感觉比PI还快……神奇
+
+*****
+
+####  阿刚  
+##### 7423#       发表于 2026-8-13 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070809&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-13 21:51</a>
+
+还有文风选择,纠正什么的</blockquote>
+这些原来的skill都有了，我让他帮我做下优化看看他提的方案
+
+*****
+
+####  舞以  
+##### 7424#       发表于 2026-8-13 21:52
+
+越用越感觉这harness真有说法喵<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+沟槽的ds不炼丹去搞这玩意儿了？
+
+*****
+
+####  小野賢章  
+##### 7425#       发表于 2026-8-13 21:53
+
+这是dsh + opus4.8 的效果<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家觉得哪个好
+
+<img src="https://img.stage1st.com/forum/202608/13/215328xwxh7m5uc4mboo54.png" referrerpolicy="no-referrer">
+
+<strong>pelican-check.png</strong> (31.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 21:53 上传
+
+
+*****
+
+####  nxmonitor  
+##### 7426#       发表于 2026-8-13 21:54
+
+试了一下比早上还强一些，别是跟着DSH训练导致其他harness性能暴跌吧？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 7427#       发表于 2026-8-13 21:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070826&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-13 21:53</a>
+
+这是dsh + opus4.8 的效果大家觉得哪个好</blockquote>
+约等于opus4.8！😡
+
+*****
+
+####  浪费喝咖啡  
+##### 7428#       发表于 2026-8-13 21:54
+
+原来以为flash和harness会翻车，灰测过的pro应该比较稳。没想到完全反了啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  →熙←  
+##### 7429#       发表于 2026-8-13 21:55
+
+为什么这dsh那么快, 不都是大模型吗
+
+*****
+
+####  Promeus  
+##### 7430#       发表于 2026-8-13 21:55
+
+这缓存命中率干啥都吓哭了啊<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
