@@ -689,3 +689,73 @@ max还是不太对劲，我觉得部署的员工是新手，还听说权重被�
 
 什么时候给vscode开发个插件啊，目前没办法实时看到文件内容和修改还是不好干活
 
+
+*****
+
+####  小野賢章  
+##### 7471#       发表于 2026-8-13 22:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070990&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-13 22:15</a>
+ 什么时候给vscode开发个插件啊，目前没办法实时看到文件内容和修改还是不好干活 ...</blockquote>
+https://www.zhihu.com/question/2071335529577239335/answer/2071335996126393376
+
+*****
+
+####  厍无春  
+##### 7472#       发表于 2026-8-13 22:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070980&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-13 22:14</a>
+搞不好 pro 就是这个鬼样子了，真好奇 flash
+这么吊 pro 怎么是这样</blockquote>
+好像是预训练给的数据有一定缺陷
+
+*****
+
+####  舞以  
+##### 7473#       发表于 2026-8-13 22:18
+
+我感觉，专武是对的啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 估计v4正式版后训练是和harness一起搞的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  飞侠小黑  
+##### 7474#       发表于 2026-8-13 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070980&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-13 22:14</a>
+搞不好 pro 就是这个鬼样子了，真好奇 flash
+这么吊 pro 怎么是这样</blockquote>
+不是说现在pro都跑不到官方公布的成绩吗？
+
+—— 来自 HUAWEI VDE-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  秦南心  
+##### 7475#       发表于 2026-8-13 22:19
+
+不管webui 或是桌面版，不都是Chromium
+
+
+*****
+
+####  BarricadeMKXX  
+##### 7476#       发表于 2026-8-13 22:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070722&amp;ptid=2275806" target="_blank">Dreki 发表于 2026-8-13 21:35</a>
+
+草，原来是在等别人写tui插件吗    Re:Source</blockquote>
+其实已经有了：
+[https://github.com/ccch1mneyyy/dsh-cc-tui](https://github.com/ccch1mneyyy/dsh-cc-tui)
+
+*****
+
+####  LieZ  
+##### 7477#       发表于 2026-8-13 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070978&amp;ptid=2275806" target="_blank">justwul 发表于 2026-8-13 22:13</a>
+
+而且dsh自带的搜索有点说法的，又快又好</blockquote>
+dsh自带的搜索是不是抓不到正文？
+
