@@ -10805,3 +10805,28 @@ v4 pro的指纹也变了
 
 这个字符串有点像新模型了
 
+
+*****
+
+####  overflowal  
+##### 6985#       发表于 2026-8-13 15:58
+
+这个指纹现在变成hash了，不是之前语义化的字符串了。不知道图啥    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  phorcys02  
+##### 6986#       发表于 2026-8-13 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70068421&amp;ptid=2275806" target="_blank">ly4236 发表于 2026-8-13 15:53</a>
+
+我去登下试试</blockquote>
+似乎还是preview...别蹬了
+
+*****
+
+####  PEPTIDE  
+##### 6987#       发表于 2026-8-13 16:00
+
+已正式降级至梁白开
+
