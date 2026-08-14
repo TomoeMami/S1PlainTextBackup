@@ -3682,3 +3682,24 @@ ds也是一款大世界二游，，，
 
 只是插件热拔插的话，其实底层和 code mode 是一样的，搭配自进化，可能 code mode 更灵活一些
 
+
+*****
+
+####  舞以  
+##### 7741#       发表于 2026-8-14 08:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">接受之后用opencode go蹬pro感觉也挺好的？
+
+唉，和解了
+
+
+*****
+
+####  LeoDT  
+##### 7742#       发表于 2026-8-14 08:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072440&amp;ptid=2275806" target="_blank">ov_efly 发表于 2026-8-14 08:14</a>
+
+只是插件热拔插的话，其实底层和 code mode 是一样的，搭配自进化，可能 code mode 更灵活一些 ...</blockquote>
+code mode思路其实还是比较传统的“写个脚本”吧。其实说热插拔只是个简化的说法，这东西想实现还是挺复杂的，他们做数学证明可能也是想给这东西给个理论基础。只不过这个理论稍微有点理想，用很多约束换来一些很fancy的机制，这些机制在现实中，尤其是短期内，应该是没什么大用。
+
