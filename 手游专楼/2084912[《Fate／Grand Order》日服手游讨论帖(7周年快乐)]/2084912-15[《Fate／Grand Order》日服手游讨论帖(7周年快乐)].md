@@ -4039,3 +4039,78 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 这么一看明年未来可期，起码不用担心阿菌又塞樱系列来充数
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 21426#       发表于 2026-8-13 18:13
+
+等等看明天两张卡的卡图如何再抽
+
+这次的红阎魔满破图怪怪的……
+
+*****
+
+####  gpx234mqx  
+##### 21427#       发表于 2026-8-13 21:48
+
+ 本帖最后由 gpx234mqx 于 2026-8-13 21:50 编辑 
+
+<img src="https://img.stage1st.com/forum/202608/13/214943jnnoj6o1vri1slls.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>16DAE287-640E-45C3-8E4B-3ADB24894143.jpeg</strong> (240.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-13 21:49 上传
+
+这次的新大奶奶是贝露丹迪吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+一看就不是琉球妖怪毛怪，想想就怪，骗谁啊
+
+固定时间=现在
+
+*****
+
+####  gpx234mqx  
+##### 21428#       发表于 2026-8-13 21:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70069448&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-8-13 18:00</a>
+
+这堆换人卡，除了送的妈龙娘实在是太猛了（其实是红卡太猛了
+
+其他的有哪个活过1年的</blockquote>
+不出泳装谁记得<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 21429#       发表于 2026-8-13 21:57
+
+乌鲁德是皇后杀手第三能力的话，贝露丹迪算是世界？那斯库尔特是绯红之王了
+
+*****
+
+####  exiaexa  
+##### 21430#       发表于 2026-8-13 22:43
+
+ 本帖最后由 exiaexa 于 2026-8-13 22:45 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070820&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2026-8-13 21:52</a>
+
+不出泳装谁记得</blockquote>
+确实，我数了下，好几个大X角色都没泳装
+
+乌尔德、黑玛丽、俩兔子、杜尔伽、黑枪呆、蛇女房、德墨忒尔、芝诺比娅、r姐、南丁、爱丽丝菲尔
+
+这么一看明年未来可期，起码不用担心阿菌又塞樱系列来充数
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 21431#       发表于 2026-8-14 09:08
+
+蛇女房可以的，不换人充能和buff量都够，尤其红卡队有时候就缺这么点充能
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

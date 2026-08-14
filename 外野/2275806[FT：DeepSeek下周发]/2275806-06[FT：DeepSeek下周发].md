@@ -3803,3 +3803,121 @@ deepseek 史上最手忙脚乱的24h<img src="https://static.stage1st.com/image/
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  haiuhfuwah  
+##### 7753#       发表于 2026-8-14 09:06
+
+有没有一些例子可以讲讲pi还有dsh这种插件自定义的agent具体可以有哪些想象空间哇。
+之前用的是claude接的ds拿来编一些自己的小想法(cli和desktop都有在用)。
+想知道dsh相比于claude的话 使用上的范式有哪些变化？
+
+*****
+
+####  绝地潜兵  
+##### 7754#       发表于 2026-8-14 09:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072201&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-14 03:17</a>
+
+有搜索的轮子吗，我让他接个duck duck go折腾了5块钱了还没弄好</blockquote>
+给你看看这个skill能不能在你电脑复现
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+web-skill.md
+
+2026-8-14 09:06 上传
+点击文件名下载附件
+
+10.65 KB, 下载次数: 0
+
+*****
+
+####  舞以  
+##### 7755#       发表于 2026-8-14 09:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072618&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-14 09:04</a>
+deepseek 史上最手忙脚乱的24h</blockquote>
+最有活的lab<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  schneehertz  
+##### 7756#       发表于 2026-8-14 09:09
+
+刚上手dsh，看了下文档
+感觉写文档的很外行啊，写得乱七八糟的
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  当光停止  
+##### 7757#       发表于 2026-8-14 09:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大伙是怎么导入coding plan订阅的？（不是api key）
+
+我没找到入口，要是已经有了我就不重复造轮子写插件了。
+
+
+*****
+
+####  舞以  
+##### 7758#       发表于 2026-8-14 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072655&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-8-14 09:09</a>
+大伙是怎么导入coding plan订阅的？（不是api key）
+
+我没找到入口，要是已经有了我就不重复造轮子写插件了 ...</blockquote>
+dsh的provider整体来看是专门适配的ds和从pi借来的一套
+我的codex订阅就是和他聊，说我想实现，卡点在哪（pi已经实现了支持），然后商量下细节让他实现，然后挂上就有了（他直接借用了我pi的oauth令牌），都没重启
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Schwarzess  
+##### 7759#       发表于 2026-8-14 09:11
+
+什么情况，评级从梁\回调至梁子？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  darktide  
+##### 7760#       发表于 2026-8-14 09:11
+
+harness快是快，就是太贵了，有点用不起。换flash看看。
+
+
+*****
+
+####  此誓的守望  
+##### 7761#       发表于 2026-8-14 09:12
+
+<img src="https://img.stage1st.com/forum/202608/14/091224e3uox3uu93o3y7er.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>image-1.webp</strong> (147.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 09:12 上传
+
+猫老板带harness的测评出来了
+话已经说的很委婉了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  holmesjerry  
+##### 7762#       发表于 2026-8-14 09:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072616&amp;ptid=2275806" target="_blank">Chenlh 发表于 2026-8-14 09:03</a>
+问题是打折前有承诺说华为的卡到了就会大幅降价，这越来越贵了呀。希望华为的生产力上去，一切都会好起来 ...</blockquote>
+问题是同等算力昇腾比英伟达的黑市卡还贵啊，且暂时轮不到ds
+
+只能解释ds认为自己的infra有魔法吧。否则很难理解在卡的数量（显著的少），卡的价格（4倍的高），语料的质量（自然语言中文语料差的问题且不说，没有harness导致代码语言也不能像codex或者cc那样反馈给ds）都不如的情况下，还能定出一个比国外大厂低的多的价格且可持续
+
