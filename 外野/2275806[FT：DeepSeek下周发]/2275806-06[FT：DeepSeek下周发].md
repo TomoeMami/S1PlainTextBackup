@@ -3644,3 +3644,23 @@ DSH-better-sidebar不知道为什么装不上去 说我nodejs版本太高
 
 删除 不好意思发错了orz
 
+
+*****
+
+####  舞以  
+##### 7737#       发表于 2026-8-14 08:00
+
+ds也是一款大世界二游，，，
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ov_efly  
+##### 7738#       发表于 2026-8-14 08:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072330&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-8-14 07:08</a>
+
+为啥你们都不喜欢webui，我最喜欢webui了，远程开发就这个最方便，内网穿透一下就和本机一样，还可以手机 ...</blockquote>
+笔记本 ssh cli 也一样，浏览器不安装 vim 还得鼠标点点点。
+

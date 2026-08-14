@@ -10559,3 +10559,21 @@ Avengers Assemble！
 居然有人叫 包子</blockquote>
 也可能是 豹子 谁会叫包子啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蓮華  
+##### 2481#       发表于 2026-8-14 07:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072375&amp;ptid=2261859" target="_blank">血狂毘沙门 发表于 2026-8-14 07:44</a>
+
+也可能是 豹子 谁会叫包子啊</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/14/075651bmi1ufl89g8f18ud.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4479.jpeg</strong> (93.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 07:56 上传
+
