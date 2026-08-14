@@ -10628,3 +10628,13 @@ IS应该还是会推特更新吧，懒得去盯帧各种试玩透露了。
 
 这个四主角跟自捏的鸟之间的“茶会”也太tm搞了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，到底是哪个天才设计的，精神状态真的没问题吗
 
+
+*****
+
+####  milky658  
+##### 2488#       发表于 2026-8-14 08:52
+
+黑皮小男孩：居委会大妈；黑皮舞娘：陪酒女；白大人：战斗爽
+
+这代东方元素这么多，是不是去老广采风了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

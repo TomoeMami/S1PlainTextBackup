@@ -3724,3 +3724,30 @@ code mode思路其实还是比较传统的“写个脚本”吧。其实说热�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  鸳鸳相抱  
+##### 7745#       发表于 2026-8-14 08:45
+
+打折只是没有harness时稳住用户的应急手段，本来就不可能持续
+
+*****
+
+####  小野賢章  
+##### 7746#       发表于 2026-8-14 08:47
+
+有没有可能，7月灰度模型是把dsh封装成了API暴露出来的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 7747#       发表于 2026-8-14 08:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072536&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-14 08:47</a>
+
+有没有可能，7月灰度模型是把dsh封装成了API暴露出来的</blockquote>
+我和gpt聊的结果也是，the模型的cot其实保留了很多r1往下的味道，不完全是claude的味道。
+
+鬼知道那时候到底啥情况了就是。
+
