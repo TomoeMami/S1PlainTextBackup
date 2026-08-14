@@ -3751,3 +3751,55 @@ code mode思路其实还是比较传统的“写个脚本”吧。其实说热�
 
 鬼知道那时候到底啥情况了就是。
 
+
+*****
+
+####  鸳鸳相抱  
+##### 7748#       发表于 2026-8-14 09:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072330&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-8-14 07:08</a>
+为啥你们都不喜欢webui，我最喜欢webui了，远程开发就这个最方便，内网穿透一下就和本机一样，还可以手机 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是得有公网才能用，昨天拿GPT免费额度搓了一个MCP，本机调用模型API，然后SSH到另一台机器执行命令读取输出，可以在内网机器上用codex了
+
+*****
+
+####  FACS  
+##### 7749#       发表于 2026-8-14 09:01
+
+草台班子把flash0813当pro0813传了
+
+<img src="https://img.stage1st.com/forum/202608/14/085930iacy1801pi8j5tzj.png" referrerpolicy="no-referrer">
+
+<strong>06b7cdc5-122c-45b9-967d-4e9320beed09.png</strong> (285.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 08:59 上传
+
+*****
+
+####  Chenlh  
+##### 7750#       发表于 2026-8-14 09:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072531&amp;ptid=2275806" target="_blank">鸳鸳相抱 发表于 2026-8-14 08:45</a>
+
+打折只是没有harness时稳住用户的应急手段，本来就不可能持续</blockquote>
+问题是打折前有承诺说华为的卡到了就会大幅降价，这越来越贵了呀<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。希望华为的生产力上去，一切都会好起来吧。。。
+
+*****
+
+####  小野賢章  
+##### 7751#       发表于 2026-8-14 09:04
+
+deepseek 史上最手忙脚乱的24h<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 7752#       发表于 2026-8-14 09:05
+
+当时的降价承诺估计是建立在v4系列原价上的吧，后面不是降了么<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+只是现在被蹬爆又涨回去了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

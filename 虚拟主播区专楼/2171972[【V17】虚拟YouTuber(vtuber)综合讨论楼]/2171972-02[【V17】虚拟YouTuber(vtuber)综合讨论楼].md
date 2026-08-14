@@ -77,3 +77,35 @@
 
 雪城真寻是模仿的口音吗 时间太久记不清了 只有她被称作是委员长私生女的印象了
 
+
+*****
+
+####  格林卡罗尔  
+##### 2035#       发表于 2026-8-14 00:44
+
+<blockquote>なお、本件各動画の配信を行うにあたり被告が得た情報は、主に金魚坂めいろ本人からの証言、金魚坂めいろと運営との会話内容、金魚坂めいろと金魚坂めいろに吹き込んだ一部VTuЬerとの会話内容、匿名でANYCOLOR株式会社の内部情報として、虚偽の事実を吹き込んだ一部VTuЬerとの会話内容、その他匿名者から提供された情報の五点であり、その証拠も提示されていた。</blockquote>这里提到的一部vtuber感觉不是金鱼坂也不是雪城，郡gachi有什么高见吗?<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  noHentai  
+##### 2036#       发表于 2026-8-14 01:49
+
+花了点时间看了一下和解文书，翻了翻当年的记录，回过头来看这事当初得出的结论也没什么问题：挑事的口了、踩线的金鱼、fw的运营。
+
+*****
+
+####  zmjrcdyp  
+##### 2037#       发表于 2026-8-14 04:18
+
+雪城真寻是模仿的口音吗 时间太久记不清了 只有她被称作是委员长私生女的印象了
+
+*****
+
+####  艾特娜  
+##### 2038#       发表于 2026-8-14 09:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70070675&amp;ptid=2171972" target="_blank">poipanchao 发表于 2026-8-13 21:27</a>
+
+最后还不是招了男虎，这位抽象程度放当年早冲烂了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不服责任跑路跟引发内部矛盾还是差别很大的，而且他结婚后也比较安分吧
+
