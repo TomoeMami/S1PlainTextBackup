@@ -3977,3 +3977,93 @@ harness快是快，就是太贵了，有点用不起。换flash看看。
 </blockquote>
 说明偶尔监听到v6的::1去了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  当光停止  
+##### 7769#       发表于 2026-8-14 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072665&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-14 09:11</a>
+
+dsh的provider整体来看是专门适配的ds和从pi借来的一套
+
+我的codex订阅就是和他聊，说我想实现，卡点在哪 ...</blockquote>
+我知道dsh打包了pi，所以这些接口都有，差前端的持久化、适配器还有功能啥。
+
+但是不想重复造轮子费功夫。这玩意开发得太简陋了。
+
+*****
+
+####  crow_wine  
+##### 7770#       发表于 2026-8-14 09:28
+
+早上的flash有140t/s的速度
+
+*****
+
+####  小野賢章  
+##### 7771#       发表于 2026-8-14 09:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072673&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-8-14 09:12</a>
+
+猫老板带harness的测评出来了
+
+话已经说的很委婉了</blockquote>
+
+这个没有带harness测吧
+
+<img src="https://img.stage1st.com/forum/202608/14/092917jzix7sndl6mrflcx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (97.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 09:29 上传
+
+
+*****
+
+####  坛子漆黑  
+##### 7772#       发表于 2026-8-14 09:31
+
+我让harness自己加个能把页面撑满的功能,现在我页面上已经看不到输入框和轨迹
+
+我差点都以为要删了重写下载编译了,幸好刷新后就正常了,这就是热插拔吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 7773#       发表于 2026-8-14 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072769&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-14 09:29</a>
+这个没有带harness测吧</blockquote>
+体感用dsh只是改善了pro使用工具的能力，思维链一团糟的毛病一点没变<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holmesjerry  
+##### 7774#       发表于 2026-8-14 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072673&amp;ptid=2275806" target="_blank">此誓的守望 发表于 2026-8-14 09:12</a>
+猫老板带harness的测评出来了
+话已经说的很委婉了</blockquote>
+猫老板情商一向高
+
+*****
+
+####  蜇灵  
+##### 7775#       发表于 2026-8-14 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072415&amp;ptid=2275806" target="_blank">ov_efly 发表于 2026-8-14 08:02</a>
+笔记本 ssh cli 也一样，浏览器不安装 vim 还得鼠标点点点。</blockquote>
+浏览器输入还需要专门装软件吗？不是直接在输入框输入就行了吗
+
+*****
+
+####  neptunehs  
+##### 7776#       发表于 2026-8-14 09:35
+
+干嘛我明明选了opencode go 结果发现ds那边的api跑流量了呢。。。
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
