@@ -3921,3 +3921,59 @@ harness快是快，就是太贵了，有点用不起。换flash看看。
 
 只能解释ds认为自己的infra有魔法吧。否则很难理解在卡的数量（显著的少），卡的价格（4倍的高），语料的质量（自然语言中文语料差的问题且不说，没有harness导致代码语言也不能像codex或者cc那样反馈给ds）都不如的情况下，还能定出一个比国外大厂低的多的价格且可持续
 
+
+*****
+
+####  Hyst3r1a  
+##### 7763#       发表于 2026-8-14 09:19
+
+想了一下之前好像是说招应届生比较多？确实是太草台了。
+
+*****
+
+####  蜇灵  
+##### 7764#       发表于 2026-8-14 09:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70071936&amp;ptid=2275806" target="_blank">Sacross 发表于 2026-8-14 00:44</a>
+能肯定能啊，这玩意儿本质就是个更加适合ds的框架，带了文件管理扩大了使用范围，唯一感觉不太好就是目前 ...</blockquote>
+这不是好事吗，难道你想他把你的会话全上传服务器？那我就要考虑隐私问题了
+
+*****
+
+####  孤舟垂钓  
+##### 7765#       发表于 2026-8-14 09:22
+
+又一天了，现在是哪个阶段的梁X?<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 7766#       发表于 2026-8-14 09:23
+
+<blockquote>此誓的守望 发表于 2026-8-14 09:12
+猫老板带harness的测评出来了
+
+话已经说的很委婉了
+</blockquote>
+这人在昨天说出“如果真有7月的模型就该和flash一起发了”以后就失去基本的中立性了。
+
+因为虽然我们仍然不知道7月的模型是什么情况，但是目前为止的客观证据可以反证一个事实是之前崔说的模型打算和harness一起发这个是真的，从时间线基本可以推论模型是先训好了在等harness。
+
+*****
+
+####  子虚乌有  
+##### 7767#       发表于 2026-8-14 09:24
+
+所以pro就这样？不是临时工？
+
+*****
+
+####  蜇灵  
+##### 7768#       发表于 2026-8-14 09:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072083&amp;ptid=2275806" target="_blank">Nanachi 发表于 2026-8-14 01:39</a>
+要用localhost 访问，不能用 127.0.0.1 访问
+
+</blockquote>
+说明偶尔监听到v6的::1去了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
