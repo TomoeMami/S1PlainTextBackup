@@ -246,3 +246,14 @@ SD卡池只要别太离谱本来就是港区随便登顶的
 
 前面忘了，中间忘了总之这是是一击必杀心心念念的正常爆炸输出，也是疾风第五台限定
 
+
+*****
+
+####  blue321  
+##### 4623#       发表于 2026-8-14 09:38
+
+好久没试过活动十连出货了
+可是这指挥官支援机一看阵容也太烂了吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

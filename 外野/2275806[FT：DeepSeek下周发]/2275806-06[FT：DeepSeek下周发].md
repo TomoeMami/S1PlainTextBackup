@@ -4067,3 +4067,90 @@ dsh的provider整体来看是专门适配的ds和从pi借来的一套
 
 —— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  舞以  
+##### 7777#       发表于 2026-8-14 09:36
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/html.gif" referrerpolicy="no-referrer">
+
+double-wishbone-suspension.html
+(62.46 KB, 下载次数: 0)
+
+2026-8-14 09:35 上传
+
+点击文件名下载附件
+
+max在我的双叉臂测试里面是显著强于high的，这个任务更是flash几乎做不了的<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+刚刚配齐了视觉工具之后感觉成品更强了。
+
+也有过比较差的成品，感觉得修一轮。
+
+*****
+
+####  蜇灵  
+##### 7778#       发表于 2026-8-14 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072597&amp;ptid=2275806" target="_blank">鸳鸳相抱 发表于 2026-8-14 09:00</a>
+还是得有公网才能用，昨天拿GPT免费额度搓了一个MCP，本机调用模型API，然后SSH到另一台机器执行命令读取 ...</blockquote>
+我用IPv6，完全不担心公网这个问题
+
+*****
+
+####  Rowen233  
+##### 7779#       发表于 2026-8-14 09:37
+
+有没有一种可能所谓的灰测模型只是中间的一个检查点正好抽出好卡了，本身ai就是个最大概率模型
+
+
+*****
+
+####  crow_wine  
+##### 7780#       发表于 2026-8-14 09:40
+
+思维链完全不一样，不是抽卡能解释的
+
+*****
+
+####  Nanachi  
+##### 7781#       发表于 2026-8-14 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072749&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-8-14 09:25</a>
+
+说明偶尔监听到v6的::1去了吧</blockquote>
+[https://github.com/deepseek-ai/deepseek-harness/discussions/128](https://github.com/deepseek-ai/deepseek-harness/discussions/128)
+
+*****
+
+####  qwased  
+##### 7782#       发表于 2026-8-14 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072810&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-14 09:35</a>
+干嘛我明明选了opencode go 结果发现ds那边的api跑流量了呢。。。
+
+—— 来自 OnePlus PJX110, Android 14, ...</blockquote>
+看看是不是子agent用ds了，好像默认不能调用指定模型跑子代理
+
+*****
+
+####  neptunehs  
+##### 7783#       发表于 2026-8-14 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70072860&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-14 09:41</a>
+看看是不是子agent用ds了，好像默认不能调用指定模型跑子代理</blockquote>
+那怎么办呢 我ds的两模型都删了也没用
+因为两边调用还导致ds官方这边缓存命中率特别低
+
+—— 来自 OnePlus PJX110, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  北呱南飞去  
+##### 7784#       发表于 2026-8-14 09:46
+
+去看了 harness 的介绍视频，第一个案例就创建了个虎鲸结果倒着游的，到第二第三个案例演示的时候虎鲸还在底下倒游
+绷不住了
+
