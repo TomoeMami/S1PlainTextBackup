@@ -14061,3 +14061,14 @@ Training with a single fixed agent harness can cause a model to overfit to a par
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  qwased  
+##### 8681#       发表于 2026-8-16 02:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70083996&amp;ptid=2275806" target="_blank">c12hero 发表于 2026-8-16 00:47</a>
+
+应该刚出的Qwen 3.8 -27B才是写文的最终答案</blockquote>
+有测试吗，3.6完全不说人话还中英夹杂，写作完全不能用吧
+
