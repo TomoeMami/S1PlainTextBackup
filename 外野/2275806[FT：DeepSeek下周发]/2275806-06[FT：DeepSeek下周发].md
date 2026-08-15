@@ -14072,3 +14072,11 @@ Training with a single fixed agent harness can cause a model to overfit to a par
 应该刚出的Qwen 3.8 -27B才是写文的最终答案</blockquote>
 有测试吗，3.6完全不说人话还中英夹杂，写作完全不能用吧
 
+
+*****
+
+####  lly778  
+##### 8682#       发表于 2026-8-16 03:16
+
+风神出了pro的插件了
+
