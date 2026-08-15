@@ -14049,3 +14049,15 @@ Training with a single fixed agent harness can cause a model to overfit to a par
 
 看来还是得再等等，等4.1了。这个基模的能力还没能完全发挥出来
 
+
+*****
+
+####  余晖  
+##### 8680#       发表于 2026-8-16 02:14
+
+折腾了两天dsh，造轮子确实有意思
+明天上班还是用codex姐flash用吧。
+感觉dsh这个架构挺适合搭个多端同步的，等GitHub自己长出来方案先
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
