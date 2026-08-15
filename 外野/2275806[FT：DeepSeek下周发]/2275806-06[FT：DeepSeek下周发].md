@@ -14033,3 +14033,19 @@ ai写文肯定有ai感，但是现在有大量中文skill解决AI感问题。主
 
 这对模型的空间推理能力、视觉想象力、几何规划能力要求极高，而这几项恰恰是当前 LLM 的短板。
 
+
+*****
+
+####  zhongjie  
+##### 8679#       发表于 2026-8-16 02:11
+
+kimi K3的论文里就有写相关问题：
+
+一、K3 报告原文核心论述（Section 3）
+
+Training with a single fixed agent harness can cause a model to overfit to a particular tool schema, system prompt, context management mechanism, or interaction protocol.
+
+（使用单一固定的 Agent Harness 进行训练，会导致模型严重过拟合到特定的工具 Schema、系统提示词、上下文管理机制或交互协议上。）
+
+看来还是得再等等，等4.1了。这个基模的能力还没能完全发挥出来
+
