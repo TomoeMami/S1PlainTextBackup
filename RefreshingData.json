@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 59525,
+    "totalreply": 59526,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1786834325,
+    "lastedit": 1786835284,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 8683,
+    "totalreply": 8684,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[DS v4 Pro GA &DS harness 已上线／公测｜大模型讨论专楼]",
-    "lastedit": 1786834325,
+    "lastedit": 1786835164,
     "category": "外野",
     "active": true,
     "update": false
@@ -17465,6 +17465,15 @@
     "newtitle": "[银行、地铁站、游船、音乐节、景区、商场、雪山、云端…..都能办结婚证了]",
     "lastedit": 1786829165,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2287728": {
+    "totalreply": 63,
+    "title": "[大部分游戏中文宣传资料或中文字幕用的字体真的很难看]",
+    "newtitle": "[大部分游戏中文宣传资料或中文字幕用的字体真的很难看]",
+    "lastedit": 1786835046,
+    "category": "游戏区",
     "active": true,
     "update": false
   }

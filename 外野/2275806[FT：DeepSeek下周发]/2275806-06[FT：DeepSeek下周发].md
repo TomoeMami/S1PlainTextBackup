@@ -14088,3 +14088,17 @@ Training with a single fixed agent harness can cause a model to overfit to a par
 
 咋还有社区领袖道歉的环节<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bartholo4  
+##### 8684#       发表于 2026-8-16 07:03
+
+ 本帖最后由 bartholo4 于 2026-8-16 07:05 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70084508&amp;ptid=2275806" target="_blank">lly778 发表于 2026-8-16 03:16</a>
+风神出了pro的插件了</blockquote>
+又回滚了...
+但路由的 flash 真是又强又快
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
