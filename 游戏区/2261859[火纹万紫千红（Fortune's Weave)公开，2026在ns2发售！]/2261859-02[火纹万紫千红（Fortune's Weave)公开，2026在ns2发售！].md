@@ -10638,3 +10638,1606 @@ IS应该还是会推特更新吧，懒得去盯帧各种试玩透露了。
 
 这代东方元素这么多，是不是去老广采风了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  flyingover  
+##### 2489#       发表于 2026-8-14 10:21
+
+<img src="https://img.stage1st.com/forum/202608/14/102055rsri6rhrd0i1o2z6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (352.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 10:20 上传
+
+*****
+
+####  bad_alloc  
+##### 2490#       发表于 2026-8-14 10:25
+
+好多新人，人物数量要爆表了
+
+好奇这次怎么处理这么多人的支援，还是自由挖角，如果支援覆盖面不够广，挖的人互相都没支援岂不是很尴尬
+
+*****
+
+####  qiyu1234  
+##### 2491#       发表于 2026-8-14 10:35
+
+红迪那边整理的角色列表
+
+应该接近系列最大使用人数的作品梯队了
+
+这作没季票，不知道后面有没有追加
+
+<img src="https://img.stage1st.com/forum/202608/14/103520tjf6i3dn66b1b1ob.png" referrerpolicy="no-referrer">
+
+<strong>1ytmcflk29jh1.png</strong> (1.16 MB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 10:35 上传
+
+*****
+
+####  qiyu1234  
+##### 2492#       发表于 2026-8-14 10:40
+
+蕾达看上去有16-17人左右的支援对话角色
+
+考虑到是核心角色，应该接近个人最大值了
+
+<img src="https://img.stage1st.com/forum/202608/14/103942edh3ee3jjl4539em.jpg" referrerpolicy="no-referrer">
+
+<strong>9.jpg</strong> (173.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 10:39 上传
+
+*****
+
+####  u2deack  
+##### 2493#       发表于 2026-8-14 10:40
+
+只能说好看的角色也不少，但是现在还没有希尔妲和莉丝缇亚那种让我一眼就选金鹿的角色，不过反正一周目都能玩也无所谓了
+
+*****
+
+####  406  
+##### 2494#       发表于 2026-8-14 10:40
+
+美影鬼这边遇上个人不分男女都要夸他脸美，感觉桥段太重复了有点尬啊。连怪眼副官都要对他的美貌大加赞扬，按地底人的认知，这岂不是恋兽癖吗
+
+*****
+
+####  bad_alloc  
+##### 2495#       发表于 2026-8-14 10:45
+
+ 本帖最后由 bad_alloc 于 2026-8-14 10:50 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70073353&amp;ptid=2261859" target="_blank">qiyu1234 发表于 2026-8-14 10:40</a>
+
+蕾达看上去有16-17人左右的支援对话角色
+
+考虑到是核心角色，应该接近个人最大值了</blockquote>
+线路主角之间也有支援，四合一玩真的呀
+
+蕾达跟A少B支援带锁，猜测也是5年后解锁？如果是真的话，5年后的比重可能真的不少
+
+幻想下最终战能不能分成5个战场，4主角+自捏带着50多个人个人上场，一关打个5小时<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qiyu1234  
+##### 2496#       发表于 2026-8-14 10:59
+
+ 本帖最后由 qiyu1234 于 2026-8-14 11:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70073407&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-8-14 10:45</a>
+
+线路主角之间也有支援，四合一玩真的呀
+
+蕾达跟A少B支援带锁，猜测也是5年后解锁？如果是真的话，5年后的比 ...</blockquote>
+不好说，因为不清楚是不是后面的锁不会同时显示，也可能5年前流程能解B支援锁，之后还有一个A锁
+
+另外我觉得留给纯招募角色的空间不是很多，除了本线的核心角色以外，应该只对其他三英雄+伊斯梅尔有A支援
+
+爱丝梅拉达是迪特里希线的核心角色，有支援也可能说明5年后是有其他队伍角色的
+
+话说宝贵的支援对话栏位里怎么还有杰斯特这种视觉系朋克头<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/14/110855jrfqfsatzlsf6xfg.jpg" referrerpolicy="no-referrer">
+
+<strong>51.jpg</strong> (8.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 11:08 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/110858mzs41n11butt9mtg.jpg" referrerpolicy="no-referrer">
+
+<strong>00.jpg</strong> (213.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 11:08 上传
+
+*****
+
+####  yangchunsiyue  
+##### 2497#       发表于 2026-8-14 11:08
+
+问下日亚买download版的话，码会发到邮箱吗，还是要去日亚上看啊。一般提前多久会发码啊
+
+*****
+
+####  黑卷轴陶德传  
+##### 2498#       发表于 2026-8-14 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70073366&amp;ptid=2261859" target="_blank">406 发表于 2026-8-14 10:40</a>
+
+美影鬼这边遇上个人不分男女都要夸他脸美，感觉桥段太重复了有点尬啊。连怪眼副官都要对他的美貌大加赞扬， ...</blockquote>
+engage同款刻板支援对话，大蒜就是喝茶喝茶，肌肉弓箭手就是肌肉肌肉，路易就是看美女看美女，拉比斯就是穷吃土打熊力气大，希特丽妮卡就是有钱大小姐……
+
+*****
+
+####  墨染白泉  
+##### 2499#       发表于 2026-8-14 11:22
+
+<blockquote>yangchunsiyue 发表于 2026-8-14 11:08
+问下日亚买download版的话，码会发到邮箱吗，还是要去日亚上看啊。一般提前多久会发码啊 ...</blockquote>
+发售前一天发码，邮箱和日亚都有吧，不过其中一个可能会迟点才显示
+
+*****
+
+####  hkguty  
+##### 2500#       发表于 2026-8-14 11:23
+
+有些长得挺路人的可能只有几个羁绊剧情或者压根没有吧，五年前自捏跟四主角的羁绊似乎也只有一个A剧情
+
+*****
+
+####  黑上シグマ  
+##### 2501#       发表于 2026-8-14 11:25
+
+<blockquote>引用第2480楼蓮華于2026-08-14 07:57发表的  :
+
+血狂毘沙门 发表于 2026-8-14 07:44也可能是 豹子 谁会叫包子啊评分记录：月光乱舞+1......</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">他叫包没子啊
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
+*****
+
+####  406  
+##### 2502#       发表于 2026-8-14 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70073693&amp;ptid=2261859" target="_blank">黑卷轴陶德传 发表于 2026-8-14 11:21</a>
+
+engage同款刻板支援对话，大蒜就是喝茶喝茶，肌肉弓箭手就是肌肉肌肉，路易就是看美女看美女，拉比斯就是 ...</blockquote>
+目前放出被夸美的剧情应该都是主线里的。不过这作角色这么多，互动质量真不好说了。再拿前作对比，女贝也是貌若天仙，而对她外貌的赞美就克制在两三处npc互动和学生对话里。
+
+*****
+
+####  qiyu1234  
+##### 2503#       发表于 2026-8-14 11:40
+
+这次5年前后的过渡不知道会是什么样的
+
+芙托纳介绍视频里大概的意思感觉像是让通关路线的主角躲进方尖塔之间里藏起来等主角5年后来会合
+
+我还是觉得可能 大剑斗祭 和 救世主对魔神 本质还是两个故事，魔神降临是大剑斗祭结束后的故事
+
+*****
+
+####  会长辅佐  
+##### 2504#       发表于 2026-8-14 12:11
+
+我看这演示，主角就是五年前那个可以穿梭时空的鸟？这么说主角还能有羁绊对象吗。这么大公无私的纯工具人
+
+*****
+
+####  零崎不识  
+##### 2505#       发表于 2026-8-14 12:25
+
+<blockquote>qiyu1234 发表于 2026-8-14 10:59
+不好说，因为不清楚是不是后面的锁不会同时显示，也可能5年前流程能解B支援锁，之后还有一个A锁
+
+另外我觉 ...</blockquote>
+人家是洗翠索罗亚克hhhhh
+
+*****
+
+####  xwr  
+##### 2506#       发表于 2026-8-14 12:28
+
+ 本帖最后由 xwr 于 2026-8-14 13:10 编辑 
+
+染发是迫不得已，但很适合我！<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.stage1st.com/forum/202608/14/122334ibqznw555s5gwonw.jpg" referrerpolicy="no-referrer">
+
+<strong>1786649896433602.jpg</strong> (139.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 12:23 上传
+
+黑白双琴，乾坤的奏者
+
+<img src="https://img.stage1st.com/forum/202608/14/123622c3bn3q9hkh3t3ucc.jpg" referrerpolicy="no-referrer">
+
+<strong>1786649002409811.jpg</strong> (128.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 12:36 上传
+
+想娶老娘怎么也得打赢我才行
+
+<img src="https://img.stage1st.com/forum/202608/14/124017b87w7q300jijr7o9.jpg" referrerpolicy="no-referrer">
+
+<strong>1786649775422515.jpg</strong> (133.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 12:40 上传
+
+君，君子兰？
+
+<img src="https://img.stage1st.com/forum/202608/14/124237yhd5dz5kjddr45lz.jpg" referrerpolicy="no-referrer">
+
+<strong>1786651058347078.jpg</strong> (102.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 12:42 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/131008ikz26d8rukagogro.png" referrerpolicy="no-referrer">
+
+<strong>1786666628974888.png</strong> (1.12 MB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 13:10 上传
+
+*****
+
+####  蓮華  
+##### 2507#       发表于 2026-8-14 12:37
+
+<img src="https://img.stage1st.com/forum/202608/14/123731vr5ekqjxdkk0uqir.jpg" referrerpolicy="no-referrer">
+
+<strong>HPo1VoJaAAAmEGP.jpg</strong> (223.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 12:37 上传
+
+*****
+
+####  蓮華  
+##### 2508#       发表于 2026-8-14 12:39
+
+<img src="https://img.stage1st.com/forum/202608/14/123923ot4ou7ctcnlncuen.jpg" referrerpolicy="no-referrer">
+
+<strong>HPnsNATakAAakYp.jpg</strong> (166.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 12:39 上传
+
+*****
+
+####  otakun  
+##### 2509#       发表于 2026-8-14 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70074242&amp;ptid=2261859" target="_blank">蓮華 发表于 2026-8-14 12:37</a></blockquote>
+我虽听说为了空手状态也有战斗能力，士兵会去修炼拳击，但这修女太过分了<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xwr  
+##### 2510#       发表于 2026-8-14 12:51
+
+ 本帖最后由 xwr 于 2026-8-14 13:06 编辑 
+
+僵尸化主角团
+
+<img src="https://img.stage1st.com/forum/202608/14/124531j4qemmeow3kc7a4k.jpg" referrerpolicy="no-referrer">
+
+<strong>1786652297615287.jpg</strong> (661.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 12:45 上传
+
+宇宙飞船女娲号
+
+<img src="https://img.stage1st.com/forum/202608/14/124642h2xs21d5c2wqgk3w.jpg" referrerpolicy="no-referrer">
+
+<strong>1786652561519704.jpg</strong> (177.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 12:46 上传
+
+鲁？我姓yang！
+
+<img src="https://img.stage1st.com/forum/202608/14/124810jp4l0bqznq3il8zb.jpg" referrerpolicy="no-referrer">
+
+<strong>1786653314539623.jpg</strong> (138.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 12:48 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/125013tx7crfr1uyzcnyl7.jpg" referrerpolicy="no-referrer">
+
+<strong>1786653757491749.jpg</strong> (432.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 12:50 上传
+
+？
+
+<img src="https://img.stage1st.com/forum/202608/14/125616ebrssosvaaoepbsb.png" referrerpolicy="no-referrer">
+
+<strong>1786654436215564.png</strong> (1.97 MB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 12:56 上传
+
+香巴拉
+
+<img src="https://img.stage1st.com/forum/202608/14/125651ozouiiwww8j7uw6e.jpg" referrerpolicy="no-referrer">
+
+<strong>1786655717961450.jpg</strong> (93.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 12:56 上传
+
+女王余命十年
+
+<img src="https://img.stage1st.com/forum/202608/14/130449jybbtxixcx0nr6mi.jpg" referrerpolicy="no-referrer">
+
+<strong>1786661331412871.jpg</strong> (284.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 13:04 上传
+
+*****
+
+####  mai6696  
+##### 2511#       发表于 2026-8-14 12:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70074242&amp;ptid=2261859" target="_blank">蓮華 发表于 2026-8-14 12:37</a></blockquote>
+什么玩意儿？螺旋丸都来了。
+
+*****
+
+####  bsdlxy  
+##### 2512#       发表于 2026-8-14 13:00
+
+我觉得互动要好也得看主线的融入，比如青狮幼驯染~
+
+*****
+
+####  u2deack  
+##### 2513#       发表于 2026-8-14 13:00
+
+又是光枪又是搓波的，别大剑斗祭了无限制武道大会吧
+
+*****
+
+####  零崎不识  
+##### 2514#       发表于 2026-8-14 13:05
+
+玩不到万紫千红我要死了
+
+*****
+
+####  小李子大脸猫  
+##### 2515#       发表于 2026-8-14 13:07
+
+<img src="https://img.stage1st.com/forum/202608/14/130728y6uepw1tvpbvlxte.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-08-14-13-06-25-920_tv.danmaku.bili.jpg</strong> (730.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 13:07 上传
+
+      
+
+*****
+
+####  xwr  
+##### 2516#       发表于 2026-8-14 13:16
+
+我就说激光枪修女不可能一个人嘛，应该叫莎兰？
+
+<img src="https://img.stage1st.com/forum/202608/14/131610vxife8228fvmmouu.jpg" referrerpolicy="no-referrer">
+
+<strong>1786635241753589.jpg</strong> (128.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 13:16 上传
+
+*****
+
+####  bbluekid  
+##### 2517#       发表于 2026-8-14 13:21
+
+这腹泻一样的情报，看不过来了<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  flyingover  
+##### 2518#       发表于 2026-8-14 13:32
+
+还有别的衣服
+
+<img src="https://img.stage1st.com/forum/202608/14/133215lfs31yesoyb0042n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (131.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 13:32 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/133222t6mavalv662ajpli.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (145.15 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 13:32 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/133231e601g1wvot1wc76q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (131.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 13:32 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/133238c8znfff1fwvwww5f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (162.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 13:32 上传
+
+*****
+
+####  mai6696  
+##### 2519#       发表于 2026-8-14 13:34
+
+倒着的问号叹号，还真有语言在用啊，还是放在句首。
+
+以及柯南的肤色还是觉得很怪。黑里泛着白的感觉。
+
+*****
+
+####  kalavinka  
+##### 2520#       发表于 2026-8-14 13:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70074398&amp;ptid=2261859" target="_blank">小李子大脸猫 发表于 2026-8-14 13:07</a></blockquote>
+这个吧，虽然不知道主机30是何意
+
+<img src="https://img.stage1st.com/forum/202608/14/133818oyo459co6t944i4c.jpg" referrerpolicy="no-referrer">
+
+<strong>ffa80024ab18972bb5bd37cea0cd7b899f510a68.jpg</strong> (55.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 13:38 上传
+
+
+*****
+
+####  neokirin  
+##### 2521#       发表于 2026-8-14 13:40
+
+西班牙语不就这样的
+
+*****
+
+####  bad_alloc  
+##### 2522#       发表于 2026-8-14 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70074531&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-8-14 13:34</a>
+
+倒着的问号叹号，还真有语言在用啊，还是放在句首。
+
+以及柯南的肤色还是觉得很怪。黑里泛着白的感觉。</blockquote>
+这两个符号其实西班牙语就在用了，也不算小语种
+
+*****
+
+####  bad_alloc  
+##### 2523#       发表于 2026-8-14 13:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70074442&amp;ptid=2261859" target="_blank">xwr 发表于 2026-8-14 13:16</a>
+
+我就说激光枪修女不可能一个人嘛，应该叫莎兰？</blockquote>
+应该说salamander这个不是专属武器，只要拿到人人都可以用吧
+
+老太婆那把好像是专武
+
+*****
+
+####  karastar  
+##### 2524#       发表于 2026-8-14 13:43
+
+这代这么多东方元素是什么世界观啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  微尘众  
+##### 2525#       发表于 2026-8-14 13:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70074556&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-8-14 13:39</a>
+这个吧，虽然不知道主机30是何意</blockquote>
+可能主机是4k30，掌机1080p60？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  小李子大脸猫  
+##### 2526#       发表于 2026-8-14 13:45
+
+<blockquote>kalavinka 发表于 2026-8-14 13:39
+这个吧，虽然不知道主机30是何意</blockquote>
+说的是主机4k30帧，不过很多地方一些人的悲观情绪更像是游戏就是以30帧打底做出来的
+
+*****
+
+####  xwr  
+##### 2527#       发表于 2026-8-14 13:50
+
+ 本帖最后由 xwr 于 2026-8-14 13:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70074571&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-8-14 13:43</a>
+
+应该说salamander这个不是专属武器，只要拿到人人都可以用吧
+
+老太婆那把好像是专武 ...</blockquote>
+我的意思是，势力图上她和修女一样是白鸦的花嫁团，现在已知应该就她们两个人属于这个势力。
+
+*****
+
+####  mai6696  
+##### 2528#       发表于 2026-8-14 13:53
+
+所以到底是地底科技还是东方科技。
+
+*****
+
+####  karastar  
+##### 2529#       发表于 2026-8-14 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70074589&amp;ptid=2261859" target="_blank">小李子大脸猫 发表于 2026-8-14 13:45</a>
+
+说的是主机4k30帧，不过很多地方一些人的悲观情绪更像是游戏就是以30帧打底做出来的 ...</blockquote>
+主机没有提供60帧的选项吗
+
+*****
+
+####  xwr  
+##### 2530#       发表于 2026-8-14 14:05
+
+ 本帖最后由 xwr 于 2026-8-14 14:22 编辑 
+
+亡者大军源源不断，这该怎么办？红花：使用核武器迟滞敌方攻势！
+
+<img src="https://p.sda1.dev/34/46bb8768ee79e0691ed8c0c6dbdec503/1786638248191307.png" referrerpolicy="no-referrer">
+
+为什么摘不了面具，因为可能是机器人
+<img src="https://p.sda1.dev/34/1110fb4422b4fec42621532d835cc2a1/1786671181340961.png" referrerpolicy="no-referrer">
+
+芙朵拉大陆南部，绿意盎然
+<img src="https://p.sda1.dev/34/5bc1928db93495aa2405a8368c617b3f/1786668887675057.png" referrerpolicy="no-referrer">
+
+“我们应该停战并合作”, “闭嘴，你这弗栗多信徒”
+<img src="https://p.sda1.dev/34/45e0af6340b62552a8e6b248677f05e2/1786647247439068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星花  
+##### 2531#       发表于 2026-8-14 14:18
+
+没刷出图前我还当绿指的是辐射或泰伯伦。竟然只是字面意思。
+
+*****
+
+####  巴尔干炮  
+##### 2532#       发表于 2026-8-14 14:18
+
+蕾达→喜欢可爱的女孩子。
+
+*****
+
+####  milky658  
+##### 2533#       发表于 2026-8-14 14:29
+
+请地底人不要再破坏火纹剑与魔法的世界观了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星花  
+##### 2534#       发表于 2026-8-14 14:33
+
+ 本帖最后由 星花 于 2026-8-14 14:37 编辑 
+
+这只是 比较厉害的火球术罢了。
+
+———一技术退步太厉害了，当年学院的仿生人靠脸是无法识别的。
+
+*****
+
+####  1wq1  
+##### 2535#       发表于 2026-8-14 14:37
+
+IS当年在出觉醒前，就是火纹快gg的时候有想过要出外星火纹，三房世界官能持续下去的真有希望
+
+*****
+
+####  被击坠王  
+##### 2536#       发表于 2026-8-14 14:43
+
+ 本帖最后由 被击坠王 于 2026-8-14 14:53 编辑 
+
+感觉很多人都难以区分开东方风格，咪眼绿毛更像高丽王朝吧，跟红华呆一起的有像是蒙古国的
+
+*****
+
+####  57042711  
+##### 2537#       发表于 2026-8-14 14:45
+
+再多点角色就可以凑108人假装自己是幻想水浒传了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+各种要素都很齐全了…
+
+*****
+
+####  xwr  
+##### 2538#       发表于 2026-8-14 14:45
+
+捡到把激光枪？ 红花：昆仑曾经人手一把。
+<img src="https://p.sda1.dev/34/c77976d743a4c96e0ba13273920d26f5/-9lddQ9-dg2sK20T3cSsg-f2.jpg" referrerpolicy="no-referrer">
+
+虽然说是剑与魔法，但我们还是可以搞一些宇宙SF的!<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/0a218e1a7ecd820f488c956783802391/-9lddQ9-6yv8K2fT3cSl3-sg.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  风祭果凛  
+##### 2539#       发表于 2026-8-14 14:46
+
+【Eurogamer】
+
+被本作的规模与野心震撼，这不是《Engage》，不止一条路。这是一个迷宫般、层次丰富到你需要挂墙图、拉满线才能跟上的故事，让《风花雪月》的剧情相比之下都显得慵懒了。
+
+really nigga？那我可要来劲了（指对故事拉高期待然后到时候吹毛求疵
+
+*****
+
+####  mai6696  
+##### 2540#       发表于 2026-8-14 14:49
+
+不要再拉高我的期待值了，还有一个月呢，IS这么早解禁消息。
+
+*****
+
+####  406  
+##### 2541#       发表于 2026-8-14 14:52
+
+这绿意盎然的芙朵拉怎么相比三房篇少了一大块岛屿，是这群人在一场大剑斗祭怪力乱神到生造小岛还是把岛削没了
+
+*****
+
+####  57042711  
+##### 2542#       发表于 2026-8-14 15:05
+
+这次动静应该很大吧，打完苏谛斯都变小然后沉睡了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  孔方兄  
+##### 2543#       发表于 2026-8-14 15:16
+
+这应该是is最具野心的作品了
+
+*****
+
+####  巨馍蘸酱  
+##### 2544#       发表于 2026-8-14 15:27
+
+昆仑又是个啥东东啊
+
+*****
+
+####  Nez  
+##### 2545#       发表于 2026-8-14 15:35
+
+回头看，三房的炎帝不会真就是指那个炎帝吧，弟弟人是蚩尤？
+
+*****
+
+####  流缨  
+##### 2546#       发表于 2026-8-14 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70074531&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-8-14 13:34</a>
+
+倒着的问号叹号，还真有语言在用啊，还是放在句首。
+
+以及柯南的肤色还是觉得很怪。黑里泛着白的感觉。</blockquote>
+西语是这样的，用来提示这一句的语气，标点符号放在句尾的话念到最后可能表意完全错误了。
+
+我一直觉得HTML这类标签语言借鉴了西语的标点符号用法<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">被包裹的内容由标签决定意义
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ mai6696 + 1欢乐多
+
+查看全部评分
+
+*****
+
+####  u2deack  
+##### 2547#       发表于 2026-8-14 16:00
+
+我觉得如果结果都一样的话，我应该会玩完一条线再玩另一条，不然同步玩的话前期都是一样的平淡和基础关卡，到后期每条线估计都有很多内容和要调整的地方，想想体验可能就不是很好，还是分开玩会好一点
+
+*****
+
+####  mai6696  
+##### 2548#       发表于 2026-8-14 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70075424&amp;ptid=2261859" target="_blank">u2deack 发表于 2026-8-14 16:00</a>
+
+我觉得如果结果都一样的话，我应该会玩完一条线再玩另一条，不然同步玩的话前期都是一样的平淡和基础关卡， ...</blockquote>
+不救的四英杰，好像还会黑化为敌人。
+
+要是换steam或者PS，肯定有“击杀黑化柯南”之类的奖杯。
+
+多周目动力这不就来了。
+
+*****
+
+####  风使塞缇  
+##### 2549#       发表于 2026-8-14 16:07
+
+ 本帖最后由 风使塞缇 于 2026-8-14 16:33 编辑 
+
+这部这么多元素杂糅，最后哪怕打个AI机器人好像也不会特别意外
+
+关键是世界观设定官方想要怎么统一，我就看官方能不能把这些东西讲通理顺
+
+这可是关系到风花雪月和万缕千丝两代火纹的底层世界观设定和架构的问题
+
+风花雪月挖坑不填就算了，万缕千丝是最后一次把这些事理清楚的机会
+
+这直接关系到未来玩家对这两部火纹整体剧情架构的整体评价
+
+官方如果要放飞自我的话，那就别怪以后玩家要砸审判之锤了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+==================================================
+
+补充一下：
+
+这里我说的世界观统一不是指不同火纹作品的世界观统一
+
+而是风花雪月，万缕千丝世界观内部元素的统一
+
+科技与魔法，外星人和本地神，这些元素之间的冲突，所代表阵营的人物关系，你总要做处理吧
+
+我最怕的就是内部矛盾重重，无法解释的情况出现（或者干脆留白不解释）
+
+剧情写的哪怕是再离奇，也是要讲基本逻辑的
+
+*****
+
+####  kalavinka  
+##### 2550#       发表于 2026-8-14 16:11
+
+ 本帖最后由 kalavinka 于 2026-8-14 16:13 编辑 
+
+突然想起来，还有人记得聪哥和is的这个觉醒时候的访谈吗，外星人，现代科技之类的元素早就想做了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://www.nintendo.co.jp/3ds/interview/afej/vol1/index.html](https://www.nintendo.co.jp/3ds/interview/afej/vol1/index.html)
+
+<img src="https://img.stage1st.com/forum/202608/14/161116hufdhaholpldsfdl.png" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-08-14_161026_828.png</strong> (165.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 16:11 上传
+
+*****
+
+####  伽拉忒亚i  
+##### 2551#       发表于 2026-8-14 16:14
+
+便装柯南还挺好看
+
+*****
+
+####  ascomnet  
+##### 2552#       发表于 2026-8-14 16:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70075481&amp;ptid=2261859" target="_blank">风使塞缇 发表于 2026-8-14 16:07</a>
+
+这部这么多元素杂糅，最后哪怕打个AI机器人好像也不会特别意外
+
+关键是世界观设定官方想要怎么统一，我就看 ...</blockquote>
+放心，到时候一起锤
+
+*****
+
+####  richardkisser  
+##### 2553#       发表于 2026-8-14 16:18
+
+为什么要统一世界观，完全没必要<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  黑卷轴陶德传  
+##### 2554#       发表于 2026-8-14 16:19
+
+《第五元素》，主角是四人以外的第五位英雄，而且还是开局就死了靠高科技3D打印复活
+
+*****
+
+####  otakun  
+##### 2555#       发表于 2026-8-14 16:21
+
+都没几作游戏的“火焰纹章”是同一个东西，世界观自然没必要统一<img src="https://static.stage1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  零崎不识  
+##### 2556#       发表于 2026-8-14 17:48
+
+<blockquote>风使塞缇 发表于 2026-8-14 16:07
+这部这么多元素杂糅，最后哪怕打个AI机器人好像也不会特别意外
+
+关键是世界观设定官方想要怎么统一，我就看 ...</blockquote>
+这一部如果大卖，一定还会有下一部同世界观作品的
+
+*****
+
+####  hu794  
+##### 2557#       发表于 2026-8-14 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70054531&amp;ptid=2261859" target="_blank">hu794 发表于 2026-8-11 15:56</a>
+如果不救，四个级长就会变成敌对方吧。</blockquote>
+果然，确认了。
+
+*****
+
+####  ascomnet  
+##### 2558#       发表于 2026-8-14 18:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70076335&amp;ptid=2261859" target="_blank">hu794 发表于 2026-8-14 18:10</a>
+
+果然，确认了。</blockquote>
+看着感觉也不难打，估计就是心里攻击就是让你不好受
+
+*****
+
+####  bad_alloc  
+##### 2559#       发表于 2026-8-14 18:34
+
+那等超难出来必须玩一个终极孤独档了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  星花  
+##### 2560#       发表于 2026-8-14 18:48
+
+这个我熟，不就是塞尔达么?
+
+
+*****
+
+####  thez  
+##### 2561#       发表于 2026-8-14 18:53
+
+一般拼多多百亿补贴会啥时候上架？
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 2562#       发表于 2026-8-14 19:19
+
+8月13日古川社长解禁了万缕千丝的评测，这一天正好也是花奈酱的生日，古川社长何意味啊
+
+*****
+
+####  ascomnet  
+##### 2563#       发表于 2026-8-14 20:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70076543&amp;ptid=2261859" target="_blank">thez 发表于 2026-8-14 18:53</a>
+
+一般拼多多百亿补贴会啥时候上架？</blockquote>
+发售一周前吧
+
+*****
+
+####  nagitoY  
+##### 2564#       发表于 2026-8-14 20:45
+
+<img src="https://img.stage1st.com/forum/202608/14/204551t7tutstv3v0ds3b5.jpg" referrerpolicy="no-referrer">
+
+<strong>005.jpg</strong> (789.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 20:45 上传
+
+这么高的评价？
+
+*****
+
+####  nagitoY  
+##### 2565#       发表于 2026-8-14 20:48
+
+看评价是火纹集大成者，集百家之长了。能不能提前开香槟？
+
+*****
+
+####  Kuebiko  
+##### 2566#       发表于 2026-8-14 21:08
+
+前瞻很少有批评的吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ascomnet  
+##### 2567#       发表于 2026-8-14 22:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70077201&amp;ptid=2261859" target="_blank">Kuebiko 发表于 2026-8-14 21:08</a>
+
+前瞻很少有批评的吧</blockquote>
+是的，主要看游戏内容相关。还是得看最终评价
+
+*****
+
+####  蜂柚瓜  
+##### 2568#       发表于 2026-8-14 22:38
+
+现在媒体试玩的版本只有前五章，会不会烂尾、整体完成度还得打个问号
+
+*****
+
+####  Jabeck  
+##### 2569#       发表于 2026-8-14 22:42
+
+前五章每条线就能玩20小时也挺NB<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  巴尔干炮  
+##### 2570#       发表于 2026-8-14 22:53
+
+日媒那边有玩了100小时的，试玩敢给这么多内容体验的以前有吗？
+
+*****
+
+####  会长辅佐  
+##### 2571#       发表于 2026-8-14 22:56
+
+<img src="https://img.stage1st.com/forum/202608/14/225621x8d82nj63zcjc6sm.png" referrerpolicy="no-referrer">
+
+<strong>ZVW][)9@{979$E]T$XDJH.png</strong> (33.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 22:56 上传
+
+这句话是啥意思，本来是四个不同时间段大武斗祭的被女神杂糅在一起了？
+
+*****
+
+####  凉良  
+##### 2572#       发表于 2026-8-14 22:58
+
+话说现在国内火纹主要在哪里讨论 感觉不管S1 贴吧 NGA b站 xhs xhh的讨论都不够热闹和及时 好散啊
+
+我现在都去刷红迪火纹区了
+
+*****
+
+####  风使塞缇  
+##### 2573#       发表于 2026-8-14 23:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70077809&amp;ptid=2261859" target="_blank">会长辅佐 发表于 2026-8-14 22:56</a>
+
+这句话是啥意思，本来是四个不同时间段大武斗祭的被女神杂糅在一起了？</blockquote>
+四条线，各管各的，相互不干预。
+
+*****
+
+####  小学生把持不住  
+##### 2574#       发表于 2026-8-14 23:10
+
+ 本帖最后由 小学生把持不住 于 2026-8-14 23:24 编辑 
+
+自从傻逼媒体剧透满天飞后，连粉黑乐子人最多的火纹吧活跃度都下降了，都避之不及还想贴脸热心讨论呢
+
+*****
+
+####  JOJOROY  
+##### 2575#       发表于 2026-8-14 23:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70077786&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-8-14 22:53</a>
+
+日媒那边有玩了100小时的，试玩敢给这么多内容体验的以前有吗？</blockquote>
+媒体直面会那天已经拿到评测Key了，媒体玩的就是估计没有首日补丁的正式版
+
+*****
+
+####  ascomnet  
+##### 2576#       发表于 2026-8-15 00:03
+
+那媒体确实有足够的时间来评测游戏了，这缺点可藏不住啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bbluekid  
+##### 2577#       发表于 2026-8-15 00:05
+
+感觉 is 挺自信啊
+
+*****
+
+####  佛罗伦萨  
+##### 2578#       发表于 2026-8-15 00:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70077818&amp;ptid=2261859" target="_blank">凉良 发表于 2026-8-14 22:58</a>
+
+话说现在国内火纹主要在哪里讨论 感觉不管S1 贴吧 NGA b站 xhs xhh的讨论都不够热闹和及时 好散啊
+
+我现在都 ...</blockquote>
+火纹贴吧肯定是最多的，愿意总结和搬运的人最多。nga连黑30帧的人都找不到，还停留在黑尼哥阶段，拉完了
+
+*****
+
+####  凉良  
+##### 2579#       发表于 2026-8-15 00:36
+
+现在只求这么多人羁绊剧情正常点 我好怕复刻结合灌水羁绊
+
+*****
+
+####  youheng  
+##### 2580#       发表于 2026-8-15 00:56
+
+迷宫致敬回声……这不是什么好事吧，感觉还不如原版的迷宫简单粗暴
+
+*****
+
+####  陆久舟  
+##### 2581#       发表于 2026-8-15 01:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70077818&amp;ptid=2261859" target="_blank">凉良 发表于 2026-8-14 22:58</a>
+话说现在国内火纹主要在哪里讨论 感觉不管S1 贴吧 NGA b站 xhs xhh的讨论都不够热闹和及时 好散啊
+
+我现在都 ...</blockquote>
+去小黑盒吧，起码每个游戏都有专门讨论区，有点类似贴吧
+
+*****
+
+####  PigMourne  
+##### 2582#       发表于 2026-8-15 02:23
+
+梦中的创轨分线+300人围殴boss belike <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蓮華  
+##### 2583#       发表于 2026-8-15 09:37
+
+<img src="https://img.stage1st.com/forum/202608/15/093705wk8384vge2tj1kq4.png" referrerpolicy="no-referrer">
+
+<strong>9CCA78DD4C5F05EA75EA587321A414A4.png</strong> (65.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-15 09:37 上传
+
+这人身上的梗也太密集了
+
+*****
+
+####  ywll  
+##### 2584#       发表于 2026-8-15 09:41
+
+所以不同路线里能挖的人到底有没有冲突？如果我在A路线挖了某人，其他路线还能挖吗？
+
+*****
+
+####  66367749  
+##### 2585#       发表于 2026-8-15 09:50
+
+感觉5年前各管各的，挖多少是多少，5年之后则是全并一起，没挖的变活尸？
+
+*****
+
+####  Rainwedell  
+##### 2586#       发表于 2026-8-15 09:52
+
+ 本帖最后由 Rainwedell 于 2026-8-15 13:47 编辑 
+
+现在放出来一个 11min 左右的实机版本 大概就是一点序章的流程。剧透的那点也就是变活尸吧，感觉有意剪了很多东西，主要是玩法的展示
+[【中文字幕】火焰纹章万缕千丝11分钟试玩](https://www.bilibili.com/video/BV144gA6mERd?vd_source=d1a6bab32402a98e288ac2f0057b2a54)
+
+可以确定的是，没有跟风花雪月一样做真正的全语音，另外画面不知道拿什么模式录制的，大家参考看看就行，yt去找了下原视频，估计是媒体上传的时候草台了，已经转私有了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+另外一家媒体的视频只玩了凯线前面的，提到了觉得羁绊对话写的水
+
+*****
+
+####  back57992  
+##### 2587#       发表于 2026-8-15 09:54
+
+前两作也好玩 就是剧情一言难尽  希望剧情别坑了就行
+
+*****
+
+####  freedom12  
+##### 2588#       发表于 2026-8-15 10:06
+
+看了试玩 好像对战画面没有之前观感那么差
+
+虽然还是比不上结合，但也不错
+
+*****
+
+####  57042711  
+##### 2589#       发表于 2026-8-15 10:10
+
+肯定还是除了副官不让挖其它随意拉吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+感觉这次人员分配应该还蛮重要的…
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  thez  
+##### 2590#       发表于 2026-8-15 10:26
+
+如果不同路线可以挖同一个人，那五年后的同伴数值能力要以哪个为准呢？难道是直接重置数值？
+
+*****
+
+####  pf67  
+##### 2591#       发表于 2026-8-15 10:28
+
+玩家用什么砸审判之锤，是论坛嘴炮还是400万销量
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  巴尔干炮  
+##### 2592#       发表于 2026-8-15 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70079245&amp;ptid=2261859" target="_blank">Rainwedell 发表于 2026-8-15 09:52</a>
+
+现在放出来一个 11min 左右的实机版本 大概就是一点序章的流程。剧透的那点也就是变活尸吧，感觉有意剪了很 ...</blockquote>
+剪了很多，其他试玩有展示红花在飞船里通过按键操纵大炮阻止魔神军推进的镜头。
+
+*****
+
+####  蓮華  
+##### 2593#       发表于 2026-8-15 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70079391&amp;ptid=2261859" target="_blank">thez 发表于 2026-8-15 10:26</a>
+
+如果不同路线可以挖同一个人，那五年后的同伴数值能力要以哪个为准呢？难道是直接重置数值？ ...</blockquote>
+你培养的几个版本自己选一个呗，这样如何
+
+*****
+
+####  a3a4sc  
+##### 2594#       发表于 2026-8-15 10:59
+
+看了眼提前一个月放出的媒体评价，觉得评价的褒奖程度有点厉害
+感觉首发评分大概是IGN9/GS8的级别
+
+对我来说游戏号称多线剧情量，只要能做到玩家游玩多条剧情线都不会觉得闷和重复，尽可能地消费完游戏的剧情内容，这就是大进步和优点了
+风花雪月我二周目开第二条线的时候，游戏游玩内容重复太多，觉得有点沉闷没玩下去就封盘了。所以我只通了一条线的剧情。
+
+*****
+
+####  qiyu1234  
+##### 2595#       发表于 2026-8-15 11:02
+
+媒体说这作四主角进达古席翁之前也有一段不短的流程，这段流程都是独立流程的分线，并不是上来就大剑斗祭
+
+*****
+
+####  ascomnet  
+##### 2596#       发表于 2026-8-15 11:09
+
+结合是80，风花雪月是90，那新作就会在这个区间内。看看能到多少
+
+*****
+
+####  会长辅佐  
+##### 2597#       发表于 2026-8-15 11:15
+
+就这阵势感觉不比三房低啊
+
+*****
+
+####  mjzs07  
+##### 2598#       发表于 2026-8-15 11:20
+
+是不是很多人不知道这次没有光荣参与
+
+*****
+
+####  巴尔干炮  
+##### 2599#       发表于 2026-8-15 11:24
+
+这作在规模宏大的同时还有突破式的创新，对VGC和EUROGAMER这样的媒体来说是很加分的，SRPG作为一个相对比较冷门的类型会有大制作的本来就少，更不用说创新了。
+
+*****
+
+####  创始’’’天翔  
+##### 2600#       发表于 2026-8-15 11:35
+
+发售日想去香港冲线下，有没有推荐的店铺啊
+
+
+*****
+
+####  ascomnet  
+##### 2601#       发表于 2026-8-15 11:45
+
+火纹是必须创新，需要把战棋融合点别的让大众接受。接受不了那这ip就会退回之前几十万销量的水平。
+
+*****
+
+####  纪寞  
+##### 2602#       发表于 2026-8-15 12:30
+
+现在透露的剧情里红花5年后说她犯下了大错，而5年前也确实有红花和女娲的人(都是中文名)出场密谋的剧情，也是他们。而女娲的小绿老太介绍也说了她和每代女王那个国家的国王都很熟，而女王那个国家信奉死之女神，很可能女娲的人也和死之女神靠得近。
+
+5年前主角4人使用的力量都跟冥府有关，可能这4样都是原本红花他们密谋利用大剑斗祭召唤/复活死之女神的仪式，结果团队里出了魔神的内奸，最后仪式召唤了魔神。所以5年后红花他们也是来赎罪的。
+
+*****
+
+####  巴尔干炮  
+##### 2603#       发表于 2026-8-15 12:54
+
+我现在最在意的是鞑古扎本人，他现在是沉睡状态，法王代替他治国，这里的缘由是什么应该很重要。
+
+*****
+
+####  纪寞  
+##### 2604#       发表于 2026-8-15 13:11
+
+有人考究红花他们5年前所处的团体是 密特拉教团，这个教团现实原型是信奉太阳神的，对应这作就是神威法王。
+
+而大苏召唤主角灵魂也说了5年后会这样是因为主角，而现在主角也有人认为是神威法王转世。
+
+所以很可能5年前的大剑斗祭阴谋的领头人为神威法王，他暗中派 密特拉教团 和 女娲 的人准备仪式，想召唤/复活 死之女神。但最后团队里出了魔神内奸，最后召唤出了魔神，而神威法王自己就直接被魔神踹死了。
+
+所以女娲的人也为5年后神威法王的复活准备肉体，神威法王本来就是他们那边的。
+
+而介绍死之女神的壁画里右边那个绿色的女神其实很像大苏，很可能是大苏的分身。
+
+而对应上作三房，是蕾雅想复活苏谛斯，对应这作神威法王想复活死之女神。
+
+*****
+
+####  1wq1  
+##### 2605#       发表于 2026-8-15 13:14
+
+苏蒂斯：我tm是德古拉伯爵吗，tm天天有人想复活我，有病是吧
+
+*****
+
+####  flyingover  
+##### 2606#       发表于 2026-8-15 13:34
+
+<img src="https://img.stage1st.com/forum/202608/15/132742cl33kcyykksyl4lc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (73.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-15 13:27 上传
+
+<img src="https://img.stage1st.com/forum/202608/15/132759xcvm8m1cul1v1rkc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (83.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-15 13:27 上传
+
+回溯原来不是单纯5年前斗技大会吗
+
+<img src="https://img.stage1st.com/forum/202608/15/133026lsgzihl7lgwsss0s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-15 13:30 上传
+
+<img src="https://img.stage1st.com/forum/202608/15/133109tphdi2yzqpl0rqdh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-15 13:31 上传
+
+招募要求不同
+
+*****
+
+####  零崎不识  
+##### 2607#       发表于 2026-8-15 13:41
+
+<blockquote>ascomnet 发表于 2026-8-15 11:09
+结合是80，风花雪月是90，那新作就会在这个区间内。看看能到多少</blockquote>
+如果你说的是媒体评分，目前这个架势评分肯定会比三房高了，突破式创新的加分特别高
+
+*****
+
+####  ascomnet  
+##### 2608#       发表于 2026-8-15 13:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70080379&amp;ptid=2261859" target="_blank">零崎不识 发表于 2026-8-15 13:41</a>
+
+如果你说的是媒体评分，目前这个架势评分肯定会比三房高了，突破式创新的加分特别高 ...</blockquote>
+你要考虑后面把剧情没写好的可能性。现在玩法不会反映在分数上，剧情能调动人的心流才会拿高分。
+
+*****
+
+####  Nez  
+##### 2609#       发表于 2026-8-15 14:00
+
+其实火纹每作都有创新，只是is技能格子太少，创新了不继承<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这作反而不少元素都有前几代的影子
+
+*****
+
+####  小学生把持不住  
+##### 2610#       发表于 2026-8-15 14:06
+
+ 本帖最后由 小学生把持不住 于 2026-8-15 14:13 编辑 
+
+每次讨论预估分以及媒体打高分条件时拜托你们先回忆起那几个史一游
+
+*****
+
+####  星花  
+##### 2611#       发表于 2026-8-15 14:11
+
+媒体剧情的评价标准很离谱。
+
+*****
+
+####  hkguty  
+##### 2612#       发表于 2026-8-15 14:38
+
+虽然现在都是在吹切换角色也会有新体验不会腻，但是我觉得实际评分阶段还是会有切换角色后内容重复之类的扣分点
+
+*****
+
+####  mai6696  
+##### 2613#       发表于 2026-8-15 14:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70080330&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-8-15 13:34</a>
+
+回溯原来不是单纯5年前斗技大会吗</blockquote>
+懂了，雷达的仇人其实是救世主。
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为了让雷达参加大剑斗祭所以杀她全家。
+
+*****
+
+####  ascomnet  
+##### 2614#       发表于 2026-8-15 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70080560&amp;ptid=2261859" target="_blank">星花 发表于 2026-8-15 14:11</a>
+
+媒体剧情的评价标准很离谱。</blockquote>
+因为就没有标准，剧情这东西就是看你玩完后情绪是正向还是负的。
+
+*****
+
+####  星花  
+##### 2615#       发表于 2026-8-15 14:51
+
+<blockquote>ascomnet 发表于 2026-8-15 14:47
+因为就没有标准，剧情这东西就是看你玩完后情绪是正向还是负的。</blockquote>
+
+男人凭啥要喜欢女人 扣分。强盗凭啥不能原谅 扣分。现在的媒体就是这种玩意儿。
+
+*****
+
+####  ascomnet  
+##### 2616#       发表于 2026-8-15 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70080704&amp;ptid=2261859" target="_blank">hkguty 发表于 2026-8-15 14:38</a>
+
+虽然现在都是在吹切换角色也会有新体验不会腻，但是我觉得实际评分阶段还是会有切换角色后内容重复之类的扣 ...</blockquote>
+这个毕竟是风花雪月的吐槽点，我倒是觉得官方肯定是改了。
+
+但这套创新能不能支持主线这么长时间的玩法，而不感到厌倦。
+
+*****
+
+####  Jabeck  
+##### 2617#       发表于 2026-8-15 14:52
+
+奶的有点害怕，别一阵乱吹结果一看ig8
+
+*****
+
+####  ascomnet  
+##### 2618#       发表于 2026-8-15 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70080763&amp;ptid=2261859" target="_blank">星花 发表于 2026-8-15 14:51</a>
+
+男人凭啥要喜欢女人 扣分。强盗凭啥不能原谅 扣分。现在的媒体就是这种玩意儿。 ...</blockquote>
+那这是没办法的，说白了这游戏里没他们感兴趣的点，这游戏主要的卖点他们看不上，找一些借口扣分。
+
+*****
+
+####  bbluekid  
+##### 2619#       发表于 2026-8-15 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70080769&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-15 14:52</a>
+
+奶的有点害怕，别一阵乱吹结果一看ig8</blockquote>
+8分我就挺满意的了
+
+*****
+
+####  孔方兄  
+##### 2620#       发表于 2026-8-15 15:29
+
+你们别看现在媒体吹的厉害
+
+到时候直接来个7 8分
+
+*****
+
+####  风使塞缇  
+##### 2621#       发表于 2026-8-15 15:58
+
+以实际通关后的感受为准
+
+100小时以上打通关是什么感受现在没法判断
+
+*****
+
+####  xwr  
+##### 2622#       发表于 2026-8-15 16:45
+
+现在已知的出场势力如此之多，我觉得以后搞成风华雪月/万紫千红世界观都不奇怪，甚至我还看到有狂想说本作和苍炎，晓女有关系的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蓮華  
+##### 2623#       发表于 2026-8-15 17:27
+
+<img src="https://img.stage1st.com/forum/202608/15/172742jssz22ksgqvjgcoc.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4510.jpeg</strong> (422.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-15 17:27 上传
+
+*****
+
+####  零崎不识  
+##### 2624#       发表于 2026-8-15 17:58
+
+<blockquote>ascomnet 发表于 2026-8-15 13:49
+你要考虑后面把剧情没写好的可能性。现在玩法不会反映在分数上，剧情能调动人的心流才会拿高分。 ...</blockquote>
+不用，三房后面剧情也不行，但前30多小时漏不出破绽就行
+
+媒体根本不是按全流程来打分的，他们基本上只玩前半部分
+
+*****
+
+####  Gniyehz  
+##### 2625#       发表于 2026-8-15 19:02
+
+对欧美媒体来说，剧情压根不重要，看了几个欧美preview，他们对三房剧情的评价就是好，万紫千红还担心会因为剧情被拉低评分么
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  thecatnie  
+##### 2626#       发表于 2026-8-15 21:02
+
+凯伊身上有魔器吗？类似A少的斗篷，女王的右臂，蕾达的琴
+
+*****
+
+####  1wq1  
+##### 2627#       发表于 2026-8-15 21:07
+
+<blockquote>thecatnie 发表于 2026-8-15 21:02
+凯伊身上有魔器吗？类似A少的斗篷，女王的右臂，蕾达的琴</blockquote>
+他手上那个眼睛肯定有问题，况且他好像还有一条有问题的项链
+
+*****
+
+####  bad_alloc  
+##### 2628#       发表于 2026-8-15 21:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70082722&amp;ptid=2261859" target="_blank">1wq1 发表于 2026-8-15 21:07</a>
+他手上那个眼睛肯定有问题，况且他好像还有一条有问题的项链</blockquote>
+这几个主角的神器/大招都是扣血的，估计就是什么借用冥界力量氪命发动，然后用着用着把自己变僵尸了这种展开，主角穿越回去告诉他们不要瞎几把用，然后把大家从丧尸化的命运中拯救出来
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  山口達也  
+##### 2629#       发表于 2026-8-15 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70082808&amp;ptid=2261859" target="_blank">bad_alloc 发表于 2026-8-15 21:21</a>
+这几个主角的神器/大招都是扣血的，估计就是什么借用冥界力量氪命发动，然后用着用着把自己变僵尸了这种 ...</blockquote>
+这氪命系统让人想起某作战棋北欧女神...
+
+*****
+
+####  纯夏  
+##### 2630#       发表于 2026-8-15 22:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70082821&amp;ptid=2261859" target="_blank">山口達也 发表于 2026-8-15 21:24</a>
+
+这氪命系统让人想起某作战棋北欧女神...</blockquote>
+女神侧身像负罪者那是直接拿同伴的命换的超级BUFF 而且那部剧本写的太好了 不得不说VP的剧本都是顶上顶的 
+
+这火纹要有一半负罪者剧本的水平 我就补一套限定版<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PigMourne  
+##### 2631#       发表于 2026-8-16 01:36
+
+这次分数肯定拉满的，三房本身在评论员眼里就分高，这次还有一堆新系统 + 黑皮buff，只可能更高。限制销量的反而是ns2当前节点不如风花雪月时的ns1卖得多
+
+*****
+
+####  PigMourne  
+##### 2632#       发表于 2026-8-16 01:40
+
+这游戏东方角色的服设全是中亚和蒙古风格混搭，按理说名字应该是突厥语族吧？但名字又是拼音扎堆，而且没看到典中典的日式武士，完全看不懂这个宇宙的东方人到底是什么设定<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

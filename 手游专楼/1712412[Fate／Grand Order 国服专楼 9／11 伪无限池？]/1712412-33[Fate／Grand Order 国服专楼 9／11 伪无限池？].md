@@ -2724,3 +2724,85 @@ MuMu-20260812-190700-122.jpg
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  khxooo  
+##### 48132#       发表于 2026-8-14 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70065581&amp;ptid=1712412" target="_blank">qixinno1 发表于 2026-8-13 09:46</a>
+剧情池出第三个五星了</blockquote>
+欧，不怎么羡慕<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GALLADE  
+##### 48133#       发表于 2026-8-15 10:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧情池就金了一个红A，8宝了
+
+飞嫂和水鹤都有点想要但是不五宝不太能上场，而限4满宝的难度摆在那只能怂了
+
+*****
+
+####  Kon-El  
+##### 48134#       发表于 2026-8-15 10:33
+
+剧情池出了个尻枪<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PKR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  霄度天  
+##### 48135#       发表于 2026-8-15 14:16
+
+360+120 2宝水提拿下
+
+*****
+
+####  苍蓝之枪  
+##### 48136#       发表于 2026-8-15 15:00
+
+剧情池到现在才出术元帅，4星出的是常驻还不是new，这个活动期望还是能出一些欧证
+
+*****
+
+####  苍蓝之枪  
+##### 48137#       发表于 2026-8-15 17:44
+
+等一下，这泳装活动莫非是要商店礼装平铺的?我直接合掉了
+
+*****
+
+####  khxooo  
+##### 48138#       发表于 2026-8-15 18:02
+
+笑死，活动给的呼符出了一张旧的宝石翁，剧情池单抽又来一张旧的宝石翁，已经满破5张旧宝石翁了。不知道能不能达成9张满破<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  史艳文  
+##### 48139#       发表于 2026-8-15 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70081627&amp;ptid=1712412" target="_blank">khxooo 发表于 2026-8-15 18:02</a>
+
+笑死，活动给的呼符出了一张旧的宝石翁，剧情池单抽又来一张旧的宝石翁，已经满破5张旧宝石翁了。不知道能 ...</blockquote>
+是不是你开服时候抽得多，我是去年年底回坑才齐了第一张满破宝石翁，泳装才满破了第一张2030，但是有个朋友开服早期满满氪的，第一年就好几张满破的宝石翁+黑杯+2030
+
+*****
+
+####  khxooo  
+##### 48140#       发表于 2026-8-15 18:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70081713&amp;ptid=1712412" target="_blank">史艳文 发表于 2026-8-15 18:20</a>
+是不是你开服时候抽得多，我是去年年底回坑才齐了第一张满破宝石翁，泳装才满破了第一张2030，但是有个朋 ...</blockquote>
+不，我开服的时候很非，而且没怎么氪金。也就这两三年有点闲钱，开始氪点金，才开始欧点。
+
+*****
+
+####  khxooo  
+##### 48141#       发表于 2026-8-16 00:44
+
+靠，90++掉了彩箱，以为稳了，谁知道是伤害礼装<img src="https://static.stage1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+

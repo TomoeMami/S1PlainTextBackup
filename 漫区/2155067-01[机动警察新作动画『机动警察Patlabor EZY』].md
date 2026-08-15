@@ -2740,3 +2740,30 @@ Y隐喻
 
 2026-8-14 09:46 上传
 
+
+*****
+
+####  Atamaitai  
+##### 239#       发表于 2026-8-15 07:11
+
+第五集结尾处橱窗视角的假人好像哈曼啊<img src="https://static.stage1st.com/image/smiley/carton2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2602BRT18C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  aptx8285144  
+##### 240#       发表于 2026-8-15 22:07
+
+笑死，神人呀，老资历自己带一发实弹走
+
+
+*****
+
+####  nice女武神  
+##### 241#       发表于 2026-8-15 23:27
+
+<blockquote>aptx8285144 发表于 2026-8-15 22:07
+笑死，神人呀，老资历自己带一发实弹走</blockquote>
+那课长钓到的是哪来的
+

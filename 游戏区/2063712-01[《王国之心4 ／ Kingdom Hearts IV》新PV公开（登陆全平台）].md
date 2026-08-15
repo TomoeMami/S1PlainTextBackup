@@ -1985,3 +1985,165 @@ Join us for a journey through light and darkness as we commemorate 25 years of K
 
 <img src="https://p.sda1.dev/34/baa57f0179496ca839142027b4d96f78/1000172190.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 172#         楼主| 发表于 2026-8-15 00:50
+
+<img src="https://p.sda1.dev/34/d6722f5a78ddaba77ed2803bd3f7775d/1000172241.jpg" referrerpolicy="no-referrer">
+
+[https://thewaltdisneycompany.com/news/games-next-chapter/](https://thewaltdisneycompany.com/news/games-next-chapter/)
+[https://weibo.com/1964539827/5331926476655522](https://weibo.com/1964539827/5331926476655522)
+
+我细想了一下早上这个新闻有点不简单
+
+KH原本是SQ和Disney Interactive合作项目。回到最开始电梯神话，迪士尼的逻辑也是授权给SQ做个游戏。变成原创世界观也是个特例，终究是迪士尼授权给SQ/SE做。直到KH3，迪士尼方面的认知也是licensed title。
+
+Disney Interactive后面经历过多次改组，游戏部门也经历了统合。但直到去年为止都属于Consumer Products分类，和周边、游乐园是一个大类。但今年直升到Disney Entertainment，也就是和电影电视剧平级。
+
+这张配图里KH的地位提升了不止一点
+
+之前给人的感觉是
+
+KINGDOM HEARTS
+
+→ © Disney
+
+→ Developed / published by Square Enix
+
+现在是这样
+
+DISNEY &amp; PIXAR GAMES
+
+→ KINGDOM HEARTS
+
+甚至索拉直接代表迪士尼皮克斯游戏部门，也可以理解这次D23会直接给KH专门板块。从“衍生作品”转变为“主IP”，会享受更多来自迪士尼的宣发资源，联动资源……而且改编电影电视剧的可能性也比之前大得多，这次是个开始。
+
+*****
+
+####  Piano-Forest  
+##### 173#         楼主| 发表于 2026-8-15 10:57
+
+2027年末发售
+
+*****
+
+####  h122h  
+##### 174#       发表于 2026-8-15 11:06
+
+[https://www.youtube.com/watch?v=54eFEhlnIjg](https://www.youtube.com/watch?v=54eFEhlnIjg)
+
+<img src="https://img.stage1st.com/forum/202608/15/110609yz7sja0il02ez25p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (70.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-15 11:06 上传
+
+*****
+
+####  Piano-Forest  
+##### 175#         楼主| 发表于 2026-8-15 11:06
+
+ 本帖最后由 Piano-Forest 于 2026-8-15 11:07 编辑 
+
+[https://youtu.be/54eFEhlnIjg](https://youtu.be/54eFEhlnIjg)
+[https://weibo.com/7897210512/5332133048486103](https://weibo.com/7897210512/5332133048486103)
+
+Disney+ 制作的《王国之心》全新剧集项目公布，该剧集由迪士尼与野村哲也&amp;SQUARE ENIX合作打造，将讲述一个设定于《王国之心》宇宙中的全新故事。
+
+同时在D23上还公开了《王国之心4》的全新视频，新世界「Remember Me（Coco）」发表
+
+*****
+
+####  h122h  
+##### 176#       发表于 2026-8-15 11:07
+
+<img src="https://img.stage1st.com/forum/202608/15/110701dbt8r8lbklx7g7e2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (409.8 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-15 11:07 上传
+
+*****
+
+####  Piano-Forest  
+##### 177#         楼主| 发表于 2026-8-15 11:25
+
+《王国之心》动画剧集由野村哲也为首的SQEX团队，以及迪士尼团队共同创作，同世界观的完全新作
+
+Ready for a new adventure? 💛 An original Kingdom Hearts anime series inspired by the beloved video game franchise is coming soon to @DisneyChannel and @DisneyPlus
+<img src="https://p.sda1.dev/34/f36d61016b5bc6c0b4a3cfd9d14d3c52/1000172258.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 178#         楼主| 发表于 2026-8-15 12:16
+
+ 本帖最后由 Piano-Forest 于 2026-8-15 16:55 编辑 
+
+Steam页面
+[https://store.steampowered.com/app/3216600/](https://store.steampowered.com/app/3216600/)
+
+PSN页面
+[https://store.playstation.com/zh-hant-hk/concept/10005013/](https://store.playstation.com/zh-hant-hk/concept/10005013/)
+
+*****
+
+####  洛克萨斯  
+##### 179#       发表于 2026-8-15 13:19
+
+<img src="https://img.stage1st.com/forum/202608/15/131941j1d8ga1ftdkk1b1k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-15 13:19 上传
+
+劳模！
+
+*****
+
+####  Piano-Forest  
+##### 180#         楼主| 发表于 2026-8-15 16:56
+
+＼📢 『キングダム ハーツIV』2027年後期発売！／
+
+「#キングダムハーツ」シリーズ最新作 #KH4 の発売時期が2027年後期に決定いたしました！✨
+
+本日より各ストアにてウィッシュリスト登録を開始しています。
+
+ウィッシュリスト／ほしいものリストにご登録のうえ、続報をお待ちください🔖
+
+「キングダム ハーツ」のアニメーションシリーズの制作が決定しました。
+
+突然の発表に驚かれたと思います。どんな内容になるの？と気になる方もいらっしゃると思います。
+
+まだ諸々お話出来ませんが、自分含めシナリオチームと密に打ち合わせを続け、必要とあればアートチームも協力し、キャラクターデザインも今回用に複数体描き下ろしました。
+
+今は何も言えませんがヒントは1枚だけ発表されたキーアートです。是非思いを巡らせながら続報をお待ち下さい。
+
+野村哲也
+
+《王国之心》动画剧集确定制作了。突然公布这个消息，想必让大家都很吃惊。
+
+可能也有不少人正在好奇：“究竟会讲些什么内容？”
+
+目前还有很多事情暂时无法透露，不过包括我在内的剧本团队一直在进行密切的讨论与沟通；如果有需要，美术团队也会参与协助。此外，我们还专门为这次的作品重新绘制了多个角色的全新角色设计。
+
+现在还什么都不能说，不过，唯一能够给大家的提示，就是目前已经公开的那一张主视觉图。希望大家可以一边看着它展开各种想象，一边期待后续消息。
+
+——野村哲也
+
+*****
+
+####  KUMA  
+##### 181#       发表于 2026-8-15 20:31
+
+这样做是对的，出动画来圈饭，迪斯尼现在超级需要新鲜血液，真是居然没早点企划。老动画真人版就是败笔。。。
+

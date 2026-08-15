@@ -4114,3 +4114,550 @@ woc，四个五星，月癌白花，复仇黑花，狂阶麻雀，骑阶莉莉�
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  alucardcz  
+##### 21432#       发表于 2026-8-14 17:17
+
+<img src="https://img.stage1st.com/forum/202608/14/171638woej0er5351rji5l.png" referrerpolicy="no-referrer">
+
+<strong>1234.png</strong> (618.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 17:16 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/171640pf91cclxwa6o1g1u.png" referrerpolicy="no-referrer">
+
+<strong>12345.png</strong> (643.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 17:16 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">好消息 5星都出了 坏消息 没有4星  
+
+*****
+
+####  qixinno1  
+##### 21433#       发表于 2026-8-14 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70075936&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-14 17:17</a>
+
+好消息 5星都出了 坏消息 没有4星</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">欧 羡慕 狗萌新还是太狗了
+
+*****
+
+####  exiaexa  
+##### 21434#       发表于 2026-8-14 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70075936&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-14 17:17</a>
+
+好消息 5星都出了 坏消息 没有4星</blockquote>
+TMD你是真的狗
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 21435#       发表于 2026-8-14 17:23
+
+2个10连出了莉莉丝，小麻雀池1个10出了麻雀，然后向拼一下黑花，当然是失败了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+MuMu-20260814-171948-875.jpg
+(456.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 17:22 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/172251rkkb77kkk28lkdj0.jpg" referrerpolicy="no-referrer">
+
+MuMu-20260814-172052-860.jpg
+(456.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 17:22 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/172252qhq6zft9t9asflhs.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 21436#       发表于 2026-8-14 17:24
+
+ 本帖最后由 Jamaisvu 于 2026-8-14 17:29 编辑 
+
+搬一下新卡面：
+
+黑花：
+
+<img src="https://img.stage1st.com/forum/202608/14/172242aaty0q8t5bbbznbn.png" referrerpolicy="no-referrer">
+
+<strong>1786699138404.png</strong> (114.38 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-14 17:22 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/172242fv3n8z114lw1czw8.png" referrerpolicy="no-referrer">
+
+<strong>1786699141325.png</strong> (125.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-14 17:22 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/172242ollxts7zgllu7xtl.png" referrerpolicy="no-referrer">
+
+<strong>1786699144495.png</strong> (109.45 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-14 17:22 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/172243tbdbyz2bl1lu14uv.png" referrerpolicy="no-referrer">
+
+<strong>1786699147185.png</strong> (99.09 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-14 17:22 上传
+
+锁卡强者，克制月癌。
+
+“CIEL，你才是挑战者！”
+
+骑莉：
+
+<img src="https://img.stage1st.com/forum/202608/14/172348iless3orrwslpncq.png" referrerpolicy="no-referrer">
+
+<strong>1786699318768.png</strong> (121.27 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-14 17:23 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/172348gvyiyyb82niyy9fy.png" referrerpolicy="no-referrer">
+
+<strong>1786699321308.png</strong> (117.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-14 17:23 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/172348ax8w68l4ei3i1wua.png" referrerpolicy="no-referrer">
+
+<strong>1786699324197.png</strong> (128.38 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-14 17:23 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/172349cej2fgvs9jxxxp77.png" referrerpolicy="no-referrer">
+
+<strong>1786699326902.png</strong> (134.8 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-14 17:23 上传
+
+尤为美丽的自爆卡车。
+
+海町：
+
+<img src="https://img.stage1st.com/forum/202608/14/172844ka7a81m0me0m3pbc.png" referrerpolicy="no-referrer">
+
+<strong>1786699700697.png</strong> (160.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-14 17:28 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/172844w1r4laoqiqtrzgzs.png" referrerpolicy="no-referrer">
+
+<strong>1786699703735.png</strong> (172.91 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-14 17:28 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/172844qou75849eopc9uoo.png" referrerpolicy="no-referrer">
+
+<strong>1786699706640.png</strong> (154.58 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-14 17:28 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/172845l4z238m5o8by5fby.png" referrerpolicy="no-referrer">
+
+<strong>1786699709462.png</strong> (156.55 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-14 17:28 上传
+
+肉债父偿的女菩萨。
+
+*****
+
+####  angelooo  
+##### 21437#       发表于 2026-8-14 17:31
+
+黑花满破太美丽了，怪盗那张能让她挂在下面的直升机得是什么吨位的OTZ
+
+莉莉活这一破的构图是不是有点奇怪，感觉在这个单调的背景上显得很虚浮，初始和三破就没这感觉
+
+*****
+
+####  exiaexa  
+##### 21438#       发表于 2026-8-14 17:31
+
+虽然五星礼装没抽满，但是逆堕我泥雨终于歪满了，赚到.JPG
+<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 21439#       发表于 2026-8-14 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70075936&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-14 17:17</a>
+
+好消息 5星都出了 坏消息 没有4星</blockquote>
+欧羡慕了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 21440#       发表于 2026-8-14 17:39
+
+上头了
+
+追了6单<img src="https://static.stage1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 21441#       发表于 2026-8-14 17:40
+
+ 本帖最后由 Jamaisvu 于 2026-8-14 17:48 编辑 
+<blockquote>Jamaisvu 发表于 2026-8-14 17:24
+搬一下新卡面：
+
+黑花：
+</blockquote>
+
+黑花是单体红宝具，50自充，20群体攻击up，30[中立]特攻，30红卡up，二技能灭气成功可充能，三技能获得一回合学姐同款洗牌锁卡且对[非超巨大]有20特攻。
+
+宝具可以偷取没使用的御主技能来提升宝具威力（最大三层），此外有都市/水边地形的宝威提升，还有30爆伤。
+
+被动的单独行动有8爆伤，魔兽袭名有10红爆，开完宝具姑且算50爆伤，还是赶不上学姐的100爆伤啊...
+
+宝具伤害上限比学姐高不少，但不像人家那么灵活，能红宝红清一面，不过技能有辅助效果，而且星星能自给自足（学姐0出星），各有千秋吧。
+
+*****
+
+####  qixinno1  
+##### 21442#       发表于 2026-8-14 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70076122&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2026-8-14 17:39</a>
+
+上头了
+
+追了6单</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">富哥太有实力啦 
+
+*****
+
+####  angelooo  
+##### 21443#       发表于 2026-8-14 17:56
+
+草了，小野常规模组里没她爹，大概只有战斗时候会出来，这算不算卡面欺诈
+
+*****
+
+####  alucardcz  
+##### 21444#       发表于 2026-8-14 18:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">小野小町这卡面华丽程度 这才是5星吧 对比红阎魔 也配叫5星吗.jpg
+
+*****
+
+####  cckuku  
+##### 21445#       发表于 2026-8-14 18:00
+
+莉莉丝的卡面好敷衍……
+
+*****
+
+####  khxooo  
+##### 21446#       发表于 2026-8-14 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70076253&amp;ptid=2084912" target="_blank">angelooo 发表于 2026-8-14 17:56</a>
+
+草了，小野常规模组里没她爹，大概只有战斗时候会出来，这算不算卡面欺诈 ...</blockquote>
+也不算吧，毕竟战斗的时候的确有出来。
+
+*****
+
+####  yyzcacxg  
+##### 21447#       发表于 2026-8-14 18:03
+
+丢了660石莉莉丝才2宝，其它卡池不用想了...只能安慰自己抽满的4星小野小町看起来还不错。
+
+*****
+
+####  khxooo  
+##### 21448#       发表于 2026-8-14 18:05
+
+看了看小野的卡面，比本体好看多了。就是没想到她父亲是个大花臂，有点社会人啊。
+
+*****
+
+####  exiaexa  
+##### 21449#       发表于 2026-8-14 18:07
+
+ 本帖最后由 exiaexa 于 2026-8-14 18:40 编辑 
+
+小野的问题是3技能拉了
+
+1、2技能全队20充、20Q、20A、20宝威、10缓冲、1OC
+
+然后三技能让你去打暴击，顺带宝具回收也给砍废了，倒是色卡性能不错，为提妈队而生是吧
+
+哪怕是为了限制强度也过于神经病了，我寻思和隔壁的莉莉活也不是一个职阶啊
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 21450#       发表于 2026-8-14 18:09
+
+怒丢300石头，只出了一个莉莉丝，但是小野出了五个。
+
+*****
+
+####  angelooo  
+##### 21451#       发表于 2026-8-14 18:56
+
+<blockquote>khxooo 发表于 2026-8-14 18:03
+也不算吧，毕竟战斗的时候的确有出来。</blockquote>
+我的意思是就这类双人卡除了早期的骑双子弓双子之外待机状态的模组都是两个人的，这张小野她爹都画得这么用心了结果模组里居然不是常驻的……
+
+*****
+
+####  Jamaisvu  
+##### 21452#       发表于 2026-8-14 19:17
+
+【「Fate/Grand Order展 -星見の回廊-」开幕剧场-哔哩哔哩】 https://b23.tv/0iz7cLD
+
+比起男神异闻带和印度兄弟喧哗，星见回廊画展的PV才更像周年纪念动画吧。
+
+*****
+
+####  格林卡罗尔  
+##### 21453#       发表于 2026-8-14 19:42
+
+小野三个技能都有充能还是有实力的，应该能在一些一二面上班
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  森兰丸  
+##### 21454#       发表于 2026-8-14 20:04
+
+扔进去700多个石头才出了第一个莉莉丝....还想这次也黑了....之后又抽了30连直接出了2个
+
+最后战果800不到的石头3宝莉莉丝....还算能接受吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 21455#       发表于 2026-8-14 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70076920&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-8-14 20:04</a>
+
+扔进去700多个石头才出了第一个莉莉丝....还想这次也黑了....之后又抽了30连直接出了2个
+
+最后战果800不到 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">豹豹又豹 什么时候萌新也能和豹豹一样欧
+
+*****
+
+####  森兰丸  
+##### 21456#       发表于 2026-8-14 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70076925&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-14 20:04</a>
+
+豹豹又豹 什么时候萌新也能和豹豹一样欧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是非洲人一年抽到的新5星数量还不及萌新的一半啊!
+
+*****
+
+####  kyonkoism  
+##### 21457#       发表于 2026-8-14 20:41
+
+FGO星见的回廊展会PV
+[https://www.bilibili.com/video/BV1fpgP6uEoG](https://www.bilibili.com/video/BV1fpgP6uEoG)
+
+真正的11周年PV的感觉
+
+中间那张队长的图太震撼了<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 21458#       发表于 2026-8-14 21:04
+
+看了，星见回廊那个才是真11周年PV
+
+*****
+
+####  zore  
+##### 21459#       发表于 2026-8-14 21:08
+
+莉莉丝立绘有点拉
+
+*****
+
+####  DARKGRAY  
+##### 21460#       发表于 2026-8-14 23:59
+
+打今天的剧情突然想到，哈贝有个灵衣是变身前的样子，默认也不是变身后，也就是说有可能是青子型的变身宝具<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 21461#       发表于 2026-8-15 00:07
+
+好消息，终于又有一个会拉弓射箭的archer了；坏消息，箭是背后灵老爹射的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白金口袋  
+##### 21462#       发表于 2026-8-15 04:39
+
+每次一到泳装我就感觉后台真的调概率了，往年就算了，今年五星一多更这么觉得了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  日蚀之阳  
+##### 21463#       发表于 2026-8-15 07:27
+
+黑花这atk数值很难想象唯一神是不是填的时候睡着了<img src="https://static.stage1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+120级atk就比黑贞低350
+
+*****
+
+####  exiaexa  
+##### 21464#       发表于 2026-8-15 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70078897&amp;ptid=2084912" target="_blank">日蚀之阳 发表于 2026-8-15 07:27</a>
+
+黑花这atk数值很难想象唯一神是不是填的时候睡着了
+
+120级atk就比黑贞低350</blockquote>
+用技能组换的，自BUFF被限得死死的
+
+但是往好处来说，两年后开强化本大概能能瞬间升天
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 21465#       发表于 2026-8-15 11:29
+
+莉莉丝的ATK才低，虽然骑阶第二，但本体仅次于黑狗的，给高一点也不差啊<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 21466#       发表于 2026-8-15 13:56
+
+数了数，8月给你游课了45单<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  漆黑之花  
+##### 21467#       发表于 2026-8-15 15:56
+
+昨天抽了六十发没出黑花花，连男五星礼装也没出，今天凑了十呼符居然出了
+
+<img src="https://img.stage1st.com/forum/202608/15/155624r0m1iszsl0pgjei6.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2334.png</strong> (1.05 MB, 下载次数: 0)
+
+下载附件
+
+2026-8-15 15:56 上传
+
+*****
+
+####  alucardcz  
+##### 21468#       发表于 2026-8-15 16:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">什么 免费单抽居然能出货 萌新也有福利多了
+
+*****
+
+####  qixinno1  
+##### 21469#       发表于 2026-8-15 18:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">狗楼友们都太狗了 只有我周年跟吃了屎一样
+
+*****
+
+####  克苏鲁系青骑士  
+##### 21470#       发表于 2026-8-15 19:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">黑花水莉感觉是狗不到了 年初没嫖到冠呆上个月没嫖到阿斯 存点石头等复刻算了
+
+*****
+
+####  alucardcz  
+##### 21471#       发表于 2026-8-15 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70081631&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-8-15 18:05</a>
+
+狗楼友们都太狗了 只有我周年跟吃了屎一样</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">但是你有管呆！
+
+*****
+
+####  qixinno1  
+##### 21472#       发表于 2026-8-15 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70082031&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-15 19:25</a>
+
+但是你有管呆！</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">大保底一宝有毛用 不如狗楼友们各种出泳装
+
+*****
+
+####  khxooo  
+##### 21473#       发表于 2026-8-15 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70081331&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-15 16:47</a>
+
+什么 免费单抽居然能出货 萌新也有福利多了</blockquote>
+单抽到现在都没有出过货，真羡慕狗萌新<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

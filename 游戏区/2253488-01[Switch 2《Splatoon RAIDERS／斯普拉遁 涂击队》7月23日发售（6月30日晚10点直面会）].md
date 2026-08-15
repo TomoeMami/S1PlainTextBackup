@@ -8158,3 +8158,41 @@ https://github.com/Orangeeeeeeeeeeeeeeeeee/switch-controller-macro
 
 电脑蓝牙模拟pro手柄，适合没有宏手柄又想挂机刷武器的
 
+
+*****
+
+####  hl氏  
+##### 949#       发表于 2026-8-14 16:50
+
+<img src="https://img.stage1st.com/forum/202608/14/164955yviois0oo30qi0ba.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 16:49 上传
+
+<img src="https://img.stage1st.com/forum/202608/14/165034dul9mnli1plm596m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-14 16:50 上传
+
+不是新的副武器大招，无聊
+
+*****
+
+####  Aeroblast  
+##### 950#       发表于 2026-8-14 17:00
+
+从PVP公平性考虑不可能加新武器组合。3的DLC也全是换皮啊。
+
+*****
+
+####  razielzyc  
+##### 951#       发表于 2026-8-15 21:04
+
+主线通关，现在的体验能打8.5/10.优化是真心不错，那么多特效，满屏的敌人居然没任何掉帧情况，读取飞快，节奏也快，随时都能来上一盘。build成型后爽快度很好，另外射击手感真心不错，老任做fps，tps也有自己一套啊，不输iw的cod系。剧情也挺不错，轻松愉快，最终战颇有点战神+天元突破的味儿。演出真心棒。后面体验下刷子内容看看老任数值做得如何。
+
