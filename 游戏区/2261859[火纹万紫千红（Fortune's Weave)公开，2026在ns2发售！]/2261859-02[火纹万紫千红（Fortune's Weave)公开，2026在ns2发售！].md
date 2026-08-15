@@ -12241,3 +12241,14 @@ really nigga？那我可要来劲了（指对故事拉高期待然后到时候�
 
 这游戏东方角色的服设全是中亚和蒙古风格混搭，按理说名字应该是突厥语族吧？但名字又是拼音扎堆，而且没看到典中典的日式武士，完全看不懂这个宇宙的东方人到底是什么设定<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bwsusaga  
+##### 2633#       发表于 2026-8-16 06:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70084181&amp;ptid=2261859" target="_blank">PigMourne 发表于 2026-8-16 01:40</a>
+
+这游戏东方角色的服设全是中亚和蒙古风格混搭，按理说名字应该是突厥语族吧？但名字又是拼音扎堆，而且没看 ...</blockquote>
+职业里剑圣的新名称就是侍道，装扮也很武士。
+
