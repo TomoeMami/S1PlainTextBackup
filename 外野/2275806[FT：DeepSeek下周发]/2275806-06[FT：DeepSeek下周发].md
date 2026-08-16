@@ -15415,3 +15415,43 @@ v4pro下限低，上限也挺高<img src="https://static.stage1st.com/image/smil
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小明的直播间, 白天的民科插件在大杀特杀,  这模型真好玩
 
+
+*****
+
+####  tillnight  
+##### 8805#       发表于 2026-8-16 23:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后一天感觉是疯了，都在造假药了。
+
+*****
+
+####  Promeus  
+##### 8806#       发表于 2026-8-16 23:29
+
+草，发了个跑分全面完爆fable，真的假的啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 8807#       发表于 2026-8-16 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70088928&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-16 23:29</a>
+
+草，发了个跑分全面完爆fable，真的假的啊</blockquote>
+造假药呢，直播间根本没跑过分就搁那说我跑过的，信我<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小野賢章  
+##### 8808#       发表于 2026-8-16 23:32
+
+直播间跑的都是前端的，那些跑分基本都是后端的
+
+*****
+
+####  jinuzuktII  
+##### 8809#       发表于 2026-8-16 23:35
+
+明天opencode go的ds4f会涨价吗……
+

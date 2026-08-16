@@ -3542,7 +3542,7 @@
     "newtitle": "[机娘爱丽丝机甲／Alice Gear Aegis 8.5周年活动开启]",
     "lastedit": 1786634887,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1569854": {
@@ -11952,10 +11952,10 @@
     "update": false
   },
   "2250190": {
-    "totalreply": 735,
+    "totalreply": 736,
     "title": "[数码宝贝完全新作TV动画『DIGIMON BEATBREAK』2025年10月]",
     "newtitle": "[数码宝贝完全新作TV动画『DIGIMON BEATBREAK』2025年10月]",
-    "lastedit": 1786862766,
+    "lastedit": 1786894566,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 60308,
+    "totalreply": 60319,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1786894085,
+    "lastedit": 1786894685,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12546,10 +12546,10 @@
     "update": false
   },
   "2268175": {
-    "totalreply": 3844,
+    "totalreply": 3845,
     "title": "[2026年Q娃 ​​​​名侦探Precure]",
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
-    "lastedit": 1786892167,
+    "lastedit": 1786894205,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 8804,
+    "totalreply": 8809,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[DS v4 Pro GA &DS harness 已上线／公测｜大模型讨论专楼]",
-    "lastedit": 1786893726,
+    "lastedit": 1786894567,
     "category": "外野",
     "active": true,
     "update": false
@@ -13104,10 +13104,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 25783,
+    "totalreply": 25812,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1786893965,
+    "lastedit": 1786894567,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16871,7 +16871,7 @@
     "newtitle": "[网易海外大爆游漫威争锋今天搞出了种族歧视的大节奏被冲爆评论区中]",
     "lastedit": 1786635249,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2287635": {
@@ -17298,10 +17298,10 @@
     "update": false
   },
   "2287838": {
-    "totalreply": 81,
+    "totalreply": 82,
     "title": "[人如果能带着生前的记忆投胎转世，会有多大的优势？]",
     "newtitle": "[人如果能带着生前的记忆投胎转世，会有多大的优势？]",
-    "lastedit": 1786890725,
+    "lastedit": 1786894567,
     "category": "外野",
     "active": true,
     "update": false
@@ -17361,10 +17361,10 @@
     "update": false
   },
   "2287859": {
-    "totalreply": 163,
+    "totalreply": 164,
     "title": "[牛来的导演算是抽彩票抽中了财富自由了]",
     "newtitle": "[牛来的导演算是抽彩票抽中了财富自由了（情况好像不对）]",
-    "lastedit": 1786892767,
+    "lastedit": 1786894325,
     "category": "外野",
     "active": true,
     "update": false
@@ -17456,6 +17456,15 @@
     "newtitle": "[恶魔城：贝尔蒙特的诅咒公开，2026发售]",
     "lastedit": 1786892767,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2287867": {
+    "totalreply": 41,
+    "title": "[转转广告反向宣传评论区翻车：一万三回收5090]",
+    "newtitle": "[转转广告反向宣传评论区翻车：一万三回收5090]",
+    "lastedit": 1786894567,
+    "category": "外野",
     "active": true,
     "update": false
   }
