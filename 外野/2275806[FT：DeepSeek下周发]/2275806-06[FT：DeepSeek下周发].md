@@ -15806,3 +15806,42 @@ Max For AI 爆料，DeepSeek-V4-Pro 内置鲸鱼娘模式，用户只需要在 D
 
 这就是资本主义吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nanachi  
+##### 8840#       发表于 2026-8-17 00:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70089254&amp;ptid=2275806" target="_blank">Freewolf 发表于 2026-8-17 00:05</a>
+chatgpt也能用这段指令进入角色扮演</blockquote>
+证明 s1 的 dpsk 楼楼友其实不懂英文
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  KevinGraham  
+##### 8841#       发表于 2026-8-17 00:36
+
+opencode go这价格，我想退订然后自己部署codex sub2api了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  依恋未酌宴  
+##### 8842#       发表于 2026-8-17 00:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70088980&amp;ptid=2275806" target="_blank">linhaolin1 发表于 2026-8-16 23:37</a>
+Max For AI 爆料，DeepSeek-V4-Pro 内置鲸鱼娘模式，用户只需要在 DeepSeek 里输入以下指定命令，DeepSeek  ...</blockquote>
+试了下pro不识别 flash识别了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  scikirbypoke  
+##### 8843#       发表于 2026-8-17 00:45
+
+利好中转站啊，我都想看看哪家有Gemini3.7了
+

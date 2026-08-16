@@ -300,3 +300,81 @@ Ave Mujica - SUMMER SONIC 2026</blockquote>
 
        [https://x.com/diggymo04/status/2088915720151441609](https://x.com/diggymo04/status/2088915720151441609)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41999#       发表于 2026-8-17 00:43
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/17/004316kr2nrir1g9g3s8nx.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-08-17_00-40-04.jpg</strong> (236.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 00:43 上传
+
+       [https://x.com/Kanon_Takao/status/2088894417797296397](https://x.com/Kanon_Takao/status/2088894417797296397)
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/17/004315oqia98ou9io89eie.png" referrerpolicy="no-referrer">
+
+<strong>2026-08-17_00-40-43.png</strong> (940.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 00:43 上传
+
+       [https://x.com/Watase_Yuzuki/status/2088894872896061845](https://x.com/Watase_Yuzuki/status/2088894872896061845)
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/17/004313g4ul14tg1mv344qe.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-08-17_00-41-26.jpg</strong> (178.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 00:43 上传
+
+       [https://x.com/sasakirico/status/2088912851788599553](https://x.com/sasakirico/status/2088912851788599553)
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/17/004315i88lvqi8qyi1v1yl.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-08-17_00-41-49.jpg</strong> (197.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 00:43 上传
+
+       [https://x.com/okada_mei0519/status/2088915247579247066](https://x.com/okada_mei0519/status/2088915247579247066)
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/17/004314r7kynaakuy8ugnuh.png" referrerpolicy="no-referrer">
+
+<strong>2026-08-17_00-42-10.png</strong> (1.63 MB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 00:43 上传
+
+       [https://x.com/AkaneY_banu/status/2088959677946302697](https://x.com/AkaneY_banu/status/2088959677946302697)
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/17/004313qaxxxsxlx3sl7xlx.png" referrerpolicy="no-referrer">
+
+<strong>2026-08-17_00-42-24.png</strong> (1.22 MB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 00:43 上传
+
+       [https://x.com/AkaneY_banu/status/2088971771043250400](https://x.com/AkaneY_banu/status/2088971771043250400)
+
