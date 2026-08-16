@@ -15293,3 +15293,31 @@ flash那个加强插件有空再看看，关键是还有挺多代码之外的任
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  startraveller  
+##### 8792#       发表于 2026-8-16 21:53
+
+感觉这版V4PRO只能叫v4 pro beta（一起来找bug）
+
+—— 来自 HUAWEI HOP-AL10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  阿刚  
+##### 8793#       发表于 2026-8-16 21:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说起来中文思维链要怎么判断锚定到点子上没有
+
+*****
+
+####  ycjiang1337  
+##### 8794#       发表于 2026-8-16 21:58
+
+ 本帖最后由 ycjiang1337 于 2026-8-16 21:59 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70087102&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-16 17:11</a>
+
+如果回滚能解决问题找就回滚了，我不信ds官方不知道模型有瑕疵，不然不会在文档里强调极简模式。楼上也说 ...</blockquote>
+预训练决定模型上限和潜力，后训练决定模型能不能稳定发挥出来。既然能摇出超神表现，那就说明预训练不可能有问题，现在要么是后训练还做得远远不够，要么是当时的checkpoint丢了，根本不可能存在所谓的盖棺定论。
+

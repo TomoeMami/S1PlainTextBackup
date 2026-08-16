@@ -2849,3 +2849,11 @@ Y隐喻
 
 野外生存还挺浪漫的，队长们真不担心这两个人吗<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 248#       发表于 2026-8-16 21:55
+
+看了看舞台声优感想，第六话标题的恋爱部分指的是遇险者们<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
