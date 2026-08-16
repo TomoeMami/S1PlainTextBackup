@@ -14544,3 +14544,61 @@ nginx 本地3081端口代理3080，再用 cloudflared tunnel 连接到 nginx，�
 结论 ...</blockquote>
 可以看看V4发布时的论文，D老师注意力机制有三点，其中一个滑动窗口就是分配更多注意给最新的信息，另外两个是**加强超长上下文时的注意力的，理论上来说可以在一定程度上减少幻觉。
 
+
+*****
+
+####  tonyunreal  
+##### 8723#       发表于 2026-8-16 12:16
+
+dsh-anchored-standard模式
+
+今天的pro给我的是中文思考链，看起来呆呆的
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罗莉控  
+##### 8724#       发表于 2026-8-16 12:19
+
+让DSHj建立了nchored模式，跑了与极简模式下相同的任务（第三方评估一个codex的工作），让他自己评价：
+
+2. 本次模式表现出的能力提升（有证据）
+
+从“文档结论”推进到“重跑验证” 上次的评估主要基于 Codex 文档和源码阅读；本次实际重建了 0813（0/0）、Codex 699（0 Error / 20 Warning），并跑通 Codex 699 主机测试。现在能明确说：Codex 699 的 20 个 warning 属实、host tests 只在它自己定义的寄存器契约下 PASS。
+
+抓出了上一版自身产物的 3 个不一致 极简模式上一版报告声称“VID/PID 沿用 0813 开发值”，但 V1 代码实际是 0x0573/0x1573，不是 0813 的 0x1234/0x5678。本次在 V2 修正。 同时发现并修正：
+
+HID GET_REPORT 返回 {0,0}，与 V1 报告描述符 Report ID 1 不一致（R-2 方向）；
+
+EP0 SentStall 清标志后无条件 return，可能吞掉同时到达的新 SETUP（R-1 方向）。
+
+源码级证据链更完整 本次确认了 0813 的真实反馈闭环（SOF 测量 DMA 帧率 → IIR → slew），并确认 Codex 699 的 lx_feedback.c 退化为 nominal 常量反馈；确认了 Codex 硬件契约大面积 VERIFY-BOARD、VID/PID FFFF:2060 等问题。这些是上次报告中部分提及但未逐条坐实的内容。
+
+保持了判断的一致性，没有为改而改 本次没有推翻“冻结 0813、bounded rewrite、V2 只作研究候选”的正确结论，而是在上一版基础上做增量修正，符合“单变量、可归因”原则。
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8725#       发表于 2026-8-16 12:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70085675&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-16 12:12</a>
+可以看看V4发布时的论文，D老师注意力机制有三点，其中一个滑动窗口就是分配更多注意给最新的信息，另外 ...</blockquote>
+原来如此，怪不得我用d指导和5.6sol对同一目标进行grill，一开始d指导跟个脑瘫一样，后面随着grill轮次增加逐渐能达到5.6水平了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  罗莉控  
+##### 8726#       发表于 2026-8-16 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70085714&amp;ptid=2275806" target="_blank">罗莉控 发表于 2026-8-16 12:19</a>
+
+让DSHj建立了nchored模式，跑了与极简模式下相同的任务（第三方评估一个codex的工作），让他自己评价：
+
+2.  ...</blockquote>
+一句话总结
+
+本次 Anchored Standard (experimental) 模式相对极简模式：战略判断持平，执行深度、证据链完整度、对自身产物的纠错能力明显提升
+
