@@ -34,3 +34,17 @@ steamdeck啊
 
 不过我记得第一作貌似只能2k来着。
 
+
+*****
+
+####  WGTCorp  
+##### 150#       发表于 2026-8-16 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70087913&amp;ptid=2277878" target="_blank">爱撕衣魔刃 发表于 2026-8-16 20:08</a>
+看楼里总结，
+
+要享受完全版4k 120+反和谐，
+
+还得单独弄个学习版……？</blockquote>
+pc版第一作有4k分辨率的，但全程120帧其实是有点难度的。78X3d+5080在校园里基本能稳定160帧（屏幕是160Hz的），但进了迷宫就只有110帧出头了。
+
