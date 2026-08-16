@@ -14242,3 +14242,13 @@ pro这个状态确实验证我之前的担心，如果D老师坚持开源路线�
 
 最大的作用可能是把omp system prompt里自带那堆Roles和编码偏好给干掉了，现阶段的SOTA模型确实不太需要这类约束，让模型自由发挥更好，反正我确实不太喜欢omp这类太过臃肿的设计，所以干脆也不判断模型了，只有一个配置开关
 
+
+*****
+
+####  舞以  
+##### 8697#       发表于 2026-8-16 10:05
+
+我看b站有测试，v4pro的cot有俩甜点：一个是0工具环境，一个是严格的bash+str环境<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+估计后训练就可着这俩选择练的，练完发现过拟合了，不想继续拖了，dsh里面对齐出一个minimal mode拉倒！
+

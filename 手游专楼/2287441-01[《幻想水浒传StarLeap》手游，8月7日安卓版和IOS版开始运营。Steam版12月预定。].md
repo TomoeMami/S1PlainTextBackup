@@ -614,3 +614,16 @@ steam开服以后是互通吗还是独立的
 
 但凡刷到一个女SSR就玩下去了，刷了十几次一个女SSR都没，这游戏女SSR这么少么。
 
+
+*****
+
+####  ztkong  
+##### 46#       发表于 2026-8-16 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70083119&amp;ptid=2287441" target="_blank">warerest 发表于 2026-8-15 22:18</a>
+
+开局30抽刷到4彩，但是是4个男菜刀。。
+
+但凡刷到一个女SSR就玩下去了，刷了十几次一个女SSR都没，这游戏女S ...</blockquote>
+女角色SSR目前11/32，这个角度来说的确是少一些。这11个里面还有人妻和别人女友的哦。
+
