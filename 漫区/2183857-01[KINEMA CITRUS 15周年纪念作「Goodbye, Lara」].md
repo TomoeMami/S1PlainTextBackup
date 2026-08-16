@@ -15,3 +15,24 @@
 [https://x.com/i/status/2088890014428205561](https://x.com/i/status/2088890014428205561)
 <img src="https://p.sda1.dev/34/0d5212ea0cfa7541ecc026e816ea4586/1000172300.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chenyedgg  
+##### 310#       发表于 2026-8-17 00:04
+
+吃人鱼剑恐怖如斯
+
+第一次见这么主动的男主？，luka这平地摔算伏笔么，
+
+还有他都这么表白了拉拉你的kirakira呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  云梦泽岸  
+##### 311#       发表于 2026-8-17 00:11
+
+无数发糖镜头，甜得浑身舒畅，结尾再点名一下悬空的危机和脚底的危机，估计把光芒的事情解决一下就可以收官了。
+那结尾到底会不会再次化成泡沫呢？所谓的“再见菈菈”，到底是要和谁告别呢？
+

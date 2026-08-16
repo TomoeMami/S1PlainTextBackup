@@ -15625,3 +15625,49 @@ chatgpt也能用这段指令进入角色扮演
 
 2026-8-17 00:05 上传
 
+
+*****
+
+####  →熙←  
+##### 8822#       发表于 2026-8-17 00:08
+
+opencode go 会涨价吗, 明天看消息了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浪费喝咖啡  
+##### 8823#       发表于 2026-8-17 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70089285&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-17 00:08</a>
+opencode go 会涨价吗, 明天看消息了</blockquote>
+已经涨了
+
+
+*****
+
+####  →熙←  
+##### 8824#       发表于 2026-8-17 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70089308&amp;ptid=2275806" target="_blank">浪费喝咖啡 发表于 2026-8-17 00:11</a>
+
+已经涨了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer"> 梁子你pro最好能救回来
+
+*****
+
+####  绝地潜兵  
+##### 8825#       发表于 2026-8-17 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70088980&amp;ptid=2275806" target="_blank">linhaolin1 发表于 2026-8-16 23:37</a>
+Max For AI 爆料，DeepSeek-V4-Pro 内置鲸鱼娘模式，用户只需要在 DeepSeek 里输入以下指定命令，DeepSeek  ...</blockquote>
+马克一下学指令
+
+*****
+
+####  浪费喝咖啡  
+##### 8826#       发表于 2026-8-17 00:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70089322&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-17 00:13</a>
+梁子你pro最好能救回来</blockquote>
+以ds的工作效率，这几周不可能救好的
+
