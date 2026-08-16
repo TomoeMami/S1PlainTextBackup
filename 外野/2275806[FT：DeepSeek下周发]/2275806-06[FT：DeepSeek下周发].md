@@ -15889,3 +15889,29 @@ Max For AI 爆料，DeepSeek-V4-Pro 内置鲸鱼娘模式，用户只需要在 D
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KevinGraham  
+##### 8848#       发表于 2026-8-17 01:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70089659&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-17 00:52</a>
+话说gpt的订阅怎么用到Hermes里，自己搭转发？
+
+论坛助手,iPhone</blockquote>
+hermes支持codex登陆
+
+*****
+
+####  坛子漆黑  
+##### 8849#       发表于 2026-8-17 01:01
+
+之前做了个价格插件，今天把价格插件改成分时段的新价格，花了5块钱，真的用不起<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 8850#       发表于 2026-8-17 01:03
+
+天才程序员，陨落
+

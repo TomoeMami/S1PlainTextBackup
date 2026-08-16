@@ -12586,3 +12586,35 @@ Nintendo Today更新了CM，任天堂 重新定义 CM，基本上是重新剪的
 
 看来各位主角都对自己的能力都有深刻的认知，但是还是义无反顾地使用了
 
+
+*****
+
+####  零崎不识  
+##### 2665#       发表于 2026-8-17 00:56
+
+ 本帖最后由 零崎不识 于 2026-8-17 01:01 编辑 
+
+<img src="https://img.stage1st.com/forum/202608/17/005526tdlipnuuip3npidv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260817_005151_tv_danmaku_bili_UnitedBizDetailsActivity.jpg</strong> (299.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 00:55 上传
+
+<img src="https://img.stage1st.com/forum/202608/17/005530f9v2d1b5a72a9a71.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260817_004921_com_hihonor_photos_GalleryMain.jpg</strong> (306.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 00:55 上传
+
+提亚拉五年前扎辫子，五年后散发，确认了，五年后起码小孩角色有第二套立绘
+
+五年后起码能把主角练到60级，地图超大
+
+又细看了一下，迪特里希变短发，女王双辫子变多辫子，起码四大主角都会有五年后立绘了
+
+苍花：IS你们就这么压榨我是吧？
+
