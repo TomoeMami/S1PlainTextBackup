@@ -14150,3 +14150,21 @@ Training with a single fixed agent harness can cause a model to overfit to a par
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  LeoDT  
+##### 8689#       发表于 2026-8-16 09:30
+
+ 本帖最后由 LeoDT 于 2026-8-16 09:33 编辑 
+
+仔细看了下xiaobright的报告，做了个Pi版的，大概试了试flash/pro都有效，有兴趣试用的可以试试。
+
+pi-ds-anchor: [https://gist.github.com/LeoDT/185bdd88cf4f65b49fd9caafaef5f0f9](https://gist.github.com/LeoDT/185bdd88cf4f65b49fd9caafaef5f0f9)
+
+思路就是新session发一条不带任何tool且只有魔法system prompt的消息"who are you"，然后就可以正常用了，自己试了几次比单纯魔法稳定非常多。提供两个命令 `/new-ds-anchored-session` 新建锚定session，`/ds-anchor` 在新session中手动锚定。
+
+因为是只给D老师用的，所以扩展里判断了provider，不是D老师的话不生效，具体逻辑看代码就好，没怎么详细测试过有问题的话自己修吧。
+
+编辑：原理是直接拦截第一条消息在最后向模型发请求的时候改请求，所以跟其他扩展的兼容性应该还凑合，当然如果你有扩展注入custom message的话另说，我这里不处理。
+
