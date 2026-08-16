@@ -15270,3 +15270,26 @@ flash那个加强插件有空再看看，关键是还有挺多代码之外的任
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  余晖  
+##### 8790#       发表于 2026-8-16 21:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70087935&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-16 20:12</a>
+实测这个移植的pi版本anchored-standard有效，切换v4pro max强度，然后先发一个“测试，回复ok”，之后再干 ...</blockquote>
+懂了，训练的时候letme跟“混”这个特征相关紧密，pro学进去了
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  tonyunreal  
+##### 8791#       发表于 2026-8-16 21:48
+
+明天涨价，但是模型升级-小梁子
+因为模型问题，明天暂时不涨价-梁圣
+模型没人修，价格还要涨-梁畜
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
