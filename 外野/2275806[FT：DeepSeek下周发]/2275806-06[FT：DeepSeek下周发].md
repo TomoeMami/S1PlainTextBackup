@@ -14168,3 +14168,20 @@ pi-ds-anchor: [https://gist.github.com/LeoDT/185bdd88cf4f65b49fd9caafaef5f0f9](h
 
 编辑：原理是直接拦截第一条消息在最后向模型发请求的时候改请求，所以跟其他扩展的兼容性应该还凑合，当然如果你有扩展注入custom message的话另说，我这里不处理。
 
+
+*****
+
+####  ymm1030  
+##### 8690#       发表于 2026-8-16 09:37
+
+pro 这不明显炼炸了吗，搞不懂有什么不能承认的。也不影响 flash 封神，鲸小子现在多少有点魔怔了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  小野賢章  
+##### 8691#       发表于 2026-8-16 09:37
+
+nginx 本地3081端口代理3080，再用 cloudflared tunnel 连接到 nginx，可以手机访问了<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">;">复制代码
+
