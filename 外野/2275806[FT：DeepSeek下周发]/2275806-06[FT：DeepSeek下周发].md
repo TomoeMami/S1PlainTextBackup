@@ -14786,3 +14786,11 @@ WSL DSH PM 插件
 今天在win上复现了we need思维链，不得不说真的有很大区别，没有那么多左右脑互搏的思考了，效率比先前高了 ...</blockquote>
 we need和let's根本上是杀掉了but wait 看到这玩意才是真的鬼打墙启动
 
+
+*****
+
+####  qwased  
+##### 8742#       发表于 2026-8-16 15:44
+
+把DSH迁移到WSL了，报错少了好多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
