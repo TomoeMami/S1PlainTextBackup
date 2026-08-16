@@ -15321,3 +15321,40 @@ flash那个加强插件有空再看看，关键是还有挺多代码之外的任
 如果回滚能解决问题找就回滚了，我不信ds官方不知道模型有瑕疵，不然不会在文档里强调极简模式。楼上也说 ...</blockquote>
 预训练决定模型上限和潜力，后训练决定模型能不能稳定发挥出来。既然能摇出超神表现，那就说明预训练不可能有问题，现在要么是后训练还做得远远不够，要么是当时的checkpoint丢了，根本不可能存在所谓的盖棺定论。
 
+
+*****
+
+####  squallx  
+##### 8795#       发表于 2026-8-16 22:07
+
+[https://www.bilibili.com/video/BV1HzbX6tEvR](https://www.bilibili.com/video/BV1HzbX6tEvR) 节目效果来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hugosol  
+##### 8796#       发表于 2026-8-16 22:10
+
+老实说其实我觉得pro预览版已经够用，灰测那些一句话生成游戏的能力对我来说不是必要的能力，因为这些都是可以靠使用者或者harness的工程能力弥补的，或者说实际工作中根本不会这样用，实际能力还是要看benchmark
+
+现在如果有效上下文长度能像flash一样大幅扩展，目前的pro我也是收货的，就是涨价太难受了，不能像以前一样无脑浪费token，梁子还是要跌落神坛的
+
+*****
+
+####  真红之闪电  
+##### 8797#       发表于 2026-8-16 22:12
+
+所以现在最佳解决方案是？今天一直用极简没有用任何插件
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ycjiang1337  
+##### 8798#       发表于 2026-8-16 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70088472&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-16 22:10</a>
+
+老实说其实我觉得pro预览版已经够用，灰测那些一句话生成游戏的能力对我来说不是必要的能力，因为这些都是 ...</blockquote>
+其实最好的是Flash正式版，预览版家族的指令遵循能力很差
+

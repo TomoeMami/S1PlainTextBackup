@@ -12439,3 +12439,16 @@ x这个人总结了一些信息发出来
 
 越发感觉这次is提前量弄好了大型dlc剧情契合上的逻辑。让玩家在对本体相对满意的基础上，看到大型dlc公布信息后，又会更期待。。。
 
+
+*****
+
+####  bingo0716  
+##### 2653#       发表于 2026-8-16 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70085990&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-8-16 13:09</a>
+
+能不能把攻防阵加回来
+
+论坛助手,iPhone</blockquote>
+攻防阵在if里这么完美了，后续作品居然一作都不考虑回归，某些背包角色明明也可以给角色设计增加广度
+
