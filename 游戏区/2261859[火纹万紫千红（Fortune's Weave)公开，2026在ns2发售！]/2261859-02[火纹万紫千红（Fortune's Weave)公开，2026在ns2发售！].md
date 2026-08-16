@@ -12473,3 +12473,26 @@ x这个人总结了一些信息发出来
 那太麻烦了，我猜很多人都会想一直用手枪女</blockquote>
 我看系统开放各个主角的进度都不一样。is 很想做出差异化的，做了那么多角色肯定希望玩家都体验体验
 
+
+*****
+
+####  yt5wt2c  
+##### 2656#       发表于 2026-8-16 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70088479&amp;ptid=2261859" target="_blank">bingo0716 发表于 2026-8-16 22:11</a>
+
+攻防阵在if里这么完美了，后续作品居然一作都不考虑回归，某些背包角色明明也可以给角色设计增加广度 ...</blockquote>
+结合不就回归了，攻阵太强给你砍成连携了，方阵不就是戒指。
+
+*****
+
+####  mull132  
+##### 2657#       发表于 2026-8-16 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70088209&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-8-16 21:11</a>
+这回各种评测透了一堆，但唯独对于“不救人直接挑战未来”这条线都闭口不谈，看来是有什么重大剧透不能说。 ...</blockquote>
+因为媒体试玩的不包含这个
+只有白毛序章和4个人的前5章
+
+—— 来自 Xiaomi 22041216C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -15367,3 +15367,21 @@ flash那个加强插件有空再看看，关键是还有挺多代码之外的任
 <blockquote>Ah! Even with dynamic split disabled, our BuildPathSegs seq refactor causes 172 random failures. Previous b365 random 0. So output refactor is broken, contributing. Dynamic split additional 243.</blockquote>
 我发现轮次多了之后，wsl的极简模式下也是会有一点情绪的。现在这个会话跑了2.5亿token了
 
+
+*****
+
+####  cscbzcbz  
+##### 8800#       发表于 2026-8-16 22:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70088409&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-8-16 21:58</a>
+预训练决定模型上限和潜力，后训练决定模型能不能稳定发挥出来。既然能摇出超神表现，那就说明预训练不可 ...</blockquote>
+那就等梁子再掏出来新的大赢鲸吧，看得出来这次多少有点被自己定的节点搞得有点被动，ds还是适合按自己节奏来<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小野賢章  
+##### 8801#       发表于 2026-8-16 22:42
+
+风神甚至不会搭梯<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
