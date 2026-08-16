@@ -14820,3 +14820,16 @@ we need和let's根本上是杀掉了but wait 看到这玩意才是真的鬼打�
 
 希望官方赶紧更新吧…
 
+
+*****
+
+####  御坂MKII  
+##### 8746#       发表于 2026-8-16 16:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70085097&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-16 09:48</a>
+pro这个状态确实验证我之前的担心，如果D老师坚持开源路线，就不应该像O/A两家针对harness训模型，希望他 ...</blockquote>
+和这个也啥没关系，Kimi 和智谱也都提到了后训练单一环境的问题
+区别只是别人是解决完发布的，ds4 是发现之后一时修不好迫不得已先发了
+
+—— 来自 Xiaomi 24072PX77C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

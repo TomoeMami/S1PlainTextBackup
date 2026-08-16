@@ -93,3 +93,13 @@
 
 羊妹是福尔摩喵，狗哥是火遮眼里那位？他真的还需要变身吗OTZ
 
+
+*****
+
+####  duo_wolf  
+##### 87#       发表于 2026-8-16 16:20
+
+会不会有狗哥吃瘪被打到解除变身然后肉身打赢的剧情？<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
