@@ -14362,3 +14362,69 @@ Harness梁子不是说的很明白么，他认为是通向agi必经之路才专�
 
 让 Pi 直接翻译了 anchored-standard 这个插件，现在看起来有效果，用得opencode go 的 v4pro
 
+
+*****
+
+####  crow_wine  
+##### 8708#       发表于 2026-8-16 11:18
+
+让它自己给极简模式增加一个compact了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冤枉呐  
+##### 8709#       发表于 2026-8-16 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70084508&amp;ptid=2275806" target="_blank">lly778 发表于 2026-8-16 03:16</a>
+风神出了pro的插件了</blockquote>
+感谢
+请教佬，风神跟anchored-standard冲突不？
+我意思是装了岂不是整两个了？重复了以后会不会有啥毛病
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  kylezy123  
+##### 8710#       发表于 2026-8-16 11:19
+
+<img src="https://img.stage1st.com/forum/202608/16/111725mztatmazsthxxttz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (77.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-16 11:17 上传
+
+ 请问这种情况该怎么办 第一轮不给工具 后面上了工具还是会断开
+
+
+*****
+
+####  罗莉控  
+##### 8711#       发表于 2026-8-16 11:20
+
+让DSH读了一遍本贴，他正在改进
+
+*****
+
+####  hugosol  
+##### 8712#       发表于 2026-8-16 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70085347&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-16 10:47</a>
+
+Harness梁子不是说的很明白么，他认为是通向agi必经之路才专门去搞的，而且从这个状态来看，大概率还有为 ...</blockquote>
+4天前你跟我谈AGI我觉得梁子的眼光应该不会有错
+
+现在我只觉得DeepSeek的旗舰版模型和别家比还是有点差距<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小野賢章  
+##### 8713#       发表于 2026-8-16 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70085455&amp;ptid=2275806" target="_blank">kylezy123 发表于 2026-8-16 11:19</a>
+
+请问这种情况该怎么办 第一轮不给工具 后面上了工具还是会断开</blockquote>
+我也遇到过，不知道这是dsh的bug还是模型的bug，当时我换了好几个模型（k3/opus/glm），只要出现一次，后面就一直调用失败，我怀疑是dsh的bug，估计和字符串转义有关系，或者是不是导致前端注入了
+
