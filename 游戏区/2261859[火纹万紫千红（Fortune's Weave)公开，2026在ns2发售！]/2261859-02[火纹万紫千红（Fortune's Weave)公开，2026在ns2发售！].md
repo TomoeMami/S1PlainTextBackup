@@ -12271,3 +12271,25 @@ really nigga？那我可要来劲了（指对故事拉高期待然后到时候�
 这还突破式的创新啊，这么多觉醒if回声三房甚至heroes的影子</blockquote>
 做好了就是，做不好你懂得<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  57042711  
+##### 2636#       发表于 2026-8-16 12:02
+
+真突破得是贝里克物语那种挨打了就不能反击那种程度的改动才能算吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Jabeck  
+##### 2637#       发表于 2026-8-16 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70085617&amp;ptid=2261859" target="_blank">57042711 发表于 2026-8-16 12:02</a>
+
+真突破得是贝里克物语那种挨打了就不能反击那种程度的改动才能算吧
+
+—— 来自 HUAWEI FIN-AL60a, Android  ...</blockquote>
+结合里被克制武器打了就不能反击<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
