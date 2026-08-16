@@ -14268,3 +14268,31 @@ pro这个状态确实验证我之前的担心，如果D老师坚持开源路线�
 
 反过来说真相更可能是训练出来这半吊子的水准所以梁子要等DeepSeek harness一起发，还强行加上个没什么卵用的极简模式给0813挽尊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  野蛮人之夜  
+##### 8699#       发表于 2026-8-16 10:24
+
+感觉这一版可能还是有点问题。我在dsh里开V4 Pro Max搓个记忆系统，中间它问我：
+ <blockquote>开工前两个小决定
+
+A. 插件放哪？ 我建议先在新 clone 里以 packages/memoryforge/ 形式开发：source-launch 直接解析，迭代最快。等跑稳了，再按 dsh 的 dsh plugin --profile 链路抽成 out-of-tree 插件包（这才是最终形态，但没必要现在同时趟打包这条新河）。——没异议我就这么干。
+
+B. 阶段 0 的补丁要不要先开分支提交？ 建议在 new clone 里开个 memoryforge-patches 分支，把当前 7 个文件（6 改 + 1 新包）提交掉，作为干净基线。老 dsh 的旧 checkout 一个字都不动。你点头我就提交；不想提交就继续在脏树上开发，也行。
+
+你回 A/B，我就开始写阶段 1 的代码。</blockquote>
+我因为昨晚睡太晚导致今天早上神智不太清醒，差点回“A/B”……
+
+后来我就在网页端当冷笑话讲给快捷模式和专家模式听，结果它们全都理解错误，把A和B当成了两个选项而不是两个问题。然后我又分别试了下网页版的grok和gpt，只有gpt正确理解了这个段子
+
+*****
+
+####  hugosol  
+##### 8700#       发表于 2026-8-16 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70085245&amp;ptid=2275806" target="_blank">野蛮人之夜 发表于 2026-8-16 10:24</a>
+
+感觉这一版可能还是有点问题。我在dsh里开V4 Pro Max搓个记忆系统，中间它问我：</blockquote>
+这种不就是 走路洗车 和 你爸妈婚礼没请你 一类的脑筋急转弯嘛，以大模型的智商很难理解这类问题啦<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
