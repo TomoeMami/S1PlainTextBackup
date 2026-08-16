@@ -15845,3 +15845,47 @@ Max For AI 爆料，DeepSeek-V4-Pro 内置鲸鱼娘模式，用户只需要在 D
 
 利好中转站啊，我都想看看哪家有Gemini3.7了
 
+
+*****
+
+####  城北无尘  
+##### 8844#       发表于 2026-8-17 00:46
+
+ 本帖最后由 城北无尘 于 2026-8-17 00:47 编辑 
+<blockquote>DeepSeek V4 Pro (Off-Peak)        $0.66        $1.98        $0.022        -        $15
+
+DeepSeek V4 Pro (Peak)        $1.32        $3.96        $0.044        -        $15
+
+DeepSeek V4 Flash (Off-Peak)        $0.22        $0.66        $0.007        -        $15
+
+DeepSeek V4 Flash (Peak)        $0.44        $1.32        $0.014        -        $15</blockquote>
+5块钱买15美刀勉强还行，但是一想到曾经的flash是5块钱买60美刀，就完全受不了了<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+再见了，最美好的7月31日 - 8月16日 23:59！😭
+
+*****
+
+####  小野賢章  
+##### 8845#       发表于 2026-8-17 00:48
+
+用opencode go在跑一个任务，思考了25分钟了，结果服务挂了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">浪费我钱
+
+*****
+
+####  L-JoeW  
+##### 8846#       发表于 2026-8-17 00:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70088980&amp;ptid=2275806" target="_blank">linhaolin1 发表于 2026-8-16 23:37</a>
+Max For AI 爆料，DeepSeek-V4-Pro 内置鲸鱼娘模式，用户只需要在 DeepSeek 里输入以下指定命令，DeepSeek  ...</blockquote>
+什么鬼，第一行不就是人格加载吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">中英文也是逐条对应的吗，后面那些对话也是TSUNDERE那条的表现效果吧
+
+
+*****
+
+####  goranger  
+##### 8847#       发表于 2026-8-17 00:52
+
+话说gpt的订阅怎么用到Hermes里，自己搭转发？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

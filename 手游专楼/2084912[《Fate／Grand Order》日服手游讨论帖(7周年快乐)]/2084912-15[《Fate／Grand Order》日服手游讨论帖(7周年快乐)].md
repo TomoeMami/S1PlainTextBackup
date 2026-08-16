@@ -4679,3 +4679,13 @@ FGO星见的回廊展会PV
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  都谷捻柏  
+##### 21475#       发表于 2026-8-17 00:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">莉莉丝居然还有张专门的cg，已经赢太多。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
