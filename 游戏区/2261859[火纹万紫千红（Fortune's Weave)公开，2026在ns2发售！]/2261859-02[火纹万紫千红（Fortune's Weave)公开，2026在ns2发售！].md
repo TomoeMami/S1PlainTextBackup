@@ -12496,3 +12496,42 @@ x这个人总结了一些信息发出来
 
 —— 来自 Xiaomi 22041216C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  bbluekid  
+##### 2658#       发表于 2026-8-16 22:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70088615&amp;ptid=2261859" target="_blank">mull132 发表于 2026-8-16 22:36</a>
+因为媒体试玩的不包含这个
+只有白毛序章和4个人的前5章</blockquote>
+我看到有个说直接去打两刀秒了
+
+*****
+
+####  巴尔干炮  
+##### 2659#       发表于 2026-8-16 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70088615&amp;ptid=2261859" target="_blank">mull132 发表于 2026-8-16 22:36</a>
+
+因为媒体试玩的不包含这个
+
+只有白毛序章和4个人的前5章</blockquote>
+<img src="https://www.famitsu.com/article/images/202608/83992/825571" id="aimg_oLHC8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+有的，fami通的试玩报告里说了，但没有去尝试。
+
+*****
+
+####  巴尔干炮  
+##### 2660#       发表于 2026-8-16 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70088615&amp;ptid=2261859" target="_blank">mull132 发表于 2026-8-16 22:36</a>
+
+因为媒体试玩的不包含这个
+
+只有白毛序章和4个人的前5章</blockquote>
+<img src="https://www.famitsu.com/article/images/202608/83992/825571" id="aimg_dGVR3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+有的，fami通的试玩报告里说了，但没有去尝试。
+
