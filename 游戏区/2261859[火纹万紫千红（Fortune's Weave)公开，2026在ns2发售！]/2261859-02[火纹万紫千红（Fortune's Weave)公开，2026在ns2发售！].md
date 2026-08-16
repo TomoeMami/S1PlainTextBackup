@@ -12252,3 +12252,11 @@ really nigga？那我可要来劲了（指对故事拉高期待然后到时候�
 这游戏东方角色的服设全是中亚和蒙古风格混搭，按理说名字应该是突厥语族吧？但名字又是拼音扎堆，而且没看 ...</blockquote>
 职业里剑圣的新名称就是侍道，装扮也很武士。
 
+
+*****
+
+####  反方向的波  
+##### 2634#       发表于 2026-8-16 08:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这还突破式的创新啊，这么多觉醒if回声三房甚至heroes的影子
+
