@@ -58,3 +58,14 @@ pc版第一作有4k分辨率的，但全程120帧其实是有点难度的。78X3
 pc版第一作有4k分辨率的，但全程120帧其实是有点难度的。78X3d+5080在校园里基本能稳定160帧（屏幕是160H ...</blockquote>
 能4k就还好，掉帧嘛，gust的技术力大家都懂……
 
+
+*****
+
+####  Xenor  
+##### 152#       发表于 2026-8-16 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70085464&amp;ptid=2277878" target="_blank">新HGCG 发表于 2026-8-16 11:22</a>
+
+分享一些BUG截图</blockquote>
+如此有针对性这真的是BUG吗<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">我是不信的
+

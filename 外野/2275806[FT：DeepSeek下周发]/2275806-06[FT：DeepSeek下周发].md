@@ -15250,3 +15250,13 @@ flash不是有风神那个雷霆大思考的插件, 思考的时候强迫更多�
 
 flash那个加强插件有空再看看，关键是还有挺多代码之外的任务要用到pro的，flash感觉就只是代码特化，有时候不太能理解我真正的目的
 
+
+*****
+
+####  tillnight  
+##### 8788#       发表于 2026-8-16 21:00
+
+[https://www.bilibili.com/video/B ... b371065e4090371b63f](https://www.bilibili.com/video/BV1HzbX6tEvR/?spm_id_from=333.1387.homepage.video_card.click&amp;vd_source=cc93e0836b7eab371065e4090371b63f)
+
+这个可以盖棺神鬼二相性了。
+
