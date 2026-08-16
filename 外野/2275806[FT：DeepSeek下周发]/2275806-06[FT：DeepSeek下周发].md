@@ -14866,3 +14866,52 @@ pro这个状态确实验证我之前的担心，如果D老师坚持开源路线�
 
 所以现在是赛博精神病阶段……<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tillnight  
+##### 8751#       发表于 2026-8-16 16:46
+
+<blockquote>lactone 发表于 2026-8-16 16:30
+不问问ai一般出现这种问题要多久才能修好？
+
+—— 来自 HONOR AAK-AN00, Android 16, 鹅球 v3.5.99 ...</blockquote>
+Gpt认为最少一两天，最多几周，除非你丢了检查点。但是现在看起来他们真把七月那么好的检查点直接丢了？
+
+*****
+
+####  lactone  
+##### 8752#       发表于 2026-8-16 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70086980&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-16 16:46</a>
+Gpt认为最少一两天，最多几周，除非你丢了检查点。但是现在看起来他们真把七月那么好的检查点直接丢了？ ...</blockquote>
+就这种草台班子我觉得很有可能<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  德尔惠净水器  
+##### 8753#       发表于 2026-8-16 16:52
+
+let's和let me有啥区别
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8754#       发表于 2026-8-16 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70086627&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-16 15:33</a>
+扯个题外话，写作这块Pro是真的不如flash，开了极简用一样的skill写文他就是不如flash，不要加任何限制的 ...</blockquote>
+Flash参数量还是太少了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  小野賢章  
+##### 8755#       发表于 2026-8-16 16:54
+
+灰度版说不定就是这样的，当时抽签抽到了let me 的灰度版可能以为就是预览版，因为性能差<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

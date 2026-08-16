@@ -2814,3 +2814,19 @@ MuMu-20260812-190700-122.jpg
 
 两天前就看见有挂满破的神人了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 48143#       发表于 2026-8-16 16:48
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">伤害礼装掉俩了 加成还是没出
+
+
+*****
+
+####  苍蓝之枪  
+##### 48144#       发表于 2026-8-16 16:52
+
+所以说这活动点数要求算很紧张的吗?那助战得找满破掉落了.......
+
