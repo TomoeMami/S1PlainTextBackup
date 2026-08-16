@@ -15139,3 +15139,14 @@ anchor作者的群里有人说标准模式修好了
 
 2026-8-16 19:51 上传
 
+
+*****
+
+####  →熙←  
+##### 8778#       发表于 2026-8-16 20:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70087807&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-16 19:50</a>
+
+前两天开了opencode go，主要用DSV4pro，现在就已经用掉月额度18%了，感觉完全不够用，不知道开两个账号轮 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日常开发,蹬flash就够了,一般也蹬不完, 这个时候,可以蹬一些pro
+
