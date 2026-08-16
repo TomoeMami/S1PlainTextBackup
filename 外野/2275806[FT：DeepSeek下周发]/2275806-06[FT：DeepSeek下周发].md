@@ -14220,3 +14220,25 @@ pro这个状态确实验证我之前的担心，如果D老师坚持开源路线�
 
 但是flash是真的好用啊，涨价能不能不要涨那么多。
 
+
+*****
+
+####  小野賢章  
+##### 8695#       发表于 2026-8-16 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70085094&amp;ptid=2275806" target="_blank">harukage 发表于 2026-8-16 09:47</a>
+
+这插件跟昨天那个dsh-anchored比哪个好？</blockquote>
+这个好像还没有适配好pro，主要是对flash有效，dsh-anchored 反正pro效果是提升明显的。
+
+*****
+
+####  hugosol  
+##### 8696#       发表于 2026-8-16 09:59
+
+我也发下自用的omp extension，烧了十几块做测试后初步定下的方案，不想继续折腾了
+[https://github.com/hugosol/my-om ... s/anchored-standard](https://github.com/hugosol/my-omp-toolkit/tree/master/extensions/anchored-standard)
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最大的作用可能是把omp system prompt里自带那堆Roles和编码偏好给干掉了，现阶段的SOTA模型确实不太需要这类约束，让模型自由发挥更好，反正我确实不太喜欢omp这类太过臃肿的设计，所以干脆也不判断模型了，只有一个配置开关
+
