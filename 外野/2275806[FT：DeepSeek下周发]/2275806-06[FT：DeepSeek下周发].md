@@ -15915,3 +15915,39 @@ hermes支持codex登陆
 
 天才程序员，陨落
 
+
+*****
+
+####  →熙←  
+##### 8851#       发表于 2026-8-17 01:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国内这帮自部署的大厂价格如何
+
+我猜, 全是统一高峰价
+
+
+*****
+
+####  frankCC  
+##### 8852#       发表于 2026-8-17 01:12
+
+没用过pi，第一次折腾dsh还挺好玩的，现在用的基元律动白嫖的api，难道折腾完还没使用就只能回归codex了吗？
+
+*****
+
+####  jonarryn  
+##### 8853#       发表于 2026-8-17 01:15
+
+现在对于轻量用户（按涨价后价格一个月大概能蹬40rmb左右v4flash）有什么比较友好的方案吗<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我不想刚玩了几天天才程序员体验卡就到期啊
+
+*****
+
+####  goranger  
+##### 8854#       发表于 2026-8-17 01:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70089818&amp;ptid=2275806" target="_blank">jonarryn 发表于 2026-8-17 01:15</a>
+现在对于轻量用户（按涨价后价格一个月大概能蹬40rmb左右v4flash）有什么比较友好的方案吗我不想刚玩了几天 ...</blockquote>
+你这不就是opencode go标准用户
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
