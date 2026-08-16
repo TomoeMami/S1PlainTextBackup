@@ -16018,3 +16018,28 @@ dax口口声声自己部署，实际上纯吹逼<img src="https://static.stage1s
 Max For AI 爆料，DeepSeek-V4-Pro 内置鲸鱼娘模式，用户只需要在 DeepSeek 里输入以下指定命令，DeepSeek  ...</blockquote>
 你这些设定不是明明白白的写在提示词里吗？还是说大伙都看不懂英文？
 
+
+*****
+
+####  yxydd88  
+##### 8863#       发表于 2026-8-17 01:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70089961&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-17 01:42</a>
+梁子的API用不起了，还没用过Open Code Go，问一下这个额度怎么看？是买了以后各种模型都能调用，分别计费 ...</blockquote>
+额度已经砍了，洗洗睡吧    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  squallx  
+##### 8864#       发表于 2026-8-17 01:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">亡啦 AI用户最黑暗的一天
+
+*****
+
+####  很久就在那边l  
+##### 8865#       发表于 2026-8-17 01:54
+
+opencode一涨价gpt的套餐成了独一档最便宜的了，openai不会也趁机涨价吧
+
