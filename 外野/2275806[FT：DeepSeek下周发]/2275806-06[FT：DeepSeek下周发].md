@@ -14706,3 +14706,40 @@ WSL DSH PM 插件
 
 —— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8734#       发表于 2026-8-16 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70086519&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-8-16 15:03</a>
+看b站说harness乱删东西，现在解决问题没？编程相比其他国内的trae和qoder如何？
+
+—— 来自 HUAWEI ALT-AL ...</blockquote>
+怎么个乱删东西？很多情况下智能体乱动文件都是用户自己没约束好
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  qwased  
+##### 8735#       发表于 2026-8-16 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70086519&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-8-16 15:03</a>
+
+看b站说harness乱删东西，现在解决问题没？编程相比其他国内的trae和qoder如何？
+
+—— 来自 HUAWEI ALT-AL ...</blockquote>
+不要随便用full access模式啊（虽然我偷懒经常用<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  蜇灵  
+##### 8736#       发表于 2026-8-16 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70086519&amp;ptid=2275806" target="_blank">魔法师lain 发表于 2026-8-16 15:03</a>
+看b站说harness乱删东西，现在解决问题没？编程相比其他国内的trae和qoder如何？
+
+—— 来自 HUAWEI ALT-AL ...</blockquote>
+开沙盒权限啊，不要全放行
+
