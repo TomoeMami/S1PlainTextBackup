@@ -14794,3 +14794,11 @@ we need和let's根本上是杀掉了but wait 看到这玩意才是真的鬼打�
 
 把DSH迁移到WSL了，报错少了好多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Thalassa  
+##### 8743#       发表于 2026-8-16 15:53
+
+迁移到wsl+anchored standard好多了，终于不用每一次思考几分钟，统计数据量toolcall和llm的用时现在**开<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
