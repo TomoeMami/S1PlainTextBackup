@@ -114,3 +114,11 @@
 
 拉拉的回忆是想表明人类人鱼互相敌视是因为会互相夺取光芒吗，恋爱版国运战场<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tqy117  
+##### 320#       发表于 2026-8-17 02:17
+
+感觉讨论很少的样子。卢卡身体有问题吧，一集多次摔倒。
+

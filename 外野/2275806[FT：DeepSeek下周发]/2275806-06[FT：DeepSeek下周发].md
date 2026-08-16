@@ -16064,3 +16064,20 @@ deepseek涨价，亿万鲸小子必须忍耐....
 
 【《崛起の小曲》《亿万人の小曲》All the Things She Said (Nightcore)-Msrayray6532-哔哩哔哩】 https://b23.tv/YhZkbkk
 
+
+*****
+
+####  杀人鲸  
+##### 8868#       发表于 2026-8-17 02:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70089933&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-17 01:36</a>
+dax口口声声自己部署，实际上纯吹逼
+
+论坛助手,iPhone</blockquote>
+记得之前说的是还没有调整好，看来后面一直都转的官方的API。
+问题是官方的都涨价了，还指望第三方的能维持原价，这本身就是一种天真的妄想。
+D老师长期担任的一项工作，就是作为一种基础价格的锚定。
+现如今连这个锚点都已经变化，各方肯定得猛猛涨价呀。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
