@@ -15080,3 +15080,26 @@ go不是5刀一口价吗，还是说有限制的额度啊？</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给DS加上操作浏览器的工具之后，让他给自己写插件，有时候他会在打开浏览器测试UI的时候发起新对话然后派任务下去，太草了
 
+
+*****
+
+####  neptunehs  
+##### 8773#       发表于 2026-8-16 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70087291&amp;ptid=2275806" target="_blank">罗莉控 发表于 2026-8-16 18:01</a>
+go不是5刀一口价吗，还是说有限制的额度啊？</blockquote>
+并不是无限额度啊 额度是他们自己的一套算法 我想问跟涨没有
+而且是10刀
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  tonyunreal  
+##### 8774#       发表于 2026-8-16 18:21
+
+anchor作者的群里有人说标准模式修好了
+大的来了？
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
