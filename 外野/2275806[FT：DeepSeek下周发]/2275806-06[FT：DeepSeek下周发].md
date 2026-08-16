@@ -14114,3 +14114,18 @@ Training with a single fixed agent harness can cause a model to overfit to a par
 
 —— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  小野賢章  
+##### 8686#       发表于 2026-8-16 08:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70084697&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-8-16 07:58</a>
+
+风神是谁？
+
+—— 来自 HONOR AAP-AN00, Android 16, 鹅球 v4.0</blockquote>
+[https://github.com/yjh051108/dsh-routing-suite](https://github.com/yjh051108/dsh-routing-suite)
+
+这个插件的作者
+

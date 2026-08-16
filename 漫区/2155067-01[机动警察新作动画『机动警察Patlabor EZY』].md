@@ -2767,3 +2767,16 @@ Y隐喻
 笑死，神人呀，老资历自己带一发实弹走</blockquote>
 那课长钓到的是哪来的
 
+
+*****
+
+####  新HGCG  
+##### 242#       发表于 2026-8-16 08:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70083502&amp;ptid=2155067" target="_blank">nice女武神 发表于 2026-8-15 23:27</a>
+
+那课长钓到的是哪来的</blockquote>
+以前的人弄丢的
+
+至于以前的人怎么蒙混过关就是开放性了
+
