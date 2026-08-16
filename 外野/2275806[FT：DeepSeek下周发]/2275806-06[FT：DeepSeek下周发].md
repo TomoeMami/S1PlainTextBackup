@@ -15116,3 +15116,26 @@ anchor作者的群里有人说标准模式修好了
 大的来了？0816？</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">ds不是周末不加班吗，这三天dsh提交都没动静，dsh这么多bug不修先去上模型了？
 
+
+*****
+
+####  hugosol  
+##### 8776#       发表于 2026-8-16 19:50
+
+前两天开了opencode go，主要用DSV4pro，现在就已经用掉月额度18%了，感觉完全不够用，不知道开两个账号轮流用会不会被dax封号<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Rowen233  
+##### 8777#       发表于 2026-8-16 19:51
+
+我真服了kimi code了 日常梯度爆炸开始循环病娇模式<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/16/195132qbzxpm109tbh609m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (195.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-16 19:51 上传
+
