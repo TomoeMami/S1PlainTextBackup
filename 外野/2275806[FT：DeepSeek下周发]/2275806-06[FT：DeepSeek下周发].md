@@ -15150,3 +15150,45 @@ anchor作者的群里有人说标准模式修好了
 前两天开了opencode go，主要用DSV4pro，现在就已经用掉月额度18%了，感觉完全不够用，不知道开两个账号轮 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日常开发,蹬flash就够了,一般也蹬不完, 这个时候,可以蹬一些pro
 
+
+*****
+
+####  nianiania  
+##### 8779#       发表于 2026-8-16 20:11
+
+小明正在直播测新出的插件，flash做出来的还不错
+
+*****
+
+####  小野賢章  
+##### 8780#       发表于 2026-8-16 20:12
+
+实测这个移植的pi版本anchored-standard有效，切换v4pro max强度，然后先发一个“测试，回复ok”，之后再干活，实测没有出现过 let me（想到了从letme到严君泽<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/zip.gif" referrerpolicy="no-referrer">
+
+pi-anchored-standard.zip
+
+2026-8-16 20:10 上传
+点击文件名下载附件
+
+22.16 KB, 下载次数: 0
+
+
+*****
+
+####  脸宽  
+##### 8781#       发表于 2026-8-16 20:15
+
+有没有不用官方搜索的插件，装了个web-search-pro一直装不上
+
+*****
+
+####  hugosol  
+##### 8782#       发表于 2026-8-16 20:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70087887&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-16 20:02</a>
+
+日常开发,蹬flash就够了,一般也蹬不完, 这个时候,可以蹬一些pro</blockquote>
+需求分析还是要用pro的，前段时间用了一下flash正式版感觉还是太着急干活了，有时候会有没聊清楚的情况，不过拆分好任务直接塞给subagent用flash跑倒是没什么问题
+
