@@ -215,3 +215,30 @@
 
        [https://x.com/okada_mei0519/status/2088196024183706065](https://x.com/okada_mei0519/status/2088196024183706065)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41995#       发表于 2026-8-16 15:24
+
+       <strong>《BanG Dream! Our Notes》角色介绍PV: 三角初华</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/16/152358lixiwe2r2iqbv4p1.jpg" referrerpolicy="no-referrer">
+
+<strong>c0eafe810c9a862d54243669682b35a60e61fcdd.jpg</strong> (91.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-16 15:23 上传
+
+由 BanG Dream! 企划带来的全新音游《BanG Dream! Our Notes》角色介绍PV：三角初华 正式公开！
+
+欢迎来到Ave Mujica的假面舞会。
+
+《BanG Dream! Our Notes》国际服预约火热进行中！
+
+┈┈┈┈┈┈┈┈┈⿻*.·
+
+#BanGDream# #交织的乐章# #三角初华#</blockquote>
+       [https://www.bilibili.com/video/BV1dcb26FEjw](https://www.bilibili.com/video/BV1dcb26FEjw)
+
