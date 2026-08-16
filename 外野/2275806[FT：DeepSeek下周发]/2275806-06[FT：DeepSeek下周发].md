@@ -15000,3 +15000,23 @@ anchored standard 感觉删的有点多多了，模型已经想不起自己在�
 如果回滚能解决问题找就回滚了，我不信ds官方不知道模型有瑕疵，不然不会在文档里强调极简模式。楼上也说 ...</blockquote>
 当时灰测到的api都挺稳定的，新开对话也能持续复现并不是抽奖，而且能力下限就有现在的上限。还是差别很大的。
 
+
+*****
+
+####  cscbzcbz  
+##### 8765#       发表于 2026-8-16 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70087116&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-16 17:14</a>
+当时灰测到的api都挺稳定的，新开对话也能持续复现并不是抽奖，而且能力下限就有现在的上限。还是差别很 ...</blockquote>
+我当时也灰度到了，确实只要CoT是i’m思维链，出来的结果确实都很强。但是能不能刷出来也是有概率的，而且只有用opencode能刷出来，其实现在想想和现在的 dsh 极简模式的情况不是很像吗
+
+*****
+
+####  noneoneone  
+##### 8766#       发表于 2026-8-16 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70087023&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-16 16:54</a>
+
+灰度版说不定就是这样的，当时抽签抽到了let me 的灰度版可能以为就是预览版，因为性能差 ...</blockquote>
+好有道理，感觉逻辑一下通畅了……
+
