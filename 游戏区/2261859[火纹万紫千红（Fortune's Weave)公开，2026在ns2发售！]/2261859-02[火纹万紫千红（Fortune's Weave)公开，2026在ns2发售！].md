@@ -12260,3 +12260,14 @@ really nigga？那我可要来劲了（指对故事拉高期待然后到时候�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这还突破式的创新啊，这么多觉醒if回声三房甚至heroes的影子
 
+
+*****
+
+####  ascomnet  
+##### 2635#       发表于 2026-8-16 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70084851&amp;ptid=2261859" target="_blank">反方向的波 发表于 2026-8-16 08:47</a>
+
+这还突破式的创新啊，这么多觉醒if回声三房甚至heroes的影子</blockquote>
+做好了就是，做不好你懂得<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -14453,3 +14453,24 @@ Harness梁子不是说的很明白么，他认为是通向agi必经之路才专�
 我也遇到过，不知道这是dsh的bug还是模型的bug，当时我换了好几个模型（k3/opus/glm），只要出现一次，后 ...</blockquote>
 我这个是pi web 用了那个魔法提示词注入
 
+
+*****
+
+####  UncleDracula  
+##### 8717#       发表于 2026-8-16 11:40
+
+提示词：使用互联网检索一张蒙娜丽莎的原画，使用SVG绘制这张蒙娜丽莎，要求完全复刻并保留画笔笔触。不要复用已有的结果，确实要你自己画出来
+
+用的anchored-standard，promax
+
+为啥画成这样了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+mona_lisa_brushstrokes.svg
+(25.19 KB, 下载次数: 0)
+
+2026-8-16 11:38 上传
+
+点击文件名下载附件
+
