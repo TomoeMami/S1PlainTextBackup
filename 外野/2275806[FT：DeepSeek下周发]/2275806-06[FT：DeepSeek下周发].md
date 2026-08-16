@@ -15951,3 +15951,46 @@ hermes支持codex登陆
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  cscbzcbz  
+##### 8855#       发表于 2026-8-17 01:27
+
+肉眼可见的不经用了<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  舞以  
+##### 8856#       发表于 2026-8-17 01:32
+
+天才程序员群体，要萎缩了么<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  jinuzuktII  
+##### 8857#       发表于 2026-8-17 01:33
+
+涨价就涨吧，你倒是把模型整利索呀
+
+*****
+
+####  蛋黄酱Release  
+##### 8858#       发表于 2026-8-17 01:35
+
+60刀的v4f都没了吗，那还用个p<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  舞以  
+##### 8859#       发表于 2026-8-17 01:36
+
+dax口口声声自己部署，实际上纯吹逼<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

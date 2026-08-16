@@ -106,3 +106,11 @@
 
 这么快就把“我喜欢你是因为你就是你”这招交了是好事
 
+
+*****
+
+####  水莲寺流歌  
+##### 319#       发表于 2026-8-17 01:32
+
+拉拉的回忆是想表明人类人鱼互相敌视是因为会互相夺取光芒吗，恋爱版国运战场<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
