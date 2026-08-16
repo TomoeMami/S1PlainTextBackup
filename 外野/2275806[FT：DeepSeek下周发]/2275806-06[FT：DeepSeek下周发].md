@@ -16043,3 +16043,24 @@ Max For AI 爆料，DeepSeek-V4-Pro 内置鲸鱼娘模式，用户只需要在 D
 
 opencode一涨价gpt的套餐成了独一档最便宜的了，openai不会也趁机涨价吧
 
+
+*****
+
+####  tillnight  
+##### 8866#       发表于 2026-8-17 02:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70090026&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-8-17 01:54</a>
+
+opencode一涨价gpt的套餐成了独一档最便宜的了，openai不会也趁机涨价吧</blockquote>
+其实算上OAI是独一无二的网页版单独算额度来说，Gpt明显一直是在百亿补贴的，这种不可能不在上市前改过来，他家烧钱（亏损）的速度比其他家快太多了，上市前后肯定要美化财报了。
+
+
+*****
+
+####  孤灯蓝影  
+##### 8867#       发表于 2026-8-17 02:15
+
+deepseek涨价，亿万鲸小子必须忍耐....
+
+【《崛起の小曲》《亿万人の小曲》All the Things She Said (Nightcore)-Msrayray6532-哔哩哔哩】 https://b23.tv/YhZkbkk
+
