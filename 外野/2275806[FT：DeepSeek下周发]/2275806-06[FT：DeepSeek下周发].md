@@ -14296,3 +14296,29 @@ B. 阶段 0 的补丁要不要先开分支提交？ 建议在 new clone 里开�
 感觉这一版可能还是有点问题。我在dsh里开V4 Pro Max搓个记忆系统，中间它问我：</blockquote>
 这种不就是 走路洗车 和 你爸妈婚礼没请你 一类的脑筋急转弯嘛，以大模型的智商很难理解这类问题啦<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 8701#       发表于 2026-8-16 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70085245&amp;ptid=2275806" target="_blank">野蛮人之夜 发表于 2026-8-16 10:24</a>
+
+感觉这一版可能还是有点问题。我在dsh里开V4 Pro Max搓个记忆系统，中间它问我：</blockquote>
+正常应该会在UI分成两个问题再分别给3个选项吧，估计是抽风了
+
+*****
+
+####  小野賢章  
+##### 8702#       发表于 2026-8-16 10:38
+
+孩子挺聪明的，就是注意力不集中
+
+<img src="https://img.stage1st.com/forum/202608/16/103750x98s7vh7vlc7g8ch.png" referrerpolicy="no-referrer">
+
+<strong>out.png</strong> (78.21 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-16 10:37 上传
+
