@@ -12348,3 +12348,30 @@ really nigga？那我可要来劲了（指对故事拉高期待然后到时候�
 他手上那个眼睛肯定有问题，况且他好像还有一条有问题的项链</blockquote>
 今天看到个媒体总结，那条项链的宝石嵌到凯伊手里了，变成凯伊的魔器了
 
+
+*****
+
+####  flyingover  
+##### 2644#       发表于 2026-8-16 18:51
+
+<img src="https://img.stage1st.com/forum/202608/16/185040f67yqklyp7pcqkcc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-16 18:50 上传
+
+招募相关
+
+*****
+
+####  UltramanPain  
+##### 2645#       发表于 2026-8-16 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70087476&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-8-16 18:51</a>
+招募相关</blockquote>
+这是官方回复？
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
