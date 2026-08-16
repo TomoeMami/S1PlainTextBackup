@@ -14428,3 +14428,28 @@ Harness梁子不是说的很明白么，他认为是通向agi必经之路才专�
 请问这种情况该怎么办 第一轮不给工具 后面上了工具还是会断开</blockquote>
 我也遇到过，不知道这是dsh的bug还是模型的bug，当时我换了好几个模型（k3/opus/glm），只要出现一次，后面就一直调用失败，我怀疑是dsh的bug，估计和字符串转义有关系，或者是不是导致前端注入了
 
+
+*****
+
+####  UncleDracula  
+##### 8714#       发表于 2026-8-16 11:28
+
+用了anchored-standard是不是就不能读取项目记忆了？有办法解决吗？
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8715#       发表于 2026-8-16 11:28
+
+笑死我了，昨天我把D指导PRO在创造模式下整的一个烂货的json文件发给GPT分析，它都发现这肥鱼有点ADHD
+
+*****
+
+####  kylezy123  
+##### 8716#       发表于 2026-8-16 11:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70085462&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-16 11:21</a>
+
+我也遇到过，不知道这是dsh的bug还是模型的bug，当时我换了好几个模型（k3/opus/glm），只要出现一次，后 ...</blockquote>
+我这个是pi web 用了那个魔法提示词注入
+
