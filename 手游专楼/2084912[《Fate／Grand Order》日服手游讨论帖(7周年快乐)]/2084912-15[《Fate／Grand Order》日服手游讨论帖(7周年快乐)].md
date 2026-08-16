@@ -4661,3 +4661,21 @@ FGO星见的回廊展会PV
 什么 免费单抽居然能出货 萌新也有福利多了</blockquote>
 单抽到现在都没有出过货，真羡慕狗萌新<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 21474#       发表于 2026-8-16 18:24
+
+<img src="https://img.stage1st.com/forum/202608/16/182346ow57cc7l19swe17z.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1786875825744_1.webp</strong> (61.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-16 18:23 上传
+
+快，说喜欢他，再让他氪十单.jpg
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

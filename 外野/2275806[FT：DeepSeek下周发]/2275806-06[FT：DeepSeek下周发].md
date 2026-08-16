@@ -15103,3 +15103,16 @@ anchor作者的群里有人说标准模式修好了
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  serj005  
+##### 8775#       发表于 2026-8-16 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70087361&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-16 18:21</a>
+
+anchor作者的群里有人说标准模式修好了
+
+大的来了？0816？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">ds不是周末不加班吗，这三天dsh提交都没动静，dsh这么多bug不修先去上模型了？
+
