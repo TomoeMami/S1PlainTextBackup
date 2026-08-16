@@ -14802,3 +14802,21 @@ we need和let's根本上是杀掉了but wait 看到这玩意才是真的鬼打�
 
 迁移到wsl+anchored standard好多了，终于不用每一次思考几分钟，统计数据量toolcall和llm的用时现在**开<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 8744#       发表于 2026-8-16 16:00
+
+另外我感觉是不是AI时代安装什么东西基本都不考虑人工安装时候的可操作性了，感觉我自己弄的插件和别人用AI写的一些小项目让AI来装都会一直提示踩坑，想让AI修成人工也能方便的部署也没啥效果
+
+
+*****
+
+####  jinuzuktII  
+##### 8745#       发表于 2026-8-16 16:05
+
+用了风神那个dsh-routing-suite 主观体感上 flash 变强了，干活快了好多，出错也少
+
+希望官方赶紧更新吧…
+
