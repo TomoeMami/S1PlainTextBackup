@@ -36,3 +36,30 @@
 无数发糖镜头，甜得浑身舒畅，结尾再点名一下悬空的危机和脚底的危机，估计把光芒的事情解决一下就可以收官了。
 那结尾到底会不会再次化成泡沫呢？所谓的“再见菈菈”，到底是要和谁告别呢？
 
+
+*****
+
+####  Lawliet.L  
+##### 312#       发表于 2026-8-17 00:16
+
+所以王子和卢卡是同一个人吗？
+
+*****
+
+####  双菜  
+##### 313#       发表于 2026-8-17 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70089356&amp;ptid=2183857" target="_blank">Lawliet.L 发表于 2026-8-17 00:16</a>
+所以王子和卢卡是同一个人吗？</blockquote>
+随地倒怎么也不像正常人吧
+
+
+*****
+
+####  堆雪若叶  
+##### 314#       发表于 2026-8-17 00:22
+
+<img src="https://p.sda1.dev/34/6a31af85bf82960dbcab084593e0d19e/5.png" referrerpolicy="no-referrer">
+
+？弟弟是什么意思
+

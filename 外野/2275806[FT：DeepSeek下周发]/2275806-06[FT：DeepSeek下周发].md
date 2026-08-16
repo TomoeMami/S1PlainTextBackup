@@ -15671,3 +15671,57 @@ Max For AI 爆料，DeepSeek-V4-Pro 内置鲸鱼娘模式，用户只需要在 D
 梁子你pro最好能救回来</blockquote>
 以ds的工作效率，这几周不可能救好的
 
+
+*****
+
+####  明天不再有牛奶  
+##### 8827#       发表于 2026-8-17 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70089122&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-16 23:55</a>
+阿里百炼上有每天1000次调用的千问，还有就是opencode  go的MM M3    Re:Source</blockquote>
+感谢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  小野賢章  
+##### 8828#       发表于 2026-8-17 00:18
+
+光速调价格啊
+
+<img src="https://img.stage1st.com/forum/202608/17/001845m6hqfadr8ehebgwf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (63.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 00:18 上传
+
+*****
+
+####  jinuzuktII  
+##### 8829#       发表于 2026-8-17 00:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 草草草
+
+*****
+
+####  明天不再有牛奶  
+##### 8830#       发表于 2026-8-17 00:21
+
+opencodego和ds官方的价格差的不多了是不是
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  vincevincetang  
+##### 8831#       发表于 2026-8-17 00:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70089042&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-16 23:45</a>
+
+居然是真的</blockquote>
+不是，这”指令“本身就有明确语意了啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
