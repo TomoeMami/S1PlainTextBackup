@@ -15559,3 +15559,69 @@ Max For AI 爆料，DeepSeek-V4-Pro 内置鲸鱼娘模式，用户只需要在 D
 —— 来自 S1Fun ...</blockquote>
 阿里百炼上有每天1000次调用的千问，还有就是opencode  go的MM M3    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  UncleDracula  
+##### 8817#       发表于 2026-8-16 23:57
+
+许愿涨价日期也是用梁历<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 幻想训诂 + 1欢乐多
+
+查看全部评分
+
+*****
+
+####  小野賢章  
+##### 8818#       发表于 2026-8-17 00:00
+
+[https://api-docs.deepseek.com/zh-cn/quick_start/pricing/](https://api-docs.deepseek.com/zh-cn/quick_start/pricing/) 梁子的页面都是纯人工维护的
+
+*****
+
+####  leeskies  
+##### 8819#       发表于 2026-8-17 00:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">喜迎涨价！
+
+
+*****
+
+####  绕指流光  
+##### 8820#         楼主| 发表于 2026-8-17 00:05
+
+<img src="https://img.stage1st.com/forum/202608/17/000522qqz5gt5f3yhjzbhh.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1786896322423_1.webp</strong> (164.85 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 00:05 上传
+
+—— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  Freewolf  
+##### 8821#       发表于 2026-8-17 00:05
+
+chatgpt也能用这段指令进入角色扮演
+
+<img src="https://img.stage1st.com/forum/202608/17/000535l4hod46vbp2ikbv6.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2026-08-17_00-04-46.png</strong> (80.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 00:05 上传
+
