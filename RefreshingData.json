@@ -5607,10 +5607,10 @@
     "update": false
   },
   "2139166": {
-    "totalreply": 19198,
+    "totalreply": 19199,
     "title": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
     "newtitle": "[Capcom《街霸 6》新宣传视频公开，2023年6月2日发售]",
-    "lastedit": 1786846445,
+    "lastedit": 1786848965,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -11916,10 +11916,10 @@
     "update": false
   },
   "2260400": {
-    "totalreply": 10976,
+    "totalreply": 10977,
     "title": "[【明日方舟】国服16号楼 9.4 Ave Mujica联动SS「无忧梦呓」 (本楼含YJWL动态交流)]",
     "newtitle": "[【明日方舟】国服16号楼 8.8 拼豆舟可梦「奇象巡展」(本楼含YJWL动态交流)]",
-    "lastedit": 1786817072,
+    "lastedit": 1786848725,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 20757,
+    "totalreply": 20759,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「向渊行」版本即将开放]",
-    "lastedit": 1786848126,
+    "lastedit": 1786848725,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 59570,
+    "totalreply": 59574,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1786848485,
+    "lastedit": 1786848726,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12884,7 +12884,7 @@
     "newtitle": "[Capcom新作《PRAGMATA ／ 识质存在》新PV公开，2026年4月17日发售，试玩Demo已上线]",
     "lastedit": 1786589648,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2276424": {
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 8702,
+    "totalreply": 8706,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[DS v4 Pro GA &DS harness 已上线／公测｜大模型讨论专楼]",
-    "lastedit": 1786848007,
+    "lastedit": 1786848845,
     "category": "外野",
     "active": true,
     "update": false
@@ -16443,10 +16443,10 @@
     "update": false
   },
   "2287502": {
-    "totalreply": 77,
+    "totalreply": 78,
     "title": "[我年轻时怎么就没有甜甜的恋爱？（摔）]",
     "newtitle": "[我年轻时怎么就没有甜甜的恋爱？（摔）]",
-    "lastedit": 1786848007,
+    "lastedit": 1786848846,
     "category": "外野",
     "active": true,
     "update": false
@@ -16520,7 +16520,7 @@
     "newtitle": "[我就说好的哈佛不比大专差]",
     "lastedit": 1786589649,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2287465": {
@@ -16628,7 +16628,7 @@
     "newtitle": "[B站应该是国内，不，世界范畴里也是最良心的长视频网站]",
     "lastedit": 1786589411,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2287561": {
@@ -17244,10 +17244,10 @@
     "update": false
   },
   "2287762": {
-    "totalreply": 176,
+    "totalreply": 180,
     "title": "[这种电影能过审上映真不是洗钱吗？]",
     "newtitle": "[这种电影能过审上映真不是洗钱吗？]",
-    "lastedit": 1786848246,
+    "lastedit": 1786848845,
     "category": "外野",
     "active": true,
     "update": false
@@ -17280,10 +17280,10 @@
     "update": false
   },
   "2287823": {
-    "totalreply": 63,
+    "totalreply": 64,
     "title": "[我想到现在的闲鱼烂，没想到居然这么烂]",
     "newtitle": "[我想到现在的闲鱼烂，没想到居然这么烂]",
-    "lastedit": 1786845248,
+    "lastedit": 1786848606,
     "category": "外野",
     "active": true,
     "update": false
@@ -17519,6 +17519,15 @@
     "newtitle": "[现在的有些人真的阴谋论入脑了]",
     "lastedit": 1786848247,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2287702": {
+    "totalreply": 42,
+    "title": "[除了汉化，有没有大佬一个人用AI开发游戏的？]",
+    "newtitle": "[除了汉化，有没有大佬一个人用AI开发游戏的？]",
+    "lastedit": 1786848607,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
