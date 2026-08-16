@@ -12535,3 +12535,19 @@ x这个人总结了一些信息发出来
 
 有的，fami通的试玩报告里说了，但没有去尝试。
 
+
+*****
+
+####  mull132  
+##### 2661#       发表于 2026-8-16 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70088686&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-8-16 22:49</a>
+mull132 发表于 2026-8-16 22:36
+
+因为媒体试玩的不包含这个
+
+只有白毛序章和4个人的前5章</blockquote>
+那就是签了保密协议，只能透露序章+前五章的内容
+
+—— 来自 Xiaomi 22041216C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

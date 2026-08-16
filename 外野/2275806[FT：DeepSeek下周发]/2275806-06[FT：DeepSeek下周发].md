@@ -15385,3 +15385,13 @@ flash那个加强插件有空再看看，关键是还有挺多代码之外的任
 
 风神甚至不会搭梯<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cscbzcbz  
+##### 8802#       发表于 2026-8-16 22:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70088451&amp;ptid=2275806" target="_blank">squallx 发表于 2026-8-16 22:07</a>
+https://www.bilibili.com/video/BV1HzbX6tEvR 节目效果来了</blockquote>
+v4pro下限低，上限也挺高<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
