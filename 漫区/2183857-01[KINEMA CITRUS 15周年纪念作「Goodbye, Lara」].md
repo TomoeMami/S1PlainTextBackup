@@ -122,3 +122,15 @@
 
 感觉讨论很少的样子。卢卡身体有问题吧，一集多次摔倒。
 
+
+*****
+
+####  Acla  
+##### 321#       发表于 2026-8-17 02:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70090124&amp;ptid=2183857" target="_blank">tqy117 发表于 2026-8-17 02:17</a>
+感觉讨论很少的样子。卢卡身体有问题吧，一集多次摔倒。</blockquote>
+可能是某特定类型比较过激的讨论不在这个动画专楼（）
+
+—— 来自 HUAWEI ELS-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
