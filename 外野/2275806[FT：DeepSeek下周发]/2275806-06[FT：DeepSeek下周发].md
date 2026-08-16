@@ -15062,3 +15062,21 @@ anchored standard 感觉删的有点多多了，模型已经想不起自己在�
 —— 来自 vivo V2561A, Android 16, 鹅球 v4.0 ...</blockquote>
 go不是5刀一口价吗，还是说有限制的额度啊？
 
+
+*****
+
+####  拯救节操希灵宅  
+##### 8771#       发表于 2026-8-16 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70087291&amp;ptid=2275806" target="_blank">罗莉控 发表于 2026-8-16 18:01</a>
+
+go不是5刀一口价吗，还是说有限制的额度啊？</blockquote>
+有的，之前v4f是60刀的限额，只不过正常情况下没人用得到限额
+
+*****
+
+####  qwased  
+##### 8772#       发表于 2026-8-16 18:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给DS加上操作浏览器的工具之后，让他给自己写插件，有时候他会在打开浏览器测试UI的时候发起新对话然后派任务下去，太草了
+
