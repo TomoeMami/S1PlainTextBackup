@@ -14140,3 +14140,13 @@ Training with a single fixed agent harness can cause a model to overfit to a par
 如果是这样的话，是不是可以判定deepseek v4 flash+deepseek harness（唤起sub agent）已经可以胜任一些 ...</blockquote>
 这就不知道了……
 
+
+*****
+
+####  ST2002  
+##### 8688#       发表于 2026-8-16 09:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">周末花了 20 块把自己的项目 Agent 内核从 pi 换成 dsh，感觉效果不是很契合，应该是我还没想清楚到底啥叫一切皆插件，过程还是蛮有趣的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
