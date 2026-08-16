@@ -12568,3 +12568,13 @@ Nintendo Today更新了CM，任天堂 重新定义 CM，基本上是重新剪的
 
 <img src="https://img.stage1st.com/forum/202608/16/233854a07ppxr0jjx9jd17.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mull132  
+##### 2663#       发表于 2026-8-16 23:52
+
+主角的专属职业叫holylancer啊<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

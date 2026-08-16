@@ -15530,3 +15530,32 @@ Max For AI 爆料，DeepSeek-V4-Pro 内置鲸鱼娘模式，用户只需要在 D
 
 2026-8-16 23:45 上传
 
+
+*****
+
+####  明天不再有牛奶  
+##### 8814#       发表于 2026-8-16 23:47
+
+识图用什么模型比较好？最好是免费或者便宜的，前面说过翻不到了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  龙骑士尹志平  
+##### 8815#       发表于 2026-8-16 23:52
+
+喷了，可以和楼上佬的桌宠作联动了，ds这帮人太不务正业了
+
+*****
+
+####  王兰花秀丽  
+##### 8816#       发表于 2026-8-16 23:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70089059&amp;ptid=2275806" target="_blank">明天不再有牛奶 发表于 2026-8-16 23:47</a>
+识图用什么模型比较好？最好是免费或者便宜的，前面说过翻不到了
+
+—— 来自 S1Fun ...</blockquote>
+阿里百炼上有每天1000次调用的千问，还有就是opencode  go的MM M3    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
