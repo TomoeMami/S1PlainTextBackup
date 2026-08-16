@@ -14627,3 +14627,60 @@ EP0 SentStall 清标志后无条件 return，可能吞掉同时到达的新 SETU
 
 用户会自己解决的。🐶
 
+
+*****
+
+####  Lorraine_Kinney  
+##### 8730#       发表于 2026-8-16 14:22
+
+ 本帖最后由 Lorraine_Kinney 于 2026-8-16 14:26 编辑 
+
+我又测试了下，好像之前的提示词有问题，会让DSH直接扫原图转成SVG，但是有时候确实是让它一笔一笔复刻的
+
+找了下之前的测试别人的提示词，增加了一些变数，就是变为临摹，画作变为伦勃朗的夜巡 <blockquote>用纯 SVG 复刻伦勃朗的《夜巡》，越还原越好，画法你自由发挥。仅几点小限制：
+
+必须用"笔触"作画：短弧线/锥形描边模拟古典油画罩染与晕涂法（sfumato），笔触沿面部轮廓与体积方向排布，禁止大面积平涂与照片级渐变；笔触颜色要有邻近色抖动与深浅分层，明暗过渡柔和无硬边，远看成画、近看见笔。
+
+要求 必须联网搜索原片进行参考。用纯 SVG 复刻伦勃朗的《夜巡》，越还原越好，画法你自由发挥。仅几点小限制：</blockquote>
+WSL DSH PM 插件
+
+<img src="https://img.stage1st.com/forum/202608/16/142150di55l54gc5l536un.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (245.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-16 14:21 上传
+
+相同提示词，GPT5.6 SOL MAX
+
+<img src="https://img.stage1st.com/forum/202608/16/142215xtnurc4subt4bgbt.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (154.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-16 14:22 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为啥画画画这么好？
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来想试试克利斯蒂娜的世界吗，结果说版权没过期不让复刻，就变成了这样
+
+屏幕截图 2026-08-16 142526.png
+(948.23 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-16 14:25 上传
+
+<img src="https://img.stage1st.com/forum/202608/16/142544smbp6glyra28hgdd.png" referrerpolicy="no-referrer">
+
+*****
+
+####  crow_wine  
+##### 8731#       发表于 2026-8-16 14:25
+
+原生极简模式，一直用到750k的上下文都什么问题
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
