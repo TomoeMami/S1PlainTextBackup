@@ -15049,3 +15049,16 @@ anchored standard 感觉删的有点多多了，模型已经想不起自己在�
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  罗莉控  
+##### 8770#       发表于 2026-8-16 18:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70087242&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-16 17:47</a>
+
+两天没看帖 opencode go有没有说明天跟涨与否啊
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0 ...</blockquote>
+go不是5刀一口价吗，还是说有限制的额度啊？
+
