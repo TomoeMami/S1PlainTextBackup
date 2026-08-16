@@ -12303,3 +12303,21 @@ really nigga？那我可要来劲了（指对故事拉高期待然后到时候�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  蓮華  
+##### 2639#       发表于 2026-8-16 13:16
+
+我看视频里临近单位可以协防
+
+*****
+
+####  lls2388  
+##### 2640#       发表于 2026-8-16 13:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70084618&amp;ptid=2261859" target="_blank">bwsusaga 发表于 2026-8-16 06:49</a>
+
+职业里剑圣的新名称就是侍道，装扮也很武士。</blockquote>
+剑圣是迪特里希的专属职业了，所以给了个新职业出来
+
