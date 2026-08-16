@@ -14129,3 +14129,14 @@ Training with a single fixed agent harness can cause a model to overfit to a par
 
 这个插件的作者
 
+
+*****
+
+####  野蛮人之夜  
+##### 8687#       发表于 2026-8-16 08:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70081214&amp;ptid=2275806" target="_blank">ternayark 发表于 2026-8-15 16:22</a>
+
+如果是这样的话，是不是可以判定deepseek v4 flash+deepseek harness（唤起sub agent）已经可以胜任一些 ...</blockquote>
+这就不知道了……
+
