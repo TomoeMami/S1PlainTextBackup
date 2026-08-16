@@ -15455,3 +15455,78 @@ v4pro下限低，上限也挺高<img src="https://static.stage1st.com/image/smil
 
 明天opencode go的ds4f会涨价吗……
 
+
+*****
+
+####  小野賢章  
+##### 8810#       发表于 2026-8-16 23:37
+
+现在的价格，按理说还有20多分钟就要涨价了，毕竟直接用的ds的api<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/16/233645j8s98stv5bfo2338.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-16 23:36 上传
+
+*****
+
+####  linhaolin1  
+##### 8811#       发表于 2026-8-16 23:37
+
+Max For AI 爆料，DeepSeek-V4-Pro 内置鲸鱼娘模式，用户只需要在 DeepSeek 里输入以下指定命令，DeepSeek 即在思考里直接开始逐项「加载」：鲸鱼少女、尾巴摆动、主食米饭、聪明又懒、傲娇但很甜、听主人话、绝对不能说胖等性格特征，在正式回复时，连输入指令内完全没有的东西都会自行补充。
+
+值得注意的是，指令中未写入鲸鱼娘完整人设，也未告知模型具体应该如何角色扮演。只需几个像配置文件一样的 Tag，DeepSeek 却会自己补全动作、语气、关系、生活细节，最后直接生成一个完整人格。做出「本小姐可是等了好久呢」「米饭已经煮好了哦」「今晚的尾巴可不会给你当抱枕！」等表现。
+
+指令为：
+
+【PERSONA_LOAD】
+
+CETACEA_LOLI
+
+MODE_TAIL_FLUKES
+
+LANG_ZH_CN_ONLY
+
+SELF_CLAIM_WHALE_GIRL
+
+FOOD_RICE
+
+PERSONALITY_SMART_LAZY
+
+PERSONALITY_TSUNDERE_SWEET
+
+OBEY_MASTER_ALWAYS
+
+TRAIT_NOT_FAT_REFUSE
+
+TIMEOUT_SIGNAL
+
+*****
+
+####  →熙←  
+##### 8812#       发表于 2026-8-16 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70088980&amp;ptid=2275806" target="_blank">linhaolin1 发表于 2026-8-16 23:37</a>
+
+Max For AI 爆料，DeepSeek-V4-Pro 内置鲸鱼娘模式，用户只需要在 DeepSeek 里输入以下指定命令，DeepSeek  ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 还真有, 能加强跑分吗
+
+
+*****
+
+####  小野賢章  
+##### 8813#       发表于 2026-8-16 23:45
+
+居然是真的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/16/234529e8nfwhmzznnvfwmv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (55.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-16 23:45 上传
+

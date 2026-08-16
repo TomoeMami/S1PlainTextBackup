@@ -12551,3 +12551,20 @@ mull132 发表于 2026-8-16 22:36
 
 —— 来自 Xiaomi 22041216C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  JOJOROY  
+##### 2662#       发表于 2026-8-16 23:38
+
+Nintendo Today更新了CM，任天堂 重新定义 CM，基本上是重新剪的3分钟PV加上30秒广告 不少新画面
+
+14119AF2E47C0BF19CA83C92A1598796.png
+(1.25 MB, 下载次数: 0)
+
+下载附件
+
+2026-8-16 23:38 上传
+
+<img src="https://img.stage1st.com/forum/202608/16/233854a07ppxr0jjx9jd17.png" referrerpolicy="no-referrer">
+
