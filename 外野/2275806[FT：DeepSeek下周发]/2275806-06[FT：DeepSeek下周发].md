@@ -14833,3 +14833,21 @@ pro这个状态确实验证我之前的担心，如果D老师坚持开源路线�
 
 —— 来自 Xiaomi 24072PX77C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lactone  
+##### 8747#       发表于 2026-8-16 16:30
+
+不问问ai一般出现这种问题要多久才能修好？<img src="https://static.stage1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  scikirbypoke  
+##### 8748#       发表于 2026-8-16 16:32
+
+蹬到0.1收尾，用中转站去了
+
