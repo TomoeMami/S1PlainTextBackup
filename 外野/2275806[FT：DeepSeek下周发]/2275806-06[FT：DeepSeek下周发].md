@@ -14503,3 +14503,44 @@ Gpt说的
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  dazzle  
+##### 8720#       发表于 2026-8-16 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70085487&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-16 11:28</a>
+
+笑死我了，昨天我把D指导PRO在创造模式下整的一个烂货的json文件发给GPT分析，它都发现这肥鱼有点ADHD
+
+结论 ...</blockquote>
+笑死，赛博懂王了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+所以我们不需要很聪明的AI就能治理美国
+
+
+*****
+
+####  蜇灵  
+##### 8721#       发表于 2026-8-16 12:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70085049&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-16 09:37</a>
+
+nginx 本地3081端口代理3080，再用 cloudflared tunnel 连接到 nginx，可以手机访问了
+
+这页面适配移动端， ...</blockquote>
+大概就是拿网页版改的吧，移动端布局也是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LeoDT  
+##### 8722#       发表于 2026-8-16 12:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70085487&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-16 11:28</a>
+
+笑死我了，昨天我把D指导PRO在创造模式下整的一个烂货的json文件发给GPT分析，它都发现这肥鱼有点ADHD
+
+结论 ...</blockquote>
+可以看看V4发布时的论文，D老师注意力机制有三点，其中一个滑动窗口就是分配更多注意给最新的信息，另外两个是**加强超长上下文时的注意力的，理论上来说可以在一定程度上减少幻觉。
+
