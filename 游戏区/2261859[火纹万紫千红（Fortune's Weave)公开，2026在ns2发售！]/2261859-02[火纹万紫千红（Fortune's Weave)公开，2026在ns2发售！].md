@@ -12375,3 +12375,18 @@ really nigga？那我可要来劲了（指对故事拉高期待然后到时候�
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  mull132  
+##### 2646#       发表于 2026-8-16 19:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70087482&amp;ptid=2261859" target="_blank">UltramanPain 发表于 2026-8-16 18:52</a>
+这是官方回复？
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, 鹅球 v3.5.99</blockquote>
+是红迪上有个拿到测试资格的人发帖谈感想，网友问出来的
+x这个人总结了一些信息发出来
+
+—— 来自 Xiaomi 22041216C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

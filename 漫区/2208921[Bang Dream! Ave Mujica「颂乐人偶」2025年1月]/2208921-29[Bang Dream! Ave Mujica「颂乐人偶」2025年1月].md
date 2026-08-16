@@ -242,3 +242,61 @@
 #BanGDream# #交织的乐章# #三角初华#</blockquote>
        [https://www.bilibili.com/video/BV1dcb26FEjw](https://www.bilibili.com/video/BV1dcb26FEjw)
 
+
+*****
+
+####  堀内爱里衣  
+##### 41996#       发表于 2026-8-16 19:14
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/16/191414ynfizzexatninxno.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-08-16_19-13-14.jpg</strong> (272.81 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-16 19:14 上传
+
+       [https://x.com/bang_dream_info/status/2088892974197617058](https://x.com/bang_dream_info/status/2088892974197617058)
+
+*****
+
+####  堀内爱里衣  
+##### 41997#       发表于 2026-8-16 19:18
+
+ 本帖最后由 堀内爱里衣 于 2026-8-16 19:19 编辑 
+
+       <strong>Ave Mujica - SUMMER SONIC 2026 出演部分 东京会场</strong> （39分15秒） <blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/16/191810srcvcmj7yv1pjvr1.jpg" referrerpolicy="no-referrer">
+
+<strong>5ee00e1a99d419646706c5befa1fa1da19eb030d.jpg</strong> (132.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-16 19:18 上传
+
+[https://x.com/summer_sonic](https://x.com/summer_sonic)
+
+Ave Mujica - SUMMER SONIC 2026</blockquote>
+      [https://www.bilibili.com/video/BV1cHb96fE6Y](https://www.bilibili.com/video/BV1cHb96fE6Y)
+
+
+*****
+
+####  堀内爱里衣  
+##### 41998#       发表于 2026-8-16 19:21
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/16/192146ac73tzrz3ztud1tu.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-08-16_19-20-45.jpg</strong> (192.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-16 19:21 上传
+
+       [https://x.com/diggymo04/status/2088915720151441609](https://x.com/diggymo04/status/2088915720151441609)
+
