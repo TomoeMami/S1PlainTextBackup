@@ -12452,3 +12452,24 @@ x这个人总结了一些信息发出来
 论坛助手,iPhone</blockquote>
 攻防阵在if里这么完美了，后续作品居然一作都不考虑回归，某些背包角色明明也可以给角色设计增加广度
 
+
+*****
+
+####  hkguty  
+##### 2654#       发表于 2026-8-16 22:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70088050&amp;ptid=2261859" target="_blank">bbluekid 发表于 2026-8-16 20:34</a>
+
+不同的角色在不同的路线招募条件都不一样，应该是用这个设定来让你体验不同的角色而不是一套阵容用到死 ...</blockquote>
+那太麻烦了，我猜很多人都会想一直用手枪女
+
+
+*****
+
+####  bbluekid  
+##### 2655#       发表于 2026-8-16 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70088499&amp;ptid=2261859" target="_blank">hkguty 发表于 2026-8-16 22:17</a>
+那太麻烦了，我猜很多人都会想一直用手枪女</blockquote>
+我看系统开放各个主角的进度都不一样。is 很想做出差异化的，做了那么多角色肯定希望玩家都体验体验
+

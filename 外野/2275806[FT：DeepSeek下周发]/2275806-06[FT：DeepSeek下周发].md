@@ -15358,3 +15358,12 @@ flash那个加强插件有空再看看，关键是还有挺多代码之外的任
 老实说其实我觉得pro预览版已经够用，灰测那些一句话生成游戏的能力对我来说不是必要的能力，因为这些都是 ...</blockquote>
 其实最好的是Flash正式版，预览版家族的指令遵循能力很差
 
+
+*****
+
+####  crow_wine  
+##### 8799#       发表于 2026-8-16 22:21
+
+<blockquote>Ah! Even with dynamic split disabled, our BuildPathSegs seq refactor causes 172 random failures. Previous b365 random 0. So output refactor is broken, contributing. Dynamic split additional 243.</blockquote>
+我发现轮次多了之后，wsl的极简模式下也是会有一点情绪的。现在这个会话跑了2.5亿token了
+
