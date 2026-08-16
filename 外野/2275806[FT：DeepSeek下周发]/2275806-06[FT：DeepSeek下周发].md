@@ -15192,3 +15192,61 @@ pi-anchored-standard.zip
 日常开发,蹬flash就够了,一般也蹬不完, 这个时候,可以蹬一些pro</blockquote>
 需求分析还是要用pro的，前段时间用了一下flash正式版感觉还是太着急干活了，有时候会有没聊清楚的情况，不过拆分好任务直接塞给subagent用flash跑倒是没什么问题
 
+
+*****
+
+####  zhongjie  
+##### 8783#       发表于 2026-8-16 20:19
+
+我试着用楼里推荐的几个插件，然后把插件结合起来测试，结果发现什么都不加分数最高：
+
+模式                                  隐藏测试平均分        全部通过率        API成本        每会话平均耗时
+
+官方Standard                               92.7%                 50.0%                4.39                10.2分钟
+
+Anchored Standard               89.6%                58.3%                6.62                16.1分钟
+
+Routing Suite                       90.6%                41.7%                4.03                10.4分钟
+
+我的结合后的Standard        87.5%                33.3%                3.00                 7.2分钟
+
+*****
+
+####  →熙←  
+##### 8784#       发表于 2026-8-16 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70087961&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-16 20:17</a>
+
+需求分析还是要用pro的，前段时间用了一下flash正式版感觉还是太着急干活了，有时候会有没聊清楚的情况， ...</blockquote>
+flash不是有风神那个雷霆大思考的插件, 思考的时候强迫更多思考的, 挺好用的
+
+
+*****
+
+####  龙骑士尹志平  
+##### 8785#       发表于 2026-8-16 20:25
+
+感觉dsh跑的不太稳定，经常跑着跑着服务就挂了，连暂停都停不下来，还是tui稳定
+
+*****
+
+####  tillnight  
+##### 8786#       发表于 2026-8-16 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70087929&amp;ptid=2275806" target="_blank">nianiania 发表于 2026-8-16 20:11</a>
+
+小明正在直播测新出的插件，flash做出来的还不错</blockquote>
+这个才是真民科吧，插件都不是，就是纯提示词工程。而且唯一跑完的一个测试也就是说对flash还行，算不上很好。
+
+*****
+
+####  hugosol  
+##### 8787#       发表于 2026-8-16 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70087979&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-16 20:20</a>
+
+flash不是有风神那个雷霆大思考的插件, 思考的时候强迫更多思考的, 挺好用的 ...</blockquote>
+草，其实之前pro预览版感觉已经够用了，现在pro正式版经常雷霆大思考我还觉得挺不爽的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+flash那个加强插件有空再看看，关键是还有挺多代码之外的任务要用到pro的，flash感觉就只是代码特化，有时候不太能理解我真正的目的
+
