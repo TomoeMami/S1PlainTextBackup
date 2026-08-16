@@ -15020,3 +15020,22 @@ anchored standard 感觉删的有点多多了，模型已经想不起自己在�
 灰度版说不定就是这样的，当时抽签抽到了let me 的灰度版可能以为就是预览版，因为性能差 ...</blockquote>
 好有道理，感觉逻辑一下通畅了……
 
+
+*****
+
+####  UncleDracula  
+##### 8767#       发表于 2026-8-16 17:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70087103&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-8-16 17:11</a>
+
+anchored standard 感觉删的有点多多了，模型已经想不起自己在哪儿 手边有什么工具了。每次都要 let's 造半 ...</blockquote>
+我这改个bug，标准模式+原执行会话直接让PRO分析根因+子代理flash执行，结果改了两轮没改好。换成anchored standard+新开会话+子代理flash执行，没有给任何上下文，完全是自己读取项目代码分析，一边过了。后续的一些优化也是指哪打哪，一次过。有点神了。
+
+
+*****
+
+####  wandeeees  
+##### 8768#       发表于 2026-8-16 17:43
+
+感觉梁子可能直接训练下一个模型了，V4.1或者V5了，资源有限，估计只能选择训练下一代了
+
