@@ -14684,3 +14684,15 @@ WSL DSH PM 插件
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  Promeus  
+##### 8732#       发表于 2026-8-16 14:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70086340&amp;ptid=2275806" target="_blank">Lorraine_Kinney 发表于 2026-8-16 14:22</a>
+我又测试了下，好像之前的提示词有问题，会让DSH直接扫原图转成SVG，但是有时候确实是让它一笔一笔复刻的
+
+ ...</blockquote>
+灰度版本的svg能力似乎就很逆天
+
