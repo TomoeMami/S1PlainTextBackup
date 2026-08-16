@@ -14696,3 +14696,13 @@ WSL DSH PM 插件
  ...</blockquote>
 灰度版本的svg能力似乎就很逆天
 
+
+*****
+
+####  魔法师lain  
+##### 8733#       发表于 2026-8-16 15:03
+
+看b站说harness乱删东西，现在解决问题没？编程相比其他国内的trae和qoder如何？
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
