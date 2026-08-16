@@ -2188,3 +2188,12 @@ PSN页面
 
 coco的场景还是好看啊，索拉加了骷髅面具还挺融合的
 
+
+*****
+
+####  Piano-Forest  
+##### 184#         楼主| 发表于 2026-8-16 10:19
+
+<img src="https://p.sda1.dev/34/bcfc6dbe151d2011a25934de0e7eb255/1000172279.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/829c5220ebdd932dbe7dfe7992f63461/1000172278.jpg" referrerpolicy="no-referrer">
+

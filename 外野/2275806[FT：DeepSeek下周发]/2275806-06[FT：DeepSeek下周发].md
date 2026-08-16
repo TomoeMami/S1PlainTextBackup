@@ -14252,3 +14252,19 @@ pro这个状态确实验证我之前的担心，如果D老师坚持开源路线�
 
 估计后训练就可着这俩选择练的，练完发现过拟合了，不想继续拖了，dsh里面对齐出一个minimal mode拉倒！
 
+
+*****
+
+####  hugosol  
+##### 8698#       发表于 2026-8-16 10:14
+
+ 本帖最后由 hugosol 于 2026-8-16 10:17 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70085097&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-16 09:48</a>
+
+pro这个状态确实验证我之前的担心，如果D老师坚持开源路线，就不应该像O/A两家针对harness训模型，希望他 ...</blockquote>
+问题是O/A两家用自家harness有时候表现还没Pi好
+
+我觉得可能不用太担心针对harness训练导致过拟合的问题，harness迭代速度比模型快多了，不可能以太过复杂的场景为基础去训练吧
+
+反过来说真相更可能是训练出来这半吊子的水准所以梁子要等DeepSeek harness一起发，还强行加上个没什么卵用的极简模式给0813挽尊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
