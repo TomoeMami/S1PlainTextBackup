@@ -10733,7 +10733,7 @@
     "newtitle": "[剧透反白 19.01『不吉波普不笑 ／ ブギーポップは笑わない』]",
     "lastedit": 1786625288,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1844155": {
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 60066,
+    "totalreply": 60070,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1786884366,
+    "lastedit": 1786884966,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13104,10 +13104,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 25681,
+    "totalreply": 25684,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1786884006,
+    "lastedit": 1786884966,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13950,10 +13950,10 @@
     "update": false
   },
   "2277878": {
-    "totalreply": 150,
+    "totalreply": 151,
     "title": "[BLUE REFLECTION 四合一 少女们的轨迹]",
     "newtitle": "[BLUE REFLECTION 四合一 少女们的轨迹]",
-    "lastedit": 1786883525,
+    "lastedit": 1786884725,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14134,15 +14134,6 @@
     "title": "[AI 本地文生图模型部署不完全指北]",
     "newtitle": "[AI 本地文生图模型部署不完全指北]",
     "lastedit": 1786545009,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2286652": {
-    "totalreply": 51,
-    "title": "[美国愚民教育弱智多情有可原]",
-    "newtitle": "[美国愚民教育弱智多情有可原]",
-    "lastedit": 1785675127,
     "category": "外野",
     "active": false,
     "update": false
@@ -16790,7 +16781,7 @@
     "newtitle": "[影之刃零11分钟实机预告公开]",
     "lastedit": 1786625648,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2287638": {
@@ -17046,10 +17037,10 @@
     "update": false
   },
   "2287665": {
-    "totalreply": 91,
+    "totalreply": 94,
     "title": "[影之刃零首周／首月销量多少？]",
     "newtitle": "[影之刃零首周／首月销量多少？]",
-    "lastedit": 1786884366,
+    "lastedit": 1786884966,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17424,10 +17415,10 @@
     "update": false
   },
   "2287859": {
-    "totalreply": 147,
+    "totalreply": 148,
     "title": "[牛来的导演算是抽彩票抽中了财富自由了]",
     "newtitle": "[牛来的导演算是抽彩票抽中了财富自由了（情况好像不对）]",
-    "lastedit": 1786884485,
+    "lastedit": 1786884845,
     "category": "外野",
     "active": true,
     "update": false
