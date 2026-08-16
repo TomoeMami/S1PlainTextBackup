@@ -14185,3 +14185,38 @@ pro 这不明显炼炸了吗，搞不懂有什么不能承认的。也不影响 
 
 nginx 本地3081端口代理3080，再用 cloudflared tunnel 连接到 nginx，可以手机访问了<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">;">复制代码
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 8692#       发表于 2026-8-16 09:47
+
+只能说如果把折腾v4 pro的精力放到优化别的模型上，其实一样能得到震惊瘫坐的效果，v4 pro就是训炸了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  harukage  
+##### 8693#       发表于 2026-8-16 09:47
+
+<blockquote>小野賢章 发表于 2026-8-16 08:11
+https://github.com/yjh051108/dsh-routing-suite
+
+这个插件的作者</blockquote>
+这插件跟昨天那个dsh-anchored比哪个好？
+
+*****
+
+####  LeoDT  
+##### 8694#       发表于 2026-8-16 09:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70085048&amp;ptid=2275806" target="_blank">ymm1030 发表于 2026-8-16 09:37</a>
+
+pro 这不明显炼炸了吗，搞不懂有什么不能承认的。也不影响 flash 封神，鲸小子现在多少有点魔怔了。
+
+——  ...</blockquote>
+pro这个状态确实验证我之前的担心，如果D老师坚持开源路线，就不应该像O/A两家针对harness训模型，希望他们这次只是草台。
+
+但是flash是真的好用啊，涨价能不能不要涨那么多。
+
