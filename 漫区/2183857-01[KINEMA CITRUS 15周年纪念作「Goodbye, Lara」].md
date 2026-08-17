@@ -727,3 +727,11 @@ ps：我觉得小出已经很温和了<img src="https://static.stage1st.com/imag
 能找到拉拉是因为开头卢卡捡到并送还的袋子是蛋糕店的购物袋</blockquote>
 哦原来如此<img src="https://static.stage1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">失算了（
 
+
+*****
+
+####  帆前  
+##### 359#       发表于 2026-8-18 02:08
+
+不过购物袋也完全可以说是去蛋糕店买东西留下的吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，小子运气挺好（
+
