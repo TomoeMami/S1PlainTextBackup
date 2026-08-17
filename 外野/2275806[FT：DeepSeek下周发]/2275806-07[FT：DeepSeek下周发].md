@@ -3253,3 +3253,68 @@ opencode go这档子事其实很微妙，他们之前应该只是还在测试，
 
 现在最搞笑的是opencode go这个涨价事前完全没有风声，大家看dax信心满满的还以为他会维持原价，没想到17号晚上就突然跟着涨了，就显得特别怂<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 9176#       发表于 2026-8-17 18:18
+
+别想太多了，模型规模越做越大，硬件也越来越贵，涨价是大势所趋。倒不如说已经涨了大半年了
+
+*****
+
+####  冤枉呐  
+##### 9177#       发表于 2026-8-17 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095291&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-17 18:13</a>
+opencode go这档子事其实很微妙，他们之前应该只是还在测试，要真正大规模放开给用户用估计还有距离，然后d ...</blockquote>
+他价格了不得比官方低10%
+他能做慈善呐？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  zhongjie  
+##### 9178#       发表于 2026-8-17 18:23
+
+ 本帖最后由 zhongjie 于 2026-8-17 18:26 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095276&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-8-17 18:11</a>
+风神那个套，首先有是用在FLASH MAX上，PRO MAX上起了一点用，但几乎可以忽略。
+pro max真正有用的是用j- ...</blockquote>jspace说是烂炒，现在token贵了我还没测试。
+下面这个是我结合楼上说的插件做的插件，感觉有一些效果：
+https://github.com/zhongjie10086/dsh-adaptive-native-standard
+下面是我的测试： 
+
+<img src="https://img.stage1st.com/forum/202608/17/182609gl93vssomtjtu9vs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (120.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 18:26 上传
+
+——来自 AAP-AN00 上的 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  zack1999  
+##### 9179#       发表于 2026-8-17 18:24
+
+dax自己吹牛吹大了，很多人信了都，这波被喷纯属活该
+
+这是他6号自己发的，让谁看都觉得是他们能成功复现了 <blockquote>on the upcoming deepseek price increase
+
+we've been able to reproduce their current prices even on rented GPUs
+
+so this likely isn't because they're "losing money" it's traffic shaping because they are overloaded
+
+关于即将到来的 DeepSeek 价格上涨
+
+我们已经能够在租用的 GPU 上重现他们当前的价格
+
+所以这很可能不是因为他们“在亏钱”，这是流量整形，因为他们超载了
+
+下午10:49 · 2026年8月6日</blockquote>
+
