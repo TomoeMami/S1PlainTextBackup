@@ -1839,3 +1839,59 @@ workbuddy的v4f涨了60%，还是最低的那一档，还可以
 
 正式版的破甲倒是简单了很多
 
+
+*****
+
+####  Rowen233  
+##### 9052#       发表于 2026-8-17 12:57
+
+mimo是继续保持这个价格还是未来直接跟或者出个小迭代再涨价<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 9053#       发表于 2026-8-17 13:01
+
+雷神家也有后训练仙人么<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，pro再半成品，说是个旗舰模型毫不为过，flash的性能更是堪称魔法。
+这能做出来这个级别的模型，雷神早就开炒了吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  是挞不是派  
+##### 9054#       发表于 2026-8-17 13:01
+
+dsh有啥好用插件整合吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  serj005  
+##### 9055#       发表于 2026-8-17 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70093002&amp;ptid=2275806" target="_blank">是挞不是派 发表于 2026-8-17 13:01</a>
+dsh有啥好用插件整合吗
+
+—— 来自 鹅球 v3.5.99</blockquote>
+dsh现在这个本体完成度都还差很远，大小bug一堆，插件更不用说了，还是等更新先用其他成熟产品吧
+
+
+*****
+
+####  goranger  
+##### 9056#       发表于 2026-8-17 13:05
+
+已经转战codex，勿念
+
+*****
+
+####  小野賢章  
+##### 9057#       发表于 2026-8-17 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092759&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-17 12:26</a>
+
+为了保障服务稳定平滑，再引入期货理念吧，可以花钱锁定一周后某时段的算力 ...</blockquote>
+梁子本行，我觉得未来真有可能会这样，类似现在云厂商spot实例<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
