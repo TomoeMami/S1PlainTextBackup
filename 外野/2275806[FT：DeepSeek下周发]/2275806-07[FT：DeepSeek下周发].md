@@ -2520,3 +2520,16 @@ token消耗量其实大部分还是agent试错环节消耗太多token，要是�
 
 新价格生效当天，opencode go套餐里，DeepSeek-V4-Flash模型5小时的调用量，从63300次掉到3800次，缩水约94%。
 
+
+*****
+
+####  舞以  
+##### 9110#       发表于 2026-8-17 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70093522&amp;ptid=2275806" target="_blank">Gir4ff3 发表于 2026-8-17 14:25</a>
+直接play商店给chatgpt打钱能不能跳过那个电话验证</blockquote>
+还是看你账号和网络本身吧，触发了风控就是登录就要求手机号验证。
+我的号是老号，一直没绑手机，订阅走的外区AppStore
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
