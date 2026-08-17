@@ -1350,3 +1350,63 @@ deepwrite免费模型发送！助力大家创作！ https://xhslink.cn/o/HJPjPlE
 gemini现在9块钱一年半还要啥自行车，其实主要问题还是真要跑长团，gemini3.7flash的对话额度还是不太够用 ...</blockquote>
 请问这个9块钱一年半是啥渠道的？支持api调用么？
 
+
+*****
+
+####  lubo  
+##### 9003#       发表于 2026-8-17 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092050&amp;ptid=2275806" target="_blank">贝恩德塔 发表于 2026-8-17 10:58</a>
+
+不是heavy才送的吗，heavy都300刀了</blockquote>
+昨天有bug，heavy100刀的特别优惠可以用于一整年。100多亿tokens+grok bot的8核高配云电脑，月费不到100刀，香疯了
+
+*****
+
+####  crow_wine  
+##### 9004#       发表于 2026-8-17 11:20
+
+这下是流浪地鲸了<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  真红之闪电  
+##### 9005#       发表于 2026-8-17 11:22
+
+讲道理，该用的都还用
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  huansnow  
+##### 9006#       发表于 2026-8-17 11:22
+
+Ds写文和角色扮演最好用的还是3.2(虽然八股用词还是有不少)，发散性强，能充分明白你的意图并进行补充发挥，不像v4一板一眼的，很吃指令，还更像agent助手
+
+
+*****
+
+####  绝地潜兵  
+##### 9007#       发表于 2026-8-17 11:25
+
+卧草，基元律动的0731/0813马上跟着同步涨价
+
+*****
+
+####  舞以  
+##### 9008#       发表于 2026-8-17 11:26
+
+有价不涨神经病了这下<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  绝地潜兵  
+##### 9009#       发表于 2026-8-17 11:27
+
+白山智算的暂时还没涨，而且还能用3.2
+
