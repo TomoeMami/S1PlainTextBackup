@@ -3820,3 +3820,14 @@ github也挂了，今天挂的服务怎么这么多
 
 前面有人说涨价后这个楼可能会变冷清，结果我就一天没看楼，点进来你们直接刷了10页<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tonyunreal  
+##### 9231#       发表于 2026-8-17 22:29
+
+正在dsh的仓库里翻怎么解决openai 400的问题
+github就挂了
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
