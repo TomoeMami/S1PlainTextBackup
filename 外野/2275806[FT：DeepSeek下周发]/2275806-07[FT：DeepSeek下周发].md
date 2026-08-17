@@ -978,3 +978,181 @@ opencode去买点rubin架v4flash啊，牢梁也可以去蹭蹭，不比华为那
 
 我是50买的，没找到同事说的20多一年的，不过也差不多了，性价比的神。而且日常问题我挺喜欢问gemini的，感觉发挥比gpt稳定
 
+
+*****
+
+####  crow_wine  
+##### 8969#       发表于 2026-8-17 10:38
+
+试了下本地4090单卡 千问 3.8 max，只能64k上下文，没有什么实用价值啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空き地卯木  
+##### 8970#       发表于 2026-8-17 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091780&amp;ptid=2275806" target="_blank">贝恩德塔 发表于 2026-8-17 10:34</a>
+话说一直不明白grok有性价比的选择的说法哪来的，如果不用生图生视频，基础额度就要花30刀还只有对话额度5 ...</blockquote>
+同事在当印度人，听说是便宜很多
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8971#       发表于 2026-8-17 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091820&amp;ptid=2275806" target="_blank">贝恩德塔 发表于 2026-8-17 10:37</a>
+3.7flash还可以，3.6flash的确蛆，除了快就是豆包那种，3.7flash起码正常用没啥问题了 ...</blockquote>
+我还在一直用3.1 Pro。3.7Flash出了我还没点开APP看过
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  贝恩德塔  
+##### 8972#       发表于 2026-8-17 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091850&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-17 10:39</a>
+
+我还在一直用3.1 Pro。3.7Flash出了我还没点开APP看过
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4 ...</blockquote>
+3.1pro早就不行了，日常用3.7flash可以说完爆3.1pro，继承了3.6flash的快，在智商上比3.1pro好很多，毕竟已经是不同架构模型了，就算是agent方面也优化了不少（当然应该没人用gemini做应用吧）
+
+*****
+
+####  nxmonitor  
+##### 8973#       发表于 2026-8-17 10:41
+
+grok有什么意义？4.6又旧病复发刷分了，还是上插件用V4F吧……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  crow_wine  
+##### 8974#       发表于 2026-8-17 10:42
+
+像一个梦结束了，难道又要给o/送钱吗，这种事情不要呀，而且 gpt plus 用来开发根本不够，还降智。20x 我还不如硬上牢梁<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8975#       发表于 2026-8-17 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091858&amp;ptid=2275806" target="_blank">贝恩德塔 发表于 2026-8-17 10:40</a>
+3.1pro早就不行了，日常用3.7flash可以说完爆3.1pro，就算是agent方面也优化了不少（当然应该没人用gemin ...</blockquote>
+这么强吗？当时3.1flash给我留下的印象非常差。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  冤枉呐  
+##### 8976#       发表于 2026-8-17 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091649&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-17 10:26</a>
+https://github.com/worldwonderer/oh-story-claudecode
+用这套工具里的拆书把小说拆解成工作结构，然后 ...</blockquote>
+我觉得知识库主要是为了省钱吧……
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  →熙←  
+##### 8977#       发表于 2026-8-17 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091586&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-17 10:21</a>
+
+按他这个额度涨了应该也有5亿左右，蹬的不狠应该够了，毕竟难的任务可以切glm ...</blockquote>
+算了一下, 98%缓存  输出1%算
+
+各套餐实际每百万词元（1M tokens）价格对比
+
+套餐        计费类型        活动价（¥/月）        原价（¥/月）
+
+基础版 (60,000积分)        单价（每积分）        0.0005000 元        0.0008333 元
+
+▶ 缓存输入        0.0155 元（1.55分）        0.0258 元（2.58分）
+
+▶ 普通输入        0.7715 元（7角7分）        1.2858 元（1元2角9分）
+
+▶ 普通输出        1.5430 元（1元5角4分）        2.5717 元（2元5角7分）
+
+标准版 (240,000积分)        单价（每积分）        0.0004583 元        0.0007708 元
+
+▶ 缓存输入        0.0142 元（1.42分）        0.0239 元（2.39分）
+
+▶ 普通输入        0.7072 元（7角1分）        1.1895 元（1元1角9分）
+
+▶ 普通输出        1.4144 元（1元4角1分）        2.3787 元（2元3角8分）
+
+高级版 (600,000积分)        单价（每积分）        0.0004417 元        0.0007333 元
+
+▶ 缓存输入        0.0137 元（1.37分）        0.0227 元（2.27分）
+
+▶ 普通输入        0.6816 元（6角8分）        1.1315 元（1元1角3分）
+
+▶ 普通输出        1.3632 元（1元3角6分）        2.2629 元（2元2角6分）
+
+套餐        月积分        综合消耗(积分/百万词元)        月度总词元量        折合 亿字（约）
+
+基础版        60,000        91.49        ≈ 655.8 百万词元        ≈ 6.56 亿
+
+标准版        240,000        91.49        ≈ 2,623.2 百万词元        ≈ 26.23 亿
+
+高级版        600,000        91.49        ≈ 6,558.1 百万词元        ≈ 65.58 亿
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8978#       发表于 2026-8-17 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091871&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-17 10:42</a>
+像一个梦结束了，难道又要给o/送钱吗，这种事情不要呀，而且 gpt plus 用来开发根本不够，还降智。20x 我还 ...</blockquote>
+那不还有5x嘛
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  Freewolf  
+##### 8979#       发表于 2026-8-17 10:45
+
+有人知道国超算的token plan里有d4p0813吗？我看他的可用模型里没有，但积分抵扣规则里有d4p
+<img src="https://p.sda1.dev/34/c9d260c44a7d1c7fb7a60d73d40c0787/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  贝恩德塔  
+##### 8980#       发表于 2026-8-17 10:45
+
+ 本帖最后由 贝恩德塔 于 2026-8-17 10:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091880&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-17 10:42</a>
+
+这么强吗？当时3.1flash给我留下的印象非常差。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0 ...</blockquote>
+老flash最大的问题其实是它与其联网搜问题，更倾向于用自身知识库找问题，完全浪费了google本身应该具有的庞大的搜索库，观察了几天，感觉3.7flash好了不少，在综合性能上，3.7flash早就完爆了3.1pro吧，毕竟架构升级已经算得上换代了
+
+*****
+
+####  站立风景  
+##### 8981#       发表于 2026-8-17 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091644&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-8-17 10:26</a>
+
+新价格还没用，看了下还剩20块钱，GPT我用中行JCB信用卡貌似订阅不了，还得靠淘宝嘛 ...</blockquote>
+gpt不接受中国信用卡。
+
+如果只是plus的话应该可以用移动端支付，小红书有不少教程。我记得好像是啥新加坡区？
+
+pro就没办法了。
+
+*****
+
+####  蛋黄酱Release  
+##### 8982#       发表于 2026-8-17 10:48
+
+看了一圈感觉小规模使用执行还是v4f（非高峰）划算<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+决策用v4p就已经有点贵了，glm5.3会比v4p解放上限强的多吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
