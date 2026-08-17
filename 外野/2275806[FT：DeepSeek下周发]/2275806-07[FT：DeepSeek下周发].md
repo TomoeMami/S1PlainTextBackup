@@ -3888,3 +3888,19 @@ dsh的0.1.0rc7都是小更新，大痛点没解决，先把极简模式在window
 
 想想最近 qwen 3.8 27b 的效果，连在本地跑的模型都进步神速，token 价格将来总会降的，只是要等一个月还是两个月的区别而已<img src="https://static.stage1st.com/image/smiley/face/56.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bartholo4  
+##### 9239#       发表于 2026-8-18 00:18
+
+装 git  for windows 不是就可以用极简模式了？
+
+
+*****
+
+####  唠叨  
+##### 9240#       发表于 2026-8-18 00:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">官方flash的api真快啊  go的慢死了 浪费我的生命 
+
