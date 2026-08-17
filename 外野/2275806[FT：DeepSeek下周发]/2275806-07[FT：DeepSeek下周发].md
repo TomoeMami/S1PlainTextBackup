@@ -4053,3 +4053,13 @@ TIMEOUT_SIGNAL
 
 APP免费版和API都可用
 
+
+*****
+
+####  dear81  
+##### 9251#       发表于 2026-8-18 06:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70096506&amp;ptid=2275806" target="_blank">zy450 发表于 2026-8-17 22:10</a>
+目前V4F+插件+GRELL-ME感觉还挺舒服的，速度快真是一大优势</blockquote>
+什么优势都抵不过价格啊
+
