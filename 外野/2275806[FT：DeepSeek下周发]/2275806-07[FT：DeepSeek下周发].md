@@ -93,3 +93,35 @@ peak-pricing.ts
 
 目前看涨价后,对于使用harness的轻量级用户那种许愿式编程不行了,真的贵啊
 
+
+*****
+
+####  里奥哟西  
+##### 8887#       发表于 2026-8-17 08:55
+
+中国的程序员是不是最被歧视同时也是最贱的？<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  misuzu0723  
+##### 8888#       发表于 2026-8-17 08:58
+
+<img src="https://p.sda1.dev/34/1a32bff3f99ce9091cd6068fb0a5dc3e/image.jpg" referrerpolicy="no-referrer">看了下 openrouter 上，未量化 1mb 上下文的 flash 差不多能做到 0.5 左右 的输入 1.1 左右 的输出，就是缓存还是贵了些
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  卡普空  
+##### 8889#       发表于 2026-8-17 09:01
+
+open code go还能继续爽蹬吗
+
+*****
+
+####  泰坦失足  
+##### 8890#       发表于 2026-8-17 09:02
+
+发现ChatGPT web版 + Github Repo的读写检索能力能作为一个不错的内容管理笔记. 比如我刚和GPT讨论了一套解决方案计划, 就可以直接让gpt 更新某个repo里的txt文件, 把计划都写进去. 以后让gpt读这个repo里就能检索到这个计划. 不用依赖GPT的搜索/记忆/最近对话作为上下文的能力.
+
