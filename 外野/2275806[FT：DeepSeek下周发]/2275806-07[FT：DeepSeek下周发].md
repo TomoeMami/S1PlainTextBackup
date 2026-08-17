@@ -2533,3 +2533,31 @@ token消耗量其实大部分还是agent试错环节消耗太多token，要是�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  tonyunreal  
+##### 9111#       发表于 2026-8-17 15:07
+
+试了一个国内的中转站，试之前显示比ds官方便宜
+试一半觉得扣费不对劲，再刷新一下价格表变成跟官方一样了
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  crow_wine  
+##### 9112#       发表于 2026-8-17 15:10
+
+在试国算平台的glm5.2, 这一串的let me，but wait看得有点不舒服，也只能凑合着用了
+
+
+*****
+
+####  crow_wine  
+##### 9113#       发表于 2026-8-17 15:13
+
+<blockquote>åç ee9e517 åºçº¿ç DoIntersections åç¸å³ç»æï¼ç¡®è®¤åå§æµç¨ã</blockquote>
+glm 这乱码真的绷不住<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
