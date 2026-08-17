@@ -3718,3 +3718,30 @@ glm 5.2的智力感觉是真不行
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  千千千千鸟  
+##### 9219#       发表于 2026-8-17 21:31
+
+还行，直接购入GPT了，有必要使用CODEX吗，原本是用PI的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zhongjie  
+##### 9220#       发表于 2026-8-17 21:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70096346&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-8-17 21:31</a>
+
+还行，直接购入GPT了，有必要使用CODEX吗，原本是用PI的</blockquote>
+codex的自动压缩很好用，pi我还没用过
+
+*****
+
+####  neptunehs  
+##### 9221#       发表于 2026-8-17 21:34
+
+话说 现在还有nvidia跟amd的羊毛吗？
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

@@ -13540,3 +13540,39 @@ IGN上了中文版CM
 
 被召唤过来的人年龄都是五年前原本的岁数
 
+
+*****
+
+####  bbluekid  
+##### 2754#       发表于 2026-8-17 21:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70096303&amp;ptid=2261859" target="_blank">风使塞缇 发表于 2026-8-17 21:23</a>
+
+真有五年后【长大】的环节，时间线上就说不通了
+
+确定不是因为转职才发生了模型的变化么
+
+================== ...</blockquote>
+转职一般是不会变更发型的
+
+
+*****
+
+####  北条早苗  
+##### 2755#       发表于 2026-8-17 21:31
+
+这次的PV基本就告诉你四主角的魂焰能力都是boss给的了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ywll  
+##### 2756#       发表于 2026-8-17 21:32
+
+<blockquote>风使塞缇 发表于 2026-8-17 21:23
+真有五年后【长大】的环节，时间线上就说不通了
+
+确定不是因为转职才发生了模型的变化么
+
+================== ...</blockquote>
+截图里小孩哥都明显个头长大了
+
