@@ -2784,3 +2784,31 @@ command code那个goat好像涨得不多，有人用过吗？
 那就是全世界都在蹬他, 但是他顶住了, 这是真nb ...</blockquote>
 明显是加了几波机器的，被蹬崩了几次了。现在这样涨价明显就是那几次内部已经把研究用的资源都交出去了。<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  falsethen  
+##### 9136#       发表于 2026-8-17 16:17
+
+最近搞了咸鱼超便宜的GOOGLE ONE，cli proxy反代反重力出来弄hermes，再也不心疼TOKEN费了
+
+*****
+
+####  LeoDT  
+##### 9137#       发表于 2026-8-17 16:20
+
+刚才去看了看DwarfStar本地部署D老师的方案，这MBP M5 Max买下来要五万多，效果次一点的GB10要三万多，继续用官方满血版一个月几百块的话，能用好几年，而且花几万了都还只能用quantized到2 bit的版本。唉，看上去还是只能错峰了，这涨价真是，搞得回车都不是很敢按了。
+
+ChatGPT Plus看上去只用Luna的话也够用，但是Luna跟Flash完全不能比的感觉，配合Sol的话肯定就不够用了，唉，再找几个任务试试Luna吧。
+
+
+*****
+
+####  onezer0618  
+##### 9138#       发表于 2026-8-17 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70094407&amp;ptid=2275806" target="_blank">falsethen 发表于 2026-8-17 16:17</a>
+
+最近搞了咸鱼超便宜的GOOGLE ONE，cli proxy反代反重力出来弄hermes，再也不心疼TOKEN费了 ...</blockquote>
+求指导，我也弄个闲鱼那个gemini的订阅
+
