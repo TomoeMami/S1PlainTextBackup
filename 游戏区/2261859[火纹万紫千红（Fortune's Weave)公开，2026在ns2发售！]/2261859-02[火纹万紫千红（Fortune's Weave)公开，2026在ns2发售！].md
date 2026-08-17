@@ -13236,3 +13236,15 @@ A少那个副官居然发言还挺正派的。
 招募相关</blockquote>
 感觉这个消息不对吧，巴西初音怎么看都是A少的强绑定队友，不可能跳槽到别的队去
 
+
+*****
+
+####  灼眼的蔬菜达人  
+##### 2725#       发表于 2026-8-17 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092535&amp;ptid=2261859" target="_blank">hkguty 发表于 2026-8-17 11:54</a>
+好像有个媒体说他是喜欢阿鲁卡多的给，不知道我有没有看错</blockquote>
+我记得有媒体说很多角色都会吐槽阿鲁卡多嗜血狂战性格，但吐槽的时候都会忍不住插一句“他那么美，算了，不说他了，他有理”<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24090RA29C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

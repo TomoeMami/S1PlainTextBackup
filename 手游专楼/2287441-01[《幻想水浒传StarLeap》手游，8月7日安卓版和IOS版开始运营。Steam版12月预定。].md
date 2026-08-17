@@ -661,3 +661,13 @@ steam开服以后是互通吗还是独立的
 第一次看到没有每日登录奖励的手游，第一次看到活动奖励这么夸张的手游………… ...</blockquote>
 其实是有每日登录奖励的，但是时间比较迷，我一般是接近傍晚才会有
 
+
+*****
+
+####  fredfei  
+##### 50#       发表于 2026-8-17 14:22
+
+这概率是调过了么，前40抽10连全是1ssr+1~2sr，然后就是30抽全是r连sr都没。<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PLR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
