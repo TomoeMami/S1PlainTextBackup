@@ -3944,3 +3944,33 @@ dsh的0.1.0rc7都是小更新，大痛点没解决，先把极简模式在window
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  cscbzcbz  
+##### 9244#       发表于 2026-8-18 00:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70097057&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-18 00:33</a>
+好想用 pro ，glm 用得脑壳疼，看他那左右脑互搏的思维链头大
+
+—— 来自 HUAWEI ALN-AL00, Android 12, 鹅 ...</blockquote>
+glm用过一次，印象极差，反正我是不会再用了
+kimi coding plan又不开放买
+大肥鱼真的好贵
+
+只能GPT了<img src="https://static.stage1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">哎
+
+*****
+
+####  海德先生  
+##### 9245#       发表于 2026-8-18 00:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">opencodego的额度要跑完了，我的黄金时代结束了
+
+*****
+
+####  孤灯蓝影  
+##### 9246#       发表于 2026-8-18 00:47
+
+今天调个图flash花了我十多块，以前三块就能拿下的，什么时候才能降价啊
+
