@@ -3190,3 +3190,41 @@ CheepSeek 进度更新
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ZBY901026  
+##### 9171#       发表于 2026-8-17 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091492&amp;ptid=2275806" target="_blank">贝恩德塔 发表于 2026-8-17 10:12</a>
+
+gemini现在9块钱一年半还要啥自行车，其实主要问题还是真要跑长团，gemini3.7flash的对话额度还是不太够用 ...</blockquote>
+你这是反代理还是直接用网页版的3.7?
+
+现在谷歌卡 antigravity 验证卡的挺严的 我三个号全被风控了 有点烦 还要重新验证手机号
+
+*****
+
+####  来都来了  
+##### 9172#       发表于 2026-8-17 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095051&amp;ptid=2275806" target="_blank">城北无尘 发表于 2026-8-17 17:34</a>
+又说做不到了</blockquote>
+这炒作狗闹麻了，从头到尾都在转发Deepseek的官方API，搞得好像他们自己很厉害一样。
+
+
+*****
+
+####  冤枉呐  
+##### 9173#       发表于 2026-8-17 18:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095051&amp;ptid=2275806" target="_blank">城北无尘 发表于 2026-8-17 17:34</a>
+又说做不到了</blockquote>
+就是也想涨价嘛
+没毛病，商人求利
+赶紧把用户弄走就行了
+我还期待蹬他的人少了以后官方折扣呢
+还有一招，美国把ds墙了得了。
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
