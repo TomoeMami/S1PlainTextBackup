@@ -3657,3 +3657,13 @@ minimax有没有小道消息？有点想预防性购入plan了</blockquote>
 
 也不是完全没好处，至少现在官方的api配上dsh速度真的超级快<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  crow_wine  
+##### 9212#       发表于 2026-8-17 20:59
+
+真的哀鸿遍野了
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
