@@ -225,3 +225,35 @@ token自由时代应该结束了。
 
 现在也只能说是补贴到头了。
 
+
+*****
+
+####  serj005  
+##### 8900#       发表于 2026-8-17 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70090953&amp;ptid=2275806" target="_blank">科技新闻搬运工 发表于 2026-8-17 09:19</a>
+完全不懂的小白进来问一下，是不是用那个WSL部署DSH，然后再上某插件，就可以开启DS V4的觉醒模式了？
+
+ ...</blockquote>
+wsl和插件都不是必要的，重点是v4pro要在dsh极简模式的提示词下运行。
+只是dsh极简模式目前不支持直接从windows环境调用git bash，所以很多人用wsl把dsh运行在linux虚拟机上解决bash的问题（这个有很多其他解法，wsl不是唯一选择），插件也只是为了模拟极简模式的初始提示词，直接运行极简模式就是完全体，代价就是没法用skill、mcp、插件等额外工具。
+
+*****
+
+####  冤枉呐  
+##### 8901#       发表于 2026-8-17 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70090977&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-8-17 09:21</a>
+
+求一下！</blockquote>
+等等啊，我让flash打个包，说明一下依赖，你给我个邮箱地址
+
+*****
+
+####  qwased  
+##### 8902#       发表于 2026-8-17 09:29
+
+https://www.scnet.cn/ac/openapi/doc/2.0/moduleapi/plans/token-plan.html
+
+有人用过超算的0731flash吗，说是30块钱能蹬15亿左右
+
