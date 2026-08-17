@@ -13225,3 +13225,14 @@ A少那个副官居然发言还挺正派的。
 
 虽然现在能回溯，但战场复杂性其实也提高了。
 
+
+*****
+
+####  thecatnie  
+##### 2724#       发表于 2026-8-17 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70087476&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-8-16 18:51</a>
+
+招募相关</blockquote>
+感觉这个消息不对吧，巴西初音怎么看都是A少的强绑定队友，不可能跳槽到别的队去
+
