@@ -3641,3 +3641,11 @@ minimax有没有小道消息？有点想预防性购入plan了</blockquote>
 
 [@bartholo4](https://stage1st.com/2b/home.php?mod=space&amp;uid=220011) 我对比了一下记录，如果只是要let me消失，Anchored最有用。
 
+
+*****
+
+####  德尔惠净水器  
+##### 9210#       发表于 2026-8-17 20:45
+
+基元上的deepseekv4flash是预览版的吗
+
