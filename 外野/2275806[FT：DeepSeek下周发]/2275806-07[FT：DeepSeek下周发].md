@@ -3880,3 +3880,11 @@ dsh的0.1.0rc7都是小更新，大痛点没解决，先把极简模式在window
 ####  spaceblue  
 ##### 9237#       发表于 2026-8-17 23:40
 
+
+*****
+
+####  zyjzhzyh  
+##### 9238#       发表于 2026-8-18 00:03
+
+想想最近 qwen 3.8 27b 的效果，连在本地跑的模型都进步神速，token 价格将来总会降的，只是要等一个月还是两个月的区别而已<img src="https://static.stage1st.com/image/smiley/face/56.gif" referrerpolicy="no-referrer">
+
