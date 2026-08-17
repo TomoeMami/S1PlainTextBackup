@@ -3345,3 +3345,35 @@ Glm写文一直都挺一般的，过于注重coding能力导致ai会忍不住解
 
 200k的上下文首token就得快一分钟了,基本没法用的级别了
 
+
+*****
+
+####  Freewolf  
+##### 9182#       发表于 2026-8-17 18:38
+
+借楼问下想在ssh远程连接的服务器上用agent有没有什么好办法，最好是一边是ssh窗口，一边是ai对话框，agent能读取ssh内容并输入命令，模型请求从本地发出
+
+
+*****
+
+####  zhongjie  
+##### 9183#       发表于 2026-8-17 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095439&amp;ptid=2275806" target="_blank">Freewolf 发表于 2026-8-17 18:38</a>
+借楼问下想在ssh远程连接的服务器上用agent有没有什么好办法，最好是一边是ssh窗口，一边是ai对话框，agent ...</blockquote>
+让deepseek harness创造模式给你造个轮子？看看插件market有没有什么值得用的
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  Freewolf  
+##### 9184#       发表于 2026-8-17 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095480&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-8-17 18:44</a>
+
+让deepseek harness创造模式给你造个轮子？看看插件market有没有什么值得用的
+
+—— 来自 HONOR AAP-AN00 ...</blockquote>
+我先去试试现成的轮子，ds涨价后已经不敢随便自己造轮子了（悲
+
