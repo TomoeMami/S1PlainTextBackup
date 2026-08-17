@@ -1307,3 +1307,46 @@ deepwrite免费模型发送！助力大家创作！ https://xhslink.cn/o/HJPjPlE
 不是heavy才送的吗，heavy都300刀了</blockquote>
 昨天晚上有heavy一百刀，有的用户有效期3个月，有的用户有效期6个月。
 
+
+*****
+
+####  cube  
+##### 8999#       发表于 2026-8-17 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092079&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-17 11:01</a>
+
+我升级了199的kimi订阅，感觉还挺耐用的不过我每周只用3天左右。</blockquote>
+然而kimi现在把会员窗口关了。
+
+后面会不会涨价也不好说，我没续上。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七氷  
+##### 9000#       发表于 2026-8-17 11:10
+
+好日子还会有吗，华子那一万张到了还能再降吗<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RookieTnT  
+##### 9001#       发表于 2026-8-17 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092160&amp;ptid=2275806" target="_blank">cube 发表于 2026-8-17 11:10</a>
+
+然而kimi现在把会员窗口关了。
+
+后面会不会涨价也不好说，我没续上。</blockquote>
+只要新注册一个号，然后在预约的时候选择科研用途就可以订阅了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddr712  
+##### 9002#       发表于 2026-8-17 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091492&amp;ptid=2275806" target="_blank">贝恩德塔 发表于 2026-8-17 10:12</a>
+
+gemini现在9块钱一年半还要啥自行车，其实主要问题还是真要跑长团，gemini3.7flash的对话额度还是不太够用 ...</blockquote>
+请问这个9块钱一年半是啥渠道的？支持api调用么？
+
