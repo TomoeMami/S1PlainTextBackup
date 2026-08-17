@@ -2642,3 +2642,11 @@ GPT靠谱点的低价一手渠道是微软azure云给的企业订阅额度，因
 假如国内有的话大概也是某个 ...</blockquote>
 我们用就是azure的，sol 10$/M，terra 5$/M<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  当光停止  
+##### 9122#       发表于 2026-8-17 15:28
+
+mino3似乎要发了
+
