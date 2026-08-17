@@ -13449,3 +13449,20 @@ IGN上了中文版CM
 
 法比奥人气好像真挺高啊，x上看到好多喜欢的
 
+
+*****
+
+####  bbluekid  
+##### 2744#       发表于 2026-8-17 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095636&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-8-17 19:13</a>
+法比奥人气好像真挺高啊，x上看到好多喜欢的</blockquote>
+主打一个反差，一个弟弟人出生的暗法师居然说那么热血的台词。
+
+*****
+
+####  纪寞  
+##### 2745#       发表于 2026-8-17 19:33
+
+今天pv苏谛斯说让 光明再次照亮被囚禁在黑暗中的大地 的这份工作太适合主角了，而神威法王就是太阳神，这个对应关系，再加上专属武器完全相同，感觉 主角确实就是神威法王转世没跑了。我们真要迎来第一位 能变性 的主角吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
