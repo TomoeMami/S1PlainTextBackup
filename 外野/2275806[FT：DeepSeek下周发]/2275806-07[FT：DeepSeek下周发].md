@@ -1602,3 +1602,34 @@ DSH配超算API，服务商选哪个？有大佬指点下吗？</blockquote>
 
 —— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  overflowal  
+##### 9029#       发表于 2026-8-17 12:06
+
+还真是不要打扰agi训练了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  love4aids  
+##### 9030#       发表于 2026-8-17 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092602&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-8-17 12:03</a>
+
+这是哪个站，我也去测试一下
+
+—— 来自 HONOR AAP-AN00, Android 16, 鹅球 v4.0</blockquote>
+[https://codexradar.com/](https://codexradar.com/)雷达站
+
+*****
+
+####  ZinGer_KyoN  
+##### 9031#       发表于 2026-8-17 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092592&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-8-17 12:02</a>
+这个分数是不是算上稳定了，加了插件后，ds4p明显好起来了，不会出现落后于flash的情况了 ...</blockquote>
+目前dsh用哪个插件？看到有好多不同版本的，anchored还有router什么的
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
