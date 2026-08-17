@@ -3005,3 +3005,61 @@ workbuddy的auto模式还有Claude呢？</blockquote>
 感觉glm5.2有点蛆，为什么超算平台没有 v4 pro 正式版</blockquote>
 5.2都很早了，5.3还是可以的
 
+
+*****
+
+####  qwased  
+##### 9154#       发表于 2026-8-17 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70094782&amp;ptid=2275806" target="_blank">流缨 发表于 2026-8-17 17:00</a>
+
+迁移到wsl了，这极简模式也没触发啊还有什么我不知道的吗？基元律动的羊毛还没蹬完，但感觉撑不了多久了 ...</blockquote>
+基元的api有注入提示词，极简模式触发不了思维链的，用那个routing suit可以强制触发不过会导致上下文命中率变低
+
+*****
+
+####  北呱南飞去  
+##### 9155#       发表于 2026-8-17 17:18
+
+之前没怎么注意价格，今天用了才发现涨价是真狠啊，修改了两个 bug 就花了9块钱，我第一次充20块钱用了快一个月啊
+
+
+*****
+
+####  zxtree  
+##### 9156#       发表于 2026-8-17 17:22
+
+哎，该戒奶茶咖啡了
+
+*****
+
+####  蛋黄酱Release  
+##### 9157#       发表于 2026-8-17 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70094920&amp;ptid=2275806" target="_blank">北呱南飞去 发表于 2026-8-17 17:18</a>
+之前没怎么注意价格，今天用了才发现涨价是真狠啊，修改了两个 bug 就花了9块钱，我第一次充20块钱用了快一 ...</blockquote>
+绝大多数都是缓存命中，v4p的缓存命中高峰期可是涨了12倍<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斯卡文分则能成  
+##### 9158#       发表于 2026-8-17 17:25
+
+生ppt的图的除了gpt还有啥啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+要在openrounter上充值嘛
+
+*****
+
+####  @weakb0y  
+##### 9159#       发表于 2026-8-17 17:25
+
+最好的大肥鱼
+
+(2026.04.24~2026.08.16)
+<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+如果能重新定义下半年，或者把灰度鱼变出来再说吧... ...
+
+都没动力去更新dsh里的价格插件了
+

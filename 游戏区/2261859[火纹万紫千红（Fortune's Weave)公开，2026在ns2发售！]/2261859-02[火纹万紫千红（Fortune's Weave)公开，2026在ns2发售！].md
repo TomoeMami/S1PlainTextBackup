@@ -13399,3 +13399,13 @@ A少那个副官居然发言还挺正派的。
 如果后续要购买dlc，日版卡带会有限制吗？</blockquote>
 不影响了，任天堂第一方现在都随便买了，你买乌干达服DLC都没问题，只有异度2这一个奇葩玩意要注意转回港日买升级包和DLC
 
+
+*****
+
+####  57042711  
+##### 2738#       发表于 2026-8-17 17:22
+
+果然火纹还是得有大背头角色啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

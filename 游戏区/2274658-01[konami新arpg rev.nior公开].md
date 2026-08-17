@@ -549,3 +549,24 @@ XB2知名败犬尼亚同款配色
 
 而且这画面卖相真的不行。。。
 
+
+*****
+
+####  头发头发  
+##### 67#       发表于 2026-8-17 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69181507&amp;ptid=2274658" target="_blank">nage560 发表于 2026-2-13 08:34</a>
+
+二次元人设建模目前就破晓和碧蓝relink不错，国产那堆手游过于二次元（萌豚）我是欣赏不来。 ...</blockquote>
+虽然但是，relink也是本质二游改编
+
+*****
+
+####  windaria  
+##### 68#       发表于 2026-8-17 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69183403&amp;ptid=2274658" target="_blank">嘉术2015 发表于 2026-2-13 14:34</a>
+
+现在的日本主机厂是没人会做二次元建模了吗</blockquote>
+没，做起来太费事了，不然也不会被中国二游暴打
+
