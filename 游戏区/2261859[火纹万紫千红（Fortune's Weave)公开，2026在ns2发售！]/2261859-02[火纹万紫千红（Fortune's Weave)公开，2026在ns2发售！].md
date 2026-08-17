@@ -13130,3 +13130,13 @@ A少那个副官居然发言还挺正派的。
 
 邪神属于外星人那边吧，弟弟人也要保护地球不是，不过真提出有脑子还正常的弟弟人，那3房那群神经病就很难说得过去了
 
+
+*****
+
+####  古畑任三郎2015  
+##### 2714#       发表于 2026-8-17 12:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091214&amp;ptid=2261859" target="_blank">thecatnie 发表于 2026-8-17 09:45</a>
+这部不会是火焰纹章人造人篇吧，自捏主角就是特兰克斯，把人救下来后：“五年后将出现一个无比强大的敌人， ...</blockquote>
+修炼完5年被中boss按在地上打那种吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
