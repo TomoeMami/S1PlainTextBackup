@@ -1238,3 +1238,72 @@ deepwrite免费模型发送！助力大家创作！ https://xhslink.cn/o/HJPjPlE
 100刀不就是pro5x的价格嘛、。。。。这个相对比pro5x除了能生视频有啥优势吗 ...</blockquote>
 订阅期间送Cursor Ultra。
 
+
+*****
+
+####  wandeeees  
+##### 8992#       发表于 2026-8-17 10:57
+
+梁子这波涨价赶人应该就是把赶人后腾出来的卡拿去训练了吧，算力不足是真要命啊
+
+*****
+
+####  贝恩德塔  
+##### 8993#       发表于 2026-8-17 10:58
+
+ 本帖最后由 贝恩德塔 于 2026-8-17 11:00 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091999&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-17 10:54</a>
+
+订阅期间送Cursor Ultra。</blockquote>
+不是heavy才送的吗，heavy都300刀了
+
+*****
+
+####  王兰花秀丽  
+##### 8994#       发表于 2026-8-17 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091981&amp;ptid=2275806" target="_blank">airshit 发表于 2026-8-17 10:52</a>
+有什么地方可以用合理的价格买到glm5.3或者kimi k3啊
+
+—— 来自 HUAWEI HOP-AL10, Android 16, 鹅球 v4.0 ...</blockquote>
+火山两百块的pro基本用不完（我是50块买的），但是得开auto，可能会给你路由到豆包，也能直接选glm5.3，体感5小时额度能一直用3小时 [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  卡普空  
+##### 8995#       发表于 2026-8-17 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092033&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-17 10:57</a>
+
+梁子这波涨价赶人应该就是把赶人后腾出来的卡拿去训练了吧，算力不足是真要命啊 ...</blockquote>
+去别的地方玩，不要影响AGI训练.jpg
+
+*****
+
+####  小野賢章  
+##### 8996#       发表于 2026-8-17 11:01
+
+我升级了199的kimi订阅，感觉还挺耐用的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过我每周只用3天左右。
+
+
+*****
+
+####  舞以  
+##### 8997#       发表于 2026-8-17 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091981&amp;ptid=2275806" target="_blank">airshit 发表于 2026-8-17 10:52</a>
+
+有什么地方可以用合理的价格买到glm5.3或者kimi k3啊
+
+—— 来自 HUAWEI HOP-AL10, Android 16, 鹅球 v4.0 ...</blockquote>
+你这不是暗示他们的官方价格不合理<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiaohanne  
+##### 8998#       发表于 2026-8-17 11:06
+
+<blockquote>贝恩德塔 发表于 2026-8-17 10:58
+不是heavy才送的吗，heavy都300刀了</blockquote>
+昨天晚上有heavy一百刀，有的用户有效期3个月，有的用户有效期6个月。
+

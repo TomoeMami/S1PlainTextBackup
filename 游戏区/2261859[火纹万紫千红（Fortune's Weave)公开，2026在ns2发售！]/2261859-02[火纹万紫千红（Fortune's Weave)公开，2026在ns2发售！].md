@@ -13028,3 +13028,30 @@ Nintendo Today更新了CM，任天堂 重新定义 CM，基本上是重新剪的
 
 看来被魔具侵蚀得最轻的应该是凯，他有意识到是危险的力量，侵蚀最深很明显就是舞娘了
 
+
+*****
+
+####  巴尔干炮  
+##### 2705#       发表于 2026-8-17 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092002&amp;ptid=2261859" target="_blank">thecatnie 发表于 2026-8-17 10:54</a>
+
+问题要真是平行世界的话不就和标题的万缕千丝没关系了嘛，就变成四条平行线了 ...</blockquote>
+玛利亚在你玩蕾达线的时候是同伴，但玩A少线作为敌人时就会揭示她的秘密，这个时候再审视她在蕾达线的言行就有意思了。
+
+*****
+
+####  mai6696  
+##### 2706#       发表于 2026-8-17 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092027&amp;ptid=2261859" target="_blank">hkguty 发表于 2026-8-17 10:56</a>
+
+看来被魔具侵蚀得最轻的应该是凯，他有意识到是危险的力量，侵蚀最深很明显就是舞娘了 ...</blockquote>
+A少那个副官居然发言还挺正派的。
+
+是我以貌取人了。
+
+「あなたは獣などではない！人間だ！」
+
+你说得对，但是人类是有极限的。「俺は人間をやめるぞ！」
+
