@@ -2980,3 +2980,28 @@ workbuddy的auto模式还有Claude呢？</blockquote>
 
 迁移到wsl了，这极简模式也没触发啊<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">还有什么我不知道的吗？基元律动的羊毛还没蹬完，但感觉撑不了多久了
 
+
+*****
+
+####  希望之花  
+##### 9151#       发表于 2026-8-17 17:06
+
+现在ds聊天框问个问题先夸你一句？一个一个好的不学学坏的是吧
+
+*****
+
+####  crow_wine  
+##### 9152#       发表于 2026-8-17 17:09
+
+感觉glm5.2有点蛆，为什么超算平台没有 v4 pro 正式版
+
+
+*****
+
+####  蛋黄酱Release  
+##### 9153#       发表于 2026-8-17 17:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70094852&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-17 17:09</a>
+感觉glm5.2有点蛆，为什么超算平台没有 v4 pro 正式版</blockquote>
+5.2都很早了，5.3还是可以的
+
