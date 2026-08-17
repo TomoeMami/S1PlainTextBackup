@@ -3874,3 +3874,9 @@ dsh更新rc7了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html
 
 dsh的0.1.0rc7都是小更新，大痛点没解决，先把极简模式在windows完全不可用这个最严重问题给修了吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">在用户有git bash的情况下默认调用应该不难吧
 
+
+*****
+
+####  spaceblue  
+##### 9237#       发表于 2026-8-17 23:40
+
