@@ -3117,3 +3117,20 @@ grok，但是这个专精擦边人像（
 
 2026-8-17 17:34 上传
 
+
+*****
+
+####  小野賢章  
+##### 9164#       发表于 2026-8-17 17:43
+
+小明是专升本大三，学设计相关的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 9165#       发表于 2026-8-17 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095051&amp;ptid=2275806" target="_blank">城北无尘 发表于 2026-8-17 17:34</a>
+又说做不到了</blockquote>
+幽默<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

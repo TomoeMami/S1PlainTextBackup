@@ -432,3 +432,30 @@ ps：我觉得小出已经很温和了<img src="https://static.stage1st.com/imag
 这片讨论“真实之爱”那王子作为初恋白月光肯定是绕 ...</blockquote>
 就这个集数哪够写这么多七七四十九难<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 343#       发表于 2026-8-17 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095042&amp;ptid=2183857" target="_blank">イシュハラ 发表于 2026-8-17 17:32</a>
+
+就这个集数哪够写这么多七七四十九难</blockquote>
+你不觉得这些很对应嘛？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+比如最开始的失恋的女路人，茉里的哥哥，靠谱的甜品店老板。稍微改一下<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+当然以上纯属胡想没有任何证据<img src="https://static.stage1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  イシュハラ  
+##### 344#       发表于 2026-8-17 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095068&amp;ptid=2183857" target="_blank">leleq 发表于 2026-8-17 17:37</a>
+你不觉得这些很对应嘛？
+
+比如最开始的失恋的女路人，茉里的哥哥，靠谱的甜品店老板。稍微改一下</blockquote>
+就现在这个平缓节奏整这么多复杂关系，写剧本的大脑过载都写不了，加个茉里初恋差不多了，至少有将茉里往恋爱感情方面引，好过只有母亲和拳击，党争入场口都未找到<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
