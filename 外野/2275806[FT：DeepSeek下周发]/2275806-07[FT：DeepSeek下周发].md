@@ -1895,3 +1895,35 @@ dsh现在这个本体完成度都还差很远，大小bug一堆，插件更不�
 为了保障服务稳定平滑，再引入期货理念吧，可以花钱锁定一周后某时段的算力 ...</blockquote>
 梁子本行，我觉得未来真有可能会这样，类似现在云厂商spot实例<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  R.I.P  
+##### 9058#       发表于 2026-8-17 13:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">上周五已严肃接盘咸鱼黄牛的glm老套餐
+
+*****
+
+####  古畑任三郎2015  
+##### 9059#       发表于 2026-8-17 13:20
+
+这对吗，今天是昨天12％的token，账单金额已经比昨天多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  罗莉控  
+##### 9060#       发表于 2026-8-17 13:23
+
+我让DS自己（读本贴）做了一个anchored 模式，在这个模式下都是英文思维链，出现不是we can，这对不对啊
+
+
+*****
+
+####  里奥哟西  
+##### 9061#       发表于 2026-8-17 13:24
+
+还在给梁子洗吗？华为卡到了真的会降价吗？降价了当然梁圣
+
