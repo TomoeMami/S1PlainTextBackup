@@ -3134,3 +3134,59 @@ grok，但是这个专精擦边人像（
 又说做不到了</blockquote>
 幽默<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秦南心  
+##### 9166#       发表于 2026-8-17 17:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">动动手指利润翻番，不可能保持原价
+
+*****
+
+####  坛子漆黑  
+##### 9167#       发表于 2026-8-17 17:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70094778&amp;ptid=2275806" target="_blank">c12hero 发表于 2026-8-17 16:59</a>
+
+以前是真便宜啊，这随便涨涨，就受不了啦。。。以前综合算下来差不多0.07/M token; 现在我看博主用，折算下 ...</blockquote>
+有明确的价格对比,有什么好体感的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛋黄酱Release  
+##### 9168#       发表于 2026-8-17 17:46
+
+有人试过发那个基础系统提示词对于非编程任务的提升如何吗？
+比如说文字处理、翻译等工作之类的，工作流需要接api批量做一些处理，也有很多本地工具可以调用，直接首轮对话都发给v4p是不是会降智
+
+*****
+
+####  冤枉呐  
+##### 9169#       发表于 2026-8-17 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70093465&amp;ptid=2275806" target="_blank">c月光咖啡 发表于 2026-8-17 14:16</a>
+Deepseek V4 Pro-0813：
+
+我的处置方案是：不处置。</blockquote>
+哎哟我欧气，放假放假！
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  goranger  
+##### 9170#       发表于 2026-8-17 17:49
+
+CheepSeek 进度更新
+
+目前已引入大规模 GPU 资源，CheepSeek 第一阶段预计将在近期上线
+
+我们正在持续进行模型部署和稳定性测试
+
+我们会逐步提升 Go 中 Flash 的使用体验和可使用额度
+
+如果近期遇到Flash出现乱码或其他问题，欢迎反馈，这些反馈可以帮助我们进一步优化模型的稳定性
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

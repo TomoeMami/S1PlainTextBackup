@@ -459,3 +459,28 @@ ps：我觉得小出已经很温和了<img src="https://static.stage1st.com/imag
 比如最开始的失恋的女路人，茉里的哥哥，靠谱的甜品店老板。稍微改一下</blockquote>
 就现在这个平缓节奏整这么多复杂关系，写剧本的大脑过载都写不了，加个茉里初恋差不多了，至少有将茉里往恋爱感情方面引，好过只有母亲和拳击，党争入场口都未找到<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 345#       发表于 2026-8-17 17:52
+
+ 本帖最后由 leleq 于 2026-8-17 17:54 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095108&amp;ptid=2183857" target="_blank">イシュハラ 发表于 2026-8-17 17:44</a>
+
+就现在这个平缓节奏整这么多复杂关系，写剧本的大脑过载都写不了，加个茉里初恋差不多了，至少有将茉里往 ...</blockquote>
+我的意思是女路人的故事本来就是茉里的，你看拉拉要找王子一开始就发现茉里喜欢青梅“王子”，拉拉鼓励，告白，失恋是不是特别适合整个主题？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过这么做这年头太危险了。变成女路人就安全多了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+至于另外2个就算是几原也最多半集就被茉里打飞的货而已<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  イシュハラ  
+##### 346#       发表于 2026-8-17 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095175&amp;ptid=2183857" target="_blank">leleq 发表于 2026-8-17 17:52</a>
+我的意思是女路人的故事本来就是茉里的，你看拉拉要找王子一开始就发现茉里喜欢青梅“王子”，拉拉鼓励， ...</blockquote>
+拉拉都有初恋了，明显没觉得这个有危险，多一个又如何<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
