@@ -571,3 +571,76 @@ Gemini的指令遵循和可怜的用户抑制力还是算了吧，真拿来写�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8932#       发表于 2026-8-17 10:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091411&amp;ptid=2275806" target="_blank">贝恩德塔 发表于 2026-8-17 10:04</a>
+我觉得还行，至少跑团方面很不错，sol来跑团太死板了，更明显的其实是角色扮演方面，让扮演猫娘，5.6sol基 ...</blockquote>
+Gpt的训练里二刺螈知识比较少，这个没辙，让它模仿忍杀语重写史记它也是弄的一团糟，gemini就可以很好地模仿忍杀语。这种时候就得靠Agent.MD来帮助它了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  wjxforever  
+##### 8933#       发表于 2026-8-17 10:07
+
+还能降价么，harness出了之后每天许愿的感觉真的很爽啊，希望昇腾交付给点力吧
+
+
+*****
+
+####  muermaru  
+##### 8934#       发表于 2026-8-17 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091368&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-8-17 10:00</a>
+
+我是超细大纲选手，自己写4k字的大纲让ds给扩充到万字左右，前期喂了不少我写的东西，文笔还行，最要命的 ...</blockquote>
+懂你们的意思了，我自己写的时候确实也遇到过。不过这么细节的遇到的比较少，因为每一章的细节我都是和ai讨论很久才定下来的，真有设定冲突的一般都是会当场补进大纲里，再用审稿的方式一个个解决
+
+*****
+
+####  贝恩德塔  
+##### 8935#       发表于 2026-8-17 10:12
+
+gemini现在9块钱一年半还要啥自行车，其实主要问题还是真要跑长团，gemini3.7flash的对话额度还是不太够用，gpt plus的日常对话额度是基本上用不完的，上下文注意力在跑团方面都还行吧，太长都会有点找不准，但是描写丰富程度和世界观塑造，gemini表现的确极其优异
+
+<img src="https://img.stage1st.com/forum/202608/17/101147to7e3ol1ix1711sm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (294.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 10:11 上传
+
+*****
+
+####  jinyu19922011  
+##### 8936#       发表于 2026-8-17 10:13
+
+原来是太便宜了，但是即使涨完价格，依然是所有 api 单独计价 性价比最好的（但相比原来是10-20倍领先），现在只是0.8和1的区别了。再加上coding plan进来竞争的话，chatgpt plus的luna模型是实际的性价比王者。感叹刀法的精准
+
+*****
+
+####  tillnight  
+##### 8937#       发表于 2026-8-17 10:15
+
+<blockquote>Rowen233 发表于 2026-8-17 09:49
+但对于Rudin来说Luna部署成本可能真没那么高</blockquote>
+你在说什么，开了订阅用网页版肯定是sol拉满智商用的，谁会用luna。
+
+*****
+
+####  →熙←  
+##### 8938#       发表于 2026-8-17 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091063&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-17 09:29</a>
+
+https://www.scnet.cn/ac/openapi/doc/2.0/moduleapi/plans/token-plan.html
+
+有人用过超算的0731flash吗， ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 8月11日价格, 还没涨价, 等你买了涨价
+
