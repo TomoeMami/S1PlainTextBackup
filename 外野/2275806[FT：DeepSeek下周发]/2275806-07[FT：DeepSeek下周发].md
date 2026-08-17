@@ -3400,3 +3400,66 @@ Glm写文一直都挺一般的，过于注重coding能力导致ai会忍不住解
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  断片集  
+##### 9187#       发表于 2026-8-17 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095502&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-17 18:49</a>
+
+应该不至于吧，我用glm5.2感觉还好呀。可能我是逐步累积上下文的
+
+—— 来自 HUAWEI ALN-AL00, Android 1 ...</blockquote>
+反正我这边实际用起来就是经常发个指令后过几分钟才有回应,跑个小任务得几小时了,完全没法用
+
+
+*****
+
+####  Lorraine_Kinney  
+##### 9188#       发表于 2026-8-17 19:02
+
+opencode的光头也是挺能吹水
+
+*****
+
+####  半江瑟瑟半江红  
+##### 9189#       发表于 2026-8-17 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095374&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-17 18:28</a>
+4的问题是他太容易被设定层的东西绑架注意力了，而且极度缺乏创意，逼得我没办法把我分析的短文梗概单独 ...</blockquote>
+是的
+但它自己搜索过拟合也算是独有问题了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  xiaohanne  
+##### 9190#       发表于 2026-8-17 19:04
+
+ 本帖最后由 xiaohanne 于 2026-8-17 19:06 编辑 
+<blockquote>eno_emos 发表于 2026-8-17 17:28
+gemini，出二次元风格很厉害
+
+grok，但是这个专精擦边人像（</blockquote>
+
+难以想象grok炼化了多少flj，就发它了个hot girl就…
+
+*****
+
+####  Lorraine_Kinney  
+##### 9191#       发表于 2026-8-17 19:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092875&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-17 12:43</a>
+
+gpt plus也不能直接api，需要反代才能用吧，那和gemini pro不一个样么</blockquote>
+下个CLIProxyAPI 反代，就能接其他平台，这是codex 负责人tibo推荐的，算是官方比较认可的安全反代方式，也有gui，自己本地用的时候挂在后台就行
+
+*****
+
+####  Lorraine_Kinney  
+##### 9192#       发表于 2026-8-17 19:06
+
+阿里云为啥只有pro没有flash？
+
