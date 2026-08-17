@@ -829,3 +829,152 @@ opencode现在60刀的模型越来越少了，现在还有什么智商和性价�
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8956#       发表于 2026-8-17 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091663&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-17 10:27</a>
+opencode现在60刀的模型越来越少了，现在还有什么智商和性价比不错的plan可以买么？grok？
+
+—— 来自 vivo ...</blockquote>
+Gpt咯
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  贝恩德塔  
+##### 8957#       发表于 2026-8-17 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091663&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-17 10:27</a>
+
+opencode现在60刀的模型越来越少了，现在还有什么智商和性价比不错的plan可以买么？grok？
+
+—— 来自 vivo ...</blockquote>
+grok 30刀模型真值得买吗，那感觉还不如chatgpt plus呢，只有对话五倍额度，免费额度来跑团甚至用不了一个小时，五倍额度真够用吗，甚至还不包括agent
+
+*****
+
+####  冤枉呐  
+##### 8958#       发表于 2026-8-17 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091612&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-8-17 10:23</a>
+
+知识库做了，不知道是软件太智障了还是啥，看着深度思考里明明过知识库了，还是在基础设定上胡说八道。
+
+ ...</blockquote>
+cherry的话，需要mcp维护
+
+就是定期总结剧情写到文件里，后面读回来
+
+这个事情我想来想去，消耗会很大
+
+我做的那个你玩玩看吧，我自己没想出什么点子（主要是印区grok爽玩刘备）
+
+*****
+
+####  酱油拌饭s  
+##### 8959#       发表于 2026-8-17 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091649&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-17 10:26</a>
+
+https://github.com/worldwonderer/oh-story-claudecode
+
+用这套工具里的拆书把小说拆解成工作结构，然后 ...</blockquote>
+感谢大佬，我来试试<img src="https://static.stage1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+*****
+
+####  酱油拌饭s  
+##### 8960#       发表于 2026-8-17 10:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091704&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-17 10:30</a>
+
+cherry的话，需要mcp维护
+
+就是定期总结剧情写到文件里，后面读回来
+
+这个事情我想来想去，消耗会很大</blockquote>
+嗷感谢！
+
+
+*****
+
+####  泰坦失足  
+##### 8961#       发表于 2026-8-17 10:31
+
+很久没试Gemini,但是现在闲鱼上的10块一年的Google AI Pro还在卖, 我随手买的过了半个月也没掉.  属于是新注册一个账号, 接验证码费用比一年会员还贵了. <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> Google账号注册需要一个没怎么接过验证码的手机号接码, 反重力登录又要验证第二次, 更严格一点.
+
+
+*****
+
+####  gabriel233  
+##### 8962#       发表于 2026-8-17 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091688&amp;ptid=2275806" target="_blank">贝恩德塔 发表于 2026-8-17 10:28</a>
+
+grok 30刀模型真值得买吗，那感觉还不如chatgpt plus呢，只有对话五倍额度，免费额度来跑团甚至用不了一个 ...</blockquote>
+只有heavy值得  现在300刀折价只要100刀
+
+*****
+
+####  贝恩德塔  
+##### 8963#       发表于 2026-8-17 10:34
+
+ 本帖最后由 贝恩德塔 于 2026-8-17 10:36 编辑 
+
+话说一直不明白grok有性价比的选择的说法哪来的，如果不用生图生视频，基础额度就要花30刀还只有对话额度5倍还没新模型，plus直接飞涨到了相当于codex pro 5x的价格了，heavy甚至比20x都贵将近一倍，难道有啥我不知道的订阅方式吗？
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8964#       发表于 2026-8-17 10:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091727&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-8-17 10:31</a>
+很久没试Gemini,但是现在闲鱼上的10块一年的Google AI Pro还在卖, 我随手买的过了半个月也没掉.  属于是新 ...</blockquote>
+草 怎么这么便宜<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+我三月份在自己号上买了一年的，然后这逼玩意就开始蛆化
+我都不好意思说我花了多少钱
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  贝恩德塔  
+##### 8965#       发表于 2026-8-17 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091746&amp;ptid=2275806" target="_blank">gabriel233 发表于 2026-8-17 10:32</a>
+
+只有heavy值得  现在300刀折价只要100刀</blockquote>
+100刀不就是pro5x的价格嘛、。。。。这个相对比pro5x除了能生视频有啥优势吗
+
+*****
+
+####  龙骑士尹志平  
+##### 8966#       发表于 2026-8-17 10:37
+
+opencode去买点rubin架v4flash啊，牢梁也可以去蹭蹭，不比华为那些强得多。
+
+*****
+
+####  贝恩德塔  
+##### 8967#       发表于 2026-8-17 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091783&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-17 10:35</a>
+
+草 怎么这么便宜
+
+我三月份在自己号上买了一年的，然后这逼玩意就开始蛆化
+
+我都不好意思说我花了多少钱</blockquote>
+3.7flash还可以，3.6flash的确蛆，3.7flash起码正常用没啥问题了
+
+*****
+
+####  muermaru  
+##### 8968#       发表于 2026-8-17 10:38
+
+我是50买的，没找到同事说的20多一年的，不过也差不多了，性价比的神。而且日常问题我挺喜欢问gemini的，感觉发挥比gpt稳定
+
