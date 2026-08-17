@@ -635,3 +635,18 @@ steam开服以后是互通吗还是独立的
 
 刷到个冰女开局了，现在kuyo上有汉化，汉化完成度挺高的（有无内鬼？还是AI牛逼)，免费广告点一次就能进，过加速时间了也不要紧
 
+
+*****
+
+####  sanada  
+##### 48#       发表于 2026-8-17 09:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70083119&amp;ptid=2287441" target="_blank">warerest 发表于 2026-8-15 22:18</a>
+
+开局30抽刷到4彩，但是是4个男菜刀。。
+
+但凡刷到一个女SSR就玩下去了，刷了十几次一个女SSR都没，这游戏女S ...</blockquote>
+别说女SSR了，第二个UP池想要个西林结果抽了差不多一百抽了3个UP一个都没出
+
+各种大叔肌肉男倒是歪了五六个<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+

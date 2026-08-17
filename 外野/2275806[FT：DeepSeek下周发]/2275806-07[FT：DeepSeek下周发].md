@@ -125,3 +125,51 @@ open code go还能继续爽蹬吗
 
 发现ChatGPT web版 + Github Repo的读写检索能力能作为一个不错的内容管理笔记. 比如我刚和GPT讨论了一套解决方案计划, 就可以直接让gpt 更新某个repo里的txt文件, 把计划都写进去. 以后让gpt读这个repo里就能检索到这个计划. 不用依赖GPT的搜索/记忆/最近对话作为上下文的能力.
 
+
+*****
+
+####  zhongjie  
+##### 8891#       发表于 2026-8-17 09:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70090792&amp;ptid=2275806" target="_blank">卡普空 发表于 2026-8-17 09:01</a>
+open code go还能继续爽蹬吗</blockquote>
+ocg涨价还减额度了
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  酱油拌饭s  
+##### 8892#       发表于 2026-8-17 09:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">趁人少来求问一下，单纯写文用是不是没必要折腾dsh，还是老老实实用之前的软件就行？
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">顺便求问有什么针对flash0731的写作提示词嘛
+
+*****
+
+####  冤枉呐  
+##### 8893#       发表于 2026-8-17 09:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70090843&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-8-17 09:07</a>
+趁人少来求问一下，单纯写文用是不是没必要折腾dsh，还是老老实实用之前的软件就行？
+
+顺便求问有什么针对fl ...</blockquote>
+我捣鼓了一个网页版的小助手
+捣鼓出来以后不知道写啥了
+要不你试试？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  dear81  
+##### 8894#       发表于 2026-8-17 09:12
+
+ 本帖最后由 dear81 于 2026-8-17 09:14 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70090752&amp;ptid=2275806" target="_blank">里奥哟西 发表于 2026-8-17 08:55</a>
+中国的程序员是不是最被歧视同时也是最贱的？</blockquote>
+不，是劳动者和个体消费者是最贱的
+
+这里 贱 指的是不值钱
+

@@ -12703,3 +12703,30 @@ Nintendo Today更新了CM，任天堂 重新定义 CM，基本上是重新剪的
 
 2026-8-17 08:56 上传
 
+
+*****
+
+####  thecatnie  
+##### 2675#       发表于 2026-8-17 09:13
+
+如果五年前主角们都没死，那这五年都干嘛去了？为啥没阻止魔王降临？还是说魔王降临是既定事实？
+
+*****
+
+####  qiyu1234  
+##### 2676#       发表于 2026-8-17 09:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70090762&amp;ptid=2261859" target="_blank">qiyu1234 发表于 2026-8-17 08:56</a>
+
+爱丝梅拉达</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/17/091341g8666wtzjrw1jygc.jpg" referrerpolicy="no-referrer">
+
+<strong>22.jpg</strong> (220.76 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 09:13 上传
+
+除了这俩不太确定以外其他角色都比较明显，每个主角（包括真主角）带俩本线亲近角色
+

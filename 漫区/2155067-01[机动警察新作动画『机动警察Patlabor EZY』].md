@@ -2857,3 +2857,14 @@ Y隐喻
 
 看了看舞台声优感想，第六话标题的恋爱部分指的是遇险者们<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiongxingyu  
+##### 249#       发表于 2026-8-17 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70088394&amp;ptid=2155067" target="_blank">aptx8285144 发表于 2026-8-16 21:55</a>
+
+看了看舞台声优感想，第六话标题的恋爱部分指的是遇险者们</blockquote>
+标准的巨魔标题党，想想也很合理，毕竟就女主这神人性格，目前两人是看不出一点往那方面去的趋势，讲真的第五集的女鬼JK和天鸟都更有cp感，多给几集戏份还能拍个人鬼情未了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
