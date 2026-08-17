@@ -1793,3 +1793,41 @@ DSH配超算API，服务商选哪个？有大佬指点下吗？</blockquote>
 
 自己捣鼓的，欢迎测试，记得备份
 
+
+*****
+
+####  龙骑士尹志平  
+##### 9047#       发表于 2026-8-17 12:43
+
+gpt plus也不能直接api，需要反代才能用吧，那和gemini pro不一个样么
+
+*****
+
+####  半江瑟瑟半江红  
+##### 9048#       发表于 2026-8-17 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092875&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-17 12:43</a>
+gpt plus也不能直接api，需要反代才能用吧，那和gemini pro不一个样么</blockquote>
+可以直接用Codex
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  舞以  
+##### 9049#       发表于 2026-8-17 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092875&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-17 12:43</a>
+
+gpt plus也不能直接api，需要反代才能用吧，那和gemini pro不一个样么</blockquote>
+gpt对你在第三方harness接codex订阅给的模型基本是默许的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+pi之类的都有支持
+
+*****
+
+####  tsubasa9  
+##### 9050#       发表于 2026-8-17 12:47
+
+workbuddy的v4f涨了60%，还是最低的那一档，还可以
+
