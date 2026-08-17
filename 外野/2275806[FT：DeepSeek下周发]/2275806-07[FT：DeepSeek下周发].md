@@ -3904,3 +3904,43 @@ dsh的0.1.0rc7都是小更新，大痛点没解决，先把极简模式在window
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">官方flash的api真快啊  go的慢死了 浪费我的生命 
 
+
+*****
+
+####  c月光咖啡  
+##### 9241#       发表于 2026-8-18 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70096763&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-17 23:13</a>
+
+我还是没看懂Open code go的付费到底是能获得多少服务？我能不能简单理解为，我如果使用Deepseek V4 Flash ...</blockquote>
+我用我在官方API的命中情况分析 <blockquote>别        Token 数        占比        说明
+
+输入（命中缓存）        ≈ 3,045,891,667（30.46 亿）        97.9%        缓存命中的输入 token，是绝对大头
+
+输入（未命中缓存）        ≈ 55,980,333（0.56 亿）        1.8%        未命中缓存、按全价计费的输入
+
+输出        ≈ 8,856,667（886 万）        0.3%        模型生成内容
+
+合计        ≈ 3,110,728,667        100%        页面显示 3,110,728,894，舍入误差 227</blockquote>
+
+在ocg的V4F 5小时闲时最大2.4 亿t，忙时最大1.17 亿t，每月全闲时最大13亿t
+
+*****
+
+####  cscbzcbz  
+##### 9242#       发表于 2026-8-18 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70097024&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-18 00:23</a>
+官方flash的api真快啊  go的慢死了 浪费我的生命</blockquote>
+结果出的快，钱也花得快，这真的是谷时的价格吗<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  crow_wine  
+##### 9243#       发表于 2026-8-18 00:33
+
+好想用 pro ，glm 用得脑壳疼，看他那左右脑互搏的思维链头大
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
