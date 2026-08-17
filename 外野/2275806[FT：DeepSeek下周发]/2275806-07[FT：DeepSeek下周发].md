@@ -432,3 +432,142 @@ deepwrite免费模型发送！助力大家创作！ https://xhslink.cn/o/HJPjPlE
 
 综合下来，火星AI的性价比非常高。
 
+
+*****
+
+####  冤枉呐  
+##### 8920#       发表于 2026-8-17 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091263&amp;ptid=2275806" target="_blank">oct71952 发表于 2026-8-17 09:50</a>
+
+请问这个能写刘备文吗？</blockquote>
+看你接什么模型了
+
+模型能破甲就能，模型不破甲就不能
+
+开发者还不知道从哪找了个免费的flash
+
+感觉离商业化不远了
+
+
+*****
+
+####  贝恩德塔  
+##### 8921#       发表于 2026-8-17 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091303&amp;ptid=2275806" target="_blank">oct71952 发表于 2026-8-17 09:54</a>
+
+是我的使用方法不对吗，体感GPT 免费版写文很拉胯，全是短句，一句话一段那种，细节描写很少，同样的提示 ...</blockquote>
+写文用哈基米，我昨天用哈基米跑了好几个战锤40k的商业团，对于叙事和场景和人物描述以及对世界观的把控都很有水准，堪比顶尖kp了，当然ai跑团过于倾向于受众而不是偏向中立的**病也是挺难改的，后期各种大成功，还是配个脚本专门用来投骰子比较好
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8922#       发表于 2026-8-17 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091303&amp;ptid=2275806" target="_blank">oct71952 发表于 2026-8-17 09:54</a>
+是我的使用方法不对吗，体感GPT 免费版写文很拉胯，全是短句，一句话一段那种，细节描写很少，同样的提示 ...</blockquote>
+至少充个plus吧，5.6sol是我用过这么多模型里面唯一懂得留白，以及懂得伏笔不需要立刻解释的。
+其他的模型包括Claude一家，都在Agent方面训练得太多了，每一步都要求闭环，然后它就会疯狂地解释伏笔，疯狂地填补留白。写出来的东西就跟好莱坞的弱智超英电影一样，巴不得一句台词给你讲三遍，让你当时就理解角色想表达什么含义。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  酱油拌饭s  
+##### 8923#       发表于 2026-8-17 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091151&amp;ptid=2275806" target="_blank">muermaru 发表于 2026-8-17 09:39</a>
+
+deepseek写出来的东西就特别的……无趣，需要你自己大量润色</blockquote>
+我是超细大纲选手，自己写4k字的大纲让ds给扩充到万字左右，前期喂了不少我写的东西，文笔还行，最要命的问题是注意力特别见鬼，上下文才几十k就胡说八道（比如上一段主角热的穿背心大裤衩，下一段侍从进来把壁炉点上了）
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8924#       发表于 2026-8-17 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091361&amp;ptid=2275806" target="_blank">贝恩德塔 发表于 2026-8-17 09:59</a>
+写文用哈基米，我昨天用哈基米跑了好几个战锤40k的商业团，对于叙事和场景和人物描述以及对世界观的把控 ...</blockquote>
+Gemini的指令遵循和可怜的用户抑制力还是算了吧，真拿来写文能气死人。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  酱油拌饭s  
+##### 8925#       发表于 2026-8-17 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091250&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-17 09:48</a>
+
+不是。d指导本身就容易注意力涣散抓不住重点
+
+另外写文肯定是把小说工作结构化在智能体里干活，并不考验大 ...</blockquote>
+问问大佬现在适配flash0731的软件有啥推荐么，最近用cherry写的非常差且热爱胡说八道
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8926#       发表于 2026-8-17 10:02
+
+ 本帖最后由 半江瑟瑟半江红 于 2026-8-17 10:03 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091368&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-8-17 10:00</a>
+我是超细大纲选手，自己写4k字的大纲让ds给扩充到万字左右，前期喂了不少我写的东西，文笔还行，最要命的 ...</blockquote>
+那细纲还不够细，可以用grilling和ai先把细纲讨论好，5000字大概是40到90轮拷问
+基本上是多少字的细纲能写出多少正文来，因为细纲中会规定失败模式之类的内容占用更多字数。
+另外单次让AI直出最好不要超过7000字，一万字肯定漂了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  neptunehs  
+##### 8927#       发表于 2026-8-17 10:03
+
+今天opco的free flash好流畅
+这就是赶人的效果吗
+虽然2小时就用完了且事情没做完 等明天了
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8928#       发表于 2026-8-17 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091382&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-8-17 10:01</a>
+问问大佬现在适配flash0731的软件有啥推荐么，最近用cherry写的非常差且热爱胡说八道 ...</blockquote>
+D指导我用的dsh，不过我主要还是用codex，d指导flash用来做多角度对抗性审查
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  舞以  
+##### 8929#       发表于 2026-8-17 10:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有多少天才程序员幸存
+
+*****
+
+####  贝恩德塔  
+##### 8930#       发表于 2026-8-17 10:04
+
+ 本帖最后由 贝恩德塔 于 2026-8-17 10:05 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091373&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-17 10:00</a>
+
+Gemini的指令遵循和可怜的用户抑制力还是算了吧，真拿来写文能气死人。
+
+—— 来自 HUAWEI SGU-AL10, And ...</blockquote>
+我觉得还行，至少跑团方面很不错，sol来跑团太死板了，更明显的其实是角色扮演方面，让扮演猫娘，5.6sol基本上只会句末加上喵，同一个提示词，gemini 3.7flash更能表现出是个猫娘而不是被逼扮演个猫娘
+
+*****
+
+####  love4aids  
+##### 8931#       发表于 2026-8-17 10:04
+
+天才程序员，陨落
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

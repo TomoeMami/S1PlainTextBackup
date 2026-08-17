@@ -12859,3 +12859,11 @@ Nintendo Today更新了CM，任天堂 重新定义 CM，基本上是重新剪的
 这部不会是火焰纹章人造人篇吧，自捏主角就是特兰克斯，把人救下来后：“五年后将出现一个无比强大的敌人， ...</blockquote>
 能有龙珠那剧情，就烧高香了
 
+
+*****
+
+####  蔺无双  
+##### 2688#       发表于 2026-8-17 09:58
+
+会不会是主角穿越摇人打败BOSS改变了世界，但是之后这四个又打起来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
