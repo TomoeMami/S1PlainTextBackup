@@ -3866,3 +3866,11 @@ dsh更新rc7了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html
 我还是没看懂Open code go的付费到底是能获得多少服务？我能不能简单理解为，我如果使用Deepseek V4 Flash ...</blockquote>
 是的，首月是5美元买15美元的额度，后续是10美元买15美元
 
+
+*****
+
+####  serj005  
+##### 9236#       发表于 2026-8-17 23:26
+
+dsh的0.1.0rc7都是小更新，大痛点没解决，先把极简模式在windows完全不可用这个最严重问题给修了吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">在用户有git bash的情况下默认调用应该不难吧
+
