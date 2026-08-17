@@ -4697,3 +4697,14 @@ FGO星见的回廊展会PV
 
 唉，黑花吃了我300多石头还是没来，算了，每天付费单抽，看来不来吧。这次泳装真是非<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 21477#       发表于 2026-8-17 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70096194&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-8-17 20:59</a>
+
+唉，黑花吃了我300多石头还是没来，算了，每天付费单抽，看来不来吧。这次泳装真是非 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你非个JB 我才是真非
+

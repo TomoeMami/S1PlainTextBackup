@@ -3699,3 +3699,22 @@ opencode go 的d4f现在也好卡
 
 opencode go 一个月是完全不够用，还好第一月只要5刀，只能换模型了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">真的不想给openai和a\付费啊。
 
+
+*****
+
+####  startraveller  
+##### 9217#       发表于 2026-8-17 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70096275&amp;ptid=2275806" target="_blank">duanrenduanren 发表于 2026-8-17 21:17</a>
+opencode go 一个月是完全不够用，还好第一月只要5刀，只能换模型了真的不想给openai和a\付费啊。 ...</blockquote>
+升价之后dsv4系列依然是量相对多点的模型，其他除了mimo，蹬几下就没了。
+
+*****
+
+####  crow_wine  
+##### 9218#       发表于 2026-8-17 21:24
+
+glm 5.2的智力感觉是真不行
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
