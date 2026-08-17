@@ -3554,3 +3554,33 @@ ht ...</blockquote>
 原本以为就官方涨，还能靠中转扛住，结果一个比一个涨得狠<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 不说了趁现在是梁文谷，蹬一会儿
 
+
+*****
+
+####  真红之闪电  
+##### 9202#       发表于 2026-8-17 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095848&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-17 19:47</a>
+原本以为就官方涨，还能靠中转扛住，结果一个比一个涨得狠
+不说了趁现在是梁文谷，蹬一会儿 ...</blockquote>
+想想都知道，肯定是一起涨的。现在问题是有没有一家能涨少一点，然后把流量都分过去。只要有一家的价格没有那么高，才可能出现第二家去竞争或者分流。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  scikirbypoke  
+##### 9203#       发表于 2026-8-17 19:58
+
+minimax有没有小道消息？有点想预防性购入plan了
+
+
+*****
+
+####  overflowal  
+##### 9204#       发表于 2026-8-17 20:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095910&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-8-17 19:58</a>
+minimax有没有小道消息？有点想预防性购入plan了</blockquote>
+他们一直比较拉胯    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

@@ -492,3 +492,16 @@ ps：我觉得小出已经很温和了<img src="https://static.stage1st.com/imag
 
 确实，有mari打爆初恋一类的情节实际上是有利于mari入场的，不会像现在这样7集了感觉就是打拳女路人，起到的作用主要是带拉拉认识各种人类
 
+
+*****
+
+####  ylssb10438  
+##### 348#       发表于 2026-8-17 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70047317&amp;ptid=2183857" target="_blank">Huiiii 发表于 2026-8-10 14:08</a>
+
+看这部片子才切身体会到如今的社区讨论环境中性别叙事有多么极端排外，
+
+一个角色是男的也不行、是女的也不 ...</blockquote>
+宝石之国真会当成无性别吗，反正我看动画时感觉弹幕和评论区大伙都是当成全女（和尚除外）看的，外表不就一眼女..
+
