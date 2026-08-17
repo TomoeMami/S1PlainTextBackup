@@ -3515,3 +3515,33 @@ ht ...</blockquote>
 
 我上红迪看人说commandcode价格改了，但是60刀deepseek-v4-flash的额度没砍，有人用过这家吗靠谱不<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  crow_wine  
+##### 9198#       发表于 2026-8-17 19:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095549&amp;ptid=2275806" target="_blank">断片集 发表于 2026-8-17 18:58</a>
+反正我这边实际用起来就是经常发个指令后过几分钟才有回应,跑个小任务得几小时了,完全没法用 ...</blockquote>
+我一个会话跑了34M token，平均速度是80 token/s，用的 glm 5.2
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  舞以  
+##### 9199#       发表于 2026-8-17 19:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次涨价真是哀鸿遍野了
+
+*****
+
+####  crow_wine  
+##### 9200#       发表于 2026-8-17 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095549&amp;ptid=2275806" target="_blank">断片集 发表于 2026-8-17 18:58</a>
+反正我这边实际用起来就是经常发个指令后过几分钟才有回应,跑个小任务得几小时了,完全没法用 ...</blockquote>
+你用的 flash 吗，flash 被蹬爆了
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
