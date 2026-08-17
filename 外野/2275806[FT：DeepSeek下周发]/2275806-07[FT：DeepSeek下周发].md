@@ -4007,3 +4007,11 @@ svg xmlns=httpwww.w3.org2000svg wid.svg
 
 我做个插件结果dsh桌面端崩掉，用qwenpaw修好的，笑死我了。
 
+
+*****
+
+####  startraveller  
+##### 9249#       发表于 2026-8-18 04:45
+
+opencode go到flash又降价一半了（仍然比之前贵5倍）
+
