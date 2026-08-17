@@ -13576,3 +13576,41 @@ IGN上了中文版CM
 ================== ...</blockquote>
 截图里小孩哥都明显个头长大了
 
+
+*****
+
+####  1wq1  
+##### 2757#       发表于 2026-8-17 21:35
+
+提亚拉：老娘**大了一圈好吗
+
+几个小孩哥/姐明显都长大了
+
+*****
+
+####  小学生把持不住  
+##### 2758#       发表于 2026-8-17 21:36
+
+主角那未知的灵魂和临时准备的肉体，不好说最后会不会消散，IS会不会大胆做成S支援双人殉情结局还是未知数<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑暗之眼  
+##### 2759#       发表于 2026-8-17 21:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70094222&amp;ptid=2261859" target="_blank">nagitoY 发表于 2026-8-17 15:53</a>
+淘宝上看了下卡带，有日版中文？
+
+港版的机器可以用日版卡带吗？另外我记得ns2的日区锁区，有中文吗？ ...</blockquote>
+特定的日区特供版机器才锁区，全价的日区完全版机器和别的地区机器都是一样的
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  蓝雉  
+##### 2760#       发表于 2026-8-17 21:40
+
+说不定是选一个伴侣登神呢
+

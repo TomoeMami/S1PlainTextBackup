@@ -3745,3 +3745,11 @@ codex的自动压缩很好用，pi我还没用过
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  akirt  
+##### 9222#       发表于 2026-8-17 21:38
+
+我现在用回mimo 2.5了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
