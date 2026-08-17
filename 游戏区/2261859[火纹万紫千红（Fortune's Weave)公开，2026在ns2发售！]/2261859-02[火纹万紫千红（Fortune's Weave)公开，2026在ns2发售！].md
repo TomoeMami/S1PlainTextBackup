@@ -13378,3 +13378,13 @@ A少那个副官居然发言还挺正派的。
 日版机器锁，跟卡带没关系。第一方全区中文，港版机器能用日版卡带</blockquote>
 如果后续要购买dlc，日版卡带会有限制吗？
 
+
+*****
+
+####  clyde-wang  
+##### 2736#       发表于 2026-8-17 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70094294&amp;ptid=2261859" target="_blank">nagitoY 发表于 2026-8-17 16:03</a>
+如果后续要购买dlc，日版卡带会有限制吗？</blockquote>
+任天堂自家的游戏基本上都是全区同一个sku的，直接去港服，美服或者其他服买DLC是没有限制的
+

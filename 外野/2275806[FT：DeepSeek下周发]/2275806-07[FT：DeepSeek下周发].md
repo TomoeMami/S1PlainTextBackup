@@ -2812,3 +2812,83 @@ ChatGPT Plus看上去只用Luna的话也够用，但是Luna跟Flash完全不能�
 最近搞了咸鱼超便宜的GOOGLE ONE，cli proxy反代反重力出来弄hermes，再也不心疼TOKEN费了 ...</blockquote>
 求指导，我也弄个闲鱼那个gemini的订阅
 
+
+*****
+
+####  小野賢章  
+##### 9139#       发表于 2026-8-17 16:29
+
+不管用什么插件，都要抽奖，没有抽到的时候真的好蛆啊。写一些oneshot的玩具还可以，抽不中就再来，但是正经干活还是不行，有时候前面还好好的，后面多对话几轮就let me了
+
+*****
+
+####  eno_emos  
+##### 9140#       发表于 2026-8-17 16:31
+
+在完全相同输入的情况下，不同模型生成同样主题文本的试验
+
+只能说有一个又便宜又拉<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.stage1st.com/forum/202608/17/162701vzoghl66666suzoc.png" referrerpolicy="no-referrer">
+
+<strong>0ae5cda7f77e21ca94eeee99240a6648.png</strong> (152.47 KB, 下载次数: 0)
+
+下载附件
+
+glm 5.3
+2026-8-17 16:27 上传
+
+glm 5.3
+
+<img src="https://img.stage1st.com/forum/202608/17/162718t73w3may174z8mkz.png" referrerpolicy="no-referrer">
+
+<strong>de45f5a2dea05c5ecff1af7c181f3bf2.png</strong> (138.82 KB, 下载次数: 0)
+
+下载附件
+
+dsv4flash
+2026-8-17 16:27 上传
+
+dsv4flash
+
+<img src="https://img.stage1st.com/forum/202608/17/162725bqfbpqmpx3qpfpll.png" referrerpolicy="no-referrer">
+
+<strong>ccd9813b7503e7dd6f211304fd815560.png</strong> (142.13 KB, 下载次数: 0)
+
+下载附件
+
+mimo v2.5
+2026-8-17 16:27 上传
+
+mimo v2.5
+
+<img src="https://img.stage1st.com/forum/202608/17/162744us8s2ww9x9gjcqcc.png" referrerpolicy="no-referrer">
+
+<strong>4a08f62730c165ad0b9a25d83ed0e359.png</strong> (126.68 KB, 下载次数: 0)
+
+下载附件
+
+gpt 5.6 luna
+2026-8-17 16:27 上传
+
+gpt 5.6 luna
+
+<img src="https://img.stage1st.com/forum/202608/17/162752j5s83j4543obj8su.png" referrerpolicy="no-referrer">
+
+<strong>20d172ce23c26b7d12e1d0318131a9d9.png</strong> (130.18 KB, 下载次数: 0)
+
+下载附件
+
+kimi k3
+2026-8-17 16:27 上传
+
+kimi k3
+
+
+*****
+
+####  秦南心  
+##### 9141#       发表于 2026-8-17 16:32
+
+这个月应该是用基元律动的余额号比较划得来，下个月形势又会变，不急一时
+
