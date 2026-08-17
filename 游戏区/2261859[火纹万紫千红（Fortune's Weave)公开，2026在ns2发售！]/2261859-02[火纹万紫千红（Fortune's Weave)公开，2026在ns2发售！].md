@@ -13295,3 +13295,27 @@ A少那个副官居然发言还挺正派的。
 由手机上传
 2026-8-17 15:02 上传
 
+
+*****
+
+####  巴尔干炮  
+##### 2729#       发表于 2026-8-17 15:45
+
+<img src="https://img.stage1st.com/forum/202608/17/154513g82bf9dbix52z9zn.jpg" referrerpolicy="no-referrer">
+
+<strong>fc5f0a100ba542c7ff0ffeef4abe0b74da21d0275ca09cc3092edc47c452c3b0.0.JPG</strong> (128.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 15:45 上传
+
+<img src="https://img.stage1st.com/forum/202608/17/154513f87go8foc7ifdlg5.jpg" referrerpolicy="no-referrer">
+
+<strong>80082ff2b8093b170b3aa1d29e2d4cc3b51268861b1d7ed7127fe730ce3d21fd.0.JPG</strong> (125.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 15:45 上传
+
+5年前和5年后的对比。
+

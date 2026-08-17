@@ -2650,3 +2650,66 @@ GPT靠谱点的低价一手渠道是微软azure云给的企业订阅额度，因
 
 mino3似乎要发了
 
+
+*****
+
+####  王兰花秀丽  
+##### 9123#       发表于 2026-8-17 15:36
+
+从今天起，北京时间
+00:00-09:00 梁文谷
+09:00-12:00 梁文峰
+12:00-14:00 梁文谷
+14:00-18:00 梁文峰
+18:00-00:00 梁文谷
+
+难道mimo真的是好模型<img src="https://static.stage1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiaohanne  
+##### 9124#       发表于 2026-8-17 15:40
+
+<blockquote>当光停止 发表于 2026-8-17 15:28
+mino3似乎要发了</blockquote>
+能力如果提升肯定会涨价，我只希望保留mimo v2.5和现在的价格
+
+*****
+
+####  蛋黄酱Release  
+##### 9125#       发表于 2026-8-17 15:41
+
+mimo肯定也得涨，国内这些公司感觉价格都是对标的deepseek，glm此前订阅涨价估计也是提前得到了deepseek的涨价幅度<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiaohanne  
+##### 9126#       发表于 2026-8-17 15:42
+
+<blockquote>蛋黄酱Release 发表于 2026-8-17 15:41
+mimo肯定也得涨，国内这些公司感觉价格都是对标的deepseek，glm此前订阅涨价估计也是提前得到了deepseek的 ...</blockquote>
+新模型涨价无所谓，老模型保留价格就行，mimo虽然很弱智但养虾足够了。
+
+要便宜mimo也没了就只能琢磨反代gemini了
+
+*****
+
+####  御坂MKII  
+##### 9127#       发表于 2026-8-17 15:44
+
+mimo 无印如果涨价的话感觉不是人
+
+—— 来自 Xiaomi 25128PNA1C, Android 17, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  xiaohanne  
+##### 9128#       发表于 2026-8-17 15:45
+
+<blockquote>御坂MKII 发表于 2026-8-17 15:44
+mimo 无印如果涨价的话感觉不是人
+
+—— 来自 Xiaomi 25128PNA1C, Android 17, 鹅球 v3.5.99 ...</blockquote>
+直接涨价应该不至于，但有可能MIMO 3出来以后，MIMO 2.5停止服务。
+
