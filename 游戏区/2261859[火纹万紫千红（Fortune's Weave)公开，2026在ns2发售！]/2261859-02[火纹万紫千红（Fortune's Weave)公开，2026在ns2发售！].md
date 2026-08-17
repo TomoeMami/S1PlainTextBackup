@@ -12848,3 +12848,14 @@ Nintendo Today更新了CM，任天堂 重新定义 CM，基本上是重新剪的
 
 这部不会是火焰纹章人造人篇吧，自捏主角就是特兰克斯，把人救下来后：“五年后将出现一个无比强大的敌人，大家这五年回去各自锻炼，五年后在XXX集合”
 
+
+*****
+
+####  darkprince120  
+##### 2687#       发表于 2026-8-17 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091214&amp;ptid=2261859" target="_blank">thecatnie 发表于 2026-8-17 09:45</a>
+
+这部不会是火焰纹章人造人篇吧，自捏主角就是特兰克斯，把人救下来后：“五年后将出现一个无比强大的敌人， ...</blockquote>
+能有龙珠那剧情，就烧高香了
+

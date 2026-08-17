@@ -322,3 +322,113 @@ deepseek写出来的东西就特别的……无趣，需要你自己大量润色
 
 打算试一下 Qwen3.8-27B 4bit 量化了
 
+
+*****
+
+####  cxj649  
+##### 8909#       发表于 2026-8-17 09:44
+
+话说现在写文D4F和D4P差的多少？
+
+*****
+
+####  muermaru  
+##### 8910#       发表于 2026-8-17 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091166&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-17 09:41</a>
+
+其实AI写作不怕直出无趣，怕的是不遵循指令和注意力涣散，以及配套的专武工具调用不积极，文风是最容易纠 ...</blockquote>
+这个可以用多次切会话的方式解决吧，注意力涣散感觉是上下文过长降智了
+
+*****
+
+####  大明钟  
+##### 8911#       发表于 2026-8-17 09:48
+
+好贵啊，贵的离谱了，高峰涨了11倍<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8912#       发表于 2026-8-17 09:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091210&amp;ptid=2275806" target="_blank">muermaru 发表于 2026-8-17 09:45</a>
+这个可以用多次切会话的方式解决吧，注意力涣散感觉是上下文过长降智了 ...</blockquote>
+不是。d指导本身就容易注意力涣散抓不住重点
+另外写文肯定是把小说工作结构化在智能体里干活，并不考验大模型自己上下文记忆力，主要是考验工具调用能力、检索到新信息以后的注意力转移，这方面不到300k上下文的gpt比1m的d指导强得多
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  Rowen233  
+##### 8913#       发表于 2026-8-17 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70090095&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-17 02:09</a>
+
+其实算上OAI是独一无二的网页版单独算额度来说，Gpt明显一直是在百亿补贴的，这种不可能不在上市前改过来 ...</blockquote>
+但对于Rudin来说Luna部署成本可能真没那么高<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oct71952  
+##### 8914#       发表于 2026-8-17 09:50
+
+<blockquote>冤枉呐 发表于 2026-8-17 09:34
+还有个deepwrite项目
+deepwrite免费模型发送！助力大家创作！ https://xhslink.cn/o/HJPjPlEcGE 先复制这 ...</blockquote>
+请问这个能写刘备文吗？
+
+*****
+
+####  noneoneone  
+##### 8915#       发表于 2026-8-17 09:50
+
+ 本帖最后由 noneoneone 于 2026-8-17 09:52 编辑 
+
+所以现在ocgo哪个模型更合适
+
+我看luna和v4f的量差不多
+
+*****
+
+####  zy450  
+##### 8916#       发表于 2026-8-17 09:52
+
+把人赶走，资源都腾出来炼丹了吧，估计是想抓紧出下一个模型
+
+*****
+
+####  zfy1989  
+##### 8917#       发表于 2026-8-17 09:54
+
+英伟达平台目前不是还有免费的嘛，我看并发也不算太低，那个能用吗
+
+*****
+
+####  oct71952  
+##### 8918#       发表于 2026-8-17 09:54
+
+<blockquote>半江瑟瑟半江红 发表于 2026-8-17 09:48
+不是。d指导本身就容易注意力涣散抓不住重点
+另外写文肯定是把小说工作结构化在智能体里干活，并不考验大 ...</blockquote>
+是我的使用方法不对吗，体感GPT 免费版写文很拉胯，全是短句，一句话一段那种，细节描写很少，同样的提示词 ds 网页版就好很多，至少是正常的小说
+
+*****
+
+####  来都来了  
+##### 8919#       发表于 2026-8-17 09:55
+
+最新一期屎山论剑的结果。
+
+█████  Gemini  ≈¥3.43   4分
+
+ ████████   Grok    ≈¥5.61  8分
+ ██████████████   GLM     ≈¥9.80  5分
+ ████████████████▏ DeepSeek ¥12    5分
+ ████████████████████   Kimi   5分 ≈¥13.8  
+ ██████████████████████████████████   Opus    ≈¥23.4  4分
+
+综合下来，火星AI的性价比非常高。
+
