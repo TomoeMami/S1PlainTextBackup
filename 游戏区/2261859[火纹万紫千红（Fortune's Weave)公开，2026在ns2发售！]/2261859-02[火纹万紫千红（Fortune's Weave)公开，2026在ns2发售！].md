@@ -13388,3 +13388,14 @@ A少那个副官居然发言还挺正派的。
 如果后续要购买dlc，日版卡带会有限制吗？</blockquote>
 任天堂自家的游戏基本上都是全区同一个sku的，直接去港服，美服或者其他服买DLC是没有限制的
 
+
+*****
+
+####  黑卷轴陶德传  
+##### 2737#       发表于 2026-8-17 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70094294&amp;ptid=2261859" target="_blank">nagitoY 发表于 2026-8-17 16:03</a>
+
+如果后续要购买dlc，日版卡带会有限制吗？</blockquote>
+不影响了，任天堂第一方现在都随便买了，你买乌干达服DLC都没问题，只有异度2这一个奇葩玩意要注意转回港日买升级包和DLC
+
