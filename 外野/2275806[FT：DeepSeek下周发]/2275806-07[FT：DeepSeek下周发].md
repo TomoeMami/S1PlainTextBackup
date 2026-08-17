@@ -3485,3 +3485,33 @@ jspace说是烂炒，现在token贵了我还没测试。
 ht ...</blockquote>
 配置需要修改吗，装上跑了下，不管是pro还是flash 都是let me
 
+
+*****
+
+####  →熙←  
+##### 9195#       发表于 2026-8-17 19:18
+
+超算的v4f0731连不上了,真菜呀
+
+*****
+
+####  小野賢章  
+##### 9196#       发表于 2026-8-17 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095342&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-8-17 18:23</a>
+
+jspace说是烂炒，现在token贵了我还没测试。
+
+下面这个是我结合楼上说的插件做的插件，感觉有一些效果：
+
+ht ...</blockquote>
+这个只支持windows嘛
+
+
+*****
+
+####  海德先生  
+##### 9197#       发表于 2026-8-17 19:24
+
+我上红迪看人说commandcode价格改了，但是60刀deepseek-v4-flash的额度没砍，有人用过这家吗靠谱不<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

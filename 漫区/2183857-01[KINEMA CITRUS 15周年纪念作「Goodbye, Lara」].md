@@ -484,3 +484,11 @@ ps：我觉得小出已经很温和了<img src="https://static.stage1st.com/imag
 我的意思是女路人的故事本来就是茉里的，你看拉拉要找王子一开始就发现茉里喜欢青梅“王子”，拉拉鼓励， ...</blockquote>
 拉拉都有初恋了，明显没觉得这个有危险，多一个又如何<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  K·os  
+##### 347#       发表于 2026-8-17 19:18
+
+确实，有mari打爆初恋一类的情节实际上是有利于mari入场的，不会像现在这样7集了感觉就是打拳女路人，起到的作用主要是带拉拉认识各种人类
+
