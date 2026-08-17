@@ -13081,3 +13081,36 @@ A少那个副官居然发言还挺正派的。
 
 地底人该从地下开出一条钢铁号飞龙改组成钢龙战队，世界各地的英雄们在母舰格纳库休息，需要出战的时候就开母舰过去空降作战
 
+
+*****
+
+####  kalavinka  
+##### 2710#       发表于 2026-8-17 11:48
+
+ 本帖最后由 kalavinka 于 2026-8-17 11:49 编辑 
+
+阿鲁卡多5年后怎么是个大背头<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/17/114859xvfu0hkcf4ykfzk2.png" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-08-17_114824_499.png</strong> (42.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 11:48 上传
+
+
+*****
+
+####  hkguty  
+##### 2711#       发表于 2026-8-17 11:54
+
+<blockquote>mai6696 发表于 2026-8-17 11:00
+A少那个副官居然发言还挺正派的。
+
+是我以貌取人了。
+
+「あなたは獣などではない！人間だ！」
+</blockquote>
+好像有个媒体说他是喜欢阿鲁卡多的给，不知道我有没有看错
+

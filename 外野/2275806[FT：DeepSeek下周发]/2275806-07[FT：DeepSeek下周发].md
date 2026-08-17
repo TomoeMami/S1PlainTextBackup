@@ -1496,3 +1496,34 @@ Ds写文和角色扮演最好用的还是3.2(虽然八股用词还是有不少)�
 
 现在第二档日常工作够用么，还是说第三档？
 
+
+*****
+
+####  UncleDracula  
+##### 9019#       发表于 2026-8-17 11:46
+
+DSH配超算API，服务商选哪个？有大佬指点下吗？
+
+*****
+
+####  RookieTnT  
+##### 9020#       发表于 2026-8-17 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092414&amp;ptid=2275806" target="_blank">cube 发表于 2026-8-17 11:38</a>
+
+怎么跟网络供应商一样专坑老客户。
+
+现在第二档日常工作够用么，还是说第三档？ ...</blockquote>
+199起. 再便宜额度太少了
+
+
+*****
+
+####  当光停止  
+##### 9021#       发表于 2026-8-17 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092475&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-8-17 11:46</a>
+
+DSH配超算API，服务商选哪个？有大佬指点下吗？</blockquote>
+提供方选自定义
+
