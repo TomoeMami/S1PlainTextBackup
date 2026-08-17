@@ -3768,3 +3768,13 @@ codex的自动压缩很好用，pi我还没用过
 
 <img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">话说某种意义上pro没法用了啊，刚才让他试着写一下计算单次会话token费用的程序，他直接烧进去十来块而且做出来的东西本身还烧token要从头算，结果导致开始滚雪球最要命的是写到一半他开始let me然后超长思维链了，这不是要了命了
 
+
+*****
+
+####  akirt  
+##### 9225#       发表于 2026-8-17 22:02
+
+我用opencode go里的mimo 2.5做subagent，提示词里告诉它要严格遵循coordinator的指令，遇到拿不准的向coordinator求证。
+
+然后拿glm当coordinator和reviewer（我开了lite plan），结果比我想象中还可以，验收质量比较令人满意，速度比之前opencode go里的v4f还快点。
+
