@@ -3753,3 +3753,18 @@ codex的自动压缩很好用，pi我还没用过
 
 我现在用回mimo 2.5了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  simonroam  
+##### 9223#       发表于 2026-8-17 21:44
+
+各位是时候把生产力变现， 用收入跑赢涨价检验自己的能力！
+
+*****
+
+####  阿刚  
+##### 9224#       发表于 2026-8-17 21:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">话说某种意义上pro没法用了啊，刚才让他试着写一下计算单次会话token费用的程序，他直接烧进去十来块而且做出来的东西本身还烧token要从头算，结果导致开始滚雪球最要命的是写到一半他开始let me然后超长思维链了，这不是要了命了
+
