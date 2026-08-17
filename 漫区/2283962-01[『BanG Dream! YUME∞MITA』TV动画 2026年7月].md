@@ -1967,3 +1967,19 @@ mygo的成功最后被总结为了爆点炒作 在鸡和梦限大路径依赖了
 
 —— 来自 HUAWEI OXF-AN10, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  木谷高明  
+##### 312#       发表于 2026-8-17 07:58
+
+<img src="https://img.stage1st.com/forum/202608/17/075832jisc0uqbzisfqljs.jpg" referrerpolicy="no-referrer">
+
+<strong>1000074011.jpg</strong> (544.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 07:58 上传
+
+难绷
+
