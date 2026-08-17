@@ -13614,3 +13614,13 @@ IGN上了中文版CM
 
 说不定是选一个伴侣登神呢
 
+
+*****
+
+####  hu794  
+##### 2761#       发表于 2026-8-17 22:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70096057&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-8-17 20:29</a>
+迪托利希副官，弟弟人那个</blockquote>
+那个re0的惰怠吗
+
