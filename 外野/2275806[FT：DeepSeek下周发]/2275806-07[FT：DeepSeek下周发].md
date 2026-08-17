@@ -3377,3 +3377,26 @@ Glm写文一直都挺一般的，过于注重coding能力导致ai会忍不住解
 —— 来自 HONOR AAP-AN00 ...</blockquote>
 我先去试试现成的轮子，ds涨价后已经不敢随便自己造轮子了（悲
 
+
+*****
+
+####  qwased  
+##### 9185#       发表于 2026-8-17 18:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095439&amp;ptid=2275806" target="_blank">Freewolf 发表于 2026-8-17 18:38</a>
+借楼问下想在ssh远程连接的服务器上用agent有没有什么好办法，最好是一边是ssh窗口，一边是ai对话框，agent ...</blockquote>
+这不就ssh mcp吗
+
+*****
+
+####  crow_wine  
+##### 9186#       发表于 2026-8-17 18:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095383&amp;ptid=2275806" target="_blank">断片集 发表于 2026-8-17 18:30</a>
+那个超算互联网的就别试了,infra太烂了,我测了下:
+
+200k的上下文首token就得快一分钟了,基本没法用的级别了 ...</blockquote>
+应该不至于吧，我用glm5.2感觉还好呀。可能我是逐步累积上下文的
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
