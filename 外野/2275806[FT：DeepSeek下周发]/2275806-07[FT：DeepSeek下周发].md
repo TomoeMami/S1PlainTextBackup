@@ -3649,3 +3649,11 @@ minimax有没有小道消息？有点想预防性购入plan了</blockquote>
 
 基元上的deepseekv4flash是预览版的吗
 
+
+*****
+
+####  cscbzcbz  
+##### 9211#       发表于 2026-8-17 20:49
+
+也不是完全没好处，至少现在官方的api配上dsh速度真的超级快<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

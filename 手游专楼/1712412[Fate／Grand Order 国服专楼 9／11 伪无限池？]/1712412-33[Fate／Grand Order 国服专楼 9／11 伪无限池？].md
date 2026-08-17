@@ -2865,3 +2865,11 @@ MuMu-20260812-190700-122.jpg
 
 —— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  GALLADE  
+##### 48149#       发表于 2026-8-17 20:54
+
+对于水提妈，自己的账号体感是：杀狗粮
+
