@@ -694,3 +694,11 @@ steam开服以后是互通吗还是独立的
 —— 来自 OnePlus PLR110, A ...</blockquote>
 还债而已吧…………………………
 
+
+*****
+
+####  12481632  
+##### 53#       发表于 2026-8-17 14:54
+
+这游戏的每日奖励是中午11点更新的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

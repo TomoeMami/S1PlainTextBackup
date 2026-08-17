@@ -2451,3 +2451,72 @@ ds要是不搞coding plan实在是难顶
 Glm写文一直都挺一般的，过于注重coding能力导致ai会忍不住解释任何一个伏笔任何一个留白，因为coding就 ...</blockquote>
 sol没用过，terra我感觉加载了grill me写作版之后讨论起来比ds pro预览版强太多
 
+
+*****
+
+####  →熙←  
+##### 9103#       发表于 2026-8-17 14:48
+
+超算的我在蹬,还没涨, 429贼严重, dsh的默认2次重试次数不够,我改成了20次
+
+*****
+
+####  舞以  
+##### 9104#       发表于 2026-8-17 14:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70093465&amp;ptid=2275806" target="_blank">c月光咖啡 发表于 2026-8-17 14:16</a>
+Deepseek V4 Pro-0813：
+
+我的处置方案是：不处置。</blockquote>
+难绷，我这个鲸考子也当上反对派领袖了✌️
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  孤灯蓝影  
+##### 9105#       发表于 2026-8-17 14:50
+
+ 本帖最后由 孤灯蓝影 于 2026-8-17 14:51 编辑 
+
+token消耗量其实大部分还是agent试错环节消耗太多token，要是想减少消耗得使用成熟的工作流，其实最后还是模板化标准化成了王道，就像真正如何落地一样。
+
+
+*****
+
+####  舞以  
+##### 9106#       发表于 2026-8-17 14:53
+
+估计ds第一方托管涨价之后第三方自部署会变多吧，这样官方压力也没那么大了，正好赶人走，算力省下来继续炼丹了。
+如果真的是因为推理服务占了太多资源导致pro后训练目前看纯半成品（UNIX仙人模式有足够benchmark就发了），那这么坚决的涨价赶人也能理解了。
+毕竟梁子真不想靠卖api挣钱的样子。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舞以  
+##### 9107#       发表于 2026-8-17 14:54
+
+另外考虑到模型规模越来越大，算力越来越紧，ds的超廉价好时光估计一时半会回不来了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舞以  
+##### 9108#       发表于 2026-8-17 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70093708&amp;ptid=2275806" target="_blank">孤灯蓝影 发表于 2026-8-17 14:50</a>
+token消耗量其实大部分还是agent试错环节消耗太多token，要是想减少消耗得使用成熟的工作流，其实最后还是 ...</blockquote>
+优化harness应该是第一方的责任，可是现在dsh也是毛坯<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  haiuhfuwah  
+##### 9109#       发表于 2026-8-17 14:56
+
+新价格生效当天，opencode go套餐里，DeepSeek-V4-Flash模型5小时的调用量，从63300次掉到3800次，缩水约94%。
+
