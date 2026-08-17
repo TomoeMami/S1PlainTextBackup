@@ -3063,3 +3063,57 @@ workbuddy的auto模式还有Claude呢？</blockquote>
 
 都没动力去更新dsh里的价格插件了
 
+
+*****
+
+####  falsethen  
+##### 9160#       发表于 2026-8-17 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70094486&amp;ptid=2275806" target="_blank">onezer0618 发表于 2026-8-17 16:26</a>
+
+求指导，我也弄个闲鱼那个gemini的订阅</blockquote>
+就正常买，跟着教程激活就好了。
+
+保险点么开个GOOGLE小号，然后把大号拉进家庭组
+
+
+*****
+
+####  crow_wine  
+##### 9161#       发表于 2026-8-17 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70094877&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-17 17:12</a>
+
+5.2都很早了，5.3还是可以的</blockquote>
+今天8月17号，glm 5.2 正好是 6月17号开源的
+
+*****
+
+####  eno_emos  
+##### 9162#       发表于 2026-8-17 17:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70094978&amp;ptid=2275806" target="_blank">斯卡文分则能成 发表于 2026-8-17 17:25</a>
+
+生ppt的图的除了gpt还有啥啊
+
+要在openrounter上充值嘛</blockquote>
+gemini，出二次元风格很厉害
+
+grok，但是这个专精擦边人像（
+
+
+*****
+
+####  城北无尘  
+##### 9163#       发表于 2026-8-17 17:34
+
+又说做不到了
+
+<img src="https://img.stage1st.com/forum/202608/17/173458lgbnmyn4yd9qg4r9.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4357.png</strong> (339.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 17:34 上传
+

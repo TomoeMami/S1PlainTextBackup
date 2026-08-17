@@ -407,3 +407,28 @@
 
 甚至开头的打拳冠军照片我也想不出在现在这个剧情下，是怎么在这个情况下插一集讲打拳比赛的（当然也可以一笔带过，不过我觉得制作组并没有这么牛逼）
 
+
+*****
+
+####  leleq  
+##### 341#       发表于 2026-8-17 17:29
+
+好屌的一集啊，这集叙事极其流畅感情自然还插入伏笔。
+
+这片讨论“真实之爱”那王子作为初恋白月光肯定是绕不过去的坎，不能战胜白月光还叫啥“真实之爱”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且得是“完美白月光”不是最开始的“失败的白月光”
+
+上一集罗望那氛围就让我感觉人鱼方大概率有藏活，这集来看这人鱼世界的光芒大概率不是好东西，是要摆脱的“束缚”
+
+ps：我觉得小出已经很温和了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  イシュハラ  
+##### 342#       发表于 2026-8-17 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095020&amp;ptid=2183857" target="_blank">leleq 发表于 2026-8-17 17:29</a>
+好屌的一集啊，这集叙事极其流畅感情自然还插入伏笔。
+
+这片讨论“真实之爱”那王子作为初恋白月光肯定是绕 ...</blockquote>
+就这个集数哪够写这么多七七四十九难<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
