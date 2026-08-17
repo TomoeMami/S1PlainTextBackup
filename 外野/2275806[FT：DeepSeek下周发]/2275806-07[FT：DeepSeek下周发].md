@@ -1927,3 +1927,63 @@ dsh现在这个本体完成度都还差很远，大小bug一堆，插件更不�
 
 还在给梁子洗吗？华为卡到了真的会降价吗？降价了当然梁圣
 
+
+*****
+
+####  →熙←  
+##### 9062#       发表于 2026-8-17 13:28
+
+蹬了一个win用的dsh外壳, 有点桌面程序的样子了
+
+浏览器用系统自己的webview2
+
+不打包浏览器内核, 文件真小啊
+
+自取,里面有源码和编译好的文件
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/zip.gif" referrerpolicy="no-referrer">
+
+dsh-desktop-ui.7z
+(354.24 KB, 下载次数: 0)
+
+2026-8-17 13:26 上传
+
+点击文件名下载附件
+
+*****
+
+####  →熙←  
+##### 9063#       发表于 2026-8-17 13:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70093142&amp;ptid=2275806" target="_blank">罗莉控 发表于 2026-8-17 13:23</a>
+
+我让DS自己（读本贴）做了一个anchored 模式，在这个模式下都是英文思维链，出现不是we can，这对不对啊 ...</blockquote>
+不用自己弄了, 只装这一个[https://github.com/yjh051108/dsh-routing-suite](https://github.com/yjh051108/dsh-routing-suite) 就行了,都整合了
+
+
+*****
+
+####  gabriel233  
+##### 9064#       发表于 2026-8-17 13:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091810&amp;ptid=2275806" target="_blank">贝恩德塔 发表于 2026-8-17 10:36</a>
+
+100刀不就是pro5x的价格嘛、。。。。这个相对比pro5x除了能生视频有啥优势吗 ...</blockquote>
+给cursor ultra 和grok bot
+
+能用fable 5 400美刀的额度
+
+*****
+
+####  oct71952  
+##### 9065#       发表于 2026-8-17 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091363&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-17 09:59</a>
+
+至少充个plus吧，5.6sol是我用过这么多模型里面唯一懂得留白，以及懂得伏笔不需要立刻解释的。
+
+其他的模 ...</blockquote>
+我是想开的，但看了网上的反馈，不少人充了plus，写出来的照样是一个个短句。。。 你有碰到过这种情况么？ 
+
+ 7 【为什么gpt写的还是像流水账一样.. - 重生之我是大小姐，通通闪开！ | 小红书 - 你的生活兴趣社区】 😆 hkq31Iythmc5Uto 😆 [https://www.xiaohongshu.com/disc ... sec_source=pc_share](https://www.xiaohongshu.com/discovery/item/6a79d1c4000000000502ae3a?source=webshare&amp;xhsshare=pc_web&amp;xsec_token=ABy_G_Q0ew2kvdGivDyizAqN_mrRp-5o7uvW-2JTulLys=&amp;xsec_source=pc_share)
+
