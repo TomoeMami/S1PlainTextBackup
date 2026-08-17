@@ -12668,3 +12668,11 @@ Nintendo Today更新了CM，任天堂 重新定义 CM，基本上是重新剪的
 
 再给仓花一次机会<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cih  
+##### 2672#       发表于 2026-8-17 07:52
+
+练到60级什么看来能力值又是没上限的了？这个真不好
+
