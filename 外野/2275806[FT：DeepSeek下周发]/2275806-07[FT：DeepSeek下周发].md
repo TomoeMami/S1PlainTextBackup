@@ -173,3 +173,55 @@ ocg涨价还减额度了
 
 这里 贱 指的是不值钱
 
+
+*****
+
+####  GJRstone  
+##### 8895#       发表于 2026-8-17 09:15
+
+看今天涨价后出不出现API性能下降了。不下降就忍痛祝梁圣AGI顺利，还下降直接滑动变阻到梁处
+
+*****
+
+####  科技新闻搬运工  
+##### 8896#       发表于 2026-8-17 09:19
+
+完全不懂的小白进来问一下，是不是用那个WSL部署DSH，然后再上某插件，就可以开启DS V4的觉醒模式了？
+
+
+*****
+
+####  酱油拌饭s  
+##### 8897#       发表于 2026-8-17 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70090861&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-17 09:09</a>
+
+我捣鼓了一个网页版的小助手
+
+捣鼓出来以后不知道写啥了
+
+要不你试试？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">求一下！
+
+*****
+
+####  windhawind2  
+##### 8898#       发表于 2026-8-17 09:23
+
+所以看下来没有便宜的api可用了？<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  费雷拉  
+##### 8899#       发表于 2026-8-17 09:25
+
+token自由时代应该结束了。
+
+以后ai程序员如何规划成本会变成手艺活。
+
+显卡/ai芯片 性能靠堆规模 llm的智能也靠堆规模。
+
+便宜的token本身就没有物质基础，纯烧钱抢市场，和当年的网约车大战没本质区别。
+
+现在也只能说是补贴到头了。
+

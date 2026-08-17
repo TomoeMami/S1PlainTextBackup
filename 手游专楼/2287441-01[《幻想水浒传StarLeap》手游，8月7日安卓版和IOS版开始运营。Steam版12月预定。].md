@@ -650,3 +650,14 @@ steam开服以后是互通吗还是独立的
 
 各种大叔肌肉男倒是歪了五六个<img src="https://static.stage1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ares  
+##### 49#       发表于 2026-8-17 09:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70081946&amp;ptid=2287441" target="_blank">Demi.Albertini 发表于 2026-8-15 19:07</a>
+
+第一次看到没有每日登录奖励的手游，第一次看到活动奖励这么夸张的手游………… ...</blockquote>
+其实是有每日登录奖励的，但是时间比较迷，我一般是接近傍晚才会有
+
