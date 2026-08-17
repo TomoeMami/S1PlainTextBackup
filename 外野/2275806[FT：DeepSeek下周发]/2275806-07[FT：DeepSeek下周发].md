@@ -1987,3 +1987,49 @@ dsh-desktop-ui.7z
 
  7 【为什么gpt写的还是像流水账一样.. - 重生之我是大小姐，通通闪开！ | 小红书 - 你的生活兴趣社区】 😆 hkq31Iythmc5Uto 😆 [https://www.xiaohongshu.com/disc ... sec_source=pc_share](https://www.xiaohongshu.com/discovery/item/6a79d1c4000000000502ae3a?source=webshare&amp;xhsshare=pc_web&amp;xsec_token=ABy_G_Q0ew2kvdGivDyizAqN_mrRp-5o7uvW-2JTulLys=&amp;xsec_source=pc_share)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 9066#       发表于 2026-8-17 13:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70093194&amp;ptid=2275806" target="_blank">oct71952 发表于 2026-8-17 13:34</a>
+我是想开的，但看了网上的反馈，不少人充了plus，写出来的照样是一个个短句。。。 你有碰到过这种情况么 ...</blockquote>
+一看就是没用文风skill规矩好，又不是说用了codex就可以直出
+直出当然还是gpt默认的不说人话的那股味儿
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  qwased  
+##### 9067#       发表于 2026-8-17 13:37
+
+声明：本人一直在互联网上诋毁深度求索，并没有称梁文锋为梁圣，也支持将梁文锋的头P到劲凉上。本人实际上是深度求索十年黑粉，经过长时间的思考，我发现中国AI其实没有希望，有时候做出决定很难，经过许多个日夜的思考，我决定加入openai/gro**丝团(注： anthropic  依然是也够)。至于Kimi，GLM和Minimax(划掉，开源H3的免喷权)，祝他们的token套餐越卖越贵。望周知！
+
+*****
+
+####  hugosol  
+##### 9068#       发表于 2026-8-17 13:39
+
+狗屎dax，中转DS API还慢得要死，我还是回去用原版了，涨价后闲时flash还是用得起的
+
+但是要挑时间用好难受啊啊啊啊<img src="https://static.stage1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蜇灵  
+##### 9069#       发表于 2026-8-17 13:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091492&amp;ptid=2275806" target="_blank">贝恩德塔 发表于 2026-8-17 10:12</a>
+gemini现在9块钱一年半还要啥自行车，其实主要问题还是真要跑长团，gemini3.7flash的对话额度还是不太够用 ...</blockquote>
+这几块钱18个月现在还能买吗？考虑这个月ocg套餐用完了换这个试试看了
+
+*****
+
+####  化物语  
+##### 9070#       发表于 2026-8-17 13:44
+
+空闲期，问了一次pro max，花了6毛，贵了很多，要高峰期那更贵了
+
