@@ -1156,3 +1156,85 @@ pro就没办法了。
 看了一圈感觉小规模使用执行还是v4f（非高峰）划算<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 决策用v4p就已经有点贵了，glm5.3会比v4p解放上限强的多吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  muermaru  
+##### 8983#       发表于 2026-8-17 10:49
+
+我用了挺久的3.5写代码的，感觉matt流程用好了，自己对于需求理解明确，并且代码水平不太差的话，模型差距没那么大，快才是王道。更何况现在3.7能力也慢慢上来了，我还是挺愿意吹gemini的
+
+*****
+
+####  七氷  
+##### 8984#       发表于 2026-8-17 10:49
+
+gpt可以走Google play支付
+
+*****
+
+####  好大一只绅士  
+##### 8985#       发表于 2026-8-17 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091100&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-17 09:34</a>
+
+还有个deepwrite项目
+
+deepwrite免费模型发送！助力大家创作！ https://xhslink.cn/o/HJPjPlEcGE 先复制这 ...</blockquote>
+没xhs账号,有GitHub地址吗
+
+*****
+
+####  王兰花秀丽  
+##### 8986#       发表于 2026-8-17 10:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091900&amp;ptid=2275806" target="_blank">Freewolf 发表于 2026-8-17 10:45</a>
+有人知道国超算的token plan里有d4p0813吗？我看他的可用模型里没有，但积分抵扣规则里有d4p
+ ...</blockquote>
+我之前看财联社是说上了正式版的，可能文档还没更新    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  airshit  
+##### 8987#       发表于 2026-8-17 10:52
+
+有什么地方可以用合理的价格买到glm5.3或者kimi k3啊<img src="https://static.stage1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  crow_wine  
+##### 8988#       发表于 2026-8-17 10:52
+
+国家超算平台有什么活动吗，有没有什么链接注册送积分之类的
+
+*****
+
+####  →熙←  
+##### 8989#       发表于 2026-8-17 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091900&amp;ptid=2275806" target="_blank">Freewolf 发表于 2026-8-17 10:45</a>
+
+有人知道国超算的token plan里有d4p0813吗？我看他的可用模型里没有，但积分抵扣规则里有d4p
+
+ ...</blockquote>
+没有, 里面是预览版
+
+*****
+
+####  →熙←  
+##### 8990#       发表于 2026-8-17 10:54
+
+超算的我看见了调价通知,买个30r先蹬起来,能用多少用多少 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiaohanne  
+##### 8991#       发表于 2026-8-17 10:54
+
+<blockquote>贝恩德塔 发表于 2026-8-17 10:36
+100刀不就是pro5x的价格嘛、。。。。这个相对比pro5x除了能生视频有啥优势吗 ...</blockquote>
+订阅期间送Cursor Ultra。
+
