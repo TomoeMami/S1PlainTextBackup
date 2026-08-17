@@ -732,3 +732,24 @@ steam开服以后是互通吗还是独立的
 
 中文什么时候上啊？
 
+
+*****
+
+####  Demi.Albertini  
+##### 57#         楼主| 发表于 2026-8-17 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095250&amp;ptid=2287441" target="_blank">tvfxqalways5 发表于 2026-8-17 18:05</a>
+
+中文什么时候上啊？</blockquote>
+12月出steam国际服，不知道有没有中文
+
+*****
+
+####  Demi.Albertini  
+##### 58#         楼主| 发表于 2026-8-17 18:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70094187&amp;ptid=2287441" target="_blank">Ares 发表于 2026-8-17 15:49</a>
+
+不是寄赠箱，你晚点登录，就能在寄赠箱那个位置看到</blockquote>
+现在的就是开服每日登录啊，又不是一直有，没有一般手游惯有的常规登录啊
+
