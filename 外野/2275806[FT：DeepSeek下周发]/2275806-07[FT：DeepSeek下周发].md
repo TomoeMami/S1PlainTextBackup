@@ -1633,3 +1633,12 @@ DSH配超算API，服务商选哪个？有大佬指点下吗？</blockquote>
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  →熙←  
+##### 9032#       发表于 2026-8-17 12:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092560&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-17 11:57</a></blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">最好赶紧给我修复pro的问题
+
