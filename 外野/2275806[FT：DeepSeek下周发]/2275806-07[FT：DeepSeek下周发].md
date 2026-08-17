@@ -3584,3 +3584,34 @@ minimax有没有小道消息？有点想预防性购入plan了
 minimax有没有小道消息？有点想预防性购入plan了</blockquote>
 他们一直比较拉胯    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  tillnight  
+##### 9205#       发表于 2026-8-17 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095910&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-8-17 19:58</a>
+
+minimax有没有小道消息？有点想预防性购入plan了</blockquote>
+预计9月底发布3t级模型。但是scaling law也不是一直生效的。尤其是minimax是直接从200b跳到3t的参数大跃进。
+
+*****
+
+####  空き地卯木  
+##### 9206#       发表于 2026-8-17 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095910&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-8-17 19:58</a>
+minimax有没有小道消息？有点想预防性购入plan了</blockquote>
+之前就突发改过plan吧，今天看他家视频服务的时候看到了今年四五月改价的消息
+
+*****
+
+####  半江瑟瑟半江红  
+##### 9207#       发表于 2026-8-17 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095791&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-17 19:38</a>
+这次涨价真是哀鸿遍野了</blockquote>
+黄金时代的错觉是这样的
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
