@@ -735,3 +735,13 @@ ps：我觉得小出已经很温和了<img src="https://static.stage1st.com/imag
 
 不过购物袋也完全可以说是去蛋糕店买东西留下的吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，小子运气挺好（
 
+
+*****
+
+####  ulir  
+##### 360#       发表于 2026-8-18 02:32
+
+王子和卢卡还有op里魔女对位的男性都是一个形象设计，本来以为卢卡的祖先可能是那边来的所以听过一些关于人鱼的传说，但也可能只是个经典王子形象符号
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+
