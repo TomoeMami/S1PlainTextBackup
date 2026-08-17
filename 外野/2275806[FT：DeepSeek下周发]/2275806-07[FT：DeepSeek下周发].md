@@ -3667,3 +3667,35 @@ minimax有没有小道消息？有点想预防性购入plan了</blockquote>
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  谎称  
+##### 9213#       发表于 2026-8-17 21:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70096125&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-8-17 20:45</a>
+
+基元上的deepseekv4flash是预览版的吗</blockquote>
+带日期的是最新的，不带日期的事预览版
+
+*****
+
+####  一般市民  
+##### 9214#       发表于 2026-8-17 21:16
+
+OpenRouter那边Flash有临时打折44% off
+
+*****
+
+####  Freewolf  
+##### 9215#       发表于 2026-8-17 21:16
+
+opencode go 的d4f现在也好卡
+
+*****
+
+####  duanrenduanren  
+##### 9216#       发表于 2026-8-17 21:17
+
+opencode go 一个月是完全不够用，还好第一月只要5刀，只能换模型了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">真的不想给openai和a\付费啊。
+
