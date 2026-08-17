@@ -3855,3 +3855,14 @@ dsh更新rc7了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html
 
 我还是没看懂Open code go的付费到底是能获得多少服务？我能不能简单理解为，我如果使用Deepseek V4 Flash的话，那么我每月的套餐一共可以最多用15美元，相当于Deepseek官网的100块钱的消费？
 
+
+*****
+
+####  城北无尘  
+##### 9235#       发表于 2026-8-17 23:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70096763&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-17 23:13</a>
+
+我还是没看懂Open code go的付费到底是能获得多少服务？我能不能简单理解为，我如果使用Deepseek V4 Flash ...</blockquote>
+是的，首月是5美元买15美元的额度，后续是10美元买15美元
+
