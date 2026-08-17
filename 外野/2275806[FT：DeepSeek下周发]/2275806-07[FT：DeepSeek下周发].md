@@ -3831,3 +3831,11 @@ github就挂了
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  needagf  
+##### 9232#       发表于 2026-8-17 22:37
+
+今天晚上opencode go的v4f 速度慢成马了，卡的一笔。额度还耗得嗷嗷快，简直了
+
