@@ -3228,3 +3228,28 @@ gemini现在9块钱一年半还要啥自行车，其实主要问题还是真要�
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  bartholo4  
+##### 9174#       发表于 2026-8-17 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092829&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-17 12:36</a>
+
+风神插件怎么才算有效, 我只观测到开始的system prompt修改了和后续的自动tool加载, 文档里的近场注入没见 ...</blockquote>
+风神那个套，首先有是用在FLASH MAX上，PRO MAX上起了一点用，但几乎可以忽略。
+
+pro max真正有用的是用j-space 加上 anchored Standard（j-space可选）
+
+
+*****
+
+####  hugosol  
+##### 9175#       发表于 2026-8-17 18:13
+
+opencode go这档子事其实很微妙，他们之前应该只是还在测试，要真正大规模放开给用户用估计还有距离，然后dax就在推特上透露了开发进度
+
+但是因为DS涨价了，他们还是中转方案又只能跟着涨，毕竟code plan的模式，要是用户按原来的价位死命蹬的话，他们肯定要亏本
+
+现在最搞笑的是opencode go这个涨价事前完全没有风声，大家看dax信心满满的还以为他会维持原价，没想到17号晚上就突然跟着涨了，就显得特别怂<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
