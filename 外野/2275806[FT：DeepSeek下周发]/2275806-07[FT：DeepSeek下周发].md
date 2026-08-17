@@ -1461,3 +1461,38 @@ Ds写文和角色扮演最好用的还是3.2(虽然八股用词还是有不少)�
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  overflowal  
+##### 9015#       发表于 2026-8-17 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092163&amp;ptid=2275806" target="_blank">七氷 发表于 2026-8-17 11:10</a>
+好日子还会有吗，华子那一万张到了还能再降吗</blockquote>
+梁圣不是已经说1万张毛都不是了嘛，10万张才算尝尝咸淡    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  谎称  
+##### 9016#       发表于 2026-8-17 11:37
+
+都涨价了……
+
+*****
+
+####  c月光咖啡  
+##### 9017#       发表于 2026-8-17 11:37
+
+一个早上用V4F就蹬了 ocg套餐的5小时额度90%，一周额度的36%<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cube  
+##### 9018#       发表于 2026-8-17 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092185&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-8-17 11:13</a>
+只要新注册一个号，然后在预约的时候选择科研用途就可以订阅了</blockquote>
+怎么跟网络供应商一样专坑老客户<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+现在第二档日常工作够用么，还是说第三档？
+
