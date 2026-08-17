@@ -257,3 +257,68 @@ https://www.scnet.cn/ac/openapi/doc/2.0/moduleapi/plans/token-plan.html
 
 有人用过超算的0731flash吗，说是30块钱能蹬15亿左右
 
+
+*****
+
+####  冤枉呐  
+##### 8903#       发表于 2026-8-17 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70090843&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-8-17 09:07</a>
+
+趁人少来求问一下，单纯写文用是不是没必要折腾dsh，还是老老实实用之前的软件就行？
+
+顺便求问有什么针对fl ...</blockquote>
+还有个deepwrite项目
+
+deepwrite免费模型发送！助力大家创作！ [https://xhslink.cn/o/HJPjPlEcGE](https://xhslink.cn/o/HJPjPlEcGE) 先复制这段文字，再进【小红书】查看完整笔记。
+
+这个人自己搓的，但是一直不支持知识库
+
+你看着用用
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8904#       发表于 2026-8-17 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70090843&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-8-17 09:07</a>
+趁人少来求问一下，单纯写文用是不是没必要折腾dsh，还是老老实实用之前的软件就行？
+
+顺便求问有什么针对fl ...</blockquote>
+小参数模型写作非常一般
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  crow_wine  
+##### 8905#       发表于 2026-8-17 09:38
+
+看一下能不能用本地的千问了
+
+*****
+
+####  muermaru  
+##### 8906#       发表于 2026-8-17 09:39
+
+deepseek写出来的东西就特别的……无趣，需要你自己大量润色
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8907#       发表于 2026-8-17 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091151&amp;ptid=2275806" target="_blank">muermaru 发表于 2026-8-17 09:39</a>
+deepseek写出来的东西就特别的……无趣，需要你自己大量润色</blockquote>
+其实AI写作不怕直出无趣，怕的是不遵循指令和注意力涣散，以及配套的专武工具调用不积极，文风是最容易纠正的，但是这三条非常难办。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  crow_wine  
+##### 8908#       发表于 2026-8-17 09:43
+
+打算试一下 Qwen3.8-27B 4bit 量化了
+

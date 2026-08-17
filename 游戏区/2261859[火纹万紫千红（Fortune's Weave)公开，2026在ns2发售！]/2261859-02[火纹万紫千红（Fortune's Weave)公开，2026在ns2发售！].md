@@ -12815,3 +12815,36 @@ Nintendo Today更新了CM，任天堂 重新定义 CM，基本上是重新剪的
 
 四线一起感觉格纳库里全是人啊
 
+
+*****
+
+####  bbluekid  
+##### 2684#       发表于 2026-8-17 09:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70090892&amp;ptid=2261859" target="_blank">qiyu1234 发表于 2026-8-17 09:14</a>
+
+除了这俩不太确定以外其他角色都比较明显，每个主角（包括真主角）带俩本线亲近角色
+
+ ...</blockquote>
+斧骑士应该就是蕾达的保镖巴卡尼亚吧，另外一个剑士看不清
+
+*****
+
+####  bbluekid  
+##### 2685#       发表于 2026-8-17 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091004&amp;ptid=2261859" target="_blank">darkprince120 发表于 2026-8-17 09:24</a>
+
+人气最高的白鸦的新娘呢？左上角那位上半身被挡住的是她还是保姆老太？
+
+如果最后阵容没有白鸦花嫁，难道 ...</blockquote>
+这个就是4主角加救世主的小队初始成员吧
+
+
+*****
+
+####  thecatnie  
+##### 2686#       发表于 2026-8-17 09:45
+
+这部不会是火焰纹章人造人篇吧，自捏主角就是特兰克斯，把人救下来后：“五年后将出现一个无比强大的敌人，大家这五年回去各自锻炼，五年后在XXX集合”
+
