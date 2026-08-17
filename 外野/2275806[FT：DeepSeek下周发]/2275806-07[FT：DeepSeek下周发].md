@@ -3847,3 +3847,11 @@ github就挂了
 
 dsh更新rc7了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  来都来了  
+##### 9234#       发表于 2026-8-17 23:13
+
+我还是没看懂Open code go的付费到底是能获得多少服务？我能不能简单理解为，我如果使用Deepseek V4 Flash的话，那么我每月的套餐一共可以最多用15美元，相当于Deepseek官网的100块钱的消费？
+
