@@ -2947,3 +2947,36 @@ workbuddy的auto模式还有Claude呢？</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">改个脚本小bug300W token跑了8毛钱，昨晚900W才8毛
 
+
+*****
+
+####  七氷  
+##### 9147#       发表于 2026-8-17 16:57
+
+反重力反代不会封号吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  c12hero  
+##### 9148#       发表于 2026-8-17 16:59
+
+以前是真便宜啊，这随便涨涨，就受不了啦。。。以前综合算下来差不多0.07/M token; 现在我看博主用，折算下来到了0.3/M token。。。。
+
+体感4-5倍的提价
+
+*****
+
+####  xiaohanne  
+##### 9149#       发表于 2026-8-17 17:00
+
+<blockquote>七氷 发表于 2026-8-17 16:57
+反重力反代不会封号吗</blockquote>
+所以用咸鱼gemini，便宜
+
+*****
+
+####  流缨  
+##### 9150#       发表于 2026-8-17 17:00
+
+迁移到wsl了，这极简模式也没触发啊<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">还有什么我不知道的吗？基元律动的羊毛还没蹬完，但感觉撑不了多久了
+
