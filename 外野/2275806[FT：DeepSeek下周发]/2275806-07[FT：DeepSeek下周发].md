@@ -1527,3 +1527,78 @@ DSH配超算API，服务商选哪个？有大佬指点下吗？
 DSH配超算API，服务商选哪个？有大佬指点下吗？</blockquote>
 提供方选自定义
 
+
+*****
+
+####  小野賢章  
+##### 9022#       发表于 2026-8-17 11:57
+
+<img src="https://img.stage1st.com/forum/202608/17/115656tvpute9tie7euqiv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (171 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 11:56 上传
+
+*****
+
+####  Hyst3r1a  
+##### 9023#       发表于 2026-8-17 11:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092060&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-17 11:00</a>
+
+火山两百块的pro基本用不完（我是50块买的），但是得开auto，可能会给你路由到豆包，也能直接选glm5.3， ...</blockquote>
+也是要抢的。。。还得再加个不用抢的定语<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lilod  
+##### 9024#       发表于 2026-8-17 12:01
+
+这下真的是不要打扰 AGI 训练了
+
+*****
+
+####  crow_wine  
+##### 9025#       发表于 2026-8-17 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092564&amp;ptid=2275806" target="_blank">Hyst3r1a 发表于 2026-8-17 11:57</a>
+
+也是要抢的。。。还得再加个不用抢的定语</blockquote>
+我也被坑了，尼玛没留意结果开了个agent 的套餐（不是code的），一个对话没跑完调用几次工具就到限额了
+
+*****
+
+####  小野賢章  
+##### 9026#       发表于 2026-8-17 12:02
+
+梁子可以开发一个新的API，增加价格协商机制，可以实时查询当前的浮动盘口，每个人请求的时候提交自己的价格，然后服务端根据用户的报价进行qos，报价太低的用户响应速度减慢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  love4aids  
+##### 9027#       发表于 2026-8-17 12:02
+
+<img src="https://img.stage1st.com/forum/202608/17/120201zhcoollcfqo5ppmq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (68.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 12:02 上传
+
+这个分数是不是算上稳定了，加了插件后，ds4p明显好起来了，不会出现落后于flash的情况了
+
+*****
+
+####  zhongjie  
+##### 9028#       发表于 2026-8-17 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092592&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-8-17 12:02</a>
+这个分数是不是算上稳定了，加了插件后，ds4p明显好起来了，不会出现落后于flash的情况了 ...</blockquote>
+这是哪个站，我也去测试一下
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
