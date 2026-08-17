@@ -75,3 +75,11 @@
 
 蒜人该看马戏团了
 
+
+*****
+
+####  osore  
+##### 2533#       发表于 2026-8-17 08:52
+
+翻译：千束的手活就是好<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

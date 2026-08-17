@@ -12684,3 +12684,22 @@ Nintendo Today更新了CM，任天堂 重新定义 CM，基本上是重新剪的
 
 五年后右上角那个角色是苏缇斯吗？新画面还挺多的
 
+
+*****
+
+####  qiyu1234  
+##### 2674#       发表于 2026-8-17 08:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70090628&amp;ptid=2261859" target="_blank">天王寺凯伊姆 发表于 2026-8-17 08:32</a>
+
+五年后右上角那个角色是苏缇斯吗？新画面还挺多的</blockquote>
+爱丝梅拉达
+
+<img src="https://img.stage1st.com/forum/202608/17/085642qnf46inrkvwdnd4d.jpg" referrerpolicy="no-referrer">
+
+<strong>b11888d32cdbcc45677207980b90891d3862424.jpg</strong> (216.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 08:56 上传
+

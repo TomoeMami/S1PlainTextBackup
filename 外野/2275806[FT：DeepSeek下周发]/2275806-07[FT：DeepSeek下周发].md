@@ -69,3 +69,27 @@ peak-pricing.ts
 
 点击文件名下载附件
 
+
+*****
+
+####  神必迷你龙  
+##### 8884#       发表于 2026-8-17 08:44
+
+涨价了，这个帖子的回复会开始变少吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bartholo4  
+##### 8885#       发表于 2026-8-17 08:46
+
+有点理解血精灵对太阳井的执念了<img src="https://static.stage1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  坛子漆黑  
+##### 8886#       发表于 2026-8-17 08:48
+
+目前看涨价后,对于使用harness的轻量级用户那种许愿式编程不行了,真的贵啊
+
