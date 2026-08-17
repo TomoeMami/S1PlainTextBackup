@@ -505,3 +505,13 @@ ps：我觉得小出已经很温和了<img src="https://static.stage1st.com/imag
 一个角色是男的也不行、是女的也不 ...</blockquote>
 宝石之国真会当成无性别吗，反正我看动画时感觉弹幕和评论区大伙都是当成全女（和尚除外）看的，外表不就一眼女..
 
+
+*****
+
+####  满满一大杯  
+##### 349#       发表于 2026-8-17 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095945&amp;ptid=2183857" target="_blank">ylssb10438 发表于 2026-8-17 20:06</a>
+宝石之国真会当成无性别吗，反正我看动画时感觉弹幕和评论区大伙都是当成全女（和尚除外）看的，外表不就 ...</blockquote>
+是在社区battle时方便的设定（
+

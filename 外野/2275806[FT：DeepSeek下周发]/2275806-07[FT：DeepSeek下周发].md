@@ -3623,3 +3623,21 @@ minimax有没有小道消息？有点想预防性购入plan了</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhongjie  
+##### 9209#       发表于 2026-8-17 20:28
+
+ 本帖最后由 zhongjie 于 2026-8-17 20:32 编辑 
+
+<img src="https://img.stage1st.com/forum/202608/17/202627fojr8o7p2fqmfjjr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (174.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 20:26 上传
+
+[@bartholo4](https://stage1st.com/2b/home.php?mod=space&amp;uid=220011) 我对比了一下记录，如果只是要let me消失，Anchored最有用。
+

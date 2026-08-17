@@ -13481,3 +13481,23 @@ IGN上了中文版CM
 
 达古札王的雕像我记得手上有两个人头的，我觉得不会是主角，神威法王的几率还是更高
 
+
+*****
+
+####  hu794  
+##### 2748#       发表于 2026-8-17 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095636&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-8-17 19:13</a>
+法比奥人气好像真挺高啊，x上看到好多喜欢的</blockquote>
+法比奥是哪个
+
+*****
+
+####  flyingover  
+##### 2749#       发表于 2026-8-17 20:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70096050&amp;ptid=2261859" target="_blank">hu794 发表于 2026-8-17 20:28</a>
+
+法比奥是哪个</blockquote>
+迪托利希副官，弟弟人那个
+
