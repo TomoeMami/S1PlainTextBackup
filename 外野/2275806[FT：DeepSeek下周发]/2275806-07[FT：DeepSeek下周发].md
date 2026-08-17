@@ -3974,3 +3974,28 @@ kimi coding plan又不开放买
 
 今天调个图flash花了我十多块，以前三块就能拿下的，什么时候才能降价啊
 
+
+*****
+
+####  冤枉呐  
+##### 9247#       发表于 2026-8-18 01:10
+
+怎么说呢，还是得改
+
+我用dsh，还有基元的那个蠢harness调kimi2.7
+
+dsh调，kimi拒绝承认自己有视觉能力
+
+基元的那个，不能读写文件，怎么生成怎么错
+
+换成any大善人，用Claude desktop，读图一次过，生成文件出问题，我让他生产svg代码，给我出了个牛逼的
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+svg xmlns=httpwww.w3.org2000svg wid.svg
+(35.03 KB, 下载次数: 0)
+
+2026-8-18 01:10 上传
+
+点击文件名下载附件
+
