@@ -644,3 +644,188 @@ https://www.scnet.cn/ac/openapi/doc/2.0/moduleapi/plans/token-plan.html
 有人用过超算的0731flash吗， ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 8月11日价格, 还没涨价, 等你买了涨价
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8939#       发表于 2026-8-17 10:17
+
+ 本帖最后由 半江瑟瑟半江红 于 2026-8-17 10:18 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091492&amp;ptid=2275806" target="_blank">贝恩德塔 发表于 2026-8-17 10:12</a>
+gemini现在9块钱一年半还要啥自行车，其实主要问题还是真要跑长团，gemini3.7flash的对话额度还是不太够用 ...</blockquote>
+都订阅plus了，跑团肯定在codex里更舒服啊，直接一个团设置成工作区，带结构化的跟踪文件，比靠上下文记忆硬撑着强多了
+话说你gemini订阅咋这么便宜……我也定了一年，权当喂狗了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  冤枉呐  
+##### 8940#       发表于 2026-8-17 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091368&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-8-17 10:00</a>
+
+我是超细大纲选手，自己写4k字的大纲让ds给扩充到万字左右，前期喂了不少我写的东西，文笔还行，最要命的 ...</blockquote>
+包打了，怎么发你
+
+*****
+
+####  贝恩德塔  
+##### 8941#       发表于 2026-8-17 10:18
+
+ 本帖最后由 贝恩德塔 于 2026-8-17 10:20 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091547&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-17 10:17</a>
+
+都订阅plus了，跑团肯定在codex里更舒服啊，直接一个团设置成工作区，带结构化的跟踪文件，比靠上下文记 ...</blockquote>
+codex要跑项目，一天就能用完，哪来额度跑团啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">codex plus的额度本来就不太够用的，但是pro5x 20x的价格对于我这种非程序员业务爱好无法报销的受众来说有点过于贵了
+
+*****
+
+####  冤枉呐  
+##### 8942#       发表于 2026-8-17 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091368&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-8-17 10:00</a>
+
+我是超细大纲选手，自己写4k字的大纲让ds给扩充到万字左右，前期喂了不少我写的东西，文笔还行，最要命的 ...</blockquote>
+这个得配合
+
+一要知识库，二要维护一个剧情纲要之类的东西
+
+*****
+
+####  酱油拌饭s  
+##### 8943#       发表于 2026-8-17 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091388&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-17 10:02</a>
+
+那细纲还不够细，可以用grilling和ai先把细纲讨论好，5000字大概是40到90轮拷问
+
+基本上是多少字的细纲能 ...</blockquote>
+是分段输出来着，比如12345个剧情点，先把大纲都发给它，然后第一次写12，第二次写3，第三次写45。
+
+codex再叠涨了价的ds有点贵啊<img src="https://static.stage1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 8944#       发表于 2026-8-17 10:20
+
+codex plus感觉纯玩具，除非你只用luna，真要正经干活还得20x<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 8945#       发表于 2026-8-17 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091532&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-17 10:15</a>
+8月11日价格, 还没涨价, 等你买了涨价</blockquote>
+按他这个额度涨了应该也有5亿左右，蹬的不狠应该够了，毕竟难的任务可以切glm
+
+*****
+
+####  Promeus  
+##### 8946#       发表于 2026-8-17 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091492&amp;ptid=2275806" target="_blank">贝恩德塔 发表于 2026-8-17 10:12</a>
+gemini现在9块钱一年半还要啥自行车，其实主要问题还是真要跑长团，gemini3.7flash的对话额度还是不太够用 ...</blockquote>
+这破AI味都熏人了吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  酱油拌饭s  
+##### 8947#       发表于 2026-8-17 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091553&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-17 10:18</a>
+
+包打了，怎么发你</blockquote>
+给大佬发站短了！<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akirt  
+##### 8948#       发表于 2026-8-17 10:22
+
+现在就看雷总的mimo3出来是什么定价了
+
+
+*****
+
+####  酱油拌饭s  
+##### 8949#       发表于 2026-8-17 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091561&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-17 10:19</a>
+
+这个得配合
+
+一要知识库，二要维护一个剧情纲要之类的东西</blockquote>
+知识库做了，不知道是软件太智障了还是啥，看着深度思考里明明过知识库了，还是在基础设定上胡说八道。
+
+求教剧情纲要具体是放在什么地方？
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8950#       发表于 2026-8-17 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091572&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-8-17 10:20</a>
+是分段输出来着，比如12345个剧情点，先把大纲都发给它，然后第一次写12，第二次写3，第三次写45。
+
+codex ...</blockquote>
+这种分段输出我试过，效果非常不好，GPT的观点是约束太大，ai会选择最不出错也就是最平庸的生成内容
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  卡普空  
+##### 8951#       发表于 2026-8-17 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091318&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-17 09:55</a>
+
+最新一期屎山论剑的结果。
+
+█████  Gemini  ≈¥3.43   4分</blockquote>
+这是啥意思
+
+*****
+
+####  千千千千鸟  
+##### 8952#       发表于 2026-8-17 10:26
+
+新价格还没用，看了下还剩20块钱
+
+*****
+
+####  贝恩德塔  
+##### 8953#       发表于 2026-8-17 10:26
+
+ 本帖最后由 贝恩德塔 于 2026-8-17 10:28 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091587&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-17 10:21</a>
+
+这破AI味都熏人了吧</blockquote>
+长团嘛，在没有agent作为锚点，没写专门提示词的情况下，能注意到四神和帝皇的变化已经挺难了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半江瑟瑟半江红  
+##### 8954#       发表于 2026-8-17 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091612&amp;ptid=2275806" target="_blank">酱油拌饭s 发表于 2026-8-17 10:23</a>
+知识库做了，不知道是软件太智障了还是啥，看着深度思考里明明过知识库了，还是在基础设定上胡说八道。
+
+ ...</blockquote>
+https://github.com/worldwonderer/oh-story-claudecode
+用这套工具里的拆书把小说拆解成工作结构，然后在agent.md里再规定相关内容一定要读取权威原文
+另外不要做知识库，小说被向量化之后会丢失很多细节，有的时候这些细节反而是至关重要的，例如伏笔，角色的微动作，微表情之类的。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  蛋黄酱Release  
+##### 8955#       发表于 2026-8-17 10:27
+
+opencode现在60刀的模型越来越少了，现在还有什么智商和性价比不错的plan可以买么？grok？
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
