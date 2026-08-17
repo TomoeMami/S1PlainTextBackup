@@ -2713,3 +2713,45 @@ mimo 无印如果涨价的话感觉不是人
 —— 来自 Xiaomi 25128PNA1C, Android 17, 鹅球 v3.5.99 ...</blockquote>
 直接涨价应该不至于，但有可能MIMO 3出来以后，MIMO 2.5停止服务。
 
+
+*****
+
+####  startraveller  
+##### 9129#       发表于 2026-8-17 15:51
+
+command code那个goat好像涨得不多，有人用过吗？
+
+*****
+
+####  蛋黄酱Release  
+##### 9130#       发表于 2026-8-17 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70094132&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-17 15:42</a>
+新模型涨价无所谓，老模型保留价格就行，mimo虽然很弱智但养虾足够了。
+
+要便宜mimo也没了就只能琢磨反代g ...</blockquote>
+老模型大概率直接取消了吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+小米也不是做慈善的，一开始mimo定价那么高不就是因为deepseek才降价的
+
+*****
+
+####  tillnight  
+##### 9131#       发表于 2026-8-17 15:53
+
+<blockquote>hugosol 发表于 2026-8-17 15:18
+因为之前DS太便宜了目前所有第三方都是中转的，不用想了
+
+以后如果第三方算上开发部署运维这些成本能开出比 ...</blockquote>
+其实逼第三方自己部署应该是阳谋，算不上给ds洗地，因为他这次的涨价明显留了非常大的利润空间了，如果单纯只是想多赚钱翻倍才是甜蜜点，还是性价比选择只是没那么便宜，营收可能往翻倍走了。现在直接实际体感谷时也有四五倍就是在赶人。
+
+*****
+
+####  xiaohanne  
+##### 9132#       发表于 2026-8-17 15:54
+
+<blockquote>蛋黄酱Release 发表于 2026-8-17 15:52
+老模型大概率直接取消了吧
+
+小米也不是做慈善的，一开始mimo定价那么高不就是因为deepseek才降价的 ...</blockquote>
+其实我订阅还是不少的，但是你真拿K3这种级别的去养虾，一个是特别浪费，另一个是code越好的模型思考越多输出速度实在是太慢了，反而不适合养虾。
+

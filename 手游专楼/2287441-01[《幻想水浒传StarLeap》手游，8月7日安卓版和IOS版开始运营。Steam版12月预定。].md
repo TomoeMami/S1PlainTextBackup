@@ -713,3 +713,14 @@ steam开服以后是互通吗还是独立的
 这游戏的每日奖励是中午11点更新的</blockquote>
 第一次看到中午12点（北京时间11点）重置每日任务和奖励的游戏<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ares  
+##### 55#       发表于 2026-8-17 15:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70093598&amp;ptid=2287441" target="_blank">Demi.Albertini 发表于 2026-8-17 14:35</a>
+
+原来是寄赠箱就算登陆奖励了么？</blockquote>
+不是寄赠箱，你晚点登录，就能在寄赠箱那个位置看到
+
