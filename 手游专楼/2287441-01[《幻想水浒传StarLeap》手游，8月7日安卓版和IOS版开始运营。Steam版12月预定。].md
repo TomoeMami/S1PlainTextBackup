@@ -671,3 +671,26 @@ steam开服以后是互通吗还是独立的
 
 —— 来自 OnePlus PLR110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Demi.Albertini  
+##### 51#         楼主| 发表于 2026-8-17 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70090985&amp;ptid=2287441" target="_blank">Ares 发表于 2026-8-17 09:22</a>
+
+其实是有每日登录奖励的，但是时间比较迷，我一般是接近傍晚才会有</blockquote>
+原来是寄赠箱就算登陆奖励了么？
+
+*****
+
+####  Demi.Albertini  
+##### 52#         楼主| 发表于 2026-8-17 14:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70093505&amp;ptid=2287441" target="_blank">fredfei 发表于 2026-8-17 14:22</a>
+
+这概率是调过了么，前40抽10连全是1ssr+1~2sr，然后就是30抽全是r连sr都没。
+
+—— 来自 OnePlus PLR110, A ...</blockquote>
+还债而已吧…………………………
+

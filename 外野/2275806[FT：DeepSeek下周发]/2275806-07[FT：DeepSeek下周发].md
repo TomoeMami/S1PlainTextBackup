@@ -2410,3 +2410,44 @@ https://github.com/MikeTheWiTness/dsh-routing-for-mac
 
 目前只有超算平台的flash是最便宜的吗
 
+
+*****
+
+####  c月光咖啡  
+##### 9099#       发表于 2026-8-17 14:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70093618&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-8-17 14:37</a>
+
+目前只有超算平台的flash是最便宜的吗</blockquote>
+超算只能提供给agent使用，当API集成到项目里是不允许的。
+
+而且据说疯狂报429错误，抽风严重
+
+*****
+
+####  zris  
+##### 9100#       发表于 2026-8-17 14:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">一没留意，给我一个task 20大洋干没了
+
+ds要是不搞coding plan实在是难顶
+
+*****
+
+####  zris  
+##### 9101#       发表于 2026-8-17 14:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">一没留意，给我一个task 20大洋干没了
+
+ds要是不搞coding plan实在是难顶
+
+*****
+
+####  qwased  
+##### 9102#       发表于 2026-8-17 14:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70093410&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-17 14:09</a>
+
+Glm写文一直都挺一般的，过于注重coding能力导致ai会忍不住解释任何一个伏笔任何一个留白，因为coding就 ...</blockquote>
+sol没用过，terra我感觉加载了grill me写作版之后讨论起来比ds pro预览版强太多
+
