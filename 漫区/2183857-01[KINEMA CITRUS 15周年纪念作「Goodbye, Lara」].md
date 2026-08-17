@@ -704,3 +704,15 @@ ps：我觉得小出已经很温和了<img src="https://static.stage1st.com/imag
 
 有很多“重复”的地方，无论是上集的恢复鱼尾原型，这集开局呼应ep1的空中飞鱼，还是中间因为物件掉落而ptsd，又或者是仅本集反复出现的平地摔情节，都是相似情节的二次变化。反复出现，强调相似，但用法却截然不同，非常灵活，这种感觉也很几原捏（
 
+
+*****
+
+####  MASKA-1  
+##### 357#       发表于 2026-8-18 00:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70096870&amp;ptid=2183857" target="_blank">帆前 发表于 2026-8-17 23:34</a>
+哦哦，果然还是单纯长得像吗，本集王子2.0剧情，也是拉拉再次面对初恋情伤，得到不一样的答案。
+
+可以看出这 ...</blockquote>
+能找到拉拉是因为开头卢卡捡到并送还的袋子是蛋糕店的购物袋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
