@@ -2561,3 +2561,84 @@ token消耗量其实大部分还是agent试错环节消耗太多token，要是�
 <blockquote>åç ee9e517 åºçº¿ç DoIntersections åç¸å³ç»æï¼ç¡®è®¤åå§æµç¨ã</blockquote>
 glm 这乱码真的绷不住<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  crow_wine  
+##### 9114#       发表于 2026-8-17 15:16
+
+<blockquote>Current code has TWO deferral mechanisms:
+
+Dynamic arc split (Ã¢Â¥2 intersections on an arc) Ã¢ split + defer
+
+Free-beam deferral (ANY single arc-involved internal intersection) Ã¢ defer + insert intersection-y scanlines + free_scanline_ys_ tracking
+
+User's desired flow removes mechanism #2 entirely. Single arc-involved intersections are handled by ProcessIntersectList directly (ee9e517 behavior). Only Ã¢Â¥2 triggers deferral+split. The split point y (from SplitActiveArc) is the only new scanline besides reinserted top_y.</blockquote>
+glm这乱码的频率真的是绷不住<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hugosol  
+##### 9115#       发表于 2026-8-17 15:18
+
+因为之前DS太便宜了目前所有第三方都是中转的，不用想了
+
+以后如果第三方算上开发部署运维这些成本能开出比官方更低的价格，这生意就可以做得下去
+
+梁子是想用涨价的手段让全球的infra能力得到锻炼，代价是自己将要承受AGI叛徒的骂名，其名为零之镇魂曲
+
+好吧我编不下去了
+
+*****
+
+####  love4aids  
+##### 9116#       发表于 2026-8-17 15:18
+
+装了极简预设后，lets出现概率很高，偶尔也有letme，wait
+
+
+*****
+
+####  overflowal  
+##### 9117#       发表于 2026-8-17 15:20
+
+梁子应该最开始觉得国外会自己部署，没想到国外也全员薅本家的。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  琦乐无穷  
+##### 9118#       发表于 2026-8-17 15:20
+
+太难受了，原本一个月跑v4f跑跑图，写写报告，一个月就用100元，现在估计要到300-500，这翻倍怎么遭得住哦
+
+*****
+
+####  木谷高明  
+##### 9119#       发表于 2026-8-17 15:22
+
+GPT靠谱点的低价一手渠道是微软azure云给的企业订阅额度，因为和OpenAI合作。
+
+假如国内有的话大概也是某个有算力的云厂商能压到比较低的价格，比如中西部低电价东数西算，指望ds官方搞算力基建还是不太够用。
+
+*****
+
+####  真红之闪电  
+##### 9120#       发表于 2026-8-17 15:23
+
+现在哪里有便宜的第三方？之前不都是没利润转发的官方吗？这不跟着涨价才见鬼了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  小野賢章  
+##### 9121#       发表于 2026-8-17 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70093981&amp;ptid=2275806" target="_blank">木谷高明 发表于 2026-8-17 15:22</a>
+
+GPT靠谱点的低价一手渠道是微软azure云给的企业订阅额度，因为和OpenAI合作。
+
+假如国内有的话大概也是某个 ...</blockquote>
+我们用就是azure的，sol 10$/M，terra 5$/M<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
