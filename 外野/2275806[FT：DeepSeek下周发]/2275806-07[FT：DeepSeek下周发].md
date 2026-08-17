@@ -2755,3 +2755,32 @@ command code那个goat好像涨得不多，有人用过吗？
 小米也不是做慈善的，一开始mimo定价那么高不就是因为deepseek才降价的 ...</blockquote>
 其实我订阅还是不少的，但是你真拿K3这种级别的去养虾，一个是特别浪费，另一个是code越好的模型思考越多输出速度实在是太慢了，反而不适合养虾。
 
+
+*****
+
+####  谎称  
+##### 9133#       发表于 2026-8-17 16:04
+
+基元的服务器也开始卡了……预览版的v4没涨价，但是不好连了……
+
+*****
+
+####  →熙←  
+##### 9134#       发表于 2026-8-17 16:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我感觉牢梁承接了全世界的转发
+
+那就是全世界都在蹬他, 但是他顶住了, 这是真nb
+
+
+*****
+
+####  overflowal  
+##### 9135#       发表于 2026-8-17 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70094301&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-17 16:04</a>
+我感觉牢梁承接了全世界的转发
+
+那就是全世界都在蹬他, 但是他顶住了, 这是真nb ...</blockquote>
+明显是加了几波机器的，被蹬崩了几次了。现在这样涨价明显就是那几次内部已经把研究用的资源都交出去了。<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
