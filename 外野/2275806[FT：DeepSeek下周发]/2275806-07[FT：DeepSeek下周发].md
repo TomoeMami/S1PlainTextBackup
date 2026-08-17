@@ -3839,3 +3839,11 @@ github就挂了
 
 今天晚上opencode go的v4f 速度慢成马了，卡的一笔。额度还耗得嗷嗷快，简直了
 
+
+*****
+
+####  王兰花秀丽  
+##### 9233#       发表于 2026-8-17 23:01
+
+dsh更新rc7了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
