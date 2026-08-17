@@ -13248,3 +13248,26 @@ A少那个副官居然发言还挺正派的。
 
 —— 来自 Xiaomi 24090RA29C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  星花  
+##### 2726#       发表于 2026-8-17 14:28
+
+重复人物更大的概率是最后让你选择用哪一个路线的人物。
+
+
+*****
+
+####  mai6696  
+##### 2727#       发表于 2026-8-17 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70093545&amp;ptid=2261859" target="_blank">星花 发表于 2026-8-17 14:28</a>
+
+重复人物更大的概率是最后让你选择用哪一个路线的人物。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer"> 就不能好处都吃了吗？
+
+一条线练土匪鬼神一击，一条线练天马警戒姿态。
+
+最后熟练度合体，两边都到手。
+

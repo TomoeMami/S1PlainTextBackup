@@ -2326,3 +2326,87 @@ Deepseek V4 Pro-0813：
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  ycjiang1337  
+##### 9090#       发表于 2026-8-17 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092396&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-8-17 11:37</a>
+梁圣不是已经说1万张毛都不是了嘛，10万张才算尝尝咸淡    Re:Source</blockquote>
+你看错了，他说是训练下一代的10T模型需要10W张昇腾
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  Gir4ff3  
+##### 9091#       发表于 2026-8-17 14:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">直接play商店给chatgpt打钱能不能跳过那个电话验证
+
+*****
+
+####  c月光咖啡  
+##### 9092#       发表于 2026-8-17 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70093483&amp;ptid=2275806" target="_blank">haiuhfuwah 发表于 2026-8-17 14:20</a>
+
+意思是市面上所有的ds都是接的原生的？都跟着一起涨价？</blockquote>
+我觉得可能是一盘大棋，不能让美帝AI死那么快，不能杀死同行，要给全行业分利润
+
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">我只能编那么多了
+
+*****
+
+####  夜游宫  
+##### 9093#       发表于 2026-8-17 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70093483&amp;ptid=2275806" target="_blank">haiuhfuwah 发表于 2026-8-17 14:20</a>
+
+意思是市面上所有的ds都是接的原生的？都跟着一起涨价？</blockquote>
+看得出来AI是真的烧了他们很多钱，现在连蚊子腿也不放过了。<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ycjiang1337  
+##### 9094#       发表于 2026-8-17 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70093463&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-17 14:16</a>
+因为很久之前承诺过9月份卡到货后降价
+当然现在看来形势变化太大 不大可能会实现了 9月到货这个前提华为 ...</blockquote>
+实际上950DT的出货时间已经提前到8月了，真要是一万张卡给推理肯定是极大富裕的，采访说的10万张卡是训练下一代10T级模型需要的量
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+
+*****
+
+####  UncleDracula  
+##### 9095#       发表于 2026-8-17 14:33
+
+超算的flash已经被蹬到阿黑颜了，各种连不上。投靠codex去了，快乐的日子总是短暂的<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一般市民  
+##### 9096#       发表于 2026-8-17 14:33
+
+我相信……内蒙古数据中心建好的那一天大肥鱼会降价的……应该罢  <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛋黄酱Release  
+##### 9097#       发表于 2026-8-17 14:35
+
+这个什么风神插件效果好吗，和官方的极简模式差别多大？
+我花了2%ocg周额度写了个mac版本的，还修了一些路径bug，有mac的可以测试一下<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+https://github.com/MikeTheWiTness/dsh-routing-for-mac
+
+*****
+
+####  德尔惠净水器  
+##### 9098#       发表于 2026-8-17 14:37
+
+目前只有超算平台的flash是最便宜的吗
+
