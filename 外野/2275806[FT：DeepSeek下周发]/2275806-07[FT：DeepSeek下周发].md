@@ -3463,3 +3463,25 @@ gpt plus也不能直接api，需要反代才能用吧，那和gemini pro不一�
 
 阿里云为啥只有pro没有flash？
 
+
+*****
+
+####  Fidel  
+##### 9193#       发表于 2026-8-17 19:13
+
+那个所谓的国家超算平台（scnet）在它们的客户端推出了自己对标openclaw的sclaw，本质上是嵌套网页，充当的中转站角色，性能极差。执行任何命令（甚至是写入文件）都是一个字一个词地从屏幕上蹦出来，也不支持全自动托管。跟cherry studio完全没有可比性
+
+*****
+
+####  bartholo4  
+##### 9194#       发表于 2026-8-17 19:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095342&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-8-17 18:23</a>
+
+jspace说是烂炒，现在token贵了我还没测试。
+
+下面这个是我结合楼上说的插件做的插件，感觉有一些效果：
+
+ht ...</blockquote>
+配置需要修改吗，装上跑了下，不管是pro还是flash 都是let me
+
