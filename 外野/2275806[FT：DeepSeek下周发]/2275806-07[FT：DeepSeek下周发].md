@@ -1410,3 +1410,54 @@ Ds写文和角色扮演最好用的还是3.2(虽然八股用词还是有不少)�
 
 白山智算的暂时还没涨，而且还能用3.2
 
+
+*****
+
+####  →熙←  
+##### 9010#       发表于 2026-8-17 11:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就看是不是都按高峰期价格来涨价
+
+*****
+
+####  zy450  
+##### 9011#       发表于 2026-8-17 11:30
+
+目前看flash+风神插件挺靠谱的，日常开发够用了，创意类的就没办法了
+
+*****
+
+####  贝恩德塔  
+##### 9012#       发表于 2026-8-17 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092120&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-17 11:06</a>
+
+昨天晚上有heavy一百刀，有的用户有效期3个月，有的用户有效期6个月。</blockquote>
+我去，哪里有
+
+
+*****
+
+####  冤枉呐  
+##### 9013#       发表于 2026-8-17 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70091952&amp;ptid=2275806" target="_blank">好大一只绅士 发表于 2026-8-17 10:49</a>
+没xhs账号,有GitHub地址吗</blockquote>
+deepwrite基础教程：https://my.feishu.cn/wiki/LOSHwhfiwiGYYRkMZ49cSwYhnkh?from=from_copylink
+
+这里面应该有
+我不在电脑边上
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  半江瑟瑟半江红  
+##### 9014#       发表于 2026-8-17 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092267&amp;ptid=2275806" target="_blank">huansnow 发表于 2026-8-17 11:22</a>
+Ds写文和角色扮演最好用的还是3.2(虽然八股用词还是有不少)，发散性强，能充分明白你的意图并进行补充发挥 ...</blockquote>
+现在Agent能力训练得太多了，导致它对于每一个事项都必须要闭环，所以写出来的非常古板。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
