@@ -80,3 +80,17 @@ SNK也要有自己的超级爆！爆！回！有没有懂的？</blockquote>
 
 —— 来自 realme RMX3800, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  syndrome2032  
+##### 814#       发表于 2026-8-17 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70093746&amp;ptid=2085684" target="_blank">玉之龙 发表于 2026-8-17 14:54</a>
+原来跟在鸭王身边的不是鸡吗(街霸6联动场景的彩蛋也是鸡)，怎么这会变成正儿八经的鸭子了🤔
+
+—— 来自 rea ...</blockquote>
+小黄鸭吧。。。虽然黄黄的确实很像鸡。
+
+但是duck king应该带的是duck
+

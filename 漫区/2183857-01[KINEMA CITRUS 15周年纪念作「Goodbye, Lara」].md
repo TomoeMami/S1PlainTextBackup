@@ -377,3 +377,23 @@
 无论是场外的宣传，还是场内的茉里和王子之间对位的描写，空罐头，鱼剑的升起，姐姐的针对，与原典宗教元素 ...</blockquote>
 “大津”和“王子”不知道算谐音暗示吗？<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  满满一大杯  
+##### 338#       发表于 2026-8-17 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70094502&amp;ptid=2183857" target="_blank">aptx8285144 发表于 2026-8-17 16:28</a>
+这原来是弟弟吗，听着还以为是妹妹(</blockquote>
+毕竟CV是Ayasa
+
+
+*****
+
+####  yaneis  
+##### 339#       发表于 2026-8-17 16:52
+
+<blockquote>Lawliet.L 发表于 2026-8-17 16:43
+“大津”和“王子”不知道算谐音暗示吗？</blockquote>
+我觉得大概率不算，12集里这个角色能分到的戏份最多就2到3集，比卢卡王子多一集，这种级别的角色承载不动那么多东西
+

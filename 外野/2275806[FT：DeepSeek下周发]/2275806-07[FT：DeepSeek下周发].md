@@ -2892,3 +2892,58 @@ kimi k3
 
 这个月应该是用基元律动的余额号比较划得来，下个月形势又会变，不急一时
 
+
+*****
+
+####  tonyunreal  
+##### 9142#       发表于 2026-8-17 16:46
+
+ 本帖最后由 tonyunreal 于 2026-8-17 16:47 编辑 
+
+下午尝试了三种高峰期的替代方案，括号里是输入输出价钱每M token
+
+A方案：ds4p (9 / 27) 写方案，luna (1 / 5) 执行
+
+B方案：ds4f (3 / 9) 写方案，luna (1 / 5) 执行
+
+C方案：GLM 5.2 (5 / 18) 写方案，luna (1 / 5) 执行
+
+*****
+
+####  不让用大写  
+##### 9143#       发表于 2026-8-17 16:46
+
+workbuddy的auto模式还有Claude呢？
+
+<img src="https://img.stage1st.com/forum/202608/17/164635s0kw0ktvtctktppq.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20260817164342.png</strong> (26.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 16:46 上传
+
+*****
+
+####  kylezy123  
+##### 9144#       发表于 2026-8-17 16:47
+
+ 在酒馆里给v4pro正式版注入提示词也有效果 感觉更遵循预设要求了
+
+*****
+
+####  xiaohanne  
+##### 9145#       发表于 2026-8-17 16:50
+
+<blockquote>不让用大写 发表于 2026-8-17 16:46
+workbuddy的auto模式还有Claude呢？</blockquote>
+是幻觉而已
+
+
+*****
+
+####  逆袭的黑月  
+##### 9146#       发表于 2026-8-17 16:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">改个脚本小bug300W token跑了8毛钱，昨晚900W才8毛
+
