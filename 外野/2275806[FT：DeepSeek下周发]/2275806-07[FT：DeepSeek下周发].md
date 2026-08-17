@@ -44,3 +44,28 @@
 
 *0.000　*0.000　deepseek-v4-flash(自建)
 
+
+*****
+
+####  小野賢章  
+##### 8883#       发表于 2026-8-17 08:42
+
+给 Pi 写了一个高峰期提醒切换模型的扩展，配置文件：~/.pi/agent/peak-pricing.json  {   "rules": [     {       "model": "deepseek/deepseek-*",       "timezone": "Asia/Shanghai",       "periods": [         { "start": "09:00", "end": "12:00" },         { "start": "14:00", "end": "18:00" }       ]     }   ],   "remindIntervalMinutes": 5,   "promptTimeoutSeconds": 0 }复制代码
+
+<img src="https://img.stage1st.com/forum/202608/17/084152czr9crr3mzazrl7q.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>20260817-084135.jpeg</strong> (46.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-17 08:41 上传
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+peak-pricing.ts
+(18.99 KB, 下载次数: 0)
+
+2026-8-17 08:39 上传
+
+点击文件名下载附件
+
