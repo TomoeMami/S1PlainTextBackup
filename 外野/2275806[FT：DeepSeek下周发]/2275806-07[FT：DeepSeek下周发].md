@@ -5015,3 +5015,15 @@ Gemini会员能用API吗    Re:Source</blockquote>
 plus会员的api只能在codex里用吗，如果作为子代理应该还可以吧</blockquote>
 Pi也可以用，但是Luna是真不行，比Flash差远了，经常需要来回多次澄清需求，而且声称1M context，实测效果非常差，用Pi的话需要手动压缩或者找别人做好的codex适配。速度就不用说了，没有谁比得上Flash。
 
+
+*****
+
+####  真红之闪电  
+##### 9336#       发表于 2026-8-18 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099033&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-18 12:24</a>
+好吧，我还以为luna能代替flash</blockquote>
+Luna 要能代替 Flash，da 根本不会涨价
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
