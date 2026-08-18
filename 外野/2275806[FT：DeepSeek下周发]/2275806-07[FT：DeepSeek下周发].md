@@ -4618,3 +4618,40 @@ REAL_SELF_BEHAVIOR 区分了"对外"和"私下"两种模式，还定义了从公
 
 简单说：这不是什么黑魔法，是一套精心设计的 prompt engineering 作品，用格式+密度+示例把模型的行为空间挤压到了创作者想要的形状。</blockquote>
 
+
+*****
+
+####  ayanamilin  
+##### 9298#       发表于 2026-8-18 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098453&amp;ptid=2275806" target="_blank">haiuhfuwah 发表于 2026-8-18 10:53</a>
+
+所以ds的infra确实就是t0级别的？</blockquote>
+善战者无赫赫之功
+
+真正好的 infra 不会让你感受到他的存在。
+
+*****
+
+####  crow_wine  
+##### 9299#       发表于 2026-8-18 11:19
+
+openrouter的 flash 的价格好像还不错
+
+*****
+
+####  zhongjie  
+##### 9300#       发表于 2026-8-18 11:20
+
+opencode好像开始自部署了，额度恢复了一点，但是速度达到了难绷的5 token/s
+
+*****
+
+####  noneoneone  
+##### 9301#       发表于 2026-8-18 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098584&amp;ptid=2275806" target="_blank">makourisu-2 发表于 2026-8-18 11:12</a>
+
+之前一直都是免费的网页版随便用用。今天薅了个羊毛，AMD注册了个账号 每天有一点免费的额度，在cherry stu ...</blockquote>
+可能是用的人多。我之前试过nv的免费AI，除了小的可怜那几个模型之外全都是首字延迟大到没法用。
+
