@@ -6356,3 +6356,30 @@ grok现在好点了么？之前就是路边一条
 
 这个项目，我用了一个星期了还没被封
 
+
+*****
+
+####  grasszyf  
+##### 9457#       发表于 2026-8-18 18:57
+
+<img src="https://img.stage1st.com/forum/202608/18/185537i9zpxvrwqwuxtsu7.png" referrerpolicy="no-referrer">
+
+<strong>chat-demo.png</strong> (191.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 18:55 上传
+
+<img src="https://img.stage1st.com/forum/202608/18/185537ekcbr057b0ersntc.png" referrerpolicy="no-referrer">
+
+<strong>settings-demo.png</strong> (80.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 18:55 上传
+
+搞了个带神态和动作的人格系统，以后和AI对话更有趣了。
+
+有需要的多多支持一下：
+[https://github.com/zhuyun017/dsh-her-companion](https://github.com/zhuyun017/dsh-her-companion)
+
