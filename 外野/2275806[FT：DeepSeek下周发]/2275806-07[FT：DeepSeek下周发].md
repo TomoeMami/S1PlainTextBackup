@@ -4355,3 +4355,23 @@ MAC是unix内核，用DSH、CC、codex这样的agent效率更高，但也不是�
 
 24gb内存1tb存储 这样够用了吧应该？
 
+
+*****
+
+####  windhawind2  
+##### 9278#       发表于 2026-8-18 10:26
+
+<blockquote>cscbzcbz 发表于 2026-8-18 09:58
+只是作为AI用户不需要电脑配置，花API的钱就行，要本地部署可以考虑macbook，不过得配置比较好价格不便宜 ...</blockquote>
+感谢回复 我了解的还是不够多（ 那数据训练就别管了 先买个一般配置macbook试下
+
+
+*****
+
+####  蛋黄酱Release  
+##### 9279#       发表于 2026-8-18 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098234&amp;ptid=2275806" target="_blank">windhawind2 发表于 2026-8-18 10:26</a>
+感谢回复 我了解的还是不够多（ 那数据训练就别管了 先买个一般配置macbook试下 ...</blockquote>
+想本地部署应该还是得买mbp，不打算本地部署的话mba足够用了
+
