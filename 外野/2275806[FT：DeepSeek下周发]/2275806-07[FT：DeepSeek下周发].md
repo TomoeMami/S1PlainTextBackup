@@ -4902,3 +4902,45 @@ m3更贵吧，目前找下来价钱合适随便蹬的就只有mimo和luna
 求教一下，随便蹬luna买哪个套餐？没用过GPT</blockquote>
 Plus就随便蹬了。但是你确定要蹬luna吗，这玩意又慢能力又很一般，远不如纸面上的好看，和v4flash完全是两种东西。
 
+
+*****
+
+####  tonyunreal  
+##### 9325#       发表于 2026-8-18 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099012&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-18 12:20</a>
+
+求教一下，随便蹬luna买哪个套餐？没用过GPT</blockquote>
+是国内的autodl中转的
+
+本来是用来托管comfyui画图的账号，看到有大模型中转功能就试了一下
+
+*****
+
+####  cscbzcbz  
+##### 9326#       发表于 2026-8-18 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099028&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-18 12:22</a>
+Plus就随便蹬了。但是你确定要蹬luna吗，这玩意又慢能力又很一般，远不如纸面上的好看，和v4flash完全是 ...</blockquote>
+好吧，我还以为luna能代替flash<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 9327#       发表于 2026-8-18 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099028&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-18 12:22</a>
+Plus就随便蹬了。但是你确定要蹬luna吗，这玩意又慢能力又很一般，远不如纸面上的好看，和v4flash完全是 ...</blockquote>
+plus会员的api只能在codex里用吗，如果作为子代理应该还可以吧
+
+
+*****
+
+####  qwased  
+##### 9328#       发表于 2026-8-18 12:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099033&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-18 12:24</a>
+
+好吧，我还以为luna能代替flash</blockquote>
+去买8块钱的gemini会员，我试了3.7flash蹬起来比v4flash要强，速度超快（300tk/s以上）还有多模态。但是它的一句话许愿不咋地
+
