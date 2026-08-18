@@ -788,3 +788,14 @@ steam开服以后是互通吗还是独立的
 
 卡2-5的吸血鬼老师了，全队30-35，打出回血以后的连续行动就开始减员，只能攒体力继续拉练度了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  胖达君  
+##### 63#       发表于 2026-8-18 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100470&amp;ptid=2287441" target="_blank">12481632 发表于 2026-8-18 16:10</a>
+
+卡2-5的吸血鬼老师了，全队30-35，打出回血以后的连续行动就开始减员，只能攒体力继续拉练度了 ...</blockquote>
+我之前也卡，然后发现GUEST的学长属性刚好完克，换了她上去后自动都打过了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

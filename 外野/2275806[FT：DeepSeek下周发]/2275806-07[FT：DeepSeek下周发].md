@@ -6314,3 +6314,13 @@ grok现在好点了么？之前就是路边一条
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  overflowal  
+##### 9453#       发表于 2026-8-18 18:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70101223&amp;ptid=2275806" target="_blank">nianiania 发表于 2026-8-18 18:02</a>
+今天才被人教育了一顿，token 是纯消耗品，没了就是没了，硬件是资产，等出了更强更好的新开源那就重新部 ...</blockquote>
+这话说的，硬件也会折旧的。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
