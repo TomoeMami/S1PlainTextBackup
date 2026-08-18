@@ -5964,3 +5964,45 @@ image.png
 
 <img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">用了opencode go感觉速度巨慢, 现在有什么又便宜又快的方案吗
 
+
+*****
+
+####  qwased  
+##### 9421#       发表于 2026-8-18 16:39
+
+测了下qwen3.8 27b，16g的卡跑iq3xxs关MTP开60K上下文应该是甜点，能跑50tk/s，能开视觉
+
+不过用惯了api的长上下文感觉60k真干不了啥，试了下让它读下之前小工具的源代码，它边想边读到一半就上下文耗尽了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lubo  
+##### 9422#       发表于 2026-8-18 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100671&amp;ptid=2275806" target="_blank">风夏 发表于 2026-8-18 16:35</a>
+
+用了opencode go感觉速度巨慢, 现在有什么又便宜又快的方案吗</blockquote>
+gemini3.7flash或者等supergrok出买一送二的活动
+
+*****
+
+####  qwased  
+##### 9423#       发表于 2026-8-18 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100660&amp;ptid=2275806" target="_blank">gaofar 发表于 2026-8-18 16:33</a>
+
+搭车问下   会计相关 需要AI处理多个execl表之间的数据核对之类的逻辑操作   如果本地部署模型 有推荐的么 ...</blockquote>
+两个2080ti 22g跑qwen3.8 27b，但是你确定真的要本地部署吗
+
+*****
+
+####  zhongjie  
+##### 9424#       发表于 2026-8-18 16:41
+
+ 本帖最后由 zhongjie 于 2026-8-18 16:43 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100671&amp;ptid=2275806" target="_blank">风夏 发表于 2026-8-18 16:35</a>
+用了opencode go感觉速度巨慢, 现在有什么又便宜又快的方案吗</blockquote>
+楼里刚刚推荐了一个runinfra。还有一个charm hyper的我觉得ds4flash速度还行，但我用的不多，同时这个的k3喜欢429。另外现在Gemini的3.7flash很便宜
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
