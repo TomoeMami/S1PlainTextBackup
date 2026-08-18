@@ -5870,3 +5870,59 @@ mac和win下有木有推荐的呀，我cli用的比较多，打字打累了<img 
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  杀人鲸  
+##### 9413#       发表于 2026-8-18 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100501&amp;ptid=2275806" target="_blank">zjf 发表于 2026-8-18 16:13</a>
+mac和win下有木有推荐的呀，我cli用的比较多，打字打累了
+
+论坛助手,iPhone</blockquote>
+Mac和Windows也都有豆包的版本了，只不过后面那一个得找一找，还没有正式上架，属于测试版，但测试了好几个版本了。Mac属于是早就做好了。
+
+他妈的贱畜，国内最多的Windows居然反而是后来才开始做的，Mac早就做好了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  蛋黄酱Release  
+##### 9414#       发表于 2026-8-18 16:23
+
+国内有什么性价比还行的多模态模型么，之前有个文字工作的工作流接的是doubao 2.0 pro 效果一般，2.1又狠涨了一波价有点用不起了
+qwen3.7plus纯菜，k3也太贵，minimax m3智商够吗？
+
+
+*****
+
+####  拯救节操希灵宅  
+##### 9415#       发表于 2026-8-18 16:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100117&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-18 15:27</a>
+
+如果成本这么低，众筹租服务器部署，有没有可能</blockquote>
+即使是涨价后的v4f高峰价格，如果要把成本压到和这个价格齐平，也需要至少一个机柜b200的规模和足够去任何一个AI公司上班的infra水平。有这技术不如去opencode教他们怎么部署给大家谋福利
+
+*****
+
+####  xiaohanne  
+##### 9416#       发表于 2026-8-18 16:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100566&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-18 16:23</a>
+
+国内有什么性价比还行的多模态模型么，之前有个文字工作的工作流接的是doubao 2.0 pro 效果一般，2.1又狠涨 ...</blockquote>
+目前最便宜的就是雷圣的mimo2.5，但你最好先试试他的智商够不够你的活，因为他的优点只有便宜……
+
+*****
+
+####  zjf  
+##### 9417#       发表于 2026-8-18 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100536&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-8-18 16:19</a>
+Mac和Windows也都有豆包的版本了，只不过后面那一个得找一找，还没有正式上架，属于测试版，但测试了好几 ...</blockquote>
+多谢，我试试，居然先有mac也是没想到<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
