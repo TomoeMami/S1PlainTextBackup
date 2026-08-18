@@ -6396,3 +6396,15 @@ grok现在好点了么？之前就是路边一条
 </blockquote>
 人格化ai助手有时候有这么个问题，真有感情了他要搞点啥高血压操作你不能像原来那样直接骂他了
 
+
+*****
+
+####  crow_wine  
+##### 9459#       发表于 2026-8-18 19:23
+
+用来哪个router-standard的插件，flash 的雷霆大思考是少了很多，而且调用工具很积极。不过智商没有明显的变化。能感受到 flash 的智商确实不如 pro 很。
+
+不过这样也挺好的，flash 就是执行就好，不要思考太多。向 flash 做许愿式编程本身就不合理。
+
+这两天涨价了，回复到那种自己分析代码判断，给 flash 执行的模式，效率反而高了不少，回归基本功了<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
