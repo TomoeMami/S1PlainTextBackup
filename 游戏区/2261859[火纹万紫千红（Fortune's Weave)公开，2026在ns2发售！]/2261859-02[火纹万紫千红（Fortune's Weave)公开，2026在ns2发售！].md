@@ -13671,3 +13671,56 @@ IGN上了中文版CM
 法比奥人气好像真挺高啊，x上看到好多喜欢的</blockquote>
 法比欧人物介绍的那篇推文从角色公开起就是万紫千红角色推文阅读量最高的
 
+
+*****
+
+####  kalavinka  
+##### 2767#       发表于 2026-8-18 10:08
+
+这枪和主角是同一把吧
+
+<img src="https://img.stage1st.com/forum/202608/18/100630m73kjg7y75yogm5h.jpg" referrerpolicy="no-referrer">
+
+<strong>img_2485.jpg</strong> (238.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 10:06 上传
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  hu794  
+##### 2768#       发表于 2026-8-18 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098077&amp;ptid=2261859" target="_blank">kalavinka 发表于 2026-8-18 10:08</a>
+这枪和主角是同一把吧</blockquote>
+也就是说主角就是神威法王吗，神威法王死了之后，灵魂重生吗。
+
+*****
+
+####  hu794  
+##### 2769#       发表于 2026-8-18 10:14
+
+仔细想想，好想第一个pv，第一个出现的人物就是神威法王，当时就暗示真主角其实是神威法王吧
+
+*****
+
+####  kalavinka  
+##### 2770#       发表于 2026-8-18 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098120&amp;ptid=2261859" target="_blank">hu794 发表于 2026-8-18 10:13</a>
+也就是说主角就是神威法王吗，神威法王死了之后，灵魂重生吗。</blockquote>
+就算不是应该也有关联
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  巴尔干炮  
+##### 2771#       发表于 2026-8-18 10:15
+
+直接说了大会目的是为了唤醒鞑古扎本人。
+

@@ -4279,3 +4279,24 @@ MODE_TAIL_FLUKES</blockquote>
 非程序员，目前主要应 ...</blockquote>
 MAC是unix内核，用DSH、CC、codex这样的agent效率更高，但也不是必须，win用wsl也行，反正建议内存大些就行，不涉及本地训练，主要是以防抽风给你开一堆subagent，以及现在浏览器吃内存越来越多
 
+
+*****
+
+####  crow_wine  
+##### 9270#       发表于 2026-8-18 10:12
+
+为什么 k3 也是各种 but wait<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  tillnight  
+##### 9271#       发表于 2026-8-18 10:14
+
+<blockquote>crow_wine 发表于 2026-8-18 10:12
+为什么 k3 也是各种 but wait
+
+—— 来自 HUAWEI ALN-AL00, Android 12, 鹅球 v3.5.99-alpha</blockquote>
+因为国模思维链都是继承自r1的。
+
