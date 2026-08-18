@@ -16,3 +16,21 @@
 下周末要开测试了，fs和任天堂还一点前瞻都不放出来，有点微妙</blockquote>
 传闻是下周四晚上10点发评测
 
+
+*****
+
+####  Beaverfan01  
+##### 115#       发表于 2026-8-18 21:08
+
+https://mynintendonews.com/2026/08/18/the-duskbloods-characters-and-classes-leak/
+
+My Nintendo News发了一篇职业相关的。
+
+
+*****
+
+####  JOJOROY  
+##### 116#       发表于 2026-8-18 21:10
+
+可以预载了，3.8个G
+
