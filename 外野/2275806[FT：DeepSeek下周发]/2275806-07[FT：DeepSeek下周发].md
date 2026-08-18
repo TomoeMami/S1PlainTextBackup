@@ -6324,3 +6324,13 @@ grok现在好点了么？之前就是路边一条
 今天才被人教育了一顿，token 是纯消耗品，没了就是没了，硬件是资产，等出了更强更好的新开源那就重新部 ...</blockquote>
 这话说的，硬件也会折旧的。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  qwased  
+##### 9454#       发表于 2026-8-18 18:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70101223&amp;ptid=2275806" target="_blank">nianiania 发表于 2026-8-18 18:02</a>
+今天才被人教育了一顿，token 是纯消耗品，没了就是没了，硬件是资产，等出了更强更好的新开源那就重新部 ...</blockquote>
+那只有今年4月那批工包rtx6000 pro 4万整没买很后悔，dgx这种只为了能够运行特化不管速度的设备感觉折旧要另算
+
