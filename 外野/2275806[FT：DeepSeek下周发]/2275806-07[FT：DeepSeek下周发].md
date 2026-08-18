@@ -5119,3 +5119,27 @@ codex的lunamax干活应该还行吧，要求智力高的工作还得是sol来�
 我问咸鱼卖家说是网页版，没有API，兄是咋买的？</blockquote>
 只能用Antigravity，实在想接别的harness用就反代一下（据说反代用的越多封号概率越大）
 
+
+*****
+
+####  scikirbypoke  
+##### 9344#       发表于 2026-8-18 13:37
+
+gemini要正经用得走Google AI Studio，所以算下来还是中转站比较划算
+
+
+*****
+
+####  spaceblue  
+##### 9345#       发表于 2026-8-18 13:40
+
+<img src="https://img.stage1st.com/forum/202608/18/133920b5ml5455ujym6cty.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (369.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 13:39 上传
+
+用数据说话，Luna现在就是比V4F便宜好用太多还能识图。GPT Plus还带网页版无限聊天和生图。
+
