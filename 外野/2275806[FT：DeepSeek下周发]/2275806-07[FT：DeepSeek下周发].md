@@ -5630,3 +5630,39 @@ runinfra这个真的可以试一下，有180token/s用下来感觉人生都加�
 我也觉得，真的是不思进取。只要你琢磨下，研究一下，别说和第一方之前的价格一样，你就是稍微比涨价后的价 ...</blockquote>
 说明大家都只想白嫖梁子 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cscbzcbz  
+##### 9392#       发表于 2026-8-18 15:27
+
+如果成本这么低，众筹租服务器部署，有没有可能
+
+
+*****
+
+####  qwased  
+##### 9393#       发表于 2026-8-18 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100117&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-18 15:27</a>
+如果成本这么低，众筹租服务器部署，有没有可能</blockquote>
+你说的这玩意有个名字叫中转站
+
+*****
+
+####  wuuuuuud  
+##### 9394#       发表于 2026-8-18 15:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100170&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-18 15:32</a>
+你说的这玩意有个名字叫中转站</blockquote>
+中转站怎么会自己部署...
+
+—— 来自 nubia NX737J, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  overflowal  
+##### 9395#       发表于 2026-8-18 15:34
+
+这什么j space玩意真有人信啊？这不就是AI版的量子养生水杯。觉得A/的术语高大上就随便整整骗人<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
