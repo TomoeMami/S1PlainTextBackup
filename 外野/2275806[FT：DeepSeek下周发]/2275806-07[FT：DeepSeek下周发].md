@@ -6763,3 +6763,66 @@ https://ark.volcengine.com/region:cn-beijing/openManagement?LLM=%7B%7D&amp;advan
 
 我觉得kimi在deepseek涨价之后变得更卡了
 
+
+*****
+
+####  crow_wine  
+##### 9489#       发表于 2026-8-18 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70102999&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-18 23:05</a>
+https://ark.volcengine.com/region:cn-beijing/openManagement?LLM=%7B%7D&amp;advancedActiveKey=model
+
+火山 ...</blockquote>
+我看了官网api的价格和deepseek官网一模一样，甚至还多了缓存储存的钱
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  飛霞精灵  
+##### 9490#       发表于 2026-8-18 23:14
+
+猴王家的新闻还是别往楼里搬了，维持股价而已，DS就算涨价，也没mimo上桌的机会，不是一个档次的东西。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  crow_wine  
+##### 9491#       发表于 2026-8-18 23:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70103018&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-8-18 23:08</a>
+不止 这个点还有活人客服 仿佛回到了2016</blockquote>
+我是直接买了264那档，用 glm 5.2 和 k3 强硬蹬了13万积分，还剩77%，这两蛆我是打死不会再用了
+如果他的 pro 是正式版就好了，还是很想用 pro，
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  dear81  
+##### 9492#       发表于 2026-8-18 23:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70103007&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-8-18 23:06</a>
+https://www.scnet.cn/ac/openapi/doc/2.0/moduleapi/plans/token-plan.html
+
+拉了下表，超算中心这token  ...</blockquote>
+它这个积分怎么换算token的？
+
+
+*****
+
+####  空き地卯木  
+##### 9493#       发表于 2026-8-18 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70103073&amp;ptid=2275806" target="_blank">dear81 发表于 2026-8-18 23:19</a>
+它这个积分怎么换算token的？</blockquote>
+我是按token plan最低档60000积分30块来算的，然后乘上8月11日最新的积分表
+
+*****
+
+####  tonyunreal  
+##### 9494#       发表于 2026-8-18 23:25
+
+把9142楼D方案的代码用闲时dsv4 flash改了改（方案+执行都是flash）
+
+用了两个会话，28M token，花费 3.06 。
+
