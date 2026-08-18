@@ -4842,3 +4842,63 @@ qwen3.8 27b我现在都是4096context+q4这种配置来翻译 稍微大一点的
 今天晚上买了个 DeepSeek-V4-Flash-0731冰点秒杀套餐包
 直接不给用，问客服说明天再试。。。
 
+
+*****
+
+####  tonyunreal  
+##### 9320#       发表于 2026-8-18 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098863&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-18 11:53</a>
+
+mimo现在菜的不如minimax m3，比qwen3.8 27b更是菜一大截</blockquote>
+m3更贵吧，目前找下来价钱合适随便蹬的就只有mimo和luna
+
+反正只是高峰期的备胎
+
+
+*****
+
+####  真红之闪电  
+##### 9321#       发表于 2026-8-18 12:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098219&amp;ptid=2275806" target="_blank">windhawind2 发表于 2026-8-18 10:25</a>
+主要是原电脑真的太卡了 再加上想试试新东西（
+
+24gb内存1tb存储 这样够用了吧应该？ ...</blockquote>
+32gm1 max，不够
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  cscbzcbz  
+##### 9322#       发表于 2026-8-18 12:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098996&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-18 12:17</a>
+m3更贵吧，目前找下来价钱合适随便蹬的就只有mimo和luna
+
+反正只是高峰期的备胎 ...</blockquote>
+求教一下，随便蹬luna买哪个套餐？没用过GPT
+
+*****
+
+####  neptunehs  
+##### 9323#       发表于 2026-8-18 12:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099012&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-18 12:20</a>
+求教一下，随便蹬luna买哪个套餐？没用过GPT</blockquote>
+说的是opencode go吧 有luna 有mimo 有m3
+虽然我感觉opencode go的luna如果哪天没有2x了 也不是可以随便蹬的价格就是了
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  tillnight  
+##### 9324#       发表于 2026-8-18 12:22
+
+<blockquote>cscbzcbz 发表于 2026-8-18 12:20
+求教一下，随便蹬luna买哪个套餐？没用过GPT</blockquote>
+Plus就随便蹬了。但是你确定要蹬luna吗，这玩意又慢能力又很一般，远不如纸面上的好看，和v4flash完全是两种东西。
+
