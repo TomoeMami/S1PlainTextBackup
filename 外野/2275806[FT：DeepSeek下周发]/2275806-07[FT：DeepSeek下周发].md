@@ -4944,3 +4944,74 @@ plus会员的api只能在codex里用吗，如果作为子代理应该还可以�
 好吧，我还以为luna能代替flash</blockquote>
 去买8块钱的gemini会员，我试了3.7flash蹬起来比v4flash要强，速度超快（300tk/s以上）还有多模态。但是它的一句话许愿不咋地
 
+
+*****
+
+####  唠叨  
+##### 9329#       发表于 2026-8-18 12:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099087&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-18 12:32</a>
+去买8块钱的gemini会员，我试了3.7flash蹬起来比v4flash要强，速度超快（300tk/s以上）还有多模态。但是 ...</blockquote>
+是闲鱼买吗
+
+*****
+
+####  tillnight  
+##### 9330#       发表于 2026-8-18 12:38
+
+<blockquote>cscbzcbz 发表于 2026-8-18 12:29
+plus会员的api只能在codex里用吗，如果作为子代理应该还可以吧</blockquote>
+Openai的订阅会员不提供api额度（大多数公司都不提供）。你在codex内是直接登录的gpt账号，不是使用api。不过大多数agent软件现在都支持登录后调用订阅额度，openai用户手册也不反对这种使用方式。
+
+
+*****
+
+####  王兰花秀丽  
+##### 9331#       发表于 2026-8-18 12:41
+
+Gemini会员能用API吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  qwased  
+##### 9332#       发表于 2026-8-18 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099100&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-18 12:34</a>
+
+是闲鱼买吗</blockquote>
+对，据说有5块钱的不过我没搜到
+
+反正8块钱一年半也值了，一个月没掉就是胜利
+
+*****
+
+####  qwased  
+##### 9333#       发表于 2026-8-18 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099133&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-18 12:41</a>
+
+Gemini会员能用API吗    Re:Source</blockquote>
+只能反重力，自己反代据说特别容易封号，反正我感觉拿来许愿的话反重力也没啥区别
+
+*****
+
+####  tillnight  
+##### 9334#       发表于 2026-8-18 12:45
+
+ 本帖最后由 tillnight 于 2026-8-18 12:47 编辑 
+<blockquote>王兰花秀丽 发表于 2026-8-18 12:41
+Gemini会员能用API吗    Re:Source</blockquote>
+
+说实话，没有同时提供会员和api服务的大公司会在会员里提供api额度的，逻辑上就讲不通，因为这等于在开放给中转站打折买你的api当二道贩子（虽然实际上中转站也是走反代变相在这么干，但至少反代是明确违反用户规则的，有明确的风险随时可以掐掉）
+
+*****
+
+####  LeoDT  
+##### 9335#       发表于 2026-8-18 12:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099063&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-18 12:29</a>
+
+plus会员的api只能在codex里用吗，如果作为子代理应该还可以吧</blockquote>
+Pi也可以用，但是Luna是真不行，比Flash差远了，经常需要来回多次澄清需求，而且声称1M context，实测效果非常差，用Pi的话需要手动压缩或者找别人做好的codex适配。速度就不用说了，没有谁比得上Flash。
+
