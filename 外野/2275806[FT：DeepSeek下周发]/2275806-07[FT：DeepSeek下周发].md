@@ -5492,3 +5492,79 @@ j-space应该是有点用的, 只是没一个量化数据
 风神+ /j-space 强制调用后, 看思维链也在用起来了, 用了一天 ...</blockquote>
 j space相当于让它运行五次，从五次中抽卡吧。性能不清楚，用量肯定是五倍了
 
+
+*****
+
+####  crow_wine  
+##### 9380#       发表于 2026-8-18 14:46
+
+这个什么j space看起来特别民科，而且 github 也有人打假根本就没跑完测试
+
+*****
+
+####  卡普空  
+##### 9381#       发表于 2026-8-18 14:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099823&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-8-18 14:42</a>
+
+j space相当于让它运行五次，从五次中抽卡吧。性能不清楚，用量肯定是五倍了 ...</blockquote>
+j space 对flash有用吗
+
+*****
+
+####  tonyunreal  
+##### 9382#       发表于 2026-8-18 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099707&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-18 14:23</a>
+qwen 3.8 27B如果是57G的满血版，到底能打过v4flash0731吗？
+
+两块4080s 32G能不能跑生产力？ ...</blockquote>
+还要算上 上下文占的显存，q8量化加256K上下文应该需要60GB左右显存
+能力应该能打平flash同价位这些模型
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  果壳中的松鼠  
+##### 9383#       发表于 2026-8-18 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098779&amp;ptid=2275806" target="_blank">果壳中的松鼠 发表于 2026-8-18 11:37</a>
+https://github.com/Tiger3807861189/J-Space-Cognition-Suite-V3.6/issues/18
+有人在打假之前的j-space sk ...</blockquote>
+作者回应是删掉了这个issue <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  tillnight  
+##### 9384#       发表于 2026-8-18 14:49
+
+说实话除非ds之前是在巨亏吹牛皮的纯烂活，哪怕他只是非常薄利，现在的价格都给第三方很大的盈利想象空间，打不过第一方部署成本很正常，第一方翻了三五倍了你还没法更便宜就太扯淡了。理论上不应该是最后被迫都回去用官方水管，而是都开始琢磨租b300挣这个无本生意才对。
+
+
+*****
+
+####  →熙←  
+##### 9385#       发表于 2026-8-18 14:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099823&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-8-18 14:42</a>
+
+j space相当于让它运行五次，从五次中抽卡吧。性能不清楚，用量肯定是五倍了 ...</blockquote>
+实际运行效果像一个记录本
+
+先设定一个goal, 然后模型随着发现一条条记录下来, 这个是我最近的一个
+
+开始只写了一个goal,后面都是随着发现补上去的
+
+模型是v4flash
+ # J-Space Workspace Ledger  ## Goal 从用户端梳理 F18 主功能切换 + 吹风延时的规格矩阵，并在集成测试中覆盖所有可能测试。  ## Core - 遍历组合：AI制热↔热干燥/冷干燥、AI制热↔换气、换气↔热干燥/冷干燥、双氧净风↔AI制热 - 每个主功能覆盖：未开/刚开(&lt;3s)/开了一段时间(&gt;=3s)/关闭后吹风延时中/延时结束/切换到另一功能 - 校验：三板状态同步、显示板图标、warm/clear 继电器、BLDC 转速、吹风延时秒数  ## Verified - 新增 Test/integration_test/tests/basic/test_f18_main_switch.cpp（18 个用例） - CMakeLists.txt 已加入 test_f18_main_switch - 全量集成测试 23/23 通过（含新测试） - 关键实现事实：吹风延时为全局单例（非按功能独立）；主板上 MASTER_BLOW_DELAY=1 负责计数；   关闭加热后延时只保吹风不保 PTC；切换非加热功能时延时会继续递减。  ## Open - 如需原始数码管“剩余秒数”显示断言，需扩展 board_api 暴露显示缓冲（当前集成测试以功能状态+延时秒数代理）。  ## Next 完成 复制代码
+
+*****
+
+####  crow_wine  
+##### 9386#       发表于 2026-8-18 14:52
+
+我也觉得，真的是不思进取。只要你琢磨下，研究一下，别说和第一方之前的价格一样，你就是稍微比涨价后的价格第一点，都是能赚满的
+
