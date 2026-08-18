@@ -26,3 +26,19 @@
 
 回家看了一下，日本人居然直接引用他个人账号发的降板文阴阳怪气，那很众愤了
 
+
+*****
+
+####  Unlight  
+##### 7456#         楼主| 发表于 2026-8-18 21:26
+
+偶像大师系列，2000曲达成！
+
+<img src="https://img.stage1st.com/forum/202608/18/212608p2y6l4326xlhxglz.jpg" referrerpolicy="no-referrer">
+
+<strong>644293d6277f9e2fbc06160c5930e924b999f3c9.jpg</strong> (534.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 21:26 上传
+
