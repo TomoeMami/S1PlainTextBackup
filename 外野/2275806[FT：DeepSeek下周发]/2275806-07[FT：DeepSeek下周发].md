@@ -5164,3 +5164,61 @@ v4flash 110tk/s 返工一次就得等5~15分钟
 
 原来公司有免费的V4，爽翻了，猛蹬<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tonyunreal  
+##### 9348#       发表于 2026-8-18 13:56
+
+Luna high到max干执行的活还可以的，medium和以下蠢比一个
+
+*****
+
+####  hugosol  
+##### 9349#       发表于 2026-8-18 13:58
+
+算了一下虽然flash的长上下文能力非常优秀，但是目前缓存命中价格大涨之后用到400多K的长上下文会非常贵，为了省钱可能要跟那些贵价模型一样要提早handoff或者尽量用subagent，属于成本拖累了模型能力上限了
+
+<img src="https://img.stage1st.com/forum/202608/18/135245fluo9k9iocxuqiu8.png" referrerpolicy="no-referrer">
+
+<strong>cost.png</strong> (52.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 13:52 上传
+
+
+*****
+
+####  舞以  
+##### 9350#       发表于 2026-8-18 14:03
+
+估计过个一周，主流后面就变成含泪继续给梁子送钱了<img src="https://static.stage1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+能咋办呢凑合过吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  王兰花秀丽  
+##### 9351#       发表于 2026-8-18 14:05
+
+有人试过runinfra.ai的吗，应该是自部署的
+
+<img src="https://img.stage1st.com/forum/202608/18/140520uhxhvpnk1fh5fkxy.png" referrerpolicy="no-referrer">
+
+<strong>1000052392.png</strong> (75.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 14:05 上传
+
+    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  2017.05.04  
+##### 9352#       发表于 2026-8-18 14:05
+
+贵点就贵点，还没超过我的接受范围，继续用
+
