@@ -6945,3 +6945,41 @@ v4f我给到夯 非常适配SDD
 
 —— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
 
+
+*****
+
+####  舞以  
+##### 9508#       发表于 2026-8-19 00:06
+
+第三方这区样，感觉反面证明0731之后梁子给大伙真调了不少推理算力吧，只是偶尔爆炸一下，我都没碰到过429之类的错误<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看起来真是影响到agi训练了，梁叔叔震怒😡！
+
+*****
+
+####  scikirbypoke  
+##### 9509#       发表于 2026-8-19 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70103202&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-8-18 23:48</a>
+
+我刚才玩gemini反代，验证只需要扫一个二维码收个短信，这会儿跑了一亿token，不知道会不会被封 ...</blockquote>
+手里的pixel扫直接不过，可能是解了bl，这个不恢复出厂真没办法，但备份又巨麻烦
+
+*****
+
+####  xiaohanne  
+##### 9510#       发表于 2026-8-19 00:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70103283&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-19 00:06</a>
+
+第三方这区样，感觉反面证明0731之后梁子给大伙真调了不少推理算力吧，只是偶尔爆炸一下，我都没碰到过429 ...</blockquote>
+所以我说看看第三方和其他几家国模plan的429，梁子真是实诚人。
+
+
+*****
+
+####  阿刚  
+##### 9511#       发表于 2026-8-19 00:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说真的v4f哪怕开了智写文效果也很不错了，但是这个开智思维链只和dsh绑定就有点难受……hermes就算输入了提示词也激活不了let's开头……
+
