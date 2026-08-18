@@ -6826,3 +6826,25 @@ https://www.scnet.cn/ac/openapi/doc/2.0/moduleapi/plans/token-plan.html
 
 用了两个会话，28M token，花费 3.06 。
 
+
+*****
+
+####  流浪的翅膀  
+##### 9495#       发表于 2026-8-18 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100774&amp;ptid=2275806" target="_blank">gaofar 发表于 2026-8-18 16:47</a>
+
+家里有个4070ts 16G  想着空着也是浪费  试试  而且表格数据敏感  本地部署处理感觉要安全一点 ...</blockquote>
+先提交需求和你的工作环境，让DSH造轮子。
+
+再小范围测试，慢慢扩充功能。
+
+*****
+
+####  eno_emos  
+##### 9496#       发表于 2026-8-18 23:35
+
+mimo还是别吹了吧，mimo2.5开pro拉到max也是个不读skill的主
+
+有一种dsv4preview的美
+
