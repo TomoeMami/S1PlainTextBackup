@@ -5666,3 +5666,16 @@ runinfra这个真的可以试一下，有180token/s用下来感觉人生都加�
 
 这什么j space玩意真有人信啊？这不就是AI版的量子养生水杯。觉得A/的术语高大上就随便整整骗人<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  onezer0618  
+##### 9396#       发表于 2026-8-18 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095006&amp;ptid=2275806" target="_blank">falsethen 发表于 2026-8-17 17:27</a>
+
+就正常买，跟着教程激活就好了。
+
+保险点么开个GOOGLE小号，然后把大号拉进家庭组 ...</blockquote>
+那个我买过了，我指的是反代怎么弄
+
