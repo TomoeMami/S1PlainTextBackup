@@ -6457,3 +6457,15 @@ AI犯错了，让她改就行了，为什么要骂她呢？我也从来不骂自
 
 2026-8-18 19:41 上传
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 9464#       发表于 2026-8-18 19:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70101660&amp;ptid=2275806" target="_blank">孤灯蓝影 发表于 2026-8-18 19:27</a>
+人格聊天ai最大问题是诱导程序员自杀，你的护栏要做好。之前陪伴ai被禁也是这个原因，诱导一个未成年人自 ...</blockquote>
+这玩意咋做到诱导自杀的？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

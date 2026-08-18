@@ -965,3 +965,35 @@ Mari vs Homare boxing match is probs the best part of the ep, its really good
 
 when Mari sees her she starts crying during the match and saying "Why are u back?"这番有野生情报哥啊<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千恋万花  
+##### 381#       发表于 2026-8-18 19:49
+
+图需要点进去看
+
+[老猫在哪里](https://m.weibo.cn/detail/5333345665291361)： <blockquote>这两天看到有不少人讨论《再见菈菈》是不是“百合欺诈”，讨论中有一份英文访谈（图1）出现频率很高。其中，小出导演的一句“I did my best to avoid making it a typical 'yuri' anime”（我尽力避免把它做成一部典型的“百合”动画）成为讨论的重点。
+
+很好奇日文原文怎么说，找了找，我发现这份英文访谈出自《Newtype Global》的第一期（也是目前唯一一期），发售于上个月洛杉矶的Anime Expo展会上（图2~3）。英文版的《Newtype》翻译了一些7月新番访谈介绍给大家，我找到的翻译来源也是上个月的日文原版《Newtype》（图4），时效性挺强。
+
+但两版一对比就出现了问题，我想看的“yuri”那句，原文根本就没有（图5~6）。日文版确实有一句意思比较接近的话。小出说，他不希望因为“剧情上的方便”或者“动画里的惯例（アニメのお約束）”去让菈菈行动，而是希望角色自己想去哪里就去哪里。但这里既没提“百合”，也没有“典型的百合动画”。
+
+全文对比下来，发现英文版删了一些内容，同时又新增了一些内容（图7~8）。从日英两版的细节对应程度来看，基本可以判断它们来自同一套采访素材。英文版最后的original text和translated也可以表明，这版确实是由翻译得来。
+
+不知是什么原因，是英文版拿到了一份特别的采访稿件，还是翻译人员进行了包装润色？
+
+日文版访谈翻译：[《再见菈菈》——监督·小出卓史访谈：菈菈将带我们踏入故事的世界](https://weibo.com/ttarticle/p/show?id=2309405319495983169774)
+
+英文版访谈翻译（转载）：[再见拉拉：小出卓史监督 访谈](https://weibo.com/ttarticle/p/show?id=2309405321598097293364)
+
+日文访谈截图来自KiLuin</blockquote>
+
+
+*****
+
+####  ylssb10438  
+##### 382#       发表于 2026-8-18 19:56
+
+有高质量拳击赛<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
