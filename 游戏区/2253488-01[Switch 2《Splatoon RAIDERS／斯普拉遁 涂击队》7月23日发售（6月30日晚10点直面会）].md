@@ -8223,3 +8223,13 @@ https://github.com/Orangeeeeeeeeeeeeeeeeee/switch-controller-macro
 
 就算有东西也只会是无关紧要彩蛋性质的东西，这套玩法要是他在1000层藏新内容肯定要被喷
 
+
+*****
+
+####  martinoy  
+##### 955#       发表于 2026-8-19 02:46
+
+不可能藏东西的，最多就是npc表扬你一下
+
+— from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
