@@ -6139,3 +6139,86 @@ grok现在好点了么？之前就是路边一条
 
 多谢楼上两位老哥，我咸鱼整一个试试咸淡<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 9437#       发表于 2026-8-18 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100774&amp;ptid=2275806" target="_blank">gaofar 发表于 2026-8-18 16:47</a>
+家里有个4070ts 16G  想着空着也是浪费  试试  而且表格数据敏感  本地部署处理感觉要安全一点 ...</blockquote>
+干不了 或者等bonsai27b更新3.8版
+16g的上下文实在太小了
+
+*****
+
+####  neptunehs  
+##### 9438#       发表于 2026-8-18 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100922&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-18 17:11</a>
+干不了 或者等bonsai27b更新3.8版
+16g的上下文实在太小了</blockquote>
+我24g的a卡都只能开4096（配合脚本逐句翻译用），你们16g的n卡就能开60k啊？60k的话写代码不行，但足够润色了
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  crow_wine  
+##### 9439#       发表于 2026-8-18 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100938&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-18 17:13</a>
+
+我24g的a卡都只能开4096（配合脚本逐句翻译用），你们16g的n卡就能开60k啊？60k的话写代码不行，但足够润 ...</blockquote>
+量化只需要17g显存，还剩有一点给上下文啊
+
+*****
+
+####  qwased  
+##### 9440#       发表于 2026-8-18 17:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100938&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-18 17:13</a>
+我24g的a卡都只能开4096（配合脚本逐句翻译用），你们16g的n卡就能开60k啊？60k的话写代码不行，但足够润 ...</blockquote>
+27b iq3xxs只有12g大小啊
+而且我感觉千问写作还是一股味，没法用吧
+
+
+*****
+
+####  neptunehs  
+##### 9441#       发表于 2026-8-18 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100951&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-18 17:15</a>
+量化只需要17g显存，还剩有一点给上下文啊</blockquote>
+我q5km 4096+100%gpu要占用21g
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  小ghoul  
+##### 9442#       发表于 2026-8-18 17:16
+
+其实可以几个人合伙买3台dgx spark跑v4f0731吧，官方放出的模型fp8权重也就160g，3台可以很轻松带个十几并发了，单并发有40tok/s
+
+*****
+
+####  neptunehs  
+##### 9443#       发表于 2026-8-18 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100954&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-18 17:15</a>
+27b iq3xxs只有12g大小啊
+而且我感觉千问写作还是一股味，没法用吧</blockquote>
+翻译游戏一股味也不怕就是了 （
+我下个iq3xxs 看看能不能开个80k 80k应该差不多可以写简单的代码了
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  bartholo4  
+##### 9444#       发表于 2026-8-18 17:16
+
+哈基米 3.7 上个月才降级到了 plus 这是逼我又要订会 pro 啊...
+
