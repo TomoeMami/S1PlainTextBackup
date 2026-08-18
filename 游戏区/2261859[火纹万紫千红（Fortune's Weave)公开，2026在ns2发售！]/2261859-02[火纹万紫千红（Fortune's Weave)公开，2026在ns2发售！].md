@@ -13791,3 +13791,37 @@ IGN上了中文版CM
 
 神威法王和自捏的爱好都是棋盘游戏
 
+
+*****
+
+####  巴尔干炮  
+##### 2780#       发表于 2026-8-18 12:09
+
+<img src="https://img.stage1st.com/forum/202608/18/120806vz6n2612414mbnu6.png" referrerpolicy="no-referrer">
+
+<strong>1787026012563.png</strong> (34.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 12:08 上传
+
+修复这把枪很关键，神话里巴洛尔就是被枪杀死的，主角应该有藏着的形态。
+
+*****
+
+####  蓮華  
+##### 2781#       发表于 2026-8-18 12:09
+
+ 本帖最后由 蓮華 于 2026-8-18 12:10 编辑 
+
+<img src="https://img.stage1st.com/forum/202608/18/121046t8o0fq6b5jealxrn.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>32D4CCB8-EFE9-4674-8B2F-A1A5005BD0AD.jpeg</strong> (180.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-18 12:10 上传
+
+幽默
+
