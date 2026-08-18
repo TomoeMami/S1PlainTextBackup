@@ -7015,3 +7015,13 @@ v4f我给到夯 非常适配SDD
 
 我看opencode go的v4f额度调到30刀了，这样普通用户应该就差不多够蹬了吧
 
+
+*****
+
+####  →熙←  
+##### 9515#       发表于 2026-8-19 00:39
+
+发现我现在缓存都是90%上下,不知道哪里出问题了
+
+风神插件还是说国算服务器就是这样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
