@@ -13889,3 +13889,11 @@ IGN上了中文版CM
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  clyde-wang  
+##### 2787#       发表于 2026-8-18 14:41
+
+Polygon很不喜欢老任呀，之前很多老任游戏的低分是Polygon打的
+

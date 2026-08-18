@@ -5460,3 +5460,35 @@ j-space应该是有点用的, 只是没一个量化数据
 梁子虽然涨价，但说真的，就算之前被蹬那么狠，都没有频繁429，说明梁子给C端API的算力分配应该是远超那 ...</blockquote>
 第三方应该要供很多模型吧，就算总算力多一分摊以后也没那么多了
 
+
+*****
+
+####  qwased  
+##### 9377#       发表于 2026-8-18 14:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099755&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-18 14:32</a>
+一般1-2人中度使用。</blockquote>
+那你两张卡搞下unsloth那个q6开满上下文就能用的很舒适了，思考时间充足的话和v4flash区别不大
+
+
+*****
+
+####  tillnight  
+##### 9378#       发表于 2026-8-18 14:42
+
+<blockquote>七氷 发表于 2026-8-18 14:11
+下一次大概12月，一般三个月迭代</blockquote>
+检查点迭代和正式版本不同，静默更新是很正常的。比如gpt-5.6 sol实际这两个月已经更新了几次检查点。
+
+*****
+
+####  zhongjie  
+##### 9379#       发表于 2026-8-18 14:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099762&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-18 14:32</a>
+
+j-space应该是有点用的, 只是没一个量化数据
+
+风神+ /j-space 强制调用后, 看思维链也在用起来了, 用了一天 ...</blockquote>
+j space相当于让它运行五次，从五次中抽卡吧。性能不清楚，用量肯定是五倍了
+
