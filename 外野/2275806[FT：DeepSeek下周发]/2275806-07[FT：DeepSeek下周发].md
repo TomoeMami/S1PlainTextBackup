@@ -6730,3 +6730,36 @@ https://www.scnet.cn/ac/openapi/doc/2.0/moduleapi/plans/token-plan.html
 拉了下表，超算中心这token  ...</blockquote>
 超算中心现在好像用不了v4flash
 
+
+*****
+
+####  空き地卯木  
+##### 9486#       发表于 2026-8-18 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70102977&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-18 23:01</a>
+
+还能退款这么良心？
+
+—— 来自 HUAWEI ALN-AL00, Android 12, 鹅球 v3.5.99-alpha</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不止 这个点还有活人客服 仿佛回到了2016
+
+
+*****
+
+####  scikirbypoke  
+##### 9487#       发表于 2026-8-18 23:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70102999&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-18 23:05</a>
+https://ark.volcengine.com/region:cn-beijing/openManagement?LLM=%7B%7D&amp;advancedActiveKey=model
+
+火山 ...</blockquote>
+这玩意有tpm限制，跑快点就报错
+但其他还行，至少目前还行
+
+*****
+
+####  小野賢章  
+##### 9488#       发表于 2026-8-18 23:12
+
+我觉得kimi在deepseek涨价之后变得更卡了
+
