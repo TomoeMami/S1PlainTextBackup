@@ -5096,3 +5096,26 @@ v4flash 110tk/s 返工一次就得等5~15分钟
 
 codex的lunamax干活应该还行吧，要求智力高的工作还得是sol来干。细分下来的活让luna max档位来干应该性价比不错。
 
+
+*****
+
+####  UncleDracula  
+##### 9342#       发表于 2026-8-18 13:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099299&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-18 13:11</a>
+
+你可以试试，反正不贵
+
+我都是比较简单的用法，许愿写点小工具啥的，之前让v4flash写个宏编辑器一直不太顺 ...</blockquote>
+我问咸鱼卖家说是网页版，没有API，兄是咋买的？
+
+*****
+
+####  qwased  
+##### 9343#       发表于 2026-8-18 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099429&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-8-18 13:33</a>
+
+我问咸鱼卖家说是网页版，没有API，兄是咋买的？</blockquote>
+只能用Antigravity，实在想接别的harness用就反代一下（据说反代用的越多封号概率越大）
+
