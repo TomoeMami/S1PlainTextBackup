@@ -46,3 +46,22 @@ https://mynintendonews.com/2026/08/18/the-duskbloods-characters-and-classes-leak
 My Nintendo News发 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个看着也太假了，应该是瞎编的伪造泄漏
 
+
+*****
+
+####  zero33333  
+##### 118#       发表于 2026-8-18 21:40
+
+怎么下载
+
+*****
+
+####  Beaverfan01  
+##### 119#       发表于 2026-8-18 21:45
+
+<blockquote>zero33333 发表于 2026-8-18 21:40
+怎么下载</blockquote>
+https://campaign.theduskbloods.jp/p/event/networktest/mypage
+
+之前报名那个网站，进我的页面后，会显示一个下载序号，然后去eshop输入序号就行。
+

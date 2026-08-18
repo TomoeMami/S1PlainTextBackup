@@ -6579,3 +6579,14 @@ AI是讨好型人格，就是个啊对对对的全肯定bot，你想干啥他都
 
 2026-8-18 21:36 上传
 
+
+*****
+
+####  qwased  
+##### 9474#       发表于 2026-8-18 21:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70102211&amp;ptid=2275806" target="_blank">icedew 发表于 2026-8-18 21:11</a>
+
+你算算价格，且不说未来可能的降价；这钱买token都够蹬几家的几年了（除非你极度隐私或玩破限模型，再就 ...</blockquote>
+实际上dgx跑dsflash吐字很慢的，感觉就是拿出去卖api也没几个人买
+

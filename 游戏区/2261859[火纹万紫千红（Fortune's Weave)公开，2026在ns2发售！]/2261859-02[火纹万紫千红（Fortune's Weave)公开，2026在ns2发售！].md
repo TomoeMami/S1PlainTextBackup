@@ -14086,3 +14086,20 @@ Polygon很不喜欢老任呀，之前很多老任游戏的低分是Polygon打的
 
 这君子兰夫人应该能收吧 应该能吧 ？
 
+
+*****
+
+####  エーデルガルト  
+##### 2807#       发表于 2026-8-18 21:42
+
+青秋裤<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灼眼的蔬菜达人  
+##### 2808#       发表于 2026-8-18 21:45
+
+最好看的人设，最后才放出来<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24090RA29C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
