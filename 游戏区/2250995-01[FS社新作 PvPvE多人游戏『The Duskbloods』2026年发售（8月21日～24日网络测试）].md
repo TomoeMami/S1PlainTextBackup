@@ -81,3 +81,18 @@ https://campaign.theduskbloods.jp/p/event/networktest/mypage
 
 进了下日服的测试，有中文啊，根据主机语言来的应该。
 
+
+*****
+
+####  自動販賣機  
+##### 122#       发表于 2026-8-18 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70102502&amp;ptid=2250995" target="_blank">h122h 发表于 2026-8-18 21:47</a>
+
+进了下日服的测试，有中文啊，根据主机语言来的应该。
+
+无法用自带的截屏
+
+ ...</blockquote>
+原来可以进去游戏了，我以为要21号才能进，点都没点
+

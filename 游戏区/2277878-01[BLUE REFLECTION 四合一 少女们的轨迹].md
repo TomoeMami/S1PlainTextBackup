@@ -79,3 +79,14 @@ pc版第一作有4k分辨率的，但全程120帧其实是有点难度的。78X3
 如此有针对性这真的是BUG吗我是不信的</blockquote>
 貌似切换场景就有可能触发这个bug
 
+
+*****
+
+####  Xenor  
+##### 154#       发表于 2026-8-18 21:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70101039&amp;ptid=2277878" target="_blank">DARK_HGCG 发表于 2026-8-18 17:29</a>
+
+貌似切换场景就有可能触发这个bug</blockquote>
+希望玩的时候能很容易就能触发这些bug<img src="https://static.stage1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+

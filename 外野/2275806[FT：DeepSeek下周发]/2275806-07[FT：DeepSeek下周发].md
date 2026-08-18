@@ -6590,3 +6590,14 @@ AI是讨好型人格，就是个啊对对对的全肯定bot，你想干啥他都
 你算算价格，且不说未来可能的降价；这钱买token都够蹬几家的几年了（除非你极度隐私或玩破限模型，再就 ...</blockquote>
 实际上dgx跑dsflash吐字很慢的，感觉就是拿出去卖api也没几个人买
 
+
+*****
+
+####  阿刚  
+##### 9475#       发表于 2026-8-18 21:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70102343&amp;ptid=2275806" target="_blank">chenyedgg 发表于 2026-8-18 21:30</a>
+
+有提高AI智商或者不角色扮演但是提高人话度的“人格”吗</blockquote>
+前面楼里有改变思考模式的提示词，但是不会显著提高智商，只是会额外审核有没有过度迎合用户导致答案出问题
+
