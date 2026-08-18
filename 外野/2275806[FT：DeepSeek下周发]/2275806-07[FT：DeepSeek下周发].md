@@ -4172,3 +4172,38 @@ MODE_TAIL_FLUKES</blockquote>
 太屌了，这啥原理？</blockquote>
 并没有什么原理，人设都在提示词里面写着的，翻译一下就知道了<img src="https://static.stage1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空き地卯木  
+##### 9262#       发表于 2026-8-18 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70097795&amp;ptid=2275806" target="_blank">yudms1 发表于 2026-8-18 09:23</a>
+太屌了，这啥原理？</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/18/092642w6kzvew7i63se3pn.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1787016401089_28.webp</strong> (115.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 09:26 上传
+
+其实就是把指令用大写和下划线写出来了，豆包也能读得出这套
+
+
+*****
+
+####  千秋难诉  
+##### 9263#       发表于 2026-8-18 09:32
+
+233333滑动变祖器都有皮肤了
+
+<img src="https://img.stage1st.com/forum/202608/18/093206sergduxxse1qs31i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 09:32 上传
+
