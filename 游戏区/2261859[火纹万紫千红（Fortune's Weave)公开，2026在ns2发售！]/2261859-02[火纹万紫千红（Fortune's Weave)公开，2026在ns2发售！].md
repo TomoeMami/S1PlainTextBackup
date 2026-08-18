@@ -13978,3 +13978,33 @@ Polygon很不喜欢老任呀，之前很多老任游戏的低分是Polygon打的
 
 2026-8-18 16:47 上传
 
+
+*****
+
+####  Beaverfan01  
+##### 2797#       发表于 2026-8-18 20:18
+
+<img src="https://img.stage1st.com/forum/202608/18/201815t7s7es1kvfzi84ii.jpg" referrerpolicy="no-referrer">
+
+<strong>5929.jpg</strong> (173.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 20:18 上传
+
+<img src="https://img.stage1st.com/forum/202608/18/201815seyq4a499qlt6q04.jpg" referrerpolicy="no-referrer">
+
+<strong>5927.jpg</strong> (214.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 20:18 上传
+
+
+*****
+
+####  巴尔干炮  
+##### 2798#       发表于 2026-8-18 20:23
+
+为什么不介绍本名？君子兰是指出身高贵吧。
+
