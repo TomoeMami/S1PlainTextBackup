@@ -7033,3 +7033,15 @@ v4f我给到夯 非常适配SDD
 
 之前一直用workbuddy辅助策划工作，有时需要修改图片，但是更新之后试了一下现版本ds还是配合dsh效果更好，不过单靠ds又没有多模态。目前的解决方案是用dshmcp连接到workbuddy上，试了下生成短篇小说还可以，不过上下文一长了dsh不思考完就自己停了，让dsh自己修bug修了大半个小时也没修好，暂时放弃了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bartholo4  
+##### 9517#       发表于 2026-8-19 01:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70103376&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-19 00:25</a>
+话说我 flash 用极简模式也没法是 let's思维链，还是很多let me，pro 则很稳定
+
+—— 来自 HUAWEI ALN-AL00 ...</blockquote>
+flash 你的装 routing-standard-suite
+
