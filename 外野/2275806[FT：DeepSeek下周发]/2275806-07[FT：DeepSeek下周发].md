@@ -5926,3 +5926,41 @@ Mac和Windows也都有豆包的版本了，只不过后面那一个得找一找�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ycjiang1337  
+##### 9418#       发表于 2026-8-18 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100313&amp;ptid=2275806" target="_blank">ST2002 发表于 2026-8-18 15:53</a>
+这家部署的是 0731 和 0813 吗？官网上没写版本，不会是预览版吧
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+预览版和正式版在成本上是没有区别的
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  gaofar  
+##### 9419#       发表于 2026-8-18 16:33
+
+搭车问下   会计相关 需要AI处理多个execl表之间的数据核对之类的逻辑操作   如果本地部署模型 有推荐的么？
+
+image.png
+(150.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 16:32 上传
+
+<img src="https://img.stage1st.com/forum/202608/18/163238kftheafkitk82p7l.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  风夏  
+##### 9420#       发表于 2026-8-18 16:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">用了opencode go感觉速度巨慢, 现在有什么又便宜又快的方案吗
+
