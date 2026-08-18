@@ -5589,3 +5589,44 @@ j space相当于让它运行五次，从五次中抽卡吧。性能不清楚，�
 这是用什么软件测的？</blockquote>
 [https://deng.codexradar.com/](https://deng.codexradar.com/)
 
+
+*****
+
+####  neptunehs  
+##### 9389#       发表于 2026-8-18 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099878&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-18 14:52</a>
+我也觉得，真的是不思进取。只要你琢磨下，研究一下，别说和第一方之前的价格一样，你就是稍微比涨价后的价 ...</blockquote>
+也是怕你部署了梁子想变回梁圣降价的吧
+真的有需求的只有10美元变60美元的opencode go
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  王兰花秀丽  
+##### 9390#       发表于 2026-8-18 15:19
+
+runinfra这个真的可以试一下，有180token/s用下来感觉人生都加速了
+
+<img src="https://img.stage1st.com/forum/202608/18/151801j646t66v36m9bm66.jpg" referrerpolicy="no-referrer">
+
+<strong>1000052394.jpg</strong> (73.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 15:18 上传
+
+    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  卡普空  
+##### 9391#       发表于 2026-8-18 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099878&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-18 14:52</a>
+
+我也觉得，真的是不思进取。只要你琢磨下，研究一下，别说和第一方之前的价格一样，你就是稍微比涨价后的价 ...</blockquote>
+说明大家都只想白嫖梁子 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -13905,3 +13905,11 @@ Polygon很不喜欢老任呀，之前很多老任游戏的低分是Polygon打的
 
 叫大伙直接去玩NS模拟器的媒体独此一家
 
+
+*****
+
+####  ascomnet  
+##### 2789#       发表于 2026-8-18 15:26
+
+死心吧，老任上手机都不会上pc，主机的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
