@@ -6334,3 +6334,25 @@ grok现在好点了么？之前就是路边一条
 今天才被人教育了一顿，token 是纯消耗品，没了就是没了，硬件是资产，等出了更强更好的新开源那就重新部 ...</blockquote>
 那只有今年4月那批工包rtx6000 pro 4万整没买很后悔，dgx这种只为了能够运行特化不管速度的设备感觉折旧要另算
 
+
+*****
+
+####  杀人鲸  
+##### 9455#       发表于 2026-8-18 18:40
+
+客户端又有更新，只不过我在系统商城里面没发现更新的内容。有在正规系统商城里面更新的朋友，更新的话，如果有发现什么具体的更新内容，还请说一下吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  falsethen  
+##### 9456#       发表于 2026-8-18 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100214&amp;ptid=2275806" target="_blank">onezer0618 发表于 2026-8-18 15:39</a>
+
+那个我买过了，我指的是反代怎么弄</blockquote>
+[https://github.com/router-for-me/Cli-Proxy-API-Management-Center](https://github.com/router-for-me/Cli-Proxy-API-Management-Center)
+
+这个项目，我用了一个星期了还没被封
+
