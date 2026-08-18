@@ -6251,3 +6251,37 @@ grok现在好点了么？之前就是路边一条
 
 国算平台的 0731 速度还挺高，就是首 token 太慢了
 
+
+*****
+
+####  小ghoul  
+##### 9448#       发表于 2026-8-18 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100979&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-18 17:18</a>
+
+十几万买api能用到吐了吧</blockquote>
+能找个三人拼车，一人一台，散伙了还能自个领回去跑qwen3.8<img src="https://static.stage1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">
+
+*****
+
+####  来都来了  
+##### 9449#       发表于 2026-8-18 17:36
+
+<img src="https://img.stage1st.com/forum/202608/18/173358xovirpoma02r9bvb.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1787045636879_1.webp</strong> (78.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 17:33 上传
+
+<img src="https://img.stage1st.com/forum/202608/18/173358lbb9969h20hhhpm6.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1787045637072_2.webp</strong> (33.71 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 17:33 上传
+
+把我8月15号蹬了1亿多的账单给Deepseek分析了一下，结论就是梁文谷涨两倍，梁文峰涨4倍。然后还给我建议是，我这属于超重度使用，平常的开发一天只有五六千万token，这不扯淡吗，谁正儿八经干活一天用五六千万的，老板养生呢？我这根本就不是多么重度的应用，就是用Pi做了几个插件而已
+
