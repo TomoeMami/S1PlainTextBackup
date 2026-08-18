@@ -6301,3 +6301,16 @@ grok现在好点了么？之前就是路边一条
 
 [https://tokenrhythm.studio/models](https://tokenrhythm.studio/models)，我最近在蹬这个，虽然不便宜，但是邀请注册最多能薅羊毛700多块，蹬完再说
 
+
+*****
+
+####  nianiania  
+##### 9452#       发表于 2026-8-18 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100979&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-18 17:18</a>
+十几万买api能用到吐了吧</blockquote>
+今天才被人教育了一顿，token 是纯消耗品，没了就是没了，硬件是资产，等出了更强更好的新开源那就重新部署就是，更别提硬件本身还可能升值。
+我仔细想想如果去年年初我没想着够我买几年 api 下决心入手了的话，现在硬件钱都快涨回一半了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
