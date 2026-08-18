@@ -4245,3 +4245,37 @@ MODE_TAIL_FLUKES</blockquote>
 
 2026-8-18 09:51 上传
 
+
+*****
+
+####  厍无春  
+##### 9267#       发表于 2026-8-18 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70097795&amp;ptid=2275806" target="_blank">yudms1 发表于 2026-8-18 09:23</a>
+太屌了，这啥原理？</blockquote>
+你先不看看里面英语都是写的啥，翻译翻译呢
+
+*****
+
+####  cscbzcbz  
+##### 9268#       发表于 2026-8-18 09:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70097951&amp;ptid=2275806" target="_blank">windhawind2 发表于 2026-8-18 09:49</a>
+借楼问下 有没有适合用AI的个人笔记本推荐？现在用公司的旧电脑感觉有点太卡了。。。
+
+非程序员，目前主要应 ...</blockquote>
+只是作为AI用户不需要电脑配置，花API的钱就行，要本地部署可以考虑macbook，不过得配置比较好价格不便宜，要自己训练AI还是不要用笔记本了吧
+
+
+*****
+
+####  Lorraine_Kinney  
+##### 9269#       发表于 2026-8-18 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70097951&amp;ptid=2275806" target="_blank">windhawind2 发表于 2026-8-18 09:49</a>
+
+借楼问下 有没有适合用AI的个人笔记本推荐？现在用公司的旧电脑感觉有点太卡了。。。
+
+非程序员，目前主要应 ...</blockquote>
+MAC是unix内核，用DSH、CC、codex这样的agent效率更高，但也不是必须，win用wsl也行，反正建议内存大些就行，不涉及本地训练，主要是以防抽风给你开一堆subagent，以及现在浏览器吃内存越来越多
+
