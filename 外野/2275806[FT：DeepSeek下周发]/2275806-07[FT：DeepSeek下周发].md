@@ -4207,3 +4207,41 @@ MODE_TAIL_FLUKES</blockquote>
 
 2026-8-18 09:32 上传
 
+
+*****
+
+####  windhawind2  
+##### 9264#       发表于 2026-8-18 09:49
+
+借楼问下 有没有适合用AI的个人笔记本推荐？现在用公司的旧电脑感觉有点太卡了。。。
+
+非程序员，目前主要应用场景是文献调研、写报告、开发web前端之类；可能后期会用到一些数据训练之类？另外日常也用下打打游戏看视频。
+
+我看网上的说法好像是做AI要买苹果的比较好？
+
+*****
+
+####  c月光咖啡  
+##### 9265#       发表于 2026-8-18 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70097951&amp;ptid=2275806" target="_blank">windhawind2 发表于 2026-8-18 09:49</a>
+借楼问下 有没有适合用AI的个人笔记本推荐？现在用公司的旧电脑感觉有点太卡了。。。
+
+非程序员，目前主要应 ...</blockquote>
+数据训练？非专业人员估计只有知识库
+
+—— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
+
+*****
+
+####  平贺才人  
+##### 9266#       发表于 2026-8-18 09:51
+
+<img src="https://img.stage1st.com/forum/202608/18/095141mog49jf6wfxc4zzg.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1787017900162_1.webp</strong> (44.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 09:51 上传
+
