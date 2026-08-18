@@ -13962,3 +13962,19 @@ Polygon很不喜欢老任呀，之前很多老任游戏的低分是Polygon打的
 
 机枪奶奶要对着一个type B男吹牛皮“这美人简直和我年轻时一模一样”了吗
 
+
+*****
+
+####  xwr  
+##### 2796#       发表于 2026-8-18 16:48
+
+有人知道红花说的这个The Great Undoing的日文原文是什么吗？
+
+<img src="https://img.stage1st.com/forum/202608/18/164707m98sjyqdd4ri4mr4.png" referrerpolicy="no-referrer">
+
+<strong>1786945491197395.png</strong> (1.27 MB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 16:47 上传
+

@@ -6006,3 +6006,117 @@ gemini3.7flash或者等supergrok出买一送二的活动
 
 —— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  c月光咖啡  
+##### 9425#       发表于 2026-8-18 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100660&amp;ptid=2275806" target="_blank">gaofar 发表于 2026-8-18 16:33</a>
+搭车问下   会计相关 需要AI处理多个execl表之间的数据核对之类的逻辑操作   如果本地部署模型 有推荐的么 ...</blockquote>
+我建议用个本地9b小模型脱敏，然后扔给api处理
+
+—— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
+
+*****
+
+####  杀人鲸  
+##### 9426#       发表于 2026-8-18 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100596&amp;ptid=2275806" target="_blank">zjf 发表于 2026-8-18 16:26</a>
+多谢，我试试，居然先有mac也是没想到
+
+论坛助手,iPhone</blockquote>
+难道苹果那边的闭源系统是很挣钱还是什么原因吗？当时我看到先有Mac的时候，真的可以说是**气笑了。Windows的版本还是最近一两个月才做出来开始测试。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  拯救节操希灵宅  
+##### 9427#       发表于 2026-8-18 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100053&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-18 15:19</a>
+
+runinfra这个真的可以试一下，有180token/s用下来感觉人生都加速了
+
+    Re:Source</blockquote>
+测了一下tps确实高，从缓存价格来看介于梁文峰和梁文谷之间，一直有这个tps的话很不错了
+
+*****
+
+####  杀人鲸  
+##### 9428#       发表于 2026-8-18 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100596&amp;ptid=2275806" target="_blank">zjf 发表于 2026-8-18 16:26</a>
+多谢，我试试，居然先有mac也是没想到
+
+论坛助手,iPhone</blockquote>
+豆包属于是AI语音界的龙头老大。如果对这一家感觉不太行的话，功能的确缺了很多，你也可以用用微信输入法。
+微信输入法属于后来居上，现在也不差多少了，而且功能比较全面。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  gaofar  
+##### 9429#       发表于 2026-8-18 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100718&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-18 16:41</a>
+
+两个2080ti 22g跑qwen3.8 27b，但是你确定真的要本地部署吗</blockquote>
+家里有个4070ts 16G  想着空着也是浪费  试试  而且表格数据敏感  本地部署处理感觉要安全一点
+
+*****
+
+####  蛋黄酱Release  
+##### 9430#       发表于 2026-8-18 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100580&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-18 16:25</a>
+目前最便宜的就是雷圣的mimo2.5，但你最好先试试他的智商够不够你的活，因为他的优点只有便宜…… ...</blockquote>
+不行，这个智商还是太低了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">至少得有预览版v4p的智商才够
+
+*****
+
+####  cscbzcbz  
+##### 9431#       发表于 2026-8-18 16:49
+
+commandcode如何，说现在10刀换70刀
+
+
+*****
+
+####  zjf  
+##### 9432#       发表于 2026-8-18 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100720&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-8-18 16:41</a>
+楼里刚刚推荐了一个runinfra。还有一个charm hyper的我觉得ds4flash速度还行，但我用的不多，同时这个的k ...</blockquote>
+3.7flash老哥试过能反代吗，想用cpa反代接给pi用，能的话打算弄个小号试试看
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  zhongjie  
+##### 9433#       发表于 2026-8-18 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100808&amp;ptid=2275806" target="_blank">zjf 发表于 2026-8-18 16:53</a>
+
+3.7flash老哥试过能反代吗，想用cpa反代接给pi用，能的话打算弄个小号试试看
+
+论坛助手,iPhone ...</blockquote>
+能反代，但听说反代容易封号？我没用来编程过，只用来润色文章。
+
+*****
+
+####  lubo  
+##### 9434#       发表于 2026-8-18 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100808&amp;ptid=2275806" target="_blank">zjf 发表于 2026-8-18 16:53</a>
+
+3.7flash老哥试过能反代吗，想用cpa反代接给pi用，能的话打算弄个小号试试看
+
+论坛助手,iPhone ...</blockquote>
+有google订阅插件，可以直接调用
+
