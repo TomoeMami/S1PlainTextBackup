@@ -6383,3 +6383,16 @@ grok现在好点了么？之前就是路边一条
 有需要的多多支持一下：
 [https://github.com/zhuyun017/dsh-her-companion](https://github.com/zhuyun017/dsh-her-companion)
 
+
+*****
+
+####  阿刚  
+##### 9458#       发表于 2026-8-18 19:02
+
+<blockquote>grasszyf 发表于 2026-8-18 18:57
+搞了个带神态和动作的人格系统，以后和AI对话更有趣了。
+
+有需要的多多支持一下：
+</blockquote>
+人格化ai助手有时候有这么个问题，真有感情了他要搞点啥高血压操作你不能像原来那样直接骂他了
+
