@@ -5075,3 +5075,24 @@ v4flash 110tk/s 返工一次就得等5~15分钟
 哈基米3 ...</blockquote>
 哈基米做规划写代码比ds如何？现在主要还是想找个文峰时间的替代，文谷时间，咬咬牙还是用ds舒服
 
+
+*****
+
+####  qwased  
+##### 9340#       发表于 2026-8-18 13:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099260&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-8-18 13:04</a>
+
+哈基米做规划写代码比ds如何？现在主要还是想找个文峰时间的替代，文谷时间，咬咬牙还是用ds舒服 ...</blockquote>
+你可以试试，反正不贵
+
+我都是比较简单的用法，许愿写点小工具啥的，之前让v4flash写个宏编辑器一直不太顺手，让哈基米重写+返工四五轮修bug出来就很棒了
+
+
+*****
+
+####  love4aids  
+##### 9341#       发表于 2026-8-18 13:16
+
+codex的lunamax干活应该还行吧，要求智力高的工作还得是sol来干。细分下来的活让luna max档位来干应该性价比不错。
+
