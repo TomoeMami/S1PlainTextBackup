@@ -4300,3 +4300,58 @@ MAC是unix内核，用DSH、CC、codex这样的agent效率更高，但也不是�
 —— 来自 HUAWEI ALN-AL00, Android 12, 鹅球 v3.5.99-alpha</blockquote>
 因为国模思维链都是继承自r1的。
 
+
+*****
+
+####  crow_wine  
+##### 9272#       发表于 2026-8-18 10:18
+
+现在稍微好用一点的模型全是 429, 这些对比 DeepSeek 的服务是真的牛逼<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vincevincetang  
+##### 9273#       发表于 2026-8-18 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098108&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-18 10:12</a>
+
+为什么 k3 也是各种 but wait
+
+—— 来自 HUAWEI ALN-AL00, Android 12, 鹅球 v3.5.99-alpha</blockquote>
+不是K3，一直这样，2.5的时候开始用，配他自己的kimi code，总是在临门一脚时怀疑自己，迟迟下不了决断
+
+*****
+
+####  刘不害  
+##### 9274#       发表于 2026-8-18 10:20
+
+感觉opencode的免费d4f还是有点傻傻的
+
+还是不能纯许愿，许愿了就容易瞎搞刹不住车。目前发现有什么想法先在网页版上讨论个大致的设计方案出来再许愿更好
+
+*****
+
+####  蛋黄酱Release  
+##### 9275#       发表于 2026-8-18 10:21
+
+ocg的flash涨到了30刀额度<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">本来今天都想退订了 勉强再相信它一个月
+
+
+*****
+
+####  罗莉控  
+##### 9276#       发表于 2026-8-18 10:22
+
+本轮运行失败Insufficient Balance，这是harness的什么错误。昨晚18点过后deepseek的服务应该是崩了一次，也不是这个错误啊
+
+*****
+
+####  windhawind2  
+##### 9277#       发表于 2026-8-18 10:25
+
+<blockquote>Lorraine_Kinney 发表于 2026-8-18 10:02
+MAC是unix内核，用DSH、CC、codex这样的agent效率更高，但也不是必须，win用wsl也行，反正建议内存大些就 ...</blockquote>
+主要是原电脑真的太卡了 再加上想试试新东西（
+
+24gb内存1tb存储 这样够用了吧应该？
+
