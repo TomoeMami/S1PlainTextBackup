@@ -1051,3 +1051,15 @@ when Mari sees her she starts crying during the match and saying "Why are u back
 あくまでも妄想です。
 <img src="https://p.sda1.dev/34/a132a13ada23a0aa27af0f83510f6783/HP1Z5RqaUAE281p.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  云梦泽岸  
+##### 385#       发表于 2026-8-19 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70101750&amp;ptid=2183857" target="_blank">蒜人 发表于 2026-8-18 19:45</a>
+very good ep but i felt like the pacing was too fast again
+
+Lara running out of time -&gt; Lisa gives M ...</blockquote>
+看了预告，感觉全对，当然楼上也说了可能有照箭画靶的嫌疑，但是人物的情感、情节编排也挺符合的。
+

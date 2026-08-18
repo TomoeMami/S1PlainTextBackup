@@ -7007,3 +7007,11 @@ v4f我给到夯 非常适配SDD
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  来都来了  
+##### 9514#       发表于 2026-8-19 00:34
+
+我看opencode go的v4f额度调到30刀了，这样普通用户应该就差不多够蹬了吧
+
