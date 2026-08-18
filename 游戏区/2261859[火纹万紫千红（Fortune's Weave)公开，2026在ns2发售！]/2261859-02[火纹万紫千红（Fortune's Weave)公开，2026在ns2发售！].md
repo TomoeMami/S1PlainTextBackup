@@ -14043,3 +14043,46 @@ Polygon很不喜欢老任呀，之前很多老任游戏的低分是Polygon打的
 
 卧草找饭田来配这种吗
 
+
+*****
+
+####  巴尔干炮  
+##### 2803#       发表于 2026-8-18 21:27
+
+<img src="https://img.stage1st.com/forum/202608/18/212634yhxbb98x8y68qgqb.jpg" referrerpolicy="no-referrer">
+
+<strong>1787058648975262.jpg</strong> (390.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 21:26 上传
+
+为什么全图要放TODAY上，勾引足控吗？
+
+
+*****
+
+####  crosz1985  
+##### 2804#       发表于 2026-8-18 21:32
+
+一看就是**<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jabeck  
+##### 2805#       发表于 2026-8-18 21:34
+
+这个不会是抱娃娃的那个绿毛吧
+
+*****
+
+####  纯夏  
+##### 2806#       发表于 2026-8-18 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70102322&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-8-18 21:27</a>
+
+为什么全图要放TODAY上，勾引足控吗？</blockquote>
+太棒了 造型有点像萨莉亚 还能看到脚 <img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+这君子兰夫人应该能收吧 应该能吧 ？
+

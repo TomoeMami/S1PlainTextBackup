@@ -1005,3 +1005,49 @@ when Mari sees her she starts crying during the match and saying "Why are u back
 
 这剧透和看预告说话一样 真这么演吗(
 
+
+*****
+
+####  Piano-Forest  
+##### 384#         楼主| 发表于 2026-8-18 21:32
+
+🐚⁺‧┈　#さよならララ エンドカード　┈‧⁺ 🫧˚
+
+　   　第7話「土曜の10時、びわ湖テラスで」
+
+　　
+
+キャラクターデザイン #谷紫織 さんによるエンドカードをお届けします✨
+
+ご視聴いただいた皆さま、ありがとうございました。
+
+ルカとの出会いによって、新たに芽生えた気持ちに気づいたララ。打ち上げられた花火はとてもきれいで…。
+
+来週もお楽しみに！
+
+さよララ～👋
+<img src="https://p.sda1.dev/34/205e00ee358e133cac3525e3814480c5/HP01cZnb0AALavC.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/nitalPuarF192/status/2089027631048270308](https://x.com/nitalPuarF192/status/2089027631048270308)
+
+7話  第二原画で参加してました🐟
+
+これにてお手伝いした話数は以上です、本当に貴重な機会をありがとうございました。
+<img src="https://p.sda1.dev/34/34a7cc7490a4ca743c5c52a9cbd606e2/HP23jvgbQAAzQ08.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/asasafrrgreg/status/2089020610722595323](https://x.com/asasafrrgreg/status/2089020610722595323)
+
+さよらら7話参加しました
+
+よろしくお願いします！
+
+アナログで描いた
+<img src="https://p.sda1.dev/34/c1e09bd9ad65c23000110eefd353c17b/HP1Z0azbEAEGAYZ.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/hiroekeisuke/status/2088924647085801805](https://x.com/hiroekeisuke/status/2088924647085801805)
+
+ロケハンの時に気に入ってたけど出せなかった場所とか、アイデアとか投稿しようと思います。
+
+あくまでも妄想です。
+<img src="https://p.sda1.dev/34/a132a13ada23a0aa27af0f83510f6783/HP1Z5RqaUAE281p.jpg" referrerpolicy="no-referrer">
+

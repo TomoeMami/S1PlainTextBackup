@@ -34,3 +34,15 @@ My Nintendo News发了一篇职业相关的。
 
 可以预载了，3.8个G
 
+
+*****
+
+####  5ew47  
+##### 117#       发表于 2026-8-18 21:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70102187&amp;ptid=2250995" target="_blank">Beaverfan01 发表于 2026-8-18 21:08</a>
+https://mynintendonews.com/2026/08/18/the-duskbloods-characters-and-classes-leak/
+
+My Nintendo News发 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个看着也太假了，应该是瞎编的伪造泄漏
+

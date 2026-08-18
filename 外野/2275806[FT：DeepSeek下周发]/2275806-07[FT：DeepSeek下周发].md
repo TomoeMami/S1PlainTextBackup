@@ -6555,3 +6555,27 @@ AI是讨好型人格，就是个啊对对对的全肯定bot，你想干啥他都
 而且最小能跑与最经济差远了，专家也得都在显存不内存反复进出才有效率，这就要求一个机柜和光纤了。
 再说几人不能满载，高峰卡低谷空转赔了（人少没法部署集群空余段把算力用于训练等）
 
+
+*****
+
+####  chenyedgg  
+##### 9472#       发表于 2026-8-18 21:30
+
+有提高AI智商或者不角色扮演但是提高人话度的“人格”吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  noneoneone  
+##### 9473#       发表于 2026-8-18 21:37
+
+不小心把flash的思考设置成default了，你在干嘛啊DS？
+
+<img src="https://img.stage1st.com/forum/202608/18/213631cnticoenjrr9zsst.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 21:36 上传
+
