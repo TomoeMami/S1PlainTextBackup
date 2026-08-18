@@ -5679,3 +5679,81 @@ runinfra这个真的可以试一下，有180token/s用下来感觉人生都加�
 保险点么开个GOOGLE小号，然后把大号拉进家庭组 ...</blockquote>
 那个我买过了，我指的是反代怎么弄
 
+
+*****
+
+####  GJRstone  
+##### 9397#       发表于 2026-8-18 15:49
+
+离开了梁圣，才发现外面怎么天天429啊<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ST2002  
+##### 9398#       发表于 2026-8-18 15:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100053&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-18 15:19</a>
+runinfra这个真的可以试一下，有180token/s用下来感觉人生都加速了
+
+    Re:Source</blockquote>
+这家部署的是 0731 和 0813 吗？官网上没写版本，不会是预览版吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  dear81  
+##### 9399#       发表于 2026-8-18 15:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099517&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-18 13:50</a>
+快狠准还不如grok 4.6，gemini 3.7 flash虽然好了点，但是还是哈基米那桌。关键是grok支付宝可买且不用爬 ...</blockquote>
+grok现在好点了么？之前就是路边一条
+
+大概快五个月没用了
+
+*****
+
+####  舞以  
+##### 9400#       发表于 2026-8-18 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100331&amp;ptid=2275806" target="_blank">dear81 发表于 2026-8-18 15:55</a>
+grok现在好点了么？之前就是路边一条
+
+大概快五个月没用了</blockquote>
+Cursor数据加上马圣不缺算力，这几代在coding上是突飞猛进了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  王兰花秀丽  
+##### 9401#       发表于 2026-8-18 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100313&amp;ptid=2275806" target="_blank">ST2002 发表于 2026-8-18 15:53</a>
+这家部署的是 0731 和 0813 吗？官网上没写版本，不会是预览版吧
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+是0731啊
+
+<img src="https://img.stage1st.com/forum/202608/18/155636owo3ezd555oowd1u.png" referrerpolicy="no-referrer">
+
+<strong>1000052395.png</strong> (91.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 15:56 上传
+
+    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  舞以  
+##### 9402#       发表于 2026-8-18 15:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">不枉我一直鼓吹梁圣的第一方api的良心程度了
+这下伞没了，外面真的是狂风暴雨<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
