@@ -14027,3 +14027,11 @@ Polygon很不喜欢老任呀，之前很多老任游戏的低分是Polygon打的
 
 你这夫人会唱薯ki吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  u2deack  
+##### 2801#       发表于 2026-8-18 21:00
+
+这视频里打光那些黑皮全都变成那种蓝灰黑色真的好难看都不像人了
+

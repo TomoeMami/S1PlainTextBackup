@@ -6532,3 +6532,14 @@ AI是讨好型人格，就是个啊对对对的全肯定bot，你想干啥他都
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  icedew  
+##### 9470#       发表于 2026-8-18 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099859&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-18 14:49</a>
+说实话除非ds之前是在巨亏吹牛皮的纯烂活，哪怕他只是非常薄利，现在的价格都给第三方很大的盈利想象空间， ...</blockquote>
+主要是短租价格高，而ds高度依赖跑满。最低配置与经济配置差距很大（所有专家都在显存中的集群与内存交换吞吐量差个量级，再加机房等，这套下来几百万起的。）用户规模小的配不起，大厂都有自己模型，比起股价，这收益太毛毛雨了。
+也就opencode这类才有动力研究。（按消耗10t算，按go算，大概几万到几十万人之间，一个月5刀一共才几百万刀月收。这收入和规模大厂根本看不上，给人做福利呢？）
+
