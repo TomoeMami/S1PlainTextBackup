@@ -5338,3 +5338,49 @@ OCG的flash变得很耐用了啊，昨晚蹬了几下20%月用量就没了，好
 轻度使用的话实在太贵了。。说实话原价的d4flash真的很甜点，能力够用，按量计费，单价还便宜到可以放心 ...</blockquote>
 到了现在这个发展阶段，甜点模型才是大家最需要的。
 
+
+*****
+
+####  xiaohanne  
+##### 9365#       发表于 2026-8-18 14:19
+
+OpenRoute上GPT 5.6 sol半价了。
+
+看来新模型真要来了。
+
+
+*****
+
+####  自由之紫roy  
+##### 9366#       发表于 2026-8-18 14:23
+
+qwen 3.8 27B如果是57G的满血版，到底能打过v4flash0731吗？
+
+两块4080s 32G能不能跑生产力？
+
+*****
+
+####  qwased  
+##### 9367#       发表于 2026-8-18 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099707&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-18 14:23</a>
+qwen 3.8 27B如果是57G的满血版，到底能打过v4flash0731吗？
+
+两块4080s 32G能不能跑生产力？ ...</blockquote>
+看你几个人用？自己用的话部署个q4或者q6量化的拉满上下文就行，我看评价挺不错的，就是需要调整下思考强度，不然思考太久了
+
+*****
+
+####  小野賢章  
+##### 9368#       发表于 2026-8-18 14:26
+
+说到底还是国内资源不足啊，kimi 都限售了还这样<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/18/142626zxt66jjb86eabj2a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 14:26 上传
+

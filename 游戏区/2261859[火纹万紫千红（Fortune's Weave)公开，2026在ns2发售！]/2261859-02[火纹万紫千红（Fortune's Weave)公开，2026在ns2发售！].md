@@ -13849,3 +13849,30 @@ IGN上了中文版CM
 
 之前我们一直都认为神威法王是太阳神，应该是修巴利耶纹章，这次官推介绍大图清楚了，那把枪上的纹章是和主角一样的诺亚纹章，神威法王应该是和主角一样的诺亚纹章才对。
 
+
+*****
+
+####  墨染白泉  
+##### 2785#       发表于 2026-8-18 14:17
+
+<blockquote>蓮華 发表于 2026-8-18 12:09
+幽默</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/18/141730jdcvlqvsa8tu35tt.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1787024546853_518.jpg</strong> (219.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 14:17 上传
+
+<img src="https://img.stage1st.com/forum/202608/18/141731b9ek7369k1x1e5ym.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1787027185087_772.jpg</strong> (415.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 14:17 上传
+
+这媒体是想收保护费吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
