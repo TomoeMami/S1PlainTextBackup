@@ -4075,3 +4075,25 @@ APP免费版和API都可用
 
 但是对人的意图理解就只能说跟flash预览版坐一桌
 
+
+*****
+
+####  xiaohanne  
+##### 9253#       发表于 2026-8-18 09:10
+
+opencode把deepseek的限额调到了30刀。
+
+虽然还是贵，起码摆脱了调用次数还不如luna的窘境。
+
+
+*****
+
+####  cscbzcbz  
+##### 9254#       发表于 2026-8-18 09:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70097722&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-18 09:10</a>
+opencode把deepseek的限额调到了30刀。
+
+虽然还是贵，起码摆脱了调用次数还不如luna的窘境。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">什么时候改回60刀
+
