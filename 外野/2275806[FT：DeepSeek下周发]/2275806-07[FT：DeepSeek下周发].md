@@ -4474,3 +4474,47 @@ MAC是unix内核，用DSH、CC、codex这样的agent效率更高，但也不是�
 
 所以ds的infra确实就是t0级别的？
 
+
+*****
+
+####  cscbzcbz  
+##### 9289#       发表于 2026-8-18 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098449&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-18 10:53</a>
+也不完全是 举个例子win10跑起opencode来就很蛋疼 win7直接跑不起来
+而且别看这样子 opencode的bun可占资 ...</blockquote>
+现在还有win7的电脑吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+真用win7也不怕，装个linux虚拟机专门跑这些agent就行了
+
+*****
+
+####  crow_wine  
+##### 9290#       发表于 2026-8-18 10:59
+
+试了下 1.5亿的 glm5.2, 2千万的 K3, 这些真的不是垃圾吗，又贵又慢又弱智，推理能力差得很
+
+*****
+
+####  misuzu0723  
+##### 9291#       发表于 2026-8-18 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098453&amp;ptid=2275806" target="_blank">haiuhfuwah 发表于 2026-8-18 10:53</a>
+
+所以ds的infra确实就是t0级别的？</blockquote>
+是的，目前看来涨价前的pro价格没人能复现，flash倒是有第三方能做到比涨价前更便宜
+
+但是缓存读取的价格仅此一家，没有能做到这么便宜的了
+
+
+*****
+
+####  秦南心  
+##### 9292#       发表于 2026-8-18 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098503&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-18 11:01</a>
+
+是的，目前看来涨价前的pro价格没人能复现，flash倒是有第三方能做到比涨价前更便宜
+
+但是缓存读取的价格 ...</blockquote>
+请问flash用哪家便宜<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
