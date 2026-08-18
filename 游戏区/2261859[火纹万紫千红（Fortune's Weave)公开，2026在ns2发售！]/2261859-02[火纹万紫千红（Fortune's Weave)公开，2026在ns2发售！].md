@@ -13660,3 +13660,14 @@ IGN上了中文版CM
 不是，为啥会觉得没有主角s结局，结合砍了拉郎都还保留了主角s呢</blockquote>
 对啊 而且主角的身份也算是个目前宣传里没揭露的秘密
 
+
+*****
+
+####  渡边加奈子  
+##### 2766#       发表于 2026-8-18 08:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70095636&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-8-17 19:13</a>
+
+法比奥人气好像真挺高啊，x上看到好多喜欢的</blockquote>
+法比欧人物介绍的那篇推文从角色公开起就是万紫千红角色推文阅读量最高的
+
