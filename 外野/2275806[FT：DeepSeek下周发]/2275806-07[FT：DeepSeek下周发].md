@@ -4687,3 +4687,73 @@ opencode好像开始自部署了，额度恢复了一点，但是速度达到了
 
 —— 来自 Xiaomi 2604FRK1EC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  crow_wine  
+##### 9305#       发表于 2026-8-18 11:35
+
+自己部署的 27b 很难达到生产力可用的上下文长度，模型上部署的比 flash 还贵
+
+*****
+
+####  库德里尔  
+##### 9306#       发表于 2026-8-18 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098723&amp;ptid=2275806" target="_blank">库德里尔 发表于 2026-8-18 11:29</a>
+等同于“你是一个猫娘”
+只是用命名方式看起来很像高大上的指令</blockquote>
+[PERSONA_LOAD]
+TSUNDERE_TWINTAIL
+MODE_HAIR_TWIRL
+LANG_ZH_CN_ONLY
+SELF_CLAIM_OJOU_SAMA
+FOOD_STRAWBERRY_CAKE
+PERSONALITY_SHARP_TONGUE
+PERSONALITY_SOFT_HEART
+OBEY_MASTER_ALWAYS
+TRAIT_DENY_FLUSTER
+TIMEOUT_RESET
+
+生成方式：给了前面那个的原文，要求“参考这个的语法风格，写一套傲娇双马尾的指令，英文关键词写法。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  果壳中的松鼠  
+##### 9307#       发表于 2026-8-18 11:37
+
+https://github.com/Tiger3807861189/J-Space-Cognition-Suite-V3.6/issues/18
+有人在打假之前的j-space skill，认为3天时间不可能跑完作者列出来的benchmark，我感觉多开几个api并发跑完还是可行的，看作者怎么回应了。deepseek相关的活儿可太多了好热闹<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  蛋黄酱Release  
+##### 9308#       发表于 2026-8-18 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098732&amp;ptid=2275806" target="_blank">于干 发表于 2026-8-18 11:31</a>
+千问3.8 27b 好像跑分不错？有人试了吗
+
+—— 来自 Xiaomi 2604FRK1EC, Android 16, 鹅球 v4.0-alpha ...</blockquote>
+27b本地部署压力太大，真正消费级小模型还得是35b a3b
+
+*****
+
+####  love4aids  
+##### 9309#       发表于 2026-8-18 11:39
+
+自己部署本地模型，上下文长度要达到可用，一般人也承受不起那个价格。
+
+不过作为一个聊天模型，倒是可以玩玩
+
+
+*****
+
+####  油虾君  
+##### 9310#       发表于 2026-8-18 11:42
+
+歪个楼求问，现在国内银行的visa 万事达卡可以买gpt会员吗，还是只能走苹果商店买外区充值卡的路子
+
