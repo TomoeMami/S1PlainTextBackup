@@ -6120,3 +6120,22 @@ commandcode如何，说现在10刀换70刀
 论坛助手,iPhone ...</blockquote>
 有google订阅插件，可以直接调用
 
+
+*****
+
+####  startraveller  
+##### 9435#       发表于 2026-8-18 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100331&amp;ptid=2275806" target="_blank">dear81 发表于 2026-8-18 15:55</a>
+grok现在好点了么？之前就是路边一条
+
+大概快五个月没用了</blockquote>
+现在还蛮强的，至少有opus 4.8的手感。 快狠准。
+
+*****
+
+####  zjf  
+##### 9436#       发表于 2026-8-18 16:58
+
+多谢楼上两位老哥，我咸鱼整一个试试咸淡<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
