@@ -6983,3 +6983,27 @@ v4f我给到夯 非常适配SDD
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说真的v4f哪怕开了智写文效果也很不错了，但是这个开智思维链只和dsh绑定就有点难受……hermes就算输入了提示词也激活不了let's开头……
 
+
+*****
+
+####  舞以  
+##### 9512#       发表于 2026-8-19 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70103314&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-19 00:13</a>
+
+说真的v4f哪怕开了智写文效果也很不错了，但是这个开智思维链只和dsh绑定就有点难受……hermes就算输入了提 ...</blockquote>
+测试结果好像最核心的是tool schema，要稳定激活一定要只给agent暴露///\\\bash和str修改这俩工具，而且描述之类的完全复刻。
+
+提示词反而相对宽松不少。
+
+所以我说0813现在更像是一个unix仙人模型，其他高级工具用着呛，就好那口bash。
+
+*****
+
+####  crow_wine  
+##### 9513#       发表于 2026-8-19 00:25
+
+话说我 flash 用极简模式也没法是 let's思维链，还是很多let me，pro 则很稳定
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
