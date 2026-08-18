@@ -5757,3 +5757,61 @@ Cursor数据加上马圣不缺算力，这几代在coding上是突飞猛进了
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  dear81  
+##### 9403#       发表于 2026-8-18 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100341&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-18 15:56</a>
+Cursor数据加上马圣不缺算力，这几代在coding上是突飞猛进了
+
+论坛助手,iPhone ...</blockquote>
+现在能用api么，啥价格？
+
+*****
+
+####  eno_emos  
+##### 9404#       发表于 2026-8-18 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099749&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-18 14:31</a>
+
+话说豆包到底在干嘛，不考虑出个ａｐｉ或者开源吗</blockquote>
+[https://ark.volcengine.com/regio ... oubao-seed-evolving](https://ark.volcengine.com/region:cn-beijing/model/detail?name=doubao-seed-evolving)
+[https://console.volcengine.com/a ... 379/2366394?lang=zh](https://console.volcengine.com/ark/region:cn-beijing/docs/82379/2366394?lang=zh)
+
+api和订阅都有啊，甚至他这个订阅还是打包的，文字模型图片模型识图模型向量模型全包一块卖
+
+至于api的价格嘛……<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+订阅的话性价比就看你多媒体需求大不大了，自己做点图文项目他这个包还是划得来
+
+
+*****
+
+####  zjf  
+##### 9405#       发表于 2026-8-18 16:05
+
+诸君语音输入都用的什么方案啊，不想打字了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  xiaohanne  
+##### 9406#       发表于 2026-8-18 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100430&amp;ptid=2275806" target="_blank">zjf 发表于 2026-8-18 16:05</a>
+
+诸君语音输入都用的什么方案啊，不想打字了
+
+论坛助手,iPhone</blockquote>
+语音输入的话，手机上豆包输入法挺好的，比微信输入法的语音更准确。
+
+*****
+
+####  德尔惠净水器  
+##### 9407#       发表于 2026-8-18 16:07
+
+官方的api只有梁文谷能用，一旦变成梁文峰烧钱如同流水
+
