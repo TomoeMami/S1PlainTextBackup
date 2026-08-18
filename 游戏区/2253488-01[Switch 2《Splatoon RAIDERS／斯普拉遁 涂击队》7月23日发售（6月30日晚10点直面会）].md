@@ -8233,3 +8233,11 @@ https://github.com/Orangeeeeeeeeeeeeeeeeee/switch-controller-macro
 
 — from samsung SM-S911U1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  otakun  
+##### 956#       发表于 2026-8-19 07:42
+
+我猜打完就打完。什么都没有
+
