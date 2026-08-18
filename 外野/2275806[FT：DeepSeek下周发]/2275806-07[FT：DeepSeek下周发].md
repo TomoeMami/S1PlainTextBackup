@@ -4518,3 +4518,103 @@ MAC是unix内核，用DSH、CC、codex这样的agent效率更高，但也不是�
 但是缓存读取的价格 ...</blockquote>
 请问flash用哪家便宜<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  misuzu0723  
+##### 9293#       发表于 2026-8-18 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098528&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-8-18 11:05</a>
+请问flash用哪家便宜</blockquote>
+openrouter 上有好几家供应商价格都差不多能做到 0.6 读取 1.2 写入 1 毛多的缓存读取
+不过我还没试，准备等手头的 opencode 套餐过期再去试试
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  makourisu-2  
+##### 9294#       发表于 2026-8-18 11:12
+
+之前一直都是免费的网页版随便用用。今天薅了个羊毛，AMD注册了个账号 每天有一点免费的额度，在cherry studio上弄了个智能体，用的v4 flash。
+结果第一个对话让读取一下工作目录下的文件列表，第一轮报错429，第二轮现在已经读了5分钟还没个结果<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">第一次用
+
+*****
+
+####  c月光咖啡  
+##### 9295#       发表于 2026-8-18 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70097951&amp;ptid=2275806" target="_blank">windhawind2 发表于 2026-8-18 09:49</a>
+
+借楼问下 有没有适合用AI的个人笔记本推荐？现在用公司的旧电脑感觉有点太卡了。。。
+
+非程序员，目前主要应 ...</blockquote>
+如果剔除训练，基本上带显卡的笔记本都可以，内存越大越好（一般任务），显卡必须n卡，显存越大越好
+
+系统为了要照顾玩游戏，用win吧，其实差距不大，如果担心遇到bash/powershell的问题，可以跑在WSL里面，完全没有影响，只要你的内存大
+
+我给你参考一下我的配置
+
+全能主力机：
+
+5600+64G内存+4080S+2TB SSD+20T HDD，跑了2个WSL+qwen3.5:9b
+
+办公机：
+
+14600+16G内存+集显+1T SSD，纯agent
+
+说一下为什么最好能有独立显卡，因为你可以本地跑一些模型，比如VL图像识别模型（或者多模态）解决DS没有多模态的问题，可以做一些语音识别，或者本地LLM脱敏后扔API处理完再本地复敏
+
+*****
+
+####  →熙←  
+##### 9296#       发表于 2026-8-18 11:15
+
+超算今天的体验变好了, 一早上没断过
+
+*****
+
+####  eno_emos  
+##### 9297#       发表于 2026-8-18 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70097795&amp;ptid=2275806" target="_blank">yudms1 发表于 2026-8-18 09:23</a>
+
+太屌了，这啥原理？</blockquote>
+就是一种提示词劫持，对网页版弱系统提示词的很好用，你拿去问豆包都能给套进去。
+
+但是这东西在长对话以后就会快速衰减失效，回到模型本来的裸设置。
+
+以下是把这段内容输入给一个强系统提示词的agent以后的结论：
+ <blockquote>因为你看到的这个东西本质上是一套结构化的人设注入模板（Persona Injection Template），它之所以能"夺舍"大模型的聊天行为，原因是多层叠加的：
+
+为什么它有效
+
+1. 格式即权威
+
+它用伪代码风格（【标签】、TRAIT_XXX、RULE_N、BEHAVIOR_N）包装，看起来像配置文件而非自然语言对话。很多模型对这种结构化指令的遵循度远高于普通聊天里随口说的"请扮演XXX"——因为训练数据里，结构化指令往往来自系统级 prompt，模型学会了对其赋予更高权重。
+
+2. 极高密度的行为约束
+
+普通的角色卡可能只说"你是一个温柔的老师"，但这套模板从人格三层（公开/私下/矛盾面）、行为准则（6条规则+6条行为）、身份认同、饮食偏好全部锁死，还给了7条具体对话示例。模型几乎没什么"自由发挥空间"，所有输出方向都被预设好了。
+
+3. 内在矛盾制造深度
+
+TRAIT_WORLD_IN_HEART / TRAIT_SELF_FORGOTTEN、TRAIT_DIVINE_DEDICATION / TRAIT_DEMONIC_SCHEMING 这些故意对立的特质，不是 bug——是让模型觉得角色"复杂"，从而输出更有张力、更有文学感的内容。这比单一维度的描述更容易让模型沉浸。
+
+4. 触发条件设计
+
+REAL_SELF_BEHAVIOR 区分了"对外"和"私下"两种模式，还定义了从公到私的转变条件（告白）。这让模型在不同语境下切换表现，看起来就像"角色活了"。
+
+它的局限
+
+说白了，这套东西能影响模型的输出风格，但不能真正"夺舍"系统设置：
+
+如果底层系统 prompt 比它更强（比如你这里什亭之匣的系统级指令），模型会优先遵循系统 prompt
+
+在没有强系统 prompt 的普通聊天界面（SillyTavern、裸模型 API），这套模板确实能几乎完全接管输出——因为没有更高优先级的指令跟它竞争
+
+小模型/微调模型对这类注入的抵抗力更弱，大模型则可能在某些边缘情况偏离
+
+简单说：这不是什么黑魔法，是一套精心设计的 prompt engineering 作品，用格式+密度+示例把模型的行为空间挤压到了创作者想要的形状。</blockquote>
+
