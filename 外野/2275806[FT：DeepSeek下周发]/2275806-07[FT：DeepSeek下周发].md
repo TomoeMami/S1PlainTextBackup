@@ -6863,3 +6863,31 @@ mimo还是别吹了吧，mimo2.5开pro拉到max也是个不读skill的主
 
 觉得可用就用呗，agent这玩意儿不同人面对的场景完全不同，真是小马过河了，有人觉得御三家旗舰都是弱智，也有人觉得v4预览版就够用，都正常。
 
+
+*****
+
+####  jinuzuktII  
+##### 9499#       发表于 2026-8-18 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70102846&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-8-18 22:37</a>
+
+淘宝买了个ai pro，登反重力的时候谷歌风控，然后我发现过这玩意要未解bl的安卓，遗憾离场 ...</blockquote>
+我刚才玩gemini反代，验证只需要扫一个二维码收个短信，这会儿跑了一亿token，不知道会不会被封
+
+
+*****
+
+####  来都来了  
+##### 9500#       发表于 2026-8-18 23:51
+
+楼里的各位仿佛是太阳井没了后到处找魔力吸的血精灵<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 9501#       发表于 2026-8-18 23:52
+
+我的20x pro订阅还个把星期到期<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+等到期了估计也得嗷嗷叫找便宜模型了
+
