@@ -5815,3 +5815,58 @@ api和订阅都有啊，甚至他这个订阅还是打包的，文字模型图�
 
 官方的api只有梁文谷能用，一旦变成梁文峰烧钱如同流水
 
+
+*****
+
+####  ST2002  
+##### 9408#       发表于 2026-8-18 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100343&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-18 15:56</a>
+是0731啊
+
+    Re:Source</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">多谢，马上试试
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  小野賢章  
+##### 9409#       发表于 2026-8-18 16:10
+
+dsh 的官方文档实在是不行，现在让 dsh 自己给自己开发插件，必须把 dsh 的完整源代码给它参考，所以特别慢
+
+*****
+
+####  qwetyuyu  
+##### 9410#       发表于 2026-8-18 16:12
+
+马圣的  grok 4.6  怎么样，比起glm5.2 在编程上面的表现呢？
+
+现在70多块的  SuperGrok lite 值得买吗？
+
+*****
+
+####  果壳中的松鼠  
+##### 9411#       发表于 2026-8-18 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100485&amp;ptid=2275806" target="_blank">qwetyuyu 发表于 2026-8-18 16:12</a>
+马圣的  grok 4.6  怎么样，比起glm5.2 在编程上面的表现呢？
+
+现在70多块的  SuperGrok lite 值得买吗？ ...</blockquote>
+屎山上测试表现很强
+【开源AI闭源AI决战屎山之巅｜屎山论剑-哔哩哔哩】 https://b23.tv/WtSzhFB
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  zjf  
+##### 9412#       发表于 2026-8-18 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100439&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-18 16:06</a>
+语音输入的话，手机上豆包输入法挺好的，比微信输入法的语音更准确。</blockquote>
+mac和win下有木有推荐的呀，我cli用的比较多，打字打累了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
