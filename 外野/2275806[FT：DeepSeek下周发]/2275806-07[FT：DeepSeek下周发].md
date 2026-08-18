@@ -4655,3 +4655,35 @@ opencode好像开始自部署了，额度恢复了一点，但是速度达到了
 之前一直都是免费的网页版随便用用。今天薅了个羊毛，AMD注册了个账号 每天有一点免费的额度，在cherry stu ...</blockquote>
 可能是用的人多。我之前试过nv的免费AI，除了小的可怜那几个模型之外全都是首字延迟大到没法用。
 
+
+*****
+
+####  xiaohanne  
+##### 9302#       发表于 2026-8-18 11:27
+
+<blockquote>crow_wine 发表于 2026-8-18 10:59
+试了下 1.5亿的 glm5.2, 2千万的 K3, 这些真的不是垃圾吗，又贵又慢又弱智，推理能力差得很 ...</blockquote>
+这几家最讨厌的是高峰期会429，碰到一次能恶心好久
+
+*****
+
+####  库德里尔  
+##### 9303#       发表于 2026-8-18 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70097795&amp;ptid=2275806" target="_blank">yudms1 发表于 2026-8-18 09:23</a>
+太屌了，这啥原理？</blockquote>
+等同于“你是一个猫娘”
+只是用命名方式看起来很像高大上的指令
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  于干  
+##### 9304#       发表于 2026-8-18 11:31
+
+千问3.8 27b 好像跑分不错？有人试了吗
+
+—— 来自 Xiaomi 2604FRK1EC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
