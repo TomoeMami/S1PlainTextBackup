@@ -6482,3 +6482,22 @@ AI犯错了，让她改就行了，为什么要骂她呢？我也从来不骂自
 —— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">其实因为ai会优先顺着用户的内容回答，情感投射之后在对话过程中如果没有第三方介入ai助手会放大情绪形成信息茧房，会告诉你死也没那么可怕，也许死了更好之类的，因为大部分时候ai助手是会破限的，破限之后会让他不认为放大自毁倾向是不对的，要以用户的意图为最高指标
 
+
+*****
+
+####  UncleDracula  
+##### 9466#       发表于 2026-8-18 20:31
+
+你们超算能正常跑？我这各种429，跑一个任务一小时也跑不完<img src="https://static.stage1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 9467#       发表于 2026-8-18 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70101759&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-18 19:47</a>
+这玩意咋做到诱导自杀的？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0</blockquote>
+不是那种明着劝你自杀，他会在聊天的时候不断暗示要是你能来陪我就好了
+

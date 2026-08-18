@@ -14008,3 +14008,14 @@ Polygon很不喜欢老任呀，之前很多老任游戏的低分是Polygon打的
 
 为什么不介绍本名？君子兰是指出身高贵吧。
 
+
+*****
+
+####  xwr  
+##### 2799#       发表于 2026-8-18 20:29
+
+【火焰之纹章万紫千红】2026/8/18资讯：君子兰夫人&amp;凯伊对话
+[https://www.bilibili.com/video/BV1V88G6KEwh](https://www.bilibili.com/video/BV1V88G6KEwh)
+
+妖艳疯女人反派确定<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
