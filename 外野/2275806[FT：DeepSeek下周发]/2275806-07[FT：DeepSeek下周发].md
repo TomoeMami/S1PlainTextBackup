@@ -7045,3 +7045,13 @@ v4f我给到夯 非常适配SDD
 —— 来自 HUAWEI ALN-AL00 ...</blockquote>
 flash 你的装 routing-standard-suite
 
+
+*****
+
+####  jinuzuktII  
+##### 9518#       发表于 2026-8-19 01:32
+
+DSH还真是容易把自己写死
+
+已经两次靠PI场外援助复活了
+
