@@ -6891,3 +6891,57 @@ mimo还是别吹了吧，mimo2.5开pro拉到max也是个不读skill的主
 
 等到期了估计也得嗷嗷叫找便宜模型了
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 9502#       发表于 2026-8-18 23:57
+
+5.6 luna的特定行为模式真的太明显了 而且指令遵循也不行 现在公司内部已经滑坡到路人阶段
+
+v4f我给到夯 非常适配SDD
+
+至于其他模型 tps不到40一律拉完了 
+
+就是梁白开一定要我们数据 被hq叫停了 不是原厂感觉没那味啊
+
+*****
+
+####  UncleDracula  
+##### 9503#       发表于 2026-8-18 23:58
+
+做方案设计还是得PRO来，只是以前做一个方案1块钱，现在做一个方案4块钱了，但想想整个项目下来也就几十个方案顶天了，最后两三百块钱的设计成本，貌似也能接受了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  noneoneone  
+##### 9504#       发表于 2026-8-18 23:59
+
+我不但到处找token吸一口，我还要晚上偷着吸嘞。
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
+
+*****
+
+####  UncleDracula  
+##### 9505#       发表于 2026-8-19 00:01
+
+我把能开的廉价plan都开了，梁文锋时间也可以猛蹬flash了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  德尔惠净水器  
+##### 9506#       发表于 2026-8-19 00:03
+
+超算平台的token plan怎么样，官方api一遇到梁文峰费用顶不住
+
+*****
+
+####  c月光咖啡  
+##### 9507#       发表于 2026-8-19 00:03
+
+现在超算到了半夜还是报429，太区了<img src="https://static.stage1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
+
