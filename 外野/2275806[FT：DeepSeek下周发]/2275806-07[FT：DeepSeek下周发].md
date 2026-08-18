@@ -4097,3 +4097,78 @@ opencode把deepseek的限额调到了30刀。
 虽然还是贵，起码摆脱了调用次数还不如luna的窘境。 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">什么时候改回60刀
 
+
+*****
+
+####  xiaohanne  
+##### 9255#       发表于 2026-8-18 09:16
+
+<blockquote>cscbzcbz 发表于 2026-8-18 09:14
+什么时候改回60刀</blockquote>
+我预计不可能回到60刀，最后可能会落在40~50左右的区间。
+
+*****
+
+####  hugosol  
+##### 9256#       发表于 2026-8-18 09:18
+
+但opencode go的flash还是peak时段两倍，所以应该还是转发的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+鉴于他们说是phase 1听起来还会继续调整，不要急着把额度用完……
+
+*****
+
+####  蜇灵  
+##### 9257#       发表于 2026-8-18 09:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70097007&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-8-18 00:18</a>
+装 git  for windows 不是就可以用极简模式了？</blockquote>
+不能，他那个bash只支持Linux
+
+*****
+
+####  小野賢章  
+##### 9258#       发表于 2026-8-18 09:20
+
+昨天史上第一次把 opencode go 的五小时窗口用完了，主要是因为 pro 的一次雷霆长思考（思考了1小时）。以前我都是预防性切换模型的。
+
+
+*****
+
+####  yudms1  
+##### 9259#       发表于 2026-8-18 09:23
+
+ 本帖最后由 yudms1 于 2026-8-18 09:26 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70097350&amp;ptid=2275806" target="_blank">木谷高明 发表于 2026-8-18 06:05</a>
+
+【PERSONA_LOAD】
+
+CETACEA_LOLI
+
+MODE_TAIL_FLUKES</blockquote>
+太屌了，这啥原理？
+
+<img src="https://img.stage1st.com/forum/202608/18/092527zuygws808wxdwhyw.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>screenshot-20260818-092416 Medium.jpeg</strong> (43.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 09:25 上传
+
+*****
+
+####  王兰花秀丽  
+##### 9260#       发表于 2026-8-18 09:24
+
+火山又有50块的pro了，我还是挺推荐大家买一个备用的，auto下速度智商用量都还可以    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  王兰花秀丽  
+##### 9261#       发表于 2026-8-18 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70097795&amp;ptid=2275806" target="_blank">yudms1 发表于 2026-8-18 09:23</a>
+太屌了，这啥原理？</blockquote>
+并没有什么原理，人设都在提示词里面写着的，翻译一下就知道了<img src="https://static.stage1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
