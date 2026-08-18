@@ -1063,3 +1063,13 @@ very good ep but i felt like the pacing was too fast again
 Lara running out of time -&gt; Lisa gives M ...</blockquote>
 看了预告，感觉全对，当然楼上也说了可能有照箭画靶的嫌疑，但是人物的情感、情节编排也挺符合的。
 
+
+*****
+
+####  千本blur  
+##### 386#       发表于 2026-8-19 02:26
+
+如果是观光番，先不说琵琶湖八景，
+
+这片连远景都很少给。
+
