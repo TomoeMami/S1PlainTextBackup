@@ -5384,3 +5384,79 @@ qwen 3.8 27B如果是57G的满血版，到底能打过v4flash0731吗？
 
 2026-8-18 14:26 上传
 
+
+*****
+
+####  xiaohanne  
+##### 9369#       发表于 2026-8-18 14:28
+
+<blockquote>小野賢章 发表于 2026-8-18 14:26
+说到底还是国内资源不足啊，kimi 都限售了还这样</blockquote>
+Kimi和GLM的总算力应该都是比Deepseek多的。Deepseek前两天被蹬那么狠，都没有频繁429，我感觉应该还是和给C端分配的算力有关，梁子实诚人。
+
+*****
+
+####  舞以  
+##### 9370#       发表于 2026-8-18 14:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">kimi的第一方托管感觉纯是仪式性业务
+
+*****
+
+####  xiaohanne  
+##### 9371#       发表于 2026-8-18 14:30
+
+<blockquote>小野賢章 发表于 2026-8-18 14:26
+说到底还是国内资源不足啊，kimi 都限售了还这样</blockquote>
+另外，不要相信Minimax。Minimax在M3推出以前你不买他的HighSpeed套餐，到了高峰期根本就完全没法用。三次指令报一次429，用的我都快吐了。
+
+*****
+
+####  自由之紫roy  
+##### 9372#       发表于 2026-8-18 14:31
+
+话说豆包到底在干嘛，不考虑出个ａｐｉ或者开源吗
+
+
+*****
+
+####  自由之紫roy  
+##### 9373#       发表于 2026-8-18 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099719&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-18 14:25</a>
+
+看你几个人用？自己用的话部署个q4或者q6量化的拉满上下文就行，我看评价挺不错的，就是需要调整下思考强 ...</blockquote>
+一般1-2人中度使用。
+
+*****
+
+####  crow_wine  
+##### 9374#       发表于 2026-8-18 14:32
+
+受不了了，让kimi3 跑了2个小时用了2千万 token，还装模作样的给我分析3层原因，一层比一层深。我一看结果是一个很简单的错误。
+
+区区
+
+这就是 3万亿参数比肩 fable5 的水平<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  →熙←  
+##### 9375#       发表于 2026-8-18 14:32
+
+j-space应该是有点用的, 只是没一个量化数据
+
+风神+ /j-space 强制调用后, 看思维链也在用起来了, 用了一天没啥篓子, 任务分析和完成挺漂亮
+
+就是他的WORKSPACE.md只有一个, 不支持并发, 要优化
+
+*****
+
+####  卡普空  
+##### 9376#       发表于 2026-8-18 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099670&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-18 14:16</a>
+
+梁子虽然涨价，但说真的，就算之前被蹬那么狠，都没有频繁429，说明梁子给C端API的算力分配应该是远超那 ...</blockquote>
+第三方应该要供很多模型吧，就算总算力多一分摊以后也没那么多了
+
