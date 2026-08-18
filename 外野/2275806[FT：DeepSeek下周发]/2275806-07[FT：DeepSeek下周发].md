@@ -4433,3 +4433,44 @@ MAC是unix内核，用DSH、CC、codex这样的agent效率更高，但也不是�
 
 再去试试SCNET的
 
+
+*****
+
+####  罗莉控  
+##### 9285#       发表于 2026-8-18 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098306&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-8-18 10:36</a>
+
+就顾名思义啊，没余额了    Re:Source</blockquote>
+上午两个小时不到用了30块钱！真是涨的太狠了
+
+*****
+
+####  windhawind2  
+##### 9286#       发表于 2026-8-18 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098372&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-18 10:43</a>
+
+一般配置的不行的，想要本地部署最好买128g内存以上的。我之所以知道，是因为简单研究过，这个对个人来说 ...</blockquote>
+倒也不一定要本地部署就是了 那感觉预算1w多就够了
+
+
+*****
+
+####  neptunehs  
+##### 9287#       发表于 2026-8-18 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098011&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-18 09:58</a>
+只是作为AI用户不需要电脑配置，花API的钱就行，要本地部署可以考虑macbook，不过得配置比较好价格不便宜 ...</blockquote>
+也不完全是 举个例子win10跑起opencode来就很蛋疼 win7直接跑不起来
+而且别看这样子 opencode的bun可占资源了。。。
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  haiuhfuwah  
+##### 9288#       发表于 2026-8-18 10:53
+
+所以ds的infra确实就是t0级别的？
+
