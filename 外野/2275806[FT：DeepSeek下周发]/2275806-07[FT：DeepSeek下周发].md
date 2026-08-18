@@ -4794,3 +4794,51 @@ https://github.com/Tiger3807861189/J-Space-Cognition-Suite-V3.6/issues/18
 试了一下感觉MiMo 2.5 High执行任务的水平介于Luna Default和Luna ...</blockquote>
 mimo现在菜的不如minimax m3，比qwen3.8 27b更是菜一大截<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  crow_wine  
+##### 9315#       发表于 2026-8-18 11:55
+
+还好国算平台试了下 glm 和 K3, 差点给这两傻逼送钱了，就这水平好意思这个价，吹到天上去
+
+*****
+
+####  →熙←  
+##### 9316#       发表于 2026-8-18 11:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098875&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-18 11:55</a>
+
+还好国算平台试了下 glm 和 K3, 差点给这两傻逼送钱了，就这水平好意思这个价，吹到天上去 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">v4f0731是不属于这个时代的水平
+
+
+*****
+
+####  neptunehs  
+##### 9317#       发表于 2026-8-18 12:01
+
+qwen3.8 27b我现在都是4096context+q4这种配置来翻译 稍微大一点的context都没戏 什么都干不了
+35ba3b要什么时候啊 能不能后训练出奇迹啊
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  bartholo4  
+##### 9318#       发表于 2026-8-18 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098806&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-18 11:44</a>
+我感觉这些插件都很不稳定，表现起伏很大，而且多轮对话容易越来越差，适合一次对话写单页面应用这种玩具抽 ...</blockquote>
+就 router standard 加 flash max 效果最稳定。
+
+*****
+
+####  bartholo4  
+##### 9319#       发表于 2026-8-18 12:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098609&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-18 11:15</a>
+超算今天的体验变好了, 一早上没断过</blockquote>
+今天晚上买了个 DeepSeek-V4-Flash-0731冰点秒杀套餐包
+直接不给用，问客服说明天再试。。。
+

@@ -772,3 +772,11 @@ steam开服以后是互通吗还是独立的
 这游戏只用108角色能打到哪</blockquote>
 有目前主线全通的[https://www.bilibili.com/video/BV1RWg36QECw](https://www.bilibili.com/video/BV1RWg36QECw)
 
+
+*****
+
+####  胖达君  
+##### 61#       发表于 2026-8-18 12:01
+
+只用108角色还好，因为可以免费突破限界，至于等级和等级上限，就只能体力刷讨伐了。另外主线的GUEST角色也挺强的
+
