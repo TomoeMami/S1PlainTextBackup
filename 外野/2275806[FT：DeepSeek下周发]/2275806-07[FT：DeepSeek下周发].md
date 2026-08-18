@@ -5027,3 +5027,51 @@ Luna 要能代替 Flash，da 根本不会涨价
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qwased  
+##### 9337#       发表于 2026-8-18 12:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099213&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-8-18 12:55</a>
+
+Luna 要能代替 Flash，da 根本不会涨价
+
+—— 来自 S1Fun</blockquote>
+真可以试试gemini，特别快，虽然返工次数多但是也不难受
+
+v4flash 110tk/s 返工一次就得等5~15分钟
+
+哈基米300+ 返工几分钟完事了
+
+而且做UI之类的有多模态确实强不少
+
+*****
+
+####  真红之闪电  
+##### 9338#       发表于 2026-8-18 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099232&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-18 12:58</a>
+真可以试试gemini，特别快，虽然返工次数多但是也不难受
+
+v4flash 110tk/s 返工一次就得等5~15分钟
+
+哈基米3 ...</blockquote>
+我最近不着急，这一波闹麻了，等几天看看。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  UncleDracula  
+##### 9339#       发表于 2026-8-18 13:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099232&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-18 12:58</a>
+
+真可以试试gemini，特别快，虽然返工次数多但是也不难受
+
+v4flash 110tk/s 返工一次就得等5~15分钟
+
+哈基米3 ...</blockquote>
+哈基米做规划写代码比ds如何？现在主要还是想找个文峰时间的替代，文谷时间，咬咬牙还是用ds舒服
+
