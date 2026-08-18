@@ -6293,3 +6293,11 @@ grok现在好点了么？之前就是路边一条
 
 梁文峰/梁文谷自动切换，https://github.com/chunfeng11221/liang-wenfeng-gu
 
+
+*****
+
+####  小ghoul  
+##### 9451#       发表于 2026-8-18 17:49
+
+[https://tokenrhythm.studio/models](https://tokenrhythm.studio/models)，我最近在蹬这个，虽然不便宜，但是邀请注册最多能薅羊毛700多块，蹬完再说
+

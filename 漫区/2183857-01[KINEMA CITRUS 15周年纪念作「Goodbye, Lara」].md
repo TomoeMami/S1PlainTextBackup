@@ -892,3 +892,20 @@ ps：我觉得小出已经很温和了<img src="https://static.stage1st.com/imag
 
 大结局搞先行放映给我一种很强的“没活”感<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  思信菌  
+##### 376#       发表于 2026-8-18 17:50
+
+<blockquote>yaneis 发表于 2026-8-18 17:27
+单看前面单元剧已经不是浅而是意味不明了，第四集的寻找新王子/遇到更好的人，第五集的操之过急，然后到 ...</blockquote>
+
+所以真实之爱到底是什么？
+
+一堆人说爱是多重多样的，亲爱，友爱，家族爱。
+
+但是那条鱼一直说的是找“王子”具体这个人啊。
+
+而且姑姑自己当初就是奔着爱情去的吧
+
