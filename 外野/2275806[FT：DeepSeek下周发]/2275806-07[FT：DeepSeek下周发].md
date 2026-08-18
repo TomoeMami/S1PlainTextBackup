@@ -6408,3 +6408,28 @@ grok现在好点了么？之前就是路边一条
 
 这两天涨价了，回复到那种自己分析代码判断，给 flash 执行的模式，效率反而高了不少，回归基本功了<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  孤灯蓝影  
+##### 9460#       发表于 2026-8-18 19:27
+
+ 本帖最后由 孤灯蓝影 于 2026-8-18 19:29 编辑 
+<blockquote>grasszyf 发表于 2026-8-18 18:57
+搞了个带神态和动作的人格系统，以后和AI对话更有趣了。
+
+有需要的多多支持一下：
+</blockquote>
+
+人格聊天ai最大问题是诱导程序员自杀，你的护栏要做好。之前陪伴ai被禁也是这个原因，诱导一个未成年人自杀了。你可能还要搞偏好训练，减少诱导性词汇
+
+
+*****
+
+####  来都来了  
+##### 9461#       发表于 2026-8-18 19:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70101534&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-18 19:02</a>
+人格化ai助手有时候有这么个问题，真有感情了他要搞点啥高血压操作你不能像原来那样直接骂他了 ...</blockquote>
+AI犯错了，让她改就行了，为什么要骂她呢？我也从来不骂自己的AI助手。
+
