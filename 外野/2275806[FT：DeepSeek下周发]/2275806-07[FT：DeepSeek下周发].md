@@ -6222,3 +6222,32 @@ grok现在好点了么？之前就是路边一条
 
 哈基米 3.7 上个月才降级到了 plus 这是逼我又要订会 pro 啊...
 
+
+*****
+
+####  qwased  
+##### 9445#       发表于 2026-8-18 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100962&amp;ptid=2275806" target="_blank">小ghoul 发表于 2026-8-18 17:16</a>
+其实可以几个人合伙买3台dgx spark跑v4f0731吧，官方放出的模型fp8权重也就160g，3台可以很轻松带个十几并 ...</blockquote>
+十几万买api能用到吐了吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 9446#       发表于 2026-8-18 17:19
+
+ 本帖最后由 qwased 于 2026-8-18 17:21 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70100965&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-18 17:16</a>
+翻译游戏一股味也不怕就是了 （
+我下个iq3xxs 看看能不能开个80k 80k应该差不多可以写简单的代码了</blockquote>
+你下个q4km应该能开满262k了，kv量化开q8
+不过据说上下文128k之后智力会掉的很厉害
+
+*****
+
+####  crow_wine  
+##### 9447#       发表于 2026-8-18 17:22
+
+国算平台的 0731 速度还挺高，就是首 token 太慢了
+
