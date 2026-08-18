@@ -5143,3 +5143,24 @@ gemini要正经用得走Google AI Studio，所以算下来还是中转站比较�
 
 用数据说话，Luna现在就是比V4F便宜好用太多还能识图。GPT Plus还带网页版无限聊天和生图。
 
+
+*****
+
+####  startraveller  
+##### 9346#       发表于 2026-8-18 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099232&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-18 12:58</a>
+真可以试试gemini，特别快，虽然返工次数多但是也不难受
+
+v4flash 110tk/s 返工一次就得等5~15分钟
+
+哈基米3 ...</blockquote>
+快狠准还不如grok 4.6，gemini 3.7 flash虽然好了点，但是还是哈基米那桌。关键是grok支付宝可买且不用爬梯。
+
+*****
+
+####  卡普空  
+##### 9347#       发表于 2026-8-18 13:50
+
+原来公司有免费的V4，爽翻了，猛蹬<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
