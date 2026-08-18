@@ -761,3 +761,14 @@ steam开服以后是互通吗还是独立的
 
 这游戏只用108角色能打到哪
 
+
+*****
+
+####  mnmn  
+##### 60#       发表于 2026-8-18 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098760&amp;ptid=2287441" target="_blank">Meiien 发表于 2026-8-18 11:34</a>
+
+这游戏只用108角色能打到哪</blockquote>
+有目前主线全通的[https://www.bilibili.com/video/BV1RWg36QECw](https://www.bilibili.com/video/BV1RWg36QECw)
+

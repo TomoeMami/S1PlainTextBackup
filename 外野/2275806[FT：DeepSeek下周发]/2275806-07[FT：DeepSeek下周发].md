@@ -4757,3 +4757,40 @@ https://github.com/Tiger3807861189/J-Space-Cognition-Suite-V3.6/issues/18
 
 歪个楼求问，现在国内银行的visa 万事达卡可以买gpt会员吗，还是只能走苹果商店买外区充值卡的路子
 
+
+*****
+
+####  tonyunreal  
+##### 9311#       发表于 2026-8-18 11:44
+
+现在看来高峰期用mimo是比较现实的选择？
+
+试了一下感觉MiMo 2.5 High执行任务的水平介于Luna Default和Luna High之间
+
+*****
+
+####  小野賢章  
+##### 9312#       发表于 2026-8-18 11:44
+
+我感觉这些插件都很不稳定，表现起伏很大，而且多轮对话容易越来越差，适合一次对话写单页面应用这种玩具抽卡
+
+*****
+
+####  cscbzcbz  
+##### 9313#       发表于 2026-8-18 11:46
+
+在大幅涨价的当下，性能没那个重要了
+怀念那个随便蹬，有任何想法都可以去尝试的大肥鱼<img src="https://static.stage1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蛋黄酱Release  
+##### 9314#       发表于 2026-8-18 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098804&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-18 11:44</a>
+现在看来高峰期用mimo是比较现实的选择？
+
+试了一下感觉MiMo 2.5 High执行任务的水平介于Luna Default和Luna ...</blockquote>
+mimo现在菜的不如minimax m3，比qwen3.8 27b更是菜一大截<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
