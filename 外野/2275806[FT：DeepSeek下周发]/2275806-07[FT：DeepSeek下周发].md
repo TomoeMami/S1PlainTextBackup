@@ -6647,3 +6647,86 @@ AI是讨好型人格，就是个啊对对对的全肯定bot，你想干啥他都
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Azcarlo  
+##### 9481#       发表于 2026-8-18 22:56
+
+mimo v3 我看应该是保持不住原来的价格了，算力完全不够，甚至要和阿里抢卡
+<img src="https://p.sda1.dev/34/6ccde8b31fb662d1e362f4b1dab1af06/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/449da4cc2a3b3bd586540a49ea8a4588/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/75002efa141d5650fb320979596b9994/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/706212a4270f7d63738657233715c76e/image.jpg" referrerpolicy="no-referrer">
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  crow_wine  
+##### 9482#       发表于 2026-8-18 23:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70102787&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-8-18 22:29</a>
+超算客服直接说 429 暂时休不了
+要不等 要不退款。。。</blockquote>
+还能退款这么良心？
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  唠叨  
+##### 9483#       发表于 2026-8-18 23:05
+
+<img src="https://img.stage1st.com/forum/202608/18/230537ebnn5d85nd8lvkv4.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-08-18_230509_308.jpg</strong> (108.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 23:05 上传
+
+[https://ark.volcengine.com/regio ... ncedActiveKey=model](https://ark.volcengine.com/region:cn-beijing/openManagement?LLM=%7B%7D&amp;advancedActiveKey=model)
+
+火山的deepseek好像没涨价?
+
+*****
+
+####  空き地卯木  
+##### 9484#       发表于 2026-8-18 23:06
+
+<img src="https://img.stage1st.com/forum/202608/18/225643gm01o9gv6i6pgzki.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1787065002003_32.webp</strong> (155.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 22:56 上传
+
+<img src="https://img.stage1st.com/forum/202608/18/225643u4dipodv4v4icdsv.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1787065001734_31.webp</strong> (284.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 22:56 上传
+
+[https://www.scnet.cn/ac/openapi/ ... ans/token-plan.html](https://www.scnet.cn/ac/openapi/doc/2.0/moduleapi/plans/token-plan.html)
+
+拉了下表，超算中心这token plan最低档60000积分的价格确实美丽，还带了minimax、qwen这几个带多模态的模型，蹬不完也可以拿来给鲸鱼看图看视频用
+
+无论是pro还是flash，就算是调价前的50元/月都比现在的梁文谷便宜
+
+*****
+
+####  jonarryn  
+##### 9485#       发表于 2026-8-18 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70103007&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-8-18 23:06</a>
+
+https://www.scnet.cn/ac/openapi/doc/2.0/moduleapi/plans/token-plan.html
+
+拉了下表，超算中心这token  ...</blockquote>
+超算中心现在好像用不了v4flash
+
