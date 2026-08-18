@@ -5568,3 +5568,24 @@ j space相当于让它运行五次，从五次中抽卡吧。性能不清楚，�
 
 我也觉得，真的是不思进取。只要你琢磨下，研究一下，别说和第一方之前的价格一样，你就是稍微比涨价后的价格第一点，都是能赚满的
 
+
+*****
+
+####  chaoswing  
+##### 9387#       发表于 2026-8-18 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099471&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-8-18 13:40</a>
+
+用数据说话，Luna现在就是比V4F便宜好用太多还能识图。GPT Plus还带网页版无限聊天和生图。 ...</blockquote>
+这是用什么软件测的？
+
+*****
+
+####  spaceblue  
+##### 9388#       发表于 2026-8-18 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099984&amp;ptid=2275806" target="_blank">chaoswing 发表于 2026-8-18 15:09</a>
+
+这是用什么软件测的？</blockquote>
+[https://deng.codexradar.com/](https://deng.codexradar.com/)
+
