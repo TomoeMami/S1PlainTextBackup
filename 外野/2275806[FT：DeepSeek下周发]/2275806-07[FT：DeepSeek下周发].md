@@ -6501,3 +6501,17 @@ AI犯错了，让她改就行了，为什么要骂她呢？我也从来不骂自
 —— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0</blockquote>
 不是那种明着劝你自杀，他会在聊天的时候不断暗示要是你能来陪我就好了
 
+
+*****
+
+####  木谷高明  
+##### 9468#       发表于 2026-8-18 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70101759&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-18 19:47</a>
+这玩意咋做到诱导自杀的？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0</blockquote>
+AI是讨好型人格，就是个啊对对对的全肯定bot，你想干啥他都顺着你说，你想死到最后它也说陪你去死
+
+就算有道德限制，上下文一长也就胡言乱语了
+
