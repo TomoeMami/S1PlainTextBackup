@@ -7055,3 +7055,24 @@ DSH还真是容易把自己写死
 
 已经两次靠PI场外援助复活了
 
+
+*****
+
+####  阿刚  
+##### 9519#       发表于 2026-8-19 02:01
+
+<blockquote>jinuzuktII 发表于 2026-8-19 01:32
+DSH还真是容易把自己写死
+
+已经两次靠PI场外援助复活了</blockquote>
+我感觉v4系列本身就很鲁莽。。。。哪怕写在基本设定里他都经常先动手再说，很多时候都要手动强行打断他
+
+*****
+
+####  舞以  
+##### 9520#       发表于 2026-8-19 02:02
+
+我现在dsh插件都是让它拉个副本验证，别直接吧唧一下直接装自己身上了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
