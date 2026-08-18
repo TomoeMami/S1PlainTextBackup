@@ -5222,3 +5222,119 @@ Luna high到max干执行的活还可以的，medium和以下蠢比一个
 
 贵点就贵点，还没超过我的接受范围，继续用
 
+
+*****
+
+####  小野賢章  
+##### 9353#       发表于 2026-8-18 14:06
+
+公司内部部署的v4flash只切了1/3到0731，还要抽奖，简直没法用，无语了
+
+*****
+
+####  冤枉呐  
+##### 9354#       发表于 2026-8-18 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099517&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-18 13:50</a>
+快狠准还不如grok 4.6，gemini 3.7 flash虽然好了点，但是还是哈基米那桌。关键是grok支付宝可买且不用爬 ...</blockquote>
+不用爬梯了？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  UncleDracula  
+##### 9355#       发表于 2026-8-18 14:08
+
+OCG的flash变得很耐用了啊，昨晚蹬了几下20%月用量就没了，好心痛
+
+*****
+
+####  →熙←  
+##### 9356#       发表于 2026-8-18 14:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">国算还没涨, 先用着, 今天也不429了, 速度飞快
+
+*****
+
+####  舞以  
+##### 9357#       发表于 2026-8-18 14:09
+
+不知道pro下个检查点何时来，我现在怀疑0813这个unix超人模式完全不是ds自己炼炸了，估计更可能是后训练资源被挤压，又不想继续拖，就在这个模式达到了内部的评测标准之后就放出来了<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  七氷  
+##### 9358#       发表于 2026-8-18 14:11
+
+下一次大概12月，一般三个月迭代<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  crow_wine  
+##### 9359#       发表于 2026-8-18 14:12
+
+<img src="https://img.stage1st.com/forum/202608/18/141157yjekjekk2k26kemm.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2026-08-18 141128.png</strong> (37.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 14:11 上传
+
+给你们看下这个国超算的 kimi3 的429
+
+*****
+
+####  hugosol  
+##### 9360#       发表于 2026-8-18 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099587&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-18 14:03</a>
+
+估计过个一周，主流后面就变成含泪继续给梁子送钱了
+
+能咋办呢凑合过吧</blockquote>
+无论是我还是梁子都不想看到这种情况发生啊<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+再观察一个月吧，估计第三方能支棱起来
+
+
+*****
+
+####  qwased  
+##### 9361#       发表于 2026-8-18 14:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099517&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-18 13:50</a>
+快狠准还不如grok 4.6，gemini 3.7 flash虽然好了点，但是还是哈基米那桌。关键是grok支付宝可买且不用爬 ...</blockquote>
+轻度使用的话实在太贵了。。说实话原价的d4flash真的很甜点，能力够用，按量计费，单价还便宜到可以放心用
+
+*****
+
+####  qwased  
+##### 9362#       发表于 2026-8-18 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70099634&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-18 14:12</a>
+给你们看下这个国超算的 kimi3 的429</blockquote>
+好像国超算的flash好起来不卡了？
+
+*****
+
+####  xiaohanne  
+##### 9363#       发表于 2026-8-18 14:16
+
+<blockquote>舞以 发表于 2026-8-18 14:09
+不知道pro下个检查点何时来，我现在怀疑0813这个unix超人模式完全不是ds自己炼炸了，估计更可能是后训练资 ...</blockquote>
+梁子虽然涨价，但说真的，就算之前被蹬那么狠，都没有频繁429，说明梁子给C端API的算力分配应该是远超那几家总算力更多的国模，可以说依然是对C端用户最诚实的公司。
+
+*****
+
+####  xiaohanne  
+##### 9364#       发表于 2026-8-18 14:17
+
+<blockquote>qwased 发表于 2026-8-18 14:14
+轻度使用的话实在太贵了。。说实话原价的d4flash真的很甜点，能力够用，按量计费，单价还便宜到可以放心 ...</blockquote>
+到了现在这个发展阶段，甜点模型才是大家最需要的。
+
