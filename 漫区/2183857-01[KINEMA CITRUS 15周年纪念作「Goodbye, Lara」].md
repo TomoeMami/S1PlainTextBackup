@@ -951,3 +951,17 @@ ps：我觉得小出已经很温和了<img src="https://static.stage1st.com/imag
 但是，按照那条鱼的说法， ...</blockquote>
 大概率是姑姑瞎掰的，不然人鱼一族不会有和人类接触的禁忌条例
 
+
+*****
+
+####  蒜人  
+##### 380#       发表于 2026-8-18 19:45
+
+very good ep but i felt like the pacing was too fast again
+
+Lara running out of time -&gt; Lisa gives Mari that temporary medicine -&gt; Mari tells Lara to go back to Lisa (they argue then Lara goes back to Lisa) -&gt; Luca keeps asking where Lara is (hes annoying asf) -&gt; Lara then starts having a change of heart and ultimately goes back to Mari
+
+Mari vs Homare boxing match is probs the best part of the ep, its really good
+
+when Mari sees her she starts crying during the match and saying "Why are u back?"这番有野生情报哥啊<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

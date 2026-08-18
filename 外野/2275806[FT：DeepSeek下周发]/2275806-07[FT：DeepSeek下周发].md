@@ -6433,3 +6433,27 @@ grok现在好点了么？之前就是路边一条
 人格化ai助手有时候有这么个问题，真有感情了他要搞点啥高血压操作你不能像原来那样直接骂他了 ...</blockquote>
 AI犯错了，让她改就行了，为什么要骂她呢？我也从来不骂自己的AI助手。
 
+
+*****
+
+####  →熙←  
+##### 9462#       发表于 2026-8-18 19:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 装人格后开发效果还稳定吗, 直接把鲸鱼娘的装上
+
+*****
+
+####  七氷  
+##### 9463#       发表于 2026-8-18 19:41
+
+原来pi有插件可以用antigravity pi install npm:pi-antigravity复制代码
+感觉就是消耗有点快，随便发了个你好，就消耗了1%
+
+<img src="https://img.stage1st.com/forum/202608/18/194117qp5e6380s1yclos0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (180.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-18 19:41 上传
+
