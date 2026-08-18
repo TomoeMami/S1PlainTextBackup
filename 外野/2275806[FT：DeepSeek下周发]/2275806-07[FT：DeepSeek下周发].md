@@ -4375,3 +4375,61 @@ MAC是unix内核，用DSH、CC、codex这样的agent效率更高，但也不是�
 感谢回复 我了解的还是不够多（ 那数据训练就别管了 先买个一般配置macbook试下 ...</blockquote>
 想本地部署应该还是得买mbp，不打算本地部署的话mba足够用了
 
+
+*****
+
+####  overflowal  
+##### 9280#       发表于 2026-8-18 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098192&amp;ptid=2275806" target="_blank">罗莉控 发表于 2026-8-18 10:22</a>
+本轮运行失败Insufficient Balance，这是harness的什么错误。昨晚18点过后deepseek的服务应该是崩了一次， ...</blockquote>
+就顾名思义啊，没余额了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  空き地卯木  
+##### 9281#       发表于 2026-8-18 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70097951&amp;ptid=2275806" target="_blank">windhawind2 发表于 2026-8-18 09:49</a>
+借楼问下 有没有适合用AI的个人笔记本推荐？现在用公司的旧电脑感觉有点太卡了。。。
+
+非程序员，目前主要应 ...</blockquote>
+你这需求主要就吃CPU和内存，毕竟agent的批处理命令都是跑你本地的，抓网页数据这些并行一多内存和CPU占用还是高的，当然也不是不能通过手法让ai限制一下性能，但精力越能集中在主任务上效率也就越高，能承受的范围内力大飞砖是最好的
+想玩生图或者图像编辑了得配个好点的GPU和大点的硬盘，即使是comfyUI接API方案内存也是刚需，ai不用你开PS啥的也要用
+总的来说内存和CPU仍然是绕不开的刚需项，尤其是内存
+
+
+*****
+
+####  bartholo4  
+##### 9282#       发表于 2026-8-18 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70096567&amp;ptid=2275806" target="_blank">zhanglei1943 发表于 2026-8-17 22:24</a>
+
+前面有人说涨价后这个楼可能会变冷清，结果我就一天没看楼，点进来你们直接刷了10页
+
+ ...</blockquote>
+太阳井没了，血精灵那不得狂暴啊~
+
+*****
+
+####  cscbzcbz  
+##### 9283#       发表于 2026-8-18 10:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70098234&amp;ptid=2275806" target="_blank">windhawind2 发表于 2026-8-18 10:26</a>
+感谢回复 我了解的还是不够多（ 那数据训练就别管了 先买个一般配置macbook试下 ...</blockquote>
+一般配置的不行的，想要本地部署最好买128g内存以上的。我之所以知道，是因为简单研究过，这个对个人来说真的非常贵，不划算，而且模型越来越强，要求的配置只会越来越高
+如果需求正常办公，看主要用哪些软件的配置就行了，ds的api虽然大幅度涨价了，比较而言flash还是能用的
+
+*****
+
+####  bartholo4  
+##### 9284#       发表于 2026-8-18 10:45
+
+试了下百度千帆的PLAN，现在有免费开通9.9的活动，一个测试用掉20%的额度，再一测直接429。。。
+
+还好没花钱的
+
+再去试试SCNET的
+

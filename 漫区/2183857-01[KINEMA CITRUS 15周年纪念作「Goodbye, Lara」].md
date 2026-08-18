@@ -753,3 +753,16 @@ ps：我觉得小出已经很温和了<img src="https://static.stage1st.com/imag
 
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">不是，硫夏约会的时候完全只顾着自己，还经常平地摔，根本看不出你们是怎么恋爱的啊……好在鱼刀的设计是有大活的，继续期待
 
+
+*****
+
+####  Lawliet.L  
+##### 362#       发表于 2026-8-18 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70096869&amp;ptid=2183857" target="_blank">思信菌 发表于 2026-8-17 23:33</a>
+
+没关系吧
+
+碰巧这个琵琶湖在这儿而已</blockquote>
+就当是呼应原作找错人的猜想吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
