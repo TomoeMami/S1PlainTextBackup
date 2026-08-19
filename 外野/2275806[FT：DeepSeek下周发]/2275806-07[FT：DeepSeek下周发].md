@@ -7835,3 +7835,43 @@ gpt的模型风格就是会想得很细很全面<img src="https://static.stage1s
 
 用久了会发现其实也就那样，如果你习惯人工多次介入来迭代修改的话5.6sol反而会显得有点慢。
 
+
+*****
+
+####  舞以  
+##### 9587#       发表于 2026-8-19 12:10
+
+<img src="https://img.stage1st.com/forum/202608/19/121047gswtowgi68it0q8i.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (131.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 12:10 上传
+
+打开1m上下文试试<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LeoDT  
+##### 9588#       发表于 2026-8-19 12:12
+
+ 本帖最后由 LeoDT 于 2026-8-19 12:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105717&amp;ptid=2275806" target="_blank">R.I.P 发表于 2026-8-19 11:58</a>
+
+看起来还没品尝到sol的sha256地狱
+
+—— 来自 S1Fun</blockquote>
+这个规划阶段被我发现了一次阻止了，它是真喜欢过度设计和过度验证。而且感觉训进去过多best practice，但是该不该用他并没有标准。
+
+编辑：其实是真想要个可以随便用的Flash，前半个月用Flash用的太舒服了。
+
+*****
+
+####  真红之闪电  
+##### 9589#       发表于 2026-8-19 12:13
+
+其实 GPT 才是很好的执行模型…做规划很容易被细节抓住往前跑…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
