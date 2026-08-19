@@ -10734,3 +10734,15 @@ hy3 比上不足，比下似乎比 Mimo V2.5 的分数强一点，刚刚试了�
 2. 命中不了ds的脏token，能命中claude的 ...</blockquote>
 我再帮你补充一个，能回答生物安全问题是自动转到ds    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  AzuEdit  
+##### 9865#       发表于 2026-8-20 00:58
+
+dsh rc8更了
+
+更新日志里面有段其他变更
+改善 SQLite 后端的读写与分叉性能并降低存储体积，数据结构不兼容
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
