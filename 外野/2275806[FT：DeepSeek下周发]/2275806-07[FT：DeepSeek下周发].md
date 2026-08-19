@@ -7974,3 +7974,61 @@ Claude和GPT整天发新闻说自己解决了XX数学问题还有有用的。在
 
 但是a\风控我，我也懒得上赶着送钱了
 
+
+*****
+
+####  真红之闪电  
+##### 9599#       发表于 2026-8-19 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106110&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-19 12:53</a>
+据说Claude系列比较适合？
+
+但是a\风控我，我也懒得上赶着送钱了</blockquote>
+4.6 的时候还行，现在 Opus5 和 sol5.6 半斤八两，而且中文巨烂。fabale5 倒是明显好一头，但是用不起也只有 API。所以现在有个 5.6 就够了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  xiaohanne  
+##### 9600#       发表于 2026-8-19 13:02
+
+<blockquote>hugosol 发表于 2026-8-19 11:51
+但老实说感觉不是一个参数的问题
+
+我问个简单的事实，可以通过前面上下文总结出来的，它非要给我雷霆大思 ...</blockquote>
+因为5.6本质上也是一个后训练提分的模型。
+
+凡是靠后训练提分的，个个都是雷霆大思考。
+
+
+*****
+
+####  neptunehs  
+##### 9601#       发表于 2026-8-19 13:03
+
+ 本帖最后由 neptunehs 于 2026-8-19 13:06 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106008&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-19 12:36</a>
+qwen 3.8 27b=思考更长能力差不多的v4flash
+
+我去看了一圈感觉买两个2080ti 22g回来搭27b确实非常划算 ...</blockquote>
+确实 虽然慢一点 但我感觉跟用ds的时候还挺像的
+不过搞的是opencode+翻译勘误工作 还没让写代码
+
+不过哪怕是24g的7900xtx也只能跑iq3_xxs+q4量化kv
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  qwased  
+##### 9602#       发表于 2026-8-19 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106156&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-19 13:03</a>
+
+确实 虽然慢一点 但我感觉跟用ds的时候还挺像的
+
+不过搞的是opencode+翻译勘误工作 还没让写代码</blockquote>
+尽量别开mtp，我感觉内置这个mtp非常累赘，要吃2G+显存不说，上下文到5w开始速度就跳水到二十几tks了
+
