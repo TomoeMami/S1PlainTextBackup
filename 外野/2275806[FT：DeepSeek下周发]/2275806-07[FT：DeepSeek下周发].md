@@ -9789,3 +9789,38 @@ qwen3.8 27b的aa跑分52<img src="https://static.stage1st.com/image/smiley/face2
 
 刚刚在峰价跑了下测试，真的肉痛啊，随随便便十几块没了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tillnight  
+##### 9780#       发表于 2026-8-19 18:14
+
+<blockquote>misuzu0723 发表于 2026-8-19 18:06
+如果真的是藏的新模型的话，脏 token 很难解释，deepseek 自己的脏 token 失效可以解释，Claude 的脏 token ...</blockquote>
+你先拿出你脏token的证据吧，最先在up下发的那个人已经自删了。
+
+*****
+
+####  UncleDracula  
+##### 9781#       发表于 2026-8-19 18:16
+
+这效果绝壁是带多模态的。说路由的也扯淡，现在就没有一家模型能做到这种水平<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  misuzu0723  
+##### 9782#       发表于 2026-8-19 18:22
+
+<img src="https://img.stage1st.com/forum/202608/19/182152cx2646c04ycxxh04.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1787134911648_1.webp</strong> (193.65 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 18:21 上传
+
+转的别人的，我自己没灰度到
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
