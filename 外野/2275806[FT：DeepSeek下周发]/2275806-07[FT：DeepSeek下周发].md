@@ -7497,3 +7497,38 @@ gpt模型是支持1.05M的，但是默认限制272k是帮你省钱，因为超�
 gpt上下文只有272k是正常的吗，而且用的超级快啊。习惯了DS的100M上下文，用DS的时候都是手动压缩的，这GPT ...</blockquote>
 codex里面默认是272k，可以手动调到1m，但实测gpt的自动压缩还挺黑科技的
 
+
+*****
+
+####  站立风景  
+##### 9559#       发表于 2026-8-19 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105108&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-19 10:43</a>
+
+这两天用了下gpt-5.6-sol，确实很强，逻辑比DS的模型要清晰很多
+
+问题是太慢了（不知道是不是因为我开的只是 ...</blockquote>
+跟套餐关系不大，就是sol想的慢。我用的pro也是慢慢悠悠的。
+
+*****
+
+####  千千千千鸟  
+##### 9560#       发表于 2026-8-19 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105134&amp;ptid=2275806" target="_blank">拯救节操希灵宅 发表于 2026-8-19 10:46</a>
+
+codex里面默认是272k，可以手动调到1m，但实测gpt的自动压缩还挺黑科技的</blockquote>
+那看来要下载CODEX了，我用的是pi<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  很久就在那边l  
+##### 9561#       发表于 2026-8-19 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105108&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-19 10:43</a>
+这两天用了下gpt-5.6-sol，确实很强，逻辑比DS的模型要清晰很多
+
+问题是太慢了（不知道是不是因为我开的只是 ...</blockquote>
+ultra慢，只用xhigh和max档没多慢吧，看起来慢只是不像国产模型一样一直吐思考过程
+
