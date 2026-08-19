@@ -8388,3 +8388,49 @@ I'm不知道是不是也有类似的魔法词
 
 梁文谷时间再测吧，现在受不了
 
+
+*****
+
+####  蛋黄酱Release  
+##### 9639#       发表于 2026-8-19 15:28
+
+dsh有个问题是给它一个指令它就开始思考-干活-思考-干活直到全部完成才给我个报告，甚至我中断了问题干到哪了它都不回复我而是接着干。别的agent都会干一会输出一个简短的报告回复<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  自由之紫roy  
+##### 9640#       发表于 2026-8-19 15:35
+
+qwen 3.8 27b到底要什么显卡才能跑的稍微好一点？
+
+48G 4090?上下文能用满256k吗
+
+心里太痒了，真的想买一台本地部署
+
+
+*****
+
+####  neptunehs  
+##### 9641#       发表于 2026-8-19 15:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107092&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-19 15:35</a>
+qwen 3.8 27b到底要什么显卡才能跑的稍微好一点？
+
+48G 4090?上下文能用满256k吗
+
+心里太痒了，真的想买一台 ...</blockquote>
+你接受高量化的话 我7900xtx就能跑满iq3_xxs+q4kvcache
+现在的唯一问题是opencode不知道干嘛检测不到context上限 不会自动压缩
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  stackoverflow  
+##### 9642#       发表于 2026-8-19 15:37
+
+dsh 400报错有遇到的坛友吗，中午睡了个午觉就用不了了<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+本轮运行失败400: {"param":"tools","type":"invalid_request_error","message":"Error from provider (Console Go): Upstream request failed: [unsupported_tool_schema] The tool schema is not supported (tool_count_limit)."}
+
