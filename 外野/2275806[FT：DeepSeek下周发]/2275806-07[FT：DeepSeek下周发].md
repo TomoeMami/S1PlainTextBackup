@@ -9701,3 +9701,91 @@ https://tieba.baidu.com/p/10956163161?share=9105&amp;fr=sharewise
 
 我们的模型太危险了，我们在它的思考中发现了某种可怕的东西正在苏醒，呼吁全球暂停AI研究
 
+
+*****
+
+####  真田源次郎信繁  
+##### 9771#       发表于 2026-8-19 18:04
+
+梁子的v4 pro这个水平，反正我是不信还能有时间练更大更好的，否则何必把这个拿出来呢
+
+路由论虽然听起来挺离谱，但v4pro这个水平也很离谱啊
+
+*****
+
+####  misuzu0723  
+##### 9772#       发表于 2026-8-19 18:06
+
+如果真的是藏的新模型的话，脏 token 很难解释，deepseek 自己的脏 token 失效可以解释，Claude 的脏 token 生效就很奇怪了
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  chuchoselph  
+##### 9773#       发表于 2026-8-19 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108300&amp;ptid=2275806" target="_blank">真田源次郎信繁 发表于 2026-8-19 18:04</a>
+
+梁子的v4 pro这个水平，反正我是不信还能有时间练更大更好的，否则何必把这个拿出来呢
+
+路由论虽然听起来挺 ...</blockquote>
+路由论站不住脚的原因是这个水平难道你真路由到了mythos2不成？
+
+*****
+
+####  xiaohanne  
+##### 9774#       发表于 2026-8-19 18:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108300&amp;ptid=2275806" target="_blank">真田源次郎信繁 发表于 2026-8-19 18:04</a>
+
+梁子的v4 pro这个水平，反正我是不信还能有时间练更大更好的，否则何必把这个拿出来呢
+
+路由论虽然听起来挺 ...</blockquote>
+按照之前的说法，每个大模厂商都有一个参数远大于最后实际提供服务的教师模型。
+
+*****
+
+####  lactone  
+##### 9775#       发表于 2026-8-19 18:09
+
+qwen3.8 27b的aa跑分52<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  蛋黄酱Release  
+##### 9776#       发表于 2026-8-19 18:09
+
+我用不上的就都是假的，什么一句话生成都是提前做好了东西然后假装端出来的<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">要不就是路由到了外星人的1Z**大模型
+
+
+*****
+
+####  zhanglei1943  
+##### 9777#       发表于 2026-8-19 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108300&amp;ptid=2275806" target="_blank">真田源次郎信繁 发表于 2026-8-19 18:04</a>
+
+梁子的v4 pro这个水平，反正我是不信还能有时间练更大更好的，否则何必把这个拿出来呢
+
+路由论虽然听起来挺 ...</blockquote>
+按涨价前的价格和模型的正常水平(专武+正确调用)来算的话，如果说flash是95分，pro就是90分。如果没有之前灰测拔高期待的话也是不错的模型换代。目前看来1.6t上限差不多就这样了。
+
+*****
+
+####  舞以  
+##### 9778#       发表于 2026-8-19 18:12
+
+我已经不期待什么灰测模型了，这个50toks速度明显比现在的pro还贵一个档次。
+
+我只希望梁叔叔快点把pro修好，别折磨社区了
+
+*****
+
+####  舞以  
+##### 9779#       发表于 2026-8-19 18:14
+
+刚刚在峰价跑了下测试，真的肉痛啊，随随便便十几块没了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
