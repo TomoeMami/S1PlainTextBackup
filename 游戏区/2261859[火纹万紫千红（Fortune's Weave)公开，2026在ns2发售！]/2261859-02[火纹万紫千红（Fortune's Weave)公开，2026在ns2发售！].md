@@ -14551,3 +14551,11 @@ Honestly, I'm glossing over some of the stuff you can do, because there’s a lo
 
 可以SL啊，你开会员把云存档设为手动就可以了，节奏天国不也一个存档位，彩P要连续3次完美评价，很多人也是靠云存档SL的
 
+
+*****
+
+####  创始’’’天翔  
+##### 2853#       发表于 2026-8-19 15:51
+
+存档应该只是demo限制吧，真全程只有一个的话实在太复古了点
+

@@ -8475,3 +8475,35 @@ tool_count_limit
 
 400报错问题是会中断,直接让ds自己写一个插件,自动重试就行了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zy450  
+##### 9647#       发表于 2026-8-19 15:49
+
+好像不用抽奖，稳定I'm
+
+*****
+
+####  neptunehs  
+##### 9648#       发表于 2026-8-19 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107115&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-19 15:38</a>
+我不接收高量化，48G 4090能达到在线v4flash的水平吗？</blockquote>
+q8是29g 官方fp8好像更小
+真有48g显存给kvcache也开q8的话估计绰绰有余吧？
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 9649#       发表于 2026-8-19 15:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107115&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-19 15:38</a>
+我不接收高量化，48G 4090能达到在线v4flash的水平吗？</blockquote>
+48g显存除了上下文小之外，基本没问题吧
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
