@@ -10852,3 +10852,17 @@ dsh rc8更了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+
+*****
+
+####  wjxforever  
+##### 9876#       发表于 2026-8-20 04:32
+
+<blockquote>骨于野 发表于 2026-8-20 00:29
+所谓灰测就是路由fable啊
+
+1. 思维链不是ds的流式，而是一段一段出
+
+2. 命中不了ds的脏token，能命中claude的 ...</blockquote>
+那你倒是说说路由fable的理由是什么，天才
+
