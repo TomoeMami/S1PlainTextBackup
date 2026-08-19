@@ -5089,3 +5089,15 @@ _(:з」∠)_
 贝露丹蒂的问题是胸画得太难看了 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还以为你说封面呢  这不是完全大退化（
 
+
+*****
+
+####  Jamaisvu  
+##### 21509#       发表于 2026-8-19 19:59
+
+<blockquote>alucardcz 发表于 2026-8-19 19:54
+我还以为你说封面呢  这不是完全大退化（</blockquote>
+其实封面跟狗神煌的原设相比也有点落差...
+
+不过事已至此，只能期待剩下满破卡面能好看些吧...
+
