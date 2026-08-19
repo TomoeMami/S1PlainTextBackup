@@ -4928,3 +4928,14 @@ _(:з」∠)_
 
 2026-8-19 17:05 上传
 
+
+*****
+
+####  exiaexa  
+##### 21496#       发表于 2026-8-19 17:24
+
+骑呆这个强化有点东西的
+
+3CD的30充+30Q+30宝威，抠着脚就能双开3，甚至可以三开
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

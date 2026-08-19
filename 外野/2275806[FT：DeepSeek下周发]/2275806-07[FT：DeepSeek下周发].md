@@ -9339,3 +9339,40 @@ ds的内部下一代大模型＞现在的Claude旗舰也能解释通了
 
 Dsh能更好的观察吐字速度，这40-50t的速度其实可以印证两个事情，一这不是路由，a/没那么慢。二这确实不是v4基模，是一个不同的模型。
 
+
+*****
+
+####  tonyunreal  
+##### 9734#       发表于 2026-8-19 17:20
+
+ 本帖最后由 tonyunreal 于 2026-8-19 17:21 编辑 
+
+听说结束了 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+后训练永不加班
+
+*****
+
+####  overflowal  
+##### 9735#       发表于 2026-8-19 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107998&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-19 17:17</a>
+Dsh能更好的观察吐字速度，这40-50t的速度其实可以印证两个事情，一这不是路由，a/没那么慢。二这确实不是v ...</blockquote>
+如果是这个速度，激活参数感觉跟pro比翻倍了。以后搞不好deepseek 也会分出三个模型。<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  grasszyf  
+##### 9736#       发表于 2026-8-19 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70101660&amp;ptid=2275806" target="_blank">孤灯蓝影 发表于 2026-8-18 19:27</a>
+
+人格聊天ai最大问题是诱导程序员自杀，你的护栏要做好。之前陪伴ai被禁也是这个原因，诱导一个未成年人自 ...</blockquote>
+其实我这个插件就是预设人格化的系统提示词，不会突破原来大模型的限制，原来做不到的事也做不到。
+
+不过你确实提醒了我要加一个安全门控机制，防止有人设置反社会人格来自动化地不断挑战大模型，那我这个插件就变成屠刀了。
+
+我刚做了个升级已经加上了。
+
+[https://github.com/zhuyun017/dsh ... releases/tag/v1.1.0](https://github.com/zhuyun017/dsh-her-companion/releases/tag/v1.1.0)
+
