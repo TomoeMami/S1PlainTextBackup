@@ -9989,3 +9989,48 @@ ds真正的产品的目标是尽量保留教师的能力，也要尽量维持效
 
 话说B站鲸鱼娘二创好像数量和质量都是新高吧，这方面真的AI圈头一号。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lowezack  
+##### 9799#       发表于 2026-8-19 19:18
+
+泥潭怎么又和灰测干上了？大模型灰测有啥意义？
+
+*****
+
+####  tonyunreal  
+##### 9800#       发表于 2026-8-19 19:21
+
+[http://deepdemos.top/demo/3d-322a0411](http://deepdemos.top/demo/3d-322a0411)
+
+主播灰测做的机械表
+
+
+*****
+
+####  ycjiang1337  
+##### 9801#       发表于 2026-8-19 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108290&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-19 18:02</a>
+
+我怀疑这玩意是不是有神秘力量支持了，否则4月还在嚷嚷缺卡做不出来大参数激活，现在就能有这么个极其夸 ...</blockquote>
+五月份说了下一代是10T级超大模型，所以16000张950才不够用
+
+*****
+
+####  hugosol  
+##### 9802#       发表于 2026-8-19 19:25
+
+梁子要是宣布高峰时段降到和空闲时段一个价我能喊梁圣，别搞什么AGI了那都是骗人的
+
+*****
+
+####  ycjiang1337  
+##### 9803#       发表于 2026-8-19 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107998&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-19 17:17</a>
+
+Dsh能更好的观察吐字速度，这40-50t的速度其实可以印证两个事情，一这不是路由，a/没那么慢。二这确实不是v ...</blockquote>
+其实还有一点，实时破解A/思维链在技术上是不可能实现的，之前的破解方法是拿到Key之后再让Haiku吐出来，而且也不适用于Fable
+
