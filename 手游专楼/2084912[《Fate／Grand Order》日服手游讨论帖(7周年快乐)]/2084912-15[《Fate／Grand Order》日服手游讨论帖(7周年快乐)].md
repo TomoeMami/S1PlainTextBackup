@@ -4972,3 +4972,22 @@ _(:з」∠)_
 
 可惜了，一个都没有<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 21500#       发表于 2026-8-19 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108184&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-19 17:45</a>
+
+但都是1回 有啥用</blockquote>
+起码骑打柱子有了比较新的选手，想想拉二能上班到现在就离谱
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 21501#       发表于 2026-8-19 18:06
+
+二宝水骑呆10绊看来可以喂种火了
+

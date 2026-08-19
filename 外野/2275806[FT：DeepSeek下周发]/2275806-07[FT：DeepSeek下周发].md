@@ -9593,3 +9593,111 @@ https://tieba.baidu.com/p/10956163161?share=9105&amp;fr=sharewise
 
 今年内能看到吗，急
 
+
+*****
+
+####  qwased  
+##### 9759#       发表于 2026-8-19 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108237&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-19 17:54</a>
+
+今年内能看到吗，急</blockquote>
+结合智普牢唐说“超越fable不用等到27年”来看的话，今年年底国模还有一波爆发<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小野賢章  
+##### 9760#       发表于 2026-8-19 17:57
+
+搞反方向的时候大部分还是正的，就是无法准确判断防线，所以有一部分方向错了吧
+
+
+*****
+
+####  nianiania  
+##### 9761#       发表于 2026-8-19 17:58
+
+梁圣救救我吧，codex 现在又蠢又慢<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Promeus  
+##### 9762#       发表于 2026-8-19 17:59
+
+<img src="https://img.stage1st.com/forum/202608/19/175835u97cd11l7oooc5bn.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2449.jpeg</strong> (145.21 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-19 17:58 上传
+
+目前来看最夸张的是这个，把黑洞喷流和多普勒都画出来了
+
+*****
+
+####  zhanglei1943  
+##### 9763#       发表于 2026-8-19 17:59
+
+差不多可以推理出。I'm模型存在，参数量和激活参数量都巨大。所以服务器压力也大到没法在现阶段公开，只有涨价后资源略有余量才能稍微灰测一下这样。
+
+
+*****
+
+####  2017.05.04  
+##### 9764#       发表于 2026-8-19 18:01
+
+还敢耽误AGI训练吗
+
+*****
+
+####  舞以  
+##### 9765#       发表于 2026-8-19 18:02
+
+还敢耽误AGI训练吗
+
+*****
+
+####  Promeus  
+##### 9766#       发表于 2026-8-19 18:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108274&amp;ptid=2275806" target="_blank">zhanglei1943 发表于 2026-8-19 17:59</a>
+差不多可以推理出。I'm模型存在，参数量和激活参数量都巨大。所以服务器压力也大到没法在现阶段公开，只有 ...</blockquote>
+我怀疑这玩意是不是有神秘力量支持了，否则4月还在嚷嚷缺卡做不出来大参数激活，现在就能有这么个极其夸张的模型？<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">但是就算神秘力量现在也有上限，所以无法提供出来甚至不能让太多人占算力
+
+*****
+
+####  jk9hot  
+##### 9767#       发表于 2026-8-19 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108270&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-19 17:59</a>
+目前来看最夸张的是这个，把黑洞喷流和多普勒都画出来了</blockquote>
+这个有点夸张了
+
+*****
+
+####  →熙←  
+##### 9768#       发表于 2026-8-19 18:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">我怎么就错过了呢, 先准备几个困难问题,等下次会测直接上
+
+*****
+
+####  chuchoselph  
+##### 9769#       发表于 2026-8-19 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108270&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-19 17:59</a>
+
+目前来看最夸张的是这个，把黑洞喷流和多普勒都画出来了</blockquote>
+发个地址吧，看上去太离谱了
+
+*****
+
+####  vincevincetang  
+##### 9770#       发表于 2026-8-19 18:03
+
+我们的模型太危险了，我们在它的思考中发现了某种可怕的东西正在苏醒，呼吁全球暂停AI研究
+
