@@ -8082,3 +8082,52 @@ gpt使用中很容易被卡生物安全风险，做生物的要注意下，特�
 
 OpenSquilla 首次调用奖励        ¥58.00        ¥58.00        2026-08-19 13:32:38        2026-09-19 13:32:38
 
+
+*****
+
+####  厍无春  
+##### 9607#       发表于 2026-8-19 14:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70104199&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-19 09:03</a>
+注册送的额度必须一个月用完</blockquote>
+对的
+
+*****
+
+####  唠叨  
+##### 9608#       发表于 2026-8-19 14:30
+
+我感觉基元很卡啊，比国算还卡
+
+
+*****
+
+####  crow_wine  
+##### 9609#       发表于 2026-8-19 14:32
+
+国算明明上了 glm5.3 和 0813, 但是token plan 不给用，尼玛蹬完下个月不充了
+
+*****
+
+####  德尔惠净水器  
+##### 9610#       发表于 2026-8-19 14:34
+
+国算token plan的credits怎么计算的
+
+*****
+
+####  C0s4qmLH9eF9P3w  
+##### 9611#       发表于 2026-8-19 14:37
+
+opencode go上架Muse Spark 1.2斩杀线了
+
+*****
+
+####  →熙←  
+##### 9612#       发表于 2026-8-19 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106694&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-8-19 14:34</a>
+
+国算token plan的credits怎么计算的</blockquote>
+[https://www.scnet.cn/ac/openapi/ ... ans/token-plan.html](https://www.scnet.cn/ac/openapi/doc/2.0/moduleapi/plans/token-plan.html)  就是一个代币, 这里是价格, 每个模型的消耗
+

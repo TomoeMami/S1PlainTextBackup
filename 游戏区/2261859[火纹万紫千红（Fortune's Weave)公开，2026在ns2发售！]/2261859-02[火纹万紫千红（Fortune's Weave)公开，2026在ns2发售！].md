@@ -14482,3 +14482,27 @@ wccftech的原文
 
 Honestly, I'm glossing over some of the stuff you can do, because there’s a lot. Perhaps a bit too much sometimes. Unlike Three Houses, which mostly kept the extracurriculars on a tight weekly schedule, Fortune's Weave gives you a ton of in-game days to spend on different actions in between major battles. Between all the side stuff and this game’s sometimes lengthy cutscenes, there were times when I spent 90 minutes or more without seeing a traditional Fire Emblem tactical battle. Messing around can be fun, but if you're spending more time on the side stuff than on what's supposed to be the core of the game, is it really still side stuff?
 
+
+*****
+
+####  墨染白泉  
+##### 2845#       发表于 2026-8-19 14:30
+
+<blockquote>u2deack 发表于 2026-8-19 13:55
+战斗间隔90分钟是不是有点过于离谱了，我是在玩xb3么</blockquote>
+说的是主线战斗间隔，主线间隔回合数都写着的。平时也有遭遇战和迷宫这些支线战斗
+
+*****
+
+####  bsdlxy  
+##### 2846#       发表于 2026-8-19 14:32
+
+风花雪月学院期的主线，第一次玩确实感觉不错的
+
+*****
+
+####  墨染白泉  
+##### 2847#       发表于 2026-8-19 14:34
+
+5年后战斗密度也是肉眼可见的更密集，虽然媒体还没玩到
+
