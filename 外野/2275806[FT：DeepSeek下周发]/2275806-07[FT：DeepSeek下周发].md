@@ -9888,3 +9888,53 @@ qwen 3.8 27b=思考更长能力差不多的v4flash
 路由论虽然听起来挺 ...</blockquote>
 我用claude接deepseek写UE的c++,实际用下来，pro写代码的水平是远超flash的，同样的活，pro几行解决的事，flash写了一大堆还是搞不定，指挥他改，越改越长，但问题还是没解决。
 
+
+*****
+
+####  厍无春  
+##### 9789#       发表于 2026-8-19 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108365&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-8-19 18:16</a>
+这效果绝壁是带多模态的。说路由的也扯淡，现在就没有一家模型能做到这种水平 ...</blockquote>
+没有，我做了个彭罗斯楼梯，思维链明确写了没有视觉想要调用dsh里我安的视觉插件，但是不知道为啥调用失败了，可能是dsh插件更新炸了
+
+*****
+
+####  qwased  
+##### 9790#       发表于 2026-8-19 18:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108463&amp;ptid=2275806" target="_blank">Lacsiess 发表于 2026-8-19 18:38</a>
+
+4080s 32G可以跑动吧</blockquote>
+自己玩的话还是洋垃圾比较有性价比
+
+
+*****
+
+####  小野賢章  
+##### 9791#       发表于 2026-8-19 18:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108487&amp;ptid=2275806" target="_blank">厍无春 发表于 2026-8-19 18:47</a>
+
+没有，我做了个彭罗斯楼梯，思维链明确写了没有视觉想要调用dsh里我安的视觉插件，但是不知道为啥调用失 ...</blockquote>
+SVG彭罗斯楼梯目前我还没有成功画出来过<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 9792#       发表于 2026-8-19 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108298&amp;ptid=2275806" target="_blank">chuchoselph 发表于 2026-8-19 18:03</a>
+发个地址吧，看上去太离谱了</blockquote>
+【鲸龙王归来！核弹X黑洞瘫坐 ds灰测 逃逸黑洞-哔哩哔哩】 https://b23.tv/umCN5A8
+
+*****
+
+####  qwased  
+##### 9793#       发表于 2026-8-19 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108478&amp;ptid=2275806" target="_blank">widder 发表于 2026-8-19 18:44</a>
+
+我用claude接deepseek写UE的c++,实际用下来，pro写代码的水平是远超flash的，同样的活，pro几行解决的事， ...</blockquote>
+flash还很容易分心，我做DSH插件出现过以下情况：工作区有其他插件的文件，导致它写了一半就开始读另一个插件的代码然后开始修这份记忆里面的bug；开一个对话进行插件功能测试，然后在那个对话里面把自己要干的活外包出去等新会话干活，自己开始sleep<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
