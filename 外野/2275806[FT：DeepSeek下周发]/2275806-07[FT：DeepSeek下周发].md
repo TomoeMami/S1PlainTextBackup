@@ -7275,3 +7275,30 @@ https://tokenrhythm.studio/i/rf_tr_bkuV ...</blockquote>
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  龙骑士尹志平  
+##### 9539#       发表于 2026-8-19 09:59
+
+gptplus必须要稳定的翻墙环境才能用吗，比如今天欧洲明天日本后天台湾是不是容易封号
+
+
+*****
+
+####  真红之闪电  
+##### 9540#       发表于 2026-8-19 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70104680&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-19 09:59</a>
+gptplus必须要稳定的翻墙环境才能用吗，比如今天欧洲明天日本后天台湾是不是容易封号 ...</blockquote>
+没见过飞 ** 封号的，我 Claude 都没被封
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  蛋黄酱Release  
+##### 9541#       发表于 2026-8-19 10:04
+
+单位电脑+公网用不了外国模型<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">国内多模态模型不是贵就是太菜，折磨
+
