@@ -425,3 +425,30 @@ Ave Mujica - SUMMER SONIC 2026</blockquote>
 
        [https://www.ntv.co.jp/mochicafe/](https://www.ntv.co.jp/mochicafe/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42002#       发表于 2026-8-19 17:05
+
+       <strong>《BanG Dream! Our Notes》角色介绍PV: 八幡海铃</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/19/170531iv1z3c5c5cym5z5z.jpg" referrerpolicy="no-referrer">
+
+<strong>19b01f075204c19905c4212373d66cc693e7514d.jpg</strong> (72.04 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 17:05 上传
+
+由 BanG Dream! 企划带来的全新音游《BanG Dream! Our Notes》角色介绍PV：八幡海铃 正式公开！
+
+欢迎来到Ave Mujica的假面舞会。
+
+《BanG Dream! Our Notes》国际服预约火热进行中！
+
+┈┈┈┈┈┈┈┈┈⿻*.·
+
+#BanGDream# #交织的乐章# #八幡海铃#</blockquote>
+       [https://www.bilibili.com/video/BV1oa8j6nE1H](https://www.bilibili.com/video/BV1oa8j6nE1H)
+

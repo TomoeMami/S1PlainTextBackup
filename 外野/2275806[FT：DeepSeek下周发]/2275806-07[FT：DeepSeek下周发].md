@@ -9198,3 +9198,71 @@ mlx好像只能跑DFlash一代
 麻了，难道是个实验性的更大的大模型？要空一堆资源才跑的起来。    Re:Source ...</blockquote>
 估计是，之前那个泄露的谈话不就说了要训练更大的大模型吗
 
+
+*****
+
+####  lly778  
+##### 9718#       发表于 2026-8-19 16:58
+
+路由论最大的问题是fable5就没有实现过灰测的水平，你说fable6可信度还高一些
+
+*****
+
+####  舞以  
+##### 9719#       发表于 2026-8-19 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107820&amp;ptid=2275806" target="_blank">lly778 发表于 2026-8-19 16:58</a>
+
+路由论最大的问题是fable5就没有实现过灰测的水平，你说fable6可信度还高一些 ...</blockquote>
+估计是梁叔叔的大手，直接路由的mythos
+
+
+*****
+
+####  →熙←  
+##### 9720#       发表于 2026-8-19 17:02
+
+应该是更大的模型吧, 明显感觉输出慢好多啊
+
+
+*****
+
+####  小ghoul  
+##### 9721#       发表于 2026-8-19 17:03
+
+想要本地部署qwen3.8得可以看看这个分支[https://github.com/1CatAI/1Cat-vLLM/](https://github.com/1CatAI/1Cat-vLLM/)，两张v100 32g或者4张16g可以跑fp8权重开265k上下文4并发，我现在梁文峰就用它续命。梁文谷再改回来。底板加4张16gv100，7000块基本不用考虑其他了。
+
+*****
+
+####  舞以  
+##### 9722#       发表于 2026-8-19 17:03
+
+会不会是ds的下一代更大的基模<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+论scaling，梁圣才是开端
+
+*****
+
+####  overflowal  
+##### 9723#       发表于 2026-8-19 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107820&amp;ptid=2275806" target="_blank">lly778 发表于 2026-8-19 16:58</a>
+路由论最大的问题是fable5就没有实现过灰测的水平，你说fable6可信度还高一些 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  狭义文具爱好者  
+##### 9724#       发表于 2026-8-19 17:04
+
+<blockquote>舞以 发表于 2026-8-19 17:01
+估计是梁叔叔的大手，直接路由的mythos</blockquote>
+说不定是黑了美国国防部搞的国防部特供满血mythos
+
+*****
+
+####  舞以  
+##### 9725#       发表于 2026-8-19 17:08
+
+梁叔叔有时空机器，通过路由来mythos破解了美国战争部的防护，成功稳定路由到了战争部特供mythos，实现了时空闭环<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
