@@ -507,3 +507,14 @@ Reddit那边还是加分制的人居多，S1这边除非是系列粉否则一向
 
 带什么格拉古，打开菜单装备取下寄生之石可以无限回血，一命通关了
 
+
+*****
+
+####  FBC档案部专员  
+##### 56#       发表于 2026-8-19 23:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70109197&amp;ptid=2282975" target="_blank">focus 发表于 2026-8-19 21:01</a>
+
+带什么格拉古，打开菜单装备取下寄生之石可以无限回血，一命通关了</blockquote>
+啥？bug吗？
+
