@@ -10109,3 +10109,50 @@ SVG彭罗斯楼梯目前我还没有成功画出来过</blockquote>
 
 <img src="https://img.stage1st.com/forum/202608/19/193349u2kokkquu26z6g7k.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤星ビスコ  
+##### 9810#       发表于 2026-8-19 19:40
+
+dsh 极简模式的插件，有同样效果的pi版本吗？
+
+*****
+
+####  qwased  
+##### 9811#       发表于 2026-8-19 19:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108779&amp;ptid=2275806" target="_blank">赤星ビスコ 发表于 2026-8-19 19:40</a>
+
+dsh 极简模式的插件，有同样效果的pi版本吗？</blockquote>
+前面有坛友做了，往前翻
+
+*****
+
+####  小野賢章  
+##### 9812#       发表于 2026-8-19 19:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108750&amp;ptid=2275806" target="_blank">厍无春 发表于 2026-8-19 19:33</a>
+
+灰测做的很好，</blockquote>
+
+等会试试，这是我之前试了3次，画得最接近的一次，也还是错误的<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/19/194215t8h030ipc3ssta5t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (83.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 19:42 上传
+
+*****
+
+####  8008  
+##### 9813#       发表于 2026-8-19 19:45
+
+邀请好友限时活动继续延长，体验OpenSquilla新功能畅享免费token
+[https://tokenrhythm.studio/i/rf_tr_xVGa-qlZX0MYL68-bTB1yH5B](https://tokenrhythm.studio/i/rf_tr_xVGa-qlZX0MYL68-bTB1yH5B)
+
+我也来接力一个基元的羊毛
+

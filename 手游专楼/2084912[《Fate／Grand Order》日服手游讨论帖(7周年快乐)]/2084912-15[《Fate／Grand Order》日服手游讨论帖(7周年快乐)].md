@@ -4999,3 +4999,69 @@ _(:з」∠)_
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">水骑呆竟然没被遗忘吗
 
+
+*****
+
+####  壳壳牛  
+##### 21503#       发表于 2026-8-19 19:36
+
+毕竟+3000hp还是太不人道了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  Jamaisvu  
+##### 21504#       发表于 2026-8-19 19:37
+
+贝露丹蒂的画师认领角色了：
+
+<img src="https://img.stage1st.com/forum/202608/19/193118krybmylsdmrdwwef.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20260819_193025.png</strong> (62.82 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-19 19:31 上传
+
+搜了一下，好像是《学生会的一己之见》漫画版的作者：
+
+<img src="https://img.stage1st.com/forum/202608/19/193750wbl22c2fi12e11zm.jpg" referrerpolicy="no-referrer">
+
+<strong>436177739.jpg</strong> (53.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-19 19:37 上传
+
+<img src="https://img.stage1st.com/forum/202608/19/193750zmt7ssu3ttnuj2t2.jpg" referrerpolicy="no-referrer">
+
+<strong>436186102.jpg</strong> (55.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-19 19:37 上传
+
+嗯，怎么说呢，进步挺大的...
+
+*****
+
+####  漆黑之花  
+##### 21505#       发表于 2026-8-19 19:40
+
+现在这强化的幅度，我狐只要领一个就能起飞了，问题是什么时候才轮到我狐
+
+
+*****
+
+####  alucardcz  
+##### 21506#       发表于 2026-8-19 19:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108769&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2026-8-19 19:37</a>
+
+贝露丹蒂的画师认领角色了：</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊？ 难道不是巨大退步 下面不是挺正常的 上面是人？
+
