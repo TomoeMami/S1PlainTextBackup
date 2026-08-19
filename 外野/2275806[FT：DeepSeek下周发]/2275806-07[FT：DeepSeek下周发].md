@@ -7579,3 +7579,80 @@ ultra慢，只用xhigh和max档没多慢吧，看起来慢只是不像国产模�
 
 雷达图上v4p max with dsh已经稳定在97分很久了，这么看来最终v4p的评价只能说中规中矩，稳超terra，比sol差一点点
 
+
+*****
+
+####  cscbzcbz  
+##### 9566#       发表于 2026-8-19 11:25
+
+ 本帖最后由 cscbzcbz 于 2026-8-19 11:27 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105380&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-19 11:18</a>
+
+雷达图上v4p max with dsh已经稳定在97分很久了，这么看来最终v4p的评价只能说中规中矩，稳超terra，比sol ...</blockquote>
+
+不错了，和官方测试数据给人的感觉基本符合，比最好的差一些
+
+至少不是之前和flash拉不开差距的窘境了
+
+*****
+
+####  GJRstone  
+##### 9567#       发表于 2026-8-19 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70090907&amp;ptid=2275806" target="_blank">GJRstone 发表于 2026-8-17 09:15</a>
+
+看今天涨价后出不出现API性能下降了。不下降就忍痛祝梁圣AGI顺利，还下降直接滑动变阻到梁处 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  crow_wine  
+##### 9568#       发表于 2026-8-19 11:26
+
+好想用便宜快速的 pro 啊，flash 的智力在我的项目中撞墙了<img src="https://static.stage1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浪费喝咖啡  
+##### 9569#       发表于 2026-8-19 11:26
+
+梁子能这几周内端出来pro的修复版吗？<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  haiuhfuwah  
+##### 9570#       发表于 2026-8-19 11:27
+
+国算平台的kvcache的缓存时间是多久哇
+
+
+*****
+
+####  hugosol  
+##### 9571#       发表于 2026-8-19 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105327&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-8-19 11:08</a>
+
+很多情况开high就够了
+
+—— 来自 HONOR AAP-AN00, Android 16, 鹅球 v4.0</blockquote>
+确实，感觉high够用，再往上很多是过度思考或者考虑一些很细的边界情况
+
+不过改成high感觉token用量还是差不多，现在plus套餐只用Sol模型额度都不太够
+
+还有个问题是上下文实在按272K算非常不耐用，用DeepSeek我可以用很多轮对话不停地聊，Sol问一个简单问题都要想半天再回，然后上下文又暴涨，感觉更偏向one-shot的风格
+
+*****
+
+####  LeoDT  
+##### 9572#       发表于 2026-8-19 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105108&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-19 10:43</a>
+
+这两天用了下gpt-5.6-sol，确实很强，逻辑比DS的模型要清晰很多
+
+问题是太慢了（不知道是不是因为我开的只是 ...</blockquote>
+只用了Sol medium，结论是规划非常全面，非常非常的全面，也不会出现Luna那种误解需求的问题，但是一上午两个多小时只能做完规划效率真的低了不少。而且效率下来了感觉工作流也需要跟着做些改变，便宜的D老师可以搞快速迭代的玩法，Sol基本就不要想了。
+
+另一个角度来看，规划深度广度够了的话可能返工的情况也会少很多吧，至少目前来看几个中型需求还没有需要返工。
+
