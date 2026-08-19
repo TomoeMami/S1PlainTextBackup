@@ -7875,3 +7875,18 @@ gpt的模型风格就是会想得很细很全面<img src="https://static.stage1s
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ml1642879  
+##### 9590#       发表于 2026-8-19 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105761&amp;ptid=2275806" target="_blank">野蛮人之夜 发表于 2026-8-19 12:03</a>
+
+只涉及文本不涉及格式的话，网页版？免费
+
+或者你在电脑上装个latex编辑器，要求网页版给你输出完整的latex ...</blockquote>
+我对版式与文件格式倒没什么要求，只是想要文笔好的代笔AI，再来个能锦上添花的使用API接口的软件<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+我现在用的是Cherrystudio + Flash，虽然token使用量不大，但命中缓存比例很低，不知道是不是文书编写这类工作的自身特性导致
+
