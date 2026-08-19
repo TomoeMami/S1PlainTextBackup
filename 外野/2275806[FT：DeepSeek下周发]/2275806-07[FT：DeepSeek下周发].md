@@ -10358,3 +10358,42 @@ Fable倒是有个新的办法可以偷</blockquote>
 
 还是等出再说吧。
 
+
+*****
+
+####  唠叨  
+##### 9833#       发表于 2026-8-19 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70109329&amp;ptid=2275806" target="_blank">狭义文具爱好者 发表于 2026-8-19 21:28</a>
+
+谷歌倒是真有个被写作/rp党心心念念的灰度模型，kingfall，大概是gemini2.5 ultra，这个有研究员出来认领了 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/19/213430u4czpd4pz74ctwov.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-08-19_213339_731.jpg</strong> (30.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 21:34 上传
+
+<img src="https://img.stage1st.com/forum/202608/19/213413py4evdcxx8ytqttd.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-08-19_213028_505.jpg</strong> (64.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 21:34 上传
+
+https://ofox.io/zh/models?utm=app_ofox   
+
+gemini-2.5我看到中转站有啊  怎么都一副他已经死了的样子 难道中转站这个是假的？
+
+*****
+
+####  love4aids  
+##### 9834#       发表于 2026-8-19 21:36
+
+自 2026年8月20日 起，同步 DeepSeek 官方计价方式，以下模型将按「高峰时段 / 其余时段」分时段计费,并统一按刊例价的 7.9 折 结算,折后价格见下表(单位:¥ / M tokens)。
+
+打了个8折
+
