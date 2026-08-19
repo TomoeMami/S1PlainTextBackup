@@ -7214,3 +7214,32 @@ https://tokenrhythm.studio/i/rf_tr_bkuV ...</blockquote>
 
 国算平台本质是个统一定价的菜市场吧，每次接到的算力节点会有不同的部属效能差异，首字延迟大很可能是单纯的对应末端机器不行
 
+
+*****
+
+####  scikirbypoke  
+##### 9533#       发表于 2026-8-19 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70103293&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-8-19 00:07</a>
+
+手里的pixel扫直接不过，可能是解了bl，这个不恢复出厂真没办法，但备份又巨麻烦 ...</blockquote>
+成功了，有个早期大号无需验证就能登免费版反重力，通过家庭组共享过去就行了，太逆天了
+
+*****
+
+####  jojog  
+##### 9534#       发表于 2026-8-19 09:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">求问minimaxH3这个挂的LLM可以换么
+
+看网上好多NSFW模感觉都不靠谱怕被坑
+
+但是qwen3.8太大了感觉挂不上
+
+*****
+
+####  绝地潜兵  
+##### 9535#       发表于 2026-8-19 09:39
+
+国算平台算力调度不知道效果稳定不
+
