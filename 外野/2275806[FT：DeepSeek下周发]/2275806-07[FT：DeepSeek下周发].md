@@ -7486,3 +7486,14 @@ gpt模型是支持1.05M的，但是默认限制272k是帮你省钱，因为超�
 
 感觉后端能力上和实际的复杂算法推理上 qwen 3.8 max 比 kimi3 强很多，表现更贴合一个 2.4 万亿模型的表现。k3 这纯纯的绣花枕头 
 
+
+*****
+
+####  拯救节操希灵宅  
+##### 9558#       发表于 2026-8-19 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70104871&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-8-19 10:21</a>
+
+gpt上下文只有272k是正常的吗，而且用的超级快啊。习惯了DS的100M上下文，用DS的时候都是手动压缩的，这GPT ...</blockquote>
+codex里面默认是272k，可以手动调到1m，但实测gpt的自动压缩还挺黑科技的
+
