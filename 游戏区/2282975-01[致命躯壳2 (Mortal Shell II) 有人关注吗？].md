@@ -409,3 +409,14 @@ Reddit那边还是加分制的人居多，S1这边除非是系列粉否则一向
 
 回忆石群宝箱有加幽质掉落的幽质之石
 
+
+*****
+
+####  临界点  
+##### 46#       发表于 2026-8-19 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106005&amp;ptid=2282975" target="_blank">爱上了三个你 发表于 2026-8-19 12:36</a>
+
+不知为啥欧美类魂，只顾着学魂本家的血腥黑暗猎奇，基本没怎么学到唯美主义设计，本家可是从来不缺美女的啊 ...</blockquote>
+欧美游戏不就这样吗 有几个有美女的？
+

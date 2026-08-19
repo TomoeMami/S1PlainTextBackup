@@ -8220,3 +8220,89 @@ opencode go上架Muse Spark 1.2斩杀线了</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用户赶走, 现在算力够了, 进度那么快吗
 
+
+*****
+
+####  wandeeees  
+##### 9622#       发表于 2026-8-19 15:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106803&amp;ptid=2275806" target="_blank">zy450 发表于 2026-8-19 14:53</a>
+
+实测出现i'm思维链了，第一次是let me，重新抽奖出i'm</blockquote>
+抽了几次，抽不到，放弃了，上次灰测也是一直没抽到，我也想许愿啊<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 9623#       发表于 2026-8-19 15:04
+
+又来了，剑指今晚发布吗<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  舞以  
+##### 9624#       发表于 2026-8-19 15:05
+
+又有大的了么<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cscbzcbz  
+##### 9625#       发表于 2026-8-19 15:06
+
+网页版的pro恢复了，测了一下还是老思维链。
+现在是文锋时间，没敢在DSH里测<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">各位有钱人去测吧
+
+*****
+
+####  qwased  
+##### 9626#       发表于 2026-8-19 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106846&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-19 15:01</a>
+
+梯子也不行国内注册的ocg好像就用不了国外的模型？</blockquote>
+要全局+tun模式
+
+IP尽量干净
+
+*****
+
+####  蛋黄酱Release  
+##### 9627#       发表于 2026-8-19 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106874&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-19 15:06</a>
+要全局+tun模式
+
+IP尽量干净</blockquote>
+试了一下，梯子到美国才行<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+而且确实有点慢<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  neptunehs  
+##### 9628#       发表于 2026-8-19 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106710&amp;ptid=2275806" target="_blank">C0s4qmLH9eF9P3w 发表于 2026-8-19 14:37</a>
+opencode go上架Muse Spark 1.2斩杀线了</blockquote>
+muse spark不知道跟flash比怎么样 之前只听说高分低能但没真的关注过
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  qwased  
+##### 9629#       发表于 2026-8-19 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106871&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-19 15:06</a>
+
+网页版的pro恢复了，测了一下还是老思维链。
+
+现在是文锋时间，没敢在DSH里测各位有钱人去测吧 ...</blockquote>
+网页版用You are a helpful software engineer assistant.倒是可以稳定引导出we need
+
+I'm不知道是不是也有类似的魔法词
+
