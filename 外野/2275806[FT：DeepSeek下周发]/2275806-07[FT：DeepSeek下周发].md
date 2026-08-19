@@ -7890,3 +7890,22 @@ gpt的模型风格就是会想得很细很全面<img src="https://static.stage1s
 
 我现在用的是Cherrystudio + Flash，虽然token使用量不大，但命中缓存比例很低，不知道是不是文书编写这类工作的自身特性导致
 
+
+*****
+
+####  cscbzcbz  
+##### 9591#       发表于 2026-8-19 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105767&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-19 12:04</a>
+坑就是蹬的人太多了, 直接蹬爆</blockquote>
+不太妙啊，希望别涨价<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FeteFrumoase  
+##### 9592#       发表于 2026-8-19 12:29
+
+<blockquote>nianiania 发表于 2026-8-18 18:02
+今天才被人教育了一顿，token 是纯消耗品，没了就是没了，硬件是资产，等出了更强更好的新开源那就重新部 ...</blockquote>
+部署运维也是钱 你是爱好者干的活也是要折算成钱
+
