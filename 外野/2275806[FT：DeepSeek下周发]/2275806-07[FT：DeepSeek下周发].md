@@ -7909,3 +7909,38 @@ gpt的模型风格就是会想得很细很全面<img src="https://static.stage1s
 今天才被人教育了一顿，token 是纯消耗品，没了就是没了，硬件是资产，等出了更强更好的新开源那就重新部 ...</blockquote>
 部署运维也是钱 你是爱好者干的活也是要折算成钱
 
+
+*****
+
+####  qwased  
+##### 9593#       发表于 2026-8-19 12:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105814&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-19 12:12</a>
+
+这个规划阶段被我发现了一次阻止了，它是真喜欢过度设计和过度验证。而且感觉训进去过多best practice，但 ...</blockquote>
+qwen 3.8 27b=思考更长能力差不多的v4flash
+
+我去看了一圈感觉买两个2080ti 22g回来搭27b确实非常划算
+
+*****
+
+####  Rowen233  
+##### 9594#       发表于 2026-8-19 12:38
+
+Gemini 3.7 F走OpenCode的话国内不用代理
+
+
+*****
+
+####  tsubasa9  
+##### 9595#       发表于 2026-8-19 12:41
+
+qwen3.8max我网页版用了下感觉有点gpt的风格，不知道为啥
+
+*****
+
+####  泰坦失足  
+##### 9596#       发表于 2026-8-19 12:43
+
+Claude和GPT整天发新闻说自己解决了XX数学问题还有有用的。在琢磨要不要退掉ChatGPT Pro时候想了下， 只有这两家的模型顶尖到解决了数学问题.
+

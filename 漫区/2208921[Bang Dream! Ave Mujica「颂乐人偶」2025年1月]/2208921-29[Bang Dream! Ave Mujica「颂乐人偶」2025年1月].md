@@ -405,3 +405,23 @@ Ave Mujica - SUMMER SONIC 2026</blockquote>
 #BanGDream# #交织的乐章# #若叶睦#</blockquote>
        [https://www.bilibili.com/video/BV1kHbY6MEdL](https://www.bilibili.com/video/BV1kHbY6MEdL)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42001#       发表于 2026-8-19 12:35
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/19/123544a9xbes2ivpxxsx4x.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-08-19_12-34-21.jpg</strong> (252.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 12:35 上传
+
+       [https://x.com/bang_dream_info/status/2089861148455612656](https://x.com/bang_dream_info/status/2089861148455612656)
+
+       [https://www.ntv.co.jp/mochicafe/](https://www.ntv.co.jp/mochicafe/)
+
