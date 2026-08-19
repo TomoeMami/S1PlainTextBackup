@@ -10491,3 +10491,32 @@ gemini-2.5我看到中转站有啊  怎么都一副他已经死了的样子 �
 
 现在有一个奇怪的问题，就是灰测到底要干什么？如果是个很大参数的内部模型，没有必要拿出来吧？不会九月V5的消息是真的？
 
+
+*****
+
+####  Promeus  
+##### 9842#       发表于 2026-8-19 23:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70109784&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-19 23:07</a>
+现在有一个奇怪的问题，就是灰测到底要干什么？如果是个很大参数的内部模型，没有必要拿出来吧？不会九月V5 ...</blockquote>
+看牢吴微信群里的嘚瑟，人家搞不好就是拿出来秀一下<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">另外一种可能是进行压力提升测试，自家环境下压力不够
+
+*****
+
+####  jinuzuktII  
+##### 9843#       发表于 2026-8-19 23:16
+
+少看 B 友胡言乱语，大部分没还走完义务教育
+
+*****
+
+####  拯救节操希灵宅  
+##### 9844#       发表于 2026-8-19 23:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70109210&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-19 21:03</a>
+
+其实干嘛路由目标都是a/没有o/啥事儿呢？
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0 ...</blockquote>
+fable5没法用plan，用得起的人少，sol用的人多，大家都知道sol没这个水平。况且输出风格也不一样
+
