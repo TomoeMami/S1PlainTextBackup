@@ -8577,3 +8577,106 @@ dsh 400报错有遇到的坛友吗，中午睡了个午觉就用不了了
 
 真的假的大的又来了？我要跳脸孝了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  tonyunreal  
+##### 9656#       发表于 2026-8-19 16:08
+
+[http://deepdemos.top/demo/demo-b516f4bb](http://deepdemos.top/demo/demo-b516f4bb)
+
+主播刚跑的黑洞测试
+
+*****
+
+####  nxmonitor  
+##### 9657#       发表于 2026-8-19 16:08
+
+这个神秘模型还是这么强，这思维链怎么看都是重新训练的，原来模型怎么调整都不会出…
+
+*****
+
+####  tillnight  
+##### 9658#       发表于 2026-8-19 16:09
+
+白嫖了下网页版，思维链里有中文的我会，我将
+
+*****
+
+####  2017.05.04  
+##### 9659#       发表于 2026-8-19 16:10
+
+还有热更新修复环节
+
+什么时候给token补偿
+
+*****
+
+####  vincevincetang  
+##### 9660#       发表于 2026-8-19 16:11
+
+免费网页版也路由fable了，梁（？）
+
+*****
+
+####  crow_wine  
+##### 9661#       发表于 2026-8-19 16:11
+
+有没有4090改48G的渠道看看<img src="https://static.stage1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  jinuzuktII  
+##### 9662#       发表于 2026-8-19 16:12
+
+梁⚫又要显圣了？
+
+*****
+
+####  真红之闪电  
+##### 9663#       发表于 2026-8-19 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107399&amp;ptid=2275806" target="_blank">vincevincetang 发表于 2026-8-19 16:11</a>
+免费网页版也路由fable了，梁（？）</blockquote>
+啥？这在网页版上？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  tk553521  
+##### 9664#       发表于 2026-8-19 16:14
+
+又开始路由fable了是吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  misuzu0723  
+##### 9665#       发表于 2026-8-19 16:15
+
+脏 token 测试和模型自我认知好像指向的是 Claude 
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  wandeeees  
+##### 9666#       发表于 2026-8-19 16:16
+
+网页版现在思考是我们将，让我们，出现的很多，倒是没有我正在之类的，其实是路由的fable6<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stackoverflow  
+##### 9667#       发表于 2026-8-19 16:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107357&amp;ptid=2275806" target="_blank">大喵喵 发表于 2026-8-19 16:06</a>
+
+遇到了，opencode go的订阅，切换回高价 ds官方api就没事，用opencode 也没事。</blockquote>
+是的，我用官方API也没事<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

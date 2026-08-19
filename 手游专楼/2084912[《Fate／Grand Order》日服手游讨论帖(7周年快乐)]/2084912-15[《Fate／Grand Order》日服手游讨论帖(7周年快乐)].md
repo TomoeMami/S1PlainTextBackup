@@ -4844,3 +4844,30 @@ _(:з」∠)_
 
 话说空想树是以世界树为原型的吗，薇尔丹迪报真名的时候bgm居然是空想树主旋律<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 21491#       发表于 2026-8-19 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106818&amp;ptid=2084912" target="_blank">克苏鲁系青骑士 发表于 2026-8-19 14:56</a>
+
+话说空想树是以世界树为原型的吗，薇尔丹迪报真名的时候bgm居然是空想树主旋律 ...</blockquote>
+支撑世界的大树这个概念，多多少少肯定沾世界树的概念啊
+
+不如说你月很多设计都跟北欧深度挂钩的
+
+只是你月北欧在阿菌和樱井两只大手合力下显得很难蹦，以至于让人忘了这个事儿
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  克苏鲁系青骑士  
+##### 21492#       发表于 2026-8-19 16:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107358&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-8-19 16:06</a>
+支撑世界的大树这个概念，多多少少肯定沾世界树的概念啊
+
+不如说你月很多设计都跟北欧深度挂钩的</blockquote>
+因为2.2也没说啊没敢想<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">不过你说是yjg我就纳得了，我本来觉得月球世界树搞不好也就锚住人理的功能
+
