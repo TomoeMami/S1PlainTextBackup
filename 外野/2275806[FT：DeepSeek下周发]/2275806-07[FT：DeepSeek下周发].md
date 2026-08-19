@@ -10442,3 +10442,16 @@ gemini-2.5我看到中转站有啊  怎么都一副他已经死了的样子 �
 
 ——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  qwased  
+##### 9838#       发表于 2026-8-19 22:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70109471&amp;ptid=2275806" target="_blank">ternayark 发表于 2026-8-19 21:56</a>
+
+本楼放个技术问题没问题吧
+
+如何看待B友觉得弱智版通用人工智能已经实现了</blockquote>
+说明b友是2b小模型，产生幻觉了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
