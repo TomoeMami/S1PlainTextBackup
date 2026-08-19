@@ -7656,3 +7656,54 @@ ultra慢，只用xhigh和max档没多慢吧，看起来慢只是不像国产模�
 
 另一个角度来看，规划深度广度够了的话可能返工的情况也会少很多吧，至少目前来看几个中型需求还没有需要返工。
 
+
+*****
+
+####  ml1642879  
+##### 9573#       发表于 2026-8-19 11:37
+
+有没有办公室工作者分享一下经验，你们用什么harness或者claw，用flash还是pro来处理蛋疼的工作小结、周报之类的文本任务<img src="https://static.stage1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html) · Xiaomi 15
+
+*****
+
+####  居于月上伊莫库  
+##### 9574#       发表于 2026-8-19 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70104170&amp;ptid=2275806" target="_blank">飞天荷兰人 发表于 2026-8-19 08:59</a>
+哇噢，这个可以！感谢邀请，省了一波token。
+
+邀请好友限时活动继续延长，体验OpenSquilla新功能畅享免费 ...</blockquote>
+已薅 感谢可用
+随意接力下<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">。
+
+邀请好友限时活动继续延长，体验OpenSquilla新功能畅享免费token
+https://tokenrhythm.studio/i/rf_tr_MmhV9iYdpQWuoDNqgNlv0P55
+
+—— 来自 realme RMX5010, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  xiaohanne  
+##### 9575#       发表于 2026-8-19 11:41
+
+<blockquote>hugosol 发表于 2026-8-19 11:31
+确实，感觉high够用，再往上很多是过度思考或者考虑一些很细的边界情况
+
+不过改成high感觉token用量还是差 ...</blockquote>
+Tibo在推上给了解除上下文限制的方法。
+
+但说实话，开一m上下文的话，用量烧的就更快了。
+
+*****
+
+####  darktide  
+##### 9576#       发表于 2026-8-19 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105500&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-19 11:34</a>
+
+只用了Sol medium，结论是规划非常全面，非常非常的全面，也不会出现Luna那种误解需求的问题，但是一上午 ...</blockquote>
+gpt5.6目前确实最强，考虑的非常全面，但是对应的会有过度设计的弊端。我一般让deepseek做方案初稿（很聪明，意图理解相当到位，但是专业知识有短板），让gpt来评审会好点，否则无法兼顾质量和效率。
+
