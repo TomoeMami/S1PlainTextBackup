@@ -10520,3 +10520,47 @@ gemini-2.5我看到中转站有啊  怎么都一副他已经死了的样子 �
 —— 来自 vivo V2561A, Android 16, 鹅球 v4.0 ...</blockquote>
 fable5没法用plan，用得起的人少，sol用的人多，大家都知道sol没这个水平。况且输出风格也不一样
 
+
+*****
+
+####  拯救节操希灵宅  
+##### 9845#       发表于 2026-8-19 23:24
+
+现在梁文谷的速度和智力感觉都还不错，v4f做执行还是挺快挺好的
+
+*****
+
+####  冤枉呐  
+##### 9846#       发表于 2026-8-19 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106656&amp;ptid=2275806" target="_blank">厍无春 发表于 2026-8-19 14:28</a>
+
+对的</blockquote>
+之前早注册的时候的额度可以留着
+
+
+*****
+
+####  BarricadeMKXX  
+##### 9847#       发表于 2026-8-19 23:32
+
+OpenCode Hy3大促销
+
+<img src="https://img.stage1st.com/forum/202608/19/233156u1mmvmmze0vesek4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 23:31 上传
+
+*****
+
+####  RookieTnT  
+##### 9848#       发表于 2026-8-19 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70109936&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-8-19 23:32</a>
+
+OpenCode Hy3大促销</blockquote>
+可惜Hy3 本身拉跨.
+
