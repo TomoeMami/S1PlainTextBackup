@@ -10829,3 +10829,15 @@ dsh rc8更了
 2. 命中不了ds的脏token，能命中claude的 ...</blockquote>
 你用过fable吗？能别拿你fable的脑袋来蹭ds灰测模型鞋底了好吗？痒得慌
 
+
+*****
+
+####  ycjiang1337  
+##### 9874#       发表于 2026-8-20 02:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70110429&amp;ptid=2275806" target="_blank">Fuuki 发表于 2026-8-20 02:13</a>
+灰测模型都有哪些公认的特点，其中哪些不支持路由说？</blockquote>
+相同prompt下，生成效果把Fable5干爆了
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
