@@ -448,3 +448,14 @@ Reddit那边还是加分制的人居多，S1这边除非是系列粉否则一向
 —— 来自 vivo V2436A, Android 16, 鹅球 v3. ...</blockquote>
 不至于吧，我4070笔记本都能2k中画质稳80帧玩的（没开帧生成），是不是着色器bug了？
 
+
+*****
+
+####  qappip  
+##### 50#       发表于 2026-8-19 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107661&amp;ptid=2282975" target="_blank">DawnGuardian 发表于 2026-8-19 16:42</a>
+
+不至于吧，我4070笔记本都能2k中画质稳80帧玩的（没开帧生成），是不是着色器bug了？ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不清楚啊 反复安装都这样 放弃了 
+
