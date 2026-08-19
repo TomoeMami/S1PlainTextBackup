@@ -7302,3 +7302,90 @@ gptplus必须要稳定的翻墙环境才能用吗，比如今天欧洲明天日�
 
 单位电脑+公网用不了外国模型<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">国内多模态模型不是贵就是太菜，折磨
 
+
+*****
+
+####  spaceblue  
+##### 9542#       发表于 2026-8-19 10:06
+
+<blockquote>龙骑士尹志平 发表于 2026-8-19 09:59
+gptplus必须要稳定的翻墙环境才能用吗，比如今天欧洲明天日本后天台湾是不是容易封号 ...</blockquote>
+Plus无所谓，PRO会员网页用PRO模式如果IP不干净会被路由到5.5mini
+
+*****
+
+####  qwased  
+##### 9543#       发表于 2026-8-19 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70104721&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-19 10:04</a>
+
+单位电脑+公网用不了外国模型国内多模态模型不是贵就是太菜，折磨</blockquote>
+叫单位给你报销DS呗，又不是不能开票
+
+*****
+
+####  onezer0618  
+##### 9544#       发表于 2026-8-19 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70104606&amp;ptid=2275806" target="_blank">站立风景 发表于 2026-8-19 09:51</a>
+
+轻度问答，有plus感觉都不用v4f吧？网页端额度基本也用不完。</blockquote>
+用Hermes轻度问答，它的排版什么很舒服，我不知道是d4f的原因还是Hermes本身的原因
+
+*****
+
+####  孔祈  
+##### 9545#       发表于 2026-8-19 10:09
+
+<blockquote>[飞天荷兰人](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70104170&amp;ptid=2275806) 发表于 08-19 08:59
+哇噢，这个可以！感谢邀请，省了一波token。
+
+邀请好友限时活动继续延长，体验OpenSquilla新功能畅享免费token
+
+https://tokenrhythm.studio/i/rf_tr_cobPrRDuQUaIZL0uvrWifL5c</blockquote>
+
+薅了一个试试水
+
+——来自 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  蛋黄酱Release  
+##### 9546#       发表于 2026-8-19 10:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70104750&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-19 10:07</a>
+叫单位给你报销DS呗，又不是不能开票</blockquote>
+deepseek也不是多模态啊，报销也是有总额度的<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">所以得找个平衡点
+
+
+*****
+
+####  tsubasa9  
+##### 9547#       发表于 2026-8-19 10:11
+
+workbuddy的v4f和v4p暴涨，服了，用完积分不用了
+
+*****
+
+####  孔祈  
+##### 9548#       发表于 2026-8-19 10:13
+
+<blockquote>[onezer0618](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70104751&amp;ptid=2275806) 发表于 08-19 10:07
+用Hermes轻度问答，它的排版什么很舒服，我不知道是d4f的原因还是Hermes本身的原因</blockquote>
+
+Hermes可以用OAuth登陆gpt账号使用Codex额度，你喜欢的排版＋gpt模型，双份快乐？
+
+——来自 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  onezer0618  
+##### 9549#       发表于 2026-8-19 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70104809&amp;ptid=2275806" target="_blank">孔祈 发表于 2026-8-19 10:13</a>
+
+Hermes可以用OAuth登陆gpt账号使用Codex额度，你喜欢的排版＋gpt模型，双份快乐？
+
+——来自 S1er 客户 ...</blockquote>
+有道理，我来试试，目前用下来感觉gpt各方面还是更均衡些，多端用着也方便
+
