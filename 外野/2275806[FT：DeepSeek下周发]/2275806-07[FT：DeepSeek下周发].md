@@ -10278,3 +10278,15 @@ token单价增加，总限额还降低了，原来是60刀，现在只有30刀�
 
 强过头了吧, 这真是10T了吧<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ycjiang1337  
+##### 9825#       发表于 2026-8-19 20:36
+
+ 本帖最后由 ycjiang1337 于 2026-8-19 20:37 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108739&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-19 19:31</a>
+
+Fable倒是有个新的办法可以偷</blockquote>
+注意是“实时”，这个在技术上除非直接攻破A/服务器，否则不可能用任何方法实现
+

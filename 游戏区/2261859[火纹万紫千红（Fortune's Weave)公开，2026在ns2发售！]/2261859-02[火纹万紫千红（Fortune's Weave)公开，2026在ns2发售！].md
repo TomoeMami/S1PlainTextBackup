@@ -14839,3 +14839,25 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 
 新人物介绍说了凯伊和他妈妈很像，又改口不能谈他母亲，已经100%确认凯伊妈就是奥罗拉了
 
+
+*****
+
+####  flyingover  
+##### 2883#       发表于 2026-8-19 20:37
+
+<img src="https://img.stage1st.com/forum/202608/19/203734yl49qila4amz4rbj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (181.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 20:37 上传
+
+
+*****
+
+####  5ew47  
+##### 2884#       发表于 2026-8-19 20:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凯伊果然就是我们火纹的正统蓝发王子
+
