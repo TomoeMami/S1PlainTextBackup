@@ -14430,3 +14430,16 @@ Today写了奥罗拉是神威法王的孩子。所以假如奥罗拉是凯伊的
 
 到正式版如果还只有一个存档位肯定会被喷死<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  thecatnie  
+##### 2840#       发表于 2026-8-19 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106239&amp;ptid=2261859" target="_blank">纯夏 发表于 2026-8-19 13:19</a>
+
+只有一个存档对老骨灰来说根本不是问题  能悔棋已经很imba了 
+
+要加难度也不是这样搞的 把悔棋去掉 存档放开 ...</blockquote>
+也有种可能是游戏里存在某种类似动森、宝可梦之类的机制，不允许多个存档
+
