@@ -10034,3 +10034,78 @@ ds真正的产品的目标是尽量保留教师的能力，也要尽量维持效
 Dsh能更好的观察吐字速度，这40-50t的速度其实可以印证两个事情，一这不是路由，a/没那么慢。二这确实不是v ...</blockquote>
 其实还有一点，实时破解A/思维链在技术上是不可能实现的，之前的破解方法是拿到Key之后再让Haiku吐出来，而且也不适用于Fable
 
+
+*****
+
+####  overflowal  
+##### 9804#       发表于 2026-8-19 19:26
+
+只有峰段有啊<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 9805#       发表于 2026-8-19 19:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108713&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-8-19 19:26</a>
+
+只有峰段有啊    Re:Source</blockquote>
+上班的研究罢了，下班就溜咯<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hollowd  
+##### 9806#       发表于 2026-8-19 19:28
+
+最近这种左右脑互搏的思维链经常见到，气笑了
+
+让我把 rtk 的知识追加到服务器记忆文件中。我会用 append 模式，或者更好的方式是在文件中添加一个新的章节。
+
+让我用 append 模式添加 rtk 知识。不过更合理的做法可能是先读取文件内容，然后 replace 覆盖整个文件，把 rtk 部分加入。我已经读过内容了。
+
+我用 append 模式添加一个章节即可，这样简单且不会破坏原内容。不过为了保持文件整洁，我可以 replace 整个文件加入 rtk 部分。
+
+让我用 replace 重写整个文件，加入 rtk 知识。
+
+实际上，append 更安全，但会产生结构上的添加。我选择 replace 完整重写，因为我已拥有完整内容。不过如果文件在别处有更新，replace 可能覆盖。用 append 是追加一个独立章节，更安全。
+
+我决定用 append 追加一个「rtk 命令」章节。
+
+*****
+
+####  Promeus  
+##### 9807#       发表于 2026-8-19 19:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108704&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-8-19 19:25</a>
+其实还有一点，实时破解A/思维链在技术上是不可能实现的，之前的破解方法是拿到Key之后再让Haiku吐出来， ...</blockquote>
+Fable倒是有个新的办法可以偷
+
+
+*****
+
+####  qwased  
+##### 9808#       发表于 2026-8-19 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108724&amp;ptid=2275806" target="_blank">hollowd 发表于 2026-8-19 19:28</a>
+
+最近这种左右脑互搏的思维链经常见到，气笑了</blockquote>
+你要还在用DS就尽量上插件把let me规避掉，不然还是换个别的模型用吧，感觉现在这个性价比属实一般
+
+*****
+
+####  厍无春  
+##### 9809#       发表于 2026-8-19 19:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108504&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-19 18:50</a>
+SVG彭罗斯楼梯目前我还没有成功画出来过</blockquote>
+灰测做的很好，
+
+8228.png
+(769.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 19:33 上传
+
+<img src="https://img.stage1st.com/forum/202608/19/193349u2kokkquu26z6g7k.png" referrerpolicy="no-referrer">
+
