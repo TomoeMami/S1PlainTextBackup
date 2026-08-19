@@ -14291,3 +14291,18 @@ engage 的男娘让我生理性不适，别再来了<img src="https://static.sta
 
 Today写了奥罗拉是神威法王的孩子。所以假如奥罗拉是凯伊的妈妈，主角是神威法王转世的话，主角就成了凯伊的姥爷/姥姥了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴尔干炮  
+##### 2828#       发表于 2026-8-19 10:41
+
+奥罗拉的母亲是死之女神，现在却成了大陆的忌讳，所以法王你..........这帮神背后到底闹出多少肥皂剧啊？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  伽拉忒亚i  
+##### 2829#       发表于 2026-8-19 10:43
+
+为什么不设定成神威法王是奥罗拉的哥哥，我想看火纹版宝莲灯
+

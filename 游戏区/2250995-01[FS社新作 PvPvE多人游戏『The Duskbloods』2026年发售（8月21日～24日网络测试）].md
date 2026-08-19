@@ -119,3 +119,33 @@ https://campaign.theduskbloods.jp/p/event/networktest/mypage
 
 咸鱼又卖激活码的，买激活码给没中的账号激活，可以玩么
 
+
+*****
+
+####  酒红色的存在  
+##### 126#       发表于 2026-8-19 10:40
+
+我用了下载码才发现我在香港的申请页面上用了日服的账号，然后下载也得到日服商店下，还是说我理解错了？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2307A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  椎名mahuyo  
+##### 127#       发表于 2026-8-19 10:41
+
+我日服兑的，下下来是中文
+
+—— 来自 realme RMX3708, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  clyde-wang  
+##### 128#       发表于 2026-8-19 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105081&amp;ptid=2250995" target="_blank">酒红色的存在 发表于 2026-8-19 10:40</a>
+我用了下载码才发现我在香港的申请页面上用了日服的账号，然后下载也得到日服商店下，还是说我理解错了？
+
+ ...</blockquote>
+用哪个服申请的账号就要用哪个服下载
+
