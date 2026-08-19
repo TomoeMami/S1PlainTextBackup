@@ -10327,3 +10327,34 @@ Fable倒是有个新的办法可以偷</blockquote>
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  真红之闪电  
+##### 9830#       发表于 2026-8-19 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108701&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-19 19:25</a>
+梁子要是宣布高峰时段降到和空闲时段一个价我能喊梁圣，别搞什么AGI了那都是骗人的 ...</blockquote>
+笑死，他们现在是真的不在乎
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  真红之闪电  
+##### 9831#       发表于 2026-8-19 21:26
+
+其实我在想，真的这个级别模型放出来了，你们又要觉得能力不够了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  狭义文具爱好者  
+##### 9832#       发表于 2026-8-19 21:28
+
+谷歌倒是真有个被写作/rp党心心念念的灰度模型，kingfall，大概是gemini2.5 ultra，这个有研究员出来认领了。后来大概因为成本过高和除写作外其他能力提升不如预期而没放出来。
+
+还是等出再说吧。
+
