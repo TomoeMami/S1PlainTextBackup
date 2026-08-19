@@ -7243,3 +7243,35 @@ https://tokenrhythm.studio/i/rf_tr_bkuV ...</blockquote>
 
 国算平台算力调度不知道效果稳定不
 
+
+*****
+
+####  onezer0618  
+##### 9536#       发表于 2026-8-19 09:49
+
+ 本帖最后由 onezer0618 于 2026-8-19 09:51 编辑 
+
+咨询下各位，非程序员，现在建议用哪家的订阅当主力使用，我目前主用的是Hermes和ChatGPT，Hermes接的v4f当日常问答用的工具，ChatGPT处理工作上的事以及辅助做一些小玩意，开的plus订阅，gpt快到期了
+
+*****
+
+####  站立风景  
+##### 9537#       发表于 2026-8-19 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70104599&amp;ptid=2275806" target="_blank">onezer0618 发表于 2026-8-19 09:49</a>
+
+咨询各位的事，非程序员，现在建议用哪家的订阅当主力使用，我目前主用的是Hermes和ChatGPT，Hermes接的v4f ...</blockquote>
+轻度问答，有plus感觉都不用v4f吧？网页端额度基本也用不完。
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 9538#       发表于 2026-8-19 09:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70104599&amp;ptid=2275806" target="_blank">onezer0618 发表于 2026-8-19 09:49</a>
+咨询下各位，非程序员，现在建议用哪家的订阅当主力使用，我目前主用的是Hermes和ChatGPT，Hermes接的v4f当 ...</blockquote>
+那还是gpt罢
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
