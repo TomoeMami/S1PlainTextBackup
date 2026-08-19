@@ -7389,3 +7389,43 @@ Hermes可以用OAuth登陆gpt账号使用Codex额度，你喜欢的排版＋gpt�
 ——来自 S1er 客户 ...</blockquote>
 有道理，我来试试，目前用下来感觉gpt各方面还是更均衡些，多端用着也方便
 
+
+*****
+
+####  千千千千鸟  
+##### 9550#       发表于 2026-8-19 10:21
+
+gpt上下文只有272k是正常的吗，而且用的超级快啊。习惯了DS的100M上下文，用DS的时候都是手动压缩的，这GPT随便就触发自动压缩了。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  冤枉呐  
+##### 9551#       发表于 2026-8-19 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70103314&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-19 00:13</a>
+说真的v4f哪怕开了智写文效果也很不错了，但是这个开智思维链只和dsh绑定就有点难受……hermes就算输入了提 ...</blockquote>
+高级开头到底是啥啊
+let's, we need, i am?
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  站立风景  
+##### 9552#       发表于 2026-8-19 10:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70104830&amp;ptid=2275806" target="_blank">onezer0618 发表于 2026-8-19 10:15</a>
+
+有道理，我来试试，目前用下来感觉gpt各方面还是更均衡些，多端用着也方便 ...</blockquote>
+这样的缺点就是占用codex额度了，plus相对会比较少的，网页端问答基本用不完。
+
+*****
+
+####  站立风景  
+##### 9553#       发表于 2026-8-19 10:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70104871&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-8-19 10:21</a>
+
+gpt上下文只有272k是正常的吗，而且用的超级快啊。习惯了DS的100M上下文，用DS的时候都是手动压缩的，这GPT ...</blockquote>
+是的，不过gpt压缩效果感觉还不错，实际使用体感没有太大的问题。
+

@@ -14243,3 +14243,19 @@ engage 的男娘让我生理性不适，别再来了<img src="https://static.sta
 草，看贴吧说这人脖子上有个喉结罩所以很可能是男娘</blockquote>
 个人简介上写了女性了，也没模糊化处理应该不是男的
 
+
+*****
+
+####  巴尔干炮  
+##### 2823#       发表于 2026-8-19 10:18
+
+<img src="https://img.stage1st.com/forum/202608/19/101805koqr9rho0roto44q.jpg" referrerpolicy="no-referrer">
+
+<strong>bc2053d1e7b3f438aa77976d294a9688aad1c0040f91cf23523d8bae565fe601.0.JPG</strong> (186.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 10:18 上传
+
+真的是凯伊的老妈吗？声音听上去好年轻。
+
