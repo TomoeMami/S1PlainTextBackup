@@ -10792,3 +10792,17 @@ dsh rc8更了
 
 少逛点ln，逛多了🧠真的会没
 
+
+*****
+
+####  真红之闪电  
+##### 9871#       发表于 2026-8-20 01:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70110271&amp;ptid=2275806" target="_blank">AzuEdit 发表于 2026-8-20 00:58</a>
+dsh rc8更了
+
+更新日志里面有段其他变更</blockquote>
+啊？这么一来我插件都不想搞了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
