@@ -10397,3 +10397,16 @@ gemini-2.5我看到中转站有啊  怎么都一副他已经死了的样子 �
 
 打了个8折
 
+
+*****
+
+####  kylezy123  
+##### 9835#       发表于 2026-8-19 21:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70109359&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-19 21:35</a>
+
+gemini-2.5我看到中转站有啊  怎么都一副他已经死了的样子 难道中转站这个是假的？
+
+这个站还有超便宜的 ...</blockquote>
+0325后面2.5pro已经就不行了 别说现在了 这个2.5pro好像就是名字没改 其实是3.0pro
+
