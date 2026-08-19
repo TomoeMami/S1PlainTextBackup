@@ -4954,3 +4954,21 @@ _(:з」∠)_
  ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但都是1回 有啥用
 
+
+*****
+
+####  Jamaisvu  
+##### 21498#       发表于 2026-8-19 17:50
+
+三技能的辉煌掩盖不了二技能的耻辱<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+等以后一技能强化，加个“己方最大生命值提升状态下获得额外攻击力提升”，就算是完全体了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 21499#       发表于 2026-8-19 17:52
+
+可惜了，一个都没有<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+

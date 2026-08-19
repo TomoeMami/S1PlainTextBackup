@@ -9510,3 +9510,86 @@ Dsh能更好的观察吐字速度，这40-50t的速度其实可以印证两个�
 
 其实4f和4p那个反方向错误很像是这个灰度模型训练or蒸馏出来的
 
+
+*****
+
+####  chuchoselph  
+##### 9750#       发表于 2026-8-19 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108175&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-19 17:44</a>
+从七月初到现在的pro，都有一个很神秘的通病，就是会搞反“方向”</blockquote>
+这个好像大部分模型都会搞反
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qwased  
+##### 9751#       发表于 2026-8-19 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108162&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-19 17:41</a>
+
+我想起来一件事，之前嚷嚷路由的时候有一张微信群截图里面不知道是不是ds员工嘲讽说路由了15T的fable，如果 ...</blockquote>
+不太可能从1.6T直接跃进到10T以上吧<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 9752#       发表于 2026-8-19 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108192&amp;ptid=2275806" target="_blank">chuchoselph 发表于 2026-8-19 17:47</a>
+这个好像大部分模型都会搞反
+
+论坛助手,iPhone</blockquote>
+典型的比如方向键反向，贴图和碰撞箱一个中心重合顺时针旋转，一个逆时针旋转，mc风格的小人的手被装在了背面，这类问题原来是通病么<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舞以  
+##### 9753#       发表于 2026-8-19 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108193&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-19 17:47</a>
+
+不太可能从1.6T直接跃进到10T以上吧</blockquote>
+难道ds内部真有15t大魔当老师<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秦南心  
+##### 9754#       发表于 2026-8-19 17:50
+
+灰测这个呈现的效果甚至比多模态模型要好，是不是用类似OCR的方法把视觉内嵌进文字里了
+
+*****
+
+####  Promeus  
+##### 9755#       发表于 2026-8-19 17:51
+
+https://tieba.baidu.com/p/10956163161?share=9105&amp;fr=sharewise
+
+最明显的还是这玩意一些效果是完爆A/的
+
+*****
+
+####  overflowal  
+##### 9756#       发表于 2026-8-19 17:51
+
+真10T的话，那一定会稀疏到不可思议。。。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  cscbzcbz  
+##### 9757#       发表于 2026-8-19 17:53
+
+别藏了<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">梁总
+
+*****
+
+####  cscbzcbz  
+##### 9758#       发表于 2026-8-19 17:54
+
+今年内能看到吗，急
+
