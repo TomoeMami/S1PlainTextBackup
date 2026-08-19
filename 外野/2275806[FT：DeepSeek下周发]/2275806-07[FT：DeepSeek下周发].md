@@ -9046,3 +9046,155 @@ opus5没有这么强，和fable的差距就是缺少了点灵性，一句话生�
 【deepseek这复活的灰测模型太厉害！或许超越7月！ 超段提示词武装飞机建模】 https://www.bilibili.com/vi ...</blockquote>
 这个还是标准模式<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王兰花秀丽  
+##### 9702#       发表于 2026-8-19 16:48
+
+不是，现在还能抽到吗，有人告诉我怎么识别吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  windhawind2  
+##### 9703#       发表于 2026-8-19 16:48
+
+现在deepseek4flash的速度变慢了是我的错觉么。。我看了下让它写个报告 经常在思考过程中把整个报告全都过1-2遍。。记得以前不是这样啊。。难道是这个原因导致变慢？<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 9704#       发表于 2026-8-19 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107708&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-19 16:47</a>
+这个还是标准模式</blockquote>
+点进去就看了一眼，吓尿了<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+这没有多模态不科学了吧
+
+*****
+
+####  tonyunreal  
+##### 9705#       发表于 2026-8-19 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107700&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-19 16:46</a>
+
+是mac，6bit量化，占用20G内存，用的mlx，DFlash2我没设置，不知道默认开不开</blockquote>
+mlx好像只能跑DFlash一代
+
+20G会不会太少了，上下文开了多少啊
+
+*****
+
+####  serj005  
+##### 9706#       发表于 2026-8-19 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107527&amp;ptid=2275806" target="_blank">狭义文具爱好者 发表于 2026-8-19 16:26</a>
+没有生物甲可能是opus5。我看了眼dc，没国内政治甲这个确实让人怀疑是不是国模。
+
+这事真挺难说清了。 ...</blockquote>
+v4p正式版在输出时没感受到国内甲，只是在遇到赵蛋关键词的时候会从api层面直接截断
+
+*****
+
+####  tonyunreal  
+##### 9707#       发表于 2026-8-19 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107720&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-19 16:48</a>
+
+不是，现在还能抽到吗，有人告诉我怎么识别吗    Re:Source</blockquote>
+dsh标准模式，模型pro max
+
+思维链以I、we、Let's为主就是新模型，Let me就是旧的
+
+*****
+
+####  舞以  
+##### 9708#       发表于 2026-8-19 16:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">来个用opus5复刻一下那个武装直升机？
+
+想看看你opus5许愿实力
+
+*****
+
+####  小野賢章  
+##### 9709#       发表于 2026-8-19 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107725&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-19 16:48</a>
+
+mlx好像只能跑DFlash一代
+
+20G会不会太少了，上下文开了多少啊</blockquote>
+上下文开的128K，但是我几乎没跑满过，还是太慢了，都是在搞一次性任务
+
+*****
+
+####  tonyunreal  
+##### 9710#       发表于 2026-8-19 16:50
+
+[http://deepdemos.top/demo/3d-754ac5bb](http://deepdemos.top/demo/3d-754ac5bb)
+
+主播跑的3d重力迷宫
+
+*****
+
+####  tillnight  
+##### 9711#       发表于 2026-8-19 16:51
+
+<blockquote>cscbzcbz 发表于 2026-8-19 16:48
+点进去就看了一眼，吓尿了
+
+这没有多模态不科学了吧</blockquote>
+思维链仍然说自己没有视觉能力。看来不止破解了思维链，还劫持了a/的思维链。
+
+*****
+
+####  nianiania  
+##### 9712#       发表于 2026-8-19 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107687&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-19 16:45</a>
+
+【deepseek这复活的灰测模型太厉害！或许超越7月！ 超段提示词武装飞机建模】 https://www.bilibili.com/vi ...</blockquote>
+这个也太离谱了，真是瞎子模型能做出来的？<img src="https://static.stage1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiaohanne  
+##### 9713#       发表于 2026-8-19 16:52
+
+等你们测试稳定了我再花钱<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  真田源次郎信繁  
+##### 9714#       发表于 2026-8-19 16:52
+
+48g跑32B的， q6也就一两万上下文，27b好不了多少
+
+酒馆的话还行，写代码这太短了
+
+*****
+
+####  →熙←  
+##### 9715#       发表于 2026-8-19 16:53
+
+还有1小时梁文谷,梁文峰不敢试啊
+
+*****
+
+####  overflowal  
+##### 9716#       发表于 2026-8-19 16:56
+
+麻了，难道是个实验性的更大的大模型？要空一堆资源才跑的起来。<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  wandeeees  
+##### 9717#       发表于 2026-8-19 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107800&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-8-19 16:56</a>
+
+麻了，难道是个实验性的更大的大模型？要空一堆资源才跑的起来。    Re:Source ...</blockquote>
+估计是，之前那个泄露的谈话不就说了要训练更大的大模型吗
+

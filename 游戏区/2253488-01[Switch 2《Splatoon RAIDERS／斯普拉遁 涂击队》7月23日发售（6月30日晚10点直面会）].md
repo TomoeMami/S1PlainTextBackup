@@ -8251,3 +8251,31 @@ https://github.com/Orangeeeeeeeeeeeeeeeeee/switch-controller-macro
 
 最想吐槽的还是罗盘，之前我都50级开始+了，发现咋都升级不给点了，才觉得技能点差了好多，发现原来说的罗盘寻找是这样，真的是眼瞎，服了我自己<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Beaverfan01  
+##### 958#       发表于 2026-8-19 16:46
+
+ 本帖最后由 Beaverfan01 于 2026-8-19 16:49 编辑 
+
+绝品五星的连射力或者蓄力速度要比普通五星的更快；
+
+秘宝选随便选一层容易刷的无尽食堂重复刷就行；
+
+碎片倒还好，打多了缺口没那么大；后面主要缺的是水晶，而且目前没什么好办法，救援高概率给两个但也有时候给武器或者碎片，除了宏挂机还有就是反复刷无尽食堂97-99了，手刷天埠罗倒也行就是刷多了容易枯燥。能找人一起打挖矿图或许也行？
+
+*****
+
+####  绿冰  
+##### 959#         楼主| 发表于 2026-8-19 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107411&amp;ptid=2253488" target="_blank">hujingjing 发表于 2026-8-19 16:12</a>
+拿着一把普通五星升点级，把食堂打到60多层感觉输出有点够呛了，想问问，武器是不是只留绝品五星就行了，比 ...</blockquote>
+非50的5星绝品也不是不可以留，就是升满级更贵
+绝品武器都是极度重视，最常用的极度重视攻击频率、蓄力速度会让攻速高很多
+秘宝就是刷食堂，嫌难一直刷1到3层都行，我到268层才齐
+涡潮盐确实很缺，做最高档次的慎重，不用宏就只能每天救援了
+
+—— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
