@@ -9855,3 +9855,36 @@ qwen3.8 27b的aa跑分52<img src="https://static.stage1st.com/image/smiley/face2
 
 梁子可以安排自己的infra团队去给第三方平台优化、部署，作为交换这些平台要把数据给deepseek，这样deepseek就不用提供在线服务了，算力全都用来研发新模型<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novem  
+##### 9786#       发表于 2026-8-19 18:35
+
+后训练问题估计还是算力局限性，大厂的财力又太雄厚，这得要从更高层面来协调
+
+*****
+
+####  Lacsiess  
+##### 9787#       发表于 2026-8-19 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106008&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-19 12:36</a>
+
+qwen 3.8 27b=思考更长能力差不多的v4flash
+
+我去看了一圈感觉买两个2080ti 22g回来搭27b确实非常划算 ...</blockquote>
+4080s 32G可以跑动吧
+
+
+*****
+
+####  widder  
+##### 9788#       发表于 2026-8-19 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108300&amp;ptid=2275806" target="_blank">真田源次郎信繁 发表于 2026-8-19 18:04</a>
+
+梁子的v4 pro这个水平，反正我是不信还能有时间练更大更好的，否则何必把这个拿出来呢
+
+路由论虽然听起来挺 ...</blockquote>
+我用claude接deepseek写UE的c++,实际用下来，pro写代码的水平是远超flash的，同样的活，pro几行解决的事，flash写了一大堆还是搞不定，指挥他改，越改越长，但问题还是没解决。
+
