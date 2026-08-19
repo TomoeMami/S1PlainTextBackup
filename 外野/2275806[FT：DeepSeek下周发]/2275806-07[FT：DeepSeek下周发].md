@@ -9938,3 +9938,23 @@ SVG彭罗斯楼梯目前我还没有成功画出来过<img src="https://static.s
 我用claude接deepseek写UE的c++,实际用下来，pro写代码的水平是远超flash的，同样的活，pro几行解决的事， ...</blockquote>
 flash还很容易分心，我做DSH插件出现过以下情况：工作区有其他插件的文件，导致它写了一半就开始读另一个插件的代码然后开始修这份记忆里面的bug；开一个对话进行插件功能测试，然后在那个对话里面把自己要干的活外包出去等新会话干活，自己开始sleep<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chuchoselph  
+##### 9794#       发表于 2026-8-19 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108513&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-19 18:52</a>
+【鲸龙王归来！核弹X黑洞瘫坐 ds灰测 逃逸黑洞-哔哩哔哩】 https://b23.tv/umCN5A8 ...</blockquote>
+这和图片里的不是同一个吧？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Lorraine_Kinney  
+##### 9795#       发表于 2026-8-19 19:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我用不上都是假的，还涨价，建议击毙梁文峰
+
