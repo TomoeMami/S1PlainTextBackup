@@ -10593,3 +10593,28 @@ https://www.bilibili.com/video/BV1eN8n6sEPs
 强过头了吧, 这真是10T了吧</blockquote>
 太吓人了，这真的是坐在核弹上看到椅子爆炸
 
+
+*****
+
+####  tonyunreal  
+##### 9852#       发表于 2026-8-20 00:07
+
+[http://deepdemos.top/](http://deepdemos.top/)
+[https://dsgames.askhow.top/](https://dsgames.askhow.top/)
+两小时灰测蹬出来这么多demo
+这还不是所有的
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  果壳中的松鼠  
+##### 9853#       发表于 2026-8-20 00:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70109784&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-19 23:07</a>
+现在有一个奇怪的问题，就是灰测到底要干什么？如果是个很大参数的内部模型，没有必要拿出来吧？不会九月V5 ...</blockquote>
+可能是拿我们做强化学习<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">，PPO或者GRPO算法需要有针对当前模型的反馈才能计算奖励，更新参数
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

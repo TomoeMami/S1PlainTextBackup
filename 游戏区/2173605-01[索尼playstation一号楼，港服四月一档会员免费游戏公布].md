@@ -28,3 +28,13 @@
 
 The game is not yet canceled, but the studio told staff in a meeting on Wednesday that they will have through December to impress executives with their next milestone, the people said. Many of the developers on Horizon Hunters Gathering will be reassigned to a different project that will also be evaluated at the end of the year.
 
+
+*****
+
+####  黑色的js  
+##### 787#       发表于 2026-8-20 00:06
+
+地平线ol这事儿看能不能影响到赫尔曼
+
+地平线3还遥遥无期，估计赶不上ps6首发了
+

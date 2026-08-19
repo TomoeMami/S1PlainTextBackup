@@ -538,3 +538,11 @@ Reddit那边还是加分制的人居多，S1这边除非是系列粉否则一向
 就电属性攻击吧，技能也是叠电伤的，还有一个几率减伤50%的被动，但是感觉没啥用 ...</blockquote>
 可以参考上面狗蛋评测里那个build，中期开始电表倒转
 
+
+*****
+
+####  Yeelolo  
+##### 59#       发表于 2026-8-20 00:13
+
+这游戏地图还是做成线性合适，整的地图四通八达，前期数值不高乱跑被各种打成孙子<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
