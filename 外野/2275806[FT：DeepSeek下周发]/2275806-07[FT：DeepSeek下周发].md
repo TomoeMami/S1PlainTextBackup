@@ -8131,3 +8131,92 @@ opencode go上架Muse Spark 1.2斩杀线了
 国算token plan的credits怎么计算的</blockquote>
 [https://www.scnet.cn/ac/openapi/ ... ans/token-plan.html](https://www.scnet.cn/ac/openapi/doc/2.0/moduleapi/plans/token-plan.html)  就是一个代币, 这里是价格, 每个模型的消耗
 
+
+*****
+
+####  cscbzcbz  
+##### 9613#       发表于 2026-8-19 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106694&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-8-19 14:34</a>
+国算token plan的credits怎么计算的</blockquote>
+我算了下，就是涨价前的价格，甚至还比涨价前便宜一些，所以天天429<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+国算能不能加点算力啊
+
+*****
+
+####  zy450  
+##### 9614#       发表于 2026-8-19 14:53
+
+<img src="https://img.stage1st.com/forum/202608/19/145311tw2zkwz5fekkoi6v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (113.23 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 14:53 上传
+
+实测出现i'm思维链了，第一次是let me，重新抽奖出i'm
+
+*****
+
+####  蛋黄酱Release  
+##### 9615#       发表于 2026-8-19 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106710&amp;ptid=2275806" target="_blank">C0s4qmLH9eF9P3w 发表于 2026-8-19 14:37</a>
+opencode go上架Muse Spark 1.2斩杀线了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这个价格也太夸张了，国内能直连吗
+
+*****
+
+####  qwased  
+##### 9616#       发表于 2026-8-19 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106806&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-19 14:54</a>
+
+这个价格也太夸张了，国内能直连吗</blockquote>
+必须挂梯子
+
+*****
+
+####  cscbzcbz  
+##### 9617#       发表于 2026-8-19 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106803&amp;ptid=2275806" target="_blank">zy450 发表于 2026-8-19 14:53</a>
+实测出现i'm思维链了，第一次是let me，重新抽奖出i'm</blockquote>
+刚才网页版的pro繁忙了，是因为这个吗？
+
+*****
+
+####  zy450  
+##### 9618#       发表于 2026-8-19 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106822&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-19 14:56</a>
+
+刚才网页版的pro繁忙了，是因为这个吗？</blockquote>
+不知道，刚看到群里说出现i'm就试一下，window系统普通模式，确实出现了，还在跑，稳定i'm，没有let's、we need、let me，思维链里没有代码
+
+*****
+
+####  wandeeees  
+##### 9619#       发表于 2026-8-19 14:59
+
+梁圣逗逗你的呀<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蛋黄酱Release  
+##### 9620#       发表于 2026-8-19 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106814&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-19 14:55</a>
+必须挂梯子</blockquote>
+梯子也不行<img src="https://static.stage1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">国内注册的ocg好像就用不了国外的模型？
+
+*****
+
+####  →熙←  
+##### 9621#       发表于 2026-8-19 15:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用户赶走, 现在算力够了, 进度那么快吗
+
