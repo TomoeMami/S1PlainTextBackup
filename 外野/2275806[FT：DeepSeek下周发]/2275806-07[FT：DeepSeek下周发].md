@@ -7099,3 +7099,13 @@ deepseek 涨价了，我再发一遍这个吧，注册就送68元额度，api哪
 
 有需要的注册白嫖68就行，当然能调用一次harness帮我加一下推荐额度更好，不强求。
 
+
+*****
+
+####  neptunehs  
+##### 9523#       发表于 2026-8-19 07:53
+
+我用qwen3.8-27b iq3xss 都跑到500tps了 结果一个prompt跑了500多秒 这在大context下真的可用吗（
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
