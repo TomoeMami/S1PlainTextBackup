@@ -10424,3 +10424,21 @@ gemini-2.5我看到中转站有啊  怎么都一副他已经死了的样子 �
 
 <img src="https://p.sda1.dev/34/e8ff7e7a86729f9f24e9fc2dbc1da4a0/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  noneoneone  
+##### 9837#       发表于 2026-8-19 22:10
+
+<blockquote>[ternayark](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70109471&amp;ptid=2275806) 发表于 08-19 21:56
+本楼放个技术问题没问题吧
+
+如何看待B友觉得弱智版通用人工智能已经实现了
+
+这个技术推测有依据吗</blockquote>
+
+我记得早些说osu之类玩游戏的和牛是分开的ai，只是牛能读到另一边的数据。
+至于后面的，我完全看不懂在说啥。
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
