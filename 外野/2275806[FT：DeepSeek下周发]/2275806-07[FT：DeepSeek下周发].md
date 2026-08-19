@@ -10410,3 +10410,17 @@ gemini-2.5我看到中转站有啊  怎么都一副他已经死了的样子 �
 这个站还有超便宜的 ...</blockquote>
 0325后面2.5pro已经就不行了 别说现在了 这个2.5pro好像就是名字没改 其实是3.0pro
 
+
+*****
+
+####  ternayark  
+##### 9836#       发表于 2026-8-19 21:56
+
+本楼放个技术问题没问题吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+如何看待B友觉得弱智版通用人工智能已经实现了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这个技术推测有依据吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/34/e8ff7e7a86729f9f24e9fc2dbc1da4a0/image.jpg" referrerpolicy="no-referrer">
+
