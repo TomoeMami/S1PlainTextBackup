@@ -8813,3 +8813,150 @@ http://deepdemos.top/demo/demo-b516f4bb
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  haze.l  
+##### 9679#       发表于 2026-8-19 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105537&amp;ptid=2275806" target="_blank">居于月上伊莫库 发表于 2026-8-19 11:38</a>
+
+已薅 感谢可用
+
+随意接力下。</blockquote>
+薅了一个，感谢<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+邀请好友限时活动继续延长，体验OpenSquilla新功能畅享免费token
+[https://tokenrhythm.studio/i/rf_tr_KXeW4RJoJcSg8Yc6LeJ7h_vu](https://tokenrhythm.studio/i/rf_tr_KXeW4RJoJcSg8Yc6LeJ7h_vu)
+
+*****
+
+####  舞以  
+##### 9680#       发表于 2026-8-19 16:28
+
+这个大肥鱼人设怎么越看越可爱了😭
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  小野賢章  
+##### 9681#       发表于 2026-8-19 16:28
+
+用dsh写的几个模拟器玩具<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+逻辑电路：[https://litzh.github.io/visual/h ... t-simulator-v2.html](https://litzh.github.io/visual/html/logic-circuit-simulator-v2.html)
+
+模拟电路：[https://litzh.github.io/visual/html/circuit-simulator.html](https://litzh.github.io/visual/html/circuit-simulator.html)
+
+光学：[https://litzh.github.io/visual/html/fdtd_diffraction.html](https://litzh.github.io/visual/html/fdtd_diffraction.html)
+
+*****
+
+####  startraveller  
+##### 9682#       发表于 2026-8-19 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107115&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-19 15:38</a>
+我不接收高量化，48G 4090能达到在线v4flash的水平吗？</blockquote>
+速度还是差一些，而且qwen 27b的能力还是差v4flash一点，八成功力吧也就。
+
+*****
+
+####  FACS  
+##### 9683#       发表于 2026-8-19 16:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实是路由到opus6
+syl，中午任务没跑完继续跑，结果一看账单九块钱，梁文峰还是太吓人了<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛋黄酱Release  
+##### 9684#       发表于 2026-8-19 16:30
+
+opencode go的muse spark1.2好像限制并发次数，想在工作流里面测试一下发现一并行就超时报错<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">而且速度非常感人
+
+*****
+
+####  qwased  
+##### 9685#       发表于 2026-8-19 16:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107527&amp;ptid=2275806" target="_blank">狭义文具爱好者 发表于 2026-8-19 16:26</a>
+没有生物甲可能是opus5。我看了眼dc，没国内政治甲这个确实让人怀疑是不是国模。
+
+这事真挺难说清了。 ...</blockquote>
+这有什么好说的，等正式更新呗，现在这个性价比就是梁子，更新了确实稳定表现灰测性能那就是梁圣，不是那就只能降级牢梁了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  谎称  
+##### 9686#       发表于 2026-8-19 16:32
+
+俺也厚颜传个火，有需要的朋友拉个人头吧……
+
+邀请好友限时活动继续延长，体验OpenSquilla新功能畅享免费token
+https://tokenrhythm.studio/i/rf_tr_YSUlT-T0AjsXGLlqRxXBQBdQ
+
+
+*****
+
+####  GJRstone  
+##### 9687#       发表于 2026-8-19 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105434&amp;ptid=2275806" target="_blank">GJRstone 发表于 2026-8-19 11:25</a>
+忍痛滑到梁处。我都没蹬了怎么还在api性能下降。难道说</blockquote>
+难道说<img src="https://static.stage1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">已严肃滑动到梁圣
+
+*****
+
+####  qwased  
+##### 9688#       发表于 2026-8-19 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107553&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-19 16:29</a>
+速度还是差一些，而且qwen 27b的能力还是差v4flash一点，八成功力吧也就。</blockquote>
+小模型世界知识不行，完全靠雷霆大思考拉上限
+玩得比较深入的说建知识库可以明显提高业务表现，有想法的可以试试
+两张2080ti就能玩满血满速确实太诱人了
+
+
+*****
+
+####  julia黑  
+##### 9689#       发表于 2026-8-19 16:34
+
+DSH 是不是可以靠插件改成高级版酒馆，昨天让D老师给我搓了个私聊RP 预设，能跑通
+
+*****
+
+####  小野賢章  
+##### 9690#       发表于 2026-8-19 16:35
+
+本地部署的6bit量化qwen27b，让sol测试了一下模型性能，评价还可以<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/19/163454mjsvbqh14gosotss.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (81.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 16:34 上传
+
+*****
+
+####  海德先生  
+##### 9691#       发表于 2026-8-19 16:35
+
+梁文峰根本跑不起<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">黄金时代何日再来
+
+*****
+
+####  小野賢章  
+##### 9692#       发表于 2026-8-19 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107603&amp;ptid=2275806" target="_blank">julia黑 发表于 2026-8-19 16:34</a>
+
+DSH 是不是可以靠插件改成高级版酒馆，昨天让D老师给我搓了个私聊RP 预设，能跑通 ...</blockquote>
+[https://www.bilibili.com/video/BV19zgK6KE8X](https://www.bilibili.com/video/BV19zgK6KE8X)
+
+已经有制作gal的了
+

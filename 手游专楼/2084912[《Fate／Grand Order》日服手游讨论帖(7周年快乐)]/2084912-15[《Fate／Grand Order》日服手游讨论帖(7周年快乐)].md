@@ -4871,3 +4871,26 @@ _(:з」∠)_
 不如说你月很多设计都跟北欧深度挂钩的</blockquote>
 因为2.2也没说啊没敢想<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">不过你说是yjg我就纳得了，我本来觉得月球世界树搞不好也就锚住人理的功能
 
+
+*****
+
+####  alucardcz  
+##### 21493#       发表于 2026-8-19 16:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听说这次泳活被喷爆了？ 剧情方面没看不知道  意义不明的单挑一个接一个确实有点何意味  难道他们以为自己做的回合制很有游戏性？
+
+*****
+
+####  exiaexa  
+##### 21494#       发表于 2026-8-19 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107518&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-19 16:25</a>
+
+听说这次泳活被喷爆了？ 剧情方面没看不知道  意义不明的单挑一个接一个确实有点何意味  难道他们以为自己 ...</blockquote>
+就这次泳装的选角，能有趣就有鬼了
+
+三个男人，两个纯打酱油，但丁突出一个意义不明
+
+算了我还是直说吧，这次选的女人都是什么臭鱼烂虾，就你放一起都想不出能有什么梗
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

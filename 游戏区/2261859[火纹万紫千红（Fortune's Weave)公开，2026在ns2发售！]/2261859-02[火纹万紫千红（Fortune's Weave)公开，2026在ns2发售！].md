@@ -14602,3 +14602,33 @@ Honestly, I'm glossing over some of the stuff you can do, because there’s a lo
 只有一个档位，那我想留着通关前的存档，同时开一个新周目呢？</blockquote>
 开新号
 
+
+*****
+
+####  mai6696  
+##### 2858#       发表于 2026-8-19 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107489&amp;ptid=2261859" target="_blank">ubiquity 发表于 2026-8-19 16:22</a>
+
+开新号</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer"> 二周目没继承吗？
+
+我的意思是保留记忆转世重修，同时如果能留着上一世巅峰实力偶尔刷刷。
+
+*****
+
+####  whzfjd  
+##### 2859#       发表于 2026-8-19 16:29
+
+这次 IS 自己单干，但看透露的情节也已经挺详实的了，为什么 engage 要搞得那么扁平呢
+
+
+*****
+
+####  妮贝雅  
+##### 2860#       发表于 2026-8-19 16:34
+
+只有一个档就是限制玩家刷调整乱数吧
+
+不过这一作好像也没有结合的抽卡水井之类需要调乱数的东西啊
+
