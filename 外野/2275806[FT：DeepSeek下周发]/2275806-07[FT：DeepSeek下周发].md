@@ -8306,3 +8306,85 @@ muse spark不知道跟flash比怎么样 之前只听说高分低能但没真的�
 
 I'm不知道是不是也有类似的魔法词
 
+
+*****
+
+####  德尔惠净水器  
+##### 9630#       发表于 2026-8-19 15:17
+
+现在客户端的专家模式使用we need的频率高了很多
+
+*****
+
+####  crow_wine  
+##### 9631#       发表于 2026-8-19 15:18
+
+文峰时间不敢测了，我官网余额还倒欠 2块5毛 <img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飞天荷兰人  
+##### 9632#       发表于 2026-8-19 15:18
+
+官方好贵啊，搞了两个任务，18块没了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  goranger  
+##### 9633#       发表于 2026-8-19 15:19
+
+大的又要来了？
+
+*****
+
+####  zy450  
+##### 9634#       发表于 2026-8-19 15:19
+
+<img src="https://img.stage1st.com/forum/202608/19/151851l4000og6z0ev6fzd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 15:18 上传
+
+艹，i'm思维链停了，让继续，出现了let me，不玩了，牢梁继续修吧
+
+*****
+
+####  cscbzcbz  
+##### 9635#       发表于 2026-8-19 15:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106977&amp;ptid=2275806" target="_blank">zy450 发表于 2026-8-19 15:19</a>
+艹，i'm思维链停了，让继续，出现了let me，不玩了，牢梁继续修吧</blockquote>
+又路由到神秘模型了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tonyunreal  
+##### 9636#       发表于 2026-8-19 15:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106977&amp;ptid=2275806" target="_blank">zy450 发表于 2026-8-19 15:19</a>
+艹，i'm思维链停了，让继续，出现了let me，不玩了，牢梁继续修吧</blockquote>
+这情况就说明上下两次调用不是同一个模型吧
+难怪今天服务状态波动
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  tonyunreal  
+##### 9637#       发表于 2026-8-19 15:26
+
+【灰测复活！  deepseek v4 pro max 双叉臂演示-哔哩哔哩】 [https://b23.tv/AAS1Zc8](https://b23.tv/AAS1Zc8)
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  nxmonitor  
+##### 9638#       发表于 2026-8-19 15:27
+
+梁文谷时间再测吧，现在受不了
+
