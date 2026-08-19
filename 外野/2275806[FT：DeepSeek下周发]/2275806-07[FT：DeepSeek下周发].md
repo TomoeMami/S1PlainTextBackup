@@ -10564,3 +10564,12 @@ OpenCode Hy3大促销
 OpenCode Hy3大促销</blockquote>
 可惜Hy3 本身拉跨.
 
+
+*****
+
+####  scikirbypoke  
+##### 9849#       发表于 2026-8-19 23:37
+
+pi-antigravity拉完了，格式各种冲突，估计只装这个插件才能用
+薅了便宜哈基米的乖乖用反重力
+
