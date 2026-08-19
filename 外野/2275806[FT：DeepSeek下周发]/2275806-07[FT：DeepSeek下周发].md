@@ -9958,3 +9958,34 @@ flash还很容易分心，我做DSH插件出现过以下情况：工作区有其
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我用不上都是假的，还涨价，建议击毙梁文峰
 
+
+*****
+
+####  舞以  
+##### 9796#       发表于 2026-8-19 19:07
+
+放个教师模型出来收集一下轨迹，顺便秀秀肌肉<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  舞以  
+##### 9797#       发表于 2026-8-19 19:12
+
+我越想越悲观，这个神秘模型说不定单纯是ds的研究设施而已，就不是产品模型或者产品原型<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">。
+比如一个moe更稠密，注意力更稠密，kvcache更重，推理成本明显更高，甚至高到不适合投入商业运营的教师模型？或者标杆模型？
+现在的“灰测”也不是真正意义上的测试，说不定只是一次研究工作而已。
+ds真正的产品的目标是尽量保留教师的能力，也要尽量维持效率和经济性。
+我觉得这个神秘模型说不定永远都不会上，还是合理期待梁子先修好pro的adhd问题，再期待下一代吧<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  一般市民  
+##### 9798#       发表于 2026-8-19 19:14
+
+话说B站鲸鱼娘二创好像数量和质量都是新高吧，这方面真的AI圈头一号。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
