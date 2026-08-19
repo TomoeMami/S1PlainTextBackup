@@ -10866,3 +10866,117 @@ dsh rc8更了
 2. 命中不了ds的脏token，能命中claude的 ...</blockquote>
 那你倒是说说路由fable的理由是什么，天才
 
+
+*****
+
+####  phorcys02  
+##### 9877#       发表于 2026-8-20 01:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70110283&amp;ptid=2275806" target="_blank">nianiania 发表于 2026-8-20 01:05</a>
+
+最早只是开个玩笑，结果还真有信的
+
+—— 来自 vivo V2405A, Android 16, 鹅球 v3.5.99 ...</blockquote>
+变成meme以后，就永远会有拟人生物信了:D
+
+*****
+
+####  我猫呢?  
+##### 9878#       发表于 2026-8-20 01:14
+
+路由论者的思路：我爹吃面条，不吃米饭，所以你不准吃面条，除非你就是我爹<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿刚  
+##### 9879#       发表于 2026-8-20 01:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以又消失了吗，这个神秘灰测
+
+*****
+
+####  lly778  
+##### 9880#       发表于 2026-8-20 01:37
+
+少逛点ln，逛多了🧠真的会没
+
+
+*****
+
+####  真红之闪电  
+##### 9881#       发表于 2026-8-20 01:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70110271&amp;ptid=2275806" target="_blank">AzuEdit 发表于 2026-8-20 00:58</a>
+dsh rc8更了
+
+更新日志里面有段其他变更</blockquote>
+啊？这么一来我插件都不想搞了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Fuuki  
+##### 9882#       发表于 2026-8-20 02:13
+
+灰测模型都有哪些公认的特点，其中哪些不支持路由说？
+
+*****
+
+####  chuchoselph  
+##### 9883#       发表于 2026-8-20 02:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70110180&amp;ptid=2275806" target="_blank">骨于野 发表于 2026-8-20 00:29</a>
+
+所谓灰测就是路由fable啊
+
+1. 思维链不是ds的流式，而是一段一段出
+
+2. 命中不了ds的脏token，能命中claude的 ...</blockquote>
+你用过fable吗？能别拿你fable的脑袋来蹭ds灰测模型鞋底了好吗？痒得慌
+
+*****
+
+####  ycjiang1337  
+##### 9884#       发表于 2026-8-20 02:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70110429&amp;ptid=2275806" target="_blank">Fuuki 发表于 2026-8-20 02:13</a>
+灰测模型都有哪些公认的特点，其中哪些不支持路由说？</blockquote>
+相同prompt下，生成效果把Fable5干爆了
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  战术核辣条  
+##### 9885#       发表于 2026-8-20 04:25
+
+又搞灰测？有点梦回v4发布之前那段时间了，但v4最后只能说中规中矩吧。
+别最后搞成全是烂炒股价就行
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  wjxforever  
+##### 9886#       发表于 2026-8-20 04:32
+
+<blockquote>骨于野 发表于 2026-8-20 00:29
+所谓灰测就是路由fable啊
+
+1. 思维链不是ds的流式，而是一段一段出
+
+2. 命中不了ds的脏token，能命中claude的 ...</blockquote>
+那你倒是说说路由fable的理由是什么，天才
+
+*****
+
+####  FACS  
+##### 9887#       发表于 2026-8-20 05:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70109471&amp;ptid=2275806" target="_blank">ternayark 发表于 2026-8-19 21:56</a>
+本楼放个技术问题没问题吧
+
+如何看待B友觉得弱智版通用人工智能已经实现了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">技术问题在哪
+
