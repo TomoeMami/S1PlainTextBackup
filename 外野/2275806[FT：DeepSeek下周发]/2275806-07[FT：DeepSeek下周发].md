@@ -10655,3 +10655,29 @@ pi-antigravity拉完了，格式各种冲突，估计只装这个插件才能用
 
 在DSH里用哈基米效果很好~
 
+
+*****
+
+####  骨于野  
+##### 9858#       发表于 2026-8-20 00:29
+
+所谓灰测就是路由fable啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+1. 思维链不是ds的流式，而是一段一段出
+2. 命中不了ds的脏token，能命中claude的脏token
+3. 一问生物问题就不再用I am思维链
+4. 东南小岛问题不正确
+5. 完全没有不发布比0813更强大模型的理由
+6. 灰测模型返回logprobs为空，而v4f和v4p都支持返回
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  2017.05.04  
+##### 9859#       发表于 2026-8-20 00:33
+
+真有人信
+
+—— 来自 HUAWEI SGT-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
