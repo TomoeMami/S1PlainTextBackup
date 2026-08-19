@@ -7787,3 +7787,51 @@ Tibo在推上给了解除上下文限制的方法。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  schneehertz  
+##### 9583#       发表于 2026-8-19 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105260&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-8-19 11:02</a>
+那看来要下载CODEX了，我用的是pi</blockquote>
+pi也能调，你让他自己调就行
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  野蛮人之夜  
+##### 9584#       发表于 2026-8-19 12:03
+
+ 本帖最后由 野蛮人之夜 于 2026-8-19 12:05 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105525&amp;ptid=2275806" target="_blank">ml1642879 发表于 2026-8-19 11:37</a>
+
+有没有办公室工作者分享一下经验，你们用什么harness或者claw，用flash还是pro来处理蛋疼的工作小结、周报 ...</blockquote>
+只涉及文本不涉及格式的话，网页版？免费<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+或者你在电脑上装个latex编辑器，要求网页版给你输出完整的latex格式，你自己编译成pdf格式，再用办公软件读出来转格式
+
+*****
+
+####  →熙←  
+##### 9585#       发表于 2026-8-19 12:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105632&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-19 11:48</a>
+
+看了一圈，超算互联网这个0731基本就是原来的价格？好像也没有峰谷价，是他们自己部署的吧。
+
+是我算错了嘛 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">坑就是蹬的人太多了, 直接蹬爆
+
+*****
+
+####  舞以  
+##### 9586#       发表于 2026-8-19 12:05
+
+gpt的模型风格就是会想得很细很全面<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+刚接触简直惊为天人，哇
+
+用久了会发现其实也就那样，如果你习惯人工多次介入来迭代修改的话5.6sol反而会显得有点慢。
+

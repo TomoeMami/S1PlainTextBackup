@@ -14346,3 +14346,19 @@ Today写了奥罗拉是神威法王的孩子。所以假如奥罗拉是凯伊的
 
 尤法斯就是索雷尔，玛丽卡就是拉达冈，那么转世能变性也合理了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kalavinka  
+##### 2835#       发表于 2026-8-19 11:59
+
+倒也说得通<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/19/115722lpkyapcyj1aacpac.jpg" referrerpolicy="no-referrer">
+
+<strong>346ba46eddc451da97887ceff0fd5266d11632f1.jpg</strong> (150.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 11:57 上传
+
