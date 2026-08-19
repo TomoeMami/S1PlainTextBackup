@@ -10290,3 +10290,11 @@ token单价增加，总限额还降低了，原来是60刀，现在只有30刀�
 Fable倒是有个新的办法可以偷</blockquote>
 注意是“实时”，这个在技术上除非直接攻破A/服务器，否则不可能用任何方法实现
 
+
+*****
+
+####  小野賢章  
+##### 9826#       发表于 2026-8-19 20:53
+
+就没有人试试直接调用API看看这个模型能不能识别图片吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
