@@ -5137,3 +5137,15 @@ _(:з」∠)_
 
 TMD90++本的礼装掉率是不是调过？连续6张礼装全是伤害礼装，什么狗屎掉率。如果不是看到掉落栏还有一个空位，我还以为这本只掉伤害礼装呢<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 21513#       发表于 2026-8-20 02:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">再怎么说也是T0骑单体了，说句世一骑不过分（先别管这赛道有几个选手）
+
+看完近期小町动画和这几个强化，我都不敢想12周年拉二动画和玉玉强化本有多疯狂哦
+
+章西那礼装我还挺喜欢的，满破有这水平也够用了
+
