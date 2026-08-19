@@ -7532,3 +7532,35 @@ codex里面默认是272k，可以手动调到1m，但实测gpt的自动压缩还
 问题是太慢了（不知道是不是因为我开的只是 ...</blockquote>
 ultra慢，只用xhigh和max档没多慢吧，看起来慢只是不像国产模型一样一直吐思考过程
 
+
+*****
+
+####  zhongjie  
+##### 9562#       发表于 2026-8-19 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105108&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-19 10:43</a>
+这两天用了下gpt-5.6-sol，确实很强，逻辑比DS的模型要清晰很多
+
+问题是太慢了（不知道是不是因为我开的只是 ...</blockquote>
+很多情况开high就够了
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  2017.05.04  
+##### 9563#       发表于 2026-8-19 11:12
+
+ 本帖最后由 2017.05.04 于 2026-8-19 11:13 编辑 
+
+<img src="https://img.stage1st.com/forum/202608/19/111335w4161etj169pe4x2.png" referrerpolicy="no-referrer">
+
+<strong>AB72C385DA99EA1D411D5BE60FC27864.png</strong> (239.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 11:13 上传
+
+用户赶都赶不走.jpg
+
