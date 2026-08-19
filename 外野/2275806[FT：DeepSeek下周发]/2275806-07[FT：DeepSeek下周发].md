@@ -10691,3 +10691,46 @@ pi-antigravity拉完了，格式各种冲突，估计只装这个插件才能用
 
 超时空路由Fable114514
 
+
+*****
+
+####  ycjiang1337  
+##### 9861#       发表于 2026-8-20 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70110180&amp;ptid=2275806" target="_blank">骨于野 发表于 2026-8-20 00:29</a>
+
+所谓灰测就是路由fable啊
+
+1. 思维链不是ds的流式，而是一段一段出
+
+2. 命中不了ds的脏token，能命中claude的 ...</blockquote>
+Fable5什么路边一条，也配碰瓷
+
+*****
+
+####  厍无春  
+##### 9862#       发表于 2026-8-20 00:47
+
+信路由fable的标记一下，以后卖他们保健品。
+
+你美爹febal5 opus5都做不出这种oneshot效果，就别舔了。哈哈哈哈
+
+
+*****
+
+####  RookieTnT  
+##### 9863#       发表于 2026-8-20 00:52
+
+hy3 比上不足，比下似乎比 Mimo V2.5 的分数强一点，刚刚试了下速度也挺快，刚好适合干一些低级的重复劳动
+
+*****
+
+####  Dreki  
+##### 9864#       发表于 2026-8-20 00:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70110180&amp;ptid=2275806" target="_blank">骨于野 发表于 2026-8-20 00:29</a>
+所谓灰测就是路由fable啊
+1. 思维链不是ds的流式，而是一段一段出
+2. 命中不了ds的脏token，能命中claude的 ...</blockquote>
+我再帮你补充一个，能回答生物安全问题是自动转到ds    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
