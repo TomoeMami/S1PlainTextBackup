@@ -111,3 +111,11 @@ https://campaign.theduskbloods.jp/p/event/networktest/mypage
 
 日服进去有中文，日服港服虽然两个SKU？但是全语言？希望正式版都是全区吧
 
+
+*****
+
+####  ParukiaMKII  
+##### 125#       发表于 2026-8-19 10:32
+
+咸鱼又卖激活码的，买激活码给没中的账号激活，可以玩么
+

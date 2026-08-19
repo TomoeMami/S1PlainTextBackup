@@ -7429,3 +7429,41 @@ let's, we need, i am?
 gpt上下文只有272k是正常的吗，而且用的超级快啊。习惯了DS的100M上下文，用DS的时候都是手动压缩的，这GPT ...</blockquote>
 是的，不过gpt压缩效果感觉还不错，实际使用体感没有太大的问题。
 
+
+*****
+
+####  小野賢章  
+##### 9554#       发表于 2026-8-19 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70104871&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-8-19 10:21</a>
+
+gpt上下文只有272k是正常的吗，而且用的超级快啊。习惯了DS的100M上下文，用DS的时候都是手动压缩的，这GPT ...</blockquote>
+gpt模型是支持1.05M的，但是默认限制272k是帮你省钱，因为超过272k的部分价格更贵
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 千千千千鸟 + 1原来如此
+
+查看全部评分
+
+
+*****
+
+####  小野賢章  
+##### 9555#       发表于 2026-8-19 10:33
+
+<img src="https://img.stage1st.com/forum/202608/19/103309bqk8hfdn8f0hdn8b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (123.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 10:33 上传
+
