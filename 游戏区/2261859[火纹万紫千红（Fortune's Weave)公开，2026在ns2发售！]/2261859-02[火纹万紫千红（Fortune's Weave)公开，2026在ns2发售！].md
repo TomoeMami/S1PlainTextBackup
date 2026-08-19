@@ -14213,3 +14213,23 @@ Polygon很不喜欢老任呀，之前很多老任游戏的低分是Polygon打的
 草，看贴吧说这人脖子上有个喉结罩所以很可能是男娘</blockquote>
 engage 的男娘让我生理性不适，别再来了<img src="https://static.stage1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 2821#       发表于 2026-8-19 09:16
+
+ 本帖最后由 mai6696 于 2026-8-19 09:17 编辑 
+
+<img src="https://img.stage1st.com/forum/202608/19/091604gztn0c0gzz3zyigi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (186.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 09:16 上传
+
+加百列都来了，这次是什么神话乱炖吗？
+
+不过三房就有拉斐尔来着。
+
