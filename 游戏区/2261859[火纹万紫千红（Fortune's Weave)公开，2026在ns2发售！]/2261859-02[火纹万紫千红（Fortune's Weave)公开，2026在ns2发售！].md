@@ -14632,3 +14632,30 @@ Honestly, I'm glossing over some of the stuff you can do, because there’s a lo
 
 不过这一作好像也没有结合的抽卡水井之类需要调乱数的东西啊
 
+
+*****
+
+####  Jabeck  
+##### 2861#       发表于 2026-8-19 16:36
+
+ engage 除了战斗动画都挺随便的，人设是随便二次元人设，建模也是人畜无害的萌萌二次元建模，人物塑造也是不断重复标签，这不就是随便的二次元角色吗。拉了一大堆老人目标是吸引新世代来**纹，估计觉得新世代二次元接受不了复杂的剧情就弄得很随便。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过火纹觉醒和IF主线也没多好。
+
+*****
+
+####  bbluekid  
+##### 2862#       发表于 2026-8-19 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107555&amp;ptid=2261859" target="_blank">whzfjd 发表于 2026-8-19 16:29</a>
+这次 IS 自己单干，但看透露的情节也已经挺详实的了，为什么 engage 要搞得那么扁平呢 ...</blockquote>
+可能因为周年主题？关公秦琼的戏不能写的太认真。本就是个嘉年华
+
+
+*****
+
+####  hkguty  
+##### 2863#       发表于 2026-8-19 16:43
+
+额，火纹原来是设定这么考究的游戏吗
+

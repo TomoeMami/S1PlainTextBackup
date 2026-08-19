@@ -8960,3 +8960,89 @@ DSH 是不是可以靠插件改成高级版酒馆，昨天让D老师给我搓了
 
 已经有制作gal的了
 
+
+*****
+
+####  舞以  
+##### 9693#       发表于 2026-8-19 16:38
+
+艹，在b站找视频看到漏油了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+现在已经是路由opus5了么，Opus路由进来真有体感差距么我很好奇<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+反正我测双叉臂的产物pro不流口水是比sol强一档
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nxmonitor  
+##### 9694#       发表于 2026-8-19 16:39
+
+opus5没有这么强，和fable的差距就是缺少了点灵性，一句话生成的项目尤其明显
+
+*****
+
+####  tillnight  
+##### 9695#       发表于 2026-8-19 16:41
+
+还是那句话，现在摸出来的池盒之类的测试，是之前包括fable在内的顶模都没摸出来过的效果。
+
+*****
+
+####  tonyunreal  
+##### 9696#       发表于 2026-8-19 16:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107607&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-19 16:35</a>
+
+本地部署的6bit量化qwen27b，让sol测试了一下模型性能，评价还可以</blockquote>
+这速度是上了DFlash2么，48G显存？
+
+
+*****
+
+####  overflowal  
+##### 9697#       发表于 2026-8-19 16:45
+
+还真是耽误agi训练了<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 9698#       发表于 2026-8-19 16:45
+
+【deepseek这复活的灰测模型太厉害！或许超越7月！ 超段提示词武装飞机建模】 [https://www.bilibili.com/video/BV1U38E6kE1H/](https://www.bilibili.com/video/BV1U38E6kE1H/)
+
+*****
+
+####  小野賢章  
+##### 9699#       发表于 2026-8-19 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107664&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-19 16:42</a>
+
+这速度是上了DFlash2么，48G显存？</blockquote>
+是mac，6bit量化，占用20G内存，用的mlx，DFlash2我没设置，不知道默认开不开
+
+*****
+
+####  cscbzcbz  
+##### 9700#       发表于 2026-8-19 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107687&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-19 16:45</a>
+
+【deepseek这复活的灰测模型太厉害！或许超越7月！ 超段提示词武装飞机建模】 [https://www.bilibili.com/vi](https://www.bilibili.com/vi) ...</blockquote>
+
+这又是个什么玩意<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+这是AI生成的？
+
+难道有多模态了？
+
+*****
+
+####  小野賢章  
+##### 9701#       发表于 2026-8-19 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107687&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-19 16:45</a>
+
+【deepseek这复活的灰测模型太厉害！或许超越7月！ 超段提示词武装飞机建模】 https://www.bilibili.com/vi ...</blockquote>
+这个还是标准模式<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
