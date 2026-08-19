@@ -90,3 +90,26 @@ pc版第一作有4k分辨率的，但全程120帧其实是有点难度的。78X3
 貌似切换场景就有可能触发这个bug</blockquote>
 希望玩的时候能很容易就能触发这些bug<img src="https://static.stage1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 155#         楼主| 发表于 2026-8-19 11:23
+
+传国内视频站可能不行
+
+转个X连接
+[https://x.com/LgYN3LHUofNuQzM/status/2089300598755938403](https://x.com/LgYN3LHUofNuQzM/status/2089300598755938403)
+
+这个的再现性貌似很高
+
+顺便今天是310生日
+
+<img src="https://img.stage1st.com/forum/202608/19/112301vrbvn5v8ny8inx41.png" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202608/19/112301vrbvn5v8ny8inx41.png">
+
+<strong>image.png</strong> (94.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 11:23 上传
+

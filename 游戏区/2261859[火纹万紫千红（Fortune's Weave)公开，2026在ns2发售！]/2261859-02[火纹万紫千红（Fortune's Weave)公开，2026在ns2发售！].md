@@ -14330,3 +14330,11 @@ Today写了奥罗拉是神威法王的孩子。所以假如奥罗拉是凯伊的
 
 马丁:我说奇幻就得有烂裤裆环节，有没有懂的。
 
+
+*****
+
+####  qiyu1234  
+##### 2833#       发表于 2026-8-19 11:23
+
+不知道为什么很想听君子兰被打死后的尖叫<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
