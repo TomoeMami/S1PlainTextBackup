@@ -7109,3 +7109,40 @@ deepseek 涨价了，我再发一遍这个吧，注册就送68元额度，api哪
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  矮矮人  
+##### 9524#       发表于 2026-8-19 08:47
+
+现在办公用哪个厂商的比较好？在考虑付费
+gpt在单位不方便用魔法
+workbuddy用了下还行，但是积分消耗挺快的
+豆包现在免费档，经常遇到算力不够要多刷新
+ds没多模态，处理文件方面还是不方便
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  zhongjie  
+##### 9525#       发表于 2026-8-19 08:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70104099&amp;ptid=2275806" target="_blank">矮矮人 发表于 2026-8-19 08:47</a>
+现在办公用哪个厂商的比较好？在考虑付费
+gpt在单位不方便用魔法
+workbuddy用了下还行，但是积分消耗挺快的 ...</blockquote>
+mini max3，mimo2.5或者k3
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  bartholo4  
+##### 9526#       发表于 2026-8-19 08:52
+
+办公如果在用飞书那就用 traework
+最低档位即可 每天还可以签到领 200 积分
+平时用 DeepSeek 模型，重一点的需求用 glm5.3 或者 qwen3.8max
+
