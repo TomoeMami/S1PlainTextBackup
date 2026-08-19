@@ -7944,3 +7944,33 @@ qwen3.8max我网页版用了下感觉有点gpt的风格，不知道为啥
 
 Claude和GPT整天发新闻说自己解决了XX数学问题还有有用的。在琢磨要不要退掉ChatGPT Pro时候想了下， 只有这两家的模型顶尖到解决了数学问题.
 
+
+*****
+
+####  SmterC  
+##### 9597#       发表于 2026-8-19 12:50
+
+ 本帖最后由 SmterC 于 2026-8-19 12:51 编辑 
+
+之前就觉得GPT规划方面很别扭
+面对需求各种删，强调MVP不能太复杂
+实现细节上过于较真，甚至把需求改歪了
+所以有没有好的规划模型推荐
+适合matt skills的wayfinder，grill之类的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  舞以  
+##### 9598#       发表于 2026-8-19 12:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106085&amp;ptid=2275806" target="_blank">SmterC 发表于 2026-8-19 12:50</a>
+
+之前就觉得GPT规划方面很别扭
+
+面对需求各种删，强调MVP不能太复杂
+
+实现细节上过于较真，甚至把需求改歪了</blockquote>
+据说Claude系列比较适合？
+
+但是a\风控我，我也懒得上赶着送钱了
+
