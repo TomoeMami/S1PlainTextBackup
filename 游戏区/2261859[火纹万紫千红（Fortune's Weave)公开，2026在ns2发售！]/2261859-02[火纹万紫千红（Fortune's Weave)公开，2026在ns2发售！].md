@@ -14592,3 +14592,13 @@ Honestly, I'm glossing over some of the stuff you can do, because there’s a lo
 
 只有一个档位，那我想留着通关前的存档，同时开一个新周目呢？
 
+
+*****
+
+####  ubiquity  
+##### 2857#       发表于 2026-8-19 16:22
+
+<blockquote>mai6696 发表于 2026-8-19 16:10
+只有一个档位，那我想留着通关前的存档，同时开一个新周目呢？</blockquote>
+开新号
+
