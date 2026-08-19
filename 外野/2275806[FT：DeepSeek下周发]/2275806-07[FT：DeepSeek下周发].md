@@ -10618,3 +10618,40 @@ https://www.bilibili.com/video/BV1eN8n6sEPs
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  scikirbypoke  
+##### 9854#       发表于 2026-8-20 00:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70109953&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-8-19 23:37</a>
+pi-antigravity拉完了，格式各种冲突，估计只装这个插件才能用
+薅了便宜哈基米的乖乖用反重力 ...</blockquote>
+哈基米真快吧，不愧是有tpu的
+
+*****
+
+####  goranger  
+##### 9855#       发表于 2026-8-20 00:16
+
+一根胡萝卜就能吊着跑很久了。但我现阶段只需要便宜耐蹬性能可靠的flash！
+
+
+*****
+
+####  lactone  
+##### 9856#       发表于 2026-8-20 00:21
+
+腾讯快出hy4 了吧，如果保持这个价格且赶上flash，那不挺好。
+
+不过看腾讯的意思，hy不想卷coding，workbuddy的数据还是日常工作像的
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  bartholo4  
+##### 9857#       发表于 2026-8-20 00:23
+
+在DSH里用哈基米效果很好~
+
