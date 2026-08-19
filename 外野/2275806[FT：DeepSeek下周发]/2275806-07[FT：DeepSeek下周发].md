@@ -10220,3 +10220,22 @@ dsh 极简模式的插件，有同样效果的pi版本吗？</blockquote>
 
 这个确实有点离谱...
 
+
+*****
+
+####  龙骑士尹志平  
+##### 9819#       发表于 2026-8-19 20:07
+
+opencodego现在怎么用起来飞快，我都是梁文谷选flash用，感觉一个晚上就能烧完一周的token
+
+*****
+
+####  舞以  
+##### 9820#       发表于 2026-8-19 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108914&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-19 20:07</a>
+opencodego现在怎么用起来飞快，我都是梁文谷选flash用，感觉一个晚上就能烧完一周的token ...</blockquote>
+token单价增加，总限额还降低了，原来是60刀，现在只有30刀。（之前还只有十五刀，刚刚加了倍）
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
