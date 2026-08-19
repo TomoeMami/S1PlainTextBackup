@@ -8046,3 +8046,22 @@ qwen 3.8 27b=思考更长能力差不多的v4flash
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  jojog  
+##### 9604#       发表于 2026-8-19 13:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">OPUS的NSFW卡的特别死 FABLE不怎么卡基本上啥都不会拒
+
+A/恶心
+
+*****
+
+####  是挞不是派  
+##### 9605#       发表于 2026-8-19 13:27
+
+gpt使用中很容易被卡生物安全风险，做生物的要注意下，特别是细菌病毒相关
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
