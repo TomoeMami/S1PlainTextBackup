@@ -5065,3 +5065,27 @@ _(:з」∠)_
 贝露丹蒂的画师认领角色了：</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊？ 难道不是巨大退步 下面不是挺正常的 上面是人？
 
+
+*****
+
+####  Jamaisvu  
+##### 21507#       发表于 2026-8-19 19:52
+
+<blockquote>alucardcz 发表于 2026-8-19 19:45
+啊？ 难道不是巨大退步 下面不是挺正常的 上面是人？</blockquote>
+学生会漫画那几张画风有点简单，稍显潦草，不过章西女王礼装挺好看的。
+
+贝露丹蒂的问题是胸画得太难看了，看剧情设定有好像因为是巨人血脉，自带“巨大化”的性质，所以超量脂肪是底层逻辑...
+
+*****
+
+####  alucardcz  
+##### 21508#       发表于 2026-8-19 19:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108851&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2026-8-19 19:52</a>
+
+学生会漫画那几张画风有点简单，稍显潦草，不过章西女王礼装挺好看的。
+
+贝露丹蒂的问题是胸画得太难看了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还以为你说封面呢  这不是完全大退化（
+

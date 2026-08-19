@@ -10156,3 +10156,67 @@ dsh 极简模式的插件，有同样效果的pi版本吗？</blockquote>
 
 我也来接力一个基元的羊毛
 
+
+*****
+
+####  厍无春  
+##### 9814#       发表于 2026-8-19 19:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108793&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-19 19:42</a>
+等会试试，这是我之前试了3次，画得最接近的一次，也还是错误的</blockquote>
+灰测已经抽不出来了，出现im doing 为主的思维链基本可以确定是灰测。4点那块很多人都是这样，现在基本没了。
+
+*****
+
+####  phorcys02  
+##### 9815#       发表于 2026-8-19 19:48
+
+都2026.8.19了， 凡是提到路由，不是在反讽，玩梗
+
+哪怕有1%，还试图要“证明”“说明”“表示”“站队”的。
+
+我觉得可以看看脑子了，是不是阿兹海默了。
+
+*****
+
+####  LeoDT  
+##### 9816#       发表于 2026-8-19 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108779&amp;ptid=2275806" target="_blank">赤星ビスコ 发表于 2026-8-19 19:40</a>
+
+dsh 极简模式的插件，有同样效果的pi版本吗？</blockquote>
+我之前做了个锚定的版本，可以往前翻翻，能用。
+
+但是真要做极简模式，需要把Pi的bash工具schema改成dsh的schema，然后再克隆弄一个str_replace_editor工具过来且保证schema一样，D老师看上去是对tools schema特别敏感。我觉得有点过于麻烦，所以就用简单的锚定版凑合，至少能避免let me超常思考已经挺好了。
+
+
+*****
+
+####  tonyunreal  
+##### 9817#       发表于 2026-8-19 19:52
+
+ 本帖最后由 tonyunreal 于 2026-8-19 19:54 编辑 
+
+别说抽灰测了，为啥我的pro连最普通的写文档的活都瞎干了 <img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+既不看工作区现有文档，内容也是瞎写
+
+喷了，我说“你从头思考一下，你现在的工作流程”
+
+现在他知道该干什么了
+
+*****
+
+####  phorcys02  
+##### 9818#       发表于 2026-8-19 19:54
+
+<img src="https://img.stage1st.com/forum/202608/19/195347gy7ggoycog7or4lc.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (235.78 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 19:53 上传
+
+这个确实有点离谱...
+
