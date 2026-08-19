@@ -10814,3 +10814,18 @@ dsh rc8更了
 
 灰测模型都有哪些公认的特点，其中哪些不支持路由说？
 
+
+*****
+
+####  chuchoselph  
+##### 9873#       发表于 2026-8-20 02:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70110180&amp;ptid=2275806" target="_blank">骨于野 发表于 2026-8-20 00:29</a>
+
+所谓灰测就是路由fable啊
+
+1. 思维链不是ds的流式，而是一段一段出
+
+2. 命中不了ds的脏token，能命中claude的 ...</blockquote>
+你用过fable吗？能别拿你fable的脑袋来蹭ds灰测模型鞋底了好吗？痒得慌
+
