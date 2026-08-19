@@ -5101,3 +5101,13 @@ _(:з」∠)_
 
 不过事已至此，只能期待剩下满破卡面能好看些吧...
 
+
+*****
+
+####  khxooo  
+##### 21510#       发表于 2026-8-19 20:23
+
+ 本帖最后由 khxooo 于 2026-8-19 20:25 编辑 
+
+靠了，虹光一闪，伤害礼装，在90++塞伤害礼装何意味啊？<img src="https://static.stage1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+

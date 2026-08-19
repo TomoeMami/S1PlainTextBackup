@@ -14793,3 +14793,41 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 
 相比之下煤暗之章过一遍就永久有效
 
+
+*****
+
+####  57042711  
+##### 2878#       发表于 2026-8-19 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107670&amp;ptid=2261859" target="_blank">hkguty 发表于 2026-8-19 16:43</a>
+额，火纹原来是设定这么考究的游戏吗</blockquote>
+本来就是历史slg嘛<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  xwr  
+##### 2879#       发表于 2026-8-19 20:21
+
+新短片基本实锤凯伊是奥罗拉的儿子了吧。
+
+*****
+
+####  57042711  
+##### 2880#       发表于 2026-8-19 20:23
+
+这次加了很多战技，角色差异这块应该不用担心的…几个英雄麾下的人也都不一样嘛<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  flyingover  
+##### 2881#       发表于 2026-8-19 20:23
+
+<img src="https://img.stage1st.com/forum/202608/19/202351lki48a0k8lyvivpk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.81 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 20:23 上传
+

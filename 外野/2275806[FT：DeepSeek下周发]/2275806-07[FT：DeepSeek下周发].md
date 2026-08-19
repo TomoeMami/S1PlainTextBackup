@@ -10239,3 +10239,25 @@ token单价增加，总限额还降低了，原来是60刀，现在只有30刀�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  wandeeees  
+##### 9821#       发表于 2026-8-19 20:20
+
+【高维碎片再临？deepseek再次制作逆转裁判！完成度惊人】 [https://www.bilibili.com/video/B ... 941d8f7005a5aed7080](https://www.bilibili.com/video/BV1W48n63EaG/?share_source=copy_web&amp;vd_source=cbccd62de7b2c941d8f7005a5aed7080)
+
+逆转裁判这个效果太吓人了<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">虽然花费也很吓人就是了
+
+
+*****
+
+####  tonyunreal  
+##### 9822#       发表于 2026-8-19 20:22
+
+<img src="https://p.sda1.dev/34/d7ed2a970d34c3c2c5c977c209631a5c/1000048562.jpg" referrerpolicy="no-referrer">
+
+群里有人发的
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
