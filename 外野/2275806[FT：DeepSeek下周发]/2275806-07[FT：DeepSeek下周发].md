@@ -9266,3 +9266,76 @@ mlx好像只能跑DFlash一代
 
 梁叔叔有时空机器，通过路由来mythos破解了美国战争部的防护，成功稳定路由到了战争部特供mythos，实现了时空闭环<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  →熙←  
+##### 9726#       发表于 2026-8-19 17:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要能稳定出效果, 不看梁文谷了, 梁文峰也要被蹬爆了
+
+*****
+
+####  chuchoselph  
+##### 9727#       发表于 2026-8-19 17:11
+
+不是这个武装直升机也太野了吧，路由到AGI了？<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  王兰花秀丽  
+##### 9728#       发表于 2026-8-19 17:12
+
+ 本帖最后由 王兰花秀丽 于 2026-8-19 17:13 编辑 
+
+【鲸鱼从来没有陨落，本人再次道歉-哔哩哔哩直播】 https://live.bilibili.com/30068664
+
+又开始孝了<img src="https://static.stage1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 9729#       发表于 2026-8-19 17:12
+
+梁子手里有好模型不给我们用<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  来都来了  
+##### 9730#       发表于 2026-8-19 17:15
+
+模型再好，价格降不下来有什么用
+
+*****
+
+####  舞以  
+##### 9731#       发表于 2026-8-19 17:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计是内部模型拿来api灰度测试一下吧
+
+估计规模很大，目前的ds不认为适合当做商业模型放出来？
+
+ds的内部下一代大模型＞现在的Claude旗舰也能解释通了
+
+毕竟Claude肯定也有自己的内部模型<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这样大家都能赢了
+
+*****
+
+####  lly778  
+##### 9732#       发表于 2026-8-19 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107973&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-19 17:15</a>
+
+模型再好，价格降不下来有什么用</blockquote>
+真稳定灰测水平，现在的价格再升几倍都算便宜的
+
+*****
+
+####  tillnight  
+##### 9733#       发表于 2026-8-19 17:17
+
+Dsh能更好的观察吐字速度，这40-50t的速度其实可以印证两个事情，一这不是路由，a/没那么慢。二这确实不是v4基模，是一个不同的模型。
+
