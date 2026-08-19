@@ -8507,3 +8507,73 @@ q8是29g 官方fp8好像更小
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  高粱河车神  
+##### 9650#       发表于 2026-8-19 15:59
+
+用了几天写工作材料，感觉4pro+dsh的效果，比kimi还好一些
+
+而且便宜很多，kimi我买的最低档会员，两三个材料搞完基本就把一个月额度用完了
+
+ds我写完一个才用了1块多钱
+
+*****
+
+####  qwased  
+##### 9651#       发表于 2026-8-19 16:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107115&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-19 15:38</a>
+
+我不接收高量化，48G 4090能达到在线v4flash的水平吗？</blockquote>
+5090能跑80~100tps的样子，除了上下文长了吐字速度会慢和思考时间很长以外基本就是v4flash的水平了
+
+你可以去之前坛友提到的云平台租一个4080s 32g测试一下
+
+
+*****
+
+####  stackoverflow  
+##### 9652#       发表于 2026-8-19 16:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107139&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-19 15:41</a>
+
+tool_count_limit
+
+这是带过去的工具数量太多被api提供商拒绝了？试试极简模式呢？</blockquote>
+极简模式是能用的，但是极简模式干不了活<img src="https://static.stage1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+*****
+
+####  居于月上伊莫库  
+##### 9653#       发表于 2026-8-19 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106324&amp;ptid=2275806" target="_blank">飞天荷兰人 发表于 2026-8-19 13:35</a>
+他的奖励要用他那个专用软件才行，
+
+新用户赠送额度        ¥10.00        ¥9.47        2026-08-19 08:47:54        2026-09-19 08:4 ...</blockquote>
+是的，下了桌面版随便问点简单问题就放了剩下58.
+
+—— 来自 realme RMX5010, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  大喵喵  
+##### 9654#       发表于 2026-8-19 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107112&amp;ptid=2275806" target="_blank">stackoverflow 发表于 2026-8-19 15:37</a>
+
+dsh 400报错有遇到的坛友吗，中午睡了个午觉就用不了了
+
+本轮运行失败400: {"param":"tools","type":"inval ...</blockquote>
+遇到了，opencode go的订阅，切换回高价 ds官方api就没事，用opencode 也没事。
+
+*****
+
+####  王兰花秀丽  
+##### 9655#       发表于 2026-8-19 16:07
+
+真的假的大的又来了？我要跳脸孝了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
