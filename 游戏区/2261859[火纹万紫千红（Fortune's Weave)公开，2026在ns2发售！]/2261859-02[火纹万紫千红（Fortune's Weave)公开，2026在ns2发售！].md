@@ -14203,3 +14203,13 @@ Polygon很不喜欢老任呀，之前很多老任游戏的低分是Polygon打的
 草，看贴吧说这人脖子上有个喉结罩所以很可能是男娘</blockquote>
 更喜欢了。
 
+
+*****
+
+####  otakun  
+##### 2820#       发表于 2026-8-19 09:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70103990&amp;ptid=2261859" target="_blank">虚无缥缈的分身 发表于 2026-8-19 08:23</a>
+草，看贴吧说这人脖子上有个喉结罩所以很可能是男娘</blockquote>
+engage 的男娘让我生理性不适，别再来了<img src="https://static.stage1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+

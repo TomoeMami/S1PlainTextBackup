@@ -7181,3 +7181,28 @@ https://tokenrhythm.studio/i/rf_tr_bkuV ...</blockquote>
 邀请好友限时活动继续延长，体验OpenSquilla新功能畅享免费token
 [https://tokenrhythm.studio/i/rf_tr_cobPrRDuQUaIZL0uvrWifL5c](https://tokenrhythm.studio/i/rf_tr_cobPrRDuQUaIZL0uvrWifL5c)
 
+
+*****
+
+####  冤枉呐  
+##### 9530#       发表于 2026-8-19 09:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70103752&amp;ptid=2275806" target="_blank">厍无春 发表于 2026-8-19 04:38</a>
+
+邀请好友限时活动继续延长，体验OpenSquilla新功能畅享免费token
+
+https://tokenrhythm.studio/i/rf_tr_bkuV ...</blockquote>
+注册送的额度必须一个月用完
+
+
+*****
+
+####  crow_wine  
+##### 9531#       发表于 2026-8-19 09:12
+
+ 本帖最后由 crow_wine 于 2026-8-19 09:15 编辑 
+
+国算平台上 0813 了，让我来尝尝咸淡
+
+好像没部署好，连不上
+
