@@ -8032,3 +8032,17 @@ qwen 3.8 27b=思考更长能力差不多的v4flash
 不过搞的是opencode+翻译勘误工作 还没让写代码</blockquote>
 尽量别开mtp，我感觉内置这个mtp非常累赘，要吃2G+显存不说，上下文到5w开始速度就跳水到二十几tks了
 
+
+*****
+
+####  neptunehs  
+##### 9603#       发表于 2026-8-19 13:16
+
+ 本帖最后由 neptunehs 于 2026-8-19 13:17 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70106179&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-19 13:07</a>
+尽量别开mtp，我感觉内置这个mtp非常累赘，要吃2G+显存不说，上下文到5w开始速度就跳水到二十几tks了 ...</blockquote>
+确实只有20多tps了。在哪关？
+看到了。
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
