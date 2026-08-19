@@ -14472,3 +14472,13 @@ Today写了奥罗拉是神威法王的孩子。所以假如奥罗拉是凯伊的
 
 ——神威法王还要不断喊痛，太痛了之类的话。
 
+
+*****
+
+####  Beaverfan01  
+##### 2844#       发表于 2026-8-19 14:23
+
+wccftech的原文
+
+Honestly, I'm glossing over some of the stuff you can do, because there’s a lot. Perhaps a bit too much sometimes. Unlike Three Houses, which mostly kept the extracurriculars on a tight weekly schedule, Fortune's Weave gives you a ton of in-game days to spend on different actions in between major battles. Between all the side stuff and this game’s sometimes lengthy cutscenes, there were times when I spent 90 minutes or more without seeing a traditional Fire Emblem tactical battle. Messing around can be fun, but if you're spending more time on the side stuff than on what's supposed to be the core of the game, is it really still side stuff?
+
