@@ -8434,3 +8434,44 @@ dsh 400报错有遇到的坛友吗，中午睡了个午觉就用不了了<img sr
 
 本轮运行失败400: {"param":"tools","type":"invalid_request_error","message":"Error from provider (Console Go): Upstream request failed: [unsupported_tool_schema] The tool schema is not supported (tool_count_limit)."}
 
+
+*****
+
+####  自由之紫roy  
+##### 9643#       发表于 2026-8-19 15:38
+
+我不接收高量化，48G 4090能达到在线v4flash的水平吗？
+
+*****
+
+####  蛋黄酱Release  
+##### 9644#       发表于 2026-8-19 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107112&amp;ptid=2275806" target="_blank">stackoverflow 发表于 2026-8-19 15:37</a>
+dsh 400报错有遇到的坛友吗，中午睡了个午觉就用不了了
+
+本轮运行失败400: {"param":"tools","type":"inval ...</blockquote>
+我也遇到了 感觉是新版本的某种bug？
+
+*****
+
+####  半江瑟瑟半江红  
+##### 9645#       发表于 2026-8-19 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107112&amp;ptid=2275806" target="_blank">stackoverflow 发表于 2026-8-19 15:37</a>
+dsh 400报错有遇到的坛友吗，中午睡了个午觉就用不了了
+
+本轮运行失败400: {"param":"tools","type":"inval ...</blockquote>
+tool_count_limit
+这是带过去的工具数量太多被api提供商拒绝了？试试极简模式呢？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  →熙←  
+##### 9646#       发表于 2026-8-19 15:42
+
+400报错问题是会中断,直接让ds自己写一个插件,自动重试就行了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
