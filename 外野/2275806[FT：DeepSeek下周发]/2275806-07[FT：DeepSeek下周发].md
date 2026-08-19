@@ -7146,3 +7146,38 @@ mini max3，mimo2.5或者k3
 最低档位即可 每天还可以签到领 200 积分
 平时用 DeepSeek 模型，重一点的需求用 glm5.3 或者 qwen3.8max
 
+
+*****
+
+####  小野賢章  
+##### 9527#       发表于 2026-8-19 08:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70103283&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-19 00:06</a>
+
+第三方这区样，感觉反面证明0731之后梁子给大伙真调了不少推理算力吧，只是偶尔爆炸一下，我都没碰到过429 ...</blockquote>
+我猜梁子应该整个公司一个算力池子，不限速也不保留算力，所以才会设置在北京时间的高峰期，因为用户用多了，员工就没得用了。
+
+*****
+
+####  qwased  
+##### 9528#       发表于 2026-8-19 08:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70104147&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-19 08:55</a>
+我猜梁子应该整个公司一个算力池子，不限速也不保留算力，所以才会设置在北京时间的高峰期，因为用户用多 ...</blockquote>
+训练又不会因为员工下班就停了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">而且全球的算力需求又不会照顾北京时间
+
+*****
+
+####  飞天荷兰人  
+##### 9529#       发表于 2026-8-19 08:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70103752&amp;ptid=2275806" target="_blank">厍无春 发表于 2026-8-19 04:38</a>
+
+邀请好友限时活动继续延长，体验OpenSquilla新功能畅享免费token
+
+https://tokenrhythm.studio/i/rf_tr_bkuV ...</blockquote>
+哇噢，这个可以！感谢邀请，省了一波token。
+
+邀请好友限时活动继续延长，体验OpenSquilla新功能畅享免费token
+[https://tokenrhythm.studio/i/rf_tr_cobPrRDuQUaIZL0uvrWifL5c](https://tokenrhythm.studio/i/rf_tr_cobPrRDuQUaIZL0uvrWifL5c)
+
