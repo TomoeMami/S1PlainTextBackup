@@ -10455,3 +10455,31 @@ gemini-2.5我看到中转站有啊  怎么都一副他已经死了的样子 �
 如何看待B友觉得弱智版通用人工智能已经实现了</blockquote>
 说明b友是2b小模型，产生幻觉了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tonyunreal  
+##### 9839#       发表于 2026-8-19 22:29
+
+ 本帖最后由 tonyunreal 于 2026-8-19 22:31 编辑 
+
+[http://deepdemos.top/demo/demo-95d36ec4](http://deepdemos.top/demo/demo-95d36ec4)
+
+主播生成了7个小时才结束的双子塔崩塌
+
+可能只有前两个小时是灰测模型，不过也远超之前的结果了
+
+看不清的话把粉尘拉到0%
+
+*****
+
+####  phorcys02  
+##### 9840#       发表于 2026-8-19 22:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70109471&amp;ptid=2275806" target="_blank">ternayark 发表于 2026-8-19 21:56</a>
+
+本楼放个技术问题没问题吧
+
+如何看待B友觉得弱智版通用人工智能已经实现了</blockquote>
+建议家访下看看是不是小学生
+
