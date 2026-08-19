@@ -9824,3 +9824,34 @@ qwen3.8 27b的aa跑分52<img src="https://static.stage1st.com/image/smiley/face2
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  小野賢章  
+##### 9783#       发表于 2026-8-19 18:25
+
+这个神了
+
+<img src="https://img.stage1st.com/forum/202608/19/182551agxxxb1lc5jxgi55.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (334.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 18:25 上传
+
+*****
+
+####  lly778  
+##### 9784#       发表于 2026-8-19 18:28
+
+而且今天灰测到的模型肉眼看来比7月份又强了很多，只能说路由到A/的内部模型了
+
+
+*****
+
+####  小野賢章  
+##### 9785#       发表于 2026-8-19 18:31
+
+梁子可以安排自己的infra团队去给第三方平台优化、部署，作为交换这些平台要把数据给deepseek，这样deepseek就不用提供在线服务了，算力全都用来研发新模型<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
