@@ -459,3 +459,19 @@ Reddit那边还是加分制的人居多，S1这边除非是系列粉否则一向
 不至于吧，我4070笔记本都能2k中画质稳80帧玩的（没开帧生成），是不是着色器bug了？ ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不清楚啊 反复安装都这样 放弃了 
 
+
+*****
+
+####  herryk159  
+##### 51#       发表于 2026-8-19 17:39
+
+<img src="https://img.stage1st.com/forum/202608/19/173846pkqfqhkhkmz7q47k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (72.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 17:38 上传
+
+这春丽同款身形的躯壳，有点东西啊
+

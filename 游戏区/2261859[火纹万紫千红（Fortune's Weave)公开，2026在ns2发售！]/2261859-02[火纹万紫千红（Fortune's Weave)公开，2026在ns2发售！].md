@@ -14675,3 +14675,23 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 
 就算有小的5年后也变大了吧
 
+
+*****
+
+####  caicaistar  
+##### 2866#       发表于 2026-8-19 17:36
+
+我觉得我担心的很可能会发生
+
+好玩的部分还没感受到就忍受不了乏味和反锁就封盘了 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">和风花雪月一样
+
+制作者们能不能提炼下，把剧情和系统提炼下在端出来啊
+
+
+*****
+
+####  cox  
+##### 2867#       发表于 2026-8-19 17:42
+
+风花雪月体验最好的不就是第一遍白云之章？越往后打越无聊吧，尤其是教会和兄弟线，那图都是一样的。。。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

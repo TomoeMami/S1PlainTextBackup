@@ -9376,3 +9376,137 @@ Dsh能更好的观察吐字速度，这40-50t的速度其实可以印证两个�
 
 [https://github.com/zhuyun017/dsh ... releases/tag/v1.1.0](https://github.com/zhuyun017/dsh-her-companion/releases/tag/v1.1.0)
 
+
+*****
+
+####  qwased  
+##### 9737#       发表于 2026-8-19 17:33
+
+看了一圈，总结一下灰测模型特点：智力很离谱，A/模型也复现不了；吐字很慢，显著的比pro和A/的慢；思维链会说没有视觉能力，A/不会；没有任何甲，问什么答什么
+
+感觉应该就是个刚训练出来的超大参数基模，还在后训练，所以算力不足的时候跑不起来+没甲而且智力一天比一天高<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可以开盘了，我赌应该是个4-5T级别的模型
+
+*****
+
+####  tk553521  
+##### 9738#       发表于 2026-8-19 17:35
+
+好东西藏着不拿出来<img src="https://static.stage1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  龙骑士尹志平  
+##### 9739#       发表于 2026-8-19 17:36
+
+所以梁文峰的时候才有opus6吗，梁文谷就只有流口水的0813吗
+
+*****
+
+####  果壳中的松鼠  
+##### 9740#       发表于 2026-8-19 17:36
+
+梁子拿我们做强化学习吗，要是被灰度到了token能不能降降价<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  舞以  
+##### 9741#       发表于 2026-8-19 17:36
+
+我怀疑所谓的灰测模型就是ds内部的teacher模型拿出来收集和生成真实场景的高质量轨迹了
+
+当然这个教师模型可能会是下一代pro或者ds的将来的新旗舰档？（更贵更聪明更笨重？）
+
+*****
+
+####  misuzu0723  
+##### 9742#       发表于 2026-8-19 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108114&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-19 17:33</a>
+看了一圈，总结一下灰测模型特点：智力很离谱，A/模型也复现不了；吐字很慢，显著的比pro和A/的慢；思维链 ...</blockquote>
+生物甲好像被怀疑是切回 ds4p
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  crow_wine  
+##### 9743#       发表于 2026-8-19 17:40
+
+这个弱智的路由轮到底什么时候能结束
+看来只能等到大规模公测了
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  杀人鲸  
+##### 9744#       发表于 2026-8-19 17:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107973&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-19 17:15</a>
+模型再好，价格降不下来有什么用</blockquote>
+这话只能说是对穷哥们说的。
+全世界穷人的确多，但有钱人也少不到哪去。
+真是高质量的产品，这群人还巴不得价格高一点，把那些他妈的没事叽叽歪歪来和自己抢占资源的穷鬼全部踢出去。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Promeus  
+##### 9745#       发表于 2026-8-19 17:41
+
+我想起来一件事，之前嚷嚷路由的时候有一张微信群截图里面不知道是不是ds员工嘲讽顺路由了15T的fable，如果是ds员工的话，那大概率就是内部测试的下一代超巨型模型了
+
+*****
+
+####  wandeeees  
+##### 9746#       发表于 2026-8-19 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108137&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-19 17:37</a>
+
+生物甲好像被怀疑是切回 ds4p
+
+—— 来自 vivo V2405A, Android 15, 鹅球 v4.0-alpha</blockquote>
+这不就是经典的吃粉问题，7月份的时候还怀疑说只在opencode复现，还说识图被屏蔽了<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+然而实际表现就根本不一样，写出来的东西还有经典的bug会复现
+
+
+*****
+
+####  舞以  
+##### 9747#       发表于 2026-8-19 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108154&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-19 17:40</a>
+
+这个弱智的路由轮到底什么时候能结束
+
+看来只能等到大规模公测了</blockquote>
+很多人猜测灰测模型是未来的新pro检查点，我倒是觉得要么就是纯内部模型做测试，要么放出来也是更贵一档的模型，不会是现在pro的价格
+
+*****
+
+####  舞以  
+##### 9748#       发表于 2026-8-19 17:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108163&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-19 17:41</a>
+
+这不就是经典的吃粉问题，7月份的时候还怀疑说只在opencode复现，还说识图被屏蔽了
+
+然而实际表现就根本 ...</blockquote>
+从七月初到现在的pro，都有一个很神秘的通病，就是会搞反“方向”
+
+*****
+
+####  Promeus  
+##### 9749#       发表于 2026-8-19 17:46
+
+其实4f和4p那个反方向错误很像是这个灰度模型训练or蒸馏出来的
+
