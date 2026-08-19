@@ -7707,3 +7707,83 @@ Tibo在推上给了解除上下文限制的方法。
 只用了Sol medium，结论是规划非常全面，非常非常的全面，也不会出现Luna那种误解需求的问题，但是一上午 ...</blockquote>
 gpt5.6目前确实最强，考虑的非常全面，但是对应的会有过度设计的弊端。我一般让deepseek做方案初稿（很聪明，意图理解相当到位，但是专业知识有短板），让gpt来评审会好点，否则无法兼顾质量和效率。
 
+
+*****
+
+####  hugosol  
+##### 9577#       发表于 2026-8-19 11:46
+
+ 本帖最后由 hugosol 于 2026-8-19 11:48 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105500&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-19 11:34</a>
+
+只用了Sol medium，结论是规划非常全面，非常非常的全面，也不会出现Luna那种误解需求的问题，但是一上午 ...</blockquote>
+工作流变化很大，主要是上下文焦虑严重了很多，现在总算体会到matt pocock的工作流最近为什么要做那些改动了
+
+Sol会非常积极地触发tool和subagent，research任务可以后台异步去跑然后先讨论别的，然后原本的grilling要变成批量提问，不然上下文估计吃不住
+
+但是体验下来其实没有比原来DS那种雷厉风行的模式要好，或者说我越了解的领域越不需要Sol这种级别的思考量，大方向错了我可以直接给agent指出来，细节问题不是很严重的话交给agent实现代码的时候自己去试错也没问题
+
+总之现在DSV4flash和pro这种级别的模型其实已经非常够用了，我实在不想看到以后的模型继续进步都变成Sol这种风格<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 9578#       发表于 2026-8-19 11:48
+
+看了一圈，超算互联网这个0731基本就是原来的价格？好像也没有峰谷价，是他们自己部署的吧。
+
+是我算错了嘛，有没有什么坑呀，求指导
+
+
+*****
+
+####  hugosol  
+##### 9579#       发表于 2026-8-19 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105572&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-19 11:41</a>
+
+Tibo在推上给了解除上下文限制的方法。
+
+但说实话，开一m上下文的话，用量烧的就更快了。 ...</blockquote>
+但老实说感觉不是一个参数的问题
+
+我问个简单的事实，可以通过前面上下文总结出来的，它非要给我雷霆大思考一圈没漏洞了才敢回答，就是模型本身给人的感觉更大更笨重
+
+同样的上下文长度DS能进行更多轮次的交互，虽然没有那么全面和严谨就是了
+
+*****
+
+####  wfhtony  
+##### 9580#       发表于 2026-8-19 11:53
+
+ 本帖最后由 wfhtony 于 2026-8-19 11:55 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105632&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-19 11:48</a>
+看了一圈，超算互联网这个0731基本就是原来的价格？好像也没有峰谷价，是他们自己部署的吧。
+
+是我算错了嘛 ...</blockquote>
+现在新用户有八块五的套餐可以试试咸淡。
+如果你能接受高峰期频繁429报错（频繁到可能一条正常的指令可能都报错到执行不了重试到强行中断）的话，可以考虑定30块的token plan。
+
+—— 來自 Xiaomi 23116PN5BC, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  cscbzcbz  
+##### 9581#       发表于 2026-8-19 11:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105683&amp;ptid=2275806" target="_blank">wfhtony 发表于 2026-8-19 11:53</a>
+现在新用户有八块五的套餐可以试试咸淡。
+如果你能接受高峰期频繁429报错（频繁到可能一条正常的指令可能 ...</blockquote>
+谢谢，等我吧剩下的ocg额度蹬完试试
+
+*****
+
+####  R.I.P  
+##### 9582#       发表于 2026-8-19 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70105500&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-19 11:34</a>
+只用了Sol medium，结论是规划非常全面，非常非常的全面，也不会出现Luna那种误解需求的问题，但是一上午 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看起来还没品尝到sol的sha256地狱
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

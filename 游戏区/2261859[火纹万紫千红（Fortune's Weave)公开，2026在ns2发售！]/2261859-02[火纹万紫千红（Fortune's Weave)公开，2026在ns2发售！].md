@@ -14338,3 +14338,11 @@ Today写了奥罗拉是神威法王的孩子。所以假如奥罗拉是凯伊的
 
 不知道为什么很想听君子兰被打死后的尖叫<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nez  
+##### 2834#       发表于 2026-8-19 11:50
+
+尤法斯就是索雷尔，玛丽卡就是拉达冈，那么转世能变性也合理了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
