@@ -10298,3 +10298,32 @@ Fable倒是有个新的办法可以偷</blockquote>
 
 就没有人试试直接调用API看看这个模型能不能识别图片吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厍无春  
+##### 9827#       发表于 2026-8-19 20:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70109158&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-19 20:53</a>
+就没有人试试直接调用API看看这个模型能不能识别图片吗</blockquote>
+测了，纯文本，没多模态
+
+*****
+
+####  overflowal  
+##### 9828#       发表于 2026-8-19 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70109158&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-19 20:53</a>
+就没有人试试直接调用API看看这个模型能不能识别图片吗</blockquote>
+就算能也会在api阶段直接拦截掉    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  neptunehs  
+##### 9829#       发表于 2026-8-19 21:03
+
+其实干嘛路由目标都是a/没有o/啥事儿呢？
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
