@@ -14257,3 +14257,45 @@ cot非常不一样，大把 We need. 目的十分明确，几乎不左右脑互�
 
 哪怕复现脏token我都信是梁子神通广大超时空运输来了权重<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  舞以  
+##### 10206#       发表于 2026-8-21 02:00
+
+<img src="https://img.stage1st.com/forum/202608/21/015951l0ff488h8mzc728s.jpg" referrerpolicy="no-referrer">
+
+<strong>img_7085.jpg</strong> (763.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 01:59 上传
+
+<img src="https://img.stage1st.com/forum/202608/21/020001p2g2gu2q52noontk.jpg" referrerpolicy="no-referrer">
+
+<strong>img_7088.jpg</strong> (709.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 02:00 上传
+
+我还刷到了贴吧一个直球生物甲的测试
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  lly778  
+##### 10207#       发表于 2026-8-21 02:03
+
+路由论信者能算出，ds这两天路由赔了多少钱么
+
+*****
+
+####  舞以  
+##### 10208#       发表于 2026-8-21 02:04
+
+还有贴吧有人直接用同一个prompt在dsh里面测试灰测模型和fable
+
+两者cot确实很像，但是还是有很明显的区别
+
