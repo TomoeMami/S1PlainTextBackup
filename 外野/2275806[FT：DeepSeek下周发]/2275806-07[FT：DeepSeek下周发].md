@@ -13517,3 +13517,24 @@ tps确实低，我只有30，不过这个项目工具调用多
 我佛了，后面开始执行的好像是标准模式的弱智版pro啊</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">干活的子代理拉了好像是目前这灰测的常见问题。
 
+
+*****
+
+####  nxmonitor  
+##### 10133#       发表于 2026-8-20 21:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115579&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-20 20:52</a>
+
+今天这个模型据说不太行，只能叫v4 pro pro
+
+—— 来自 Xiaomi 25091RP04C, Android 16, 鹅球 v3.5.99 ...</blockquote>
+大概率是子代理坠机了，看了一下都是这种虎头蛇尾的样子
+
+
+*****
+
+####  nxmonitor  
+##### 10134#       发表于 2026-8-20 21:11
+
+这个路线不会真的涌现出多模态吧？这灰测模型空间感知夸张，刚又看到一个无人机建模的
+
