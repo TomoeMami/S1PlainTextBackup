@@ -11299,3 +11299,61 @@ Muse Spark1.2已经在 OpenCode Go上提供，每 5 小时约 45,300 次请求
 
 OpenCode最近真是抢了Openrouter不少风头, 啥时候会和Openrouter一样被高溢价收购呢
 
+
+*****
+
+####  一骑当千  
+##### 9920#       发表于 2026-8-20 09:28
+
+不说技术方面，就利益角度，谁能告诉我ds官方路由第三方有啥好处，炒作意义是什么？他公司现在又不上市，无论老梁还是公司其它人都基本不在网上露面，你说a/做这事我还真信，至少对它上市有好处。
+
+
+*****
+
+####  serj005  
+##### 9921#       发表于 2026-8-20 09:28
+
+dsh更新的rc8可以在windows端用极简模式了，虽然还是pwsh,没有调用git bash
+
+*****
+
+####  猫鱼狗带  
+##### 9922#       发表于 2026-8-20 09:29
+
+Hy3只有256k上下文，子代理执行任务到一半触发自动压缩了。梁文峰时段还是用MiMo吧
+
+
+*****
+
+####  卡普空  
+##### 9923#       发表于 2026-8-20 09:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111014&amp;ptid=2275806" target="_blank">一骑当千 发表于 2026-8-20 09:28</a>
+
+不说技术方面，就利益角度，谁能告诉我ds官方路由第三方有啥好处，炒作意义是什么？他公司现在又不上市，无 ...</blockquote>
+说路由的不就是串子嘛
+
+*****
+
+####  Promeus  
+##### 9924#       发表于 2026-8-20 09:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70110965&amp;ptid=2275806" target="_blank">wesdrtfg 发表于 2026-8-20 09:21</a>
+难绷梁子17号涨价，然后灰度模型就又出现了，真就资源一空就开始干活了是吧 ...</blockquote>
+之前牢吴直接明着在微信群里说赶人为了训练<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人家甚至完全可以拿出来炫耀一下
+
+*****
+
+####  2017.05.04  
+##### 9925#       发表于 2026-8-20 09:35
+
+很多用DS跑小黄文或者别的的可能不知道
+
+目前很多有合规需求的企业都在用DS的api，贵不贵不是问题，重点是稳定，而目前DS官方声明企业版和个人版的api服务没有任何差别
+
+所以如果DS做了任何转发到境外的行为，合规上面都过不去，更别提这本身对DS没有半点好处
+
+我之前以为这是常识，现在发现很多人确实从来不看[DeepSeek 隐私政策](https://cdn.deepseek.com/policies/zh-CN/deepseek-privacy-policy.html)
+
+可以看看这个，然后问问ai传输到境外处罚是什么
+
