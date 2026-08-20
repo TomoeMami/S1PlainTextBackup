@@ -14214,3 +14214,46 @@ cot非常不一样，大把 We need. 目的十分明确，几乎不左右脑互�
 
 然后就roll不到灰度模型了...
 
+
+*****
+
+####  →熙←  
+##### 10202#       发表于 2026-8-21 01:38
+
+越来越离谱了
+
+真发布
+
+按梁文锋价格再涨一倍, 还能爆满
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sacross  
+##### 10203#       发表于 2026-8-21 01:40
+
+说是瞎子现在感觉已经快练出第六感了，我还是好奇做那几个一句话demo是一点图片都没给么
+
+—— 来自 OnePlus IN2020, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  nxmonitor  
+##### 10204#       发表于 2026-8-21 01:43
+
+<blockquote>Sacross 发表于 2026-8-21 01:40
+说是瞎子现在感觉已经快练出第六感了，我还是好奇做那几个一句话demo是一点图片都没给么
+
+—— 来自 OnePlu ...</blockquote>
+有些是搜了素材的，不过图片都是手搓脚本用像素识别的…
+
+*****
+
+####  舞以  
+##### 10205#       发表于 2026-8-21 01:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+哪怕复现脏token我都信是梁子神通广大超时空运输来了权重<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
