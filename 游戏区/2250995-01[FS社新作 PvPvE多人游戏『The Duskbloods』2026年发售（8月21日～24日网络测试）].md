@@ -1377,3 +1377,13 @@ ign 说宫崎暗示保留入侵系统，可以加入对局当第 9 人
 
 总之先贷款制药，看小宫如何拯救下个十年的pvp游戏行业
 
+
+*****
+
+####  天堂大法  
+##### 222#       发表于 2026-8-21 02:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116832&amp;ptid=2250995" target="_blank">MiumiuPT 发表于 2026-8-21 02:17</a>
+关于我们最初决定与任天堂合作的原因，我们曾有机会与他们讨论这款游戏的构想，我觉得他们对此非常兴奋，也 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老任很多时候投第三方独占就是这样的，扩展自己做不出来的游戏类型，销量什么的感觉不咋考虑，要是考虑这个 也不会投恶魔三全音 零 贝姐2 3异界锁链这种小众类型
+

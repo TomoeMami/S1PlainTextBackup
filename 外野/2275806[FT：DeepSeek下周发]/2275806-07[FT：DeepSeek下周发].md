@@ -14309,3 +14309,11 @@ cot非常不一样，大把 We need. 目的十分明确，几乎不左右脑互�
 
 —— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  chuchoselph  
+##### 10210#       发表于 2026-8-21 02:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是很难想象这玩意儿没有多模态，太野了
+
