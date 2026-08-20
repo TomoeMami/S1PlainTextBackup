@@ -14317,3 +14317,14 @@ cot非常不一样，大把 We need. 目的十分明确，几乎不左右脑互�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是很难想象这玩意儿没有多模态，太野了
 
+
+*****
+
+####  squallx  
+##### 10211#       发表于 2026-8-21 03:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116852&amp;ptid=2275806" target="_blank">chuchoselph 发表于 2026-8-21 02:42</a>
+
+还是很难想象这玩意儿没有多模态，太野了</blockquote>
+梁子：你已经是一个成熟的AGI了 想要眼睛啊 自己去造啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
