@@ -12536,3 +12536,30 @@ https://policies.google.com/country-association-form
 
 啥情况
 
+
+*****
+
+####  qwased  
+##### 10037#       发表于 2026-8-20 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70113298&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-20 14:56</a>
+
+请教一下佬
+
+我的Google账号注册后直接就可以用Gemini
+
+但是过了几天突然不行了，到这个地方看，归属地是美 ...</blockquote>
+新号风控严格，出啥问题都有可能，尽量先别梯子节点乱飞固定用一段时间吧
+
+*****
+
+####  冤枉呐  
+##### 10038#       发表于 2026-8-20 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70113343&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-20 15:02</a>
+
+新号风控严格，出啥问题都有可能，尽量先别梯子节点乱飞固定用一段时间吧 ...</blockquote>
+因为我用grok，一直固定用的东京的节点，他突然给我识别在国内了
+
+就对他这个技术很好奇啊，什么地方泄密的
+

@@ -15039,3 +15039,23 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 
 本来想乘机买个限定机入手ns2,任天堂这都不安排吗，ns独占的顶级ip了吧
 
+
+*****
+
+####  天堂大法  
+##### 2905#       发表于 2026-8-20 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70113294&amp;ptid=2261859" target="_blank">acropolis 发表于 2026-8-20 14:55</a>
+本来想乘机买个限定机入手ns2,任天堂这都不安排吗，ns独占的顶级ip了吧</blockquote>
+今年能捞到限定的 只有时之笛了 还是借着塞尔达40周年纪念的名头 前阵子泄露了外包装 你可以看看
+
+*****
+
+####  bbluekid  
+##### 2906#       发表于 2026-8-20 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70113294&amp;ptid=2261859" target="_blank">acropolis 发表于 2026-8-20 14:55</a>
+
+本来想乘机买个限定机入手ns2,任天堂这都不安排吗，ns独占的顶级ip了吧</blockquote>
+火纹是战棋类的顶级IP。但是战棋这个品类相当小众
+
