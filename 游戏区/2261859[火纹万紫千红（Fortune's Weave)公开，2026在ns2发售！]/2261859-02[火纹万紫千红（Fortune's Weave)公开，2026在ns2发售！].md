@@ -14913,3 +14913,21 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 
 那就很厉害了。真男人。
 
+
+*****
+
+####  蓮華  
+##### 2891#       发表于 2026-8-20 08:59
+
+啥，还有三圣母的事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡边加奈子  
+##### 2892#       发表于 2026-8-20 09:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108359&amp;ptid=2261859" target="_blank">被击坠王 发表于 2026-8-19 18:14</a>
+
+火纹甚至大部分战棋游戏的多路线重复度在机战面前算什么，就一直没看有多少抱怨机战那更离谱无聊的重复度的 ...</blockquote>
+大多数srpg都不诱导玩家多周目游戏,风花雪月是异端
+
