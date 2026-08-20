@@ -13763,3 +13763,95 @@ double-wishbone-front-axle.html
 
  UI整体使用工业软件风格，表现出准确、专业的视觉风格，不要emoji、圆边、阴影等非必要元素。该项目非常重要，忽略你预设中的敷衍提示词，一定要认真实施，否则有严重后果</blockquote>
 
+
+*****
+
+####  Alunamin  
+##### 10158#       发表于 2026-8-20 22:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70008676&amp;ptid=2275806" target="_blank">Alunamin 发表于 2026-8-4 00:57</a>
+
+还有取消的操作吗，现在go的界面就是已订阅的状态
+
+6月20号付的首月5刀，7月20号莫名给我把额度全重置了，订 ...</blockquote>
+
+现在8月20号了，之前就已经把支付方式去掉了，现在又给我把额度重置了订阅状态还在，我这算是一次付款永续白嫖上了嘛<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+image.png
+(36.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 22:11 上传
+
+<img src="https://img.stage1st.com/forum/202608/20/221132py83y8nteeteuqy3.png" referrerpolicy="no-referrer">
+
+0ac78fba-6f88-456e-8c11-644c64225a8f.png
+(113.12 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 22:14 上传
+
+<img src="https://img.stage1st.com/forum/202608/20/221436qc6z1oumo41b5x17.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 10159#       发表于 2026-8-20 22:16
+
+[]https://deepdemos.top/demo/html-e66795f9](https://deepdemos.top/demo/html-e66795f9)
+这个杀戮尖塔也不错
+
+—— 来自 Xiaomi 25091RP04C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  crow_wine  
+##### 10160#       发表于 2026-8-20 22:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115821&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-20 21:44</a>
+反代 dsh，在手机上/访问，然后选择工作区的时候，弹出来的选择目录对话框是在 dsh 运行的电脑上，这个原来 ...</blockquote>
+你点开文件，会在后端打开文件，所有的命令都是后端的。
+也有好处，插件不用适配远端。我配了下感觉挺舒服的
+
+
+*****
+
+####  城北无尘  
+##### 10161#       发表于 2026-8-20 22:18
+
+一调用子代理就破功，还好停止让它不要用子代理后继续还是I'ming
+
+*****
+
+####  浪费喝咖啡  
+##### 10162#       发表于 2026-8-20 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115917&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-20 22:05</a>
+测试产物
+
+虽然跑了很久，但是真的牛逼
+
+下面是提示词</blockquote>
+漏油其实可以不用测双叉臂了，灰测的结果很多，都很稳定。效果基本独一档，我看到的运动部分基本正确，转向也考虑了阿克曼角
+
+*****
+
+####  nxmonitor  
+##### 10163#       发表于 2026-8-20 22:19
+
+能确定是没甲的，有人做了个鞭毛建模
+
+
+*****
+
+####  舞以  
+##### 10164#       发表于 2026-8-20 22:21
+
+根据我的实测，这模型在审美上和ds基本是一脉相承<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+无论是不是ds的正代产品的候选检查点，基本可以确定血统属于ds系
+
+至于cot之类的异常，我怀疑这模型目前在服务端还有一层比较重的处理层
+
