@@ -12201,3 +12201,14 @@ opencodego的PRO不是0813版吧？咋用起来不太聪明的样子，而且用
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  qwased  
+##### 10007#       发表于 2026-8-20 12:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70112241&amp;ptid=2275806" target="_blank">serj005 发表于 2026-8-20 11:54</a>
+
+现在的网页专家模式好像稳定we need了</blockquote>
+pro预览版其实也能诱导出we need， 但是能力还是差，网页版感觉也是这样，写个鹈鹕自行车写得乱七八糟的
+
