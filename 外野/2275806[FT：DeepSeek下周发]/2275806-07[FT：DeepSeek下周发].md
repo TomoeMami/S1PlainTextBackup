@@ -12189,3 +12189,15 @@ opencodego的PRO不是0813版吧？咋用起来不太聪明的样子，而且用
 
 现在的网页专家模式好像稳定we need了
 
+
+*****
+
+####  misuzu0723  
+##### 10006#       发表于 2026-8-20 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70112205&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-8-20 11:48</a>
+opencodego的PRO不是0813版吧？咋用起来不太聪明的样子，而且用了插件还是各种letme ...</blockquote>
+应该是的，他们连 flash 都部署不明白何况 pro <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
