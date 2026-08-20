@@ -2158,3 +2158,11 @@ v姐我错了这片不能没有你啊<img src="https://static.stage1st.com/image
 
 看到预告疼肚子又一次眼睛失去高光感觉是下集唯一期待的地方<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  犯困的猫  
+##### 331#       发表于 2026-8-21 00:09
+
+这集提了arl在写日记，编剧脑回路正常的话，这个应该是后面用来对抗v姐录音的吧
+
