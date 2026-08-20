@@ -11072,3 +11072,25 @@ dsh目前就是半成品，没啥好折腾的。核心契约还没稳定，以�
 在我看来最起码的安全隔离是要 ...</blockquote>
 现在插件我就是用win里的dsh给wsl里的dsh装插件，出了问题也会自动修，反而比直接自己把自己搞崩方便多了。
 
+
+*****
+
+####  厍无春  
+##### 9897#       发表于 2026-8-20 08:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70110663&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-20 08:06</a>
+话又说回来，这3个图，实在也看不出干爆了。</blockquote>
+那这fable 和opus也没比这个强啊？
+
+*****
+
+####  zjf  
+##### 9898#       发表于 2026-8-20 08:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70109953&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-8-19 23:37</a>
+pi-antigravity拉完了，格式各种冲突，估计只装这个插件才能用
+薅了便宜哈基米的乖乖用反重力 ...</blockquote>
+我用cpa反代还可以，不过还没大量用，不知道会不会封号了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
