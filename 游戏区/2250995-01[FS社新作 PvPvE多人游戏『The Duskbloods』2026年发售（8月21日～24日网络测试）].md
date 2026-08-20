@@ -1279,3 +1279,25 @@ pvpve，其实是吃鸡，有四个阶段，前三阶段可以结盟，然后吃
 
 有点厉害，稍微超出了期待
 
+
+*****
+
+####  JOJO42  
+##### 213#       发表于 2026-8-21 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70113381&amp;ptid=2250995" target="_blank">usodakedo 发表于 2026-8-20 15:09</a>
+
+这个月球感觉像是什么异空间来的，还带丝，或者说可能依旧带点克苏鲁要素
+
+—— 来自 S1Fun ...</blockquote>
+这段看的时候，老觉得下个镜头会拉近移动，形成月球那滴液体滴入杯子的视觉呈现
+
+*****
+
+####  zakki  
+##### 214#       发表于 2026-8-21 00:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116458&amp;ptid=2250995" target="_blank">kyonkoism 发表于 2026-8-20 23:51</a>
+后续追加的pve特殊胜利，并不是可选项，而是在进度到达一半的时候广播提示大家这把是打boss，大家就会在后 ...</blockquote>
+访谈里说了，可以带针对boss的构筑，会集中匹配想打boss的玩家，提高boss出现的概率
+
