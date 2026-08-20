@@ -38,3 +38,13 @@
 不对啊 我又打一次结果猫的缘lv1→2了</blockquote>
 BUG，显示错误，实际还得刷
 
+
+*****
+
+####  Flechette  
+##### 884#       发表于 2026-8-20 19:33
+
+冲着艾莉赛池里的破若透下了11抽，不仅出了艾莉塞，还有2王女1亚当1哲哲
+
+我抽SSR哐哐吃井的时候怎么不来，抽SR就来了，而且我哲哲都满克己了，拯救角色性能的泳装SP在哪呢<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

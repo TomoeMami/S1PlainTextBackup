@@ -13041,3 +13041,31 @@ rc8提交记录明文写了增加多模态输入支持
 
 来了，今天是在梁文谷时段来的
 
+
+*****
+
+####  王兰花秀丽  
+##### 10085#       发表于 2026-8-20 19:30
+
+Hy4快来了<img src="https://static.stage1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
+1000052465.jpg
+(89.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 19:30 上传
+
+<img src="https://img.stage1st.com/forum/202608/20/193055o3rnkk88rnjzlkk3.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  c月光咖啡  
+##### 10086#       发表于 2026-8-20 19:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115047&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-20 19:15</a>
+别用了，根本没法用</blockquote>
+我只能用超算预览版，至少还能用，便宜大碗。再牛逼用不到都是假的
+
+—— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
+
