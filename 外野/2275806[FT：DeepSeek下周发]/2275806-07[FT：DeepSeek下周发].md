@@ -12039,3 +12039,73 @@ scnet的也是，晚上回去蹬还好，白天上班时间一切过去就报输
 不过我看灰测的就很好，token效率和总时间控制得都不错，只是不出等于没有… ...</blockquote>
 这明显是一个规模更大的新模型，连安全对齐都没做显然不可能已经做好了后训练，能力大概率是模型自己泛化出来的，本来就是“后训练的代价是雷霆思考”的反例，而不是“后训练做的好也可以不雷霆思考”的证明。
 
+
+*****
+
+####  舞以  
+##### 9991#       发表于 2026-8-20 11:18
+
+<img src="https://img.stage1st.com/forum/202608/20/111657lk88yrriy926prqc.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (336.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 11:16 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这个条款结合国内的数据管理法律法规，要真有Claude同款脏token，我都信是梁叔叔派三个俄国特工从a\那里把权重偷出来了。
+
+*****
+
+####  xiaohanne  
+##### 9992#       发表于 2026-8-20 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111903&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-20 11:13</a>
+
+这明显是一个规模更大的新模型，连安全对齐都没做显然不可能已经做好了后训练，能力大概率是模型自己泛化 ...</blockquote>
+我觉得是这样的，大模的智力提升本质还是要靠参数，尤其大参数带来的泛化能力是无可取代的。
+
+但是实践中真把超大参数模型拿出来，厂商没那么多算力用户也没那么多钱，后训练是一种追求经济性的选择。
+
+考虑到梁子对agi还没放弃希望，我感觉他们可能确实没给后训练投入太多精力，更多是给投资人一个交代，这也可以解释pro为什么不如预期。
+
+
+*****
+
+####  王兰花秀丽  
+##### 9993#       发表于 2026-8-20 11:20
+
+没人聊聊这次rc8更新吗，数据结构变了怎么迁移呀    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  舞以  
+##### 9994#       发表于 2026-8-20 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111972&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-20 11:20</a>
+
+没人聊聊这次rc8更新吗，数据结构变了怎么迁移呀    Re:Source</blockquote>
+ 找agent帮忙写个脚本？
+
+*****
+
+####  xiaohanne  
+##### 9995#       发表于 2026-8-20 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111972&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-20 11:20</a>
+
+没人聊聊这次rc8更新吗，数据结构变了怎么迁移呀    Re:Source</blockquote>
+遇事不决问ai（）
+
+*****
+
+####  龙骑士尹志平  
+##### 9996#       发表于 2026-8-20 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111660&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-20 10:49</a>
+
+https://policies.google.com/country-association-form
+
+其实是要在这里改归属地提交申请修改失败=账号报 ...</blockquote>
+完蛋，果然我是在中国。
+
