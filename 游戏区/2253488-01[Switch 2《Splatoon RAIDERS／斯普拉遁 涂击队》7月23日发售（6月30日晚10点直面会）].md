@@ -8304,3 +8304,19 @@ https://github.com/Orangeeeeeeeeeeeeeeeeee/switch-controller-macro
 
 —— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Beaverfan01  
+##### 962#       发表于 2026-8-20 12:17
+
+新月过1000了。
+
+
+*****
+
+####  不再乱发炎了  
+##### 963#       发表于 2026-8-20 12:20
+
+1000之后见底了，你任选择了弹幕最多的设计
+
