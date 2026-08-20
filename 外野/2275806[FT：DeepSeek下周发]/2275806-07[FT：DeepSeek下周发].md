@@ -13988,3 +13988,30 @@ codex恶心人，一压缩就报错
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  bartholo4  
+##### 10179#       发表于 2026-8-20 23:28
+
+网页版 专家模型就是这个灰测版吧
+但中文思维链
+
+*****
+
+####  crow_wine  
+##### 10180#       发表于 2026-8-20 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116348&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-20 23:26</a>
+如果这个模型能8月上，那为啥要端出来0813呢
+
+论坛助手,iPhone</blockquote>
+应该是缺卡，要涨价赶人，但是涨价没新模型说不过去，那只能强行拉出来
+
+*****
+
+####  nxmonitor  
+##### 10181#       发表于 2026-8-20 23:31
+
+这三个模型一脉相承，0813只能说是把神秘模型蒸馏了一下拿出来了，结果基模本身就有问题所以拉了，预览版也有脑裂的问题的
+
