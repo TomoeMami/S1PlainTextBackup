@@ -652,3 +652,18 @@ Reddit那边还是加分制的人居多，S1这边除非是系列粉否则一向
 玩过的说下哪个躯壳比较好用？据说这游戏升级资源紧张，一周目只能成型一个躯壳 ...</blockquote>
 不考虑寄生之石无限回血bug的话，直接用格拉古，前期就能拿，有突进推图神技和喝不完的血瓶，毕竟魂油最重要的是推图安定，这游戏的怪物攻击还高，血不够喝。
 
+
+*****
+
+####  我就再氪一单  
+##### 71#       发表于 2026-8-21 00:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70112239&amp;ptid=2282975" target="_blank">adachitouch 发表于 2026-8-20 11:53</a>
+跳出太多次了，受不了了
+
+—— 来自 S1Fun</blockquote>
+刚想夸优化还行，就跳出了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+再进，加载完着色器缓存直接又跳出了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
