@@ -12908,3 +12908,14 @@ codex 有服务端压缩上下文好像
 
 装了这个插件真的好玩<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 10072#       发表于 2026-8-20 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70114609&amp;ptid=2275806" target="_blank">2017.05.04 发表于 2026-8-20 18:08</a>
+
+装了这个插件真的好玩</blockquote>
+这是哪个插件？
+
