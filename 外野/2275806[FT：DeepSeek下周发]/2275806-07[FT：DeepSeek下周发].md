@@ -12411,3 +12411,67 @@ https://blog.jiang.in/archives/019bc9aa-77f1-70a9-ac64-17a702e4e5b6
 参考这个，不过我的号是买会员 ...</blockquote>
 感谢大佬，果然是账号地区问题，按你之前说的把账号改成台蛙，马上就可以用了，牛批。
 
+
+*****
+
+####  muermaru  
+##### 10024#       发表于 2026-8-20 14:17
+
+居然是账号地区问题，谷歌这限制太恶心了
+
+*****
+
+####  蛋黄酱Release  
+##### 10025#       发表于 2026-8-20 14:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70112983&amp;ptid=2275806" target="_blank">Ty_cc 发表于 2026-8-20 14:04</a>
+现在codex + pro 和 harness+极简首轮+pro 哪个好
+
+—— 来自 鹅球 v3.5.99</blockquote>
+v4p在dsh里比codex里面强了10%左右
+
+*****
+
+####  流缨  
+##### 10026#       发表于 2026-8-20 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70112979&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-8-20 14:03</a>
+
+opencode go的Muse Spark 1.2 Contributor到底在哪些地区可以用？
+
+我云服务器在hk机房，点开就是您所在的国 ...</blockquote>
+我试过新加坡和日本，都能响应
+
+*****
+
+####  城北无尘  
+##### 10027#       发表于 2026-8-20 14:20
+
+今天又有灰度
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  蛋黄酱Release  
+##### 10028#       发表于 2026-8-20 14:20
+
+我也想搞一个64g以上的mbp玩玩，但是仔细一想花的钱换成token少说能用十年<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 10029#       发表于 2026-8-20 14:21
+
+来了吗
+
+好像有主播抽到了
+
+
+*****
+
+####  →熙←  
+##### 10030#       发表于 2026-8-20 14:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来点后端测试吧
+
