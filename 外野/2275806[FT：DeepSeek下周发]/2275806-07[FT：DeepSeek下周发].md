@@ -14328,3 +14328,20 @@ cot非常不一样，大把 We need. 目的十分明确，几乎不左右脑互�
 还是很难想象这玩意儿没有多模态，太野了</blockquote>
 梁子：你已经是一个成熟的AGI了 想要眼睛啊 自己去造啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wandeeees  
+##### 10212#       发表于 2026-8-21 07:13
+
+用pi真的抽不出来，用dsh一下就抽出来了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我终于也能用上许愿机了
+
+*****
+
+####  neptunehs  
+##### 10213#       发表于 2026-8-21 07:15
+
+opencode free的v4f似乎没了 最后的救命稻草也没了 哎
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
