@@ -13634,3 +13634,13 @@ tps确实低，我只有30，不过这个项目工具调用多
 说起这大模型大战PowerShell，我真的奇怪这AI发展几年了，为什么就没人能解决这个问题 ...</blockquote>
 语料的数量就比bash少得多，而且PowerShell自己都是一坨，版本多得离谱文档到处对不上
 
+
+*****
+
+####  serj005  
+##### 10145#       发表于 2026-8-20 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115730&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-20 21:24</a>
+说起这大模型大战PowerShell，我真的奇怪这AI发展几年了，为什么就没人能解决这个问题 ...</blockquote>
+欧美用英语统一ascii变体，pwsh他们遇到的问题少，能凑合用，国内中文编码微软混用历史遗留多没办法，凑合解决就是换git bash绕开pwsh
+
