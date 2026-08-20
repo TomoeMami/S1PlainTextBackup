@@ -12146,3 +12146,30 @@ dsh现在是个自己造轮子的玩具，官方都不承诺不进行破坏兼�
 
 就是现在新号非常容易风控
 
+
+*****
+
+####  crow_wine  
+##### 10001#       发表于 2026-8-20 11:36
+
+内测版是这样的，要改动就要果断的早改动，早死早超生
+
+本楼 10001楼达成<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiaohanne  
+##### 10002#       发表于 2026-8-20 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70112026&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-20 11:26</a>
+
+感觉DSH还是非必要不使用吧，也太不成熟了，换个别的harness先用着</blockquote>
+dsh目前还是个大玩具，需要一个稳定可靠的agent给他兜底
+
+*****
+
+####  七氷  
+##### 10003#       发表于 2026-8-20 11:38
+
+Windows可以用netch让指定exe走代理
+

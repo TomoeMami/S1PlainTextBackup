@@ -238,3 +238,35 @@ NS2+FS的技术力画面和帧数是真的惨，又是多人游戏，不过具�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不明显是最后的死斗阶段吗？ 偷跑个2分钟视频而已
 
+
+*****
+
+####  acg_s1  
+##### 139#       发表于 2026-8-20 11:37
+
+卖相确实不行，看着像教宗后院乱斗，但PvP尤其是大逃杀总会有很多乐趣
+
+*****
+
+####  clyde-wang  
+##### 140#       发表于 2026-8-20 11:39
+
+反正明天测试了，看看效果
+
+
+*****
+
+####  卡拉德利姆  
+##### 141#       发表于 2026-8-20 11:41
+
+烂网络+fs祖传平衡 pvpve
+
+享受吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dydqydz  
+##### 142#       发表于 2026-8-20 11:45
+
+经历了黑环后，这游戏我感觉得自己实际玩到手才好评价，纯看演示大概率会感觉一坨
+
