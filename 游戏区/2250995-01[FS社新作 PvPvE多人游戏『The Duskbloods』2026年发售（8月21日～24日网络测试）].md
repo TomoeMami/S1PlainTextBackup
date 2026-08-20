@@ -157,3 +157,19 @@ https://campaign.theduskbloods.jp/p/event/networktest/mypage
 
 s1黑环群已转型黄昏血群 是兄弟就来封测砍我1053818223
 
+
+*****
+
+####  黑酒杯  
+##### 130#       发表于 2026-8-20 11:13
+
+出演示了，魂5大乱斗，说实话卖相很差
+
+<img src="https://img.stage1st.com/forum/202608/20/111345ur8wqiy18pwnw6q8.jpg" referrerpolicy="no-referrer">
+
+<strong>1000605804.jpg</strong> (153.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 11:13 上传
+

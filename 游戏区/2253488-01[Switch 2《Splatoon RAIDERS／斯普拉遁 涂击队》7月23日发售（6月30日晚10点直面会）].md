@@ -8292,3 +8292,15 @@ https://github.com/Orangeeeeeeeeeeeeeeeeee/switch-controller-macro
 绝品武器都是极度重视，最常用的极度重视攻击频率、蓄力速 ...</blockquote>
 原来通关的那把40级小绿，能升等级？我看升级都是升后面的加数，原来等级也能升？不过升到高级还是太费材料了，我决定去把没打的激辣全打一圈，再小刷一下，把零件啥的强化下，搞把好用的武器升升先通100层再说，我看后面几百层以后那数值太离谱了，几百万血的鲑鱼<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，全身搭配拉满感觉都很费劲
 
+
+*****
+
+####  绿冰  
+##### 961#         楼主| 发表于 2026-8-20 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111703&amp;ptid=2253488" target="_blank">hujingjing 发表于 2026-8-20 10:53</a>
+原来通关的那把40级小绿，能升等级？我看升级都是升后面的加数，原来等级也能升？不过升到高级还是太费材 ...</blockquote>是升后面的，50级是50+50，40级的是40+60，+50到+60贵
+总之基本上没必要升没50级的，过渡一下用就行
+
+—— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

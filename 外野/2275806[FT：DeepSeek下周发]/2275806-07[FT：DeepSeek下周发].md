@@ -11992,3 +11992,50 @@ GLM5.3也是雷霆大思考，不知道这个问题什么时候能到改进</blo
 其实我觉得昨天下午放了灰测就是想让，v4pro后训练炼炸了的谣言不攻自破，变相回应一下。不过这也肯定了 ...</blockquote>
 想多了，梁子从来就不在乎外面说什么，只会闷头做DS，还有嘎韭菜
 
+
+*****
+
+####  misuzu0723  
+##### 9986#       发表于 2026-8-20 11:08
+
+opencode go的4F彻底拉完了，吐字慢，首字出的慢，思考半天结果自行截断，完全没法用
+
+
+*****
+
+####  cscbzcbz  
+##### 9987#       发表于 2026-8-20 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111854&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-20 11:08</a>
+opencode go的4F彻底拉完了，吐字慢，首字出的慢，思考半天结果自行截断，完全没法用 ...</blockquote>
+今天特别慢，昨天还行
+我已经用回梁叔叔官方API了，简直不要太丝滑
+
+*****
+
+####  Promeus  
+##### 9988#       发表于 2026-8-20 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111788&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-20 11:01</a>
+不过我看灰测的就很好，token效率和总时间控制得都不错，只是不出等于没有… ...</blockquote>
+灰测那个是全新模型就一切说得通了
+
+*****
+
+####  空き地卯木  
+##### 9989#       发表于 2026-8-20 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111854&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-20 11:08</a>
+opencode go的4F彻底拉完了，吐字慢，首字出的慢，思考半天结果自行截断，完全没法用 ...</blockquote>
+scnet的也是，晚上回去蹬还好，白天上班时间一切过去就报输出超额
+感觉得开始把一些活排到夜间去干了
+
+*****
+
+####  tillnight  
+##### 9990#       发表于 2026-8-20 11:13
+
+<blockquote>nxmonitor 发表于 2026-8-20 11:01
+不过我看灰测的就很好，token效率和总时间控制得都不错，只是不出等于没有… ...</blockquote>
+这明显是一个规模更大的新模型，连安全对齐都没做显然不可能已经做好了后训练，能力大概率是模型自己泛化出来的，本来就是“后训练的代价是雷霆思考”的反例，而不是“后训练做的好也可以不雷霆思考”的证明。
+
