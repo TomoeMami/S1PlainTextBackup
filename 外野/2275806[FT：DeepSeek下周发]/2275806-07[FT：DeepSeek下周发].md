@@ -11954,3 +11954,41 @@ C:\Windows\System32\cmd.exe /c "set HTTP_PROXY=http://127.0.0.1:7897&amp;&amp; s
 我24g也没感觉到可用的地步就是了 上下文是跑满了 但高上下文下速度极慢。。。甚至还会断。还忽略了一次a ...</blockquote>
 思考换能力就这样了，上下文长度不够的话啥都干不了
 
+
+*****
+
+####  nxmonitor  
+##### 9982#       发表于 2026-8-20 10:56
+
+GLM5.3也是雷霆大思考，不知道这个问题什么时候能到改进
+
+*****
+
+####  xiaohanne  
+##### 9983#       发表于 2026-8-20 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111736&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-20 10:56</a>
+
+GLM5.3也是雷霆大思考，不知道这个问题什么时候能到改进</blockquote>
+后训练提升能力的代价就是雷霆大思考，暂时来看无解。
+
+*****
+
+####  nxmonitor  
+##### 9984#       发表于 2026-8-20 11:01
+
+<blockquote>xiaohanne 发表于 2026-8-20 10:57
+后训练提升能力的代价就是雷霆大思考，暂时来看无解。</blockquote>
+不过我看灰测的就很好，token效率和总时间控制得都不错，只是不出等于没有…
+
+
+*****
+
+####  UncleDracula  
+##### 9985#       发表于 2026-8-20 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70110895&amp;ptid=2275806" target="_blank">厍无春 发表于 2026-8-20 09:07</a>
+
+其实我觉得昨天下午放了灰测就是想让，v4pro后训练炼炸了的谣言不攻自破，变相回应一下。不过这也肯定了 ...</blockquote>
+想多了，梁子从来就不在乎外面说什么，只会闷头做DS，还有嘎韭菜
+
