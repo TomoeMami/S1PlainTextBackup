@@ -13882,3 +13882,18 @@ image.png
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我现在的想法是全世界的卡都给DS，年底可能AGI了。
 
+
+*****
+
+####  nxmonitor  
+##### 10168#       发表于 2026-8-20 22:56
+
+现在至少有个视觉皮层的阶段了，抽到好的已经有原始眼球和视神经了…
+
+*****
+
+####  bartholo4  
+##### 10169#       发表于 2026-8-20 22:58
+
+524了 越来越卡 体验又要结束了吗
+
