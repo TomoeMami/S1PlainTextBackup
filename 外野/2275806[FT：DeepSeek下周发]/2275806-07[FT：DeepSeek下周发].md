@@ -12257,3 +12257,44 @@ pro预览版其实也能诱导出we need， 但是能力还是差，网页版感
 
 —— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  crow_wine  
+##### 10011#       发表于 2026-8-20 12:38
+
+4090 48G应该是这里面最好的。保值没有保值得过4090
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  qwased  
+##### 10012#       发表于 2026-8-20 12:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70112385&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-20 12:14</a>
+我现在就想买一台服务器当玩具咋办，中年人就这点爱好。
+
+1、Mac studio M4 max 40核　64G 1T           290 ...</blockquote>
+你还要求速度就只能5090了，配合ninfer框架
+他们测的结果是这样的：
+Qwen3.8-27B (nvfp4)
+
+MTP0 at a 7,680-token prompt: 8,340.4 prefill tok/s and 71.2 decode tok/s.
+
+MTP0 at a 260,096-token prompt: 2,203.1 prefill tok/s and 52.9 decode tok/s.
+
+MTP3 long reasoning: 151.4–195.2 decode tok/s with 56.2–76.0% acceptance.
+
+MTP3 structured output: 219.8 decode tok/s, 90.8% acceptance, and 3.72 tokens/round.
+
+*****
+
+####  ycjiang1337  
+##### 10013#       发表于 2026-8-20 12:45
+
+Mac内存太小了吧，没过门槛
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
