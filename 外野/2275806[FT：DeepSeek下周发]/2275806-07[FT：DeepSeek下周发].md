@@ -14040,3 +14040,30 @@ codex恶心人，一压缩就报错
 
 网页端的模型是0731吗
 
+
+*****
+
+####  hugosol  
+##### 10185#       发表于 2026-8-20 23:53
+
+不要擅自期待
+
+大概是群友历8月 -&gt; 梁历9月 -&gt; 现实世界10月
+
+*****
+
+####  cscbzcbz  
+##### 10186#       发表于 2026-8-20 23:54
+
+今年内能出就行<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ycjiang1337  
+##### 10187#       发表于 2026-8-20 23:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116329&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-20 23:22</a>
+
+姑且一听</blockquote>
+其实在5月讲话之后昇腾950DT已经反向跳票到8月了
+

@@ -1091,3 +1091,20 @@ pvpve，其实是吃鸡，有四个阶段，前三阶段可以结盟，然后吃
 
 看了下描述，这下真是血源卡丁车了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kyonkoism  
+##### 193#       发表于 2026-8-20 23:51
+
+后续追加的pve特殊胜利，并不是可选项，而是在进度到达一半的时候广播提示大家这把是打boss，大家就会在后半程往pve去构筑
+
+那么问题来了，不喜欢pve就想战斗爽的会不会直接拔线，反过来也是，甚至于pve和pvp都有那种达到多少场次或者获得多少次胜利的成就或者奖励的话，就会更促使玩家玩到半程看看是不是想要的然后拔线了，希望制作组也会把这个问题考虑进去<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kaildo  
+##### 194#       发表于 2026-8-20 23:53
+
+这次大陆媒体怎么没一个发视频的，是一个全都没被邀请吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
