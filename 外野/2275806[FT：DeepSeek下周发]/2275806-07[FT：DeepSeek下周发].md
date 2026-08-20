@@ -12939,3 +12939,34 @@ codex 有服务端压缩上下文好像</blockquote>
 
 最新版的DSH上有人发现了疑似flash视觉模型的相关代码
 
+
+*****
+
+####  pf67  
+##### 10075#       发表于 2026-8-20 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70114862&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-20 18:50</a>
+最新版的DSH上有人发现了疑似flash视觉模型的相关代码</blockquote>
+我觉得最抽象的就是这个消息……
+编程工具支持图像本来应该是基本功能……
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  桂圆莲子  
+##### 10076#       发表于 2026-8-20 19:02
+
+<blockquote>白日依山尽 发表于 2026-8-20 17:10
+国算这个，计算消费会延迟特别久，而且经常429，确实像二道贩子</blockquote>
+就是部署，优化能力不行，二道贩子不至于，卡还是有的，之前有个活动算力机器免费用一周，ssh一打开吓到我了，1TB内存，128GB显存，就是部署模型体验拉，我到活动结束都没搞成功过。
+
+*****
+
+####  serj005  
+##### 10077#       发表于 2026-8-20 19:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70114862&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-20 18:50</a>
+最新版的DSH上有人发现了疑似flash视觉模型的相关代码</blockquote>
+rc8提交记录明文写了增加多模态输入支持
+
