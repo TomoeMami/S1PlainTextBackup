@@ -340,3 +340,35 @@ NS2+FS的技术力画面和帧数是真的惨，又是多人游戏，不过具�
 
 泄漏的是第四阶段
 
+
+*****
+
+####  usodakedo  
+##### 151#       发表于 2026-8-20 14:31
+
+ 本帖最后由 usodakedo 于 2026-8-20 14:33 编辑 
+
+看演示，总觉得小高是不是神服pvp玩多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  嘉术2015  
+##### 152#       发表于 2026-8-20 14:36
+
+这画面和帧数看着不是挺不错的吗
+
+*****
+
+####  evestart  
+##### 153#       发表于 2026-8-20 14:36
+
+看着还挺有意思的，希望内容足够丰富
+
+*****
+
+####  alex2092  
+##### 154#       发表于 2026-8-20 14:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是一开始所有人各自打野升级最后大乱斗?
+

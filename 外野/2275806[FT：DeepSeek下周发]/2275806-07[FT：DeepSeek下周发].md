@@ -12475,3 +12475,25 @@ opencode go的Muse Spark 1.2 Contributor到底在哪些地区可以用？
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来点后端测试吧
 
+
+*****
+
+####  nxmonitor  
+##### 10031#       发表于 2026-8-20 14:31
+
+后端上一次就稳压K3了，可以看看最后几天复杂项目的结果，明显BUG很少
+
+*****
+
+####  →熙←  
+##### 10032#       发表于 2026-8-20 14:32
+
+刷到一个50token/s的, 应该是吧, 但是是中文思维链..刷了几次都是
+
+*****
+
+####  wandeeees  
+##### 10033#       发表于 2026-8-20 14:32
+
+抽不到啊抽不到，抽了二十次左右一次都没抽到，不放出来就算了，还灰度不到我<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">梁\
+
