@@ -12373,3 +12373,41 @@ opencode go的Muse Spark 1.2 Contributor到底在哪些地区可以用？
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  overflowal  
+##### 10021#       发表于 2026-8-20 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70112979&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-8-20 14:03</a>
+opencode go的Muse Spark 1.2 Contributor到底在哪些地区可以用？
+
+我云服务器在hk机房，点开就是您所在的国 ...</blockquote>
+美国。
+你hk机房基本啥美国ai都没法用    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  hugosol  
+##### 10022#       发表于 2026-8-20 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70112385&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-20 12:14</a>
+
+我现在就想买一台服务器当玩具咋办，中年人就这点爱好。
+
+1、Mac studio M4 max 40核　64G 1T           290 ...</blockquote>
+128G内存估计可以跑DwarfStar的DSV4flash了呀<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  龙骑士尹志平  
+##### 10023#       发表于 2026-8-20 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70112873&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-20 13:39</a>
+
+https://blog.jiang.in/archives/019bc9aa-77f1-70a9-ac64-17a702e4e5b6
+
+参考这个，不过我的号是买会员 ...</blockquote>
+感谢大佬，果然是账号地区问题，按你之前说的把账号改成台蛙，马上就可以用了，牛批。
+
