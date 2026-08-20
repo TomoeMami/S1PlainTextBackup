@@ -12109,3 +12109,40 @@ https://policies.google.com/country-association-form
 其实是要在这里改归属地提交申请修改失败=账号报 ...</blockquote>
 完蛋，果然我是在中国。
 
+
+*****
+
+####  qwased  
+##### 9997#       发表于 2026-8-20 11:26
+
+感觉DSH还是非必要不使用吧，也太不成熟了，换个别的harness先用着
+
+*****
+
+####  舞以  
+##### 9998#       发表于 2026-8-20 11:26
+
+dsh现在是个自己造轮子的玩具，官方都不承诺不进行破坏兼容性的更新<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  serj005  
+##### 9999#       发表于 2026-8-20 11:30
+
+发现dsh的会话记录都是zstd压缩的，难得看到zstd在合适的地方应用起来，会话体积比其他agent能少一半以上。
+
+*****
+
+####  qwased  
+##### 10000#       发表于 2026-8-20 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70112024&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-20 11:26</a>
+
+完蛋，果然我是在中国。</blockquote>
+全程代理开一个新号然后老号拉进家庭组吧，勉强也能用
+
+就是现在新号非常容易风控
+
