@@ -13942,3 +13942,49 @@ codex恶心人，一压缩就报错
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  舞以  
+##### 10174#       发表于 2026-8-20 23:16
+
+不会是v4ultra吧😱
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  城北无尘  
+##### 10175#       发表于 2026-8-20 23:17
+
+第二个项目做到一半坠机了，然后再也抽不到了
+
+
+*****
+
+####  Promeus  
+##### 10176#       发表于 2026-8-20 23:22
+
+<img src="https://p.sda1.dev/34/325362fc670d995a9d09ec60675b1cce/image.jpg" referrerpolicy="no-referrer">
+姑且一听<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nxmonitor  
+##### 10177#       发表于 2026-8-20 23:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116329&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-20 23:22</a>
+
+姑且一听</blockquote>
+这个基本不可能，还要加甲的呢，至少九月份……
+
+*****
+
+####  舞以  
+##### 10178#       发表于 2026-8-20 23:26
+
+如果这个模型能8月上，那为啥要端出来0813呢<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
