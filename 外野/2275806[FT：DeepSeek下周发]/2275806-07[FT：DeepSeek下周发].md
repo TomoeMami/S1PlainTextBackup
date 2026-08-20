@@ -13386,3 +13386,73 @@ Hy4快来了<img src="https://static.stage1st.com/image/smiley/face/154.gif" ref
 
 编辑：并没有，这cot真的神神鬼鬼
 
+
+*****
+
+####  王兰花秀丽  
+##### 10121#       发表于 2026-8-20 20:34
+
+ 本帖最后由 王兰花秀丽 于 2026-8-20 20:37 编辑 
+
+一发入魂，超级长考
+
+这次最显著的特征其实是need to吧
+
+tps确实低，我只有30，不过这个项目工具调用多
+
+<img src="https://img.stage1st.com/forum/202608/20/203428ryspnxi6ijxi562i.png" referrerpolicy="no-referrer">
+
+<strong>1000052471.png</strong> (32.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 20:34 上传
+
+    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  舞以  
+##### 10122#       发表于 2026-8-20 20:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要首字延迟贼高就说明抽到了，要等梁叔叔启动它的超时空中转站
+
+*****
+
+####  城北无尘  
+##### 10123#       发表于 2026-8-20 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115490&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-20 20:34</a>
+
+一发入魂，超级长考
+
+这次最显著的特征其实是need to吧</blockquote>
+群里说今天need to才多起来，昨天还没有
+
+*****
+
+####  tillnight  
+##### 10124#       发表于 2026-8-20 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115476&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-20 20:32</a>
+
+出现wait是不是100%没有抽中</blockquote>
+其实没那么复杂，抽到了的话第一个吐字前肯定会卡一会。然后你看到tps只有20-40就差不多稳了。
+
+*****
+
+####  cscbzcbz  
+##### 10125#       发表于 2026-8-20 20:39
+
+这思维链，时不时跳出来一个Let me 吓唬人一下
+
+速度35 token/s
+
+
+*****
+
+####  舞以  
+##### 10126#       发表于 2026-8-20 20:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天感觉是阳光普照？人人都能用，人人都只能用一两次这样？
+
