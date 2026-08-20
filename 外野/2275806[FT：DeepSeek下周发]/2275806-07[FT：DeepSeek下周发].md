@@ -13855,3 +13855,14 @@ image.png
 
 至于cot之类的异常，我怀疑这模型目前在服务端还有一层比较重的处理层
 
+
+*****
+
+####  crow_wine  
+##### 10165#       发表于 2026-8-20 22:37
+
+我用cloudflare隧道做转发，速度还是有点慢的，然后web ui本身有些请求没压缩没分页，这些大请求很容易挂掉，让ai自己改了
+用p2p，手机上打洞压根不成功<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+后面还要改一下文件查看，web手机端ui适配。
+不过确实挺好玩的，体会到装修的快乐了
+
