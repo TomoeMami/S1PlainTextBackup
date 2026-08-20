@@ -14113,3 +14113,28 @@ sol的文笔和文学逻辑好垃圾啊，感觉连v4p预览都不如，别跟�
 
 然后动作好多
 
+
+*****
+
+####  煙雲靉靆  
+##### 10192#       发表于 2026-8-21 00:55
+
+什么时候才能把多模态API放出来啊，现在这样局限性还是太大了，尤其是代码输出涉及图片且需要debug图片输出问题的情况和需要根据图片开发界面的情况，太麻烦了。
+
+*****
+
+####  nxmonitor  
+##### 10193#       发表于 2026-8-21 00:56
+
+已经开始有一定动画制作能力了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  →熙←  
+##### 10194#       发表于 2026-8-21 01:01
+
+[https://www.bilibili.com/video/BV18C8A6vEwJ](https://www.bilibili.com/video/BV18C8A6vEwJ)
+
+你们要的多模态<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
