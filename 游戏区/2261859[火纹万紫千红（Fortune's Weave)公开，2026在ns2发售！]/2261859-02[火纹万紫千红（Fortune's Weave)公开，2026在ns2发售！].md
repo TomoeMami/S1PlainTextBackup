@@ -15015,3 +15015,11 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 
 该不会要选小孩哥才能招女神吧……
 
+
+*****
+
+####  墨染白泉  
+##### 2902#       发表于 2026-8-20 12:27
+
+完美结局当然得四线都打<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -12243,3 +12243,17 @@ pro预览版其实也能诱导出we need， 但是能力还是差，网页版感
 
 ——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  nianiania  
+##### 10010#       发表于 2026-8-20 12:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70112385&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-20 12:14</a>
+我现在就想买一台服务器当玩具咋办，中年人就这点爱好。
+
+1、Mac studio M4 max 40核　64G 1T           290 ...</blockquote>
+优先考虑 mac 吧，好歹保值些
+
+—— 来自 vivo V2405A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
