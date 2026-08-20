@@ -13644,3 +13644,37 @@ tps确实低，我只有30，不过这个项目工具调用多
 说起这大模型大战PowerShell，我真的奇怪这AI发展几年了，为什么就没人能解决这个问题 ...</blockquote>
 欧美用英语统一ascii变体，pwsh他们遇到的问题少，能凑合用，国内中文编码微软混用历史遗留多没办法，凑合解决就是换git bash绕开pwsh
 
+
+*****
+
+####  舞以  
+##### 10146#       发表于 2026-8-20 21:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我感觉这个神秘模型的服务端估计也有一层harness
+
+*****
+
+####  小野賢章  
+##### 10147#       发表于 2026-8-20 21:39
+
+pwsh是不是更浪费token，转义符更多吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不就用PTC模式算了，直接写js代码
+
+*****
+
+####  phorcys02  
+##### 10148#       发表于 2026-8-20 21:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115730&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-20 21:24</a>
+
+说起这大模型大战PowerShell，我真的奇怪这AI发展几年了，为什么就没人能解决这个问题 ...</blockquote>
+远离powershell,  为什么非要和powershell过不去呢：D
+
+不但人类，连llm都无法理解的东西。
+
+*****
+
+####  龙骑士尹志平  
+##### 10149#       发表于 2026-8-20 21:41
+
+哈基米不愧是美国豆包，和他在网页上对话让他设计个东西，简直和个傻子一样，按钮乱七八糟。梁子快把多模态搞出来吧。
+
