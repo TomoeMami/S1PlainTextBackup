@@ -12298,3 +12298,11 @@ Mac内存太小了吧，没过门槛
 
 —— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+
+*****
+
+####  王兰花秀丽  
+##### 10014#       发表于 2026-8-20 12:54
+
+modal.com自部署的Kimi K3有200tps，注册送30刀，不太耐用，但是感兴趣的可以试试    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
