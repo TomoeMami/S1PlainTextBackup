@@ -11480,3 +11480,121 @@ opencodego也拉得一批
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  舞以  
+##### 9938#       发表于 2026-8-20 09:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">codex的5hlimit回来了？
+
+*****
+
+####  秦南心  
+##### 9939#       发表于 2026-8-20 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70110899&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-20 09:08</a>
+
+这种级别的审美基本不可能没有多模态的。除非真的搞出什么玄学的涌现能力玩意。我不太信涌现说，虽然这个 ...</blockquote>
+目前的LLM做图像内容相比于视频和生图大模型来说，能力还是很弱的，还谈不上“这种级别的审美”，
+
+不如推测ds灰测智力和训练集有跃升，能读懂模型数据结构的规律性所以能仅靠联网素材建模武装直升机
+
+*****
+
+####  xiaohanne  
+##### 9940#       发表于 2026-8-20 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111197&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-20 09:58</a>
+
+codex的5hlimit回来了？</blockquote>
+我这边还没看到
+
+*****
+
+####  泰坦失足  
+##### 9941#       发表于 2026-8-20 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111168&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-8-20 09:54</a>
+
+这玩意性能和V4F比咋样，能代替吗</blockquote>
+各种Benchmark都显示V4F/Muse Spark/Luna max一个水平的
+
+*****
+
+####  舞以  
+##### 9942#       发表于 2026-8-20 10:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111209&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-20 09:59</a>
+
+我这边还没看到</blockquote>
+估计是bug了，官网的界面没有，cli查询有
+
+*****
+
+####  龙骑士尹志平  
+##### 9943#       发表于 2026-8-20 10:00
+
+各位佬，问下：反重力和gemini的地区限制还是不一样的吗，gemini随便用，反重力就是提示地区限制，除了反重力，gemini还可以用什么tui呢？
+
+*****
+
+####  孟沁瑶  
+##### 9944#       发表于 2026-8-20 10:01
+
+请问硅基流动上的v4是不是很旧了？
+
+*****
+
+####  王兰花秀丽  
+##### 9945#       发表于 2026-8-20 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111218&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-20 10:00</a>
+各位佬，问下：反重力和gemini的地区限制还是不一样的吗，gemini随便用，反重力就是提示地区限制，除了反重 ...</blockquote>
+反重力我记得得开tun    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  龙骑士尹志平  
+##### 9946#       发表于 2026-8-20 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111235&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-20 10:02</a>
+
+反重力我记得得开tun    Re:Source</blockquote>
+谢谢大佬，开了提示地区限制，不开就是网络连接不上
+
+
+*****
+
+####  舞以  
+##### 9947#       发表于 2026-8-20 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111197&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-20 09:58</a>
+
+codex的5hlimit回来了？</blockquote>
+艹，每刷一次status，5h limt都是100%，然后重置时间无限往后推
+
+*****
+
+####  zukunes  
+##### 9948#       发表于 2026-8-20 10:06
+
+kimi 这么贵啊！ 开包月又不值得<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 梁子你回来吧，v4f 随便登的时候，真是黄金年代
+
+*****
+
+####  当光停止  
+##### 9949#       发表于 2026-8-20 10:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111218&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-20 10:00</a>
+
+各位佬，问下：反重力和gemini的地区限制还是不一样的吗，gemini随便用，反重力就是提示地区限制，除了反重 ...</blockquote>
+antigravity用的验证域名和gemini的不一样。开tun或者抓下包把域名写个规则。
+
+*****
+
+####  muermaru  
+##### 9950#       发表于 2026-8-20 10:07
+
+直接用antigravity cli，走终端代理就不会有恶心的地区限制问题了
+
