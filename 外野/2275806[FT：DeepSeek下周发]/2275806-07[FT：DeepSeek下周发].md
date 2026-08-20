@@ -12733,3 +12733,26 @@ codex发神经了吗，公司网管突然来问我为什么这么多海外流量
 
 — from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  来都来了  
+##### 10055#       发表于 2026-8-20 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70114072&amp;ptid=2275806" target="_blank">IIIIIlllllIIIII 发表于 2026-8-20 16:46</a>
+我们的网安说是会传你的会话历史包含tool call的结果 也就是假如你用codex读了代码那么scam altman也就拿 ...</blockquote>
+谁家代码一秒一个M连着传几十个G啊？代码不都是几KB的东西吗？而且我听你说后，还专门开了codex，根本就没有你说的每秒一M的网络传输。
+
+*****
+
+####  燕山雪  
+##### 10056#       发表于 2026-8-20 16:57
+
+<img src="https://img.stage1st.com/forum/202608/20/165714a1qt7zkuklwqztt7.jpg" referrerpolicy="no-referrer">
+
+<strong>1000023089.jpg</strong> (180.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 16:57 上传
+
