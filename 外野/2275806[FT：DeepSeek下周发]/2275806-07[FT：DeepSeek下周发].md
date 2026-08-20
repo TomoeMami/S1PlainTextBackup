@@ -12497,3 +12497,21 @@ opencode go的Muse Spark 1.2 Contributor到底在哪些地区可以用？
 
 抽不到啊抽不到，抽了二十次左右一次都没抽到，不放出来就算了，还灰度不到我<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">梁\
 
+
+*****
+
+####  王兰花秀丽  
+##### 10034#       发表于 2026-8-20 14:37
+
+网页版还是API，有人抽到吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  →熙←  
+##### 10035#       发表于 2026-8-20 14:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70113148&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-20 14:32</a>
+
+刷到一个50token/s的, 应该是吧, 但是是中文思维链..刷了几次都是</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">确认不是, 思考有代码出现
+

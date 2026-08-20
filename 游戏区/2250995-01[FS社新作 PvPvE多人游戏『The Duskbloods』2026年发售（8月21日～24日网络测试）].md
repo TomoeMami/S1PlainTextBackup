@@ -372,3 +372,29 @@ NS2+FS的技术力画面和帧数是真的惨，又是多人游戏，不过具�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是一开始所有人各自打野升级最后大乱斗?
 
+
+*****
+
+####  黑卷轴陶德传  
+##### 155#       发表于 2026-8-20 14:42
+
+机器人大擂台
+
+先是机器人闯关，然后一起PK，还有主场机器人
+
+*****
+
+####  thecatnie  
+##### 156#       发表于 2026-8-20 14:43
+
+宫崎英高的驭天飞行者<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  magicc  
+##### 157#       发表于 2026-8-20 14:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70113223&amp;ptid=2250995" target="_blank">thecatnie 发表于 2026-8-20 14:43</a>
+宫崎英高的驭天飞行者</blockquote>
+还真是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
