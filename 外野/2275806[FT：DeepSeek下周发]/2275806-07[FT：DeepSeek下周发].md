@@ -11041,3 +11041,34 @@ unsloth出新的qwen3.8 27b量化了，试了下iq3xxs，输出从50tps提升到
 
 —— 来自 HUAWEI SGT-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  xiaohanne  
+##### 9894#       发表于 2026-8-20 08:09
+
+<blockquote>骨于野 发表于 2026-8-20 07:27
+我服了，反驳我的要么是阴阳怪气，要么是人身攻击。就没有人拿出证据来反驳路由说吗？比如脏token，模型指 ...</blockquote>
+要不然呢，Deepseek白掏钱给用户用Fable，那我真的要叫梁子一声梁圣了，有这么做慈善的吗？
+
+
+*****
+
+####  孤灯蓝影  
+##### 9895#       发表于 2026-8-20 08:15
+
+<blockquote>骨于野 发表于 2026-8-20 07:27
+我服了，反驳我的要么是阴阳怪气，要么是人身攻击。就没有人拿出证据来反驳路由说吗？比如脏token，模型指 ...</blockquote>
+笑死，要是ds路由fabe5看来梁子还是股市赚太多发钱给大伙用，我猜路由的不是fabe5而是fable super max v100 plus utra，你问怎么路由的，我说梁子早就发明了时光机可以路由未来，怪不得炒股百战百胜。
+
+*****
+
+####  frankCC  
+##### 9896#       发表于 2026-8-20 08:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70110529&amp;ptid=2275806" target="_blank">lowezack 发表于 2026-8-20 06:28</a>
+dsh目前就是半成品，没啥好折腾的。核心契约还没稳定，以后还会大改的。
+
+在我看来最起码的安全隔离是要 ...</blockquote>
+现在插件我就是用win里的dsh给wsl里的dsh装插件，出了问题也会自动修，反而比直接自己把自己搞崩方便多了。
+
