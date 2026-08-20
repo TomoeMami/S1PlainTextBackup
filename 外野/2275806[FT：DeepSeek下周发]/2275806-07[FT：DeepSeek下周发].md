@@ -12563,3 +12563,15 @@ https://policies.google.com/country-association-form
 
 就对他这个技术很好奇啊，什么地方泄密的
 
+
+*****
+
+####  qwased  
+##### 10039#       发表于 2026-8-20 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70113349&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-20 15:03</a>
+因为我用grok，一直固定用的东京的节点，他突然给我识别在国内了
+
+就对他这个技术很好奇啊，什么地方泄密 ...</blockquote>
+浏览器默认设置不修改的话是可以直接读到真实ip的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

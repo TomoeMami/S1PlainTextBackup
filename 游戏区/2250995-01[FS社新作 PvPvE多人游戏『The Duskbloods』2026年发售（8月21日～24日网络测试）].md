@@ -439,3 +439,21 @@ NS2+FS的技术力画面和帧数是真的惨，又是多人游戏，不过具�
 
 除了画面整体偏红黑一点
 
+
+*****
+
+####  usodakedo  
+##### 163#       发表于 2026-8-20 15:09
+
+<img src="https://img.stage1st.com/forum/202608/20/150701euk9x9j27jh7kb4z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-08-20-15-06-39-09_149003a2d400f6adb210d7e357a3a646.jpg</strong> (699.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 15:07 上传
+
+这个月球感觉像是什么异空间来的，还带丝，或者说可能依旧带点克苏鲁要素
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
