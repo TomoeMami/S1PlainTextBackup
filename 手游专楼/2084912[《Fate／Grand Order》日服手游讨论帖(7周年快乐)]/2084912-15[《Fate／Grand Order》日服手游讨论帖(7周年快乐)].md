@@ -5149,3 +5149,68 @@ TMD90++本的礼装掉率是不是调过？连续6张礼装全是伤害礼装，
 
 章西那礼装我还挺喜欢的，满破有这水平也够用了
 
+
+*****
+
+####  Jamaisvu  
+##### 21514#       发表于 2026-8-19 19:59
+
+<blockquote>alucardcz 发表于 2026-8-19 19:54
+我还以为你说封面呢  这不是完全大退化（</blockquote>
+其实封面跟狗神煌的原设相比也有点落差...
+
+不过事已至此，只能期待剩下满破卡面能好看些吧...
+
+*****
+
+####  khxooo  
+##### 21515#       发表于 2026-8-19 20:23
+
+ 本帖最后由 khxooo 于 2026-8-19 21:43 编辑 
+
+靠了，虹光一闪，伤害礼装，在90++塞伤害礼装何意味啊？<img src="https://static.stage1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+我QNMLGB的，连续三张伤害礼装，有没有这么过分<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno1  
+##### 21516#       发表于 2026-8-19 21:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/19/213714a5o1wsodhad5jaga.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (263.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-19 21:37 上传
+
+*****
+
+####  khxooo  
+##### 21517#       发表于 2026-8-20 00:08
+
+ 本帖最后由 khxooo 于 2026-8-20 00:09 编辑 
+
+TMD90++本的礼装掉率是不是调过？连续6张礼装全是伤害礼装，什么狗屎掉率。如果不是看到掉落栏还有一个空位，我还以为这本只掉伤害礼装呢<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 21518#       发表于 2026-8-20 02:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">再怎么说也是T0骑单体了，说句世一骑不过分（先别管这赛道有几个选手）
+
+看完近期小町动画和这几个强化，我都不敢想12周年拉二动画和玉玉强化本有多疯狂哦
+
+章西那礼装我还挺喜欢的，满破有这水平也够用了
+
+*****
+
+####  alucardcz  
+##### 21519#       发表于 2026-8-20 13:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来这活动真就一个3000夫夫都没用啊？ 真要30个月？
+

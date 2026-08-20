@@ -12339,3 +12339,18 @@ modal.com自部署的Kimi K3有200tps，注册送30刀，不太耐用，但是�
  ...</blockquote>
 也就是新号也享受家庭组权益然后用新号登录agy吗？感谢
 
+
+*****
+
+####  qwased  
+##### 10018#       发表于 2026-8-20 13:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70112814&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-20 13:26</a>
+
+也就是新号也享受家庭组权益然后用新号登录agy吗？感谢</blockquote>
+[https://blog.jiang.in/archives/0 ... 9-ac64-17a702e4e5b6](https://blog.jiang.in/archives/019bc9aa-77f1-70a9-ac64-17a702e4e5b6)
+
+参考这个，不过我的号是买会员的在香港（不能进反重力）拉了在日本的老号就能进去
+
+我记得用安卓play市场改区也是一样的，实在不行就试试那边的改区
+
