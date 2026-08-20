@@ -12693,3 +12693,43 @@ codex发神经了吗，公司网管突然来问我为什么这么多海外流量
 — from motorola XT2603-1, Android 16, S1 Next Goose  ...</blockquote>
 我这边看了下Windows的数据使用量记录，过去30天里跑了大概50G，过去7天里跑了大概40G，过去24小时里跑了大概20G，所以今天才突然找上我的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zy450  
+##### 10051#       发表于 2026-8-20 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70114006&amp;ptid=2275806" target="_blank">inpachi 发表于 2026-8-20 16:36</a>
+
+我这边看了下Windows的数据使用量记录，过去30天里跑了大概50G，过去7天里跑了大概40G，过去24小时里跑了 ...</blockquote>
+所以到底是传输了什么
+
+*****
+
+####  来都来了  
+##### 10052#       发表于 2026-8-20 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70113956&amp;ptid=2275806" target="_blank">IIIIIlllllIIIII 发表于 2026-8-20 16:29</a>
+好几个版本之前就这样了啊 你们的网安现在才来
+
+— from motorola XT2603-1, Android 16, S1 Next Goose  ...</blockquote>
+那么它到底在跑什么数据？
+
+*****
+
+####  cscbzcbz  
+##### 10053#       发表于 2026-8-20 16:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">codex需要怎么多流量干嘛，搜集数据？
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 10054#       发表于 2026-8-20 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70114055&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-20 16:43</a>
+那么它到底在跑什么数据？</blockquote>
+我们的网安说是会传你的会话历史包含tool call的结果 也就是假如你用codex读了代码那么scam altman也就拿到了你的代码
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
