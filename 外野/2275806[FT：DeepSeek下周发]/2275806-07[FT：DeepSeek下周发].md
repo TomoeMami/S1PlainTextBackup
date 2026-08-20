@@ -13483,3 +13483,37 @@ tps确实低，我只有30，不过这个项目工具调用多
 
 —— 来自 Xiaomi 25091RP04C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  舞以  
+##### 10130#       发表于 2026-8-20 20:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">怎么灰测模型做完第一次长思考规划之后就溜了/
+
+我佛了，后面开始执行的好像是标准模式的弱智版pro啊
+
+编辑：第二轮长思考的时候又回来了？
+
+*****
+
+####  龙骑士尹志平  
+##### 10131#       发表于 2026-8-20 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115572&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-8-20 20:50</a>
+
+怎么跟fgo出新图鉴从者一样，建议做个抽卡插件，每次先转个圈，出特定词组了就给ssr特效 ...</blockquote>
+再次验证ds的二游属性。
+
+*****
+
+####  tillnight  
+##### 10132#       发表于 2026-8-20 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115609&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-20 20:59</a>
+
+怎么灰测模型做完第一次长思考规划之后就溜了/
+
+我佛了，后面开始执行的好像是标准模式的弱智版pro啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">干活的子代理拉了好像是目前这灰测的常见问题。
+

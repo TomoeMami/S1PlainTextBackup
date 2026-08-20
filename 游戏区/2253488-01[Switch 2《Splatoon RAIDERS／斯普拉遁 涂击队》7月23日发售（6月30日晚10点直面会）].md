@@ -8376,3 +8376,16 @@ https://github.com/Orangeeeeeeeeeeeeeeeeee/switch-controller-macro
 
 我两百五十层了秘宝也没全，然后灼烧流感觉有点打不动没什么意思了就不想玩了，发售快一个月了真就一点后续都没有
 
+
+*****
+
+####  a3a4sc  
+##### 969#       发表于 2026-8-20 21:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115587&amp;ptid=2253488" target="_blank">u2deack 发表于 2026-8-20 20:55</a>
+
+我两百五十层了秘宝也没全，然后灼烧流感觉有点打不动没什么意思了就不想玩了，发售快一个月了真就一点后续 ...</blockquote>
+从通关后的毕业BD，卡得最狠最稀缺的资源水晶的最高效获取方式为24小时一个CD的救援奖励来看，我在想任天堂想法是，想让你每天都上线打，提高在线率，也拉长你毕业的速度。然后通过持续更新内容（免费or付费DLC）持续地留住玩家。
+
+不过现在什么动静都没有，如果9月直面会，涂击队啥发表都没有的话，那我感觉这部就靠首发销量赚个喷4的开发资金，就草草收场了。
+
