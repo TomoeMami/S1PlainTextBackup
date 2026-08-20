@@ -11598,3 +11598,98 @@ antigravity用的验证域名和gemini的不一样。开tun或者抓下包把域
 
 直接用antigravity cli，走终端代理就不会有恶心的地区限制问题了
 
+
+*****
+
+####  小野賢章  
+##### 9951#       发表于 2026-8-20 10:11
+
+说路由的忘记之前A/说检测到国内的AI实验室使用他们的模型，会给主动降智+投毒了吗，这么看不起A/的风控？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[https://www.anthropic.com/news/d ... istillation-attacks](https://www.anthropic.com/news/detecting-and-preventing-distillation-attacks)
+
+<img src="https://img.stage1st.com/forum/202608/20/100931twbvddwjx4e5pttz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (333.27 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 10:09 上传
+
+<img src="https://img.stage1st.com/forum/202608/20/101039n9l116vhcddrygv3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (432.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 10:10 上传
+
+*****
+
+####  舞以  
+##### 9952#       发表于 2026-8-20 10:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">达里奥估计被梁子深度求索了
+
+*****
+
+####  xiaohanne  
+##### 9953#       发表于 2026-8-20 10:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111246&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-20 10:03</a>
+
+谢谢大佬，开了提示地区限制，不开就是网络连接不上</blockquote>
+要不你让别的agent给他修一个<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  科技新闻搬运工  
+##### 9954#       发表于 2026-8-20 10:13
+
+其实梁文锋就是尤里，通过心灵控制让美企把自己AI密钥对DS开放，让DS能路由到美国AI上<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiaohanne  
+##### 9955#       发表于 2026-8-20 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111251&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-20 10:04</a>
+
+艹，每刷一次status，5h limt都是100%，然后重置时间无限往后推</blockquote>
+客户端和网页都没有呀<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  唠叨  
+##### 9956#       发表于 2026-8-20 10:14
+
+<img src="https://img.stage1st.com/forum/202608/20/101347l5z9iw9z6v2w6nqs.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-08-20_101244_761.jpg</strong> (45.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 10:13 上传
+
+minimax这个TokenPlan看起来很便宜?
+
+*****
+
+####  tillnight  
+##### 9957#       发表于 2026-8-20 10:16
+
+<blockquote>秦南心 发表于 2026-8-20 09:45
+目前没有视觉</blockquote>
+没有开启视觉和没有原生多模态是两回事。视觉能力是可以从服务端限制的，但是模型本身具有的多模态能力带来的空间认知、美术欣赏、音感等是不会损失的。
+
+*****
+
+####  舞以  
+##### 9958#       发表于 2026-8-20 10:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111311&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-20 10:14</a>
+
+客户端和网页都没有呀</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">估计是啥bug或者过渡态吧，昨晚还查不到，我的网页和客户端也看不到
+
