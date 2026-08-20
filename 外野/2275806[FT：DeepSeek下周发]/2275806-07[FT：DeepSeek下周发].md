@@ -12651,3 +12651,11 @@ Q4量化视觉就基本变成瞎子了</blockquote>
 并没有变成瞎子,你有没有测过能得出这结论</blockquote>
 我试过KV从Q8降到Q4，图片细节全都说不对了，还会瞎编
 
+
+*****
+
+####  inpachi  
+##### 10047#       发表于 2026-8-20 16:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">codex发神经了吗，公司网管突然来问我为什么这么多海外流量，结果排查一圈发现codex开着会话就会常驻1Mbps左右的网络连接，最近24小时跑了20G
+
