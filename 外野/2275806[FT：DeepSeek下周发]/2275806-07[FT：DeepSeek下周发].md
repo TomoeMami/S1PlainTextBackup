@@ -13897,3 +13897,48 @@ image.png
 
 524了 越来越卡 体验又要结束了吗
 
+
+*****
+
+####  冤枉呐  
+##### 10170#       发表于 2026-8-20 23:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115435&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-20 20:26</a>
+有咩有富哥漏友用dsh跑fable？</blockquote>
+any大善人的额度试试？
+大善人最近一直opus5 比较顺畅
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qwased  
+##### 10171#       发表于 2026-8-20 23:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116276&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-20 23:10</a>
+any大善人的额度试试？
+大善人最近一直opus5 比较顺畅</blockquote>
+any我记得不是说用他们白名单以外的客户端或者干编程以外的事情都很容易封号吗
+
+*****
+
+####  Promeus  
+##### 10172#       发表于 2026-8-20 23:15
+
+【夯爆了--8月20日晚ds灰测之各大群友的劳动成果-感谢各位群友的劳动付出-哔哩哔哩】 https://b23.tv/Fents0H
+
+今天的成果展示，甚至有舅舅说这个模型马上上<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冤枉呐  
+##### 10173#       发表于 2026-8-20 23:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116286&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-20 23:13</a>
+any我记得不是说用他们白名单以外的客户端或者干编程以外的事情都很容易封号吗 ...</blockquote>
+反正我从来没拿cherry测试成功过
+codex恶心人，一压缩就报错
+现在稳定使用Claude
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
