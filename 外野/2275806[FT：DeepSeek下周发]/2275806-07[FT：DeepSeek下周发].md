@@ -12659,3 +12659,37 @@ Q4量化视觉就基本变成瞎子了</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">codex发神经了吗，公司网管突然来问我为什么这么多海外流量，结果排查一圈发现codex开着会话就会常驻1Mbps左右的网络连接，最近24小时跑了20G
 
+
+*****
+
+####  overflowal  
+##### 10048#       发表于 2026-8-20 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70113777&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-20 16:06</a>
+我试过KV从Q8降到Q4，图片细节全都说不对了，还会瞎编</blockquote>
+不要量化kv cache，这个东西非常敏感的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 10049#       发表于 2026-8-20 16:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70113813&amp;ptid=2275806" target="_blank">inpachi 发表于 2026-8-20 16:10</a>
+codex发神经了吗，公司网管突然来问我为什么这么多海外流量，结果排查一圈发现codex开着会话就会常驻1Mbps ...</blockquote>
+好几个版本之前就这样了啊 你们的网安现在才来<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  inpachi  
+##### 10050#       发表于 2026-8-20 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70113956&amp;ptid=2275806" target="_blank">IIIIIlllllIIIII 发表于 2026-8-20 16:29</a>
+
+好几个版本之前就这样了啊 你们的网安现在才来
+
+— from motorola XT2603-1, Android 16, S1 Next Goose  ...</blockquote>
+我这边看了下Windows的数据使用量记录，过去30天里跑了大概50G，过去7天里跑了大概40G，过去24小时里跑了大概20G，所以今天才突然找上我的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
