@@ -12822,3 +12822,38 @@ github上有开源的自建中转，需要docker，如果你自己有地方部�
 
 国算这个，计算消费会延迟特别久，而且经常429，确实像二道贩子
 
+
+*****
+
+####  GJRstone  
+##### 10063#       发表于 2026-8-20 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70114247&amp;ptid=2275806" target="_blank">白日依山尽 发表于 2026-8-20 17:10</a>
+国算这个，计算消费会延迟特别久，而且经常429，确实像二道贩子</blockquote>
+国算平台你看他主页也知道，他就是菜市场啊，每个后端商户都是不一样的
+
+
+*****
+
+####  冤枉呐  
+##### 10064#       发表于 2026-8-20 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70113399&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-20 15:12</a>
+
+浏览器默认设置不修改的话是可以直接读到真实ip的</blockquote>
+研究了一下，可能号废了
+
+*****
+
+####  小野賢章  
+##### 10065#       发表于 2026-8-20 17:24
+
+codex 有服务端压缩上下文好像
+
+*****
+
+####  舞以  
+##### 10066#       发表于 2026-8-20 17:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在用dsh跑sol，发现dsh默认的压缩策略好像是压到100k上下？挺适合ds的1m上下文，codex默认的272k看起来不太合适了
+
