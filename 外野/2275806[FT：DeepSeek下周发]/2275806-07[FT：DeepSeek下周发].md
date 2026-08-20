@@ -12857,3 +12857,38 @@ codex 有服务端压缩上下文好像
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在用dsh跑sol，发现dsh默认的压缩策略好像是压到100k上下？挺适合ds的1m上下文，codex默认的272k看起来不太合适了
 
+
+*****
+
+####  crow_wine  
+##### 10067#       发表于 2026-8-20 17:56
+
+没有快得拉稀的 flash 好难受啊
+
+*****
+
+####  cscbzcbz  
+##### 10068#       发表于 2026-8-20 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70114529&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-20 17:56</a>
+没有快得拉稀的 flash 好难受啊</blockquote>
+梁叔叔的贼快<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tonyunreal  
+##### 10069#       发表于 2026-8-20 18:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70114529&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-20 17:56</a>
+
+没有快得拉稀的 flash 好难受啊</blockquote>
+六点了可以蹬官方了<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 10070#       发表于 2026-8-20 18:03
+
+梁文谷，变身！
+
