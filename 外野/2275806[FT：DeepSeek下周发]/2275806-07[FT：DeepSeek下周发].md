@@ -12970,3 +12970,48 @@ codex 有服务端压缩上下文好像</blockquote>
 最新版的DSH上有人发现了疑似flash视觉模型的相关代码</blockquote>
 rc8提交记录明文写了增加多模态输入支持
 
+
+*****
+
+####  c月光咖啡  
+##### 10078#       发表于 2026-8-20 19:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70114247&amp;ptid=2275806" target="_blank">白日依山尽 发表于 2026-8-20 17:10</a>
+国算这个，计算消费会延迟特别久，而且经常429，确实像二道贩子</blockquote>
+我还巴不得它是二道贩子，ocg也是二道贩子虽然有时候慢但至少能用，超算这个一直429我都快疯了
+
+—— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
+
+
+*****
+
+####  misuzu0723  
+##### 10079#       发表于 2026-8-20 19:13
+
+我说的不是支持图片输入那个，是出现了新的模型id
+可以直接去 github 源码搜索deepseek-v4-flash-vision-exp
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  cscbzcbz  
+##### 10080#       发表于 2026-8-20 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70114995&amp;ptid=2275806" target="_blank">c月光咖啡 发表于 2026-8-20 19:08</a>
+我还巴不得它是二道贩子，ocg也是二道贩子虽然有时候慢但至少能用，超算这个一直429我都快疯了
+
+—— 来 ...</blockquote>
+别用了，根本没法用
+
+
+*****
+
+####  overflowal  
+##### 10081#       发表于 2026-8-20 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115028&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-20 19:13</a>
+我说的不是支持图片输入那个，是出现了新的模型id
+可以直接去 github 源码搜索deepseek-v4-flash-vision-ex ...</blockquote>
+这个模型应该就是识图模式的那个    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
