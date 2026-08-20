@@ -8329,3 +8329,12 @@ https://github.com/Orangeeeeeeeeeeeeeeeeee/switch-controller-macro
 无限食堂（有限）
 应该改名叫千层食堂    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  Dedalus  
+##### 965#       发表于 2026-8-20 18:51
+
+没插画没彩蛋没特殊台词什么都没有，虽然早有心理准备但还是<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+好歹特殊台词给一句吧，玩家逃课知道设计台词破关却没有吗，很不任天堂
+

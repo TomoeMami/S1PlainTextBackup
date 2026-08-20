@@ -12919,3 +12919,23 @@ codex 有服务端压缩上下文好像
 装了这个插件真的好玩</blockquote>
 这是哪个插件？
 
+
+*****
+
+####  jinuzuktII  
+##### 10073#       发表于 2026-8-20 18:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70114346&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-20 17:24</a>
+
+codex 有服务端压缩上下文好像</blockquote>
+有的，云端压缩
+
+跑其他反代模型还得把这个关了不然会卡住
+
+*****
+
+####  misuzu0723  
+##### 10074#       发表于 2026-8-20 18:50
+
+最新版的DSH上有人发现了疑似flash视觉模型的相关代码
+
