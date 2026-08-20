@@ -11357,3 +11357,63 @@ Hy3只有256k上下文，子代理执行任务到一半触发自动压缩了。�
 
 可以看看这个，然后问问ai传输到境外处罚是什么
 
+
+*****
+
+####  nxmonitor  
+##### 9926#       发表于 2026-8-20 09:36
+
+技术方面也站不住，提出来的真的知道自己在说什么吗？有些说法等于在说A÷对DS不设防，到底在吹哪边不好说啊……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  neptunehs  
+##### 9927#       发表于 2026-8-20 09:38
+
+说到底灰测模型反正短时间内出不来 也不知道奉a/为圭臬的那些人到底在急什么 是出来了再急就晚了？
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  rachepatty  
+##### 9928#       发表于 2026-8-20 09:42
+
+信这个的等同于说梁同志把美帝 AI 双子星之一摆出这样那样的姿势然后时不时的流出福利来，不然你正式用户都看不到的思考链灰测一览无疑，你说这是🀄输还是🤷‍♂️<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  雨昼斯基  
+##### 9929#       发表于 2026-8-20 09:42
+
+可能是灰测模型具有多模态，但是当前灰测和 v4p 共用 API ，没开放。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  Hyst3r1a  
+##### 9930#       发表于 2026-8-20 09:43
+
+原来DS对公和个人的API不一样的吗，我还在想他这API不是搞灰测就是不稳定，拿来做业务用真的没问题吗
+
+*****
+
+####  秦南心  
+##### 9931#       发表于 2026-8-20 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111087&amp;ptid=2275806" target="_blank">雨昼斯基 发表于 2026-8-20 09:42</a>
+
+可能是灰测模型具有多模态，但是当前灰测和 v4p 共用 API ，没开放。    Re:Source ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/20/094528jhf6ffb4vh2szfbv.png" referrerpolicy="no-referrer">
+
+<strong>QQ20260820-094559.png</strong> (322.18 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 09:45 上传
+
+目前没有视觉
+
