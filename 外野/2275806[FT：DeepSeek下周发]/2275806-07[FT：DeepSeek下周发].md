@@ -12314,3 +12314,14 @@ modal.com自部署的Kimi K3有200tps，注册送30刀，不太耐用，但是�
 
 你们到处薅羊毛时所有API都是自己重新填的吗？我的电脑+手机上有七八个地方需要填API，让我三天换一个供应商，我是没那个耐心。
 
+
+*****
+
+####  LeoDT  
+##### 10016#       发表于 2026-8-20 13:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70112733&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-20 13:14</a>
+
+你们到处薅羊毛时所有API都是自己重新填的吗？我的电脑+手机上有七八个地方需要填API，让我三天换一个供应 ...</blockquote>
+比起这个中转站这种东西更应该担心的是安全问题，harness只要给了bash/powershell权限中转站想劫持或者偷数据那是分分钟的事，毕竟就是一个HTTP响应的事，一点门槛没有。
+
