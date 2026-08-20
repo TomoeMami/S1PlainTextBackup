@@ -11771,3 +11771,64 @@ mimo吧，2.5（非pro）有多模态，还廉价，速度不错，如果能力�
 我现在的工作要求模型有图片理解能力，用哪个合适，主要是还得便宜</blockquote>
 还是得自己试，智力够用的边界真的因人而异。
 
+
+*****
+
+####  舞以  
+##### 9966#       发表于 2026-8-20 10:27
+
+廉价多模态现在我印象里就是mimov2.5和gpt-luna？luna开个plu订阅基本就能爽用了。
+
+mimo的话虽然能力一般，但是价格还是对标v4f涨价之前的。
+
+*****
+
+####  龙骑士尹志平  
+##### 9967#       发表于 2026-8-20 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111269&amp;ptid=2275806" target="_blank">muermaru 发表于 2026-8-20 10:07</a>
+
+直接用antigravity cli，走终端代理就不会有恶心的地区限制问题了</blockquote>
+不行啊，佬， curl ipinfo.io看已经是国外了，cli Oauth已经走完能看到账号信息了，进去一样有地区限制
+
+*****
+
+####  蛋黄酱Release  
+##### 9968#       发表于 2026-8-20 10:28
+
+glm5.3怎么雷达站上的分这么低<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">实际用起来有什么不爽的地方吗
+
+
+*****
+
+####  inpachi  
+##### 9969#       发表于 2026-8-20 10:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实我工作也用不了多少token，毕竟我主业只是测试，大部分时候只需要排障和定位，剩下的开单就行了，让程序去烧token，就算是梁文峰也蹬得动。
+
+主要是下班回家玩酒馆，这东西缓存命中率低、经常因为不够满意需要抽卡重roll，再加上ds似乎总是不填表，梁文谷都有点蹬不动。
+
+最近找了个还算可以的mimo预设，写起来还算听话，填表也经常填，猛猛蹬opencodego也不太花钱，姑且算是找到了平衡点。
+
+*****
+
+####  villsian  
+##### 9970#       发表于 2026-8-20 10:32
+
+<blockquote>龙骑士尹志平 发表于 2026-8-20 10:28
+不行啊，佬， curl ipinfo.io看已经是国外了，cli Oauth已经走完能看到账号信息了，进去一样有地区限制 ...</blockquote>
+可以看谷歌的文档，有地区限制列表。
+
+我记得香港肯定是不能用。美国节点开了tun模式是可以用的。
+
+*****
+
+####  tillnight  
+##### 9971#       发表于 2026-8-20 10:32
+
+<blockquote>蛋黄酱Release 发表于 2026-8-20 10:28
+glm5.3怎么雷达站上的分这么低实际用起来有什么不爽的地方吗</blockquote>
+人很醒目的提示了目前样本数不够，新加的三兄弟都不作为正式分数推荐。
+
+不过倒是能看的出kimi是真的贵，蹬的人是真的少，起码舍得拿出来公益蹬的很少。
+
