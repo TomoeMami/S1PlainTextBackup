@@ -12625,3 +12625,29 @@ https://policies.google.com/country-association-form
 Q4量化视觉就基本变成瞎子了</blockquote>
 并没有变成瞎子,你有没有测过能得出这结论
 
+
+*****
+
+####  ly4236  
+##### 10045#       发表于 2026-8-20 16:02
+
+<img src="https://img.stage1st.com/forum/202608/20/160159dgii24ovi45iou48.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.42 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 16:01 上传
+
+ 已经把一套业务流程重建了一遍，有点被榨干了。
+
+*****
+
+####  qwased  
+##### 10046#       发表于 2026-8-20 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70113708&amp;ptid=2275806" target="_blank">pf67 发表于 2026-8-20 15:56</a>
+
+并没有变成瞎子,你有没有测过能得出这结论</blockquote>
+我试过KV从Q8降到Q4，图片细节全都说不对了，还会瞎编
+
