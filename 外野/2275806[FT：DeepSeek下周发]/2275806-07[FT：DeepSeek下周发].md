@@ -14148,3 +14148,43 @@ sol的文笔和文学逻辑好垃圾啊，感觉连v4p预览都不如，别跟�
 
 惊了，简介也惊了
 
+
+*****
+
+####  shqingda_  
+##### 10196#       发表于 2026-8-21 01:18
+
+这瞎子模型也太nb了
+
+
+*****
+
+####  舞以  
+##### 10197#       发表于 2026-8-21 01:22
+
+我刷到了个鞭毛马达
+
+这玩意儿fable让做么
+
+*****
+
+####  nxmonitor  
+##### 10198#       发表于 2026-8-21 01:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116753&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-21 01:22</a>
+
+我刷到了个鞭毛马达
+
+这玩意儿fable让做么</blockquote>
+不能，所以改口说路由到Opus5了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jinuzuktII  
+##### 10199#       发表于 2026-8-21 01:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116759&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-21 01:24</a>
+
+不能，所以改口说路由到Opus5了……</blockquote>
+还有说路由到内测中的fable5.1
+
