@@ -13866,3 +13866,19 @@ image.png
 后面还要改一下文件查看，web手机端ui适配。
 不过确实挺好玩的，体会到装修的快乐了
 
+
+*****
+
+####  阿刚  
+##### 10166#       发表于 2026-8-20 22:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">我怎么出来的都是i should
+
+
+*****
+
+####  tillnight  
+##### 10167#       发表于 2026-8-20 22:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我现在的想法是全世界的卡都给DS，年底可能AGI了。
+

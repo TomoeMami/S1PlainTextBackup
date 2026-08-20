@@ -2075,3 +2075,20 @@ mygo是约定到来的爆炸，前期就一直铺垫求而不得的回家的诱�
 
 谁能告诉我这帮人到底牛魔的在干什么啊？真的不是围着篝火**吗？
 
+
+*****
+
+####  Lawliet.L  
+##### 322#       发表于 2026-8-20 22:45
+
+《疯狂的兔子》<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sephal  
+##### 323#       发表于 2026-8-20 22:47
+
+但凡tuning能放出来，这集观感都会好很多
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
