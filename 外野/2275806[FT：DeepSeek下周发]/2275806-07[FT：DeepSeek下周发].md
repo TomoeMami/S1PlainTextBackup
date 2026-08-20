@@ -12591,3 +12591,14 @@ https://policies.google.com/country-association-form
 
 强烈怀疑梁文峰时间就是ds上班时间，不包括午休<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  龙骑士尹志平  
+##### 10042#       发表于 2026-8-20 15:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70113480&amp;ptid=2275806" target="_blank">haiuhfuwah 发表于 2026-8-20 15:24</a>
+
+强烈怀疑梁文峰时间就是ds上班时间，不包括午休</blockquote>
+肯定的，梁文峰时间是北京时间，全球都是按照北京时间来定谷峰，而不是各时区按照各时区作息来定谷峰，很明显就是为了给ds的员工上班时间腾资源玩agi，下班了就把全量资源放出来给你球穷屌抢来玩。
+

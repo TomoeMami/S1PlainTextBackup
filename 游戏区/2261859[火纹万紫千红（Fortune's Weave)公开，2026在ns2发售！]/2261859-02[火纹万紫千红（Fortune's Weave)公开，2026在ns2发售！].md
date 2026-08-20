@@ -15067,3 +15067,14 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 
 战斗准备太长不喜欢，Engage我没多周目，就是觉得开多周目的战斗准备很烦，也没风花雪月有剧情探索的动力。
 
+
+*****
+
+####  mai6696  
+##### 2908#       发表于 2026-8-20 15:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70113463&amp;ptid=2261859" target="_blank">天涯夹心人 发表于 2026-8-20 15:21</a>
+
+战斗准备太长不喜欢，Engage我没多周目，就是觉得开多周目的战斗准备很烦，也没风花雪月有剧情探索的动力。 ...</blockquote>
+喜欢捡马粪和打飞机小游戏吗？
+
