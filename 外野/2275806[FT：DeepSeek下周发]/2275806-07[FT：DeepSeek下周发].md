@@ -10980,3 +10980,28 @@ dsh rc8更了
 如何看待B友觉得弱智版通用人工智能已经实现了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">技术问题在哪
 
+
+*****
+
+####  wandeeees  
+##### 9888#       发表于 2026-8-20 07:54
+
+到底吃了几碗粉？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 9889#       发表于 2026-8-20 07:55
+
+实际上只要有眼睛就能看出来不一样，但是很明显有些人心黑所以眼瞎…
+
+*****
+
+####  舞以  
+##### 9890#       发表于 2026-8-20 07:56
+
+我就想看看灰测模型有和Claude一样的脏token的实锤<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+其他方面打补丁的感觉已经是地平论者的模样了。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
