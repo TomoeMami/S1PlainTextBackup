@@ -14138,3 +14138,13 @@ sol的文笔和文学逻辑好垃圾啊，感觉连v4p预览都不如，别跟�
 
 你们要的多模态<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jinuzuktII  
+##### 10195#       发表于 2026-8-21 01:11
+
+|【【Deepseek v4 pro灰测】一轮直出世界极品池核 | fable分前吊打Dario | 核爆瘫坐！-哔哩哔哩】 https://b23.tv/ExiUrHJ|
+
+惊了，简介也惊了
+
