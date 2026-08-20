@@ -12602,3 +12602,26 @@ https://policies.google.com/country-association-form
 强烈怀疑梁文峰时间就是ds上班时间，不包括午休</blockquote>
 肯定的，梁文峰时间是北京时间，全球都是按照北京时间来定谷峰，而不是各时区按照各时区作息来定谷峰，很明显就是为了给ds的员工上班时间腾资源玩agi，下班了就把全量资源放出来给你球穷屌抢来玩。
 
+
+*****
+
+####  novem  
+##### 10043#       发表于 2026-8-20 15:55
+
+<blockquote>serj005 发表于 2026-8-20 11:54
+现在的网页专家模式好像稳定we need了</blockquote>
+
+不稳定，我前两天试验是we need今天试是let me
+
+*****
+
+####  pf67  
+##### 10044#       发表于 2026-8-20 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111574&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-20 10:42</a>
+
+1G显存能多20K上下文吧，KV Q8量化
+
+Q4量化视觉就基本变成瞎子了</blockquote>
+并没有变成瞎子,你有没有测过能得出这结论
+
