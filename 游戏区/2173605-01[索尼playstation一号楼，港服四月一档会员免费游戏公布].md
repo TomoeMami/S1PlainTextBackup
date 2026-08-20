@@ -38,3 +38,11 @@ The game is not yet canceled, but the studio told staff in a meeting on Wednesda
 
 地平线3还遥遥无期，估计赶不上ps6首发了
 
+
+*****
+
+####  黑猫软  
+##### 788#       发表于 2026-8-21 07:15
+
+戴夫·巴蒂斯塔已正式接替瑞安·赫斯特，在 Prime 的《战神》系列中饰演奎托斯。
+

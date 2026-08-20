@@ -14345,3 +14345,37 @@ opencode free的v4f似乎没了 最后的救命稻草也没了 哎
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  nxmonitor  
+##### 10214#       发表于 2026-8-21 07:17
+
+<blockquote>chuchoselph 发表于 2026-8-21 02:42
+还是很难想象这玩意儿没有多模态，太野了</blockquote>
+看配色就知道，经常看上去很丑，基本就是没有多模态的…
+
+
+*****
+
+####  80后卢瑟  
+##### 10215#       发表于 2026-8-21 07:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116959&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-21 07:13</a>
+
+用pi真的抽不出来，用dsh一下就抽出来了我终于也能用上许愿机了</blockquote>
+装了 dsh 之类的提示词插件吗？
+
+*****
+
+####  cscbzcbz  
+##### 10216#       发表于 2026-8-21 07:22
+
+ 本帖最后由 cscbzcbz 于 2026-8-21 07:24 编辑 
+
+这次阳光普照，什么谣言诽谤不攻自破
+
+在实力面前，公关毫无意义<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+就是新模型真发布的话，算力够吗，感觉又要涨价了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
