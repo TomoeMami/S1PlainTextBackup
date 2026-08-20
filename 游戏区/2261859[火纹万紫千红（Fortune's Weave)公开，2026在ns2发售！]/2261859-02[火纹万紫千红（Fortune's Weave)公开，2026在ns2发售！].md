@@ -14897,3 +14897,11 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 
 血统论果然是日式游戏尤其是RPG不可不品的一环。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 2889#       发表于 2026-8-20 08:41
+
+所以凯爹的罪名就是，身为侍卫却把神艹了？
+
