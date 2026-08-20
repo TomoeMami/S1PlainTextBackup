@@ -11693,3 +11693,81 @@ minimax这个TokenPlan看起来很便宜?
 客户端和网页都没有呀</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">估计是啥bug或者过渡态吧，昨晚还查不到，我的网页和客户端也看不到
 
+
+*****
+
+####  xiaohanne  
+##### 9959#       发表于 2026-8-20 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111314&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-20 10:14</a>
+
+minimax这个TokenPlan看起来很便宜?</blockquote>
+minimax的智力相对低一点，比mimo强，略逊glm5.2。
+
+另外以前订阅的时候，高峰期限流很烦人，不适合需要即时互动的任务。
+
+但智力又没高到可以/goal让他自己跑。
+
+不上不下的感觉。
+
+*****
+
+####  舞以  
+##### 9960#       发表于 2026-8-20 10:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议直接告到工信部，对梁子进行本部爆破
+
+
+*****
+
+####  唠叨  
+##### 9961#       发表于 2026-8-20 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111354&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-20 10:19</a>
+
+minimax的智力相对低一点，比mimo强，略逊glm5.2。
+
+另外以前订阅的时候，高峰期限流很烦人，不适合需要即 ...</blockquote>
+我现在的工作要求模型有图片理解能力，用哪个合适，主要是还得便宜<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiaohanne  
+##### 9962#       发表于 2026-8-20 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111329&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-20 10:16</a>
+
+估计是啥bug或者过渡态吧，昨晚还查不到，我的网页和客户端也看不到</blockquote>
+bug吧，vibe coding流行，我都快习惯牢美那几家大模型厂商隔三岔五出个闹麻了的bug了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 9963#       发表于 2026-8-20 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111384&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-20 10:22</a>
+
+我现在的工作要求模型有图片理解能力，用哪个合适，主要是还得便宜</blockquote>
+mimo吧，2.5（非pro）有多模态，还廉价，速度不错，如果能力你觉得够用
+
+*****
+
+####  Promeus  
+##### 9964#       发表于 2026-8-20 10:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111285&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-20 10:11</a>
+说路由的忘记之前A/说检测到国内的AI实验室使用他们的模型，会给主动降智+投毒了吗，这么看不起A/的风控？
+
+ ...</blockquote>
+我之前说的就是这个<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiaohanne  
+##### 9965#       发表于 2026-8-20 10:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111384&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-20 10:22</a>
+
+我现在的工作要求模型有图片理解能力，用哪个合适，主要是还得便宜</blockquote>
+还是得自己试，智力够用的边界真的因人而异。
+
