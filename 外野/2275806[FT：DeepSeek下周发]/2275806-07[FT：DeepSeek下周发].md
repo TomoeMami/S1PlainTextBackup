@@ -13315,3 +13315,74 @@ Hy4快来了<img src="https://static.stage1st.com/image/smiley/face/154.gif" ref
 
 —— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  cscbzcbz  
+##### 10112#       发表于 2026-8-20 20:26
+
+哈哈又中了 我要看看白天flash干成一坨的活 这个神秘模型能干成啥样
+
+*****
+
+####  舞以  
+##### 10113#       发表于 2026-8-20 20:26
+
+有咩有富哥漏友用dsh跑fable？
+
+*****
+
+####  城北无尘  
+##### 10114#       发表于 2026-8-20 20:26
+
+ 本帖最后由 城北无尘 于 2026-8-20 20:29 编辑 
+
+我ctrl f了一下，我目前在跑的灰度442个ing、34个need to、3个let me。慢的TPS 8tok/s，快到36tok/s<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 10115#       发表于 2026-8-20 20:29
+
+每个账号疑似只有两次机会
+
+*****
+
+####  小野賢章  
+##### 10116#       发表于 2026-8-20 20:31
+
+今天我让普通版v4pro做了一个折纸模拟器，功能没有实现正确，会把纸折烂，可惜抽不到<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 10117#       发表于 2026-8-20 20:31
+
+卧槽，我好像也抽到了，今晚是人人都有梁叔叔反代来的fable用了？
+
+
+*****
+
+####  小野賢章  
+##### 10118#       发表于 2026-8-20 20:32
+
+出现wait是不是100%没有抽中<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bartholo4  
+##### 10119#       发表于 2026-8-20 20:33
+
+只能说涨价折腾这几天 是真把耽误AGI训练的人撵跑了~
+
+*****
+
+####  舞以  
+##### 10120#       发表于 2026-8-20 20:33
+
+不对劲，一下又没了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+一次交付都没完成就没了？
+
+编辑：并没有，这cot真的神神鬼鬼
+
