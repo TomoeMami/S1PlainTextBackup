@@ -11102,3 +11102,53 @@ pi-antigravity拉完了，格式各种冲突，估计只装这个插件才能用
 
 这什么路由论我还以为是带伙帆船着好玩的，没想到真有人信啊
 
+
+*****
+
+####  厍无春  
+##### 9900#       发表于 2026-8-20 08:48
+
+我也觉得像是个和pro并行训练的一个模型，真可能是个新模型，但是新模型依旧没有多模态，就让人很困惑🤔
+
+8255.jpg
+(827.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 08:46 上传
+
+<img src="https://img.stage1st.com/forum/202608/20/084627cw00zw08wz72x25z.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ZBY901026  
+##### 9901#       发表于 2026-8-20 08:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70110586&amp;ptid=2275806" target="_blank">骨于野 发表于 2026-8-20 07:27</a>
+我服了，反驳我的要么是阴阳怪气，要么是人身攻击。就没有人拿出证据来反驳路由说吗？比如脏token，模型指 ...</blockquote>
+ds的模型会把思维链展示出来
+闭源模型是隐藏掉的
+梁文锋已经能把别人加密的东西破译了展示出来是吧
+
+信这个的我不好说是什么<img src="https://static.stage1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  2017.05.04  
+##### 9902#       发表于 2026-8-20 08:54
+
+与其说是地平论不如说是伪史论
+哪怕同时没用过fable和ds，也应该知道现在开闭源ai服务都有哪些差别才对
+
+—— 来自 HUAWEI SGT-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  当光停止  
+##### 9903#       发表于 2026-8-20 08:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">你们要不去格斗区建个楼吧
+
