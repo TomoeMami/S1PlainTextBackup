@@ -8360,3 +8360,11 @@ https://github.com/Orangeeeeeeeeeeeeeeeeee/switch-controller-macro
 
 今天发现我刷食堂坐牢不如回去打传说工笑得开心...
 
+
+*****
+
+####  RαPβiT  
+##### 967#       发表于 2026-8-20 20:11
+
+佩服，我打过一百层刷完秘宝就封盘了，实在是玩的很腻了
+

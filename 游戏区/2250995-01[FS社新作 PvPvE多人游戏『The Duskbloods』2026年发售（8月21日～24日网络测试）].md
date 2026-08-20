@@ -496,3 +496,16 @@ NS2+FS的技术力画面和帧数是真的惨，又是多人游戏，不过具�
 
 现在市面上pvevp游戏做的不错有哪些，搜了下都是FPS多，和黄昏之血类似的有吗？
 
+
+*****
+
+####  一之江瑞江  
+##### 168#       发表于 2026-8-20 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115262&amp;ptid=2250995" target="_blank">八汰乌 发表于 2026-8-20 19:54</a>
+
+现在市面上pvevp游戏做的不错有哪些，搜了下都是FPS多，和黄昏之血类似的有吗？
+
+ ...</blockquote>
+你要说魂类PVEVP的 国产有个刚出的雾影猎人
+

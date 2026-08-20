@@ -13181,3 +13181,75 @@ Hy4快来了<img src="https://static.stage1st.com/image/smiley/face/154.gif" ref
 
 本来想尝试双开处理下白天的项目，结果第二个对话全是let me了，梁叔叔给的一次体验卡<img src="https://static.stage1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小野賢章  
+##### 10099#       发表于 2026-8-20 20:07
+
+就用标准模式吗，还是用那些各种自己研发的特殊模式？
+
+*****
+
+####  tillnight  
+##### 10100#       发表于 2026-8-20 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115332&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-20 20:07</a>
+
+就用标准模式吗，还是用那些各种自己研发的特殊模式？</blockquote>
+不用。标准模式就可以。
+
+*****
+
+####  cscbzcbz  
+##### 10101#       发表于 2026-8-20 20:09
+
+ 本帖最后由 cscbzcbz 于 2026-8-20 20:11 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115332&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-20 20:07</a>
+
+就用标准模式吗，还是用那些各种自己研发的特殊模式？</blockquote>
+
+标准模式，windows系统，无任何插件（指那些乱七八糟的预设，自己开发的插件还是有的，应该没影响）官方api,   v4pro 思考深度high
+
+用的DSH rc7版本
+
+*****
+
+####  风速前进mo  
+##### 10102#       发表于 2026-8-20 20:10
+
+用pi能刷到吗？需要提示词适配吗？之前那波灰测用pi就从来没刷到过
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qz66618  
+##### 10103#       发表于 2026-8-20 20:10
+
+更新了dsh版本后极简模式的插件失效了吗，现在思维链都是let's了
+
+
+*****
+
+####  cscbzcbz  
+##### 10104#       发表于 2026-8-20 20:13
+
+没跑完中断了<img src="https://static.stage1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+再继续就是let me 了，梁子你还我token来<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  城北无尘  
+##### 10105#       发表于 2026-8-20 20:13
+
+刚刚灰度到的
+
+<img src="https://img.stage1st.com/forum/202608/20/201336pvjulc0wma8ltlll.png" referrerpolicy="no-referrer">
+
+<strong>截图.png</strong> (220.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 20:13 上传
+
