@@ -13015,3 +13015,29 @@ rc8提交记录明文写了增加多模态输入支持
 可以直接去 github 源码搜索deepseek-v4-flash-vision-ex ...</blockquote>
 这个模型应该就是识图模式的那个    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  tonyunreal  
+##### 10082#       发表于 2026-8-20 19:17
+
+又来了？<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2017.05.04  
+##### 10083#       发表于 2026-8-20 19:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70114761&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-20 18:34</a>
+
+这是哪个插件？</blockquote>
+[https://github.com/Francis-Xavier-code/dsh-balance-plugin](https://github.com/Francis-Xavier-code/dsh-balance-plugin)
+
+*****
+
+####  厍无春  
+##### 10084#       发表于 2026-8-20 19:25
+
+来了，今天是在梁文谷时段来的
+
