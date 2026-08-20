@@ -398,3 +398,26 @@ NS2+FS的技术力画面和帧数是真的惨，又是多人游戏，不过具�
 宫崎英高的驭天飞行者</blockquote>
 还真是<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lilod  
+##### 158#       发表于 2026-8-20 14:50
+
+目前的这个演示，虽然机动性增加了，但是依然有魂游的便秘感
+
+
+*****
+
+####  herryk159  
+##### 159#       发表于 2026-8-20 14:54
+
+看着有点抽象是怎么回事？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不再乱发炎了  
+##### 160#       发表于 2026-8-20 14:54
+
+看了下还真是有点卡比飞车的联机对战思路
+

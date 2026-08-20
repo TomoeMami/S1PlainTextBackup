@@ -12515,3 +12515,24 @@ opencode go的Muse Spark 1.2 Contributor到底在哪些地区可以用？
 刷到一个50token/s的, 应该是吧, 但是是中文思维链..刷了几次都是</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">确认不是, 思考有代码出现
 
+
+*****
+
+####  冤枉呐  
+##### 10036#       发表于 2026-8-20 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111660&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-20 10:49</a>
+
+https://policies.google.com/country-association-form
+
+其实是要在这里改归属地提交申请修改失败=账号报 ...</blockquote>
+请教一下佬
+
+我的Google账号注册后直接就可以用Gemini
+
+但是过了几天突然不行了，到这个地方看，归属地是美国加州
+
+现在很神奇，代理在东京，浏览器打开说我在国内，无痕模式打不开。换代理到荷兰无痕模式可以
+
+啥情况
+
