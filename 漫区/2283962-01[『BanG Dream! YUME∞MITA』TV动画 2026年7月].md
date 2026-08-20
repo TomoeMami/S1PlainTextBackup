@@ -2140,3 +2140,11 @@ mygo是约定到来的爆炸，前期就一直铺垫求而不得的回家的诱�
 
 v姐我错了这片不能没有你啊<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aisakahammer  
+##### 329#       发表于 2026-8-20 23:43
+
+ 这不挺好的么，把过去的背景过一遍，然后M不灭，团建写歌，对于摇摆不定的人就要赖着拖着一起走
+

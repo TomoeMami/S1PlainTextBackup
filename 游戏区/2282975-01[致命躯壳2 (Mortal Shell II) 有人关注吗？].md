@@ -624,3 +624,11 @@ Reddit那边还是加分制的人居多，S1这边除非是系列粉否则一向
 
 唯一的优点是手感还行，构筑也还算多样，不知道能不能坚持到通关<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kyonkoism  
+##### 68#       发表于 2026-8-20 23:40
+
+试玩了下 底子好 **小小毛病太多了，又是为了延迟游玩玩家完美量身定做的游戏<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
