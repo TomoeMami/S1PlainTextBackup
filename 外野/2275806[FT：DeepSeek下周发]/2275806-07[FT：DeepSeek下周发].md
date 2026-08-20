@@ -12575,3 +12575,19 @@ https://policies.google.com/country-association-form
 就对他这个技术很好奇啊，什么地方泄密 ...</blockquote>
 浏览器默认设置不修改的话是可以直接读到真实ip的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  crow_wine  
+##### 10040#       发表于 2026-8-20 15:23
+
+一到高峰期国超算卡得要死
+
+
+*****
+
+####  haiuhfuwah  
+##### 10041#       发表于 2026-8-20 15:24
+
+强烈怀疑梁文峰时间就是ds上班时间，不包括午休<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
