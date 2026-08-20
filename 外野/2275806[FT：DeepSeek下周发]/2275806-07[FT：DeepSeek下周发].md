@@ -13678,3 +13678,36 @@ pwsh是不是更浪费token，转义符更多吧<img src="https://static.stage1s
 
 哈基米不愧是美国豆包，和他在网页上对话让他设计个东西，简直和个傻子一样，按钮乱七八糟。梁子快把多模态搞出来吧。
 
+
+*****
+
+####  小野賢章  
+##### 10150#       发表于 2026-8-20 21:44
+
+反代 dsh，在手机上/访问，然后选择工作区的时候，弹出来的选择目录对话框是在 dsh 运行的电脑上，这个原来不是前端弹出来的啊，是后端弹出来的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点搞笑
+
+*****
+
+####  SmterC  
+##### 10151#       发表于 2026-8-20 21:45
+
+结束了吗，完全抽不到唉，全是letme    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  舞以  
+##### 10152#       发表于 2026-8-20 21:47
+
+我的测试项目跑了75min，目前看还是灰测模型在跑
+
+*****
+
+####  tonyunreal  
+##### 10153#       发表于 2026-8-20 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115821&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-20 21:44</a>
+反代 dsh，在手机上/访问，然后选择工作区的时候，弹出来的选择目录对话框是在 dsh 运行的电脑上，这个原来 ...</blockquote>
+是的，会话里的文件产物点击也是默认调用宿主操作系统的open<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25091RP04C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
