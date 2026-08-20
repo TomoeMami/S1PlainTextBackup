@@ -602,3 +602,13 @@ Reddit那边还是加分制的人居多，S1这边除非是系列粉否则一向
 
 玩过的人能推荐一个轮椅吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ku2154513  
+##### 66#       发表于 2026-8-20 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70114279&amp;ptid=2282975" target="_blank">蒋公卖萌 发表于 2026-8-20 17:15</a>
+玩过的人能推荐一个轮椅吗？</blockquote>
+斧匕加满级二元之石再附魔咒血伤害很高
+
