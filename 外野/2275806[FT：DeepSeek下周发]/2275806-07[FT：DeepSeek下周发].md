@@ -13132,3 +13132,52 @@ Hy4快来了<img src="https://static.stage1st.com/image/smiley/face/154.gif" ref
 
 抽了两次抽出来了。
 
+
+*****
+
+####  小野賢章  
+##### 10094#       发表于 2026-8-20 19:56
+
+只有官方的可以刷出灰测吗，opencode go这种中转的可以刷出来吗
+
+*****
+
+####  tonyunreal  
+##### 10095#       发表于 2026-8-20 19:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115274&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-20 19:56</a>
+
+只有官方的可以刷出灰测吗，opencode go这种中转的可以刷出来吗</blockquote>
+只有官方
+
+而且今天应该加了限制，每个账号只能抽到2次左右，多抽也不给了
+
+*****
+
+####  nxmonitor  
+##### 10096#       发表于 2026-8-20 19:58
+
+<blockquote>小野賢章 发表于 2026-8-20 19:56
+只有官方的可以刷出灰测吗，opencode go这种中转的可以刷出来吗</blockquote>
+只要是中转官方的也行
+
+*****
+
+####  wandeeees  
+##### 10097#       发表于 2026-8-20 19:58
+
+抽不到<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cscbzcbz  
+##### 10098#       发表于 2026-8-20 20:04
+
+和之前灰测好像风格略有差异
+第一句开头是Need to
+然后有一些 I’m doing, I should,I want
+可怕的是出现了一次let me<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+本来想尝试双开处理下白天的项目，结果第二个对话全是let me了，梁叔叔给的一次体验卡<img src="https://static.stage1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
