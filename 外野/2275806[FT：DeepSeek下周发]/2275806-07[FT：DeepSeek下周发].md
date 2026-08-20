@@ -11417,3 +11417,66 @@ Hy3只有256k上下文，子代理执行任务到一半触发自动压缩了。�
 
 目前没有视觉
 
+
+*****
+
+####  厍无春  
+##### 9932#       发表于 2026-8-20 09:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111106&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-8-20 09:45</a>
+目前没有视觉</blockquote>
+经典夜鹭骑车<img src="https://static.stage1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御姐贾  
+##### 9933#       发表于 2026-8-20 09:52
+
+我们臭写文的已经脑补了几千字的鲸小妹和外国势力谍战宫斗大戏了
+
+结局就是达里奥喝毒鸡汤，“我就是ds和百度双料特工，人称穿山路由王！”
+
+达里奥手抱核弹，“艳红阁下！我滴任务完成啦！”<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蜇灵  
+##### 9934#       发表于 2026-8-20 09:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70110990&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-8-20 09:24</a>
+
+"几乎无限额度的前沿模型又来了！简直是V4 Flash再现
+
+Muse Spark1.2已经在 OpenCode Go上提供，每 5 小时约 ...</blockquote>
+这玩意性能和V4F比咋样，能代替吗
+
+*****
+
+####  当光停止  
+##### 9935#       发表于 2026-8-20 09:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111093&amp;ptid=2275806" target="_blank">Hyst3r1a 发表于 2026-8-20 09:43</a>
+
+原来DS对公和个人的API不一样的吗，我还在想他这API不是搞灰测就是不稳定，拿来做业务用真的没问题吗 ...</blockquote>
+都一样，deepseek没法拿来稳定跑长期业务。新模型上线就下旧模型，哪怕是v3系到v4这种接口都有变化的巨大改动，说改就改。
+
+*****
+
+####  cscbzcbz  
+##### 9936#       发表于 2026-8-20 09:56
+
+国算这个上午直接用不了了
+opencodego也拉得一批
+转了一圈还是梁叔叔的api好，稍微贵一点，至少不便秘<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  misuzu0723  
+##### 9937#       发表于 2026-8-20 09:57
+
+所以最大问题还是你 deepseek 能拿出符合灰度，或者接近性能的模型
+7 月的灰度加上 flash 正式版的性能让人期待拉满，结果 pro 端上来一坨
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
