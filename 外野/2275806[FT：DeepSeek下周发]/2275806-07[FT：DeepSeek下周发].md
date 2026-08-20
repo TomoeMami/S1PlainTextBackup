@@ -11005,3 +11005,39 @@ dsh rc8更了
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  qwased  
+##### 9891#       发表于 2026-8-20 08:05
+
+unsloth出新的qwen3.8 27b量化了，试了下iq3xxs，输出从50tps提升到55，显存占用少了一丢丢，上下文可以再开大点了
+
+问一个问题能思考2~5万token，上下文短了还真扛不住。bonsai啥时候更新啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiaohanne  
+##### 9892#       发表于 2026-8-20 08:06
+
+<blockquote>厍无春 发表于 2026-8-20 07:15
+没有多模态，而且效果把fable，opus和gpt最顶级的模型都干爆了，够不够啊？
+
+ ...</blockquote>
+话又说回来，这3个图，实在也看不出干爆了。
+
+*****
+
+####  2017.05.04  
+##### 9893#       发表于 2026-8-20 08:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70110586&amp;ptid=2275806" target="_blank">骨于野 发表于 2026-8-20 07:27</a>
+我服了，反驳我的要么是阴阳怪气，要么是人身攻击。就没有人拿出证据来反驳路由说吗？比如脏token，模型指 ...</blockquote>
+证据应该由你提出来，先把所谓脏token和模型指纹的证据链形成完整再做这种指责吧
+
+关于模型性能和生物知识与网络安全方面的限制都不支持路由说
+
+你有没有好好看过前面
+
+—— 来自 HUAWEI SGT-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
