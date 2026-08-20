@@ -13538,3 +13538,99 @@ tps确实低，我只有30，不过这个项目工具调用多
 
 这个路线不会真的涌现出多模态吧？这灰测模型空间感知夸张，刚又看到一个无人机建模的
 
+
+*****
+
+####  王兰花秀丽  
+##### 10135#       发表于 2026-8-20 21:15
+
+ 本帖最后由 王兰花秀丽 于 2026-8-20 21:19 编辑 
+
+跑了10块钱了，心疼啊<img src="https://static.stage1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">  
+
+如果第一次是灰测的模型，之后变成0813了，那后面的思维链会被前面的传染成Im doing的吗  [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  小野賢章  
+##### 10136#       发表于 2026-8-20 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115666&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-20 21:11</a>
+
+这个路线不会真的涌现出多模态吧？这灰测模型空间感知夸张，刚又看到一个无人机建模的 ...</blockquote>
+[https://stage1st.com/2b/thread-2274019-1-1.html](https://stage1st.com/2b/thread-2274019-1-1.html)
+
+我觉得没有多模态的模型就和我们心盲症是一样的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 10137#       发表于 2026-8-20 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115688&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-20 21:15</a>
+
+跑了10块钱了，心疼啊  
+
+如果第一次是灰测的模型，之后变成0813了，那后面的思维链会被前面的传染成Im doi ...</blockquote>
+基本没用，这两个模型差别不只是思维链
+
+
+*****
+
+####  cscbzcbz  
+##### 10138#       发表于 2026-8-20 21:20
+
+目前就花了4块钱 可能是因为有一半的时间是在用MCP工具
+
+*****
+
+####  城北无尘  
+##### 10139#       发表于 2026-8-20 21:21
+
+感觉真有问题，它跟PowerShell杠上了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 10140#       发表于 2026-8-20 21:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115712&amp;ptid=2275806" target="_blank">城北无尘 发表于 2026-8-20 21:21</a>
+
+感觉真有问题，它跟PowerShell杠上了</blockquote>
+别用powershell，这东西没有一个模型能解决
+
+*****
+
+####  bartholo4  
+##### 10141#       发表于 2026-8-20 21:22
+
+我让它检查了一个gemini做的量化策略，把哈基米批得一无是处<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nxmonitor  
+##### 10142#       发表于 2026-8-20 21:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115719&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-8-20 21:22</a>
+
+我让它检查了一个gemini做的量化策略，把哈基米批得一无是处</blockquote>
+都量化策略了，怎么还信不过DeepSeek呢……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  来都来了  
+##### 10143#       发表于 2026-8-20 21:24
+
+说起这大模型大战PowerShell，我真的奇怪这AI发展几年了，为什么就没人能解决这个问题
+
+*****
+
+####  nxmonitor  
+##### 10144#       发表于 2026-8-20 21:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115730&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-20 21:24</a>
+
+说起这大模型大战PowerShell，我真的奇怪这AI发展几年了，为什么就没人能解决这个问题 ...</blockquote>
+语料的数量就比bash少得多，而且PowerShell自己都是一坨，版本多得离谱文档到处对不上
+
