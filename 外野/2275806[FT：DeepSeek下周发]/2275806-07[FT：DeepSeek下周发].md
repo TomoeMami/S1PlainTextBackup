@@ -11888,3 +11888,69 @@ Q4量化视觉就基本变成瞎子了
 
 求个小米官方的邀请码  我搞10赠金试试mimo
 
+
+*****
+
+####  muermaru  
+##### 9977#       发表于 2026-8-20 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111433&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-20 10:28</a>
+
+不行啊，佬， curl ipinfo.io看已经是国外了，cli Oauth已经走完能看到账号信息了，进去一样有地区限制 ...</blockquote>
+一个是看下终端的环境变量有没有配好；一个是代理的流量日志，有没有确实走代理的节点；然后就是和楼下说的检查代理节点的地区是不是支持的地区。
+
+我这边日本节点，都配好之后，反重力cli已经用了很久的，应该是没问题的
+
+*****
+
+####  qwased  
+##### 9978#       发表于 2026-8-20 10:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111246&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-20 10:03</a>
+
+谢谢大佬，开了提示地区限制，不开就是网络连接不上</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/20/104734rq06s7s0rt82sh6w.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2026-08-20_10-47-23.png</strong> (99.15 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 10:47 上传
+
+我去小红书学的，桌面快捷方式的目标改成下面这串就可以全部走代理了
+
+端口改成你自己代理的
+
+C:\Windows\System32\cmd.exe /c "set HTTP_PROXY=http://127.0.0.1:7897&amp;&amp; set HTTPS_PROXY=http://127.0.0.1:7897&amp;&amp; set NO_PROXY=127.0.0.1,localhost&amp;&amp; start "" "Antigravity.exe""
+
+*****
+
+####  overflowal  
+##### 9979#       发表于 2026-8-20 10:48
+
+这些小工作站的算力不行的。你别看都嗷嗷地说自己一秒出多少token。你让它prefill一下个几百k的上下文试试。<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 9980#       发表于 2026-8-20 10:49
+
+ 本帖最后由 qwased 于 2026-8-20 10:51 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111644&amp;ptid=2275806" target="_blank">muermaru 发表于 2026-8-20 10:47</a>
+
+一个是看下终端的环境变量有没有配好；一个是代理的流量日志，有没有确实走代理的节点；然后就是和楼下说 ...</blockquote>
+[https://policies.google.com/country-association-form](https://policies.google.com/country-association-form)
+
+其实是要在这里改归属地<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">提交申请修改失败=账号报废，去买个老号吧
+
+*****
+
+####  qwased  
+##### 9981#       发表于 2026-8-20 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111589&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-20 10:43</a>
+
+我24g也没感觉到可用的地步就是了 上下文是跑满了 但高上下文下速度极慢。。。甚至还会断。还忽略了一次a ...</blockquote>
+思考换能力就这样了，上下文长度不够的话啥都干不了
+

@@ -14947,3 +14947,24 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，那我觉得关的不冤吧，甚至还有亲子假
 
+
+*****
+
+####  hsyg  
+##### 2895#       发表于 2026-8-20 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111017&amp;ptid=2261859" target="_blank">巴尔干炮 发表于 2026-8-20 09:28</a>
+
+凡人真把女神搞大肚子那可真是大活了~发售后话题性绝对少不了。</blockquote>
+这世界观里神暂时没揭露非超能力外星人的神吧，反而至今没有弟弟人混血倒是真的。
+
+*****
+
+####  hsyg  
+##### 2896#       发表于 2026-8-20 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111568&amp;ptid=2261859" target="_blank">meltingwhite 发表于 2026-8-20 10:41</a>
+
+不是，那我觉得关的不冤吧，甚至还有亲子假</blockquote>
+首先给女神配一堆柔情大汉守卫就不对了好吧，哪有放母猪进菜地的（
+

@@ -8279,3 +8279,16 @@ https://github.com/Orangeeeeeeeeeeeeeeeeee/switch-controller-macro
 
 —— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  hujingjing  
+##### 960#       发表于 2026-8-20 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70107701&amp;ptid=2253488" target="_blank">绿冰 发表于 2026-8-19 16:47</a>
+
+非50的5星绝品也不是不可以留，就是升满级更贵
+
+绝品武器都是极度重视，最常用的极度重视攻击频率、蓄力速 ...</blockquote>
+原来通关的那把40级小绿，能升等级？我看升级都是升后面的加数，原来等级也能升？不过升到高级还是太费材料了，我决定去把没打的激辣全打一圈，再小刷一下，把零件啥的强化下，搞把好用的武器升升先通100层再说，我看后面几百层以后那数值太离谱了，几百万血的鲑鱼<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，全身搭配拉满感觉都很费劲
+
