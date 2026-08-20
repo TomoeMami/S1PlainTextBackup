@@ -13253,3 +13253,65 @@ Hy4快来了<img src="https://static.stage1st.com/image/smiley/face/154.gif" ref
 
 2026-8-20 20:13 上传
 
+
+*****
+
+####  cscbzcbz  
+##### 10106#       发表于 2026-8-20 20:16
+
+<img src="https://img.stage1st.com/forum/202608/20/201539owc2jc6x6fcbqu01.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (161.2 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 20:15 上传
+
+和7月的感觉有点不太一样
+
+*****
+
+####  小野賢章  
+##### 10107#       发表于 2026-8-20 20:17
+
+搞个插件，检测到let me 和but wait就自动结束算了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 10108#       发表于 2026-8-20 20:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115385&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-20 20:16</a>
+
+和7月的感觉有点不太一样</blockquote>
+和7月不是一个模型
+
+这次的比fable强
+
+*****
+
+####  bartholo4  
+##### 10109#       发表于 2026-8-20 20:19
+
+抽到了 拿来干点啥呢~
+
+*****
+
+####  tillnight  
+##### 10110#       发表于 2026-8-20 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115392&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-20 20:17</a>
+
+搞个插件，检测到let me 和but wait就自动结束算了</blockquote>
+并不是，今天这个思维链有少量let me是正常的。
+
+
+*****
+
+####  crow_wine  
+##### 10111#       发表于 2026-8-20 20:22
+
+感觉现在的模型全是雷霆大思考，说是分上去，但是你这个速度和用量，真的很难说进步了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
