@@ -11832,3 +11832,59 @@ glm5.3怎么雷达站上的分这么低实际用起来有什么不爽的地方�
 
 不过倒是能看的出kimi是真的贵，蹬的人是真的少，起码舍得拿出来公益蹬的很少。
 
+
+*****
+
+####  qwased  
+##### 9972#       发表于 2026-8-20 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70110890&amp;ptid=2275806" target="_blank">脸宽 发表于 2026-8-20 09:06</a>
+
+好像都在说Qwen3.8-27B效果不错啊，本地部署。</blockquote>
+第一个让我非常悔恨为什么我只有16G显存的本地模型<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">量化可以凑合但是上下文不开到160K以上真的很难用，思考两下就没了
+
+*****
+
+####  卡普空  
+##### 9973#       发表于 2026-8-20 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111547&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-20 10:39</a>
+
+第一个让我非常悔恨为什么我只有16G显存的本地模型量化可以凑合但是上下文不开到160K以上真的很难用，思 ...</blockquote>
+20g显存会好用一点吗？
+
+
+*****
+
+####  qwased  
+##### 9974#       发表于 2026-8-20 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111560&amp;ptid=2275806" target="_blank">卡普空 发表于 2026-8-20 10:40</a>
+
+20g显存会好用一点吗？</blockquote>
+1G显存能多20K上下文吧，KV Q8量化
+
+Q4量化视觉就基本变成瞎子了
+
+*****
+
+####  neptunehs  
+##### 9975#       发表于 2026-8-20 10:43
+
+ 本帖最后由 neptunehs 于 2026-8-20 10:45 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70111547&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-20 10:39</a>
+第一个让我非常悔恨为什么我只有16G显存的本地模型量化可以凑合但是上下文不开到160K以上真的很难用，思 ...</blockquote>
+我24g也没感觉到可用的地步就是了 上下文是跑满了 但高上下文下速度极慢。。。甚至还会断。还忽略了一次agents的约束造成了大量工作重来。感觉还是128k+不要让opencode  compact才算能用（多开subagent就行 但更慢了 而且断了更惨）
+这时候就能感觉到infra的重要性了
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  唠叨  
+##### 9976#       发表于 2026-8-20 10:45
+
+[https://platform.xiaomimimo.com/console/balance](https://platform.xiaomimimo.com/console/balance)
+
+求个小米官方的邀请码  我搞10赠金试试mimo
+
