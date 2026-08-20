@@ -48,3 +48,11 @@ BUG，显示错误，实际还得刷
 
 我抽SSR哐哐吃井的时候怎么不来，抽SR就来了，而且我哲哲都满克己了，拯救角色性能的泳装SP在哪呢<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  茄子自走炮  
+##### 885#       发表于 2026-8-21 07:30
+
+30抽1个换皮 感觉要吃个60井开被动了
+

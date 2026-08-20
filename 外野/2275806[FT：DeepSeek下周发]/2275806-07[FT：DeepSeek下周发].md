@@ -14379,3 +14379,14 @@ opencode free的v4f似乎没了 最后的救命稻草也没了 哎
 
 就是新模型真发布的话，算力够吗，感觉又要涨价了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wandeeees  
+##### 10217#       发表于 2026-8-21 07:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116974&amp;ptid=2275806" target="_blank">80后卢瑟 发表于 2026-8-21 07:22</a>
+
+装了 dsh 之类的提示词插件吗？</blockquote>
+没有，直接标准模式一下子就出来了
+
