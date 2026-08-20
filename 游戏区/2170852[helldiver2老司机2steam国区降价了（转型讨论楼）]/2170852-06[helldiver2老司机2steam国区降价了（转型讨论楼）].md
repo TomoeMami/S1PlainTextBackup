@@ -17,3 +17,13 @@
 
 —— 来自 OnePlus CPH2653, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  半分宅  
+##### 7517#       发表于 2026-8-21 02:07
+
+DSS，完全沉默。
+
+估计里面爆尸变体了。
+
