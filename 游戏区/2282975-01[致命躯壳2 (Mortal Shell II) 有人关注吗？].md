@@ -667,3 +667,13 @@ Reddit那边还是加分制的人居多，S1这边除非是系列粉否则一向
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  FBC档案部专员  
+##### 72#       发表于 2026-8-21 00:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">下半张图的数值真的是用脚填
+
+地图比上面大篝火还比上面少
+

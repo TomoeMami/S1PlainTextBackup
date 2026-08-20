@@ -1301,3 +1301,11 @@ pvpve，其实是吃鸡，有四个阶段，前三阶段可以结盟，然后吃
 后续追加的pve特殊胜利，并不是可选项，而是在进度到达一半的时候广播提示大家这把是打boss，大家就会在后 ...</blockquote>
 访谈里说了，可以带针对boss的构筑，会集中匹配想打boss的玩家，提高boss出现的概率
 
+
+*****
+
+####  Alphawalker  
+##### 215#       发表于 2026-8-21 00:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">眷属和宿敌怎么感觉是看狼人杀之类的派对游戏想出来的，莫名其妙增加对手的关系性
+
