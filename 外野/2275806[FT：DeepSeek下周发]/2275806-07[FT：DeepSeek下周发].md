@@ -12756,3 +12756,61 @@ codex发神经了吗，公司网管突然来问我为什么这么多海外流量
 
 2026-8-20 16:57 上传
 
+
+*****
+
+####  木谷高明  
+##### 10057#       发表于 2026-8-20 16:58
+
+ 本帖最后由 木谷高明 于 2026-8-20 17:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70112733&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-20 13:14</a>
+你们到处薅羊毛时所有API都是自己重新填的吗？我的电脑+手机上有七八个地方需要填API，让我三天换一个供应 ...</blockquote>
+github上有开源的自建中转，需要docker，如果你自己有地方部署的话可以搞一个。自动判断API是否可用，每次新薅的加进去就行，最后通过一个API访问。
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 10058#       发表于 2026-8-20 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70114124&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-20 16:53</a>
+谁家代码一秒一个M连着传几十个G啊？代码不都是几KB的东西吗？而且我听你说后，还专门开了codex，根本就 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+你上下文漂移的厉害
+幻觉也很厉害
+
+鉴定为doubao
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  inpachi  
+##### 10059#       发表于 2026-8-20 17:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">事实上就是这样啊，貌似是开着客户端就是客户端跑，只用cli就是有会话的那个cli跑。
+
+这也能解释为什么我这边codex.exe在24小时和7天内跑的流量很少，但30天内跑的流量也有大约10个G。因为我之前有段时间没开客户端只开了cli
+
+
+*****
+
+####  crow_wine  
+##### 10060#       发表于 2026-8-20 17:05
+
+<img src="https://img.stage1st.com/forum/202608/20/170423zhg74i5i2f5v57n1.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (10.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 17:04 上传
+
+国算平台这……他的token plan转发阿里云？二道贩子？……只有千问 3.8 max 可以用了
+
+*****
+
+####  小野賢章  
+##### 10061#       发表于 2026-8-20 17:07
+
+公司内网上新glm5.3了，输入$1.40输出$4.40，每天25$额度，让我来测试一下<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
