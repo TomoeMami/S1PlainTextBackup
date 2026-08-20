@@ -8338,3 +8338,25 @@ https://github.com/Orangeeeeeeeeeeeeeeeeee/switch-controller-macro
 没插画没彩蛋没特殊台词什么都没有，虽然早有心理准备但还是<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 好歹特殊台词给一句吧，玩家逃课知道设计台词破关却没有吗，很不任天堂
 
+
+*****
+
+####  a3a4sc  
+##### 966#       发表于 2026-8-20 19:41
+
+ 本帖最后由 a3a4sc 于 2026-8-20 19:43 编辑 
+
+报！！！有人通过千层食堂了
+
+千层的BD be like....
+
+<img src="https://img.stage1st.com/forum/202608/20/194109kdv8i0x7ip1ipzd1.png" referrerpolicy="no-referrer">
+
+<strong>18003689d693f6a6a5c22464a4df21f03546876064303308.png</strong> (232.25 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 19:41 上传
+
+今天发现我刷食堂坐牢不如回去打传说工笑得开心...
+
