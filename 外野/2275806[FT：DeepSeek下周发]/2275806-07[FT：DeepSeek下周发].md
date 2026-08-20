@@ -13456,3 +13456,30 @@ tps确实低，我只有30，不过这个项目工具调用多
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天感觉是阳光普照？人人都能用，人人都只能用一两次这样？
 
+
+*****
+
+####  小野賢章  
+##### 10127#       发表于 2026-8-20 20:47
+
+等会研究一下今天的日志，说不定已经抽到过了我不知道，做了简单低级任务了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空き地卯木  
+##### 10128#       发表于 2026-8-20 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70115493&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-20 20:35</a>
+只要首字延迟贼高就说明抽到了，要等梁叔叔启动它的超时空中转站</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么跟fgo出新图鉴从者一样，建议做个抽卡插件，每次先转个圈，出特定词组了就给ssr特效
+
+*****
+
+####  tonyunreal  
+##### 10129#       发表于 2026-8-20 20:52
+
+今天这个模型据说不太行，只能叫v4 pro pro<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25091RP04C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
