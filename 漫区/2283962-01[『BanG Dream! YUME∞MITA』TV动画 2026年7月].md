@@ -2034,3 +2034,44 @@ mygo是约定到来的爆炸，前期就一直铺垫求而不得的回家的诱�
 
 今天一上来就是白毛，难受死了
 
+
+*****
+
+####  LLLLLuB  
+##### 317#       发表于 2026-8-20 22:25
+
+应该算是天意的大手疯了，整体剧情逻辑让位于欢快的乐队氛围定位，更是为了几个点子的醋，凑了一坨的剧情。这一集真的是莫名其妙就看完了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jstcsjx  
+##### 318#       发表于 2026-8-20 22:26
+
+新一话太闹腾了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Mika-S  
+##### 319#       发表于 2026-8-20 22:27
+
+疼肚子要不咱们还是爆了吧，太哈人了这些阳角<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无端崖之辞  
+##### 320#       发表于 2026-8-20 22:34
+
+这集真是看笑了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+虽然我也不知道在笑什么
+
+
+*****
+
+####  経緯  
+##### 321#       发表于 2026-8-20 22:35
+
+谁能告诉我这帮人到底牛魔的在干什么啊？真的不是围着篝火**吗？
+
