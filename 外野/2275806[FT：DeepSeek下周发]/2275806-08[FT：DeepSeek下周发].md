@@ -2127,3 +2127,71 @@ dsh 到多少了？我更新了。是下面模型用 deepseek-v4-flash-vision-ex
 
 DSH后面要优化下图片的缓存命中，现在一读图就掉得很厉害……
 
+
+*****
+
+####  自由之紫roy  
+##### 10570#       发表于 2026-8-21 23:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123313&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-21 23:39</a>
+
+你要是已经打算上两块5090了不如咬咬牙直接来一块RTX6000PRO
+
+双卡跑llm只要上下文稍微长一点速度就暴跌了 ...</blockquote>
+这个卡现在16万一张，没法咬咬牙。。。
+
+*****
+
+####  goranger  
+##### 10571#       发表于 2026-8-21 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70122159&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-8-21 20:40</a>
+
+只做翻译去蹬 Gemini啊. 免费一年会员</blockquote>
+讲讲路子兄弟，适合拿自己大号嫖吗
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 10572#       发表于 2026-8-21 23:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123385&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-8-21 23:52</a>
+
+雷霆思考大王，提一点小修改在cot里面review了六遍才写
+
+如果真的是glm的话你这玩意打不过ds我觉得真该</blockquote>
+说是Composer3 基模是glm5.2
+
+*****
+
+####  阿刚  
+##### 10573#       发表于 2026-8-22 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123382&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-21 23:51</a>
+
+写长一点就行，破了甲之后玩法特别花</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">奇怪，好像有前审查？他有时候根本收不到图的输入
+
+
+*****
+
+####  qwased  
+##### 10574#       发表于 2026-8-22 00:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123423&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-21 23:57</a>
+
+讲讲路子兄弟，适合拿自己大号嫖吗</blockquote>
+新号基本都是秒死的……你要能搞到老号那是不是大号都无所谓
+
+*****
+
+####  xiaohanne  
+##### 10575#       发表于 2026-8-22 00:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123250&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-21 23:24</a>
+
+有人说glm5.3准备出flash
+
+我咋记得glm本身也不是很大的模型才对吧？</blockquote>
+我觉得像
+
