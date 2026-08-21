@@ -512,3 +512,18 @@ rtype九条翻新了，现在是棒球忍者。
 
 当年模拟器的噩梦，psp到psv没一个能流畅玩
 
+
+*****
+
+####  xiaohao123  
+##### 52#       发表于 2026-8-21 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120268&amp;ptid=2288065" target="_blank">wuxiaojie 发表于 2026-8-21 16:07</a>
+
+黄胖子搓招确实反直觉，
+
+正摇半圈反摇半圈都使不出，后来想到天地返，有时能试出来，最后一想应该是360的出 ...</blockquote>
+投技无敌在清版过关里还是很爽的
+
+就是收招后的小浮空破绽不太好收<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

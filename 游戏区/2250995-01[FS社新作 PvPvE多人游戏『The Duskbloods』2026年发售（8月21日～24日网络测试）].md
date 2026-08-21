@@ -2627,3 +2627,20 @@ fs以后的作品都是自己发行了，跟万代没关系了</blockquote>
 
 你问他跌落神坛还是登上神坛，他说神坛被挤爆了无法从这一侧登录<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Lisylfn  
+##### 353#       发表于 2026-8-21 21:42
+
+fs服务器填的127.0.0.1忘改了，别慌
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  JoelBirch  
+##### 354#       发表于 2026-8-21 21:45
+
+刚陪老婆大走结束赶紧摁开NS开整，结果就这，早知道继续大走了，FS真SB
+

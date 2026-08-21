@@ -1603,3 +1603,21 @@ ox alpha有啥评测吗，怎么样？</blockquote>
 
 然后做出来还是不咋样。必须指示他不要自己憋上网搜搜看，做的东西才比较能看
 
+
+*****
+
+####  misuzu0723  
+##### 10519#       发表于 2026-8-21 21:39
+
+<img src="https://img.stage1st.com/forum/202608/21/213851fodozaa1mvsmvavd.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1787319531206_2.webp</strong> (80.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 21:38 上传
+
+我看猫老板的更新了，flash 视觉版已经极其接近 pro 了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
