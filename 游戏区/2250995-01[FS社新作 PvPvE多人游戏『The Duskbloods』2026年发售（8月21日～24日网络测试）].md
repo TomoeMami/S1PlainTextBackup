@@ -1407,3 +1407,11 @@ ign 说宫崎暗示保留入侵系统，可以加入对局当第 9 人
 
 本来就不太喜欢多人pvp，看预告更觉得不怎么感兴趣，不太看好
 
+
+*****
+
+####  TANA  
+##### 225#       发表于 2026-8-21 08:10
+
+昨天第一时间急着定风向的几条是真滴逗<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
