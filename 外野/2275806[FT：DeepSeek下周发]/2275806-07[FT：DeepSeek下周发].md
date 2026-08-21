@@ -15714,3 +15714,83 @@ plus不是刚五折吗，额度也五折很合理
 
 ox Alpha几乎不可用了，就半天时间吗...    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  未知伤亡  
+##### 10340#       发表于 2026-8-21 15:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70119887&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-21 15:16</a>
+
+拼rp咸鱼买gemini ai pro 18个月，运气好几个月不掉，运气差可能几个钟头就掉了，5～9块钱 ...</blockquote>
+不是说哈基米现在已经跟不上第一梯队，智力流口水了吗，堪用否？
+
+
+*****
+
+####  goranger  
+##### 10341#       发表于 2026-8-21 15:52
+
+隐身模型自行车测试：
+
+<img src="https://img.stage1st.com/forum/202608/21/154827rst4s00sstcbpt24.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 15:48 上传
+
+<img src="https://img.stage1st.com/forum/202608/21/155229tm928202jja22jii.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (61.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 15:52 上传
+
+*****
+
+####  overflowal  
+##### 10342#       发表于 2026-8-21 15:54
+
+<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  serj005  
+##### 10343#       发表于 2026-8-21 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120157&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-8-21 15:54</a>
+dsh这个更新连changelog都不写了吗    Re:Source</blockquote>
+好像就一直没写过，内容要在commit日志里自己找<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  neptunehs  
+##### 10344#       发表于 2026-8-21 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120078&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-21 15:44</a>
+plus不是刚五折吗，额度也五折很合理
+
+ox Alpha几乎不可用了，就半天时间吗...    Re:Source ...</blockquote>
+半天时间也算是给我解决了不少问题了 虽然不能继续蹬有点可惜
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  xiaohanne  
+##### 10345#       发表于 2026-8-21 15:56
+
+<blockquote>未知伤亡 发表于 2026-8-21 15:51
+不是说哈基米现在已经跟不上第一梯队，智力流口水了吗，堪用否？</blockquote>
+3.7flash凑合能用，最重要的是10块钱18个月要什么自行车
+
+*****
+
+####  王兰花秀丽  
+##### 10346#       发表于 2026-8-21 15:57
+
+rc8是写了更新日志的吧，不过一周三更真勤快吧    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
