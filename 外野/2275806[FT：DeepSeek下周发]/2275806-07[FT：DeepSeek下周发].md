@@ -14760,3 +14760,123 @@ DS有企业认证 <blockquote>个人认证账号可以更改为企业实名账�
 
 开票主体为杭州深度求索人工智能基础技术研究有限公司；票面项目名称为信息技术服务*技术服务费；税率为6%。</blockquote>
 
+
+*****
+
+####  城北无尘  
+##### 10253#       发表于 2026-8-21 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116960&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-21 07:15</a>
+opencode free的v4f似乎没了 最后的救命稻草也没了 哎
+
+不过取而代之的多了一个ox alpha free，我看到了思 ...</blockquote>
+小明群里说ox是glm的多模态测试
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  misuzu0723  
+##### 10254#       发表于 2026-8-21 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116810&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-21 02:00</a>
+
+我还刷到了贴吧一个直球生物甲的测试
+
+论坛助手,iPhone</blockquote>
+这个其实也不能完全否定生物甲，第一个opus5本身就能回答，第二个看起来很像是回退到了0813
+
+*****
+
+####  王兰花秀丽  
+##### 10255#       发表于 2026-8-21 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117877&amp;ptid=2275806" target="_blank">sese199 发表于 2026-8-21 10:32</a>
+请问一下，现在这个状况，如果要给小团队里三个人配 ai 开发的 token，要求可开 发 票 ，什么比较合适？
+我 ...</blockquote>
+几千块绝对不够用的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  sese199  
+##### 10256#       发表于 2026-8-21 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117892&amp;ptid=2275806" target="_blank">2017.05.04 发表于 2026-8-21 10:34</a>
+
+https://static.deepseek.com/faq/ ... verification-update
+
+DS有企业认证</blockquote>
+在一个企业账号里充钱，然后分三个key给三个人用呗
+
+就是没有coding plan，容易造成某个人用超了，导致其他人没得用。因为采购要走审批的，所以一年只能买一次，超了就没法买了
+
+*****
+
+####  lilod  
+##### 10257#       发表于 2026-8-21 10:41
+
+现在的 ds4f 就足够支持我的后端开发了，我还是希望未来有更好的 flash 模型
+
+*****
+
+####  sese199  
+##### 10258#       发表于 2026-8-21 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117934&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-21 10:39</a>
+
+几千块绝对不够用的    Re:Source</blockquote>
+因为没有coding plan，所以申请的时候也不好说充多少钱合适，没有依据
+
+*****
+
+####  neptunehs  
+##### 10259#       发表于 2026-8-21 10:42
+
+ 本帖最后由 neptunehs 于 2026-8-21 10:44 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117927&amp;ptid=2275806" target="_blank">城北无尘 发表于 2026-8-21 10:38</a>
+小明群里说ox是glm的多模态测试
+
+论坛助手,iPhone</blockquote>
+推认为是mimov3
+glm主要是5.3刚出 哪有那么快
+而且glm可贵了 1m context 来free？我真不信啊（
+
+不过实战我认为是吊打v4flash 的256k版的 主要是没有雷霆大思维照样能解决我flash做到一半的事情
+就是老断
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  marrrk  
+##### 10260#       发表于 2026-8-21 10:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117877&amp;ptid=2275806" target="_blank">sese199 发表于 2026-8-21 10:32</a>
+
+请问一下，现在这个状况，如果要给小团队里三个人配 ai 开发的 token，要求可开 发 票 ，什么比较合适？
+
+我 ...</blockquote>
+DS有企业认证， 只需要一个账号开通企业认证，开发发票
+
+然后 申请多个api-key， 每个人使用不同的 api-key  就可以
+
+充值开票，每个人的用量统计都挺方便的
+
+*****
+
+####  高粱河车神  
+##### 10261#       发表于 2026-8-21 10:44
+
+那个极简模式 是不是光打开还不行
+
+必须搞点什么操作才能实现？
+
+*****
+
+####  向晩大魔王  
+##### 10262#       发表于 2026-8-21 10:45
+
+[@骨于野](https://stage1st.com/2b/home.php?mod=space&amp;uid=565813) 路由哥说说这是路由到哪个模型了
+【deepseek灰度测试-模拟鞭毛马达-哔哩哔哩】 https://b23.tv/8vaPoaO
+
