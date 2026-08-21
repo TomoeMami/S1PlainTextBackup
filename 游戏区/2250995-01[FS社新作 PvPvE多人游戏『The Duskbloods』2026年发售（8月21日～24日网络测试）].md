@@ -2549,3 +2549,20 @@ fs以后的作品都是自己发行了，跟万代没关系了</blockquote>
 
 跟老任服务器真有关系吗？我今晚一直在玩马车世界，局局十几人乃至二十几人疯狂乱斗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 344#       发表于 2026-8-21 20:26
+
+这是fs自己的服务器吧，怎么这也能怪到你任头上的，在阿b看直播还有人希望ns2直接死了的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  pzk  
+##### 345#       发表于 2026-8-21 20:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这跟服务器都没什么关系吧说实话，你们有谁见过这次测试成功进去的截图吗？一个人都进不去那明显是代码写得有问题呀……
+

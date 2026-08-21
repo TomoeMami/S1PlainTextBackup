@@ -1318,3 +1318,41 @@ api价格确实和flash一模一样
 
 ox alpha有啥评测吗，怎么样？
 
+
+*****
+
+####  tonyunreal  
+##### 10495#       发表于 2026-8-21 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121928&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-8-21 20:14</a>
+
+ox alpha有啥评测吗，怎么样？</blockquote>
+大概是有一定的视觉能力，编程能力和dsv4 flash一桌
+
+总体不如ds灰测模型
+
+*****
+
+####  cscbzcbz  
+##### 10496#       发表于 2026-8-21 20:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70122050&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-21 20:26</a>
+大概是有一定的视觉能力，编程能力和flash一桌
+
+总体不如ds灰测</blockquote>
+要比灰测强也太难了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 10497#       发表于 2026-8-21 20:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70122060&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-21 20:27</a>
+
+要比灰测强也太难了</blockquote>
+这个确实<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过手里有测试用例的闲人都是在等下一轮灰测
+
+真干活的都在猛蹬免费的ox-alpha，来不及测试
+
