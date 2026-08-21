@@ -1738,3 +1738,35 @@ The Duskbloods features expansive maps and graphical fidelity that's comparable 
 
 有裸足的女性角色啊，就是那个狙击手大姐头（虽然这个身体感觉事男事女已经不重要了…………
 
+
+*****
+
+####  夜雨秋水  
+##### 258#       发表于 2026-8-21 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118367&amp;ptid=2250995" target="_blank">黑卷轴陶德传 发表于 2026-8-21 11:30</a>
+应该还要新增角色吧，目前没有裸足女性角色我不信是宫崎英高的游戏</blockquote>
+目前的颜值担当的应该是那个半人半蛇的眷属。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  天堂大法  
+##### 259#       发表于 2026-8-21 11:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118367&amp;ptid=2250995" target="_blank">黑卷轴陶德传 发表于 2026-8-21 11:30</a>
+应该还要新增角色吧，目前没有裸足女性角色我不信是宫崎英高的游戏</blockquote>
+目前算上预告也就10个已公开，最起码还得有5-6个正式版可用的新角色没公开
+
+*****
+
+####  dydqydz  
+##### 260#       发表于 2026-8-21 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118368&amp;ptid=2250995" target="_blank">Kojimaru 发表于 2026-8-21 11:30</a>
+
+The Duskbloods features expansive maps and graphical fidelity that's comparable to FromSoftware's re ...</blockquote>
+这么来看帧数不太用担心了
+

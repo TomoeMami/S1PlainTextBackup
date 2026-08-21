@@ -15253,3 +15253,36 @@ glm给我印象比较差，我是不会用的
 
 glm今天也很区啊, 用的zcode, 5.3出字太慢了
 
+
+*****
+
+####  neptunehs  
+##### 10296#       发表于 2026-8-21 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118431&amp;ptid=2275806" target="_blank">城北无尘 发表于 2026-8-21 11:37</a>
+金山云不够雷总造的，现在国内全面缺卡是常态，不可能不涨价，雷总还能去买950不成，更何况950都分配不过 ...</blockquote>
+但可以期待opencode搞劣化free 毕竟flash停了总要有下一个常驻free（？
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  舞以  
+##### 10297#       发表于 2026-8-21 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118431&amp;ptid=2275806" target="_blank">城北无尘 发表于 2026-8-21 11:37</a>
+
+金山云不够雷总造的，现在国内全面缺卡是常态，不可能不涨价，雷总还能去买950不成，更何况950都分配不过 ...</blockquote>
+雷肿对菊花家的设施都是**方方用的，就是不知道昇腾的配额雷肿能不能搞到，然后用了估计也不说
+
+*****
+
+####  泰坦失足  
+##### 10298#       发表于 2026-8-21 11:40
+
+Good Old Days啊, 去年6月之前Copilot有无限的Claude 3.5/3.7模型可用, 虽然体验不如现在的面向对话框的编程, 但是第一次只提供估计作者自己都没法复现的Github repo要求在本地完整跑起来, 然后看到工作几个小时给出一个可行入口时候还是挺震惊的. 逐步缩水成高级模型有月上限, 学生的edu版pro不再提供全部模型, 从按请求计费改为按token计费(直接查无此人了). 
+
+Antigravity: 随便你用, 5小时上限, 分开第三方模型和Gemini模型的额度, 5小时和周上限(其实都没啥用, Antigravity+2.5/3pro或者3flash的体验当时被CodeX 5.4吊起来打. 一个rg命令都运行不了的废物, 我问硬盘上有什么文件, 能工作30分钟然后运行失败.), 家庭组的每个账号不再错误的提供彼此独立的Antigravity额度(但是Gemini APP的额度还是彼此独立的).
+
+现在大量的Google AI Pro账号和不要钱一样提供, 又让我回想起了Good Old Days, 那个人人在说Google能自己全流程造TPU, 必将靠超廉价算力供应量重塑市场的时代.
+

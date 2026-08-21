@@ -5214,3 +5214,65 @@ TMD90++本的礼装掉率是不是调过？连续6张礼装全是伤害礼装，
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来这活动真就一个3000夫夫都没用啊？ 真要30个月？
 
+
+*****
+
+####  qixinno1  
+##### 21520#       发表于 2026-8-20 15:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刷了几十抽还是毛都没有
+
+
+*****
+
+####  壳壳牛  
+##### 21521#       发表于 2026-8-20 19:58
+
+90本只掉加成礼装，可以先去刷几张
+
+*****
+
+####  alucardcz  
+##### 21522#       发表于 2026-8-20 23:38
+
+ 本帖最后由 alucardcz 于 2026-8-20 23:49 编辑 
+
+<img src="https://img.stage1st.com/forum/202608/20/233713aau4su1uua2sd2a1.png" referrerpolicy="no-referrer">
+
+<strong>98CD3E019D5132FE0FAD709AE56435DA.png</strong> (501.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-20 23:37 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">单抽了下居然出了 短短半个月居然出了7个（
+
+*****
+
+####  森兰丸  
+##### 21523#       发表于 2026-8-21 00:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116391&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-20 23:38</a>
+
+单抽了下居然出了 短短半个月居然出了7个（</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">萌新短短半个月出的5星数量就和非洲人这1年到目前为止抽到的5星数量差不多了
+
+*****
+
+####  alucardcz  
+##### 21524#       发表于 2026-8-21 00:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116508&amp;ptid=2084912" target="_blank">森兰丸 发表于 2026-8-21 00:04</a>
+
+萌新短短半个月出的5星数量就和非洲人这1年到目前为止抽到的5星数量差不多了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">但豹豹3宝
+
+*****
+
+####  khxooo  
+##### 21525#       发表于 2026-8-21 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116391&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-8-20 23:38</a>
+单抽了下居然出了 短短半个月居然出了7个（</blockquote>
+7个五星，你这真是欧狗<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
