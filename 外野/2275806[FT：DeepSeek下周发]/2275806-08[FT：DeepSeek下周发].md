@@ -986,3 +986,35 @@ app识图模式很早就认识蓝色大肥鱼就是自己了
 
 梁文谷时间到
 
+
+*****
+
+####  zhanglei1943  
+##### 10465#       发表于 2026-8-21 18:08
+
+luna是不是又被斩了<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tonyunreal  
+##### 10466#       发表于 2026-8-21 18:15
+
+我的v模型工具调用怪怪的，它总是用外部工具去读写文件，导致总是超时
+
+提示词怎么写能让他用read/write/edit/grep？
+
+*****
+
+####  eno_emos  
+##### 10467#       发表于 2026-8-21 18:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121110&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-21 18:02</a>
+
+其他二道贩子会跟上吗？
+
+今天opencode zen的那个新free不会就是v4fv吧</blockquote>
+不像，那个ox-alpha-free喜欢超级雷霆大思考，中间一点调用都没有
+
+不像v4f的风格
+
