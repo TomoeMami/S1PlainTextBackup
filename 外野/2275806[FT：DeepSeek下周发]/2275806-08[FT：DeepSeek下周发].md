@@ -2320,3 +2320,54 @@ opencode go里视觉模型只有15刀的额度</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  xiaohanne  
+##### 10586#       发表于 2026-8-22 00:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123530&amp;ptid=2275806" target="_blank">徐老师 发表于 2026-8-22 00:23</a>
+
+现在什么订阅比较划算？
+
+—— 来自 S1Fun</blockquote>
+新模型还没发布开源吧，现在只有走官方的，那就看哪家首月折扣多了……
+
+但我感觉flash还不太稳定的情况下，如果一定要玩还是官方api比较好，善用梁文谷。
+
+*****
+
+####  阿刚  
+##### 10587#       发表于 2026-8-22 00:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我服了，我发现deepseek的甲都是关键词甲，上了视觉以后不触发关键词，文字模型绝对不给过的东西他全都一遍过
+
+*****
+
+####  L-JoeW  
+##### 10588#       发表于 2026-8-22 00:37
+
+这里可以问硅基流动模型在酒馆的使用问题吗，今天用他家deepseek3.2遇到一个很诡异的情况，3.2+酒馆默认预设正常输出，3.1或者4f+第三方预设也正常输出，就3.2+第三方预设的时候就会开始胡言乱语（如图所示，两次还都分别调了温度）。之前3.2+第三方预设一模一样设置输出也都正常的，啥都没改，这什么情况，折腾一晚上了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/22/003536t3cc8d8koj8pqmpr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (168.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-22 00:35 上传
+
+*****
+
+####  冤枉呐  
+##### 10589#       发表于 2026-8-22 00:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121777&amp;ptid=2275806" target="_blank">秋水锦瑟 发表于 2026-8-21 20:00</a>
+
+https://agentrouter.org/register?aff=pBR0
+
+公益站白嫖175额度，走我链接175额度，不走我链接只有100额度 ...</blockquote>
+错误：github账号不符合注册要求
+
+摊手
+
