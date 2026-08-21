@@ -15339,3 +15339,13 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 喜欢：肉桂
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你嘴里叼着的原来是干肉桂
 
+
+*****
+
+####  王元姬无惨  
+##### 2936#       发表于 2026-8-21 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70108359&amp;ptid=2261859" target="_blank">被击坠王 发表于 2026-8-19 18:14</a>
+火纹甚至大部分战棋游戏的多路线重复度在机战面前算什么，就一直没看有多少抱怨机战那更离谱无聊的重复度的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">winky时代时代的机战压根没有重复性可言 有了多周目继承后还是主要在隐藏要素 分支路线上做文章
+

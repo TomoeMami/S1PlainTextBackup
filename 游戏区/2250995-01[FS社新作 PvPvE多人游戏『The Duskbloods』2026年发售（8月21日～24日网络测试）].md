@@ -2479,3 +2479,73 @@ fs以后的作品都是自己发行了，跟万代没关系了</blockquote>
 然后呢，这跟你角川跟fs有什么必然关系?</blockquote>
 你想表达什么？
 
+
+*****
+
+####  petitlui  
+##### 336#       发表于 2026-8-21 20:15
+
+黑环当时虽然也炸服好歹第一天还是能进游戏的吧，任地狱你…………
+
+*****
+
+####  HATENA  
+##### 337#       发表于 2026-8-21 20:16
+
+<blockquote>ShiKi847 发表于 2026-8-21 20:13
+你想表达什么？</blockquote>
+我倒想问你想表达什么?
+
+如果还能有下一作ac必然还是你代狗跟fs一起干，欢迎挖坟打我脸
+
+*****
+
+####  zero33333  
+##### 338#       发表于 2026-8-21 20:18
+
+笑死，刚好今天有事晚回家，到家一看测试结束，以为提前结束了，一搜原来是没人进去<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  巴尔干炮  
+##### 339#       发表于 2026-8-21 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121933&amp;ptid=2250995" target="_blank">petitlui 发表于 2026-8-21 20:15</a>
+
+黑环当时虽然也炸服好歹第一天还是能进游戏的吧，任地狱你…………</blockquote>
+要用老任的服务器版权就要归一部分了，所以FS只能自己扛了。
+
+*****
+
+####  5ew47  
+##### 340#       发表于 2026-8-21 20:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">下一次在明早10点，希望这之前能修好
+
+
+*****
+
+####  ShiKi847  
+##### 341#       发表于 2026-8-21 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121953&amp;ptid=2250995" target="_blank">HATENA 发表于 2026-8-21 20:16</a>
+
+我倒想问你想表达什么?
+
+如果还能有下一作ac必然还是你代狗跟fs一起干，欢迎挖坟打我脸 ...</blockquote>
+还有没有下一作AC都不一定呢
+
+*****
+
+####  bbby  
+##### 342#       发表于 2026-8-21 20:23
+
+掌机上有一款测试会取消的游戏<img src="https://static.stage1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nancygreenlife  
+##### 343#       发表于 2026-8-21 20:23
+
+跟老任服务器真有关系吗？我今晚一直在玩马车世界，局局十几人乃至二十几人疯狂乱斗<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
