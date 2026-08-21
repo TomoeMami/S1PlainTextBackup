@@ -2263,3 +2263,60 @@ https://agentrouter.org/register?aff=pBR0
 奇怪，好像有前审查？他有时候根本收不到图的输入</blockquote>
 设置的不对？现在很多agent似乎都没做好适配
 
+
+*****
+
+####  阿刚  
+##### 10582#       发表于 2026-8-22 00:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123490&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-22 00:12</a>
+
+设置的不对？现在很多agent似乎都没做好适配</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">hermes太奇怪了，他自己假装看不到把读出来的内容当做我附加的信息然后绕一圈调识图工具用他自己的模型去看，看的时候附加了他自己识别出来的nsfw内容又因为识图工具本身不带破限词直接就给拒绝了
+
+*****
+
+####  goranger  
+##### 10583#       发表于 2026-8-22 00:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123453&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-22 00:03</a>
+新号基本都是秒死的……你要能搞到老号那是不是大号都无所谓</blockquote>
+我有老号，方便私信下怎么玩吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  spaceblue  
+##### 10584#       发表于 2026-8-22 00:19
+
+<img src="https://img.stage1st.com/forum/202608/22/001834kajqm1cbad5xc2ms.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-22 00:18 上传
+
+<img src="https://img.stage1st.com/forum/202608/22/001852y6dt93bommt4wtht.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-22 00:18 上传
+
+opencode go里视觉模型只有15刀的额度
+
+
+*****
+
+####  徐老师  
+##### 10585#       发表于 2026-8-22 00:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123512&amp;ptid=2275806" target="_blank">spaceblue 发表于 2026-8-22 00:19</a>
+opencode go里视觉模型只有15刀的额度</blockquote>
+现在什么订阅比较划算？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
