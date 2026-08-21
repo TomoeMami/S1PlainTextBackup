@@ -686,3 +686,11 @@ Reddit那边还是加分制的人居多，S1这边除非是系列粉否则一向
 感觉还是准的。
 这鞋垫美术，后期boss气绝倒地，你上去处决腹部一大坨赘生的搞丸
 
+
+*****
+
+####  蒋公卖萌  
+##### 74#       发表于 2026-8-21 08:37
+
+剧透下，最后几个BOSS完全就是“生殖崇拜”的产物<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

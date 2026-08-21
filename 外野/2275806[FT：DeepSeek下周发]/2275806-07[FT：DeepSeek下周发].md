@@ -14415,3 +14415,57 @@ opencode free的v4f似乎没了 最后的救命稻草也没了 哎
 
 这个灰测的v4pro会开源吗？突然不想买设备了，等下一代的gpu
 
+
+*****
+
+####  neptunehs  
+##### 10221#       发表于 2026-8-21 08:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117116&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-21 08:29</a>
+这个灰测的v4pro会开源吗？突然不想买设备了，等下一代的gpu</blockquote>
+哪里还有下一代gpu 就算有也肯定部署不起
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  nxmonitor  
+##### 10222#       发表于 2026-8-21 08:38
+
+K3这个参数量要2000W以上才能部署一个基本实例，最大号的个人本地化部署基本不可能，小公司都负担不起…
+
+*****
+
+####  GJRstone  
+##### 10223#       发表于 2026-8-21 08:38
+
+ 本帖最后由 GJRstone 于 2026-8-21 08:39 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116975&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-21 07:22</a>
+这次阳光普照，什么谣言诽谤不攻自破
+
+在实力面前，公关毫无意义</blockquote>
+压力给到金融战部门和收复ww部门了，但是压力……压……收复ww吗<img src="https://static.stage1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
+
+大肥鱼，压力，收复ww，真的假的<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  overflowal  
+##### 10224#       发表于 2026-8-21 08:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117116&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-21 08:29</a>
+这个灰测的v4pro会开源吗？突然不想买设备了，等下一代的gpu</blockquote>
+消费级的gpu难道能运行这一代吗？想太多了<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  neptunehs  
+##### 10225#       发表于 2026-8-21 08:43
+
+我悲观 甚至怀疑5090或6090将会是最后一代消费级gpu
+后续除非国产gpu起步（amd那个跟nvidia一丘之貉的玩意儿不用指望）
+否则高几率就是要不出现理论新突破出现新的不知道啥pu专门用来玩游戏 要不以后都是云gpu了
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
