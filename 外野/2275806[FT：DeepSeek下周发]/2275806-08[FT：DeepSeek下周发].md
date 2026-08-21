@@ -1018,3 +1018,37 @@ luna是不是又被斩了<img src="https://static.stage1st.com/image/smiley/face
 
 不像v4f的风格
 
+
+*****
+
+####  tillnight  
+##### 10468#       发表于 2026-8-21 18:22
+
+<blockquote>zhanglei1943 发表于 2026-8-21 18:08
+luna是不是又被斩了</blockquote>
+如果gpt订阅不修复的话，本来就又被斩了。属于是ds一涨价放宽斩杀线就全体躺下歇息。
+
+*****
+
+####  舞以  
+##### 10469#       发表于 2026-8-21 18:23
+
+dsh极简模式我记得没有读图工具吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+标准模式又在雷霆思考了
+
+*****
+
+####  cscbzcbz  
+##### 10470#       发表于 2026-8-21 18:23
+
+笑死了，让v4fv自己去网上找自己的梗图<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小野賢章  
+##### 10471#       发表于 2026-8-21 18:27
+
+公司也上线了vision了，转发的官方，但是dsh里面给这个模型法图文混合消息就识别不了图片，只发图片可以识别，不知道为啥。官方的是可以图文混合的。claude code 也是好的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
