@@ -2258,3 +2258,65 @@ fs以后的作品都是自己发行了，跟万代没关系了
 
 估计修好今天也开不了了
 
+
+*****
+
+####  Luminous脑壳痛  
+##### 312#       发表于 2026-8-21 19:46
+
+笑了,已经道歉了,测试没了
+
+*****
+
+####  usodakedo  
+##### 313#       发表于 2026-8-21 19:47
+
+“史上最成功的网络测试”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  任毒瘤  
+##### 314#       发表于 2026-8-21 19:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alaaddin1013  
+##### 315#       发表于 2026-8-21 19:47
+
+黄昏结束了，也巧，黄昏也结束了。
+
+*****
+
+####  zakki  
+##### 316#       发表于 2026-8-21 19:47
+
+离了万代是真不行啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shyso  
+##### 317#       发表于 2026-8-21 19:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121603&amp;ptid=2250995" target="_blank">ShiKi847 发表于 2026-8-21 19:30</a>
+
+fs以后的作品都是自己发行了，跟万代没关系了</blockquote>
+这个说法是哪里来的？
+
+有说具体原因吗？
+
+万代没股份吗就这么放下金蛋的母鸡单飞？
+
+*****
+
+####  kuarwbwe  
+##### 318#       发表于 2026-8-21 19:53
+
+这样搞，那哪怕之后测试我玩爽了也不可能首发了。
+
+先保证能发售以后一周别炸服再说。
+

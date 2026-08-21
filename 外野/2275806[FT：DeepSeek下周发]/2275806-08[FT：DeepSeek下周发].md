@@ -1249,3 +1249,36 @@ BGM起</blockquote>
 那现在dsh编程是用什么方式好？是vs code加dsh插件好还是直接dsh加代码编辑器插件好？推荐哪个插件？我现在 ...</blockquote>
 直接在vscode内置浏览器中打开dsh<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">随便装一个提高v4p智商的插件，最傻瓜操作
 
+
+*****
+
+####  tonyunreal  
+##### 10488#       发表于 2026-8-21 19:49
+
+ 本帖最后由 tonyunreal 于 2026-8-21 19:52 编辑 
+
+不行，v模型拿来编程，降智降的有点厉害，经常看它在那操作工具越陷越深，flash就没那么明显
+
+但是flash看图总是要不停转ascii和调用像素取色工具，啊，好纠结
+
+*****
+
+####  蛋黄酱Release  
+##### 10489#       发表于 2026-8-21 19:52
+
+怀疑deepseek拿我的对话记录去训练模型了。最近新开的对话总能精准命中xp，都不用教了<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 10490#       发表于 2026-8-21 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70119405&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-21 13:53</a>
+
+别提了 我之前用qwen3.8 的iq3xxs接入我的翻译 结果给我术语表埋了一堆雷
+
+今天ox alpha给力 全排了</blockquote>
+我叫gemini从linguagacha里面提取agent模式装进反重力，然后他说很好办，几分钟就弄完了<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+然后跑了几本书的术语表才花了5%周额度，谷大善人牛逼，这要用v4flash一本要两块钱了
+
