@@ -902,3 +902,71 @@ v模型极简模式和anchored-standard都能触发we思维链，和flash 0731�
 
 别蹬了，蹬完又涨价怎么办<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">让我蹬
 
+
+*****
+
+####  tillnight  
+##### 10456#       发表于 2026-8-21 17:49
+
+有没有可能装唐也是赶人的一部分
+
+*****
+
+####  凤凰堂御前真章  
+##### 10457#       发表于 2026-8-21 17:50
+
+梁叔叔没有骗人啊，赶跑轻度用户确实能大力发展AGI
+
+*****
+
+####  王兰花秀丽  
+##### 10458#       发表于 2026-8-21 17:52
+
+我擦，认得出自己了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+1000052495.png
+(357.72 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 17:52 上传
+
+<img src="https://img.stage1st.com/forum/202608/21/175229yb487eu7xp7z8ebb.png" referrerpolicy="no-referrer">
+
+*****
+
+####  0WHan0  
+##### 10459#       发表于 2026-8-21 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120663&amp;ptid=2275806" target="_blank">zack1999 发表于 2026-8-21 17:04</a>
+
+可以用npm install -g @deepseek-ai/dsh@0.1.1-rc.1 --force 指令进行升级，我这边已经升级完毕了，官方连 ...</blockquote>
+用官方给的npx @deepseek-ai/dsh web运行的话有更新的时候会在启动的时候更新
+
+*****
+
+####  zhongjie  
+##### 10460#       发表于 2026-8-21 17:53
+
+部分跑分持平k3，牛逼了
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  →熙←  
+##### 10461#       发表于 2026-8-21 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121032&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-21 17:52</a>
+
+我擦，认得出自己了    Re:Source</blockquote>
+联网了吗, 图片里有字符吗, 不会真去训练了一下自己的形象吧<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  来都来了  
+##### 10462#       发表于 2026-8-21 17:57
+
+app识图模式很早就认识蓝色大肥鱼就是自己了
+

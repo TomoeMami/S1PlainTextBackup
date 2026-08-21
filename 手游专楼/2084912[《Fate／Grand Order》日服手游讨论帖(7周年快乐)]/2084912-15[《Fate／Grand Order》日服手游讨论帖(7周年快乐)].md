@@ -5276,3 +5276,66 @@ TMD90++本的礼装掉率是不是调过？连续6张礼装全是伤害礼装，
 单抽了下居然出了 短短半个月居然出了7个（</blockquote>
 7个五星，你这真是欧狗<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno1  
+##### 21526#       发表于 2026-8-21 11:55
+
+<blockquote>alucardcz 发表于 2026-8-20 23:38
+单抽了下居然出了 短短半个月居然出了7个（</blockquote>
+狗萌新太狗了 一个月5星就比我一年的多了
+
+*****
+
+####  alucardcz  
+##### 21527#       发表于 2026-8-21 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118599&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-8-21 11:55</a>
+
+狗萌新太狗了 一个月5星就比我一年的多了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">但你有管呆（
+
+*****
+
+####  qixinno1  
+##### 21528#       发表于 2026-8-21 12:06
+
+<blockquote>alucardcz 发表于 2026-8-21 12:00
+但你有管呆（</blockquote>
+但你泳装全齐
+
+*****
+
+####  exiaexa  
+##### 21529#       发表于 2026-8-21 12:19
+
+抽到的杂鱼五星我愿意退回去
+
+能让我多掉几张蛇女房吗，黑玛丽掉出一张满破了，蛇女房只有1
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 21530#       发表于 2026-8-21 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118809&amp;ptid=2084912" target="_blank">exiaexa 发表于 2026-8-21 12:19</a>
+抽到的杂鱼五星我愿意退回去
+
+能让我多掉几张蛇女房吗，黑玛丽掉出一张满破了，蛇女房只有1
+
+ ...</blockquote>
+一张满破？我都第六张了<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 21531#       发表于 2026-8-21 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120756&amp;ptid=2084912" target="_blank">khxooo 发表于 2026-8-21 17:14</a>
+
+一张满破？我都第六张了</blockquote>
+我已经认怂滚到90刷了个5+1，才回来90++
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
