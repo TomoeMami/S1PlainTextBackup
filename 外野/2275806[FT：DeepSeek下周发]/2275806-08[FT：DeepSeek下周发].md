@@ -2555,3 +2555,112 @@ kimi3.1卡这个时间点搞不好要拿第一啊
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  hugosol  
+##### 10608#       发表于 2026-8-22 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123656&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-22 00:59</a>
+
+周末梁子不上班，所以整个周末都是梁文谷</blockquote>
+但是计费标准没说周末全是梁文谷吧
+
+其实我也想吐槽梁子不是说好不加班么。。。
+
+*****
+
+####  nxmonitor  
+##### 10609#       发表于 2026-8-22 01:16
+
+真的还有，但是概率比昨天低了很多很多
+
+*****
+
+####  龙骑士尹志平  
+##### 10610#       发表于 2026-8-22 01:16
+
+<blockquote>hugosol 发表于 2026-8-22 01:07
+但是计费标准没说周末全是梁文谷吧
+
+其实我也想吐槽梁子不是说好不加班么。。。 ...</blockquote>
+鲸鱼娘自己说的
+
+<img src="https://img.stage1st.com/forum/202608/22/011626ugffhyhbwaddgnzb.jpg" referrerpolicy="no-referrer">
+
+<strong>1000016348.jpg</strong> (126.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-22 01:16 上传
+
+*****
+
+####  舞以  
+##### 10611#       发表于 2026-8-22 01:18
+
+明天白天测试就知道了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+官方文档里没说工作日就是
+
+*****
+
+####  风速前进mo  
+##### 10612#       发表于 2026-8-22 01:21
+
+周末算峰谷我看邮件根本没说吧，问ds app确实这么说但来源都是营销号，有官方的说明吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  沙发沙发  
+##### 10613#       发表于 2026-8-22 02:02
+
+ox alpha用下来真还行吧，当然还是得看价格
+
+*****
+
+####  BarricadeMKXX  
+##### 10614#       发表于 2026-8-22 02:30
+
+ 本帖最后由 BarricadeMKXX 于 2026-8-22 02:34 编辑 
+
+刷到有个opendesign是首月5刀/后续10刀无限flash，不过看介绍好像只能拿来跑设计工作不能当编程agent？
+也不提供api用，暂时当路边吧
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  squallx  
+##### 10615#       发表于 2026-8-22 02:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这鱼不瞎了 比LUNA和哈基米都强啊   狂蹬
+
+*****
+
+####  startraveller  
+##### 10616#       发表于 2026-8-22 02:48
+
+代号Korrine 的疑似 Kimi 3.1也上 Code Arena 灰测了
+
+*****
+
+####  lactone  
+##### 10617#       发表于 2026-8-22 03:07
+
+kimi3.1卡这个时间点搞不好要拿第一啊
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  KT-7  
+##### 10618#       发表于 2026-8-22 05:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123705&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-22 01:16</a>
+
+鲸鱼娘自己说的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这对美国不是正和上班时间么，有时差区分么
+
