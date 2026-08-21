@@ -15572,3 +15572,42 @@ ox alpha蛮好用，多模态真的很方便呀    [Re:Source](https://stage1s
 
 opencode是不是又被蹬坏了，我今天经常出现要求发出去几分钟没动最后砰一下跳个完成音的情况
 
+
+*****
+
+####  城北无尘  
+##### 10328#       发表于 2026-8-21 15:06
+
+视觉模型来了？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  试制甲炮  
+##### 10329#       发表于 2026-8-21 15:07
+
+所以自从梁子上调价格之后，有什么性价比比较高的API方案？我平时主要是一些文字工作。摸鱼的时候写点小说什么的，有没有推荐的？
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 10330#       发表于 2026-8-21 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70119836&amp;ptid=2275806" target="_blank">试制甲炮 发表于 2026-8-21 15:07</a>
+所以自从梁子上调价格之后，有什么性价比比较高的API方案？我平时主要是一些文字工作。摸鱼的时候写点小说 ...</blockquote>
+Gpt plus
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  龙骑士尹志平  
+##### 10331#       发表于 2026-8-21 15:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70119836&amp;ptid=2275806" target="_blank">试制甲炮 发表于 2026-8-21 15:07</a>
+
+所以自从梁子上调价格之后，有什么性价比比较高的API方案？我平时主要是一些文字工作。摸鱼的时候写点小说 ...</blockquote>
+拼rp咸鱼买gemini ai pro 18个月，运气好几个月不掉，运气差可能几个钟头就掉了，5～9块钱
+
