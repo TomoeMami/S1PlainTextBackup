@@ -1921,3 +1921,14 @@ UI界面，看上去确实挺复杂的。
 我感觉你在天上月步的话，别人基本上是碰不到你的 ...</blockquote>
 我也有这感觉，把模型一换完全就是装甲核心了<img src="https://static.stage1st.com/image/smiley/bundam2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dydqydz  
+##### 275#       发表于 2026-8-21 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70119794&amp;ptid=2250995" target="_blank">巴尔干炮 发表于 2026-8-21 15:02</a>
+
+UI界面，看上去确实挺复杂的。</blockquote>
+其实还好，总体还是魂游UI，右上角那个估计是时间？
+
