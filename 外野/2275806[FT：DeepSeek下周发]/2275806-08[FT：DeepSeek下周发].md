@@ -244,3 +244,71 @@ https://deepdemos.top/demo/claude-opus-5-9d3ec162
 没有，直接标准模式一下子就出来了</blockquote>
 不，我的意思是你的 pi
 
+
+*****
+
+####  qwased  
+##### 10383#       发表于 2026-8-21 16:46
+
+神了，fable不好乱用那opus5不是随便都能接触到吗，这玩意都开始流口水了路由他干什么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小野賢章  
+##### 10384#       发表于 2026-8-21 16:46
+
+[https://api.deepseek.com/models](https://api.deepseek.com/models)
+
+这个接口已经可以返回了，在pi里面可以用，让pi自己添加就行
+
+*****
+
+####  zy450  
+##### 10385#       发表于 2026-8-21 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120484&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-21 16:38</a>
+
+竟然就这么潦草的上线了    Re:Source</blockquote>
+符合DS一贯风格，在社交媒体只有发布公告……
+
+*****
+
+####  xiaohanne  
+##### 10386#       发表于 2026-8-21 16:49
+
+神秘模型看来是智谱了，股价说明一切。
+
+不过如果是智谱的话，价格应该也会很美丽…
+
+*****
+
+####  来都来了  
+##### 10387#       发表于 2026-8-21 16:50
+
+这才几天就把多模态端出来了啊？梁叔叔对不起，是我们以前耽误你训练AGI了<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lly778  
+##### 10388#       发表于 2026-8-21 16:50
+
+opus5可是在订阅里的，大家用不起fable不代表用不起opus啊，建议说fable5.1，不也灰测了么
+
+*****
+
+####  hugosol  
+##### 10389#       发表于 2026-8-21 16:51
+
+多模态api有计费说明么，也是峰谷价么
+
+*****
+
+####  inpachi  
+##### 10390#       发表于 2026-8-21 16:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120451&amp;ptid=2275806" target="_blank">lilod 发表于 2026-8-21 16:34</a>
+
+有了已经，用极简模式测</blockquote>
+看起来是我的问题，顺手开了个cherrystudio调一直不认图，换别的调就认图了
+

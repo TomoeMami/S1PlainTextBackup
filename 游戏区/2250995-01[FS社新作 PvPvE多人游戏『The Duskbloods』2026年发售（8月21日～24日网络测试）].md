@@ -1947,3 +1947,20 @@ UI界面，看上去确实挺复杂的。</blockquote>
 
 依然跌下神坛，我已经三分钟没有听到只狼TGA，法环大满贯，黑夜君临500W销量故事了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woaimiyabi  
+##### 278#       发表于 2026-8-21 16:49
+
+依然记得法环测试 口碑跌到低谷， 小高跌下神坛的故事。
+
+*****
+
+####  squarezty  
+##### 279#       发表于 2026-8-21 16:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120551&amp;ptid=2250995" target="_blank">woaimiyabi 发表于 2026-8-21 16:49</a>
+依然记得法环测试 口碑跌到低谷， 小高跌下神坛的故事。</blockquote>
+法环试玩评价当时都是很期待评价并不低，测试乃至发售初期差评如潮的是黑环（黑夜君临），然后口碑逆转爽卖500万份<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
