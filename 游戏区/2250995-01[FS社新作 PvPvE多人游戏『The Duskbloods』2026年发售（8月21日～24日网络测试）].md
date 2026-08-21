@@ -1664,3 +1664,31 @@ build还行 魂游之前积累的东西足够多
 这场景美术也太顶了，之前泄漏的真就挑最差的部分泄是吧。小高还说以后会加不同时期的地图，要是能都有这个 ...</blockquote>
 你确定美术很好么？我的看法是不过不失，大量用以前风格的素材，保持了基本的水准，但是没新的触动了~~当初玩血源、只狼光是看风景都觉得很震撼~~~
 
+
+*****
+
+####  另外四分之三  
+##### 250#       发表于 2026-8-21 11:20
+
+记得有说人物来自不同时代吧，那地图会不会也有不同时代风格，一个传统中世纪城堡，一个殖民卫星/侏罗纪公园，，
+另外还是原本的单机更对我胃口，虽然黑夜君临玩的很爽很沉迷，黄昏血也看起来很有趣(绝对不是因为我没有ns2<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 251#       发表于 2026-8-21 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118281&amp;ptid=2250995" target="_blank">另外四分之三 发表于 2026-8-21 11:20</a>
+记得有说人物来自不同时代吧，那地图会不会也有不同时代风格，一个传统中世纪城堡，一个殖民卫星/侏罗纪公 ...</blockquote>
+至少有一个是蒸汽时代，预告里有火车<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 252#       发表于 2026-8-21 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118186&amp;ptid=2250995" target="_blank">hkguty 发表于 2026-8-21 11:09</a>
+我觉得他搞了一堆非pvp的收集点数元素但是搞到最后可能还是各种阴逼在附近埋伏等着抢人头 ...</blockquote>
+教堂外打人完全无收益啊，不增加积分纯浪费时间，这么玩第二阶段直接就被淘汰了，这游戏规划每个阶段该干啥事应该挺重要的
+

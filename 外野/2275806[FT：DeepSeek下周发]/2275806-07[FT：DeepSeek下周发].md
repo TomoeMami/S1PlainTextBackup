@@ -15031,3 +15031,84 @@ PC不就是个人电脑的缩写，前面不需要加个人这个限定词了
 应该是bug，这个量小的太离谱了。我已经降级模型和思考来用了。</blockquote>
 看到codex出了bug就在期待reset了.......
 
+
+*****
+
+####  neptunehs  
+##### 10277#       发表于 2026-8-21 11:19
+
+明明ox测试随时可能停 我却因为上班不能蹬 想想好亏（？
+毕竟没有了free的flash后 在这次ox测试期间搞定我的东西是最后的希望了 否则之后得用hy3搞。。。
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  舞以  
+##### 10278#       发表于 2026-8-21 11:21
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">信路由论的，建议直接工信部举报，昨晚到现在这么大规模的测试，都把数据转发到a\的服务器了。
+
+建议为股民朋友们找个公道。
+
+
+*****
+
+####  王兰花秀丽  
+##### 10279#       发表于 2026-8-21 11:22
+
+ox上下文达到主流水平，多模态能力到位，智商不低，更何况免费，这就是我心中的d4f-vision了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  舞以  
+##### 10280#       发表于 2026-8-21 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118295&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-21 11:22</a>
+
+ox上下文达到主流水平，多模态能力到位，智商不低，更何况免费，这就是我心中的d4f-vision了    Re:Source ...</blockquote>
+雷神的新模型？
+
+
+*****
+
+####  Ty_cc  
+##### 10281#       发表于 2026-8-21 11:23
+
+？怎么今天pro思维链是中文的了  api+hsn
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  neptunehs  
+##### 10282#       发表于 2026-8-21 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118295&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-21 11:22</a>
+ox上下文达到主流水平，多模态能力到位，智商不低，更何况免费，这就是我心中的d4f-vision了    Re:Source ...</blockquote>
+如果是mimo且雷总维持价格还好说
+如果是glm 这一波测试完又是用不起
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  tonyunreal  
+##### 10283#       发表于 2026-8-21 11:25
+
+【【DeepSeek灰测氢弹爆炸】当你给他原版素材让他复刻杀戮尖塔】 [https://www.bilibili.com/video/BV1Lc8u6bEyg/](https://www.bilibili.com/video/BV1Lc8u6bEyg/)
+
+*****
+
+####  xiaohanne  
+##### 10284#       发表于 2026-8-21 11:27
+
+<blockquote>neptunehs 发表于 2026-8-21 11:23
+如果是mimo且雷总维持价格还好说
+
+如果是glm 这一波测试完又是用不起
+</blockquote>
+这水平如果维持原价，那就真成雷圣了。
+
+但我觉得不太可能。估计最后还是落地为雷子。
+
