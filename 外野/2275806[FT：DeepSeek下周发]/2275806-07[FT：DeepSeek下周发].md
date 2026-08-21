@@ -15510,3 +15510,33 @@ ox alpha先走起啊 能蹬一天是一天 之后事情之后算
 
 这个楼目前为止就出现了一个所谓路由论支持者，L站本身对DeepSeek也是很友好的，删了很多贴，偶尔冒出来几个也是喷的多，说来说去最后还是脏token的问题，别的都被喷民科和俺寻思了。但是这个专楼，对着虚空输出喷路由论喷了不知道多少层<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刘不害  
+##### 10322#       发表于 2026-8-21 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70119413&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-21 13:56</a>
+
+ox alpha先走起啊 能蹬一天是一天 之后事情之后算
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0 ...</blockquote>
+好耶！继续白嫖！
+
+*****
+
+####  qwased  
+##### 10323#       发表于 2026-8-21 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70119405&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-21 13:53</a>
+别提了 我之前用qwen3.8 的iq3xxs接入我的翻译 结果给我术语表埋了一堆雷
+今天ox alpha给力 全排了</blockquote>
+我试了下，不知道是qwen思考太长了还是怎么，经常把思维链草稿写到脚本里面去，导致脚本错误，返工，再来一轮出错，上下文就用完了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王兰花秀丽  
+##### 10324#       发表于 2026-8-21 14:23
+
+ox alpha蛮好用，多模态真的很方便呀    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

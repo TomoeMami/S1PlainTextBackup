@@ -781,3 +781,15 @@ ctrl c Ctrl v的官方飞雷神ota了<img src="https://static.stage1st.com/image
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  红魔馆的糖  
+##### 82#       发表于 2026-8-21 14:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70119426&amp;ptid=2282975" target="_blank">我就再氪一单 发表于 2026-8-21 13:57</a>
+所以弹反格挡变硬那几个哪个最推荐还有个用了就不给解锁奖杯的就离谱
+
+—— 来自 Xiaomi 23049RAD8C, And ...</blockquote>
+变硬，可以在任何时间使用，包括自己的攻击期间
+
