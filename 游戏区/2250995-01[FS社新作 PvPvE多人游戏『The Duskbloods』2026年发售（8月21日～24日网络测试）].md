@@ -1473,3 +1473,15 @@ ign 说宫崎暗示保留入侵系统，可以加入对局当第 9 人
 有人说了是40帧 没有60帧</blockquote>
 ok,那感觉40帧流畅度可以接受
 
+
+*****
+
+####  serj005  
+##### 232#       发表于 2026-8-21 08:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116843&amp;ptid=2250995" target="_blank">shyso 发表于 2026-8-21 02:31</a>
+视频看完了
+
+感觉潜力很足</blockquote>
+巴哈采访有专门提到这次的新手教程和引导设计有任天堂提供协助，教程应该有很长的多个篇章，类似ac6的多个训练关卡，每个教一个机制。
+
