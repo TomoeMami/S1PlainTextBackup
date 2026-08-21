@@ -14487,3 +14487,21 @@ K3这个参数量要2000W以上才能部署一个基本实例，最大号的个�
 
 哎，臭打游戏的这波怕是要彻底寄了
 
+
+*****
+
+####  crow_wine  
+##### 10228#       发表于 2026-8-21 08:56
+
+挺地狱的，让ai做游戏，但是玩家没有设备玩游戏<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梁皇无忌  
+##### 10229#       发表于 2026-8-21 08:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117193&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-21 08:46</a>
+
+在线进化的那么快，个人玩家部署本地大模型意义不大了好像。qwen3.8 27B满血57G权重，要真正跑满上下文也要 ...</blockquote>
+再往后，只有保密需求高的用户才会考虑本地部署了。破甲搞色图和刘备文的大概也需要
+
