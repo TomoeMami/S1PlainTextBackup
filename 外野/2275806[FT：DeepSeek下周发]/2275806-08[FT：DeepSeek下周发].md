@@ -1099,3 +1099,66 @@ o/感觉开始犯➗了
 
 新人问一下,现在ai的能力能做到什么地步了,如果我给他一个PSP游戏包,他可以反编译并做mod吗?
 
+
+*****
+
+####  王兰花秀丽  
+##### 10476#       发表于 2026-8-21 19:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121447&amp;ptid=2275806" target="_blank">Luminous脑壳痛 发表于 2026-8-21 19:04</a>
+新人问一下,现在ai的能力能做到什么地步了,如果我给他一个PSP游戏包,他可以反编译并做mod吗? ...</blockquote>
+配一下逆向工具的mcp就可以，很简单    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ Luminous脑壳痛 + 1谢谢
+
+查看全部评分
+
+*****
+
+####  小野賢章  
+##### 10477#       发表于 2026-8-21 19:08
+
+vision 在推理的过程中会忘记自己会看图，还是想转换成ascii来识别图片<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  拉屎  
+##### 10478#       发表于 2026-8-21 19:10
+
+<img src="https://p.sda1.dev/34/ee1843a7cc07219fcd757a01186af950/image.jpg" referrerpolicy="no-referrer">
+
+不是。。。不是。。这不是。。。啊。。是是是。。
+
+—— 来自 HONOR PNM-AN20, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  BarricadeMKXX  
+##### 10479#       发表于 2026-8-21 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121241&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-21 18:27</a>
+
+公司也上线了vision了，转发的官方，但是dsh里面给这个模型法图文混合消息就识别不了图片，只发图片可以识 ...</blockquote>
+转发的时候请求格式没写好？
+
+*****
+
+####  半江瑟瑟半江红  
+##### 10480#       发表于 2026-8-21 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121447&amp;ptid=2275806" target="_blank">Luminous脑壳痛 发表于 2026-8-21 19:04</a>
+新人问一下,现在ai的能力能做到什么地步了,如果我给他一个PSP游戏包,他可以反编译并做mod吗? ...</blockquote>
+得看你做啥样mod
+不过反编译是没任何问题的，它甚至可以把相关环境自己准备好
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
