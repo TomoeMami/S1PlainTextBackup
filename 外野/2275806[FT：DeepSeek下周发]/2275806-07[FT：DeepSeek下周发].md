@@ -14556,3 +14556,33 @@ K3这个参数量要2000W以上才能部署一个基本实例，最大号的个�
 哎，臭打游戏的这波怕是要彻底寄了</blockquote>
 好消息是AI优化可能会比人强……
 
+
+*****
+
+####  七氷  
+##### 10235#       发表于 2026-8-21 09:18
+
+不是个人pc寄了吗<img src="https://static.stage1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">，又不止显卡涨价
+
+
+*****
+
+####  煙雲靉靆  
+##### 10236#       发表于 2026-8-21 09:25
+
+<blockquote>七氷 发表于 2026-8-21 09:18
+不是个人pc寄了吗，又不止显卡涨价</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">个人PC这个说法听上去有点奇怪，成分赘余了
+
+*****
+
+####  野蛮人之夜  
+##### 10237#       发表于 2026-8-21 09:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116810&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-21 02:00</a>
+
+我还刷到了贴吧一个直球生物甲的测试
+
+论坛助手,iPhone</blockquote>
+问了一下Ｄ指导，它说第二个真正危险的问题那个DeepSeek只讲原则，不碰实操，也就是说它心里其实很有数
+
