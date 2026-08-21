@@ -2800,3 +2800,15 @@ fs服务器填的127.0.0.1忘改了，别慌
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，确实完美符合中日韩网友的刻板印象
 
+
+*****
+
+####  PigMourne  
+##### 370#       发表于 2026-8-22 05:30
+
+ 本帖最后由 PigMourne 于 2026-8-22 05:31 编辑 
+
+感觉有点像把算分桌游套了个魂系皮，要是能真像桌游一样抽象成回合制rpg就好了，还能大幅降低服务器压力，可惜并不存在这样的游戏。
+
+脑测一下会跟黑环一样紧绷，从头赶命到尾，全程都要高专注度+疯狂切地图，累死人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
