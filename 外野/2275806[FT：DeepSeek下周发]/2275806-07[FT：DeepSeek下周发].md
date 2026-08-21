@@ -15794,3 +15794,78 @@ ox Alpha几乎不可用了，就半天时间吗...    Re:Source ...</blockquot
 
 rc8是写了更新日志的吧，不过一周三更真勤快吧    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  龙骑士尹志平  
+##### 10347#       发表于 2026-8-21 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120131&amp;ptid=2275806" target="_blank">未知伤亡 发表于 2026-8-21 15:51</a>
+
+不是说哈基米现在已经跟不上第一梯队，智力流口水了吗，堪用否？</blockquote>
+3.7flash和v4f有来有回吧，个人感觉，反正都得修好几遍，玩酒馆的似乎更喜欢哈基米，好在是全模态，不过agy的token限制也挺多的，一不小心5小时就超限了，还是8月初v4f狂蹬的时候更爽。
+
+*****
+
+####  tonyunreal  
+##### 10348#       发表于 2026-8-21 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120157&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-8-21 15:54</a>
+
+dsh这个更新连changelog都不写了吗    Re:Source</blockquote>
+代码刚上npm仓库的next分支，又没上默认
+
+视觉模型也没上线
+
+*****
+
+####  xiaohanne  
+##### 10349#       发表于 2026-8-21 16:00
+
+<blockquote>龙骑士尹志平 发表于 2026-8-21 15:59
+3.7flash和v4f有来有回吧，个人感觉，反正都得修好几遍，玩酒馆的似乎更喜欢哈基米，好在是全模态，不过a ...</blockquote>
+改代码略输v4f，文字能力略胜v4f
+
+*****
+
+####  半江瑟瑟半江红  
+##### 10350#       发表于 2026-8-21 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120068&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-21 15:43</a>
+
+这就纯胡扯，被喷爆了。
+
+当然我体感今天早上更新一次客户端以后，消耗稍微好一点。我怀疑是他们vibe codi ...</blockquote>
+草 codex是VIBE出来的吗？我说一个桌面端不能归档会话的bug拖了两天才修好
+
+*****
+
+####  →熙←  
+##### 10351#       发表于 2026-8-21 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120157&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-8-21 15:54</a>
+
+dsh这个更新连changelog都不写了吗    Re:Source</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">翻了下,纯版本号更新
+
+
+*****
+
+####  龙骑士尹志平  
+##### 10352#       发表于 2026-8-21 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120205&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-21 16:00</a>
+
+改代码略输v4f，文字能力略胜v4f</blockquote>
+美国豆包比豆包更沙雕，传张照片全是成年人让他出视频，他硬说里面都是未成年人，换了好几张照片都说未成年人。传给豆包，豆包说你给我充钱我就给你出。
+
+*****
+
+####  overflowal  
+##### 10353#       发表于 2026-8-21 16:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120218&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-21 16:01</a>
+
+草 codex是VIBE出来的吗？我说一个桌面端不能归档会话的bug拖了两天才修好</blockquote>
+现在有什么软件不是vibe出来的吗<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
