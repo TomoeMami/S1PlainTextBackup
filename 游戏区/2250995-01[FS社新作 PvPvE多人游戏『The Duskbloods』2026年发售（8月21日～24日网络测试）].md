@@ -2717,3 +2717,29 @@ fs服务器填的127.0.0.1忘改了，别慌
 吸血是所有角色处决动作，类似于只狼的处决，啃一口基本就是必死</blockquote>
 看巴哈姆特写得更详细，说正式版可能还有更多种契约变化和终局模式是好事，还是再观望一下了
 
+
+*****
+
+####  kuarwbwe  
+##### 362#       发表于 2026-8-21 22:57
+
+<blockquote>u2deack 发表于 2026-8-21 22:40
+《黄昏血族》紧急直播
+
+直播时间：8月22日19：00～19：45
+
+直播平台：Fami通YouTube播出</blockquote>
+紧急你妹啊，你真紧急不应该今天晚上吗？
+
+*****
+
+####  usodakedo  
+##### 363#       发表于 2026-8-21 23:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123087&amp;ptid=2250995" target="_blank">kuarwbwe 发表于 2026-8-21 22:57</a>
+
+紧急你妹啊，你真紧急不应该今天晚上吗？</blockquote>
+这个好像是本来就有计划的直播，可能和这次大乌龙无关<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+但真的也太搞了，原计划估计是今天玩家体验一下，然后明天北尾再照例爆点料和打太极，现在怕不是要开播即思米马赛了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

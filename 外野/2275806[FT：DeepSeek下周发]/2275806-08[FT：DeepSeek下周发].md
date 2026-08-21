@@ -1760,3 +1760,37 @@ gemini flash一直出pro卡住，我觉得合理往硬件联想是合理的。�
 
 蹬的人太多了吧, 超级慢啊, 出字要等好久
 
+
+*****
+
+####  CosineG  
+##### 10535#       发表于 2026-8-21 22:54
+
+不放权重吗 huggingface上一直没出
+
+—— 来自 OnePlus PJD110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  蛋黄酱Release  
+##### 10536#       发表于 2026-8-21 22:56
+
+本来还说本地部署一个小视觉模型辅助，现在已经完全没必要了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  龙骑士尹志平  
+##### 10537#       发表于 2026-8-21 22:59
+
+ds识图比想象中强，我发了张金将军年轻瑞士留学照，ds一下就认出来了，并对梗做了准确解读，发给gemini他和我说是吴京。。。。。ds vision api有甲吗，app上估计对上传涩图先做了识别。
+
+
+*****
+
+####  蛋黄酱Release  
+##### 10538#       发表于 2026-8-21 23:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123094&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-21 22:59</a>
+ds识图比想象中强，我发了张金将军年轻瑞士留学照，ds一下就认出来了，并对梗做了准确解读，发给gemini他和 ...</blockquote>
+api可以破
+

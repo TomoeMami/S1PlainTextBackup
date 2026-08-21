@@ -841,3 +841,11 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  红魔馆的糖  
+##### 87#       发表于 2026-8-21 23:00
+
+玩不下去了，鸽了。我还是第一次玩类魂玩到发困，感觉玩到哪个地图都很无聊<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">制作组无论是流程设计还是关卡编排都太差了
+
