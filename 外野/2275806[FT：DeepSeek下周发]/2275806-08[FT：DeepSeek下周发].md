@@ -1356,3 +1356,43 @@ ox alpha有啥评测吗，怎么样？</blockquote>
 
 真干活的都在猛蹬免费的ox-alpha，来不及测试
 
+
+*****
+
+####  kylezy123  
+##### 10498#       发表于 2026-8-21 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121777&amp;ptid=2275806" target="_blank">秋水锦瑟 发表于 2026-8-21 20:00</a>
+
+https://agentrouter.org/register?aff=pBR0
+
+公益站白嫖175额度，走我链接175额度，不走我链接只有100额度 ...</blockquote>
+没看到签到的地方啊
+
+*****
+
+####  neptunehs  
+##### 10499#       发表于 2026-8-21 20:39
+
+hy3居然拒绝我的翻译要求 说是无法给到相关内容
+我翻译的还不是书籍是游戏
+拉黑了拉黑了
+
+但ox alpha还是处于无法使用的阶段 咋办呢。。。
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  RookieTnT  
+##### 10500#       发表于 2026-8-21 20:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70122150&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-21 20:39</a>
+
+hy3居然拒绝我的翻译要求 说是无法给到相关内容
+
+我翻译的还不是书籍是游戏
+
+拉黑了拉黑了</blockquote>
+只做翻译去蹬 Gemini啊. 免费一年会员
+
