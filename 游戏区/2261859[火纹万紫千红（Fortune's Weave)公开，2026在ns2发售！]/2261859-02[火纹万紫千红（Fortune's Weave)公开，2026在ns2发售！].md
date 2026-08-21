@@ -15406,3 +15406,11 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 
 售前还能公布30多个角色
 
+
+*****
+
+####  57042711  
+##### 2943#       发表于 2026-8-21 23:53
+
+这次要是敌人会毫无保留的对着玩家使用专属技能的话那不可能无聊的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

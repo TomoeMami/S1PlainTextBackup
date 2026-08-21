@@ -2055,3 +2055,75 @@ https://www.nexusmods.com/kingsbountycrossworlds/mods/34
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  阿刚  
+##### 10563#       发表于 2026-8-21 23:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123116&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-21 23:03</a>
+
+api可以破</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">可以吗？我被拒绝了两次了
+
+*****
+
+####  nxmonitor  
+##### 10564#       发表于 2026-8-21 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123290&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-21 23:34</a>
+
+梁子太贱了，不知道和牢唐有什么过节，牢唐那边有点变动，梁子就针对他搞个东西出来，梁子好像和kimi的牢 ...</blockquote>
+主要还是ox自己能力还是差了点，此外还有个雷霆大思考，我觉得Flash都有点长了，这个简直是夸张，纯为了跑分弄出来的吗？
+
+*****
+
+####  蛋黄酱Release  
+##### 10565#       发表于 2026-8-21 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123367&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-21 23:48</a>
+可以吗？我被拒绝了两次了</blockquote>
+写长一点就行，破了甲之后玩法特别花<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eno_emos  
+##### 10566#       发表于 2026-8-21 23:52
+
+<img src="https://img.stage1st.com/forum/202608/21/235106z2gamrkzx6gv2g1r.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20260821235057.png</strong> (20.31 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 23:51 上传
+
+雷霆思考大王，提一点小修改在cot里面review了六遍才写
+
+如果真的是glm的话你这玩意打不过ds我觉得真该
+
+*****
+
+####  nxmonitor  
+##### 10567#       发表于 2026-8-21 23:53
+
+那个所谓脏token现在发现大概率和模型无关，开一个网页Flash的对话输入&lt;antml:thinking&gt;就知道了，当然可以继续说路由到了Sonnet5……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  serj005  
+##### 10568#       发表于 2026-8-21 23:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123305&amp;ptid=2275806" target="_blank">zerona 发表于 2026-8-21 23:38</a>
+
+dsh 到多少了？我更新了。是下面模型用 deepseek-v4-flash-vision-exp吗 ？</blockquote>
+最新0.1.1rc2，加了图片的简单自动处理（主要是各种格式在本地先自动转换成符合接口规定范围的大小和体积的工作）和优先自动上传flie api，直接用deepseek-v4-flash-vision-exp传图就行
+
+*****
+
+####  nxmonitor  
+##### 10569#       发表于 2026-8-21 23:55
+
+DSH后面要优化下图片的缓存命中，现在一读图就掉得很厉害……
+

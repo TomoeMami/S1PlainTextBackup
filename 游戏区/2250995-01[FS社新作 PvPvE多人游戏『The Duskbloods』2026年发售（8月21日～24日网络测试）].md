@@ -2768,3 +2768,19 @@ fs服务器填的127.0.0.1忘改了，别慌
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  kyonkoism  
+##### 367#       发表于 2026-8-21 23:50
+
+黄昏之血测试服务器崩溃后，来自中日韩三国的极具代表性的不同反应<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/21/235012d8co4ffhowz2vcwz.jpg" referrerpolicy="no-referrer">
+
+<strong>}[MUOR{CSUI99}(FI10)NEU.jpg</strong> (139.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 23:50 上传
+
