@@ -15900,3 +15900,43 @@ dsh这个更新连changelog都不写了吗    Re:Source</blockquote>
 3.7flash凑合能用，最重要的是10块钱18个月要什么自行车</blockquote>
 能否私信推荐下地址，谢谢
 
+
+*****
+
+####  →熙←  
+##### 10357#       发表于 2026-8-21 16:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120296&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-21 16:11</a>
+
+不是吧，更新挺多的， v4f-vision可选了，虽然还不能调用    Re:Source</blockquote>
+0.1.0 rc8-&gt;0.1.1 rc1 没东西啊
+
+*****
+
+####  杀人鲸  
+##### 10358#       发表于 2026-8-21 16:17
+
+怎么客户端的版本直接从237到240了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  小野賢章  
+##### 10359#       发表于 2026-8-21 16:18
+
+<img src="https://img.stage1st.com/forum/202608/21/161759qlsliid4ccn9dzdg.png" referrerpolicy="no-referrer">
+
+<strong>ee8d5d88384b98c71801b5fec2392b8b.png</strong> (55.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 16:17 上传
+
+*****
+
+####  tonyunreal  
+##### 10360#       发表于 2026-8-21 16:18
+
+flash视觉模型上线了
+

@@ -1900,3 +1900,24 @@ UI界面，看上去确实挺复杂的。
 合着这次测试不给直播啊    Re:Source</blockquote>
 国内谁理你这个
 
+
+*****
+
+####  嘉术2015  
+##### 273#       发表于 2026-8-21 16:25
+
+这战斗不会更偏向gvg控体力的模式吧？
+
+我感觉你在天上月步的话，别人基本上是碰不到你的
+
+*****
+
+####  squarezty  
+##### 274#       发表于 2026-8-21 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120401&amp;ptid=2250995" target="_blank">嘉术2015 发表于 2026-8-21 16:25</a>
+这战斗不会更偏向gvg控体力的模式吧？
+
+我感觉你在天上月步的话，别人基本上是碰不到你的 ...</blockquote>
+我也有这感觉，把模型一换完全就是装甲核心了<img src="https://static.stage1st.com/image/smiley/bundam2017/001.png" referrerpolicy="no-referrer">
+
