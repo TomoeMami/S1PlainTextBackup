@@ -2519,3 +2519,13 @@ V4FV太爽了，我宣布18:00-9:00，12:00-14:00梁圣称号限时回归</block
 
 ox alpha用下来真还行吧，当然还是得看价格
 
+
+*****
+
+####  BarricadeMKXX  
+##### 10604#       发表于 2026-8-22 02:30
+
+刷到有个opendesign是首月5刀/后续10刀无限flash，不过看介绍好像只能拿来跑设计工作不能当编程agent？
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
