@@ -2644,3 +2644,22 @@ fs服务器填的127.0.0.1忘改了，别慌
 
 刚陪老婆大走结束赶紧摁开NS开整，结果就这，早知道继续大走了，FS真SB
 
+
+*****
+
+####  clyde-wang  
+##### 355#       发表于 2026-8-21 21:57
+
+感觉不会就只做了媒体线下局域网，互联网的代码没审查过吧……
+
+
+*****
+
+####  JOJOROY  
+##### 356#       发表于 2026-8-21 22:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121933&amp;ptid=2250995" target="_blank">petitlui 发表于 2026-8-21 20:15</a>
+
+黑环当时虽然也炸服好歹第一天还是能进游戏的吧，任地狱你…………</blockquote>
+老任过去的几个网络测试就没有一个出问题的
+

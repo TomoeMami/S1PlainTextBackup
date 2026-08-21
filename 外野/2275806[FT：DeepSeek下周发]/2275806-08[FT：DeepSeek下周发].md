@@ -1630,3 +1630,15 @@ ox alpha有啥评测吗，怎么样？</blockquote>
 用v4fv给DSH写了个屏幕截图的插件，还不错<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 有识图功能方便好多
 
+
+*****
+
+####  tonyunreal  
+##### 10521#       发表于 2026-8-21 21:57
+
+晚上提了个视觉方面的需求
+
+flash因为识图吃力暴涨token，涨到400K以上的时候开始陷入降智死循环出不来了
+
+v模型识图轻松，花了368K做出来了，虽然最后也有点降智
+
