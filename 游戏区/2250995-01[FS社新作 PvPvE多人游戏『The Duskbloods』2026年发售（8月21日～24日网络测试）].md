@@ -2812,3 +2812,11 @@ fs服务器填的127.0.0.1忘改了，别慌
 
 脑测一下会跟黑环一样紧绷，从头赶命到尾，全程都要高专注度+疯狂切地图，累死人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Unbiquitous  
+##### 371#       发表于 2026-8-22 06:11
+
+这游戏还要买联机会员？FS的服务器配吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
