@@ -1978,3 +1978,80 @@ ox大概率是的，但是基本被V4FV狙击了
 哈人卧槽，现在AI居然真的可以对游戏拆包？前面楼友的话提醒了我，我让D指导给我把凉宫春日的追忆里所有文 ...</blockquote>
 可以的。甚至agent干这个比真人选手熟练很多，就是绝大部分agent都有内置拒答这种拆包要求，很多模型也有这个设计
 
+
+*****
+
+####  龙骑士尹志平  
+##### 10557#       发表于 2026-8-21 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123264&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-21 23:27</a>
+
+ox大概率是的，但是基本被V4FV狙击了</blockquote>
+梁子太贱了，不知道和牢唐有什么过节，牢唐那边有点变动，梁子就针对他搞个东西出来，梁子好像和kimi的牢杨关系又不错和牢杨老师牢唐的关系又很差，不知道有什么八卦。
+
+*****
+
+####  neptunehs  
+##### 10558#       发表于 2026-8-21 23:37
+
+ 本帖最后由 neptunehs 于 2026-8-21 23:38 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123130&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-21 23:05</a>
+哈人卧槽，现在AI居然真的可以对游戏拆包？前面楼友的话提醒了我，我让D指导给我把凉宫春日的追忆里所有文 ...</blockquote>
+https://www.nexusmods.com/kingsbountycrossworlds/mods/34
+
+欢迎参观 全套由v4f完成（
+
+顺便opencode针对ox老掉更新了 似乎是好些了 但还是慢
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  zerona  
+##### 10559#       发表于 2026-8-21 23:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123285&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-21 23:32</a>
+
+啥harness啊，dsh的话更新到最新版就行</blockquote>
+dsh 到多少了？我更新了。是下面模型用 deepseek-v4-flash-vision-exp吗 ？
+
+*****
+
+####  qwased  
+##### 10560#       发表于 2026-8-21 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123161&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-21 23:09</a>
+
+因为觉得48G 4090要么是涡轮起飞，要么水冷也觉得不台保险。后来就配了这个配置，预留了一个插槽，准备之 ...</blockquote>
+你要是已经打算上两块5090了不如咬咬牙直接来一块RTX6000PRO
+
+双卡跑llm只要上下文稍微长一点速度就暴跌了
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 10561#       发表于 2026-8-21 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123300&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-21 23:37</a>
+
+https://www.nexusmods.com/kingsbountycrossworlds/mods/34
+
+欢迎参观 全套由v4f完成（</blockquote>
+卧槽 我以为我用agent给滚5MOD排序已经是AI的能力边界了
+
+
+*****
+
+####  neptunehs  
+##### 10562#       发表于 2026-8-21 23:44
+
+ 本帖最后由 neptunehs 于 2026-8-21 23:45 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123317&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-21 23:40</a>
+卧槽 我以为我用agent给滚5MOD排序已经是AI的能力边界了</blockquote>
+嘛 那当然不是许愿式完成的 前后花了一个多月从旧v4f打基础到新v4f突破关键
+
+但我想说的是 只要你愿意跟有token 上限真的很高 我还有一个针对这个游戏的类skse型插件系统还没发呢 甚至可以写heap replacer这类游戏内部内存管理器
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
