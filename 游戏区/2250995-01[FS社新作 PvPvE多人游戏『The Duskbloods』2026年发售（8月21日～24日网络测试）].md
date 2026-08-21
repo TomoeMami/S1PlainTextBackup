@@ -2166,3 +2166,19 @@ Fromsoft: 現在、『The Duskbloods』ネットワークテスト版におい�
 
 服务器不行啊老贼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  crosz1985  
+##### 302#       发表于 2026-8-21 18:53
+
+测试圆满成功
+
+<img src="https://img.stage1st.com/forum/202608/21/185313cq534q3vof933ovt.png" referrerpolicy="no-referrer">
+
+<strong>8904cca9049e2b3d9aa498eaecc99f52.png</strong> (992.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 18:53 上传
+
