@@ -767,3 +767,17 @@ ctrl c Ctrl v的官方飞雷神ota了<img src="https://static.stage1st.com/image
 
 问题是这游戏有大量红光技能穿插在普攻里面，说实话弹反类技能不是很好用
 
+
+*****
+
+####  我就再氪一单  
+##### 81#       发表于 2026-8-21 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118676&amp;ptid=2282975" target="_blank">红魔馆的糖 发表于 2026-8-21 12:03</a>
+不能，不过用变硬和抖刀的作用差不多，都是完美有收益不完美没惩罚，判定也很宽松。
+
+问题是这游戏有大量 ...</blockquote>
+所以弹反格挡变硬那几个哪个最推荐<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有个用了就不给解锁奖杯的就离谱
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

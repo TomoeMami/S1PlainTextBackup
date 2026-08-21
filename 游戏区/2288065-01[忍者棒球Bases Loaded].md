@@ -478,3 +478,15 @@ rtype九条翻新了，现在是棒球忍者。
 
 期间一个小孩过来投币，各种必杀，玩一半人家自己直接退了，顺便狠狠的鄙视了我一下，那眼神现在还记得<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhoutai354  
+##### 49#       发表于 2026-8-21 14:03
+
+ 本帖最后由 zhoutai354 于 2026-8-21 14:04 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117231&amp;ptid=2288065" target="_blank">yangun22 发表于 2026-8-21 08:54</a>
+
+当年街机厅老板最不赚钱的就这个和龙与地下城2了吧，这个是难度低小绿人无敌，龙2是直接bug无限道具 ...</blockquote>
+最不赚钱的显然是铁钩船长啊，因为难度低操作简单而且通关后还可以继续二周目。这个得会搓招，龙与地下城2得会玩无限道具bug
+
