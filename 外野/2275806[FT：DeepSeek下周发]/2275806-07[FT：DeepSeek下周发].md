@@ -15621,3 +15621,73 @@ ox alpha开始不稳定了 快结束了吧这个任蹬测试
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  goranger  
+##### 10333#       发表于 2026-8-21 15:26
+
+模型 ID        x-preview-f-free
+
+定位        隐身预览版推理模型（stealth，面向 coding / agent / 工具调用）
+
+发布日期        2026-08-21（今天刚上）
+
+上下文窗口        1,000,000 tokens
+
+最大输出        131,072 tokens
+
+推理        支持，effort 可选 low / high / max
+
+工具调用        ✅
+
+结构化输出        ✅
+
+多模态输入        文本 + 图片 + 视频
+
+温度        可调
+
+价格        免费（输入/输出/缓存全 0）     opencode zen里免费蹬。缺token的可以来试试，从参数上来说起码打赢minimax了我觉得
+
+*****
+
+####  zhongjie  
+##### 10334#       发表于 2026-8-21 15:31
+
+ds的灰测一定要是标准模式才有吗？
+
+*****
+
+####  lly778  
+##### 10335#       发表于 2026-8-21 15:31
+
+tibo已经说是sub2api的锅了，要死不认账了
+
+
+*****
+
+####  goranger  
+##### 10336#       发表于 2026-8-21 15:34
+
+<img src="https://img.stage1st.com/forum/202608/21/153417w69l7msb3hkrb1oh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (104.26 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 15:34 上传
+
+*****
+
+####  xiaohanne  
+##### 10337#       发表于 2026-8-21 15:36
+
+<blockquote>半江瑟瑟半江红 发表于 2026-8-21 15:14
+Gpt plus
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0</blockquote>
+
+gpt不要急着开，观望一周再说。
+
+目前tibo否认额度有问题，但实打实额度减少了，山姆奥特曼随时可能从奥圣变奥畜
+
