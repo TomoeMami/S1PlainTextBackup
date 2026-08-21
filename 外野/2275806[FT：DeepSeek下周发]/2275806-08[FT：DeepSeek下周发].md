@@ -2537,3 +2537,11 @@ ox alpha用下来真还行吧，当然还是得看价格
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这鱼不瞎了 比LUNA和哈基米都强啊   狂蹬
 
+
+*****
+
+####  startraveller  
+##### 10606#       发表于 2026-8-22 02:48
+
+代号Korrine 的疑似 Kimi 3.1也上 Code Arena 灰测了
+
