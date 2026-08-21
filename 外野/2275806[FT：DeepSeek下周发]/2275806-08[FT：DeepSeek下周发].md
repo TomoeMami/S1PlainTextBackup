@@ -510,3 +510,113 @@ ZeroBench (Pass@5): 35.0
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">别又是极简模式下和flash持平吧
 
+
+*****
+
+####  舞以  
+##### 10412#       发表于 2026-8-21 17:18
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">等梁文谷测一下
+
+*****
+
+####  王兰花秀丽  
+##### 10413#       发表于 2026-8-21 17:19
+
+文字方面明明是全面提升，竟然叫持平吗...    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  overflowal  
+##### 10414#       发表于 2026-8-21 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120805&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-21 17:19</a>
+
+文字方面明明是全面提升，竟然叫持平吗...    Re:Source</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">对他们来说这是标准差范围吧
+
+*****
+
+####  phorcys02  
+##### 10415#       发表于 2026-8-21 17:22
+
+不是持平flash,是 超过了flash  比pro都只差一点了...
+
+
+*****
+
+####  nxmonitor  
+##### 10416#       发表于 2026-8-21 17:24
+
+不是，这个分数全都比Flash高啊，这还持平？
+
+*****
+
+####  LeoDT  
+##### 10417#       发表于 2026-8-21 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120770&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-21 17:16</a>
+
+别又是极简模式下和flash持平吧</blockquote>
+说实话极简模式挺好的，写代码本来就只要bash就能写了，应该再激进一点什么tool什么mcp的全都弄成bash命令，全写bash，Code Mode这不就有了么。
+
+*****
+
+####  ycjiang1337  
+##### 10418#       发表于 2026-8-21 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120476&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-21 16:37</a>
+光靠这个打不死，opus5能做类似的
+
+https://deepdemos.top/demo/claude-opus-5-9d3ec162
+
+目前支持路由的基 ...</blockquote>
+你这完全不是一个东西啊，而且opus5什么臭鱼烂虾
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  舞以  
+##### 10419#       发表于 2026-8-21 17:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会真的涨价腾空算力，一切都会好起来吧
+
+梁子真这么实诚么？
+
+*****
+
+####  goranger  
+##### 10420#       发表于 2026-8-21 17:25
+
+这两天各种灰度的都以为是pro，结果是多模态吗
+
+*****
+
+####  neptunehs  
+##### 10421#       发表于 2026-8-21 17:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120841&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-21 17:25</a>
+不会真的涨价腾空算力，一切都会好起来吧
+
+梁子真这么实诚么？</blockquote>
+主要是也就腾了一周的算力吧 又是多模态又是灰测？
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  小野賢章  
+##### 10422#       发表于 2026-8-21 17:27
+
+我准备我我这几天写的html玩具全都用flash-vision重新跑一下，看看是pro厉害，还是带视觉厉害<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 10423#       发表于 2026-8-21 17:28
+
+<blockquote>goranger 发表于 2026-8-21 17:25
+这两天各种灰度的都以为是pro，结果是多模态吗</blockquote>
+是另一个基模，多模态可能有训练，但是没有识图接口
+
