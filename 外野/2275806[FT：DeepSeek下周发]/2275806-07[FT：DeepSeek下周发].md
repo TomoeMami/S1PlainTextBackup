@@ -14586,3 +14586,18 @@ K3这个参数量要2000W以上才能部署一个基本实例，最大号的个�
 论坛助手,iPhone</blockquote>
 问了一下Ｄ指导，它说第二个真正危险的问题那个DeepSeek只讲原则，不碰实操，也就是说它心里其实很有数
 
+
+*****
+
+####  neptunehs  
+##### 10238#       发表于 2026-8-21 09:30
+
+ 本帖最后由 neptunehs 于 2026-8-21 09:31 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117336&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-8-21 09:11</a>
+瓶颈根本就不在gpu上啊，在存储上。
+归根结底是逻辑电路一直微缩，但是存储电路的缩小很早之前就大幅度减 ...</blockquote>
+瓶颈是计算卡生产力 目前可见的未来都不会匀给消费级
+ai泡沫破裂那是米国的事情 最近ds这一系列的事情来看 我国接手后只会更缺卡 当然有一定可能nvidia因为计算卡卖不过来被迫回到消费级 几率很低就是了
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

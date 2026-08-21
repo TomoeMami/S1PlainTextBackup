@@ -1513,3 +1513,27 @@ ok,那感觉40帧流畅度可以接受
 
 黄昏如果玩法没问题下一个担心的应该是平衡性问题，FS的平衡也做的不咋地，在PVP里平衡性问题的表现会更大
 
+
+*****
+
+####  ParukiaMKII  
+##### 236#       发表于 2026-8-21 09:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117140&amp;ptid=2250995" target="_blank">dydqydz 发表于 2026-8-21 08:34</a>
+
+我觉得说前期不鼓励杀人指的是不鼓励为了纯杀人而杀人，我看有些拿分场景必然会发生玩家间冲突，这种情况肯 ...</blockquote>
+参考黑环，为了一点分浪费大量时间不如直接跑路去下个得分点
+
+*****
+
+####  ParadiseMartyr  
+##### 237#       发表于 2026-8-21 09:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117383&amp;ptid=2250995" target="_blank">Eutopia 发表于 2026-8-21 09:19</a>
+黑环更新的问题主要还是素材都是现成的，不做新东西就慢慢加点老东西丰富内容随机性大家都能开心了，找个mo ...</blockquote>
+数值都是可以通过美德等其他方式增幅的。
+自机操作性能应该都大差不差，还是靠美德数值碾压比较靠谱吧
+你PVE特化机没收割够美德，最后和PvP数值不相上下，那自然是被PvP机体血入啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
