@@ -1794,3 +1794,109 @@ ds识图比想象中强，我发了张金将军年轻瑞士留学照，ds一下�
 ds识图比想象中强，我发了张金将军年轻瑞士留学照，ds一下就认出来了，并对梗做了准确解读，发给gemini他和 ...</blockquote>
 api可以破
 
+
+*****
+
+####  tonyunreal  
+##### 10539#       发表于 2026-8-21 23:05
+
+三轮bug改完
+决定以后游戏bug都用v模型改了，流程快好多
+虽然有点傻傻的
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  半江瑟瑟半江红  
+##### 10540#       发表于 2026-8-21 23:05
+
+哈人卧槽，现在AI居然真的可以对游戏拆包？前面楼友的话提醒了我，我让D指导给我把凉宫春日的追忆里所有文本提取出来，D指导居然还能破解剧本加密
+
+*****
+
+####  →熙←  
+##### 10541#       发表于 2026-8-21 23:07
+
+v模型是又后训练了一波吧, 思维链各种I'm I need, 价格一样, 0731确实可以丢了啊
+
+*****
+
+####  MeursaulT  
+##### 10542#       发表于 2026-8-21 23:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70119836&amp;ptid=2275806" target="_blank">试制甲炮 发表于 2026-8-21 15:07</a>
+所以自从梁子上调价格之后，有什么性价比比较高的API方案？我平时主要是一些文字工作。摸鱼的时候写点小说 ...</blockquote>
+GPT 最便宜，但是它的语言水平也最差。我最近从闲鱼上买了一个 Kimi 号，买 199 套餐，每天玩酒馆写文章感觉是够的。你也可以考虑薅一点 Gemini。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  王兰花秀丽  
+##### 10543#       发表于 2026-8-21 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123130&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-21 23:05</a>
+哈人卧槽，现在AI居然真的可以对游戏拆包？前面楼友的话提醒了我，我让D指导给我把凉宫春日的追忆里所有文 ...</blockquote>
+AI搞网安都炒作多久了，拆个包洒洒水啦<img src="https://static.stage1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
+让视觉模型看色图有什么很好的应用场景吗，缺乏想象力了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  自由之紫roy  
+##### 10544#       发表于 2026-8-21 23:09
+
+<img src="https://img.stage1st.com/forum/202608/21/230822milqhoqfh0jqyhd0.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260821230417_368_557.png</strong> (105.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 23:08 上传
+
+因为觉得48G 4090要么是涡轮起飞，要么水冷也觉得不台保险。后来就配了这个配置，预留了一个插槽，准备之后再装一块5090 32G
+
+pcie 8x双卡，不知道社区未来的本地模型是否能适配的好一些。可能是我目前能够的着的最好的配置了。其他的gpu已经望尘莫及了。
+
+
+*****
+
+####  →熙←  
+##### 10545#       发表于 2026-8-21 23:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123147&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-21 23:08</a>
+
+AI搞网安都炒作多久了，拆个包洒洒水啦
+
+让视觉模型看色图有什么很好的应用场景吗，缺乏想象力了    Re:S ...</blockquote>
+解锁衣服和玩法的详细说明, 让文章更细节<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hugosol  
+##### 10546#       发表于 2026-8-21 23:11
+
+主要是pro真的太贵了，没法像以前那样随便造了
+
+flash-vision-exp这性价比确实无敌了
+
+*****
+
+####  半江瑟瑟半江红  
+##### 10547#       发表于 2026-8-21 23:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123147&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-21 23:08</a>
+
+AI搞网安都炒作多久了，拆个包洒洒水啦
+
+让视觉模型看色图有什么很好的应用场景吗，缺乏想象力了    Re:S ...</blockquote>
+一开始D指导还有版权甲，被我求了几轮就给镜像下载下来开始解包了
+
+*****
+
+####  tonyunreal  
+##### 10548#       发表于 2026-8-21 23:13
+
+dsh 0.1.1 rc2推送到npm主分支了
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
