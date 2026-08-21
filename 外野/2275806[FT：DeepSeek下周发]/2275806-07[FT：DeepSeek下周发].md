@@ -15869,3 +15869,34 @@ dsh这个更新连changelog都不写了吗    Re:Source</blockquote>
 草 codex是VIBE出来的吗？我说一个桌面端不能归档会话的bug拖了两天才修好</blockquote>
 现在有什么软件不是vibe出来的吗<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王兰花秀丽  
+##### 10354#       发表于 2026-8-21 16:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120222&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-21 16:01</a>
+翻了下,纯版本号更新</blockquote>
+不是吧，更新挺多的， v4f-vision可选了，虽然还不能调用    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  友誼的綠葉  
+##### 10355#       发表于 2026-8-21 16:12
+
+ 本帖最后由 友誼的綠葉 于 2026-8-21 16:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120167&amp;ptid=2275806" target="_blank">serj005 发表于 2026-8-21 15:56</a>
+
+好像就一直没写过，内容要在commit日志里自己找</blockquote>
+回错了，sorry
+
+*****
+
+####  友誼的綠葉  
+##### 10356#       发表于 2026-8-21 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120173&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-21 15:56</a>
+
+3.7flash凑合能用，最重要的是10块钱18个月要什么自行车</blockquote>
+能否私信推荐下地址，谢谢
+
