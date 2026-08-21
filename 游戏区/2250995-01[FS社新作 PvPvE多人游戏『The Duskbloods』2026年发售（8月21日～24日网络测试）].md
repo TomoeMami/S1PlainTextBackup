@@ -1770,3 +1770,34 @@ The Duskbloods features expansive maps and graphical fidelity that's comparable 
 The Duskbloods features expansive maps and graphical fidelity that's comparable to FromSoftware's re ...</blockquote>
 这么来看帧数不太用担心了
 
+
+*****
+
+####  JOJO42  
+##### 261#       发表于 2026-8-21 12:09
+
+玩家角色没黑环潮，眷属的设计还是挺亮眼的
+
+<img src="https://img.stage1st.com/forum/202608/21/120931hjeifgeglig7h3j7.jpg" referrerpolicy="no-referrer">
+
+<strong>HQLB3mNWQAAHJow.jpg</strong> (364.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 12:09 上传
+
+<img src="https://img.stage1st.com/forum/202608/21/120931bozazurcfg1kg8f1.jpg" referrerpolicy="no-referrer">
+
+<strong>HQLB3mQWAAARn32.jpg</strong> (340.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 12:09 上传
+
+*****
+
+####  zakki  
+##### 262#       发表于 2026-8-21 12:10
+
+有个评测说地图复杂度很高，相当于法环2到3个大箱庭<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
