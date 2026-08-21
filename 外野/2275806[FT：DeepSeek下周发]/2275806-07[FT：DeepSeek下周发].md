@@ -14398,3 +14398,20 @@ opencode free的v4f似乎没了 最后的救命稻草也没了 哎
 
 用不到等于没有，等哪天算力够了再说吧，现在只能抽奖尝尝鲜
 
+
+*****
+
+####  tonberry  
+##### 10219#       发表于 2026-8-21 08:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116329&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-8-20 23:22</a>
+姑且一听</blockquote>
+那按梁历就是8.31再加半个月
+
+*****
+
+####  自由之紫roy  
+##### 10220#       发表于 2026-8-21 08:29
+
+这个灰测的v4pro会开源吗？突然不想买设备了，等下一代的gpu
+
