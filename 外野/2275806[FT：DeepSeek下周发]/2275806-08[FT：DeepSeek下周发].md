@@ -1477,3 +1477,68 @@ https://agentrouter.org/register?aff=pBR0
 感谢分享，顺带问问这个API我是应该放在opencode那个客户端上跑，还是换个更好用的客户端？ ...</blockquote>
 我之前用他官方推荐之外的客户端，跑不了，你试试文档里面推荐的那几个客户端试试
 
+
+*****
+
+####  冤枉呐  
+##### 10509#       发表于 2026-8-21 20:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121777&amp;ptid=2275806" target="_blank">秋水锦瑟 发表于 2026-8-21 20:00</a>
+https://agentrouter.org/register?aff=pBR0
+
+公益站白嫖175额度，走我链接175额度，不走我链接只有100额度 ...</blockquote>
+any大善人的新一代？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  刘不害  
+##### 10510#       发表于 2026-8-21 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70122269&amp;ptid=2275806" target="_blank">秋水锦瑟 发表于 2026-8-21 20:53</a>
+
+我之前用他官方推荐之外的客户端，跑不了，你试试文档里面推荐的那几个客户端试试 ...</blockquote>
+好的，再问一下这个东西对梯子质量有要求吗，麻瓜如我还没用过外国模型，会不会用得不注意给我号封了
+
+*****
+
+####  kylezy123  
+##### 10511#       发表于 2026-8-21 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70122223&amp;ptid=2275806" target="_blank">秋水锦瑟 发表于 2026-8-21 20:48</a>
+
+有的 我签过  你看看是不是数据看板-常见问答 签到领额度</blockquote>
+看到了  但是连不上去 难道要开全局代理吗
+
+*****
+
+####  流浪的翅膀  
+##### 10512#       发表于 2026-8-21 21:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121724&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-21 19:52</a>
+
+怀疑deepseek拿我的对话记录去训练模型了。最近新开的对话总能精准命中xp，都不用教了 ...</blockquote>
+求破甲方法
+
+*****
+
+####  秋水锦瑟  
+##### 10513#       发表于 2026-8-21 21:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70122339&amp;ptid=2275806" target="_blank">kylezy123 发表于 2026-8-21 21:03</a>
+
+看到了  但是连不上去 难道要开全局代理吗</blockquote>
+不用吧，我就用的规则……换个节点？？
+
+*****
+
+####  秋水锦瑟  
+##### 10514#       发表于 2026-8-21 21:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70122338&amp;ptid=2275806" target="_blank">刘不害 发表于 2026-8-21 21:03</a>
+
+好的，再问一下这个东西对梯子质量有要求吗，麻瓜如我还没用过外国模型，会不会用得不注意给我号封了 ...</blockquote>
+应该……不会吧，你用的是token
+
