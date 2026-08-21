@@ -374,3 +374,139 @@ pi 在 ~/.pi/agent/models.json 里面添加 {   "providers": {     "deepseek
 
 确实感受到最近V4P的雷霆大思考系列了。网页端一个小问题也能思考一大长串，很有意思。
 
+
+*****
+
+####  zack1999  
+##### 10398#       发表于 2026-8-21 17:04
+
+可以用npm install -g @deepseek-ai/dsh@0.1.1-rc.1 --force 指令进行升级，我这边已经升级完毕了，官方连个升级指令也不给，全靠自己搓
+
+*****
+
+####  舞以  
+##### 10399#       发表于 2026-8-21 17:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等npm更新了
+
+*****
+
+####  muermaru  
+##### 10400#       发表于 2026-8-21 17:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">等个结论，要是无甲并且能力和现在的v4f一样就好了
+
+
+*****
+
+####  →熙←  
+##### 10401#       发表于 2026-8-21 17:08
+
+确实实装了
+
+*****
+
+####  inpachi  
+##### 10402#       发表于 2026-8-21 17:09
+
+相关文档也更新了
+
+
+*****
+
+####  hugosol  
+##### 10403#       发表于 2026-8-21 17:11
+
+看到了，和flash价格一样
+
+*****
+
+####  cscbzcbz  
+##### 10404#       发表于 2026-8-21 17:12
+
+如果不如现在的v4flash，可以作为子代理仅识图吗？或者mcp接过去？
+
+*****
+
+####  misuzu0723  
+##### 10405#       发表于 2026-8-21 17:12
+
+时间: 2026-08-21
+
+DeepSeek-V4-Flash-Vision-Exp 发布
+
+今天，全新的多模态视觉理解模型 DeepSeek-V4-Flash-Vision-Exp 上线 DeepSeek API 平台，这是一个实验性质的模型，用户可以通过设置 model='deepseek-v4-flash-vision-exp' 访问该模型。
+
+Terminal Bench 2.1: 83.9
+
+NL2Repo: 57.7
+
+DeepSWE: 59.3
+
+DSBench-Hard: 63.6
+
+AutomationBench (Public): 25.7
+
+ApexBench (Pass@1): 36.5
+
+Agents' Last Exam: 27.3
+
+Chartography: 64.3 (p0.95); 63.3 (p1.0)
+
+ZeroBench (Pass@5): 35.0
+
+* 对于公开基准测试集中的 Code Agent 文本任务，DeepSeek 系列模型使用 DeepSeek Harness 极简模式作为框架进行测试，并使用 max 档位，topp=0.95，temperature=1.0；在 ApexBench 与 Agents' Last Exam 测评中，文本模型 DeepSeek-V4-Flash 会忽略其中的多模态元素
+
+在纯文本能力（Agent、推理、世界知识等）方面，DeepSeek-V4-Flash-Vision-Exp 与 DeepSeek-V4-Flash 正式版持平。
+
+看起来性能和4F齐平，那可以直接拿来替换4F了
+
+*****
+
+####  cscbzcbz  
+##### 10406#       发表于 2026-8-21 17:13
+
+分比flash还高，我错了
+
+
+*****
+
+####  绝地潜兵  
+##### 10407#       发表于 2026-8-21 17:14
+
+这下真的耽误AGI训练了
+
+*****
+
+####  jinuzuktII  
+##### 10408#       发表于 2026-8-21 17:15
+
+只有官方api有吗，opc呢
+
+*****
+
+####  neptunehs  
+##### 10409#       发表于 2026-8-21 17:16
+
+期待opencode下了free的flash是为了换这个
+但愿
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  ivly  
+##### 10410#       发表于 2026-8-21 17:16
+
+上线了，你们不试试app或者网页吗。
+我直接更新app之后，快速模式直接上传图片就识图了。
+
+—— 来自 OnePlus PKX110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  hugosol  
+##### 10411#       发表于 2026-8-21 17:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">别又是极简模式下和flash持平吧
+

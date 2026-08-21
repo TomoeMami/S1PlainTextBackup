@@ -2012,3 +2012,20 @@ IMG_8930.jpeg
 
 <img src="https://img.stage1st.com/forum/202608/21/165848cf5u2lkg35pkquvk.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  巴尔干炮  
+##### 283#       发表于 2026-8-21 17:04
+
+好奇老任在这作到底出了多少力？从老贼的话看不只是投资，似乎还出人做指导。
+
+*****
+
+####  Adyeshach  
+##### 284#       发表于 2026-8-21 17:09
+
+<blockquote>ylssb10438 发表于 2026-8-21 16:55
+法环试玩我记得有位著名菜鸡大UP破防了</blockquote>
+不是菜鸡，是羽毛，他自己说当时试玩动作不但有延迟而且箱庭就给了一小块，怀疑整个法环世界都是这样的，觉得fs真完蛋了。
+
