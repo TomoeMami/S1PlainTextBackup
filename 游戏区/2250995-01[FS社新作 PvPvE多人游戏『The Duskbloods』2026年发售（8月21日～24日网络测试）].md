@@ -1874,3 +1874,19 @@ https://campaign.theduskbloods.jp/manual/zh/start.html
 巴哈姆特电玩疯】在FS社玩了《黄昏血族》结果是黑暗版马力欧赛车
 [https://www.bilibili.com/video/BV18k8A6KENN](https://www.bilibili.com/video/BV18k8A6KENN)
 
+
+*****
+
+####  巴尔干炮  
+##### 271#       发表于 2026-8-21 15:02
+
+<img src="https://img.stage1st.com/forum/202608/21/150114p6x0qf7qdzf6gqgm.png" referrerpolicy="no-referrer">
+
+<strong>rb51kklurnkh1.png</strong> (1.79 MB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 15:01 上传
+
+UI界面，看上去确实挺复杂的。
+

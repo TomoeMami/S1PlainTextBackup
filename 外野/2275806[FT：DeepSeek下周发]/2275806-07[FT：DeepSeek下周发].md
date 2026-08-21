@@ -15564,3 +15564,11 @@ ox alpha蛮好用，多模态真的很方便呀    [Re:Source](https://stage1s
 
 我寻思着api贵,那么在官网设计几张SFW的卡,结果一直繁忙.为什么这个时候官网专家模式会被蹬爆啊<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刘不害  
+##### 10327#       发表于 2026-8-21 15:00
+
+opencode是不是又被蹬坏了，我今天经常出现要求发出去几分钟没动最后砰一下跳个完成音的情况
+
