@@ -15349,3 +15349,26 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 火纹甚至大部分战棋游戏的多路线重复度在机战面前算什么，就一直没看有多少抱怨机战那更离谱无聊的重复度的 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">winky时代时代的机战压根没有重复性可言 有了多周目继承后还是主要在隐藏要素 分支路线上做文章
 
+
+*****
+
+####  1wq1  
+##### 2937#       发表于 2026-8-21 21:13
+
+塔里姆也是圣焰技的条，那漫画封面的9个估计全都能用圣焰技，恐怖如斯
+
+*****
+
+####  kingdommok  
+##### 2938#       发表于 2026-8-21 21:13
+
+商人这角色也有圣焰战技，超级重要角色预定，搞不好和四级长一起上漫画封面的四个都是有圣焰战技的路线核心角色<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/21/211337qqr3d6r222ww3brc.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20260821_211253.jpg</strong> (429.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 21:13 上传
+

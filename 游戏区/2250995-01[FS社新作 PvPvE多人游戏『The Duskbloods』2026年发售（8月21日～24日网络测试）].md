@@ -2609,3 +2609,13 @@ fs以后的作品都是自己发行了，跟万代没关系了</blockquote>
 
 还有游戏模式也太催命+嗜血了，黑夜君临就不太适合我，pvp更是算了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 战斗爽超级加倍
 
+
+*****
+
+####  zakki  
+##### 351#       发表于 2026-8-21 21:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70122334&amp;ptid=2250995" target="_blank">zzf111 发表于 2026-8-21 21:03</a>
+看V大新视频 白发哥，铁人，环刃斗笠女都有啃脖子的吸血鬼技能，lore上讲其实所有角色都是血族吧，好奇lore ...</blockquote>
+吸血是所有角色处决动作，类似于只狼的处决，啃一口基本就是必死<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
