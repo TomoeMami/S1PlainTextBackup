@@ -1162,3 +1162,25 @@ vision 在推理的过程中会忘记自己会看图，还是想转换成ascii�
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Luminous脑壳痛  
+##### 10481#       发表于 2026-8-21 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121509&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-21 19:12</a>
+
+得看你做啥样mod
+
+不过反编译是没任何问题的，它甚至可以把相关环境自己准备好</blockquote>
+比如格斗游戏(最终幻想纷争)加个新角色这种
+
+
+*****
+
+####  ternayark  
+##### 10482#       发表于 2026-8-21 19:27
+
+<img src="https://p.sda1.dev/34/4ba832154fc22ee40bbe3e5fa244837a/image.jpg" referrerpolicy="no-referrer">
+BGM起<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

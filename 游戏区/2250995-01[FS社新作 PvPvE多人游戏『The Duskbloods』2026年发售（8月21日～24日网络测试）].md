@@ -2190,3 +2190,28 @@ Fromsoft: 現在、『The Duskbloods』ネットワークテスト版におい�
 
 1个小时了，小高不行啊
 
+
+*****
+
+####  沧兰殇  
+##### 304#       发表于 2026-8-21 19:13
+
+黑环是fs的服务器还是万代的服务器？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  椎名mahuyo  
+##### 305#       发表于 2026-8-21 19:14
+
+不可能是万代的，
+
+
+*****
+
+####  66367749  
+##### 306#       发表于 2026-8-21 19:21
+
+服务器负荷不行啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
