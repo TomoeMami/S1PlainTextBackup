@@ -1621,3 +1621,12 @@ ox alpha有啥评测吗，怎么样？</blockquote>
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  cscbzcbz  
+##### 10520#       发表于 2026-8-21 21:51
+
+用v4fv给DSH写了个屏幕截图的插件，还不错<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+有识图功能方便好多
+

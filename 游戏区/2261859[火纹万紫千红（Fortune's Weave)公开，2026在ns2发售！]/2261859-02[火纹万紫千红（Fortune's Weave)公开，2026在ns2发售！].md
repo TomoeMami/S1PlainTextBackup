@@ -15388,3 +15388,11 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 
 剩下4人的路线可以当dlc卖，凑齐八方火纹<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  thecatnie  
+##### 2941#       发表于 2026-8-21 21:47
+
+他的圣焰环和四个主角一样都是整个圆，普通角色好像都是半个圆
+
