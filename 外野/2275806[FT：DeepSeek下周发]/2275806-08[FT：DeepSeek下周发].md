@@ -620,3 +620,188 @@ https://deepdemos.top/demo/claude-opus-5-9d3ec162
 这两天各种灰度的都以为是pro，结果是多模态吗</blockquote>
 是另一个基模，多模态可能有训练，但是没有识图接口
 
+
+*****
+
+####  wesdrtfg  
+##### 10424#       发表于 2026-8-21 17:29
+
+感觉开放之后，梁子打开后台一看，不会收集了一堆涩图的对话数据吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  goranger  
+##### 10425#       发表于 2026-8-21 17:29
+
+<img src="https://img.stage1st.com/forum/202608/21/172936kgl3hs8moa194a3x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (83.38 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 17:29 上传
+
+分数
+
+*****
+
+####  王兰花秀丽  
+##### 10426#       发表于 2026-8-21 17:29
+
+这个Chartography是什么榜单 这是唯一一个多模态相关的测试集 但是没找到具体是哪个测试集    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  Milarvoz  
+##### 10427#       发表于 2026-8-21 17:30
+
+https://mp.weixin.qq.com/s/UGMfvPMwBIB4oFYZZejekA
+
+files api也上线了
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  tk553521  
+##### 10428#       发表于 2026-8-21 17:30
+
+真耽误了AGI了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  80后卢瑟  
+##### 10429#       发表于 2026-8-21 17:30
+
+ 本帖最后由 80后卢瑟 于 2026-8-21 17:31 编辑 
+
+[https://api-docs.deepseek.com/zh-cn/guides/vision](https://api-docs.deepseek.com/zh-cn/guides/vision)
+
+图片会根据其尺寸换算成 token，并与文本 token 一起计费。在进入模型前，每张图片都会被自动缩放：总像素小于约 384×384 的图片会被保持长宽比放大；更大的图片会被保持长宽比缩小，缩小后的总像素约相当于 800×800 的图片。
+因此，每张图片消耗的 token 数存在上限（384 个）：例如 2000×2000 和 5000×5000 的图片，经缩放后消耗的 token 数是相同的。单个请求包含多张图片时，每张图片独立按同一规则计算，不存在额外的计算方式。
+
+*****
+
+####  木水风铃  
+##### 10430#       发表于 2026-8-21 17:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">啊这，多模态那可以瑟瑟吗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  小野賢章  
+##### 10431#       发表于 2026-8-21 17:30
+
+deepswe能上涨5分，说明多模态解决实际问题确实有帮助呀
+
+*****
+
+####  squallx  
+##### 10432#       发表于 2026-8-21 17:32
+
+🤔这么看来灰测🐟是装瞎的 这V4FV搞不好奇偶是灰测模型蒸出来的
+
+*****
+
+####  cscbzcbz  
+##### 10433#       发表于 2026-8-21 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120879&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-21 17:29</a>
+分数</blockquote>
+只有Cybergym低了一分，价格还不变，这不会又吧服务器占满<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  80后卢瑟  
+##### 10434#       发表于 2026-8-21 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120881&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-21 17:29</a>
+
+这个Chartography是什么榜单 这是唯一一个多模态相关的测试集 但是没找到具体是哪个测试集    Re:Source ...</blockquote>
+[https://surgehq.ai/benchmarks/chartography](https://surgehq.ai/benchmarks/chartography)
+
+*****
+
+####  zy450  
+##### 10435#       发表于 2026-8-21 17:33
+
+在 API 服务中，图片会转换成 token 后按 token 计费，一张图片最多占 384 tokens，计费价格与 V4-Flash 模型一致
+
+*****
+
+####  lactone  
+##### 10436#       发表于 2026-8-21 17:33
+
+这个vision开源吗？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  王兰花秀丽  
+##### 10437#       发表于 2026-8-21 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120912&amp;ptid=2275806" target="_blank">80后卢瑟 发表于 2026-8-21 17:32</a>
+https://surgehq.ai/benchmarks/chartography</blockquote>
+我找到这个了，问题是这个最高只有45%，计算方式不一样吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  cscbzcbz  
+##### 10438#       发表于 2026-8-21 17:33
+
+梁叔叔评价可以提一级了嘛<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tonyunreal  
+##### 10439#       发表于 2026-8-21 17:34
+
+v模型极简模式和anchored-standard都能触发we思维链，和flash 0731一样
+
+*****
+
+####  phorcys02  
+##### 10440#       发表于 2026-8-21 17:34
+
+这下看起来 8.13 的 v4pro,不是变成 纯小丑🤡 了嘛....
+
+哈基梁最好早点把新pro端出来，不然这个价格配合这个性能， v4pro 就要当好几个月小丑王了
+
+
+*****
+
+####  hugosol  
+##### 10441#       发表于 2026-8-21 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120838&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-21 17:24</a>
+
+说实话极简模式挺好的，写代码本来就只要bash就能写了，应该再激进一点什么tool什么mcp的全都弄成bash命 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">不能，我代码库索引MCP要注册tools
+
+等晚上看看大伙测试结果怎样
+
+*****
+
+####  squallx  
+##### 10442#       发表于 2026-8-21 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120925&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-8-21 17:34</a>
+
+这下看起来 8.13 的 v4pro,不是变成 纯小丑🤡 了嘛....
+
+哈基梁最好早点把新pro端出来，不然这个价格配合这 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">PRO的API现在不就是个抽卡游戏 愿赌服输啊
+
+*****
+
+####  lactone  
+##### 10443#       发表于 2026-8-21 17:36
+
+这个vision到时候aa测试怕不是真的要打赢pro了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
