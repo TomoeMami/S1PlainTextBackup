@@ -452,3 +452,30 @@ Ave Mujica - SUMMER SONIC 2026</blockquote>
 #BanGDream# #交织的乐章# #八幡海铃#</blockquote>
        [https://www.bilibili.com/video/BV1oa8j6nE1H](https://www.bilibili.com/video/BV1oa8j6nE1H)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42003#       发表于 2026-8-21 20:00
+
+       <strong>《BanG Dream! Our Notes》角色介绍PV: 祐天寺若麦</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/21/200039hkd4k6kb959r7ir9.jpg" referrerpolicy="no-referrer">
+
+<strong>0837ae3b0facc8dc660ab5eb6bfeb1948dc3eaf3.jpg</strong> (88.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 20:00 上传
+
+由 BanG Dream! 企划带来的全新音游《BanG Dream! Our Notes》角色介绍PV：祐天寺若麦 正式公开！
+
+欢迎来到Ave Mujica的假面舞会。
+
+《BanG Dream! Our Notes》国际服预约火热进行中！
+
+┈┈┈┈┈┈┈┈┈⿻*.·
+
+#BanGDream# #交织的乐章# #祐天寺若麦#</blockquote>
+       [https://www.bilibili.com/video/BV1MY8M6mEvY](https://www.bilibili.com/video/BV1MY8M6mEvY)
+

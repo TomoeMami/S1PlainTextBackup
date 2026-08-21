@@ -2320,3 +2320,88 @@ fs以后的作品都是自己发行了，跟万代没关系了</blockquote>
 
 先保证能发售以后一周别炸服再说。
 
+
+*****
+
+####  pzk  
+##### 319#       发表于 2026-8-21 19:54
+
+太变态了，之前黑夜君临测试印象里也出现过现在的情况，这都不吸取教训吗
+
+*****
+
+####  天堂大法  
+##### 320#       发表于 2026-8-21 19:57
+
+对于因游戏服务器问题而等待《The Duskbloods》首次网络测试的各位玩家，我们对由此造成的不便深表歉意。
+
+很遗憾地通知大家，今天的测试场次现已结束。
+
+我们将继续努力改善服务器状况，并会在日后另行公布今后的测试安排。
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绷不住了
+
+
+*****
+
+####  Ai_shuang  
+##### 321#       发表于 2026-8-21 20:00
+
+<img src="https://img.stage1st.com/forum/202608/21/200033ojukyogtoy949y27.png" referrerpolicy="no-referrer">
+
+<strong>SPU7)ORN555KG%[NJAYPK0V.png</strong> (117.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 20:00 上传
+
+好像不仅仅是今天的结束了，直接整个测试关了欸
+
+*****
+
+####  HATENA  
+##### 322#       发表于 2026-8-21 20:00
+
+<blockquote>ShiKi847 发表于 2026-8-21 19:30
+fs以后的作品都是自己发行了，跟万代没关系了</blockquote>
+谁跟你说的，你想搞ac还指望踢开万代，想多了吧
+
+*****
+
+####  ShiKi847  
+##### 323#       发表于 2026-8-21 20:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121783&amp;ptid=2250995" target="_blank">HATENA 发表于 2026-8-21 20:00</a>
+
+谁跟你说的，你想搞ac还指望踢开万代，想多了吧</blockquote>
+索尼和腾讯注资建了发行部门
+
+*****
+
+####  huoguoshan23  
+##### 324#       发表于 2026-8-21 20:02
+
+你就说测没测到服务器吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+圆满结束！
+
+*****
+
+####  HATENA  
+##### 325#       发表于 2026-8-21 20:03
+
+<blockquote>shyso 发表于 2026-8-21 19:52
+这个说法是哪里来的？
+
+有说具体原因吗？
+</blockquote>
+估计就是之前角川财报跟某个股东那边提到的要赚多一点，然而你角川那个抠门样还想踢开代哥做梦吧，黄昏血都是你任掏的钱
+
+*****
+
+####  HATENA  
+##### 326#       发表于 2026-8-21 20:03
+
+<blockquote>ShiKi847 发表于 2026-8-21 20:02
+索尼和腾讯注资建了发行部门</blockquote>
+然后呢，这跟你角川跟fs有什么必然关系?
+
