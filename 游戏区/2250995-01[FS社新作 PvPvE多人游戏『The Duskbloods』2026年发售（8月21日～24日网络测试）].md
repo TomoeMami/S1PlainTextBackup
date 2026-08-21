@@ -2695,3 +2695,25 @@ fs服务器填的127.0.0.1忘改了，别慌
 
 <img src="https://p.sda1.dev/34/85910f5875de14f14c68b0afb74cf5c6/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  u2deack  
+##### 360#       发表于 2026-8-21 22:40
+
+《黄昏血族》紧急直播
+直播时间：8月22日19：00～19：45
+直播平台：Fami通YouTube播出
+出席人员：北尾泰大（From Software制作人）、西川くん（负责撰稿）、コンタカオ（周刊Fami通编辑部）
+
+
+*****
+
+####  zzf111  
+##### 361#       发表于 2026-8-21 22:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70122387&amp;ptid=2250995" target="_blank">zakki 发表于 2026-8-21 21:10</a>
+
+吸血是所有角色处决动作，类似于只狼的处决，啃一口基本就是必死</blockquote>
+看巴哈姆特写得更详细，说正式版可能还有更多种契约变化和终局模式是好事，还是再观望一下了
+
