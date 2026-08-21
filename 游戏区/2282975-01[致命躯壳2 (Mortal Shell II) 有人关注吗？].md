@@ -817,3 +817,16 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 —— 来自 Xiaomi 23049RAD8C, Andro ...</blockquote>
 自爆怪好像是红光，只能闪吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我就再氪一单  
+##### 85#       发表于 2026-8-21 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70119634&amp;ptid=2282975" target="_blank">红魔馆的糖 发表于 2026-8-21 14:32</a>
+自爆怪好像是红光，只能闪吧</blockquote>
+不行我跑酷拿斧头算了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+话说开头步行去传火祭祀场那条路还能回去吗，看视频发现漏了一个蛋600块钱，大漏勺了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

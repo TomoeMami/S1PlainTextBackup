@@ -1964,3 +1964,51 @@ UI界面，看上去确实挺复杂的。</blockquote>
 依然记得法环测试 口碑跌到低谷， 小高跌下神坛的故事。</blockquote>
 法环试玩评价当时都是很期待评价并不低，测试乃至发售初期差评如潮的是黑环（黑夜君临），然后口碑逆转爽卖500万份<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woaimiyabi  
+##### 280#       发表于 2026-8-21 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120564&amp;ptid=2250995" target="_blank">squarezty 发表于 2026-8-21 16:51</a>
+
+法环试玩评价当时都是很期待评价并不低，测试乃至发售初期差评如潮的是黑环（黑夜君临），然后口碑逆转爽 ...</blockquote>
+法环测试的动作延迟被喷爆了 都说要完蛋 怎么可能不低 可以去专楼看一看。
+
+
+*****
+
+####  ylssb10438  
+##### 281#       发表于 2026-8-21 16:55
+
+法环试玩我记得有位著名菜鸡大UP破防了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  5ew47  
+##### 282#       发表于 2026-8-21 17:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118194&amp;ptid=2250995" target="_blank">junqqq999 发表于 2026-8-21 11:10</a>
+
+你确定美术很好么？我的看法是不过不失，大量用以前风格的素材，保持了基本的水准，但是没新的触动了~~当 ...</blockquote>
+这个问题挺主观的，你要问我确不确定的话那我可以肯定，我确实挺喜欢的<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">。不过我也能理解其他楼友的观点，素材复用明显，是个场景都能找到其他FS社作品的影子，所以如果楼友觉得中规中矩甚至审美疲劳的话也没有任何问题。
+
+顺便贴一个我自己喜欢的镜头，塔楼之上的齐柏林飞艇进行高空轰炸
+
+<img src="https://img.stage1st.com/forum/202608/21/165926vl09zm1zg6gy8r5d.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8930.jpeg</strong> (333.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 16:59 上传
+
+IMG_8930.jpeg
+(333.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 16:58 上传
+
+<img src="https://img.stage1st.com/forum/202608/21/165848cf5u2lkg35pkquvk.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

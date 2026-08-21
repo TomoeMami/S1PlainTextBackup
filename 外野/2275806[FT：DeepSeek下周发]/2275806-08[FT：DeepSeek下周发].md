@@ -312,3 +312,65 @@ opus5可是在订阅里的，大家用不起fable不代表用不起opus啊，建
 有了已经，用极简模式测</blockquote>
 看起来是我的问题，顺手开了个cherrystudio调一直不认图，换别的调就认图了
 
+
+*****
+
+####  小野賢章  
+##### 10391#       发表于 2026-8-21 16:54
+
+pi 在 ~/.pi/agent/models.json 里面添加 {   "providers": {     "deepseek": {       "models": [         {           "id": "deepseek-v4-flash-vision-exp",           "name": "DeepSeek V4 Flash Vision (Exp)",           "reasoning": true,           "input": ["text", "image"],           "contextWindow": 1000000,           "maxTokens": 384000,           "cost": {             "input": 0.14,             "output": 0.28,             "cacheRead": 0.0028,             "cacheWrite": 0           },           "compat": {             "supportsStore": false,             "supportsDeveloperRole": false,             "maxTokensField": "max_tokens",             "requiresReasoningContentOnAssistantMessages": true,             "thinkingFormat": "deepseek"           },           "thinkingLevelMap": {             "minimal": null,             "low": "low",             "medium": null,             "high": "high",             "max": "max"           }         }       ]     }   } }复制代码
+
+<img src="https://img.stage1st.com/forum/202608/21/165336wctqcrkf7o2fc73r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (192.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 16:53 上传
+
+*****
+
+####  Sacross  
+##### 10392#       发表于 2026-8-21 16:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">他这v0.1.1怎么说明文档都没有写啊
+
+*****
+
+####  lactone  
+##### 10393#       发表于 2026-8-21 16:54
+
+这个多模态是个单独的视觉优化的模型还是可以当做一整个来用啊
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  小野賢章  
+##### 10394#       发表于 2026-8-21 16:55
+
+这个应该就是网页版识图模式的模型
+
+*****
+
+####  serj005  
+##### 10395#       发表于 2026-8-21 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120583&amp;ptid=2275806" target="_blank">Sacross 发表于 2026-8-21 16:54</a>
+他这v0.1.1怎么说明文档都没有写啊</blockquote>
+让dsh自己读commit massage总结吧<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">大体就是修bug加视觉模型调用功能
+
+*****
+
+####  来都来了  
+##### 10396#       发表于 2026-8-21 16:57
+
+通过API来调用多模态模型，它的其他能力，比如编程与写作，与V4F相当吗？另外还有个很重要的，这个能破甲吗？
+
+*****
+
+####  飛霞精灵  
+##### 10397#       发表于 2026-8-21 16:58
+
+确实感受到最近V4P的雷霆大思考系列了。网页端一个小问题也能思考一大长串，很有意思。
+
