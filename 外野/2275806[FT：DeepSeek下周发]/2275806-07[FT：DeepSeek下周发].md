@@ -15294,3 +15294,33 @@ Antigravity: 随便你用, 5小时上限, 分开第三方模型和Gemini模型�
 
 国算平台的flash部署，不429了，但是学会了给你便秘吐字
 
+
+*****
+
+####  cscbzcbz  
+##### 10300#       发表于 2026-8-21 11:54
+
+国算这个不429就算进步了，之前直接用不了
+
+
+*****
+
+####  R.I.P  
+##### 10301#       发表于 2026-8-21 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118358&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-21 11:29</a>
+因为没有雷霆大思考 如果是mimo 那价格翻个3倍我觉得都比flash好
+学ds翻十倍的话当我没说</blockquote>
+和glm5.2同一个预训练模型，发出来刷声望当然好啊，我们公司的本地部署还等着把5.2升到5.3呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  蜇灵  
+##### 10302#       发表于 2026-8-21 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118350&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-21 11:28</a>
+根据返回错误码有人推测是GLM</blockquote>
+终于换底模了吗
+

@@ -747,3 +747,23 @@ ctrl c Ctrl v的官方飞雷神ota了<img src="https://static.stage1st.com/image
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  蒋公卖萌  
+##### 79#       发表于 2026-8-21 11:54
+
+这游戏能抖刀吗？
+
+
+*****
+
+####  红魔馆的糖  
+##### 80#       发表于 2026-8-21 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118592&amp;ptid=2282975" target="_blank">蒋公卖萌 发表于 2026-8-21 11:54</a>
+这游戏能抖刀吗？</blockquote>
+不能，不过用变硬和抖刀的作用差不多，都是完美有收益不完美没惩罚，判定也很宽松。
+
+问题是这游戏有大量红光技能穿插在普攻里面，说实话弹反类技能不是很好用
+
