@@ -15436,3 +15436,23 @@ Good Old Days啊, 去年6月之前Copilot有无限的Claude 3.5/3.7模型可用,
 
 — from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  zhongjie  
+##### 10315#       发表于 2026-8-21 13:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70119142&amp;ptid=2275806" target="_blank">IIIIIlllllIIIII 发表于 2026-8-21 13:13</a>
+
+可是我还是怀念2.5pro的写作 再也没有那种感觉了 就像是赛博阳痿了一样
+
+— from motorola XT2603-1, And ...</blockquote>
+试试Gemini 3.7flash？我见过的写作老师是k3搭配gemini3.7
+
+*****
+
+####  Ardor  
+##### 10316#       发表于 2026-8-21 13:37
+
+灰测还能抽到吗，建了几十个对话一个首字时间长的都没有
+
