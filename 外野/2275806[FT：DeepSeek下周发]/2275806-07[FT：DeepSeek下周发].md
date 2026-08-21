@@ -14972,3 +14972,62 @@ https://xhslink.cn/o/8UmSf3QnxJN </blockquote>
 
 国算平台好蛆
 
+
+*****
+
+####  pf67  
+##### 10272#       发表于 2026-8-21 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117193&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-21 08:46</a>
+在线进化的那么快，个人玩家部署本地大模型意义不大了好像。qwen3.8 27B满血57G权重，要真正跑满上下文也要 ...</blockquote>
+你这逻辑完全是反的
+现在是消费级显卡就能跑出之前满血的在线模型的效果（哪怕是量化也很强），而不是在线进化快
+
+至于你说开发任务，大规模开发任务半天就上亿token出去了，不买最贵的codingplan根本撑不住，你还要在整点花活那最贵的套餐都不够你整
+
+企业用api那更是一个月千万token开销不是开玩笑
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  bartholo4  
+##### 10273#       发表于 2026-8-21 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118119&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-21 11:02</a>
+
+是删除 ~/.dsh/.anonymous-user-id 这个文件吗？</blockquote>
+还没去试呢 现在梁文锋时段 不想搞
+
+不过我昨天抽到两个灰测的窗口今天都还能用
+
+但因为上下文太多了 也是 动一下就看到钱花花的在扣
+
+*****
+
+####  蜇灵  
+##### 10274#       发表于 2026-8-21 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117374&amp;ptid=2275806" target="_blank">七氷 发表于 2026-8-21 09:18</a>
+
+不是个人pc寄了吗，又不止显卡涨价</blockquote>
+PC不就是个人电脑的缩写，前面不需要加个人这个限定词了
+
+
+*****
+
+####  小野賢章  
+##### 10275#       发表于 2026-8-21 11:13
+
+我之前的pi插件都移植到dsh上来了，很丝滑，基本所有功能都有对应的，有一些功能实现很优雅啊，后台任务的通知是注入上下文实现的
+
+*****
+
+####  matthewsteel  
+##### 10276#       发表于 2026-8-21 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117677&amp;ptid=2275806" target="_blank">奶香花卷 发表于 2026-8-21 10:04</a>
+
+应该是bug，这个量小的太离谱了。我已经降级模型和思考来用了。</blockquote>
+看到codex出了bug就在期待reset了.......
+

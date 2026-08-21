@@ -435,3 +435,26 @@ rtype九条翻新了，现在是棒球忍者。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这种究极冷饭希望能便宜一点
 
+
+*****
+
+####  starrynight  
+##### 45#       发表于 2026-8-21 11:06
+
+原作是最容易通关的街机游戏之一。好几个BOSS（包括最终BOSS）都可以用抓住-&gt;攻击*2-&gt;松开并前进-&gt;再次抓住...这样的循环屈死（除黄胖子，因为移动速度太慢，还没再次抓住敌人就跑了）
+
+两次1up的机会也比较宽松，我单手按每次完成还剩3秒左右
+
+
+*****
+
+####  junqqq999  
+##### 46#       发表于 2026-8-21 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118070&amp;ptid=2288065" target="_blank">时空之旅 发表于 2026-8-21 10:56</a>
+
+名将，吞食天地2，恐龙快打，圆桌骑士
+
+但是我当年玩的最多更偏爱的反而是铁钩船长 ...</blockquote>
+恐龙快打不可能了~~~版权在卡迪拉克手上~~~~
+

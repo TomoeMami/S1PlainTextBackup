@@ -717,3 +717,33 @@ ctrl c Ctrl v的官方飞雷神ota了<img src="https://static.stage1st.com/image
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  我就再氪一单  
+##### 77#       发表于 2026-8-21 11:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116763&amp;ptid=2282975" target="_blank">巨魔已被忠诚 发表于 2026-8-21 01:26</a>
+感觉还是准的。
+这鞋垫美术，后期boss气绝倒地，你上去处决腹部一大坨赘生的搞丸 ...</blockquote>
+昨天中午吃饭找个在播这游戏的直播当下饭视频
+正好在打这boss
+我震惊于最后一张图的一刀不死两刀再见
+然后这个boss处决动画出来我差点一口饭喷屏幕上
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  我就再氪一单  
+##### 78#       发表于 2026-8-21 11:11
+
+看直播打这个boss我也是服了
+看着像火，特效像火，dot像火，然后告诉你这不是火
+你tm好歹换个颜色啊，不然你硬说这不是火我也得信啊
+
+还有那个瞬发雷霆大坐
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
