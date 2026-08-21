@@ -15288,3 +15288,11 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 
 毕竟是斗技场主题，肯定需要一个斯巴达克斯、角斗士那样的角色
 
+
+*****
+
+####  kalavinka  
+##### 2931#       发表于 2026-8-21 12:34
+
+主角反派感也太强了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

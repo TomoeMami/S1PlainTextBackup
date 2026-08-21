@@ -1801,3 +1801,35 @@ The Duskbloods features expansive maps and graphical fidelity that's comparable 
 
 有个评测说地图复杂度很高，相当于法环2到3个大箱庭<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ywll  
+##### 263#       发表于 2026-8-21 12:26
+
+<blockquote>zakki 发表于 2026-8-21 12:10
+有个评测说地图复杂度很高，相当于法环2到3个大箱庭</blockquote>
+这么牛逼啊
+
+*****
+
+####  墨染白泉  
+##### 264#       发表于 2026-8-21 12:29
+
+访谈说因为角色机动性高，所以都是立体地图，能去的地点确实多
+
+
+*****
+
+####  Beaverfan01  
+##### 265#       发表于 2026-8-21 12:33
+
+https://campaign.theduskbloods.jp/manual/zh/start.html
+
+*****
+
+####  zhangzcl2  
+##### 266#       发表于 2026-8-21 12:34
+
+看了各种介绍和演示，游戏内容和局内目标很丰富，而且看起来挫败感不会很重，超出预期
+
