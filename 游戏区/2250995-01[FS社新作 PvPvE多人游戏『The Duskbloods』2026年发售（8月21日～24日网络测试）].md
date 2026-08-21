@@ -2663,3 +2663,35 @@ fs服务器填的127.0.0.1忘改了，别慌
 黑环当时虽然也炸服好歹第一天还是能进游戏的吧，任地狱你…………</blockquote>
 老任过去的几个网络测试就没有一个出问题的
 
+
+*****
+
+####  新庄運切  
+##### 357#       发表于 2026-8-21 22:15
+
+[https://www.nintendo.co.jp/netinfo/en_GB/index.html](https://www.nintendo.co.jp/netinfo/en_GB/index.html)
+[https://www.nintendo.com.hk/switch/support/netinfo/index.html](https://www.nintendo.com.hk/switch/support/netinfo/index.html)
+
+几家主机商都有自己的在线查服务器状态网页看一眼就知道谁的毛病，这也能怪老任
+
+没抽到用基友的帐号提前折腾好看着时间等了几个小时告诉我取消了，甚至晚饭都没吃，FS罪大恶极<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一之江瑞江  
+##### 358#       发表于 2026-8-21 22:16
+
+不愧是fs服务器 在让人失望这一方面从不让人失望 老任就不提供点服务器吗
+
+
+*****
+
+####  zakki  
+##### 359#       发表于 2026-8-21 22:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70122712&amp;ptid=2250995" target="_blank">clyde-wang 发表于 2026-8-21 21:57</a>
+感觉不会就只做了媒体线下局域网，互联网的代码没审查过吧……</blockquote>
+然而真有试玩的人点出来了这点<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/34/85910f5875de14f14c68b0afb74cf5c6/image.jpg" referrerpolicy="no-referrer">
+

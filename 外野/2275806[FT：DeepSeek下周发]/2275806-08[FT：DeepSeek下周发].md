@@ -1679,3 +1679,11 @@ gemini 3.5 3.7是不是炼丹失败，所以一直不出pro，只出flash</block
 gemini 3.5 3.7是不是炼丹失败，所以一直不出pro，只出flash</blockquote>
 核心元老都跑路了，感觉可能很多怎么炼丹的knowhow都丢掉了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蛋黄酱Release  
+##### 10526#       发表于 2026-8-21 22:18
+
+甲有点厚啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好多涩图她都拒绝回答
+
