@@ -2413,3 +2413,42 @@ V4FV疑似也能抽到灰测思维链，但是结果还未知</blockquote>
 
 V4FV太爽了，我宣布18:00-9:00，12:00-14:00梁圣称号限时回归
 
+
+*****
+
+####  龙骑士尹志平  
+##### 10594#       发表于 2026-8-22 00:57
+
+可以去zcode领鸡蛋了，新用户登录送周末1亿token，可以用在5.3上。
+
+*****
+
+####  nxmonitor  
+##### 10595#       发表于 2026-8-22 00:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123631&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-22 00:52</a>
+
+拿上级模型当教师了吧
+
+不过为啥不先调pro
+
+虽然从oai那边看terra这种中档模型确实最尴尬，梁子可能也想玩 ...</blockquote>
+Pro我觉得基模就有点问题
+
+*****
+
+####  nxmonitor  
+##### 10596#       发表于 2026-8-22 00:59
+
+这个跑出来的高达有点厉害啊，别真的是Flash的灰测，又强又快……
+
+*****
+
+####  龙骑士尹志平  
+##### 10597#       发表于 2026-8-22 00:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123635&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-22 00:54</a>
+
+V4FV太爽了，我宣布18:00-9:00，12:00-14:00梁圣称号限时回归</blockquote>
+周末梁子不上班，所以整个周末都是梁文谷
+
