@@ -15351,3 +15351,21 @@ Antigravity: 随便你用, 5小时上限, 分开第三方模型和Gemini模型�
 
 昨天好像在这贴看到说opencodego的hy3免费用 但是今天找不到了  有人能细说一下吗
 
+
+*****
+
+####  qwased  
+##### 10306#       发表于 2026-8-21 12:18
+
+基元的赠币没用完，试了下flash0731接入翻译流程拿来当提取术语表的agent，发现这玩意思考强度开低的话会不停犯错，最后消耗的token反而比思考max还多<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空き地卯木  
+##### 10307#       发表于 2026-8-21 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118738&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-21 12:11</a>
+昨天好像在这贴看到说opencodego的hy3免费用 但是今天找不到了  有人能细说一下吗 ...</blockquote>
+ocg最近还有Muse spark也是免费，就是需要美国节点，配置起来得花点功夫
+
