@@ -2758,3 +2758,13 @@ fs服务器填的127.0.0.1忘改了，别慌
 
 感觉是索尼梦寐以求的多人在线游戏。
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 366#       发表于 2026-8-21 23:18
+
+不过有点奇怪的就是既然是fs的服务器怎么还要你任的联机会员<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
