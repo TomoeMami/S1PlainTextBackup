@@ -2545,3 +2545,13 @@ ox alpha用下来真还行吧，当然还是得看价格
 
 代号Korrine 的疑似 Kimi 3.1也上 Code Arena 灰测了
 
+
+*****
+
+####  lactone  
+##### 10607#       发表于 2026-8-22 03:07
+
+kimi3.1卡这个时间点搞不好要拿第一啊
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
