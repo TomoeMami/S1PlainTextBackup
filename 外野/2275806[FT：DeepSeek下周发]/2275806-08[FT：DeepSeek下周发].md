@@ -1396,3 +1396,84 @@ hy3居然拒绝我的翻译要求 说是无法给到相关内容
 拉黑了拉黑了</blockquote>
 只做翻译去蹬 Gemini啊. 免费一年会员
 
+
+*****
+
+####  坛子漆黑  
+##### 10501#       发表于 2026-8-21 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121488&amp;ptid=2275806" target="_blank">拉屎 发表于 2026-8-21 19:10</a>
+
+不是。。。不是。。这不是。。。啊。。是是是。。
+
+—— 来自 HONOR PNM-AN20, Android 16, 鹅球 v3.5.99 ...</blockquote>
+我要看他3.2秒思考了什么<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋水锦瑟  
+##### 10502#       发表于 2026-8-21 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70122133&amp;ptid=2275806" target="_blank">kylezy123 发表于 2026-8-21 20:36</a>
+
+没看到签到的地方啊</blockquote>
+有的 我签过  你看看是不是数据看板-常见问答 签到领额度
+
+*****
+
+####  cscbzcbz  
+##### 10503#       发表于 2026-8-21 20:50
+
+又发了rc2，修什么了？
+
+*****
+
+####  刘不害  
+##### 10504#       发表于 2026-8-21 20:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121777&amp;ptid=2275806" target="_blank">秋水锦瑟 发表于 2026-8-21 20:00</a>
+
+https://agentrouter.org/register?aff=pBR0
+
+公益站白嫖175额度，走我链接175额度，不走我链接只有100额度 ...</blockquote>
+感谢分享，顺带问问这个API我是应该放在opencode那个客户端上跑，还是换个更好用的客户端？
+
+
+*****
+
+####  cube  
+##### 10505#       发表于 2026-8-21 20:52
+
+有多模态是好事,就是这个识图精准程度堪忧.
+
+*****
+
+####  Totokei  
+##### 10506#       发表于 2026-8-21 20:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">硅基流动一直不上新版v4，感觉换官方api啥的就余额打水漂了
+
+*****
+
+####  tonyunreal  
+##### 10507#       发表于 2026-8-21 20:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70122237&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-21 20:50</a>
+
+又发了rc2，修什么了？</blockquote>
+体验优化
+
+    DeepSeek 适配器支持优先通过 Files API 上传图像，并可复用已上传文件
+
+    优化图像预处理流程：根据模型要求自动缩放并转换为合适格式
+
+*****
+
+####  秋水锦瑟  
+##### 10508#       发表于 2026-8-21 20:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70122239&amp;ptid=2275806" target="_blank">刘不害 发表于 2026-8-21 20:50</a>
+
+感谢分享，顺带问问这个API我是应该放在opencode那个客户端上跑，还是换个更好用的客户端？ ...</blockquote>
+我之前用他官方推荐之外的客户端，跑不了，你试试文档里面推荐的那几个客户端试试
+
