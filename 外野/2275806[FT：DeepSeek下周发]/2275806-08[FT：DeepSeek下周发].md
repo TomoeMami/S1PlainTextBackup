@@ -1542,3 +1542,64 @@ any大善人的新一代？
 好的，再问一下这个东西对梯子质量有要求吗，麻瓜如我还没用过外国模型，会不会用得不注意给我号封了 ...</blockquote>
 应该……不会吧，你用的是token
 
+
+*****
+
+####  此誓的守望  
+##### 10515#       发表于 2026-8-21 21:26
+
+<img src="https://img.stage1st.com/forum/202608/21/212614bq8vkg8sspij8lni.png" referrerpolicy="no-referrer">
+
+<strong>view.png</strong> (2.68 MB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 21:26 上传
+
+<img src="https://img.stage1st.com/forum/202608/21/212613gmgll43bjim4unwf.png" referrerpolicy="no-referrer">
+
+<strong>E112B61240D3CAEE3C54915FCABD2FDC.png</strong> (306.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 21:26 上传
+
+*****
+
+####  秋水锦瑟  
+##### 10516#       发表于 2026-8-21 21:26
+
+你用TraeWork 
+
+image.png
+(51.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 21:25 上传
+
+<img src="https://img.stage1st.com/forum/202608/21/212554b3bx4b58468a3888.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋水锦瑟  
+##### 10517#       发表于 2026-8-21 21:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70122338&amp;ptid=2275806" target="_blank">刘不害 发表于 2026-8-21 21:03</a>
+
+好的，再问一下这个东西对梯子质量有要求吗，麻瓜如我还没用过外国模型，会不会用得不注意给我号封了 ...</blockquote>
+刚才没有回复上，你看我上一个回复，我刚试了，很好用
+
+*****
+
+####  eno_emos  
+##### 10518#       发表于 2026-8-21 21:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121928&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-8-21 20:14</a>
+
+ox alpha有啥评测吗，怎么样？</blockquote>
+多模态，但是做东西喜欢超级雷霆大思考，比flash思考的久的多
+
+然后做出来还是不咋样。必须指示他不要自己憋上网搜搜看，做的东西才比较能看
+

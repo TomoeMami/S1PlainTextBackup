@@ -2619,3 +2619,11 @@ fs以后的作品都是自己发行了，跟万代没关系了</blockquote>
 看V大新视频 白发哥，铁人，环刃斗笠女都有啃脖子的吸血鬼技能，lore上讲其实所有角色都是血族吧，好奇lore ...</blockquote>
 吸血是所有角色处决动作，类似于只狼的处决，啃一口基本就是必死<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 352#       发表于 2026-8-21 21:27
+
+你问他跌落神坛还是登上神坛，他说神坛被挤爆了无法从这一侧登录<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
