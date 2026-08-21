@@ -1642,3 +1642,40 @@ flash因为识图吃力暴涨token，涨到400K以上的时候开始陷入降智
 
 v模型识图轻松，花了368K做出来了，虽然最后也有点降智
 
+
+*****
+
+####  龙骑士尹志平  
+##### 10522#       发表于 2026-8-21 22:07
+
+gemini 3.5 3.7是不是炼丹失败，所以一直不出pro，只出flash
+
+*****
+
+####  半江瑟瑟半江红  
+##### 10523#       发表于 2026-8-21 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70122781&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-21 22:07</a>
+gemini 3.5 3.7是不是炼丹失败，所以一直不出pro，只出flash</blockquote>
+这个没啥疑问，是的
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  当光停止  
+##### 10524#       发表于 2026-8-21 22:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">体感上比pro都好使
+
+
+*****
+
+####  qwased  
+##### 10525#       发表于 2026-8-21 22:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70122781&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-21 22:07</a>
+
+gemini 3.5 3.7是不是炼丹失败，所以一直不出pro，只出flash</blockquote>
+核心元老都跑路了，感觉可能很多怎么炼丹的knowhow都丢掉了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
