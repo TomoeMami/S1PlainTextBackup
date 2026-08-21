@@ -2143,3 +2143,26 @@ Fromsoft: 現在、『The Duskbloods』ネットワークテスト版におい�
 
 所以到底抽选了个什么有多少人自己不知道么
 
+
+*****
+
+####  zhangzcl2  
+##### 299#       发表于 2026-8-21 18:39
+
+美德不够进不了服务器
+
+*****
+
+####  Jabeck  
+##### 300#       发表于 2026-8-21 18:40
+
+申请是一回事，但申请了不一定会参加肯定会比预计放的多。
+
+
+*****
+
+####  ascomnet  
+##### 301#       发表于 2026-8-21 18:45
+
+服务器不行啊老贼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
