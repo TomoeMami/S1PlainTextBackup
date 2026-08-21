@@ -1908,3 +1908,73 @@ dsh 0.1.1 rc2推送到npm主分支了
 
 所以没人讲网页版的识图模式可以开联网搜索了么。这让快速模式有点意味不明，既然benchmark上已经完全可以替代了。
 
+
+*****
+
+####  neptunehs  
+##### 10550#       发表于 2026-8-21 23:24
+
+有人说glm5.3准备出flash
+我咋记得glm本身也不是很大的模型才对吧？
+
+ox不会是glm flash吧。。。
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  舞以  
+##### 10551#       发表于 2026-8-21 23:27
+
+<img src="https://img.stage1st.com/forum/202608/21/232703j7eacck3yallvc02.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (39.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 23:27 上传
+
+好插件，，，
+
+*****
+
+####  nxmonitor  
+##### 10552#       发表于 2026-8-21 23:27
+
+ox大概率是的，但是基本被V4FV狙击了
+
+*****
+
+####  →熙←  
+##### 10553#       发表于 2026-8-21 23:29
+
+智谱我有lite套餐, 现在的5.3基本只能解决1-2个问题就到5小时额度了, flash有v4水平那也可以啊, 至少能多用一会
+
+
+*****
+
+####  zerona  
+##### 10554#       发表于 2026-8-21 23:31
+
+问下harness 怎么换成deepseek-v4-flash-vision-exp  我手动添加模型，但是还是不能启动。
+
+*****
+
+####  舞以  
+##### 10555#       发表于 2026-8-21 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123280&amp;ptid=2275806" target="_blank">zerona 发表于 2026-8-21 23:31</a>
+
+问下harness 怎么换成deepseek-v4-flash-vision-exp  我手动添加模型，但是还是不能启动。 ...</blockquote>
+啥harness啊，dsh的话更新到最新版就行
+
+*****
+
+####  eno_emos  
+##### 10556#       发表于 2026-8-21 23:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123130&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-21 23:05</a>
+
+哈人卧槽，现在AI居然真的可以对游戏拆包？前面楼友的话提醒了我，我让D指导给我把凉宫春日的追忆里所有文 ...</blockquote>
+可以的。甚至agent干这个比真人选手熟练很多，就是绝大部分agent都有内置拒答这种拆包要求，很多模型也有这个设计
+
