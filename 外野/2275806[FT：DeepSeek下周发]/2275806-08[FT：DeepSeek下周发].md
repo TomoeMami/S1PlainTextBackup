@@ -1706,3 +1706,57 @@ edit
 
 flash-vision-exp好像全是let's和we need的思维链啊...
 
+
+*****
+
+####  某穆克拉  
+##### 10529#       发表于 2026-8-21 22:43
+
+chatbox和workbuddy好像都还没支持新模型？
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  蛋黄酱Release  
+##### 10530#       发表于 2026-8-21 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70122987&amp;ptid=2275806" target="_blank">某穆克拉 发表于 2026-8-21 22:43</a>
+chatbox和workbuddy好像都还没支持新模型？
+
+—— 来自 OnePlus PJZ110, Android 16, 鹅球 v3.5.99 ...</blockquote>
+chatbox新建一个自定义模型，用response api可以
+
+*****
+
+####  王兰花秀丽  
+##### 10531#       发表于 2026-8-21 22:49
+
+虽然dsh很毛坯但是更新快就是好，下午才想吐槽不能自动处理图片，rc2就加上了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  2017.05.04  
+##### 10532#       发表于 2026-8-21 22:52
+
+试了一下无敌了，已经把转述用的gemini拿掉
+
+我现在觉得涨不涨价完全无所谓
+
+*****
+
+####  狭义文具爱好者  
+##### 10533#       发表于 2026-8-21 22:52
+
+gemini flash一直出pro卡住，我觉得合理往硬件联想是合理的。谷歌的硬件水平一直只能说…tpu训小模型够用训大模型有问题，可能得等下一代出来
+
+还有别的如人事这些问题
+
+*****
+
+####  →熙←  
+##### 10534#       发表于 2026-8-21 22:52
+
+蹬的人太多了吧, 超级慢啊, 出字要等好久
+
