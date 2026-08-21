@@ -14880,3 +14880,68 @@ DS有企业认证， 只需要一个账号开通企业认证，开发发票
 [@骨于野](https://stage1st.com/2b/home.php?mod=space&amp;uid=565813) 路由哥说说这是路由到哪个模型了
 【deepseek灰度测试-模拟鞭毛马达-哔哩哔哩】 https://b23.tv/8vaPoaO
 
+
+*****
+
+####  bartholo4  
+##### 10263#       发表于 2026-8-21 10:47
+
+deepseek稳定命中灰测的邪修办法。 
+[https://xhslink.cn/o/8UmSf3QnxJN](https://xhslink.cn/o/8UmSf3QnxJN) 
+
+小红书给我推的，等梁文谷了再来试试
+
+*****
+
+####  2017.05.04  
+##### 10264#       发表于 2026-8-21 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117949&amp;ptid=2275806" target="_blank">sese199 发表于 2026-8-21 10:41</a>
+
+因为没有coding plan，所以申请的时候也不好说充多少钱合适，没有依据</blockquote>
+限制api用量可以在客户端实现，就和做转发一样
+
+这个很好实现，你问问ai就知道怎么做
+
+你们这个规模想要coding plan，还合规，就去找GLM或者minimax呗，不过不一定有
+
+
+*****
+
+####  xiaohanne  
+##### 10265#       发表于 2026-8-21 10:53
+
+<blockquote>sese199 发表于 2026-8-21 10:41
+因为没有coding plan，所以申请的时候也不好说充多少钱合适，没有依据</blockquote>
+Deepseek现在的问题是它的性能不够稳定，一会神一会鬼的。爱好者拿着玩玩还行，用在开发上还只有它一个选择，你得被你的同事给骂死。
+
+*****
+
+####  城北无尘  
+##### 10266#       发表于 2026-8-21 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117954&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-21 10:42</a>
+推认为是mimov3
+glm主要是5.3刚出 哪有那么快
+而且glm可贵了 1m context 来free？我真不信啊（</blockquote>
+上推看了一下，mimo和glm的观点都挺多的。glm的观点主要是测试出来的指纹还有错误报告和glm一样；mimo的也有特征相似、曾经干过类似的测试等说法
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  sese199  
+##### 10267#       发表于 2026-8-21 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118048&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-21 10:53</a>
+
+Deepseek现在的问题是它的性能不够稳定，一会神一会鬼的。爱好者拿着玩玩还行，用在开发上还只有它一个选 ...</blockquote>
+现在的情况是大家自掏腰包用chatgpt，我去申请了公司出钱解决ai的问题，但是要求有发 票。中转站我信不过，感觉只能在glm和ds中间选了。不爱用就还用自己的chatgpt吧。
+
+*****
+
+####  zy450  
+##### 10268#       发表于 2026-8-21 10:57
+
+主要问题是GLM哪来的资源这样大规模的提供测试
+
