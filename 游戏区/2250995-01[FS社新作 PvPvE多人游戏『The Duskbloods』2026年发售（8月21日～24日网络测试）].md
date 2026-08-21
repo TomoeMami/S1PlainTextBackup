@@ -1692,3 +1692,49 @@ build还行 魂游之前积累的东西足够多
 我觉得他搞了一堆非pvp的收集点数元素但是搞到最后可能还是各种阴逼在附近埋伏等着抢人头 ...</blockquote>
 教堂外打人完全无收益啊，不增加积分纯浪费时间，这么玩第二阶段直接就被淘汰了，这游戏规划每个阶段该干啥事应该挺重要的
 
+
+*****
+
+####  二十二颗牛油果  
+##### 253#       发表于 2026-8-21 11:28
+
+哇还有残心<img src="https://static.stage1st.com/image/smiley/face/75.gif" referrerpolicy="no-referrer">
+
+1000216125.png
+(100.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 11:27 上传
+
+<img src="https://img.stage1st.com/forum/202608/21/112748tvevvu9vwzw8q8w3.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParukiaMKII  
+##### 254#       发表于 2026-8-21 11:30
+
+节奏不知道有没有那么紧凑，又来一个喝口水都掉节奏的游戏的话，好像也不是不行<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑卷轴陶德传  
+##### 255#       发表于 2026-8-21 11:30
+
+应该还要新增角色吧，目前没有裸足女性角色我不信是宫崎英高的游戏
+
+*****
+
+####  Kojimaru  
+##### 256#       发表于 2026-8-21 11:30
+
+The Duskbloods features expansive maps and graphical fidelity that's comparable to FromSoftware's recent games. So, how does it perform? While it targets 60 fps, it wasn't exactly consistent, but it still ran smooth enough for it to not be a problem. You may notice some frame drops in more chaotic PvP scenarios or crowded battles, but it never chugged in a way that detracted from the experience.
+
+
+*****
+
+####  petitlui  
+##### 257#       发表于 2026-8-21 11:33
+
+有裸足的女性角色啊，就是那个狙击手大姐头（虽然这个身体感觉事男事女已经不重要了…………
+

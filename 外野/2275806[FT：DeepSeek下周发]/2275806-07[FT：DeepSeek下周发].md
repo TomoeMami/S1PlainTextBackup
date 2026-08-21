@@ -15112,3 +15112,144 @@ ox上下文达到主流水平，多模态能力到位，智商不低，更何况
 
 但我觉得不太可能。估计最后还是落地为雷子。
 
+
+*****
+
+####  misuzu0723  
+##### 10285#       发表于 2026-8-21 11:28
+
+<img src="https://img.stage1st.com/forum/202608/21/112813isysijubchph92qi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (120.73 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 11:28 上传
+
+根据返回错误码有人推测是GLM
+
+*****
+
+####  neptunehs  
+##### 10286#       发表于 2026-8-21 11:29
+
+ 本帖最后由 neptunehs 于 2026-8-21 11:31 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118340&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-21 11:27</a>
+这水平如果维持原价，那就真成雷圣了。
+
+但我觉得不太可能。估计最后还是落地涨价或者降智。 ...</blockquote>
+因为没有雷霆大思考 如果是mimo 那价格翻个3倍我觉得都比flash好
+学ds翻十倍的话当我没说
+
+不过现在指向glm的证据越来越多了吧
+虽然我还是不理解如果真的是glm 有这个为啥要发一个没有任何水花的glm5.3
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  cscbzcbz  
+##### 10287#       发表于 2026-8-21 11:31
+
+glm给我印象比较差，我是不会用的
+除非一直免费<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小野賢章  
+##### 10288#       发表于 2026-8-21 11:31
+
+<img src="https://img.stage1st.com/forum/202608/21/113056nmymymmsk8kdcqnl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 11:30 上传
+
+最新版dsh支持多模态输入是有局限的，如果模型本身不支持，即使用插件配置了读图的替代模型，也会被dsh拦截
+
+这个问题要解决需要修改dsh本体<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">插件只能绕过
+
+<img src="https://img.stage1st.com/forum/202608/21/113010kqe84zs0tt42f4qs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (311.02 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 11:30 上传
+
+*****
+
+####  neptunehs  
+##### 10289#       发表于 2026-8-21 11:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118372&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-21 11:31</a>
+glm给我印象比较差，我是不会用的
+除非一直免费</blockquote>
+怎么可能 能免费两天就偷笑了（
+虽然自称是一周 但如果真glm 肯定没这个能力（
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  tillnight  
+##### 10290#       发表于 2026-8-21 11:32
+
+<blockquote>neptunehs 发表于 2026-8-21 11:29
+因为没有雷霆大思考 如果是mimo 那价格翻个3倍我觉得都比flash好
+
+学ds翻十倍的话当我没说
+</blockquote>
+答案是和0813一起装唐（
+
+*****
+
+####  奶香花卷  
+##### 10291#       发表于 2026-8-21 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118377&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-21 11:31</a>
+
+最新版dsh支持多模态输入是有局限的，如果模型本身不支持，即使用插件配置了读图的替代模型，也会被dsh拦 ...</blockquote>
+做一个侧载图像LLM的插件，可以的，就是比较花钱。
+
+*****
+
+####  奶香花卷  
+##### 10292#       发表于 2026-8-21 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118231&amp;ptid=2275806" target="_blank">matthewsteel 发表于 2026-8-21 11:13</a>
+
+看到codex出了bug就在期待reset了.......</blockquote>
+那要tibo认这个事才行……他不认只暗暗修复的话也没办法<img src="https://static.stage1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 10293#       发表于 2026-8-21 11:36
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我昨天的灰测对话刚刚试了，好像能继续？
+
+我要用梁文峰价格测试了😡<img src="https://static.stage1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  城北无尘  
+##### 10294#       发表于 2026-8-21 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118304&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-21 11:23</a>
+如果是mimo且雷总维持价格还好说
+如果是glm 这一波测试完又是用不起</blockquote>
+金山云不够雷总造的，现在国内全面缺卡是常态，不可能不涨价，雷总还能去买950不成，更何况950都分配不过来
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  →熙←  
+##### 10295#       发表于 2026-8-21 11:37
+
+glm今天也很区啊, 用的zcode, 5.3出字太慢了
+
