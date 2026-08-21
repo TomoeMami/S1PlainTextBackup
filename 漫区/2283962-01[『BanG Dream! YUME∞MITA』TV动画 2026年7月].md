@@ -2259,3 +2259,18 @@ v姐我错了这片不能没有你啊<img src="https://static.stage1st.com/image
 
 你问这集好不好看，yuno说我追到星爽得1B
 
+
+*****
+
+####  Licheus  
+##### 339#       发表于 2026-8-21 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70092933&amp;ptid=2283962" target="_blank">wolf1997 发表于 2026-8-17 12:50</a>
+
+思考一下梦限大动画的思路和问题：
+
+梦限大企划特点：由管人组成的乐队，每个角色能单独进行活动，能够更加 ...</blockquote>
+就该往侦探歌剧那个方向拍。
+
+但是可能已经路径依赖了吧，不扯头发不会写了。
+

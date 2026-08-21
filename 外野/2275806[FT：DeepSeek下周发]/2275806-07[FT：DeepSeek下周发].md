@@ -15456,3 +15456,39 @@ Good Old Days啊, 去年6月之前Copilot有无限的Claude 3.5/3.7模型可用,
 
 灰测还能抽到吗，建了几十个对话一个首字时间长的都没有
 
+
+*****
+
+####  刘不害  
+##### 10317#       发表于 2026-8-21 13:52
+
+opencode不给白嫖v4f了，新加哪个hy感觉很微妙（经常做到一半断了，是模型的问题还是运行暂时出了问题？）
+
+是不是真的得充个月付了……有更好的选择吗
+
+*****
+
+####  neptunehs  
+##### 10318#       发表于 2026-8-21 13:53
+
+ 本帖最后由 neptunehs 于 2026-8-21 13:56 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118805&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-21 12:18</a>
+基元的赠币没用完，试了下flash0731接入翻译流程拿来当提取术语表的agent，发现这玩意思考强度开低的话会不 ...</blockquote>
+别提了 我之前用qwen3.8 的iq3xxs接入我的翻译 结果给我术语表埋了一堆雷
+今天ox alpha给力 全排了
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  neptunehs  
+##### 10319#       发表于 2026-8-21 13:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70119396&amp;ptid=2275806" target="_blank">刘不害 发表于 2026-8-21 13:52</a>
+opencode不给白嫖v4f了，新加哪个hy感觉很微妙（经常做到一半断了，是模型的问题还是运行暂时出了问题？）
+
+ ...</blockquote>
+ox alpha先走起啊 能蹬一天是一天 之后事情之后算
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
