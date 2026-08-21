@@ -14681,3 +14681,21 @@ Openai的算力很明显被DS一波涨价蹬爆了……
 
 大概率是有多模态的语料，但是没有读取图片的接口，不过好像之前也是这样的
 
+
+*****
+
+####  xiaohanne  
+##### 10248#       发表于 2026-8-21 10:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117677&amp;ptid=2275806" target="_blank">奶香花卷 发表于 2026-8-21 10:04</a>
+
+应该是bug，这个量小的太离谱了。我已经降级模型和思考来用了。</blockquote>
+我一个论文检索任务蹬了plus的20%，有点离谱
+
+*****
+
+####  飛霞精灵  
+##### 10249#       发表于 2026-8-21 10:26
+
+网页端突然开了个年龄认证<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
