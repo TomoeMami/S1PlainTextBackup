@@ -2792,3 +2792,11 @@ fs服务器填的127.0.0.1忘改了，别慌
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这贴真是每次看都绷不住
 
+
+*****
+
+####  Leona_Akari  
+##### 369#       发表于 2026-8-22 01:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，确实完美符合中日韩网友的刻板印象
+

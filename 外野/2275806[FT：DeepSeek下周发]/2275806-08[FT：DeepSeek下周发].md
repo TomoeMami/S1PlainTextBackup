@@ -2452,3 +2452,16 @@ Pro我觉得基模就有点问题
 V4FV太爽了，我宣布18:00-9:00，12:00-14:00梁圣称号限时回归</blockquote>
 周末梁子不上班，所以整个周末都是梁文谷
 
+
+*****
+
+####  hugosol  
+##### 10598#       发表于 2026-8-22 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123656&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-22 00:59</a>
+
+周末梁子不上班，所以整个周末都是梁文谷</blockquote>
+但是计费标准没说周末全是梁文谷吧
+
+其实我也想吐槽梁子不是说好不加班么。。。
+
