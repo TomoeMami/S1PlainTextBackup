@@ -14699,3 +14699,64 @@ Openai的算力很明显被DS一波涨价蹬爆了……
 
 网页端突然开了个年龄认证<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小野賢章  
+##### 10250#       发表于 2026-8-21 10:31
+
+codex今天确实离谱，我一个简单的代码修改用了8%
+
+*****
+
+####  sese199  
+##### 10251#       发表于 2026-8-21 10:32
+
+请问一下，现在这个状况，如果要给小团队里三个人配 ai 开发的 token，要求可开 发 票 ，什么比较合适？
+我在犹豫是 ds 还是 glm
+glm 团队版三个人一年两万，略贵
+ds 好像没有企业版，也没有年付的方案，只能说给每个人账户里充几千块钱，让他们用
+
+—— 来自 vivo V2408A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  2017.05.04  
+##### 10252#       发表于 2026-8-21 10:34
+
+ 本帖最后由 2017.05.04 于 2026-8-21 10:35 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117877&amp;ptid=2275806" target="_blank">sese199 发表于 2026-8-21 10:32</a>
+
+请问一下，现在这个状况，如果要给小团队里三个人配 ai 开发的 token，要求可开 发 票 ，什么比较合适？
+
+我 ...</blockquote>
+[https://static.deepseek.com/faq/ ... verification-update](https://static.deepseek.com/faq/index.html?lang=zh#/question/verification-update)
+
+DS有企业认证 <blockquote>个人认证账号可以更改为企业实名账号吗？
+
+可以，您可以通过以下路径变更认证：
+
+「充值」页面 →「对公汇款」→「企业实名认证」→「去变更」。
+
+变更不会影响账户余额和当前正常使用。</blockquote>[DeepSeek FAQ](https://static.deepseek.com/faq/index.html?lang=zh#/question/invoice-request)
+ <blockquote>如何申请发/票
+
+登录开放平台后，进入「账单」页面，点击「发/票管理」，根据页面引导，填入需要开票的金额、抬头等信息即可提交开票申请。电子发/票将自动发送至您填写的邮箱。
+
+您同样可以在「发/票管理」→「开票记录」中申请发/票作废，并重新开具。
+
+发/票相关说明:
+
+平台支持「按消耗金额」或「按充值金额」开具发/票。
+
+开票类型支持「增值税普通发/票」或「增值税专用发/票」。
+
+个人认证可以开具个人抬头/公司抬头发/票；企业认证仅支持开具企业认证主体抬头的发/票。
+
+已开票/开票中的金额不支持退款；若相关金额需要退款，需先完成发/票作废。
+
+票面信息：
+
+开票主体为杭州深度求索人工智能基础技术研究有限公司；票面项目名称为信息技术服务*技术服务费；税率为6%。</blockquote>
+
