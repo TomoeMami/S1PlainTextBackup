@@ -2465,3 +2465,49 @@ V4FV太爽了，我宣布18:00-9:00，12:00-14:00梁圣称号限时回归</block
 
 其实我也想吐槽梁子不是说好不加班么。。。
 
+
+*****
+
+####  nxmonitor  
+##### 10599#       发表于 2026-8-22 01:16
+
+真的还有，但是概率比昨天低了很多很多
+
+*****
+
+####  龙骑士尹志平  
+##### 10600#       发表于 2026-8-22 01:16
+
+<blockquote>hugosol 发表于 2026-8-22 01:07
+但是计费标准没说周末全是梁文谷吧
+
+其实我也想吐槽梁子不是说好不加班么。。。 ...</blockquote>
+鲸鱼娘自己说的
+
+<img src="https://img.stage1st.com/forum/202608/22/011626ugffhyhbwaddgnzb.jpg" referrerpolicy="no-referrer">
+
+<strong>1000016348.jpg</strong> (126.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-22 01:16 上传
+
+
+*****
+
+####  舞以  
+##### 10601#       发表于 2026-8-22 01:18
+
+明天白天测试就知道了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+官方文档里没说工作日就是
+
+*****
+
+####  风速前进mo  
+##### 10602#       发表于 2026-8-22 01:21
+
+周末算峰谷我看邮件根本没说吧，问ds app确实这么说但来源都是营销号，有官方的说明吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
