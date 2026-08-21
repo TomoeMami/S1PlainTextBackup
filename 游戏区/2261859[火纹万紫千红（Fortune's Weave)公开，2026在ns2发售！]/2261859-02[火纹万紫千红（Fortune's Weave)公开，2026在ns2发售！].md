@@ -15314,3 +15314,28 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 
 看了B站罗伊 20小时试玩的解说。说这次动画演出接近XB系列了
 
+
+*****
+
+####  巴尔干炮  
+##### 2934#       发表于 2026-8-21 20:04
+
+<img src="https://img.stage1st.com/forum/202608/21/200348kbtjbj0tebemb0fo.jpg" referrerpolicy="no-referrer">
+
+<strong>dfd371c5dad0333508b0a81e0c203cb1e268e449bc46c992bbf1226804143ba8.0.JPG</strong> (149.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 20:03 上传
+
+看来面具女和花嫁枪女要下周了。
+
+
+*****
+
+####  5ew47  
+##### 2935#       发表于 2026-8-21 20:10
+
+喜欢：肉桂
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你嘴里叼着的原来是干肉桂
+

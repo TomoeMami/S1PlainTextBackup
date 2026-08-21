@@ -2405,3 +2405,77 @@ fs以后的作品都是自己发行了，跟万代没关系了</blockquote>
 索尼和腾讯注资建了发行部门</blockquote>
 然后呢，这跟你角川跟fs有什么必然关系?
 
+
+*****
+
+####  thez  
+##### 327#       发表于 2026-8-21 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121782&amp;ptid=2250995" target="_blank">Ai_shuang 发表于 2026-8-21 20:00</a>
+
+好像不仅仅是今天的结束了，直接整个测试关了欸</blockquote>
+真草台班子了
+
+*****
+
+####  huoguoshan23  
+##### 328#       发表于 2026-8-21 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121782&amp;ptid=2250995" target="_blank">Ai_shuang 发表于 2026-8-21 20:00</a>
+
+好像不仅仅是今天的结束了，直接整个测试关了欸</blockquote>
+没有，日文也是本日のネットワークテスト结束，不是本次。
+
+
+*****
+
+####  hkguty  
+##### 329#       发表于 2026-8-21 20:10
+
+典得很难绷
+
+*****
+
+####  牛奶笛  
+##### 330#       发表于 2026-8-21 20:11
+
+应该会补偿测试时间的
+
+*****
+
+####  二阶堂真琉  
+##### 331#       发表于 2026-8-21 20:11
+
+笑出声，这也太帅了吧草
+
+*****
+
+####  thecatnie  
+##### 332#       发表于 2026-8-21 20:11
+
+只能说日游网络测试都是这样的丢人现眼，当初有个日本手游公测炸服，直接修了三个月
+
+*****
+
+####  bbby  
+##### 333#       发表于 2026-8-21 20:12
+
+没绷住<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗日生化体  
+##### 334#       发表于 2026-8-21 20:13
+
+还好推特看了一眼
+
+*****
+
+####  ShiKi847  
+##### 335#       发表于 2026-8-21 20:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121812&amp;ptid=2250995" target="_blank">HATENA 发表于 2026-8-21 20:03</a>
+
+然后呢，这跟你角川跟fs有什么必然关系?</blockquote>
+你想表达什么？
+
