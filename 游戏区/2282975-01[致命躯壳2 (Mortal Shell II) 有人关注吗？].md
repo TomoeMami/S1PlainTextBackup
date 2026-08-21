@@ -830,3 +830,14 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  沙里昂  
+##### 86#       发表于 2026-8-21 18:29
+
+这最终 boss 是给人打的吗
+二阶段躯壳不能用还几乎 0 容错中招就死
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

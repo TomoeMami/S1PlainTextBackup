@@ -1052,3 +1052,34 @@ dsh极简模式我记得没有读图工具吧<img src="https://static.stage1st.c
 
 公司也上线了vision了，转发的官方，但是dsh里面给这个模型法图文混合消息就识别不了图片，只发图片可以识别，不知道为啥。官方的是可以图文混合的。claude code 也是好的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hugosol  
+##### 10472#       发表于 2026-8-21 18:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121032&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-21 17:52</a>
+
+我擦，认得出自己了
+
+反转了，是上下文的原因，这个应该是APP那个吧，知识量一般 Re:Source ...</blockquote>
+
+试了一下应该是要联网才知道自己
+
+<img src="https://img.stage1st.com/forum/202608/21/183534u7yobnv3iiwcynnn.png" referrerpolicy="no-referrer">
+
+<strong>ds.png</strong> (891.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 18:35 上传
+
+*****
+
+####  bartholo4  
+##### 10473#       发表于 2026-8-21 18:37
+
+这个模型 偶尔会是中文思考链
+
+和灰测的有点像啊
+
