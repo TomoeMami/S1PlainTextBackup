@@ -2371,3 +2371,45 @@ https://agentrouter.org/register?aff=pBR0
 
 摊手
 
+
+*****
+
+####  qwased  
+##### 10590#       发表于 2026-8-22 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123509&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-22 00:19</a>
+
+我有老号，方便私信下怎么玩吗
+
+论坛助手,iPhone</blockquote>
+就咸鱼买个8块钱18个月的就行了，jio sim的福利，PC区有帖子
+
+*****
+
+####  nxmonitor  
+##### 10591#       发表于 2026-8-22 00:48
+
+V4FV疑似也能抽到灰测思维链，但是结果还未知
+
+
+*****
+
+####  qwased  
+##### 10592#       发表于 2026-8-22 00:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123618&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-22 00:48</a>
+
+V4FV疑似也能抽到灰测思维链，但是结果还未知</blockquote>
+拿上级模型当教师了吧
+
+不过为啥不先调pro<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然从oai那边看terra这种中档模型确实最尴尬，梁子可能也想玩旗舰模型做设计，具体实现给flash去干？
+
+*****
+
+####  hugosol  
+##### 10593#       发表于 2026-8-22 00:54
+
+V4FV太爽了，我宣布18:00-9:00，12:00-14:00梁圣称号限时回归
+
