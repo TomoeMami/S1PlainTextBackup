@@ -793,3 +793,27 @@ ctrl c Ctrl v的官方飞雷神ota了<img src="https://static.stage1st.com/image
 —— 来自 Xiaomi 23049RAD8C, And ...</blockquote>
 变硬，可以在任何时间使用，包括自己的攻击期间
 
+
+*****
+
+####  我就再氪一单  
+##### 83#       发表于 2026-8-21 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70119541&amp;ptid=2282975" target="_blank">红魔馆的糖 发表于 2026-8-21 14:15</a>
+变硬，可以在任何时间使用，包括自己的攻击期间</blockquote>
+OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被炸成蛆了
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  红魔馆的糖  
+##### 84#       发表于 2026-8-21 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70119607&amp;ptid=2282975" target="_blank">我就再氪一单 发表于 2026-8-21 14:27</a>
+OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被炸成蛆了
+
+—— 来自 Xiaomi 23049RAD8C, Andro ...</blockquote>
+自爆怪好像是红光，只能闪吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

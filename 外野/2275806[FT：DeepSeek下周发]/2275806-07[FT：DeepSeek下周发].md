@@ -15540,3 +15540,27 @@ ox alpha先走起啊 能蹬一天是一天 之后事情之后算
 
 ox alpha蛮好用，多模态真的很方便呀    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  phorcys02  
+##### 10325#       发表于 2026-8-21 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118196&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-8-21 11:10</a>
+
+还没去试呢 现在梁文锋时段 不想搞
+
+不过我昨天抽到两个灰测的窗口今天都还能用</blockquote>
+现在确实用不起了
+
+昨天的灰测session今早起来还能用，趁着梁文谷，随便蹬了几下。。。
+
+也就蹬了60-70M token, 50块余额就没了...
+
+*****
+
+####  坛子漆黑  
+##### 10326#       发表于 2026-8-21 14:36
+
+我寻思着api贵,那么在官网设计几张SFW的卡,结果一直繁忙.为什么这个时候官网专家模式会被蹬爆啊<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

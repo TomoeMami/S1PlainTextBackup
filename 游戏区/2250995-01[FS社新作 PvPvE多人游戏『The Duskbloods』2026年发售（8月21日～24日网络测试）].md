@@ -1858,3 +1858,19 @@ https://campaign.theduskbloods.jp/manual/zh/start.html
 
 我觉得场景还好，是FS舒适区的哥特风格，人设和怪设退步还是比较明显的
 
+
+*****
+
+####  二十二颗牛油果  
+##### 269#       发表于 2026-8-21 14:33
+
+合着这次测试不给直播啊<img src="https://static.stage1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zhoutai354  
+##### 270#       发表于 2026-8-21 14:35
+
+巴哈姆特电玩疯】在FS社玩了《黄昏血族》结果是黑暗版马力欧赛车
+[https://www.bilibili.com/video/BV18k8A6KENN](https://www.bilibili.com/video/BV18k8A6KENN)
+
