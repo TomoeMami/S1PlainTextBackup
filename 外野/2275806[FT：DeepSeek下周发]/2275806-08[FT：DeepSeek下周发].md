@@ -805,3 +805,100 @@ v模型极简模式和anchored-standard都能触发we思维链，和flash 0731�
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  novem  
+##### 10444#       发表于 2026-8-21 17:38
+
+公测的核弹会来吗
+
+*****
+
+####  misuzu0723  
+##### 10445#       发表于 2026-8-21 17:38
+
+所以说你梁叔叔能炼出一个加上多模态同时性能不损失的 flash ，也能炼出一个性能就比 flash 高一点点同时还参数大几倍的 pro <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  王兰花秀丽  
+##### 10446#       发表于 2026-8-21 17:39
+
+几乎可以确定灰测神秘模型就是有视觉的吧，其实0731和0813都很相信自己有视觉能力了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  overflowal  
+##### 10447#       发表于 2026-8-21 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120949&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-21 17:38</a>
+所以说你梁叔叔能炼出一个加上多模态同时性能不损失的 flash ，也能炼出一个性能就比 flash 高一点点同时还 ...</blockquote>
+差别就是有没有普通用户耽误agi训练<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ivly  
+##### 10448#       发表于 2026-8-21 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70120840&amp;ptid=2275806" target="_blank">ycjiang1337 发表于 2026-8-21 17:25</a>
+
+你这完全不是一个东西啊，而且opus5什么臭鱼烂虾
+
+—— 来自 HUAWEI SGT-AL50, Android 16, 鹅球 v3.4.97 ...</blockquote>
+你又回复给他画面了，不理他不就完事了
+
+*****
+
+####  2017.05.04  
+##### 10449#       发表于 2026-8-21 17:40
+
+保持flash定价真无敌了，测测看效果
+
+估计视觉方面和gemini有差距，但是工作流肯定够用了
+
+*****
+
+####  nxmonitor  
+##### 10450#       发表于 2026-8-21 17:42
+
+这样我觉得神秘模型可能也有多模态了，因为很显然Flash和Pro都是蒸馏这个的，才能局部复现神秘模型的特征
+
+*****
+
+####  龙骑士尹志平  
+##### 10451#       发表于 2026-8-21 17:42
+
+所以0813是因为月初全世界穷屌爽蹬v4flash才造成的性能低下吗？
+
+*****
+
+####  煙雲靉靆  
+##### 10452#       发表于 2026-8-21 17:42
+
+多模态终于来了么，昨天晚上正愁呢，普天同庆啊
+
+
+*****
+
+####  来都来了  
+##### 10453#       发表于 2026-8-21 17:45
+
+现在这个多模态模型不涨价的话，感觉梁文谷可以开蹬了，梁文峰蹬起来还是有点肉疼。
+
+*****
+
+####  舞以  
+##### 10454#       发表于 2026-8-21 17:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梁叔叔又有活了，唉，鲸小子落泪，，，
+
+*****
+
+####  2017.05.04  
+##### 10455#       发表于 2026-8-21 17:47
+
+别蹬了，蹬完又涨价怎么办<img src="https://static.stage1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">让我蹬
+
