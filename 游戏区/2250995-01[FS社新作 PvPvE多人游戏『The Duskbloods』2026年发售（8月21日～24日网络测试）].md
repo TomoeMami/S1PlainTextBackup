@@ -1604,3 +1604,28 @@ build还行 魂游之前积累的东西足够多
 
 路线确实是问题
 
+
+*****
+
+####  zakki  
+##### 244#       发表于 2026-8-21 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117958&amp;ptid=2250995" target="_blank">嘉术2015 发表于 2026-8-21 10:42</a>
+
+现在比较担心的是，游戏发售一段时间后，被光速研究出了最佳build和最佳美德收集路线，然后套路就僵死在那 ...</blockquote>
+黑夜君临一张图都能玩那么久呢，更别说这个三张图的，这个倒是没必要担心
+
+*****
+
+####  天堂大法  
+##### 245#       发表于 2026-8-21 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117969&amp;ptid=2250995" target="_blank">夜雨秋水 发表于 2026-8-21 10:44</a>
+既然主要玩法是pvp那会有天梯吗，国服第一阿尔伯特请战
+
+—— 来自 鹅球 v3.5.99 ...</blockquote>
+——我认为排位是玩家动力之一，本作会有排位赛之类的机制吗？
+宫崎：
+是的。运营方式还在讨论中，但我们会准备排位赛、排行榜、赛季制等。通过战斗胜利提升排名——这当然也是本作的乐趣之一。
+ 确实有<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

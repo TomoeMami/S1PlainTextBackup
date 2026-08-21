@@ -15201,3 +15201,14 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 
 感觉5年前颜值很高啊，头发白了反而没那味儿了，难道白毛加成只适合女性角色吗。<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ascomnet  
+##### 2922#       发表于 2026-8-21 10:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117994&amp;ptid=2261859" target="_blank">cox 发表于 2026-8-21 10:47</a>
+
+感觉5年前颜值很高啊，头发白了反而没那味儿了，难道白毛加成只适合女性角色吗。 ...</blockquote>
+白毛只适合年轻角色
+

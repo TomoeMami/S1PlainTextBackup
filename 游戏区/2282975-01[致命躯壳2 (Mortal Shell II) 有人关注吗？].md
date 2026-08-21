@@ -694,3 +694,26 @@ Reddit那边还是加分制的人居多，S1这边除非是系列粉否则一向
 
 剧透下，最后几个BOSS完全就是“生殖崇拜”的产物<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我就再氪一单  
+##### 75#       发表于 2026-8-21 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117153&amp;ptid=2282975" target="_blank">蒋公卖萌 发表于 2026-8-21 08:37</a>
+剧透下，最后几个BOSS完全就是“生殖崇拜”的产物</blockquote>
+最终boss怎么看怎么都像是勾八成精了
+那个猛扎魔丸最后把香肠往剑上磕的雷霆处决也是看了绷不住
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  我就再氪一单  
+##### 76#       发表于 2026-8-21 10:59
+
+ctrl c Ctrl v的官方飞雷神ota了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还给巨剑加了20%伤害
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

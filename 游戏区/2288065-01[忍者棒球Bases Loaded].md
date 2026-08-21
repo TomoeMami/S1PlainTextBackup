@@ -411,3 +411,27 @@ rtype九条翻新了，现在是棒球忍者。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看主楼说初代搞得我还以为出过2赶紧去搜了下
 
+
+*****
+
+####  时空之旅  
+##### 43#       发表于 2026-8-21 10:56
+
+<blockquote>新HGCG 发表于 2026-8-21 07:44
+哪四大？
+
+名将、三国
+
+还有哪些？
+</blockquote>
+名将，吞食天地2，恐龙快打，圆桌骑士
+
+但是我当年玩的最多更偏爱的反而是铁钩船长
+
+*****
+
+####  水風船  
+##### 44#       发表于 2026-8-21 10:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这种究极冷饭希望能便宜一点
+

@@ -14945,3 +14945,30 @@ Deepseek现在的问题是它的性能不够稳定，一会神一会鬼的。爱
 
 主要问题是GLM哪来的资源这样大规模的提供测试
 
+
+*****
+
+####  小野賢章  
+##### 10269#       发表于 2026-8-21 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118002&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-8-21 10:47</a>
+
+deepseek稳定命中灰测的邪修办法。 
+
+https://xhslink.cn/o/8UmSf3QnxJN </blockquote>
+是删除 ~/.dsh/.anonymous-user-id 这个文件吗？
+
+*****
+
+####  noneoneone  
+##### 10270#       发表于 2026-8-21 11:06
+
+话说这种深蓝背景，白字，亮蓝滑动条风格的界面是从哪学的，我之前让v4flash搓了个流量计的模拟图，也是这个样子。
+
+*****
+
+####  crow_wine  
+##### 10271#       发表于 2026-8-21 11:07
+
+国算平台好蛆
+
