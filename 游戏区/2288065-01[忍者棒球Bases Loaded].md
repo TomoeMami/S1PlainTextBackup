@@ -527,3 +527,13 @@ rtype九条翻新了，现在是棒球忍者。
 
 就是收招后的小浮空破绽不太好收<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  达达葱2  
+##### 53#       发表于 2026-8-21 22:35
+
+<blockquote>口袋妖怪 发表于 2026-8-21 21:16
+当年模拟器的噩梦，psp到psv没一个能流畅玩</blockquote>
+为什么不能啊
+

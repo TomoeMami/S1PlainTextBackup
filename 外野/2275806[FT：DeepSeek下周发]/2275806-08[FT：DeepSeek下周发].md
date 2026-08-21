@@ -1687,3 +1687,22 @@ gemini 3.5 3.7是不是炼丹失败，所以一直不出pro，只出flash</block
 
 甲有点厚啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好多涩图她都拒绝回答
 
+
+*****
+
+####  lubo  
+##### 10527#       发表于 2026-8-21 22:31
+
+edit
+
+ 本帖最后由 lubo 于 2026-8-21 22:32 编辑 
+
+编辑       
+
+*****
+
+####  hugosol  
+##### 10528#       发表于 2026-8-21 22:35
+
+flash-vision-exp好像全是let's和we need的思维链啊...
+
