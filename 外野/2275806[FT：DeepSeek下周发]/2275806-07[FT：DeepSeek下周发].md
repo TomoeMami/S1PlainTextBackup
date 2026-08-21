@@ -15424,3 +15424,15 @@ qwen的老/毛病，他会陷入复读机状态卡死，再调下重复惩罚/�
 
 牛来大模型咋样？开会一上午还没时间用。
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 10314#       发表于 2026-8-21 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118460&amp;ptid=2275806" target="_blank">泰坦失足 发表于 2026-8-21 11:40</a>
+Good Old Days啊, 去年6月之前Copilot有无限的Claude 3.5/3.7模型可用, 虽然体验不如现在的面向对话框的编 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">可是我还是怀念2.5pro的写作 再也没有那种感觉了 就像是赛博阳痿了一样
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
