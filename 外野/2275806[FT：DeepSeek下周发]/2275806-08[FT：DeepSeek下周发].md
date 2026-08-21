@@ -2195,3 +2195,71 @@ DSH后面要优化下图片的缓存命中，现在一读图就掉得很厉害�
 我咋记得glm本身也不是很大的模型才对吧？</blockquote>
 我觉得像
 
+
+*****
+
+####  qwased  
+##### 10576#       发表于 2026-8-22 00:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123420&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-21 23:56</a>
+
+这个卡现在16万一张，没法咬咬牙。。。</blockquote>
+那双5090要折腾下破解驱动开PCIE P2P，而且感觉应该尽量弄hedt平台弄成双pciex16吧，不然跑llm双卡长上下文衰减太狠了
+
+*****
+
+####  qwased  
+##### 10577#       发表于 2026-8-22 00:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121777&amp;ptid=2275806" target="_blank">秋水锦瑟 发表于 2026-8-21 20:00</a>
+
+https://agentrouter.org/register?aff=pBR0
+
+公益站白嫖175额度，走我链接175额度，不走我链接只有100额度 ...</blockquote>
+[https://agentrouter.org/register?aff=ViDm](https://agentrouter.org/register?aff=ViDm)
+
+注册了，传火
+
+*****
+
+####  自由之紫roy  
+##### 10578#       发表于 2026-8-22 00:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123467&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-22 00:06</a>
+
+那双5090要折腾下破解驱动开PCIE P2P，而且感觉应该尽量弄hedt平台弄成双pciex16吧，不然跑llm双卡长上下 ...</blockquote>
+不换主板了，大不了折腾驱动，再社区找数据调参数。另外实在不行也可以到时候咬咬牙上一块pro6000 96G。毕竟pcie16x也还是瓶颈。
+
+*****
+
+####  zerona  
+##### 10579#       发表于 2026-8-22 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123402&amp;ptid=2275806" target="_blank">serj005 发表于 2026-8-21 23:54</a>
+
+最新0.1.1rc2，加了图片的简单自动处理（主要是各种格式在本地先自动转换成符合接口规定范围的大小和体积 ...</blockquote>
+我让dsh自己把自己删了之后就行了。以后卸载就这么干了。
+
+*****
+
+####  xiaohanne  
+##### 10580#       发表于 2026-8-22 00:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123385&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-8-21 23:52</a>
+
+雷霆思考大王，提一点小修改在cot里面review了六遍才写
+
+如果真的是glm的话你这玩意打不过ds我觉得真该</blockquote>
+我个人真的不喜欢雷霆思考，指哪打哪对我来说更有用……
+
+这几天先蹭蹭grok4.6，等flash稳定了还是得回deepseek
+
+*****
+
+####  蛋黄酱Release  
+##### 10581#       发表于 2026-8-22 00:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123439&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-22 00:00</a>
+奇怪，好像有前审查？他有时候根本收不到图的输入</blockquote>
+设置的不对？现在很多agent似乎都没做好适配
+
