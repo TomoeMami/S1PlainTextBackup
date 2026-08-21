@@ -1833,3 +1833,14 @@ https://campaign.theduskbloods.jp/manual/zh/start.html
 
 看了各种介绍和演示，游戏内容和局内目标很丰富，而且看起来挫败感不会很重，超出预期
 
+
+*****
+
+####  serj005  
+##### 267#       发表于 2026-8-21 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118108&amp;ptid=2250995" target="_blank">zakki 发表于 2026-8-21 11:00</a>
+黑夜君临一张图都能玩那么久呢，更别说这个三张图的，这个倒是没必要担心 ...</blockquote>
+图本身的随机性的游玩乐趣和build僵化固定的问题是同时存在的，黑环玩了这么久依然会有人玩，但是角色已经定死了。
+队友开黑永远是铁追赖三人组雷打不动，野排遇到的人也差不多，偶尔出现个太刀哥和兽爪蜗，dlc学者和修女因为强度垃圾完全查无此人了。
+

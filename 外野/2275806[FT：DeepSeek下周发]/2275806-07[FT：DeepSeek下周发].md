@@ -15386,3 +15386,33 @@ l站果然又开始炒路由贴了，图什么呢
 
 我本地部署了QWen3.8 27B 聊天还好说超快，干活为什么卡死
 
+
+*****
+
+####  qwased  
+##### 10310#       发表于 2026-8-21 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70118906&amp;ptid=2275806" target="_blank">巨魔已被忠诚 发表于 2026-8-21 12:32</a>
+我本地部署了QWen3.8 27B 聊天还好说超快，干活为什么卡死</blockquote>
+qwen的老/毛病，他会陷入复读机状态卡死，再调下重复惩罚/温度之类的参数看看
+
+
+*****
+
+####  CCauchy  
+##### 10311#       发表于 2026-8-21 12:44
+
+没有多模态就不能用？
+但这……是弱者思维
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  crow_wine  
+##### 10312#       发表于 2026-8-21 12:47
+
+哈哈反代理了两个dsh，win一个，wsl一个，让他们互相改
+然后手机上遥控干活
+打算下午做鸿蒙hap，定制浏览器在手机上更舒服的用，加上各种消息提醒
+
