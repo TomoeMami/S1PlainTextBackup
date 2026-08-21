@@ -2215,3 +2215,38 @@ Fromsoft: 現在、『The Duskbloods』ネットワークテスト版におい�
 
 服务器负荷不行啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 307#       发表于 2026-8-21 19:25
+
+要一个半小时了还不行吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ShiKi847  
+##### 308#       发表于 2026-8-21 19:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121513&amp;ptid=2250995" target="_blank">沧兰殇 发表于 2026-8-21 19:13</a>
+
+黑环是fs的服务器还是万代的服务器？
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+fs以后的作品都是自己发行了，跟万代没关系了
+
+*****
+
+####  医生狼多  
+##### 309#       发表于 2026-8-21 19:31
+
+如黑环故事
+
+*****
+
+####  66367749  
+##### 310#       发表于 2026-8-21 19:32
+
+你不能从此侧登录<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

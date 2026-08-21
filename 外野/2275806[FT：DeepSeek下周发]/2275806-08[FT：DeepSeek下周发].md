@@ -1184,3 +1184,49 @@ vision 在推理的过程中会忘记自己会看图，还是想转换成ascii�
 <img src="https://p.sda1.dev/34/4ba832154fc22ee40bbe3e5fa244837a/image.jpg" referrerpolicy="no-referrer">
 BGM起<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绕指流光  
+##### 10483#         楼主| 发表于 2026-8-21 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121582&amp;ptid=2275806" target="_blank">ternayark 发表于 2026-8-21 19:27</a>
+
+BGM起</blockquote>
+都是峰哥，没毛病<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">峰哥宇宙实锤
+
+*****
+
+####  半江瑟瑟半江红  
+##### 10484#       发表于 2026-8-21 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121533&amp;ptid=2275806" target="_blank">Luminous脑壳痛 发表于 2026-8-21 19:18</a>
+比如格斗游戏(最终幻想纷争)加个新角色这种</blockquote>
+啊这……有点超纲了吧
+只能说，试试？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ Luminous脑壳痛 + 1我觉得未来的ai应该行,先试试
+
+查看全部评分
+
+
+*****
+
+####  魔法师lain  
+##### 10485#       发表于 2026-8-21 19:37
+
+那现在dsh编程是用什么方式好？是vs code加dsh插件好还是直接dsh加代码编辑器插件好？推荐哪个插件？我现在还在用trae
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

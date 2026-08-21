@@ -48,3 +48,19 @@
 
 2026-8-20 22:51 上传
 
+
+*****
+
+####  KIRI小威  
+##### 5926#       发表于 2026-8-21 19:27
+
+玩了60多个小时，终于打到X赛了，还真是全民X赛了。最后晋级赛卡了我好久，最后还是用巴勃罗偷蛤蜊偷赢了
+
+<img src="https://img.stage1st.com/forum/202608/21/192735eqn22cwkl2u7jczn.jpg" referrerpolicy="no-referrer">
+
+<strong>20260821191913-01M0J0MJTT69V7K5TVGEADSHK5.jpg</strong> (123.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-21 19:27 上传
+
