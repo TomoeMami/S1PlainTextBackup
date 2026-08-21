@@ -2529,3 +2529,11 @@ ox alpha用下来真还行吧，当然还是得看价格
 
 —— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  squallx  
+##### 10605#       发表于 2026-8-22 02:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这鱼不瞎了 比LUNA和哈基米都强啊   狂蹬
+
