@@ -14601,3 +14601,16 @@ ai泡沫破裂那是米国的事情 最近ds这一系列的事情来看 我国�
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  xiaohanne  
+##### 10239#       发表于 2026-8-21 09:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70116815&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-21 02:04</a>
+
+还有贴吧有人直接用同一个prompt在dsh里面测试灰测模型和fable
+
+两者cot确实很像，但是还是有很明显的区别 ...</blockquote>
+肯定是灰测，但灰测性能能落地多少才是关键。
+
