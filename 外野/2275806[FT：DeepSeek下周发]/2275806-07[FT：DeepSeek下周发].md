@@ -15492,3 +15492,21 @@ ox alpha先走起啊 能蹬一天是一天 之后事情之后算
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Milarvoz  
+##### 10320#       发表于 2026-8-21 14:07
+
+文峰时间到，下班！有什么事文谷再说。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  goranger  
+##### 10321#       发表于 2026-8-21 14:11
+
+这个楼目前为止就出现了一个所谓路由论支持者，L站本身对DeepSeek也是很友好的，删了很多贴，偶尔冒出来几个也是喷的多，说来说去最后还是脏token的问题，别的都被喷民科和俺寻思了。但是这个专楼，对着虚空输出喷路由论喷了不知道多少层<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
