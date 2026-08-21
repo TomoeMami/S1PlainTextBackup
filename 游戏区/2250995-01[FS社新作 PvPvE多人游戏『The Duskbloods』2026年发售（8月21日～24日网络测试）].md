@@ -1495,3 +1495,11 @@ ok,那感觉40帧流畅度可以接受
 
 然后FS好像很努力地考虑了对PVP苦手的玩家应该怎么调整机制，这方面我觉得是好事
 
+
+*****
+
+####  woshenc  
+##### 234#       发表于 2026-8-21 09:06
+
+看到胖宝宝坐四轮车笑喷，真血源卡丁车了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

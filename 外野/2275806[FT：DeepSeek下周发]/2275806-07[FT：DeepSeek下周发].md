@@ -14505,3 +14505,54 @@ K3这个参数量要2000W以上才能部署一个基本实例，最大号的个�
 在线进化的那么快，个人玩家部署本地大模型意义不大了好像。qwen3.8 27B满血57G权重，要真正跑满上下文也要 ...</blockquote>
 再往后，只有保密需求高的用户才会考虑本地部署了。破甲搞色图和刘备文的大概也需要
 
+
+*****
+
+####  燕山雪  
+##### 10230#       发表于 2026-8-21 09:08
+
+<blockquote>nxmonitor 发表于 2026-8-20 22:19
+能确定是没甲的，有人做了个鞭毛发动机的建模</blockquote>
+外行求科普，为啥要拒绝做鞭毛发动机？这玩意有啥潜在危险因素吗？
+
+
+*****
+
+####  nxmonitor  
+##### 10231#       发表于 2026-8-21 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117318&amp;ptid=2275806" target="_blank">燕山雪 发表于 2026-8-21 09:08</a>
+
+外行求科普，为啥要拒绝做鞭毛发动机？这玩意有啥潜在危险因素吗？</blockquote>
+因为提示词里是叫模型做一个细菌的鞭毛发动机，Fable这种会直接碰生物甲截断
+
+*****
+
+####  overflowal  
+##### 10232#       发表于 2026-8-21 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117182&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-21 08:43</a>
+我悲观 甚至怀疑5090或6090将会是最后一代消费级gpu
+后续除非国产gpu起步（amd那个跟nvidia一丘之貉的玩意 ...</blockquote>
+瓶颈根本就不在gpu上啊，在存储上。
+归根结底是逻辑电路一直微缩，但是存储电路的缩小很早之前就大幅度减缓了。。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  舞以  
+##### 10233#       发表于 2026-8-21 09:11
+
+梁文峰又开始了，抽卡都抽不起了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nxmonitor  
+##### 10234#       发表于 2026-8-21 09:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70117218&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-8-21 08:51</a>
+
+哎，臭打游戏的这波怕是要彻底寄了</blockquote>
+好消息是AI优化可能会比人强……
+
