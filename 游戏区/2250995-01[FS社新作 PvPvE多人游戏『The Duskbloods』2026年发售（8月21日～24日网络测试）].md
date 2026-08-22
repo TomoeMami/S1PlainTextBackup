@@ -3103,3 +3103,13 @@ FS按照一年一部的节奏在出游戏，明年又会是什么新IP，该轮�
 
 仪式时间你甚至可以跑路不去占点或者杀人，不过占点杀人拿的美德多
 
+
+*****
+
+####  kyonkoism  
+##### 404#       发表于 2026-8-22 13:07
+
+看了主播打boss拼尽全力打不过结果被旁边人收尾刀笑死
+
+性能确实很强，甚至让我产生老手对新手会产生AC级别的鸿沟的担忧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
