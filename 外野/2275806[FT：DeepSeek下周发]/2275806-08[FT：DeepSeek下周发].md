@@ -3932,3 +3932,38 @@ v模型我顶着高峰价格蹬的
 找一个聪明的写大纲，他来写文字</blockquote>
 很难，我感觉他好像不跟我在一个频道上，不太理解我的意图，改点什么东西也是顾头不顾尾的
 
+
+*****
+
+####  noneoneone  
+##### 10738#       发表于 2026-8-22 19:09
+
+如果llm的成本进一步降低，好像可以考虑在用户打字的时候就让大模型开始猜用户意图，提前准备答案。
+
+harness本身自带的提示词、记忆、项目内的指导文件怎么也会用到，就算问题猜错了，缓存也能命中一部分。
+
+猜对的话，可能用户这边字还没打完，那边就已经思考完毕，等着动手了。
+
+*****
+
+####  自由之紫roy  
+##### 10739#       发表于 2026-8-22 19:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126775&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-8-22 19:09</a>
+
+如果llm的成本进一步降低，好像可以考虑在用户打字的时候就让大模型开始猜用户意图，提前准备答案。
+
+harnes ...</blockquote>
+预判你的预判的预判
+
+
+*****
+
+####  舞以  
+##### 10740#       发表于 2026-8-22 19:14
+
+我觉得文学写作也许得反过来：
+大规模模型写具体的文本，大纲之类的反而和flash讨论就行<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
