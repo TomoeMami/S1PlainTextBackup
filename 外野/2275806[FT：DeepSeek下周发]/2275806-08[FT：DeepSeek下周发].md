@@ -3042,3 +3042,33 @@ d80b1731fc83d57233dbd6d281d99e80.jpg
 
 <img src="https://img.stage1st.com/forum/202608/22/104558fxg6cg667g1gzogu.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wandeeees  
+##### 10657#       发表于 2026-8-22 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124591&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-22 10:48</a>
+
+我已经买了，家里是公网ip，有阿里的云域名解析服务，也想用非审查模型，玩玩ai视频。我下单后，客服和我说 ...</blockquote>
+真壕啊，羡慕<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 10658#       发表于 2026-8-22 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124591&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-22 10:48</a>
+
+我已经买了，家里是公网ip，有阿里的云域名解析服务，也想用非审查模型，玩玩ai视频。我下单后，客服和我说 ...</blockquote>
+可以研究网剧一条龙变现了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  王兰花秀丽  
+##### 10659#       发表于 2026-8-22 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124591&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-22 10:48</a>
+我已经买了，家里是公网ip，有阿里的云域名解析服务，也想用非审查模型，玩玩ai视频。我下单后，客服和我说 ...</blockquote>
+想知道这个跑minimax  h3 15秒需要多久出，真眼馋啊    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
