@@ -2842,3 +2842,66 @@ deepseek harness现在在我看来就是更上位的pi agent，让他用创造�
 
 这是chatbox？没打开api内置的网络搜索功能吧。你试试网页版
 
+
+*****
+
+####  crow_wine  
+##### 10637#       发表于 2026-8-22 09:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124295&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-22 09:38</a>
+我准备买pro5000 72G了，原生支持p2p pcie，不过已经十万了未来看看是否可以再加一块组成144G显存 ...</blockquote>
+哥还是劝你冷静，先花和5000租个云服务器看看自己是不是搞infra这块的料
+别的不说说，算你硬件卖二手免费，其他的电费，机房维护，公网宽带不是那么简单的
+
+*****
+
+####  qwased  
+##### 10638#       发表于 2026-8-22 09:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124321&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-22 09:45</a>
+
+哥还是劝你冷静，先花和5000租个云服务器看看自己是不是搞infra这块的料
+
+别的不说说，算你硬件卖二手免费 ...</blockquote>
+自有硬件了不能保持24小时占用60%以上感觉都是爆亏<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">也不知道硬件涨价还能涨多久，不涨了的话折旧一点吓人
+
+*****
+
+####  tillnight  
+##### 10639#       发表于 2026-8-22 09:49
+
+<blockquote>龙骑士尹志平 发表于 2026-8-22 09:32
+所以上次跑分榜上拳打肥波脚踢gpt的神秘模型a到底是什么</blockquote>
+你说的是五月时候的猫榜？是真跑分高手qwen3.7max。这其实可以视作他公信力开始丢失的第一步。另外当时没有fable的，只是压着gpt5.5而已，虽然3.7max并不能压着5.5。
+
+当时还是“国模差距被越拉越开”时代，出来两个和当时顶模gpt5.5和opus4.8打的有来有回的纸面跑分那确实吸睛了。但是这是月月核爆的大模型界，当时榜上第一名的opus4.8现在是被各家flash对标的存在，也没人对什么跑分接近fable震惊瘫坐了，毕竟现在是人均fable级年代，a模型的下一代qwen3.8max本身就是其中一员。
+
+*****
+
+####  last_regret  
+##### 10640#       发表于 2026-8-22 09:49
+
+<blockquote>tillnight 发表于 2026-8-22 09:42
+这是chatbox？没打开api内置的网络搜索功能吧。你试试网页版</blockquote>
+网页版没有flash-vision-exp吧。开联网搜索后网页版能识别卡迪公，不能识别野兽；chatbox的flash-vision-exp都认不出来。我看贴吧还有把野兽认成梁子的
+
+
+*****
+
+####  passgan  
+##### 10641#       发表于 2026-8-22 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124334&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-22 09:47</a>
+
+自有硬件了不能保持24小时占用60%以上感觉都是爆亏也不知道硬件涨价还能涨多久，不涨了的话折旧一点吓人 ...</blockquote>
+极客湾的云飞在直播里说手机涨价可能要持续到29年，虽然不知道真的假的，不过硬件应该也有参考价值吧
+
+*****
+
+####  tillnight  
+##### 10642#       发表于 2026-8-22 09:52
+
+<blockquote>last_regret 发表于 2026-8-22 09:49
+网页版没有flash-vision-exp吧。开联网搜索后网页版能识别卡迪公，不能识别野兽；chatbox的flash-vision- ...</blockquote>
+网页版当然更新了，识图模式就是。昨天api更新4v的时候识图模式一起挂了一会，然后联网搜索就上线了，怎么可能没更新模型。
+
