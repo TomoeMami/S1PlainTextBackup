@@ -4515,3 +4515,44 @@ ds说：从你发来的最新日志来看，整个系统已经进入了一个 �
 
 目前做UI设计的哪家强？哈基米？KIMIK3？
 
+
+*****
+
+####  奈落的孤火花  
+##### 10786#       发表于 2026-8-22 21:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127684&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-8-22 21:26</a>
+
+我让另外一个ai给我出的方案，搞了个监听的双窗口，从8080转到8090，它会侦测当前的token消耗，自动压缩 ...</blockquote>
+是4090 48g吗？求分享<img src="https://static.stage1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">我也需要
+
+*****
+
+####  kinfox  
+##### 10787#       发表于 2026-8-22 21:40
+
+<blockquote>奈落的孤火花 发表于 2026-8-22 21:39
+是4090 48g吗？求分享我也需要</blockquote>
+24g。。。。我只能用q4量化模型😭
+
+
+*****
+
+####  奈落的孤火花  
+##### 10788#       发表于 2026-8-22 21:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127792&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-8-22 21:40</a>
+
+24g。。。。我只能用q4量化模型😭</blockquote>
+我是5090 32g，求方案总结md，我也想照着给配好<img src="https://static.stage1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lzchen  
+##### 10789#       发表于 2026-8-22 21:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127684&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-8-22 21:26</a>
+
+我让另外一个ai给我出的方案，搞了个监听的双窗口，从8080转到8090，它会侦测当前的token消耗，自动压缩 ...</blockquote>
+求方案，我的2080ti也想试试。
+
