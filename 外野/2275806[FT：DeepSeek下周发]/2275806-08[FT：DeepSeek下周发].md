@@ -4112,3 +4112,63 @@ Gork的Web端就是这样的，有些极简问题比如"1+1"直接在输入框�
 我去，官方他这缓存保存超过12个小时！牛哇！</blockquote>
 4点刷新 这是二游<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  厍无春  
+##### 10753#       发表于 2026-8-22 20:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126834&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-22 19:23</a>
+你试试语音输入法会不会偶尔让你着急拍桌子就知道这样行不行了。实际上微信语音输入法现在就这么干的
+
+论 ...</blockquote>
+微信输入法的语音和豆包输入法的有半档的差距，微信能用，豆包好用
+
+*****
+
+####  半江瑟瑟半江红  
+##### 10754#       发表于 2026-8-22 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126706&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-22 18:51</a>
+那可以拿rag和指令来控制啊
+找一个聪明的写大纲，他来写文字</blockquote>
+它指令遵循不行
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 10755#       发表于 2026-8-22 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126792&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-22 19:14</a>
+我觉得文学写作也许得反过来：
+大规模模型写具体的文本，大纲之类的反而和flash讨论就行</blockquote>
+肯定不行，参数小的模型思路很狭窄，用grilling 讨论提纲就能明显感觉出来，5.6sol＞d指导pro＞d指导flash
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  来都来了  
+##### 10756#       发表于 2026-8-22 20:24
+
+搓了一个pi的傻屌扩展<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/22/202443tmh0zuumxrx52y3t.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1787401482347_2.webp</strong> (372.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-22 20:24 上传
+
+<img src="https://img.stage1st.com/forum/202608/22/202443e3tu8qqooanqr3r0.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1787401482072_1.webp</strong> (240.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-22 20:24 上传
+
