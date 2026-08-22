@@ -3426,3 +3426,22 @@ ai好像什么都没带来 只是在浪费钱
 是的，习惯了deepseek这种工作流就发现业界主流那种越来越慢越来越贵的方向完全是开倒车，难怪A/在吹loop  ...</blockquote>
 因为业界主流（或者说资本画大饼方向）是往RSI式的AI for science 方向走的，宣传的突破数学猜想或者其他科学问题都是更需要深度思考而不是快速迭代，也就是说最终目的是没有人类介入。既然都没有人类介入了自然速度不是首要目标了。
 
+
+*****
+
+####  qwased  
+##### 10694#       发表于 2026-8-22 16:49
+
+我无语了，让哈基米给我出主意把他安装到WSL上，连着给出三轮错误指令<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  奈落的孤火花  
+##### 10695#       发表于 2026-8-22 16:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70125599&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-22 14:23</a>
+
+刚才梁文谷又找回前阵子跟flash pair programming的感觉了，快速迭代反复验证太爽了。sol/luna试用的这一 ...</blockquote>
+现在gpt订阅可以设置1m上下文了，只不过上下文大的时候价格翻倍，我已经用了几天了，还挺爽的，除了5.6系列反复走死胡同、撞南墙的问题很严重之外。
+
