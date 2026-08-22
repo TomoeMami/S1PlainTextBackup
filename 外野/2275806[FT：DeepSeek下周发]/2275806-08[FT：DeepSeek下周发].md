@@ -2804,3 +2804,41 @@ deepseek harness现在在我看来就是更上位的pi agent，让他用创造�
 
 野兽都认不出的屑
 
+
+*****
+
+####  自由之紫roy  
+##### 10633#       发表于 2026-8-22 09:38
+
+我准备买pro5000 72G了，原生支持p2p pcie，不过已经十万了<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">未来看看是否可以再加一块组成144G显存
+
+*****
+
+####  tillnight  
+##### 10634#       发表于 2026-8-22 09:39
+
+<blockquote>last_regret 发表于 2026-8-22 09:30
+感觉识图能力不错，但知识库差的很多啊。放了个卡迪公的立绘识别成妃英理了 ...</blockquote>
+现在能联网搜索了，还是好很多了。
+
+*****
+
+####  半江瑟瑟半江红  
+##### 10635#       发表于 2026-8-22 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124250&amp;ptid=2275806" target="_blank">last_regret 发表于 2026-8-22 09:30</a>
+感觉识图能力不错，但知识库差的很多啊。放了个卡迪公的立绘识别成妃英理了 ...</blockquote>
+毕竟是不到300B的flash，规模太小了。
+
+—— 来自 HUAWEI WGRR-W19, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  tillnight  
+##### 10636#       发表于 2026-8-22 09:42
+
+<blockquote>last_regret 发表于 2026-8-22 09:36
+野兽都认不出的屑</blockquote>
+
+这是chatbox？没打开api内置的网络搜索功能吧。你试试网页版
+
