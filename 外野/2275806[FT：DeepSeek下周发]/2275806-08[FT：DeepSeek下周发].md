@@ -3241,3 +3241,36 @@ o➗也被用户影响到训练agi了？
 
 现在被培养出来的对甜点模型的庞大需求无处可去了，到哪炸哪，OAI都顶不住，嘴上说luna管够实际上慢的要死
 
+
+*****
+
+####  自由之紫roy  
+##### 10677#       发表于 2026-8-22 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70125565&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-22 14:12</a>
+
+所以DS之前的白菜价flash算不算培养用户习惯了，flash0731的智力能满足90%以上的场景，又便宜到和电价差不 ...</blockquote>
+把我炸到自己高价买机器了。。。这真是dsv4flash惯出来的
+
+*****
+
+####  phorcys02  
+##### 10678#       发表于 2026-8-22 14:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70125583&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-22 14:19</a>
+
+把我炸到自己高价买机器了。。。这真是dsv4flash惯出来的</blockquote>
+老哥你这个配置跑 v4f  能有多少 pp和tg...长上下文的
+
+*****
+
+####  LeoDT  
+##### 10679#       发表于 2026-8-22 14:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70125565&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-22 14:12</a>
+
+所以DS之前的白菜价flash算不算培养用户习惯了，flash0731的智力能满足90%以上的场景，又便宜到和电价差不 ...</blockquote>
+刚才梁文谷又找回前阵子跟flash pair programming的感觉了，快速迭代反复验证太爽了。sol/luna试用的这一周总结下来就是这效率根本就是浪费时间，我刷网页等它的时间明显增多，而且context焦虑过于严重，经常handoff，以前被flash惯出来的工作流完全没法用。
+
+plus的20刀肯定是压不住flash随便用，但是用量考虑真订100刀的话还不如全给flash了。
+
