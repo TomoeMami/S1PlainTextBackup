@@ -2820,3 +2820,11 @@ fs服务器填的127.0.0.1忘改了，别慌
 
 这游戏还要买联机会员？FS的服务器配吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pzk  
+##### 372#       发表于 2026-8-22 07:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">到现在都没有新推特发出来，10点可能也玩不上了
+
