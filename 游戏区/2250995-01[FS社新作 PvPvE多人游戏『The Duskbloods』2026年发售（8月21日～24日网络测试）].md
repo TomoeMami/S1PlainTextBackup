@@ -3056,3 +3056,11 @@ FS按照一年一部的节奏在出游戏，明年又会是什么新IP，该轮�
 第二把选了个狙击手，就瞎逛地图，见到小兵就杀，然后两次结尾核心区乱斗也没跑过去，莫名其妙苟到倒数第三进决赛圈了。然后和第二名一起围殴第一名，最后凭卡b之力吃鸡了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 目前和黑环前期一样感受不到很明确的游玩乐趣。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">主要是刚上手全看不懂资源点在哪里。
 
+
+*****
+
+####  Zeno_5  
+##### 399#       发表于 2026-8-22 12:21
+
+我居然可以裸连玩，之前黑环必须要加速器才进得去<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
