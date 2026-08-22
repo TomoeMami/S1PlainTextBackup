@@ -923,3 +923,14 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 
 通了，最终boss除了那个缴械debuff感觉并不强，整体玩下来地图设计真是不敢恭维，后期堆怪也很恶心，还好后期玩家bd成型后战力看的过去，不然不敢想有多折磨
 
+
+*****
+
+####  FBC档案部专员  
+##### 96#       发表于 2026-8-22 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126281&amp;ptid=2282975" target="_blank">ku2154513 发表于 2026-8-22 17:00</a>
+
+骨石和胸石有啥用啊</blockquote>
+武器强化，通关后解锁强化上限
+
