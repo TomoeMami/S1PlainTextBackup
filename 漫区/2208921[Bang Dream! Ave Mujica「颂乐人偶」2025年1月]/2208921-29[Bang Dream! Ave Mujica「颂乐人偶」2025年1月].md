@@ -479,3 +479,118 @@ Ave Mujica - SUMMER SONIC 2026</blockquote>
 #BanGDream# #交织的乐章# #祐天寺若麦#</blockquote>
        [https://www.bilibili.com/video/BV1MY8M6mEvY](https://www.bilibili.com/video/BV1MY8M6mEvY)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42004#       发表于 2026-8-23 01:27
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/23/012659lix0bs63bb35bi5h.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-08-23_01-19-32.jpg</strong> (274.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-23 01:26 上传
+
+       [https://x.com/bang_dream_info/status/2091133284285632951](https://x.com/bang_dream_info/status/2091133284285632951)
+
+       [https://www.youtube.com/watch?v=xp6FLDw8d-k](https://www.youtube.com/watch?v=xp6FLDw8d-k)
+
+     <strong>【中日歌词】「残酷天使的行动纲领（残酷な天使のテーゼ）」Coverd by Doloris from Ave Mujica</strong> &lt;——bilibili非官方搬运 <blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/23/012659mymp0c7nj4n0278s.jpg" referrerpolicy="no-referrer">
+
+<strong>maxresdefault.jpg</strong> (313.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-23 01:26 上传
+
+[https://youtu.be/xp6FLDw8d-k?si=IR7RSIH_tFa9eS8w](https://youtu.be/xp6FLDw8d-k?si=IR7RSIH_tFa9eS8w)
+
+「残酷な天使のテーゼ」Coverd by Doloris from Ave Mujica
+
+【制作】
+
+原曲：  
+
+ • 「残酷な天使のテーゼ」MUSIC VIDEO（HDver.）/Zankoku na ...  
+
+作詞：及川眠子
+
+作曲：佐藤英敏
+
+編曲：植木建象、冬真
+
+イラスト：鮭まゆ　 
+
+ / syakemayusan  
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+Ave Mujica 7th LIVE「Virtus」
+
+2026年10月24日(土)・25日(日) @ 京王アリーナ TOKYO
+
+現在、チケットプレイガイド先行が9月2日(水)まで受付中。
+
+詳しくはこちら：[https://bang-dream.com/events/avemuji...](https://bang-dream.com/events/avemuji...)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica Best Album「Ave Música」
+
+好評発売中
+
+数量限定生産特装盤・Blu-ray付生産限定盤にはAve Mujica 6th LIVE「Ulterius Procedere」東京公演の映像を収録。
+
+詳しくはこちら：[https://bang-dream.com/discographies/...](https://bang-dream.com/discographies/...)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica ミニAlbum「神の名を」
+
+2026年10月21日(水)リリース
+
+2026年10月16日公開の映画「BanG Dream! Ave Mujica prima aurora」挿入歌を収録。
+
+詳しくはこちら：[https://bang-dream.com/discographies/...](https://bang-dream.com/discographies/...)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+新作モバイルゲーム「BanG Dream! Our Notes（アワーノーツ）」
+
+2026年リリース
+
+詳しくはこちら：[https://bang-dream-on.bushimo.jp/](https://bang-dream-on.bushimo.jp/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+◇バンドリ！
+
+公式サイト：[https://bang-dream.com/](https://bang-dream.com/)
+
+公式X： 
+
+ / bang_dream_info  
+
+◇Ave Mujica
+
+公式YouTubeチャンネル：  
+
+ / @bang_dream_avemujica  
+
+公式X： 
+
+ / bdp_avemujica  
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+#残酷な天使のテーゼ #AveMujica #バンドリ</blockquote>
+     [https://www.bilibili.com/video/BV1DJ8m6fEao](https://www.bilibili.com/video/BV1DJ8m6fEao)
+
