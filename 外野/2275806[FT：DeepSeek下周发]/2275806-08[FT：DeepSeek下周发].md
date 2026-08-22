@@ -3320,3 +3320,22 @@ plus的20刀肯定是压不住flash随便用，但是用量考虑真订100刀的
 另外这几天蹬了gemini 3.7flash差不多30%的周限额，感觉哈基米用来许愿编程还是比flash0731笨很多，一个启 ...</blockquote>
 不过快是真的快，超高速迭代两三天就差不多把周限用完了
 
+
+*****
+
+####  goranger  
+##### 10684#       发表于 2026-8-22 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70125599&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-22 14:23</a>
+刚才梁文谷又找回前阵子跟flash pair programming的感觉了，快速迭代反复验证太爽了。sol/luna试用的这一 ...</blockquote>
+同感，luna开fast模式勉强摸到flash一点边，但是太钻牛角尖了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  江月下  
+##### 10685#       发表于 2026-8-22 15:09
+
+请问一下楼u，dsh更新之后标准模式的预设会更好用吗，现在还有let me和we need的区分吗
+
