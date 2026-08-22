@@ -2924,3 +2924,38 @@ fs服务器填的127.0.0.1忘改了，别慌
 
 —— 来自 HUAWEI VDE-AL00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  ShiKi847  
+##### 384#       发表于 2026-8-22 10:26
+
+FS按照一年一部的节奏在出游戏，明年又会是什么新IP，该轮到谷村唯的团队带的作品了吧
+
+*****
+
+####  clyde-wang  
+##### 385#       发表于 2026-8-22 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124454&amp;ptid=2250995" target="_blank">u2deack 发表于 2026-8-22 10:16</a>
+这角色用血瓶的抬手姿势都很血源，帧数也完美还原
+不过掌机模式的画面真的有点一般，室内感觉有40真出门就3 ...</blockquote>
+掌机上玩帧数没觉得室内室外掉的很明显，开始那着火的村庄里也都挺稳的
+
+
+*****
+
+####  clyde-wang  
+##### 386#       发表于 2026-8-22 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124449&amp;ptid=2250995" target="_blank">jinuzuktII 发表于 2026-8-22 10:15</a>
+画面比想象中还好一点，但是这个帧数好低哦</blockquote>
+肯定没锁帧，掌机上应该是高于30的
+
+*****
+
+####  petitlui  
+##### 387#       发表于 2026-8-22 10:33
+
+看直播画面比我预期的要好诶，不知道是不是因为主播都用的主机模式
+
