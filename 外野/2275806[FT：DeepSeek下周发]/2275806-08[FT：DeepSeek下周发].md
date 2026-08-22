@@ -4958,3 +4958,13 @@ V4FV人体识别能力不错啊 拿自己的测试图4K单人三只手BUG OPS啥
 才发现老黄平台上了免费k3，可以用k3文爱了</blockquote>
 能用多少token？我上次用英伟达的API，特么用GLM5.2一个问题都没解决就给我402了
 
+
+*****
+
+####  谎称  
+##### 10826#       发表于 2026-8-23 00:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70128576&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-8-23 00:01</a>
+才发现老黄平台上了免费k3，可以用k3文爱了</blockquote>
+老兄，你连英伟达的api质量怎么样，我这里连接很慢，动不动就掉线……
+
