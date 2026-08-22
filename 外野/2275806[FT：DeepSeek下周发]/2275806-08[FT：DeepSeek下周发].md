@@ -3201,3 +3201,21 @@ https://agentrouter.org/register?aff=gUnC
 
 算了一下plus被砍了20%，和网传数据基本一致。
 
+
+*****
+
+####  舞以  
+##### 10673#       发表于 2026-8-22 13:53
+
+最近我codex都会弹提示建议我用更快更便宜的模型<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+o➗不会也在整蛊了吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cowji  
+##### 10674#       发表于 2026-8-22 13:56
+
+这两天基本干一样的活，codex 100刀套餐周额度直接干掉40%<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">肉眼可见的比以前掉的快了
+
