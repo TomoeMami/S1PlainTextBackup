@@ -414,3 +414,11 @@ flash3.7不卡不慢，但是依然很菜<img src="https://static.stage1st.com/i
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">AI原生思维是不是发送“我要一个亿”给7B模型，睡一觉醒来AGI回复你一亿歼星舰已经停在拉格朗日点等待伟大征程，即不需要任何介入的万能许愿机？
 
+
+*****
+
+####  痴货  
+##### 42#       发表于 2026-8-23 02:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> DSH最大的进步是构造了一个可以让AI自主改造进化的平台，而不是像目前传统的工具那样有一个明显的操作者和**作对象，这二者往往会有泾渭分明的界限隔离，然而这两者在DSH里面都被当成了插件，因此工具本身也可以改造自己来提升，达到自进化，这也是符合DeepSeek理想中的AGI方向。
+
