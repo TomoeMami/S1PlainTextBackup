@@ -5113,3 +5113,48 @@ V4FV人体识别能力不错啊 拿自己的测试图4K单人三只手BUG OPS啥
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  novalli  
+##### 10841#       发表于 2026-8-23 01:19
+
+这都过了1点了才收到deepseek的邮件，我这是哪个时区？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  novalli  
+##### 10842#       发表于 2026-8-23 01:20
+
+之前说周末的时候我就在想，调休什么的怎么算？其实按工作日调整好像问题也不大，毕竟每年放假时间早就固定好了，每年刷新一次日历就好。
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  唠叨  
+##### 10843#       发表于 2026-8-23 01:20
+
+<img src="https://img.stage1st.com/forum/202608/23/012038ahz3meomh1mezqmo.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-08-23_012024_170.jpg</strong> (28.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-23 01:20 上传
+
+蹬爆 睡觉
+
+*****
+
+####  goranger  
+##### 10844#       发表于 2026-8-23 01:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70128488&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-8-22 23:44</a>
+搜了搜，要192g内存的……我只有48g，现在内存这个价格也没法买了</blockquote>
+可以玩qwen，据说也很能打
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
