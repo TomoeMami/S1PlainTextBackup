@@ -3072,3 +3072,22 @@ d80b1731fc83d57233dbd6d281d99e80.jpg
 我已经买了，家里是公网ip，有阿里的云域名解析服务，也想用非审查模型，玩玩ai视频。我下单后，客服和我说 ...</blockquote>
 想知道这个跑minimax  h3 15秒需要多久出，真眼馋啊    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  qwased  
+##### 10660#       发表于 2026-8-22 11:07
+
+另外这几天蹬了gemini 3.7flash差不多30%的周限额，感觉哈基米用来许愿编程还是比flash0731笨很多，一个启动WSL对应项目+保活的脚本他先把之前flash0731一轮就做好的改坏了，我发现了之后聊了两轮才成功自己独立思考改回去flash0731的做法<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  自由之紫roy  
+##### 10661#       发表于 2026-8-22 11:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124676&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-22 11:05</a>
+
+想知道这个跑minimax  h3 15秒需要多久出，真眼馋啊    Re:Source</blockquote>
+比5090 32G慢15%，比4090快20%，就是质量高的纹理，长工作流不会爆
+
