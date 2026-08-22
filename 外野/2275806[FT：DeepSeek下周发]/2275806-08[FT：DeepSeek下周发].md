@@ -3827,3 +3827,18 @@ friends，说不定是之前从谷歌离职那批人搞的？
 说到 ...</blockquote>
 glm根本不测试的，之前那个5.0就有bug，官方API复读和乱码的频率都很高，到最后都没修好，用turbo撑了一个多月后赶紧发布5.1了。那个bug好像是多并发的时候kv缓存时序会错位，甚至能读到其他用户的上下文。
 
+
+*****
+
+####  冤枉呐  
+##### 10728#       发表于 2026-8-22 18:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126311&amp;ptid=2275806" target="_blank">NONORIRI 发表于 2026-8-22 17:08</a>
+比起机械飞升，更像是跟他们信仰的宗教差不多，期待弥赛亚或者耶稣再临，之后就演绎圣经剧本由带着大能力 ...</blockquote>
+因信称义嘛
+预设：他们是上帝选民
+结论：他们一定会赢。
+结果被非教徒逼在身后，万一被超了就完犊子了，要么上帝抛弃他们，要么这届上帝不行。
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
