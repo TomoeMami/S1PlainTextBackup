@@ -3231,3 +3231,13 @@ o➗也被用户影响到训练agi了？
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  qwased  
+##### 10676#       发表于 2026-8-22 14:12
+
+所以DS之前的白菜价flash算不算培养用户习惯了，flash0731的智力能满足90%以上的场景，又便宜到和电价差不多，蹬的越多蹬的越爽<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在被培养出来的对甜点模型的庞大需求无处可去了，到哪炸哪，OAI都顶不住，嘴上说luna管够实际上慢的要死
+
