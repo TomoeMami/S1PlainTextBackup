@@ -4608,3 +4608,75 @@ K3，gemini就当它死了就行，从来都不用放在考虑范围内
 
 ds4文笔其实已经非常好了，flash比较平实的写法反而比较像人类。不过pro也有好处，就是思考更丰富一点，偶尔抽卡能抽到非常牛逼的句子
 
+
+*****
+
+####  蜇灵  
+##### 10794#       发表于 2026-8-22 21:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126819&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-22 19:20</a>
+
+我觉得楼友被外国人骗了，他们为了准牺牲了快，然后说所谓loop啥的，但实际上其实他们也知道，你随便讲几句 ...</blockquote>
+本质上是资本家对于自己发动人类主观能动性的能力不乐观，于是寄希望于AGI毕其功于一役吧
+
+*****
+
+####  zhongjie  
+##### 10795#       发表于 2026-8-22 22:00
+
+这个改价是从今晚开始，还是明晚开始？
+
+*****
+
+####  蜇灵  
+##### 10796#       发表于 2026-8-22 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127302&amp;ptid=2275806" target="_blank">酱狐狸 发表于 2026-8-22 20:33</a>
+尊敬的 DeepSeek API 用户：
+
+您好！
+
+我们将于北京时间 2026 年 8 月 23 日（周日）00:00 起，对峰谷计费规 ...</blockquote>
+草，原来是之前搞忘了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蜇灵  
+##### 10797#       发表于 2026-8-22 22:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127909&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-8-22 22:00</a>
+
+这个改价是从今晚开始，还是明晚开始？</blockquote>
+23日0时，就是两个小时后开始吧
+
+*****
+
+####  BarricadeMKXX  
+##### 10798#       发表于 2026-8-22 22:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127391&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-22 20:43</a>
+
+这deepseek也太草台了吧，为什么这种事情现在才想起来？我看等到公休日时，他们这个公告还要再改一次。 ...</blockquote>
+公休日好办，直接发个限时折扣<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  goranger  
+##### 10799#       发表于 2026-8-22 22:06
+
+本周五，AI 社区热烈讨论的是一个端侧大模型部署技术，它能让笔记本 RTX 4060 跑 Qwen 3.6-35B，桌面 RTX 5090 跑得起 DeepSeek-V4-Flash 284B。而且都是单卡，模型都是满血的。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  goranger  
+##### 10800#       发表于 2026-8-22 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127930&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-8-22 22:02</a>
+23日0时，就是两个小时后开始吧</blockquote>
+现在本来就是梁文谷，当成现在开始也没差啊
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
