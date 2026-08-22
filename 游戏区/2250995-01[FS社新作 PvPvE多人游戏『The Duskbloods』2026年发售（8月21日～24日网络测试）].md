@@ -3064,3 +3064,32 @@ FS按照一年一部的节奏在出游戏，明年又会是什么新IP，该轮�
 
 我居然可以裸连玩，之前黑环必须要加速器才进得去<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哎哟卧槽了  
+##### 400#       发表于 2026-8-22 12:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70125027&amp;ptid=2250995" target="_blank">serj005 发表于 2026-8-22 12:12</a>
+第一把选初始角色被打烂了，完全玩不明白，和黑夜君临刚开始一样懵逼，都不知道我在哪我要干啥。
+第二把选 ...</blockquote>
+聽起來就像嗜血印的大肉搏模式……<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+—— 來自 Google Pixel 2, Android 11, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  ParukiaMKII  
+##### 401#       发表于 2026-8-22 12:33
+
+目前玩了3个角色，女的，老头，胖宝宝，感觉老头强度是最高的
+
+
+*****
+
+####  pzk  
+##### 402#       发表于 2026-8-22 12:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">老实说玩得很懵逼，有几场有美德高得吓人的对手，有几场又是大家都不知道在干啥慢慢蠕动……
+
