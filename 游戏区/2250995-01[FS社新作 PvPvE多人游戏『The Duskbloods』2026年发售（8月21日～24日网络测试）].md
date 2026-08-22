@@ -3113,3 +3113,52 @@ FS按照一年一部的节奏在出游戏，明年又会是什么新IP，该轮�
 
 性能确实很强，甚至让我产生老手对新手会产生AC级别的鸿沟的担忧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Leliel  
+##### 405#       发表于 2026-8-22 13:09
+
+看了点直播，原来这游戏内容就是血源边角料拾掇出来的吃鸡？<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 406#       发表于 2026-8-22 13:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70125297&amp;ptid=2250995" target="_blank">kyonkoism 发表于 2026-8-22 13:07</a>
+看了主播打boss拼尽全力打不过结果被旁边人收尾刀笑死
+
+性能确实很强，甚至让我产生老手对新手会产生AC级别 ...</blockquote>
+是不是被个狙击哥抢了，球魂刚遇见个血手扬打狼打一半死了他妹妹收人头
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  5ew47  
+##### 407#       发表于 2026-8-22 13:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">真好玩，拿美德的方式实在太多了。最亏的应该是开boss结果没人来没打死的情况
+
+*****
+
+####  kyonkoism  
+##### 408#       发表于 2026-8-22 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70125312&amp;ptid=2250995" target="_blank">ParadiseMartyr 发表于 2026-8-22 13:11</a>
+
+是不是被个狙击哥抢了，球魂刚遇见个血手扬打狼打一半死了他妹妹收人头
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+看UCYU的直播，他就是狙击哥，打骑兵被大招秒杀了3次，最后一次剩一丝丝血，结果回来的时候boss没了分也没了，蛆的一笔<img src="https://static.stage1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzf111  
+##### 409#       发表于 2026-8-22 13:13
+
+铃椛在后院竞技场里打了十分钟 两个人还没干掉对面那个马拉松选手<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+直播效果是有了
+

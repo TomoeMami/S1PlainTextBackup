@@ -3185,3 +3185,11 @@ https://agentrouter.org/register?aff=gUnC
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  小野賢章  
+##### 10671#       发表于 2026-8-22 13:06
+
+昨晚8点好像又更新了呀，现在直接把仓库clone下来用pnpm自己安装的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
