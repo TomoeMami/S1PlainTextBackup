@@ -4825,3 +4825,35 @@ hy4低价可能性是有的，毕竟藤子有的是钱<img src="https://static.s
 价格有惊喜？</blockquote>
 个人简介把xhs四万粉当成就写、做自媒体都没混上ai三大顶刊级别的小卡米，蒙对了流量吃饱，蒙错了无事发生
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 10813#       发表于 2026-8-22 22:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70128039&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-22 22:23</a>
+你这绝对是上下文里塞了皇牌空战零的文本吧！</blockquote>
+我就是让它帮我找ac0的汉化镜像，它找到以后给我来句这个
+之前让d指导给我写游戏修改器它也会说玩得开心什么的
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  noneoneone  
+##### 10814#       发表于 2026-8-22 22:39
+
+ox有眼睛吗
+
+
+*****
+
+####  真红之闪电  
+##### 10815#       发表于 2026-8-22 22:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127391&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-22 20:43</a>
+这deepseek也太草台了吧，为什么这种事情现在才想起来？我看等到公休日时，他们这个公告还要再改一次。 ...</blockquote>
+就是不是很在乎…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
