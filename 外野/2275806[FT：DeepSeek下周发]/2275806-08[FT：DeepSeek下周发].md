@@ -3584,3 +3584,32 @@ ox模型世界知识应该比flash好，对同样现象的判断要比flash更�
 
 2026-8-22 17:29 上传
 
+
+*****
+
+####  qwased  
+##### 10708#       发表于 2026-8-22 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126291&amp;ptid=2275806" target="_blank">厍无春 发表于 2026-8-22 17:03</a>
+
+直接把它接到 Agent 上，让它帮你装，不就得了。</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/22/174035prf8tvzl3kxkfjxk.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2026-08-22_17-40-23.png</strong> (117.77 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-22 17:40 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哈基米的智力真不如DS flash吧，让写个方便使用的脚本他直接把文件炸了，然后搜了半天硬盘没找到安装文件，摆烂了
+
+*****
+
+####  舞以  
+##### 10709#       发表于 2026-8-22 17:42
+
+哈基米别的不说，快是真的快
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
