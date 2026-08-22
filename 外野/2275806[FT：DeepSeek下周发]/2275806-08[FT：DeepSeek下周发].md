@@ -4750,3 +4750,48 @@ D指导活人感这块真没得说，吭哧瘪肚帮我找了汉化镜像，还�
 本周五，AI 社区热烈讨论的是一个端侧大模型部署技术，它能让笔记本 RTX 4060 跑 Qwen 3.6-35B，桌面 RTX 5 ...</blockquote>
 是那个ssd加速吗，好像没啥用
 
+
+*****
+
+####  qwased  
+##### 10806#       发表于 2026-8-22 22:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70128006&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-22 22:15</a>
+文心活了？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0</blockquote>
+文心微调的glm？感觉是不是有点丢人啊，百度好歹也是个大厂吧，a/还有百度血脉呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jinuzuktII  
+##### 10807#       发表于 2026-8-22 22:18
+
+谜语人四个马先
+
+不能说就闭嘴
+
+*****
+
+####  kinfox  
+##### 10808#       发表于 2026-8-22 22:21
+
+😏真是文心就好玩了，希望再来一个颠覆价格区间的，毕竟ds涨价真的痛。
+
+今天还试了onirth1.5那个，比qwen3.8都不如。本地部署qwen对我们这种24g显存的可怜人来说，已经算最好选择了😭
+
+希望以后多来点其他选择啊
+
+
+*****
+
+####  hugosol  
+##### 10809#       发表于 2026-8-22 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127971&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-22 22:08</a>
+
+D指导活人感这块真没得说，吭哧瘪肚帮我找了汉化镜像，还约定在圆桌再见
+
+—— 来自 HUAWEI SGU-AL10, Andr ...</blockquote>
+你这绝对是上下文里塞了皇牌空战零的文本吧！
+

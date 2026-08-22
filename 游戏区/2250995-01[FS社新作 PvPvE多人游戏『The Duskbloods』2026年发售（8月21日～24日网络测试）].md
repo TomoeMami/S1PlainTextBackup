@@ -3449,3 +3449,21 @@ boss分地图上没有提示的，入侵和强入侵。作为提供血之力的�
 不知道正式版有多少角色，每个角色还有没有替换技，这游戏真得当EXVS玩了，阿尔伯特那个照射不抓落地感觉兹 ...</blockquote>
 老贼说有10多个吧，而且角色技能都是可以自定义的
 
+
+*****
+
+####  kyonkoism  
+##### 435#       发表于 2026-8-22 22:18
+
+<img src="https://img.stage1st.com/forum/202608/22/221808bhbr98v5czvzbg2x.png" referrerpolicy="no-referrer">
+
+<strong>1[[VRFROME7N%}AMB`JTGF7.png</strong> (36.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-22 22:18 上传
+
+看评论区有个完整版猜测
+
+如果真的局内的变量能做到trpg那么多，那真得好玩疯了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
