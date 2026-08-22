@@ -4373,3 +4373,28 @@ harnes ...</blockquote>
 
 可能官网和api都是v4f管理，真人也就审核下，等投诉反馈多了才想起来这个时间没把周末和节假日放进去。
 
+
+*****
+
+####  王兰花秀丽  
+##### 10774#       发表于 2026-8-22 21:01
+
+喷了，最近活真的多，感觉和鲸鱼娘的联系都更紧密了<img src="https://static.stage1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  妄想中毒  
+##### 10775#       发表于 2026-8-22 21:01
+
+Cherry Studio为啥用了V4FV还是识别不了图片
+
+*****
+
+####  neptunehs  
+##### 10776#       发表于 2026-8-22 21:02
+
+ox根本用不了 今晚准备充钱重回梁文谷
+有没有那个鲸鱼娘亲自帮计费的那个dsh插件的地址？（
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
