@@ -4203,3 +4203,102 @@ DeepSeek 团队
 
 终于想起周末的事了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wandeeees  
+##### 10759#       发表于 2026-8-22 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127302&amp;ptid=2275806" target="_blank">酱狐狸 发表于 2026-8-22 20:33</a>
+
+尊敬的 DeepSeek API 用户：
+
+您好！
+
+我们将于北京时间 2026 年 8 月 23 日（周日）00:00 起，对峰谷计费规 ...</blockquote>
+哈哈哈哈哈，加班发个公告吗，太草台了<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  龙骑士尹志平  
+##### 10760#       发表于 2026-8-22 20:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127302&amp;ptid=2275806" target="_blank">酱狐狸 发表于 2026-8-22 20:33</a>
+
+尊敬的 DeepSeek API 用户：
+
+您好！
+
+我们将于北京时间 2026 年 8 月 23 日（周日）00:00 起，对峰谷计费规 ...</blockquote>
+过于草台
+
+
+*****
+
+####  cscbzcbz  
+##### 10761#       发表于 2026-8-22 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127302&amp;ptid=2275806" target="_blank">酱狐狸 发表于 2026-8-22 20:33</a>
+尊敬的 DeepSeek API 用户：
+您好！
+我们将于北京时间 2026 年 8 月 23 日（周日）00:00 起，对峰谷计费规 ...</blockquote>
+靠，我都顶着峰值蹬了一天了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要想用新的V模型
+辛苦梁子周末加班来发通知和改价格逻辑<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jinuzuktII  
+##### 10762#       发表于 2026-8-22 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126775&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-8-22 19:09</a>
+
+如果llm的成本进一步降低，好像可以考虑在用户打字的时候就让大模型开始猜用户意图，提前准备答案。
+
+harnes ...</blockquote>
+以后游戏画面是AI算的，会话是AI猜的，卧槽
+
+
+*****
+
+####  2017.05.04  
+##### 10763#       发表于 2026-8-22 20:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127302&amp;ptid=2275806" target="_blank">酱狐狸 发表于 2026-8-22 20:33</a>
+尊敬的 DeepSeek API 用户：
+您好！
+我们将于北京时间 2026 年 8 月 23 日（周日）00:00 起，对峰谷计费规 ...</blockquote>
+笑出声了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">周六才想起这茬
+
+—— 来自 HUAWEI SGT-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  阿刚  
+##### 10764#       发表于 2026-8-22 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126792&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-22 19:14</a>
+
+我觉得文学写作也许得反过来：
+
+大规模模型写具体的文本，大纲之类的反而和flash讨论就行</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">虽然但是，我觉的flash的正文写作比pro要好不知道为啥，pro总是会把ai臭带出来
+
+*****
+
+####  来都来了  
+##### 10765#       发表于 2026-8-22 20:43
+
+这deepseek也太草台了吧，为什么这种事情现在才想起来？我看等到公休日时，他们这个公告还要再改一次。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿刚  
+##### 10766#       发表于 2026-8-22 20:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127349&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-22 20:37</a>
+
+靠，我都顶着峰值蹬了一天了主要想用新的V模型
+
+辛苦梁子周末加班来发通知和改价格逻辑 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">你们都不看官网价格公告是吧，一开始就没提周末全是营销号传来传去
+
