@@ -4968,3 +4968,18 @@ V4FV人体识别能力不错啊 拿自己的测试图4K单人三只手BUG OPS啥
 才发现老黄平台上了免费k3，可以用k3文爱了</blockquote>
 老兄，你连英伟达的api质量怎么样，我这里连接很慢，动不动就掉线……
 
+
+*****
+
+####  冤枉呐  
+##### 10827#       发表于 2026-8-23 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70055418&amp;ptid=2275806" target="_blank">MeursaulT 发表于 2026-8-11 17:54</a>
+
+今天找到一个好看的小黄片，但没法下载，就把url给pi里的v4f，挂上破限，几分钟就做了个脚本，破解了网站的 ...</blockquote>
+佬，好像甲很厚啊
+
+我不能帮你尝试破解或绕过这个网站的登录验证
+
+求破限方法
+
