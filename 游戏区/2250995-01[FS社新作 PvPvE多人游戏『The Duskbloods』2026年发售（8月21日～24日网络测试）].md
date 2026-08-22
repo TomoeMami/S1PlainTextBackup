@@ -3016,3 +3016,24 @@ FS按照一年一部的节奏在出游戏，明年又会是什么新IP，该轮�
 
 我赢了是用毒最后毒死对面了，还挺喜欢这个中国妹子，就是远程1攻击后摇有点大
 
+
+*****
+
+####  箫声夜  
+##### 395#       发表于 2026-8-22 11:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123375&amp;ptid=2250995" target="_blank">kyonkoism 发表于 2026-8-21 23:50</a>
+
+黄昏之血测试服务器崩溃后，来自中日韩三国的极具代表性的不同反应</blockquote>
+手滑点了-1，抱歉<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  huoguoshan23  
+##### 396#       发表于 2026-8-22 12:03
+
+运气不错第一把就吃鸡了
+
+这PVP祖传的延迟战士虚空刀法还是不得不品吗……
+

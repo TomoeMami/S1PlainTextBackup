@@ -3130,3 +3130,44 @@ d80b1731fc83d57233dbd6d281d99e80.jpg
 套餐 Credits 用量两天没变了，但是最后统计时间：2026-08-22 11:32:16，明明这两天我都在猛猛蹬，已经多次 ...</blockquote>
 没错，我有几次也是猛蹬后发现额度没少，权当额度重置福利了
 
+
+*****
+
+####  cscbzcbz  
+##### 10666#       发表于 2026-8-22 11:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124817&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-22 11:33</a>
+套餐 Credits 用量两天没变了，但是最后统计时间：2026-08-22 11:32:16，明明这两天我都在猛猛蹬，已经多次 ...</blockquote>
+国算这个延迟特别高，感觉一天才正真更新一次
+今天国算特别顺滑，不知道是优化了部署和硬件，还是就是周末需求少了
+
+*****
+
+####  囧Smith  
+##### 10667#       发表于 2026-8-22 11:56
+
+有楼友知道OpenCode go到底怎么计费的吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+我查了opencode自己和支付宝的记录都只有六月份的5刀支付，但go的api我到现在都还能正常用<img src="https://static.stage1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  城北无尘  
+##### 10668#       发表于 2026-8-22 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124938&amp;ptid=2275806" target="_blank">囧Smith 发表于 2026-8-22 11:56</a>
+有楼友知道OpenCode go到底怎么计费的吗
+我查了opencode自己和支付宝的记录都只有六月份的5刀支付，但go的a ...</blockquote>
+楼里好像不止你一个人的opencode go碰到这种问题
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  半江瑟瑟半江红  
+##### 10669#       发表于 2026-8-22 12:03
+
+我设置的信用卡自动扣费怎么每个月都没算错<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
