@@ -3686,3 +3686,13 @@ ND上看到疑似是血源的FS新作—激动万分
 
 pve内容还是难受，怪物就那么几种，打起来还没意思。
 
+
+*****
+
+####  wasian  
+##### 457#       发表于 2026-8-23 04:46
+
+魂系主播清一色的大斧哥，偶尔夹杂着一两个个越南妹，太踹哈了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+高墙薪王的场景仿佛就在昨天
+
