@@ -2664,3 +2664,52 @@ kimi3.1卡这个时间点搞不好要拿第一啊
 鲸鱼娘自己说的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这对美国不是正和上班时间么，有时差区分么
 
+
+*****
+
+####  overflowal  
+##### 10619#       发表于 2026-8-22 08:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124104&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-22 08:41</a>
+其实我是不大能理解为啥要匿名的 是为了出事的时候撤回吗 
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0 ...</blockquote>
+炒作用。
+deepseek 就从来不干这事    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  tillnight  
+##### 10620#       发表于 2026-8-22 08:50
+
+有没有可能匿名就是炒作的一部分，让你猜就是社区热度的最大来源。
+
+而且又不是tease你很久，一般都会很快发布。上一次k3在arena上只匿名了两三天。
+
+
+*****
+
+####  cscbzcbz  
+##### 10621#       发表于 2026-8-22 08:54
+
+除非永久免费，或者最后价格和v4f一个水平，不然都默认是烂炒
+
+*****
+
+####  neptunehs  
+##### 10622#       发表于 2026-8-22 08:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124142&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-22 08:54</a>
+除非永久免费，或者最后价格和v4f一个水平，不然都默认是烂炒</blockquote>
+就这表现 虽然说能用 但不敢比v4f新价格贵的吧
+就第一天上午神勇 人一多就开始各种问题
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  tillnight  
+##### 10623#       发表于 2026-8-22 08:56
+
+牛来大概率是glm的flash模型，但是glm的flash能不能便宜也不好说。
+
