@@ -3743,3 +3743,49 @@ friends，说不定是之前从谷歌离职那批人搞的？
 它的指令遵循能力、上下文记忆力、注意力 ...</blockquote>
 我拿来提取术语表的时候发现他好像不理解什么叫术语表，备注里面会写得特别详细，DS FLASH就只会写重点<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  icewind_yx  
+##### 10721#       发表于 2026-8-22 18:16
+
+买二台dgx 成本多少
+
+*****
+
+####  半江瑟瑟半江红  
+##### 10722#       发表于 2026-8-22 18:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126552&amp;ptid=2275806" target="_blank">秦南心 发表于 2026-8-22 18:10</a>
+写文能力太主观，鹿客更是纯靠下半身思考的就没必要参考，
+
+就现在AI的能力来说，写文对于看的下去番茄的受 ...</blockquote>
+做资料收集不如网页免费谷歌ai模式，现在gemini不会联网搜索
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  城北无尘  
+##### 10723#       发表于 2026-8-22 18:21
+
+硅基流动说是上了0731还保持着原价，但是貌似只把名字改成了0731，无论是网站上模型简介描写还是repeat Nameeee的表现，依然是预览版
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  lubo  
+##### 10724#       发表于 2026-8-22 18:23
+
+<img src="https://img.stage1st.com/forum/202608/22/182052oq4040qltfh3m66m.png" referrerpolicy="no-referrer">
+
+<strong>截屏2026-08-22 18.20.23.png</strong> (423.55 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-22 18:20 上传
+
+朴实无华的商战
+
