@@ -3789,3 +3789,41 @@ friends，说不定是之前从谷歌离职那批人搞的？
 
 朴实无华的商战
 
+
+*****
+
+####  qwased  
+##### 10725#       发表于 2026-8-22 18:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126595&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-22 18:19</a>
+
+做资料收集不如网页免费谷歌ai模式，现在gemini不会联网搜索
+
+—— 来自 HUAWEI SGU-AL10, Android 16,  ...</blockquote>
+反重力里面可以啊，就是不会主动搜，一定要强调去网上搜索对应内容他才会开始搜
+
+*****
+
+####  tonyunreal  
+##### 10726#       发表于 2026-8-22 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126604&amp;ptid=2275806" target="_blank">城北无尘 发表于 2026-8-22 18:21</a>
+
+硅基流动说是上了0731还保持着原价，但是貌似只把名字改成了0731，无论是网站上模型简介描写还是repeat Nam ...</blockquote>
+看主播测试硅基的flash max只有30多tok/s，笑死
+
+
+*****
+
+####  ななひら  
+##### 10727#       发表于 2026-8-22 18:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126170&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-22 16:35</a>
+
+现在也有很多人推测glm根本没钱搞测试 所以应该是以glm为基底的composer3
+
+但composer不是kimi基底吗
+
+说到 ...</blockquote>
+glm根本不测试的，之前那个5.0就有bug，官方API复读和乱码的频率都很高，到最后都没修好，用turbo撑了一个多月后赶紧发布5.1了。那个bug好像是多并发的时候kv缓存时序会错位，甚至能读到其他用户的上下文。
+
