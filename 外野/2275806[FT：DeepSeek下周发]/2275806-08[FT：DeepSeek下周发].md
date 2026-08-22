@@ -4857,3 +4857,34 @@ ox有眼睛吗
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Milarvoz  
+##### 10816#       发表于 2026-8-22 22:49
+
+不赖，正好周中蹬glm，周末蹬ds。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  goranger  
+##### 10817#       发表于 2026-8-22 22:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127149&amp;ptid=2275806" target="_blank">厍无春 发表于 2026-8-22 20:16</a>
+
+微信输入法的语音和豆包输入法的有半档的差距，微信能用，豆包好用</blockquote>
+我的意思是，让大模型来猜你的意思总有偏差的时候。用现在的语音输入法就是这个场景的最佳验证，因为现在的语音输入法刚好可以打开llm。我觉得跟微信输入法和豆包输入法没啥关系。而且语音输入法用多了会有一种感觉，直接说出来的话跟敲出来写出来的还是有差别。
+
+*****
+
+####  goranger  
+##### 10818#       发表于 2026-8-22 22:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70128131&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-8-22 22:39</a>
+
+ox有眼睛吗</blockquote>
+有的兄弟，有的
+
