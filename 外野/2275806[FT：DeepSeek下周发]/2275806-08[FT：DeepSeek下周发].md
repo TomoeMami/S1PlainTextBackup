@@ -4076,3 +4076,28 @@ Gork的Web端就是这样的，有些极简问题比如"1+1"直接在输入框�
 但新学 ...</blockquote>
 我觉得问题不大，应该说是非常easy了
 
+
+*****
+
+####  frankCC  
+##### 10750#       发表于 2026-8-22 19:58
+
+[https://www.bilibili.com/video/BV1JD866xEyb/](https://www.bilibili.com/video/BV1JD866xEyb/)
+
+智谱 ZCode 送 5 万新用户 1 亿 GLM-5.3 token，截至到 8月24日上午 9 点
+
+
+*****
+
+####  Eina  
+##### 10751#       发表于 2026-8-22 20:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126927&amp;ptid=2275806" target="_blank">飛霞精灵 发表于 2026-8-22 19:44</a>
+
+问问一个工作上的问题，是否需要DSH帮忙搞定。
+
+我手头有现成的教材电子版，章节和教材本身就可以。
+
+但新学 ...</blockquote>
+下个腾子的workbuddy白嫖，这个属于最简单的需求
+
