@@ -915,3 +915,11 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 
 才想起1代epic送了都没下载过<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ku2154513  
+##### 95#       发表于 2026-8-22 19:20
+
+通了，最终boss除了那个缴械debuff感觉并不强，整体玩下来地图设计真是不敢恭维，后期堆怪也很恶心，还好后期玩家bd成型后战力看的过去，不然不敢想有多折磨
+

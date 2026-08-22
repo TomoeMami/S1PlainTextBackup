@@ -3967,3 +3967,54 @@ harnes ...</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  goranger  
+##### 10741#       发表于 2026-8-22 19:20
+
+我觉得楼友被外国人骗了，他们为了准牺牲了快，然后说所谓loop啥的，但实际上其实他们也知道，你随便讲几句出来的东西那是许愿和算命，那为何不追求又准又快快速人为验收迭代？就像flash那样，包括luna自己也有2.5倍小号的fast模式。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  noneoneone  
+##### 10742#       发表于 2026-8-22 19:21
+
+进一步，是不是可以让大模型辅助训练出一个小模型，专门判断用户输入信息的完整性，一旦这个小模型认为很可能已经能猜到用户意图（或者多个任务中的一部分任务）了，就提前把现有信息推送给大模型。
+
+*****
+
+####  goranger  
+##### 10743#       发表于 2026-8-22 19:21
+
+另外今天三开openrouter和open code，使劲蹬ox模型，除了偶尔会长考十几分钟把自己搞崩以外有上个月flash无限蹬不怕用完的感觉了，好怀念
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qwased  
+##### 10744#       发表于 2026-8-22 19:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126792&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-22 19:14</a>
+
+我觉得文学写作也许得反过来：
+
+大规模模型写具体的文本，大纲之类的反而和flash讨论就行</blockquote>
+不行的，你用一下grill me和他讨论剧情，参数量越小的模型能给出的建议越不知所谓，要么土到地心要么完全没逻辑
+
+*****
+
+####  goranger  
+##### 10745#       发表于 2026-8-22 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126775&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-8-22 19:09</a>
+如果llm的成本进一步降低，好像可以考虑在用户打字的时候就让大模型开始猜用户意图，提前准备答案。
+
+harnes ...</blockquote>
+你试试语音输入法会不会偶尔让你着急拍桌子就知道这样行不行了。实际上微信语音输入法现在就这么干的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
