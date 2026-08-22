@@ -4907,3 +4907,13 @@ ox有眼睛吗</blockquote>
 本周五，AI 社区热烈讨论的是一个端侧大模型部署技术，它能让笔记本 RTX 4060 跑 Qwen 3.6-35B，桌面 RTX 5 ...</blockquote>
 搜了搜，要192g内存的……我只有48g，现在内存这个价格也没法买了<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  来都来了  
+##### 10821#       发表于 2026-8-22 23:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127477&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-22 20:57</a>
+可能官网和api都是v4f管理，真人也就审核下，等投诉反馈多了才想起来这个时间没把周末和节假日放进去。 ...</blockquote>
+AI干活没有这么草台，这绝对是真人干的。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
