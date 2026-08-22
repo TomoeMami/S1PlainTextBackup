@@ -3171,3 +3171,17 @@ d80b1731fc83d57233dbd6d281d99e80.jpg
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  冤枉呐  
+##### 10670#       发表于 2026-8-22 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124262&amp;ptid=2275806" target="_blank">asier 发表于 2026-8-22 09:31</a>
+https://agentrouter.org/register?aff=gUnC
+
+发现sol5.6烧得好快</blockquote>
+问题又是程序员特供啊
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
