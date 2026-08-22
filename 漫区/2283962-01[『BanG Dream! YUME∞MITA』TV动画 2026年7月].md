@@ -2615,3 +2615,14 @@ yuno：正在为您提供现场唯一的21世纪证据，手机这一科技支�
 
 这个前期就应该下线的反派一直持续搞事的剧本，如果觉得有既视感的话...那就是蒜<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 361#       发表于 2026-8-22 22:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127825&amp;ptid=2283962" target="_blank">Totokei 发表于 2026-8-22 21:45</a>
+
+问题不是这一集跳脱很赶人所以说这个跳脱风格有问题，而是之前塑造了一堆苦大仇深（？）的未爆弹然后突然一 ...</blockquote>
+有一说一，妖薇这人的存在感比那个真岛还是强烈很多（<strong>那个人在蒜的咖啡屋里真正接触只有千佛，而妖薇可是一起共事了2个，还接触了第三个<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

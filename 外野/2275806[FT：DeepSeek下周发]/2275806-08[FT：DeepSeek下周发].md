@@ -4680,3 +4680,73 @@ ds4文笔其实已经非常好了，flash比较平实的写法反而比较像人
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 10801#       发表于 2026-8-22 22:08
+
+D指导活人感这块真没得说，吭哧瘪肚帮我找了汉化镜像，还约定在圆桌再见<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/22/220755iaz74hr94hribaqr.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_1787407675362_1.webp</strong> (89.41 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-22 22:07 上传
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  GN-010  
+##### 10802#       发表于 2026-8-22 22:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126927&amp;ptid=2275806" target="_blank">飛霞精灵 发表于 2026-8-22 19:44</a>
+
+问问一个工作上的问题，是否需要DSH帮忙搞定。
+
+我手头有现成的教材电子版，章节和教材本身就可以。
+
+但新学 ...</blockquote>
+可以的，最后生成Word文件使用Python配好格式文件生成就能保证格式稳定了。
+
+当然前期你要多花一点工作去调试出能用的格式来。
+
+
+*****
+
+####  qwased  
+##### 10803#       发表于 2026-8-22 22:14
+
+<img src="https://img.stage1st.com/forum/202608/22/221434p9n4002agoujun14.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1787408073628_1.webp</strong> (146.93 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-22 22:14 上传
+
+价格有惊喜？
+
+*****
+
+####  半江瑟瑟半江红  
+##### 10804#       发表于 2026-8-22 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70128001&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-22 22:14</a>
+价格有惊喜？</blockquote>
+文心活了？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  qwased  
+##### 10805#       发表于 2026-8-22 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127960&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-22 22:06</a>
+本周五，AI 社区热烈讨论的是一个端侧大模型部署技术，它能让笔记本 RTX 4060 跑 Qwen 3.6-35B，桌面 RTX 5 ...</blockquote>
+是那个ssd加速吗，好像没啥用
+
