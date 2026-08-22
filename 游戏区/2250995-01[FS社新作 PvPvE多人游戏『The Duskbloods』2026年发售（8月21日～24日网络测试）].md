@@ -3467,3 +3467,27 @@ boss分地图上没有提示的，入侵和强入侵。作为提供血之力的�
 
 如果真的局内的变量能做到trpg那么多，那真得好玩疯了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pzk  
+##### 436#       发表于 2026-8-22 22:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">既然都说了会有入侵的第九人存在了，希望也有与之搭配或者相似的机制（例如协助入侵者的角色，在最终boss战捣乱的角色之类的）
+
+*****
+
+####  pzk  
+##### 437#       发表于 2026-8-22 22:31
+
+感觉操作还是很不方便的，技能/道具还是老一套左右切换选到了才能放，在PVP游戏里整这一出很闹心。
+角色动作倒是可以用摇杆来选了，但选完还得点个确认是真的多此一举<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  u2deack  
+##### 438#       发表于 2026-8-22 22:36
+
+说是说电子化桌游，但是真玩起来根本没太多时间给你去考虑这个那个，估计过段时间就是各种定番套路，而且前面东西再丰富最后只能对战决胜美德点数意义到底多大还是个问题，就像有人说的你多拿点数还不如去拿升级武器和技能还有眷属的道具
+

@@ -4795,3 +4795,33 @@ D指导活人感这块真没得说，吭哧瘪肚帮我找了汉化镜像，还�
 —— 来自 HUAWEI SGU-AL10, Andr ...</blockquote>
 你这绝对是上下文里塞了皇牌空战零的文本吧！
 
+
+*****
+
+####  tillnight  
+##### 10810#       发表于 2026-8-22 22:28
+
+更实际的可能是hy4.
+
+但是鉴于有北美托管服务器，似乎又很像字节。
+
+*****
+
+####  lactone  
+##### 10811#       发表于 2026-8-22 22:29
+
+hy4低价可能性是有的，毕竟藤子有的是钱<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  xiaohanne  
+##### 10812#       发表于 2026-8-22 22:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70128001&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-22 22:14</a>
+
+价格有惊喜？</blockquote>
+个人简介把xhs四万粉当成就写、做自媒体都没混上ai三大顶刊级别的小卡米，蒙对了流量吃饱，蒙错了无事发生
+
