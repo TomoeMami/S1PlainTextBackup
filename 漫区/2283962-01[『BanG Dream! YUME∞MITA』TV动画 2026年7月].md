@@ -2468,3 +2468,27 @@ yuno：正在为您提供现场唯一的21世纪证据，手机这一科技支�
 这个第10集才算是梦限大真正原本的风格，相当于肉身，但这达不成wsd炒作的目标，所以只能借助外部矛盾，就像安装义体。可如今义体和肉身产生排斥反应，接近赛博精神病的边缘。
 但是事实证明，如果不炒作，直接按原本的风格拍梦限大，可能第一集就会把人赶跑，所以这个外部矛盾是必然会有的，就像大卫必然会为了露西装上义体金刚。
 
+
+*****
+
+####  仟音一心  
+##### 351#       发表于 2026-8-22 13:57
+
+青木阳菜cos薇欧拉
+
+<img src="https://img.stage1st.com/forum/202608/22/135719bqw3iqdd3ij3s851.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1787378236075_2.webp</strong> (130.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-22 13:57 上传
+
+<img src="https://img.stage1st.com/forum/202608/22/135719y73ma20jj2zn36xm.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1787378236387_3.webp</strong> (86.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-22 13:57 上传
+

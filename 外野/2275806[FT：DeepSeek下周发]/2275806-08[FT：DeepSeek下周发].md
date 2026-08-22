@@ -3219,3 +3219,15 @@ o➗不会也在整蛊了吧
 
 这两天基本干一样的活，codex 100刀套餐周额度直接干掉40%<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">肉眼可见的比以前掉的快了
 
+
+*****
+
+####  舞以  
+##### 10675#       发表于 2026-8-22 14:04
+
+装最大方的，然后偷偷砍额度
+在网页/app和codex里都弹提示建议换更便宜的模型
+o➗也被用户影响到训练agi了？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
