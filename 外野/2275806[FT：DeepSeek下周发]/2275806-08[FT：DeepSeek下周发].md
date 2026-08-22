@@ -3524,3 +3524,31 @@ ox模型世界知识应该比flash好，对同样现象的判断要比flash更�
 
 数学证明现在争取用LEAN形式化证明全自动化。当然数学证明只是其一，医药、制造业、军事科技等各方面都是试图去实现全自动化探索的。最近把Moderna 的新成果吹成生成式AI的成果（实际你去看报告就会发现基本只是传统机器学习算法的应用）可以看出其意图，Jeff dean 等人从谷歌辞职去搞的新公司也是目标自动化ai for science 。当然是否真的实际我不讨论，我只是说现在美国资本喜欢的大饼是这个路径的。
 
+
+*****
+
+####  LeoDT  
+##### 10703#       发表于 2026-8-22 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126311&amp;ptid=2275806" target="_blank">NONORIRI 发表于 2026-8-22 17:08</a>
+
+比起机械飞升，更像是跟他们信仰的宗教差不多，期待弥赛亚或者耶稣再临，之后就演绎圣经剧本由带着大能力 ...</blockquote>
+说起邪教徒，前两年OpenAI内部闹事的时候传的很广的LessWrong不知道现在是什么情况了，按理说搞AI的人这两年应该多了不少，这种哈利波特同人小说“邪教”应该是越来越少人信了吧。
+
+
+*****
+
+####  来都来了  
+##### 10704#       发表于 2026-8-22 17:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126313&amp;ptid=2275806" target="_blank">中国人 发表于 2026-8-22 17:09</a>
+这视觉能力挺一般的，和豆包一样弱智</blockquote>
+我看批站有人测过，只是解决了有没有眼睛的问题，实际的能力不高，在17个模型里排第16。
+
+*****
+
+####  qwased  
+##### 10705#       发表于 2026-8-22 17:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在才发现DSH这种webui真的好方便啊……这WSL里面的GUI跑在win里面毛病好多
+
