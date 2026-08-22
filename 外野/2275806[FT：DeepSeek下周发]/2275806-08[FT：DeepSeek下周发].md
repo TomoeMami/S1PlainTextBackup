@@ -3671,3 +3671,75 @@ friends，说不定是之前从谷歌离职那批人搞的？
 —— 来自 nubia NX809J, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
 类脑大学生鹿客说大概是最好的那档。也是哈基米传统强项。不玩酒馆，不太清楚。
 
+
+*****
+
+####  tk553521  
+##### 10715#       发表于 2026-8-22 18:06
+
+得到了完全相反的回答，算了自己去试一试好了
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  秦南心  
+##### 10716#       发表于 2026-8-22 18:10
+
+ 本帖最后由 秦南心 于 2026-8-22 18:13 编辑 
+
+写文能力太主观，鹿客更是纯靠下半身思考的就没必要参考，
+
+就现在AI的能力来说，写文对于看的下去番茄的受众来说有用，
+
+不写文，拿来做资料收集和大纲辅助还是可以的
+
+*****
+
+####  半江瑟瑟半江红  
+##### 10717#       发表于 2026-8-22 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126535&amp;ptid=2275806" target="_blank">tk553521 发表于 2026-8-22 18:06</a>
+得到了完全相反的回答，算了自己去试一试好了
+
+—— 来自 nubia NX809J, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+我是从如果让它做一个长期的工程化的小说续写的角度来评价的。
+它的指令遵循能力、上下文记忆力、注意力都非常差。而且非常喜欢用它自己的理解覆盖用户指令
+所以拿它写文的话，它就会遵循不住你要求的文风以及大纲和设定
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  qwased  
+##### 10718#       发表于 2026-8-22 18:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126535&amp;ptid=2275806" target="_blank">tk553521 发表于 2026-8-22 18:06</a>
+
+得到了完全相反的回答，算了自己去试一试好了
+
+—— 来自 nubia NX809J, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+文字粗看还可以，内容一坨，可能适合写无脑黄文
+
+*****
+
+####  来都来了  
+##### 10719#       发表于 2026-8-22 18:13
+
+以前用哈基米玩RPG把我气到了。我：前进，哈基米：前进。我：继续前进，哈基米：继续前进（文字有相应润色，但就这个意思）。我问队友一个问题，哈基米：队友听了我的问题，开始认真地进行思考。（下面没了）
+
+而Deepseek的风格是，我：前进，Deepseek：你们继续往前走，看到了怎样怎样的场景，有着怎样怎样的环境。我问队友一个问题，队友听了后开始根据情况回答我。
+
+*****
+
+####  qwased  
+##### 10720#       发表于 2026-8-22 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126554&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-22 18:11</a>
+
+我是从如果让它做一个长期的工程化的小说续写的角度来评价的。
+
+它的指令遵循能力、上下文记忆力、注意力 ...</blockquote>
+我拿来提取术语表的时候发现他好像不理解什么叫术语表，备注里面会写得特别详细，DS FLASH就只会写重点<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
