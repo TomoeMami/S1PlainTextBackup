@@ -3016,3 +3016,29 @@ deepseek harness现在在我看来就是更上位的pi agent，让他用创造�
 
 周末也搞峰谷吗？梁子这么搞你就没意思了。
 
+
+*****
+
+####  cyberalogo  
+##### 10655#       发表于 2026-8-22 10:46
+
+笑死，给大肥鱼识图塞了三张港产片利智和吴家丽穿和服的电影截图，无一例外被鉴定为艺妓回忆录的章子怡。
+
+大肥鱼究竟有多喜欢章子怡。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  自由之紫roy  
+##### 10656#       发表于 2026-8-22 10:48
+
+我已经买了，家里是公网ip，有阿里的云域名解析服务，也想用非审查模型，玩玩ai视频，玩游戏有5070ti 12G笔记本了，所以不需要了。未来有机会再加一块pro5000 72G，原生pcie 8x，我觉得现在这些硬件都是投资，而且我下单后，客服和我说又涨了2000。换了cpu，换了gpu，换了ssd，换了电源，相当于都换掉了。
+
+d80b1731fc83d57233dbd6d281d99e80.jpg
+(163.53 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-22 10:45 上传
+
+<img src="https://img.stage1st.com/forum/202608/22/104558fxg6cg667g1gzogu.jpg" referrerpolicy="no-referrer">
+
