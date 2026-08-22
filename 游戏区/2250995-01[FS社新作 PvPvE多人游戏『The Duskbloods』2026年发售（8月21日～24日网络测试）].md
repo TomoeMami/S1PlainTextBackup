@@ -2985,3 +2985,11 @@ FS按照一年一部的节奏在出游戏，明年又会是什么新IP，该轮�
 
 大场景确实帧数掉的凶，不过至少最终战小场景是60帧
 
+
+*****
+
+####  clyde-wang  
+##### 391#       发表于 2026-8-22 11:16
+
+又看到熟悉的篝火晚会了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">老贼真喜欢这个
+
