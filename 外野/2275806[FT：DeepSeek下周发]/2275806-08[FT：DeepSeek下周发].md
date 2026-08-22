@@ -4430,3 +4430,65 @@ ox根本用不了 今晚准备充钱重回梁文谷
 有没有那个鲸鱼娘亲自帮计费的那个dsh插件的地址？（</blockquote>
 [https://github.com/MeteorNOX/DeepSeek-Balance-Whale-Widget](https://github.com/MeteorNOX/DeepSeek-Balance-Whale-Widget)
 
+
+*****
+
+####  kinfox  
+##### 10779#       发表于 2026-8-22 21:16
+
+终于折腾了两天，让本地部署的qwen3.8 27b能够无限上下文，不会断联了。还接进去WorkBuddy，给它武装了skill来优化，
+
+平均速度60也算能接受，
+
+疯狂让它干活了大半天，效果意外的好。
+
+能够覆盖大部分dsf的活了，拯救了我被梁谷痛创的钱包😂
+
+*****
+
+####  neptunehs  
+##### 10780#       发表于 2026-8-22 21:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127604&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-8-22 21:16</a>
+终于折腾了两天，让本地部署的qwen3.8 27b能够无限上下文，不会断联了。还接进去WorkBuddy，给它武装了skil ...</blockquote>
+为什么我搞的时候就给我埋了一堆雷呢。。。
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  qwased  
+##### 10781#       发表于 2026-8-22 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127604&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-8-22 21:16</a>
+
+终于折腾了两天，让本地部署的qwen3.8 27b能够无限上下文，不会断联了。还接进去WorkBuddy，给它武装了skil ...</blockquote>
+咋整的，是那种上下文窗口到一半就写入外置记忆文件的做法吗
+
+*****
+
+####  qwased  
+##### 10782#       发表于 2026-8-22 21:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127543&amp;ptid=2275806" target="_blank">SmterC 发表于 2026-8-22 21:07</a>
+
+模型能力肯定是够的，不过还要看配套工具对office类文件的支持
+
+我之前测试的时候，codex桌面版自带一个对 ...</blockquote>
+[https://github.com/iOfficeAI/OfficeCli](https://github.com/iOfficeAI/OfficeCli) 这个吗
+
+
+*****
+
+####  城北无尘  
+##### 10783#       发表于 2026-8-22 21:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127543&amp;ptid=2275806" target="_blank">SmterC 发表于 2026-8-22 21:07</a>
+
+模型能力肯定是够的，不过还要看配套工具对office类文件的支持
+
+我之前测试的时候，codex桌面版自带一个对 ...</blockquote>
+[https://github.com/wssfk12138/dsh-damage-pulse](https://github.com/wssfk12138/dsh-damage-pulse)
+
+小黑盒上这个比较火，有小肥鱼动画
+

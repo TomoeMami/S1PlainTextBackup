@@ -3428,3 +3428,14 @@ boss分地图上没有提示的，入侵和强入侵。作为提供血之力的�
 
 不知道正式版有多少角色，每个角色还有没有替换技，这游戏真得当EXVS玩了，阿尔伯特那个照射不抓落地感觉兹不中人都
 
+
+*****
+
+####  巴尔干炮  
+##### 433#       发表于 2026-8-22 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127522&amp;ptid=2250995" target="_blank">ParukiaMKII 发表于 2026-8-22 21:05</a>
+
+不知道正式版有多少角色，每个角色还有没有替换技，这游戏真得当EXVS玩了，阿尔伯特那个照射不抓落地感觉兹 ...</blockquote>
+算上防火鼠的还有4个主要角色没出现吧，某个白毛恐怕又是老贼喜欢的男娘。<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
