@@ -3310,3 +3310,13 @@ plus的20刀肯定是压不住flash随便用，但是用量考虑真订100刀的
 
 —— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  scikirbypoke  
+##### 10683#       发表于 2026-8-22 15:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124692&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-22 11:07</a>
+另外这几天蹬了gemini 3.7flash差不多30%的周限额，感觉哈基米用来许愿编程还是比flash0731笨很多，一个启 ...</blockquote>
+不过快是真的快，超高速迭代两三天就差不多把周限用完了
+
