@@ -3274,3 +3274,14 @@ o➗也被用户影响到训练agi了？
 
 plus的20刀肯定是压不住flash随便用，但是用量考虑真订100刀的话还不如全给flash了。
 
+
+*****
+
+####  自由之紫roy  
+##### 10680#       发表于 2026-8-22 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70125590&amp;ptid=2275806" target="_blank">phorcys02 发表于 2026-8-22 14:21</a>
+
+老哥你这个配置跑 v4f  能有多少 pp和tg...长上下文的</blockquote>
+本地模型会越做越好的。明年的27b完全超过现在的v4flash0731毫无问题的
+

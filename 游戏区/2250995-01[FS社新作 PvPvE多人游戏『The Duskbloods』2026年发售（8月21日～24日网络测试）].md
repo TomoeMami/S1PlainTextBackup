@@ -3281,3 +3281,35 @@ QQ图片20260822125827.jpg
 决战每个人到处满天飞要确认打中真就抓落地最保险确实打起来有点高达vs
 但是感觉就算正式版开更多的内容核心玩法也还是捡东西和战斗，还是要回到背地图和练操作套路，就跟法环说是开放世界但是交互方式也只有战斗一样
 
+
+*****
+
+####  聊nsy专用号  
+##### 422#       发表于 2026-8-22 14:24
+
+<img src="https://img.stage1st.com/forum/202608/22/142249haklifl13ls36sb9.jpg" referrerpolicy="no-referrer">
+
+<strong>A84BFB1BF20A411A2F7C07C66E3F250E.jpg</strong> (711 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-22 14:22 上传
+
+<img src="https://img.stage1st.com/forum/202608/22/142252qk8s0s03nysky8zs.jpg" referrerpolicy="no-referrer">
+
+<strong>E16DC9E2014C5F59581153EABBD04C38.jpg</strong> (567.15 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-22 14:22 上传
+
+老人你好强大
+
+
+*****
+
+####  5ew47  
+##### 423#       发表于 2026-8-22 14:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">打中大boss没人来，打小boss被人蹲，救救pve玩家
+
