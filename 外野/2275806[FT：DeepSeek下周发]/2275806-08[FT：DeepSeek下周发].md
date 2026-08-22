@@ -3285,3 +3285,28 @@ plus的20刀肯定是压不住flash随便用，但是用量考虑真订100刀的
 老哥你这个配置跑 v4f  能有多少 pp和tg...长上下文的</blockquote>
 本地模型会越做越好的。明年的27b完全超过现在的v4flash0731毫无问题的
 
+
+*****
+
+####  hugosol  
+##### 10681#       发表于 2026-8-22 14:52
+
+ 本帖最后由 hugosol 于 2026-8-22 14:54 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70125599&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-22 14:23</a>
+
+刚才梁文谷又找回前阵子跟flash pair programming的感觉了，快速迭代反复验证太爽了。sol/luna试用的这一 ...</blockquote>
+是的，习惯了deepseek这种工作流就发现业界主流那种越来越慢越来越贵的方向完全是开倒车，难怪A/在吹loop engineering
+
+但是这些大公司以外真的前沿搞harness这帮人都清楚肯定要人类介入的，从原则上来说就是反馈越快越方便人类介入
+
+反正我从pro previw那时候就觉得这模型已经够用了，现在的pro反而是用不起的，太难受了
+
+*****
+
+####  ArthurDent  
+##### 10682#       发表于 2026-8-22 14:54
+
+我发现之前没agent的时候跟我合开网页plus的人现在都还不用agent只用网页，爽蹬40块plus<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

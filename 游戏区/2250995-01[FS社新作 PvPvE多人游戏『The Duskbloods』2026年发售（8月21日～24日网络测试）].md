@@ -3313,3 +3313,11 @@ QQ图片20260822125827.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">打中大boss没人来，打小boss被人蹲，救救pve玩家
 
+
+*****
+
+####  kuarwbwe  
+##### 424#       发表于 2026-8-22 14:45
+
+就玩了三把，只用了默认的阿尔伯特。前两把完全不知道干啥，最后一把活到第三轮死了。这三把下来还行吧。明天再玩玩看看。
+
