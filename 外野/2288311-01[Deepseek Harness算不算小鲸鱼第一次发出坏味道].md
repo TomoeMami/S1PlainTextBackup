@@ -433,3 +433,11 @@ flash3.7不卡不慢，但是依然很菜<img src="https://static.stage1st.com/i
 算了吧，这段话我发给GPT它洋洋洒洒叨逼叨了一堆给楼主批烂了</blockquote>
 论文指的是这一篇 A Programming Paradigm for Spatiotemporal Composability，当然是和DSH有关的。你这GPT的思考开的不高啊
 
+
+*****
+
+####  qsbcyjycjd  
+##### 44#       发表于 2026-8-23 07:00
+
+能力是缺乏的，解决方案是没有的，锐评是不能停的。
+
