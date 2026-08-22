@@ -3394,3 +3394,35 @@ ai好像什么都没带来 只是在浪费钱
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  nxmonitor  
+##### 10691#       发表于 2026-8-22 16:41
+
+大概率就是GLM的，小概率是GLM为基模后训练，但是这个东西已经被狙击了，除非价格大幅降低（不太可能），不然很难有声音
+
+*****
+
+####  tillnight  
+##### 10692#       发表于 2026-8-22 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126170&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-22 16:35</a>
+
+现在也有很多人推测glm根本没钱搞测试 所以应该是以glm为基底的composer3
+
+但composer不是kimi基底吗
+
+说到 ...</blockquote>
+因为一开始被营销成了一个可能登顶的模型。虽然基本可以确定是一个小于glm5.3的flash模型。另外muse不是xai的。
+
+
+*****
+
+####  NONORIRI  
+##### 10693#       发表于 2026-8-22 16:46
+
+<blockquote>hugosol 发表于 2026-8-22 14:52
+是的，习惯了deepseek这种工作流就发现业界主流那种越来越慢越来越贵的方向完全是开倒车，难怪A/在吹loop  ...</blockquote>
+因为业界主流（或者说资本画大饼方向）是往RSI式的AI for science 方向走的，宣传的突破数学猜想或者其他科学问题都是更需要深度思考而不是快速迭代，也就是说最终目的是没有人类介入。既然都没有人类介入了自然速度不是首要目标了。
+
