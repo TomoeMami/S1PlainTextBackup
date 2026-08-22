@@ -3363,3 +3363,34 @@ plus的20刀肯定是压不住flash随便用，但是用量考虑真订100刀的
 
 ai好像什么都没带来 只是在浪费钱
 
+
+*****
+
+####  lactone  
+##### 10689#       发表于 2026-8-22 16:29
+
+谷歌好像暗示ox alpha是gemini
+
+那我就不懂了，这个水平是新的gemini pro那就真拉完了<img src="https://p.sda1.dev/34/8e3e59f779a4e26b13cb93f160953d1f/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  neptunehs  
+##### 10690#       发表于 2026-8-22 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126135&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-22 16:29</a>
+谷歌好像暗示ox alpha是gemini
+
+那我就不懂了，这个水平是新的gemini pro那就真拉完了</blockquote>
+现在也有很多人推测glm根本没钱搞测试 所以应该是以glm为基底的composer3
+但composer不是kimi基底吗
+说到底xai不是有了自己的muse了 干嘛还要搞glm基底的composer
+
+反正有不少人不想承认ox是国产的样子
+我就想说这个卡的不能动的模型有什么好不承认是不是国产的（
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
