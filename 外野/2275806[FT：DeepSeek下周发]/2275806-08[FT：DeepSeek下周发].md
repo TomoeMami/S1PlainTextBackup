@@ -3099,3 +3099,23 @@ d80b1731fc83d57233dbd6d281d99e80.jpg
 
 波峰时段我这种非生产力用户蹬不起了v4，先用gemini反代玩DSH吧……
 
+
+*****
+
+####  大暴死  
+##### 10663#       发表于 2026-8-22 11:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我前几天刚通过ollama加载qwen2.5-vl-7B模型给DSH开了眼，现在就有官方多模态模型了
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  唠叨  
+##### 10664#       发表于 2026-8-22 11:33
+
+套餐 Credits 用量两天没变了，但是最后统计时间：2026-08-22 11:32:16，明明这两天我都在猛猛蹬，已经多次怀疑是不是自己选错api模型了。
+
+你们碰到这种情况了吗。
+
