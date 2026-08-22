@@ -3445,3 +3445,32 @@ ai好像什么都没带来 只是在浪费钱
 刚才梁文谷又找回前阵子跟flash pair programming的感觉了，快速迭代反复验证太爽了。sol/luna试用的这一 ...</blockquote>
 现在gpt订阅可以设置1m上下文了，只不过上下文大的时候价格翻倍，我已经用了几天了，还挺爽的，除了5.6系列反复走死胡同、撞南墙的问题很严重之外。
 
+
+*****
+
+####  goranger  
+##### 10696#       发表于 2026-8-22 16:59
+
+ox模型世界知识应该比flash好，对同样现象的判断要比flash更准
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  未知伤亡  
+##### 10697#       发表于 2026-8-22 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126221&amp;ptid=2275806" target="_blank">NONORIRI 发表于 2026-8-22 16:46</a>
+
+因为业界主流（或者说资本画大饼方向）是往RSI式的AI for science 方向走的，宣传的突破数学猜想或者其他 ...</blockquote>
+怎么有一种⏰️肉体强化VS🦅机械飞升的既视感
+
+*****
+
+####  厍无春  
+##### 10698#       发表于 2026-8-22 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126231&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-22 16:49</a>
+我无语了，让哈基米给我出主意把他安装到WSL上，连着给出三轮错误指令</blockquote>
+直接把它接到 Agent 上，让它帮你装，不就得了。
+
