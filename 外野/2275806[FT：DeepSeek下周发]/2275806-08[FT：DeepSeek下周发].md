@@ -3193,3 +3193,11 @@ https://agentrouter.org/register?aff=gUnC
 
 昨晚8点好像又更新了呀，现在直接把仓库clone下来用pnpm自己安装的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiaohanne  
+##### 10672#       发表于 2026-8-22 13:20
+
+算了一下plus被砍了20%，和网传数据基本一致。
+
