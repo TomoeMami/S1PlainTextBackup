@@ -3613,3 +3613,61 @@ ox模型世界知识应该比flash好，对同样现象的判断要比flash更�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  木水风铃  
+##### 10710#       发表于 2026-8-22 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126135&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-22 16:29</a>
+谷歌好像暗示ox alpha是gemini
+
+那我就不懂了，这个水平是新的gemini pro那就真拉完了</blockquote>
+friends，说不定是之前从谷歌离职那批人搞的？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  厍无春  
+##### 10711#       发表于 2026-8-22 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126434&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-22 17:41</a>
+哈基米的智力真不如DS flash吧，让写个方便使用的脚本他直接把文件炸了，然后搜了半天硬盘没找到安装 ...</blockquote>
+哈哈哈，这你别管，你就说快不快吧<img src="https://static.stage1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tk553521  
+##### 10712#       发表于 2026-8-22 18:01
+
+那么哈基米3.7写文什么水平？
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  半江瑟瑟半江红  
+##### 10713#       发表于 2026-8-22 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126513&amp;ptid=2275806" target="_blank">tk553521 发表于 2026-8-22 18:01</a>
+那么哈基米3.7写文什么水平？
+
+—— 来自 nubia NX809J, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+狗屎水平，极其极其
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  龙骑士尹志平  
+##### 10714#       发表于 2026-8-22 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126513&amp;ptid=2275806" target="_blank">tk553521 发表于 2026-8-22 18:01</a>
+
+那么哈基米3.7写文什么水平？
+
+—— 来自 nubia NX809J, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+类脑大学生鹿客说大概是最好的那档。也是哈基米传统强项。不玩酒馆，不太清楚。
+
