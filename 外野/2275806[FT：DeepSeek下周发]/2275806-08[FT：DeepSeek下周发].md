@@ -4062,3 +4062,17 @@ Gork的Web端就是这样的，有些极简问题比如"1+1"直接在输入框�
 
 拿AI跑最后输出原样符合字体和格式的教案，能不能行？
 
+
+*****
+
+####  cscbzcbz  
+##### 10749#       发表于 2026-8-22 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126927&amp;ptid=2275806" target="_blank">飛霞精灵 发表于 2026-8-22 19:44</a>
+问问一个工作上的问题，是否需要DSH帮忙搞定。
+
+我手头有现成的教材电子版，章节和教材本身就可以。
+
+但新学 ...</blockquote>
+我觉得问题不大，应该说是非常easy了
+
