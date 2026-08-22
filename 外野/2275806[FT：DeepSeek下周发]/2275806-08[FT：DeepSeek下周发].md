@@ -5076,3 +5076,40 @@ V4FV人体识别能力不错啊 拿自己的测试图4K单人三只手BUG OPS啥
 
 混元4疑似灰测，前端表现不错
 
+
+*****
+
+####  来都来了  
+##### 10837#       发表于 2026-8-23 01:12
+
+我的天，去官网一看才发现，梁圣给每个用户给了25GB的存储空间，可以永久保存，也可以指定1小时到30天有效。不过每个文件最大64MB，并且只支持图片。不过这也很厉害了。
+
+
+*****
+
+####  hugosol  
+##### 10838#       发表于 2026-8-23 01:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70128854&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-23 01:12</a>
+
+我的天，去官网一看才发现，梁圣给每个用户给了25GB的存储空间，可以永久保存，也可以指定1小时到30天有效 ...</blockquote>
+反正你传上去只能转成token，只是给你转钱给梁圣的资格罢了
+
+*****
+
+####  很久就在那边l  
+##### 10839#       发表于 2026-8-23 01:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70128604&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-8-23 00:07</a>
+能用多少token？我上次用英伟达的API，特么用GLM5.2一个问题都没解决就给我402了 ...</blockquote>
+他写的每分钟40次实际根本不到，办公是不可能的
+
+*****
+
+####  goranger  
+##### 10840#       发表于 2026-8-23 01:17
+
+说实话ox这个又臭又长的思维链跟minimax m3特别像
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
