@@ -3842,3 +3842,35 @@ glm根本不测试的，之前那个5.0就有bug，官方API复读和乱码的�
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  tk553521  
+##### 10729#       发表于 2026-8-22 18:48
+
+3.7试完回来，一坨，还是得v4f<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  lactone  
+##### 10730#       发表于 2026-8-22 18:50
+
+3.7flash muse spark1.2和grok4.6属实三大高分低能
+有一种老qwen的美
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  冤枉呐  
+##### 10731#       发表于 2026-8-22 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126557&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-22 18:12</a>
+文字粗看还可以，内容一坨，可能适合写无脑黄文</blockquote>
+那可以拿rag和指令来控制啊
+找一个聪明的写大纲，他来写文字
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
