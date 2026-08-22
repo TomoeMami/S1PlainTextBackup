@@ -3552,3 +3552,35 @@ ox模型世界知识应该比flash好，对同样现象的判断要比flash更�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在才发现DSH这种webui真的好方便啊……这WSL里面的GUI跑在win里面毛病好多
 
+
+*****
+
+####  hugosol  
+##### 10706#       发表于 2026-8-22 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126340&amp;ptid=2275806" target="_blank">NONORIRI 发表于 2026-8-22 17:16</a>
+
+数学证明现在争取用Lean 形式化证明全自动化。当然数学证明只是其一用来证明能力，最终医药、制造业、军 ...</blockquote>
+也对，反正现在对写代码的来说AI的能力是溢出了，但是科研还要追求更高的上限
+
+说起Jeff Dean出走其实我感觉有可能是因为谷歌想把重心转向TPU跟老黄抢生意了，自家模型训练就不给那么多资源了，gemini完全一副放弃挣扎的姿态
+
+*****
+
+####  NONORIRI  
+##### 10707#       发表于 2026-8-22 17:31
+
+ 本帖最后由 NONORIRI 于 2026-8-22 17:32 编辑 
+<blockquote>LeoDT 发表于 2026-8-22 17:18
+说起邪教徒，前两年OpenAI内部闹事的时候传的很广的LessWrong不知道现在是什么情况了，按理说搞AI的人这 ...</blockquote>
+
+没太关注，但之前看到过应该还活着且成了调侃硅谷码农的梗之一
+
+<img src="https://img.stage1st.com/forum/202608/22/172932k7jzccjaqon8jnbo.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5126.jpeg</strong> (237.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-22 17:29 上传
+

@@ -887,3 +887,13 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 
 妈的，未竟之路动不动给你塞一堆蜘蛛啥意思，疯狂投技动都动不了，恶心完了
 
+
+*****
+
+####  pgain2004  
+##### 92#       发表于 2026-8-22 17:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124276&amp;ptid=2282975" target="_blank">蒋公卖萌 发表于 2026-8-22 09:34</a>
+不同躯壳的闪避无敌帧有不同吗？</blockquote>
+盗贼的闪避能升级加强，包括给敌人上毒，但盗贼本身相对脆
+
