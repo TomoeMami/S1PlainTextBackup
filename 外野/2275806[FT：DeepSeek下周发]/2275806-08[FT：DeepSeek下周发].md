@@ -5158,3 +5158,140 @@ V4FV人体识别能力不错啊 拿自己的测试图4K单人三只手BUG OPS啥
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  唠叨  
+##### 10845#       发表于 2026-8-23 00:57
+
+ 本帖最后由 唠叨 于 2026-8-23 01:11 编辑 
+
+<img src="https://img.stage1st.com/forum/202608/23/005654adzhalxayon7nzod.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-08-23_005631_450.jpg</strong> (23.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-23 00:56 上传
+
+今天刚开的minimax的套餐 不到12小时被我蹬成这样了  怀念涨价前的V4
+
+<img src="https://img.stage1st.com/forum/202608/23/010151mpww7ie4w3728433.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-08-23_010027_301.jpg</strong> (66.75 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-23 01:01 上传
+
+国算更加不堪，要不是蹬了1天OX加半路转minimax套餐，现在余额就清空了。不过没有5小时限额是真的爽。继续怀念涨价前的V4
+
+<img src="https://img.stage1st.com/forum/202608/23/010436eth5y5d1in9ds9cn.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-08-23_010404_212.jpg</strong> (32.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-23 01:04 上传
+
+OpenCode Go都不敢蹬了等周用量重置再蹬。继续怀念猛蹬V4进度条不动的日子。
+
+基元蹬爆了一个号，蹬第二个号时觉的太卡了简直是在浪费生命。果然还是楼里说的快速回复快速迭代才对。
+
+论速度，只用过deepseek和minimax的官方，没用过其他官方，这两个官方是真的快，其次是国算的minimax，速度紧跟官方，但是价格也紧跟官方，没用过国算的flash。opencode go的速度明显慢，基元慢爆。
+
+*****
+
+####  浪费喝咖啡  
+##### 10846#       发表于 2026-8-23 01:00
+
+混元4疑似灰测，前端表现不错
+
+*****
+
+####  来都来了  
+##### 10847#       发表于 2026-8-23 01:12
+
+我的天，去官网一看才发现，梁圣给每个用户给了25GB的存储空间，可以永久保存，也可以指定1小时到30天有效。不过每个文件最大64MB，并且只支持图片。不过这也很厉害了。
+
+*****
+
+####  hugosol  
+##### 10848#       发表于 2026-8-23 01:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70128854&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-23 01:12</a>
+
+我的天，去官网一看才发现，梁圣给每个用户给了25GB的存储空间，可以永久保存，也可以指定1小时到30天有效 ...</blockquote>
+反正你传上去只能转成token，只是给你转钱给梁圣的资格罢了
+
+*****
+
+####  很久就在那边l  
+##### 10849#       发表于 2026-8-23 01:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70128604&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-8-23 00:07</a>
+能用多少token？我上次用英伟达的API，特么用GLM5.2一个问题都没解决就给我402了 ...</blockquote>
+他写的每分钟40次实际根本不到，办公是不可能的
+
+*****
+
+####  goranger  
+##### 10850#       发表于 2026-8-23 01:17
+
+说实话ox这个又臭又长的思维链跟minimax m3特别像
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  novalli  
+##### 10851#       发表于 2026-8-23 01:19
+
+这都过了1点了才收到deepseek的邮件，我这是哪个时区？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  novalli  
+##### 10852#       发表于 2026-8-23 01:20
+
+之前说周末的时候我就在想，调休什么的怎么算？其实按工作日调整好像问题也不大，毕竟每年放假时间早就固定好了，每年刷新一次日历就好。
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  唠叨  
+##### 10853#       发表于 2026-8-23 01:20
+
+<img src="https://img.stage1st.com/forum/202608/23/012038ahz3meomh1mezqmo.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-08-23_012024_170.jpg</strong> (28.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-23 01:20 上传
+
+蹬爆 睡觉
+
+*****
+
+####  goranger  
+##### 10854#       发表于 2026-8-23 01:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70128488&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-8-22 23:44</a>
+搜了搜，要192g内存的……我只有48g，现在内存这个价格也没法买了</blockquote>
+可以玩qwen，据说也很能打
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  squallx  
+##### 10855#       发表于 2026-8-23 05:49
+
+蹬完啦今天opencodego额度v4fv明显不如官网的 同任务 同档max思维链短 甚至经常没有<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">又tm拉完了
+
+—— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
