@@ -2983,3 +2983,21 @@ deepseek harness现在在我看来就是更上位的pi agent，让他用创造�
 试了一下看导出的用量表，周末也梁文峰梁文谷，简直了，不是说好不加班的么。 ...</blockquote>
 啊，梁叔叔太狠了
 
+
+*****
+
+####  龙骑士尹志平  
+##### 10651#       发表于 2026-8-22 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124430&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-22 10:10</a>
+
+试了一下看导出的用量表，周末也梁文峰梁文谷，简直了，不是说好不加班的么。 ...</blockquote>
+啊 被ds骗了
+
+*****
+
+####  飞天荷兰人  
+##### 10652#       发表于 2026-8-22 10:21
+
+我去，官方他这缓存保存超过12个小时！牛哇！
+
