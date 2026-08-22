@@ -3339,3 +3339,11 @@ plus的20刀肯定是压不住flash随便用，但是用量考虑真订100刀的
 
 请问一下楼u，dsh更新之后标准模式的预设会更好用吗，现在还有let me和we need的区分吗
 
+
+*****
+
+####  唠叨  
+##### 10686#       发表于 2026-8-22 15:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国算员工在监控这贴，我国算额度突然刷新了，掉了30%
+
