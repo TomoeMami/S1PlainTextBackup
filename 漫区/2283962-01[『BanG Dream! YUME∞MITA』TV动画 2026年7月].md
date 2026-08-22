@@ -2601,3 +2601,17 @@ yuno：正在为您提供现场唯一的21世纪证据，手机这一科技支�
 肯定要写怎么面对妖薇的，戏份多少的问题罢了</blockquote>
 只能说希望可以少点油吧（抖
 
+
+*****
+
+####  Totokei  
+##### 360#       发表于 2026-8-22 21:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">问题不是这一集跳脱很赶人所以说这个跳脱风格有问题，而是之前塑造了一堆苦大仇深（？）的未爆弹然后突然一转无厘头跳脱。
+
+薇的问题是第五集拉人之后她就该下线了，然后就是mewtype内部自我建设（俗称混熟）的过程。
+
+结果又开启了疼肚子老师的新剧情线导致整体剧情还在悬疑，到现在第十集五人跳脱地完成了稍微一点的整合
+
+这个前期就应该下线的反派一直持续搞事的剧本，如果觉得有既视感的话...那就是蒜<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
