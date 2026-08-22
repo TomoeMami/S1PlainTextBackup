@@ -2941,3 +2941,45 @@ deepseek harness现在在我看来就是更上位的pi agent，让他用创造�
 
 搜索对于认人这种场景基本没用吧，本来就认不出来难道还能用关键词搜几十张男的一一比对吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  LeoDT  
+##### 10647#       发表于 2026-8-22 10:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124404&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-8-22 10:02</a>
+
+怎么说，周六日是梁谷还是梁峰还是和周1-5一样划分</blockquote>
+试了一下看导出的用量表，周末也梁文峰梁文谷，简直了，不是说好不加班的么。
+
+*****
+
+####  nxmonitor  
+##### 10648#       发表于 2026-8-22 10:10
+
+认人这个根本不是识图能力而是世界知识…
+
+
+*****
+
+####  eno_emos  
+##### 10649#       发表于 2026-8-22 10:12
+
+这个匿名的glm模型很有意思，思考强度开到max就是雷霆巨大思考，输出2wtoken思考半小时
+
+开到high就是很dsv4flash的风格
+
+开到low并不是不思考，而是把思考内容通过文件读写注释写到文件里面，然后再读文件强行思考
+
+你这low何意味啊<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jinuzuktII  
+##### 10650#       发表于 2026-8-22 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124430&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-22 10:10</a>
+
+试了一下看导出的用量表，周末也梁文峰梁文谷，简直了，不是说好不加班的么。 ...</blockquote>
+啊，梁叔叔太狠了
+
