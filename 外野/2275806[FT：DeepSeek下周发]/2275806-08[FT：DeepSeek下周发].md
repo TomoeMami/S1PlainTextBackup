@@ -2754,3 +2754,53 @@ deepseek harness现在在我看来就是更上位的pi agent，让他用创造�
 
 官方定价贵其实也是给第三方部署的动力吧，ds之前就是官方太便宜了没人愿意再自己部署，官价等于电价这块<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  last_regret  
+##### 10628#       发表于 2026-8-22 09:30
+
+感觉识图能力不错，但知识库差的很多啊。放了个卡迪公的立绘识别成妃英理了
+
+*****
+
+####  Nanachi  
+##### 10629#       发表于 2026-8-22 09:30
+
+锐意等待带识图的pro
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  asier  
+##### 10630#       发表于 2026-8-22 09:31
+
+[https://agentrouter.org/register?aff=gUnC](https://agentrouter.org/register?aff=gUnC)
+
+发现sol5.6烧得好快
+
+*****
+
+####  龙骑士尹志平  
+##### 10631#       发表于 2026-8-22 09:32
+
+所以上次跑分榜上拳打肥波脚踢gpt的神秘模型a到底是什么
+
+
+*****
+
+####  last_regret  
+##### 10632#       发表于 2026-8-22 09:36
+
+<img src="https://img.stage1st.com/forum/202608/22/093623xa3727lzai2cd7tu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-08-22-09-36-02-041_xyz.chatboxapp.chatbox.jpg</strong> (163.24 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-22 09:36 上传
+
+野兽都认不出的屑
+
