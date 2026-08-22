@@ -2590,3 +2590,14 @@ yuno：正在为您提供现场唯一的21世纪证据，手机这一科技支�
 
 <img src="https://img.nga.cn/attachments/mon_202608/22/-9lddQ48-23vrK19T1kSdw-k0.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帆前  
+##### 359#       发表于 2026-8-22 20:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126817&amp;ptid=2283962" target="_blank">aptx8285144 发表于 2026-8-22 19:20</a>
+
+肯定要写怎么面对妖薇的，戏份多少的问题罢了</blockquote>
+只能说希望可以少点油吧（抖
+

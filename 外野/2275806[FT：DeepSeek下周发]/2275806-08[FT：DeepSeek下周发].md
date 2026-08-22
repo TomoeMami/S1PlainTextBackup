@@ -4302,3 +4302,74 @@ harnes ...</blockquote>
 辛苦梁子周末加班来发通知和改价格逻辑 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">你们都不看官网价格公告是吧，一开始就没提周末全是营销号传来传去
 
+
+*****
+
+####  奈姆乐斯美都莎  
+##### 10767#       发表于 2026-8-22 20:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126783&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-22 19:11</a>
+
+预判你的预判的预判</blockquote>
+猜你喜欢/猜你想问/您寻找的是不是 x
+
+猜你想猜我猜你 √
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 10768#       发表于 2026-8-22 20:47
+
+没绷住，草台班子真神了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  tonyunreal  
+##### 10769#       发表于 2026-8-22 20:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127302&amp;ptid=2275806" target="_blank">酱狐狸 发表于 2026-8-22 20:33</a>
+
+尊敬的 DeepSeek API 用户：
+
+您好！
+
+我们将于北京时间 2026 年 8 月 23 日（周日）00:00 起，对峰谷计费规 ...</blockquote>
+果然是二游
+
+太糙了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UncleDracula  
+##### 10770#       发表于 2026-8-22 20:52
+
+这什么神区二象性公司，能做出人类顶级AI，却犯着实习生错误<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飛霞精灵  
+##### 10771#       发表于 2026-8-22 20:53
+
+我还以为他们的工作日是按美国时间计算的.....
+
+*****
+
+####  ycjiang1337  
+##### 10772#       发表于 2026-8-22 20:56
+
+难道不是从一开始就故意没分工作日吗？负载没那么大才降价
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+*****
+
+####  龙骑士尹志平  
+##### 10773#       发表于 2026-8-22 20:57
+
+可能官网和api都是v4f管理，真人也就审核下，等投诉反馈多了才想起来这个时间没把周末和节假日放进去。
+
