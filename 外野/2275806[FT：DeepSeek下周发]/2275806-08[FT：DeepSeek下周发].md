@@ -3119,3 +3119,14 @@ d80b1731fc83d57233dbd6d281d99e80.jpg
 
 你们碰到这种情况了吗。
 
+
+*****
+
+####  UncleDracula  
+##### 10665#       发表于 2026-8-22 11:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124817&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-22 11:33</a>
+
+套餐 Credits 用量两天没变了，但是最后统计时间：2026-08-22 11:32:16，明明这两天我都在猛猛蹬，已经多次 ...</blockquote>
+没错，我有几次也是猛蹬后发现额度没少，权当额度重置福利了
+
