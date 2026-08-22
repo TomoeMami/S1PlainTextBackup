@@ -3874,3 +3874,61 @@ glm根本不测试的，之前那个5.0就有bug，官方API复读和乱码的�
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  唠叨  
+##### 10732#       发表于 2026-8-22 18:56
+
+我蹬了两天 感觉minimax m3有点好用啊 是错觉吗？
+
+*****
+
+####  舞以  
+##### 10733#       发表于 2026-8-22 18:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">v4fv要是恢复到涨价前就好了，，，
+
+*****
+
+####  舞以  
+##### 10734#       发表于 2026-8-22 18:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126728&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-22 18:56</a>
+
+我蹬了两天 感觉minimax m3有点好用啊 是错觉吗？</blockquote>
+小马过河，好用就用<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 10735#       发表于 2026-8-22 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126729&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-22 18:56</a>
+
+v4fv要是恢复到涨价前就好了，，，</blockquote>
+v模型我顶着高峰价格蹬的
+
+图片秒看不转换省了好多token
+
+
+*****
+
+####  蛋黄酱Release  
+##### 10736#       发表于 2026-8-22 19:01
+
+大胆点，v4fv恢复到以前的价格同时ocg恢复60刀额度<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 10737#       发表于 2026-8-22 19:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126706&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-22 18:51</a>
+
+那可以拿rag和指令来控制啊
+
+找一个聪明的写大纲，他来写文字</blockquote>
+很难，我感觉他好像不跟我在一个频道上，不太理解我的意图，改点什么东西也是顾头不顾尾的
+
