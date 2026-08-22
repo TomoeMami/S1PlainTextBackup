@@ -960,3 +960,11 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 看了个评测感觉还行，下来一看画面一坨，到处都黑乎乎糊成一片，玩了几把就关了，上当 ...</blockquote>
 这游戏的场景只能用垃圾来形容，各种地方都是石头木头，无数的换皮地牢，黑漆马虎加上无数分不清哪是哪的岔路口，造景这块只能说mod作者水平<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RinC  
+##### 100#       发表于 2026-8-23 02:15
+
+其实最终boss二阶段那个缴械debuff和黑夜难度的一个解谜有关，进忘了哪三个大副本捡道具然后开黑夜去拿双刀那个塔就给异常耐性的物品了。只能说也是制作组的又一个精妙的小巧思<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
