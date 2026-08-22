@@ -4896,3 +4896,14 @@ ox有眼睛吗</blockquote>
 
 只有百度团队才能符合这个人的说法，那是真的完全没考虑过
 
+
+*****
+
+####  奈落的孤火花  
+##### 10820#       发表于 2026-8-22 23:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127960&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-22 22:06</a>
+
+本周五，AI 社区热烈讨论的是一个端侧大模型部署技术，它能让笔记本 RTX 4060 跑 Qwen 3.6-35B，桌面 RTX 5 ...</blockquote>
+搜了搜，要192g内存的……我只有48g，现在内存这个价格也没法买了<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
