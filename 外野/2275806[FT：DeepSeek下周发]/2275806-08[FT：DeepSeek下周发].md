@@ -4917,3 +4917,44 @@ ox有眼睛吗</blockquote>
 可能官网和api都是v4f管理，真人也就审核下，等投诉反馈多了才想起来这个时间没把周末和节假日放进去。 ...</blockquote>
 AI干活没有这么草台，这绝对是真人干的。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  squallx  
+##### 10822#       发表于 2026-8-22 23:58
+
+ 本帖最后由 squallx 于 2026-8-23 00:00 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">V4FV人体识别能力不错啊 拿自己的测试图4K单人三只手BUG OPS啥的这张都没识别到问题 就V4FV过了
+
+然而视觉任务TOKEN烧的飞起 顶不住<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 什么时候能进OPENCODEGO？
+
+*****
+
+####  neptunehs  
+##### 10823#       发表于 2026-8-23 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70128551&amp;ptid=2275806" target="_blank">squallx 发表于 2026-8-22 23:58</a>
+V4FV人体识别能力不错啊 拿自己的测试图4K单人三只手BUG OPS啥的这张都没识别到问题 就V4FV过了</blockquote>
+有了啊 就是只有15的额度
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  很久就在那边l  
+##### 10824#       发表于 2026-8-23 00:01
+
+才发现老黄平台上了免费k3，可以用k3文爱了
+
+
+*****
+
+####  UncleDracula  
+##### 10825#       发表于 2026-8-23 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70128576&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-8-23 00:01</a>
+
+才发现老黄平台上了免费k3，可以用k3文爱了</blockquote>
+能用多少token？我上次用英伟达的API，特么用GLM5.2一个问题都没解决就给我402了
+
