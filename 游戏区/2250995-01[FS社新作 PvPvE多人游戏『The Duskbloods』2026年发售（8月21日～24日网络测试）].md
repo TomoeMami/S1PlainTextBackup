@@ -3407,3 +3407,16 @@ boss分地图上没有提示的，入侵和强入侵。作为提供血之力的�
 
 2026-8-22 19:31 上传
 
+
+*****
+
+####  serj005  
+##### 431#       发表于 2026-8-22 20:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126859&amp;ptid=2250995" target="_blank">Kojimaru 发表于 2026-8-22 19:29</a>
+
+差不多可以说是黑环plus版了，每个阶段要做的事情都有很多，资源路线和变数比黑环深得不是一个量级：
+
++day1 ...</blockquote>
+可以像黑环那样边看地图边跑路的，系统设置最后一项，默认是开启地图后左摇杆移动光标，可以把在打开地图后的左摇杆操作改成移动角色
+
