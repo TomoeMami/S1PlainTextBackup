@@ -4018,3 +4018,16 @@ harnes ...</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  一般市民  
+##### 10746#       发表于 2026-8-22 19:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126775&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-8-22 19:09</a>
+
+如果llm的成本进一步降低，好像可以考虑在用户打字的时候就让大模型开始猜用户意图，提前准备答案。
+
+harnes ...</blockquote>
+Gork的Web端就是这样的，有些极简问题比如"1+1"直接在输入框下面显示答案。
+
