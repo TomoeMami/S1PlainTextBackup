@@ -4398,3 +4398,35 @@ ox根本用不了 今晚准备充钱重回梁文谷
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  SmterC  
+##### 10777#       发表于 2026-8-22 21:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70126927&amp;ptid=2275806" target="_blank">飛霞精灵 发表于 2026-8-22 19:44</a>
+
+问问一个工作上的问题，是否需要DSH帮忙搞定。
+
+我手头有现成的教材电子版，章节和教材本身就可以。
+
+但新学 ...</blockquote>
+模型能力肯定是够的，不过还要看配套工具对office类文件的支持
+
+我之前测试的时候，codex桌面版自带一个对office操作的skill还是什么工具，相比起其他的agent类工具，就更擅长处理好文字排版这一块
+
+可以试试
+
+
+*****
+
+####  舞以  
+##### 10778#       发表于 2026-8-22 21:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127507&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-22 21:02</a>
+
+ox根本用不了 今晚准备充钱重回梁文谷
+
+有没有那个鲸鱼娘亲自帮计费的那个dsh插件的地址？（</blockquote>
+[https://github.com/MeteorNOX/DeepSeek-Balance-Whale-Widget](https://github.com/MeteorNOX/DeepSeek-Balance-Whale-Widget)
+
