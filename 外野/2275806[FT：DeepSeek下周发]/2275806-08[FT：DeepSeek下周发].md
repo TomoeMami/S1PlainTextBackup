@@ -5868,3 +5868,38 @@ www.deepseek.com这个是deepseek官网是吗？那种消耗token的API要怎么
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  CCauchy  
+##### 10904#       发表于 2026-8-23 20:17
+
+熬了两天夜要死了，感觉被耍了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  bartholo4  
+##### 10905#       发表于 2026-8-23 20:17
+
+买了10来块一年的哈基米
+
+flash3.7虽然不聪明
+
+但便宜和快也能搞很多事了
+
+*****
+
+####  passgan  
+##### 10906#       发表于 2026-8-23 20:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70132339&amp;ptid=2275806" target="_blank">bartholo4 发表于 2026-8-23 20:17</a>
+
+买了10来块一年的哈基米
+
+flash3.7虽然不聪明
+
+但便宜和快也能搞很多事了</blockquote>
+求个关键字
+
