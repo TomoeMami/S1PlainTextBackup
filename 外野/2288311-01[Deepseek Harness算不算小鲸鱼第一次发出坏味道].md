@@ -511,3 +511,13 @@ flash3.7不卡不慢，但是依然很菜<img src="https://static.stage1st.com/i
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  FACS  
+##### 52#       发表于 2026-8-23 09:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70129338&amp;ptid=2288311" target="_blank">小止 发表于 2026-8-23 08:21</a>
+我就想知道真正有ai思维的软件到底是哪个啊    Re:Source</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">MOOC，cctalk，bilibili课程，coursera等等
+
