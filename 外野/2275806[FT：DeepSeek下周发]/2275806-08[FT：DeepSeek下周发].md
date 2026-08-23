@@ -5370,3 +5370,22 @@ DSV4FV，标准模式思维链正常了？或者有什么测试方法吗？
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  tillnight  
+##### 10863#       发表于 2026-8-23 12:25
+
+V4FV思维链基本是I need和I'll起手，不需要插件。
+
+
+*****
+
+####  阿刚  
+##### 10864#       发表于 2026-8-23 12:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70130271&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-23 12:25</a>
+
+V4FV思维链基本是I need和I'll起手，不需要插件。</blockquote>
+这个特别明显，早上给他打招呼他letme了一大堆然后回了句废话，刷新一下切除imdoing立刻开始按照要求读logs
+
