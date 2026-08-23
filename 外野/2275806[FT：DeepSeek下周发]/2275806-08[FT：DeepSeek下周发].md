@@ -6151,3 +6151,15 @@ ox今天白天转出来接到zcode里用，果然专武还得是专武。晚上�
 
 朋友们你们除了官方api，都用的哪些平台呢？感觉一看评论就是哪哪的plan都不行，要么额度不透明不如本家，要么高峰期不响应。
 
+
+*****
+
+####  zhongjie  
+##### 10930#       发表于 2026-8-24 00:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70133626&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-8-23 23:48</a>
+朋友们你们除了官方api，都用的哪些平台呢？感觉一看评论就是哪哪的plan都不行，要么额度不透明不如本家， ...</blockquote>
+openrouter，zenmux，charm hyper。靠谱程度依次递减
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
