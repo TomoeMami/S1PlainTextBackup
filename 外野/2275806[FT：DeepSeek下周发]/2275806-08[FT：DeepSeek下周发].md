@@ -5656,3 +5656,14 @@ opencode go现在支持v4flash视觉版了吗</blockquote>
 现在有点尴尬，基元的额度不知道干啥用</blockquote>
 随便一个任务就几块钱出去了，基元的额度非常不经用<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  南辰  
+##### 10885#       发表于 2026-8-23 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70131145&amp;ptid=2275806" target="_blank">囧Smith 发表于 2026-8-23 16:22</a>
+
+opencode go现在支持v4flash视觉版了吗</blockquote>
+支持了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
