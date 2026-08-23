@@ -594,3 +594,162 @@ Ave Mujica ミニAlbum「神の名を」
 #残酷な天使のテーゼ #AveMujica #バンドリ</blockquote>
      [https://www.bilibili.com/video/BV1DJ8m6fEao](https://www.bilibili.com/video/BV1DJ8m6fEao)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42005#       发表于 2026-8-23 15:24
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/23/152409t7uuaq0s2cawzza4.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-08-23_15-18-00.jpg</strong> (226.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-23 15:24 上传
+
+       [https://x.com/bang_dream_info/status/2091357256864661944](https://x.com/bang_dream_info/status/2091357256864661944)
+
+       [https://www.youtube.com/watch?v=mBplXytkpP0](https://www.youtube.com/watch?v=mBplXytkpP0)
+
+       <strong>【期間限定】Ave Mujica「顔」「Sophie」「‘S/’ The Way」「KiLLKiSS」【YouTube Music Weekend 12.0】</strong> &lt;——bilibili非官方搬运 <blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/23/152409khpvye132vry1qvi.jpg" referrerpolicy="no-referrer">
+
+<strong>03c0fbad98bfbb86b3c0c1156a0e985413e480d1.jpg</strong> (153.74 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-23 15:24 上传
+
+[https://www.youtube.com/watch?v=mBplXytkpP0](https://www.youtube.com/watch?v=mBplXytkpP0)
+
+2026年6月20日(土)にSGC HALL ARIAKEで開催されたAve Mujica LIVE TOUR 2026「Exitus」- FINAL - DAY2より、「顔」「Sophie」「‘S/’ The Way」「KiLLKiSS」4曲のフル映像を公開。
+
+アーカイブ配信：～9/6(日)23:59まで
+
+本公演の全編映像は、10月21日(水)リリース Ave Mujica ミニAlbum「神の名を」の5,000枚限定生産特装盤・Blu-ray付生産限定盤に収録。
+
+詳しくはこちら：[https://bang-dream.com/discographies/...](https://bang-dream.com/discographies/...)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica Best Album「Ave Música」
+
+Streaming/DL：[https://bmu.lnk.to/AveMujica_BestALid](https://bmu.lnk.to/AveMujica_BestALid)
+
+数量限定生産特装盤・Blu-ray付生産限定盤にはAve Mujica 6th LIVE「Ulterius Procedere」東京公演の映像を収録。
+
+「The Whole Blue World」のMVがAve Mujica公式YouTubeチャンネルにて公開中
+
+  
+
+ • Ave Mujica - The Whole Blue World (Officia...  
+
+詳しくはこちら：[https://bang-dream.com/discographies/...](https://bang-dream.com/discographies/...)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+Ave Mujica 7th LIVE「Virtus」@ 京王アリーナ TOKYO
+
+DAY1　2026年10月24日(土)
+
+DAY2　2026年10月25日(日)
+
+チケットプレイガイド先行受付中。
+
+受付期間：～ 9月2日(水) 23:59まで
+
+受付URL：[https://eplus.jp/avemujica_7th/](https://eplus.jp/avemujica_7th/)
+
+詳しくはこちら：[https://bang-dream.com/events/avemuji...](https://bang-dream.com/events/avemuji...)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+映画「BanG Dream! Ave Mujica prima aurora」
+
+2026年10月16日(金)公開
+
+詳しくはこちら：[https://avemujica-movie.bang-dream.com/](https://avemujica-movie.bang-dream.com/)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+「BanG Dream! It's MyGO!!!!! / Ave Mujica」続編TVアニメ
+
+2027年1月より日本テレビ系全国30局ネットにて地上波放送決定。
+
+詳しくはこちら：[https://anime.bang-dream.com/mygo-ave...](https://anime.bang-dream.com/mygo-ave...)
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+0:00 顔
+
+3:59 Sophie
+
+7:25 ‘S/’ The Way
+
+11:23 KiLLKiSS
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+◇バンドリ！
+
+公式サイト：[https://bang-dream.com/](https://bang-dream.com/)
+
+公式X： 
+
+ / bang_dream_info  
+
+◇Ave Mujica
+
+公式サイト：[https://bang-dream.com/artist/avemujica/](https://bang-dream.com/artist/avemujica/)
+
+公式X： 
+
+ / bdp_avemujica  
+
+ーーーーーーーーーーーーーーーーーーーーーーーーーーー
+
+#バンドリ #AveMujica #YouTubeMusicWeekend</blockquote>
+       [https://www.bilibili.com/video/BV19d846yE7b](https://www.bilibili.com/video/BV19d846yE7b)
+
+*****
+
+####  堀内爱里衣  
+##### 42006#       发表于 2026-8-23 15:24
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/23/152456ze0yib4vvqecpo8c.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-08-23_15-19-26.jpg</strong> (207.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-23 15:24 上传
+
+       [https://x.com/bang_dream_info/status/2091375124737867946](https://x.com/bang_dream_info/status/2091375124737867946)
+
+       [https://t.co/mQsD1RAs9E](https://t.co/mQsD1RAs9E)
+
+*****
+
+####  堀内爱里衣  
+##### 42007#       发表于 2026-8-23 15:25
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/23/152521btan66zo6qa26n66.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-08-23_15-20-24.jpg</strong> (235.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-23 15:25 上传
+
+       [https://x.com/bang_dream_info/status/2091379912871653757](https://x.com/bang_dream_info/status/2091379912871653757)
+
+       [https://t.co/mQsD1RAZZc](https://t.co/mQsD1RAZZc)
+
