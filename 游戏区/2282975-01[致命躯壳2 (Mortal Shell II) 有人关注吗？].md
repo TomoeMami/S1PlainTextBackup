@@ -1083,3 +1083,14 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 
 全图篝火也只有17个，作为对比法环新手区啜泣半岛是17还是18个火，所以说前半段好好做也是伪命题，只有demo部分算好好做。
 
+
+*****
+
+####  蒋公卖萌  
+##### 109#       发表于 2026-8-23 13:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70130530&amp;ptid=2282975" target="_blank">Bieaeml 发表于 2026-8-23 13:20</a>
+
+没法回去，必须拿心脏前就开了宝箱，不然直接少一个成就，所以制作组连前期都没好好做。 ...</blockquote>
+我去这个档废了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都什么年代了还在搞死了一次就再也不能回来这套啊，还是在魂系游戏里这么搞
+

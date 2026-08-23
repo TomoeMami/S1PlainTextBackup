@@ -567,3 +567,11 @@ pi agent环境下dsv4fv爬完楼的感想：
 
 这是楼主想要的ai原生思维吗？
 
+
+*****
+
+####  ninini212  
+##### 57#       发表于 2026-8-23 13:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无语，典型的连ai都不会用的只靠ai的思维
+
