@@ -6099,3 +6099,47 @@ ox今天白天转出来接到zcode里用，果然专武还得是专武。晚上�
 
 冥冥之中感觉ds下周还有大的<img src="https://static.stage1st.com/image/smiley/face/18.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wonderful259  
+##### 10926#       发表于 2026-8-23 23:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70133533&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-23 23:28</a>
+
+不是，现在重训个基模这么容易吗？ds和glm都很快拿出来了水平不差的多模态模型，这种应该要换基模重训的吧 ...</blockquote>
+加个多模态一般不需要
+
+*****
+
+####  qwased  
+##### 10927#       发表于 2026-8-23 23:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70133562&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-23 23:34</a>
+
+这么看那个maxforai又在鬼扯，信誓旦旦的说ox alpha 不是我们猜的那几个，上次说ds内置鲸鱼娘人格也是他说 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">实话说我对gemini一点信心都没有了，谷歌这种只有发布头几天好用后面直接上超绝降智版的策略是什么意思？谷歌也不缺算力啊
+
+*****
+
+####  kylezy123  
+##### 10928#       发表于 2026-8-23 23:45
+
+ 本帖最后由 kylezy123 于 2026-8-23 23:46 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70131123&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-23 16:15</a>
+
+我感觉可以拿pi改出一个酒馆来用
+
+小红书上看有个人说拿dsh改酒馆
+[https://github.com/xumengke2025-sys](https://github.com/xumengke2025-sys)</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/23/234106m3d6r7rwesyurvev.png" referrerpolicy="no-referrer">
+
+<strong>01231fce-4283-4fac-9d57-614ff101bf41.png</strong> (17.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-23 23:41 上传
+
+感谢坛友提供的灵感 靠v4f许愿试开发下 终于可以让酒馆用这个中转站了 就是非常慢
+

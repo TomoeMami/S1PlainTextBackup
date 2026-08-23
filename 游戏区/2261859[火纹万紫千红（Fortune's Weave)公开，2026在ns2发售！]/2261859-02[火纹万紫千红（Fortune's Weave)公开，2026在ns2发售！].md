@@ -15516,3 +15516,21 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 这代怎么感觉可招募人数突破天际了，刚看到连前面关卡的土匪小boss都能招募 ...</blockquote>
 IF的看守所：想我了吗？抓小boss进队
 
+
+*****
+
+####  Farlight  
+##### 2954#       发表于 2026-8-23 23:43
+
+没有豪华版卖吗，多多没搜到
+
+*****
+
+####  创始’’’天翔  
+##### 2955#       发表于 2026-8-23 23:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70110726&amp;ptid=2261859" target="_blank">cox 发表于 2026-8-20 08:28</a>
+
+血统论果然是日式游戏尤其是RPG不可不品的一环。</blockquote>
+火纹这系列不就主打的血统论么
+
