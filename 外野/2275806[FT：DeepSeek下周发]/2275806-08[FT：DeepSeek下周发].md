@@ -5349,3 +5349,24 @@ https://github.com/Xiyinnnnnn/deepseek-nsfw-compat    Re:Source</blockquote>
 
 DSV4FV，标准模式思维链正常了？或者有什么测试方法吗？
 
+
+*****
+
+####  阿刚  
+##### 10861#       发表于 2026-8-23 12:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">说起来价格都一样的话是不是v4f视觉是不是替代v4f了，感觉他的思维链甚至更稳一些？
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 10862#       发表于 2026-8-23 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70130230&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-23 12:15</a>
+说起来价格都一样的话是不是v4f视觉是不是替代v4f了，感觉他的思维链甚至更稳一些？ ...</blockquote>
+我目前感觉是这样
+要说唯一差别就是opencode go的flash视觉的额度少
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
