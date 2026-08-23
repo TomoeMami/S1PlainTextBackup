@@ -1135,3 +1135,14 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 借用下楼上的图，这块区域有个很小的城堡，里面有个交互道具可以传送你去一个大型城堡，传送后你是出现在 ...</blockquote>
 赎罪堡垒有篝火啊
 
+
+*****
+
+####  Bieaeml  
+##### 113#       发表于 2026-8-23 16:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70131165&amp;ptid=2282975" target="_blank">ku2154513 发表于 2026-8-23 16:27</a>
+
+赎罪堡垒有篝火啊</blockquote>
+那我确实漏了，我只找到堡垒右边幽暗森林的那个火
+
