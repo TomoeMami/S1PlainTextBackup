@@ -72,3 +72,16 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  SD熊  
+##### 2183#       发表于 2026-8-23 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70133096&amp;ptid=2250267" target="_blank">BurstCoil 发表于 2026-8-23 22:09</a>
+
+剧本在令和也是垫底水平吗，我对令和骑士剧本云来的印象一直很差
+
+—— 来自 S1Fun ...</blockquote>
+集无聊谜语灌水零塑造配角不解释设定和前言不搭后语于一身<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
