@@ -84,3 +84,23 @@
 
 看武部大妈这几年操作，她蛮喜欢搞演员营销的，极狐加布小作文短视频演员服务相当多，看鼠鼠开播前宣发节奏，应该是差不多的打法
 
+
+*****
+
+####  发呆的龙虾  
+##### 94#       发表于 2026-8-23 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70129535&amp;ptid=2278175" target="_blank">挺好的 发表于 2026-8-23 09:24</a>
+只是说龙是麦斯强化形态又不是说没有龙的独立骑士</blockquote>
+哦，那我理解错了。
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  挺好的  
+##### 95#       发表于 2026-8-23 09:41
+
+PV里就有用乌龟打兔子的情节，而乌龟和兔子用的是相同的蛋，蛋怎么有两个得看剧中了（
+
