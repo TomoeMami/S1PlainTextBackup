@@ -6028,3 +6028,23 @@ www.deepseek.com这个是deepseek官网是吗？那种消耗token的API要怎么
 
 nsfw其实……整了个印区grok，文字比谁都放得开
 
+
+*****
+
+####  奈落的孤火花  
+##### 10919#       发表于 2026-8-23 22:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127844&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-8-22 21:49</a>
+
+如果大家想试试。我明天让ai帮我搞个总结md发上来吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">有没有总结呀坛友
+
+*****
+
+####  lactone  
+##### 10920#       发表于 2026-8-23 22:48
+
+glm5.3turbo要出来了？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

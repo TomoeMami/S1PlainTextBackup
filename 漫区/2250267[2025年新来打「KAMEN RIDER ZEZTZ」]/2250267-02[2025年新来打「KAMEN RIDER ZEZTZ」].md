@@ -85,3 +85,11 @@
 —— 来自 S1Fun ...</blockquote>
 集无聊谜语灌水零塑造配角不解释设定和前言不搭后语于一身<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永恒的王牌  
+##### 2184#       发表于 2026-8-23 22:54
+
+所以当年高桥的EA前中期到底怎么写出来的，还是说其实高桥没变变得是观众的脑子<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
