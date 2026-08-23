@@ -49,3 +49,26 @@
 论坛助手,iPhone</blockquote>
 那没错，其他方面垫底而已，光演出这块就是歌查德一辈子够不到的高度了
 
+
+*****
+
+####  BurstCoil  
+##### 2181#       发表于 2026-8-23 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70132935&amp;ptid=2250267" target="_blank">浅川雏羽 发表于 2026-8-23 21:46</a>
+卖相太好，视效在TV蒙面超人里独一份，故事在新十年里也就秒杀zio踩头ghost勉强胜过法爷吧，其他真打不过 ...</blockquote>
+那比心理预期高出太多了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这下不得不看了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  BurstCoil  
+##### 2182#       发表于 2026-8-23 22:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70132846&amp;ptid=2250267" target="_blank">SD熊 发表于 2026-8-23 21:37</a>
+视听体验40集之前是完爆新十年的水平，其他方面在令和是垫底水平</blockquote>
+剧本在令和也是垫底水平吗，我对令和骑士剧本云来的印象一直很差<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
