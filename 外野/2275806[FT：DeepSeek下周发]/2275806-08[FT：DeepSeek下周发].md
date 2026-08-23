@@ -5453,3 +5453,22 @@ oh-my-pi
 问下是dsh 里的设置吗？我按dsh自己提供的文档改了文件，但是还是无法破甲。 ...</blockquote>
 我在pi里用的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  冤枉呐  
+##### 10871#       发表于 2026-8-23 15:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70129202&amp;ptid=2275806" target="_blank">MeursaulT 发表于 2026-8-23 06:56</a>
+
+我用的这个
+
+https://github.com/Xiyinnnnnn/deepseek-nsfw-compat    Re:Source</blockquote>
+这个是nsfw
+
+我之前还从来没见过他不愿意回答的
+
+托管阿里云的第三方不行。
+
+想试试安全甲，感觉找不到路
+

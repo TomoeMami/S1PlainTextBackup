@@ -15452,3 +15452,21 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 
 看了下其他的媒体图，蕾达线好像甚至能招法比奥
 
+
+*****
+
+####  Jabeck  
+##### 2947#       发表于 2026-8-23 15:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123388&amp;ptid=2261859" target="_blank">57042711 发表于 2026-8-21 23:53</a>
+
+这次要是敌人会毫无保留的对着玩家使用专属技能的话那不可能无聊的</blockquote>
+结合里敌人就能用结合后的技能，恶心死了。
+
+*****
+
+####  四个明  
+##### 2948#       发表于 2026-8-23 15:13
+
+白发鬼看着跟凯有点血缘关系<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
