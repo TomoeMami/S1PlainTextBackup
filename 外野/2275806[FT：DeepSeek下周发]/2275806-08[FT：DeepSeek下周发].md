@@ -5811,3 +5811,35 @@ nsfw破了基本上安全政治都会一起破。官渠的甲薄，阿里云有�
 搞个网站叫他给我绕过会员？</blockquote>
 可以啊，有些网站的会员墙能破，比如FT新闻这种
 
+
+*****
+
+####  凡人一名  
+##### 10899#       发表于 2026-8-23 19:55
+
+[www.deepseek.com](http://www.deepseek.com)这个是deepseek官网是吗？那种消耗token的API要怎么设置或使用啊？
+
+*****
+
+####  舞以  
+##### 10900#       发表于 2026-8-23 19:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70132221&amp;ptid=2275806" target="_blank">凡人一名 发表于 2026-8-23 19:55</a>
+
+www.deepseek.com这个是deepseek官网是吗？那种消耗token的API要怎么设置或使用啊？ ...</blockquote>
+[https://platform.deepseek.com](https://platform.deepseek.com)
+
+这是ds的api平台网站，去那里看看文档吧
+
+
+*****
+
+####  野蛮人之夜  
+##### 10901#       发表于 2026-8-23 20:00
+
+ 本帖最后由 野蛮人之夜 于 2026-8-23 20:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70132098&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-23 19:34</a>
+
+感觉我还是适合即用即付，用了几天快结束的订阅，跟赶尸一样，什么想法都糊进去，没有深思熟虑过，最后也没 ...</blockquote>
+要不你先开个web/app的对话让它评估可行性、成熟度和划不划算，要是不行就先把点子寄在它那里，攒一波点子再开搞？
+
