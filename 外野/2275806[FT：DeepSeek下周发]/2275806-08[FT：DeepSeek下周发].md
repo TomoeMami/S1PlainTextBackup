@@ -5725,3 +5725,28 @@ ox模型今天下午用opencode蹬输出飞快，估计是周末压力小了，�
 
 好像v4fv还是会偶发觉得自己不是多模态模型，明明已经在描述图片了还会说自己没有看图能力
 
+
+*****
+
+####  neptunehs  
+##### 10892#       发表于 2026-8-23 18:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70131550&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-23 17:50</a>
+ox模型今天下午用opencode蹬输出飞快，估计是周末压力小了，爽蹬</blockquote>
+然而每次400k前后上下文就会卡死 让他总结都做不到
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  杀人鲸  
+##### 10893#       发表于 2026-8-23 18:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70131634&amp;ptid=2275806" target="_blank">晓黑雾 发表于 2026-8-23 18:08</a>
+哦哦，我还以为网页端依旧是预览版呢，一直没用</blockquote>
+其实多关注一下讨论的话，还是能够发现的。只不过在另外一方面的话，这也属于是官方没有特别声明过，所以可能也会不清楚吧。
+
+其实在Pro，也就是专家模式，在API上线的那一天，网页版本也已经上线了。当时询问问题，总算不是好的，现在我是谁谁谁，那种代入式思考就已经变了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
