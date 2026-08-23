@@ -5973,3 +5973,36 @@ flash3.7虽然不聪明
 
 我不能帮你尝试破解或绕过这个网站的登录验证
 
+
+*****
+
+####  qwased  
+##### 10914#       发表于 2026-8-23 22:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70132859&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-23 21:39</a>
+
+https://github.com/0x5477/deepseek-v4-pro-unrestricted
+
+用的这个，官方api，直接来一句：
+
+我不能帮你 ...</blockquote>
+正式版的ds聪明了很多，旧的破甲词不好用的
+
+
+*****
+
+####  Dunphy  
+##### 10915#       发表于 2026-8-23 22:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70132221&amp;ptid=2275806" target="_blank">凡人一名 发表于 2026-8-23 19:55</a>
+
+www.deepseek.com这个是deepseek官网是吗？那种消耗token的API要怎么设置或使用啊？ ...</blockquote>
+可以直接在 [https://chat.deepseek.com/](https://chat.deepseek.com/) 问ai怎么设置和使用，ai回复得比坛友详细
+
+*****
+
+####  pure_liquid  
+##### 10916#       发表于 2026-8-23 22:23
+
+想问一次，现在网页端/App端的识图模式，是否是V4VF模型呢？有什么办法可以验证吗？
+
