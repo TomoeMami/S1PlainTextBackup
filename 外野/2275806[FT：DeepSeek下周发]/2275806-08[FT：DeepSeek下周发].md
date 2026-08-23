@@ -5667,3 +5667,11 @@ opencode go现在支持v4flash视觉版了吗</blockquote>
 opencode go现在支持v4flash视觉版了吗</blockquote>
 支持了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晓黑雾  
+##### 10886#       发表于 2026-8-23 17:42
+
+问个问题，目前DeepSeek的网页端还是V4预览版吗？
+
