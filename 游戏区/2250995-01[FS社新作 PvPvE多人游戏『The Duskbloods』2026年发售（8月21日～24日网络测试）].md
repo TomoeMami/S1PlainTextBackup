@@ -3731,3 +3731,11 @@ pve内容还是难受，怪物就那么几种，打起来还没意思。
 
 说像桌游的都是叶公好龙罢了
 
+
+*****
+
+####  漫漫来  
+##### 461#       发表于 2026-8-23 11:55
+
+压力真的大的批爆，黑环时间已经很紧了，黄血还犹有过之，玩起来真的太累了<img src="https://static.stage1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
