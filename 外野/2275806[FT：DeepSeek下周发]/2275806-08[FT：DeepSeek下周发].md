@@ -6048,3 +6048,24 @@ glm5.3turbo要出来了？
 
 —— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  chronicle  
+##### 10921#       发表于 2026-8-23 23:12
+
+ox alpha就是 glm turbo
+
+*****
+
+####  qwased  
+##### 10922#       发表于 2026-8-23 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70133286&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-23 22:39</a>
+佬，求指路
+
+主要还是折腾，我现在得把基元的额度给蹬了
+
+nsfw其实……整了个印区grok，文字比谁都放得开 ...</blockquote>
+我记得pro正式版刚出来那会有楼友发过，我没存，你往前翻翻看
+
