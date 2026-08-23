@@ -5634,3 +5634,25 @@ opencode go现在支持v4flash视觉版了吗</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  阿刚  
+##### 10883#       发表于 2026-8-23 17:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70131023&amp;ptid=2275806" target="_blank">谎称 发表于 2026-8-23 15:38</a>
+
+网页版的v4fv就是识图模式吗？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">体感上4fv要聪明一点
+
+
+*****
+
+####  qwased  
+##### 10884#       发表于 2026-8-23 17:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70131152&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-23 16:24</a>
+
+现在有点尴尬，基元的额度不知道干啥用</blockquote>
+随便一个任务就几块钱出去了，基元的额度非常不经用<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
