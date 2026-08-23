@@ -6006,3 +6006,25 @@ www.deepseek.com这个是deepseek官网是吗？那种消耗token的API要怎么
 
 想问一次，现在网页端/App端的识图模式，是否是V4VF模型呢？有什么办法可以验证吗？
 
+
+*****
+
+####  valand  
+##### 10917#       发表于 2026-8-23 22:36
+
+我现在觉得 AI 的黄金时代就是 8 月 17 日 ds 涨价前，目前消耗是真的大多了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冤枉呐  
+##### 10918#       发表于 2026-8-23 22:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70133124&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-23 22:14</a>
+
+正式版的ds聪明了很多，旧的破甲词不好用的</blockquote>
+佬，求指路
+
+主要还是折腾，我现在得把基元的额度给蹬了
+
+nsfw其实……整了个印区grok，文字比谁都放得开
+
