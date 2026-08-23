@@ -40,3 +40,22 @@
 
 唉，反正我感觉现在这个动画的短板反而是成田的原作
 
+
+*****
+
+####  Piano-Forest  
+##### 1479#         楼主| 发表于 2026-8-24 03:07
+
+━━━━━━━━━━━━━━
+
+ TVアニメ『Fate/strange Fake』
+
+　　  新シリーズ制作決定
+
+━━━━━━━━━━━━━━
+
+Rise Against the Rules.
+
+▼新シリーズティザービジュアル公開
+<img src="https://p.sda1.dev/34/acb81530c555a76589533da3004de450/1000172715.jpg" referrerpolicy="no-referrer">
+
