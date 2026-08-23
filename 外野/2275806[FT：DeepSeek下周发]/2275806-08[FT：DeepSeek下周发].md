@@ -6248,3 +6248,15 @@ openrouter，zenmux，charm hyper。靠谱程度依次递减
 尽量别让他自己质检啊！每次新图都是未命中的，而且图片按大小算token他直接捞原图喂自己烧你token，手动 ...</blockquote>
 v4fv最多只支持720p左右，截图与否没区别    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  杀人鲸  
+##### 10940#       发表于 2026-8-24 01:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70134027&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-24 00:48</a>
+我将用最不绕弯子的话告诉你，相较于2.4.0就更新了版本号    Re:Source</blockquote>
+其实这话还真是。很多时候更新都不知道到底更新了什么，更新内容栏里也就只显示“修复了已存在的问题”，而不是“增添了什么新功能”。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
