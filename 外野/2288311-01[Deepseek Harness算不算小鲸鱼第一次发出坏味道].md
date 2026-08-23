@@ -575,3 +575,13 @@ pi agent环境下dsv4fv爬完楼的感想：
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无语，典型的连ai都不会用的只靠ai的思维
 
+
+*****
+
+####  浅夏晴雨  
+##### 58#       发表于 2026-8-23 14:09
+
+没理由啊，楼主是没亲自去看过 cordis 的论文吗？
+
+里头提了一些范畴论的概念，就已经让一些 FP 爱好者直接高潮了。现在都找不出第二个如此符合他们预期的 agent 框架了。怎么会是传统软件思维呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
