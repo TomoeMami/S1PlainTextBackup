@@ -6281,3 +6281,23 @@ v4fv最多只支持720p左右，截图与否没区别    Re:Source</blockquote
 
 我生图让codex a/ gemini qwen试过查多胳膊多腿还有牛子柰子精度都非常低……
 
+
+*****
+
+####  squallx  
+##### 10943#       发表于 2026-8-24 04:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70134255&amp;ptid=2275806" target="_blank">jojog 发表于 2026-8-24 02:19</a>
+
+ai质检真的信得过吗
+
+我生图让codex a/ gemini qwen试过查多胳膊多腿还有牛子柰子精度都非常低…… ...</blockquote>
+都信不过 只能粗筛。 但是目前V4FV Q3.8 K3 OPUS GPT5.6这些里V4FV表现最好 
+
+*****
+
+####  squallx  
+##### 10944#       发表于 2026-8-24 04:23
+
+OX解决了一个HERMES接入酒馆导致头像和TTS不能共存的问题 直接重写了个插件 DEBUG能力挺强的 但是墨迹 确实是GLM味儿
+
