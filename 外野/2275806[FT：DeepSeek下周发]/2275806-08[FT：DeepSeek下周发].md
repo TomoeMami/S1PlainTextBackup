@@ -5798,3 +5798,16 @@ nsfw破了基本上安全政治都会一起破。官渠的甲薄，阿里云有�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  MeursaulT  
+##### 10898#       发表于 2026-8-23 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70132014&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-23 19:18</a>
+
+主要是我都不知道测什么
+
+搞个网站叫他给我绕过会员？</blockquote>
+可以啊，有些网站的会员墙能破，比如FT新闻这种
+
