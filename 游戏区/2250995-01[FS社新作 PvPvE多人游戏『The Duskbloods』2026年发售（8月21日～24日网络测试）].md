@@ -3844,3 +3844,16 @@ pve内容还是难受，怪物就那么几种，打起来还没意思。
 
 不过有意思的是因为是三人，明显强势的那个人可能会被另外两个联手先干掉，暗黑心理学（
 
+
+*****
+
+####  Zeno_5  
+##### 473#       发表于 2026-8-23 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70128490&amp;ptid=2250995" target="_blank">serj005 发表于 2026-8-22 23:44</a>
+
+原本的设计目的应该是在随机时间把一团人聚集在一起，传送玩之后是所有玩家都在附近的。
+
+fs本来期待的结 ...</blockquote>
+我有一局给我直接传送到了大灯的面前，爽拿一波分<img src="https://static.stage1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+

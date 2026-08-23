@@ -5932,3 +5932,18 @@ flash3.7虽然不聪明
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也用小号搞了一年
 
+
+*****
+
+####  秦南心  
+##### 10910#       发表于 2026-8-23 20:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大号开了半年后被谷歌回收了……其他方面倒是没什么影响
+
+*****
+
+####  love4aids  
+##### 10911#       发表于 2026-8-23 20:47
+
+崩了吗？
+
