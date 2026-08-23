@@ -6301,3 +6301,22 @@ ai质检真的信得过吗
 
 OX解决了一个HERMES接入酒馆导致头像和TTS不能共存的问题 直接重写了个插件 DEBUG能力挺强的 但是墨迹 确实是GLM味儿
 
+
+*****
+
+####  cscbzcbz  
+##### 10945#       发表于 2026-8-24 07:40
+
+OX别的都好太容易断了，而且是断了没有办法继续的那种<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+昨天晚上跑了一个多小时，断了，没法继续了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空き地卯木  
+##### 10946#       发表于 2026-8-24 07:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70134026&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-24 00:48</a>
+尽量别让他自己质检啊！每次新图都是未命中的，而且图片按大小算token他直接捞原图喂自己烧你token，手动 ...</blockquote>
+有上限的，300多token一张图，约等于不要钱
+
