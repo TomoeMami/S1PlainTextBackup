@@ -6173,3 +6173,19 @@ openrouter，zenmux，charm hyper。靠谱程度依次递减
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  jonarryn  
+##### 10932#       发表于 2026-8-24 00:19
+
+求问硅基流动的0731靠谱吗？我看好像挺便宜的，楼里也有朋友推荐了？
+
+
+*****
+
+####  stackoverflow  
+##### 10933#       发表于 2026-8-24 00:27
+
+这opencodego真的有够慢的，开始一个任务八分钟思考四五行然后卡住了，受不了了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
