@@ -15505,3 +15505,14 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  黑卷轴陶德传  
+##### 2953#       发表于 2026-8-23 22:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70130878&amp;ptid=2261859" target="_blank">松狮酱 发表于 2026-8-23 15:02</a>
+
+这代怎么感觉可招募人数突破天际了，刚看到连前面关卡的土匪小boss都能招募 ...</blockquote>
+IF的看守所：想我了吗？抓小boss进队
+

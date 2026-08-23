@@ -93,3 +93,25 @@
 
 所以当年高桥的EA前中期到底怎么写出来的，还是说其实高桥没变变得是观众的脑子<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aisakahammer  
+##### 2185#       发表于 2026-8-23 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70132699&amp;ptid=2250267" target="_blank">BurstCoil 发表于 2026-8-23 21:22</a>
+
+在01后就没追过来打了，现在zzz能下判断质量如何了吗，能够到新十年平均水准吗
+
+—— 来自 S1Fun ...</blockquote>
+前面40集都看得很爽
+
+*****
+
+####  离心  
+##### 2186#       发表于 2026-8-23 23:00
+
+答案是猴子打字机<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
