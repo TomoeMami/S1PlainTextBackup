@@ -5341,3 +5341,11 @@ https://github.com/Xiyinnnnnn/deepseek-nsfw-compat    Re:Source</blockquote>
 搞了一个dsh的mcp server，可以在其他agent里面控制dsh<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 [https://github.com/litzh/dsh-plugins/tree/master/dsh-mcp-server](https://github.com/litzh/dsh-plugins/tree/master/dsh-mcp-server)
 
+
+*****
+
+####  UncleDracula  
+##### 10860#       发表于 2026-8-23 11:55
+
+DSV4FV，标准模式思维链正常了？或者有什么测试方法吗？
+
