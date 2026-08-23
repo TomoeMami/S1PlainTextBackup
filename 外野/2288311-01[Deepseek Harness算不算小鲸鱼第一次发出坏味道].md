@@ -647,3 +647,22 @@ pi的能力起码能输出人类能读懂的有意义的内容，而不是你的
 
 [https://cortex.hydroroll.team](https://cortex.hydroroll.team) LZ还是先去检查一下自己吧 早发现早治疗
 
+
+*****
+
+####  燕山雪  
+##### 65#       发表于 2026-8-23 20:58
+
+<blockquote>革萌 发表于 2026-8-22 20:24
+这番话在发出来之前，已经让AI检查过可能被抓住话柄的地方了</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/23/205801ufovuf4j4sj43z4j.jpg" referrerpolicy="no-referrer">
+
+<strong>1000011733.jpg</strong> (94.96 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-23 20:58 上传
+
+莫名想起来这张图~
+

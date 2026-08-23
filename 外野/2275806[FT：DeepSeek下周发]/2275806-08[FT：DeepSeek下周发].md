@@ -5947,3 +5947,14 @@ flash3.7虽然不聪明
 
 崩了吗？
 
+
+*****
+
+####  阿刚  
+##### 10912#       发表于 2026-8-23 20:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70131677&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-23 18:16</a>
+
+好像v4fv还是会偶发觉得自己不是多模态模型，明明已经在描述图片了还会说自己没有看图能力 ...</blockquote>
+这个好像和agent设置有关，我之前用hermes他总是把自己识别出来的东西当我发的文本，好像是要设定识别直接用主模型他就不倒这一手，至少hermes是
+
