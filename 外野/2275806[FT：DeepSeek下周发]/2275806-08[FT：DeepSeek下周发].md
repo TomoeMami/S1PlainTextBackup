@@ -5536,3 +5536,67 @@ PI内核的openhankao
 https://agentrouter.org/register?aff=rCgw</blockquote>
 话说这个中转站有办法在酒馆用吗
 
+
+*****
+
+####  冤枉呐  
+##### 10878#       发表于 2026-8-23 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70131096&amp;ptid=2275806" target="_blank">kylezy123 发表于 2026-8-23 16:07</a>
+
+话说这个中转站有办法在酒馆用吗</blockquote>
+我感觉可以拿pi改出一个酒馆来用
+
+小红书上看有个人说拿dsh改酒馆
+[https://github.com/xumengke2025-sys](https://github.com/xumengke2025-sys)
+
+------------
+
+目前支持客户端 Claude Code，Codex，Roo Code，Qwen Code。详情可查看 文档
+
+看了下文档：
+
+一、VS Code 插件型
+
+在 Cline 中使用
+
+在 Roo Code 中使用
+
+在 Kilo Code 中使用
+
+在 Claude Code 中使用
+
+在 GitHub Copilot 中使用
+
+二、CLI / 终端类
+
+在 Claude Code 中使用
+
+在 Codex 中使用
+
+在 Qwen Code 中使用
+
+在 OpenCode 中使用
+
+在 OpenClaw 中使用
+
+在 Hermes Agent 中使用
+
+在 Pi 中使用
+
+三、IDE / 桌面端型
+
+在 Claude App 中使用
+
+在 Trae 中使用
+
+在 Cursor 中使用
+
+
+*****
+
+####  囧Smith  
+##### 10879#       发表于 2026-8-23 16:22
+
+opencode go现在支持v4flash视觉版了吗
+
