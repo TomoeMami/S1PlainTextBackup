@@ -753,3 +753,30 @@ DAY2　2026年10月25日(日)
 
        [https://t.co/mQsD1RAZZc](https://t.co/mQsD1RAZZc)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42008#       发表于 2026-8-23 15:30
+
+       <strong>《BanG Dream! Our Notes》角色介绍PV: 丰川祥子</strong> <blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/23/153054o23x3h1er1evrlzx.jpg" referrerpolicy="no-referrer">
+
+<strong>23b1956c219002e1df1d6ff51dc5cd55134da304.jpg</strong> (89.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-23 15:30 上传
+
+由 BanG Dream! 企划带来的全新音游《BanG Dream! Our Notes》角色介绍PV：丰川祥子 正式公开！
+
+欢迎来到Ave Mujica的假面舞会。
+
+《BanG Dream! Our Notes》国际服预约火热进行中！
+
+┈┈┈┈┈┈┈┈┈⿻*.·
+
+#BanGDream# #交织的乐章# #丰川祥子#</blockquote>
+       [https://www.bilibili.com/video/BV1af8m6AE6z](https://www.bilibili.com/video/BV1af8m6AE6z)
+

@@ -585,3 +585,28 @@ pi agent环境下dsv4fv爬完楼的感想：
 
 里头提了一些范畴论的概念，就已经让一些 FP 爱好者直接高潮了。现在都找不出第二个如此符合他们预期的 agent 框架了。怎么会是传统软件思维呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  革萌  
+##### 59#         楼主| 发表于 2026-8-23 15:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70130555&amp;ptid=2288311" target="_blank">LieZ 发表于 2026-8-23 13:27</a>
+
+pi agent环境下dsv4fv爬完楼的感想：
+
+楼主抓住了一个真实路标——DSH 走的是"确定性软件框架＋可逆组件组 ...</blockquote>
+所以说pi的能力也是一个很微妙的问题，2019年开始发展的框架，和2022年改名叫Cordis并不是事实矛盾。
+
+*****
+
+####  革萌  
+##### 60#         楼主| 发表于 2026-8-23 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70130700&amp;ptid=2288311" target="_blank">浅夏晴雨 发表于 2026-8-23 14:09</a>
+
+没理由啊，楼主是没亲自去看过 cordis 的论文吗？
+
+里头提了一些范畴论的概念，就已经让一些 FP 爱好者直接 ...</blockquote>
+FP不是有狗哪年就有了吗
+

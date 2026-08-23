@@ -5472,3 +5472,11 @@ https://github.com/Xiyinnnnnn/deepseek-nsfw-compat    Re:Source</blockquote>
 
 想试试安全甲，感觉找不到路
 
+
+*****
+
+####  hyhyhyhy  
+##### 10872#       发表于 2026-8-23 15:36
+
+今天让长眼睛的D老师给儿子批改了作文，我儿子一笔烂字竟然绝大多数都认出来了，还说了上面有涂改、插入的地方，我觉得不错了
+
