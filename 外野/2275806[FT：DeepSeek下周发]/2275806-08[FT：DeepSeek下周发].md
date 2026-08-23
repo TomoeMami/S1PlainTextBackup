@@ -5295,3 +5295,20 @@ OpenCode Go都不敢蹬了等周用量重置再蹬。继续怀念猛蹬V4进度�
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  kozalak  
+##### 10856#       发表于 2026-8-23 11:01
+
+哈基米单独放一级
+
+HQW1x4HaoAAFnXM.jpeg
+(79.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-23 11:00 上传
+
+<img src="https://img.stage1st.com/forum/202608/23/110002krofo332cdovz9k3.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

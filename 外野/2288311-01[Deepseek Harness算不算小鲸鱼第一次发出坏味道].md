@@ -541,3 +541,17 @@ dsh把本地qwen3.8真正变成生产力了，我管他哪年的架构，好用�
 
 看了一下lz的回帖，感觉大概是这么个过程：ds估计干了lz全家，导致lz就想黑ds，但lz啥也不懂，于是就让ai写一篇黑稿，ai出了一篇车轱辘没内容的稿子，lz觉得这叫无懈可击，然后发了上来，被评论区的人怼“什么叫AI思维的软件”也不敢吱声，只能顾左右而言他。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 55#       发表于 2026-8-23 10:55
+
+ 本帖最后由 半江瑟瑟半江红 于 2026-8-23 10:58 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70129832&amp;ptid=2288311" target="_blank">7uly 发表于 2026-8-23 10:49</a>
+看了一下lz的回帖，感觉大概是这么个过程：ds估计干了lz全家，导致lz就想黑ds，但lz啥也不懂，于是就让ai写 ...</blockquote>
+肯定不是ai写的，里面疏漏太多了，连Cordis是哪年的都搞错了
+能写出来让gpt这种不说人话的端水大师说出来有至少一半内容可以删掉的文字，也算牛人了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
