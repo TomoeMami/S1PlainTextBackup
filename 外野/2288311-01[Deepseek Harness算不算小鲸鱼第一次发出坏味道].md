@@ -477,3 +477,27 @@ flash3.7不卡不慢，但是依然很菜<img src="https://static.stage1st.com/i
 这番话在发出来之前，已经让AI检查过可能被抓住话柄的地方了</blockquote>
 原来这就是ai原生思维吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 49#       发表于 2026-8-23 08:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70129137&amp;ptid=2288311" target="_blank">革萌 发表于 2026-8-23 05:31</a>
+论文指的是这一篇 A Programming Paradigm for Spatiotemporal Composability，当然是和DSH有关的。你这G ...</blockquote>
+5.6sol high，它想到的就是这篇
+
+你这个回复让gpt红温了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对这个原生不说人话的玩意来说，下面这种语气已经很重了
+字面上，这篇论文本来就不是 AI/Agent 算法论文，而是一篇关于动态软件组合、effect/coeffect、组件生命周期与可逆性的 PL/软件系统论文；但它又明确把“self-evolving agent harnesses”列为目标应用场景之一，而且 Cordis 正是 DSH 的底层架构。
+所以拿“论文没有讲 LLM、RL、prompt、benchmark”来证明“DSH 没有 AI 原生思维”，我仍然认为是批错层次了。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  overflowal  
+##### 50#       发表于 2026-8-23 08:44
+
+<img src="https://static.stage1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
