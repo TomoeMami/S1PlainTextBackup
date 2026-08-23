@@ -1140,3 +1140,17 @@ Lara running out of time -&gt; Lisa gives M ...</blockquote>
 
 —— 来自 Xiaomi 2112123AC, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  Talandar  
+##### 393#       发表于 2026-8-24 00:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70133973&amp;ptid=2183857" target="_blank">ArthurDent 发表于 2026-8-24 00:37</a>
+感觉要不如少歌了
+
+—— 来自 Xiaomi 2112123AC, Android 13, 鹅球 v4.0-alpha</blockquote>
+有点碰瓷了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AMG-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

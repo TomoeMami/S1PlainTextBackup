@@ -6209,3 +6209,42 @@ openrouter，zenmux，charm hyper。靠谱程度依次递减
 国算改了a/协议+上下文和最大输出就正常了，今天蹬了一整天搓出了个插件也是丝滑流畅，明天看看周中效果怎么样，可能负载下去了+配置对了又能用了
 不得不说v4fv是真的爽，配完comfyui生图工作流还带质检，要是还是折扣价那真的要起飞了
 
+
+*****
+
+####  nxmonitor  
+##### 10936#       发表于 2026-8-24 00:44
+
+这个价格不比V4FV低的话，根本没有什么水花的，雷霆大思考的毛病太严重了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿刚  
+##### 10937#       发表于 2026-8-24 00:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70134007&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-8-24 00:44</a>
+
+国算改了a/协议+上下文和最大输出就正常了，今天蹬了一整天搓出了个插件也是丝滑流畅，明天看看周中效果 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">尽量别让他自己质检啊！每次新图都是未命中的，而且图片按大小算token他直接捞原图喂自己烧你token，手动给他截图好一点
+
+*****
+
+####  王兰花秀丽  
+##### 10938#       发表于 2026-8-24 00:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70133839&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-8-24 00:16</a>
+最近更新怎么那么频繁？昨天还是前天才更新过，又更新到4.01了。所以，又有什么大的更新要来了吗？
+
+——  ...</blockquote>
+我将用最不绕弯子的话告诉你，相较于2.4.0就更新了版本号    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  王兰花秀丽  
+##### 10939#       发表于 2026-8-24 00:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70134026&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-24 00:48</a>
+尽量别让他自己质检啊！每次新图都是未命中的，而且图片按大小算token他直接捞原图喂自己烧你token，手动 ...</blockquote>
+v4fv最多只支持720p左右，截图与否没区别    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
