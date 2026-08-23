@@ -5750,3 +5750,28 @@ ox模型今天下午用opencode蹬输出飞快，估计是周末压力小了，�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  冤枉呐  
+##### 10894#       发表于 2026-8-23 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70131379&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-23 17:14</a>
+随便一个任务就几块钱出去了，基元的额度非常不经用</blockquote>
+我0907到期132，0917再到期132
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  MeursaulT  
+##### 10895#       发表于 2026-8-23 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70130901&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-23 15:08</a>
+这个是nsfw
+
+我之前还从来没见过他不愿意回答的
+
+托管阿里云的第三方不行。</blockquote>
+nsfw破了基本上安全政治都会一起破。官渠的甲薄，阿里云有额外审查，和火山一样都是甲最厚的渠道。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
