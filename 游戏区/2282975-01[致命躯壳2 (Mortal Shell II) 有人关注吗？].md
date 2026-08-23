@@ -968,3 +968,21 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 
 其实最终boss二阶段那个缴械debuff和黑夜难度的一个解谜有关，进忘了哪三个大副本捡道具然后开黑夜去拿双刀那个塔就给异常耐性的物品了。只能说也是制作组的又一个精妙的小巧思<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gwyndolin  
+##### 101#       发表于 2026-8-23 11:38
+
+27小时全圣卵通关。依次经历了
+
+1.可能真的是第一类魂<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+2.什么垃圾地图，怎么哪哪都是怪，我篝火呢<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+3.哇，这也太无双了，堆怪也是割草，哪里还需要篝火，纯纯爽游啊<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+4.怎么小怪打我也是割草？怎么后期地牢那么敷衍？怎么拖流程的设计那么多？<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+刚进游戏的前几小时，和附魔石头升到满级开启轮椅build这两个时间段应该是体验最好的时候。其余时间真的有点折磨。
+

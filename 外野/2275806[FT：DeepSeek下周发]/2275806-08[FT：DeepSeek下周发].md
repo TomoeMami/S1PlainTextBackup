@@ -5320,3 +5320,24 @@ HQW1x4HaoAAFnXM.jpeg
 
 dsv4f的三方供应商现在也挺多的了，感觉该搞一个类似雷达站来检测 价格/tps/缓存时间
 
+
+*****
+
+####  zerona  
+##### 10858#       发表于 2026-8-23 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70129202&amp;ptid=2275806" target="_blank">MeursaulT 发表于 2026-8-23 06:56</a>
+
+我用的这个
+
+https://github.com/Xiyinnnnnn/deepseek-nsfw-compat    Re:Source</blockquote>
+问下是dsh 里的设置吗？我按dsh自己提供的文档改了文件，但是还是无法破甲。
+
+*****
+
+####  小野賢章  
+##### 10859#       发表于 2026-8-23 11:43
+
+搞了一个dsh的mcp server，可以在其他agent里面控制dsh<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://github.com/litzh/dsh-plugins/tree/master/dsh-mcp-server](https://github.com/litzh/dsh-plugins/tree/master/dsh-mcp-server)
+
