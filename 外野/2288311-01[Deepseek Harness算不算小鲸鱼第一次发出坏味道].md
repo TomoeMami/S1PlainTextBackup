@@ -521,3 +521,15 @@ flash3.7不卡不慢，但是依然很菜<img src="https://static.stage1st.com/i
 我就想知道真正有ai思维的软件到底是哪个啊    Re:Source</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">MOOC，cctalk，bilibili课程，coursera等等
 
+
+*****
+
+####  snailium  
+##### 53#       发表于 2026-8-23 10:15
+
+dsh把本地qwen3.8真正变成生产力了，我管他哪年的架构，好用就行。
+
+顺便，dsh可以拿来做后端和模型测试。别的agentic平台我还没见过这么好用的
+
+[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
