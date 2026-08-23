@@ -1020,3 +1020,47 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 
 在黑脊通道那里，谁能告诉我最近的篝火在哪？（寡妇崖蘑菇村那些的我已经去过了）找了两个多小时了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒋公卖萌  
+##### 105#       发表于 2026-8-23 13:12
+
+走到这个地方，就是解锁格拉古躯壳的任务地点，拿到任务道具后石化的小怪会复活那里，被打死了，回来发现入口封住打不开了，里面还有个宝箱没开呢，还有别的路能进去吗？亦或者死了一次永远回不去了？
+
+2584270_13.jpg
+(385.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-23 13:12 上传
+
+<img src="https://img.stage1st.com/forum/202608/23/131242vu2o7zcub6zolbll.jpg" referrerpolicy="no-referrer">
+
+2584270_14.jpg
+(250.03 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-23 13:12 上传
+
+<img src="https://img.stage1st.com/forum/202608/23/131242v8fis7ilsq8i8973.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Gwyndolin  
+##### 106#       发表于 2026-8-23 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70130212&amp;ptid=2282975" target="_blank">蒋公卖萌 发表于 2026-8-23 12:13</a>
+
+在黑脊通道那里，谁能告诉我最近的篝火在哪？（寡妇崖蘑菇村那些的我已经去过了）找了两个多小时了 ...</blockquote>
+其实就是没篝火的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/23/131412hqazayng6uqhzylp.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1787461724071.png</strong> (1.19 MB, 下载次数: 0)
+
+下载附件
+
+2026-8-23 13:14 上传
+
