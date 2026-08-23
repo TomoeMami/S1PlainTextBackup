@@ -36,3 +36,16 @@
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  SD熊  
+##### 2180#       发表于 2026-8-23 22:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70132940&amp;ptid=2250267" target="_blank">浅川雏羽 发表于 2026-8-23 21:47</a>
+
+天塌下来也有gotchard垫着，令和蒙面超人很难烂过gotchard
+
+论坛助手,iPhone</blockquote>
+那没错，其他方面垫底而已，光演出这块就是歌查德一辈子够不到的高度了
+

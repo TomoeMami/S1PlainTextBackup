@@ -1156,3 +1156,13 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 那我确实漏了，我只找到堡垒右边幽暗森林的那个火</blockquote>
 就在一堆活尸后面的小广场，乍看像棵树不太显眼
 
+
+*****
+
+####  我就再氪一单  
+##### 115#       发表于 2026-8-23 21:58
+
+打完demo部分怎么就突发恶疾了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
