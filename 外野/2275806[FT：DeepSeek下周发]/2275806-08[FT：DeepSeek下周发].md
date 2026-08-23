@@ -5622,3 +5622,15 @@ opencode go现在支持v4flash视觉版了吗
 
 [https://agentrouter.org/register?aff=DCoh](https://agentrouter.org/register?aff=DCoh)
 
+
+*****
+
+####  goranger  
+##### 10882#       发表于 2026-8-23 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70131145&amp;ptid=2275806" target="_blank">囧Smith 发表于 2026-8-23 16:22</a>
+opencode go现在支持v4flash视觉版了吗</blockquote>
+支持但额度低
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

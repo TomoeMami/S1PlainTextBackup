@@ -639,3 +639,11 @@ FP不是有狗哪年就有了吗
 所以说pi的能力也是一个很微妙的问题，2019年开始发展的框架，和2022年改名叫Cordis并不是事实矛盾。 ...</blockquote>
 pi的能力起码能输出人类能读懂的有意义的内容，而不是你的脑子这样    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  squallx  
+##### 64#       发表于 2026-8-23 17:00
+
+[https://cortex.hydroroll.team](https://cortex.hydroroll.team) LZ还是先去检查一下自己吧 早发现早治疗
+
