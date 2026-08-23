@@ -5488,3 +5488,38 @@ https://github.com/Xiyinnnnnn/deepseek-nsfw-compat    Re:Source</blockquote>
 
 网页版的v4fv就是识图模式吗？
 
+
+*****
+
+####  御姐贾  
+##### 10874#       发表于 2026-8-23 15:54
+
+cherrystudio是不是也周末不加班，cherry能加载出来v4fv的模型，但是完全没适配，不能给它设置默认的网络搜索功能
+可以设置成视觉模型，但完全不认，发图给它，说没收到
+应该是需要更新吧？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  冤枉呐  
+##### 10875#       发表于 2026-8-23 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70124262&amp;ptid=2275806" target="_blank">asier 发表于 2026-8-22 09:31</a>
+
+https://agentrouter.org/register?aff=gUnC
+
+发现sol5.6烧得好快</blockquote>
+成了，传火
+[https://agentrouter.org/register?aff=rCgw](https://agentrouter.org/register?aff=rCgw)
+
+*****
+
+####  hyhyhyhy  
+##### 10876#       发表于 2026-8-23 16:01
+
+<blockquote>谎称 发表于 2026-8-23 15:38
+网页版的v4fv就是识图模式吗？</blockquote>
+PI内核的openhankao
+
