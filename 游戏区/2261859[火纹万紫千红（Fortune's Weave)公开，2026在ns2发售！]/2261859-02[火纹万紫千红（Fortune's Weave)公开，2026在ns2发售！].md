@@ -15495,3 +15495,13 @@ engage有个比万紫千红好的地方是小的够好，万紫千红小的基�
 
 其他线的固定人员看透露说挖角条件高得不行，可能还要等淘汰他们队伍才能招
 
+
+*****
+
+####  kalavinka  
+##### 2952#       发表于 2026-8-23 16:27
+
+圣焰技不知道 不过战技敌人是会用的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

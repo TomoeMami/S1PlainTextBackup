@@ -5600,3 +5600,25 @@ https://agentrouter.org/register?aff=rCgw</blockquote>
 
 opencode go现在支持v4flash视觉版了吗
 
+
+*****
+
+####  冤枉呐  
+##### 10880#       发表于 2026-8-23 16:24
+
+现在有点尴尬，基元的额度不知道干啥用
+
+
+*****
+
+####  城北无尘  
+##### 10881#       发表于 2026-8-23 16:25
+
+ 本帖最后由 城北无尘 于 2026-8-23 16:29 编辑 
+
+我也用了漏油的邀请码
+
+传个火
+
+[https://agentrouter.org/register?aff=DCoh](https://agentrouter.org/register?aff=DCoh)
+
