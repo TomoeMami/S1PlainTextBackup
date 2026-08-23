@@ -1094,3 +1094,34 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 没法回去，必须拿心脏前就开了宝箱，不然直接少一个成就，所以制作组连前期都没好好做。 ...</blockquote>
 我去这个档废了啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都什么年代了还在搞死了一次就再也不能回来这套啊，还是在魂系游戏里这么搞
 
+
+*****
+
+####  蒋公卖萌  
+##### 110#       发表于 2026-8-23 13:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70130530&amp;ptid=2282975" target="_blank">Bieaeml 发表于 2026-8-23 13:20</a>
+
+没法回去，必须拿心脏前就开了宝箱，不然直接少一个成就，所以制作组连前期都没好好做。 ...</blockquote>
+好吧，用肩撞躯壳可以挽回，但肩撞躯壳哪里拿啊？
+
+
+*****
+
+####  Bieaeml  
+##### 111#       发表于 2026-8-23 13:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70130595&amp;ptid=2282975" target="_blank">蒋公卖萌 发表于 2026-8-23 13:39</a>
+
+好吧，用肩撞躯壳可以挽回，但肩撞躯壳哪里拿啊？</blockquote>
+借用下楼上的图，这块区域有个很小的城堡，里面有个交互道具可以传送你去一个大型城堡，传送后你是出现在城堡下层环形区域，找个电梯上去会到一块白色圆形大平台，走过平台会触发平台跌落，下面有个小头目战，打完就可以拿肩撞躯壳，注意这个城堡内外没有任何篝火。
+
+1.png
+(58.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-23 13:41 上传
+
+<img src="https://img.stage1st.com/forum/202608/23/134133gtdpgutxvt6vab8z.png" referrerpolicy="no-referrer">
+

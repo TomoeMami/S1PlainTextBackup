@@ -5443,3 +5443,13 @@ oh-my-pi
 
 一开始大家觉得这玩意思路左右互博，但你要真的理解pi最重要的特质是什么就不会觉得这玩意左右互博了
 
+
+*****
+
+####  MeursaulT  
+##### 10870#       发表于 2026-8-23 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70130051&amp;ptid=2275806" target="_blank">zerona 发表于 2026-8-23 11:40</a>
+问下是dsh 里的设置吗？我按dsh自己提供的文档改了文件，但是还是无法破甲。 ...</blockquote>
+我在pi里用的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
