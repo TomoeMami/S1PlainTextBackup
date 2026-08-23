@@ -6069,3 +6069,13 @@ ox alpha就是 glm turbo
 nsfw其实……整了个印区grok，文字比谁都放得开 ...</blockquote>
 我记得pro正式版刚出来那会有楼友发过，我没存，你往前翻翻看
 
+
+*****
+
+####  diohanmilton  
+##### 10923#       发表于 2026-8-23 23:14
+
+ox今天白天转出来接到zcode里用，果然专武还得是专武。晚上又不行了。
+
+—— 来自 HONOR PGT-AN10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
