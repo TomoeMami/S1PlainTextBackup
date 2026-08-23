@@ -5428,3 +5428,18 @@ pi 或者在这基础上的 omp
 dsh还是太粗糙了。我回cc和hermes的老家了。。。话说还有哪些好用的harness么？日常写代码、创建日常工作流 ...</blockquote>
 pi或者pi-web，ds特别适合这种原生工具少的。
 
+
+*****
+
+####  hugosol  
+##### 10869#       发表于 2026-8-23 13:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70130368&amp;ptid=2275806" target="_blank">苇原雪道 发表于 2026-8-23 12:47</a>
+
+dsh还是太粗糙了。我回cc和hermes的老家了。。。话说还有哪些好用的harness么？日常写代码、创建日常工作流 ...</blockquote>
+oh-my-pi
+
+真的不开玩笑，经历了DSH毛胚房思维的洗礼后，大家应该就明白pi的底层思想以及真正的痛点在哪里，自然就会走到omp这条道路<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一开始大家觉得这玩意思路左右互博，但你要真的理解pi最重要的特质是什么就不会觉得这玩意左右互博了
+
