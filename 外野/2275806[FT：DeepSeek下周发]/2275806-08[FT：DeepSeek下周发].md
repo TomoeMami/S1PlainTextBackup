@@ -5788,3 +5788,13 @@ nsfw破了基本上安全政治都会一起破。官渠的甲薄，阿里云有�
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  CCauchy  
+##### 10897#       发表于 2026-8-23 19:34
+
+感觉我还是适合即用即付，用了几天快结束的订阅，跟赶尸一样，什么想法都糊进去，没有深思熟虑过，最后也没得到什么好成果
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
