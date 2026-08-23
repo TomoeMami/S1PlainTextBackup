@@ -457,3 +457,23 @@ flash3.7不卡不慢，但是依然很菜<img src="https://static.stage1st.com/i
 
 唉和楼主聊不来，典型的过拟合ai思维
 
+
+*****
+
+####  革萌  
+##### 47#         楼主| 发表于 2026-8-23 08:29
+
+<blockquote>Imanmi 发表于 2026-8-23 08:26
+唉和楼主聊不来，典型的过拟合ai思维</blockquote>
+这不是，十几年前我在影视区顶风喷大圣归来，收了上千楼的砖，那时候还没有ai哪。不过大圣归来果然后面就太监了，印证了我的观点。
+
+
+*****
+
+####  Dreki  
+##### 48#       发表于 2026-8-23 08:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70127228&amp;ptid=2288311" target="_blank">革萌 发表于 2026-8-22 20:24</a>
+这番话在发出来之前，已经让AI检查过可能被抓住话柄的地方了</blockquote>
+原来这就是ai原生思维吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
