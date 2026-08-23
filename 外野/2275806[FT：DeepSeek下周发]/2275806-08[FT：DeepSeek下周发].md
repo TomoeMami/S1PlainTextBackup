@@ -6260,3 +6260,14 @@ v4fv最多只支持720p左右，截图与否没区别    [Re:Source](https://s
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  squallx  
+##### 10941#       发表于 2026-8-24 02:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70134032&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-24 00:50</a>
+
+v4fv最多只支持720p左右，截图与否没区别    Re:Source</blockquote>
+会裁剪的 还要写个SKILL避免一次太大噎着
+
