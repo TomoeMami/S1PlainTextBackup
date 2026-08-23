@@ -5704,3 +5704,24 @@ ox模型今天下午用opencode蹬输出飞快，估计是周末压力小了，�
 
 周末这两天都挺爽的，国算也丝滑得很，但是明天上班又要开始pvp了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晓黑雾  
+##### 10890#       发表于 2026-8-23 18:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70131568&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-8-23 17:54</a>
+
+不是，在Pro的正式版上线的时候，网页的专家和快速两个模式也更新到了最新的版本。
+
+只能说这俩在没有接口 ...</blockquote>
+哦哦，我还以为网页端依旧是预览版呢，一直没用
+
+
+*****
+
+####  qwased  
+##### 10891#       发表于 2026-8-23 18:16
+
+好像v4fv还是会偶发觉得自己不是多模态模型，明明已经在描述图片了还会说自己没有看图能力
+
