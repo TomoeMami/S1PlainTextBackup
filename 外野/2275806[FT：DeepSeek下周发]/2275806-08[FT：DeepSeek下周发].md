@@ -5775,3 +5775,16 @@ ox模型今天下午用opencode蹬输出飞快，估计是周末压力小了，�
 托管阿里云的第三方不行。</blockquote>
 nsfw破了基本上安全政治都会一起破。官渠的甲薄，阿里云有额外审查，和火山一样都是甲最厚的渠道。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  冤枉呐  
+##### 10896#       发表于 2026-8-23 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70131916&amp;ptid=2275806" target="_blank">MeursaulT 发表于 2026-8-23 18:55</a>
+nsfw破了基本上安全政治都会一起破。官渠的甲薄，阿里云有额外审查，和火山一样都是甲最厚的渠道。    Re ...</blockquote>
+主要是我都不知道测什么<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+搞个网站叫他给我绕过会员？
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
