@@ -5675,3 +5675,24 @@ opencode go现在支持v4flash视觉版了吗</blockquote>
 
 问个问题，目前DeepSeek的网页端还是V4预览版吗？
 
+
+*****
+
+####  goranger  
+##### 10887#       发表于 2026-8-23 17:50
+
+ox模型今天下午用opencode蹬输出飞快，估计是周末压力小了，爽蹬
+
+
+*****
+
+####  杀人鲸  
+##### 10888#       发表于 2026-8-23 17:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70131511&amp;ptid=2275806" target="_blank">晓黑雾 发表于 2026-8-23 17:42</a>
+问个问题，目前DeepSeek的网页端还是V4预览版吗？</blockquote>
+不是，在Pro的正式版上线的时候，网页的专家和快速两个模式也更新到了最新的版本。
+只能说这俩在没有接口的情况下，让普通人用，那也属于是花费不了多少的资源，反而还可以展现一下自己的技术实力。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
