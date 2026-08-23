@@ -5843,3 +5843,28 @@ www.deepseek.com这个是deepseek官网是吗？那种消耗token的API要怎么
 感觉我还是适合即用即付，用了几天快结束的订阅，跟赶尸一样，什么想法都糊进去，没有深思熟虑过，最后也没 ...</blockquote>
 要不你先开个web/app的对话让它评估可行性、成熟度和划不划算，要是不行就先把点子寄在它那里，攒一波点子再开搞？
 
+
+*****
+
+####  goranger  
+##### 10902#       发表于 2026-8-23 20:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70131754&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-23 18:25</a>
+然而每次400k前后上下文就会卡死 让他总结都做不到
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0 ...</blockquote>
+我没遇到这个情况跑一晚上都没事，但是最晚十二点多确实出过几次问题
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  CCauchy  
+##### 10903#       发表于 2026-8-23 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70132242&amp;ptid=2275806" target="_blank">野蛮人之夜 发表于 2026-8-23 20:00</a>
+要不你先开个web/app的对话让它评估可行性、成熟度和划不划算，要是不行就先把点子寄在它那里，攒一波点子 ...</blockquote>
+它评估完我都没时间读<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
