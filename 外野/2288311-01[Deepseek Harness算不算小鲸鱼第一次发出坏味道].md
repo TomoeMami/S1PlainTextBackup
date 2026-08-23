@@ -618,3 +618,24 @@ FP不是有狗哪年就有了吗
 
 我不懂，但我觉得DSH 的插件系统真的很强，跟我过去认知的插件截然不同。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 62#       发表于 2026-8-23 16:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70130977&amp;ptid=2288311" target="_blank">革萌 发表于 2026-8-23 15:28</a>
+所以说pi的能力也是一个很微妙的问题，2019年开始发展的框架，和2022年改名叫Cordis并不是事实矛盾。 ...</blockquote>
+分得清Koishi和Cordis吗我请问？
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  Dreki  
+##### 63#       发表于 2026-8-23 16:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70130977&amp;ptid=2288311" target="_blank">革萌 发表于 2026-8-23 15:28</a>
+所以说pi的能力也是一个很微妙的问题，2019年开始发展的框架，和2022年改名叫Cordis并不是事实矛盾。 ...</blockquote>
+pi的能力起码能输出人类能读懂的有意义的内容，而不是你的脑子这样    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
