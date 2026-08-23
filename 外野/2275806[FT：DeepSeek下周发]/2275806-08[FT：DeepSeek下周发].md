@@ -6271,3 +6271,13 @@ v4fv最多只支持720p左右，截图与否没区别    [Re:Source](https://s
 v4fv最多只支持720p左右，截图与否没区别    Re:Source</blockquote>
 会裁剪的 还要写个SKILL避免一次太大噎着
 
+
+*****
+
+####  jojog  
+##### 10942#       发表于 2026-8-24 02:19
+
+<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">ai质检真的信得过吗
+
+我生图让codex a/ gemini qwen试过查多胳膊多腿还有牛子柰子精度都非常低……
+
