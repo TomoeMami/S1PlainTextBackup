@@ -5417,3 +5417,14 @@ dsh还是太粗糙了。我回cc和hermes的老家了。。。话说还有哪些
 dsh还是太粗糙了。我回cc和hermes的老家了。。。话说还有哪些好用的harness么？日常写代码、创建日常工作流 ...</blockquote>
 pi 或者在这基础上的 omp
 
+
+*****
+
+####  serj005  
+##### 10868#       发表于 2026-8-23 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70130368&amp;ptid=2275806" target="_blank">苇原雪道 发表于 2026-8-23 12:47</a>
+
+dsh还是太粗糙了。我回cc和hermes的老家了。。。话说还有哪些好用的harness么？日常写代码、创建日常工作流 ...</blockquote>
+pi或者pi-web，ds特别适合这种原生工具少的。
+
