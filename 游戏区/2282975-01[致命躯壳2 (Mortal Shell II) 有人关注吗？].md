@@ -1146,3 +1146,13 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 赎罪堡垒有篝火啊</blockquote>
 那我确实漏了，我只找到堡垒右边幽暗森林的那个火
 
+
+*****
+
+####  ku2154513  
+##### 114#       发表于 2026-8-23 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70131269&amp;ptid=2282975" target="_blank">Bieaeml 发表于 2026-8-23 16:49</a>
+那我确实漏了，我只找到堡垒右边幽暗森林的那个火</blockquote>
+就在一堆活尸后面的小广场，乍看像棵树不太显眼
+
