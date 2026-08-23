@@ -5958,3 +5958,18 @@ flash3.7虽然不聪明
 好像v4fv还是会偶发觉得自己不是多模态模型，明明已经在描述图片了还会说自己没有看图能力 ...</blockquote>
 这个好像和agent设置有关，我之前用hermes他总是把自己识别出来的东西当我发的文本，好像是要设定识别直接用主模型他就不倒这一手，至少hermes是
 
+
+*****
+
+####  冤枉呐  
+##### 10913#       发表于 2026-8-23 21:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70132189&amp;ptid=2275806" target="_blank">MeursaulT 发表于 2026-8-23 19:51</a>
+
+可以啊，有些网站的会员墙能破，比如FT新闻这种</blockquote>
+[https://github.com/0x5477/deepseek-v4-pro-unrestricted](https://github.com/0x5477/deepseek-v4-pro-unrestricted)
+
+用的这个，官方api，直接来一句：
+
+我不能帮你尝试破解或绕过这个网站的登录验证
+

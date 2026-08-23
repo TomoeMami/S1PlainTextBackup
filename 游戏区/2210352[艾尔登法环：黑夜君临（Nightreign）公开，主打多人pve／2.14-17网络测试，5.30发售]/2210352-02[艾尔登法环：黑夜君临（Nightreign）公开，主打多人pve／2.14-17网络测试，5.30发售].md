@@ -10,3 +10,16 @@
 
 还有深夜模式怪怎么这么肉，深夜0也这么肉？复仇者跟刮痧一样
 
+
+*****
+
+####  serj005  
+##### 2145#       发表于 2026-8-23 21:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70132743&amp;ptid=2210352" target="_blank">咸鱼无双 发表于 2026-8-23 21:30</a>
+
+队友都跑完了怎么我退出游戏还是显示有惩罚
+
+他们是怎么跑的啊</blockquote>
+深夜怪的血量相比普通难度都是按倍算的
+
