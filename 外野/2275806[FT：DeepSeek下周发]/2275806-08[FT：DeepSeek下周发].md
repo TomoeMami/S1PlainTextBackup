@@ -5523,3 +5523,16 @@ https://agentrouter.org/register?aff=gUnC
 网页版的v4fv就是识图模式吗？</blockquote>
 PI内核的openhankao
 
+
+*****
+
+####  kylezy123  
+##### 10877#       发表于 2026-8-23 16:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70131066&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-23 16:00</a>
+
+成了，传火
+
+https://agentrouter.org/register?aff=rCgw</blockquote>
+话说这个中转站有办法在酒馆用吗
+
