@@ -6079,3 +6079,23 @@ ox今天白天转出来接到zcode里用，果然专武还得是专武。晚上�
 
 —— 来自 HONOR PGT-AN10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  lactone  
+##### 10924#       发表于 2026-8-23 23:28
+
+不是，现在重训个基模这么容易吗？ds和glm都很快拿出来了水平不差的多模态模型，这种应该要换基模重训的吧？
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  王兰花秀丽  
+##### 10925#       发表于 2026-8-23 23:34
+
+这么看那个maxforai又在鬼扯，信誓旦旦的说ox alpha 不是我们猜的那几个，上次说ds内置鲸鱼娘人格也是他说的，完全炒作狗啊
+
+冥冥之中感觉ds下周还有大的<img src="https://static.stage1st.com/image/smiley/face/18.gif" referrerpolicy="no-referrer">
+

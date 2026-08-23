@@ -115,3 +115,16 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  pokemon最爱  
+##### 2187#       发表于 2026-8-23 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70133096&amp;ptid=2250267" target="_blank">BurstCoil 发表于 2026-8-23 22:09</a>
+
+剧本在令和也是垫底水平吗，我对令和骑士剧本云来的印象一直很差
+
+—— 来自 S1Fun ...</blockquote>
+令和来打剧本下限太低了，ZZZ还不至于垫底<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
