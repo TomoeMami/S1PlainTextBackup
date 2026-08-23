@@ -5903,3 +5903,14 @@ flash3.7虽然不聪明
 但便宜和快也能搞很多事了</blockquote>
 求个关键字
 
+
+*****
+
+####  scikirbypoke  
+##### 10907#       发表于 2026-8-23 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70132346&amp;ptid=2275806" target="_blank">passgan 发表于 2026-8-23 20:18</a>
+
+求个关键字</blockquote>
+坛内两贴了，PC区和外野各一贴
+
