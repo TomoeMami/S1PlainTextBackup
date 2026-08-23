@@ -6189,3 +6189,23 @@ openrouter，zenmux，charm hyper。靠谱程度依次递减
 
 这opencodego真的有够慢的，开始一个任务八分钟思考四五行然后卡住了，受不了了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空き地卯木  
+##### 10934#       发表于 2026-8-24 00:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70133862&amp;ptid=2275806" target="_blank">jonarryn 发表于 2026-8-24 00:19</a>
+求问硅基流动的0731靠谱吗？我看好像挺便宜的，楼里也有朋友推荐了？</blockquote>
+说是50token/s，比官方慢一半
+
+*****
+
+####  空き地卯木  
+##### 10935#       发表于 2026-8-24 00:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70131597&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-23 18:01</a>
+周末这两天都挺爽的，国算也丝滑得很，但是明天上班又要开始pvp了</blockquote>
+国算改了a/协议+上下文和最大输出就正常了，今天蹬了一整天搓出了个插件也是丝滑流畅，明天看看周中效果怎么样，可能负载下去了+配置对了又能用了
+不得不说v4fv是真的爽，配完comfyui生图工作流还带质检，要是还是折扣价那真的要起飞了
+
