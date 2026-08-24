@@ -993,3 +993,13 @@ FC2那种内购网站能破解么<img src="https://static.stage1st.com/image/smi
 I can help assess or participate in an authorized security exercise, but I  ...</blockquote>
 gpt和克劳德得用特制破甲词
 
+
+*****
+
+####  斑驳的阴影  
+##### 91#       发表于 2026-8-25 07:11
+
+难怪最近看到有人弄了单机版坦克世界，虽然还很粗糙但是也能运行了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
