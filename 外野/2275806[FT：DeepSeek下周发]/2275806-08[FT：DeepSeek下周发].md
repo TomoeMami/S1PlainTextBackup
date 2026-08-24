@@ -6879,3 +6879,13 @@ V4proga目前的情况更大可能是训练资源移向了其他方向，后训�
 你用啥协议, 我这边太容易输出无限循环了</blockquote>
 我还是用的openai协议，没有用A/的
 
+
+*****
+
+####  Lazia  
+##### 10994#       发表于 2026-8-24 14:47
+
+[https://agentrouter.org/register?aff=StI5](https://agentrouter.org/register?aff=StI5)
+
+传一个。
+

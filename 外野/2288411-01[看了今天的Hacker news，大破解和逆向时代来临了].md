@@ -416,3 +416,54 @@ GPT不认为越狱和折腾Kindle这件事有问题. 如果真想逆向别的的
 
 那那些搞资源分享，要账号权限的BBS岂不是也危了
 
+
+*****
+
+####  yichengyu  
+##### 45#       发表于 2026-8-24 14:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70135884&amp;ptid=2288411" target="_blank">tk553521 发表于 2026-8-24 11:46</a>
+
+其实已经大规模在破解涩情灰产的vip了，很容易就能看到以前会员才能看的内容
+
+—— 来自 nubia NX809J, A ...</blockquote>
+求个破解版
+
+*****
+
+####  浪子龙飞z  
+##### 46#       发表于 2026-8-24 14:47
+
+<blockquote>tk553521 发表于 2026-8-24 11:46
+其实已经大规模在破解涩情灰产的vip了，很容易就能看到以前会员才能看的内容
+
+—— 来自 nubia NX809J, A ...</blockquote>
+不妨细说
+
+*****
+
+####  lyt777  
+##### 47#       发表于 2026-8-24 14:48
+
+但是我有个问题，你们怎么说服API干坏事的，我让API帮我完成一个线上考试它都不干。
+
+*****
+
+####  goranger  
+##### 48#       发表于 2026-8-24 14:48
+
+我觉得其实这些漏洞和入侵方法都是存在的，ai把这些信息差抹平了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  泰坦失足  
+##### 49#         楼主| 发表于 2026-8-24 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136796&amp;ptid=2288411" target="_blank">nocode 发表于 2026-8-24 14:31</a>
+
+想了想身边有价值的破解对象，怀疑水电煤电子表会不会先出事……</blockquote>
+闹大了可以直接物理抓捕<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">, 不只是矛和盾, 追捕的能力也大幅度升级了. 让AI分析bug时候, 它经常从Linux/Windows的底层Log找到一大堆过去的行为信息.
+
