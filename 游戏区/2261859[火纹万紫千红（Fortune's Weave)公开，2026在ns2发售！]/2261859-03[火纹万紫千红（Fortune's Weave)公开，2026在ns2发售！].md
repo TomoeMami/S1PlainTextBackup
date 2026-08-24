@@ -184,3 +184,35 @@ XCOM是做了机械化改造就不能用灵能了，星战也是肉体没了就�
 winky时代时代的机战压根没有重复性可言 有了多周目继承后还是主要在隐藏要素 分支路线上做文章 ...</blockquote>
 F完结篇重复关卡过半了吧...阿尔法就更不用说了
 
+
+*****
+
+####  flyingover  
+##### 2975#       发表于 2026-8-24 20:01
+
+<img src="https://img.stage1st.com/forum/202608/24/200047g6i59vr25d2ryrby.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 20:00 上传
+
+<img src="https://img.stage1st.com/forum/202608/24/200056px6jn3ivvj4x4jtv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (206.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 20:00 上传
+
+【キャラクター】アナトリア（CV：小笠原亜里沙）
+
+故郷の同朋を救うために戦う白妙の少女。
+
+その見た目から「神秘の花嫁」と呼ばれている。
+
+良く言えばクール、悪く言えば感情に乏しい性格で、相手を悪気なく怒らせてしまうことがある。
+
+●好きなもの：易による占い、丸いもの、拳法の鍛錬
+
