@@ -7438,3 +7438,13 @@ tui-adapter映射表与准入规范：https://github.com/T-Auto/dsh-ecosystem-sp
 
 ds v4f ve感觉可以做主力，就是官网哪怕是低谷也有点贵，一轮2块钱出去了
 
+
+*****
+
+####  CCauchy  
+##### 11041#       发表于 2026-8-24 21:33
+
+我觉得webui很好啊
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
