@@ -6992,3 +6992,29 @@ a的协议会稳很多，o的有两个协议，scnet没注明用哪个，体感o
 谷大善人十几块的pro让gpt指挥，蹬起来真爽啊，小梁你谁啊我们不熟</blockquote>
 你是反代接codex的吗，我在想有没有什么办法不反代也能把反重力对接到其他harness里面<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  goranger  
+##### 11003#       发表于 2026-8-24 16:32
+
+opencode go首月优惠取消，这下真实路边一条了。
+
+*****
+
+####  cscbzcbz  
+##### 11004#       发表于 2026-8-24 16:35
+
+光头牛皮吹破了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  neptunehs  
+##### 11005#       发表于 2026-8-24 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137545&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-24 16:32</a>
+opencode go首月优惠取消，这下真实路边一条了。</blockquote>
+那如果接下来不把flash的免费弱化模型上回去的话就真的可以彻底放弃opencode了
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
