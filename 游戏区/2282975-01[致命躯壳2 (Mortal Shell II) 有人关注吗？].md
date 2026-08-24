@@ -1498,3 +1498,11 @@ BD成型后爽玩啊...每个躯壳玩法都不一样。近战和远程武器搭
 
 说起来有远程但是没有什么魔法系统，又给他偷懒到了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  逸一死吾亦死  
+##### 145#       发表于 2026-8-25 03:13
+
+bug多得令人发指，还闪退，等哪天修了再说吧
+
