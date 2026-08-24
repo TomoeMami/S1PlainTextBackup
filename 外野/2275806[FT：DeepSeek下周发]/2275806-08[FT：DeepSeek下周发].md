@@ -6824,3 +6824,16 @@ V4proga目前的情况更大可能是训练资源移向了其他方向，后训�
 有没有总结呀坛友</blockquote>
 啊 这两天折腾量化的其他qwen模型 把这事给忘记了 我晚上发上来😂
 
+
+*****
+
+####  →熙←  
+##### 10989#       发表于 2026-8-24 14:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136260&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-24 12:51</a>
+
+看来国算硬件真的升级了，今天flash0731能有90tokens/s
+
+什么时候把vision加上就完美了 ...</blockquote>
+你用啥协议, 我这边太容易输出无限循环了
+
