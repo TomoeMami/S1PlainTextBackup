@@ -467,3 +467,13 @@ GPT不认为越狱和折腾Kindle这件事有问题. 如果真想逆向别的的
 想了想身边有价值的破解对象，怀疑水电煤电子表会不会先出事……</blockquote>
 闹大了可以直接物理抓捕<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">, 不只是矛和盾, 追捕的能力也大幅度升级了. 让AI分析bug时候, 它经常从Linux/Windows的底层Log找到一大堆过去的行为信息.
 
+
+*****
+
+####  真贝尔奈普斯  
+##### 50#       发表于 2026-8-24 14:57
+
+看到最近好多应该是ai破解汉化的老机战，高达游戏什么的
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

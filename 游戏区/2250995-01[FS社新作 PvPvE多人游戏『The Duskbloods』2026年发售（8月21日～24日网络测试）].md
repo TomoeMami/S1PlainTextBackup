@@ -4151,3 +4151,13 @@ fs本来期待的结 ...</blockquote>
 目前感觉就是PVE内容太少了，就算按小高说法正式版是内容量X3感觉也是个体量很一般的游戏 ...</blockquote>
 小高说的不是内容量X5吗，地图是三分之一，每个地图怎么也得有一个夜王级别boss<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  5ew47  
+##### 500#       发表于 2026-8-24 14:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">测试圆满结束，记得填问卷。最后一轮玩家水平都上来了，仪式场大乱斗分数疯狂变化真的挺刺激的。开boss的人也越来越少了，感觉还是风险和回报不成正比，反正现在也有无同盟和固定同盟房了，以后开个纯pve模式的房感觉也不是问题，就是估计套路会比pvp更僵化。
+可控角色确实都做出了差异化，社内素材还是太多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我还是喜欢阿尔伯特和元老这样的远近全能型，多个出手快的远程技能补伤害和控场都吃香。
+整体素质挺不错的，接下来就看角色自定义能做到什么程度，地图和模式有多少，以及定价了，希望能卖在60刀以内
+
