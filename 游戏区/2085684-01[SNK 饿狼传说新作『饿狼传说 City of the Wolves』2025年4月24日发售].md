@@ -22,3 +22,17 @@
 
 【饿狼传说：群狼之城｜「达克·金 VS 特瑞」开发人员对战演示-哔哩哔哩】 [https://b23.tv/yDjOLZ4](https://b23.tv/yDjOLZ4)
 
+
+*****
+
+####  人生オワタ  
+##### 820#       发表于 2026-8-24 21:39
+
+【「达克·金」 连招视频 - 饿狼传说 CotW 【CMV】-哔哩哔哩】 [https://b23.tv/SIa7hgj](https://b23.tv/SIa7hgj)
+
+【【COTW】86连击！达克·金 连招 + 高能时刻！！By Desk！-哔哩哔哩】 [https://b23.tv/LdNXQBV](https://b23.tv/LdNXQBV)
+
+【【饿狼传说：群狼之城】S3最新DLC达克·金试玩测评-哔哩哔哩】 [https://b23.tv/xquDCBB](https://b23.tv/xquDCBB)
+
+【狼城：全新角色达克.金全网首测！跳舞、唱歌，战斗一个不能少！-哔哩哔哩】 [https://b23.tv/O4hMLhN](https://b23.tv/O4hMLhN)
+

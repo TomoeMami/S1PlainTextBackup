@@ -183,3 +183,11 @@ NOX想摧毁不把自由当回事的组织，不惜和梦魇合作，最后走�
 
 主旨把握蛮清晰的，但我印象里高桥是坑填不上硬填把框架搞崩都硬要解释的神人，这回真就应了我的愿不解释的干脆无视了，这么文艺复兴的打法你是谁<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是以前坑多但发展有趣，这回真是走了略无趣的展开了
 
+
+*****
+
+####  乾理央  
+##### 2192#       发表于 2026-8-24 21:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">所以这部目前在令和那堆里面能排多少，看尼姑庵是跟saber争第一，但尼姑庵无脑吹的saber我不太感冒所以我还挺犹豫的
+
