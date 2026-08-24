@@ -6657,3 +6657,20 @@ opencode 的v4f绝对是有问题的，看思维链就不对，很像是被注�
 
 哎，只能等下班时间用官方的了。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  crow_wine  
+##### 10976#       发表于 2026-8-24 11:33
+
+opencode go 的 v4f 是注入过提示词，会注入要求不能思考太久，时间紧迫之类的内容。之前就发现了opencode go 的 v4f 遇到复杂的长时间解决不了的问题就会把自己急哭，然后负反馈循环，越来越差
+
+*****
+
+####  厍无春  
+##### 10977#       发表于 2026-8-24 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70135149&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-24 10:13</a>
+V4proga目前的情况更大可能是训练资源移向了其他方向，后训练随便训了一下交差。只在特定模式下激发更高 ...</blockquote>
+从没过多久又发了个vision 模型就能看出来内部绝对不止flash 和pro这俩模型在训练，绝对还有别的模型在并行训练了
+

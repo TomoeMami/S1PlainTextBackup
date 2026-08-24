@@ -101,3 +101,45 @@ XCOM是做了机械化改造就不能用灵能了，星战也是肉体没了就�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">略懂拳脚
 
+
+*****
+
+####  freedom12  
+##### 2970#       发表于 2026-8-24 11:30
+
+<img src="https://img.stage1st.com/forum/202608/24/112933vn3nr03ndndzqtyr.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (39.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 11:29 上传
+
+<img src="https://img.stage1st.com/forum/202608/24/112933zcc9zhlcncsqbngs.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (41.06 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 11:29 上传
+
+<img src="https://img.stage1st.com/forum/202608/24/112933x8vfj1pfim111z0n.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (47 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 11:29 上传
+
+<img src="https://img.stage1st.com/forum/202608/24/112933v3n1a439azewhw41.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (51.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 11:29 上传
+
+看了wiki上，4个副队成员也都凑差不多了
+
+看样子4主队+4副队，每队应该会有5-6名角色
+
