@@ -7625,3 +7625,39 @@ nsfw还是得grok
 
 x-ai/grok-4.1-fast模型超便宜
 
+
+*****
+
+####  tonyunreal  
+##### 11055#       发表于 2026-8-24 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70139606&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-24 23:28</a>
+据说是这个？25B模型？
+好像我又被光头骗了，但是这个Bailu模型真的有这么强吗https://bailucode.com/blog/ ...</blockquote>
+这网站是钓鱼的，内容全是瞎写
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 王兰花秀丽 + 1
+
+查看全部评分
+
+*****
+
+####  qwased  
+##### 11056#       发表于 2026-8-24 23:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70139606&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-24 23:28</a>
+据说是这个？25B模型？
+好像我又被光头骗了，但是这个Bailu模型真的有这么强吗https://bailucode.com/blog/ ...</blockquote>
+bailu纯碰瓷的，牛来还是等几天他自己公布谜底得了，现在怎么看都是glm5.3t或者基于glm基座改的
+

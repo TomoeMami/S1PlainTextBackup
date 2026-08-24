@@ -1706,3 +1706,17 @@ op里面的人物也基本上回收完了
 
 2026-8-24 23:01 上传
 
+
+*****
+
+####  a85982313  
+##### 438#       发表于 2026-8-24 23:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70138440&amp;ptid=2183857" target="_blank">aptx8285144 发表于 2026-8-24 19:04</a>
+
+拉拉都说出我在陆地才能“发光”了，其实拉拉这种主角以前就有，被调侃球奸的津特，还有喜欢机器人的远藤 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这片又没有多少戏份来表现人，世界这种玩意了，如果最后收到因为这世界，人类身上，因为这些很好，所以巴拉巴拉的人类爱那简直是纯纯搞笑了
+
+但是如果收到拉拉自己头上，不论是恋爱，还是什么其他乱七八糟，鱼奸啊就是喜欢人啊，只要最后着眼是她本身，而不是外界的东西，我还是能接受的
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说到底安徒生原作是什么样我不知道，但是再见拉拉世界观，拉拉之前的公主的真实之爱不就是在人鱼世界里就有的，难道后面告诉我这些全是鱼奸只是没告诉家人吗（
+
