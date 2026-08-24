@@ -4125,3 +4125,18 @@ fs本来期待的结 ...</blockquote>
 
 最后一局第三阶段要被淘汰的时候传到仪式场PVP拿了美德，不然人没了。
 
+
+*****
+
+####  pzk  
+##### 497#       发表于 2026-8-24 14:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天一直玩胖宝宝，四局只吃了一局。前期分数一直挺稳的，但后面经常发现有几个剑美德有40＋的根本追不上。
+
+*****
+
+####  pzk  
+##### 498#       发表于 2026-8-24 14:05
+
+吃的那局还是遇到另一个胖宝宝，我们先合伙做掉第三人再进行极其搞笑的巴巴博弈最终鏖战胜利<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
