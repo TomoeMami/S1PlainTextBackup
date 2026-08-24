@@ -6411,3 +6411,27 @@ ai质检真的信得过吗
 
 gemini3.7 flash快到是挺快的，习惯了5.6输出又慢又给你打10个甚至9个补丁/fallback/hash检查后。 挺不习惯的。 不过活干的也糙一点， 让它切换Kindle越狱后linux程序，它没关守护进程，让它搭环境训练，它开始训练后直接就跑了，刚开始就直接报错环境变量问题。
 
+
+*****
+
+####  c月光咖啡  
+##### 10956#       发表于 2026-8-24 09:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70134751&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-8-24 09:06</a>
+用下来的感受是ai觉得不行的一般都有大问题，ai觉得行的细看可能还有问题
+现在丢给GPT IMG去生一些结构上 ...</blockquote>
+工业质检谁会用通用大模型啊，肯定得用YOLO这种定制小模型啊
+
+—— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
+
+*****
+
+####  eno_emos  
+##### 10957#       发表于 2026-8-24 09:29
+
+牛来这个模型不能推理强度开max，开个high或者low正好
+
+max有一种pro刚端上来的味，雷霆大思考爱好者，本来就慢的要死经常转半小时一看还在review自己
+
+glm5.3没这感觉啊，难道他们也后训练丹爆炸了？
+
