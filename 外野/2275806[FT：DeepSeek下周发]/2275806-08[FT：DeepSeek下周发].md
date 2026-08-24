@@ -7018,3 +7018,14 @@ opencode go首月优惠取消，这下真实路边一条了。</blockquote>
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  泰坦失足  
+##### 11006#       发表于 2026-8-24 16:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137545&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-24 16:32</a>
+
+opencode go首月优惠取消，这下真实路边一条了。</blockquote>
+我才开了两个新号, 而且月额度加起来才花了30%, 毕竟才35一个月<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

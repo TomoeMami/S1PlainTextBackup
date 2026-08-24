@@ -1269,3 +1269,14 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 
 还有一点，就是这游戏怪的突进类攻击都如此的凶残，只要施放出来，不管距离拉的多远都会被击中
 
+
+*****
+
+####  vidomina  
+##### 125#       发表于 2026-8-24 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70135228&amp;ptid=2282975" target="_blank">蒋公卖萌 发表于 2026-8-24 10:23</a>
+
+目前玩下来的评价是，不如明末，应该没什么争议吧？</blockquote>
+国区51好评目前，确实不如<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
