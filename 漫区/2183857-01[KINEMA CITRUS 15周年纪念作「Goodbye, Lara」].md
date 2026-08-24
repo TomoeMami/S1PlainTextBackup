@@ -1521,3 +1521,24 @@ op里面的人物也基本上回收完了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这片真要拍人类爱就应该多来点像ep4和ep5这种单回来展现在滋贺这片土地上和各种人的交往。
 
+
+*****
+
+####  a85982313  
+##### 429#       发表于 2026-8-24 18:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70138211&amp;ptid=2183857" target="_blank">日野下花帆 发表于 2026-8-24 18:20</a>
+这片真要拍人类爱就应该多来点像ep4和ep5这种单回来展现在滋贺这片土地上和各种人的交往。 ...</blockquote>
+拍成滋贺旅游片都比现在符合人类爱这个东西<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在这拍法那来的人，二号位，四号位，失恋的女路人三个人，其他什么面包店，二号位四号位的家人加起来顶多算一个人
+
+
+*****
+
+####  日野下花帆  
+##### 430#       发表于 2026-8-24 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70138265&amp;ptid=2183857" target="_blank">a85982313 发表于 2026-8-24 18:30</a>
+
+拍成滋贺旅游片都比现在符合人类爱这个东西现在这拍法那来的人，二号位，四号位，失恋的女路人三个人，其 ...</blockquote>
+作为旅游片好像不太能有ep6这种展现了人类社会之恶的单集吧，就更应该拍当地风土人情这一类的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我现在只能想到从找到真正的爱往拉拉个人成长上面靠这种路线
+
