@@ -7689,3 +7689,11 @@ bailu纯碰瓷的，牛来还是等几天他自己公布谜底得了，现在怎
 
 虽然21号下午才上线，但是模型名在20号就出现在dsh代码里面了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  舞以  
+##### 11060#       发表于 2026-8-25 01:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sol在dsh里面拉子代理🔥token的效率也很高
+
