@@ -7577,3 +7577,51 @@ V4FV有第三方了吗 官方随便一蹬几块钱就出去了
 
 官网写nsfw好贵。拿超算平台的试着写被截断两次，不敢了<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王兰花秀丽  
+##### 11053#       发表于 2026-8-24 23:28
+
+据说是这个？？25B模型？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+1000052601.jpg
+(248.82 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 23:28 上传
+
+<img src="https://img.stage1st.com/forum/202608/24/232815g8on26ou26mtortm.jpg" referrerpolicy="no-referrer">
+
+1000052602.jpg
+(182.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 23:28 上传
+
+<img src="https://img.stage1st.com/forum/202608/24/232816awxxql11qz8w282q.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  唠叨  
+##### 11054#       发表于 2026-8-24 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70139573&amp;ptid=2275806" target="_blank">城北无尘 发表于 2026-8-24 23:20</a>
+
+官网写nsfw好贵。拿超算平台的试着写被截断两次，不敢了</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/24/232839lgo0o5oa4zstajsq.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-08-24_232812_234.jpg</strong> (224.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 23:28 上传
+
+nsfw还是得grok
+[https://ofox.io/r/2ta382](https://ofox.io/r/2ta382)
+
+x-ai/grok-4.1-fast模型超便宜
+
