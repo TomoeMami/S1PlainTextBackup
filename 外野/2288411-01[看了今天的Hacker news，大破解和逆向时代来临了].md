@@ -677,3 +677,21 @@ Codex Opencode能叫得上名字的都行. 而且这玩意能自我增值, 只�
 
 南+上已经有人拿ai破解黄果短剧的vip账户了
 
+
+*****
+
+####  abcxiawei  
+##### 69#       发表于 2026-8-24 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136353&amp;ptid=2288411" target="_blank">zhoutai354 发表于 2026-8-24 13:13</a>
+
+很好奇如果机器人汽车等普遍联网的话，那岂不是可以....</blockquote>
+好多年前就有谍战电影里表现黑了汽车的电子系统，然后操纵一大堆汽车，像僵尸扑人那样向主角撞过来。从原理上说是可能的
+
+*****
+
+####  Mr_NaHCO3  
+##### 70#       发表于 2026-8-24 16:01
+
+是跟大模型供应商有关系吗，我用zhipu官方api的glm，做这类事情的时候会输出到一半强行截断中止
+
