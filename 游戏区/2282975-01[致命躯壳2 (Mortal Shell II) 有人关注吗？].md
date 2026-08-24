@@ -1485,3 +1485,16 @@ BD成型后爽玩啊...每个躯壳玩法都不一样。近战和远程武器搭
 斧匕轮椅成型早，出血、连击、狂战余露在蘑菇村时期就能拿，躯壳格拉古有低血加暴+首次对怪增伤，第一个 ...</blockquote>
 感觉这游戏武器设计也没有做好，远程武器因为需要消耗决心进行攻击，抢角色技能和武器大招资源，后期只能用来牵制一下敌人，改成弹药限制感觉更好
 
+
+*****
+
+####  Bieaeml  
+##### 144#       发表于 2026-8-24 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70139129&amp;ptid=2282975" target="_blank">ku2154513 发表于 2026-8-24 21:46</a>
+
+感觉这游戏武器设计也没有做好，远程武器因为需要消耗决心进行攻击，抢角色技能和武器大招资源，后期只能 ...</blockquote>
+要么决心改成无限机兵那种同步率就好了，普攻弹反给涨条，战技远程来消耗，反正都没体力条。
+
+说起来有远程但是没有什么魔法系统，又给他偷懒到了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -295,3 +295,19 @@ F完结篇重复关卡过半了吧...阿尔法就更不用说了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">超兵用枪 很合理吧？
 
+
+*****
+
+####  巴尔干炮  
+##### 2986#       发表于 2026-8-24 21:58
+
+<img src="https://img.stage1st.com/forum/202608/24/215748gutrwtutatlm5ljl.jpg" referrerpolicy="no-referrer">
+
+<strong>1787577991609105.jpg</strong> (641.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 21:57 上传
+
+为什么又把全身图藏TODAY了？<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
