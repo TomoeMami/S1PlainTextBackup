@@ -843,3 +843,13 @@ GitHub仓库｜Claude运算耗时2.4小时｜我的提示词10条
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  redbuck  
+##### 76#       发表于 2026-8-24 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137153&amp;ptid=2288411" target="_blank">泰坦失足 发表于 2026-8-24 15:29</a>
+我用的是PW3. 市场保有量巨大, 原来价格就便宜, 系统已经不推送新版固件. 最新的固件直接就能轻松越狱.  ...</blockquote>
+搞了个 pw5 这个越狱方案貌似也挺丰富的
+

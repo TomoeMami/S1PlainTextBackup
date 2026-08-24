@@ -1321,3 +1321,14 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  红魔馆的糖  
+##### 130#       发表于 2026-8-24 17:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137875&amp;ptid=2282975" target="_blank">我就再氪一单 发表于 2026-8-24 17:24</a>
+
+不知道各个游戏up的视频你们看过几个，这群人嘴是真的严啊，说有一堆躯壳可以来回换，闭口不提升级躯壳的资 ...</blockquote>
+这游戏的视频美化程度我只能说要么是有单子，要么就是这帮魂游饿死鬼确实饿晕了，魂游攻略up们也饿晕了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
