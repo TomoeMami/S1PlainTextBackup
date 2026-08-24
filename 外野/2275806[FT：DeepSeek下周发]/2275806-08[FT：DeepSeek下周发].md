@@ -6709,3 +6709,13 @@ V4proga目前的情况更大可能是训练资源移向了其他方向，后训�
 
 又是没有灰测的一天 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cscbzcbz  
+##### 10982#       发表于 2026-8-24 12:51
+
+看来国算硬件真的升级了，今天flash0731能有90tokens/s
+
+什么时候把version加上就完美了
+
