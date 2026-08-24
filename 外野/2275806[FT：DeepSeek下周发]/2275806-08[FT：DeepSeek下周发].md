@@ -7430,3 +7430,11 @@ tui-adapter映射表与准入规范：https://github.com/T-Auto/dsh-ecosystem-sp
 
 元协议提案：https://github.com/Yan-Zero/dsh-std [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  crow_wine  
+##### 11040#       发表于 2026-8-24 21:26
+
+ds v4f ve感觉可以做主力，就是官网哪怕是低谷也有点贵，一轮2块钱出去了
+
