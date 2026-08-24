@@ -128,3 +128,13 @@
 —— 来自 S1Fun ...</blockquote>
 令和来打剧本下限太低了，ZZZ还不至于垫底<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  失落之翼  
+##### 2188#       发表于 2026-8-24 11:40
+
+我觉得评价剧情的话DDD和ZIO这种逢十纪念作应该论外，大家就是看整什么乐子<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+ZZZ能够安稳落地就算不错了
+

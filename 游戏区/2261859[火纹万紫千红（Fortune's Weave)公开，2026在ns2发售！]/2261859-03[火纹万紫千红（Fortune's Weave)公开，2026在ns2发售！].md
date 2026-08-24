@@ -143,3 +143,17 @@ XCOM是做了机械化改造就不能用灵能了，星战也是肉体没了就�
 
 看样子4主队+4副队，每队应该会有5-6名角色
 
+
+*****
+
+####  bad_alloc  
+##### 2971#       发表于 2026-8-24 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70135732&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-8-24 11:30</a>
+看了wiki上，4个副队成员也都凑差不多了
+
+看样子4主队+4副队，每队应该会有5-6名角色 ...</blockquote>
+这下八方纹章了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
