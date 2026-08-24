@@ -1423,3 +1423,30 @@ BD成型后爽玩啊...每个躯壳玩法都不一样。近战和远程武器搭
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">只想说这地图设计真的一坨 地图没什么辨识度 找路有点麻
 
+
+*****
+
+####  我就再氪一单  
+##### 139#       发表于 2026-8-24 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70138230&amp;ptid=2282975" target="_blank">zzf111 发表于 2026-8-24 18:23</a>
+这样又臭又香的确实是我喜欢的魂游类型，美术风格也没有那么浮夸
+
+昨天精神抖擞玩了一晚上
+
+还在上半张图游龙 ...</blockquote>
+这个地图亮度，一进地牢我愿称之为黑人在晚上抓乌鸦，光追我怀疑是不是只是单纯一个开关，没有任何功能和实际效果的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我2k 5060ti能无脑拉满简直无法想象
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  我就再氪一单  
+##### 140#       发表于 2026-8-24 18:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70138112&amp;ptid=2282975" target="_blank">Bieaeml 发表于 2026-8-24 18:05</a>
+不止这个问题，一周目瞬悟只够点满2个躯壳的羁绊等级的同时，躯壳40点限制上限（富姐是44点）决定了哪怕 ...</blockquote>
+照理说应该是一个躯壳有一套自己的石头 加点 武器记忆配置吧，结果全没有<img src="https://static.stage1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
