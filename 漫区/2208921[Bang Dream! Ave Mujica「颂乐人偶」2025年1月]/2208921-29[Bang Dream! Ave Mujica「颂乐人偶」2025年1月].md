@@ -780,3 +780,23 @@ DAY2　2026年10月25日(日)
 #BanGDream# #交织的乐章# #丰川祥子#</blockquote>
        [https://www.bilibili.com/video/BV1af8m6AE6z](https://www.bilibili.com/video/BV1af8m6AE6z)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42009#       发表于 2026-8-24 16:57
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/24/165704akvvrhrh7rrvvy02.jpg" referrerpolicy="no-referrer">
+
+<strong>2026-08-24_16-55-33.jpg</strong> (280.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 16:57 上传
+
+       [https://x.com/bang_dream_info/status/2091775009681535429](https://x.com/bang_dream_info/status/2091775009681535429)
+
+       [https://t.co/bmCY4i3fPG](https://t.co/bmCY4i3fPG)
+
