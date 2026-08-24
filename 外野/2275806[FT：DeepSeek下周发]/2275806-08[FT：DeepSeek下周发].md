@@ -7416,3 +7416,17 @@ v模型作为识图子代理使用时，它会把识图的一大堆结果都以�
 —— 来自 vivo V2561A, Android 16, 鹅球 v4.0</blockquote>
 minimax今年无预警涨过一次了，感觉盈利压力不小
 
+
+*****
+
+####  王兰花秀丽  
+##### 11039#       发表于 2026-8-24 21:12
+
+转：Harness 插件开发者的福音来啦！ dsh-TUI 团队出品遵从 dsh-std 的 spec 来袭！ 再也不用担心插件了爆炸，还能一键接入dsh全生态！
+
+维护了adapter的TUI仓库：https://github.com/ccch1mneyyy/dsh-TUI
+
+tui-adapter映射表与准入规范：https://github.com/T-Auto/dsh-ecosystem-spec 
+
+元协议提案：https://github.com/Yan-Zero/dsh-std [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

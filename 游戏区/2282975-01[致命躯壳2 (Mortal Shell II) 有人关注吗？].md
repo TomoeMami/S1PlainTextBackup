@@ -1464,3 +1464,14 @@ BD成型后爽玩啊...每个躯壳玩法都不一样。近战和远程武器搭
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Bieaeml  
+##### 142#       发表于 2026-8-24 21:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70138143&amp;ptid=2282975" target="_blank">ku2154513 发表于 2026-8-24 18:10</a>
+
+一周目肯定点不满，其实斧匕加二元之石加出血够打所有boss了，我用的普罗西玛技能其实不怎么强，最终boss ...</blockquote>
+斧匕轮椅成型早，出血、连击、狂战余露在蘑菇村时期就能拿，躯壳格拉古有低血加暴+首次对怪增伤，第一个门BOSS林中女士给大招余露，如果配合石化除了投技真就是接敌全是我的回合，这也证明了制作组的问题——记得要做好武器性能和躯壳性能，但是敌人设计就开摆，小怪给你堆怪，BOSS给你各种投技，数值上也是秒和被秒之间摇摆。
+

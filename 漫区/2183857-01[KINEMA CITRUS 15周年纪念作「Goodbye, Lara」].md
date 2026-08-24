@@ -1658,3 +1658,12 @@ op里面的人物也基本上回收完了
 
 另外虽然这年头人人都是夏亚确实贪得无厌了，不过考虑到芙莉在拉拉走后还是杀入了决赛，如果没有拉拉出现或许最后只是差之毫厘的败北，再结合母亲的回忆杀，也许拉拉之于芙莉不只是同龄种族感情，而是教会让她直面前方的人，因此扮演了部分母亲的角色定位<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，你看做蛋糕和吃的也可以是母亲（
 
+
+*****
+
+####  Mika-S  
+##### 435#       发表于 2026-8-24 21:08
+
+感觉这卢卡就也不行啊，让拉拉闪光还得是女二<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但是这演出感觉还不够几原系，就该让浪直接把船推到体育馆旁边好吧，才够劲<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
