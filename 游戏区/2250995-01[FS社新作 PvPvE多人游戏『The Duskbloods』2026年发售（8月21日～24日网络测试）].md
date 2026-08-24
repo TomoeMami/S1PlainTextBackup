@@ -4099,3 +4099,11 @@ fs本来期待的结 ...</blockquote>
 主要测试版本很难选择不去仪式场吧，人少了可以美美占点，人多了可以趁乱偷人头，而且还能借机探查其他玩家 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开头教学 跟杨打完，那个染血的XXX 肯定就是最终阶段PVE路线的BOSS 
 
+
+*****
+
+####  魔王候补77号  
+##### 494#       发表于 2026-8-24 13:33
+
+目前感觉就是PVE内容太少了，就算按小高说法正式版是内容量X3感觉也是个体量很一般的游戏
+

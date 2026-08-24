@@ -148,3 +148,18 @@ ZZZ能够安稳落地就算不错了
 文戏凑合，只能说大纲可能算是好的但是拍出来又小家子气细节又不经推敲
 适合喜欢看打架的小朋友看<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 2190#       发表于 2026-8-24 13:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136378&amp;ptid=2250267" target="_blank">恶意之刃 发表于 2026-8-24 13:19</a>
+
+打戏到位，就大后期二骑强化之后到现在都是带货任务公式晒皮套外加王八拳算是有点收尾乏力。
+
+文戏凑合，只 ...</blockquote>
+某种意义上说是走在子供向作品的正路上<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小孩子懂什么文戏，小孩子就是来看打架的，打架好看就完事了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
