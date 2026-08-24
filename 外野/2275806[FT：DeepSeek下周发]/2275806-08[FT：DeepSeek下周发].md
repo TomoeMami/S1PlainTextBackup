@@ -6859,3 +6859,23 @@ V4proga目前的情况更大可能是训练资源移向了其他方向，后训�
 
 相比之下v模型一份提示词直接出结果，中间联网搜索、抓图片分析、写报告什么的过程都是对的
 
+
+*****
+
+####  misuzu0723  
+##### 10992#       发表于 2026-8-24 14:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136529&amp;ptid=2275806" target="_blank">罗莉控 发表于 2026-8-24 13:49</a>
+
+硅基流动的DSV4F还是原价，但是这家的API感觉不规范，我用DSH连接他的API，由于name为空的问题，无法调用工 ...</blockquote>
+我这边用的没这个问题，但是就是慢，同样的任务速度还不如luna max了
+
+*****
+
+####  cscbzcbz  
+##### 10993#       发表于 2026-8-24 14:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136664&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-24 14:10</a>
+你用啥协议, 我这边太容易输出无限循环了</blockquote>
+我还是用的openai协议，没有用A/的
+
