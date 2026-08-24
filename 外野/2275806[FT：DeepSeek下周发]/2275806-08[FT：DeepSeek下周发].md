@@ -6719,3 +6719,27 @@ V4proga目前的情况更大可能是训练资源移向了其他方向，后训�
 
 什么时候把version加上就完美了
 
+
+*****
+
+####  桂圆莲子  
+##### 10983#       发表于 2026-8-24 13:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136260&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-24 12:51</a>
+
+看来国算硬件真的升级了，今天flash0731能有90tokens/s
+
+什么时候把vision加上就完美了 ...</blockquote>
+耐用吗？想开一个试试水<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cscbzcbz  
+##### 10984#       发表于 2026-8-24 13:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136322&amp;ptid=2275806" target="_blank">桂圆莲子 发表于 2026-8-24 13:06</a>
+耐用吗？想开一个试试水</blockquote>
+现在换算下来价格和涨价前的ds基本持平，而且没有5小时限制，但是官网挂了要涨价预告
+另外要实名认证的
+
