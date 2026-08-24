@@ -7347,3 +7347,16 @@ sub2api把多个key聚合一下就行了....卡网 opencode go key最便宜时�
 
 我还用他做完了一个中型模拟游戏，没有任何bug基本上。很多代码都是一次通过，说明它基本代码能力也有。
 
+
+*****
+
+####  hugosol  
+##### 11032#       发表于 2026-8-24 20:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70138463&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-24 19:07</a>
+
+v模型作为识图子代理使用时，它会把识图的一大堆结果都以文字输出到会话，但是填给上级代理的report里只有 ...</blockquote>
+感觉无解，因为很多时候它去看截图之前也不知道自己要看什么，往回汇报还要再概括一层，信息损失的太多了，还是原生多模态效果最好
+
+反正现在直接拿V模型做主力模型了
+
