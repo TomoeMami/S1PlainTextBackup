@@ -1208,3 +1208,14 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 
 <img src="https://img.stage1st.com/forum/202608/24/093917qfo1bpfufsuzfppn.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  离魂仙  
+##### 119#       发表于 2026-8-24 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70134946&amp;ptid=2282975" target="_blank">蒋公卖萌 发表于 2026-8-24 09:39</a>
+这个地区，突然给我出了个壳巢之群的BOSS，结果我连人都没见到BOSS血条就空了，但一点奖励都没给我，是BUG ...</blockquote>
+图2你的位置正右方一个半圆凹槽就是壳群，有个裁决官之石
+图2正上方那个建筑上锁了，敲掉3个发光墓碑后开门进地牢
+
