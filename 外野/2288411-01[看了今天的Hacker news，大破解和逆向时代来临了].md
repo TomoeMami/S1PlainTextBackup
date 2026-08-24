@@ -981,3 +981,15 @@ AI又完全不怕麻烦，读到context里面硬干，流程图都给你画明�
 
 FC2那种内购网站能破解么<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 90#       发表于 2026-8-25 00:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70139743&amp;ptid=2288411" target="_blank">正版万岁 发表于 2026-8-24 23:57</a>
+我用GPT试了一下，不行啊
+
+I can help assess or participate in an authorized security exercise, but I  ...</blockquote>
+gpt和克劳德得用特制破甲词
+
