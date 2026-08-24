@@ -6338,3 +6338,33 @@ OX别的都好太容易断了，而且是断了没有办法继续的那种<img s
 
 384 token上限这个分辨率还是太模糊了，训正式版应该要再加一下    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  冤枉呐  
+##### 10949#       发表于 2026-8-24 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70133617&amp;ptid=2275806" target="_blank">kylezy123 发表于 2026-8-23 23:45</a>
+
+感谢坛友提供的灵感 靠v4f许愿试开发下 终于可以让酒馆用这个中转站了 就是非常慢
+
+ ...</blockquote>
+我看出来了你是用PI做了一下中转，牛逼
+
+*****
+
+####  冤枉呐  
+##### 10950#       发表于 2026-8-24 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70133472&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-23 23:12</a>
+
+我记得pro正式版刚出来那会有楼友发过，我没存，你往前翻翻看</blockquote>
+我搜搜看，感谢
+
+*****
+
+####  小野賢章  
+##### 10951#       发表于 2026-8-24 08:45
+
+我就是让pi改了一个简易版hermes在用，只有接入im、记忆、定时任务三个功能，然后用系统提示词把人格改了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
