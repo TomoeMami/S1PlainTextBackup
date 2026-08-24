@@ -319,3 +319,22 @@ F完结篇重复关卡过半了吧...阿尔法就更不用说了
 
 让想看脚的去下today<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  5ew47  
+##### 2988#       发表于 2026-8-24 22:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我反正已经被Today驯化了，看见新消息后先去检查Today看全身图和附加视频。
+
+贴一张从外面偷的图，有全身图的主要角色已经有14人了，都够组一队了，后面还一堆没介绍的角色，这代规模有点吓人了<img src="https://static.stage1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">
+
+IMG_8931.jpeg
+(311.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 22:27 上传
+
+<img src="https://img.stage1st.com/forum/202608/24/222721orprpegu0aev60gu.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

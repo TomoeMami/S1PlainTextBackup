@@ -931,3 +931,13 @@ GitHub仓库｜Claude运算耗时2.4小时｜我的提示词10条
 
 AI又完全不怕麻烦，读到context里面硬干，流程图都给你画明白了。
 
+
+*****
+
+####  璇瑢子R  
+##### 85#       发表于 2026-8-24 22:28
+
+感觉还是把家里空调电视什么的给破解了用处更大吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
