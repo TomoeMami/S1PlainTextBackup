@@ -7289,3 +7289,24 @@ O➗的称号以后由opencode go接管，屁本事没有，拿着DS 的推广�
 所以ds之前怎么做到被全世界蹬不卡的，技术太强了吧</blockquote>
 加机器    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  tonyunreal  
+##### 11027#       发表于 2026-8-24 19:07
+
+v模型作为识图子代理使用时，它会把识图的一大堆结果都以文字输出到会话，但是填给上级代理的report里只有比较短的总结，上级因为只能看到总结一头雾水
+
+有坛友遇到过这个问题吗
+
+
+*****
+
+####  eno_emos  
+##### 11028#       发表于 2026-8-24 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70138463&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-24 19:07</a>
+
+v模型作为识图子代理使用时，它会把识图的一大堆结果都以文字输出到会话，但是填给上级代理的report里只有 ...</blockquote>
+感觉是子代理提示词有问题，你要他自己调试一下自己试试
+

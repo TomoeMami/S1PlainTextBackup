@@ -902,3 +902,22 @@ GitHub仓库｜Claude运算耗时2.4小时｜我的提示词10条
 
 之前听说过老黄家的卡上内置处理器这么搞的，然后还是被高手攻破过
 
+
+*****
+
+####  科本学士  
+##### 82#       发表于 2026-8-24 19:09
+
+<blockquote>nocode 发表于 2026-8-24 14:31
+想了想身边有价值的破解对象，怀疑水电煤电子表会不会先出事……</blockquote>
+还有更要命的基站设备
+
+*****
+
+####  cscbzcbz  
+##### 83#       发表于 2026-8-24 19:14
+
+理论上那些没中文的老游戏都可以用ai汉化了，我已经自己翻译了几个老游戏，解包，翻译，把汉化后的文本塞回去，一气呵成。想说好时代来临了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是我汉化完就兴趣全无了，AI比游戏好玩多了，真的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
