@@ -7661,3 +7661,23 @@ x-ai/grok-4.1-fast模型超便宜
 好像我又被光头骗了，但是这个Bailu模型真的有这么强吗https://bailucode.com/blog/ ...</blockquote>
 bailu纯碰瓷的，牛来还是等几天他自己公布谜底得了，现在怎么看都是glm5.3t或者基于glm基座改的
 
+
+*****
+
+####  startraveller  
+##### 11057#       发表于 2026-8-24 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70139307&amp;ptid=2275806" target="_blank">thq 发表于 2026-8-24 22:23</a>
+时间线上不是v4fv-exp先出来的么？然后接着才是牛来登场。</blockquote>
+不是，ox flash先出来几个小时我记得
+
+
+*****
+
+####  startraveller  
+##### 11058#       发表于 2026-8-24 23:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70139307&amp;ptid=2275806" target="_blank">thq 发表于 2026-8-24 22:23</a>
+时间线上不是v4fv-exp先出来的么？然后接着才是牛来登场。</blockquote>
+看了下ox alpha是8月21日早上5点上线的，v4fv是下午
+
