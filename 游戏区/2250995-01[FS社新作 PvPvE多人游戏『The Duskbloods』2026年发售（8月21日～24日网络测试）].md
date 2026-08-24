@@ -4140,3 +4140,14 @@ fs本来期待的结 ...</blockquote>
 
 吃的那局还是遇到另一个胖宝宝，我们先合伙做掉第三人再进行极其搞笑的巴巴博弈最终鏖战胜利<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zakki  
+##### 499#       发表于 2026-8-24 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136423&amp;ptid=2250995" target="_blank">魔王候补77号 发表于 2026-8-24 13:33</a>
+
+目前感觉就是PVE内容太少了，就算按小高说法正式版是内容量X3感觉也是个体量很一般的游戏 ...</blockquote>
+小高说的不是内容量X5吗，地图是三分之一，每个地图怎么也得有一个夜王级别boss<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
