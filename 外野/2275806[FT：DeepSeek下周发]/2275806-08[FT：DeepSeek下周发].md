@@ -6368,3 +6368,11 @@ OX别的都好太容易断了，而且是断了没有办法继续的那种<img s
 
 我就是让pi改了一个简易版hermes在用，只有接入im、记忆、定时任务三个功能，然后用系统提示词把人格改了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小止  
+##### 10952#       发表于 2026-8-24 08:56
+
+dsh还不支持mermaid渲染吗，该搓一个了
+
