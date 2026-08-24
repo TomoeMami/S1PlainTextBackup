@@ -6964,3 +6964,13 @@ SiliconFlow 的流式返回里，工具调用的 name 和 id 只在第一个 del
 
    → 工具调不了。
 
+
+*****
+
+####  空き地卯木  
+##### 11000#       发表于 2026-8-24 15:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136664&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-24 14:10</a>
+你用啥协议, 我这边太容易输出无限循环了</blockquote>
+a的协议会稳很多，o的有两个协议，scnet没注明用哪个，体感o的response协议会跑得更快一些
+

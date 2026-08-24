@@ -618,3 +618,46 @@ GPT说Oasis 2同样现在已经不进行维护推送新固件了, 而最新版�
 
 毒奶粉不只是act4、86、90现在都有模拟端在做并且开源了，虽然还不够完善，但是有了ai进度真的很快，90us的作者自述是花了7500元的token开发的。
 
+
+*****
+
+####  朋友费小号  
+##### 64#       发表于 2026-8-24 15:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">话说这个要用codex来弄是吗？因为涉及代码之类的东西
+
+cherry studio不太行吧
+
+
+*****
+
+####  黑卷轴陶德传  
+##### 65#       发表于 2026-8-24 15:42
+
+所以192以后的冒险岛单机版还没出现吗？
+
+*****
+
+####  泰坦失足  
+##### 66#         楼主| 发表于 2026-8-24 15:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137201&amp;ptid=2288411" target="_blank">朋友费小号 发表于 2026-8-24 15:37</a>
+
+话说这个要用codex来弄是吗？因为涉及代码之类的东西
+
+cherry studio不太行吧</blockquote>
+Codex Opencode能叫得上名字的都行. 而且这玩意能自我增值, 只要安装好一个能和系统交互的Agent, 安装其他的就是说一下的事情. 你先从免费的workbuddy用起看看吧.
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 朋友费小号 + 1感谢，晚上下班看看
+
+查看全部评分
+
