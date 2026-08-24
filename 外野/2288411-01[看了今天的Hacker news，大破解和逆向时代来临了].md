@@ -819,3 +819,27 @@ GitHub仓库｜Claude运算耗时2.4小时｜我的提示词10条
 说起来老美农场主不是一直苦于给农机花钱了却没有真正的所有权吗，还催生了农机黑客这种职业
 那有ai了红脖子也能通过许愿来兼职吧<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泰坦失足  
+##### 74#         楼主| 发表于 2026-8-24 17:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137763&amp;ptid=2288411" target="_blank">qwased 发表于 2026-8-24 17:09</a>
+
+说起来老美农场主不是一直苦于给农机花钱了却没有真正的所有权吗，还催生了农机黑客这种职业
+
+那有ai了红脖 ...</blockquote>
+赛博黑客的CTF是Capture The Flag, 农机黑客要是出问题了可就是Cut The Foot了
+
+*****
+
+####  冤枉呐  
+##### 75#       发表于 2026-8-24 17:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137133&amp;ptid=2288411" target="_blank">王兰花秀丽 发表于 2026-8-24 15:25</a>
+随便什么有独家内容的app，给ds两句话，一、看一下这个软件的会员机制，二、破解他，就可以了    Re:Sour ...</blockquote>
+软件本身应该在本地吧
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

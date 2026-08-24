@@ -7029,3 +7029,125 @@ opencode go首月优惠取消，这下真实路边一条了。</blockquote>
 opencode go首月优惠取消，这下真实路边一条了。</blockquote>
 我才开了两个新号, 而且月额度加起来才花了30%, 毕竟才35一个月<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiaohanne  
+##### 11007#       发表于 2026-8-24 17:15
+
+ChatGPT的额度恢复了，目前看来之前的猜测没错，Vibe Coding编的Codex客户端又出bug了。
+
+*****
+
+####  xiaohanne  
+##### 11008#       发表于 2026-8-24 17:16
+
+<blockquote>goranger 发表于 2026-8-24 16:32
+opencode go首月优惠取消，这下真实路边一条了。</blockquote>
+很好，可以完全抛弃OpenCode go了
+
+*****
+
+####  qwased  
+##### 11009#       发表于 2026-8-24 17:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137814&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-24 17:15</a>
+ChatGPT的额度恢复了，目前看来之前的猜测没错，Vibe Coding编的Codex客户端又出bug了。 ...</blockquote>
+据说是对话里面有图片的时候触发上下文压缩他就会来回重传图片导致token和流量的异常消耗
+
+*****
+
+####  kinfox  
+##### 11010#       发表于 2026-8-24 17:18
+
+4090，24GB 显存跑通Qwen3.8 27B 大模型 —— 一套通用的无限任务长度，本地推理“全家桶”方案，
+
+ps：此方案可以随意更换量化模型，让ai给你配参数即可，可以找自己喜欢的量化模型，我就下了4，5个，根据他们的特点跑不同的任务
+
+设计的初衷是因为我是个4090单显卡，显存比较捉襟见肘，本地部署大模型时，经常遇到的痛苦问题
+
+上下文溢出：长对话或长输入导致 智能体出现400报错，模型不能在一个对话里再继续调用，context length exceeded，任务中断；
+
+而且我用的还是workbudd小白版本的智能体，我图省事。
+
+所以我让几个ai一起干活，帮我设计了一套监听的转接方式。
+
+代理承担“上下文管理”职责
+
+安全阈值 = window × safety，超出后自动裁剪历史，避免溢出。
+
+然后做一个一键启动器：
+
+每个后端对应一个 .bat 脚本，实现：
+
+    自动清理旧进程（避免端口冲突）；
+
+    启动后端（带优化参数）；
+
+    等待模型加载；
+
+    启动代理。
+
+一键运行，无需手动配置。
+
+- **WorkBuddy**：用户交互界面，配置 `models.json` 指向代理端口。
+
+- **代理 (llm_proxy.py)**：拦截请求，裁剪过长历史，防止上下文超限。
+
+- **llama-server**：执行推理，开启 MTP/ngram 推测解码，并加载优化参数。
+
+- **GPU (RTX 4090)**：执行计算，显存管理由 `-ngl all -ctk q4_0 -ctv q4_0` 控制。
+
+思路就是这样。。。然后就可以得到下面这样的，你怎么提问，无论任务多复杂，它都可以一次出来，也可以在同一个对话里反复的帮你解决问题，我现在测试用来制作复杂的游戏都是这么干，
+
+你可以把这个思路喂给某个ai 让它根据你的模型特点（你把模型页贴给它）出一个配置方案，和增加一个转接监听的逻辑。然后给你推荐配置在agent上的上下文输出输入的token值
+
+就可以了。
+
+效果就跟我如图这样
+
+<img src="https://img.stage1st.com/forum/202608/24/165946wdzy43jv2d4shnz3.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1787561971768.png</strong> (160.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 16:59 上传
+
+<img src="https://img.stage1st.com/forum/202608/24/165956cqgfvsfvcxr3vx3v.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1787561157540.png</strong> (234.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 16:59 上传
+
+## 📊 性能数据（实测）
+
+|| 场景 | 输入 tokens | 输出 tokens | 速度 (t/s) | 命中率 | 显存占用 ||
+|| :--- | :--- | :--- | :--- | :--- | :--- ||
+|| 短文本推理（约500输入） | 564 | 162 | 68 | 62% | ~20.5 GB ||
+|| 长文本推理（约40k输入） | 28,310 | 5,563 | **65.46** | **75.34%** | ~22.2 GB ||
+|| 另一长文本（约9.8k输入） | 9,849 | 5,022 | 43 | 38.68% | ~22.0 GB ||
+
+
+*****
+
+####  kinfox  
+##### 11011#       发表于 2026-8-24 17:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70133308&amp;ptid=2275806" target="_blank">奈落的孤火花 发表于 2026-8-23 22:43</a>
+
+有没有总结呀坛友</blockquote>
+总结已经发了，在上面
+
+*****
+
+####  neptunehs  
+##### 11012#       发表于 2026-8-24 17:22
+
+ox彻底死了 没意思
+乖乖混梁文谷了
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

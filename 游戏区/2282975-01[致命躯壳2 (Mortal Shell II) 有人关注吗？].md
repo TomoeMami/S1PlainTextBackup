@@ -1288,3 +1288,36 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 
 我进游戏就改键,然后打到什么堡要传送,怎么按都无效,把按键全部改回默认就能传送了,太下头了完全不想玩了
 
+
+*****
+
+####  我就再氪一单  
+##### 127#       发表于 2026-8-24 17:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70135213&amp;ptid=2282975" target="_blank">蒋公卖萌 发表于 2026-8-24 10:21</a>
+而且这个传送点做的像打怪掉落的钱袋，谁都想想去捡</blockquote>
+不知道是不是显示bug<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  我就再氪一单  
+##### 128#       发表于 2026-8-24 17:24
+
+不知道各个游戏up的视频你们看过几个，这群人嘴是真的严啊，说有一堆躯壳可以来回换，闭口不提升级躯壳的资源不返还，一个周目撑死升2-3个<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  我就再氪一单  
+##### 129#       发表于 2026-8-24 17:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137165&amp;ptid=2282975" target="_blank">lelo00 发表于 2026-8-24 15:33</a>
+确实不如明末, 躯壳属于不知道自己在玩什么, 美术看得眼睛痛</blockquote>
+美术我倒是很喜欢，相比于堕落之主我还是更喜欢这个的美术风格
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
