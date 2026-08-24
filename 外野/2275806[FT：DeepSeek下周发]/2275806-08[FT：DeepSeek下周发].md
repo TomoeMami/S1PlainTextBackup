@@ -6536,3 +6536,18 @@ V4proga目前的情况更大可能是训练资源移向了其他方向，后训�
 单纯大肥鱼想偷懒了</blockquote>
 我还以为是有上层监控使用量主动插入停止提示词。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冤枉呐  
+##### 10966#       发表于 2026-8-24 10:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70135157&amp;ptid=2275806" target="_blank">kylezy123 发表于 2026-8-24 10:14</a>
+
+我就是试试能不能行  现在写文都不玩克劳德了 连专用预设都找不到 怀念当初谷大善人的反重力opus-4.6 ...</blockquote>
+我发现，token都花在捣鼓上面了
+
+捣鼓完就没劲了
+
+装修了dsh，完事了我都不知道干啥
+
