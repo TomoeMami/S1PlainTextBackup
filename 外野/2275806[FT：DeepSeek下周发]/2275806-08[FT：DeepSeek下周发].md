@@ -6910,3 +6910,18 @@ V4proga目前的情况更大可能是训练资源移向了其他方向，后训�
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  冤枉呐  
+##### 10997#       发表于 2026-8-24 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136387&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-24 13:23</a>
+
+太正常了，装修才是最快乐的，装修完就索然无味了。</blockquote>
+还是想找点事干
+
+测试测试破限，我还没搞过，目标是海外小网站
+
+目前找不到门路
+
