@@ -1340,3 +1340,25 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 
 BD成型后爽玩啊...每个躯壳玩法都不一样。近战和远程武器搭配起来也很逆天。这游戏最大的问题是最后迷宫太无趣了。
 
+
+*****
+
+####  Bieaeml  
+##### 132#       发表于 2026-8-24 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137913&amp;ptid=2282975" target="_blank">红魔馆的糖 发表于 2026-8-24 17:29</a>
+
+这游戏的视频美化程度我只能说要么是有单子，要么就是这帮魂游饿死鬼确实饿晕了，魂游攻略up们也饿晕了 ...</blockquote>
+问就是没有这么差，还能给明末**一下，合着类魂都是这么个低标准来要求的
+
+*****
+
+####  我就再氪一单  
+##### 133#       发表于 2026-8-24 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137975&amp;ptid=2282975" target="_blank">8604132000 发表于 2026-8-24 17:41</a>
+BD成型后爽玩啊...每个躯壳玩法都不一样。近战和远程武器搭配起来也很逆天。这游戏最大的问题是最后迷宫太 ...</blockquote>
+躯壳配点能给我一个点满的机会吗<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

@@ -7189,3 +7189,11 @@ ox彻底死了 没意思
 眼睁睁看着Open Code Go的风评从月初的追捧跌到现在的路边一条。真的是佩服你们天天换api key的，我至今还 ...</blockquote>
 也没几个软件呀，我数了数，我也就Codex、 Grok Build、Deepseek、Workbuddy和一只小龙虾。
 
+
+*****
+
+####  舞以  
+##### 11017#       发表于 2026-8-24 17:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想用V4FV的话，等梁文谷用官方的吧，第三方的服务质量比官方差太多了
+
