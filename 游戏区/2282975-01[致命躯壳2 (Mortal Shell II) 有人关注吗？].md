@@ -1219,3 +1219,23 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 图2你的位置正右方一个半圆凹槽就是壳群，有个裁决官之石
 图2正上方那个建筑上锁了，敲掉3个发光墓碑后开门进地牢
 
+
+*****
+
+####  蒋公卖萌  
+##### 120#       发表于 2026-8-24 10:21
+
+<blockquote>我就再氪一单 发表于 2026-8-23 21:58
+打完demo部分怎么就突发恶疾了在一个城墙上摸了一下给我传送到一个要塞，哇这是给我传送到古战场了吗
+
+只能 ...</blockquote>
+而且这个传送点做的像打怪掉落的钱袋，谁都想想去捡<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蒋公卖萌  
+##### 121#       发表于 2026-8-24 10:23
+
+目前玩下来的评价是，不如明末，应该没什么争议吧？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

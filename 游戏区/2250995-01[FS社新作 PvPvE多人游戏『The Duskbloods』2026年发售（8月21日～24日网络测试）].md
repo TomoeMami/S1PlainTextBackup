@@ -4001,3 +4001,28 @@ fs本来期待的结 ...</blockquote>
 
 9、技能方面，自己只玩了4个角色，胖宝宝火箭头槌偷袭很强，然后有残蛋可以掰摇杆掉头，过程中也可以按X取消，阿尔伯特照射持续按住能输出很久，但是只有最开始有枪口补正，拖不动，前摇还长，也只能偷袭，老头的大恐龙嚼嚼嚼咬中人前都不是无敌，但是速度很快偷袭同样很强，越南妹隐身用不来，蛇也没看懂弹道，不评论了。
 
+
+*****
+
+####  wyptaotao  
+##### 484#       发表于 2026-8-24 10:18
+
+ 本帖最后由 wyptaotao 于 2026-8-24 10:21 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70134841&amp;ptid=2250995" target="_blank">ParukiaMKII 发表于 2026-8-24 09:20</a>
+分享点PVP的经验吧。
+
+1、这游戏精力条还是很重要，进入战斗后你高速移动，闪避，跳跃，防御都需要消耗精力 ...</blockquote>
+蛇貌似会根据摇杆输入方向派生
+前+x会向前伸出去
+无输入+x会直接缠绕护体
+
+*****
+
+####  wyptaotao  
+##### 485#       发表于 2026-8-24 10:22
+
+另外还发现了一个小里技
+狙击手的加特林按过x后可以直接按r
+枪口朝天时就可以开始射击了
+而且前几发不消耗子弹<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+

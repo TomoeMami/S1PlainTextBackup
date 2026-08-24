@@ -6486,3 +6486,17 @@ V4proga目前的情况更大可能是训练资源移向了其他方向，后训�
 —— 来自 HONOR MAA-AN10, Android 16, 鹅 ...</blockquote>
 工业也不只有标准件质检啊，非标件这种小模型得专门训练吧，何况这里说的还是ai生图质检，适用场景也不太一样
 
+
+*****
+
+####  kylezy123  
+##### 10962#       发表于 2026-8-24 10:14
+
+ 本帖最后由 kylezy123 于 2026-8-24 10:19 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70134766&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-24 09:09</a>
+
+话说，老兄在酒馆玩啥啊
+
+我捣鼓了几次索然无味</blockquote>
+我就是试试能不能行  现在写文都不玩克劳德了 连专用预设都找不到 怀念当初谷大善人的反重力opus-4.6
+
