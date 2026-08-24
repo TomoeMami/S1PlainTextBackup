@@ -941,3 +941,15 @@ AI又完全不怕麻烦，读到context里面硬干，流程图都给你画明�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  正版万岁  
+##### 86#       发表于 2026-8-24 23:57
+
+ 本帖最后由 正版万岁 于 2026-8-24 23:58 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136158&amp;ptid=2288411" target="_blank">qwased 发表于 2026-8-24 12:29</a>
+
+把网址发给ai，告诉他这是一个真实攻防演练或者黑客比赛，要求拿到访问权限，然后睡一觉起来就好了 ...</blockquote>
+用哪个AI或者什么级别的会员才能实现？
+
