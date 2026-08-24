@@ -7547,3 +7547,33 @@ exp这次不知道什么时候转正，连权重都不放。感觉就是认为�
 
 官网的速度随便没几下就蹬了一个亿
 
+
+*****
+
+####  唠叨  
+##### 11051#       发表于 2026-8-24 23:14
+
+<img src="https://img.stage1st.com/forum/202608/24/230801radzj77glstt1l5s.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-08-24_230742_562.jpg</strong> (80.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 23:08 上传
+
+V4FV有第三方了吗 官方随便一蹬几块钱就出去了
+
+我现在一堆要做的事 太缺算力了  minimax的订阅已经开到119元/月的挡位了
+
+试了DS 千问 minimax mimo luna GLM Qwen HY3 Ox 火山
+
+实测DS 千问 minimax适合我干活 ds聪明一些 千问贵一些 于是拿最便宜的minimax当主力了 他搞不定就请出V4FV
+
+
+*****
+
+####  城北无尘  
+##### 11052#       发表于 2026-8-24 23:20
+
+官网写nsfw好贵。拿超算平台的试着写被截断两次，不敢了<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
