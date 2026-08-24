@@ -7360,3 +7360,38 @@ v模型作为识图子代理使用时，它会把识图的一大堆结果都以�
 
 反正现在直接拿V模型做主力模型了
 
+
+*****
+
+####  crow_wine  
+##### 11033#       发表于 2026-8-24 20:20
+
+好久没用ds官方的服务，这种服务好爽啊
+
+*****
+
+####  tonyunreal  
+##### 11034#       发表于 2026-8-24 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70138780&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-24 20:17</a>
+
+感觉无解，因为很多时候它去看截图之前也不知道自己要看什么，往回汇报还要再概括一层，信息损失的太多了 ...</blockquote>
+有道理，v模型做主直接干活应该是最好的选择了
+
+*****
+
+####  tonyunreal  
+##### 11035#       发表于 2026-8-24 20:22
+
+看红迪上说国外版Minimax Plan 8月25号要再次涨价？
+
+
+*****
+
+####  scikirbypoke  
+##### 11036#       发表于 2026-8-24 20:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70138801&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-24 20:22</a>
+看红迪上说国外版Minimax Plan 8月25号要再次涨价？</blockquote>
+莫非新模型要来了
+
