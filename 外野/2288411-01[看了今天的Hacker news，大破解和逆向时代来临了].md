@@ -921,3 +921,13 @@ GitHub仓库｜Claude运算耗时2.4小时｜我的提示词10条
 
 但是我汉化完就兴趣全无了，AI比游戏好玩多了，真的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  featherwit  
+##### 84#       发表于 2026-8-24 19:40
+
+那可太好用了，ce/x64dbg都有mcp，结合python pefile。
+
+AI又完全不怕麻烦，读到context里面硬干，流程图都给你画明白了。
+
