@@ -7310,3 +7310,19 @@ v模型作为识图子代理使用时，它会把识图的一大堆结果都以�
 v模型作为识图子代理使用时，它会把识图的一大堆结果都以文字输出到会话，但是填给上级代理的report里只有 ...</blockquote>
 感觉是子代理提示词有问题，你要他自己调试一下自己试试
 
+
+*****
+
+####  phorcys02  
+##### 11029#       发表于 2026-8-24 19:16
+
+ 本帖最后由 phorcys02 于 2026-8-24 19:18 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137928&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-24 17:33</a>
+
+眼睁睁看着Open Code Go的风评从月初的追捧跌到现在的路边一条。真的是佩服你们天天换api key的，我至今还 ...</blockquote>
+sub2api把多个key聚合一下就行了....卡网 opencode go key最便宜时候大概20一个
+
+一个key现在大概等于 2.5B dsv4 flash的token， 涨价前 大概25B.
+
+当然现在不太划得来了。
+
