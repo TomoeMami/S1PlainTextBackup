@@ -85,3 +85,19 @@ XCOM是做了机械化改造就不能用灵能了，星战也是肉体没了就�
 为什么是拿法杖的？CM里不是拿斧头轮飞人的吗？</blockquote>
 法杖是职业装备，斧头是个人爱好吧
 
+
+*****
+
+####  han110022  
+##### 2968#       发表于 2026-8-24 10:25
+
+虽然演示都是锁暴击的，但是IS你怎么偏偏找了个0爆的来演示，忍俊不禁了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  duraa  
+##### 2969#       发表于 2026-8-24 10:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">略懂拳脚
+

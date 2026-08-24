@@ -6500,3 +6500,39 @@ V4proga目前的情况更大可能是训练资源移向了其他方向，后训�
 我捣鼓了几次索然无味</blockquote>
 我就是试试能不能行  现在写文都不玩克劳德了 连专用预设都找不到 怀念当初谷大善人的反重力opus-4.6
 
+
+*****
+
+####  villsian  
+##### 10963#       发表于 2026-8-24 10:24
+
+<img src="https://img.stage1st.com/forum/202608/24/102304tvetwt96pwlrilw9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (58.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 10:23 上传
+
+这两天试用了opencode 的v4f，它这外边是套了一层东西吧，我都没有下达终止命令。
+
+*****
+
+####  qwased  
+##### 10964#       发表于 2026-8-24 10:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70135235&amp;ptid=2275806" target="_blank">villsian 发表于 2026-8-24 10:24</a>
+
+这两天试用了opencode 的v4f，它这外边是套了一层东西吧，我都没有下达终止命令。 ...</blockquote>
+单纯大肥鱼想偷懒了
+
+*****
+
+####  villsian  
+##### 10965#       发表于 2026-8-24 10:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70135239&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-24 10:25</a>
+
+单纯大肥鱼想偷懒了</blockquote>
+我还以为是有上层监控使用量主动插入停止提示词。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
