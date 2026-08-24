@@ -173,3 +173,14 @@ XCOM是做了机械化改造就不能用灵能了，星战也是肉体没了就�
 
 发错了，编辑
 
+
+*****
+
+####  neoaska  
+##### 2974#       发表于 2026-8-24 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70121942&amp;ptid=2261859" target="_blank">王元姬无惨 发表于 2026-8-21 20:15</a>
+
+winky时代时代的机战压根没有重复性可言 有了多周目继承后还是主要在隐藏要素 分支路线上做文章 ...</blockquote>
+F完结篇重复关卡过半了吧...阿尔法就更不用说了
+

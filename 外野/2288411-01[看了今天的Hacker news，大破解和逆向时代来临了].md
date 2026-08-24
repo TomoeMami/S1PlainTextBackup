@@ -889,3 +889,16 @@ GitHub仓库｜Claude运算耗时2.4小时｜我的提示词10条
 
 在枪被大手收缴之前，江湖必有血雨腥风
 
+
+*****
+
+####  yigua  
+##### 81#       发表于 2026-8-24 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136131&amp;ptid=2288411" target="_blank">螺旋的小夜曲 发表于 2026-8-24 12:23</a>
+
+固件对于接入完全不设限才是问题关键吧，只要握手成功随便你改。从最常见的PLC，再到集成电路板，我就没见 ...</blockquote>
+固件要做全套的security保护异常复杂，需要从芯片底层架构一直到固件更新流程的安全认证一整套过程。
+
+之前听说过老黄家的卡上内置处理器这么搞的，然后还是被高手攻破过
+
