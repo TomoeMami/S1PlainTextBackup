@@ -43,3 +43,16 @@
 
 然后当年被我卖掉导致卡任务卡到现在的元帅依旧没抽到，呃呃
 
+
+*****
+
+####  khxooo  
+##### 48163#       发表于 2026-8-24 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136205&amp;ptid=1712412" target="_blank">kyonkoism 发表于 2026-8-24 12:36</a>
+
+草 每日一抽真能出货啊 还是new
+
+然后当年被我卖掉导致卡任务卡到现在的元帅依旧没抽到，呃呃</blockquote>
+我是大号连续两天萨老师<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

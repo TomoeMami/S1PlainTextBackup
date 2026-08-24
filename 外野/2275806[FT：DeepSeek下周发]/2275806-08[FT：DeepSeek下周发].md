@@ -7448,3 +7448,14 @@ ds v4f ve感觉可以做主力，就是官网哪怕是低谷也有点贵，一�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  duanrenduanren  
+##### 11042#       发表于 2026-8-24 21:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137545&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-24 16:32</a>
+
+opencode go首月优惠取消，这下真实路边一条了。</blockquote>
+刚刚又开了一个号，付款还没改，还是5刀。
+
