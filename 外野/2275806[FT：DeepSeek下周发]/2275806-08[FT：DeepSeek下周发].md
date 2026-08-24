@@ -7705,3 +7705,14 @@ bailu纯碰瓷的，牛来还是等几天他自己公布谜底得了，现在怎
 
 <img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">乘OX还免费多蹬一蹬 偶有不稳断链 整体使用体验还行
 
+
+*****
+
+####  来都来了  
+##### 11062#       发表于 2026-8-25 01:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70139606&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-24 23:28</a>
+据说是这个？25B模型？
+好像我又被光头骗了，但是这个Bailu模型真的有这么强吗https://bailucode.com/blog/ ...</blockquote>
+我说别给这炒作狗画面了
+
