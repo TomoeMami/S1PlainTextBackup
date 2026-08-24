@@ -7161,3 +7161,31 @@ ox彻底死了 没意思
 
 眼睁睁看着Open Code Go的风评从月初的追捧跌到现在的路边一条。真的是佩服你们天天换api key的，我至今还在用Deepseek官方，没有换别的渠道，因为我实在不想挨个软件换key。
 
+
+*****
+
+####  misuzu0723  
+##### 11014#       发表于 2026-8-24 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137928&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-24 17:33</a>
+眼睁睁看着Open Code Go的风评从月初的追捧跌到现在的路边一条。</blockquote>
+甚至可以说追捧的部分 8 成以上得归功于 deepseek 本身 ，顶住了数倍的压力保证了服务稳定运行（估计还影响了他们的训练）
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  →熙←  
+##### 11015#       发表于 2026-8-24 17:37
+
+几个便宜的第三方v4f供应商,都是处于很难用的状态, 各种被蹬爆
+
+*****
+
+####  xiaohanne  
+##### 11016#       发表于 2026-8-24 17:40
+
+<blockquote>来都来了 发表于 2026-8-24 17:33
+眼睁睁看着Open Code Go的风评从月初的追捧跌到现在的路边一条。真的是佩服你们天天换api key的，我至今还 ...</blockquote>
+也没几个软件呀，我数了数，我也就Codex、 Grok Build、Deepseek、Workbuddy和一只小龙虾。
+
