@@ -6570,3 +6570,55 @@ V4proga目前的情况更大可能是训练资源移向了其他方向，后训�
 
 我发现都忽略了一点,豆包虽然菜了一些,但是可以获取到抖音的各类讲解视频的内容,然后组织回答,但是DeepSeek只能知道标题,却无法知道讲了什么,对于现在网络搜索环境,越来越多的视频内容和越来越少的文字内容来说,差距其实挺明显的
 
+
+*****
+
+####  goranger  
+##### 10969#       发表于 2026-8-24 11:08
+
+话说国算的套餐似乎用量还行？有体验过的分享下值不值得买？
+
+*****
+
+####  南辰  
+##### 10970#       发表于 2026-8-24 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70135370&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-24 10:45</a>
+
+我发现，token都花在捣鼓上面了
+
+捣鼓完就没劲了
+
+装修了dsh，完事了我都不知道干啥 ...</blockquote>
+我也是，搞了几天token花在DSH各种奇奇怪怪地方，回头一看真正干活用的还是免费的HY和OX<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 10971#       发表于 2026-8-24 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70135487&amp;ptid=2275806" target="_blank">坛子漆黑 发表于 2026-8-24 11:02</a>
+
+今天我让DeepSeek组织一个完整的游戏剧情解析 燕云十六声无明春山剧情解析,但是结果气死人了,反反复复只有 ...</blockquote>
+这个也是gemini的优势区间，我跑了几次日本二次元同人网文的术语表提取，写了个从互联网搜索复核现行译名的skill，gemini干的明显比ds好很多
+
+*****
+
+####  SmterC  
+##### 10972#       发表于 2026-8-24 11:14
+
+deepseek harness发现PTC模式有个问题
+
+工具调用经常出现这个错误，但是实际上这个字段是好好传递过去的
+
+<img src="https://img.stage1st.com/forum/202608/24/111420npln8pncym8l4s78.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (86.57 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 11:14 上传
+
+看了下官方仓库的讨论区，不是个例
+
