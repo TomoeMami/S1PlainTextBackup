@@ -1680,3 +1680,29 @@ op里面的人物也基本上回收完了
 另外虽然这年头人人 ...</blockquote>
 哇还有妈妈.jpg说<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（/莉莎姐还是太姐姐了（
 
+
+*****
+
+####  ProAgressive  
+##### 437#       发表于 2026-8-24 23:04
+
+关于拉拉妈为什么寄了，
+
+只有特殊的人鱼公主才能闪耀，上一个是拉拉妈；
+
+魔女曾经喝了变人药，没有找到闪耀就会变泡沫；
+
+魔女还在，最后是拉拉妈寄了。
+
+所以拉拉妈没了是因为把闪耀给了魔女？？？
+
+魔女是拉拉的姑姑，她是拉拉爹同款发型。OP二人转部分魔女的王子发型类似拉拉妈。
+
+<img src="https://img.stage1st.com/forum/202608/24/230110b87z6x8iy13d9dzd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (158.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 23:01 上传
+
