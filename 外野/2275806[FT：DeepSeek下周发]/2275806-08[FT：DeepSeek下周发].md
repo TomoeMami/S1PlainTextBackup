@@ -6435,3 +6435,54 @@ max有一种pro刚端上来的味，雷霆大思考爱好者，本来就慢的�
 
 glm5.3没这感觉啊，难道他们也后训练丹爆炸了？
 
+
+*****
+
+####  小野賢章  
+##### 10958#       发表于 2026-8-24 10:07
+
+重置卡都来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/24/100744q33km3utla56r3dk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.61 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 10:07 上传
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 10959#       发表于 2026-8-24 10:11
+
+ox alpha很可能只是用了glm的tokenizer，我这里是没听说glm有任何推新小模型的计划，他们重心都在1.x T的大模型上面
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  tillnight  
+##### 10960#       发表于 2026-8-24 10:13
+
+<blockquote>eno_emos 发表于 2026-8-24 09:29
+牛来这个模型不能推理强度开max，开个high或者low正好
+
+max有一种pro刚端上来的味，雷霆大思考爱好者，本来 ...</blockquote>
+V4proga目前的情况更大可能是训练资源移向了其他方向，后训练随便训了一下交差。只在特定模式下激发更高智商本来也更像是只做了有限训练，之所以一开始都在说过拟合其实是都默认7月灰测中的模型就是预备发布的v4proga，能力差那么多只能猜是“练废了”。但是既然上周又掏出了神秘模型，说明什么检查点没留之类的奇葩猜测可以否定了，两者大概率就不是一个模型。你以现在眼光再看0813这个模型的话，他就很像后训练匆忙，远没有达到flash的后训练水平，而不是训练到过拟合了。
+
+同理这个牛来，也确实可能是后训练还没训完，先扔出来了。
+
+
+*****
+
+####  空き地卯木  
+##### 10961#       发表于 2026-8-24 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70134892&amp;ptid=2275806" target="_blank">c月光咖啡 发表于 2026-8-24 09:29</a>
+工业质检谁会用通用大模型啊，肯定得用YOLO这种定制小模型啊
+
+—— 来自 HONOR MAA-AN10, Android 16, 鹅 ...</blockquote>
+工业也不只有标准件质检啊，非标件这种小模型得专门训练吧，何况这里说的还是ai生图质检，适用场景也不太一样
+
