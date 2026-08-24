@@ -7477,3 +7477,47 @@ exp这次不知道什么时候转正，连权重都不放。感觉就是认为�
 exp这次不知道什么时候转正，连权重都不放。感觉就是认为这个实验版本没啥必要    Re:Source ...</blockquote>
 感觉是被GLM的Ox alpha临时逼出来的
 
+
+*****
+
+####  goranger  
+##### 11045#       发表于 2026-8-24 22:18
+
+为了白票google那个ai会员，折腾一晚上。
+
+1.要用已经过了年龄验证的账号开通；
+
+2.建议用jio不用pixel，这是gpt说的，jio最多阿三关了掉订阅，pixel搞不好会封号；
+
+3.小号开通后拉家庭组把大号拉进去
+
+4.安装反重力，全程给终端环境变量挂代理
+
+5.安装后登录，这步最坑，各种卡认证。如果你手机上刚好有ytb和g应用，登录好他俩，然后用g应用扫码，如果你被卡了认证你会知道我说的这个是啥。
+
+6.实在是环境问题，登录谷歌云，在谷歌云里打开终端，在终端里开一次agy认证，然后再用你电脑的环境认证。
+
+7.最后大概你可以让你的agent写个插件调用agy的cli，一天1500次次数吧。。干点杂活还行
+
+
+*****
+
+####  thq  
+##### 11046#       发表于 2026-8-24 22:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70139272&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-24 22:15</a>
+
+感觉是被GLM的Ox alpha临时逼出来的</blockquote>
+时间线上不是v4fv-exp先出来的么？然后接着才是牛来登场。
+
+*****
+
+####  goranger  
+##### 11047#       发表于 2026-8-24 22:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70139158&amp;ptid=2275806" target="_blank">duanrenduanren 发表于 2026-8-24 21:54</a>
+刚刚又开了一个号，付款还没改，还是5刀。</blockquote>
+官方群里很多人也这么说，不过感觉早晚的事情了。这公司还有bug，似乎有一批不会掉订阅
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
