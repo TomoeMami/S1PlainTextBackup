@@ -202,3 +202,11 @@ NOX想摧毁不把自由当回事的组织，不惜和梦魇合作，最后走�
 所以这部目前在令和那堆里面能排多少，看尼姑庵是跟saber争第一，但尼姑庵无脑吹的saber我不太感冒所以我还 ...</blockquote>
 这片儿和塞巴的看点比较相反，不喜欢塞巴有概率能喜欢三条Z
 
+
+*****
+
+####  AAAZZZWWW  
+##### 2194#       发表于 2026-8-25 00:51
+
+这一话nox带头说别管宁梦也太搞了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都搞不清楚到底是符合一如既往的摆烂人设，还是对之前会照顾宁梦人设的ooc
+
