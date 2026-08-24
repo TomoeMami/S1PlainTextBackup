@@ -511,3 +511,80 @@ kindle 这个有点兴趣，想玩玩，lz 用的那款？或者推荐哪款？�
 没有相关资料的情况,可能还是 ...</blockquote>
 3568不是进主线了吗？改改dts对现在大部分模型来说都不是难事了
 
+
+*****
+
+####  RyuguRena  
+##### 54#       发表于 2026-8-24 15:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136728&amp;ptid=2288411" target="_blank">月神夜 发表于 2026-8-24 14:21</a>
+
+之前觉得训练AI强化学习时，如何“验证”是很大的问题。但现在看，AI挖洞能力似乎普遍强于写代码的能力...
+
+ ...</blockquote>
+我司内部用AI搭建的一个管理系统，已经被我用AI拿到了管理员权限<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小单酱  
+##### 55#       发表于 2026-8-24 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137050&amp;ptid=2288411" target="_blank">拯救节操希灵宅 发表于 2026-8-24 15:11</a>
+
+3568不是进主线了吗？改改dts对现在大部分模型来说都不是难事了</blockquote>
+小黄鱼买的, 推测是定制给pcdn的. 有搜到一些资料
+
+让cc 驱动pwm出来. 加个风扇.  最终没成功
+
+*****
+
+####  泰坦失足  
+##### 56#         楼主| 发表于 2026-8-24 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137011&amp;ptid=2288411" target="_blank">小单酱 发表于 2026-8-24 15:06</a>
+
+完全不懂硬件
+
+之前用cd 4.7 去尝试给一块rk3568的的小机器 做适配.  最终失败
+
+没有相关资料的情况,可能还是 ...</blockquote>
+挺奇怪的, 我的Arduino是相对小众的Nano Sense都能进行开发, 还告诉我debug出来说摄像头底座插反了.
+
+*****
+
+####  zeta945  
+##### 57#       发表于 2026-8-24 15:20
+
+是的，尤其是开源模型越来越强的情况下，我已经干了不少坏事了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小单酱  
+##### 58#       发表于 2026-8-24 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137105&amp;ptid=2288411" target="_blank">泰坦失足 发表于 2026-8-24 15:20</a>
+
+挺奇怪的, 我的Arduino是相对小众的Nano Sense都能进行开发, 还告诉我debug出来说摄像头底座插反了. ...</blockquote>
+可能还是和设备有关系吧
+
+让gemini去操作kp3, 改成监控屏就成功了
+
+*****
+
+####  朋友费小号  
+##### 59#       发表于 2026-8-24 15:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真给我整好奇起来了，有点想干干坏事
+
+*****
+
+####  王兰花秀丽  
+##### 60#       发表于 2026-8-24 15:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136130&amp;ptid=2288411" target="_blank">小妻水亚美 发表于 2026-8-24 12:23</a>
+愿闻其详
+
+—— 来自 vivo V2454DA, Android 16上的 S1Next-鹅版 v2.5.2</blockquote>
+随便什么有独家内容的app，给ds两句话，一、看一下这个软件的会员机制，二、破解他，就可以了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

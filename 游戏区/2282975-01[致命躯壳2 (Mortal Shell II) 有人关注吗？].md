@@ -1239,3 +1239,17 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 
 目前玩下来的评价是，不如明末，应该没什么争议吧？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ggssoo  
+##### 122#       发表于 2026-8-24 15:24
+
+昨晚打到那个大蛤蟆boss，数值离谱就不说了，第一次快打死的时候跳出了白打
+
+第二次快打死了，boss一个巴掌把我拍浮空八百米，判定为脱战，等落地boss血回满了
+
+我日NM，游戏本身体验辣鸡乏味不说，还满身bug，还有卡在角落里走不出来，野外boss飞扑把我扑到楼下，自己飞出去死了之类的弱智设计
+
+真正的吃到热乎的了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

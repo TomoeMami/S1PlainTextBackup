@@ -6925,3 +6925,42 @@ V4proga目前的情况更大可能是训练资源移向了其他方向，后训�
 
 目前找不到门路
 
+
+*****
+
+####  飛霞精灵  
+##### 10998#       发表于 2026-8-24 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136779&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-24 14:28</a>
+
+用过v模型再用mimo，感觉mimo做视觉相关的任务好费劲
+
+不是一直在自己犯错然后纠正，就是要我打断任务提醒它 ...</blockquote>
+还是那句话，猴王的产品只能拼性价比和供应链。
+
+AI这种需要深耕技术力算法和大量训练的，mimo属于不配上桌那种。
+
+*****
+
+####  罗莉控  
+##### 10999#       发表于 2026-8-24 15:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136811&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-24 14:34</a>
+
+我这边用的没这个问题，但是就是慢，同样的任务速度还不如luna max了</blockquote>
+这家的速度确实让人受不了
+
+用CC下的DS给修好了，说是
+
+SiliconFlow 的流式返回里，工具调用的 name 和 id 只在第一个 delta 给对，后面的 delta 给的是空字符串/空值（不是"省略"）：
+
+  delta 1: function.name = "get_weather"   id = "01a0328b..."
+
+  delta 2: function.name = ""              id = null   ← 空串覆盖
+
+  delta 3: function.name = ""              id = null   ← 空串覆盖
+
+  而 dsh 适配器的解析代码只判断"是不是 undefined"（!== void 0），空字符串 "" 不是 undefined，于是把正确的名字覆盖成了空 → 最终 name=""
+
+   → 工具调不了。
+
