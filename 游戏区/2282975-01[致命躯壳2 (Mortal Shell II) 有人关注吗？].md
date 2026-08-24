@@ -1450,3 +1450,17 @@ BD成型后爽玩啊...每个躯壳玩法都不一样。近战和远程武器搭
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  我就再氪一单  
+##### 141#       发表于 2026-8-24 20:32
+
+ 本帖最后由 我就再氪一单 于 2026-8-24 20:35 编辑 
+
+【【致命躯壳2】里技：战技替换，且无蓝耗，有手就会-哔哩哔哩】 https://b23.tv/o1ysiew
+
+还能卡战技<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我想起来了，我不是无面人，我是...
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
