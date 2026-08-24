@@ -1499,3 +1499,25 @@ op里面的人物也基本上回收完了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">老姐和魔女这两个到底干嘛的，一个只会哎呀反正你回来待着自己一群半死不活的家人贝壳就能找到家族爱，一个除了吓吓老姐8集了啥事都没干只会复读真实之爱的金鱼，当然金鱼应该还有戏份，但是老姐这个还插了专门一集的就有这么工具人吗
 
+
+*****
+
+####  a85982313  
+##### 426#       发表于 2026-8-24 18:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">而且要是真实之爱如果是人类爱这种玩意，怎么说呢，人鱼爱人鱼不行吗，一定要搞异种交流吗，你这啥机制呀
+
+*****
+
+####  帝下室の年糕  
+##### 427#       发表于 2026-8-24 18:19
+
+天生鱼奸不行吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  日野下花帆  
+##### 428#       发表于 2026-8-24 18:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这片真要拍人类爱就应该多来点像ep4和ep5这种单回来展现在滋贺这片土地上和各种人的交往。
+

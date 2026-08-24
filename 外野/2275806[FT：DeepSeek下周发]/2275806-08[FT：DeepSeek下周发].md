@@ -7234,3 +7234,11 @@ O➗的称号以后由opencode go接管，屁本事没有，拿着DS 的推广�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  赤星ビスコ  
+##### 11021#       发表于 2026-8-24 18:15
+
+我装了个litellm做聚合，这样所有软件的api key都不会改，切API和供应商只要改litellm就行
+
