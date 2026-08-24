@@ -6674,3 +6674,30 @@ opencode go 的 v4f 是注入过提示词，会注入要求不能思考太久，
 V4proga目前的情况更大可能是训练资源移向了其他方向，后训练随便训了一下交差。只在特定模式下激发更高 ...</blockquote>
 从没过多久又发了个vision 模型就能看出来内部绝对不止flash 和pro这俩模型在训练，绝对还有别的模型在并行训练了
 
+
+*****
+
+####  hugosol  
+##### 10978#       发表于 2026-8-24 11:55
+
+视觉模型不是这两天训练出来的啦，网页版早就上识图模式了，只是一直没给api用
+
+当然应该也是调整得差不多才放出来的
+
+*****
+
+####  舞以  
+##### 10979#       发表于 2026-8-24 11:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">快到梁文谷时间了
+
+
+*****
+
+####  valand  
+##### 10980#       发表于 2026-8-24 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70135487&amp;ptid=2275806" target="_blank">坛子漆黑 发表于 2026-8-24 11:02</a>
+今天我让DeepSeek组织一个完整的游戏剧情解析 燕云十六声无明春山剧情解析,但是结果气死人了,反反复复只有 ...</blockquote>
+这就是豆包腾讯阿里们的护城河啊，它们查询自家平台资源有特攻
+
