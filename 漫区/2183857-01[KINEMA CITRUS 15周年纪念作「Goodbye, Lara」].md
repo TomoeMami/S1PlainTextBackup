@@ -1227,3 +1227,13 @@ Lara running out of time -&gt; Lisa gives M ...</blockquote>
 绕了一大圈还是在寻找真爱，其余信息实在少得可怜，小出真的这么自信自己对于真实之爱的阐释能说服一路看到 ...</blockquote>
 不太可能是人类爱以外的东西，结局大概率是一大堆人元气弹帮助拉拉传火
 
+
+*****
+
+####  Delicatus545  
+##### 402#       发表于 2026-8-24 08:19
+
+菈菈日子还是过得太顺了，没遇到什么坏人，鱼剑指哪打哪，心想事成<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+剧情该暴走一下让她看看人类的险恶了<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
