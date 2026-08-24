@@ -4069,3 +4069,14 @@ fs本来期待的结 ...</blockquote>
 仪式场收益大，三阶段杀一个人就24分，野外收益太低了，大BOSS又不好打</blockquote>
 因为网测大多数人都进，所以大概率能遇到人，杀人吃一波大分，但不一定必进吧，如果前三领先的分差大，进仪式场是没收益的，吃太多分反而会被决赛针对。况且排位低的人进了也不一定能吃到分<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kojimaru  
+##### 491#       发表于 2026-8-24 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70135565&amp;ptid=2250995" target="_blank">zakki 发表于 2026-8-24 11:13</a>
+
+因为网测大多数人都进，所以大概率能遇到人，杀人吃一波大分，但不一定必进吧，如果前三领先的分差大，进 ...</blockquote>
+黄金石+一个誓约柱也是24分，四根柱子剩下三人分，就算倒数这仨进圈不打架也会有一个人吃48分<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

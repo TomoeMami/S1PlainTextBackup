@@ -6622,3 +6622,38 @@ deepseek harness发现PTC模式有个问题
 
 看了下官方仓库的讨论区，不是个例
 
+
+*****
+
+####  cscbzcbz  
+##### 10973#       发表于 2026-8-24 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70135531&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-24 11:08</a>
+话说国算的套餐似乎用量还行？有体验过的分享下值不值得买？</blockquote>
+坑点：
+1没有version模型，pro是预览版
+2官方发了涨价预告，好像还没有实施，具体怎么涨不知道
+3 上周天天429报错，这周好了一些
+4 一个账号只能买一个套餐，不能升级
+
+*****
+
+####  CCauchy  
+##### 10974#       发表于 2026-8-24 11:21
+
+[https://agentrouter.org/register?aff=WNEp](https://agentrouter.org/register?aff=WNEp)
+
+我也发一个
+
+
+*****
+
+####  villsian  
+##### 10975#       发表于 2026-8-24 11:25
+
+opencode 的v4f绝对是有问题的，看思维链就不对，很像是被注入了提示词，而且有时候还不执行工具调用。
+
+这个月一直使用官方v4模型，这些问题都没出现过。
+
+哎，只能等下班时间用官方的了。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
