@@ -6376,3 +6376,38 @@ OX别的都好太容易断了，而且是断了没有办法继续的那种<img s
 
 dsh还不支持mermaid渲染吗，该搓一个了
 
+
+*****
+
+####  空き地卯木  
+##### 10953#       发表于 2026-8-24 09:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70134255&amp;ptid=2275806" target="_blank">jojog 发表于 2026-8-24 02:19</a>
+ai质检真的信得过吗
+
+我生图让codex a/ gemini qwen试过查多胳膊多腿还有牛子柰子精度都非常低…… ...</blockquote>
+用下来的感受是ai觉得不行的一般都有大问题，ai觉得行的细看可能还有问题
+现在丢给GPT IMG去生一些结构上复杂一点的都很容易交付出一些奇形怪状的图片，要是质检真靠谱也就没这些事了，感觉应该还是空间识别上有些问题
+不过现在还有个可以本地部署的minimax h3可以试试拿来质检，视频模型在这一块听说会更靠谱一些
+
+*****
+
+####  冤枉呐  
+##### 10954#       发表于 2026-8-24 09:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70133617&amp;ptid=2275806" target="_blank">kylezy123 发表于 2026-8-23 23:45</a>
+
+感谢坛友提供的灵感 靠v4f许愿试开发下 终于可以让酒馆用这个中转站了 就是非常慢
+
+ ...</blockquote>
+话说，老兄在酒馆玩啥啊
+
+我捣鼓了几次索然无味
+
+*****
+
+####  泰坦失足  
+##### 10955#       发表于 2026-8-24 09:10
+
+gemini3.7 flash快到是挺快的，习惯了5.6输出又慢又给你打10个甚至9个补丁/fallback/hash检查后。 挺不习惯的。 不过活干的也糙一点， 让它切换Kindle越狱后linux程序，它没关守护进程，让它搭环境训练，它开始训练后直接就跑了，刚开始就直接报错环境变量问题。
+

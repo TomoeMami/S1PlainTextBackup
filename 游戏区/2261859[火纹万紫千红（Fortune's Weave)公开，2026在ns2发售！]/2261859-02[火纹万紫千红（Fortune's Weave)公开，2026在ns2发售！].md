@@ -15544,3 +15544,27 @@ IF的看守所：想我了吗？抓小boss进队
 
 更有如果不救蕾达的话，5年后没有舞娘用的情况吗？
 
+
+*****
+
+####  巴尔干炮  
+##### 2957#       发表于 2026-8-24 09:16
+
+<img src="https://img.stage1st.com/forum/202608/24/091519llceyevim7sddzdd.jpg" referrerpolicy="no-referrer">
+
+<strong>cb189fd11b1134218b6ee5156eddc5297b46deac559e2cbd8f31dce2ef4ec9b0.0.JPG</strong> (679.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 09:15 上传
+
+<img src="https://img.stage1st.com/forum/202608/24/091521qw8kx0tw9i0skxps.jpg" referrerpolicy="no-referrer">
+
+<strong>cc7a8a9cc7110a4c5fde41787ea072359dddab2cf5b264e9b5ea630f34628606.0.JPG</strong> (566.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-24 09:15 上传
+
+这店员一看就是粉丝。
+
