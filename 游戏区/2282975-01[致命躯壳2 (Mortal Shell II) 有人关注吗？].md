@@ -1362,3 +1362,28 @@ BD成型后爽玩啊...每个躯壳玩法都不一样。近战和远程武器搭
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Bieaeml  
+##### 134#       发表于 2026-8-24 18:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70138067&amp;ptid=2282975" target="_blank">我就再氪一单 发表于 2026-8-24 17:57</a>
+
+躯壳配点能给我一个点满的机会吗
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球 v3.5.99 ...</blockquote>
+不止这个问题，一周目瞬悟只够点满2个躯壳的羁绊等级的同时，躯壳40点限制上限（富姐是44点）决定了哪怕躯壳点数拉满也不能点满单一躯壳的所有项目，这里给了重置选项却没有记录配置功能，属于系统相互打架了。
+
+
+*****
+
+####  ku2154513  
+##### 135#       发表于 2026-8-24 18:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70138067&amp;ptid=2282975" target="_blank">我就再氪一单 发表于 2026-8-24 17:57</a>
+躯壳配点能给我一个点满的机会吗
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球 v3.5.99 ...</blockquote>
+一周目肯定点不满，其实斧匕加二元之石加出血够打所有boss了，我用的普罗西玛技能其实不怎么强，最终boss也是随便打
+
