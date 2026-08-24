@@ -1253,3 +1253,11 @@ OK回去试试，昨晚拿完探针小姐姐躯壳去附近拿老兵战斧，被
 
 真正的吃到热乎的了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lelo00  
+##### 123#       发表于 2026-8-24 15:33
+
+确实不如明末, 躯壳属于不知道自己在玩什么, 美术看得眼睛痛
+

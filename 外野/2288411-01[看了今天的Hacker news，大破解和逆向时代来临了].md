@@ -588,3 +588,33 @@ kindle 这个有点兴趣，想玩玩，lz 用的那款？或者推荐哪款？�
 —— 来自 vivo V2454DA, Android 16上的 S1Next-鹅版 v2.5.2</blockquote>
 随便什么有独家内容的app，给ds两句话，一、看一下这个软件的会员机制，二、破解他，就可以了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  s1234y  
+##### 61#       发表于 2026-8-24 15:27
+
+x64dbg mcp，再配合这玩意，效率直接起飞
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  泰坦失足  
+##### 62#         楼主| 发表于 2026-8-24 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137042&amp;ptid=2288411" target="_blank">redbuck 发表于 2026-8-24 15:10</a>
+
+kindle 这个有点兴趣，想玩玩，lz 用的那款？或者推荐哪款？准备咸鱼搞一个</blockquote>
+我用的是PW3. 市场保有量巨大, 原来价格就便宜, 系统已经不推送新版固件. 最新的固件直接就能轻松越狱. 就是CPU有点古老
+
+GPT说Oasis 2同样现在已经不进行维护推送新固件了, 而最新版的固件就能破解. CPU是更好的i.MX7D. 但是Oasis是当时的旗舰机型, 二手更贵吧.
+
+
+*****
+
+####  筒井彩芽  
+##### 63#       发表于 2026-8-24 15:33
+
+毒奶粉不只是act4、86、90现在都有模拟端在做并且开源了，虽然还不够完善，但是有了ai进度真的很快，90us的作者自述是花了7500元的token开发的。
+
