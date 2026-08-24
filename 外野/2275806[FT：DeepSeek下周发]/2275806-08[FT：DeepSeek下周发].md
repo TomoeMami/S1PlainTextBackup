@@ -7395,3 +7395,24 @@ v模型作为识图子代理使用时，它会把识图的一大堆结果都以�
 看红迪上说国外版Minimax Plan 8月25号要再次涨价？</blockquote>
 莫非新模型要来了
 
+
+*****
+
+####  neptunehs  
+##### 11037#       发表于 2026-8-24 20:43
+
+都普遍看涨啊 黄金时代一去不复返
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  空き地卯木  
+##### 11038#       发表于 2026-8-24 20:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70138887&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-24 20:43</a>
+都普遍看涨啊 黄金时代一去不复返
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0</blockquote>
+minimax今年无预警涨过一次了，感觉盈利压力不小
+
