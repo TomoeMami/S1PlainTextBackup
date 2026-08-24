@@ -963,3 +963,13 @@ AI又完全不怕麻烦，读到context里面硬干，流程图都给你画明�
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  orangee  
+##### 88#       发表于 2026-8-25 00:19
+
+这半年感觉半新不新的硬件固件都像定时炸弹了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
