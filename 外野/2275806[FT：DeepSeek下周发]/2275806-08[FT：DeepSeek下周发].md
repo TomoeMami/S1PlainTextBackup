@@ -6551,3 +6551,14 @@ V4proga目前的情况更大可能是训练资源移向了其他方向，后训�
 
 装修了dsh，完事了我都不知道干啥
 
+
+*****
+
+####  chuchoselph  
+##### 10967#       发表于 2026-8-24 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70135153&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-8-24 10:13</a>
+
+工业也不只有标准件质检啊，非标件这种小模型得专门训练吧，何况这里说的还是ai生图质检，适用场景也不太 ...</blockquote>
+非标怎么训练啊？都非标了不就相当于定制么？每次标准都不一样吧
+
