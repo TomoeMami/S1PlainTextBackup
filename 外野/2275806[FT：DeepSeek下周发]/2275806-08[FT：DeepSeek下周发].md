@@ -7459,3 +7459,21 @@ ds v4f ve感觉可以做主力，就是官网哪怕是低谷也有点贵，一�
 opencode go首月优惠取消，这下真实路边一条了。</blockquote>
 刚刚又开了一个号，付款还没改，还是5刀。
 
+
+*****
+
+####  overflowal  
+##### 11043#       发表于 2026-8-24 22:07
+
+exp这次不知道什么时候转正，连权重都不放。感觉就是认为这个实验版本没啥必要    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  startraveller  
+##### 11044#       发表于 2026-8-24 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70139222&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-8-24 22:07</a>
+exp这次不知道什么时候转正，连权重都不放。感觉就是认为这个实验版本没啥必要    Re:Source ...</blockquote>
+感觉是被GLM的Ox alpha临时逼出来的
+
