@@ -1636,3 +1636,25 @@ op里面的人物也基本上回收完了
 
 本集的分镜也很利落，拳击比赛的切镜还是那种利用穿插闪回来传递情绪的味道。
 
+
+*****
+
+####  镜中  
+##### 433#       发表于 2026-8-24 21:02
+
+这集分镜很不赖啊，镜头信息和台词相互呼应看得强迫症舒服死了
+
+*****
+
+####  aptx8285144  
+##### 434#       发表于 2026-8-24 21:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70138904&amp;ptid=2183857" target="_blank">帆前 发表于 2026-8-24 20:47</a>
+
+这集感觉像是回答了上集的问题，果然人鱼机制中的真实之爱定义与姑姑所说的不同吧。
+
+是茉里拉拉故事的进一 ...</blockquote>
+不温良还能咋地，上一次夕阳前有流露出对芙莉家不利的意思就被拉拉召唤鱼剑劈了光太<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+另外虽然这年头人人都是夏亚确实贪得无厌了，不过考虑到芙莉在拉拉走后还是杀入了决赛，如果没有拉拉出现或许最后只是差之毫厘的败北，再结合母亲的回忆杀，也许拉拉之于芙莉不只是同龄种族感情，而是教会让她直面前方的人，因此扮演了部分母亲的角色定位<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，你看做蛋糕和吃的也可以是母亲（
+
