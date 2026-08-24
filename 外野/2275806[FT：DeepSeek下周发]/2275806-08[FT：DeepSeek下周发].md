@@ -6982,3 +6982,13 @@ a的协议会稳很多，o的有两个协议，scnet没注明用哪个，体感o
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谷大善人十几块的pro让gpt指挥，蹬起来真爽啊，小梁你谁啊我们不熟
 
+
+*****
+
+####  qwased  
+##### 11002#       发表于 2026-8-24 16:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137320&amp;ptid=2275806" target="_blank">UmarIbnLaAhad 发表于 2026-8-24 15:56</a>
+谷大善人十几块的pro让gpt指挥，蹬起来真爽啊，小梁你谁啊我们不熟</blockquote>
+你是反代接codex的吗，我在想有没有什么办法不反代也能把反重力对接到其他harness里面<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
