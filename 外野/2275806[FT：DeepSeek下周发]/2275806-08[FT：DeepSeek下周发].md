@@ -7521,3 +7521,21 @@ exp这次不知道什么时候转正，连权重都不放。感觉就是认为�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  舞以  
+##### 11048#       发表于 2026-8-24 22:38
+
+哈基米的网页对话还行吧，agy感觉只能当补充
+
+
+*****
+
+####  舞以  
+##### 11049#       发表于 2026-8-24 22:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我发现gpt真的特别保守，典型的就是sha256乱用。
+
+用它做规划还是必须得自己有点想法，不然很容易被牵着鼻子走。
+

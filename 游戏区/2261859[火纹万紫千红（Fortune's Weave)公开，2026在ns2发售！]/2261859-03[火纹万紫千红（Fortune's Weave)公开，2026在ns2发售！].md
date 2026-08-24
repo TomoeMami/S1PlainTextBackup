@@ -338,3 +338,11 @@ IMG_8931.jpeg
 
 <img src="https://img.stage1st.com/forum/202608/24/222721orprpegu0aev60gu.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山口達也  
+##### 2989#       发表于 2026-8-24 22:42
+
+比较好笑的一点是，当初万紫千红刚公布的都说是倪哥文章，一堆人包括s1指着黑人脏辫骂了十几楼，什么突兀生硬破坏世界观影响严肃性啊。现在看来，抛开肤色不提，跟黑人沾边的也就脏辫了。倒是中国风元素越来越多了...我看怕不似中国风才是本次的政治正确担当，毕竟中国也算是当代国际热点时尚单品。连日本人现在都重新跑回来拍中国风背景的动画了。is想蹭一蹭也不难理解。只是什么不够严肃破坏世界观呢?我相信人都是双标的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
