@@ -210,3 +210,15 @@ NOX想摧毁不把自由当回事的组织，不惜和梦魇合作，最后走�
 
 这一话nox带头说别管宁梦也太搞了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都搞不清楚到底是符合一如既往的摆烂人设，还是对之前会照顾宁梦人设的ooc
 
+
+*****
+
+####  pointer243  
+##### 2195#       发表于 2026-8-25 02:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70139112&amp;ptid=2250267" target="_blank">乾理央 发表于 2026-8-24 21:42</a>
+所以这部目前在令和那堆里面能排多少，看尼姑庵是跟saber争第一，但尼姑庵无脑吹的saber我不太感冒所以我还 ...</blockquote>
+还是我的老结论，只要结尾不爆典什么梦魇也是人类的一部分啊之类的就能稳坐令和第二。令和第一就算了，所有角色除了牢莫和妹妹刻画还不如saber的神代兄妹
+
+—— 来自 motorola edge 2025, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
