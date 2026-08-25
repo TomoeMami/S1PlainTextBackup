@@ -9065,3 +9065,13 @@ codex又重置了？<img src="https://static.stage1st.com/image/smiley/face2017/
 
 难绷喵
 
+
+*****
+
+####  唠叨  
+##### 11189#       发表于 2026-8-26 00:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144419&amp;ptid=2275806" target="_blank">iken 发表于 2026-8-25 20:23</a>
+opencode go的grok在dsh会报web_search无效参数错，搜索配置其他都不行，这个的在dsh能用吗？ ...</blockquote>
+应该可以吧 我接酒馆用的 
+
