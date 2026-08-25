@@ -1583,3 +1583,17 @@ BOSS是不是就是三只小怪共用一个血条啊，这也能算BOSS啊？<im
 </blockquote>
 篝火传送有，但是你说的其他问题无解
 
+
+*****
+
+####  我就再氪一单  
+##### 152#       发表于 2026-8-25 16:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70142659&amp;ptid=2282975" target="_blank">Asukalangley33 发表于 2026-8-25 15:04</a>
+过退款时间了，场景黑的眼睛疼
+
+特效拉满，动态模糊 景深 炫光 胶片颗粒，什么都关了依旧没用</blockquote>
+篝火之间传送，交5-6个蛋然后领奖励就有了
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
