@@ -9139,3 +9139,35 @@ $20 / $50 / $120 -&gt; $22 / $55 / $132
 无人值守的长程任务肯定只能上下文压缩了，人就在旁边等的话我会在上下文300~400K左右就让写交接文档开新 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">卢克倒不至于无人值守……那还是定期交接就好
 
+
+*****
+
+####  qwased  
+##### 11196#       发表于 2026-8-26 01:08
+
+ 本帖最后由 qwased 于 2026-8-26 01:09 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70145204&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-26 01:02</a>
+卢克倒不至于无人值守……那还是定期交接就好</blockquote>
+上下文多了一句话就哐哐掉余额<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+顺便上面楼友说的pi vcc很好用，就是不知道怎么调压缩阈值
+
+
+*****
+
+####  Znesmoc  
+##### 11197#       发表于 2026-8-26 01:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还想着用ai整点音频相关的活，试了一下Openrouter里的谷歌和OPENAI的模型就是报错，直连就是区域锁，走代理就说违反服务协议
+
+还有啥能用的靠谱的中转站吗
+
+*****
+
+####  舞以  
+##### 11198#       发表于 2026-8-26 01:13
+
+我试了下dsh版的vcclike，看起来还行，也能自己调阈值，默认是0.5，我改成了0.8哈哈<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+傻卵sol的窗口太jb小了，这个月降级到5x，额度不能挥霍了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
