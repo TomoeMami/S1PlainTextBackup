@@ -8457,3 +8457,22 @@ ox一直断 要结束了吗
 
 —— 来自 OnePlus PJZ110, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  bartholo4  
+##### 11132#       发表于 2026-8-25 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70143138&amp;ptid=2275806" target="_blank">haiuhfuwah 发表于 2026-8-25 16:28</a>
+目前看来对于算力的需求可以说和电力一样是无限的。起码比现在的高3个数量级 ...</blockquote>
+算力是把能源变成了全球可贸易品
+
+*****
+
+####  xiaohanne  
+##### 11133#       发表于 2026-8-25 17:26
+
+<blockquote>haiuhfuwah 发表于 2026-8-25 16:28
+目前看来对于算力的需求可以说和电力一样是无限的。起码比现在的高3个数量级 ...</blockquote>
+不至于，对非码农来说，我觉得100刀plan给的token基本上够了。
+
