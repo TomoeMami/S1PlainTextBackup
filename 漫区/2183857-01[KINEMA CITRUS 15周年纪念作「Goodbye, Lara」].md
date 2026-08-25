@@ -1774,3 +1774,61 @@ Kota is also on his way to Okishima (trying to get there before the Witch) - at 
 
 我就知道是这种共斗的展开<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 444#         楼主| 发表于 2026-8-25 19:21
+
+<img src="https://p.sda1.dev/34/959e2632a74d93a712fbb9829e7e044d/HQPuKLYbQAEnqzo.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/c79a1d4d5dda9fba313cbcd1078c6fd0/HP_dwV1aEAAFToT.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/a038966cd511a92428f1b957e1f62f7e/HP_dwVta8AAF3mT.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/4894532f97f28404bda2d67d5f7dbad6/HP_dwVkbEAAGYrH.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/2711de69f68edc8bf06d636e88ccf221/HP_dwVua4AAKc67.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/d12c0cf625995540518939ce75fd0916/HQPwwCDaQAAG0ki.jpg" referrerpolicy="no-referrer">
+
+˚⊹⁺‧┈┈┈┈┈┈┈┈┈┈‧⁺ ⊹˚
+
+　  　   #さよならララ 
+
+　　応援イラストが到着！
+
+˚⊹⁺‧┈┈┈┈┈┈┈┈┈┈‧⁺ ⊹˚
+
+「さよならララ」放送を記念して、あかもくさん(
+
+@akmkmk3)よりイラストをお寄せいただきました🧜‍♀️
+
+爽やかで可愛らしいイラストをありがとうございます！
+
+「さよならララ」第8話、本日24時半より放送・配信開始です✨
+<img src="https://p.sda1.dev/34/cd58ace626a61f1479f3d8a09824c3c9/HQJ3_LpaIAAdOxJ.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/2eb08312861671d5673826d39a513a30/HQZXYrCbsAAmaDF.jpg" referrerpolicy="no-referrer">
+
+🐚⁺‧┈#さよならララ の雑誌情報┈‧⁺ 🫧˚
+
+8月31日(月)発売の「spoon.2Di　vol.137」にて、
+
+『さよならララ』【裏表紙】特集が掲載されます✨
+
+裏表紙は、キャラクターデザインの #谷紫織 さん描き下ろしのララ＆茉里＆ルカが登場します❣
+
+発売されましたら、ぜひお手に取っていただけると嬉しいです☺️
+<img src="https://p.sda1.dev/34/2c9147782feae094ab12c1c0d19f1745/HQedK4rbIAAgjKT.jpg" referrerpolicy="no-referrer">
+
+.˚🌃⁺‧┈┈┈
+
+　　　#さよならララ
+
+　 ララと茉里と過ごす四季
+
+　第2弾 夏ビジュアルを公開
+
+　　　　　　　　　　┈┈┈‧⁺🏮 ˚.
+
+涼しげで情緒あふれる浴衣姿に身を包んだ二人が、夏祭りの賑わいの中に佇む幻想的なビジュアル。
+
+まるで大切な夏の思い出のアルバムをめくるかのような一枚、ぜひ映像と合わせてお楽しみくださいませ。
+[https://youtu.be/6_d5cSBi8b0](https://youtu.be/6_d5cSBi8b0)
+<img src="https://p.sda1.dev/34/b360da503cc57b0810c2897fc0031427/HQjYlnkbQAAUhW9.jpg" referrerpolicy="no-referrer">
+
