@@ -8225,3 +8225,49 @@ ox alpha又是啥，为啥openrouter上token用量都第一了<img src="https://
 
 我直接拉的git项目编译打包的,结果拉取新版本后编译,之前做的插件各种报错,又开vscode用trae解决了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  当光停止  
+##### 11111#       发表于 2026-8-25 13:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70142138&amp;ptid=2275806" target="_blank">斯卡文分则能成 发表于 2026-8-25 13:17</a>
+
+ox alpha又是啥，为啥openrouter上token用量都第一了</blockquote>
+1. 推测是glm的多模态新模型
+
+2. 免费用
+
+*****
+
+####  passgan  
+##### 11112#       发表于 2026-8-25 13:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70142076&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-8-25 13:03</a>
+
+孙宇晨开的中转站居然可以白嫖v4f exp，速度还很快就是上下文比较小只能文爱 ...</blockquote>
+那是啥网站
+
+
+*****
+
+####  当光停止  
+##### 11113#       发表于 2026-8-25 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70142250&amp;ptid=2275806" target="_blank">passgan 发表于 2026-8-25 13:39</a>
+
+那是啥网站</blockquote>
+关键词“孙割的中转站”，有不少黑历史传言。
+
+*****
+
+####  bhunter  
+##### 11114#       发表于 2026-8-25 13:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70142235&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-8-25 13:36</a>
+
+1. 推测是glm的多模态新模型
+
+2. 免费用</blockquote>
+很慢。上午用opencode跑了下，感觉慢的无法接受。
+
