@@ -4197,3 +4197,21 @@ GameNetwork Test WindowOfficial Release DateGap (Days)<strong>Dark Souls II</str
 
 感觉正常的话，应该还有150天左右发售，能赶在2026年内的话估计会是在12月初？
 
+
+*****
+
+####  cscnake  
+##### 505#       发表于 2026-8-26 00:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70143644&amp;ptid=2250995" target="_blank">Piano-Forest 发表于 2026-8-25 17:49</a>
+
+宫崎英高新作《黄昏血族》采访 将“宫崎式趣味”发挥得淋漓尽致
+
+https://weibo.com/ttarticle/x/m/show#/id ...</blockquote><blockquote>——宫崎先生最近常玩什么在线游戏？有什么近期让您受到启发的作品吗？
+
+宫崎：
+
+关于游戏，我作为工作的一部分会玩很多作品。算是研究或了解趋势的用途。其中作为兴趣来玩的，最近的话是《卡片术士西普特》吧。真的是最近。</blockquote>
+
+惊了，居然还是卡召同好！
+

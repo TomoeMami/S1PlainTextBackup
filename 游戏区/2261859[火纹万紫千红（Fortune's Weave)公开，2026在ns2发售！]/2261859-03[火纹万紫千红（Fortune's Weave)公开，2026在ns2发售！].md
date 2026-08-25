@@ -746,3 +746,18 @@ BGM是系列主题曲的变奏，这作音乐水准有望成为系列之最。
 
 乌修拉这段战斗视频真的有点不忍直视，射箭和用剑的攻击动作都僵硬无比
 
+
+*****
+
+####  zzf111  
+##### 3025#       发表于 2026-8-25 23:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70138718&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-8-24 20:01</a>
+
+【キャラクター】アナトリア（CV：小笠原亜里沙）
+
+故郷の同朋を救うために戦う白妙の少女。
+
+その見た目か ...</blockquote>
+这什么超级杂揉的设定<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

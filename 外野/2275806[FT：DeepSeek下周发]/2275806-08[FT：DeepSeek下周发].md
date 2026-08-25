@@ -9028,3 +9028,24 @@ dsh的默认上下文压缩用的模型应该是当前模型，不过也有类�
 
 真是这样估计全世界的Spark要卖断货。
 
+
+*****
+
+####  qwased  
+##### 11186#       发表于 2026-8-26 00:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144869&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-8-25 23:43</a>
+今晚测了一下，用pi来接本地的模型qwen3.8，找到一个很不错的q4量化模型，跑起来特别顺。速度可以到60，70 ...</blockquote>
+你用的是哪个模型，apex吗
+我现在感觉有pi vcc这种压缩上下文的插件之后确实上下文长度需求低多了，反正难做的事情也不会用它<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  舞以  
+##### 11187#       发表于 2026-8-26 00:06
+
+codex又重置了？<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
