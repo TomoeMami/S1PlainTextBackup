@@ -509,3 +509,11 @@ IMG_8931.jpeg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">穿中国服装的老外都来了，这下刻板印象了
 
+
+*****
+
+####  会长辅佐  
+##### 3007#       发表于 2026-8-25 11:00
+
+<img src="https://p.sda1.dev/34/9912fa51328cb5a7691a0624cb099ccd/IMG_2EC5B50562CD86738E9A84669E1B9AC7.jpeg" referrerpolicy="no-referrer">精神冲击都来了
+

@@ -7856,3 +7856,30 @@ GPTplus的5小时额度要加回来了
 
 在开发阶段把需求和业务逻辑详尽写入文档作为归档，如果发现被拉了屎，就换个Agent让它对着文档重写，换Agent不管用就连AI也一起换。重写其实往往比擦屎更简单。
 
+
+*****
+
+####  tonyunreal  
+##### 11076#       发表于 2026-8-25 11:00
+
+<img src="https://p.sda1.dev/34/41940c94d8e9c2ca1066eafd209fc80a/il13489m2dlh1.jpeg" referrerpolicy="no-referrer">
+
+免费的力量
+
+*****
+
+####  neptunehs  
+##### 11077#       发表于 2026-8-25 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70140982&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-25 10:31</a>
+在开发阶段把需求和业务逻辑详尽写入文档作为归档，如果发现被拉了屎，就换个Agent让它对着文档重写，换Age ...</blockquote>
+我的问题是因为是逆向 我压根看不懂文档
+被拉屎了在我或ai决定重写前要耗费大量token排查
+
+昨天v4fv直接判断按照当前文档我的需求无法实现
+然后我让他尝试修复 他直接回退到某个版本重写 烧了我好几块钱token
+
+然后还修好了 中间这段就是我说的被拉屎的部分 正好是ox写的（
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
