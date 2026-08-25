@@ -1536,3 +1536,16 @@ bug多得令人发指，还闪退，等哪天修了再说吧
 打到井底双格力煞BOSS战，被虐的死去活来，这是不是就相当于当年血源的井底双鱼人啊，还都在井底 ...</blockquote>
 用盗贼，隐身可以让boss丢失目标，打这俩有奇效
 
+
+*****
+
+####  蒋公卖萌  
+##### 149#       发表于 2026-8-25 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70135019&amp;ptid=2282975" target="_blank">离魂仙 发表于 2026-8-24 09:53</a>
+
+图2你的位置正右方一个半圆凹槽就是壳群，有个裁决官之石
+
+图2正上方那个建筑上锁了，敲掉3个发光墓碑后开 ...</blockquote>
+BOSS是不是就是三只小怪共用一个血条啊，这也能算BOSS啊？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

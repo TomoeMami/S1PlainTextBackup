@@ -8292,3 +8292,37 @@ ox alpha又是啥，为啥openrouter上token用量都第一了</blockquote>
 AI犯蠢几乎99%的情形都是我自己需求没讲清楚，我只会反省自己，从来不骂AI。最关键的是，骂它要花我的钱啊 ...</blockquote>
 理想上司照进现实
 
+
+*****
+
+####  阿刚  
+##### 11117#       发表于 2026-8-25 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141578&amp;ptid=2275806" target="_blank">中国人 发表于 2026-8-25 11:48</a>
+
+有个疑问你们会在AI犯蠢的时候骂它吗……虽然我知道这样没意义，但有时就是血压高啊 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你换个方式想想，真是傻逼实习生你能放开了骂吗？你记得骂完让他闭嘴滚，不然不小心骂出个雷霆大思考还得少token
+
+
+*****
+
+####  xiaohanne  
+##### 11118#       发表于 2026-8-25 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70142076&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-8-25 13:03</a>
+
+孙宇晨开的中转站居然可以白嫖v4f exp，速度还很快就是上下文比较小只能文爱 ...</blockquote>
+你居然敢占孙割便宜……
+
+建议碰都不要碰。
+
+*****
+
+####  xiaohanne  
+##### 11119#       发表于 2026-8-25 14:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141578&amp;ptid=2275806" target="_blank">中国人 发表于 2026-8-25 11:48</a>
+
+有个疑问你们会在AI犯蠢的时候骂它吗……虽然我知道这样没意义，但有时就是血压高啊 ...</blockquote>
+不会，这时候调用一下grillme更有效。
+
