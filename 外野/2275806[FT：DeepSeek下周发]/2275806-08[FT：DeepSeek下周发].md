@@ -8424,3 +8424,11 @@ glm5.x是纯文本的，但是zcode里会自动调取识图插件来做事，周
 
 <img src="https://img.stage1st.com/forum/202608/25/161638hb6b440yk444jjte.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tillnight  
+##### 11128#       发表于 2026-8-25 16:25
+
+workbuddy是可以白嫖k3的。推广期福利。
+
