@@ -8897,3 +8897,13 @@ https://modelscope.cn/models/Qwen/Qwen3.8-Flash-Next
 哦，还真是。最近出了这个新模型，也不知道什么时候能普及到客户端上。只不过客户端上不是已经有一个可以 ...</blockquote>
 现在的识图模式模型就是v4f-vision-exp，区别是以前的识图模式不支持联网搜索，现在能用联网搜索了
 
+
+*****
+
+####  qwased  
+##### 11175#       发表于 2026-8-25 22:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144551&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-25 20:41</a>
+120BA6B，感觉是DGX Spark 快乐模啊</blockquote>
+小红书上有qwen团队的说不虚v4flash，感觉要真的那dgx价格又要再翻倍了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
