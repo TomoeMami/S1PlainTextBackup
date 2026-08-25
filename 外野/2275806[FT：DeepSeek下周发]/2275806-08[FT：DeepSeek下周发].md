@@ -9117,3 +9117,25 @@ $20 / $50 / $120 -&gt; $22 / $55 / $132
 
 给omp装了webui，如果再加上没涨价的flash0731，就是理想中的dsh了<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 11194#       发表于 2026-8-26 00:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144912&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-8-25 23:49</a>
+
+话说是上下文压缩还是让他自己做记录之后开新会话好点</blockquote>
+无人值守的长程任务肯定只能上下文压缩了，人就在旁边等的话我会在上下文300~400K左右就让写交接文档开新对话
+
+
+*****
+
+####  阿刚  
+##### 11195#       发表于 2026-8-26 01:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70145184&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-26 00:56</a>
+
+无人值守的长程任务肯定只能上下文压缩了，人就在旁边等的话我会在上下文300~400K左右就让写交接文档开新 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">卢克倒不至于无人值守……那还是定期交接就好
+
