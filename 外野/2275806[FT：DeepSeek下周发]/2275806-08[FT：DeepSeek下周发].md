@@ -9171,3 +9171,13 @@ $20 / $50 / $120 -&gt; $22 / $55 / $132
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  mintslime  
+##### 11199#       发表于 2026-8-26 04:20
+
+<blockquote>Znesmoc 发表于 2026-8-26 01:10
+还想着用ai整点音频相关的活，试了一下Openrouter里的谷歌和OPENAI的模型就是报错，直连就是区域锁，走代理 ...</blockquote>
+号脏了，换个新号走代理支付宝充钱试试，我的新号支付宝充目前还没事
+
