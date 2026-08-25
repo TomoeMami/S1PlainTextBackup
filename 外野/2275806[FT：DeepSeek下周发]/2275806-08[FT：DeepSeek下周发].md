@@ -8907,3 +8907,39 @@ https://modelscope.cn/models/Qwen/Qwen3.8-Flash-Next
 120BA6B，感觉是DGX Spark 快乐模啊</blockquote>
 小红书上有qwen团队的说不虚v4flash，感觉要真的那dgx价格又要再翻倍了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tonyunreal  
+##### 11176#       发表于 2026-8-25 23:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144500&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-25 20:33</a>
+dsh官方的上下文压缩是不是会调用flash模型啊
+
+我刚刚查了下我在下午的梁文峰时间花了米，好亏惹 ...</blockquote>
+联网搜索会按flash扣钱
+子代理默认开pro
+
+这两个坑要小心，用插件可以替换掉
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  RookieTnT  
+##### 11177#       发表于 2026-8-25 23:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123423&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-21 23:57</a>
+
+讲讲路子兄弟，适合拿自己大号嫖吗</blockquote>
+开个小号就行了. 闲鱼应该有卖的吧. 不行就去薅腾讯的hy3呗. 翻译不用那么高性能都行 😂
+
+*****
+
+####  舞以  
+##### 11178#       发表于 2026-8-25 23:23
+
+我让它自己查了下，发现是对话开始时是在中午的梁文谷用的flash，所以这个session里的默认模型就被设定了成了flash，后来我换sol干活的时候，它自动拉起来的子代理就会选择session的默认模型，也就是flash。🌚
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
