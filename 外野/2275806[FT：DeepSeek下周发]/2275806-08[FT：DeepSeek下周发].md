@@ -9097,3 +9097,23 @@ opencode go的grok在dsh会报web_search无效参数错，搜索配置其他都�
 也就是说，现在识图模式是v4f正式版水平，其它还是预览版？</blockquote>
 都更新了：三个模式分别是flash正式版、pro正式版和这个flash的多模态exp模型
 
+
+*****
+
+####  tonyunreal  
+##### 11192#       发表于 2026-8-26 00:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70138801&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-24 20:22</a>
+
+看红迪上说国外版Minimax Plan 8月25号要再次涨价？</blockquote>
+涨了10%
+
+$20 / $50 / $120 -&gt; $22 / $55 / $132
+
+*****
+
+####  qwased  
+##### 11193#       发表于 2026-8-26 00:44
+
+给omp装了webui，如果再加上没涨价的flash0731，就是理想中的dsh了<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
