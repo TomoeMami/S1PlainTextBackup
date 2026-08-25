@@ -8855,3 +8855,13 @@ https://modelscope.cn/models/Qwen/Qwen3.8-Flash-Next
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qwased  
+##### 11171#       发表于 2026-8-25 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144572&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-8-25 21:22</a>
+我嘞个去，客户端怎么又升级了？242了。最近7天，可以说一连升级了三次。所以，这是准备把最新的识图模型也 ...</blockquote>
+识图模式就是啊
+
