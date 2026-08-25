@@ -8349,3 +8349,30 @@ M3和V4FV写东西能力差不多  但是判断bug的能力V4FV强太多了 �
 结果过一天免费的回来了。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">说不定像我一样彻底污染账号再成功申诉就活了呢（不是）
 
+
+*****
+
+####  斯卡文分则能成  
+##### 11122#       发表于 2026-8-25 15:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70142235&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-8-25 13:36</a>
+1. 推测是glm的多模态新模型
+
+2. 免费用</blockquote>
+glm本身不就是多模态么，怎么又整了一个出来<img src="https://static.stage1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  舞以  
+##### 11123#       发表于 2026-8-25 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70142664&amp;ptid=2275806" target="_blank">斯卡文分则能成 发表于 2026-8-25 15:06</a>
+
+glm本身不就是多模态么，怎么又整了一个出来
+
+—— 来自 HUAWEI ALN-AL00, Android 12, 鹅球 v3.5.99 ...</blockquote>
+glm的主线模型5.x我记得是纯文本
+
