@@ -8631,3 +8631,39 @@ ox不错，一下午把几个老游戏的汉化跑的差不多了
 trae活该凉，agent能力差就不说了，前几个月折腾什么优速通收费简直离谱一开始连阶梯价位都没有，个人用户 ...</blockquote>
 trae才是最大方的，从前年到前不久一直都是免费用所有国产大模型的，只是没搞出名堂，现在大概率要被豆包吞并了
 
+
+*****
+
+####  舞以  
+##### 11150#       发表于 2026-8-25 17:59
+
+沃克巴蒂真是滕子一步好棋吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+大厂卷coding真没啥意思，优化好白领办公是真的对了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  蛋黄酱Release  
+##### 11151#       发表于 2026-8-25 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70143686&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-8-25 17:56</a>
+trae才是最大方的，从前年到前不久一直都是免费用所有国产大模型的，只是没搞出名堂，现在大概率要被豆包 ...</blockquote>
+免费的要排队，还时不时就会中断，极其影响心流
+
+*****
+
+####  catbone  
+##### 11152#       发表于 2026-8-25 17:59
+
+hy的问题是上下文太小了，导致跑复杂任务经常发生上下文压缩，**降低效率
+
+*****
+
+####  舞以  
+##### 11153#       发表于 2026-8-25 18:01
+
+Codex 272k上下文我以为已经很小了，hy3上下文多长啊，1m上下文不都开源了么<img src="https://static.stage1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
