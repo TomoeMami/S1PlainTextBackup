@@ -7932,3 +7932,41 @@ v4v模型权重ds不放了吗
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  copyliu  
+##### 11082#       发表于 2026-8-25 11:39
+
+ox似乎有点奇怪的问题, 有时候他会彻底没有思考....
+
+然后就大幅弱智了
+
+*****
+
+####  neptunehs  
+##### 11083#       发表于 2026-8-25 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141492&amp;ptid=2275806" target="_blank">copyliu 发表于 2026-8-25 11:39</a>
+ox似乎有点奇怪的问题, 有时候他会彻底没有思考....
+
+然后就大幅弱智了</blockquote>
+这个muse也会 因此我怀疑是opencode的问题
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  冤枉呐  
+##### 11084#       发表于 2026-8-25 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70140849&amp;ptid=2275806" target="_blank">UmarIbnLaAhad 发表于 2026-8-25 10:15</a>
+卧槽谷大善人牛逼，我给小号申诉成功复活了，中国电话小号+印度羊毛活动+日本ip居然还能活，斯巴拉西 ...</blockquote>
+请教你的ip是家宽还是机房
+我现在打开都能打开，就是不能升级
+很奇怪
+查ip都是机房，查Google条款地区都是北美
+是不是还得整个年龄认证
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
