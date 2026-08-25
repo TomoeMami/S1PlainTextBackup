@@ -8589,3 +8589,45 @@ trae活该凉，agent能力差就不说了，前几个月折腾什么优速通�
 朋友们你们除了官方api，都用的哪些平台呢？感觉一看评论就是哪哪的plan都不行，要么额度不透明不如本家， ...</blockquote>
 基元，现在基元咸鱼能日鬼一个68余额的小号，还可以，就是会超时时间太短，会断连
 
+
+*****
+
+####  Promeus  
+##### 11145#       发表于 2026-8-25 17:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70143610&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-25 17:43</a>
+trae活该凉，agent能力差就不说了，前几个月折腾什么优速通收费简直离谱一开始连阶梯价位都没有，个人用户 ...</blockquote>
+浑元的基础是hy3进入日常可用线啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十点半  
+##### 11146#       发表于 2026-8-25 17:55
+
+trae相当大的问题就是不知道怎么读，会读别人也听不懂，我之前用trae的时候和只能和同事说是用字节家的，同事也会以为是豆包。
+
+所以目前这个策略可能还真是对的。
+
+*****
+
+####  Promeus  
+##### 11147#       发表于 2026-8-25 17:56
+
+相对而言hy4如果以灰测的实力和价格不变基本就可以在办公这边宣布胜利了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Freewolf  
+##### 11148#       发表于 2026-8-25 17:56
+
+ox不错，一下午把几个老游戏的汉化跑的差不多了
+
+*****
+
+####  很久就在那边l  
+##### 11149#       发表于 2026-8-25 17:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70143610&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-25 17:43</a>
+trae活该凉，agent能力差就不说了，前几个月折腾什么优速通收费简直离谱一开始连阶梯价位都没有，个人用户 ...</blockquote>
+trae才是最大方的，从前年到前不久一直都是免费用所有国产大模型的，只是没搞出名堂，现在大概率要被豆包吞并了
+
