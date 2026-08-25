@@ -447,3 +447,36 @@ IMG_8931.jpeg
 
 赛国，是赛力斯么？这位一眼看去贵族骑士样，但是穿着打扮又特别中式。
 
+
+*****
+
+####  darkprince120  
+##### 3001#       发表于 2026-8-25 10:27
+
+话说咒术师是什么统帅骑士么？
+
+看了新娘和机娘的人物介绍，怎么咒术师职业用什么武器的都有。
+
+*****
+
+####  cox  
+##### 3002#       发表于 2026-8-25 10:27
+
+晚上应该轮到乌苏拉了吧，我的蓝毛。。。<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  freedom12  
+##### 3003#       发表于 2026-8-25 10:30
+
+<img src="https://img.stage1st.com/forum/202608/25/103038u3uk4u46kbkblaz4.png" referrerpolicy="no-referrer">
+
+<strong>截图20260825103027.png</strong> (47.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-25 10:30 上传
+
+官方翻译是齐国
+
