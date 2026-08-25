@@ -7921,3 +7921,14 @@ v4v模型权重ds不放了吗
 
 我觉得是2<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  neptunehs  
+##### 11081#       发表于 2026-8-25 11:31
+
+不过ai还是屌 动画骨骼文件转npz这种在以前匪夷所思闻所未闻的事情 我问了ox 他说行 然后ox做了一半 ds做了一半排除了几个关键的屎 就搞定了
+真的匪夷所思
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
