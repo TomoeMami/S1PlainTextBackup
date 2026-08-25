@@ -8529,3 +8529,63 @@ ox一直断 要结束了吗
 ps：此方 ...</blockquote>
 我琢磨了一下，你这个方案其实就是cherry studio那种只要对话达到一定次数就把最前面的对话删掉吧
 
+
+*****
+
+####  qwased  
+##### 11139#       发表于 2026-8-25 17:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70143580&amp;ptid=2275806" target="_blank">千千千千鸟 发表于 2026-8-25 17:36</a>
+
+我今天听一个播客，大概是说tokens价格每下降10%或者大模型能力上升多少多少，需求会大幅增长好多倍blabla ...</blockquote>
+就是flash0731涨价之前的生态位，智力不错，价格极其便宜，这个生态位的token需求还有很大增长空间
+
+旗舰模型感觉需求就那样了，对于大众来说都是高射炮打蚊子而且还要自己出钱<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  xiaohanne  
+##### 11140#       发表于 2026-8-25 17:40
+
+<blockquote>相见恨晚 发表于 2026-8-25 16:31
+话说现在traesolocn有九千积分要在九月前过期了，我还不会用插件技能，主要用来制作小程序和后端和后台管理 ...</blockquote>
+有k3吗？有就狠狠烧
+
+
+*****
+
+####  来都来了  
+##### 11141#       发表于 2026-8-25 17:42
+
+看看8月初DS4被狂蹬就知道了，当时B站上有大量的人分享自己的作品，只要你的价格够低，能力够强，自然会有大量的新用户涌入的。这些用户固然绝大多数人做出来都只是些玩具，但因为基数够大，肯定会有人用AI创作出真正有价值的东西，这正是发展AI的意义。
+
+*****
+
+####  蛋黄酱Release  
+##### 11142#       发表于 2026-8-25 17:43
+
+trae活该凉，agent能力差就不说了，前几个月折腾什么优速通收费简直离谱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一开始连阶梯价位都没有，个人用户一上来就收一千
+自研的豆包大模型也菜的不行，混元虽然也菜但是人家真砸钱免费推广
+
+*****
+
+####  neptunehs  
+##### 11143#       发表于 2026-8-25 17:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70143609&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-25 17:42</a>
+看看8月初DS4被狂蹬就知道了，当时B站上有大量的人分享自己的作品，只要你的价格够低，能力够强，自然会有 ...</blockquote>
+所以我还是希望ds没有变质 黄金时代并不是一去不复返只是缺卡
+但愿吧
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  8008  
+##### 11144#       发表于 2026-8-25 17:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70133626&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-8-23 23:48</a>
+
+朋友们你们除了官方api，都用的哪些平台呢？感觉一看评论就是哪哪的plan都不行，要么额度不透明不如本家， ...</blockquote>
+基元，现在基元咸鱼能日鬼一个68余额的小号，还可以，就是会超时时间太短，会断连
+
