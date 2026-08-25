@@ -489,3 +489,23 @@ IMG_8931.jpeg
 这个设定怎么既视感那么强…
 亚尔斯兰战记的达龙是吧
 
+
+*****
+
+####  mai6696  
+##### 3005#       发表于 2026-8-25 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70140971&amp;ptid=2261859" target="_blank">freedom12 发表于 2026-8-25 10:30</a>
+
+官方翻译是齐国（误
+
+是斋国</blockquote>
+有没有可能这个字是“斋”？
+
+*****
+
+####  5ew47  
+##### 3006#       发表于 2026-8-25 10:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">穿中国服装的老外都来了，这下刻板印象了
+
