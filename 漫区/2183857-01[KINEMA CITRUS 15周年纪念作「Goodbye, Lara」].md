@@ -1752,3 +1752,17 @@ op里面的人物也基本上回收完了
 
 大概率是男主那边还需要笔墨 或者没进入状态吧
 
+
+*****
+
+####  蒜人  
+##### 442#       发表于 2026-8-25 18:43
+
+Lara confessed to Luca, but Luca's answer wasnt the answer Lara was looking for and Lara got angry cus Luca didnt understand what true love actually is, the fish thing in the sky tried to eat him but Lara pushed Luca away
+
+During this, Lisa went to get Lara (i think she knew this was gonna happen) Kota went to Lara's house to kill/capture the Witch (i think?)
+
+The sky then turned a different colour, the Witch escaped from the house and went towards Okishima, she has a new form, looks like sumth out of Spirited Away or Howl's Moving Castle lol, pretty cool 
+
+Kota is also on his way to Okishima (trying to get there before the Witch) - at the end of the ep, the shell started to move 情报哥来了<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

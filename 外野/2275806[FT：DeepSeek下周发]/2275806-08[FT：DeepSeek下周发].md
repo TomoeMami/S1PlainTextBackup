@@ -8719,3 +8719,13 @@ pi-vcc特别好用，无llm调用的结构化快速压缩，还有让ai能搜整
 
 TRAE就读作tray，我问它自己的
 
+
+*****
+
+####  霓虹灯鱼  
+##### 11159#       发表于 2026-8-25 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70142770&amp;ptid=2275806" target="_blank">当光停止 发表于 2026-8-25 15:29</a>
+glm此前都是纯文本模型。</blockquote>
+在GLM-4之后直到GLM-5，几乎每一代GLM都包括对应的视觉语言模型：GLM-4V、GLM-4.1V、GLM-4.5V、GLM-4.6V、GLM-5V-Turbo
+

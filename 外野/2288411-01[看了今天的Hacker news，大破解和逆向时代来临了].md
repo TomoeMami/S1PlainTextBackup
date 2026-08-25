@@ -1023,3 +1023,30 @@ gpt和克劳德得用特制破甲词
 
 啥时候开始批量破解现世代主机了，我就承认是大破解时代
 
+
+*****
+
+####  stanzgy  
+##### 94#       发表于 2026-8-25 18:39
+
+能让人物理接触到的硬件设备，不搞加密和类似secure boot的机制，默认等于可被随便破解修改
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Jet.Black  
+##### 95#       发表于 2026-8-25 18:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70136131&amp;ptid=2288411" target="_blank">螺旋的小夜曲 发表于 2026-8-24 12:23</a>
+
+固件对于接入完全不设限才是问题关键吧，只要握手成功随便你改。从最常见的PLC，再到集成电路板，我就没见 ...</blockquote>
+PLC在售主流产品都加密了吧，太老的型号不懂。
+
+*****
+
+####  关二爷  
+##### 96#       发表于 2026-8-25 18:41
+
+我还以为d加密轻松破了
+
