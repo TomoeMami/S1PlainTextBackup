@@ -7896,3 +7896,28 @@ GPTplus的5小时额度要加回来了
 被拉屎了在我或ai决定重写前要耗费大量token排查</blockquote>
 智力不行的模型就这样的，我用gemini3.7flash的体验相同，如果最开始那个版本就有问题那不管怎么返工也是解决不了的，而用DS flash的时候就不会这样，ds不管flash还是pro给的大框架至少是可行的
 
+
+*****
+
+####  schneehertz  
+##### 11079#       发表于 2026-8-25 11:21
+
+v4v模型权重ds不放了吗
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  cscbzcbz  
+##### 11080#       发表于 2026-8-25 11:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141375&amp;ptid=2275806" target="_blank">schneehertz 发表于 2026-8-25 11:21</a>
+v4v模型权重ds不放了吗
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, 鹅球 v4.0-alpha</blockquote>
+可能的原因：
+1 还是试验模型，等正式版放
+2 忘记了
+
+我觉得是2<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
