@@ -8029,3 +8029,42 @@ ox似乎有点奇怪的问题, 有时候他会彻底没有思考....
 
 国算的白天又卡得要死了。这吊平台要不是我套餐还剩一半，我都不想用了。之前 qwen 3.8 max 还不会特别卡的，现在全部卡得要死
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 11091#       发表于 2026-8-25 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141512&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-25 11:41</a>
+ 请教你的ip是家宽还是机房 我现在打开都能打开，就是不能升级 很奇怪</blockquote>
+就是普通机场，机房吧
+这个真是玄学，我第一天晚上被风控验证第二天就寄了，干脆gpt写了个中文申诉提交居然活了，属于触底反弹了，用一天赚一天<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛋黄酱Release  
+##### 11092#       发表于 2026-8-25 11:58
+
+雷达站上v4p的评分怎么越来越低了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 11093#       发表于 2026-8-25 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141630&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-25 11:55</a>
+
+国算的白天又卡得要死了。这吊平台要不是我套餐还剩一半，我都不想用了。之前 qwen 3.8 max 还不会特别卡的 ...</blockquote>
+
+我为啥流畅的，还是90tok/s
+
+首token 10s，慢了一点，还能忍
+
+
+*****
+
+####  来都来了  
+##### 11094#       发表于 2026-8-25 12:04
+
+AI犯蠢几乎99%的情形都是我自己需求没讲清楚，我只会反省自己，从来不骂AI。
+
