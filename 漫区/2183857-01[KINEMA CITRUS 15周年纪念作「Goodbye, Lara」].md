@@ -1766,3 +1766,11 @@ The sky then turned a different colour, the Witch escaped from the house and wen
 
 Kota is also on his way to Okishima (trying to get there before the Witch) - at the end of the ep, the shell started to move 情报哥来了<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  坐看风起云涌  
+##### 443#       发表于 2026-8-25 18:50
+
+我就知道是这种共斗的展开<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

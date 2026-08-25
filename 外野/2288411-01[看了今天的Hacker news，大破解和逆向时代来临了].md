@@ -1050,3 +1050,46 @@ PLC在售主流产品都加密了吧，太老的型号不懂。
 
 我还以为d加密轻松破了
 
+
+*****
+
+####  谎称  
+##### 97#       发表于 2026-8-25 18:49
+
+越来越觉得主世界距离疑犯追踪的世界就差一个觉醒ai了……
+
+现在大模型的能力，跟片子里演的越来越像了……
+
+*****
+
+####  雪地白狼  
+##### 98#       发表于 2026-8-25 18:50
+
+有许多api中转站被墙了，原因是有人拿破甲的ai去攻击网站。
+
+不知道在前端加个提示词告诉ai别来攻击有没有用<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  查克海耶斯  
+##### 99#       发表于 2026-8-25 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70138442&amp;ptid=2288411" target="_blank">yigua 发表于 2026-8-24 19:04</a>
+
+固件要做全套的security保护异常复杂，需要从芯片底层架构一直到固件更新流程的安全认证一整套过程。
+
+之 ...</blockquote>
+可信：我要发达了！
+
+*****
+
+####  dear81  
+##### 100#       发表于 2026-8-25 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70135821&amp;ptid=2288411" target="_blank">很久就在那边l 发表于 2026-8-24 11:40</a>
+高性能无道德限制的大模型普及，小公司和小开发者以后真没法玩了，已经看到好几个用grok或者deepseek破解网 ...</blockquote>
+这东西不是坏事
+
+现在各个网站才是最没底线的，用免费资源卖钱，举报原作者达到垄断的事情还少么
+
