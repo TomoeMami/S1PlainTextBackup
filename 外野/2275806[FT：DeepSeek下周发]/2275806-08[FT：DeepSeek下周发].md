@@ -7754,3 +7754,11 @@ ICP备案号待更新
 
 很早识图就在官网和APP上有测试了，现在应该是训练完了正好端上来了，和OX应该没啥关系。倒不如说智普(如果确定是他的话)看到flash的成功，也来参合一下高性价比这个市场弄了个小一些的模型可能性还大一些
 
+
+*****
+
+####  love4aids  
+##### 11066#       发表于 2026-8-25 09:22
+
+gptplus现在额度完全不够登，考虑是5*差不多了，或者再开一个号<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

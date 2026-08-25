@@ -370,3 +370,19 @@ IMG_8931.jpeg
 
 这四个人唯独白发鬼没给战斗视频演示，我怀疑是不是没办法入队。
 
+
+*****
+
+####  freedom12  
+##### 2993#       发表于 2026-8-25 09:16
+
+<img src="https://img.stage1st.com/forum/202608/25/091617lj881k1ydmykkes4.png" referrerpolicy="no-referrer">
+
+<strong>截图20260825091441.png</strong> (5.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-25 09:16 上传
+
+玻璃魔法
+
