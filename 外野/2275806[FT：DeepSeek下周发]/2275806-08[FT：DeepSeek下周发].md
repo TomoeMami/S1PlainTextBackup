@@ -8191,3 +8191,13 @@ cmp 170hx8g解锁64g，现在闲鱼上带水冷已经10k了。
 雷达站上v4p的评分怎么越来越低了</blockquote>
 因为这种东西是不靠谱的。很简单。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  overflowal  
+##### 11107#       发表于 2026-8-25 12:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141821&amp;ptid=2275806" target="_blank">GJRstone 发表于 2026-8-25 12:22</a>
+看人说qwen3.8 27B的本地部署，是不是单个专家（单个稠密超人）目前测试的智力上限就是20B的水平？deepseek ...</blockquote>
+别望文生义了，都知道ai了你不如去问下MoE里的E到底是什么东西。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
