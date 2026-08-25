@@ -7806,3 +7806,18 @@ GPTplus的5小时额度要加回来了
 
 朝三暮四耍猴呢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LeoDT  
+##### 11071#       发表于 2026-8-25 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70139415&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-24 22:44</a>
+
+我发现gpt真的特别保守，典型的就是sha256乱用。
+
+用它做规划还是必须得自己有点想法，不然很容易被牵着鼻子 ...</blockquote>
+擦了两天屁股了还没擦完，这都是些什么屎。
+
+试用了一下小有名气的ponytail，看上去效果挺不错的，如果不小心被sol喂了屎可以试试。
+
