@@ -8833,3 +8833,15 @@ dsh官方的上下文压缩是不是会调用flash模型啊<img src="https://sta
 
 我刚刚查了下我在下午的梁文峰时间花了米，好亏惹
 
+
+*****
+
+####  startraveller  
+##### 11169#       发表于 2026-8-25 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144153&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-25 19:30</a>
+https://modelscope.cn/models/Qwen/Qwen3.8-Flash-Next
+
+还是千问团队爽快，千问4架构新模型直接发下载（ ...</blockquote>
+120BA6B，感觉是DGX Spark 快乐模啊
+
