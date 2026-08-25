@@ -1526,3 +1526,13 @@ bug多得令人发指，还闪退，等哪天修了再说吧
 
 打到井底双格力煞BOSS战，被虐的死去活来，这是不是就相当于当年血源的井底双鱼人啊，还都在井底<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DawnGuardian  
+##### 148#       发表于 2026-8-25 14:10
+
+<blockquote>蒋公卖萌 发表于 2026-8-25 14:02
+打到井底双格力煞BOSS战，被虐的死去活来，这是不是就相当于当年血源的井底双鱼人啊，还都在井底 ...</blockquote>
+用盗贼，隐身可以让boss丢失目标，打这俩有奇效
+

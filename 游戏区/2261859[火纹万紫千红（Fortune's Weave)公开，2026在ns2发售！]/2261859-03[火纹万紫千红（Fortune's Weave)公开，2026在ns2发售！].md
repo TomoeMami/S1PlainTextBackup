@@ -622,3 +622,11 @@ IMG_8931.jpeg
 
 不过和山猪大爷倒是更相似无论是偏暗淡的金发，还是灰色的瞳孔
 
+
+*****
+
+####  karastar  
+##### 3013#       发表于 2026-8-25 14:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这作有日本角色吗
+
