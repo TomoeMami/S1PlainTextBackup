@@ -8796,3 +8796,18 @@ https://modelscope.cn/models/Qwen/Qwen3.8-Flash-Next
 还是千问团队爽快，千问4架构新模型直接发下载（ ...</blockquote>
 qwen4要出来了？国模太卷了
 
+
+*****
+
+####  iken  
+##### 11166#       发表于 2026-8-25 20:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70139615&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-24 23:29</a>
+
+nsfw还是得grok
+
+https://ofox.io/r/2ta382
+
+x-ai/grok-4.1-fast模型超便宜</blockquote>
+opencode go的grok在dsh会报web_search无效参数错，搜索配置其他都不行，这个的在dsh能用吗？
+
