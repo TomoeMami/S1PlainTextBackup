@@ -7836,3 +7836,13 @@ GPTplus的5小时额度要加回来了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卧槽谷大善人牛逼，我给小号申诉成功复活了，中国电话小号+印度羊毛活动+日本ip居然还能活，斯巴拉西
 
+
+*****
+
+####  c月光咖啡  
+##### 11074#       发表于 2026-8-25 10:21
+
+我感觉超算把flash pre的小霸王拆了装到0731上了，上周0731根本没法用我只能用pre，这周反过来了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99-debug
+
