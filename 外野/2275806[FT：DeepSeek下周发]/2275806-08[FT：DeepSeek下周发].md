@@ -8281,3 +8281,14 @@ ox alpha又是啥，为啥openrouter上token用量都第一了</blockquote>
 很慢。上午用opencode跑了下，感觉慢的无法接受。</blockquote>
 晚上很快，今天白天不行了
 
+
+*****
+
+####  尼曼兔  
+##### 11116#       发表于 2026-8-25 13:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141703&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-25 12:04</a>
+
+AI犯蠢几乎99%的情形都是我自己需求没讲清楚，我只会反省自己，从来不骂AI。最关键的是，骂它要花我的钱啊 ...</blockquote>
+理想上司照进现实
+
