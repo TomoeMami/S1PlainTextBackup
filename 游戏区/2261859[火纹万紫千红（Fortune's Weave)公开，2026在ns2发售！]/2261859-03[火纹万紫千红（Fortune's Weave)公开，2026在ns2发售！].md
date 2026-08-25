@@ -630,3 +630,11 @@ IMG_8931.jpeg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这作有日本角色吗
 
+
+*****
+
+####  406  
+##### 3014#       发表于 2026-8-25 14:52
+
+东方猪直接跟无双猪对比就行了，发型太像了。杰拉尔特贴上来就有点意义不明了
+
