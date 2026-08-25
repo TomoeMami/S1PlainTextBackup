@@ -8943,3 +8943,48 @@ dsh官方的上下文压缩是不是会调用flash模型啊
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  zy450  
+##### 11179#       发表于 2026-8-25 23:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70143804&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-8-25 18:27</a>
+
+pi-vcc特别好用，无llm调用的结构化快速压缩，还有让ai能搜整个上下文的回忆功能 ...</blockquote>
+感谢推荐，明天试试
+
+*****
+
+####  RookieTnT  
+##### 11180#       发表于 2026-8-25 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144500&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-25 20:33</a>
+
+dsh官方的上下文压缩是不是会调用flash模型啊
+
+我刚刚查了下我在下午的梁文峰时间花了米，好亏惹 ...</blockquote>
+现在还有harness上下文压缩不用llm吗?
+
+*****
+
+####  qwased  
+##### 11181#       发表于 2026-8-25 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144794&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-8-25 23:25</a>
+现在还有harness上下文压缩不用llm吗?</blockquote>
+上面说的pi vcc，我在接qwen3.8测试，可以的话72k上下文 apen mini量化就很可用了，这玩意差不多等于q5s量化了
+
+
+*****
+
+####  舞以  
+##### 11182#       发表于 2026-8-25 23:30
+
+ 本帖最后由 舞以 于 2026-8-25 23:33 编辑 
+
+dsh的默认上下文压缩用的模型应该是当前模型，不过也有类似pi-vcc的插件了，可以试试
+[https://github.com/TsFreddie/dsh-compaction-instant](https://github.com/TsFreddie/dsh-compaction-instant)
+
+这是gpt帮我找到的，有需要的漏油可以看看
+
