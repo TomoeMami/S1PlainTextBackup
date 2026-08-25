@@ -8334,3 +8334,18 @@ AI犯蠢几乎99%的情形都是我自己需求没讲清楚，我只会反省自
 
 M3和V4FV写东西能力差不多  但是判断bug的能力V4FV强太多了 智商碾压了
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 11121#       发表于 2026-8-25 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141771&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-25 12:15</a>
+
+突然免费也没有了
+
+我就绝望了
+
+结果过一天免费的回来了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">说不定像我一样彻底污染账号再成功申诉就活了呢（不是）
+
