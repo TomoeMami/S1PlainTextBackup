@@ -8376,3 +8376,24 @@ glm本身不就是多模态么，怎么又整了一个出来
 —— 来自 HUAWEI ALN-AL00, Android 12, 鹅球 v3.5.99 ...</blockquote>
 glm的主线模型5.x我记得是纯文本
 
+
+*****
+
+####  当光停止  
+##### 11124#       发表于 2026-8-25 15:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70142664&amp;ptid=2275806" target="_blank">斯卡文分则能成 发表于 2026-8-25 15:06</a>
+
+glm本身不就是多模态么，怎么又整了一个出来
+
+—— 来自 HUAWEI ALN-AL00, Android 12, 鹅球 v3.5.99 ...</blockquote>
+glm此前都是纯文本模型。
+
+
+*****
+
+####  龙骑士尹志平  
+##### 11125#       发表于 2026-8-25 15:32
+
+glm5.x是纯文本的，但是zcode里会自动调取识图插件来做事，周末用了送的一亿token，用起来挺好的，比v4fv、gemini之类的都好，就是贵。
+
