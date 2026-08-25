@@ -8667,3 +8667,39 @@ Codex 272k上下文我以为已经很小了，hy3上下文多长啊，1m上下�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  GJRstone  
+##### 11154#       发表于 2026-8-25 18:08
+
+trae的优势就是很简单的不用翻墙不用连github啊，而且比较早的推出了vs code插件用作代码补全。
+
+你不能因为人家难掉头说人家跟不上最新的范式就是菜吧。
+
+*****
+
+####  qwased  
+##### 11155#       发表于 2026-8-25 18:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137836&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-8-24 17:18</a>
+
+4090，24GB 显存跑通Qwen3.8 27B 大模型 —— 一套通用的无限任务长度，本地推理“全家桶”方案，
+
+ps：此方 ...</blockquote>
+[https://github.com/letta-ai/letta-code](https://github.com/letta-ai/letta-code)
+
+我跟哈基米聊完他说这个项目已经完美实现了你的所有需求<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 11156#       发表于 2026-8-25 18:12
+
+阿里为了抢字节生意给公司塞了巨量的免费额度
+蹬了一天3.8max的感想是这玩意真慢啊。。。。。。
+虽然质量看起来不错但是效率有点太低了
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
