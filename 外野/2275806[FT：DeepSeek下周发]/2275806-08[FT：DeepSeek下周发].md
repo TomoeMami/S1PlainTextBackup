@@ -9009,3 +9009,22 @@ dsh的默认上下文压缩用的模型应该是当前模型，不过也有类�
 由手机上传
 2026-8-25 23:41 上传
 
+
+*****
+
+####  阿刚  
+##### 11184#       发表于 2026-8-25 23:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">话说是上下文压缩还是让他自己做记录之后开新会话好点
+
+*****
+
+####  startraveller  
+##### 11185#       发表于 2026-8-25 23:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144720&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-25 22:49</a>
+小红书上有qwen团队的说不虚v4flash，感觉要真的那dgx价格又要再翻倍了</blockquote>
+125B NVFP4 + 51B n-gram 估计就80G左右，激活6B不吃内存带宽，如果能加个DFlash 2说不定单Spark能飙到80tps +。 
+
+真是这样估计全世界的Spark要卖断货。
+

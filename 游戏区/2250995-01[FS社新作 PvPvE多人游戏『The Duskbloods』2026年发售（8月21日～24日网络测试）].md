@@ -4186,3 +4186,14 @@ fs本来期待的结 ...</blockquote>
 宫崎英高新作《黄昏血族》采访 将“宫崎式趣味”发挥得淋漓尽致
 [https://weibo.com/ttarticle/x/m/show#/id=2309405334287561130057](https://weibo.com/ttarticle/x/m/show#/id=2309405334287561130057)
 
+
+*****
+
+####  cscnake  
+##### 504#       发表于 2026-8-25 23:44
+
+我虽然手残但是玩得挺开心的，期待正式版！顺便贴一下FS之前几作有网络测试的游戏到正式发售时的间隔：
+GameNetwork Test WindowOfficial Release DateGap (Days)<strong>Dark Souls II</strong>October 2013March 11, 2014<strong>~150 days</strong><strong>Bloodborne</strong>October 2014March 24, 2015<strong>~165 days</strong><strong>Dark Souls III</strong>October 16–18, 2015April 12, 2016 (Global)<strong>177 days</strong><strong>Dark Souls Remastered (Switch)</strong>September 21–23, 2018October 19, 2018<strong>26 days</strong><strong>Elden Ring</strong>November 12–15, 2021February 25, 2022<strong>102 days</strong><strong>Elden Ring: Nightreign</strong>February 2025May 30, 2025<strong>~105 days</strong>
+
+感觉正常的话，应该还有150天左右发售，能赶在2026年内的话估计会是在12月初？
+
