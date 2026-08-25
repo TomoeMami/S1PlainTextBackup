@@ -8068,3 +8068,64 @@ ox似乎有点奇怪的问题, 有时候他会彻底没有思考....
 
 AI犯蠢几乎99%的情形都是我自己需求没讲清楚，我只会反省自己，从来不骂AI。
 
+
+*****
+
+####  crow_wine  
+##### 11095#       发表于 2026-8-25 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141663&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-25 11:58</a>
+
+我为啥流畅的，还是90tok/s
+
+首token 10s，慢了一点，还能忍</blockquote>
+我发现了，这个平台一天一个样的，昨天要用Anthropic，今天要用OpenAI，前天要用OpenAI Responses。蹬完套餐走人了，心累
+
+*****
+
+####  neptunehs  
+##### 11096#       发表于 2026-8-25 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141578&amp;ptid=2275806" target="_blank">中国人 发表于 2026-8-25 11:48</a>
+有个疑问你们会在AI犯蠢的时候骂它吗……虽然我知道这样没意义，但有时就是血压高啊 ...</blockquote>
+骂 貌似骂了之后会比较彻查问题在哪 而不是相信之前的都是对的
+就是浪费token
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  当光停止  
+##### 11097#       发表于 2026-8-25 12:10
+
+cmp 170hx8g解锁64g，现在闲鱼上带水冷已经10k了。
+唉，这市场啊
+
+——来自 NX789J 上的 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  空き地卯木  
+##### 11098#       发表于 2026-8-25 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141721&amp;ptid=2275806" target="_blank">crow_wine 发表于 2026-8-25 12:06</a>
+我发现了，这个平台一天一个样的，昨天要用Anthropic，今天要用OpenAI，前天要用OpenAI Responses。蹬完 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我说怎么蹬着蹬着又开始卡飞了 原来是协议乱飞
+
+*****
+
+####  冤枉呐  
+##### 11099#       发表于 2026-8-25 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141648&amp;ptid=2275806" target="_blank">UmarIbnLaAhad 发表于 2026-8-25 11:56</a>
+就是普通机场，机房吧
+这个真是玄学，我第一天晚上被风控验证第二天就寄了，干脆gpt写了个中文申诉提交居 ...</blockquote>
+突然免费也没有了
+我就绝望了
+结果过一天免费的回来了。
+我心说那可以试试看学生认证（搞了个美国社区大学的）
+哎，点升级不行
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
