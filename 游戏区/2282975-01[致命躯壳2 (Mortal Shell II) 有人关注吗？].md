@@ -1597,3 +1597,24 @@ BOSS是不是就是三只小怪共用一个血条啊，这也能算BOSS啊？<im
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Asukalangley33  
+##### 153#       发表于 2026-8-25 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70143334&amp;ptid=2282975" target="_blank">我就再氪一单 发表于 2026-8-25 16:56</a>
+
+篝火之间传送，交5-6个蛋然后领奖励就有了
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, 鹅球 v3.5.99 ...</blockquote>
+打完那个树林里开轮椅喷火的BOSS了
+
+试试看能不能用眼睛接受不了退款<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+退不了的话，后面补丁没改善，开个风大师过一遍算了
+
+这真是这么些年第一个玩着眼睛特别不舒服的游戏
+
+FF16闪光灯我都还好
+

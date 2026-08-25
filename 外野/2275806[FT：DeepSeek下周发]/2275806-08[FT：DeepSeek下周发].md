@@ -8703,3 +8703,19 @@ ps：此方 ...</blockquote>
 
 — from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  scikirbypoke  
+##### 11157#       发表于 2026-8-25 18:27
+
+pi-vcc特别好用，无llm调用的结构化快速压缩，还有让ai能搜整个上下文的回忆功能
+
+
+*****
+
+####  KylianMbappe  
+##### 11158#       发表于 2026-8-25 18:33
+
+TRAE就读作tray，我问它自己的
+
