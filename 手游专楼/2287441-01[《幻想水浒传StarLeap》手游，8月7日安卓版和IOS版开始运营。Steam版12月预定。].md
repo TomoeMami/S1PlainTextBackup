@@ -22,3 +22,13 @@
 
 明天的池子里有个角色的奥义动画是我负责的，<img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">希望能抽到。
 
+
+*****
+
+####  琉歌  
+##### 65#       发表于 2026-8-25 19:41
+
+好好好，主线打完长草好多天了，养成又卡得死<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 來自 realme RMX5200, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

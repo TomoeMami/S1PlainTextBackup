@@ -8739,3 +8739,36 @@ glm此前都是纯文本模型。</blockquote>
 
 还是千问团队爽快，千问4架构新模型直接发下载（明晚11点开放）
 
+
+*****
+
+####  goranger  
+##### 11161#       发表于 2026-8-25 19:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70143698&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-25 17:59</a>
+沃克巴蒂真是滕子一步好棋吧
+大厂卷coding真没啥意思，优化好白领办公是真的对了</blockquote>
+workbuddy不支持linux神器不
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  catbone  
+##### 11162#       发表于 2026-8-25 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70143711&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-25 18:01</a>
+
+Codex 272k上下文我以为已经很小了，hy3上下文多长啊，1m上下文不都开源了么
+
+论坛助手,iPhone ...</blockquote>
+256k，实际可用192k
+
+
+*****
+
+####  tillnight  
+##### 11163#       发表于 2026-8-25 19:44
+
+hy3毕竟是对标上一代模型的，hy4应该是原生支持1m的。但是给不给你用是另一回事，从workbuddy现在其他模型的上下文要加价看，估计也是对标gpt，想开长上下文就用量翻倍。
+
