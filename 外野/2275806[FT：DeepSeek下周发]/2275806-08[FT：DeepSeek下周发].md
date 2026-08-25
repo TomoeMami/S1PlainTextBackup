@@ -8271,3 +8271,13 @@ ox alpha又是啥，为啥openrouter上token用量都第一了</blockquote>
 2. 免费用</blockquote>
 很慢。上午用opencode跑了下，感觉慢的无法接受。
 
+
+*****
+
+####  hyhyhyhy  
+##### 11115#       发表于 2026-8-25 13:55
+
+<blockquote>bhunter 发表于 2026-8-25 13:42
+很慢。上午用opencode跑了下，感觉慢的无法接受。</blockquote>
+晚上很快，今天白天不行了
+

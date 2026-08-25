@@ -568,3 +568,57 @@ IMG_8931.jpeg
 
 这四个是不是对应朱雀、青龙、白虎、玄武啊
 
+
+*****
+
+####  freedom12  
+##### 3012#       发表于 2026-8-25 13:47
+
+ 本帖最后由 freedom12 于 2026-8-25 13:48 编辑 
+
+<img src="https://img.stage1st.com/forum/202608/25/134632w64f8hhbffo6bl9h.png" referrerpolicy="no-referrer">
+
+<strong>0.png</strong> (15.94 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-25 13:46 上传
+
+<img src="https://img.stage1st.com/forum/202608/25/134632gecmel11315ejesj.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (46 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-25 13:46 上传
+
+<img src="https://img.stage1st.com/forum/202608/25/134632mre1v1v5e71t5tv5.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (43.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-25 13:46 上传
+
+<img src="https://img.stage1st.com/forum/202608/25/134633tsxggkz2hmhfkgsx.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (43.81 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-25 13:46 上传
+
+我看其他地方不少人猜新角色和山猪家或贝爹家有关系
+
+但是实际发色还是有些差别
+
+<img src="https://img.stage1st.com/forum/202608/25/134633tcvvvp8ig1f0inzi.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (51.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-25 13:46 上传
+
+不过和山猪大爷倒是更相似无论是偏暗淡的金发，还是灰色的瞳孔
+

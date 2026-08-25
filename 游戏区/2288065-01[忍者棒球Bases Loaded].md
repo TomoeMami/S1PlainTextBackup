@@ -57,3 +57,19 @@
 
 这就是用hd-2d重制的吧
 
+
+*****
+
+####  zhoutai354  
+##### 60#       发表于 2026-8-25 13:50
+
+可惜被打时头像流泪细节没有了，希望正式版能还原
+
+*****
+
+####  zhoutai354  
+##### 61#       发表于 2026-8-25 13:52
+
+steam 页面已经有了
+[https://store.steampowered.com/app/3418870](https://store.steampowered.com/app/3418870)
+
