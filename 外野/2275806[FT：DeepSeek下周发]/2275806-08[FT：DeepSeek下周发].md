@@ -8783,3 +8783,16 @@ hy3毕竟是对标上一代模型的，hy4应该是原生支持1m的。但是给
 256k，实际可用192k</blockquote>
 这也太小了艹
 
+
+*****
+
+####  龙骑士尹志平  
+##### 11165#       发表于 2026-8-25 20:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144153&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-25 19:30</a>
+
+https://modelscope.cn/models/Qwen/Qwen3.8-Flash-Next
+
+还是千问团队爽快，千问4架构新模型直接发下载（ ...</blockquote>
+qwen4要出来了？国模太卷了
+
