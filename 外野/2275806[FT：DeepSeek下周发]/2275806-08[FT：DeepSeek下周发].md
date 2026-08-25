@@ -8729,3 +8729,13 @@ TRAE就读作tray，我问它自己的
 glm此前都是纯文本模型。</blockquote>
 在GLM-4之后直到GLM-5，几乎每一代GLM都包括对应的视觉语言模型：GLM-4V、GLM-4.1V、GLM-4.5V、GLM-4.6V、GLM-5V-Turbo
 
+
+*****
+
+####  tonyunreal  
+##### 11160#       发表于 2026-8-25 19:30
+
+[https://modelscope.cn/models/Qwen/Qwen3.8-Flash-Next](https://modelscope.cn/models/Qwen/Qwen3.8-Flash-Next)
+
+还是千问团队爽快，千问4架构新模型直接发下载（明晚11点开放）
+

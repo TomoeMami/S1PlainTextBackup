@@ -1832,3 +1832,62 @@ Kota is also on his way to Okishima (trying to get there before the Witch) - at 
 [https://youtu.be/6_d5cSBi8b0](https://youtu.be/6_d5cSBi8b0)
 <img src="https://p.sda1.dev/34/b360da503cc57b0810c2897fc0031427/HQjYlnkbQAAUhW9.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 445#         楼主| 发表于 2026-8-25 19:29
+
+🐚⁺‧┈　#さよならララ エンドカード　┈‧⁺ 🫧˚
+
+　   　   　　第8話「決勝戦の夜」
+
+　　
+
+キャラクターデザイン #谷紫織 さんによるエンドカードをお届けします✨
+
+ご視聴いただいた皆さま、ありがとうございました。
+
+地上の世界で愛を探すと決めたララ。
+
+そんなララと茉里が交わした約束——。
+
+来週もお楽しみに！
+
+さよララ～👋
+<img src="https://p.sda1.dev/34/3224923410874cfd9ab15cef2cf34d38/HQXx_3cbMAA5Y34.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/warder2013/status/2091563327206146266](https://x.com/warder2013/status/2091563327206146266)
+<img src="https://p.sda1.dev/34/4f26232b284f38e1afdca2505cf1b54e/HQa5wq0akAAwDS3.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/atsynd/status/2091559320886661365](https://x.com/atsynd/status/2091559320886661365)
+
+ララ8話大会一日目二日目原画してました
+
+ありがとうございました！
+<img src="https://p.sda1.dev/34/2d71fa485569a7acb84f2797d22acdcc/HQa2HbIa0AETEuy.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Fn_lu3/status/2091557450680000865](https://x.com/Fn_lu3/status/2091557450680000865)
+
+さよならララ8話、2原で少しだけお手伝いさせていただきました
+
+ラフの絵も動きもうまくて……勉強になりました……
+
+ありがとうございました！
+
+#さよならララ 
+
+(掲載許可いただいてますが、何か問題がありましたらご連絡ください)
+<img src="https://p.sda1.dev/34/8bf72966b6cabe253d3f498e4aa20090/HQa0aj9aIAAGd-F.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/ngyshh/status/2091731697385820312](https://x.com/ngyshh/status/2091731697385820312)
+
+第8話　ほんの少しですが原画のお手伝いしました。ありがとうございました！
+<img src="https://p.sda1.dev/34/13d0cca355c9c89832df0c085dcdc23b/HQdS46kbwAAhnq8.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Lightsoul_fx/status/2091915111409799198](https://x.com/Lightsoul_fx/status/2091915111409799198)
+
+My work for Goodbye Lara ep8! I was tasked with this sequence and I'm very grateful to the production stuff and the episode director for helping me out. It was a gorgeous sequence to work on. Posted with permission.
+
+LO, GENGA
+
