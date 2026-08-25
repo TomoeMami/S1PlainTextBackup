@@ -46,3 +46,14 @@
 
 绿人最简单，攻速快，必杀容易放，小时候最喜欢玩这个游戏，还有一个战斗回路
 
+
+*****
+
+####  zhoutai354  
+##### 59#       发表于 2026-8-25 13:31
+
+看了下一个最详细的视频
+[https://www.bilibili.com/video/BV15cbZ6fEo7](https://www.bilibili.com/video/BV15cbZ6fEo7)
+
+这就是用hd-2d重制的吧
+

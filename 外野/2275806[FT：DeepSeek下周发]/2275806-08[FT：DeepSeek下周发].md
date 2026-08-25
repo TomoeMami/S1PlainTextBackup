@@ -8217,3 +8217,11 @@ cmp 170hx8g解锁64g，现在闲鱼上带水冷已经10k了。
 
 ox alpha又是啥，为啥openrouter上token用量都第一了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  坛子漆黑  
+##### 11110#       发表于 2026-8-25 13:25
+
+我直接拉的git项目编译打包的,结果拉取新版本后编译,之前做的插件各种报错,又开vscode用trae解决了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
