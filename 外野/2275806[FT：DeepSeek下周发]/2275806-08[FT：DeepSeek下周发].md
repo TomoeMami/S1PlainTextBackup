@@ -8811,3 +8811,25 @@ https://ofox.io/r/2ta382
 x-ai/grok-4.1-fast模型超便宜</blockquote>
 opencode go的grok在dsh会报web_search无效参数错，搜索配置其他都不行，这个的在dsh能用吗？
 
+
+*****
+
+####  overflowal  
+##### 11167#       发表于 2026-8-25 20:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144153&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-25 19:30</a>
+https://modelscope.cn/models/Qwen/Qwen3.8-Flash-Next
+
+还是千问团队爽快，千问4架构新模型直接发下载（ ...</blockquote>
+n-gram，线性注意力+稀疏注意力, 也正常，deepseek v4过后，发现这样压也可以那就继续压。
+QSA我猜应该就是个DSA的变体，topk那套    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  舞以  
+##### 11168#       发表于 2026-8-25 20:33
+
+dsh官方的上下文压缩是不是会调用flash模型啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+我刚刚查了下我在下午的梁文峰时间花了米，好亏惹
+
