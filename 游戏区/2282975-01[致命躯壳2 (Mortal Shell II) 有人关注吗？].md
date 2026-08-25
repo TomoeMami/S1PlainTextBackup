@@ -1618,3 +1618,17 @@ BOSS是不是就是三只小怪共用一个血条啊，这也能算BOSS啊？<im
 
 FF16闪光灯我都还好
 
+
+*****
+
+####  我就再氪一单  
+##### 154#       发表于 2026-8-26 06:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70143806&amp;ptid=2282975" target="_blank">Asukalangley33 发表于 2026-8-25 18:27</a>
+打完那个树林里开轮椅喷火的BOSS了
+
+试试看能不能用眼睛接受不了退款</blockquote>
+有一说一，进大门之后不给看地图，这点也很难绷啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
