@@ -7821,3 +7821,18 @@ GPTplus的5小时额度要加回来了
 
 试用了一下小有名气的ponytail，看上去效果挺不错的，如果不小心被sol喂了屎可以试试。
 
+
+*****
+
+####  七氷  
+##### 11072#       发表于 2026-8-25 10:14
+
+还是不喜欢用web，因为用不了vim模式<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UmarIbnLaAhad  
+##### 11073#       发表于 2026-8-25 10:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卧槽谷大善人牛逼，我给小号申诉成功复活了，中国电话小号+印度羊毛活动+日本ip居然还能活，斯巴拉西
+
