@@ -7726,3 +7726,23 @@ bailu纯碰瓷的，牛来还是等几天他自己公布谜底得了，现在怎
 虽然21号下午才上线，但是模型名在20号就出现在dsh代码里面了    Re:Source</blockquote>
 也有可能是相反倒是
 
+
+*****
+
+####  流缨  
+##### 11064#       发表于 2026-8-25 08:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70139606&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-24 23:28</a>
+
+据说是这个？25B模型？
+
+好像我又被光头骗了，但是这个Bailu模型真的有这么强吗https://bailucode.com/blog/ ...</blockquote>
+
+© 2026 BAILU AI
+
+ICP备案号待更新
+
+公网安备号待更新
+
+呵呵后<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
