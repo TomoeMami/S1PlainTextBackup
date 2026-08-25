@@ -8476,3 +8476,56 @@ ox一直断 要结束了吗
 目前看来对于算力的需求可以说和电力一样是无限的。起码比现在的高3个数量级 ...</blockquote>
 不至于，对非码农来说，我觉得100刀plan给的token基本上够了。
 
+
+*****
+
+####  站立风景  
+##### 11134#       发表于 2026-8-25 17:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70143041&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-25 16:17</a>
+
+用k3做ppt么，那是真的很富了
+
+另外codex咋也爆炸了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">之前一直看说KIMI-K3ppt做的好，workbuddy70块钱会员试一试。真工作还是只能gpt边喷边用。
+
+*****
+
+####  千千千千鸟  
+##### 11135#       发表于 2026-8-25 17:36
+
+我今天听一个播客，大概是说tokens价格每下降10%或者大模型能力上升多少多少，需求会大幅增长好多倍blabla，对于算力的需求暂时来说看不到边际。
+
+*****
+
+####  haiuhfuwah  
+##### 11136#       发表于 2026-8-25 17:36
+
+字节出豆包工作了 tare这个卵 怎么读都不知道的玩意儿总算要寄了吗？
+
+*****
+
+####  neptunehs  
+##### 11137#       发表于 2026-8-25 17:36
+
+ 本帖最后由 neptunehs 于 2026-8-25 17:38 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70143529&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-25 17:26</a>
+不至于，对非码农来说，我觉得100刀plan给的token基本上够了。</blockquote>
+问题就在于
+像我这样的非码农 有ai也能干不少事 但不会出100刀去买plan
+要是像我这样的人（甚至不考虑ai门槛降低导致更多人涌入）全部完全释放潜力 上面某人说的全球算力至少还差着3个数量级是没问题的
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  qwased  
+##### 11138#       发表于 2026-8-25 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137836&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-8-24 17:18</a>
+
+4090，24GB 显存跑通Qwen3.8 27B 大模型 —— 一套通用的无限任务长度，本地推理“全家桶”方案，
+
+ps：此方 ...</blockquote>
+我琢磨了一下，你这个方案其实就是cherry studio那种只要对话达到一定次数就把最前面的对话删掉吧
+
