@@ -8772,3 +8772,14 @@ Codex 272k上下文我以为已经很小了，hy3上下文多长啊，1m上下�
 
 hy3毕竟是对标上一代模型的，hy4应该是原生支持1m的。但是给不给你用是另一回事，从workbuddy现在其他模型的上下文要加价看，估计也是对标gpt，想开长上下文就用量翻倍。
 
+
+*****
+
+####  舞以  
+##### 11164#       发表于 2026-8-25 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144212&amp;ptid=2275806" target="_blank">catbone 发表于 2026-8-25 19:40</a>
+
+256k，实际可用192k</blockquote>
+这也太小了艹
+
