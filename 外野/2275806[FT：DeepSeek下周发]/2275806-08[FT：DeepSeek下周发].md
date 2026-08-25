@@ -7970,3 +7970,62 @@ ox似乎有点奇怪的问题, 有时候他会彻底没有思考....
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  copyliu  
+##### 11085#       发表于 2026-8-25 11:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141508&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-25 11:40</a>
+
+这个muse也会 因此我怀疑是opencode的问题
+
+—— 来自 vivo V2561A, Android 16, 鹅球 v4.0 ...</blockquote>
+包括dsh/hermes都能重现, 在openrouter上打开日志会更清楚, 具体是如果有什么超长上下文, 前文不是ox做的, 然后中途让ox接手, 大几率会停止思考
+
+*****
+
+####  中国人  
+##### 11086#       发表于 2026-8-25 11:48
+
+有个疑问你们会在AI犯蠢的时候骂它吗……虽然我知道这样没意义，但有时就是血压高啊
+
+
+*****
+
+####  cscbzcbz  
+##### 11087#       发表于 2026-8-25 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141578&amp;ptid=2275806" target="_blank">中国人 发表于 2026-8-25 11:48</a>
+有个疑问你们会在AI犯蠢的时候骂它吗……虽然我知道这样没意义，但有时就是血压高啊 ...</blockquote>
+你就把他当个实习生就好了
+
+*****
+
+####  eno_emos  
+##### 11088#       发表于 2026-8-25 11:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141578&amp;ptid=2275806" target="_blank">中国人 发表于 2026-8-25 11:48</a>
+
+有个疑问你们会在AI犯蠢的时候骂它吗……虽然我知道这样没意义，但有时就是血压高啊 ...</blockquote>
+你骂他也算token噢
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  城北无尘  
+##### 11089#       发表于 2026-8-25 11:52
+
+<blockquote>中国人 发表于 2026-8-25 11:48
+有个疑问你们会在AI犯蠢的时候骂它吗……虽然我知道这样没意义，但有时就是血压高啊 ...</blockquote>
+天天骂，骂完又求它改<img src="https://static.stage1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  crow_wine  
+##### 11090#       发表于 2026-8-25 11:55
+
+国算的白天又卡得要死了。这吊平台要不是我套餐还剩一半，我都不想用了。之前 qwen 3.8 max 还不会特别卡的，现在全部卡得要死
+

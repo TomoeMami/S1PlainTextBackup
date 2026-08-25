@@ -27,3 +27,14 @@
 
 我都不敢想要卖多少钱。。。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 57#         楼主| 发表于 2026-8-25 11:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70140629&amp;ptid=2288065" target="_blank">九耳 发表于 2026-8-25 09:39</a>
+
+我都不敢想要卖多少钱。。。</blockquote>
+日版实体版5500
+
