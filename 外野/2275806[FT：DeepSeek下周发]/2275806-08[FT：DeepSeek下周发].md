@@ -7762,3 +7762,39 @@ ICP备案号待更新
 
 gptplus现在额度完全不够登，考虑是5*差不多了，或者再开一个号<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿刚  
+##### 11067#       发表于 2026-8-25 09:27
+
+<blockquote>城北无尘 发表于 2026-8-24 23:20
+官网写nsfw好贵。拿超算平台的试着写被截断两次，不敢了</blockquote>
+写文的话价格和flash差不多啊？你每次输出太多？
+
+
+*****
+
+####  UmarIbnLaAhad  
+##### 11068#       发表于 2026-8-25 09:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70137511&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-24 16:26</a>
+
+你是反代接codex的吗，我在想有没有什么办法不反代也能把反重力对接到其他harness里面 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">antigravity直接用的，然后这个小号可能太张狂了享年一天，我买成品号去了
+
+*****
+
+####  misuzu0723  
+##### 11069#       发表于 2026-8-25 09:35
+
+<img src="https://img.stage1st.com/forum/202608/25/093456v8bz5d5ue1euj54j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (151.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-25 09:34 上传
+
+GPTplus的5小时额度要加回来了
+
