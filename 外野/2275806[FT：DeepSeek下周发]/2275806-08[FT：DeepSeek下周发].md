@@ -8171,3 +8171,13 @@ cmp 170hx8g解锁64g，现在闲鱼上带水冷已经10k了。
 对了，mm m3全免费半个月    Re:Source</blockquote>
 哪接入？
 
+
+*****
+
+####  tonyunreal  
+##### 11105#       发表于 2026-8-25 12:40
+
+数据中心建在蛙岛的那家吧
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
