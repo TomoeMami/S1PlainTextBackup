@@ -517,3 +517,24 @@ IMG_8931.jpeg
 
 <img src="https://p.sda1.dev/34/9912fa51328cb5a7691a0624cb099ccd/IMG_2EC5B50562CD86738E9A84669E1B9AC7.jpeg" referrerpolicy="no-referrer">精神冲击都来了
 
+
+*****
+
+####  hsyg  
+##### 3008#       发表于 2026-8-25 11:10
+
+现在就约等于占了东方忍者国那个生态位吧，神拳武僧这东西本来也是西幻抽象玩意大差不差。
+
+用易经搞占卜倒是挺可以，不知道职业方面能不能加，现在拳套绑的创新是手铳有点太抽象
+
+
+*****
+
+####  freedom12  
+##### 3009#       发表于 2026-8-25 11:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141104&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-8-25 10:48</a>
+
+有没有可能这个字是“斋”？</blockquote>
+有没有可能你发现晚了
+

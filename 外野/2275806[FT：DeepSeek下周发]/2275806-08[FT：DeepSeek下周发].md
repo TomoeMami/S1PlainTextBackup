@@ -7883,3 +7883,16 @@ GPTplus的5小时额度要加回来了
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  qwased  
+##### 11078#       发表于 2026-8-25 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141211&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-25 11:03</a>
+
+我的问题是因为是逆向 我压根看不懂文档
+
+被拉屎了在我或ai决定重写前要耗费大量token排查</blockquote>
+智力不行的模型就这样的，我用gemini3.7flash的体验相同，如果最开始那个版本就有问题那不管怎么返工也是解决不了的，而用DS flash的时候就不会这样，ds不管flash还是pro给的大框架至少是可行的
+
