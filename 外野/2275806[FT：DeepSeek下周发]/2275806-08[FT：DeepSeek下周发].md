@@ -8865,3 +8865,35 @@ https://modelscope.cn/models/Qwen/Qwen3.8-Flash-Next
 我嘞个去，客户端怎么又升级了？242了。最近7天，可以说一连升级了三次。所以，这是准备把最新的识图模型也 ...</blockquote>
 识图模式就是啊
 
+
+*****
+
+####  杀人鲸  
+##### 11172#       发表于 2026-8-25 21:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144599&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-25 21:31</a>
+识图模式就是啊</blockquote>
+哦，还真是。最近出了这个新模型，也不知道什么时候能普及到客户端上。只不过客户端上不是已经有一个可以看图的了吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  overflowal  
+##### 11173#       发表于 2026-8-25 21:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144645&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-8-25 21:41</a>
+哦，还真是。最近出了这个新模型，也不知道什么时候能普及到客户端上。只不过客户端上不是已经有一个可以 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  serj005  
+##### 11174#       发表于 2026-8-25 21:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144645&amp;ptid=2275806" target="_blank">杀人鲸 发表于 2026-8-25 21:41</a>
+
+哦，还真是。最近出了这个新模型，也不知道什么时候能普及到客户端上。只不过客户端上不是已经有一个可以 ...</blockquote>
+现在的识图模式模型就是v4f-vision-exp，区别是以前的识图模式不支持联网搜索，现在能用联网搜索了
+
