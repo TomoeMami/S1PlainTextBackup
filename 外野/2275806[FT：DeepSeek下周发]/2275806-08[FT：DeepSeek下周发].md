@@ -8129,3 +8129,45 @@ cmp 170hx8g解锁64g，现在闲鱼上带水冷已经10k了。
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  舞以  
+##### 11100#       发表于 2026-8-25 12:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">官方的v4fve速度真爽啊，梁文谷爽用
+
+*****
+
+####  王兰花秀丽  
+##### 11101#       发表于 2026-8-25 12:18
+
+对了，mm m3全免费半个月    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  GJRstone  
+##### 11102#       发表于 2026-8-25 12:22
+
+看人说qwen3.8 27B的本地部署，是不是单个专家（单个稠密超人）目前测试的智力上限就是20B的水平？deepseek的MoE架构抽卡实际上就是有个专家水平够高，抽到了专家就牛逼，抽不到就还憨憨的？
+
+*****
+
+####  CCauchy  
+##### 11103#       发表于 2026-8-25 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141578&amp;ptid=2275806" target="_blank">中国人 发表于 2026-8-25 11:48</a>
+有个疑问你们会在AI犯蠢的时候骂它吗……虽然我知道这样没意义，但有时就是血压高啊 ...</blockquote>
+我就骂过一次网页dsv3一次a畜免费sonnet5
+还有一次百度文心5.0
+
+*****
+
+####  唠叨  
+##### 11104#       发表于 2026-8-25 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141789&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-25 12:18</a>
+对了，mm m3全免费半个月    Re:Source</blockquote>
+哪接入？
+
