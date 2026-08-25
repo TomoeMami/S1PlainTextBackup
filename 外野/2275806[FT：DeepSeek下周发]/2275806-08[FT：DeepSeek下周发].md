@@ -9075,3 +9075,25 @@ codex又重置了？<img src="https://static.stage1st.com/image/smiley/face2017/
 opencode go的grok在dsh会报web_search无效参数错，搜索配置其他都不行，这个的在dsh能用吗？ ...</blockquote>
 应该可以吧 我接酒馆用的 
 
+
+*****
+
+####  jonarryn  
+##### 11190#       发表于 2026-8-26 00:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144674&amp;ptid=2275806" target="_blank">serj005 发表于 2026-8-25 21:45</a>
+
+现在的识图模式模型就是v4f-vision-exp，区别是以前的识图模式不支持联网搜索，现在能用联网搜索了 ...</blockquote>
+也就是说，现在识图模式是v4f正式版水平，其它还是预览版？
+
+
+*****
+
+####  舞以  
+##### 11191#       发表于 2026-8-26 00:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70145058&amp;ptid=2275806" target="_blank">jonarryn 发表于 2026-8-26 00:24</a>
+
+也就是说，现在识图模式是v4f正式版水平，其它还是预览版？</blockquote>
+都更新了：三个模式分别是flash正式版、pro正式版和这个flash的多模态exp模型
+
