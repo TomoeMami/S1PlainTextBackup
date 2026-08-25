@@ -8405,3 +8405,22 @@ glm5.x是纯文本的，但是zcode里会自动调取识图插件来做事，周
 
 试了下workbuddy的KIMIK3，做PPT确实比gpt好太多了。但是这个积分耗得也真是快。
 
+
+*****
+
+####  舞以  
+##### 11127#       发表于 2026-8-25 16:17
+
+用k3做ppt么，那是真的很富了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外codex咋也爆炸了
+
+图片.png
+(12.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-25 16:16 上传
+
+<img src="https://img.stage1st.com/forum/202608/25/161638hb6b440yk444jjte.png" referrerpolicy="no-referrer">
+

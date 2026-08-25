@@ -679,3 +679,18 @@ IMG_8931.jpeg
 
 确实像，不过这人看着没白剑鬼厉害
 
+
+*****
+
+####  mai6696  
+##### 3019#       发表于 2026-8-25 16:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70142688&amp;ptid=2261859" target="_blank">57042711 发表于 2026-8-25 15:11</a>
+
+这魔法使用次数好少</blockquote>
+三房的魔法次数也是这水平啊。
+
+低级点的10次12次。高级点的5次3次甚至1次。
+
+都是靠职业给的次数×2。
+
