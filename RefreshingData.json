@@ -11862,10 +11862,10 @@
     "update": false
   },
   "2259701": {
-    "totalreply": 1531,
+    "totalreply": 1532,
     "title": "[《黑神话：钟馗》公开！]",
     "newtitle": "[《黑神话：钟馗》／ 15分钟实机演示公开！]",
-    "lastedit": 1787678766,
+    "lastedit": 1787688846,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13086,10 +13086,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 31269,
+    "totalreply": 31272,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1787685005,
+    "lastedit": 1787688965,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13176,12 +13176,12 @@
     "update": false
   },
   "2282486": {
-    "totalreply": 480,
+    "totalreply": 481,
     "title": "[传言：nate表示ff7r第三部将在本周六的sgf公开]",
     "newtitle": "[ff7r最终章《最终幻想7 Revelation》公开!采用真正开放世界设计，27年春全平台发售]",
-    "lastedit": 1785898451,
+    "lastedit": 1787688846,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2282979": {
@@ -17658,10 +17658,10 @@
     "update": false
   },
   "2281875": {
-    "totalreply": 76,
+    "totalreply": 77,
     "title": "[CDPR《巫师3：狂猎》全新资料片“旧时曲”公布，2027年发售]",
-    "newtitle": "[CDPR《巫师3：狂猎》全新资料片“旧时曲”公布，2027年发售]",
-    "lastedit": 1787688246,
+    "newtitle": "[CDPR《巫师3：狂猎》复刻版9月29日免费升级 ／ 全新资料片“旧时曲”2027年发售]",
+    "lastedit": 1787688846,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17856,11 +17856,20 @@
     "update": false
   },
   "2287179": {
-    "totalreply": 158,
+    "totalreply": 166,
     "title": "[Gamescom 2026 科隆游戏展开幕之夜 8月26日凌晨2点举行]",
     "newtitle": "[Gamescom 2026 科隆游戏展开幕之夜 8月26日凌晨2点举行]",
-    "lastedit": 1787688245,
+    "lastedit": 1787688846,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2262935": {
+    "totalreply": 212,
+    "title": "[米哈游新作《星布谷地》讨论楼]",
+    "newtitle": "[米哈游新作《星布谷地》讨论楼]",
+    "lastedit": 1787689088,
+    "category": "手游专楼",
     "active": true,
     "update": false
   }
