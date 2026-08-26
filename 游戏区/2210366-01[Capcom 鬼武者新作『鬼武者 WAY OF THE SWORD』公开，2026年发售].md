@@ -434,3 +434,13 @@ ScreenShot_2026-08-26_161231_033.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再怎么吹我都不会预购的！荒野吃了坨大的之后，加上期间各种作品的虎头蛇尾例子我就坚定不预购卡婊的游戏
 
+
+*****
+
+####  pointer243  
+##### 739#       发表于 2026-8-26 18:07
+
+话说脚踢是没办法一闪的是吗？次次想碰瓷小兵的脚踢都是闪不出来
+
+—— 来自 motorola edge 2025, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
