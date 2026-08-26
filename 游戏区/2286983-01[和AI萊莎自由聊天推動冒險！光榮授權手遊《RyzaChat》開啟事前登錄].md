@@ -736,3 +736,15 @@ https://x.com/owltl2/status/2092176101745529237?s=46&amp;t=nV2uIRu-sHtAJdsNmHDb-
 
 比想象中的崩老头还崩老头<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  莉可厨  
+##### 71#       发表于 2026-8-26 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70148144&amp;ptid=2286983" target="_blank">虚无连斩 发表于 2026-8-26 14:05</a>
+所谓破甲看着也就这样啊，尺度还不够大啊
+
+—— 来自 vivo V2507A, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+看到有让科洛蒂亚学狗叫的了<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">酒馆人太坏了
+
