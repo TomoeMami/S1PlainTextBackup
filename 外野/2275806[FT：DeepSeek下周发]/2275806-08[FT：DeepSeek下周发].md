@@ -11017,3 +11017,97 @@ ai企业基本就没有毛利低的，毕竟严格说成本就是电费，毛利
 
 —— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  自由之紫roy  
+##### 11355#       发表于 2026-8-26 19:55
+
+不知道能不能算力自由，不过我还是决定把积蓄allin了。放纵一下。
+
+微信图片_20260826194506_5822_7.jpg
+(265.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 19:54 上传
+
+<img src="https://img.stage1st.com/forum/202608/26/195442sqsadtd2lq4gsat4.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 木谷高明 + 1好评加鹅
+
+查看全部评分
+
+*****
+
+####  squallx  
+##### 11356#       发表于 2026-8-26 20:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150507&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-26 19:55</a>
+
+不知道能不能算力自由，不过我还是决定把积蓄allin了。放纵一下。</blockquote>
+羡慕 不过这套的价格够把API蹬到爆炸了啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nxmonitor  
+##### 11357#       发表于 2026-8-26 20:01
+
+The Information的数据根本不用看…
+
+*****
+
+####  木谷高明  
+##### 11358#       发表于 2026-8-26 20:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150507&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-26 19:55</a>
+不知道能不能算力自由，不过我还是决定把积蓄allin了。放纵一下。</blockquote>
+看有不少团购dgx spark，两台可以跑v4f
+
+除了老黄原版，华硕微星超聚变（从华为服务器业务拆出来的部门）都有换皮版本。
+
+两台用200G网口互联。
+
+*****
+
+####  lly778  
+##### 11359#       发表于 2026-8-26 20:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150437&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-8-26 19:46</a>
+
+这位坛友是否对毛利没啥概念，毛利 82.9 意味着利润快达到成本的 5 倍了，长江电力才 65再往上只有创新药 ...</blockquote>
+毛利和利润差好远的，ai企业大头在研发费用
+
+*****
+
+####  cscbzcbz  
+##### 11360#       发表于 2026-8-26 20:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150336&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-8-26 19:28</a>
+DeepSeek 收入 4.75 亿、净亏损 7.15 亿
+据 The Information 报道，DeepSeek 2026 年前 7 个月实现营收约 4 ...</blockquote>
+82.9，这是什么神仙毛利<img src="https://static.stage1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  自由之紫roy  
+##### 11361#       发表于 2026-8-26 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150554&amp;ptid=2275806" target="_blank">木谷高明 发表于 2026-8-26 20:01</a>
+
+看有不少团购dgx spark，两台可以跑v4f
+
+除了老黄原版，华硕微星超聚变（从华为服务器业务拆出来的部门） ...</blockquote>
+我用过了，其实moe可以，其他都太慢了，我还要ai视频电影
+
