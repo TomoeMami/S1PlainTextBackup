@@ -9834,3 +9834,77 @@ https://github.com/MiaAI-Lab/D ...</blockquote>
 
 用完滚蛋了
 
+
+*****
+
+####  →熙←  
+##### 11252#       发表于 2026-8-26 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147072&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-26 11:22</a>
+
+计算公式哪来的？我找了半天文档没有找到，问官方客服给了我个旧的截图，懒得和他吵了 ...</blockquote>
+页面有基准价<blockquote>以 Kimi-K2.6 为例，60,000 Credits 套餐按输入单价约合 720 万 tokens，输出约合 170 万 tokens，缓存命中输入约合 1.2 亿 tokens。综合测算约合 3000 万 tokens（因作业类型差异较大，仅供参考）。</blockquote>
+
+然后除倍率
+
+*****
+
+####  kinfox  
+##### 11253#       发表于 2026-8-26 11:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146913&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-8-26 11:05</a>
+
+我没用过pi，这个插件麻烦指路，谢谢~</blockquote>
+[https://github.com/ranxianglei/billion-context-pi](https://github.com/ranxianglei/billion-context-pi)
+
+我装的插件是这个。。
+
+*****
+
+####  天桥夜风  
+##### 11254#       发表于 2026-8-26 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70141578&amp;ptid=2275806" target="_blank">中国人 发表于 2026-8-25 11:48</a>
+
+有个疑问你们会在AI犯蠢的时候骂它吗……虽然我知道这样没意义，但有时就是血压高啊 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/26/112751g4txlx8l8ht4yhcs.png" referrerpolicy="no-referrer">
+
+<strong>图片编辑需求.png</strong> (3.93 MB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 11:27 上传
+
+*****
+
+####  唠叨  
+##### 11255#       发表于 2026-8-26 11:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147001&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-26 11:13</a>
+
+没有，只有注册送一美元，另外他家tps比官方还快    Re:Source</blockquote>
+谢谢佬 已经蹬上了 刚好国算点数用完  完美衔接
+
+
+*****
+
+####  cscbzcbz  
+##### 11256#       发表于 2026-8-26 11:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147096&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-26 11:25</a>
+页面有基准价 
+
+然后除倍率</blockquote>
+这个只是kimi2.6的示例吧，不同模型应该有差异？不然我直接用k3不是爽爆?<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+国算这个余额延迟贼大，想实测都不好测
+
+*****
+
+####  城北无尘  
+##### 11257#       发表于 2026-8-26 11:34
+
+超算平台怎么也开始模糊价格了，真tm恶心啊。国内这些plan全都是按自己的积分+倍率黑箱扣分，以前超算平台还能计算，现在不行<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
