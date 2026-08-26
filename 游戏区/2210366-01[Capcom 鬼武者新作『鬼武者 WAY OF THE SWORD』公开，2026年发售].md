@@ -191,3 +191,30 @@ switch2版优化得不错啊，画面清晰帧数也不错
 
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">要是不虎头蛇尾，这作价格应该是345而不是298，又不是生化这种看板ip，不会给大预算的
 
+
+*****
+
+####  Jabeck  
+##### 717#       发表于 2026-8-26 14:19
+
+为啥我打过了大胖标题没有挑战的boss？
+
+*****
+
+####  h122h  
+##### 718#       发表于 2026-8-26 14:19
+
+哇，才发现卡表把鬼武者这作也搞得和怪猎那样整豪华组合包和高级豪华组合包……一个纯单机也能整这么多皮么，甚至普通版和豪华版的预购特典也不一样。PRAGMATA给小孩整皮肤也才出到豪华包。
+
+*****
+
+####  Leliel  
+##### 719#       发表于 2026-8-26 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70148263&amp;ptid=2210366" target="_blank">Jabeck 发表于 2026-8-26 14:19</a>
+
+为啥我打过了大胖标题没有挑战的boss？</blockquote>
+应该是需要在游戏中发动十次一闪
+
+左下角有个计数器
+

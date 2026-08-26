@@ -10297,3 +10297,16 @@ https://huggingface.co/froggeric/Qwen-Fixed-Chat-Templates  这个装完qwen3.
 是的 这个插件是必备的 我好像忘记提这个了。是因为有它和pi在一起 会好用很多 ...</blockquote>
 我对比了一下之前的对话，好像是默认的时候模型不知道怎么结束思考所以会在思考链里面鬼打墙，现在就思考一遍开始跑工具了
 
+
+*****
+
+####  neptunehs  
+##### 11292#       发表于 2026-8-26 14:21
+
+minimaxm3直接把事情搞炸了 还把他的乱七八糟的猜测写进了spec
+我今晚不知道要费多少钱给梁叔叔排雷。。。
+
+哎
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
