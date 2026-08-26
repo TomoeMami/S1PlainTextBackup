@@ -52,3 +52,30 @@ demo更新了，加了小次郎后面的一些内容。那个特别仕合的百�
 demo更新了，加了小次郎后面的一些内容。那个特别仕合的百秽我确实打不过。 ...</blockquote>
 什么？还有特别boss？是打完demo在标题画面选还是在新增内容中的赢藏boss？
 
+
+*****
+
+####  Nosgoth  
+##### 703#       发表于 2026-8-26 08:53
+
+<blockquote>conanoysq 发表于 2026-8-26 08:46
+什么？还有特别boss？是打完demo在标题画面选还是在新增内容中的隐藏boss？ ...</blockquote>
+标题界面那个特别仕合。卡普空还专门说了是体验版限定的超高难度boss。一个真一闪还下不到一指宽的血，自己一般两三刀就倒。
+
+*****
+
+####  conanoysq  
+##### 704#       发表于 2026-8-26 08:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70145968&amp;ptid=2210366" target="_blank">Nosgoth 发表于 2026-8-26 08:53</a>
+
+标题界面那个特别仕合。卡普空还专门说了是体验版限定的超高难度boss。一个真一闪还下不到一指宽的血，自 ...</blockquote>
+ok，ok。早起速速通了一遍，这数值让我很，失望毫无挑战，原来还是有上强度的boss<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 705#       发表于 2026-8-26 08:56
+
+这个看起来很变态的小次郎像是某种典型的女ch的xp，有人希望他能洗白很正常，但是洗白了可能反而没那味了
+

@@ -9234,3 +9234,72 @@ plus 5小时回来了
 我现在感觉有pi vcc这种压缩上下文的插件之后确实上下文长度需求低多了，反正 ...</blockquote>
 fraQtl HiFi Q4_K_M   这个是我挑选了数十个量化模型后，找到的最适合我配置的最强q4。。。
 
+
+*****
+
+####  jinuzuktII  
+##### 11205#       发表于 2026-8-26 08:44
+
+梯子线路问题，换线路
+
+*****
+
+####  kinfox  
+##### 11206#       发表于 2026-8-26 08:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70145884&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-8-26 08:41</a>
+
+朋友什么配置啊，本地模型都这么强了吗，我还以为本地模型也就能聊天。 ...</blockquote>
+我电脑就是个单显卡4090 24g的电脑…………跑q4_k_m 差不多60速度输出
+
+qwen3.8是本地模型里面对家用显卡最友好的了，我这几天跑了好多游戏出来，
+
+最快的时候，一个俄罗斯方块2分钟，质量奇高，还没有bug……
+
+*****
+
+####  neptunehs  
+##### 11207#       发表于 2026-8-26 08:49
+
+minimax m3 free是free里唯一速度还行的。。。这个礼拜就用他打下手了
+
+话说前面有人提到omp的webui 哪一家的？我搜到的github只有82 star
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  kinfox  
+##### 11208#       发表于 2026-8-26 08:52
+
+本地部署绝对不是只能玩聊天的东西啊…………很强的，拿来做小任务的平替没啥问题。
+
+我直接一句话扔给它，几分钟就可以出一个完整可玩流畅的，它自己设计玩法的东西。
+
+pi+qwen3.8的量化模型就是家庭用户现在的最好选择了……
+
+<img src="https://img.stage1st.com/forum/202608/26/085202thv8qvgs3311tq8s.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1787705413110.png</strong> (65.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 08:52 上传
+
+<img src="https://img.stage1st.com/forum/202608/26/085202giu0bkzdkq10yiyo.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1787705384860.png</strong> (240.37 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 08:52 上传
+
+<img src="https://img.stage1st.com/forum/202608/26/085202c665rq7iuxqs156x.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1787705426080.png</strong> (103.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 08:52 上传
+
