@@ -748,3 +748,11 @@ https://x.com/owltl2/status/2092176101745529237?s=46&amp;t=nV2uIRu-sHtAJdsNmHDb-
 —— 来自 vivo V2507A, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
 看到有让科洛蒂亚学狗叫的了<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">酒馆人太坏了
 
+
+*****
+
+####  ShiKi847  
+##### 72#       发表于 2026-8-26 18:20
+
+刚刷到个asmr闹铃叫醒的视频，不错
+
