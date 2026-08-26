@@ -9663,3 +9663,80 @@ minimax免费爽蹬是爽了 智力真是不够 v4fv跑两次能解决的他一�
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  唠叨  
+##### 11239#       发表于 2026-8-26 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146816&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-26 10:53</a>
+
+minimax免费爽蹬是爽了 智力真是不够 v4fv跑两次能解决的他一个上午还在转
+
+不过反正免费 不强求</blockquote>
+是gmicloud那吗 吐字速度怎么样
+
+*****
+
+####  王兰花秀丽  
+##### 11240#       发表于 2026-8-26 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146774&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-26 10:46</a>
+模型名称        综合扣减倍率
+
+GLM-5.3        2.29
+
+GLM-5.2        0.90</blockquote>
+试一下runinfra的
+
+<img src="https://img.stage1st.com/forum/202608/26/105732vhhcdxskexvlzv3x.jpg" referrerpolicy="no-referrer">
+
+<strong>1000052394.jpg</strong> (73.35 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 10:57 上传
+
+    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  唠叨  
+##### 11241#       发表于 2026-8-26 11:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146854&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-26 10:57</a>
+
+试一下runinfra的
+
+    Re:Source</blockquote>
+有邀请链接吗
+
+*****
+
+####  darktide  
+##### 11242#       发表于 2026-8-26 11:03
+
+意外的发现cursor的grok4.6还挺好用，额度非常经用，速度也快。
+
+*****
+
+####  Gmlazy  
+##### 11243#       发表于 2026-8-26 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146686&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-8-26 10:36</a>
+
+pi毫无配置。。我连skill都没装 就装了国内网友做的无限上下文压缩插件，就没有了。。模型本地部署是llm ...</blockquote>
+我没用过pi，这个插件麻烦指路，谢谢~
+
+*****
+
+####  neptunehs  
+##### 11244#       发表于 2026-8-26 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146837&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-26 10:55</a>
+是gmicloud那吗 吐字速度怎么样</blockquote>
+吐字速度还行 吐字前要排一下队
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
