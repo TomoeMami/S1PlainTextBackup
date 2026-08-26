@@ -10926,3 +10926,23 @@ qwen3.8 27b apex mini跑出来的，中间他要识图debug才发现PI居然不�
 读图反而很成功 ...</blockquote>
 你的Agent有问题，换Pi解决这些乱七八糟的问题。
 
+
+*****
+
+####  一般市民  
+##### 11347#       发表于 2026-8-26 19:15
+
+qwen这个新模是第一个明确挂了n-gram的吗？ 关注关注~<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  requiem116  
+##### 11348#       发表于 2026-8-26 19:22
+
+<blockquote>来都来了 发表于 2026-8-26 19:11
+你的Agent有问题，换Pi解决这些乱七八糟的问题。</blockquote>
+我就用的dsh，也没咋倒腾
+
+看来dsh还是有点区
+

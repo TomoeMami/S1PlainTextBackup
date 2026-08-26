@@ -503,3 +503,23 @@ ScreenShot_2026-08-26_161231_033.jpg
 
 这游戏还没发售就打骨折了？b站评论区有最低258买到的，可惜steam没这个福利。
 
+
+*****
+
+####  医生狼多  
+##### 747#       发表于 2026-8-26 19:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150234&amp;ptid=2210366" target="_blank">leia_rolando 发表于 2026-8-26 19:09</a>
+这游戏还没发售就打骨折了？b站评论区有最低258买到的，可惜steam没这个福利。 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">挂刀价格比这个低呀
+
+*****
+
+####  手铐君  
+##### 748#       发表于 2026-8-26 19:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150234&amp;ptid=2210366" target="_blank">leia_rolando 发表于 2026-8-26 19:09</a>
+
+这游戏还没发售就打骨折了？b站评论区有最低258买到的，可惜steam没这个福利。 ...</blockquote>
+pc的话cdk比这个价还低吧。。
+
