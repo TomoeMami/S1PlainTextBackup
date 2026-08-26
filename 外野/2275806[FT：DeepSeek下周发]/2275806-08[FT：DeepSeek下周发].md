@@ -11997,3 +11997,67 @@ Z/这个价目表里有一列缓存时间-限时免费
 
 难怪能免费随便用一周，按我的理解这是新建的算力拿来试用的吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  Milarvoz  
+##### 11449#       发表于 2026-8-26 23:09
+
+正好zcode的周额度刚更新，这周全蹬glm flash看看效果。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  scikirbypoke  
+##### 11450#       发表于 2026-8-26 23:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151783&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-26 22:52</a>
+智谱这个flash要把minimax斩杀到底了吧，有点想把minimax年付退掉了，本来看中他还有点多模态能力，而且老 ...</blockquote>
+不好说，好像M3pro要来了
+
+*****
+
+####  qwased  
+##### 11451#       发表于 2026-8-26 23:10
+
+ 本帖最后由 qwased 于 2026-8-26 23:11 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151838&amp;ptid=2275806" target="_blank">chaoliu 发表于 2026-8-26 23:00</a>
+求助4070tis(16g显存）本地能跑什么模型目前智商比较高？对输出速度要求不高（能和kimi现在的垃圾速度打平 ...</blockquote>
+qwen3.8 apex nano +turboquant可以开192k上下文，但是上下文长了以后吐字速度会很慢（我测试下来50k就掉到25tk/s了，5070ti）
+而且如果你的文档需要视觉处理的话，图片解码要。丢到cpu去，连续读图会有点慢，一张720p级别的图cpu要解码20~30秒
+想弄的话待会我整理个文档看看
+
+*****
+
+####  andychen  
+##### 11452#       发表于 2026-8-26 23:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151783&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-26 22:52</a>
+
+智谱这个flash要把minimax斩杀到底了吧，有点想把minimax年付退掉了，本来看中他还有点多模态能力，而且老 ...</blockquote>
+minimax m3在openrouter上免费两周：[https://openrouter.ai/minimax/minimax-m3:free](https://openrouter.ai/minimax/minimax-m3:free)
+
+免费完估计也要发新模型了
+
+*****
+
+####  舞以  
+##### 11453#       发表于 2026-8-26 23:12
+
+让gpt pro读了下智谱的博客，他说牛来是一个新的基模，虽然给了5.3的版本号，但是基模实际上应该是智谱的下一代：45层，34层线性注意了，11层dsa稀疏注意力，然后引入了ds搞的那套mhc，然后引入了原生多模态。
+有点风味v4的感觉了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  f77887  
+##### 11454#       发表于 2026-8-26 23:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151838&amp;ptid=2275806" target="_blank">chaoliu 发表于 2026-8-26 23:00</a>
+求助4070tis(16g显存）本地能跑什么模型目前智商比较高？对输出速度要求不高（能和kimi现在的垃圾速度打平 ...</blockquote>
+理论上你能部署智商最高的大模型是千问3.8 27b，但是你又对上下文有要求，所以我建议你可以看看千问3.6a3b模型，我感觉这个应该是你要求上下文的情况下能部署的最聪明的模型了
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
