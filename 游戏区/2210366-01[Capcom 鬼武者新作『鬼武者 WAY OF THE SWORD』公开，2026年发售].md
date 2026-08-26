@@ -618,3 +618,18 @@ pc的话cdk比这个价还低吧。。
 新增过场里小次郎属于被三木配的神似北野武带坏的设定，剧情走魔之手送装备路线概率又增大了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 另外两个新boss攻击频率一上来节奏就舒畅了，但前面大段无意义跑路还是难绷
 
+
+*****
+
+####  57042711  
+##### 759#       发表于 2026-8-27 00:33
+
+越来越格斗游戏了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starwarszjm  
+##### 760#       发表于 2026-8-27 00:34
+
+我是感觉踱步状态更容易一闪的，当然咱没有测试的技术
+
