@@ -11493,3 +11493,26 @@ qwen干嘛要挑这么一个奇怪的大小
 
 量化版这么大。看来只能围观了
 
+
+*****
+
+####  cscbzcbz  
+##### 11401#       发表于 2026-8-26 21:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151273&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-26 21:44</a>
+https://huggingface.co/unsloth/Qwen3.8-Flash-Next-GGUF
+
+1比特量化版72.5GB</blockquote>
+1比特<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这能干啥
+
+*****
+
+####  requiem116  
+##### 11402#       发表于 2026-8-26 21:53
+
+晚上接着搓结果会话里完全把昨天晚上干的活全部忘了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+这会倒是想起来自己是多模态模型了
+
+看来还得去试试看坛友的方案用pi看看
+
