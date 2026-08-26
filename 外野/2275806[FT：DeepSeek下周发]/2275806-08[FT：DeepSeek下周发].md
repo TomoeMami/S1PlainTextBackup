@@ -10236,3 +10236,16 @@ codex的上下文不到1m？我还以为是我中转的问题
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  泰坦失足  
+##### 11286#       发表于 2026-8-26 12:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147716&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-26 12:51</a>
+
+反重力吃风控了，提示错误400地区不可用</blockquote>
+的确, Antigravity CLI用的这几天第一次见到了"我们正在验证, 请稍后".
+
+不过Oracle V P S上机房IP运行的CLI+Jio订阅, 以为是必死的. 结果居然让我过了. 神奇
+

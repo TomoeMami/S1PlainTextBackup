@@ -627,3 +627,14 @@ https://x.com/owltl2/status/2092176101745529237?s=46&amp;t=nV2uIRu-sHtAJdsNmHDb-
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">破甲破甲
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 62#       发表于 2026-8-26 12:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147724&amp;ptid=2286983" target="_blank">平贺才人 发表于 2026-8-26 12:53</a>
+
+破甲破甲</blockquote>
+图2、3的描述很相似啊，难道是官方设置好的？
+
