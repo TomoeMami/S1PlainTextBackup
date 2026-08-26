@@ -9201,3 +9201,13 @@ $20 / $50 / $120 -&gt; $22 / $55 / $132
 
 plus 5小时回来了
 
+
+*****
+
+####  厍无春  
+##### 11202#       发表于 2026-8-26 08:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70145082&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-26 00:30</a>
+都更新了：三个模式分别是flash正式版、pro正式版和这个flash的多模态exp模型 ...</blockquote>
+快速模式没改正式版，还是预览版。识图模式倒是正式版。未来应该是直接用识图模式替代快速模式了
+
