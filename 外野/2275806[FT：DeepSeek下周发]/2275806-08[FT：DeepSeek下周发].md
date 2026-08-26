@@ -11181,3 +11181,30 @@ qwen 3.8 27b FP8 去审核版了解一下<img src="https://static.stage1st.com/i
 
 —— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  舞以  
+##### 11369#       发表于 2026-8-26 20:26
+
+ 本帖最后由 舞以 于 2026-8-26 20:27 编辑 
+
+梁叔叔真是有钱买不到卡吧，要是把大厂们的卡都给梁叔叔，估计flash就能一直爽了
+
+这话真有点孝子了，但是我觉得某几个厂真的是拿卡不办事。<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 11370#       发表于 2026-8-26 20:31
+
+话说记不住cli快捷键咋整，pi和反重力的cli感觉挺高效的但是上手记不住按键<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  squallx  
+##### 11371#       发表于 2026-8-26 20:31
+
+本地QWEN3.8 27B的专武就是PI吗 DSH能适配不 懒得再折腾了
+

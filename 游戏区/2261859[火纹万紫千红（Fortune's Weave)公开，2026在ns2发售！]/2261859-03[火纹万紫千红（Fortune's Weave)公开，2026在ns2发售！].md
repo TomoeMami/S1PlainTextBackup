@@ -889,3 +889,21 @@ BGM是系列主题曲的变奏，这作音乐水准有望成为系列之最。
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  kalavinka  
+##### 3038#       发表于 2026-8-26 20:31
+
+<img src="https://img.stage1st.com/forum/202608/26/203052yl7nx2txtnx2wa4x.jpg" referrerpolicy="no-referrer">
+
+<strong>img_2558.jpg</strong> (152.47 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 20:30 上传
+
+现在看谁都是三房祖先了 这位是林哈的吗<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
