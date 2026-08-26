@@ -343,3 +343,11 @@ ScreenShot_2026-08-26_161231_033.jpg
 
 <img src="https://img.stage1st.com/forum/202608/26/161301xkzcekc8vecxpqkk.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NTの末裔  
+##### 728#       发表于 2026-8-26 16:25
+
+其实老鬼武者的本身都挺短的。稍微长的新鬼武者，是靠支线内容，鬼武侠挑战，幻魔空间填充的内容。所以本作的主线内容恐怕也不会太长，看其他内容填充有多少了
+
