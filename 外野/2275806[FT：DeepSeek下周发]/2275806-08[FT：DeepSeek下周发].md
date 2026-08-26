@@ -12369,3 +12369,17 @@ runinfra挺好的 速度很快 比官网也便宜
 
 我选择commandcode<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  城北无尘  
+##### 11485#       发表于 2026-8-27 00:49
+
+ 本帖最后由 城北无尘 于 2026-8-27 00:50 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152292&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-27 00:27</a>
+
+今天开了commandcode  虽然吐字比官方慢一半  但是好歹找回没有后顾之忧随便蹬的感觉了
+
+本来白天都要冲run ...</blockquote>
+commandcode跑v4f缓存0.03美元，是官网梁文峰时候的2倍了啊，梁文谷的4倍
+
