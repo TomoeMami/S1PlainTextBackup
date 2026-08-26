@@ -11458,3 +11458,38 @@ qwen干嘛要挑这么一个奇怪的大小
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  zypyong  
+##### 11397#       发表于 2026-8-26 21:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70148680&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-8-26 15:17</a>
+啥？我昨天刚买了国算的plan，今天就没得玩了？
+话说有没有用网页端讨论实施计划，然后抄下来给flash模型编 ...</blockquote>
+可以用gpt  它网页端免费的
+
+*****
+
+####  tonyunreal  
+##### 11398#       发表于 2026-8-26 21:44
+
+[https://huggingface.co/unsloth/Qwen3.8-Flash-Next-GGUF](https://huggingface.co/unsloth/Qwen3.8-Flash-Next-GGUF)
+
+1比特量化版72.5GB <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qwased  
+##### 11399#       发表于 2026-8-26 21:44
+
+牛来好像也是122b大小，dgx这下真的要涨了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kinfox  
+##### 11400#       发表于 2026-8-26 21:45
+
+量化版这么大。看来只能围观了
+
