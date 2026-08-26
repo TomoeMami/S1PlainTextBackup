@@ -12472,3 +12472,11 @@ flash模型为什么那么慢, 5.3都感觉更快</blockquote>
 —— 来自 S1Fun</blockquote>
 [https://huggingface.co/froggeric/Qwen-Fixed-Chat-Templates](https://huggingface.co/froggeric/Qwen-Fixed-Chat-Templates)
 
+
+*****
+
+####  来都来了  
+##### 11494#       发表于 2026-8-27 01:24
+
+PI 更新了，看说明是支持了原生 PowerShell。我还没有测试，不知道对大语言模型大战 PowerShell 的状况有没有改善。
+
