@@ -11900,3 +11900,65 @@ gpt算的，感觉眼下可以梁文峰时期用一下？梁文谷还是用fve�
 
 下一个k3级可能是hy4？
 
+
+*****
+
+####  misuzu0723  
+##### 11439#       发表于 2026-8-26 22:48
+
+不能只看缓存价格，还得看缓存时间，记得之前有人测的 glm 并不长，deepseek
+可以到好几个小时甚至按天算。而且不知道为啥他一个 flash 的输出速度才 50 多。
+当然也要看看实际能力差距拉的有多大，至少现在 5.3flash 的前端应该比 v4f 好不少
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  舞以  
+##### 11440#       发表于 2026-8-26 22:50
+
+藤子又不需要炒作，不会上超大模型的，hy4能实现flash-0731的能力就可以了。
+hy现在看起来还是挺稳步迭代的
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  cscbzcbz  
+##### 11441#       发表于 2026-8-26 22:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151758&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-26 22:48</a>
+不能只看缓存价格，还得看缓存时间，记得之前有人测的 glm 并不长，deepseek
+可以到好几个小时甚至按天算。 ...</blockquote>
+Z/这个价目表里有一列缓存时间-限时免费
+就很灵性<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  goranger  
+##### 11442#       发表于 2026-8-26 22:52
+
+ 本帖最后由 goranger 于 2026-8-26 22:53 编辑 
+
+智谱这个flash要把minimax斩杀到底了吧，有点想把minimax年付退掉了，本来看中他还有点多模态能力，而且老用户有个150%周限制，但其实在缓存命中低的场景下非常不耐用
+
+*****
+
+####  →熙←  
+##### 11443#       发表于 2026-8-26 22:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151775&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-26 22:51</a>
+
+Z/这个价目表里有一列缓存时间-限时免费
+
+就很灵性</blockquote>
+又不是命中缓存免费, 是你的缓存存在他的硬盘上这部分给你免费
+
+*****
+
+####  狭义文具爱好者  
+##### 11444#       发表于 2026-8-26 22:53
+
+缓存时间分档不还是a社干的，标准版5分钟一个小时版还要再贵。那智谱是真学啊
+

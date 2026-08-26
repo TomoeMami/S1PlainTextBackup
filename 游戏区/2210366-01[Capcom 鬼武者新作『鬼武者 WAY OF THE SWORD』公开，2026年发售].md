@@ -557,3 +557,13 @@ pc的话cdk比这个价还低吧。。
 
 又用PC通了一遍，PC版的DEMO优化变好了啊，之前会有LOW帧问题，更新后稳如老狗，不得不买了
 
+
+*****
+
+####  blue321  
+##### 753#       发表于 2026-8-26 22:48
+
+想请问一下一闪的时候是不是不能碰其他键？
+
+其他几个系统都没问题，就是一闪和连锁一闪总是抓不到对的时机<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
