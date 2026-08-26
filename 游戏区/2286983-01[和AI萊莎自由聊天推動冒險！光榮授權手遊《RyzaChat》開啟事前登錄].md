@@ -567,3 +567,15 @@ https://x.com/owltl2/status/2092176101745529237?s=46&amp;t=nV2uIRu-sHtAJdsNmHDb-
 ----发送自 STAGE1 App for Android.</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">搜到了
 
+
+*****
+
+####  kk霖洞九  
+##### 59#       发表于 2026-8-26 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70013464&amp;ptid=2286983" target="_blank">whzfjd 发表于 2026-8-4 21:58</a>
+本来想举点例子的，结果看笑了，真就是酒馆角色卡，放开让人蹬，还互相看
+
+ ...</blockquote>
+这是哪个网站发布的卡？
+

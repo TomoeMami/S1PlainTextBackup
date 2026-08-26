@@ -10163,3 +10163,33 @@ image.png
 实际蹬起来体验不是很便宜，几个小任务就蹬了14块了，当作文峰时间的替代也有点肉疼 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">没办法啊  同样的任务用其他模型要么更贵  要么效率太低
 
+
+*****
+
+####  王兰花秀丽  
+##### 11278#       发表于 2026-8-26 12:29
+
+我还是推荐火山coding plan（如果50块能买到），开auto模式    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  CCauchy  
+##### 11279#       发表于 2026-8-26 12:30
+
+codex的上下文不到1m？我还以为是我中转的问题
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  真红之闪电  
+##### 11280#       发表于 2026-8-26 12:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147589&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-26 12:30</a>
+codex的上下文不到1m？我还以为是我中转的问题
+
+论坛助手,iPhone</blockquote>
+默认好像 295
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
