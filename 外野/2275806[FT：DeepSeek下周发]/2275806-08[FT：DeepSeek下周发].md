@@ -12416,3 +12416,59 @@ pro直接卷积
 —— 来自 HONOR AAP-AN00, Android 16, 鹅球 v4.0 ...</blockquote>
 上下文实际占多了就暴跌到10tps出头了
 
+
+*****
+
+####  xiaohanne  
+##### 11489#       发表于 2026-8-27 01:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152287&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-27 00:26</a>
+
+flash模型为什么那么慢, 5.3都感觉更快</blockquote>
+雷霆大思考<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lactone  
+##### 11490#       发表于 2026-8-27 01:10
+
+5.3flash这消息没有阻击美股吗
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  真红之闪电  
+##### 11491#       发表于 2026-8-27 01:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151471&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-26 22:06</a>
+pi vcc+64K上下文的qwen3.8 27b测试完了，长任务触发了2次上下文压缩也没有出现跑偏，装了思考修复之后也是 ...</blockquote>
+思考修复是哪个
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  xiaohanne  
+##### 11492#       发表于 2026-8-27 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152287&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-27 00:26</a>
+
+flash模型为什么那么慢, 5.3都感觉更快</blockquote>
+现在的几个小参数模型为了编程跑分，都开始拼命后训练，代价就是雷霆大思考，速度慢，一点都不flash。
+
+与其说是flash不如说是cheap更直接。
+
+*****
+
+####  qwased  
+##### 11493#       发表于 2026-8-27 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152470&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-8-27 01:11</a>
+
+思考修复是哪个
+
+—— 来自 S1Fun</blockquote>
+[https://huggingface.co/froggeric/Qwen-Fixed-Chat-Templates](https://huggingface.co/froggeric/Qwen-Fixed-Chat-Templates)
+
