@@ -408,3 +408,11 @@ ScreenShot_2026-08-26_161231_033.jpg
 
 20小时里估计有一半时间在通马桶<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  放大镜  
+##### 736#       发表于 2026-8-26 17:32
+
+新鬼我没玩过，系列旧作流程确实都不算长，这其中还包括找XX石走华容道的时间
+

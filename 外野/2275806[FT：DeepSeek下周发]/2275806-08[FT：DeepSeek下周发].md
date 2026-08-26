@@ -10670,3 +10670,39 @@ qwen 一般人真可以部署了 3 张魔改 2080ti 就行了
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  真红之闪电  
+##### 11323#       发表于 2026-8-26 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70148906&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-26 15:48</a>
+不是吧, 消息哪里来的, 别最后只有梁叔叔可用了</blockquote>
+这个几乎是一定的。用户的稳定度没有明显的确定之前。没有任何一家会有意愿去主动部署 DeepSeek 这种东西。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  requiem116  
+##### 11324#       发表于 2026-8-26 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70149528&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-26 17:17</a>
+
+你用v4fv啊 告诉他 你是多模态模型 可以自己截图看</blockquote>
+切换了v4fv，但是不知道是不是为我省钱还是咋的都是优先ocr，倒腾半天不行偶尔读一次图
+
+读图反而很成功
+
+*****
+
+####  唠叨  
+##### 11325#       发表于 2026-8-26 17:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70149632&amp;ptid=2275806" target="_blank">requiem116 发表于 2026-8-26 17:32</a>
+
+切换了v4fv，但是不知道是不是为我省钱还是咋的都是优先ocr，倒腾半天不行偶尔读一次图
+
+读图反而很成功 ...</blockquote>
+你得提醒他  你是一个多模态模型<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
