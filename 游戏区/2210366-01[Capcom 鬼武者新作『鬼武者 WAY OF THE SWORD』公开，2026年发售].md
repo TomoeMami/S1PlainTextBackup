@@ -444,3 +444,13 @@ ScreenShot_2026-08-26_161231_033.jpg
 
 —— 来自 motorola edge 2025, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  隔壁老黄  
+##### 740#       发表于 2026-8-26 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70149635&amp;ptid=2210366" target="_blank">放大镜 发表于 2026-8-26 17:32</a>
+新鬼我没玩通，其余旧作流程确实都不算长，这其中还包括找XX石走华容道的时间 ...</blockquote>
+新鬼流程挺长的
+

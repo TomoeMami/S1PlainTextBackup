@@ -10730,3 +10730,22 @@ qwen 一般人真可以部署了 3 张魔改 2080ti 就行了
 
 没有真正的记忆能力，她意识不到注释是自己写的，这甚至比记忆碎片的主角还麻烦，那起码能认得出是自己的字。
 
+
+*****
+
+####  CCauchy  
+##### 11328#       发表于 2026-8-26 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70148988&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-8-26 16:00</a>
+现在是 272k，本来 5.6 发布的时候是 372 k，结果看起来是计费之类的没搞好，又直接缩回 272k 了。 ...</blockquote>
+晕倒，我一直以为全世界都1m了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cscbzcbz  
+##### 11329#       发表于 2026-8-26 18:15
+
+梁文谷开始啦<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
