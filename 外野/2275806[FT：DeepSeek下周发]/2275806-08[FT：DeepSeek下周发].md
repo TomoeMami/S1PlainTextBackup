@@ -10347,3 +10347,38 @@ minimaxm3直接把事情搞炸了 还把他的乱七八糟的猜测写进了spec
 
 会不会之后出比fable5还强的moe的开源大模型？
 
+
+*****
+
+####  misuzu0723  
+##### 11296#       发表于 2026-8-26 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70148452&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-26 14:44</a>
+会不会之后出比fable5还强的moe的开源大模型？</blockquote>
+肯定会的，半年前你跟别人说半年后本地能部署 opus4.6 级别的模型谁会信
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  LeoDT  
+##### 11297#       发表于 2026-8-26 14:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70148363&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-26 14:32</a>
+
+版本控制skill在opencode跟dsh跟omp互相迁移之间全没了
+
+而且习惯了做一件事commit一次 结果他一件事没做 ...</blockquote>
+这东西感觉不需要skill，system prompt里几句话就能说清楚。比如，写代码前确认当前git工作区状态，如有整理需要建议用户整理工作区，在干净工作区开始工作。如果当前分支在main上就问一下用户要不要开新分支，如果不在main上就问是不是继续在xxx上继续开发，开发完问一下用户是不是要合并。这几行扔给ai让他整理一下语言，直接加到system prompt或者agents.md里，应该能避免挺多问题了。
+
+
+*****
+
+####  nxmonitor  
+##### 11298#       发表于 2026-8-26 14:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70148452&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-26 14:44</a>
+
+会不会之后出比fable5还强的moe的开源大模型？</blockquote>
+DS灰测的那个模型拿出来基本就有了……
+
