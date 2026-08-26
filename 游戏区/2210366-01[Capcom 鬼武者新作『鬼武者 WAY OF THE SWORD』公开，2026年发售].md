@@ -426,3 +426,11 @@ ScreenShot_2026-08-26_161231_033.jpg
 
 下劈和横扫两招大开大合的特别好闪
 
+
+*****
+
+####  kemyes  
+##### 738#       发表于 2026-8-26 17:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再怎么吹我都不会预购的！荒野吃了坨大的之后，加上期间各种作品的虎头蛇尾例子我就坚定不预购卡婊的游戏
+
