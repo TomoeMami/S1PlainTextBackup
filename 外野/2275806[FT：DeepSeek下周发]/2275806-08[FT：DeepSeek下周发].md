@@ -12298,3 +12298,74 @@ glm v2 lite 老套餐 非高峰期5h能跑100M..
 
 为了让更多新朋友能 0 成本上手体验 GLM-5.3-Flash，我们准备了一批 GLM Coding Plan 7 天体验卡（从未订阅过套餐的用户可领取）： 接下来一周，每天限量发放 10,000 张。同时，我们也已重置所有套餐用户账号内的体验卡数量，欢迎分享安利给你的更多朋友。 领取链接： [https://bigmodel.cn/activity/trial-card/PU9MTWG0PM](https://bigmodel.cn/activity/trial-card/PU9MTWG0PM)   继续白嫖ox模型一周
 
+
+*****
+
+####  唠叨  
+##### 11480#       发表于 2026-8-27 00:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152234&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-27 00:14</a>
+
+为了让更多新朋友能 0 成本上手体验 GLM-5.3-Flash，我们准备了一批 GLM Coding Plan 7 天体验卡（从未订阅 ...</blockquote>
+领到了  周额度总共2000 感觉做不了什么  
+
+
+*****
+
+####  qwased  
+##### 11481#       发表于 2026-8-27 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152234&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-27 00:14</a>
+
+为了让更多新朋友能 0 成本上手体验 GLM-5.3-Flash，我们准备了一批 GLM Coding Plan 7 天体验卡（从未订阅 ...</blockquote>
+怎么还要身份证和扫脸，不搞了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  城北无尘  
+##### 11482#       发表于 2026-8-27 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152266&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-27 00:21</a>
+
+怎么还要身份证和扫脸，不搞了</blockquote>
+国内所有plan都需要实名啊
+
+*****
+
+####  →熙←  
+##### 11483#       发表于 2026-8-27 00:26
+
+flash模型为什么那么慢, 5.3都感觉更快
+
+*****
+
+####  唠叨  
+##### 11484#       发表于 2026-8-27 00:27
+
+今天开了commandcode  虽然吐字比官方慢一半  但是好歹找回没有后顾之忧随便蹬的感觉了
+
+<img src="https://img.stage1st.com/forum/202608/27/002624zps09u9s00hu0800.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-27 00:26 上传
+
+本来白天都要冲runinfra了   晚上找银行卡的功夫就看到了commandcode
+
+runinfra挺好的 速度很快 比官网也便宜
+
+<img src="https://img.stage1st.com/forum/202608/27/002704knzybsly8zpl2nln.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (43.01 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-27 00:27 上传
+
+用D指导算了一下实测数据 文峰8.5  文谷4.2  runinfra3.73
+
+我选择commandcode<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
