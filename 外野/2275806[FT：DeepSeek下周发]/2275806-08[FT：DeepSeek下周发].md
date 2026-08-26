@@ -11352,3 +11352,23 @@ ds专门发了篇论文，他们叫Engram，梁叔叔都署名了。
 
 抢跑是吧 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  →熙←  
+##### 11386#       发表于 2026-8-26 21:10
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黄金时代!我先吃了
+
+125B 6B的小模型,价格是否美丽!
+
+
+*****
+
+####  misuzu0723  
+##### 11387#       发表于 2026-8-26 21:15
+
+好像输出 3 元输入 1 元，缓存内价格不知道
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
