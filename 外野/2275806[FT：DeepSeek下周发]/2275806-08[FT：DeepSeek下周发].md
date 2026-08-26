@@ -9181,3 +9181,23 @@ $20 / $50 / $120 -&gt; $22 / $55 / $132
 还想着用ai整点音频相关的活，试了一下Openrouter里的谷歌和OPENAI的模型就是报错，直连就是区域锁，走代理 ...</blockquote>
 号脏了，换个新号走代理支付宝充钱试试，我的新号支付宝充目前还没事
 
+
+*****
+
+####  schneehertz  
+##### 11200#       发表于 2026-8-26 08:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70145230&amp;ptid=2275806" target="_blank">Znesmoc 发表于 2026-8-26 01:10</a>
+还想着用ai整点音频相关的活，试了一下Openrouter里的谷歌和OPENAI的模型就是报错，直连就是区域锁，走代理 ...</blockquote>
+换个梯子试试？
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  七氷  
+##### 11201#       发表于 2026-8-26 08:16
+
+plus 5小时回来了
+
