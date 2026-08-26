@@ -12192,3 +12192,63 @@ minimax m3在openrouter上免费两周：https://openrouter.ai/minimax/minimax-m
 免费完估计也要发新 ...</blockquote>
 正常人都是拿新模型让大家免费体验，他到处搞活动免费两周，已经看到两三家了，拿自己家旗舰模型免费这么久，不就说明拉到一定程度了，实在没人用自己家算力用不完了。哎，我也希望它能知耻后勇，不然我这个年付套餐实在是食之无味弃之可惜
 
+
+*****
+
+####  lactone  
+##### 11469#       发表于 2026-8-26 23:38
+
+minimax现在做视频和音乐呢，此间乐不思蜀<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  goranger  
+##### 11470#       发表于 2026-8-26 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151902&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-8-26 23:09</a>
+
+不好说，好像M3pro要来了</blockquote>
+再持有一个月看看情况。现在的话，大概70-80块的子代理是市场价了。minimax m3拉成这样了谁给的自信卖100，量再大干不成事也没用啦
+
+
+*****
+
+####  tonyunreal  
+##### 11471#       发表于 2026-8-26 23:44
+
+牛来第一个demo跑完了，花了一个小时 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+我感觉给梁子也就15分钟的事
+
+输入184K 缓存10.1M 输出127K，缓存命中98%，44 tok/s
+
+扣了一个2M token的新手包外加￥2.08
+
+*****
+
+####  RookieTnT  
+##### 11472#       发表于 2026-8-26 23:45
+
+glm v2 lite 老套餐 非高峰期5h能跑100M.. 
+
+*****
+
+####  phorcys02  
+##### 11473#       发表于 2026-8-26 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151718&amp;ptid=2275806" target="_blank">mortal1976 发表于 2026-8-26 22:43</a>
+
+过去一周，我们已在一个大规模的中国AI芯片集群上运行GLM-5.3-Flash，支持高带宽互连和针对底层硬件优化的 ...</blockquote>
+不是。。。这种小规模的模型，高带宽互联有个卵用....
+
+还不如单卡部署，直接节省全部张量并行网络通信开销
+
+*****
+
+####  nxmonitor  
+##### 11474#       发表于 2026-8-26 23:47
+
+就说这模型雷霆大思考了，而且我觉得智谱也有点刷分嫌疑，前几天试了一下GLM5.3，感觉表现对不上分数，并不如K3……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
