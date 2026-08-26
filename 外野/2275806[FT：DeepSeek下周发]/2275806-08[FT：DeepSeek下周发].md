@@ -11208,3 +11208,45 @@ qwen 3.8 27b FP8 去审核版了解一下<img src="https://static.stage1st.com/i
 
 本地QWEN3.8 27B的专武就是PI吗 DSH能适配不 懒得再折腾了
 
+
+*****
+
+####  LeoDT  
+##### 11372#       发表于 2026-8-26 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150763&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-26 20:31</a>
+
+话说记不住cli快捷键咋整，pi和反重力的cli感觉挺高效的但是上手记不住按键 ...</blockquote>
+只是文本编辑快捷键的话其实大多数开源软件都有emacs/vim绑定，习惯之后拿到软件改改就行。
+
+另外几乎所有terminal默认带最基础的emacs绑定，学一次到处用了属于，多用几年手就会变成emacs的形状了。
+
+*****
+
+####  舞以  
+##### 11373#       发表于 2026-8-26 20:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我这种非超能力者的普通人，还是喜欢webui或者桌面端。
+
+*****
+
+####  qwased  
+##### 11374#       发表于 2026-8-26 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150764&amp;ptid=2275806" target="_blank">squallx 发表于 2026-8-26 20:31</a>
+
+本地QWEN3.8 27B的专武就是PI吗 DSH能适配不 懒得再折腾了</blockquote>
+可以，主要得弄个好使的上下文管理，pi vcc有现成的直接用，DSH版前面有楼友提到了，你往前翻翻看
+
+感觉配上pi vcc之后64K上下文就真正可用了，实际用着和无限上下文也差不太多
+
+*****
+
+####  kinfox  
+##### 11375#       发表于 2026-8-26 20:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150764&amp;ptid=2275806" target="_blank">squallx 发表于 2026-8-26 20:31</a>
+
+本地QWEN3.8 27B的专武就是PI吗 DSH能适配不 懒得再折腾了</blockquote>
+可以用的 我一开始用的也是dsh，但pi的压缩上文和很轻便的开启的确更舒服就是了
+

@@ -907,3 +907,27 @@ BGM是系列主题曲的变奏，这作音乐水准有望成为系列之最。
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  flyingover  
+##### 3039#       发表于 2026-8-26 20:38
+
+<img src="https://img.stage1st.com/forum/202608/26/203803eb476c34f74mq43q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (66.22 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 20:38 上传
+
+【キャラクター】サラン（CV：矢作紗友里）
+
+アナトリアに同行する、落ち着いた雰囲気の女性。
+
+西方の砂漠に覆われた地からダグシオンへとやってきた。
+
+面倒見が良く、故郷の里ではよく子供たちのお世話をしていた。
+
+●好きなもの：美味しい食事、お酒、アナトリアの世話、勉学
+
