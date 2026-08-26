@@ -11569,3 +11569,77 @@ pi vcc+64K上下文的qwen3.8 27b测试完了，长任务触发了2次上下文�
 
 320B这个表现感觉就一般了啊，不知道ds4fv是多大的
 
+
+*****
+
+####  舞以  
+##### 11409#       发表于 2026-8-26 22:11
+
+牛来的api价格有了么？
+
+*****
+
+####  tonyunreal  
+##### 11410#       发表于 2026-8-26 22:11
+
+ 本帖最后由 tonyunreal 于 2026-8-26 22:12 编辑 
+
+价钱大概拉了，激活参数18B
+
+opencode go只给flash一半的额度，官方文章也只说cost per task比flash略低
+
+*****
+
+####  neptunehs  
+##### 11411#       发表于 2026-8-26 22:12
+
+opencode的ox已经结束了。
+好不容易今天ox快起来了 一天不到就没了 哎
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  tonyunreal  
+##### 11412#       发表于 2026-8-26 22:14
+
+[https://bigmodel.cn/pricing](https://bigmodel.cn/pricing)
+
+智谱的api文档更新了
+
+输入0.8块输出2.8块，前两周再半价
+
+好像神了？<img src="https://static.stage1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  →熙←  
+##### 11413#       发表于 2026-8-26 22:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151524&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-26 22:14</a>
+
+https://bigmodel.cn/pricing
+
+智谱的api文档更新了</blockquote>
+缓存0.23, 这是一坨💩<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 11414#       发表于 2026-8-26 22:16
+
+[https://docs.bigmodel.cn/cn/coding-plan/overview](https://docs.bigmodel.cn/cn/coding-plan/overview)
+
+plan里按输入2.3块输出8块抵扣，何意味 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Azcarlo  
+##### 11415#       发表于 2026-8-26 22:16
+
+glm 5.3 flash这规模也没比dsv4 flash小啊，推理真能便宜吗？
+倒是qwen 3.8 flash deltanet+sparse attention 而且是120b相当利好推理
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
