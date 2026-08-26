@@ -677,3 +677,11 @@ pc的话cdk比这个价还低吧。。
 
 我是防御然后挑破绽大的招数一闪打的比较快，纯一闪容易在某些起手招式翻车，没那么高手
 
+
+*****
+
+####  戏言学者  
+##### 766#       发表于 2026-8-27 04:07
+
+国语配音怎么能垃圾成这样<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
