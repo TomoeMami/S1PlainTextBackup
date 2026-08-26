@@ -10575,3 +10575,35 @@ codex的上下文不到1m？我还以为是我中转的问题
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  →熙←  
+##### 11316#       发表于 2026-8-26 16:37
+
+<img src="https://img.stage1st.com/forum/202608/26/163654bwpplcs3o9faysqq.jpg" referrerpolicy="no-referrer">
+
+<strong>B832FE99E70BF9DA0F874A91FDBBD9BF.jpg</strong> (86.64 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 16:36 上传
+
+<img src="https://img.stage1st.com/forum/202608/26/163654kj7zxkvyv74ovmm7.jpg" referrerpolicy="no-referrer">
+
+<strong>735CA269346472083726AF7BCD2FBEC2.jpg</strong> (237.33 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 16:36 上传
+
+
+*****
+
+####  城北无尘  
+##### 11317#       发表于 2026-8-26 16:43
+
+不知道为什么，超算平台一直报错：Bad Gateway: {"code":502,"msg":"server is busy","data":""}
+
+怎么涨完价服务器还更烂了呢
+
