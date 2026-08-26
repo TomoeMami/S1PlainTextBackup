@@ -400,3 +400,23 @@ token 自费?</blockquote>
 
 让豆包假扮一下莱莎不是完爆这个
 
+
+*****
+
+####  siebten  
+##### 43#       发表于 2026-8-26 09:14
+
+这游戏有免费聊吗 不都是付费才能聊吗？
+
+*****
+
+####  黑上シグマ  
+##### 44#       发表于 2026-8-26 09:15
+
+<blockquote>引用第42楼siebten于2026-08-26 09:14发表的  :
+
+这游戏有免费聊吗 不都是付费才能聊吗？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花6000日元开年间订阅后的，10天15次的“免费”文字聊
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
+

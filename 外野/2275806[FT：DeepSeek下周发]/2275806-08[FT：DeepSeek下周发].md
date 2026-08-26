@@ -9326,3 +9326,24 @@ pi+qwen3.8的量化模型就是家庭用户现在的最好选择了……
 显存和内存需求量大吗？</blockquote>
 我显卡24g的4090，现在日常占用是21.7
 
+
+*****
+
+####  绝地潜兵  
+##### 11211#       发表于 2026-8-26 09:04
+
+千问的27B小模型真强啊
+
+
+*****
+
+####  Gmlazy  
+##### 11212#       发表于 2026-8-26 09:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146026&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-8-26 09:02</a>
+
+我显卡24g的4090，现在日常占用是21.7</blockquote>
+又学到了。
+
+我是4090D也来试试。
+
