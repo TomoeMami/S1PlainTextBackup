@@ -11767,3 +11767,58 @@ GLM：0.2497
 
 gpt算的，感觉眼下可以梁文峰时期用一下？梁文谷还是用fve。
 
+
+*****
+
+####  nxmonitor  
+##### 11424#       发表于 2026-8-26 22:28
+
+和grok一样的情况，报的时候只报输入输出价格…
+
+*****
+
+####  qwased  
+##### 11425#       发表于 2026-8-26 22:28
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以qwen的实测呢，牛来就算了
+
+*****
+
+####  自由之紫roy  
+##### 11426#       发表于 2026-8-26 22:30
+
+太开心了，马上能用到新开源模型了
+
+*****
+
+####  舞以  
+##### 11427#       发表于 2026-8-26 22:33
+
+哦，牛来的api还是纯文本？
+
+如果不是glm草台了，那真的不如继续孝敬梁叔叔了
+
+
+*****
+
+####  王兰花秀丽  
+##### 11428#       发表于 2026-8-26 22:34
+
+应该是草台了，它刚发的演示视频全是在展示视觉应用场景  
+
+虽然各家的flash很让人兴奋，但是还是想要下一个K3级别的模型啊  [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  cscbzcbz  
+##### 11429#       发表于 2026-8-26 22:35
+
+还在藏？opencode上不是多模态的吗？还是说多模态改得再加钱<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  唠叨  
+##### 11430#       发表于 2026-8-26 22:35
+
+所以glm的页面也是ai在维护<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">    
+
