@@ -523,3 +523,11 @@ ScreenShot_2026-08-26_161231_033.jpg
 这游戏还没发售就打骨折了？b站评论区有最低258买到的，可惜steam没这个福利。 ...</blockquote>
 pc的话cdk比这个价还低吧。。
 
+
+*****
+
+####  医生狼多  
+##### 749#       发表于 2026-8-26 19:25
+
+打完了 过的时候差不多无伤了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">不过一闪好难，找不到时间点，都是弹过去的
+
