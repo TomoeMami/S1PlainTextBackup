@@ -9442,3 +9442,71 @@ pi-vcc特别好用，无llm调用的结构化快速压缩，还有让ai能搜整
 
 俄罗斯方块、贪吃蛇、扫雷，这类游戏对于LLM都是基础送分题吧
 
+
+*****
+
+####  Znesmoc  
+##### 11222#       发表于 2026-8-26 09:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70145542&amp;ptid=2275806" target="_blank">mintslime 发表于 2026-8-26 04:20</a>
+
+号脏了，换个新号走代理支付宝充钱试试，我的新号支付宝充目前还没事</blockquote>
+是只要充钱走代理就行还是包括使用的场景也要用梯子？
+
+号脏了都是怎么判断的<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kinfox  
+##### 11223#       发表于 2026-8-26 09:57
+
+<blockquote>买码！注册！ 发表于 2026-8-26 09:49
+俄罗斯方块、贪吃蛇、扫雷，这类游戏对于LLM都是基础送分题吧</blockquote>
+也不一定，我一直尝试了很多llm模型， 以前很多模型质量做出来特别简陋，而且慢。。包括以前的qwen3.5
+
+现在这个模型就能在你需求上做的像模像样，已经是很大进步了。还有自己的审美，要知道这是质量损失很多的q4的小量化模型啊，3.8是强
+
+*****
+
+####  kinfox  
+##### 11224#       发表于 2026-8-26 09:59
+
+让ai随手做的一句话直出的主题式，自由发挥的俄罗斯方块，想看代码或者想体验的可以试试。作为低q的量化模型来说，它算是很能干了。
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/html.gif" referrerpolicy="no-referrer">
+
+RPG俄罗斯方块.html
+
+2026-8-26 09:58 上传
+点击文件名下载附件
+
+33.79 KB, 下载次数: 0
+
+
+*****
+
+####  kinfox  
+##### 11225#       发表于 2026-8-26 10:01
+
+<blockquote>LeoDT 发表于 2026-8-26 09:49
+这是一句话生成吗？有机会发代码出来看看吗？想看看它自由发挥时的代码质量如何。
+
+新mac mini看上去也比 ...</blockquote>
+我发上来了。可以下载试试
+
+*****
+
+####  crow_wine  
+##### 11226#       发表于 2026-8-26 10:02
+
+特别想要灰测那个模型，现在很需要一个多模态，建模能力强的模型。灰测那个看起来就很不错。文峰事件连用 v4 fv 做实验都不敢
+
+*****
+
+####  来都来了  
+##### 11227#       发表于 2026-8-26 10:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146157&amp;ptid=2275806" target="_blank">kitano 发表于 2026-8-26 09:21</a>
+搜索了一下发现有两个，一个400多KB，一个16MB，前者fork后者，最后选了更新时间更近的后者。装好一看， ...</blockquote>
+刚好我昨天了解了一下这个东西，今天想给装上。能讲一下这两个的全名分别是什么吗？到时候避坑用。
+
