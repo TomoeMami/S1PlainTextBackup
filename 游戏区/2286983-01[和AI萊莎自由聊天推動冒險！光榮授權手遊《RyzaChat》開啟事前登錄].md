@@ -546,3 +546,24 @@ https://x.com/owltl2/status/2092176101745529237?s=46&amp;t=nV2uIRu-sHtAJdsNmHDb-
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  mooerfoes  
+##### 57#       发表于 2026-8-26 11:18
+
+看了圈评价，比较受好评的就是她那个TTS的效果，其他都拉完了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  花开安生  
+##### 58#       发表于 2026-8-26 11:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146877&amp;ptid=2286983" target="_blank">黑上シグマ 发表于 2026-8-26 11:01</a>
+
+你得搜标题上那个英文
+
+----发送自 STAGE1 App for Android.</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">搜到了
+

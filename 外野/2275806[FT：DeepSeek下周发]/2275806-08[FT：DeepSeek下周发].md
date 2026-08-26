@@ -9791,3 +9791,46 @@ cc里除了自动模式分类器老超时，其他都还行。到时候写个代
 有邀请链接吗</blockquote>
 没有，只有注册送一美元，另外他家tps比官方还快    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  goranger  
+##### 11248#       发表于 2026-8-26 11:22
+
+minimax这模型，年付用户表示只适合跑提炼总结agent定时监控等不需要脑子的任务
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cscbzcbz  
+##### 11249#       发表于 2026-8-26 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146977&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-8-26 11:11</a>
+算下来和梁文峰时段差不多价格了，这直接大改算法，用完不续了</blockquote>
+计算公式哪来的？我找了半天文档没有找到，问官方客服给了我个旧的截图，懒得和他吵了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 11250#       发表于 2026-8-26 11:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146996&amp;ptid=2275806" target="_blank">星野あさみ 发表于 2026-8-26 11:13</a>
+赶在DGX Spark大涨前入了。按这个repo跑起来本地蓝色大肥鱼flash 0731：
+
+https://github.com/MiaAI-Lab/D ...</blockquote>
+你也太有行动力了吧，反正不出测试之前我不信3.8flash能跟dsv4f一样<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  →熙←  
+##### 11251#       发表于 2026-8-26 11:24
+
+国算这涨价真恶心
+
+一样的参数, 0731是预览版的4.7倍
+
+还是梁文峰的价格
+
+用完滚蛋了
+

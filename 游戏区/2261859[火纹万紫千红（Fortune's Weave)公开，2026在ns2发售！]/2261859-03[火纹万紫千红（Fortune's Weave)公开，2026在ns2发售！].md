@@ -859,3 +859,33 @@ BGM是系列主题曲的变奏，这作音乐水准有望成为系列之最。
 
 为啥不能把结合的战斗动画这一优点弄过来啊……
 
+
+*****
+
+####  cox  
+##### 3035#       发表于 2026-8-26 11:18
+
+看直面会其实有一些结合的动作融入，但底子还是三房那套，尤其是谈话时那个托腮的动作，看的我眼前一黑。。。<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kalavinka  
+##### 3036#       发表于 2026-8-26 11:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147023&amp;ptid=2261859" target="_blank">trow233 发表于 2026-8-26 11:16</a>
+动作模组感觉还是三房那套
+
+为啥不能把结合的战斗动画这一优点弄过来啊…… ...</blockquote>
+有几个动作还是结合搬过来的，但就是不知道为什么一样的动作看上去僵硬不少
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  kalavinka  
+##### 3037#       发表于 2026-8-26 11:20
+
+不知道结合有没有动捕，这俩作给我的感觉就是有动捕和纯手工硬调的感觉<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
