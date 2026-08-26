@@ -10850,3 +10850,26 @@ Z/的东西便宜不了，比flash峰值便宜算我输<img src="https://static.
 
 定价比V4FV高就没意义…
 
+
+*****
+
+####  王兰花秀丽  
+##### 11341#       发表于 2026-8-26 18:49
+
+今晚好像要核爆瘫坐了，qwen、glm，以及hy4也有可能要发    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  kinfox  
+##### 11342#       发表于 2026-8-26 18:53
+
+坐等今晚核爆 非常期待qwen的flash next 还有hy4😂看看藤子会不会又来个免费大放送
+
+
+*****
+
+####  →熙←  
+##### 11343#       发表于 2026-8-26 18:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">需要更多的甜点级别的模型和价格, 有v4fv的智商就能完成我95%的工作
+
