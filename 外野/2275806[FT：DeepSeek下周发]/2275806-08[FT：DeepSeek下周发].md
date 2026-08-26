@@ -10873,3 +10873,43 @@ Z/的东西便宜不了，比flash峰值便宜算我输<img src="https://static.
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">需要更多的甜点级别的模型和价格, 有v4fv的智商就能完成我95%的工作
 
+
+*****
+
+####  qwased  
+##### 11344#       发表于 2026-8-26 19:00
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/html.gif" referrerpolicy="no-referrer">
+
+qwen3.8鹈鹕自行车.html
+(7.91 KB, 下载次数: 0)
+
+2026-8-26 18:56 上传
+
+点击文件名下载附件
+
+qwen3.8 27b apex mini跑出来的，中间他要识图debug才发现PI居然不是默认打开多模态的，还要在配置文件里面加上<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+感觉整体效果和不带视觉的v4flash差不多
+
+不涉及视觉的方面也挺够用的了
+
+<img src="https://img.stage1st.com/forum/202608/26/185948wetdqlb6zygh1erb.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2026-08-26_18-59-35.jpg</strong> (229.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 18:59 上传
+
+然后哈基米3.7flash跑的，怎么用力这么猛，我以为他会随便写写交差<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 11345#       发表于 2026-8-26 19:01
+
+我最关心的是qwen3.8-next-flash的n-gram的效果<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
