@@ -10542,3 +10542,16 @@ traework 每天领的积分都够七八轮了
 coding plan比agent plan适合编程。agent plan不知它是怎么设的，很容易卡断。deepseek pro还没有接入新 ...</blockquote>
 OK，因为我看直接拉取的模型名称里面有v4 pro ga，以为是有正式版的。不过直接用模型名称得用deepseek v4 pro，不带后缀
 
+
+*****
+
+####  御坂MKII  
+##### 11313#       发表于 2026-8-26 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147589&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-26 12:30</a>
+
+codex的上下文不到1m？我还以为是我中转的问题
+
+论坛助手,iPhone</blockquote>
+现在是 272k，本来 5.6 发布的时候是 372 k，结果看起来是计费之类的没搞好，又直接缩回 272k 了。
+
