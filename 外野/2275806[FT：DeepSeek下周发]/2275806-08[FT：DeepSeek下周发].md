@@ -10469,3 +10469,43 @@ skill控制版本感觉有时候会不靠谱，提示词加一下强调比较保
 
 ——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
 
+
+*****
+
+####  中国人  
+##### 11307#       发表于 2026-8-26 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147976&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-8-26 13:40</a>
+
+火山的coding plan比agent plan更好吗？我看agent里面模型经常多次提出请求的。另外他家的deepseek pro是 ...</blockquote>
+coding plan比agent plan适合编程。agent plan不知它是怎么设的，很容易卡断。deepseek pro还没有接入新版的，只有flash。
+
+*****
+
+####  冤枉呐  
+##### 11308#       发表于 2026-8-26 15:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70142640&amp;ptid=2275806" target="_blank">UmarIbnLaAhad 发表于 2026-8-25 14:59</a>
+
+说不定像我一样彻底污染账号再成功申诉就活了呢（不是）</blockquote>
+换了个老号可以买
+
+但是学生认证sheer过不去
+
+气
+
+*****
+
+####  冤枉呐  
+##### 11309#       发表于 2026-8-26 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70143633&amp;ptid=2275806" target="_blank">8008 发表于 2026-8-25 17:47</a>
+
+基元，现在基元咸鱼能日鬼一个68余额的小号，还可以，就是会超时时间太短，会断连 ...</blockquote>
+
+超时好解决，重试次数改成10就行
+
+本轮运行失败Error Code STREAM_ERROR: Responses 流式调用失败
+
+这个不知道是为啥
+
