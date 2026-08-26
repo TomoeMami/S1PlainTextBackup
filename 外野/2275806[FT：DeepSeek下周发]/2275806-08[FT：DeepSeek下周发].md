@@ -10267,3 +10267,13 @@ codex的上下文不到1m？我还以为是我中转的问题
 https://huggingface.co/froggeric/Qwen-Fixed-Chat-Templates  这个装完qwen3.8的思考正常多了</blockquote>
 是的 这个插件是必备的 我好像忘记提这个了。是因为有它和pi在一起 会好用很多
 
+
+*****
+
+####  tillnight  
+##### 11289#       发表于 2026-8-26 13:35
+
+<blockquote>→熙← 发表于 2026-8-26 12:46
+所以现在只有硅基流动了?还有便宜的0731吗, 不会又要回到梁叔叔怀抱吧</blockquote>
+你想多了，硅基流动也要涨了。
+
