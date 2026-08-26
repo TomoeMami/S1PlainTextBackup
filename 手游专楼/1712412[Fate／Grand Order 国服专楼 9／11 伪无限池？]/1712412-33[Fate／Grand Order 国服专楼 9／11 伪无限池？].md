@@ -56,3 +56,11 @@
 然后当年被我卖掉导致卡任务卡到现在的元帅依旧没抽到，呃呃</blockquote>
 我是大号连续两天萨老师<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 48164#       发表于 2026-8-26 15:28
+
+大号今天单抽出了个飞嫂，不错不错<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
