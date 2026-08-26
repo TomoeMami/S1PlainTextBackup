@@ -10424,3 +10424,48 @@ agy感觉是我们的上班高峰期就会卡的特别严
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相信qwen，只有qwen会一直更新这个规模的模型了吧
 
+
+*****
+
+####  自由之紫roy  
+##### 11303#       发表于 2026-8-26 15:09
+
+那么小的参数，再怎么做也不行吧
+
+*****
+
+####  eno_emos  
+##### 11304#       发表于 2026-8-26 15:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147976&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-8-26 13:40</a>
+
+火山的coding plan比agent plan更好吗？我看agent里面模型经常多次提出请求的。另外他家的deepseek pro是 ...</blockquote>
+他codingplan原先直接按token算钱，现在也藏起来不给看了
+
+但是注意他写明了，如果你用来接非coding业务可能封号
+ <blockquote>说明​
+
+在非 AI 编程工具中使用方舟 Coding Plan 权益对应的 Base URL 和 API Key 有可能被识别为滥用/违规，会导致订阅停用或账号封禁。</blockquote>
+[https://console.volcengine.com/a ... 379/1925114?lang=zh](https://console.volcengine.com/ark/region:cn-beijing/docs/82379/1925114?lang=zh)
+
+
+*****
+
+####  wpwing  
+##### 11305#       发表于 2026-8-26 15:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70148363&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-26 14:32</a>
+版本控制skill在opencode跟dsh跟omp互相迁移之间全没了
+而且习惯了做一件事commit一次 结果他一件事没做 ...</blockquote>
+skill控制版本感觉有时候会不靠谱，提示词加一下强调比较保险
+
+*****
+
+####  noneoneone  
+##### 11306#       发表于 2026-8-26 15:17
+
+啥？我昨天刚买了国算的plan，今天就没得玩了？
+话说有没有用网页端讨论实施计划，然后抄下来给flash模型编程用的思路，哪家网页端做计划比较强。
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
