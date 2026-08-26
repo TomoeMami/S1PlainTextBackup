@@ -12061,3 +12061,55 @@ minimax m3在openrouter上免费两周：[https://openrouter.ai/minimax/minimax-
 
 —— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  startraveller  
+##### 11455#       发表于 2026-8-26 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151924&amp;ptid=2275806" target="_blank">f77887 发表于 2026-8-26 23:12</a>
+理论上你能部署智商最高的大模型是千问3.8 27b，但是你又对上下文有要求，所以我建议你可以看看千问3.6a3 ...</blockquote>
+5070ti + 64G内存，nvfp4的35a3b 开64k上下文也卡爆了
+
+*****
+
+####  startraveller  
+##### 11456#       发表于 2026-8-26 23:23
+
+感觉Qwen 3.8 flash应该过两天会有黑科技让Spark能跑的。然后我Kimi 3.1哪去了？
+
+
+*****
+
+####  Azcarlo  
+##### 11457#       发表于 2026-8-26 23:24
+
+智谱牛逼，10w卡集群，还是异构算力
+<img src="https://p.sda1.dev/34/9bb236868ade2d5e22e6f9c8d3cf89f2/image.jpg" referrerpolicy="no-referrer">
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  nxmonitor  
+##### 11458#       发表于 2026-8-26 23:25
+
+算卡数没有意义，10W寒武纪你要吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 11459#       发表于 2026-8-26 23:25
+
+分点给梁叔叔吧<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 11460#       发表于 2026-8-26 23:26
+
+不好说到底啥情况，梁叔叔在0816之前的巅峰期的服务提供量占了多少算力都不好说<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+十万卡这个概念太模糊了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
