@@ -12525,3 +12525,15 @@ PI 更新了，看说明是支持了原生 PowerShell。我还没有测试，不
 gemini3.7在反重力里面写pwsh脚本倒是好像错误率还行，不像ds4f那样不停的重写
 感觉可能是谷歌收集的数据里面有这方面的内容
 
+
+*****
+
+####  claymorep  
+##### 11499#       发表于 2026-8-27 03:22
+
+[https://agentrouter.org/register?aff=3YEd](https://agentrouter.org/register?aff=3YEd)
+
+传火
+
+用了前面坛友的链接
+
