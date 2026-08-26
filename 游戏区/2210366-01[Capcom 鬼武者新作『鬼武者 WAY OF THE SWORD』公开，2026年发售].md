@@ -116,3 +116,29 @@ switch2版优化得不错啊，画面清晰帧数也不错
 
 他的笼手倒是有希望拆下来用一用
 
+
+*****
+
+####  壳壳牛  
+##### 710#       发表于 2026-8-26 09:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146199&amp;ptid=2210366" target="_blank">放大镜 发表于 2026-8-26 09:27</a>
+卡表近五年还整过什么其他二段试玩吗</blockquote>
+荒野就是啊
+第二次demo加了毒怪鸟和高难度锁刃龙
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 放大镜 + 1那是我记岔了，当时也没参加
+
+查看全部评分
+
