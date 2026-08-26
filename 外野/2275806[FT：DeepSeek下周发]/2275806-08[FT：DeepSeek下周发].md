@@ -10555,3 +10555,23 @@ codex的上下文不到1m？我还以为是我中转的问题
 论坛助手,iPhone</blockquote>
 现在是 272k，本来 5.6 发布的时候是 372 k，结果看起来是计费之类的没搞好，又直接缩回 272k 了。
 
+
+*****
+
+####  tk553521  
+##### 11314#       发表于 2026-8-26 16:06
+
+买了commandgo goat，结果用量还是比想象的少，智商似乎也比不上本家的v4fv。
+梁文峰时段难顶啊<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX809J, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  neptunehs  
+##### 11315#       发表于 2026-8-26 16:12
+
+谁知道ox免费到哪一天来着？ox今天速度还行还勉强能用
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

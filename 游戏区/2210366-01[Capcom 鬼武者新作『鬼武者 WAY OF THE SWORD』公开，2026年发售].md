@@ -279,3 +279,67 @@ BOSS打完了，一闪收益最高。还挺爽。
 
 这boss还有一招横劈精防后会顺势继续出招，需要连续精防，不过我是没成功过，也许应该精防接一闪，不过同样没成功过
 
+
+*****
+
+####  Leliel  
+##### 726#       发表于 2026-8-26 16:08
+
+现在唯一怕的就是内容少
+
+卡普空球球做个人
+
+*****
+
+####  杀仁老登  
+##### 727#       发表于 2026-8-26 16:09
+
+ 本帖最后由 杀仁老登 于 2026-8-26 16:13 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">肥仔那个空间真的太仁王了
+
+ScreenShot_2026-08-26_160730_505.jpg
+(441.13 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 16:08 上传
+
+<img src="https://img.stage1st.com/forum/202608/26/160822qf3hcy35dhhyyr90.jpg" referrerpolicy="no-referrer">
+
+ScreenShot_2026-08-26_160905_391.jpg
+(285.24 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 16:09 上传
+
+<img src="https://img.stage1st.com/forum/202608/26/160913ckxztt8dct8kmcc5.jpg" referrerpolicy="no-referrer">
+
+ScreenShot_2026-08-26_160843_708.jpg
+(350.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 16:09 上传
+
+<img src="https://img.stage1st.com/forum/202608/26/160913gg7y7wgrjfjby5dy.jpg" referrerpolicy="no-referrer">
+
+ScreenShot_2026-08-26_161246_291.jpg
+(610.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 16:13 上传
+
+<img src="https://img.stage1st.com/forum/202608/26/161301inzjyf6ksxl6d5jp.jpg" referrerpolicy="no-referrer">
+
+ScreenShot_2026-08-26_161231_033.jpg
+(531.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 16:13 上传
+
+<img src="https://img.stage1st.com/forum/202608/26/161301xkzcekc8vecxpqkk.jpg" referrerpolicy="no-referrer">
+
