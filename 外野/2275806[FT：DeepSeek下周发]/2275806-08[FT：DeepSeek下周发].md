@@ -9347,3 +9347,41 @@ pi+qwen3.8的量化模型就是家庭用户现在的最好选择了……
 
 我是4090D也来试试。
 
+
+*****
+
+####  kitano  
+##### 11213#       发表于 2026-8-26 09:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70143804&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-8-25 18:27</a>
+pi-vcc特别好用，无llm调用的结构化快速压缩，还有让ai能搜整个上下文的回忆功能 ...</blockquote>
+搜索了一下发现有两个，一个400多KB，一个16MB，前者fork后者，最后选了更新时间更近的后者。装好一看，好家伙把演示用的gif塞了进去，足足15MB大，主体还是只有400多KB，赶在ai塞屎山之前先给我拉一坨是吧。
+
+—— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  nianiania  
+##### 11214#       发表于 2026-8-26 09:22
+
+我艹啊，codex的重置卡变成只能加5小时了，史诗级削弱
+
+*****
+
+####  mp5  
+##### 11215#       发表于 2026-8-26 09:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146026&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-8-26 09:02</a>
+
+我显卡24g的4090，现在日常占用是21.7</blockquote>
+24G显存跑Q4量化的qwen3.8 27B能开多大的上下文? 感觉稍微复杂点的东西没有200K以上Q8量化KV都是扛不住的
+
+*****
+
+####  scikirbypoke  
+##### 11216#       发表于 2026-8-26 09:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146157&amp;ptid=2275806" target="_blank">kitano 发表于 2026-8-26 09:21</a>
+搜索了一下发现有两个，一个400多KB，一个16MB，前者fork后者，最后选了更新时间更近的后者。装好一看， ...</blockquote>
+400k那个好像功能更多，反正更新时间也差不多
+

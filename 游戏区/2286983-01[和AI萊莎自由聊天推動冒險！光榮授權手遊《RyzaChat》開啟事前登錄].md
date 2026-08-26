@@ -420,3 +420,13 @@ token 自费?</blockquote>
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  ShiKi847  
+##### 45#       发表于 2026-8-26 09:20
+
+<blockquote>siebten 发表于 2026-8-26 09:14
+这游戏有免费聊吗 不都是付费才能聊吗？</blockquote>
+每天的闹铃叫醒服务是免费的
+
