@@ -11111,3 +11111,60 @@ DeepSeek 收入 4.75 亿、净亏损 7.15 亿
 除了老黄原版，华硕微星超聚变（从华为服务器业务拆出来的部门） ...</blockquote>
 我用过了，其实moe可以，其他都太慢了，我还要ai视频电影
 
+
+*****
+
+####  来都来了  
+##### 11362#       发表于 2026-8-26 20:04
+
+群友们别冲动啊，自己本地组服务器的价钱拿去买API，能蹬到你昏迷。
+
+*****
+
+####  crow_wine  
+##### 11363#       发表于 2026-8-26 20:04
+
+他这个毛利只有电费和折旧还有工资，又不用营销又没有售后等等
+加上超强infra，一点都不奇怪
+
+*****
+
+####  木谷高明  
+##### 11364#       发表于 2026-8-26 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150578&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-26 20:04</a>
+我用过了，其实moe可以，其他都太慢了，我还要ai视频电影</blockquote>
+对，主要是开源模型多了，单独买API乱七八糟还贵。
+
+重度各种开源AI都玩的，自己搭也不贵。
+
+*****
+
+####  自由之紫roy  
+##### 11365#       发表于 2026-8-26 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150585&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-26 20:04</a>
+
+群友们别冲动啊，自己本地组服务器的价钱拿去买API，能蹬到你昏迷。</blockquote>
+qwen 3.8 27b FP8 去审核版了解一下<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 11366#       发表于 2026-8-26 20:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150507&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-26 19:55</a>
+
+不知道能不能算力自由，不过我还是决定把积蓄allin了。放纵一下。</blockquote>
+找个便宜电卖算力给坛友吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  木谷高明  
+##### 11367#       发表于 2026-8-26 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150585&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-26 20:04</a>
+群友们别冲动啊，自己本地组服务器的价钱拿去买API，能蹬到你昏迷。</blockquote>
+就是为了对付不能回答和被请喝茶的情况啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
