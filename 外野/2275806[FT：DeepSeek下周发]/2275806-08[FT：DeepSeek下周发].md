@@ -10203,3 +10203,36 @@ codex的上下文不到1m？我还以为是我中转的问题
 没有，只有注册送一美元，另外他家tps比官方还快    Re:Source</blockquote>
 啊？比官方还快？能到多少？
 
+
+*****
+
+####  →熙←  
+##### 11282#       发表于 2026-8-26 12:46
+
+所以现在只有硅基流动了?还有便宜的0731吗, 不会又要回到梁叔叔怀抱吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  泰坦失足  
+##### 11283#       发表于 2026-8-26 12:48
+
+刚开始买200刀Pro套餐和薅了一大堆API key羊毛后以为自己能一心多用. 最后发现自己的上下文也是有限的. 一般3个窗口就搞不清自己要干什么了.
+
+
+*****
+
+####  qwased  
+##### 11284#       发表于 2026-8-26 12:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反重力吃风控了，提示错误400地区不可用
+
+
+*****
+
+####  舞以  
+##### 11285#       发表于 2026-8-26 12:57
+
+我都没挣扎<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">，梁文峰用gpt，梁文谷用ds官方做补充和执行
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
