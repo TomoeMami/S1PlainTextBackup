@@ -648,3 +648,25 @@ https://x.com/owltl2/status/2092176101745529237?s=46&amp;t=nV2uIRu-sHtAJdsNmHDb-
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+
+*****
+
+####  虚无连斩  
+##### 64#       发表于 2026-8-26 14:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">所谓破甲看着也就这样啊，尺度还不够大啊
+
+—— 来自 vivo V2507A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  siebten  
+##### 65#       发表于 2026-8-26 14:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146632&amp;ptid=2286983" target="_blank">kyonkoism 发表于 2026-8-26 10:27</a>
+
+成功达成恋人关系后背包会有能提醒AI两人关系的戒指还行，意思是其实本身是有成为恋人的可能性的？ ...</blockquote>
+那都是ai自己加的 大概率还是用户自己提示加的 
+
+推上还有更变态的 物品栏里有偷的莱莎的泳装 内裤 喝剩的汤 掉的头发……
+

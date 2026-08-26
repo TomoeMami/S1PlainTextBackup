@@ -166,3 +166,20 @@ switch2版优化得不错啊，画面清晰帧数也不错
 
 游戏一天一个价，现在200多就能拿下了
 
+
+*****
+
+####  kalavinka  
+##### 714#       发表于 2026-8-26 13:58
+
+卡婊现在出的游戏很难没有不虎头蛇尾的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skgaminger1988  
+##### 715#       发表于 2026-8-26 14:01
+
+卡表成本控制的前科太多了，预购不了一点
+
+—— 来自 vivo V2458A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
