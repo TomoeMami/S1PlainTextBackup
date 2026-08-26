@@ -9740,3 +9740,54 @@ pi毫无配置。。我连skill都没装 就装了国内网友做的无限上下
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  空き地卯木  
+##### 11245#       发表于 2026-8-26 11:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146774&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-26 10:46</a>
+模型名称        综合扣减倍率
+
+GLM-5.3        2.29
+
+GLM-5.2        0.90</blockquote>
+算下来和梁文峰时段差不多价格了，这直接大改算法，用完不续了
+
+<img src="https://img.stage1st.com/forum/202608/26/111122br577cdwgzlr6lc2.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1787713881135_1.webp</strong> (21.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 11:11 上传
+
+*****
+
+####  星野あさみ  
+##### 11246#       发表于 2026-8-26 11:13
+
+<img src="https://img.stage1st.com/forum/202608/26/110622el5lo17u7brsgsll.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (111.05 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 11:06 上传
+
+赶在DGX Spark大涨前入了。按这个repo跑起来本地蓝色大肥鱼flash 0731：
+[https://github.com/MiaAI-Lab/DeepSeek-v4-Flash-One-DGX-Spark/](https://github.com/MiaAI-Lab/DeepSeek-v4-Flash-One-DGX-Spark/)
+
+cc里除了自动模式分类器老超时，其他都还行。到时候写个代理把分类请求转到ocg的免费模型上
+
+期待今天晚上的Qwen 3.8 flash next，125B A6B感觉特别合适 <img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王兰花秀丽  
+##### 11247#       发表于 2026-8-26 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146894&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-26 11:02</a>
+有邀请链接吗</blockquote>
+没有，只有注册送一美元，另外他家tps比官方还快    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
