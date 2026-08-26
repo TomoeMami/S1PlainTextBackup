@@ -670,3 +670,13 @@ https://x.com/owltl2/status/2092176101745529237?s=46&amp;t=nV2uIRu-sHtAJdsNmHDb-
 
 推上还有更变态的 物品栏里有偷的莱莎的泳装 内裤 喝剩的汤 掉的头发……
 
+
+*****
+
+####  花开安生  
+##### 66#       发表于 2026-8-26 14:29
+
+这个试用 也必须先订阅才能用就很烦
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

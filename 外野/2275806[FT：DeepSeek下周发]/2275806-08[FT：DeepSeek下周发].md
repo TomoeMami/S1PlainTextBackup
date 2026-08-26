@@ -10310,3 +10310,32 @@ minimaxm3直接把事情搞炸了 还把他的乱七八糟的猜测写进了spec
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  zy450  
+##### 11293#       发表于 2026-8-26 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70148277&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-26 14:21</a>
+
+minimaxm3直接把事情搞炸了 还把他的乱七八糟的猜测写进了spec
+
+我今晚不知道要费多少钱给梁叔叔排雷。。。
+
+ ...</blockquote>
+没有做版本控制吗？
+
+
+*****
+
+####  neptunehs  
+##### 11294#       发表于 2026-8-26 14:32
+
+ 本帖最后由 neptunehs 于 2026-8-26 14:36 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70148344&amp;ptid=2275806" target="_blank">zy450 发表于 2026-8-26 14:30</a>
+没有做版本控制吗？</blockquote>
+版本控制skill在opencode跟dsh跟omp互相迁移之间全没了
+而且习惯了做一件事commit一次 结果他一件事没做好还埋了雷进spec
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

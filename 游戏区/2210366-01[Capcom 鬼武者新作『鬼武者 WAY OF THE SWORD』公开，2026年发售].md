@@ -218,3 +218,14 @@ switch2版优化得不错啊，画面清晰帧数也不错
 
 左下角有个计数器
 
+
+*****
+
+####  黑暗之眼  
+##### 720#       发表于 2026-8-26 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70148263&amp;ptid=2210366" target="_blank">Jabeck 发表于 2026-8-26 14:19</a>
+
+为啥我打过了大胖标题没有挑战的boss？</blockquote>
+流程中使用十次及以上一闪解锁
+
