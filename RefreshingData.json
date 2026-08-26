@@ -2381,7 +2381,7 @@
     "newtitle": "[NSSLG东方幻想少女大战讨论贴 2楼更新汉化steam版2025.10.21发售 新OST!!]",
     "lastedit": 1787495885,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1869442": {
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 71114,
+    "totalreply": 71162,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1787754967,
+    "lastedit": 1787755566,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 11430,
+    "totalreply": 11438,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[DeepSeek V4-Flash-Vision-Exp 上线！多模态来啦｜大模型讨论专楼]",
-    "lastedit": 1787755086,
+    "lastedit": 1787755687,
     "category": "外野",
     "active": true,
     "update": false
@@ -13428,10 +13428,10 @@
     "update": false
   },
   "2184820": {
-    "totalreply": 372,
+    "totalreply": 373,
     "title": "[『攻壳机动队』新作TV动画系列制作决定 2026年 科学猴制作]",
     "newtitle": "[『攻壳机动队』新作TV动画系列制作决定 2026年 科学猴制作]",
-    "lastedit": 1787754966,
+    "lastedit": 1787755565,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14418,10 +14418,10 @@
     "update": false
   },
   "2287573": {
-    "totalreply": 197,
+    "totalreply": 198,
     "title": "[有没有更多的蓝色大肥鱼]",
     "newtitle": "[有没有更多的蓝色大肥鱼]",
-    "lastedit": 1787736248,
+    "lastedit": 1787755446,
     "category": "外野",
     "active": true,
     "update": false
@@ -17145,10 +17145,10 @@
     "update": false
   },
   "2288402": {
-    "totalreply": 125,
+    "totalreply": 126,
     "title": "[传说美国对加拿大提出的贸易协定要求]",
     "newtitle": "[传说美国对加拿大提出的贸易协定要求]",
-    "lastedit": 1787754844,
+    "lastedit": 1787755686,
     "category": "外野",
     "active": true,
     "update": false
@@ -17226,10 +17226,10 @@
     "update": false
   },
   "2288406": {
-    "totalreply": 191,
+    "totalreply": 193,
     "title": "[zt陌生老人进店休息离世，两次协商后赔1.9万，司法部门介入，相关部门提出补贴]",
     "newtitle": "[zt陌生老人进店休息离世，两次协商后赔1.9万，司法部门介入，相关部门提出补贴]",
-    "lastedit": 1787753049,
+    "lastedit": 1787755686,
     "category": "外野",
     "active": true,
     "update": false
@@ -17352,10 +17352,10 @@
     "update": false
   },
   "2287436": {
-    "totalreply": 45,
+    "totalreply": 46,
     "title": "[求教血源诅咒问题，地下监狱只能去一次？怎么再回去？]",
     "newtitle": "[求教血源诅咒问题，地下监狱只能去一次？怎么再回去？]",
-    "lastedit": 1787752087,
+    "lastedit": 1787755565,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17829,19 +17829,19 @@
     "update": false
   },
   "2288578": {
-    "totalreply": 146,
+    "totalreply": 151,
     "title": "[这泥石流太吓人了]",
     "newtitle": "[这泥石流太吓人了]",
-    "lastedit": 1787755086,
+    "lastedit": 1787755686,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2252822": {
-    "totalreply": 84,
+    "totalreply": 85,
     "title": "[赤痕／血污 绯红契约公开，2026年发售]",
     "newtitle": "[赤痕／血污 绯红契约公开，延期至2027年发售]",
-    "lastedit": 1787752687,
+    "lastedit": 1787755325,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17892,10 +17892,10 @@
     "update": false
   },
   "2288589": {
-    "totalreply": 45,
+    "totalreply": 47,
     "title": "[刘翔：要不要买断工龄，在线等，挺急的]",
     "newtitle": "[刘翔：要不要买断工龄，在线等，挺急的]",
-    "lastedit": 1787753646,
+    "lastedit": 1787755686,
     "category": "外野",
     "active": true,
     "update": false
@@ -17905,6 +17905,15 @@
     "title": "[新海诚 新作情报2026年公开预定]",
     "newtitle": "[新海诚 新作情报2026年公开预定]",
     "lastedit": 1787754968,
+    "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2252571": {
+    "totalreply": 55,
+    "title": "[gal归漫アマカノ３（三咲里奈+明羽杏子）]",
+    "newtitle": "[gal归漫アマカノ３（三咲里奈+明羽杏子）]",
+    "lastedit": 1787755566,
     "category": "漫区",
     "active": true,
     "update": false

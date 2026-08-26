@@ -11822,3 +11822,81 @@ gpt算的，感觉眼下可以梁文峰时期用一下？梁文谷还是用fve�
 
 所以glm的页面也是ai在维护<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">    
 
+
+*****
+
+####  自由之紫roy  
+##### 11431#       发表于 2026-8-26 22:41
+
+这个glm 5.3 flash，6bit可以跑在72G显存下，其他专家可以放在ddr5内存里。还是很人性的。
+
+*****
+
+####  squallx  
+##### 11432#       发表于 2026-8-26 22:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151654&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-26 22:35</a>
+
+还在藏？opencode上不是多模态的吗？还是说多模态改得再加钱</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那个多模态就非常迷 喂小图可以大图就断链
+
+*****
+
+####  →熙←  
+##### 11433#       发表于 2026-8-26 22:42
+
+缓存不改,依然是要找梁叔叔<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+<strong>【单价】</strong>
+<strong>项目</strong><strong>GLM5.3flash</strong><strong>DS4FV高峰期</strong><strong>DS4FV低谷期</strong>输入（命中缓存）0.23元/百万0.1元/百万0.05元/百万输入（未命中）0.8元/百万3元/百万1.5元/百万输出2.8元/百万9元/百万4.5元/百万
+
+<strong>【费用明细】</strong>（基于2026-08-26当天用量：命中192,112,000 / 未命中1,172,179 / 输出711,031）
+<strong>费用项目</strong><strong>GLM5.3flash</strong><strong>DS4FV高峰期</strong><strong>DS4FV低谷期</strong>输入（命中缓存）44.19元19.21元9.61元输入（未命中）0.94元3.52元1.76元输出1.99元6.40元3.20元<strong>总费用</strong><strong>47.11元</strong><strong>29.13元</strong><strong>14.56元</strong>
+
+*****
+
+####  Rowen233  
+##### 11434#       发表于 2026-8-26 22:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151646&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-26 22:33</a>
+
+哦，牛来的api还是纯文本？
+
+如果不是glm草台了，那真的不如继续孝敬梁叔叔了 ...</blockquote>
+不是有vision吗
+
+*****
+
+####  mortal1976  
+##### 11435#       发表于 2026-8-26 22:43
+
+过去一周，我们已在一个大规模的中国AI芯片集群上运行GLM-5.3-Flash，支持高带宽互连和针对底层硬件优化的服务栈。
+
+在集群规模下，我们的生产级编码-预填充-解码（EPD）拆分架构将多模编码、提示预填充和逐符号解码分离为独立调度且可扩展的工作池，实现数万台国产加速器的高效可靠服务。
+
+与同一硬件的初始基线相比，我们在端到端服务性能提升了3×，实现了与主流NVIDIA GPU相当的硬件效率和单代币成本。这表明中国芯片能够高效且经济地大规模支持前沿模型推断。
+
+
+*****
+
+####  tonyunreal  
+##### 11436#       发表于 2026-8-26 22:46
+
+开蹬了，我发现在扣新用户权益的2百万token
+
+*****
+
+####  chaoliu  
+##### 11437#       发表于 2026-8-26 22:46
+
+说起来现在看来年初的dgs spark是不是已经算是性价比产品了；
+
+小型化，能单台装dsv4f<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">有点后悔年初没有让朋友从美帝带回来
+
+*****
+
+####  Promeus  
+##### 11438#       发表于 2026-8-26 22:46
+
+下一个k3级可能是hy4？
+
