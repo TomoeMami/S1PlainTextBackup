@@ -42,3 +42,15 @@
 
 加强对迪奥加卡池蓝盾艾比昂好阴啊，分分钟一V五，谁用谁知道<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一个陆仁贾  
+##### 4630#       发表于 2026-8-26 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70148915&amp;ptid=2071758" target="_blank">demon6666 发表于 2026-8-26 15:49</a>
+加强对迪奥加卡池蓝盾艾比昂好阴啊，分分钟一V五，谁用谁知道</blockquote>
+双头龙加反击盾的三黄两蓝的组合我已经遇到了
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

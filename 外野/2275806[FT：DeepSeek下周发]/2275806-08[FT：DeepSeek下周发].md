@@ -10643,3 +10643,30 @@ codex的上下文不到1m？我还以为是我中转的问题
 本地小模型能干这活不 ...</blockquote>
 qwen3.8 27b看起来应该是小模型，但是也不是一般条件能部署，可以试一试比较小的moe模型看看？再小的模型智力直接不达标了
 
+
+*****
+
+####  唠叨  
+##### 11321#       发表于 2026-8-26 17:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70149397&amp;ptid=2275806" target="_blank">requiem116 发表于 2026-8-26 16:59</a>
+
+就简单搓个连模拟器的自动脚本结果吃了我20+
+
+还得我自己手动截图一步一步给他说逻辑
+
+本地小模型能干这活不 ...</blockquote>
+你用v4fv啊 告诉他 你是多模态模型 可以自己截图看
+
+
+*****
+
+####  RookieTnT  
+##### 11322#       发表于 2026-8-26 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70149443&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-8-26 17:05</a>
+qwen3.8 27b看起来应该是小模型，但是也不是一般条件能部署，可以试一试比较小的moe模型看看？再小的模型 ...</blockquote>
+qwen 一般人真可以部署了 3 张魔改 2080ti 就行了 
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
