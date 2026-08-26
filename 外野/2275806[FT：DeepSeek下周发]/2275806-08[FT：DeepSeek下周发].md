@@ -12252,3 +12252,11 @@ glm v2 lite 老套餐 非高峰期5h能跑100M..
 
 就说这模型雷霆大思考了，而且我觉得智谱也有点刷分嫌疑，前几天试了一下GLM5.3，感觉表现对不上分数，并不如K3……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RookieTnT  
+##### 11475#       发表于 2026-8-26 23:49
+
+说了用国产算力提供服务的，还点了是通过自研高带宽网络互联，直接点名了呗，中科曙光的scalefabic 那就是郑州的那个国家超算核心节点呗，海光的gpu
+
