@@ -12268,3 +12268,33 @@ glm v2 lite 老套餐 非高峰期5h能跑100M..
 
 好了，阿里这个3.8Flash也有雷霆大思考的倾向……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 11477#       发表于 2026-8-27 00:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152196&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-27 00:05</a>
+
+好了，阿里这个3.8Flash也有雷霆大思考的倾向……</blockquote>
+你在哪用的，自己部署的话估计还是得用思维链修复那个补丁，qwen好像不认识llamacpp的输出格式导致他自己没法区分思考和正文输出
+
+*****
+
+####  f77887  
+##### 11478#       发表于 2026-8-27 00:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151972&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-26 23:21</a>
+5070ti + 64G内存，nvfp4的35a3b 开64k上下文也卡爆了</blockquote>
+不能啊，我用5080+48g内存，用a3b还是很丝滑的
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  goranger  
+##### 11479#       发表于 2026-8-27 00:14
+
+为了让更多新朋友能 0 成本上手体验 GLM-5.3-Flash，我们准备了一批 GLM Coding Plan 7 天体验卡（从未订阅过套餐的用户可领取）： 接下来一周，每天限量发放 10,000 张。同时，我们也已重置所有套餐用户账号内的体验卡数量，欢迎分享安利给你的更多朋友。 领取链接： [https://bigmodel.cn/activity/trial-card/PU9MTWG0PM](https://bigmodel.cn/activity/trial-card/PU9MTWG0PM)   继续白嫖ox模型一周
+
