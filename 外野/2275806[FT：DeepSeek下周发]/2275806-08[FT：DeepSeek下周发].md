@@ -10249,3 +10249,11 @@ codex的上下文不到1m？我还以为是我中转的问题
 
 不过Oracle V P S上机房IP运行的CLI+Jio订阅, 以为是必死的. 结果居然让我过了. 神奇
 
+
+*****
+
+####  qwased  
+##### 11287#       发表于 2026-8-26 13:14
+
+[https://huggingface.co/froggeric/Qwen-Fixed-Chat-Templates](https://huggingface.co/froggeric/Qwen-Fixed-Chat-Templates)  这个装完qwen3.8的思考正常多了
+
