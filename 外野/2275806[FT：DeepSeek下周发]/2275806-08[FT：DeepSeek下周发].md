@@ -11004,3 +11004,16 @@ ai企业基本就没有毛利低的，毕竟严格说成本就是电费，毛利
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  绕指流光  
+##### 11354#         楼主| 发表于 2026-8-26 19:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150377&amp;ptid=2275806" target="_blank">lly778 发表于 2026-8-26 19:34</a>
+ai企业基本就没有毛利低的，毕竟严格说成本就是电费，毛利低还怎么负担研发费用和固定资产摊销。 ...</blockquote>
+这位坛友是否对毛利没啥概念，毛利 82.9 意味着利润快达到成本的 5 倍了，长江电力才 65<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">再往上只有创新药跟茅台能到 90+
+ 就 A➗这个水平都算是垄断行业才有的水平，相当于自来水厂的，A 股平均毛利率才 20+
+
+—— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
