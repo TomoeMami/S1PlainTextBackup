@@ -12113,3 +12113,82 @@ minimax m3在openrouter上免费两周：[https://openrouter.ai/minimax/minimax-
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  qz66618  
+##### 11461#       发表于 2026-8-26 23:30
+
+我看了看智谱的博客已经千问新模型的介绍，智谱这个小模型感觉是正常的一次迭代升级，就像DS-flash一样。千问这个目前看跑分确实厉害，它这次采用了Ngram也算是证明了这个技术确实能给模型带来提升，看看后续DS版本能不能尝试引入
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  王兰花秀丽  
+##### 11462#       发表于 2026-8-26 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151992&amp;ptid=2275806" target="_blank">Azcarlo 发表于 2026-8-26 23:24</a>
+智谱牛逼，10w卡集群，还是异构算力</blockquote>
+歪个楼，这个晚点是新出的媒体吗，最近一年能看见很多他们独家的报道，信息量都不少    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  qz66618  
+##### 11463#       发表于 2026-8-26 23:32
+
+不过智谱真的是开源享受者啊，我看DS的mhc也被他们用到这个新的flash模型里了，不知道他们下一个大版本模型会采用哪些技术
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  nxmonitor  
+##### 11464#       发表于 2026-8-26 23:32
+
+真不要相信Qwen的跑分，3.8-max跑分和K3一样但是实测明显偏高了，3.8-27B小模型很厉害但也没号称的那么强……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 11465#       发表于 2026-8-26 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151972&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-26 23:21</a>
+
+5070ti + 64G内存，nvfp4的35a3b 开64k上下文也卡爆了</blockquote>
+根据我的体验，moe模型不能全放进显存里面其实也挺屎的<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  德尔惠净水器  
+##### 11466#       发表于 2026-8-26 23:34
+
+<blockquote>Azcarlo 发表于 2026-8-26 23:24
+智谱牛逼，10w卡集群，还是异构算力
+
+</blockquote>
+主要还是昇腾吧
+
+*****
+
+####  舞以  
+##### 11467#       发表于 2026-8-26 23:36
+
+唐叔叔**方方拿来主义<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+智谱这家公司的核心竞争优势也不在技术领袖<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  goranger  
+##### 11468#       发表于 2026-8-26 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151914&amp;ptid=2275806" target="_blank">andychen 发表于 2026-8-26 23:11</a>
+
+minimax m3在openrouter上免费两周：https://openrouter.ai/minimax/minimax-m3:free
+
+免费完估计也要发新 ...</blockquote>
+正常人都是拿新模型让大家免费体验，他到处搞活动免费两周，已经看到两三家了，拿自己家旗舰模型免费这么久，不就说明拉到一定程度了，实在没人用自己家算力用不完了。哎，我也希望它能知耻后勇，不然我这个年付套餐实在是食之无味弃之可惜
+
