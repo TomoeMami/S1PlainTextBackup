@@ -10771,3 +10771,29 @@ Ilya 的SSI 又又又又又又又传出来消息说搞出来持续学习了...
 
 你不写是什么坑，我当然要试试，所以问题是后面补的注释还是没写
 
+
+*****
+
+####  舞以  
+##### 11333#       发表于 2026-8-26 18:34
+
+codex的上下文可以自己改设置文件解锁1m，但是官方应该也是明说了在272k以上时，token价格/限额消耗会明显升高，我记得是1.5倍还是两倍？
+反正现在默认锁272k是为了让普通用户的限额维持用量，反正codex的上下文压缩做得还挺不错的<img src="https://static.stage1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  eno_emos  
+##### 11334#       发表于 2026-8-26 18:35
+
+<img src="https://img.stage1st.com/forum/202608/26/183514qdm6mvc8qxx4vvnm.jpg" referrerpolicy="no-referrer">
+
+<strong>fedcd046e0538907bb365e5da0d9de27.jpg</strong> (128.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 18:35 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">然而一到晚上就被全球一起蹬爆
+
