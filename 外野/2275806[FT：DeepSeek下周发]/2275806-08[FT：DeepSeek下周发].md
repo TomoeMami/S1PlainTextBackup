@@ -11430,3 +11430,31 @@ qwen干嘛要挑这么一个奇怪的大小
 
 其他的大厂比ds严肃多了，会犯这种错误？
 
+
+*****
+
+####  qwased  
+##### 11394#       发表于 2026-8-26 21:32
+
+牛来好像说10点发 glm5.3flash
+
+
+*****
+
+####  舞以  
+##### 11395#       发表于 2026-8-26 21:34
+
+牛来我感觉会是glm订阅者的好消息<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  neptunehs  
+##### 11396#       发表于 2026-8-26 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151170&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-26 21:32</a>
+牛来好像说10点发 glm5.3flash</blockquote>
+免费期间结束了吗 哎
+期待明天能有qwennextflash的免费接上
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
