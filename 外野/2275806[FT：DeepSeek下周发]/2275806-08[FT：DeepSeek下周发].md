@@ -10797,3 +10797,56 @@ codex的上下文可以自己改设置文件解锁1m，但是官方应该也是�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">然而一到晚上就被全球一起蹬爆
 
+
+*****
+
+####  自由之紫roy  
+##### 11335#       发表于 2026-8-26 18:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150066&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-8-26 18:35</a>
+
+然而一到晚上就被全球一起蹬爆</blockquote>
+这个开源嘛？
+
+*****
+
+####  舞以  
+##### 11336#       发表于 2026-8-26 18:38
+
+看价格了，能不能正面重拳出击梁子<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cscbzcbz  
+##### 11337#       发表于 2026-8-26 18:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150066&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-8-26 18:35</a>
+然而一到晚上就被全球一起蹬爆</blockquote>
+都猜到了，毫无悬念
+Z/的东西便宜不了，比flash峰值便宜算我输<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  →熙←  
+##### 11338#       发表于 2026-8-26 18:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">智谱我还有plan, 能多蹬多少
+
+*****
+
+####  舞以  
+##### 11339#       发表于 2026-8-26 18:41
+
+估计折算成订阅消耗会更便宜吧，但是我不想订😢
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nxmonitor  
+##### 11340#       发表于 2026-8-26 18:43
+
+定价比V4FV高就没意义…
+
