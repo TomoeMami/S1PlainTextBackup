@@ -10706,3 +10706,15 @@ qwen 一般人真可以部署了 3 张魔改 2080ti 就行了
 读图反而很成功 ...</blockquote>
 你得提醒他  你是一个多模态模型<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大暴死  
+##### 11326#       发表于 2026-8-26 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70123080&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-21 22:56</a>
+本来还说本地部署一个小视觉模型辅助，现在已经完全没必要了</blockquote>
+我上周把这事儿做了，用的qwen2.5-vl-7B模型4bit量化版，通过ollama本地代理<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
