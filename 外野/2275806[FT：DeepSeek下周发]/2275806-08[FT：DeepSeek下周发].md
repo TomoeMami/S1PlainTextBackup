@@ -10913,3 +10913,16 @@ qwen3.8 27b apex mini跑出来的，中间他要识图debug才发现PI居然不�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  来都来了  
+##### 11346#       发表于 2026-8-26 19:11
+
+ 本帖最后由 来都来了 于 2026-8-26 19:13 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70149632&amp;ptid=2275806" target="_blank">requiem116 发表于 2026-8-26 17:32</a>
+切换了v4fv，但是不知道是不是为我省钱还是咋的都是优先ocr，倒腾半天不行偶尔读一次图
+
+读图反而很成功 ...</blockquote>
+你的Agent有问题，换Pi解决这些乱七八糟的问题。
+
