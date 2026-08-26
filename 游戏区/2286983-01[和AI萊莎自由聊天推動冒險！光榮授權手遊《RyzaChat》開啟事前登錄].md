@@ -430,3 +430,33 @@ token 自费?</blockquote>
 这游戏有免费聊吗 不都是付费才能聊吗？</blockquote>
 每天的闹铃叫醒服务是免费的
 
+
+*****
+
+####  siebten  
+##### 46#       发表于 2026-8-26 09:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">逛了下推 输入只能两百个字 破限没戏了 想和莱莎贴贴就会强制回复说都是你自己乱想的幻觉 
+
+但是也有绕过的 比如什么开头重伤让莱莎感到负罪感照顾自己就能搂搂抱抱 还有告白成功成为恋人的 
+
+
+*****
+
+####  来都来了  
+##### 47#       发表于 2026-8-26 09:46
+
+能破限蹬莱莎吗？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 48#       发表于 2026-8-26 09:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146307&amp;ptid=2286983" target="_blank">siebten 发表于 2026-8-26 09:40</a>
+
+逛了下推 输入只能两百个字 破限没戏了 想和莱莎贴贴就会强制回复说都是你自己乱想的幻觉 
+
+但是也有绕过的 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有链接么，想看看怎么告白成功成为恋人的
+
