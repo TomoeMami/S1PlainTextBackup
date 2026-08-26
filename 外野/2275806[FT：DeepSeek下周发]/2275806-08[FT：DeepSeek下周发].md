@@ -10521,3 +10521,24 @@ coding plan比agent plan适合编程。agent plan不知它是怎么设的，很�
 traework 每天领的积分都够七八轮了
 普通问题用内置的 dsv4f 虽然是high 的思考强度但胜在速度快还便宜
 
+
+*****
+
+####  →熙←  
+##### 11311#       发表于 2026-8-26 15:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147951&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-26 13:35</a>
+
+你想多了，硅基流动也要涨了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">不是吧, 消息哪里来的, 别最后只有梁叔叔可用了
+
+*****
+
+####  zhongjie  
+##### 11312#       发表于 2026-8-26 15:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70148705&amp;ptid=2275806" target="_blank">中国人 发表于 2026-8-26 15:20</a>
+
+coding plan比agent plan适合编程。agent plan不知它是怎么设的，很容易卡断。deepseek pro还没有接入新 ...</blockquote>
+OK，因为我看直接拉取的模型名称里面有v4 pro ga，以为是有正式版的。不过直接用模型名称得用deepseek v4 pro，不带后缀
+
