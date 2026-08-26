@@ -10257,3 +10257,13 @@ codex的上下文不到1m？我还以为是我中转的问题
 
 [https://huggingface.co/froggeric/Qwen-Fixed-Chat-Templates](https://huggingface.co/froggeric/Qwen-Fixed-Chat-Templates)  这个装完qwen3.8的思考正常多了
 
+
+*****
+
+####  kinfox  
+##### 11288#       发表于 2026-8-26 13:25
+
+<blockquote>qwased 发表于 2026-8-26 13:14
+https://huggingface.co/froggeric/Qwen-Fixed-Chat-Templates  这个装完qwen3.8的思考正常多了</blockquote>
+是的 这个插件是必备的 我好像忘记提这个了。是因为有它和pi在一起 会好用很多
+
