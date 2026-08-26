@@ -10096,3 +10096,70 @@ image.png
 国算的蹬完走人了，我蹬的量是多，但是他这服务太烂了，而且价格也说不上好，各种bug。
 260的套餐感觉很差，后面变回500更是路边一条
 
+
+*****
+
+####  唠叨  
+##### 11273#       发表于 2026-8-26 12:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147412&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-26 12:03</a>
+
+缓存不便宜啊, 还是说有下面还有小数</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/26/121446yv43nv0v32t4a202.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-08-26_121421_188.jpg</strong> (30.29 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 12:14 上传
+
+我知足了 先蹬为敬
+
+*****
+
+####  ivly  
+##### 11274#       发表于 2026-8-26 12:15
+
+ 本帖最后由 ivly 于 2026-8-26 12:16 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147364&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-26 11:56</a>
+
+有16g都可以用了，参考这个方案，我自己实测无mtp qwen3.8 apex nano（等效q3k量化）可以192k上下文，ape ...</blockquote>
+速度如何？我4080玩27b q3 xxs 和q3 xl 分别到120k和80k,速度在40-70之间。为了给桌面留点显存。
+
+哦，你把其他放内存或者cpu啊，我是全放显存。
+
+
+*****
+
+####  UncleDracula  
+##### 11275#       发表于 2026-8-26 12:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147500&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-26 12:15</a>
+
+我知足了 先蹬为敬</blockquote>
+实际蹬起来体验不是很便宜，几个小任务就蹬了14块了，当作文峰时间的替代也有点肉疼
+
+*****
+
+####  qwased  
+##### 11276#       发表于 2026-8-26 12:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147502&amp;ptid=2275806" target="_blank">ivly 发表于 2026-8-26 12:15</a>
+速度如何？我4080玩27b q3 xxs 和q3 xl 分别到120k和80k,速度在40-70之间。为了给桌面留点显存。
+
+哦，你把 ...</blockquote>
+视觉放cpu基本没有影响，反而可以解放一大块显存给上下文
+跑mini的输出速度45tk/s，上下文到30k开始会慢慢降速，到60k之后降到20tk/s，配合无llm上下文压缩插件凑合能用了
+
+
+*****
+
+####  唠叨  
+##### 11277#       发表于 2026-8-26 12:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147538&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-8-26 12:22</a>
+
+实际蹬起来体验不是很便宜，几个小任务就蹬了14块了，当作文峰时间的替代也有点肉疼 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">没办法啊  同样的任务用其他模型要么更贵  要么效率太低
+
