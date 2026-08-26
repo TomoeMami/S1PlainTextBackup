@@ -9591,3 +9591,57 @@ pi 的配置有吗
 —— 来自 S1Fun</blockquote>
 pi毫无配置。。我连skill都没装 就装了国内网友做的无限上下文压缩插件，就没有了。。模型本地部署是llm干的活，
 
+
+*****
+
+####  kitano  
+##### 11235#       发表于 2026-8-26 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146453&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-26 10:03</a>
+刚好我昨天了解了一下这个东西，今天想给装上。能讲一下这两个的全名分别是什么吗？到时候避坑用。 ...</blockquote>
+小的那个是@monotykamary/pi-vcc，大的那个是@sting8k/pi-vcc，小的是大的分支，文档相对更详细。虽然装了但还没用过，还在折腾如何持续停留在晋升状态和用更小的消耗搜索，目前用#8649的和pi-deepseek-search，但即使是文谷时段还是有点贵
+
+—— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  唠叨  
+##### 11236#       发表于 2026-8-26 10:46
+
+模型名称        综合扣减倍率
+
+GLM-5.3        2.29
+
+GLM-5.2        0.90
+
+GLM-5.1        1.33
+
+GLM-5        1.08
+
+DeepSeek-V4-Pro-0813        1.35
+
+DeepSeek-V4-Pro        1.06
+
+DeepSeek-V4-Flash        0.13
+
+DeepSeek-V4-Flash-0731        0.61
+
+Kimi-K3        4.12
+
+Kimi-K2.7-Code        1.00
+
+Kimi-K2.6        1.00
+
+Kimi-K2.5        0.65
+
+MiniMax-M3        0.43
+
+MiniMax-M2.7        0.43
+
+MiniMax-M2.5        0.30
+
+Qwen3.8-max        2.00
+
+国算的v4f正式版是不是涨价了   go的降智 基元的卡  现在哪里有便宜又好用的v4f呢  有v4fv就更好了
+

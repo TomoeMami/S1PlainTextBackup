@@ -73,3 +73,11 @@
 steam 页面已经有了
 [https://store.steampowered.com/app/3418870](https://store.steampowered.com/app/3418870)
 
+
+*****
+
+####  九耳  
+##### 62#       发表于 2026-8-26 10:36
+
+一股子异味，既没有HD2D的大马赛克美感，也没有CRT低解的模糊美感………………啊，明明我很喜欢这游戏的
+
