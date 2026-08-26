@@ -9645,3 +9645,21 @@ Qwen3.8-max        2.00
 
 国算的v4f正式版是不是涨价了   go的降智 基元的卡  现在哪里有便宜又好用的v4f呢  有v4fv就更好了
 
+
+*****
+
+####  wesdrtfg  
+##### 11237#       发表于 2026-8-26 10:49
+
+gpt5.6 sol真的是宇宙级别的不说人话+思路清奇<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，这几天做各种性能调试，各种造自己的黑话词汇，想看懂必须得让他主动解释所有的概念，强迫让人主动放弃思考。用久了真的想爆炒altman老冯
+
+*****
+
+####  neptunehs  
+##### 11238#       发表于 2026-8-26 10:53
+
+minimax免费爽蹬是爽了 智力真是不够 v4fv跑两次能解决的他一个上午还在转
+不过反正免费 不强求
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
