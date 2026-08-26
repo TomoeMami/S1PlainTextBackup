@@ -12571,3 +12571,35 @@ Minimax也在财报电话会上预告了3t的m3pro和即将上线的国产算力
 
 你用pwsh，怪不得你塞车
 
+
+*****
+
+####  舞以  
+##### 11504#       发表于 2026-8-27 07:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">pro模型好像有变化了？
+
+刚刚用它做审查，发现在极简/anchored模式下的思维链也是let me了，但是cot/工具调用的行为和标准还是有明显变化。
+
+极简/anchored仍然是那种利索的感觉，标准上来就啰里八嗦，极简还会出中文思维链了。
+
+梁叔叔不会真的在修了吧？
+
+*****
+
+####  qqq2142  
+##### 11505#       发表于 2026-8-27 07:28
+
+dhs 有没有破限的办法
+我想让他帮我反推 r18 图片提提示词
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  squallx  
+##### 11506#       发表于 2026-8-27 07:35
+
+DSH本地干活选哪种长期记忆？OpenViking树状  还是dsh-memory简洁平铺？ 我看GPT说现在的CODEX也改用多层复杂结构了 
+
