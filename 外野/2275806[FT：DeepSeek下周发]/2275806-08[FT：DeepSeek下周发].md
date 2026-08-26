@@ -11372,3 +11372,61 @@ ds专门发了篇论文，他们叫Engram，梁叔叔都署名了。
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  cscbzcbz  
+##### 11388#       发表于 2026-8-26 21:19
+
+缓存只要和flash涨价前一样，就是黄金时代再来<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+缓存真的是大头
+
+*****
+
+####  neptunehs  
+##### 11389#       发表于 2026-8-26 21:20
+
+qwen干嘛要挑这么一个奇怪的大小
+正好iq1 24g显卡也玩不起 但如果上api又有点太小的大小
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  城北无尘  
+##### 11390#       发表于 2026-8-26 21:21
+
+牛来真是glm啊
+
+
+*****
+
+####  舞以  
+##### 11391#       发表于 2026-8-26 21:22
+
+实验性吧，n-gram embedding规模是51b，占总参数量的大约29%了，这个选择挺激进的，ds测试的结果一般是20%左右比较合适。
+
+再大的规模可能测试代价和风险就太高了？
+
+*****
+
+####  qwased  
+##### 11392#       发表于 2026-8-26 21:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151053&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-26 21:20</a>
+qwen干嘛要挑这么一个奇怪的大小
+正好iq1 24g显卡也玩不起 但如果上api又有点太小的大小</blockquote>
+用那个啥freetoken好像能把ngram放ssd上，128g内存随便配个16g显卡就能跑的样子
+
+*****
+
+####  舞以  
+##### 11393#       发表于 2026-8-26 21:25
+
+我觉得0731-0816这段好时光回不来的
+
+这段好时光本质是当时ds的价格太低了，甚至算是定价失误了
+
+其他的大厂比ds严肃多了，会犯这种错误？
+
