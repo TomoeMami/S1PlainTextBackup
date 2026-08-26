@@ -10963,3 +10963,44 @@ DeepSeek 收入 4.75 亿、净亏损 7.15 亿
 
 —— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  lly778  
+##### 11350#       发表于 2026-8-26 19:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150336&amp;ptid=2275806" target="_blank">绕指流光 发表于 2026-8-26 19:28</a>
+
+DeepSeek 收入 4.75 亿、净亏损 7.15 亿
+
+据 The Information 报道，DeepSeek 2026 年前 7 个月实现营收约 4 ...</blockquote>
+ai企业基本就没有毛利低的，毕竟严格说成本就是电费，毛利低还怎么负担研发费用和固定资产摊销。
+
+*****
+
+####  舞以  
+##### 11351#       发表于 2026-8-26 19:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">营收才这点？
+
+那这api真卖便宜了
+
+
+*****
+
+####  overflowal  
+##### 11352#       发表于 2026-8-26 19:42
+
+现在问题还是钱花不出去啊，太难了，梁子手里全是钱，没货    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  杀人鲸  
+##### 11353#       发表于 2026-8-26 19:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150408&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-8-26 19:42</a>
+现在问题还是钱花不出去啊，太难了，梁子手里全是钱，没货    Re:Source</blockquote>
+缺算力，缺卡呀！哎，什么时候才能够算力自由呀？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -531,3 +531,13 @@ pc的话cdk比这个价还低吧。。
 
 打完了 过的时候差不多无伤了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">不过一闪好难，找不到时间点，都是弹过去的
 
+
+*****
+
+####  超极巨鲨鲨  
+##### 750#       发表于 2026-8-26 19:44
+
+这隐藏boss打起来真爽啊，越来越期待正式版了<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
