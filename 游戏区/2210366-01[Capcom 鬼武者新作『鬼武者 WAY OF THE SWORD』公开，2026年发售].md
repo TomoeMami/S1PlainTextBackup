@@ -651,3 +651,11 @@ pc的话cdk比这个价还低吧。。
 
 最后打到过了都不会处理中距离的拖刀上撩...<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eyesdrink  
+##### 763#       发表于 2026-8-27 02:07
+
+百秽抓它那几个固定连段一闪就行了，开局三个一闪直接红槽干空了，效率比搁哪硬弹高多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
