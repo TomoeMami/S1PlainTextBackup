@@ -659,3 +659,21 @@ pc的话cdk比这个价还低吧。。
 
 百秽抓它那几个固定连段一闪就行了，开局三个一闪直接红槽干空了，效率比搁哪硬弹高多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windlikeman  
+##### 764#       发表于 2026-8-27 02:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">对了 之前打佐佐木的时候以为残血打空槽那个居合是特殊处决
+
+这次发现原来是兼用卡！打猪和白秽都是这个居合
+
+
+*****
+
+####  我王  
+##### 765#       发表于 2026-8-27 02:24
+
+我是防御然后挑破绽大的招数一闪打的比较快，纯一闪容易在某些起手招式翻车，没那么高手
+
