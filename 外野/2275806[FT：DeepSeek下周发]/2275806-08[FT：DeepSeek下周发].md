@@ -12383,3 +12383,36 @@ runinfra挺好的 速度很快 比官网也便宜
 本来白天都要冲run ...</blockquote>
 commandcode跑v4f缓存0.03美元，是官网梁文峰时候的2倍了啊，梁文谷的4倍
 
+
+*****
+
+####  →熙←  
+##### 11486#       发表于 2026-8-27 01:00
+
+给ai丢几百万的采样数据,让他弄弄一个识别的通讯数据的算法
+
+flash 一个个穷举
+
+pro直接卷积
+
+参数量大就是了不起啊<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  海德先生  
+##### 11487#       发表于 2026-8-27 01:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">黄金时代啊，你何日再来
+
+*****
+
+####  startraveller  
+##### 11488#       发表于 2026-8-27 01:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152228&amp;ptid=2275806" target="_blank">f77887 发表于 2026-8-27 00:12</a>
+不能啊，我用5080+48g内存，用a3b还是很丝滑的
+
+—— 来自 HONOR AAP-AN00, Android 16, 鹅球 v4.0 ...</blockquote>
+上下文实际占多了就暴跌到10tps出头了
+
