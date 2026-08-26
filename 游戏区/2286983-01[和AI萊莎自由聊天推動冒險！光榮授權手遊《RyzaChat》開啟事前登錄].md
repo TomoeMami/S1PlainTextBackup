@@ -680,3 +680,20 @@ https://x.com/owltl2/status/2092176101745529237?s=46&amp;t=nV2uIRu-sHtAJdsNmHDb-
 
 —— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  HOBBITXDD  
+##### 67#       发表于 2026-8-26 14:37
+
+推特看到的<img src="https://static.stage1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/av.gif" referrerpolicy="no-referrer">
+
+8cszJG_c8i2HiVx-.mp4
+(651.44 KB, 下载次数: 4)
+
+2026-8-26 14:37 上传
+
+点击文件名下载附件
+
