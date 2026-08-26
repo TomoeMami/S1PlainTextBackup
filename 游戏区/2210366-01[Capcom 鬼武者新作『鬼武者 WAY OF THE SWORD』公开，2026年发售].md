@@ -567,3 +567,13 @@ pc的话cdk比这个价还低吧。。
 
 其他几个系统都没问题，就是一闪和连锁一闪总是抓不到对的时机<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  若菜  
+##### 754#       发表于 2026-8-26 23:59
+
+百秽在官网只是精英怪，和一目笠放在一个分类的<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。那些会说话的才放在强敌，比如胖子，有很明显的转场二阶段。
+
+百秽游戏里正式出场会配有杂兵群的。
+

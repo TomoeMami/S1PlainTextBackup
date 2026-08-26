@@ -12260,3 +12260,11 @@ glm v2 lite 老套餐 非高峰期5h能跑100M..
 
 说了用国产算力提供服务的，还点了是通过自研高带宽网络互联，直接点名了呗，中科曙光的scalefabic 那就是郑州的那个国家超算核心节点呗，海光的gpu
 
+
+*****
+
+####  nxmonitor  
+##### 11476#       发表于 2026-8-27 00:05
+
+好了，阿里这个3.8Flash也有雷霆大思考的倾向……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
