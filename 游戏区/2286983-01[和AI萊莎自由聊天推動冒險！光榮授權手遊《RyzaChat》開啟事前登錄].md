@@ -708,3 +708,23 @@ https://x.com/owltl2/status/2092176101745529237?s=46&amp;t=nV2uIRu-sHtAJdsNmHDb-
 
 —— 来自 vivo V2547A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  ParadiseMartyr  
+##### 69#       发表于 2026-8-26 16:31
+
+ 本帖最后由 ParadiseMartyr 于 2026-8-26 16:33 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你得先买会员才能充钱用voice功能，但是他会员送的免费回数你并不能用来voice对话只能文字
+
+<img src="https://img.stage1st.com/forum/202608/26/163110qn2qr2sslnlx9y2q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-08-26-15-44-08-035_com.twitter.android.jpg</strong> (369.07 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 16:31 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
