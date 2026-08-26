@@ -9565,3 +9565,29 @@ RPG俄罗斯方块.html
 号脏了都是怎么判断的 ...</blockquote>
 使用也要梯子，号脏了的话你充钱那个页面它会说你的地址不支持御三家的
 
+
+*****
+
+####  真红之闪电  
+##### 11233#       发表于 2026-8-26 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70145910&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-8-26 08:45</a>
+我电脑就是个单显卡4090 24g的电脑…………跑q4_k_m 差不多60速度输出
+
+qwen3.8是本地模型里面对家用显卡 ...</blockquote>
+pi 的配置有吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  kinfox  
+##### 11234#       发表于 2026-8-26 10:36
+
+<blockquote>真红之闪电 发表于 2026-8-26 10:30
+pi 的配置有吗
+
+—— 来自 S1Fun</blockquote>
+pi毫无配置。。我连skill都没装 就装了国内网友做的无限上下文压缩插件，就没有了。。模型本地部署是llm干的活，
+

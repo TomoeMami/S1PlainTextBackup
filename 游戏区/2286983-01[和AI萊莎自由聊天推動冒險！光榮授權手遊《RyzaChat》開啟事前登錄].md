@@ -483,3 +483,35 @@ token 自费?</blockquote>
 
 看不出来 因为记忆力不行还需要靠物品栏里塞订婚戒指提醒莱莎2333
 
+
+*****
+
+####  kyonkoism  
+##### 51#       发表于 2026-8-26 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146572&amp;ptid=2286983" target="_blank">siebten 发表于 2026-8-26 10:18</a>
+
+https://x.com/owltl2/status/2092176101745529237?s=46&amp;t=nV2uIRu-sHtAJdsNmHDb-Q
+
+看不出来 因为记忆力 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">成功达成恋人关系后背包会有能提醒AI两人关系的戒指还行，意思是其实本身是有成为恋人的可能性的？
+
+*****
+
+####  花开安生  
+##### 52#       发表于 2026-8-26 10:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">我怎么在日区谷歌商店也没找到 我好笨
+
+
+*****
+
+####  a317216007  
+##### 53#       发表于 2026-8-26 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146339&amp;ptid=2286983" target="_blank">来都来了 发表于 2026-8-26 09:46</a>
+能破限蹬莱莎吗？</blockquote>
+我看已经有人破甲成功了<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGP110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
