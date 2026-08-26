@@ -11168,3 +11168,16 @@ qwen 3.8 27b FP8 去审核版了解一下<img src="https://static.stage1st.com/i
 群友们别冲动啊，自己本地组服务器的价钱拿去买API，能蹬到你昏迷。</blockquote>
 就是为了对付不能回答和被请喝茶的情况啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绕指流光  
+##### 11368#         楼主| 发表于 2026-8-26 20:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150562&amp;ptid=2275806" target="_blank">lly778 发表于 2026-8-26 20:02</a>
+毛利和利润差好远的，ai企业大头在研发费用</blockquote>
+没有讨论利润啊，这消息一开始就说了还在猛亏
+毛利几乎就是衡量商业模式是否可行的最核心指标，你就是开个早餐店勇哥也要问你毛利多少，目前来看没有任何一家同行做到 DS 这个水平的，正如我之前提到的行业对比，82.9 已经是天花板级别
+
+—— 来自 vivo V2309A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
