@@ -11250,3 +11250,68 @@ qwen 3.8 27b FP8 去审核版了解一下<img src="https://static.stage1st.com/i
 本地QWEN3.8 27B的专武就是PI吗 DSH能适配不 懒得再折腾了</blockquote>
 可以用的 我一开始用的也是dsh，但pi的压缩上文和很轻便的开启的确更舒服就是了
 
+
+*****
+
+####  tonyunreal  
+##### 11376#       发表于 2026-8-26 20:51
+
+[https://mp.weixin.qq.com/s/16MOkzjvg6SLfozl1HjymA](https://mp.weixin.qq.com/s/16MOkzjvg6SLfozl1HjymA)
+
+Qwen3.8-Flash即将上线千问AI平台，对外提供API服务，每百万Tokens输入1元，输出3元。今晚，Qwen3.8-Flash还将首发上线“千问办公”。
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  王兰花秀丽  
+##### 11377#       发表于 2026-8-26 20:52
+
+来了，看着完全是v4f的水平呀[Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+1000052662.jpg
+(280.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202608/26/205209rpvlhjwjhw55wh55.jpg" referrerpolicy="no-referrer">
+
+1000052663.jpg
+(327.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 20:52 上传
+
+<img src="https://img.stage1st.com/forum/202608/26/205210oriniw1uqk4h7phr.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  qwased  
+##### 11378#       发表于 2026-8-26 20:53
+
+难道说！黄金时代回来了！
+
+*****
+
+####  nxmonitor  
+##### 11379#       发表于 2026-8-26 20:55
+
+还在信Qwen的分数吗？
+
+*****
+
+####  舞以  
+##### 11380#       发表于 2026-8-26 20:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等实测吧，qwen跑分不能太信，不然oa早就死了
+
+*****
+
+####  德尔惠净水器  
+##### 11381#       发表于 2026-8-26 20:58
+
+N-gram Embedding好像之前deepseek提过的吧，但是没有放在v4上
+
