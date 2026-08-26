@@ -10607,3 +10607,39 @@ codex的上下文不到1m？我还以为是我中转的问题
 
 怎么涨完价服务器还更烂了呢
 
+
+*****
+
+####  requiem116  
+##### 11318#       发表于 2026-8-26 16:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就简单搓个连模拟器的自动脚本结果吃了我20+
+
+还得我自己手动截图一步一步给他说逻辑
+
+本地小模型能干这活不
+
+*****
+
+####  cscbzcbz  
+##### 11319#       发表于 2026-8-26 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70149275&amp;ptid=2275806" target="_blank">城北无尘 发表于 2026-8-26 16:43</a>
+超算平台一直报错：Bad Gateway: {"code":502,"msg":"server is busy","data":""}
+
+怎么涨完价服务器还更烂 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">涨价和拉垮不矛盾，刚才我也断了，没办法顶着梁文峰丝滑结束了任务
+
+*****
+
+####  德尔惠净水器  
+##### 11320#       发表于 2026-8-26 17:05
+
+<blockquote>requiem116 发表于 2026-8-26 16:59
+就简单搓个连模拟器的自动脚本结果吃了我20+
+
+还得我自己手动截图一步一步给他说逻辑
+
+本地小模型能干这活不 ...</blockquote>
+qwen3.8 27b看起来应该是小模型，但是也不是一般条件能部署，可以试一试比较小的moe模型看看？再小的模型智力直接不达标了
+
