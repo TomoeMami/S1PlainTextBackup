@@ -685,3 +685,11 @@ pc的话cdk比这个价还低吧。。
 
 国语配音怎么能垃圾成这样<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 767#       发表于 2026-8-27 07:41
+
+国语配音是国内特色dei，怎么可能会不烂的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -12603,3 +12603,24 @@ dhs 有没有破限的办法
 
 DSH本地干活选哪种长期记忆？OpenViking树状  还是dsh-memory简洁平铺？ 我看GPT说现在的CODEX也改用多层复杂结构了 
 
+
+*****
+
+####  serj005  
+##### 11507#       发表于 2026-8-27 07:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152501&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-27 01:24</a>
+PI 更新了，看说明是支持了原生 PowerShell。我还没有测试，不知道对大语言模型大战 PowerShell 的状况有没 ...</blockquote>
+不会改善的，没有做额外约束或者转换（实际上也不可能专门去做这方面适配），只是相比老版本能一键切换使用，为了为未来可能出现的pwsh专训模型做准备或者有pwsh专门需求的用户用。现在的llm都对pwsh支持差的前提下没什么用。
+
+*****
+
+####  icedew  
+##### 11508#       发表于 2026-8-27 07:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150597&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-26 20:05</a>
+qwen 3.8 27b FP8 去审核版了解一下</blockquote>
+这个可以租服务器，下半年到明年各种魔改卡会上了，算力扩张很多的。openai的辣椒卡，还有谷歌的下代tpu，老黄的大整合服务器柜。如果不冲agi，跑deekseek这种moe，等价算力得翻3倍以上。
+而且现金流都开始吃紧了，有一家放水，token都会大降价的。
+而且按价格Tonken算，5090虽然便宜，但输出性价比真不如B300那样的新卡（就在这个整租都租不起，得搞分租😒）
+
