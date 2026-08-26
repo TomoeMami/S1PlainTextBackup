@@ -41,3 +41,14 @@ demo更新了，加了小次郎后面的一些内容。那个特别仕合的百�
 
 小次郎pv里都犯禁吸人魂了，包不洗的。最好待遇也就可能像魔之手那样反抗最终boss送双笼手形态
 
+
+*****
+
+####  conanoysq  
+##### 702#       发表于 2026-8-26 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70145680&amp;ptid=2210366" target="_blank">Nosgoth 发表于 2026-8-26 07:36</a>
+
+demo更新了，加了小次郎后面的一些内容。那个特别仕合的百秽我确实打不过。 ...</blockquote>
+什么？还有特别boss？是打完demo在标题画面选还是在新增内容中的赢藏boss？
+

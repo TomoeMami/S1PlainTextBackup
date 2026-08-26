@@ -9211,3 +9211,26 @@ plus 5小时回来了
 都更新了：三个模式分别是flash正式版、pro正式版和这个flash的多模态exp模型 ...</blockquote>
 快速模式没改正式版，还是预览版。识图模式倒是正式版。未来应该是直接用识图模式替代快速模式了
 
+
+*****
+
+####  Gmlazy  
+##### 11203#       发表于 2026-8-26 08:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144869&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-8-25 23:43</a>
+
+今晚测了一下，用pi来接本地的模型qwen3.8，找到一个很不错的q4量化模型，跑起来特别顺。速度可以到60，70 ...</blockquote>
+朋友什么配置啊，本地模型都这么强了吗，我还以为本地模型也就能聊天。
+
+*****
+
+####  kinfox  
+##### 11204#       发表于 2026-8-26 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144975&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-26 00:02</a>
+
+你用的是哪个模型，apex吗
+
+我现在感觉有pi vcc这种压缩上下文的插件之后确实上下文长度需求低多了，反正 ...</blockquote>
+fraQtl HiFi Q4_K_M   这个是我挑选了数十个量化模型后，找到的最适合我配置的最强q4。。。
+
