@@ -11643,3 +11643,127 @@ glm 5.3 flash这规模也没比dsv4 flash小啊，推理真能便宜吗？
 
 — from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qwased  
+##### 11416#       发表于 2026-8-26 22:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151524&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-26 22:14</a>
+
+https://bigmodel.cn/pricing
+
+智谱的api文档更新了</blockquote>
+官方不给多模态是何意味？
+
+*****
+
+####  cscbzcbz  
+##### 11417#       发表于 2026-8-26 22:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151524&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-26 22:14</a>
+https://bigmodel.cn/pricing
+
+智谱的api文档更新了</blockquote>
+你们都不看缓存的吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 11418#       发表于 2026-8-26 22:18
+
+这命中缓存的价格，感觉agent场景便宜不了啊
+
+*****
+
+####  zhongjie  
+##### 11419#       发表于 2026-8-26 22:18
+
+性能这么强？等今晚两个模型的对比了
+
+<img src="https://img.stage1st.com/forum/202608/26/221831zbbmy3xrvyrw00ex.jpg" referrerpolicy="no-referrer">
+
+<strong>7be8ebc5f2842e4108267b5e4703fe77.jpg</strong> (246.66 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 22:18 上传
+
+*****
+
+####  qwased  
+##### 11420#       发表于 2026-8-26 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151543&amp;ptid=2275806" target="_blank">Azcarlo 发表于 2026-8-26 22:16</a>
+
+glm 5.3 flash这规模也没比dsv4 flash小啊，推理真能便宜吗？
+
+倒是qwen 3.8 flash deltanet+sparse attenti ...</blockquote>
+看博客说是国产卡的数据中心发力了，拿了一万张以上的国产卡跑的，成本比肩n卡
+
+*****
+
+####  →熙←  
+##### 11421#       发表于 2026-8-26 22:20
+
+原来智谱缓存那么贵,我就说套餐里开始讨论的时候感觉还挺耐用的, 怎么到执行阶段一下就没了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ycjiang1337  
+##### 11422#       发表于 2026-8-26 22:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151492&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-26 22:09</a>
+320B这个表现感觉就一般了啊，不知道ds4fv是多大的
+
+草，华子给了多少卡啊，这么能顶</blockquote>
+好像智谱是对910系列做QAT的
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+
+*****
+
+####  舞以  
+##### 11423#       发表于 2026-8-26 22:25
+
+ 本帖最后由 舞以 于 2026-8-26 22:27 编辑 
+<blockquote>以你比较典型的 0.5% output/input 来说：
+
+$$ DS_{闲时}=0.0645+4.5\times0.005 =\mathbf{0.087} $$ $$ GLM_{促销}=0.11785+1.4\times0.005 =\mathbf{0.12485} $$
+
+所以促销期间，GLM 仍然比 DS 闲时贵：
+
+$$ 0.12485/0.087\approx1.44 $$
+
+也就是 贵约 44%。
+
+但 GLM 又明显比 DS 高峰便宜：
+
+$$ 0.12485/0.174\approx0.718 $$
+
+大概便宜 28%。
+
+于是促销期间，在你这种 workload 下就是：
+
+DS 闲时 &lt; GLM 5.3 Flash &lt; DS 高峰。
+
+更重要的是促销结束之后。GLM 恢复原价，0.5% 输出率：
+
+$$ GLM=0.2357+2.8\times0.005 =0.2497 $$
+
+此时：
+
+DS 闲时：0.087
+
+DS 高峰：0.174
+
+GLM：0.2497
+
+也就是说，GLM 原价甚至比 DeepSeek 高峰价还贵约 43.5%，是 DS 闲时的约 2.87 倍。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">考虑到输入缓存率在长程任务一般99%以上，就看漏油的输出/输入比是多少了，我的是不到1%。
+
+牛来的输出便宜，缓存输入贵。
+
+gpt算的，感觉眼下可以梁文峰时期用一下？梁文谷还是用fve。
+
