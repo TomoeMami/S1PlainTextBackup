@@ -12514,3 +12514,14 @@ PI 更新了，看说明是支持了原生 PowerShell。我还没有测试，不
 PI 更新了，看说明是支持了原生 PowerShell。我还没有测试，不知道对大语言模型大战 PowerShell 的状况有没 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">卵用没有 一样被各种转译坑肘击
 
+
+*****
+
+####  qwased  
+##### 11498#       发表于 2026-8-27 01:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152501&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-27 01:24</a>
+PI 更新了，看说明是支持了原生 PowerShell。我还没有测试，不知道对大语言模型大战 PowerShell 的状况有没 ...</blockquote>
+gemini3.7在反重力里面写pwsh脚本倒是好像错误率还行，不像ds4f那样不停的重写
+感觉可能是谷歌收集的数据里面有这方面的内容
+
