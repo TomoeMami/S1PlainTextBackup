@@ -9908,3 +9908,54 @@ https://github.com/MiaAI-Lab/D ...</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  →熙←  
+##### 11258#       发表于 2026-8-26 11:34
+
+<strong>SCNet Token Plan 基础版(¥30/月)全模型价格表</strong>
+
+基础版活动价 <strong>¥30/月</strong>,含 <strong>60,000 Credits</strong>(Credits 单价 ¥0.0005)。
+
+以下为全部 16 个模型按倍率从高到低排列的每百万 token 折算成本,单位:<strong>元/百万 tokens</strong>。
+
+<strong>基础版 · 全模型价格表(活动价)</strong><strong>模型</strong><strong>倍率</strong><strong>输入(未命中)</strong><strong>缓存命中</strong><strong>输出</strong>Kimi-K3<strong>4.12</strong>17.171.0372.71GLM-5.32.299.540.5740.41Qwen3.8-max2.008.330.5035.29DeepSeek-V4-Pro-08131.355.630.3423.82GLM-5.11.335.540.3323.47GLM-51.084.500.2719.06DeepSeek-V4-Pro1.064.420.2718.71Kimi-K2.7-Code1.004.170.2517.65Kimi-K2.61.004.170.2517.65GLM-5.20.903.750.2315.88Kimi-K2.50.652.710.1611.47DeepSeek-V4-Flash-07310.612.540.1510.76MiniMax-M30.431.790.117.59MiniMax-M2.70.431.790.117.59MiniMax-M2.50.301.250.085.29DeepSeek-V4-Flash<strong>0.13</strong>0.540.032.29
+
+<strong>额度换算参考(60,000 Credits 全部用完时)</strong>
+倍率 1.0 的模型:约 <strong>720 万</strong>输入 tokens,或 <strong>170 万</strong>输出 tokens,或 <strong>1.2 亿</strong>缓存命中 tokens其他模型按倍率折算:如全跑 Kimi-K3 只能跑约 175 万输入 / 41 万输出;全跑 DeepSeek-V4-Flash 可跑约 5,540 万输入 / 1,310 万输出
+
+<strong>注意事项</strong>
+上表为活动价(¥30/月)口径;若按原价 ¥50/月 计算,所有价格 <strong>×1.67</strong>单价前提是当月额度用满——Credits 到期作废不结转,用不满则单价按比例上浮模型扣减倍率平台<strong>每周动态调整</strong>,实际以控制台实时数据为准来源:scnet.cn Token Plan 官方文档页估算值反推,仅供参考
+
+*****
+
+####  空き地卯木  
+##### 11259#       发表于 2026-8-26 11:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147072&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-26 11:22</a>
+计算公式哪来的？我找了半天文档没有找到，问官方客服给了我个旧的截图，懒得和他吵了 ...</blockquote>
+ds根据他那个用kimi举的例子算的
+
+*****
+
+####  cscbzcbz  
+##### 11260#       发表于 2026-8-26 11:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147180&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-26 11:34</a>
+SCNet Token Plan 基础版(¥30/月)全模型价格表
+
+基础版活动价 ¥30/月,含 60,000 Credits(Credits 单价 ¥ ...</blockquote>
+明白了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  城北无尘  
+##### 11261#       发表于 2026-8-26 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147072&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-26 11:22</a>
+计算公式哪来的？我找了半天文档没有找到，问官方客服给了我个旧的截图，懒得和他吵了 ...</blockquote>
+就截图能发出来看一下嘛？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
