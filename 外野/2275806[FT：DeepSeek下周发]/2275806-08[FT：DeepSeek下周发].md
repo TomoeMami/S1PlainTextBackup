@@ -12480,3 +12480,26 @@ flash模型为什么那么慢, 5.3都感觉更快</blockquote>
 
 PI 更新了，看说明是支持了原生 PowerShell。我还没有测试，不知道对大语言模型大战 PowerShell 的状况有没有改善。
 
+
+*****
+
+####  andychen  
+##### 11495#       发表于 2026-8-27 01:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152022&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-26 23:30</a>
+
+歪个楼，这个晚点是新出的媒体吗，最近一年能看见很多他们独家的报道，信息量都不少    Re:Source ...</blockquote>
+财经类播客出身
+
+专业性嘛，我听过一期播客吹Alex Wang的，后来就取关了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 11496#       发表于 2026-8-27 01:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152047&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-26 23:36</a>
+
+正常人都是拿新模型让大家免费体验，他到处搞活动免费两周，已经看到两三家了，拿自己家旗舰模型免费这么 ...</blockquote>
+我之前是把M3作为便宜的多模态民工模型用，不过现在看来GLM5.3 Flash可以取代了
+
