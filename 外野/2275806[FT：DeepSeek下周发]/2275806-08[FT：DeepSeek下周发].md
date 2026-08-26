@@ -12503,3 +12503,14 @@ PI 更新了，看说明是支持了原生 PowerShell。我还没有测试，不
 正常人都是拿新模型让大家免费体验，他到处搞活动免费两周，已经看到两三家了，拿自己家旗舰模型免费这么 ...</blockquote>
 我之前是把M3作为便宜的多模态民工模型用，不过现在看来GLM5.3 Flash可以取代了
 
+
+*****
+
+####  squallx  
+##### 11497#       发表于 2026-8-27 01:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152501&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-27 01:24</a>
+
+PI 更新了，看说明是支持了原生 PowerShell。我还没有测试，不知道对大语言模型大战 PowerShell 的状况有没 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">卵用没有 一样被各种转译坑肘击
+
