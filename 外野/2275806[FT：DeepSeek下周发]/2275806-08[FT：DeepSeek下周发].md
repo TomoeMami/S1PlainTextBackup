@@ -11962,3 +11962,38 @@ Z/这个价目表里有一列缓存时间-限时免费
 
 缓存时间分档不还是a社干的，标准版5分钟一个小时版还要再贵。那智谱是真学啊
 
+
+*****
+
+####  cscbzcbz  
+##### 11445#       发表于 2026-8-26 22:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151794&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-26 22:53</a>
+
+又不是命中缓存免费, 是你的缓存存在他的硬盘上这部分给你免费</blockquote>
+
+对<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">所以我说很灵性
+
+一眼看过去还以为缓存命中免费了，结果人说的是缓存的存储也要收费的哦，只是暂时给你免了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chaoliu  
+##### 11446#       发表于 2026-8-26 23:00
+
+求助4070tis(16g显存）本地能跑什么模型目前智商比较高？对输出速度要求不高（能和kimi现在的垃圾速度打平就算成功<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kinfox  
+##### 11447#       发表于 2026-8-26 23:02
+
+拿我智谱清言的年卡来蹬一下5.3flash。。看看到底成色如何
+
+*****
+
+####  王兰花秀丽  
+##### 11448#       发表于 2026-8-26 23:03
+
+难怪能免费随便用一周，按我的理解这是新建的算力拿来试用的吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
