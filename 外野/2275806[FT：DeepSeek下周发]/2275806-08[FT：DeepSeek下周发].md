@@ -9959,3 +9959,76 @@ SCNet Token Plan 基础版(¥30/月)全模型价格表
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  misuzu0723  
+##### 11262#       发表于 2026-8-26 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147177&amp;ptid=2275806" target="_blank">城北无尘 发表于 2026-8-26 11:34</a>
+超算平台怎么也开始模糊价格了，真tm恶心啊。国内这些plan全都是按自己的积分+倍率黑箱扣分，以前超算平台 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不仅仅是国内，国外的也一样，额度说变就变
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  蜇灵  
+##### 11263#       发表于 2026-8-26 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146026&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-8-26 09:02</a>
+我显卡24g的4090，现在日常占用是21.7</blockquote>
+打扰了，告辞<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 11264#       发表于 2026-8-26 11:46
+
+ 本帖最后由 cscbzcbz 于 2026-8-26 11:48 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147218&amp;ptid=2275806" target="_blank">城北无尘 发表于 2026-8-26 11:38</a>
+
+就截图能发出来看一下嘛？
+
+论坛助手,iPhone</blockquote>
+
+就是之前的页面，我记得的，这个肯定是更新前的
+
+最后还是都回梁叔叔那里了，用户还是赶不走<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+image.png
+(114.68 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 11:43 上传
+
+<img src="https://img.stage1st.com/forum/202608/26/114337qrrgkes6h06agdek.png" referrerpolicy="no-referrer">
+
+*****
+
+####  neptunehs  
+##### 11265#       发表于 2026-8-26 11:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147293&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-26 11:46</a>
+就是之前的页面，我记得的，这个肯定是更新前的
+
+最后还是都回梁叔叔那里了，用户还是赶不走</blockquote>
+主要是梁叔叔那一晚上15还因为进了死胡同0参出还是受不了 哎
+
+在死胡同里碰壁慢慢摸出口还是应该交给免费模型
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  蜇灵  
+##### 11266#       发表于 2026-8-26 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146854&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-26 10:57</a>
+试一下runinfra的
+
+    Re:Source</blockquote>
+这个怎么这么便宜
+
