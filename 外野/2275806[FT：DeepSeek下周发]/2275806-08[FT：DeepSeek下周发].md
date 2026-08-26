@@ -11315,3 +11315,40 @@ Qwen3.8-Flash即将上线千问AI平台，对外提供API服务，每百万Token
 
 N-gram Embedding好像之前deepseek提过的吧，但是没有放在v4上
 
+
+*****
+
+####  startraveller  
+##### 11382#       发表于 2026-8-26 21:00
+
+我的DGX Spark已经摩拳擦掌了
+
+*****
+
+####  舞以  
+##### 11383#       发表于 2026-8-26 21:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150889&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-8-26 20:58</a>
+
+N-gram Embedding好像之前deepseek提过的吧，但是没有放在v4上</blockquote>
+ds专门发了篇论文，他们叫Engram，梁叔叔都署名了。
+
+但是他们只是做了一些实验，还没有在主线模型引入。
+
+
+*****
+
+####  qwased  
+##### 11384#       发表于 2026-8-26 21:03
+
+如果可以特化办公技能那也相当不错了，办公模型这个生态位非常适合DGX这种小主机啊，小公司买一台直接省掉一个文员的工资了
+
+*****
+
+####  tonyunreal  
+##### 11385#       发表于 2026-8-26 21:04
+
+[https://huggingface.co/Qwen/Qwen3.8-Flash-Next](https://huggingface.co/Qwen/Qwen3.8-Flash-Next)
+
+抢跑是吧 <img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
