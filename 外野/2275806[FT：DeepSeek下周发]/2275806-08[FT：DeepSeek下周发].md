@@ -10382,3 +10382,45 @@ minimaxm3直接把事情搞炸了 还把他的乱七八糟的猜测写进了spec
 会不会之后出比fable5还强的moe的开源大模型？</blockquote>
 DS灰测的那个模型拿出来基本就有了……
 
+
+*****
+
+####  杀人鲸  
+##### 11299#       发表于 2026-8-26 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70144664&amp;ptid=2275806" target="_blank">overflowal 发表于 2026-8-25 21:44</a>
+你在说什么？   识图模式不就是用的vision Re:Source</blockquote>
+什么？还有这个说法吗？我问了一下 AI，还真是。
+
+D 老师跟我说，现如今这个识图功能，本质上就是客户端上那个测试识图功能更加成熟后的公测版本结果。
+还真的是一家耶，只能说谢谢提醒。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  bartholo4  
+##### 11300#       发表于 2026-8-26 15:01
+
+agy感觉是我们的上班高峰期就会卡的特别严
+
+*****
+
+####  自由之紫roy  
+##### 11301#       发表于 2026-8-26 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70148491&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-26 14:49</a>
+
+肯定会的，半年前你跟别人说半年后本地能部署 opus4.6 级别的模型谁会信
+
+—— 来自 vivo V2405A, Androi ...</blockquote>
+但要民用显卡能跑就很难吧？
+
+
+*****
+
+####  舞以  
+##### 11302#       发表于 2026-8-26 15:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相信qwen，只有qwen会一直更新这个规模的模型了吧
+
