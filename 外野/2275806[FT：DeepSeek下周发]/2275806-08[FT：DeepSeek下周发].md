@@ -10032,3 +10032,67 @@ image.png
     Re:Source</blockquote>
 这个怎么这么便宜
 
+
+*****
+
+####  qwased  
+##### 11267#       发表于 2026-8-26 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147277&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-8-26 11:44</a>
+打扰了，告辞</blockquote>
+有16g都可以用了，参考这个方案，我自己实测无mtp qwen3.8 apex nano（等效q3k量化）可以192k上下文，apex mini（等效q5ks）可以72k上下文
+
+<img src="https://img.stage1st.com/forum/202608/26/115449w97pfuymxyweqmzq.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1787716488940_2.webp</strong> (132.99 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-26 11:54 上传
+
+*****
+
+####  王兰花秀丽  
+##### 11268#       发表于 2026-8-26 11:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147337&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-8-26 11:52</a>
+这个怎么这么便宜</blockquote>
+由他们名字可知这是真的自己部署的<img src="https://static.stage1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 11269#       发表于 2026-8-26 11:59
+
+对比之下梁叔叔简直大善人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+提前11天通知涨价，提前4天告知涨价具体方案，不爽还能随时退款<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  crow_wine  
+##### 11270#       发表于 2026-8-26 12:00
+
+国算新上的 0813 缓存命中有问题，缓存命中越来越低，只有23%，直接少了 5W 积分，相当于一个 30 元档位的 plan 被烧没了
+
+
+*****
+
+####  →熙←  
+##### 11271#       发表于 2026-8-26 12:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146854&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-26 10:57</a>
+
+试一下runinfra的
+
+    Re:Source</blockquote>
+缓存不便宜啊, 还是说有下面还有小数
+
+
+*****
+
+####  crow_wine  
+##### 11272#       发表于 2026-8-26 12:04
+
+国算的蹬完走人了，我蹬的量是多，但是他这服务太烂了，而且价格也说不上好，各种bug。
+260的套餐感觉很差，后面变回500更是路边一条
+
