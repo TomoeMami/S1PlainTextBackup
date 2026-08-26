@@ -183,3 +183,11 @@ switch2版优化得不错啊，画面清晰帧数也不错
 
 —— 来自 vivo V2458A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 716#       发表于 2026-8-26 14:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">要是不虎头蛇尾，这作价格应该是345而不是298，又不是生化这种看板ip，不会给大预算的
+
