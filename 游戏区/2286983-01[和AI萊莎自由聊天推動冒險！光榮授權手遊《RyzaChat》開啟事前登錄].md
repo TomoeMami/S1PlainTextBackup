@@ -470,3 +470,16 @@ token 自费?</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  siebten  
+##### 50#       发表于 2026-8-26 10:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146344&amp;ptid=2286983" target="_blank">kyonkoism 发表于 2026-8-26 09:46</a>
+
+有链接么，想看看怎么告白成功成为恋人的</blockquote>
+[https://x.com/owltl2/status/2092 ... uIRu-sHtAJdsNmHDb-Q](https://x.com/owltl2/status/2092176101745529237?s=46&amp;t=nV2uIRu-sHtAJdsNmHDb-Q)
+
+看不出来 因为记忆力不行还需要靠物品栏里塞订婚戒指提醒莱莎2333
+
