@@ -9303,3 +9303,26 @@ pi+qwen3.8的量化模型就是家庭用户现在的最好选择了……
 
 2026-8-26 08:52 上传
 
+
+*****
+
+####  蜇灵  
+##### 11209#       发表于 2026-8-26 09:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70145966&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-8-26 08:52</a>
+本地部署绝对不是只能玩聊天的东西啊…………很强的，拿来做小任务的平替没啥问题。
+
+我直接一句话扔给它， ...</blockquote>
+显存和内存需求量大吗？
+
+
+*****
+
+####  kinfox  
+##### 11210#       发表于 2026-8-26 09:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70146008&amp;ptid=2275806" target="_blank">蜇灵 发表于 2026-8-26 09:00</a>
+
+显存和内存需求量大吗？</blockquote>
+我显卡24g的4090，现在日常占用是21.7
+
