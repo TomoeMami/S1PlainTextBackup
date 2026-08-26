@@ -641,3 +641,13 @@ pc的话cdk比这个价还低吧。。
 
 一种方式打不过就换一种，我看别人都是弹过去的，我就在那一直弹，结果换成一闪几把就过了，喷了，感觉BOSS很好闪啊
 
+
+*****
+
+####  windlikeman  
+##### 762#       发表于 2026-8-27 02:04
+
+回身斩一直吃 后来发现和跳劈一样很容易一闪
+
+最后打到过了都不会处理中距离的拖刀上撩...<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
