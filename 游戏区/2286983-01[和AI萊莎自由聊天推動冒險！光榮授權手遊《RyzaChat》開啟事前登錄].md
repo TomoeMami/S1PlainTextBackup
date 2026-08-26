@@ -638,3 +638,13 @@ https://x.com/owltl2/status/2092176101745529237?s=46&amp;t=nV2uIRu-sHtAJdsNmHDb-
 破甲破甲</blockquote>
 图2、3的描述很相似啊，难道是官方设置好的？
 
+
+*****
+
+####  ParadiseMartyr  
+##### 63#       发表于 2026-8-26 13:38
+
+语音额外收费是多少啊，tmd机贼的还是你得加入订阅之后才给你看收费政策
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+

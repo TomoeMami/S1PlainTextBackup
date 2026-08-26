@@ -10277,3 +10277,23 @@ https://huggingface.co/froggeric/Qwen-Fixed-Chat-Templates  这个装完qwen3.
 所以现在只有硅基流动了?还有便宜的0731吗, 不会又要回到梁叔叔怀抱吧</blockquote>
 你想多了，硅基流动也要涨了。
 
+
+*****
+
+####  zhongjie  
+##### 11290#       发表于 2026-8-26 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147583&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-26 12:29</a>
+
+我还是推荐火山coding plan（如果50块能买到），开auto模式    Re:Source</blockquote>
+火山的coding plan比agent plan更好吗？我看agent里面模型经常多次提出请求的。另外他家的deepseek pro是正式版吗？
+
+*****
+
+####  qwased  
+##### 11291#       发表于 2026-8-26 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70147868&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-8-26 13:25</a>
+是的 这个插件是必备的 我好像忘记提这个了。是因为有它和pi在一起 会好用很多 ...</blockquote>
+我对比了一下之前的对话，好像是默认的时候模型不知道怎么结束思考所以会在思考链里面鬼打墙，现在就思考一遍开始跑工具了
+
