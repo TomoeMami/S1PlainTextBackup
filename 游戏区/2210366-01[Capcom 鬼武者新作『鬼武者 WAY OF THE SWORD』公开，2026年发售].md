@@ -920,3 +920,20 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 <img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">279下单了首发港版，271的再也刷不出了，血亏8块钱
 
+
+*****
+
+####  windlikeman  
+##### 788#       发表于 2026-8-27 18:11
+
+昨天发的片 如果不是卡婊丧心病狂一点没藏的话 boss数量还是有保证的吧 这游戏我感觉和只狼差不多量正好 
+
+还有个真魔人形态不知道会不会改动作模组
+
+*****
+
+####  缺德猫  
+##### 789#       发表于 2026-8-27 18:12
+
+这个怎么买最便宜？steam版
+
