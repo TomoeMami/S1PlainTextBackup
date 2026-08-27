@@ -888,3 +888,19 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 总不至于是个能顺便拿来打架的解谜道具吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  若菜  
+##### 785#       发表于 2026-8-27 17:23
+
+ 本帖最后由 若菜 于 2026-8-27 17:25 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70156064&amp;ptid=2210366" target="_blank">Asukalangley33 发表于 2026-8-27 16:13</a>
+
+现在DEMO应该是把RPG养成要素这块全藏了
+
+可以看后面饰品和副武器的BUILD有多少内容</blockquote>
+鬼武者哪来的build，而且这是act不是arpg。养成系统之前也有画面了，就是几条技能树，一闪弹刀化劲这些。
+
+鬼武者再怎么变也是一闪为核心的后手游戏。后面就解锁下手、脚的特殊能力，收集下鬼武具。
+
