@@ -12749,3 +12749,56 @@ dhs 有没有破限的办法
 
 2026-8-27 08:54 上传
 
+
+*****
+
+####  cscbzcbz  
+##### 11521#       发表于 2026-8-27 08:59
+
+搞得我有点心动
+非刚需，纯当作理财，DXG有必要现在买一套吗？有没有大手帮忙分析
+我觉得关键是预期未来这些小体量模型能力会不会越来越强
+
+*****
+
+####  斯卡文分则能成  
+##### 11522#       发表于 2026-8-27 08:59
+
+原来ox是zai的模型啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+昨天红脖子论坛还有人说是google的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  乌桃内设格温  
+##### 11523#       发表于 2026-8-27 09:01
+
+现在v4是不是特别难穿甲，以前做自己公司内部开发环境的网安测试有几个提示词现在直接拦截了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zfy1989  
+##### 11524#       发表于 2026-8-27 09:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152990&amp;ptid=2275806" target="_blank">qqq2142 发表于 2026-8-27 08:43</a>
+
+还是不行，看来只能老老实实用grok了</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/27/090208c405udmzau1mhjbb.png" referrerpolicy="no-referrer">
+
+<strong>e2ec4697-dfd4-4001-a876-2afe186bc6b5.png</strong> (37.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-27 09:02 上传
+
+可以的，[https://github.com/yexi-by/dsh-unrestricted#readme](https://github.com/yexi-by/dsh-unrestricted#readme)，这个
+
+*****
+
+####  沙发沙发  
+##### 11525#       发表于 2026-8-27 09:07
+
+牛来不是在第一天大伙就知道是glm了，google纯在蹭好吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
