@@ -980,3 +980,11 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 这次连双头这种元老武器都技能化了，就多给了一个卷动火焰爆散的环境互动
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 794#       发表于 2026-8-27 21:04
+
+想打个隐藏boss无伤，太难了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

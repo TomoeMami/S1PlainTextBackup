@@ -14144,3 +14144,57 @@ ok，多谢
 
 用iPhone登录grok，谷善人送了7天订阅试用，还包含一张重置卡，用auth授权跑在hermes里，感觉很快，拿来跑子代理绰绰有余，今晚又能使劲蹬了
 
+
+*****
+
+####  cscbzcbz  
+##### 11653#       发表于 2026-8-27 21:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70157611&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-27 20:44</a>
+
+不过这个人还挺厉害的，提了一个RWKV架构，说是结合了rnn和transformer的优势
+
+—— 来自 HONOR AAK-AN00 ...</blockquote>
+
+AI真的好用<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+他是谁：彭博（PENG Bo），RWKV 架构作者、元始智能创始人。RWKV 是"RNN+Transformer 结合体"：训练可并行、推理无 KV cache、纯 RNN，主打低算力低成本。
+
+他说的原话（2026.8 知乎帖）：
+
+"大模的实际用途就是给小模蒸馏"——他认为国模后训练大多靠蒸馏。
+
+RWKV7 G1i 13B/7B/3B/1B（纯 RNN），目前 code/STEM 还差 Qwen3.5 一截，目标是年底全面追上，全部训练只用"十几 T tokens"，9 月还有更强的 G1j。
+
+有没有可能？
+
+✅ 方向可行：蒸馏+强数据让小模型追平同尺度开源，有历史先例（R1-Distill、Qwen 系）。
+
+⚠️ 三个风险：① 学生上限=老师，追平要看对标哪档（9B/27B/35B）；② "只是蒸馏"是过度简化，他自己也要预训练基座；③ 目前缺第三方独立评测，"年底追上"是路线图承诺，不是成绩单。
+
+定性：技术上有可能、成本确实低，但"年底全面追平"是激进目标，风险在数据质量和验证，不在钱。
+
+代价（估算）：
+
+13B×约12T tokens ≈ 40~50 万 H100 GPU·小时
+
+云 GPU：约 $100~300万（全家桶）
+
+蒸馏数据：$15~100万
+
+总计约 $50万300万（人民币几百万两千万），比从头训前沿模型便宜 1~2 个数量级
+
+一句话：值得关注的开源项目，当"板上钉钉"看就过了。
+
+*****
+
+####  半江瑟瑟半江红  
+##### 11654#       发表于 2026-8-27 21:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70157673&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-27 20:59</a>
+
+大佬们  有能本地部署的无甲写书模型推荐吗？ 16g5060ti</blockquote>
+本地部署参数太小写作会很悲剧的
+
+而且这个显存……恕我直言……真的不中咧
+
