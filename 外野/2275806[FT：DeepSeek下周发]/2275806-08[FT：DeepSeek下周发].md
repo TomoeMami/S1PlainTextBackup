@@ -12650,3 +12650,38 @@ qwen 3.8 27b FP8 去审核版了解一下</blockquote>
 
 K3 太慢太慢了，实际上真干活速度还是很重要
 
+
+*****
+
+####  真红之闪电  
+##### 11512#       发表于 2026-8-27 08:17
+
+你们尝试过拿 qwen3.8 写文的吗？老是打草稿怎么破
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  来都来了  
+##### 11513#       发表于 2026-8-27 08:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152781&amp;ptid=2275806" target="_blank">qqq2142 发表于 2026-8-27 07:28</a>
+dhs 有没有破限的办法
+我想让他帮我反推 r18 图片提提示词</blockquote>
+有专门的反推插件，本地运行，无任何限制，无token消耗，秒出结果。为什么要用LLM这种低效率的东西
+
+*****
+
+####  lymm2003  
+##### 11514#       发表于 2026-8-27 08:23
+
+笑死 前两天一大堆谷歌工程师暗示Ox Alpha是谷歌新模型
+
+*****
+
+####  jasoncoop  
+##### 11515#       发表于 2026-8-27 08:23
+
+wsl解君愁，不要跟窗户和它那个见鬼的pwsh死磕，平白涨血压
+现在我除了WorkBuddy直接装D盘，其他的pi/opencode/Hermes/dsh都一股脑塞Ubuntu虚拟机，丝滑又省心
+
