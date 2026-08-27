@@ -854,3 +854,20 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 暴论一点就是卡普空动作游戏历史上罕见的超级倒车
 
+
+*****
+
+####  Asukalangley33  
+##### 782#       发表于 2026-8-27 16:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70155932&amp;ptid=2210366" target="_blank">Ashice 发表于 2026-8-27 15:51</a>
+
+感觉对这游戏没什么期待
+
+虽然给精防精闪做了大量的动画，技术力没得喷，但是这并不会让战斗系统跟丰富，因 ...</blockquote>
+现在DEMO应该是把RPG养成要素这块全藏了
+
+可以看后面饰品和副武器的BUILD有多少内容
+
+我反正觉得招式肯定不可能只有DEMO里这一套
+
