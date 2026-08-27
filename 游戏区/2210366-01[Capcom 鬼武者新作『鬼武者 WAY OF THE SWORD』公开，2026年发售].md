@@ -828,3 +828,17 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 国语配音是国内特色dei，怎么可能会不烂的</blockquote>
 文本也不好，感觉译者喜欢玩烂梗，换成繁中玩的
 
+
+*****
+
+####  zqqwe  
+##### 780#       发表于 2026-8-27 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70155167&amp;ptid=2210366" target="_blank">二十二颗牛油果 发表于 2026-8-27 13:58</a>
+白刃相交还有好几套动画
+
+根据拼刀次数的不同后续动作也不同，百秽最多貌似可以拼3次刀？
+
+所以像是百秽光拼 ...</blockquote>
+单刀敌人和小次郎那套演出是通用的，百秽这种大型武器怪估计也是同系列通用。
+
