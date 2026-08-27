@@ -13432,3 +13432,22 @@ Gemini太舔了，有点恶心。d指导这方面我觉得最好
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  scikirbypoke  
+##### 11586#       发表于 2026-8-27 13:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70153918&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-27 10:45</a>
+
+别洗了，谷歌研究员直接引用猜牛来的推，然后说如果说这是咕咕嘎嘎会怎么样？然后多名谷歌研究员用各种暧 ...</blockquote>
+之前只看了一点截图，怎么能这么蹭的
+
+
+*****
+
+####  →熙←  
+##### 11587#       发表于 2026-8-27 13:14
+
+0813用we need思维链还是很强的
+
