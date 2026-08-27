@@ -979,3 +979,11 @@ BGM是系列主题曲的变奏，这作音乐水准有望成为系列之最。
 斋国在东方，但新娘团又是西方来的，所以是有两个不同的中华系地区吗</blockquote>
 星球是圆的吧大概<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 3045#       发表于 2026-8-27 09:18
+
+世界可不是四边形的（<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
