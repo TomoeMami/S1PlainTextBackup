@@ -13757,3 +13757,23 @@ glm5.3flash没那么聪明, 自己写的代码测试失败后, 就各种无头�
 
 我还是不行，难道是我姿势真的有问题？
 
+
+*****
+
+####  来都来了  
+##### 11616#       发表于 2026-8-27 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70155872&amp;ptid=2275806" target="_blank">傻吧喵 发表于 2026-8-27 15:40</a>
+有没有好用不受限的第三方api啊，deepseek官方api用来实时翻译动不动受限，自己架手上又没多余设备。 ...</blockquote>
+你拿来翻译什么了，连 DeepSeek 甲这么薄都不愿意给你翻？<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  傻吧喵  
+##### 11617#       发表于 2026-8-27 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70155963&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-27 15:57</a>
+你拿来翻译什么了，连 DeepSeek 甲这么薄都不愿意给你翻？</blockquote>
+不懂怎么破？我没研究这个，不过翻上面评论不是说deepseek有说现在不好破的，对ai只会网页和填入相关软件api，完全不懂啊。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
