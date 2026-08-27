@@ -904,3 +904,19 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 鬼武者再怎么变也是一闪为核心的后手游戏。后面就解锁下手、脚的特殊能力，收集下鬼武具。
 
+
+*****
+
+####  astrayveller  
+##### 786#       发表于 2026-8-27 17:37
+
+百秽有个神经刀是真的恶心 想刷无伤就必须砍一刀拉防 不然很难反应过来 其他的做的都挺好，闪避弹开化劲一闪各有用处 组合起来打的很爽
+
+
+*****
+
+####  theworld  
+##### 787#       发表于 2026-8-27 17:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">279下单了首发港版，271的再也刷不出了，血亏8块钱
+
