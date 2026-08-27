@@ -774,3 +774,22 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">PDD这百亿补贴的价格有毛病，1秒十八变，刚看好271的港版首发几秒钟价格就变了
 
+
+*****
+
+####  医生狼多  
+##### 775#       发表于 2026-8-27 12:27
+
+又用一闪打了一遍<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">为啥处决的伤害不一样的，一次四千多，一次五千多
+
+
+*****
+
+####  若菜  
+##### 776#       发表于 2026-8-27 12:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70154679&amp;ptid=2210366" target="_blank">医生狼多 发表于 2026-8-27 12:27</a>
+
+又用一闪打了一遍为啥处决的伤害不一样的，一次四千多，一次五千多</blockquote>
+蓝刀buff
+

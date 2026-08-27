@@ -13293,3 +13293,24 @@ d4v挺好用的，现在这些sol ultra又慢又贵的模型到底谁在用啊 <
 
 官网我也一直在蹬，除了速度没有明显区别。
 
+
+*****
+
+####  tonyunreal  
+##### 11573#       发表于 2026-8-27 12:36
+
+[https://stock.10jqka.com.cn/20260827/c679342056.shtml](https://stock.10jqka.com.cn/20260827/c679342056.shtml)
+
+阿里云公告，大模型服务平台百炼将于北京时间2026年8月27日12:00:00起，对Qwen3.8-Flash模型模式计费单价进行下调调整。Qwen3.8-Flash是千问最新推出的多模态大模型，原生支持百万级上下文窗口，可一次性处理超长文档、代码仓库与复杂对话，在编程辅助、智能体协作、图文理解等场景中表现突出，兼容OpenAI与Anthropic接口协议，适合构建高并发应用与智能工作流。具体如下：输入价格调整前1元，调整后0.8元；输出价格调整前3元，调整后2.7元。
+
+*****
+
+####  qwased  
+##### 11574#       发表于 2026-8-27 12:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70154737&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-27 12:36</a>
+https://stock.10jqka.com.cn/20260827/c679342056.shtml
+
+阿里云公告，大模型服务平台百炼将于北京时间202 ...</blockquote>
+不调缓存价格感觉还是亏
+
