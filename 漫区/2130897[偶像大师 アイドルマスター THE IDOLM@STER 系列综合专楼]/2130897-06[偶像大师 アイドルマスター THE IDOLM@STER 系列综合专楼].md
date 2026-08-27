@@ -52,3 +52,14 @@ SC的live一直都是初公布少人，后面慢慢补齐的
 
 2026-8-27 19:09 上传
 
+
+*****
+
+####  a1370303  
+##### 7467#       发表于 2026-8-28 01:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70155947&amp;ptid=2130897" target="_blank">oznark 发表于 2026-8-27 15:54</a>
+
+先不把话说死了，后面看情况再往回补</blockquote>
+唉，一开始看到人缺这么多就没抽大会员轮，后面只能抽见切或者收票了。没能通过高山的闪友忠诚度考验<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
