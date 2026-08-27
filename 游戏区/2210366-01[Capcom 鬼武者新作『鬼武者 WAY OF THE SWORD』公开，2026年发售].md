@@ -1024,3 +1024,13 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 总不至于是个能顺便拿来打架的解谜道具吧</blockquote>
 看官网发现那个还真连鬼武具都不算，跟那个鬼视界一样是鬼能力觉醒的一种，就是开开路破破盾。
 
+
+*****
+
+####  conanoysq  
+##### 798#       发表于 2026-8-28 00:19
+
+凹了一把无伤，还是要百秽配合才行，近身神经刀就出了一次。不得不说这次的交互演出，就是让我有反反复复想要打得更帅的动力<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+【打得好不如演员配合的好，鬼武者VS百秽无伤一则（伪）-哔哩哔哩】[https://b23.tv/1cNp4Dn](https://b23.tv/1cNp4Dn) [https://b23.tv/1cNp4Dn](https://b23.tv/1cNp4Dn)
+
