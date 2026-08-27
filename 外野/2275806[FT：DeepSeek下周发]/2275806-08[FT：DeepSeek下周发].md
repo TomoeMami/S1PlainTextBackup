@@ -13070,3 +13070,78 @@ Gemini一堆人在那边各种暗示是Ox是Gemini太搞笑了<img src="https://
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  Azcarlo  
+##### 11553#       发表于 2026-8-27 10:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70154003&amp;ptid=2275806" target="_blank">很久就在那边l 发表于 2026-8-27 10:55</a>
+还真是比套餐便宜</blockquote>
+这图里的不是比套餐贵吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  neptunehs  
+##### 11554#       发表于 2026-8-27 11:01
+
+nvidia nim的手机收不到验证码的 有人有办法解决吗
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  dark_saber  
+##### 11555#       发表于 2026-8-27 11:02
+
+我也传个火吧 [https://agentrouter.org/register?aff=ZFGm](https://agentrouter.org/register?aff=ZFGm)
+
+*****
+
+####  kinfox  
+##### 11556#       发表于 2026-8-27 11:04
+
+我早上让glm5.3flash给我蹬了一个html游戏，模拟经营的。。。我给了它参考游戏，我以前用dsf和hy3做的。
+
+结果glm它做了2小时了，第一波花费了我1500积分。。。因为它觉得花的太多了自动给我停了，还问我要不要继续。
+
+第二波还在蹬。。。还有3步。。不知道还要多久和多少积分
+
+感觉比dsf慢很多，。感觉它一直在改各种bug
+
+还在继续等结果
+
+*****
+
+####  nxmonitor  
+##### 11557#       发表于 2026-8-27 11:06
+
+还有不知道是不是错觉，5.3Flash比牛来时的智力水平降低了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wandeeees  
+##### 11558#       发表于 2026-8-27 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70153947&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-27 10:49</a>
+
+雷霆大思考问题比较严重，engram好像会让这个模型的规划能力提升，会学着大参数模型的做法去做，问题是智 ...</blockquote>
+感觉deepseek的神秘灰测模型应该就是加上了这个engram，看他思考的时候非常自信，能很好的规划任务
+
+*****
+
+####  eno_emos  
+##### 11559#       发表于 2026-8-27 11:07
+
+commandcode的v4f难道是他们自己部署的？怎么感觉有点降智
+
+*****
+
+####  tonyunreal  
+##### 11560#       发表于 2026-8-27 11:07
+
+据多家外媒报道，知名开源模型网站Hugging Face被英伟达129亿美元收购
+

@@ -987,3 +987,28 @@ BGM是系列主题曲的变奏，这作音乐水准有望成为系列之最。
 
 世界可不是四边形的（<img src="https://static.stage1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 3046#       发表于 2026-8-27 10:58
+
+ 本帖最后由 mai6696 于 2026-8-27 10:59 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70150800&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-8-26 20:38</a>
+
+【キャラクター】サラン（CV：矢作紗友里）
+
+アナトリアに同行する、落ち着いた雰囲気の女性。
+
+西方の砂漠 ...</blockquote>
+●好きなもの：美味しい食事、お酒、<strong>アナトリアの世話</strong>、勉学
+
+怎么感觉每个团都有老管家式的角色。
+
+*****
+
+####  被击坠王  
+##### 3047#       发表于 2026-8-27 10:59
+
+虽然我一开始猜她设定是东方的高丽或者不丹那边的，但纠结与现实的牵扯还是不可取，毕竟各种题材里都不少这种东方味的架空国家&amp;民族角色，而且那个什么昆仑就是鞑古札某个角落的村
+
