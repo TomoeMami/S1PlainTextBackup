@@ -12892,3 +12892,17 @@ DSH本地干活选哪种长期记忆？OpenViking树状  还是dsh-memory简�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 11535#       发表于 2026-8-27 09:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70153085&amp;ptid=2275806" target="_blank">斯卡文分则能成 发表于 2026-8-27 08:59</a>
+原来ox是zai的模型啊
+
+昨天红脖子论坛还有人说是google的</blockquote>
+谷歌的人自己在推特上暗示的，招笑死了。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
