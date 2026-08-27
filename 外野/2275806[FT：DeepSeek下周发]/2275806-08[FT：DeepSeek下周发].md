@@ -14081,3 +14081,28 @@ ok，多谢
 豆包虽然蠢，但是互联网知识非常全面，有时候我和大肥鱼两个大眼瞪小眼雷霆大思考，项目进行不下去的时候， ...</blockquote>
 哈基米虽然agent拉跨，但世界知识没得说，独一档，我都是当设计顾问用的
 
+
+*****
+
+####  kylezy123  
+##### 11647#       发表于 2026-8-27 20:28
+
+ 本帖最后由 kylezy123 于 2026-8-27 20:29 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70157199&amp;ptid=2275806" target="_blank">斯卡文分则能成 发表于 2026-8-27 19:07</a>
+
+基元律动好用嘛
+
+有邀请码嘛</blockquote>
+邀请好友限时活动继续延长，体验OpenSquilla新功能畅享免费token
+[https://tokenrhythm.studio/i/rf_tr_Xo7qCRL2xImqZIs_bKz8J3Sx](https://tokenrhythm.studio/i/rf_tr_Xo7qCRL2xImqZIs_bKz8J3Sx)  使问一下他们那个软件就能获得68块钱。脚本没啥问题  有时候会504报错
+
+
+*****
+
+####  lactone  
+##### 11648#       发表于 2026-8-27 20:32
+
+知乎上有个peng bo自己搞了个大模型，说是为了证明国模的后训练只是蒸馏，所以自己蒸馏一个模型，说是年底能得到同尺度开源模型的性能<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
