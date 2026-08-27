@@ -793,3 +793,13 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 又用一闪打了一遍为啥处决的伤害不一样的，一次四千多，一次五千多</blockquote>
 蓝刀buff
 
+
+*****
+
+####  Leliel  
+##### 777#       发表于 2026-8-27 13:45
+
+百秽真好玩啊真好玩
+
+忍不住就开一把
+
