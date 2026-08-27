@@ -60,3 +60,11 @@
 
 第一期的角色三个强度都很拉胯啊，还是存钻等个强卡吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Demi.Albertini  
+##### 69#         楼主| 发表于 2026-8-27 14:59
+
+1个礼拜出一章也太慢了……寻宝那个副本每天也只能打2次……不够玩啊
+

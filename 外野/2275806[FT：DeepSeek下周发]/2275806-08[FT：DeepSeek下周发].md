@@ -13664,3 +13664,19 @@ Claude我就是fable离不开，想要个实惠的。Claude里面fable只能用5
 
 gpt的网页的luna感觉就是把正文回答当思维链用了，nmd我苦苦看了一半直接一个雷霆大转折
 
+
+*****
+
+####  自由之紫roy  
+##### 11608#       发表于 2026-8-27 15:01
+
+<img src="https://img.stage1st.com/forum/202608/27/145852dvyjgsezzefyrjyr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (456.1 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-27 14:58 上传
+
+单卡12并发，我觉得还不错。
+

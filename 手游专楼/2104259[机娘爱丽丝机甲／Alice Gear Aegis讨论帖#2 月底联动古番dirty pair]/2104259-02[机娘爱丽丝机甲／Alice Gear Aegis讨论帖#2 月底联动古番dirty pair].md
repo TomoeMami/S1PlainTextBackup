@@ -26,3 +26,11 @@
 
 —— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  江戸前ルナ  
+##### 2093#         楼主| 发表于 2026-8-27 15:01
+
+30发没事发生，不是本命我是不会氪金抽的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
