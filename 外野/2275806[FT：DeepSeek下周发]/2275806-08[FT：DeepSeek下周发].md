@@ -13943,3 +13943,34 @@ gpt plus有啥替代品吗，现在5h额度，有点没法用了
 有没有好用不受限的第三方api啊，deepseek官方api用来实时翻译动不动受限，自己架手上又没多余设备。 ...</blockquote>
 openrouter买DS3.2吧，翻译我一直感觉v4f不如3.2
 
+
+*****
+
+####  neptunehs  
+##### 11635#       发表于 2026-8-27 18:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70156918&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-27 18:22</a>
+openrouter买DS3.2吧，翻译我一直感觉v4f不如3.2</blockquote>
+我甚至觉得纯粹逐句无思考翻译qwen3.8远不如3.6
+
+不过后续的全盘检查因为需要tool 又得3.8或v4f上
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  qwased  
+##### 11636#       发表于 2026-8-27 18:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70156983&amp;ptid=2275806" target="_blank">neptunehs 发表于 2026-8-27 18:33</a>
+
+我甚至觉得纯粹逐句无思考翻译qwen3.8远不如3.6
+
+不过后续的全盘检查因为需要tool 又得3.8或v4f上</blockquote>
+对质量有要求还是参数量大一点的模型吧
+
+qwen 27b这个级别的模型我感觉根本不说人话，跑翻译完全没法用的水平
+
+反而谷歌那个gemma 26a4b开了思考翻出来挺不错的
+

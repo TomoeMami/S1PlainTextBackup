@@ -1207,3 +1207,11 @@ BGM是系列主题曲的变奏，这作音乐水准有望成为系列之最。
 —— 来自 S1Fun ...</blockquote>
 便宜的是日版
 
+
+*****
+
+####  takayama  
+##### 3066#       发表于 2026-8-27 18:45
+
+这次作品我们跟鬼佬这边都很热，反而日本本土一堆（自媒体号）在唱衰，目前日亚上限定版依旧充足<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
