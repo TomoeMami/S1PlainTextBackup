@@ -13566,3 +13566,16 @@ A和O的模型因为不说人话所以国外有人专门做了一个skill，让�
 
 现在网页/pdf翻译有什么推荐的模型？本地跑小模型太慢了，在线api之前用d4f不错，但涨价后高峰有点用不起了
 
+
+*****
+
+####  tonyunreal  
+##### 11599#       发表于 2026-8-27 14:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70155207&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-27 14:07</a>
+
+悲报，我的七天体验卡一上午用完了TT，总计大概不到五千万token全部跑子代理
+
+论坛助手,iPhone ...</blockquote>
+正常的，赠送的应该就是lite套餐水平，只能给入门用户尝尝鲜用
+
