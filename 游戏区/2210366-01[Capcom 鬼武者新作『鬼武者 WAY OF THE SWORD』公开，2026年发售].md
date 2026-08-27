@@ -736,3 +736,24 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 《鬼武者 Way of the Sword》× MAN WITH A MISSION“一闪”宣传片（剑戟动作篇）
 [https://youtu.be/mQFc--nwjRs](https://youtu.be/mQFc--nwjRs)
 
+
+*****
+
+####  大喇叭花田  
+##### 771#       发表于 2026-8-27 11:29
+
+<blockquote>windlikeman 发表于 2026-8-27 02:20
+对了 之前打佐佐木的时候以为残血打空槽那个居合是特殊处决
+
+这次发现原来是兼用卡！打猪和白秽都是这个居合 ...</blockquote>
+一路看下来，发现目前出现的boss全都是单手武器的模组...我有一种不好的预感
+
+*****
+
+####  大喇叭花田  
+##### 772#       发表于 2026-8-27 11:30
+
+<blockquote>戏言学者 发表于 2026-8-27 04:07
+国语配音怎么能垃圾成这样</blockquote>
+封建行会不是说笑的
+

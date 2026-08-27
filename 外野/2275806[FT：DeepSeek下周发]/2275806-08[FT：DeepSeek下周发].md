@@ -13189,3 +13189,29 @@ minimax plus年付（一直想退，但是又觉得150%周限退了可惜），�
 
 后续考虑：opencode go套餐里的低价模型比如小米、musk啥的接替minimax的位置。月度成本已经140+80+70了。opencode其实跟minimax年付重复了，而且是不是能体验点其他更聪明的模型。希望minimax能下半年发发力起码蒸馏出来个flashTT
 
+
+*****
+
+####  kinfox  
+##### 11565#       发表于 2026-8-27 11:33
+
+蹬完了，，做的还是意外的不错。看起来像模像样，总感觉这个ai肯定吃了很多小红薯的资料
+
+<img src="https://img.stage1st.com/forum/202608/27/113342vu9nzo3b5v9vb5o3.png" referrerpolicy="no-referrer">
+
+<strong>AF819592B76B23FB65F7C79A5410634D.png</strong> (63.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-27 11:33 上传
+
+<img src="https://img.stage1st.com/forum/202608/27/113342kzummqwj1olr4wnn.png" referrerpolicy="no-referrer">
+
+<strong>C491886D2DD2F9DF04B191A0683F85B5.png</strong> (142.4 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-27 11:33 上传
+
+准备扔给我的玩家测试了……
+
