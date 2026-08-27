@@ -14371,3 +14371,40 @@ dgx单机方案，常态30tk/s输出，买了dgx的坛 ...</blockquote>
 
 —— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  startraveller  
+##### 11673#       发表于 2026-8-27 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70158470&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-27 23:09</a>
+https://github.com/Felliks/qwen38-flash-next-one-dgx-spark
+
+dgx单机方案，常态30tk/s输出，买了dgx的坛 ...</blockquote>
+周末试试，单台还是太慢了，得上两台。
+
+
+*****
+
+####  qwased  
+##### 11674#       发表于 2026-8-27 23:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70158691&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-27 23:50</a>
+
+周末试试，单台还是太慢了，得上两台。</blockquote>
+似乎16G显存+64G内存都能跑个10~20tk/s
+
+rtx5000pro可以开mtp跑到100tk/s以上，只要体验能到dsv4f的8成就很无敌了
+
+*****
+
+####  xiaohanne  
+##### 11675#       发表于 2026-8-27 23:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70158289&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-27 22:45</a>
+
+炒作模型的“直觉”不可取，fable照样雷霆思考
+
+论坛助手,iPhone</blockquote>
+不是直觉，是效率
+
