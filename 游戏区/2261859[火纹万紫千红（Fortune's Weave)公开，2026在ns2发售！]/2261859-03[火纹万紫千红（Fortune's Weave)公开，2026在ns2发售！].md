@@ -1262,3 +1262,39 @@ BGM是系列主题曲的变奏，这作音乐水准有望成为系列之最。
 
 ●好きなもの：命のやり取り、女遊び
 
+
+*****
+
+####  hkguty  
+##### 3071#       发表于 2026-8-27 20:09
+
+日服有对三房无双意见很大吗？不是只有国内意见很大吗？
+
+*****
+
+####  cox  
+##### 3072#       发表于 2026-8-27 20:10
+
+这哥们喜欢逛青楼？这次人设的爱好还真五花八门。<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jabeck  
+##### 3073#       发表于 2026-8-27 20:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70157431&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-8-27 20:02</a>
+
+【キャラクター】シモン（CV：小林親弘）
+
+数多の死線を潜り抜けてきた、戦闘の専門家。
+
+傭兵として各地を ...</blockquote>
+玩女人，之前媒体哈气是因为这个吧。这次评级好像挺高的。<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纪寞  
+##### 3074#       发表于 2026-8-27 20:12
+
+说起来这作剑圣位是迪特里希啊，即是剑圣又是前期主角之一，感觉数值要拉爆其他人了
+
