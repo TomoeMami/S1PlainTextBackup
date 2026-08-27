@@ -14050,3 +14050,15 @@ hy mt2 1.8b，手机都能跑，就500MB大小<img src="https://static.stage1st.
 
 这个，1.8B，吊打机翻
 
+
+*****
+
+####  olo12138  
+##### 11644#       发表于 2026-8-27 19:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70157278&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-8-27 19:26</a>
+https://github.com/Tencent-Hunyuan/Hy-MT/blob/main/README_CN.md
+
+这个，1.8B，吊打机翻</blockquote>
+ok，多谢
+
