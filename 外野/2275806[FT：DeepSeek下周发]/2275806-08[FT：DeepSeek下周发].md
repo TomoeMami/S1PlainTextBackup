@@ -13865,3 +13865,23 @@ Hermes desktop新版居然自带opencode的免费模型，其中还有混元模�
 
 因为我看opencode群里边，这两天glm flash公测的时候，有人说出问题，都是直接让报session id定位错误的，这不就是跟裸体洗澡一样
 
+
+*****
+
+####  qwased  
+##### 11627#       发表于 2026-8-27 17:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151838&amp;ptid=2275806" target="_blank">chaoliu 发表于 2026-8-26 23:00</a>
+
+求助4070tis(16g显存）本地能跑什么模型目前智商比较高？对输出速度要求不高（能和kimi现在的垃圾速度打平 ...</blockquote>
+[https://stage1st.com/2b/thread-2288655-1-1.html](https://stage1st.com/2b/thread-2288655-1-1.html)
+
+文档整理好了，你试试部署一下
+
+*****
+
+####  mp5  
+##### 11628#       发表于 2026-8-27 17:52
+
+glm5.3flash 感觉还不如glm5.3加个多模态拐杖, glm5.3加了个拐杖之后能帮我搞定之前被d4pro弄成一坨的rust重构项目<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
