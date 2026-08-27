@@ -13721,3 +13721,39 @@ GPT plus这加了5小时额度之后完全没法用啊，我用Sol一个对话�
 
 有没有好用不受限的第三方api啊，deepseek官方api用来实时翻译动不动受限，自己架手上又没多余设备。
 
+
+*****
+
+####  →熙←  
+##### 11614#       发表于 2026-8-27 15:45
+
+glm5.3flash没那么聪明, 自己写的代码测试失败后, 就各种无头苍蝇一样暴力枚举方法解决<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qqq2142  
+##### 11615#       发表于 2026-8-27 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70153104&amp;ptid=2275806" target="_blank">zfy1989 发表于 2026-8-27 09:03</a>
+
+可以的，https://github.com/yexi-by/dsh-unrestricted#readme，这个</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/27/155023tfs7lyy7d1131fzf.png" referrerpolicy="no-referrer">
+
+<strong>QQ20260827-155005.png</strong> (52.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-27 15:50 上传
+
+<img src="https://img.stage1st.com/forum/202608/27/155023rw0ew1lxbsvz0c9u.png" referrerpolicy="no-referrer">
+
+<strong>QQ20260827-154538.png</strong> (67.69 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-27 15:50 上传
+
+我还是不行，难道是我姿势真的有问题？
+
