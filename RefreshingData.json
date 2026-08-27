@@ -8793,10 +8793,10 @@
     "update": false
   },
   "2186903": {
-    "totalreply": 3227,
+    "totalreply": 3228,
     "title": "[【集中楼】百合手游&amp;泛百合手游格斗专楼1.0]",
     "newtitle": "[【集中楼】百合&泛百合泥地摔跤专楼1.0]",
-    "lastedit": 1787850727,
+    "lastedit": 1787853605,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -12393,10 +12393,10 @@
     "update": false
   },
   "2268856": {
-    "totalreply": 72290,
+    "totalreply": 72291,
     "title": "[【B91】VUP综合讨论楼]",
     "newtitle": "[【B91】VUP综合讨论楼]",
-    "lastedit": 1787853365,
+    "lastedit": 1787853966,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -13086,10 +13086,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 32477,
+    "totalreply": 32506,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1787853366,
+    "lastedit": 1787853966,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17748,11 +17748,20 @@
     "update": false
   },
   "2288680": {
-    "totalreply": 41,
+    "totalreply": 42,
     "title": "[央视放出泥石流前后吉隆口岸对比图]",
     "newtitle": "[央视放出泥石流前后吉隆口岸对比图]",
-    "lastedit": 1787850967,
+    "lastedit": 1787853966,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2288616": {
+    "totalreply": 41,
+    "title": "[新出的星战游戏不错，xcom2新代餐]",
+    "newtitle": "[新出的星战游戏不错，xcom2新代餐]",
+    "lastedit": 1787854085,
+    "category": "游戏区",
     "active": true,
     "update": false
   }
