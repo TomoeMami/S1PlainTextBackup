@@ -14420,3 +14420,26 @@ rtx5000pro可以开mtp跑到100tk/s以上，只要体验能到dsv4f的8成就很
 rtx5000pro可以开mtp跑到100tk/s以上，只要体验能到dsv4f的8成就 ...</blockquote>
 72G 显存应该还行，16+64只能花式量化了
 
+
+*****
+
+####  qwased  
+##### 11677#       发表于 2026-8-28 00:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70158848&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-28 00:32</a>
+
+72G 显存应该还行，16+64只能花式量化了</blockquote>
+那一坨ngram可以丢ssd的
+
+
+*****
+
+####  真红之闪电  
+##### 11678#       发表于 2026-8-28 00:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70155988&amp;ptid=2275806" target="_blank">傻吧喵 发表于 2026-8-27 16:01</a>
+当然是黄油呀，不懂怎么破没研究这个，不过翻上面评论有说deepseek现在不好破的，对ai只会网页和填入相关 ...</blockquote>
+我刚试了下，小黄文还是一样写呀。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
