@@ -12959,3 +12959,35 @@ Gemini一堆人在那边各种暗示是Ox是Gemini太搞笑了<img src="https://
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> gemini 这波蹭热度是真的小丑
 
+
+*****
+
+####  来都来了  
+##### 11541#       发表于 2026-8-27 10:27
+
+哈基米的人在想什么？这又不是恐怖袭击，死无对证，各个组织跳出来认领。这种匿名模型，只要正主一出来，自己蹭热度不是纯小丑吗？
+
+*****
+
+####  jojog  
+##### 11542#       发表于 2026-8-27 10:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总不能什么都不干吧
+
+*****
+
+####  BarricadeMKXX  
+##### 11543#       发表于 2026-8-27 10:33
+
+所以现在爽蹬ds还是10刀的command code吗？
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  wandeeees  
+##### 11544#       发表于 2026-8-27 10:35
+
+没人讨论QWEN3.8 FLASH吗，有新架构，加上了engram，不知道性能咋样
+
