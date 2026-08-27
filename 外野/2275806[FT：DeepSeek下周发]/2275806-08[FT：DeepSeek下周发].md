@@ -13314,3 +13314,23 @@ https://stock.10jqka.com.cn/20260827/c679342056.shtml
 阿里云公告，大模型服务平台百炼将于北京时间202 ...</blockquote>
 不调缓存价格感觉还是亏
 
+
+*****
+
+####  →熙←  
+##### 11575#       发表于 2026-8-27 12:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70154737&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-27 12:36</a>
+
+https://stock.10jqka.com.cn/20260827/c679342056.shtml
+
+阿里云公告，大模型服务平台百炼将于北京时间202 ...</blockquote>
+缓存一毛,打平梁文峰, 到梁文谷就不行了
+
+*****
+
+####  cscbzcbz  
+##### 11576#       发表于 2026-8-27 12:41
+
+为什么都对缓存命中的价格语焉不详？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
