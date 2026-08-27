@@ -13490,3 +13490,24 @@ A和O的模型因为不说人话所以国外有人专门做了一个skill，让�
 
 其实主要还是因为他们的旗舰模型太慢了，像DS不说人话你可以直接追问它让它解释，sol什么的雷霆大思考半天给你一段不说人话的回答真的要气死，再追问几轮上下文就用完了，这样子根本是没法用的
 
+
+*****
+
+####  med  
+##### 11592#       发表于 2026-8-27 13:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70154864&amp;ptid=2275806" target="_blank">赤星ビスコ 发表于 2026-8-27 12:58</a>
+
+通过日志查bug这个场景最适合，而且还要思考开高，开个窗口和worktree扔一边让它慢慢玩就行
+
+ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer"> sol ultra 一个任务就几个小时，各种corner case考虑的尽善尽美，然后主线跑错了，疯掉了
+
+*****
+
+####  NaAgfykp  
+##### 11593#       发表于 2026-8-27 13:45
+
+我想用 fable 帮我做科研，就是探索一下潜在的创新点的话，是只要随便接一个 Agent 就行，还是说必须得要用官方 Agent？
+另外这里的 Fable 是第三方中转站的 api
+

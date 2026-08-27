@@ -52,3 +52,11 @@
 
 池子抽了90发都没有乔伊，精灵妹都3破了，这次这个池确实很不容易歪，但就算是UP也还是3选1啊。。
 
+
+*****
+
+####  胖达君  
+##### 68#       发表于 2026-8-27 13:36
+
+第一期的角色三个强度都很拉胯啊，还是存钻等个强卡吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
