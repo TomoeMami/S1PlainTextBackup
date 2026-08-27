@@ -65,3 +65,14 @@
 加强对迪奥加卡池蓝盾艾比昂好阴啊，分分钟一V五，谁用谁知道</blockquote>
 多谢提醒，已经踩雷翻车了
 
+
+*****
+
+####  AminGly  
+##### 4632#       发表于 2026-8-27 19:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70148915&amp;ptid=2071758" target="_blank">demon6666 发表于 2026-8-26 15:49</a>
+
+加强对迪奥加卡池蓝盾艾比昂好阴啊，分分钟一V五，谁用谁知道</blockquote>
+一般，被我泥头车创死了
+

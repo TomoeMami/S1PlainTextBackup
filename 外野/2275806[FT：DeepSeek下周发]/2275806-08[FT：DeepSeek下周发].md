@@ -14025,3 +14025,28 @@ qwen 27b这个级别的模型我感觉根本不说人话，跑翻译完全没法
 
 —— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qwased  
+##### 11642#       发表于 2026-8-27 19:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70157180&amp;ptid=2275806" target="_blank">olo12138 发表于 2026-8-27 19:04</a>
+
+我主要是玩gal时要用来翻译一些galgame，本地部署方便点</blockquote>
+hy mt2 1.8b，手机都能跑，就500MB大小<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+不过翻译出来的文本就是个顺畅一点的谷歌机翻
+
+*****
+
+####  UncleDracula  
+##### 11643#       发表于 2026-8-27 19:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70157180&amp;ptid=2275806" target="_blank">olo12138 发表于 2026-8-27 19:04</a>
+
+我主要是玩gal时要用来翻译一些galgame，本地部署方便点</blockquote>
+[https://github.com/Tencent-Hunyuan/Hy-MT/blob/main/README_CN.md](https://github.com/Tencent-Hunyuan/Hy-MT/blob/main/README_CN.md)
+
+这个，1.8B，吊打机翻
+
