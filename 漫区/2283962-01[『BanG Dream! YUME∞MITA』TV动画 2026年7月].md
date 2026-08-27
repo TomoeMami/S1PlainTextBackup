@@ -2718,3 +2718,11 @@ v姐和staff都没货了……就要这么结束了吗<img src="https://static.s
 
 把背后说坏话那段录音原样私信给阿拉蕾都比这个攻击性强
 
+
+*****
+
+####  kaildo  
+##### 372#       发表于 2026-8-28 00:07
+
+原来这动画是母鸡卡制作组自传，黑红也是红<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
