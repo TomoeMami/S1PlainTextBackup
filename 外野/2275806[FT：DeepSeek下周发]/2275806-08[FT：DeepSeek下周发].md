@@ -13982,3 +13982,24 @@ qwen 27b这个级别的模型我感觉根本不说人话，跑翻译完全没法
 
 问下现在有2b能本地部署的ai吗，只用来翻译，质量什么都无所谓
 
+
+*****
+
+####  UncleDracula  
+##### 11638#       发表于 2026-8-27 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70157094&amp;ptid=2275806" target="_blank">olo12138 发表于 2026-8-27 18:51</a>
+
+问下现在有2b能本地部署的ai吗，只用来翻译，质量什么都无所谓</blockquote>
+本地部署比网页版翻译有什么优势吗？
+
+
+*****
+
+####  olo12138  
+##### 11639#       发表于 2026-8-27 19:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70157134&amp;ptid=2275806" target="_blank">UncleDracula 发表于 2026-8-27 18:56</a>
+本地部署比网页版翻译有什么优势吗？</blockquote>
+我主要是玩gal时要用来翻译一些galgame，本地部署方便点
+
