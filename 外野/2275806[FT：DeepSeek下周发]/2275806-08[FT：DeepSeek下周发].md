@@ -14457,3 +14457,26 @@ rtx5000pro可以开mtp跑到100tk/s以上，只要体验能到dsv4f的8成就 ..
 我用的是一个打包客户端叫Deepseek-Harness-Desktop
 [https://github.com/dsh-tauri-desk/deepseek-harness-desktop](https://github.com/dsh-tauri-desk/deepseek-harness-desktop)
 
+
+*****
+
+####  zerona  
+##### 11680#       发表于 2026-8-28 01:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70153104&amp;ptid=2275806" target="_blank">zfy1989 发表于 2026-8-27 09:03</a>
+
+可以的，https://github.com/yexi-by/dsh-unrestricted#readme，这个</blockquote>
+确实可用了。
+
+
+*****
+
+####  xyhero  
+##### 11681#       发表于 2026-8-28 01:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70157673&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-27 20:59</a>
+大佬们  有能本地部署的无甲写书模型推荐吗？ 16g5060ti</blockquote>
+我在3080ti部署了qwen3-14b去对齐版本，不过nsfw内容感觉不如gork写得好。所以我是在workbuddy白嫖免费hy3写sfw内容，让他留好nsfw占位，然后上下文选一点再说清楚要什么扔给gork写。
+
+—— 来自 HUAWEI MRT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
