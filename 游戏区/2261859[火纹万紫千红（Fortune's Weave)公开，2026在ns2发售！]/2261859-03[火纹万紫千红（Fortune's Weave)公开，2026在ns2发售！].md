@@ -968,3 +968,14 @@ BGM是系列主题曲的变奏，这作音乐水准有望成为系列之最。
 
 昆仑属于西域，斋国原型是齐国的话就对应东部，方位上说得过去。但中间隔了个鞑古扎，应该不在同一个大陆。不知道两者的关系是什么
 
+
+*****
+
+####  头发头发  
+##### 3044#       发表于 2026-8-27 09:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151411&amp;ptid=2261859" target="_blank">Nez 发表于 2026-8-26 22:00</a>
+
+斋国在东方，但新娘团又是西方来的，所以是有两个不同的中华系地区吗</blockquote>
+星球是圆的吧大概<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+

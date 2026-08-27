@@ -12802,3 +12802,36 @@ dhs 有没有破限的办法
 
 牛来不是在第一天大伙就知道是glm了，google纯在蹭好吧<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王兰花秀丽  
+##### 11526#       发表于 2026-8-27 09:09
+
+倒不用那么急着买吧，说不定明年雷军把价格打下来了呢<img src="https://static.stage1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  阿刚  
+##### 11527#       发表于 2026-8-27 09:09
+
+好力竭啊，这个逼ai他有时候会张嘴就来，让他确认记忆模式他说了一大堆结果根本不对。。。有时候他很多基本错误是特么藏在真话里的。。。我好几次是獭马靠直觉发现的。。。
+
+*****
+
+####  冤枉呐  
+##### 11528#       发表于 2026-8-27 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152234&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-27 00:14</a>
+
+为了让更多新朋友能 0 成本上手体验 GLM-5.3-Flash，我们准备了一批 GLM Coding Plan 7 天体验卡（从未订阅 ...</blockquote>
+我自己的分享链接不知道在哪生成，就用你这个给别人转发了哈哈哈
+
+
+*****
+
+####  scikirbypoke  
+##### 11529#       发表于 2026-8-27 09:16
+
+猜谷歌主要是前几天有好几个开发者说大的要来了，当然谷歌根本不可能找opencode搞……
+
