@@ -12729,3 +12729,23 @@ dhs 有没有破限的办法
 
 试了一下股票的基本面分析，glm连最基本的数据都不准，只能说梁文峰毕竟主业搞量化的，DeepSeek投资分析强太多了
 
+
+*****
+
+####  斯卡文分则能成  
+##### 11520#       发表于 2026-8-27 08:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152234&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-27 00:14</a>
+
+为了让更多新朋友能 0 成本上手体验 GLM-5.3-Flash，我们准备了一批 GLM Coding Plan 7 天体验卡（从未订阅 ...</blockquote>
+
+第四个和第五个是不是没啥用啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202608/27/085437q3zu13n27z8ojkux.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2026-08-27 at 8.54.16 AM.png</strong> (169.14 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-27 08:54 上传
+
