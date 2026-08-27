@@ -14232,3 +14232,29 @@ rwkv说了有好几年了<img src="https://static.stage1st.com/image/smiley/face
 这人我看了下他的研究和发言，感觉是有想法有实力的，但是他这一套发言我不好说能不能成，感觉不像是能推翻 ...</blockquote>
 有点本事但是过于自嗨
 
+
+*****
+
+####  noneoneone  
+##### 11659#       发表于 2026-8-27 22:19
+
+我记得好早前就看过他提出的RWKV，说主流路线是错的。
+
+*****
+
+####  德尔惠净水器  
+##### 11660#       发表于 2026-8-27 22:20
+
+glm5.3f大概在哪个水平
+
+*****
+
+####  舞以  
+##### 11661#       发表于 2026-8-27 22:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70158108&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-8-27 22:20</a>
+glm5.3f大概在哪个水平</blockquote>
+更贵的v4fve差不多，glm订阅用户的性价比选择
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

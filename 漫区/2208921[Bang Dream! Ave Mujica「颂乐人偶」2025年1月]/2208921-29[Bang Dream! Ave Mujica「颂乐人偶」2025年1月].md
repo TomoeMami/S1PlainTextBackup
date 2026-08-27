@@ -31,3 +31,33 @@
 </blockquote>
        [https://www.bilibili.com/video/BV1jXhc6yEam/](https://www.bilibili.com/video/BV1jXhc6yEam/)
 
+
+*****
+
+####  堀内爱里衣  
+##### 42011#       发表于 2026-8-27 22:17
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/27/221745outumokqqctkz4l4.png" referrerpolicy="no-referrer">
+
+<strong>2026-08-27_22-15-58.png</strong> (1.15 MB, 下载次数: 0)
+
+下载附件
+
+2026-8-27 22:17 上传
+
+       [https://x.com/miyaji_maseiya/status/2092962836808945738](https://x.com/miyaji_maseiya/status/2092962836808945738)
+
+       
+
+<img src="https://img.stage1st.com/forum/202608/27/221744c1160hujz910u9ju.png" referrerpolicy="no-referrer">
+
+<strong>2026-08-27_22-16-52.png</strong> (494.28 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-27 22:17 上传
+
+       [https://t.bilibili.com/1241236359468810242](https://t.bilibili.com/1241236359468810242)
+
