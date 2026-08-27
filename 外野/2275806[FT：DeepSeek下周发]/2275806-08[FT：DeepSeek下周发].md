@@ -13013,3 +13013,60 @@ Gemini一堆人在那边各种暗示是Ox是Gemini太搞笑了<img src="https://
 
 纯纯小丑，特别是最后揭晓牛来的一大卖点还是纯国产算力，属于从头小丑到最后。
 
+
+*****
+
+####  nxmonitor  
+##### 11547#       发表于 2026-8-27 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70153846&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-27 10:35</a>
+
+没人讨论QWEN3.8 FLASH吗，有新架构，加上了engram，不知道性能咋样</blockquote>
+雷霆大思考问题比较严重，因为会学着大参数模型的规划去做，问题是智力还不够高，会出现反复撞墙的问题……
+
+*****
+
+####  唠叨  
+##### 11548#       发表于 2026-8-27 10:49
+
+我想知道Qwen 3.8 Flash跟GLM-5.3 Flash哪个干日常工作更合适  看价格都能替代梁文峰
+
+
+*****
+
+####  nxmonitor  
+##### 11549#       发表于 2026-8-27 10:53
+
+还有GLM吐字慢是正常的，谁叫他们用910C这个卡的，怎么都是慢的……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Azcarlo  
+##### 11550#       发表于 2026-8-27 10:53
+
+等一个glm 5.3 flash 用量实测，有人说折价的api 比套餐便宜，我感觉不大可能。
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  很久就在那边l  
+##### 11551#       发表于 2026-8-27 10:55
+
+还真是比套餐便宜
+<img src="https://p.sda1.dev/34/998d4b0610c96901a7d7a355aec0ed3d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 11552#       发表于 2026-8-27 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70153988&amp;ptid=2275806" target="_blank">Azcarlo 发表于 2026-8-27 10:53</a>
+等一个glm 5.3 flash 用量实测，有人说折价的api 比套餐便宜，我感觉不大可能。
+
+— from Xiaomi 23127PN0C ...</blockquote>
+用量 看看11471楼
+按量计费比套餐便宜是因为定价的问题，套餐里定的很贵
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
