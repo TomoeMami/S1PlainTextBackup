@@ -12906,3 +12906,22 @@ DSH本地干活选哪种长期记忆？OpenViking树状  还是dsh-memory简�
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  neptunehs  
+##### 11536#       发表于 2026-8-27 09:54
+
+虽然我也不知道有没有用 但我也传个火吧 https://agentrouter.org/register?aff=S4UP
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  misuzu0723  
+##### 11537#       发表于 2026-8-27 09:55
+
+本来想着要不买个最低档的套餐作为 GPTplus 的补充，结果 lite 套餐都要 100 出头？
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
