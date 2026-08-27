@@ -14106,3 +14106,13 @@ ok，多谢
 
 —— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cscbzcbz  
+##### 11649#       发表于 2026-8-27 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70157553&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-27 20:32</a>
+知乎上有个peng bo自己搞了个大模型，说是为了证明国模的后训练只是蒸馏，所以自己蒸馏一个模型，说是年底 ...</blockquote>
+祝他好运<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
