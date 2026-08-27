@@ -14198,3 +14198,11 @@ RWKV7 G1i 13B/7B/3B/1B（纯 RNN），目前 code/STEM 还差 Qwen3.5 一截，�
 
 而且这个显存……恕我直言……真的不中咧
 
+
+*****
+
+####  qz66618  
+##### 11655#       发表于 2026-8-27 21:40
+
+这人我看了下他的研究和发言，感觉是有想法有实力的，但是他这一套发言我不好说能不能成，感觉不像是能推翻当前transformer路线的人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
