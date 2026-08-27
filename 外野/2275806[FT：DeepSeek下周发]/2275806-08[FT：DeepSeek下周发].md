@@ -13688,3 +13688,20 @@ gpt的网页的luna感觉就是把正文回答当思维链用了，nmd我苦苦�
 
 GPT网页版感觉巨慢无比，有什么好姿势吗，Gemini就非常快
 
+
+*****
+
+####  真红之闪电  
+##### 11610#       发表于 2026-8-27 15:17
+
+有 Mac 部署本地的老哥吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  serj005  
+##### 11611#       发表于 2026-8-27 15:19
+
+关于不说人话这点，reasonix的中文更新日志就是典型案例，都不知道在放的啥屁，黑话一堆加主语宾语缺失还瞎搞比喻，看的人想骂人，太恶心了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
