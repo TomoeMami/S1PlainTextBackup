@@ -14258,3 +14258,28 @@ glm5.3f大概在哪个水平</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  qwased  
+##### 11662#       发表于 2026-8-27 22:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70157965&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-8-27 21:54</a>
+
+还是想等本地能跑的fable5级别的模型 70b大小</blockquote>
+感觉其实是不可能的，现在DS4F/qwen3.8next/GLM5.3T全都是蒸自家大模型然后超长思考换智力，和kimi k3/fable/sol这种直觉就很强的模型表现完全不一样
+
+*****
+
+####  →熙←  
+##### 11663#       发表于 2026-8-27 22:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70158108&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-8-27 22:20</a>
+
+glm5.3f大概在哪个水平</blockquote>
+不算太好用, 智商很怪, 会跑歪, 没ds4v舒服
+
+速度还没glm5.3快
+
+缓存不便宜, 多轮对话消耗挺大
+
