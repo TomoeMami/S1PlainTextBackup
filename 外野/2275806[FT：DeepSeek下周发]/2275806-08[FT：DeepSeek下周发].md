@@ -13825,3 +13825,43 @@ Muse Spark 1.2 这模型拉不拉，看了看opencode套餐里最便宜的了，
 Muse Spark 1.2 这模型拉不拉，看了看opencode套餐里最便宜的了，上午glm送的周卡5000w蹬完了，下午minimax ...</blockquote>
 看人测试下来很强，但是这家有协议要允许拿你的数据训练
 
+
+*****
+
+####  eno_emos  
+##### 11623#       发表于 2026-8-27 16:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70156327&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-27 16:49</a>
+
+Muse Spark 1.2 这模型拉不拉，看了看opencode套餐里最便宜的了，上午glm送的周卡5000w蹬完了，下午minimax ...</blockquote>
+meta的，首先不许大中华区ip用
+
+其次这玩意agent能力非常拉，我让它自己提一个解决方案，他经历了提出方案A，我指出方案A问题，提出方案B，我指出方案B问题，然后又提出方案A的过程，而且你不问他他完全不读skill，也不探索有哪些skill
+
+*****
+
+####  masonknight  
+##### 11624#       发表于 2026-8-27 16:57
+
+Hermes desktop新版居然自带opencode的免费模型，其中还有混元模型，蹬了一下，给我优化了一下桌面小工具，还行，就是慢了点
+
+*****
+
+####  舞以  
+##### 11625#       发表于 2026-8-27 16:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我这边dsh接codex疯狂报错啊 <blockquote>本轮运行失败Codex error: Our servers are currently overloaded. Please try again later.</blockquote>
+
+
+*****
+
+####  goranger  
+##### 11626#       发表于 2026-8-27 17:02
+
+@nxmonitor
+
+@eno_emos
+[@zy450](https://stage1st.com/2b/home.php?mod=space&amp;uid=179616) 感谢，训练就训练吧，我默认大模型公司都偷我数据，我准备蹬了试试了
+
+因为我看opencode群里边，这两天glm flash公测的时候，有人说出问题，都是直接让报session id定位错误的，这不就是跟裸体洗澡一样
+
