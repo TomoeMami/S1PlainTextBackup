@@ -12685,3 +12685,27 @@ dhs 有没有破限的办法
 wsl解君愁，不要跟窗户和它那个见鬼的pwsh死磕，平白涨血压
 现在我除了WorkBuddy直接装D盘，其他的pi/opencode/Hermes/dsh都一股脑塞Ubuntu虚拟机，丝滑又省心
 
+
+*****
+
+####  qqq2142  
+##### 11516#       发表于 2026-8-27 08:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152900&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-27 08:19</a>
+
+有专门的反推插件，本地运行，无任何限制，无token消耗，秒出结果。为什么要用LLM这种低效率的东西 ...</blockquote>
+本地反推不太行，因为我需要他更只能一些，比如替换角色提示词之类的
+
+*****
+
+####  zfy1989  
+##### 11517#       发表于 2026-8-27 08:35
+
+ 本帖最后由 zfy1989 于 2026-8-27 08:37 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152781&amp;ptid=2275806" target="_blank">qqq2142 发表于 2026-8-27 07:28</a>
+dhs 有没有破限的办法
+我想让他帮我反推 r18 图片提提示词</blockquote>
+有个叫破限模式的插件，效果还可以
+
+—— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
