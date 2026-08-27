@@ -13215,3 +13215,34 @@ minimax plus年付（一直想退，但是又觉得150%周限退了可惜），�
 
 准备扔给我的玩家测试了……
 
+
+*****
+
+####  hugosol  
+##### 11566#       发表于 2026-8-27 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70153324&amp;ptid=2275806" target="_blank">LeoDT 发表于 2026-8-27 09:34</a>
+
+写代码的话，现在有一波“什么记忆系统都不靠谱，代码才是唯一事实”的小趋势。
+
+我实际体验下来也是，优 ...</blockquote>
+写代码的话肯定要自己管理上下文吧，什么自动记忆系统都是干扰
+
+真正有价值需要持久化的东西就要记成文档，什么该记什么不该记这个问题业界都还在争论，怎么可能指望ai帮你自动记
+
+*****
+
+####  唠叨  
+##### 11567#       发表于 2026-8-27 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70154251&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-27 11:25</a>
+
+目前我的订阅结构：gpt plus。网页版review github代码，规划；
+
+luna跑在hermes层做agent接口（但是luna对 ...</blockquote>
+我开了minimax的MAX月付 不过蹬了1.15B token后觉的理科工作还是不太适合他  但是文科方面的工作完成的很好  下个月我会改成plus
+
+我不需要重度编程  v4完全能满足我理科方面的工作了 所以昨天开了commandcode爽蹬 opencodego套餐5美元开了一个月  月用量82.1%了  还剩14 天 1 小时到期不续了  
+
+其他火山 api易 阿里云 deepseek都有几元余额没用完 留着备用吧
+

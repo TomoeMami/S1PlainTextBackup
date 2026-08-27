@@ -24,3 +24,31 @@
 
 - 后续情报：团队将先专注最后冲刺，下一次公开会间隔一段时间；2027年还将举行系列25周年活动。
 
+
+*****
+
+####  Piano-Forest  
+##### 188#         楼主| 发表于 2026-8-27 11:35
+
+／
+
+📢 #キングダムハーツ 25周年展 開催決定！👑🗝️
+
+＼
+
+2027年3月に25周年を迎える「キングダム ハーツ」シリーズの歴史を祝う展覧会「KINGDOM HEARTS 25th ANNIVERSARY EXHIBITION」の開催が決定いたしました✨
+
+📅 会期：2027年2月5日(金)〜4月4日(日)
+
+📍 会場：六本木ヒルズ・森アーツセンターギャラリー（六本木ヒルズ森タワー52F）
+
+詳細は @KH25th_EX にて発信していきますので、ぜひフォローしてご確認ください！
+[https://www.sonymusicsolutions.co.jp/kh25th-exhibition/index.html](https://www.sonymusicsolutions.co.jp/kh25th-exhibition/index.html)
+
+*****
+
+####  Piano-Forest  
+##### 189#         楼主| 发表于 2026-8-27 11:39
+
+<img src="https://p.sda1.dev/34/455bdb0ca44f57bf8cc7cb5750c16b48/1000172966.jpg" referrerpolicy="no-referrer">
+
