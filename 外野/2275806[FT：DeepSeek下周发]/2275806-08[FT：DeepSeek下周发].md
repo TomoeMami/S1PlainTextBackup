@@ -13334,3 +13334,36 @@ https://stock.10jqka.com.cn/20260827/c679342056.shtml
 
 为什么都对缓存命中的价格语焉不详？<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 11577#       发表于 2026-8-27 12:49
+
+牢梁缓存价格这么低，推理毛利还能做到80%以上
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  CCauchy  
+##### 11578#       发表于 2026-8-27 12:54
+
+原来gpt不说人话不是免费网页版的问题吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  半江瑟瑟半江红  
+##### 11579#       发表于 2026-8-27 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70154849&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-27 12:54</a>
+原来gpt不说人话不是免费网页版的问题吗
+
+论坛助手,iPhone</blockquote>
+这模型就这样，电报体加不说人话，跟名片似的
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
