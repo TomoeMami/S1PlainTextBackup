@@ -725,3 +725,14 @@ boss的招式有无法化解无法弹开的
 
 道中不行是因为试玩版捡垃圾和魂都没啥用，正式版都能有用肯定不会比现在无聊。
 
+
+*****
+
+####  Piano-Forest  
+##### 770#         楼主| 发表于 2026-8-27 11:22
+
+PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
+
+《鬼武者 Way of the Sword》× MAN WITH A MISSION“一闪”宣传片（剑戟动作篇）
+[https://youtu.be/mQFc--nwjRs](https://youtu.be/mQFc--nwjRs)
+
