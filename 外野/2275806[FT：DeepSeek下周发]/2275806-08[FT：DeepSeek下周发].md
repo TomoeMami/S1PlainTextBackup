@@ -14443,3 +14443,17 @@ rtx5000pro可以开mtp跑到100tk/s以上，只要体验能到dsv4f的8成就 ..
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qqq2142  
+##### 11679#       发表于 2026-8-28 00:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70158647&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-27 23:39</a>
+
+兄弟，我对你插件市场这个插件很感兴趣啊
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99 ...</blockquote>
+我用的是一个打包客户端叫Deepseek-Harness-Desktop
+[https://github.com/dsh-tauri-desk/deepseek-harness-desktop](https://github.com/dsh-tauri-desk/deepseek-harness-desktop)
+
