@@ -13932,3 +13932,14 @@ GPT网页版感觉巨慢无比，有什么好姿势吗，Gemini就非常快</blo
 
 gpt plus有啥替代品吗，现在5h额度，有点没法用了
 
+
+*****
+
+####  qwased  
+##### 11634#       发表于 2026-8-27 18:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70155872&amp;ptid=2275806" target="_blank">傻吧喵 发表于 2026-8-27 15:40</a>
+
+有没有好用不受限的第三方api啊，deepseek官方api用来实时翻译动不动受限，自己架手上又没多余设备。 ...</blockquote>
+openrouter买DS3.2吧，翻译我一直感觉v4f不如3.2
+

@@ -1195,3 +1195,15 @@ BGM是系列主题曲的变奏，这作音乐水准有望成为系列之最。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  bbluekid  
+##### 3065#       发表于 2026-8-27 18:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70156820&amp;ptid=2261859" target="_blank">yangchunsiyue 发表于 2026-8-27 18:03</a>
+哦哦，原来如此，但它家同时又有个378的普通版，那这个378的价格也便宜不少
+
+—— 来自 S1Fun ...</blockquote>
+便宜的是日版
+

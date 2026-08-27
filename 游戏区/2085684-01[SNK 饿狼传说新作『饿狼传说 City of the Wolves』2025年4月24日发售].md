@@ -54,3 +54,16 @@
 
 何意味的铺张成本动画。
 
+
+*****
+
+####  ナルバレック  
+##### 823#       发表于 2026-8-27 18:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70156403&amp;ptid=2085684" target="_blank">人生オワタ 发表于 2026-8-27 17:01</a>
+
+【饿狼传说：群狼之城｜达克·金 动画宣传片（大张正己导演）-哔哩哔哩】 https://b23.tv/aMFhkhw
+
+何意味 ...</blockquote>
+这个动画确实是目前为止最意味不明的一个，除了让大张爽了一下外，可能定下了一年三个动画的指标，然后达克金和瑞克硬凑一个....后面拉奥孔和问号角色肯定有
+
