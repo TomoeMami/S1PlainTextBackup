@@ -13777,3 +13777,16 @@ glm5.3flash没那么聪明, 自己写的代码测试失败后, 就各种无头�
 你拿来翻译什么了，连 DeepSeek 甲这么薄都不愿意给你翻？</blockquote>
 不懂怎么破？我没研究这个，不过翻上面评论不是说deepseek有说现在不好破的，对ai只会网页和填入相关软件api，完全不懂啊。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冤枉呐  
+##### 11618#       发表于 2026-8-27 16:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70153343&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-27 09:36</a>
+
+我这个是在他公众号的官方发的
+
+论坛助手,iPhone</blockquote>
+我已经给他蹬完了
+
