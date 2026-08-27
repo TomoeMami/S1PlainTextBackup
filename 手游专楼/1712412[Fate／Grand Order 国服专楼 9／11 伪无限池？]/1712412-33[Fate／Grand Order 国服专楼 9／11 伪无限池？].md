@@ -72,3 +72,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">830石头出的提妈1宝，出了就行，也多亏十周年送的多
 
+
+*****
+
+####  苍蓝之枪  
+##### 48166#       发表于 2026-8-27 20:21
+
+点数毕业了，但是金棋子没搬完，免罐的戴冠战好像收益更高点吧
+
