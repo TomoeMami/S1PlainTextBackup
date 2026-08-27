@@ -1003,3 +1003,11 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 普通足轻的下劈确实能稳定一闪了，但是其他招和其他怪的招式还是不好抓到时机，还是得多练<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  u2deack  
+##### 796#       发表于 2026-8-27 22:07
+
+百秽无伤倒是打出来了，但是想全一闪还是有点难，主要是龙车和那两个0帧起手根本抓不到。但是已经不想打了，看着怪一直在努力出招然后被闪真的都有点心疼了，跟我刚开始打他的感觉差不多<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

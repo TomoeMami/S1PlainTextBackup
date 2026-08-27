@@ -14222,3 +14222,13 @@ rwkv说了有好几年了<img src="https://static.stage1st.com/image/smiley/face
 
 还是想等本地能跑的fable5级别的模型 70b大小
 
+
+*****
+
+####  startraveller  
+##### 11658#       发表于 2026-8-27 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70157893&amp;ptid=2275806" target="_blank">qz66618 发表于 2026-8-27 21:40</a>
+这人我看了下他的研究和发言，感觉是有想法有实力的，但是他这一套发言我不好说能不能成，感觉不像是能推翻 ...</blockquote>
+有点本事但是过于自嗨
+

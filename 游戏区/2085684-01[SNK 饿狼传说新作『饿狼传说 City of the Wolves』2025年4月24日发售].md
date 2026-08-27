@@ -91,3 +91,14 @@
 
 又是亏损200亿日元，石油佬能烧到什么时候？
 
+
+*****
+
+####  ナルバレック  
+##### 827#       发表于 2026-8-27 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70157495&amp;ptid=2085684" target="_blank">keytomylife 发表于 2026-8-27 20:17</a>
+
+又是亏损200亿日元，石油佬能烧到什么时候？</blockquote>
+你关注过SNK财报的话就会发现实际上就是石油佬收购后那年开始大亏的，之前几年全是赚的，主要是在建新办公场所，宣发成本，大幅度扩招和挖角还有开了好几个项目带来的，应该是石油佬指示扩张的
+
