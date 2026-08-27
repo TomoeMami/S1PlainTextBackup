@@ -14206,3 +14206,19 @@ RWKV7 G1i 13B/7B/3B/1B（纯 RNN），目前 code/STEM 还差 Qwen3.5 一截，�
 
 这人我看了下他的研究和发言，感觉是有想法有实力的，但是他这一套发言我不好说能不能成，感觉不像是能推翻当前transformer路线的人<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FACS  
+##### 11656#       发表于 2026-8-27 21:50
+
+rwkv说了有好几年了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  自由之紫roy  
+##### 11657#       发表于 2026-8-27 21:54
+
+还是想等本地能跑的fable5级别的模型 70b大小
+

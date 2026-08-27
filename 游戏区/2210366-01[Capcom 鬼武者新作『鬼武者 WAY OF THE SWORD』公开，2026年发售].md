@@ -988,3 +988,18 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 想打个隐藏boss无伤，太难了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 795#       发表于 2026-8-27 21:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152235&amp;ptid=2210366" target="_blank">放大镜 发表于 2026-8-27 00:14</a>
+
+不影响吧，有时候还得自己贴两步上去脸接
+
+这次判定稍微有点靠前，可以先拿足轻那个前冲下劈的动作找找感 ...</blockquote>
+顺便去看了一下别人的经验视频，说是要出招发力到命中前那个时间段才好触发
+
+普通足轻的下劈确实能稳定一闪了，但是其他招和其他怪的招式还是不好抓到时机，还是得多练<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
