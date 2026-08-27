@@ -14315,3 +14315,13 @@ glm5.3f大概在哪个水平</blockquote>
 
 目前大模型有没有自己的“摩尔定律”
 
+
+*****
+
+####  qwased  
+##### 11668#       发表于 2026-8-27 23:09
+
+https://github.com/Felliks/qwen38-flash-next-one-dgx-spark
+
+dgx单机方案，常态30tk/s输出，买了dgx的坛友来个实测啊
+

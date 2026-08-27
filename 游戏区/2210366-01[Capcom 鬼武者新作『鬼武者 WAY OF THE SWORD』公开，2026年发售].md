@@ -1011,3 +1011,16 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 百秽无伤倒是打出来了，但是想全一闪还是有点难，主要是龙车和那两个0帧起手根本抓不到。但是已经不想打了，看着怪一直在努力出招然后被闪真的都有点心疼了，跟我刚开始打他的感觉差不多<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nosgoth  
+##### 797#       发表于 2026-8-27 23:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70156494&amp;ptid=2210366" target="_blank">放大镜 发表于 2026-8-27 17:14</a>
+
+上次放出的片段不就有个类似大力手套的东西吗
+
+总不至于是个能顺便拿来打架的解谜道具吧</blockquote>
+看官网发现那个还真连鬼武具都不算，跟那个鬼视界一样是鬼能力觉醒的一种，就是开开路破破盾。
+
