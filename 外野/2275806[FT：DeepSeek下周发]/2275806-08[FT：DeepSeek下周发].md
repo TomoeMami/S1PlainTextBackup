@@ -13523,3 +13523,28 @@ A和O的模型因为不说人话所以国外有人专门做了一个skill，让�
 
 消费￥1.45
 
+
+*****
+
+####  冤枉呐  
+##### 11595#       发表于 2026-8-27 13:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70154305&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-8-27 11:33</a>
+蹬完了，，做的还是意外的不错。看起来像模像样，总感觉这个ai肯定吃了很多小红薯的资料
+
+准备扔给我的玩家 ...</blockquote>
+求测试
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  冤枉呐  
+##### 11596#       发表于 2026-8-27 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70154779&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-27 12:41</a>
+为什么都对缓存命中的价格语焉不详？这么不坦率</blockquote>
+阿里从来不坦诚
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
