@@ -12632,3 +12632,13 @@ qwen 3.8 27b FP8 去审核版了解一下</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">中午买了台dgx spark，晚上扭头看卖家已经涨了1000
 
+
+*****
+
+####  schneehertz  
+##### 11510#       发表于 2026-8-27 08:01
+
+有powershell支持就捏着鼻子用吧，git bash也很不行，Windows就这样了
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
