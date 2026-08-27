@@ -13579,3 +13579,63 @@ A和O的模型因为不说人话所以国外有人专门做了一个skill，让�
 论坛助手,iPhone ...</blockquote>
 正常的，赠送的应该就是lite套餐水平，只能给入门用户尝尝鲜用
 
+
+*****
+
+####  qwased  
+##### 11600#       发表于 2026-8-27 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70155232&amp;ptid=2275806" target="_blank">Freewolf 发表于 2026-8-27 14:11</a>
+
+现在网页/pdf翻译有什么推荐的模型？本地跑小模型太慢了，在线api之前用d4f不错，但涨价后高峰有点用不起了 ...</blockquote>
+你的显卡是什么？有12G显存就能跑hy mt2 7b了，我觉得比跑在线大模型快很多，质量也没啥差别
+
+
+*****
+
+####  唠叨  
+##### 11601#       发表于 2026-8-27 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70155285&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-27 14:20</a>
+正常的，赠送的应该就是lite套餐水平，只能给入门用户尝尝鲜用</blockquote>
+lite套餐周1万 这个体验总额2000   也能干不少活  刚好让新人评估一下用量和能力 选择合适套餐   卡的挺好的
+
+*****
+
+####  Freewolf  
+##### 11602#       发表于 2026-8-27 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70155314&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-27 14:24</a>
+
+你的显卡是什么？有12G显存就能跑hy mt2 7b了，我觉得比跑在线大模型快很多，质量也没啥差别
+
+ ...</blockquote>
+谢谢，我去试试，刚好有台3080 12G的机器。
+
+
+*****
+
+####  muermaru  
+##### 11603#       发表于 2026-8-27 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70155092&amp;ptid=2275806" target="_blank">NaAgfykp 发表于 2026-8-27 13:45</a>
+
+我想用 fable 帮我做科研，就是探索一下潜在的创新点的话，是只要随便接一个 Agent 就行，还是说必须得要用 ...</blockquote>
+中转站的肥波最大问题是不一定是真的肥波，啥agent倒是无所谓。要是真的肥波肯定放在自己的专武claude code里
+
+*****
+
+####  qwased  
+##### 11604#       发表于 2026-8-27 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70155352&amp;ptid=2275806" target="_blank">Freewolf 发表于 2026-8-27 14:30</a>
+
+谢谢，我去试试，刚好有台3080 12G的机器。</blockquote>
+hy mt2 7b unsloth q6量化+ KV量化Q8 +上下文24K 4并发 
+
+lmstudio设置一下按需加载
+
+整体使用就很舒服了
+
+8G显存可以尝试Q4量化，感觉跑翻译用低精度量化影响不大
+
