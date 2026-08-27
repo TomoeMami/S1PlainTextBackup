@@ -36,3 +36,19 @@ key visual有mio但是两天参加者都没mio啊<img src="https://static.stage1
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">先不把话说死了，后面看情况再往回补
 
+
+*****
+
+####  六至九  
+##### 7466#       发表于 2026-8-27 19:09
+
+SC的live一直都是初公布少人，后面慢慢补齐的
+
+<img src="https://img.stage1st.com/forum/202608/27/190937uxgxbtt2ane2qtqx.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1787828964235.png</strong> (31.43 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-27 19:09 上传
+

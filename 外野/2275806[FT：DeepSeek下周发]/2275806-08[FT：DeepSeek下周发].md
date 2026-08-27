@@ -14003,3 +14003,25 @@ qwen 27b这个级别的模型我感觉根本不说人话，跑翻译完全没法
 本地部署比网页版翻译有什么优势吗？</blockquote>
 我主要是玩gal时要用来翻译一些galgame，本地部署方便点
 
+
+*****
+
+####  斯卡文分则能成  
+##### 11640#       发表于 2026-8-27 19:07
+
+基元律动好用嘛
+
+有邀请码嘛<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zfy1989  
+##### 11641#       发表于 2026-8-27 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70155925&amp;ptid=2275806" target="_blank">qqq2142 发表于 2026-8-27 15:50</a>
+我还是不行，难道是我姿势真的有问题？</blockquote>
+还有一个选项要勾选，你找找我在电脑旁边，有说明的
+
+—— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

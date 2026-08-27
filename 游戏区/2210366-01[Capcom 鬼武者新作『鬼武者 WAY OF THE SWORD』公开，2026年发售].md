@@ -967,3 +967,16 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 这游戏的ds5手柄适配的真好，在steam上用xb手柄又打了一次，逊色不少
 
+
+*****
+
+####  放大镜  
+##### 793#       发表于 2026-8-27 19:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70157139&amp;ptid=2210366" target="_blank">汪达 发表于 2026-8-27 18:57</a>
+
+剑的交互动作做得这么复杂，是不可能再做一个同样丰富的拳套武器的，无非就是一种忍义手 ...</blockquote>
+所以才说是“类似大力手套”，以及“能顺便拿来打架”<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这次连双头这种元老武器都技能化了，就多给了一个卷动火焰爆散的环境互动
+
