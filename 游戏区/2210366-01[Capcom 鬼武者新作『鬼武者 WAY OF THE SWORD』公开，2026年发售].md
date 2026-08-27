@@ -937,3 +937,25 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 这个怎么买最便宜？steam版
 
+
+*****
+
+####  MRhythm  
+##### 790#       发表于 2026-8-27 18:56
+
+正规渠道就杉果, 含券268
+
+再低只能桃饱的挂刀礼物或者自己挂刀了, 你如果没折腾过steam市场的话, 挂刀比较麻烦
+
+*****
+
+####  汪达  
+##### 791#       发表于 2026-8-27 18:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70156494&amp;ptid=2210366" target="_blank">放大镜 发表于 2026-8-27 17:14</a>
+
+上次放出的片段不就有个类似大力手套的东西吗
+
+总不至于是个能顺便拿来打架的解谜道具吧</blockquote>
+剑的交互动作做得这么复杂，是不可能再做一个同样丰富的拳套武器的，无非就是一种忍义手
+
