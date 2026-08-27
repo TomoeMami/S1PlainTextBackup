@@ -12624,3 +12624,11 @@ qwen 3.8 27b FP8 去审核版了解一下</blockquote>
 而且现金流都开始吃紧了，有一家放水，token都会大降价的。
 而且按价格Tonken算，5090虽然便宜，但输出性价比真不如B300那样的新卡（就在这个整租都租不起，得搞分租😒）
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 11509#       发表于 2026-8-27 07:49
+
+<img src="https://static.stage1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">中午买了台dgx spark，晚上扭头看卖家已经涨了1000
+
