@@ -12925,3 +12925,37 @@ DSH本地干活选哪种长期记忆？OpenViking树状  还是dsh-memory简�
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  Rowen233  
+##### 11538#       发表于 2026-8-27 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70153085&amp;ptid=2275806" target="_blank">斯卡文分则能成 发表于 2026-8-27 08:59</a>
+
+原来ox是zai的模型啊
+
+昨天红脖子论坛还有人说是google的</blockquote>
+Gemini一堆人在那边各种暗示是Ox是Gemini太搞笑了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉谷歌现在内部乱的要死 他们自己都不知道自己有哪些模型
+
+*****
+
+####  ycjiang1337  
+##### 11539#       发表于 2026-8-27 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70151997&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-26 23:25</a>
+分点给梁叔叔吧</blockquote>
+看到W8A8就知道智谱用的是910系列，梁叔叔用不了
+
+—— 来自 HUAWEI SGT-AL50, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+
+*****
+
+####  yikka  
+##### 11540#       发表于 2026-8-27 10:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> gemini 这波蹭热度是真的小丑
+
