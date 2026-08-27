@@ -1989,3 +1989,40 @@ LO, GENGA
 
 bd访谈预览
 
+
+*****
+
+####  Piano-Forest  
+##### 452#         楼主| 发表于 2026-8-27 21:32
+
+˚ ⊹⁺‧┈┈┈┈┈┈┈┈┈┈┈┈┈‧⁺ ⊹˚
+
+　　      オリジナルTVアニメ
+
+　  　    『#さよならララ』
+
+　　Blu-ray＆DVD 好評予約受付中✨
+
+˚⊹⁺‧┈┈┈┈┈┈┈┈┈┈┈┈┈‧⁺ ⊹˚
+
+初回生産特典付きの展開図を公開します❣
+
+ぜひ皆さまも、お家にお迎えいただけると幸いです。
+
+また、特典のコンテ集とブックレットの試し読みを大公開‼
+
+下記ページよりご覧いただけますので、ぜひぜひご一読くださいね😌
+<img src="https://p.sda1.dev/34/27ebe3ea55313a9b2da10db59368e863/HQtow-zaEAAZKNP.jpg" referrerpolicy="no-referrer">
+
+#01 小出卓史部分分镜 ​​​
+<img src="https://p.sda1.dev/34/254433afaa828cf1a37872ae3a092313/a65s9-tyu3u-001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/f6ba0b89773a42b6c5b5ebfa3bcd672d/aktie-h8egt-002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/4f536e4a6e0760ea78fccd28bc99ba02/aktie-h8egt-003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/53d2494ff0499f558b00797659007d36/aktie-h8egt-004.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/7ea2ae421af9b961be796d45789d72ba/aktie-h8egt-005.jpg" referrerpolicy="no-referrer">
+
+ブックレット(監督：小出卓史×キャラクターデザイン：谷紫織×クリエイティブプロデューサー：森山菜月による鼎談などを収録)
+<img src="https://p.sda1.dev/34/f910865093d73dc2a8eeab4675879272/asp1x-3xydq-001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/1618df82127b205ca343bd74f45f4baa/asp1x-3xydq-002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/a3b7454735daa9c26adc502514f7fa9d/asp1x-3xydq-003.jpg" referrerpolicy="no-referrer">
+
