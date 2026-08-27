@@ -12709,3 +12709,23 @@ dhs 有没有破限的办法
 
 —— 来自 HONOR PTP-AN70, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qqq2142  
+##### 11518#       发表于 2026-8-27 08:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152967&amp;ptid=2275806" target="_blank">zfy1989 发表于 2026-8-27 08:35</a>
+
+有个叫破限模式的插件，效果还可以
+
+—— 来自 HONOR PTP-AN70, Android 16, 鹅球 v3.5.99 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是不行，看来只能老老实实用grok了
+
+*****
+
+####  sloth111  
+##### 11519#       发表于 2026-8-27 08:46
+
+试了一下股票的基本面分析，glm连最基本的数据都不准，只能说梁文峰毕竟主业搞量化的，DeepSeek投资分析强太多了
+
