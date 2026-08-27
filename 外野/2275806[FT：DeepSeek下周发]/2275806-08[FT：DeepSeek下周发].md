@@ -13705,3 +13705,11 @@ GPT网页版感觉巨慢无比，有什么好姿势吗，Gemini就非常快
 
 关于不说人话这点，reasonix的中文更新日志就是典型案例，都不知道在放的啥屁，黑话一堆加主语宾语缺失还瞎搞比喻，看的人想骂人，太恶心了<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hugosol  
+##### 11612#       发表于 2026-8-27 15:32
+
+GPT plus这加了5小时额度之后完全没法用啊，我用Sol一个对话就用掉大半额度了，这还用个鬼啊
+
