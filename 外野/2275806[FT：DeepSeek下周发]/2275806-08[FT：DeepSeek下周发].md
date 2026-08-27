@@ -13246,3 +13246,36 @@ luna跑在hermes层做agent接口（但是luna对 ...</blockquote>
 
 其他火山 api易 阿里云 deepseek都有几元余额没用完 留着备用吧
 
+
+*****
+
+####  古畑任三郎2015  
+##### 11568#       发表于 2026-8-27 11:46
+
+几个都看了下，工作日还是太贵了，一天一顿饭钱还是太痛了，索性还是本地27b跑跑吧，晚上再蹬
+
+*****
+
+####  很久就在那边l  
+##### 11569#       发表于 2026-8-27 11:48
+
+老黄上了0813，现在没多少人发现速度还很快
+
+
+*****
+
+####  goranger  
+##### 11570#       发表于 2026-8-27 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70154376&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-27 11:40</a>
+
+我开了minimax的MAX月付 不过蹬了1.15B token后觉的理科工作还是不太适合他  但是文科方面的工作完成的很 ...</blockquote>
+我咋看linux do上说cg又是路由好几个供应商导致掉缓存又是说要涨价的。
+
+*****
+
+####  med  
+##### 11571#       发表于 2026-8-27 11:57
+
+d4v挺好用的，现在这些sol ultra又慢又贵的模型到底谁在用啊 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不知道怎么弄的
+
