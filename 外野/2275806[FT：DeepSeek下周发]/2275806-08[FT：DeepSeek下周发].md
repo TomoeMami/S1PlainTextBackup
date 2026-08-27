@@ -13885,3 +13885,33 @@ Hermes desktop新版居然自带opencode的免费模型，其中还有混元模�
 
 glm5.3flash 感觉还不如glm5.3加个多模态拐杖, glm5.3加了个拐杖之后能帮我搞定之前被d4pro弄成一坨的rust重构项目<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  startraveller  
+##### 11629#       发表于 2026-8-27 18:00
+
+所以 Qwen 那个 Flash 怎么样？好像没 glm flash 火呀
+
+*****
+
+####  半江瑟瑟半江红  
+##### 11630#       发表于 2026-8-27 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70155675&amp;ptid=2275806" target="_blank">億万千 发表于 2026-8-27 15:13</a>
+GPT网页版感觉巨慢无比，有什么好姿势吗，Gemini就非常快</blockquote>
+没有，gpt就是想的慢，想的快得注意一下是不是后台给切成5.5mini了
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  serj005  
+##### 11631#       发表于 2026-8-27 18:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70156806&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-27 18:00</a>
+所以 Qwen 那个 Flash 怎么样？好像没 glm flash 火呀</blockquote>
+感觉qwen被无视了，同一天发布两个flash，估计都只记得经过牛来炒作一波的glm了。
+我昨天也把qwen和glm搞混了，还在想搜qwen的牛来关键词
+

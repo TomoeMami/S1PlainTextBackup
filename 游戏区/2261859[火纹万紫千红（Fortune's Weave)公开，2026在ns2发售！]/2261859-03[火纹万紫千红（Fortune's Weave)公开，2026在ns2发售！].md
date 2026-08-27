@@ -1175,3 +1175,23 @@ BGM是系列主题曲的变奏，这作音乐水准有望成为系列之最。
 
 我将不再诋毁万紫千红人设并将普通班换成典藏版
 
+
+*****
+
+####  1wq1  
+##### 3063#       发表于 2026-8-27 17:59
+
+白毛鬼的队员都没有战斗演示，是有什么原因吗
+
+
+*****
+
+####  yangchunsiyue  
+##### 3064#       发表于 2026-8-27 18:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70156544&amp;ptid=2261859" target="_blank">Beaverfan01 发表于 2026-8-27 17:23</a>
+点支付定金后在版本那里能看到限定版是750已经卖没了，这个438的价格是卡带的价格。 ...</blockquote>
+哦哦，原来如此，但它家同时又有个378的普通版，那这个378的价格也便宜不少
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
