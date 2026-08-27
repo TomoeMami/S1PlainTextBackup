@@ -1111,3 +1111,40 @@ BGM是系列主题曲的变奏，这作音乐水准有望成为系列之最。
 
 原来是个自恋狂。
 
+
+*****
+
+####  yangchunsiyue  
+##### 3058#       发表于 2026-8-27 17:06
+
+这家限定版怎么卖这么便宜，是二手吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+<img src="https://img.stage1st.com/forum/202608/27/170723xi89oiip1eui2iot.jpg" referrerpolicy="no-referrer">
+
+<strong>cfa7e9d7-c4bd-46ac-acad-84267ac552e4.jpg</strong> (478.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-27 17:07 上传
+
+<img src="https://img.stage1st.com/forum/202608/27/170722g9bzp9ov9bliqeoq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20260827_170003.jpg</strong> (834.9 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-27 17:07 上传
+
+
+*****
+
+####  takayama  
+##### 3059#       发表于 2026-8-27 17:11
+
+大文豪但丁<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但是女性<img src="https://static.stage1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT2125-4, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

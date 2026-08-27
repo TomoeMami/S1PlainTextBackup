@@ -871,3 +871,20 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 我反正觉得招式肯定不可能只有DEMO里这一套
 
+
+*****
+
+####  乔迪奥  
+##### 783#       发表于 2026-8-27 17:13
+
+是全藏了还是和石榴一样基本没有，我不好说，现在更倾向于是前者
+
+*****
+
+####  放大镜  
+##### 784#       发表于 2026-8-27 17:14
+
+上次放出的片段不就有个类似大力手套的东西吗
+
+总不至于是个能顺便拿来打架的解谜道具吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
