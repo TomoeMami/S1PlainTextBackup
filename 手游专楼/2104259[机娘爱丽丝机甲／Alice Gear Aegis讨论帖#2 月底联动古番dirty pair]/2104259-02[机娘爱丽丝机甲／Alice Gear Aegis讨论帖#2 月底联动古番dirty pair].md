@@ -16,3 +16,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">但是反正前两个我也没有这两个也懒得抽了（？？
 
+
+*****
+
+####  冰风血羽  
+##### 2092#       发表于 2026-8-27 14:44
+
+要不是第70发bu捞出初音，这次50+70就要全灭了<img src="https://static.stage1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX6699, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+

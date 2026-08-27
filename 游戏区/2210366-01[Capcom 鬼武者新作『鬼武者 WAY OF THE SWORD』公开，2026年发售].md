@@ -817,3 +817,14 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 卡婊真是带有些炫技意思的
 
+
+*****
+
+####  缺德猫  
+##### 779#       发表于 2026-8-27 14:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152800&amp;ptid=2210366" target="_blank">otakun 发表于 2026-8-27 07:41</a>
+
+国语配音是国内特色dei，怎么可能会不烂的</blockquote>
+文本也不好，感觉译者喜欢玩烂梗，换成繁中玩的
+

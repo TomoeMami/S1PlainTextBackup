@@ -13639,3 +13639,20 @@ lmstudio设置一下按需加载
 
 8G显存可以尝试Q4量化，感觉跑翻译用低精度量化影响不大
 
+
+*****
+
+####  zhongjie  
+##### 11605#       发表于 2026-8-27 14:42
+
+Claude我就是fable离不开，想要个实惠的。Claude里面fable只能用50%
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  CCauchy  
+##### 11606#       发表于 2026-8-27 14:46
+
+现在o &amp; a都是对接学术库的吗？还是doi抄摘要
+
