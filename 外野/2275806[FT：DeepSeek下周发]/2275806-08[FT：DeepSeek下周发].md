@@ -13548,3 +13548,21 @@ A和O的模型因为不说人话所以国外有人专门做了一个skill，让�
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  goranger  
+##### 11597#       发表于 2026-8-27 14:07
+
+悲报，我的七天体验卡一上午用完了TT，总计大概不到五千万token全部跑子代理
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Freewolf  
+##### 11598#       发表于 2026-8-27 14:11
+
+现在网页/pdf翻译有什么推荐的模型？本地跑小模型太慢了，在线api之前用d4f不错，但涨价后高峰有点用不起了
+

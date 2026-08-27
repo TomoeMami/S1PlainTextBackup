@@ -1930,3 +1930,18 @@ LO, GENGA
 <img src="https://p.sda1.dev/34/ab4db7a2c66c725228116e0db4dd90d5/HQKj-sCb0AAsOmm.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/34/5265bd1e858a8a240e9c510d92edc52c/HQKkAn3acAEuCHx.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  指挥家  
+##### 450#       发表于 2026-8-27 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70142447&amp;ptid=2183857" target="_blank">思信菌 发表于 2026-8-25 14:21</a>
+
+女儿二这边大概率还是铺垫
+
+鱼头剑和八芒星现在对男主没动静 不代表以后没动静
+
+大概率是男主那边还需要笔 ...</blockquote>
+男主太工具了，前面也没什么伏笔。情感的上限应该就是作为爱情指示物垫给大爱，不然就是当大爱的融合素材。
+
