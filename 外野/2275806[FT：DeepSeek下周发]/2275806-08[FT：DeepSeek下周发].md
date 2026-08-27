@@ -12835,3 +12835,60 @@ dhs 有没有破限的办法
 
 猜谷歌主要是前几天有好几个开发者说大的要来了，当然谷歌根本不可能找opencode搞……
 
+
+*****
+
+####  f77887  
+##### 11530#       发表于 2026-8-27 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152448&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-27 01:07</a>
+上下文实际占多了就暴跌到10tps出头了</blockquote>
+【16G显卡畅跑Qwen3.8 27B！80K+上下文不降智：Qwen3.8 27B社区魔改版榜单来袭！-哔哩哔哩】 https://b23.tv/bFdHxj6
+实在不行就用这个专门为16g显卡优化过的
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  龙骑士尹志平  
+##### 11531#       发表于 2026-8-27 09:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152234&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-27 00:14</a>
+
+为了让更多新朋友能 0 成本上手体验 GLM-5.3-Flash，我们准备了一批 GLM Coding Plan 7 天体验卡（从未订阅 ...</blockquote>
+加个小功能再测试下，20%的用量就过去了，是不是要选择5.3flash才用得没那么快啊<img src="https://static.stage1st.com/image/smiley/face2017/147.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LeoDT  
+##### 11532#       发表于 2026-8-27 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70152788&amp;ptid=2275806" target="_blank">squallx 发表于 2026-8-27 07:35</a>
+
+DSH本地干活选哪种长期记忆？OpenViking树状  还是dsh-memory简洁平铺？ 我看GPT说现在的CODEX也改用多层复 ...</blockquote>
+写代码的话，现在有一波“什么记忆系统都不靠谱，代码才是唯一事实”的小趋势。
+
+我实际体验下来也是，优先需要考虑的是让模型能读到他需要读到的所有东西，这个不管是记忆还是代码库我觉得都挺难做到的。代码结构化索引/检索工具体验下来还算不错，至少比rg/find之类提供的信息更准确，但是这类工具的问题是文档他不索引的，还是需要使用者适时提醒模型阅读需求/技术决策文档（尤其是主动性比较强的模型，如果没有文档约束会很容易出问题）。
+
+*****
+
+####  goranger  
+##### 11533#       发表于 2026-8-27 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70153155&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-27 09:10</a>
+我自己的分享链接不知道在哪生成，就用你这个给别人转发了哈哈哈</blockquote>
+我这个是在他公众号的官方发的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  goranger  
+##### 11534#       发表于 2026-8-27 09:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70153323&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-27 09:33</a>
+加个小功能再测试下，20%的用量就过去了，是不是要选择5.3flash才用得没那么快啊 ...</blockquote>
+那估计是
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
