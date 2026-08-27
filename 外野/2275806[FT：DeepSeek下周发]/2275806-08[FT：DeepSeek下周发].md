@@ -13367,3 +13367,68 @@ https://stock.10jqka.com.cn/20260827/c679342056.shtml
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  ycjiang1337  
+##### 11580#       发表于 2026-8-27 12:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70154835&amp;ptid=2275806" target="_blank">lactone 发表于 2026-8-27 12:49</a>
+
+牢梁缓存价格这么低，推理毛利还能做到80%以上
+
+—— 来自 HONOR AAK-AN00, Android 16, 鹅球 v3.5.99 ...</blockquote>
+SSD缓存是梁叔叔的独家秘籍
+
+*****
+
+####  赤星ビスコ  
+##### 11581#       发表于 2026-8-27 12:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70154494&amp;ptid=2275806" target="_blank">med 发表于 2026-8-27 11:57</a>
+d4v挺好用的，现在这些sol ultra又慢又贵的模型到底谁在用啊  不知道怎么弄的 ...</blockquote>
+通过日志查bug这个场景最适合，而且还要思考开高，开个窗口和worktree扔一边让它慢慢玩就行
+
+
+*****
+
+####  CCauchy  
+##### 11582#       发表于 2026-8-27 13:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70154857&amp;ptid=2275806" target="_blank">半江瑟瑟半江红 发表于 2026-8-27 12:55</a>
+这模型就这样，电报体加不说人话，跟名片似的
+
+—— 来自 HUAWEI SGU-AL10, Android 16, 鹅球 v4.0 ...</blockquote>
+a畜的感觉也不是很说人话，目前还是哈吉米3.1读起来最舒服，就是有的时候有点舔狗，ds就中规中矩
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  半江瑟瑟半江红  
+##### 11583#       发表于 2026-8-27 13:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70154876&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-8-27 13:01</a>
+a畜的感觉也不是很说人话，目前还是哈吉米3.1读起来最舒服，就是有的时候有点舔狗，ds就中规中矩
+
+论坛助 ...</blockquote>
+Gemini太舔了，有点恶心。d指导这方面我觉得最好
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  来都来了  
+##### 11584#       发表于 2026-8-27 13:04
+
+因为现在的智能体缓存命中率都能到 98% 以上，所以一个大模型的缓存命中价格直接决定了这个模型的使用费用。所以你看到谁家的模型吹自己输入输出有多便宜，却闭口不提缓存命中价格的时候，你只要呵呵就可以了
+
+*****
+
+####  lactone  
+##### 11585#       发表于 2026-8-27 13:05
+
+我觉得kimi是立场最坚定的，主打一个任何讨论都给你nuance
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
