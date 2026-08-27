@@ -13798,3 +13798,30 @@ glm5.3flash没那么聪明, 自己写的代码测试失败后, 就各种无头�
 
 基元律动蹬完了得楼友可以到咸鱼买助力号得cookies，1块4能蹬68，还能继续蹬几天
 
+
+*****
+
+####  goranger  
+##### 11620#       发表于 2026-8-27 16:49
+
+Muse Spark 1.2 这模型拉不拉，看了看opencode套餐里最便宜的了，上午glm送的周卡5000w蹬完了，下午minimax5h限制一小时蹬完了，准备试试它 
+
+*****
+
+####  nxmonitor  
+##### 11621#       发表于 2026-8-27 16:50
+
+<blockquote>goranger 发表于 2026-8-27 16:49
+Muse Spark 1.2 这模型拉不拉，看了看opencode套餐里最便宜的了，上午glm送的周卡5000w蹬完了，下午minimax ...</blockquote>
+拉，完全不听指令，试一下就知道
+
+*****
+
+####  zy450  
+##### 11622#       发表于 2026-8-27 16:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70156327&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-27 16:49</a>
+
+Muse Spark 1.2 这模型拉不拉，看了看opencode套餐里最便宜的了，上午glm送的周卡5000w蹬完了，下午minimax ...</blockquote>
+看人测试下来很强，但是这家有协议要允许拿你的数据训练
+
