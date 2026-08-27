@@ -14408,3 +14408,15 @@ rtx5000pro可以开mtp跑到100tk/s以上，只要体验能到dsv4f的8成就很
 论坛助手,iPhone</blockquote>
 不是直觉，是效率
 
+
+*****
+
+####  startraveller  
+##### 11676#       发表于 2026-8-28 00:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70158702&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-27 23:54</a>
+似乎16G显存+64G内存都能跑个10~20tk/s
+
+rtx5000pro可以开mtp跑到100tk/s以上，只要体验能到dsv4f的8成就 ...</blockquote>
+72G 显存应该还行，16+64只能花式量化了
+

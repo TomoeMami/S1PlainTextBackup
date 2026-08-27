@@ -1034,3 +1034,18 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 【打得好不如演员配合的好，鬼武者VS百秽无伤一则（伪）-哔哩哔哩】[https://b23.tv/1cNp4Dn](https://b23.tv/1cNp4Dn) [https://b23.tv/1cNp4Dn](https://b23.tv/1cNp4Dn)
 
+
+*****
+
+####  放大镜  
+##### 799#       发表于 2026-8-28 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70157921&amp;ptid=2210366" target="_blank">blue321 发表于 2026-8-27 21:45</a>
+
+顺便去看了一下别人的经验视频，说是要出招发力到命中前那个时间段才好触发
+
+普通足轻的下劈确实能稳定一 ...</blockquote>
+窗口是不一样，大部分下劈动作（包括足轻那一刀）会宽松很多
+
+有些动作，比如斧头哥跳踩、残血5连第一刀的窗口都不是最长的那一档，只是判定要比模型先到
+
