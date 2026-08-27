@@ -13145,3 +13145,22 @@ commandcode的v4f难道是他们自己部署的？怎么感觉有点降智
 
 据多家外媒报道，知名开源模型网站Hugging Face被英伟达129亿美元收购
 
+
+*****
+
+####  nxmonitor  
+##### 11561#       发表于 2026-8-27 11:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70154091&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-27 11:06</a>
+
+感觉deepseek的神秘灰测模型应该就是加上了这个engram，看他思考的时候非常自信，能很好的规划任务 ...</blockquote>
+出了以后就知道了，我觉得可能大模型用上engram更强，一两百B的模型用着可能是因为智力不够的问题，老是在改里面的东西，导致思维链超长，运行时间也离谱
+
+
+*****
+
+####  nxmonitor  
+##### 11562#       发表于 2026-8-27 11:13
+
+V4FV其实已经卡在过度思考的边缘了，新出的这两个的完成任务的时长绝对是不能忍的
+
