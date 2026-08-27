@@ -14116,3 +14116,15 @@ ok，多谢
 知乎上有个peng bo自己搞了个大模型，说是为了证明国模的后训练只是蒸馏，所以自己蒸馏一个模型，说是年底 ...</blockquote>
 祝他好运<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lactone  
+##### 11650#       发表于 2026-8-27 20:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70157559&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-27 20:34</a>
+祝他好运</blockquote>
+不过这个人还挺厉害的，提了一个RWKV架构，说是结合了rnn和transformer的优势
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
