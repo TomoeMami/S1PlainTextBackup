@@ -13279,3 +13279,17 @@ luna跑在hermes层做agent接口（但是luna对 ...</blockquote>
 
 d4v挺好用的，现在这些sol ultra又慢又贵的模型到底谁在用啊 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不知道怎么弄的
 
+
+*****
+
+####  唠叨  
+##### 11572#       发表于 2026-8-27 12:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70154468&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-27 11:52</a>
+
+我咋看linux do上说cg又是路由好几个供应商导致掉缓存又是说要涨价的。</blockquote>
+
+除了速度比官网慢一半外没察觉到什么问题，智力也正常，
+
+官网我也一直在蹬，除了速度没有明显区别。
+
