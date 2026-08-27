@@ -14325,3 +14325,16 @@ https://github.com/Felliks/qwen38-flash-next-one-dgx-spark
 
 dgx单机方案，常态30tk/s输出，买了dgx的坛友来个实测啊
 
+
+*****
+
+####  tillnight  
+##### 11669#       发表于 2026-8-27 23:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70158227&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-27 22:35</a>
+
+感觉其实是不可能的，现在DS4F/qwen3.8next/GLM5.3T全都是蒸自家大模型然后超长思考换智力，和kimi k3/fa ...</blockquote>
+“直觉”，指不给你看思维链。
+
+哦，虽然没有思维链，但对着sol这输出速度还觉得他直觉而没有思考人生，那也很灵性了。
+
