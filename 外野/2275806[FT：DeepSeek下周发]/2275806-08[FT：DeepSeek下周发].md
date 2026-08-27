@@ -14338,3 +14338,36 @@ dgx单机方案，常态30tk/s输出，买了dgx的坛友来个实测啊
 
 哦，虽然没有思维链，但对着sol这输出速度还觉得他直觉而没有思考人生，那也很灵性了。
 
+
+*****
+
+####  UncleDracula  
+##### 11670#       发表于 2026-8-27 23:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70158470&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-27 23:09</a>
+
+https://github.com/Felliks/qwen38-flash-next-one-dgx-spark
+
+dgx单机方案，常态30tk/s输出，买了dgx的坛 ...</blockquote>
+才30？那这笔钱不如蹬DSH来的划算吧
+
+*****
+
+####  冤枉呐  
+##### 11671#       发表于 2026-8-27 23:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70155925&amp;ptid=2275806" target="_blank">qqq2142 发表于 2026-8-27 15:50</a>
+我还是不行，难道是我姿势真的有问题？</blockquote>
+兄弟，我对你插件市场这个插件很感兴趣啊
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  novalli  
+##### 11672#       发表于 2026-8-27 23:41
+
+现在本地部署一般怎么搞？ollama？好久没上手不知道现在发展到什么样了？
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
