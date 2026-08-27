@@ -12642,3 +12642,11 @@ qwen 3.8 27b FP8 去审核版了解一下</blockquote>
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  赤星ビスコ  
+##### 11511#       发表于 2026-8-27 08:09
+
+K3 太慢太慢了，实际上真干活速度还是很重要
+
