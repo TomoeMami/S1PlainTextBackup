@@ -766,3 +766,11 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 在ns2上随时拿出来打一把百秽确实很爽，希望正式版通关后也能有这种直接打的挑战任务吧，对流程期待值确实不高。
 看了下视频有百秽带小兵的片段，应该也是那种前期小boss后期精英怪的设定，流程里血应该不至于像这个试玩这么厚吧
 
+
+*****
+
+####  theworld  
+##### 774#       发表于 2026-8-27 12:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">PDD这百亿补贴的价格有毛病，1秒十八变，刚看好271的港版首发几秒钟价格就变了
+
