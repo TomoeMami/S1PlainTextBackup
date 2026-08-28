@@ -15114,3 +15114,34 @@ command code goat看着确实不错，不知道有没有什么坑，会掺水吗
 
 HY4的智商如何？既然参数大适不适合作为制定计划的模型？
 
+
+*****
+
+####  tonyunreal  
+##### 11739#       发表于 2026-8-28 16:08
+
+付费版也开始排队了，笑死
+
+*****
+
+####  海德先生  
+##### 11740#       发表于 2026-8-28 16:09
+
+蹬爆了根本用不上<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  neptunehs  
+##### 11741#       发表于 2026-8-28 16:12
+
+不会影响hy3吧 我还在用hy3当省钱主力来着
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  蛋黄酱Release  
+##### 11742#       发表于 2026-8-28 16:13
+
+hy4根本连不上 免费的等了二十分钟就回了一句话<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
