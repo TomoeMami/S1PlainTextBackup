@@ -15925,3 +15925,13 @@ one shot生成玩具项目和实际使用还是差的有点远
 
 2026-8-29 02:53 上传
 
+
+*****
+
+####  舞以  
+##### 11814#       发表于 2026-8-29 03:44
+
+深夜发癫：哪怕涨价了，哪怕pro是个adhd患者。正式版的flash和多模态版本就足以让v4世代的DeepSeek被称之为伟大<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
