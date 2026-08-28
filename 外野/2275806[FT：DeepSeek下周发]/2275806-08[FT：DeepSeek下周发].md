@@ -15632,3 +15632,14 @@ workbuddy尝鲜的差不多了，确实很爽<img src="https://static.stage1st.c
 用不同AI，一个做规划，另一个做子代理执行，是有什么工具还是插件吗？</blockquote>
 我用的pi装pi-subagents
 
+
+*****
+
+####  龙骑士尹志平  
+##### 11792#       发表于 2026-8-28 20:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70164008&amp;ptid=2275806" target="_blank">七氷 发表于 2026-8-28 20:41</a>
+
+我用的pi装pi-subagents</blockquote>
+3.7flash是直接调用agy的吗，可以不用apikey直接调用agy来跑子代理吗
+
