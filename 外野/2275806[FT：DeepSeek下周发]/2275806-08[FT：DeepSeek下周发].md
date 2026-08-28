@@ -15688,3 +15688,31 @@ workbuddy怎么会这么卡的？Vibe coding的一坨代码是吧？<img src="ht
 要下载zcode才能领么</blockquote>
 是的，但不怕封号有github项目能反代出来
 
+
+*****
+
+####  浪费喝咖啡  
+##### 11796#       发表于 2026-8-28 21:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70164315&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-28 21:36</a>
+workbuddy怎么会这么卡的？Vibe coding的一坨代码是吧？</blockquote>
+相比桌面端，codebuddy cli好用多了，也有webui
+
+*****
+
+####  nxmonitor  
+##### 11797#       发表于 2026-8-28 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70164369&amp;ptid=2275806" target="_blank">浪费喝咖啡 发表于 2026-8-28 21:46</a>
+
+相比桌面端，codebuddy cli好用多了，也有webui</blockquote>
+codebuddy里的HY4是一坨，所以只能用workbuddy试试
+
+
+*****
+
+####  zhongjie  
+##### 11798#       发表于 2026-8-28 21:55
+
+dsh确实发布了一版破坏性的更新，更新后dsh直接启动失败了。我正在用gpt排查问题
+
