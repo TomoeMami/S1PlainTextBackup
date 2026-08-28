@@ -14702,3 +14702,29 @@ v4f0731没涨价之前就已经有但是没那么明显，825涨价之后积分�
 Token本意就是令牌<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 现在你懂英文科技词汇的💩山了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  唠叨  
+##### 11702#       发表于 2026-8-28 11:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">OpenCode Go太蛆了 剩了一点用量想用完 调了GLM-5.3 Flash   一个核对方案的工作跑了50分钟了还没跑完  浪费我的生命
+
+*****
+
+####  noneoneone  
+##### 11703#       发表于 2026-8-28 11:09
+
+所以当初是哪根筋不对了才会重复用token
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  xiaohanne  
+##### 11704#       发表于 2026-8-28 11:13
+
+<blockquote>唠叨 发表于 2026-8-28 11:08
+OpenCode Go太蛆了 剩了一点用量想用完 调了GLM-5.3 Flash   一个核对方案的工作跑了50分钟了还没跑完  浪 ...</blockquote>
+就像我之前说的，不要被Flash这个名字骗了。
+
