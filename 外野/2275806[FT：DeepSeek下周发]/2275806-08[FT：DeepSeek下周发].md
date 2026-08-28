@@ -15818,3 +15818,30 @@ dsh确实发布了一版破坏性的更新，更新后dsh直接启动失败了�
 
 很多问题甚至是not even wrong
 
+
+*****
+
+####  goranger  
+##### 11808#       发表于 2026-8-29 02:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70165082&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-29 01:45</a>
+英伟达这个短信验证咋过啊
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+国内手机号就行吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  qwased  
+##### 11809#       发表于 2026-8-29 02:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70165085&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-29 01:46</a>
+
+我现在越来越觉得所谓第三方的模型评测，比手机评测都不靠谱了
+
+很多问题甚至是not even wrong ...</blockquote>
+one shot生成玩具项目和实际使用还是差的有点远
+
