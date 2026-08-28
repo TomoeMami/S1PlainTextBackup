@@ -1252,3 +1252,13 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 三阶段多两个白给招，蓄力下砸可以闪避规避，摇花手放毒坛近身完全无视狂砍就行
 
+
+*****
+
+####  zqqwe  
+##### 815#       发表于 2026-8-29 00:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70164732&amp;ptid=2210366" target="_blank">milky658 发表于 2026-8-28 23:14</a>
+弹得蛮爽的，卡婊动作底蕴还是深厚。就是玩一会就有点头晕</blockquote>
+跑图阶段的视角太近还不能调远比较难受，还好战斗会拉远
+
