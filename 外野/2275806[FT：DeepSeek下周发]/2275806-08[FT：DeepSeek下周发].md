@@ -15542,3 +15542,22 @@ workbuddy里也是主要是let me，少量I'll，和灰测时思维链有较大�
 论坛助手,iPhone</blockquote>
 又送？不是上周才送过吗？
 
+
+*****
+
+####  CCauchy  
+##### 11783#       发表于 2026-8-28 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70163454&amp;ptid=2275806" target="_blank">hugosol 发表于 2026-8-28 18:13</a>
+梁文谷我就回去用DS了，GPT PLUS这5小时额度限制根本就没法用到周额度上限，除非晚上和周末便秘一样给些独 ...</blockquote>
+我之前算的涨价后梁文谷性价比跟gpt5x（不开fast）差不多，如果gpt上下文超300k收费翻倍，那确实还是得ds
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  龙骑士尹志平  
+##### 11784#       发表于 2026-8-28 20:08
+
+找到了，打开zcode，更新以后送3亿牛来，可以了，周末可以狂蹬了
+
