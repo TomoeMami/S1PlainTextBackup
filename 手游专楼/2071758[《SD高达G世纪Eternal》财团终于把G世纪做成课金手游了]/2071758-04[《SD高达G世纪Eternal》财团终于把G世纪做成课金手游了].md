@@ -76,3 +76,16 @@
 加强对迪奥加卡池蓝盾艾比昂好阴啊，分分钟一V五，谁用谁知道</blockquote>
 一般，被我泥头车创死了
 
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 4633#       发表于 2026-8-28 18:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70053894&amp;ptid=2071758" target="_blank">行政裁定书 发表于 2026-8-11 14:44</a>
+
+将来如果上steam后，是不是外挂、修改就多了？
+
+各种科技号？</blockquote>
+早就有科技号了，新号关卡全通很多都是科技刷的
+
