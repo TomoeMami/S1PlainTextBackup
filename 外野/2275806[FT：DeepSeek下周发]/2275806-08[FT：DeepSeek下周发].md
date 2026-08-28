@@ -15437,3 +15437,28 @@ cherry更新后也可以识图了，但是我怎么觉得api的识图有点弱�
 
 梁文谷我就回去用DS了，GPT PLUS这5小时额度限制根本就没法用到周额度上限，除非晚上和周末便秘一样给些独立小任务给GPT做
 
+
+*****
+
+####  奥柏伦亲王  
+##### 11773#       发表于 2026-8-28 18:17
+
+开蹬了家人们
+
+*****
+
+####  舞以  
+##### 11774#       发表于 2026-8-28 18:18
+
+我现在是pro5x当主力，梁文谷当补充和后备隐藏能源<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  tonyunreal  
+##### 11775#       发表于 2026-8-28 18:19
+
+本轮运行失败429: {"message":"The request rate exceeds the current model TPM limit 1000000. Please reduce the request frequency or contact Tencent Cloud support to request a higher limit.","message_zh":"请求速率超过当前模型 TPM 阈值 1000000，请降低访问频率或联系腾讯云售后申请更高限额。","code":"429001","type":"gateway_error","request_id":""}复制代码
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
