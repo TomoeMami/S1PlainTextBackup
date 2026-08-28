@@ -15068,3 +15068,11 @@ HY4性能看起来挺强，价格也还行，尤其是还能在workbuddy白嫖</
 
 自从v4f以来，越来越感觉最大的需求是中智能高服从度的小参数便宜模型了，大参数模型又慢又贵，也就前期设计用用还行<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jinuzuktII  
+##### 11734#       发表于 2026-8-28 15:19
+
+command code goat看着确实不错，不知道有没有什么坑，会掺水吗
+
