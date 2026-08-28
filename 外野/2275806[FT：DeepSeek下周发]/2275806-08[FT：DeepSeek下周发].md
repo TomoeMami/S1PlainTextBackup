@@ -15145,3 +15145,58 @@ HY4的智商如何？既然参数大适不适合作为制定计划的模型？
 
 hy4根本连不上 免费的等了二十分钟就回了一句话<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  goranger  
+##### 11743#       发表于 2026-8-28 16:14
+
+这几天高强度跑项目动不动七八个子代理一起跑，grok都顶不住半天跑满周限制，minimax的5h限制一小时就跑没了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  JWchze  
+##### 11744#       发表于 2026-8-28 16:15
+
+hy4尝试去审核我一个小项目，一个小时了终于结束了。。。
+
+*****
+
+####  问题修士  
+##### 11745#       发表于 2026-8-28 16:17
+
+蹬爆了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  tonyunreal  
+##### 11746#       发表于 2026-8-28 16:19
+
+初步来看前端小游戏不如前面那两个flash的水平
+
+思考链也是疯狂左右脑互博
+
+腾子训了个啥啊
+
+
+*****
+
+####  蛋黄酱Release  
+##### 11747#       发表于 2026-8-28 16:21
+
+这排队让我想起trae了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">实在是用不成
+
+*****
+
+####  舞以  
+##### 11748#       发表于 2026-8-28 16:22
+
+藤子自己的报告里都说了存在过度思考和左右互搏问题<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+而且当下也是preview
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

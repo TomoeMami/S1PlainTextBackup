@@ -1521,3 +1521,27 @@ Nintendo Music上了风花雪月的音乐，终于来了
 
 英文那边有放支援对话，是和女王队那个年轻骑士的
 
+
+*****
+
+####  cox  
+##### 3098#       发表于 2026-8-28 16:21
+
+日文支援对话也放出来了，这绿毛铠甲下面穿得很瑟啊。。。<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  5ew47  
+##### 3099#       发表于 2026-8-28 16:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer"> IS这不是很懂嘛
+
+<img src="https://img.stage1st.com/forum/202608/28/162559yvvmmbbumreeveuz.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8938.jpeg</strong> (74.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-28 16:25 上传
+
