@@ -15488,3 +15488,14 @@ hy4蹬完一个demo，用时 153 分钟
 
 2. 速度太慢
 
+
+*****
+
+####  qwased  
+##### 11778#       发表于 2026-8-28 19:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70163633&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-28 19:01</a>
+
+workbuddy里的HY4好像有i'm doing思维链，现在太挤了测不了…</blockquote>
+总结式思维链很多模型都有啊
+

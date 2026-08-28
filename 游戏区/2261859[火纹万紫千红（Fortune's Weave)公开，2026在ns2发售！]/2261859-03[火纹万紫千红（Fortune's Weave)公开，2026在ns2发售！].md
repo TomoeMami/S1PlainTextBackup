@@ -1602,3 +1602,11 @@ PDD发力了，需要V3 300-50卷，不过是香港直邮，现在的香港直�
 
 <img src="https://img.stage1st.com/forum/202608/28/185758osuovsbemct4xatm.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shinjia  
+##### 3104#       发表于 2026-8-28 19:26
+
+没v3会员，花了340    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
