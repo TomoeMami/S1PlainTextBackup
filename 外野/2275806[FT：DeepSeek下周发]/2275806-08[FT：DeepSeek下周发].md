@@ -14673,3 +14673,13 @@ v4f0731没涨价之前就已经有但是没那么明显，825涨价之后积分�
 为啥打开dsh会需要token</blockquote>
 最新版，加了一个鉴权
 
+
+*****
+
+####  cscbzcbz  
+##### 11699#       发表于 2026-8-28 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70160521&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-28 10:26</a>
+最新版，加了一个鉴权</blockquote>
+我还没更新，我理解他这个token是不是只是个令牌，不是词元<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

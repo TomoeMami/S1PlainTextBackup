@@ -2786,3 +2786,14 @@ v姐和staff都没货了……就要这么结束了吗<img src="https://static.s
 队内气氛和谐融洽，都是好孩子，没有人心怀鬼胎，没有人有心理疾病，全剧冲突全靠你大坏蛋薇姐撑着，怪不得 ...</blockquote>
 其实就是藤雪峰被妖薇蛊惑开始，剧情节奏放慢同时“不敢”朝着更激烈对抗方向去了，团魂就卡在那里不上不下。更麻烦的是还开始削妖薇的戏份和存在感导致剧情框架出问题
 
+
+*****
+
+####  dotiaffy  
+##### 379#       发表于 2026-8-28 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70158358&amp;ptid=2283962" target="_blank">dqtql 发表于 2026-8-27 22:54</a>
+
+讨论基本都在百合专楼</blockquote>
+我权限不够就没过去看了，原来如此
+

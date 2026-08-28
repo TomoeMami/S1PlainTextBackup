@@ -1404,3 +1404,25 @@ Nintendo Music上了风花雪月的音乐，终于来了
 
 形見の首飾り　越来越未亡人了
 
+
+*****
+
+####  karastar  
+##### 3085#       发表于 2026-8-28 10:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70160457&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-8-28 10:20</a>
+
+【キャラクター】ニネ（CV：篠原侑）
+
+猫仮面のオルヘルと同じく、クレール神殿に仕える神秘的な少女。
+
+神 ...</blockquote>
+喜欢可怜的人，是妈妈角色<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 3086#       发表于 2026-8-28 10:53
+
+作为四房锚点的女人
+
