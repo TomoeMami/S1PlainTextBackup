@@ -14801,3 +14801,35 @@ api蹬了一天感觉挺聪明的，别的ai修不好的程序bug全是它修好
 不想让dsh极简模式运行？</blockquote>
 极简模式是You are a helpful software engineer assistant.  这个没事。他拦截精确匹配的是You are a helpful assistant. 这个字符串，包括句号
 
+
+*****
+
+####  唠叨  
+##### 11712#       发表于 2026-8-28 12:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70161079&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-28 11:40</a>
+
+所以我一直感觉吹3.6 27b去审查版搞颜色很牛逼的就是那些齁齁ai**受众，纯纯堆词大王根本不说人话 ...</blockquote>
+佬  那哪个本地模型效果能好些呢 或者求个grok的破甲词  我一直用ofox的grok4.1flash  前天突然就不吐字了 报内部审查拦截
+
+
+*****
+
+####  gotter  
+##### 11713#       发表于 2026-8-28 12:04
+
+chatbox和其他一些软件的默认设定
+
+----发送自 [HUAWEI ALN-AL00,Android 12](http://stage1.5j4m.com/?1.48)
+
+*****
+
+####  schneehertz  
+##### 11714#       发表于 2026-8-28 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70160954&amp;ptid=2275806" target="_blank">vincevincetang 发表于 2026-8-28 11:24</a>
+为什么 agentrouter.org 要BAN "You are a helpful assistant."这句话 今早有些会话请求一直莫名奇妙被敏/ ...</blockquote>
+可能后端用的微软云，微软云的审核经常出问题
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
