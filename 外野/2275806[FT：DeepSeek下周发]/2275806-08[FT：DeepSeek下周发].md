@@ -14579,3 +14579,31 @@ dsh更新到0.1.2了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1
 峰的时候用国算的中转，反正套餐买都买了，先蹬完，下个月再想办法
 谷的时候用dsv4fv，价格基本就是涨价前的2倍，能接受，还有多模态
 
+
+*****
+
+####  SmterC  
+##### 11692#       发表于 2026-8-28 09:45
+
+Kimi的99元套餐到期，寻思我只用它订计划的话，不如直接49元套餐，杀鸡焉用牛刀
+
+没想到49元套餐这么少
+
+<img src="https://img.stage1st.com/forum/202608/28/094412iv7xes8l0wy0k8ey.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.16 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-28 09:44 上传
+
+<img src="https://img.stage1st.com/forum/202608/28/094453og4jjd4jaoaom4dq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (45.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-28 09:44 上传
+
+令人感叹
+
