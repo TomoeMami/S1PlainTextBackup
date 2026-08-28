@@ -15643,3 +15643,30 @@ workbuddy尝鲜的差不多了，确实很爽<img src="https://static.stage1st.c
 我用的pi装pi-subagents</blockquote>
 3.7flash是直接调用agy的吗，可以不用apikey直接调用agy来跑子代理吗
 
+
+*****
+
+####  星野あさみ  
+##### 11793#       发表于 2026-8-28 21:21
+
+<img src="https://img.stage1st.com/forum/202608/28/211554ir8pg9me8ee9ejig.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (54.95 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-28 21:15 上传
+
+分别尝试了这两个方案在单台DGX Spark上跑Qwen 3.8 Flash Next:
+
+sglang方案 —— [https://github.com/Felliks/qwen38-flash-next-one-dgx-spark](https://github.com/Felliks/qwen38-flash-next-one-dgx-spark)
+
+vllm方案 —— [https://github.com/TamasS84/vllm-qwen38-flash-sm121-nvme](https://github.com/TamasS84/vllm-qwen38-flash-sm121-nvme)
+
+后者速度是前者两倍，25 token/s勉强够用了。
+
+量化模型用这个：
+[https://modelscope.cn/models/RadixArk/Qwen3.8-Flash-Next-NVFP4](https://modelscope.cn/models/RadixArk/Qwen3.8-Flash-Next-NVFP4)
+
+不过跑Qwen时nvidia-smi里显示GPU的Pwr只有50W。而同一台DGX，dsv4f 0731 (EXL3量化) vllm能100W满血跑。
+
