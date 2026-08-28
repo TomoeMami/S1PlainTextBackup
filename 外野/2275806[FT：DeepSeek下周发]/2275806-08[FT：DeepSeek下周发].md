@@ -15028,3 +15028,35 @@ img_v3_02150_62ba1ea8-7033-4f52-92ea-ccb77ede989g.jpg
 不过楼里相关讨论不太多的样子， ...</blockquote>
 速度咋样？
 
+
+*****
+
+####  dazzle  
+##### 11730#       发表于 2026-8-28 14:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70160848&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-8-28 11:09</a>
+所以当初是哪根筋不对了才会重复用token
+
+——来自 2410DPN6CC 上的 S1er 客户端</blockquote>
+Token这个用法是从语言学到information retrieval到搜索引擎到llm，一脉相承下来的
+
+安全令牌这个token用法反而应用面更窄
+
+
+*****
+
+####  wandeeees  
+##### 11731#       发表于 2026-8-28 15:02
+
+HY4性能看起来挺强，价格也还行，尤其是还能在workbuddy白嫖
+
+*****
+
+####  tonyunreal  
+##### 11732#       发表于 2026-8-28 15:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70162312&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-8-28 15:02</a>
+
+HY4性能看起来挺强，价格也还行，尤其是还能在workbuddy白嫖</blockquote>
+白嫖已经被蹬爆了
+
