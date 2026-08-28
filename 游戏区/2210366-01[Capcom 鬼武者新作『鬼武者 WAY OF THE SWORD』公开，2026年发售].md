@@ -1101,3 +1101,16 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 卡婊神了
 
+
+*****
+
+####  wthall  
+##### 803#       发表于 2026-8-28 08:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70149903&amp;ptid=2210366" target="_blank">pointer243 发表于 2026-8-26 18:07</a>
+
+话说脚踢是没办法一闪的是吗？次次想碰瓷小兵的脚踢都是闪不出来
+
+—— 来自 motorola edge 2025, Android  ...</blockquote>
+可以一闪的
+
