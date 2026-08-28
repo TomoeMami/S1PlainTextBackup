@@ -15015,3 +15015,16 @@ img_v3_02150_62ba1ea8-7033-4f52-92ea-ccb77ede989g.jpg
 
 <img src="https://img.stage1st.com/forum/202608/28/142802wwb4e15q2ejlljjl.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UncleDracula  
+##### 11729#       发表于 2026-8-28 14:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70160942&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-8-28 11:22</a>
+
+我在观望command code，goat看起来类似于老opencode的10刀买60刀v4f额度
+
+不过楼里相关讨论不太多的样子， ...</blockquote>
+速度咋样？
+
