@@ -1493,3 +1493,23 @@ Nintendo Music上了风花雪月的音乐，终于来了
 
 忘记是第一方习惯性跑去港区买了，血亏50<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  墨染白泉  
+##### 3095#       发表于 2026-8-28 12:25
+
+<blockquote>trumen 发表于 2026-8-28 12:04
+请教下，看日版也有中文，和港版比差在什么地方呢</blockquote>
+实体版就游戏封面差别，数字版就没差别了，第一方全区中文
+
+
+*****
+
+####  trumen  
+##### 3096#       发表于 2026-8-28 12:30
+
+<blockquote>墨染白泉 发表于 2026-8-28 12:25
+实体版就游戏封面差别，数字版就没差别了，第一方全区中文</blockquote>
+谢谢，那我买日版去
+

@@ -22,3 +22,15 @@
 从通关后的毕业BD，卡得最狠最稀缺的资源水晶的最高效获取方式为24小时一个CD的救援奖励来看，我在想任天 ...</blockquote>
 喷喷不出个单机版又可惜，出了单机版结果，内容又不够玩。那么大家请期待喷4吧。好像也说得通的样子
 
+
+*****
+
+####  绿冰  
+##### 972#         楼主| 发表于 2026-8-28 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70161292&amp;ptid=2253488" target="_blank">mcq_2 发表于 2026-8-28 12:13</a>
+喷喷不出个单机版又可惜，出了单机版结果，内容又不够玩。那么大家请期待喷4吧。好像也说得通的样子 ...</blockquote>
+我感觉9月份直面会估计会再追加一个模式，不会这么就结束了
+
+—— 来自 realme RMX5060, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
