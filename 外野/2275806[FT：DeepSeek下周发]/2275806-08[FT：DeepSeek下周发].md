@@ -14607,3 +14607,19 @@ Kimi的99元套餐到期，寻思我只用它订计划的话，不如直接49元
 
 令人感叹
 
+
+*****
+
+####  c月光咖啡  
+##### 11693#       发表于 2026-8-28 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70160042&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-28 09:34</a>
+
+峰的时候用国算的中转，反正套餐买都买了，先蹬完，下个月再想办法
+
+谷的时候用dsv4fv，价格基本就是涨价 ...</blockquote>
+注意看，国算有扣费黑洞
+
+使用国家超算token plan的注意扣费黑洞
+[https://stage1st.com/2b/forum.ph ... ;page=1#pid70160173](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2288697&amp;page=1#pid70160173)
+
