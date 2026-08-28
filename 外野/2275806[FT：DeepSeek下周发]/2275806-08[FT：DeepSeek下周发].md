@@ -15770,3 +15770,19 @@ dsh确实发布了一版破坏性的更新，更新后dsh直接启动失败了�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  qwased  
+##### 11804#       发表于 2026-8-28 23:51
+
+<img src="https://img.stage1st.com/forum/202608/28/235107bfqi3yzvri8hfjjo.jpg" referrerpolicy="no-referrer">
+
+<strong>2f5a9a5336c75bff161f560f70736ee03494356176603382.jpg</strong> (64.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-28 23:51 上传
+
+上错模型了还行
+
