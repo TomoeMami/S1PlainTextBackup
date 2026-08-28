@@ -15280,3 +15280,30 @@ deepseek 4f就干脆很多，简单思考，直接修改。
 将军说的对，flash一定要flash</blockquote>
 哈基米:……
 
+
+*****
+
+####  nekomimimisuzu  
+##### 11757#       发表于 2026-8-28 17:36
+
+梁文峰时蹬trae，workbuddy的签到奖励或者白嫖模型，梁文谷时就用梁文谷，还是花不了太多钱的
+
+*****
+
+####  cscbzcbz  
+##### 11758#       发表于 2026-8-28 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70162708&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-28 16:00</a>
+是便宜的好用模型, 大参数模型价格便宜肯定是更好呀, 怀念灰测的第X天, 指哪打哪的感觉太好了, 无数人的 ...</blockquote>
+梁子还在藏<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiaohanne  
+##### 11759#       发表于 2026-8-28 17:40
+
+<blockquote>Promeus 发表于 2026-8-28 17:33
+哈基米:……</blockquote>
+哈基米3.7flash口碑还是回升不少的，虽然还是路边一条但起码进入讨论范围了
+
