@@ -14907,3 +14907,40 @@ Codex压缩上下文的时候感觉因为梯子不太行还是什么原因一直
 —— 来自 鹅球 v3.3 ...</blockquote>
 一般是垃圾中转站的问题。
 
+
+*****
+
+####  厍无春  
+##### 11719#       发表于 2026-8-28 14:10
+
+商汤免费k3了解一下
+
+*****
+
+####  neptunehs  
+##### 11720#       发表于 2026-8-28 14:11
+
+我今天让dsv4做plan hy3free干活 居然也干出来了
+这不比什么minimax m3强多了吗
+
+虽然minimaxm3出的anima tag一步到位 明明我一仔细问他居然说不知道什么叫anima
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  serj005  
+##### 11721#       发表于 2026-8-28 14:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70161921&amp;ptid=2275806" target="_blank">厍无春 发表于 2026-8-28 14:10</a>
+商汤免费k3了解一下</blockquote>
+商汤现在真能用吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">先不说他们平台的第三方模型，连他们自己的模型都没速度，半天才响应，挂网页翻译都不好用
+
+*****
+
+####  tonyunreal  
+##### 11722#       发表于 2026-8-28 14:13
+
+Hy4上腾讯云了，770B-49B
+
