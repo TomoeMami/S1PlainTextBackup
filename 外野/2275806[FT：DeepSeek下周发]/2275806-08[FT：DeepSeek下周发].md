@@ -14540,3 +14540,23 @@ dsh更新到0.1.2了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1
 为什么都那么关注deepseek？感觉这些大语言模型在商用潜力上被seedance2完爆，那个太恐怖了，商业价值已经 ...</blockquote>
 主要是现在的deepseek涨价后，毫无亮点可言
 
+
+*****
+
+####  璇瑢子R  
+##### 11688#       发表于 2026-8-28 08:59
+
+我跑日-》中翻译，gemma4 31B比Qwen 3.8 27B或者3.6 27B或者35A3B效果都要好
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 11689#       发表于 2026-8-28 09:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70159814&amp;ptid=2275806" target="_blank">boomclap 发表于 2026-8-28 08:53</a>
+主要是现在的deepseek涨价后，毫无亮点可言</blockquote>
+涨价后也属于便宜那一档的。
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
