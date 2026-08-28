@@ -14529,3 +14529,14 @@ rtx5000pro可以开mtp跑到100tk/s以上，只要体验能到dsv4f的8成就 ..
 
 dsh更新到0.1.2了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  boomclap  
+##### 11687#       发表于 2026-8-28 08:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69255146&amp;ptid=2275806" target="_blank">Evelynn 发表于 2026-3-1 16:51</a>
+
+为什么都那么关注deepseek？感觉这些大语言模型在商用潜力上被seedance2完爆，那个太恐怖了，商业价值已经 ...</blockquote>
+主要是现在的deepseek涨价后，毫无亮点可言
+
