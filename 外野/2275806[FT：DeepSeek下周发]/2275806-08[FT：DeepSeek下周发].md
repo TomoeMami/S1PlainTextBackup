@@ -15095,3 +15095,22 @@ command code goat看着确实不错，不知道有没有什么坑，会掺水吗
 
 这个HY4的激活参数比例够多的，推理成本不低……
 
+
+*****
+
+####  →熙←  
+##### 11737#       发表于 2026-8-28 16:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70162345&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-28 15:08</a>
+
+自从v4f以来，越来越感觉最大的需求是中智能高服从度的小参数便宜模型了，大参数模型又慢又贵，也就前期设 ...</blockquote>
+是便宜的好用模型, 大参数模型价格便宜肯定是更好呀, 怀念灰测的第X天, 指哪打哪的感觉太好了, 无数人的白月光<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SmterC  
+##### 11738#       发表于 2026-8-28 16:04
+
+HY4的智商如何？既然参数大适不适合作为制定计划的模型？
+
