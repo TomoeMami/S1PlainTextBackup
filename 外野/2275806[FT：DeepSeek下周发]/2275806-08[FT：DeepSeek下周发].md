@@ -14771,3 +14771,13 @@ api蹬了一天感觉挺聪明的，别的ai修不好的程序bug全是它修好
 
 为什么 agentrouter.org 要BAN "You are a helpful assistant."这句话<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 今早有些会话请求一直莫名奇妙被**拦截，最后定位到某插件注入的这句话。这句话有什么终端特征吗
 
+
+*****
+
+####  serj005  
+##### 11709#       发表于 2026-8-28 11:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70160954&amp;ptid=2275806" target="_blank">vincevincetang 发表于 2026-8-28 11:24</a>
+为什么 agentrouter.org 要BAN "You are a helpful assistant."这句话 今早有些会话请求一直莫名奇妙被敏/ ...</blockquote>
+不想让dsh极简模式运行？
+
