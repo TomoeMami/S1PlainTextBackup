@@ -14683,3 +14683,22 @@ v4f0731没涨价之前就已经有但是没那么明显，825涨价之后积分�
 最新版，加了一个鉴权</blockquote>
 我还没更新，我理解他这个token是不是只是个令牌，不是词元<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  serj005  
+##### 11700#       发表于 2026-8-28 11:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70160434&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-28 10:17</a>
+为啥打开dsh会需要token</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">支持词元译法的又一个案例，真得把令牌和词元分开吧
+
+
+*****
+
+####  crow_wine  
+##### 11701#       发表于 2026-8-28 11:02
+
+Token本意就是令牌<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+现在你懂英文科技词汇的💩山了吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
