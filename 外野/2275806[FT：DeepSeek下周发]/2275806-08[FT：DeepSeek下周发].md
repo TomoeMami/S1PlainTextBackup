@@ -15076,3 +15076,14 @@ HY4性能看起来挺强，价格也还行，尤其是还能在workbuddy白嫖</
 
 command code goat看着确实不错，不知道有没有什么坑，会掺水吗
 
+
+*****
+
+####  qwased  
+##### 11735#       发表于 2026-8-28 15:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70162439&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-8-28 15:19</a>
+
+command code goat看着确实不错，不知道有没有什么坑，会掺水吗</blockquote>
+说是非常非常慢，估计超售很严重
+
