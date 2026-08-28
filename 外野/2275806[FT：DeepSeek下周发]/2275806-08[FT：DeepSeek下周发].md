@@ -15935,3 +15935,176 @@ one shot生成玩具项目和实际使用还是差的有点远
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  goranger  
+##### 11815#       发表于 2026-8-29 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70164859&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-28 23:51</a>
+
+上错模型了还行</blockquote>
+白嫖了一周试用卡蹬了五千万能再给张试用卡吗
+
+*****
+
+####  冤枉呐  
+##### 11816#       发表于 2026-8-29 01:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70164820&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-28 23:37</a>
+英伟达的deepseek</blockquote>
+英伟达这个短信验证咋过啊
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  舞以  
+##### 11817#       发表于 2026-8-29 01:46
+
+我现在越来越觉得所谓第三方的模型评测，比手机评测都不靠谱了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+很多问题甚至是not even wrong
+
+*****
+
+####  goranger  
+##### 11818#       发表于 2026-8-29 02:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70165082&amp;ptid=2275806" target="_blank">冤枉呐 发表于 2026-8-29 01:45</a>
+英伟达这个短信验证咋过啊
+
+—— 来自 HUAWEI ALN-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+国内手机号就行吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qwased  
+##### 11819#       发表于 2026-8-29 02:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70165085&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-29 01:46</a>
+
+我现在越来越觉得所谓第三方的模型评测，比手机评测都不靠谱了
+
+很多问题甚至是not even wrong ...</blockquote>
+one shot生成玩具项目和实际使用还是差的有点远
+
+*****
+
+####  tonyunreal  
+##### 11820#       发表于 2026-8-29 02:37
+
+ 本帖最后由 tonyunreal 于 2026-8-29 02:42 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70164859&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-28 23:51</a>
+上错模型了还行</blockquote>
+没有收到退款
+说明按量计费api是满血版？
+
+编辑：不对啊，上线是26号吧
+这是27号又换了模型？
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  UmarIbnLaAhad  
+##### 11821#       发表于 2026-8-29 02:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70165085&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-29 01:46</a>
+ 我现在越来越觉得所谓第三方的模型评测，比手机评测都不靠谱了 很多问题甚至是not even wrong ...</blockquote>
+一句话生成基本都是狗屁，一句话也许是生成90，但90-99的表现和轮次才是实用关键
+谁特么用个agent天天搓我的世界或者鹈鹕骑单车
+
+*****
+
+####  舞以  
+##### 11822#       发表于 2026-8-29 02:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70165130&amp;ptid=2275806" target="_blank">UmarIbnLaAhad 发表于 2026-8-29 02:47</a>
+
+一句话生成基本都是狗屁，一句话也许是生成90，但90-99的表现和轮次才是实用关键
+
+谁特么用个agent天天搓 ...</blockquote>
+主要很多人给的评价让我觉得估计没用过哈哈
+
+*****
+
+####  来都来了  
+##### 11823#       发表于 2026-8-29 02:55
+
+ 本帖最后由 来都来了 于 2026-8-29 03:05 编辑 
+
+我的pi扩展组件包发布啦！ [https://github.com/petrel-cn/pi-extensions](https://github.com/petrel-cn/pi-extensions)
+
+在经历了本地的多轮迭代后，我觉得这几个扩展可以发出来了。这也是我第一次在网上发布个人的作品，在github和npm上都进行了发布，流程完全不懂，基本上全程都是由AI指导我一步步点击着干的，不过最后还是顺利发布出来了，希望对大家有帮助。
+
+这三个扩展分别是工作区与危险命令审批、余额显示、以及PI的状态窗口监视。由于状态窗口监视对前两者有弱依赖，如果不装前两者的话会导致它的显示不全（但还是能工作），所以推荐3个都装。
+
+<img src="https://img.stage1st.com/forum/202608/29/025332g0f7zuu4eaiul5u3.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-08-29 024937.png</strong> (85.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-29 02:53 上传
+
+<img src="https://img.stage1st.com/forum/202608/29/025332xz3lk1l1j83ul1kt.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-08-29 025013.png</strong> (140.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-29 02:53 上传
+
+<img src="https://img.stage1st.com/forum/202608/29/025332upo4o47apr73p7ez.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-08-29 025033.png</strong> (95.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-29 02:53 上传
+
+<img src="https://img.stage1st.com/forum/202608/29/025332mx9wgcig0z2huurr.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-08-29 025058.png</strong> (119.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-29 02:53 上传
+
+<img src="https://img.stage1st.com/forum/202608/29/030004skrkcg55p3xm5orq.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-08-29 025933.png</strong> (137.79 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-29 03:00 上传
+
+最后多说一句吧，NPM对我来说一直是一个很神秘的东西，在终端里打一行命令，就能把不知道什么地方的软件下载下来。这次能把自己的作品发到NPM（以及github）上，也算是学习了很多。我觉得学习 vibe coding 最重要的就是要动起来。只要你想干，哪里不懂就问 AI；或者有些能够在终端里操作的工作，可以直接让 AI 帮你干。当你把一个流程跑通了，该懂的自然就懂了。我也是一个小白，希望能与大家共勉。
+
+*****
+
+####  舞以  
+##### 11824#       发表于 2026-8-29 03:44
+
+ 本帖最后由 舞以 于 2026-8-29 04:04 编辑 
+
+梁考子深夜发癫：哪怕涨价了，哪怕pro是个adhd患者。正式版的flash和多模态版本就足以让v4世代的DeepSeek被称之为成功<img src="https://static.stage1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+编辑：伟大说过了，改成成功吧。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  杀人鲸  
+##### 11825#       发表于 2026-8-29 05:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70165157&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-29 03:44</a>
+梁考子深夜发癫：哪怕涨价了，哪怕pro是个adhd患者。正式版的flash和多模态版本就足以让v4世代的DeepSeek被 ...</blockquote>
+其实还真没什么问题，哪怕涨价了，性价比一样是最顶级的，这才是最搞笑的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
