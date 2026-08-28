@@ -15670,3 +15670,21 @@ vllm方案 —— [https://github.com/TamasS84/vllm-qwen38-flash-sm121-nvme](htt
 
 不过跑Qwen时nvidia-smi里显示GPU的Pwr只有50W。而同一台DGX，dsv4f 0731 (EXL3量化) vllm能100W满血跑。
 
+
+*****
+
+####  nxmonitor  
+##### 11794#       发表于 2026-8-28 21:36
+
+workbuddy怎么会这么卡的？Vibe coding的一坨代码是吧？<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  goranger  
+##### 11795#       发表于 2026-8-28 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70163988&amp;ptid=2275806" target="_blank">斯卡文分则能成 发表于 2026-8-28 20:37</a>
+
+要下载zcode才能领么</blockquote>
+是的，但不怕封号有github项目能反代出来
+
