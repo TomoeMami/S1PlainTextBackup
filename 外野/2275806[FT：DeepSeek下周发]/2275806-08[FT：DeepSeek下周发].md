@@ -14833,3 +14833,28 @@ chatbox和其他一些软件的默认设定
 
 —— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  唠叨  
+##### 11715#       发表于 2026-8-28 13:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70160942&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-8-28 11:22</a>
+
+我在观望command code，goat看起来类似于老opencode的10刀买60刀v4f额度
+
+不过楼里相关讨论不太多的样子， ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/28/130301cv67ev6kl67z640m.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-08-28_130249_393.jpg</strong> (43.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-28 13:03 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">牌没有问题
+
+可以看我在11572楼的回复
+[https://stage1st.com/2b/forum.ph ... 275806&amp;pid=70154522](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2275806&amp;pid=70154522)
+
