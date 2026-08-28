@@ -15590,3 +15590,45 @@ hy4从实测来看比梁文谷的0813贵，比GLM便宜
 
 以我目前强度 ，gpt-5.6-sol做规划，Gemini-3.7-flash做子代理执行，plus够我用了，五小时额度都用不完了，人的精力有限<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  斯卡文分则能成  
+##### 11788#       发表于 2026-8-28 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70163800&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-28 19:51</a>
+
+周末zcode送三亿token别忘了蹬
+
+论坛助手,iPhone</blockquote>
+要下载zcode才能领么<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  龙骑士尹志平  
+##### 11789#       发表于 2026-8-28 20:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70163973&amp;ptid=2275806" target="_blank">七氷 发表于 2026-8-28 20:33</a>
+
+以我目前强度 ，gpt-5.6-sol做规划，Gemini-3.7-flash做子代理执行，plus够我用了，五小时额度都用不完了， ...</blockquote>
+用不同AI，一个做规划，另一个做子代理执行，是有什么工具还是插件吗？
+
+*****
+
+####  斯卡文分则能成  
+##### 11790#       发表于 2026-8-28 20:39
+
+workbuddy尝鲜的差不多了，确实很爽<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+决定用ai好好做主页了，还有哪些工具值得充值或者白嫖啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  七氷  
+##### 11791#       发表于 2026-8-28 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70164001&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-28 20:39</a>
+用不同AI，一个做规划，另一个做子代理执行，是有什么工具还是插件吗？</blockquote>
+我用的pi装pi-subagents
+
