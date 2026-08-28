@@ -14944,3 +14944,35 @@ Codex压缩上下文的时候感觉因为梯子不太行还是什么原因一直
 
 Hy4上腾讯云了，770B-49B
 
+
+*****
+
+####  舞以  
+##### 11723#       发表于 2026-8-28 14:15
+
+求求漏油别让模型认人来测“多模态”能力了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  路人丙丁  
+##### 11724#       发表于 2026-8-28 14:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70156806&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-27 18:00</a>
+所以 Qwen 那个 Flash 怎么样？好像没 glm flash 火呀</blockquote>
+架构更新，总参数和激活参数都更小，测试跑起来半斤八两，本地跑比牛来有不少优势    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  舞以  
+##### 11725#       发表于 2026-8-28 14:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70161954&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-28 14:13</a>
+Hy4上腾讯云了，770B-49B
+
+输入6块输出18块缓存0.30块</blockquote>
+a49的话，藤子看起来稀疏化没很激进啊
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
