@@ -1323,3 +1323,19 @@ BGM是系列主题曲的变奏，这作音乐水准有望成为系列之最。
 
 <img src="https://img.stage1st.com/forum/202608/27/205905ey9yzs727hohsoic.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bad_alloc  
+##### 3077#       发表于 2026-8-28 09:25
+
+Nintendo Music上了风花雪月的音乐，终于来了
+
+
+*****
+
+####  freedom12  
+##### 3078#       发表于 2026-8-28 09:34
+
+可惜nm上的三房ost里 所有thunder版bgm都没收录
+

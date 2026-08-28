@@ -14568,3 +14568,14 @@ dsh更新到0.1.2了    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1
 
 现在大鲸鱼你们都用啥渠道的？
 
+
+*****
+
+####  cscbzcbz  
+##### 11691#       发表于 2026-8-28 09:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70159914&amp;ptid=2275806" target="_blank">FYeed 发表于 2026-8-28 09:13</a>
+现在大鲸鱼你们都用啥渠道的？</blockquote>
+峰的时候用国算的中转，反正套餐买都买了，先蹬完，下个月再想办法
+谷的时候用dsv4fv，价格基本就是涨价前的2倍，能接受，还有多模态
+
