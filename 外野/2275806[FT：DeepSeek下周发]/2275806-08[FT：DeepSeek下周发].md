@@ -14858,3 +14858,39 @@ chatbox和其他一些软件的默认设定
 可以看我在11572楼的回复
 [https://stage1st.com/2b/forum.ph ... 275806&amp;pid=70154522](https://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2275806&amp;pid=70154522)
 
+
+*****
+
+####  木水风铃  
+##### 11716#       发表于 2026-8-28 13:26
+
+Codex压缩上下文的时候感觉因为梯子不太行还是什么原因一直卡着有什么好解决办法吗？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  御姐贾  
+##### 11717#       发表于 2026-8-28 13:28
+
+cherry更新后也可以识图了，但是我怎么觉得api的识图有点弱智
+我用免费网页版和api测试了三次，网页版全对，api全错，我让融合三人的特点，出生图的提示词，也是网页版的更合我要求
+
+<img src="https://img.stage1st.com/forum/202608/28/132802mz88wh4ktuqjuyah.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1787894774689.jpg</strong> (352.81 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-28 13:28 上传
+
+<img src="https://img.stage1st.com/forum/202608/28/132802cnfde2of7efee9o7.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1787894778875.jpg</strong> (367.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-28 13:28 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
