@@ -15229,3 +15229,33 @@ deepseek 4f就干脆很多，简单思考，直接修改。
 自从v4f以来，越来越感觉最大的需求是中智能高服从度的小参数便宜模型了，大参数模型又慢又贵，也就前期设 ...</blockquote>
 而且最好速度快。
 
+
+*****
+
+####  舞以  
+##### 11752#       发表于 2026-8-28 16:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70162888&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-28 16:27</a>
+所以glm5.3f建议买plan吗，还是直接调用api</blockquote>
+调api不如继续给梁叔叔送钱<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+至于plan我就不懂了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  →熙←  
+##### 11753#       发表于 2026-8-28 16:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70162888&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-8-28 16:27</a>
+
+所以glm5.3f建议买plan吗，还是直接调用api</blockquote>
+都不买,走梁文谷还是最优
+
+*****
+
+####  →熙←  
+##### 11754#       发表于 2026-8-28 16:38
+
+硅基流动现在还没涨价,可以充点钱原价蹬v4f, 一次充一点, 用完再充
+
