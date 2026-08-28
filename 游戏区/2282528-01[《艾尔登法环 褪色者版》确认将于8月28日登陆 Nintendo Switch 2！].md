@@ -450,3 +450,42 @@ ok，谢谢
 开了个新档，两个新职业各有各的离谱，真就p2w了，重装骑士开局那把大刀性能变态，出门截肢贵族被砍的爬不 ...</blockquote>
 开局仕女剑加贯通，杀穿本篇都行了，他甚至还给你附赠一个百防盾
 
+
+*****
+
+####  clyde-wang  
+##### 47#       发表于 2026-8-28 12:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69727554&amp;ptid=2282528" target="_blank">baizhi 发表于 2026-6-6 00:31</a>
+一周目很难水桶，无用之人天生比其他职业属性有效点数低，前期可能看不出来，但到了后期其他职业120级， ...</blockquote>
+我记得无用之人出生登记别的职业低呀，所以属性低，但是到了120级应该是一样的才对
+
+
+*****
+
+####  kalavinka  
+##### 48#       发表于 2026-8-28 12:52
+
+看了几个评测实际表现不止30帧？有点心动了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Yugao  
+##### 49#       发表于 2026-8-28 12:55
+
+fs真的害怕ns玩家把摇杆搓烂
+
+*****
+
+####  mai6696  
+##### 50#       发表于 2026-8-28 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69727554&amp;ptid=2282528" target="_blank">baizhi 发表于 2026-6-6 00:31</a>
+
+一周目很难水桶，无用之人天生比其他职业属性有效点数低，前期可能看不出来，但到了后期其他职业120级， ...</blockquote>
+同等级都是一样的吧？
+
+区别就是无用之人洗点可以洗到最低，其他所谓职业都是提前加好了一些点数，固定在那儿。
+
