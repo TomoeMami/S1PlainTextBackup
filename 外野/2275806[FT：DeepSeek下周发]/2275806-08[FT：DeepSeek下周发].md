@@ -15582,3 +15582,11 @@ hy4从实测来看比梁文谷的0813贵，比GLM便宜
 又送？不是上周才送过吗？</blockquote>
 看来国产卡集群上来了算力确实宽松了
 
+
+*****
+
+####  七氷  
+##### 11787#       发表于 2026-8-28 20:33
+
+以我目前强度 ，gpt-5.6-sol做规划，Gemini-3.7-flash做子代理执行，plus够我用了，五小时额度都用不完了，人的精力有限<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
