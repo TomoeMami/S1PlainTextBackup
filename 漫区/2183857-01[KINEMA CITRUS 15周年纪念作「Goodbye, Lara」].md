@@ -2026,3 +2026,15 @@ bd访谈预览
 <img src="https://p.sda1.dev/34/1618df82127b205ca343bd74f45f4baa/asp1x-3xydq-002.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/34/a3b7454735daa9c26adc502514f7fa9d/asp1x-3xydq-003.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  思信菌  
+##### 453#       发表于 2026-8-28 17:11
+
+<blockquote>指挥家 发表于 2026-8-27 14:09
+男主太工具了，前面也没什么伏笔。情感的上限应该就是作为爱情指示物垫给大爱，不然就是当大爱的融合素材 ...</blockquote>
+恋爱这种“小爱”都讲不明白，拉扯到“大爱”这种更………
+
+女主只有变成光拯救全人类了
+
