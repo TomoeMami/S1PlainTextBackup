@@ -14490,3 +14490,16 @@ rtx5000pro可以开mtp跑到100tk/s以上，只要体验能到dsv4f的8成就 ..
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  luodang007  
+##### 11683#       发表于 2026-8-28 08:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70159589&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-28 07:47</a>
+
+怎么看到有人说 5.3f 在 plan 和 api 上的表现差异很大
+
+—— 来自 vivo V2405A, Android 15, 鹅球 v4.0-al ...</blockquote>
+我昨天写了8块的api，真的是一大坨，明明写方案的时候感觉还行，干起活来体感不如deepseekv4flash。coding plan会聪明点吗？
+
