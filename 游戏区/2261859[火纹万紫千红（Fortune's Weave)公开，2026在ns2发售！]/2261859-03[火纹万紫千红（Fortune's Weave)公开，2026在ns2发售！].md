@@ -1585,3 +1585,20 @@ Nintendo Music上了风花雪月的音乐，终于来了
 
 等个日本直邮卡带
 
+
+*****
+
+####  ParukiaMKII  
+##### 3103#       发表于 2026-8-28 18:58
+
+PDD发力了，需要V3 300-50卷，不过是香港直邮，现在的香港直邮还是慢半个月左右么<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+02c546a019ddde8b6c17ad7786059fca.jpg
+(104.52 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-28 18:57 上传
+
+<img src="https://img.stage1st.com/forum/202608/28/185758osuovsbemct4xatm.jpg" referrerpolicy="no-referrer">
+

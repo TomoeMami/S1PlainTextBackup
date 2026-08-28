@@ -15462,3 +15462,11 @@ cherry更新后也可以识图了，但是我怎么觉得api的识图有点弱�
 本轮运行失败429: {"message":"The request rate exceeds the current model TPM limit 1000000. Please reduce the request frequency or contact Tencent Cloud support to request a higher limit.","message_zh":"请求速率超过当前模型 TPM 阈值 1000000，请降低访问频率或联系腾讯云售后申请更高限额。","code":"429001","type":"gateway_error","request_id":""}复制代码
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 11776#       发表于 2026-8-28 19:01
+
+workbuddy里的HY4好像有i'm doing思维链
+
