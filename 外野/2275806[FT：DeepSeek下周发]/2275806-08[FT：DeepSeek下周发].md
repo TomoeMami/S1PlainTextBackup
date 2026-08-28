@@ -14623,3 +14623,11 @@ Kimi的99元套餐到期，寻思我只用它订计划的话，不如直接49元
 使用国家超算token plan的注意扣费黑洞
 [https://stage1st.com/2b/forum.ph ... ;page=1#pid70160173](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2288697&amp;page=1#pid70160173)
 
+
+*****
+
+####  小野賢章  
+##### 11694#       发表于 2026-8-28 10:07
+
+现在打开dsh需要token了啊
+
