@@ -15845,3 +15845,16 @@ dsh确实发布了一版破坏性的更新，更新后dsh直接启动失败了�
 很多问题甚至是not even wrong ...</blockquote>
 one shot生成玩具项目和实际使用还是差的有点远
 
+
+*****
+
+####  tonyunreal  
+##### 11810#       发表于 2026-8-29 02:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70164859&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-28 23:51</a>
+上错模型了还行</blockquote>
+没有收到退款
+说明按量计费api是满血版？
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
