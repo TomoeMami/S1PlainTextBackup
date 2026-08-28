@@ -1274,3 +1274,15 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 9/3 真是度日如年啊，当天还有轨道双子星，时间不够啊
 
+
+*****
+
+####  姬茧墨  
+##### 817#       发表于 2026-8-29 01:24
+
+[https://www.bilibili.com/video/BV1FGtT6xEHe/](https://www.bilibili.com/video/BV1FGtT6xEHe/)
+
+这两天打了不少无伤，发一个比较满意的吧
+
+放弃部分一闪点维持蓝刀感觉还挺重要的，毕竟全程20%的加成
+
