@@ -1306,3 +1306,13 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 什么格挡闪避都是小孩玩的 重刀一闪分分钟解决百秽
 
+
+*****
+
+####  MRhythm  
+##### 820#       发表于 2026-8-29 07:38
+
+[https://bilibili.com/video/BV1MM4r6AEdg/](https://bilibili.com/video/BV1MM4r6AEdg/)
+
+我也凑热闹打了一个百秽, 抢攻为主.
+
