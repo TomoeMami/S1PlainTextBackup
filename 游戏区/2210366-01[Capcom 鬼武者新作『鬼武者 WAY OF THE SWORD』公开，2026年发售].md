@@ -1178,3 +1178,16 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 还是那个反弹弓箭的技能？
 
+
+*****
+
+####  conanoysq  
+##### 810#       发表于 2026-8-28 15:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70162435&amp;ptid=2210366" target="_blank">wthall 发表于 2026-8-28 15:19</a>
+
+话说化劲是啥？就是弹刀攒能量上火么？
+
+还是那个反弹弓箭的技能？</blockquote>
+化劲就是完美格挡搓火花上蓝火；反弹弓箭也是弹刀L1+X，大量削精+反弹远程攻击
+
