@@ -15561,3 +15561,24 @@ workbuddy里也是主要是let me，少量I'll，和灰测时思维链有较大�
 
 找到了，打开zcode，更新以后送3亿牛来，可以了，周末可以狂蹬了
 
+
+*****
+
+####  tonyunreal  
+##### 11785#       发表于 2026-8-28 20:16
+
+hy4从实测来看比梁文谷的0813贵，比GLM便宜
+
+能力也介于两者之间
+
+
+*****
+
+####  qwased  
+##### 11786#       发表于 2026-8-28 20:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70163829&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-28 19:59</a>
+
+又送？不是上周才送过吗？</blockquote>
+看来国产卡集群上来了算力确实宽松了
+
