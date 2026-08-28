@@ -1610,3 +1610,16 @@ PDD发力了，需要V3 300-50卷，不过是香港直邮，现在的香港直�
 
 没v3会员，花了340    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  57042711  
+##### 3105#       发表于 2026-8-28 19:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70154021&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-8-27 10:58</a>
+
+●好きなもの：美味しい食事、お酒、アナトリアの世話、勉学
+
+怎么感觉每个团都有老管家式的角色。 ...</blockquote>
+火纹特色保姆骑士<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

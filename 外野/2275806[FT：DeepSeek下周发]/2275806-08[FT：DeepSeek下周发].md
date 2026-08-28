@@ -15499,3 +15499,13 @@ hy4蹬完一个demo，用时 153 分钟
 workbuddy里的HY4好像有i'm doing思维链，现在太挤了测不了…</blockquote>
 总结式思维链很多模型都有啊
 
+
+*****
+
+####  nxmonitor  
+##### 11779#       发表于 2026-8-28 19:43
+
+<blockquote>qwased 发表于 2026-8-28 19:33
+总结式思维链很多模型都有啊</blockquote>
+那应该所有地方有，codebuddy里就是let me…
+
