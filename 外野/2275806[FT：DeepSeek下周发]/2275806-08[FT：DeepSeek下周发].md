@@ -15786,3 +15786,14 @@ dsh确实发布了一版破坏性的更新，更新后dsh直接启动失败了�
 
 上错模型了还行
 
+
+*****
+
+####  goranger  
+##### 11805#       发表于 2026-8-29 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70164859&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-28 23:51</a>
+
+上错模型了还行</blockquote>
+白嫖了一周试用卡蹬了五千万能再给张试用卡吗
+
