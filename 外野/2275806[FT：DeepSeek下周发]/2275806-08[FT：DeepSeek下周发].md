@@ -15381,3 +15381,42 @@ cherry更新后也可以识图了，但是我怎么觉得api的识图有点弱�
 原来ds还能评估自己能力边界的吗
 我一直以为让他干啥就会拼命的去干，最后实在搞不来就给个糊弄人的结果
 
+
+*****
+
+####  qwased  
+##### 11767#       发表于 2026-8-28 17:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70163358&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-28 17:54</a>
+原来ds还能评估自己能力边界的吗
+我一直以为让他干啥就会拼命的去干，最后实在搞不来就给个糊弄人的结果 ...</blockquote>
+我怀疑其实是ds被最开始搜到的东西误导了，哈基米就直接搜到文档开始看
+
+*****
+
+####  舞以  
+##### 11768#       发表于 2026-8-28 17:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70163356&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-28 17:53</a>
+梁叔叔也不自己设计硬件，也没法大规模买卡，那大肥鱼是怎么在不低的智商下提供那么快速的性能的？不作恶自 ...</blockquote>
+梁叔叔的模型从设计开始就是为了部署的，不是纯为了benchmark的刷分设计。
+比如理论上线性注意力在注意力压缩上更加激进，但是v4选择的csa+hca在1m窗口这个工程点上kvcache的实际压缩率是比用线性注意力的牛来和k3都好的。
+还有他们第一方的部署魔法<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  龙骑士尹志平  
+##### 11769#       发表于 2026-8-28 18:01
+
+两天半的梁文谷时间到了
+
+*****
+
+####  kinfox  
+##### 11770#       发表于 2026-8-28 18:02
+
+硅基流动总给我一种要跑路的感觉。。。调用他们家的api感觉越来越慢。。。是我幻觉么
+
