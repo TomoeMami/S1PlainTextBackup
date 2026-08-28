@@ -14781,3 +14781,23 @@ api蹬了一天感觉挺聪明的，别的ai修不好的程序bug全是它修好
 为什么 agentrouter.org 要BAN "You are a helpful assistant."这句话 今早有些会话请求一直莫名奇妙被敏/ ...</blockquote>
 不想让dsh极简模式运行？
 
+
+*****
+
+####  qwased  
+##### 11710#       发表于 2026-8-28 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70159849&amp;ptid=2275806" target="_blank">璇瑢子R 发表于 2026-8-28 08:59</a>
+我跑日-》中翻译，gemma4 31B比Qwen 3.8 27B或者3.6 27B或者35A3B效果都要好</blockquote>
+所以我一直感觉吹3.6 27b去审查版搞颜色很牛逼的就是那些齁齁ai**受众，纯纯堆词大王根本不说人话
+
+*****
+
+####  vincevincetang  
+##### 11711#       发表于 2026-8-28 11:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70161035&amp;ptid=2275806" target="_blank">serj005 发表于 2026-8-28 11:33</a>
+
+不想让dsh极简模式运行？</blockquote>
+极简模式是You are a helpful software engineer assistant.  这个没事。他拦截精确匹配的是You are a helpful assistant. 这个字符串，包括句号
+
