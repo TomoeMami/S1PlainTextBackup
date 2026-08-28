@@ -14976,3 +14976,42 @@ a49的话，藤子看起来稀疏化没很激进啊
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  bixinhaner  
+##### 11726#       发表于 2026-8-28 14:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70161954&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-28 14:13</a>
+
+Hy4上腾讯云了，770B-49B
+
+输入6块输出18块缓存0.30块</blockquote>
+价格介于GLM5.3和5.3 flash之间，算挺贵的了。但是workbuddy估计会送不少
+
+*****
+
+####  tonyunreal  
+##### 11727#       发表于 2026-8-28 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70162037&amp;ptid=2275806" target="_blank">bixinhaner 发表于 2026-8-28 14:25</a>
+
+价格介于GLM5.3和5.3 flash之间，算挺贵的了。但是workbuddy估计会送不少</blockquote>
+有人说workbuddy里调用免费两周，但是没看到消息来源
+
+*****
+
+####  nianiania  
+##### 11728#       发表于 2026-8-28 14:28
+
+好像是哦
+
+img_v3_02150_62ba1ea8-7033-4f52-92ea-ccb77ede989g.jpg
+(72.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-28 14:28 上传
+
+<img src="https://img.stage1st.com/forum/202608/28/142802wwb4e15q2ejlljjl.jpg" referrerpolicy="no-referrer">
+
