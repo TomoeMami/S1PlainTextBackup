@@ -15726,3 +15726,16 @@ dsh确实发布了一版破坏性的更新，更新后dsh直接启动失败了�
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  zhanglei1943  
+##### 11800#       发表于 2026-8-28 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70163337&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-28 17:49</a>
+
+我让ds写一个脚本，ds想了一会搜了一会说这个不可能办到的，理由1234
+
+然后我让哈基米写，哈基米很快就写 ...</blockquote>
+你已经是一个成熟的产品经理了.jpg
+
