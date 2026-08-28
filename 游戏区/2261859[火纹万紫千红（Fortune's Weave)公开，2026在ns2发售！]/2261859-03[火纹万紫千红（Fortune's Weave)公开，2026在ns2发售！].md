@@ -1485,3 +1485,11 @@ Nintendo Music上了风花雪月的音乐，终于来了
 
 连支援对话都不给看，这再次提起的精灵设定在主线里分量到底有多重
 
+
+*****
+
+####  kalavinka  
+##### 3094#       发表于 2026-8-28 12:17
+
+忘记是第一方习惯性跑去港区买了，血亏50<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
