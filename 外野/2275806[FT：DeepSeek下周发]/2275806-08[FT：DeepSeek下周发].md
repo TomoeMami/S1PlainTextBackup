@@ -15858,3 +15858,70 @@ one shot生成玩具项目和实际使用还是差的有点远
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 11811#       发表于 2026-8-29 02:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70165085&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-29 01:46</a>
+ 我现在越来越觉得所谓第三方的模型评测，比手机评测都不靠谱了 很多问题甚至是not even wrong ...</blockquote>
+一句话生成基本都是狗屁，一句话也许是生成90，但90-99的表现和轮次才是实用关键
+谁特么用个agent天天搓我的世界或者鹈鹕骑单车
+
+*****
+
+####  舞以  
+##### 11812#       发表于 2026-8-29 02:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70165130&amp;ptid=2275806" target="_blank">UmarIbnLaAhad 发表于 2026-8-29 02:47</a>
+
+一句话生成基本都是狗屁，一句话也许是生成90，但90-99的表现和轮次才是实用关键
+
+谁特么用个agent天天搓 ...</blockquote>
+主要很多人给的评价让我觉得估计没用过哈哈
+
+
+*****
+
+####  来都来了  
+##### 11813#       发表于 2026-8-29 02:55
+
+我的pi扩展组件包发布啦！ [https://github.com/petrel-cn/pi-extensions](https://github.com/petrel-cn/pi-extensions)
+
+在经历了本地的多轮迭代后，我觉得这几个扩展可以发出来了。这也是我第一次在网上发布个人的作品，基本上整个流程都是由AI指导我一步步点击着干的，不过最后还是顺利发布出来了，希望对大家有帮助。
+
+这三个扩展分别是工作区与危险命令审批、余额显示、以及PI的状态窗口监视。由于状态窗口监视对前两者有弱依赖，如果不装前两者的话会导致它的显示不全（但还是能工作），所以推荐3个都装。
+
+<img src="https://img.stage1st.com/forum/202608/29/025332g0f7zuu4eaiul5u3.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-08-29 024937.png</strong> (85.32 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-29 02:53 上传
+
+<img src="https://img.stage1st.com/forum/202608/29/025332xz3lk1l1j83ul1kt.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-08-29 025013.png</strong> (140.45 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-29 02:53 上传
+
+<img src="https://img.stage1st.com/forum/202608/29/025332upo4o47apr73p7ez.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-08-29 025033.png</strong> (95.51 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-29 02:53 上传
+
+<img src="https://img.stage1st.com/forum/202608/29/025332mx9wgcig0z2huurr.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2026-08-29 025058.png</strong> (119.67 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-29 02:53 上传
+
