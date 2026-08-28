@@ -15529,3 +15529,16 @@ workbuddy里的HY4好像有i'm doing思维链，现在太挤了测不了…</blo
 那应该所有地方有，codebuddy里就是let me…</blockquote>
 workbuddy里也是主要是let me，少量I'll，和灰测时思维链有较大差别，但是前端能力并没有明显比灰测差，现在可以基本确定各家灰测里出现的总结式思维链是有意隐藏未发布模型思维链的通用做法。
 
+
+*****
+
+####  龙骑士尹志平  
+##### 11782#       发表于 2026-8-28 19:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70163800&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-28 19:51</a>
+
+周末zcode送三亿token别忘了蹬
+
+论坛助手,iPhone</blockquote>
+又送？不是上周才送过吗？
+
