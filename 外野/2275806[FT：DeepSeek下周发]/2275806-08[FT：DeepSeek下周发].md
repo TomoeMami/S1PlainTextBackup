@@ -15797,3 +15797,24 @@ dsh确实发布了一版破坏性的更新，更新后dsh直接启动失败了�
 上错模型了还行</blockquote>
 白嫖了一周试用卡蹬了五千万能再给张试用卡吗
 
+
+*****
+
+####  冤枉呐  
+##### 11806#       发表于 2026-8-29 01:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70164820&amp;ptid=2275806" target="_blank">goranger 发表于 2026-8-28 23:37</a>
+英伟达的deepseek</blockquote>
+英伟达这个短信验证咋过啊
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  舞以  
+##### 11807#       发表于 2026-8-29 01:46
+
+我现在越来越觉得所谓第三方的模型评测，比手机评测都不靠谱了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+很多问题甚至是not even wrong
+
