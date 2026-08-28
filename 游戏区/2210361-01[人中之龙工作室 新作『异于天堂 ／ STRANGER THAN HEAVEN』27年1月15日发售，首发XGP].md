@@ -2583,3 +2583,11 @@ ffe6e28a9991709efbc41ba94c182e7c_720.jpg
 【《STRANGER THAN HEAVEN》科隆游戏展实机演示】 
 [https://b23.tv/OAiJvsb](https://b23.tv/OAiJvsb)
 
+
+*****
+
+####  水边井  
+##### 273#       发表于 2026-8-28 23:31
+
+血条ui太搞笑了，像是每个人头上都顶着个盘子
+

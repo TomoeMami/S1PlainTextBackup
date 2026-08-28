@@ -2869,3 +2869,14 @@ yuno的塑造与主线矛盾都接不起来，我只能说yuno看到后面笑嘻
 yu工智能 ...</blockquote>
 yuno其实之前多少也算看透自己现在在梦限大的几个成员，<strong>所以说自己不想要过家家一样的友情</strong>，但是一方面自己过意不去真得退团，另一方面是天意的大手不让<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帆前  
+##### 382#       发表于 2026-8-28 23:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70164476&amp;ptid=2283962" target="_blank">aptx8285144 发表于 2026-8-28 22:08</a>
+
+yuno其实之前多少也算看透自己现在在梦限大的几个成员，所以说自己不想要过家家一样的友情，但是一方面自 ...</blockquote>
+天意，天意啊（wsd<img src="https://static.stage1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+

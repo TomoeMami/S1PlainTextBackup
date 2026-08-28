@@ -15750,3 +15750,11 @@ dsh确实发布了一版破坏性的更新，更新后dsh直接启动失败了�
 一般是垃圾中转站的问题。</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">但是我是plus啊
 
+
+*****
+
+####  伽蓝寺  
+##### 11802#       发表于 2026-8-28 23:27
+
+有无推荐能完全白嫖的，我目前pi挂的agnes的，慢点无所谓，能够调用就行
+
