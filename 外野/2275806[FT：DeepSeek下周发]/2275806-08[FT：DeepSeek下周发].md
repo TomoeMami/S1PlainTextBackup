@@ -15259,3 +15259,24 @@ deepseek 4f就干脆很多，简单思考，直接修改。
 
 硅基流动现在还没涨价,可以充点钱原价蹬v4f, 一次充一点, 用完再充
 
+
+*****
+
+####  xiaohanne  
+##### 11755#       发表于 2026-8-28 17:32
+
+梁叔叔最大的优势还是flash速度快
+
+将军说的对，flash一定要flash
+
+*****
+
+####  Promeus  
+##### 11756#       发表于 2026-8-28 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70163252&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-8-28 17:32</a>
+梁叔叔最大的优势还是flash速度快
+
+将军说的对，flash一定要flash</blockquote>
+哈基米:……
+
