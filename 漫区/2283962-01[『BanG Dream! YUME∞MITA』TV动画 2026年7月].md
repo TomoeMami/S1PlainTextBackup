@@ -2856,3 +2856,16 @@ yuno的塑造与主线矛盾都接不起来，我只能说yuno看到后面笑嘻
 感觉不如……给我看十三集yuno前乐队
 <img src="https://iili.io/CmvajXn.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 381#       发表于 2026-8-28 22:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70162284&amp;ptid=2283962" target="_blank">帆前 发表于 2026-8-28 14:57</a>
+
+本集依旧新邦公式ep11包饺子，极扯，但好在前半有yuno的纯良少女乐队可以看，算了算了，无所谓了
+
+yu工智能 ...</blockquote>
+yuno其实之前多少也算看透自己现在在梦限大的几个成员，<strong>所以说自己不想要过家家一样的友情</strong>，但是一方面自己过意不去真得退团，另一方面是天意的大手不让<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
