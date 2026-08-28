@@ -1160,3 +1160,11 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 越打越爽属于是。
 
+
+*****
+
+####  Sliurus  
+##### 808#       发表于 2026-8-28 11:22
+
+一闪最大的价值还是必出硬直可以打断怪的连段，化劲不是每招都能触发
+

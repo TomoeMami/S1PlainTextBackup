@@ -14728,3 +14728,46 @@ Token本意就是令牌<img src="https://static.stage1st.com/image/smiley/face20
 OpenCode Go太蛆了 剩了一点用量想用完 调了GLM-5.3 Flash   一个核对方案的工作跑了50分钟了还没跑完  浪 ...</blockquote>
 就像我之前说的，不要被Flash这个名字骗了。
 
+
+*****
+
+####  奇洛里  
+##### 11705#       发表于 2026-8-28 11:19
+
+给有本地部署需求的坛友推荐下[FreeToken](https://github.com/FlashML-org/FreeToken)这个项目，作者最近正在准备适配Qwen3.8-Flash，有望4060级别的卡就可以跑<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 11706#       发表于 2026-8-28 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70159589&amp;ptid=2275806" target="_blank">misuzu0723 发表于 2026-8-28 07:47</a>
+
+怎么看到有人说 5.3f 在 plan 和 api 上的表现差异很大
+
+—— 来自 vivo V2405A, Android 15, 鹅球 v4.0-al ...</blockquote>
+还有这种事？
+
+api蹬了一天感觉挺聪明的，别的ai修不好的程序bug全是它修好的
+
+就是太慢了
+
+*****
+
+####  BarricadeMKXX  
+##### 11707#       发表于 2026-8-28 11:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70159914&amp;ptid=2275806" target="_blank">FYeed 发表于 2026-8-28 09:13</a>
+
+现在大鲸鱼你们都用啥渠道的？</blockquote>
+我在观望command code，goat看起来类似于老opencode的10刀买60刀额度，模型价格跟官方api走
+
+不过楼里相关讨论不太多的样子
+
+*****
+
+####  vincevincetang  
+##### 11708#       发表于 2026-8-28 11:24
+
+为什么 agentrouter.org 要BAN "You are a helpful assistant."这句话<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 今早有些会话请求一直莫名奇妙被**拦截，最后定位到某插件注入的这句话。这句话有什么终端特征吗
+
