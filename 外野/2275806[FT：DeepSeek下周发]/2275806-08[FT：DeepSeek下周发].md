@@ -14652,3 +14652,24 @@ Kimi的99元套餐到期，寻思我只用它订计划的话，不如直接49元
 现在打开dsh需要token了啊</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">为啥打开dsh会需要token
 
+
+*****
+
+####  c月光咖啡  
+##### 11697#       发表于 2026-8-28 10:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70160428&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-28 10:17</a>
+
+今天的事吗，昨天用感觉没这么夸张</blockquote>
+v4f0731没涨价之前就已经有但是没那么明显，825涨价之后积分像血崩一样
+
+*****
+
+####  小野賢章  
+##### 11698#       发表于 2026-8-28 10:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70160434&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-28 10:17</a>
+
+为啥打开dsh会需要token</blockquote>
+最新版，加了一个鉴权
+
