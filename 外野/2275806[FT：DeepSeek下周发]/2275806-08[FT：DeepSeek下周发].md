@@ -14631,3 +14631,24 @@ Kimi的99元套餐到期，寻思我只用它订计划的话，不如直接49元
 
 现在打开dsh需要token了啊
 
+
+*****
+
+####  cscbzcbz  
+##### 11695#       发表于 2026-8-28 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70160188&amp;ptid=2275806" target="_blank">c月光咖啡 发表于 2026-8-28 09:50</a>
+注意看，国算有扣费黑洞
+
+使用国家超算token plan的注意扣费黑洞</blockquote>
+今天的事吗，昨天用感觉没这么夸张
+
+*****
+
+####  cscbzcbz  
+##### 11696#       发表于 2026-8-28 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70160331&amp;ptid=2275806" target="_blank">小野賢章 发表于 2026-8-28 10:07</a>
+现在打开dsh需要token了啊</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">为啥打开dsh会需要token
+
