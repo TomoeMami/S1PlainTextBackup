@@ -421,3 +421,11 @@ glm flash我倒是蹬完了，但确实觉得速度不太行
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  qwased  
+##### 11880#       发表于 2026-8-30 04:14
+
+微软有病吧，powershell的5.x版和7.x版对同一个命令的兼容性还不一样的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我想清一下wsl磁盘大小都琢磨半天
+
