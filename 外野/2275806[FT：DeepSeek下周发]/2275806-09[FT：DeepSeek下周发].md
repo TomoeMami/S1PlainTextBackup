@@ -379,3 +379,13 @@ glm5.3f还是太慢了，flash模型一定得flash<img src="https://static.stage
 
 Linear attention在910C上就是这个性能<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  startraveller  
+##### 11876#       发表于 2026-8-30 01:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70169345&amp;ptid=2275806" target="_blank">培根芝士蛋堡XD 发表于 2026-8-30 01:34</a>
+Linear attention在910C上就是这个性能，打算在华为卡上跑还选linear这种难以并行计算的玩意，就是个错误 ...</blockquote>
+貌似是海光DCU，不是华为方案
+
