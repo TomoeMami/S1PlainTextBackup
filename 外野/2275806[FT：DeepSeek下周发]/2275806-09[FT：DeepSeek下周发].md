@@ -275,3 +275,15 @@ dsh发现我在工作区有个py，配了一个文件路径。
 
 —— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  JWchze  
+##### 11865#       发表于 2026-8-29 20:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70167773&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-29 19:17</a>
+dsh这个在他们进一步打磨细节之前最好别用，我看b站有反馈dsflash一口气拉了128个子agent瞬间烧干余额的 ...</blockquote>
+我好像出类似问题了，让dsh排查个desktop不能登录的问题，一百块钱没了。。。
+
+—— 来自 Xiaomi 25102RKBEC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
