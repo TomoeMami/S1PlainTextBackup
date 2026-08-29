@@ -42,3 +42,27 @@
 
 现在不是没内容，是做了一堆机制被数值和关卡设计卡着玩不了，肯定要更新的
 
+
+*****
+
+####  Beaverfan01  
+##### 974#       发表于 2026-8-29 20:15
+
+有丙烷过1000了。
+
+<img src="https://img.stage1st.com/forum/202608/29/201457fhcwcucouekukucz.jpg" referrerpolicy="no-referrer">
+
+<strong>5978.jpg</strong> (170.44 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-29 20:14 上传
+
+<img src="https://img.stage1st.com/forum/202608/29/201457a1189i1uw849rqvq.jpg" referrerpolicy="no-referrer">
+
+<strong>5979.jpg</strong> (353.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-29 20:14 上传
+
