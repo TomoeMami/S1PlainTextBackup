@@ -16202,3 +16202,13 @@ opencode上线了新模型Ling-3.0-flash-Fin，搜了下是蚂蚁集团的……
 
 ddr5便宜不了了
 
+
+*****
+
+####  来都来了  
+##### 11836#       发表于 2026-8-29 14:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70165780&amp;ptid=2275806" target="_blank">御姐贾 发表于 2026-8-29 10:47</a>
+之前cherry 1.9版本的时候，网络搜索是直接用百度/bing/Google，现在更了2.0之后，默认的是个ExaMCP的搜索 ...</blockquote>
+用Deepseek原生搜索需要装一个mcp叫deepseek-search-mcp。
+
