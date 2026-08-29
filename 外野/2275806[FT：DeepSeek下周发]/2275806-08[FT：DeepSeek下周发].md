@@ -16156,3 +16156,11 @@ ds的搜索不知道买的哪家，效果很差。不如接exa或者tavily。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">gptplus这动不动就重置的codex里都蹬不完了 现在反代安全了吗？用什么反代 代出来后国内需不需要强制用梯？
 
+
+*****
+
+####  处男鉴黄师  
+##### 11831#       发表于 2026-8-29 12:47
+
+opencode上线了新模型Ling-3.0-flash-Fin，搜了下是蚂蚁集团的……金融模型？<img src="https://static.stage1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
