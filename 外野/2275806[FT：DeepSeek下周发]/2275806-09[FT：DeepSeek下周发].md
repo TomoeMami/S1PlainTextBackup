@@ -355,3 +355,19 @@ cpa放在哪里，放在国外主机上吗，哪个服务器提供商的？很�
 各位有用过Android CLI吗，好不好用</blockquote>
 还行，配合agent能做出正常可用的app，也能调用adb和模拟器调试
 
+
+*****
+
+####  蛋黄酱Release  
+##### 11873#       发表于 2026-8-30 01:07
+
+glm5.3f还是太慢了，flash模型一定得flash<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">相似的任务d4v用了28分钟，5.3f用了1个小时11分钟，效果可能略微好一点
+照这速度，周末给的3亿tokens根本蹬不完<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  goranger  
+##### 11874#       发表于 2026-8-30 01:08
+
+雷霆大思考+多轮连续工具调用，对于有高效记忆的agent来说，我觉得是错的。因为这种长时间的思考只算一轮对话，只能召回一次记忆。但正常人做思考阅读的时候，是在不断的发散联想的。如果只看不想，其实算不上真正的思考，因为信息不足就会产生错误判断
+

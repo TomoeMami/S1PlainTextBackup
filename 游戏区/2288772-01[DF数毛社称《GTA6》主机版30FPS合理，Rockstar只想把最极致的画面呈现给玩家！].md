@@ -546,3 +546,14 @@ xsx也得30帧吗<img src="https://static.stage1st.com/image/smiley/face2017/001
 
 这帖子评论挺幽默
 
+
+*****
+
+####  舌怪  
+##### 58#       发表于 2026-8-30 01:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70167177&amp;ptid=2288772" target="_blank">时空之旅 发表于 2026-8-29 16:41</a>
+
+我觉得没问题吧，大家肯定想要画面好点能接受帧数低点，要是60帧但是画面缩水肯定不乐意 ...</blockquote>
+这还真不好说……不过我是能接受的，反正我GTA5和RDR2都是初版PS4上玩的
+
