@@ -1780,3 +1780,14 @@ PDD发力了，需要V3 300-50卷，不过是香港直邮，现在的香港直�
 
 贴吧有帖子直播4ch剧透。
 
+
+*****
+
+####  妮贝雅  
+##### 3121#       发表于 2026-8-29 20:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70166888&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-8-29 15:20</a>
+
+外面看了眼，已经开始自捏主角摄像头的节奏了吗</blockquote>
+贴吧是这样的
+

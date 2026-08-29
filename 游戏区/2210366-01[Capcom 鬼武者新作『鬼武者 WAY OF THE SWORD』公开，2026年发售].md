@@ -1372,3 +1372,17 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 有人能给个隐藏boss的存档吗，我点了新游戏结果直接从头开始了
 
+
+*****
+
+####  starwarszjm  
+##### 826#       发表于 2026-8-29 21:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70167123&amp;ptid=2210366" target="_blank">夜雨秋水 发表于 2026-8-29 16:25</a>
+看到有一闪停龙车的了，你搜一下59s速通那个视频。
+
+—— 来自 鹅球 v3.5.99 ...</blockquote>
+试了下，似乎是龙车刚起步斧头往前方摆动的时候可以一闪，挺难<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

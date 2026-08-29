@@ -113,3 +113,23 @@
 
 天塌了，开服第一个池子被最强最帅掏空身体导致没钻抽z，上个池子刚被双龙掏空身体现在你跟我讲z复刻了<img src="https://static.stage1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 4637#       发表于 2026-8-29 21:00
+
+算上夜莺已经是第二次在重点池前用总帅骗氪了吧
+
+代便你做人真的可以
+
+*****
+
+####  AminGly  
+##### 4638#       发表于 2026-8-29 21:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70167434&amp;ptid=2071758" target="_blank">arthes 发表于 2026-8-29 17:47</a>
+
+天塌了，开服第一个池子被最强最帅掏空身体导致没钻抽z，上个池子刚被双龙掏空身体现在你跟我讲z复刻了 ...</blockquote>
+在错过可就又要等47连抽了
+
