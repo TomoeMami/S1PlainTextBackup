@@ -446,3 +446,14 @@ xsx也得30帧吗<img src="https://static.stage1st.com/image/smiley/face2017/001
 
 我觉得没问题吧，大家肯定想要画面好点能接受帧数低点，要是60帧但是画面缩水肯定不乐意
 
+
+*****
+
+####  qwased  
+##### 47#       发表于 2026-8-29 17:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70166876&amp;ptid=2288772" target="_blank">umbasa 发表于 2026-8-29 15:17</a>
+
+虽然但是，这代主机标准版甚至是pro的cpu是拉胯的8核zen2，性能勉强和i5-10400f以及r5-3600打平。gta6想要6 ...</blockquote>
+真放开了用PC的CPU性能也不行啊，PC好就好在有个dlss插帧遮羞了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

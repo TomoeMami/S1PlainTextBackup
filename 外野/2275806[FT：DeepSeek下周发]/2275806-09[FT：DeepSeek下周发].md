@@ -70,3 +70,23 @@ ds的官方搜索感觉不太好，至少和gpt的比不太好
 
 agentrouter的glm不能在zcode用吗？
 
+
+*****
+
+####  舞以  
+##### 11848#       发表于 2026-8-29 16:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">0.1.2还是alpha呢
+
+*****
+
+####  qwased  
+##### 11849#       发表于 2026-8-29 16:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70167130&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-8-29 16:27</a>
+
+倒也不是。
+
+我是想象不出我想要的是个什么东西，总之先让它试试，能行就是我行，不行就是它不行。 ...</blockquote>
+那就说明你该使用grill me了
+
