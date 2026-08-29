@@ -1445,3 +1445,13 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 由手机上传
 2026-8-30 02:33 上传
 
+
+*****
+
+####  格林卡罗尔  
+##### 831#       发表于 2026-8-30 04:26
+
+搞不明白砸地板怎么破解，只会摁住防御不放
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

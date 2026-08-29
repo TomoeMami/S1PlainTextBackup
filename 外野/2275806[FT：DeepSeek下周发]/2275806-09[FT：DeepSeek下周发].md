@@ -429,3 +429,14 @@ glm flash我倒是蹬完了，但确实觉得速度不太行
 
 微软有病吧，powershell的5.x版和7.x版对同一个命令的兼容性还不一样的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我想清一下wsl磁盘大小都琢磨半天
 
+
+*****
+
+####  squallx  
+##### 11881#       发表于 2026-8-30 04:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70169527&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-30 04:14</a>
+
+微软有病吧，powershell的5.x版和7.x版对同一个命令的兼容性还不一样的我想清一下wsl磁盘大小都琢磨半天 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人和ai在pwsh肘击面前都是平等的
+
