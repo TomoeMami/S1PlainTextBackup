@@ -244,3 +244,34 @@ codex好像明天有重置
 
 土区的75块plus原价转给了朋友的朋友，约定这周给他试用，下个月再收费，结果他这周愣是没用过，要错过2次重置，总感觉好浪费。应该先收费的，觉得浪费的就是他了
 
+
+*****
+
+####  冤枉呐  
+##### 11863#       发表于 2026-8-29 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70167000&amp;ptid=2275806" target="_blank">真红之闪电 发表于 2026-8-29 15:49</a>
+随便找个接号网站得了
+
+—— 来自 S1Fun</blockquote>
+接号网站说电话被封了
+然后我自己的电话因为尝试过多也被封了
+cao
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  冤枉呐  
+##### 11864#       发表于 2026-8-29 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70167773&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-29 19:17</a>
+dsh这个在他们进一步打磨细节之前最好别用，我看b站有反馈dsflash一口气拉了128个子agent瞬间烧干余额的 ...</blockquote>
+我发现有个问题
+好像现在几家都有点权限问题
+dsh发现我在工作区有个py，配了一个文件路径。
+**直接用open连这个路径了。
+那还控制什么权限啊
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
