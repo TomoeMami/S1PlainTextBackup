@@ -124,3 +124,40 @@ agentrouter的glm不能在zcode用吗？
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  zjf  
+##### 11853#       发表于 2026-8-29 18:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70166250&amp;ptid=2275806" target="_blank">squallx 发表于 2026-8-29 12:38</a>
+gptplus这动不动就重置的codex里都蹬不完了 现在反代安全了吗？用什么反代 代出来后国内需不需要强制用梯？ ...</blockquote>
+我用的是cpa，轻量干净没什么太多的功能，gpt两个月gemini俩礼拜，目前没什么问题。
+
+请求都是cpa转出去的，所以不需要梯子
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  andychen  
+##### 11854#       发表于 2026-8-29 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70167169&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-29 16:40</a>
+
+没人聊聊dsh  0.1.2那个agent team吗，好像和claude code之前炒作的agent间通信挺像的    Re:Source ...</blockquote>
+现在支持subagent的harness基本都有agent间通信的设计
+
+不过目前使用的大多还是中心化管理/树状结构，下一步的开发方向应该是监管者+网状结构的设计
+
+*****
+
+####  龙骑士尹志平  
+##### 11855#       发表于 2026-8-29 18:18
+
+<blockquote>zjf 发表于 2026-8-29 18:13
+我用的是cpa，轻量干净没什么太多的功能，gpt两个月gemini俩礼拜，目前没什么问题。
+
+请求都是cpa转出去 ...</blockquote>
+cpa放在哪里，放在国外**上吗，哪个**，很多**不是都被o÷和不作恶封了吗
+
