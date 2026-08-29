@@ -407,3 +407,17 @@ glm flash我倒是蹬完了，但确实觉得速度不太行
 
 5.3太慢了，以至于我以为卡死了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  goranger  
+##### 11879#       发表于 2026-8-30 04:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70169467&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-8-30 02:57</a>
+glm flash我倒是蹬完了，但确实觉得速度不太行
+
+——来自 2410DPN6CC 上的 S1er 客户端 ...</blockquote>
+我蹬了6亿感觉挺快的呀
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
