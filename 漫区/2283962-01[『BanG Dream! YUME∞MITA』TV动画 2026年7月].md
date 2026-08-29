@@ -2880,3 +2880,11 @@ yuno其实之前多少也算看透自己现在在梦限大的几个成员，<str
 yuno其实之前多少也算看透自己现在在梦限大的几个成员，所以说自己不想要过家家一样的友情，但是一方面自 ...</blockquote>
 天意，天意啊（wsd<img src="https://static.stage1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  noneoneone  
+##### 383#       发表于 2026-8-29 08:26
+
+人生第一次看邦动画，感觉主角团11集加起来像人的部分不如半集yuno前队友。还有我以为疼肚子是知道真相只是太沉迷美色了，没想到还真是这都看不清。
+
