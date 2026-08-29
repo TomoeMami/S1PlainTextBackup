@@ -448,3 +448,95 @@ glm flash我倒是蹬完了，但确实觉得速度不太行
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">免费给的正好给老电脑屎山通通马桶，通没到一半就用差不多了
 
+
+*****
+
+####  蛋黄酱Release  
+##### 11883#       发表于 2026-8-30 01:07
+
+glm5.3f还是太慢了，flash模型一定得flash<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">相似的任务d4v用了28分钟，5.3f用了1个小时11分钟，效果可能略微好一点
+照这速度，周末给的3亿tokens根本蹬不完<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  goranger  
+##### 11884#       发表于 2026-8-30 01:08
+
+雷霆大思考+多轮连续工具调用，对于有高效记忆的agent来说，我觉得是错的。因为这种长时间的思考只算一轮对话，只能召回一次记忆。但正常人做思考阅读的时候，是在不断的发散联想的。如果只看不想，其实算不上真正的思考，因为信息不足就会产生错误判断
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 11885#       发表于 2026-8-30 01:34
+
+Linear attention在910C上就是这个性能<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  startraveller  
+##### 11886#       发表于 2026-8-30 01:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70169345&amp;ptid=2275806" target="_blank">培根芝士蛋堡XD 发表于 2026-8-30 01:34</a>
+Linear attention在910C上就是这个性能，打算在华为卡上跑还选linear这种难以并行计算的玩意，就是个错误 ...</blockquote>
+貌似是海光DCU，不是华为方案
+
+*****
+
+####  noneoneone  
+##### 11887#       发表于 2026-8-30 02:57
+
+glm flash我倒是蹬完了，但确实觉得速度不太行
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
+*****
+
+####  海德先生  
+##### 11888#       发表于 2026-8-30 03:06
+
+5.3太慢了，以至于我以为卡死了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  goranger  
+##### 11889#       发表于 2026-8-30 04:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70169467&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-8-30 02:57</a>
+glm flash我倒是蹬完了，但确实觉得速度不太行
+
+——来自 2410DPN6CC 上的 S1er 客户端 ...</blockquote>
+我蹬了6亿感觉挺快的呀
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qwased  
+##### 11890#       发表于 2026-8-30 04:14
+
+微软有病吧，powershell的5.x版和7.x版对同一个命令的兼容性还不一样的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我想清一下wsl磁盘大小都琢磨半天
+
+*****
+
+####  squallx  
+##### 11891#       发表于 2026-8-30 04:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70169527&amp;ptid=2275806" target="_blank">qwased 发表于 2026-8-30 04:14</a>
+
+微软有病吧，powershell的5.x版和7.x版对同一个命令的兼容性还不一样的我想清一下wsl磁盘大小都琢磨半天 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人和ai在pwsh肘击面前都是平等的
+
+*****
+
+####  UmarIbnLaAhad  
+##### 11892#       发表于 2026-8-30 05:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">免费给的正好给老电脑屎山通通马桶，通没到一半就用差不多了
+
+*****
+
+####  squallx  
+##### 11893#       发表于 2026-8-30 05:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么又重置了啊 才蹬到一半
+
