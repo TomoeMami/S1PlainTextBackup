@@ -2134,3 +2134,17 @@ bd访谈预览
 
 这个喜好表里王子也是挺有趣的，游戏特意指FPS游戏，既然讨厌虫子，第八集还邀菈菈来看瓢虫，为了泡妹虫子也顾不上怕了。
 
+
+*****
+
+####  Piano-Forest  
+##### 458#         楼主| 发表于 2026-8-29 21:57
+
+<img src="https://p.sda1.dev/34/2934653c131e76da7408802d1760b2c8/HQ3X4rVbYAAn9k1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/85d8a86e706e5fdd7146a4248a35c7dc/HQ3X60-aEAAolJD.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/249c9e3a727ce565d9ab37fa4f6a4156/HQ3X-DJaoAA4UQA.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/34/23b6df696e0eb189140452c752ba6217/HQ3kD_OaYAAY_fq.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/9c1a57f7395b69dc7979e0fd67a6055d/HQ4LcM3awAA2LoP.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/34/442b7bb56d8e52c948a2b590ac6c141b/HQ4LcM6awAAEC3I.jpg" referrerpolicy="no-referrer">
+
