@@ -2907,3 +2907,13 @@ yuno其实之前多少也算看透自己现在在梦限大的几个成员，所�
 人生第一次看邦动画，感觉主角团11集加起来像人的部分不如半集yuno前队友。还有我以为疼肚子是知道真相只是 ...</blockquote>
 其实就是团魂诙谐到不像样了，第六集前还能勉强维持一个团队，自从妖薇逼近，经纪人也沉迷炒作之后，这群人特别是yuno和主角，蓝毛，白毛，藤雪峰和主角，蓝毛，白毛之间就<strong>只能维持表面同事了</strong><img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刑部姬真可爱  
+##### 386#       发表于 2026-8-29 22:33
+
+肚子疼老师下集会有超爆的跑马拉松跑到晕倒的我们想念您环节吗
+
+—— 来自 realme RMX5062, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

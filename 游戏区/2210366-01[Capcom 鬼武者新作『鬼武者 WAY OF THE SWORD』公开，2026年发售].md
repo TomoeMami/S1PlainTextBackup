@@ -1396,3 +1396,15 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  otakun  
+##### 828#       发表于 2026-8-29 22:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70168516&amp;ptid=2210366" target="_blank">kalavinka 发表于 2026-8-29 22:13</a>
+不知道是不是依旧有像生化怪猎这些卡婊祖传的帧数与触发的问题 锁60后感觉容易了一些
+
+论坛助手,iPhone ...</blockquote>
+祖传现象的话不是锁30更宽松吗
+
