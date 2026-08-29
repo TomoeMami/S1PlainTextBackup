@@ -29,3 +29,11 @@
 
 no，竟然还要等1年
 
+
+*****
+
+####  卡拉德利姆  
+##### 925#       发表于 2026-8-30 06:43
+
+从封测的进度来看真不意外的……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
