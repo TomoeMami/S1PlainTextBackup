@@ -1386,3 +1386,13 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  kalavinka  
+##### 827#       发表于 2026-8-29 22:13
+
+不知道是不是依旧有像生化怪猎这些卡婊祖传的帧数与触发的问题 锁60后感觉容易了一些<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

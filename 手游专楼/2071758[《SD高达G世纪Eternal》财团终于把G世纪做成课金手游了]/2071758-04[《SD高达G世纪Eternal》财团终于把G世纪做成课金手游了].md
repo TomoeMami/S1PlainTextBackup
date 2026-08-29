@@ -133,3 +133,13 @@
 天塌了，开服第一个池子被最强最帅掏空身体导致没钻抽z，上个池子刚被双龙掏空身体现在你跟我讲z复刻了 ...</blockquote>
 在错过可就又要等47连抽了
 
+
+*****
+
+####  blue321  
+##### 4639#       发表于 2026-8-29 22:09
+
+草，F91把资源都抽光了
+
+这次复刻+上快半周年限定了，有点不知道该抽哪个了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
