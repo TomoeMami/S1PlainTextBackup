@@ -1364,3 +1364,11 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  nailuo1993  
+##### 825#       发表于 2026-8-29 19:28
+
+有人能给个隐藏boss的存档吗，我点了新游戏结果直接从头开始了
+
