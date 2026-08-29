@@ -307,3 +307,13 @@ pi-web，非常好用
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">alpha我是不敢装的，ds也没把这个版本推上npm
 
+
+*****
+
+####  CCauchy  
+##### 11868#       发表于 2026-8-29 21:12
+
+这dsh官方居然更新了个调用codex的功能，正是我想要的，我之前自己叫AI开发了还没来得及试用，看来很多想法可以先放一放了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
