@@ -16174,3 +16174,11 @@ opencode上线了新模型Ling-3.0-flash-Fin，搜了下是蚂蚁集团的……
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cscbzcbz  
+##### 11833#       发表于 2026-8-29 13:09
+
+真是百花齐放了，这是开源才有的优势吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
