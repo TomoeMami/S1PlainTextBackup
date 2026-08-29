@@ -161,3 +161,41 @@ gptplus这动不动就重置的codex里都蹬不完了 现在反代安全了吗�
 请求都是cpa转出去 ...</blockquote>
 cpa放在哪里，放在国外**上吗，哪个**，很多**不是都被o÷和不作恶封了吗
 
+
+*****
+
+####  zhongjie  
+##### 11856#       发表于 2026-8-29 18:18
+
+pi有没有推荐的gui？
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  andychen  
+##### 11857#       发表于 2026-8-29 18:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70167474&amp;ptid=2275806" target="_blank">Junchoon 发表于 2026-8-29 17:58</a>
+
+装了dsh但似乎没有解决我的问题。请教下如果我需要dsh读取word和pdf，同时需要它深度思考应该怎么办？
+
+另 ...</blockquote>
+DSH对综合类应用来说太简陋了，建议你装个市面上成熟的harness再根据需求配置skill
+
+如果有长期需求可以自己写个skill，再保存一个专用智能体
+
+*****
+
+####  andychen  
+##### 11858#       发表于 2026-8-29 18:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70167130&amp;ptid=2275806" target="_blank">noneoneone 发表于 2026-8-29 16:27</a>
+
+倒也不是。
+
+我是想象不出我想要的是个什么东西，总之先让它试试，能行就是我行，不行就是它不行。 ...</blockquote>
+现在有很多辅助头脑风暴的智能体
+
+大致是两个方向，一个是帮助你深挖已有概念，一个是帮助你进行概念横向扩展。说实话我现在干活已经离不开了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
