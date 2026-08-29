@@ -389,3 +389,21 @@ Linear attention在910C上就是这个性能<img src="https://static.stage1st.co
 Linear attention在910C上就是这个性能，打算在华为卡上跑还选linear这种难以并行计算的玩意，就是个错误 ...</blockquote>
 貌似是海光DCU，不是华为方案
 
+
+*****
+
+####  noneoneone  
+##### 11877#       发表于 2026-8-30 02:57
+
+glm flash我倒是蹬完了，但确实觉得速度不太行
+
+——来自 2410DPN6CC 上的 [S1er 客户端](https://s1er.pages.dev)
+
+
+*****
+
+####  海德先生  
+##### 11878#       发表于 2026-8-30 03:06
+
+5.3太慢了，以至于我以为卡死了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
