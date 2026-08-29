@@ -39,3 +39,18 @@ ds的官方搜索感觉不太好，至少和gpt的比不太好
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  noneoneone  
+##### 11845#       发表于 2026-8-29 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70166806&amp;ptid=2275806" target="_blank">andychen 发表于 2026-8-29 15:00</a>
+
+想象下你是公司领导，给下属一句话我要做个xxx，然后期望下属把这东西完美的按你脑内的印象做出来
+
+这就是 ...</blockquote>
+倒也不是。
+
+我是想象不出我想要的是个什么东西，总之先让它试试，能行就是我行，不行就是它不行。
+
