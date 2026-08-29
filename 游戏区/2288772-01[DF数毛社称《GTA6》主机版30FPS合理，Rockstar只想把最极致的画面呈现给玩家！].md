@@ -457,3 +457,11 @@ xsx也得30帧吗<img src="https://static.stage1st.com/image/smiley/face2017/001
 虽然但是，这代主机标准版甚至是pro的cpu是拉胯的8核zen2，性能勉强和i5-10400f以及r5-3600打平。gta6想要6 ...</blockquote>
 真放开了用PC的CPU性能也不行啊，PC好就好在有个dlss插帧遮羞了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  彩虹肥宅  
+##### 48#       发表于 2026-8-29 17:14
+
+在网上人人都有高配pc<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
