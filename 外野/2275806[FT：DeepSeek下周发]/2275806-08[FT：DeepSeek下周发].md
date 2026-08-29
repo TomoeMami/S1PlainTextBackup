@@ -16164,3 +16164,13 @@ ds的搜索不知道买的哪家，效果很差。不如接exa或者tavily。
 
 opencode上线了新模型Ling-3.0-flash-Fin，搜了下是蚂蚁集团的……金融模型？<img src="https://static.stage1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 11832#       发表于 2026-8-29 12:54
+
+千问那个下一代架构目前还没能明显看出来engram的作用，得等到更大参数的模型用上这个才行，DS下一个版本不知道会不会上这个技术
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
