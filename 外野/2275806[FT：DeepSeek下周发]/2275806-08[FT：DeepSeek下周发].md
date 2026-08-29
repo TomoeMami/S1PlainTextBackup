@@ -16212,3 +16212,24 @@ ddr5便宜不了了
 之前cherry 1.9版本的时候，网络搜索是直接用百度/bing/Google，现在更了2.0之后，默认的是个ExaMCP的搜索 ...</blockquote>
 用Deepseek原生搜索需要装一个mcp叫deepseek-search-mcp。
 
+
+*****
+
+####  tonyunreal  
+##### 11837#       发表于 2026-8-29 14:58
+
+OpenAI和Cursor解约，说自家AI不能给马斯克用（Cursor被SpaceX收购了）
+
+a/ 联合创始人公开站Cursor
+
+谁还说AI不是二游 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 11838#       发表于 2026-8-29 15:00
+
+想象下你是公司领导，给下属一句话我要做个xxx，然后期望下属把这东西完美的按你脑内的印象做出来
+
+这就是一句话生成<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
