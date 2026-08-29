@@ -16182,3 +16182,23 @@ opencode上线了新模型Ling-3.0-flash-Fin，搜了下是蚂蚁集团的……
 
 真是百花齐放了，这是开源才有的优势吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  自由之紫roy  
+##### 11834#       发表于 2026-8-29 13:17
+
+3.7flash，越来越多人做量化版了，好开心啊
+
+*****
+
+####  自由之紫roy  
+##### 11835#       发表于 2026-8-29 13:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70166102&amp;ptid=2275806" target="_blank">kinfox 发表于 2026-8-29 12:10</a>
+
+希望qwen再出一个消费级家用显卡也可以跑的qwen4，qwen3.8让我们本地部署的人已经看到了曙光，非常期待未来 ...</blockquote>
+肯定会有的，而且很多专家可以放到内存里了，就是对内存容量的要求会越来越高
+
+ddr5便宜不了了
+
