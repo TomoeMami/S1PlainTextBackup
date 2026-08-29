@@ -526,3 +526,15 @@ xsx也得30帧吗<img src="https://static.stage1st.com/image/smiley/face2017/001
 
 —— 来自 HUAWEI SGT-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
 
+
+*****
+
+####  骨于野  
+##### 56#       发表于 2026-8-30 00:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70166876&amp;ptid=2288772" target="_blank">umbasa 发表于 2026-8-29 15:17</a>
+虽然但是，这代主机标准版甚至是pro的cpu是拉胯的8核zen2，性能勉强和i5-10400f以及r5-3600打平。gta6想要6 ...</blockquote>
+其实还不如R5 3600，因为主机是共享内存，延迟爆表。除非有些场景专门为ps5的高速访问硬盘做了优化，一般情况下主机CPU性能不如同规格PC
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+

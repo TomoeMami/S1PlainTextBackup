@@ -345,3 +345,13 @@ cpa放在哪里，放在国外主机上吗，哪个服务器提供商的？很�
 
 我宣布gpt网页版luna就是神经病
 
+
+*****
+
+####  serj005  
+##### 11872#       发表于 2026-8-30 00:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70168556&amp;ptid=2275806" target="_blank">德尔惠净水器 发表于 2026-8-29 22:22</a>
+各位有用过Android CLI吗，好不好用</blockquote>
+还行，配合agent能做出正常可用的app，也能调用adb和模拟器调试
+
