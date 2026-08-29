@@ -90,3 +90,13 @@ agentrouter的glm不能在zcode用吗？
 我是想象不出我想要的是个什么东西，总之先让它试试，能行就是我行，不行就是它不行。 ...</blockquote>
 那就说明你该使用grill me了
 
+
+*****
+
+####  qwased  
+##### 11850#       发表于 2026-8-29 17:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">omp更新了，跑了一下update，就炸了
+
+现在让dsh去修，待会修完再更新dsh然后让omp修<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

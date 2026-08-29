@@ -465,3 +465,13 @@ xsx也得30帧吗<img src="https://static.stage1st.com/image/smiley/face2017/001
 
 在网上人人都有高配pc<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  umbasa  
+##### 49#       发表于 2026-8-29 17:18
+
+<blockquote>qwased 发表于 2026-8-29 17:02
+真放开了用PC的CPU性能也不行啊，PC好就好在有个dlss插帧遮羞了</blockquote>
+那就得看大葱哥手上的版本到底是个啥水平了，反正主机的那个阉割版8核zen2是一定驾驭不了gta6那么多npc的活动的。至于说pc的cpu性能，别的游戏不好说，98x3d还是能驾驭潜行者2和龙之信条2这两怪东西的，但是主机上这两就是完美的30帧体验。
+
