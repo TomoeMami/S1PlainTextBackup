@@ -299,3 +299,11 @@ pi有没有推荐的gui？
 —— 来自 HONOR AAP-AN00, Android 16, 鹅球 v4.0</blockquote>
 pi-web，非常好用
 
+
+*****
+
+####  舞以  
+##### 11867#       发表于 2026-8-29 20:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">alpha我是不敢装的，ds也没把这个版本推上npm
+
