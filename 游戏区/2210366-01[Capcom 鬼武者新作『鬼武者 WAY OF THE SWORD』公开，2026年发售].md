@@ -1419,3 +1419,29 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 祖传现象的话不是锁30更宽松吗</blockquote>
 30试过也更容易，但玩了一会觉得有点折磨改60了<img src="https://static.stage1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 830#       发表于 2026-8-30 02:37
+
+看巴哈的前瞻游戏是有图鉴的，幻魔图鉴一共23种幻魔。像初始小兵一目笠，一共有持刀、盾和弓箭三种，这三种同类型幻魔算一种。现在就看这23种幻魔包不包括boss了。要是不算，而且加上boss数量能撑到30种，再算上20小时流程，那应该还可以了。
+
+<img src="https://img.stage1st.com/forum/202608/30/023344er74634s7f4f7vkh.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1788028331074.jpeg</strong> (84.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-30 02:33 上传
+
+<img src="https://img.stage1st.com/forum/202608/30/023348eu39m337mu3u77b7.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1788028335040.jpeg</strong> (115.66 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-30 02:33 上传
+
