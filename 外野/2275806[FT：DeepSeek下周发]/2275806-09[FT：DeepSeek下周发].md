@@ -287,3 +287,15 @@ dsh这个在他们进一步打磨细节之前最好别用，我看b站有反馈d
 
 —— 来自 Xiaomi 25102RKBEC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  serj005  
+##### 11866#       发表于 2026-8-29 20:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70167557&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-8-29 18:18</a>
+pi有没有推荐的gui？
+
+—— 来自 HONOR AAP-AN00, Android 16, 鹅球 v4.0</blockquote>
+pi-web，非常好用
+
