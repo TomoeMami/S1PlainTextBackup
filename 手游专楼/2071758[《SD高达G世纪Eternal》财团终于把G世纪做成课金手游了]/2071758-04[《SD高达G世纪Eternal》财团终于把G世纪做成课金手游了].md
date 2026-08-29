@@ -143,3 +143,11 @@
 
 这次复刻+上快半周年限定了，有点不知道该抽哪个了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ティグル  
+##### 4640#       发表于 2026-8-29 22:14
+
+看强度吧，不过Z复刻就很值得抽了
+

@@ -317,3 +317,11 @@ pi-web，非常好用
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  德尔惠净水器  
+##### 11869#       发表于 2026-8-29 22:22
+
+各位有用过Android CLI吗，好不好用
+
