@@ -371,3 +371,11 @@ glm5.3f还是太慢了，flash模型一定得flash<img src="https://static.stage
 
 雷霆大思考+多轮连续工具调用，对于有高效记忆的agent来说，我觉得是错的。因为这种长时间的思考只算一轮对话，只能召回一次记忆。但正常人做思考阅读的时候，是在不断的发散联想的。如果只看不想，其实算不上真正的思考，因为信息不足就会产生错误判断
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 11875#       发表于 2026-8-30 01:34
+
+Linear attention在910C上就是这个性能<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
