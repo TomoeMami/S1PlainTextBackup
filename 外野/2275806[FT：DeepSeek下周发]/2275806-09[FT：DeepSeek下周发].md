@@ -62,3 +62,11 @@ ds的官方搜索感觉不太好，至少和gpt的比不太好
 
 没人聊聊dsh  0.1.2那个agent team吗，好像和claude code之前炒作的agent间通信挺像的    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  CCauchy  
+##### 11847#       发表于 2026-8-29 16:49
+
+agentrouter的glm不能在zcode用吗？
+
