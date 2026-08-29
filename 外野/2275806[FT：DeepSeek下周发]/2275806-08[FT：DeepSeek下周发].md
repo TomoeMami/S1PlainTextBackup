@@ -16148,3 +16148,11 @@ ds的搜索不知道买的哪家，效果很差。不如接exa或者tavily。
 
 — from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  squallx  
+##### 11830#       发表于 2026-8-29 12:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">gptplus这动不动就重置的codex里都蹬不完了 现在反代安全了吗？用什么反代 代出来后国内需不需要强制用梯？
+
