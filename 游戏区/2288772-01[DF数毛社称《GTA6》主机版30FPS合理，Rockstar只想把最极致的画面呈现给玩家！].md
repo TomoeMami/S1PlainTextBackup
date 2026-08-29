@@ -491,3 +491,18 @@ xsx也得30帧吗<img src="https://static.stage1st.com/image/smiley/face2017/001
 
 我觉得的“合理”是指这画面只可能在ps5上以30帧运行，要是60帧就他么是仙术了。但是“基于30帧开发”这个大方向合不合理就难评了。在首发主机玩家的体验和做一个游戏领域大师之作的野心之间，r星显然选了后者。
 
+
+*****
+
+####  nancygreenlife  
+##### 52#       发表于 2026-8-29 17:58
+
+以后不好拿30帧说事了，问就是gta6多少帧啊？<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霸王向小受  
+##### 53#       发表于 2026-8-29 18:00
+
+付费测试合理，二流体验没毛病
+

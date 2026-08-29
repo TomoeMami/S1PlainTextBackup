@@ -100,3 +100,27 @@ agentrouter的glm不能在zcode用吗？
 
 现在让dsh去修，待会修完再更新dsh然后让omp修<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Junchoon  
+##### 11851#       发表于 2026-8-29 17:58
+
+装了dsh但似乎没有解决我的问题。请教下如果我需要dsh读取word和pdf，同时需要它深度思考应该怎么办？
+
+另外我看到“dsh-anchored-standard”这个插件，不知道在Windows上对于程序修改以外的思考有帮助吗？
+
+
+*****
+
+####  舞以  
+##### 11852#       发表于 2026-8-29 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70167474&amp;ptid=2275806" target="_blank">Junchoon 发表于 2026-8-29 17:58</a>
+装了dsh但似乎没有解决我的问题。请教下如果我需要dsh读取word和pdf，同时需要它深度思考应该怎么办？
+
+另 ...</blockquote>
+你的需求，腾讯的workbuddy比较合适
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
