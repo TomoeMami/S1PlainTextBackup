@@ -574,3 +574,61 @@ xsx也得30帧吗<img src="https://static.stage1st.com/image/smiley/face2017/001
 
 没关系 等ps6发起进攻 就又会变成“30帧谁受的了啊 你受的了吗”
 
+
+*****
+
+####  noahhhh  
+##### 61#       发表于 2026-8-30 06:04
+
+哈基米总结的，没看出哪里吹主机了，这论坛十多年还是一样的吵法是真弱智。
+
+该视频来自 Digital Foundry（数码毛豆），标题为 《Grand Theft Auto 6 Extended Look: The Most Impressive Real-Time Game Graphics Yet?》（《侠盗猎车手 6》深入剖析：迄今最令人惊叹的实时游戏画面？）。
+
+视频针对 Rockstar 发布的 26 分钟《GTA 6》实机游玩演示（Gameplay）进行了全面的技术分析与画质解读。以下是视频的主要内容总结：
+
+🌟 1. 整体视觉与技术成就 (Overall Visual Achievement)
+
+次世代巅峰水准 [03:04]：Digital Foundry 认为这 26 分钟实机展示代表了当前主机世代最高规格的实时渲染成就（Singular achievement across this generation）。
+
+角色与毛发渲染 (Hair &amp; Skin Rendering) [04:12]：光线在不同发型（如卷发与直发）上的透射与散射极具真实感，在角色快速运动时，头发的二次运动（Secondary motion）自然流畅。皮肤渲染 [05:26] 展现了出色的高光与汗液质感，避免了传统游戏中的哑光感。
+
+高制作规格 [08:42]：游戏历经长达 8 年以上的全力开发，在技术与艺术细节的融合上达到了极高的成熟度。
+
+⏱️ 2. 30 FPS 性能目标与争议 (30 FPS Performance &amp; Debate)
+
+确定首发 30 帧 [12:16]：Rockstar 确认游戏在主流主机上以 30 FPS 运行。鉴于庞大的 NPC 模拟、复杂的物理系统和全光线追踪应用，30 FPS 是从开发初期就确定的视觉目标。
+
+动画与镜头微卡顿现象 (Animation/Camera Pacing) [15:37]：部分镜头在平移时会出现视觉上的抖动感（如 night club 场景 [16:57]），这是 RAGE 引擎长久以来的动画更新率与画面刷新率不同步问题，并非实际掉帧。
+
+60 FPS 模式的可能性 [23:57]：主机 CPU 性能是最大的瓶颈，要在基础 PS5 上实现 60 FPS 极具挑战，可能需要大幅削减 NPC 密度或光追效果，因此首发很难提供稳定的 60 FPS 模式。
+
+💡 3. 光线追踪与光照技术 (Ray Tracing &amp; Lighting)
+
+阴影技术 (Shadow Maps) [28:04]：主要使用高度定制的阴影贴图（Shadow Maps），结合渐变半影（Variable penumbra）效果，提供稳健且干净的全局阴影。
+
+光线追踪反射 (RT Reflections) [30:14]：广泛应用于不透明与半透明表面（如车辆、水面及角色模型反射），不过室内部分镜子（如主角家中 [31:55]）仍沿用了平面反射（Planar reflections）。
+
+光线追踪全局光照 (RTGI / RT Diffuse) [33:11]：间接光照与色彩反弹（Color bleeding）表现出色，但在部分阴影或低光场景中仍可观察到光追噪点（Ray tracing noise）[34:08]。
+
+🏙️ 4. 开放世界与物理模拟 (Open World &amp; Physics Simulation)
+
+NPC 行为与人群密度 [40:15]：展示了高密度的 AI 行为，包括环境寻路、行为脚本控制以及远近距离的 AI 追踪系统。
+
+载具与操控手感 (Vehicle Handling) [46:28]：载具物理和驾驶手感介于《GTA 4》（偏重沉沉感）与《GTA 5》（偏街机灵敏）之间。
+
+🖥️ 5. 画质表现与未来平台展望 (Image Quality &amp; Scalability)
+
+渲染分辨率 [48:26]：演示的基础渲染分辨率约为 1440p，目前未看到使用 FSR 或 PSSR 等超采样重建技术的极度锐化痕迹，画面整体偏软。
+
+PlayStation 5 Pro 展望 [58:37]：PS5 Pro 预计可以通过 PSSR 超分辨率和更强的 GPU 光追单元改善画质与噪点，但由于 CPU 提升有限，可能依然维持 30 FPS（或 40 FPS 模式）。
+
+PC 版与次世代扩展 [55:18]：PC 版未来将带来更高的分辨率、DLSS 支持以及光追质量提升，但要突破 60 FPS 需要极强的 CPU（如 Ryzen 7800X3D / 9800X3D 级别）支持。
+
+🎬 6. Netflix 独占首发与流媒体表现 (Netflix Exclusive &amp; Streaming)
+
+宣发模式与画质分发 [01:08:58]：Rockstar 选择了在 Netflix 独占首播 6 小时后再发布至 YouTube。DF 团队指出 Netflix 版本的码率仅约 11.4 Mbps (HEVC Profile) [01:09:16]，且不支持 HDR，对高规格画质的展示造成了一定影响。
+
+🔗 原视频链接：https://youtu.be/ca1GIOBPI6w 
+
+YouTube video views will be stored in your YouTube History, and your data will be stored and used by YouTube according to its Terms of Service
+
