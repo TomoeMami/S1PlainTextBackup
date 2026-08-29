@@ -16138,3 +16138,13 @@ one shot生成玩具项目和实际使用还是差的有点远
 
 希望qwen再出一个消费级家用显卡也可以跑的qwen4，qwen3.8让我们本地部署的人已经看到了曙光，非常期待未来更强的出现
 
+
+*****
+
+####  Azcarlo  
+##### 11829#       发表于 2026-8-29 12:22
+
+ds的搜索不知道买的哪家，效果很差。不如接exa或者tavily。
+
+— from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
