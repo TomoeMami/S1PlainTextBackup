@@ -2896,3 +2896,14 @@ yuno其实之前多少也算看透自己现在在梦限大的几个成员，所�
 
   本来还想说点啥，最后被疼雪峰老师搞笑到脑子宕机了，世界观里有追梦人挺好的，不一定非要在主角团身上
 
+
+*****
+
+####  aptx8285144  
+##### 385#       发表于 2026-8-29 12:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70165343&amp;ptid=2283962" target="_blank">noneoneone 发表于 2026-8-29 08:26</a>
+
+人生第一次看邦动画，感觉主角团11集加起来像人的部分不如半集yuno前队友。还有我以为疼肚子是知道真相只是 ...</blockquote>
+其实就是团魂诙谐到不像样了，第六集前还能勉强维持一个团队，自从妖薇逼近，经纪人也沉迷炒作之后，这群人特别是yuno和主角，蓝毛，白毛，藤雪峰和主角，蓝毛，白毛之间就<strong>只能维持表面同事了</strong><img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
