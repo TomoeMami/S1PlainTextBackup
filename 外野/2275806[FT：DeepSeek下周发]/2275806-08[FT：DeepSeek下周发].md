@@ -16108,3 +16108,13 @@ one shot生成玩具项目和实际使用还是差的有点远
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  chenyedgg  
+##### 11826#       发表于 2026-8-29 11:50
+
+目前来看qwen 3.8 flash next那个架构“潜力”最好，GLM 5.3flash和V4F差不多，Hy4 preview和GLM 5.3差不多
+
+等qwen4 正式系列出来看看大参数效果怎么样了
+
