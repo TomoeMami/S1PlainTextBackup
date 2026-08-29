@@ -325,3 +325,15 @@ pi-web，非常好用
 
 各位有用过Android CLI吗，好不好用
 
+
+*****
+
+####  zjf  
+##### 11870#       发表于 2026-8-29 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70167555&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-29 18:18</a>
+cpa放在哪里，放在国外主机上吗，哪个服务器提供商的？很多主机不是都被o÷和不作恶封了吗 ...</blockquote>
+嗯，国外的主机上，我的是搬瓦工的，dc1机房，上面都是些自用的服务和梯子之类的，纯自用，估计目标比较小
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
