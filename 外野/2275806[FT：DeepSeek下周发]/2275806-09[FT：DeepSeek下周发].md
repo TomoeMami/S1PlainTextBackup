@@ -234,3 +234,13 @@ agent irc辣 omp里已经用了很久了
 — from motorola XT2603-1, Android 16, S1 Next Goose v4.0 ...</blockquote>
 dsh这个在他们进一步打磨细节之前最好别用，我看b站有反馈dsflash一口气拉了128个子agent瞬间烧干余额的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lubo  
+##### 11862#       发表于 2026-8-29 19:43
+
+codex好像明天有重置
+
+土区的75块plus原价转给了朋友的朋友，约定这周给他试用，下个月再收费，结果他这周愣是没用过，要错过2次重置，总感觉好浪费。应该先收费的，觉得浪费的就是他了
+
