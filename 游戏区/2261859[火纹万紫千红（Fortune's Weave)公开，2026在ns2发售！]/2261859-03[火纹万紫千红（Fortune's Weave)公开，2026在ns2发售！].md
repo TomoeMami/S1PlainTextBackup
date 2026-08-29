@@ -1756,3 +1756,11 @@ PDD发力了，需要V3 300-50卷，不过是香港直邮，现在的香港直�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  thecatnie  
+##### 3118#       发表于 2026-8-29 15:13
+
+不是有人喜欢养成制，有人喜欢关卡制嘛，那就全做进去<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
