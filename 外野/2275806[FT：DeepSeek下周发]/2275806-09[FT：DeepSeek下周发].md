@@ -211,3 +211,26 @@ pi有没有推荐的gui？
 —— 来自 HONOR AAP-AN00, Android 16, 鹅球 v4.0</blockquote>
 pi-web，或者自己撸一个
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 11860#       发表于 2026-8-29 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70167169&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-29 16:40</a>
+没人聊聊dsh  0.1.2那个agent team吗，好像和claude code之前炒作的agent间通信挺像的    Re:Source ...</blockquote>
+agent irc辣 omp里已经用了很久了
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  qwased  
+##### 11861#       发表于 2026-8-29 19:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70167768&amp;ptid=2275806" target="_blank">IIIIIlllllIIIII 发表于 2026-8-29 19:15</a>
+agent irc辣 omp里已经用了很久了
+
+— from motorola XT2603-1, Android 16, S1 Next Goose v4.0 ...</blockquote>
+dsh这个在他们进一步打磨细节之前最好别用，我看b站有反馈dsflash一口气拉了128个子agent瞬间烧干余额的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
