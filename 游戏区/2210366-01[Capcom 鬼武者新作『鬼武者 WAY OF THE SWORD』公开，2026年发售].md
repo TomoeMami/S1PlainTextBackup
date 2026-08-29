@@ -1408,3 +1408,14 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 论坛助手,iPhone ...</blockquote>
 祖传现象的话不是锁30更宽松吗
 
+
+*****
+
+####  kalavinka  
+##### 829#       发表于 2026-8-29 22:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70168632&amp;ptid=2210366" target="_blank">otakun 发表于 2026-8-29 22:33</a>
+
+祖传现象的话不是锁30更宽松吗</blockquote>
+30试过也更容易，但玩了一会觉得有点折磨改60了<img src="https://static.stage1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
