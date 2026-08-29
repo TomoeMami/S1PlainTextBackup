@@ -1688,3 +1688,11 @@ PDD发力了，需要V3 300-50卷，不过是香港直邮，现在的香港直�
 
 已经有不识好歹的媒体人开始剧透了<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jabeck  
+##### 3112#       发表于 2026-8-29 11:34
+
+我倒是不害怕剧透，至少能对剧情好不好有个心理准备<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
