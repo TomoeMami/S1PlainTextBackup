@@ -514,3 +514,15 @@ xsx也得30帧吗<img src="https://static.stage1st.com/image/smiley/face2017/001
 
 帧数稳定那还行，别动不动卡顿
 
+
+*****
+
+####  3123  
+##### 55#       发表于 2026-8-29 18:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70166243&amp;ptid=2288772" target="_blank">ozymandias 发表于 2026-8-29 12:36</a>
+根据ps5的性能，以目前这个画面规格pc上要达到60帧大约要什么配置？</blockquote>
+大概3070ti或3080打底，以及pc版发售后超过一年以上的持续优化<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SGT-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+

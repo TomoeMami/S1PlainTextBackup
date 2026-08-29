@@ -199,3 +199,15 @@ DSH对综合类应用来说太简陋了，建议你装个市面上成熟的harne
 
 大致是两个方向，一个是帮助你深挖已有概念，一个是帮助你进行概念横向扩展。说实话我现在干活已经离不开了<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  startraveller  
+##### 11859#       发表于 2026-8-29 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70167557&amp;ptid=2275806" target="_blank">zhongjie 发表于 2026-8-29 18:18</a>
+pi有没有推荐的gui？
+
+—— 来自 HONOR AAP-AN00, Android 16, 鹅球 v4.0</blockquote>
+pi-web，或者自己撸一个
+
