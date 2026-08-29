@@ -16233,3 +16233,28 @@ a/ 联合创始人公开站Cursor
 
 这就是一句话生成<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  来都来了  
+##### 11839#       发表于 2026-8-29 15:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70166806&amp;ptid=2275806" target="_blank">andychen 发表于 2026-8-29 15:00</a>
+想象下你是公司领导，给下属一句话我要做个xxx，然后期望下属把这东西完美的按你脑内的印象做出来
+
+这就是 ...</blockquote>
+然后做不出来就开始吹胡子瞪眼，说你业务能力不行，没法准确理解领导意图。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  goranger  
+##### 11840#       发表于 2026-8-29 15:22
+
+<blockquote>andychen 发表于 2026-8-29 15:00
+想象下你是公司领导，给下属一句话我要做个xxx，然后期望下属把这东西完美的按你脑内的印象做出来
+
+这就是 ...</blockquote>
+赛博许愿机
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
