@@ -884,3 +884,23 @@ qwen 3.8 flash和powershell 5各种打架，要把主播气死了
 话说之前不是有舅舅说ds八月还有动作吗，这就没了吗，难道又要沉寂几个月了吗    Re:Source ...</blockquote>
 现在推上的外国99党都在说9月有 V5，估计也是看灰测蒙的
 
+
+*****
+
+####  舞以  
+##### 11924#       发表于 2026-8-30 21:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那不是舅舅说的么
+
+舅舅的8月=梁历几月？=公历几月？
+
+
+*****
+
+####  goranger  
+##### 11925#       发表于 2026-8-30 22:00
+
+明天又要重置吗
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
