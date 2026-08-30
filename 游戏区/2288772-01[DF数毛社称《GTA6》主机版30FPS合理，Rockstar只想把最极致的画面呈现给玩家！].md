@@ -632,3 +632,16 @@ PC 版与次世代扩展 [55:18]：PC 版未来将带来更高的分辨率、DLS
 
 YouTube video views will be stored in your YouTube History, and your data will be stored and used by YouTube according to its Terms of Service
 
+
+*****
+
+####  缺德猫  
+##### 62#       发表于 2026-8-30 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70167104&amp;ptid=2288772" target="_blank">qty 发表于 2026-8-29 16:18</a>
+
+其实索尼，R星这样坐拥庞大且狂热的粉丝群体的厂商根本不用给这些媒体钱，它们会自己争先恐后地贴过来吹的 ...</blockquote>
+“其实索尼，R星这样坐拥庞大且狂热的粉丝群体的厂商根本不用给这些媒体钱”
+
+任天堂和微软的粉丝少吗？好吧，微软粉丝确实少
+

@@ -1482,3 +1482,14 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 —— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  shimotsuki14  
+##### 834#       发表于 2026-8-30 10:32
+
+昨晚睡前打了一个多小时就就过了一把还是习惯防和闪玩硬蹭
+早上起来找到一闪手感了轻松多了
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
