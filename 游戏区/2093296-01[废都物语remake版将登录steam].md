@@ -61,3 +61,13 @@ no，竟然还要等1年
 
 gta6 都要出了<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  forestlimit  
+##### 929#       发表于 2026-8-30 08:45
+
+和外包有啥关系
+
+就是天闻角川内部有人想圆梦拉了几个粉丝做游戏而已
+
