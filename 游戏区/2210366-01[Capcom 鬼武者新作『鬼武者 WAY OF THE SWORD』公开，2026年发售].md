@@ -1455,3 +1455,16 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 —— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  MRhythm  
+##### 832#       发表于 2026-8-30 08:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70169529&amp;ptid=2210366" target="_blank">格林卡罗尔 发表于 2026-8-30 04:26</a>
+
+搞不明白砸地板怎么破解，只会摁住防御不放
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, 鹅球 v3.5.99-alph ...</blockquote>
+触地前的瞬间按闪避, 时机和各种跳砍跳踩一样, 很宽松
+
