@@ -45,3 +45,11 @@ no，竟然还要等1年
 
 所以封测进度是啥样的，别告诉我连龙之塔都没做完吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PigMourne  
+##### 927#       发表于 2026-8-30 07:52
+
+可以埋了，这就是角川层层外包的实力呀<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
