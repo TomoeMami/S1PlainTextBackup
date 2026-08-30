@@ -988,3 +988,11 @@ glm这个flash完全就是给我这种lite用户开的，之前5.3不够蹬只�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  hugosol  
+##### 11935#       发表于 2026-8-30 23:18
+
+我看antirez在推上发的投票，鬼佬对glm-5.3-flash评价很高嘛，普遍都认为比DS flash要强
+

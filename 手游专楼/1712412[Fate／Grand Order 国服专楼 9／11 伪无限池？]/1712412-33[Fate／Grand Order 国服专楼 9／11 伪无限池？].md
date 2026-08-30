@@ -125,3 +125,14 @@
 
 摩根抽一个有什么用吗？ 
 
+
+*****
+
+####  khxooo  
+##### 48172#       发表于 2026-8-30 23:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70169994&amp;ptid=1712412" target="_blank">soop 发表于 2026-8-30 09:45</a>
+
+摩根抽一个有什么用吗？</blockquote>
+没什么用，不建议抽。
+
