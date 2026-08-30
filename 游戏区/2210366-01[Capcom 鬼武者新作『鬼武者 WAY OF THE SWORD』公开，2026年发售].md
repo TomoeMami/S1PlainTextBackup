@@ -1541,3 +1541,11 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 我巴不得游戏都有偷跑呢，让偷跑试试毒挺好的。
 
+
+*****
+
+####  reficul  
+##### 841#       发表于 2026-8-30 18:12
+
+PS5数字版500+港，NS2卡带300，向差价屈服了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">steam也才298，主机税也太高了，NS2数字版也是500+，可惜我的PS5没有光驱
+

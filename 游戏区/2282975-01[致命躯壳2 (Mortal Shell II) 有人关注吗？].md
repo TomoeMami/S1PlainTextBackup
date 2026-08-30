@@ -1771,3 +1771,14 @@ FF16闪光灯我都还好
 
 新的钱魂两种消耗余露石哪里弄的，主城没得买
 
+
+*****
+
+####  zero4166  
+##### 167#       发表于 2026-8-30 18:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70171493&amp;ptid=2282975" target="_blank">backto95 发表于 2026-8-30 17:32</a>
+
+新的钱魂两种消耗余露石哪里弄的，主城没得买</blockquote>
+打小怪随机掉落
+
