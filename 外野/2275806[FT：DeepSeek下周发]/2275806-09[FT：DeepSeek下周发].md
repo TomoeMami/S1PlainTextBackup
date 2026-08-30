@@ -540,3 +540,13 @@ glm flash我倒是蹬完了，但确实觉得速度不太行
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么又重置了啊 才蹬到一半
 
+
+*****
+
+####  蜇灵  
+##### 11894#       发表于 2026-8-30 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70170429&amp;ptid=2275806" target="_blank">squallx 发表于 2026-8-30 12:12</a>
+我问肥鱼说wsl也要拆沙河只有pwsh是官方认证的。 现在是靠插件限制</blockquote>
+pwsh太区了，虽然不是不能用，但报错率实在是有点高了
+
