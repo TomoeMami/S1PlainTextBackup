@@ -740,3 +740,12 @@ plan里故意给flash模型提价了，本来应该 ...</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  cscbzcbz  
+##### 11910#       发表于 2026-8-30 19:50
+
+趁梁文谷的时候，把之前一整个月的官方api用量导出给D老师pro分析了一下。他告诉根据我的数据，如果不考虑各种折扣，按正式价格算，最佳策略是文峰时用qwen3.8 flash，文谷时用v4flash，比峰谷都用v4flash可以省80元/月。而用glm是5.3flash是最贵的，比峰谷都用v4flash还要多花200多元/月不推荐<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+各位把自己数据导出来试试，根据自己输入输出用量，缓存命中率让D老师分析合适的策略，感觉还挺靠谱。就是检查一下各个模型单价对不对，避免幻觉
+
