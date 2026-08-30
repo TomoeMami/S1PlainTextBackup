@@ -1070,3 +1070,15 @@ deepseek harnessEAC挺好用的，我已经把她调教成只会喊主人的变�
 今天的重置啥时候到啊，dsh的子任务管理对于sol来说比codex里面的ultra感觉还能烧 ...</blockquote>
 换算北京时间上午九点整重置，速蹬
 
+
+*****
+
+####  cscbzcbz  
+##### 11943#       发表于 2026-8-31 06:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70172871&amp;ptid=2275806" target="_blank">相见恨晚 发表于 2026-8-30 22:38</a>
+话说除了程序员外还怎么大量用这些东西啊</blockquote>
+就娱乐来说，无论是汉化游戏，还是给游戏写挂机脚本，ai都做到。甚至给游戏开发mod也不是不可以，只要有时间和耐心
+
+就办公来说也很好用，数据分析与归纳，报告总结，ppt和汇报文稿，也是轻而易举。可以当作是个底子扎实，知识面很广的实习生
+
