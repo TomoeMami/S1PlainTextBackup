@@ -617,3 +617,33 @@ hy4今天速度不错，虽然10M上下文之后大量429错误但是能连回�
 
 消耗未知（腾讯云余额更新太慢）
 
+
+*****
+
+####  唠叨  
+##### 11901#       发表于 2026-8-30 15:50
+
+<img src="https://img.stage1st.com/forum/202608/30/154959i8n533zxz3n8vsxx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (55.89 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-30 15:49 上传
+
+command只蹬v4flash总用量大约是3B
+
+
+*****
+
+####  空き地卯木  
+##### 11902#       发表于 2026-8-30 15:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70171114&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-30 15:32</a>
+
+太抽象了
+
+b站一堆人假装外国人在x上贴ds灰测的demo视频，然后说是GPT Astra……</blockquote>
+[https://www.bilibili.com/video/BV1n54U6GEbE](https://www.bilibili.com/video/BV1n54U6GEbE)
+<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">还有搬回b站被嘲的 钓鱼佬搁这打窝呢
+
