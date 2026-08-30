@@ -192,3 +192,11 @@
 
 我觉得再爱zzz和高桥的人只要再看一遍op画面，看看op歌词那句“重放，我不会重蹈覆辙”，再结合之前制作人说的op里全是伏笔，不是拍的玩的那句怕是都绷不住吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  浅川雏羽  
+##### 2233#       发表于 2026-8-30 15:39
+
+应该是Gotchard 以来完播率最高的蒙面超人，所以楼上几个高桥悠也厨厨才能看完并点评<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

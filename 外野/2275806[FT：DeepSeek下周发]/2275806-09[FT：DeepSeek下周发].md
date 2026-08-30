@@ -603,3 +603,17 @@ b站一堆人假装外国人在x上贴ds灰测的demo视频，然后说是GPT As
 
 <img src="https://p.sda1.dev/34/e44aed5890731e48c0bc5b4c0309d7dd/ds-astra.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tonyunreal  
+##### 11900#       发表于 2026-8-30 15:36
+
+hy4今天速度不错，虽然10M上下文之后大量429错误但是能连回去
+
+第三个demo用了153分钟
+
+输入674K 缓存56M 输出258K，缓存命中99%，42tok/s
+
+消耗未知（腾讯云余额更新太慢）
+
