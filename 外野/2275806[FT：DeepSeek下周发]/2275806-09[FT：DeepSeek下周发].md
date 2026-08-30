@@ -550,3 +550,11 @@ glm flash我倒是蹬完了，但确实觉得速度不太行
 我问肥鱼说wsl也要拆沙河只有pwsh是官方认证的。 现在是靠插件限制</blockquote>
 pwsh太区了，虽然不是不能用，但报错率实在是有点高了
 
+
+*****
+
+####  Promeus  
+##### 11895#       发表于 2026-8-30 14:23
+
+Hy4免费额度用完了，试了下付费的，同一个任务基本是0731的5-10倍消耗量<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
