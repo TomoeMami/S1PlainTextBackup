@@ -224,3 +224,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是看看武部最后一舞吧（存疑）
 
+
+*****
+
+####  月夜凝雪  
+##### 2237#       发表于 2026-8-30 18:17
+
+梦魇的设定本身要是强得太离谱就不合适了，再厉害那也只是一个人的梦，而且和响鬼一样是以后也会继续战斗下去但没有多少年持续积累的问题
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
