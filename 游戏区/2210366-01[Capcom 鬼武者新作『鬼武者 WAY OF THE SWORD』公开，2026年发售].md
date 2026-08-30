@@ -1549,3 +1549,13 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 PS5数字版500+港，NS2卡带300，向差价屈服了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">steam也才298，主机税也太高了，NS2数字版也是500+，可惜我的PS5没有光驱
 
+
+*****
+
+####  医生狼多  
+##### 842#       发表于 2026-8-30 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70171670&amp;ptid=2210366" target="_blank">reficul 发表于 2026-8-30 18:12</a>
+PS5数字版500+港，NS2卡带300，向差价屈服了steam也才298，主机税也太高了，NS2数字版也是500+，可惜我的PS ...</blockquote>
+你是最早的无光驱版？如果是 slim 版就建议还是买个光驱<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">目前盘已经跌到270了，光驱后面出掉算差价不会亏的
+
