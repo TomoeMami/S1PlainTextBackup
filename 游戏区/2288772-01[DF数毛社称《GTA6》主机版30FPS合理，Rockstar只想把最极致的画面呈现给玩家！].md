@@ -655,3 +655,17 @@ YouTube video views will be stored in your YouTube History, and your data will b
 我看都悬
 不排除PC版GTAVI直接砍掉20%画面/动画特性，你们PCMR就算拿着6090，体验照样赶不上PS5pro版
 
+
+*****
+
+####  acropolis  
+##### 64#       发表于 2026-8-30 11:06
+
+<blockquote>otaku21126 发表于 2026-8-29 20:00
+3090？就算是4090，跑GTAVI能赶上PS5pro版的表现吗？
+
+我看都悬
+
+不排除PC版GTAVI直接砍掉20%画面/动画特性， ...</blockquote>
+自动索敌到4090是不是有点招笑了，ps5pro&gt;4090打出来你笑没笑吧
+

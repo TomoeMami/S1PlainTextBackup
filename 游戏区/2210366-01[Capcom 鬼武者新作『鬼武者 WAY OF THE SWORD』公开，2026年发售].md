@@ -1493,3 +1493,11 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 
 —— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  缺德猫  
+##### 835#       发表于 2026-8-30 11:13
+
+还想着发售前玩玩法环，但按键差别太大放弃了，现在每天打一遍百秽维持手感，静待发售。
+

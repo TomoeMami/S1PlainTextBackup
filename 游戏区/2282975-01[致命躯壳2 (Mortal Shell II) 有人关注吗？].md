@@ -1701,3 +1701,31 @@ FF16闪光灯我都还好
 
 这游戏难度曲线很不合理，地图上方（欢欣平原）和地图下方（玛蒙废墟）难度差别巨大，在打完上方去下方后难度陡然上升
 
+
+*****
+
+####  我就再氪一单  
+##### 161#       发表于 2026-8-30 11:11
+
+ 本帖最后由 我就再氪一单 于 2026-8-30 11:15 编辑 
+
+大改了
+已经数值崩坏了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+大锤摇人修女王朝了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+召唤几个修女，又会用你的大锤，又会你的技能，还没有掉落伤害，你可以站在悬崖上往下扔人，只要呆站着就说明安全。
+门内世界的boss一人上去一锤就出处决了，再一人一锤就血量见底了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+会隐身会闪现的boss也没用，直接直奔真身位置<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+老骗子制作组还被人挖出来，很多更新内容都是口惠而实不至。豪华版独占结束第一天更新的大剑增伤到昨天才实装，更新内容说的修女不罚站实际更新后摇来的修女该罚站还是罚站<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  我就再氪一单  
+##### 162#       发表于 2026-8-30 11:14
+
+我昨天还尝试过ce改余露石核心，发现找得到地址但有保护，你改了也没用<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这制作组怎么心思和精力都放在这种斗智斗勇的事情上
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
