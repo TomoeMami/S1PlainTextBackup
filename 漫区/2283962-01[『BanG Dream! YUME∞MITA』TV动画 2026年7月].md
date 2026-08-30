@@ -2967,3 +2967,14 @@ yuno其实之前多少也算看透自己现在在梦限大的几个成员，所�
 
 既然这个困境本身是空洞的，不管怎么解决，结果也一定是空洞的，观众不可能对空洞产生共情
 
+
+*****
+
+####  aptx8285144  
+##### 391#       发表于 2026-8-30 16:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70171104&amp;ptid=2283962" target="_blank">ads147147 发表于 2026-8-30 15:30</a>
+
+有一说一，vol在确实做坏事的时候眼睛瞳孔会变成蛇眼的竖瞳，这次和疼肚子摊牌（甚至是tdz自己约她出来的） ...</blockquote>
+妖薇其实在三人正面争执以后的几周，有些表情（特别是和她自己团队的那2个在一起但是不是聊天时）是很微妙的，所以如果wsd要洗她几下，或者说换个说辞，她是藤雪峰或主角扭曲粉丝之类的，我也不是特别意外<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
