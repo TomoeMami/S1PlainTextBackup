@@ -558,3 +558,15 @@ pwsh太区了，虽然不是不能用，但报错率实在是有点高了
 
 Hy4免费额度用完了，试了下付费的，同一个任务基本是0731的5-10倍消耗量<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 11896#       发表于 2026-8-30 14:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70170808&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-8-30 14:03</a>
+上面4个,干活和算法研究是谁nb</blockquote>
+杨圣，毋庸置疑的，传世佛魔XL和XLNET一作
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
