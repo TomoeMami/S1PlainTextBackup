@@ -645,3 +645,13 @@ YouTube video views will be stored in your YouTube History, and your data will b
 
 任天堂和微软的粉丝少吗？好吧，微软粉丝确实少
 
+
+*****
+
+####  otaku21126  
+##### 63#       发表于 2026-8-30 11:00
+
+3090？就算是4090，跑GTAVI能赶上PS5pro版的表现吗？
+我看都悬
+不排除PC版GTAVI直接砍掉20%画面/动画特性，你们PCMR就算拿着6090，体验照样赶不上PS5pro版
+
