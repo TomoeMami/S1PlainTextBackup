@@ -801,3 +801,15 @@ plan里故意给flash模型提价了，本来应该 ...</blockquote>
 
 感觉腾讯真的起来了啊，而且workbuddy里hy4 x0.29，比glm5.3 x0.79便宜。
 
+
+*****
+
+####  tonyunreal  
+##### 11916#       发表于 2026-8-30 21:03
+
+前面坛友说的那个powershell版本的问题，看主播遇到了
+qwen 3.8 flash和powershell 5各种打架，要把主播气死了
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
