@@ -1583,3 +1583,21 @@ PS5光盘265，9月3日发货，而且发的是日邮
 
 才发现这高级豪华版怎么送的是女主角皮肤，何意味啊
 
+
+*****
+
+####  JOJO42  
+##### 846#       发表于 2026-8-30 20:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70172197&amp;ptid=2210366" target="_blank">乔迪奥 发表于 2026-8-30 20:24</a>
+
+才发现这高级豪华版怎么送的是女主角皮肤，何意味啊</blockquote>
+鬼泣5豪华版也送了堆不能操作的女角色皮肤<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ShiKi847  
+##### 847#       发表于 2026-8-30 20:43
+
+怎么那么多人都首发卡普空，我现在都等完全版再玩
+
