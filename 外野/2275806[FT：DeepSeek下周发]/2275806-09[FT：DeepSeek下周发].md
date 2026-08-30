@@ -570,3 +570,14 @@ Hy4免费额度用完了，试了下付费的，同一个任务基本是0731的5
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  zhanglei1943  
+##### 11897#       发表于 2026-8-30 15:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70170797&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-30 13:59</a>
+
+既然Hy4站起来了，那可以发表情包了</blockquote>
+杨 唐 梁 姚，四个二声，三个áng韵母。要想ai做得好，姓氏有说法。
+
