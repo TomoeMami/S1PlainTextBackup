@@ -71,3 +71,19 @@ gta6 都要出了<img src="https://static.stage1st.com/image/smiley/face2017/039
 
 就是天闻角川内部有人想圆梦拉了几个粉丝做游戏而已
 
+
+*****
+
+####  wasian  
+##### 930#       发表于 2026-8-30 08:59
+
+慢慢等吧，本来也是同人游戏，急了没做好反而没意义了
+
+
+*****
+
+####  桐野心音  
+##### 931#       发表于 2026-8-30 09:04
+
+这战斗画面不就是rpgmaker画质加强版吗，期待不要太高吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

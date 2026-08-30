@@ -1468,3 +1468,17 @@ PV6：[https://youtu.be/yxdrioMVoTs](https://youtu.be/yxdrioMVoTs)
 —— 来自 Xiaomi 24117RK2CC, Android 16, 鹅球 v3.5.99-alph ...</blockquote>
 触地前的瞬间按闪避, 时机和各种跳砍跳踩一样, 很宽松
 
+
+*****
+
+####  黑暗之眼  
+##### 833#       发表于 2026-8-30 08:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70169529&amp;ptid=2210366" target="_blank">格林卡罗尔 发表于 2026-8-30 04:26</a>
+搞不明白砸地板怎么破解，只会摁住防御不放
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, 鹅球 v3.5.99-alph ...</blockquote>
+百秽铺完地板后会有个跳砸，砸下来那一下会激发地板有个向上的突刺攻击，就只有这个有伤害，地板本身没有伤害，按回避武藏的回避动作会变成跳起来。搞懂了之后基本白给
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
