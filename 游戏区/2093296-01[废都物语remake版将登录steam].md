@@ -145,3 +145,11 @@ gta6也是22年说在做了吧
 以为是拿了日本角川钱的什么商业大项目吗？ ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估摸着在现在的独游里都算规模小的
 
+
+*****
+
+####  liuqy  
+##### 937#       发表于 2026-8-30 21:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这么点东西做了多少年了都，正经公司都倒闭了
+

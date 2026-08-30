@@ -813,3 +813,22 @@ qwen 3.8 flash和powershell 5各种打架，要把主播气死了
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  阿刚  
+##### 11917#       发表于 2026-8-30 21:07
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">3.8flash的甲好厚，根本破不了的那种
+
+*****
+
+####  startraveller  
+##### 11918#       发表于 2026-8-30 21:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70172256&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-30 20:39</a>
+周末连续重置了两次，自己拿来玩当然还行，但是你如果真的拿来干活，你再想想周末重置两次有没有什么用。
+
+ ...</blockquote>
+8月中上旬没啥营销节点他就不怎么 reset 了。不过这周大概有 GPT6 大概还是会重置一下。
+
