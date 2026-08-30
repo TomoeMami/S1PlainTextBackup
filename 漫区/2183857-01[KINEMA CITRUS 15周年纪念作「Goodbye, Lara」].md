@@ -2148,3 +2148,32 @@ bd访谈预览
 <img src="https://p.sda1.dev/34/9c1a57f7395b69dc7979e0fd67a6055d/HQ4LcM3awAA2LoP.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/34/442b7bb56d8e52c948a2b590ac6c141b/HQ4LcM6awAAEC3I.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  云梦泽岸  
+##### 459#       发表于 2026-8-31 00:36
+
+如果结局真是“恋情不是真实之爱，追求友谊家庭之类的过程才是真实之爱”，那就落入下乘了。
+小美人鱼原著中确实是be，但人鱼为了爱情，不求回报、甘愿自我牺牲的行为，让她有机会得以获得灵魂，至少是比男女之情要高尚的。那现在制作组要拿出什么样的价值体系来压倒一份感情呢。
+
+*****
+
+####  喵喵叫的猫  
+##### 460#       发表于 2026-8-31 00:39
+
+意料之中的发展
+不过还以为卢卡是gay或者哪条鱼变的
+原来真的只是蠢
+还不如和茉莉争哥哥比较有看头<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  K·os  
+##### 461#       发表于 2026-8-31 00:45
+
+魔女确实是真正的人类爱好者啊，努力这么多年居然真的进化出陆地形态了，我说魔女是对的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
