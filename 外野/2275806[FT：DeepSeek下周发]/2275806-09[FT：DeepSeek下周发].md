@@ -647,3 +647,19 @@ b站一堆人假装外国人在x上贴ds灰测的demo视频，然后说是GPT As
 [https://www.bilibili.com/video/BV1n54U6GEbE](https://www.bilibili.com/video/BV1n54U6GEbE)
 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">还有搬回b站被嘲的 钓鱼佬搁这打窝呢
 
+
+*****
+
+####  phorcys02  
+##### 11903#       发表于 2026-8-30 16:10
+
+我们可能用法不太一样，差别还挺大的。
+
+<img src="https://img.stage1st.com/forum/202608/30/160958jlbznlsol92ili9q.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (37.5 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-30 16:09 上传
+
