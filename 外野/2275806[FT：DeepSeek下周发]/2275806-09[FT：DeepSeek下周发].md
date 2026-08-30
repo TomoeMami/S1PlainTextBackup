@@ -791,3 +791,13 @@ plan里故意给flash模型提价了，本来应该 ...</blockquote>
 
 周末连续重置了两次，自己拿来玩当然还行，但是你如果真的拿来干活，你再想想周末重置两次有没有什么用。<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  diohanmilton  
+##### 11915#       发表于 2026-8-30 20:52
+
+早上用hy4修了下有个困扰我很久的安卓字体问题，之前几个模型都定位不到根因。
+
+感觉腾讯真的起来了啊，而且workbuddy里hy4 x0.29，比glm5.3 x0.79便宜。
+
