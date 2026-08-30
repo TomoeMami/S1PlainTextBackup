@@ -129,3 +129,11 @@
 
 吃瘪可以 删号+断手有点过分了吧<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">退场的方式那么多，选了个观感极差的
 
+
+*****
+
+####  水莲寺流歌  
+##### 766#       发表于 2026-8-31 00:26
+
+这集标题是兄与弟结果还是靠着京哥唤醒的哥哥，这个角色的剧情分配真的有些失控了吧<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">，不过在结局前让人这么草率的下线制作组真够不负责的
+
