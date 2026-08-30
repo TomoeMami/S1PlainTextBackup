@@ -117,3 +117,16 @@ gta6 都要出了<img src="https://static.stage1st.com/image/smiley/face2017/039
 
 现在看来，可能真实进度没比端上来给我们玩的那部分超前多少<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  林无德  
+##### 935#       发表于 2026-8-30 19:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70169757&amp;ptid=2093296" target="_blank">jinuzuktII 发表于 2026-8-30 08:27</a>
+
+gta6 都要出了</blockquote>
+gta6也是22年说在做了吧
+
+这下超越gta了（指花的时间）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

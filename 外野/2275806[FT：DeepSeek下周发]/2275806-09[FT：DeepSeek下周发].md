@@ -697,3 +697,46 @@ a/ 联合创始人公开站Cursor</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  龙骑士尹志平  
+##### 11906#       发表于 2026-8-30 19:16
+
+用了一个周末的zcode flash 觉得还行，刚刚问了下豆包，说api 的5.3flash按照10000积分算token也就3～7块钱， 比coding plan的flash要便宜得多？这是真的吗？积分兑换太复杂了，不会算。如果api确实比codingplan便宜我以后就api算了。
+
+*****
+
+####  tonyunreal  
+##### 11907#       发表于 2026-8-30 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70171938&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-30 19:16</a>
+
+用了一个周末的zcode flash 觉得还行，刚刚问了下豆包，说api 的5.3flash按照10000积分算token也就3～7块钱 ...</blockquote>
+api现在是半价优惠所以便宜，不半价的话api和plan差不多
+
+plan里故意给flash模型提价了，本来应该能蹬api 4倍
+
+
+*****
+
+####  龙骑士尹志平  
+##### 11908#       发表于 2026-8-30 19:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70171950&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-30 19:18</a>
+
+api现在是半价优惠所以便宜，不半价的话只看牛来api和plan差不多
+
+plan里故意给flash模型提价了，本来应该 ...</blockquote>
+谢谢佬，太复杂了，我还是跑v4f吧
+
+*****
+
+####  舞以  
+##### 11909#       发表于 2026-8-30 19:23
+
+按量使用给梁子送钱还是比较靠谱的
+用量达到一定阈值的话订阅oa两家就比较划得来了（不用担心合规的话）
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
