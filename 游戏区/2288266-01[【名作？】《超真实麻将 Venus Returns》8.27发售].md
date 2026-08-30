@@ -482,3 +482,11 @@ gba上虽然没有脱衣，但是整体质量还是不错的
 
 动画动作做的还有点意思，但是建模什么的就很小日本水平了。希望能再出几个角色。
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 43#       发表于 2026-8-30 23:12
+
+TLOU2吹上天的脱衣服居然也被这游戏实现了，illusion恐怖如斯<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

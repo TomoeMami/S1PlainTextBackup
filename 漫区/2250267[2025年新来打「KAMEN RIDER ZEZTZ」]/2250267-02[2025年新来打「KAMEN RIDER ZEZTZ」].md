@@ -250,3 +250,33 @@ b part是制作组才想起来特工题材临时整出来的吗，感观好割�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后期剧本没什么内容了，我也感觉把四区放前面踢死给牢三发个四合一骑士当boss比较带感，不过后期反复横跳水剧情也是传统
 
+
+*****
+
+####  Saxk  
+##### 2240#       发表于 2026-8-30 23:07
+
+现在的特摄不如演50集过家家算了
+
+
+*****
+
+####  浅川雏羽  
+##### 2241#       发表于 2026-8-30 23:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70173030&amp;ptid=2250267" target="_blank">Saxk 发表于 2026-8-30 23:07</a>
+现在的特摄不如演50集过家家算了</blockquote>
+你要找的是不是：蒙面超人gotchard<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  恶意之刃  
+##### 2242#       发表于 2026-8-30 23:10
+
+ 本帖最后由 恶意之刃 于 2026-8-30 23:14 编辑 
+
+按漫区评分给个+0吧，毕竟开局一二骑演员不够帅我就不看好给个-2开局的（<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在没有太大影响观感地水完一年也不容易。虽然说广告片，还是长篇广告片且看且珍惜吧，隔壁二次元载体的打牌王和宝可梦，甚至战队（？）都收摊了，每周能给老登一个习惯性收看未知的舞台的机会不多了。不过反正不可能重铸平成那种严肃叙事的荣光了，东映不拍了或者像战队那样搞新ip玩过家家我也支持，别毁来打了
+

@@ -177,3 +177,11 @@ gta6也是22年说在做了吧
 
 什么时候上NS2<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mimiced  
+##### 941#       发表于 2026-8-30 23:06
+
+话说除了美术需要多点功夫，是不是现在重置老游戏，个人用ai真的可以手搓一个出来。
+
