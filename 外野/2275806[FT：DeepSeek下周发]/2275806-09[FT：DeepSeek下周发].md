@@ -912,3 +912,24 @@ qwen 3.8 flash和powershell 5各种打架，要把主播气死了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">我真要力竭了，这v4f怎么回事，之前还挺正常的，怎么现在又开始雷霆大思考了，动不动就等等然后开始一顿瞎分析，本来没那么火大的看到他的雷霆思考链我就想弄死他
 
+
+*****
+
+####  城北无尘  
+##### 11927#       发表于 2026-8-30 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70171938&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-8-30 19:16</a>
+
+用了一个周末的zcode flash 觉得还行，刚刚问了下豆包，说api 的5.3flash按照10000积分算token也就3～7块钱 ...</blockquote>
+不太可能吧118的plan只有10000积分/周，一个月大概四周，至少plan不会比api贵的
+
+*****
+
+####  tillnight  
+##### 11928#       发表于 2026-8-30 22:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70172763&amp;ptid=2275806" target="_blank">城北无尘 发表于 2026-8-30 22:20</a>
+
+不太可能吧118的plan只有10000积分/周，大概四周，至少plan不会比api贵的</blockquote>
+不好意思，按现在的优惠价，只用5.3f，API比任何档次的订阅都要更便宜。就是这么幽默。
+

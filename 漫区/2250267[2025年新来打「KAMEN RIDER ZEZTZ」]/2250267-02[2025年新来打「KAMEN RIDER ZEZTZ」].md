@@ -242,3 +242,11 @@
 
 b part是制作组才想起来特工题材临时整出来的吗，感观好割裂，不过8号萌音妹可爱，原谅了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蓝莲哈  
+##### 2239#       发表于 2026-8-30 22:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后期剧本没什么内容了，我也感觉把四区放前面踢死给牢三发个四合一骑士当boss比较带感，不过后期反复横跳水剧情也是传统
+
