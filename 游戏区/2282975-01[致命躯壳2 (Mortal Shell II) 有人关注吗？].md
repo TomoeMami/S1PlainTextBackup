@@ -1729,3 +1729,14 @@ FF16闪光灯我都还好
 
 —— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  fcssnake  
+##### 163#       发表于 2026-8-30 13:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70170233&amp;ptid=2282975" target="_blank">我就再氪一单 发表于 2026-8-30 11:14</a>
+
+我昨天还尝试过ce改余露石核心，发现找得到地址但有保护，你改了也没用这制作组怎么心思和精力都放在这种斗 ...</blockquote>
+有用的，先存档再读档回来就有了，风灵月影改魂改钱都得这么做<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
