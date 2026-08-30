@@ -53,3 +53,11 @@ no，竟然还要等1年
 
 可以埋了，这就是角川层层外包的实力呀<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jinuzuktII  
+##### 928#       发表于 2026-8-30 08:27
+
+gta6 都要出了<img src="https://static.stage1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
