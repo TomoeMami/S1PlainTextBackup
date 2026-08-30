@@ -773,3 +773,13 @@ plan里故意给flash模型提价了，本来应该 ...</blockquote>
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  cscbzcbz  
+##### 11913#       发表于 2026-8-30 20:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70172108&amp;ptid=2275806" target="_blank">squallx 发表于 2026-8-30 20:05</a>
+最近最性价比的是疯狂重置的GPT和灰产最爱的哈基米， supergrok有低价区33刀左右3个月的折扣 但是额度算 ...</blockquote>
+国外这两个有合规问题只能下班悄悄用，所以基本不考虑了。重置额度属于可遇不可求，这次碰上了运气好，下次指不定能不能碰上，有点运气成分<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
