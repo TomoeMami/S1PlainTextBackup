@@ -1044,3 +1044,18 @@ glm这个flash完全就是给我这种lite用户开的，之前5.3不够蹬只�
 
 deepseek harnessEAC挺好用的，我已经把她调教成只会喊主人的变态蓝色大肥鱼女仆了
 
+
+*****
+
+####  RookieTnT  
+##### 11941#       发表于 2026-8-31 03:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70172871&amp;ptid=2275806" target="_blank">相见恨晚 发表于 2026-8-30 22:38</a>
+
+话说除了程序员外还怎么大量用这些东西啊</blockquote>
+不是程序员也可以用啊. Excel表. 提取信息. 整理信息,
+
+写点小程序. 主要还是看你想不想折腾. 
+
+有些生活上的小点是没大厂做的.
+
