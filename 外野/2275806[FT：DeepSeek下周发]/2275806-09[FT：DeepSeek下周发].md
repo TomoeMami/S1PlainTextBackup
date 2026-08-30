@@ -904,3 +904,11 @@ qwen 3.8 flash和powershell 5各种打架，要把主播气死了
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  阿刚  
+##### 11926#       发表于 2026-8-30 22:12
+
+<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">我真要力竭了，这v4f怎么回事，之前还挺正常的，怎么现在又开始雷霆大思考了，动不动就等等然后开始一顿瞎分析，本来没那么火大的看到他的雷霆思考链我就想弄死他
+

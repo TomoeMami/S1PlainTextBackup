@@ -104,3 +104,20 @@
 
 桀桀，早该四四辣
 
+
+*****
+
+####  天风绯炎  
+##### 763#       发表于 2026-8-30 22:11
+
+只能说观感极差，选择了最差的方式让京退场<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  丹德里恩  
+##### 764#       发表于 2026-8-30 22:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">强行让金星以继续拉仇恨的方式干死了京哥，之后要怎么办呢
+
+悟空兽能一打三，还有白袍和新土星、水星，我方增援....除了之前单元回的npc们就只剩战策三小只了吧，加起来打得过一个究极体吗
+
