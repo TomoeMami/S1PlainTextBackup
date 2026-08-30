@@ -45,3 +45,22 @@
 
 两倍的狮子兽
 
+
+*****
+
+####  粉儿alice  
+##### 756#       发表于 2026-8-30 16:02
+
+京断手 和狮子有关的都逃不大便当的命<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+守宫兽究极体月蚀斗篷兽4月就出了 现在正片还是没有影子 剩下两位究极体也别谈了
+现在这样子比df还糟糕
+
+*****
+
+####  6030sylar  
+##### 757#       发表于 2026-8-30 16:02
+
+播之前我就说一脸死相
+
+—— 来自 OnePlus PKG110, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
