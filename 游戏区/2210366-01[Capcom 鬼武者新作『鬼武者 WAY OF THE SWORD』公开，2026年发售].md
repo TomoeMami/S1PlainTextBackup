@@ -1653,3 +1653,25 @@ NS2 底座模式 打大肥猪 开阔场景感觉只有个位数帧数、、、
 
 急急急<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  flyingover  
+##### 854#       发表于 2026-8-31 01:00
+
+demo打一会儿老是卡住崩溃是什么原因啊，调低了各种画质，其他更吃配置的游戏都不这样
+
+*****
+
+####  巨魔已被忠诚  
+##### 855#       发表于 2026-8-31 01:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70169448&amp;ptid=2210366" target="_blank">kuarwbwe 发表于 2026-8-30 02:37</a>
+
+看巴哈的前瞻游戏是有图鉴的，幻魔图鉴一共23种幻魔。像初始小兵一目笠，一共有持刀、盾和弓箭三种，这三种 ...</blockquote>
+佐佐木不止打一次，应该还有强化版和鬼化版<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+怪物数量可以参考鬼泣5、识质存在……后半应该还有换皮AI的魔化版本。
+
+按卡表的日常卡经费，和现在的中台开发策略（复用人员开发关卡）20小时应该撑不起来。
+
