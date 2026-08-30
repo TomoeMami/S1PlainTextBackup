@@ -414,12 +414,12 @@
     "update": false
   },
   "2086469": {
-    "totalreply": 1433,
+    "totalreply": 1434,
     "title": "[搭个专楼来聊聊 PC 掌机吧 - Steam Deck ／ Ayaneo ／ GPD ／ OXP ／ Aokzoe]",
     "newtitle": "[搭个专楼来聊聊 PC 掌机吧 - SD ／ ROG ／ Ayaneo ／ GPD ／ OXP ／ Aokzoe]",
-    "lastedit": 1771153932,
+    "lastedit": 1788081365,
     "category": "游戏区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2087276": {
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 46210,
+    "totalreply": 46211,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》8.20 万念证心 一剑清平]",
-    "lastedit": 1788079807,
+    "lastedit": 1788081485,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 21116,
+    "totalreply": 21117,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「雪凇幽梦」版本即将开放]",
-    "lastedit": 1788074885,
+    "lastedit": 1788081125,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12573,10 +12573,10 @@
     "update": false
   },
   "2271276": {
-    "totalreply": 9005,
+    "totalreply": 9008,
     "title": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
     "newtitle": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
-    "lastedit": 1787962805,
+    "lastedit": 1788081486,
     "category": "外野",
     "active": true,
     "update": false
@@ -13077,10 +13077,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 33691,
+    "totalreply": 33692,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1788076806,
+    "lastedit": 1788081005,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13149,10 +13149,10 @@
     "update": false
   },
   "2210366": {
-    "totalreply": 838,
+    "totalreply": 839,
     "title": "[Capcom 鬼武者新作『鬼武者 WAY OF THE SWORD』公开，2026年发售]",
     "newtitle": "[Capcom 鬼武者新作『鬼武者 WAY OF THE SWORD』公开，2026年9月4日发售]",
-    "lastedit": 1788072844,
+    "lastedit": 1788081365,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17415,10 +17415,10 @@
     "update": false
   },
   "2288616": {
-    "totalreply": 87,
+    "totalreply": 88,
     "title": "[新出的星战游戏不错，xcom2新代餐]",
     "newtitle": "[新出的星战游戏不错，xcom2新代餐]",
-    "lastedit": 1788070685,
+    "lastedit": 1788081005,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17928,10 +17928,10 @@
     "update": false
   },
   "2288787": {
-    "totalreply": 71,
+    "totalreply": 72,
     "title": "[未来5年平均通胀是多少？]",
     "newtitle": "[未来5年平均通胀是多少？]",
-    "lastedit": 1788078006,
+    "lastedit": 1788081126,
     "category": "外野",
     "active": true,
     "update": false
@@ -17991,10 +17991,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 173,
+    "totalreply": 183,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1788080525,
+    "lastedit": 1788081486,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -18054,10 +18054,10 @@
     "update": false
   },
   "2288811": {
-    "totalreply": 46,
+    "totalreply": 47,
     "title": "[40岁了]",
     "newtitle": "[40岁了]",
-    "lastedit": 1788076685,
+    "lastedit": 1788081485,
     "category": "外野",
     "active": true,
     "update": false
@@ -18077,6 +18077,15 @@
     "newtitle": "[偶像活动新作『偶活学园』正式公开，直播+集卡【已开播】]",
     "lastedit": 1788078608,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2288582": {
+    "totalreply": 41,
+    "title": "[这张图发给10年前的人，会被说做白日梦吧]",
+    "newtitle": "[这张图发给10年前的人，会被说做白日梦吧]",
+    "lastedit": 1788081486,
+    "category": "外野",
     "active": true,
     "update": false
   }
