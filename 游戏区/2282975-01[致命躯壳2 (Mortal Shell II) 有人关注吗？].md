@@ -1740,3 +1740,26 @@ FF16闪光灯我都还好
 我昨天还尝试过ce改余露石核心，发现找得到地址但有保护，你改了也没用这制作组怎么心思和精力都放在这种斗 ...</blockquote>
 有用的，先存档再读档回来就有了，风灵月影改魂改钱都得这么做<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我就再氪一单  
+##### 164#       发表于 2026-8-30 16:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70170790&amp;ptid=2282975" target="_blank">fcssnake 发表于 2026-8-30 13:57</a>
+有用的，先存档再读档回来就有了，风灵月影改魂改钱都得这么做</blockquote>
+还真是<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">不会强化材料楔形石也是要sl才能生效吧
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  我就再氪一单  
+##### 165#       发表于 2026-8-30 16:23
+
+这游戏，真是用心做解谜，用脚做战斗
+进地牢遇到解密我还都挺饶有兴趣愿意琢磨琢磨的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+我现在怀疑，这游戏跟圣歌差不多，吹牛和企划做得太过庞大，导致落地困难，拿了发行商最大的一笔投资，结果钱花了，啥都没做出来。发行商那边来了个高人，效仿BioWare做了个钢铁侠demo哄ea老总一样做了那个试玩部分，所以打完林中女士就全暴露了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
