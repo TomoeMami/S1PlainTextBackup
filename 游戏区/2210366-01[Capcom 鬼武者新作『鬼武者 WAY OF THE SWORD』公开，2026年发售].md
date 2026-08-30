@@ -1559,3 +1559,11 @@ PS5数字版500+港，NS2卡带300，向差价屈服了<img src="https://static.
 PS5数字版500+港，NS2卡带300，向差价屈服了steam也才298，主机税也太高了，NS2数字版也是500+，可惜我的PS ...</blockquote>
 你是最早的无光驱版？如果是 slim 版就建议还是买个光驱<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">目前盘已经跌到270了，光驱后面出掉算差价不会亏的
 
+
+*****
+
+####  djw1984  
+##### 843#       发表于 2026-8-30 18:37
+
+PS5光盘265，9月3日发货，而且发的是日邮
+

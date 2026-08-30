@@ -87,3 +87,13 @@ gta6 都要出了<img src="https://static.stage1st.com/image/smiley/face2017/039
 
 这战斗画面不就是rpgmaker画质加强版吗，期待不要太高吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wzm96816  
+##### 932#       发表于 2026-8-30 18:40
+
+行吧，既然是纯追梦作，当年pv出的时候人都没招，也不说他啥了。
+
+明年能吃就行。
+
