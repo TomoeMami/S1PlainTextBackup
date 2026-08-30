@@ -40,3 +40,15 @@
 
 从头梳理一遍就烂到家的剧情，只能说爱高桥的还是太多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 2217#       发表于 2026-8-30 12:56
+
+感觉code和梦魇互相换下位置来写更好
+忘却有战力但没啥压迫感更像个乐子人，当中boss可能更好发挥
+3号虽然拉胯一点但更有恶人相，补点战力当最终boss更有看点<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+

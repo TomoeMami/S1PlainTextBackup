@@ -1,0 +1,77 @@
+﻿
+*****
+
+####  狸狸狐  
+##### 2049#       发表于 2026-8-15 00:22
+
+<img src="https://img.stage1st.com/forum/202608/15/002129w2ahaaa8xw3eafsa.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5679.png</strong> (66.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-15 00:21 上传
+
+<img src="https://img.stage1st.com/forum/202608/15/002129fnjdxcemdskg8wnb.jpg" referrerpolicy="no-referrer">
+
+<strong>screenshot_20260815_001317_yylx.danmaku.bili.jpg</strong> (83.49 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2026-8-15 00:21 上传
+
+隔壁xb2ns2e的一些信息，可能对后续xbg的开发是一种暗示。epd负责人小泉是这次的高级制作人。之前不是他。
+
+*****
+
+####  佛罗伦萨  
+##### 2050#       发表于 2026-8-15 00:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老任现在的习惯是“失联式宣发”，当一个作品公布第一个PV后，它就会彻底失踪。直到发售前两个月，公布定档pv，也就是pv2。最后在发售前一个月左右，公布六分钟介绍，也就是pv3.
+
+*****
+
+####  JOJOROY  
+##### 2051#       发表于 2026-8-15 07:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70078253&amp;ptid=2283074" target="_blank">狸狸狐 发表于 2026-8-15 00:22</a>
+隔壁xb2ns2e的一些信息，可能对后续xbg的开发是一种暗示。epd负责人小泉是这次的高级制作人。之前不是 ...</blockquote>
+小泉应该是Switch 2 第一方游戏的统筹一把手了，现在直面会主持基本都是小泉了，高桥去年3月以来就没主持过了。
+
+*****
+
+####  不再乱发炎了  
+##### 2052#       发表于 2026-8-15 08:28
+
+那个其实是几个大领导挂名的系统化，原版挂名还没系统化，执行制作人挂的是杉浦（monolith侧）和高桥伸也（任天堂侧），xb3之后就是现在的情况，这俩只挂在综合制作人下，而执行制作人和过去一样只能放任天堂社长的大名，现在就是古川。小泉现在是epd的部长，挂个高级制作人的名义很正常。
+
+*****
+
+####  JOJOROY  
+##### 2053#       发表于 2026-8-15 08:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70079012&amp;ptid=2283074" target="_blank">不再乱发炎了 发表于 2026-8-15 08:28</a>
+
+那个其实是几个大领导挂名的系统化，原版挂名还没系统化，执行制作人挂的是杉浦（monolith侧）和高桥伸也（ ...</blockquote>
+小泉23年到24年间从原本的企画制作本部 副本部長变成了企画制作本部長，本部长就是高桥伸也15年以来的职位，高桥伸也同期也升为企画制作本部 統括本部長，小泉出现在这里估计也是因为他升职了而NS2E的立项是在他成为本部长后必须要给名字
+
+*****
+
+####  UltramanPain  
+##### 2054#       发表于 2026-8-15 11:35
+
+要素察觉<img src="https://p.sda1.dev/34/af4719cd1ff8535d6fa3171eba2eacc5/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  richardkisser  
+##### 2055#       发表于 2026-8-30 13:03
+
+xbg pv我发现所有的镜头里，草和树都在晃动，感觉是在凸显风的存在，风肯定是环境叙事里重要的一环，就跟xb3的光影一样
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
