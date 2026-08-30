@@ -663,3 +663,27 @@ b站一堆人假装外国人在x上贴ds灰测的demo视频，然后说是GPT As
 
 2026-8-30 16:09 上传
 
+
+*****
+
+####  tonyunreal  
+##### 11904#       发表于 2026-8-30 16:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70166790&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-29 14:58</a>
+OpenAI和Cursor解约，说自家AI不能给马斯克用（Cursor被SpaceX收购了）
+
+a/ 联合创始人公开站Cursor</blockquote>
+昨天的美国队内战截图
+
+<img src="https://p.sda1.dev/34/feaae93184a08991127898e96b6deb5f/1000048878.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/34/132715e2c6e46ef3a292f0803678e15b/1000048879.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/34/892c733e9feac7c28547809456c3dc81/1000048880.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/34/101885bab922553d9ee58d53d4f0fc06/1000048881.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/34/aec11b534ddc244139f14a93393578d7/1000048882.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
