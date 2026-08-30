@@ -165,3 +165,30 @@
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  JOHNCHCHAN  
+##### 2230#       发表于 2026-8-30 15:24
+
+说玩具广告是让放低期待，令和几作看下来平均质量如何还心中没数么，想追番感受好一点那就只能放低期待了
+
+我从不半路开香槟，也不介意别人开香槟，看片就看片，不要粉圈入脑
+
+*****
+
+####  zakki  
+##### 2231#       发表于 2026-8-30 15:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70170951&amp;ptid=2250267" target="_blank">一个陆仁贾 发表于 2026-8-30 14:48</a>
+那玩意不是被忘却当buff吞了吗？剧里人视角丢了找不到又没再发生什么，这东西就随它去吧。
+整部剧里有问 ...</blockquote>
+关键剧组都无人在意啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 2232#       发表于 2026-8-30 15:29
+
+我觉得再爱zzz和高桥的人只要再看一遍op画面，看看op歌词那句“重放，我不会重蹈覆辙”，再结合之前制作人说的op里全是伏笔，不是拍的玩的那句怕是都绷不住吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

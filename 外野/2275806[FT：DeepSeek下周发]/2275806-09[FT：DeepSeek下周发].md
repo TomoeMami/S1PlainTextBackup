@@ -581,3 +581,25 @@ Hy4免费额度用完了，试了下付费的，同一个任务基本是0731的5
 既然Hy4站起来了，那可以发表情包了</blockquote>
 杨 唐 梁 姚，四个二声，三个áng韵母。要想ai做得好，姓氏有说法。
 
+
+*****
+
+####  蛋黄酱Release  
+##### 11898#       发表于 2026-8-30 15:31
+
+hy4感觉理念出了问题，参数量不上不下的，智力一般般，价格和速度都让人不满意。当然也可能是腾讯给后续超大模型做技术铺垫的试验品
+glm5.3f用下来感觉更适合低缓存命中的任务使用<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 11899#       发表于 2026-8-30 15:32
+
+ 本帖最后由 tonyunreal 于 2026-8-30 15:33 编辑 
+
+太抽象了
+
+b站一堆人假装外国人在x上贴ds灰测的demo视频，然后说是GPT Astra……
+
+<img src="https://p.sda1.dev/34/e44aed5890731e48c0bc5b4c0309d7dd/ds-astra.jpg" referrerpolicy="no-referrer">
+
