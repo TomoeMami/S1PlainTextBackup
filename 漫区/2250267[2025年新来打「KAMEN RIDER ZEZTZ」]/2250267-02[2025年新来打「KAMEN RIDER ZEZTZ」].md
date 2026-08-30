@@ -143,3 +143,25 @@
 
 都说是玩具广告了那干脆吹的时候香槟也别开了，广告嘛有什么好吹的，别到后面不行了才想起来用广告来挽尊了，也就这部没烂透，要是像天启四骑士那样的烂法谁还管你是不是广告片早就踩进地心里了
 
+
+*****
+
+####  一个陆仁贾  
+##### 2228#       发表于 2026-8-30 14:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70170590&amp;ptid=2250267" target="_blank">zakki 发表于 2026-8-30 12:53</a>
+从头梳理一遍就烂到家的剧情，只能说爱高桥的还是太多了就问一个问题，索默尼亚胶囊自从丢了之后，有人在意 ...</blockquote>
+那玩意不是被忘却当buff吞了吗？剧里人视角丢了找不到又没再发生什么，这东西就随它去吧。
+整部剧里有问题的地方多了去了，这小问题算什么问题<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  一个陆仁贾  
+##### 2229#       发表于 2026-8-30 14:49
+
+最后两集我连着看的，虽然结局前不少人猜测莫是留在梦境的，但是真看到这么唐突不解释的留在梦境还是有一种“你在干什么”的感觉
+
+—— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
