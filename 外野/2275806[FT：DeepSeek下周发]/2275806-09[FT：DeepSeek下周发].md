@@ -832,3 +832,33 @@ qwen 3.8 flash和powershell 5各种打架，要把主播气死了
  ...</blockquote>
 8月中上旬没啥营销节点他就不怎么 reset 了。不过这周大概有 GPT6 大概还是会重置一下。
 
+
+*****
+
+####  王兰花秀丽  
+##### 11919#       发表于 2026-8-30 21:38
+
+话说之前不是有舅舅说ds八月还有动作吗，这就没了吗，难道又要沉寂几个月了吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+
+*****
+
+####  qwased  
+##### 11920#       发表于 2026-8-30 21:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70172558&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-30 21:38</a>
+
+话说之前不是有舅舅说ds八月还有动作吗，这就没了吗，难道又要沉寂几个月了吗    Re:Source ...</blockquote>
+不是灰测了两天秀肌肉吗
+
+
+*****
+
+####  Sacross  
+##### 11921#       发表于 2026-8-30 21:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70172558&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-30 21:38</a>
+
+话说之前不是有舅舅说ds八月还有动作吗，这就没了吗，难道又要沉寂几个月了吗    Re:Source ...</blockquote>
+梁历的8月可能不止31天的毕竟
+
