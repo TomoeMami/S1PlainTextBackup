@@ -1807,3 +1807,14 @@ PDD发力了，需要V3 300-50卷，不过是香港直邮，现在的香港直�
 
 有消息说游戏泄露了，还是媒体评测人员泄露的？
 
+
+*****
+
+####  thecatnie  
+##### 3124#       发表于 2026-8-30 12:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70170271&amp;ptid=2261859" target="_blank">xwr 发表于 2026-8-30 11:26</a>
+
+有消息说游戏泄露了，还是媒体评测人员泄露的？</blockquote>
+说是有个评测人员喝大了，在网上和人吹牛逼，漏了一些消息出来
+
