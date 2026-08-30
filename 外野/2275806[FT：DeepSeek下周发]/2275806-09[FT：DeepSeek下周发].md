@@ -749,3 +749,27 @@ plan里故意给flash模型提价了，本来应该 ...</blockquote>
 趁梁文谷的时候，把之前一整个月的官方api用量导出给D老师pro分析了一下。他告诉根据我的数据，如果不考虑各种折扣，按正式价格算，最佳策略是文峰时用qwen3.8 flash，文谷时用v4flash，比峰谷都用v4flash可以省80元/月。而用glm是5.3flash是最贵的，比峰谷都用v4flash还要多花200多元/月不推荐<img src="https://static.stage1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 各位把自己数据导出来试试，根据自己输入输出用量，缓存命中率让D老师分析合适的策略，感觉还挺靠谱。就是检查一下各个模型单价对不对，避免幻觉
 
+
+*****
+
+####  squallx  
+##### 11911#       发表于 2026-8-30 20:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70172058&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-30 19:50</a>
+
+趁梁文谷的时候，把之前一整个月的官方api用量导出给D老师pro分析了一下。他告诉根据我的数据，如果不考虑 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">最近最性价比的是疯狂重置的GPT和灰产最爱的哈基米， supergrok有低价区33刀左右3个月的折扣 但是额度算法比较迷惑，优点是有图片和视频模型
+
+*****
+
+####  tonyunreal  
+##### 11912#       发表于 2026-8-30 20:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70172058&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-30 19:50</a>
+趁梁文谷的时候，把之前一整个月的官方api用量导出给D老师pro分析了一下。他告诉根据我的数据，如果不考虑 ...</blockquote>
+是这个道理，不过还要算上模型速度因素，还有成本是时间单位还是任务单位
+我想大多数人不是任务完成数敏感，因此ds有四倍速度就有四倍消耗量，速度慢的模型省钱
+而且glm实战中走的弯路少一些
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

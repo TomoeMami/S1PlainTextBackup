@@ -130,3 +130,18 @@ gta6也是22年说在做了吧
 
 这下超越gta了（指花的时间）<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Markorca  
+##### 936#       发表于 2026-8-30 20:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70169827&amp;ptid=2093296" target="_blank">forestlimit 发表于 2026-8-30 08:45</a>
+
+和外包有啥关系
+
+就是天角内部有人想圆梦拉了几个粉丝做游戏而已
+
+以为是拿了日本角川钱的什么商业大项目吗？ ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估摸着在现在的独游里都算规模小的
+
