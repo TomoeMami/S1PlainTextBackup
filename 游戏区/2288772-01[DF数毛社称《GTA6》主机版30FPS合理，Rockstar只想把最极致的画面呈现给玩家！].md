@@ -669,3 +669,11 @@ YouTube video views will be stored in your YouTube History, and your data will b
 不排除PC版GTAVI直接砍掉20%画面/动画特性， ...</blockquote>
 自动索敌到4090是不是有点招笑了，ps5pro&gt;4090打出来你笑没笑吧
 
+
+*****
+
+####  泰坦失足  
+##### 65#       发表于 2026-8-30 11:18
+
+主要是PS5Pro现在不含光驱900刀, 国内价格也飞涨. 结果一看还是30帧. 要是和PS4 Pro一样, Slim版降价, Pro买首发标准版的价格, 那都没人吵. 18年时候 PS4 pro标准定价才400刀, 更别说打折促销还能更低了.
+
