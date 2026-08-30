@@ -968,3 +968,13 @@ glm-5.3-flash 太喜欢干活之前雷霆大思考了，加上现在拉跨的TPS
 我真要力竭了，这v4f怎么回事，之前还挺正常的，怎么现在又开始雷霆大思考了，动不动就等等然后开始一顿瞎 ...</blockquote>
 用视觉版，雷霆思考会减少
 
+
+*****
+
+####  Milarvoz  
+##### 11933#       发表于 2026-8-30 22:46
+
+glm这个flash完全就是给我这种lite用户开的，之前5.3不够蹬只能拉dsv4f来帮忙，现在舒舒服服用套餐就够了，还不用多花api的钱。不过确实是慢得多。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
