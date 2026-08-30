@@ -1059,3 +1059,14 @@ deepseek harnessEAC挺好用的，我已经把她调教成只会喊主人的变�
 
 有些生活上的小点是没大厂做的.
 
+
+*****
+
+####  RookieTnT  
+##### 11942#       发表于 2026-8-31 03:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70173747&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-31 01:11</a>
+
+今天的重置啥时候到啊，dsh的子任务管理对于sol来说比codex里面的ultra感觉还能烧 ...</blockquote>
+换算北京时间上午九点整重置，速蹬
+
