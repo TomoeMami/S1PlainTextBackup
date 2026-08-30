@@ -200,3 +200,11 @@
 
 应该是Gotchard 以来完播率最高的蒙面超人，所以楼上几个高桥悠也厨厨才能看完并点评<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大耳兽  
+##### 2234#       发表于 2026-8-30 17:01
+
+我一开始还以为会像ea01极狐那样最终塞个骑士当boss，结果那个索米尼亚胶囊说没就没啊。
+
