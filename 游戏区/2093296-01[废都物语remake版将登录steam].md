@@ -107,3 +107,13 @@ gta6 都要出了<img src="https://static.stage1st.com/image/smiley/face2017/039
 
 我唯一不能接受的是最后成品不如原版
 
+
+*****
+
+####  Flechette  
+##### 934#       发表于 2026-8-30 19:03
+
+封测的时候感觉玩到的部分已经做过QA了，我还以为后续内容也已经做的差不多了
+
+现在看来，可能真实进度没比端上来给我们玩的那部分超前多少<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
