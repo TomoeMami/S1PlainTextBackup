@@ -1826,3 +1826,24 @@ PDD发力了，需要V3 300-50卷，不过是香港直邮，现在的香港直�
 
 pdd补贴最近能刷到320+的日版，不想折腾的这个价格也可以了
 
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 3126#       发表于 2026-8-30 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70170499&amp;ptid=2261859" target="_blank">Acatv 发表于 2026-8-30 12:32</a>
+
+pdd补贴最近能刷到320+的日版，不想折腾的这个价格也可以了</blockquote>
+320是什么神价，我只看到377几秒就没了
+
+
+*****
+
+####  bbluekid  
+##### 3127#       发表于 2026-8-30 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70170584&amp;ptid=2261859" target="_blank">龘䶛䨻䎱㸞蚮䡶 发表于 2026-8-30 12:50</a>
+320是什么神价，我只看到377几秒就没了</blockquote>
+377 然后用 v3 的减 50 券吧
+
