@@ -862,3 +862,25 @@ qwen 3.8 flash和powershell 5各种打架，要把主播气死了
 话说之前不是有舅舅说ds八月还有动作吗，这就没了吗，难道又要沉寂几个月了吗    Re:Source ...</blockquote>
 梁历的8月可能不止31天的毕竟
 
+
+*****
+
+####  zhongjie  
+##### 11922#       发表于 2026-8-30 21:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70172256&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-30 20:39</a>
+
+周末连续重置了两次，自己拿来玩当然还行，但是你如果真的拿来干活，你再想想周末重置两次有没有什么用。
+
+ ...</blockquote>
+这个无所谓，大家都是按月订阅的
+
+*****
+
+####  startraveller  
+##### 11923#       发表于 2026-8-30 21:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70172558&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-30 21:38</a>
+话说之前不是有舅舅说ds八月还有动作吗，这就没了吗，难道又要沉寂几个月了吗    Re:Source ...</blockquote>
+现在推上的外国99党都在说9月有 V5，估计也是看灰测蒙的
+

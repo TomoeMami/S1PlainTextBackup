@@ -96,3 +96,11 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这么多笔墨刻画京哥，让他吃瘪也就算了怎么还要删号的
 
+
+*****
+
+####  格雷殿下  
+##### 762#       发表于 2026-8-30 21:50
+
+桀桀，早该四四辣
+
