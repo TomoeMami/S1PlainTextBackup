@@ -107,3 +107,13 @@
 看完奥特塞灵机一动抽出了姑姑，算什么水平
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 48170#       发表于 2026-8-30 08:44
+
+发现问题了，三破所长的三技能和诺克亚蕾冲突，才少了一大块伤害
+
+换个拐了
+
