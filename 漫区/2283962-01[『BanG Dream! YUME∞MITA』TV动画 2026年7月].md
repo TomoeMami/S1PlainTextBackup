@@ -3033,3 +3033,29 @@ yuno其实之前多少也算看透自己现在在梦限大的几个成员，所�
 
 尤其是，在MyGO已经走通了人际关系困境这条路之后，还整外部困境，只能说是倒退
 
+
+*****
+
+####  aptx8285144  
+##### 396#       发表于 2026-8-30 22:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70172783&amp;ptid=2283962" target="_blank">玖羽 发表于 2026-8-30 22:23</a>
+
+乐队番的外部困境可以分为三种：
+
+1）客观条件带来的困境，例如母亲生病不能继续搞乐队，一般是通过成员互 ...</blockquote>
+不过历史上也有NANA这种偏社会向的音乐番<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 玖羽 + 1那是另一回事了
+
+查看全部评分
+

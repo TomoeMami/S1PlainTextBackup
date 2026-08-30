@@ -933,3 +933,19 @@ qwen 3.8 flash和powershell 5各种打架，要把主播气死了
 不太可能吧118的plan只有10000积分/周，大概四周，至少plan不会比api贵的</blockquote>
 不好意思，按现在的优惠价，只用5.3f，API比任何档次的订阅都要更便宜。就是这么幽默。
 
+
+*****
+
+####  Azcarlo  
+##### 11929#       发表于 2026-8-30 22:28
+
+glm-5.3-flash 太喜欢干活之前雷霆大思考了，加上现在拉跨的TPS也太慢了<img src="https://static.stage1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  舞以  
+##### 11930#       发表于 2026-8-30 22:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梁叔叔第一方的120toks/s的速度真的太爽了
+
