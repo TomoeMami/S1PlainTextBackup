@@ -1202,7 +1202,7 @@
     "newtitle": "[ブルーアーカイブ 综合讨论]",
     "lastedit": 1787904365,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1471785": {
@@ -2880,10 +2880,10 @@
     "update": false
   },
   "1477016": {
-    "totalreply": 8530,
+    "totalreply": 8531,
     "title": "[一拳超人.本回完全原作剧情]",
     "newtitle": "[一拳超人.原作更新，小杰史诗级加强？]",
-    "lastedit": 1788108127,
+    "lastedit": 1788163328,
     "category": "漫区",
     "active": true,
     "update": false
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 46249,
+    "totalreply": 46251,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》8.20 万念证心 一剑清平]",
-    "lastedit": 1788161526,
+    "lastedit": 1788163685,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12024,10 +12024,10 @@
     "update": false
   },
   "2261859": {
-    "totalreply": 3192,
+    "totalreply": 3199,
     "title": "[火纹万紫千红（Fortune's Weave)公开，2026在ns2发售！]",
     "newtitle": "[火纹万紫千红（Fortune's Weave)公开，2026.9.17在ns2发售！／8.4晚22点专场nd]",
-    "lastedit": 1788163087,
+    "lastedit": 1788163685,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12375,10 +12375,10 @@
     "update": false
   },
   "2268704": {
-    "totalreply": 19731,
+    "totalreply": 19732,
     "title": "[日本12月专楼]",
     "newtitle": "[日本专楼7月]",
-    "lastedit": 1788161888,
+    "lastedit": 1788163208,
     "category": "外野",
     "active": true,
     "update": false
@@ -12546,10 +12546,10 @@
     "update": false
   },
   "2268175": {
-    "totalreply": 4508,
+    "totalreply": 4511,
     "title": "[2026年Q娃 ​​​​名侦探Precure]",
     "newtitle": "[2026年Q娃 ​​​​名侦探Precure]",
-    "lastedit": 1788162726,
+    "lastedit": 1788163565,
     "category": "漫区",
     "active": true,
     "update": false
@@ -12573,10 +12573,10 @@
     "update": false
   },
   "2271276": {
-    "totalreply": 9072,
+    "totalreply": 9075,
     "title": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
     "newtitle": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
-    "lastedit": 1788161647,
+    "lastedit": 1788163447,
     "category": "外野",
     "active": true,
     "update": false
@@ -12942,10 +12942,10 @@
     "update": false
   },
   "2275806": {
-    "totalreply": 12002,
+    "totalreply": 12003,
     "title": "[FT：DeepSeek下周发]",
     "newtitle": "[Ox Alpha被认领，GLM-5.3-Flash上线｜大模型讨论专楼]",
-    "lastedit": 1788162489,
+    "lastedit": 1788163209,
     "category": "外野",
     "active": true,
     "update": false
@@ -13077,10 +13077,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 34403,
+    "totalreply": 34415,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1788162965,
+    "lastedit": 1788163565,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13149,10 +13149,10 @@
     "update": false
   },
   "2210366": {
-    "totalreply": 857,
+    "totalreply": 859,
     "title": "[Capcom 鬼武者新作『鬼武者 WAY OF THE SWORD』公开，2026年发售]",
     "newtitle": "[Capcom 鬼武者新作『鬼武者 WAY OF THE SWORD』公开，2026年9月4日发售]",
-    "lastedit": 1788162488,
+    "lastedit": 1788163685,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -13779,10 +13779,10 @@
     "update": false
   },
   "2286986": {
-    "totalreply": 129,
+    "totalreply": 130,
     "title": "[写在无职转生补番之前，有三件意难平的小事]",
     "newtitle": "[写在无职转生补番之前，有三件意难平的小事]",
-    "lastedit": 1788111844,
+    "lastedit": 1788163565,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14251,15 +14251,6 @@
     "title": "[觉得不同的交通工具决定了行动半径。]",
     "newtitle": "[觉得不同的交通工具决定了行动半径。]",
     "lastedit": 1787901366,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2287851": {
-    "totalreply": 59,
-    "title": "[当代大汉奸石平在日本战败投降81周年当日再次参拜靖国神厕]",
-    "newtitle": "[当代大汉奸石平在日本战败投降81周年当日再次参拜靖国神厕]",
-    "lastedit": 1786953969,
     "category": "外野",
     "active": false,
     "update": false
@@ -15327,10 +15318,10 @@
     "update": false
   },
   "2288087": {
-    "totalreply": 107,
+    "totalreply": 108,
     "title": "[坛友们有无明显提高生活品质的好物推荐]",
     "newtitle": "[坛友们有无明显提高生活品质的好物推荐]",
-    "lastedit": 1788155526,
+    "lastedit": 1788163447,
     "category": "外野",
     "active": true,
     "update": false
@@ -16767,10 +16758,10 @@
     "update": false
   },
   "2288578": {
-    "totalreply": 848,
+    "totalreply": 849,
     "title": "[这泥石流太吓人了]",
     "newtitle": "[这泥石流太吓人了]",
-    "lastedit": 1788162846,
+    "lastedit": 1788163209,
     "category": "外野",
     "active": true,
     "update": false
@@ -17388,10 +17379,10 @@
     "update": false
   },
   "2288639": {
-    "totalreply": 77,
+    "totalreply": 79,
     "title": "[最近开荒《装甲核心6》]",
     "newtitle": "[最近开荒《装甲核心6》]",
-    "lastedit": 1788162728,
+    "lastedit": 1788163328,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17478,10 +17469,10 @@
     "update": false
   },
   "2288726": {
-    "totalreply": 172,
+    "totalreply": 174,
     "title": "[DLSS5提前泄露，效果拔群]",
     "newtitle": "[DLSS5提前泄露，效果拔群]",
-    "lastedit": 1788162489,
+    "lastedit": 1788163329,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17658,10 +17649,10 @@
     "update": false
   },
   "2288776": {
-    "totalreply": 62,
+    "totalreply": 64,
     "title": "[凉山支教纪行]",
     "newtitle": "[凉山支教纪行]",
-    "lastedit": 1788157567,
+    "lastedit": 1788163448,
     "category": "外野",
     "active": true,
     "update": false
@@ -17739,10 +17730,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 1241,
+    "totalreply": 1247,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1788163088,
+    "lastedit": 1788163686,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -17847,19 +17838,19 @@
     "update": false
   },
   "2288834": {
-    "totalreply": 125,
+    "totalreply": 128,
     "title": "[这奥德赛不愧是西欧新三国]",
     "newtitle": "[这奥德赛不愧是西欧新三国]",
-    "lastedit": 1788161889,
+    "lastedit": 1788163447,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2288820": {
-    "totalreply": 104,
+    "totalreply": 106,
     "title": "[可以在河谷峡谷小镇里设置一些应急疏散高地吗？]",
     "newtitle": "[可以在河谷峡谷小镇里设置一些应急疏散高地吗？]",
-    "lastedit": 1788162247,
+    "lastedit": 1788163447,
     "category": "外野",
     "active": true,
     "update": false
@@ -17919,10 +17910,10 @@
     "update": false
   },
   "2288796": {
-    "totalreply": 58,
+    "totalreply": 59,
     "title": "[买同型号的新款手机居然还降配置，笑]",
     "newtitle": "[买同型号的新款手机居然还降配置，笑]",
-    "lastedit": 1788162246,
+    "lastedit": 1788163208,
     "category": "外野",
     "active": true,
     "update": false
@@ -17955,10 +17946,10 @@
     "update": false
   },
   "2288867": {
-    "totalreply": 127,
+    "totalreply": 128,
     "title": "[好奇大甜甜在泥潭的声望如何？]",
     "newtitle": "[好奇大甜甜在泥潭的声望如何？]",
-    "lastedit": 1788162488,
+    "lastedit": 1788163208,
     "category": "外野",
     "active": true,
     "update": false
@@ -17982,10 +17973,10 @@
     "update": false
   },
   "2083714": {
-    "totalreply": 190,
+    "totalreply": 191,
     "title": "[Fate／EXTRA Record ，无限期延期，ns／ps／pc]",
     "newtitle": "[Fate／EXTRA Record ，无限期延期，ns／ps／pc]",
-    "lastedit": 1788163087,
+    "lastedit": 1788163328,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -18036,19 +18027,19 @@
     "update": false
   },
   "2288872": {
-    "totalreply": 120,
+    "totalreply": 126,
     "title": "[在知乎怎么现在看到摄入碳水跟看到吸鸦片似的？]",
     "newtitle": "[在知乎怎么现在看到摄入碳水跟看到吸鸦片似的？]",
-    "lastedit": 1788162846,
+    "lastedit": 1788163448,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2288873": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[闲鱼上找到自己丢到的手机 打算去自提对线]",
     "newtitle": "[闲鱼上找到自己丢到的手机 打算去自提对线]",
-    "lastedit": 1788161648,
+    "lastedit": 1788163447,
     "category": "外野",
     "active": true,
     "update": false

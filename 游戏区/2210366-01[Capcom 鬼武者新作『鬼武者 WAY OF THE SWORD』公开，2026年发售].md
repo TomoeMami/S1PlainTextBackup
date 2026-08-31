@@ -1699,3 +1699,30 @@ demo打一会儿老是卡住崩溃是什么原因啊，调低了各种画质，�
 
 20小时左右的流程的话，估计boss数量还是有一定保证的吧
 
+
+*****
+
+####  放大镜  
+##### 858#       发表于 2026-8-31 16:02
+
+ 本帖最后由 放大镜 于 2026-8-31 16:04 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177189&amp;ptid=2210366" target="_blank">JOJO42 发表于 2026-8-31 15:43</a>
+
+20小时左右的流程的话，估计boss数量还是有一定保证的吧</blockquote>
+少了这只，但不知道算不算在第四排里
+[https://www.bilibili.com/video/BV1ap4k6rEyx](https://www.bilibili.com/video/BV1ap4k6rEyx)
+
+从出招看也是留了二次反应时间的
+
+另外看这表格才想起来，酒吞也不应该在幻魔杂记的23大名单里，毕竟这哥们是鬼……
+
+*****
+
+####  汪达  
+##### 859#       发表于 2026-8-31 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177189&amp;ptid=2210366" target="_blank">JOJO42 发表于 2026-8-31 15:43</a>
+
+20小时左右的流程的话，估计boss数量还是有一定保证的吧</blockquote>
+从官网来看这个图里的不是全部BOSS，这几个在官网的分类都是强敌，而怒伐天、百秽这种看起来至少也应该是小BOSS的被归类到了幻魔里，估计是老套路，后期会变成精英怪
+

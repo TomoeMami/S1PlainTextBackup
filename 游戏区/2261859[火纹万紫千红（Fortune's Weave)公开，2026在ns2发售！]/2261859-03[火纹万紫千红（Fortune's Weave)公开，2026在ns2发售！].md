@@ -2578,3 +2578,81 @@ pdd补贴最近能刷到320+的日版，不想折腾的这个价格也可以了<
 
 那人家喷的难道不是你轻浮吗？（甚至轻浮都是装的，什么废物）
 
+
+*****
+
+####  Jabeck  
+##### 3193#       发表于 2026-8-31 15:59
+
+ 本帖最后由 Jabeck 于 2026-8-31 16:01 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177221&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-8-31 15:47</a>
+
+所以你知道是人物设定是经历那你一定要跟我偷换什么概念呢？
+
+出轨行为也可以是男人喜欢女人，喜欢搭讪也 ...</blockquote>
+到底谁偷换概念觉得喜好是女人是性取向用不着写出来。。。。
+
+你说的这些可不一定算喜欢女人，喜欢搭讪出轨可不能简单归于喜欢女人，有时候只是找泄欲工具或者只是喜好跟女人聊天。就像喜欢嫖的那个喜好你觉得就一定包含女人吗？
+
+就像海贼王的山治也喜欢女人，猥琐的时候真猥琐，尊重的时候也是真尊重。实际剧情还不知道这个喜好女人是什么情况。
+
+问题在于一个男的，喜欢是女人是多大的罪过吗？ 女的喜欢帅哥跟年上就是没问题，但男的喜欢女的就是罪过？
+
+*****
+
+####  Sai!  
+##### 3194#       发表于 2026-8-31 16:00
+
+闹麻了屁大点事也要吵
+
+*****
+
+####  mai6696  
+##### 3195#       发表于 2026-8-31 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177303&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-31 15:59</a>
+
+到底谁偷换概念觉得喜好是女人是性取向用不着写出来。。。。
+
+你说的这些可不一定算喜欢女人，喜欢搭讪出 ...</blockquote>
+所以我问你了其他人不写难道是单身主义吗？
+
+
+*****
+
+####  freedom12  
+##### 3196#       发表于 2026-8-31 16:03
+
+怎么又有神经病进来搅和
+
+*****
+
+####  Jabeck  
+##### 3197#       发表于 2026-8-31 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177328&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-8-31 16:01</a>
+
+所以我问你了其他人不写难道是单身主义吗？</blockquote>
+其他人不写是因为他们的喜好没有这点啊，跟性取向无关。
+
+上面我提了海贼王的里山治，他的喜好里有女人会有人觉得奇怪吗？
+
+*****
+
+####  thecatnie  
+##### 3198#       发表于 2026-8-31 16:04
+
+还是打拳的战斗力强啊<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jabeck  
+##### 3199#       发表于 2026-8-31 16:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177328&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-8-31 16:01</a>
+
+所以我问你了其他人不写难道是单身主义吗？
+
+承认一下花痴人设和好色人设是什么难事儿吗？</blockquote>
+不是难事，只不过花痴好(男女）色人设前面好几个了，怎么只有男角色会有人应激。
+
