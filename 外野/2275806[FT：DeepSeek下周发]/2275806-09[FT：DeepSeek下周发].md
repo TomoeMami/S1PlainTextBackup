@@ -2915,3 +2915,24 @@ haikku5？
 
 gpt的Astra这两周也应该出了吧，希望超过fable
 
+
+*****
+
+####  linekm  
+##### 12127#       发表于 2026-9-1 00:22
+
+老板买了两台Spark给我们玩，现在思考是部署个glm5.3 flash还是ds4 flash vision
+
+*****
+
+####  UmarIbnLaAhad  
+##### 12128#       发表于 2026-9-1 00:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178307&amp;ptid=2275806" target="_blank">斯卡文分则能成 发表于 2026-8-31 18:59</a>
+ 咋整啊有教程嘛，我就想写点网页看板啥的好向老大交差要预算</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黄鱼满地都是，十几块钱，建议用个自己的谷歌账号去申请，基本就是薅美国死大或者印度某谷歌电话卡套餐可领pro的羊毛
+我那个是印度羊毛，卖家发了个链接是谷歌这个活动到领取那一步的一页，我进去登录gmail领取就成了
+然后第二天号就没了，我让gpt写了个申诉说我是自用+合法手段取得优惠套餐，申请解封
+然后第三天就解了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+看网上说这个会员很可能会被收回，但十几块钱给一堆哈基米额度还有点opus4.6，用一周都是赚
+

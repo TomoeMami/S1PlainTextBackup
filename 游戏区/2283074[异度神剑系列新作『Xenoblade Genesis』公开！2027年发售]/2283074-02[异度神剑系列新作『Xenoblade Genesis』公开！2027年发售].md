@@ -75,3 +75,19 @@ xbg pv我发现所有的镜头里，草和树都在晃动，感觉是在凸显�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  deathliu  
+##### 2056#       发表于 2026-9-1 00:15
+
+<img src="https://img.stage1st.com/forum/202609/01/001502fsa73fkrn9n7uzcp.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ20260901-001424.jpg</strong> (163.58 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-1 00:15 上传
+
+xbg最后的音乐应该开始录了
+

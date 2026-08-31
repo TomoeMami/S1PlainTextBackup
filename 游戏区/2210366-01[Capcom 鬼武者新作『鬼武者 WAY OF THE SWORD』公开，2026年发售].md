@@ -2292,3 +2292,29 @@ demo里的百秽几个动作模组和好像就是复用boss畏风的.....
 
 每个小怪都可以任意角度切割，制作有一定难度吧？我也不太懂这个
 
+
+*****
+
+####  若菜  
+##### 921#       发表于 2026-9-1 00:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180016&amp;ptid=2210366" target="_blank">h122h 发表于 2026-9-1 00:06</a>
+
+刚刚看游民的评测视频，看到光是怒伐天已经打了5次了在不同场景……</blockquote>
+这个是精英怪
+
+
+*****
+
+####  weile10000  
+##### 922#       发表于 2026-9-1 00:21
+
+感谢荒野治好了预购癌，等玩家们实际反馈吧，卡普空的精打细算的奸商形象感觉越来越实在了
+
+*****
+
+####  yt5wt2c  
+##### 923#       发表于 2026-9-1 00:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们先吃，我再等等
+
