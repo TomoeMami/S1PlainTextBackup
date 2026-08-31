@@ -1686,3 +1686,11 @@ commandcode我周末抓了一下相关资料，找到有负面信息这个是和
 
 — from Xiaomi 23127PN0CC, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 12000#       发表于 2026-8-31 15:06
+
+astra要来了吗，我codex ultra被疯狂截断，显示selected model at capacity
+

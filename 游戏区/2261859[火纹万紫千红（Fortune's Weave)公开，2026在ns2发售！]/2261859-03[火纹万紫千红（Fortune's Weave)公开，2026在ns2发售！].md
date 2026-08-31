@@ -2304,3 +2304,92 @@ pdd补贴最近能刷到320+的日版，不想折腾的这个价格也可以了<
 
 巴西初音就是喜欢帅哥，只不过她见到的第一个帅哥是A少，还救了她的命，这不就是火纹风陵渡么，估计以后眼里放不下其他人了。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mai6696  
+##### 3170#       发表于 2026-8-31 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70176906&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-31 14:56</a>
+
+不是有些人一直说喜欢女人是性取向不应该是喜好吗？
+
+理解啥？女的这两个角色这种喜欢咋没人喷？</blockquote>
+所以他写在喜好这一栏，已经不是普通的取向了，至少也是希尔凡那个级别了。
+
+尤其最新的这个，酒、女人这俩摆一起，味儿很重了。
+
+*****
+
+####  Jabeck  
+##### 3171#       发表于 2026-8-31 15:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70176922&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-8-31 14:59</a>
+
+所以他写在喜好这一栏，已经不是普通的取向了，至少也是希尔凡那个级别了。
+
+尤其最新的这个，酒、女人这 ...</blockquote>
+本来就不止取向啊，所以你以为人写喜好是女人是指性取向？？？<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mai6696  
+##### 3172#       发表于 2026-8-31 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70176931&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-31 15:01</a>
+
+本来就不止取向啊，所以你以为人写喜好是女人是指性取向？？？</blockquote>
+我只是说“男人喜欢女人也要被喷”这个找补方式很奇怪而已。
+
+*****
+
+####  Jabeck  
+##### 3173#       发表于 2026-8-31 15:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70176911&amp;ptid=2261859" target="_blank">cox 发表于 2026-8-31 14:57</a>
+
+巴西初音就是喜欢帅哥，只不过她见到的第一个帅哥是A少，还救了她的命，这不就是火纹风陵渡么，估计以后眼 ...</blockquote>
+看剧情怎么挖角，如果加入A少队还能挖过来就是一般的喜好帅哥罢了。
+
+
+*****
+
+####  Jabeck  
+##### 3174#       发表于 2026-8-31 15:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70176946&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-8-31 15:03</a>
+
+我只是说“男人喜欢女人也要被喷”这个找补方式很奇怪而已。</blockquote>
+找补吗。。。不太理解，喜好里是喜欢女人然后被喷，难道不是男人喜欢女人也要被喷？
+
+*****
+
+####  空气先生  
+##### 3175#       发表于 2026-8-31 15:05
+
+<img src="https://img.stage1st.com/forum/202608/31/150444wr6rv6me9hhxglih.png" referrerpolicy="no-referrer">
+
+<strong>8d5b12aaf93958af780b12e283003383.png</strong> (63.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-31 15:04 上传
+
+太久没玩FEH了，觉醒这四个角色除了第一个和最后一位，另外两位手游现在出卡了吗
+
+你游好歹也是卖角色的游戏啦。
+
+*****
+
+####  mai6696  
+##### 3176#       发表于 2026-8-31 15:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70176958&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-31 15:04</a>
+
+找补吗。。。不太理解，喜好里是喜欢女人然后被喷，难道不是男人喜欢女人也要被喷？ ...</blockquote>
+借用3146和3148的话来说。
+
+实际上这几位更多是喜欢嫖或者喜欢打炮。
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你自己也知道这里是喜好而不是取向，那说“男人喜欢女人”难道不是偷换概念？
+
