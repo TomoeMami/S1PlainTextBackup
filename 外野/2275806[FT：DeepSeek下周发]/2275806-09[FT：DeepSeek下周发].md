@@ -2073,3 +2073,66 @@ z/肯定是恨deepseek的<img src="https://static.stage1st.com/image/smiley/face
 
 <img src="https://img.stage1st.com/forum/202608/31/194552psz5zop7pnn05npu.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 12037#       发表于 2026-8-31 19:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178515&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-31 19:45</a>
+
+也不能说恨吧，我也认为智能的上限才是壁垒，你看5.6luna那个水平就因为sol足够强也能沾上光
+
+另外刷到混元 ...</blockquote>
+主要glm模型的上限也就那样吧，而且这牛来明明是个新架构，也要说成“顺手”，感觉是真的被梁子的flash搞得有点烦了。
+
+*****
+
+####  王兰花秀丽  
+##### 12038#       发表于 2026-8-31 19:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178521&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-31 19:47</a>
+主要glm模型的上限也就那样吧，而且这牛来明明是个新架构，也要说成“顺手”，感觉是真的被梁子的flash搞 ...</blockquote>
+是的，旗舰模型不到1T的公司也没资格说智能的上限    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  舞以  
+##### 12039#       发表于 2026-8-31 19:51
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梁子当时说他们是真的想开源，有些友商是不得不开源，是不是就是指的唐老师啊
+
+
+*****
+
+####  Milarvoz  
+##### 12040#       发表于 2026-8-31 19:54
+
+glm那flash反响不错吗？笑了。
+
+—— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  梅林的三角裤  
+##### 12041#       发表于 2026-8-31 19:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178541&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-31 19:51</a>
+梁子当时说他们是真的想开源，有些友商是不得不开源，是不是就是指的唐老师啊 ...</blockquote>
+点名说的智谱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  tonyunreal  
+##### 12042#       发表于 2026-8-31 19:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178471&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-31 19:32</a>
+
+刚刚刷到了知乎推给我的glm-5.3（flash）的问题
+
+下面一水都在抨击mit许可的，是不是因为智谱宣布开源，但是 ...</blockquote>
+没懂，ds和智谱不都是mit么
+
