@@ -2167,3 +2167,24 @@ fami通新演示把战斗系统基本全透了，手觉醒破防、足觉醒回�
 一直都是防御+X啊，我从没用过推方向也没见过</blockquote>
 <img src="https://www.ign.com.cn/sm/t/ign_cn/screenshot/default/onimusha-way-of-the-sword-20260820161859_vjhy.1920.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 906#       发表于 2026-8-31 23:38
+
+看评测支线的怪物复用很严重，而且通马桶
+
+另外ign编辑是在自限不使用恢复道具的情况下通关的，最高难度已经不够打了是吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  若菜  
+##### 907#       发表于 2026-8-31 23:38
+
+ 本帖最后由 若菜 于 2026-8-31 23:40 编辑 
+
+主要是说支线注水，但是剧情又有小巧思，日系怪谈味
+
+主线没啥问题，战斗爽就是了
+

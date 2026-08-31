@@ -2849,3 +2849,33 @@ flash那边不知道什么情况
 
 卧槽哈基米网页版是可以直连的吗，忘记开梯子了直接上去问了个问题，看见他思考了一下然后我就再也不能用了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 12120#       发表于 2026-8-31 23:39
+
+这波路由的是啥模型有说法了吗<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+haikku5？
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  zy450  
+##### 12121#       发表于 2026-8-31 23:42
+
+难道坊间传闻 9 月 V5 是真的？
+
+—— 来自 Xiaomi 24031PN0DC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  舞以  
+##### 12122#       发表于 2026-8-31 23:43
+
+更新v5反而正常，还继续更新4.x就感觉太拖了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
