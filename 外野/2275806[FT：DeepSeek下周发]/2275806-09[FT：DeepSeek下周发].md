@@ -1846,3 +1846,13 @@ GLM5.3F是谁在吹啊，完全打不过dsv4fv，比ds蠢，还慢一倍，试�
 这周部署一下qwen3.8 ...</blockquote>
 对！我也是这样感觉    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  唠叨  
+##### 12016#       发表于 2026-8-31 18:24
+
+opencode go月额度蹬没了
+command 周限额了
+想用qwen3.8flash  哪个订阅便宜啊
+

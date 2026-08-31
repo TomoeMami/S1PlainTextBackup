@@ -1851,3 +1851,18 @@ demo表现出的技术力太强了，有些人(比如我)好这一口就等不�
 
 ●DS5手柄没有触觉反馈（所以正式版的震动水平也就是demo种那样了吧）
 
+
+*****
+
+####  theworld  
+##### 872#       发表于 2026-8-31 18:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">PDD已经现货了
+
+*****
+
+####  Jabeck  
+##### 873#       发表于 2026-8-31 18:20
+
+PDD好多跨境要你**照片的，安全不安全啊，<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+

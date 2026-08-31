@@ -2738,3 +2738,13 @@ pdd补贴最近能刷到320+的日版，不想折腾的这个价格也可以了<
 我看贴吧反应更多是嫌丑，之前那个嫖的也是觉得人丑又嫖。 就这些可招可不招的角色也能应激，也是没谁了。 ...</blockquote>
 嫌丑在某些时候是一种伪装，比如某些女性角色身材好或者穿得清凉会被骂衣着丑<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Philister  
+##### 3209#       发表于 2026-8-31 18:19
+
+传统集美嫌丑，打拳母人批评喜好填女人是物化女性，麻辣仙人面对有性欲的黑皮男人有牛头人危机感，给佬气愤为什么没有喜好是男人的粗犷肌肉男
+
+好像是网上站队最不用犹豫的一集<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
