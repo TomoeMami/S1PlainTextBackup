@@ -1236,3 +1236,87 @@ GLM5.3F是谁在吹啊，完全打不过dsv4fv，比ds蠢，还慢一倍，试�
 
 明早吧，硬蹬应该是能蹬完的
 
+
+*****
+
+####  jumbleh  
+##### 11958#       发表于 2026-8-31 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70174409&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-31 08:45</a>
+
+我对接微信了 微信问他某个会话的进度 他会总结翻译一遍发微信 经常出现歧义
+
+试了hermes relay  但是这个软 ...</blockquote>
+飞书吧，目前用下来最顺手
+
+*****
+
+####  7776169  
+##### 11959#       发表于 2026-8-31 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175088&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-31 10:15</a>
+能分享一下反推的方法吗，用什么工具？</blockquote>
+什么都不用啊，我直接把图传上去，然后叫他生成哪一类模型（比如我是用anima的，我就叫他生成可以给anima这个开源绘画模型用的自然语言）就是了
+
+反正不用任何东西，一些裸露得很厉害的图也能过（除了真的有生殖器的）
+
+—— 来自 Xiaomi 2510DRK44C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  matthewsteel  
+##### 11960#       发表于 2026-8-31 10:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175205&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-8-31 10:32</a>
+
+我日，没蹬完</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+昨天不是刚reset了？
+
+
+*****
+
+####  空き地卯木  
+##### 11961#       发表于 2026-8-31 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175240&amp;ptid=2275806" target="_blank">matthewsteel 发表于 2026-8-31 10:36</a>
+我的codex好像100%了.....是我的错觉么</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我看错时间了，特么的连续两天重置太雷霆了
+
+*****
+
+####  xiaohanne  
+##### 11962#       发表于 2026-8-31 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175132&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-31 10:23</a>
+
+不明白，更奇怪的是各种benchmark测出来token消耗比V4FV低，然而我用上去并不是这样 ...</blockquote>
+面向benchmark优化。
+
+包括hy4也是，benchmark叼的一比，实际用下来挺堪忧。
+
+
+*****
+
+####  cscbzcbz  
+##### 11963#       发表于 2026-8-31 10:40
+
+一个想法，题库是不是得换换了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 11964#       发表于 2026-8-31 10:41
+
+ 本帖最后由 nxmonitor 于 2026-8-31 10:42 编辑 
+
+这种公司KPI还是压力太大了，前几天看到一张微调TB测试集的测试结果，和原来测试集做对比，几个刷分王（Qwen、Grok和Muse Spark）确实差异都很明显，甚至GLM和Kimi差距都很大。<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七氷  
+##### 11965#       发表于 2026-8-31 10:41
+
+被5小时卡了，周额度用不完
+

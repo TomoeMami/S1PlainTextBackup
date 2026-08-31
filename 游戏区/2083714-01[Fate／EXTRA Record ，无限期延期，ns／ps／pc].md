@@ -1735,3 +1735,11 @@ TYPE-MOON宣布《Fate/EXTRA Record》的新发行商确定为Aniplex。9月7日
 
 还是回到Aniplex，新纳一哉跑路了？！
 
+
+*****
+
+####  Dreammask  
+##### 170#       发表于 2026-8-31 10:40
+
+新纳都跑路了，这游戏怎样已经不言而喻了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
