@@ -1131,3 +1131,16 @@ Hermes agent本身就支持对接各种聊天工具的，包括但不限于微�
 
 试了hermes relay  但是这个软件读取会话进度卡卡的
 
+
+*****
+
+####  eno_emos  
+##### 11949#       发表于 2026-8-31 09:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70174409&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-31 08:45</a>
+
+我对接微信了 微信问他某个会话的进度 他会总结翻译一遍发微信 经常出现歧义
+
+试了hermes relay  但是这个软 ...</blockquote>
+如果你电脑一直不关的话实际上可以开个网页挂出来，找个便宜云服务器转发一下就行了
+
