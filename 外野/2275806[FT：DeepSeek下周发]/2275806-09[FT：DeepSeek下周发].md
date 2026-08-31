@@ -1614,3 +1614,19 @@ GLM5.3F是谁在吹啊，完全打不过dsv4fv，比ds蠢，还慢一倍，试�
 这周部署一下qwen3.8 ...</blockquote>
 梁子啥时候开一下 ds4fv 的源啊，能看图还是方便不少
 
+
+*****
+
+####  tonyunreal  
+##### 11993#       发表于 2026-8-31 12:57
+
+Hy4-preview今天过了10点又开始频繁429了 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wandeeees  
+##### 11994#       发表于 2026-8-31 13:02
+
+怎么这些大厂的infra还不如牢梁的，之前V4F大杀四方的时候也没那么多问题吧
+
