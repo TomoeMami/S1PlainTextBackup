@@ -1110,3 +1110,14 @@ deepseek harnessEAC挺好用的，我已经把她调教成只会喊主人的变�
 
 佬们 有什么手机远程管理电脑hermes的app
 
+
+*****
+
+####  mp5  
+##### 11947#       发表于 2026-8-31 08:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70174320&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-31 08:25</a>
+佬们 有什么手机远程管理电脑hermes的app</blockquote>
+Hermes agent本身就支持对接各种聊天工具的，包括但不限于微信，钉钉和飞书
+当然没法直接更改各种配置    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
