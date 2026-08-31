@@ -1160,3 +1160,26 @@ coding plan的商业逻辑和网盘的一样的，就是将用不完额度的用
 
 <img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">gpt的网安g点也太特么低了，我审了一遍仓库把报告扔给他让他对症下药结果思考几分钟被毙了
 
+
+*****
+
+####  qwased  
+##### 11952#       发表于 2026-8-31 10:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70174900&amp;ptid=2275806" target="_blank">fsckamui 发表于 2026-8-31 09:53</a>
+coding plan的商业逻辑和网盘的一样的，就是将用不完额度的用户补贴能用玩的用户，拉低平均使用成本。但因 ...</blockquote>
+跟国内一样走实名验证倒是能限制一下，米国大厂那种黑产随便薅的模式等o/a上市了肯定没得玩
+
+*****
+
+####  7776169  
+##### 11953#       发表于 2026-8-31 10:10
+
+这几天就用腾子那玩意来给自己的ai画图反推tag
+
+我只能说国产模型的甲真的薄
+很多图就是没有露三点其他都露了的
+他都能输出反推结果<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2510DRK44C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+

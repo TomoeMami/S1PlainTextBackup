@@ -314,3 +314,15 @@ b part的老资历帮助后辈这一段单拿出来我还挺喜欢的，但最�
 
 看完感觉只能说不过不失，结局有点过于平淡理所当然，再仔细一想啥玩意经不起推敲啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RStocking  
+##### 2247#       发表于 2026-8-31 10:13
+
+灾厄大王初登场时那种勃勃生机、万物竞发的场景犹在眼前，还指望着高桥端出个令和小ea，一转眼又变成了一坨不那么臭的大便<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+整个故事从暗码线和牢师线开始讲得颠三倒四，又不想把特工们写成纯反派，又想给牢师得迷惑行为找借口，结果就是全都烂完。四大梦魇篇突出一个路人Boss，压迫感还不及橘先辈，反正橘先辈要仰卧起坐，倒不如让橘先辈占老檀位当最终boss了。
+
+只能说达到了最低预期：牢莫没爆弱智典<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
