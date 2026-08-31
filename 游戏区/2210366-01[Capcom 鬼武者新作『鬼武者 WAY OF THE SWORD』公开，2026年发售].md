@@ -1765,3 +1765,32 @@ demo打一会儿老是卡住崩溃是什么原因啊，调低了各种画质，�
 
 demo表现出的技术力太强了，有些人(比如我)好这一口就等不了
 
+
+*****
+
+####  conanoysq  
+##### 864#       发表于 2026-8-31 16:58
+
+已经看到偷跑的说没有幻魔空间了 <blockquote>New difficulty and one new oni amarants after completing NG+. and sadly there is no harder post game content aside from the side quests</blockquote>
+
+*****
+
+####  若菜  
+##### 865#       发表于 2026-8-31 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177683&amp;ptid=2210366" target="_blank">conanoysq 发表于 2026-8-31 16:58</a>
+
+已经看到偷跑的说没有幻魔空间了</blockquote>
+这个优良传统怎么没了....对于想挑战的这就是鬼最好玩的地方
+
+
+*****
+
+####  大喇叭花田  
+##### 866#       发表于 2026-8-31 17:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70172277&amp;ptid=2210366" target="_blank">ShiKi847 发表于 2026-8-30 20:43</a>
+
+怎么那么多人都首发卡普空，卡表的游戏必定3年开发周期半成品等DLC出完，我现在都等完全版再玩 ...</blockquote>
+200多块就能玩到这种顶级的动作体验要啥自行车，压根也不期待卡表能有多大体量，这个DEMO的内容扩充到10个关卡基本上就值回票价了，再多估计也腻了。
+
