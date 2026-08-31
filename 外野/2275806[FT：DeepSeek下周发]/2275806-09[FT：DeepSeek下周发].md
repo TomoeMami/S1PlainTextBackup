@@ -2355,3 +2355,42 @@ dsh0.1.2alpha2发布了，还上了npm，要尝鲜的漏油可以装了
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  nxmonitor  
+##### 12069#       发表于 2026-8-31 21:05
+
+除非上了什么新技术，导致实际思维链不说人话必须翻译出来，不然从草台的角度讲可能是计费没搞定……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 12070#       发表于 2026-8-31 21:06
+
+如果这个50toks真的是新模型的预定速度的话，那真的很重了，用惯了flash的120，pro的80我都嫌慢。
+
+这次ptc模式能刷到是不是验证一下新模型在dsh特定模式下的能力？
+
+*****
+
+####  nxmonitor  
+##### 12071#       发表于 2026-8-31 21:07
+
+真有这能力30TPS也不是不能顶着用啊……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cscbzcbz  
+##### 12072#       发表于 2026-8-31 21:10
+
+死活刷不出来，看来不是大的<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 12073#       发表于 2026-8-31 21:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我这次直接把我在捣鼓的项目扔给他了，不是搞个demo测试了
+
