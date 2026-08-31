@@ -1551,3 +1551,43 @@ o家的astra快来了，据说可能有质的提高，拭目以待吧</blockquot
 
 发现workbuddy的glm 5.3 flash只有0.06的倍率。。。比它自己的hy3 0。05只贵一点点。。。有点意外
 
+
+*****
+
+####  tillnight  
+##### 11987#       发表于 2026-8-31 12:36
+
+<blockquote>kinfox 发表于 2026-8-31 12:22
+发现workbuddy的glm 5.3 flash只有0.06的倍率。。。比它自己的hy3 0。05只贵一点点。。。有点意外 ...</blockquote>
+智谱自己的api还在5.3f优惠期，腾讯一直是跟进第一方实时价格的。除非智谱也玩短期优惠转正，不然恢复正常以后还要涨50%左右。
+
+*****
+
+####  serj005  
+##### 11988#       发表于 2026-8-31 12:38
+
+发现智谱api充值退款还有限制条件<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，对比之下ds的充值订单只要是一年内就能随便退，还是秒到账，简直太良心。
+
+*****
+
+####  tillnight  
+##### 11989#       发表于 2026-8-31 12:39
+
+<blockquote>cscbzcbz 发表于 2026-8-31 10:57
+commandcode我周末抓了一下相关资料，找到有负面信息这个是和opencodego一样的货色，goat套餐表面上有60 ...</blockquote>
+看这几个中转站给v4fv的额度都非常扣就能看出端倪了，因为v4fv目前只能官转。
+
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 11990#       发表于 2026-8-31 12:43
+
+qwen3.8 flash指令遵从试下来感觉非常好啊 work check verdict 的loop玩了整整一上午包括两次自动compact都没问题 🐴老师暂时脱离畜生道
+
+再见了小梁
+
+不过就是cache太脆弱了 实际和v4f的3/9几乎一样甚至可能更贵点
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
