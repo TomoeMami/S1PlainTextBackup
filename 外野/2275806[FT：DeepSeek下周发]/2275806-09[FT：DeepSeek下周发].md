@@ -1694,3 +1694,27 @@ commandcode我周末抓了一下相关资料，找到有负面信息这个是和
 
 astra要来了吗，我codex ultra被疯狂截断，显示selected model at capacity
 
+
+*****
+
+####  tonyunreal  
+##### 12001#       发表于 2026-8-31 15:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70176965&amp;ptid=2275806" target="_blank">UmarIbnLaAhad 发表于 2026-8-31 15:06</a>
+
+astra要来了吗，我codex ultra被疯狂截断，显示selected model at capacity</blockquote>
+坏了，奥特曼路由的是腾子 <img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  neptunehs  
+##### 12002#       发表于 2026-8-31 15:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70176438&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-31 13:34</a>
+—— 来自 Xiaomi 25060RK16C, Android 16, 鹅球 v3.5.99</blockquote>
+ds拉完了？（
+虽然如果没有免费的话我还是坚定梁文谷
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

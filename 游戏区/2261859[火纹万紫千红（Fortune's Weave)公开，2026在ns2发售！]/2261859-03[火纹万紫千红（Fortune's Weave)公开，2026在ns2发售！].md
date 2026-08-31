@@ -2471,3 +2471,74 @@ pdd补贴最近能刷到320+的日版，不想折腾的这个价格也可以了<
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  Jabeck  
+##### 3184#       发表于 2026-8-31 15:37
+
+ 本帖最后由 Jabeck 于 2026-8-31 15:40 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177045&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-8-31 15:20</a>
+
+就按你说的ナンパ野郎那也是和异性恋有区别的，你能分清那我觉得没什么需要多说的了。
+
+几个板凳角色我当 ...</blockquote>
+那男人的喜好是女人是错吗？这个喜好最大的错就是“俗”还有什么错？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就像前面有人说觉得这个喜好很LOW，是啊，一个在战场上厮杀的衣不蔽体的佣兵怎么能有这么LOW的喜好？应该喜好读书欣赏诗画搞反差才像样。
+
+*****
+
+####  mai6696  
+##### 3185#       发表于 2026-8-31 15:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177153&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-31 15:37</a>
+
+那男人的喜好是女人是错吗？这个喜好最大的错就是“俗”还有什么错？就像前面有人说觉得这个喜好很LOW，是 ...</blockquote>
+你喜欢上P站也是喜欢女人，我觉得你没错。
+
+但是我很好奇你工作简历上会不会这么写。
+
+
+*****
+
+####  妮贝雅  
+##### 3186#       发表于 2026-8-31 15:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">西蒙的女遊び没人喷 黑哥的女就开喷了 本质看脸 嘻嘻
+
+*****
+
+####  Jabeck  
+##### 3187#       发表于 2026-8-31 15:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177178&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-8-31 15:41</a>
+
+你喜欢上P站也是喜欢女人，我觉得你没错。
+
+但是我很好奇你工作简历上会不会这么写。 ...</blockquote>
+跟工作简历有啥关系？这是一个游戏告诉你人物设定。。。工作简历也不需要从小到大的经历，但游戏会告诉玩家一个角色从小到大的经历。
+
+我也很好奇工作简历上要不要写喜好帅哥。
+
+*****
+
+####  妮贝雅  
+##### 3188#       发表于 2026-8-31 15:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">再说了 一堆人喜欢的事物都有写人，是不是都是奴隶贩子啊 
+
+*****
+
+####  mai6696  
+##### 3189#       发表于 2026-8-31 15:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177200&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-31 15:44</a>
+
+跟工作简历有啥关系？这是一个游戏告诉你人物设定。。。工作简历也不需要从小到大的经历，但游戏会告诉玩 ...</blockquote>
+所以你知道是人物设定是经历那你一定要跟我偷换什么概念呢？
+
+出轨行为也可以是男人喜欢女人，喜欢搭讪也可以是男人喜欢女人。
+
+什么叫男人喜欢女人有没有错。
+
+你为什么不问搭讪轻浮男会不会有人讨厌？
+
