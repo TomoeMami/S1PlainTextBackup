@@ -3047,3 +3047,13 @@ ds 赶紧来新版本吧。等不及了。
 
 <img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">我真的要死了，这个等等，不是，再想想，哦我懂了的雷霆大思考要怎么避开啊，太可怕了，看他的思维链看的我都要得精神病了，这还是v4fv的
 
+
+*****
+
+####  qwased  
+##### 12140#       发表于 2026-9-1 03:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180302&amp;ptid=2275806" target="_blank">阿刚 发表于 2026-9-1 02:12</a>
+我真的要死了，这个等等，不是，再想想，哦我懂了的雷霆大思考要怎么避开啊，太可怕了，看他的思维链看的我 ...</blockquote>
+你是不是交给他超出能力范围的任务了
+
