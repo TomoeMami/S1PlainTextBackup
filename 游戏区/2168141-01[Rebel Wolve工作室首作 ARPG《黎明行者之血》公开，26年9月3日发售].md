@@ -564,3 +564,11 @@ MC 83
 还行...？
 先玩这个还是先玩鬼武者有点犹豫的，主要是卡表现在成本控制太牛逼了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寂长无星夜  
+##### 45#       发表于 2026-9-1 01:31
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我选黎明行者，卡婊等打折
+
