@@ -539,3 +539,11 @@ GS 8
 MC 83
 [https://www.metacritic.com/game/the-blood-of-dawnwalker/](https://www.metacritic.com/game/the-blood-of-dawnwalker/)
 
+
+*****
+
+####  D-JoeII  
+##### 42#       发表于 2026-9-1 00:00
+
+考慮到致命驅殼2,這評分我持保留態度
+

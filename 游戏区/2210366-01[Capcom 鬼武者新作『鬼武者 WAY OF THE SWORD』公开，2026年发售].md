@@ -2220,3 +2220,60 @@ fami通新演示把战斗系统基本全透了，手觉醒破防、足觉醒回�
 
 又刷了一会儿百秽，感觉角力和拼刀这两个纯表演性质的动作太拖节奏和断节奏了，尤其是角力纯连打就行，毫无乐趣。而且明明可以弹开或者化劲的绝好机会给我吞了，真的很不爽。但愿这两个是需要在技能树中点出来，而不是默认就给。而且没有关联其他系统的话，那就可以直接不点出来了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  conanoysq  
+##### 912#       发表于 2026-9-1 00:00
+
+刚刚看到一个评测直接喷了：杂兵种数量之少，乃近年来罕见。居然能做到杂兵种类比Boss还少，反过来可以理解为Boss种类丰富吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  二十二颗牛油果  
+##### 913#       发表于 2026-9-1 00:03
+
+看了下fami通的视频，感觉动作模组复用还是有点严重的，卡婊还是那个卡婊
+
+
+*****
+
+####  NTの末裔  
+##### 914#       发表于 2026-9-1 00:04
+
+我之前看到一个剧透的说怪物图鉴好像总的就30多种
+
+反正老鬼武者的怪物种类也少就是了
+
+*****
+
+####  simonroam  
+##### 915#       发表于 2026-9-1 00:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">IGN啥意思？动作游戏里面的mixtape吗
+
+*****
+
+####  BK10  
+##### 916#       发表于 2026-9-1 00:06
+
+ 本帖最后由 BK10 于 2026-9-1 00:07 编辑 
+
+卡表现在就是能省就省，小百万销量就满足了，走一个稳赚不赔<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  h122h  
+##### 917#       发表于 2026-9-1 00:06
+
+刚刚看游民的评测视频，看到光是怒伐天已经打了5次了在不同场景……<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JOJO42  
+##### 918#       发表于 2026-9-1 00:07
+
+demo里的百秽几个动作模组和好像就是复用boss畏风的.....
+
+最大的感慨是，现在优秀的杂兵战设计真几乎绝迹了，不知道以后各家对杂兵战的投入会是什么样
+
