@@ -1758,3 +1758,42 @@ TYPE-MOON宣布《Fate/EXTRA Record》的新发行商确定为Aniplex。9月7日
 
 新纳一哉去SE吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">做DQB他不香吗吗
 
+
+*****
+
+####  宛若青空  
+##### 173#       发表于 2026-8-31 11:00
+
+新纳一哉直接从Staff表记删除了？！
+
+<img src="https://img.stage1st.com/forum/202608/31/110012ixx4ooo58ys4286p.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5812.png</strong> (635.92 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-31 11:00 上传
+
+*****
+
+####  黑酒杯  
+##### 174#       发表于 2026-8-31 11:02
+
+<img src="https://p.sda1.dev/34/5a4a5ecdcc4d129fc63a58ab6faa12be/IMG_CMP_36368024.jpeg" referrerpolicy="no-referrer">
+看来成开发地狱了
+
+*****
+
+####  医生狼多  
+##### 175#         楼主| 发表于 2026-8-31 11:03
+
+完全切割了这是
+
+
+*****
+
+####  空洞骑士  
+##### 176#       发表于 2026-8-31 11:05
+
+感觉最近几年都没戏了。新纳一哉不会得重病了吧，理论上谁跑路他都不会跑路。
+

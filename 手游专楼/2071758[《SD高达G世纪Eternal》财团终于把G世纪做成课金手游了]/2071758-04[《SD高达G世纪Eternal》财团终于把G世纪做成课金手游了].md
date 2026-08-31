@@ -281,3 +281,11 @@ V除了V2没什么高人气机体吧，前半出V2AB，后半复刻加强再出�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要不是sd已经持续一个月其实我想要老三国sd的，绝对撑得起流水，翔烈帝天玉铠刘备是真帅
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 4656#       发表于 2026-8-31 11:00
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">V2直接拆成A+B+AB出三台好不好啊
+

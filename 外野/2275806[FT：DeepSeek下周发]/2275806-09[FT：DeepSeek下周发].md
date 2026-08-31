@@ -1362,3 +1362,57 @@ o家的astra快来了，据说可能有质的提高，拭目以待吧
 我看错时间了，特么的连续两天重置太雷霆了</blockquote>
 自从五小时加回来之后，reset之后，每周刷新的结束日期好像也会顺延了，记得之前是不变的。
 
+
+*****
+
+####  cscbzcbz  
+##### 11970#       发表于 2026-8-31 10:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175333&amp;ptid=2275806" target="_blank">biye 发表于 2026-8-31 10:47</a>
+周末注册了commandcode  今天就接到了中间站电话 
+
+配置起来 发现还不在一些主流harness支持列表里
+
+同样是De ...</blockquote>
+commandcode我周末抓了一下相关资料，找到有负面信息这个是和opencodego一样的货色，goat套餐表面上有60刀，实际缩水严重<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这些中转都多少有点问题<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 想想也是，按v4f的能力，10刀换60刀，只要不是自己部署，是中转官方的，就不可能
+
+*****
+
+####  xiaohanne  
+##### 11971#       发表于 2026-8-31 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175276&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-31 10:41</a>
+
+这种公司KPI还是压力太大了，前几天看到一张微调TB测试集的测试结果，和原来测试集做对比，几个刷分王（Qwe ...</blockquote>
+反正最近这几个模型都挺名不副实的。
+
+dv4f还是最可靠的flash。
+
+
+*****
+
+####  自由之紫roy  
+##### 11972#       发表于 2026-8-31 11:03
+
+<img src="https://static.stage1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+微信图片_20260830172405_478_111.jpg
+(637.87 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-31 11:03 上传
+
+<img src="https://img.stage1st.com/forum/202608/31/110311rpfagj0rirkpv6ca.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  lubo  
+##### 11973#       发表于 2026-8-31 11:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175398&amp;ptid=2275806" target="_blank">matthewsteel 发表于 2026-8-31 10:55</a>
+
+自从五小时加回来之后，reset之后，每周刷新的结束日期好像也会顺延了，记得之前是不变的。 ...</blockquote>
+Codex一开始就是这样，Claude重置后不会更新日期，GLM好像也不会
+
