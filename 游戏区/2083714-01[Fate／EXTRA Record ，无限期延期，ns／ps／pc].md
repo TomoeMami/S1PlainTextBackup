@@ -1864,3 +1864,31 @@ TYPE-MOON宣布《Fate/EXTRA Record》的新发行商确定为Aniplex。9月7日
 官网和新推都公布了，Aniplex9月中公布最新情报</blockquote>
 所谓最新情报不是继续延期发售日未定就算胜利
 
+
+*****
+
+####  格林卡罗尔  
+##### 182#       发表于 2026-8-31 11:44
+
+我怎么感觉是新纳一斋在搞贪污<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  FMIC  
+##### 183#       发表于 2026-8-31 11:44
+
+问题这个所谓的studioBB就是新纳一哉为了型月自己的开发能力搭起来的班子，搞到老大要背锅跑路那到底开发了多少有价值的资产很难说啊
+
+他在se管过不小的团队吧，来型月这里当老大就出问题，是不是型月血统有问题
+
+*****
+
+####  宛若青空  
+##### 184#       发表于 2026-8-31 11:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175756&amp;ptid=2083714" target="_blank">——裂锦—— 发表于 2026-8-31 11:35</a>
+所谓最新情报不是继续延期发售日未定就算胜利</blockquote>
+那我觉得大概率是继续延期发售日未定吧，说不定标个2027春都不错了（其实我想看新PV
+
