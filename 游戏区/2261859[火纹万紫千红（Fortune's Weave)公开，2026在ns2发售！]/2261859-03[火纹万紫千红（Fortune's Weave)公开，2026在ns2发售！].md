@@ -2780,3 +2780,22 @@ PDD港邮328（用V3-50券）又有了。
 
 又有了
 
+
+*****
+
+####  Asukalangley33  
+##### 3213#       发表于 2026-8-31 19:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178382&amp;ptid=2261859" target="_blank">墨染白泉 发表于 2026-8-31 19:10</a>
+又有了</blockquote>
+买完才看到香港直邮的<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 24031PN0DC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  magicc  
+##### 3214#       发表于 2026-8-31 19:17
+
+这中秋国庆连着，香港直邮能国庆前到吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

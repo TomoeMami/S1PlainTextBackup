@@ -1918,3 +1918,14 @@ PDD好多跨境要你**照片的，安全不安全啊，</blockquote>
 
 不给怎么正规清关啊……
 
+
+*****
+
+####  Jabeck  
+##### 879#       发表于 2026-8-31 19:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178371&amp;ptid=2210366" target="_blank">h122h 发表于 2026-8-31 19:09</a>
+
+不给怎么正规清关啊……</blockquote>
+我等到国内吧，身份证复印件给出去不放心
+
