@@ -3018,3 +3018,17 @@ AI确实很猛，而且打AI一个是很消耗资源还一个是容易吸引其�
 
 说是第三赛季有常驻pve可能能吸点d2玩家进来
 
+
+*****
+
+####  沙里昂  
+##### 286#       发表于 2026-9-1 06:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180332&amp;ptid=2135998" target="_blank">nightshade037 发表于 2026-9-1 02:49</a>
+说是第三赛季有常驻pve可能能吸点d2玩家进来</blockquote>
+第二赛季测试的模式是把一张图的一部分打包成一个地牢，然后挣积分。还不如把 pvp lite 模式的返回点多加几个来得吸引人
+
+更何况 d2 现在角色强度爆表，人均 solo 不在话下，谁会愿意去马拉松又小又少的 pve 地图上受苦
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
