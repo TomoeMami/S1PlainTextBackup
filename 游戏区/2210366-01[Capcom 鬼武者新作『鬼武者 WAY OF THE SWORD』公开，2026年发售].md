@@ -1898,3 +1898,23 @@ PDD好多跨境要你**照片的，安全不安全啊，<img src="https://static
 
 有没有通关后的挑战模式或者boss再战是最关心的，流程我是真的没什么指望，就跟怪物猎人我只想要斗技场差不多
 
+
+*****
+
+####  h122h  
+##### 878#       发表于 2026-8-31 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178100&amp;ptid=2210366" target="_blank">Jabeck 发表于 2026-8-31 18:20</a>
+
+PDD好多跨境要你**照片的，安全不安全啊，</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/31/190828s2422vi63vh3k464.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-31 19:08 上传
+
+不给怎么正规清关啊……
+

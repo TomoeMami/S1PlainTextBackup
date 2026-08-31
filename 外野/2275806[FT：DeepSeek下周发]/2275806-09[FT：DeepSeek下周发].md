@@ -1980,3 +1980,37 @@ ds周末都有人传权重么
 论坛助手,iPhone</blockquote>
 周一上班了
 
+
+*****
+
+####  startraveller  
+##### 12030#       发表于 2026-8-31 19:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178170&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-31 18:32</a>
+我要接入hermes用  已经是hermes的形状了 回不去了</blockquote>
+百炼有个 token plan，之前自家模型打折还行，现在不知道还有没有打折
+
+*****
+
+####  tonyunreal  
+##### 12031#       发表于 2026-8-31 19:10
+
+Hy4-preview做的大制作demo搞好了 <img src="https://static.stage1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+[https://deepdemos.top/demo/hy4-preview-3-70efad8f](https://deepdemos.top/demo/hy4-preview-3-70efad8f)
+
+
+*****
+
+####  zkjqw139  
+##### 12032#       发表于 2026-8-31 19:14
+
+<img src="https://img.stage1st.com/forum/202608/31/191400ma8ng9h02a2tnya9.png" referrerpolicy="no-referrer">
+
+<strong>D9113AD6-A2EB-48f4-8135-02BFA3AAC89C.png</strong> (333.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-31 19:14 上传
+
+ 最近开发还是很开心的
+
