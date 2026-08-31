@@ -2425,3 +2425,36 @@ pdd补贴最近能刷到320+的日版，不想折腾的这个价格也可以了<
 
 真佩服你们，围着几个丑b也能撕出手游角色厨饭圈的氛围感
 
+
+*****
+
+####  mai6696  
+##### 3180#       发表于 2026-8-31 15:20
+
+ 本帖最后由 mai6696 于 2026-8-31 15:21 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177004&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-31 15:13</a>
+
+实际不就是男人喜欢女人也被喷？喜欢嫖的那个明说了，喜欢女人和喜欢嫖你能分清楚吗。。。如果换种说法， ...</blockquote>
+就按你说的ナンパ野郎那也是和异性恋有区别的，你能分清那我觉得没什么需要多说的了。
+
+几个板凳角色我当然我所谓，我只是觉得偷换概念很丑陋罢了。
+
+*****
+
+####  cox  
+##### 3181#       发表于 2026-8-31 15:20
+
+西洛可和小绿那种更多偏欣赏吧，真正老二思考的就是今天这哥们和西蒙，放在万紫千红这个登场人物数量里，也不算很夸张感觉。
+
+
+*****
+
+####  Jabeck  
+##### 3182#       发表于 2026-8-31 15:25
+
+ 本帖最后由 Jabeck 于 2026-8-31 15:26 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177049&amp;ptid=2261859" target="_blank">cox 发表于 2026-8-31 15:20</a>
+
+西洛可和小绿那种更多偏欣赏吧，真正老二思考的就是今天这哥们和西蒙，放在万紫千红这个登场人物数量里，也 ...</blockquote>
+最大的原因还是不体面。问喜欢女人有错吗？但放如今社会一个男的怎么能有喜欢女人这么低俗的爱好呢<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 
+
