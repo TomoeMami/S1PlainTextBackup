@@ -1815,3 +1815,26 @@ TYPE-MOON宣布《Fate/EXTRA Record》的新发行商确定为Aniplex。9月7日
 
 这游戏开发估计有大问题，之前新纳一哉这人说的做到七回战等一系列进度的发言应该全都不可信了
 
+
+*****
+
+####  医生狼多  
+##### 179#         楼主| 发表于 2026-8-31 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175140&amp;ptid=2083714" target="_blank">医生狼多 发表于 2026-8-31 10:24</a>
+TYPE-MOON宣布《Fate/EXTRA Record》的新发行商确定为Aniplex。9月7日旧官网和X都会关闭，随后将由Aniplex ...</blockquote>
+按这个说法 离职是担责跑的，身体不好是说先不做游戏了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+根据官方的公告，我也向大家郑重报告一件令人遗憾的事情。
+
+这次，我，新纳一哉因个人原因，将离开TYPE-MOON Studio BB。
+关于目前正在企划·开发中的《Fate/EXTRA Record》，我已经从开发现场退下，
+同时也辞去了总监职务，在此向大家报告。
+此外，我反思了自己的责任归属，并决定配合此次公告，从工作人员名单中删除我的署名。未能履行总监职责直至本作完成，给一直期待着的各位粉丝带来极大遗憾，我深感抱歉。
+
+本作目前仍在由优秀的スタッフ们团结一心，全力投入发售准备工作，
+我坚信能够以美好的形式呈献给大家。
+今后，我将不再对本作进行任何提及或公告，但作为一名粉丝，我衷心祈愿本作能平安
+抵达大家手中，并为此加油鼓劲。向至今支持本作的各位致以深深的谢意。
+恳请继续给予《Fate/EXTRA Record》不变的支持与关爱。
+

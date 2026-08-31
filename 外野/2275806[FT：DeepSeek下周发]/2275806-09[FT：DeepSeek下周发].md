@@ -1474,3 +1474,22 @@ Codex一开始就是这样，Claude重置后不会更新日期，GLM好像也不
 妈的没赚到token跟吃亏了一样 ...</blockquote>
 我昨天实在想不到让他干什么了就让他给我上服务器部署反代antigravity去了……虽然用到的概率可能不大……
 
+
+*****
+
+####  空き地卯木  
+##### 11979#       发表于 2026-8-31 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175277&amp;ptid=2275806" target="_blank">七氷 发表于 2026-8-31 10:41</a>
+被5小时卡了，周额度用不完</blockquote>
+5小时额度得用6轮才能用完，能清完比较奇怪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  scikirbypoke  
+##### 11980#       发表于 2026-8-31 11:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175382&amp;ptid=2275806" target="_blank">drodchang 发表于 2026-8-31 10:53</a>
+o家的astra快来了，据说可能有质的提高，拭目以待吧</blockquote>
+看一些前瞻似乎是更复杂细化的思考，真受不了
+
