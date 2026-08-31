@@ -137,3 +137,11 @@
 
 这集标题是兄与弟结果还是靠着京哥唤醒的哥哥，这个角色的剧情分配真的有些失控了吧<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">，不过在结局前让人这么草率的下线制作组真够不负责的
 
+
+*****
+
+####  zechins  
+##### 767#       发表于 2026-8-31 08:08
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">京哥挑了接近一季大梁然后这么恶意的手法给人删号+杨过，关键是三小只也是一直啃老，别的不说，一个究极体都没有，一通机械降神的话观看只会更烂
+
