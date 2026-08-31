@@ -2314,3 +2314,44 @@ dsh0.1.2alpha2发布了，还上了npm，要尝鲜的漏油可以装了
 说不定和HY4一样，总结式思维链其实只是上线前的掩饰呢，HY4灰测是确定出了I‘m doing的 ...</blockquote>
 这个不用猜，可以认为就是这样了。毕竟思维链本身又不代表模型能力，上次灰测坠机以后，用老对话都会继承i'm doing思维链，但是能力是区区的。真正的灰测思维链不是ds常态下的连续吐字，是整段整段输出，很明显的套模型进行了思维链总结后输出。
 
+
+*****
+
+####  舞以  
+##### 12064#       发表于 2026-8-31 20:55
+
+我好像刷到了，完全不是正常dsflash的速度<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大的会来么？
+
+*****
+
+####  舞以  
+##### 12065#       发表于 2026-8-31 20:59
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前灰测梁子还收你pro的价格，这次直接是梁文谷的flash价格了
+
+
+*****
+
+####  Promeus  
+##### 12066#       发表于 2026-8-31 21:00
+
+不会今晚发布吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  城北无尘  
+##### 12067#       发表于 2026-8-31 21:02
+
+会是什么模型，v4u吗？还是直接v4.1甚至v5？
+
+*****
+
+####  舞以  
+##### 12068#       发表于 2026-8-31 21:03
+
+我其实很好奇的是，总结式思维链为什么token消耗和记账是对齐的，然后还基本能维持一个50toks的速度（我当时让gpt分析，他说这个速度和实际的输出量，输出时间都能对上）
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
