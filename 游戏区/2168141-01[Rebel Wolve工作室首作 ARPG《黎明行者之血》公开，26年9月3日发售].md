@@ -1,0 +1,541 @@
+﻿
+*****
+
+####  Piano-Forest  
+##### 1#       楼主       发表于 2024-1-16 02:43
+
+ 本帖最后由 Piano-Forest 于 2026-4-29 01:11 编辑 
+
+官网：[https://dawnwalkergame.com/zh-cn/home](https://dawnwalkergame.com/zh-cn/home)
+
+22年2月17日：
+
+巫师3游戏总监Konrad Tomaszkiewicz新工作室Rebel Wolves公开，首款作品将是采用虚幻5制作的剧情驱动3A黑暗幻想RPG
+
+Konrad Tomaszkiewicz此前曾在CD Projekt工作17年，除巫师3外还曾担任赛博朋克2077副总监
+
+工作室首次公开的时候新作名就已经注册了
+<img src="https://p.sda1.dev/15/b590a852ae3be6ee266d053bd18695a1/Screenshot_2024-01-16-02-33-26-768_com.twitter.android-edit.jpg" referrerpolicy="no-referrer">
+
+24年1月11日：
+
+赛博朋克2077和巫师3的任务设计总监Mateusz Tomaszkiewicz公开已加入Rebel Wolves工作室担任创意总监
+<img src="https://p.sda1.dev/15/734d1b65795b1ecc4a435858760d8b3e/Screenshot_2024-01-16-02-31-41-036_com.twitter.android-edit.jpg" referrerpolicy="no-referrer">
+
+首款作品正式公开，现已进入alpha开发阶段，今年年末将公开更多情报
+[https://www.videogameschronicle. ... -creative-director/](https://www.videogameschronicle.com/news/rebel-wolves-appoints-cd-projekt-red-veteran-as-creative-director/)
+
+The studio’s debut game is described as a triple-A dark fantasy title built with Unreal 5 engine, which is being planned as the first part of a saga.
+
+Rebel Wolves said today that the project has entered the alpha stage of development and that it plans to share more details about the game later this year.
+<img src="https://p.sda1.dev/15/b90590fbcfb92299f97ce4d634d19960/Dawnwalker_3840x2160.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/107c895b4dd8cbb4587266c0fa1e630a/Dawnwalker_1080x1920.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  RTLordCaptain  
+##### 2#       发表于 2024-1-16 07:13
+
+Dark fantasy，上次在游戏宣传了看到这词还是DA:O
+
+*****
+
+####  瓜苗乐章  
+##### 3#       发表于 2024-1-16 12:16
+
+作为壁纸还行吧
+
+—— 来自 HUAWEI NCO-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Piano-Forest  
+##### 4#         楼主| 发表于 2024-10-21 21:25
+
+We’re thrilled to announce that we signed a publishing deal with @BandaiNamcoEU! 🥳
+
+BNE will become the global publisher of our first Dawnwalker game — a dark fantasy narrative sandbox AAA action RPG, set in medieval Europe.
+
+More news about the game coming later this year! 👀
+<img src="https://p.sda1.dev/19/77a4825e260083b4b07301fb486234cd/20241021_212420.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 5#         楼主| 发表于 2024-12-15 23:57
+
+25年1月13日揭晓
+[https://x.com/DawnwalkerGame/status/1868310239147168223](https://x.com/DawnwalkerGame/status/1868310239147168223)
+
+On January 13th, under the next full moon…
+
+Gather round at /DawnwalkerGame Twitch channel to hear about Vale Sangora – its turbulent history, natural landscapes, and secret inhabitants.
+
+Witness the premiere of a CGI trailer serving as the game's opening, learn about the game's pillars and main concepts, have a tiny first glimpse into its gameplay... and much more.
+
+*****
+
+####  sparkling  
+##### 6#       发表于 2024-12-17 18:18
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  双刀少女  
+##### 7#       发表于 2024-12-17 18:34
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  Piano-Forest  
+##### 8#         楼主| 发表于 2025-1-14 00:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66933985&amp;ptid=2168141" target="_blank">Piano-Forest 发表于 2024-12-15 23:57</a>
+
+25年1月13日揭晓
+
+https://x.com/DawnwalkerGame/status/1868310239147168223
+
+On January 13th, under the n ...</blockquote>
+北京时间今早5点
+
+*****
+
+####  Piano-Forest  
+##### 9#         楼主| 发表于 2025-1-14 10:23
+
+ 本帖最后由 Piano-Forest 于 2025-1-14 10:43 编辑 
+
+官网：[https://dawnwalkergame.com/us/zh-cn/home](https://dawnwalkergame.com/us/zh-cn/home)
+
+PV（CG+实机先导PV；完整实机今年夏季公开）：[https://youtu.be/HkICrJEVTjI](https://youtu.be/HkICrJEVTjI)
+
+<img src="https://p.sda1.dev/21/61893b172293bad5e48be85b71daed82/The-Blood-of-Dawnwalker_KeyArt_compressed.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/b45c5da97de834bf30beb07e44ab69fa/The-Blood-of-Dawnwalker_20250113_07.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/0a254c7c86acfa91be359db5149e3848/0064O7Xmly1hxk3ayovlyj31hc10oqlm.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  东方定助  
+##### 10#       发表于 2025-1-14 10:26
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  Piano-Forest  
+##### 11#         楼主| 发表于 2025-1-14 10:28
+
+ 本帖最后由 Piano-Forest 于 2025-1-15 22:15 编辑 
+
+直播总结
+[https://x.com/shinobi602/status/1878926236048830538](https://x.com/shinobi602/status/1878926236048830538)
+
+The Blood of Dawnwalker | Details
+
+▪️New single player third-person fantasy action RPG
+
+▪️Started development over 2 years ago in Unreal Engine 5, full gameplay reveal coming in Summer 2025
+
+▪️Led by former Witcher 3 game director Konrad Tomaszkiewicz and ex-Witcher 3 and Cyberpunk quest director Mateusz Tomaszkiewicz
+
+▪️Focused on "narrative sandbox", no two playthroughs will be identical
+
+▪️Takes place in 'Vale Sangora' in 14th century medieval Europe
+
+▪️The setting has been ravaged by plague, famine and social disorder
+
+▪️Inspired by Eastern European architecture and culture, Polish log houses, Ukrainian and Balkan clothing, 'Romanian defensive churches', and more
+
+▪️The world has been watched by vampires in the shadows waiting to strike and make their move when humanity is at its lowest and to overthrow the feudal lords
+
+▪️Day/night cycle plays a big role, wanted the world and villages and buildings to 'feel like a different place' after sunset
+
+▪️You play as Coen, energetic, becomes a 'dawnwalker' (not human, not vampire, something in between), can traverse both worlds of humanity and creatures of the night
+
+▪️You fight with swords and weapons by day, and can use vampire abilities in combat at night, explore the environment, etc
+
+▪️You have 30 in-game days and 30 nights to save your family, wanted a sense of urgency. When you complete an objective/quest, time moves forward. But time doesn't pass in real world time, you can 'manage' how you use time as a resource
+
+▪️You meet many characters throughout the game with their own goals and ambitions, which may make you friends or put you in opposition to them
+
+▪️Blood Hunger: Gameplay mechanic where you need to feed throughout your playthrough
+
+▪️If you talk to someone and have gone long without feeding first, you might lose control and eat them, even 'your best friend' in the game 
+
+▪️Vampire design: In this world, the vampire's teeth don't stop growing, so the older vampires have a lot of teeth. Aren't visible at first, can extend as their mouths open
+
+▪️Vampires are led by Brencis -a super powerful old vampire that wants to change the world, twisted old religious beliefs and took advantage of social turmoil to turn himself into a sort of messianic figure
+
+▪️The vampire leadership aren't black and white, but more gray, as they overthrew violent and corrupt feudal lords, but also kill people to eat, conduct blood masses at church, etc
+
+▪️Brencis is a sort of 'active antagonist' that will react to your actions and decisions, will set edicts in the game that will become obstacles to the player like military checkpoints, etc
+
+▪️全新单人第三人称奇幻动作角色扮演游戏
+
+▪️开发历时两年多，使用虚幻引擎5打造，完整游戏演示将于2025年夏季公布
+
+▪️由《巫师3》前游戏总监Konrad Tomaszkiewicz与《巫师3》和《赛博朋克2077》任务总监Mateusz Tomaszkiewicz领衔开发
+
+▪️专注于“叙事沙盒”，每次游戏体验都将独一无二
+
+▪️游戏背景设定在14世纪中世纪欧洲的“桑戈拉谷地”（Vale Sangora）
+
+▪️该地区被瘟疫、饥荒和社会动乱摧残
+
+▪️灵感来自东欧建筑和文化，如波兰木屋、乌克兰与巴尔干服饰、“罗马尼亚防御性教堂”等
+
+▪️世界背后一直有吸血鬼潜伏，他们伺机在人类最虚弱时发动袭击，推翻封建领主
+
+▪️昼夜循环在游戏中占据重要地位，白天和夜晚的村庄、建筑氛围完全不同
+
+▪️玩家扮演Coen，一位充满活力的角色，成为“黎明行者”（既非人类亦非吸血鬼，介于两者之间），可以穿梭于人类和夜晚生物的世界
+
+▪️白天用剑和武器战斗，夜晚使用吸血鬼能力进行战斗、探索环境等
+
+▪️游戏中有30个白天与30个夜晚来拯救你的家人，设计有紧迫感。完成任务或目标时，时间会推进。时间不会按照现实时间流逝，玩家可以管理时间作为一种资源
+
+▪️游戏中会遇到许多角色，他们有各自的目标和野心，可能成为朋友，也可能成为对手
+
+▪️血之饥渴：核心玩法机制，需要在游戏过程中吸取血液维持生存
+
+▪️如果长时间未进食，和NPC对话时可能失去控制，将其吞噬，甚至可能是你的游戏中“最好的朋友”
+
+▪️吸血鬼设计：在这个世界中，吸血鬼的牙齿会不断生长，越老的吸血鬼牙齿越多。平时不可见，张口时会伸长显现
+
+▪️吸血鬼由Brencis领导，他是一位极其强大的古老吸血鬼，试图改变世界，利用社会动荡和扭曲的宗教信仰，将自己塑造成某种救世主
+
+▪️吸血鬼领袖并非完全黑白分明，他们推翻了暴虐腐败的封建领主，但同时也为了生存杀害人类，举行教堂血祭等
+
+▪️Brencis是一个“动态反派”，会对玩家的行动和选择作出反应，例如颁布法令设置军事检查站等，成为玩家的障碍
+
+*****
+
+####  水边井  
+##### 12#       发表于 2025-1-14 10:32
+
+什么叫叙事沙盒，太吾绘卷那种吗
+
+*****
+
+####  Piano-Forest  
+##### 13#         楼主| 发表于 2025-1-14 12:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67176253&amp;ptid=2168141" target="_blank">Piano-Forest 发表于 2025-1-14 10:23</a>
+
+官网：https://dawnwalkergame.com/us/zh-cn/home
+
+PV（CG+实机先导PV；完整实机今年夏季公开）：https://yo ...</blockquote>
+【《黎明行者之血》CG预告】 
+[https://b23.tv/UNx3UGn](https://b23.tv/UNx3UGn)
+
+连年的战火使得这片大地满目疮痍，无情的黑死病则让幸存者们惶惶不可终日。成千上万人在天灾人祸之下丧命，而活下来的人们也只能苟延残喘。在人类最黑暗的时刻……他们降临了。经历了数千年的逃亡与躲藏之后，他们终于从阴影之中走了出来，自由与权力唾手可及。其他诞生自黑夜中的怪物也纷纷选择效忠吸血鬼的统治。在游戏中，你将扮演科恩，在阴差阳错之下，这位年轻人被转化为一名「黎明行者」，他命中注定将在白昼与黑夜这两个世界的分界线上永恒徘徊。竭尽全力守护自己的人性，或者选择拥抱诅咒之力以拯救你的家人。灵活运用自身能力，以人类的信念运用超乎寻常的吸血鬼之力。《黎明行者之血（The Blood of Dawnwalker）》由《巫师3：狂猎》总监领衔开发，将于今年夏季公布实机演示，预计登陆PS5、Xbox Series及PC平台，发售日期待定
+
+*****
+
+####  Piano-Forest  
+##### 14#         楼主| 发表于 2025-1-14 15:26
+
+概念美术
+<img src="https://p.sda1.dev/21/d9169ee445f86f612741e5b286f11948/The-Blood-of-Dawnwalker_2025_01-13-25_024.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/8966dfdd8d7063a6e556d7f420568c1c/The-Blood-of-Dawnwalker_2025_01-13-25_026.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/9ef84aa8a00a125907acd8755c1c6ba2/The-Blood-of-Dawnwalker_2025_01-13-25_021.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/c0b7d167b014b05cedb92baf1b0353a2/The-Blood-of-Dawnwalker_2025_01-13-25_022.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/60f5fd441abedad1e3f0ed6e173b7ca0/The-Blood-of-Dawnwalker_2025_01-13-25_023.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/2b5b835f68038773aa45588ef1156c87/The-Blood-of-Dawnwalker_2025_01-13-25_019.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/37365bb0a2efc6abec7ee48d81446eb8/The-Blood-of-Dawnwalker_2025_01-13-25_018.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/fa51eb2716392812b0cf618306fcdaf8/The-Blood-of-Dawnwalker_2025_01-13-25_017.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/913c9e2b3337992ef431e289b9e7fcad/The-Blood-of-Dawnwalker_2025_01-13-25_016.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/0f34e08782a32f608a963298cfa0ebd3/The-Blood-of-Dawnwalker_2025_01-13-25_014.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 15#         楼主| 发表于 2025-1-14 15:26
+
+<img src="https://p.sda1.dev/21/83e0b32e15fb63b2eb3879ab26d48e45/The-Blood-of-Dawnwalker_2025_01-13-25_015.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/7c2f1250744775a3b167580d8bf55c75/The-Blood-of-Dawnwalker_2025_01-13-25_025.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 16#         楼主| 发表于 2025-1-14 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67176253&amp;ptid=2168141" target="_blank">Piano-Forest 发表于 2025-1-14 10:23</a>
+
+官网：https://dawnwalkergame.com/us/zh-cn/home
+
+PV（CG+实机先导PV；完整实机今年夏季公开）：https://yo ...</blockquote>
+波兰语PV：[https://youtu.be/hUhJ-JDiB6U](https://youtu.be/hUhJ-JDiB6U)
+
+*****
+
+####  Piano-Forest  
+##### 17#         楼主| 发表于 2025-1-15 00:35
+
+ 本帖最后由 Piano-Forest 于 2025-1-15 01:32 编辑 
+
+Rebel Wolve工作室：
+[https://rebel-wolves.com/](https://rebel-wolves.com/)
+[https://www.gamespress.com/Rebel ... ers-Form-a-New-Pack](https://www.gamespress.com/Rebel-WolvesFormer-Witcher-and-Cyberpunk-Co-Developers-Form-a-New-Pack)
+
+<img src="https://p.sda1.dev/21/f8ee96a9595731c6aef14e4ca8cf2ccd/20250115_003053.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 18#         楼主| 发表于 2025-1-15 01:47
+
+ 本帖最后由 Piano-Forest 于 2025-1-15 01:50 编辑 
+
+万代南梦宫设立的官网：
+[https://www.bandainamcoent.com/games/dawnwalker](https://www.bandainamcoent.com/games/dawnwalker)
+
+本次的新闻稿：
+
+The Blood of Dawnwalker - Rebel Wolves Unveiled Their Upcoming Narrative Sandbox Action RPG
+[https://www.bandainamcoent.com/news/the-blood-of-dawnwalker-reveal](https://www.bandainamcoent.com/news/the-blood-of-dawnwalker-reveal)
+
+“Inspired by classic RPGs, we want players to feel the sense of urgency in an open world game. There are multiple approaches to saving Coen’s family with no clear division between main and side quests, you decide on how you spend the time.”, explains Konrad Tomaszkiewicz, Game Director and Co-Founder of Rebel Wolves. “Time is a resource and with each quest progressing its passage, it is impossible to complete all stories and arcs before the dreadful deadline, making each playthrough unique. We call it a narrative sandbox.”
+
+“受经典角色扮演游戏的启发，我们希望玩家在开放世界游戏中感受到紧迫感。拯救科恩一家的方法有很多种，主线任务和支线任务之间没有明确的划分，你可以决定如何利用时间。” Rebel Wolves 的游戏总监兼联合创始人 Konrad Tomaszkiewicz 解释道。“时间是一种资源，随着每个任务的推进，不可能在可怕的截止日期之前完成所有故事和情节，这使得每次游戏都独一无二。我们称之为叙事沙盒。”
+
+*****
+
+####  Piano-Forest  
+##### 19#         楼主| 发表于 2025-1-15 10:01
+
+两首OST
+
+Desperate Measures：
+[https://youtu.be/HNzJYQyxfoA](https://youtu.be/HNzJYQyxfoA)
+
+Ballad of Night and Day：
+[https://youtu.be/s4kwMEPlZmk](https://youtu.be/s4kwMEPlZmk)
+
+*****
+
+####  Piano-Forest  
+##### 20#         楼主| 发表于 2025-1-29 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67176301&amp;ptid=2168141" target="_blank">Piano-Forest 发表于 2025-1-14 10:28</a>
+
+直播总结
+
+https://x.com/shinobi602/status/1878926236048830538
+
+The Blood of Dawnwalker | Details</blockquote>
+<img src="https://p.sda1.dev/21/68cc1225540e33f61903ab33078440dd/IMG_20250129_222411.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 21#         楼主| 发表于 2025-1-29 22:32
+
+人物介绍
+<img src="https://p.sda1.dev/21/9a4bc68db7c04abbac119ddae554fe2e/IMG_20250129_222827.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/1aaf4a070df474d96c863870fd3267d1/IMG_20250129_222853.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/b14166f30b8871907c03cbaa60b41ee4/IMG_20250129_222950.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/df9aaae693e9ed94633ec42e4c4c94d5/IMG_20250129_222915.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/21/b01b093f0be7b745258888b6ee779773/IMG_20250129_223032.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 22#         楼主| 发表于 2025-2-24 21:06
+
+[https://x.com/shinobi602/status/1893046525502099773](https://x.com/shinobi602/status/1893046525502099773)
+<img src="https://p.sda1.dev/22/96704045fbfb132fb1349a8147fba27b/IMG_20250224_210450.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 23#         楼主| 发表于 2025-6-9 01:13
+
+2026年发售
+
+*****
+
+####  Piano-Forest  
+##### 24#         楼主| 发表于 2025-6-9 01:14
+
+实机新PV：[https://youtu.be/DhCuMS4JiKQ](https://youtu.be/DhCuMS4JiKQ)
+
+*****
+
+####  Piano-Forest  
+##### 25#         楼主| 发表于 2025-6-9 11:27
+
+On the first day of summer, June 21st, gather round at twitch.tv/DawnwalkerGame for a ~45min live stream:
+
+☼ approx. 15 mins of gameplay with presentation of features
+
+☼ dev insights into the game’s magic, traversal, and combat systems
+
+☼ epic music
+
+☼ and more!
+<img src="https://p.sda1.dev/24/54d9535c35ecb9884e3e03f279a9984b/20250609_112531.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 26#         楼主| 发表于 2025-6-22 13:33
+
+【《黎明行者之血》游戏玩法介绍】 
+[https://b23.tv/To6M9PV](https://b23.tv/To6M9PV)
+
+*****
+
+####  Jabeck  
+##### 27#       发表于 2025-6-22 13:42
+
+这战斗啊，既视感太足了，而且节奏感觉好慢。。。不太看好。
+
+*****
+
+####  isa2456  
+##### 28#       发表于 2025-6-23 10:42
+
+巫师3即视感太强了，但是这个时候能复刻出一个巫师3也没什么不好的，支持
+
+*****
+
+####  Piano-Forest  
+##### 29#         楼主| 发表于 2026-4-22 22:04
+
+4月29日0点新情报
+
+new open world gameplay
+
+Story Trailer
+
+RELEASE DATE
+
+system reqs
+
+dev insights into the game’s open world &amp; storytelling
+
+epic music
+
+and much, much more!
+
+*****
+
+####  Piano-Forest  
+##### 30#         楼主| 发表于 2026-4-29 00:14
+
+ 本帖最后由 Piano-Forest 于 2026-4-29 01:12 编辑 
+
+剧情PV：[https://youtu.be/jVQiJ9ci0HI](https://youtu.be/jVQiJ9ci0HI)
+
+9月3日发售
+[https://store.steampowered.com/a ... lood_of_Dawnwalker/](https://store.steampowered.com/app/3751260/The_Blood_of_Dawnwalker/)
+[https://store.playstation.com/zh-hant-hk/concept/10013855/](https://store.playstation.com/zh-hant-hk/concept/10013855/)
+
+*****
+
+####  laputah  
+##### 31#       发表于 2026-4-29 00:30
+
+四方向攻击与防御，每打一个小怪都要盯累死了啊，后期应该有清小怪神技的吧…
+
+*****
+
+####  水边井  
+##### 32#       发表于 2026-4-29 09:05
+
+打斗像是十年前的游戏
+
+—— 来自 HUAWEI NOH-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  ybfelix  
+##### 33#       发表于 2026-4-29 09:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=69551054&amp;ptid=2168141" target="_blank">水边井 发表于 2026-4-29 09:05</a>
+
+打斗像是十年前的游戏
+
+—— 来自 HUAWEI NOH-AL10, Android 12, 鹅球 v3.5.99</blockquote>
+话说巫师3也十一年了
+
+*****
+
+####  The_Fool_  
+##### 34#       发表于 2026-5-4 19:53
+
+[https://www.bilibili.com/video/BV1wcRYBPE48/](https://www.bilibili.com/video/BV1wcRYBPE48/)
+
+迫真精神续作，但这个开放世界+全程时间限制的风评估计不会好，做任务过时间也就算了，点个天赋居然也要过时间
+
+*****
+
+####  Piano-Forest  
+##### 35#         楼主| 发表于 2026-7-8 00:13
+
+媒体前瞻已公开
+
+*****
+
+####  就是剑鞘  
+##### 36#       发表于 2026-7-8 00:41
+
+B站这个点更新的前瞻评测很少啊
+[《黎明行者之血》是我2026年的年度黑马游戏 前瞻评测与试玩报告【吸血鬼 开放世界 动作RPG 单机游戏】](https://www.bilibili.com/video/BV1BjMb6YE3x/)
+
+光看评测感觉就是巫师3DLC了
+
+*****
+
+####  BK10  
+##### 37#       发表于 2026-7-8 01:23
+
+这游戏卖70刀，作为一个小开发商这么自信定价这游戏最好有点东西，卖相来说看着就是中等规模的游戏，无论是画面还是动作
+
+*****
+
+####  枯风瘦雪  
+##### 38#       发表于 2026-7-8 06:29
+
+商单铺得还挺欢实，赶紧来确认一下发售日期
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Schwarzess  
+##### 39#       发表于 2026-7-8 08:10
+
+是我喜欢的中世纪草药女医生。<img src="https://static.stage1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 40#         楼主| 发表于 2026-8-26 23:45
+
+【《黎明行者之血》发售预告 | gamescom 2026】 
+[https://b23.tv/ar2kRe4](https://b23.tv/ar2kRe4)
+
+主机版（PS5/Xbox Series X|S）北京时间9月3日午夜0点解锁
+
+PC版（Steam/Epic）北京时间9月3日早6点解锁
+
+
+*****
+
+####  Piano-Forest  
+##### 41#         楼主| 发表于 2026-8-31 23:57
+
+IGN 9
+[https://www.ign.com/articles/the-blood-of-dawnwalker-review](https://www.ign.com/articles/the-blood-of-dawnwalker-review)
+
+GS 8
+[https://www.gamespot.com/reviews/the-blood-of-dawnwalker-review/](https://www.gamespot.com/reviews/the-blood-of-dawnwalker-review/)
+
+MC 83
+[https://www.metacritic.com/game/the-blood-of-dawnwalker/](https://www.metacritic.com/game/the-blood-of-dawnwalker/)
+

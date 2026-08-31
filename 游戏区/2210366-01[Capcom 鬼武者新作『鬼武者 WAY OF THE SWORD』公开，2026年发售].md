@@ -2188,3 +2188,35 @@ fami通新演示把战斗系统基本全透了，手觉醒破防、足觉醒回�
 
 主线没啥问题，战斗爽就是了
 
+
+*****
+
+####  zqqwe  
+##### 908#       发表于 2026-8-31 23:48
+
+大鵺一堆招式动作是怨虎龙<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">素材库真好用
+
+*****
+
+####  恋妖壶  
+##### 909#       发表于 2026-8-31 23:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179919&amp;ptid=2210366" target="_blank">zqqwe 发表于 2026-8-31 23:48</a>
+
+大鵺一堆招式动作是怨虎龙素材库真好用</blockquote>
+没那么边缘，这游戏底子就很荒野大剑啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 910#       发表于 2026-8-31 23:50
+
+女角色有种如龙早期女角色的美，平安时代元素较多
+
+*****
+
+####  conanoysq  
+##### 911#       发表于 2026-8-31 23:52
+
+又刷了一会儿百秽，感觉角力和拼刀这两个纯表演性质的动作太拖节奏和断节奏了，尤其是角力纯连打就行，毫无乐趣。而且明明可以弹开或者化劲的绝好机会给我吞了，真的很不爽。但愿这两个是需要在技能树中点出来，而不是默认就给。而且没有关联其他系统的话，那就可以直接不点出来了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

@@ -2879,3 +2879,23 @@ haikku5？
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  neptunehs  
+##### 12123#       发表于 2026-8-31 23:44
+
+但如果直接v5 那v4系也太短命了吧
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+
+*****
+
+####  舞以  
+##### 12124#       发表于 2026-8-31 23:51
+
+半年一代差不多吧，v4预览版发布都好久了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
