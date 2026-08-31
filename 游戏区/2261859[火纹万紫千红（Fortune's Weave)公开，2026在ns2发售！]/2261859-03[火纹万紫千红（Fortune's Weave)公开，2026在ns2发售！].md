@@ -2807,3 +2807,11 @@ PDD港邮328（用V3-50券）又有了。
 
 正好刷到了，363。不等了<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黛冬優子  
+##### 3216#       发表于 2026-8-31 20:00
+
+想要限定版，但是又不想等太久
+

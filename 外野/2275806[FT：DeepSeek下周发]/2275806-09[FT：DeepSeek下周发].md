@@ -2136,3 +2136,51 @@ glm那flash反响不错吗？笑了。
 下面一水都在抨击mit许可的，是不是因为智谱宣布开源，但是 ...</blockquote>
 没懂，ds和智谱不都是mit么
 
+
+*****
+
+####  nxmonitor  
+##### 12043#       发表于 2026-8-31 19:58
+
+GLM5.3-Flash这个TPS谁能忍啊？而且我严重怀疑关于这模型的测试结果是有什么问题……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一般市民  
+##### 12044#       发表于 2026-8-31 19:59
+
+Z/这次营销确实挺卖力的 <img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空き地卯木  
+##### 12045#       发表于 2026-8-31 20:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178471&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-31 19:32</a>
+刚刚刷到了知乎推给我的glm-5.3（flash）的问题
+
+下面一水都在抨击mit许可的，是不是因为智谱宣布开源，但是 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好经典的性价比无用论，典型的安卓思维安卓领导安卓模型
+就是上一个这么说的也降价了，现在在哪发财呐
+
+*****
+
+####  →熙←  
+##### 12046#       发表于 2026-8-31 20:01
+
+glm5.3 flash智商是不太够的, 有点蠢的
+<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">我都是用5.3的
+
+
+*****
+
+####  沙发沙发  
+##### 12047#       发表于 2026-8-31 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178582&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-8-31 20:00</a>
+
+好经典的性价比无用论，典型的安卓思维安卓领导安卓模型
+
+就是上一个这么说的也降价了，现在在哪发财呐 ...</blockquote>
+但好歹是真降价了，可惜现在安静的跟死了一样，也不知道啥时候能有点动静
+
