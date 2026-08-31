@@ -2635,3 +2635,13 @@ a\最大的问题还是企业叙事和fable这种“模型神话”绑太死了
 听说有抽奖用插件是吗    Re:Source</blockquote>
 没啥抽的必要。目前看起来，能中的一两下就中，不能的一百次也不中，另外就是今天并不稳定，坠机率挺高的。
 
+
+*****
+
+####  SmterC  
+##### 12097#       发表于 2026-8-31 22:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179349&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-8-31 22:07</a>
+没啥抽的必要。目前看起来，能中的一两下就中，不能的一百次也不中，另外就是今天并不稳定，坠机率挺高的 ...</blockquote>
+看来是这样的，抽了快40次，最后也没中    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
