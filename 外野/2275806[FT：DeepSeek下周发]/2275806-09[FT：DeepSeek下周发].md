@@ -1183,3 +1183,24 @@ coding plan的商业逻辑和网盘的一样的，就是将用不完额度的用
 
 —— 来自 Xiaomi 2510DRK44C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  med  
+##### 11954#       发表于 2026-8-31 10:15
+
+GLM5.3F是谁在吹啊，完全打不过dsv4fv，比ds蠢，还慢一倍，试了3个任务就受不了了。
+
+这周部署一下qwen3.8，准备把老qwen替换一下。
+
+*****
+
+####  来都来了  
+##### 11955#       发表于 2026-8-31 10:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175045&amp;ptid=2275806" target="_blank">7776169 发表于 2026-8-31 10:10</a>
+这几天就用腾子那玩意来给自己的ai画图反推tag
+
+我只能说国产模型的甲真的薄</blockquote>
+能分享一下反推的方法吗，用什么工具？
+
