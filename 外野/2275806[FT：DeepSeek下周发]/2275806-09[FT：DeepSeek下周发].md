@@ -1152,3 +1152,11 @@ Hermes agent本身就支持对接各种聊天工具的，包括但不限于微�
 
 coding plan的商业逻辑和网盘的一样的，就是将用不完额度的用户补贴能用玩的用户，拉低平均使用成本。但因为中转站的存在，这个基本商业逻辑的基层就破产，成本无限接近于api定价。随着ai厂融资越来越难，涨价基本上是大势所趋
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 11951#       发表于 2026-8-31 10:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">gpt的网安g点也太特么低了，我审了一遍仓库把报告扔给他让他对症下药结果思考几分钟被毙了
+
