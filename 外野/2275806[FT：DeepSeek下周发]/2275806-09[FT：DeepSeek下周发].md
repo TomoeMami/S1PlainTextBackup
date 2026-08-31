@@ -1591,3 +1591,26 @@ qwen3.8 flash指令遵从试下来感觉非常好啊 work check verdict 的loop�
 
 — from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  tillnight  
+##### 11991#       发表于 2026-8-31 12:45
+
+<blockquote>空き地卯木 发表于 2026-8-31 11:19
+5小时额度得用6轮才能用完，能清完比较奇怪</blockquote>
+实际六轮都不够，因为现在到周限会直接中断任务，五小时的最后20%很难使用。最早是会把当前任务干完，且不扣周限。后面改成会把当前任务完成，超出部分还会在周限里扣，现在恢复五小时以后悄悄改成了超过五小时限额直接掐水管。
+
+说白了就是不让你多开plus的方式用了，目前这个五小时限额方式干不了一点重活，要么至少上5x。
+
+*****
+
+####  startraveller  
+##### 11992#       发表于 2026-8-31 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175084&amp;ptid=2275806" target="_blank">med 发表于 2026-8-31 10:15</a>
+GLM5.3F是谁在吹啊，完全打不过dsv4fv，比ds蠢，还慢一倍，试了3个任务就受不了了。
+
+这周部署一下qwen3.8 ...</blockquote>
+梁子啥时候开一下 ds4fv 的源啊，能看图还是方便不少
+
