@@ -1822,3 +1822,27 @@ codex今天一直报错，新的模型要上了吗？
 
 我看起来也不像高价值用户啊<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蛋黄酱Release  
+##### 12014#       发表于 2026-8-31 18:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178013&amp;ptid=2275806" target="_blank">eno_emos 发表于 2026-8-31 18:04</a>
+我注册了阿里云和火山引擎以后这俩老给我打电话回访
+
+我看起来也不像高价值用户啊 ...</blockquote>
+火山推广力度还挺大的，给我发了好几次体验卡了，但是实在是不咋好用<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">每次我用完也不会续费
+
+
+*****
+
+####  toou1234  
+##### 12015#       发表于 2026-8-31 18:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175084&amp;ptid=2275806" target="_blank">med 发表于 2026-8-31 10:15</a>
+GLM5.3F是谁在吹啊，完全打不过dsv4fv，比ds蠢，还慢一倍，试了3个任务就受不了了。
+
+这周部署一下qwen3.8 ...</blockquote>
+对！我也是这样感觉    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
