@@ -1630,3 +1630,27 @@ Hy4-preview今天过了10点又开始频繁429了 <img src="https://static.stage
 
 怎么这些大厂的infra还不如牢梁的，之前V4F大杀四方的时候也没那么多问题吧
 
+
+*****
+
+####  →熙←  
+##### 11995#       发表于 2026-8-31 13:09
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">都等着牢梁拉呢, 不然吃什么
+
+*****
+
+####  phorcys02  
+##### 11996#       发表于 2026-8-31 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175422&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-8-31 10:57</a>
+
+commandcode我周末抓了一下相关资料，找到有负面信息这个是和opencodego一样的货色，goat套餐表面上有60 ...</blockquote>
+我前面贴了我的 command code goat的用量图，
+
+如果你能严格遵守：只蹬v4f, 只在梁文谷蹬。
+
+基本上量还是能保证的，如果超过缓存（99%+)的用途， 基本上就是 week 3B, month 6B 这个水平。
+
+性价比还是很高的，v4f应该是自部署的（不一定是他们自己部署），人少时候有300token/s+，人多就只有100出头。量化程度体感是智力持平或者略低于官网，但不影响我使用。
+
