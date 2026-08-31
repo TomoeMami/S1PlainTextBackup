@@ -71,3 +71,15 @@
 
 啊，这......
 
+
+*****
+
+####  stoiorz  
+##### 5935#       发表于 2026-8-31 18:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">打不动了，一点都打不动了。打工毫无乐趣了。
+
+很久之前说的能把技能带到打工模式就好了的愿望在突击队实现了。
+
+想有个大更新，想用新地图，想实现在sp3里击杀攒大招，想穿越，想飞天，想变成造字的仓颉，想make salmon-run great again。
+

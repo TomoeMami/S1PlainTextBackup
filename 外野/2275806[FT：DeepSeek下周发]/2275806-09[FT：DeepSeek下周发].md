@@ -1856,3 +1856,32 @@ opencode go月额度蹬没了
 command 周限额了
 想用qwen3.8flash  哪个订阅便宜啊
 
+
+*****
+
+####  startraveller  
+##### 12017#       发表于 2026-8-31 18:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178121&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-31 18:24</a>
+opencode go月额度蹬没了
+command 周限额了
+想用qwen3.8flash  哪个订阅便宜啊</blockquote>
+qoder 自家咯，这几天还送 Qwen max，不过好像今天最后一天了。
+
+*****
+
+####  唠叨  
+##### 12018#       发表于 2026-8-31 18:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178154&amp;ptid=2275806" target="_blank">startraveller 发表于 2026-8-31 18:30</a>
+qoder 自家咯，这几天还送 Qwen max，不过好像今天最后一天了。</blockquote>
+我要接入hermes用  已经是hermes的形状了 回不去了
+
+
+*****
+
+####  泰坦失足  
+##### 12019#       发表于 2026-8-31 18:35
+
+我用gemini 3.7 flash在系统上做了个新功能, 然后让sol review. sol怒骂了一顿3.7 flash, 一堆问题
+
