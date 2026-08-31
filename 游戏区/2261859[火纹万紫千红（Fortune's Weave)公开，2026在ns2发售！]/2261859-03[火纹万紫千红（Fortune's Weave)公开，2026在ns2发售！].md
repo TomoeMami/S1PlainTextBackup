@@ -2728,3 +2728,13 @@ pdd补贴最近能刷到320+的日版，不想折腾的这个价格也可以了<
 
 这人设黑是黑了，丑谈不上了，总不能个个都是帝弥托利把，而且山猪说实话。。。我玩风花时候感觉就一般，从我一个男性的角度，风花好像没有一个男角色塑造的让我感觉很好很有感觉，硬要说的话好兄弟算一个吧。<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  66367749  
+##### 3208#       发表于 2026-8-31 17:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177400&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-31 16:12</a>
+我看贴吧反应更多是嫌丑，之前那个嫖的也是觉得人丑又嫖。 就这些可招可不招的角色也能应激，也是没谁了。 ...</blockquote>
+嫌丑在某些时候是一种伪装，比如某些女性角色身材好或者穿得清凉会被骂衣着丑<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

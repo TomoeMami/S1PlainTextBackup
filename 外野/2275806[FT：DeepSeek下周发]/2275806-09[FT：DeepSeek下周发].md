@@ -1800,3 +1800,25 @@ codex今天一直报错，新的模型要上了吗？
 
 现在有没有什么划算的订阅，感觉opencodego蹬几下就没了
 
+
+*****
+
+####  cscbzcbz  
+##### 12012#       发表于 2026-8-31 17:57
+
+ 本帖最后由 cscbzcbz 于 2026-8-31 17:59 编辑 
+
+我去，中转站直接给我打电话推销产品了<img src="https://static.stage1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+还是我从来没在ai平台上注册过账号的手机号，不知道怎么泄漏的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  eno_emos  
+##### 12013#       发表于 2026-8-31 18:04
+
+我注册了阿里云和火山引擎以后这俩老给我打电话回访
+
+我看起来也不像高价值用户啊<img src="https://static.stage1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
