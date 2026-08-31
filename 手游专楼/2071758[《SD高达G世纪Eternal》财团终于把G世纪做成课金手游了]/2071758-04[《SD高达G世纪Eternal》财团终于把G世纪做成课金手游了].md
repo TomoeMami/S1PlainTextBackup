@@ -289,3 +289,11 @@ V除了V2没什么高人气机体吧，前半出V2AB，后半复刻加强再出�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">V2直接拆成A+B+AB出三台好不好啊
 
+
+*****
+
+####  ティグル  
+##### 4657#       发表于 2026-8-31 11:10
+
+2V大概率要进ULT，不然先出个2V也挺好的
+

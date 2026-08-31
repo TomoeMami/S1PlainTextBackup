@@ -1416,3 +1416,61 @@ dv4f还是最可靠的flash。
 自从五小时加回来之后，reset之后，每周刷新的结束日期好像也会顺延了，记得之前是不变的。 ...</blockquote>
 Codex一开始就是这样，Claude重置后不会更新日期，GLM好像也不会
 
+
+*****
+
+####  来都来了  
+##### 11974#       发表于 2026-8-31 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175237&amp;ptid=2275806" target="_blank">7776169 发表于 2026-8-31 10:36</a>
+什么都不用啊，我直接把图传上去，然后叫他生成哪一类模型（比如我是用anima的，我就叫他生成可以给anima ...</blockquote>
+不用工具吗？那我破完甲其实什么限制都没有，不过我总觉得不用专门的工具不够准确，不知道是不是我心理作用。
+
+*****
+
+####  Gmlazy  
+##### 11975#       发表于 2026-8-31 11:10
+
+等不了重置了，先看看GPT能做到什么程度吧。
+
+<img src="https://img.stage1st.com/forum/202608/31/110922zifmif6l0l0luz5m.png" referrerpolicy="no-referrer">
+
+<strong>e8eff243-eb80-43ab-9ff6-1756d4488372.png</strong> (357.3 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-31 11:09 上传
+
+*****
+
+####  7776169  
+##### 11976#       发表于 2026-8-31 11:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175539&amp;ptid=2275806" target="_blank">来都来了 发表于 2026-8-31 11:08</a>
+不用工具吗？那我破完甲其实什么限制都没有，不过我总觉得不用专门的工具不够准确，不知道是不是我心理作 ...</blockquote>
+其实这种活有专门的本地小的模型来做。我只是懒得折腾，同时感叹国产模型甲真的很薄（）
+
+—— 来自 Xiaomi 2510DRK44C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  love4aids  
+##### 11977#       发表于 2026-8-31 11:15
+
+槽，我的gpt5*额度，怎么天天重置啊，我都没用出去
+
+妈的没赚到token跟吃亏了一样
+
+*****
+
+####  xiaohanne  
+##### 11978#       发表于 2026-8-31 11:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175600&amp;ptid=2275806" target="_blank">love4aids 发表于 2026-8-31 11:15</a>
+
+槽，我的gpt5*额度，怎么天天重置啊，我都没用出去
+
+妈的没赚到token跟吃亏了一样 ...</blockquote>
+我昨天实在想不到让他干什么了就让他给我上服务器部署反代antigravity去了……虽然用到的概率可能不大……
+
