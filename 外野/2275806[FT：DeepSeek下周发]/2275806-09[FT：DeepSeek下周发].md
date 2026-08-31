@@ -2036,3 +2036,40 @@ Hy4-preview做的大制作demo搞好了 <img src="https://static.stage1st.com/im
 
 唐老师真有点恨梁子？
 
+
+*****
+
+####  来都来了  
+##### 12034#       发表于 2026-8-31 19:43
+
+z/肯定是恨deepseek的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 12035#       发表于 2026-8-31 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178471&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-31 19:32</a>
+刚刚刷到了知乎推给我的glm-5.3（flash）的问题
+
+下面一水都在抨击mit许可的，是不是因为智谱宣布开源，但是 ...</blockquote>
+咋可能不恨，没有梁子，他都不会开源<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  王兰花秀丽  
+##### 12036#       发表于 2026-8-31 19:45
+
+也不能说恨吧，我也认为智能的上限才是壁垒，你看5.6luna那个水平就因为sol足够强也能沾上光
+
+另外刷到混元团队直接放一周假，看来真的很满意<img src="https://static.stage1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
+1000052762.png
+(398.54 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-31 19:45 上传
+
+<img src="https://img.stage1st.com/forum/202608/31/194552psz5zop7pnn05npu.png" referrerpolicy="no-referrer">
+

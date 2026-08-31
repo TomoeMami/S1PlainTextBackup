@@ -2799,3 +2799,11 @@ PDD港邮328（用V3-50券）又有了。
 
 这中秋国庆连着，香港直邮能国庆前到吗<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雨翼free  
+##### 3215#       发表于 2026-8-31 19:40
+
+正好刷到了，363。不等了<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
