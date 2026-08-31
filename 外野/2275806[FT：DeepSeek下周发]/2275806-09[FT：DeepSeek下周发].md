@@ -2974,3 +2974,18 @@ v模型有原生4bit，应该能开更大的上下文吧
 
 大力蹬了两个半小时官方的qwen3.8flash   这个用量比我想象的耐用一点  智力和速度我很满意 
 
+
+*****
+
+####  tonyunreal  
+##### 12132#       发表于 2026-9-1 00:39
+
+dsh团队怎么老是半夜更新alpha版啊 <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  serj005  
+##### 12133#       发表于 2026-9-1 00:42
+
+蹬glm5.3flash的注意思考必须开high,不能开max，官方和民间测试这玩意max是纯负提升，雷霆思考思维链长好几倍结果最终能力和high没区别
+
