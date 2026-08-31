@@ -102,3 +102,27 @@ xbg最后的音乐应该开始录了
 xbg pv我发现所有的镜头里，草和树都在晃动，感觉是在凸显风的存在，风肯定是环境叙事里重要的一环，就跟xb ...</blockquote>
 其实Wii上的一代原版树叶是会动的，后来应该是引擎渲染方式的升级，为了全局光照或者是投影一类的原因，就把树叶的抖动给取舍掉了
 
+
+*****
+
+####  misya  
+##### 2058#       发表于 2026-9-1 05:52
+
+<img src="https://img.stage1st.com/forum/202609/01/054840phkbluxb6aeuobnh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-09-01-05-39-51-50_df198e732186825c8df26e3c5a10d7cd.jpg</strong> (265.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-1 05:48 上传
+
+<img src="https://img.stage1st.com/forum/202609/01/054840fbthh5h1r3e0j27w.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2026-09-01-05-39-15-52_df198e732186825c8df26e3c5a10d7cd.jpg</strong> (296.97 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-1 05:48 上传
+
+基本好确定5月底第一次录音，这次第二次，本月能混音的话那基本上明年第二季度5 6月发售吧，按清田说的难道这次nd有片？
+
