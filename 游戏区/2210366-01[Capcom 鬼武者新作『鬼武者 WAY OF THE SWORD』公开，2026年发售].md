@@ -2127,3 +2127,43 @@ GS:支线乏味且缺乏新意
 
 评测说了有很多类似新鬼武者里面呢支线任务和类似鬼武侠挑战的内容在里面，但是没说幻魔空间
 
+
+*****
+
+####  Huiiii  
+##### 902#       发表于 2026-8-31 23:29
+
+如果正片里塞能十个百秽这样设计级别的boss就爽了
+
+*****
+
+####  zqqwe  
+##### 903#       发表于 2026-8-31 23:29
+
+fami通新演示把战斗系统基本全透了，手觉醒破防、足觉醒回避远程后可以快速近身、变身后一闪判定变宽+大招
+
+锤子打耐力效果很强，一次半管没了，崩一闪出魂很快又能循环
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 904#       发表于 2026-8-31 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179759&amp;ptid=2210366" target="_blank">u2deack 发表于 2026-8-31 23:22</a>
+
+包注水的啊不然哪来那么长流程，打肥仔前面那段跑路给你来七八个小时
+
+要玩还不如早点通关解锁高难度或者刷b ...</blockquote>
+要是流程被跑图和敷衍的战点占据，会损害关卡的重复游玩价值，只能玩玩bossrush了，二周目不考虑
+
+
+*****
+
+####  黑暗之眼  
+##### 905#       发表于 2026-8-31 23:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70172564&amp;ptid=2210366" target="_blank">恋妖壶 发表于 2026-8-30 21:39</a>
+
+一直都是防御+X啊，我从没用过推方向也没见过</blockquote>
+<img src="https://www.ign.com.cn/sm/t/ign_cn/screenshot/default/onimusha-way-of-the-sword-20260820161859_vjhy.1920.jpg" referrerpolicy="no-referrer">
+

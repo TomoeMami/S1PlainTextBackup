@@ -2816,3 +2816,36 @@ flash那边不知道什么情况
 
 —— 来自 HUAWEI SGT-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  tonyunreal  
+##### 12116#       发表于 2026-8-31 23:28
+
+听说现在抽不到了？
+
+*****
+
+####  舞以  
+##### 12117#       发表于 2026-8-31 23:30
+
+结束了吧大概<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+**，能不能直接上啊梁子
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  tillnight  
+##### 12118#       发表于 2026-8-31 23:36
+
+还是能抽到，而且pro也还是能抽到。
+
+*****
+
+####  qwased  
+##### 12119#       发表于 2026-8-31 23:37
+
+卧槽哈基米网页版是可以直连的吗，忘记开梯子了直接上去问了个问题，看见他思考了一下然后我就再也不能用了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
