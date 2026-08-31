@@ -2656,3 +2656,49 @@ pdd补贴最近能刷到320+的日版，不想折腾的这个价格也可以了<
 承认一下花痴人设和好色人设是什么难事儿吗？</blockquote>
 不是难事，只不过花痴好(男女）色人设前面好几个了，怎么只有男角色会有人应激。
 
+
+*****
+
+####  Jabeck  
+##### 3200#       发表于 2026-8-31 16:12
+
+ 本帖最后由 Jabeck 于 2026-8-31 16:14 编辑 
+
+我看贴吧反应更多是嫌丑，之前那个嫖的也是觉得人丑又嫖。<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 就这些可招可不招的角色也能应激，也是没谁了。
+
+
+*****
+
+####  Kuebiko  
+##### 3201#       发表于 2026-8-31 16:14
+
+牛逼 这也能吵
+
+*****
+
+####  mai6696  
+##### 3202#       发表于 2026-8-31 16:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177376&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-31 16:06</a>
+
+不是难事，只不过花痴好(男女）色人设前面好几个了，怎么只有男角色会有人应激。 ...</blockquote>
+所以就是猥琐人设轻浮人设被喷了啊。
+
+不是异性恋被喷了。
+
+不知道为啥能扯这么久。
+
+*****
+
+####  1wq1  
+##### 3203#       发表于 2026-8-31 16:16
+
+前面有大谈特谈dei，现在有人来人设取向之流，专楼定期刷野怪了吧
+
+*****
+
+####  mai6696  
+##### 3204#       发表于 2026-8-31 16:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你看这里还有人扯性取向，我说真的注意点用词吧。
+
