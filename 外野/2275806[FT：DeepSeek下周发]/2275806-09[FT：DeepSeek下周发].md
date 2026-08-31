@@ -2434,3 +2434,143 @@ dsh0.1.2alpha2发布了，还上了npm，要尝鲜的漏油可以装了
 我这次直接把我在捣鼓的项目扔给他了，不是搞个demo测试了</blockquote>
 小心随时坠机……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王兰花秀丽  
+##### 12078#       发表于 2026-8-31 21:26
+
+我才知道A/宣布额度提升25%，实际上是从之前的提升50%降低到25%，相当于降低17%
+
+如果能在v4fv刷到灰测，那岂不是这个模型也能识图？    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  舞以  
+##### 12079#       发表于 2026-8-31 21:27
+
+跑了半个小时了，好像还没坠机<img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nxmonitor  
+##### 12080#       发表于 2026-8-31 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179106&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-31 21:27</a>
+
+跑了半个小时了，好像还没坠机
+
+论坛助手,iPhone</blockquote>
+吐字很慢就没坠机……
+
+
+*****
+
+####  舞以  
+##### 12081#       发表于 2026-8-31 21:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179101&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-31 21:26</a>
+
+我才知道A/宣布额度提升25%，实际上是从之前的提升50%降低到25%，相当于降低17%
+
+如果能在v4fv刷到灰测，那 ...</blockquote>
+应该以后ds的模型都会加识图了吧，看ve的说明，ds的视觉塔很小的，主要是要做联合训练
+
+
+*****
+
+####  御坂MKII  
+##### 12082#       发表于 2026-8-31 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179101&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-8-31 21:26</a>
+
+我才知道A/宣布额度提升25%，实际上是从之前的提升50%降低到25%，相当于降低17%
+
+如果能在v4fv刷到灰测，那 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推特上又是一波喷 a/ 的，而且不仅是这个事儿
+
+a/ 的 20x 只是 5 小时用量是 5x 的 4 倍，周限制实际是 5x 的 2 倍<img src="https://static.stage1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+举世无双的市场命名
+
+*****
+
+####  tonyunreal  
+##### 12083#       发表于 2026-8-31 21:32
+
+好像开始大面积坠机了 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 12084#       发表于 2026-8-31 21:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179131&amp;ptid=2275806" target="_blank">御坂MKII 发表于 2026-8-31 21:31</a>
+
+推特上又是一波喷 a/ 的，而且不仅是这个事儿
+
+a/ 的 20x 只是 5 小时用量是 5x 的 4 倍，周限制实际是 5 ...</blockquote>
+牛逼啊a\
+
+
+*****
+
+####  nxmonitor  
+##### 12085#       发表于 2026-8-31 21:34
+
+很好奇这A\的上市计划被Astra狙击还怎么办呢？我看是憋不出更好的模型了……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 12086#       发表于 2026-8-31 21:34
+
+<img src="https://img.stage1st.com/forum/202608/31/213403y0v72fv9o7hevnnf.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (16.17 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-31 21:34 上传
+
+我也出了次报错，但是目前还是在deep diving加上不出字，看起来还没坠机？
+
+*****
+
+####  我猫呢?  
+##### 12087#       发表于 2026-8-31 21:34
+
+灰到了，完全没有废话和雷霆思考，熟悉的超理性思维链，这就是你的真正实力吗大肥鱼
+
+*****
+
+####  舞以  
+##### 12088#       发表于 2026-8-31 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179153&amp;ptid=2275806" target="_blank">我猫呢? 发表于 2026-8-31 21:34</a>
+
+灰到了，完全没有废话和雷霆思考，熟悉的超理性思维链，这就是你的真正实力吗大肥鱼 ...</blockquote>
+思维链好看可能是灰测模型做了遮盖哈哈
+
+*****
+
+####  厍无春  
+##### 12089#       发表于 2026-8-31 21:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179150&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-31 21:34</a>
+很好奇这A\的上市计划被Astra狙击还怎么办呢？我看是憋不出更好的模型了…… ...</blockquote>
+我看这deepseek也憋着呢，等着狙击A出上市吃一口大的
+
+*****
+
+####  舞以  
+##### 12090#       发表于 2026-8-31 21:36
+
+a\最大的问题还是企业叙事和fable这种“模型神话”绑太死了
+
+但是fable本质并不是下一代模型
+
+补充：在疯狂524报错了，不会要坠机了吧
+
