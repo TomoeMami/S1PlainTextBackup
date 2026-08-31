@@ -91,3 +91,14 @@ xbg pv我发现所有的镜头里，草和树都在晃动，感觉是在凸显�
 
 xbg最后的音乐应该开始录了
 
+
+*****
+
+####  findpkq  
+##### 2057#       发表于 2026-9-1 00:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70170635&amp;ptid=2283074" target="_blank">richardkisser 发表于 2026-8-30 13:03</a>
+
+xbg pv我发现所有的镜头里，草和树都在晃动，感觉是在凸显风的存在，风肯定是环境叙事里重要的一环，就跟xb ...</blockquote>
+其实Wii上的一代原版树叶是会动的，后来应该是引擎渲染方式的升级，为了全局光照或者是投影一类的原因，就把树叶的抖动给取舍掉了
+

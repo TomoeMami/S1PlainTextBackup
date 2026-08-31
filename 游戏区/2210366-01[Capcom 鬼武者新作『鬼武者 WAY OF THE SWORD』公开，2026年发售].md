@@ -2318,3 +2318,25 @@ demo里的百秽几个动作模组和好像就是复用boss畏风的.....
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们先吃，我再等等
 
+
+*****
+
+####  黑暗之眼  
+##### 924#       发表于 2026-9-1 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179993&amp;ptid=2210366" target="_blank">conanoysq 发表于 2026-9-1 00:00</a>
+
+刚刚看到一个评测直接喷了：杂兵种数量之少，乃近年来罕见。居然能做到杂兵种类比Boss还少，反过来可以理解 ...</blockquote>
+怎么的鬼武者以前有很多种类杂兵吗？
+
+*****
+
+####  MRhythm  
+##### 925#       发表于 2026-9-1 00:28
+
+今天又发现两个细节.
+
+一是如果不锁定百秽, 故意背对的话, 格挡和一闪的动作会不一样, 百秽被带得转圈圈的动作也稍有不同.
+
+二是肥肥boss问武藏, 你到底是人是鬼, 武藏答谁知道呢, 我自己都搞不太清楚. 一开始没注意, 后来才反应过来这不是DMC3的但丁名台词吗, "Who knows? I'm not even sure myself." 自家玩自家梗还行
+

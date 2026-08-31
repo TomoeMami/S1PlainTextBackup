@@ -2936,3 +2936,41 @@ gpt的Astra这两周也应该出了吧，希望超过fable
 然后第三天就解了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 看网上说这个会员很可能会被收回，但十几块钱给一堆哈基米额度还有点opus4.6，用一周都是赚
 
+
+*****
+
+####  qwased  
+##### 12129#       发表于 2026-9-1 00:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180075&amp;ptid=2275806" target="_blank">linekm 发表于 2026-9-1 00:22</a>
+老板买了两台Spark给我们玩，现在思考是部署个glm5.3 flash还是ds4 flash vision</blockquote>
+干活ds，拿来玩可以试试qwen 3.8next，我看反馈说千问这个前几十k上下文智力非常好，过了一百k立马变成幻觉大王<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 12130#       发表于 2026-9-1 00:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180075&amp;ptid=2275806" target="_blank">linekm 发表于 2026-9-1 00:22</a>
+
+老板买了两台Spark给我们玩，现在思考是部署个glm5.3 flash还是ds4 flash vision</blockquote>
+v模型有原生4bit，应该能开更大的上下文吧
+
+红迪上应该很快就一堆交流帖了
+
+
+*****
+
+####  唠叨  
+##### 12131#       发表于 2026-9-1 00:33
+
+<img src="https://img.stage1st.com/forum/202609/01/003249kxrw3rkbe1kdwkw1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-1 00:32 上传
+
+大力蹬了两个半小时官方的qwen3.8flash   这个用量比我想象的耐用一点  智力和速度我很满意 
+
