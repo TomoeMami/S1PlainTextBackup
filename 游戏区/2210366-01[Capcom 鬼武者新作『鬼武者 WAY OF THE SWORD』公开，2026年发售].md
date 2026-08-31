@@ -1957,3 +1957,33 @@ PDD的现货没意义，问了能不能明天顺丰，公式化说5天内发货�
 
 从试玩版的体验来看，这游戏的通关后终盘挑战搞个那种刷Boss/连战的玩法，是最大化这游戏长板的地方了
 
+
+*****
+
+####  若菜  
+##### 883#       发表于 2026-8-31 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178333&amp;ptid=2210366" target="_blank">u2deack 发表于 2026-8-31 19:03</a>
+
+有没有通关后的挑战模式或者boss再战是最关心的，流程我是真的没什么指望，就跟怪物猎人我只想要斗技场差不 ...</blockquote>
+有训练场，可以选boss打
+
+*****
+
+####  conanoysq  
+##### 884#       发表于 2026-8-31 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178333&amp;ptid=2210366" target="_blank">u2deack 发表于 2026-8-31 19:03</a>
+有没有通关后的挑战模式或者boss再战是最关心的，流程我是真的没什么指望，就跟怪物猎人我只想要斗技场差不 ...</blockquote>
+这个有的，之前官方就讲过，所有boss都可以再挑战
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  u2deack  
+##### 885#       发表于 2026-8-31 20:10
+
+那我有点想买ns2版了，随时拿出来刷几盘boss还是很爽的
+
