@@ -2989,3 +2989,26 @@ dsh团队怎么老是半夜更新alpha版啊 <img src="https://static.stage1st.c
 
 蹬glm5.3flash的注意思考必须开high,不能开max，官方和民间测试这玩意max是纯负提升，雷霆思考思维链长好几倍结果最终能力和high没区别
 
+
+*****
+
+####  startraveller  
+##### 12134#       发表于 2026-9-1 00:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180103&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-1 00:28</a>
+干活ds，拿来玩可以试试qwen 3.8next，我看反馈说千问这个前几十k上下文智力非常好，过了一百k立马变成幻 ...</blockquote>
+目前来说，ds4fv最成熟稳定。Qwen 3.8 Flash到昨天为止部署方案还有bug，不过据说今天修了。GLM 5.3 FLASH现在两台部署EXL3 还是有点慢（20tps级），prefill也有点慢，等Mia等大神继续修一下再看。
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  startraveller  
+##### 12135#       发表于 2026-9-1 01:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179032&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-31 21:16</a>
+百炼的token plan能比api直接用便宜多少？</blockquote>
+问了下在用的，说不咋地，要用阿里系模型还是qoder，虽然额度也不多但是时不时送点
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
