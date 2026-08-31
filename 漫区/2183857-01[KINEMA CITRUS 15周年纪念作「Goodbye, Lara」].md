@@ -2397,3 +2397,14 @@ bd访谈预览
 这集和上集都接不上了吧 上集结尾拉拉一副想开了的样子 这集突然就又开始急得跳脚了 ...</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">回合制动画，每集都有新想法
 
+
+*****
+
+####  madness  
+##### 480#       发表于 2026-8-31 20:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70176569&amp;ptid=2183857" target="_blank">云梦泽岸 发表于 2026-8-31 13:57</a>
+
+但是一是动画片里面的宗教元素对剧情没有任何帮助，这么几集下来都是在找爱体验爱有目的爱，老太太是个牧 ...</blockquote>
+我八奇一个，怕不是落到和黎凡特三教都挺有出入的“爱自己”上。
+
