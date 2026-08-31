@@ -555,3 +555,12 @@ MC 83
 
 美术和战斗铁一般。叙事再强也能给到85+？
 
+
+*****
+
+####  Schwarzess  
+##### 44#       发表于 2026-9-1 00:44
+
+还行...？
+先玩这个还是先玩鬼武者有点犹豫的，主要是卡表现在成本控制太牛逼了。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
