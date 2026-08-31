@@ -2366,3 +2366,24 @@ bd访谈预览
 
 小红书刷到帖子，小姨变成鲤鱼了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 带走口令，来【小红书】发现精彩~
 
+
+*****
+
+####  leleq  
+##### 477#       发表于 2026-8-31 16:33
+
+ 本帖最后由 leleq 于 2026-8-31 16:35 编辑 
+
+演到这问题已经有点藏不住了，还是那个说法，这片元素太少了只有一个“真实之爱”
+
+你谜语人不是不行但要给出同等级的答案，现在还在谜语人，要么你还有大的但你的单一元素决定了不可能有什么大货，那么大概率的原因就是谜底太短了只能靠谜语人来硬造戏剧冲突和拖时间……<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 478#       发表于 2026-8-31 16:33
+
+<blockquote>糖尔 发表于 2026-8-31 14:32
+小红书刷到帖子，小姨变成鲤鱼了 再见菈菈第九集 看到ncbi的界面就喷了 光速追番暂停nc... https://xhslink ...</blockquote>
+芙莉这话说姨妈状态不好的台词，总感觉姨妈是有点死亡FLAG
+
