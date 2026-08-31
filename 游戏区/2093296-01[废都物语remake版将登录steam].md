@@ -201,3 +201,29 @@ gta6也是22年说在做了吧
 
 原作有很多明显做得很粗糙的部分，或者作者做累了随便糊弄糊弄的部分，其实希望改一改。
 
+
+*****
+
+####  volanta  
+##### 944#       发表于 2026-8-31 08:50
+
+不是这帖子又被顶上来，我都快忘了这茬子事了
+
+
+*****
+
+####  突发性哮喘病患  
+##### 945#       发表于 2026-8-31 08:55
+
+唯一能解释的就是在美术上下了很多工夫，然后开发人手又不足，怪物立绘插画又需要很多的时间
+
+*****
+
+####  kuarwbwe  
+##### 946#       发表于 2026-8-31 08:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70172664&amp;ptid=2093296" target="_blank">风使塞缇 发表于 2026-8-30 21:58</a>
+
+什么时候上NS2</blockquote>
+起码等发售以后半年到一年吧，看他们这个速度，精力只够管一个pc。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
