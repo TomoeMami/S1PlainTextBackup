@@ -2582,3 +2582,35 @@ a\最大的问题还是企业叙事和fable这种“模型神话”绑太死了
 
 怎么有灰测,没刷到,亏了
 
+
+*****
+
+####  我猫呢?  
+##### 12092#       发表于 2026-8-31 21:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179159&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-31 21:35</a>
+思维链好看可能是灰测模型做了遮盖哈哈</blockquote>
+不要啊，我的超冷静大肥鱼<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+似乎新思维链下最不确定性的表达也就是I'm confirming，I'm figuring out 还有 I should之类的，几乎不走回头路
+
+
+*****
+
+####  舞以  
+##### 12093#       发表于 2026-8-31 21:56
+
+ 本帖最后由 舞以 于 2026-8-31 21:57 编辑 
+
+我的好像一直没坠机，刚刚1h跑完了，追问还是雷霆首字延迟。
+
+憋了好久开始吐字了，还是熟悉的分块输出。
+
+*****
+
+####  xiaohanne  
+##### 12094#       发表于 2026-8-31 21:57
+
+喷了，workbuddy的glm5.3flash除了要积分，还有使用量限制……刚才弹了个使用量到达上限明天继续让切换模型……
+
+唉，藤子确实不值得信任。
+
