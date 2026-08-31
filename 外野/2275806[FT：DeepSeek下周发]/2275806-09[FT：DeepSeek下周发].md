@@ -3012,3 +3012,22 @@ dsh团队怎么老是半夜更新alpha版啊 <img src="https://static.stage1st.c
 
 —— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+
+*****
+
+####  厍无春  
+##### 12136#       发表于 2026-9-1 01:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180118&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-9-1 00:33</a>
+大力蹬了两个半小时官方的qwen3.8flash   这个用量比我想象的耐用一点  智力和速度我很满意  ...</blockquote>
+token 用量能发一下参考吗？缓存命中率多少？
+
+*****
+
+####  厍无春  
+##### 12137#       发表于 2026-9-1 01:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180103&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-1 00:28</a>
+干活ds，拿来玩可以试试qwen 3.8next，我看反馈说千问这个前几十k上下文智力非常好，过了一百k立马变成幻 ...</blockquote>
+因为是原生256k，1m上下文是扩展的
+
