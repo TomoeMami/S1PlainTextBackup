@@ -2916,3 +2916,14 @@ Neil Druckmann on Leaving ‘The Last of Us,’ His New Game ‘Intergalactic’
 过场动补拍摄完成……</blockquote>
 wrnm别来蹭cowboy bebop。<img src="https://static.stage1st.com/image/smiley/nq/007.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  缺德猫  
+##### 282#       发表于 2026-9-1 03:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180268&amp;ptid=2210380" target="_blank">Piano-Forest 发表于 2026-9-1 01:40</a>
+
+过场动补拍摄完成……</blockquote>
+这个演员根本没有那么男性化啊，为啥预告片里那么恶心，我服了
+
