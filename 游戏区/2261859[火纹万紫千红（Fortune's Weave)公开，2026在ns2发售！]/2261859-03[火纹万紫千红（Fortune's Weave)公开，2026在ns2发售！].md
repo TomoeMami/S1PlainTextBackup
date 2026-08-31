@@ -2213,3 +2213,94 @@ pdd补贴最近能刷到320+的日版，不想折腾的这个价格也可以了<
 
 请继续你的表演。
 
+
+*****
+
+####  mai6696  
+##### 3163#       发表于 2026-8-31 14:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70176831&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-31 14:46</a>
+
+【角色介绍】莉利安（CV：#齐藤朱夏#）
+
+战斗方式稳健的弓箭手。
+
+拥有从远距离单方面攻击敌人的本领。</blockquote>
+所以呢？
+
+这就是喜好，而不是性取向，很难理解吗？
+
+其他人不写难道都是不婚主义者？
+
+*****
+
+####  Jabeck  
+##### 3164#       发表于 2026-8-31 14:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70176851&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-8-31 14:49</a>
+
+所以呢？
+
+这就是喜好，而不是性取向，很难理解吗？</blockquote>
+又来搞双标了，写喜欢女人是要送女人，写喜欢XX类型的男人就是喜好罢了，无伤大雅。正反都被你说完了，也是NB。
+
+性取向女等于喜欢女人又不等于喜欢女人。
+
+有些人事业心为重，有些人以泡妞为重，这逻辑很难理解吗？
+
+
+*****
+
+####  theyoung  
+##### 3165#       发表于 2026-8-31 14:55
+
+本质还是这哥们人设不好看，换个传统帅哥说喜欢女人就没那么多喷的了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mai6696  
+##### 3166#       发表于 2026-8-31 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70176875&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-31 14:53</a>
+
+又来搞双标了，写喜欢女人是要送女人，写喜欢XX类型的男人就是喜好罢了，无伤大雅。正反都被你说完了，也 ...</blockquote>
+所以啊，那几个男的无非就是强调花花~公子/中央空调/要么就是爱逛窑子。
+
+就像巴西miku也是经典的花痴女性向，二次元里不少见。
+
+有人不喜欢这种喜好设置所以喷，我表示理解。
+
+拿性取向来找补救没意义吧。
+
+*****
+
+####  空气先生  
+##### 3167#       发表于 2026-8-31 14:55
+
+喜欢的东西：帅哥和年长男这都是带属性的喜好。
+
+男性除了小绿（喜欢美女）和希洛克（泛爱）,就是新出的两个，爱玩女性和一个单字女。这人物介绍真的不简陋吗（
+
+这六个角色凑一队天天看花痴女花痴男发狂玩家就舒服了。
+
+*****
+
+####  Jabeck  
+##### 3168#       发表于 2026-8-31 14:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70176895&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-8-31 14:55</a>
+
+所以啊，那几个男的无非就是强调花花~公子/中央空调/要么就是爱逛窑子。
+
+就像巴西miku也是经典的花痴女性 ...</blockquote>
+不是有些人一直说喜欢女人是性取向不应该是喜好吗？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+理解啥？女的这两个角色这种喜欢咋没人喷？
+
+*****
+
+####  cox  
+##### 3169#       发表于 2026-8-31 14:57
+
+巴西初音就是喜欢帅哥，只不过她见到的第一个帅哥是A少，还救了她的命，这不就是火纹风陵渡么，估计以后眼里放不下其他人了。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

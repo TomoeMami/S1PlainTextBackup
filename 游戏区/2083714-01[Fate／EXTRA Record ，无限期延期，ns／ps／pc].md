@@ -1908,3 +1908,16 @@ TYPE-MOON宣布《Fate/EXTRA Record》的新发行商确定为Aniplex。9月7日
 
 se出来的会不会都不太行，一群饭桶
 
+
+*****
+
+####  ナルバレック  
+##### 187#       发表于 2026-8-31 14:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175811&amp;ptid=2083714" target="_blank">格林卡罗尔 发表于 2026-8-31 11:44</a>
+
+我怎么感觉是新纳一斋在搞贪污
+
+—— 来自 Xiaomi 24117RK2CC, Android 16, 鹅球 v3.5.99-alpha ...</blockquote>
+型月的利润是惊天地泣鬼神的，本社那么点人造了那么大个楼还绰绰有余，做了这么多年，随便贪污还做不明白那确实说不过去
+
