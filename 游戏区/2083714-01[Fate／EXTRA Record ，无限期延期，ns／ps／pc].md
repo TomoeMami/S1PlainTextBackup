@@ -2013,3 +2013,67 @@ fsr能做出来的原因不就是找光荣外包起码人手管够了。
 
 fsr不是光荣全包吗
 
+
+*****
+
+####  ナルバレック  
+##### 198#       发表于 2026-8-31 17:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177384&amp;ptid=2083714" target="_blank">ShiKi847 发表于 2026-8-31 16:09</a>
+
+螺旋社不是还有小野翼德和ff15的美术总监，一堆做过3a的人，也没见出个fgo 3a级别的游戏啊
+
+蘑菇和月批的究 ...</blockquote>
+菌菇真口胡过开放世界月姬，没口胡过开放世界FATE
+
+螺旋社也有个意味不明的3A项目一直在做，给索尼集团二把手十时两年前演示过，我感觉能比当年庄司的樱花大战靠谱就算赢了，庄司早年好像是最终幻想11的运营吧
+
+*****
+
+####  宛若青空  
+##### 199#       发表于 2026-8-31 17:29
+
+<blockquote>从官方给出的制品情报显示，本作开发已更改为“Meteorise”（曾负责过《红色的炼金术士和白色的守护者 蕾斯莱莉娅娜的炼金工房》的开发），「TYPE-MOON studio BB」的存续或许都堪忧……</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/31/172928cwchsg6d1d11rsk0.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5827.jpeg</strong> (188.6 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-31 17:29 上传
+
+*****
+
+####  ナルバレック  
+##### 200#       发表于 2026-8-31 17:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177455&amp;ptid=2083714" target="_blank">sgssk 发表于 2026-8-31 16:19</a>
+
+fgo利润泣鬼神我毫不怀疑，但“型月”泣到什么层次是黑箱吧再怎么核心团队，如果当初没很大出资那也就算几 ...</blockquote>
+型月本社连20个人都没有，分成只有百分之一都泣鬼神了，还能在东京为这么点人建个大楼
+
+
+*****
+
+####  格林卡罗尔  
+##### 201#       发表于 2026-8-31 17:32
+
+看了下日本那边的说法，比较主流的是制作人脱离手下员工一事无成是很正常的。
+
+还有种说法是万代是把准时发售看得胜过一切的公司，而型月是不知道什么叫准时发售，所以夹在中间的新纳一哉最后引咎辞职了
+
+*****
+
+####  ナルバレック  
+##### 202#       发表于 2026-8-31 17:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177443&amp;ptid=2083714" target="_blank">ネロ 发表于 2026-8-31 16:18</a>
+
+不要管官方和当事人怎么说
+
+一个做了n年还出不来，负责人还中途提桶跑路的游戏，把它当成一坨不可燃垃圾是绝 ...</blockquote>
+FE原作游戏性烂到逆天，不如80年代大部分红白机游戏的游戏性
+
+能重制纯纯是一言堂大人菌菇太喜欢FE了，但是FE老版本身说实话剧本也很民科（菌菇算是个民科百科全书，主流民科几乎全看过，却认为是SF），游戏性就是石头剪刀布加对话....
+
