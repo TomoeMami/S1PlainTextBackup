@@ -1941,3 +1941,42 @@ ds周末都有人传权重么<img src="https://static.stage1st.com/image/smiley/
 
 我觉得hy4在workbuddy不是特别好用，我让他改个css，结果直接给我换格式了，还没有问我。
 
+
+*****
+
+####  斯卡文分则能成  
+##### 12026#       发表于 2026-8-31 18:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177669&amp;ptid=2275806" target="_blank">UmarIbnLaAhad 发表于 2026-8-31 16:55</a>
+
+需要便宜干活模型的坛友可以去试试十几块一年的Gemini pro，哈基米3.7flash是真的量大管饱，体验根本蹬不完 ...</blockquote>
+咋整啊有教程嘛，我就想写点网页看板啥的好向老大交差要预算<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  斯卡文分则能成  
+##### 12027#       发表于 2026-8-31 19:05
+
+GLM的免费额度用的也太快了，老是给我加一些我没有提的功能是为啥<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  →熙←  
+##### 12028#       发表于 2026-8-31 19:06
+
+glm用爽了, 发现发了2个重置<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+神v1套餐!
+
+*****
+
+####  startraveller  
+##### 12029#       发表于 2026-8-31 19:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178293&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-31 18:57</a>
+ds周末都有人传权重么
+
+论坛助手,iPhone</blockquote>
+周一上班了
+
