@@ -2387,3 +2387,13 @@ bd访谈预览
 小红书刷到帖子，小姨变成鲤鱼了 再见菈菈第九集 看到ncbi的界面就喷了 光速追番暂停nc... https://xhslink ...</blockquote>
 芙莉这话说姨妈状态不好的台词，总感觉姨妈是有点死亡FLAG
 
+
+*****
+
+####  pzk  
+##### 479#       发表于 2026-8-31 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70173782&amp;ptid=2183857" target="_blank">renkan119 发表于 2026-8-31 01:21</a>
+这集和上集都接不上了吧 上集结尾拉拉一副想开了的样子 这集突然就又开始急得跳脚了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">回合制动画，每集都有新想法
+

@@ -2014,3 +2014,25 @@ Hy4-preview做的大制作demo搞好了 <img src="https://static.stage1st.com/im
 
  最近开发还是很开心的
 
+
+*****
+
+####  舞以  
+##### 12033#       发表于 2026-8-31 19:32
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚刚刷到了知乎推给我的glm-5.3（flash）的问题
+
+下面一水都在抨击mit许可的，是不是因为智谱宣布开源，但是许可换成了私有许可协议<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还刷到了一个疑似智谱员工的抖音截图
+
+<img src="https://img.stage1st.com/forum/202608/31/193221moegegkz4o36o47u.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (219.39 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-31 19:32 上传
+
+唐老师真有点恨梁子？
+
