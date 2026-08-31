@@ -1885,3 +1885,59 @@ qoder 自家咯，这几天还送 Qwen max，不过好像今天最后一天了�
 
 我用gemini 3.7 flash在系统上做了个新功能, 然后让sol review. sol怒骂了一顿3.7 flash, 一堆问题
 
+
+*****
+
+####  泰坦失足  
+##### 12020#       发表于 2026-8-31 18:48
+
+Sol得每隔一段时间让它从第一性原理进行反思和修改, 不然它能不停地叠重复设计
+
+*****
+
+####  tonyunreal  
+##### 12021#       发表于 2026-8-31 18:52
+
+[https://huggingface.co/deepseek-ai/DeepSeek-V4-Flash-Vision-Exp](https://huggingface.co/deepseek-ai/DeepSeek-V4-Flash-Vision-Exp)
+
+ds v模型已在HF开放权重
+
+
+*****
+
+####  startraveller  
+##### 12022#       发表于 2026-8-31 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178264&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-31 18:52</a>
+https://huggingface.co/deepseek-ai/DeepSeek-V4-Flash-Vision-Exp
+
+ds v模型已在HF开放权重</blockquote>
+Spark 有救了
+
+*****
+
+####  cscbzcbz  
+##### 12023#       发表于 2026-8-31 18:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178264&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-31 18:52</a>
+https://huggingface.co/deepseek-ai/DeepSeek-V4-Flash-Vision-Exp
+
+ds v模型已在HF开放权重</blockquote>
+这是终于想起来了吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 12024#       发表于 2026-8-31 18:57
+
+ds周末都有人传权重么<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  脸宽  
+##### 12025#       发表于 2026-8-31 18:57
+
+我觉得hy4在workbuddy不是特别好用，我让他改个css，结果直接给我换格式了，还没有问我。
+
