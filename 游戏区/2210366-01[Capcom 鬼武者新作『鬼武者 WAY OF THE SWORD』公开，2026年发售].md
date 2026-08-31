@@ -2014,3 +2014,37 @@ PDD的现货没意义，问了能不能明天顺丰，公式化说5天内发货�
 
 几把百秽下来感觉自己豪情万丈，但回头想想只是一直按攻击和几下闪避而已，这就是让菜鸟觉得自己打很帅的感觉么。
 
+
+*****
+
+####  YY骑士  
+##### 889#       发表于 2026-8-31 22:58
+
+豪华版没送季票，这是没dlc？
+
+
+*****
+
+####  夜雨秋水  
+##### 890#       发表于 2026-8-31 23:05
+
+ign给了10分。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Piano-Forest  
+##### 891#         楼主| 发表于 2026-8-31 23:05
+
+ 本帖最后由 Piano-Forest 于 2026-8-31 23:07 编辑 
+
+IGN 10
+[https://www.ign.com/articles/onimusha-way-of-the-sword-review](https://www.ign.com/articles/onimusha-way-of-the-sword-review)
+
+GS 8
+[https://www.gamespot.com/reviews ... f-the-sword-review/](https://www.gamespot.com/reviews/onimusha-way-of-the-sword-review/)
+
+MC 86
+[https://www.metacritic.com/game/onimusha-way-of-the-sword/](https://www.metacritic.com/game/onimusha-way-of-the-sword/)
+

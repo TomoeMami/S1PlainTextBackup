@@ -2704,3 +2704,47 @@ flash那边不知道什么情况
 
 这段时间让AI帮我搓的桌面宠物，可以监控DSH/Hermes/MAA/ComfyUI，接口开放。
 
+
+*****
+
+####  舞以  
+##### 12105#       发表于 2026-8-31 22:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179558&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-31 22:50</a>
+
+怎么了？有很大区别吗？</blockquote>
+不知道啊，感觉没啥区别，我还以为坛友发现了啥变化呢<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+估计是这个模型有多模态，所以放在现在唯一官方支持多模态的接入点后面做下测试？
+
+*****
+
+####  tonyunreal  
+##### 12106#       发表于 2026-8-31 23:03
+
+感觉灰测模型过于自信了，测一波就交付了，小bug也是有点
+
+这给Hy4-preview得测个8轮
+
+
+*****
+
+####  →熙←  
+##### 12107#       发表于 2026-8-31 23:04
+
+看了这次小明这次放的视频, 小镇细节错误太多了, 依然不行啊
+
+里面的细节才是逻辑的核心
+
+*****
+
+####  nxmonitor  
+##### 12108#       发表于 2026-8-31 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179628&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-31 23:03</a>
+
+感觉灰测模型过于自信了，测一波就交付了，小bug也是有点
+
+这给Hy4-preview得测个8轮 ...</blockquote>
+因为灰测Pro是罕见的思维链高效模型，Flash自然也会一个样
+
