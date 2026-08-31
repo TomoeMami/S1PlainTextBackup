@@ -2676,3 +2676,31 @@ a\最大的问题还是企业叙事和fable这种“模型神话”绑太死了
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个灰测模型和之前pro后面的是一个模型么？
 
+
+*****
+
+####  tonyunreal  
+##### 12102#       发表于 2026-8-31 22:49
+
+pro灰测应该和之前灰测是同一个档次的模型（ds ultra？）
+
+flash那边不知道什么情况
+
+*****
+
+####  nxmonitor  
+##### 12103#       发表于 2026-8-31 22:50
+
+<blockquote>舞以 发表于 2026-8-31 22:45
+这个灰测模型和之前pro后面的是一个模型么？</blockquote>
+怎么了？有很大区别吗？
+
+*****
+
+####  noneoneone  
+##### 12104#       发表于 2026-8-31 22:53
+
+[https://www.bilibili.com/video/BV1BJta6oEba/](https://www.bilibili.com/video/BV1BJta6oEba/)
+
+这段时间让AI帮我搓的桌面宠物，可以监控DSH/Hermes/MAA/ComfyUI，接口开放。
+

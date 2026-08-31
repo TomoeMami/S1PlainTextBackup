@@ -2135,3 +2135,24 @@ FE原作游戏性烂到逆天，不如80年代大部分红白机游戏的游戏�
 
 型月本社做电子小说起家的，能有几个码农干活都是问题。指望他们不找外包或者正经扩张正常做电子游戏就是不大现实的事。
 
+
+*****
+
+####  ナルバレック  
+##### 208#       发表于 2026-8-31 22:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179408&amp;ptid=2083714" target="_blank">adretyu67. 发表于 2026-8-31 22:19</a>
+
+型月本社做电子小说起家的，能有几个码农干活都是问题。指望他们不找外包或者正经扩张正常做电子游戏就是不 ...</blockquote>
+这个BB是子公司，新纳一哉加入后，本社投资建立的，所谓的做大型游戏的分支，虽然目前零产出，第一作都是那么蛋疼
+
+*****
+
+####  adretyu67.  
+##### 209#       发表于 2026-8-31 22:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179574&amp;ptid=2083714" target="_blank">ナルバレック 发表于 2026-8-31 22:54</a>
+
+这个BB是子公司，新纳一哉加入后，本社投资建立的，所谓的做大型游戏的分支，虽然目前零产出，第一作都是 ...</blockquote>
+所以就是说扩张失败了吧。早点外包早点解放。
+
