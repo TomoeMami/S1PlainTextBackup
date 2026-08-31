@@ -1743,3 +1743,20 @@ ds拉完了？（
 
 —— 来自 samsung SM-S9380, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  love4aids  
+##### 12006#       发表于 2026-8-31 16:52
+
+Selected model is at capacity. Please try a different model.
+
+codex今天一直报错，新的模型要上了吗？
+
+*****
+
+####  UmarIbnLaAhad  
+##### 12007#       发表于 2026-8-31 16:55
+
+需要便宜干活模型的坛友可以去试试十几块一年的Gemini pro，哈基米3.7flash是真的量大管饱，体验根本蹬不完，我顺手让他给几台电脑做了很多小调优了；另外这个套餐还有单独池子的一点opus4.6 thinking，不多但是可以拿来干稍微重一点的任务<img src="https://static.stage1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+

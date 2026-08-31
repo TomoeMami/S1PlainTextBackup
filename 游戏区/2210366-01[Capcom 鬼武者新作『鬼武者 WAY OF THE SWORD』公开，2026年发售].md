@@ -1744,3 +1744,24 @@ demo打一会儿老是卡住崩溃是什么原因啊，调低了各种画质，�
 20小时左右的流程的话，估计boss数量还是有一定保证的吧</blockquote>
 风雷每个单独打一次，然后1v2一次，一共三场。佐佐木起码三场、一次普通一次变身后被打败一次复仇，手掌哥看剧情第一次也逃跑了，也至少两场。20次boss战肯定有了
 
+
+*****
+
+####  conanoysq  
+##### 862#       发表于 2026-8-31 16:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177617&amp;ptid=2210366" target="_blank">若菜 发表于 2026-8-31 16:45</a>
+
+偷跑的说主线20小时，支线10小时。目前demo的量占游戏的5%</blockquote>
+我不信主线能有20小时，一定是偷跑的人太菜了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CswStar  
+##### 863#       发表于 2026-8-31 16:54
+
+<blockquote>ShiKi847 发表于 2026-8-30 20:43
+怎么那么多人都首发卡普空，卡表的游戏必定3年开发周期半成品等DLC出完，我现在都等完全版再玩 ...</blockquote>
+
+demo表现出的技术力太强了，有些人(比如我)好这一口就等不了
+
