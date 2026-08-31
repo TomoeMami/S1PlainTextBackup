@@ -2393,3 +2393,35 @@ pdd补贴最近能刷到320+的日版，不想折腾的这个价格也可以了<
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你自己也知道这里是喜好而不是取向，那说“男人喜欢女人”难道不是偷换概念？
 
+
+*****
+
+####  theyoung  
+##### 3177#       发表于 2026-8-31 15:13
+
+闹麻了，之前西洛克喜欢女人，怎么没人说西洛克喜欢嫖娼。
+
+我说句难听的，有些人就是潜意识里认为丑男不配谈恋爱，只能去嫖娼
+
+*****
+
+####  Jabeck  
+##### 3178#       发表于 2026-8-31 15:13
+
+ 本帖最后由 Jabeck 于 2026-8-31 15:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70176973&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-8-31 15:07</a>
+
+借用3146和3148的话来说。
+
+实际上这几位更多是喜欢嫖或者喜欢打炮。</blockquote>
+实际不就是男人喜欢女人也被喷？喜欢嫖的那个明说了，喜欢女人和喜欢嫖你能分清楚吗。。。如果换种说法，喜欢搭讪女性是不是体面多了？实际上两者差别也很大。
+
+所以那两个女角色也是想跟帅哥和大叔打炮呗。为啥没人出来激动？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  はちたや  
+##### 3179#       发表于 2026-8-31 15:17
+
+真佩服你们，围着几个丑b也能撕出手游角色厨饭圈的氛围感
+
