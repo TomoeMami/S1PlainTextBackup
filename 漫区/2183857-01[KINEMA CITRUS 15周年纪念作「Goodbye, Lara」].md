@@ -2417,3 +2417,12 @@ bd访谈预览
 还没看第九集，但前八集一直在解决菈菈的恐惧问题，不给茉里添麻烦逞强要走被留下，目睹闺蜜被拒绝后振作起来展望未来的可能性，了解到卢卡也会害怕因为物种不同被拒绝并听到了对两百年前指责的callback而释怀，对茉里坦诚自己也很害怕然后最终决定回到岸上去探索可能
 爱自己作为解答的我觉得是挺大的，毕竟爱海底然后光芒守护城堡(且疑似人会没了)是个非常可疑的事情
 
+
+*****
+
+####  aptx8285144  
+##### 482#       发表于 2026-8-31 22:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70167581&amp;ptid=2183857" target="_blank">Alicest 发表于 2026-8-29 18:23</a></blockquote>
+拉拉这身高明显就是鱼的长度，魔女姑姑怕辣的，这对于魔女而言也挺讽刺的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
