@@ -145,3 +145,13 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">京哥挑了接近一季大梁然后这么恶意的手法给人删号+杨过，关键是三小只也是一直啃老，别的不说，一个究极体都没有，一通机械降神的话观看只会更烂
 
+
+*****
+
+####  失落之翼  
+##### 768#       发表于 2026-8-31 10:47
+
+这片就体现一个反派深思熟虑精准布局，我方咸鱼度日遇事就是喊着友情啊希望啊上头莽逆境送，他喵的旁边个反派金星盯着完全不防备是吧，你说说都被明着偷袭过几次了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+等等，上面这段我好像在某个数码宝贝游戏剧情讨论贴也说过？
+

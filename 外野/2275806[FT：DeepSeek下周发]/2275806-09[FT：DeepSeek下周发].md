@@ -1320,3 +1320,45 @@ GLM5.3F是谁在吹啊，完全打不过dsv4fv，比ds蠢，还慢一倍，试�
 
 被5小时卡了，周额度用不完
 
+
+*****
+
+####  biye  
+##### 11966#       发表于 2026-8-31 10:47
+
+周末注册了commandcode  今天就接到了中间站电话 
+
+配置起来 发现还不在一些主流harness支持列表里
+
+同样是DeepSeek V4 Flash 就感觉相比其他中转站弱智 查了查是交互中直接丢了部分区块
+
+这中转站是不是问题有点大
+
+
+*****
+
+####  squallx  
+##### 11967#       发表于 2026-8-31 10:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175277&amp;ptid=2275806" target="_blank">七氷 发表于 2026-8-31 10:41</a>
+
+被5小时卡了，周额度用不完</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">最好别有体力强迫症 真成手游了
+
+*****
+
+####  drodchang  
+##### 11968#       发表于 2026-8-31 10:53
+
+o家的astra快来了，据说可能有质的提高，拭目以待吧
+
+*****
+
+####  matthewsteel  
+##### 11969#       发表于 2026-8-31 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175244&amp;ptid=2275806" target="_blank">空き地卯木 发表于 2026-8-31 10:37</a>
+
+我看错时间了，特么的连续两天重置太雷霆了</blockquote>
+自从五小时加回来之后，reset之后，每周刷新的结束日期好像也会顺延了，记得之前是不变的。
+
