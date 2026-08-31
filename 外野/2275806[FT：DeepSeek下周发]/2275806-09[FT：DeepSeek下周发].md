@@ -1771,3 +1771,16 @@ codex今天一直报错，新的模型要上了吗？
 需要便宜干活模型的坛友可以去试试十几块一年的Gemini pro，哈基米3.7flash是真的量大管饱，体验根本蹬不完 ...</blockquote>
 咸鱼吗?  需要反代反重力那个?
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 12009#       发表于 2026-8-31 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177703&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-8-31 17:02</a>
+
+咸鱼吗?  需要反代反重力那个?</blockquote>
+我是闲鱼买的，自创小号入手后被光速封号，然后申诉又活了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我个人的话目前是直接用antigravity cli在用，没碰到梯子节点被封杀问题
+
