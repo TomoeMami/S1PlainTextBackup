@@ -2748,3 +2748,22 @@ flash那边不知道什么情况
 这给Hy4-preview得测个8轮 ...</blockquote>
 因为灰测Pro是罕见的思维链高效模型，Flash自然也会一个样
 
+
+*****
+
+####  舞以  
+##### 12109#       发表于 2026-8-31 23:12
+
+不知道这次的灰测检查点到底是“下一代flash”的备选项还是和之前pro灰测是一个检查点，毕竟这次挂到了fve上面，flash/vision哪个是ds的动机也不知道。
+
+
+*****
+
+####  tillnight  
+##### 12110#       发表于 2026-8-31 23:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179683&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-31 23:12</a>
+
+不知道这次的灰测检查点到底是“下一代flash”的备选项还是和之前pro灰测是一个检查点，毕竟这次挂到了fve ...</blockquote>
+并不是啊，pro一样抽到的。同提示词对比感觉不是一个模型。
+

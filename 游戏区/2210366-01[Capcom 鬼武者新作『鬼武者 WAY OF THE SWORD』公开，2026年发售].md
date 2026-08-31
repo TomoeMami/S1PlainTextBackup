@@ -2048,3 +2048,43 @@ GS 8
 MC 86
 [https://www.metacritic.com/game/onimusha-way-of-the-sword/](https://www.metacritic.com/game/onimusha-way-of-the-sword/)
 
+
+*****
+
+####  古怪山庄士大夫  
+##### 892#       发表于 2026-8-31 23:13
+
+好像好久没见ign给10分了
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 893#       发表于 2026-8-31 23:14
+
+看到出分怕涨价还是拼多多266买了港版
+
+*****
+
+####  古怪山庄士大夫  
+##### 894#       发表于 2026-8-31 23:15
+
+gs给八说的是故事节奏问题，以及支线水撑不起半开放世界，感觉还行
+
+*****
+
+####  starwarszjm  
+##### 895#       发表于 2026-8-31 23:17
+
+IGN:支线内容出色，剧情有趣且环环相扣
+
+GS:支线乏味且缺乏新意
+
+要不你俩先武士对决一下<img src="https://static.stage1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NTの末裔  
+##### 896#       发表于 2026-8-31 23:18
+
+看了几个评价都是中规中矩，和预期的差不多。说是全支线，收集，25小时多点
+
