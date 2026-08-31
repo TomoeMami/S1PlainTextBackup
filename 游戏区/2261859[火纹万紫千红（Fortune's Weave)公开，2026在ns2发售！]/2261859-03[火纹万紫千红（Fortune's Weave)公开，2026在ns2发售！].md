@@ -2137,3 +2137,79 @@ pdd补贴最近能刷到320+的日版，不想折腾的这个价格也可以了<
 
 不然写在喜好里的意义是？
 
+
+*****
+
+####  406  
+##### 3159#       发表于 2026-8-31 14:40
+
+目前只有蓝黑皮明确到喜欢玩女人，其他三个是所有的女性，美丽的女性，女。还挺有差别的
+
+*****
+
+####  Jabeck  
+##### 3160#       发表于 2026-8-31 14:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70176759&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-8-31 14:36</a>
+
+性取向和喜好是两码事吧。
+
+不如说普通的异性恋根本不需要强调。
+
+写在这里不就是明说了“喜欢玩女人”么？</blockquote>
+笑死，女角色喜欢这些东西的时候怎么没见人出来喷难道能送活人。<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+巴西初音：喜欢帅哥。意思是玩帅哥？
+
+绿毛：可怜的人/
+
+
+*****
+
+####  mai6696  
+##### 3161#       发表于 2026-8-31 14:44
+
+ 本帖最后由 mai6696 于 2026-8-31 14:45 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70176802&amp;ptid=2261859" target="_blank">Jabeck 发表于 2026-8-31 14:42</a>
+
+笑死，女角色喜欢这些东西的时候怎么没见人出来喷难道能送活人。
+
+巴西初音：喜欢帅哥。意思是玩帅哥？ ...</blockquote>
+巴西miku不就是喜欢A少吗？
+
+看看是不是见谁都犯花痴咯。
+
+到时候真是见一个爱一个，某些洁癖症又要狠狠破防咯。
+
+*****
+
+####  Jabeck  
+##### 3162#       发表于 2026-8-31 14:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70176814&amp;ptid=2261859" target="_blank">mai6696 发表于 2026-8-31 14:44</a>
+
+巴西miku不就是喜欢A少吗？
+
+到时候看看是不是见谁都犯花痴咯。</blockquote>
+【角色介绍】莉利安（CV：#齐藤朱夏#）
+
+战斗方式稳健的弓箭手。
+
+拥有从远距离单方面攻击敌人的本领。
+
+■喜欢的东西：金币、宝石、年长的男性
+
+■兴趣：储蓄、狩猎
+
+【角色介绍】艾丝梅拉尔达（CV：#菱川花菜#）
+
+用蛮力来粉碎敌人的强壮长枪手。
+
+无论武器再沉重，都能轻松驾驭。
+
+■喜欢的东西：帅哥、用鱼叉捕鱼、保养捕鱼工具
+
+■兴趣：捕鱼、制作木雕人偶
+
+请继续你的表演。
+
