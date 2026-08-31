@@ -2289,3 +2289,28 @@ dsh0.1.2alpha2发布了，还上了npm，要尝鲜的漏油可以装了
 
 说不定和HY4一样，总结式思维链其实只是上线前的掩饰呢，HY4灰测是确定出了I‘m doing的
 
+
+*****
+
+####  cscbzcbz  
+##### 12061#       发表于 2026-8-31 20:46
+
+刷不出来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一般市民  
+##### 12062#       发表于 2026-8-31 20:47
+
+现在看大模型相关直播，只有梁子家的Harness最显眼，画风和别家明显不一样，花里胡哨程度堪称一绝 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tillnight  
+##### 12063#       发表于 2026-8-31 20:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178786&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-31 20:42</a>
+
+说不定和HY4一样，总结式思维链其实只是上线前的掩饰呢，HY4灰测是确定出了I‘m doing的 ...</blockquote>
+这个不用猜，可以认为就是这样了。毕竟思维链本身又不代表模型能力，上次灰测坠机以后，用老对话都会继承i'm doing思维链，但是能力是区区的。真正的灰测思维链不是ds常态下的连续吐字，是整段整段输出，很明显的套模型进行了思维链总结后输出。
+
