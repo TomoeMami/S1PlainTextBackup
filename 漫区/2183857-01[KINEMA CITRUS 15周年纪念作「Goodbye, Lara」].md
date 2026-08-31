@@ -2426,3 +2426,27 @@ bd访谈预览
 <blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70167581&amp;ptid=2183857" target="_blank">Alicest 发表于 2026-8-29 18:23</a></blockquote>
 拉拉这身高明显就是鱼的长度，魔女姑姑怕辣的，这对于魔女而言也挺讽刺的<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 483#         楼主| 发表于 2026-8-31 23:18
+
+🐚⁺‧┈　#さよならララ エンドカード　┈‧⁺ 🫧˚
+
+　   　   　　第9話「本当の愛」
+
+　　
+
+キャラクターデザイン #谷紫織 さんによるエンドカードをお届けします✨
+
+ご視聴いただいた皆さま、ありがとうございました。
+
+ぜひ来週も、見届けていただけると嬉しいです。
+
+さよララ～👋
+<img src="https://p.sda1.dev/34/1ee2ccd24cec6e35a5fea487c851c502/HQ-rzTyaAAAXcW3.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/warder2013/status/2094109055241613368](https://x.com/warder2013/status/2094109055241613368)
+<img src="https://p.sda1.dev/34/058cc618490ca8c1cd40042445f74370/HQ_FFjYa8AAd0RX.jpg" referrerpolicy="no-referrer">
+

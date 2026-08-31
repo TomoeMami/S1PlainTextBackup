@@ -2767,3 +2767,52 @@ flash那边不知道什么情况
 不知道这次的灰测检查点到底是“下一代flash”的备选项还是和之前pro灰测是一个检查点，毕竟这次挂到了fve ...</blockquote>
 并不是啊，pro一样抽到的。同提示词对比感觉不是一个模型。
 
+
+*****
+
+####  nxmonitor  
+##### 12111#       发表于 2026-8-31 23:18
+
+大概率是Flash，Pro能抽到可能是草台了……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonyunreal  
+##### 12112#       发表于 2026-8-31 23:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179724&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-31 23:18</a>
+
+大概率是Flash，Pro能抽到可能是草台了……</blockquote>
+应该不是草台，pro灰测明显和之前灰测是同一个档次
+
+*****
+
+####  nxmonitor  
+##### 12113#       发表于 2026-8-31 23:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179738&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-8-31 23:19</a>
+
+应该不是草台，pro灰测明显和之前灰测是同一个档次</blockquote>
+我是指没把原来Pro对应的模型下掉，后面不是基本都坠机了嘛
+
+*****
+
+####  tonyunreal  
+##### 12114#       发表于 2026-8-31 23:21
+
+另外pro灰测也不都是测一波就交付
+
+我跑的第二个demo就测了好多轮，一直在给视觉模型审核再改
+
+测一轮应该是提示词没告诉它有视觉模型子代理
+
+*****
+
+####  2017.05.04  
+##### 12115#       发表于 2026-8-31 23:23
+
+蹬了送的GLM5.3FLASH，体感和V4FV还是有不小差距
+哪怕不说慢的问题，稳定性也不行，一个雷霆大思考十多分钟然后报错把产出全吞了，我用那么久V4都没遇见过
+
+—— 来自 HUAWEI SGT-AL00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
