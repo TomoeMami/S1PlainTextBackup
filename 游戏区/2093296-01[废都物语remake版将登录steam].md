@@ -227,3 +227,15 @@ gta6也是22年说在做了吧
 什么时候上NS2</blockquote>
 起码等发售以后半年到一年吧，看他们这个速度，精力只够管一个pc。<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wj101207777  
+##### 947#       发表于 2026-8-31 08:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70174471&amp;ptid=2093296" target="_blank">突发性哮喘病患 发表于 2026-8-31 08:55</a>
+唯一能解释的就是在美术上下了很多工夫，然后开发人手又不足，怪物立绘插画又需要很多的时间 ...</blockquote>
+看了下，大河故事这种背景书都加了符合风格的插图，估计花了不少心力
+
+—— 来自 Xiaomi 23113RKC6C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
