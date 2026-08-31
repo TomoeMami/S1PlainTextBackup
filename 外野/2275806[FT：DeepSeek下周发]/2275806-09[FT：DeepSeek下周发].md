@@ -2614,3 +2614,24 @@ a\最大的问题还是企业叙事和fable这种“模型神话”绑太死了
 
 唉，藤子确实不值得信任。
 
+
+*****
+
+####  SmterC  
+##### 12095#       发表于 2026-8-31 22:02
+
+完全抽不到，一直是let me
+听说有抽奖用插件是吗    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  tillnight  
+##### 12096#       发表于 2026-8-31 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70179318&amp;ptid=2275806" target="_blank">SmterC 发表于 2026-8-31 22:02</a>
+
+完全抽不到，一直是let me
+
+听说有抽奖用插件是吗    Re:Source</blockquote>
+没啥抽的必要。目前看起来，能中的一两下就中，不能的一百次也不中，另外就是今天并不稳定，坠机率挺高的。
+
