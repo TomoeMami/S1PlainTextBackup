@@ -1930,3 +1930,11 @@ pdd补贴最近能刷到320+的日版，不想折腾的这个价格也可以了<
 
 开始介绍杂队了
 
+
+*****
+
+####  57042711  
+##### 3135#       发表于 2026-8-31 11:29
+
+感觉还是不得不用的强力角色，火纹佣兵就没有弱的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

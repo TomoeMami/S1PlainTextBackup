@@ -1493,3 +1493,15 @@ Codex一开始就是这样，Claude重置后不会更新日期，GLM好像也不
 o家的astra快来了，据说可能有质的提高，拭目以待吧</blockquote>
 看一些前瞻似乎是更复杂细化的思考，真受不了
 
+
+*****
+
+####  xiaohanne  
+##### 11981#       发表于 2026-8-31 11:26
+
+ 本帖最后由 xiaohanne 于 2026-8-31 11:28 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175661&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-8-31 11:21</a>
+
+看一些前瞻似乎是更复杂细化的思考，真受不了</blockquote>
+真的假的……救命啊，不要再雷霆大思考了！
+

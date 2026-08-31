@@ -1838,3 +1838,29 @@ TYPE-MOON宣布《Fate/EXTRA Record》的新发行商确定为Aniplex。9月7日
 抵达大家手中，并为此加油鼓劲。向至今支持本作的各位致以深深的谢意。
 恳请继续给予《Fate/EXTRA Record》不变的支持与关爱。
 
+
+*****
+
+####  宛若青空  
+##### 180#       发表于 2026-8-31 11:28
+
+官网和新推都公布了，Aniplex9月中公布最新情报
+
+<img src="https://img.stage1st.com/forum/202608/31/112826z9dp60hxdxdu0xe6.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9D44FD92-0BE7-463B-9DB9-C3E1F7AAAB28.jpeg</strong> (76.88 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-31 11:28 上传
+
+
+*****
+
+####  ——裂锦——  
+##### 181#       发表于 2026-8-31 11:35
+
+<blockquote>宛若青空 发表于 2026-8-31 11:28
+官网和新推都公布了，Aniplex9月中公布最新情报</blockquote>
+所谓最新情报不是继续延期发售日未定就算胜利
+
