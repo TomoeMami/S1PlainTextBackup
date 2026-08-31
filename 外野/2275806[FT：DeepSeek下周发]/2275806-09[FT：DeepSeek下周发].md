@@ -3067,3 +3067,56 @@ ds 赶紧来新版本吧。等不及了。
 
 —— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  唠叨  
+##### 12142#       发表于 2026-9-1 07:38
+
+ 本帖最后由 唠叨 于 2026-9-1 07:39 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180220&amp;ptid=2275806" target="_blank">厍无春 发表于 2026-9-1 01:11</a>
+
+token 用量能发一下参考吗？缓存命中率多少？</blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/01/073953lnkz79y9a17tyfqm.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-09-01_073926_529.jpg</strong> (10.15 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-1 07:39 上传
+
+<img src="https://img.stage1st.com/forum/202609/01/073953mgwoqzgf9uo4l486.jpg" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_2026-09-01_073933_366.jpg</strong> (6.86 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-1 07:39 上传
+
+
+*****
+
+####  厍无春  
+##### 12143#       发表于 2026-9-1 07:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180486&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-9-1 07:38</a></blockquote>
+感谢<img src="https://static.stage1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  唠叨  
+##### 12144#       发表于 2026-9-1 07:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180497&amp;ptid=2275806" target="_blank">厍无春 发表于 2026-9-1 07:41</a>
+
+感谢</blockquote>
+又补了两张凌晨D指导算的截图 
+
+*****
+
+####  来都来了  
+##### 12145#       发表于 2026-9-1 07:44
+
+更新V5没问题，但是请把V4 Flash保留一段时间。如果能降价就更妙了。
+
