@@ -2203,3 +2203,20 @@ bd访谈预览
 
 这片看到现在情绪调动不起来，主线内容也看得不明所以
 
+
+*****
+
+####  hibike!  
+##### 464#       发表于 2026-8-31 07:58
+
+至少这集终于推主线了<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">也解决了上几集魔女为何躺平的疑惑
+
+问题在于设定揭露得太少了
+
+*****
+
+####  Redimercia  
+##### 465#       发表于 2026-8-31 08:00
+
+9集了，无法对脚本的笔力上限持乐观态度<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
