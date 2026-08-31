@@ -2104,3 +2104,36 @@ pdd补贴最近能刷到320+的日版，不想折腾的这个价格也可以了<
 
 <img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">pdd补贴好价的一直没给我推送，主动去搜全是450价位的
 
+
+*****
+
+####  thecatnie  
+##### 3156#       发表于 2026-8-31 14:32
+
+喷喜欢女人这个设定本质上是一种打拳
+
+
+*****
+
+####  caicaistar  
+##### 3157#       发表于 2026-8-31 14:35
+
+我有个想法，这次可招募NPC搞几个刺，就是为了让你不招募，然后第二章或者第三章去爽砍的
+
+*****
+
+####  mai6696  
+##### 3158#       发表于 2026-8-31 14:36
+
+ 本帖最后由 mai6696 于 2026-8-31 14:37 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70176730&amp;ptid=2261859" target="_blank">thecatnie 发表于 2026-8-31 14:32</a>
+
+喷喜欢女人这个设定本质上是一种打拳</blockquote>
+“性取向：异性”和“喜欢玩女人”是两码事吧。
+
+难道大非洲送礼可以送活人吗？奴隶制？
+
+或者就只能解释称希尔凡式角色，女自捏和雷达、女王好挖角？
+
+不然写在喜好里的意义是？
+
