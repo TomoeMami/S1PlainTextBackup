@@ -1204,3 +1204,35 @@ GLM5.3F是谁在吹啊，完全打不过dsv4fv，比ds蠢，还慢一倍，试�
 我只能说国产模型的甲真的薄</blockquote>
 能分享一下反推的方法吗，用什么工具？
 
+
+*****
+
+####  nxmonitor  
+##### 11956#       发表于 2026-8-31 10:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70175084&amp;ptid=2275806" target="_blank">med 发表于 2026-8-31 10:15</a>
+
+GLM5.3F是谁在吹啊，完全打不过dsv4fv，比ds蠢，还慢一倍，试了3个任务就受不了了。
+
+这周部署一下qwen3.8 ...</blockquote>
+不明白，更奇怪的是各种benchmark测出来token消耗比V4FV低，然而我用上去并不是这样
+
+
+*****
+
+####  空き地卯木  
+##### 11957#       发表于 2026-8-31 10:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70173747&amp;ptid=2275806" target="_blank">舞以 发表于 2026-8-31 01:11</a>
+今天的重置啥时候到啊，dsh的子任务管理对于sol来说比codex里面的ultra感觉还能烧 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202608/31/103143mll58svmtqt3t5kt.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>me_ykrank_s1next_alpha_1788143502471_4.webp</strong> (24.63 KB, 下载次数: 0)
+
+下载附件
+
+2026-8-31 10:31 上传
+
+明早吧，硬蹬应该是能蹬完的
+

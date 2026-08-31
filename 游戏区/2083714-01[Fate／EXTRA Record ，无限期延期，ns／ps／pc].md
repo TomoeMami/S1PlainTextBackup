@@ -1727,3 +1727,11 @@ TYPE-MOON宣布《Fate/EXTRA Record》的新发行商确定为Aniplex。9月7日
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.48)
 
+
+*****
+
+####  宛若青空  
+##### 169#       发表于 2026-8-31 10:29
+
+还是回到Aniplex，新纳一哉跑路了？！
+
