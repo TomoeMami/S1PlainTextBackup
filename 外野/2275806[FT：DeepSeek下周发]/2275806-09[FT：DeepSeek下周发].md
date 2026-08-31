@@ -2232,3 +2232,24 @@ dsh0.1.2alpha2发布了，还上了npm，要尝鲜的漏油可以装了
 
 只能说大多数模型厂商的infra不是护城河……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nxmonitor  
+##### 12054#       发表于 2026-8-31 20:28
+
+好像V4FV突然能刷到灰测了……<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tonyunreal  
+##### 12055#       发表于 2026-8-31 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70178713&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-8-31 20:28</a>
+
+好像V4FV突然能刷到灰测了……</blockquote>
+看直播确认一下是不是真的灰测 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+听说昨天的都坠机了
+
