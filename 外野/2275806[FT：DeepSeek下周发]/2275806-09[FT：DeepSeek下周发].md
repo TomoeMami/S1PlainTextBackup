@@ -3725,3 +3725,46 @@ K3让我失望的是非coding领域的讨论完全没有更强一档的感觉
 coding ...</blockquote>
 其他领域我不了解，但根据我用下来的体验，以及一些讨论的情况，K3在法律领域是通用模型SOTA
 
+
+*****
+
+####  qwased  
+##### 12194#       发表于 2026-9-1 17:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70183767&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-9-1 17:26</a>
+
+其他领域我不了解，但根据我用下来的体验，以及一些讨论的情况，K3在法律领域是通用模型SOTA ...</blockquote>
+Harvey基于K3后训练的法律专用模型吗
+
+
+*****
+
+####  startraveller  
+##### 12195#       发表于 2026-9-1 17:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70183532&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-1 16:59</a>
+K3让我失望的是非coding领域的讨论完全没有更强一档的感觉
+甚至不如v4pro，可能是问题场景的原因。
+coding ...</blockquote>
+也不是，我用下来觉得K3的设计讨论方面还是很有意思的
+
+*****
+
+####  舞以  
+##### 12196#       发表于 2026-9-1 17:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70183767&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-9-1 17:26</a>
+其他领域我不了解，但根据我用下来的体验，以及一些讨论的情况，K3在法律领域是通用模型SOTA ...</blockquote>
+我是讨论的文史政治类的问题（没到甲的程度）<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，感觉k3，v4pro，sol（同一个壳，不是官方app）的讨论深度差不多，遣词用句v4pro更好。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  舞以  
+##### 12197#       发表于 2026-9-1 17:47
+
+论讨论深度，gpt网页/app的pro模式有明显提升，但是剥掉这层官方壳之后sol感觉就一般了。
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
