@@ -4140,3 +4140,25 @@ gpt网页和app的主动搜索能力很强，应该是有额外优化过。
 所以别天天灰测了，啥时候出</blockquote>
 大约可能真的是在狙击gpt-6吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  龙骑士尹志平  
+##### 12234#       发表于 2026-9-1 22:08
+
+<blockquote>lubo 发表于 2026-9-1 20:56
+Grok Bot原来已经下放给SuperGrok了，给的云电脑配置居然跟300刀月费的heavy一样，8 核 Intel Xeon + 16GB  ...</blockquote>
+450rmb一年？
+
+
+*****
+
+####  xiaohanne  
+##### 12235#       发表于 2026-9-1 22:11
+
+ 本帖最后由 xiaohanne 于 2026-9-1 22:14 编辑 
+
+用这几天免费积分跑的实际任务算了下，workbuddy的99/mo订阅，全用dv4f的话，等值官方api 204元，供参考。
+
+@[blackdragon765](https://stage1st.com/2b/space-uid-227857.html)
+
