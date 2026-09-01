@@ -3438,3 +3438,14 @@ minimax m3用来当视觉识别, 文生图和图生图拐杖还是可以的, 别
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  阿刚  
+##### 12172#       发表于 2026-9-1 15:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180353&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-1 03:48</a>
+
+你是不是交给他超出能力范围的任务了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">破案了，hermes昨晚上出问题，上下文断了一段，我和他的信息对不上他就疯了……
+

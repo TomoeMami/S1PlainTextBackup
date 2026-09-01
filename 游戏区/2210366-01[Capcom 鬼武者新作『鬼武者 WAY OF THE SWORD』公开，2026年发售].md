@@ -2810,3 +2810,11 @@ B站贴吧这种人流量大的地方，很多人就是想听点自己想听的�
 怎么的鬼武者以前有很多种类杂兵吗？</blockquote>
 鬼武者2虽然本身还挺好玩，但各种四五种怪疯狂换皮真玩吐了，本质上就是背板怪的应对方式的玩法。
 
+
+*****
+
+####  iqbsh38  
+##### 970#       发表于 2026-9-1 15:11
+
+<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">希望能多赚点奶粉钱给我HD化一下新鬼
+
