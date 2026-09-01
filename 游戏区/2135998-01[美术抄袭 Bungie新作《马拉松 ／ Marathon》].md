@@ -3050,3 +3050,45 @@ AI确实很猛，而且打AI一个是很消耗资源还一个是容易吸引其�
 
 他既然是pvp做底子的 应该搞个没门槛的竞技场玩法试试水 棒鸡还是在pve舒适区不断搞实验田 问题是我玩pve为啥不玩bd更丰富的土命2
 
+
+*****
+
+####  nightshade037  
+##### 289#       发表于 2026-9-1 21:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180424&amp;ptid=2135998" target="_blank">沙里昂 发表于 2026-9-1 06:41</a>
+
+第二赛季测试的模式是把一张图的一部分打包成一个地牢，然后挣积分。还不如把 pvp lite 模式的返回点多加 ...</blockquote>
+之前推vault breaker的时候看一些d2玩家 新玩家们的反馈，一下子给这些新玩家放到低温档案室里属于是完全劝退行为，不如之前搞的那个黑夜赞助包沼泽友好
+
+而且马拉松终局中的pve部分除了搜打撤这个模式对玩家强度的限制外确实没意思，机制什么的放在d2里不够看的
+
+*****
+
+####  nightshade037  
+##### 290#       发表于 2026-9-1 21:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70182248&amp;ptid=2135998" target="_blank">zzy516232108 发表于 2026-9-1 13:15</a>
+
+他现在这个PVE真不如土命2一点吧
+
+不如早点考虑出大逃杀模式吃点尾气了</blockquote>
+传言说是早期计划是做大逃杀，看到搜打撤火就转搜打撤了
+
+*****
+
+####  nightshade037  
+##### 291#       发表于 2026-9-1 21:45
+
+whatever 大棒老师都自身难保了
+
+*****
+
+####  nightshade037  
+##### 292#       发表于 2026-9-1 21:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70182308&amp;ptid=2135998" target="_blank">qianoooo 发表于 2026-9-1 13:30</a>
+
+他既然是pvp做底子的 应该搞个没门槛的竞技场玩法试试水 棒鸡还是在pve舒适区不断搞实验田 问题是我玩pve为 ...</blockquote>
+从d2的pvp来看我怀疑棒鸡就不会搞pvp
+

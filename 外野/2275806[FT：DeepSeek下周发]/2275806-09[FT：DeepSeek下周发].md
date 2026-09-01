@@ -4130,3 +4130,13 @@ Grok Bot原来已经下放给SuperGrok了，给的云电脑配置居然跟300刀
 论坛助手,iPhone ...</blockquote>
 gpt网页和app的主动搜索能力很强，应该是有额外优化过。
 
+
+*****
+
+####  cscbzcbz  
+##### 12233#       发表于 2026-9-1 21:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184946&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-9-1 21:24</a>
+所以别天天灰测了，啥时候出</blockquote>
+大约可能真的是在狙击gpt-6吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
