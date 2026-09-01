@@ -2775,3 +2775,14 @@ B站贴吧这种人流量大的地方，很多人就是想听点自己想听的�
 仁王好歹是个无敌演出可以放松下，鬼武者这边中途还给你塞个远程怪感觉纯血压<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 想起隔壁忍龙4改了变向走壁操作后最后一关连续变向两次那里我还交过回生香<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wthall  
+##### 967#       发表于 2026-9-1 11:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70181157&amp;ptid=2210366" target="_blank">Dorohedoro 发表于 2026-9-1 10:11</a>
+
+有一说一，像生化4re还有怪猎物语3的支线任务玩法上都挺有趣的</blockquote>
+其实并不太有趣，特别是收集要素，我是二周目才解锁打烂一个城主娃娃的成就的。
+
