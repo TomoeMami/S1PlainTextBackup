@@ -3332,3 +3332,15 @@ Antigravity里面gemini pro可以用opus4.6，a÷的模型。
 
 —— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  唠叨  
+##### 12162#       发表于 2026-9-1 12:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70181686&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-9-1 11:30</a>
+我看评测27b不比3.8flash分数低啊
+
+27b到底可以平替v4f0731吗</blockquote>
+不知道 没用过27B 不好评价
+
