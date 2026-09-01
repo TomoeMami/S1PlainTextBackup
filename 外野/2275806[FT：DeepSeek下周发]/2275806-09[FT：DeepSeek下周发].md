@@ -3899,3 +3899,11 @@ ds这些天我查看S1网友的帖子，已经能实现很多东西，我觉得�
 
 然后去了解AGENTS.md在指导AI工作中的作用，这部分有很多人讲解而且会拓展很多。AGENTS.md甚至可以指导AI自己去创建子组件的文档，来进一步指导细节工作。
 
+
+*****
+
+####  奈落的孤火花  
+##### 12209#       发表于 2026-9-1 19:30
+
+kimi k3 max这个思考真的长，比fable 5 max长太多了。后发的模型还是基本上靠长思考刷高分<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
