@@ -2974,3 +2974,19 @@ pdd现在都涨到450了
 
 is开通了自己的推特。
 
+
+*****
+
+####  巴尔干炮  
+##### 3233#       发表于 2026-9-1 20:07
+
+<img src="https://img.stage1st.com/forum/202609/01/200621aszqhzkkmmzws89h.jpg" referrerpolicy="no-referrer">
+
+<strong>313834e74edf687958dae7d58f86a36f1e0f57b16fe195f3b8a0200cb12039b3.0.JPG</strong> (102.84 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-1 20:06 上传
+
+看来5年前发生什么大事，白发鬼和她经历的可能都是一件事。
+
