@@ -127,3 +127,11 @@
 
 想了想还是算了不重打了....反正也就3个金方块<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  laosai13  
+##### 21543#       发表于 2026-9-2 01:22
+
+水比肖内卡面和建模好良心啊，原版没什么感觉这个版本看着真不错
+
