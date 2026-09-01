@@ -2539,3 +2539,26 @@ IGN给好评估计是战斗系统真爽，甚至还有小故事，所以越打�
 
 3，死亡动画能再短一些就好了，早一点开始重新挑战
 
+
+*****
+
+####  放大镜  
+##### 944#       发表于 2026-9-1 08:38
+
+基础模组确实单调
+
+卡表选择了演出保量，肯定得从其他地方抠回来
+
+*****
+
+####  黑暗之眼  
+##### 945#       发表于 2026-9-1 08:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180591&amp;ptid=2210366" target="_blank">reficul 发表于 2026-9-1 08:28</a>
+试玩版的百秽终于打过，昨晚给我搓爽了，能应对的招越来越多，能明显感到自己提升的正反馈非常爽。
+
+几点不 ...</blockquote>
+建议你去B站看看那些58、9秒就搞死百秽的视频
+
+—— 来自 HUAWEI PLA-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
