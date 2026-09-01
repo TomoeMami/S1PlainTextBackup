@@ -3816,3 +3816,14 @@ harvey对K3的认可度确实很高，认为它不仅是开源sota，在美国�
 和现在的AI讨论最大的问题是如果我不知道我想要什么样的结果那AI也答不出来，人的上限决定模型的上限了 ...</blockquote>
 开放问题讨论都有类似的问题，agent突飞猛进，但是这方面停滞不前。
 
+
+*****
+
+####  zy450  
+##### 12202#       发表于 2026-9-1 18:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70183918&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-1 17:51</a>
+
+开放问题讨论都有类似的问题，agent突飞猛进，但是这方面停滞不前。</blockquote>
+这也是程序员还没被淘汰的原因
+
