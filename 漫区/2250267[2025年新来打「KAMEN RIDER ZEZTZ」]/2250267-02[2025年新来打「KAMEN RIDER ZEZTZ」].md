@@ -339,3 +339,18 @@ b part的老资历帮助后辈这一段单拿出来我还挺喜欢的，但最�
 论坛助手,iPhone</blockquote>
 给我找好看的啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JOHNCHCHAN  
+##### 2249#       发表于 2026-9-1 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70173044&amp;ptid=2250267" target="_blank">恶意之刃 发表于 2026-8-30 23:10</a>
+
+按漫区评分给个+0吧，毕竟开局一二骑演员不够帅我就不看好给个-2开局的（现在没有太大影响观感地水完一年也 ...</blockquote>
+虽说平成（尤其旧十年）的整体基调普遍严肃，但还是会有一些搞笑情节。
+
+到了令和骑士，SABER和歌查德没看不予置评，剩下的几部也就01还能让我回忆起有点搞笑情节，其他的要么几乎没有搞笑，要么拍了也没留下什么深刻印象。
+
+这更显令和骑士废物了，非但严肃比不过，连搞笑也比不过前辈。
+
