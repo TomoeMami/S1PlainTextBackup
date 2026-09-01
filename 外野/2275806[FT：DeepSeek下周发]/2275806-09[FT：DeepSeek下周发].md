@@ -3404,3 +3404,14 @@ minimax m3是不是就是硬练rsi的例子？</blockquote>
 
 —— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  blackdragon765  
+##### 12169#       发表于 2026-9-1 14:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70181633&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-9-1 11:24</a>
+
+我在蹬千问的plan   个人感觉qwen3.8flash比v4f好用   v4f可以考虑command     你可以点只看该作者看我楼 ...</blockquote>
+开了千问的lite试了一下，确实qwen3.8flash代码智力上没问题，我自己一个月估计应该蹬不出10个亿，这个plan的量也刚好。不够的再用dsv4f补充。感谢大佬~~
+
