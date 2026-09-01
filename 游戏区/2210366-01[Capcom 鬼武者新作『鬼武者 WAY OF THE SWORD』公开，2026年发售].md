@@ -2600,3 +2600,22 @@ IGN给好评估计是战斗系统真爽，甚至还有小故事，所以越打�
 
 ARPG的对比对象是魂或者仁王？
 
+
+*****
+
+####  hkguty  
+##### 950#       发表于 2026-9-1 09:09
+
+应该还好，影之刃没有出圈到跟黑猴一样随便是个路人都想给他争个年度的地步
+
+
+*****
+
+####  zqqwe  
+##### 951#       发表于 2026-9-1 09:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180282&amp;ptid=2210366" target="_blank">double8G 发表于 2026-9-1 01:47</a>
+鬼2稍微玩了一会儿，一闪和连一闪都不难，但是到了需要赠礼的时候再一看攻略满头包，算是知道为啥前面坛友 ...</blockquote>
+2拿隐藏武器其中一个必要道具就要靠送礼换，老老实实查攻略吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+送礼和同伴支线冲突的设计令我一直不怎么喜欢2代，后者强制多周目，而前者又让每轮流程都变得繁琐
+
