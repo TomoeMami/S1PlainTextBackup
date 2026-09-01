@@ -3200,3 +3200,13 @@ HREoDWdWYAA1oHT.jpg
 
 手残苦战一个半小时才拿下百秽，泥潭最菜了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大喇叭花田  
+##### 1009#       发表于 2026-9-1 23:49
+
+<blockquote>沧兰殇 发表于 2026-9-1 22:41
+一个小时，打过了试玩百秽，没怎么一闪，怕没闪到出大血，主要还是格挡和闪避的思路，特别是剩最后一点血容 ...</blockquote>
+这次大动作下砸之类的一闪很容易，几乎是属于不带提示的qte级别了，还是建议一闪，不然估计正式版刮痧会很痛苦。
+

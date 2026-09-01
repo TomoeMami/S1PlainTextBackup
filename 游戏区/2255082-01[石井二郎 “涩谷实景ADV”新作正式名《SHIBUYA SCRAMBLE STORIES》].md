@@ -615,3 +615,11 @@ SIBLLA（シブラ）：隈本裕美（《428》中饰演玩偶吉祥物“小�
 
 就是这个味啊！希望能顺利出来
 
+
+*****
+
+####  Beavis  
+##### 44#       发表于 2026-9-1 23:56
+
+实机看着岁月不饶人…虽然我也是大叔了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
