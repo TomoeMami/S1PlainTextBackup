@@ -4110,3 +4110,23 @@ Grok Bot原来已经下放给SuperGrok了，给的云电脑配置居然跟300刀
 花4块用pro灰测写了个流浪猫游戏，可以选猫类型，还有表情变化，然后里面还有任务和对战游戏，这写的太完善 ...</blockquote>
 发现ds做的demo，人行横道、还有车轮方向总是不对……
 
+
+*****
+
+####  →熙←  
+##### 12231#       发表于 2026-9-1 21:24
+
+所以别天天灰测了，啥时候出
+
+*****
+
+####  xiaohanne  
+##### 12232#       发表于 2026-9-1 21:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70183881&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-1 17:47</a>
+
+论讨论深度，gpt网页/app的pro模式有明显提升，但是剥掉这层官方壳之后sol感觉就一般了。
+
+论坛助手,iPhone ...</blockquote>
+gpt网页和app的主动搜索能力很强，应该是有额外优化过。
+

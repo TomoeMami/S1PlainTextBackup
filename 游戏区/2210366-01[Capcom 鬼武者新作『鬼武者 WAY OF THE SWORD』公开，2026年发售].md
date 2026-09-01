@@ -3081,3 +3081,13 @@ HREoDWdWYAA1oHT.jpg
 
 —— 来自 OnePlus PJZ110, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 998#       发表于 2026-9-1 21:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184905&amp;ptid=2210366" target="_blank">Troywest 发表于 2026-9-1 21:15</a>
+这百秽只是个流程精英怪但是打起来有鬼泣4大舅哥，鬼泣5雷骑士的感觉了。敌人的各种招式你都有对应的方法美 ...</blockquote>
+底层逻辑做得好是这样的，只围绕战斗交互做最纯粹的体验，虽然坏处就是本质bossrush游戏
+
