@@ -2708,3 +2708,24 @@ IGN日本给黑神话也是7分
 【《鬼武者 Way of the Sword》 – 剑戟动作介绍视频 ...</blockquote>
 7分20的走壁和打石头真的太仁王3了
 
+
+*****
+
+####  nagitoY  
+##### 961#       发表于 2026-9-1 10:09
+
+一周目30h大概和鬼泣5的流程差不多？
+
+
+*****
+
+####  Dorohedoro  
+##### 962#       发表于 2026-9-1 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180317&amp;ptid=2210366" target="_blank">plok201 发表于 2026-9-1 02:29</a>
+
+看了看fami视频，大概猜到为啥有支线无聊这个评价了
+
+首先卡婊肯定弄不出有趣的支线玩法和大量支线剧情，那 ...</blockquote>
+有一说一，像生化4re还有怪猎物语3的支线任务玩法上都挺有趣的
+
