@@ -2834,3 +2834,14 @@ B站贴吧这种人流量大的地方，很多人就是想听点自己想听的�
 
 这游戏的羽织有效果吗，如果没有效果感觉没必要买最高级的版本啊，多了女角色的服装但女角色都不好看
 
+
+*****
+
+####  ParadiseMartyr  
+##### 973#       发表于 2026-9-1 16:38
+
+鬼武者想买就不想买的，确实没啥游戏玩了，但是感觉打boss又是咔咔几刀就没了，我也没啥重复游玩游戏的习惯<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不是不好玩，就是感觉打boss咔咔几刀就没了
+
+—— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

@@ -3540,3 +3540,32 @@ Codex，拆成工作结构
 
 有人知道千问的token plan套餐大概相当于多少折扣吗<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  神手之兔  
+##### 12182#       发表于 2026-9-1 16:40
+
+想问下我想用ai自己写个mud游戏，我能看得懂少量代码，应该用哪个ai比较合适？如果后续我做了图像资产要加入mud用啥ai合适？
+
+
+*****
+
+####  jinuzuktII  
+##### 12183#       发表于 2026-9-1 16:42
+
+K3要怎么用最划算呢？直接走官方订阅吗
+
+（非码农
+
+*****
+
+####  zhongjie  
+##### 12184#       发表于 2026-9-1 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70183373&amp;ptid=2275806" target="_blank">神手之兔 发表于 2026-9-1 16:40</a>
+想问下我想用ai自己写个mud游戏，我能看得懂少量代码，应该用哪个ai比较合适？如果后续我做了图像资产要加 ...</blockquote>
+GPT吧，GPT便宜
+
+—— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+

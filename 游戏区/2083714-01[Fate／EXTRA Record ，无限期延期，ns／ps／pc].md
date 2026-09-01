@@ -2164,3 +2164,15 @@ FE原作游戏性烂到逆天，不如80年代大部分红白机游戏的游戏�
 
 说是dqb2导演，但再往前看是imageepoch那一路的，那就不奇怪了，御影良卫都人间蒸发了
 
+
+*****
+
+####  慕容断月  
+##### 211#       发表于 2026-9-1 16:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70177557&amp;ptid=2083714" target="_blank">syndrome2032 发表于 2026-8-31 16:34</a>
+和贪污有啥关系。
+
+不如关心tm本社 studiobb dw社能有几条枪供一个项目嚯嚯才是最现实的问题。</blockquote>
+人手管够不说还有靠庄这么个靠谱的p在，再加上老爷子过问，很难翻车了
+
