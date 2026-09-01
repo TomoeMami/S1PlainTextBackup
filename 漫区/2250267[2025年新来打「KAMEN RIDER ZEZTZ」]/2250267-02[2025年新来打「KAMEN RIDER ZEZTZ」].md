@@ -354,3 +354,18 @@ b part的老资历帮助后辈这一段单拿出来我还挺喜欢的，但最�
 
 这更显令和骑士废物了，非但严肃比不过，连搞笑也比不过前辈。
 
+
+*****
+
+####  月夜凝雪  
+##### 2250#       发表于 2026-9-1 12:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70181719&amp;ptid=2250267" target="_blank">JOHNCHCHAN 发表于 2026-9-1 11:35</a>
+
+虽说平成（尤其旧十年）的整体基调普遍严肃，但还是会有一些搞笑情节。
+
+到了令和骑士，SABER和歌查德没 ...</blockquote>
+看到各种平均基本都吹SABER，我是被前期刷下来的那批也有点想去补了
+
+歌查德基本声音一致垫底来着？
+
