@@ -572,3 +572,11 @@ MC 83
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我选黎明行者，卡婊等打折
 
+
+*****
+
+####  Ai_shuang  
+##### 46#       发表于 2026-9-1 09:26
+
+两个都买，先玩黎明行者，感觉不妙再一转鬼武者
+
