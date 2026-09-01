@@ -4413,3 +4413,13 @@ HRJmPW2XoAA-KJb.jpg
 
 前提是opus5是用fable的合成数据训练的，目前这点还不好讲。一方面从opus5的命名确实和fable有关系，模型的输出也很像一个使用了大量蒸馏数据训练的表现，另一方面opus和fable的参数规模差距并不大，做大规模蒸馏训练的收益不高
 
+
+*****
+
+####  qwased  
+##### 12259#       发表于 2026-9-2 04:59
+
+https://github.com/elder-plinius/CL4R1T4S/blob/main/ANTHROPIC/Claude-Fable-5.1.md
+
+提示词就干进去70k 对比一下鲸鱼要发挥智力只能留一句提示词<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
