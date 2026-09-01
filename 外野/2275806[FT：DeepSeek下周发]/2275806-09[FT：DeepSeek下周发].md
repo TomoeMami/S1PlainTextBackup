@@ -3768,3 +3768,51 @@ coding ...</blockquote>
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  qwased  
+##### 12198#       发表于 2026-9-1 17:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70183876&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-1 17:45</a>
+
+我是讨论的文史政治类的问题（没到甲的程度），感觉k3，v4pro，sol（同一个壳，不是官方app）的讨论深度 ...</blockquote>
+和现在的AI讨论最大的问题是如果我不知道我想要什么样的结果那AI也答不出来，人的上限决定模型的上限了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宏.  
+##### 12199#       发表于 2026-9-1 17:49
+
+<blockquote>舞以 发表于 2026-9-1 16:59
+K3让我失望的是非coding领域的讨论完全没有更强一档的感觉
+
+甚至不如v4pro，可能是问题场景的原因。
+
+coding ...</blockquote>
+
+K3在语文能力领域比如酒馆比ds v4pro强的多，如果你没感觉到差别，那就是你用的太少，用社区的话来说就是活人感
+
+*****
+
+####  奥柏伦亲王  
+##### 12200#       发表于 2026-9-1 17:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70183825&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-1 17:36</a>
+
+Harvey基于K3后训练的法律专用模型吗</blockquote>
+harvey对K3的认可度确实很高，认为它不仅是开源sota，在美国法上也比那几个闭源的表现更好，当然我觉得这事也有可能是双方在搞营销，KIMI要上市，harvey要后训练K3做自己的垂直模型。
+
+但是从国内法领域来说，kimi在法律问题上确实显得很聪明，而且专武kimi-code、网页端、桌面端的kimi work都能直接接入华宇元典和天眼查的数据库，不需要单独配置mcp也不需要再交一份数据库的钱，也是非常用心了。如果是在workbuddy里用k3，可能会感觉差异没那么大。
+
+
+*****
+
+####  舞以  
+##### 12201#       发表于 2026-9-1 17:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70183903&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-1 17:49</a>
+
+和现在的AI讨论最大的问题是如果我不知道我想要什么样的结果那AI也答不出来，人的上限决定模型的上限了 ...</blockquote>
+开放问题讨论都有类似的问题，agent突飞猛进，但是这方面停滞不前。
+
