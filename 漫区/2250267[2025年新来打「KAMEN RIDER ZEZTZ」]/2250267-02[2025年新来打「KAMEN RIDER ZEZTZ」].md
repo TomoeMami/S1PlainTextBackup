@@ -433,3 +433,15 @@ Saber的后期和最终Boss令和没有能碰瓷的，前期我当战队看的�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ZZZ在最终出场以后就打灾厄那集能看，然后水平就回归到了令和骑士的平均水平
 
+
+*****
+
+####  发呆的龙虾  
+##### 2257#       发表于 2026-9-1 20:51
+
+同样是BOSS没了之后换BOSS。牢3和忘却都处理得和屎一样。
+反观saber，圣主和老乌可都是给人印象极度深刻的BOSS。
+真是抄都不会抄。
+
+—— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
