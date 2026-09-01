@@ -3192,3 +3192,11 @@ HREoDWdWYAA1oHT.jpg
 
 习惯之后看到斧面出现在BOSS头部两侧就可以条件反射进一闪了
 
+
+*****
+
+####  wwhaha  
+##### 1008#       发表于 2026-9-1 23:43
+
+手残苦战一个半小时才拿下百秽，泥潭最菜了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
