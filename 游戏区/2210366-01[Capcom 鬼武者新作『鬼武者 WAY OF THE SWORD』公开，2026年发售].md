@@ -2502,3 +2502,24 @@ IGN给好评估计是战斗系统真爽，甚至还有小故事，所以越打�
 
 想不通一个纯ACT能期待啥有趣的支线玩法？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ae云岚  
+##### 942#       发表于 2026-9-1 07:54
+
+已经预见到这游戏在国内大众的口碑了，如果最终抢了某游的最佳动作奖下场就是下一个小机器人，ign十分更是说明是塞钱了<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+ 紺野純子-2好评加鹅
+
+查看全部评分
+
