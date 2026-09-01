@@ -3493,3 +3493,14 @@ Codex，拆成工作结构
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  startraveller  
+##### 12177#       发表于 2026-9-1 15:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70182850&amp;ptid=2275806" target="_blank">蛋黄酱Release 发表于 2026-9-1 15:22</a>
+试了一下qwen3.8f，感觉速度和智力都还不错。最近发布的这几个flash模型好像都不错，感觉也是好起来了
+反倒 ...</blockquote>
+对的，K3的中文也最好。赶快出K3.1吧！
+
