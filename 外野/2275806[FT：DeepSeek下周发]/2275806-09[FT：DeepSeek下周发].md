@@ -4036,3 +4036,41 @@ ai小白提问一下，现在的ai能做到根据范本或者排版要求，将w
 花4块用pro灰测写了个流浪猫游戏，可以选猫类型，还有表情变化，然后里面还有任务和对战游戏，这写的太完善 ...</blockquote>
 走着走着就被大狗嚼了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wandeeees  
+##### 12223#       发表于 2026-9-1 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184685&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-1 20:35</a>
+走着走着就被大狗嚼了</blockquote>
+跳到高处<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  nxmonitor  
+##### 12224#       发表于 2026-9-1 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184641&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-1 20:24</a>
+
+看明佬的群友deepswe难题测试是把5.6sol碾压了啊</blockquote>
+很正常，上次灰测就看出来后端至少比K3和Opus5强，Fable都很难说谁好谁坏，Sol因为前端太拉根本没有人来比
+
+*****
+
+####  nxmonitor  
+##### 12225#       发表于 2026-9-1 20:44
+
+我现在最好奇的是这个模型的架构和参数量……<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UmarIbnLaAhad  
+##### 12226#       发表于 2026-9-1 20:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184556&amp;ptid=2275806" target="_blank">Noiratod 发表于 2026-9-1 20:05</a>
+ ai小白提问一下，现在的ai能做到根据范本或者排版要求，将word的格式给调整明白吗 去年还是前年用kimi那个 ...</blockquote>
+手拿把掐，gpt就不说了，gpt出指令让哈基米做都行
+
