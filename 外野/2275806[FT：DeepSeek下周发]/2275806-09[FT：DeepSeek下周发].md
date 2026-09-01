@@ -3215,3 +3215,25 @@ GLM-5.3-Flash-NVFP4
 
 黄鱼买的哈基米铺肉没法调用api么<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiaohanne  
+##### 12152#       发表于 2026-9-1 10:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70181217&amp;ptid=2275806" target="_blank">斯卡文分则能成 发表于 2026-9-1 10:21</a>
+
+黄鱼买的哈基米铺肉没法调用api么</blockquote>
+要反代出api用，代价是可能会被取消订阅。
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 12153#       发表于 2026-9-1 10:30
+
+现在试下来qwen3.8 flash 的价格大概和dsv4f是差不多的 已经有几B的数据了应该是靠谱的
+
+而且它指令遵循真的特别到位 目前用下来应该是最好的 就是智力真的不行 必须要有完整到位的spec
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
