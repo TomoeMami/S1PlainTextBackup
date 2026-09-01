@@ -4090,3 +4090,23 @@ glm5.3f总喜欢雷霆大思考，完成一个中等任务的时间用时太长
 
 Grok Bot原来已经下放给SuperGrok了，给的云电脑配置居然跟300刀月费的heavy一样，8 核 Intel Xeon + 16GB 内存 + 128GB 硬盘。同样的配置放腾讯云、阿里云，我这450年费都不够租两个月
 
+
+*****
+
+####  浪费喝咖啡  
+##### 12229#       发表于 2026-9-1 21:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184626&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-1 20:20</a>
+抽不中</blockquote>
+新号稳定出灰测，发你好，然后看速度就行
+
+*****
+
+####  sellboy  
+##### 12230#       发表于 2026-9-1 21:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184580&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-9-1 20:09</a>
+
+花4块用pro灰测写了个流浪猫游戏，可以选猫类型，还有表情变化，然后里面还有任务和对战游戏，这写的太完善 ...</blockquote>
+发现ds做的demo，人行横道、还有车轮方向总是不对……
+
