@@ -4162,3 +4162,13 @@ Grok Bot原来已经下放给SuperGrok了，给的云电脑配置居然跟300刀
 
 @[blackdragon765](https://stage1st.com/2b/space-uid-227857.html)
 
+
+*****
+
+####  lubo  
+##### 12236#       发表于 2026-9-1 22:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70185214&amp;ptid=2275806" target="_blank">龙骑士尹志平 发表于 2026-9-1 22:08</a>
+450rmb一年？</blockquote>
+已经没了，这是两个月前的ios印度区低价。grok现在比较常见的限时优惠是买一送二，30刀3个月
+
