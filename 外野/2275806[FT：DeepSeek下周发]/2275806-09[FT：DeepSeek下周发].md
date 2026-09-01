@@ -3360,3 +3360,25 @@ Antigravity里面gemini pro可以用opus4.6，a÷的模型。
 
 Glm6规划rsi了<img src="https://p.sda1.dev/34/d6552ae13d3d021d2d4a3365607bb388/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  唠叨  
+##### 12165#       发表于 2026-9-1 14:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70182072&amp;ptid=2275806" target="_blank">jonarryn 发表于 2026-9-1 12:31</a>
+求问一下千问3.8flash实际使用体验好吗？轻度使用（像原来的opencodego那种程度）买什么比较划算？阿里云百 ...</blockquote>
+看12142楼 lite套餐7天大概1.5E  看你用量了  我不到24小时蹬了80%了  后天command才重置 明天只能蹬api了
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 12166#       发表于 2026-9-1 14:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70182336&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-1 13:40</a>
+Glm6规划rsi了</blockquote>
+RSI容易炼翻车啊
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
