@@ -3415,3 +3415,26 @@ minimax m3是不是就是硬练rsi的例子？</blockquote>
 我在蹬千问的plan   个人感觉qwen3.8flash比v4f好用   v4f可以考虑command     你可以点只看该作者看我楼 ...</blockquote>
 开了千问的lite试了一下，确实qwen3.8flash代码智力上没问题，我自己一个月估计应该蹬不出10个亿，这个plan的量也刚好。不够的再用dsv4f补充。感谢大佬~~
 
+
+*****
+
+####  mp5  
+##### 12170#       发表于 2026-9-1 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70181589&amp;ptid=2275806" target="_blank">blackdragon765 发表于 2026-9-1 11:18</a>
+
+所以老板们，现在还有什么便宜一点的dsv4f api么，plan也可以，预算50到100一个月，主要用来维护单位内网的 ...</blockquote>
+minimax m3用来当视觉识别, 文生图和图生图拐杖还是可以的, 别指望这货能干活
+
+*****
+
+####  城北无尘  
+##### 12171#       发表于 2026-9-1 14:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70181694&amp;ptid=2275806" target="_blank">CCauchy 发表于 2026-9-1 11:31</a>
+话说agentrouter还能坚持多久啊，怎么都不开放充值</blockquote>
+好像已经这样纯公益一年了，只有每天签到和邀请方式能获得余额。
+而且它扣余额比例在中转站里算最贵的，肯定不会打算收费，收费了没有任何竞争力
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
