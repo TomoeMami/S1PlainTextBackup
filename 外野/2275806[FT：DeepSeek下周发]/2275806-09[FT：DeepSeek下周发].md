@@ -3504,3 +3504,23 @@ Codex，拆成工作结构
 反倒 ...</blockquote>
 对的，K3的中文也最好。赶快出K3.1吧！
 
+
+*****
+
+####  lowezack  
+##### 12178#       发表于 2026-9-1 16:00
+
+买了gpt pro 20x，这下舒服了。也不知道glm拿来的勇气卖这么贵。
+
+这一个月高强度用国模写代码，感觉综合效率跟gpt比差距还是很大的。
+
+*****
+
+####  blackdragon765  
+##### 12179#       发表于 2026-9-1 16:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70182895&amp;ptid=2275806" target="_blank">BarricadeMKXX 发表于 2026-9-1 15:28</a>
+
+我搞了commandcode，你可以考虑试试水，算手续费75r左右一个月吧，dsv4f给60刀额度，不过要用v4fv就只有2 ...</blockquote>
+好！谢谢老板，我去看一下~~
+
