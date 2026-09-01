@@ -3237,3 +3237,28 @@ GLM-5.3-Flash-NVFP4
 
 — from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  斯卡文分则能成  
+##### 12154#       发表于 2026-9-1 10:39
+
+ 本帖最后由 斯卡文分则能成 于 2026-9-1 10:40 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70181266&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-9-1 10:29</a>
+
+要反代出api用，代价是可能会被取消订阅。</blockquote>反代是啥<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+opus4.6又是啥<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiaohanne  
+##### 12155#       发表于 2026-9-1 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70181313&amp;ptid=2275806" target="_blank">斯卡文分则能成 发表于 2026-9-1 10:39</a>
+
+反代是啥
+
+opus4.6又是啥</blockquote>
+Antigravity里面gemini pro可以用opus4.6，a÷的模型。
+

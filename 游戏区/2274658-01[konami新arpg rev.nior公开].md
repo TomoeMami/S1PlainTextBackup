@@ -575,3 +575,14 @@ XB2知名败犬尼亚同款配色
 
 KONAMI宣布将于北京时间9月3日23点播出线上发布会「KONAMI PRESS START」，介绍KONAMI旗下包括《寂静岭: Townfall》《恶魔城: Belmont’s Curse》、《Rev. NOiR》在内的新作情报。不过官方强调本次并不会包含有关《寂静岭》重制游戏的相关信息。 ​​​​
 
+
+*****
+
+####  泰坦失足  
+##### 70#       发表于 2026-9-1 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70181276&amp;ptid=2274658" target="_blank">Piano-Forest 发表于 2026-9-1 10:31</a>
+
+KONAMI宣布将于北京时间9月3日23点播出线上发布会「KONAMI PRESS START」，介绍KONAMI旗下包括《寂静岭: To ...</blockquote>
+三个游戏里两个老ip新作都是外包的，本社自己做的是个破产版JRPG，尊重，祝福
+
