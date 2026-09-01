@@ -3979,3 +3979,49 @@ ai小白提问一下，现在的ai能做到根据范本或者排版要求，将w
 
 这里玩：[https://deepdemos.top/demo/0901-ds-pro-59e6a13b](https://deepdemos.top/demo/0901-ds-pro-59e6a13b)
 
+
+*****
+
+####  未知伤亡  
+##### 12217#       发表于 2026-9-1 20:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184580&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-9-1 20:09</a>
+
+花4块用pro灰测写了个流浪猫游戏，可以选猫类型，还有表情变化，然后里面还有任务和对战游戏，这写的太完善 ...</blockquote>
+🐂🍺啊，是一句话生成的吗？
+
+*****
+
+####  cscbzcbz  
+##### 12218#       发表于 2026-9-1 20:20
+
+抽不中<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Promeus  
+##### 12219#       发表于 2026-9-1 20:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184578&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-1 20:08</a>
+昨天晚上开始就没关过。</blockquote>
+看今天没啥案例还以为关了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 12220#       发表于 2026-9-1 20:24
+
+看明佬的群友deepswe难题测试是把5.6sol碾压了啊<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wandeeees  
+##### 12221#       发表于 2026-9-1 20:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184625&amp;ptid=2275806" target="_blank">未知伤亡 发表于 2026-9-1 20:20</a>
+🐂🍺啊，是一句话生成的吗？</blockquote>
+是啊，提示词我放上去了
+
+—— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
