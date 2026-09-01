@@ -3664,3 +3664,49 @@ coding领域都拄上拐了，又贵又慢的模型直接pass。
 
 顺便有没有路过的大佬指个路 哪里有蹬3.8flash更便宜的订阅啊
 
+
+*****
+
+####  Gmlazy  
+##### 12189#       发表于 2026-9-1 17:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70183373&amp;ptid=2275806" target="_blank">神手之兔 发表于 2026-9-1 16:40</a>
+
+想问下我想用ai自己写个mud游戏，我能看得懂少量代码，应该用哪个ai比较合适？如果后续我做了图像资产要加 ...</blockquote>
+我自己用的GPT Pro 20x，不过用下来感觉5x可能更合适一些。
+
+我并不熟悉代码，每次AI写完之后，都要自己梳理一下AI都写了什么，实际并不能非常有效率的指挥调整代码和文档。好在学习了怎么和AI约定注释和文档说明后缓解了不少困难。
+
+就是每周重置额度的时候，觉得自己都用不了多少，5x档位间隔使用可能更适合我。
+
+开到20x应该是老练程序员才能用好吧。
+
+*****
+
+####  jinuzuktII  
+##### 12190#       发表于 2026-9-1 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70183495&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-9-1 16:55</a>
+
+官方199的应该是性价比最高的</blockquote>
+刚发现 199 的百万上下文还是分环境的，真坏呀
+
+*****
+
+####  nxmonitor  
+##### 12191#       发表于 2026-9-1 17:11
+
+等灰测的神秘模型吧，不是六边形战士也不怎么瘸腿（写文除外），但是总觉得参数又大了，价格不一定能下来…
+
+*****
+
+####  nxmonitor  
+##### 12192#       发表于 2026-9-1 17:14
+
+<blockquote>ayanamilin 发表于 2026-9-1 16:56
+我把 Claude、OpenAI 全退了，改用豆包，享受没被 agentic 训练破坏的语言能力
+
+暴论：AI 的未来在字节。
+</blockquote>
+那美国大豆包显然更强点…
+
