@@ -4266,3 +4266,21 @@ K3确实挺有料，但是这个额度感觉消耗非常快啊
 灰测版性能没问题但是不够稳定，看好几个做到一半坠机的了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">梁子你真就拿用户当小白鼠是吧
 
+
+*****
+
+####  jinuzuktII  
+##### 12246#       发表于 2026-9-2 00:09
+
+command code goat这个额度很迷，高级模型消耗飞快（也合理，要赚钱的
+
+留着跑ds吧
+
+
+*****
+
+####  王兰花秀丽  
+##### 12247#       发表于 2026-9-2 00:14
+
+话说之前说昇腾到货是预计多久来着    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
