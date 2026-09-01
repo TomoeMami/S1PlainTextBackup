@@ -3272,3 +3272,63 @@ Antigravity里面gemini pro可以用opus4.6，a÷的模型。
 
 本来想的是弱智也就弱智一点，买了minimax的49的plan，结果minimax m3也过于弱智了，完全不能用…………
 
+
+*****
+
+####  唠叨  
+##### 12157#       发表于 2026-9-1 11:24
+
+ 本帖最后由 唠叨 于 2026-9-1 11:25 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70181589&amp;ptid=2275806" target="_blank">blackdragon765 发表于 2026-9-1 11:18</a>
+
+所以老板们，现在还有什么便宜一点的dsv4f api么，plan也可以，预算50到100一个月，主要用来维护单位内网的 ...</blockquote>
+我在蹬千问的plan   个人感觉qwen3.8flash比v4f好用   v4f可以考虑command     你可以点只看该作者看我楼里回复 这俩我都用过
+
+*****
+
+####  blackdragon765  
+##### 12158#       发表于 2026-9-1 11:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70181633&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-9-1 11:24</a>
+
+我在蹬千问的plan   个人感觉qwen3.8flash比v4f好用   v4f可以考虑command     你可以点只看该作者看我楼 ...</blockquote>
+谢谢老板。我去看一下~
+
+
+*****
+
+####  自由之紫roy  
+##### 12159#       发表于 2026-9-1 11:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70181633&amp;ptid=2275806" target="_blank">唠叨 发表于 2026-9-1 11:24</a>
+
+我在蹬千问的plan   个人感觉qwen3.8flash比v4f好用   v4f可以考虑command     你可以点只看该作者看我楼 ...</blockquote>
+我看评测27b不比3.8flash分数低啊
+
+27b到底可以平替v4f0731吗
+
+*****
+
+####  CCauchy  
+##### 12160#       发表于 2026-9-1 11:31
+
+话说agentrouter还能坚持多久啊，怎么都不开放充值<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  neptunehs  
+##### 12161#       发表于 2026-9-1 11:33
+
+ 本帖最后由 neptunehs 于 2026-9-1 11:36 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70181686&amp;ptid=2275806" target="_blank">自由之紫roy 发表于 2026-9-1 11:30</a>
+我看评测27b不比3.8flash分数低啊
+
+27b到底可以平替v4f0731吗</blockquote>
+就算qwen那个分数信得过且不讨论ds系分数对不上实操的实力吧 那也是满血版的分数
+能跑满血版qwen3.8 27b的设备 应该可以跑v4f的iq2甚至iq3了吧？
+
+27b的iq3或q4什么的肯定不能平替 昨晚才把我东西搞砸的人路过
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
