@@ -3021,3 +3021,14 @@ is开通了自己的推特。
 
 之前还有人猜同cv是不是有黑幕，感觉基本就是省cv了
 
+
+*****
+
+####  qiyu1234  
+##### 3236#       发表于 2026-9-1 20:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184649&amp;ptid=2261859" target="_blank">flyingover 发表于 2026-9-1 20:26</a>
+
+之前还有人猜同cv是不是有黑幕，感觉基本就是省cv了</blockquote>
+之前是因为日英同CV吧，这种情况既往来说不是很多
+

@@ -4025,3 +4025,14 @@ ai小白提问一下，现在的ai能做到根据范本或者排版要求，将w
 
 —— 来自 Xiaomi 2602BRT18C, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  qwased  
+##### 12222#       发表于 2026-9-1 20:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184580&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-9-1 20:09</a>
+
+花4块用pro灰测写了个流浪猫游戏，可以选猫类型，还有表情变化，然后里面还有任务和对战游戏，这写的太完善 ...</blockquote>
+走着走着就被大狗嚼了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -117,3 +117,13 @@
 有没有考虑过今年可能没卡能抽的可能性（</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">圣诞突发强力卡
 
+
+*****
+
+####  森兰丸  
+##### 21542#       发表于 2026-9-1 20:30
+
+新的地狱试炼抄作业打了一半才发现有个任务是要80COST以下
+
+想了想还是算了不重打了....反正也就3个金方块<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
