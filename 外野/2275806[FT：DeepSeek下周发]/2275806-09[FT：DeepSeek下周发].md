@@ -3710,3 +3710,18 @@ coding领域都拄上拐了，又贵又慢的模型直接pass。
 </blockquote>
 那美国大豆包显然更强点…
 
+
+*****
+
+####  奥柏伦亲王  
+##### 12193#       发表于 2026-9-1 17:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70183532&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-1 16:59</a>
+
+K3让我失望的是非coding领域的讨论完全没有更强一档的感觉
+
+甚至不如v4pro，可能是问题场景的原因。
+
+coding ...</blockquote>
+其他领域我不了解，但根据我用下来的体验，以及一些讨论的情况，K3在法律领域是通用模型SOTA
+

@@ -46,3 +46,18 @@
 挖矿终于把莉莉丝挖出来了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">欧 部羡慕
 
+
+*****
+
+####  angelooo  
+##### 21536#       发表于 2026-9-1 17:24
+
+杀阶卡面上这俩都是劳模了，尤其杀狐，能吃到五种羁绊的女人，可怕
+
+*****
+
+####  Jamaisvu  
+##### 21537#       发表于 2026-9-1 17:29
+
+骑绊礼装吃了出得早的亏，卡面上只有尼莫一人，虽说他算诺亚融合素材...
+
