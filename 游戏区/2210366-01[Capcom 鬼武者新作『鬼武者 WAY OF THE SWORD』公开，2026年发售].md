@@ -2749,3 +2749,29 @@ IGN日本给黑神话也是7分
 
 拿哪家的评分来对比什么的其实也没什么意义，那些分都是不同编辑打的又不是全员一致给出的，都是个人评分那些编辑玩过的游戏还没很多玩家多，也就占着那个位置而已
 
+
+*****
+
+####  放大镜  
+##### 965#       发表于 2026-9-1 10:52
+
+拿哪家的评分 X
+
+高分/低分信自己/媒体 X
+
+高分信高分，低分信低分 O
+
+IGN日本只给7分，故鬼武者只有7分 O
+
+B站贴吧这种人流量大的地方，很多人就是想听点自己想听的，而且其中大部分明显就不怎么玩游戏
+
+*****
+
+####  zqqwe  
+##### 966#       发表于 2026-9-1 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70181075&amp;ptid=2210366" target="_blank">乔迪奥 发表于 2026-9-1 09:59</a>
+7分20的走壁和打石头真的太仁王3了</blockquote>
+仁王好歹是个无敌演出可以放松下，鬼武者这边中途还给你塞个远程怪感觉纯血压<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+想起隔壁忍龙4改了变向走壁操作后最后一关连续变向两次那里我还交过回生香<img src="https://static.stage1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
