@@ -3449,3 +3449,12 @@ minimax m3用来当视觉识别, 文生图和图生图拐杖还是可以的, 别
 你是不是交给他超出能力范围的任务了</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">破案了，hermes昨晚上出问题，上下文断了一段，我和他的信息对不上他就疯了……
 
+
+*****
+
+####  蛋黄酱Release  
+##### 12173#       发表于 2026-9-1 15:22
+
+试了一下qwen3.8f，感觉速度和智力都还不错。最近发布的这几个flash模型好像都不错，感觉也是好起来了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+反倒是大模型没一个真正比得上k3的
+
