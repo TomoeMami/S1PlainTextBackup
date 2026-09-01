@@ -3134,3 +3134,14 @@ HREoDWdWYAA1oHT.jpg
 
 真服了，敲键盘搞社区战争的快感，可能在他们的体验里就是比在游戏里搓招、凹关来得快，来得猛
 
+
+*****
+
+####  大喇叭花田  
+##### 1003#       发表于 2026-9-1 22:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70185068&amp;ptid=2210366" target="_blank">放大镜 发表于 2026-9-1 21:46</a>
+
+社区战争早在自定义年度游戏的那一刻就打响了，那才是看谁都像要害自家哥哥的样子，哪还用等到入秋媒体出 ...</blockquote>
+就不能都玩吗？玩游戏不应该是玩完一个就期待下一个吗？
+
