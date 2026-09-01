@@ -3569,3 +3569,26 @@ GPT吧，GPT便宜
 
 —— 来自 HONOR AAP-AN00, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  奥柏伦亲王  
+##### 12185#       发表于 2026-9-1 16:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70183403&amp;ptid=2275806" target="_blank">jinuzuktII 发表于 2026-9-1 16:42</a>
+
+K3要怎么用最划算呢？直接走官方订阅吗
+
+（非码农</blockquote>
+官方199的应该是性价比最高的
+
+
+*****
+
+####  ayanamilin  
+##### 12186#       发表于 2026-9-1 16:56
+
+我把 Claude、OpenAI 全退了，改用豆包，享受没被 agentic 训练破坏的语言能力
+
+暴论：AI 的未来在字节。
+

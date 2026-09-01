@@ -2845,3 +2845,28 @@ B站贴吧这种人流量大的地方，很多人就是想听点自己想听的�
 
 —— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  leia_rolando  
+##### 974#       发表于 2026-9-1 16:45
+
+这游戏快发售了，隔天一个官方视频的，不会是在游戏出来前就官方透完了吧
+
+*****
+
+####  sgssk  
+##### 975#       发表于 2026-9-1 16:49
+
+虽然官方在早期演示里主推一个“真实感”还做了好些慢节奏处决和招式交互，但平砍和准备一闪期间主角经常靠近得快跟怪物亲上了<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 976#       发表于 2026-9-1 16:50
+
+ 本帖最后由 桥洞底下盖小被 于 2026-9-1 16:53 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/34/efd873e6c19cc8f6e008c8bf8fd6af52/image.jpg" referrerpolicy="no-referrer">
+
