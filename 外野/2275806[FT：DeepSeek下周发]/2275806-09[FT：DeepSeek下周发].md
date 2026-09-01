@@ -4321,3 +4321,26 @@ WorkBuddy初体验之用小程序问了一个问题，它询问我，选择了�
 送不起别送，截至到上午十点，搞笑呢！</blockquote>
 感觉这一亿花的速度好快啊，帮我执行几个修复的任务就花完了……
 
+
+*****
+
+####  ivly  
+##### 12251#       发表于 2026-9-2 02:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70185232&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-9-1 22:11</a>
+用这几天免费积分跑的实际任务算了下，workbuddy的99/mo订阅，全用dv4f的话，等值官方api 204元，供参考。
+
+ ...</blockquote>
+WorkBuddy的flash感觉很蠢，感觉降智很严重，让他查东西，各种丢三落四，碰壁一次就不知道继续尝试。
+下载东西只知道下主模型，视觉模型和mtp头都不知道下载。
+
+—— 来自 OnePlus PKX110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  lly778  
+##### 12252#       发表于 2026-9-2 02:40
+
+A/出5.1了
+
