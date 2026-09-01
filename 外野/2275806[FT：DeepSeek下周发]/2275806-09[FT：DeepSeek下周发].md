@@ -3480,3 +3480,16 @@ minimax m3用来当视觉识别, 文生图和图生图拐杖还是可以的, 别
 
 —— 来自 Xiaomi 22081212C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 12176#       发表于 2026-9-1 15:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70182896&amp;ptid=2275806" target="_blank">1707k 发表于 2026-9-1 15:28</a>
+我目前在用cherry studio写小说，蛮好奇其他楼友都是用啥软件，有推荐的吗？
+话说，不同软件对AI的能力和开 ...</blockquote>
+Codex，拆成工作结构
+
+—— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
