@@ -3458,3 +3458,25 @@ minimax m3用来当视觉识别, 文生图和图生图拐杖还是可以的, 别
 试了一下qwen3.8f，感觉速度和智力都还不错。最近发布的这几个flash模型好像都不错，感觉也是好起来了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 反倒是大模型没一个真正比得上k3的
 
+
+*****
+
+####  BarricadeMKXX  
+##### 12174#       发表于 2026-9-1 15:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70181589&amp;ptid=2275806" target="_blank">blackdragon765 发表于 2026-9-1 11:18</a>
+所以老板们，现在还有什么便宜一点的dsv4f api么，plan也可以，预算50到100一个月，主要用来维护单位内网的 ...</blockquote>
+我搞了commandcode，你可以考虑试试水，算手续费75r左右一个月吧，dsv4f给60刀额度，不过要用v4fv就只有20刀额度了
+
+—— 来自 Xiaomi 25019PNF3C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  1707k  
+##### 12175#       发表于 2026-9-1 15:28
+
+我目前在用cherry studio写小说，蛮好奇其他楼友都是用啥软件，有推荐的吗？
+话说，不同软件对AI的能力和开销，有影响吗？
+
+—— 来自 Xiaomi 22081212C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
