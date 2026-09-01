@@ -3128,3 +3128,42 @@ token 用量能发一下参考吗？缓存命中率多少？</blockquote>
 
 现在ghs哪家强？打算用来搞一些游戏文本翻译。之前用的一个汉化包动不动“我不能这样做”太出戏了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  木谷高明  
+##### 12147#       发表于 2026-9-1 08:18
+
+github上有个项目是让v100模拟跑nvfp4
+
+四卡V100
+
+Qwen3.6-27B-AWQ + MTP4     
+100.564 tok/s
+
+Qwen3.6-35B-A3B NVFP4 + MTP4    
+174.76 tok/s
+
+Qwen3.8-27B-NVFP4
+61.834 tok/s
+
+Qwen3.8-27B-NVFP4 + DFlash2     
+251.60 tok/s
+
+Qwen3.8 Flash-Next-NVFP4 + MTP4     
+138.26 tok/s
+
+Qwen3.8 DFlash2 + adaptive lookup q16     
+316.27 tok/s 
+
+八卡V100
+DeepSeek-V4-Flash
+73.613–73.646 tok/
+
+GLM-5.3-Flash-NVFP4
+53.016 tok/s
+
+居然还有人对2017年的卡做优化
+
+比老黄的GB10性价比高多了
+
