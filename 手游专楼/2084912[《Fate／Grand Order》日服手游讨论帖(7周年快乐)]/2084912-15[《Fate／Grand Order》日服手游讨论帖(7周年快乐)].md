@@ -85,3 +85,24 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">轻轻松松 1把搞定 挺好的  yls至少不会在这种地方恶心人
 
+
+*****
+
+####  qixinno1  
+##### 21539#       发表于 2026-9-1 18:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70183654&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-9-1 17:14</a>
+
+欧 部羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">诅咒狗萌新今年不再出货
+
+*****
+
+####  alucardcz  
+##### 21540#       发表于 2026-9-1 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184094&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-9-1 18:25</a>
+
+诅咒狗萌新今年不再出货</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有考虑过今年可能没卡能抽的可能性（
+

@@ -2870,3 +2870,11 @@ B站贴吧这种人流量大的地方，很多人就是想听点自己想听的�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/34/efd873e6c19cc8f6e008c8bf8fd6af52/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大喇叭花田  
+##### 977#       发表于 2026-9-1 18:28
+
+看了一眼测评，怎么评论区全是拉踩的，鬼武者影之刃又得罪了哪些群体。
+

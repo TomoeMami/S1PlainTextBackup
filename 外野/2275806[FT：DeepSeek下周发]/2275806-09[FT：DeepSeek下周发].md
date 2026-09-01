@@ -3854,3 +3854,13 @@ glm5.3flash的缓存价格是个问题, 我尽然感觉不比glm5.3耐用多少
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">coding agent场景里，cache价格才是真正的价格签啊
 
+
+*****
+
+####  novalli  
+##### 12206#       发表于 2026-9-1 18:28
+
+没有范式变革的话开放问题就是没办法。毕竟本质是找相似向量，模糊的东西就纯赌概率，没办法给出啥有价值的回答。
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
