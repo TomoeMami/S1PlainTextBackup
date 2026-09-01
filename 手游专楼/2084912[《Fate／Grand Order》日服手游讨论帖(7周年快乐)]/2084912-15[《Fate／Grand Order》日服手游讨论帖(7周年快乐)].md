@@ -106,3 +106,14 @@
 诅咒狗萌新今年不再出货</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有考虑过今年可能没卡能抽的可能性（
 
+
+*****
+
+####  qixinno1  
+##### 21541#       发表于 2026-9-1 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184106&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-9-1 18:27</a>
+
+有没有考虑过今年可能没卡能抽的可能性（</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">圣诞突发强力卡
+

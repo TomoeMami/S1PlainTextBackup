@@ -3878,3 +3878,24 @@ ds做这种工作做不了吗？
 
 —— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  Gmlazy  
+##### 12208#       发表于 2026-9-1 19:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184232&amp;ptid=2275806" target="_blank">神手之兔 发表于 2026-9-1 18:51</a>
+
+ds做这种工作做不了吗？
+
+—— 来自 HONOR MAA-AN10, Android 16, 鹅球 v4.0</blockquote>
+ds这些天我查看S1网友的帖子，已经能实现很多东西，我觉得也是可以做的。
+
+我ds用的不多，选用GPT主要原因是看推荐说GPT更擅长整体的构建，当然这只是我作为门外汉的观察意见。
+
+用GPT的过程中，我觉得做好用AGENTS.md文档和AI约定重要事项、功能和代码规范，还有项目概况记录可以做到很多事情，高档位模型AI对自然语言的归纳和落实到代码的能力出乎我的意料。
+
+我建议你先用dsh先做一些简单的MUD游戏，然后让它输出工作文档和成品给你，你可以通过工作文档大概了解它是怎么运作的。
+
+然后去了解AGENTS.md在指导AI工作中的作用，这部分有很多人讲解而且会拓展很多。AGENTS.md甚至可以指导AI自己去创建子组件的文档，来进一步指导细节工作。
+
