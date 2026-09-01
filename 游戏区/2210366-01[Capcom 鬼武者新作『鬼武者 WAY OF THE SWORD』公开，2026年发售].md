@@ -2695,3 +2695,16 @@ ARPG的对比对象是魂或者仁王？
 
 IGN日本给黑神话也是7分
 
+
+*****
+
+####  乔迪奥  
+##### 960#       发表于 2026-9-1 09:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180993&amp;ptid=2210366" target="_blank">汪达 发表于 2026-9-1 09:46</a>
+
+官方放系统介绍视频了，7:10能看到还有两招黄金剑气
+
+【《鬼武者 Way of the Sword》 – 剑戟动作介绍视频 ...</blockquote>
+7分20的走壁和打石头真的太仁王3了
+
