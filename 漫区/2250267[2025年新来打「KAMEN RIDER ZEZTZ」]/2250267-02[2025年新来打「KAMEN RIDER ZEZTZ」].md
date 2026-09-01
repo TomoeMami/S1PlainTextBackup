@@ -390,3 +390,16 @@ b part的老资历帮助后辈这一段单拿出来我还挺喜欢的，但最�
 
 —— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  洛克萨斯  
+##### 2253#       发表于 2026-9-1 13:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70181894&amp;ptid=2250267" target="_blank">月夜凝雪 发表于 2026-9-1 12:00</a>
+
+看到各种平均基本都吹SABER，我是被前期刷下来的那批也有点想去补了
+
+歌查德基本声音一致垫底来着？ ...</blockquote>
+歌查德在黎明出来中期到彩虹龙之前挺好看的
+

@@ -3352,3 +3352,11 @@ Antigravity里面gemini pro可以用opus4.6，a÷的模型。
 
 求问一下千问3.8flash实际使用体验好吗？轻度使用（像原来的opencodego那种程度）买什么比较划算？阿里云百炼的lite套餐行吗？
 
+
+*****
+
+####  Promeus  
+##### 12164#       发表于 2026-9-1 13:40
+
+Glm6规划rsi了<img src="https://p.sda1.dev/34/d6552ae13d3d021d2d4a3365607bb388/image.jpg" referrerpolicy="no-referrer">
+
