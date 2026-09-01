@@ -3120,3 +3120,11 @@ token 用量能发一下参考吗？缓存命中率多少？</blockquote>
 
 更新V5没问题，但是请把V4 Flash保留一段时间。如果能降价就更妙了。
 
+
+*****
+
+####  apefrank  
+##### 12146#       发表于 2026-9-1 07:54
+
+现在ghs哪家强？打算用来搞一些游戏文本翻译。之前用的一个汉化包动不动“我不能这样做”太出戏了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
