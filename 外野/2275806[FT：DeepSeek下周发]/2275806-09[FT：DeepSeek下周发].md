@@ -4401,3 +4401,15 @@ HRJmPW2XoAA-KJb.jpg
 
 等O的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 12258#       发表于 2026-9-2 03:50
+
+ 本帖最后由 andychen 于 2026-9-2 03:53 编辑 
+
+从opus5上看，anthropic的蒸馏或者强化学习端可能有什么问题，水平不如行业平均
+
+前提是opus5是用fable的合成数据训练的，目前这点还不好讲。一方面从opus5的命名确实和fable有关系，模型的输出也很像一个使用了大量蒸馏数据训练的表现，另一方面opus和fable的参数规模差距并不大，做大规模蒸馏训练的收益不高
+
