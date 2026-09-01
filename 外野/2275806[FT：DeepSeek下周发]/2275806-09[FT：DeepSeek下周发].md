@@ -3907,3 +3907,15 @@ ds这些天我查看S1网友的帖子，已经能实现很多东西，我觉得�
 
 kimi k3 max这个思考真的长，比fable 5 max长太多了。后发的模型还是基本上靠长思考刷高分<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  舞以  
+##### 12210#       发表于 2026-9-1 19:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">订阅了kimi的服务尝尝咸淡
+
+结果手机端登录发现没有订阅，id也不对，以为手机号绑错账户了，把账户删了，哦豁，已经花了钱的账户也没了。
+
+现在只能给Kimi的客服发邮件了<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
