@@ -3262,3 +3262,13 @@ opus4.6又是啥<img src="https://static.stage1st.com/image/smiley/face2017/018.
 opus4.6又是啥</blockquote>
 Antigravity里面gemini pro可以用opus4.6，a÷的模型。
 
+
+*****
+
+####  blackdragon765  
+##### 12156#       发表于 2026-9-1 11:18
+
+所以老板们，现在还有什么便宜一点的dsv4f api么，plan也可以，预算50到100一个月，主要用来维护单位内网的php屎山，加上我正在准备公考的一些辅助学习材料整理，排学习计划这种简单的工作。
+
+本来想的是弱智也就弱智一点，买了minimax的49的plan，结果minimax m3也过于弱智了，完全不能用…………
+
