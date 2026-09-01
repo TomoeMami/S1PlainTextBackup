@@ -3919,3 +3919,38 @@ kimi k3 max这个思考真的长，比fable 5 max长太多了。后发的模型�
 
 现在只能给Kimi的客服发邮件了<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真田源次郎信繁  
+##### 12211#       发表于 2026-9-1 20:01
+
+让glm5.3去搞，它特别喜欢用xxx战役这种词
+
+这都哪里学的？赛博任正非是吧
+
+*****
+
+####  tillnight  
+##### 12212#       发表于 2026-9-1 20:04
+
+这次下班都没关灰测。越来越抽象了，看不懂是想发还是不想发。
+
+*****
+
+####  Noiratod  
+##### 12213#       发表于 2026-9-1 20:05
+
+ai小白提问一下，现在的ai能做到根据范本或者排版要求，将word的格式给调整明白吗
+
+去年还是前年用kimi那个电脑功能反正是办不到这点<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Promeus  
+##### 12214#       发表于 2026-9-1 20:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184554&amp;ptid=2275806" target="_blank">tillnight 发表于 2026-9-1 20:04</a>
+这次下班都没关灰测。越来越抽象了，看不懂是想发还是不想发。</blockquote>
+灰测又开了？
+
