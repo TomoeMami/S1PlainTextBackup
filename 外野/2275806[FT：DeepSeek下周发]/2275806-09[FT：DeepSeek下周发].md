@@ -3382,3 +3382,25 @@ RSI容易炼翻车啊
 
 —— 来自 HUAWEI SGU-AL10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
 
+
+*****
+
+####  sellboy  
+##### 12167#       发表于 2026-9-1 14:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70182336&amp;ptid=2275806" target="_blank">Promeus 发表于 2026-9-1 13:40</a>
+
+Glm6规划rsi了</blockquote>
+minimax m3是不是就是硬练rsi的例子？
+
+*****
+
+####  misuzu0723  
+##### 12168#       发表于 2026-9-1 14:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70182514&amp;ptid=2275806" target="_blank">sellboy 发表于 2026-9-1 14:26</a>
+minimax m3是不是就是硬练rsi的例子？</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">记得刚出来的时候吹什么自主进化，比肩 opus 
+
+—— 来自 vivo V2405A, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
