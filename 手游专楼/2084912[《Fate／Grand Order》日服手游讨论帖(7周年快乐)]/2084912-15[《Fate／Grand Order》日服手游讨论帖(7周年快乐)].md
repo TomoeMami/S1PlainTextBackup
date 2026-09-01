@@ -135,3 +135,57 @@
 
 水比肖内卡面和建模好良心啊，原版没什么感觉这个版本看着真不错
 
+
+*****
+
+####  qixinno1  
+##### 21544#       发表于 2026-9-1 18:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70183654&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-9-1 17:14</a>
+
+欧 部羡慕</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">诅咒狗萌新今年不再出货
+
+*****
+
+####  alucardcz  
+##### 21545#       发表于 2026-9-1 18:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184094&amp;ptid=2084912" target="_blank">qixinno1 发表于 2026-9-1 18:25</a>
+
+诅咒狗萌新今年不再出货</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有考虑过今年可能没卡能抽的可能性（
+
+*****
+
+####  qixinno1  
+##### 21546#       发表于 2026-9-1 19:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184106&amp;ptid=2084912" target="_blank">alucardcz 发表于 2026-9-1 18:27</a>
+
+有没有考虑过今年可能没卡能抽的可能性（</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">圣诞突发强力卡
+
+*****
+
+####  森兰丸  
+##### 21547#       发表于 2026-9-1 20:30
+
+新的地狱试炼抄作业打了一半才发现有个任务是要80COST以下
+
+想了想还是算了不重打了....反正也就3个金方块<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  laosai13  
+##### 21548#       发表于 2026-9-2 01:22
+
+水比肖内卡面和建模好良心啊，原版没什么感觉这个版本看着真不错
+
+*****
+
+####  khxooo  
+##### 21549#       发表于 2026-9-2 07:09
+
+靠，不小心将血斧直接干死了，吃一次血斧宝具任务失败了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
