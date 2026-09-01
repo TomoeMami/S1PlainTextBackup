@@ -3864,3 +3864,17 @@ glm5.3flash的缓存价格是个问题, 我尽然感觉不比glm5.3耐用多少
 
 —— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  神手之兔  
+##### 12207#       发表于 2026-9-1 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70183626&amp;ptid=2275806" target="_blank">Gmlazy 发表于 2026-9-1 17:10</a>
+我自己用的GPT Pro 20x，不过用下来感觉5x可能更合适一些。
+
+我并不熟悉代码，每次AI写完之后，都要自己梳 ...</blockquote>
+ds做这种工作做不了吗？
+
+—— 来自 HONOR MAA-AN10, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
