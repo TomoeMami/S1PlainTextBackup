@@ -4374,3 +4374,30 @@ HRJmPW2XoAA-KJb.jpg
 
 <img src="https://img.stage1st.com/forum/202609/02/025419xg8dv6g4f809wr7w.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jojog  
+##### 12255#       发表于 2026-9-2 03:05
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这不等于脱了裤子放屁
+
+那个科学测试真难有人测吗？
+
+合着最后就一个降25%缓存命中价格是吧
+
+*****
+
+####  qwased  
+##### 12256#       发表于 2026-9-2 03:09
+
+没活了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cscbzcbz  
+##### 12257#       发表于 2026-9-2 03:12
+
+等O的吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
