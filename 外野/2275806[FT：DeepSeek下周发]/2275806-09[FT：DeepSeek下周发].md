@@ -3167,3 +3167,16 @@ GLM-5.3-Flash-NVFP4
 
 比老黄的GB10性价比高多了
 
+
+*****
+
+####  冤枉呐  
+##### 12148#       发表于 2026-9-1 08:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180520&amp;ptid=2275806" target="_blank">apefrank 发表于 2026-9-1 07:54</a>
+现在ghs哪家强？打算用来搞一些游戏文本翻译。之前用的一个汉化包动不动“我不能这样做”太出戏了 ...</blockquote>
+我现在觉得是grok
+不过印区羊毛，一个月了我也没敢用中文
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
