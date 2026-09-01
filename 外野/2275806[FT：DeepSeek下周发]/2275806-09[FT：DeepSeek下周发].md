@@ -4190,3 +4190,44 @@ Grok Bot原来已经下放给SuperGrok了，给的云电脑配置居然跟300刀
 天才程序员5.6sol被我蹬陨落了，正值梁文谷，想问问楼里的各位工程师，V4flash VE用来做代码审查效果如何？ ...</blockquote>
 灰测版性能没问题但是不够稳定，看好几个做到一半坠机的了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绕指流光  
+##### 12239#         楼主| 发表于 2026-9-1 22:52
+
+今晚都在吹 GPT  Astra ，会是大的吗<img src="https://static.stage1st.com/image/smiley/face/158.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  来都来了  
+##### 12240#       发表于 2026-9-1 22:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184556&amp;ptid=2275806" target="_blank">Noiratod 发表于 2026-9-1 20:05</a>
+ai小白提问一下，现在的ai能做到根据范本或者排版要求，将word的格式给调整明白吗
+
+去年还是前年用kimi那个 ...</blockquote>
+可以    
+
+
+*****
+
+####  phorcys02  
+##### 12241#       发表于 2026-9-1 22:52
+
+command code goat 的第一个 周限额蹬完了。大概这样，只蹬v4f,  2.7B, 不是严格按照梁文谷蹬的，如果严格遵循梁文谷，估计在3B左右，每月大概6B。
+
+当然这个数字取决于你的命中率，我基本都是dsh蹬的，命中率都是99%+。
+
+command code goat 可能和 ollama pro一样自部署了， 因为最近人少时候有300token/s, 人多时候也有150-200token/s.
+
+和官网相比量化的程度感觉还好，略低一点点。我的任务不是特别吃模型智力，所以感觉还好。
+
+<img src="https://img.stage1st.com/forum/202609/01/224927jtvc811e194e1kvi.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (49.08 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-1 22:49 上传
+
