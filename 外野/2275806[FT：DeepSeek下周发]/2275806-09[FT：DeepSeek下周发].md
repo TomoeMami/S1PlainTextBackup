@@ -4423,3 +4423,15 @@ https://github.com/elder-plinius/CL4R1T4S/blob/main/ANTHROPIC/Claude-Fable-5.1.m
 
 提示词就干进去70k 对比一下鲸鱼要发挥智力只能留一句提示词<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiaohanne  
+##### 12260#       发表于 2026-9-2 06:49
+
+<blockquote>ivly 发表于 2026-9-2 02:38
+WorkBuddy的flash感觉很蠢，感觉降智很严重，让他查东西，各种丢三落四，碰壁一次就不知道继续尝试。
+
+下 ...</blockquote>
+最近免费积分多，先用再说
+
