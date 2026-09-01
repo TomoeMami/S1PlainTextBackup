@@ -3020,3 +3020,64 @@ IGN自找的
 
 打完新demo了，真不错，这两天把新鬼打完差不多碟也到了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 993#       发表于 2026-9-1 21:05
+
+因为鬼武者是个不太权威的对手吧，怎么不去和只狼打呢？
+
+作为战斗爽玩家来看影之刃不比只狼差，但冲锋让别人去好了我只想看戏。
+
+
+*****
+
+####  乔迪奥  
+##### 994#       发表于 2026-9-1 21:13
+
+这张截图离远了我是真分不出是仁还是鬼
+
+HREofRFXAAAqsCT.jpg
+(342.36 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-1 21:13 上传
+
+<img src="https://img.stage1st.com/forum/202609/01/211300xax7xxssl3syc57i.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  乔迪奥  
+##### 995#       发表于 2026-9-1 21:14
+
+这个护甲是什么?副武器的效果还是其他皮肤，话说剧透有说除了豪华版送的皮肤之外还有其他可替换皮肤吗
+
+HREoDWdWYAA1oHT.jpg
+(334.48 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-1 21:13 上传
+
+<img src="https://img.stage1st.com/forum/202609/01/211347gxve3h7vjr4bkjq4.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  a3a4sc  
+##### 996#       发表于 2026-9-1 21:14
+
+其实看MC媒体均分对比一下，发现和卡普空今年三部新作差不多分之后，就能明白这（在媒体眼中）依然是高水准的一部了。
+
+看完分已经订了实体版了
+
+*****
+
+####  Troywest  
+##### 997#       发表于 2026-9-1 21:15
+
+这百秽只是个流程精英怪但是打起来有鬼泣4大舅哥，鬼泣5雷骑士的感觉了。敌人的各种招式你都有对应的方法美美应对，玩起来很舒服，网上看到了各种带着自己小巧思的视频。
+
+—— 来自 OnePlus PJZ110, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
