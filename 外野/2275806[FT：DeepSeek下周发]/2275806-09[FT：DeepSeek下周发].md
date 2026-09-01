@@ -3532,3 +3532,11 @@ Codex，拆成工作结构
 
 之前一直是用 pi + ds4f，最近一些 side project 尝试了一下 dsh，感觉 dsh（标准模式）+ ds4f 就已经挺好了
 
+
+*****
+
+####  蛋黄酱Release  
+##### 12181#       发表于 2026-9-1 16:35
+
+有人知道千问的token plan套餐大概相当于多少折扣吗<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
