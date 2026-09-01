@@ -2729,3 +2729,23 @@ IGN日本给黑神话也是7分
 首先卡婊肯定弄不出有趣的支线玩法和大量支线剧情，那 ...</blockquote>
 有一说一，像生化4re还有怪猎物语3的支线任务玩法上都挺有趣的
 
+
+*****
+
+####  mai6696  
+##### 963#       发表于 2026-9-1 10:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70181075&amp;ptid=2210366" target="_blank">乔迪奥 发表于 2026-9-1 09:59</a>
+
+7分20的走壁和打石头真的太仁王3了</blockquote>
+为什么普通的墙你不这样走？为什么普通的墙你不能打碎了？
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 问就是灵脉的力量。
+
+
+*****
+
+####  u2deack  
+##### 964#       发表于 2026-9-1 10:20
+
+拿哪家的评分来对比什么的其实也没什么意义，那些分都是不同编辑打的又不是全员一致给出的，都是个人评分那些编辑玩过的游戏还没很多玩家多，也就占着那个位置而已
+
