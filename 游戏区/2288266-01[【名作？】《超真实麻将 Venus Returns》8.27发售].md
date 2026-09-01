@@ -512,3 +512,16 @@ TLOU2吹上天的脱衣服居然也被这游戏实现了，illusion恐怖如斯<
 
 手K动画不多吹了,收集品里的附带小册子和说明书是完全复刻内页的,众筹大概值在这里
 
+
+*****
+
+####  桐野心音  
+##### 46#         楼主| 发表于 2026-9-1 10:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70180270&amp;ptid=2288266" target="_blank">月夜凝雪 发表于 2026-9-1 01:40</a>
+
+没本番，但明明台词和气氛都到位了，不知道后续会不会有补丁，
+
+动作还不错，就是没上VR不知道VR会不会好点 ...</blockquote>
+这个系列就是这样，只脱不瑟瑟的
+
