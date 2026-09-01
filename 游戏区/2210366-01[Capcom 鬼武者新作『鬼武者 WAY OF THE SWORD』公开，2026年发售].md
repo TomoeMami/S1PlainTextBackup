@@ -2906,3 +2906,14 @@ B站贴吧这种人流量大的地方，很多人就是想听点自己想听的�
 看了一眼测评，怎么评论区全是拉踩的，鬼武者影之刃又得罪了哪些群体。</blockquote>
 大学生demo级别的花果山关卡的猴批
 
+
+*****
+
+####  djw1984  
+##### 981#       发表于 2026-9-1 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184259&amp;ptid=2210366" target="_blank">ShiKi847 发表于 2026-9-1 18:57</a>
+
+大学生demo级别的花果山关卡的猴批</blockquote>
+哈哈，今年都得被gta6暴揍，本想拿个软柿子捏捏，结果被反爆菊，导致恼羞成怒
+
