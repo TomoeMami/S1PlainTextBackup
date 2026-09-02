@@ -3395,3 +3395,27 @@ HREoDWdWYAA1oHT.jpg
 
 欧美都去买那个吸血鬼版巫师了，巫师精神续作的名号还是响亮啊只能说
 
+
+*****
+
+####  来都来了  
+##### 1028#       发表于 2026-9-2 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70186971&amp;ptid=2210366" target="_blank">conanoysq 发表于 2026-9-2 09:35</a>
+无论是pc还是主机预购量很难看，必定卖不过识质存在。萝莉当时售前蒸汽全球榜都冲到了第二，武藏现在才第 ...</blockquote>
+卡普空的游戏还是不预购为妙。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yj98879  
+##### 1029#       发表于 2026-9-2 13:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70188555&amp;ptid=2210366" target="_blank">汪达 发表于 2026-9-2 13:16</a>
+
+你还真别说，黑流量也是流量
+
+看了眼steam销量排行，还真就国区销量排行最高
+
+欧美都去买那个吸血鬼版巫师了 ...</blockquote>
+没毛病，这年头就怕骂都没人骂。
+
