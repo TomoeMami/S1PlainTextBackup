@@ -4852,3 +4852,14 @@ qwen的话我就不太懂了喵 ...</blockquote>
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">kimi的审查啥情况啊，一个纯粹的历史问题，让它做深度研究，不知道是不是搜到了啥怪东西，然后就告诉我失败了。
 
+
+*****
+
+####  奥柏伦亲王  
+##### 12304#       发表于 2026-9-2 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70187580&amp;ptid=2275806" target="_blank">→熙← 发表于 2026-9-2 10:52</a>
+
+不刷分就无绩效,就地解散是吧</blockquote>
+现在几个超级大厂的模型都不太行，问题可能也就出在这吧
+
