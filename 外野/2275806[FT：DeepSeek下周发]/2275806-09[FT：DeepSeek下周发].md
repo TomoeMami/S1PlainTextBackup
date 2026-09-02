@@ -5636,3 +5636,18 @@ OpenAI的已经很烂了，kimi的感觉更烂
 OpenAI的已经很烂了，kimi的感觉更烂</blockquote>
 kimi的已经算好了. minimax design 的甚至还是opencode 套壳. 虽然套了一层非常厚的workflow
 
+
+*****
+
+####  RookieTnT  
+##### 12368#       发表于 2026-9-2 23:38
+
+openai 的 Daybreak Blue  还需要绑定实体密钥才能用.. 好麻烦 不知道手搓的esp32 key可以不
+
+*****
+
+####  王兰花秀丽  
+##### 12369#       发表于 2026-9-2 23:39
+
+dsh 连着更了alpha 4和alpha 5    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+

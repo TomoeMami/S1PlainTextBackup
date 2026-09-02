@@ -39,3 +39,21 @@
 
 —— 來自 realme RMX5200, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  suzakushi  
+##### 74#       发表于 2026-9-2 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70189005&amp;ptid=2287441" target="_blank">ハ－ダリ=クラウド 发表于 2026-9-2 14:48</a>
+
+主线剧情的战场玩法居然是慢节奏的RTS，非AUTO模式下我方部队只会傻傻地在原地待机，手动指挥得先选中部队 ...</blockquote>
+战争系统和5代比较像，再之前的系列作是走格子的，不明白为什么要用5代的系统，5代打仗感觉是全游戏最高血压的环节。
+
+*****
+
+####  suzakushi  
+##### 75#       发表于 2026-9-2 23:37
+
+这次池子交了60发只出了个韩福利，后悔上个池子交了100了。。我本来的目标是月底的池子啊。。确实抽卡规划好难，感觉到时候要氪服困难了。
+
