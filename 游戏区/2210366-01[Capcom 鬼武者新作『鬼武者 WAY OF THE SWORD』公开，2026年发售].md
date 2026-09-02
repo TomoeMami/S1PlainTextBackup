@@ -3655,3 +3655,14 @@ HREoDWdWYAA1oHT.jpg
 卡表现在的角色设计处于一个既能讨好dei，又不让玩家太过反感的程度。</blockquote>
 新公布的紫式部普女以上，个人觉得没达到艺术化美女的水平，但卡表又专门做了一堆色气演出，抿嘴的黏膜音效都给你强调出来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能有人真的好这口
 
+
+*****
+
+####  shimotsuki14  
+##### 1056#       发表于 2026-9-2 18:00
+
+荒野给我打击太大，我还是等等吧，虽然demo跟百秽打得很爽
+demo里感觉怪普遍有点少，有点担心体量问题，说到体量又想到了前几年re3
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
