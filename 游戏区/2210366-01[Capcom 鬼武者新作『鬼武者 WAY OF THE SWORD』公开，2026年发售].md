@@ -3325,3 +3325,11 @@ HREoDWdWYAA1oHT.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很合理啊，毕竟每个人都有抄起键盘要保护东西，这才是pvp
 
+
+*****
+
+####  RαPβiT  
+##### 1021#       发表于 2026-9-2 11:34
+
+玩游戏的都是仇人
+

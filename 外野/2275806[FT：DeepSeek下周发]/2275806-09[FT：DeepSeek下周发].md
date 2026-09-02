@@ -4771,3 +4771,13 @@ qwen明知道大家都知道他是跑分战士，但还是坚持不懈的刷分�
 
 如果想做一个放置类小游戏自娱自乐，这种用啥模型啥工具比较好？
 
+
+*****
+
+####  qwased  
+##### 12297#       发表于 2026-9-2 11:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70187844&amp;ptid=2275806" target="_blank">龙骑将 发表于 2026-9-2 11:22</a>
+如果想做一个放置类小游戏自娱自乐，这种用啥模型啥工具比较好？</blockquote>
+把你想要的效果写明白，找网页版ds pro讨论一下扩展成设计文档，丢pi里面接dsv4视觉版，装个搜索工具，让它按照文档实现顺便上网搜美术资源
+

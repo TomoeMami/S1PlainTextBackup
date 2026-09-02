@@ -98,3 +98,14 @@
 
 可能活跃粉丝也是twitch多了
 
+
+*****
+
+####  古战场亡魂  
+##### 21083#       发表于 2026-9-2 11:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70185025&amp;ptid=2018830" target="_blank">秋游刃 发表于 2026-9-1 21:39</a>
+
+老鼠台同接现在比404高这么多了</blockquote>
+也就昨天特殊点吧，一般也就600-1200。比404少点。
+
