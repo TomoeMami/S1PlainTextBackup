@@ -4904,3 +4904,47 @@ Pi
 qwen在他们的max模型上的理念是不是就是刷分就完事儿了？</blockquote>
 是每个模型……
 
+
+*****
+
+####  →熙←  
+##### 12309#       发表于 2026-9-2 13:17
+
+v4fv的雷霆大思考好恶心, 还不是有条理的一条一条的往下走,而是不停的重复上一条思考的条件, 不停的在原地打转
+
+*****
+
+####  novalli  
+##### 12310#       发表于 2026-9-2 13:18
+
+有时间的话看起来dsh确实可玩性很高，但可惜我没时间，还是滚回去用pi了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+*****
+
+####  qwased  
+##### 12311#       发表于 2026-9-2 13:19
+
+藤子发了个hy4的q1量化版，测试结果比ud q4km还好；我在测一个qwe3.8 27b的新量化，11gb大小的iq3s，表现也比ud的iq3好一大截，社区的人反馈说实测能和q5比
+现在的量化技术越来越牛逼了，家用硬件部署的性能上限都是前两个月不敢想的
+
+
+*****
+
+####  CCauchy  
+##### 12312#       发表于 2026-9-2 13:21
+
+dsh好多我想开发的功能都陆陆续续有官方版本了，还是要等等
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  CCauchy  
+##### 12313#       发表于 2026-9-2 13:24
+
+为什么我总能在群里看到一些人随着AI能力的发展变得越来越狂妄了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

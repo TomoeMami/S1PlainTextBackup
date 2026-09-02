@@ -236,3 +236,14 @@ https://b23.tv/BV1dg411J7sR
 xbg pv我发现所有的镜头里，草和树都在晃动，感觉是在凸显风的存在，风肯定是环境叙事里重要的一环，就跟xb ...</blockquote>
 预告片说了anima之力可以操纵水火风，女三那个学姐类似于xb3“送行”的能力似乎用的就是风之力
 
+
+*****
+
+####  misya  
+##### 2071#       发表于 2026-9-2 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70186646&amp;ptid=2283074" target="_blank">lost-star 发表于 2026-9-2 08:38</a>
+
+反而这次担心音乐会翻车，虽然天天说啥光田牛逼，那是因为他异度装甲老资历，但是清楚的都知道神剑系列的音 ...</blockquote>
+如果离开的几位在XB外也能展现的了高水准的话，那才能证明是个人能力，游戏音乐制作说到底靠的还是团队，至少XB2时音乐是高桥一首一首审过来的，更何况ACE和平野写的曲从录音到混音都是procyon studio负责的
+
