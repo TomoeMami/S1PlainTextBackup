@@ -5281,3 +5281,25 @@ fable那个价格和使用门槛，我认为跟DS就不是一个赛道
 
 现在就是搞了caveman和codegraph什么的在试
 
+
+*****
+
+####  qwased  
+##### 12345#       发表于 2026-9-2 19:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70190623&amp;ptid=2275806" target="_blank">scikirbypoke 发表于 2026-9-2 19:18</a>
+有没有分享下省token经验的，感觉插件和MCP使用得当应该确实能省
+
+现在就是搞了caveman和codegraph什么的在 ...</blockquote>
+轻量harness 上下文用到300k左右就让写交接文档开新对话
+别的都没什么用
+
+*****
+
+####  苇原雪道  
+##### 12346#       发表于 2026-9-2 19:29
+
+v4fv的雷霆大思考有办法缓解么？不想切pro，pro太贵了一天我干出去好几十
+
+—— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
