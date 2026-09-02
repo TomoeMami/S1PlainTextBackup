@@ -5689,3 +5689,25 @@ qwen3.8 flash next好像是因为官方的MTP有问题导致上下文一长就�
 论坛助手,iPhone</blockquote>
 我怀疑哈基米已经放弃Pro了。本来嘛，对g家来说，不管是搜索入口还是浏览器入口，都用不着 Pro 那么高级的玩意儿。
 
+
+*****
+
+####  lactone  
+##### 12374#       发表于 2026-9-3 00:02
+
+gemini3.8flash这个分奇葩啊，高的瞎高，低的瞎低
+
+—— 来自 vivo V2520A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  xiaohanne  
+##### 12375#       发表于 2026-9-3 00:04
+
+<blockquote>lactone 发表于 2026-9-3 00:02
+gemini3.8flash这个分奇葩啊，高的瞎高，低的瞎低
+
+—— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alph ...</blockquote>
+看了眼，我宣布deep swe已经是野榜了！
+
