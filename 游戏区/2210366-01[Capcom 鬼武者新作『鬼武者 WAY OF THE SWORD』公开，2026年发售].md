@@ -3584,3 +3584,11 @@ HREoDWdWYAA1oHT.jpg
 
 传统ACT除了鬼泣哪个没褒姒？贝姐3销量才刚100W出头。
 
+
+*****
+
+####  zqqwe  
+##### 1048#       发表于 2026-9-2 16:19
+
+忍龙4濑织把鬼武者这作全部女角色拉一起爆了，然而这么好的人设一集抛<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
