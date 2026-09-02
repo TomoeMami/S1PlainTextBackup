@@ -5442,3 +5442,24 @@ docs/        PROJECT / AUDIT / HANDOFF（实现笔记）
 
 物理逻辑上灰测没和Fable有多少差距，贴图质量和建模材质问题算是好解决的…
 
+
+*****
+
+####  qwased  
+##### 12349#       发表于 2026-9-2 19:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70190676&amp;ptid=2275806" target="_blank">苇原雪道 发表于 2026-9-2 19:29</a>
+v4fv的雷霆大思考有办法缓解么？不想切pro，pro太贵了一天我干出去好几十
+
+—— 来自 Xiaomi 24129PN74C, A ...</blockquote>
+极简模式的we need思维链会边做边改
+
+*****
+
+####  CCauchy  
+##### 12350#       发表于 2026-9-2 20:00
+
+谁能测肥波，我有一些资料，测一下写作，应该应该不用多少token
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
