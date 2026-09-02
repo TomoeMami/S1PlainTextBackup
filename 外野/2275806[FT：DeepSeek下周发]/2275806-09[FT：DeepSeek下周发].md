@@ -5544,3 +5544,37 @@ v4fv的雷霆大思考有办法缓解么？不想切pro，pro太贵了一天我�
 
 <blockquote>李飞飞World Labs发布新一代世界模型Atlas，号称全球首个多模态世界模型。它不仅能精确控制相机生成视频，还能完成3D重建、视频换机位，甚至把真实场景快速复制进模拟器，用来训练机器人。</blockquote>不懂，但感觉这个好像很厉害
 
+
+*****
+
+####  冤枉呐  
+##### 12360#       发表于 2026-9-2 22:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70190968&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-2 20:23</a>
+基元的赠币明天要过期，今天蹬了30块钱pro之后实在想不到还能做什么了，坛友来点建议 ...</blockquote>
+我搞了一天了也没搞完
+想让他翻译刘备，但是他是阿里云托管的
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  ivly  
+##### 12361#       发表于 2026-9-2 22:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70191563&amp;ptid=2275806" target="_blank">相见恨晚 发表于 2026-9-2 22:01</a>
+
+怎么感觉WorkBuddy好难用啊，广告多就不说了，用免费的hy4思维链里还一直说恶心的话，最重要的是询问自己跳 ...</blockquote>
+WorkBuddy的都难用，不知道腾子加了什么东西，用deepseek flash都经常出幻觉，答非所问，你叫他做这个，他突发奇想做另一个事情，不得不中断。
+
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 12362#       发表于 2026-9-2 22:13
+
+字节的plan里glm 5.3 f给了0.15/M的平价。。。。无论输入输出cache 现在1B 15块 我们处理每天10个T数据的成本到了4位数rmb.。。。
+
+人类。。。不需要了。。。
+

@@ -3741,3 +3741,11 @@ ign测评中特别提到了动画演出的细节表现，剧情也因此给了�
 
 MC剑星 82分，轮回之兽 73分，自己想想卡婊这些游戏85到90之间是否合理。<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  theworld  
+##### 1064#       发表于 2026-9-2 22:13
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">刷到251的港版了，这游戏怎么天天在跌
+
