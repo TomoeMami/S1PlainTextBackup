@@ -5303,3 +5303,142 @@ v4fv的雷霆大思考有办法缓解么？不想切pro，pro太贵了一天我�
 
 —— 来自 Xiaomi 24129PN74C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  zkjqw139  
+##### 12347#       发表于 2026-9-2 19:45
+
+zeroa234/ryza-ai-revive
+
+2026/9/2 15:08:44
+
+正常
+
+Offline fan-made Ryza AI companion. Bring your own LLM/TTS. 离线同人莱莎 AI 陪伴，自填大模型与语音。
+
+README 译文
+
+Ryza Chat / 莱莎 Chat
+
+离线同人 AI 陪伴。一个静态 Web 应用，外加轻量的 Windows / Android 薄壳。大模型（LLM）与 TTS 密钥由你自己提供——不会连接任何官方服务器。
+
+非官方同人项目，仅供个人使用。与 Gust、Koei Tecmo 或原发行方无关。
+
+当前版本 1.2.15，Windows 安装包与安卓 APK 见 Releases。
+
+功能
+
+功能
+
+对话模式（聊天 / 剧情 / 沉浸 / ASMR / 文字）等五种模式
+
+Spine 4.2 立绘与场景，支持坐/站切换、点击反应
+
+本地 RPG 玩法：体力、任务、背包、每日登录
+
+可自填 OpenAI 兼容 LLM 与 TTS（含 Qwen）
+
+7 种界面语言
+
+无边框桌面窗口 + Android WebView APK
+
+脱衣只认回复标签行的 undress:on（旧键 nsfw 仍能解析），不会扫玩家关键词。
+
+隐私
+
+config/providers.json 已被 gitignore。请复制 config/providers.example.json，在本地填入密钥，切勿提交。
+
+密钥保存在应用设置中（localStorage / %AppData%\RyzaChat），不会打包进 exe/APK。
+
+打包时会运行 scripts/privacy_check.py；若即将加入产物的内容中含有形如密钥的敏感信息或本机个人路径，会 中止 打包。
+
+打包产物里没有密钥。本仓库也不应出现账号、本机路径、个人网关。
+
+从源码运行
+
+Spine 和 fetch 不能使用 file:// 协议。请使用随附的静态服务器（它同时提供 /_proxy 以处理 CORS）：
+
+python scripts/serve.py
+
+# 打开 [http://127.0.0.1:8765/](http://127.0.0.1:8765/)
+
+不要使用 python -m http.server——没有代理，LLM/TTS 会因 CORS 失败。
+
+桌面端
+
+cd desktop
+
+npm install
+
+npx electron .
+
+安装包：
+
+powershell -File scripts/build_desktop.ps1
+
+# -&gt; output/desktop/RyzaChat-Setup-.exe
+
+安卓端
+
+# 一次性配置 JDK 17 + Android SDK（见下方 RYZA_ANDROID_TOOLS）
+
+powershell -File scripts/setup_android_tools.ps1
+
+powershell -File scripts/build_apk.ps1
+
+# -&gt; output/android/RyzaChat-.apk
+
+工具链目录：设置 RYZA_ANDROID_TOOLS 环境变量，或将单个路径写入已被 gitignore 的 config/android-tools.local.txt。默认使用本仓库内的 .android-tools/ 目录（同样已被 gitignore）。
+
+设置里要填什么
+
+LLM — OpenAI 兼容的 Base URL、模型 ID 和 API key。
+
+TTS（可选）— 独立的 OpenAI 兼容字段或 Qwen DashScope。克隆/预设模型名称需在设备上填写；打包产物不包含 providers.json。
+
+开发时：把填好的 config/providers.json 放在本地即可（该文件已被 gitignore）。
+
+测试
+
+node scripts/nsfw_intent_regression.js
+
+node scripts/boot_smoke.js
+
+node scripts/game_logic_regression.js
+
+node scripts/memory_regression.js
+
+node scripts/motion_regression.js
+
+node scripts/expression_coverage.js
+
+python scripts/privacy_check.py web
+
+目录
+
+web/         应用（静态 HTML/JS + Spine 素材）
+
+desktop/     Electron 壳（ryza://app）
+
+android/     WebView + 本地 AssetServer
+
+scripts/     服务、索引、打包、隐私检查
+
+config/      version.json + providers.example.json
+
+docs/        PROJECT / AUDIT / HANDOFF（实现笔记）
+
+更多细节：`docs/PROJECT.md`。
+
+声明
+
+素材和角色形象来源于作者拥有的一份原作游戏拷贝；本仓库为从零编写的客户端。请勿将其视为官方产品，也不要用于接入官方服务或二次分发付费服务。
+
+*****
+
+####  nxmonitor  
+##### 12348#       发表于 2026-9-2 19:46
+
+物理逻辑上灰测没和Fable有多少差距，贴图质量和建模材质问题算是好解决的…
+
