@@ -309,3 +309,33 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毫不犹豫的决定选正雪 然后剑阶翻了半天找不到 以为没有  然后突然想起来不是剑阶（
 
+
+*****
+
+####  qixinno1  
+##### 21557#       发表于 2026-9-2 17:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">四星只送一个太微妙了
+
+*****
+
+####  克苏鲁系青骑士  
+##### 21558#       发表于 2026-9-2 17:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">啊这 小鹤跟枪美游都有点想要，又想给水飞嫂补宝
+
+*****
+
+####  v22325  
+##### 21559#       发表于 2026-9-2 17:38
+
+在水飞嫂和xxAlter之间还是选了飞嫂
+
+
+*****
+
+####  qixinno1  
+##### 21560#       发表于 2026-9-2 17:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">功利来说还是选没有+强化多的吧
+

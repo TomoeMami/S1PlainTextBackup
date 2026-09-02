@@ -3637,3 +3637,21 @@ HREoDWdWYAA1oHT.jpg
 
 濑织除了胸大，那张脸我觉得挺怪的。
 
+
+*****
+
+####  红魔馆的糖  
+##### 1054#       发表于 2026-9-2 17:37
+
+感觉这游戏应该和生化9一样，是我周五下午开机周日晚上正好打完<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">又要有完美周末了
+
+
+*****
+
+####  zqqwe  
+##### 1055#       发表于 2026-9-2 17:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70190051&amp;ptid=2210366" target="_blank">nagitoY 发表于 2026-9-2 17:19</a>
+卡表现在的角色设计处于一个既能讨好dei，又不让玩家太过反感的程度。</blockquote>
+新公布的紫式部普女以上，个人觉得没达到艺术化美女的水平，但卡表又专门做了一堆色气演出，抿嘴的黏膜音效都给你强调出来<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能有人真的好这口
+
