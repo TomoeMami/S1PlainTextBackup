@@ -4628,3 +4628,45 @@ astra 呢，赶紧端上来吧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">缓存降价，但是只降api不降订阅。fable5.1消耗还挺高的。
 
+
+*****
+
+####  王兰花秀丽  
+##### 12282#       发表于 2026-9-2 10:38
+
+qwen3.8max-0902来了，目前只看见这一个跑分    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+1000052855.jpg
+(241.56 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-2 10:38 上传
+
+<img src="https://img.stage1st.com/forum/202609/02/103828wlai1goelzo1oac1.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  舞以  
+##### 12283#       发表于 2026-9-2 10:41
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">qwen在他们的max模型上的理念是不是就是刷分就完事儿了？
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 12284#       发表于 2026-9-2 10:42
+
+<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+不服跑个分
+
+— from motorola XT2603-1, Android 16, [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  奥柏伦亲王  
+##### 12285#       发表于 2026-9-2 10:45
+
+<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">qwen明知道大家都知道他是跑分战士，但还是坚持不懈的刷分，阿里的人是不是脑子都有问题
+

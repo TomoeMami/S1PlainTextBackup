@@ -3092,3 +3092,18 @@ whatever 大棒老师都自身难保了
 他既然是pvp做底子的 应该搞个没门槛的竞技场玩法试试水 棒鸡还是在pve舒适区不断搞实验田 问题是我玩pve为 ...</blockquote>
 从d2的pvp来看我怀疑棒鸡就不会搞pvp
 
+
+*****
+
+####  zzy516232108  
+##### 293#       发表于 2026-9-2 10:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70185043&amp;ptid=2135998" target="_blank">nightshade037 发表于 2026-9-1 21:42</a>
+
+传言说是早期计划是做大逃杀，看到搜打撤火就转搜打撤了</blockquote>
+我听说也是早期做大逃杀
+
+主要是玩到以后发现就是土命2的枪和技能拆出来让大家玩
+
+我本来期待是一个halo搜打撤的，结果不是
+
