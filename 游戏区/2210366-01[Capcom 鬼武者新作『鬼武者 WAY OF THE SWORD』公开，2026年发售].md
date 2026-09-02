@@ -3259,3 +3259,11 @@ HREoDWdWYAA1oHT.jpg
 感觉国内口碑和全球销量都不会很理想啊（steam销量一般），希望主机玩家给力，卖不过太空萝莉就尴尬了 ...</blockquote>
 无论是pc还是主机预购量很难看，必定卖不过识质存在。萝莉当时售前蒸汽全球榜都冲到了第二，武藏现在才第九，而且是媒体评分大爆之后，预购量依然没有起来。我估计首周能破100W都烧高香了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lbb3313725  
+##### 1015#       发表于 2026-9-2 09:40
+
+宣传很奇怪，把大多数BOSS都公布出来，而且FAMI通视频这些BOSS战内容也透露的差不多了。
+
