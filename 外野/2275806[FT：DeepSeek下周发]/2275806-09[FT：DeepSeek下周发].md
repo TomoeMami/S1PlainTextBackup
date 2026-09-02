@@ -5463,3 +5463,28 @@ v4fv的雷霆大思考有办法缓解么？不想切pro，pro太贵了一天我�
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  舞以  
+##### 12351#       发表于 2026-9-2 20:20
+
+Fable如果真的是个超大规模，比较稠密的模型的话我觉得价值根本就不在coding
+可惜反人类Claude code起家，离开agent说不明白话
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qwased  
+##### 12352#       发表于 2026-9-2 20:23
+
+基元的赠币明天要过期，今天蹬了30块钱pro之后实在想不到还能做什么了，坛友来点建议
+
+*****
+
+####  omnitoken  
+##### 12353#       发表于 2026-9-2 20:25
+
+Astra 据说实现了第一个商用的loop transformer 变体
+
