@@ -142,3 +142,11 @@ xbg pv我发现所有的镜头里，草和树都在晃动，感觉是在凸显�
 
 pv2一般会展示战斗和场景，所以BGM使用范围需求就上来了。
 
+
+*****
+
+####  LT_Harry  
+##### 2061#       发表于 2026-9-2 07:54
+
+从 Switch 时代开始，第一次预告到发售好像都没有超过十二个月的，所以乐观估计是不是明年上半年就能看到游戏了<img src="https://static.stage1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
+
