@@ -5762,3 +5762,14 @@ gemini3.8flash这个分奇葩啊，高的瞎高，低的瞎低
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是把账号地点从香港迁到了日本就能用了
 
+
+*****
+
+####  MeursaulT  
+##### 12382#       发表于 2026-9-3 00:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70191882&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-2 22:54</a>
+话说这些ai公司的app和桌面端是不是都是vibe出来的
+OpenAI的已经很烂了，kimi的感觉更烂</blockquote>
+古法写bug更多。劣化一般是迭代太快、测试不足。同样开发节奏下，古法更容易像喝了假酒一样出低级错误。AI只是冗长，但更可靠。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
