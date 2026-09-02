@@ -3248,3 +3248,14 @@ HREoDWdWYAA1oHT.jpg
 一个小时，打过了试玩百秽，没怎么一闪，怕没闪到出大血，主要还是格挡和闪避的思路，特别是剩最后一点血容 ...</blockquote>
 不同动作一闪窗口不一样的，一般大开大阖的动作一闪窗口帧数是小动作的3-4倍，不闪就亏了
 
+
+*****
+
+####  conanoysq  
+##### 1014#       发表于 2026-9-2 09:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70186683&amp;ptid=2210366" target="_blank">缺德猫 发表于 2026-9-2 08:47</a>
+
+感觉国内口碑和全球销量都不会很理想啊（steam销量一般），希望主机玩家给力，卖不过太空萝莉就尴尬了 ...</blockquote>
+无论是pc还是主机预购量很难看，必定卖不过识质存在。萝莉当时售前蒸汽全球榜都冲到了第二，武藏现在才第九，而且是媒体评分大爆之后，预购量依然没有起来。我估计首周能破100W都烧高香了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

@@ -4525,3 +4525,11 @@ astra 呢，赶紧端上来吧
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  overflowal  
+##### 12270#       发表于 2026-9-2 09:30
+
+梁圣还是要想清楚，降价带来会刺激原来甚至不存在的需求。如果不能保证研究用的，还是别降，不然到时候撑不住又要升。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
