@@ -189,3 +189,13 @@
 
 靠，不小心将血斧直接干死了，吃一次血斧宝具任务失败了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 21550#       发表于 2026-9-2 15:12
+
+四星都抽溢出了只有一个白花
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
