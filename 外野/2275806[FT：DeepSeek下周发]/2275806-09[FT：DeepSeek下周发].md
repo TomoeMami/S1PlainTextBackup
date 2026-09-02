@@ -5820,3 +5820,39 @@ gemini 3.7flash没降智之前这块非常强，你趁现在3.8刚发赶紧蹬�
 
 原子弹明天要来了吗?
 
+
+*****
+
+####  xiaohanne  
+##### 12388#       发表于 2026-9-3 01:33
+
+<blockquote>唠叨 发表于 2026-9-3 01:15
+这两天蹬千问plan蹬爽了，开了Standard套餐。53个小时蹬了234M了。我感觉已经替代v4f了，能力，指令遵循， ...</blockquote>
+这是蹬的哪个模型呀？
+
+*****
+
+####  zxdrtyhn  
+##### 12389#       发表于 2026-9-3 01:36
+
+这个月的原子弹很多<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiaohanne  
+##### 12390#       发表于 2026-9-3 01:36
+
+<blockquote>med 发表于 2026-9-3 01:11
+除了a➗，哪家前端最强啊，尤其是审美要好看又高级，用来3d建模，gpt和ds测试下来都不算特别理想 ...</blockquote>
+前端和PPT好像一直是K3评价最好。
+
+*****
+
+####  唠叨  
+##### 12391#       发表于 2026-9-3 01:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70192353&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-9-3 01:33</a>
+
+这是蹬的哪个模型呀？</blockquote>
+qwen3.8flash
+
