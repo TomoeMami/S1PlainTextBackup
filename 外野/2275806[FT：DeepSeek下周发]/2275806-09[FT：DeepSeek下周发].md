@@ -5623,3 +5623,16 @@ OpenAI的已经很烂了，kimi的感觉更烂
 </blockquote>
 现在上哪找人给你古法手工写客户端和APP呀
 
+
+*****
+
+####  RookieTnT  
+##### 12367#       发表于 2026-9-2 23:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70191882&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-2 22:54</a>
+
+话说这些ai公司的app和桌面端是不是都是vibe出来的
+
+OpenAI的已经很烂了，kimi的感觉更烂</blockquote>
+kimi的已经算好了. minimax design 的甚至还是opencode 套壳. 虽然套了一层非常厚的workflow
+
