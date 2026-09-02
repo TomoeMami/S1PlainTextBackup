@@ -5651,3 +5651,41 @@ openai 的 Daybreak Blue  还需要绑定实体密钥才能用.. 好麻烦 不
 
 dsh 连着更了alpha 4和alpha 5    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  qwased  
+##### 12370#       发表于 2026-9-2 23:47
+
+qwen3.8 flash next好像是因为官方的MTP有问题导致上下文一长就流口水，本地部署的说只要关了mtp智力就能一直保持下去
+
+*****
+
+####  qz66618  
+##### 12371#       发表于 2026-9-2 23:48
+
+哈基米3.8flash发布了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  舞以  
+##### 12372#       发表于 2026-9-2 23:50
+
+哈基米的pro何时归来
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  xiaohanne  
+##### 12373#       发表于 2026-9-2 23:57
+
+<blockquote>舞以 发表于 2026-9-2 23:50
+哈基米的pro何时归来
+
+论坛助手,iPhone</blockquote>
+我怀疑哈基米已经放弃Pro了。本来嘛，对g家来说，不管是搜索入口还是浏览器入口，都用不着 Pro 那么高级的玩意儿。
+
