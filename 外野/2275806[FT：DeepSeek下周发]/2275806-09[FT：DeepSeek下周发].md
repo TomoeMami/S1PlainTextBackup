@@ -4959,3 +4959,72 @@ k3的订阅真挺不经用的<img src="https://static.stage1st.com/image/smiley/
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  tonyunreal  
+##### 12315#       发表于 2026-9-2 13:57
+
+ 本帖最后由 tonyunreal 于 2026-9-2 13:59 编辑 
+
+[https://status.deepseek.com/](https://status.deepseek.com/)
+
+DeepSeek V4 Pro API服务(API Service) 网页/API 完全中断 正在排查问题，以定位原因。
+
+大的来了！ 刷新了一下红色变成黄色了
+
+*****
+
+####  kykawaiii  
+##### 12316#       发表于 2026-9-2 13:58
+
+之前有过完全中断吗
+
+—— 来自 HONOR AAK-AN00, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  杀人鲸  
+##### 12317#       发表于 2026-9-2 13:59
+
+在其他地方看到的一个很有趣的说法：
+
+感觉手机号就是人的 API，打电话就可以调用。
+
+我国家免费训练我这个本地小模型 9 年，然后又自费训练了 3+4 年。
+最后训练出来的模型注意力容易涣散，上下文只有几千字。
+好消息是支持联网搜索，图片识别还行。
+
+训练结束后，模型自动生成一个任务结果：月付 4000 起步，周一到周五可能有周六周日，随叫随到从不缺席。
+平时在这个 APP 里面只要打字就可以调用，周末则需要输入一个 11 位数字作为 API key。
+
+如果哪天遇到一个参数匹配、框架兼容的本地小模型，两边甚至还能够联合蒸馏出一个更小的新模型。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  neptunehs  
+##### 12318#       发表于 2026-9-2 14:00
+
+现在的我已经不是黄金时代的我了 现在的我只觉得降价才是大的（
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  舞以  
+##### 12319#       发表于 2026-9-2 14:01
+
+大的又来了？<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cscbzcbz  
+##### 12320#       发表于 2026-9-2 14:03
+
+醒醒，上次pro正式版上线并没有中断服务，也没有性能下降，ds可以做到无缝切模型的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
