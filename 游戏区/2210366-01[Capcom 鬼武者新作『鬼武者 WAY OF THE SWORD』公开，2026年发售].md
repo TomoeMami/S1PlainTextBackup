@@ -3333,3 +3333,22 @@ HREoDWdWYAA1oHT.jpg
 
 玩游戏的都是仇人
 
+
+*****
+
+####  アルメリア  
+##### 1022#       发表于 2026-9-2 11:56
+
+概念神之全力卡普空
+
+*****
+
+####  沧兰殇  
+##### 1023#       发表于 2026-9-2 11:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70186829&amp;ptid=2210366" target="_blank">bcl2 发表于 2026-9-2 09:14</a>
+不同动作一闪窗口不一样的，一般大开大阖的动作一闪窗口帧数是小动作的3-4倍，不闪就亏了 ...</blockquote>
+一般下劈的时候会一闪，或者接磨刀，判定帧比较容易
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+

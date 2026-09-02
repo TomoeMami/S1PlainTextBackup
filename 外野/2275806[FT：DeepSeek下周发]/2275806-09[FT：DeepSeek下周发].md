@@ -4806,3 +4806,26 @@ qwen明知道大家都知道他是跑分战士，但还是坚持不懈的刷分�
 
 百炼这个39块钱b套餐能干啥啊，我就问了一下默认推理强度(最后也没回答出个所以然)，然后安了个skill。回头看一眼用量就
 
+
+*****
+
+####  舞以  
+##### 12300#       发表于 2026-9-2 12:04
+
+国模flash感觉还是梁叔叔的最靠谱，帕累托最优了
+
+牛来适合已经有glm订阅的用
+
+qwen的话我就不太懂了喵
+
+*****
+
+####  qwased  
+##### 12301#       发表于 2026-9-2 12:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70188095&amp;ptid=2275806" target="_blank">dodolee 发表于 2026-9-2 11:54</a>
+现在的几个 Flash 模型怎么选？Qwen 3.8 27B 对比 Qwen 3.8 Flash Next 125B 怎么样？有大佬试过吗？
+
+我在  ...</blockquote>
+flash next能跑动就比27b强
+
