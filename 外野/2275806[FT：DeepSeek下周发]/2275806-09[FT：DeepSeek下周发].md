@@ -4742,3 +4742,14 @@ qwen明知道大家都知道他是跑分战士，但还是坚持不懈的刷分�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">现在蹬deepseek的最佳方案是什么？之前一顿花活，有没有什么社区有总结好的方案？
 
+
+*****
+
+####  舞以  
+##### 12294#       发表于 2026-9-2 11:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70187616&amp;ptid=2275806" target="_blank">焚尘 发表于 2026-9-2 10:57</a>
+
+现在蹬deepseek的最佳方案是什么？之前一顿花活，有没有什么社区有总结好的方案？ ...</blockquote>
+梁文谷用官方，梁文峰按需使用<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
