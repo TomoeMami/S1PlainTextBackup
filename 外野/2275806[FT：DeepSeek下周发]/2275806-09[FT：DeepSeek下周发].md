@@ -4453,3 +4453,21 @@ WorkBuddy自己加了甲
 
 很好，只能求一下楼友有没有能用破甲得类似得东西了（
 
+
+*****
+
+####  wandeeees  
+##### 12263#       发表于 2026-9-2 08:37
+
+灰测新对话抽不到，在旧对话做了个高达和殖民卫星展示[https://deepdemos.top/demo/0901-e107a85d](https://deepdemos.top/demo/0901-e107a85d)
+
+光影和殖民卫星内部有问题
+
+<img src="https://img.stage1st.com/forum/202609/02/083707ng7gv7cnm49h4j7r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (214.91 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-2 08:37 上传
+
