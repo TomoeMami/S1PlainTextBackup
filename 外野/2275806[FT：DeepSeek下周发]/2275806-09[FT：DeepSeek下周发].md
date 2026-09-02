@@ -4497,3 +4497,31 @@ astra 呢，赶紧端上来吧
 
 这个升级还是之前的老路，语料你有他无所以表现好，迁移能力一点拓展都没有，还不如千问的那个有意思
 
+
+*****
+
+####  wandeeees  
+##### 12267#       发表于 2026-9-2 09:21
+
+等梁圣的这个灰测模型发布吧，应该是新架构，不像还是V4架构，应该加上了engram，再等他内蒙的算力中心建好，至少V4F是能恢复原来的价格的吧
+
+
+*****
+
+####  qwased  
+##### 12268#       发表于 2026-9-2 09:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70186875&amp;ptid=2275806" target="_blank">wandeeees 发表于 2026-9-2 09:21</a>
+等梁圣的这个灰测模型发布吧，应该是新架构，不像还是V4架构，应该加上了engram，再等他内蒙的算力中心建好 ...</blockquote>
+我猜最多保持谷价
+
+*****
+
+####  舞以  
+##### 12269#       发表于 2026-9-2 09:26
+
+别贷款<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+无论是降价还是新模型
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
