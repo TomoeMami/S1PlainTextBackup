@@ -4583,3 +4583,48 @@ astra 呢，赶紧端上来吧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你把现在的coding agent放到过去，肯定就惊呼agi了
 
+
+*****
+
+####  cscbzcbz  
+##### 12277#       发表于 2026-9-2 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70187301&amp;ptid=2275806" target="_blank">HellMaster 发表于 2026-9-2 10:20</a>
+完全没有线性关联，你们老当agi是什么赛博飞升？ 马克思主义者是讲物质基础的，你要飞升可以，放弃肉身吧 ...</blockquote>
+我对技术奇点的幻想是万能的许愿机<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 12278#       发表于 2026-9-2 10:31
+
+要实现agi，首先得有电，得有卡。有电有卡，不管是否实现了agi，token价格都会降低的
+
+
+*****
+
+####  Lorraine_Kinney  
+##### 12279#       发表于 2026-9-2 10:34
+
+等ANY上线，不过fable5下线挺久了，用不起
+
+*****
+
+####  squallx  
+##### 12280#       发表于 2026-9-2 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70187343&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-2 10:24</a>
+
+你把现在的coding agent放到过去，肯定就惊呼agi了</blockquote>
+缺一个主动获取信息然后行动的能力 AGANT没心跳式自主启动能力 都是经常干着活要等结果 然后忘记设个脚本到时踢自己 然后就停工了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 省TOKEN的摸鱼
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这方面先做出来的居然是猫娘计划这种娱乐项目   但是还是太烧TOKEN了
+
+
+*****
+
+####  当光停止  
+##### 12281#       发表于 2026-9-2 10:37
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">缓存降价，但是只降api不降订阅。fable5.1消耗还挺高的。
+

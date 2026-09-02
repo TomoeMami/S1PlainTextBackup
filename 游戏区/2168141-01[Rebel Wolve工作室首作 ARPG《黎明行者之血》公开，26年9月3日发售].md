@@ -638,3 +638,16 @@ MC 83
 
 据说有时间限制？时间到了家人直接噶
 
+
+*****
+
+####  Schwarzess  
+##### 54#       发表于 2026-9-2 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70187214&amp;ptid=2168141" target="_blank">Mephisto 发表于 2026-9-2 10:09</a>
+据说有时间限制？时间到了家人直接噶</blockquote>
+这作的卖点之一就是时间管理。
+序章结束之后固定30天拯救家人。
+每天又分成16个单位，各种活动（主线、支线、技能加点等等）会消耗时间。我印象比较深的是加点貌似是消耗3个单位。跑图之类的应该不消耗。
+然后这作的探索和支线之类所需要的时间总和是超过30天的，为了逼玩家做抉择。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
