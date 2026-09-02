@@ -354,3 +354,26 @@
 
 选了骑阶紫式部，让梅芙的降防可以成功。
 
+
+*****
+
+####  exiaexa  
+##### 21563#       发表于 2026-9-2 18:43
+
+笑死，我本来说打算选个蛇女房完事儿
+
+结果一看，截至2025年
+
+蛇女房和这次的泳装四星不算
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 21564#       发表于 2026-9-2 18:46
+
+选了恐龙
+四星就差山南了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+

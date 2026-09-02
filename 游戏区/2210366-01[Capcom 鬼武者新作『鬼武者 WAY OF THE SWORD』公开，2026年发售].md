@@ -3674,3 +3674,22 @@ demo里感觉怪普遍有点少，有点担心体量问题，说到体量又想�
 
 忍龙一个人超绝中年人审美和红黑还有赛博忍者这种超土设定集合路人看了确实得捏鼻子，而且那个濑织脸其实也很僵再加上龟甲缚这种恶俗设计真的没眼看，忍组加白金的美术合集那个味冲破天际了，虽然我玩着还是蛮开心的眼睛也不至于像玩仁王3那么瞎，鬼武者这种美术素就素一点至少普通玩家看了不会反感
 
+
+*****
+
+####  乔迪奥  
+##### 1058#       发表于 2026-9-2 18:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70190419&amp;ptid=2210366" target="_blank">u2deack 发表于 2026-9-2 18:26</a>
+
+忍龙一个人超绝中年人审美和红黑还有赛博忍者这种超土设定集合路人看了确实得捏鼻子，而且那个濑织脸其实也 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">龙哥那种黑色紧身衣的审美已经退版本了
+
+<img src="https://img.stage1st.com/forum/202609/02/183556vq4g6bfgbjx6xgcg.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20260902183526.png</strong> (476.7 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-2 18:35 上传
+
