@@ -5738,3 +5738,19 @@ gemini3.8flash这个分奇葩啊，高的瞎高，低的瞎低
 我只关心幻觉是不是真少了，来人看看</blockquote>
 都刷分了，我怀疑幻觉少不了。fable 5.1据说幻觉也很厉害。
 
+
+*****
+
+####  tonyunreal  
+##### 12379#       发表于 2026-9-3 00:19
+
+据dsh大群说前端oneshot结果比3.7还差
+
+*****
+
+####  qwased  
+##### 12380#       发表于 2026-9-3 00:19
+
+我的节点全给谷/风控了，好烦，只能网页问答不能反重力<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+哪位坛友可以私信我个便宜能用反重力的节点
+
