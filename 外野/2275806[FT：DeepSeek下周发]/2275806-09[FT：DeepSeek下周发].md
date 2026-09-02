@@ -4670,3 +4670,75 @@ qwen3.8max-0902来了，目前只看见这一个跑分    [Re:Source](https://
 
 <img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">qwen明知道大家都知道他是跑分战士，但还是坚持不懈的刷分，阿里的人是不是脑子都有问题
 
+
+*****
+
+####  zhanglei1943  
+##### 12286#       发表于 2026-9-2 10:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70187465&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-9-2 10:38</a>
+
+qwen3.8max-0902来了，目前只看见这一个跑分    Re:Source</blockquote>
+怎么有当年DXOMARK那味儿了<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  overflowal  
+##### 12287#       发表于 2026-9-2 10:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70187519&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-9-2 10:45</a>
+qwen明知道大家都知道他是跑分战士，但还是坚持不懈的刷分，阿里的人是不是脑子都有问题 ...</blockquote>
+有kpi的，那可不就使劲刷    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
+
+*****
+
+####  →熙←  
+##### 12288#       发表于 2026-9-2 10:49
+
+该死的glm,有生成工具不用, 自己手搓波形, 还搓不出来,浪费一早上<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ulian  
+##### 12289#       发表于 2026-9-2 10:50
+
+<blockquote>奥柏伦亲王 发表于 2026-9-2 10:45
+qwen明知道大家都知道他是跑分战士，但还是坚持不懈的刷分，阿里的人是不是脑子都有问题 ...</blockquote>
+人家领导未必知道，刷分也不是给用户看的
+
+*****
+
+####  neptunehs  
+##### 12290#       发表于 2026-9-2 10:52
+
+嘛 但至少跑分确实是能力上去了 只是对不上分数罢了 不能说能力没提升
+不过实操继续梁文谷的路过（
+
+—— 来自 vivo V2561A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  →熙←  
+##### 12291#       发表于 2026-9-2 10:52
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不刷分就无绩效,就地解散是吧
+
+
+*****
+
+####  squallx  
+##### 12292#       发表于 2026-9-2 10:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70187519&amp;ptid=2275806" target="_blank">奥柏伦亲王 发表于 2026-9-2 10:45</a>
+
+qwen明知道大家都知道他是跑分战士，但还是坚持不懈的刷分，阿里的人是不是脑子都有问题 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">哈基米3.7不也跑分还行 结果跟本地小模型打的有来有回
+
+*****
+
+####  焚尘  
+##### 12293#       发表于 2026-9-2 10:57
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">现在蹬deepseek的最佳方案是什么？之前一顿花活，有没有什么社区有总结好的方案？
+
