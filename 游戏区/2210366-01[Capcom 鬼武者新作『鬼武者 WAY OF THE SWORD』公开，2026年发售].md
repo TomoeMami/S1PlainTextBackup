@@ -3618,3 +3618,14 @@ HREoDWdWYAA1oHT.jpg
 试了下demo，这怪确实上瘾啊，但是是不是也会像怪猎一样本体初版几乎没有和demo一样强度的怪 ...</blockquote>
 测评都说了通关后有新难度，再通还有没有暂时不知道
 
+
+*****
+
+####  nagitoY  
+##### 1052#       发表于 2026-9-2 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70189640&amp;ptid=2210366" target="_blank">zqqwe 发表于 2026-9-2 16:19</a>
+
+忍龙4濑织把鬼武者这作全部女角色拉一起爆了，然而这么好的人设一集抛</blockquote>
+卡表现在的角色设计处于一个既能讨好dei，又不让玩家太过反感的程度。
+
