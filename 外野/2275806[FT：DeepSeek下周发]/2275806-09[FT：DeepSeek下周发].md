@@ -4549,3 +4549,19 @@ astra 呢，赶紧端上来吧
 
 我现在宁可牺牲部分智力换tps，尤其日常办公的时候，写代码的时候倒是无所谓……
 
+
+*****
+
+####  Promeus  
+##### 12273#       发表于 2026-9-2 09:59
+
+这个新模型如果发布只可能是金融战<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那时候新开一个名字更高价都可能
+
+
+*****
+
+####  cscbzcbz  
+##### 12274#       发表于 2026-9-2 10:04
+
+可能有点理想主义，如果agi真的存在，技术奇点不是一个科幻概念，总有一天token会和电费一样便宜吧<img src="https://static.stage1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
