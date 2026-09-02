@@ -5149,3 +5149,32 @@ flash好像没出问题？按理说pro这逼样很难被蹬爆吧
 
 我试用了一下hy4模型，感觉还是比较惊喜的，还没用来写代码，但是用于讨论它发现了不少DS没有提到的点，就是workbuddy这玩意老喜欢画图（吃算力）
 
+
+*****
+
+####  jasoncoop  
+##### 12333#       发表于 2026-9-2 15:56
+
+基元邀请：
+
+邀请好友限时活动继续延长，体验OpenSquilla新功能畅享免费token
+[https://tokenrhythm.studio/i/rf_tr_MdGaQpegnYNR7uDVE0TbucBg](https://tokenrhythm.studio/i/rf_tr_MdGaQpegnYNR7uDVE0TbucBg)
+
+
+*****
+
+####  crow_wine  
+##### 12334#       发表于 2026-9-2 16:02
+
+ 本帖最后由 crow_wine 于 2026-9-2 16:03 编辑 
+
+什么时候网页这个flash的回答变成这种结构化回答。和api调用里的完全不一样啊，预设提示词不同？
+
+<img src="https://img.stage1st.com/forum/202609/02/160222b0usmyxbga0hybxg.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2026-09-02 160136.png</strong> (74.19 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-2 16:02 上传
+
