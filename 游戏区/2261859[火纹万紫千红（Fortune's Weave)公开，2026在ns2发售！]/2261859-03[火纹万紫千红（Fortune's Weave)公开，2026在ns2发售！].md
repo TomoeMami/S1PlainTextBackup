@@ -3243,3 +3243,16 @@ is开通了自己的推特。
 
 找来那么多听都没有听过的cv…有那么差钱吗
 
+
+*****
+
+####  takayama  
+##### 3257#       发表于 2026-9-2 14:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70188941&amp;ptid=2261859" target="_blank">羽出 发表于 2026-9-2 14:36</a>
+
+找来那么多听都没有听过的cv…有那么差钱吗</blockquote>
+老任这几年找CV的模式是，事务所打包出个有名带些非人气或者新人的，比如野王棚的贤PRO（堀内贤雄老爷子当家）
+
+这次那肯定是81pro拉来一帮子，高山三木这种级别超级大御所都出动了呗，IM跟青二肯定不能缺席啊，青二不用说了呗
+
