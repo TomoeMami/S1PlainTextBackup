@@ -255,3 +255,13 @@ xbg pv我发现所有的镜头里，草和树都在晃动，感觉是在凸显�
 
 现在应该还不能断定他们一定没参与
 
+
+*****
+
+####  superlink  
+##### 2073#       发表于 2026-9-2 14:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你光神起码没有太拉过，音乐我觉得是没啥问题的。
+
+—— 来自 vivo V2502A, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0.100-alpha
+
