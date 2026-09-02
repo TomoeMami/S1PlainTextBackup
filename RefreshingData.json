@@ -7529,7 +7529,7 @@
     "newtitle": "[helldiver2老司机2steam国区降价了（转型讨论楼）]",
     "lastedit": 1788099846,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2152801": {
@@ -10229,7 +10229,7 @@
     "newtitle": "[宝可梦卡牌手游PTCG pocket（1.30已更新A2扩展包]",
     "lastedit": 1788099485,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2158375": {
@@ -10962,12 +10962,12 @@
     "update": false
   },
   "2125538": {
-    "totalreply": 937,
+    "totalreply": 939,
     "title": "[Re：从零开始的异世界生活—3期动画制作决定]",
     "newtitle": "[Re：从零开始的异世界生活—3期动画制作决定]",
-    "lastedit": 1788013927,
+    "lastedit": 1788359285,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2245458": {
@@ -12276,10 +12276,10 @@
     "update": false
   },
   "2265954": {
-    "totalreply": 21225,
+    "totalreply": 21226,
     "title": "[【明日方舟：终末地】情报汇总3号楼 本周五19：30「全面测试」前瞻特别节目]",
     "newtitle": "[【终末地：明日方舟】情报汇总3号楼 「雪凇幽梦」版本即将开放]",
-    "lastedit": 1788358572,
+    "lastedit": 1788358925,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12573,10 +12573,10 @@
     "update": false
   },
   "2271276": {
-    "totalreply": 9179,
+    "totalreply": 9180,
     "title": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
     "newtitle": "[2026年s1论坛股票讨论楼（又是充满希望的一年）]",
-    "lastedit": 1788353167,
+    "lastedit": 1788359168,
     "category": "外野",
     "active": true,
     "update": false
@@ -13077,10 +13077,10 @@
     "update": false
   },
   "2281194": {
-    "totalreply": 35485,
+    "totalreply": 35486,
     "title": "[【集中楼】百合&amp;泛百合讨论楼12.0]",
     "newtitle": "[【集中楼】百合&泛百合讨论楼12.0]",
-    "lastedit": 1788358686,
+    "lastedit": 1788358925,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13325,7 +13325,7 @@
     "newtitle": "[Switch 2《Splatoon RAIDERS／斯普拉遁 涂击队》7月23日发售，系列首个外传作品]",
     "lastedit": 1788099845,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2284518": {
@@ -13365,10 +13365,10 @@
     "update": false
   },
   "2284681": {
-    "totalreply": 3270,
+    "totalreply": 3271,
     "title": "[中东砖楼 2026年7月版]",
     "newtitle": "[中东砖楼 2026年9月版]",
-    "lastedit": 1788358569,
+    "lastedit": 1788358807,
     "category": "外野",
     "active": true,
     "update": false
@@ -13689,10 +13689,10 @@
     "update": false
   },
   "2286687": {
-    "totalreply": 907,
+    "totalreply": 912,
     "title": "[开个帖子，记录一下打海猫鸣泣之时的感想]",
     "newtitle": "[开个帖子，记录一下打海猫鸣泣之时的感想]",
-    "lastedit": 1788358572,
+    "lastedit": 1788359167,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14082,15 +14082,6 @@
     "lastedit": 1788182408,
     "category": "游戏区",
     "active": true,
-    "update": false
-  },
-  "2287784": {
-    "totalreply": 47,
-    "title": "[开个ATLUS非SMT正作和P系列相关的IP喜爱度／人气值投票]",
-    "newtitle": "[开个ATLUS非SMT正作和P系列相关的IP喜爱度／人气值投票]",
-    "lastedit": 1787149206,
-    "category": "游戏区",
-    "active": false,
     "update": false
   },
   "2287946": {
@@ -16119,10 +16110,10 @@
     "update": false
   },
   "2288578": {
-    "totalreply": 909,
+    "totalreply": 910,
     "title": "[这泥石流太吓人了]",
     "newtitle": "[这泥石流太吓人了]",
-    "lastedit": 1788357366,
+    "lastedit": 1788358807,
     "category": "外野",
     "active": true,
     "update": false
@@ -16443,10 +16434,10 @@
     "update": false
   },
   "2288668": {
-    "totalreply": 740,
+    "totalreply": 743,
     "title": "[孙哥居然被坑了]",
     "newtitle": "[孙哥居然被坑了]",
-    "lastedit": 1788358571,
+    "lastedit": 1788359168,
     "category": "外野",
     "active": true,
     "update": false
@@ -16479,19 +16470,19 @@
     "update": false
   },
   "2288655": {
-    "totalreply": 126,
+    "totalreply": 127,
     "title": "[16G显卡+qwen3.8 27B上下文200K，个人经验总结]",
     "newtitle": "[16G显卡+qwen3.8 27B上下文200K，个人经验总结（65楼更新编程能力跑分对比）]",
-    "lastedit": 1788355327,
+    "lastedit": 1788359167,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2288651": {
-    "totalreply": 108,
+    "totalreply": 109,
     "title": "[郭炜炜宣布从西山居离职]",
     "newtitle": "[郭炜炜宣布从西山居离职]",
-    "lastedit": 1788324607,
+    "lastedit": 1788359167,
     "category": "外野",
     "active": true,
     "update": false
@@ -17064,10 +17055,10 @@
     "update": false
   },
   "2288799": {
-    "totalreply": 74,
+    "totalreply": 76,
     "title": "[泥石流灾害有感，危险地带每个人能不能配一台大型起重人的无人机？]",
     "newtitle": "[泥石流灾害有感，危险地带每个人能不能配一台大型起重人的无人机？]",
-    "lastedit": 1788152647,
+    "lastedit": 1788359167,
     "category": "外野",
     "active": true,
     "update": false
@@ -17091,10 +17082,10 @@
     "update": false
   },
   "2288813": {
-    "totalreply": 3835,
+    "totalreply": 3867,
     "title": "[【B92】VUP综合讨论楼]",
     "newtitle": "[【B92】VUP综合讨论楼]",
-    "lastedit": 1788358571,
+    "lastedit": 1788359168,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
