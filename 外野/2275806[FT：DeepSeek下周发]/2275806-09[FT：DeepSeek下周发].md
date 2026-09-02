@@ -5773,3 +5773,38 @@ gemini3.8flash这个分奇葩啊，高的瞎高，低的瞎低
 OpenAI的已经很烂了，kimi的感觉更烂</blockquote>
 古法写bug更多。劣化一般是迭代太快、测试不足。同样开发节奏下，古法更容易像喝了假酒一样出低级错误。AI只是冗长，但更可靠。    [Re:Source](https://stage1st.com/2b/thread-2275277-1-1.html)
 
+
+*****
+
+####  med  
+##### 12383#       发表于 2026-9-3 01:11
+
+除了a➗，哪家前端最强啊，尤其是审美要好看又高级，用来3d建模，gpt和ds测试下来都不算特别理想
+
+*****
+
+####  舞以  
+##### 12384#       发表于 2026-9-3 01:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70192317&amp;ptid=2275806" target="_blank">med 发表于 2026-9-3 01:11</a>
+
+除了a➗，哪家前端最强啊，尤其是审美要好看又高级，用来3d建模，gpt和ds测试下来都不算特别理想 ...</blockquote>
+k3？
+
+
+*****
+
+####  qwased  
+##### 12385#       发表于 2026-9-3 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70192317&amp;ptid=2275806" target="_blank">med 发表于 2026-9-3 01:11</a>
+除了a➗，哪家前端最强啊，尤其是审美要好看又高级，用来3d建模，gpt和ds测试下来都不算特别理想 ...</blockquote>
+gemini 3.7flash没降智之前这块非常强，你趁现在3.8刚发赶紧蹬，可能下周又开始流口水了
+
+*****
+
+####  唠叨  
+##### 12386#       发表于 2026-9-3 01:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这两天蹬千问plan蹬爽了，开了Standard套餐。53个小时蹬了234M了。我感觉已经替代v4f了，能力，指令遵循，速度，多模态，价格。各方面来说都很能打。
+
