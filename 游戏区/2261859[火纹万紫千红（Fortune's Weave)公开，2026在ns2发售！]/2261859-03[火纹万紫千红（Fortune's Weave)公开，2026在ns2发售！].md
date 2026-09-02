@@ -3092,3 +3092,11 @@ is开通了自己的推特。
 
 也可能角色一个个试音过来两个都配的不错。
 
+
+*****
+
+####  406  
+##### 3243#       发表于 2026-9-2 10:12
+
+今天发的这个战车大爷居然还有鼻环装饰，先前看直面会视频时都没发现<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

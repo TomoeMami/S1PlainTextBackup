@@ -445,3 +445,19 @@ Saber的后期和最终Boss令和没有能碰瓷的，前期我当战队看的�
 
 —— 来自 HUAWEI HOP-AL10, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
 
+
+*****
+
+####  洛克萨斯  
+##### 2258#       发表于 2026-9-2 10:16
+
+<img src="https://img.stage1st.com/forum/202609/02/101616gdnlv66ag4lflf4z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (437.11 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-2 10:16 上传
+
+杀青合影，橘校长真是好年轻，夫人我都认不出来了
+
