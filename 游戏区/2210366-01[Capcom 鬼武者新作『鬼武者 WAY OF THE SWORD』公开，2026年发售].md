@@ -3576,3 +3576,11 @@ HREoDWdWYAA1oHT.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">忍龙的皮相一直都很差吧，指骗非系列受众进来玩的能力
 
+
+*****
+
+####  Jabeck  
+##### 1047#       发表于 2026-9-2 16:10
+
+传统ACT除了鬼泣哪个没褒姒？贝姐3销量才刚100W出头。
+
