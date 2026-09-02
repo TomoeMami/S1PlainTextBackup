@@ -5808,3 +5808,15 @@ gemini 3.7flash没降智之前这块非常强，你趁现在3.8刚发赶紧蹬�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这两天蹬千问plan蹬爽了，开了Standard套餐。53个小时蹬了234M了。我感觉已经替代v4f了，能力，指令遵循，速度，多模态，价格。各方面来说都很能打。
 
+
+*****
+
+####  RookieTnT  
+##### 12387#       发表于 2026-9-3 01:18
+
+博主称“gpt-6-astra”已暂存于 OpenAI API，接口对其返回 404
+
+有网友发现“gpt-6-astra”已暂存于 OpenAI API。Responses API 对该名称返回 404，而不存在的模型名称返回 400。
+
+原子弹明天要来了吗?
+
