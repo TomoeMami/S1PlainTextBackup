@@ -3520,3 +3520,33 @@ HREoDWdWYAA1oHT.jpg
 
 大伙吵得这么热闹啊，我多嘴说一句，steam预载开了
 
+
+*****
+
+####  ParadiseMartyr  
+##### 1041#       发表于 2026-9-2 14:26
+
+ 本帖最后由 ParadiseMartyr 于 2026-9-2 14:28 编辑 
+
+主要真怕体量小，宇宙小萝莉体量小但是科幻美术看着舒服玩法新颖啊
+这游戏boss咔咔几刀没了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主角能闪避能弹反能一闪，集体性能爆炸的同时还没鬼泣那样的搓招系统，可玩性上天然差一节
+—— 来自 Xiaomi 23054RA19C, Android 13, [鹅球](https://www.pgyer.com/GcUxKd4w) v4.0
+
+*****
+
+####  57042711  
+##### 1042#       发表于 2026-9-2 14:27
+
+忍龙变化还是太小了，只能说复活成功<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  乔迪奥  
+##### 1043#       发表于 2026-9-2 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70188851&amp;ptid=2210366" target="_blank">舌怪 发表于 2026-9-2 14:20</a>
+
+说起来忍龙4扑得够彻底的，提都没人提</blockquote>
+忍龙4毕竟是上了XGP，玩具出了不少说明还是可以的 
+
