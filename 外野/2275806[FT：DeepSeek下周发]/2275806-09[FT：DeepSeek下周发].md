@@ -5868,3 +5868,11 @@ qwen3.8flash
 
 —— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+
+*****
+
+####  qwased  
+##### 12393#       发表于 2026-9-3 05:08
+
+基元部署的DS模型好像量化的有点狠，复刻了一下提示词做的东西都一坨
+
