@@ -4753,3 +4753,21 @@ qwen明知道大家都知道他是跑分战士，但还是坚持不懈的刷分�
 现在蹬deepseek的最佳方案是什么？之前一顿花活，有没有什么社区有总结好的方案？ ...</blockquote>
 梁文谷用官方，梁文峰按需使用<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 12295#       发表于 2026-9-2 11:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70187616&amp;ptid=2275806" target="_blank">焚尘 发表于 2026-9-2 10:57</a>
+现在蹬deepseek的最佳方案是什么？之前一顿花活，有没有什么社区有总结好的方案？ ...</blockquote>
+基元律动，咸鱼买余额号
+
+
+*****
+
+####  龙骑将  
+##### 12296#       发表于 2026-9-2 11:22
+
+如果想做一个放置类小游戏自娱自乐，这种用啥模型啥工具比较好？
+

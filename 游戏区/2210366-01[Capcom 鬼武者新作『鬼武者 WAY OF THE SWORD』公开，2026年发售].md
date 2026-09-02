@@ -3308,3 +3308,20 @@ HREoDWdWYAA1oHT.jpg
 
 正着反着都有人说，怎么就你家哥哥这么无辜呢？
 
+
+*****
+
+####  Sliurus  
+##### 1019#       发表于 2026-9-2 11:23
+
+只能说有人玩得不是游戏，是站队
+
+两个游戏都玩好像是什么十恶不赦的事一样
+
+*****
+
+####  Yugao  
+##### 1020#       发表于 2026-9-2 11:27
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很合理啊，毕竟每个人都有抄起键盘要保护东西，这才是pvp
+
