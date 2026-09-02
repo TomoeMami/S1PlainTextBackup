@@ -3419,3 +3419,52 @@ HREoDWdWYAA1oHT.jpg
 欧美都去买那个吸血鬼版巫师了 ...</blockquote>
 没毛病，这年头就怕骂都没人骂。
 
+
+*****
+
+####  爱上了三个你  
+##### 1030#       发表于 2026-9-2 13:36
+
+<blockquote>Jabeck 发表于 2026-9-2 13:07
+首先二游痴找到机会会攻击一切单机来抬高二游，
+
+其次鬼武者撞上两个国单，影之刃是同类型发售日还近，钟馗 ...</blockquote>
+别说你还真别说，以后如果二游也有类似鬼武者的拼刀演出，那现在的节奏还算小的呢
+
+*****
+
+####  魂馆飒太  
+##### 1031#       发表于 2026-9-2 13:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70185068&amp;ptid=2210366" target="_blank">放大镜 发表于 2026-9-1 21:46</a>
+
+社区战争早在自定义年度游戏的那一刻就打响了，那才是看谁都像要害自家哥哥的样子，哪还用等到入秋媒体出 ...</blockquote>
+说的没二游之前就没社区战争了一样，二游出来之前谁家好谁家大不一样喷的狗血淋头的<img src="https://static.stage1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jabeck  
+##### 1032#       发表于 2026-9-2 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70188648&amp;ptid=2210366" target="_blank">爱上了三个你 发表于 2026-9-2 13:36</a>
+
+别说你还真别说，以后如果二游也有类似鬼武者的拼刀演出，那现在的节奏还算小的呢 ...</blockquote>
+你觉得可能吗。。。随便抄一抄让孝子吹一吹就行了，二游是数值游戏不是动作游戏。
+
+*****
+
+####  卡拉德利姆  
+##### 1033#       发表于 2026-9-2 13:43
+
+二十年前三大act就是吵得最厉害的一批玩家 只能说是一种传承
+
+*****
+
+####  wwhaha  
+##### 1034#       发表于 2026-9-2 13:43
+
+感觉化劲和弹开就是降低门槛拉新人的手段吧，围绕防御让失败成本降低的同时削韧带来的收益太大了（特别对小次郎这种人形boss）
+
+相反闪避除了用来反投技，日常使用风险对新人和手残来说就比较高，失败了真挨打<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 
+

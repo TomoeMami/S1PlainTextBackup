@@ -3209,3 +3209,21 @@ is开通了自己的推特。
 
 好像还有两个神殿的侍奉官和直属军队还没介绍，这鼻环帅大叔被革职的原因不至于跟凯爹类似<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  freedom12  
+##### 3254#       发表于 2026-9-2 13:41
+
+ 本帖最后由 freedom12 于 2026-9-2 13:43 编辑 
+
+<img src="https://img.stage1st.com/forum/202609/02/134030xvoabofzoq1hs1hh.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (26.59 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-2 13:40 上传
+
+发现一个小细节，角色的头发可能是带物理的，能够贴合衣服
+
