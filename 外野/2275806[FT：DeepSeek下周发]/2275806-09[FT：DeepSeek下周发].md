@@ -5589,3 +5589,14 @@ WorkBuddy的都难用，不知道腾子加了什么东西，用deepseek flash都
 字节的plan里glm 5.3 f给了0.15/M的平价。。。。无论输入输出cache 现在1B 15块 我们处理每天10个T数据的成 ...</blockquote>
 每天10个T数据不如去找原厂谈商用吧. 字节的plan都挺坑的.
 
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 12364#       发表于 2026-9-2 22:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70191734&amp;ptid=2275806" target="_blank">RookieTnT 发表于 2026-9-2 22:24</a>
+
+每天10个T数据不如去找原厂谈商用吧. 字节的plan都挺坑的.</blockquote>
+合规问题吧 国内我们只能从字节/阿里/腾讯采购 
+
