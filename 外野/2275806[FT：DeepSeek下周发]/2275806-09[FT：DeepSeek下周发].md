@@ -5073,3 +5073,61 @@ flash好像没出问题？按理说pro这逼样很难被蹬爆吧
 
 [论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  misuzu0723  
+##### 12325#       发表于 2026-9-2 14:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">估计只是自己服务器弄炸了？pro现在估计用的人很少吧，尤其是峰价
+
+*****
+
+####  nxmonitor  
+##### 12326#       发表于 2026-9-2 14:17
+
+<blockquote>cscbzcbz 发表于 2026-9-2 14:03
+醒醒，上次pro正式版上线并没有中断服务，也没有性能下降，ds可以做到无缝切模型的 ...</blockquote>
+有，不过不是当天是前几天…
+
+
+*****
+
+####  杀人鲸  
+##### 12327#       发表于 2026-9-2 14:20
+
+恢复了，API不清楚，至少网页的Pro已经可以用了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  wandeeees  
+##### 12328#       发表于 2026-9-2 14:21
+
+合理猜测是草台班子关闭灰测的时候把正常的也给不小心关掉了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cscbzcbz  
+##### 12329#       发表于 2026-9-2 14:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70188840&amp;ptid=2275806" target="_blank">nxmonitor 发表于 2026-9-2 14:17</a>
+有，不过不是当天是前几天…</blockquote>
+那可以期待下周五了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  舞以  
+##### 12330#       发表于 2026-9-2 14:22
+
+ 本帖最后由 舞以 于 2026-9-2 14:26 编辑 
+
+恢复了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+并没有大的好像
+好像没完全恢复
+
+状态页也绿了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
