@@ -3468,3 +3468,11 @@ HREoDWdWYAA1oHT.jpg
 
 相反闪避除了用来反投技，日常使用风险对新人和手残来说就比较高，失败了真挨打<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  inhalc  
+##### 1035#       发表于 2026-9-2 13:49
+
+等后天看体量吧，如果还是缩水到 10h 左右通关 298 这个价格我倾向等打折
+
