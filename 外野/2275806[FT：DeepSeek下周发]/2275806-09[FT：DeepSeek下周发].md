@@ -4829,3 +4829,26 @@ qwen的话我就不太懂了喵
 我在  ...</blockquote>
 flash next能跑动就比27b强
 
+
+*****
+
+####  →熙←  
+##### 12302#       发表于 2026-9-2 12:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70188171&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-2 12:04</a>
+
+国模flash感觉还是梁叔叔的最靠谱，帕累托最优了
+
+牛来适合已经有glm订阅的用
+
+qwen的话我就不太懂了喵 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">牛来也没那么合适, 有订阅的直接glm5.3, flash也不耐用, 5.3还聪明点
+
+
+*****
+
+####  舞以  
+##### 12303#       发表于 2026-9-2 12:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">kimi的审查啥情况啊，一个纯粹的历史问题，让它做深度研究，不知道是不是搜到了啥怪东西，然后就告诉我失败了。
+
