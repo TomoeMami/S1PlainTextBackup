@@ -5488,3 +5488,23 @@ Fable如果真的是个超大规模，比较稠密的模型的话我觉得价值
 
 Astra 据说实现了第一个商用的loop transformer 变体
 
+
+*****
+
+####  王兰花秀丽  
+##### 12354#       发表于 2026-9-2 20:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70190987&amp;ptid=2275806" target="_blank">omnitoken 发表于 2026-9-2 20:25</a>
+Astra 据说实现了第一个商用的looped transformer 变体</blockquote>
+你别说，我鲸小子又在幻想了，灰测版那种高效思维链可以说是经过后期加工的，有没有可能也是通过looped transformer实现的呢<img src="https://static.stage1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 12355#       发表于 2026-9-2 20:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70191096&amp;ptid=2275806" target="_blank">王兰花秀丽 发表于 2026-9-2 20:42</a>
+
+你别说，我鲸小子又在幻想了，灰测版那种高效思维链可以说是经过后期加工的，有没有可能也是通过looped t ...</blockquote>
+现在不理解这个思维链怎么出来的，Flash的灰测类似但明显是流式的
+

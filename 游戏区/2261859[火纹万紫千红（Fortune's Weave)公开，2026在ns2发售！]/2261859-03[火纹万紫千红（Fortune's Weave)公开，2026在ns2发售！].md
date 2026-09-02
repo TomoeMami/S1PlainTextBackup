@@ -3313,3 +3313,11 @@ dlc情报还没有，发售日没有dlc的话先不开坑了
 
 怎么个人技强度只有一半的庞德罗啊<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蓮華  
+##### 3263#       发表于 2026-9-2 20:36
+
+恋钟：一看就是卑女
+

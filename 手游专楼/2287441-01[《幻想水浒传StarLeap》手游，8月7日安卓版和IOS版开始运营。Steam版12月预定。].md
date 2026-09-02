@@ -16,3 +16,14 @@
 
 同志们这期卡池下吗，还是继续等3（3是不是能歪出1跟2的<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  mnmn  
+##### 72#       发表于 2026-9-2 20:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70190756&amp;ptid=2287441" target="_blank">琉歌 发表于 2026-9-2 19:45</a>
+
+同志们这期卡池下吗，还是继续等3（3是不是能歪出1跟2的</blockquote>
+三个性价比都不低 比1池实用  下期两个雷属性
+
