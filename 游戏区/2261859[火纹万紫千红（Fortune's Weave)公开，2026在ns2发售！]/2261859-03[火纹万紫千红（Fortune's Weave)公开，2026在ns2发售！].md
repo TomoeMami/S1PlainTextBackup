@@ -3199,3 +3199,13 @@ is开通了自己的推特。
 
 估计要轮到那个大个子跟莫西干头那队了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小学生把持不住  
+##### 3253#       发表于 2026-9-2 12:52
+
+ 本帖最后由 小学生把持不住 于 2026-9-2 12:53 编辑 
+
+好像还有两个神殿的侍奉官和直属军队还没介绍，这鼻环帅大叔被革职的原因不至于跟凯爹类似<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
