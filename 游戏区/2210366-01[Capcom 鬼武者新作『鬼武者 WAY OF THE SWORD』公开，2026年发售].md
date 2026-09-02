@@ -3550,3 +3550,13 @@ HREoDWdWYAA1oHT.jpg
 说起来忍龙4扑得够彻底的，提都没人提</blockquote>
 忍龙4毕竟是上了XGP，玩具出了不少说明还是可以的 
 
+
+*****
+
+####  skgaminger1988  
+##### 1044#       发表于 2026-9-2 15:31
+
+预购烂不是单纯卡普空控制成本有口皆碑，大火都知道等游戏出了再买了吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2458A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
