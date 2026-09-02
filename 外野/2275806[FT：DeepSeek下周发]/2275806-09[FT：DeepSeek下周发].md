@@ -5754,3 +5754,11 @@ gemini3.8flash这个分奇葩啊，高的瞎高，低的瞎低
 我的节点全给谷/风控了，好烦，只能网页问答不能反重力<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 哪位坛友可以私信我个便宜能用反重力的节点
 
+
+*****
+
+####  舞以  
+##### 12381#       发表于 2026-9-3 00:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是把账号地点从香港迁到了日本就能用了
+

@@ -3843,3 +3843,14 @@ MC剑星 82分，轮回之兽 73分，自己想想卡婊这些游戏85到90之�
 
 这次魂也是立回的一环了吧怪也会吸应该不大可能自动的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  姬茧墨  
+##### 1074#       发表于 2026-9-3 00:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70191545&amp;ptid=2210366" target="_blank">Jabeck 发表于 2026-9-2 21:59</a>
+
+MC剑星 82分，轮回之兽 73分，自己想想卡婊这些游戏85到90之间是否合理。</blockquote>
+为什么不合理，这两游戏配给卡表提鞋吗
+
