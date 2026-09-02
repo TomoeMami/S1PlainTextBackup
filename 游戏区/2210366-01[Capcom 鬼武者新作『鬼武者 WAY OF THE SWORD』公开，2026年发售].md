@@ -3920,3 +3920,26 @@ MC剑星 82分，轮回之兽 73分，自己想想卡婊这些游戏85到90之�
 
 其实我觉得就是卡婊的龙信2加荒野得罪太多人了，感觉之后出的都在被狠狠挑刺，没那么多社区大战的事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wwmmddqqbbpp  
+##### 1082#       发表于 2026-9-3 04:49
+
+其实我觉得就是卡婊的龙信2加荒野得罪太多人了，感觉之后出的都在被狠狠挑刺，没那么多社区大战的事<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  缺德猫  
+##### 1083#       发表于 2026-9-3 05:40
+
+黎明行者之血全球销量这么爆啊？登顶了，不过鬼武者也升了几位，看来卖个200W问题不大！
+
+<img src="https://img.stage1st.com/forum/202609/03/054024erjj4cczoc44pscp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (227.46 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 05:40 上传
+

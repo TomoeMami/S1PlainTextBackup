@@ -5876,3 +5876,114 @@ qwen3.8flash
 
 基元部署的DS模型好像量化的有点狠，复刻了一下提示词做的东西都一坨
 
+
+*****
+
+####  med  
+##### 12394#       发表于 2026-9-3 01:11
+
+除了a➗，哪家前端最强啊，尤其是审美要好看又高级，用来3d建模，gpt和ds测试下来都不算特别理想
+
+*****
+
+####  舞以  
+##### 12395#       发表于 2026-9-3 01:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70192317&amp;ptid=2275806" target="_blank">med 发表于 2026-9-3 01:11</a>
+
+除了a➗，哪家前端最强啊，尤其是审美要好看又高级，用来3d建模，gpt和ds测试下来都不算特别理想 ...</blockquote>
+k3？
+
+*****
+
+####  qwased  
+##### 12396#       发表于 2026-9-3 01:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70192317&amp;ptid=2275806" target="_blank">med 发表于 2026-9-3 01:11</a>
+除了a➗，哪家前端最强啊，尤其是审美要好看又高级，用来3d建模，gpt和ds测试下来都不算特别理想 ...</blockquote>
+gemini 3.7flash没降智之前这块非常强，你趁现在3.8刚发赶紧蹬，可能下周又开始流口水了
+
+*****
+
+####  唠叨  
+##### 12397#       发表于 2026-9-3 01:15
+
+ 本帖最后由 唠叨 于 2026-9-3 01:38 编辑 
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这两天蹬千问plan的qwen3.8flash蹬爽了，开了Standard套餐。53个小时蹬了234M了。我感觉已经替代v4f了，能力，指令遵循，速度，多模态，价格。各方面来说都很能打。
+
+*****
+
+####  RookieTnT  
+##### 12398#       发表于 2026-9-3 01:18
+
+博主称“gpt-6-astra”已暂存于 OpenAI API，接口对其返回 404
+
+有网友发现“gpt-6-astra”已暂存于 OpenAI API。Responses API 对该名称返回 404，而不存在的模型名称返回 400。
+
+原子弹明天要来了吗?
+
+*****
+
+####  xiaohanne  
+##### 12399#       发表于 2026-9-3 01:33
+
+<blockquote>唠叨 发表于 2026-9-3 01:15
+这两天蹬千问plan蹬爽了，开了Standard套餐。53个小时蹬了234M了。我感觉已经替代v4f了，能力，指令遵循， ...</blockquote>
+这是蹬的哪个模型呀？
+
+*****
+
+####  zxdrtyhn  
+##### 12400#       发表于 2026-9-3 01:36
+
+这个月的原子弹很多<img src="https://static.stage1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiaohanne  
+##### 12401#       发表于 2026-9-3 01:36
+
+<blockquote>med 发表于 2026-9-3 01:11
+除了a➗，哪家前端最强啊，尤其是审美要好看又高级，用来3d建模，gpt和ds测试下来都不算特别理想 ...</blockquote>
+前端和PPT好像一直是K3评价最好。
+
+*****
+
+####  唠叨  
+##### 12402#       发表于 2026-9-3 01:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70192353&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-9-3 01:33</a>
+
+这是蹬的哪个模型呀？</blockquote>
+qwen3.8flash
+
+*****
+
+####  tonyunreal  
+##### 12403#       发表于 2026-9-3 01:58
+
+结论是：在格式明确、规则强约束的任务中，3.7和3.8几乎相同；但在自然、开放、需要自主科研判断的复杂问题中，3.8更容易为了构建漂亮机制而引入未经提供的背景事实。
+
+有人用sol给哈基米的考题做的评价
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  qwased  
+##### 12404#       发表于 2026-9-3 05:08
+
+基元部署的DS模型好像量化的有点狠，复刻了一下提示词做的东西都一坨
+
+*****
+
+####  厍无春  
+##### 12405#       发表于 2026-9-3 05:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70192145&amp;ptid=2275806" target="_blank">qwased 发表于 2026-9-2 23:47</a>
+qwen3.8 flash next好像是因为官方的MTP有问题导致上下文一长就流口水，本地部署的说只要关了mtp智力就能一 ...</blockquote>
+其实主要原因是原生上下文是256k，1m是扩展上下文。
+训练的时候用的只有256k，上下文多了自然会流口水
+
