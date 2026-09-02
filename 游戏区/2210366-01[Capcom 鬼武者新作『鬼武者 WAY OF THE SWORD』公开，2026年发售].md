@@ -3592,3 +3592,18 @@ HREoDWdWYAA1oHT.jpg
 
 忍龙4濑织把鬼武者这作全部女角色拉一起爆了，然而这么好的人设一集抛<img src="https://static.stage1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  手铐君  
+##### 1049#       发表于 2026-9-2 16:32
+
+体量看了ucg和a9都说全收集在25小时左右，包括了一些不能跳的动画和对话。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">心理预期10-15小时主线。应该是有的吧
+
+*****
+
+####  sotsu  
+##### 1050#       发表于 2026-9-2 16:34
+
+试了下demo，这怪确实上瘾啊，但是是不是也会像怪猎一样本体初版几乎没有和demo一样强度的怪
+
