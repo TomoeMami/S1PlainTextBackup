@@ -3288,3 +3288,23 @@ HREoDWdWYAA1oHT.jpg
 
 龙信2 MC 86
 
+
+*****
+
+####  mai6696  
+##### 1018#       发表于 2026-9-2 11:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184794&amp;ptid=2210366" target="_blank">Akmenter 发表于 2026-9-1 20:53</a>
+
+那你就要问为什么有人认为影之刃跳票是为了避鬼武者锋芒了。我觉得有些人对国单的恨意要远超过日本这一精 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202609/02/110746taktc4batsrwalfe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (31.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-2 11:07 上传
+
+正着反着都有人说，怎么就你家哥哥这么无辜呢？
+
