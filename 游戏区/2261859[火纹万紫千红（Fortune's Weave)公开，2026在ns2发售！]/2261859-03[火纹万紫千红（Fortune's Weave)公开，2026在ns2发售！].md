@@ -3100,3 +3100,47 @@ is开通了自己的推特。
 
 今天发的这个战车大爷居然还有鼻环装饰，先前看直面会视频时都没发现<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  flyingover  
+##### 3244#       发表于 2026-9-2 10:20
+
+<img src="https://img.stage1st.com/forum/202609/02/102010fhoohhh7c4h6zblh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.83 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-2 10:20 上传
+
+【キャラクター】ベンディッツ（CV：近藤浩徳）
+
+自らを声高に「将軍」と名乗る、隻眼の老騎士。
+
+神殿で百人隊長を務めていたが、数年前に不祥事を起こして行き場を失い、現在は傭兵を生業としている。
+
+●好きなもの：大アウグストの戦術、見どころのある若者、若者への説教、読書
+
+
+*****
+
+####  星花  
+##### 3245#       发表于 2026-9-2 10:22
+
+丑闻啊。
+
+*****
+
+####  cox  
+##### 3246#       发表于 2026-9-2 10:22
+
+本作人气垫底的潜力人选来了。。。<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  巴尔干炮  
+##### 3247#       发表于 2026-9-2 10:23
+
+这个战车的直线突进好猛。
+

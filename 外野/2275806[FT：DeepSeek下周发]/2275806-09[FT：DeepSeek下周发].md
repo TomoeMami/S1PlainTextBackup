@@ -4565,3 +4565,21 @@ astra 呢，赶紧端上来吧
 
 可能有点理想主义，如果agi真的存在，技术奇点不是一个科幻概念，总有一天token会和电费一样便宜吧<img src="https://static.stage1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HellMaster  
+##### 12275#       发表于 2026-9-2 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70187187&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-2 10:04</a>
+可能有点理想主义，如果agi真的存在，技术奇点不是一个科幻概念，总有一天token会和电费一样便宜吧 ...</blockquote>
+完全没有线性关联，你们老当agi是什么赛博飞升？ 马克思主义者是讲物质基础的，你要飞升可以，放弃肉身吧。
+
+
+*****
+
+####  舞以  
+##### 12276#       发表于 2026-9-2 10:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你把现在的coding agent放到过去，肯定就惊呼agi了
+
