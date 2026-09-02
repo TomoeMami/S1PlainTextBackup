@@ -3607,3 +3607,14 @@ HREoDWdWYAA1oHT.jpg
 
 试了下demo，这怪确实上瘾啊，但是是不是也会像怪猎一样本体初版几乎没有和demo一样强度的怪
 
+
+*****
+
+####  黑暗之眼  
+##### 1051#       发表于 2026-9-2 16:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70189738&amp;ptid=2210366" target="_blank">sotsu 发表于 2026-9-2 16:34</a>
+
+试了下demo，这怪确实上瘾啊，但是是不是也会像怪猎一样本体初版几乎没有和demo一样强度的怪 ...</blockquote>
+测评都说了通关后有新难度，再通还有没有暂时不知道
+

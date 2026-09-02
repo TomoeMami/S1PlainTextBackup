@@ -349,3 +349,19 @@ V2估计UR是AB，本体SSR可以换装
 
 不太可能吧，EXVS标签也就一台裸极限，UCE感觉关服之前都混不进这游戏
 
+
+*****
+
+####  captoon  
+##### 4664#       发表于 2026-9-2 16:38
+
+<img src="https://img.stage1st.com/forum/202609/02/163821o56s8msl5xmxmx5m.png" referrerpolicy="no-referrer">
+
+<strong>e337f0d425968605e50ae75ead597544.png</strong> (187.49 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-2 16:38 上传
+
+可惜没有奥古词条的船
+
