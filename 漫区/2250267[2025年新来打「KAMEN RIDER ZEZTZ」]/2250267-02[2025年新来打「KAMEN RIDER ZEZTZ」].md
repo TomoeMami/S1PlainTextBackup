@@ -489,3 +489,11 @@ Saber的后期和最终Boss令和没有能碰瓷的，前期我当战队看的�
 
 圣刃在我这边和逆转4一样，和前面的比是真的拉完了，奈何后面还有几坨等着你
 
+
+*****
+
+####  haoshion  
+##### 2262#       发表于 2026-9-2 14:13
+
+把三号直接对调到后面都可能比现在好<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">四条区当最终反派还是太蠕动了，连点乐子都找不到
+

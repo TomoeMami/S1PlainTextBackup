@@ -5028,3 +5028,48 @@ DeepSeek V4 Pro API服务(API Service) 网页/API 完全中断 正在排查问�
 
 醒醒，上次pro正式版上线并没有中断服务，也没有性能下降，ds可以做到无缝切模型的<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tonyunreal  
+##### 12321#       发表于 2026-9-2 14:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70188779&amp;ptid=2275806" target="_blank">cscbzcbz 发表于 2026-9-2 14:03</a>
+醒醒，上次pro正式版上线并没有中断服务，也没有性能下降，ds可以做到无缝切模型的 ...</blockquote>
+所以是更大的模型来了，ds ultra！<img src="https://static.stage1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25060RK16C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  舞以  
+##### 12322#       发表于 2026-9-2 14:05
+
+flash好像没出问题？按理说pro这逼样很难被蹬爆吧
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  野蛮人之夜  
+##### 12323#       发表于 2026-9-2 14:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70188787&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-2 14:05</a>
+
+flash好像没出问题？按理说pro这逼样很难被蹬爆吧
+
+论坛助手,iPhone</blockquote>
+看了一下flash是绿的
+
+[https://status.deepseek.com/incidents/6927183076287](https://status.deepseek.com/incidents/6927183076287)
+
+*****
+
+####  舞以  
+##### 12324#       发表于 2026-9-2 14:10
+
+难道真的赶走人一切都会好起来<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+不说新模型，pro的adhd症状能修好也可以
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
