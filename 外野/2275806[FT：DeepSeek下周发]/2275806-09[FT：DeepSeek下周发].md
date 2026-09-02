@@ -5711,3 +5711,30 @@ gemini3.8flash这个分奇葩啊，高的瞎高，低的瞎低
 —— 来自 vivo V2520A, Android 16, 鹅球 v3.5.99-alph ...</blockquote>
 看了眼，我宣布deep swe已经是野榜了！
 
+
+*****
+
+####  tonyunreal  
+##### 12376#       发表于 2026-9-3 00:13
+
+啥情况，哈基米左手斩o÷，右手斩a÷？ <img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  scikirbypoke  
+##### 12377#       发表于 2026-9-3 00:15
+
+据说内部刷分导向了
+我只关心幻觉是不是真少了，来人看看
+
+*****
+
+####  xiaohanne  
+##### 12378#       发表于 2026-9-3 00:17
+
+<blockquote>scikirbypoke 发表于 2026-9-3 00:15
+据说内部刷分导向了
+
+我只关心幻觉是不是真少了，来人看看</blockquote>
+都刷分了，我怀疑幻觉少不了。fable 5.1据说幻觉也很厉害。
+
