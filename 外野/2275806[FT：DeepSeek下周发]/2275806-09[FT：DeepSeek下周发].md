@@ -5600,3 +5600,26 @@ WorkBuddy的都难用，不知道腾子加了什么东西，用deepseek flash都
 每天10个T数据不如去找原厂谈商用吧. 字节的plan都挺坑的.</blockquote>
 合规问题吧 国内我们只能从字节/阿里/腾讯采购 
 
+
+*****
+
+####  舞以  
+##### 12365#       发表于 2026-9-2 22:54
+
+话说这些ai公司的app和桌面端是不是都是vibe出来的<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+OpenAI的已经很烂了，kimi的感觉更烂
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  xiaohanne  
+##### 12366#       发表于 2026-9-2 22:59
+
+<blockquote>舞以 发表于 2026-9-2 22:54
+话说这些ai公司的app和桌面端是不是都是vibe出来的
+
+OpenAI的已经很烂了，kimi的感觉更烂
+</blockquote>
+现在上哪找人给你古法手工写客户端和APP呀
+
