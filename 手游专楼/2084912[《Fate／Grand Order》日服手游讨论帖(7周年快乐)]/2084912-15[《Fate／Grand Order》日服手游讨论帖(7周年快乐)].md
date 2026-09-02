@@ -339,3 +339,18 @@
 
 <img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">功利来说还是选没有+强化多的吧
 
+
+*****
+
+####  angelooo  
+##### 21561#       发表于 2026-9-2 18:25
+
+这不说是渡边纲我还以为是别的游戏的角色
+
+*****
+
+####  khxooo  
+##### 21562#       发表于 2026-9-2 18:26
+
+选了骑阶紫式部，让梅芙的降防可以成功。
+

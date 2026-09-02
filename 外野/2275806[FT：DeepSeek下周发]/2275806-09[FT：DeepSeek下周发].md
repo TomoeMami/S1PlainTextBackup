@@ -5236,3 +5236,30 @@ command的flash感觉不太聪明的样子，是错觉吗？
 
 梁子，再不端上来就只能降价卖了
 
+
+*****
+
+####  zhanglei1943  
+##### 12341#       发表于 2026-9-2 18:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70190370&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-2 18:16</a>
+
+今天在 arena.ai 抽到了肥波5.1
+
+试用之后我对ds灰测模型的期待值从ds ultra降级为ds pro 0902</blockquote>
+一个任务动辄几十、几百刀的模型对于普通人有可用性吗<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zy450  
+##### 12342#       发表于 2026-9-2 18:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70190370&amp;ptid=2275806" target="_blank">tonyunreal 发表于 2026-9-2 18:16</a>
+
+今天在 arena.ai 抽到了肥波5.1
+
+试用之后我对ds灰测模型的期待值从ds ultra降级为ds pro 0902</blockquote>
+肥波5.1和DS PRO的用户不是一个群体吧
+
+多少人的工作能用肥波5.1
+
