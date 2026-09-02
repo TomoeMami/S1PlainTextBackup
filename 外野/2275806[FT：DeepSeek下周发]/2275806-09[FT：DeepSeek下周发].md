@@ -5508,3 +5508,39 @@ Astra 据说实现了第一个商用的looped transformer 变体</blockquote>
 你别说，我鲸小子又在幻想了，灰测版那种高效思维链可以说是经过后期加工的，有没有可能也是通过looped t ...</blockquote>
 现在不理解这个思维链怎么出来的，Flash的灰测类似但明显是流式的
 
+
+*****
+
+####  bartholo4  
+##### 12356#       发表于 2026-9-2 21:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70190676&amp;ptid=2275806" target="_blank">苇原雪道 发表于 2026-9-2 19:29</a>
+
+v4fv的雷霆大思考有办法缓解么？不想切pro，pro太贵了一天我干出去好几十
+
+—— 来自 Xiaomi 24129PN74C, A ...</blockquote>
+装这个
+[https://github.com/yjh051108/dsh-routing-suite](https://github.com/yjh051108/dsh-routing-suite)
+
+
+*****
+
+####  相见恨晚  
+##### 12357#       发表于 2026-9-2 22:01
+
+怎么感觉WorkBuddy好难用啊，广告多就不说了，用免费的hy4思维链里还一直说恶心的话，最重要的是询问自己跳没了，根本没有问啊。本来还想TRAE让5.3把积分用完来WorkBuddy的K3的
+
+*****
+
+####  RookieTnT  
+##### 12358#       发表于 2026-9-2 22:04
+
+字节不是也搞过looped transformer的论文吗? 怎么到现在他的大模型也是一坨..
+
+*****
+
+####  野蛮人之夜  
+##### 12359#       发表于 2026-9-2 22:04
+
+<blockquote>李飞飞World Labs发布新一代世界模型Atlas，号称全球首个多模态世界模型。它不仅能精确控制相机生成视频，还能完成3D重建、视频换机位，甚至把真实场景快速复制进模拟器，用来训练机器人。</blockquote>不懂，但感觉这个好像很厉害
+
