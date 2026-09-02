@@ -3226,3 +3226,25 @@ HREoDWdWYAA1oHT.jpg
 
 感觉国内口碑和全球销量都不会很理想啊（steam销量一般），希望主机玩家给力，卖不过太空萝莉就尴尬了
 
+
+*****
+
+####  conanoysq  
+##### 1012#       发表于 2026-9-2 09:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70184899&amp;ptid=2210366" target="_blank">乔迪奥 发表于 2026-9-1 21:14</a>
+
+这个护甲是什么?副武器的效果还是其他皮肤，话说剧透有说除了豪华版送的皮肤之外还有其他可替换皮肤吗 ...</blockquote>
+红迪偷跑哥们儿说游戏内可以拿到10套左右的皮肤，但没有说皮肤只否只是单纯是皮肤
+
+
+*****
+
+####  bcl2  
+##### 1013#       发表于 2026-9-2 09:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70185419&amp;ptid=2210366" target="_blank">沧兰殇 发表于 2026-9-1 22:41</a>
+
+一个小时，打过了试玩百秽，没怎么一闪，怕没闪到出大血，主要还是格挡和闪避的思路，特别是剩最后一点血容 ...</blockquote>
+不同动作一闪窗口不一样的，一般大开大阖的动作一闪窗口帧数是小动作的3-4倍，不闪就亏了
+
