@@ -4871,3 +4871,36 @@ qwen的话我就不太懂了喵 ...</blockquote>
 
 话说TRAE里同一个定时收集一公众号今日的一篇文章的自动化任务有时用六点积分有时用快三百积分，怎么才能更标准一点呢
 
+
+*****
+
+####  novalli  
+##### 12306#       发表于 2026-9-2 13:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70188492&amp;ptid=2275806" target="_blank">相见恨晚 发表于 2026-9-2 13:03</a>
+话说TRAE里同一个定时收集一公众号今日的一篇文章的自动化任务有时用六点积分有时用快三百积分，怎么才能更 ...</blockquote>
+写脚本，减少LLM判断的部分。
+
+—— 来自 Xiaomi 25042PN24C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v4.0-alpha
+
+
+*****
+
+####  来都来了  
+##### 12307#       发表于 2026-9-2 13:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70187616&amp;ptid=2275806" target="_blank">焚尘 发表于 2026-9-2 10:57</a>
+现在蹬deepseek的最佳方案是什么，比如使用哪些harness或者agent工具？之前一顿抽象花活，有没有什么社区有 ...</blockquote>
+Pi
+反正我已经是Pi的脑残粉了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sellboy  
+##### 12308#       发表于 2026-9-2 13:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70187486&amp;ptid=2275806" target="_blank">舞以 发表于 2026-9-2 10:41</a>
+
+qwen在他们的max模型上的理念是不是就是刷分就完事儿了？</blockquote>
+是每个模型……
+

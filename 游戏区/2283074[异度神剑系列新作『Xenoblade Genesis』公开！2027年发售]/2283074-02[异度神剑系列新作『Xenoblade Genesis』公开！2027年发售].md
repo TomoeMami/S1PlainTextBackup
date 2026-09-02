@@ -225,3 +225,14 @@ https://b23.tv/BV1dg411J7sR
 
 去翻了一下发售前xb2是8000楼，xb3是22000楼，xb3当时因为有xb1 xb2的人物讨论度是真的高。
 
+
+*****
+
+####  riin2  
+##### 2070#       发表于 2026-9-2 13:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70170635&amp;ptid=2283074" target="_blank">richardkisser 发表于 2026-8-30 13:03</a>
+
+xbg pv我发现所有的镜头里，草和树都在晃动，感觉是在凸显风的存在，风肯定是环境叙事里重要的一环，就跟xb ...</blockquote>
+预告片说了anima之力可以操纵水火风，女三那个学姐类似于xb3“送行”的能力似乎用的就是风之力
+
