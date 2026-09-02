@@ -27,3 +27,15 @@
 同志们这期卡池下吗，还是继续等3（3是不是能歪出1跟2的</blockquote>
 三个性价比都不低 比1池实用  下期两个雷属性
 
+
+*****
+
+####  琉歌  
+##### 73#       发表于 2026-9-2 22:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70191094&amp;ptid=2287441" target="_blank">mnmn 发表于 2026-9-2 20:41</a>
+三个性价比都不低 比1池实用  下期两个雷属性</blockquote>
+确实都有说法，ミルイヒ尤其香，不过感觉还是要优先抽齐各属性C，生存端辅助端都可以再想想办法……果然这游戏最难的地方是规划下池<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 來自 realme RMX5200, Android 16, [鵝球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
