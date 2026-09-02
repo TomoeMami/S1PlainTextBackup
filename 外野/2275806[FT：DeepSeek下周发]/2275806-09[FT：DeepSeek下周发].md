@@ -5202,3 +5202,17 @@ command的flash感觉不太聪明的样子，是错觉吗？
 
 试了下grok的判断机制很奇怪，生图露两点通过率很高但视频露两点通过率就极低……
 
+
+*****
+
+####  冤枉呐  
+##### 12338#       发表于 2026-9-2 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=70190020&amp;ptid=2275806" target="_blank">xiaohanne 发表于 2026-9-2 17:15</a>
+试了下grok的判断机制很奇怪，生图露两点通过率很高但视频露两点通过率就极低…… ...</blockquote>
+生图一次成型，然后转视频有可能成功
+你已经有图了，再改就难
+有视频再改基本不可能
+
+—— 来自 HUAWEI ALN-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
