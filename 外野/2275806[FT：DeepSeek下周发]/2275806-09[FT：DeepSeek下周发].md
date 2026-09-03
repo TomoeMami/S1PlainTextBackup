@@ -6366,3 +6366,19 @@ omp我用下来对dsv4flash的适配一坨啊
 
 flash next还能这样部署，速度也还可以
 
+
+*****
+
+####  自由之紫roy  
+##### 12439#       发表于 2026-9-3 13:19
+
+<img src="https://img.stage1st.com/forum/202609/03/131928rzcoo9dccrt8ebd9.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20260903131907_494_111.png</strong> (93.62 KB, 下载次数: 0)
+
+下载附件
+
+2026-9-3 13:19 上传
+
+大多数专家放入单卡，速度也能接受
+
